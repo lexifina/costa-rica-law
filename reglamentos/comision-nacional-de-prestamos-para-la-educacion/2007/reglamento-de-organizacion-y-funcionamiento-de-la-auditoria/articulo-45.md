@@ -1,1 +1,0 @@
-Artículo 45.—Trámite de informes de servicios de auditoría. Los informes producto de los Servicios de Auditoría, se tramitarán de conformidad con lo dispuesto en los artículos 35, 36, 37 y 38 de la LGCI, con aplicación de las regulaciones establecidas en CONAPE y con observancia del Manual para el Ejercicio de la Auditoría Interna emitido por la CGR.

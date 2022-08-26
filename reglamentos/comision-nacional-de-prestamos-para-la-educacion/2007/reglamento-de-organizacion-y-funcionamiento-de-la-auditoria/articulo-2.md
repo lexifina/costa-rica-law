@@ -1,1 +1,0 @@
-Artículo 2º—Ámbito de aplicación. Este Reglamento es de acatamiento obligatorio para todos los funcionarios de la Auditoría Interna y para los funcionarios de la Administración Activa de CONAPE, en materia que les resulte aplicable.

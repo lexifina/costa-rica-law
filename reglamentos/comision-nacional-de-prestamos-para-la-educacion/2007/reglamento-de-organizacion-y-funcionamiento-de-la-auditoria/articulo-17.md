@@ -1,1 +1,0 @@
-Artículo 17.—Informe de fin de gestión. Una vez concluida la relación laboral, sin importar la causa, el Auditor Interno deberá presentar un informe de fin de gestión conforme lo estable el artículo Nº 12 inciso e) de la Ley General de Control Interno y demás directrices emitidas por el Órgano Contralor al respecto.

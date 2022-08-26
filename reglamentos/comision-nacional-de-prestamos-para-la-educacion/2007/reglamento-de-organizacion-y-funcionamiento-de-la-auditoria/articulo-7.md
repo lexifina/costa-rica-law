@@ -1,1 +1,0 @@
-Artículo 7º—Objetividad individual y ética profesional. Los funcionarios de la Auditoría Interna deben tener una actitud imparcial y neutral para evitar conflictos de intereses y proteger su independencia de criterio. Además deben observar las disposiciones de ética profesional emanadas de la CGR y los Colegios Profesionales a que pertenecen.
