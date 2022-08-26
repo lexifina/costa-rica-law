@@ -1,0 +1,2 @@
+Artículo 5°-EI responsable del Fondo de Caja Chica será el Tesorero quien deberá rendir la respectiva caución como garantía y respaldo de su gestión, lo anterior de conformidad con lo establecido en el Reglamento para la rendición de cauciones de los funcionarios del Consejo Nacional de Concesiones.
+Dicha caución deberá de suscribirse a partir de la publicación del presente Reglamento por quien ejerza el cargo.

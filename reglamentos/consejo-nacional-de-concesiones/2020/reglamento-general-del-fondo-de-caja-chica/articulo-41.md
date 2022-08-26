@@ -1,0 +1,1 @@
+Artículo 41.-Queda totalmente prohibido a los operadores del Fondo de Caja Chica realizar el fraccionamiento de compras con la finalidad de evadir el monto límite establecido para la adquisición de bienes y servicios por medio del Fondo de Caja Chica.

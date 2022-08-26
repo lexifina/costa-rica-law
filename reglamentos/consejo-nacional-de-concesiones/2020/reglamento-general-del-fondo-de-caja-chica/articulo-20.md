@@ -1,0 +1,1 @@
+Artículo 20.-El formulario "Solicitud de adelanto de Caja Chica" será pre numerado y deberá contener la fecha, monto, nombre y firma del director solicitante del bien o servicio, así como tres facturas proforma y la compra final se deberá realizar con facturas debidamente timbradas.

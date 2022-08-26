@@ -1,0 +1,1 @@
+Artículo 43.-Los documentos impresos y electrónicos que se generen por el uso de la Caja Chica deberán ser custodiados por el Archivo Institucional con una copia debidamente certificada en la Dirección Administrativa y Financiera del Consejo.

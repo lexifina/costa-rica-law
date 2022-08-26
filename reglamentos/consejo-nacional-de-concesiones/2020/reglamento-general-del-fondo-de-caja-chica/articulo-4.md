@@ -1,0 +1,1 @@
+Artículo 4°-Se podrán adquirir activos fijos por medio de Fondos de Caja Chica, cuando el costo del artículo sea inferior al tope establecido de un salario base de un Técnico Judicial 2 (Este monto será revisado anualmente de conformidad con el ajuste salarial para ese cargo).

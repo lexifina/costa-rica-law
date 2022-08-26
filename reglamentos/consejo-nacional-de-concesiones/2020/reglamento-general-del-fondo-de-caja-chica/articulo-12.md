@@ -1,0 +1,1 @@
+Artículo 12.-Las operaciones y trámites de reintegro de fondos se podrán realizar por medio de cheque, transferencia electrónica, o por aquellos medios que determine la Tesorería Nacional del Ministerio de Hacienda.

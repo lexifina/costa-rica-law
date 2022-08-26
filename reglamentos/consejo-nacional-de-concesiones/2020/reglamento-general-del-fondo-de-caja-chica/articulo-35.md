@@ -1,0 +1,1 @@
+Artículo 35.-La Dirección Administrativa Financiera será el responsable de suministrar los formularios denominados. "Pedido de Compra, Solicitud de Adelanto de Caja Chica y Liquidación de Caja Chica", los cuales deberán ser pre numerados consecutivamente por dicha dependencia.

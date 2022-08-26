@@ -1,0 +1,4 @@
+Artículo 7°-Para adquirir bienes o servicios con Fondos de Caja Chica se requiere cumplir con el trámite de los siguientes formularios: Pedido de Compra, Solicitud de Adelanto de Caja Chica y Liquidación de Caja Chica.
+La Solicitud de Adelanto de Caja Chica debe ser autorizada por el director del Área que solicita el bien o servicio, el cual es responsable de verificar que el material que se pretende adquirir no exista en el almacén del CNC. Además, este formulario debe incluir el visto bueno del Director Administrativo Financiero.
+En el caso de la Liquidación de Caja Chica debe ser firmado por el responsable de la custodia del fondo.
+Toda compra que se realice con fondos de caja chica deberá ser respaldada por al menos tres facturas proforma y la compra final se deberá realizar con facturas debidamente timbradas a nombre del Consejo Nacional de Concesiones y será incorporado al inventario de bienes de este.

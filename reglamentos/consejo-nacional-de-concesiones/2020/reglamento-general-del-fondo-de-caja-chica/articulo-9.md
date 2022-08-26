@@ -1,0 +1,2 @@
+Artículo 9°-EI custodio del Fondo de Caja Chica deberá mantener, un registro actualizado de las firmas de los funcionarios autorizados para aprobar los documentos para el pago de bienes, servicios, adelantos y desembolsos.
+En caso de ser autorizado mediante firma digital, esta deberá contar con vigencia de conformidad con la Ley N° 8454 (Ley de certificados digitales, firmas digitales y documentos electrónicos), de Io cual se llevará registro aparte por su naturaleza.
