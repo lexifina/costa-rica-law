@@ -1,0 +1,3 @@
+Artículo 4º-Autoridad Responsable. El Ministerio de Justicia y Paz, a través del Viceministerio de Paz, será la autoridad encargada de coordinar la Mesa Técnica Interinstitucional, así como el seguimiento de sus funciones relacionadas con la ruta de trabajo.
+Le corresponderá también, con el apoyo y asesoría de la Mesa Técnica Interinstitucional, articular con las demás instituciones las acciones tendientes a la solución de las necesidades de la población indígena.
+Corresponderá al Comisionado de Inclusión Social nombrado por la Presidencia de la República, la función de acompañamiento a la comisión para el cumplimento de los objetivos de la presente Directriz.

@@ -1,0 +1,1 @@
+Artículo 7º-Vigencia de la conformación de la Mesa Técnica Interinstitucional. La vigencia de la Mesa Técnica Interinstitucional para la construcción de la ruta de trabajo y la atención de la población indígena 2022-2026, es a partir del 09 de agosto del 2022 hasta el 07 de mayo del 2026.

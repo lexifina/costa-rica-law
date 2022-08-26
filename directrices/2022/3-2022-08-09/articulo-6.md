@@ -1,0 +1,1 @@
+Artículo 6º-Declaratoria de interés público. Para asegurar el efectivo cumplimiento de sus objetivos, se declaran de interés público la Mesa Técnica Interinstitucional en la construcción de la ruta de trabajo para la atención de la población indígena 2022-2026.

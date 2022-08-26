@@ -1,0 +1,1 @@
+Artículo 3º-Sesiones. La Mesa Técnica Interinstitucional para la construcción de la ruta de trabajo y atención de la población indígena 2022-2026, se reunirá ordinariamente al menos dos veces al mes y extraordinariamente cuando el encargado de la Mesa lo solicite.

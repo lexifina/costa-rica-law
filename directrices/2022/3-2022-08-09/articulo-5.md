@@ -1,0 +1,1 @@
+Artículo 5º-Deber de cooperación interinstitucional. En aplicación de los principios de eficiencia, eficacia y coordinación, se insta a los Ministerios y se insta a las instituciones públicas descentralizadas, cuya participación sea considerada a incorporarse, en el ámbito de sus competencias, a la integración en el proceso de construcción de la hoja de ruta.
