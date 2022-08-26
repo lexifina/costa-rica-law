@@ -1,0 +1,1 @@
+Artículo 65.- En la Municipalidad funciona una Junta de Relaciones laborales integrada por igual número de representantes institucionales, y de las organizaciones sindicales firmantes de la Convención, la cual se regirá por los acuerdos alcanzados y que se encuentren vigentes en la Convención Colectiva vigente en la Municipalidad de Santa Cruz.

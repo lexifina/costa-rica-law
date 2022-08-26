@@ -1,0 +1,4 @@
+Artículo 12.- Todo funcionario municipal debe estar amparado por un contrato de trabajo tal y como lo establece el Código de Trabajo. No obstante, en caso de omisión, se presumirá la existencia de un contrato de trabajo, siempre que se presenten los siguientes elementos:
+a.Prestación personal del servicio: El trabajo debe ser realizado única yexclusivamente por el servidor o servidora municipal contratada y no por otrapersona. El funcionario o funcionaria deberá ser siempre una persona física.
+b.Salario o remuneración: Es la suma de dinero que recibe el servidor oservidora municipal de parte del patrono a cambio del trabajo que realiza.
+c.Subordinación: Es la situación de obediencia jurídica en que se encuentra elservidor o servidora municipal en relación con el patrono que recibe losservicios y paga por ellos. Situación en la cual el trabajador está sujeto a lajerarquía de su patrono, la cual se expresa en las potestades de dirección,mando e instrucción.

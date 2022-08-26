@@ -1,0 +1,1 @@
+Artículo 77.- La Municipalidad de Santa Cruz podrá autorizar de manera excepcional, permisos con o sin goce de salario, con el fin de que funcionarios de la Institución, puedan participar en eventos culturales, deportivos o similares, dentro ofuera del país, en representación de la Municipalidad, del cantón de Santa Cruz ode Costa Rica. 46

@@ -1,0 +1,1 @@
+Artículo 35.- La Institución debe mantener actualizado el Manual descriptivo de Puestos, misma que deberá ser revisado por la oficina de Recursos Humanos cada tres años a efectos de determinar actualizaciones necesarias al mismo, sin perjuicio de aquellas necesidades de actualización puntuales que tenga la Municipalidad de Santa Cruz.

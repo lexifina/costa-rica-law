@@ -1,0 +1,1 @@
+Artículo 6.- En virtud del principio de legalidad, el servidor municipal no podrá disfrutar de más beneficios, ni la Municipalidad ejercer mayores potestades que las expresamente autorizadas por este Reglamento y/o por las demás normas del ordenamiento jurídico tanto internas como externas a la municipalidad.

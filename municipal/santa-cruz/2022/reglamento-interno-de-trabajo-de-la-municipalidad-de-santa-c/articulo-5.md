@@ -1,0 +1,1 @@
+Artículo 5.- Los directores, coordinadores de departamento, jefaturas y todos aquellos servidores que tengan bajo su responsabilidad tareas de administración o supervisión de personal, son responsables ante el Alcalde de velar por la correcta aplicación de todas las disposiciones de este reglamento.

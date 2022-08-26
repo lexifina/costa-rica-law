@@ -1,0 +1,1 @@
+Artículo 52.- Se considera un acto de discriminación, cuando los mecanismos empleados para este proceso no sean adaptados a las condiciones del aspirante, cuando se exijan requisitos adicionales a los establecidos para todos los solicitantes ocuando no se emplea a un aspirante idóneo debido a su discapacidad.

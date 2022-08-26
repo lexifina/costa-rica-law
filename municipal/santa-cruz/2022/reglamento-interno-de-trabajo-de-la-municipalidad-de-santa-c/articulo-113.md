@@ -1,0 +1,2 @@
+Artículo 113. Excepciones de Fondo:
+Si el investigado opone las Excepciones de Falta de Derecho, Falta de Legitimación, Falta de Causa o cualquier otra, éstas se resolverán cuando se dicte el acto final del procedimiento, las cuales se podrán interponerse en cualquier momento e incluso en las conclusiones. La propuesta de sanción disciplinaria y/o de responsabilidad patrimonial considerará y analizará la procedencia de estas excepciones.

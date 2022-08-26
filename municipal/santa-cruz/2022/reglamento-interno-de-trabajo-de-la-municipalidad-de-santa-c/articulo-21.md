@@ -1,0 +1,1 @@
+Artículo 21.- La modificación de las condiciones de trabajo se efectuará mediante acción de personal expedida por el Departamento de Recursos Humanos, y autorizada por el Alcalde Municipal, cuya firma les otorgará validez y eficacia.

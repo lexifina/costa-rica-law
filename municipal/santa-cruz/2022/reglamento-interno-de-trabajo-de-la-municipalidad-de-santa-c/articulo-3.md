@@ -1,0 +1,1 @@
+Artículo 3.- Las normas del presente Reglamento serán aplicadas acudiendo a los métodos y procedimientos usuales en el Derecho Administrativo-Laboral, recurriendo a fuentes escritas del ordenamiento jurídico costarricense como la Constitución Política, el Código Municipal, el Código de Trabajo, la Convención Colectiva Vigente y normas conexas.

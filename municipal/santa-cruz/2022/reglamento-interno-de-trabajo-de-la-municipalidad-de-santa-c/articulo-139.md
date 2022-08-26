@@ -1,0 +1,2 @@
+Artículo 139. Conclusión de la Comparecencia:
+Una vez evacuada toda la prueba documental y testimonial, tal situación se consignará en un acta, donde, además, se establecerá la conclusión de la comparecencia. De conformidad con lo dispuesto en el artículo 317 de la Ley General de Administración Pública, las partes realizarán su alegato de conclusiones al finalizar la comparecencia, lo anterior sin perjuicio de que dentro de los tres días hábiles lo presenten por escrito, en caso de no haberlo hecho durante la misma.

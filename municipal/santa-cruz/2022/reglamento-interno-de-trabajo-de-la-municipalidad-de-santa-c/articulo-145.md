@@ -1,0 +1,2 @@
+Artículo 145. Sobre la Queja:
+Con relación a la interposición de una queja contra los órganos del procedimiento administrativo, deberá presentarse ante el superior de la autoridad o funcionario que se presuma responsable de la falta que se reclama, de conformidad con lo dispuesto en los artículos 358, 359 y 360 de la Ley General de Administración Pública.

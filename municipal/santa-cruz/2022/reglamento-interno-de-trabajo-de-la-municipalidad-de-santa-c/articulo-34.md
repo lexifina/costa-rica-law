@@ -1,0 +1,1 @@
+Artículo 34.- El mismo procedimiento se aplicará para el caso de las reclasificaciones, revaloraciones, con la salvedad que estas regirán a partir de la fecha en que sea aprobado el documento presupuestario en el que se le de contenido económico y de que el plazo para que el Departamento de Recursos Humanos proceda al estudio respectivo será no mayor a seis meses.

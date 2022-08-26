@@ -1,0 +1,2 @@
+Artículo 151. Aplicación supletoria de normas y Convención Colectiva
+En ausencia de norma específica se aplicará en forma supletoria la Ley General de la Administración Pública, Ley de Notificaciones Judiciales, el Código Procesal Contencioso Administrativo, Código Procesal Civil, demás contempladas en el artículo 229 de la Ley General de la Administración Pública y la Convención Colectiva vigente en la Municipalidad de Santa Cruz En caso de dudas o disposiciones contradictoria, tendrá vigencia aquella normativa que correspondan, según las técnica de jerarquía de la norma.

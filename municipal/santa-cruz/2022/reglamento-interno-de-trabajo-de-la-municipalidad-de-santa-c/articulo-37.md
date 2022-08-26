@@ -1,0 +1,1 @@
+Artículo 37.- Para los efectos del artículo anterior el Departamento de Recursos Humanos, establecerá los instrumentos técnicos necesarios por los cuales se logre la evaluación y calificación de los funcionarios.

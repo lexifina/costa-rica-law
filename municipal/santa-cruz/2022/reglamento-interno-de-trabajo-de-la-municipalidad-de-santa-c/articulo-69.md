@@ -1,0 +1,1 @@
+Artículo 69.- Los funcionarios de la municipalidad desempeñarán sus funciones durante todos los días hábiles y durante las horas reglamentarias. No se podrán conceder permisos para laborar menos horas de la jornada ordinaria, salvo por motivos de estudio, en estos casos se deberá atender lo dispuesto en el reglamento que se dicte al respecto.

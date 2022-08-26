@@ -1,0 +1,7 @@
+Artículo 75.- El Alcalde Municipal, otorgará permiso con goce de salario correspondiente al funcionario que se encuentre en cualquiera de los siguientes casos:
+a.En caso de fallecimiento de sus padres, hijos, entenados, hermanos, cónyuge,compañero, compañera de vida: 8 días hábiles, a disfrutar en forma inmediataal día siguiente al evento del fallecimiento.
+b.En caso de nupcias ocho días hábiles. El disfrute de este beneficio será apartir del día siguiente hábil a aquel en que fue celebrado el matrimonio ypara su disfrute el funcionario debe solicitarlo a la Alcaldía Municipal. Unacopia del certificado de matrimonio deberá ser entregada sin prórroga algunaa la oficina de Recursos Humanos a más tardar al noveno día hábil de habercontraído nupcias.
+c.En caso de nacimiento de un niño vivo de la esposa o compañera delfuncionario, cuatro días hábiles, que disfrutará en forma inmediata alnacimiento, debiéndose presentar el documento que compruebe elnacimiento el primer día hábil de haber regresado del disfrute de estebeneficio;
+d.Hasta por ocho días al funcionario, que sufra un caso de calamidad doméstica,incendio, inundación, terremoto, derrumbe o cualquier otra circunstanciasimilar, para estos efectos deberá comprobar la calamidad mediantedocumento idóneo.
+e.Aquellos permisos con goce de salario establecido en la Convención Colectivavigente en la Municipalidad de Santa Cruz.
+En cualquiera de los casos anteriores debe aportar la prueba documental correspondiente.

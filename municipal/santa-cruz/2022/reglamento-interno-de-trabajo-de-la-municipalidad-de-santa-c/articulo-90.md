@@ -1,0 +1,13 @@
+Artículo 90.- Respecto del servidor que incurra en las causales tipificadas como faltas graves por el Código de Trabajo, sin perjuicio de cualquier otra prevista en las leyes y reglamentos de órdenes estatutarios o laborales, podrá imponerse la sanción de despido sin responsabilidad patronal cuando:
+a-Se apodere, copie, destruya, inutilice, facilite, transfiera o retenga cualquierprograma de computación y sus bases de datos, utilizados por laMunicipalidad en asuntos propios de los servicios debidamente comprobados.
+b-Dañe los componentes materiales, o aparatos, las máquinas o los accesoriosque apoyen el funcionamiento de las gestiones Municipales, y/o sistemasinformáticos diseñados para las operaciones de cualquiera de lasdependencias de la Municipalidad, con cualquier propósito.
+c-Facilite el uso del Código y la clave de acceso asignados para ingresar en lossistemas informáticos de la Municipalidad, telefónicos u otros, para que otrapersona lo use a cualquier título.
+d-Colaborar o facilitar de manera directa o indirecta, por acción u omisión decualquier forma, el incumplimiento de la obligación de cancelar los tributosMunicipales por parte de los contribuyentes.
+e-Ocultar o destruir información, libros contables, bienes, documentos,registros, sistemas y programas computarizados, soportes magnéticos y otrosmedios de trascendencia para la Municipalidad, siempre y cuando los mismosno estén deshabilitados para su uso.
+f-Divulgar en cualquier forma o por cualquier medio la cuantía u origen de lostributos o cualquier otro dato que figure en las declaraciones; o permitir queestas o sus copias, libros o documentos que contengan extractos o referenciade ellas, sean vistas por personas ajenas a las que la Administración Municipalhaya encargado del manejo de esa información.
+g-Efectué un registro de asistencia que no sea el suyo, consciente o solicite aotro que le registre su marca de asistencia.
+h-Cuando por dolo o culpa, permita o colabore en el descargo de multas,impuestos, tasas o contribuciones que deban ser canceladas porcontribuyentes o empleados.
+i-Cuando deliberadamente, por negligencia o descuido inexcusable, varíe losmontos que deban ser cancelados por concepto de multas, impuestos o tasasMunicipales.
+j-Viole la confidencialidad en el procedimiento por casos de hostigamiento oacoso sexual.
+k-Suprima información veraz o de información falsa a la Municipalidad de SantaCruz al momento de ingresar a laborar en la Institución o de presentar lainformación y atestados requeridos para ello.
+l-Cuando el funcionario incurra en cualquier otra falta grave a las obligacionesque le imponga el contrato o que se desprenda de la relación de empleo.

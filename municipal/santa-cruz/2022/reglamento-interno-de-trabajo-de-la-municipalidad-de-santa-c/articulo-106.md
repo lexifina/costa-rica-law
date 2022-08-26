@@ -1,0 +1,3 @@
+Artículo 106. Acceso al expediente administrativo:
+Tendrán acceso al expediente: las partes, sus representantes sindicales debidamente acreditados en caso de tenerlos, los abogados que figuren como sus defensores o cualquier persona autorizada por ellos, quienes tendrán derecho a examinar, leer y copiar cualquier pieza del mismo (Deberá constar por escrito la autorización).
+Están compelidos los custodios del expediente a guardar la confidencialidad sobre la información que este contenga. No se dará acceso al expediente administrativo en los supuestos que establece el artículo 273 de la Ley General de Administración Pública. En tal caso dicho acto deberá ser debidamente motivado y contra este cabrán los recursos ordinarios y plazos previstos en la Ley citada.

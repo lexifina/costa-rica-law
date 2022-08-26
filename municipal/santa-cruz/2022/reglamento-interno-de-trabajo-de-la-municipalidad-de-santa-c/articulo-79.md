@@ -1,0 +1,3 @@
+Artículo 79.- Incapacidades. Las incapacidades serán pagas según las disposiciones que se detallan a continuación:
+a.C.C.S.S.: Los primeros tres días únicamente la Municipalidad le reconoceráun cincuenta por ciento (50%) del salario. A partir del cuarto día el Municipiosuspende el pago y la C.C.S.S. otorga un subsidio del sesenta por ciento(60%) de la remuneración.
+b.I.N.S.: Los primeros tres días la Municipalidad pagará un cuarenta por ciento(40%) del salario y el I.N.S. el sesenta por ciento (60%) restante. A partir delcuarto día la Municipalidad suspende el pago y el I.N.S. otorga el subsidiocorrespondiente.

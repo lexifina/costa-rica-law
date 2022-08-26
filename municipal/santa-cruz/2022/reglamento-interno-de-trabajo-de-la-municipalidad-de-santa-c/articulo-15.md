@@ -1,0 +1,3 @@
+Artículo 15.- Para integrar la nómina de elegible se requiere:
+a.Cumplir los requisitos del Manual General de Clases y Puestos de laMunicipalidad de Santa Cruz, pasar las pruebas de idoneidad y cualquier otraque se le aplique.
+b.No tener parentesco, hasta el tercer grado de consanguinidad o afinidad conel jefe de la dependencia donde esté la vacante de que se trate o con elsuperior jerárquico de éste, en la respectiva dependencia, con alguno de losRegidores, Alcalde o Alcaldesa Municipal y titulares de las Vice Alcaldías,Auditor o Auditora Interno, Jefatura de Recursos Humanos, y en general delos encargados de escoger candidatos para los puestos municipales.

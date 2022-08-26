@@ -1,0 +1,1 @@
+Artículo 61.- La Municipalidad pagará, dentro de los quince primeros días del mes de enero de cada año, a los servidores y servidoras municipales el monto correspondiente al salario escolar, de acuerdo con lo establecido en la legislación nacional.

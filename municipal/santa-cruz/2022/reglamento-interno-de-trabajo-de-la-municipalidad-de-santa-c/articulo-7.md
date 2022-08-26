@@ -1,0 +1,1 @@
+Artículo 7.- El acto administrativo interno sólo producirá su efecto después de notificado al servidor municipal en la forma que para ello prevea la legislación, excepto si le concede únicamente derechos o beneficios, en cuyo caso lo producirá desde que se adopten. Los actos de alcance general regirán a partir de su publicación.

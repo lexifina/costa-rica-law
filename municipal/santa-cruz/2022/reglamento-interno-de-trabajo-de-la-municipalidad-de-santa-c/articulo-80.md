@@ -1,0 +1,3 @@
+CAPÍTULO X
+DE LA ASISTENCIA Y LLEGADAS TARDÍAS
+Artículo 80.- La asistencia y puntualidad al trabajo se determinará por la marca de control de asistencia (u otro sistema establecido) efectuada personalmente por el funcionario o funcionaria, salvo aquellos que por autorización expresa por escrito del Alcalde o Alcaldesa Municipal no deba hacerlo. Las marcas por realizar son la de inicio y finalización de la jornada y el tiempo de almuerzo, en este último caso, la Jefatura inmediata debe coordinar las horas de salida de sus subalternos de manera que la oficina no se cierre, ni se genere un menoscabo en la prestación del servicio del departamento.

@@ -1,0 +1,1 @@
+Artículo 2.- Las normas, reglas, disposiciones y procedimientos establecidos en este Reglamento, son de aplicación obligatoria en todo lo referente a los derechos, beneficios y obligaciones de los servidores y los representantes patronales de la Municipalidad de Santa Cruz.

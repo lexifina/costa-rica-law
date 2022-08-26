@@ -1,0 +1,3 @@
+Artículo 122. Competencias del Órgano Decisor:
+Dentro del plazo indicado en el artículo anterior el Órgano Decisor deberá dictar o solicitar la decisión de inicio del procedimiento administrativo, señalando expresamente el tipo de procedimiento, tipo de responsabilidades e individualizando a la persona por investigar., dicho órgano podrá delegar en órgano director nombrado al efecto, la redacción de la resolución inicial y disponer solamente la decisión de inicio del procedimiento administrativo.
+Asimismo, deberá dictar la Resolución Final y resolver cualquier gestión que pueda poner fin al procedimiento durante su fase de instrucción, independientemente de los plazos de prescripción que apliquen para cada caso concreto.
