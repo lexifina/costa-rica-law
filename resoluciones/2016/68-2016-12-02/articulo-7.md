@@ -1,1 +1,0 @@
-Artículo 7º—Revisión de Requisitos. La División de Adeudos Estatales, deberá documentar que se realizó la revisión de los requisitos aquí establecidos y consignar en el sistema informático y en el expediente las razones por las que el mismo fue rechazado o aceptado para su trámite ante el Departamento de Cobro Judicial.

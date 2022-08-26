@@ -1,1 +1,0 @@
-Artículo 8º—Disposiciones internas. La División de Adeudos Estatales, deberá emitir las disposiciones internas que correspondan para la aplicación de la presente resolución, así como actualizar o derogar las disposiciones que se opongan a la misma.
