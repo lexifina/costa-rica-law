@@ -1,0 +1,3 @@
+Transitorio X. Para los efectos del Artículo 11, a partir del 1 de enero de 2023 el término "deudor generador de divisas" se homologa a "deudor sin exposición a riesgo cambiario" y el término "deudor no generador de divisas" se homologa a "deudor con exposición a riesgo cambiario". Se utilizan indistintamente los términos "divisas" o "moneda extranjera".
+Lo anterior, no afecta la continuidad en la aplicación de la estimación genérica adicional de 0.5% durante el año 2023, indistintamente para un "deudor no generador de divisas" o un "deudor con exposición a riesgo cambiario.
+(Así adicionado en sesión N° 1752 del 29 de agosto de 2022)

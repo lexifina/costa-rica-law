@@ -22,3 +22,4 @@ Reglamento sobre Gestión y Evaluación del Riesgo de Crédito para el Sistema d
 | 7 | 2021-02-01 | Reglamento 1641 (2021-02-01) |
 | 8 | 2021-11-01 | Reglamento 1697 (2021-11-01) |
 | 9 | 2021-11-30 | Reglamento 1702 (2021-11-30) |
+| 10 | 2022-08-29 | Reglamento 1752 (2022-08-29) |
