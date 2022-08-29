@@ -1,0 +1,13 @@
+INS RED DE SERVICIOS DE SALUD S.A.
+REGLAMENTO DE ORGANIZACIÓN Y FUNCIONAMIENTO
+DE LA AUDITORÍA INTERNA DEL INS RED
+DE SERVICIOS DE SALUD S.A.
+Considerando:
+I.-Que el artículo 23 de la Ley Nº 8292: Ley General de Control Interno, establece que la Auditoría Interna se organizará y funcionará conforme lo disponga el auditor interno, de conformidad con las disposiciones, normas, políticas y directrices que emita la Contraloría General de la República, y que cada auditoría dispondrá de un reglamento de organización y funcionamiento, acorde con la normativa que rige su actividad, el cual deberá ser aprobado por el Órgano Contralor.
+II.-Que el artículo 24 de la normativa citada establece que el auditor y subauditor internos dependerán orgánicamente del máximo jerarca, y que éste establecerá las regulaciones de tipo administrativo que le serán aplicables. Asimismo, establece que los demás funcionarios de la auditoría estarán sujetos a las disposiciones administrativas que se emitan para el resto del personal.
+III.-Que el artículo 27 de la Ley Nº 8292 determina que los jerarcas y los entes sujetos a esa ley deberán asignar los recursos humanos, materiales, tecnológicos, de transporte y otros necesarios y suficientes para que la auditoría pueda cumplir su gestión, y además el artículo 39 de la misma norma legal determina que cabrá responsabilidad administrativa contra el jerarca que injustificadamente no asigne los recursos a la auditoría interna en los términos del artículo 27 mencionado.
+IV.-Que los Lineamientos sobre gestiones que involucran a la auditoría interna presentadas ante la Contraloría General de la República, aprobados mediante resolución R-CO- 83-2018 del 9 de julio del 2018, emitidos por la Contraloría General de la República establecen en el apartado 4.3: Para trámites de modificaciones debe observarse lo dispuesto en las normas precedentes en cuanto a la resolución de discrepancias y los plazos aplicables.
+V.-Que de acuerdo con los lineamientos citados en caso de que las modificaciones son de tal magnitud que conllevan la derogación del reglamento vigente, la gestión corresponderá a la aprobación de un nuevo reglamento. Por lo que en el caso particular corresponde a una actualización integral, ajustándose a cambios normativos emitidos por el ente contralor.
+CAPÍTULO I
+Disposiciones generales
+Artículo 1º-Objetivo. Este Reglamento tiene por objetivo regular la actividad, organización y funcionamiento de la Auditoría Interna de INS Red de Servicios de Salud S.A, conforme lo dispone el artículo 23 de la Ley General de Control Interno, para orientar el cumplimiento de los principios y disposiciones de orden legal que le atañen, así como para agregar valor al buen funcionamiento de la Institución.

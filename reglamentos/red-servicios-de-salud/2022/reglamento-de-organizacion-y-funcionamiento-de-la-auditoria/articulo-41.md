@@ -1,0 +1,2 @@
+Artículo 41.-De los Informes de la auditoría. La Auditoría Interna comunicará el resultado de sus auditorías, mediante informes escritos, con el propósito de que la Administración Activa implemente las recomendaciones u otras acciones de manera oportuna.
+Los informes de Auditoría deben redactarse en un lenguaje sencillo, claro y conciso, imparciales y objetivos, respaldados con hechos y con evidencia suficiente, competente y pertinente, con formato predeterminado por el Auditor Interno, de conformidad con los requerimientos técnicos y normativos aplicables.

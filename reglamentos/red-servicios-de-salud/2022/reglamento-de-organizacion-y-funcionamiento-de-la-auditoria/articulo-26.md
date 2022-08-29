@@ -1,0 +1,1 @@
+Artículo 26.-Coordinación externa. El Auditor Interno tendrá la facultad de proveer y compartir información con la Contraloría General de la República, los despachos de Contadores Públicos que contrate la Institución, así como con otros entes y órganos de control en lo que corresponde a sus competencias y con respeto al ordenamiento jurídico.

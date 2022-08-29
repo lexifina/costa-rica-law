@@ -1,0 +1,1 @@
+Artículo 7º-Misión. Brindar servicios de Auditoría de forma independiente, objetiva y oportuna que colaboren a mejorar y proteger el valor de INS Red de Servicios de Salud S. A., proporcionando servicios de aseguramiento y consultoría a los procesos de gestión de riesgos, control y gobierno, coadyuvando al alcance de los objetivos institucionales.

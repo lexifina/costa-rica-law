@@ -1,0 +1,1 @@
+Artículo 2º-Ámbito de aplicación. El presente Reglamento es de acatamiento obligatorio para el personal de la Auditoría Interna, y funcionarios de la Administración Activa, en lo que les resulte aplicable.

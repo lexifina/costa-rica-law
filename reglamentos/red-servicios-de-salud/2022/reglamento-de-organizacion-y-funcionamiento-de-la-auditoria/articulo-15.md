@@ -1,0 +1,1 @@
+Artículo 15.-Deberes del Auditor Interno. El Auditor Interno deberá cumplir sus funciones con independencia, pericia, debido cuidado profesional, objetividad, profesionalismo, integridad y gestión asesora, haciendo valer sus competencias con independencia funcional y de criterio y serán vigilantes de que su personal responda de igual manera.

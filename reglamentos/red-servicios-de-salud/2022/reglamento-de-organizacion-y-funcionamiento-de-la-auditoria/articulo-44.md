@@ -1,0 +1,4 @@
+Sección V.
+Del seguimiento de recomendaciones
+Artículo 44.-Seguimiento de recomendaciones y disposiciones de informes. El Auditor Interno deberá establecer un programa de seguimiento a las recomendaciones de los informes emitidos por la Auditoría Interna y demás órganos de control y fiscalización, de los que tenga conocimiento. El seguimiento a las disposiciones de la Contraloría General de la República será atendido conforme con las directrices que ésta emita. Lo anterior, con el propósito de cerciorarse de la adecuada y oportuna implementación de las recomendaciones y de las disposiciones, por parte de la Administración Activa.
+El resultado del programa de seguimiento será comunicado al jerarca anualmente, de conformidad con lo dispuesto en el inciso g), del artículo 22 de la Ley General de Control Interno, sin perjuicio de otros informes relacionados, a juicio del Auditor Interno, cuando lo considere pertinente.

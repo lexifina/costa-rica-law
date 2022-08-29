@@ -1,0 +1,1 @@
+Artículo 56.-Derogatoria. Se deroga el Reglamento de Organización y Funcionamiento de la Auditoría Interna del Hospital del Trauma S.A., aprobado por la Junta Directiva en la sesión ordinaria N°14 del 30 de abril del 2012.

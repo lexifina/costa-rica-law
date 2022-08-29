@@ -1,0 +1,1 @@
+Artículo 8º- Visión. Ser una Auditoría Interna referente en la prestación de servicios de auditoría y servicios preventivos que colaboren al cumplimiento de los objetivos de INS Red de Servicios de Salud S.A. y agregue valor a los procesos institucionales, manteniendo altos niveles de calidad.
