@@ -1,7 +1,0 @@
-Artículo 10.—Deberes del funcionario que está sujeto a disponibilidad. El funcionario que esté sujeto a disponibilidad deberá:
-a) Presentarse en el momento y a la hora que se le indique para atender el servicio que se requiere, o atenderlo en forma remota en el caso que tal provisión sea posible.
-b) Informar por escrito, al Departamento de Recursos Humanos, el número de teléfono, dirección del domicilio o cualquier otro medio que haga posible su ubicación ágil y oportuna. Esta información se pondrá a disposición del funcionario designado por la Jefatura del área afecta al régimen de disponibilidad, a fin de que localice a los funcionarios sujetos al régimen para que atiendan una situación de carácter urgente.
-c) Permanecer, durante el tiempo en que se encuentre disponible, a una distancia no mayor a treinta kilómetros de su lugar habitual de trabajo.
-d) Mantenerse durante todo el tiempo en que se encuentre disponible, en condiciones adecuadas para atender las labores que se le encomienden con prontitud y eficiencia, por lo que, durante tal disponibilidad, no podrá consumir alcohol, drogas o cualquier otra sustancia que disminuya su capacidad para laborar adecuadamente.
-e) Atender las políticas generales y directrices que acuerde el Tribunal en relación con el régimen de disponibilidad, los roles y su cumplimiento.
-f) Abstenerse de realizar actividades, sean éstas remuneradas o no, ajenas a la Institución, que le impidan cumplir con el régimen de disponibilidad.

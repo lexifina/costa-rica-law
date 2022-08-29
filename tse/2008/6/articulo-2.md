@@ -1,1 +1,0 @@
-Artículo 2º—Definición de Disponibilidad. Se entenderá por disponibilidad la actitud expectante del funcionario del Tribunal y la obligación de realizar funciones fuera de la jornada ordinaria de trabajo o en días inhábiles, si así lo requiere la Institución, en razón del interés superior del servicio público para el cabal cumplimiento de sus fines.

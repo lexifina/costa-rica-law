@@ -1,1 +1,0 @@
-Artículo 6º—Del presupuesto para atender las pagos por disponibilidad y horas extra. El Tribunal deberá adoptar las medidas presupuestarias necesarias para atender los pagos por concepto de disponibilidad y horas extra.
