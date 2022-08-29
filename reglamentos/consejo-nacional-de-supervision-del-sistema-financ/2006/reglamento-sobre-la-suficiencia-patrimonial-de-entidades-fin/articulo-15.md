@@ -1,9 +1,11 @@
-Artículo 15. Conversión a instrumentos de capital del CCN1 o del CAN1. El trámite de autorización o de no objeción, según corresponda, para la emisión de instrumentos convertibles a instrumentos de capital del CCN1 o del CAN1, deberá efectuarse de conformidad con lo dispuesto en el Acuerdo SUGEF 8-08 y conllevará en el mismo acto la autorización para activar la conversión de los instrumentos a instrumentos de capital del CCN1 o del CAN1, cuando se alcance un punto de activación prefijado.
-Es responsabilidad de la entidad, asegurarse que en todo momento se encuentre vigente la autorización para la conversión a instrumentos del CCN1 o del CAN1. Además, la entidad que emita instrumentos convertibles en instrumentos del CCN1 o del CAN1, deberá velar por que no existan obstáculos de procedimiento para dicha conversión; de conformidad con sus actas de constitución, sus estatutos, estipulaciones contractuales o el marco legal aplicable.
-Las disposiciones que regulan el instrumento convertible deberán especificar al menos lo siguiente:
-a) La tasa o razón de conversión a la cual los instrumentos de deuda serán convertidos en instrumentos de capital del CCN1 o del CAN1.
-b) El tipo de conversión según la naturaleza de los instrumentos y el importe máximo de conversión.
-c) El plazo dentro del cual los instrumentos se convertirán a instrumentos del CCN1 o del CAN1.
-d) El punto o puntos de activación prefijados.
-Los puntos de activación deberán estar definidos en función de los requerimientos mínimos y adicionales de capital aplicables a la entidad, y en ningún caso podrán estar fijados por debajo de los porcentajes mínimos establecidos en el Artículo 6 de este Reglamento. La entidad podrá fijar puntos de activación con porcentajes superiores a los requerimientos mínimos, lo cual deberá estar especificado en las disposiciones que regulan el instrumento.
+Artículo 15. Ponderación al cincuenta por ciento y ponderación para créditos hipotecarios residenciales persona física.
+Se ponderan con cincuenta por ciento los activos más pasivos contingentes de emisores y deudores con calificación pública en categoría de riesgo 3 según el Anexo. En el caso de los créditos hipotecarios residenciales para persona física, la ponderación por riesgo de crédito aplicable se asignará en función de la relación préstamo-valor (LTV), de acuerdo con el cuadro más abajo. La entidad supervisada debe considerar la cuantía total de la exposición (sin dividir la exposición en diferentes tramos de préstamo-valor (LTV)).
+La entidad supervisada que no cuente con la información sobre LTV, exigida para un determinado crédito hipotecario residencial, deberá aplicarle una ponderación por riesgo del 100%.
+Descripción | LTV<40% | 40%<LTV<60% | 60%<LTV<80% | 80%<LTV<90% | 90%<LTV<100% | LTV>100%
+Ponderador | 25.00% | 30.00% | 40.00% | 50.00% | 60.00% | 80.00%
+Para los efectos de esta disposición, se entiende que un crédito hipotecario residencial es aquel garantizado con bienes inmuebles que se destinan o se destinarán exclusivamente para vivienda del deudor persona física.
+A efectos del cálculo del capital regulador, al calcular la razón LTV, el valor del bien inmueble se mantendrá constante desde el momento en que se origine el crédito hipotecario residencial, a menos que acontezca un evento extraordinario e idiosincrásico que produzca una reducción permanente del valor de la propiedad.
+También podrían considerarse a efectos del LTV las reformas realizadas sobre el inmueble que aumenten inequívocamente su valor.
+El ponderador se aplicará sobre el saldo total adeudado sujeto a estimación de la operación de crédito hipotecario residencial; neto de las correspondientes estimaciones específicas.
 (Así adicionado en sesión N° 1663 del 17 de mayo de 2021)
+(Así reformado mediante sesión N° 1752-2022 del 29 de agosto del 2022)

@@ -1,0 +1,5 @@
+Transitorio XXIV. Para efectos del cálculo del Capital Secundario según el artículo 7 y el cálculo del Capital Base para Asociaciones Mutualistas según el artículo 9, ambos de este Reglamento, se sumará el saldo contable de la cuenta analítica para la estimación para deudores con exposición a riesgo cambiario. Una vez que el saldo de esta cuenta analítica se haya agotado en su totalidad, la cuenta quedará inhabilitada para su uso.
+(Así adicionado en sesión N° 1752 del 29 de agosto de 2022)
+(Nota de Sinalevi: Mediante el inciso f) de la sesión N° 1752 del 29 de agosto de 2022 se ordena adicionar un transitorio XXIV al presente reglamento. No obstante mediante el inciso e de dicha sesión ya había sido adicionado otro transitorio XXIV con diferente texto, razón por la cual el mismo se copia a continuación:
+Transitorio XXIV
+Para efectos del cálculo del Capital de Nivel 2 según los artículos 11, 27 y 36 de este Reglamento, se sumará el saldo contable de la cuenta analítica para la estimación para deudores con exposición a riesgo cambiario. Una vez que el saldo de esta cuenta analítica se haya agotado en su totalidad, la cuenta quedará inhabilitada para su uso.")

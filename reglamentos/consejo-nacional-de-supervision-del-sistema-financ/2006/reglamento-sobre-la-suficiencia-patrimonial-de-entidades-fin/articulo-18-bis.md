@@ -1,0 +1,1 @@
+Artículo 18 bis: (Nota de Sinalevi: Mediante sesión N° 1752-2022 del 29 de agosto del 2022 se adiciona un transitorio 18 ter al presente reglamento. No obstante el sistema exige una numeración consecutiva por lo que al no existir un 18 bis el mismo fue creado pero sin texto)
