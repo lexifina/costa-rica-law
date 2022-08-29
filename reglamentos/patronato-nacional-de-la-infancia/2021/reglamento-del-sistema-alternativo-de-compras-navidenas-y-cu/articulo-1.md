@@ -3,8 +3,10 @@ REGLAMENTO DEL SISTEMA ALTERNATIVO DE
 COMPRAS NAVIDEÑAS Y CURSO LECTIVO
 CAPÍTULO I
 Disposiciones Generales
-Artículo 1°-Definiciones.
-Accesorios de vestir: Objetos y elementos que complementan la vestimenta. Ejemplo: fajas, carteras, bolsos, bisutería en general, relojes, anteojos de sol, sombreros, boinas, prensas de cabello, pañoletas, bufandas, corbatas, entre otros.
+(Nota de Sinalevi: El presente reglamento fue reformado parcialmente y reproducido su texto de forma íntegra mediante sesión ordinaria 2022- 027, del lunes 29 de agosto del 2022, y publicado en La Gaceta N° 171 del 8 de setiembre de 2022, y se transcribe a continuación:)
+CAPÍTULO I
+Disposiciones Generales
+Artículo 1º-Definiciones. Accesorios de vestir: Objetos y elementos que complementan la vestimenta. Ejemplo: fajas, carteras, bolsos, bisutería en general, relojes, anteojos de sol, sombreros, boinas, prensas de cabello, pañoletas, bufandas, corbatas, entre otros.
 Accesorios educativos: Objetos y elementos que complementan el uniforme para el ciclo lectivo. Ejemplo: Bultos, salveques, fajas, estuches, corbatas, accesorios para el cabello, entre otros.
 Albergues PANI: Son las alternativas institucionales de protección transitoria para las personas menores de edad en condiciones de riesgo inminente o situaciones de mayor vulnerabilidad en procesos especiales de protección con medidas de abrigo y cuido temporal.
 Aldeas PANI: Son un conjunto de alternativas institucionales de protección transitoria del PANI, que se encuentran en un espacio en común.
@@ -13,7 +15,7 @@ Calzado: Indumentaria utilizada para proteger los pies sean estos zapatos, sanda
 Direcciones Regionales: Unidades organizacionales adscritas a la Gerencia Técnica que planifican, dirigen, controlan los procesos técnicos y administrativos desconcentrados a nivel regional. La función de las Direcciones Regionales es ejecutar las políticas y directrices emanadas por el nivel central, para ser aplicadas en el nivel regional y local.
 Equipo de compras: Equipo de personas que se conforma en las direcciones regionales, aldeas e instancias institucionales que tengan a cargo albergues, para que se encarguen de la planificación, ejecución y evaluación del proceso de compras navideñas y del ciclo lectivo.
 Equipo Técnico de Albergues: Es el equipo profesional e interdisciplinario de trabajo responsable de garantizar la atención y validación efectiva de los derechos de la población protegida en los albergues-aldeas institucionales, mientras ésta permanezca en los mismos.
-Estudio de precios en el mercado: Son aquellas actividades de investigación administrativa y sondeo en el mercado nacional, para tener una aproximación de precios de artículos contemplados en este reglamento. El precio está determinado por las fluctuaciones entre la oferta y la demanda; y otras situaciones excepcionales que se presenten a nivel nacional e internacional.
+Estudio de precios en el mercado: Son aquellas actividades de investigación administrativa y sondeo en el mercado nacional, para tener una aproximación de precios de artículos contemplados en este reglamento El precio está determinado por las fluctuaciones entre la oferta y la demanda; y otras situaciones excepcionales que se presenten a nivel nacional e internacional.
 Gerencia de Administración: Unidad organizativa que ejerce la dirección administrativa del Patronato Nacional de la Infancia a partir de las políticas públicas que la rigen, políticas y direccionamiento de la Junta Directiva y las directrices de la Presidencia Ejecutiva.
 Gerencia Técnica: Unidad organizativa que ejerce la dirección técnica del Patronato Nacional de la Infancia, a partir de las políticas públicas que la rigen, políticas y direccionamiento de la Junta Directiva y las directrices de la Presidencia Ejecutiva.
 PANI: El Patronato Nacional de la Infancia es una institución autónoma con administración descentralizada y presupuesto propio. Su fin primordial es proteger especialmente y en forma integral a las personas menores de edad y sus familias, como elemento natural y pilar de la sociedad.

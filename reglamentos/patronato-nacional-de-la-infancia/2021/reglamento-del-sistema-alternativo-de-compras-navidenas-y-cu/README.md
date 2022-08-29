@@ -14,3 +14,4 @@ Reglamento del sistema alternativo de compras navideñas y curso lectivo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-06-07 | la propia norma |
+| 2 | 2022-08-29 | Reglamento 27 (2022-08-29) |
