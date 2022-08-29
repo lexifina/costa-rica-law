@@ -54,6 +54,7 @@ articulo-20-transitorio.md
 articulo-21-transitorio.md
 articulo-22-transitorio.md
 articulo-23-transitorio.md
+articulo-24-transitorio.md
 articulo-1-anexo.md
 articulo-2-anexo.md
 articulo-3-anexo.md
