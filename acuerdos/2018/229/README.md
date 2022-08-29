@@ -14,3 +14,4 @@ Mecanismos y requisitos para las recompras de acciones por parte de los emisores
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-04-24 | la propia norma |
+| 2 | 2022-08-29 | Acuerdo 271 (2022-08-29) |
