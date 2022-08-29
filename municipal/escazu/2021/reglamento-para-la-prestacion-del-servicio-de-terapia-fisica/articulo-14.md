@@ -1,1 +1,0 @@
-Artículo 14.-No se podrá recibir el servicio de Terapia Física durante una incapacidad. De presentarse dicha situación, la persona funcionaria deberá solicitar inmediatamente el cambio de la cita en la Gerencia de Recursos Humanos y Materiales.

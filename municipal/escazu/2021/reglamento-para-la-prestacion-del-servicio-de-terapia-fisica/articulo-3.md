@@ -1,1 +1,0 @@
-Artículo 3º-Podrán recibir atención en terapia física únicamente las personas referidas por el servicio de medicina de empresa. En caso necesario, y de acuerdo con criterio médico, se podrán solicitar previamente exámenes complementarios, que permitan establecer el diagnóstico y determinar la lesión por la cual serán referidas.

@@ -1,1 +1,0 @@
-Artículo 5º-Se permite un máximo de cinco sesiones por lesión, para una cantidad máxima de tres referencias por persona por año. Si existiera alguna situación en la cual se requiere una atención más prolongada o especializada, la persona deberá coordinar con el médico de empresa su remisión a la Caja Costarricense del Seguro Social.
