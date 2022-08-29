@@ -1,1 +1,0 @@
-Artículo 11.—Remisión de expedientes: Realizada la adjudicación, el Alcalde Municipal remitirá los expedientes al Concejo de Distrito, para que se encargue de dar el seguimiento requerido a los adjudicatarios.

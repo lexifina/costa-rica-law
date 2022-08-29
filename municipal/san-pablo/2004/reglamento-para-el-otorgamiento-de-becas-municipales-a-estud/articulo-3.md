@@ -1,1 +1,0 @@
-Artículo 3º—De los beneficiarios: Podrán ser beneficiarios de una beca de estudios todas aquellas personas que se encuentren cursando cualquiera de los ciclos lectivos que componen el sistema educativo costarricense, siempre y cuando sean estudiantes de escasos recursos económicos y que hayan demostrado gran interés en continuar sus estudios.
