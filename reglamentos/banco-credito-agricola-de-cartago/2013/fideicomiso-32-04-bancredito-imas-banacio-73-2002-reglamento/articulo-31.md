@@ -1,1 +1,0 @@
-Artículo 31.—De los rubros que se deben cancelar para terminar el proceso judicial. La terminación del proceso se dará cuando el Obligado realice la cancelación total de la deuda, junto con intereses, multas, honorarios y gastos legales y otros, generados durante el desarrollo del proceso.

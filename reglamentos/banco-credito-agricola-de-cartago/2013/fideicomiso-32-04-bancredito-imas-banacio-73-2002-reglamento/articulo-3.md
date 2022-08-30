@@ -1,1 +1,0 @@
-Artículo 3º—De los medios para ejecutar el proceso de cobro administrativo y judicial. El FIDEIMAS ejecutará el proceso de Cobro Administrativo y Judicial por medio del FIDUCIARIO en coordinación con la Unidad Ejecutora, quien podrá contratar a terceros.

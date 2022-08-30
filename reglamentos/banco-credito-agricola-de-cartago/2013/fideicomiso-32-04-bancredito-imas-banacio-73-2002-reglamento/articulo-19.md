@@ -1,2 +1,0 @@
-Artículo 19. De los porcentajes de intereses a cobrar en los arreglos de pago. El porcentaje de interés por concepto arreglos de pago, regirá con la tasa básica pasiva establecida por el Banco Central de Costa Rica fija y vigente durante el cobro. No se aplicará porcentaje de intereses únicamente en casos en que el deudor o la deudora se encuentran dentro de los parámetros de pobreza del IMAS, en las categorías grupo 1 y 2.
-(Así reformado mediante acta aprobada N°10-14 del 12 de junio de 2014)

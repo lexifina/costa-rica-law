@@ -1,2 +1,0 @@
-Artículo 14. Procedimiento de notificación de las resoluciones administrativas. La Unidad Ejecutora notificará al deudor el monto adeudado, para que en el término de quince días hábiles el deudor cancele la obligación o acuerde un arreglo de pago. Si persiste la falta de pago, se solicitará a los abogados externos el cobro judicial respectivo.
-(Así reformado mediante acta aprobada N°10-14 del 12 de junio de 2014)
