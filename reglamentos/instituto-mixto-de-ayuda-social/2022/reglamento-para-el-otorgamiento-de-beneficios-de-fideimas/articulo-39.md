@@ -1,0 +1,1 @@
+Artículo 39°. Personas físicas o jurídicas Beneficiarias del Fondo de Crédito. Son aquellas personas físicas y jurídicas definidas en el artículo 3 denominado "Personas físicas y jurídicas beneficiarias" de este reglamento, que presenten proyectos viables

@@ -1,0 +1,1 @@
+Artículo 45°. Seguimiento. La Unidad Ejecutora deberá establecer los mecanismos necesarios para el seguimiento de las personas beneficiarias, y tomar las acciones que correspondan, incluyendo la identificación y eventual otorgamiento de algún tipo de servicio no financiero, requerido por la persona beneficiaria para mejorar su condición.

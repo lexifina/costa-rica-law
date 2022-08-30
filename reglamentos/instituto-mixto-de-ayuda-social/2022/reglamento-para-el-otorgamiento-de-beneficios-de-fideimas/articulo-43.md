@@ -1,0 +1,1 @@
+Artículo 43°. Fondo de Transferencia en Capital Semilla: Se constituye un Fondo de transferencia en capital semilla, con recursos financieros provenientes de aportes propios del IMAS, provenientes de FODESAF y de cualesquiera otras fuentes de donantes nacionales e internacionales.

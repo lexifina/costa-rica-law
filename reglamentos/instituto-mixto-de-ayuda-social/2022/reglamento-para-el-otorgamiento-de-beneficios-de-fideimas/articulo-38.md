@@ -1,0 +1,2 @@
+Artículo 38°. Requisitos para ser sujeto de crédito. Para ser sujeto de crédito deberá cumplir con toda la normativa y políticas de crédito aplicable a FIDEIMAS y los requisitos mencionados en el Artículo 4 denominado, "De la verificación de requisitos" por las personas físicas y jurídicas beneficiarias de este Reglamento"
+La viabilidad de los proyectos productivos deberá documentarse en un estudio técnico que se someterá a la comisión resolutiva correspondiente, los criterios técnicos mínimos para el estudio estarán en la política de crédito

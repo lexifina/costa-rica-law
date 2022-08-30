@@ -1,0 +1,2 @@
+Artículo 9º. Líneas de crédito
+La cobertura y emisión de la garantía para líneas de crédito será por el monto y plazo total aprobado por el fideicomisario garantizado. Se aclara que la cobertura de la línea de crédito será hasta por cinco años, amparada a los subpréstamos que formalice el FIDEICOMISARIO GARANTIZADO. Y el monto a cancelar por parte del fideicomiso corresponde al saldo que mantenga el deudor más 75 días de intereses corrientes y moratorios

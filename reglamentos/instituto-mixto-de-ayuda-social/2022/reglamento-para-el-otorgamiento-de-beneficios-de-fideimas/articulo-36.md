@@ -1,0 +1,2 @@
+SECCIÓN VIII: OTORGAMIENTO DE PRÉSTAMOS
+Artículo 36º. Fondo de Crédito. Es un fondo destinado a apoyar actividades productivas de mujeres en situación de pobreza y sus familias, y a organizaciones cuya integración sea al menos de un sesenta y cinco por ciento (65%) de mujeres, y que de las mujeres integrantes al menos un ochenta por ciento (80%) estén en condición de pobreza. El desarrollo de las empresas beneficiarias, mediante el otorgamiento de recursos reembolsables a través de un fondo de crédito.
