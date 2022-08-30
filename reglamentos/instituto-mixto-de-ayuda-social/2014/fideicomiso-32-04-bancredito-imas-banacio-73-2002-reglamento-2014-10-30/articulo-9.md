@@ -1,5 +1,0 @@
-Artículo 9º—De los colaboradores. Serán colaboradores de los Servicios de Apoyo, las Gerencias Regionales del IMAS, las oficinas regionales agropecuarios que coordina el Ministerio de Agricultura y Ganadería y el Consejo Nacional de Producción, las oficinas regionales del Instituto de Desarrollo Agrario, oficinas regionales que coordina el Ministerio de la Condición de la Mujer, las oficinas Municipales de la Mujer, y otras oficinas públicas o privadas que desean colaborar en la prestación de los servicios. Los colaboradores tendrán la siguiente participación:
-a. Determinar necesidades de apoyo y presentarlas a la Unidad Ejecutora para su valoración.
-b. Apoyar en capacitación y asistencia técnica los proyectos financiados objeto de los Convenios Marco de Cooperación y el Contrato de Fideicomiso.
-c. Recomendar proyectos productivos según las necesidades de apoyo que requieran.
-d. Recomendar posibles oferentes de Servicios de Apoyo y gestionar ante la Unidad Ejecutora, la inscripción de personas físicas o jurídicas o las organizaciones e instituciones.

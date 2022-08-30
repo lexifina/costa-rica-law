@@ -1,1 +1,0 @@
-Artículo 20.—Mecanismo de pago de las solicitudes de desembolso. Serán canceladas única y exclusivamente aquellas solicitudes de desembolso, que sean solicitadas y firmadas por las personas autorizadas, de conformidad con los términos del presente reglamento y el contrato de Fideicomiso.
