@@ -1,4 +1,5 @@
-Artículo 18: Funciones de la Junta Administradora del Fondo. Serán funciones de la Junta Administradora del Fondo (J.A.F.A.R.G.) las siguientes:
+Artículo 18.-Funciones de la Junta Administradora del Fondo.
+Serán funciones de la Junta Administradora del Fondo (J.A.F.A.R.G.) las siguientes:
 a. Avalar el Plan Estratégico Quinquenal y el Plan Anual Operativo, propuestos por la Dirección del F.A.R.G., antes de someterlos a la aprobación de la Junta Directiva de AyA.
 b. Definir políticas y estrategias de operación.
 c. Analizar y avalar la Política de Inversiones anuales propuesta por la Dirección del F.A.R.G., antes de someterla a la aprobación de la Junta Directiva de AyA.
@@ -15,5 +16,6 @@ m. Atender otras funciones que en forma específica le asigne la Junta Directiva
 n. Evaluar anualmente la gestión administrativa del F.A.R.G., de conformidad con los resultados obtenidos y el logro de las metas establecidas en el presupuesto y planes de trabajo previamente definidos, e informar a la Junta Directiva de AyA.
 o. Instruir a la Dirección del F.A.R.G., contratar una auditoría externa anual, y en cualquier otro momento cuando a criterio de la J.A.F.A.R.G así se requiera, e informar de sus resultados a la Junta Directiva del AyA
 p. Resolver sobre las solicitudes de crédito aprobado, que impliquen riesgo para el F.A.R.G., cuando así se lo haya informado el Director Ejecutivo del F.A.R.G.
-q. Resolver las incobrabilidades sobre saldos deudores al descubierto por defunción o pensión por invalidez del deudor.
+q. Resolver las incobrabilidades sobre saldos deudores al descubierto, por cualquiera de las causas establecidas en este Reglamento y en el Reglamento para la prestación de los servicios del AyA, vigente
 r. Elaborar y mantener actualizado, con la colaboración de la Dirección Ejecutiva, el Manual Operativo del F.A.R.G.
+(Así reformado mediante sesión N° 2022-44 del 30 de agosto del 2022)
