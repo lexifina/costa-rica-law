@@ -1,1 +1,0 @@
-Artículo 3º—Propósito del Fondo de Garantías. Otorgar las garantías totales o complementarias necesarias a los solicitantes del crédito calificados por el IMAS y referido por los FIDEICOMISARIO GARANTIZADO, por el IMAS y la Unidad Ejecutora.

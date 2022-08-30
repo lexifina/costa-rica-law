@@ -1,1 +1,0 @@
-Artículo 18.—Vigencia. Este Reglamento y sus modificaciones entrarán en vigencia a partir de la aprobación del Comité Director, acta N° 019-2014, de fecha 30 de octubre del 2014 debiendo luego la UNIDAD EJECUTORA realizar la publicación en el Diario Oficial La Gaceta.
