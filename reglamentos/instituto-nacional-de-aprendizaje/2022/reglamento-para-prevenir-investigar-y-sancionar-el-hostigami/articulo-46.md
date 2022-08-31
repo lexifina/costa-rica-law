@@ -1,0 +1,1 @@
+Artículo 46.-Audiencia de carácter privado. Para garantizar la confidencialidad del proceso y de la audiencia, sólo podrán comparecer las partes y sus representantes, así como las personas profesionales en Derecho o personas de apoyo emocional designadas por las partes en el número que a criterio del órgano director considere razonable.

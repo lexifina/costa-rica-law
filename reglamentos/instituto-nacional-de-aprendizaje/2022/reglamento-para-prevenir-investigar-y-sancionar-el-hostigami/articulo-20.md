@@ -1,0 +1,1 @@
+Artículo 20.-Plazo para interponer la denuncia. El plazo para interponer la denuncia será de ocho años y se computará a partir del último hecho consecuencia del hostigamiento sexual o a partir de que cesó la causa justificada que impidió a la persona denunciar. En el caso de personas menores de edad el plazo se computará a partir del momento en que alcancen la mayoría de edad.

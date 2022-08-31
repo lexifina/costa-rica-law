@@ -1,0 +1,6 @@
+CAPÍTULO VII
+De las garantías
+Artículo 59.-Garantías. La persona que haya planteado una denuncia por hostigamiento sexual no podrá ser despedida o retirada del SCFP, ni sufrir perjuicio personal indebido en su empleo o en sus estudios por este motivo.
+Las personas que hayan comparecido en condición de testigo en los procedimientos de investigación de denuncia por hostigamiento sexual no podrán sufrir por ello perjuicio personal indebido en su empleo o en sus estudios por este motivo.
+Si esto ocurriese la persona afectada podrá denunciarlo ante las instancias receptoras de denuncias por hostigamiento sexual señaladas en el presente reglamento, quienes recomendarán a las autoridades las medidas pertinentes tanto para que cese como para que se sancione a quien está causando o permitiendo el perjuicio.
+Cuando ambas partes, víctima y denunciada laboren en una misma dependencia, y una vez firme la resolución final del procedimiento administrativo, la persona víctima podrá requerir a la Administración un traslado de puesto, una permuta o cualquier figura administrativa que permita un buen ambiente laboral y por ende un mejor desempeño laboral. La Administración, en la medida de sus posibilidades y en apego a la normativa vigente, valorará la solicitud para su eventual aplicación.
