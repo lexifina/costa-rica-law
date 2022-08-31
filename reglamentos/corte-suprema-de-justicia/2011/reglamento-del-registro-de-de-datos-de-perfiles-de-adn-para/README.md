@@ -13,3 +13,4 @@ Reglamento del registro de de datos de perfiles de ADN para identificación huma
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-08-01 | la propia norma |
+| 2 | 2022-08-31 | Circular 163 (2022-08-31) |
