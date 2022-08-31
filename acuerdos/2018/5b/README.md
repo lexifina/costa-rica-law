@@ -14,3 +14,4 @@ Aprueba Procedimientos ECA-MC-C17 Criterio para evaluar el esquema igualdad de g
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-06-27 | la propia norma |
+| 2 | 2022-08-31 | Acuerdo 5 (2022-08-31) |
