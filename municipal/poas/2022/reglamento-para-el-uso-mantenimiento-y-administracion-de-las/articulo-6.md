@@ -1,0 +1,3 @@
+CAPÍTULO II.
+De la organización administrativa interna de las piscinas
+Artículo 6º-La potestad que este Reglamento le confiere a la Junta Directiva del CCDR Poás sobre la organización administrativa interna de las piscinas, permitirá que, con los debidos análisis presupuestarios, se pueda contar con personal humano para su adecuado funcionamiento, resguardo y mantenimiento, pudiendo entonces destinar de sus propios ingresos para la contratación de: a. Encargado de Piscina. b. Operativo de mantenimiento y limpieza. c. Encargado de Resguardo de Piscina. Dicho personal deberá contar con un perfil idóneo incluido en el Manuel de Puestos de la Municipalidad y el respectivo proceso de contratación según la normativa, siendo estos de características y naturaleza operativas.

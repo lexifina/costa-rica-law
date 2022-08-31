@@ -1,0 +1,1 @@
+Artículo 20.-La Junta Directiva del CCDR, mediante trámite dirigido y adjudicado por el Concejo Municipal, podrá alquilar por días u horas la utilización de las piscinas para fines deportivos, recreativos o de enseñanza siempre y cuando estas actividades estén estrictamente relacionadas a la natación y el deporte.

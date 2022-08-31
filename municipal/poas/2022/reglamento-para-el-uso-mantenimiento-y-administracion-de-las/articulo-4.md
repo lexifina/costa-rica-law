@@ -1,0 +1,1 @@
+Artículo 4º-Corresponderá al CCDR como administrador del polideportivo, en este caso la Junta Directiva del CCDR, establecer los horarios de utilización de la piscina dentro del orden de los servicios y actividades se determinen en cumplimiento de los fines establecidos para la recreación y deporte, pudiendo para lo anterior establecer un alquiler parcial sobre el activo.

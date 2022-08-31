@@ -1,0 +1,1 @@
+Artículo 28.-Cualquier incumplimiento al presente reglamento constituirá para el caso de funcionarios públicos como falta grave siempre que medie debido proceso y para el caso de personas físicas o jurídicas los alcances que la normativa permita.
