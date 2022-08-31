@@ -1,0 +1,1 @@
+Artículo 2º-Modificase el artículo 2° de la Ley de Presupuesto Ordinario y Extraordinario de la República para el Ejercicio Económico del 2022, Ley N° 10.103 citada, para que la clasificación económica del Programa 800 Seguridad Ciudadana y Prevención de la Violencia del Ministerio de Justicia y Paz, sea acorde con la naturaleza del programa.
