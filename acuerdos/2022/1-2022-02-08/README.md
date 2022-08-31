@@ -14,3 +14,4 @@ Reforma Procedimiento ECA-MC-P11 Procedimiento de evaluación In Situ para OC y 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-02-11 | la propia norma |
+| 2 | 2022-08-31 | Acuerdo 5 (2022-08-31) |

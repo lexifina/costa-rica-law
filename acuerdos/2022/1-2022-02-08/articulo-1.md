@@ -2,22 +2,23 @@ ENTE COSTARRICENSE DE ACREDITACIÓN
 Aviso 2022-001.-El Ente Costarricense de Acreditación (ECA), en cumplimiento de la Ley 8279 Ley del Sistema Nacional de la Calidad, da a conocer la modificación del documento: ECA-MC-P11 Procedimiento de evaluación in situ para OC y OVV, pasa de versión 06 a versión 07, este procedimiento tiene transitorio de un periodo de 3 meses a partir de su publicación en el diario oficial La Gaceta para los OEC acreditados o en proceso de acreditación. Los documentos descritos anteriormente se encuentran a disposición de los interesados en la página electrónica http://www.eca.or.cr/; así mismo puede solicitar el envío de manera electrónica o solicitar gratuitamente una copia no contralada en la Gestoría de Calidad en las oficinas centrales del ECA ubicadas en San José, Barrio Don Bosco, Avenida 02 y Calle 32, contiguo a la Embajada de España, en horario de lunes a viernes de 8 h a 16 h. única vez.
 San José, 08.02.2022.-
 (Nota de Sinalevi: El presente procedimiento se extrajo del sitio web del Ente Costarricense de Acreditación y se transcribe a continuación:)
-[imagen] [imagen]
+(Nota de Sinalevi: El presente procedimiento fue reformado parcialmente y reproducido su texto de forma íntegra mediante publicación en La gaceta N° 174 del 13 de setiembre del 2022, donde se actualiza la versión 07 y se publica la versión 08, y se transcribe a continuación:)
+[imagen]
 TABLA DE CONTENIDO
-1 OBJETIVO...................................................................................................................... 1
-2 ALCANCE....................................................................................................................... 2
-3 DEFINICIONES............................................................................................................... 2
-4 REQUISITOS GENERALES............................................................................................. 3
-5 REQUISITOS GENERALES PARA LA ELECCIÓN DE TESTIFICACIONES......................... 4
+1 OBJETIVO............................................................................................. 1
+2 ALCANCE.............................................................................................. 2
+3 DEFINICIONES...................................................................................... 2
+4 REQUISITOS GENERALES.................................................................... 3
+5 REQUISITOS GENERALES PARA LA ELECCIÓN DE TESTIFICACIONES 4
 6 REQUISITOS ESPECÍFICOS PARA ORGANISMOS DE CERTIFICACIÓN DE SISTEMAS DE GESTIÓN) Y ORGANISMOS VALIDADORES/ VERIFICADORES OVV:.. 6
-7 REQUISITOS ESPECÍFICOS PARA ORGANISMO DE CERTIFICACIÓN DE PRODUCTO (OCP)....................................................................................................................................... 9
-8 REQUISITOS ESPECÍFICOS PARA ORGANISMOS DE CERTIFICACIÓN DE PERSONAS (OCH)..................................................................................................................................... 10
-9 INFORMACIÓN A SOLICITAR PARA ANTES DE REALIZAR LAS TESTIFICACIONES.... 10
-10 PLANIFICACIÓN DE LA TESTIFICACIÓN.................................................................. 12
-11 EJECUCIÓN DE LA TESTIFICACIÓN........................................................................ 12
-12 TESTIFICACIÓN PILOTO.......................................................................................... 14
-14 IDENTIFICACIÓN DE CAMBIOS................................................................................ 17
-15 TRANSITORIO.......................................................................................................... 17
+7 REQUISITOS ESPECÍFICOS PARA ORGANISMO DE CERTIFICACIÓN DE PRODUCTO (OCP).............................................. 9
+8 REQUISITOS ESPECÍFICOS PARA ORGANISMOS DE CERTIFICACIÓN DE PERSONAS (OCH)............................................ 10
+9 INFORMACIÓN A SOLICITAR PARA ANTES DE REALIZAR LAS TESTIFICACIONES............................................................................ 10
+10 PLANIFICACIÓN DE LA TESTIFICACIÓN......................................... 12
+11 EJECUCIÓN DE LA TESTIFICACIÓN............................................... 12
+12 TESTIFICACIÓN PILOTO................................................................. 14
+14 IDENTIFICACIÓN DE CAMBIOS....................................................... 17
+15 TRANSITORIO................................................................................ 17
 1 OBJETIVO
 El presente documento establece los criterios y mecanismos para llevar a cabo el proceso de evaluación in situ, que incluye la evaluación en oficinas y la testificación, a Organismos de Certificación de Sistemas de Gestión, Organismos de Certificación de Producto, Organismos de Certificación de Personas y Organismos Validadores/Verificadores (OC Y OVV).
 2 ALCANCE
@@ -114,8 +115,8 @@ h. Requisitos de Testificación para OC acreditados:
 · En caso de OC con más de 20 auditores se realizará una testificación por año por cada 20 auditores.
 · Consideraciones adicionales se darán para el OC que cuenten con certificaciones en diferentes países.
 6.6 Específico para Sistema de Gestión para la Igualdad de Género
-· Se debe testificar a los OCSG en las actividades de auditoría en sus clientes al menos una vez al año.
-· El equipo evaluador del ECA debe contar siempre con una persona experta técnica en género.
+· El ECA debe testificar a los OCSG en las actividades de auditoría en sus clientes al menos una vez durante el ciclo de acreditación.
+· El ECA deberá exigir a los OEC acreditados, disponer de acuerdos ejecutables de cumplimiento con sus clientes que comprometan a estos a proporcionar, bajo petición previa, acceso al equipo de evaluación del ECA, que puede incluir personal de INAMU, con el fin de evaluar el rendimiento del OEC en la realización de las actividades de evaluación de conformidad en el sitio del cliente.
 7 REQUISITOS ESPECÍFICOS PARA ORGANISMO DE CERTIFICACIÓN DE PRODUCTO (OCP)
 7.1 Para procesos de acreditación inicial o ampliaciones del alcance, se debe llevar a cabo tantas testificaciones como tipos de servicios, productos o procesos hayan solicitado.
 7.2 Durante el ciclo de la acreditación, todos los servicios, productos o procesos deben ser testificados.
@@ -193,11 +194,11 @@ b. Debe revisar de forma completa el registro de calificación de los auditores 
 Anexo 1. Esquemas y requisitos adicionales para ECA
 Esquema | Requisitos ECA
 PPCN 2.0 | No tiene definidos ningunos requisitos adicionales al organismo de acreditación
-Sistema de Sistema de Gestión para la igualdad de género | El ECA debe informar a INAMU, de forma inmediata, lo siguiente: El ingreso de solicitudes de acreditación de organismos que deseen certificar los sistemas de gestión de igualdad de género con respecto a la norma INTE 38-01-01 y este Esquema de Certificación. Cuando se otorgue la acreditación a un organismo de certificación para certificar los sistemas de gestión de igualdad de género con respecto a la norma INTE 38-01-01 y este Esquema de Certificación. Cuando se presenten quejas relacionadas con los OCSG. Cuando se suspenda o cancele la acreditación de algún OCSG. Cualquier otra información que el INAMU requiera respecto a los procesos de acreditación de los OCSG. El ECA debe evaluar que el organismo de certificación cumpla con lo indicado en el capítulo 4 del documento "Esquema para la certificación de los sistemas de gestión para la igualdad de género en el ámbito laboral y la utilización del "sello de igualdad de género" del INAMU" vigente.
+Sistema de Sistema de Gestión para la igualdad de género | El ECA debe informar a INAMU (al correo electrónico selloigualdad@inamu.go.cr), de forma inmediata, lo siguiente: a. El ingreso de solicitudes de acreditación de organismos que deseen certificar en la Norma INTE G38-1:2021: Promoción para la igualdad de género en el ámbito laboral. Requisitos para el Nivel 1. Parte 1; la Norma INTE G38-2:2021: Acciones afirmativas para la igualdad de género en el ámbito laboral. Requisitos para el Nivel 2. Parte 2; y la Norma INTE G38- 3:2021: Sistema de gestión para la igualdad de género en el ámbito laboral. Requisitos para el Nivel 3. Parte 3 y este Esquema de Certificación. b. Cuando se otorgue la acreditación a un organismo de evaluación de la conformidad para certificar en este Esquema de Certificación. c. Cuando se presenten quejas relacionadas con los OCSG. d. Cuando se suspenda o cancele la acreditación de algún OCSG. e. Cualquier otra información que el INAMU requiera respecto a los procesos de acreditación de los OCSG. Los equipos de evaluación del ECA, deben cumplir como mínimo lo establecido en el apartado 9.3.c de este documento. El ECA debe gestionar la participación del INAMU ante los OEC que quieran optar por alguna de las 3 certificaciones. Por lo anterior, el OEC debe aceptar la participación de las personas representantes del INAMU relacionada con el alcance de este esquema, durante la ejecución de la evaluación, tanto para evaluaciones iniciales, de seguimiento, extraordinarias y reevaluación.
+| El ECA debe testificar a los OCSG en las actividades de auditoría en sus clientes al menos una vez durante el ciclo de acreditación. El ECA deberá exigir a los OEC acreditados, disponer de acuerdos ejecutables de cumplimiento con sus clientes que comprometan a estos a proporcionar, bajo petición previa, acceso al equipo de evaluación del ECA, que puede incluir personal de INAMU, con el fin de evaluar el rendimiento del OEC en la realización de las actividades de evaluación de conformidad en el sitio del cliente.
 Sistema de Gestión de Calidad | Calificar a los expertos de acuerdo a las normas 17021-2 para ello se tiene el documento ECA-MC-P21-I01
 Sistema de Gestión Ambiental | Calificar a los expertos de acuerdo a las normas 17021-3 para ello se tiene el documento ECA-MC-P21-I01
-Sistema de gestión FSSC 22000 | Debe participar en evaluaciones de harmonización anual
-| Comunicación con el dueño del esquema
+Sistema de gestión FSSC 22000 | Debe participar en evaluaciones de harmonización anual Comunicación con el dueño del esquema
 Sistema de gestión de la seguridad y salud en el trabajo | Calificar a los expertos de acuerdo a las normas 17021-10 para ello se tiene el documento ECA-MC-P21-I01
 Sistema de gestión seguridad cadena de suministros | No tiene definidos ningunos requisitos adicionales al organismo de acreditación
 Sistema de gestión de la Energía | No tiene definidos ningunos requisitos adicionales al organismo de acreditación
@@ -207,5 +208,8 @@ OCP Etiquetado ambiental | Lo indicado en el esquema de la AAA
 Para los OEC acreditados o en proceso de acreditación, este procedimiento entrará en vigencia transcurrido un periodo de 3 meses posteriores a su publicación, por parte del ECA, en el diario oficial La Gaceta N°28 del 2022.02.11.
 15 IDENTIFICACIÓN DE CAMBIOS
 Motivo: | Modificación del procedimiento ECA-MC-P11
-Refiérase a la solicitud de elaboración o modificación del documento número 2022-003
+Refiérase a la solicitud de elaboración o modificación del documento número 2022-032
 Se actualiza el formato del documento, se modifican los criterios de testificación para OVV y OCSG, de acuerdo con la criticidad de los sectores/clústeres. Se actualizan referencias a instructivos del ECA y Grupos de trabajo. Los cambios se deben a transición de normas.
+Motivo: | Actualización esquema Igualdad de Genera
+Refiérase a la solicitud de elaboración o modificación del documento número 2022-032
+Se modifica apartado: 6.6 Específico para Sistema de Gestión para la Igualdad de Género Anexo 1. Esquemas y requisitos adicionales para ECA
