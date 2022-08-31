@@ -1,0 +1,1 @@
+Artículo 8º-Competencias de la Gerencia. La persona que ejerce el cargo de Gerente será quién defina los integrantes de la Comisión Institucional de Teletrabajo, así como la coordinación y/o reemplazo de alguna persona servidora que forma parte de la Comisión.

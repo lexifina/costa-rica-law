@@ -1,0 +1,3 @@
+Artículo 16.-Opciones de teletrabajo. La modalidad de teletrabajo considera 2 opciones, éstas son:
+a) Teletrabajo permanente: persona servidora que por la naturaleza del puesto todas las funciones son teletrabajables. Además, ésta opción de prestación de servicio no exime a la persona servidora de lo señalado en artículo 20, inciso h.
+b) Teletrabajo no permanente: persona servidora que por la naturaleza del puesto no todas las funciones son teletrabajables. Además, ésta opción de prestación de servicio no exime a la persona servidora de lo señalado en artículo 20, inciso h. cuando se encuentre realizando actividades laborales en alguna forma de teletrabajo.

@@ -1,0 +1,2 @@
+Transitorio I. Dentro de los seis meses siguientes a la entrada en vigencia de este reglamento, la Unidad encargada del recurso humano con el apoyo de la Comisión Institucional de Teletrabajo, deberán elaborar y actualizar procedimientos, instructivos y demás documentación de gestión para aplicarlo a las personas servidoras que se encuentren laborando en esta modalidad.
+Aprobado por Junta Directiva en Sesión Ordinaria 007- 2022, celebrada el 05 de mayo de 2022.

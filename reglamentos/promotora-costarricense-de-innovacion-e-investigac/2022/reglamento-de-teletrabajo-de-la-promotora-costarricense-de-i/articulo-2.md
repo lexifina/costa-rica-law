@@ -1,0 +1,1 @@
+Artículo 2º-Alcance. Este reglamento es de aplicación para aquellas personas servidoras de la Promotora Costarricense de Innovación e Investigación que cumplan con un perfil y puesto teletrabajable definido por la PROMOTORA.

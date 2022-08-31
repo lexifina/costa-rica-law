@@ -1,0 +1,4 @@
+Artículo 14.-Formas de teletrabajo. La modalidad de teletrabajo en la PROMOTORA contempla dos opciones (permanente y no permanente) según se describe en artículo 16, y puede ser realizado de las siguientes formas:
+a) Teletrabajo Domiciliario: ocurre cuando las personas servidoras ejecutan sus actividades laborales desde su domicilio.
+b) Teletrabajo en Telecentros: espacio físico acondicionado con recursos telemáticos que le permitan a las personas servidoras realizar sus actividades y a la vez, se facilite el desarrollo de ambientes colaborativos y creativos que promuevan el conocimiento para innovar esquemas laborales de alto desempeño fuera de la infraestructura física de la PROMOTORA.
+c) Teletrabajo móvil: ocurre cuando las personas servidoras realizan sus funciones de manera itinerante, ya sea en el campo o con traslados constantes, con ayuda de uso de recursos telemáticos móviles que sean fácilmente utilizables y transportables.

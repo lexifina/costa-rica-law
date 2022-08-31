@@ -1,0 +1,1 @@
+Artículo 24.-Soporte técnico a los recursos telemáticos. El soporte técnico se dará según se dispone en los procedimientos definidos por la Unidad encargada de las tecnologías de la información y comunicación para equipos y recursos asignados.

@@ -1,0 +1,1 @@
+Artículo 25.-Devolución de los recursos telemáticos en casos justificados. Cuando la persona servidora por razonas justificadas tales como: permiso sin goce de salario, incapacidades, vacaciones y otros, superiores a los 15 días hábiles; así como casos de renuncia, deberán devolver los recursos telemáticos asignados de manera inmediata.
