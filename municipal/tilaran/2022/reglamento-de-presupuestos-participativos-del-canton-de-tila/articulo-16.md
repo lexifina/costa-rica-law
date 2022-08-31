@@ -1,0 +1,1 @@
+Artículo 16.-Los actores comunales que participaron en el proceso de estos presupuestos, deberán velar por la correcta ejecución de los proyectos desde su inicio hasta su finalización, lo que incluye su control y evaluación.

@@ -1,0 +1,1 @@
+Artículo 14.-En caso de que por alguna circunstancia no se logre organizar dentro del plazo establecido la sesión ampliada, quedará facultado el Concejo municipal para realizar la convocatoria respectiva y asumir el presidente la dirección de dicha asamblea conforme este Reglamento; en su ausencia lo hará el o la vicepresidenta.

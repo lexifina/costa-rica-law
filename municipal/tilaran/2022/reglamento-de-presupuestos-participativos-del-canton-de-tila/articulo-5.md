@@ -1,0 +1,1 @@
+Artículo 5º-Sobre el monto: La Municipalidad destinará cada año, recursos para ser asignados a través de presupuestos participativos. Con el objetivo de darle contenido presupuestario a los proyectos que cuenten con el visto bueno de factibilidad de la Comisión Municipal de Presupuesto Participativo y el equipo operativo institucional.

@@ -1,0 +1,1 @@
+Artículo 7º-Podrán participar en el proceso los actores comunales inscritos previamente ante la Alcaldía municipal, que asistan a los talleres y que presenten proyectos de impacto distrital o cantonal.

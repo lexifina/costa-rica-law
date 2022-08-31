@@ -1,0 +1,1 @@
+Artículo 11.-La capacitación se realizará por medio de los talleres distritales, se procurará que asistan representantes de todas las organizaciones formales y no formales de la comunidad y cuenten con los espacios efectivos de participación sin ningún tipo de exclusión.

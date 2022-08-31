@@ -1,0 +1,9 @@
+Artículo 3º-Los principios de planificación que regirán el proceso de presupuestos participativos serán:
+a) Solidaridad: Consiste en que cada individuo desarrolla sus capacidades y goza de sus derechos, colaborando con los demás integrantes del cuerpo social, para desarrollarse en comunidad y armonía, logrando no solo su plenitud personal sino la de sus semejantes.
+b) Equidad: Consiste en asignar los recursos garantizando que a menor Índice de Desarrollo, mayor asignación de recursos.
+c) Igualdad: Las organizaciones de la sociedad tendrán las mismas oportunidades en los procesos de planificación y presupuesto participativo para participar sin discriminaciones de ningún tipo.
+d) Participación: Consiste en el proceso que propicia la aplicación de mecanismos idóneos de expresión ciudadana de los actores comunales con el apoyo de la asesoría técnica necesaria para concretar los proyectos de impacto cantonal.
+e) Flexibilidad. Los fundamentos que sustentan el proceso de presupuestos deberán ser analizados y cuestionados periódicamente para determinar su validez ante los cambios internos y externos del cantón y las comunidades, de manera que se asegure el cumplimiento de los objetivos planteados.
+f) Sostenibilidad. Consiste en valorar la factibilidad administrativa, técnica, financiera, económica y ambiental de los proyectos propuestos para su sostenimiento durante todo el periodo de ejecución.
+g) Transparencia: Consiste en propiciar y difundir la información idónea y veraz a las comunidades y garantizar la respectiva rendición de cuentas por medio todos los mecanismos existentes en la comunidad para esos fines.
+h) Tolerancia: Es la garantía de reconocimiento y respeto a la diversidad de opiniones, visiones y propuestas de los actores sociales y elemento esencial para la construcción de consensos.
