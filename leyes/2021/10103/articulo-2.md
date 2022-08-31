@@ -17,3 +17,5 @@ Artículo 2° : Apruébense los siguientes Egresos Ordinarios y Extraordinarios 
 (Modificado por el artículo 1° del decreto ejecutivo N°43634 del 21 de julio de 2022)
 (Modificado por el artículo 3° del decreto ejecutivo N°43634 del 21 de julio de 2022)
 (Modificado por el artículo 1° del decreto ejecutivo N° 43667 del 18 de agosto de 2022)
+(Reformado por el artículo 2° de la ley N° 10305 del 24 de agosto de 2022)
+(Reformado por el artículo 3° de la ley N° 10305 del 24 de agosto de 2022)
