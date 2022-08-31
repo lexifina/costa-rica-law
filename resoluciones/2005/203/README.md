@@ -98,3 +98,4 @@ Manual de Procedimientos Aduaneros en el marco TICA (Contiene Ingreso y salida d
 | 83 | 2020-05-18 | Resolución 241 (2020-05-18) |
 | 84 | 2021-02-02 | Resolución 39 (2021-02-02) |
 | 85 | 2021-02-22 | Resolución 76 (2021-02-22) |
+| 86 | 2022-08-31 | Resolución 292 (2022-08-31) |

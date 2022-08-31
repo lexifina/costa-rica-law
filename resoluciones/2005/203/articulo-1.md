@@ -1,5 +1,6 @@
 DIRECCIÓN GENERAL DE ADUANAS
 RESOLUCIÓN DGA-203-2005. DIRECCIÓN GENERAL DE ADUANAS. SAN JOSÉ A LAS NUEVE HORAS DEL DÍA VEINTIDÓS DE JUNIO DE DOS MIL CINCO.
+(Nota de Sinalevi: Mediante resolución N° RES-DGA-292-2022 del 31 de agosto del 2022, “Establece la generación de los Certificados de Importación Temporal (CIT) para los medios de transporte con placa extranjera que ingresan al país, seguirá efectuándose tal como se realiza actualmente en el Sistema Informático TICA”, se acordó dejar sin efecto de este manual u otra regulación administrativa, la obligatoriedad de la impresión, sello y firma del CIT, así como su presentación en forma física.)
 (NOTA: Mediante resolución RES-DGA-360 del 14 de agosto de 2008, se comunica que a partir del 1° de setiembre de 2008, se implementará en la Aduana de Peñas Blancas el Régimen de Exportaciones en el Sistema de Información para el Control Aduanero TICA)
 (NOTA: Mediante resolución RES-DGA-430-2008 de 6 de octubre de 2008, se comunica que a partir del 20 de octubre del 2008 se implementará en la Aduana de Paso Canoas el Régimen de Exportaciones en el Sistema de Información para el Control Aduanero TICA)
 i
