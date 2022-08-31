@@ -1,14 +1,11 @@
-ENTE COSTARRICENSE DE ACREDITACIÓN
-Modificación de documentos 010-2013
-(Nota de Sinalevi: Sobre este tema el Ente Costarricense de Acreditación había aprobado anteriormente el Procedimiento ECA-MC-P11 Procedimiento general de evaluación, acreditación y de testificación para Organismos de Certificación (Versión 5) mediante publicación en La Gaceta N° 16 del 23 de enero del 2013)
-El Ente Costarricense de Acreditación (ECA), da a conocer la modificación de los documentos código ECA-MC-P25 Procedimiento de testificación para Organismos de Validadores/ Verificadores de GEI, procedimiento ECA-MC-P11 Procedimiento general de evaluación, acreditación y de testificación para Organismos de Certificación y el procedimiento código ECA-MC-MA-P05 Reconocimiento de la equivalencia del certificado de acreditación emitidos el 8 de octubre del 2013, de la siguiente manera:
+ENTE COSTARRICENSE DE ACREDITACIÓN Modificación de documentos 010-2013 (Nota de Sinalevi: Sobre este tema el Ente Costarricense de Acreditación había aprobado anteriormente el Procedimiento ECA-MC-P11 Procedimiento general de evaluación, acreditación y de testificación para Organismos de Certificación (Versión 5) mediante publicación en La Gaceta N° 16 del 23 de enero del 2013) El Ente Costarricense de Acreditación (ECA), da a conocer la modificación de los documentos código ECA-MC-P25 Procedimiento de testificación para Organismos de Validadores/ Verificadores de GEI, procedimiento ECA-MC-P11 Procedimiento general de evaluación, acreditación y de testificación para Organismos de Certificación y el procedimiento código ECA-MC-MA-P05 Reconocimiento de la equivalencia del certificado de acreditación emitidos el 8 de octubre del 2013, de la siguiente manera:
 Procedimiento | Versión actual | Versión publicada
 ECA-MC-P25 Procedimiento de testificación para Organismos de Validadores / Verificadores de GEI | VERSIÓN 06 | Se retira procedimiento del SGC del ECA
 ECA-MC-P11 Procedimiento de evaluación in situ para Organismos de Certificación y Organismos Validadores Verificadores GEI | VERSIÓN 06 | VERSIÓN 01
 ECA-MC-MA-P05 Reconocimiento de la equivalencia del certificado de acreditación | VERSIÓN 01 | VERSIÓN 02
 Los procedimientos modificados se encontrarán a disposición de los interesados en nuestra página electrónica www.eca.or.cr/ http://www.eca.or.cr/docs.php; así mismo podrán solicitar el envío de manera electrónica o solicitar gratuitamente una copia no contralada en la Gestoría de Calidad de las oficinas centrales del ECA ubicadas en Rohrmoser 150 metros al este del Centro Comercial Plaza Mayor, contiguo a Prisma Dental, de lunes a viernes de las 8 a las 16 horas. Entra en vigencia a partir de ésta publicación en el Diario Oficial La Gaceta.
 San José, 8 de octubre del 2013
-(Nota de Sinalevi: El presente procedimiento fue reformado parcialmente y reproducido su texto de forma íntegra mediante publicación en La Gaceta N° 28 del 11 de febrero del 2022, donde se actualiza la versión 07 y se publica la versión 07, y se transcribe a continuación:)
+(Nota de Sinalevi: El presente procedimiento fue reformado parcialmente y reproducido su texto de forma íntegra mediante publicación en La gaceta N° 174 del 13 de setiembre del 2022, donde se actualiza la versión 07 y se publica la versión 08, y se transcribe a continuación:)
 [imagen]
 TABLA DE CONTENIDO
 1 OBJETIVO............................................................................................. 1
@@ -121,8 +118,8 @@ h. Requisitos de Testificación para OC acreditados:
 · En caso de OC con más de 20 auditores se realizará una testificación por año por cada 20 auditores.
 · Consideraciones adicionales se darán para el OC que cuenten con certificaciones en diferentes países.
 6.6 Específico para Sistema de Gestión para la Igualdad de Género
-· Se debe testificar a los OCSG en las actividades de auditoría en sus clientes al menos una vez al año.
-· El equipo evaluador del ECA debe contar siempre con una persona experta técnica en género.
+· El ECA debe testificar a los OCSG en las actividades de auditoría en sus clientes al menos una vez durante el ciclo de acreditación.
+· El ECA deberá exigir a los OEC acreditados, disponer de acuerdos ejecutables de cumplimiento con sus clientes que comprometan a estos a proporcionar, bajo petición previa, acceso al equipo de evaluación del ECA, que puede incluir personal de INAMU, con el fin de evaluar el rendimiento del OEC en la realización de las actividades de evaluación de conformidad en el sitio del cliente.
 7 REQUISITOS ESPECÍFICOS PARA ORGANISMO DE CERTIFICACIÓN DE PRODUCTO (OCP)
 7.1 Para procesos de acreditación inicial o ampliaciones del alcance, se debe llevar a cabo tantas testificaciones como tipos de servicios, productos o procesos hayan solicitado.
 7.2 Durante el ciclo de la acreditación, todos los servicios, productos o procesos deben ser testificados.
@@ -200,11 +197,11 @@ b. Debe revisar de forma completa el registro de calificación de los auditores 
 Anexo 1. Esquemas y requisitos adicionales para ECA
 Esquema | Requisitos ECA
 PPCN 2.0 | No tiene definidos ningunos requisitos adicionales al organismo de acreditación
-Sistema de Sistema de Gestión para la igualdad de género | El ECA debe informar a INAMU, de forma inmediata, lo siguiente: El ingreso de solicitudes de acreditación de organismos que deseen certificar los sistemas de gestión de igualdad de género con respecto a la norma INTE 38-01-01 y este Esquema de Certificación. Cuando se otorgue la acreditación a un organismo de certificación para certificar los sistemas de gestión de igualdad de género con respecto a la norma INTE 38-01-01 y este Esquema de Certificación. Cuando se presenten quejas relacionadas con los OCSG. Cuando se suspenda o cancele la acreditación de algún OCSG. Cualquier otra información que el INAMU requiera respecto a los procesos de acreditación de los OCSG. El ECA debe evaluar que el organismo de certificación cumpla con lo indicado en el capítulo 4 del documento "Esquema para la certificación de los sistemas de gestión para la igualdad de género en el ámbito laboral y la utilización del "sello de igualdad de género" del INAMU" vigente.
+Sistema de Sistema de Gestión para la igualdad de género | El ECA debe informar a INAMU (al correo electrónico selloigualdad@inamu.go.cr), de forma inmediata, lo siguiente: a. El ingreso de solicitudes de acreditación de organismos que deseen certificar en la Norma INTE G38-1:2021: Promoción para la igualdad de género en el ámbito laboral. Requisitos para el Nivel 1. Parte 1; la Norma INTE G38-2:2021: Acciones afirmativas para la igualdad de género en el ámbito laboral. Requisitos para el Nivel 2. Parte 2; y la Norma INTE G38- 3:2021: Sistema de gestión para la igualdad de género en el ámbito laboral. Requisitos para el Nivel 3. Parte 3 y este Esquema de Certificación. b. Cuando se otorgue la acreditación a un organismo de evaluación de la conformidad para certificar en este Esquema de Certificación. c. Cuando se presenten quejas relacionadas con los OCSG. d. Cuando se suspenda o cancele la acreditación de algún OCSG. e. Cualquier otra información que el INAMU requiera respecto a los procesos de acreditación de los OCSG. Los equipos de evaluación del ECA, deben cumplir como mínimo lo establecido en el apartado 9.3.c de este documento. El ECA debe gestionar la participación del INAMU ante los OEC que quieran optar por alguna de las 3 certificaciones. Por lo anterior, el OEC debe aceptar la participación de las personas representantes del INAMU relacionada con el alcance de este esquema, durante la ejecución de la evaluación, tanto para evaluaciones iniciales, de seguimiento, extraordinarias y reevaluación.
+| El ECA debe testificar a los OCSG en las actividades de auditoría en sus clientes al menos una vez durante el ciclo de acreditación. El ECA deberá exigir a los OEC acreditados, disponer de acuerdos ejecutables de cumplimiento con sus clientes que comprometan a estos a proporcionar, bajo petición previa, acceso al equipo de evaluación del ECA, que puede incluir personal de INAMU, con el fin de evaluar el rendimiento del OEC en la realización de las actividades de evaluación de conformidad en el sitio del cliente.
 Sistema de Gestión de Calidad | Calificar a los expertos de acuerdo a las normas 17021-2 para ello se tiene el documento ECA-MC-P21-I01
 Sistema de Gestión Ambiental | Calificar a los expertos de acuerdo a las normas 17021-3 para ello se tiene el documento ECA-MC-P21-I01
-Sistema de gestión FSSC 22000 | Debe participar en evaluaciones de harmonización anual
-| Comunicación con el dueño del esquema
+Sistema de gestión FSSC 22000 | Debe participar en evaluaciones de harmonización anual Comunicación con el dueño del esquema
 Sistema de gestión de la seguridad y salud en el trabajo | Calificar a los expertos de acuerdo a las normas 17021-10 para ello se tiene el documento ECA-MC-P21-I01
 Sistema de gestión seguridad cadena de suministros | No tiene definidos ningunos requisitos adicionales al organismo de acreditación
 Sistema de gestión de la Energía | No tiene definidos ningunos requisitos adicionales al organismo de acreditación
@@ -214,5 +211,8 @@ OCP Etiquetado ambiental | Lo indicado en el esquema de la AAA
 Para los OEC acreditados o en proceso de acreditación, este procedimiento entrará en vigencia transcurrido un periodo de 3 meses posteriores a su publicación, por parte del ECA, en el diario oficial La Gaceta N°28 del 2022.02.11.
 15 IDENTIFICACIÓN DE CAMBIOS
 Motivo: | Modificación del procedimiento ECA-MC-P11
-Refiérase a la solicitud de elaboración o modificación del documento número 2022-003
+Refiérase a la solicitud de elaboración o modificación del documento número 2022-032
 Se actualiza el formato del documento, se modifican los criterios de testificación para OVV y OCSG, de acuerdo con la criticidad de los sectores/clústeres. Se actualizan referencias a instructivos del ECA y Grupos de trabajo. Los cambios se deben a transición de normas.
+Motivo: | Actualización esquema Igualdad de Genera
+Refiérase a la solicitud de elaboración o modificación del documento número 2022-032
+Se modifica apartado: 6.6 Específico para Sistema de Gestión para la Igualdad de Género Anexo 1. Esquemas y requisitos adicionales para ECA
