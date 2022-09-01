@@ -1,0 +1,8 @@
+ARTÍCULO Nº 12: OBSERVACIONES GENERALES
+En general, salvo que no exista otra alternativa, no se permitirá la descarga en la playa de aguas pluviales, aguas servidas o aguas negras de las edificaciones que se ubiquen en área restringida. Si esto fuese inevitable, deberá presentarse un proyecto detallado que asegure que no habrá erosión en la playa, ni existe riesgo de que la descarga pluvial se obstruya, ni contaminación en la playa. Las construcciones existentes que violan estas disposiciones deberán modificarse en este sentido.
+a) Deberá contar con la autorización respectiva previo cualquier inicio de obras el ICT y la Municipalidad.
+b) Los drenajes pluviales, en general, podrán conducirse hacia quebradas, siempre y cuando se mitigue el impacto de las aguas a las quebradas y de éstas al océano.
+c) Ningún drenaje o construcción podrá ubicarse dentro del radio menor de 100 metros de los pozos de agua potable. Debe solicitarse al Ministerio de Salud que analice la potabilidad del agua que se extrae de los pozos existentes.
+d) En la línea de frente de la construcción, no se podrán construir vallas solidas con una altura mayor de un metro. Por sobre esta altura, se podrá colocar únicamente verjas con elementos que permitan la visibilidad tales como rejas, mallas, etc. Se establece un porcentaje de permeabilidad del 80 %. Se excluye de esta disposición el caso de muros de retención.
+e) Ninguna vía pública permitirá el acceso de vehículos motorizados a la playa.
+f) Todas las propuestas de desarrollo que se presenten en las áreas de concesión deberán presentar su proyecto ante la Secretaria Técnica Nacional ambiental, a fin que esta determine la necesidad o no elaborar una EIA, como parte de los procedimientos de ley.
