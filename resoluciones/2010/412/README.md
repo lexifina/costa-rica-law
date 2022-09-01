@@ -14,3 +14,4 @@ Reforma Procedimiento de solicitud de numeración, establecimiento de números e
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-09-23 | la propia norma |
+| 2 | 2022-09-01 | Resolución 222 (2022-09-01) |
