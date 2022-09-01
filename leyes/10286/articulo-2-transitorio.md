@@ -1,0 +1,3 @@
+TRANSITORIO II- Se autoriza la liberación automática de tributos, sin necesidad de pronunciamiento previo de la Administración Tributaria, a toda la maquinaria, equipo, así como a cualquier otra clase de mercancías, importadas o compradas localmente con exención de tributos que afectaban su adquisición, en el tanto dicha importación o compra local se haya realizado al menos diez años antes de la entrada en vigencia de la presente ley.
+La presente ley rige a partir de su publicación.
+Dado en la Presidencia de la República, San José, a los dieciocho días del mes de agosto del año dos mil veintidós.

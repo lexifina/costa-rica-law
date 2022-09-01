@@ -1,0 +1,2 @@
+ARTÍCULO 7- Extinción de las obligaciones relacionadas con la exención en caso fortuito o fuerza mayor
+La pérdida de la mercancía exonerada por caso fortuito o fuerza mayor extingue la obligación tributaria a cargo del beneficiario de la exención. El trámite de liberación se deberá realizar ante la Dirección General de Hacienda, a la cual le corresponde emitir las disposiciones normativas necesarias para la aplicación de este artículo.

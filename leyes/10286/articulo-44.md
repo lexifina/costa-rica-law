@@ -1,0 +1,3 @@
+ARTÍCULO 44- Proceso para otorgar beneficios fiscales al sector diplomático y afines
+Los beneficios fiscales que se otorguen a los jefes de misión, a los funcionarios extranjeros y a las misiones diplomáticas, consulares, misiones internacionales y afines deberán contar con un dictamen fundamentado del Ministerio de Relaciones Exteriores y Culto, en el que se detallen, al menos, los incentivos que aplican en el otro país a favor de nuestras representaciones estatales y que se ha verificado el cumplimiento de su aplicación.
+Compete al Ministerio de Relaciones Exteriores y Culto realizar estudios de reciprocidad, al menos cada cuatro años.

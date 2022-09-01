@@ -1,0 +1,3 @@
+ARTÍCULO 4- Denegatoria de exenciones
+En caso de que la solicitud de exención no proceda, por no estar conforme con lo establecido en la normativa, no haberse cumplido con los requisitos exigidos o no contar con el aval del ente recomendador respectivo, la Dirección General de Hacienda denegará la solicitud. Contra esta denegatoria el interesado podrá interponer los recursos de revocatoria ante el director general de Hacienda y el de apelación en subsidio ante el Tribunal Fiscal Administrativo, en un plazo perentorio
+de tres días hábiles, contado a partir del día siguiente de la notificación de la denegatoria.

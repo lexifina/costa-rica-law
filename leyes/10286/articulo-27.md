@@ -1,0 +1,2 @@
+ARTÍCULO 27- Omisión en la presentación de informes
+Cuando el beneficiario mediato o inmediato no presente los informes periódicos o especiales requeridos por la Dirección General de Hacienda o el órgano administrativo en el que esta delegue estas funciones, dentro de los plazos preestablecidos, se le impondrá una sanción equivalente a dos salarios base, que será definido acorde con el artículo 68 de la Ley 4755, Código de Normas y Procedimientos Tributarios, de 3 de mayo de 1971.

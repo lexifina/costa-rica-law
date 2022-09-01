@@ -1,0 +1,3 @@
+ARTÍCULO 31- Procedimiento sancionatorio
+El procedimiento sancionatorio se rige por lo dispuesto en el presente capítulo y, a falta de norma expresa, por lo dispuesto en la Ley 4755, Código de Normas y Procedimientos Tributarios, de 3 de mayo de 1971. Cualquier plazo establecido para las actuaciones administrativas en las normas citadas tiene carácter ordenatorio.
+El Departamento de Fiscalización, o la dependencia que la Dirección General de Hacienda designe, emitirá a solicitud de esta dirección o de oficio un informe dirigido al director o la directora general de Hacienda, en el cual detallará las supuestas infracciones cometidas por los beneficiarios mediatos o inmediatos, aportando todos los medios probatorios que lo respaldan.

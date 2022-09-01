@@ -1,0 +1,3 @@
+ARTÍCULO 43- Transparencia de las exenciones
+La Dirección General de Hacienda tendrá la obligación de establecer un mecanismo para la denuncia ciudadana por incumplimiento del beneficio otorgado vía exenciones.
+Asimismo, establecerá una base de datos en el portal institucional de internet, que contenga todas las exenciones vigentes, con al menos la siguiente información: ley o norma que autoriza la exención, fecha de vigencia, cantidad de beneficiarios estimados, beneficiarios mediatos o inmediatos, impuesto o impuestos exonerados, monto dejado de percibir por esta exoneración, tipo de exoneración y plazo de vigencia.
