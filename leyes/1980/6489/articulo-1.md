@@ -1,4 +1,6 @@
+(Derogado)
 N° 6489
+(Esta Ley fue derogada por el artículo 54 inciso 127) de la Ley de Regímenes de exenciones del pago de tributos, su otorgamiento y control sobre uso y destino, N° 10286 del 18 de agosto del 2022)
 LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA,
 DECRETA:
 Artículo 1°-Se exonera de toda clase de impuestos y se autoriza la rifa del vehículo automóvil, modelo 1978, Mercedes Benz, tipo sedán, motor número 61691210027620, chasís número 12312310036859, con placas número Es-202388-78.
