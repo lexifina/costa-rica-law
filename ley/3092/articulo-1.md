@@ -1,3 +1,0 @@
-(Derogado)
-(Esta Ley fue derogada por el artículo 54 inciso 7) de la Ley de Regímenes de exenciones del pago de tributos, su otorgamiento y control sobre uso y destino, N° 10286 del 18 de agosto del 2022)
-Artículo 1º.- Condónanse todas las deudas que la Dirección General de Deportes, la Federación Nacional de Fútbol y demás organismos deportivos reconocidos y autorizados por aquélla tuvieren con las Municipalidades, excepción hecha de las retenciones que a la fecha de la emisión de esta ley existieren a favor de las Municipalidades de San José, depositadas por la Federación Nacional de Fútbol.
