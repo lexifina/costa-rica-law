@@ -1,7 +1,7 @@
-Artículo 34°
-Independientemente del monto del salario o ingreso que se anote en la planilla, la cotización mínima debe corresponder al ingreso mínimo de referencia del trabajador independiente afiliado individualmente definiéndose este como la Base Mínima Contributiva para todo trabajador, ya sea que se trate de asegurados obligatorios, de trabajadores independientes o de asegurados voluntarios que coticen para este Seguro. La Base Mínima Contributiva la establecerá anualmente la Junta Directiva, tomando en consideración las recomendaciones de la Dirección Actuarial y Económica.
+Artículo: 34.-Independientemente del monto del salario o ingreso que se anote en la planilla, la cotización mínima debe corresponder al ingreso mínimo de referencia del trabajador independiente afiliado individualmente definiéndose este como la Base Mínima Contributiva para todo trabajador, ya sea que se trate de trabajadores asalariados, trabajadores independientes o asegurados voluntarios que coticen para este Seguro. La Base Mínima Contributiva corresponderá a una proporción del Salario Mínimo Legal en Ocupación Genérica No Calificada, y será establecida periódicamente por la Junta Directiva, tomando en consideración las recomendaciones de la Dirección Actuarial y Económica.
+No obstante, cuando un patrono reporte salarios de sus trabajadores por debajo de la Base Mínima Contributiva, se acreditará una proporción de la cuota al Régimen de IVM, de conformidad con las disposiciones aprobadas por la Junta Directiva en esta materia.
 Las excepciones al pago de la cuota mínima son las siguientes:
 a. Cesantía o ingreso de nuevos trabajadores ocurridos en períodos intermedios del mes.
 b. Reportes de incapacidades o permisos sin goce de salario que abarcan más de quince días
 c. Trabajo simultáneo con varios patronos o con patrono y seguro independiente percibiendo salarios e ingresos inferiores con todos o algunos de ellos.
-(Así reformado en sesión N° 8932 del 19 de octubre de 2017)
+(Así reformado en sesión N° 9275 del 1° de setiembre de 2022)
