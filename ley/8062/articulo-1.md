@@ -1,4 +1,6 @@
+(Derogado)
 N° 8062
+(Esta Ley fue derogada por el artículo 54 inciso 137) de la Ley de Regímenes de exenciones del pago de tributos, su otorgamiento y control sobre uso y destino, N° 10286 del 18 de agosto del 2022)
 LA ASAMBLEA LEGISLATIVA DE LA REPUBLICA DE COSTA RICA,
 DECRETA:
 AUTORIZACION PARA CONDONAR INTERESES Y MULTAS MUNICIPALES, ADEUDADOS POR LOS ARRENDATARIOS DEL MERCADO MUNICIPAL DE CARTAGO

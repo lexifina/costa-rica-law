@@ -1,0 +1,4 @@
+ARTÍCULO 17- Finalización del proceso
+Una vez concluida la audiencia oral y privada, el funcionario o los funcionarios a cargo deberán rendir el informe respectivo, dentro del plazo de quince días hábiles, ante el director o la directora general de Hacienda, quien emite el acto final determinando la procedencia de la revocación, en cuyo caso ordenará la cancelación de los impuestos correspondientes junto con los intereses que se han generado, ordenando el inicio del procedimiento sancionatorio, en caso de que sea
+necesario. En caso de que la parte renuncie a su derecho de procedimiento administrativo, este plazo será de cinco días hábiles.
+La resolución final del procedimiento deberá ser dictada en un plazo máximo de diez días hábiles, contado a partir de la rendición del informe por parte del funcionario o los funcionarios a cargo. Los plazos establecidos para las actuaciones administrativas tienen carácter ordenatorio.

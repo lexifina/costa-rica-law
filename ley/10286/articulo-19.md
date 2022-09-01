@@ -1,0 +1,3 @@
+ARTÍCULO 19- Actos recurribles
+Podrán ser recurridos, mediante recurso de revoc·atoria, el acto de inicio de proceso de revocación, el acto que deniegue la comparecencia o cualquier prueba y la resolución final emitida por el director o la directora general de Hacienda. Contra la resolución final proceden los recursos de revocatoria con apelación en subsidio ante el Tribunal Fiscal Administrativo, los cuales deben ser interpuestos en los tres días siguientes a la notificación de la resolución a impugnar.
+La Administración tendrá un plazo de ocho días hábiles para emitir la resolución de los recursos. El plazo establecido para emitir esta resolución tiene carácter ordenatorio.

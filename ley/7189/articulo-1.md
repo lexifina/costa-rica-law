@@ -1,4 +1,6 @@
+(Derogado)
 N° 7189
+(Esta Ley fue derogada por el artículo 54 inciso 132) de la Ley de Regímenes de exenciones del pago de tributos, su otorgamiento y control sobre uso y destino, N° 10286 del 18 de agosto del 2022)
 LEY DE DONACION DE VEHICULOS A LOS INTEGRANTES
 (JUGADORES Y CUERPO TECNICO) DE LA SELECCION
 NACIONAL DE FUTBOL QUE REPRESENTO A

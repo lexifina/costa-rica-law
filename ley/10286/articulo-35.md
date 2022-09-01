@@ -1,0 +1,2 @@
+ARTÍCULO 35- Intimación de pago y certificado de adeudo
+La Dirección General de Hacienda, una vez firme la resolución sancionatoria, emitirá una intimación de pago al infractor y le otorgará un plazo de cinco días hábiles para el pago de la sanción. En caso de que el infractor no cancele el adeudo en el plazo indicado, el director general de Hacienda emitirá un certificado de adeudo, con carácter de título ejecutivo, que será presentado por el Departamento de Cobros Judiciales de la Dirección General de Hacienda, para continuar con el procedimiento de cobro en sede judicial.

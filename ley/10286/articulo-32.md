@@ -1,0 +1,2 @@
+ARTÍCULO 32- Potestad del director de Hacienda
+Corresponde al director o la directora general de Hacienda valorar el contenido del informe y ordenar, en caso de que proceda, el inicio del procedimiento mediante resolución fundada. La instrucción del procedimiento sancionatorio le corresponde a la dependencia que el director general de Hacienda designe, garantizando en todo momento el derecho a la legítima defensa de las partes y el respeto al debido proceso.

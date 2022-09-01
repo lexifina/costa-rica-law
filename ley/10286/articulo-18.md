@@ -1,0 +1,2 @@
+ARTÍCULO 18- Firmeza del acto
+Si la parte no recurre lo dispuesto por el director o la directora general de Hacienda, dentro del plazo legalmente establecido según lo dispuesto en el siguiente artículo, esta adquiere firmeza y la deuda tributaria resultará líquida y exigible. En caso de ser recurrida, esta se considera líquida y exigible una vez que se hayan resuelto los recursos respectivos estableciendo en firme la deuda y se le notifique a la parte recurrente.
