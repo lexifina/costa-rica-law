@@ -1,4 +1,6 @@
+(Derogado)
 N° 7910
+(Esta Ley fue derogada por el artículo 54 inciso 135) de la Ley de Regímenes de exenciones del pago de tributos, su otorgamiento y control sobre uso y destino, N° 10286 del 18 de agosto del 2022)
 AMNISTÍA TRIBUTARIA EN LA
 MUNICIPALIDAD DE ABANGARES
 ARTÍCULO ÚNICO.- Autorízase a la Municipalidad de Abangares para que conceda, a los sujetos pasivos, una amnistía del pago de intereses y multas sobre los impuestos y las tasas municipales no cancelados hasta el 31 de diciembre de 1998.

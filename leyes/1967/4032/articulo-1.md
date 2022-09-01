@@ -1,4 +1,6 @@
+(Derogado)
 N° 4032
+(Esta Ley fue derogada por el artículo 54 inciso 88) de la Ley de Regímenes de exenciones del pago de tributos, su otorgamiento y control sobre uso y destino, N° 10286 del 18 de agosto del 2022)
 LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA,
 DECRETA:
 Artículo 1°-Autorízase por una sola vez a la Catholic Relief Services, a vender libres de todo derecho de importación, impuestos de ventas, de consumo y de toda clase de impuestos, con el objeto de poder renovarlos a causa de su desgaste y deterioro, los cinco vehículos automotores con los cuales ha estado operando su Programa de Distribución de Alimentos, y cuyas marcas y números son los siguientes:

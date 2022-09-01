@@ -1,4 +1,6 @@
+(Derogado)
 N°7918
+(Esta Ley fue derogada por el artículo 54 inciso 136) de la Ley de Regímenes de exenciones del pago de tributos, su otorgamiento y control sobre uso y destino, N° 10286 del 18 de agosto del 2022)
 AUTORIZACIÓN A LA MUNICIPALIDAD DE BELÉN PARA EXONERAR,
 POR UN PLAZO DE TRES MESES, A LOS SUJETOS PASIVOS
 DEL PAGO DE INTERESES Y MULTAS SOBRE LOS IMPUESTOS,

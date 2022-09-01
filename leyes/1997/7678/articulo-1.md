@@ -1,4 +1,6 @@
+(Derogado)
 N° 7678
+(Esta Ley fue derogada por el artículo 54 inciso 134) de la Ley de Regímenes de exenciones del pago de tributos, su otorgamiento y control sobre uso y destino, N° 10286 del 18 de agosto del 2022)
 RECONOCIMIENTO POR LOS MÉRITOS DEPORTIVOS
 DE CLAUDIA POLL, FRANCISCO RIVAS
 Y MONTSERRAT HIDALGO

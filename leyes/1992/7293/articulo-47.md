@@ -1,1 +1,1 @@
-Artículo 47.- La emisión del acto administrativo declaratorio de una exención suspenderá el plazo de prescripción de la determinación y cobro de los tributos inicialmente dispensados y de los intereses y recargos concomitantes.
+Artículo 47.- (Esta Ley fue derogada por el artículo 54 inciso 133) de la Ley de Regímenes de exenciones del pago de tributos, su otorgamiento y control sobre uso y destino, N° 10286 del 18 de agosto del 2022)

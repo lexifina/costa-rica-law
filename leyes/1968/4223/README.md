@@ -1,6 +1,6 @@
 # Exoneración de impuestos a la Junta de Protección Social de Alajuela
 
-Ley N° 4223 del 1968-11-11. SINALEVI, ficha 2907: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=2907&param2=3080&param3=1>.
+Ley N° 4223 del 1968-11-11. SINALEVI, ficha 2907: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=2907&param2=132271&param3=1>.
 
 Publicada en La Gaceta N° 260 del 1968-11-14.
 
@@ -9,3 +9,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | Versión | En vigor desde | Hecha por | Fecha de la versión |
 | --- | --- | --- | --- |
 | 1 de 2 | 1968-11-14 | Ley 4223 | 1968-11-11 |
+| 2 de 2 | 2022-09-01 | Ley 10286 | 2022-08-18 |

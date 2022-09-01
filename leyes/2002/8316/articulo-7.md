@@ -1,13 +1,16 @@
-Artículo 7º—Personas exentas del pago del tributo. Estarán exentos del pago de este tributo, sin necesidad de pronunciamiento administrativo previo:
-a) Los agentes diplomáticos y consulares extranjeros acreditados ante el Gobierno de Costa Rica.
-b) Los extranjeros que, de acuerdo con los tratados o convenios internacionales o por reciprocidad con otras naciones, tengan derecho a tal exención.
-c) Los costarricenses que viajen con pasaporte diplomático o pasaporte de servicio.
-d) Los extranjeros a quienes la Dirección General de Migración y Extranjería les otorgue visa de indigentes.
-e) Los rechazados, deportados o expulsados de Costa Rica.
-f) Los extranjeros sentenciados en Costa Rica que sean beneficiarios de la Ley Nº 7569, Aprobación de la Convención Interamericana para el cumplimiento de condenas penales en el extranjero, de 1º de febrero de 1996, para el cumplimiento de condenas penales en el exterior.
-g) Los miembros de las tripulaciones aéreas, de conformidad con los convenios internacionales de explotación comercial, cuando existan cláusulas de reciprocidad.
-h) Las personas en calidad de pasajeros en tránsito, con un destino final que no sea Costa Rica y cuya permanencia en el país para tal fin no exceda de doce horas.
-i) A solicitud debidamente fundamentada por el Instituto Costarricense del Deporte y la Recreación (ICODER), el Comité Olímpico de Costa Rica, el Ministerio de Cultura, Juventud y Deportes o el Ministerio de Ciencia Tecnología y Telecomunicaciones(*), los miembros de las delegaciones que oficialmente representen al país en el exterior, en actividades deportivas, artísticas, culturales o científicas, según corresponda, siempre y cuando la actividad a la que concurran no sea lucrativa de carácter privado.
-j) A solicitud debidamente fundamentada por el Instituto Costarricense del Deporte y la Recreación (ICODER), el Comité Olímpico de Costa Rica, el Ministerio de Cultura, Juventud y Deportes o el Ministerio de Ciencia Tecnología y Telecomunicaciones(*), según corresponda, los miembros de las delegaciones extranjeras, procedentes de países en los cuales se otorgue reciprocidad del beneficio aquí definido, y quienes ingresen al país para participar en actividades deportivas, artísticas, culturales o científicas, siempre y cuando la actividad a la que concurran no sea lucrativa de carácter privado.
-(*)(Modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología”, N° 9046 del 25 de junio de 2012)
-(Así ampliado por la adición de los incisos i) y j) realizada por la Ley N° 8367 de 24 de julio de 2003, publicada en La Gaceta N° 166 de 29 de agosto de 2003.)
+Artículo 7- Personas exentas del pago del tributo
+a) Estarán exentos del pago de este tributo, sin necesidad de pronunciamiento administrativo previo:
+i) Los agentes diplomáticos y consulares extranjeros acreditados ante el Gobierno de Costa Rica.
+ii) Los extranjeros que, de acuerdo con los tratados o convenios internacionales o por reciprocidad con otras naciones, tengan derecho a tal exención.
+iii) Los costarricenses que viajen con pasaporte diplomático o pasaporte de servicio.
+iv) Los extranjeros a quienes la Dirección General de Migración y Extranjería les otorgue visa de indigentes.
+v) Los rechazados, deportados o expulsados de Costa Rica.
+vi) Los extranjeros sentenciados en Costa Rica, que sean beneficiarios de la Ley 7569, Aprobación de la Convención lnteramericana para el Cumplimiento de Condenas Penales en el Extranjero, de 1 de febrero de 1996, para el cumplimiento de condenas penales en el exterior.
+vii) Los miembros de las tripulaciones aéreas, de conformidad con los convenios internacionales de explotación comercial, cuando existan cláusulas de reciprocidad.
+viii) Las personas en calidad de pasajeros en tránsito, con un destino final que no sea Costa Rica y cuya permanencia en el país, para tal fin, no exceda de doce horas.
+b) Estarán exentos del pago de este tributo, requiriendo pronunciamiento previo
+del ente recomendador, las siguientes personas:
+i) Los miembros de las delegaciones que oficialmente representen al país en el exterior, en actividades deportivas, artísticas, culturales o científicas, según corresponda, siempre y cuando la actividad a la que concurran no sea lucrativa de carácter privado.
+ii) Los miembros de las delegaciones extranjeras, procedentes de países en los cuales se otorgue reciprocidad del beneficio aquí definido, y quienes ingresen al país para participar en actividades deportivas, artísticas, culturales o científicas, siempre y cuando la actividad a la que concurran no sea lucrativa de carácter privado.
+Para tales efectos, la recomendación deberá emitirse por el Instituto Costarricense del Deporte y la Recreación (lcoder), el Comité Olímpico de Costa Rica, el Ministerio de Cultura y Juventud o el Ministerio de Ciencia, Innovación, Tecnología y Telecomunicaciones (Micitt), según corresponda.
+(Así reformado por el artículo 46 de la Ley de Regímenes de exenciones del pago de tributos, su otrogamiento y control sobre uso y destino, N° 10286 del 18 de agosto del 2022)
