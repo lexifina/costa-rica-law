@@ -1,4 +1,0 @@
-Artículo 6º—De los registros. El Colegio de Periodistas, por medio de la Secretaría de la Junta Directiva, llevará un registro actualizado de medios de comunicación informativos, agencias de noticias, páginas electrónicas informativas, empresas de comunicación o relaciones públicas y otros que tengan relación con las ciencias de la comunicación colectiva en Costa Rica. Este registro debe contemplar:
-a) El nombre de los Directores, Subdirectores, Jefes de Redacción, Jefes de Información o Coordinadores de los medios de comunicación periodísticos.
-b) El nombre de los Directores, Jefes o encargados de las Oficinas o Empresas de relaciones públicas o comunicación.
-c) El nombre de los periodistas colegiados responsables y corresponsales de agencias noticiosas extranjeras establecidas en el país.

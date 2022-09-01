@@ -1,1 +1,0 @@
-Artículo 37.—Del trámite de la recomendación. Recibida la recomendación del Tribunal de Honor, la Junta Directiva contará con quince días hábiles para dictar el acto final. La recomendación del Tribunal de Honor será vinculante para la Junta Directiva.

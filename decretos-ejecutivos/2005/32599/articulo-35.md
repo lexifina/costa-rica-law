@@ -1,1 +1,0 @@
-Artículo 35.—De la intimación ante el tribunal. Una vez remitido el caso al Tribunal de Honor por la Junta Directiva, en atención al principio del debido proceso y demás derechos constitucionales, éste procederá a intimar a la parte denunciada.
