@@ -17,3 +17,4 @@ Procedimiento de solicitud de numeración, establecimiento de números especiale
 | 2 | 2010-02-26 | Resolución 131 (2010-02-26) |
 | 3 | 2010-09-02 | Resolución 412 (2010-09-02) |
 | 4 | 2013-08-01 | Resolución 239 (2013-08-01) |
+| 5 | 2022-09-01 | Resolución 222 (2022-09-01) |
