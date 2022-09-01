@@ -1,0 +1,1 @@
+Artículo 5.- Seguimiento: El Ministerio de Economía, Industria y Comercio, por medio de la Dirección de Mejora Regulatoria, dará seguimiento a los avances en la mejora de las trabas regulatorias conforme a la clasificación y asignación ya realizadas a los Ministerios e Instituciones Autónomas, la cual se hará por medio de sus Equipos de Aceleración.

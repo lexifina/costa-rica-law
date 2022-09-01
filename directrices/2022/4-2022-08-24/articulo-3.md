@@ -1,0 +1,1 @@
+Artículo 3.- Agenda de Planificación Regulatoria: Los Equipos de Aceleración liderados por el Oficial de Simplificación de Trámites, deberán remover las trabas regulatorias en un plazo máximo de 2 meses, 4 meses o 6 meses plazo, según corresponda, a partir de la firma de esta directriz.
