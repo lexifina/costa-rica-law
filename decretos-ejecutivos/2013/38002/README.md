@@ -19,3 +19,4 @@ Creación del Centro de Producción Artística y Cultural (CPAC)
 | 4 | 2019-10-31 | Decreto Ejecutivo 42036 (2019-10-31) |
 | 5 | 2020-11-05 | Decreto Ejecutivo 42759 (2020-11-05) |
 | 6 | 2021-06-15 | Decreto Ejecutivo 43169 (2021-06-15) |
+| 7 | 2022-09-02 | Decreto Ejecutivo 43679 (2022-09-02) |
