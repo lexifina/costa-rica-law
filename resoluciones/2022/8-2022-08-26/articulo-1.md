@@ -1,0 +1,30 @@
+DIRECCIÓN GENERAL DE SERVICIO CIVIL
+AVISO
+N° DG-AV-008-2022.-26 de agosto de 2022.
+(Corregido el párrafo anterior mediante Fe de Erratas y publicada en La Gaceta N° 212 del 7 de noviembre de 2022, página N° 2. Anteriormente se indicaba: “005-2021”)
+La DGSC comunica la emisión de las siguientes resoluciones:
+I. DG-RES-052-2022: Modifica la Resolución DG-038- 2021.
+II. DG-RES-053-2022: Declarar de confianza el puesto vacante número 400085, ubicado en la Dirección de Planificación Institucional dependencia del Viceministerio de Planificación Institucional y Coordinación Regional del Ministerio de Educación Pública.
+III. Acuerdo N° 003-2022: Delegar la firma del Director General de Servicio Civil en el funcionario David Campos Calderón, cédula de identidad 1-1261-0966, en su condición de Director del Área de Reclutamiento y Selección de Personal, para que en adelante firme con motivo de:
+a) Las resoluciones y documentos que se emitan en materia de reclutamiento y selección en puestos cubiertos por el Régimen Estatutario que están comprendidos tanto del Título I como del Título IV del Estatuto de Servicio Civil, específicamente lo dispuesto en los artículos 13 inciso b), 20, 21, 22, 23, 26, 27, 28 y 34 del Título I del Estatuto de Servicio Civil y 9, 11, 12, 15, 21 y 119 de su Reglamento y del artículo 215 del Título IV del Estatuto de Servicio Civil y 6 y 8 de su Reglamento. Se exceptúan los trámites que, en aplicación del inciso a) del artículo 20 del Estatuto de Servicio Civil, del inciso c) del artículo 9 y 11 de su Reglamento, que correspondan a puestos del Ministerio de Educación Pública.
+b) Declaratoria de los candidatos elegibles del Título I y IV.
+c) Resolución de los estudios de Artículo 11 del Reglamento del Estatuto de Servicio Civil del Título I y IV.
+IV. Acuerdo N° 004-2022: Delegar la firma del Director General de Servicio Civil en la funcionaria Irma Velásquez Yánez, cédula de identidad 8-0083-0228, en su condición de Directora del Área de Asesoría Jurídica, para que en adelante firme las resoluciones y trámites de las gestiones de despidos y reclamos de los servidores protegidos por el Régimen de Servicio Civil, así como las referidas a la aplicación del artículo 47 de la misma norma y su Reglamento.
+V. Acuerdo N° 005-2022: Delegar la firma del Director General de Servicio Civil en el funcionario Olman Luis Jiménez Corrales, portador de la cédula de identidad 1-0576-0346, en su condición de Director del Área de Carrera Docente, para que en adelante firme con motivo de:
+a) Las resoluciones y trámites de la gestión de recursos humanos que se generen en el Título I y Título II del Estatuto de Servicio Civil, correspondientes al Ministerio de Educación Pública. Se exceptúan los procesos de reclutamiento y selección del Título I.
+b) Modificación de los Manuales Descriptivos de Clases Docentes y de Especialidades Docentes, activando lo indicado en Artículo 3 de este acuerdo cuando el acto implique variaciones en los requisitos, adicionales o ajustes a los vigentes, contenidos en las especificaciones de las clases de puesto en operación.
+c) Declaratoria de las Personas Candidatas Elegibles o emisión de Nóminas de Personas Candidatas Calificadas a que se refiere el Título II del Estatuto de Servicio Civil.
+d) Resolución de los estudios de análisis ocupacional del Título I correspondientes a los puestos de Jefaturas y de la Oficina de Recursos Humanos del Ministerio de Educación Pública.
+e) Aval a los estudios y emisión de resoluciones del artículo 11 del Reglamento del Estatuto de Servicio Civil del Ministerio de Educación Pública.
+f) Aval a las propuestas de atinencias y modificaciones del rango de las especialidades del Título I y II, en lo referente a puestos del Ministerio de Educación Pública.
+g) El aval de los movimientos de personal docente por inopia y reclutamiento insuficiente conforme los lineamientos y normativa vigente aplicable.
+h) Los informes de las investigaciones y emitir las correspondientes resoluciones y cualquier otro acto que se relacione con estudios de vida y costumbres que se formulen en el Ministerio de Educación Pública, como parte del proceso de ingreso cubierto ya sea por el Título I o Titulo II del Estatuto de Servicio Civil.
+VI. Acuerdo N° 006-2022: Delegar la firma del Director General de Servicio Civil, en el funcionario Rómulo Castro Víquez, cédula de identidad 4-0109-0294, en su condición de Director del Área de Gestión de Recursos Humanos, para que en adelante firme con motivo de:
+a) Las resoluciones que se dicten con motivo de la aplicación del artículo 4 incisos f) y g) del Estatuto de Servicio Civil.
+b) Las resoluciones de los estudios de análisis ocupacional del Título I y Título IV. No obstante, en los casos de jefaturas de recursos humanos que se encuentren delegadas, se deberán aprobar solamente aquellos estudios correspondientes a las jefaturas y puestos de las oficinas de recursos humanos.
+c) Los dictámenes técnicos que se emitan para la creación o modificación de procedimientos propios de la Gestión de Recursos Humanos, con excepción de lo referente al Ministerio de Educación Pública en el Título I.
+VII. Acuerdo N° 007-2022: Delegar la firma del Director General de Servicio Civil, en la funcionaria María Adelia Leiva Mora, cédula de identidad N° 03-0280-0746, en su condición de Directora del Área de Organización del Trabajo y Compensaciones, para que en adelante firme todas las resoluciones, trámites, instrumentos y normativa, que se dicten con motivo de:
+a) La creación, eliminación o modificación, de las escalas salariales, sueldos bases y componentes e incentivos salariales del Régimen de Servicio Civil; y en general, de los aspectos de la Administración de las Compensaciones. Manuales Descriptivos de Clases, Manual Descriptivo de Especialidades y demás instrumentos clasificatorios del Título I y IV, excepto la creación, modificación o eliminación de requisitos.
+b) Regulación de las vías de Carrera Administrativa del Título I y IV.
+c) Las resoluciones salariales que deriven de la aplicación del marco normativo vigente al momento de emitirlas.
+Publíquese.
