@@ -1,2 +1,0 @@
-ARTÍCULO 8: En el caso del Ministerio de Cultura y Juventud la base de cálculo para el establecimiento de los límites corresponderá a la ejecución observada en el año 2019, en forma conjunta para dicho Ministerio y sus respectivos órganos desconcentrados. Asimismo, para esta dependencia ministerial los egresos ejecutados en relación a la celebración y conmemoración del Bicentenario de la Independencia de Costa Rica, no serán afectos a este Decreto.
-(Así adicionado por el artículo 2° del decreto ejecutivo N° 43144 del 29 de julio del 2021)

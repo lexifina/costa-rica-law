@@ -1,1 +1,0 @@
-ARTÍCULO 6.Se exceptúan, de todas las medidas anteriormente descritas, al Poder Judicial, Asamblea Legislativa y sus órganos auxiliares, el Poder Judicial y sus órganos, y el Tribunal Supremo de Elecciones.
