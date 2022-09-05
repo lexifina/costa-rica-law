@@ -1,0 +1,1 @@
+Artículo 71.-Del plazo de iniciación del procedimiento. El procedimiento disciplinario deberá iniciarse dentro del plazo perentorio de un mes contado a partir del momento en que el/ la jerarca tenga conocimiento pleno de los hechos que puedan conducir a sanciones administrativas.

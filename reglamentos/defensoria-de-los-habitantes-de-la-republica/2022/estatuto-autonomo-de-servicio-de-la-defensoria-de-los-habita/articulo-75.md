@@ -1,0 +1,1 @@
+Artículo 75.-De la prescripción de la potestad disciplinaria. La prescripción de la potestad disciplinaria se interrumpirá por el acto dictado por el Defensor (a) que acuerde el inicio del procedimiento administrativo respectivo o bien la apertura del órgano de investigación preliminar.

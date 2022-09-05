@@ -1,0 +1,1 @@
+Artículo 96.-Del Plazo. El plazo máximo para realizar el trabajo meritorio será de hasta por tres meses la primera vez, pudiendo prorrogarse por períodos iguales siempre y cuando las condiciones y necesidades institucionales lo permitan y se cuente con el visto bueno del director, directora o jefe de oficina.

@@ -1,0 +1,1 @@
+Artículo 84.-Del compromiso institucional con la Gestión Preventiva. Integrar, desarrollar y mantener un sistema de gestión preventiva de riesgos y accidentes laborales, que permita el mejoramiento continuo de las condiciones de seguridad y salud ocupacional, como una responsabilidad institucional, con involucramiento y participación de todos los niveles de la organización.

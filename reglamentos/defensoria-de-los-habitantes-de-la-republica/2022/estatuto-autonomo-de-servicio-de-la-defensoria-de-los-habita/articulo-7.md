@@ -1,0 +1,6 @@
+Artículo 7°-De la modalidad de nombramiento. La relación de servicio podrá establecerse mediante contrato por tiempo indeterminado, a plazo fijo u obra determinada.
+Se entenderá por:
+(a) Nombramiento por tiempo indeterminado aquel que tiene por objeto desarrollar las actividades propias, permanentes y todas aquellas indispensables para la adecuada prestación del servicio de la Defensoría de los Habitantes.
+(b) Nombramiento a plazo fijo u obra determinada aquel en el cual el trabajador sea nombrado para prestar sus servicios por un período u obra determinada, cuya iniciación y terminación se conocen previamente.
+Podrá nombrarse a un servidor (a) bajo esta modalidad, para sustituir a otro (a) con motivo de licencia, enfermedad o riesgo profesional o para la realización de trabajos que, aunque se consideren del objeto propio de las actividades normales de la Defensoría de los Habitantes, son extraordinarios desde el punto de vista de la urgencia o especificidad con que tienen que ser realizados.
+Esta modalidad de contratación, de acuerdo con el Código de Trabajo, podrá darse igualmente en aquellos casos no repetitivos en que su contratación resulte procedente conforme a la naturaleza de los servicios u obra que se vaya a realizar. En atención de la continuidad y satisfacción del servicio público.

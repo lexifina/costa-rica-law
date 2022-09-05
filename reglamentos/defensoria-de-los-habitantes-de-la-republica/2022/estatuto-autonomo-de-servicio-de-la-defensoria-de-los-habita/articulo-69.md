@@ -1,0 +1,1 @@
+Artículo 69.-De la comunicación de la sanción. No será eficaz la sanción impuesta hasta tanto haya sido válidamente comunicada a el servidor (a). Los recursos administrativos no impedirán su ejecución, salvo en el caso de despido laboral.

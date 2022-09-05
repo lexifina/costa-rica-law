@@ -1,0 +1,1 @@
+Artículo 36.-De la modalidad de pago. La Defensoría de los Habitantes pagará el salario de su personal de manera mensual con adelanto quincenal, de acuerdo con lo establecido en el calendario de pagos fijado por Tesorería Nacional del Ministerio de Hacienda.

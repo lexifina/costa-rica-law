@@ -1,0 +1,1 @@
+Artículo 42.-Del servidor (a) incapacitad (a). El servidor (a) que fuere incapacitado (a) para trabajar, por enfermedad o riesgo profesional, gozará de un subsidio equivalente al monto de su salario no cubierto, por la Caja Costarricense de Seguro Social o por el Instituto Nacional de Seguros.

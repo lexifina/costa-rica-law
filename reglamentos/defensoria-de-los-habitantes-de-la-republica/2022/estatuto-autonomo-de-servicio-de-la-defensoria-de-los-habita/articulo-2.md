@@ -1,0 +1,1 @@
+Artículo 2°-Del jerarca. Para los efectos de este Estatuto se entenderá que la persona jerarca es el Defensor (a) de los Habitantes; quien ejerce la representación judicial y extrajudicial de la institución.

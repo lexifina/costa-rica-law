@@ -1,0 +1,3 @@
+CAPÍTULO XI
+De los movimientos de personal
+Artículo 49.-De los movimientos de personal. El Departamento de Recursos Humanos velará por que todo movimiento de personal cumpla con los requisitos que exige el presente Estatuto, Manual Descriptivo de Puestos y normativa interna que lo regula. Previo a ser ejecutado, toda resolución que origine un movimiento deberá ser comunicada a la persona servidora, la cual contará con tres días hábiles para presentar sus objeciones en forma razonada, por medio de recurso de reconsideración ante el Defensor (a) de los Habitantes. El Defensor(a) comunicará al Departamento de Recursos Humanos realizar el trámite correspondiente y deberá quedar constancia de ello en el expediente personal de la persona funcionaria.
