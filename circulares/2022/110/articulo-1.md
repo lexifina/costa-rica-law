@@ -1,4 +1,6 @@
+(Suspendida)
 CIRCULAR Nº 110-2022
+(Esta norma fue suspendida mediante circular N° 171-2022 del 5 de setiembre de 2022)
 ASUNTO: Procedimiento, así como las obligaciones que deben de cumplir los despachos y oficinas judiciales al momento de incorporar al personal meritorio.
 A TODOS LOS JEFES DE LAS OFICINAS
 DEL PODER JUDICIAL

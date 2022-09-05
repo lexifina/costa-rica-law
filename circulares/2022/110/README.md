@@ -13,3 +13,4 @@ Procedimiento, así como las obligaciones que deben de cumplir los despachos y o
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-06-17 | la propia norma |
+| 2 | 2022-09-05 | Circular 171 (2022-09-05) |
