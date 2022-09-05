@@ -14,3 +14,4 @@ Reglamento al Capítulo I de la Ley N° 7200 "Ley que Autoriza la Generación El
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-06-05 | la propia norma |
+| 2 | 2022-09-05 | Decreto Ejecutivo 43700 (2022-09-05) |
