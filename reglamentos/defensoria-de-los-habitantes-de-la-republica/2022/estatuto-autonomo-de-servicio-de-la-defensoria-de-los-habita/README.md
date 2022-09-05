@@ -14,3 +14,4 @@ Estatuto autónomo de servicio de la Defensoría de los Habitantes
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-09-05 | la propia norma |
+| 2 | 2022-09-05 | Reglamento 0 (2022-09-05) |
