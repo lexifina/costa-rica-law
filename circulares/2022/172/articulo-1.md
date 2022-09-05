@@ -1,0 +1,6 @@
+CIRCULAR Nº 172-2022
+ASUNTO: Reiteración de la circular la circular N° 81-09, sobre la utilización de vestimenta alusiva a las Fiestas Patrias.
+A TODOS LOS DESPACHOS JUDICIALES DEL PAÍS
+SE LES HACE SABER QUE:
+El Consejo Superior del Poder Judicial en sesión Nº 75-2022 celebrada el 1 de setiembre de 2022, artículo LIX dispuso reiterar la circular N°81-09, sobre la utilización de vestimenta alusiva a las Fiestas Patrias para que en la celebración del 25 de julio, del 15 de septiembre y del 12 de octubre de cada año, las servidoras y los servidores de los circuitos judiciales del país, pueda utilizar vestimenta alusiva a estas Fiestas Patrias, como trajes típicos con los colores patrios, pantalones tipo "army", pañuelos, sombreros, faldas y blusas típicas, entre otros, si así lo desean; en el entendido que deben guardar el decoro en la forma de vestir y no utilizar prendas tipo jeans. De conformidad con la circular N° 67-09 emitida por la Secretaría de la Corte el 22 de junio de 2009, se le comunica que en virtud del principio de gratuidad que rige esta materia, la publicación está exenta de todo pago de derechos. Publíquese una sola vez en el Boletín Judicial.
+San José, 5 de setiembre de 2022.
