@@ -1,1 +1,0 @@
-Artículo 30. Solicitud de colaboración: El Centro de Gestión de Automóviles podrá solicitar colaboración al Departamento de Proveeduría para realizar los procedimientos sancionatorios, de resolución contractual y ejecución de garantía de cumplimiento.
