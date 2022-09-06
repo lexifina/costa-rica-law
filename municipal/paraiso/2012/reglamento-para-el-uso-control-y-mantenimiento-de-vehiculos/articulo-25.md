@@ -1,1 +1,0 @@
-Artículo 25.—Prohibición del uso de vehículos oficiales en actividades particulares. No se podrán utilizar vehículos de la Municipalidad para actividades que no sean propias de la institución, además queda prohibida la utilización de los mismos en actividades político electorales.

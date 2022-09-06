@@ -1,1 +1,0 @@
-Artículo 14.—De las tarjetas o registros de control. Todo vehículo municipal contará con dos tarjetas o registros: una denominada “Control de Kilometraje y Combustible”, y otra denominada “control de mantenimiento”.

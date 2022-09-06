@@ -1,3 +1,0 @@
-Artículo 10.—Solicitudes de uso. Las solicitudes para utilizar los vehículos de uso administrativo deberán presentarse ante el Encargado de Servicios Generales o bien ante quien este asignado el vehículo. Para lo anterior, se utilizará la boleta denominada
-Solicitud y Autorización de Uso de Vehículos, la cual deberá ser firmada por el funcionario que utilizará el vehículo.
-Dicha boleta contendrá como mínimo, la siguiente información: nombre del solicitante, fecha de la solicitud, marca y número de placa del vehículo, unidad a la que está asignado, lugar de destino, motivo del viaje, número y nombre de los acompañantes, tiempo estimado de duración, kilometraje de salida y de regreso, hora de salida y de regreso.
