@@ -1,1 +1,0 @@
-Artículo 15.—Las dimensiones máximas de un puesto de venta estacionario será de noventa centímetros de ancho; ciento cincuenta centímetros de largo y doscientos centímetros de alto. El área que ocupa el puesto no podrá ampliarse de ninguna forma; ni siquiera con toldos plásticos o cualquier otro objeto que tienda a la protección del mismo contra la lluvia o la luz solar.

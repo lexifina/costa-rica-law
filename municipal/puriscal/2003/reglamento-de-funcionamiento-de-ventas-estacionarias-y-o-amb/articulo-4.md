@@ -1,1 +1,0 @@
-Artículo 4º—Las Licencias deberán ser solicitadas por escrito ante la Oficina de Rentas de la Municipalidad, adjuntando los requisitos detallados en el artículo 5º. La resolución a las solicitudes planteadas deberá ser razonada, extendiendo copia al Ministerio de Trabajo y Seguridad Social, dentro de los treinta días siguientes.

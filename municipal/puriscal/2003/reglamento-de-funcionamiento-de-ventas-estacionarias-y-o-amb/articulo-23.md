@@ -1,1 +1,0 @@
-Artículo 23.—La resolución de la Oficina Administrativa que deniega Licencias, tendrá los recursos de Revocatoria y Apelación ante el Alcalde Municipal, de conformidad con lo establecido en el artículo162 del Código Municipal. Lo que en definitiva resuelva el Alcalde, dará por agotada la vía administrativa.
