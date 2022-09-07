@@ -1,1 +1,1 @@
-Artículo 54.-De los pozos artesanales. En el caso de los pozos excavados manualmente (artesanales), cuando el uso del agua sea doméstico según lo dispuesto en el artículo 37 de la Ley de Aguas Nº 276, el propietario deberá inscribirlo en el Registro Nacional de Concesiones de Aguas, que al efecto administra la Dirección de Agua, llenando el formulario respectivo. De dársele otros usos diferentes al doméstico deberá solicitar la respectiva concesión.
+Artículo 54.-De los pozos artesanales. (Derogado por el artículo 1° del decreto ejecutivo N° 43712 del 7 de setiembre de 2022)
