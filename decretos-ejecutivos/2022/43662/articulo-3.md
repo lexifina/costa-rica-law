@@ -1,0 +1,1 @@
+Artículo 3º-Dejar sin efecto el Decreto Ejecutivo N° 20661 -J, publicado en el Diario Oficial La Gaceta N° 171 del 10 de setiembre de 1991, mediante el cual se declaró de utilidad pública para los intereses del Estado a la Asociación Pro Hospital de Pérez Zeledón, cédula de persona jurídica número 3-002-110266.

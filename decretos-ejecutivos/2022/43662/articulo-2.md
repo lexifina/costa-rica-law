@@ -1,0 +1,1 @@
+Artículo 2º-Dejar sin efecto el Decreto Ejecutivo N° 11622-G de fecha 16 de junio de 1980, publicado en el Diario Oficial La Gaceta N° 130 del 09 de julio de 1980, mediante el cual se declaró de utilidad pública para los intereses del Estado a la Asociación de Seguridad y Embellecimiento de Carreteras Nacionales, cédula de persona jurídica número 3-002-087733.
