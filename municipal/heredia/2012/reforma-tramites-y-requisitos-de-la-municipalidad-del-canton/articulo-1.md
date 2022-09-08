@@ -424,54 +424,5 @@ o Firma del denunciante
 . Serán No admisibles las quejas, reclamos o denuncias donde no exista un asunto pendiente de resolución administrativa respecto del mismo objeto de la queja, reclamo o denuncia, excepto por cuanto el plazo para dar respuesta del área que tramita y éste finalice sin haber obtenido respuesta alguna. Si durante la tramitación el usuario o cliente interpone algún recurso administrativo o demanda judicial referente a la misma queja, reclamo, o denuncia, se suspenderá la tramitación.
 . Si el denunciante no es el dueño del inmueble, trámite o servicios, y requiere solucionar una situación que implique aspectos legales, debe presentar una carta del dueño del inmueble, patente o servicio; donde lo autorice para realizar el trámite respectivo, exceptuando cuando se trate de altos consumos, omisiones o mala atención de los servicios municipales.
 TESORERÍA
-Entrega de cheque por devolución
-. Presentarse en forma personal con el original de cédula de identidad vigente para efectos de verificación.
-. En caso de que por causas de fuerza mayor no pueda presentarse personalmente a retirar la devolución, deberá autorizar por escrito, aportando copia de quien autoriza y del autorizado.
-. Original de los recibos cancelados que está solicitando la devolución del dinero.
-. Lunes 7:30 a. m a 3:30 p. m y viernes de 1:00 a. m a 3:30 p. m
-Trámite para el pago de partidas
-. Cumplir con lo especificado en el Reglamento de Partidas
-. Estar al día con liquidaciones ante la Auditoría Interna Municipal.
-. Deben presentar Presupuesto aprobado por DINADECO
-Asociaciones de desarrollo integral
-. Fotocopia de la personería jurídica vigente.
-. Fotocopia de la cédula de identidad del presidente. Vigente.
-. Carta solicitando la partida.
-. Certificación bancaria de la cuenta cliente en donde se va a depositar dicha partida.
-Juntas de educación y juntas administrativas
-. Fotocopia de personería jurídica, vigente.
-. Fotocopia de cédula de identidad del presidente.
-. Carta solicitando la partida.
-. Certificación bancaria de la cuenta cliente en donde se va a depositar dicha partida.
-Entrega de letras de cambio (tiempo de entrega inmediata)
-. Presentación de cédula de identidad, para verificación o personería jurídica.
-. Firmar de recibido conforme.
-Entrega de cheques a proveedores
-(tiempo de entrega inmediata)
-. Entregar orden de compra original y factura original.
-. Entregar recibo original de cancelación de la factura.
-Entrega de copias de recibos (tiempo de entrega tres días)
-. Deben aportar fecha exacta del pago.
-. Número de recibo.
-. Nombre de la persona física o jurídica a nombre de la cual se emitió el recibo.
-. Número telefónico para informar cuando esta la copia del recibo lista para que sea retirada en Tesorería.
-Pago de partidas
-. Solamente se entregara la respectiva partida al presidente de la Asociación o Junta en casos de fuerza mayor la misma podrá entregarse al vicepresidente previa nota de autorización, por parte del presidente de la misma debidamente autenticada.
-. Presentarse cédula de identidad vigente para su verificación.
-. Constancia de contenidos presupuestarios de las partidas específicas.
-. Constancia de contenido presupuestario de las partidas específicas.
-. Solicitud por escrito del interesado.
-Depósito de garantías
-. Acuerdo Municipal en caso de obras faltantes de Urbanización.
-. Nota del proveedor, en caso de Garantía de Participación y Cumplimiento, solicitando la recepción de la misma.
-. Nota del Jefe de Rentas y Cobranzas, en caso de Garantía de Espectáculos Públicos, solicitando la recepción de la misma.
-. Garantía bancaria certificada o en efectivo o su equivalente.
-Retiro de garantía
-. Nota original del depósito realizado en la Tesorería Municipal.
-. Cédula de identidad vigente
-. Acuerdo del Concejo y nota del Director de Operaciones en caso de obras.
-. En caso de obras por contrato y compras nota del visto bueno del proveedor, recibiendo conforme de la obra o la mercadería, en donde se autorice la devolución de la garantía.
-. En caso de Espectáculos Públicos nota del visto bueno del Jefe de Rentas y Cobranzas, en donde se autorice la devolución de la garantía.
-. En caso de personal jurídica traer una autorización para retirar la garantía.
-. Copia de la personería jurídica y cédula jurídica.
-Heredia, 4 de mayo del 2012.-
+(Derogado el trámite de tesorería anterior mediante sesión N° 200 del 8 de setiembre de 2022, “Tramites del departamento de tesorería”)
+Heredia, 4 de mayo del 2012.
