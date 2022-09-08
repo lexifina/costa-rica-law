@@ -1,0 +1,1 @@
+Artículo 24.-Vigencia. Éste reglamento tendrá vigencia a partir de su publicación en el Diario Oficial La Gaceta. Se acuerda; Visto y analizado el citado reglamento este Concejo Municipal por unanimidad de votos dispone Aprobarlo, y a la vez se solicita realizar su debida publicación en el Diario Oficial La Gaceta.

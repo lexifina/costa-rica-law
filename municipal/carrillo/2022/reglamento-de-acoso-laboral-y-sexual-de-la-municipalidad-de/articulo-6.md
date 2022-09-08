@@ -1,0 +1,1 @@
+Artículo 6º-De la Instalación de los Miembros. La Comisión en su primera sesión ordinaria después de realizado su nombramiento, deberá constituir los siguientes puestos: a- Coordinado, b- Subcoordinador, e- Secretado, d- Subsecretario Vocal.

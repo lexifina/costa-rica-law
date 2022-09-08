@@ -1,0 +1,1 @@
+Artículo 18.-Carácter Privado. La audiencia será oral y privada. Para garantizar la confidencialidad e imparcialidad del proceso y de la audiencia sólo podrán comparecer las partes y sus representantes,

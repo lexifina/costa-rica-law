@@ -1,0 +1,1 @@
+Artículo 21.-No asistencia del denunciado. En caso que la persona denunciada no acuda a la Audiencia sin justa causa; la audiencia se llevará a cabo únicamente con la presencia de la parte denunciante,

@@ -1,0 +1,1 @@
+Artículo 13.-De la abstención y recusación. Cuando de conformidad con lo dispuesto en la Ley General de la Administración Pública, un integrante del Órgano Instructor se inhiba ósea recusado en un caso determinado, se sustituirá por otro miembro.

@@ -1,0 +1,2 @@
+Artículo 12.-Admisibilidad de la Denuncia. Recibida la denuncia por parte de la Comisión, el coordinador convocará a una sesión extraordinaria para celebrase en los siguientes tres días para analizar su admisibilidad.
+En caso que la denuncia sea admisible, en la misma sesión, la Comisión nombrará entre sus miembros a un órgano instructor que estará conforma o de entre uno a tres miembros y, en caso de estar conformada por más de un miembro, definirá cual miembro presidirá el órgano instructor.

@@ -1,0 +1,1 @@
+Artículo 22.-Informe del Órgano Director: Concluida la audiencia y en un plazo o máximo de quince días hábiles el Órgano emitirá un informe final debidamente fundado a la Comisión de Acoso Laboral y/o Sexual quienes después de deliberar en sesión resolverán el envío al Máximo Jerarca de la recomendación de la apertura o no del Proceso Ordinario Disciplinario.
