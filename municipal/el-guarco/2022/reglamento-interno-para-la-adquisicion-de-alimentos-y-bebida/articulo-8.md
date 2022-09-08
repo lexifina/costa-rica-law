@@ -1,0 +1,1 @@
+Artículo 8º-Los procedimientos para la adquisición de alimentos y bebidas deben ser congruentes con lo establecido en la Ley y el Reglamento de Contratación Administrativa y en el Reglamento del Fondo de Caja Chica; por lo que se deberá utilizar el mecanismo que corresponda de conformidad con lo establecido en la normativa citada.
