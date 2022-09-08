@@ -15,3 +15,4 @@ Crea Comisión de Enlace Salud, Industria y Comercio (COESAINCO)
 | --- | --- | --- |
 | 1 | 2015-04-16 | la propia norma |
 | 2 | 2015-10-05 | Decreto Ejecutivo 39343 (2015-10-05) |
+| 3 | 2022-09-08 | Decreto Ejecutivo 43768 (2022-09-08) |
