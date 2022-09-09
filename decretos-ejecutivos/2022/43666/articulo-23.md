@@ -1,0 +1,2 @@
+Artículo 23.- De la impugnación..
+Contra las actuaciones administrativas cabrán los recursos al efecto establecidos en la Ley General de la Administración Pública y estos se resolverán conforme los plazos dispuestos en dicha Ley. Los recursos deberán ser presentados en el sistema SISIT y serán resueltos por la Institución que emitió el acto recurrido. La interposición de los recursos contra los actos administrativos emitidos sea por el Ministerio de Salud, o bien por la DGIT, suspenderán el plazo para resolver la gestión presentada por el interesado.

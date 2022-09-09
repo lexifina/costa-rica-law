@@ -1,0 +1,2 @@
+TRANSITORIO ll
+El Instituto Costarricense del Deporte (ICODER), realizará las coordinaciones necesarias a fin de contar con la reglamentación pe1tinente para clasificar los eventos deportivos como de Proyección Nacional o Proyección Internacional, junto con todo el procedimiento para emitir la autorización para la realización de eventos deportivos y recreativos, ello dentro del plazo de un mes contados a partir de la promulgación del presente Decreto Ejecutivo.

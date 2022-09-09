@@ -1,0 +1,2 @@
+Artículo 24.- Derogatorias.
+A partir de la entrada en vigencia del presente Reglamento, se derogan los artículos 20 y 21 del Decreto Ejecutivo No. 40864-MOPT del 5 de diciembre de 2017 y sus reformas, denominado "Reglamento para el cierre y utilización de las vías públicas terrestres". Asimismo, no aplicarán aquellas disposiciones contenidas en el Reglamento supra indicado que se opongan a las regulaciones establecidas en el presente cuerpo normativo.

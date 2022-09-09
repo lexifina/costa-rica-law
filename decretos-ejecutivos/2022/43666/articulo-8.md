@@ -1,0 +1,22 @@
+Título III
+De la Autorización Sanitaria para eventos deportivos en vías públicas nacionales y/o de recorrido mixto y los permisos para el cierre parcial o total y/o utilización de tales vías.
+Artículo 8.- Requisitos del Ministerio de Salud para oorgar la Autorización Sanitaria para eventos deportivos en vías públicas.
+El interesado en realizer en evento deportivo en vías públicas, deben presenter los siguientes requisitos:
+a) Formulario de solicitud de autorización sanitaria para eventos deportivos en vías públicas debidamente lleno, según Anexo 1 del presente reglamento.
+b) Declaración Jurada, según Anexo 2 del presente reglamento.
+c) Escaneo de la Cédula de identidad, o en el caso de personas extranjeras del Documento de Identidad Migratoria para personas extranjeras DIMEX (libre condición), del solicitante o su representante legal. En el caso de persona solicitante de refugio o apátrida, se puede admitir como documento válido para el trámite; en el caso de solicitantes de refugio, el "carné provisional de permiso laboral" y en el caso de persona apátrida, el "carné provisional permiso laboral categoría especial", ambos emitidos por la Dirección General de Migración y Extranjería, dichos documentos deben encontrarse vigentes. En caso de persona jurídica debe aportar certificación registra! o notarial de la personería jurídica vigente con no más de un mes de emitida. En el caso de que el documento sea firmado digitalmente no se requiere este requisito.
+d) Croquis del evento según las especificaciones que se detallan en el artículo siguiente.
+e) Seguro de riesgos del trabajo, para todo el personal que labore en el evento. En los casos donde exista subcontratos, cada patrono (el subcontratista) debe tener su póliza de RT para su personal.
+f) Seguro de riesgos de responsabilidad civil o seguro de riesgo colectivo para daños a terceros para el evento a desarrollar.
+g) Plan de operaciones del evento debidamente firmado, el cual debe contener la descripción detallada del evento, el cronograma de actividades y especificar el horario, la fecha de inicio y finalización del evento.
+h) Plan de atención de emergencias del evento.
+i) Cuando se requiera del uso de cabañas sanitarias, copia del contrato con la empresa que brindará el servicio con indicación del número del permiso sanitario de funcionamiento y la copia de este, la cantidad de cabañas, las cuales deben cumplir con las especificaciones de la Ley No. 7600 y el plan de limpieza y mantenimiento de estas, que garantice la accesibilidad al público a instalaciones sanitarias (acorde a la cantidad de personas que asistirán al evento).
+j) Programa de Manejo Integral de Residuos, confom1e lo establecen los artículos 32 de la Ley No. 8839 del 24 de junio del 201 O "Ley para la Gestión Integral de Residuos" y 23 y 24 del Decreto Ejecutivo No. 37567-S-MJNAET-H del 2 de noviembre del 2012 "Reglamento General a la Ley para la Gestión Integral de Residuos".
+k) Cuando el evento se desarrolle en sitios donde no se cuente con suministro de agua potable para consumo humano, plan para garantizar el abastecimiento de agua durante la duración del evento.
+l) Plan operativo de atención prehospitalaria de la empresa que prestará sus servicios en el evento.
+Adicionalmente, y de conformidad con la regulación específica vigente, el solicitante también debe cumplir con las siguientes condiciones cuya verificación se debe realizar por parte del funcionario de la DARS, utilizando las bases de datos en línea específicas para cada propósito:
+m) Estar al día en el pago de las multas por infracción a la Ley No. 9028 del 22 de marzo del 2012 "Ley general de control del tabaco y sus efectos nocivos en la salud".
+n) Estar inscrito como patrono o trabajador independiente, según corresponda, y al día en el pago de las obligaciones según los artículos 74 y 74 bis de Ju ley No. 17 del 22 de octubre de 1943 "Ley Constitutiva de la Caja Costarricense de Seguro Social CCSS".
+o) Estar al día con las obligaciones con el FODESAF de conformidad con lo dispuesto en el artículo 22 de la Ley No. 5662 del 23 de diciembre de 1974 "Ley de Desarrollo Social y Asignaciones F amillares".
+p) Estar al día con sus obligaciones tributarias conforme al art. 18 bis de la Ley No. 4755 del 3 de mayo de 1971 "Código de Normas y Procedimientos Tributarios".
+q) Estar al día en el pago de las multas por omisión en el cumplimiento de las órdenes sanitarias o medidas especiales o generales dictadas por las autoridades de salud, según la Ley No. 5395 "Ley general de Salud".
