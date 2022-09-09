@@ -1,0 +1,2 @@
+Artículo 12º - Expedientes prescritos:
+Si un expediente es remitido para su cobro, por parte de la oficina de origen en condición de prescrito, el Departamento de Cobro Judicial podrá devolver el caso a la oficina de origen sin trámite alguno, para que esta envíe el expediente con la recomendación de incobrabilidad correspondiente, cumpliendo con los requisitos del artículo 10 de la presente resolución y de conformidad con la Directriz de Incobrabilidad DGH-DAE-004-2018.

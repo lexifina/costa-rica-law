@@ -1,0 +1,2 @@
+Artículo 2º- Ámbito de Aplicación
+La presente resolución deberá ser aplicada por las Administraciones Tributarias, Ministerios u otros entes adscritos al Poder Central que remitan expedientes al Departamento de Cobro Judicial de la División de Adeudos Estatales, así como por esta dependencia, para la recuperación de los impuestos, tasas, contribuciones, derechos fiscales, rentas por arrendamiento de bienes del Gobierno no sujetos a leyes especiales, y de toda clase de créditos a favor del Gobierno.

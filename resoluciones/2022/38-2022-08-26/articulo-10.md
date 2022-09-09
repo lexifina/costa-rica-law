@@ -1,0 +1,2 @@
+Artículo 10º - Incumplimiento de requisitos:
+El Departamento de Cobro Judicial, gestionará ante la oficina de origen que se subsanen los incumplimientos, si transcurrido un plazo de diez días la oficina de origen no atiende lo requerido, el expediente será devuelto para que subsanen lo que corresponda de conformidad con la circular número DAE-CJ-C002-2021 denominada "Requerimiento de información a las oficinas de origen para subsanar defectos en los expedientes ya ingresados al Departamento de Cobro Judicial".

@@ -1,0 +1,1 @@
+Artículo 16°- Disposiciones Transitorias en relación con el certificado de adeudo: Mientras las oficinas de origen desarrollan sus sistemas de información los certificados de adeudo seguirán recibiéndose en los formatos que actualmente son recibidos hasta por un plazo de 24 meses.
