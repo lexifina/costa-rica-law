@@ -1,0 +1,3 @@
+CAPÍTULO II
+Del Régimen de Disponibilidad
+Artículo 7º-Definición y procedencia. Consiste en la condición especial que reviste un cargo de acuerdo a las tareas asignadas en el manual de puestos, que constriñe a quien lo ocupe, como un deber adicional propio de su relación de servicio, a estar a disposición de la Municipalidad cuando sea requerido formalmente en cualquier día inhábil u horario, con la finalidad de atender eventos o actividades que se desarrollen en cualquier momento que no hayan sido programados o sean de carácter imprevisible, para lo cual se reconocerá al servidor que se encuentre en esa particular y excepcional condición, un porcentaje adicional fijo y consecutivo sobre su salario base como compensación económica.

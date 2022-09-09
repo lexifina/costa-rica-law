@@ -1,0 +1,1 @@
+Artículo 5º-Suspensión del contrato de dedicación exclusiva. El plazo del contrato de dedicación exclusiva se suspenderá automáticamente por permiso otorgado sin goce salarial por la Alcaldía, volviendo a computarse el plazo a partir de la fecha en que se reanuden las labores.

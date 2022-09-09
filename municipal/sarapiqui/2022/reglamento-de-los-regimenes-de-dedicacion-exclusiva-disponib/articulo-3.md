@@ -1,0 +1,1 @@
+Artículo 3º-Requisitos para acogerse al régimen de dedicación exclusiva y compensación económica. Los requisitos para optar por un contrato de dedicación exclusiva son los enunciados en el artículo 31 de la Ley de Salarios de la Administración Pública, en tanto la compensación aplicable a la dedicación exclusiva es la regulada en el artículo 35 de esa misma ley.
