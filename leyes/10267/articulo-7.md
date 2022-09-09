@@ -1,0 +1,1 @@
+ARTÍCULO 7- Retiro de propaganda como medida cautelar. La Oficina de Control de Propaganda, en estricto cumplimiento del debido proceso, podrá disponer como medida cautelar, dentro del procedimiento administrativo correspondiente, el retiro de la propaganda de manera inmediata
