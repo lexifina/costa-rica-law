@@ -1,0 +1,13 @@
+SERVICIO NACIONAL DE ADUANAS
+Resolución de Alcance General.-Resolución RES-DGA-223-2022.
+Dirección General de Aduanas.-San José, a las quince horas con diez minutos del día cinco de julio de dos mil veintidós.
+Conoce esta Dirección General el oficio N° ANAQ-009- 04-2022 del 20 de abril de 2022, suscrito por la Licda. Xiomara Jiménez Soto, Coordinadora de la Autoridad Nacional para la Prohibición de las Armas Químicas, del Ministerio de Salud mediante el cual solicita la eliminación de la Nota Técnica 0052, a los incisos arancelarios 2922.15.00.00.00 y 2922.19.40.00.00 para el Régimen de Tránsito.
+Considerando:
+1.-Que de conformidad con los artículos 11 de la Ley General de Aduanas y 7 de su Reglamento, sus reformas y modificaciones vigentes, la Dirección General de Aduanas es el órgano superior jerárquico nacional en materia aduanera y como parte de sus funciones le compete la coordinación de acciones con los Ministerios, órganos y demás entes relacionados con el proceso aduanero, con el fin de armonizar las políticas aduaneras.
+2.-Que mediante oficio ANAQ-009-04-2022 del 20 de abril de 2022, la Licda. Xiomara Jiménez Soto, Coordinadora de la Autoridad Nacional para la Prohibición de las Armas Químicas, del Ministerio de Salud, con el fin de asegurar el control sobre la aplicación de la Nota Técnica 0052, solicita la eliminación de dicha nota técnica en los incisos arancelarios 2922.15.00.00.00 y 2922.19.40.00.00 para el Régimen de Tránsito, en razón de que solamente aplica para los regímenes de Importación y Exportación.
+3.-Que la Nota Técnica 0052 es un requisito no arancelario que se refiere a "Autorización importación o exportación de la Autoridad Nacional sobre Armas Químicas, otorgada por la Secretaría Técnica de la Autoridad Nacional sobre Armas Químicas. (Ministerio de Salud)". Por tanto,
+Con fundamento en las consideraciones de hecho y derecho de cita, potestades y demás atribuciones aduaneras que otorgan los artículos 6 y 8 del Código Aduanero Uniforme Centroamericano IV, así como el artículo 5 de su Reglamento y los ordinales 6, 9, 11 de la Ley General de Aduanas, N° 7557 del 20 de octubre de 1995 y sus reformas, en uso de las facultades y atribuciones que le concede la legislación que regula la materia aduanera, el Director General de Aduanas, Resuelve:
+1°-Suprimir la Nota Técnica 0052 para el Régimen de Tránsito en los incisos arancelarios 2922.15.00.00.00 y 2922.19.40.00.00.
+2°-Las Agencias y Agentes de Aduanas y demás Auxiliares de la Función Pública, deberán realizar la correspondiente actualización en el Arancel que cada uno utilice.
+3°-Publíquese en el Diario Oficial La Gaceta.
+4°-La presente resolución rige 3 días después a partir de su publicación.
