@@ -14,3 +14,4 @@ Publica Resolución N° 438-2020 (COMIECO-XCIII) de fecha 10 de diciembre de 202
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-08-10 | la propia norma |
+| 2 | 2022-09-12 | Decreto Ejecutivo 43868 (2022-09-12) |
