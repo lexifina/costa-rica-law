@@ -1,0 +1,1 @@
+Artículo 2º-Ámbito de aplicación: Las disposiciones del presente Reglamento serán aplicables al personal de INS Servicios S.A. que previamente se haya establecido y que, para el desempeño de sus funciones, requieren el uso de la tarjeta de débito de compras institucional.

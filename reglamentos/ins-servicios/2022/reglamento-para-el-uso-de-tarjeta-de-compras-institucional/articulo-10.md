@@ -1,0 +1,1 @@
+Artículo 10.-La entrega de las TCI al colaborador se debe realizar contra la firma del contrato GTH-F-076 y el pagaré FI-F-099. El pagaré deberá quedar en custodia del departamento Financiero Administrativo y se procederá a entregar una copia con el contrato original al departamento de Gestión de Talento Humano para su archivo en el expediente del colaborador.

@@ -1,0 +1,8 @@
+Artículo 3º-Definiciones: Para todos los efectos que se deriven de la aplicación de este Reglamento, debe entenderse por:
+Banco: Entidad que, conforme a los términos de un convenio preexistente, brinda el servicio de compra de bienes, materiales y suministros y servicios a través de Tarjetas de Compras Institucionales.
+Pago: Dinero que se proporciona para la compra de bienes o servicios o para la extinción de una deuda.
+Plataforma Tecnológica: Es una plataforma tecnológica del Sistema Bancario Nacional, que permite la operativa del uso, control y autorización relacionado con la utilización de las tarjetas de compras institucionales.
+Renovación: Expedición a cargo del Banco y a solicitud de INS Servicios S.A., de una nueva Tarjeta de Compras Institucional en sustitución de otra expirada por cumplimiento de su vigencia.
+Responsable institucional: Colaborador definido como responsable ante la entidad bancaria para comunicarse y ser el contacto entre INS Servicios S.A. y la entidad bancaria para los diferentes aspectos relativos con la operación de este servicio. A su vez, es el colaborador responsable de realizar las transacciones de pago con la Tarjeta de Compras Institucional. Tarjeta de compras institucional: Plástico útil como medio de pago, emitido por el Banco a nombre del funcionario que especifique INS Servicios S.A. Por su naturaleza, este documento es intransferible y únicamente se utilizará como medio de pago con cargo a la respectiva transferencia realizada por INS Servicios S.A.
+TCI: Tarjeta de Compras Institucional.
+Transacción: Operación de orden financiero o contable registrada en el sistema Administrativo Financiero, por ejemplo: pagos, depósitos, notas de débito y crédito u otros.

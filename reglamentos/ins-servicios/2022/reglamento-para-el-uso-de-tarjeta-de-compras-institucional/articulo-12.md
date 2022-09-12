@@ -1,0 +1,1 @@
+Artículo 12.-Los costos de reposición de la TCI por robo, extravío, deterioro u otro atribuibles a un mal uso del colaborador serán asumidos por éste, el costo corresponderá al vigente cobrado por la entidad bancaria según sus políticas internas de costes. Se exonerará del pago al colaborador cuando la reposición se deba al desgaste normal de la TCI.

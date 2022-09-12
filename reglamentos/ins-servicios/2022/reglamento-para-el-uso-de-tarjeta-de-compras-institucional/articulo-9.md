@@ -1,0 +1,1 @@
+Artículo 9º-Prohibiciones. Queda prohibido participar en promociones o concursos que tienen como fin la acumulación de puntos u otro tipo de promociones, por el uso de la Tarjeta de Compras Institucional.

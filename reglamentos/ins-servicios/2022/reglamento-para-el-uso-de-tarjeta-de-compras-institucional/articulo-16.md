@@ -1,0 +1,1 @@
+Artículo 16.-El Gerente Financiero Administrativo o la persona que éste designe es el responsable de formalizar con la entidad bancaria las solicitudes, modificaciones, anulaciones o cancelaciones de las TCI cuando corresponda.
