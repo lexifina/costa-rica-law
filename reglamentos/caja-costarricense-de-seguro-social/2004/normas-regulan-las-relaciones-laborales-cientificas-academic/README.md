@@ -14,3 +14,4 @@ Normas regulan las relaciones laborales, científicas, académicas, profesionale
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-07-02 | la propia norma |
+| 2 | 2022-09-12 | Reglamento 9278 (2022-09-12) |
