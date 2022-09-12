@@ -1,0 +1,1 @@
+Artículo 4°-El representante ante la CONATT deberá recibir la validación de su nombramiento cada vez que haya un nuevo (a) jerarca en el cargo y hasta tanto esto no suceda su nombramiento quedará cesado.

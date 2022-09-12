@@ -1,0 +1,1 @@
+Artículo 3°-La vigencia de la representación en la comisión, a excepción del representante ante la CONATT que es discreción del ministro (a), se mantendrá mientras los coordinadores de los diversos niveles y Direcciones así lo consideren oportuno.
