@@ -1,0 +1,1 @@
+ARTÍCULO 6- La elección de los miembros del Concejo de Distrito y síndicos del distrito de Puente Salas será establecida por los mecanismos que cuenten para ese fin, el Tribunal Supremo de Elecciones (TSE).
