@@ -14,3 +14,4 @@ Resolución N° 449-2021 (COMIECO-XCV) de fecha 30 de junio de 2021 y su Anexo: 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-01-10 | la propia norma |
+| 2 | 2022-09-12 | Decreto Ejecutivo 43793 (2022-09-12) |
