@@ -1,0 +1,1 @@
+ARTÍCULO 4- Se autoriza al Registro Inmobiliario para que modifique la situación geográfica de oficio en los asientos catastrales y registrales, siempre y cuando exista plano que permita identificar la ubicación y localización geográfica de los inmuebles.
