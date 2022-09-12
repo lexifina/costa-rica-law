@@ -4077,7 +4077,7 @@ CÓDIGO | DESCRIPCIÓN | DAI %
 293.59.4 (Así adicionada la partida anterior por el artículo 2° del decreto ejecutivo N° 43496 del 18 de febrero del 202 "Publicación de la Resolución N° 455-2021 (COMIECO-XCVIII) de fecha 17 de diciembre de 2021, que resolvió aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC)) | ++SUPRIMIDA++ (Así adicionada la descripción anterior por el artículo 2° del decreto ejecutivo N° 43496 del 18 de febrero del 202 "Publicación de la Resolución N° 455-2021 (COMIECO-XCVIII) de fecha 17 de diciembre de 2021, que resolvió aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC)) |
 2931.59.41.00 (Así adicionada la partida anterior por el artículo 2° del decreto ejecutivo N° 43496 del 18 de febrero del 202 "Publicación de la Resolución N° 455-2021 (COMIECO-XCVIII) de fecha 17 de diciembre de 2021, que resolvió aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC)) | ++SUPRIMIDA++ (Así adicionada la descripción anterior por el artículo 2° del decreto ejecutivo N° 43496 del 18 de febrero del 202 "Publicación de la Resolución N° 455-2021 (COMIECO-XCVIII) de fecha 17 de diciembre de 2021, que resolvió aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC)) |
 2931.59.49.00 (Así adicionada la partida anterior por el artículo 2° del decreto ejecutivo N° 43496 del 18 de febrero del 202 "Publicación de la Resolución N° 455-2021 (COMIECO-XCVIII) de fecha 17 de diciembre de 2021, que resolvió aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC)) | ++SUPRIMIDA++ (Así adicionada la descripción anterior por el artículo 2° del decreto ejecutivo N° 43496 del 18 de febrero del 202 "Publicación de la Resolución N° 455-2021 (COMIECO-XCVIII) de fecha 17 de diciembre de 2021, que resolvió aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC)) |
-2931.59.50.00 | - - - Sustancias químicas diferentes a las de los incisos arancelarios 2931.59.1, 2931.59.2, 2931.59.3 y 2931.59.4, que contengan un átomo de fósforo al que está enlazado un grupo metilo, etilo o propilo (normal o isopropilo), pero no otros átomos de carbono | 0
+2931.59.50.00 (Así reformada la partida anterior por el artículo 2° de decreto ejecutivo N° 43870 del 12 de setiembre del 2022 “Publica Fe de Erratas del 27 de julio de 2022, emitida por la SIECA a la resolución N° 450-2021 (COMIECO-EX) del 22 de julio de 2021 y sus anexos”) | - - - Sustancias químicas diferentes a las de los incisos arancelarios 2931.59.1 y 2931.59.3, que contengan un átomo de fósforo al que está enlazado un grupo metilo, etilo o propilo (normal o isopropilo), pero no otros átomos de carbono (Así reformada la descripción anterior por el artículo 2° de decreto ejecutivo N° 43870 del 12 de setiembre del 2022 “Publica Fe de Erratas del 27 de julio de 2022, emitida por la SIECA a la resolución N° 450-2021 (COMIECO-EX) del 22 de julio de 2021 y sus anexos”) | 0
 2931.59.90.00 | - - - Otros | 0
 2931.3 | + + SUPRIMIDA + + |
 CÓDIGO | DESCRIPCIÓN | DAI %
@@ -13116,7 +13116,7 @@ CÓDIGO | DESCRIPCIÓN | DAI %
 8701.94.00.00 | - - Superior a 75 kW pero inferior o igual a 130 kW | 0
 8701.95.00.00 | - - Superior a 130 kW | 0
 87.02 | VEHÍCULOS AUTOMÓVILES PARA TRANSPORTE DE DIEZ O MÁS PERSONAS, INCLUIDO EL CONDUCTOR |
-8702.10 | - Únicamente con motor de émbolo (pistón), de encendido por compresión (diésel o semi-diésel): |
+8702.10 (Así reformada la partida anterior por el artículo 2° de decreto ejecutivo N° 43870 del 12 de setiembre del 2022 “Publica Fe de Erratas del 27 de julio de 2022, emitida por la SIECA a la resolución N° 450-2021 (COMIECO-EX) del 22 de julio de 2021 y sus anexos”) | - Únicamente con motor de émbolo (pistón), de encendido por compresión (diésel o semi-diésel): (Así reformada la descripción anterior por el artículo 2° de decreto ejecutivo N° 43870 del 12 de setiembre del 2022 “Publica Fe de Erratas del 27 de julio de 2022, emitida por la SIECA a la resolución N° 450-2021 (COMIECO-EX) del 22 de julio de 2021 y sus anexos”) |
 8702.10.50.00 | - - De capacidad de transporte igual a 10 personas, incluido el conductor | II *
 CÓDIGO | DESCRIPCIÓN | DAI %
 8702.10.60.00 | - - De capacidad de transporte superior a 10 personas pero inferior a 15 personas, incluido el conductor | II *
@@ -13132,9 +13132,9 @@ CÓDIGO | DESCRIPCIÓN | DAI %
 8702.90.80.00 | - - De capacidad de transporte superior a 45 personas, incluido el conductor, con motor de émbolo (pistón), de encendido por chispa | II *
 8702.90.90.00 | - - Otros | II *
 CÓDIGO | DESCRIPCIÓN | DAI %
-87.03 | AUTOMÓVILES DE TURISMO Y DEMÁS VEHÍCULOS AUTOMÓVILES DISEÑADOS PRINCIPALMENTE PARA EL TRANPORTE DE PERSONAS (EXCEPTO LOS DE LA PARTIDA 87.02), INCLUIDOS LOS DEL TIPO FAMILIAR ("BREAK" O "STATION WAGON") Y LOS DE CARRERAS |
+87.03 (Así reformada la partida anterior por el artículo 2° de decreto ejecutivo N° 43870 del 12 de setiembre del 2022 “Publica Fe de Erratas del 27 de julio de 2022, emitida por la SIECA a la resolución N° 450-2021 (COMIECO-EX) del 22 de julio de 2021 y sus anexos”) | AUTOMÓVILES DE TURISMO Y DEMÁS VEHÍCULOS AUTOMÓVILES DISEÑADOS PRINCIPALMENTE PARA EL TRANSPORTE DE PERSONAS (EXCEPTO LOS DE LA PARTIDA 87.02), INCLUIDOS LOS DEL TIPO FAMILIAR (“BREAK” O “STATION WAGON) Y LOS DE CARRERAS (Así reformada la descripción anterior por el artículo 2° de decreto ejecutivo N° 43870 del 12 de setiembre del 2022 “Publica Fe de Erratas del 27 de julio de 2022, emitida por la SIECA a la resolución N° 450-2021 (COMIECO-EX) del 22 de julio de 2021 y sus anexos”) |
 8703.10.00.00 | - Vehículos especialmente diseñados para desplazarse sobre nieve; vehículos especiales para transporte de personas en campos de golf y vehículos similares | II *
-8703.2 | - Los demás vehículos, únicamente con motor de émbolo (pistón), de encendido por chispa: |
+8703.2 (Así reformada la partida anterior por el artículo 2° de decreto ejecutivo N° 43870 del 12 de setiembre del 2022 “Publica Fe de Erratas del 27 de julio de 2022, emitida por la SIECA a la resolución N° 450-2021 (COMIECO-EX) del 22 de julio de 2021 y sus anexos”) | - Los demás vehículos, únicamente con motor de émbolo (pistón), de encendido por chispa: (Así reformada la descripción anterior por el artículo 2° de decreto ejecutivo N° 43870 del 12 de setiembre del 2022 “Publica Fe de Erratas del 27 de julio de 2022, emitida por la SIECA a la resolución N° 450-2021 (COMIECO-EX) del 22 de julio de 2021 y sus anexos”) |
 8703.21 | - - De cilindrada inferior o igual a 1,000 cm3: |
 8703.21.5 | - - - Tricimotos (trimotos) y cuadraciclos (cuatrimotos): |
 8703.21.51.00 | - - - - Tricimotos (trimotos) | II *
@@ -13216,7 +13216,7 @@ CÓDIGO | DESCRIPCIÓN | DAI %
 8703.24.99 | - - - - Los demás: |
 8703.24.99.10 | - - - - - Con capacidad de transporte inferior o igual a 5 personas, incluido el conductor | II *
 8703.24.99.90 | - - - - - Otros | II *
-8703.3 | - Los demás vehículos, únicamente con motor de émbolo (pistón), de encendido por compresión (diésel o semi-diésel): |
+8703.3 (Así reformada la partida anterior por el artículo 2° de decreto ejecutivo N° 43870 del 12 de setiembre del 2022 “Publica Fe de Erratas del 27 de julio de 2022, emitida por la SIECA a la resolución N° 450-2021 (COMIECO-EX) del 22 de julio de 2021 y sus anexos”) | - Los demás vehículo, únicamente con motor de émbolo (pistón), de encendido con compresión (diésel o semi-diésel): (Así reformada la descripción anterior por el artículo 2° de decreto ejecutivo N° 43870 del 12 de setiembre del 2022 “Publica Fe de Erratas del 27 de julio de 2022, emitida por la SIECA a la resolución N° 450-2021 (COMIECO-EX) del 22 de julio de 2021 y sus anexos”) |
 8703.31 | - - De cilindrada inferior o igual a 1,500 cm3: |
 8703.31.5 | - - - De cilindrada inferior o igual a 1,300 cm3: |
 8703.31.51.00 | - - - - Ambulancias | II *
@@ -13294,7 +13294,7 @@ CÓDIGO | DESCRIPCIÓN | DAI %
 87.04 | VEHÍCULOS AUTOMÓVILES PARA TRANSPORTE DE MERCANCÍAS |
 CÓDIGO | DESCRIPCIÓN | DAI %
 8704.10.00.00 | - Volquetes automotores diseñados para utilizarlos fuera de la red de carreteras | II *
-8704.2 | - Los demás, únicamente con motor de émbolo (pistón), de encendido por compresión (diésel o semi-diésel): |
+8704.2 (Así reformada la partida anterior por el artículo 2° de decreto ejecutivo N° 43870 del 12 de setiembre del 2022 “Publica Fe de Erratas del 27 de julio de 2022, emitida por la SIECA a la resolución N° 450-2021 (COMIECO-EX) del 22 de julio de 2021 y sus anexos”) | - Los demás, únicamente con motor de émbolo, pistón, de encendido por compresión (diésel o semi-diésel) (Así reformada la descripción anterior por el artículo 2° de decreto ejecutivo N° 43870 del 12 de setiembre del 2022 “Publica Fe de Erratas del 27 de julio de 2022, emitida por la SIECA a la resolución N° 450-2021 (COMIECO-EX) del 22 de julio de 2021 y sus anexos”) |
 8704.21 | - - De peso total con carga máxima inferior o igual a 5 t: |
 8704.21.5 | - - - Vehículo con compartimiento de carga descubierto, independiente de la cabina: |
 8704.21.51.00 | - - - - De peso total con carga máxima inferior o igual a 2.5 t | II *
@@ -13315,7 +13315,7 @@ CÓDIGO | DESCRIPCIÓN | DAI %
 8704.23 | - - De peso total con carga máxima superior a 20 t: |
 8704.23.30.00 | - - - Vehículos cisternas, frigoríficos, y recolectores de basura | II *
 8704.23.90.00 | - - - Otros | II *
-8704.3 | - Los demás, únicamente con motor de émbolo (pistón), de encendido por chispa: |
+8704.3 (Así reformada la partida anterior por el artículo 2° de decreto ejecutivo N° 43870 del 12 de setiembre del 2022 “Publica Fe de Erratas del 27 de julio de 2022, emitida por la SIECA a la resolución N° 450-2021 (COMIECO-EX) del 22 de julio de 2021 y sus anexos”) | - Los demás, únicamente con motor de émbolo (pistón), de encendido por chispa: (Así reformada la descripción anterior por el artículo 2° de decreto ejecutivo N° 43870 del 12 de setiembre del 2022 “Publica Fe de Erratas del 27 de julio de 2022, emitida por la SIECA a la resolución N° 450-2021 (COMIECO-EX) del 22 de julio de 2021 y sus anexos”) |
 8704.31 | - - De peso total con carga máxima inferior o igual a 5 t: |
 8704.31.5 | - - - Vehículo con compartimiento de carga descubierto, independiente de la cabina: |
 8704.31.51.00 | - - - - De peso total con carga máxima inferior o igual a 2.5 t | II *
@@ -13349,13 +13349,13 @@ CÓDIGO | DESCRIPCIÓN | DAI %
 8705.30.00.00 | - Camiones de bomberos | II *
 8705.40.00.00 | - Camiones hormigonera | II *
 8705.90.00.00 | - Los demás | II *
-87.06 | CHASIS DE VEHÍCULOS AUTOMÓVILES DE LAS PARTIDAS 87.01 A 87.05, EQUIPADOS CON SU MOTOR |
+87.06 (Así reformada la partida anterior por el artículo 2° de decreto ejecutivo N° 43870 del 12 de setiembre del 2022 “Publica Fe de Erratas del 27 de julio de 2022, emitida por la SIECA a la resolución N° 450-2021 (COMIECO-EX) del 22 de julio de 2021 y sus anexos”) | CHASIS DE VEHÍCULOS AUTOMÓVILES DE LAS PARTIDAS 87.01 A 87.05, EQUIPADOS CON SU MOTOR (Así reformada la descripción anterior por el artículo 2° de decreto ejecutivo N° 43870 del 12 de setiembre del 2022 “Publica Fe de Erratas del 27 de julio de 2022, emitida por la SIECA a la resolución N° 450-2021 (COMIECO-EX) del 22 de julio de 2021 y sus anexos”) |
 8706.00.10.00 | - De autobuses | II *
 8706.00.90.00 | - Otros | II *
 87.07 | CARROCERÍAS DE VEHÍCULOS AUTOMÓVILES DE LAS PARTIDAS 87.01 A 87.05, INCLUIDAS LAS CABINAS |
 8707.10.00.00 | - De vehículos de la partida 87.03 | II *
 8707.90 | - Las demás: |
-8707.90.50.00 | - - De los vehículos de las partidas 87.01, 87.02 y 87.04, excepto para los vehículos incluidos en los incisos arancelarios 8704.21.51.00, 8704.31.51.00, 8704.41.00.00 y 8704.51.00.00 | II *
+8707.90.50.00 (Así reformada la partida anterior por el artículo 2° de decreto ejecutivo N° 43870 del 12 de setiembre del 2022 “Publica Fe de Erratas del 27 de julio de 2022, emitida por la SIECA a la resolución N° 450-2021 (COMIECO-EX) del 22 de julio de 2021 y sus anexos”) | -- De los vehículos de las partidas 87.01 , 87.02 y 87.04, excepto para los vehículos incluidos en los incisos arancelarios 8704.21.51.00 y 8704.31.51.00, 8704.41.00.00 y 870451.00.00 (Así reformada la descripción anterior por el artículo 2° de decreto ejecutivo N° 43870 del 12 de setiembre del 2022 “Publica Fe de Erratas del 27 de julio de 2022, emitida por la SIECA a la resolución N° 450-2021 (COMIECO-EX) del 22 de julio de 2021 y sus anexos”) | 5 (Así reformada la descripción anterior por el artículo 2° de decreto ejecutivo N° 43870 del 12 de setiembre del 2022 “Publica Fe de Erratas del 27 de julio de 2022, emitida por la SIECA a la resolución N° 450-2021 (COMIECO-EX) del 22 de julio de 2021 y sus anexos”)
 8707.90.90.00 | - - Otros | II *
 CÓDIGO | DESCRIPCIÓN | DAI %
 87.08 | PARTES Y ACCESORIOS DE VEHÍCULOS AUTOMÓVILES DE LAS PARTIDAS 87.01 A 87.05 |
@@ -13374,9 +13374,9 @@ CÓDIGO | DESCRIPCIÓN | DAI %
 8708.40.10.00 | - - Cajas de cambio | II *
 8708.40.20.00 | - - Partes | II *
 8708.50 | - Ejes con diferencial, incluso provistos con otros órganos de transmisión, y ejes portadores; sus partes: |
-8708.50.10.00 | - - Ejes con diferencial, incluso provistos con otros órganos de transmisión | II *
+8708.50.10.00 (Así reformada la partida anterior por el artículo 2° de decreto ejecutivo N° 43870 del 12 de setiembre del 2022 “Publica Fe de Erratas del 27 de julio de 2022, emitida por la SIECA a la resolución N° 450-2021 (COMIECO-EX) del 22 de julio de 2021 y sus anexos”) | -- Ejes con diferencial, incluso provistos con otros órganos de transmisión (Así reformada la descripción anterior por el artículo 2° de decreto ejecutivo N° 43870 del 12 de setiembre del 2022 “Publica Fe de Erratas del 27 de julio de 2022, emitida por la SIECA a la resolución N° 450-2021 (COMIECO-EX) del 22 de julio de 2021 y sus anexos”) | 5 (Así reformada la descripción anterior por el artículo 2° de decreto ejecutivo N° 43870 del 12 de setiembre del 2022 “Publica Fe de Erratas del 27 de julio de 2022, emitida por la SIECA a la resolución N° 450-2021 (COMIECO-EX) del 22 de julio de 2021 y sus anexos”)
 CÓDIGO | DESCRIPCIÓN | DAI %
-8708.50.20.00 | - - Ejes portadores y sus partes | II *
+8708.50.20.00 (Así reformada la partida anterior por el artículo 2° de decreto ejecutivo N° 43870 del 12 de setiembre del 2022 “Publica Fe de Erratas del 27 de julio de 2022, emitida por la SIECA a la resolución N° 450-2021 (COMIECO-EX) del 22 de julio de 2021 y sus anexos”) | - Ejes portadores y sus partes (Así reformada la descripción anterior por el artículo 2° de decreto ejecutivo N° 43870 del 12 de setiembre del 2022 “Publica Fe de Erratas del 27 de julio de 2022, emitida por la SIECA a la resolución N° 450-2021 (COMIECO-EX) del 22 de julio de 2021 y sus anexos”) | 5 (Así reformada la descripción anterior por el artículo 2° de decreto ejecutivo N° 43870 del 12 de setiembre del 2022 “Publica Fe de Erratas del 27 de julio de 2022, emitida por la SIECA a la resolución N° 450-2021 (COMIECO-EX) del 22 de julio de 2021 y sus anexos”)
 8708.50.90.00 | - - Otras partes | II *
 8708.70.00.00 | - Ruedas, sus partes y accesorios | II *
 8708.80 | - Sistemas de suspensión y sus partes (incluidos los amortiguadores): |
@@ -13432,7 +13432,7 @@ CÓDIGO | DESCRIPCIÓN | DAI %
 87.14 | PARTES Y ACCESORIOS DE VEHÍCULOS DE LAS PARTIDAS 87.11 A 87.13 |
 8714.10 | - De motocicletas (incluidos los ciclomotores): |
 8714.10.10.00 | - - Sillines (asientos) | II *
-8714.10.90.00 | - - Otros | II *
+8714.10.90.00 (Así reformada la partida anterior por el artículo 2° de decreto ejecutivo N° 43870 del 12 de setiembre del 2022 “Publica Fe de Erratas del 27 de julio de 2022, emitida por la SIECA a la resolución N° 450-2021 (COMIECO-EX) del 22 de julio de 2021 y sus anexos”) | - - Otros (Así reformada la descripción anterior por el artículo 2° de decreto ejecutivo N° 43870 del 12 de setiembre del 2022 “Publica Fe de Erratas del 27 de julio de 2022, emitida por la SIECA a la resolución N° 450-2021 (COMIECO-EX) del 22 de julio de 2021 y sus anexos”) | 10 (Así reformada la descripción anterior por el artículo 2° de decreto ejecutivo N° 43870 del 12 de setiembre del 2022 “Publica Fe de Erratas del 27 de julio de 2022, emitida por la SIECA a la resolución N° 450-2021 (COMIECO-EX) del 22 de julio de 2021 y sus anexos”)
 8714.20.00.00 | - De sillones de ruedas y demás vehículos para inválidos | 0
 8714.9 | - Los demás: |
 8714.91 | - - Cuadros y horquillas, y sus partes: |

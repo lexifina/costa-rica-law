@@ -18,3 +18,4 @@ Publica resolución N° 450-2021 (COMIECO-EX) de 12/07/2021 y su anexo 1: Sistem
 | 3 | 2022-02-18 | Decreto Ejecutivo 43494 (2022-02-18) |
 | 4 | 2022-02-18 | Decreto Ejecutivo 43495 (2022-02-18) |
 | 5 | 2022-02-18 | Decreto Ejecutivo 43496 (2022-02-18) |
+| 6 | 2022-09-12 | Decreto Ejecutivo 43870 (2022-09-12) |
