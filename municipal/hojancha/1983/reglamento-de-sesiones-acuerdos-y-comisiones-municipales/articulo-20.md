@@ -1,1 +1,0 @@
-Artículo 20°.- El presidente no dará curso o declarará fuera de orden las proposiciones o mociones que evidentemente resulten improcedentes o que simplemente tiendan a dilatar u obstruccionar el curso normal del debate o la resolución de un asunto.

@@ -1,1 +1,0 @@
-Artículo 4°.- Las sesiones ordinarias y extraordinarias se efectuaran en el local sede de la Municipalidad, excepto en casos especiales que el Concejo así lo decida. En caso de que sea sesión extraordinaria, deberá constar así en la convocatoria.

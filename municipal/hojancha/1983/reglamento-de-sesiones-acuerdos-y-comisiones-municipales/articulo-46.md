@@ -1,1 +1,0 @@
-Artículo 46.- Si se presentaran memoriales que dirijan los particulares al Concejo, la Secretaria los examinará, y si resulta que lo solicitado es de competencia del ejecutivo, lo enviará a dicho funcionario para que le de el trámite que le corresponda. De lo anterior se informará a los firmantes

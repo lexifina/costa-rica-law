@@ -1,1 +1,0 @@
-Artículo 43.- Cuando el objeto de la audiencia fuere un asunto de competencia del ejecutivo, el presidente ordenará a la secretaria municipal remitir memorial, presentado a dicho funcionario para que éste le dé el trámite correspondiente. La secretaria lo hará del conocimiento de los interesados.

@@ -1,1 +1,0 @@
-Artículo 49°.-Finalizadas las exposiciones de los particulares, el presidente concederá el uso de la palabra a los regidores que lo soliciten con el fin de que puedan intercambiar con los visitantes sobre el asunto que se trate.

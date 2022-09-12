@@ -1,1 +1,0 @@
-Artículo 44°.- La secretaría remitirá al Concejo, en orden de presentación las solicitudes que presentan los particulares. El Concejo decidirá si acepta o no la petición formulada, tomando en cuenta el interés municipal, la oportunidad y cualquier otro elemento que se considere pertinente.

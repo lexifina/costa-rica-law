@@ -1,2 +1,0 @@
-Artículo 47.- Cuando concurriere a sesión, uno o varios particulares invitados o a quienes se le haya concedido audiencia, el presidente hará la presentación de rigor, exponiendo los motivos en su presencia y de inmediato les concederá el uso de la palabra, para que hagan la exposición correspondiente.
-Se tratará en lo posible de que la exposición sea breve y concisa, pudiéndose fijar un término al efecto.
