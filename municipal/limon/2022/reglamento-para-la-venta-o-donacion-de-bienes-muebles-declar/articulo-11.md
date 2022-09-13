@@ -1,0 +1,1 @@
+Artículo 11.-Supletoriedad. Se aplicará supletoriamente a las normas de este reglamento las disposiciones legales contenidas en el Código Municipal, Ley de la Contratación Administrativa y su Reglamento y demás normativa vigente, así los principios de la contratación administrativa.

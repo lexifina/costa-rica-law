@@ -1,0 +1,1 @@
+Artículo 7º-Eliminación de los bienes del registro de activos. Una vez verificado el traslado de dominio de los de los bienes, el Departamento de Contabilidad procederá a descargarlos del registro de activos del municipio y dejará constancia del acuerdo municipal que dispuso su donación o venta.
