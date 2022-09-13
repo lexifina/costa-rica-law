@@ -13,3 +13,4 @@ Protocolo de Justicia Juvenil Restaurativa en fase de ejecución de las Sancione
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-05-27 | la propia norma |
+| 2 | 2022-09-13 | Circular 177 (2022-09-13) |
