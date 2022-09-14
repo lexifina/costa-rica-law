@@ -9,8 +9,10 @@ Considerando:
 Por Tanto,
 DECRETAN:
 El siguiente:
-Reglamento Tarifario Mínimo del Colegio de Geólogos de Costa Rica
-Artículo 1º.- Para la prestación de servicios profesionales en la actividad minera se aplicarán las siguientes tarifas mínimas:
+Tarifario de Referencia y de Uso Discrecional del Colegio de Geólogos de Costa Rica
+(Así modificada su denominación por el artículo 1° del decreto ejecutivo N° 43711 del 14 de setiembre de 2022. Anteriormente se denominada: "Reglamento Tarifario Mínimo del Colegio de Geólogos de Costa Rica")
+Artículo 1º.- Para la prestación de servicios profesionales en la actividad minera podrán aplicarse las siguientes tarifas de referencia y de uso discrecional(*).
+(*) (Así modificada su denominación por el artículo 1° del decreto ejecutivo N° 43711 del 14 de setiembre de 2022. Anteriormente se denominada: “se aplicarán las siguientes tarifas mínimas”)
 A. Exploración Minera
 Preparación de documentos para presentación de la solicitud de exploración 5.750,00
 Revisión de expediente en el Registro Nacional

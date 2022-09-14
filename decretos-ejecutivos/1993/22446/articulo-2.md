@@ -1,4 +1,5 @@
-Artículo 2. Para la prestación de servicios profesionales en actividades de Geotecnia, se aplicarán las siguientes tarifas mínimas:
+Artículo 2. Para la prestación de servicios profesionales en actividades de Geotecnia, se podrán aplicarse las siguientes tarifas de referencia y de uso discrecional(*).
+(*) (Así modificada su denominación por el artículo 1° del decreto ejecutivo N° 43711 del 14 de setiembre de 2022. Anteriormente se denominada: “se aplicarán las siguientes tarifas mínimas”)
 A. Estudios de suelos
 Incluyen
 Muestros, Ensayos de Laboratorio e informe final

@@ -15,3 +15,4 @@ Tarifario de Referencia y de Uso Discrecional del Colegio de Geólogos de Costa 
 | --- | --- | --- |
 | 1 | 1993-08-25 | la propia norma |
 | 2 | 1993-08-25 | SINALEVI (sin norma nombrada) |
+| 3 | 2022-09-14 | Decreto Ejecutivo 43711 (2022-09-14) |

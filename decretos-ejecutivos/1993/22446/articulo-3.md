@@ -1,4 +1,5 @@
-Artículo 3º.- Para la prestación de servicios profesionales en el área de la Hidrogeología, se aplicarán las siguientes tarifas mínimas:
+Artículo 3º.- Para la prestación de servicios profesionales en el área de la Hidrogeología, podrán aplicarse las siguientes tarifas de referencia y de uso discrecional(*) :
+(*) (Así modificada su denominación por el artículo 1° del decreto ejecutivo N° 43711 del 14 de setiembre de 2022. Anteriormente se denominada: "se aplicarán las siguientes tarifas mínimas")
 Reconocimiento hidrogeológico para ubicación y ¢ 30.000,00 diseño de un pozo con fines domésticos no lucrativos.
 Estudio hidrogeológico para ubicación y diseño de Normal pozos con fines domésticos lucrativos (hoteles p/ej.), ¢ 50.000,00 industriales o agropecuarios, con requerimientos de Superior agua inferiores a los 20 litros por segundo. ¢ 80.000,00
 Estudio hidrogeológico de factibilidad para desarrollar NORMAL un proyecto integral mediante la utilización de agua ¢ 10.000,00 subterránea:
