@@ -14,3 +14,4 @@ Reglamento al artículo 10 de la Ley N° 1038 de Tarifas de Honorarios Profesion
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-02-05 | la propia norma |
+| 2 | 2022-09-14 | Decreto Ejecutivo 43703 (2022-09-14) |
