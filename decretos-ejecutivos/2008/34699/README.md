@@ -14,3 +14,4 @@ Reglamento al Título II de la Ley Orgánica del Colegio de Ingenieros Químicos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-09-03 | la propia norma |
+| 2 | 2022-09-14 | Decreto Ejecutivo 43701 (2022-09-14) |
