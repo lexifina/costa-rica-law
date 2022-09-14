@@ -1,4 +1,5 @@
-Artículo 10.-Tablas. Las tarifas para determinaciones analíticas, técnicas analíticas, análisis de gases de emisión, inmisión y ambientes laborales, y para análisis de hidrocarburos según normas internacionales, son las siguientes:
+Artículo 10.-Tablas. Las tarifa(s) de referencia y uso discrecional(*) para determinaciones analíticas, técnicas analíticas, análisis de gases de emisión, inmisión y ambientes laborales, y para análisis de hidrocarburos según normas internacionales, son las siguientes:
+(*) (Así modificada su denominación por el artículo 2° del decreto ejecutivo N° 43701 del 14 de setiembre de 2022. Anteriormente se denominaba: "tarifas")
 TABLA I. DETERMINACIONES ANALÍTICAS
 Determinación | Tarifa con incremento Sustrato Acuoso | Tarifa con incremento Sustrato no-acuoso
 Aceites y grasas | ¢5 100,66 | ¢6 557,99
@@ -225,5 +226,6 @@ Viscosidad Saybolt 50 °C | ¢7 286,66
 Agua disuelta Karl Fisher | ¢21 859,98
 Hidrocarburos aromáticos / poliaromáticos | ¢58 293,28
 BTX en Bunker | ¢36 433,30
-Las tarifas no asignadas en los campos correspondientes se podrán asignar en cada caso de común acuerdo entre el laboratorio y el cliente.
+Las tarifa(s) de referencia y uso discrecional(*) no asignadas en los campos correspondientes se podrán asignar en cada caso de común acuerdo entre el laboratorio y el cliente.
+(*) (Así modificada su denominación por el artículo 2° del decreto ejecutivo N° 43701 del 14 de setiembre de 2022. Anteriormente se denominaba: "tarifas")
 (Así reformada las tarifas anteriores en sesión JD-22-2021 del 22 de setiembre de 2021)
