@@ -1,0 +1,1 @@
+Artículo 40.-Derogatoria. Deróguese el "Reglamento para regular el funcionamiento y operación del centro de cuido y desarrollo infantil-CECUDI del cantón de Tarrazú", aprobado mediante sesión ordinaria 052-2017 del 27 de abril del 2017, publicado en La Gaceta N° 209 del 06 de noviembre de 2017» Alcance 264.

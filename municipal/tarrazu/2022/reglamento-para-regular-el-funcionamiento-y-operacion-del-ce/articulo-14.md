@@ -1,0 +1,1 @@
+Artículo 14.-Consideraciones con respecto a las Necesidades Educativas Especiales de la población infantil. El Centro abre sus puertas a personas menores de edad con Necesidades Educativas Especiales, de acuerdo con sus principios filosóficos y sus posibilidades académicas y materiales.

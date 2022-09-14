@@ -1,0 +1,2 @@
+Artículo 10.-Actividades extramuros. Dentro de la programación pedagógica, el CECUDI podrá organizar actividades dentro del mismo, con el objetivo de dar respuestas a las necesidades de aprendizaje y desarrollo de las personas menores de edad.
+Los padres, madres o representantes legales, autorizarán por escrito, la participación de las personas menores de edad en dichas actividades, misma debe quedar en el expediente de cada persona menor de edad.

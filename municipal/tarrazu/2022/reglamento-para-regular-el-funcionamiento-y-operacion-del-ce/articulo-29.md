@@ -1,0 +1,1 @@
+Artículo 29.-Equipo y materiales. Los funcionarios son responsables por el equipo, herramientas y los materiales que emplea en la realización de las actividades. Cuanto se halla en un CECUDI debe velar, en conjunto todo el personal, por los equipos, utensilios e instalaciones y reportar al coordinador (a) cualquier daño, pérdida o funcionamiento inadecuado.
