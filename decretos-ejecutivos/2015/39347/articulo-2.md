@@ -1,5 +1,6 @@
-Artículo 2°—Conceptos y definiciones. Para los propósitos de aplicación e interpretación del presente Arancel, los siguientes conceptos deberán entenderse de la siguiente manera:
-a) Arancel: Arancel de Honorarios por Servicios Profesionales en Biología.
+Artículo 2°-Conceptos y definiciones. Para los propósitos de aplicación e interpretación del presente Arancel, los siguientes conceptos deberán entenderse de la siguiente manera:
+a) Arancel: Arancel de Honorarios de Referencia y de Uso Discrecional por Servicios Profesionales en Biología.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 43710 del 14 de setiembre de 2022)
 b) Biólogo: Profesional en biología de conformidad con el artículo 2° del Reglamento a la Ley Orgánica del Colegio de Biólogos de Costa Rica y debidamente incorporado al Colegio de Biólogos de Costa Rica.
 c) Colegio: Colegio de Biólogos de Costa Rica.
 d) Cliente: Persona física o jurídica que solicite o se beneficie con los servicios profesionales en Biología.
