@@ -1,4 +1,4 @@
-Artículo 55.—Son atribuciones de la Junta Directiva:
+Artículo 55.-Son atribuciones de la Junta Directiva:
 a. Ejercer la dirección general del Colegio:
 b. Acordar las convocatorias a las sesiones de la Asamblea General conforme a la Ley Orgánica y a este Reglamento;
 c. Aprobar las materias que han de ser objeto preferente de estudio, investigación y debate en las reuniones técnico-profesionales del Colegio;
@@ -13,7 +13,8 @@ k. Acordar las condonaciones parciales o totales o aceptar el arreglo de pago, d
 l. Establecer el monto que se pagará por el cobro de las cuotas ordinarias y extraordinarias;
 m. Autorizar el establecimiento y funcionamiento de cajas auxiliares;
 n. Establecer los precios y montos por los servicios, papelería oficial, trámites, incorporaciones, registros, inscripciones y otros que brinde el Colegio;
-o. Aprobar los honorarios mínimos de los Servicios Profesionales que realicen sus miembros;
+o. Aprobar los honorarios de referencia y de uso discrecional(*) de los Servicios Profesionales que realicen sus miembros;
+(*) (Así modificada su denominación por el artículo 1° del decreto ejecutivo N° 43708 del 14 de setiembre de 2022. Anteriormente se denominaba: "honorarios mínimos")
 p. Administrar los fondos del Colegio, para lo cual formulará los presupuestos ordinarios del Colegio, para el ejercicio anual siguiente y los extraordinarios cuando corresponda, y los presentará a la Asamblea General para que los examine y los apruebe. Autorizar la transferencia entre partidas presupuestarias, sin que con ello se afecte el monto total del presupuesto aprobado por la Asamblea General;
 q. Preparar la memoria anual y presentarla, para su examen y aprobación, a la Asamblea General ordinaria;
 r. Aprobar o improbar las solicitudes de inscripción e incorporación al Colegio, las apelaciones las conocerá la asamblea;
@@ -22,5 +23,4 @@ t. Aceptar o rechazar inscripciones en el Registro de Especialidades;
 u. Examinar los estatutos Internos de los órganos del Colegio, filiales regionales y otros y someterlos a votación a la Asamblea general;
 v. Dirigir las publicaciones periódicas del Colegio y dar subvenciones a las que contribuyan a desarrollar y difundir la especialidad de sus miembros;
 w. Integrar comisiones para desempeñar labores especiales del Colegio;
-x. Designar a los asesores y empleados del Colegio, quienes no podrán ser miembros de la Junta Directiva;
-y. Resolver las cuestiones de orden interno del Colegio que no estén expresamente reservadas para la Asamblea General. Las demás atribuciones que la Legislación y los Reglamentos y Códigos Internos le señalen.
+x. Designar a los asesores y empleados del Colegio, quienes no podrán ser miembros de la Junta Directiva; y. Resolver las cuestiones de orden interno del Colegio que no estén expresamente reservadas para la Asamblea General. Las demás atribuciones que la Legislación y los Reglamentos y Códigos Internos le señalen.

@@ -16,3 +16,4 @@ Reglamento a la Ley Orgánica del Colegio de Físicos
 | 1 | 1999-08-17 | la propia norma |
 | 2 | 1999-08-17 | Ley 7 |
 | 3 | 2012-06-25 | Ley 9046 |
+| 4 | 2022-09-14 | Decreto Ejecutivo 43708 (2022-09-14) |
