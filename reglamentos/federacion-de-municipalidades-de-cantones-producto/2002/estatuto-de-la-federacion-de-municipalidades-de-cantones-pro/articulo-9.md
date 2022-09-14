@@ -1,5 +1,6 @@
-Artículo 9. Del Consejo Intermunicipal
-El Consejo Intermunicipal estará compuesto por tres miembros propietarios: dos representantes electos del seno de los Concejos Municipales y el alcalde, todos con voz y voto, por cada municipalidad integrante de la Federación. Estos tres delegados necesariamente deberán ser los tres que representan a la municipalidad en la Asamblea General. Asistirán con voz, pero sin voto: el Director Ejecutivo, así como cualquier otro funcionario que sea llamado en cumplimiento de sus funciones.
-Todo miembro de este Consejo Intermunicipal tendrá derecho al cobro de dietas, en el siguiente orden; los representantes de los Concejos Municipales un 100% del monto estimado en el Presupuesto Anual de la Federación, los alcaldes y alcaldesas no devengarán dietas por su representación.
-El monto de las dietas será fijado mediante acuerdo del Consejo Intermunicipal y podrá aumentarse anualmente hasta en un 20% en relación con el monto fijado en el periodo anterior.
-(Así reformado mediante sesión ordinaria N° 01-2017 del 26 de agosto del 2017)
+Artículo 9º—Del Consejo Intermunicipal
+El Consejo Intermunicipal estará compuesto por dos representantes de cada municipalidad afiliada:
+1. El titular de la Alcaldía Municipal, quien podrá ser sustituido en sus ausencias por el titular de la primera vicealcaldía.
+2. Quien ostente el cargo en la Presidencia Municipal o en su defecto un regidor propietario designado por mayoría simple de la totalidad de integrantes del Concejo Municipal, quien podrá ser sustituido por un regidor propietario en calidad de representante suplente. Ambos propietarios tendrán derecho a voz y voto, por cada municipalidad afiliada a la Federación.
+Asistirán con voz, pero sin voto: el Director Ejecutivo, así como cualquier otro funcionario que sea llamado en cumplimiento de sus funciones.
+Únicamente los representantes en calidad de propietarios provenientes del Concejo Municipal de las municipalidades afiliadas, tendrán derecho al cobro de dietas, por el monto estimado en el Presupuesto Anual de la Federación. Quienes ostenten el cargo de la Alcaldía no devengarán dietas por su representación.

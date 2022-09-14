@@ -1,1 +1,2 @@
-Artículo 29°— (Nota de Sinalevi: En la publicación de este reglamento, no aparece este artículo. No obstante el sistema exige una numeración consecutiva, por lo que se ha creado el mismo pero sin texto.)
+Artículo 29. Miembros Colaboradores
+Podrán ser colaboradores todas aquellas personas naturales o jurídicas que lo soliciten y manifiesten por escrito el contenido de su colaboración. El Consejo Intermunicipal resolverá sobre las solicitudes.

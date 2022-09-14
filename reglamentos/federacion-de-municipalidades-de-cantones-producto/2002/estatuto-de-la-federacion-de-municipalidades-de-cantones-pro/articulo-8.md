@@ -1,1 +1,6 @@
-Artículo 8°— (Nota de Sinalevi: En la publicación de este reglamento, no aparece este artículo. No obstante el sistema exige una numeración consecutiva, por lo que se ha creado el mismo pero sin texto.)
+Artículo 8º—De las competencias de la Asamblea General
+1. Fijar las políticas de la Federación.
+2. Aprobar el Plan Estratégico de la Federación.
+3. Aprobar las modificaciones del Estatuto.
+4. Aprobar la adhesión de nuevos miembros, así como su separación.
+5. Acordar la disolución de la Federación de Municipalidades.

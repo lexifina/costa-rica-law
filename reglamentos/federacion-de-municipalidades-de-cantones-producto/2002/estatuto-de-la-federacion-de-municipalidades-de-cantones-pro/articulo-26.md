@@ -1,1 +1,2 @@
-Artículo 26°— (Nota de Sinalevi: En la publicación de este reglamento, no aparece este artículo. No obstante el sistema exige una numeración consecutiva, por lo que se ha creado el mismo pero sin texto.)
+Artículo 26.—Contabilidad y Rendición de Cuentas
+La Federación está obligada a llevar la contabilidad de todas las operaciones, conforme lo establecido por el Código Municipal vigente y la legislación que le fuera aplicable.

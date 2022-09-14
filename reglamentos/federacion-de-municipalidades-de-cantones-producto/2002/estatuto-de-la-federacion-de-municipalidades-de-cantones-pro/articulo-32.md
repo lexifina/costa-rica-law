@@ -1,3 +1,1 @@
-CAPíITULO SÉTIMO
-Disolución y liquidación
-Artículo 32.—Causas de la disolución. La disolución de la Federación de Municipios podrá producirse por acuerdo adoptado en el Concejo Intermunicipal.
+Artículo 32.—Separaciones. Se iniciará con el acuerdo del Concejo Municipal y seguirá el mismo trámite que la adhesión. La separación podrá aprobarse por la Asamblea General de forma que no se perjudiquen los intereses públicos que la Federación representa y que los miembros quienes pretendan tal separación estén al corriente de sus obligaciones quedando garantizada la liquidación de los créditos que tuviesen pendientes. Seguirá el mismo trámite que una modificación de Estatuto.

@@ -1,1 +1,0 @@
-3°—Para el periodo 2000-2002 y de conformidad al artículo número nueve de estos Estatutos, interprétese suplente primero el que actualmente se desempeña como suplente del propietario y suplente segundo al otro delegado ante la Asamblea General.

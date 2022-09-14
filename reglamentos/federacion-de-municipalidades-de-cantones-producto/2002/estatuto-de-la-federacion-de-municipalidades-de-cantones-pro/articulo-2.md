@@ -1,1 +1,1 @@
-Artículo 2°— (Nota de Sinalevi: En la publicación de este reglamento, no aparece este artículo. No obstante el sistema exige una numeración consecutiva, por lo que se ha creado el mismo pero sin texto.)
+Artículo 2º—Denominación y domicilio. La Federación de Municipalidades constituida se denominará “Federación Municipal del Caribe Costarricense y Asociados” y tendrá su domicilio social en el Cantón de Siquirres, Barrio el Mangal, diagonal al Polideportivo.
