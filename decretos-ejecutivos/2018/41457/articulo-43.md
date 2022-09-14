@@ -1,4 +1,5 @@
-Artículo 43.- Querella en delitos de acción privada. Los honorarios mínimos no podrán ser inferiores a trescientos sesenta y tres mil colones. Salvo pacto escrito en contrario, los honorarios en la querella de acción privada se pagarán de la siguiente forma:
+Artículo 43.-Querella en delitos de acción privada. Los honorarios podrán ser de trescientos sesenta y tres mil colones. Salvo pacto escrito en contrario, los honorarios en la querella de acción privada se pagarán de la siguiente forma:
+(Así reformado el párrafo anterior por el artículo 1° del decreto ejecutivo N° 43704 del 14 de setiembre de 2022)
 a) El cincuenta por ciento (50%) por la presentación de la querella.
 b) Otro cincuenta por ciento (50%) por la celebración del juicio oral.
 c) En aquellos casos en que el proceso concluya por conciliación o retractación se

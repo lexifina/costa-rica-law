@@ -1,1 +1,2 @@
-Artículo 56.- Prenda: Por confección de una prenda, la cancelación de honorarios mínimos será de treinta mil doscientos cincuenta colones. Si se confecciona en escritura pública, los honorarios serán los previstos en la Tarifa General de labores de Notariado y se deberá pagar el cincuenta por ciento (50%) de dicha tarifa.
+Artículo 56.-Prenda: Por confección de una prenda, la cancelación de honorarios podrá ser de treinta mil doscientos cincuenta colones. Si se confecciona en escritura pública, los honorarios podrán ser los previstos en la Tarifa de Referencia de labores de Notariado y se deberá pagar el cincuenta por ciento (50%) de dicha tarifa.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 43704 del 14 de setiembre de 2022)

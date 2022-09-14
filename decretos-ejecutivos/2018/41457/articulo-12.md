@@ -1,4 +1,5 @@
-Artículo 12.- Asuntos migratorios: Salvo que el profesional y su cliente hayan convenido honorarios por hora profesional, se aplicarán las siguientes tarifas mínimas por la atención y tramitación de los siguientes asuntos administrativos:
+Artículo 12.-Asuntos migratorios: Salvo que el profesional y su cliente hayan convenido honorarios por hora profesional, podrán aplicarse las siguientes tarifas de referencia y de uso discrecional por la atención y tramitación de los siguientes asuntos administrativos:
+(Así reformado el párrafo anterior por el artículo 1° del decreto ejecutivo N° 43704 del 14 de setiembre de 2022)
 a) Por la tramitación de renovaciones, prórrogas y modificaciones de situación migratoria o la obtención de permiso laboral temporal, ciento veintiún mil colones.
 b) Por la tramitación de cédula de residencia, trescientos dos mil quinientos colones.
 c) Por la tramitación de naturalización de nacionalidad costarricense, trescientos sesenta y tres mil colones.

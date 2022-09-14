@@ -1,2 +1,2 @@
-Artículo 20.-Cobertura de los honorarios: Todos los honorarios anteriores incluyen las labores profesionales por los recursos ordinarios e incidentes, hasta segunda instancia. Si se formaliza recurso de casación los honorarios serán acordados por las partes y no podrán ser inferiores a seiscientos cinco mil colones.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 41930 del 22 de mayo de 2019)
+Artículo 20.-Cobertura de los honorarios: Todos los honorarios anteriores incluyen las labores profesionales por los recursos ordinarios e incidentes, hasta segunda instancia. Si se formaliza recurso de casación los honorarios serán acordados por las partes, pudiendo emplear como monto de referencia la suma de seiscientos cinco mil colones.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 43704 del 14 de setiembre de 2022)

@@ -1,4 +1,5 @@
-Artículo 75.- Mitad de la Tarifa General. El porcentaje general fijo se reducirá a la mitad, siempre con un mínimo de sesenta mil quinientos colones en los siguientes casos:
+Artículo 75.-Mitad de la Tarifa de Referencia. El porcentaje general fijo podrá reducirse a la mitad, con un monto de referencia de sesenta mil quinientos colones en los siguientes casos:
+(Así reformado por el artículo 1° del decreto ejecutivo N° 43704 del 14 de setiembre de 2022)
 a) Cuando se trate de actos o convenios de beneficencia o de interés social determinados por ley.
 b) Cancelación total o parcial de hipoteca y prenda por cualquier medio.
 c) Novación de deudor.
