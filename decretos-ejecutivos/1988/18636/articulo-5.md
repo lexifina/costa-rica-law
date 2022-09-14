@@ -18,7 +18,8 @@ Se entenderá como proyecto repetitivo, todo aquél cuyos planos se aplican cons
 En consecuencia, será necesario hacer los ajustes del caso para adaptar la ubicación de la obra que se repite a las condiciones de un sitio diferente.
 Los honorarios por la adecuación al nuevo terreno quedan cubiertos por el porcentaje establecido para anteproyectos (1,0%); este porcentaje se aplicar en forma plena para cada proyecto. En igual forma, los honorarios correspondientes a supervisión, inspección, dirección técnica, administración y asesoría para licitación y adjudicación, no son susceptibles de reducción al aplicarse a proyectos respectivos.
 La tarifa del proyecto repetitivo se aplicar en consecuencia, únicamente a los servicios de "planos de construcción y especificaciones", "presupuesto" y "programación de obras".
-La reducción de honorarios para proyecto repetitivo se calculará de acuerdo con la siguiente tabla, aplicada como porcentaje del honorario correspondiente a cada unidad del proyecto:
+La reducción de honorarios para proyecto repetitivo se calculará de acuerdo con la siguiente tabla, aplicada como porcentaje del honorarios profesionales de referencia y de uso de discrecional(*) correspondiente a cada unidad del proyecto:
+(*) (Así modificada su denominación por el artículo 1° del decreto ejecutivo N° 43709 del 14 de setiembre de 2022. Anteriormente se indicaba: “ honorario”)
 a) Por la primera unidad (unidad original ... ... ... ... ... ... 100%
 b) Por la segunda unidad ... ... ... ... ... ... ... ... ... ... 60%
 c) Por la tercera unidad .... ... ... ... ... ... ... ... .. ... 50%

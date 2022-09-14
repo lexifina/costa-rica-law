@@ -1,7 +1,10 @@
-ARTÍCULO 3°.-Base para el cálculo de honorarios profesionales
-De acuerdo con la clasificación y la naturaleza de los servicios, los honorarios profesionales se calcular n de acuerdo con las modalidades descritas en el Reglamento, que son las siguientes:
+ARTÍCULO 3°.-Base para el cálculo de honorarios profesionales de referencia y de uso de discrecional(*)
+(*) (Así modificada su denominación por el artículo 1° del decreto ejecutivo N° 43709 del 14 de setiembre de 2022. Anteriormente se indicaba: " honorarios profesionales")
+De acuerdo con la clasificación y la naturaleza de los servicios, los honorarios profesionales de referencia y de uso de discrecional(*) se calcular n de acuerdo con las modalidades descritas en el Reglamento, que son las siguientes:
+(*) (Así modificada su denominación por el artículo 1° del decreto ejecutivo N° 43709 del 14 de setiembre de 2022. Anteriormente se indicaba: " honorarios profesionales")
 A. Remuneración fijada mediante tarifas
-Cuando se trate de servicios de consultoría tarifables, tal y como se les clasifica en el artículo 17 del Reglamento, el trabajo del consultor ser remunerado como honorario.
+Cuando se trate de servicios de consultoría tarifables, tal y como se les clasifica en el artículo 17 del Reglamento, el trabajo del consultor ser remunerado como honorarios profesionales de referencia y de uso discrecional(*).
+(*) (Así modificada su denominación por el artículo 1° del decreto ejecutivo N° 43709 del 14 de setiembre de 2022. Anteriormente se indicaba: " honorario")
 Los honorarios para proyectos de edificaciones, tanto en la Fase 1 como en la Fase 2 descritas en dicho artículo, dependen del valor de la obra por realizarse. Para su cálculo se procede así:
 a) Honorarios provisionales
 Se Establecen para efectuar el pago parcial, previo al inicio de la etapa o de las etapas que se contraten, con base en una estimación del costo de la obra que se proyectar o diseñar . Este costo
@@ -17,7 +20,8 @@ Los honorarios se calcular n con base en el presupuesto que elabore el consultor
 -Asesoría para licitación y adjudicación
 Los honorarios se calcularán con base en el monto de la adjudicación.
 -Inspección, dirección técnica, administración, fiscalización de inversión
-Cuando se trate de servicios profesionales correspondientes a la Fase 2 (Inspección, dirección Técnica, administración, fiscalización de inversiones), los honorarios profesionales se calcularán con base en el costo final de la obra, compuesto por: el monto del proyecto original, el costo de las obras extra realizadas durante la construcción, reajustes por el escalamiento de precios ocurrido durante el periodo de ejecución y cualquier otro costo adicional propio de la construcción.
+Cuando se trate de servicios profesionales correspondientes a la Fase 2 (Inspección, dirección Técnica, administración, fiscalización de inversiones), los honorarios profesionales de referencia y de uso de discrecional(*) se calcularán con base en el costo final de la obra, compuesto por: el monto del proyecto original, el costo de las obras extra realizadas durante la construcción, reajustes por el escalamiento de precios ocurrido durante el periodo de ejecución y cualquier otro costo adicional propio de la construcción.
+(*) (Así modificada su denominación por el artículo 1° del decreto ejecutivo N° 43709 del 14 de setiembre de 2022. Anteriormente se indicaba: " honorarios profesionales")
 B. Precio global o suma alzada
 En general, se suele convenir un precio global con base en el presupuesto para la labor de consultor, que se subdivide de la siguiente manera:
 a) Gastos de personal (salarios m s cargas sociales), que suelen calcularse sobre la base de la dedicación de profesionales, expertos y ayudantes, expresados en meses /hombre u horas/horas.
@@ -34,4 +38,5 @@ c) Los gastos especiales o directos, de acuerdo con la definición que se da en 
 ch) Los gastos especiales o directos, de acuerdo con la definición que se da en el artículo 28 del Reglamento.
 El promotor para estos gastos que casi nunca pueden ser fijados con precisión antes del contrato, de acuerdo con su valor real o valor de factura, o con pautas convenidas oportunamente: ese valor se incrementar en un porcentaje mínimo de 10%, por concepto de gastos de administración.
 d) La utilidad o beneficio del consultor o la empresa consultora, que puede ser una suma fija o porcentaje de las sumas de las partidas anteriormente descritas en los apartados a), b) y c), con valor mínimo de 15%.
-Si se adopta como honorario o beneficio una suma fija, el contrato debe prever procedimientos para ajustarla cuando la tarea de un consultor aumente o disminuya fuera de un rango de participación, el cual debe estar claramente definido.
+Si se adopta como honorarios profesionales de referencia y de uso de discrecional(*) o beneficio una suma fija, el contrato debe prever procedimientos para ajustarla cuando la tarea de un consultor aumente o disminuya fuera de un rango de participación, el cual debe estar claramente definido.
+(*) (Así modificada su denominación por el artículo 1° del decreto ejecutivo N° 43709 del 14 de setiembre de 2022. Anteriormente se indicaba: " honorario")
