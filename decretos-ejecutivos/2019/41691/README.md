@@ -14,3 +14,4 @@ Arancel de honorarios mínimos de profesionales en las áreas de terapia física
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-05-29 | la propia norma |
+| 2 | 2022-09-14 | Decreto Ejecutivo 43702 (2022-09-14) |

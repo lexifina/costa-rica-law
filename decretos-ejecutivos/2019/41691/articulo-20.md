@@ -1,6 +1,7 @@
 CAPITULO VI
 De los honorarios del Terapeuta Ocupacional
-Artículo 20.- Tabla de aranceles de Terapia Ocupacional
+Artículo 20.-Tabla de aranceles de referencia y de uso discrecional de Terapia Ocupacional.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 43702 del 14 de setiembre de 2022)
 Aspecto a considerar | Monto Mínimo por sesión de una hora | Indicación especifica
 Primera Consulta | ¢20.000 | En consultorio o en domicilio
 Consutla subsecuente | ¢20.000 | En consultorio: cuando es el cliente quien se traslada a recibir la atención de TO

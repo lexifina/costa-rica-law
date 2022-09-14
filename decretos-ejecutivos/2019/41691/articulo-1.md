@@ -16,4 +16,5 @@ TERAPIA OCUPACIONAL, TERAPIA RESPIRATORIA E IMAGENOLOGÍA
 DIAGNÓSTICA Y TERAPÉUTICA"
 Capítulo l. -
 Objeto, Obligatoriedad y Definiciones
-Artículo 1.-Objeto. El presente arancel tiene por objeto establecer el monto mínimo y la forma de pago de los honorarios de las personas profesionales en las áreas de Terapia Física, Terapia del Lenguaje, Audiología, Terapia Ocupacional, Terapia Respiratoria, Imagenología Diagnóstica y Terapéutica.
+Artículo 1°-Objeto. El presente arancel tiene por objeto establecer el monto de referencia y de uso discrecional y la forma de pago de los honorarios de las personas profesionales en las áreas de Terapia Física, Terapia del Lenguaje, Audiología, Terapia Ocupacional, Terapia Respiratoria, Imagenología Diagnóstica y Terapéutica.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 43702 del 14 de setiembre de 2022)

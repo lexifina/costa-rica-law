@@ -1,6 +1,7 @@
 Capitulo V.-
 De los honorarios del Terapeuta Físico o Fisioterapeuta
-Artículo 19.- Tabla de aranceles de Terapia Física o Fisioterapia.
+Artículo 19.-Tabla de aranceles de referencia y de uso discrecional de Terapia Física o Fisioterapia.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 43702 del 14 de setiembre de 2022)
 Aspecto a valorar | Monto Mínimo por sesión
 Sector Urbano Area Metropolitana*. De una a dos sesiones por semana | ¢15.400
 Sector Urbano, Gran Area Metropolitana*. | ¢ 12.30

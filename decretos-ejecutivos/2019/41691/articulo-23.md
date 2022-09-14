@@ -1,6 +1,7 @@
 Capítulo IX.-
 De los honorarios del profesional en Audiología
-Artículo 23.- Tabla de aranceles de Audiología
+Artículo 23.-Tabla de aranceles de referencia y de uso discrecional de Audiología.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 43702 del 14 de setiembre de 2022)
 Aspecto a valorar | Monto mínimo por sesión
 Consulta Audiológica/ incluye consulta profesional, Audiometria Clínica e Impendanciometría | ¢45.000
 Audiometría Clínica | ¢30.000
