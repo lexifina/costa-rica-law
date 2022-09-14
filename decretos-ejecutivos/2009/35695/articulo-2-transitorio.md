@@ -1,1 +1,2 @@
-Transitorio II.—En todo artículo de este Reglamento que se haga mención al Reglamento de Honorarios, Tarifas y costos, la vigencia de dicha normativa, quedará sujeta a la efectiva publicación precisamente de esa normativa, monto a partir del cual tendrán plena vigencia.
+Transitorio II.-En todo artículo de este Reglamento que se haga mención al Reglamento de Honorarios, Tarifas y Costos, se entenderán como honorarios, tarifas y costos de referencia y de uso discrecional por prestación de servicios profesionales. La vigencia de dicha normativa, quedará sujeta a la efectiva publicación por parte del Poder Ejecutivo.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 43707 del 14 de setiembre de 2022)
