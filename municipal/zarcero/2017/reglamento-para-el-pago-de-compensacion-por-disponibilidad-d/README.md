@@ -15,3 +15,4 @@ Reglamento para el pago de compensación por disponibilidad, dedicación exclusi
 | --- | --- | --- |
 | 1 | 2017-08-16 | la propia norma |
 | 2 | 2018-04-09 | Reglamento municipal 0 (2018-04-09) |
+| 3 | 2022-09-14 | Reglamento municipal 0 (2022-09-14) |
