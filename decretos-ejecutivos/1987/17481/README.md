@@ -19,3 +19,4 @@ Reglamento de Tarifas de Honorarios para los Profesionales de Agrimensura, Topog
 | 4 | 2017-02-21 | Acuerdo 53 (2017-02-21) |
 | 5 | 2020-06-30 | Acuerdo 29 (2020-06-30) |
 | 6 | 2022-06-28 | Acuerdo 9 (2022-06-28) |
+| 7 | 2022-09-14 | Decreto Ejecutivo 43709 (2022-09-14) |

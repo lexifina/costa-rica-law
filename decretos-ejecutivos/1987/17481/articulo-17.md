@@ -1,4 +1,5 @@
-Artículo 17.—Los honorarios por concepto de curvas a nivel serán:
+Artículo 17.-Los honorarios de referencia y de uso discrecional(*) por concepto de curvas a nivel serán:
+(*) (Así modificada su denominación por el artículo 3° del decreto ejecutivo N° 43709 del 14 de setiembre de 2022. Anteriormente se indicaba: "Honorarios")
 El levantamiento de curvas de nivel incluye planos terminados, con intervalos de un metro. En donde:
 a) Terreno plano Y= c 6.550,00 h 4 c 6.550,00 i.
 b) Terreno ondulado Y= c 8.950,00 h 4 c 6.550,00 i.

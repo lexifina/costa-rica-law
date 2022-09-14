@@ -1,4 +1,5 @@
-Artículo 13.—Los honorarios de topografía para diseño de urbanizaciones serán los siguientes:
+Artículo 13.-Los honorarios de referencia y de uso discrecional(*) de topografía para diseño de urbanizaciones serán los siguientes:
+(*) (Así modificada su denominación por el artículo 3° del decreto ejecutivo N° 43709 del 14 de setiembre de 2022. Anteriormente se indicaba: "Honorarios")
 a) Plano topográfico. Aplíquense artículos 59 y 15 de este Reglamento.
 b) Plano General de Urbanización requerido por el Catastro Nacional c 10.800,00 i/hectárea.
 c) Localización de ejes, referencias y detalles con estaciones cada 10 m c 23.800,00 i/km.

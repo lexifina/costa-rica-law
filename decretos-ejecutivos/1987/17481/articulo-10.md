@@ -1,6 +1,7 @@
 CAPITULO III
 Tarifas de honorarios de topografía
-Artículo 10°—Por estudio preliminar para vías de transportes y sistemas de conducción, se establecen las siguientes tarifas:
+Artículo 10°-Por estudio preliminar para vías de transportes y sistemas de conducción, se establecen las siguientes tarifas de referencia y de uso discrecional(*):
+(*) (Así modificada su denominación por el artículo 3° del decreto ejecutivo N° 43709 del 14 de setiembre de 2022. Anteriormente se indicaba: "Tarifas")
 a) Localización preliminar de rutas:
 Terreno plano c 6.580,00 i/km.
 Terreno ondulado c 9.100,00 i/km.
