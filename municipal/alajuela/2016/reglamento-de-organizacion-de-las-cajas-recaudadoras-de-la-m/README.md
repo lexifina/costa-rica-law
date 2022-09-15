@@ -14,3 +14,4 @@ Reglamento de organización de las cajas recaudadoras de la Municipalidad de Ala
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-12-21 | la propia norma |
+| 2 | 2022-09-15 | Reglamento municipal 0 (2022-09-15) |
