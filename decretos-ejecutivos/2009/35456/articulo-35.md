@@ -1,1 +1,0 @@
-Artículo 35.—Improcedencia de la apelación por inadmisión. Si la apelación fuere improcedente, el Tribunal confirmará la resolución denegatoria dictada por el Registro de primera instancia, y el Juez Tramitador le remitirá el expediente y el legajo, para que éste sea agregado al principal.

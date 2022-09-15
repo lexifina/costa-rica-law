@@ -1,4 +1,0 @@
-Artículo 46.—Notificación por correo electrónico. Tendrán la validez y eficacia de un documento físico original, los archivos de documentos, mensajes, imágenes, bancos de datos y toda aplicación almacenada o transmitida por medios electrónicos e informáticos, que garanticen seguridad.
-La seguridad de la cuenta será responsabilidad del interesado.
-La notificación que se haga a una cuenta de correo electrónico, se tendrá por practicada a partir del día hábil siguiente del envío de la comunicación.
-Comprobada en la pantalla la práctica de la notificación, el Notificador dejará constancia de ello, consignando la hora y la fecha en que se practicó la notificación, la parte notificada, indicación expresa de haberse realizado la notificación por medio electrónico, identificando la resolución notificada (número, hora y fecha), consignando el emisor, el nombre y firma del notificador o Juez Tramitador que la envió electrónicamente.

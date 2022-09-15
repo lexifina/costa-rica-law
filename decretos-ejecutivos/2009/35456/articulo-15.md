@@ -1,2 +1,0 @@
-Artículo 15.—De las sesiones administrativas. Las sesiones administrativas podrán ser ordinarias y extraordinarias, de conformidad con lo dispuesto al efecto en la Ley General de la Administración Pública, y tendrán como objeto conocer y resolver acerca de los asuntos concernientes a la administración del Tribunal, enlistados en el respectivo orden del día.
-El mínimo requerido para que pueda sesionar válidamente el Tribunal en su función administrativa, estará compuesto por tres de sus miembros. Los asuntos serán resueltos por mayoría simple.

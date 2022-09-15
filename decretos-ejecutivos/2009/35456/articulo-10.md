@@ -1,1 +1,0 @@
-Artículo 10.—Del Juez Tramitador. El Juez Tramitador tendrá, en lo que respecta a los procedimientos seguidos en el Tribunal, las facultades y atribuciones descritas en este Reglamento, así como en el Manual Institucional de Clases, y será suplido, cuando corresponda, por el suplente que designe el Tribunal.

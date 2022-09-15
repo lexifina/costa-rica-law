@@ -1,2 +1,0 @@
-Artículo 17.—De las sesiones sustantivas. Las sesiones sustantivas tendrán como objeto conocer y resolver acerca de los recursos de apelación interpuestos contra las resoluciones y actos finales en materia de calificación registral dictados por todos los Registros que conforman el Registro Nacional, y de los recursos de apelación contra los ocursos provenientes de dichos Registros.
-Para el conocimiento de los casos de la función sustantiva del Tribunal, se requerirá la presencia de la totalidad de sus miembros.

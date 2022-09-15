@@ -1,1 +1,0 @@
-Artículo 4º—Plataforma tecnológica. El Tribunal podrá hacer uso de todos los recursos tecnológicos disponibles para la ejecución de sus procedimientos, teniendo los soportes magnéticos el mismo valor y efecto jurídico que los procedimientos incorporados en soportes de papel.
