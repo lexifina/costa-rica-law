@@ -1,0 +1,4 @@
+Artículo 7º-Mecánica de la Promoción Nuevos Tiempos Reventados (300X):
+1. Por tiempo limitado, se incorpora a la modalidad "Reventados" una bolita que paga 300 veces (300X).
+2. La bolita reventada (300X) paga 300 veces sobre la inversión específica que el participante haya decidido adicionar para Nuevos Tiempos Reventados.
+3. Los premios que retribuyen las 300 veces sobre una inversión a la modalidad "Reventados", son independientes de las 70 veces que se pagan por acertar en la modalidad "Exacto". Por ende, si el número apostado es el favorecido, el participante gana 70 veces sobre la inversión específica que haya realizado en la modalidad "Exacto", y si sale la bolita reventada que representa esta Promoción, el participante podrá ganar adicionalmente, 300 veces sobre la inversión específica que haya realizado en Reventados, siempre y cuando se juegue y acierte la modalidad "Exacto" y salga premiada la bolita reventada.
