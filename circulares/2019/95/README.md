@@ -13,3 +13,4 @@ Permisos con Goce de Salario sin sustitución para actividades de capacitación
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-05-30 | la propia norma |
+| 2 | 2022-09-15 | Circular 179 (2022-09-15) |
