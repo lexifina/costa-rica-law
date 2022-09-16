@@ -1,0 +1,2 @@
+Artículo 72.-Revelar los intereses privados comprometedores. Los funcionarios públicos están obligados a informar formalmente a su jefe inmediato o instancia superior jerárquica, sea por escrito o por otro medio verificable, sobre los intereses privados que sean potencialmente generadores de conflictos de intereses potenciales o aparentes respecto a las funciones o asuntos a su cargo, de manera transparente, oportuna y oficiosa.
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 43974 del 16 de setiembre del 2022)

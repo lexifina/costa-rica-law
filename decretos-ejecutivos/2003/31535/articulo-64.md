@@ -1,3 +1,2 @@
-CAPÍTULO XVII
-De las peticiones y reclamos
-Artículo 64.—Sugerencias de los servidores. Los servidores deberán ser atendidos en sus sugerencias y en general, en todo aquello que estimule su iniciativa personal, su eficiencia y el mejoramiento de las condiciones de su trabajo.
+Artículo 64.-Regalos del personal a cargo. Los funcionarios en desempeño de cargos de jefatura, incluso en forma transitoria, no deberán dar ni recibir regalos, invitaciones o atenciones sociales del personal a su cargo, fuera del convencionalismo social, que puedan dar motivo razonable a que un observador dude de su imparcialidad en el ejercicio de las funciones de supervisión y disciplina que les corresponden respecto a éstos.
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 43974 del 16 de setiembre del 2022)

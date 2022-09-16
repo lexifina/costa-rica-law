@@ -1,0 +1,2 @@
+Artículo 94.-Normas supletorias. Todo lo no previsto en este Reglamento, se resolverá de acuerdo con la Ley General de la Administración Pública, Estatuto de Servicio Civil y su Reglamento, Código de Trabajo y demás normas vigentes aplicables al caso.
+(Así modificada su numeración por el artículo 1° del decreto ejecutivo N° 43974 del 16 de setiembre del 2022 que lo traspasó del antiguo artículo 69 al artículo 94)

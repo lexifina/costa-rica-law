@@ -1,0 +1,2 @@
+Artículo 88.-Efectos de la evaluación. El resultado de la evaluación del desempeño, será un factor por considerar, aparte de la eficiencia para efectos de adiestramiento y capacitación, ascensos, concesión de permisos y en la reducción forzosa de personal.
+(Así modificada su numeración por el artículo 1° del decreto ejecutivo N° 43974 del 16 de setiembre del 2022 que lo traspasó del antiguo artículo 63 al artículo 88)

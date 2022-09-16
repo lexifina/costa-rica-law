@@ -1,1 +1,2 @@
-Artículo 69.—Normas supletorias. Todo lo no previsto en este Reglamento, se resolverá de acuerdo con la Ley General de la Administración Pública, Estatuto de Servicio Civil y su Reglamento, Código de Trabajo y demás normas vigentes aplicables al caso.
+Artículo 69.-Solicitud de colaboración para la institución. Los funcionarios públicos no deberán solicitar servicios o recursos especiales para la institución, cuando dicha aportación comprometa o condicione en alguna medida la toma de decisiones a cargo de esa institución.
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 43974 del 16 de setiembre del 2022)

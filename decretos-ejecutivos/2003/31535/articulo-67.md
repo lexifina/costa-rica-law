@@ -1,3 +1,2 @@
-CAPÍTULO XVIII
-Disposiciones finales
-Artículo 67.—Del expediente personal del servidor. El Ministerio llevará para cada empleado un expediente personal, debidamente foliado, que contendrá los datos sobre estudios y títulos del servidor, detalle de trabajos anteriores, anotaciones sobre el ejercicio de las funciones, calificaciones periódicas, entre otras.
+Artículo 67.-Prestación de servicios a terceros. Ningún funcionario público deberá patrocinar, representar o prestar servicios remunerados o no, directa o indirectamente, a personas interesadas en asuntos tramitados en su oficina, sea respecto a éstos o cualquier otro tipo de asunto.
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 43974 del 16 de setiembre del 2022)

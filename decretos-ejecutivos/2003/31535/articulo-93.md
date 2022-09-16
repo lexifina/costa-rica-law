@@ -1,0 +1,2 @@
+Artículo 93.-Derechos adquiridos. El presente Reglamento no perjudica los derechos jurídicamente adquiridos por los servidores del Ministerio de Gobernación, Oficina de Control Nacional de Radio, y de la Oficina de Control de Propaganda.
+(Así modificada su numeración por el artículo 1° del decreto ejecutivo N° 43974 del 16 de setiembre del 2022 que lo traspasó del antiguo artículo 68 al artículo 83)

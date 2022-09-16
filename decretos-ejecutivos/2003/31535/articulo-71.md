@@ -1,2 +1,2 @@
-Artículo 71.—Rige a partir de su publicación en el Diario Oficial.
-Dado en la Presidencia de la República.—San José, a las catorce horas del día veintiocho de mayo del dos mil tres.
+Artículo 71.-Aceptación de trato preferente. Los funcionarios públicos no deberán aceptar ningún trato de favor o situación que implique privilegio o ventaja injustificada por parte de personas físicas, entidades públicas o privadas. Asimismo, deberán someterse a las mismas condiciones o exigencias previstas para el resto de las personas en las operaciones financieras, obligaciones patrimoniales o negocios jurídicos que realicen.
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 43974 del 16 de setiembre del 2022)
