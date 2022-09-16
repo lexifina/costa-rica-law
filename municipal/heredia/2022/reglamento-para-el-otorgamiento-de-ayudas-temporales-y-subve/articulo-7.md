@@ -1,0 +1,1 @@
+Artículo 7.- Expediente. La oficina de Gestión Social Inclusiva confeccionará un expediente por cada solicitud recibida; en el cual, constarán todas las actuaciones realizadas durante la atención de la petición hasta su finalización, de forma cronológica y debidamente foliadas.

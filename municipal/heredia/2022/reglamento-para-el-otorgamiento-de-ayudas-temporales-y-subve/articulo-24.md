@@ -1,0 +1,2 @@
+Artículo 24.- Plazo para el retiro en cheque. Las ayudas temporales y subvenciones que sean aprobadas y no se retiren en el plazo de quince días naturales desde la fecha que se comunicó el acuerdo municipal, serán utilizadas para atender otras solicitudes.
+Para ello, la Dirección Financiera Administrativa comunicará al Concejo Municipal la situación, con la finalidad de que se autorice liberar el dinero y reasignarlo a otras peticiones. Esta condición deberá quedar evidenciada en el expediente de la persona o centro solicitante.

@@ -1,0 +1,4 @@
+CAPÍTULO III
+AYUDAS TEMPORALES
+Artículo 13.- Tipo. La ayuda será en dinero de acuerdo con las necesidades que determine el estudio técnico realizado por la Oficina de Gestión Social Inclusiva y su fin será coadyuvar los efectos adversos de la desgracia o infortunio, por medio de la adquisición de alimentos básicos, enseres y materiales de construcción. No se darán ayudas temporales por desempleo.
+Como una excepción calificada y respetando el límite económico previsto en el numeral 8 de este Reglamento, podrá autorizarse una ayuda para el pago de alquiler de vivienda, para ello el informe recomendativo deberá constatar que es la única opción para solucionar temporalmente la situación y determinar proporcionalmente la cantidad de los meses a cubrir, que en ningún caso podrá ser superior a tres meses.

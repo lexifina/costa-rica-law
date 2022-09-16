@@ -1,0 +1,3 @@
+CAPÍTULO II
+LINEAMIENTOS
+Artículo 4.- Disponibilidad presupuestaria. El otorgamiento de ayudas temporales y subvenciones estará condicionado a la existencia de contenido presupuestario. Para tal efecto, la Municipalidad asignará anualmente al menos 50 millones de colones anuales en el presupuesto ordinario para ayudas temporales y subvenciones. La presupuestación de la partida será posible siempre que el Gobierno Local cuente con los recursos económicos suficientes o estos no sean indispensables para la atención de otras situaciones urgentes del cantón, o que signifiquen un peligro inminente para la población o corresponda a un interés público superior.

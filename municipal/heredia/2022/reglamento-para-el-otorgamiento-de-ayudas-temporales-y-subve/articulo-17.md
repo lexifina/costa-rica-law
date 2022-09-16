@@ -1,0 +1,3 @@
+Artículo 17.- Plazo para solicitar. Las solicitudes deberán ser presentadas en el respectivo formulario ante la Oficina de Gestión Social Inclusiva o ingresadas a la plataforma digital, en un plazo máximo de treinta días naturales siguientes al día en que ocurrió la situación de fuerza mayor o infortunio.
+Si la petición es presentada posterior a ese plazo, se rechazará la solicitud por extemporánea.
+No obstante, se podrá darle trámite cuando la persona demuestre que influyó alguna causa legal o física que le imposibilitó efectuar la gestión en tiempo y esto deberá constar en el expediente e informe recomendativo.
