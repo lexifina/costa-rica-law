@@ -1,1 +1,0 @@
-Artículo 3º—Esta resolución deja sin efecto la resolución número RES-DGH-075-2018, de las trece horas del día veintinueve de octubre del año dos mil dieciocho, así como, cualquier otra disposición que se le oponga.
