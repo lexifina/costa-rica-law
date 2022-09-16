@@ -1,0 +1,1 @@
+ARTÍCULO 8°-Publicación de la CBTBIF. Una vez cumplidas las disposiciones normativas indicadas en el presente decreto y en la Ley N º 9914 del 19 de noviembre de 2020, el MH el MEIC y MINSA recomendarán al Poder Ejecutivo que emita vía decreto ejecutivo el Reglamento de Lista de Bienes que conforman la CBTBIF y posteriormente se procederá con la publicación en el Diario Oficial.
