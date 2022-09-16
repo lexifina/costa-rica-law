@@ -1,44 +1,29 @@
-Artículo 4-Las tarifas actualizadas y autorizadas por este Decreto se aplicarán de acuerdo a la siguiente tabla:
+Artículo 4º-Las tarifas actualizadas y autorizadas por este Decreto se aplicarán de acuerdo a la siguiente tabla:
 [imagen]
-Se incluye un 19 % como administración y utilidad, además el costo del operador
 [imagen]
-Se incluye un 19 % como administración y utilidad, además el costo del operador
 [imagen]
-Se incluye un 19 % como administración y utilidad, además el costo del operador
 [imagen]
-Se incluye un 19 % como administración y utilidad, además el costo del operador
 [imagen]
-Se incluye un 19 % como administración y utilidad, además el costo del operador
 [imagen]
-Se incluye un 19 % como administración y utilidad, además el costo del operador
 [imagen]
-Se incluye un 19 % como administración y utilidad, además el costo del operador
 [imagen]
-Se incluye un 19 % como administración y utilidad, además el costo del operador
 [imagen]
-Se incluye un 19 % como administración y utilidad, además el costo del operador
 [imagen]
-Se incluye un 19 % como administración y utilidad, además el costo del operador
 [imagen]
-Se incluye un 19 % como administración y utilidad, además el costo del operador
 [imagen]
-Se incluye un 19 % como administración y utilidad, además el costo del operador
 [imagen]
-Se incluye un 19 % como administración y utilidad, además el costo del operador
 [imagen]
-Se incluye un 19 % como administración y utilidad, además el costo del operador
 [imagen]
-Se incluye un 19 % como administración y utilidad, además el costo del operador
 [imagen]
-Se incluye un 19 % como administración y utilidad, además el costo del operador
 [imagen]
-Se incluye un 19 % como administración y utilidad, además el costo del operador
+Nota: Se incluye quemador, control de quemador, inyección de asfalto, slinger, bomba de combustible, motores eléctricos y carretas; no incluye costos de combustible de quemador ni costos eléctricos
 [imagen]
-Se incluye un 19 % como administración y utilidad, además el costo del operador
 [imagen]
-Se incluye un 19 % como administración v utilidad. además el costo del operador
 [imagen]
-Se incluye un 19 % como administración y utilidad, además el costo del operador
 [imagen]
-Se incluye un 19 % como administración v utilidad, además el costo del operador
-(Así reformado por el artículo 1° del decreto ejecutivo N° 41883 del 24 de junio de 2019)
+[imagen]
+[imagen]
+[imagen]
+[imagen]
+Nota: Dicho documento también estará disponible en la página Web oficial del Conavi https://conavi.go.cr/ proveedur%C3%Ada
+(Así reformado por el artículo 1° del decreto ejecutivo N° 43715 del 16 de setiembre de 2022)
