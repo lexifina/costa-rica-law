@@ -10,3 +10,5 @@ Artículo 3°- Abreviaturas: Para efectos de interpretación del presente reglam
 9. RAM: Reacción Adversa a Medicamentos.
 10. SIVUCE: Sistema de la Ventanilla Única de Comercio Exterior.
 11. VIH: Virus de la Inmunodeficiencia Humana.
+12. ESPII: Emergencia de Salud Pública de Importancia Internacional.
+(Así adicionado el inciso anterior por el artículo 2° del decreto ejecutivo N° 43787 del 16 de setiembre del 2022)

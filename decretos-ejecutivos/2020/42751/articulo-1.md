@@ -14,10 +14,15 @@ CONSIDERANDO:
 9.- Que de conformidad con el artículo 12 bis del Decreto Ejecutivo No. 37045 de 22 de febrero de 2012 "Reglamento a la Ley de Protección al Ciudadano del Exceso de Requisitos y Trámites Administrativos" y su reforma, se considera que por la naturaleza del presente reglamento no es necesario completar la Sección I denominada Control Previo de Mejora Regulatoria, que conforma el formulario de Evaluación Costo Beneficio, toda vez que el mismo no establece trámites ni requerimientos nuevos para el administrado.
 POR TANTO:
 DECRETAN
-"Reglamento para la autorización sanitaria para el desalmacenaje y adquisición de
-medicamentos no registrados por entidades estatales con funciones de salud pública o seguridad social y
-para la autorización del desalmacenaje en caso de necesidad pública"
-(Así modificada la denominación del título anterior por el artículo 1° del decreto ejecutivo N° 42943 del 25 de febrero de 2021)
+"REGLAMENTO PARA LA AUTORIZACIÓN SANITARIA PARA EL DESALMACENAJE Y ADQUISICIÓN DE
+MEDICAMENTOS NO REGISTRADOS POR ENTIDADES
+ESTATALES CON FUNCIONES DE SALUD PÚBLICA O
+SEGURIDAD SOCIAL Y PARA LA AUTORIZACIÓN DEL
+DESALMACENAJE EN CASO DE NECESIDAD PÚBLICA
+O DE EMERGENCIA DE SALUD PÚBLICA DE
+IMPORTANCIA INTERNACIONAL
+(Así modificada la denominación del título anterior por el artículo 1° del decreto ejecutivo N° 43787 del 16 de setiembre del 2022)
 CAPÍTULO I
 DISPOSICIONES GENERALES
-Artículo 1º- Objeto y ámbito de aplicación. El presente reglamento tiene como objeto regular las autorizaciones para la adquisición de medicamentos no registrados por parte de la Caja Costarricense del Seguro Social y cualquier otra entidad estatal con funciones de salud pública o seguridad social de conformidad con lo establecido en el artículo 117 de la Ley General de Salud, incluidas las autorizaciones para la importación de medicamentos no registrados por parte de dichas entidades en caso de necesidad pública.
+Artículo 1º-Objeto y ámbito de aplicación. El presente reglamento tiene como objeto regular las autorizaciones para la adquisición de medicamentos no registrados, por parte de la Caja Costarricense de Seguro Social y cualquier otra entidad estatal con funciones de salud pública o seguridad social, de conformidad con lo establecido en el artículo 117 de la Ley General de Salud, incluidas las autorizaciones para la importación de medicamentos no registrados, por parte de dichas entidades en caso de necesidad pública o de una Emergencia de Salud Pública de Importancia Internacional declarada por la Organización Mundial de la Salud.
+(Así reformado por el artículo 2° del decreto ejecutivo N° 43787 del 16 de setiembre del 2022)
