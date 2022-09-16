@@ -1,0 +1,1 @@
+Artículo 24: El pago de REs a FONAFIFO se realizará con base en la REs cedidas que se acrediten. Estos recursos serán girados por Funbam directamente al Fideicomiso 544-Banco Nacional de Costa Rica - Fondo Nacional de Financiamiento Forestal.

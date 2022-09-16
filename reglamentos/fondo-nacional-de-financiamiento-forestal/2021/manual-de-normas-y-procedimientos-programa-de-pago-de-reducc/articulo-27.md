@@ -1,0 +1,3 @@
+CAPÍTULO III. DE CONTRATOS GRUPALES CON ORGANIZACIONES
+Artículo 27: Las organizaciones debidamente inscritas pueden presentar solicitudes grupales en las que incluirán varios propietarios de fincas con bosque. La solicitud además de cumplir con los requisitos señalados para las propiedades inscritas, deberá venir acompañada de un poder especial que cada uno de los propietarios otorga a la organización para actuar en su nombre y recibir el pago.
+El contrato CREF se firmará con cada organización y en este se incluirán las áreas de las fincas que la hayan autorizado a gestionar el CREF y manejar el proyecto.

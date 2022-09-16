@@ -1,0 +1,4 @@
+Artículo 14: Si se determina la existencia de sobreposiciones del área efectiva de la solicitud, se procederá de la siguiente forma:
+a) Si el área efectiva derivada del plano catastrado de finca privada no inscrita se sobrepone con un área de PNE que se encuentra individualizada en un inmueble inscrito en el Registro Nacional, no procede la firma del CREF con el poseedor privado.
+b) Si el área efectiva derivada del plano catastrado de finca privada no inscrita se sobrepone con el plano de otra área efectiva de finca privada inscrita, no procederá la firma del CREF con el poseedor.
+c) Si el área efectiva derivada del plano catastrado de finca privada no inscrita se sobrepone con el plano de otra área efectiva de finca privada no inscrita, no procederá la firma del CREF con ninguno de los poseedores.

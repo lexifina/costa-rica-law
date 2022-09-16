@@ -1,0 +1,1 @@
+Artículo 28: Los contratos CREF suscritos con organizaciones y que comprometen áreas que son propiedad de varias personas, serán pagados a dichas organizaciones. Asimismo, la organización será la encargada de realizar el pago o la devolución de beneficios a cada uno de los propietarios, en las condiciones que así lo hayan pactado.

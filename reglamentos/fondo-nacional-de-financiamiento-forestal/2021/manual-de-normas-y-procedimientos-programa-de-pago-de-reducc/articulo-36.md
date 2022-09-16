@@ -1,0 +1,1 @@
+Artículo 36: Los pagos de las REs correspondientes a SINAC, serán realizados por FUNBAM, de acuerdo a lo establecido en el convenio entre el MINAE y FUNBAM y el cumplimiento del ERPA, la entrega y seguimiento del Plan de Fortalecimiento establecido en el Plan de Distribución de Beneficios y los respectivos informes de ejecución y realización de actividades del Plan.
