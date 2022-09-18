@@ -1,0 +1,4 @@
+Artículo 60. El Proyecto de renovación urbana.
+Intervención específica en una determinada área urbana que contribuye en la transformación y el desarrollo del territorio; puede incluir espacios públicos, edificaciones, infraestructura y servicios urbanos.
+Para el desarrollo de actuaciones de renovación urbana, la Municipalidad deberá desarrollar el Proyecto de Renovación Urbana, que contendrá la planificación y programación de las actuaciones a realizar a efectos de lograr los objetivos en las áreas señaladas a tal efecto en el Mapa de Zonificación del Plan Regulador como Zonas de Renovación Urbana, las propuestas en el Proyecto de Renovación Urbana deberán ser aprobadas previamente por la Municipalidad e INVU.
+El Proyecto de Renovación Urbana podrá surgir por iniciativa pública o privada. En este último caso, el proyecto deberá ser aprobado por el INVU en primera instancia y luego por la Municipalidad.

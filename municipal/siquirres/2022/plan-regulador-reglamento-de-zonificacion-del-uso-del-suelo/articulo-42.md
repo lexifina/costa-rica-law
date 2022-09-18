@@ -1,0 +1,6 @@
+Artículo 42. Red vial cantonal: definición
+Corresponde su administración a las municipalidades. Estará constituida por los caminos públicos, no incluidos por el Ministerio de Obras Públicas y Transportes dentro de la Red Vial Nacional, como: Caminos vecinales, calles locales y caminos no clasificados cuya administración corresponde a la municipalidad de Siquirres. La Junta Cantonal de Vialidad, se encarga del planeamiento y ejecución de contratos, para la realización de obras en las calles, carreteras y caminos del cantón.
+De acuerdo con la Ley 5060 (Ley General de Caminos Públicos) la definición de caminos por tipo:
+a) Caminos vecinales: Caminos públicos que suministren acceso directo a fincas y a otras actividades económicamente rurales; unen caseríos y poblados con la Red vial nacional, y se caracterizan por tener bajos volúmenes de tránsito y altas proporciones de viajes locales de corta distancia.
+b) Calles locales: Vías públicas incluidas dentro del cuadrante de un área urbana o las cabeceras de distrito, no clasificadas como travesías urbanas de la Red vial nacional.
+c) Caminos no clasificados: Caminos públicos no clasificados dentro de las categorías descritas anteriormente, tales como caminos de herradura, sendas, veredas, que proporcionen acceso a muy limitados usuarios, quienes sufragarán los costos de mantenimiento y mejoramiento.

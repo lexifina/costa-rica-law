@@ -1,0 +1,27 @@
+Artículo 5. Clasificación funcional del suelo por zonas de uso
+Con el fin de regular las diferentes actividades que se desarrollan en el Cantón y contribuir ala consolidación, regulación e impulso de las diferentes áreas de crecimiento urbano, de acuerdo con su vocación, uso predominante y funcionalidad, el territorio del Cantón, en términos generales, se zonifica en diferentes zonas de uso, que son las siguientes:
+Zona Marítimo Terrestre (ZMT)
+Zona Reserva Forestal Río Pacuare (ZRFRP)
+Zona Protectora Río Siquirres (ZPRS)
+Zona Parque Nacional Barbilla (ZPNB)
+Zona Reserva Indígena Cabécar Nairi Awari (ZRICNA)
+Zona Reserva Forestal Cordillera Volcánica Central (ZRFCVC)
+Zona de Humedales Lacustrinos Bonilla Bonillita (ZHLBB)
+Zona Protección Humedales (ZPH)
+Zona Protección de Áreas de Captación Hídrica (ZCH)
+Zona Agrícola Uno (ZAG-1)
+Zona Agrícola Dos (ZAG-2)
+Zona agrícola Tres (ZAG-3)
+Zona Agroecoturística Uno (ZAET-)
+Zona Agroecoturística Dos (ZAET-2)
+Zona Mixta Comercial Industrial (ZMCI)
+Zona Mixta Comercial y Servicios (ZCS)
+Zona Residencial Alta Densidad (ZRAD)
+Zona Residencial Media Densidad (ZRMD)
+Zona Residencial Baja Densidad (ZRBD)
+Zona Público Institucional Comercial Siquirres (ZPICS)
+Zona Público Institucional Comercial Periférico (ZPICP)
+Zona Embalse Proyecto Hidroeléctrico Reventazón (ZEPHR)
+Zona de Protección (ZP)
+Todas las zonas anteriormente citadas están identificadas y delimitadas en el Mapa de Zonificación.
+Cuando un lote o finca quede dividido por un límite entre zonas, las regulaciones de cualquiera de ellas podrán o no extenderse al resto del lote o finca, a criterio técnico, debidamente sustentado, de la Municipalidad, hasta una distancia máxima de 50 metros en zona urbano residencial y 100 metros de dicho límite en zona agropecuario forestal y otras zonas, excepto en la zona Marítima Terrestre y en las zonas de protección.

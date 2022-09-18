@@ -1,0 +1,4 @@
+Artículo 15. Retiros de la construcción
+Los retiros de la construcción medidos a partir de la línea de propiedad no implicarán expropiación de las fajas o porciones de lote que queden sin edificar, como tampoco lo implica el ajustarse a la línea de edificación. Para determinar el retiro sobre nacientes, ríos y quebradas, debe aplicarse lo dispuesto en Ley Forestal N°. 7575 art. 33 y 34, todo plano que colinde con cauces fluviales debe solicitar alineamiento en la Dirección de Urbanismo del INVU
+En los lotes esquineros, el retiro posterior se podrá considerar, lateral o viceversa total o parcialmente, de acuerdo con el criterio del Departamento Técnico correspondiente.
+En el caso de las carreteras en que el Ministerio de Obras Públicas y Transportes fija su propio alineamiento, prevalecerá el retiro o alineamiento mayor.

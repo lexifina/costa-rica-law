@@ -1,0 +1,5 @@
+Artículo 21. Interpretación de las normas del presente reglamento
+En caso de interpretación de las normas del presente Reglamento, será la Comisión de Plan Regulador, nombrada por el Concejo de la Municipalidad, la que estudiará la normativa para recomendar la decisión final, la cual se tomará mediante un acuerdo del Concejo basado en el dictamen de la Comisión.
+Cualquier omisión, o faltante en definiciones del Plan Regulador del cantón de Siquirres será subsanado aplicando lo establecido en la legislación vigente, o sea la explicita norma legal o disposición reglamentarias actuales.
+Serán aplicadas la jurisprudencia emanada desde la Procuraduría General de la Republica ensus criterios, los razonamientos de la Dirección de Urbanismo del INVU, la contenida en los fallos de la Sala Constitucional o en las resoluciones de los Tribunales de la Sede Contencioso Administrativo.
+La Dirección de Control Urbano, deberá participar en cualquier decisión que tomen las autoridades administrativas y las comisiones internas, previo a dar usos de suelo vinculados con licencias municipales.

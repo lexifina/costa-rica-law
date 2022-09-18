@@ -1,0 +1,3 @@
+Artículo 115. Incorporación de los planos de un proyecto al Mapa Oficial.
+En el momento en que la Municipalidad, o bien la Dirección de Urbanismo del INVU -en los casos en que así sean competentes-, visa o aprueba los planos en conjunto del proyecto, éstos se convierten en parte del Mapa Oficial y con ello en bienes públicos las áreas y servicios comunes y vías públicas que en él se describan.
+El mapa al que se refiere el párrafo anterior es el Mapa Oficial, que se tramita para efectos de la inscripción de los lotes resultantes una vez construida la urbanización, y cuando el urbanizador realice el traspaso de las áreas públicas al municipio, momento en que está en la obligación de levantar los planos de cada terreno según quedó físicamente el proyecto.

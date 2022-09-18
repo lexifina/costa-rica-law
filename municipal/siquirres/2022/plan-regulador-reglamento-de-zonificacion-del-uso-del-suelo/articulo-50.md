@@ -1,0 +1,2 @@
+Artículo 50. Derechos de vía en la red vial cantonal
+En la sección de los caminos públicos donde la Municipalidad tiene competencias, denominada RED VIAL CANTONAL, esta Municipalidad mantendrá inspecciones constantes que permitan monitorear el libre acceso y flujo del tránsito sobre los caminos y no otorgará permisos de construcción de obras que violen los derechos de vía de las calles. Referirse para todos los efectos a la Ley de Caminos y su reglamento.

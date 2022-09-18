@@ -1,0 +1,2 @@
+Artículo 98. Canoas y bajantes. Drenaje pluvial
+No se permitirá caída libre de aguas pluviales sobre la vía pública, en las Zonas Urbanas determinadas en el Reglamento de Zonificación, debiendo disponerse para tal efecto los bajantes pluviales desde techos, balcones, voladizos y cualquier otro saliente. La caída libre podrá implementarse en las zonas rurales, siempre que el agua producida sea vertida sobre una cama de material permeable que permita la conducción del agua hacia el subsuelo.

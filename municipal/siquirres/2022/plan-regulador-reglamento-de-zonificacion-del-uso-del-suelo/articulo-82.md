@@ -1,0 +1,2 @@
+Artículo 82. Objetivo
+Normar y dictar las reglas en materia de construcción a escala y alcance local, tales como permisos de construcción, alineamientos municipales, demoliciones, excavaciones, entre otros, para lograr la seguridad, salubridad, protección ambiental y ornato de las estructuras o edificaciones, sin detrimento de la normativa contemplada en la Ley de Construcciones N° 833 y su Reglamento, y el Reglamento de Construcciones del INVU vigente.

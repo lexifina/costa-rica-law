@@ -1,0 +1,18 @@
+CAPÍTULO II. Fraccionamientos
+En este capítulo se definen las condiciones técnicas que se requieren para permitir fraccionamientos y los requisitos que se deben cumplir para toda división de terrenos.
+Artículo 76. Definición
+Fraccionamiento: Es la división de cualquier predio con el fin de vender, traspasar, negociar, repartir, explotar o utilizar en forma separada, las parcelas resultantes; incluye tanto particiones de adjudicación judicial o extrajudicial, localizaciones de derecho indivisos y meras segregaciones en cabeza del mismo dueño, como las situadas en urbanizaciones o construcciones nuevas que interesen al control de la formación y uso urbano de los bienes inmuebles.
+1. Todo fraccionador de terrenos situados fuera del cuadrante de las ciudades y todo urbanizador cederá gratuitamente al uso público tanto las áreas destinadas a vías como las correspondientes a parque y facilidades comunales. Los porcentajes por ceder son los establecidos en el Artículo 77 de este reglamento. No obstante, la suma de los terrenos que deben cederse para áreas públicas no debe ser menor de un 5% ni mayor de un 20% del área urbanizable, salvo en vivienda de interés social, en cuyo caso el mínimo será el 10%, de la superficie total del terreno a fraccionar o urbanizar. Se exceptúa de esta obligación de ceder áreas para parques y facilidades comunales a los simples fraccionamientos de parcelas en áreas previamente urbanizadas.
+2. En el supuesto de que se pretenda segregar un lote cuyas características geométricas no permitan cumplir con el frente mínimo establecido para la zona o bien, alguno de los lotes resultantes sea irregular, podrá llevarse a cabo la segregación siempre y cuando se cumpla con las siguientes características:
+a- Debe cumplir con un frente mínimo de 6 metros, que servirá de acceso a la propiedad.
+b- Toda construcción en un lote irregular debe dejar un antejardín cuya área será equivalente a la longitud del frente mínimo permitido en la zona por dos metros. Las áreas de acceso no podrán ser construidas.
+Se negará el visado de planos, relacionados a fraccionamientos, por cualquiera de las siguientes razones:
+· Cuando del simple fraccionamiento se originen lotes que tengan menos tamaño de lo permitido por el Plan Regulador, inadecuado acceso a las vías públicas o carentes de servicios indispensables.
+· Que no cuenten con el permiso del caso, ni se trate de lotificaciones con fines o efectos de urbanización
+· En tanto pese sobre el inmueble que intente dividir, algún impedimento, como el que recae sobre áreas a renovar o reservadas a usos públicos; y
+· Por cualquier otra causa técnica o de trámite que indique este reglamento.
+· Si no cede el 10 % del área municipal y de uso público.
+Fraccionamiento con fines urbanísticos: Todo aquel fraccionamiento realizado frente a calle pública existente, ubicado fuera de un cuadrante urbano o de un área previamente urbanizada.
+Todos aquellos fraccionamientos que consten de 8 lotes o más, y cuya sumatoria de área sea igual o mayor a los 900m², serán visados por el INVU y la municipalidad, en ese orden respectivamente. Aquellos fraccionamientos inferiores a 8 lotes serán visados únicamente por la Municipalidad correspondiente. Las áreas mínimas de los lotes deberán respetar lo señalado en el artículo 20 de este reglamento.
+Fraccionamiento de parcelas con fines agrícolas, pecuarios, forestales o mixto: Todo aquel fraccionamiento que tienen acceso a través de una servidumbre agrícola, pecuaria o forestal.
+Fraccionamiento simple: Todo aquel fraccionamiento realizado frente a calle pública existente, ubicado dentro de un cuadrante urbano o de un área previamente urbanizada.

@@ -1,0 +1,3 @@
+Artículo 77. Dimensiones mínimas de predios en fraccionamientos con fines urbanísticos
+En predios donde se pretenda realizar un fraccionamiento con fines urbanísticos el fondo del predio a fraccionar y el fondo de los lotes resultantes no debe ser mayor de 7 veces el frente. En caso de quedar restos de fincas producto de este tipo de fraccionamiento, también se debe cumplir con dicha relación. El frente mínimo de los lotes resultantes del fraccionamiento debe ser de 6,00 m.
+Todo lote resultante debe cumplir con el área mínima; en caso de existir afectaciones producto de alineamientos, dicha área no será computable para el cálculo.

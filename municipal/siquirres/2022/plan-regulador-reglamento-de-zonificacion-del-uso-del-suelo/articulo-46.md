@@ -1,0 +1,2 @@
+Artículo 46. Publicidad en carreteras terciarias nacionales de Siquirres
+En estas vías, los rótulos sobre el derecho de vía y en propiedad privada deberán seguir los siguientes criterios o dimensiones: solicitud de permiso a la Municipalidad con autorización del MOPT en el derecho de vía o del propietario, así como las características de construcción y diseño, para todas las vías nacionales se debe consultar al MOPT por su derecho vial, retiro o alineamiento y los requerimientos para rótulos.

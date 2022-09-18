@@ -1,0 +1,4 @@
+Artículo 89. Pago de impuesto
+De previo al inicio de las obras, el interesado deberá cancelar a la Municipalidad en sus cajas recaudadoras autorizadas, el impuesto de construcción el cual será del uno por ciento del valor de la construcción según tasación del Colegio Federado de Ingenieros y Arquitectos o en su ausencia, de acuerdo a la tasación que realizará en el acto de presentación de la solicitud, el funcionario municipal encargado de su recepción, tomando como base la tabla de valores unitarios por metro cuadrado y construcción suministrados por dicho Colegio Profesional.
+No pagarán el impuesto las instituciones públicas que con recursos propios o a través de empresas ejecuten la obra, cuya responsabilidad debe quedar establecida en el respectivo contrato.
+Para las viviendas de interés social se cobrará un cincuenta por ciento (50%) del impuesto antes mencionado.

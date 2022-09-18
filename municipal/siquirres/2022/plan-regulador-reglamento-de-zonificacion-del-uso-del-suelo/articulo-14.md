@@ -1,0 +1,4 @@
+Artículo 14. Situaciones existentes o, de hecho
+Las superficies y frentes mínimos estipulados en este Reglamento para todas y cada una de las zonas serán exigibles en lotes o fincas nuevas, producto o resultado de un fraccionamiento de finca madre o urbanización y en el momento de otorgar los permisos correspondientes.
+Los lotes o fincas ya existentes y cuyas superficies y frentes se encuentren por debajo de los requisitos mínimos de su zona, tanto en las áreas ya urbanizadas como en las aledañas, podrán permanecer igual o agruparse, sin perjuicio de las facultades municipales para denegar, cuando proceda, los permisos de construcción en ellos.
+Las construcciones ya existentes y que no están cumpliendo con los requisitos, en cualquier zona, podrán permanecer igual, o modificarse siempre y cuando cumpla con los requisitos aquí establecidos.

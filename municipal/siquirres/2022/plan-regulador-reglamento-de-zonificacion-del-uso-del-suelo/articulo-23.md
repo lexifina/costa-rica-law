@@ -1,0 +1,2 @@
+Artículo 23. Potestad de la Municipalidad de realizar la revisión
+Es potestad de la Municipalidad revisar y modificar el plan regulador cantonal en la zonificación, la reglamentación, sus programas y proyectos. Dada la dinámica de esa materia, la revisión o modificación se hará en el momento en que la Municipalidad lo determine, considerando intereses generales del cantón y el cumplimiento del artículo 17 de la Ley 4240de Planificación Urbana.

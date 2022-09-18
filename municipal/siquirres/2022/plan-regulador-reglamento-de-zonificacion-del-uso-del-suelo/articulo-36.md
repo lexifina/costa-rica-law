@@ -1,0 +1,4 @@
+III. REGLAMENTO DE VIALIDAD Y REDES
+Artículo 36. Contenido del reglamento
+El Reglamento de vialidad y redes, incluye los siguientes temas: las competencias sobre la vialidad, la jerarquía vial, los derechos de vía y la publicidad, las mejoras en la infraestructura vial, estacionamientos, parqueos en la vía, el antejardín y terminales, la reorganización del tránsito en el centro urbano de Siquirres y los paseos peatonales, las servidumbres de líneas vitales y las redes de cañería, de aguas servidas, negras y pluviales.
+En cada artículo se establece e incluye la referencia a la legislación y normativa que directa o indirectamente tiene relación con cada tema o situación particular y las regulaciones de cada zona. Este reglamento constituye el instrumento básico para la administración territorial del cantón de Siquirres y sus distritos.

@@ -1,0 +1,2 @@
+Artículo 53. Propuesta de terminal de servicios y parqueo de furgones y cabezales
+Se propone la construcción de instalaciones para terminal de cabezales y furgones sobre Vía Nacional No.32, respetando la zonificación propuesta y las condiciones mínimas de espacio. Esta terminal podrá ser dotada de servicios como: mantenimiento, cambio de aceite, reparación de llantas, lavados, sodas, etc. Este proyecto deberá contemplar los estudios de Estudio de Impacto Ambiental (EIA).

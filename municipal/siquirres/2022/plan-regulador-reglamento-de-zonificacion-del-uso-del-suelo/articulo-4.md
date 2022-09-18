@@ -1,0 +1,2 @@
+Artículo 4. Calificación de las actividades
+La determinación de los tipos de usos del suelo indicados en el Artículo 3, se hará mediante el Certificado de Uso del Suelo, según las zonas de uso descritas en este Reglamento. En caso de producirse variaciones en los requisitos establecidos para la zona, el Certificado de Uso del Suelo tendrá vigencia de un año natural, a partir de la emisión de este CAPÍTULO II. Tipos de zonas de uso según su naturaleza jurídica o zonificación

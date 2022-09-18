@@ -1,0 +1,4 @@
+Artículo 19. Normativa para la protección del patrimonio histórico, arquitectónico y arqueológico
+Todo habitante de la República y ente público está legitimado para exigir el cumplimiento de la normativa para la protección del Patrimonio Histórico Arquitectónico y Arqueológico. La Municipalidad de Siquirres velará por la aplicación de esta normativa en aras de brindar protección a dicho Patrimonio.
+El Estado y esta Municipalidad tendrán el derecho de expropiar los bienes; podrán ejercerlo en beneficio de otras entidades públicas. Este derecho abarca los bienes que atenten contra la armonía ambiental o comporten un riesgo para conservar los que han sido declarados de interés histórico-arquitectónico.
+Esta Municipalidad, de acuerdo con las potestades legales con las que cuenta, impedirá el derribo total o parcial de una edificación declarada como patrimonio histórico arquitectónico por declaración del Ministerio de Cultura Juventud y Deportes.
