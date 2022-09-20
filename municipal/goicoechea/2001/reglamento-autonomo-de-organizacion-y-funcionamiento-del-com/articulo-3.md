@@ -1,1 +1,0 @@
-Articulo 3°—Los miembros de la Junta Directiva del Comité Cantonal de Deporte y Recreación de Goicoechea. serán juramentados por la Corporación Municipal del cantón de Goicoechea, en la sesión ordinaria que siga al nombramiento en firme de los miembros.

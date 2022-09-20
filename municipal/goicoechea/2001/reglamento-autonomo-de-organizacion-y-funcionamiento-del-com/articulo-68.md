@@ -1,1 +1,0 @@
-Articulo 68.—Otras obligaciones y facultades del Comité Comunal serán determinadas por el Comité Cantonal, siempre que no contradigan este reglamento, las leyes o decretos vigentes, relacionados con esta materia.

@@ -1,2 +1,0 @@
-Artículo 81.—En el uso de las instalaciones deportivas existentes en terrenos municipales, los Comités y Subcomités Comunales, darán participación a todos los equipos o grupos deportivos organizados de la comunidad, que se encuentren adscritos a esos órganos. Las entidades administradoras de las instalaciones deportivas establecerán los horarios de uso de las mismas, la prioridad de uso y las tarifas en los casos donde proceda.
-(Así reformado mediante sesión N°17 del 24 de abril del 2006).

@@ -1,1 +1,0 @@
-Transitorio IV.—A partir de la aprobación del Reglamento del Comité Cantonal de Deportes y Recreación de Goicoechea, las Juntas Administrativas de las instalaciones deportivas quedan sin efecto debiendo presentar en un plazo de un mes el informe de labores y estados financieros ante el Concejo Municipal y el Comité Cantonal de Deportes y Recreación.

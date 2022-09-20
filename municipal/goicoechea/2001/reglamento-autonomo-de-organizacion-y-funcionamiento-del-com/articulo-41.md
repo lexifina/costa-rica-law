@@ -1,1 +1,0 @@
-Articulo 41.—Contra los acuerdos que tome el Comité Cantonal, salvo los que se indican en el artículo siguiente, podrán plantear los miembros de la Junta Directiva el Recurso de Revisión, y los interesados interponer los recursos de revocatoria del acuerdo, con apelación subsidiaria ante el Concejo Municipal y también ejercer las acciones jurisdiccionales que las leyes autoricen.

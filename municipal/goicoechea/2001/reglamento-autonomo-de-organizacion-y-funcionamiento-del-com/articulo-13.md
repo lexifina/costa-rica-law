@@ -1,2 +1,0 @@
-Artículo 13-La Junta Directiva estará integrada por siete miembros, escogidos de la siguiente manera... Dos miembros de la población entre los 15 años y menores de 18 años, quienes serán elegidos directamente mediante una asamblea cantonal conformada por todas las organizaciones juveniles del cantón y los atletas activos del Programa de Juegos Deportivos Nacionales del cantón, convocada por el Comité Cantonal de la Persona Joven, debiendo aplicar en su nombramiento el principio de equidad de género.
-(Así reformado mediante sesión N° 05-2021 del 3° de marzo de 2021)

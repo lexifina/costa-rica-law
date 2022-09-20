@@ -1,1 +1,0 @@
-Articulo 6°—Para su fiscalización el Comité Cantonal deberá rendir informes periódicos al Concejo Municipal sobre los planes y actividades deportivas y financieras que desarrolle cada seis meses. Esto sin demérito de las labores que desempeñe el Fiscal que designe este Concejo para verificar la operación ordinaria del Comité Cantonal.

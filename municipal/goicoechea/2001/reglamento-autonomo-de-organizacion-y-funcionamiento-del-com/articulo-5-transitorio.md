@@ -1,1 +1,0 @@
-Transitorio V.—Este Reglamento deroga el anterior que fue aprobado en la sesión ordinaria No 42-96 del 13 de mayo de 1996, artículo 2°, publicado en el Diario Oficial La Gaceta N° 126 del 3 de julio de 1996 y sus modificaciones publicadas en La Gaceta No 116 del 29 de agosto de 1997 y en La Gaceta No 219 del 11 de noviembre de 1999 y cualquier otra norma que se anteponga.
