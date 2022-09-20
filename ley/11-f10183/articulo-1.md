@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO NO XI.
+(Esta norma fue derogada por el artículo 1°, inciso 458, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Aprueba el decreto n° 10, emitido por la Comisión Permanente
 EL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE COSTA-RICA.
 Examinado el decreto en que se autoriza al Poder Ejecutivo para celebrar contratos con las Compañías de vapores del Atlántico, en uso de la facultad que le confiere la fracción 43, artículo 94 de la Constitución,

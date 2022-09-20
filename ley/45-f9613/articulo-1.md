@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO XLV.
+(Esta norma fue derogada por el artículo 1°, inciso 27, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Manda Ajar las listas de los ciudadanos califcados, en lugares publicos.
 Tomas Guardia, General en Jefe del Ejército y Presidente Provisorio de la República de Costa-Rica,
 Considerando: que el Gran Consejo Nacional ha resuelto la iniciativa que se le dirigió en 17 del corriente; y en tal virtud deben continuar los actos electorales que han de verificarse con arreglo á la ley emitida el 21 de este mismo mes, decreto:

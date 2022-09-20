@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO No XXV.
+(Esta norma fue derogada por el artículo 1°, inciso 408, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Relativo á pesas y medidas según el sistema métrico decimal.
 PROSPERO FERNÁNDEZ,
 GENERAL DE DIVISIÓN Y PRESIDENTE CONSTITUCIONAL DE LA REPÚBLICA DE COSTA-RICA,

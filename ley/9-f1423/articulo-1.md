@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO No IX.
+(Esta norma fue derogada por el artículo 1°, inciso 331, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Relativo al pago de créditos á favor de la Municipalidad de Cartago.
 LA HONORABLE COMISIÓN PERMANENTE,
 En uso de la atribución 42, artículo 94 de la Constitución, y á iniciativa del Poder Ejecutivo, y

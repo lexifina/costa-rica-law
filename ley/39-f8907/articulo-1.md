@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO NO XXXIX. (de 6 de julio).
+(Esta norma fue derogada por el artículo 1°, inciso 734, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Declara electo Diputado suplente por Puntarenas al señor don Juan Rafael Mata.
 EL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE COSTA RICA.
 Examinado el Registro de elección practicado por la Asamblea Electoral de la comarca de Puntarenas, y en uso de la facultad que le confiere el artículo 82 de la Constitución,

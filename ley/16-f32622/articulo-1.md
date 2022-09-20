@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO No XVI.
+(Esta norma fue derogada por el artículo 1°, inciso 375, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Autoriza á la Municipalidad del Paraíso para que tome $2,000 del capital de la Corporación, y la invierta en la construcción de un puente y de una casa de escuela.
 EL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE COSTA-RICA,
 En vista de la solicitud de la Municipalidad del cantón del Paraíso, y de las razones de conveniencia pública en que ella se funda,

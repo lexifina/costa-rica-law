@@ -1,5 +1,7 @@
+(Derogado)
 DECRETO No XLVIII
 (de 29 de Julio.)
+(Esta norma fue derogada por el artículo 1°, inciso 928, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Hace una declaración respecto á una prórroga.
 EL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE COSTA RICA,
 A solicitud de los representantes de don Carlos Volio Tinoco, y en uso de la facultad le confiere la fracción 13 del artículo 73 de la Constitución,

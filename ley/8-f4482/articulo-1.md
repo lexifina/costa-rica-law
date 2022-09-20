@@ -1,5 +1,7 @@
+(Derogado)
 DECRETO No VIII.
 (de 19 de Mayo).
+(Esta norma fue derogada por el artículo 1°, inciso 902, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Aprueba el presupuesto del año económico 1890-1891.
 EL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE COSTA RICA,
 En uso de la facultad que le confiere la fracción 4 del artículo 94 de la Constitución,

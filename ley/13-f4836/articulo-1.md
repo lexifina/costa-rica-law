@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO N° XIII
+(Esta norma fue derogada por el artículo 1°, inciso 424, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Sobre nombramiento de defensor a toda la herencia yacente.
 LA COMISIÓN PERMANENTE,
 Considerando: que es necesario y urgente, para los casos en que no ocurran herederos reclamando una sucesión, proveerla de quien la represente durante todo el tiempo que debe transcurrir antes de que pueda ser declarada vacante, á iniciativa del Poder Ejecutivo y en uso de la atribución que le confiere la fracción 4° del artículo 94 de la Constitución,

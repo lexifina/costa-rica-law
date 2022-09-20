@@ -1,4 +1,6 @@
+(Derogado)
 N° 3
+(Esta norma fue derogada por el artículo 1°, inciso 528, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 BERNARDO SOTO,
 GENERAL EN JEFE DEL EJÉRCITO Y PRESIDENTE CONSTITUCIONAL DE LA REPÚBLICA DE COSTA-RICA,
 Considerando: que por costumbre contraria á las leyes de Policía se han tolerado los juegos prohibidos, durante la celebración de las fiestas cívicas en todos los cantones de la República.

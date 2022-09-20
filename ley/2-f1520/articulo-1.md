@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO N° II.
+(Esta norma fue derogada por el artículo 1°, inciso 529, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Relativo á la aplicación de algunas disposiciones sobre tierras baldías.
 LA COMISIÓN PERMANENTE DEL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE COSTA RICA,
 Considerando: que se han suscitado dudas sobre si después de la emisión del Código Fiscal, pueden tener aplicación los artículos 21, 22 y 27 de la ley de 7 de febrero de 1884, respecto de negocios pendientes el 29 de noviembre último, en que comenzó á regir dicho Código; y con la mira de fijar los principios de interpretación en tan importante materia; en uso de la atribución que le confiere la fracción 12, artículo 94 de la Constitución,

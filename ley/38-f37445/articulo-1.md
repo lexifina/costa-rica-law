@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO No XXXVIII.
+(Esta norma fue derogada por el artículo 1°, inciso 450, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Reforma la ley de Juicio Ejecutivo, emitida el 13 de octubre de 1884.
 BERNARDO SOTO,
 PRESIDENTE CONSTITUCIONAL DE LA REPÚBLICA Y GENERAL EN JEFE DEL EJÉRCITO,

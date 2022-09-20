@@ -1,4 +1,6 @@
-DECRETO N°XVI
+(Derogado)
+DECRETO N° XVI
+(Esta norma fue derogada por el artículo 1°, inciso 161, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Modifica la atribución 19ª del artículo 102 de la Constitución.
 SATURNINO LIZANO,
 PRIMER DESIGNADO EN EJERCICIO DEL MANDO SUPREMO DE LA REPÚBLICA DE COSTA RICA.

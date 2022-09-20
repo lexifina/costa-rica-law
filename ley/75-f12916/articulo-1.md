@@ -1,5 +1,7 @@
+(Derogado)
 DECRETO No LXXV.
 (de 16 de octubre.)
+(Esta norma fue derogada por el artículo 1°, inciso 841, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Referente á la mayor eficacia del sufragio en las elecciones para todos los ciudadanos.
 LA COMISIÓN PERMANENTE
 DEL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE COSTA RICA,

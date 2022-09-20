@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO No VI.
+(Esta norma fue derogada por el artículo 1°, inciso 704, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 (de 7 de mayo).
 Admite la renuncia del Diputado Doctor don Carlos Durán.
 EL CONGRESO CONSTITUCIONAL DE LA REPUBLICA DE COSTA RICA,

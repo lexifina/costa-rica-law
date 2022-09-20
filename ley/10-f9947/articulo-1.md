@@ -1,5 +1,7 @@
+(Derogado)
 DECRETO No X.
 (de 28 de marzo.)
+(Esta norma fue derogada por el artículo 1°, inciso 781, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Organiza la enseñanza superior y escuelas profesionales.
 BERNARDO SOTO,
 PRESIDENTE CONSTITUCIONAL Y GENERAL EN JEFE DEL EJÉRCITO DE LA

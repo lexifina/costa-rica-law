@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO N° X.
+(Esta norma fue derogada por el artículo 1°, inciso 330, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Aprueba las reformas hechas á los Estatutos del Banco Nacional.
 LA HONORABLE COMISIÓN PERMANENTE.
 A iniciativa del Poder Ejecutivo, y en uso de la atribución 4°, artículo 94 de la Constitución,
@@ -16,18 +18,18 @@ Art. 6° Como compensación de la garantía que las acciones nominativas existen
 Art. 7°-Los dueños de acciones al portador, de nominativas privilegiadas, tendrán el derecho de convertirlas en acciones nominativas comunes, cuan de así les convenga.
 Art. 8°-La venta ó cesión de acciones nominativas debe hacerse constar en el registro del Banco; las de acciones al portador no necesitan este requisito.
 CAPÍTULO II
-Art. 9°. – Las operaciones del Banco serán:
+Art. 9°. - Las operaciones del Banco serán:
 1a -Descontar pagarés
 2. -Comprar y vender oro, plata y letras de cambio
-3. – Administrar los fondos de cualquier establecimiento corporación o persona, mediante convenios especiales.
-4 – Adelantar dinero en cuenta corriente á los establecimiento, corporaciones ó personas, cuyos fondos administre, y á los dueños de acciones privilegiadas, exigiendo el correspondiente interés.
-5 – Recibir depósitos de dinero, alhajas, metales preciosos y valores en documentos, cobrando comisión ó sin ella, y aun abonando interés, según el caso.
+3. - Administrar los fondos de cualquier establecimiento corporación o persona, mediante convenios especiales.
+4 - Adelantar dinero en cuenta corriente á los establecimiento, corporaciones ó personas, cuyos fondos administre, y á los dueños de acciones privilegiadas, exigiendo el correspondiente interés.
+5 - Recibir depósitos de dinero, alhajas, metales preciosos y valores en documentos, cobrando comisión ó sin ella, y aun abonando interés, según el caso.
 6a -Admitir en comisión de cobro extrajudicial letras de cambio, libranzas y pagarés.
 7a -Dar,mediante una comisión y sobre primera hipoteca, ó con cualquiera otra garantía suficiente, obligaciones contra el Banco y al portador, que devenguen el mismo interés que éste cobre en la operación.
 8a - Dar también, mediante una comisión y constitución efectiva de hipoteca, cédulas hipotecarias endosadas al portador por el Banco, sin la garantía ni responsabilidad de éste.
 9a -Ejecutar todas las operaciones bancarias que la Asamblea general de accionistas acuerde, salvo las prohibidas en el artículo 13.
 Art.10. -El Banco, según contrato con el Supremo Gobierno, está obligado:
-1°. – A recibir y custodiar, sin cobrar comisión ni abonar intereses en sus oficinas y en las de sus agencias y sucursales, todos los depósitos y consignaciones judiciales, lo mismo que los que ordene cualquiera otra autoridad, siempre que dichos depósitos y consignaciones consistan en dinero en efectivo, pagarés, títulos de propiedad ó alhajas.
+1°. - A recibir y custodiar, sin cobrar comisión ni abonar intereses en sus oficinas y en las de sus agencias y sucursales, todos los depósitos y consignaciones judiciales, lo mismo que los que ordene cualquiera otra autoridad, siempre que dichos depósitos y consignaciones consistan en dinero en efectivo, pagarés, títulos de propiedad ó alhajas.
 2°-A desempeñar el servicio de oficina de la Administración de rentas de la República, conforme á las instrucciones que le comunique el Ministerio de Hacienda y mediante la comisión de un cuarto por ciento sobre el monto de los ingresos.
 3°-A anticipar al Tesoro, cuando los fondos del Banco lo permitan, hasta la suma de cincuenta mil pesos, en cuenta corriente, cargándole los intereses al tipo del Banco.
 4°-À recibir como dinero efectivo los billetes del tesoro que hoy circulan y que sean admitidos del mismo modo en el mercado, cambiando también dichos billetes cuando los fondos del Banco lo permitan.
@@ -49,7 +51,7 @@ Art. 20,-Las reuniones de la Asamblea General, tanto ordinarias como extraordina
 Toda convocatoria extraordinaria anunciará los objetos sobre los cuales tiene que deliberar la Asamblea.
 Art. 21,-Corresponde á la Asamblea general:
 1°-Examinar el balance semestral.
-2°. – Dictar medidas generales que exija el establecimiento, en vista del informe que debe presentarle el Presidente.
+2°. - Dictar medidas generales que exija el establecimiento, en vista del informe que debe presentarle el Presidente.
 3°-Resolver sobre todos los asuntos que le someta la Dirección, y sobre las proposiciones firmadas por diez ó más accionistas que representen la décima parte del valor de Ias acciones nominativas emitidas.
 4°. -Acordar In reforma de los presentes estatutos, cuando fuere necesaria.
 5°-Elegir los cinco Directores y los cinco suplentes
@@ -105,7 +107,7 @@ Art. 33. Son deberes del Administrador:
 8°. -Cuando el Administrador, por el carácter y la urgencia de los asuntos que se le presenten, crea necesaria la intervención de la Junta Directiva, podrá convocarla extraordinariamente.
 9° . Cuidar, bajo su responsabilidad, de que todos los empleados de su dependencia cumplan exactamente sus respectivas obligaciones.
 Art. 34 -Los Cajeros, tenedores de Libros, escribientes y portero, son empleados que dependen inmediatamente del Administrador.
-Art. 35. – El primer cajero y el primer tenedor de libros, son responsables mancomunadamente con el Administrador, por las existencias de la gran caja ó tesoro del Banco. También será responsable cada uno, por cualquier acto que ejecute, si este fuere contra la expresa disposición de los estatutos y reglamentos del Banco.
+Art. 35. - El primer cajero y el primer tenedor de libros, son responsables mancomunadamente con el Administrador, por las existencias de la gran caja ó tesoro del Banco. También será responsable cada uno, por cualquier acto que ejecute, si este fuere contra la expresa disposición de los estatutos y reglamentos del Banco.
 CAPÍTULO VII.
 Disposiciones generales
 Art. 36. La primera hipoteca ó garantía que conforme el inciso 7°, debe darse al Banco para obtener obligaciones pagaderas en la caja, debe ser por doble valor del importe de las obligaciones. Las obligaciones dadas por el Banco, además de la responsabilidad de éste, llevan la garantía colateral de la hipoteca ó prenda dada para el contrato de donde procede y llegado el caso de que el Banco al presentársele alguna de dichas obligaciones ya vencida, no la cubriera en dinero efectivo, por el mismo hecho queda el portador de la obligación no pagada, legalmente subrogado en todos los derechos y privilegios que en esa fecha fecha tenga el Banco, contra los bienes afectados por el negocio de donde proceda la obligación y contra los demás bienes del deudor ó sus fiadores.
@@ -121,6 +123,6 @@ Art. 44,-Vencido el término del auto de solvendo, la finca ó bienes gravados s
 Art. 45. -Hecho el embargo y sin necesidad de avalúo, se procederá á la venta de los bienes, gravados, sirviendo de base el monto de la deuda á favor del Banco, y admitiéndose como postura legal las dos terceras partes de la base, aunque los bienes dados en garantía al celebrarse el contrato fueren muebles.
 Art. 46. -Si no hubiere postor, el Banco puede pedir, siempre que le convenga, que se señale nuevo día para el remate.
 Art. 47. En la ejecución no se admitirá el deudor más excepciones que aquellas que quiten su eficacia á la acción ejecutiva, y a condición de probarlas con instrumento que también tenga fuerza ejecutiva.
-Art. 48. – Al terminarse la Sociedad, la Asamblea General de accionistas acordará la manera de liquidarla, y nombrará la persona ó personas que deban hacer la liquidación.
+Art. 48. - Al terminarse la Sociedad, la Asamblea General de accionistas acordará la manera de liquidarla, y nombrará la persona ó personas que deban hacer la liquidación.
 Art. 49. -Los presentes Estatutos se elevarán al Supremo Gobierno para que, si fueren de su aprobación, se sirva darles en forma debida fuerza de ley.
-Art. 50. – Cualquiera alteración ó reforma de estos Estatutos ó reglamentos, una vez que fuere legalmente acordada, se someterá á la aprobación del Supremo Gobierno.”
+Art. 50. - Cualquiera alteración ó reforma de estos Estatutos ó reglamentos, una vez que fuere legalmente acordada, se someterá á la aprobación del Supremo Gobierno."

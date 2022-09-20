@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO XXXVII.
+(Esta norma fue derogada por el artículo 1°, inciso 21, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Exonera al Magistrado Fiscal del recargo que le impone el art. 5° del
 Decreto de 28 de Setiembre de 1876.
 Tomas Guardia, General en Jefe del Ejército y Presidente Provisorio de la República de Costa Rica.

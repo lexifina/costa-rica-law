@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO No XIII.
+(Esta norma fue derogada por el artículo 1°, inciso 693, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 (de 2 de diciembre.)
 Prorroga el término de duración del decreto sobre introducción de animales
 LA COMISIÓN PERMANENTE DEL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE COSTA RICA,

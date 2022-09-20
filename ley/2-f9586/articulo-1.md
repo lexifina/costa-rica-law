@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO No II.
+(Esta norma fue derogada por el artículo 1°, inciso 628, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 (de 14 de enero.)
 Dispone que de cuenta del Tesoro Público, dies jóvenes costarricenses sean enviados al extranjero, á fin de que se dediquen á diversas carreras.
 BERNARDO SOTO,

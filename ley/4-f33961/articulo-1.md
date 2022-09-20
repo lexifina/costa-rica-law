@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO N° IV.
+(Esta norma fue derogada por el artículo 1°, inciso 81, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Relativo à excusas y recusaciones de los funcionarios de Justicia.
 TOMÁS GUARDIA
 GENERAL EN JEFE DEL EJÉRCITO Y PRESIDENTE DE LA REPÚBLICA DE COSTA-RICA

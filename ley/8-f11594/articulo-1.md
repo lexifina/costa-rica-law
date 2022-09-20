@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO No VIII.
+(Esta norma fue derogada por el artículo 1°, inciso 368, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Aprueba un contrato con la compañía de navegación, Malas del Pacífico.
 EL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE COSTA-RICA
 Decreta:

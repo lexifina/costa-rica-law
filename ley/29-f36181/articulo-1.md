@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO N° XXIX.
+(Esta norma fue derogada por el artículo 1°, inciso 388, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Prolonga á Don Rafael Iglesias el plazo convenido para establecer con privilegio una fábrica de harinas.
 EL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE COSTA-RICA,
 Decreta:

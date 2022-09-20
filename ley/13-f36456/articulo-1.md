@@ -1,5 +1,7 @@
+(Derogado)
 DECRETO No XIII.
 (de 1o de Mayo).
+(Esta norma fue derogada por el artículo 1°, inciso 858, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 El Congreso Constitucional abre sus sesiones ordinarias.
 EL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE
 COSTA RICA,

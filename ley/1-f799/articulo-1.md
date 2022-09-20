@@ -1,5 +1,7 @@
+(Derogado)
 DECRETO No I.
 (de 19 de enero).
+(Esta norma fue derogada por el artículo 1°, inciso 774, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Indulta á Rosa Araya de la pena de confinamiento.
 A. DE JESÚS SOTO,
 DESIGNADO EN EJERCICIO DE LA PRESIDENCIA DE LA REPÚBLICA,

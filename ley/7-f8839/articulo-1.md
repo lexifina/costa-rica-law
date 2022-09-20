@@ -1,4 +1,6 @@
-DECRETO N° VII,
+(Derogado)
+DECRETO N° VII
+(Esta norma fue derogada por el artículo 1°, inciso 203, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Admite la renuncia presentada por Don Pedro Zamora, del cargo de Diputado.
 EL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA COSTA-RICA,
 En uso de la facultad que le concede la fracción 3a, artículo 73 de la Constitución,

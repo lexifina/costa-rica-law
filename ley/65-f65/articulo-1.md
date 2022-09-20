@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO No LXV.
+(Esta norma fue derogada por el artículo 1°, inciso 505, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 El Congreso Constitucional cierra sus sesiones extraordinarias.
 EL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE COSTA-RICA,
 Despachados los asuntos para que fué convocado por decreto ejecutivo número 13, de 14 de agosto próximo pasado,

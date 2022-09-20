@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO N° XII
+(Esta norma fue derogada por el artículo 1°, inciso 38, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Crea una alcaldía en el distrito de Santa Barbara.
 Tomas Guardia, General en Jefe del Ejército y Presidente de la República de Costa-Rica.
 Por cuanto el Gran Consejo Nacional ha emitido el siguiente Decreto:

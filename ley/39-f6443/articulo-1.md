@@ -1,4 +1,6 @@
-DECRETO XXXIX,
+(Derogado)
+DECRETO XXXIX
+(Esta norma fue derogada por el artículo 1°, inciso 17, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Concede amnistia a los reos politicos que se hayan fuera de sus hogares.
 Tomas Guardia, General en Jefe del Ejército y Presidente de la República de Costa-Rica.
 Conciliando las exigencias de mi propia lenidad con las de la moral pública y de la disiplina militar, decreto:

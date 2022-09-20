@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO N° XLV.
+(Esta norma fue derogada por el artículo 1°, inciso 313, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Fija el sentido de una cláusula del contrato para el arreglo
 de la deuda exterior.
 EL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE

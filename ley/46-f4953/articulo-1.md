@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO N° XLVI
+(Esta norma fue derogada por el artículo 1°, inciso 140, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Adopta para los pesos y medidas el sistema métrico decimal
 SALVADOR LARA
 DESIGNADO EN EJERCICIO DEL PODER EJECUTIVO DE LA
@@ -10,4 +12,4 @@ Que el sistema métrico decimal es de todos los sistemas nacionales de medidas e
 Considerando:
 Que por esas condiciones eminentes está llamado á adoptarse, y se está adoptando en todas las sociedades cultas, y que este carácter de universalidad tiene un influjo interesante en las relaciones de los pueblos y es un progreso para las transacciones internacionales,
 Decreta:
-Art. 1°—La unidad que servirá de base para todas las medidas es el metro, que es una diezmillonésima parte del cuadrante del meridiano terrestre.
+Art. 1°-La unidad que servirá de base para todas las medidas es el metro, que es una diezmillonésima parte del cuadrante del meridiano terrestre.

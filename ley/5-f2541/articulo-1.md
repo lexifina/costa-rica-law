@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO No V.
+(Esta norma fue derogada por el artículo 1°, inciso 367, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Aprueba la ley sobre exención de muellaje de algunos artículos.
 EL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE COSTA-RICA.
 Examinada la ley número 1 emitida por la Honorable Comisión Permanente en 23 de agosto de 1883, y encontrándola fundada en los buenos principios de administración,

@@ -1,5 +1,7 @@
+(Derogado)
 DECRETO No LXII.
 (de 3 de Agosto).
+(Esta norma fue derogada por el artículo 1°, inciso 943, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Asigna una pensión mensual.
 EL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE COSTA RICA,
 En consideración de los servicios prestados al país por el Coronel don José E. Castro, y á su estado de imposibilidad para trabajar,

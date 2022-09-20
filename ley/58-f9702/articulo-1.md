@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO No LVIII
+(Esta norma fue derogada por el artículo 1°, inciso 496, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Relativo á las multas por falta de asistencia á las escuelas.
 BERNARDO SOTO,
 PRESIDENTE CONSTITUCIONAL DE LA REPÚPLICA DE COSTA-RICA Y GENERAL EN JEFE DEL EJÉRCITO.

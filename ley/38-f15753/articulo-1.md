@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO No XXXVIII.
+(Esta norma fue derogada por el artículo 1°, inciso 576, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Aprueba un contrato para el establecimiento de una nueva línea de vapores en el Pacífico, que se denominará
 "Hispano-Centro-Americana"
 EL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE

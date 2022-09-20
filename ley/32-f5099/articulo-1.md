@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO N° XXXII.
+(Esta norma fue derogada por el artículo 1°, inciso 55, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Creando el empleo de Tasadores de costas provinciales,
 TOMAS GUARDIA, General de Division y Presidente de la República de Costa-Rica.
 Teniendo en consideracion: que es conveniente a los intereses fiscales la creacion de Tasadores de costas en las capitales de las demas Provincias conforme á lo dispuesto en el artículo 19 del decreto de11 de agosto de 1876.

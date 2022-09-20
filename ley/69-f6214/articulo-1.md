@@ -1,5 +1,7 @@
+(Derogado)
 DECRETO No LXIX.
 (de 29 de Julio).
+(Esta norma fue derogada por el artículo 1°, inciso 887, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 despacho de Fomento con don Federico Mora, para la Aprueba un contrato celebrado por el señor
 Secretario de Estado en el fundación de un periódico agrícola ilustrado.
 EL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE COSTA RICA,

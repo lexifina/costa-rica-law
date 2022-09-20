@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO N° XXXI.
+(Esta norma fue derogada por el artículo 1°, inciso 54, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Concediendo un privilegio á Don Clemente Canton
 TOMAs GUARDIA, General en Jefe del Ejército y Presidente de la República de Costa-Rica.
 Por cuanto el Gran Consejo National ha emitido el siguiente Decreto:

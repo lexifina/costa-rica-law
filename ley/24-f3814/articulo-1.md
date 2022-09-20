@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO No XXIV.
+(Esta norma fue derogada por el artículo 1°, inciso 383, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Asigna una pensión de $ 10 á la Señora Francisca Chaves.
 EL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE COSTA-RICA.
 En atención á que el guarda Narciso Villalta murió en servicio de la Nación y por razón de su empleo,

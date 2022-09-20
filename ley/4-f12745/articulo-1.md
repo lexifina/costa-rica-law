@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO NO IV.
+(Esta norma fue derogada por el artículo 1°, inciso 632, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 (de 3 de febrero.)
 Difiere un sorteo de cédulas y aumenta el monto de él.
 BERNARDO SOTO,

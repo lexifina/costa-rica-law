@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO No LXVII.
+(Esta norma fue derogada por el artículo 1°, inciso 510, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Se aprueba el arreglo sobre la deuda exterior presentado por M. C. Keith el 3 de junio de 1885.
 BERNARDO SOTO,
 GENERAL EN JEFE DEL EJÉRCITO Y PRESIDENTE CONSTITUCIONAL DE LA REPÚBLICA DE COSTA-RICA,
@@ -55,7 +57,7 @@ Las cláusulas 29 á 31 imponen multas en dinero falta de conclusión del ferro-
 El 25 de abril de 1884 se extendió un poder especial por el Presidente de la República de Costa-Rica, bajo el Gran Sello de la República, á favor del señor Keith, en conformidad con la cláusula 19 de dicho Contrato, confiriéndole (además de la autoridad y como complemento de lo que le fué dado por dicho Contrato y Concesión y sin perjuicio de éste) un poder tan pleno y amplio como en derecho se requiera, como Representante especial de la República para negociar con los Tenedores de Bonos de dichos Empréstitos del 6 y 7 por ciento, la conversión respectiva de uno y otro; para convenir, comprometer ó arreglar con los Tenedores de Bonos, & con sus representantes, la entrega, á los dichos Tenedores de Bonos que convengan en el arreglo de la proporción convenida de Bonos Nuevos; para nombrar las casas que deban hacerse cargo de la conversión y cambio de los Bonos y servicio del Empréstito; y generalmente, para todos los actos y extender todos los instrumentos necesarios para llevar á efecto lo arriba mencionado, con autoridad especial para nombrar una persona que firme los Bonos de la nueva Emisión: dicho Poder Ejecutivo se obliga á tener por valedero y efectivo todo lo que dicho apoderado hiciere ó estipulare.
 De conformidad con dicha ley y Contrato, y con los poderes especiales arriba mencionados, se ha celebrado, para someterse á los Tenedores de Bonos, el siguiente convenio entre el señor Keith, como Agente y Representante del Gobierno, y como contratista y concesionario por dicho contrato, de una parte, y de la otra el Consejo de Tenedores de Bonos Extranjeros, actuando en unión de los comités de Tenedores de Bonos de ambos empréstitos.
 Art. 1°-(1). El Gobierno creará Nuevos Bonos de la Deuda Exterior del Estado, al cinco por ciento por £2.000,000 esterlinas, asegurados, y que deben redimirse como está dispuesto por dicha ley y contrato, en pleno arreglo de la Deuda Exterior pendiente, y de los demás pagos mencionados en la cláusula 1a de dicho contrato.
-(2). Dichos Bonos se llamarán Bonos de la "Deuda Exterior consolidada de Costa-Rica”, y serán emitidos en dos series por las respectivas sumas siguientes:
+(2). Dichos Bonos se llamarán Bonos de la "Deuda Exterior consolidada de Costa-Rica", y serán emitidos en dos series por las respectivas sumas siguientes:
 Serie A. 600 Bonos de £ 500 c/u £300,000
 1,750 100 175,000
 1,000 50 50,000

@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO N° XXXVI
+(Esta norma fue derogada por el artículo 1°, inciso 480, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 (Nota de Sinalevi: Se respeta la ortografía y gramática del texto original)
 Exencióna del pago de los derechos de Aduana ciertos artículos para el consumo de la comarca de Limón
 EL CONGRESO CONSTITUCIONAL DE LA

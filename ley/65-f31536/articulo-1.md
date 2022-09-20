@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO NO LXV.
+(Esta norma fue derogada por el artículo 1°, inciso 507, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Modifica los articulos 38, 59 y 69 del Beglamento de Correos.
 BERNARDO SOTO,
 BENEMERITO DE LA PATRIA, GENERAL EN JEFE DEL EJÉRCITO Y PRESIDENTE CONSTITUCIONAL DE LA REPÚBLICA DE COSTA-RICA,

@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO No XLIII.
+(Esta norma fue derogada por el artículo 1°, inciso 402, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Dispone que la viuda de Don Enrique Twight cobre durante el año fiscal el sueldo que aquél ganaba como traductor oficial de lenguas.
 EL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE COSTA-RICA,
 En consideración á los méritos contraídos en el servicio público, por Don Enrique Twight ya finado,

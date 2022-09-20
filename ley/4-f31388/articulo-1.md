@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO N° IV
+(Esta norma fue derogada por el artículo 1°, inciso 248, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Relativo a las autoridades que pueden conocer en las causas penales por fallas,
 LA HONORABLE CONISIÓN PERMANENTE,
 Considerando:

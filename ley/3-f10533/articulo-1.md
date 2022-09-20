@@ -1,5 +1,7 @@
+(Derogado)
 DECRETO No III.
 (de 18 de enero).
+(Esta norma fue derogada por el artículo 1°, inciso 775, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Autoriza á la Municipalidad del cantón de Cartago para tomar del ramo de Propios los fondos que se necesiten para componer la cañería.
 LA COMISIÓN PERMANENTE DEL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE
 COSTA RICA,

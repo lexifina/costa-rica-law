@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO No II.
+(Esta norma fue derogada por el artículo 1°, inciso 436, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Declara cerradas las sesiones extraordinarias del Congreso.
 EL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE COSTA-RICA,
 Resuelto el asunto para que fué convocado por decreto del Poder Ejecutivo, número 6 del día de ayer,

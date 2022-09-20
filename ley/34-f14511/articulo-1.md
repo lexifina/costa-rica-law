@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO XXXIV
+(Esta norma fue derogada por el artículo 1°, inciso 16, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Da fuerza ejecutiva a las certificaciones sobre adeudo a favor del 'Tesoro Publico, libradas por el Tenedor de Libros de Hacienda Nacional y visadas por el Contador Mayor.
 Tomas Guardia, General en Jefe del Ejército de la República y Encargado del Poder Ejecutivo.
 Considerando: Que el Fiscal de Hacienda Nacional consulta si las certificaciones sobre adeudo de censo por tierras baldías, libradas por el Tenedor de Libros de Hacienda Nacional, visadas por el Contador Mayor y mandadas cobrar de órden suprema, deben considerarse documentos ejecutivos, sin necesidad de otra diligencia preparatoria.

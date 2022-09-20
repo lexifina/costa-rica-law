@@ -1,5 +1,7 @@
+(Derogado)
 DECRETO NO XXIV.
 (de 11 de mayo.)
+(Esta norma fue derogada por el artículo 1°, inciso 793, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Convoca á la Asamblea electoral de Cartago á fin de que elija un Diputado suplente en reposición de don F. Aguilar B.
 ASCENSIÓN ESQUIVEL,
 SEGUNDO DESIGNADO EN EJERCICIO DE LA PRESIDENCIA DE LA REPÚBLICA,

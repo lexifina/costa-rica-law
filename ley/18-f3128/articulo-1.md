@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO N° XVII.
+(Esta norma fue derogada por el artículo 1°, inciso 239, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Reforma el articulo 4° del decreto número 17 de 20 le julio de 1880 referente á tierras baldías.
 PROSPERO FERNÁNDEZ,
 GENERAL DE DIVISIÓN Y PRESIDENTE CONSTITUCIONAL DE LA

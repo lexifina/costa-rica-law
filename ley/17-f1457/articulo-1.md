@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO N° XVII.
+(Esta norma fue derogada por el artículo 1°, inciso 448, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Dispone una emisión de billetes por la suma de $500,000.
 BERNARDO SOTO,
 GENERAL EN JEFE DEL EJÉRCITO Y PRESIDENTE DE LA REPÚBLICA DE COSTA-RICA,

@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO N° X.
+(Esta norma fue derogada por el artículo 1°, inciso 109, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Sobre la concesión de terrenos baldíos á uno y otro lado de la
 carretera entre esta capital y Río Sucio.
 TOMÁS GUARDIA,

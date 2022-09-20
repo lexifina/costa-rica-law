@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO No V.
+(Esta norma fue derogada por el artículo 1°, inciso 352, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Decreta el Reglamento de terrenos baldíos y bosques.
 LA COMISIÓN PERMANENTE,
 En uso de la facultad que contiene la fracción 4a del artículo 94 de la Constitución, á iniciativa del Poder Ejecutivo, y
