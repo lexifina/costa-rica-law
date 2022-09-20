@@ -1,1 +1,0 @@
-ARTÍCULO 2°.-En lo sucesivo se admitir n los poderes de los Procuradores aunque carezcan del bastante o de que habla el artículo anterior, quedando obligados los Jueces examinar por s¡ la legalidad de los que se presenten en juicio sin exigir por esto derecho alguno.
