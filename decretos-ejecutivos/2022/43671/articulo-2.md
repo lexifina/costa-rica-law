@@ -1,0 +1,1 @@
+Artículo 2°-En razón de esta declaratoria y dentro del marco legal respectivo los entes y órganos aplicarán las reglas de simplificación de trámites, la eficiencia administrativa y la coordinación interinstitucional y brindarán tratamiento prioritario y expedito de permisos, licencias y otras autorizaciones que requiera la fase de preinversión y ejecución de este proyecto.
