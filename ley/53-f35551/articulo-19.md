@@ -1,1 +1,0 @@
-ART. 19.-Las asignaturas previas al título de maestro de obras, son las siguientes: elementos de mecánica, conocimiento de los materiales de construcción, cálculo de resistencias, construcciones civiles y rurales, dibujo arquitectónico.

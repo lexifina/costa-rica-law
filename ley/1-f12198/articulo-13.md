@@ -1,1 +1,0 @@
-ARTÍCULO 13.-El art. 294, queda sustituido en estos términos:-"Los quebrados culpables pueden ser rehabilitados, acreditando el pago íntegro de todas las deudas líquidas en el procedimiento de quiebra, y el cumplimiento de la pena que se les hubiere impuesto.

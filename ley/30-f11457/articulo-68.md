@@ -1,1 +1,0 @@
-Art. 68.-Los profesores podrán imponer los castigos de reprensión privada y pública y los demás comprendidos hasta el segundo grado inclusive; el Director de la Escuela hasta el tercer grado inclusive:

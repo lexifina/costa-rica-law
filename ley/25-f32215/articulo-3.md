@@ -1,1 +1,0 @@
-Art. 3°-Excitase à la Dirección de la Universidad de Santo Tomás, para que organice un acto público literario adecuado al objeto de esta festividad; à cuyo efecto se invitara á los profesores y alumnos de los colegios y escuelas de la capital.

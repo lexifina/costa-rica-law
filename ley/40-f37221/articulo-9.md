@@ -1,1 +1,0 @@
-Art. 9°.- El que sin la matrícula legal abriere una casa de préstamos sobre prendas ó haga habitualmente esta clase de negocios, sufrir reclusión menor en su grado mínimo ó máximo ó multa de doscientos mil pesos.

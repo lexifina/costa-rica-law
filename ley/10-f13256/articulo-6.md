@@ -1,1 +1,0 @@
-ARTÍCULO 6°. -La Secretaría de Guerra comprender las siguientes: Secretaría de Guerra. -Plaza de San José‚. -Plaza Cartago. -Plaza de Limón. -Plaza de Heredia. Plaza de Alajuela. -Plaza de Puntarenas. -Plaza de Guanacaste. -Almacén de Guerra. -Armamento. -Municiones. -Uniformes, etc.-Gastos de oficina en esta Secretaría. -Eventuales.

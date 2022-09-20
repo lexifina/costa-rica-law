@@ -1,1 +1,0 @@
-Art. 121. — Si después de aplicada la corrección anterior, se incurriere en reincidencia, la multa será de cincuenta centavos por cada falta; pero el total no pasará nunca de cinco pesos, aunque las faltas sean más de diez.

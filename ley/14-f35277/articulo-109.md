@@ -1,1 +1,0 @@
-Art. 109.-No podrá concederse el permiso de que trata el artículo anterior, sino en el caso de que haya presenciado la carga, y tomado la debida razón, un guarda nombrado por el jefe del ramo; y en tal caso éste dará á la embarcación la correspondiente guía ó boleta.

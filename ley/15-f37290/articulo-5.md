@@ -1,1 +1,0 @@
-Art. 5°. -De cualquiera falta ó irregularidad en el servicio, es responsable únicamente de Administrador General, quien salvar su responsabilidad dando cuenta oportunamente al Ministerio respectivo, de las causas que hayan motivado las faltas ó irregularidades.

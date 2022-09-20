@@ -1,1 +1,0 @@
-Art. 78.-Si la sentencia fuere favorable al actor, se ordenará al deudor cumpla con su obligación y, en su caso, se mandará destruir por medio del Juez ejecultor, aquello que se hubiere hecho en contrario de la obligación.

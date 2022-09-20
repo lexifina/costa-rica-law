@@ -1,1 +1,0 @@
-Art. 24.-Si existiese en la Escuela caja de caudales el Presidente será su administrador, y la Tesorería estará á cargo de uno de los vocales elegido por la misma Junta, y ambos serán responsables solidariamente del manejo de los intereses que les estuvieren confiados.

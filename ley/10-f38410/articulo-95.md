@@ -1,1 +1,0 @@
-Art. 95.-Si el acreedor no presenta título ejecutivo, debe garantizar los daños y perjuicios que se originen del embargo. Esta garantía debe consistir en depósito de efectivo ó valores de comercio, á la orden del Juez ó en fiador abonado, y debe ser del diez por ciento del valor del embargo.

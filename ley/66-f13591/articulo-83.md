@@ -1,1 +1,0 @@
-Artículo 83.— Los Secretarios del Congreso formarán el cómputo del número de Electorales que hayan concurrido á las Asambleas, cuyas votaciones no se han declarado nulas por el Congreso, y anunciarán á éste cual es el número total, y cual el que forma su pluralidad absoluta.

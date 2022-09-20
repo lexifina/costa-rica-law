@@ -1,1 +1,0 @@
-Art.112.—El Tenedor de Libros expresado dará las instrucciones y formularios que sean menester para que los Tesoreros de las Juntas lleven sus cuentas y den sus informes con toda precisión y claridad.

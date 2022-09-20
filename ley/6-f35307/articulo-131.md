@@ -1,1 +1,0 @@
-Art. 131.—Para los efectos penales, se tendrá por cometida por funcionarios públicos la falsedad que resulte en matrículas, certificaciones, avisos y otros documentos expedidos por directores de escuelas privadas.

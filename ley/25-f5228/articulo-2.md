@@ -1,1 +1,0 @@
-Art. 2°-Los múltiplos y sub-múltiplos de las medidas y pesas mencionadas, reguirán la progresión del sistema, que se expresarán en las tablas que publicará el Ministerio de Fomento. -Esas tablas contendrán, además, la equivalencia entre el nuevo y el actual sistema de pesas y medidas.

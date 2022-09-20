@@ -1,1 +1,0 @@
-Art. 104.—El segundo cincuenta por ciento del valor del presupuesto se colectará oportunamente conforme á las reglas de los artículos anteriores.— Del mismo modo se llenará el déficit del costo de la obra cuando el presupuesto no fuere suficiente para ello.

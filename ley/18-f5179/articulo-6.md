@@ -1,1 +1,0 @@
-ARTÍCULO 6°.-En todo caso de desorden, seducción ó rebelión a bordo, el Jefe que lleve el mando está autorizado ampliamente para proceder, como las circunstancias lo exijan, al restablecimiento del orden, a la seguridad de las personas y a la salvación del vapor, siendo responsable por cualquier exceso que cometa en el uso de esta facultad.

@@ -1,1 +1,0 @@
-Art. 65. – Los demás efectos no mencionados en los artículos 53 y 63, existentes en buques que sí traigan ésos, se ventilarán no sólo abriendo las escotillas, sino colocando en ellas mangueras de ventilación.

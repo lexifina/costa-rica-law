@@ -1,1 +1,0 @@
-Art. 20.-El actor, en el término probatorio concedido al ejecutado, podrá proponer y practicar su contra-prueba; y si no le fuere posible evacuarla toda, tiene derecho á que se le prorrogue por cinco días más.

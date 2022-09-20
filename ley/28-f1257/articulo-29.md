@@ -1,1 +1,0 @@
-Art. 29.-Cuando en una causa de Jurado el reo estuviere ausente, los procedimientos respectivos suspenderán, más una vez puesto el proceso en estado de convocar Jurado hasta que el reo pueda ser habido.

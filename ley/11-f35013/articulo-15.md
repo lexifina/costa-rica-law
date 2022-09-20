@@ -1,1 +1,0 @@
-Artículo 15.-El Secretario de la Escuela fijará en las tablas de anuncios de ésta, tan luego como las inscripciones hayan sido despachadas, la lista de los estudiantes ú oyentes cuyos documentos estén en regla.

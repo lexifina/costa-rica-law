@@ -1,1 +1,0 @@
-Art. 2°-El conocimiento de los asuntos civiles y criminales que la ley atribuía á aquella Judicatura, corresponderá, respectivamente, á los Juzgados de primera instancia civiles y del crimen de la provincia de San José.
