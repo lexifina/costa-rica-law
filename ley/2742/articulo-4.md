@@ -1,1 +1,0 @@
-Artículo 4°.- La Contraloría General de la República no pondrá “el conforme” al Presupuesto Ordinario de Gastos Anuales de la Municipalidad contratante, si no contiene la partida correspondiente para amortización e intereses de la presente obligación.

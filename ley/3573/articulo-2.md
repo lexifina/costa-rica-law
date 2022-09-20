@@ -1,1 +1,0 @@
-Artículo 2°.- El producto de esos empréstitos deberán usarlo esas Municipalidades en el desarrollo de programas de electrificación en sus respectivos cantones, con la colaboración del Instituto Costarricense de Electricidad.

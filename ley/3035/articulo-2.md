@@ -1,1 +1,0 @@
-Artículo 2°.- Los materiales a que se refiere el artículo anterior, han de ser exclusivamente para la construcción del referido Colegio, entendiéndose que tales materiales han de ser aquellos que nuestro país no produzca.
