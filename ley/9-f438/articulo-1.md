@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO N°9
+(Esta norma fue derogada por el artículo 1°, inciso 296, de la ley N° 10288 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VIII parte)")
 (de 5 de abril)
 Faculta al Poder Ejecutivo para asimilar, con el grado militar que en otras partes hubieren en alcanzado, a los nacionales o extranjero, de graduación mayor que la de Teniente Coronel.
 LA COMISION PERMANENTE DEL CONGRESO CONSTITUCIONAL DE LA REPUBLICA DE COSTA RICA,

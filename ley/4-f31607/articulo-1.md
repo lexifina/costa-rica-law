@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO N° 4
+(Esta norma fue derogada por el artículo 1°, inciso 80, de la ley N° 10288 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VIII parte)")
 Nombra Presidente y Magistrado de la Corte Suprema de Justicia
 EL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE COSTA RICA
 En uso de la facultad que le otorga al artículo 120 Constitución

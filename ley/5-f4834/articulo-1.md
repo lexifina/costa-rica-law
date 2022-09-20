@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO N° V.
+(Esta norma fue derogada por el artículo 1°, inciso 42, de la ley N° 10288 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VIII parte)")
 (de 6 de Febrero.)
 Aprueba un contrato sobre
 inmigración.
@@ -37,5 +39,5 @@ IX.
 Mendiola se compromete á traer por su cuenta y riesgo todos los colonos y á cuidar y velar por ellos, dándoles la subsistencia hasta que sean recibidos por la persona ó personas para quienes vengan contratados.
 X.
 Todas las cuestiones que se susciten por razón de este contrato y de los demás que del mismo se deriven, serán ventiladas y resueltas por los Tribunales de la República, con arreglo á las leyes de la misma, sin que en ningún caso sea admisible la intervención diplomática.
-En fe de lo cual firman los otorgantes en el Palacio Nacional, en San José, á los seis días. del mes de Febrero de mil ochocientos noventa y tres.-J. VARGAS M.-FRANCISCO MENDIOLA BOZA.-Casa Presidencial, San José, á seis de Febrero de mil ochocientos noventa y tres. -Apruébase en todas sus partes el contrato anterior.-Rubricado por el señor Presidente.-VARGAS M.”
+En fe de lo cual firman los otorgantes en el Palacio Nacional, en San José, á los seis días. del mes de Febrero de mil ochocientos noventa y tres.-J. VARGAS M.-FRANCISCO MENDIOLA BOZA.-Casa Presidencial, San José, á seis de Febrero de mil ochocientos noventa y tres. -Apruébase en todas sus partes el contrato anterior.-Rubricado por el señor Presidente.-VARGAS M."
 Dado en San J osé, en la Casa Presidencial, á seis de Febrero de mil ochocientos noventa y tres.-José J. RODRÍGUEZ.-El Secretario de Estado en el despacho de Fomento,- J. VARGAS M.

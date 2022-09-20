@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO N° 14
+(Esta norma fue derogada por el artículo 1°, inciso 122, de la ley N° 10288 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VIII parte)")
 (de 2 de marzo)
 Reforma el Plan de Enseñanza de las escuelas primarias
 LA COMISIÓN PERMANENTE

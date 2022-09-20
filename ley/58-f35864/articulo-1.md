@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO N°58
+(Esta norma fue derogada por el artículo 1°, inciso 222, de la ley N° 10288 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VIII parte)")
 (de 27 de julio)
 Hace el nombramiento de los Diputados que han de formar la Comisión Permanente
 EL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE COSTA RICA.

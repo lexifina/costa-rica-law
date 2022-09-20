@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO N°15
+(Esta norma fue derogada por el artículo 1°, inciso 123, de la ley N° 10288 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VIII parte)")
 (de 3 de junio)
 Dispone que corra de cuenta del Estado la educación de los tres hijos menores de don Vicente Sáenz.
 EL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE COSTA RICA

@@ -1,4 +1,6 @@
+(Derogado)
 DECRETA N° 46
+(Esta norma fue derogada por el artículo 1°, inciso 282, de la ley N° 10288 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VIII parte)")
 (de 6 de agosto)
 Aprueba el contrato sobre construcción del ferrocarril al Pacífico.
 EL CONGRESO CONSTITUCIONAL DE LA
@@ -6,7 +8,7 @@ REPUBLICA DE COSTA RICA,
 En uso de sus facultades constitucionales,
 DECRETA:
 Artículo único. - Apruebase el contrato sobre construcción del ferrocarril al Pacífico, celebrado el día catorce de junio del corriente año, entre el señor Secretario de Estado en el despacho de Fomento y John S. Casement, el cual, con las modificaciones introducidas por la Cámara, literalmente dice:
-“Juan J. Ulloa G. Secretario de Estado en el despacho de Fomento, debidamente autorizado por el señor Presidente de La República, por parte, y John S. Casement, contratista de ferrocarriles, vecino de Panisville, Ohio, de Estados Unidos de Norte América, por la otra han convenido en celebrar el siguiente contrato:
+"Juan J. Ulloa G. Secretario de Estado en el despacho de Fomento, debidamente autorizado por el señor Presidente de La República, por parte, y John S. Casement, contratista de ferrocarriles, vecino de Panisville, Ohio, de Estados Unidos de Norte América, por la otra han convenido en celebrar el siguiente contrato:
 I
 El Señor John S. Casement que en lo sucesivo se denominará el contratista, se compromete a construir, por la suma de dos millones setenta y un pesos cuarenta y tres centavos, oro americano y a entregar en perfecto estado de servicio, una vía férrea que, partiendo de esta capital, termine en el puerto de Tivives, en el litoral del Pacífico, incluyendo también los desvíos, tornamesas, cambiavías, cisternas, estaciones con sus edificios y dependencias, talleres provisto de fuerza motriz y de las máquinas y útiles necesarios, material rodante, en los modelos mas nuevos y perfectos, con locomotores y carros provistos de frenos de aire y enganchadores de patente, y almacenes provistos de todo lo necesario para el servicio del ferrocarril y una instalación el poste con los dos líneas telegráficas, desde esta capital hasta Tivives, y otra para uso exclusivo del ferrocarril. En la ejecución de los trabajos de construcción del ferrocarril y sus anexos, se emplearán materiales de primera clase, y el contratista se sujetará en un todo a los detalles, y especificaciones estipuladas en las bases técnicas formuladas por la Dirección General de Obras Públicas, que figuran en la cláusula siguiente:
 II
@@ -35,18 +37,18 @@ Han de medir:
 Lastre: El lastre será de arena limpia de río, arenon o piedra menuda resistente.
 Tendrá un espesor de 0.4 m que corresponde que corresponde.
 0.200 m cama de bajo de los durmientes.
-0.152 m alto “ “ “
+0.152 m alto " " "
 0.048 sobre los durmientes.
-Mampostería. – Los paramentos exteriores de toda obra de mampostería en los grandes puentes serán de piedra dura. Tallada, y el interior de concreto, formado de piedra y quebrada y mezcla compuesta de 5 partes de arena de río, sin tierra ni arcilla y de una parte de cal de concha, bien calcinada y en su mayor estado de fuerza.
+Mampostería. - Los paramentos exteriores de toda obra de mampostería en los grandes puentes serán de piedra dura. Tallada, y el interior de concreto, formado de piedra y quebrada y mezcla compuesta de 5 partes de arena de río, sin tierra ni arcilla y de una parte de cal de concha, bien calcinada y en su mayor estado de fuerza.
 Las Juntas de las piedras en los parámetros exteriores se cogerán con cemento romano.
 En los cimientos, tanto de bastiones de puente como de alcantarilla, se usará cemento romano de la mejor clase, en la proporción de 2 arenas de río, lavada, por 1 cemento.
 En construcciones secundarias y no muy expuesta al agua podrá emplearse para los muros el concreto, pero con repello de cemento con arena.
 En acueductos o atarjeas, también secundarias, podrá asimismo emplearse el concreto, pero el compuesto con cemento romano, en vez de cal, y debidamente repellado como los anteriores.
 Todo acueducto o atarjeas tener por lo menos una cabida interior igual a 4 veces la consiguiente a la cantidad de agua que de ordinario pase por él.
-Puentes. – Los puentes serán de acero o de hierro. Para cada puente se presentará al Gobierno, para su examen y aprobación, un proyecto con el sistema de construcción que se pretenda seguir, sin omitir detalles, y acompañado de un pliego de cálculo de resistencia de cada una de las piezas de que la obra se componga.
+Puentes. - Los puentes serán de acero o de hierro. Para cada puente se presentará al Gobierno, para su examen y aprobación, un proyecto con el sistema de construcción que se pretenda seguir, sin omitir detalles, y acompañado de un pliego de cálculo de resistencia de cada una de las piezas de que la obra se componga.
 El trabajo de metal, con arreglo a las leyes de Woehler, no deberá exceder, por milímetro cuadrado de sección, de los valores siguientes:
 Para el hierro 6.50 kilogramos
-“ “ acero 8.50
+" " acero 8.50
 En los cálculos justificados se deducirán siempre los huecos o vacíos producidos por el roblonado, cuyo cálculo también se acompañará.
 El tren tipo que servirá como base de cálculo para las estructuras metálicas consistirá en dos locomotoras de 60 toneladas de peso cada una, con su ténder, seguido de wagones cargados, suspendiéndose situado dicho tren en la disposición mas favorable con respecto a la resistencia de la obra.
 Antes de recibir cada estructura de hierro, se aprobará y se medirá la flecha máxima en el medio de cada tramo, bajo la influencia de la carga inmóvil después de la sobre carga en movimiento.
@@ -104,13 +106,13 @@ Toda estación deberá estar situada en un patio a nivel, de una longitud mínim
 Desvíos: Se construirán 6 en la estación de San José, 3 en la del puerto y uno en cada una de las estaciones de tránsito. Los switches serán de sistema ingles.
 Material rodante: Se compondrá de dos locomotoras de 28 toneladas cada una, 4 ruedas acopladas, carretillo de 4 ruedas, destinadas a la construcción y al servicio de la estación.
 4 locomotoras mixta destinadas a pasajeros y carga de 40 toneladas cada una.
-6 “ “ 2°
+6 " " 2°
 20 carros plataforma abiertos.
 Las locomotoras y carros serán de sistema americano. De ambas cosas se presentarán los planos y proyectos respectivos, para su aprobación.
 Los planos para las estaciones de término y edificios anexos al de la estación, lo mismo que los planos para las estaciones intermedias, se presentarán al Gobierno para su aprobación.
 El material rodante que se use por el contratista en la construcción de la vía, lo tomará el Gobierno, como parte del anteriormente especificado, siempre que sea de las condiciones que se indican y se encuentre en buen estado de servicio al tiempo de la entrega de la vía.
 En este caso se computará su precio con las deducciones consiguientes al uso y estado en que se entregue.
-Telégrafos. – Los postes serán de madera resistentes, de una altura no menor de tres metros y medio sobre la superficie del suelo, colocados a distancia regulares, y el alambre, aisladores y demás accesorios, iguales a los que actualmente se usan en el telégrafo nacional.
+Telégrafos. - Los postes serán de madera resistentes, de una altura no menor de tres metros y medio sobre la superficie del suelo, colocados a distancia regulares, y el alambre, aisladores y demás accesorios, iguales a los que actualmente se usan en el telégrafo nacional.
 El hilo telegráfico que se destina a servicio público, terminara en la Oficina Central de Telégrafos
 de esta capital, y se establecerán en toda la línea, además de las terminales, no menos de tres oficinas telegráficas, en los puntos que el Poder Ejecutivo designe, y se empleará el sistema de pilas y aparatos que la Dirección General de Telégrafos inidique.
 Los trabajos de construcción se calculan como sigue:
@@ -210,7 +212,7 @@ Roca dura: Granitos, cuarzos, basaltos porfiros y toda materia de naturaleza y r
 III
 La estimación de valores de los diferentes trabajos que debe ejecutar el contratista, así como los de maquinaria, material rodante y demás útiles, necesarios, se computan conforme a los cálculos siguientes:
 La estimación de valores de los diferentes trabajos que debe ejecutar el contratista, así como los de maquinaria, material rodante y demás útiles necesarios, se computan conforme a los cálculos siguientes:
-Las 3, 070 toneladas de 1, 016 k puentes de hierro en su lugar y a armados a $112-00 oro americano……………………………………. | 343, 840 00
+Las 3, 070 toneladas de 1, 016 k puentes de hierro en su lugar y a armados a $112-00 oro americano............... | 343, 840 00
 Los 88, 51224 kilometros de vía completa, con rieles de 25 k el metro lineal, plantilla angular, durmientes, lastre etc, etc, por kilómetros a $ 5, 652-10 | 500, 280 00
 Los 88.51. 224 kilómetros línea telegráfica, instalación completa | 11, 000 00
 Las 2 estaciones de término con sus bodegas y demás anexos | 31 000 00

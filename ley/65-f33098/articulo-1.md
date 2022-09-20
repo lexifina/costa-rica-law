@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO N°65
+(Esta norma fue derogada por el artículo 1°, inciso 221, de la ley N° 10288 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VIII parte)")
 Asigna a la señora doña Juana Vargas y Velarde viuda de Cartín, una pensión de treinta pesos mensuales.
 EL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE COSTA RICA
 Considerando que don Francisco Cartín Portugués sirvió con asiduidad y honradez ejemplares durante diecisiete años consecutivos, como tipografía de la Imprenta Nacional,

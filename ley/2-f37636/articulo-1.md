@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO N°2
+(Esta norma fue derogada por el artículo 1°, inciso 117, de la ley N° 10288 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VIII parte)")
 Nombra Magistrado de la Corte a don Alejandro Alvarado y don Ramón Loría)
 El Congreso Constitucional de la República de Costa Rica,
 Considerando: que la Sala de Casación del Supremo Tribunal de Justicia se encuentra incompleta por fallecimiento de uno de sus miembros y renuncia de otro.

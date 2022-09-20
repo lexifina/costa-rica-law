@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO N°1
+(Esta norma fue derogada por el artículo 1°, inciso 326, de la ley N° 10288 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VIII parte)")
 (de 5 de agosto)
 Abre las sesiones extraordinarias el Congreso Constitucional.
 EL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE COSTA RICA

@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO N°13
+(Esta norma fue derogada por el artículo 1°, inciso 307, de la ley N° 10288 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VIII parte)")
 (de 24 de mayo)
 Aprueba el decreto número emitido por la Comisión Permanente, que faculta al Poder Ejecutivo para que asimile en el Ejercito Nacional a los militares nacionales o extranjeros que han alcanzado en otras partes graduación mayor que la Teniente Coronel.
 EL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE COSTA RICA.

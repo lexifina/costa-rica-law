@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO N°. IX.
+(Esta norma fue derogada por el artículo 1°, inciso 50, de la ley N° 10288 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VIII parte)")
 (de 17 de Abril.)
 Aprueba el contrato del Ministerio de Fomento con don Francisco Mendiola Boza sobre establecimiento de teléfonos en el país.
 JOSÉ J. RODRÍGUEZ,
@@ -6,8 +8,8 @@ PRESIDENTE CONSTITUCIONAL DE LA REPÚBLICA DE COSTA RICA.
 Siendo de interés público el establecimiento en el país de una Empresa de teléfonos y habiendo caducado la concesión que para llevarla á efecto se hizo á don Leopoldo de Rojas, por Decretos números 33 de 24 de Julio de 1891, 7 del 24 de Mayo y 3 del 13 de Diciembre, ambos de 1892;
 En uso de facultades extraordinarias,
 DECRETA:
-Artículo único. —Apruébase en todas sus partes el contrato celebrado entre la Secretaría de Fomento y don Francisco Mendiola Boza, para el establecimiento de teléfonos, que dice:
-“José Vargas M., Secretario de Estado en el despacho de Fomento, autorizado para este acto por el señor Presidente de la República, y Francisco Mendiola Boza, mayor de edad, casado, natural de Cuba, avecindado aquí, han convencido en el siguiente contrario:
+Artículo único. -Apruébase en todas sus partes el contrato celebrado entre la Secretaría de Fomento y don Francisco Mendiola Boza, para el establecimiento de teléfonos, que dice:
+"José Vargas M., Secretario de Estado en el despacho de Fomento, autorizado para este acto por el señor Presidente de la República, y Francisco Mendiola Boza, mayor de edad, casado, natural de Cuba, avecindado aquí, han convencido en el siguiente contrario:
 I.
 Mendiola Boza se compromete á establecer y mantener durante diez años, contados desde la fecha de este contrato, el servicio telefónico en la República, bajo las siguientes condiciones:
 a) El servicio telefónico en esta capital y en las ciudades de Heredia, Alajuela y Cartago, deberá estar abierto al público dentro de un año, contado desde esta fecha; y dentro de dieciocho meses desde la misma fecha deberán estar comunicados los puertos de Limón y Puntarenas con la red telefónica.
@@ -44,7 +46,7 @@ Durante los seis primeros años de este contrato no podrá el Gobierno hacer con
 En fe de lo cual firman los otorgantes en el Palacio Nacional, en San José, á los doce días del mes de Abril de mil ochocientos noventa y tres.
 J. VARGAS M. FRANCISCO MENDIOLA BOZA.
 Casa Presidencial. San José, á doce de Abril de mil ochocientos noventa y tres.
-Apruébase el contrato anterior. —Rubricado por el señor Presidente. —VARGAS M.”
+Apruébase el contrato anterior. -Rubricado por el señor Presidente. -VARGAS M."
 Dado en la Casa Presidencial, en San José, á los diez y siete días del mes de Abril de mil ochocientos noventa y tres.
 JOSÉ J. RODRÍGUEZ.
 El Secretario de Estado en el despacho de Fomento, J. VARGAS M.

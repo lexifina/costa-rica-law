@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO N°77
+(Esta norma fue derogada por el artículo 1°, inciso 167, de la ley N° 10288 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VIII parte)")
 (de 1 de agosto)
 Aprueba los actos comprendidos en la Memoria de Relaciones, etc.
 EL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE COSTA RICA

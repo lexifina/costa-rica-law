@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO N°. XXIII
+(Esta norma fue derogada por el artículo 1°, inciso 53, de la ley N° 10288 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VIII parte)")
 (de 14 de Julio.)
 Nombra regidores para la Municipalidad de Nicoya.
 JOSE JOAQUÍN RODRPIGUEZ,
@@ -6,7 +8,7 @@ PRESIDENTE CONSTITUCIONAL DE LA REPÚBLICA DE COSTA RICA.
 Por cuanto la Municipalidad del cantón de Nicoya ha admitido su renuncia de los Regidores don Francisco Orozco y don Antonio Rosales, propietario y suplente respectivamente;
 Por tanto, en uso de facultades extraordinarias,
 DECRETA:
-Nómbrase para Regidores de la expresada Municipalidad, en sustitución de los señores Orozco y Rosales, á los señores don Cosme Carrillo, en calidad de propietario, y don Guadalupe Ramos, en la de suplente —quienes se presentarán ante el Jefe Política del cantón dicho, á las 12 del día 25 del corriente á prestar el juramento de ley.
+Nómbrase para Regidores de la expresada Municipalidad, en sustitución de los señores Orozco y Rosales, á los señores don Cosme Carrillo, en calidad de propietario, y don Guadalupe Ramos, en la de suplente -quienes se presentarán ante el Jefe Política del cantón dicho, á las 12 del día 25 del corriente á prestar el juramento de ley.
 Dado en la Casa Presidencial, en San José, á los catorce días del mes de Julio de ml ochocientos noventa y tres.
 JOSÉ J. RODRÍGUEZ.
-El Secretario de Estado en el despacho de Gobernación. —J. VARGAS M.
+El Secretario de Estado en el despacho de Gobernación. -J. VARGAS M.

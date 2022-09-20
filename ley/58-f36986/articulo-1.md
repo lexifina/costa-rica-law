@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO N°58
+(Esta norma fue derogada por el artículo 1°, inciso 148, de la ley N° 10288 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VIII parte)")
 (de 22 de julio)
 Aprueba los actos comprendidos en la Memoria de hacienda
 EL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE COSTA RICA

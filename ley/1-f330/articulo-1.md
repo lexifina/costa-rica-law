@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO N°1
+(Esta norma fue derogada por el artículo 1°, inciso 286, de la ley N° 10288 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VIII parte)")
 (de 18 de noviembre)
 El Congreso Constitucional de la República de Costa rica.
 Con vista del derecho número 14 del Poder Ejecutivo, emitido el 6 del corriente mes, por el que se convoca a este Alto Cuerpo a sesiones extraordinarias con el objeto de que conozca del Tratado por el cual se someten a arbitraje las cuestiones sobre límites pendientes entre esta República y la de Colombia,

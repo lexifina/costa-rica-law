@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO N°1
+(Esta norma fue derogada por el artículo 1°, inciso 237, de la ley N° 10288 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VIII parte)")
 (de 17 de setiembre)
 LA COMISION PERMANENTE DEL CONGRESO CONSTITUCIONAL DE LA REPUBLICA DE COSTA RICA
 Considerando:

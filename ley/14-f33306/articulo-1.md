@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO N°14
+(Esta norma fue derogada por el artículo 1°, inciso 189, de la ley N° 10288 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VIII parte)")
 (de 29 de mayo)
 Aprueba el decreto n° 4 de 14 de octubre de 1895, referente a la concesión del señor Samuel B. Allison
 EL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE COSTA RICA,

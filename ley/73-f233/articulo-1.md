@@ -1,5 +1,7 @@
+(Derogado)
 ACUERDA N°. LXXIII
 (de 31 de Agosto.)
+(Esta norma fue derogada por el artículo 1°, inciso 28, de la ley N° 10288 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VIII parte)")
 Declara disuelto el Congreso y convoca á las Asambleas Electorales para nuevas elecciones.
 JOSÉ JOAQUÍN RODRÍGUEZ
 PRESIDENNE CONSTITUCIONAL DE LA REPÚBLICA DE COSTA RICA,
@@ -10,4 +12,4 @@ Considerando 4°.: que si bien el Poder Ejecutivo está autorizado para convocar
 Considerando 5°.: que es deber del Gobierno conservar el orden público y proveer á la marcha regular de las instituciones, removiendo para ello los obstáculos que se opongan.
 Por tanto, y de acuerdo con el Consejo de Gobierno,
 DECRETA:
-Artículo 1°. —Declárase disuelto el actual Congreso Constitucional.
+Artículo 1°. -Declárase disuelto el actual Congreso Constitucional.

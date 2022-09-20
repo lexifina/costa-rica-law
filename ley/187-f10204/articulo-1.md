@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO 187
+(Esta norma fue derogada por el artículo 1°, inciso 3, de la ley N° 10288 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VIII parte)")
 El Jefe Supremo del Estado libre de Costa Rica.
 Por cuanto la Asamblea ha decretado y el Consejo sancionado lo siguiente:
 La Asamblea Constitucional del Estado libre de Costa Rica, teniendo en considerando la suma escasez de aguas que sufre la ciudad de Heredia, según representa su municipalidad, la diaria penalidad que experimenta el sexo femenino de toda clase, edad y estado, en irla a traer por las noches hasta Barba, los desordenes que de esto se han seguido y podrían seguirse, la insalubridad que necesariamente resulta de la putrefacción que padece la poca agua que actualmente corre, y últimamente con presencia del examen de la obra conducente o facilitar el curso de las aguas, mandando hacer por la misma municipalidad, ha venido en decretar y decreta:
@@ -8,6 +10,6 @@ La Asamblea Constitucional del Estado libre de Costa Rica, teniendo en considera
 4° La misma municipalidad a la mayor brevedad, presentará al mando Político el padrón exacto para la itineraria, y de la recaudación de su producto, será estrechamente responsable.
 5° Concluido el trabajo u obra que deba ser preferida (en orden a aumentar las aguas) propondrán la municipalidad al mando Político, dando a este el mas completo conocimiento, la obra que deba emprenderase, o para el mejor curso o para aseo, y con aprobación del mismo mando se emprenderá usando de los recursos designados en el artículo 3° de esta Ley.
 6° La municipalidad observará la economía posible aun días del mes de mayo de mil ochocientos veintinueve.
-Al Consejo Representativo. – dado en San José, a los veintiún días del mes de mayo de mil ochocientos veintinueve.
-Sala de Consejo. – San José, mayo veintisiete de mil ochocientos veintinueve.
+Al Consejo Representativo. - dado en San José, a los veintiún días del mes de mayo de mil ochocientos veintinueve.
+Sala de Consejo. - San José, mayo veintisiete de mil ochocientos veintinueve.
 Por tanto: Ejecútese, San José, mayo veintinueve de mil ochocientos veintinueve.

@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO N°17
+(Esta norma fue derogada por el artículo 1°, inciso 89, de la ley N° 10288 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VIII parte)")
 Establece una Casa Nacional de la República de Costa Rica
 A iniciativa del Poder Ejecutivo.
 Considerando 1° Que es un deber del Gobierno construir de su parte con los medios que estén a su alcance a la disminución del vicio, mayormente si se manifiesta en personas que por su temprana edad son mas accesibles a las disciplinas de una educación moral encaminada a despertar y fortalecer en ellas convicciones y hábitos de honradez.
