@@ -1,8 +1,0 @@
-Artículo 16.—Comunicación de limitaciones. Antes de iniciar un estudio, el funcionario y la funcionaria de Auditoría responsable deberán realizar una declaración (por escrito) de que no fue responsable de las operaciones a evaluar, así como de que la independencia y objetividad de su labor no se ven comprometidos. Si la independencia u objetividad se vieran comprometidas de hecho o en apariencia dicha situación deberá ser comunicada de la siguiente forma:
-1) Si se trata del Auditor o Auditora Interna, deberá comunicarlo adecuadamente al Concejo Municipal y se tendrán tres opciones:
-a. Se realiza el estudio a cargo del Auditor o Auditora Interna, y en la comunicación de resultados se deberá de hacer la anotación de la situación presentada.
-b. En caso de ser necesario y posible asignar el estudio a otro funcionario o funcionaria quien deberá de desarrollarlo de manera independiente del Auditor o Auditora Interna y comunicarlo directamente al Concejo Municipal.
-c. Si el criterio y la independencia se ven muy afectados, no se realiza el estudio pero se comunica al Concejo Municipal a fin de que éste determine si efectúa las evaluaciones ya sea por la Administración, por contratación externa o en su defecto por medio de un grupo de auditores de otras municipalidades como una Auditoria o estudio especial.
-2) Si se trata de otro funcionario o funcionaria de la Auditoría Interna deberá de comunicarlo por escrito al Auditor o Auditora Interna a fin de que éste determine que procede considerando lo siguiente:
-a. Se realiza el estudio a cargo del funcionario o de la funcionaria asignada.
-b. Se asigna el estudio a otro funcionario o funcionaria o lo realizará el Auditor o Auditora Interna.

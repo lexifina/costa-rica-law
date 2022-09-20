@@ -1,1 +1,0 @@
-Artículo 34.—Otras regulaciones. El Concejo Municipal deberá establecer las disposiciones y regulaciones de tipo administrativo que le sean aplicables al Auditor o Auditora Interna. Estas deberán ser afines a los puestos de similar jerarquía. Estas regulaciones no podrán afectar la independencia o ámbito de control del Auditor o Auditora Interna.

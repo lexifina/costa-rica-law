@@ -1,1 +1,0 @@
-Artículo 32.—Vacaciones, permisos y otros del Auditor o Auditora Interna. Las vacaciones, permisos y otros asuntos del Auditor o Auditora Interna deberán ser conocidos y aprobados por el Concejo Municipal. Quedan exceptuados de autorización previa del Concejo Municipal los permisos que por su propia naturaleza no puedan ser tramitados con antelación.

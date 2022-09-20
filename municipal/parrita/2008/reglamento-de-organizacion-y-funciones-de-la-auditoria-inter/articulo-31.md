@@ -1,1 +1,0 @@
-Artículo 31.—Jornada laboral. Se establecerá de conformidad con lo regulado al Reglamento Interno de Trabajo de la Institución. En cuanto a las salidas de la institución para el cumplimento de sus funciones, a discreción del Auditor o Auditora Interna lo podrá comunicar al Concejo Municipal, siempre que esta comunicación no entorpezca sus funciones e independencia

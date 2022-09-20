@@ -1,1 +1,0 @@
-Artículo 19.—Organización interna. La Auditoría Interna se organizará y funcionará según el presente Reglamento y lo que disponga el Auditor o Auditora Interna, de conformidad con las disposiciones, normas, políticas y directrices que emita la Contraloría General de la República, que serán de acatamiento obligatorio.
