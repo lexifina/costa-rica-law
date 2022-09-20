@@ -1,4 +1,6 @@
+(Derogado)
 N°1785
+(Esta norma fue derogada por el artículo 1° inciso 6) ley N° 10290 del 20 de setiembre del 2022, "Derogatoria de Leyes Caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (IX Parte Energía)
 LA ASAMBLEA LEGISLATIVA
 DE LA REPÚBLICA DE COSTA RICA
 DECRETA:
