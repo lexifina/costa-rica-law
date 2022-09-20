@@ -1,1 +1,0 @@
-Art. 99. La duración de los Jefes Políticos será la de tres años, pudiendo ser reelectos y removidos a juicio del Poder Ejecutivo; y mientras tales Jefes Políticos sean, no podrán tener otro empleo, ni ejercer otras funciones que las que le señala la ley.

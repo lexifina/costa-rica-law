@@ -1,1 +1,0 @@
-Art 70°. - Solo los Gobernadores tienen la facultad de convocar a cabildos abiertos a los ciudadanos de las Provincias o a los de un Cantón o Distrito, para oir sus votos sobre algún asunto de interés común.

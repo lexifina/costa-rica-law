@@ -1,1 +1,0 @@
-Artículo 263. El Juez, en vista del título que deber haberle presentado el que haga la reclamación expresada en el segundo párrafo del artículo anterior, y oyendo a ambas partes en juicio verbal, dictar el plano la providencia que proceda. Los gastos y costas ser n en su totalidad, de cuenta del propietario, que se hubiere resistido a pedir la inscripción.

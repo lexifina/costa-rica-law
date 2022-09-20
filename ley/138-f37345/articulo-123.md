@@ -1,1 +1,0 @@
-Art 123.- Si ocurriere el fallecimiento de la persona emplazada antes de la contestación de la demanda, se hará nuevo emplazamiento a sus herederos, y en su defecto no les pararán perjuicios las actuaciones ulteriores.

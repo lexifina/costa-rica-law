@@ -1,1 +1,0 @@
-Artículo 5°.- Para exigir cualquier responsabilidad del arriero, no habrá consideración a su domicilio, y por consiguiente el interesado le puede demandar ante la autoridad de cualquier pueblo donde se halle o de aquel donde se celebró el contrato.

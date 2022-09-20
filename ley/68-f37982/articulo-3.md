@@ -1,1 +1,0 @@
-Art 3°.- A más de la pena impuesta en los dos artículos precedentes, los Gobernadores comunicarán con cien pesos de multa a los que fuesen omisos en el cumplimiento de las obligaciones que se les impone por el presente decreto.

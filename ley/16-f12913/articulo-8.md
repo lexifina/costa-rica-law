@@ -1,1 +1,0 @@
-ARTÍCULO 8°. -Si el Presidente hiciese alguna proposición, para sostenerla, tomar asiento entre los demás Representantes, llamando en su lugar al Vice-Presidente; quien en igual caso dejar la Presidencia al primer Secretario.

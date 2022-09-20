@@ -1,1 +1,0 @@
-Art 14° Los primeros gastos que ocasione las medida y venta de terrenos a que se refiere la presente ley, se suplicarán del fondo de Propios respectivo con calidad de reintegro por quien correspondas en su oportunidad.

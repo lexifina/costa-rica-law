@@ -1,1 +1,0 @@
-Art 3°. Inmediatamente después de instaladas las Cámaras, se reunirán en Congreso y procederá este a abrir los pliegos que contengan los sufragios para Presidente de la República y a declarar o hacer la elección conforme a la ley, señalando día para darle posesión.

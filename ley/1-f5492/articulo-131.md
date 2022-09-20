@@ -1,1 +1,0 @@
-ARTÍCULO 131. Cuando todos los bienes reservables fueren inmuebles, se constituir la hipoteca solamente sobre ellos, en la forma prevenida en el artículo anterior, con la Única diferencia de hacerse mención del título en que se funde el derecho a la reserva al enumerar y describir los bienes que se hipotequen.

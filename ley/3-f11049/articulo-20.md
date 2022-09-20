@@ -1,1 +1,0 @@
-ARTICULO 20.-El Consejo se reunir siempre que el Rector Director en falta suya, lo convoque para consultarle todas las disposiciones que tenga bien dictar para el mejor orden y disciplina del Instituto y para mayor aprovechamiento de los alumnos.

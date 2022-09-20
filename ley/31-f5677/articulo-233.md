@@ -1,1 +1,0 @@
-Artículo 233. El Ministerio podrá, además de la visita ordinaria trimestral, practicar por sino por medio de sus delegadas, las extraordinarias que juzgue convenientes, bien generales a todo el registro, o bien parciales a determinados libros del mismo.

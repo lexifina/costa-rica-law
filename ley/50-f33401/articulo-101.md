@@ -1,1 +1,0 @@
-Articulo 101.-Los recursos de nulidad a que se refiere la presente ley se resolverán precisamente en el Tribunal Supremo dentro del Término de ocho días contados desde que se hubiese recibido el expediente, bajo la responsabilidad del Presidente.

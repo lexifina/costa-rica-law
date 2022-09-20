@@ -1,1 +1,0 @@
-Art 129.- Cuando el Tribunal hallare fundada la oposición hecha al recibimiento de prueba, no procederá a sentenciar los autos en definitiva, sin declarar previamente no haber lugar a la prueba, y mandar citar las partes de nuevo para sentencia, que pronunciará en efecto luego que esta providencia quede ejecutoriada.

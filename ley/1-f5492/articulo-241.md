@@ -1,1 +1,0 @@
-Artículo 241. El Gobierno impondrá, de oficio o por denuncia de cualquier persona, las multas prevenidas en el artículo 279 de la ley, luego que conste haberse cometido alguna falta que las merezca; pero oyendo previamente al Registrador en el expediente que instruir al efecto.

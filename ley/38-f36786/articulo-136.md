@@ -1,1 +1,0 @@
-Art 136 Ningún individuo nombrado para el desempeño de algún empleo Municipal, puede excusarse sin haber previamente tomado posesión de tal empleo a no ser que se halle en imposibilidad física de verificarlo.

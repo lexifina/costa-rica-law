@@ -1,1 +1,0 @@
-Art 2° Se reanudan en la Gobernación las facultades que las leyes dan a aquel cuerpo, debiendo dar cuenta circunstanciada al Poder Ejecutivo, siempre que haga uso de las atribuciones que competían a la Corporación Municipal.

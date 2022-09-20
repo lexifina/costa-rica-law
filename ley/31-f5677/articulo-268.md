@@ -1,1 +1,0 @@
-Artículo 268. El Registrador remitir el 1° Abril, los estados expresados en el artículo anterior, al Ministerio de Gobernación, quien remitir un ejemplar al Ministerio de Hacienda para su conocimiento.

@@ -1,1 +1,0 @@
-Art 79.- Habrá otra matrícula para los pleitos que se haya de ver para providencia interlocutoria que cause estado, siguiéndose en su vista el mismo orden de inscripción con excepción prescrita en el artículo precedente.

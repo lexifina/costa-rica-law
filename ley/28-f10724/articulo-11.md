@@ -1,1 +1,0 @@
-Art 11 El hierro para el Ferrocarril y los demás materiales y útiles que sean necesarios para la construcción y tráfico estarán libres de pagar derechos de importación y el mismo camino y sus accesorios exentos de todo impuesto.

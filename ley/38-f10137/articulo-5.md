@@ -1,1 +1,0 @@
-Artículo 5°. -La jurisdicción del Alcalde Constitucional del Limón, queda limitada al conocimiento de los juicios civiles en materia verbal, al de los actos de jurisdicción voluntaria y a la cartulación en cualquiera cantidad que ocurra en toda la Comarca.

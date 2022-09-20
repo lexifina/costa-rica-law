@@ -1,1 +1,0 @@
-Art 5° No pueden ser electores el Presidente de la República, el Obispo, los Secretarios de Estado, los Magistrados de la Corte de Justicia los Gobernadores, los Curas, los Jefes de Policía ni los militares en servicio.

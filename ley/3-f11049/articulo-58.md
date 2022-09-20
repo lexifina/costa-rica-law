@@ -1,1 +1,0 @@
-ARTICULO 58.-El alumno calificado con nota de suspenso no podrá presentarse nuevos ejercicios, sino es después de pasados tres meses. Si en esta nueva prueba fuese calificado con igual nota, no podrá ser admitido sino hasta el año siguiente y entonces ser definitivamente aprobado reprobado.

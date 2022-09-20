@@ -1,2 +1,0 @@
-Art 2.- El Gobernador de la Provincia de San José nombrará un comisionado Agrimensor que reconociendo el terreno de aquel pueblo, procede de acuerdo con los vecinos principales del mismo, a designar el punto más a propósito para medir la porción que deba venderse.
-& único. Para los efectos del artículo anterior, deberán preferirse aquellos lugares donde los vecinos del pueblo no tengan habitaciones y labores.

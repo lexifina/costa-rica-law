@@ -1,1 +1,0 @@
-Art 10° Los Ayudantes alternarán entre sí el servicio de Jefe de día. Consistirá este servicio en asegurar el orden y policía del campamento, en presidir la entrega de víveres; en visitar la enfermería y en recorrer la línea general de los trabajos si las circunstancias lo exigieren.

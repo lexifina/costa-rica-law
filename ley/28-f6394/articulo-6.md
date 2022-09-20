@@ -1,1 +1,0 @@
-Art 6° No se requiere escritura pública para constituir hipoteca en favor del Banco Nacional de Costa Rica, bastando para establecerla, el acto de la entrega de los títulos de propiedad, hecho constar en el documento que se otorgue en favor del Banco, al recibirse la cantidad solicitada.

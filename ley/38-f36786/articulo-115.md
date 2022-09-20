@@ -1,1 +1,0 @@
-Art 115° Los Gobernadores y Jefes Políticos son los encargados de promover y llevará a cabo estos trabajos, encomendándolos a personas de conocida inteligencia para tal objeto, previo acuerdo de las Municipalidades respectivas.

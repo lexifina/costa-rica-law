@@ -1,1 +1,0 @@
-Art 349°.- El apremio personal contra los deudores a falta de bienes sobre qué hacer efectivo el pago de la deudores a falta de bienes sobre qué hacer efectivo el pago de la deuda, se arreglará por ahora a las disposiciones del derecho común con las excepciones que ellas prescriben.

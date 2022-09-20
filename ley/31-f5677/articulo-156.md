@@ -1,1 +1,0 @@
-Artículo 156. Si el marido careciere de bienes con que construir la hipoteca de que trata el número 3° del artículo 141, quedar obligado a constituirla sobre los primeros inmuebles o derechos reales que adquiera; pero sin que esta obligación pueda perjudicar a tercero, mientras no se inscriba la hipoteca.

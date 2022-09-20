@@ -1,1 +1,0 @@
-ARTÍCULO 150. Se procurar que los libros del registro sean encuadernados de manera que no pueda extraerse de ellos hoja ninguna, sin dejar señales de la sustracción, ni volver a ser encuadernados, conservando su primitiva forma y dimensiones.

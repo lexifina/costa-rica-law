@@ -1,1 +1,0 @@
-ARTÍCULO 123. Los cartularios dar n cuenta al Registrador y ‚este a su vez a la Sala de 2° instancia, en la forma prevenida en los artículos 107 y 109 de las escrituras que ante ellos se otorguen, enajenando ¢ gravando bienes dotales, sin la subrogación de hipotecas correspondientes, por mediar las circunstancias indicadas en el párrafo 2° del artículo anterior.

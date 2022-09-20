@@ -1,1 +1,0 @@
-ARTICULO 33.-La matrícula se abrir quince días antes de principiar las clases y podrá continuar por quince días después, juicio del Rector. Trascurrido este término no podrá matricularse ningún alumno. La matrícula es indispensable para ganar el curso.

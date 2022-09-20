@@ -1,1 +1,0 @@
-Art 215°.- Todos los acreedores de la quiebra así como el mismo quebrado serán admitidos a ejercer la acción, concede el artículo 1029 contra los síndicos que compraren o hayan comprado efecto de la quiebra.

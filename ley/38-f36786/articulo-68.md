@@ -1,1 +1,0 @@
-Art 68° Tienen los Gobernadores la facultad de ejecutar por sí mismo, y sin necesidad de autorización o hacer qu se ejecuten por sus agentes las penas y apremios correccionales impuestos por las leyes de policía.

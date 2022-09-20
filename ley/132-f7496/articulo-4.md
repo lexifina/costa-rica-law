@@ -1,1 +1,0 @@
-ARTÍCULO 4°.-Cuando algún individuo pretenda derecho a un niño por asegurar ser su padre natural, deber justificar esta circunstancia y la de haber llenado todas sus obligaciones desde la Concepción de aquel; pero en todo caso el Jefe de Policía obrar según mejor convenga a la suerte del niño, consultando el espíritu de las disposiciones mencionadas.
