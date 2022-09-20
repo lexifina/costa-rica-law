@@ -1,7 +1,0 @@
-Artículo 94.—Las instalaciones deportivas existentes en instituciones educativas, gimnasios, plazas, estadios, pistas de atletismo, piscinas y otras que hayan sido construidas con fondos públicos o por dependencias gubernamentales, deberán ponerse al servicio de las respectivas comunidades del Cantón, tanto durante el curso lectivo como en el período de vacaciones.
-La administración de éstas estará a cargo de un Comité administrador, integrado por cinco miembros por la Junta Administradora o Junta de Educación según corresponda en la forma siguiente:
-A- Un representante del Departamento de Educación Física de la institución o del personal docente si no lo hubiere, según tema que proponga el director de la misma.
-B- Un representante del Comité Cantonal según tema que proponga el Presidente de éste.
-C- Un representante del Gobierno Estudiantil según tema que proponga el Comité Ejecutivo del mismo, si las instituciones son de tercer o cuarto ciclo, cuando fuere de primero o segundo ciclos, el Director de la institución propondrá una lema de padres de familia para tal efecto.
-D- Un representante de la Junta Administradora o de Educación según corresponda de su libre designación.
-E- Un representante de la comunidad, de libre elección de la Junta Administrativa o de Educación según corresponda, a escoger entre las organizaciones: Asociaciones de Desarrollo, Junta Progresista, Movimiento Nacional de Juventudes, etc.

@@ -1,1 +1,0 @@
-Artículo 56.—El quórum para sesionar esta integrado por la mitad más uno del total de miembros presentes del Comité. Los acuerdos se tomarán por la mayoría simple de los votos presentes, salvo si este Reglamento señala un mayor número de votos. En caso de empate en una votación, el Presidente tendrá voto calificado.

@@ -1,1 +1,0 @@
-Artículo 97.—Los directivos del Comité Cantonal no podrán formar parte o integrar comisiones distritales, los distritos deportivos y éstos a su vez de las Subcomisiones de deportes y recreación según la estructura organizativa contenida en este Reglamento.

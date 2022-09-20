@@ -1,1 +1,0 @@
-Artículo 12.—Las Comisiones Distritales y los Distritos Deportivos deberán entregar al Comité Cantonal en el mes de agosto de cada año los planes de trabajo y su respectivo presupuesto, para el ano inmediato posterior.

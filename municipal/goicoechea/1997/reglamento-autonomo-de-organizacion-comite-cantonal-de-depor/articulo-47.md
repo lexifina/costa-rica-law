@@ -1,1 +1,0 @@
-Artículo 47.—Cuando se realicen torneos internos del Distrito las Comisiones Distritales deberán confeccionar el respectivo reglamento, el que debe ser ratificado por el Comité Cantonal para su aplicación.

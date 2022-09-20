@@ -1,1 +1,0 @@
-Artículo 101.—Todos aquellos aspectos no regulados en este Reglamento serán resueltos por el Comité Cantonal de conformidad con la sana crítica de sus miembros, no obstante la resolución que se dicte en tales casos deberá ser aprobada por el organismo superior inmediato de éste para su debida incorporación al Reglamento.

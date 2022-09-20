@@ -1,1 +1,0 @@
-Artículo 102.—Con fundamento en lo establecido en el numeral 47 del Código Municipal el proyecto de este reglamento fue sometido a consulta popular por el término de diez días hábiles contados a partir de la fecha de publicación.

@@ -1,1 +1,0 @@
-Artículo 44.—Otras obligaciones y facultades de las Comisiones Distritales y Distritos Deportivos serán determinadas por el Comité Cantonal siempre que no contradigan este Reglamento, las Leyes o decretos vigentes relacionados con esta materia.

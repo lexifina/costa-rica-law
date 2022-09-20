@@ -1,3 +1,0 @@
-TRANSITORIO ÚNICO
-No habiendo sido nombrado el fiscal para el período vigente del Comité de Deportes, el Concejo Municipal lo nombrará dentro del mes siguiente a la fecha de entrada en vigencia de este reglamento, y durará en su puesto por lo que resta del presente periodo y hasta el nombramiento de los miembros del Comité para el período inmediato siguiente: lo anterior sin perjuicio de que se verifique la reelección de quien ocupe esa fiscalía.
-Este reglamento deroga el anterior que fue aprobado en la Sesión Ordinaria N° 83-84 del 1° de setiembre de 1984. Artículo 5°. y publicado en el Diario Oficial "La Gaceta" N° 41 de 27 de febrero de 1985 y cualquier otra norma que se le anteponga.

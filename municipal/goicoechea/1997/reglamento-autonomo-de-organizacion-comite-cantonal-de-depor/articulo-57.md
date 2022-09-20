@@ -1,1 +1,0 @@
-Artículo 57.—Todo miembro en forma escrita deberá comunicar cuando proceda las razones de su inasistencia a las sesiones, a más tardar dentro de las 24 horas siguientes a su ausencia, caso contrario será catalogada la inasistencia como injustificada y sancionable.
