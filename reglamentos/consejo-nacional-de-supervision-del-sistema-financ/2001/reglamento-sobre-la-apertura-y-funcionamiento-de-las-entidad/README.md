@@ -55,3 +55,4 @@ Reglamento sobre la Apertura y Funcionamiento de las Entidades Autorizadas y el 
 | 40 | 2022-04-18 | Reglamento 1725 (2022-04-18) |
 | 41 | 2022-05-03 | Reglamento 1728 (2022-05-02) |
 | 42 | 2022-07-18 | Reglamento 1743 (2022-07-18) |
+| 43 | 2022-09-20 | Reglamento 1757 (2022-09-20) |
