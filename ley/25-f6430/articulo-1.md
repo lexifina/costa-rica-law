@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO XXV
+(Esta norma fue derogada por el artículo 1°, inciso 731, de la ley N° 10287 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (Sexta parte)")
 Nombra los individuos que deben componer la Comisión Permanente.
 El Congreso Constitucional de la República de Costa Rica.
 En cumplimiento de lo dispuesto por el artículo 93 de la Constitución, decreta:

@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO XLVII
+(Esta norma fue derogada por el artículo 1°, inciso 747, de la ley N° 10287 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (Sexta parte)")
 Declara que los Auditores de Guerra son Jueces competencia para conocer en las causas civiles
 La Comisión Permanente.
 Habiendo tomado en consideración la consulta dirigida por la Corte Suprema de Justicia, a éste Alto Cuerpo, para que, en uso de sus facultades Constitucionales se sirva declarar, si los Auditores de Guerra establecidos por las leyes anteriores a que se refiere el artículo 85 de la ley orgánica de las milicias, emitida en 11 de mayo de 1871, son los llamados a conocer de las causas civiles y criminales por delitos comunes, en los casos en que se goza del fuero, de guerra, no obstante lo dispuesto en el art 200 del Código Penal Militar, que niega a dichos funcionarios la condición de Jueces, y consideración:

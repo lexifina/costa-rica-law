@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO CV.
+(Esta norma fue derogada por el artículo 1°, inciso 16, de la ley N° 10287 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (Sexta parte)")
 Subroga el art 1016 del Código de Procedimientos,
 con otro.
 N° 4.

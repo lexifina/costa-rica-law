@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO XX
+(Esta norma fue derogada por el artículo 1°, inciso 628, de la ley N° 10287 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (Sexta parte)")
 Organiza Provisionalmente la Corte Suprema de Justicia
 1° Que por la mala organización que se le dio a la Corte Suprema de Justicia por la Constitución política de 1869, la Administración Judicial no ha podido llenar las necesidades del despacho, produciendo esto notables perjuicios en los intereses y negocios del dominio del Poder Judicial.
 2° Que, aunque por la ley de 4 de marzo de corriente año se procuró destruir los males que produce aquella organización de la Corte Suprema, dicha ley no es eficaz en sus efectos.

@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO VI
+(Esta norma fue derogada por el artículo 1°, inciso 713, de la ley N° 10287 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (Sexta parte)")
 Deja sin efecto los párrafos 1 y 2 del artículo 14 de la Ley del Banco y el artículo 13 de los Estatutos, sobre la Presidencia de la Dirección del mismo Banco.
 Tomas Guardia, General de División y Presidente de la República de Costa Rica.
 Con la mira de remover el inconveniente a que sin objeto conocido han dado lugar a los 1 y 2 del artículo 14 de la Ley de Banco, número 18 de 10 de julio de 1867, decreto:

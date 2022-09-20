@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO XXXIX
+(Esta norma fue derogada por el artículo 1°, inciso 460, de la ley N° 10287 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (Sexta parte)")
 Reglamento de las funciones que competen a los Médicos del pueblo.
 Jesús Jiménez, Presidente de la República de Costa Rica.
 Haciendo uso de la facultad que me confiere la fracción 25 artículo 110 de la Carta fundamental, y el artículo 2° del Decreto número 6 de 2 de octubre próximo pasado,

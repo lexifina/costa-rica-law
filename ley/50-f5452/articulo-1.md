@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO L
+(Esta norma fue derogada por el artículo 1°, inciso 908, de la ley N° 10287 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (Sexta parte)")
 Determina la fianza que deben prestar los empleados que recaudan administran o invierten caudales públicos.
 La Comisión Permanente,
 Con Presencia de la iniciativa del Supremo Poder Ejecutivo del 16 del corriente, decreta:

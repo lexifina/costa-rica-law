@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO CXXXI.
+(Esta norma fue derogada por el artículo 1°, inciso 40, de la ley N° 10287 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (Sexta parte)")
 Reforma los artículos 45 y 46, 5° sección 2 del Reglamento de 10 de diciembre de 1839, respecto a la venta de terrenos baldíos situados dentro de una zona de dos leguas de ancho paralela a la milla reservada a orillas del mar y ríos navegables. (1) N° 6. "Presidente de la República de Costa Rica. Considerando:
 1°.-que el mayor valor de los terrenos baldíos en las costas del mar consiste en las varias y preciosas maderas que aquellas contienen, por cuya razón, después de cortadas dichas maderas el valor de los referidos terrenos desmerece considerablemente:
 2°.-Que en tal concepto las ventas de terrenos baldíos en las costas del mar, a orillas de los ríos navegables, deben hacerse por dinero al contado asegurarse con mejores garantas que la hipoteca de los mismos terrenos, que es la única que exigen los artículos 45 y 46, 5°, sección 2 del Reglamento de Hacienda de 10 de diciembre de 1839, decreto:

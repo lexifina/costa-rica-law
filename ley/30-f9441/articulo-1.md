@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO XXX
+(Esta norma fue derogada por el artículo 1°, inciso 734, de la ley N° 10287 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (Sexta parte)")
 Concede privilegio a Don Marius Gamet, para establecer y mantener en la República una o malatura de seda.
 El Congreso Constitucional de la República de Costa Rica.
 Con presencia del memorial que a este alto cuerpo dirigió el Señor Don Marius Gamet, ciudadano francés, solicitando privilegio exclusivo por diez años, para establecer una filtatura de seda, y considerando de utilidad pública esta nueva industria, decreta:

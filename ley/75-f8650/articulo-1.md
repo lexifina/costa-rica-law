@@ -1,4 +1,7 @@
+(Derogado)
 DECRETO LXXV
+DECRETO LXVI
+(Esta norma fue derogada por el artículo 1°, inciso 990, de la ley N° 10287 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (Sexta parte)")
 Prohíbe la introducción y expendio de licores fuertes y mistelas por cuenta de particulares.
 Vicente Herrera, Presidente Provisorio de la República de Costa Rica.
 Considerando: que el monopolio de licores, que constituye una de las principales rentas fiscales, no puede producir todos sus resultados sino es manteniéndolos en lo absoluto, y extensivo a todos los licores fuertes, aun los que se introducen del extranjero.

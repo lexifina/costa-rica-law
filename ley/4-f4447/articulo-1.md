@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO IV
+(Esta norma fue derogada por el artículo 1°, inciso 711, de la ley N° 10287 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (Sexta parte)")
 Señala el día de la instalación del Supremo Poder legislativo.
 Tomas Guardia, General de División y Presidente de la República de Costa Rica.
 De conformidad con el inciso 8 artículo 102 de la Constitución y con el Decreto número 1° de 8 de enero del corriente año decreto:

@@ -1,4 +1,7 @@
+(Derogado)
 DECRETO LXVI
+DECRETO LXVI
+(Esta norma fue derogada por el artículo 1°, inciso 982, de la ley N° 10287 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (Sexta parte)")
 (Nota de Sinalevi: Se respeta la ortografía y gramática del texto original)
 Prohibe la introduccion de alcohol y fija los derechos que debe pagar el tabaco bajo cualquier forma que se introduzca.
 Vicente Herrera, Presidente Provisorio de la República de Costa-Rica

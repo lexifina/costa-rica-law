@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO VI
+(Esta norma fue derogada por el artículo 1°, inciso 616, de la ley N° 10287 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (Sexta parte)")
 Dicta algunas medidas para facilitar el despacho de negocios de la 2 Sala del Tribunal de Justicia.
 El Senado y la Cámara de Representantes de Costa Rica, reunidos en Congreso.
 Considerando que la pronta y recta administración de justicia, exigen de una manera imperiosa que se dicten medidas que tiendan a destruir el retardo que hoy se nota en la Sala 2° del Supremo Tribunal de Justicia, a consecuencia de la mucha acumulación de negocios y deseando conciliar el propio tiempo de garantías de que deben gozar los litigantes, decretan:

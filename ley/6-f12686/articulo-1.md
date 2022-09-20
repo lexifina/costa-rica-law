@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO VI
+(Esta norma fue derogada por el artículo 1°, inciso 86, de la ley N° 10287 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (Sexta parte)")
 Dicta algunas reglas sobre justiprecio y remates de bienes en el juicio ejecutivo (1)
 Juan Rafael Mora, Presidente de la República de Costa Rica.
 Considerando que la legislación del país no es bastante expresa para resolver algunos casos que se presentan en el juicio ejecutivo, y que semejante defecto perjudica muchas veces el interés de los particulares y aun el de la Hacienda Pública, que la Corte Suprema Poder Ejecutivo, y que la recta administración de justicia demanda una medida perentoria que llene aquel vacío, de acuerdo con la doctrina de varios juristas respetables y de la costumbre recibida, decreto:

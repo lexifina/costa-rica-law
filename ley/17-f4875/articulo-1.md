@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO XVII
+(Esta norma fue derogada por el artículo 1°, inciso 474, de la ley N° 10287 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (Sexta parte)")
 Da nueva organización a la Administración Principal de rentas de la República.
 José María Castro, Presidente de la República de Costa Rica, Siendo necesario dar nueva organización a la Administración Principal de rentas de la República, decreto lo siguiente:
 Reglamento
@@ -16,10 +18,10 @@ Es la única administración pagadora.
 Es asimismo la única que pueda abrir y llevar cuentas corrientes con los particulares que, bajo cualquier concepto, tengan negocios o contratos con el Gobierno.
 Art 5° Diariamente ingresarán a la Administración Principal, los fondos que colecten las otras Administraciones, a saber:
 La general de licores
-“ id “ Tabacos
-“ id “ Correos
-“ id “ Alcabalas
-“ id “ Rescates.
+" id " Tabacos
+" id " Correos
+" id " Alcabalas
+" id " Rescates.
 Las Administraciones de Aduana, de Correos y de Licores de Puntarenas, verificarán la remesa de sus fondos, de manera que cada viernes sean recibos en la Administración Principal, a no ser que está, a virtud de autorización especial del Gobierno, los mande, tener allá a su orden.
 Art 6° Todo entero en esta Administración deberá ser hecho por medio de orden de entero, y todo pago en virtud orden de pago, conforme se explica en los Capítulos VI y VII.
 Art 7° Mientras una letra u orden no haya sido aceptada por el Administrador, no será obligatorio el pago para el Gobierno.

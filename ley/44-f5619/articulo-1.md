@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO XLIV
+(Esta norma fue derogada por el artículo 1°, inciso 729, de la ley N° 10287 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (Sexta parte)")
 Reglamenta la práctica del decreto de 12 de julio de 1867.
 José Antonio Pinto Primer Designado en Ejercicio del Supremo Poder Ejecutivo de la República de Costa Rica, considerando:
 Que el objeto de la Ley de 12 de julio de 1867, no es el engrosar ningún fondo público, y esencialmente el de proteger la agricultura.

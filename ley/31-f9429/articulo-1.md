@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO XXXI
+(Esta norma fue derogada por el artículo 1°, inciso 634, de la ley N° 10287 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (Sexta parte)")
 Concede al ciudadano Antonio Acuña una pensión vitalicia de doce pesos mensuales.
 El Jefe del Gobierno provisorio de la República, considerando:
 Que el Señor Antonio Acuña, ha envejecido en el servicio público, al cual ha consagrado cincuenta y tres años de su vida, que fue uno de los servidores de la causa de la independencia nacional, como soldado del Ejército que su avanzada edad, de noventa y seis años, lo incapacita para proveer a su propia existencia por medio de su trabajo, no teniendo por otra parte, bienes ni renta.

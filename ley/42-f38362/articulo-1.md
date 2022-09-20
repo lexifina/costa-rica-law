@@ -1,6 +1,8 @@
+(Derogado)
 DECRETO XLII
+(Esta norma fue derogada por el artículo 1°, inciso 554, de la ley N° 10287 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (Sexta parte)")
 Cierra sus sesiones extraordinarias
-El Senado y la Cámara de Representantes de la República de Costa Rica, reunidos en Congreso. – Habiendo llenado el objeto de la convocatoria.
+El Senado y la Cámara de Representantes de la República de Costa Rica, reunidos en Congreso. - Habiendo llenado el objeto de la convocatoria.
 Decretan:
 Artículo único: El Congreso de la Nación cierra hoy sus Sesiones extraordinarias.
-Al Poder Ejecutivo. – Dado en el Salón de Sesiones Palacio Nacional de San José, a veinte y nueve de agosto de mil ochocientos sesenta y ocho.
+Al Poder Ejecutivo. - Dado en el Salón de Sesiones Palacio Nacional de San José, a veinte y nueve de agosto de mil ochocientos sesenta y ocho.

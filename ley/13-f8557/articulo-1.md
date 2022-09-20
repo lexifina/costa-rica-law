@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO XIII
+(Esta norma fue derogada por el artículo 1°, inciso 170, de la ley N° 10287 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (Sexta parte)")
 Impone penas a los jugadores y dueños de Hoteles y Restaurantes que consientan el juego prohibido en sus establecimientos.
 “Juan Rafael Mora, Presidente de la República de Costa Rica.
 Bien informado el Gobierno de que en los Hoteles y Restaurantes y en otras casas particulares existen juegos prohibidos, donde se cruzan intereses considerables y donde se admite toda clase de personas, aun hijos de familia, y teniendo presente: Que semejante transgresión de las leyes, no solo produce la desmoralización de la juventud, sino que más tarde viene a causar la ruina total de muchas familias y el desarrollo de las poblaciones con menoscaba del honor nacional, que es muy posible al colme o dueño de la casa y a los jugadores, eludir la vigilancia de la Autoridad pública por en encontrarse está ligada a ciertos procedimientos dilatorios y embarcándonos y que la ley penal establecida sobre juegos prohibidos no es suficiente para escarmentar a los delincuentes, como lo ha demostrado la experiencia en estos últimos días decreto;

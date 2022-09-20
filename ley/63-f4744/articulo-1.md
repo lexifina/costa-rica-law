@@ -1,4 +1,7 @@
+(Derogado)
 DECRETO LXIII
+DECRETO LXVI
+(Esta norma fue derogada por el artículo 1°, inciso 980, de la ley N° 10287 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (Sexta parte)")
 Aumenta el impuesto de muellaje en el puerto de Puntarenas
 Vicente Herrera, Presidente Provisorio de la República de Costa Rica.
 Necesitando el muelle de Puntarenas urgentes reparaciones y siendo indispensable crear recursos, no solo para ellas, sino también para su conservación en lo sucesivo, en uso de las facultades extraordinarias de que estoy investido, decreto:

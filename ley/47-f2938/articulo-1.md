@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO XLVII
+(Esta norma fue derogada por el artículo 1°, inciso 857, de la ley N° 10287 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (Sexta parte)")
 Subvenciones los Curatos de Esparza y Bagaces
 El Congreso Constitucional de la República de Costa Rica.
 En atención a que los Curatos de la ciudad de Esparza y Villa de Bagaces son incongruos y a que no es justo obligar a un Sacerdote a servir en una Iglesia donde no puede adquirir para una modesta mesa.

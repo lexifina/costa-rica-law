@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO XII
+(Esta norma fue derogada por el artículo 1°, inciso 931, de la ley N° 10287 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (Sexta parte)")
 Concede amnistía a los reos políticos
 Tomas Guardia, General de División y Presidente de la República de Costa Rica.
 En uso de la atribución 20 artículos 102 de Constitución, decreto:

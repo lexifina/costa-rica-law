@@ -1,8 +1,10 @@
+(Derogado)
 DECRETO XLIV
+(Esta norma fue derogada por el artículo 1°, inciso 83, de la ley N° 10287 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (Sexta parte)")
 Dispone que la composición y reparación del camino
 general se verifiquen por órdenes que emita el Poder
 Ejecutivo Nacional, y dicta algunas reglas al efecto (1)
-“Juan Rafael Mora, Presidente de la República de Costa Rica.
+"Juan Rafael Mora, Presidente de la República de Costa Rica.
 Considerando: que desde mucho tiempo tanto los hacendados como los comerciantes de café de la República, se han olvidado de los deberes a que se sujetaron por el decreto n°25 de 25 de noviembre de 1843, y que por este motivo han decaído los trabajos itinerarios que establecida el mismo decreto, resultando de aquí una notable desmejora en los caminos generales y la pérdida de los fondos destinados a componerlos:
 Que es de utilidad pública reglamentar aquellos trabajos y consultar economía en la administración de los caudales con que deben emprenderse; y
 Que el Gobierno no puede desatender un objeto tan interesante al comercio y a la agricultura del país, decreto:

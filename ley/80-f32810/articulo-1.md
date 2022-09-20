@@ -1,4 +1,6 @@
+(Derogado)
 DECRETA LXXX.
+(Esta norma fue derogada por el artículo 1°, inciso 116, de la ley N° 10287 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (Sexta parte)")
 Suprime el art. 1123 del Código de Comercio. (1)
 N.18.
 "Juan Rafael Mora, Presidente de la República de Costa-Rica.-Por cuanto el Excelentísimo Congreso Constitucional ha decretado lo siguiente:

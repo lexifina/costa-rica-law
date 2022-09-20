@@ -1,4 +1,6 @@
+(Derogado)
 LIII
+(Esta norma fue derogada por el artículo 1°, inciso 811, de la ley N° 10287 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (Sexta parte)")
 Admite la renuncia de las Carteras de Gobernación y Justicia al Doctor Don Vicente Herrera y nombra en su lugar a don Rafael Ramírez.
 Salvador González, Primer Designado en el ejercicio del Poder Ejecutivo de la República de Costa Rica.
 Admitida la renuncia al Señor Doctor Don Vicente Herrera, de las Carteras de Gobernación y Justicia, y en uso de la facultad que me confieren los artículos 102, inciso 1° y 105° de la Constitución.

@@ -1,4 +1,7 @@
+(Derogado)
 DECRETO LIII
+DECRETO LXVI
+(Esta norma fue derogada por el artículo 1°, inciso 972, de la ley N° 10287 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (Sexta parte)")
 Aprueba la Memoria de Hacienda y Comercio, y recomienda al Poder Ejecutivo lleve a efecto lo dispuesto en el artículo 4 del Decreto n°30 de julio de 1875.
 El Congreso Constitucional de la República de Costa Rica.
 Después de haber examinado el informe que en cumplimiento de la ley ha presentado el Honorable Señor Secretario de Estado en los despachos de Hacienda y comercio en la presente Legislatura, decreta:

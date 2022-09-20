@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO XIX
+(Esta norma fue derogada por el artículo 1°, inciso 777, de la ley N° 10287 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (Sexta parte)")
 Nombra Diputados suplentes que llene las faltas accidentales de los propietarios en la C. Permanente.
 El Congreso Constitucional de la República de Costa Rica.
 Para prevenir las consecuencias que pudieran originarse en la falta de personal para las sesiones de la Honorable Comisión Permanente, decreta:

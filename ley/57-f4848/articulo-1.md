@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO LVII
+(Esta norma fue derogada por el artículo 1°, inciso 911, de la ley N° 10287 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (Sexta parte)")
 Asegura el pago de los derechos judiciales
 Joaquín Lizano, Primer Designado en Ejercicio del Poder Ejecutivo de la República de Costa Rica.
 En ejecución del decreto n°4 de esta fecha, decreto:

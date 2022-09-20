@@ -1,6 +1,8 @@
+(Derogado)
 DECRETO CVII
+(Esta norma fue derogada por el artículo 1°, inciso 19, de la ley N° 10287 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (Sexta parte)")
 Aprueba los actos del Poder Ejecutivo comprendidos en la Memoria de Hacienda, Guerra y Marina.
-“ Juan Rafael Mora, Presidente de la República de Costa Rica.- Por cuanto el Excelentísimo Congreso Constitucional ha decretado lo siguiente.
+" Juan Rafael Mora, Presidente de la República de Costa Rica.- Por cuanto el Excelentísimo Congreso Constitucional ha decretado lo siguiente.
 El Excelentísimo Congreso Constitucional de la República de Costa Rica, habiendo visto y examinado la Memoria presentada por el Sr, Ministro de Hacienda, Guerra y Mariana, dando cuenta de los negocios propios de los departamentos de su cargo, decreta:
 Artículo único: Se aprueban todos los actos gubernamentales comprendidos en la Memoria que el Sr. Ministro de Hacienda, Guerra y Marina leyó en la sesión pública del 19 del próximo pasado mayo.-
 Dado en el Salón de sesiones en San José, a los dos días del mes de junio de mil ochocientos cincuenta y tres. Por tanto Ejecútese.

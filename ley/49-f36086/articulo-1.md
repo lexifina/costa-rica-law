@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO XLIX
+(Esta norma fue derogada por el artículo 1°, inciso 195, de la ley N° 10287 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (Sexta parte)")
 Dispone que el Gobierno acredite dos Ministros Plenipotenciarios cerca de Nicaragua
-“Juan Rafael Mora, Presidente de la República de Costa Rica, Por cuanto el Excelentísimo Congreso Constitucional ha decretado lo siguiente:
+"Juan Rafael Mora, Presidente de la República de Costa Rica, Por cuanto el Excelentísimo Congreso Constitucional ha decretado lo siguiente:
 El Excelentísimo Congreso Constitucional de la República de Costa Rica.- Vista la exposición del Poder Ejecutivo y deseando dar a la República de Nicaragua y a todos los pueblos de Centro América interesados en la feliz solución de las cuestiones pendientes entre Costa Rica y aquella República, un testimonio de su interés por el sostenimiento de los vínculos fraternales que deben unir a los Estados Centro-Americanos y para demostrar que desaprueba y desoye toda voz que se levante para romper aquellos vínculos hoy o en cualquier tiempo y queriendo dar su parte el ejemplo de ese respeto a la pza y bienestar social, y apartar los obstáculos que se opongan

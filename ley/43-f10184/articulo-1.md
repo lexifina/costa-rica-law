@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO XXXXIII
+(Esta norma fue derogada por el artículo 1°, inciso 704, de la ley N° 10287 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (Sexta parte)")
 Reforma el art. 1 del decreto de 17 de diciembre de 1870 sobre los delitos que se cometen contra la Hacienda Pública.
 Tomas Guardia Presidente de la república de Costa Rica.
 Considerando

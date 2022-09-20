@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO LXIX
+(Esta norma fue derogada por el artículo 1°, inciso 664, de la ley N° 10287 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (Sexta parte)")
 Declara insubsistente el Tratado celebrado entre Costa Rica y Nicaragua, sobre la excavación de un canal interoceánico.
 Tomas Guardia, general de la División y Presidente de la República de Costa Rica.
 Considerando:

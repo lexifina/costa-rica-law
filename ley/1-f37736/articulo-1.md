@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO I
+(Esta norma fue derogada por el artículo 1°, inciso 761, de la ley N° 10287 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (Sexta parte)")
 Vuelve a encargar el ejercicio del Poder Ejecutivo al Señor General Presidente D. Tomas Guardia.
 José Antonio Pinto Primer Designado en Ejercicio del Poder Ejecutivo:
 Habiendo regresado a la República el Excelentísimo Señor General Presidente, decreto:

@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO LXXXIV
+(Esta norma fue derogada por el artículo 1°, inciso 419, de la ley N° 10287 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (Sexta parte)")
 Declara que la conducta observada por el Poder Ejecutivo en el asunto a que se refiere la exposición del mismo, fecha 13 de junio de este año, es conforme a la Ley y la prueba del Congreso
 El Senado y Cámara de Representantes de la República de Costa Rica, reunidos en el Congreso.
 En vista de la exposición de 13 de corriente mes, presentada por el Supremo Poder Ejecutivo, y atendiendo a la justicia de las razones expuesta por el mismo, a las disposiciones de los artículos 20 y 33 artículo 1° n° 17 de las Ordenanzas militares.

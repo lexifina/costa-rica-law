@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO I
+(Esta norma fue derogada por el artículo 1°, inciso 273, de la ley N° 10287 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (Sexta parte)")
 Reglamenta la introducción y exportación de mercaderías que se hagan de Costa Rica a Nicaragua por la vía terrestre.
 José María Montealegre, Presidente de la República de Costa Rica.
 En atención a que el interés fiscal, tanto de esta República como de la de Nicaragua demanda una disposición que establezca reglas para la introducción y exportación de mercaderías por la vía terrestre en las fronteras de una y otra, y mientras se dicta una resolución que llene completamente este objeto, de acuerdo con las autoridades de aquella República, decreto:

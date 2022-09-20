@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO XXII
+(Esta norma fue derogada por el artículo 1°, inciso 630, de la ley N° 10287 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (Sexta parte)")
 Establece en las cabeceras de Provincia y de Cantón panteones para la inhumación de los cadáveres de naturales y extranjeros de creencias disidentes.
 El Jefe provisorio de la República en uso de sus facultades, considerando:
 1° Que hay frecuentes reclamos de los Representantes de diversas naciones con motivo de que los curas se niegan a dar sepultura eclesiástica a los cadáveres de muchas personas, diciendo que, por sus creencias religiosas, se hallaban privadas de ella según los Cánones de la Iglesia.

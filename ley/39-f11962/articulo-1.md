@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO XXXIX
+(Esta norma fue derogada por el artículo 1°, inciso 956, de la ley N° 10287 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (Sexta parte)")
 Autoriza al Poder Ejecutivo para comprar un local para enseñanza en Alajuela
 El Congreso Constitucional de la República de Costa Rica.
 Con presencia del acuerdo celebrado por la Municipalidad de la Provincia de Alajuela el día 28 de junio del año anterior, dirigido por el Gobernador de la misma al Supremo Gobierno y pasado a este Alto Cuerpo el día 22 del mes siguiente, en atención al muy importante objeto a que trata de destinarse el edificio cuya adquisición se solicita, y en conformidad con la atribución 16°, artículo 73 de la Constitución, decreta:
