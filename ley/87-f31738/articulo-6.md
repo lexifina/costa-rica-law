@@ -1,1 +1,0 @@
-Art. 6.° —Asimismo quedan facultados los funcionarios dichos para hacer clausurar los establecimientos expresados en el artículo 4°. de la Ley de juegos, siempre que por los medios aquí establecidos se justificare haberse jugado en ellos juegos prohibidos, por tres veces.

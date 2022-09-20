@@ -1,1 +1,0 @@
-Art 12° Extendida y firmada el acta y hechas en los modelos las indicaciones expresadas, el Registrador sellará y firmará estos, devolverá uno al interesado y el otro lo fijará en el libro de que a continuación se habla.

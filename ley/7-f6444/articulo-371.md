@@ -1,1 +1,0 @@
-Art 371° Para la entrada y registro de los edificios y dependencias del Ejercito o de la Armada y en los buques de guerra, deberá preceder aviso al Jefe Superior del local, establecimiento o buque, a fin de que preste el debido auxilio.

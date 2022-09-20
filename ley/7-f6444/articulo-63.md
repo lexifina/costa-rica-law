@@ -1,1 +1,0 @@
-Art 63° Es competente para conocer de la causa contra el militar que delinquiendo en país extranjero deba ser juzgado en Costa Rica, la autoridad judicial militar de la provincia o comarca de que aquél proceda.

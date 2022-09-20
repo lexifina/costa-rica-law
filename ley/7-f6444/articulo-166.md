@@ -1,1 +1,0 @@
-Art 166° Será castigado con la pena de prisión militar, el que de palabra o por escrito, o valiéndose de cualquiera otro medio, vierta entre las tropas especies que puedan infundir disgusto o tibieza en el servicio o que murmure de él.

@@ -1,1 +1,0 @@
-Art 308° Si el lesionado se hallare en peligro de muerte le recibirá declaración prescindiendo de las fórmulas ordinarias e interrogándole principalmente sobre el autor, causas y circunstancias del delito.

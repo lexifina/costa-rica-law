@@ -1,1 +1,0 @@
-Art 399° El Juez Instructor manifestará clara y determinadamente a los peritos el objetivo de su informe, y les facilitará los medios materiales para el desempeño de su cometido, acudiendo cuando él no los tuviere, a la autoridad militar.

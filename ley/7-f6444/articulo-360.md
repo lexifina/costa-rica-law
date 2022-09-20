@@ -1,1 +1,0 @@
-Art 360° La confesión que el procesado hiciere en la declaración indagatoria, no dispensará al juez instructor de practicar todas las diligencias convenientes para establecer la verdad de la confesión y la existencia del delito.
