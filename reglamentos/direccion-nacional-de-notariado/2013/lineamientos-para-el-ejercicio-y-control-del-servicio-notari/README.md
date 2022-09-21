@@ -27,3 +27,4 @@ Lineamientos para el ejercicio y control del servicio notarial
 | 12 | 2019-11-14 | Reglamento 0 (2019-11-14) |
 | 13 | 2020-01-16 | Reglamento 0 (2020-01-16) |
 | 14 | 2022-01-26 | Reglamento 3 (2022-01-26) |
+| 15 | 2022-09-21 | Reglamento 25 (2022-09-21) |
