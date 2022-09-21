@@ -14,3 +14,4 @@ Reglamento de informes de atención al usuario de servicios terapéuticos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-08-05 | la propia norma |
+| 2 | 2022-09-21 | Reglamento 23 (2022-09-21) |
