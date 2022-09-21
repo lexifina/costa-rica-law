@@ -15,3 +15,4 @@ Requisitos para los trámites y procesos ante la Dirección Nacional de Notariad
 | --- | --- | --- |
 | 1 | 2011-08-25 | la propia norma |
 | 2 | 2022-01-26 | Reglamento 3 (2022-01-26) |
+| 3 | 2022-09-21 | Reglamento 25 (2022-09-21) |
