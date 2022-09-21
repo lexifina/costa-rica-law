@@ -14,3 +14,4 @@ Regula Funciones del Contralor del Ambiente
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-04-26 | la propia norma |
+| 2 | 2022-09-21 | Decreto Ejecutivo 43795 (2022-09-21) |
