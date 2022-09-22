@@ -1,0 +1,1 @@
+Artículo 22.- Terminación de la modalidad de teletrabajo: La Municipalidad puede dejar sin efecto la modalidad de teletrabajo, cuando susciten las causales indicadas para la finalización de la modalidad de teletrabajo, siempre con la fundamentación correspondiente.

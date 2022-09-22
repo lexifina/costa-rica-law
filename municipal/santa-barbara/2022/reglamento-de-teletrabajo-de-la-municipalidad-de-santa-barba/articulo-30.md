@@ -1,0 +1,1 @@
+Artículo 30.- Acondicionamiento del espacio físico: En caso de que las actividades se realicen en casa de habitación, el funcionario debe acondicionar el espacio físico con las características recomendadas y permitir el acceso a esta área, para inspecciones de condiciones ergonómicas, de seguridad e higiene del puesto de trabajo.

@@ -1,0 +1,1 @@
+Artículo 50.- Sobre el incumplimiento de los deberes y obligaciones de la persona teletrabajadora: En caso de determinarse mediante un debido proceso, que las causas que afectan el desempeño de quien teletrabaja le son atribuibles por acción u omisión, se le aplicará lo dispuesto en el Código Municipal, en el Reglamento Autónomo de Servicio, o en la normativa especial aplicable.

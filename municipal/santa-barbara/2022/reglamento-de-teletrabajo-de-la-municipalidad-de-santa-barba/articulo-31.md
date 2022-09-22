@@ -1,0 +1,1 @@
+Artículo 31.- Responsabilidad por activos e insumos institucionales: La persona teletrabajadora es responsable de los activos institucionales que utilice y traslade hacia el espacio destinado para teletrabajar, así como de respaldar la información. En caso de extravío, debe proceder de acuerdo con lo que establece el presente reglamento.

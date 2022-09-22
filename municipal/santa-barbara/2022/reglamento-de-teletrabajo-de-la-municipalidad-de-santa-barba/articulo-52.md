@@ -1,0 +1,1 @@
+Artículo 52.- Efectos de la solicitud de terminación hecha por la persona teletrabajadora: Quien teletrabaja y haya signado una adenda, y presente solicitud de revocatoria y finalización de la modalidad de teletrabajo, no podrá solicitar nuevamente su reincorporación a dicha modalidad, por el plazo de 1 año.

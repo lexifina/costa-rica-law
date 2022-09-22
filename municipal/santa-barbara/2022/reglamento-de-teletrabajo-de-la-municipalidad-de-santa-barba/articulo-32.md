@@ -1,0 +1,2 @@
+Artículo 32.- Deber de brindar información: Quien teletrabaje debe brindar información verídica y oportuna en todos los procesos de investigación, y evaluación del desempeño a los que deba someterse.
+Cuando ocurra un accidente a causa de las labores que desempeña en el lugar en el que realiza el Teletrabajo, la persona teletrabajadora deberá avisar inmediatamente a la Jefatura inmediata y a la Unidad de Salud Ocupacional, siguiendo los pasos indicados en el Protocolo para el Reporte de Accidentes Laborales de su centro de trabajo.

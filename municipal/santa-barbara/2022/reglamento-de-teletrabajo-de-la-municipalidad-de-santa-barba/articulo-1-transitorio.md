@@ -1,0 +1,2 @@
+TÍTULO VI - DISPOSICIONES TRANSITORIAS
+TRANSITORIO I.- Se confiere un plazo de 6 meses, a partir de la publicación del presente Reglamento, para que la Comisión de Teletrabajo Institucional, y las Unidades de Salud Ocupacional, Informática y Talento Humano, procedan a implementar las condiciones establecidas en el presente reglamento, y para aplicarlo a aquellas personas funcionarias que se encuentren laborando en esta modalidad actualmente.

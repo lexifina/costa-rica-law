@@ -1,0 +1,3 @@
+Artículo 24.- Provisión de equipo informático: En tesis de principio, el teletrabajo penderá de que la Municipalidad pueda proveer a la persona trabajadora de equipo de cómputo indispensable para realizar las labores que le corresponden conforme a su puesto.
+Bajo esta condición, la persona teletrabajadora se hace responsable por el cuidado de la herramienta telemática otorgada. La Unidad de Talento Humano, deberá coordinar y verificar con la Unidad de Informática, que se tenga disponibilidad de equipamiento telemático.
+Sin embargo, el equipo puede ser aportado por la persona teletrabajadora para cumplir con sus labores, siempre y cuando sea ofrecido por ésta y la institución patronal esté de acuerdo.
