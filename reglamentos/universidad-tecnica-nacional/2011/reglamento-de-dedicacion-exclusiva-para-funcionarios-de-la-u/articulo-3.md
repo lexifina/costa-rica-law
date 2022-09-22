@@ -1,1 +1,0 @@
-Artículo 3: El Reglamento de Dedicación Exclusiva permite una retribución económica a favor del servidor, convenida y en acuerdo con el Rector para los servidores de la administración universitaria o por el Decano de la Sede que corresponda, por lo que ésta deberá procurar que se cuente con la disponibilidad presupuestaria que le da sustento.

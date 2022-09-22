@@ -1,1 +1,0 @@
-Artículo 13: El servidor acogido al Régimen de Dedicación Exclusiva, puede renunciar a éste comunicándolo por escrito al Departamento o Dirección de Gestión del Desarrollo Humano, con un mes de anticipación como mínimo, y no podrá suscribir un nuevo contrato en un período de dos años después de haber presentado su renuncia. 4

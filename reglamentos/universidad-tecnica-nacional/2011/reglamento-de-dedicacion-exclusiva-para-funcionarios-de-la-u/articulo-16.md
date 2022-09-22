@@ -1,1 +1,0 @@
-ARTICULO 16: La Oficina competente de Gestión del Desarrollo Humano debe velar por el cumplimiento de las disposiciones establecidas en éstas Normas y en los contratos respectivos, sin perjuicio de la intervención que al respecto pueda hacer la Dirección de Gestión del Desarrollo Humano y la Auditoría Universitaria cuando lo estime conveniente.
