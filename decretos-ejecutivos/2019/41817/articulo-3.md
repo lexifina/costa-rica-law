@@ -1,3 +1,0 @@
-Artículo 3º—Coordinación con el Ministerio de Ambiente y Energía. El equipo técnico del sector construcción y de desarrollo inmobiliario remitirá al Ministro de Ambiente y Energía, el diagnóstico y productos generados para la agilización y eficiencia de la evaluación ambiental, según los objetivos señalados en el artículo 2° del presente decreto.
-El Ministro de Ambiente y Energía, recibirá los productos, así como las recomendaciones del equipo técnico con el fin de mejorar la gestión de la Secretaría Técnica Nacional Ambiental.
-El Ministro de Ambiente y Energía, podrá consultar los productos finales recibidos con otros sectores interesados, mediante las instancias que considere pertinentes.
