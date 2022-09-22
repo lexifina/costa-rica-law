@@ -1,0 +1,2 @@
+Transitorio III. Ventanilla Única.
+El Ministerio de Agricultura y Ganadería, el Ministerio de Salud y la Promotora de Comercio Exterior de Costa Rica (PROCOMER), cuentan con un plazo de nueve meses, a partir de la entrada en vigor de este Reglamento, para coordinar e implementar los ajustes necesarios en los sistemas informáticos para lograr la conectividad con la Ventanilla Única de Inversión, y con el objetivo de permitir la tramitación de las solicitudes de forma digital y en línea, en las condiciones establecidas en el presente reglamento.

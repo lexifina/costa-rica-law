@@ -1,0 +1,2 @@
+Artículo 2. Ámbito de aplicación.
+Las disposiciones contenidas en este Reglamento son de aplicación obligatoria a las personas físicas o jurídicas que soliciten una autorización en todo el territorio nacional, para la importación, siembra, cultivo, cosecha, post cosecha, almacenamiento, transporte, procesamiento, así como la fabricación, comercialización, importación y exportación de derivados y productos de interés sanitario de Cáñamo para Uso Alimentario e Industrial. Las autorizaciones no tendrán costo alguno.

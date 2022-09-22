@@ -1,0 +1,13 @@
+Artículo 10. Requisitos específicos para la autorización de cultivo, producción, importación y/o exportación del cáñamo, ante el Ministerio de Agricultura y Ganadería.
+Además de los requisitos establecidos en el artículo 9 de este reglamento, para solicitar esta autorización el solicitante debe cumplir con los siguientes requisitos:
+a) En caso de que el solicitante no sea el propietario del inmueble, deberá acreditar la condición de uso del mismo, anexando junto con su solicitud el documento que verifica esa condición, sea un contrato de arrendamiento, préstamo, uso en precario o cualquier otro que haga referencia del uso del bien.
+b) Cuando el productor sea a su vez exportador, deberá presentar el contrato o acuerdo vigente, por escrito para la exportación de su producción a terceros países donde se permite el comercio lícito de cáñamo.
+c) Aportar un libro bitácora, el cual será abierto por el Ministerio de Agricultura y Ganadería, con el objetivo de registrar las inspecciones, recomendaciones y controles que emitan las autoridades del sector agropecuario involucradas. Dicho libro será custodiado por el productor durante la vigencia de la autorización.
+d) Todo solicitante, deberá cumplir la regulación específicamente en materia fitosanitaria, citada en el artículo 4 inciso c) de este cuerpo normativo, mediante Declaración Jurada Simple, que se encuentra en el anexo IV de este Reglamento.
+e) Todo solicitante, deberá cumplir la regulación específicamente en materia de semillas, citada en el artículo 4 inciso d) de este cuerpo normativo, mediante Declaración Jurada Simple, que se encuentra en el anexo IV de este Reglamento.
+f) El interesado debe emitir un documento en el cual autoriza de manera expresa al Ministerio de Agricultura y Ganadería, verifique la veracidad de la información presentada en la solicitud, conforme a un consentimiento informado según Anexo III, adjunto en este reglamento
+El Ministerio de Agricultura y Ganadería verificará el cumplimiento del solicitante respecto a:
+a) Que el solicitante cuente con el permiso sanitario de funcionamiento vigente del Ministerio de Salud, siempre y cuando corresponda de acuerdo al tipo de establecimiento donde se desarrollará la actividad productiva.
+b) Que la Personería Jurídica de cada sociedad vinculada acredite la representación legal de los solicitantes ante el Registro Nacional
+c) Que la propiedad en la cual se desarrollará el cultivo, esté debidamente registrada ante el Registro Nacional y se encuentre al día.
+d) Que la propiedad en la cual se desarrollará el cultivo, esté debidamente registrada ante el Registro Nacional, Registro de Catastro.
