@@ -1,9 +1,0 @@
-Artículo 2º—De las funciones. La Comisión tendrá a cargo las siguientes funciones:
-a) Nombrar al equipo asesor técnico, que permanecerá en SETENA durante el plazo de 9 meses, según indica el presente reglamento, para que realice las funciones que la Comisión le encomiende.
-b) Realizar un análisis de los procesos, procedimientos y trámites que ejecuta actualmente la Secretaría Técnica Nacional Ambiental, y proponer una reestructuración con base en lo identificado.
-c) Analizar la eficiencia y eficacia de la gestión administrativa actual de la Secretaría Técnica Nacional Ambiental, tanto de su estructura, como de los recursos humanos y activos que cuenta la SETENA para cumplir con sus competencias, a fin de establecer una priorización de las áreas de mejora que deban ser atendidas.
-d) Efectuar un análisis del marco jurídico existente aplicable a la Secretaría Técnica Nacional Ambiental, a fin de establecer ámbitos de mejora en la eficiencia y eficacia de los trámites, actualización o ajuste de los procesos.
-e) Revisar y sugerir al Ministro de Ambiente y Energía la emisión de directrices que permitan mejorar la eficiencia y eficacia desde la perspectiva técnica de la SETENA, garantizando la optimización y transparencia del servicio público hacia el administrado, en ejercicio de una supervisión e implementación de control más eficaz de las actividades de evaluación y seguimiento ambiental así como de las demás competencias de la SETENA.
-f) Una vez aprobado, presentar para aprobación de los ministros que integran el Consejo Nacional Ambiental el Plan de Gestión de la Comisión para la Atención y Transformación de SETENA.
-g) Informar al Ministro de aquellos actos irregulares o ilícitos que sean puestos a su conocimiento producto de las investigaciones, estudios o hallazgos que se realicen.
-h) Promover el uso de las herramientas de tecnologías de información, así como la incorporación de trámites y funciones dentro del programa de Gobierno Digital.
