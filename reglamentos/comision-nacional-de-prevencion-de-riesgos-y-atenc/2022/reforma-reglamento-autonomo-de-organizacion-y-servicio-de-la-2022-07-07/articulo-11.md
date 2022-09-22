@@ -1,0 +1,2 @@
+Artículo 11.-Refórmese el Artículo 131 para que se lea de la siguiente forma:
+Artículo 131.- De la normativa aplicable. Serán aplicables al procedimiento por hostigamiento o acoso sexual, las disposiciones contenidas en la Ley N° 7476, "Ley contra Hostigamiento o Acoso Sexual en el Empleo y la Docencia" y sus reformas, así como las disposiciones del Decreto Ejecutivo N° 38999-MP, "Política del Poder Ejecutivo para Erradicar de sus Instituciones la Discriminación hacia la Población Sexualmente Diversa", y sus reformas.
