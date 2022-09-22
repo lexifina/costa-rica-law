@@ -14,3 +14,4 @@ Reglamento para el otorgamiento de ayudas temporales a vecinos y vecinas del Can
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-07-12 | la propia norma |
+| 2 | 2022-09-22 | Reglamento municipal 191 (2022-09-22) |
