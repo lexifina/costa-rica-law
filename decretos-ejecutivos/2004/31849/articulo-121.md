@@ -1,4 +1,1 @@
-Artículo 121. De la Comisión Asesora Técnica de Evaluación de Impacto Ambiental. La SETENA contará con el apoyo de una Comisión Técnica Asesora Mixta de Evaluación de Impacto Ambiental, adscrita al Ministerio de Ambiente y Energía, la cual deberá estar integrada, de manera equilibrada, por representantes del Poder Ejecutivo, del sector privado, sociedad civil organizada y consultores ambientales.
-Su función principal será la de auxiliar, colaborar y dar apoyo técnico a la SETENA en el desarrollo y modernización de los instrumentos técnicos y procedimientos de evaluación de impacto ambiental de actividades, obras o proyectos, que alteren o destruyan elementos del ambiente o generen residuos, materiales tóxicos o peligrosos.
-Su integración, atribuciones y funciones específicas serán establecidas por decreto ejecutivo.
-(Así reformado por el artículo 13 del decreto ejecutivo N° 41500 del 6 de setiembre del 2018, “Creación de la Comisión asesora técnica mixta de evaluación de impacto ambiental”)
+Artículo 121. De la Comisión Asesora Técnica de Evaluación de Impacto Ambiental. (Derogado por el artículo 1° del decreto ejecutivo N° 43765 del 22 de setiembre de 2022)
