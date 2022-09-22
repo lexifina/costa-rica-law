@@ -1,0 +1,1 @@
+Artículo 32.-Actividades conjuntas con la municipalidad. La Municipalidad en coordinación con la organización adjudicataria, podrán llevar a cabo actividades en las instalaciones del Salón Comunal, previa calendarización.

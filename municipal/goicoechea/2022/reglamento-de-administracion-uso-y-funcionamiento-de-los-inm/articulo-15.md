@@ -1,0 +1,1 @@
+Artículo 15.-Normativa general de utilización. El Proyecto de Administración y Uso del Inmueble contenido en el Convenio de Administración suscrito entre la Administración Municipal y la organización Administradora, deberá ser colocado en un lugar visible dentro de las instalaciones, para conocimiento de las personas usuarias del inmueble.

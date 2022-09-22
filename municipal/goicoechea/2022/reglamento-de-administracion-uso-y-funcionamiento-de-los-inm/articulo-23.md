@@ -1,0 +1,1 @@
+Artículo 23.-Actividades prohibidas. En las instalaciones de los Salones Comunales no se podrán realizar actividades ilícitas. Asimismo, resulta improcedente la utilización de estas instalaciones para su uso por parte de partidos políticos y organizaciones religiosas, con excepción de honras fúnebres.

@@ -1,0 +1,1 @@
+Artículo 27.-De la fiscalización. La Administración Municipal mediante la Oficina de Administración de Bienes deberá velar por el ajuste y cumplimiento de las disposiciones contenidas en el presente Reglamento; e informar a la alcaldía el incumplimiento de las cláusulas de este Reglamento.
