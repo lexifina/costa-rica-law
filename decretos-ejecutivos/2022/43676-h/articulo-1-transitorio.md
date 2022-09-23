@@ -1,0 +1,1 @@
+Transitorio Único. -Todos los informes de la Contraloría General de la República y de la Dirección General de Auditoría Interna que se encuentren en seguimiento al momento de publicación del presente instrumento, se regirán por el Manual de atención de Informe emitido mediante Decreto Nº 34323 y sus reformas
