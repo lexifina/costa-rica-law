@@ -1,0 +1,5 @@
+Artículo 7º-Requisitos para optar por la administración de salones comunales. Las organizaciones interesadas en la administración de las instalaciones de salones comunales deberán aportar ante la Alcaldía los siguientes requisitos:
+a) Certificación de personería jurídica vigente que refleje además la composición de su órgano administrador.
+b) Aportar carta de compromiso formal mediante la cual la organización se compromete a brindar mantenimiento y conservación al inmueble que recibe por todo el período de vigencia del permiso de uso; ésta deberá al menos contemplar el mantenimiento de: pintura, sistema eléctrico, cañerías, canoas, bajantes, aceras, pisos, verjas, vidrios, ventanas, pilas, fregaderos, lavamanos, inodoros, duchas (cuando existan), cielo raso, cubierta de techo, y cualquier otro que se incluya en el convenio respectivo.
+c) Descripción detallada del interés que persigue la asociación con el préstamo de uso del bien.
+d) Estar al día en las obligaciones pecuniarias con la Municipalidad.
