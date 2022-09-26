@@ -1,1 +1,0 @@
-Artículo 7—Visión, misión y enunciados éticos. El Auditor (a) debe establecer y asegurarse de mantener actualizados su visión, misión, políticas y procedimientos que regirán el accionar de la Auditoría Interna.

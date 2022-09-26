@@ -1,1 +1,0 @@
-Artículo 87 .—Retiro de libros. Los libros deben de ser retirados por la persona que los tiene a cargo. Si dicha persona no se puede presentar, la persona que realice el trámite deberá estar debidamente autorizada por escrito.

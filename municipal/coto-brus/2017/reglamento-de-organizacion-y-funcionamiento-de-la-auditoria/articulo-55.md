@@ -1,5 +1,0 @@
-Artículo 55.—Actividades de planificación. Como parte de dicha planificación, deberá llevarse a cabo las siguientes actividades:
-1) Planificación Estratégica: Se deberá establecer una planificación estratégica congruente con el universo fiscalizable actualizado, la valoración del riesgo, los objetivos de la organización y con el Plan Estratégico Institucional.
-2) Plan Anual de Trabajo. Se deberá establecer un plan de trabajo anual (PAO) congruente con la planificación estratégica, cuyo contenido abarque las acciones que se requieren realizar. Dicho Plan debe ser presentado al Concejo Municipal y la Contraloría General de la República, de acuerdo con los lineamientos establecidos por el Órgano Contralor. Este plan deberá ser presentado en el mes de noviembre de cada año.
-3) Valoración del Riesgo. El Plan anual de trabajo deberá estar basado en un proceso de valoración del riesgo.
-4) Seguimiento de recomendaciones. El programa de seguimiento de trabajo realizado deberá incluirse en el Plan anual de trabajo de la Auditoría Interna.

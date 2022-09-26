@@ -1,3 +1,0 @@
-Artículo 25.—Registro presupuestario separado. El responsable del control presupuestario de la Municipalidad dará una categoría programática y mantendrá un registro separado del monto del presupuesto asignado y aprobado por el Concejo para la Auditoría Interna, detallado por objeto del gasto, de manera que se controlen la ejecución y las modificaciones de los recursos presupuestados para esa unidad.
-En el caso de que se requiera hacer movimientos de recursos que afecten los asignados a la Auditoría Interna, como modificaciones o presupuestos, deberá contarse con autorización por escrito del Auditor Interno.
-La Auditoría Interna ejecutará su presupuesto, conforme lo determinen sus necesidades para cumplir su plan de trabajo.

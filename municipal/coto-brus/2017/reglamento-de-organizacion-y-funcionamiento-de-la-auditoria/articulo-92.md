@@ -1,1 +1,0 @@
-Artículo 92.— Traslado del caso para investigación: Una vez concluido el proceso de reposición del libro, la Auditoría Interna trasladará el caso a la Administración Municipal a fin de que se investigue las causas que mediaron en la pérdida o extravío del libro que se presenta para su reposición, para determinar si administrativamente es necesario tomar

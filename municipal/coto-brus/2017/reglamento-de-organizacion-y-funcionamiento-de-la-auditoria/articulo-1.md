@@ -1,9 +1,0 @@
-MUNICIPALIDAD DE COTO BRUS
-El Concejo Municipal del Gobierno Local de Coto Brus, en Sesión Ordinaria N° 042, celebrada el 14 de febrero de 2017, según el Artículo II, Inciso 3, Aprobó el REGLAMENTO DE ORGANIZACIÓN Y FUNCIONAMIENTO DE LA AUDITORÍA INTERNA y que se publique en el Diario Oficial La Gaceta. Votación Unánime.
-MUNICIPALIDAD DE COTO BRUS
-REGLAMENTO DE ORGANIZACIÓN Y FUNCIONAMIENTO DE LA AUDITORÍA INTERNA
-Capítulo I
-Disposiciones Generales
-Artículo 1—Objetivo. En el presente Reglamento, se estipulan las normas necesarias sobre la organización y el funcionamiento de la Auditoría Interna de la Municipalidad de Coto Brus, que orienten su accionar, hacia el cumplimiento efectivo de sus competencias. Se busca, con dichas medidas, que la Auditoría se proyecte como una actividad que coadyuva en la consecución de los objetivos de la Municipalidad, en el uso efectivo y adecuado de los recursos públicos disponibles y en el mejoramiento de los diferentes procesos de trabajo, Evaluación de Riesgos y del propio sistema de Control Inter N° Todo lo anterior, en estricto apego al bloque de legalidad vigente.
-En concordancia con lo expuesto, se establecen regulaciones sobre el concepto de auditoría interna y sobre la objetividad y la independencia con que esa unidad debe cumplir sus funciones. Asimismo, se define su ubicación en la estructura municipal y se dictan disposiciones relacionadas con el cargo de Auditor (a) Interno (a), en específico, sobre sus funciones y el nombramiento y remoción del titular de ese cargo.
-Se definen normas, en cuanto al ámbito de competencia de la Auditoría Interna sobre sus deberes y potestades. Además, se regula el servicio que presta (servicio de auditoría, Asesor y preventivo) y los demás procesos a cargo de esa unidad. Finalmente se establecen medidas en lo referente a la comunicación de los resultados de estudios, a las actividades de seguimiento y a los informes de su gestión.
