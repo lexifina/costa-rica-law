@@ -1,0 +1,1 @@
+Artículo 43. Revisiones y actualizaciones. El Comité Integral de Estrategia revisará anualmente el presente Reglamento y planteará, cuando proceda, las modificaciones que estime pertinentes a la Junta Directiva.

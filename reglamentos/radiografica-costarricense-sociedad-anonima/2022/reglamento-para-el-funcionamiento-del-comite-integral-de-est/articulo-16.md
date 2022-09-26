@@ -1,0 +1,1 @@
+Artículo 16. De los votos disidentes. Los miembros del Comité podrán hacer constar en la minuta de la sesión, su voto contrario al acuerdo tomado, y los motivos que lo justifiquen, quedando en tal caso exento de las responsabilidades que, en su caso, pudieren derivarse de los acuerdos.

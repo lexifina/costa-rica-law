@@ -1,0 +1,4 @@
+Artículo 4. Informes y entregables. El Comité Integral de Estrategia brindará un informe anual de sus actuaciones a la Junta Directiva, además podrá presentar informes particulares que se requieran para complementar el cumplimiento de las funciones establecidas en este Reglamento, tales como:
+a) Informar anualmente sobre la operación, estado y cumplimiento del Comité, así como cualquier otro aspecto requerido por norma o ley. Entregable: Informe anual sobre la operación, estado y cumplimiento.
+b) Informar a la Junta Directiva semestralmente, los principales temas analizados en las sesiones. Entregable: Informe semestral de temas analizados.
+c) Mantener comunicación periódica acerca de asuntos relevantes, con otros comités, instancias de control o la Junta Directiva, para la supervisión y seguimiento de la cobertura efectiva de todos los temas de orden estratégico.
