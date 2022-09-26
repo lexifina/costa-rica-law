@@ -64,7 +64,7 @@ Sistema Educativo Saint Clare | San José | Moravia
 Sistema educativo San Agustín | Alajuela | Palmares
 Combi College | San José | Montes de Oca
 Instituto Pedagogico del Sur | San José | Desamparados
-Complejo Educativo Royal | San José | Escazú
+(Eliminado por el artículo 1° del decreto ejecutivo N° 43890 del 26 de setiembre de 2022) | (Eliminado por el artículo 1° del decreto ejecutivo N° 43890 del 26 de setiembre de 2022) | (Eliminado por el artículo 1° del decreto ejecutivo N° 43890 del 26 de setiembre de 2022)
 Green Vally Primary and High School | Limón | Guapiles
 B) De Prescolar
 Kinder Patito Feliz | San José | Curridabat
@@ -255,7 +255,7 @@ Escuela Rayo de Luz del Sur | San José | Desamparados
 Instituto educativo Villa Felíz | Heredia | San Joaquín de Flores
 Centro Educativo Domingo Savio | Heredia | Heredia
 Centro Pedagogico Kenely de Colores | San José | Hatillo
-Instituto Educativo San Jorge | Guanacaste | Abangares
+(Eliminado por el artículo 2° del decreto ejecutivo N° 43890 del 26 de setiembre de 2022) | (Eliminado por el artículo 2° del decreto ejecutivo N° 43890 del 26 de setiembre de 2022) | (Eliminado por el artículo 2° del decreto ejecutivo N° 43890 del 26 de setiembre de 2022)
 Instituto Científico Bilingüe del Sur | San José | San José
 Escuela de Educación integral | San José | Escazú
 E) De Preescolar y Educación General Básica
