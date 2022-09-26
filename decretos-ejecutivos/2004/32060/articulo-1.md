@@ -3,10 +3,10 @@ EL PRESIDENTE DE LA REPÚBLICA Y
 LOS MINISTROS DE COMERCIO EXTERIOR Y DE AGRICULTURA Y GANADERÍA
 De conformidad con las atribuciones que les conceden los incisos 3) y 18) de los artículos 140 y 146 de la Constitución Política; el artículo 28, párrafo 2, inciso b) de la Ley Nº 6227, Ley General de la Administración Pública del 2 de mayo de 1978; los artículos 1º, 15, 26, 30, 36, 37, 38, 39 y 55 del Protocolo al Tratado General de Integración Económica Centroamericana, Ley Nº 7629 del 26 de setiembre de 1996.
 Considerando:
-1º—Que el Consejo de Ministros de Integración Económica, mediante Resolución Nº 117-200 (COMIECO) de fecha 28 de junio del 2004 aprobó, en el marco del proceso de establecimiento de la Unión Aduanera, acuerdos en materia de medidas sanitarias y fitosanitarias.
-2º—Que en cumplimiento del ordinal anterior, debe ponerse en vigencia la citada resolución en los países centroamericanos. Por tanto:
+1º-Que el Consejo de Ministros de Integración Económica, mediante Resolución Nº 117-200 (COMIECO) de fecha 28 de junio del 2004 aprobó, en el marco del proceso de establecimiento de la Unión Aduanera, acuerdos en materia de medidas sanitarias y fitosanitarias.
+2º-Que en cumplimiento del ordinal anterior, debe ponerse en vigencia la citada resolución en los países centroamericanos. Por tanto:
 DECRETAN:
-Artículo 1º—Póngase en vigencia la Resolución Nº 117-2004 (COMIECO), que a continuación se transcribe:
+Artículo 1º-Póngase en vigencia la Resolución Nº 117-2004 (COMIECO), que a continuación se transcribe:
 RESOLUCIÓN Nº 117-2004 (COMIECO)
 EL CONSEJO DE MINISTROS DE INTEGRACIÓN ECONÓMICA
 Considerando:
@@ -16,36 +16,36 @@ Que los Estados Parte han comunicado a este órgano regional que, en el marco de
 Por tanto:
 Con fundamento en lo dispuesto en los artículos 1, 15, 26, 30, 36, 37, 38, 39 y 55 del Protocolo al Tratado General de Integración Económica Centroamericana (Protocolo de Guatemala);
 RESUELVE:
-Aprobar, en el marco del proceso de establecimiento de la Unión Aduanera, los siguientes acuerdos en materia de medidas sanitarias y fitosanitarias:
-Eximir de los trámites de obtención de autorización de importación y certificado fitosanitario de exportación a los productos y subproductos de origen vegetal listados en el Anexo 1 de la presente Resolución.
-El procedimiento para incluir o excluir en el listado de productos y subproductos de origen vegetal que no necesitan permiso o autorización ni certificado fitosanitario pudiendo estar sujetos de inspección dentro del territorio de los Estados Parte de la Unión Aduanera, que aparece como Anexo 2 de esta Resolución.
-Los Formatos de Vigilancia Fitosanitaria: Encuesta General de Ubicación y Boleta de Seguimiento, que aparecen como Anexo 3 de la presente Resolución.
-El Manual de procedimientos para otorgar la guía sanitaria de movilización de animales dentro del territorio de la Unión Aduanera, así como la Guía sanitaria de movilización de animales y su Instructivo de llenado que aparecen como Anexo 4 de esta Resolución.
-Los Formatos de Vigilancia Epidemiológica para uso en Salud Animal, con sus anexos, que aparecen como Anexo 5 de la presente Resolución.
+1. Aprobar, en el marco del proceso de establecimiento de la Unión Aduanera, los siguientes acuerdos en materia de medidas sanitarias y fitosanitarias:
+a. Eximir de los trámites de obtención de autorización de importación y certificado fitosanitario de exportación a los productos y subproductos de origen vegetal listados en el Anexo 1 de la presente Resolución.
+b. El procedimiento para incluir o excluir en el listado de productos y subproductos de origen vegetal que no necesitan permiso o autorización ni certificado fitosanitario pudiendo estar sujetos de inspección dentro del territorio de los Estados Parte de la Unión Aduanera, que aparece como Anexo 2 de esta Resolución.
+c. Los Formatos de Vigilancia Fitosanitaria: Encuesta General de Ubicación y Boleta de Seguimiento, que aparecen como Anexo 3 de la presente Resolución.
+d. El Manual de procedimientos para otorgar la guía sanitaria de movilización de animales dentro del territorio de la Unión Aduanera, así como la Guía sanitaria de movilización de animales y su Instructivo de llenado que aparecen como Anexo 4 de esta Resolución.
+e. Los Formatos de Vigilancia Epidemiológica para uso en Salud Animal, con sus anexos, que aparecen como Anexo 5 de la presente Resolución.
 Los anexos del Formato de Vigilancia Epidemiológica para uso en Salud Animal son los siguientes:
-Investigación epidemiológica
-Formulario para el envío de muestras al Laboratorio de Diagnóstico Vesiculares (LADIVES)
-Formulario para envío de muestras de vigilancia epidemiológica en encefalopatía espongiforme bovina
-Formato para notificación de casos incluyendo el espacio para el posicionamiento geográfico
-Registro ganadero
-Formulario para Resultado del Diagnóstico del Brucelosis,
-Prueba de Anillo en Leche
-Formulario de Citatorio para realizar pruebas diagnósticas de Brucelosis o Tuberculosis
-Formulario para el Registro de Muestras de Animales sacrificados:diagnóstico de brucelosis o tuberculosisvigilancia epidemiológica
-Formulario para el Informe Técnico Mensual para el Control y Erradicación de Brucelosis y Tuberculosis Bovina
-Formulario para Resultado del Diagnóstico de Brucelosis o Tuberculosis.
-Formulario para la Vigilancia Epidemiológica de enfermedades de los animales domésticos en mataderos
-Formulario para el Registro de Pruebas de Diagnóstico de Brucelosis o Tuberculosis
-La adopción de las Normas y Procedimientos Zoosanitarios para la especie acuícola y para la especie equina, que aparecen como Anexos 6 y 7, respectivamente, de esta Resolución.
-Los Criterios Sanitarios aplicables para el intercambio comercial de animales, sus productos y subproductos dentro del territorio de la Unión Aduanera, que aparecen como Anexo 8 de la presente Resolución.
-El Manual de Buenas Prácticas Pecuarias en la Producción Primaria, que aparece como Anexo 9 de la presente Resolución.
-La adopción de la Norma NIMF-11 de la Convención Internacional de Protección Fitosanitaria -CIPF-. "Análisis de Riesgo de Plagas para Plagas Cuarentenarias".
-Exigir el cumplimiento de los requisitos para la elaboración de análisis de riesgo sanitario, que aparecen en la versión actualizada del Código Sanitario para Animales Terrestres de la Oficina Internacional de Epizootias (OIE).
-Confirmar la utilización de la norma internacional avícola de la OIE.
-Exigir el cumplimiento de los Requisitos y Procedimientos Zoosanitarios para Bovinos, que aparecen en la versión actualizada del Código Sanitario para Animales Terrestres de la OIE.
-Adoptar la versión actualizada del Manual de Evaluación de los Servicios Veterinarios recomendado por la OIE.
-Los Anexos de la presente Resolución forman parte integrante de la misma.
-La presente Resolución entrará en vigencia 30 días después de la presente fecha y será publicada por los Estados Parte. Guatemala, Guatemala, 28 de junio de 2004.
+o Investigación epidemiológica
+o Formulario para el envío de muestras al Laboratorio de Diagnóstico Vesiculares (LADIVES)
+o Formulario para envío de muestras de vigilancia epidemiológica en encefalopatía espongiforme bovina
+o Formato para notificación de casos incluyendo el espacio para el posicionamiento geográfico
+o Registro ganadero
+o Formulario para Resultado del Diagnóstico del Brucelosis,
+o Prueba de Anillo en Leche
+o Formulario de Citatorio para realizar pruebas diagnósticas de Brucelosis o Tuberculosis
+o Formulario para el Registro de Muestras de Animales sacrificados:diagnóstico de brucelosis o tuberculosisvigilancia epidemiológica
+o Formulario para el Informe Técnico Mensual para el Control y Erradicación de Brucelosis y Tuberculosis Bovina
+o Formulario para Resultado del Diagnóstico de Brucelosis o Tuberculosis.
+o Formulario para la Vigilancia Epidemiológica de enfermedades de los animales domésticos en mataderos
+o Formulario para el Registro de Pruebas de Diagnóstico de Brucelosis o Tuberculosis
+o La adopción de las Normas y Procedimientos Zoosanitarios para la especie acuícola y para la especie equina, que aparecen como Anexos 6 y 7, respectivamente, de esta Resolución.
+o Los Criterios Sanitarios aplicables para el intercambio comercial de animales, sus productos y subproductos dentro del territorio de la Unión Aduanera, que aparecen como Anexo 8 de la presente Resolución.
+o El Manual de Buenas Prácticas Pecuarias en la Producción Primaria, que aparece como Anexo 9 de la presente Resolución.
+o La adopción de la Norma NIMF-11 de la Convención Internacional de Protección Fitosanitaria -CIPF-. "Análisis de Riesgo de Plagas para Plagas Cuarentenarias".
+o Exigir el cumplimiento de los requisitos para la elaboración de análisis de riesgo sanitario, que aparecen en la versión actualizada del Código Sanitario para Animales Terrestres de la Oficina Internacional de Epizootias (OIE).
+o Confirmar la utilización de la norma internacional avícola de la OIE.
+o Exigir el cumplimiento de los Requisitos y Procedimientos Zoosanitarios para Bovinos, que aparecen en la versión actualizada del Código Sanitario para Animales Terrestres de la OIE.
+o Adoptar la versión actualizada del Manual de Evaluación de los Servicios Veterinarios recomendado por la OIE.
+o Los Anexos de la presente Resolución forman parte integrante de la misma.
+1. La presente Resolución entrará en vigencia 30 días después de la presente fecha y será publicada por los Estados Parte. Guatemala, Guatemala, 28 de junio de 2004.
 Alberto Trejos
 Ministro de Comercio Exterior
 de Costa Rica
@@ -63,1155 +63,659 @@ Mario Arana Sevilla
 Ministro de Fomento, Industria y Comercio
 de Nicaragua
 ANEXO
-ANEXO 1
-RESOLUCIÓN Nº 175-2006 (COMIECO-XXXVIII)
-LISTADO DE PRODUCTOS Y SUBPRODUCTOS DE ORIGEN
-VEGETAL QUE POR SU NATURALEZA QUEDAN EXIMIDOS
-DE LA AUTORIZACIÓN (1) DE IMPORTACIÓN Y DEL
-CERTIFICADO FITOSANITARIO DE EXPORTACIÓN
-PUDIENDO SER SUJETOS DE INSPECCIÓN DENTRO
-DEL TERRITORIO DE LOS ESTADOS PARTE
-DE LA UNIÓN ADUANERA
-(o Permiso Fitosanitario para los países en donde ese término se utilice)
-Nº Descripción del producto Código SAC (2)
-(La exención se aplicará específicamente a los productos descritos en el listado, por lo cual el código arancelario se únicamente como referencia
-1 Aceite de algodón, en bruto 1512.21.00
-2 Aceite de algodón, refinado 1512.29.00
-3 Aceite de almendra de babasú, en bruto 1513.21.00
-4 Aceite de almendra de babasú, refinado 1513.29.00
-5 Aceite de almendra de palma, en bruto 1513.21.00
-6 Aceite de almendra de palma, refinado 1513.29.00
-7 Aceite de cacahuate (cacahuete, maní),
-en bruto 1508.10.00
-8 Aceite de cacahuate (cacahuete, maní),
-refinado 1508.90.00
-9 Aceite de cacao 1804.00.00
-10 Aceite de cártamo, en bruto 1512.11.00
-11 Aceite de cártamo, refinado 1512.19.00
-12 Aceite de coco (de copra), en bruto 1513.11.00
-13 Aceite de coco (de copra), refinado 1513.19.00
-14 Aceite de girasol, en bruto 1512.11.00
-15 Aceite de girasol, refinado 1512.19.00
-16 Aceite de oliva, en bruto 1509.10.00
-17 Aceite de oliva, refinado 1509.90.00
-18 Aceite de palma, refinado 1511.90.90
-19 Aceite de palma africana, en bruto 1511.10.00
-20 Aceite de pino 3301.29.00
-21 Aceite de pino con alfa-terpineol como
-componente principal 3805.20.00
-22 Aceite de soja (soya) en bruto, incluso
-desgomado 1507.10.00
-23 Aceite de soja (soya) refinado 1507.90.00
-24 Aceites ácidos del refinado 3823.19.00
-25 Aceites de soja (soya) y sus fracciones,
-pero sin modificar químicamente 1507.90.00
-26 Aceites esenciales de bergamota 3301.11.00
-27 Aceites esenciales de espicanardo
-(“vetiver”) 3301.26.00
-28 Aceites esenciales de geranio 3301.21.00
-29 Aceites esenciales de jazmín 3301.22.00
-30 Aceites esenciales de las
-demás mentas 3301.25.00 31
-Aceites esenciales de lavanda (espliego)
-o de lavandín 3301.23.00
-32 Aceites esenciales de lima 3301.14.00
-33 Aceites esenciales de limón 3301.13.00
-34 Aceites esenciales de menta piperita
-(Mentha piperita) 3301.24.00
-35 Aceites esenciales de naranja 3301.12.00
-36 Aceites vegetales y sus fracciones,
-interesterificados 1516.20.90
-37 Aceites vegetales y sus fracciones,
-elaidinizados 1516.20.90
-38 Aceites vegetales y sus fracciones,
-parcial o totalmente hidrogenados 1516.20.90
-39 Aceites vegetales y sus fracciones,
-reesterificados 1516.20.90
-40 Aceitunas en salmuera 0711.20.00
-41 Aceitunas preparadas o conservadas,
-(excepto en vinagre o en ácido acético)
-(en cualquier tipo de envase), sin congelar 2005.70.00
-42 Aceitunas preparadas o conservadas,
-en vinagre o en ácido acético
-(en cualquier tipo de envase) 2001.90.90
-43 Acetatos de celulosa plastificados 3912.12.00
-44 Acetatos de celulosa sin plastificar 3912.11.00
-45 Achicoria tostada 2101.30.00
-46 Achiote (bija) 1404.10.10
-47 Acido esteárico 3823.11.00
-48 Acido oleico 3823.12.00
-49 Acidos grasos del “tall oil” 3823.13.00
-50 Acidos grasos monocarboxílicos
-industriales 3823.19.00
-51 Agar-agar 1302.31.00
-52 Agrios (cítricos), preparados o conservados,
-incluso con adición de azúcar u otro
-edulcorante o alcohol (en cualquier tipo
-de envase) 2008.30.00
-53 Ajo en polvo, en envases de contenido
-neto inferior a 5 kg 0712.90.90
-54 Ajo en polvo, en envases de contenido
-neto superior o igual a 5 kg 0712.90.10
-55 Albaricoques (damascos, chabacanos),
-preparados conservados, incluso con
-adición de azúcar u otro edulcorante
-o alcohol (en cualquier tipo de envase) 2008.50.00
-56 Albaricoques (damascos, chabacanos),
-secos, acondicionadas para la venta al
-por menor 0813.10.00
-57 Alcaparras, en salmuera 0711.30.00
-58 Alcohol etílico absoluto con grado
-alcohólico volumétrico superior
-o igual a 80% vol 2207.10.10
-59 Alcohol etílico sin desnaturalizar 2208.90.10
-60 Alcohol etílico y aguardiente
-desnaturalizados, de cualquier graduación 2207.20.00
-61 Alcoholes etílicos sin desnaturalizar
-con grado alcohólico volumétrico superior
-o igual a 80% vol 2207.10.90
-62 Alcoholes grasos industriales 3823.70.00
-63 Almendra seca, sin cáscara 0802.12.00
-64 Almidón de maíz, acondicionado para
-la venta al por menor 1108.12.00
-65 Almidón de trigo, acondicionado para
-la venta al por menor 1108.11.00
-66 Almidón pregelatinizado o esterificado 3505.10.20
-67 Almidones, acondicionados para la
-venta al por menor 1108.19.00
-68 Arcillas de uso industrial 2508.40.00
-69 Armuelles, estén o no cocidos en agua
-o vapor, congeladas 0710.30.00
-70 Arroz precocido 1904.90.10
-71 Artículos de confitería sin cacao
-(incluido el chocolate blanco) 1704.90.00
-72 Arvejas (guisantes, chícharos)
-(Pisum sativum), estén o no cocidas en
-agua o vapor, congeladas 0710.21.00
-73 Arvejas (guisantes, chícharos)
-(Pisum sativum), preparadas o
-conservadas, en vinagre o en ácido
-acético (en cualquier tipo de envase) 2001.90.90 74
-Arvejas (guisantes, chícharos)
-(Pisum sativum), preparadas o
-conservadas, (excepto en vinagre o
-ácido acético) (en cualquier tipo de
-envase), sin congelar 2005.40.00
-75 Asientos con armazón de madera,
-con relleno 9401.61.00
-76 Asientos con armazón de madera,
-sin relleno 9401.69.00
-77 Asientos de roten (ratán), mimbre,
-bambú o materias similares 9401.50.00
-78 Avena preparada acondicionada para
-la venta al por menor 1904.90.90
-79 Azafrán, acondicionado para la venta
-al por menor 0910.20.00
-80 Azúcar de caña, con adición de
-aromatizante o colorante, en estado sólido 1701.91.00
-81 Azúcar de caña, en bruto sin adición
-de aromatizante ni colorante,
-en estado sólido 1701.11.00
-82 Azúcar de remolacha, con adición
-de aromatizante o colorante,
-en estado sólido 1701.91.00
-83 Azúcar de remolacha, en bruto
-sin adición de aromatizante
-ni colorante, en estado sólido 1701.12.00
-84 Azúcar de remolacha, en estado sólido 1701.99.00
-85 Azúcares de caña, en estado sólido 1701.99.00
-86 Azúcares químicamente puros 2940.00.00
-87 Azúcares, excepto los jarabes de sacarosa
-y los caramelizados, con un contenido
-de fructosa, calculado sobre producto
-seco, de 50% en peso 1702.90.20
-88 Azúcares, incluido el azúcar invertido
-y demás azúcares, con un contenido
-de fructosa, calculado sobre producto
-seco, de 50% en peso 1702.90.90
-89 Bandejas de madera de pino, cepilladas,
-para el servicio de mesa o de cocina 4419.00.00
-90 Barquillos y obleas, incluso rellenos
-(“gaufrettes”,” wafers”) y “ waffles”
-(“gaufres”) 1905.32.00
-91 Bebida a base de soya
-(denominada leche de soya), que no
-contenga materia láctea 2202.90.90
-92 Cacahuates (cacahuetes, maníes)
-preparados o conservados
-(en cualquier tipo de envase) 2008.11.90
-93 Cacao en polvo con adición de
-azúcar u otro edulcorante 1806.10.00
-94 Café instantáneo, en sobres, bolsas
-o frascos 2101.11.00
-95 Café tostado, molido y descafeinado 0901.22.00
-96 Café tostado, sin descafeinar 0901.21.00
-97 Calabaza raspada, refrigerada 0709.90.90
-98 Caldos preparados 2104.10.00
-99 Canela triturada o pulverizada,
-acondicionada para la venta al por menor 0906.20.00
-100 Carbón vegetal (comprendido el de
-cáscaras o de huesos (carozos) de frutos),
-incluso aglomerado 4402.00.00
-101 Carboximetilcelulosa y sus sales 3912.31.00
-102 Carretes para extender y recoger
-mangueras, de madera 4421.90.90
-103 Caucho (hule) endurecido, en masas,
-planchas, hojas, tiras, barras, perfiles
-y tubos; desechos y desperdicios; polvo 4017.00.10
-104 Cebolla deshidratada en hojuelas 0712.20.90
-105 Cebolla en encurtido
-(en cualquier tipo de envase) 2001.90.20
-106 Cebolla en polvo, en envases de
-contenido neto inferior a 5 kg 0712.20.90
-107 Cebolla en polvo, en envases de
-contenido neto superior o igual a 5 kg 0712.20.10
-108 Cebollas en salmuera 0711.90.20
-109 Cebollas, preparadas o conservadas
-en vinagre o en ácido acético
-(en cualquier tipo de envase) 2001.90.20
-110 Cereales (excepto el maíz) en grano
-o en forma de copos u otro grano
-trabajado (excepto la harina, grañones
-y sémola), precocidos o preparados de
-otro modo 1904.90.90
-111 Cerezas, preparadas o conservadas,
-incluso con adición de azúcar u otro
-edulcorante o alcohol
-(en cualquier tipo de envase) 2008.60.00
-112 Chile dulce seco o deshidratado en
-cualquier tipo de envase 0904.20.10
-113 Chile dulce, en salmuera 0711.90.90
-114 Chile en conserva preparados o
-conservados en vinagre o en ácido
-acético (en cualquier tipo de envase) 2001.90.90
-115 Chile en conserva (excepto en vinagre
-o en ácido acético) (en cualquier tipo
-de envase), congelada 2004.90.00
-116 Chile triturado o pulverizado 0904.20.20
-117 Chocolates en bloques, tabletas o barras
-de peso inferior o igual a 2 kg, rellenos 1806.31.00
-118 Chocolates en bloques, tabletas o barras
-de peso inferior o igual a 2 kg, sin rellenar 1806.32.00
-119 Chocolates y demás preparaciones
-alimenticias que contengan cacao en
-bloques, tabletas o barras de peso
-inferior o igual a 2 kg 1806.90.00
-120 Cigarros (puros) 2402.10.00
-121 Ciruelas preparadas o conservadas
-acondicionadas para la venta
-al por menor 2 008.99.00
-122 Ciruelas, secas, acondicionadas para
-la venta al por menor 0813.20.00
-123 Cóctel de frutas (envasado) 2006.00.00
-124 Colados de frutas u otros frutos
-(en cualquier tipo de envase) 2007.10.00
-125 Coliflor seca o deshidratada, pero
-sin otra preparación, en cualquier
-tipo de envase 0712.90.90
-126 Coliflor, en salmuera 0711.90.90
-127 Colorantes a la tina o a la cuba
-(incluidos los utilizables directamente
-como colorantes pigmentarios) y
-preparaciones a base de estos colorantes 3204.15.00
-128 Colorantes ácidos, incluso metalizados
-y preparaciones a base de estos colorantes 3204.12.00
-129 Colorantes básicos y preparaciones a base
-de estos colorantes 3204.13.00
-130 Colorantes directos y preparaciones a base
-de estos colorantes 3204.14.00
-131 Colorantes dispersos y preparaciones a base
-de estos colorantes 3204.11.00
-132 Colorantes para mordientes y preparaciones
-a base de estos colorantes 3204.12.00
-133 Colorantes pigmentarios y preparaciones
-a base de estos colorantes 3204.17.00
-134 Colorantes reactivos y preparaciones
-a base de estos colorantes 3204.16.00
-135 Compotas de agrios (cítricos),
-obtenidos por cocción, incluso con
-adición de azúcar u otro edulcorante
-(en cualquier tipo de envase) 2007.10.00
-136 Compotas de frutas u otros frutos,
-obtenidos por cocción, incluso con
-adición de azúcar u otro edulcorante
-(en cualquier tipo de envase) 2007.10.00
-137 Concentrado de tomate preparados o
-conservados (en cualquier tipo de envase) 2002.90.10
-138 Concentrados de achicoria tostada 2101.30.00
-139 Concentrados de café 2101.11.00
-140 Concentrados de sucedáneos
-del café tostados 2101.30.00
-141 Concentrados de té 2101.20.00
-142 Concentrados de yerba mate 2101.20.00
-143 Condimentos compuestos 2103.90.00
-144 Crema de coco (en cualquier tipo de envase) 2008.19.90
-145 Crema de maíz 2005.80.00
-146 Crema no láctea 2106.90.90
-147 Cuajada de soya 2106.90.90
-148 Cúrcuma, acondicionada para la venta
-al por menor 0910.30.00
-149 Curry, acondicionado para la venta
-al por menor 0910.50.00
-150 Destilados acuosos aromáticos 3301.90.00
-151 Dipenteno en bruto 805.90.00
-152 Disoluciones acuosas de aceites
-esenciales 3301.90.00
-153 Disoluciones concentradas de aceites
-esenciales en aceites fijos o materias
-análogas, obtenidas por enflorado
-o maceración 3301.90.00
-154 Disoluciones concentradas de aceites
-esenciales en ceras o materias análogas,
-obtenidas por enflorado o maceración 3301.90.00
-155 Disoluciones concentradas de aceites
-esenciales en grasas o materias
-análogas, obtenidas por enflorado
-o maceración 3301.90.00
-156 Duraznos conservados provisionalmente 0812.90.90
-157 Elotitos (jilotes, chilotes) preparados o
-conservados en vinagre o en ácido acético
-en cualquier tipo de envase) 2001.90.10
-158 Encofrados para hormigón, de madera 4418.40.00
-159 Esencia de pasta celulosa al bisulfito
-(bisulfito de trementina) y demás
-paracimenos en bruto 3805.90.00
-160 Esencias de achicoria tostada 2101.30.00
-161 Esencias de café 2101.11.00
-162 Esencias de madera de pino 3805.10.00
-163 Esencias de pasta celulósica al sulfato
-(sulfato de trementina) 3805.10.00
-164 Esencias de sucedáneos del café
-tostados 2101.30.00
-165 Esencias de té 2101.20.00
-166 Esencias de trementina 3805.10.00
-167 Esencias de yerba mate 2101.20.00
-168 Esencias terpénicas procedentes de la
-destilación o de otros tratamientos de la
-madera de coníferas 3805.90.00
-169 Espárragos, preparados o conservados
-en vinagre o en ácido acético
-(en cualquier tipo de envase) 2001.90.90
-170 Espárragos, preparados o conservados
-(excepto en vinagre o en ácido acético)
-(en cualquier tipo de envase),
-congelados 2004.90.00 171
-Espárragos, preparados o conservados
-(excepto en vinagre o en ácido acético)
-(en cualquier tipo de envase), sin congelar 2005.60.00
-172 Especies mezcladas, acondicionadas
-para la venta al por menor 0910.91.00
-173 Especies, acondicionadas para la venta
-al por menor 0910.99.00
-174 Espesativos de la algarroba o de su
-semilla o de las semillas de guar,
-incluso modificados 1302.32.00
-175 Espesativos derivados de los vegetales,
-incluso modificados 1302.39.00
-176 Espinacas (incluida la de Nueva Zelanda),
-estén o no cocidas en agua o vapor,
-congeladas 0710.30.00
-177 Estearina de palma con un índice de
-yodo inferior o igual a 48 1511.90.10
-178 Extracto de alga marina (en polvo) 1212.20.00
-179 Extracto de malta 1901.90.10
-180 Extracto de mimosa (acacia) 3201.20.00
-181 Extracto de quebracho 3201.10.00
-182 Extracto de vainilla 1302.19.90
-183 Extractos curtientes de origen vegetal;
-taninos y sus sales, éteres, esteres y
-demás derivados 3201.90.00
-184 Extractos de achicoria tostada 2101.30.00
-185 Extractos de café 2101.11.00
-186 Extractos de otras materias vegetales 1302.19.90
-187 Extractos de sucedáneos del café
-tostados 2101.30.00
-188 Extractos de té 2101.20.00
-189 Extractos de yerba mate 2101.20.00
-190 Extractos vegetales de lúpulo 1302.13.00
-191 Extractos vegetales de pelitre (piretro) o de
-raíces que contengan rotenona 1302.14.00
-192 Extractos vegetales de regaliz 1302.12.00
-193 Extractos vegetales, para usos insecticidas,
-fungicidas o similares 1302.19.20
-194 Extractos vegetales, para usos
-medicinales 1302.19.10
-195 Fécula de papa (patata), acondicionada
-para la venta al por menor 1108.13.00
-196 Fécula de yuca (mandioca), acondicionada
-para la venta al por menor 1108.14.00
-197 Féculas (las demás), acondicionadas para la
-venta al por menor 1108.19.00
-198 Fósforos (cerillas) 3605.00.00
-199 Frambuesas, estén o no cocidas en agua
-o vapor, congeladas, incluso con adición
-de azúcar u otro edulcorante 0811.20.00
-200 Fresas (frutillas), conservadas
-provisionalmente 0812.90.10
-201 Fresas (frutillas), estén o no cocidas en
-agua o vapor, congeladas, incluso con
-adición de azúcar u otro edulcorante 0811.10.00
-202 Fresas (frutillas), preparadas o conservadas,
-incluso con adición de azúcar u otro
-edulcorante o alcohol
-(en cualquier tipo de envase) 2008.80.00
-203 Frijoles (judías, porotos, alubias, fréjoles)
-(Vigna spp., Phaseolus spp.), estén cocidos
-en agua o vapor, congelados 0710.22.00
-204 Frijoles (judías, porotos, alubias, fréjoles)
-(Vigna spp., Phaseolus spp.) desvainados,
-preparados o conservados (en cualquier tipo
-de envase), sin congelar 2005.51.00
-205 Frijoles (judías, porotos, alubias, fréjoles)
-(Vigna spp., Phaseolus spp.), preparados
-o conservados (en cualquier tipo de
-envase), sin congelar 2005.59.00
-206 Fructosa químicamente pura 1702.50.00
-207 Fructosa, con un contenido de fructosa,
-calculado sobre producto seco, superior
-al 50% en peso, excepto el azúcar invertido 1702.60.00
-208 Frutas en almíbar (en cualquier tipo
-de envase) 2006.00.00
-209 Frutas o frutos y demás partes
-comestibles de las plantas preparados o
-conservados, incluso con adición de
-azúcar u otro edulcorante o alcohol
-(en cualquier tipo de envase) 2008.99.00
-210 Frutas tropicales en salmuera 0812.90.90
-211 Frutas u otros frutos mezclados y demás
-partes comestibles de plantas, preparadas
-o conservadas, incluso con adición de
-azúcar u otro edulcorante o alcohol
-(en cualquier tipo de envase) 2008.92.00
-212 Frutas u otros frutos mezclados, secos
-acondicionadas para la venta al por menor 0813.50.00
-213 Frutas u otros frutos o sus cortezas y
-demás partes de plantas, confitados
-con azúcar (almibarados, glaseados o
-escarchados) (en cualquier tipo de envase) 2006.00.00
-214 Frutas u otros frutos y demás partes
-comestibles de plantas, preparados o
-conservados en vinagre o en ácido acético
-(en cualquier tipo de envase) 2001.90.90
-215 Frutas u otros frutos, estén o no cocidos
-en agua o vapor, congelados incluso con
-adición de azúcar u otro edulcorante 0811.90.00
-216 Frutas u otros frutos, secos, acondicionadas
-para la venta al por menor 0813.40.00
-217 Frutos de cáscara y demás semillas, incluso
-mezclados entre sí, preparadas o conservadas,
-incluso con adición de azúcar u otro
-edulcorante o alcohol
-(en cualquier tipo de envase) 2008.19.90
-218 Galletas dulces
-(con adición de edulcorante) 1905.31.90
-219 Galletas dulces
-(con adición de edulcorante)
-con adición de cacao,
-para sandwich de helado 1905.31.10
-220 Glucosa químicamente pura,
-sin fructosa 1702.30.11
-221 Glucosa, con un contenido de fructosa,
-calculado sobre producto seco,
-superior o igual al 20% pero inferior
-al 50%, en peso, excepto el azúcar
-invertido 1702.40.00
-222 Glucosa, con un contenido de fructosa,
-calculado sobre producto seco, inferior
-al 20% en peso 1702.30.20
-223 Goma arábiga 1301.20.00
-224 Goma laca 1301.10.00
-225 Gomas, naturales 1301.90.00
-226 Gomorresinas, naturales 1301.90.00
-227 Grasa de cacao 1804.00.00
-228 Grasa vegetal no láurica, parcialmente
-hidrogenada, con ámbito de reblandecimiento
-mínimo de 32° C y máximo de 41° C,
-de los tipos utilizados como sucedáneos
-de manteca de cacao.
-(aplica para Gua, Ho, Ni y CR)
-Grasa vegetal no láurica, parcialmente
-hidrogenada o transesterificada, con
-un ámbito de reblandecimiento mínimo
-de 32° C y máxima de 41° C
-(aplica solo para Es) 1516.20.10
-229 Grasas vegetales y sus fracciones,
-reesterificadas 1516.20.90
-230 Grasas vegetales y sus fracciones,
-elaidinizadas 1516.20.90
-231 Grasas vegetales y sus fracciones,
-interesterificadas 1516.20.90
-232 Grasas vegetales y sus fracciones,
-parcial o totalmente hidrogenadas 1516.20.90
-233 Griñones, preparados o conservados,
-incluso con adición de azúcar u otro
-edulcorante o alcohol
-(en cualquier tipo de envase) 2008.70.00
-234 Grosellas, estén o no cocidas en agua
-o vapor, congeladas, incluso con
-adición de azúcar u otro edulcorante 0811.20.00
-235 Guindas conservadas provisionalmente 0812.10.10
-236 Harina de torta de soya 2304.00.10
-237 Harina de arroz acondicionada para
-la venta al por menor 1102.30.00
-238 Harina de avena acondicionada para
-la venta al por menor 1102.90.20
-239 Harina de mostaza 2103.30.10
-240 Heces y desperdicios de cervecería
-o de destilería 2303.30.00
-241 Hojas de laurel, condicionadas para la
-venta al por menor 0910.40.20
-242 Hojuelas o copos de maíz obtenidos
-por inflado o tostado 1904.10.90
-243 Hongos del género Agaricus,
-en salmuera 0711.51.00
-244 Hongos del género Agaricus, preparados o
-conservados (excepto en vinagre o en
-ácido acético) (en cualquier tipo de envase) 2003.10.00
-245 Hongos del género Agaricus, secos,
-cortados en trozo o en rodajas o triturados
-o pulverizados, pero sin otra preparación,
-en cualquier tipo de envase 0712.31.00
-246 Hongos diferentes del género Agaricus,
-en salmuera 0711.59.00
-247 Hongos gelatinosos (Tremella spp.)
-secos, cortados en trozo o rodajas o
-triturados o pulverizados, pero sin otra
-preparación, en cualquier envases 0712.33.00
-248 Hongos, excepto los del género Agaricus,
-preparados o conservados (excepto en
-vinagre o en ácido acético)
-(en cualquier tipo de envase) 2003.90.00
-249 Hortalizas (incluso silvestres) de vaina,
-desvainadas o sin desvainar, estén o no
-cocidas en agua o vapor, congeladas 0710.29.00
-250 Hortalizas (incluso silvestres) mezcladas,
-preparadas o conservadas (excepto en
-vinagre o en ácido acético )
-(en cualquier tipo de envase), congeladas 2004.90.00 251
-Hortalizas (incluso silvestres) mezcladas,
-preparadas o conservadas (excepto en vinagre o en ácido acético )
-(en cualquier tipo de envase), sin congelar 2005.90.00
-252 Hortalizas (incluso silvestres) preparadas
-o conservadas (excepto en vinagre o
-en ácido acético)
-(en cualquier tipo de envase), congeladas 2004.90.00
-253 Hortalizas (incluso silvestres), mezcladas,
-estén o no cocidas en agua o vapor,
-congeladas 0710.90.00
-254 Hortalizas (incluso silvestres),
-confitados con azúcar
-(almibarados, glaseados o escarchados)
-(en cualquier tipo de envase) 2006.00.00
-255 Hortalizas (incluso silvestres), estén o no
-cocidas en agua o vapor, congeladas 0710.80.00
-256 Hortalizas (incluso silvestres), preparadas
-o conservadas (excepto en vinagre o en
-ácido acético )
-(en cualquier tipo de envase), sin congelar 2005.90.00
-257 Hortalizas (inclusos silvestres), preparadas
-o conservadas en vinagre o en ácido
-acético (en cualquier tipo de envase) 2001.90.90
-258 Hortalizas homogeneizadas,
-(en cualquier tipo de envase), sin congelar 2005.10.00
-259 Hostias y productos similares 1905.90.00
-260 Inulina, acondicionada para la venta al
-por menor 1108.20.00
-261 Jaleas de agrios (cítricos), obtenidas por
-cocción, incluso con adición de azúcar
-u otro edulcorante
-(en cualquier tipo de envase) 2007.91.00
-262 Jaleas de frutas u otros frutos, obtenidas
-por cocción, incluso con adición de
-azúcar u otro edulcorante
-(en cualquier tipo de envase) 2007.99.90
-263 Jarabe de fructosa, con un contenido
-de fructosa, calculado sobre producto
-seco, superior al 50% en peso, excepto
-el azúcar invertido 1702.60.00
-264 Jarabe de glucosa, con un contenido de
-fructosa, calculado sobre producto seco,
-superior o igual al 20% pero inferior al 50%,
-en peso, excepto el azúcar invertido 1702.40.00
-265 Jarabe de glucosa, sin fructosa 1702.30.12
-266 Jarabes de azúcar, con un contenido de
-fructosa, calculado sobre producto
-seco, de 50% en peso 1702.90.90
-267 Jarabes, excepto los jarabes de sacarosa y
-los caramelizados, con un contenido de
-fructosa, calculado sobre producto seco,
-de 50% en peso 1702.90.20
-268 Jengibre en vinagre
-(en cualquier tipo de envase) 2001.90.90
-269 Jengibre seco, triturado o pulverizado,
-acondicionado para la venta al por menor 0910.10.12
-270 Jugo concentrado de cereza, incluso
-congelado 2009.80.10
-271 Jugo concentrado de endrina, incluso
-congelado 2009.80.10
-272 Jugo concentrado de membrillo, incluso
-congelado 2009.80.10
-273 Jugo concentrado de albaricoque
-(damasco, chabacano), incluso congelado 2009.80.10
-274 Jugo concentrado de ciruela, incluso
-congelado 2009.80.10
-275 Jugo concentrado de melocotón
-(durazno), incluso congelado 2009.80.10
-276 Jugo concentrado de pera,
-incluso congelado 2009.80.10
-277 Jugo concentrado de tamarindo 2009.80.40
-278 Jugo de cualquier otro agrio (cítrico) de
-valor Brix inferior o igual a 20 2009.31.00
-279 Jugo de cualquier otro agrio (cítrico), 2009.39.00
-280 Jugo de guanábana (Annona muricata) 2009.80.30
-281 Jugo de manzana concentrado, incluso
-congelado 2009.79.10
-282 Jugo de manzana de valor Brix inferior
-o igual a 20 2009.71.00
-283 Jugo de maracuyá (Passiflora spp.) 2009.80.20
-284 Jugo de naranja concentrado 2009.19.10
-285 Jugo de naranja congelado 2009.11.00
-286 Jugo de naranja sin congelar, de valor
-Brix inferior o igual a 20 2009.12.00
-287 Jugo de piña tropical (ananá) de valor
-Brix inferior o igual a 20 2009.41.00
-288 Jugo de tomate 2009.50.00
-289 Jugo de toronja o pomelo de valor
-Brix inferior o igual a 20 2009.21.00
-290 Jugo de toronja o pomelo, concentrado 2009.29.10
-291 Jugo de uva concentrado,
-incluso congelado 2009.69.10
-292 Jugo de uva de valor Brix inferior
-o igual a 30 2009.61.00
-293 Jugos de cualquier otra fruta o fruto,
-u hortaliza (incluso silvestres) 2009.80.90
-294 Jugos de manzana 2009.79.90
-295 Jugos de naranja 2009.19.90
-296 Jugos de otras materias vegetales 1302.19.90
-297 Jugos de toronja o pomelo 2009.29.90
-298 Jugos de uva 2009.69.90
-299 Jugos vegetales de lúpulo 1302.13.00
-300 Jugos vegetales de pelitre (piretro)
-o de raíces que contengan rotenona 1302.14.00
-301 Jugos vegetales de regaliz 1302.12.00
-302 Jugos vegetales, para usos insecticidas,
-fungicidas o similares 1302.19.20
-303 Jugos vegetales, para usos medicinales 1302.19.10
-304 Ketchup 2103.20.00
-305 Las demás celulosas y sus derivados
-químicos, en formas primarias 3912.90.00
-306 Látex de caucho natural, incluso
-prevulcanizado 4001.10.00
-307 Lecitina de soya 2106.90.10
-308 Lecitina de soya, 2923.20.00
-309 Levaduras madre para cultivo 2102.10.10
-310 Levaduras muertas 2102.20.00
-311 Levaduras vivas 2102.10.90
-312 Los demás (torta y demás residuos sólidos
-de la extracción del aceite de soja (soya),
-incluso molidos o en “pellets”) 2304.00.90
-313 Los demás aceites esenciales de agrios
-(cítricos) 3301.19.00
-314 Los demás aceites esenciales
-excepto de agrios (cítricos) 3301.29.00
-315 Los demás éteres de celulosa 3912.39.00
-316 Los demás hongos secos, cortados en
-trozo o en rodajas o triturados o
-pulverizados, pero sin otra preparación,
-en cualquier tipo de envase 0712.39.00
-317 Los demás jugo de piña tropical (ananá) 2009.49.00
-318 Madera chapada 4412.22.00
-4412.23.00
-4412.29.00
-4412.92.00
-4412.93.00
-4412.99.00
-319 Madera contrachapada 4412.13.00
-4412.14.00
-4412.19.00
-4412.22.00
-4412.23.00
-4412.29.00
-4412.92.00
-4412.93.00
-4412.99.00
-320 Madera estratificada 4412.22.00
-4412.23.00
-4412.29.00
-4412.92.00
-4412.93.00
-4412.99.00
-321 Maíz dulce (Zea mays var. saccharata),
-preparado o conservado (excepto en
-vinagre o en ácido acético)
-(en cualquier tipo de envase), sin congelar 2005.80.00
-322 Maíz dulce, esté o no cocido en agua
-o vapor, congelado 0710.40.00
-323 Maíz tierno en mazorcas
-(elotitos o chilotes), conservado en
-salmuera, en cualquier tipo de envase 2008.99.00
-324 Malta tostada, en polvo 1107.20.00
-325 Maltosa químicamente pura 1702.90.10
-326 Manteca de cacao 1804.00.00
-327 Manteca vegetal 1516.20.90
-328 Mantequilla de cacahuates
-(cacahuetes, maníes)
-(en cualquier tipo de envase) 2008.11.10
-329 Manzanas, secas, acondicionadas para
-la venta al por menor 0813.30.00
-330 Margarina, excepto la margarina líquida 1517.10.00
-331 Materias colorantes de origen vegetal
-(incluidos los extractos tintóreos,
-excepto los negros de origen animal) 3203.00.00
-332 Materias colorantes orgánicas sintéticas
-y mezclas de estas materias 3204.19.00
-333 Materias pécticas 1302.20.00
-334 Materias primas vegetales de las
-especies utilizadas principalmente para
-teñir o curtir 1404.10.90
-335 Mejoradores de panificación 2106.90.40
-336 Melaza de caña 1703.10.00
-337 Melocotones (duraznos), preparados o
-conservados, incluso con adición de azúcar
-u otro edulcorante o alcohol
-(en cualquier tipo de envase) 2008.70.00
-338 Mermeladas de agrios (cítricos), obtenidas
-por cocción, incluso con adición de
-azúcar u otro edulcorante
-(en cualquier tipo de envase) 2007.91.00
-339 Mermeladas de frutas u otros frutos,
-obtenidas por cocción, incluso con
-adición de azúcar u otro edulcorante
-(en cualquier tipo de envase) 2007.99.90
-340 Mezclas de hortalizas secas o
-deshidratadas, pero sin otra preparación,
-en cualquier tipo de envase 0712.90.90
-341 Mezclas de hortalizas, en salmuera 0711.90.90
-342 Mezclas y pastas para la preparación de
-productos de panadería, pastelería o
-galletería, de la partida 19.05 1901.20.00
-343 Microorganismos monocelulares
-muertos 2102.20.00
-344 Miel (jarabe) de maíz 1702.40.00
-345 Mondadientes 4421.90.90
-346 Monturas o mangos (palos)
-de escoba de madera 4417.00.00
-347 Moras, estén o no cocidas en agua o vapor,
-congeladas, incluso con adición de azúcar
-u otro edulcorante 0811.20.00
-348 Moras-frambuesa, estén o no cocidas
-en agua o vapor, congeladas, incluso con
-adición de azúcar u otro edulcorante 0811.20.00
-349 Mostaza preparada 2103.30.20
-350 Mosto de uva 2009.69.20
-351 Mosto de uva de otra clase 2204.30.00
-352 Mosto de uva en el que la fermentación
-se ha impedido o cortado añadiendo
-alcohol, en recipientes con capacidad
-inferior o igual a 2 l 2204.21.00
-353 Mosto de uva en el que la fermentación
-se ha impedido o cortado añadiendo alcohol 2204.29.00
-354 Mucílagos de la algarroba o de su semilla
-o de las semillas de guar, incluso
-modificados 1302.32.00
-355 Mucílagos derivados de los vegetales,
-incluso modificados 1302.39.00
-356 Muebles de madera de los tipos utilizados
-en cocinas 9403.40.00
-357 Muebles de madera de los tipos utilizados
-en dormitorios 9403.50.00
-358 Muebles de madera de los tipos utilizados
-en oficinas 9403.30.00
-359 Muebles de madera de otros tipos 9403.60.00
-360 Nectarinas, preparadas o conservadas,
-incluso con adición de azúcar u otro
-edulcorante o alcohol
-(en cualquier tipo de envase) 2008.70.00
-361 Nitratos de celulosa
-(incluidos los colodiones) 3912.20.00
-362 Nueces mixtas, preparadas o conservadas,
-incluso con adición de azúcar u otro
-edulcorante o alcohol
-(en cualquier tipo de envase) 2008.19.90
-363 Obleas para sellar y productos
-similares 1905.90.00
-364 Oleorresinas (por ejemplo: bálsamos),
-naturales 1301.90.00
-365 Oleorresinas de extracción 3301.90.00
-366 Orejas de Judas (Auricularia spp.) secos,
-cortados en trozo o rodajas o triturados o
-pulverizados, pero sin otra preparación,
-en cualquier tipo de envase 0712.32.00
-367 Otras cerezas, conservadas
-provisionalmente 0812.10.90
-368 Otras frutas, conservadas
-provisionalmente 0812.90.90
-369 Otras hortalizas, en salmuera 0711.90.90
-370 Otras hortalizas, pero sin otra preparación,
-en cualquier tipo de envase 0712.90.90
-371 Paletas de madera para remover pintura 4421.90.90
-372 Palmitos, preparados o conservados,
-incluso con adición de azúcar u otro
-edulcorante o alcohol
-(en cualquier tipo de envase) 2008.91.00
-373 Pan crujiente llamado “Knäckebrot” 1905.10.00 374
-Pan de especias 1905.20.00 375
-Pan tostado y productos similares
-Tostados 1905.40.00 376
-Papa seca o deshidratada, pero sin
-otra preparación, en cualquier tipo
-de envase 0712.90.90 377
-Papa, en salmuera 0711.90.90 378
-Papas (patatas) peladas, estén o
-no cocidas o precocidas en agua o
-vapor, congeladas 0710.10.00 379
-Papas (patatas) preparadas o conservadas
-(excepto en vinagre o en ácido acético)
-(en cualquier tipo de envase),
-congeladas 2004.10.00 380
-Papas (patatas), preparadas o conservadas
-(excepto en vinagre o en ácido acético)
-(en cualquier tipo de envase), sin congelar 2005.20.00
-381 Partes de muebles de madera 9403.90.10
-382 Pasas secas, acondicionadas
-para la venta 0806.20.00
-383 Pasta de avellanas, preparada o
-conservada de otro modo, incluso con
-adición de azúcar u otro edulcorante o
-alcohol (en cualquier tipo de envase) 2008.19.90 384
-Pasta de cacao, sin desgrasar 1803.10.00 385
-Pasta de chile preparada o conservada
-(excepto en vinagre o en ácido acético)
-(en cualquier tipo de envase),
-congelada 2004.90.00 386
-Pasta de chile, preparada o conservada
-(excepto en vinagre o en ácido acético)
-(en cualquier tipo de envase), sin congelar 2005.90.00
-387 Pasta de tomate preparada o conservada
-(excepto en vinagre o en ácido acético)
-(en cualquier tipo de envase) 2002.90.90
-388 Pastas de agrios (cítricos), obtenidos por
-cocción, incluso con adición de azúcar u
-otro edulcorante
-(en cualquier tipo de envase) 2007.91.00
-389 Pastas de albaricoque
-(damasco, chabacano), para
-transformación industrial, en envases de
-contenido neto superior o igual a 5 kg 2007.99.10
-390 Pastas de almendra, sin azúcar
-(en cualquier tipo de envase) 2008.19.10
-391 Pastas de avellanas, sin azúcar
-(en cualquier tipo de envase) 2008.19.10
-392 Pastas de cacao, desgrasada total o
-parcialmente 1803.20.00
-393 Pastas de frutas u otros frutos,
-obtenidos por cocción, incluso con
-adición de azúcar u otro edulcorante
-(en cualquier tipo de envase) 2007.99.90
-394 Pastas de manzana, para transformación
-industrial, en envases de contenido neto
-superior o igual a 5 kg 2007.99.10
-395 Pastas de melocotón (durazno), para
-transformación industrial, en envases de
-contenido neto superior o igual a 5 kg 2007.99.10
-396 Pastas de otras nueces, sin azúcar
-(en cualquier tipo de envase) 2008.19.10
-397 Pastas de pera, para transformación
-industrial, en envases de contenido neto
-superior o igual a 5 kg 2007.99.10
-398 Pastas secas de almidón, en hojas,
-y productos similares 1905.90.00
-399 Pastas secas de fécula, en hojas,
-y productos similares 1905.90.00
-400 Pastas secas de harina, en hojas,
-y productos similares 1905.90.00
-401 Pectatos 1302.20.00
-402 Pectinatos 1302.20.00
-403 Pejibayes conservados en salmuera 0812.90.90
-404 Pellets de harina, de arroz 1904.10.10
-405 Pellets de trigo 1103.20.10
-406 Pepinos y pepinillos preparados o
-conservados en vinagre o en ácido
-acético, (en cualquier tipo de envase) 2001.10.00
-407 Pepinos y pepinillos, en salmuera 0711.40.00
-408 Peras preparadas o conservadas, incluso
-con adición de azúcar u otro edulcorante
-o alcohol (en cualquier tipo de envase) 2008.40.00
-409 Perejil deshidratado, en envases de
-contenido neto inferior a 5 kg 0712.90.90
-410 Perejil deshidratado, en envases de
-contenido neto superior o igual a 5 kg 0712.90.10
-411 Picadura de tabaco, para hacer
-cigarrillos 2403.10.10
-412 Piñas tropicales (ananás), preparadas o
-conservadas, incluso con adición de azúcar
-u otro edulcorante o alcohol
-(en cualquier tipo de envase) 2008.20.00
-413 Polvos para hornear preparados 2102.30.00
-414 Potajes preparados 2104.10.00
-415 Preparaciones alimenticias que contengan
-cacao, en bloques o barras con peso
-superior a 2 kg, o en forma líquida, pastosa,
-o en polvo, gránulos o formas similares, en
-recipientes o envases inmediatos con un
-contenido superior a 2 kg 1806.20.90
-416 Preparaciones para potajes 2104.10.00
-417 Preparaciones a base concentrados
-de café 2101.12.00
-418 Preparaciones a base de extractos de
-yerba mate 2101.20.00
-419 Preparaciones a base de café 2101.12.00
-420 Preparaciones a base de concentrados
-de té 2101.20.00
-421 Preparaciones a base de
-concentrados de yerba mate |2101.20.00
-422 Preparaciones a base de esencias
-de té 2101.20.00
-423 Preparaciones a base de esencias
-de café 2101.12.00
-424 Preparaciones a base de esencias de
-yerba mate 2101.20.00
-425 Preparaciones a base de extractos
-de café 2101.12.00
-426 Preparaciones a base de extractos
-de té 2101.20.00
-427 Preparaciones a base de soya, que no
-contengan materia láctea 2106.90.70
-2106.90.90
-428 Preparaciones a base de té 2101.20.00
-429 Preparaciones a base de yerba mate 2101.20.00
-430 Preparaciones alimenticias compuestas
-homogeneizadas 2104.20.00
-431 Preparaciones alimenticias obtenidas con
-copos de cereales sin tostar o con mezclas
-de copos de cereales sin tostar y copos de
-cereales tostados o cereales inflados 1904.20.00
-432 Preparaciones alimenticias que contengan
-cacao en bloques, tabletas o barras de peso
-inferior o igual a 2 kg, rellenas 1806.31.00
-433 Preparaciones alimenticias que contengan
-cacao en bloques, tabletas o barras de peso
-inferior o igual a 2 kg, sin rellenar 1806.32.00
-434 Preparaciones homogeneizadas de frutas
-u otros frutos (en cualquier tipo de envase) 2007.10.00
-435 Preparaciones líquidas a base de jarabe
-de maíz y aceite de almendra de
-palma parcialmente hidrogenado, de los
-tipos utilizados para decoración y relleno
-de productos de pastelería, que
-contengan cacao 1806.20.10
-436 Preparaciones para caldos 2104.10.00
-437 Preparaciones para salsas 2103.90.00
-438 Preparaciones para sopas 2104.10.00
-439 Productos a base de cereales obtenidos
-por inflado o tostado 1904.10.90
-440 Productos de galletería y productos
-similares 1905.90.00
-441 Productos de panadería, incluso
-con adición de cacao y productos similares 1905.90.00
-442 Productos de pastelería, incluso
-con adición de cacao y productos similares 1905.90.00
-443 Productos orgánicos sintéticos de los
-tipos utilizados como luminóforos 3204.90.00
-444 Productos orgánicos sintéticos de los
-tipos utilizados para el avivado fluorescente 3204.20.00
-445 Proteína de soya aislada con menos
-de 2% de lecitina 2106.90.10
-446 Proteína de soya texturizada 2106.10.00
-447 Proteína vegetal hidrolizada 2106.90.10
-448 Proteína vegetal seca 2106.10.00
-449 Puertas y sus marcos, contramarcos y
-umbrales, de madera 4418.20.00
-450 Pulpa de remolacha, bagazo de caña
-de azúcar y demás desperdicios de
-la industria azucarera 2303.20.00
-451 Puré de papa (patatas) homogeneizado,
-(en cualquier tipo de envase), sin congelar 2005.10.00
-452 Puré de papa (patatas) preparado o
-conservado (excepto en vinagre o en
-ácido acético) (en cualquier tipo
-de envase), sin congelar 2005.90.00
-453 Puré de tomate preparado o conservado
-(excepto en vinagre o en ácido acético)
-(en cualquier tipo de envase) 2002.90.90
-454 Purés de agrios (cítricos), obtenidos por
-cocción, incluso con adición de azúcar u
-otro edulcorante
-(en cualquier tipo de envase) 2007.91.00
-455 Purés de frutas u otros frutos, obtenidos
-por cocción, incluso con adición de
-azúcar u otro edulcorante
-(en cualquier tipo de envase) 2007.99.90
-456 Residuos de la industria del almidón y
-residuos similares de otros cereales 2303.10.90
-457 Residuos de la industria del almidón y
-residuos similares, de maíz, incluido
-el denominado comercialmente
-“gluten de maíz” 2303.10.10
-458 Resinas, naturales 1301.90.00
-459 Resinoides 3301.30.00
-460 Sacarosa químicamente pura,
-en estado sólido 1701.99.00
-461 Salsa de soja (soya) 2103.10.00
-462 Salsas de tomate 2103.20.00
-463 Salsas preparadas 2103.90.00
-464 Sazonadores compuestos 2103.90.00
-465 Sellos vacíos de los tipos utilizados
-para medicamentos y productos similares 1905.90.00
-466 Sopas Instantáneas 2104.10.00
-467 Sopas, preparadas 2104.10.00
-468 Soya en polvo utilizada en la
-preparación de bebidas
-(denominada leche de soya), que no
-contenga materia láctea 1901.90.90
-469 Subproductos terpénicos residuales de la
-desterpenación de los aceites esenciales 3301.90.00
-470 Sucedáneos de la leche a base de soya,
-que no contenga materia láctea 2106.90.90
-471 Sucedáneos del café tostados, que no
-contengan café 2101.30.00
-472 Sucedáneos del vinagre obtenidos a
-partir del ácido acético 2209.00.00
-473 Tabaco “homogeneizado” o “reconstituido” 2403.91.00
-474 Tabacos para fumar, incluso con
-sucedáneos de tabaco en cualquier
-proporción 2403.10.90
-475 Tabacos y sucedáneos de tabaco,
-elaborados; extractos y jugos de tabaco 2403.99.00
-476 Tableros de fibra de madera u otras
-materias leñosas, incluso aglomeradas
-con resinas o demás aglutinantes
-orgánicos, sin trabajo mecánico ni
-recubrimiento de superficie 4411.11.00
-4411.21.00
-4411.31.00
-4411.91.00
-477 Tableros de fibra de madera u otras
-materias leñosas, incluso aglomeradas
-con resinas o demás aglutinantes
-orgánicos 4411.19.00
-4411.29.00
-4411.39.00
-4411.99.00
-478 Tableros de partículas de madera, incluso
-aglomeradas con resinas o demás
-aglutinantes orgánicos, recubiertos en la
-superficie con placas u hojas decorativas
-estratificadas de plástico 4410.33.00
-479 Tableros de partículas de madera, incluso
-aglomeradas con resinas o demás
-aglutinantes orgánicos, en bruto o
-simplemente lijados 4410.31.00
-480 Tableros de partículas de madera, incluso
-aglomeradas con resinas o demás
-aglutinantes orgánicos 4410.39.00
-481 Tableros de partículas de materias leñosas,
-incluso aglomeradas con resinas o demás
-aglutinantes orgánicos 4410.90.00
-482 Tableros llamados “oriented strand board”
-y “waferboard”, de partículas de madera,
-incluso aglomeradas con resinas o demás
-aglutinantes orgánicos, en bruto o
-simplemente lijados 4410.21.00
-483 Tableros llamados “oriented strand board”
-y “waferboard”, de partículas de madera,
-incluso aglomeradas con resinas o demás
-aglutinantes orgánicos 4410.29.00
-484 Tableros para parqués (zócalos),
-de madera 4418.30.00
-485 Tableros partículas de madera, incluso
-aglomeradas con resinas o demás
-aglutinantes orgánicos, recubiertos en la
-superficie con papel impregnado con
-melamina 4410.32.00
-486 Tablillas para cubierta de tejados o fachadas
-(shingles y shakes), de madera 4418.50.00
-487 Tapioca modificada a 1903.00.00
-488 Tapioca y sus sucedáneos preparados
-con fécula, en copos, grumos, granos
-perlados, cerniduras o formas similares 1903.00.00
-489 Té negro (fermentado) y té
-parcialmente fermentado, presentados
-en envases inmediatos con un contenido
-inferior o igual a 3 kg 0902.30.00
-490 Te negro listo para consumo 0902.30.00
-491 Té verde (fermentado) y té
-parcialmente fermentado, presentados en
-envases inmediatos con un contenido
-inferior o igual a 3 kg 0902.10.00
-492 Té verde listo para consumo 0902.10.00
-493 Tomate en polvo, en envases de contenido
-neto inferior a 5 kg 0712.90.90
-494 Tomate en polvo, en envases de contenido
-neto superior o igual a 5 kg 0712.90.10
-495 Tomate seco o deshidratado, pero sin otra
-preparación, en cualquier tipo de envase 0712.90.90
-496 Tomate, en salmuera 0711.90.90
-497 Tomates enteros o en trozos preparados o
-conservados (excepto en vinagre o en
-ácido acético) (en cualquier tipo de envase) 2002.10.00
-498 Tomates preparados o conservados
-(excepto en vinagre o en ácido acético)
-(en cualquier tipo de envase) 2002.90.90
-499 Tomates preparados o conservados en
-vinagre o en ácido acético
-(en cualquier tipo de envase) 2001.90.90
-500 Tomillo, acondicionado para la venta
-al por menor 0910.40.10
-501 Torta y demás residuos sólidos de
-la extracción del aceite de cacahuate
-(cacahuete, maní),
-incluso molidos o en “pellets” 2305.00.00
-502 Tortillas de harina de maíz 1905.90.00
-503 Tortillas de harina de trigo 1905.90.00
-504 Trigo bulgur 1904.30.00
-505 Trufas, en salmuera 0711.59.00
-506 Trufas, preparadas o conservadas
-(excepto en vinagre o en ácido acético)
-(en cualquier tipo de envase) 2003.20.00
-507 Vegetales deshidratados, listos para el
-consumo humano, homogeneizados 2104.20.00
-508 Ventanas, contraventanas, y sus marcos
-y contramarcos, de madera 4418.10.00
-509 Vinagre 2209.00.00
-510 Vino espumoso 2204.10.00
-511 Vino, en recipientes con capacidad
-inferior o igual a 2 l 2204.21.00
-512 Vinos en recipientes con capacidad
-superior a 2 l 2204.29.00
-513 Zanahoria seca o deshidratada,
-pero sin otra preparación, en
-cualquier tipo de envase 0712.90.90
-514 Zanahoria, en salmuera 0711.90.90
-515 Zarzamoras, estén o no cocidas en agua
-o vapor, congeladas, incluso con
-adición de azúcar u otro edulcorante 0811.20.00
+(*)ANEXO 1
+LISTADO DE PRODUCTOS Y SUBPRODUCTOS DE ORIGEN VEGETAL QUE POR SU NATURALEZA QUEDAN EXIMIDOS DE LA AUTORlZACIÓN 1 DE IMPORTACIÓN Y DEL CERTIFICADO FITOSANITARIO DE EXPORTACIÓN PUDIENDO SER SUJETOS DE INSPECCIÓN DENTRO DEL TERRITORIO DE LOS ESTADOS PARTE DE LA UNIÓN ADUANERA
+1 Permiso Fitosanitario para los países en donde este término se utilice.
+N° | DESCRIPCIÓN DEL PRODUCTO | CODIGO SAC 2 VII Enmienda 2 La exención se aplicará específicamente a los productos descritos en listado, por lo cual el código arancelaria se incluye únicamente como referencia
+1 | Aceite de algodón , en bruto | 1512.21.00.00
+2 | Aceite de all!odón, refinado | 1512.29.00.00
+3 | Aceite de almendra de babasú en bruto | 1513.21.00.00
+4 | Aceite de almendra debabasú, refinado | 1513.29.00.00
+5 | Aceite de almendra de palma en bruto | 1513.21.00.00
+6 | Aceite de almendra de oalma, refinado | 1513.29.00.00
+7 | Aceite de cacahuate (cacahuete, maní), en bruto | 1508.10.00.00
+8 | Aceite de cacahuate (cacahuete, maní), refinado | 1508.90.00.00
+9 | Aceite de cacao | 1804.00.00.00
+10 | Aceite de cártamo, en bruto | 1512.11.00.00
+11 | Aceite de cártamo, refinado | 1512.19.00.00
+12 | Aceite de coco (de coora). en bruto | 1513.11.00.00
+13 | Aceite de coco (de copra). refinado | 1513.19.00.00
+14 | Aceite de iürasol, en bruto | 1512.11.00.00
+15 | Aceite de girasol refinado | 1512.19.00.00
+16 | Aceite de oliva, en bruto | 1509.20.00.00 1509.30.00.00 1509.40.00.00
+17 | Aceite de oliva, refinado | 1509.90.00.00
+18 | Aceite de Palma refinado | 1511.90.90.00
+19 | Aceite de oalma africana. en bruto | 1511.10.00.00
+20 | Aceite de pino | 3301.29.90.00
+21 | Aceite de Pino con alfa-teroineol como comnonente orincioal | 3805.90.10.00
+22 | Aceite de soja (soya) en bruto incluso desgomado | 1507.l 0.00.00
+23 | Aceite de soja (sova) refinado | 1507.90.00.00
+24 | Aceites ácidos del refinado | 3823.19.00.00
+25 | Aceites de soja (sova) v sus fracciones, oero sin modificar auirnicamente | 1507.90.00.00
+26 | Aceites esenciales de bergamota | 3301.19.10.00
+27 | Aceites esenciales de espicanardo ("vetiver") | 3301.29.40.00
+28 | Aceites esenciales de geranio | 3301.29.10.00
+29 | Aceites esenciales de jazmín | 3301.29.20.00
+30 | Aceites esenciales de las demás mentas | 3301.25.00.00
+31 | Aceites esenciales de lavanda (espliego) o de lavandín | 3301.29 .30.00
+32 | Aceites esenciales de lima | 3301.19.20.00
+33 | Aceites esenciales de limón | 3301.13.00.00
+34 | Aceites esenciales de menta piperita (Mentha piperita) | 3301.24.00.00
+35 | Aceites esenciales de naranja | 3301.12.00.00
+36 | Aceites vegetales y sus fracciones, interesterificados | 1516.20.90.00 |
+37 | Aceites vegetales y sus fracciones, elaidinizados | 1516.20.90.00 |
+38 | Aceites vegetales y sus fracciones, parcial o totalmente hidrogenados | 1516.20.90.00 |
+39 | Aceites vegetales y sus fracciones, reesterificados | 1516.20.90.00 |
+40 | Aceitunas en salmuera | 0711.20.00.00 |
+41 | Aceitunas preparadas o conservadas, (excepto en vinagre o en ácido acético) (en cualquier tipo de envase), sin congelar | 2005.70.00.00 |
+42 | Aceitunas preparadas o conservadas, en vinagre o en ácido acético (en cualquier tipo de envase) | 2001.90.90.00 |
+43 | Acetatos de celulosa plastificados | 3912.12.00.00 |
+44 | Acetatos de celulosa sin plastificar | 3912.11.00.00 |
+45 | Achicoria tostada | 2101.30.00.00 |
+46 | Achiote (bija) | 1404.90.31.00 |
+47 | Acido esteárico | 3823.11.00.00 |
+48 | Acido oleico | 3823.12.00.00 |
+49 | Acidos grasos del "tall oil" | 3823.13.00.00 |
+50 | Acidos grasos monocarboxílicos industriales | 3823.19.00.00 |
+5I | Agar-agar | 1302.31.00.00 |
+52 | Agrios (cítricos), preparados o conservados, incluso con adición de azúcar \I otro edulcorante o alcohol (en cualquier tipo de envase) | 2008.30.00.00 |
+53 | Ajo en polvo, en envases de contenido neto inferior a 5 kg | 0712.90.90.00 |
+54 | Ajo en polvo, en envases de contenido neto superior o igual a 5 kg | 0712.90.l 0.00 |
+55 | Albaricoques (damascos, chabacanos), preparados conservados, incluso con adición de azúcar u otro edulcorante o alcohol (en cualquier tipo de envase) | 2008.50.00.00 |
+56 | Albaricoques (damascos, chabacanos), secos, acondicionadas para la venta al por menor | 0813.10.00.00 |
+57 | Alcaparras, en salmuera | 0711.90.30.00 |
+58 | Alcohol etílico absoluto con grado alcohólico volumétrico superior o igual a 80% vol. | 2207.10.10.00 |
+59 | Alcohol etílico sin desnaturalizar | 2208.90.10.00 |
+60 | Alcohol etílico y aguardiente desnaturalizados, de cualquier graduación | 2207.20.00.00 |
+61 | Alcoholes etílicos sin desnaturalizar con grado alcohólico volumétrico superior o igual a 80% vol. | 2207.10.90.00 |
+62 | Alcoholes grasos industriales | 3823.70.00.00 |
+63 | Almendra seca, sin cáscara | 0802.12.00.00 |
+64 | Almidón de maíz acondicionado para la venta al por menor | 1108.12.00.00 |
+65 | Almidón de trigo, acondicionado para la venta al por menor | 1108.11.00.00 |
+66 | Almidón pregelatinizado o esterificado | 3505.10.20.00 |
+67 | Almidones, acondicionados para Ja venta al por menor | 1108.19.00.00 |
+68 | Arcillas de uso industrial | 2508.40.90.00 |
+69 | Armuelles, estén o no cocidos en agua o vapor, congeladas | 0710.30.00.00 |
+70 | Arroz precocido | 1904.90.10.00 |
+71 | Artículos de confitería sin cacao (incluido el chocolate blanco) | 1704.90.00.00 |
+72 | Arvejas (guisantes, chícharos) (Pis11111 sativ11111), estén o no cocidas en agua o vapor, congeladas | 0710.21.00.00 |
+73 | Arvejas (guisantes, chícharos) (Pisum sativum), preparadas o conservadas, en vinagre o en ácido acético (en cualquier tipo de envase) | 2001.90.90.00 |
+74 | Arvejas (guisantes, chícharos) (Pisum sativum), preparadas o conservadas, (excepto en vina2re o ácido acético) (en cualquier tipo de envase), sin congelar | 2005.40.00.00 |
+75 | Asientos con armazón de madera, con relleno | 9401.61.00.00 |
+76 | Asientos con armazón de madera, sin relleno | 9401.69.00.00 |
+77 | Asientos de roten (ratán), mimbre, bambú o materias similares. | 9401.52.00.00 |
+| | 9401.53.00.00 |
+| | 9401.59.00.00 |
+78 | Avena preparada acondicionada para la venta al por menor | 1904.90.90.00 |
+79 | Azafrán acondicionado para la venta al por menor | 0910.20.00.00 |
+80 | Azúcar de caña, con adición de aromatizante o colorante, en estado sólido | 1701.91.00.00 |
+81 | Azúcar de caña, en bruto sin adición de aromatizante ni colorante, en estado sólido | 1701.13.00.00 |
+| | 1701.14.00.00 |
+82 | Azúcar de remolacha con adición de aromatizante o colorante, en estado sólido | 1701.91.00.00 |
+83 | Azúcar de remolacha, en bruto sin adición de aromatizante ni colorante, en estado sólido | 1701.12.00.00 |
+84 | Azúcar de remolacha en estado sólido | 1701.99.00.00 |
+85 | Azúcares de caña, en estado sólido | 1701.99.00.00 |
+86 | Azúcares químicamente puros | 2940.00.00.00 |
+87 | Azúcares, excepto los jarabes de sacarosa y los caramelizados, con un contenido de fructosa calculado sobre producto seco de 50% en peso | 1702.90.20.00 |
+88 | Azúcares, incluido el azúcar invertido y demás azúcares, con un contenido de fructosa. calculado sobre producto seco, de 50% en Peso | 1702.90.90.00 |
+89 | Bandejas de madera de pino cepilladas, para el servicio de mesa o de cocina | 4419.90.00.00 |
+90 | Barquillos y obleas, incluso rellenos ("gaufrettes"," wafers") y " waffles" ("1rnufres11 ) | 1905.32.00.00 |
+91 | Bebida a base de soya (denominada leche de soya), que no contenga materia láctea | 2202.99.90.00 |
+92 | Cacahuates (cacahuetes, manies) preparados o conservados (en cualquier tipo de envase) | 2008.11.90.00 |
+93 | Cacao en polvo con adición de azúcar u otro edulcorante | 1806.10.00.00 |
+94 | Café instantáneo, en sobres, bolsas o frascos | 2101.11.00.00 |
+95 | Café tostado, molido v descafeinado | 0901.22.00.00 |
+96 | Café tostado, sin descafeinar | 0901.21.00.00 |
+97 | Calabaza raspada, refrigerada | 0709.93.10.00 |
+| | 0709.93.20.00 |
+| | 0709.93.90.00 |
+98 | Caldos preparados | 2104.10.00.00 |
+99 | Canela triturada o pulverizada, acondicionada para la venta al por menor | 0906.20.00.00 |
+100 | Carbón vegetal (comprendido el de cáscaras o de huesos (carozos) de frutos), incluso aglomerado | 4402.10.00.00 |
+| | 4402.20.00.00 |
+| | 4402.90.00.00 |
+101 | Carboximetilcelulosa v sus sales | 3912.31.00.00 |
+102 | Carretes para extender y recoger mangueras de madera | 4421.99.90.00 |
+103 | Caucho (hule) endurecido, en masas, planchas, hojas, tiras, barras, perfiles y tubos; desechos v desperdicios; polvo | 4017.00.10.00 |
+104 | Cebolla deshidratada en hojuelas | 0712.20.90.00 |
+105 | Cebolla en encurtido {en cualauier tioo de envase) | 2001.90.20.00 |
+106 | Cebolla en oolvo, en envases de contenido neto inferior a 5 kg | 0712.20.90.00 |
+107 | Cebolla en polvo, en envases de contenido neto superior o igual a 5 kg | 0712.20.10.00 |
+108 | Cebollas en salmuera | 0711.90.20.00 |
+109 | Cebollas, preparadas o conservadas en vinagre o en ácido acético (en cualquier tipo de envase) | 2001.90.20.00 |
+110 | Cereales (excepto el maíz) en grano o en forma de copos u otro grano trabajado (excepto la harina grañones y sémola), recocidos o preparados de otro modo | 1904.90.90.00 |
+111 | Cerezas, preparadas o conservadas, incluso con adición de azúcar u otro edulcorante o alcohol (en cualquier tipo de envase) | 2008.60.00.00 |
+112 | Chile dulce seco o deshidratado en cualquier tipo de envase. | 0904.21.00.00 |
+113 | Chile dulce, en salmuera | 0711.90.90.00 |
+114 | Chile en conserva preparados o conservados en vinagre o en ácido acético (en cualquier tipo de envase) | 2001.90.90.00 |
+115 | Chile en conserva (excepto en vinagre o en ácido acético) (en cualquier tipo de envase), congelada | 2004.90.00.00 |
+116 | Chile triturado o pulverizado | 0904.22.00.00 |
+117 | Chocolates en bloques, tabletas o barras de peso inferior o igual a 2 kg, rellenos | 1806.31.00.00 |
+118 | Chocolates en bloques, tabletas o barras de peso inferior o igual a 2 kg, sin rellenar | 1806.32.00.00 |
+119 | Chocolates y demás preparaciones alimenticias que contengan cacao en bloques, tabletas o barras de peso inferior o igual a 2 kg | 1806.90.00.00 |
+120 | Cigarros (puros) | 2402.10.00.00 |
+121 | Ciruelas preparadas o conservadas acondicionadas para la venta al por menor | 2008.99.90.00 |
+122 | Ciruelas, secas, acondicionadas para la venta al por menor | 0813.20.00.00 |
+123 | Cóctel de frutas (envasado) | 2006.00.00.00 |
+124 | Colados de frutas u otros frutos (en cualquier tipo de envase) | 2007.10.00.00 |
+125 | Coliflor seca o deshidratada, pero sin otra preparación, en cualquier tipo de envase | 0712.90.90.00 |
+126 | Coliflor, en salmuera | 0711.90.90.00 |
+127 | Colorantes a la tina o a la cuba (incluidos los utilizables directamente como colorantes pigmentarios) y preparaciones a base de estos colorantes | 3204.15.00.00 |
+128 | Colorantes ácidos, incluso metalizados y preparaciones a base de estos colorantes | 3204.12.00.00 |
+129 | Colorantes básicos y preparaciones a base de estos colorantes | 3204.13.00.00 |
+130 | Colorantes directos v preparaciones a base de estos colorantes | 3204. 14.00.00 |
+131 | Colorantes dispersos y preparaciones a base de estos colorantes | 3204. 11.00.00 |
+132 | Colorantes para mordientes v preparaciones a base de estos colorantes | 3204.12.00.00 |
+133 | Colorantes pigmentarios y preparaciones a base de estos colorantes | 3204.17.00.00 |
+134 | Colorantes reactivos y preparaciones a base de estos colorantes | 3204.16.00.00 |
+135 | Compotas de agrios (cítricos), obtenidos por cocción, incluso con adición de azúcar u otro edulcorante (en cualquier tipo de envase) | 2007.10.00.00 |
+136 | Compotas de frutas u otros frutos, obtenidos por cocción, incluso con adición | 2007.10.00.00 |
+137 | Concentrado de tomate preparados o conservados (en cualquier tipo de envase) | 2002.90.l 0.00 |
+138 | Concentrados de achicoria tostada | 2101.30.00.00 |
+139 | Concentrados de café | 2101.11.00.00 |
+140 | Concentrados de sucedáneos del café tostados | 2101.30.00.00 |
+141 | Concentrados de té | 210l.20.90.00 |
+142 | Concentrados de yerba mate | 2101.20.90.00 |
+143 | Condimentos compuestos | 2103.90.00.00 |
+144 | Crema de coco (en cualquier tipo de envase) | 2008.19.90.00 |
+145 | Crema de maíz | 2005.80.00.00 |
+146 | Crema no láctea | 2106.90.60.00 |
+147 | Cuajada de soya | 2106.90.60.00 |
+148 | Cúrcuma acondicionada para la venta al por menor | 0910.30.00.00 |
+149 | Curry acondicionado para la venta al por menor. | 0910.99.30.00 |
+150 | Destilados acuosos aromáticos | 3301.90.00.00 |
+151 | Dipenteno en bruto | 3805.90.90.00 |
+152 | Disoluciones acuosas de aceites esenciales | 3301.90.00.00 |
+153 | Disoluciones concentradas de aceites esenciales en aceites fijos o materias análogas obtenidas por enflorado o maceración | 3301.90.00.00 |
+154 | Disoluciones concentradas de aceites esenciales en ceras o materias análogas, obtenidas por enflorado o maceración | 3301.90.00.00 |
+155 | Disoluciones concentradas de aceites esenciales en grasas o materias análogas, obtenidas por enflorado o maceración | 3301.90.00.00 |
+156 | Duraznos conservados provisionalmente | 0812.90.90.00 |
+157 | Elotitos (jilotes, chilotes) preparados o conservados en vinagre o en ácido acético en cualquier tipo de envase) | 2001.90.10.00 |
+158 | Encofrados para hormigón, de madera | 4418.40.00.00 |
+159 | Esencia de pasta celulosa al bisulfito (bisulfito de trementina) y demás paracimentos en bruto | 3805.90.90.00 |
+160 | Esencias de achicoria tostada | 2101.30.00.00 |
+161 | Esencias de café | 2101.11.00.00 |
+162 | Esencias de madera de pino | 3805.10.00.00 |
+163 | Esencias de pasta celulósica al sulfato (sulfato de trementina) | 3805.10.00.00 |
+164 | Esencias de sucedáneos del café tostados | 2101.30.00.00 |
+165 | Esencias de té | 2 10l.20.90.00 |
+166 | Esencias de trementina | 3805. l 0.00.00 |
+167 | Esencias de verba mate | 2101.20.90.00 |
+168 | Esencias terpénicas procedentes de la destilación o de otros tratamientos de la madera de coníferas | 3805.90.90.00 |
+169 | Espárragos, preparados o conservados en vinagre o en ácido acético (en cualquier tipo de envase) | 2001.90.90.00 |
+170 | Espárragos, preparados o conservados (excepto en vinagre o en ácido acético) (en cualquier tipo de envase), congelados | 2004.90.00.00 |
+171 | Espárragos, preparados o conservados (excepto en vinagre o en ácido acético) (en cualquier tipo de envase). sin congelar | 2005.60.00.00 |
+172 | Especies mezcladas, acondicionadas para la venta al por menor | 0910.91.00.00 |
+173 | Especies acondicionadas para la venta al por menor. | 0910.99.90.00 |
+174 | Espesativos de la algarroba o de su semilla o de las semillas de guar, incluso modificados | 1302.32.00.00 |
+175 | Espesativos derivados de los vegetales, incluso modificados | 1302.39.00.00 |
+176 | Espinacas (incluida la de Nueva Zelanda), estén o no cocidas en agua o vapor, congeladas | 0710.30.00.00 |
+177 | Estearina de palma con un índice de yodo inferior o igual a 48 | 1511.90.10.00 |
+178 | Extracto de alga marina (en polvo) | 1212.21.00.00 |
+| | 1212.29.00.00 |
+179 | Extracto de malta | 1901.90.10.00 |
+180 | Extracto de mimosa (acacia) | 3201.20.00.00 |
+181 | Extracto de Quebracho | 3201.10.00.00 |
+182 | Extracto de vainilla | 1302.19.90.00 |
+183 | Extractos curtientes de origen vegetal; taninos y sus sales, éteres, esteres y demás derivados | 3201.90.00.00 |
+184 | Extractos de achicoria tostada | 21o1.30.00.00 |
+185 | Extractos de café | 2101.11.00.00 |
+186 | Extractos de otras materias vegetales | 1302.19.90.00 |
+187 | Extractos de sucedáneos del café tostados | 21o1.30.00.00 |
+188 | Extractos de té | 21o1.20.90.00 |
+189 | Extractos de verba mate | 2101.20.90.00 |
+190 | Extractos vegetales de lúpulo | 1302.13.00.00 |
+191 | Extractos vegetales de pelitre (piretro) o de raíces Que contengan rotenona | 1302.19.30.00 |
+| 192 | Extractos vegetales de regaliz | | 1302.12.00.00 |
+| 193 | Extractos vegetales, para usos insecticidas, fungicidas o similares | 1302.19.20.00 |
+| 194 | Extractos vegetales, para usos medicinales | 1302.14.00.00 |
+| 1302.19.10.00 |
+| 195 | Fécula de papa (patata), acondicionada para la venta al por menor | 1108.13.00.00 |
+| 196 | Fécula de yuca (mandioca), acondicionada para la venta al por menor | 1108.14.00.00 |
+| 197 | Féculas (las demás), acondicionadas para la venta al por menor | 1108.19.00.00 |
+| 198 | Fósforos (cerillas) | 3605.00.00.00 |
+| 199 | Frambuesas, estén o no cocidas en agua o vapor, congeladas, incluso con adición de azúcar u otro edulcorante | 0811.20.00.00 |
+| 200 | Fresas (frutillas), conservadas provisionalmente | 0812.90.10.00 |
+| 201 | Fresas (frutillas), estén o no cocidas en agua o vapor, congeladas, incluso con adición de azúcar u otro edulcorante | 0811.10.00.00 |
+| 202 | Fresas (frutillas), preparadas o conservadas, incluso con adición de azúcar u otro edulcorante o alcohol (en cualquier tipo de envase) | 2008.80.00.00 |
+| 203 | Frijoles (judías, porotos, alubias, fréjoles) (Vigna spp., Phaseolus spp.), estén cocidos en agua o vapor congelados | 0710.22.00.00 |
+| 204 | Frijoles (judías, porotos, alubias, fréjoles) (Vigna spp., Phaseolus spp.) desvainados, preparados o conservados (en cualquier tipo de envase), sin congelar | 2005.51.00.00 |
+| 205 | Frijoles (judías, porotos, alubias, fréjoles) (Vigna spp., Phaseolus spp.), preparados o conservados (en cualquier tipo de envase), sin congelar | 2005.59.00.00 |
+| 206 | Fructosa químicamente pura | | 1702.50.00.00 |
+207 | Fructosa, con un contenido de fructosa, calculado sobre producto seco, superior al 50% en peso, excepto el azúcar invertido | 1702.60.00.00 |
+208 | Frutas en almíbar (en cualquier tipo de envase) | 2006.00.00.00 |
+209 | Frutas o frutos y demás partes comestibles de las plantas preparados o conservados, incluso con adición de azúcar u otro edulcorante o alcohol (en cualquier tipo de envase) | 2008.93.00.00 |
+2008.99.10.00 |
+2008.99.90.00 |
+210 | Frutas tropicales en salmuera | 0812.90.90.00 |
+211 | Frutas u otros frutos mezclados y demás partes comestibles de plantas, preparadas o conservadas, incluso con adición de azúcar u otro edulcorante o alcohol (en cualquier tipo de envase) | 2008.97.00.00 |
+2008.99.90.00 |
+212 | Frutas u otros frutos mezclados, secos acondicionadas para la venta al por menor | 0813.50.00.00 |
+213 | Frutas u otros frutos o sus co1tezas y demás partes de plantas, confitados con azúcar (almibarados, glaseados o escarchados) (en cualquier tipo de envase) | 2006.00.00.00 |
+214 | Frutas u otros frutos y demás partes comestibles de plantas, preparados o conservados en vinagre o en ácido acético (en cualquier tipo de envase) | 2001.90.90.00 |
+215 | Frutas u otros frutos, estén o no cocidos en agua o vapor, congelados incluso con adición de azúcar u otro edulcorante | 0811.90.00.00 |
+216 | Frutas u otros frutos, secos, acondicionadas para la venta al por menor | 0813.40.00.00 |
+217 | Frutos de cáscara y demás semillas, incluso mezclados entre sí, preparadas o conservadas, incluso con adición de azúcar u otro edulcorante o alcohol (en cualquier tipo de envase) | 2008.19.90.00 |
+218 | Galletas dulces (con adición de edulcorante) | 1905.31.90.00 |
+219 | Galletas dulces (con adición de edulcorante) con adición de cacao, para sándwich de helado | 105.31.10.00 |
+220 | Glucosa químicamente pura, sin fructosa | 1702.30.11.00 |
+221 | Glucosa, con un contenido de fructosa, calculado sobre producto seco, superior o igual al 20% pero inferior al 50%, en peso, excepto el azúcar invertido | 1702.40.00.00 |
+222 | Glucosa, con un contenido de fructosa, calculado sobre producto seco, inferior al 20% en peso | 1702.30.20.00 |
+223 | Goma arábiga | 1301.20.00.00 |
+224 | Goma laca | 1301.90.10.00 |
+225 | Gomas naturales | 1301.90.90.00 |
+226 | Gomorresinas, naturales | 1301.90.90.00 |
+227 | Grasa de cacao | 1804.00.00.00 |
+228 | Grasa vegetal no !áurica, parcialmente hidrogenada, con ámbito de reblandecimiento mínimo de 32 ºC y máximo de 41 ºC, de los tipos utilizados como sucedáneos de manteca de cacao. (aplica para Gua, Ho, Ni y CR) Grasa vegetal no !áurica, parcialmente hidrogenada o transesterificada, con un ámbito de reblandecimiento mínimo de32 ºC y máxima de 41 ºC (aplica solo para Es) | 1516.20.10.00 |
+229 | Grasas vegetales v sus fracciones, reesterificadas | 1516.20.90.00 |
+230 | Grasas vegetales y sus fracciones elaidínizadas | 1516.20.90.00 |
+231 | Grasas vegetales v sus fracciones, interesterificadas | 1516.20.90.00 |
+232 | Grasas vegetales y sus fracciones parcial o totalmente hidrogenadas | 1516.20.90.00 |
+233 | Griñones, preparados o conservados, incluso con adición de azúcar u otro edulcorante o alcohol (en cualquier tipo de envase) | 2008.70.00.00 |
+234 | Grosellas, estén o no cocidas en agua o vapor, congeladas, incluso con adición de azúcar u otro edulcorante | 0811.20.00.00 |
+235 | Guindas conservadas provisionalmente | 0812.10.10.00 |
+236 | Harina de torta de soya | 2304.00.10.00 |
+237 | Harina de arroz acondicionada para la venta al por menor | 1102.90.30.00 |
+238 | Harina de avena acondicionada para la venta al por menor | 1102.90.20.00 |
+239 | Harina de mostaza | 2103.30.10.00 |
+240 | Heces y desperdicios de cervecería o de destilería. | 2303.30.00.00 |
+241 | Roías de laurel, condicionadas para la venta al por menor. | 0910.99.20.00 |
+242 | Hojuelas o copos de maíz obtenidos por inflado o tostado | 1904.10.90.00 |
+243 | Hongos del género Agaricus, en salmuera | 0711.51.00.00 |
+244 | Hongos del género Agaricus, preparados o conservados (excepto en vinagre o en ácido acético) (en cualquier tipo de envase) | 2003.l0.00.00 |
+245 | Hongos del género Agaricus, secos, cortados en trozo o en rodajas o triturados o pulverizados, pero sin otra preparación, en cualquier tipo de envase. | 0712.31.00.00 |
+246 | Hongos diferentes del género Agaricus en salmuera | 0711.59.00.00 |
+247 | Hongos gelatinosos (Treme/la spp.) secos, cortados en trozo o rodajas o triturados o pulverizados, pero sin otra preparación, en cualquier envases. | 0712.33.00.00 |
+248 | Hongos, excepto los del género Agaricus, preparados o conservados (excepto en vinagre o en ácido acético) (en cualquier tipo de envase) | 2003.90.90.00 |
+249 | Hortalizas (incluso silvestres) de vaina, desvainadas o sin desvainar, estén o no cocidas en agua o vapor, congeladas | 0710.29.00.00 |
+250 | Hortalizas (incluso silvestres) mezcladas, preparadas o conservadas (excepto en vina2re o en ácido acético ) (en cualquier tipo de envase), congeladas | 2004.90.00.00 |
+251 | Hortalizas (incluso silvestres) mezcladas, preparadas o conservadas (excepto en vinagre o en ácido acético ) (en cualquier tipo de envase), sin congelar | 2005.99.00.00 |
+252 | Hortalizas (incluso silvestres) preparadas o conservadas (excepto en vinagre o en ácido acético) (en cualquier tipo de envase), congeladas | 2004.90.00.00 |
+253 | Hortalizas (incluso silvestres), mezcladas, estén o no cocidas en agua o vapor, congeladas | 0710.90.00.00 |
+254 | Hortalizas (incluso silvestres), confitados con azúcar (almibarados, glaseados o escarchados) (en cualquier tipo de envase) | 2006.00.00.00 |
+255 | Hortalizas (incluso silvestres), estén o no cocidas en agua o vapor, congeladas | 0710.80.00.00 |
+256 | Hortalizas (incluso silvestres), preparadas o conservadas (excepto e vinagre o en ácido acético ) (en cualquier tipo de envase), sin congelar | 2005.91.00.00 |
+| | 2005.99.00.00 |
+257 | Hortalizas (incluso silvestres), preparadas o conservadas en vinagre o en ácido acético (en cualquier tipo de envase) | 2001.90.90.00 |
+258 | Hortalizas homogeneizadas, (en cualquier tipo de envase). sin congelar | 2005.10.00.00 |
+| 259 | Hostias y productos similares | | 1905.90.00.00
+| 260 | Inulina, acondicionada para la venta al por menor | 1108.20.00.00
+| 261 | Jaleas de agrios (cítricos), obtenidas por cocción, incluso con adición de azúcar u otro edulcorante (en cualquier tipo de envase) | 2007.91.00.00
+| 262 | Jaleas de frutas u otros frutos, obtenidas por cocción, incluso con adición de azúcar u otro edulcorante en cualquier tipo de envase) | 2007.99.90.00
+| 263 | Jarabe de fructosa, con un contenido de fructosa, calculado sobre producto seco, superior al 50% en peso excepto el azúcar invertido | 1702.60.00.00
+| 264 | Jarabe de glucosa, con un contenido de fructosa, calculado sobre producto seco, superior o igual al 20% pero inferior al 50%, en peso, excepto el azúcar invertido | 1702.40.00.00
+| 265 | Jarabe de glucosa, sin fructosa | 1702.30.12.00
+| 266 | Jarabes de azúcar, con un contenido de fructuosa, calculado sobre producto seco, de 50% en peso | 1702.90.90.00
+| 267 | Jarabes, excepto los jarabes de sacarosa y los caramelizados, con un contenido de fructosa, calculado sobre Producto seco, de 50% en peso | 1702.90.20.00
+| 268 | Jengibre en vinagre (en cualquier tipo de envase) | 2001.90.90.00
+| 269 | Jengibre seco, triturado o pulverizado, acondicionado para la venta al por menor | 0910.12.10.00
+| 270 | Jugo concentrado de cereza, incluso congelado | 2009.89.10.00
+| 271 | Jugo concentrado de endrina, incluso congelado | 2009.89.10.00
+| 272 | Jugo concentrado de membrillo, incluso congelado | 2009.89.10.00
+| 273 | Jugo concentrado de albaricoque (damasco. chabacano), incluso congelado | 2009.89.10.00
+| 274 | Jugo concentrado de ciruela incluso congelado | 2009.89.10.00
+| 275 | Jugo concentrado de melocotón (durazno), incluso congelado | 2009.89.10.00
+| 276 | Jugo concentrado de pera, incluso congelado | 2009.89.10.00
+| 277 | Jugo concentrado de tamarindo | 2009.89.40.00
+| 278 | Jugo de cualquier otro agrio (cítrico) de valor Brix inferior o igual a 20 | 2009.31.00.00
+| 279 | Jugo de cualquier otro a!!rio (cítrico), | 2009.39.00.00
+| 280 | Jugo de guanábana (Annona muricata) | 2009.89.30.00
+| 281 | Ju20 de manzana concentrado. incluso congelado | 2009.79.10.00
+| 282 | Jugo de manzana de valor Brix inferior o igual a 20 | 2009.71.00.00
+| 283 | Jugo de maracuyá (Passiflora snn.) | 2009.89.20.00
+| 284 | Jugo de naranja concentrado | 2009.19.10.00
+| 285 | Jugo de naranja con2elado | 2009.11.00.00
+| 286 | Ju1w de naranja sin congelar, de valor Brix inferior o igual a 20 | 2009.12.00.00
+| 287 | Jugo de piña tropical (ananá) de valor Brix inferior o igual a 20 | 2009.41.00.00
+| 288 | Jugo de tomate | 2009.50.00.00
+| 289 | Jugo de toronja o pomelo de valor Brix inferior o igual a 20 | 2009.21.00.00
+| 290 | Jugo de toronja o pomelo, concentrado | 2009.29.10.00
+| 291 | Jugo de uva concentrado, incluso congelado | 2009.69.10.00
+| 292 | Jugo de uva de valor Brix inferior o igual a 30 | 2009.61.00.00
+| 293 | Jugos de cualquier otra fruta o fruto, u hortaliza (incluso silvestres) | 2009.81.00.00
+| | | 2009.89.90.00
+| 294 | Jugos de manzana | 2009.79.90.00
+| 295 | Jugos de naranja | 2009.19.90.00
+| 296 | Jugos de otras materias vegetales | 1302.19.90.00
+| 297 | Jugos de toronja o pomelo | 2009.29.90.00
+| 298 | Ju2os de uva | 2009.69.90.00
+| 299 | Jugos vegetales de lúpulo | 1302.13.00.00
+| 300 | Jugos vegetales de pelitre (piretro) o de raíces que contengan rotenona | 1302.19.30.00
+| 301 | Jugos vegetales de regaliz | 1302.12.00.00
+| 302 | Jugos vegetales, para usos insecticidas, fungicidas o similares | 1302.19.20.00
+| 303 | Jugos vegetales, para usos medicinales | 1302.14.00.00
+| | | 1302.19.10.00
+| 304 | Ketchup | 2103.20.00.00
+| 305 | Las demás celulosas v sus derivados químicos, en formas primarias | 3912.90.00.00
+| 306 | Látex de caucho natural, incluso prevulcanizado | 4001.10.00.00
+| 307 | Lecitina de soya | 2106.90.10.00
+| 308 | Lecitina de sova | 2923.20.00.00
+| 309 | Levaduras madre para cultivo | 2102.10.10.00
+| 310 | Levaduras muertas | 2102.20.00.00
+| 311 | Levaduras vivas | 2102.10.90.00
+| 312 | Los demás (torta y demás residuos sólidos de la extracción del aceite de soja (sova). incluso molidos o en "pellets") | 2304.00.90.00
+| 313 | Los demás aceites esenciales de agrios (cítricos) | 3301.19.90.00
+| 314 | Los demás aceites esenciales excepto de agrios (cítricos) | 3301.29.90.00
+| 315 | Los demás éteres de celulosa | 3912.39.00.00
+| 316 | Los demás hongos secos, cortados en trozo o en rodajas o triturados o pulverizados, pero sin otra preparación, en cualquier tipo de envase. | 0712.34.00.00
+| | | 0712.39.00.00
+| 317 | Los demás jugos de piña tropical (ananá) | 2009.49.00.00
+| 318 | Madera chapada | 4412.10.21.00
+| | | 4412. l 0.22.00
+| | | 4412.10.29.00
+| | | 4412.10.91.00
+| | | 4412.10.92.00
+| | | 4412.10.99.00
+| | | 4412.41.00.00
+| | | 4412.42.10.00
+| | | 4412.42.20.00
+| | | 4412.42.90.00
+| | | 4412.49.00.00
+| | | 4412.51.00.00
+| | | 4412.52.10.00
+| | | 4412.52.90.00
+| | | 4412.59.00.00
+| | | 4412.91.00.00
+| | | 4412.92.00.00
+| | | 4412.99.00.00
+| 319 | Madera contrachapada | 4412.l 0.11.00
+| | | 4412.10.12.00
+| | | 4412.10.19.00
+| | | 4412.10.21.00
+| | | 4412.10.22.00
+| | | 4412.10.29.00
+| | | 4412.10.91.00
+| | | 4412.10.92.00
+| | | 4412.10.99.00
+| | | 4412.31.00.00
+| | |
+| | | 4412.33 .00.00
+| | | 4412.34.00.00
+| | | 4412.39.00.00
+| | | 4412.51.00.00
+| | | 4412.52.10 .00
+| | | 4412.52.90.00
+| | | 4412.59.00.00
+| | | 4412.91.00.00
+| | | 4412.92.00.00
+| | | 4412.99.00.00
+| 320 | Madera estratificada | 4412.10.21.00
+| | | 4412.10.22.00
+| | | 4412.10.29.00
+| | | 4412.10.91.00
+| | | 4412.l 0.92.00
+| | | 4412.10.99.00
+| | | 4412.41.00.00
+| | | 4412.42.10.00
+| | | 4412.42.20.00
+| | | 4412.42.90.00
+| | | 4412.49 .00.00
+| | | 4412.51.00.00
+| | | 4412.52.10.00
+| | | 4412.52.90.00
+| | | 4412.59.00.00
+| | | 4412.91.00.00
+| | | 4412.92.00.00
+| | | 4412.99.00.00
+| 321 | Maíz dulce (Zea mays var. saccharata), preparado o conservado (excepto en vinagre o en ácido acético) (en cualquier tipo de envase), sin congelar | 2005.80.00.00
+| 322 | Maíz dulce, esté o no cocido en agua o vapor, congelado | 0710.40.00.00
+| 323 | Maíz tierno en mazorcas (elotitos o chilotes), conservado en salmuera, en cualquier tipo de envase | 2008.99.90.00
+| 324 | Malta tostada en polvo | 1107.20.00.00
+| 325 | Maltosa químicamente pura | 1702.90.10.00
+| 326 | Manteca de cacao | 1804.00.00.00
+| 327 | Manteca vegetal | 1516.20.90.00
+| 328 | Mantequilla de cacahuates (cacahuetes, maníes) (en cualquier tipo de envase) | 2008.11.10.00
+| 329 | Manzanas, secas, acondicionadas para la venta al por menor | 0813.30.10.00
+| | | 0813.30.90.00
+| 330 | Margarina, excepto la margarina líquida | 1517.10.00.00
+| 331 | Materias colorantes de origen vegetal (incluidos los extractos tintóreos, excepto los negros de origen animal) | 3203.00.00.00
+| 332 | Materias colorantes orgánicas sintéticas y mezclas de estas materias | 3204.l 8.00.00
+| | | 3204.19.00.00
+| 333 | Materias pécticas | 1302.20.00.00
+| 334 | Materias primas vegetales de las especies utilizadas principalmente para teñir o curtir | 1404.90.39.00
+| 335 | Mejoradores de panificación | 2106.90.40.00
+| 336 | Melaza de caña | 1703.l0.00.00
+| 337 | Melocotones (duraznos), preparados o conservados, incluso con adición de azúcar u otro edulcorante o alcohol (en cualquier tipo de envase) | 2008.70.00.00
+| 338 | Mermeladas de agrios (cítricos), obtenidas por cocción, incluso con adición de azúcar u otro edulcorante (en cualquier tipo de envase) | 2007.91.00.00
+| 339 | Mermeladas de frutas u otros frutos, obtenidas por cocción, incluso con adición de azúcar u otro edulcorante (en cualquier tipo de envase) | 2007.99.90.00
+| 340 | Mezclas de hortalizas secas o deshidratadas, pero sin otra preparación, en cualquier tipo de envase. | 0712.90.90.00
+| 341 | Mezclas de hortalizas, en salmuera | 0711.90.90.00
+| 342 | Mezclas y pastas para la preparación de productos de panadería, pastelería o galletería, de la partida 19.05. | 1901.20.00.00
+| 343 | Microorganismos monocelulares muertos | 2102.20.00.00
+| 344 | Miel (jarabe) de maíz | 1702.40.00.00
+| 345 | Mondadientes | 4421.91.90.00
+| | | 4421.99.90.00
+| 346 | Monturas o mangos (palos) de escoba de madera | 4417.00.00.00
+| 347 | Moras, estén o no cocidas en agua o vapor, congeladas, incluso con adición de azúcar u otro edulcorante | 0811.20.00.00
+| 348 | Moras-frambuesa, estén o no cocidas en agua o vapor, congeladas, incluso con adición de azúcar u otro edulcorante | 0811.20.00.00
+| 349 | Mostaza preparada | 2103.30.20.00
+| 350 | Mosto de uva | 2009.69.20.00
+| 351 | Mosto de uva de otra clase | 2204.30.00.00
+| 352 | Mosto de uva en el que la fermentación se ha impedido o cortado añadiendo alcohol, en recipientes con capacidad inferior o igual a 21 | 2204.21.00.00
+| 353 | Mosto de uva en el que la fermentación se ha impedido o cortado añadiendo alcohol | 2204.22.00.00
+| | | 2204.29.00.00
+| 354 | Mucílagos de Ja algarroba o de su semilla o de las semillas de guar, incluso modificados | 1302.32.00.00
+| 355 | Mucílagos derivados de los vegetales incluso modificados | 1302.39.00.00
+| 356 | Muebles de madera de los tipos utilizados en cocinas | 9403.40.00.00
+| 357 | Muebles de madera de los tipos utilizados en dormitorios | 9403.50.00.00
+| 358 | Muebles de madera de los tipos utilizados en oficinas | 9403.30.00.00
+| 359 | Muebles de madera de otros tipos | 9403.60.00.00
+| 360 | Nectarinas, preparadas o conservadas, incluso con adición ele azúcar u otro edulcorante o alcohol (en cualquier tipo de envase) | 2008.70.00.00
+| 361 | Nitratos de celulosa (incluidos los colodiones) | 3912.20.00.00
+| 362 | Nueces mixtas, preparadas o conservadas, incluso con adición de azúcar u otro edulcorante o alcohol (en cualquier tipo de envase) | 2008.19.90.00
+| 363 | Obleas para sellar v productos similares | 1905.90.00.00
+| 364 | Oleorresinas (por ejemplo: bálsamos), naturales | 1301.90.90.00
+| 365 | Oleorresinas de extracción | 3301.90.00.00
+| 366 | Orejas de Judas (Auricularia spp.) secos, cortados en trozo o rodajas o triturados o pulverizados pero sin otra preparación en cualquier tipo de envase. | 0712.32.00.00
+| 367 | Otras cerezas, conservadas provisionalmente | 0812.10.90.00
+| 368 | Otras frutas. conservadas Provisionalmente | 0812.90.90.00
+| 369 | Otras hortalizas, en salmuera | 0711.90.90.00
+| 370 | Otras hortalizas, pero sin otra preparación, en cualquier tipo de envase | 0712.90.20.00
+| | | 0712.90.90.00
+| 371 | Paletas de madera para remover pintura | 4421.91.90.00
+| | | 4421.99.90.00
+| 372 | Palmitos, preparados o conservados, incluso con adición de azúcar u otro edulcorante o alcohol (en cualquier tipo de envase) | 2008.91.00.00
+| 373 | Pan crujiente llamado "Knackebrot" | 1905.10.00.00
+| 374 | Pan de especias | 1905.20.00.00
+| 375 | Pan tostado y productos similares tostados | 1905.40.00.00
+| 376 | Papa seca o deshidratada pero sin otra preparación, en cualquier tipo de envase. | 0712.90.90.00
+| 377 | Papa en salmuera | 0711.90.90.00
+| 378 | Papas (patatas) peladas, estén o no cocidas o precocidas en agua o vapor, congeladas | 0710.10.00.00
+| 379 | Papas (patatas) preparadas o conservadas (excepto en vinagre o en ácido acético) (en cualquier tipo de envase), con2eladas | 2004.10.00.00
+| 380 | Papas (patatas), preparadas o conservadas (excepto en vinagre o en ácido acético) (en cualquier tipo de envase) sin co112elar | 2005.20.00.00
+| 381 | Partes de muebles de madera | 9403.91.00.00
+| 382 | Pasas secas, acondicionadas para la venta | 0806.20.00.00
+| 383 | Pasta de avellanas, preparada o conservada de otro modo, incluso con adición de azúcar u otro edulcorante o alcohol (en cualquier tipo de envase) | 2008.19.90.00
+| 384 | Pasta de cacao, sin desgrasar | 1803.10.00.00
+| 385 | Pasta de chile preparada o conservada (excepto en vinagre o en ácido acético) (en cualquier tipo de envase), congelada | 2004.90.00.00
+| 386 | Pasta de chile, preparada o conservada (excepto en vinagre o en ácido acético) (en cualquier tipo de envase), sin congelar | 2005.99.00.00
+| 387 | Pasta de tomate preparada o conservada (excepto en vinagre o en ácido acético) (en cualquier tipo de envase) | 2002.90.90.00
+| 388 | Pastas de agrios (cítricos), obtenidos por cocción, incluso con adición de azúcar u otro edulcorante (en cualquier tipo de envase) | 2007.91.00.00
+| 389 | Pastas de albaricoque (damasco, chabacano), para transfom1ación industrial, en envases de contenido neto superior o igual a 5 k) | 2007.99.10.00
+| 390 | Pastas de almendra, sin azúcar (en cualquier tipo de envase) | 2008.19.10.00
+| 391 | Pastas de avellanas, sin azúcar (en cualquier tipo de envase) | 2008.19.10.00
+| 392 | Pastas de cacao, desgrasada total o parcialmente | 1803.20.00.00
+| 393 | Pastas de frutas u otros frutos, obtenidos por cocción, incluso con adición de azúcar u otro edulcorante (en cualquier tipo de envase) | 2007.99.90.00
+| 394 | Pastas de manzana, para transformación industrial, en envases de contenido neto superior o igual a 5 kg? | 2007.99.l0.00
+| 395 | Pastas de melocotón (durazno), para transformación industrial, en envases de contenido neto superior o igual a 5 kg | 2007.99.!0.00
+| 396 | Pastas de otras nueces sin azúcar (en cualquier tipo de envase) | 2008.19.10.00
+| 397 | Pastas de pera, para transformación industrial, en envases de contenido neto superior o igual a 5 kg | 2007.99.10.00
+| 398 | Pastas secas de almidón, en hoias, y productos similares | 1905.90.00.00
+| 399 | Pastas secas de fécula, en hojas, y productos similares | 1905.90.00.00
+| 400 | Pastas secas de harina, en hojas, y productos similares | 1905.90.00.00
+| 401 | Pectatos | 1302.20.00.00
+| 402 | Pectinatos | 1302.20.00.00
+| 403 | Peiibaves conservados en salmuera | 0812.90.90.00
+| 404 | Pellets de harina, de arroz | 1904.10.10.00
+| 405 | Pellets de trigo | 1103.20.10.00
+| 406 | Pepinos y pepinillos preparados o conservados en vinagre o en ácido acético en cualquier tipo de envase) | 2001.10.00.00
+| 407 | Pepinos y pepinillos, en salmuera | 0711.40.00.00
+| 408 | Peras preparadas o conservadas, incluso con adición de azúcar u otro edulcorante o alcohol (en cualquier tino de envase) | 2008.40.00.00
+| 409 | Perejil deshidratado, en envases de contenido neto inferior a 5 kg: | 0712.90.90.00
+| 410 | Perejil deshidratado, en envases de contenido neto superior o igual a 5 k | 0712.90.10.00
+| 411 | Picadura de tabaco, para hacer cigarrillos | 2403.19.10.00
+| 412 | Piñas tropicales (ananás), preparadas o conservadas, incluso con adición de azúcar u otro edulcorante o alcohol (en cualquier tipo de envase) | 2008.20.00.00
+| 413 | Polvos para hornear preparados | 2102.30.00.00
+| 414 | Potajes preparados | 2104.10.00.00
+| 415 | Preparaciones alimenticias que contengan cacao, en bloques o barras con peso superior a 2 kg, o en forma líquida, pastosa, o en polvo, gránulos o formas similares, en recipientes o envases inmediatos con un contenido superior a 2 kg | 1806.20.90.00
+| 416 | Preparaciones para potajes | 2104.l 0.00.00
+| 417 | Preparaciones a base concentrados de café | 2101.12.00.00
+| 418 | Preparaciones a base de extractos de verba mate | 2101.20.90.00
+| 419 | Preparaciones a base de café | 2101.12.00.00
+| 420 | Preparaciones a base de concentrados de té | 2101.20.90.00
+| 421 | Preparaciones a base de concentrados de verba mate | 2101.20.90.00
+| 422 | Preparaciones a base de esencias de té | 2101.20.90.00
+| 423 | Preparaciones a base de esencias de café | 2101.12.00.00
+| 424 | Preparaciones a base de esencias de verba mate | 2101.20.90.00
+| 425 | Preparaciones a base de extractos de café | 2101.12.00.00
+| 426 | Preparaciones a base de extractos de té | 2101.20.10.00 2101.20.90.00
+| 427 | Preparaciones a base de soya, que no contengan materia láctea | 2106.90.79.00 2106.90.99.00
+| 428 | Preparaciones a base de té | 2101.20.90.00
+| 429 | Preparaciones a base de verba mate | 2101.20.90.00
+| 430 | Preparaciones alimenticias compuestas homogeneizadas | 2104.20.00.00
+| 431 | Preparaciones alimenticias obtenidas con copos de cereales sin tostar o con mezclas de copos de cereales sin tostar y copos de cereales tostados o cereales inflados | 1904.20.00.00
+| 432 | Preparaciones alimenticias que contengan cacao en bloques, tabletas o barras de peso inferior o igual a 2 kg, rellenas | 1806.31.00.00
+| 433 | Preparaciones alimenticias que contengan cacao en bloques, tabletas o barras de peso inferior o igual a 2 kg, sin rellenar | 1806.32.00.00
+| 434 | Preparaciones homogeneizadas de frutas u otros frutos (en cualquier tipo de envase) | 2007.10.00.00
+| 435 | Preparaciones líquidas a base de jarabe de maíz y aceite de almendra de palma parcialmente hidrogenado, de los tipos utilizados para decoración y relleno de productos de pastelería, que contengan cacao | 1806.20.10.00
+| 436 | Preparaciones para caldos | 2104.10.00.00
+| 437 | Preparaciones para salsas | 2103.90.00.00
+| 438 | Preparaciones para sopas | 2104.10.00.00
+| 439 | Productos a base de cereales obtenidos por inflado o tostado | 1904.10.90.00
+| 440 | Productos de galletería y productos similares | 1905.90.00.00
+| 441 | Productos de panadería incluso con adición de cacao v productos similares | 1905.90.00.00
+| 442 | Productos de pastelería, incluso con adición de cacao y productos similares | 1905.90.00.00
+| 443 | Productos orgánicos sintéticos de los tipos utilizados como luminóforos | 3204.90.00.00
+| 444 | Productos orgánicos sintéticos de los tipos utilizados para el avivado fluorescente | 3204.20.00.00
+| 445 | Proteína de sova aislada con menos de 2% de lecitina | 2106.90.10.00
+| 446 | Proteína de soya texturizada | 2106.10.00.00
+| 447 | Proteína vegetal hidrolizada | 2106.90.10.00
+| 448 | Proteína vegetal seca | 2106.10.00.00
+| 449 | Puertas y sus marcos, contramarcos y umbrales, de madera | 4418.21.00.00
+| | | 4418.29.00.00
+| 450 | Pulpa de remolacha, bagazo de caña de azúcar y demás desperdicios de la industria azucarera. | 2303.20.00.00
+| 451 | Puré de papa (patatas) homogeneizado, (en cualquier tipo de envase), sin congelar | 2005.10.00.00
+| 452 | Puré de papa (patatas) preparado o conservado (excepto en vinagre o en ácido acético) (en cualquier tipo de envase), sin congelar | 2005.99.00.00
+| 453 | Puré de tomate preparado o conservado (excepto en vinagre o en ácido acético) (en cualquier tipo de envase) | 2002.90.90.00
+| 454 | Purés de agrios (cítricos), obtenidos por cocción, incluso con adición de azúcar u otro edulcorante (en cualquier tipo de envase) | 2007.91.00.00
+| 455 | Purés de frutas u otros frutos, obtenidos por cocción, incluso con adición de azúcar u otro edulcorante (en cualquier tipo de envase) | 2007.99.90.00
+| 456 | Residuos de la industria del almidón v residuos similares de otros cereales | 2303.10.90.00
+| 457 | Residuos de la industria del almidón y residuos similares, de maíz, incluido el denominado comercialmente "gluten de maíz" | 2303.10.10.00
+| 458 | Resinas, naturales | 1301.90.90.00
+| 459 | Resinoides | 3301.30.00.00
+| 460 | Sacarosa químicamente pura, en estado sólido | 1701.99.00.00
+| 461 | Salsa de soja (soya) | 2103.10.00.00
+| 462 | Salsas de tomate | 2103.20.00.00
+| 463 | Salsas preparadas | 2103.90.00.00
+| 464 | Sazonadores compuestos | 2103.90.00.00
+| 465 | Sellos vacíos de los tipos utilizados para medicamentos y productos similares | 1905.90.00.00
+| 466 | Sooas Instantáneas | 2104.10.00.00
+| 467 | Sopas, preparadas | 2104. 10.00.00
+| 468 | Soya en polvo utilizada en Ja preparación de bebidas (denominada leche de soya), que no contenga materia láctea | 1901.90.90.00
+| 469 | Subproductos terpénicos residuales de la desterpenación de los aceites esenciales | 3301.90.00.00
+| 470 | Sucedáneos de la leche a base de sova, que no contenga materia láctea | 2106.90.60.00
+| 471 | Sucedáneos del café tostados, que no contengan café | 2101.30.00 .00
+| 472 | Sucedáneos del vinagre obtenidos a oartir del ácido acético | 2209.00.00.00
+| 473 | Tabaco "homogeneizado" o "reconstituido" | 2403.91.00.00
+| 474 | Tabacos para fumar incluso con sucedáneos de tabaco en cualquier proporción | 2403.19.90.00
+| 475 | Tabacos y sucedáneos de tabaco, elaborados; extractos y jugos de tabaco | 2403.99.00.00
+| 476 | | 4411.12.11.00
+| | | 4411.12.21.00
+| | | 4411.13.11.00
+| | | 4411.13.21.00
+| | |
+| | | 4411.14.21.00
+| | | 4411.92.10 .00
+| | | 4411.93.10.00
+| | | 4411.94.11.00
+| | | 4411.94.91.00
+| 477 | Tableros de fibra de madera u otras materias leñosas, incluso aglomeradas con resinas o demás aglutinantes orgánicos | 4411.12.19.00
+| | | 4411.12.29.00
+| | | 4411.13.19.00
+| | | 4411.13.29.00
+| | | 4411.14.19.00
+| | | 4411.14.29.00
+| | | 441 1.92.90.00
+| | | 4411 .93.90.00
+| | | 4411.94.19.00
+| | | 4411.94.99.00
+| 478 | Tableros de partículas de madera, incluso aglomeradas con resinas o demás aglutinantes orgánicos, recubiertos en la superficie con placas u hojas decorativas estratificadas de olástico | 4410.11.30.00
+| | | 4410.19.23.00
+| 479 | Tableros de partículas de madera, incluso aglomeradas con resinas o demás aglutinantes orgánicos, en bruto o simplemente lijados | 4410.11.10.00
+| | | 4410.19.21.00
+| 480 | Tableros de partículas de madera, incluso aglomeradas con resinas o demás aglutinantes orgánicos | 4410.11.20.00
+| | | 4410 .11.90.00
+| | | 4410.19.29.00
+| 481 | Tableros de partículas de materias leñosas, incluso aglomeradas con resinas o demás aglutinantes orgánicos | 4410.90.00.00
+| 482 | Tableros llamados "oríented strand board" y "waferboard", de partículas de madera, incluso aglomeradas con resinas o demás aglutinantes orgánicos, en bruto o simplemente lijados | 4410.12.10.00
+| | | 4410.19.11.00
+| 483 | Tableros llamados "oriented strand board" y "waferboard", de partículas de madera, incluso aglomeradas con resinas o demás aglutinantes orgánicos | 4410.12.90.00
+| | | 4410.19.19.00
+| 484 | Tableros para parqués (zócalos), de madera | 4418.73.20.00
+| | | 4418.75.00.00
+| | | 4418.79.00.00
+| 485 | Tableros de partículas de madera, incluso aglomeradas con resinas o demás aglutinantes orgánicos, recubiertos en la superficie con papel impregnado con melamina | 4410.11.20.00
+| | | 4410.19.22.00
+| 486 | Tablillas oara cubierta de tejados o fachadas (slúngles y shakes), de madera | 4418.50.00.00
+| 487 | Tapioca modificada | 1903.00.00.00
+| 488 | Tapioca y sus sucedáneos preparados con fécula, en copos, grumos, granos perlados, cerniduras o formas·similares | 1903.00.00.00
+| 489 | Té negro (fermentado) y té parcialmente fermentado,presentados en envases inmediatos con un contenido inferior o isrual a 3 kg | 0902.30.00.00
+| 490 | Te negro listo para consumo | 0902.30.00.00
+| 491 | Té verde (fermentado) y té parcialmente fermentado, presentados en envases inmediatos con un contenido inferior o igual a 3 kg | 0902. l 0.00.00
+| 492 | Té verde listo para consumo | 0902.10.00.00
+| 493 | Tomate en polvo, en envases de contenido neto inferior a 5 kg | 0712.90.90.00
+| 494 | Tomate en polvo, en envases de contenido neto superior o igual a 5 kg | 0712.90.10.00
+| 495 | Tomate seco o deshidratado, pero sin otra preparación, en cualquier tipo de envase. | 0712.90.90.00
+| 496 | Tomate, en salmuera | 0711.90.90.00
+| 497 | Tomates enteros o en trozos preparados o conservados (excepto en vinagre o en ácido acético) (en cualquier tipo de envase) | 2002.10.00 .00
+| 498 | Tomates preparados o conservados (excepto en vinagre o en ácido acético) (en cualquier tipo de envase) | 2002.90.90.00
+| 499 | Tomates preparados o conservados en vinagre o en ácido acético (en cualquier tipo de envase) | 2001.90.90.00
+| 500 | Tomillo acondicionado para la venta al por menor | 0910.99.10.00
+| 501 | Torta y demás residuos sólidos de la extracción del aceite de cacahuate (cacahuete, maní), incluso molidos o en "pellets" | 2305.00.00.00
+| 502 | Tortillas de harina de maíz | 1905.90.00.00
+| 503 | Tortillas de harina de trigo | 1905.90.00.00
+| 504 | Trigo bulgur | 1904.30.00.00
+| 505 | Trufas, en salmuera | 0711.59.00.00
+| 506 | Trufas, preparadas o conservadas (excepto en vinagre o en ácido acético) (en cualouier tioo de envase) | 2003.90.10.00
+| 507 | Vegetales deshidratados, listos para el consumo humano, homogeneizados | 2104.20.00.00
+| 508 | Ventanas, contraventanas, y sus marcos y contramarcos, de madera | 4418.11.00.00
+| | | 4418.19.00.00
+| 509 | Vinagre | 2209.00.00.00
+| 510 | Vino espumoso | 2204.10.00.00
+| 511 | Vino, en recipientes con capacidad inferior o igual a 2 l | 2204.21.00.00
+| 512 | Vinos en recipientes con capacidad superior a 2 1 | 2204.22.00.00
+| | | 2204.29.00.00
+| 513 | Zanahoria seca o deshidratada, pero sin otra preparación, en cualquier tipo de envase. | 0712.90.90.00
+| 514 | Zanahoria, en salmuera | 0711.90.90.00
+| 515 | Zarzamoras, estén o no cocidas en agua o vapor, congeladas, incluso con adición de azúcar u otro edulcorante | 0811.20.00.00
+| | | | | | | | | | | |
 NOTAS:
-1 En la aplicación de este listado, la descripción del producto prevalecerá sobre la clasificación arancelaria.
-2 Los productos listados anteriormente, serán sometidos únicamente a inspección aleatoria en los puntos de ingreso al territorio de la Unión Aduanera, cuando sea necesario comprobar físicamente que se trata de tales productos.
-3 Los Estados Parte instruirán a las oficinas encargadas de emitir autorizaciones o de importación y certificados fitosanitarios de exportación, sobre la aplicación inmediata de las presentes disposiciones.
-4 Los Estados Parte instruirán a los inspectores de Cuarentena en los puntos de ingreso, sobre la aplicación inmediata de las presentes disposiciones.
-5 En las oficinas referidas en los numerales 2 y 3, se exhibirá la lista para conocimiento del público por un plazo mínimo de seis (6) meses, así mismo estas disposiciones serán comunicadas a las entidades aduaneras y agencias encargadas de realizar trámites aduanales.
-6 Los Estados Parte podrán modificar dicho listado acorde con “El procedimiento para incluir o excluir en el listado oficial de productos y subproductos vegetales que no necesitan autorización de importación ni certificado fitosanitario pero que estarán sujetos a inspección”.
-(Así reformado el anexo 1 de esta Resolución N° 117-2004 (COMIECO) (Aprueba en el marco del proceso de establecimiento de la Unión Aduanera acuerdos en materia de medidas sanitarias y fitosanitarias), por el artículo 1° del decreto ejecutivo N° 33492 del 10 de noviembre del 2006)
+1. En la aplicación de este listado, la descripción del producto prevalecerá sobre la clasificación arancelaria.
+2. Los productos listados anteriormente, serán sometidos únicamente a inspección aleatoria en los puntos de ingreso al territorio de la Unión Aduanera, cuando sea necesario comprobar físicamente que se trata de tales productos.
+3. Los Estados Parte instruirán a las oficinas encargadas de emitir autorizaciones o de importación y certificados fitosanitarios de exportación, sobre la aplicación inmediata de las presentes disposiciones.
+4. Los Estados Parte instruirán a los inspectores de Cuarentena en los puntos de ingreso, sobre la aplicación inmediata de las presentes disposiciones.
+5. En las oficinas referidas en los numerales 2 y 3, se exhibirá la lista para conocimiento del público por un plazo mínimo de seis (6) meses, así mismo estas disposiciones serán comunicadas a las entidades aduaneras y agencias encargadas de realizar trámites aduanales.
+6. Los Estados Parte podrán modificar dicho listado acorde con "El procedimiento para incluir o excluir en el listado oficial de productos y subproductos vegetales que no necesitan autorización de importación ni certificado fitosanitario pero que estarán sujetos a inspección".
+(*)(Así reformado el anexo 1 anterior por resolución Publicación de la Resolución Nº 459-2022 (COMIECO-C) de fecha 29 de junio de 2022 y su Anexo 1, por medio de los cuales se resuelve la modificación por sustitución total, del Anexo 1 de la Resolución Nº 117-2004 (COMIECO), aprobado mediante decreto ejecutivo N° 43801 del 26 de setiembre del 2023)
 ANEXO 2
 RESOLUCIÓN Nº 117-2004 (COMIECO)
 PROCEDIMIENTO PARA INCLUIR O EXCLUIR EN EL LISTADO DE PRODUCTOS Y SUBPRODUCTOS DE ORIGEN VEGETAL QUE NO NECESITAN AUTORIZACIÓN2 NI CERTIFICADO FITOSANITARIO PUDIENDO ESTAR SUJETOS DE INSPECCIÓN DENTRO DEL TERRITORIO DE LOS ESTADOS PARTE DE LA UNIÓN ADUANERA
 Definición:
 Proceso que permite determinar aquellos productos y subproductos de origen vegetal que por su naturaleza no requiere permiso o autorización de importación ni certificación fitosanitaria del país de origen o procedencia; pudiendo ser verificada aleatoriamente mediante inspección en el punto de ingreso al país importador.
 Objetivos:
-Liberar del trámite de obtención de permisos o autorización de importación o certificados fitosanitarios de origen, los productos y subproductos vegetales que no tienen la capacidad para albergar, reproducir o transportar plagas reglamentadas.
-Facilitar el comercio internacional de productos que no presentan riesgo de introducción de plagas para los países de la Unión Aduanera Centroamericana.
-Simplificar los trámites a los usuarios, disminuir sus costos y descongestionar las instancias oficiales encargadas de emitir autorización1 y certificados fitosanitarios.
+a. Liberar del trámite de obtención de permisos o autorización de importación o certificados fitosanitarios de origen, los productos y subproductos vegetales que no tienen la capacidad para albergar, reproducir o transportar plagas reglamentadas.
+b. Facilitar el comercio internacional de productos que no presentan riesgo de introducción de plagas para los países de la Unión Aduanera Centroamericana.
+c. Simplificar los trámites a los usuarios, disminuir sus costos y descongestionar las instancias oficiales encargadas de emitir autorización1 y certificados fitosanitarios.
 Procedimiento:
-Los productos y subproductos de origen vegetal que no requieran autorización1 y certificados fitosanitarios se incluirán en el listado oficial de productos y subproductos de origen vegetal que no necesitan permiso o autorización ni certificado fitosanitario pudiendo estar sujetos a inspección aleatoria.
-El Comité de Medidas Sanitarias y Fitosanitarias, creado en el artículo 30 del Reglamento Centroamericano sobre Medidas y Procedimientos Sanitarios y Fitosanitarias, en adelante el Comité, será la instancia que avale los productos que las Organizaciones Nacionales de Protección Fitosanitaria (ONPF) han determinado que pueden ser incluidos o excluidos en el listado.
-Es competencia de las autoridades de las ONPF’s hacer los análisis técnicos para definir los productos que serán incluidos o excluidos en el listado, los que deberá conocer el Comité previo a su aprobación por el Consejo de Ministros de Integración Económica.
-La selección para la exoneración de autorización1 y certificados fitosanitarios para los productos y subproductos de origen vegetal, se fundamentará en los siguientes criterios de riesgo:
-Grado de procesamiento o industrialización.
-Capacidad para albergar, reproducir y transportar plagas.
-Relación o asociación con plagas cuarentenarias de interés para la región.
-El tipo de empaque y embalaje.
-La inspección aleatoria en el punto de ingreso tiene el propósito de verificar la concordancia de los documentos con el producto o subproducto declarado, y comprobar el estado fitosanitario del mismo, embalajes y medios de transporte.
+a. Los productos y subproductos de origen vegetal que no requieran autorización1 y certificados fitosanitarios se incluirán en el listado oficial de productos y subproductos de origen vegetal que no necesitan permiso o autorización ni certificado fitosanitario pudiendo estar sujetos a inspección aleatoria.
+b. El Comité de Medidas Sanitarias y Fitosanitarias, creado en el artículo 30 del Reglamento Centroamericano sobre Medidas y Procedimientos Sanitarios y Fitosanitarias, en adelante el Comité, será la instancia que avale los productos que las Organizaciones Nacionales de Protección Fitosanitaria (ONPF) han determinado que pueden ser incluidos o excluidos en el listado.
+c. Es competencia de las autoridades de las ONPF's hacer los análisis técnicos para definir los productos que serán incluidos o excluidos en el listado, los que deberá conocer el Comité previo a su aprobación por el Consejo de Ministros de Integración Económica.
+d. La selección para la exoneración de autorización1 y certificados fitosanitarios para los productos y subproductos de origen vegetal, se fundamentará en los siguientes criterios de riesgo:
+o Grado de procesamiento o industrialización.
+o Capacidad para albergar, reproducir y transportar plagas.
+o Relación o asociación con plagas cuarentenarias de interés para la región.
+o El tipo de empaque y embalaje.
+e. La inspección aleatoria en el punto de ingreso tiene el propósito de verificar la concordancia de los documentos con el producto o subproducto declarado, y comprobar el estado fitosanitario del mismo, embalajes y medios de transporte.
 ANEXO 3
 RESOLUCIÓN Nº 117-2004 (COMIECO)
 ENCUESTA GENERAL DE UBICACIÓN
@@ -1222,68 +726,68 @@ ANEXO 4
 RESOLUCIÓN Nº 117-2004 (COMIECO)
 MANUAL DE PROCEDIMIENTOS PARA OTORGAR LA GUÍA SANITARIA DE MOVILIZACIÓN DE ANIMALES DENTRO DEL TERRITORIO DE LA UNIÓN ADUANERA
 Índice
-Introducción
-Objetivos
-Campo de aplicación
-Definición y terminología
-Clasificación
-Especificaciones
-Referencias
+1. Introducción
+2. Objetivos
+3. Campo de aplicación
+4. Definición y terminología
+5. Clasificación
+6. Especificaciones
+7. Referencias
 1. Introducción:
 Los acuerdos internacionales sobre el comercio entre países va orientado a facilitar la movilización de personas, animales y mercancías, lo cual incrementa el riesgo de introducción de enfermedades exóticas, por tal motivo deben de buscarse mecanismos que minimicen este riesgo.
 Con base en lo anterior se hace necesario la creación de un Sistema de Control de Movilización de animales dentro del territorio de la Unión Aduanera, el cual se constituirá en un instrumento para evitar la posible diseminación de enfermedades de importancia cuarentenaria. Esto requiere de la aplicación de las Medidas Sanitarias con la participación de las autoridades Veterinarias Oficiales de los países miembros procurando la participación del sector privado, gremios de productores y organismos internacionales, los cuales juegan un papel fundamental en la prevención y control de enfermedades garantizando tanto la salud humana como la animal.
 El presente manual establece los procedimientos a cumplir, dentro del territorio de la Unión Aduanera Centroamericana para el otorgamiento de la guía sanitaria indispensable en la movilización intraregional de animales.
-Objetivos
+2. Objetivos
 2.1 General:
 Garantizar que todos los países de la Unión Aduanera utilicen los mismos criterios para la emisión de las Guías Sanitarias para la movilización intraregional de animales; criterios que deben de estar basados en las recomendaciones dadas por la OIE en su Código Zoosanitario Internacional.
 2.2 Específicos:
-Registrar la información sanitaria correspondiente al transporte de animales, dentro del territorio de la Unión Aduanera.
-Conocer el flujo del movimiento de animales en el área.
-Facilitar el intercambio comercial de animales, garantizando un riesgo mínimo de introducción y diseminación de enfermedades.
+o Registrar la información sanitaria correspondiente al transporte de animales, dentro del territorio de la Unión Aduanera.
+o Conocer el flujo del movimiento de animales en el área.
+o Facilitar el intercambio comercial de animales, garantizando un riesgo mínimo de introducción y diseminación de enfermedades.
 3. Campo de aplicación:
 El cumplimiento del presente manual de procedimientos es de carácter obligatorio para la movilización de animales dentro del territorio de la Unión Aduanera.
-Definición y terminología:
+4. Definición y terminología:
 4.1 Autoridad Oficial:
 Nombre de la autoridad veterinaria oficial competente
-4.2. Cerrtificado CITES:
+o 4.2. Cerrtificado CITES:
 Documento extendido por las autoridades administrativas de las partes de la Convención CITES, para amparar la exportación, importación o la reexportación de especimenes vivos y sus productos.
-4.3 CITES:
+o 4.3 CITES:
 Convención Sobre Comercio Internacional de Especies Amenazadas de Fauna y Flora Silvestres.
-4.4 Descripción del Contenido del Transporte:
+o 4.4 Descripción del Contenido del Transporte:
 Se refiere a la especie animal, cantidad, categoría, edad, uso o destino, raza o variedad, según corresponda a mamíferos, aves, hidrobiológicos o abejas.
-4.5 Destino del embarque:
+o 4.5 Destino del embarque:
 Son los datos relacionados con la identificación de la persona responsable de la recepción de los animales movilizados y la identificación geográfica del destino del embarque.
-4.6 Documento adjunto:
+o 4.6 Documento adjunto:
 Se refiere a la documentación que se adjunta junto a esta guía sanitaria de movilización, consistente al Certificado Zoosanitario, Análisis de laboratorio, entre otros.
-4.7 Firma y Sello:
+o 4.7 Firma y Sello:
 Firma y Sello de la autoridad oficial competente del país de origen.
-4.8 Guía Sanitaria de Movilización de Animales:
+o 4.8 Guía Sanitaria de Movilización de Animales:
 Documento oficial expedido por la Autoridad Oficial Competente del país de origen.
-4.9 Lugar de emisión:
+o 4.9 Lugar de emisión:
 Es la identificación geográfica del lugar de expedición de la guía Sanitaria de movilización de animales.
-4.10 Motivo de la Movilización de animales:
+o 4.10 Motivo de la Movilización de animales:
 Es la información que justifica el traslado de los animales.
-4.11 Número:
+o 4.11 Número:
 Se refiere al número que tendrá la guía sanitaria de movilización de animales, compuesto por las primeras dos letras del país de origen, seguido por los números de mes, año y el de orden correlativo.
-4.12 Número de Certificado Veterinario Oficial:
+o 4.12 Número de Certificado Veterinario Oficial:
 Número de Certificado Oficial emitido por la autoridad competente del lugar de origen.
-4.13 Origen del Embarque:
+o 4.13 Origen del Embarque:
 Son los datos relacionados al propietario, dirección, teléfono, nombre de la explotación, municipio o cantón, departamento o provincia, responsable de la movilización, tipo de transporte, identificación del transporte, precinto o marchamo del país de donde se envían los animales.
-Descripción del contenido del transporte (Clasificación)
+5. Descripción del contenido del transporte (Clasificación)
 Mamíferos: bovinos, equinos, porcinos, ovinos, caprinos, caninos, felinos, animales silvestres u otros.
 Aves: De un día, ponedoras, reproductoras (livianas o pesadas), de reemplazo, gallos de pelea, silvestres y de ornato. Hidrobiológicos: Peces, crustáceos, moluscos, anfibios y de ornato.
 Abejas: Criollas (Meliponas) sin aguijón o melíferas (Apis sp) con aguijón.
-Especificaciones
+6. Especificaciones
 6.1. La Guía Sanitaria de Movilización será requisito para el traslado de animales dentro del territorio de la Unión Aduanera Centroamericana la cual será emitida por la Autoridad Veterinaria Oficial.
 6.2. El interesado en obtener la guía sanitaria de movilización de animales, debe indicar: el origen del embarque, descripción e identificación del contenido del transporte, destino del embarque y el motivo de la movilización de animales.
 6.3. Para la emisión de la Guía Sanitaria de Movilización de Animales se deberá cumplir con los requisitos establecidos en el Código Zoosanitario Internacional de OIE.
 6.4. Para la movilización de Animales Silvestres, Exóticos y de Ornato se requerirá como condición previa el Certificado CITES.
 6.5. A la Guía Sanitaria de Movilización de Animales se deberá adjuntar el Certificado Sanitario, análisis de laboratorio y constancia de inmunizaciones y tratamientos antiparasitarios, cuando corresponda.
 6.6. La Guía Sanitaria de Movilización de Animales será valida para un solo embarque por cada unidad de transporte y tendrá vigencia de 48 horas desde que se emite hasta su utilización.
-REFERENCIAS
-Código Zoosanitario Internacional de la OIE.
-Convención Sobre Comercio Internacional de Especies Amenazadas de Fauna y Flora Silvestres (CITES).
-Leyes de Sanidad Animal de los países miembros de Unión Aduanera.
+7. REFERENCIAS
+o Código Zoosanitario Internacional de la OIE.
+o Convención Sobre Comercio Internacional de Especies Amenazadas de Fauna y Flora Silvestres (CITES).
+o Leyes de Sanidad Animal de los países miembros de Unión Aduanera.
 GUÍA SANITARIA DE MOVILIZACIÓN DE ANIMALES DENTRO DEL TERRITORIO DE LA UNIÓN ADUANERA
 Nº_______
 Fecha: ____________________
@@ -1301,7 +805,7 @@ Teléfono: ________________
 7) Identificación del transporte: ___________________________
 8) Precinto o Marchamo: ________________________________
 DESCRIPCIÓN DEL CONTENIDO DEL TRANSPORTE
-MAMÍFEROS:
+A. MAMÍFEROS:
 Cantidad de animales | Especie animal | Sexo
 M | H
 | | |
@@ -1310,7 +814,7 @@ M | H
 | | |
 | | |
 TOTAL | | |
-AVES
+B. AVES
 Cantidad de animales | Categoríal | Edad
 | |
 | |
@@ -1318,7 +822,7 @@ Cantidad de animales | Categoríal | Edad
 | |
 | |
 TOTAL | |
-HIDROBIOLÓGICOS
+C. HIDROBIOLÓGICOS
 Especies | Cantidad | Uso o Destino | Edad
 | | |
 | | |
@@ -1326,7 +830,7 @@ Especies | Cantidad | Uso o Destino | Edad
 | | |
 | | |
 TOTAL | | |
-ABEJAS
+D. ABEJAS
 Naturaleza del Apiario | Cantidad | Raza y variedad | Uso y destino
 | | |
 | | |
@@ -1338,7 +842,7 @@ DESTINO DEL EMBARQUE
 9) Nombre del establecimiento: ________________________________
 10) Propietario o Responsable:_________________________________
 11) Dirección: _______________ Teléfono: __________________
-Municipio o Cantón: _________ Departamento o provincia: _______
+12. Municipio o Cantón: _________ Departamento o provincia: _______
 MOTIVO DE LA MOVILIZACIÓN DE ANIMALES
 13) Sacrificio 14) Reproducción 15) Engorde:
 16) Exposición 17) Exportación
@@ -1353,51 +857,52 @@ INSTRUCTIVO PARA EL LLENADO DE LA GUÍA SANITARIA DE MOVILIZACIÓN DE ANIMALES D
 Objetivo General:
 Protección del estatus zoosanitario dentro del territorio de la Unión Aduanera.
 Objetivos Específicos:
-Registrar la información sanitaria correspondiente al transporte de animales dentro del territorio de la Unión Aduanera.
-Facilitar el intercambio comercial de animales dentro del territorio de la Unión Aduanera garantizando un riesgo sanitario mínimo.
-Sensibilizar a los propietarios, transportistas e intermediarios responsables de la movilización de animales dentro del territorio de la Unión Aduanera.
+o Registrar la información sanitaria correspondiente al transporte de animales dentro del territorio de la Unión Aduanera.
+o Facilitar el intercambio comercial de animales dentro del territorio de la Unión Aduanera garantizando un riesgo sanitario mínimo.
+o Sensibilizar a los propietarios, transportistas e intermediarios responsables de la movilización de animales dentro del territorio de la Unión Aduanera.
 LLENADO: La guía de movilización deberá ser llenada por la autoridad oficial del país de origen, reconocida por los Servicios Veterinarios de los Estados Parte de la Unión Aduanera.
 NÚMERO DE EJEMPLARES: Original (propietario) y dos copias (una copia queda en el país de origen y la otra en el de destino final).
 FORMA Y UTILIZACIÓN DE LA GUÍA SANITARIA: La guía sanitaria será presentada para la verificación de los requisitos en cada puesto de control, si este no es identificado como destino final, debiendo ser firmada y sellada en el reverso del original y copia por la autoridad oficial. Se autorizará el proceso de la movilización siempre y cuando los requisitos hayan sido cumplidos.
 VALIDEZ DE LA GUÍA: Será valida para un único embarque y se llenará una guía por cada unidad de transporte.
 CONTENIDO
 ORIGEN DEL EMBARQUE
-Nombre del propietario: anotar nombres y apellidos del propietario de los animales.
-Dirección y teléfono: escribir la dirección completa y número telefónico de residencia del propietario.
-Nombre de la explotación: escribir el nombre de la explotación de procedencia de los animales.
-Municipio o cantón: Nombre del municipio o cantón donde está ubicada la explotación.
-Departamento o provincia: Nombre del Departamento o Provincia donde está ubicada la explotación.
-Tipo de transporte: Indicar tipo de transporte a utilizarse (pick-up, camión, trailer, furgón, tren, avión, barco u otro).
-Identificación del transporte: Indicar el número de matrícula de circulación (placas).
-Precinto o marchamo: Indicar número y serie de marchamo.
+1. Nombre del propietario: anotar nombres y apellidos del propietario de los animales.
+2. Dirección y teléfono: escribir la dirección completa y número telefónico de residencia del propietario.
+3. Nombre de la explotación: escribir el nombre de la explotación de procedencia de los animales.
+4. Municipio o cantón: Nombre del municipio o cantón donde está ubicada la explotación.
+5. Departamento o provincia: Nombre del Departamento o Provincia donde está ubicada la explotación.
+6. Tipo de transporte: Indicar tipo de transporte a utilizarse (pick-up, camión, trailer, furgón, tren, avión, barco u otro).
+7. Identificación del transporte: Indicar el número de matrícula de circulación (placas).
+8. Precinto o marchamo: Indicar número y serie de marchamo.
+9.
 DESCRIPCIÓN DEL CONTENIDO DEL TRANSPORTE
 Utilizar los incisos A), B), C) o D) de acuerdo a la especie animal a transportar:
-MAMÍFEROS: Se debe de indicar la especie.
+A. MAMÍFEROS: Se debe de indicar la especie.
 Cantidad de animales: número de animales que se transportan por vehículo.
 Especie animal: consignar bovinos, equinos, cerdos, ovinos, caprinos, caninos, felinos, animales silvestres (venados, tepezcuintle) u otros.
 Sexo: (M): Macho (H): Hembra
 Total: Consignar la cantidad de las especies a transportar.
-AVES
+B. AVES
 Cantidad de animales: número de aves que se transportan por vehículo.
 Categoría: aves de un día, reproductoras (livianas o pesadas), aves de reemplazo, gallos de pelea, aves silvestres y de ornato.
 Edad: especificar el rango de edad de cada lote.
 Total: Consignar la cantidad de aves a transportar.
-HIDROBIOLÓGICOS
+C. HIDROBIOLÓGICOS
 Todo producto que se desarrolla en un ambiente acuático
 Especies: Camarón, pescado, langosta, cangrejo, bivalvos (conchas), otros (ornato).
 Cantidad: Especificar la unidad de medida (millares, unidades, libras, kilogramos u otros).
 Uso o destino: Reproducción, engorde, consumo, ornato u otros.
 Edad: Consignar la fase de desarrollo, en camarón: larvas o nauplios, postlarvas, (juveniles y adulto).
-ABEJAS
+D. ABEJAS
 Naturaleza del apiario: Colmena poblada, enjambre, lote de abejas (obreras y zánganos), reina, panales de cría, celdas de reinas u otras.
 Cantidad: Especificar el número de colmenas a transportar.
 Raza y variedad: Criollas (meliponas) sin aguijón; o melíferas (Apis sp.) con aguijón.
 Uso o destino: Reproducción, producción o ambas.
 DESTINO DEL EMBARQUE
-Nombre del Establecimiento: Indicar el nombre del establecimiento que recibirá el embarque.
-Propietario o Responsable: Nombre de la persona que recibe el embarque.
-Dirección y teléfono: Escribir la dirección completa y número telefónico de residencia del propietario o responsable.
-Municipio o Cantón: Nombre del municipio o cantón donde está ubicado el establecimiento.
+9. Nombre del Establecimiento: Indicar el nombre del establecimiento que recibirá el embarque.
+10. Propietario o Responsable: Nombre de la persona que recibe el embarque.
+11. Dirección y teléfono: Escribir la dirección completa y número telefónico de residencia del propietario o responsable.
+12. Municipio o Cantón: Nombre del municipio o cantón donde está ubicado el establecimiento.
 Departamento o Provincia: Nombre del Departamento o Provincia donde está ubicado el establecimiento
 MOTIVO DE LA MOVILIZACIÓN DE ANIMALES
 Se deberá marcar la casilla del numeral 13 al 15 según sea el motivo de la movilización. En el numeral 18 deberá consignarse y especificar cuando los anteriores incisos no apliquen.
@@ -1419,7 +924,7 @@ FORMULARIO PARA RESULTADO DEL DIAGNÓSTICO DE BRUCELOSIS, PRUEBA DE ANILLO EN LE
 (NOTA DE SINALEVI: Por tratarse de un formulario consultar La Gaceta N° 209 del día martes 26 de octubre del 2004, página 12)
 FORMULARIO DE CITATORIO PARA REALIZAR PRUEBAS DIAGNÓSTICAS DE BRUCELOSIS O TUBERCULOSIS
 (NOTA DE SINALEVI: Por tratarse de un formulario consultar La Gaceta N° 209 del día martes 26 de octubre del 2004, página 12)
-FORMULARIO PARA EL REGISTRO DE ANIMALES SACRIFICADOS: DIAGNÓSTICO DE BRUCELOSIS O TUBERCULOSIS – VIGILANCIA EPIDEMIOLÓGICA
+FORMULARIO PARA EL REGISTRO DE ANIMALES SACRIFICADOS: DIAGNÓSTICO DE BRUCELOSIS O TUBERCULOSIS - VIGILANCIA EPIDEMIOLÓGICA
 (NOTA DE SINALEVI: Por tratarse de un formulario consultar La Gaceta N° 209 del día martes 26 de octubre del 2004, página 12)
 FORMULARIO PARA EL INFORME TÉCNICO MENSUAL PARA EL CONTROL Y ERRADICACIÓN DE BRUCALOSIS Y TUBERCULOSIS BOVINA
 (NOTA DE SINALEVI: Por tratarse de un formulario consultar La Gaceta N° 209 del día martes 26 de octubre del 2004, página 12)
@@ -1439,12 +944,12 @@ I. PECES
 II. CRUSTÁCEOS
 III. MOLUSCOS
 LISTADO DE OTRAS ENFERMEDADES IMPORTANTES LISTA DE ESPECIES REFERIDAS EN LAS NORMAS PARA LA IMPORTACIÓN
-PECES DE AGUA DULCE PARA CONSUMO:
-PECES ORNAMENTALES:
-PECES DE AGUA SALADA PARA CONSUMO:
-ANFIBIOS
-CRUSTÁCEOS
-MOLUSCOS
+A. PECES DE AGUA DULCE PARA CONSUMO:
+B. PECES ORNAMENTALES:
+C. PECES DE AGUA SALADA PARA CONSUMO:
+D. ANFIBIOS
+E. CRUSTÁCEOS
+F. MOLUSCOS
 NORMAS GENERALES ZOOSANITARIAS PARA ORGANISMOS ACUÁTICOS Y SUS DERIVADOS DE RIESGO PARA LA ACUICULTURA
 LISTADO DE REQUISITOS ZOOSANITARIOS ESPECÍFICOS
 0106.00.99.03: Ranas (Rana spp.) en fase larvaria
@@ -1455,9 +960,9 @@ LISTADO DE REQUISITOS ZOOSANITARIOS ESPECÍFICOS
 0301.10.00.03 Peces ornamentales adultos
 0301.91.00.01: Gametos de trucha
 0301.91.00.02: Huevos de trucha
-Alevines de trucha
-Adultos de trucha
-Trucha fresca o congelada
+4. Alevines de trucha
+5. Adultos de trucha
+6. Trucha fresca o congelada
 0301.92.00.01 Huevos de Anguila (Anguila spp.)
 0301.92.00.02 Alevines de Anguila (Anguila spp.)
 0301.93.00.01 Gametos de carpa
@@ -1511,46 +1016,46 @@ LISTADO DE ENFERMEDADES DE DECLARACIÓN OBLIGATORIA DE LAS ESPECIES DE
 ORGANISMOS ACUÁTICOS VIVOS DESTINADOS A LA ACUICULTURA
 I. PECES
 a. CIPRINIDOS
-Viremia primaveral de la carpa (SVC)
-Septicemia hemorrágica viral (VHS)
+o Viremia primaveral de la carpa (SVC)
+o Septicemia hemorrágica viral (VHS)
 b. BAGRES
-Enfermedad viral del bagre de canal (CCVD) tipo I
+o Enfermedad viral del bagre de canal (CCVD) tipo I
 c. TRUCHAS
-Septicemia hemorrágica viral (VHS)
-Necrosis hematopoyética infecciosa (IHN)
-Necrosis pancreática infecciosa (IPN)
-Necrosis eritrocítica viral (VEN)
-Enfermedad viral por herpes (HVSD)
-Enfermedad del torneo (Myxosoma cerebralis)
-Ceratomixosis (Ceratomixa shasta)
-Enfermedad bacteriana del riñón por Rimbacterium salmolinarum (BKD)
-Enfermedad por el virus de Oncorhyncus masou
+o Septicemia hemorrágica viral (VHS)
+o Necrosis hematopoyética infecciosa (IHN)
+o Necrosis pancreática infecciosa (IPN)
+o Necrosis eritrocítica viral (VEN)
+o Enfermedad viral por herpes (HVSD)
+o Enfermedad del torneo (Myxosoma cerebralis)
+o Ceratomixosis (Ceratomixa shasta)
+o Enfermedad bacteriana del riñón por Rimbacterium salmolinarum (BKD)
+o Enfermedad por el virus de Oncorhyncus masou
 d. PECES DE ORNATO
-Viruela de la carpa (VC)
-Viremia primaveral de la carpa (SVC)
-Septicemia hemorrágica viral (SHV)
-Septicemia viral del bagre (SVPG)
+o Viruela de la carpa (VC)
+o Viremia primaveral de la carpa (SVC)
+o Septicemia hemorrágica viral (SHV)
+o Septicemia viral del bagre (SVPG)
 II. CRUSTÁCEOS
-Enfermedad de la mancha blanca
+o Enfermedad de la mancha blanca
 a. PENEIDOS
-Enfermedad del monodon del tipo baculovirus (MBV)
-Necrosis baculoviral de la glándula instestinal (BMN)
-Virus hepatopancreático semejante a parvo (HPV)
-Virus del hepatopáncreas semejante a reo (REO)
-Enfermedad de la cabeza amarilla
-Enfermedad del órgano linfoide por Parvovirus (LPV)
+o Enfermedad del monodon del tipo baculovirus (MBV)
+o Necrosis baculoviral de la glándula instestinal (BMN)
+o Virus hepatopancreático semejante a parvo (HPV)
+o Virus del hepatopáncreas semejante a reo (REO)
+o Enfermedad de la cabeza amarilla
+o Enfermedad del órgano linfoide por Parvovirus (LPV)
 b. CAMARÓN DE AGUA DULCE
-Enfermedad semejante al IHHNV
+o Enfermedad semejante al IHHNV
 c. PENEÍDOS FRESCOS, REFRIGERADOS, CONGELADOS SIN PELAR
-Enfermedad de la mancha blanca
+o Enfermedad de la mancha blanca
 III MOLUSCOS
-Enfermedad del velo del ostión (EVO)
-Enfermedad viral del tipo herpes
-Enfermedad viral de las branquias por Iridovirus
-Haplosporidiosis (Haplosporidium nelsoni)
-Microcitosis (Mikcrocytos mackini, M. roughleyi)
-Perkinsosis (Perkinsus marinus, P. atlanticus, P. olseni)
-Bonamiosis (Bonamia ostreae, B. sp. de Tiostrea chilamis y ostrea angosi)
+o Enfermedad del velo del ostión (EVO)
+o Enfermedad viral del tipo herpes
+o Enfermedad viral de las branquias por Iridovirus
+o Haplosporidiosis (Haplosporidium nelsoni)
+o Microcitosis (Mikcrocytos mackini, M. roughleyi)
+o Perkinsosis (Perkinsus marinus, P. atlanticus, P. olseni)
+o Bonamiosis (Bonamia ostreae, B. sp. de Tiostrea chilamis y ostrea angosi)
 LISTADO DE OTRAS ENFERMEDADES IMPORTANTES DE ORGANISMOS ACUÁTICOS DESTINADOS PARA LA ACUICULTURA
 Aeromoniasis Aeromenae spp.
 Aflatoxicosis
@@ -1578,7 +1083,7 @@ Vibriosis Vibrio spp.
 Virus del síndrome de taura STV
 La lista de agentes patógenos descritos está sujeta a modificaciones periódicas.
 LISTA DE ESPECIES REFERIDAS EN LAS NORMAS PARA LA IMPORTACIÓN
-PECES DE AGUA DULCE PARA CONSUMO:
+A. PECES DE AGUA DULCE PARA CONSUMO:
 Nombre Científico:
 Cyprinus sp. Carpas
 Ctenophoryngodon sp.
@@ -1607,147 +1112,148 @@ Argopecten spp. Conchuela
 NORMAS GENERALES ZOOSANITARIAS PARA ORGANISMOS ACUÁTICOS Y SUS DERIVADOS DE RIESGO PARA LA ACUICULTURA
 Estas normas están referidas a los requisitos generales que se requieren para el comercio internacional; no incluyen las especificaciones de enfermedades que se presentan en el documento por especie, fase de vida y la presentación de los productos.
 Las normas generales y las normas específicas son complementarias y de cumplimiento obligatorio.
-Los organismos acuáticos y/o sus derivados estarán amparados por un Certificado Zoosanitario Internacional extendido por la Autoridad Competente.
-Los establecimientos de acuicultura no deberán haber estado sujetos a restricciones de tipo sanitario por la Autoridad Competente, durante por lo menos los últimos dos años.
-Los establecimientos de acuicultura donde se origina el producto deben disponer de inspección zoosanitaria aprobada por la Autoridad Competente de acuerdo a las normas internacionales.
-En el empaque primario deben utilizarse recipientes nuevos.
-Los empaques secundarios, podrán ser nuevos o desinfectados con productos autorizados por el país importador. Los empaques sólo podrán ser abiertos por la Autoridad Competente del país de destino.
-Todo fármaco utilizado como tratamiento preventivo contra enfermedades deberá ser aprobado por el país de destino, indicando fecha de aplicación, marca y lote del producto utilizado.
-En el empaque ha de indicarse la identificación del establecimiento de acuicultura, el número de autorización otorgado por la Autoridad Competente, tipo de organismo acuático y su estadio de vida.
-En los casos que la Autoridad Competente del país de destino lo considere necesario, se podrán tomar muestras por embarque para análisis zoosanitario, cuarentena y residuos tóxicos.
-Cuando la Autoridad Competente del país importador lo considere conveniente podrá inspeccionar y aprobar, en conjunto con la Autoridad Competente del país exportador, la instalación de acuicultura exportadora del producto.
-Todas las pruebas diagnósticas requeridas deberán estar en concordancia con el "Manual para el Diagnóstico de las Enfermedades de los Animales Acuáticos" de la Oficina Internacional de Epizootias (OIE).
-En caso de organismos acuáticos sin norma específica, la Autoridad Competente del país importador podrá establecer los requisitos zoosanitarios que considere convenientes basado en un análisis de riesgo.
+1. Los organismos acuáticos y/o sus derivados estarán amparados por un Certificado Zoosanitario Internacional extendido por la Autoridad Competente.
+2. Los establecimientos de acuicultura no deberán haber estado sujetos a restricciones de tipo sanitario por la Autoridad Competente, durante por lo menos los últimos dos años.
+3. Los establecimientos de acuicultura donde se origina el producto deben disponer de inspección zoosanitaria aprobada por la Autoridad Competente de acuerdo a las normas internacionales.
+4. En el empaque primario deben utilizarse recipientes nuevos.
+5. Los empaques secundarios, podrán ser nuevos o desinfectados con productos autorizados por el país importador. Los empaques sólo podrán ser abiertos por la Autoridad Competente del país de destino.
+6. Todo fármaco utilizado como tratamiento preventivo contra enfermedades deberá ser aprobado por el país de destino, indicando fecha de aplicación, marca y lote del producto utilizado.
+7. En el empaque ha de indicarse la identificación del establecimiento de acuicultura, el número de autorización otorgado por la Autoridad Competente, tipo de organismo acuático y su estadio de vida.
+8. En los casos que la Autoridad Competente del país de destino lo considere necesario, se podrán tomar muestras por embarque para análisis zoosanitario, cuarentena y residuos tóxicos.
+9. Cuando la Autoridad Competente del país importador lo considere conveniente podrá inspeccionar y aprobar, en conjunto con la Autoridad Competente del país exportador, la instalación de acuicultura exportadora del producto.
+10. Todas las pruebas diagnósticas requeridas deberán estar en concordancia con el "Manual para el Diagnóstico de las Enfermedades de los Animales Acuáticos" de la Oficina Internacional de Epizootias (OIE).
+11. En caso de organismos acuáticos sin norma específica, la Autoridad Competente del país importador podrá establecer los requisitos zoosanitarios que considere convenientes basado en un análisis de riesgo.
 LISTADO DE REQUISITOS ZOOSANITARIOS ESPECÍFICOS
 0106.00.99.03: Ranas (Rana spp.) en fase larvaria
 1. Los organismos estarán amparados por un certificado zoosanitario, expedido por la Autoridad competente del país exportador, indicando el cumplimiento de las normas generales.
 0106.00.99.04: Ranas (Rana spp.) juveniles
 1. Los organismos estarán amparados por un certificado zoosanitario, expedido por la Autoridad competente del país exportador, en el que se haga constar el cumplimiento de las normas generales y resultados negativos a las pruebas de:
-Trematodos
+o Trematodos
 0106.00.99.05: Ranas (Rana spp.) adultas
 1. Los organismos estarán amparados por un certificado zoosanitario, expedido por la Autoridad competente del país exportador, en el que se haga constar el cumplimiento de las normas generales y resultados negativos a las pruebas de:
-Trematodos
+o Trematodos
 0301.10.00.01 Gametos de peces ornamentales
 1. Sólo se permite la importación de países o zonas libres de las siguientes enfermedades:
-Septicemia hemorragica viral (VHS)
-Viruela de la Carpa (VC)
-viremia primaveral de la carpa (svc)
-septicemia viral del bagre
+o Septicemia hemorragica viral (VHS)
+o Viruela de la Carpa (VC)
+o viremia primaveral de la carpa (svc)
+o septicemia viral del bagre
 2. Los organismos deberán estar amparados por un certificado zoosanitario, expedido por la autoridad competente del país exportador, en el que se haga constar el cumplimiento de las normas generales.
 0301.10.00.02: Alevines de Peces ornamentales
 1. Sólo se permite la importación de países o zonas libres de las siguientes enfermedades:
-Septicemia hemorragica viral (VHS)
-Viruela de la Carpa (VC)
-viremia primaveral de la carpa (svc)
-septicemia viral del bagre
+o Septicemia hemorragica viral (VHS)
+o Viruela de la Carpa (VC)
+o viremia primaveral de la carpa (svc)
+o septicemia viral del bagre
 2. Los organismos deberán estar amparados por un certificado zoosanitario, expedido por la autoridad competente del país exportador, en el que se haga constar el cumplimiento de las normas generales.
 3. Además, se recomiendan resultados negativos a las pruebas de:
-enfermedad de la coluMnaris (Flexibacter columnaris)
-hexamitiasis (Hexamita spp.)
-SAPROLEGNIASIS (Saprolegnia sp.)
+o enfermedad de la coluMnaris (Flexibacter columnaris)
+o hexamitiasis (Hexamita spp.)
+o SAPROLEGNIASIS (Saprolegnia sp.)
 0301.10.00.03 Peces ornamentales adultos
 1. Sólo se permite la importación de países o zonas libres de las siguientes enfermedades:
-Septicemia hemorragica viral (VHS)
-Viruela de la Carpa (VC)
-viremia primaveral de la carpa (svc)
-septicemia viral del bagre
+o Septicemia hemorragica viral (VHS)
+o Viruela de la Carpa (VC)
+o viremia primaveral de la carpa (svc)
+o septicemia viral del bagre
 2. Los organismos deberán estar amparados por un certificado zoosanitario, expedido por la autoridad competente del país exportador en el que se haga constar el cumplimiento de las normas generales.
 3. Además, se recomiendan resultados negativos a las pruebas de:
-VIBRIOSIS
-SEPTICEMIA PSEUDOMONAL
-ENFERMEDAD DE LA COLUMNARIS (Flexibacter columnaris)
-HEXAMITIASIS (Hexamita spp.)
-AEROMONAS
-SAPROLEGNIASIS (Saprolegnia sp.)
+o VIBRIOSIS
+o SEPTICEMIA PSEUDOMONAL
+o ENFERMEDAD DE LA COLUMNARIS (Flexibacter columnaris)
+o HEXAMITIASIS (Hexamita spp.)
+o AEROMONAS
+o SAPROLEGNIASIS (Saprolegnia sp.)
 0301.91.00.01: Gametos de trucha
 1. Sólo se permite la importación de países o zonas libres de las siguientes enfermedades:
-septicemia hemorragica viral (vhs)
-necrosis hematopoyetica infecciosa (ihn)
-necrosis hematopoyetica EPIZOOTICA (Ehn)
-necrosis PANCREÁTICA infecciosa (ipn)
-enfermedad viral del herpes (vsd)
+o septicemia hemorragica viral (vhs)
+o necrosis hematopoyetica infecciosa (ihn)
+o necrosis hematopoyetica EPIZOOTICA (Ehn)
+o necrosis PANCREÁTICA infecciosa (ipn)
+o enfermedad viral del herpes (vsd)
 2. Los organismos deberán estar amparados por un certificado zoosanitario, expedido por la autoridad competente del país exportador, en el que se haga constar el cumplimiento de las normas generales.
 3. Además, se recomienda resultado negativo a la prueba de:
-RENIBACTERIOSIS (ENFERMEDAD BACTERIANA DEL RIÑÓN)
+o RENIBACTERIOSIS (ENFERMEDAD BACTERIANA DEL RIÑÓN)
 0301.91.00.02: Huevos de trucha
 1. Sólo se permite la importación de países o zonas libres de las siguientes enfermedades:
-septicemia hemorragica viral (vhs)
-necrosis hematopoyetica infecciosa (ihn)
-necrosis hematopoyetica EPIZOOTICA (Ehn)
-necrosis PANCREÁTICA infecciosa (ipn)
-enfermedad viral del herpes (vsd)
+o septicemia hemorragica viral (vhs)
+o necrosis hematopoyetica infecciosa (ihn)
+o necrosis hematopoyetica EPIZOOTICA (Ehn)
+o necrosis PANCREÁTICA infecciosa (ipn)
+o enfermedad viral del herpes (vsd)
 2. Los organismos deberán estar amparados por un certificado zoosanitario, expedido por la autoridad competente del país exportador, en el que se haga constar el cumplimiento de las normas generales.
 3. Además, se recomienda resultado negativo a la prueba de:
-renibacteriosis (Renibacterium salmoninarun)
+o renibacteriosis (Renibacterium salmoninarun)
 0301.91.00.04 Alevines de trucha
 1. Sólo se permite la importación de países o zonas libres de las siguientes enfermedades:
-septicemia hemorragica viral (vhs)
-necrosis hematopoyetica infecciosa (ihn)
-necrosis hematopoyetica EPIZOOTICA (EHN)
-necrosis PANCREÁTICA infecciosa (ipn)
-enfermedad viral del herpes (vsd)
+o septicemia hemorragica viral (vhs)
+o necrosis hematopoyetica infecciosa (ihn)
+o necrosis hematopoyetica EPIZOOTICA (EHN)
+o necrosis PANCREÁTICA infecciosa (ipn)
+o enfermedad viral del herpes (vsd)
 2. Los organismos deberán estar amparados por un certificado zoosanitario, expedido por la autoridad competente del país exportador, en el que se haga constar el cumplimiento de las normas generales.
 3. Además, se recomiendan resultados negativos a las pruebas de:
-CARATOMIXOCIS (Caratomira spp.)
-saprolegniasis (Saprolegnia spp.)
-ColuMnaris (Flexibacter columnaris)
-renibacteriosis (Renibacterium salmoninarun)
-enfermedad del torneo (Whirling disease)
+o CARATOMIXOCIS (Caratomira spp.)
+o saprolegniasis (Saprolegnia spp.)
+o ColuMnaris (Flexibacter columnaris)
+o renibacteriosis (Renibacterium salmoninarun)
+o enfermedad del torneo (Whirling disease)
 0301.91.00.05 Adultos de trucha
 1. Sólo se permite la importación de países o zonas libres de las siguientes enfermedades:
-septicemia hemorragica viral (vhs)
-necrosis hematopoyetica infecciosa (ihn)
-necrosis hematopoyetica EPIZOOTICA (EHN)
-necrosis PANCREÁTICA infecciosa (ipn)
-enfermedad viral del herpes (vsd)
+o septicemia hemorragica viral (vhs)
+o necrosis hematopoyetica infecciosa (ihn)
+o necrosis hematopoyetica EPIZOOTICA (EHN)
+o necrosis PANCREÁTICA infecciosa (ipn)
+o enfermedad viral del herpes (vsd)
 2. Los organismos deberán estar amparados por un certificado zoosanitario expedido por la autoridad competente del país exportador, en el que se haga constar el cumplimiento de las normas generales.
 3. Además, se recomiendan resultados negativos a las pruebas de:
-CARATOMIXOCIS (Caratomira spp.)
-saprolegniasis (Saprolegnia spp.)
-ColuMnaris (Flexibacter columnaris)
-renibacteriosis (Renibacterium salmoninarun)
-enfermedad del torneo (Whirling disease)
+o CARATOMIXOCIS (Caratomira spp.)
+o saprolegniasis (Saprolegnia spp.)
+o ColuMnaris (Flexibacter columnaris)
+o renibacteriosis (Renibacterium salmoninarun)
+o enfermedad del torneo (Whirling disease)
 0301.91.00.06 Trucha fresca o congelada
 1. Los organismos deberán estar amparados por un certificado zoosanitario expedido por la autoridad competente del país exportador, en el que se haga constar el cumplimiento de las normas generales.
 2. Los pescados deberán ser eviscerados antes del embarque y estar empacados en recipientes nuevos sellados a prueba de goteo.
 0301.92.00.01 Huevos de Anguila (Anguila spp.)
 1. Sólo se permite la importación de animales y subproductos de zonas libres de la siguiente enfermedad:
-Necrosis Pancreática Infecciosa (NPI)
+o Necrosis Pancreática Infecciosa (NPI)
+o
 2. Los organismos deberán estar amparados por un certificado zoosanitario, expedido por la autoridad competente del país exportador, en el que se haga constar el cumplimiento de las normas generales.
 0301.92.00.02 Alevines de Anguila (Anguila spp.)
 1. Sólo se permite la importación de animales y subproductos de zonas libres de la siguiente enfermedad:
-Necrosis Pancreática Infecciosa (NPI)
+o Necrosis Pancreática Infecciosa (NPI)
 2. Los organismos deberán estar amparados por un certificado zoosanitario, expedido por la autoridad competente del país exportador, en el que se haga constar el cumplimiento de las normas generales.
 0301.93.00.01 Gametos de carpa
 1. Sólo se permite la importación de países o zonas libres de las siguientes enfermedades:
-Septicemia hemorragica viral (VHS)
-Viruela de la Carpa (VC)
-viremia primaveral de la carpa (svc)
+o Septicemia hemorragica viral (VHS)
+o Viruela de la Carpa (VC)
+o viremia primaveral de la carpa (svc)
 2. Los organismos deberán estar amparados por un certificado zoosanitario, expedido por la autoridad competente del país exportador en el que se haga constar el cumplimiento de las normas generales.
 301.93.00.02 Huevos de carpa
 1. Sólo se permite la importación de países o zonas libres de las siguientes enfermedades:
-VIREMIA PRIMAVERAL DE LA CARPA (SVC)
-VIRUELA DE LA CARPA (VC)
-SEPTICEMIA HEMORRÁGICA VIRAL (VHS)
+o VIREMIA PRIMAVERAL DE LA CARPA (SVC)
+o VIRUELA DE LA CARPA (VC)
+o SEPTICEMIA HEMORRÁGICA VIRAL (VHS)
 2. Los organismos deberán estar amparados por un certificado zoosanitario, expedido por la autoridad competente del país exportador, en el que se haga constar el cumplimiento de las normas generales.
 3. Además, se recomienda resultado negativo a la prueba de:
-saprolegniasis (Saprolegnia spp.)
+o saprolegniasis (Saprolegnia spp.)
 301.93.00.03 Alevines de carpa
 1. Sólo se permite la importación de países o zonas libres de las siguientes enfermedades:
-VIREMIA PRIMAVERAL DE LA CARPA (SVC)
-VIRUELA DE LA CARPA (VC)
-SEPTICEMIA HEMORRÁGICA VIRAL (VHS)
+o VIREMIA PRIMAVERAL DE LA CARPA (SVC)
+o VIRUELA DE LA CARPA (VC)
+o SEPTICEMIA HEMORRÁGICA VIRAL (VHS)
 2. Los organismos deberán estar amparados por un certificado zoosanitario, expedido por la autoridad competente del país exportador, en el que se haga constar el cumplimiento de las normas generales.
 3. Además, se recomienda resultado negativo a la prueba de:
-saprolegniasis (Saprolegnia spp.)
+o saprolegniasis (Saprolegnia spp.)
 301.93.00.04 Adultos de carpa
 1. Sólo se permite la importación de países o zonas libres de las siguientes enfermedades:
-VIREMIA PRIMAVERAL DE LA CARPA (SVC)
-VIRUELA DE LA CARPA (VC)
-SEPTICEMIA HEMORRÁGICA VIRAL (VHS)
+o VIREMIA PRIMAVERAL DE LA CARPA (SVC)
+o VIRUELA DE LA CARPA (VC)
+o SEPTICEMIA HEMORRÁGICA VIRAL (VHS)
 2. Los organismos deberán estar amparados por un certificado zoosanitario, expedido por la autoridad competente del país exportador, en el que se haga constar el cumplimiento de las normas generales.
 3. Además, se recomienda resultado negativo a la prueba de:
-saprolegniasis (Saprolegnia spp.)
+o saprolegniasis (Saprolegnia spp.)
 0301.99.00.11 Gametos de tilapia
 1. El producto deberá estar amparado por un certificado zoosanitario, expedido por la autoridad competente del país exportador en el que se haga constar el cumplimiento de las normas generales.
 0301.99.00.12 Huevos de tilapia
@@ -1755,180 +1261,182 @@ saprolegniasis (Saprolegnia spp.)
 0301.99.00.13 Alevines de tilapia
 1. Los organismos deberán estar amparados por un certificado zoosanitario, expedido por la autoridad competente del país exportador, en el que se haga consta el cumplimiento de las normas generales.
 2. Además, se recomiendan resultados negativos a las pruebas de:
-enfermedad de la COLUMNARIS (Flexibacter spp.)
-saprolegniasis (Saprolegnia spp.)
-tREMATODOS MONOGENEOS Y DIGENEOS
-Streptococcus spp.
+o enfermedad de la COLUMNARIS (Flexibacter spp.)
+o saprolegniasis (Saprolegnia spp.)
+o tREMATODOS MONOGENEOS Y DIGENEOS
+o Streptococcus spp.
 0301.99.00.14: Adultos de tilapia
 1. Los organismos deberán estar amparados por un certificado zoosanitario, expedido por la autoridad competente del país exportador, en el que se haga consta el cumplimiento de las normas generales.
 2. Además, se recomiendan resultados negativos a las pruebas de:
-enfermedad de la COLUMNARIS (Flexibacter spp.)
-saprolegniasis (Saprolegnia spp.)
-TREMATODOS MONOGENEOS Y DIGENEOS
-ESTREPTOCOCOS
+o enfermedad de la COLUMNARIS (Flexibacter spp.)
+o saprolegniasis (Saprolegnia spp.)
+o TREMATODOS MONOGENEOS Y DIGENEOS
+o ESTREPTOCOCOS
 0301.99.00.21: Gametos de bagre
 1. Sólo se permite la importación de países o zonas libres de las siguientes enfermedades:
-ENFERMEDAD VIRAL DEL BAGRE DE CANAL (CCVD)
+o ENFERMEDAD VIRAL DEL BAGRE DE CANAL (CCVD)
 2. Los organismos deberán estar amparados por un certificado zoosanitario, expedido por la autoridad competente del país exportador en el que se haga constar el cumplimiento de las normas generales.
 3. Además, se recomienda resultado negativo a la prueba de:
-SEPTICEMIA ENTERICA DEL BAGRE (Edwarsella ictaluri)
+o SEPTICEMIA ENTERICA DEL BAGRE (Edwarsella ictaluri)
 0301.99.00.22: Huevos de bagre
 1. Sólo se permite la importación de países o zonas libres de las siguientes enfermedades:
-ENFERMEDAD VIRAL DEL BAGRE DE CANAL (CCVD)
+o ENFERMEDAD VIRAL DEL BAGRE DE CANAL (CCVD)
 2. Los organismos deberán estar amparados por un certificado zoosanitario, expedido por la autoridad competente del país exportador en el que se haga constar el cumplimiento de las normas generales.
 3. Además, se recomienda resultado negativo a la prueba de:
-SEPTICEMIA ENTERICA DEL BAGRE (Edwarsella Ictaluri)
+o SEPTICEMIA ENTERICA DEL BAGRE (Edwarsella Ictaluri)
 0301.99.00.23 Alevines de bagre
 1. Sólo se permite la importación de países o zonas libres de las siguientes enfermedades:
-ENFERMEDAD VIRAL DEL BAGRE DE CANAL (CCVD)
+o ENFERMEDAD VIRAL DEL BAGRE DE CANAL (CCVD)
 2. Los organismos deberán estar amparados por un certificado zoosanitario, expedido por la autoridad competente del país exportador, en el que se haga constar el cumplimiento de las normas generales.
 3. Además, se recomiendan resultados negativos a las pruebas de:
-ENFERMEDAD DE LA COLUMNARIS (Flexibacter spp.)
-TREMATODOS MONOGENEOS Y DIGENEOS
-SEPTICEMIA ENTERICA DEL BAGRE (Edwarsella ictaluri)
+o ENFERMEDAD DE LA COLUMNARIS (Flexibacter spp.)
+o TREMATODOS MONOGENEOS Y DIGENEOS
+o SEPTICEMIA ENTERICA DEL BAGRE (Edwarsella ictaluri)
 0301.99.00.24: Adultos de bagre:
 1. Sólo se permite la importación de países o zonas libres de las siguientes enfermedades:
-ENFERMEDAD VIRAL DEL BAGRE DE CANAL (CCVD)
+o ENFERMEDAD VIRAL DEL BAGRE DE CANAL (CCVD)
 2. Los organismos deberán estar amparados por un certificado zoosanitario, expedido por la autoridad competente del país exportador, en el que se haga constar el cumplimiento de las normas generales.
 3. Además, se recomiendan resultados negativos a las pruebas de:
-ENFERMEDAD DE LA COLUMNARIS (Flexibacter spp.)
-TREMATODOS MONOGENEOS Y DIGENEOS
-SEPTICEMIA ENTERICA DEL BAGRE (Edwarsella ictaluri)
+o ENFERMEDAD DE LA COLUMNARIS (Flexibacter spp.)
+o TREMATODOS MONOGENEOS Y DIGENEOS
+o SEPTICEMIA ENTERICA DEL BAGRE (Edwarsella ictaluri)
 0301.99.00.31: Alevines de Colossoma
 1. Los organismos deberán estar amparados por un certificado zoosanitario, expedido por la autoridad competente del país exportador, en el que se haga constar el cumplimiento de las normas generales.
 2. Además, se recomiendan resultados negativos a las pruebas de:
-ENFERMEDAD DE LA COLUMNARIS (Flexibacter spp.)
-saprolegniasis (Saprolegnia spp.)
-TREMATODOS MONOGENEOS Y DIGENEOS
+o ENFERMEDAD DE LA COLUMNARIS (Flexibacter spp.)
+o saprolegniasis (Saprolegnia spp.)
+o TREMATODOS MONOGENEOS Y DIGENEOS
 0306.23.11: Nauplios de camarones peneídos (Penaeus spp.)
 1. Sólo se permite la importación de países o zonas libres de las siguientes enfermedades:
-enfermedad de la mancha blanca (white spot disease)
-necrosis baculoviral de la GLÁNDULA intestinal (bmn)
-enfermedad de la cabeza amarilla (yellow head disease)
-REO-LIKE VIRUS (RLV.REO)
-RHABDOVIRUS (RPS)
-MONODON BACULOVIRUS (MBV)
+o enfermedad de la mancha blanca (white spot disease)
+o necrosis baculoviral de la GLÁNDULA intestinal (bmn)
+o enfermedad de la cabeza amarilla (yellow head disease)
+o REO-LIKE VIRUS (RLV.REO)
+o RHABDOVIRUS (RPS)
+o MONODON BACULOVIRUS (MBV)
 2. Los organismos deberán estar amparados por un certificado zoosanitario, expedido por la autoridad competente del país exportador, en el que se haga constar el cumplimiento de las normas generales.
 0306.23.21: Post-larvas de camarones peneídos (Penaeus spp.)
 1. Sólo se permite la importación de países o zonas libres de las siguientes enfermedades:
-enfermedad de la mancha blanca (white spot disease)
-necrosis baculoviral de la GLÁNDULA intestinal (bmn)
-enfermedad de la cabeza amarilla (yellow head disease)
-REO-LIKE VIRUS (RLV.REO)
-RHABDOVIRUS (RPS)
-MONODON BACULOVIRUS (MBV)
+o enfermedad de la mancha blanca (white spot disease)
+o necrosis baculoviral de la GLÁNDULA intestinal (bmn)
+o enfermedad de la cabeza amarilla (yellow head disease)
+o REO-LIKE VIRUS (RLV.REO)
+o RHABDOVIRUS (RPS)
+o MONODON BACULOVIRUS (MBV)
 2. Los organismos deberán estar amparados por un certificado zoosanitario, expedido por la autoridad competente del país exportador, en el que se haga constar el cumplimiento de las normas generales.
 3. Además, se recomiendan resultados negativos a las pruebas de:
-bacterias filamentosas (leucothrix mucor)
-necrósis hepodérmica y hematopoyética (IHHNV)
-necrósis hepatopancreática (NHP)
-baculovirus penaei (BP)
-HONGOS
+o bacterias filamentosas (leucothrix mucor)
+o necrósis hepodérmica y hematopoyética (IHHNV)
+o necrósis hepatopancreática (NHP)
+o baculovirus penaei (BP)
+o HONGOS
 0306.23.31: Camarones juveniles peneídos (Penaeus spp.)
 1. Sólo se permite la importación de países o zonas libres de las siguientes enfermedades:
-enfermedad de la mancha blanca (white spot disease)
-necrosis baculoviral de la GLÁNDULA intestinal (bmn)
-enfermedad de la cabeza amarilla (yellow head disease)
-RHABDOVIRUS (RPS)
-MONODON BACULOVIRUS (MBV)
+o enfermedad de la mancha blanca (white spot disease)
+o necrosis baculoviral de la GLÁNDULA intestinal (bmn)
+o enfermedad de la cabeza amarilla (yellow head disease)
+o RHABDOVIRUS (RPS)
+o MONODON BACULOVIRUS (MBV)
 2. Los organismos deberán estar amparados por un certificado zoosanitario, expedido por la autoridad competente del país exportador, en el que se haga constar el cumplimiento de las normas generales.
 3. Además se recomiendan resultados negativos a las pruebas de:
-bacterias filamentosas (leucothrix mucor)
-hongos
-baculovirus penaei (bp)
-necrósis hipodérmica y hematopoyética (ihhn)
-necrosis hepatopancréatica (nhp)
+o bacterias filamentosas (leucothrix mucor)
+o hongos
+o baculovirus penaei (bp)
+o necrósis hipodérmica y hematopoyética (ihhn)
+o necrosis hepatopancréatica (nhp)
 0306.23.41: Camarones peneídos (Penaeus spp.) para reproducción
 1. Sólo se permite la importación de países o zonas libres de las siguientes enfermedades:
-enfermedad de la mancha blanca (white spot disease)
-necrosis baculoviral de la GLÁNDULA intestinal (bmn)
-enfermedad de la cabeza amarilla (yellow head disease)
-Monodon baculovirus (mbv)
+o enfermedad de la mancha blanca (white spot disease)
+o necrosis baculoviral de la GLÁNDULA intestinal (bmn)
+o enfermedad de la cabeza amarilla (yellow head disease)
+o Monodon baculovirus (mbv)
 2. Los organismos deberán estar amparados por un certificado zoosanitario, expedido por la autoridad competente del país exportador, en el que se haga constar el cumplimiento de las normas generales.
 3. Además se recomiendan resultados negativos a las pruebas de:
-baculovirus penaei (bp)
-necrósis hepatopancreática (nhp)
-necrósis hipodérmica y hematopoyética (ihhn)
-hongos
-bacterias filamentosas (Leucothrix mucor)
+o baculovirus penaei (bp)
+o necrósis hepatopancreática (nhp)
+o necrósis hipodérmica y hematopoyética (ihhn)
+o hongos
+o bacterias filamentosas (Leucothrix mucor)
 0306.23.11.00: Camarones peneídos frescos, refrigerados o congelados
 1. Sólo se permite la importación de países o zonas libres de las siguientes enfermedades:
-enfermedad de la mancha blanca (white spot disease)
-necrosis baculoviral de la GLÁNDULA intestinal (bmn)
-enfermedad de la cabeza AMARILLA (YELLOW head disease)
-monodon baculovirus (mbv)
+o enfermedad de la mancha blanca (white spot disease)
+o necrosis baculoviral de la GLÁNDULA intestinal (bmn)
+o enfermedad de la cabeza AMARILLA (YELLOW head disease)
+o monodon baculovirus (mbv)
+o
 0306.23.51: Post-larvas de camarones (Macrobrachium spp.)
 1. Sólo se permite la importación de países o zonas libres de las siguientes enfermedades:
-enfermedad de la mancha blanca (white spot disease)
-IHHNV-LIKE
+o enfermedad de la mancha blanca (white spot disease)
+o IHHNV-LIKE
 2. Los organismos deberán estar amparados por un certificado zoosanitario, expedido por la autoridad competente del país exportador, en el que se haga constar el cumplimiento de las normas generales.
 3. Además, se recomiendan resultados negativos a las pruebas de:
-bacterias filamentosas (Leucothrix mucor)
-HONGOS
+o bacterias filamentosas (Leucothrix mucor)
+o HONGOS
 0306.23.61: Camarones juveniles (Macrobrachium spp.)
 1. Sólo se permite la importación de países o zonas libres de las siguientes enfermedades:
-enfermedad de la mancha blanca (white spot disease)
-ihhnv-like
+o enfermedad de la mancha blanca (white spot disease)
+o ihhnv-like
 2. Los organismos deberán estar amparados por un certificado zoosanitario, expedido por la autoridad competente del país exportador, en el que se haga constar el cumplimiento de las normas generales.
 3. Además, se recomiendan resultados negativos a las pruebas de:
-bacterias filamentosas (Leucothrix mucor)
-HONGOS
+o bacterias filamentosas (Leucothrix mucor)
+o HONGOS
 0306.23.71: Camarones (Macrobrachium spp.) para reproducción
 1. Sólo se permite la importación de países o zonas libres de las siguientes enfermedades:
-enfermedad de la mancha blanca (white spot disease)
-ihhnv-like
+o enfermedad de la mancha blanca (white spot disease)
+o ihhnv-like
 2. Los organismos deberán estar amparados por un certificado zoosanitario, expedido por la autoridad competente del país exportador, en el que se haga constar el cumplimiento de las normas generales.
 3. Además, se recomiendan resultados negativos a las pruebas de:
-bacterias filamentosas (Leucothrix mucor)
-HONGOS
+o bacterias filamentosas (Leucothrix mucor)
+o HONGOS
+o
 0306.23.94 Cistos, biomasa y hojuelas de Artemia spp.
 1. Sólo se permite la importación de animales y subproductos de zonas libres de enfermedades exóticas para la Región:
-ENFERMEDAD DE LA MANCHA BLANCA
+o ENFERMEDAD DE LA MANCHA BLANCA
 0307.10.10.01: Ostras juveniles (Crassostrea spp.)
 1. Sólo se permite la importación de países o zonas libres de las siguientes enfermedades:
-enfermedad deL VELO DEL OSTION (EVO)
-enfermedad VIRAL DE TIPO HERPES
-ENFERMEDAD VIRAL DE LAS BRANQUIAS POR IRIDOVIRUS.
-NECROSIS PANCREATICA INFECCIOSA (IPN)
-BONAMIOSIS (Bonamia spp.)
-MARTELIOSIS (Marteilia spp.)
-MICROCISTOCIS (Mikrocytos spp.)
-PERKINSOSIS (Perkinsus spp.)
+o enfermedad deL VELO DEL OSTION (EVO)
+o enfermedad VIRAL DE TIPO HERPES
+o ENFERMEDAD VIRAL DE LAS BRANQUIAS POR IRIDOVIRUS.
+o NECROSIS PANCREATICA INFECCIOSA (IPN)
+o BONAMIOSIS (Bonamia spp.)
+o MARTELIOSIS (Marteilia spp.)
+o MICROCISTOCIS (Mikrocytos spp.)
+o PERKINSOSIS (Perkinsus spp.)
 2. El producto o productos, deberán estar amparados por un certificado zoosanitario, expedido por la autoridad competente del país exportador, en el que se haga constar el cumplimiento de las normas generales.
 3. Además, se recomiendan resultados negativos a las pruebas de:
-HAPLOSPORIDIOSIS
-RICKETTSIAS
-ENFERMEDAD DE LA CONCHA CAUSADA POR HONGOS
+o HAPLOSPORIDIOSIS
+o RICKETTSIAS
+o ENFERMEDAD DE LA CONCHA CAUSADA POR HONGOS
 0307.10.10.02: Ostras (Crassostrea spp.) frescas o refrigeradas
 1. Sólo se permite la importación de países o zonas libres de las siguientes enfermedades:
 Para ostras refrigeradas:
-ENFERMEDAD DEL VELO DEL OSTION (EVO)
-ENFERMEDAD VIRAL DE TIPO HERPES
-ENFERMEDAD VIRAL DE LAS BRANQUIAS POR IRIDOVIRUS.
-NECROSIS PANCREATICA INFECCIOSA (IPN)
+o ENFERMEDAD DEL VELO DEL OSTION (EVO)
+o ENFERMEDAD VIRAL DE TIPO HERPES
+o ENFERMEDAD VIRAL DE LAS BRANQUIAS POR IRIDOVIRUS.
+o NECROSIS PANCREATICA INFECCIOSA (IPN)
 Para ostras frescas:
-ENFERMEDAD DEL VELO DEL OSTION (EVO)
-ENFERMEDAD VIRAL DE TIPO HERPES
-ENFERMEDAD VIRAL DE LAS BRANQUIAS POR IRIDOVIRUS.
-NECROSIS PANCREATICA INFECCIOSA (IPN)
-BONAMIOSIS (Bonamia spp.)
-MARTELIOSIS (Marteilia spp.)
-MICROCITOSIS (Mikrocytos spp.)
-PERKINSOSIS (Perkinsus spp.)
+o ENFERMEDAD DEL VELO DEL OSTION (EVO)
+o ENFERMEDAD VIRAL DE TIPO HERPES
+o ENFERMEDAD VIRAL DE LAS BRANQUIAS POR IRIDOVIRUS.
+o NECROSIS PANCREATICA INFECCIOSA (IPN)
+o BONAMIOSIS (Bonamia spp.)
+o MARTELIOSIS (Marteilia spp.)
+o MICROCITOSIS (Mikrocytos spp.)
+o PERKINSOSIS (Perkinsus spp.)
 2. El producto o productos, deberán estar amparados por un certificado zoosanitario, expedido por la autoridad competente del país exportador en el que se haga constar el cumplimiento de las Normas Generales.
 0307.31.00.01: Mitílidos (Mytilus spp., Perna spp., Anadara spp., Argopecten spp.)
 1. Sólo se permite la importación de países o zonas libres de las siguientes enfermedades:
-VIRUS DE LA NECROSIS PANCREATICA INFECCIOSA (IPN)
+o VIRUS DE LA NECROSIS PANCREATICA INFECCIOSA (IPN)
 2. Los organismos deberán estar amparados por un certificado zoosanitario, expedido por la autoridad competente del país exportador, en el que se haga constar el cumplimiento de las normas generales.
 3. Además, se recomiendan resultados negativos a las pruebas de:
-hongos
-enfermedad de malpeque bay
-Nematopsis sp.
-Haplosporidium sp.
-Marteilia sp.
+o hongos
+o enfermedad de malpeque bay
+o Nematopsis sp.
+o Haplosporidium sp.
+o Marteilia sp.
 Modelo de Certificado Nº 1
 CERTIFICADO ZOOSANITARIO INTERNACIONAL PARA PECES VIVOS Y SUS GAMETOS
-IDENTIFICACIÓN
+I. IDENTIFICACIÓN
 | Poblaciones de cultivo | | Poblaciones naturales
 | Peces | | Semen | | Huevos sin fecundar
 | Huevos fecundados | | Larvas
@@ -1939,15 +1447,15 @@ Nombre común: ____________________________________
 3. Peso total del embarque (kg): __________________________
 4. Número: __________________________________________
 II. ORIGEN
-País:______________________________________________
-Zona: _____________________________________________
-Establecimiento de acuicultura:
+1. País:______________________________________________
+2. Zona: _____________________________________________
+3. Establecimiento de acuicultura:
 Nombre: __________________________________________
 Dirección: _________________________________________
 III. DESTINO
-País:______________________________________________
-Zona: _____________________________________________
-Establecimiento de acuicultura:
+1. País:______________________________________________
+2. Zona: _____________________________________________
+3. Establecimiento de acuicultura:
 Nombre: __________________________________________
 Dirección: _________________________________________
 Tipo e identificación del medio de transporte: _____________
@@ -1969,15 +1477,15 @@ Nombre común: ____________________________________
 3. Peso total del embarque (kg): __________________________
 4. Número: __________________________________________
 II. ORIGEN
-País:______________________________________________
-Zona: _____________________________________________
-Establecimiento de acuicultura:
+1. País:______________________________________________
+2. Zona: _____________________________________________
+3. Establecimiento de acuicultura:
 Nombre: __________________________________________
 Dirección: ____________________________________________
 III. DESTINO
-País:______________________________________________
-Zona: _____________________________________________
-Establecimiento de acuicultura:
+1. País:______________________________________________
+2. Zona: _____________________________________________
+3. Establecimiento de acuicultura:
 Nombre: __________________________________________
 Dirección: ____________________________________________
 4. Tipo e identificación del medio de transporte: _____________
@@ -1999,15 +1507,15 @@ Nombre común: ____________________________________
 3. Peso total del embarque (kg): __________________________
 4. Número: __________________________________________
 II. ORIGEN
-País:______________________________________________
-Zona: _____________________________________________
-Establecimiento de acuicultura:
+1. País:______________________________________________
+2. Zona: _____________________________________________
+3. Establecimiento de acuicultura:
 Nombre: __________________________________________
 Dirección: _________________________________________
 III. DESTINO
-País:______________________________________________
-Zona: _____________________________________________
-Establecimiento de acuicultura:
+1. País:______________________________________________
+2. Zona: _____________________________________________
+3. Establecimiento de acuicultura:
 Nombre: __________________________________________
 Dirección: ____________________________________________
 4. Tipo e identificación del medio de transporte: _____________
@@ -2060,50 +1568,50 @@ Fracción Arancelaria-Zoosanitaria
 0101D EQUINOS PARA REPRODUCCIÓN
 0101E EQUINOS PARA TRABAJO
 Sólo se permite la importación de países o zonas libres de las siguientes enfermedades:
-PESTE EQUINA
-ENCEFALITIS JAPONESA
-VIRUELA EQUINA
-ARTERITIS VIRAL EQUINA
-METRITIS CONTAGIOSA
-LINFANGITIS EPIZOOTICA
-LINFANGITIS ULCEROSA EQUINA
-MUERMO
-EXANTEMA GENITAL
-DURINA
-SURRA
+o PESTE EQUINA
+o ENCEFALITIS JAPONESA
+o VIRUELA EQUINA
+o ARTERITIS VIRAL EQUINA
+o METRITIS CONTAGIOSA
+o LINFANGITIS EPIZOOTICA
+o LINFANGITIS ULCEROSA EQUINA
+o MUERMO
+o EXANTEMA GENITAL
+o DURINA
+o SURRA
 En caso de países afectados por una enfermedad exótica o emergente, las Administraciones Veterinarias podrán tomar una decisión de aceptación o rechazo con base a un análisis de riesgo. El o los equinos, deberán estar amparados por un Certificado Zoosanitario, expedido por la Autoridad de Salud Animal del país exportador, en el que se haga constar el cumplimiento de los siguientes requisitos:
 Que:
-por lo menos durante los 60 días previos al embarque del animal o de los animales, éste o éstos, han permanecido en el país de origen;
-en caso de haber estado, en uno o varios países diferentes al país de origen, durante los 60 días previos al embarque, estos cuentan con un Certificado Zoosanitario de Exportación, emitido por la Autoridad de Salud Animal de cada uno de los países donde el animal o los animales hayan estado durante dicho lapso y que en esos certificados, se señala el tiempo de permanencia en cada uno de ellos, durante los 60 días que le precedieron a la estancia del animal o de los animales en el país de origen;
-fueron tratados contra ENDO Y ECTOPARÁSITOS;
-han sido inspeccionados en el momento del embarque en el punto de salida del país, por un Médico Veterinario Oficial del país exportador, no mostrando
+1. por lo menos durante los 60 días previos al embarque del animal o de los animales, éste o éstos, han permanecido en el país de origen;
+2. en caso de haber estado, en uno o varios países diferentes al país de origen, durante los 60 días previos al embarque, estos cuentan con un Certificado Zoosanitario de Exportación, emitido por la Autoridad de Salud Animal de cada uno de los países donde el animal o los animales hayan estado durante dicho lapso y que en esos certificados, se señala el tiempo de permanencia en cada uno de ellos, durante los 60 días que le precedieron a la estancia del animal o de los animales en el país de origen;
+3. fueron tratados contra ENDO Y ECTOPARÁSITOS;
+4. han sido inspeccionados en el momento del embarque en el punto de salida del país, por un Médico Veterinario Oficial del país exportador, no mostrando
 TUMORACIONES, HERIDAS FRESCAS O EN PROCESO DE CICATRIZACIÓN, NI SIGNO ALGUNO DE ENFERMEDAD INFECTO CONTAGIOSA O TRANSMISIBLE, O PRESENCIA DE ECTOPARÁSITOS;
-los equinos procedentes de países considerados infestados de Gusano Barrenador (Cochliomyia hominivorax), al momento de la salida de la explotación fueron inspeccionados por un Médico Veterinario Oficial o Acreditado, no presentando heridas infestadas, ni huevos o larvas de Gusano Barrenador;
-los equinos al momento de entrar en la estación de cuarentena fueron inspeccionados por un Médico Veterinario Oficial o Acreditado y no se encontraron heridas infestadas y si las hubiesen, estas fueron sometidas a un tratamiento preventivo con un producto oficialmente autorizado;
-bajo la supervisión de un Médico Veterinario Oficial o Acreditado, antes del embarque, los equinos fueron tratados con un producto oficialmente autorizado por el país importador y el país exportador, para el control del Gusano Barrenador;
-el vehículo o los vehículos de transporte, local e internacional, fueron lavados y desinfectados previamente al embarque del equino o los equinos, utilizando productos autorizados por el país exportador. El avión, buque o cualquier otro medio utilizado en el transporte internacional, no tiene previsto el trasbordo de los animales, en ningún país cuarentenado.
-en el caso de que el equino o los equinos, sean transportados por vía marítima, se requerirá que la nave sea desinsectada con un producto internacionalmente aprobado, en aguas internacionales, previo a su arribo al puerto de destino; no se permitirá el ingreso de pasturas, concentrados, camas que acompañen al animal o los animales, mismas que deberán ser destruidas en el punto de ingreso indicado por las autoridades de Salud Animal del país importador.
-En el caso de embalajes, aperos ropas y otros equipos, éstos deberán ser desinfectados; cuando el o los equinos proceden de países aftosos, se solicitará previo a la fecha de embarque la eliminación de las herraduras;
-en aquellos casos en que la Autoridad de Salud Animal del Ministerio de Agricultura y Ganadería considere necesario, el o los equinos, deberán ser sometidos a baño de aspersión o inmersión, en la estación de cuarentena de ingreso al país en transito o importador, utilizando productos autorizados y específicos de acuerdo a la enfermedad que se previene;
-El animal o los animales, a su llegada al país, serán sujetos, a un período de cuarentena bajo supervisión oficial, período durante el cual podrán ser sometidos a pruebas complementarias;
-en algunos casos los países importadores podrán solicitar inmunizaciones previas al embarque de los equinos.
+5. los equinos procedentes de países considerados infestados de Gusano Barrenador (Cochliomyia hominivorax), al momento de la salida de la explotación fueron inspeccionados por un Médico Veterinario Oficial o Acreditado, no presentando heridas infestadas, ni huevos o larvas de Gusano Barrenador;
+6. los equinos al momento de entrar en la estación de cuarentena fueron inspeccionados por un Médico Veterinario Oficial o Acreditado y no se encontraron heridas infestadas y si las hubiesen, estas fueron sometidas a un tratamiento preventivo con un producto oficialmente autorizado;
+7. bajo la supervisión de un Médico Veterinario Oficial o Acreditado, antes del embarque, los equinos fueron tratados con un producto oficialmente autorizado por el país importador y el país exportador, para el control del Gusano Barrenador;
+8. el vehículo o los vehículos de transporte, local e internacional, fueron lavados y desinfectados previamente al embarque del equino o los equinos, utilizando productos autorizados por el país exportador. El avión, buque o cualquier otro medio utilizado en el transporte internacional, no tiene previsto el trasbordo de los animales, en ningún país cuarentenado.
+9. en el caso de que el equino o los equinos, sean transportados por vía marítima, se requerirá que la nave sea desinsectada con un producto internacionalmente aprobado, en aguas internacionales, previo a su arribo al puerto de destino; no se permitirá el ingreso de pasturas, concentrados, camas que acompañen al animal o los animales, mismas que deberán ser destruidas en el punto de ingreso indicado por las autoridades de Salud Animal del país importador.
+10. En el caso de embalajes, aperos ropas y otros equipos, éstos deberán ser desinfectados; cuando el o los equinos proceden de países aftosos, se solicitará previo a la fecha de embarque la eliminación de las herraduras;
+11. en aquellos casos en que la Autoridad de Salud Animal del Ministerio de Agricultura y Ganadería considere necesario, el o los equinos, deberán ser sometidos a baño de aspersión o inmersión, en la estación de cuarentena de ingreso al país en transito o importador, utilizando productos autorizados y específicos de acuerdo a la enfermedad que se previene;
+12. El animal o los animales, a su llegada al país, serán sujetos, a un período de cuarentena bajo supervisión oficial, período durante el cual podrán ser sometidos a pruebas complementarias;
+13. en algunos casos los países importadores podrán solicitar inmunizaciones previas al embarque de los equinos.
 RECOMENDACIONES SANITARIAS ADICIONALES:
-permanecieron, durante los 60 días anteriores al embarque en instalación o instalaciones de origen y/o de procedencia, en la(s) que no se comprobó oficialmente durante ese período ningún caso de:
+1. permanecieron, durante los 60 días anteriores al embarque en instalación o instalaciones de origen y/o de procedencia, en la(s) que no se comprobó oficialmente durante ese período ningún caso de:
 a) RINONEUMONÍA EQUINA
 b) ANEMIA INFECCIOSA EQUINA
-fueron identificados individualmente y permanecieron en observación en la instalación de origen o procedencia, en condiciones de aislamiento de otros animales no sujetos a exportación y bajo supervisión oficial, durante el período posterior a la toma de muestras señalado en el numeral 3, de estos requisitos y hasta su embarque;
-que la instalación o instalaciones de origen de los equinos, no han estado sujetas, a restricciones de tipo sanitaria y los equinos para exportación presentaron resultados negativos a las pruebas de:
-ANEMIA INFECCIOSA EQUINA, inmunodifusión en gel de agar, <prueba de Coggins >
-BRUCELOSIS, aglutinación rápida en placa, mediante antígeno BAPA o ROSA de BENGALA, con tampón modificado
-PIROPLASMOSIS, frotis sanguíneo
+2. fueron identificados individualmente y permanecieron en observación en la instalación de origen o procedencia, en condiciones de aislamiento de otros animales no sujetos a exportación y bajo supervisión oficial, durante el período posterior a la toma de muestras señalado en el numeral 3, de estos requisitos y hasta su embarque;
+3. que la instalación o instalaciones de origen de los equinos, no han estado sujetas, a restricciones de tipo sanitaria y los equinos para exportación presentaron resultados negativos a las pruebas de:
+a. ANEMIA INFECCIOSA EQUINA, inmunodifusión en gel de agar, <prueba de Coggins >
+b. BRUCELOSIS, aglutinación rápida en placa, mediante antígeno BAPA o ROSA de BENGALA, con tampón modificado
+c. PIROPLASMOSIS, frotis sanguíneo
 realizadas en el animal o los animales o en muestras obtenidas bajo supervisión oficial, dentro de los 30 días previos a la fecha de embarque;
-en los 60 días previos a la fecha de embarque recibieron el o los inmunógenos siguientes:
-ENCEFALOMIELITIS EQUINA DEL ESTE
-ENCEFALOMIELITIS EQUINA DEL OESTE
-ENCEFALOMIELITIS EQUINA VENEZOLANA, (cepa tc 83)
-INFLUENZA EQUINA ( serotipos A/equi 1 y A equi 2)
+4. en los 60 días previos a la fecha de embarque recibieron el o los inmunógenos siguientes:
+a. ENCEFALOMIELITIS EQUINA DEL ESTE
+b. ENCEFALOMIELITIS EQUINA DEL OESTE
+c. ENCEFALOMIELITIS EQUINA VENEZOLANA, (cepa tc 83)
+d. INFLUENZA EQUINA ( serotipos A/equi 1 y A equi 2)
 y que pernoctaron en una estación de cuarentena en el país de origen bajo control Médico Veterinario Oficial o Acreditado, durante las tres semanas. anteriores al embarque y permanecieron clínicamente sanos durante dicho período;
-fueron tratados contra LEPTOSPIROSIS, dentro de las últimas 72 horas del período de observación y aislamiento, aplicándoles estreptomicina a razón de 25 mg /kg de peso vivo e indicándose, marca y lote del producto utilizado.
+5. fueron tratados contra LEPTOSPIROSIS, dentro de las últimas 72 horas del período de observación y aislamiento, aplicándoles estreptomicina a razón de 25 mg /kg de peso vivo e indicándose, marca y lote del producto utilizado.
 LISTADO DE REQUISITOS ZOOSANITARIOS
 País de origen:
 País de destino:
@@ -2124,23 +1632,23 @@ SURRA
 En caso de países afectados por una enfermedad exótica o emergente, las Administraciones Veterinarias podrán tomar una decisión de aceptación o rechazo con base a un análisis de riesgo.
 El o los equinos, deberán estar amparados por un Certificado Zoosanitario, expedido por la Autoridad de Salud Animal país exportador en el que se haga constar el cumplimiento de los siguientes requisitos:
 Que:
-han nacido o han sido criados en el país de origen; si los equinos proceden de otros países, que al menos hayan permanecido en el país de origen 60 días previos a la fecha de embarque;
-en los 60 días previos a la fecha de embarque recibieron inmunógenos contra:
-ENCEFALOMIELITIS EQUINA DEL ESTE
-ENCEFALOMIELITIS EQUINA DE OESTE
-ENCEFALOMIELITIS EQUINA VENEZOLANA
+1. han nacido o han sido criados en el país de origen; si los equinos proceden de otros países, que al menos hayan permanecido en el país de origen 60 días previos a la fecha de embarque;
+2. en los 60 días previos a la fecha de embarque recibieron inmunógenos contra:
+a. ENCEFALOMIELITIS EQUINA DEL ESTE
+b. ENCEFALOMIELITIS EQUINA DE OESTE
+c. ENCEFALOMIELITIS EQUINA VENEZOLANA
 y que permanecieron en una estación de cuarentena en el país de origen bajo control veterinario oficial durante las tres semanas anteriores al embarque y permanecieron clínicamente sanos durante dicho período.
-el animal o los animales fueron marcados con hierro candente en el masetero izquierdo, con la letra "M "", con un tamaño de 3 cm. de ancho por 5 cm. de alto;
-fueron tratados durante el período de observación y aislamiento, con productos autorizados en el país de origen contra ENDO Y ECTOPARÁSITOS, indicándose fecha de tratamiento, marca y lote de producto utilizado;
-no recibieron ningún inmunógeno en los 15 días previos a la fecha de embarque;
-han sido inspeccionados en el momento de embarque, por un Médico Veterinario Oficial del país exportador, no mostrando
+1. el animal o los animales fueron marcados con hierro candente en el masetero izquierdo, con la letra "M "", con un tamaño de 3 cm. de ancho por 5 cm. de alto;
+2. fueron tratados durante el período de observación y aislamiento, con productos autorizados en el país de origen contra ENDO Y ECTOPARÁSITOS, indicándose fecha de tratamiento, marca y lote de producto utilizado;
+3. no recibieron ningún inmunógeno en los 15 días previos a la fecha de embarque;
+4. han sido inspeccionados en el momento de embarque, por un Médico Veterinario Oficial del país exportador, no mostrando
 TUMORACIONES, HERIDAS FRESCAS O EN PROCESO DE CICATRIZACIÓN, NI SIGNO ALGUNO DE ENFERMEDAD INFECTO-CONTAGIOSA O TRANSMISIBLE O PRESENCIA DE ECTOPARÁSITOS;
-el vehículo o los vehículos de transporte, local e internacional, fueron lavados y desinfectados previamente al embarque del animal o de los animales, utilizando productos autorizados por el país exportador. El avión, buque o cualquier otro medio utilizado en el transporte internacional, no tiene previsto el trasbordo de los animales, en ningún país cuarentenado;
-el vehículo o los vehículos automotores de transporte terrestre internacional, y/o las cajas o embalajes utilizados con este fin, fueron precintados (marchamados, flejados) por un Médico Veterinario Oficial del país de origen, al momento del embarque.
-En el caso de que el animal o los animales sean transportados por vía marítima, se requerirá que la nave sea desinsectada con un producto internacionalmente aprobado, en aguas internacionales, previo a su arribo al puerto, del país importador.
-No se permitirá el ingreso de pasturas, concentrados, camas o basuras que acompañen al animal o los animales, mismas que serán destruidas en el punto de ingreso indicado por la Autoridad de Salud Animal del país importador. En el caso de embalajes, ropas y otros equipos, estos deberán ser desinfectados; cuando los equinos proceden de un país aftoso, se solicitará previa a la fecha de embarque la eliminación de las herraduras.
-En aquellos casos en que la Autoridad de Salud Animal del Ministerio de Agricultura y Ganadería, considere necesario el animal o los animales deberán ser sometidos a baño de aspersión o inmersión, en la estación cuarentenaria de ingreso al país de tránsito o importador, utilizando productos específicos autorizados de acuerdo con la enfermedad que se previene.
-El animal o los animales deberán ser transportados directamente al rastro o matadero autorizado, en vehículos precintados (marchamados, flejados), de acuerdo a lo señalado en estos requisitos. Dichos sellos únicamente podrán ser retirados por un Médico Veterinario Oficial del país de origen, tránsito o del país importador, si esto fuera necesario, debido a paradas de descanso o por cruces fronterizos. Este mismo personal, será el único autorizado para colocarlos nuevamente o eliminarlos definitivamente en el rastro o matadero de destino autorizado, siendo igualmente este personal, el único autorizado para anotar al reverso del certificado zoosanitario de exportación, en cada caso, la explicación del motivo, por el que fueron retirados y recolocados los sellos, anotando lugar, fecha, nombre y apellido del Médico Veterinario Oficial y su cargo.
+5. el vehículo o los vehículos de transporte, local e internacional, fueron lavados y desinfectados previamente al embarque del animal o de los animales, utilizando productos autorizados por el país exportador. El avión, buque o cualquier otro medio utilizado en el transporte internacional, no tiene previsto el trasbordo de los animales, en ningún país cuarentenado;
+6. el vehículo o los vehículos automotores de transporte terrestre internacional, y/o las cajas o embalajes utilizados con este fin, fueron precintados (marchamados, flejados) por un Médico Veterinario Oficial del país de origen, al momento del embarque.
+7. En el caso de que el animal o los animales sean transportados por vía marítima, se requerirá que la nave sea desinsectada con un producto internacionalmente aprobado, en aguas internacionales, previo a su arribo al puerto, del país importador.
+8. No se permitirá el ingreso de pasturas, concentrados, camas o basuras que acompañen al animal o los animales, mismas que serán destruidas en el punto de ingreso indicado por la Autoridad de Salud Animal del país importador. En el caso de embalajes, ropas y otros equipos, estos deberán ser desinfectados; cuando los equinos proceden de un país aftoso, se solicitará previa a la fecha de embarque la eliminación de las herraduras.
+9. En aquellos casos en que la Autoridad de Salud Animal del Ministerio de Agricultura y Ganadería, considere necesario el animal o los animales deberán ser sometidos a baño de aspersión o inmersión, en la estación cuarentenaria de ingreso al país de tránsito o importador, utilizando productos específicos autorizados de acuerdo con la enfermedad que se previene.
+10. El animal o los animales deberán ser transportados directamente al rastro o matadero autorizado, en vehículos precintados (marchamados, flejados), de acuerdo a lo señalado en estos requisitos. Dichos sellos únicamente podrán ser retirados por un Médico Veterinario Oficial del país de origen, tránsito o del país importador, si esto fuera necesario, debido a paradas de descanso o por cruces fronterizos. Este mismo personal, será el único autorizado para colocarlos nuevamente o eliminarlos definitivamente en el rastro o matadero de destino autorizado, siendo igualmente este personal, el único autorizado para anotar al reverso del certificado zoosanitario de exportación, en cada caso, la explicación del motivo, por el que fueron retirados y recolocados los sellos, anotando lugar, fecha, nombre y apellido del Médico Veterinario Oficial y su cargo.
 LISTADO DE REQUISITOS ZOOSANITARIOS
 País de origen:
 País de destino:
@@ -2151,27 +1659,27 @@ Fracción Arancelaria-Zoosanitaria
 02.06B DESPOJOS COMESTIBLES DE LAS ESPECIES CABALLAR, MULAR O ASNAL, FRESCOS, REFRIGERADOS O CONGELADOS
 02.10E CARNE SECA (DESHIDRATADA) DE LAS ESPECIES CABALLAR, ASNAL O MULAR.
 Sólo se permite la importación de países o zonas libres de las siguientes enfermedades:
-PESTE EQUINA
-ENCEFALITIS JAPONESA
-VIRUELA EQUINA
-ARTERITIS VIRAL EQUINA
-METRITIS CONTAGIOSA
-LINFANGITIS EPIZOOTICA
-LINFANGITIS ULCEROSA EQUINA
-MUERMO
-EXANTEMA GENITAL EQUINO
-DURINA
-SURRA
+o PESTE EQUINA
+o ENCEFALITIS JAPONESA
+o VIRUELA EQUINA
+o ARTERITIS VIRAL EQUINA
+o METRITIS CONTAGIOSA
+o LINFANGITIS EPIZOOTICA
+o LINFANGITIS ULCEROSA EQUINA
+o MUERMO
+o EXANTEMA GENITAL EQUINO
+o DURINA
+o SURRA
 En caso de países afectados por una enfermedad exótica o emergente, las Administraciones Veterinarias podrán tomar una decisión de aceptación o rechazo con base en un análisis de riesgo. El bien o los bienes, deberán estar amparados por un Certificado Zoosanitario, expedido por la Autoridad de Salud Animal del país exportador en el que se haga constar el cumplimiento de los siguientes requisitos:
 Que:
-proceden de equinos que han nacido o han sido criados en el país de origen: en el caso de que procedan de otros países, que al menos hayan permanecido 60 días, en el último país, antes de la fecha de embarque;
-el rastro o matadero donde fueron procesados los animales, de los que procede el producto, está oficialmente autorizado para la exportación de carne por el país exportador y aprobado por el país importador, tomando en consideración las normas del CODEX ALIMENTARIUS/FAO OMS, en lo que respecta a la inspección ante y postmortem, dictámenes e higiene de la carne fresca;
-el rastro o matadero cuenta con un Médico Veterinario Oficial o Acreditado por la Autoridad de Salud Animal del país exportador quien realiza la inspección ante y postmortem del animal o los animales de los que procede el producto o los productos.
-cuentan con Certificado Oficial de la Autoridad de Salud Animal, del país exportador, como aptos para consumo o uso en humanos y cumple con las exigencias legales del país importador en lo que concierne a las características organolépticas, determinación de aditivos, residuos tóxicos, análisis microbiológicos de acuerdo con lo especificado en el CODEX ALIMENTARIUS FAO OMS;
-las canales y medías canales se encuentran marcadas individualmente con sello oficial que identifica la inspección oficial y el rastro o matadero de origen, los productos (carnes deshuesadas o en cortes y molidas, carne sin deshuesar, despojos comestibles, carne seca) han sido empacados en envolturas especiales, o recipientes sellados a prueba de goteo o estoquinetes según sea el caso, o han sido acondicionados en envolturas de polietileno, autorizado para uso alimentario, en las que aparece claramente escrita la identificación del establecimiento donde fueron producidos, el número de autorización otorgado por el Ministerio de Agricultura y Ganadería del país exportador, además del número del lote y la fecha de elaboración y que fueron acondicionados para su transporte en contenedores o vehículos normales, isotérmicos o de termo refrigerador que garanticen la temperatura de conservación, refrigeración o congelación según el caso.
-en el caso de productos congelados el tiempo transcurrido entre su procesamiento y embarque, no rebasa los 6 meses;
-Dichos contenedores y vehículos termo refrigerados fueron previamente lavados y desinfectados, utilizando productos autorizados por el país exportador. Los contenedores y vehículos termo refrigerados, fueron precintados (marchamados, flejados) y sellados de manera que dichos sellos Sólo pueden ser retirados por las autoridades sanitarias respectivas, del país de tránsito o destino. En el caso de tránsito, este mismo personal, será el único autorizado para colocarlos nuevamente, anotando al reverso del certificado zoosanitario de exportación la explicación del motivo por el cual fueron retirados y recolocados los sellos, anotando lugar, fecha, nombre y apellido del Médico Veterinario y su cargo.
-En aquellos casos en que la Autoridad de Salud Animal, lo considere necesario, deberán tomarse las muestras requeridas por contenedor, para el análisis de las características organolépticas, determinación de aditivos, residuos tóxicos y para análisis microbiológico, de acuerdo con las normas del CODEX ALIMENTARIUS /FAO OMS.
+1. proceden de equinos que han nacido o han sido criados en el país de origen: en el caso de que procedan de otros países, que al menos hayan permanecido 60 días, en el último país, antes de la fecha de embarque;
+2. el rastro o matadero donde fueron procesados los animales, de los que procede el producto, está oficialmente autorizado para la exportación de carne por el país exportador y aprobado por el país importador, tomando en consideración las normas del CODEX ALIMENTARIUS/FAO OMS, en lo que respecta a la inspección ante y postmortem, dictámenes e higiene de la carne fresca;
+3. el rastro o matadero cuenta con un Médico Veterinario Oficial o Acreditado por la Autoridad de Salud Animal del país exportador quien realiza la inspección ante y postmortem del animal o los animales de los que procede el producto o los productos.
+4. cuentan con Certificado Oficial de la Autoridad de Salud Animal, del país exportador, como aptos para consumo o uso en humanos y cumple con las exigencias legales del país importador en lo que concierne a las características organolépticas, determinación de aditivos, residuos tóxicos, análisis microbiológicos de acuerdo con lo especificado en el CODEX ALIMENTARIUS FAO OMS;
+5. las canales y medías canales se encuentran marcadas individualmente con sello oficial que identifica la inspección oficial y el rastro o matadero de origen, los productos (carnes deshuesadas o en cortes y molidas, carne sin deshuesar, despojos comestibles, carne seca) han sido empacados en envolturas especiales, o recipientes sellados a prueba de goteo o estoquinetes según sea el caso, o han sido acondicionados en envolturas de polietileno, autorizado para uso alimentario, en las que aparece claramente escrita la identificación del establecimiento donde fueron producidos, el número de autorización otorgado por el Ministerio de Agricultura y Ganadería del país exportador, además del número del lote y la fecha de elaboración y que fueron acondicionados para su transporte en contenedores o vehículos normales, isotérmicos o de termo refrigerador que garanticen la temperatura de conservación, refrigeración o congelación según el caso.
+6. en el caso de productos congelados el tiempo transcurrido entre su procesamiento y embarque, no rebasa los 6 meses;
+7. Dichos contenedores y vehículos termo refrigerados fueron previamente lavados y desinfectados, utilizando productos autorizados por el país exportador. Los contenedores y vehículos termo refrigerados, fueron precintados (marchamados, flejados) y sellados de manera que dichos sellos Sólo pueden ser retirados por las autoridades sanitarias respectivas, del país de tránsito o destino. En el caso de tránsito, este mismo personal, será el único autorizado para colocarlos nuevamente, anotando al reverso del certificado zoosanitario de exportación la explicación del motivo por el cual fueron retirados y recolocados los sellos, anotando lugar, fecha, nombre y apellido del Médico Veterinario y su cargo.
+8. En aquellos casos en que la Autoridad de Salud Animal, lo considere necesario, deberán tomarse las muestras requeridas por contenedor, para el análisis de las características organolépticas, determinación de aditivos, residuos tóxicos y para análisis microbiológico, de acuerdo con las normas del CODEX ALIMENTARIUS /FAO OMS.
 LISTADO DE REQUISITOS ZOOSANITARIO
 País de origen:
 País de destino:
@@ -2179,96 +1687,96 @@ Fracción Arancelaria-Zoosanitaria
 05.03 CRIN Y SUS DESPERDICIOS, INCLUSO EN CAPAS CON SOPORTE O SIN EL
 El bien o los bienes, deberán estar amparados por un Certificado Zoosanitario, expedido por la autoridad de Salud Animal del país exportador, en el que se haga constar el cumplimiento de los siguientes requisitos:
 Que:
-proceden de animales sanos, nacidos o criados en el país de origen; en el caso de que procedan de otros países, que éstos tuvieron una permanencia no menor de 60 días en el último país;
-el producto o los productos fueron tratados en un establecimiento autorizado oficialmente por el país de origen, por inmersión en agua de ebullición por lo menos una hora, quedando libre de impurezas;
-han sido empacadas en cajas en las que aparece claramente escrita, la identificación del establecimiento donde fueron producidos. Los contenedores y los vehículos, fueron precintados (marchamados, flejados) y sellados por la Autoridad de Salud Animal del país de origen.
-los vehículos y contenedores fueron lavados y desinfectados previo al embarque, utilizando productos autorizados por el país exportador. Los contenedores fueron marchamados (flejados, precintados) y sellados de manera que dichos sellos, Sólo pueden ser retirados por las autoridades oficiales respectivas del país en tránsito o el país importador. En el caso de tránsito, este mismo personal, será el único autorizado para colocarlos nuevamente, debiendo anotar al reverso del certificado zoosanitario de exportación la explicación del motivo por el que fueron retirados, recolocar los sellos, anotando el lugar, fecha, nombre y apellido del Médico Veterinario Oficial y su cargo.
+1. proceden de animales sanos, nacidos o criados en el país de origen; en el caso de que procedan de otros países, que éstos tuvieron una permanencia no menor de 60 días en el último país;
+2. el producto o los productos fueron tratados en un establecimiento autorizado oficialmente por el país de origen, por inmersión en agua de ebullición por lo menos una hora, quedando libre de impurezas;
+3. han sido empacadas en cajas en las que aparece claramente escrita, la identificación del establecimiento donde fueron producidos. Los contenedores y los vehículos, fueron precintados (marchamados, flejados) y sellados por la Autoridad de Salud Animal del país de origen.
+4. los vehículos y contenedores fueron lavados y desinfectados previo al embarque, utilizando productos autorizados por el país exportador. Los contenedores fueron marchamados (flejados, precintados) y sellados de manera que dichos sellos, Sólo pueden ser retirados por las autoridades oficiales respectivas del país en tránsito o el país importador. En el caso de tránsito, este mismo personal, será el único autorizado para colocarlos nuevamente, debiendo anotar al reverso del certificado zoosanitario de exportación la explicación del motivo por el que fueron retirados, recolocar los sellos, anotando el lugar, fecha, nombre y apellido del Médico Veterinario Oficial y su cargo.
 LISTADO DE REQUISITOS ZOOSANITARIOS
 País de origen:
 País de destino:
 Fracción Arancelario-Zoosantaria
 05.07. A CASCOS EN BRUTO O SIMPLEMENTE PREPARADOS, PERO SIN ORTAR EN FORMA DETERMINADA; POLVO Y DESPERDICIOS DE ESTA MATERIA, CUANDO PROCEDAN DE LA ESPECIE CABALLAR, ASNAL O MULAR
 Sólo se permite la importación de países o zonas libres de las siguientes enfermedades:
-PESTE EQUINA
-ENCEFALITIS JAPONESA
-VIRUELA EQUINA
-ARTERITIS VIRAL EQUINA
-METRITIS CONTAGIOSA
-LINFANGITIS EPIZOOTICA
-LINFANGITIS ULCEROSA EQUINA
-MUERMO
-EXANTEMA GENITAL EQUINA
-DURINA
-SURRA
+o PESTE EQUINA
+o ENCEFALITIS JAPONESA
+o VIRUELA EQUINA
+o ARTERITIS VIRAL EQUINA
+o METRITIS CONTAGIOSA
+o LINFANGITIS EPIZOOTICA
+o LINFANGITIS ULCEROSA EQUINA
+o MUERMO
+o EXANTEMA GENITAL EQUINA
+o DURINA
+o SURRA
 En caso de países afectados por una enfermedad exótica o emergente, las Administraciones Veterinarias podrán tomar una decisión de aceptación o rechazo con base en un análisis de riesgo. El bien o los bienes, deberán estar amparados por un Certificado Zoosanitario, expedido por la Autoridad de Salud Animal del país exportador en el que se haga constar el cumplimiento de los siguientes requisitos:
 Que:
-Proceden de animales sanos, nacidos o criados en el país de origen; en el caso de equinos importados de otros países, que al menos han permanecido 60 días en el país de origen, antes de la fecha de embarque;
-que el rastro o matadero donde los equinos fueron faenados tiene inspección veterinaria oficial o acreditada y está autorizado para la exportación de carne por el país exportador y por el país importador, de acuerdo con las normas establecidas en el CODEX ALIMENTARIUS FAO OMS.
-están limpios y libres de materia orgánica y que además, fueron tratados con un producto desinfectante autorizado por el país de origen;
-han sido empacados en cajas en las que aparece claramente escrita, la identificación del establecimiento donde fueron producidos. Los contenedores y los vehículos, fueron precintados (marchamados, flejados) y sellados por la Autoridad de Salud Animal del país de origen.
+1. Proceden de animales sanos, nacidos o criados en el país de origen; en el caso de equinos importados de otros países, que al menos han permanecido 60 días en el país de origen, antes de la fecha de embarque;
+2. que el rastro o matadero donde los equinos fueron faenados tiene inspección veterinaria oficial o acreditada y está autorizado para la exportación de carne por el país exportador y por el país importador, de acuerdo con las normas establecidas en el CODEX ALIMENTARIUS FAO OMS.
+3. están limpios y libres de materia orgánica y que además, fueron tratados con un producto desinfectante autorizado por el país de origen;
+4. han sido empacados en cajas en las que aparece claramente escrita, la identificación del establecimiento donde fueron producidos. Los contenedores y los vehículos, fueron precintados (marchamados, flejados) y sellados por la Autoridad de Salud Animal del país de origen.
 LISTADO DE REQUISITOS ZOOSANITARIOS
 País de origen:
 País de destino:
 Fracción Arancelaria-Zoosanitaria
 05.10 C ÁMBAR GRIS, CASTORIO, ALGALIA, ALMIZCLE, BILIS INCLUSO DESECADAS, GLÁNDULAS Y SUSTANCIAS DE ORIGEN ANIMAL, UTILIZADA PARA LA PREPARACIÓN DE PRODUCTOS FARMACÉUTICOS, FRESCAS REFRIGERADAS, CONGELADAS Y CONSERVADAS PROVISIONALMENTE DE OTRA FORMA, CUANDO PROCEDAN DE LAS ESPECIES CABALLAR, ASNAL O MULAR.
 Sólo se permite la importación de países o zonas libres de las siguientes enfermedades:
-PESTE EQUINA
-ENCEFALITIS JAPONESA
-VIRUELA EQUINA
-ARTERITIS VIRAL EQUINA
-METRITIS CONTAGIOSA
-LINFANGITIS EPIZOOTICA
-LINFANGITIS ULCEROSA EQUINA
-MUERMO
-EXANTEMA GENITAL EQUINO
-DURINA
-SURRA
+o PESTE EQUINA
+o ENCEFALITIS JAPONESA
+o VIRUELA EQUINA
+o ARTERITIS VIRAL EQUINA
+o METRITIS CONTAGIOSA
+o LINFANGITIS EPIZOOTICA
+o LINFANGITIS ULCEROSA EQUINA
+o MUERMO
+o EXANTEMA GENITAL EQUINO
+o DURINA
+o SURRA
 En caso de países afectados por una enfermedad exótica o emergente, las Administraciones Veterinarias podrán tomar una decisión de aceptación o rechazo con base en un análisis de riesgo. El bien o los bienes, deberán estar amparados por un Certificado Zoosanitario, expedido por la Autoridad de Salud Animal del país exportador, en el que se haga constar el cumplimiento de los siguientes requisitos:
 Que:
-proceden de animales sanos que han nacido o han sido criados en el país de origen; en caso de proceder de otros países que al menos hayan permanecido en el último país 60 días previos a la fecha de embarque;
-en la instalación o instalaciones de donde proceden los equinos, no se han comprobado, durante los 90 días previos a la fecha de embarque, no han estado sujetas a restricciones cuarentenarias de carácter oficial.
-el rastro o matadero donde los equinos fueron faenados, tienen inspección veterinaria oficial o acreditada y está oficialmente autorizado para la exportación de carne por el país exportador y por el importador, con base a las normas establecidas en el CODEX ALIMENTARIUS FAO OMS.
-cuentan con certificado oficial de la autoridad competente del país exportador, como aptos para consumo o uso en humanos y cumplen con la legislación nacional del país importador con relación a las características organolépticas, determinación de aditivos, residuos tóxicos, análisis microbiológico, de acuerdo con las normas establecidas en el CODEX ALIMENTARIUS/ FAO OMS.
-han sido empacados en cajas especiales o recipientes sellados a prueba de goteo o estoquinetes o en su caso han sido acondicionados en envolturas de polietileno, autorizado para uso alimentario, en las que aparece claramente escrita, la identificación del establecimiento donde fueron producidos, el número de autorización otorgado por el Ministerio de Agricultura y Ganadería del país exportador, además del número del lote y la fecha de elaboración y que fueron acondicionados para su transporte en contenedores o vehículos normales, isotérmicos o de tipo termo refrigerador que garanticen la temperatura de conservación, refrigeración o congelación según sea el caso.
-en el caso de productos congelados el tiempo transcurrido entre su procesamiento y embarque, no rebasa los 6 meses;
-Dichos contenedores y vehículos termorefrigerados fueron previamente lavados y desinfectados utilizando productos autorizados por el país de origen. Los contenedores y los vehículos termorefrigerados fueron precintados (marchamados, flejados) y sellados de manera que dichos sellos Sólo sólo pueden ser retirados por las autoridades sanitarias respectivas, del país de tránsito o destino. En caso de tránsito, este mismo personal será el único autorizado para colocarlos nuevamente y para anotar al reverso del certificado zoosanitario de exportación la explicación del motivo, por el que fueron retirados y recolocados los sellos, anotando lugar, fecha, nombre y apellido del Médico Veterinario Oficial y su cargo.
-En aquellos casos en que la Autoridad de Salud Animal del Ministerio de Agricultura y Ganadería considere necesario, deberán tomarse las muestras requeridas, para el análisis de las características organolépticas, determinación de aditivos, residuos tóxicos y para análisis microbiológico de acuerdo con las normas establecidas en el CODEX ALIMENTARIUS/FAO OMS.
+1. proceden de animales sanos que han nacido o han sido criados en el país de origen; en caso de proceder de otros países que al menos hayan permanecido en el último país 60 días previos a la fecha de embarque;
+2. en la instalación o instalaciones de donde proceden los equinos, no se han comprobado, durante los 90 días previos a la fecha de embarque, no han estado sujetas a restricciones cuarentenarias de carácter oficial.
+3. el rastro o matadero donde los equinos fueron faenados, tienen inspección veterinaria oficial o acreditada y está oficialmente autorizado para la exportación de carne por el país exportador y por el importador, con base a las normas establecidas en el CODEX ALIMENTARIUS FAO OMS.
+4. cuentan con certificado oficial de la autoridad competente del país exportador, como aptos para consumo o uso en humanos y cumplen con la legislación nacional del país importador con relación a las características organolépticas, determinación de aditivos, residuos tóxicos, análisis microbiológico, de acuerdo con las normas establecidas en el CODEX ALIMENTARIUS/ FAO OMS.
+5. han sido empacados en cajas especiales o recipientes sellados a prueba de goteo o estoquinetes o en su caso han sido acondicionados en envolturas de polietileno, autorizado para uso alimentario, en las que aparece claramente escrita, la identificación del establecimiento donde fueron producidos, el número de autorización otorgado por el Ministerio de Agricultura y Ganadería del país exportador, además del número del lote y la fecha de elaboración y que fueron acondicionados para su transporte en contenedores o vehículos normales, isotérmicos o de tipo termo refrigerador que garanticen la temperatura de conservación, refrigeración o congelación según sea el caso.
+6. en el caso de productos congelados el tiempo transcurrido entre su procesamiento y embarque, no rebasa los 6 meses;
+7. Dichos contenedores y vehículos termorefrigerados fueron previamente lavados y desinfectados utilizando productos autorizados por el país de origen. Los contenedores y los vehículos termorefrigerados fueron precintados (marchamados, flejados) y sellados de manera que dichos sellos Sólo sólo pueden ser retirados por las autoridades sanitarias respectivas, del país de tránsito o destino. En caso de tránsito, este mismo personal será el único autorizado para colocarlos nuevamente y para anotar al reverso del certificado zoosanitario de exportación la explicación del motivo, por el que fueron retirados y recolocados los sellos, anotando lugar, fecha, nombre y apellido del Médico Veterinario Oficial y su cargo.
+8. En aquellos casos en que la Autoridad de Salud Animal del Ministerio de Agricultura y Ganadería considere necesario, deberán tomarse las muestras requeridas, para el análisis de las características organolépticas, determinación de aditivos, residuos tóxicos y para análisis microbiológico de acuerdo con las normas establecidas en el CODEX ALIMENTARIUS/FAO OMS.
 LISTADO DE REQUISITOS ZOOSANITARIOS
 País de origen:
 País de destino:
 Fracción Arancelaria-Zoosanitaria
 05.11C SEMEN DE EQUINO
 Sólo se permite la importación de países o zonas libres de las siguientes enfermedades:
-PESTE EQUINA
-ENCEFALITIS JAPONESA
-VIRUELA EQUINA
-ARTERITIS VIRAL EQUINA
-METRITIS CONTAGIOSA
-LINFANGITIS EPIZOOTICA
-LINFANGITIS ULCEROSA EQUINA
-MUERMO
-EXANTEMA GENITAL EQUINO
-DURINA
-SURRA
+o PESTE EQUINA
+o ENCEFALITIS JAPONESA
+o VIRUELA EQUINA
+o ARTERITIS VIRAL EQUINA
+o METRITIS CONTAGIOSA
+o LINFANGITIS EPIZOOTICA
+o LINFANGITIS ULCEROSA EQUINA
+o MUERMO
+o EXANTEMA GENITAL EQUINO
+o DURINA
+o SURRA
 En caso de países afectados por una enfermedad exótica o emergente las Administraciones Veterinarias podrán tomar una decisión de aceptación o rechazo con base en un análisis de riesgo. El bien o los bienes, deberán estar amparados por un Certificado Zoosanitario, expedido por la Autoridad de Salud Animal del país exportador, en el que se haga constar el cumplimiento de los siguientes requisitos:
 Que:
-el semen procede de animales sanos, nacidos o criados en el país de origen; en caso de que proceda de animales importados de otros países, que estos tuvieron una permanencia no menor de 90 días en el último país;
-el reproductor o los reproductores, de los que se obtuvo el semen, permanecieron por un tiempo no menor de 3 meses en un Centro de Inseminación Artificial, oficialmente autorizado para la exportación de semen por el país exportador y aprobado por el Ministerio de Agricultura y Ganadería, del país importador tomando en consideración las normas internacionales;
-el Centro deberá estar bajo la supervisión directa y la vigilancia sanitaria de un veterinario oficial o acreditado, quien controlará el estado de salud y el bienestar de los animales, así como el método de recolección utilizado y los registros llevados por el Centro;
-en el Centro de Inseminación Artificial de origen y/o de procedencia, no se han comprobado, durante los tres meses previos a la fecha de la colecta, enfermedades que aparecen en las listas de la OIE, a las cuales son susceptibles los equinos y que pueden ser transmitidas;
-el Médico Veterinario Oficial o Acreditado por la Autoridad de Salud Animal del país de origen, comprobó que el reproductor o los reproductores que se encuentran en el Centro de Inseminación Artificial, se mantuvieron en buena salud el día de la colección y el semen diluido y tratado se conservó separado y congelado en nitrógeno líquido, en frascos estériles. Las dosis se identificaron mediante un código de acuerdo con las normas nacionales;
-el Médico Veterinario Oficial o Acreditado por la Autoridad de Salud Animal del país de origen, precintó (marchamo) y selló los termos antes de autorizar su transporte al lugar de embarque o puesto fronterizo.
-el Médico Veterinario Oficial revisará el buen estado deprecintado (marchamo) y el sello del o de los termos al momento del embarque en el país exportador.
-El sello o los sellos únicamente podrán ser retirados por el Médico Veterinario Oficial del país de destino. En el caso de un país en transito, si fuese necesario retirar los sellos, esto podrá ser ejecutado por un Médico Veterinario Oficial y este mismo personal será el único autorizado para colocarlos nuevamente debiendo anotar al reverso del Certificado Zoosanitario de Exportación, la explicación del motivo por el que fueron retirados y recolocados los sellos, anotando lugar, fecha, nombre y apellidos del Médico Veterinario Oficial y su cargo.
+1. el semen procede de animales sanos, nacidos o criados en el país de origen; en caso de que proceda de animales importados de otros países, que estos tuvieron una permanencia no menor de 90 días en el último país;
+2. el reproductor o los reproductores, de los que se obtuvo el semen, permanecieron por un tiempo no menor de 3 meses en un Centro de Inseminación Artificial, oficialmente autorizado para la exportación de semen por el país exportador y aprobado por el Ministerio de Agricultura y Ganadería, del país importador tomando en consideración las normas internacionales;
+3. el Centro deberá estar bajo la supervisión directa y la vigilancia sanitaria de un veterinario oficial o acreditado, quien controlará el estado de salud y el bienestar de los animales, así como el método de recolección utilizado y los registros llevados por el Centro;
+4. en el Centro de Inseminación Artificial de origen y/o de procedencia, no se han comprobado, durante los tres meses previos a la fecha de la colecta, enfermedades que aparecen en las listas de la OIE, a las cuales son susceptibles los equinos y que pueden ser transmitidas;
+5. el Médico Veterinario Oficial o Acreditado por la Autoridad de Salud Animal del país de origen, comprobó que el reproductor o los reproductores que se encuentran en el Centro de Inseminación Artificial, se mantuvieron en buena salud el día de la colección y el semen diluido y tratado se conservó separado y congelado en nitrógeno líquido, en frascos estériles. Las dosis se identificaron mediante un código de acuerdo con las normas nacionales;
+6. el Médico Veterinario Oficial o Acreditado por la Autoridad de Salud Animal del país de origen, precintó (marchamo) y selló los termos antes de autorizar su transporte al lugar de embarque o puesto fronterizo.
+7. el Médico Veterinario Oficial revisará el buen estado deprecintado (marchamo) y el sello del o de los termos al momento del embarque en el país exportador.
+8. El sello o los sellos únicamente podrán ser retirados por el Médico Veterinario Oficial del país de destino. En el caso de un país en transito, si fuese necesario retirar los sellos, esto podrá ser ejecutado por un Médico Veterinario Oficial y este mismo personal será el único autorizado para colocarlos nuevamente debiendo anotar al reverso del Certificado Zoosanitario de Exportación, la explicación del motivo por el que fueron retirados y recolocados los sellos, anotando lugar, fecha, nombre y apellidos del Médico Veterinario Oficial y su cargo.
 RECOMENDACIONES SANITARIAS ADICIONALES:
-el animal o los animales donantes presentaron resultados negativos a las pruebas de:
+1. el animal o los animales donantes presentaron resultados negativos a las pruebas de:
 a. ANEMIA INFECCIOSA EQUINA, inmunodifusión en gel de agar, <prueba de Coggins>
 b. BRUCELOSIS, aglutinación rápida en placa, mediante antígeno BAPA o ROSA DE BENGALA, con tampón Modificado, realizadas en muestras obtenidas bajo supervisión oficial, dentro de los 30 días previos a la fecha de obtención del semen;
-que hasta 60 días, previos a la fecha de colecta del semen, recibieron los siguientes inmunógenos:
-ENCEFALOMIELITIS EQUINA DEL ESTE
-ENCEFALOMIELITIS EQUINA DEL OESTE
-ENCEFALOMIELITIS EQUINA VENEZOLANA (cepa tc83)*
-INFLUENZA EQUINA, serotipos A/equi 1 y A/equi 2)
+2. que hasta 60 días, previos a la fecha de colecta del semen, recibieron los siguientes inmunógenos:
+a. ENCEFALOMIELITIS EQUINA DEL ESTE
+b. ENCEFALOMIELITIS EQUINA DEL OESTE
+c. ENCEFALOMIELITIS EQUINA VENEZOLANA (cepa tc83)*
+d. INFLUENZA EQUINA, serotipos A/equi 1 y A/equi 2)
 Indicándose fecha de inmunización y marca del producto utilizado;
 LISTADO DE REQUISITOS ZOOSANITARIOS
 País de origen:
@@ -2276,39 +1784,39 @@ País de destino:
 Fracción Arancelaria-Zoosanitaria
 05.11I EMBRIONES DE EQUINO
 Sólo se permite la importación de países o zonas libres de las siguientes enfermedades:
-PESTE EQUINA
-ENCEFALITIS JAPONESA
-VIRUELA EQUINA
-ARTERITIS VIRAL EQUINA
-METRITIS CONTAGIOSA
-LINFANGITIS EPIZOOTICA
-LINFANGITIS ULCEROSA EQUINA
-MUERMO
-EXANTEMA GENITAL EQUINA
-DURINA
-SURRA
+o PESTE EQUINA
+o ENCEFALITIS JAPONESA
+o VIRUELA EQUINA
+o ARTERITIS VIRAL EQUINA
+o METRITIS CONTAGIOSA
+o LINFANGITIS EPIZOOTICA
+o LINFANGITIS ULCEROSA EQUINA
+o MUERMO
+o EXANTEMA GENITAL EQUINA
+o DURINA
+o SURRA
 En caso de países afectados por una enfermedad exótica o emergente, las Administraciones Veterinarias podrán tomar una decisión de aceptación o rechazo con base en un análisis de riesgo. El bien o los bienes, deberán estar amparados por un Certificado Zoosanitario, expedido por la Autoridad de Salud Animal del país exportador, en el que se haga constar el cumplimiento de los siguientes requisitos:
 Que:
-los embriones, así como el semen utilizado para su fecundación, proceden de animales sanos, nacidos o criados en el país de origen; en el caso de hembras donantes no deben haber sido importadas de otro país durante los 60 días anteriores a la recolección y deben haber permanecido por lo menos 30 días en la manada de origen;
-el reproductor o los reproductores, de los que se obtuvo el semen y los embriones estuvieron como mínimo 90 días en el Centro oficialmente autorizado por el Ministerio de Agricultura y Ganadería, para la exportación de embriones, tomando en consideración las normas internacionales;
-la manada de origen de las hembras donantes no hayan estado en una zona de restricción cuarentenaria oficial durante los 30 días anteriores y posteriores a la recolección de los embriones;
-las Autoridades de Salud Animal poseen datos y tienen autoridad sobre la manada de origen de las hembras donantes;
-que los óvulos/embriones viables fueron sometidos al tratamiento recomendado por la Sociedad Internacional de las Transferencias de Embriones (SITE);
-el Médico Veterinario Oficial o Acreditado por la Autoridad de Salud Animal del país de origen, comprobó que los reproductores que se encuentran en el Centro, el día de la colecta no presentaron signos clínicos de enfermedad contagiosa o infecciosa transmisible a los equidos;
-que los óvulos/embriones procedentes de una misma hembra donante se colocaron en la misma ampolla, o el mismo frasco, o la misma pajilla o pajuela y se conservaron en recipientes congelados en nitrógeno liquido fresco, precintados y estériles bajo condiciones de higiene rigurosas y en un lugar de almacenamiento aprobado por las Autoridades de Salud Animal del país exportador;
-los embriones fueron identificados, mediante el código estipulado en las normas internacionales;
-el Médico Veterinario Oficial o Acreditado por la Autoridad de Salud Animal del país de origen, precintó ( marchamo) y selló los termos antes de autorizar su transporte al lugar de embarque o puesto fronterizo;
-un Médico Veterinario Oficial o Acreditado revisará al momento del embarque en el país exportador, el buen estado del flejado (marchamo) y los sellos del o de los termos;
-los sellos del termo o los termos únicamente podrán ser retirados por un Médico Veterinario Oficial del país importador. En el caso de que en un país en tránsito tengan que ser revisados, los sellos únicamente podrán ser retirados por un Médico Veterinario Oficial y este mismo personal será el autorizado para colocarlos nuevamente y para anotar al reverso del Certificado Zoosanitario de Exportación, en cada caso, la explicación del motivo por el que fueron retirados y recolocados los sellos, anotando lugar, fecha, nombre y apellidos del Médico Veterinario Oficial y su cargo.
+1. los embriones, así como el semen utilizado para su fecundación, proceden de animales sanos, nacidos o criados en el país de origen; en el caso de hembras donantes no deben haber sido importadas de otro país durante los 60 días anteriores a la recolección y deben haber permanecido por lo menos 30 días en la manada de origen;
+2. el reproductor o los reproductores, de los que se obtuvo el semen y los embriones estuvieron como mínimo 90 días en el Centro oficialmente autorizado por el Ministerio de Agricultura y Ganadería, para la exportación de embriones, tomando en consideración las normas internacionales;
+3. la manada de origen de las hembras donantes no hayan estado en una zona de restricción cuarentenaria oficial durante los 30 días anteriores y posteriores a la recolección de los embriones;
+4. las Autoridades de Salud Animal poseen datos y tienen autoridad sobre la manada de origen de las hembras donantes;
+5. que los óvulos/embriones viables fueron sometidos al tratamiento recomendado por la Sociedad Internacional de las Transferencias de Embriones (SITE);
+6. el Médico Veterinario Oficial o Acreditado por la Autoridad de Salud Animal del país de origen, comprobó que los reproductores que se encuentran en el Centro, el día de la colecta no presentaron signos clínicos de enfermedad contagiosa o infecciosa transmisible a los equidos;
+7. que los óvulos/embriones procedentes de una misma hembra donante se colocaron en la misma ampolla, o el mismo frasco, o la misma pajilla o pajuela y se conservaron en recipientes congelados en nitrógeno liquido fresco, precintados y estériles bajo condiciones de higiene rigurosas y en un lugar de almacenamiento aprobado por las Autoridades de Salud Animal del país exportador;
+8. los embriones fueron identificados, mediante el código estipulado en las normas internacionales;
+9. el Médico Veterinario Oficial o Acreditado por la Autoridad de Salud Animal del país de origen, precintó ( marchamo) y selló los termos antes de autorizar su transporte al lugar de embarque o puesto fronterizo;
+10. un Médico Veterinario Oficial o Acreditado revisará al momento del embarque en el país exportador, el buen estado del flejado (marchamo) y los sellos del o de los termos;
+11. los sellos del termo o los termos únicamente podrán ser retirados por un Médico Veterinario Oficial del país importador. En el caso de que en un país en tránsito tengan que ser revisados, los sellos únicamente podrán ser retirados por un Médico Veterinario Oficial y este mismo personal será el autorizado para colocarlos nuevamente y para anotar al reverso del Certificado Zoosanitario de Exportación, en cada caso, la explicación del motivo por el que fueron retirados y recolocados los sellos, anotando lugar, fecha, nombre y apellidos del Médico Veterinario Oficial y su cargo.
 RECOMENDACIONES SANITARIAS ADICIONALES:
-que los equinos donadores se les practican periódicamente las siguientes pruebas:
+1. que los equinos donadores se les practican periódicamente las siguientes pruebas:
 ANEMIA INFECCIOSA EQUINA, inmunodifusión en gel de agar, <prueba de Coggins; seroneutralización en cultivo celular;
 BRUCELOSIS, aglutinación rápida en placa, mediante antígeno BAPA o ROSA DE BENGALA, con tampón modificado; realizadas en muestras obtenidas bajo supervisión oficial dentro de los 90 días previos a la fecha de obtención del semen o los embriones;
-en los 60 días previos a la fecha de la colecta del semen y los embriones, los donadores recibieron los inmunógenos siguientes;
-ENCEFALOMIELITIS EQUINA ESTE
-ENCEFALOMIELITIS EQUINA OESTE
-ENCEFALOMIELITIS EQUINA VENEZOLANA Cepa tc 83*
-INFLUENZA EQUINA (serotipos A/equi1 y A/equi 2)
+2. en los 60 días previos a la fecha de la colecta del semen y los embriones, los donadores recibieron los inmunógenos siguientes;
+a. ENCEFALOMIELITIS EQUINA ESTE
+b. ENCEFALOMIELITIS EQUINA OESTE
+c. ENCEFALOMIELITIS EQUINA VENEZOLANA Cepa tc 83*
+d. INFLUENZA EQUINA (serotipos A/equi1 y A/equi 2)
 Indicándose fecha de inmunización y marca del producto utilizado.
 LISTADO DE REQUISITOS ZOOSANITARIOS
 País de origen:
@@ -2318,26 +1826,26 @@ Fracción Arancelaria-Zoosanitaria
 16.01C 02 EMBUTIDOS O PRODUCTOS SIMILARES DE CARNE, DESPOJOS O SANGRE; PREPARACIONES ALIMENTICIAS A BASE DE ESTOS PRODUCTOS: MADURADOS, CUANDO PROCEDAN DE LAS ESPECIES CABALLAR, ASNAL O MULAR.
 16.01 C 03 EMBUTIDOS O PRODUCTOS SIMILARES DE CARNE, DESPOJOS O SANGRE; PREPARACIONES ALIMENTICIAS A BASE DE ESTOS PRODUCTOS: COCIDOS, CUANDO PROCEDAN DE LAS ESPECIES CABALLAR, ASNAL O MULAR.
 Sólo se permite la importación de países o zonas libres de las siguientes enfermedades:
-PESTE EQUINA
-ENCEFALITIS JAPONESA
-VIRUELA EQUINA
-ARTERITIS VIRAL EQUINA
-METRITIS CONTAGIOSA
-LINFANGITIS EPIZOOTICA
-LINFANGITIS ULCEROSA EQUINA
-MUERMO
-EXANTEMA GENITAL EQUINO
-DURINA
-SURRA
+o PESTE EQUINA
+o ENCEFALITIS JAPONESA
+o VIRUELA EQUINA
+o ARTERITIS VIRAL EQUINA
+o METRITIS CONTAGIOSA
+o LINFANGITIS EPIZOOTICA
+o LINFANGITIS ULCEROSA EQUINA
+o MUERMO
+o EXANTEMA GENITAL EQUINO
+o DURINA
+o SURRA
 En caso de países afectados por una enfermedad exótica o emergente, las Administraciones Veterinarias podrán tomar una decisión de aceptación o rechazo con base en un análisis de riesgo. El bien o los bienes, deberán estar amparados por un Certificado Zoosanitario, expedidopor la Autoridad de Salud Animal del país exportador en el que se haga constar el cumplimiento de los siguientes requisitos:
 Que:
-el producto o los productos fueron elaborados con materia prima procedente de animales sanos, nacidos o criados en el país de origen: en el caso de proceder de equinos importados que éstos tuvieron una permanencia no menor a los 60 días previos a la fecha de embarque;
-el rastro o matadero donde fueron procesados los animales, de los que procede la materia prima con la que se elaboraron los subproductos, y el establecimiento donde estos fueron producidos, tienen Inspección Veterinaria Oficial o Acreditada y están oficialmente autorizados para la exportación de carne y/o productos cárnicos por el país exportador y aprobados por el país importador, tomando en consideración las normas del CODEX ALIMENTARIUS / FAO OMS;
-cuentan con certificado oficial de la autoridad competente, del país exportador, como aptos para consumo o uso en humanos y cumplen con la legislación nacional del país importador con relación a las características organolépticas, determinación de aditivos, residuos tóxicos y análisis microbiológicos, señalados por el CODEX ALIMENTARIUS / FAO OMS;
-en el caso de los productos congelados el tiempo transcurrido entre su procesamiento y embarque, no rebasa los seis meses;
-han sido empacados en cajas especiales o recipientes sellados a prueba de goteo o estoquinetes, o han sido acondicionados en envolturas de polietileno, autorizado para uso alimentario y empacados en cajas especiales o recipientes sellados a prueba de goteo las que aparece claramente escrita, la identificación del establecimiento donde fueron producidos, el número de autorización otorgado por el Ministerio de Agricultura y Ganadería del país exportador, además del número de lote y la fecha de elaboración;
-los vehículos y contenedores, fueron lavados y desinfectados, previo al embarque del producto o subproductos, utilizando productos autorizados por el país de origen. Los contenedores y los vehículos termo refrigerados, fueron precintados (marchamados, flejados) y sellados de manera que dichos sellos Sólo puede ser retirados por las autoridades sanitarias respectivas, del país de tránsito o destino. En caso de tránsito, este mismo personal, será el único autorizado para colocarlos nuevamente y para anotar al reverso del Certificado Zoosanitario de exportación, la explicación del motivo, por el que fueron retirados y recolocados los sellos, anotando el lugar, fecha nombre y apellido del Médico Veterinario Oficial y su cargo;
-En aquellos casos en que la Autoridad de Salud Animal del Ministerio de Agricultura y Ganadería considere necesario, deberán tomarse las muestras requeridas para realizar análisis de las características organolépticas, determinación de aditivos, residuos tóxicos y para análisis bacteriológico de acuerdo con las normas establecidas en el CODEX ALIMENTARIUS /FAO OMS.
+1. el producto o los productos fueron elaborados con materia prima procedente de animales sanos, nacidos o criados en el país de origen: en el caso de proceder de equinos importados que éstos tuvieron una permanencia no menor a los 60 días previos a la fecha de embarque;
+2. el rastro o matadero donde fueron procesados los animales, de los que procede la materia prima con la que se elaboraron los subproductos, y el establecimiento donde estos fueron producidos, tienen Inspección Veterinaria Oficial o Acreditada y están oficialmente autorizados para la exportación de carne y/o productos cárnicos por el país exportador y aprobados por el país importador, tomando en consideración las normas del CODEX ALIMENTARIUS / FAO OMS;
+3. cuentan con certificado oficial de la autoridad competente, del país exportador, como aptos para consumo o uso en humanos y cumplen con la legislación nacional del país importador con relación a las características organolépticas, determinación de aditivos, residuos tóxicos y análisis microbiológicos, señalados por el CODEX ALIMENTARIUS / FAO OMS;
+4. en el caso de los productos congelados el tiempo transcurrido entre su procesamiento y embarque, no rebasa los seis meses;
+5. han sido empacados en cajas especiales o recipientes sellados a prueba de goteo o estoquinetes, o han sido acondicionados en envolturas de polietileno, autorizado para uso alimentario y empacados en cajas especiales o recipientes sellados a prueba de goteo las que aparece claramente escrita, la identificación del establecimiento donde fueron producidos, el número de autorización otorgado por el Ministerio de Agricultura y Ganadería del país exportador, además del número de lote y la fecha de elaboración;
+6. los vehículos y contenedores, fueron lavados y desinfectados, previo al embarque del producto o subproductos, utilizando productos autorizados por el país de origen. Los contenedores y los vehículos termo refrigerados, fueron precintados (marchamados, flejados) y sellados de manera que dichos sellos Sólo puede ser retirados por las autoridades sanitarias respectivas, del país de tránsito o destino. En caso de tránsito, este mismo personal, será el único autorizado para colocarlos nuevamente y para anotar al reverso del Certificado Zoosanitario de exportación, la explicación del motivo, por el que fueron retirados y recolocados los sellos, anotando el lugar, fecha nombre y apellido del Médico Veterinario Oficial y su cargo;
+7. En aquellos casos en que la Autoridad de Salud Animal del Ministerio de Agricultura y Ganadería considere necesario, deberán tomarse las muestras requeridas para realizar análisis de las características organolépticas, determinación de aditivos, residuos tóxicos y para análisis bacteriológico de acuerdo con las normas establecidas en el CODEX ALIMENTARIUS /FAO OMS.
 LISTADO DE REQUISITOS ZOOSANITARIOS
 País de origen:
 País de destino:
@@ -2345,60 +1853,60 @@ Fracción Arancelaria-Zoosanitaria
 16.01 C.04 EMBUTIDOS O PRODUCTOS SIMILARES DE CARNE, DESPOJOS O SANGRE; PREPARACIONES ALIMENTICIAS A BASE DE ESTOS PRODUCTOS: ESTERILIZADOS, CUANDO PROCEDAN DE LAS ESPECIES CABALLAR, ASNAL O MULAR
 El bien o los bienes, deberán estar amparados por un Certificado Zoosanitario, expedido por la Autoridad de Salud Animal del país exportador en el que se haga constar el cumplimiento de los siguientes requisitos:
 Que:
-proceden de animales sanos nacidos o criados en el país de origen; en el caso de proceder de animales importados de otros países, que estos tuvieron una permanencia de 60 días en el país de origen;
-el rastro o matadero donde fueron procesados los animales, de los que procede la materia prima con la que se elaboraron los subproductos, y el establecimiento donde estos fueron producidos, tienen Inspección Veterinaria Oficial o Acreditada y están oficialmente autorizados para la exportación de carne y/o productos cárnicos por el país exportador y por el país importador tomando en consideración las normas internacionales contempladas en el CODEX ALIMENTARIUS / FAO OMS;
-durante el proceso de su elaboración y posteriormente a su envasado, fueron esterilizados, debiendo indicarse el proceso que se utilizó, lo que permite que para su conservación no requieran de refrigeración;
-cuentan con certificado oficial de la autoridad competente, del país exportador, como aptos para consumo o uso en humanos; y cumplen con la legislación nacional del país exportador referidas a las normas establecidas en el CODEX ALIMENTARIUS / FAO OMS;
-han sido empacados en cajas especiales o recipientes sellados a prueba de goteo o estoquinetes o han sido acondicionados en envolturas de polietileno, autorizado para uso alimentario y empacados en cajas especiales o recipientes sellados a prueba de goteo, en las que aparece claramente escrita la iden del establecimiento donde fueron producidos, el número de autorización otorgado por el Ministerio de Agricultura y Ganadería del país exportador, el sello de la inspección oficial, además del número del lote, la fecha de elaboración y que fueron acondicionados para su transporte en contenedores o vehículos normales, isotérmicos o de tipo termo refrigerador que garanticen la temperatura de conservación, refrigeración o congelación según sea el caso;
-Los vehículos y contenedores fueron previamente lavados y desinfectados, utilizando productos autorizados por el país exportador. Los contenedores fueron precintados (marchamados, flejados) y sellados de manera que dichos sellos Sólo puedan ser retirados por las autoridades sanitarias respectivas, del país de tránsito o destino. En caso de tránsito este mismo personal, será el único autorizado para colocarlos nuevamente y para anotar al reverso del Certificado Zoosanitario de exportación la explicación del motivo, por el que fueron retirados y recolocados los sellos, anotando lugar, fecha, nombre y apellidos del Médico Veterinario Oficial y su cargo;
-en aquellos casos en que la Autoridad de Salud Animal del Ministerio de Agricultura y Ganadería considere necesario, deberán tomarse las muestras requeridas, para el análisis de las características organolépticas, determinación de aditivos, residuos tóxicos y para análisis bacteriológico de acuerdo con las normas establecidas en el CODEX ALIMENTARIUS/ FAO OMS.
+1. proceden de animales sanos nacidos o criados en el país de origen; en el caso de proceder de animales importados de otros países, que estos tuvieron una permanencia de 60 días en el país de origen;
+2. el rastro o matadero donde fueron procesados los animales, de los que procede la materia prima con la que se elaboraron los subproductos, y el establecimiento donde estos fueron producidos, tienen Inspección Veterinaria Oficial o Acreditada y están oficialmente autorizados para la exportación de carne y/o productos cárnicos por el país exportador y por el país importador tomando en consideración las normas internacionales contempladas en el CODEX ALIMENTARIUS / FAO OMS;
+3. durante el proceso de su elaboración y posteriormente a su envasado, fueron esterilizados, debiendo indicarse el proceso que se utilizó, lo que permite que para su conservación no requieran de refrigeración;
+4. cuentan con certificado oficial de la autoridad competente, del país exportador, como aptos para consumo o uso en humanos; y cumplen con la legislación nacional del país exportador referidas a las normas establecidas en el CODEX ALIMENTARIUS / FAO OMS;
+5. han sido empacados en cajas especiales o recipientes sellados a prueba de goteo o estoquinetes o han sido acondicionados en envolturas de polietileno, autorizado para uso alimentario y empacados en cajas especiales o recipientes sellados a prueba de goteo, en las que aparece claramente escrita la iden del establecimiento donde fueron producidos, el número de autorización otorgado por el Ministerio de Agricultura y Ganadería del país exportador, el sello de la inspección oficial, además del número del lote, la fecha de elaboración y que fueron acondicionados para su transporte en contenedores o vehículos normales, isotérmicos o de tipo termo refrigerador que garanticen la temperatura de conservación, refrigeración o congelación según sea el caso;
+6. Los vehículos y contenedores fueron previamente lavados y desinfectados, utilizando productos autorizados por el país exportador. Los contenedores fueron precintados (marchamados, flejados) y sellados de manera que dichos sellos Sólo puedan ser retirados por las autoridades sanitarias respectivas, del país de tránsito o destino. En caso de tránsito este mismo personal, será el único autorizado para colocarlos nuevamente y para anotar al reverso del Certificado Zoosanitario de exportación la explicación del motivo, por el que fueron retirados y recolocados los sellos, anotando lugar, fecha, nombre y apellidos del Médico Veterinario Oficial y su cargo;
+7. en aquellos casos en que la Autoridad de Salud Animal del Ministerio de Agricultura y Ganadería considere necesario, deberán tomarse las muestras requeridas, para el análisis de las características organolépticas, determinación de aditivos, residuos tóxicos y para análisis bacteriológico de acuerdo con las normas establecidas en el CODEX ALIMENTARIUS/ FAO OMS.
 LISTADO DE REQUISITOS ZOOSANITARIOS
 País de origen:
 País de destino:
 Fracción Arancelaria-Zoosanitaria
 23.01C HARINA, POLVO Y "PELLETS", DE CARNE O DE DESPOJOS, IMPROPIOS PARA LA ALIMENTACIÓN HUMANA, CUANDO PROCEDAN DE LAS ESPECIES CABALLAR, ASNAL O MULAR.
 Sólo se permite la importación de países o zonas libres de las siguientes enfermedades:
-PESTE EQUINA
-ENCEFALITIS JAPONESA
-VIRUELA EQUINA
-ARTERITIS VIRAL EQUINA
-METRITIS CONTAGIOSA
-LINFANGITIS EPIZOOTICA
-LINFANGITIS ULCEROSA EQUINA
-MUERMO
-EXANTEMA GENITAL EQUINO
-DURINA
-SURRA
+o PESTE EQUINA
+o ENCEFALITIS JAPONESA
+o VIRUELA EQUINA
+o ARTERITIS VIRAL EQUINA
+o METRITIS CONTAGIOSA
+o LINFANGITIS EPIZOOTICA
+o LINFANGITIS ULCEROSA EQUINA
+o MUERMO
+o EXANTEMA GENITAL EQUINO
+o DURINA
+o SURRA
 En caso de países afectados por una enfermedad exótica o emergente, las Administraciones Veterinarias podrán tomar una decisión de aceptación o rechazo con base en un análisis de riesgo. El bien o los bienes, deberán estar amparados por un Certificado Zoosanitario. Expedido por la Autoridad de Salud Animal del país exportador en el que se haga constar el cumplimiento de los siguientes requisitos:
 Que:
-proceden de animales sanos, nacidos o criados en el país de origen; en el caso de proceder de animales importados de otros países que al menos han permanecido en el país de origen durante los 60 días previos a la fecha de embarque;
-el rastro o matadero donde fueron procesados los animales, de los que procede la materia prima con la que se elaboraron los subproductos, y el establecimiento donde estos fueron producidos, cuentan sin Inspección Veterinaria Oficial o Acreditada y están oficialmente autorizados para la exportación de carne y/o productos cárnicos por el país exportador y aprobados por el país importador, con base a las normas establecidas en el CODEX ALIMENTARIUS / FAO OMS;
-han sido empacados en cajas especiales o recipientes sellados a prueba de goteo o estoquinetes, en las que aparece claramente escrita, la identificación del establecimiento donde fueron producidos, el número de autorización otorgado por el Ministerio de Agricultura y Ganadería del país exportador, además del número del lote y la fecha de elaboración y que fueron acondicionados para su transporte en contenedores de tipo refrigerado que garantizan la temperatura de conservación, refrigeración o congelación según el caso;
-los vehículos y contenedores fueron previamente lavados y desinfectados, utilizando productos autorizados por el país de origen. Los contenedores fueron precintados (marchamados, flejados) y sellados de manera que dichos sellos Sólo puedan ser retirados por las autoridades sanitarias respectivas, del país de tránsito o destino. En caso de tránsito, este mismo personal, será el único autorizado para colocarlos nuevamente y para anotar al reverso del Certificado Zoosanitario de exportación la explicación del motivo, por el que fueron retirados y recolocados los sellos, anotando lugar, fecha, nombre y apellidos del Médico Veterinario Oficial y su cargo;
-en aquellos casos en que la Autoridad de Salud Animal del Ministerio de Agricultura y Ganadería considere necesario, deberán tomarse las muestras requeridas para el análisis de las características organolépticas, determinación de aditivos, residuos tóxicos y para análisis bacteriológico de acuerdo con las normas establecidas en el CODEX ALIMENTARIUS/ FAO OMS.
+1. proceden de animales sanos, nacidos o criados en el país de origen; en el caso de proceder de animales importados de otros países que al menos han permanecido en el país de origen durante los 60 días previos a la fecha de embarque;
+2. el rastro o matadero donde fueron procesados los animales, de los que procede la materia prima con la que se elaboraron los subproductos, y el establecimiento donde estos fueron producidos, cuentan sin Inspección Veterinaria Oficial o Acreditada y están oficialmente autorizados para la exportación de carne y/o productos cárnicos por el país exportador y aprobados por el país importador, con base a las normas establecidas en el CODEX ALIMENTARIUS / FAO OMS;
+3. han sido empacados en cajas especiales o recipientes sellados a prueba de goteo o estoquinetes, en las que aparece claramente escrita, la identificación del establecimiento donde fueron producidos, el número de autorización otorgado por el Ministerio de Agricultura y Ganadería del país exportador, además del número del lote y la fecha de elaboración y que fueron acondicionados para su transporte en contenedores de tipo refrigerado que garantizan la temperatura de conservación, refrigeración o congelación según el caso;
+4. los vehículos y contenedores fueron previamente lavados y desinfectados, utilizando productos autorizados por el país de origen. Los contenedores fueron precintados (marchamados, flejados) y sellados de manera que dichos sellos Sólo puedan ser retirados por las autoridades sanitarias respectivas, del país de tránsito o destino. En caso de tránsito, este mismo personal, será el único autorizado para colocarlos nuevamente y para anotar al reverso del Certificado Zoosanitario de exportación la explicación del motivo, por el que fueron retirados y recolocados los sellos, anotando lugar, fecha, nombre y apellidos del Médico Veterinario Oficial y su cargo;
+5. en aquellos casos en que la Autoridad de Salud Animal del Ministerio de Agricultura y Ganadería considere necesario, deberán tomarse las muestras requeridas para el análisis de las características organolépticas, determinación de aditivos, residuos tóxicos y para análisis bacteriológico de acuerdo con las normas establecidas en el CODEX ALIMENTARIUS/ FAO OMS.
 LISTADO DE REQUISITOS ZOOSANITARIOS
 País de origen:
 País de destino:
 Fracción Arancelaria-Zoosanitaria
 41.01C CUEROS O PIELES EN BRUTO, CUANDO PROCEDAN DE LAS ESPECIES CABALLAR, ASNAL O MULAR, FRESCOS, SALADOS, SECOS O ENCALADOS.
 Sólo se permite la importación de países o zonas libres de las siguientes enfermedades:
-PESTE EQUINA
-ENCEFALITIS JAPONESA
-VIRUELA EQUINA
-ARTERITIS VIRAL EQUINA
-METRITIS CONTAGIOSA
-LINFANGITIS EPIZOOTICA
-LINFANGITIS ULCEROSA EQUINA
-MUERMO
-EXANTEMA GENITAL EQUINO
-DURINA
-SURRA
+o PESTE EQUINA
+o ENCEFALITIS JAPONESA
+o VIRUELA EQUINA
+o ARTERITIS VIRAL EQUINA
+o METRITIS CONTAGIOSA
+o LINFANGITIS EPIZOOTICA
+o LINFANGITIS ULCEROSA EQUINA
+o MUERMO
+o EXANTEMA GENITAL EQUINO
+o DURINA
+o SURRA
 En caso de países afectados por una enfermedad exótica o emergente, las Administraciones Veterinarias podrán tomar una decisión de aceptación o rechazo con base en un análisis de riesgo. El bien o los bienes, deberán estar amparados por un Certificado Zoosanitario, expedido por la Autoridad de Salud Animal del país exportador en el que se haga constar el cumplimiento de los siguientes requisitos:
 Que:
-proceden de animales sanos, nacidos o criados en el país de origen; en caso de proceder de animales importados de otros países, que tuvieron una permanencia no menor de 60 días en el país de origen;
-el rastro o matadero donde fueron faenados los equinos, de los que procede la materia prima con la que se elaboró los subproductos cuenta con Inspección Veterinaria Oficial o Acreditada y está oficialmente autorizado para la exportación de carne por el país exportador y por el país importador de acuerdo con las normas establecidas en el CODEX ALIMENTARIUS /FAO OMS;
-han sido empacados en cajas especiales o recipientes sellados a prueba de goteo o estoquinetes en las que aparece claramente escrita la identificación del establecimiento donde fueron producidos, el número de autorización otorgado por el Ministerio de Agricultura y Ganadería del país exportador, además del número del lote y la fecha de elaboración y que fueron acondicionados para su transporte en contenedores de tipo refrigerado que garantizan la temperatura de refrigeración o congelación según el caso;
-Los vehículos y contenedores refrigerados fueron previamente lavados y desinfectados, utilizando productos autorizados por el país exportador. Los contenedores fueron precintados (marchamados, flejados) y sellados de manera que dichos sellos Sólo pueden ser retirados por las autoridades sanitarias respectivas, del país de tránsito o destino. En caso de tránsito, este mismo personal, será el único autorizado para colocarlos nuevamente y para anotar al reverso del Certificado Zoosanitario de exportación la explicación del motivo por el cual fueron retirados y recolocados los sellos, anotando lugar, fecha, nombre y apellido del Médico Veterinario Oficial y su cargo.
+1. proceden de animales sanos, nacidos o criados en el país de origen; en caso de proceder de animales importados de otros países, que tuvieron una permanencia no menor de 60 días en el país de origen;
+2. el rastro o matadero donde fueron faenados los equinos, de los que procede la materia prima con la que se elaboró los subproductos cuenta con Inspección Veterinaria Oficial o Acreditada y está oficialmente autorizado para la exportación de carne por el país exportador y por el país importador de acuerdo con las normas establecidas en el CODEX ALIMENTARIUS /FAO OMS;
+3. han sido empacados en cajas especiales o recipientes sellados a prueba de goteo o estoquinetes en las que aparece claramente escrita la identificación del establecimiento donde fueron producidos, el número de autorización otorgado por el Ministerio de Agricultura y Ganadería del país exportador, además del número del lote y la fecha de elaboración y que fueron acondicionados para su transporte en contenedores de tipo refrigerado que garantizan la temperatura de refrigeración o congelación según el caso;
+4. Los vehículos y contenedores refrigerados fueron previamente lavados y desinfectados, utilizando productos autorizados por el país exportador. Los contenedores fueron precintados (marchamados, flejados) y sellados de manera que dichos sellos Sólo pueden ser retirados por las autoridades sanitarias respectivas, del país de tránsito o destino. En caso de tránsito, este mismo personal, será el único autorizado para colocarlos nuevamente y para anotar al reverso del Certificado Zoosanitario de exportación la explicación del motivo por el cual fueron retirados y recolocados los sellos, anotando lugar, fecha, nombre y apellido del Médico Veterinario Oficial y su cargo.
 LISTADO DE REQUISITOS ZOOSANITARIOS
 País de origen:
 País de destino:
@@ -2481,13 +1989,13 @@ Zona con Programa de Control: Área geográfica determinada en la que se operan 
 Zona libre: Área geográfica determinada en la cual se han eliminado o no han existido casos positivos a una enfermedad determinada durante 24 meses, según registros y estudios epizootiológicos oficiales.
 Zona libre de Plagas Y Enfermedades: Zona designada por las autoridades competentes, que pueda abarcar la totalidad de un país, parte de un país o la totalidad o parte de varios países, en la que no existe una determinada plaga o enfermedad.
 RECOMENDACIONES
-Hacer del conocimiento de los productores, industriales, veterinarios e interesados, las Normas y Procedimientos Sanitarios para los Equinos, ya que regirán la comercialización de los equidos, sus productos y subproductos a nivel nacional como internacional.
-Tomar en consideración las sugerencias y recomendaciones de los sectores involucrados con esta Norma.
-Que las Direcciones de Salud Animal de la Región, implementen las Normas y Procedimientos Zoosanitarios para los Equinos, previa revisión y adecuación a las leyes y reglamentos vigentes en cada país.
-Cada Administración Veterinaria de los países de la Región debe realizar esfuerzos a fin de: identificar las enfermedades presentes, realizar estudios de prevalencia, establecer campañas de control y erradicación, notificar la existencia de zonas libres, así mismo cualquier modificación de la situación sanitaria a OIRSA y a la OIE, si el país es miembro.
-No se deben exigir restricciones por enfermedades si en el país importador no se realizan acciones específicas ( campañas, planes, programas).
-Instar a los países de la Región, que no están inscritos en la OIE, lo realicen a la mayor brevedad posible.
-Los intercambios internacionales implican continuidad de la responsabilidad ética. Por tal razón sic apareciera en un rebaño, una enfermedad específicamente incluida en el "certificado zoosanitario internacional". dicha Administración tendrá la obligación de notificar al país importador, con el objeto de que los equinos puedan ser inspeccionados o controlados y se adopten las medidas pertinentes para limitar la propagación de la enfermedad.
+1. Hacer del conocimiento de los productores, industriales, veterinarios e interesados, las Normas y Procedimientos Sanitarios para los Equinos, ya que regirán la comercialización de los equidos, sus productos y subproductos a nivel nacional como internacional.
+2. Tomar en consideración las sugerencias y recomendaciones de los sectores involucrados con esta Norma.
+3. Que las Direcciones de Salud Animal de la Región, implementen las Normas y Procedimientos Zoosanitarios para los Equinos, previa revisión y adecuación a las leyes y reglamentos vigentes en cada país.
+4. Cada Administración Veterinaria de los países de la Región debe realizar esfuerzos a fin de: identificar las enfermedades presentes, realizar estudios de prevalencia, establecer campañas de control y erradicación, notificar la existencia de zonas libres, así mismo cualquier modificación de la situación sanitaria a OIRSA y a la OIE, si el país es miembro.
+5. No se deben exigir restricciones por enfermedades si en el país importador no se realizan acciones específicas ( campañas, planes, programas).
+6. Instar a los países de la Región, que no están inscritos en la OIE, lo realicen a la mayor brevedad posible.
+7. Los intercambios internacionales implican continuidad de la responsabilidad ética. Por tal razón sic apareciera en un rebaño, una enfermedad específicamente incluida en el "certificado zoosanitario internacional". dicha Administración tendrá la obligación de notificar al país importador, con el objeto de que los equinos puedan ser inspeccionados o controlados y se adopten las medidas pertinentes para limitar la propagación de la enfermedad.
 CERTIFICACIÓN DE CUARENTENA EN LUGAR DE ORIGEN
 El veterinario oficial infrascrito, certifica que los equinos, abajo descritos permanecieron bajo observación cuarentenaria durante días, sin entrar en contacto con otros animales de sensibilidad similar y han sido reconocidos clínicamente sanos y libres de cualquier enfermedad de la lista A o de cualquier otra enfermedad infecciosa.
 Lugar de la cuarentena ------------------------------------------------------------
@@ -2507,31 +2015,31 @@ Expedido en --------------------------------------------------------------------
 Nombre y dirección del veterinario ---------------------------------------------
 Firma: -------------------------------------------------------------------------------
 CERTIFICACIÓN DE DESINFECCIÓN DE VEHÍCULOS DE TRANSPORTE
-El veterinario oficial infrascrito, certifica que en esta fecha el vehículo abajo descrito previo al embarque de——————————————
-——————con destino a—————————————— ha sido lavado y desinfectado con———————————————————
+El veterinario oficial infrascrito, certifica que en esta fecha el vehículo abajo descrito previo al embarque de--------------
+------con destino a-------------- ha sido lavado y desinfectado con-------------------
 Descripción del vehículo:
-Tipo ————————————————
-Placa ————————————————
-Color ———————————————-
-Marchamo No. ——————————
+Tipo ----------------
+Placa ----------------
+Color ----------------
+Marchamo No. ----------
 Sello oficial
 Expedido en ------------------------------------------------------------------------ el día ---------------------------------------------------------------------------------
 Nombre y dirección del veterinario ---------------------------------------------
 Firma: -------------------------------------------------------------------------------
 CERTIFICACIÓN DE APROBACIÓN DEL CENTRO DE INSEMINACIÓN ARTIFICIAL Y/ O EMBRIONES
-El veterinario oficial infrascrito, certifica que el Centro————— ——————————————, ubicado en el (Departamento, Provincia, Distrito), ha sido aprobado, registrado y autorizado por la autoridad competente, el cual opera bajo supervisión veterinaria oficial permanentemente, tomando en consideración las normas internacionales de la OIE.
+El veterinario oficial infrascrito, certifica que el Centro----- --------------, ubicado en el (Departamento, Provincia, Distrito), ha sido aprobado, registrado y autorizado por la autoridad competente, el cual opera bajo supervisión veterinaria oficial permanentemente, tomando en consideración las normas internacionales de la OIE.
 Sello oficial.
 Expedido en ------------------------------------------------------------------------ el día ---------------------------------------------------------------------------------
 Nombre y dirección del veterinario ---------------------------------------------
 Firma: -------------------------------------------------------------------------------
 CERTIFICACIÓN DE APROBACIÓN DEL MATADERO O INSTALACIÓN INDUSTRIAL
-El veterinario oficial infrascrito, certifica que el———————— ——————————————————-, ubicado en el ———————————————————————————-, ha sido aprobado, registrado y autorizado, por la autoridad de inspección para procesar los equinos destinados al consumo humano después de llenar los requisitos técnicos y legales y operar bajo supervisión veterinaria oficial permanente.
+El veterinario oficial infrascrito, certifica que el-------- -------------------, ubicado en el ----------------------------, ha sido aprobado, registrado y autorizado, por la autoridad de inspección para procesar los equinos destinados al consumo humano después de llenar los requisitos técnicos y legales y operar bajo supervisión veterinaria oficial permanente.
 Sello oficial
 Expedido en ------------------------------------------------------------------------ el día ---------------------------------------------------------------------------------
 Nombre y dirección del veterinario ---------------------------------------------
 Firma: -------------------------------------------------------------------------------
 CERTIFICADO SANITARIO OFICIAL DE PRODUCTOS Y SUBPRODUCTOS APTOS PARA CONSUMO HUMANO O USO EN HUMANOS Y ANIMALES
-El veterinario oficial infrascrito, certifica que los —————————————————————, que abajo se describen proceden de animales sanos, que sufrieron inspección ante y post mortem por la autoridad correspondiente, cumplen con las características organolépticas, de acuerdo con el Codex alimentarius FAO/OMS.
+El veterinario oficial infrascrito, certifica que los ---------------------, que abajo se describen proceden de animales sanos, que sufrieron inspección ante y post mortem por la autoridad correspondiente, cumplen con las características organolépticas, de acuerdo con el Codex alimentarius FAO/OMS.
 Producto o subproducto | Unidad | Peso Total
 | |
 | |
@@ -2668,10 +2176,10 @@ Nombre y dirección del exportador:_____________________________
 Nombre y dirección del destinatario: ____________________________
 CERTIFICADO DE SALUBRIDAD
 El veterinario oficial infrascrito, certifica que:
-Las carnes, los embalajes, anteriormente citados llevan el sello oficial que acredita que las carnes proceden en su totalidad de animales sacrificados en mataderos o rastros oficialmente autorizados;
-las carnes han sido reconocidas aptas para el consumo humano;
-las carnes fueron descuartizadas en un desolladero autorizado;
-las carnes cumplen los requisitos siguientes: **
+a. Las carnes, los embalajes, anteriormente citados llevan el sello oficial que acredita que las carnes proceden en su totalidad de animales sacrificados en mataderos o rastros oficialmente autorizados;
+b. las carnes han sido reconocidas aptas para el consumo humano;
+c. las carnes fueron descuartizadas en un desolladero autorizado;
+d. las carnes cumplen los requisitos siguientes: **
 Sello oficial
 Expedido en ------------------------------------------------------------------------ el día ---------------------------------------------------------------------------------
 Nombre y dirección del veterinario ---------------------------------------------
@@ -2680,5 +2188,5 @@ Firma: -------------------------------------------------------------------------
 ANEXO Nº 8
 RESOLUCIÓN Nº 117-2004 (COMIECO)
 CRITERIOS SANITARIOS APLICABLES PARA EL INTERCAMBIO COMERCIAL DE ANIMALES, SUS PRODUCTOS Y SUBPRODUCTOS DENTRO DEL TERRITORIO DE LA UNIÓN ADUANERA
-Con relación al intercambio comercial de animales, sus productos y subproductos, dentro del territorio de la Unión Aduanera, los Estados Parte se comprometen a cumplir con las normas sanitarias recomendadas por la Oficina Internacional de Epizootias (OIE).
-Para el reconocimiento de las Áreas Libres y de Baja Prevalencia, los Estados Parte de la Unión Aduanera deberán cumplir con los requisitos de las normas sanitarias recomendadas por la OIE y con la documentación técnico-científica que avala el proceso, la que será enviada al Comité de Medidas Sanitarias y Fitosanitarias, establecido en el artículo 30 del Reglamento Centroamericano sobre Medidas y Procedimientos Sanitarios y Fitosanitarios, el que realizará la comunicación oficial a los Estados Parte de la Unión Aduanera.
+1. Con relación al intercambio comercial de animales, sus productos y subproductos, dentro del territorio de la Unión Aduanera, los Estados Parte se comprometen a cumplir con las normas sanitarias recomendadas por la Oficina Internacional de Epizootias (OIE).
+2. Para el reconocimiento de las Áreas Libres y de Baja Prevalencia, los Estados Parte de la Unión Aduanera deberán cumplir con los requisitos de las normas sanitarias recomendadas por la OIE y con la documentación técnico-científica que avala el proceso, la que será enviada al Comité de Medidas Sanitarias y Fitosanitarias, establecido en el artículo 30 del Reglamento Centroamericano sobre Medidas y Procedimientos Sanitarios y Fitosanitarios, el que realizará la comunicación oficial a los Estados Parte de la Unión Aduanera.
