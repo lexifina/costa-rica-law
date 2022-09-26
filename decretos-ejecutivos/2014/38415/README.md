@@ -18,3 +18,4 @@ Publica Resolución N° 338-2014 (COMIECO-EX) de fecha 17 de enero de 2014 y su 
 | 3 | 2015-08-20 | Decreto Ejecutivo 39312 (2015-08-20) |
 | 4 | 2018-11-09 | Decreto Ejecutivo 41506 (2018-11-09) |
 | 5 | 2021-03-23 | Decreto Ejecutivo 42949 (2021-03-23) |
+| 6 | 2022-09-26 | Decreto Ejecutivo 43918 (2022-09-26) |
