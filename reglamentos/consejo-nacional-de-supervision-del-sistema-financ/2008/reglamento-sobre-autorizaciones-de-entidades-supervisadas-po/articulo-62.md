@@ -1,12 +1,3 @@
 CAPÍTULO II
 Organización
-Artículo 62.—Organización de los grupos financieros. Los grupos deben organizarse de la siguiente forma:
-a) Deberá existir una sociedad controladora que será propietaria, en todo momento, de por lo menos el veinticinco por ciento (25%) del capital suscrito de cada una de las empresas que conforman el Grupo Financiero.
-b) Deberán existir dos o más empresas dedicadas exclusivamente a la prestación de servicios financieros, sujetas a gestión común, control común o vinculación funcional.
-c) Podrán formar parte de un Grupo Financiero, las empresas a que se refiere el artículo 141 de la Ley Orgánica del Banco Central de Costa Rica.
-d) Sin perjuicio de lo establecido en el artículo 29 de este Reglamento y de conformidad con lo dispuesto en el párrafo segundo del artículo 146 de la Ley 7558, Ley Orgánica del Banco Central de Costa Rica, las empresas integrantes del grupo financiero no pueden participar en el capital social de otras sociedades.
-e) La exposición del grupo financiero con empresas financieras domiciliadas en el exterior, diferentes de intermediarios financieros, está sujeta a los siguientes límites:
-i. Para el caso de empresas extranjeras reguladas o no reguladas en su domicilio legal, pertenecientes a un grupo financiero cuyo supervisor sea la SUGEF, un máximo del 20% de forma individual o conjunta.
-ii. Para el caso de empresas extranjeras reguladas en su domicilio legal, pertenecientes a un grupo financiero cuyo supervisor sea la SUGEVAL o la SUPEN, un máximo del 49% de forma individual o conjunta.
-iii. Para el caso de empresas extranjeras no reguladas en su domicilio legal, pertenecientes a un grupo financiero cuyo supervisor sea la SUGEVAL o la SUPEN, un máximo del 20% de forma individual o conjunta.
-iv. Para el conjunto de todas las empresas extranjeras reguladas o no en su domicilio legal, pertenecientes a un grupo financiero cuyo supervisor sea la SUGEVAL o SUPEN, un máximo del 49%. La exposición del grupo o conglomerado financiero con las empresas domiciliadas en el exterior a que se refiere el inciso e) de este artículo, se determinará como la suma del capital social aportado por la controladora a la empresa domiciliada en el exterior, las contingencias de la empresa extranjera, los créditos, inversiones y garantías otorgados a la empresa extranjera por otras empresas del mismo grupo financiero, y cualquier otra operación activa con la empresa domiciliada en el exterior.
+Artículo 62.-Organización de los grupos financieros. (Derogado por el artículo 116 del Reglamento sobre Supervisión Consolidada (Acuerdo CONASSIF 16-22), aprobado en sesión N° 1759-2022 del 26 de setiembre del 2022)

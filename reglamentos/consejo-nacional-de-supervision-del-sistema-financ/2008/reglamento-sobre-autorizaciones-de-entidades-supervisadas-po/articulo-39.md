@@ -1,1 +1,1 @@
-Artículo 39.—Requisitos para la disolución voluntaria de un grupo financiero. Para la autorización de la disolución voluntaria de un grupo financiero, el representante legal de un grupo financiero debe suministrar los requisitos que se indican en el anexo 11.
+Artículo 39.-Requisitos para la disolución voluntaria de un grupo financiero. (Derogado por el artículo 116 del Reglamento sobre Supervisión Consolidada (Acuerdo CONASSIF 16-22), aprobado en sesión N° 1759-2022 del 26 de setiembre del 2022)

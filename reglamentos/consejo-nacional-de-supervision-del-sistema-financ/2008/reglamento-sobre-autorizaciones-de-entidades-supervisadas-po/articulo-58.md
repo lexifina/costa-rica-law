@@ -1,1 +1,1 @@
-Artículo 58.—Supervisión de la sociedad controladora. La sociedad controladora deberá sujetarse a la inspección y vigilancia del respectivo supervisor del grupo o conglomerado financiero, y deberá proporcionarle la información en los términos que con base en el marco legal y reglamentario aplicable se le solicite.
+Artículo 58.-Supervisión de la sociedad controladora. (Derogado por el artículo 116 del Reglamento sobre Supervisión Consolidada (Acuerdo CONASSIF 16-22), aprobado en sesión N° 1759-2022 del 26 de setiembre del 2022)

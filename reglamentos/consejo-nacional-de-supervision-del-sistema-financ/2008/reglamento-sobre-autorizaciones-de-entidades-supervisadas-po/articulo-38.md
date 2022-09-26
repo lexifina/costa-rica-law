@@ -1,1 +1,1 @@
-Artículo 38.—Requisitos para el cambio de nombre de una sociedad controladora. Para la autorización del cambio de nombre de una sociedad controladora, el representante legal de la sociedad controladora debe suministrar al supervisor del grupo o conglomerado financiero la información detallada en el anexo 6 de este Reglamento.
+Artículo 38.-Requisitos para el cambio de nombre de una sociedad controladora. (Derogado por el artículo 116 del Reglamento sobre Supervisión Consolidada (Acuerdo CONASSIF 16-22), aprobado en sesión N° 1759-2022 del 26 de setiembre del 2022)
