@@ -1,0 +1,2 @@
+Artículo 18. Calendarización de las sesiones. Al principio de cada año calendario, la Presidencia del Comité, elaborará un calendario con las fechas y horas propuestas de las sesiones ordinarias, dicho calendario será distribuido entre los miembros de dicho Comité, para valoración y ajustes. La Presidencia del Comité, deberá velar porque no exista superposición horaria, a la hora de realizar las sesiones.
+La versión final del calendario será informada al Oficial de Cumplimiento de Gobierno Corporativo, para su respectiva gestión y comunicación a la Junta Directiva.
