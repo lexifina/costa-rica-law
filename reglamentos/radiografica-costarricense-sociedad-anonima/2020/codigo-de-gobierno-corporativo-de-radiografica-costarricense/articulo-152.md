@@ -1,1 +1,0 @@
-Artículo 152°- Reforma Parcial. El presente reglamento reforma parcialmente el Código de Gobierno Corporativo de RACSA aprobado en el artículo 1 de la sesión ordinaria N° 2283, celebrada el 11 de agosto del 2020.

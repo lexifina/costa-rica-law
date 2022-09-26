@@ -1,1 +1,1 @@
-Transitorio IV. - Los Comités de Auditoría, Apoyo de Riesgos y TI, Remuneraciones y Nominaciones, deberán estar constituidos en un plazo no mayor a tres meses, contado a partir de la vigencia de este Código.
+Transitorio IV. Una vez aprobado y sea efectivo el Código de Gobierno Corporativo Grupo ICE, pasará a formar parte integral de los documentos aplicables a este Código de Gobierno Corporativo.

@@ -1,1 +1,1 @@
-Artículo 48°. A la Auditoría Interna le corresponde verificar el sistema de control implementado por la Administración que permita contar con la integridad de los procesos contables, las transacciones y operaciones de la sociedad.
+Artículo 48°. La Auditoría Interna debe fiscalizar que la administración se oriente al mejoramiento de los métodos y procedimientos de control interno, orientándolos para que redunden en una operación más eficiente y eficaz de la Empresa.

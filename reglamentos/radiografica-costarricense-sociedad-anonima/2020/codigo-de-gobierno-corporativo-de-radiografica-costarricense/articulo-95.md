@@ -1,2 +1,1 @@
-Artículo 95°. Nombramiento de los integrantes.
-Los miembros del comité son nombrados y removidos por la Junta Directiva, fundamentándose para ello en el conocimiento, experiencia y papel que hayan desempeñado con anterioridad.
+Artículo 95°- Reforma Parcial. El presente Código reforma parcialmente el Código de Gobierno Corporativo de RACSA aprobado en el artículo 3 de la sesión extraordinaria N° 2239, celebrada el 27 de julio del 2021.

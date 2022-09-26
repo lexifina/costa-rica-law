@@ -1,6 +1,3 @@
-Artículo 31°. Para su mejor funcionamiento, se deberá contar con un manual de cumplimiento, el cual que debe contener por comité, al menos:
-a) Objetivos del Comité
-b) Integrantes
-c) Funciones y mandatos
-d) Entregables a la Junta Directiva
-e) Derechos de decisión
+Artículo 31°. Cuando la Presidencia de la Junta Directiva participe en un Comité de Apoyo, corresponderá al otro miembro de Junta Directiva asumir el rol de Presidente.
+Podrán participar en las sesiones, en calidad de invitados sin derecho a voto, cuando así sea convocado, previa justificación del Comité y acuerdo unánime de éste, los funcionarios o terceros que el Comité considere necesarios, para analizar los asuntos puntuales propios de su competencia, o con la finalidad de conocer nuevas perspectivas y tendencias, así como mejorar el conocimiento de los miembros de Comité en temas específicos. En el caso de terceros externos a RACSA, cada Comité deberá de asegurarse que no existe un conflicto de interés, respecto a los temas a tratar. Los invitados no participan de la deliberación final, ni de la votación.
+No se podrá compartir con los expertos o terceros información de orden confidencial o sensible, salvo excepción que ya exista un contrato de confidencialidad que así lo estipule.

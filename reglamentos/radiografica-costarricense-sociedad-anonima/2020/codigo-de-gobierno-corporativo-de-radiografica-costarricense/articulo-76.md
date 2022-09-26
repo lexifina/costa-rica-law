@@ -1,1 +1,1 @@
-Artículo 76°. A los proveedores RACSA les ofrece un trato equitativo y transparente con relaciones basadas en el mérito.
+Artículo 76°. Como parte de sus políticas la Empresa busca lograr la mejor satisfacción de las necesidades nacionales o internacionales, según sus competencias, procurando el desarrollo económico y social en el ámbito en que se desempeña y usando para ello las mejores prácticas de mercado.

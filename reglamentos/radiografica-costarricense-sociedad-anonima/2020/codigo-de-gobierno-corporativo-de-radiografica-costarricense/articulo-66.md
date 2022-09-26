@@ -1,2 +1,1 @@
-5.3 Selección de proveedores
-Artículo 66°. Las actuaciones de quienes intervengan en los procesos de asociaciones empresariales, contratación y compras deberán regirse por los principios éticos, de buena fe, transparencia, economía, responsabilidad y calidad. Además, deben seguir las normas de la Ley de Enriquecimiento Ilícito y los preceptos sobre conflictos de interés a nivel corporativo.
+Artículo 66°. El proceso de selección de proveedores y los socios empresariales debe ser objetivo, tomando en cuenta aspectos tales como: capacidad técnica y patrimonial, valoración de riesgos, continuidad del negocio, idoneidad y experiencia, precio ofrecido y soporte.

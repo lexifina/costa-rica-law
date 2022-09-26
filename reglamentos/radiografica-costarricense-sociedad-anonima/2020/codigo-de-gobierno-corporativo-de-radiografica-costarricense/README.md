@@ -15,3 +15,4 @@ Código de Gobierno Corporativo, de Radiográfica Costarricense S. A
 | --- | --- | --- |
 | 1 | 2020-08-11 | la propia norma |
 | 2 | 2021-07-27 | Reglamento 2339 (2021-07-27) |
+| 3 | 2022-09-26 | Reglamento 2411 (2022-09-26) |

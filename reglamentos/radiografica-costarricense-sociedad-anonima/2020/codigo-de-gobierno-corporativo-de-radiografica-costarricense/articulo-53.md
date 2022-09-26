@@ -1,1 +1,2 @@
-Artículo 53°. Formarán parte de la estructura de control interno y tendrán participación activa en el seguimiento de las políticas en esa materia además de la Auditoría Interna, el Comité de Auditoría y el Comité de Riesgo y Tecnología.
+4.2 Control Externo.
+Artículo 53°. Auditoría Externa. La Empresa auditará anualmente sus estados financieros por medio de una entidad especializada e independiente que deberá ejecutar sus funciones con personal adecuado en calidad y cantidad.

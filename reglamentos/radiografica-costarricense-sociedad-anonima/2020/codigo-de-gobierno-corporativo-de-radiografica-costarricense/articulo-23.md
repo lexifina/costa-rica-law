@@ -1,14 +1,8 @@
-3.5 Responsabilidades y funciones de la Presidencia de la Junta Directiva.
-Artículo 23°. El o la Presidente de la Junta Directiva debe poseer la experiencia, competencias y cualidades personales necesarias a efecto de cumplir con las responsabilidades del puesto, que incluyen, pero no están limitadas a:
-a) Ejercer liderazgo, hacer un manejo efectivo del tiempo, motivar a un equipo, entender distintos puntos de vista y solucionar conflictos.
-b) Dedicar el tiempo que la entidad demande para el cumplimiento de sus funciones.
-c) Fungir como funcionario (a) de mayor jerarquía para efectos de Gobierno de la Empresa y ser el principal responsable del manejo del buen Gobierno Corporativo.
-d) Representar a la Empresa.
-e) Presidir la Junta Directiva y programar las actividades generales que se requieran para alcanzar los objetivos de la Empresa, dentro de los lineamientos de la Política General del ICE.
-f) Ser el enlace directo entre el ICE y la Empresa que representa. Ser quien lleve a conocimiento de la Junta Directiva para su aprobación, las iniciativas del ICE relacionadas con la definición, formulación y adaptación de la Política de Gobierno de la entidad. Cuando corresponda servirá de intermediario(a) entre la Alta Gerencia de la Empresa y el Estado.
-g) Velar porque las decisiones del Órgano de Dirección sean tomadas sobre una base de información oportuna, sólida, veraz y asegurar su ejecución.
-h) Asegurar y documentar la inducción formal y completa para los nuevos miembros de Junta Directiva u órgano de Dirección, a efecto de que conozcan tanto el negocio y el entorno en el cual se desenvuelven, como sus responsabilidades y las mejores prácticas de Gobierno Corporativo.
-i) No actuar como presidente en los Comités de Apoyo que constituya la Junta Directiva u órgano de Dirección con el fin de mantener el balance y el cumplimiento de las labores de esas instancias.
-j) Coordinar la acción de RACSA con la de las demás instituciones del Estado cuando sea requerido.
-k) Representar a RACSA en los Órganos de Coordinación del Grupo ICE que por su naturaleza sean de índole estratégica.
-l) Asumir las funciones que por ley y el pacto constitutivo están reservadas al Presidente de la Junta Directiva, así como las otras que le asigne la propia Junta Directiva.
+Artículo 23°. Con respecto a la Administración. Le corresponde a la Junta Directiva:
+a) Supervisar a la Gerencia General y exigir explicaciones claras e información suficiente y oportuna, a efecto de formarse un juicio crítico de su actuación.
+b) Vigilar, evaluar y aprobar el desempeño del Gerente General, el Auditor Interno y los auditores externos, miembros externos de Comités de Apoyo, Secretaría de Junta Directiva, Oficial de Cumplimiento de Gobierno Corporativo, así como cualquier otro personal que dependa directamente de la Junta Directiva, de acuerdo con el marco legal vigente.
+c) Reemplazar al Gerente General según el debido proceso y las necesidades institucionales ordinarias o sobrevenidas. Así como supervisar la existencia, reporte, actualización y efectividad de los planes de sucesión tanto de la Alta Gerencia, así como cualquier otro personal que dependa directamente de la Junta Directiva, de acuerdo con el marco legal vigente.
+d) Designar al auditor interno, de conformidad con las regulaciones emitidas por la Contraloría General de la República sobre la materia.
+e) Aprobar el esquema retributivo de la Empresa acorde con la normativa, asegurando que el método de cálculo sea formal, transparente, público y alineado con las buenas prácticas internacionales en la materia. Para tal fin, deberán considerar factores como el tamaño de la Empresa, la carga laboral y de responsabilidad, el nivel de riesgo, los índices de remuneración y las prácticas comunes del mercado.
+f) Aprobar el esquema salarial del personal que depende directamente de la Junta Directiva incluyendo el Gerente General, el Auditor Interno, la Secretaría de la Junta y el Oficial de Cumplimiento de Gobierno Corporativo, así como cualquier otro personal que dependa directamente de la Junta Directiva; velando por el desarrollo de los instrumentos técnicos necesarios.
+g) Establecer una comunicación ágil, oportuna y transparente con el Presidente Ejecutivo del ICE, para comunicar situaciones, eventos o problemas que afecten o pudieran afectar significativamente a la Empresa.

@@ -1,1 +1,1 @@
-Transitorio III. - Los Comités de Apoyo de Innovación y Estrategia y Gestión Financiera Estratégica deberán estar constituidos en un plazo de un mes, contado a partir de la vigencia de este Código.
+Transitorio III. El requisito establecido en el artículo 50, relativo a la necesidad de ser Licenciado en Contaduría Pública, será exigido a futuro, por respeto a los derechos adquiridos y situaciones jurídicas consolidadas. No obstante, para el siguiente concurso para nombramiento del Auditor Interno este requisito se incluirá como indispensable para ocupar dicho puesto.

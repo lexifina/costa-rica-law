@@ -1,1 +1,1 @@
-Artículo 80°. La Junta Directiva y la Gerencia tomarán las medidas necesarias para comunicar a toda la organización las normas de Gobierno Corporativo y con ello internalizar esta cultura y fortalecer su aplicación.
+Artículo 80°. El Oficial de Cumplimiento de Gobierno Corporativo someterá a aprobación de la Junta Directiva un informe anual de Gobierno Corporativo, con corte al 31 de diciembre de cada año. Una vez aprobado dicho informe será remitido al Consejo Directivo del ICE y tendrá además carácter público, debiendo publicarse en la página web de la Empresa.

@@ -1,5 +1,3 @@
-5.2 Conflictos de interés
-Artículo 61°. Corresponde a la Junta Directiva definir la Política de Manejo de Conflictos de Interés, la cual deberá estar en concordancia y actualizada con los lineamientos fijados por la Casa Matriz en ese ámbito. La misma debe contemplar por lo menos tres elementos:
-a) De prevención.
-b) De identificación de riesgos.
-c) De manejo de los conflictos.
+Artículo 61°. Se entiende que un administrador o empleado se encuentra en una situación de conflicto de interés cuando:
+a) En el ejercicio de sus funciones, debe tomar una decisión, o realizar u omitir una acción, y se encuentre en incapacidad de hacerlo objetivamente.
+b) Existe antagonismo entre el interés de la Empresa o los intereses de un tercero que deba defender y, de otra parte, su interés propio o el interés de un tercero relacionado.

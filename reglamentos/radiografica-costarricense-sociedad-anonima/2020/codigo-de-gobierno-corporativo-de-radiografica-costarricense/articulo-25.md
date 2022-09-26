@@ -1,1 +1,2 @@
-Artículo 25°. Para esto la Junta Directiva aprobará un procedimiento que definirá los aspectos a evaluar y garantizará que cada aspecto evaluado cuente con indicadores específicos, medibles, y relevantes. Este procedimiento debe ser revisado y ajustado por el Oficial de Cumplimiento de Gobierno Corporativo cuando sea requerido y elevado para el conocimiento y aprobación de la Junta Directiva.
+3.6 Política de Evaluación de la Gestión de la Junta Directiva.
+Artículo 25°. Programa. La Junta Directiva debe implementar un programa objetivo y estructurado de evaluación anual de su gestión, la de sus miembros, los Comités de Apoyo en funcionamiento y sus integrantes, bajo la supervisión de la presidencia de la Junta Directiva.

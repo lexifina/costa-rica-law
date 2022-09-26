@@ -1,3 +1,1 @@
-CAPITULO V: Elementos del Esquema de Gobierno Corporativo
-5.1 Código de Ética
-Artículo 58°. RACSA cuenta con un Código de Ética aplicable a todos sus funcionarios, que es de cumplimiento obligatorio por ellos y del cual además anualmente deberán acreditar su conocimiento.
+Artículo 58°. El Código de Ética es una compilación de reglas y políticas destinadas a asistir a todos los funcionarios en la toma de decisiones, en el desempeño de sus labores y en aquellas acciones que puedan tener un impacto sobre la imagen de la Empresa.

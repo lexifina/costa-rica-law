@@ -1,1 +1,1 @@
-Artículo 74°. En materia laboral la Empresa busca ofrecer a sus colaboradores un ambiente seguro que mitigue los riesgos de seguridad ocupacional en el trabajo, libre de discriminaciones de cualquier índole y que promueve el desarrollo integral de sus trabajadores.
+Artículo 74°. Para con sus clientes la Empresa se compromete al estricto cumplimiento de los requerimientos pactados ofreciéndoles un alto nivel de innovación en el desarrollo y prestación de servicios.

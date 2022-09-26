@@ -1,1 +1,1 @@
-Artículo 52°. La Junta Directiva y la Alta Gerencia, definirán las políticas de control interno, las estrategias de control que se aplicarán para conseguir estos objetivos y diseñarán la estructura del sistema de control interno de la compañía, de acuerdo con las necesidades de la misma, la legislación aplicable y las políticas internas del Grupo ICE.
+Artículo 52°. Formarán parte de la estructura de control interno y tendrán participación en el seguimiento de las políticas en esa materia además de la Auditoría Interna, el Comité de Auditoría.

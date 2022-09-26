@@ -1,2 +1,1 @@
-3.3 Junta Directiva
-Artículo 15°. Composición: La Junta Directiva está integrada de acuerdo con lo que define el artículo 8 de la Ley No. 3293 tres miembros del Instituto y dos de la Compañía Radiográfica, designación que corresponde a la Asamblea de Accionistas.
+Artículo 15°. Las decisiones del ICE como propietario en ningún caso podrán implicar una afectación a la autonomía que se deriva de las facultades legales y estatutarias, ni tampoco podrán conllevar un incumplimiento de los deberes legales y estatutarios de la Junta Directiva de RACSA.

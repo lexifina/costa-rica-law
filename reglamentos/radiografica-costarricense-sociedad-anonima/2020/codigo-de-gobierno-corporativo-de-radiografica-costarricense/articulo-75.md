@@ -1,1 +1,1 @@
-Artículo 75°. Para con sus clientes la Empresa se compromete al estricto cumplimiento de los requerimientos pactados ofreciéndoles un alto nivel de innovación en el desarrollo y prestación de servicios.
+Artículo 75. A los proveedores RACSA les ofrece un trato equitativo y transparente con relaciones basadas en el mérito.

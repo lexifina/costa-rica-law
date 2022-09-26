@@ -1,4 +1,3 @@
-Artículo 36°. Acceso y confidencialidad de la información.
-Para el ejercicio de sus responsabilidades como miembros de los Comités podrán acceder, a la información confidencial y pública o documentación que se disponga en RACSA y que se considere necesaria para el cumplimiento de sus funciones.
-Es deber de cada uno de los miembros del Comité, resguardar la información confidencial y sensible a la que tenga acceso, cuando así lo señale el respectivo documento o lo advierta el área responsable de dicha información y solo deberán utilizarla para los fines propios del Comité, y de acuerdo con las disposiciones definidas en los contratos de confidencialidad con la empresa.
-Los Comités de Apoyo podrán advertir que la información que se presentará a la Junta Directiva con respecto a un tema específico es de naturaleza confidencial.
+3.8 El Comité de Vigilancia.
+Artículo 36°. Composición. El Comité de Vigilancia está compuesto por tres integrantes designados por la Asamblea de Accionistas por un plazo igual al de la Junta Directiva y el método de selección es establecido por la Casa Matriz.
+Se encuentran inhibidos para ser parte de este Comité, quienes conforme a la ley estén inhabilitados para ejercer el comercio, los que desempeñen otro cargo en la sociedad y los cónyuges de los administradores y sus parientes consanguíneos y afines hasta el segundo grado, así como otros elementos inhibitorios que la Casa Matriz defina.

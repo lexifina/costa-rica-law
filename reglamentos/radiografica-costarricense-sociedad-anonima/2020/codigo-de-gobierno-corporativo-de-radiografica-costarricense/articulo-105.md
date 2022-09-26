@@ -1,2 +1,0 @@
-Artículo 105°. Idoneidad de los miembros del comité.
-Los miembros del comité deben ser personas con amplia experiencia profesional y laboral en su área de conocimiento, en los campos de evaluación y gestión riesgos, tecnologías de información, preferiblemente con conocimiento de aspectos regulatorios de la industria de la infocomunicación y de telecomunicaciones, de tal forma que les permita interactuar con conocimiento e independencia en temas de mediana a alta complejidad.

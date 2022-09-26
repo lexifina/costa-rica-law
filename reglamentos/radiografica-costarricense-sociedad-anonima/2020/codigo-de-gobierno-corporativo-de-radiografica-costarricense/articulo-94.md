@@ -1,2 +1,2 @@
-Artículo 94°. Idoneidad de los miembros del comité.
-Los miembros del comité deben ser personas con amplia experiencia profesional y laboral en su área de conocimiento, tal que les permita leer y comprender estados financieros de mediana a alta complejidad, preferiblemente con conocimientos y experiencia en temas de contabilidad, normas de información financiera, de elementos regulatorios de la industria de la infocomunicación y de telecomunicaciones, así como experiencia en la integración de órganos colegiados.
+CAPÍTULO IX. Disposiciones Finales
+Artículo 94°- Revisiones y actualizaciones. El Oficial de Cumplimiento de Gobierno Corporativo revisará anualmente el presente Código y planteará las modificaciones que estime pertinentes, las cuales serán valoradas para aprobación por la Junta Directiva.

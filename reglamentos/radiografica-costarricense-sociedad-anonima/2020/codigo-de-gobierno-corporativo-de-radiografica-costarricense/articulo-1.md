@@ -1,4 +1,5 @@
 RADIOGRÁFICA COSTARRICENSE S.A.
+(Nota de Sinalevi: Sobre este tema Radiográfica Costarricense Sociedad Anónima, aprobó un nuevo Código de gobierno corporativo de RACSA, en sesión N° 2475 del 25 de enero de 2024)
 Con fundamento en el acuerdo tomado por la Junta Directiva, en el artículo 3º de la sesión ordinaria Nº 2384 celebrada el 30 de marzo del 2022, se aprueba el Código de Ética, de Radiográfica Costarricense S.A., de la siguiente manera:
 CÓDIGO DE ÉTICA
 DE RADIOGRÁFICA COSTARRICENSE S.A.
@@ -39,6 +40,6 @@ Valores Empresariales: cualidades positivas para el desarrollo de actividades qu
 6.2. La Gerencia General de RACSA considera conveniente que RACSA cuente con un instrumento de este tipo que establezca en forma más precisa el marco de actuación de todo su personal con base en comportamientos apegados a sanos principios éticos considerando el marco ya establecido por la Corporación.
 6.3. La Junta Directiva como Jerarca de RACSA en cumplimiento de la normativa promulga el presente Código de Ética con el fin de promover, interiorizar y fortalecer una cultura sustentada en la ética y los valores que reflejen la imagen de RACSA.
 6.4. La Junta Directiva de RACSA de acuerdo con lo establecido en el artículo 188 del Código de Comercio y el numeral 6 del Reglamento de la Junta Directiva de RACSA es el órgano competente para aprobar el presente Código de Ética.
-(Nota de Sinalevi: El presente reglamento fue reformado parcialmente y reproducido su texto de forma íntegra mediante sesión N°2339 del 27 de julio del 2021, publicada en el Alcance Digital N° 161 a La Gaceta N° 155 del 13 de octubre del 2021 y se transcribe a continuación:)
-CAPÍTULO I Del Objetivo y Ámbito de Aplicación
-Artículo 1°. El propósito principal de este Código es garantizar el buen funcionamiento de los órganos de Gobierno y Dirección de Radiográfica Costarricense S.A. con el fin de mejorar la competitividad fomentar la creación de valor, la confianza y la transparencia ante el ICE como accionista, el Estado como propietario último y todas las partes interesadas.
+(Nota de Sinalevi: El presente reglamento fue reformado parcialmente y reproducido su texto de forma íntegra mediante sesión ordinaria N°2411 del 26 de setiembre del 2022, publicada en el Alcance Digital N° 216 a La Gaceta N° 191 del 7 de octubre del 2022 y se transcribe a continuación:)
+CAPÍTULO I. Del Objetivo y Ámbito de Aplicación
+Artículo 1°. Propósito. El propósito principal de este Código es garantizar el buen funcionamiento de los Órganos de Gobierno y Dirección de Radiográfica Costarricense S.A. con el fin de mejorar la competitividad, fomentar la creación de valor, la confianza y la transparencia ante el ICE como accionista, el Estado como propietario último y todas las partes interesadas.

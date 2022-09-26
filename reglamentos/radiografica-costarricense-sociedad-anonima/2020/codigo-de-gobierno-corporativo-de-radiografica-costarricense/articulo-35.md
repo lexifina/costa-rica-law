@@ -1,8 +1,3 @@
-Artículo 35°. Deberes. Son deberes de los miembros de los Comités de Apoyo de Junta Directiva los siguientes:
-1. Asistir, de forma presencial o virtual, a las sesiones ordinarias y extraordinarias, debiendo confirmar su participación.
-2. Justificar sus ausencias a las sesiones de previo o dos días después que se encuentre en la posibilidad real de justificarlo.
-3. Analizar los asuntos sometidos a su consideración, votar y razonar su voto cuando lo considere necesario.
-4. Guardar el debido sigilo, resguardo de la información sensible, estratégica y confidencial de RACSA, el ICE y sus empresas.
-5. Disponer, de los medios tecnológicos adecuados y el apoyo logístico necesario para sesionar de manera virtual, con los mecanismos de seguridad para garantizar la autenticidad e integridad de la voluntad del Órgano Colegiado, la conservación de lo actuado y la confidencialidad.
-6. Coordinar con el tiempo suficiente previo a la hora de inicio de la sesión virtual, para asegurar que tiene las condiciones necesarias para participar de forma segura en la sesión.
-7. Cumplir lo dispuesto en el "Código de Ética para Colaboradores de RACSA", "Política sobre Conflictos de Interés Grupo ICE" aprobada por el Consejo Directivo del ICE.
+Artículo 35°. Acceso y confidencialidad de la información. Para el ejercicio de sus responsabilidades como miembros de los Comités podrán acceder, a la información confidencial y pública o documentación que se disponga en RACSA y que se considere necesaria para el cumplimiento de sus funciones.
+Es deber de cada uno de los miembros del Comité, resguardar la información confidencial y sensible a la que tenga acceso, cuando así lo señale el respectivo documento o lo advierta el área responsable de dicha información, y solo deberán utilizarla para los fines propios del Comité, y de acuerdo con las disposiciones definidas en los contratos de confidencialidad con la Empresa.
+Los Comités de Apoyo podrán advertir que la información que se presentará a la Junta Directiva con respecto a un tema específico es de naturaleza confidencial, cumpliendo lo establecido en la política y procedimiento para la declaratoria de confidencialidad de la información.

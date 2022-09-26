@@ -1,2 +1,1 @@
-CAPITULO VI: Cultura de Gobierno Corporativo
-Artículo 78°. La cultura de Gobierno Corporativo se fomenta a partir de la implementación y práctica constante de todos los elementos descritos en este Código, así como actividades y sanas costumbres que terminan por profundizar los comportamientos adecuados en todo el personal.
+Artículo 78°. El objetivo de la Empresa es generar una cultura de Gobierno Corporativo orientada a una sólida gestión de riesgos, que permita la preservación del valor del patrimonio público y un crecimiento ordenado y rentable para el Grupo ICE.

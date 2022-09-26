@@ -1,1 +1,2 @@
-Artículo 77°. Como parte de sus políticas la Empresa busca lograr la mejor satisfacción de las necesidades nacionales o internacionales, según sus competencias, procurando el desarrollo económico y social en el ámbito en que se desempeña y usando para ello las mejores prácticas de mercado.
+CAPITULO VI. Cultura de Gobierno Corporativo
+Artículo 77°. La cultura de Gobierno Corporativo se fomenta a partir de la implementación y práctica constante de todos los elementos descritos en este Código, así como actividades y sanas costumbres que terminan por profundizar los comportamientos adecuados en todo el personal.

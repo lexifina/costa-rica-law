@@ -1,2 +1,2 @@
-CAPÍTULO XI Disposiciones Transitorias
-Transitorio I. - En un plazo de seis meses la Dirección Jurídica y Regulatoria en conjunto con el Oficial de Cumplimiento de Gobierno Corporativo deberán proceder a la revisión de la normativa interna que así lo requiera y proponer a la Junta Directiva los cambios que sean pertinentes de acuerdo con las disposiciones de este Código.
+CAPÍTULO X. Disposiciones Transitorias
+Transitorio I. En un plazo de seis meses el Oficial de Cumplimiento de Gobierno Corporativo en conjunto con la Dirección Jurídica y Regulatoria y la Gerencia General deberán proceder a la revisión de la normativa interna que así lo requiera y proponer a la Junta Directiva, en caso de que sea necesario, los cambios que sean pertinentes de acuerdo con las disposiciones de este Código.

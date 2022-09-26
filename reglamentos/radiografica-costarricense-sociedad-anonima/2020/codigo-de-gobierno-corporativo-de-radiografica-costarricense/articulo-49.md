@@ -1,1 +1,1 @@
-Artículo 49°. La Auditoría Interna debe fiscalizar que la administración se oriente al mejoramiento de los métodos y procedimientos de control interno, orientándolos para que redunden en una operación más eficiente y eficaz de la Empresa.
+Artículo 49°. La Auditoría Interna está bajo la responsabilidad de un Auditor Interno, nombrado por la Junta Directiva, a quien reporta, pero que cuenta con la autoridad e independencia necesarias para el cumplimiento de sus funciones de acuerdo con lo dispuesto por la legislación y normativa aplicables.

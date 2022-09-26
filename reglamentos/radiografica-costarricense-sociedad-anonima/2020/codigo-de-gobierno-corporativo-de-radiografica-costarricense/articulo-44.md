@@ -1,1 +1,1 @@
-Artículo 44°. Es responsabilidad de la Gerencia General proponer planes tácticos a la Junta Directiva alineados con la estrategia corporativa y una vez aprobadas, velar por su implementación, a la vez que se dedica a la supervisión de la gestión diaria del negocio.
+Artículo 44°. La Junta Directiva evaluará la gestión y cumplimiento de metas y objetivos estratégicos de forma periódica al Gerente General y a los Directores Funcionales, conforme a la normativa vigente.

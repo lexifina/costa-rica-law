@@ -1,1 +1,1 @@
-Artículo 87°: El Oficial de Cumplimiento de Gobierno Corporativo, deberá de trabajaren el desarrollo de relaciones constructivas basadas en la confianza con la Presidencia de la Junta Directiva, la Junta Directiva, la Gerencia, los mandos de Dirección Funcional y cualquier otra autoridad competente.
+Artículo 87°. El Oficial de Cumplimiento de Gobierno Corporativo deberá tener suficiente poder de decisión e independencia de la Gerencia General y Direcciones Ejecutivas, está adscrito y reportará directamente a la Junta Directiva.

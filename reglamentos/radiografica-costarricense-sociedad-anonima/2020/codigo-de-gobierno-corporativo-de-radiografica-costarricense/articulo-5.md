@@ -1,1 +1,1 @@
-Artículo 5°. Alcance. Las disposiciones establecidas en este Código son de aplicación obligatoria para todo el personal de Radiográfica Costarricense S.A. (RACSA), para los integrantes de sus órganos colegiados y partes interesadas.
+Artículo 5°. Alcance. Las disposiciones establecidas en este Código son de aplicación obligatoria para todo el personal de Radiográfica Costarricense S.A. (RACSA), para los integrantes de sus Órganos Colegiados y partes interesadas.

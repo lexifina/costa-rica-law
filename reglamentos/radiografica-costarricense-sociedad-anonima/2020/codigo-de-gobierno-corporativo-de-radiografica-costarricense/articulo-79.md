@@ -1,1 +1,1 @@
-Artículo 79°. El objetivo de la Empresa es generar una cultura de Gobierno Corporativo orientada a una sólida gestión de riesgos, que permita la preservación del valor del patrimonio público y un crecimiento ordenado y rentable para el Grupo ICE.
+Artículo 79°. La Junta Directiva y la Gerencia tomarán las medidas necesarias para comunicar a toda la organización las normas de Gobierno Corporativo y con ello internalizar esta cultura y fortalecer su aplicación.

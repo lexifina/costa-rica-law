@@ -1,2 +1,1 @@
-3.9 La Alta Gerencia
-Artículo 40°. La Alta Gerencia es la responsable del proceso de planeamiento, organización, dirección y control de los recursos organizacionales de RACSA, todo esto en función del logro de los objetivos establecidos por la Junta Directiva.
+Artículo 40°. La Alta Gerencia está constituida por aquellos funcionarios de la Empresa cuyos cargos fueren creados por la Junta Directiva y cuyas funciones impliquen el desarrollo de actividades de nivel ejecutivo, con la responsabilidad correspondiente del ejercicio de los cargos de administración. Incluye a la Gerencia General y a los Directores de las áreas funcionales de la Empresa que intervienen o tienen la posibilidad de intervenir en la toma de decisiones importantes dentro de la Empresa.

@@ -1,1 +1,2 @@
-Artículo 56°. Esta empresa deberá efectuar un examen detallado, sistemático y crítico, que deberá coordinar con el Comité de Auditoría y cuyos resultados conocerá la Junta Directiva y la Asamblea de Accionistas.
+4.3 Contraloría General de la República
+Artículo 56°. RACSA es una sociedad anónima sujeta a un régimen jurídico mixto, en el que está sujeta a los controles de Derecho Público sobre el manejo de sus fondos. Estos controles son ejercidos por la Contraloría General de la República.

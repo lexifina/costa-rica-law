@@ -1,1 +1,2 @@
-Artículo 71°. En enero de cada año la Junta Directiva con soporte del Oficial de Cumplimiento de Gobierno Corporativo realizará una autoevaluación sobre transparencia y divulgación, que permita medir el nivel de transparencia y la calidad de información que se ofrece periódicamente al público, ya sea en forma directa o indirecta.
+5.5 Responsabilidad social corporativa y reconocimiento de las partes interesadas.
+Artículo 71°. RACSA se define como una Empresa socialmente responsable que tiene entre sus compromisos realizar sus labores en armonía con el entorno, velando por sus aspectos ambientales y alineada con las metas de sostenibilidad del Estado costarricense y en concordancia con los objetivos de desarrollo sostenible.

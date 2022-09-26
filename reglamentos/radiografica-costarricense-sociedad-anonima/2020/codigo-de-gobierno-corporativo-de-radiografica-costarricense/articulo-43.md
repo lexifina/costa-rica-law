@@ -1,1 +1,1 @@
-Artículo 43°. La Gerencia General es la responsable ante la Junta Directiva del eficiente y correcto funcionamiento administrativo de la Empresa.
+Artículo 43°. Es responsabilidad de la Gerencia General proponer planes tácticos ante la Junta Directiva para su aprobación; y velar por su implementación, asegurando que estos se encuentren alineados con la estrategia empresarial y corporativa, a la vez que se dedica a la supervisión de la gestión diaria del negocio.

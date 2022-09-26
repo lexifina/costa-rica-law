@@ -1,2 +1,0 @@
-Transitorio VII. -El requisito establecido en el artículo 51, relativo a la necesidad de ser Licenciado en Contaduría Pública, será exigido a futuro, por respeto a los derechos adquiridos y situaciones jurídicas consolidadas. No obstante, para el siguiente concurso para nombramiento del Auditor Interno este requisito se incluirá como indispensable para ocupar dicho puesto."
-San José, 5 de agosto del 2021

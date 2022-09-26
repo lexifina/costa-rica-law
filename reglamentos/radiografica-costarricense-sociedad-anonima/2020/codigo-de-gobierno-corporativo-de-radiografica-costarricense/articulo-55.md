@@ -1,1 +1,1 @@
-Artículo 55°. La empresa a cargo de la auditoría externa será seleccionada por el Grupo ICE para todas las empresas integrantes del mismo, salvo que, por razones de conveniencia empresarial debidamente documentada, se podrá considerar otra opción.
+Artículo 55°. Esta empresa deberá efectuar un examen detallado, sistemático y crítico, que deberá coordinar con el Comité de Auditoría y cuyos resultados conocerá la Junta Directiva y la Asamblea de Accionistas.

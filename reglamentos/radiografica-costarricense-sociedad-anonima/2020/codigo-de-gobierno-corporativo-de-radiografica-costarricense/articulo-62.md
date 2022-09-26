@@ -1,3 +1,1 @@
-Artículo 62°. Se entiende que un administrador o empleado se encuentra en una situación de conflicto de interés cuando:
-a) En el ejercicio de sus funciones, debe tomar una decisión, o realizar u omitir una acción, y se encuentre en incapacidad de hacerlo objetivamente.
-b) Existe antagonismo entre el interés de la Empresa o los intereses de un tercero que deba defender y, de otra parte, su interés propio o el interés de un tercero relacionado.
+Artículo 62°. Todo administrador o empleado de RACSA tiene el deber de no involucrarse en situaciones que impliquen un conflicto de interés. Quien se encuentre o crea encontrarse en una situación como la anteriormente descrita, deberá abstenerse de intervenir, ya sea de forma directa o indirecta, en las deliberaciones, decisiones u otras actividades propias de sus funciones, en relación con el conflicto de interés identificado.

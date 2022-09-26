@@ -1,8 +1,2 @@
-Artículo 34°. Cese de funciones de los miembros. Los miembros de los Comité de Apoyo cesarán sus funciones:
-1. Cuando cese su nombramiento.
-2. Cuando pierdan su calidad de miembros independientes, a quienes así se exige.
-3. Por decisión de la Junta Directiva
-4. Por más de dos ausencias injustificadas en un mismo año calendario.
-5. Por renuncia.
-6. Por un tema de conflicto de Interés.
-7. Por incumplimiento a los deberes.
+Artículo 34°. Nombramiento de miembros externos de los Comités de apoyo de Junta Directiva. Los miembros externos de los Comités de Apoyo serán designados por la Junta Directiva de acuerdo con lo indicado en el Proceso de Selección y Reclutamiento de Miembros Externos de los Comités de Apoyo a la Junta Directiva.
+Quienes serán evaluados tomando como base los años de experiencia sustantiva para el cargo por desempeñar, el grado académico, logros profesionales relevantes en el campo de atinencia, integridad y reputación, experiencia previa como miembro de órganos colegiados, y otros que se consideren relevantes para cada Comité particular.

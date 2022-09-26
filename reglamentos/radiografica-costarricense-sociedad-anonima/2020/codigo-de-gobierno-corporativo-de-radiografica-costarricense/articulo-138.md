@@ -1,2 +1,0 @@
-Artículo 138°. Idoneidad de los miembros del Comité
-Los miembros del comité serán personas con amplia experiencia profesional y laboral en su área de conocimiento en los campos de la innovación y la planeación estratégica, tal que les permita comprender y gestionar los temas relativos a innovación y estrategia de mediana a alta complejidad, preferiblemente con conocimiento de elementos regulatorios de la industria de la infocomunicación y de telecomunicaciones, así como experiencia en la integración de órganos colegiados.

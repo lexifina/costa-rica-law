@@ -1,1 +1,1 @@
-Artículo 47°. La función de Auditoría Interna es independiente de las actividades que audita y se le debe dotar de suficientes recursos y autoridad para la ejecución de sus labores.
+Artículo 47°. A la Auditoría Interna le corresponde verificar el sistema de control implementado por la Administración que permita contar con la integridad de los procesos contables, las transacciones y operaciones de la sociedad.
