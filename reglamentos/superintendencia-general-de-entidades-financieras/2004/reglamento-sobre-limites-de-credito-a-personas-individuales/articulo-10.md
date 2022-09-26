@@ -1,6 +1,0 @@
-CAPÍTULO III
-Disposiciones finales
-Artículo 10.—Envío de información
-La entidad informará a la SUGEF de los cambios en la conformación de los grupos de interés económico, de la conformación de nuevos grupos y la eliminación de grupos existentes a más tardar el último día del mes en que se dio el cambio, conformación o eliminación. La SUGEF asignará un código de identificación a cada grupo de interés económico, que será suministrado a la entidad. Cuando surja un nuevo grupo de interés económico, la entidad deberá solicitar a la SUGEF el respectivo código de identificación, para efectos del informe sobre las operaciones activas otorgadas a los integrantes de los grupos de interés económico.
-Asimismo, la información sobre las operaciones activas del grupo de interés económico y de las personas individuales deberá remitirse en la información crediticia de las clases de datos personas, garantías y operaciones a más tardar el noveno, décimo y undécimo día hábil de acuerdo al grupo asignado por la SUGEF y en la información de la clase de datos Inversiones en Instrumentos Financieros y Depósitos a más tardar el sexto día hábil de cada mes, según los contenidos, formatos y medios que defina la SUGEF en el Manual de Información del Sistema Financiero.”
-(Así reformado el párrafo anterior en sesión N° 650 del 4 de junio de 2007)
