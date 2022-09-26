@@ -1,1 +1,0 @@
-Artículo 3°-El diésel utilizado en el país debe cumplir con los parámetros de calidad establecidos en los Reglamentos Técnicos Centroamericanos y las especificaciones de calidad establecidas en la norma INTE 41-01-03. Combustibles. Diésel. Especificaciones en su versión actualizada.

@@ -1,1 +1,0 @@
-Artículo 2°-La gasolina utilizada en el país debe cumplir con los parámetros de calidad establecidos en los Reglamentos Técnicos Centroamericanos y las especificaciones de calidad establecidas en la norma INTE 41-01-01 Combustibles Gasolina RON 91, Ron 95 y sus mezclas con etanol carburante anhidro desnaturalizado. Especificaciones en su versión más actualizada.
