@@ -1,0 +1,2 @@
+Artículo 60.-Potestad de Fiscalización de la Contraloría General de la República. La Contraloría General de la República, en el ejercicio de sus facultades de fiscalización superior, podrá requerir a la Municipalidad, cuando lo considere pertinente, la información que resulte necesaria para la verificación del cumplimiento del fin para el cual fue adquirido un terreno. Asimismo, fiscalizará que la Municipalidad ejerza los mecanismos de control implementados por ella.
+(Así adicionado en sesión N° 126 del 26 de setiembre de 2022)

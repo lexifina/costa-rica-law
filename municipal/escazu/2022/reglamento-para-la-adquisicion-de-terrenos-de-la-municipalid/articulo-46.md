@@ -1,0 +1,2 @@
+Articulo 46.-El Subproceso de Asuntos Jurídicos revisará que el expediente se encuentre completo, que contengan todos los estudios técnicos, así como el plano de agrimensura del terreno a adquirir por parte de la Municipalidad. El Subproceso de Asuntos Jurídicos emitirá un dictamen jurídico sobre la viabilidad jurídica de recibir el terreno como área de ampliación vial y lo trasladará a la Alcaldía Municipal.
+(Así adicionado en sesión N° 126 del 26 de setiembre de 2022)

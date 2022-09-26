@@ -1,1 +1,2 @@
-Artículo 28.-El Subproceso de Asuntos Jurídicos dictaminará la viabilidad jurídica de aceptar una donación, de resultar viable la donación propuesta, se emitirá dictamen positivo y será trasladado junto con el expediente a la Alcaldía Municipal. De resultar el dictamen negativo se comunicará junto con el expediente a la Alcaldía Municipal.
+Artículo 28.-El Subproceso de Asuntos Jurídicos en un plazo de 10 días hábiles dictaminará la viabilidad jurídica de aceptar una donación, de resultar viable la donación propuesta, se emitirá dictamen positivo y será trasladado junto con el expediente a la Alcaldía Municipal. De resultar el dictamen negativo se comunicará junto con el expediente a la Alcaldía Municipal.
+(Así reformado en sesión N° 126 del 26 de setiembre de 2022)

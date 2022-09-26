@@ -1,0 +1,2 @@
+Artículo 41.-Previo a dictar el acto de adjudicación, deberá constar en el expediente una justificación técnica en la cual se acredite que el bien es apto para la necesidad que se pretende satisfacer, haciendo referencia a la relación entre los fines y las características del inmueble. Adquirir un bien sin que se haya realizado este estudio generará responsabilidad disciplinaria.
+(Así adicionado en sesión N° 126 del 26 de setiembre de 2022)

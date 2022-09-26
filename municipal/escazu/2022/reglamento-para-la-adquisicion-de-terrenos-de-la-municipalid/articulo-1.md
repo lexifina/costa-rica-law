@@ -12,5 +12,8 @@ V.-Que a efectos de regularizar las situaciones de hecho y derecho, es necesario
 REGLAMENTO PARA LA ADQUISICIÓN DE TERRENOS
 DE LA MUNICIPALIDAD DE ESCAZÚ DESTINADOS
 AL DOMINIO PÚBLICO
-Disposiciones Generales
+(*)TÍTULO PRIMERO
+CAPÍTULO PRIMERO
+Disposiciones generales
+(*) (Así adicionado el título junto con su capítulo en sesión N° 126 del 26 de setiembre de 2022)
 Artículo 1º-EI presente Reglamento tiene como objetivo regular la adquisición de terrenos por cualquier forma permitida por el ordenamiento jurídico por parte de la Municipalidad de Escazú, que se requieran para satisfacer el interés público de los habitantes de cantón de Escazú.

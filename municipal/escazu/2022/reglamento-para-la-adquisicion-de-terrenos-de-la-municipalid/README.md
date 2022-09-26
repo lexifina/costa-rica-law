@@ -14,3 +14,4 @@ Reglamento para la adquisición de terrenos de la Municipalidad de Escazú desti
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-04-18 | la propia norma |
+| 2 | 2022-09-26 | Reglamento municipal 126 (2022-09-26) |

@@ -1,0 +1,2 @@
+Artículo 48.-La Municipalidad mediante la contratación de servicios Notariales realizará la escritura de traspaso de cesión de la franja de terreno destinada a ampliación vial, para ello encomendará al Subproceso de Asuntos Jurídicos para que realice las gestiones necesarias para lograr la inscripción del terreno a nombre de la Municipalidad.
+(Así adicionado en sesión N° 126 del 26 de setiembre de 2022)

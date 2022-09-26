@@ -1,0 +1,2 @@
+Artículo 56.-La Municipalidad tramitará la escritura pública de cesión mediante el servicio Notarial que tenga contratado o por la Notaria del Estado, para ello encomendará al Subproceso de Asuntos Jurídicos para que realice las gestiones necesarias ante la Notaria del Estado para lograr la inscripción del terreno a nombre de la Municipalidad.
+(Así adicionado en sesión N° 126 del 26 de setiembre de 2022)

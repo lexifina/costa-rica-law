@@ -1,0 +1,2 @@
+Artículo 44.-La Gerencia de Gestión Urbana solicitará por escrito a los procesos a su cargo los estudios, necesarios para conformar el expediente. Para la elaboración de dichos estudios las dependencias municipales cuentan con un plazo de 5 días hábiles a partir de la solicitud formal del mismo.
+(Así adicionado en sesión N° 126 del 26 de setiembre de 2022)

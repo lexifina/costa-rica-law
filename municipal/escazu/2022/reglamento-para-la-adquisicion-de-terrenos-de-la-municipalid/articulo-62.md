@@ -1,0 +1,2 @@
+Artículo 62.-La Auditoría Interna con fundamento en lo establecido al respecto por los artículos 4 de la Ley Orgánica de la Contraloría General de la República y 10, 12, 22 de la Ley General de Control Interno, podrá fiscalizar la actuación realizada durante todo el proceso de adquisición de terrenos que se tramiten en sede administrativa como judicial en aplicación a la normativa de control interno.
+(Así adicionado en sesión N° 126 del 26 de setiembre de 2022)
