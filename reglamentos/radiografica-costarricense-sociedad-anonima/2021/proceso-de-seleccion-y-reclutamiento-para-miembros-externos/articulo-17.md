@@ -1,3 +1,1 @@
-CAPÍTULO IV
-Disposiciones finales
-Artículo 17.-Vigencia. El presente Proceso de Selección rige a partir de su publicación en el Diario Oficial La Gaceta.
+Artículo 17. Reforma parcial. El presente documento reforma parcialmente el Proceso de Selección y Reclutamiento de Miembros Externos de los Comités de Apoyo a la Junta Directiva aprobado artículo 8º de la sesión ordinaria N° 2348 celebrada el 8 de setiembre del 2021.

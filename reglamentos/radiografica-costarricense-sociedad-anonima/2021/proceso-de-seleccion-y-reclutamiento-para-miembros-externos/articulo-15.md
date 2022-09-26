@@ -1,7 +1,1 @@
-CAPÍTULO III
-Obligaciones de los candidatos
-elegibles y miembros externos
-Artículo 15.-Deber de brindar información. El Departamento de Talento Humano y Cultura dentro del proceso invitación solicitará, como responsabilidad de los candidatos, que la información a incluirse se deba actualizar en el momento que:
-. Haya una modificación en la información brindada.
-. Talento Humano y Cultura así lo comunique.
-. Transcurran dos años desde su última actualización, caso contrario se eliminará del registro.
+Artículo 15. Todo miembro externo seleccionado deberá de cumplir con lo definido en el Código de Gobierno Corporativo de RACSA en lo que respecta a deberes y acceso y confidencialidad de la información, así como lo definido en su respectivo reglamento de funcionamiento.

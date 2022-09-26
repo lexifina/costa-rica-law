@@ -1,1 +1,2 @@
-Artículo16.-Todo miembro externo seleccionado deberá de cumplir con lo definido en el Código de Gobierno Corporativo de RACSA, en el Artículo 35 y 36 del Código de Gobierno Corporativo de RACSA en lo que respecta a Deberes y Acceso y Confidencialidad de la Información. Y lo definido en el Manual de Cumplimiento de Gobierno Corporativo.
+CAPITULO IV. Disposiciones finales
+Artículo 16. Vigencia. Este proceso regirá a partir de su publicación en el Diario Oficial La Gaceta.

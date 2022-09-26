@@ -1,1 +1,6 @@
-Artículo 14.-(Nota de Sinalevi: En la publicación de este reglamento, no aparece este artículo. No obstante el sistema exige una numeración consecutiva, por lo que se ha creado el mismo, pero sin texto.)
+CAPITULO III. Obligaciones de los candidatos elegibles y
+miembros externos
+Artículo 14. Deber de brindar información. El Departamento de Talento Humano y Cultura dentro del proceso de invitación solicitará, como responsabilidad de los candidatos, que la información a incluirse se deba actualizar en el momento que:
+I. Haya una modificación en la información brindada.
+II. El Departamento de Talento Humano y Cultura así lo comunique.
+III. Transcurran dos años desde su última actualización, caso contrario se eliminará del registro.
