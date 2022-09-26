@@ -14,3 +14,4 @@ Reglamento sobre Suficiencia Patrimonial de Grupos y Conglomerados Financieros (
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-01-01 | la propia norma |
+| 2 | 2022-09-26 | Reglamento 1759 (2022-09-26) |
