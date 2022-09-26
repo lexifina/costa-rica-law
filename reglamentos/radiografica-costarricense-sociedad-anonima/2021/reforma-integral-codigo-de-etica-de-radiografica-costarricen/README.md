@@ -14,3 +14,4 @@ Reforma Integral Código de ética de Radiográfica Costarricense
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-08-13 | la propia norma |
+| 2 | 2022-09-26 | Reglamento 2411 (2022-09-26) |
