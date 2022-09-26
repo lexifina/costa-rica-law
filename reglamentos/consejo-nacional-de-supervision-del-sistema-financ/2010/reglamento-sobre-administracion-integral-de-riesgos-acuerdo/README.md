@@ -29,3 +29,4 @@ Reglamento sobre Administración Integral de Riesgos (ACUERDO SUGEF 2-10)
 | 14 | 2022-04-25 | Reglamento 1727 (2022-04-25) |
 | 15 | 2022-05-27 | Reglamento 1734 (2022-05-27) |
 | 16 | 2022-08-29 | Reglamento 1752 (2022-08-29) |
+| 17 | 2022-09-26 | Reglamento 1759 (2022-09-26) |
