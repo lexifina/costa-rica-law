@@ -1,0 +1,1 @@
+Artículo 12.-Impedimentos a la independencia y objetividad. La organización de auditoría debe establecer políticas y procedimientos que permitan prevenir y detectar situaciones internas o externas que comprometan la independencia y la objetividad del personal que realiza el proceso de auditoría en la Municipalidad de Coto Brus.

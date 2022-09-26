@@ -1,0 +1,6 @@
+Artículo 53.-Servicios de Auditoría. Los servicios de auditoría proporcionarán exámenes objetivos en relación con los procesos de administración del riesgo, control y dirección, así como asuntos específicos de la institución, con el fin de proveer evaluaciones independientes orientadas a impulsar mejoras en la gestión, fortalecer la capacidad de rendición de cuentas y facilitar la toma de decisiones.
+Estos servicios de auditoría, abarcan la Municipalidad de Coto Brus y los órganos y entes de su competencia institucional, incluidos los sujetos privados que reciban transferencias de la Municipalidad.
+El Auditor, comunicará los resultados de los servicios de auditoría, mediante los siguientes informes, según corresponda:
+1. Informes de control interno. Documento mediante el cual la auditoría comunica formalmente al ente auditado, los resultados de la Auditoría efectuada, incluyendo las respectivas conclusiones y recomendaciones.
+Los informes de control interno, parciales y finales, están sujetos al trámite y a los plazos improrrogables previstos en la Ley General de Control Interno.
+2. Informes de seguimiento de recomendaciones. Documento mediante el cual la Auditoría comunica formalmente al ente auditado, los avances y las observaciones que haya realizado la Administración sobre la implementación de las recomendaciones emitidas por la Auditoría Interna.

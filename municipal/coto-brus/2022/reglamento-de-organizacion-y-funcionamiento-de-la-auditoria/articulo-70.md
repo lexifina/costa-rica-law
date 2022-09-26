@@ -1,0 +1,12 @@
+Artículo 70.-Cierre de libros.
+a) Solicitud de cierre. La persona a cargo del libro deberá presentar la solicitud de cierre y el libro para cerrar. Dicha solicitud debe estar firmada y se debe consignar en la misma, el tipo de libro a cerrar, el número de tomo, la cantidad de folios, el folio inicial y el folio final.
+b) Libros que se cierran. Los libros que se cierran son los mismos que se autorizan mediante razón de apertura, por la Auditoría Interna. En el caso de utilización de hojas sueltas o fórmula continua se presentarán para su cierre previamente encuadernado (acción y efecto de unir las hojas mediante cosido o pegado y con sus respectivas cubiertas). La razón de cierre se hará después de la última anotación en el libro.
+c) Requisitos de los libros que se cierran. Para este trámite será necesario considerar lo siguiente:
+1. Los libros deben encontrarse en buen estado, que no se hayan arrancado folios o alterado de alguna manera la encuadernación o foliación de los libros, que no presenten folios con tachaduras, borrones y correcciones, que hagan dudar de la autenticidad de la información que contienen.
+2. Cualquier equivocación u omisión que se cometa en los libros ha de salvarse por medio de un nuevo registro en la fecha en que se advierta el error, y se pondrá al margen del registro equivocado, preferiblemente con una tinta diferente, una nota indicando que está errado y el folio donde se encuentra la corrección respectiva, que debe ser firmada por la persona responsable.
+3. Los libros deben contener la totalidad de folios. Las hojas anuladas o inutilizadas deben continuar figurando en el lugar que les corresponde a efecto de no alterar el orden de los folios.
+4. Los folios deberán estar numerados de forma consecutiva. No debe quedar ninguna página sin número de folio respectivo.
+5. Tratándose de libros compuestos por hojas de fórmula continua u hojas sueltas, deberán igualmente estar numeradas y contener impreso el logotipo o nombre de la institución en cada una de las hojas.
+6. La información que contiene el libro debe encontrarse en orden progresivo de fechas y escrita en castellano.
+7. El libro debe contener la razón de apertura y cada uno de los folios del libro debe tener estampado el sello de la Auditoría Interna.
+8. Las actas de los órganos colegiados deben estar firmadas por el Presidente y el Secretario de Actas, en la aprobación de materia presupuestaria deberá además, contener la firma del Alcalde Municipal.

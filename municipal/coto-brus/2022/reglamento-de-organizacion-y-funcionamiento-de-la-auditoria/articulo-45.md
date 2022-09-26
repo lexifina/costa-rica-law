@@ -1,0 +1,1 @@
+Artículo 45.-Programa de aseguramiento de la calidad. El Auditor deberá desarrollar, aplicar, mantener y perfeccionar un programa de aseguramiento de la calidad que cubra los aspectos de la actividad de la Auditoría Interna, mediante evaluaciones internas y externas.

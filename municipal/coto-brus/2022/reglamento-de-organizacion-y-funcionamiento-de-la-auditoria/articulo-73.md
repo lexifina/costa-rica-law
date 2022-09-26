@@ -1,0 +1,1 @@
+Artículo 73.-Retiro de libros. Los libros deben de ser retirados por la persona que los tiene a cargo. Si esa persona no se puede presentar, quien realice el trámite deberá estar debidamente autorizado por escrito.

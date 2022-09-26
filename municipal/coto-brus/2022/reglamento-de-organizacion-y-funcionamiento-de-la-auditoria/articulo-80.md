@@ -1,0 +1,1 @@
+Artículo 80.-Derogatoria. Se deroga el Reglamento de Organización y Funcionamiento de la Auditoría Interna de la Municipalidad de Coto Brus, publicado en el Alcance Digital Nº 93 a La Gaceta Nº 80 del 28 de abril del 2017.

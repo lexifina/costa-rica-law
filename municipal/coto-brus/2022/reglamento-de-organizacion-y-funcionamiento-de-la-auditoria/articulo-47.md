@@ -1,0 +1,3 @@
+Artículo 47.-Utilización de "realizado de acuerdo con las normas". Los funcionarios de la Auditoría Interna, en el ejercicio de sus facultades, deberán informar que sus actividades fueron realizadas de acuerdo con la normativa aplicable al ejercicio de la Auditoría Interna.
+Sólo podrán utilizar esta declaración si las evaluaciones del programa de mejoramiento de calidad demuestran que la actividad de la Auditoría cumple con esas normas.
+Cuando el incumplimiento de las normas afecte el alcance general o el funcionamiento de la actividad de la Auditoría Interna, deberá declararse y justificarse formalmente, así como realizar las gestiones correspondientes.

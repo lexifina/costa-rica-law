@@ -1,0 +1,3 @@
+CAPÍTULO V
+Del resto del personal de la auditoría interna
+Artículo 36.-Disposiciones. Los funcionarios de la Auditoría, con la excepción del Auditor y el Subauditor Interno que dependen orgánicamente del Concejo Municipal, estarán sujetos a las disposiciones administrativas aplicables al resto del personal de la Municipalidad. Esas disposiciones no deberán afectar negativamente la actividad de la Auditoría, la independencia funcional y de criterio de ese personal; en caso de duda, la Contraloría General dispondrá lo correspondiente, acorde con lo dispuesto en la Ley General de Control Interno.

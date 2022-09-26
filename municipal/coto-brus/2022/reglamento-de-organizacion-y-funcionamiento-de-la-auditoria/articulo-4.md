@@ -1,0 +1,1 @@
+Artículo 4º-Responsabilidad del Reglamento. El Auditor Interno tendrá la obligación de elaborar, coordinar, actualizar, divulgar y hacer cumplir el contenido de este Reglamento, conforme a la normativa legal y técnica pertinente.

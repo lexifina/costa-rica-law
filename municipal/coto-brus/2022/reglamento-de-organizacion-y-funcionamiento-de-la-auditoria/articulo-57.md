@@ -1,0 +1,1 @@
+Artículo 57.-Servicios de advertencia. Consiste en prevenir a la administración activa, por escrito, sobre los posibles riesgos y consecuencias de determinadas conductas o decisiones a contrapelo del ordenamiento jurídico y técnico, que resulten del conocimiento de la Auditoría Interna.

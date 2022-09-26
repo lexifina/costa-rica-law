@@ -1,0 +1,1 @@
+Artículo 9º-Independencia funcional. Por su función asesora al máximo jerarca institucional y el alto nivel que la distingue de los demás estratos, la Auditoría Interna dependerá directamente del Concejo Municipal.

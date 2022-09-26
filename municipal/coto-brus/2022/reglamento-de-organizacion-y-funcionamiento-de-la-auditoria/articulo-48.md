@@ -1,0 +1,3 @@
+Artículo 48.-Planificación de la actividad. El Auditor y los funcionarios de la auditoría, según proceda deberán administrar efectivamente la actividad de la Auditoría Interna, para asegurar que agregue valor a la Gestión Municipal.
+El Auditor Interno deberá establecer planes basados en criterios razonables y fundamentados, especialmente en una valoración del riesgo, a fin de determinar las prioridades de la actividad de la Auditoría Interna. Dichos planes deberán ser consistentes con los objetivos de la Municipalidad.
+La planificación de la Auditoría debe permitir un normal desarrollo del proceso, de manera que se facilite su administración, ejecutando un uso eficiente de los recursos y que se puedan incorporar los ajustes que sean necesarios.

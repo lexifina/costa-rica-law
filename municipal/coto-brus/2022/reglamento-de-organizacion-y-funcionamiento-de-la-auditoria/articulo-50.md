@@ -1,0 +1,1 @@
+Artículo 50.-Administración de los recursos. El Auditor deberá asegurarse de que los recursos de la Auditoría Interna sean adecuados, suficientes y efectivamente asignados para cumplir con su plan de trabajo, teniendo libertad para ejecutar sus recursos presupuestarios. Si hay limitaciones, deberá informar de esa situación al Concejo Municipal para su oportuna atención.
