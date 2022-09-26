@@ -1270,3 +1270,55 @@ CONCEPTO: Esta cuenta analítica registra el importe de la estimación a deudore
 En cuanto al Anexo 2 Plan de Cuentas y al Anexo 4 Catálogo de Cuentas, para las entidades supervisadas por SUGESE, del Acuerdo CONASSIF 6-18, Reglamento de Información Financiera (Antes Acuerdo SUGEF 30-18): dispuso en firme:
 agregar la cuenta analítica "1.030.090.020.M.050 (Componente para Deudores no Generadores)", en el Anexo 2 del Plan de Cuentas y el Anexo 4 Catálogo de Cuentas, para las entidades supervisadas por SUGESE, de conformidad con el siguiente texto: "1.030.090.020.M.050 (Componente para Deudores con Exposición a Riesgo Cambiario)
 CONCEPTO: Esta cuenta analítica registra el importe de la estimación a deudores con exposición a riesgo cambiario, de conformidad con lo dispuesto en el marco de regulación vigente.")
+(Nota de Sinalevi: Mediante el inciso c) del artículo 116 del Reglamento sobre supervisión consolidada (Acuerdo CONASSIF 16-22), aprobado mediante session N° 1759-2022 del 26 de setiembre del 2022 reforma el Anexo 1. Plan de cuentas para las entidades supervisadas por SUGEF, SUGEVAL y SUPEN, los grupos y conglomerados financieros y Anexo 2. Catálogo de cuentas para las entidades supervisadas por SUGEF, SUGEVAL y SUPEN, los grupos y conglomerados financieros, del Reglamento de Información Financiera, conforme se indica seguidamente:
+1. Se modifica el concepto y se adicionan cuentas analíticas a la subcuenta 121.99 de la cuenta
+121 Inversiones al Valor Razonable con Cambios en Resultado, conforme con el siguiente texto:
+"SUBCUENTA
+121.99 Otros instrumentos financieros al valor razonable con cambios en resultados CONCEPTO: En esta subcuenta se registran las inversiones realizadas por la entidad en participaciones en fondos de inversión abiertos y cerrados en entidades del país y del exterior e incluye otros activos para negociar no comprendidas en las subcuentas anteriores.
+CUENTAS ANALÍTICAS
+[.]
+No. CUENTA | CONCEPTO | SUGEF | SUGEVAL | SUPEN
+12199M03 | Participaciones fondos inversión cerrados del país | x | x |
+12199M04 | Participaciones fondos inversión cerrados del exterior | x | x |
+12199M05 | Ajuste por valuación de otros instrumentos financieros al valor razonable con cambios en resultados | x | x |
+[...]"
+2. Se adicionan las siguientes subcuentas, denominadas 123.12 Reporto tripartito posición vendedor a plazo - Recursos propios y 123.14 Operaciones Diferidas de Liquidez -Recursos propios y sus respectivas cuentas analíticas de la cuenta 123 Inversiones al Costo Amortizado, conforme con el siguiente texto:
+"123.12 Reporto y reporto tripartito posición vendedor a plazo - Recursos propios CONCEPTO: En esta subcuenta se registran los importes desembolsados por la entidad con recursos propios, para la adquisición, a través de una bolsa de valores, de reporto y reporto tripartito (recompras) con el compromiso de revenderlos en un plazo y a un precio convenido. En el caso de los reportos tripartitos, los instrumentos financieros subyacentes se mantienen en un fideicomiso de garantía, administrado por la Bolsa Nacional de Valores para garantizarle al inversionista (posición vendedora a plazo) la recuperación de lo invertido.
+Además, esta subcuenta incluye las operaciones de reporto, que consiste en un contrato u operación de crédito mediante el cual el reportador adquiere por una suma de dinero, la propiedad de instrumentos financieros y se obliga a transferir al reportado la propiedad de otros tantos instrumentos financieros de la misma especie en el plazo convenido, y contra el reembolso del mismo precio más un premio.
+CUENTAS ANALÍTICAS
+No. CUENTA | CONCEPTO | SUGEF | SUGEVAL | SUPEN
+12312M01 | Operaciones de Reporto tripartito Mercado bursátil | X | X | X
+12312M02 | Operaciones de Reporto Mercado bursátil | X | X | X
+12312M03 | Operaciones de Mercado de Liquidez | X | X | X
+12312M04 | Operaciones de Mercado Interbancario de Dinero | X | X | X"
+SUBCUENTA
+123.14 Operaciones Diferidas de Liquidez -Recursos propios
+CONCEPTO: En esta subcuenta se registra el derecho de cobro que tiene el supervisado por haber participado en el Mercado Integrado de Liquidez del Banco Central de Costa Rica.
+CUENTAS ANALÍTICAS
+No. CUENTA | CONCEPTO | SUGEF | SUGEVAL | SUPEN
+12314000 | Operaciones Diferidas de liquidez - Recursos propios | X | X | X
+12314M01 | Contraparte B.C.C.R. con o sin garantía | X | X | X
+12314M08 | Otras contrapartes con garantía | X | X |
+12314M09 | Otras contrapartes sin garantía | X | X" |
+")
+(Nota de Sinalevi: Mediante el inciso d) del artículo 116 del Reglamento sobre supervisión consolidada (Acuerdo CONASSIF 16-22), aprobado mediante session N° 1759-2022 del 26 de setiembre del 2022 reforma el Anexo 2: Plan de cuentas para las entidades supervisadas por SUGESE y Anexo 4: Catálogo de cuentas para las entidades supervisadas por SUGESE, del Reglamento de Información Financiera, para adicionar las siguientes subcuentas y cuentas analíticas pertenecientes a la subcuenta 1.020.010.990 Otros instrumentos financieros al Valor Razonable con cambios en resultados y a la cuenta 1.020.030 Inversiones al Costo Amortizado, conforme con el siguiente texto:
+"1.020.010.990 Otros instrumentos financieros al Valor Razonable con cambios en resultados CONCEPTO: En esta subcuenta se registran las inversiones realizadas por la entidad en participaciones en fondos de inversión abiertos y cerrados en entidades del país y del exterior y en otros activos para negociar no comprendidas en las anteriores subcuentas.
+CUENTAS ANALÍTICAS
+[...]
+1.020.010.990.M.030 Participaciones fondos inversión cerrados del país
+1.020.010.990.M.040 Participaciones fondos inversión cerrados del exterior
+1.020.010.990.M.050 Ajuste por valuación de otros instrumentos financieros al valor razonable con cambios en resultados"
+"1.020.030.120 Reporto y reporto tripartito posición vendedor a plazo recursos propios CONCEPTO: En esta subcuenta se registran los importes desembolsados por la entidad con recursos propios, para la adquisición, a través de una bolsa de valores, de reporto y reporto tripartito (recompras) con el compromiso de revenderlos en un plazo y a un precio convenido.
+En el caso de los reportos tripartitos, los instrumentos financieros subyacentes se mantienen en un fideicomiso de garantía, administrado por la Bolsa Nacional de Valores para garantizarle al inversionista (posición vendedora a plazo) la recuperación de lo invertido.
+Además, esta subcuenta incluye las operaciones de reporto, que consiste en un contrato u operación de crédito mediante el cual el reportador adquiere por una suma de dinero, la propiedad de instrumentos financieros y se obliga a transferir al reportado la propiedad de otros tantos instrumentos financieros de la misma especie en el plazo convenido, y contra el reembolso del mismo precio más un premio.
+CUENTAS ANALÍTICAS
+1.020.030.120.M.010 Operaciones de Reporto tripartito Mercado bursátil
+1.020.030.120.M.020 Operaciones de Reporto Mercado bursátil
+1.020.030.120.M.030 Operaciones de Mercado de Liquidez
+1.020.030.120.M.040 Operaciones de Mercado Interbancario de Dinero"
+1.020.030.140 Operaciones Diferidas de liquidez - Recursos propios
+CONCEPTO: En esta subcuenta se registra el derecho de cobro que tiene el supervisado por haber participado en el Mercado Integrado de Liquidez del Banco Central de Costa Rica.
+CUENTAS ANALÍTICAS
+1.020.030.120.M.010 Contraparte B.C.C.R. con o sin garantía
+1.020.030.120.M.080 Otras contrapartes con garantía
+1.020.030.120.M.090 Otras contrapartes sin garantía")
