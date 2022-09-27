@@ -17,3 +17,4 @@ Medidas administrativas temporales prestación adecuada y responsable de los ser
 | 2 | 2021-12-21 | Resolución 197 (2021-12-21) |
 | 3 | 2022-01-10 | Resolución 7 (2022-01-10) |
 | 4 | 2022-08-05 | Resolución 122 (2022-08-05) |
+| 5 | 2022-09-27 | Resolución 144 (2022-09-27) |
