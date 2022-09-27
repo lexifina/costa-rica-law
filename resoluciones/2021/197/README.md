@@ -15,3 +15,4 @@ Reforma Medidas administrativas temporales prestación adecuada y responsable de
 | --- | --- | --- |
 | 1 | 2022-01-10 | la propia norma |
 | 2 | 2022-01-10 | Resolución 7 (2022-01-10) |
+| 3 | 2022-09-27 | Resolución 144 (2022-09-27) |
