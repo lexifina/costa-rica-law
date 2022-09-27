@@ -1,1 +1,0 @@
-Artículo 15.—La selección de los abogados se tramitará previa comprobación de atestados y de su legalidad para ejercer la profesión. El profesional escogido debe firmar un contrato de servicios profesionales con la Municipalidad.

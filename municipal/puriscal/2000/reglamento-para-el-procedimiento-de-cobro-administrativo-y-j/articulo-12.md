@@ -1,1 +1,0 @@
-Artículo 12.—La distribución de las cuentas atrasadas se hará en forma aleatoria. No se tomarán en cuenta aquellos abogados que se encuentren suspendidos por incumplimiento de las disposiciones de este Reglamento.

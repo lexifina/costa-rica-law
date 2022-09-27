@@ -1,1 +1,0 @@
-Artículo 18.—Los abogados no podrán aceptar casos de litigio en contra de la Municipalidad; en forma simultánea a tener ligámenes activos con la Municipalidad. El incumplimiento de esta disposición hará que su nombramiento quede revocado automáticamente como abogado encargado de la gestión de cobro municipal.

@@ -1,1 +1,0 @@
-Artículo 30.—Los arreglos de pago implicarán la concesión de un mayor tiempo para cumplir con las deudas pendientes. En esta situación la Municipalidad y el contribuyente acuerdan diferir (prorratear) la deuda en un plazo de hasta diez meses, sin desconocer la acumulación y el cumplimiento de las nuevas obligaciones, más las multas y los intereses moratorias de la ley.
