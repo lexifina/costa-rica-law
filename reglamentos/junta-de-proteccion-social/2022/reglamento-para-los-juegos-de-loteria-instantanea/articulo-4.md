@@ -1,0 +1,1 @@
+Artículo Nº 4: Plan de Premios: La Junta Directiva será la encargada de aprobar los planes de premios de los juegos de Lotería Instantánea, de conformidad con lo establecido en el artículo 5 de la Ley 8718, los cuales serán publicados en el Diario Oficial La Gaceta.
