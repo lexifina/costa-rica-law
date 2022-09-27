@@ -1,3 +1,0 @@
-Artículo 20.—Este reglamento modifica y actualiza el procedimiento Nº1 del Manual de procedimientos financiero Contable de la Municipalidad de Puriscal, según el artículo 114 del Código Municipal y deroga el reglamento de caja chica publicado en el Diario Oficial La Gaceta 226 del 24 de noviembre del 2006. Los procedimientos que requiera este reglamento se ajustaran a los sistemas electrónicos que pondrá en vigencia la Municipalidad.
-Reglamento aprobado en la sesión ordinaria N° 211, celebrada por el Concejo Municipal del cantón de Puriscal, el 12 de marzo 2019, mediante acuerdo definitivamente aprobado Nº 014-211-2019.
-Vigencia. Rige a partir de su publicación en el Diario Oficial La Gaceta.

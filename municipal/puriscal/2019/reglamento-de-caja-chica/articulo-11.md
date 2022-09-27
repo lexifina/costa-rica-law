@@ -1,1 +1,0 @@
-Artículo 11.—Si al efectuar el arqueo resultare un faltante, el encargado del fondo deberá suplirlo de forma inmediata después de que este se haya detectado. Dependiendo de las circunstancias en que se hubiere originado dicho faltante, podrá considerarse falta simple, grave y hacerse acreedor de las sanciones correspondientes establecidas en el artículo 149 del Código Municipal.
