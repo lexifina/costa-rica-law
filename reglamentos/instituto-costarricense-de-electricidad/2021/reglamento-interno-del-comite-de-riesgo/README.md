@@ -14,3 +14,4 @@ Reglamento interno del Comité de riesgo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-07-15 | la propia norma |
+| 2 | 2022-09-27 | Reglamento 6546 (2022-09-27) |
