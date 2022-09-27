@@ -4,4 +4,4 @@ b. Aprobación de actas anteriores.
 c. Seguimiento al control de acuerdos, si los hubiere.
 d. Análisis de los temas agendados.
 e. Asuntos varios.
-f. Ratificación de acuerdo y cierre de sesión.
+f. Aprobación y Ratificación de acuerdo y cierre de sesión.

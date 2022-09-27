@@ -1,1 +1,1 @@
-Artículo 17.—Salvedad de voto y opinión. Cualquiera de los miembros de la Comisión podrá salvar justificadamente su voto en los procesos de votación que eventualmente tuvieran lugar en el seno del órgano colegiado, así mismo, podrá solicitar que su opinión sea incluida expresamente en el acta.
+Artículo 17.—Salvedad de voto y opinión. Cualquiera de los miembros de la Comisión podrá salvar justificadamente su voto en los procesos de votación que tengan lugar en el seno del órgano colegiado, así mismo, podrá solicitar que su opinión sea incluida expresamente en el acta.

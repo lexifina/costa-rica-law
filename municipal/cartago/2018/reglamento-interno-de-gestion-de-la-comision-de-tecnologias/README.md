@@ -14,3 +14,4 @@ Reglamento interno de gestión de la comisión de tecnologías de información y
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-10-31 | la propia norma |
+| 2 | 2022-09-27 | Reglamento municipal 0 (2022-09-27) |
