@@ -39,53 +39,52 @@ En los embargos cuyo capital supere los ¢2.000.000.00, pero sin pasar de ¢3.00
 Los embargos que excedan de ese capital máximo más el porcentaje de Ley, cualquiera que sea el monto. | ?27 900,00 | ¢ 28 820,70 | ¢ 28 900,00
 Nota: 1. La variación interanual del IPC a diciembre de 2022 es de 3,30%. El INEC actualizó la base del IPC en enero del 2021. Para evitar la ruptura en la continuidad de las series, el nivel de este indicador se "enlazó", de enero 2021 hacia atrás, con las variaciones registradas por el nivel general del IPC con las bases anteriores. 2. Debe considerarse lo dispuesto en la circular N 86-2019 del 28 de junio del 2019, emitida por esta Dirección Ejecutiva, donde se establece que cuando el pago de los honorarios corresponda a las partes dentro del proceso, la Autoridad Judicial deberá indicar en la resolución el monto que corresponde depositar contemplando los honorarios más el 13% del IVA. Además, debe solicitar a la parte señalar una dirección de correo electrónico, al cual el profesional que brinde el servicio debe remitir la factura electrónica.
 CUADRO No. 3
-Tarifas de Honorarios de Peritos y Peritas en Trabajo Social y Psicología, para Valoraciones Psicosociales (Variación IPC: 3,30%)
-Rige a partir del 01 de enero 2022
-| | |
-Detalle | Monto por valoración (aplicado en 2021) | Porcentaje de actualización (3,30% Variación IPC) | Monto total actualizado 2022
-(redondeado a la centena superior próxima)
-Peritos Trabajadores Sociales y Psicólogos (Valoraciones Psicosociales, Adopciones) | ¢ 129 700,00 | ¢ 133 980,10 | ¢ 134 000,00
-Utilidad y Necesidad | ¢ 105 900,00 | ¢ 109 394,70 | ¢ 109 400,00
-Suspensión Patria Potestad | ¢ 211 400,00 | ¢ 218 376,20 | ¢ 218 400,00
-Guarda Crianza y Educación | ¢ 159 300,00 | ¢ 164 556,90 | ¢ 164 600,00
-Régimen de Visitas | ¢ 95 700,00 | ¢ 98 858,10 | ¢ 98 900,00
-Divorcio | ¢ 105 900,00 | ¢ 109 394,70 | ¢ 109 400,00
-Autorización Salida del País | ¢ 73 700,00 | ¢ 76 132,10 | ¢ 76 200,00
-Insania | ¢ 74 100,00 | ¢ 76 545,30 | ¢ 76 600,00
-Ordinario | ¢ 95 700,00 | ¢ 98 858,10 | ¢ 98 900,00
-Homicidio Calificado | ¢ 105 900,00 | ¢ 109 394,70 | ¢ 109 400,00
-Nota: 1. La variación interanual del IPC a diciembre de 2022 es de 3,30%. El INEC actualizó la base del IPC en enero del 2021. Para evitar la ruptura en la continuidad de las series, el nivel de este indicador se "enlazó", de enero 2021 hacia atrás, con las variaciones registradas por el nivel general del IPC con las bases anteriores. 2. Debe considerarse lo dispuesto en la circular N 86-2019 del 28 de junio del 2019, emitida por esta Dirección Ejecutiva, donde se establece que cuando el pago de los honorarios corresponda a las partes dentro del proceso, la Autoridad Judicial deberá indicar en la resolución el monto que corresponde depositar contemplando los honorarios más el 13% del IVA. Además, debe solicitar a la parte señalar una dirección de correo electrónico, al cual el profesional que brinde el servicio debe remitir la factura electrónica.
-CUADRO No. 4
-Tarifas de Honorarios por Servicios Médicos Forenses y Especialidades Médicas
-Honorarios actualizados según el Índice de Precios al Consumidor (Variación IPC: 3,30%)
-Rige a partir del 01 de enero de 2022
-| | |
-Peritaje, tipo de valoración o exámenes | Honorarios (aplicados 2021) | Porcentaje de actualización | Honorarios actualizados 2022 (redondeado a la centena superior próxima)
-3,30% IPC
-Análisis, diagnóstico y reporte anatomopatológico, neuropatológico o histopatológico. (Este rubro es propuesto por el Departamento de Medicina Legal, dado que no se regula en el cuadro de honorarios del CMC, se aplicará el IPC) | ?25 700,00 | ?26 548,10 | ?26 600,00
-Reporte de estudios de imágenes médicas (radiografías, ultrasonidos) No se incluye en estos reportes los ultrasonidos con y sin Doppler y TAC con y sin contraste, contemplados en el cuadro No. 6. | ?8 900,00 | ?9 193,70 | ?9 200,00
-Exámenes complementarios:
-Audiometría | ?17 400,00 | ?17 974,20 | ?18 000,00
-Pruebas Dermatológicas de Parches y otros | ?20 700,00 | ?21 383,10 | ?21 400,00
-Pruebas de capacidad respiratoria | ?23 100,00 | ?23 862,30 | ?23 900,00
-Electroencefalograma | ?34 800,00 | ?35 948,40 | ?36 000,00
-Electromiografía de miembros superiores | ?46 200,00 | ?47 724,60 | ?47 800,00
-Electromiografía de los cuatro miembros | ?126 200,00 | ?130 364,60 | ?130 400,00
-Electrocardiograma | ?23 300,00 | ?24 068,90 | ?24 100,00
-Radiografía de huesos | ?11 800,00 | ?12 189,40 | ?12 200,00
-Radiografía de tórax | ?16 500,00 | ?17 044,50 | ?17 100,00
-Radiografía de columna lumbosacra | ?16 500,00 | ?17 044,50 | ?17 100,00
-Estudios oftalmológicos complementarios | ?23 300,00 | ?24 068,90 | ?24 100,00
-Antropología Forense (Estudio en la Morgue Judicial) | ?194 800,00 | ?201 228,40 | ?201 300,00
-Estudio de Campo de antropología Forense para levantamiento de restos óseos. | ?229 400,00 | ?236 970,20 | ?237 000,00
-Reconocimientos (exámenes) clínicos en caso de lesiones con su respectivo dictamen. | ?17 600,00 | ?18 180,80 | ?18 200,00
-Reconocimiento de cadáveres y emisión del respectivo certificado de defunción. | ?28 800,00 | ?29 750,40 | ?29 800,00
-Estudio de documentos médicos sin el reconocimiento clínico (Por cada expediente médico aportado por la Autoridad Judicial). | ?11 800,00 | ?12 189,40 | ?12 200,00
-Las ampliaciones y/o aclaraciones. Hechas por la autoridad Judicial. | ?6 100,00 | ?6 301,30 | ?6 400,00
-Si el médico tuviera que trasladarse para algún reconocimiento. | ?11 800,00 | ?12 189,40 | ?12 200,00
-Notas:
-1. La variación interanual del IPC a diciembre de 2021 es de 3,30%. El INEC actualizó la base del IPC en enero del 2021. Para evitar la ruptura en la continuidad de las series, el nivel de este indicador se "enlazó", de enero 2021 hacia atrás, con las variaciones registradas por el nivel general del IPC con las bases anteriores.
-2. Se debe aplicar el 13% del IVA, por tratarse de honorarios que se pagan a los profesionales médicos como auxiliares de la administración de justicia, por lo tanto, no se aplica la tarifa reducida establecida en el Artículo 11 inciso 1.b. de la Ley 9635 de Fortalecimiento de las Finanzas Públicas.
+Actualización de Tarifas de Honorarios de Peritos y Peritas en Trabajo Social y Psicología, para Valoraciones Psicosociales
+Pericia | Tarifa actualizada
+Adopción individual | ¢120 832,50
+Adopción conjunta | ¢144 999,00
+Utilidad y Necesidad | ¢120 832,50
+Suspensión Patria Potestad | ¢144 999,00
+Guarda Crianza y Educación | ¢144 999,00
+Régimen de Visitas | ¢120 832,50
+Divorcio judicial | ¢120 832,50
+Salvaguardia (Insania) Trabajo Social | ¢144 999,00
+Salvaguardia (Insania) Psicología | ¢84 582,75
+Depósito Judicial | ¢120 832,50
+Proceso especial de protección | ¢120 832,50
+[imagen]
+(Así reformada la table 3) anterior mediante circular N° 136-2022 del 28 de setiembre de 2022)
+CUADRO No. 4 |
+Tarifas de Honorarios por Servicios Médicos Forenses y Especialidades Médicas |
+Honorarios actualizados según el Índice de Precios al Consumidor (Variación IPC: 3,30%) |
+Rige a partir del 01 de enero de 2022 |
+| | | |
+Peritaje, tipo de valoración o exámenes | Honorarios (aplicados 2021) | Porcentaje de actualización | Honorarios actualizados 2022 (redondeado a la centena superior próxima) |
+3,30% IPC |
+Análisis, diagnóstico y reporte anatomopatológico, neuropatológico o histopatológico. (Este rubro es propuesto por el Departamento de Medicina Legal, dado que no se regula en el cuadro de honorarios del CMC, se aplicará el IPC) | ?25 700,00 | ?26 548,10 | ?26 600,00 |
+Reporte de estudios de imágenes médicas (radiografías, ultrasonidos) No se incluye en estos reportes los ultrasonidos con y sin Doppler y TAC con y sin contraste, contemplados en el cuadro No. 6. | ?8 900,00 | ?9 193,70 | ?9 200,00 |
+Exámenes complementarios: |
+Audiometría | ?17 400,00 | ?17 974,20 | ?18 000,00 |
+Pruebas Dermatológicas de Parches y otros | ?20 700,00 | ?21 383,10 | ?21 400,00 |
+Pruebas de capacidad respiratoria | ?23 100,00 | ?23 862,30 | ?23 900,00 |
+Electroencefalograma | ?34 800,00 | ?35 948,40 | ?36 000,00 |
+Electromiografía de miembros superiores | ?46 200,00 | ?47 724,60 | ?47 800,00 |
+Electromiografía de los cuatro miembros | ?126 200,00 | ?130 364,60 | ?130 400,00 |
+Electrocardiograma | ?23 300,00 | ?24 068,90 | ?24 100,00 |
+Radiografía de huesos | ?11 800,00 | ?12 189,40 | ?12 200,00 |
+Radiografía de tórax | ?16 500,00 | ?17 044,50 | ?17 100,00 |
+Radiografía de columna lumbosacra | ?16 500,00 | ?17 044,50 | ?17 100,00 |
+Estudios oftalmológicos complementarios | ?23 300,00 | ?24 068,90 | ?24 100,00 |
+Antropología Forense (Estudio en la Morgue Judicial) | ?194 800,00 | ?201 228,40 | ?201 300,00 |
+Estudio de Campo de antropología Forense para levantamiento de restos óseos. | ?229 400,00 | ?236 970,20 | ?237 000,00 |
+Reconocimientos (exámenes) clínicos en caso de lesiones con su respectivo dictamen. | ?17 600,00 | ?18 180,80 | ?18 200,00 |
+Reconocimiento de cadáveres y emisión del respectivo certificado de defunción. | ?28 800,00 | ?29 750,40 | ?29 800,00 |
+Estudio de documentos médicos sin el reconocimiento clínico (Por cada expediente médico aportado por la Autoridad Judicial). | ?11 800,00 | ?12 189,40 | ?12 200,00 |
+Las ampliaciones y/o aclaraciones. Hechas por la autoridad Judicial. | ?6 100,00 | ?6 301,30 | ?6 400,00 |
+Si el médico tuviera que trasladarse para algún reconocimiento. | ?11 800,00 | ?12 189,40 | ?12 200,00 |
+Notas: |
+1. La variación interanual del IPC a diciembre de 2021 es de 3,30%. El INEC actualizó la base del IPC en enero del 2021. Para evitar la ruptura en la continuidad de las series, el nivel de este indicador se "enlazó", de enero 2021 hacia atrás, con las variaciones registradas por el nivel general del IPC con las bases anteriores. |
+2. Se debe aplicar el 13% del IVA, por tratarse de honorarios que se pagan a los profesionales médicos como auxiliares de la administración de justicia, por lo tanto, no se aplica la tarifa reducida establecida en el Artículo 11 inciso 1.b. de la Ley 9635 de Fortalecimiento de las Finanzas Públicas. |
 CUADRO No. 5
 Tarifas de Honorarios por Servicios Médicos Forenses y Especialidades Médicas
 Honorarios actualizados con el 87.90% de los honorarios aprobados por el Colegio de Médicos y Cirujanos
