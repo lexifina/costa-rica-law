@@ -1,0 +1,4 @@
+Artículo 3°: Modificase el artículo 2° de la Ley de Presupuesto Ordinario y Extraordinario de la República para el ejercicio Económico del 202, Ley N° 1003, publicada en los Alcances N° 249-A, 249-B, 249-C, 249-D, 249-E, 249-F y 249-G a la Gaceta N° 235 del 7 de diciembre de 2022, en la forma que se indica a continuación:
+(Nota de Sinalevi: Por el tipo de format y lo extensor de su contenido consulta el Alcance Digital N° 207 a La Gaceta N° 185 del 29 de setiembre de 2022)
+Rige a partir de su publicación en el Diario Oficial la Gaceta.
+Dado en la Presidencia de la República, San José, a los veintisiete días del mes de septiembre del año dos mil veintidiós.
