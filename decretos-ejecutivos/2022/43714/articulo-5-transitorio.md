@@ -1,0 +1,1 @@
+Transitorio V-. En un plazo máximo de seis meses a partir de la publicación de este decreto en el Diario Oficial La Gaceta, el MTSS y las instituciones rectoras que conforman el Sistema, deberán elaborar las herramientas, protocolos, formularios, sistemas, registros y demás requerimientos que sean necesarios para la implementación del SIRESOL en todas sus etapas.

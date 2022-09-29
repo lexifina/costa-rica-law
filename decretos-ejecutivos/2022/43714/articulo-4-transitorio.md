@@ -1,0 +1,1 @@
+Transitorio IV-. El MTSS tendrá un plazo de seis meses a partir de la publicación de este Decreto en el Diario Oficial La Gaceta, para efectuar todo lo concerniente para la implementación de la Secretaría Técnica Especializada, sea lo relacionado con la designación de los recursos humanos y logísticos que permitan poner en funcionamiento la dicha Secretaría técnica.

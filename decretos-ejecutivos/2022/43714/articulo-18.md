@@ -1,0 +1,4 @@
+Artículo 18 °-. De la convocatoria a la participación
+La Secretaría Técnica Especializada, en conjw1to con las instituciones públicas rectoras divulgarán la convocatoria a los reconocimientos, y motivarán la participación voluntaria y libre, de las empresas e instituciones.
+El período de inscripción iniciará el primer día hábil del mes de febrero y finalizará el último día hábil del mes de febrero de cada año, sin posibilidad de prórroga. Durante este mismo período se podrán presentar solicitudes para que el MTSS a través del SIRESOL homologue o reconozca los reconocimientos emitidos por otras instituciones públicas nacionales, que se ajusten a las categorías establecidas en esta normativa.
+Para el caso del Reconocimiento de Buenas Prácticas Laborales para la Igualdad de Género del lNAMU, el periodo de postulación estará definido en las Bases del Reconocimiento a Buenas Prácticas Laborales para la Igualdad de Género de cada período.

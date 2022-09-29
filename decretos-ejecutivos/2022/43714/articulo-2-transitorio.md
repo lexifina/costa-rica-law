@@ -1,0 +1,1 @@
+Transitorio II-. Las instituciones rectoras del sistema contarán con el plazo dos meses a partir de la publicación de este Decreto en el Diario Oficial La Gaceta, para la designación y confo1mación del Consejo del Sistema de Reconocimientos Sociolaborales y la Comisión Técnica Calificadora, lo cual deberá ser informado al Ministerio de Trabajo y Seguridad Social.

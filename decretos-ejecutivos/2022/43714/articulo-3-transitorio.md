@@ -1,0 +1,1 @@
+Transitorio III-. Se otorga un plazo de tres meses a partir de la publicación de este Decreto en el Diario Oficial La Gaceta, para suscribir los convenios de cooperación con las instituciones rectoras de acuerdo a cada categoría.

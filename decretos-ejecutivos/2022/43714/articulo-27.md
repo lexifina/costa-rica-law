@@ -1,0 +1,3 @@
+Artículo 27°-. De la publicidad y comercialización
+Una vez otorgado el reconocimiento del SIRESOL, las organizaciones postulantes reconocidas podrán hacer uso del distintivo del reconocimiento para hacer publicidad siempre y cuando éste se encuentre vigente, se especifique el tipo de reconocimiento obtenido y los procesos evaluados para el reconocimiento.
+El incumplimiento de lo dispuesto en este ai1ículo por parte de la empresa o institución postulante, conllevará el retiro del distintivo, previo la comprobación de la falta, sin perjuicio de otras sanciones que puedan dictarse en sede administrativa y/o judicial por derivación de este mal uso del distintivo, tales como la publicidad engañosa, falsedad ideológica, violación de propiedad intelectual.

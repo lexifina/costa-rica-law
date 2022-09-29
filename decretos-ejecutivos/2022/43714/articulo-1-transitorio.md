@@ -1,0 +1,1 @@
+Transitorio l-. Los reconocimientos que ya han sido otorgados por las instituciones públicas rectoras a! momento de la publicación del presente Decreto Ejecutivo, podrán ser parte del SIRESOL, a solicitud de !a entidad pública que los otorga.

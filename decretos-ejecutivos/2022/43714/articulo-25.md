@@ -1,0 +1,2 @@
+Artículo 25 ° -. De las visitas de seguimiento
+La empresa o institución pública acreedora de algún reconocimiento debe comprometerse a facilitar la realización de visitas de seguimiento por parte de los representantes de las Instituciones Públicas Rectoras del SIRESOL, previa coordinación con la empresa o institución para verificar el mantenimiento de los criterios bajo los cuales se le otorgó el reconocimiento.
