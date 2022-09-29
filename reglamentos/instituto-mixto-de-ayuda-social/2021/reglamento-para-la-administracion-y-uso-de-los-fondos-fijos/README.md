@@ -14,3 +14,4 @@ Reglamento para la administración y uso de los fondos fijos institucionales
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-02-14 | la propia norma |
+| 2 | 2022-09-29 | Reglamento 47 (2022-09-29) |
