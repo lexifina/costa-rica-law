@@ -1,0 +1,1 @@
+Artículo N°4. Verificación de requisitos El Registro de Personas Jurídicas verificará que la entidad haya cumplido con el pago del adeudo por concepto de la Ley N°9024 y se encuentre al día respecto a los períodos del 2017 al 2021 de la Ley N°9428, mediante el mecanismo que las instituciones firmantes establezcan de común acuerdo.
