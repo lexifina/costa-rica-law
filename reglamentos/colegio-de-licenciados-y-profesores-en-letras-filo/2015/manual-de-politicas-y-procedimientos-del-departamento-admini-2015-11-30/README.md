@@ -18,3 +18,4 @@ Manual de Políticas y Procedimientos del Departamento Administrativo (Uso de lo
 | 3 | 2020-05-14 | Reglamento 0 (2020-05-14) |
 | 4 | 2020-11-12 | Reglamento 0 (2020-11-12) |
 | 5 | 2021-12-22 | Reglamento 0 (2021-12-22) |
+| 6 | 2022-09-30 | Reglamento 93 (2022-09-30) |
