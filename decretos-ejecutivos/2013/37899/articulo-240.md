@@ -1,5 +1,7 @@
 SECCIÓN CUARTA
 Disposiciones finales para las ventas a plazo
 de bienes o de ejecución futura de servicios
-Artículo 240.—Ejecución de la garantía. Para la ejecución de la garantía, el MEIC deberá certificar como título ejecutivo el monto que corresponde e iniciar el proceso de ejecución en los Tribunales de Justicia de la República de Costa Rica mediante un proceso monitorio regulado en el Capítulo Primero de la Ley de Cobro Judicial, Ley N° 8624, hasta por el monto definido para resarcir al consumidor, por los daños y perjuicios ocasionados por el incumplimiento del o los contratos.
-En el caso de los espectáculos públicos, la ejecución de la garantía corresponderá a la devolución del importe cancelado por la entrada o tiquete.
+Artículo 240. Ejecución de la garantía. La ejecución de garantías se realizará conforme al siguiente procedimiento.
+Las garantías rendidas mediante un seguro de caución o una garantía de cumplimiento se cobrarán al emisor.
+En caso de que el pago sea requerido por el MEIC y no se realice, se procederá a certificar el adeudo por parte del Jerarca Supremo, previos requerimientos de cobro realizados por el DECVP. Dicha certificación servirá como Título Ejecutivo de conformidad con el artículo 149 de la LGAP, para ser cobrado conforme a lo dispuesto en el Código Procesal Civil.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 43721 del 30 de setiembre del 2022)

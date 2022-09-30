@@ -1,0 +1,3 @@
+Artículo 233 bis- Sobre la obligación de reintegrar el dinero. El organizador, la tiquetera y las plataformas de procesamiento de tarjetas o medios de pago, quedan obligadas a realizar las diligencias útiles y necesarias para reintegrar el dinero pagado por el consumidor en caso de que medie una variación en las condiciones esenciales de la contratación o se materialice un incumplimiento de contrato.
+Esta acción deberán informarla por escrito y con informes debidamente respaldados al DECVP y demostrar la devolución de los montos que recibieron de los consumidores.
+(Así adicionado por el artículo 2° del decreto ejecutivo N° 43721 del 30 de setiembre del 2022)

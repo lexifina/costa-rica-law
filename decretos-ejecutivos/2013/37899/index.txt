@@ -225,12 +225,15 @@ articulo-224.md
 articulo-225.md
 articulo-226.md
 articulo-227.md
+articulo-227-bis.md
 articulo-228.md
+articulo-228-bis.md
 articulo-229.md
 articulo-230.md
 articulo-231.md
 articulo-232.md
 articulo-233.md
+articulo-169-bis.md
 articulo-234.md
 articulo-235.md
 articulo-236.md
