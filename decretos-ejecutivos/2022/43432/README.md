@@ -14,3 +14,4 @@ Reglamento general para permisos sanitarios de funcionamiento, permisos de habil
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-07-24 | la propia norma |
+| 2 | 2022-09-30 | Decreto Ejecutivo 43723 (2022-09-30) |
