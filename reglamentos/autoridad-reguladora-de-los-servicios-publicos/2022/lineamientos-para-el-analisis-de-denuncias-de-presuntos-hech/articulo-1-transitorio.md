@@ -1,0 +1,1 @@
+Transitorio I.-Aquellos hechos irregulares que estén siendo analizados por la auditoría interna a la entrada en vigencia de los presentes lineamientos, podrán finalizar su trámite bajo las mismas reglas que regían al momento del inicio del análisis.
