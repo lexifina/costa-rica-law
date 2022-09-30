@@ -14,3 +14,4 @@ Crea Comité Asesor Técnico en Concentraciones Masivas
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-05-25 | la propia norma |
+| 2 | 2022-09-30 | Decreto Ejecutivo 43725 (2022-09-30) |
