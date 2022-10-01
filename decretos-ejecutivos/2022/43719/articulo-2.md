@@ -1,0 +1,1 @@
+Artículo 2º-Deróguese el Decreto Ejecutivo número 43613-H del 13 de junio de 2022, publicado en el Alcance número 135 a La Gaceta número 123 del 01 de julio de 2022, a partir de la vigencia del presente decreto.
