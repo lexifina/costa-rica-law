@@ -14,3 +14,4 @@ Reglamento para la prevención, denuncia y sanción del hostigamiento laboral en
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-11-01 | la propia norma |
+| 2 | 2022-10-03 | Reglamento 32 (2022-10-03) |
