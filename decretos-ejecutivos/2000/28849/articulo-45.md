@@ -1,1 +1,0 @@
-Artículo 45.—Tipos y costo de los servicios que venderá el INEC. El Consejo Directivo emitirá mediante Acuerdo un listado con los costos de los servicios citados, el cual se publicará en el Diario Oficial La Gaceta.

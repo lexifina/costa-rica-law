@@ -1,1 +1,0 @@
-Artículo 19.—Potestad para la creación de comités. Para el desarrollo de los objetivos del SEN, la Gerencia constituirá los comités técnicos, profesionales y especializados necesarios responsables de la programación y ejecución de las actividades institucionales y coordinará lo pertinente para el adecuado funcionamiento de cada uno de ellos.
