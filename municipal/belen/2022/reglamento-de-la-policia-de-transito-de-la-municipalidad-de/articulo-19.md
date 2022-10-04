@@ -1,4 +1,4 @@
-Artículo 19.-En asuntos referentes al cumplimiento del servicio, el personal de la Policía de Tránsito Municipal de Belén cumplirá las órdenes emanadas de la Alcaldía Municipal; en casos especiales donde se trate de un tema se Seguridad Nacional responderá a las órdenes de las siguientes autoridades jerárquicas:
-a. El Presidente de la República.
-b. El Ministro y Viceministro de Obras Públicas y Transportes.
-c. El Director y subdirector de la Dirección General de la Policía de Tránsito.
+Artículo 19.—Los incentivos que se refiere el artículo anterior serán otorgados por:
+a) La alcaldía en caso de mención honorífica.
+b) El Concejo Municipal en caso de Broche al Mérito y Medalla de Policía.
+(Así adicionado en sesión N° 58 del 4 de octubre de 2022)

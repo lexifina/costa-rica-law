@@ -1,0 +1,2 @@
+Artículo 26.-Los funcionarios de la Policía de Tránsito Municipal de Belén, en su condición de Fuerza Pública, podrán garantizar coercitivamente en cumplimiento de las leyes vigentes, a fin de garantizar la seguridad y el ordenamiento público en la circulación, empleando los medios proporcionales a las circunstancias particulares de cada caso y en la medida indispensable para sus fines.
+(Así modificada su numeración en sesión N° 58 del 4 de octubre de 2022, que lo traspaso del antiguo artículo 21 al 26)

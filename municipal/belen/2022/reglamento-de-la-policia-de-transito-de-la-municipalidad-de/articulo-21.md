@@ -1,1 +1,2 @@
-Artículo 21.-Los funcionarios de la Policía de Tránsito Municipal de Belén, en su condición de Fuerza Pública, podrán garantizar coercitivamente en cumplimiento de las leyes vigentes, a fin de garantizar la seguridad y el ordenamiento público en la circulación, empleando los medios proporcionales a las circunstancias particulares de cada caso y en la medida indispensable para sus fines.
+Artículo 21.—Los Policías de Tránsito Municipales tendrán derecho a su defensa, en asuntos judiciales que provengan del cumplimiento de sus deberes, en aquellos casos que así lo disponga discrecionalmente la Dirección Jurídica de la Municipalidad.
+(Así adicionado en sesión N° 58 del 4 de octubre de 2022)

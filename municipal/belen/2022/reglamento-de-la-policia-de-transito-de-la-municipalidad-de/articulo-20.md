@@ -1,1 +1,2 @@
-Artículo 20.-El personal queda exceptuado de cumplir orden alguna que no fuera emitida por las antes mencionadas autoridades sin perjuicio de las disposiciones emanadas de la ley.
+Artículo 20.—Las distinciones otorgadas a los policías municipales serán tomadas en cuenta en lo que se refiere a su carrera administrativa a que se refiere el artículo 124 del Código Municipal.
+(Así adicionado en sesión N° 58 del 4 de octubre de 2022)

@@ -1,0 +1,2 @@
+Artículo 27.-La facultad patronal para diciplinar las faltas del personal de la Policía de Tránsito Municipal de Belén, se regirá por lo dispuesto en el Código Municipal, Código de Trabajo, Ley de Control Interno, Ley Orgánica de la Contraloría General de la República, Ley General de Administración Pública, y la Reglamentación Vigente de la Municipalidad de Belén.
+(Así modificada su numeración en sesión N° 58 del 4 de octubre de 2022, que lo traspaso del antiguo artículo 22 al 27)

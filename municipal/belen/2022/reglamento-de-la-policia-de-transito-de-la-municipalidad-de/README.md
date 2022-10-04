@@ -14,3 +14,4 @@ Reglamento de la policía de tránsito de la Municipalidad de Belén
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-04-20 | la propia norma |
+| 2 | 2022-10-04 | Reglamento municipal 58 (2022-10-04) |
