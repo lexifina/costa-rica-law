@@ -1,0 +1,1 @@
+Artículo 2º-La instalación de anuncios, rótulos, letreros o avisos comerciales en el exterior de los edificios comerciales del Distrito de Cóbano, así como la colocación de vallas en los lugares públicos y privados se regirá por el presente Reglamento.

@@ -1,0 +1,4 @@
+Artículo 18.-Procedimiento devolución de decomiso: Dentro de los 10 días hábiles siguientes al decomiso, todas aquellas personas que deseen solicitar la devolución de la mercancía que les fue decomisada, deberán de cumplir con los siguientes requisitos:
+a) Adjuntar Nota de solicitud firmada y copia de cedula de identidad en caso de sociedades personería jurídica e identificación del representante legal u apoderado.
+b) Declaración jurada, autenticada o emitida por un abogado donde se compromete bajo fe de juramento a no volver a incurrir en el hecho.
+c) De no haber solicitud o incumplir con lo solicitado dentro del tiempo establecido, se dará pase a la intendencia por parte del departamento de patentes, para que esta indique a dicho departamento como se dispondrá de lo decomisado ya sea para donación o bien para desecharlo según se indique por la intendencia
