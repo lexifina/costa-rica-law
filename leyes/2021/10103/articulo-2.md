@@ -26,3 +26,8 @@ Artículo 2° : Apruébense los siguientes Egresos Ordinarios y Extraordinarios 
 (Modificado por el artículo 1° del decreto ejecutivo N° 43716 del 21 de setiembre de 2022)
 (Reformado por el artículo 2° de la ley N° 10316 del 27 de setiembre de 2022)
 (Reformado por el artículo 3° de la ley N° 10316 del 27 de setiembre de 2022)
+(Modificado por el artículo 1° del decreto ejecutivo N° 43720 del 30 de setiembre de 2022)
+(Modificado por el artículo 3° del decreto ejecutivo N° 43720 del 30 de setiembre de 2022)
+(Modificado por el artículo 4° del decreto ejecutivo N° 43720 del 30 de setiembre de 2022)
+(Modificado por el artículo 5° del decreto ejecutivo N° 43720 del 30 de setiembre de 2022)
+(Modificado por el artículo 6° del decreto ejecutivo N° 43720 del 30 de setiembre de 2022)
