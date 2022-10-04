@@ -6,3 +6,4 @@ Artículo 3º : Apruébense los siguientes Egresos Ordinarios y Extraordinarios 
 (Reformado por el artículo 2° de la ley N° 10305 del 24 de agosto de 2022)
 (Reformado por el artículo 3° de la ley N° 10305 del 24 de agosto de 2022)
 (Modificado por el artículo 1° del decreto ejecutivo N° 43692 del 6 de setiembre de 2022)
+(Modificado por el artículo 1° del decreto ejecutivo N° 43720 del 30 de setiembre de 2022)
