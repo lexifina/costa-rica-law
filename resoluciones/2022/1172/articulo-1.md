@@ -19,4 +19,12 @@ En virtud de las consideraciones expresadas anteriormente esta Gerencia General 
 1. Renovar automáticamente los certificados de Transporte Terrestre de Turismo, con vencimiento hasta el 04 de enero de 2023, para que su vencimiento sea 03 de agosto del 2022 al 03 de agosto de 2024.
 2. Recordarles a los prestatarios la responsabilidad de mantenerse al día en sus obligaciones. (Patentes- Riesgos del Trabajo-Impuestos y CCSS).
 3. Comunicar a todos los prestatarios de Transporte Terrestre de Turismo, que, a partir del 01 de julio del 2024, deberán presentar los documentos para la renovación debido que el 100 % de estos vencen en la misma fecha y para que no tengan inconvenientes en el trámite.
+(Nota de Sinalevi: Mediante resolución N° G-1605-2022 del 4 de octubre de 2022, se acordó renovar automáticamente de los certificados de Transporte Terrestre de Turismo, por dos años con los siguientes vencimientos para que sean renovados en temporada baja.
+Año de Emisión Certificado de Transporte Terrestre de Turismo | Vencimiento
+2010-2011 | Mayo de 2024
+2012-2013-2014 | Junio de 2024
+2015-2016-2017-2018 | Setiembre de 2024
+2019-2020-2021-2022 | Octubre de 2024
+Así también se les recordaría a los prestatarios la pertinencia de mantenerse al día en sus obligaciones. (Patentes-Riesgos del Trabajo-Impuestos y CCSS).
+Además, se les debe comunicar a todos los prestatarios de Transporte terrestre de Turismo que, deben presentar los documentos hasta dos meses antes y para que no tengan inconvenientes en la renovación para el año 2024.")
 Notifíquese a: M. Sc. Gustavo Alvarado Chaves, Director de Gestión Turística, M. Sc. Walter Monge Edwards, Jefe del Departamento de Gestión y Asesoría Turística, y a todos los prestatarios certificados del servicio de Transporte Terrestre de Turismo, además de conformidad con el artículo 240 inciso 1. de la Ley General de la Administración Pública, publíquese esta Resolución en forma integral en el Diario Oficial La Gaceta.

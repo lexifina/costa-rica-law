@@ -14,3 +14,4 @@ Renovación automáticamente los certificados de transporte terrestre de turismo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-08-31 | la propia norma |
+| 2 | 2022-10-04 | Resolución 1605 (2022-10-04) |
