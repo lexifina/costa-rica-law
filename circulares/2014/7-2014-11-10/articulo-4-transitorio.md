@@ -1,4 +1,0 @@
-4. A partir del 1° de julio del 2016, todo Despacho de Contadores Públicos o Contador Público Autorizado en el ejercicio independiente deberá contar con un sistema de control de calidad implementado y la Fiscalía hará revisiones al lazar para determinar el cumplimiento de las definiciones de las políticas diseñadas para alcanzar el objetivo establecido en el apartado 11 contenida en la NICC 1, y de los procedimientos necesarios para implementar y realizar un seguimiento del cumplimiento de dicha norma de calidad. El Despacho de Contadores Públicos o Contador Público Autorizado en el ejercicio independiente podrá utilizar como referencia en la implementación la presente guía.
-Procédase a su publicación.
-Rige a partir del 1° de julio del 2016, se recomienda su aplicación anticipada.
-Rige a partir de su publicación en el Diario Oficial La Gaceta.

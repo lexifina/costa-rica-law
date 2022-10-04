@@ -1,1 +1,0 @@
-3. La Fiscalía en conjunto con la unidad de control de calidad darán seguimiento a los planes de acción suministrado por el Despacho de Contadores Públicos o Contador Público Autorizado en el ejercicio independiente a partir del 1° de octubre del 2015 y hasta el 31 de marzo del 2016.
