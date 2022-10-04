@@ -1,0 +1,1 @@
+Artículo 22.-Relación de hechos. De conformidad con lo dispuesto en los Lineamientos generales para el análisis de los presuntos Hechos Irregulares, la Auditoría Interna tramitará previa investigación, una Relación de Hechos al funcionario o funcionarios que, por omisión o incumplimiento a la implementación de las recomendaciones o acciones de mejora de los informes de auditoría.

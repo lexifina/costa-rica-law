@@ -1,0 +1,1 @@
+Artículo 16.-Programación del seguimiento. La Auditoría Interna dará seguimiento a las recomendaciones y acciones de mejora, conforme con el Plan Anual de Trabajo que se determine y los recursos disponibles.
