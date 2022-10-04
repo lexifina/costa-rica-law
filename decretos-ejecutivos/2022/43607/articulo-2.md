@@ -1,0 +1,1 @@
+Artículo 2º-En cuanto a los funcionarios del Ministerio de Educación Pública, será el jerarca de dicha institución quien determine, con base en el artículo 213 de la Ley N° 181, Código de Educación del 18 de agosto de 1944, y mediante circular interna, si el día señalado se les otorgará como asueto a los funcionarios de esa Cartera que laboren para ese Cantón.
