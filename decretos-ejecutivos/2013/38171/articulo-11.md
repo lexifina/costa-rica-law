@@ -1,1 +1,2 @@
-Artículo 11.—Aquellas áreas dadas en concesión donde se ubiquen edificios comerciales a los que se refiere el artículo 3°, inciso 2), acápite ñ) de la Ley, podrán someterse a los regímenes de administración que el ordenamiento jurídico autoriza expresamente y en el tanto sean compatibles con la actividad turística.
+Artículo 11. Las marinas y atracaderos turísticos podrán someter sus instalaciones tanto en tierra como en agua a los regímenes de administración que el ordenamiento jurídico autoriza expresamente; entre ellos el régimen de propiedad en condominio, de conformidad al Reglamento de la Ley 7933 Reguladora de la Propiedad en Condominio.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 43751 del 4 de octubre del 2022)

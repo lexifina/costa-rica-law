@@ -5,6 +5,7 @@ articulo-4.md
 articulo-5.md
 articulo-6.md
 articulo-7.md
+articulo-7-bis.md
 articulo-8.md
 articulo-9.md
 articulo-10.md
@@ -80,3 +81,6 @@ articulo-79.md
 articulo-80.md
 articulo-81.md
 articulo-1-transitorio.md
+articulo-1-anexo.md
+articulo-2-anexo.md
+articulo-3-anexo.md

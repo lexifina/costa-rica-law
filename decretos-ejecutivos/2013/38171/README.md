@@ -14,3 +14,4 @@ Reglamento a la Ley de Concesión y Operación de Marinas y Atracaderos Turísti
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-02-20 | la propia norma |
+| 2 | 2022-10-04 | Decreto Ejecutivo 43751 (2022-10-04) |
