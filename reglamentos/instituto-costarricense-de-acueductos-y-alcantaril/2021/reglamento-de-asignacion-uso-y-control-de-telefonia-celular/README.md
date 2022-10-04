@@ -14,3 +14,4 @@ Reglamento de asignación, uso y control de telefonía celular
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-05-21 | la propia norma |
+| 2 | 2022-10-04 | Reglamento 46 (2022-10-04) |
