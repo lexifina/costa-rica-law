@@ -1,1 +1,0 @@
-Artículo 10.—El munícipe deberá presentar los requisitos documentales vigentes, con el objeto de que sea emitida la licencia constructiva respectiva, la cual quedará exenta del pago del permiso constructivo.
