@@ -15,3 +15,4 @@ Reglamento para la organización y funcionamiento de los comités y comisiones d
 | --- | --- | --- |
 | 1 | 2022-06-21 | la propia norma |
 | 2 | 2022-06-29 | Reglamento 5931 (2022-06-29) |
+| 3 | 2022-10-05 | Reglamento 5944 (2022-10-05) |

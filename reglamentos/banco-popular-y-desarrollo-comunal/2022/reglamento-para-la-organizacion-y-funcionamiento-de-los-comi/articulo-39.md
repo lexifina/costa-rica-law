@@ -1,5 +1,4 @@
-Artículo 39º. Funciones del Comité Corporativo de Nominaciones y Remuneraciones.
-Son funciones de este Comité:
+Artículo 39.-Funciones del Comité Corporativo de Nominaciones y Remuneraciones. Son funciones de este Comité:
 a) Supervisar y revisar el diseño y funcionamiento de los sistemas de evaluación del desempeño, de incentivos y de remuneraciones de cada entidad del Conglomerado, de conformidad con lo dispuesto en el Reglamento del Conglomerado sobre el sistema de evaluación del desempeño basado en el Cuadro de Mando Integral (CMI) y en la Política Salarial integral del Conglomerado dictada por la Junta Directiva Nacional, sistemas que deberán ser consistentes con la cultura, estrategia y declaración del apetito de riesgo de la respectiva entidad, supervisión que se lleva a cabo en los términos que indique la ley y demás normativa aplicable.
 b) Orientar el accionar del Conglomerado Financiero en la atención y el seguimiento oportuno de las actividades programadas en el año de gestión, con recomendaciones, criterios y ajustes mediante acuerdos que faciliten a las Juntas Directivas o a la Asamblea de Accionistas tomar las decisiones que correspondan.
 c) Revisar periódicamente la política salarial del Conglomerado Financiero.
@@ -14,5 +13,7 @@ k) Identificar y postular a los candidatos de las Juntas Directivas de las Socie
 l) Verificar que los integrantes de las Juntas Directivas de las Sociedades sean idóneos, que cuenten con la diversidad de conocimientos, experiencia, disponibilidad y competencias acordes a la importancia sistémica de la entidad financiera, la complejidad de sus operaciones, la estructura de propiedad, la naturaleza jurídica y los mercados en que opera.
 m) Coordinar con la Secretaría General de la Junta Directiva Nacional y con la Administración del Banco la recepción de los documentos de las personas candidatas para ocupar cargos en las Juntas de Crédito Local, procurando que le sean remitidos a la mayor brevedad, a partir del aviso que deberá publicar la Secretaría General por instrucción de la Junta Directiva Nacional.
 n) Recomendar a la Junta Directiva Nacional el nombramiento de las personas que conformarán las Juntas de Crédito Local para el periodo que corresponda.
-o) Proponer, a la Junta Directiva Nacional, los candidatos a miembros externos de los Comités Técnicos y de Apoyo.
-p) Cualquier otro acuerdo o resolución que sea encomendada por las Juntas Directivas según corresponda, siempre y cuando, se encuentre asociado con sus responsabilidades.
+o) Llevar a cabo la logística, organización, ejecución y propuesta de integración de las Juntas de Crédito Local. Para desarrollar está función se contará con una unidad especializada la cual estará integrada por la Secretaría General y la Asesoría Jurídica ambas de la Junta Directiva Nacional, quienes se harán acompañar por las áreas de la administración competentes para desarrollar su labor.
+p) Proponer, a la Junta Directiva Nacional, los candidatos a miembros externos de los Comités Técnicos y de Apoyo.
+q) Cualquier otro acuerdo o resolución que sea encomendada por las Juntas Directivas según corresponda, siempre y cuando, se encuentre asociado con sus responsabilidades.
+(Así reformado en sesión N° 5944 del 5 de octubre de 2022)
