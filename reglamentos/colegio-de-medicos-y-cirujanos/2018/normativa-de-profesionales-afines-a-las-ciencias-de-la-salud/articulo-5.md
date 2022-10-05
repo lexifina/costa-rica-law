@@ -5,6 +5,8 @@ b) Promoción de la Salud.
 c) Recreación Física y Mental.
 d) Registros Médicos: Se reconoce como sinónimo los siguientes términos: Registros y Estadísticas de Salud, Registros Médicos y Sistemas de información en Salud.
 e) Salud Ocupacional.
+Se reconoce como sinónimo de esta disciplina el siguiente término: Salud Ocupacional con énfasis en Seguridad Industrial.
+(Así reformado el inciso e) anterior en sesión ordinaria 2022-10-05, celebrada el 05 de octubre del 2022)
 f) Salud Ambiental.
 (*) (Así reformado el punto anterior en sesión N° 2021-08-18 del 18 de agosto de 2021)
 ● Maestrías:
