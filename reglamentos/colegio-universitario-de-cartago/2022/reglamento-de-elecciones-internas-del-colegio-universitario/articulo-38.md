@@ -1,0 +1,1 @@
+Artículo 38.-Nulidades. Cualquier fraude o intento de fraude, así como la infracción a las disposiciones de este Reglamento, serán causal para anular la postulación del candidato encontrado infractor.

@@ -1,0 +1,1 @@
+Artículo 3º-El Tribunal Electoral Institucional supervisará y mantendrá bajo su competencia, la integración de los padrones electorales del CUC y decidirá en los conflictos que se susciten en los procesos electorales, salvo en los sufragios estudiantiles.

@@ -1,0 +1,1 @@
+Artículo 2º-Las decisiones del Tribunal Electoral Institucional deberán ser debidamente justificadas, se aprobarán por el voto de la mayoría calificada de sus integrantes y serán obligatorias. Contra ellas cabrá únicamente el recurso de revocatoria.

@@ -1,0 +1,1 @@
+Artículo 10.-De la lista de personas electoras. El TEI solicitará al Departamento de Gestión Institucional de Recursos Humanos la cantidad de tiempos completos de los distintos sectores docente y administrativo, para indicar a cada carrera y unidad administrativa la cantidad de representantes a elegir en su área.

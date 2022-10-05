@@ -1,0 +1,1 @@
+Artículo 14.-De la convocatoria. La Dirección Académica convocará al Consejo de Escuela en pleno, cuando sea necesaria la elección de un nuevo Director y coordinará con el TEI para la debida supervisión del proceso.

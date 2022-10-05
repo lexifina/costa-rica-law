@@ -1,0 +1,1 @@
+Artículo 35.-Devolución del material de la Junta Receptora de Votos. Una vez terminada la elección, todo el material electoral se depositarán en un sobre debidamente cerrado que será entregado al TEI por la Presidencia o la Secretaria de la JUREV o persona delegada del TEI, encargada del proceso.

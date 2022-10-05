@@ -1,0 +1,1 @@
+Artículo 22.-Manejo de los desechos que generen las actividades electorales. Todo candidato y suplente deberá velar por el adecuado manejo de los desechos que se produzcan durante su campaña electoral y serán responsables directos de su adecuada recolección.

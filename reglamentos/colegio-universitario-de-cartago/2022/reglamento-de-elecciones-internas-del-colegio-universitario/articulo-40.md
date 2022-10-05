@@ -1,0 +1,1 @@
+Artículo 40.-La comunidad institucional debe acatar las diversas directrices y acuerdos firmes que emita el TEI a fin de garantizar un proceso electoral ordenado, transparente, participativo y democrático.

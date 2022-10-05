@@ -1,0 +1,1 @@
+Artículo 4º-Todas las elecciones institucionales serán por votación secreta y se tendrá por elegido quien obtenga la mayoría de los votos válidamente emitidos. Si se presentare un empate, se procederá conforme lo señala el artículo 30 del presente reglamento.

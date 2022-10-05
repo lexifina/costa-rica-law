@@ -1,0 +1,2 @@
+Artículo 27.-Instalación de la Junta Receptora de Votos. El TEI establecerá un lugar de votación, con el número de juntas receptoras de votos necesarias, según el número de personas electoras, teniendo en cuenta que deben existir mínimo 1 junta receptora por cada 100 electores.
+Los miembros del TEI que no sean parte de una JUREV se mantendrán en el recinto de votación apoyando el proceso y supliendo a los miembros de la JUREV, cuando sea necesario.

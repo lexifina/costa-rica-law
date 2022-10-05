@@ -1,0 +1,1 @@
+Artículo 25.-Anotación en el Padrón Registro. Una vez emitido el voto, el presidente de la Junta Receptora de Votos o quien ejerza el cargo, solicitará a la persona electora que firme el padrón registro y posteriormente escribirá de su puño y letra la expresión: sí votó.

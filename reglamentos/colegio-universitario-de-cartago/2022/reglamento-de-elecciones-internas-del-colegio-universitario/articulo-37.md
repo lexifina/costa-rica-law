@@ -1,0 +1,2 @@
+Artículo 37.-Recursos. Las decisiones del TEI tendrán recurso de revocatoria y deberá ser interpuesto únicamente por aquellos candidatos o suplentes que tengan intereses directo y personal en la elección. El recurso de revocatoria deberá interponerse dentro del plazo perentorio de tres días hábiles, contados a partir de la comunicación oficial del resultado de la elección.
+El TEI, tendrá un plazo máximo de ocho días hábiles para resolver cualquier recurso planteado sobre sus decisiones.

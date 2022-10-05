@@ -1,0 +1,3 @@
+Artículo 26.-De las juntas receptoras de votos (JUREV). La Junta Receptora de Votos estará integrada por dos representantes o delegados del TEI y los fiscales asignados. Cada uno de los candidatos podrá acreditar como máximo 2 fiscales que se turnarán en sus funciones, en ningún caso podrá ser el mismo candidato.
+La acreditación de los fiscales la hará cada candidato y su inscripción deberá efectuarse por escrito ante el TEI. El plazo para inscribir a los fiscales se cerrará dos días hábiles antes de las elecciones.
+El candidato que no cumpla en tiempo y forma en hacer esta inscripción, no podrá acreditar fiscales para la Junta Receptora de Votos.
