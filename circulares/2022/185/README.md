@@ -13,3 +13,4 @@ Suspensión del uso de las mascarillas
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-09-27 | la propia norma |
+| 2 | 2022-10-05 | Circular 189 (2022-10-05) |
