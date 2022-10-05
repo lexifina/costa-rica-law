@@ -1,0 +1,8 @@
+CIRCULAR Nº 189-2022
+Asunto: Ampliación de la circular N°185-2022, denominada "Suspensión del uso de las mascarillas".
+A TODOS LOS SERVIDORES DEL PAÍS
+SE LES HACE SABER QUE:
+El Consejo Superior del Poder Judicial, en sesión N° 85-2022 celebrada el 29 de setiembre de 2022, artículo XLV, aprobó a solicitud de la Dirección de Gestión Humana y el Servicio de Salud de ampliar la circular N° 185-2022 "Suspensión del uso de las mascarillas" para que el por tanto se lea de la siguiente manera: Por tanto
+Se acordó: Que en vista de la situación epidemiológica actual, así como el índice de vacunación elevado en la población costarricense, se suspende la obligatoriedad de la utilización de mascarilla para la población judicial, a excepción del personal que se pueda equiparar a establecimientos de salud, tal es el caso de los consultorios del Departamento de Medicina Legal, los Servicios de Salud de la Dirección de Gestión Humana, la Sección de Patología Forense, cualquier otra oficina judicial que pueda fungir como consultorio de atención de la salud y para el personal de las Secciones de Cárceles cuando atiendan personas con casos positivos o casos de riesgos.
+Así mismo, toda persona que acuda al servicio de salud independientemente del motivo de consulta, debe utilizar obligatoriamente la mascarilla de protección que cubra la totalidad de sus fosas nasales y la boca, esto durante toda su estancia. De conformidad con la circular N° 67-09 emitida por la Secretaría de la Corte el 22 de junio de 2009, se le comunica que en virtud del principio de gratuidad que rige esta materia, la publicación está exenta de todo pago de derechos. Publíquese una sola vez en el Boletín Judicial.
+San José, 5 de octubre de 2022.
