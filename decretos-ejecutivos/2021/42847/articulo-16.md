@@ -58,7 +58,15 @@ Requisitos específicos:
 a. Estar debidamente inscrito como Especialista en Cardiología, en el Colegio de Médicos y Cirujanos de Costa Rica.
 b. Aprobación de dos (2) años en un programa de estudios de posgrado (residencia médica) en la Subespecialidad de Cardiología Pediátrica, en un Hospital Pediátrico de Tercer Nivel, perteneciente o adscrito a una Universidad.
 (*)(Así adicionada la subespecialidad anterior mediante sesión ordinaria N° 2021-07-14 del 14 de julio del 2021)
-16.3.20. Electrofisiología Cardiaca.
+(*)16.3.4. Medicina Intensiva en Cardiología.
+Se reconoce como sinónimo de esta Subespecialidad, el siguiente término: Cuidados Críticos Cardiacos, Cuidados Intensivos Cardiacos, Cuidados Críticos Cardiovasculares.
+Requisitos específicos:
+a. Estar debidamente inscrito como Especialista en Cardiología, en el Colegio de Médicos y Cirujanos.
+b. Aprobación de un programa de estudios de posgrado (residencia médica) de dos (2) años en le Subespecialidad en medicina Intensiva en Cardiología, en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad.
+c. Certificación del ente de haber realizado durante su periodo de formación como subespecialista en Medicina Intensiva en Cardiología las siguientes técnicas o procedimientos de máxima complejidad: Angioplastia primaria, cateterismo cardiaco derecho, vía venosa central, balón de aire intraaórtico, hemodiafiltración, ventilación no invasiva, intubación endotraqueal, ventilación mecánica, pericardiocentesis, implantación temporal de marcapasos, RCP y dispositivos de asistencia ventricular.
+(*)(Así adicionada la subespecialidad anterior mediante sesión ordinaria N° 2022-10- 05 del 05 de octubre del 2022)
+16.3.2(*). Electrofisiología Cardiaca.
+(*) (Corregido mediante Fe de Erratas y publicada en La Gaceta N° 190 del 6 de octubre de 2022, página N° 3. Anteriormente se indicaba: “16.3.20”)
 Se reconoce como sinónimo de esta Subespecialidad, los siguientes términos: Electrofisiología y Estimulación Cardiaca; Electrofisiología Cardiaca del Adulto; Electro Fisiología Cardiaca; Electrofisiología Clínica Invasiva; Ritmología y Estimulación Cardiaca; Electrofisiología Cardiovascular.
 Requisitos específicos:
 a. Estar debidamente inscrito como Especialista en Cardiología, en el Colegio de Médicos y Cirujanos.
