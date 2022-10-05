@@ -14,3 +14,4 @@ Oficialización y declaratoria de interés público y nacional de la Norma nacio
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-11-25 | la propia norma |
+| 2 | 2022-10-05 | Decreto Ejecutivo 43728 (2022-10-05) |

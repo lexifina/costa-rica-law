@@ -70,7 +70,9 @@ La presente norma deberá ser revisada cada 5 años y en caso de ser necesario s
 7. LINEAMIENTOS
 PREVENCION
 7.1 Todo establecimiento que brinde servicios de atención médica debe contar con estrategias para identificar y dar seguimiento a personas asociadas a factores de riesgo, impulsando programas de consejería: autoexploración (como una forma de fomentar la toma de conciencia entre las mujeres, más que como método de tamizaje), detección precoz y tratamiento oportuno.
-7.2 El método de tamizaje debe ser la mamografía a mujeres de 50 a 75 años, cada dos años. A las personas fuera de este rango se les realizará basado en el riesgo individual y la expectativa de vida. 7.3 Se debe hacer una evaluación y confirmación diagnóstica de todos los casos sospechosos por tamizaje o sintomatología clínica, así como el tratamiento de los casos confirmados.
+7.2 El método de tamizaje es la mamografía, la cual se debe realizar una vez al año a mujeres entre los 40 y 75 años cuando no tengan factores de riesgo y una vez al año a mujeres entre los 35 a 75 años cuando presenten factores de riesgo, según lo definido en esta norma. A las personas fuera de este rango se les realizará basado en el riesgo individual y la expectativa de vida.
+(Así reformado el inicio anterior por el artículo 1° del decreto ejecutivo N° 43728 del 5 de octubre de 2022)
+7.3 Se debe hacer una evaluación y confirmación diagnóstica de todos los casos sospechosos por tamizaje o sintomatología clínica, así como el tratamiento de los casos confirmados.
 7.4 En los casos donde se sospeche cáncer de mama hereditario, se deberá contar con un procedimiento para efectuar un seguimiento diferenciado de estas personas, junto a otras medidas, permitirán mejorar la detección y el pronóstico de la enfermedad.
 7.5 Se debe enviar a un asesoramiento genético a las personas que cumplan con al menos uno de los siguientes criterios para cáncer de mama hereditario:
 . Historia personal de cáncer de mama diagnosticado a edad temprana (menores de 40 años), cáncer en ambas mamas o afección de mama y ovario.
