@@ -1,0 +1,1 @@
+Artículo 22.-Asignación de Fondos Públicos. El Concejo Municipal y la Alcaldía tomarán las medidas del caso a fin de asignar recursos económicos destinados al fomento de la participación ciudadana; para la organización de consultas, para difundir y promover las audiencias y demás mecanismos contemplados en este reglamento y el Código Municipal.

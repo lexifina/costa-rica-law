@@ -1,0 +1,1 @@
+Artículo 2º-Formas de Participación Ciudadana. El presente reglamento establece criterios y formas de participación ante la Municipalidad de San Pablo de Heredia, de los vecinos y las vecinas, así como de las organizaciones de la sociedad civil creadas para el desarrollo humano sustentable y el progreso general de los y las habitantes del cantón.

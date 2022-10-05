@@ -1,0 +1,1 @@
+Artículo 5º-Contraparte Institucional. El Departamento de Planificación, Presupuesto y Control de la Municipalidad de San Pablo de Heredia, será la responsable de la institucionalización y aplicación del presente reglamento, constituyéndose en la parte técnica y logística de las decisiones que a través de este reglamento determine el Concejo Municipal o la Alcaldía Municipal.

@@ -1,0 +1,1 @@
+Artículo 18.-Obligación Tributaria. Todo vecino o vecina residente en el Cantón de San Pablo de Heredia tiene el deber y la obligación de contribuir económicamente por las vías establecidas (tributos) a fin de un desarrollo local sustentable y de ser fiscal de que los objetivos por una mejor calidad de vida se cumplan.

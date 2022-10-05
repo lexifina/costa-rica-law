@@ -1,0 +1,1 @@
+Artículo 3º-Alcances. El ámbito de aplicación de las presentes normas se restringe únicamente a la jurisdicción del Cantón de San Pablo de Heredia, Cantón noveno de la Provincia de Heredia y es válido para todos los habitantes o munícipes y organizaciones de la sociedad civil, domiciliadas en su territorio.

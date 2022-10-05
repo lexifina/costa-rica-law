@@ -1,0 +1,1 @@
+Artículo 10.-Administración de Interés Públicos. La Municipalidad de San Pablo de Heredia velará por la protección de los derechos e intereses de todas las personas que tienen su domicilio en la jurisdicción territorial de este Cantón, respondiendo y garantizando lo establecido en el Código Municipal en su Título I: Disposiciones Generales.
