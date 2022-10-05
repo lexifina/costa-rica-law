@@ -1,0 +1,1 @@
+Artículo 33.-Publicación de resultados: Una vez publicados los resultados de la solicitud de beca, la persona solicitante de beca, en caso de encontrarse inconforme con su resultado de beca, tendrá a partir de la fecha de publicación, tres días hábiles para consultar las razones del resultado de beca asignado.

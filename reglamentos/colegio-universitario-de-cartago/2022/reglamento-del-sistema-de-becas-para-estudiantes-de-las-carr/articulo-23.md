@@ -1,0 +1,3 @@
+Artículo 23.-En caso de duplicidad de beca: Cuando la persona estudiante solicite y cumpla con los requisitos de más de una modalidad de beca, se le asignará la que signifique más beneficio, ya que no puede ser beneficiario de más de una modalidad de beca al mismo tiempo.
+En caso de encontrarse en las condiciones que se describirán a continuación se resolverá de la siguiente manera:
+a. Que sea persona beneficiaria de beca socioeconómica de alguna categoría 2 o 3 y aplique a la beca por excelencia académica, se mantendrá la de Excelencia Académica mientras que cumpla con la condición solicitada, en caso contrario se mantendrá en la categoría socioeconómica asignada.

@@ -1,0 +1,1 @@
+Artículo 35.-Montos de apoyo económico: La definición de los montos de apoyo económico extraordinario a otorgar, corresponderá a la Unidad de Trabajo Social y dependerá del límite de presupuesto que se asigne para este fin.

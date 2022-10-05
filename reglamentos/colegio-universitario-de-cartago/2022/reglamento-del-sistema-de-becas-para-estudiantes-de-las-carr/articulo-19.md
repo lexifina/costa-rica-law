@@ -1,0 +1,4 @@
+Artículo 19.-Situaciones en la que se dará el apoyo económico extraordinario: La Institución dará por periodos definidos según presupuesto asignado para este fin y criterio de la persona encargada de la Unidad de Trabajo Social, el apoyo económico extraordinario al estudiantado:
+a. Qué por alguna situación imprevista no puedan pagar el costo de giras, transporte, materiales y equipo básico de su carrera u otros costos adicionales, mediante el análisis socioeconómico del formulario correspondiente.
+b. Casos que se presentan durante el cuatrimestre y se den por excepcional situación que presenten alto grado de riesgo socioeconómico, previo estudio de la Comisión de Asignación de Becas.
+Este apoyo puede ser solicitado por el estudiantado que cuente o no con beneficio de beca, a excepción de las personas beneficiarias de beca categoría socioeconómica 0.

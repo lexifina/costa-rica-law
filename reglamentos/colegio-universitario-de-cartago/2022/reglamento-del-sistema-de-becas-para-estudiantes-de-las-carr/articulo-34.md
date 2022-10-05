@@ -1,0 +1,1 @@
+Artículo 34.-Valoración de apoyos económicos: Las solicitudes de apoyo económico serán valoradas por la persona profesional en Trabajo Social, en el caso de ser viable el apoyo económico éste será otorgado con el visto bueno de la Jefatura del Departamento de Bienestar Estudiantil y Calidad de Vida.
