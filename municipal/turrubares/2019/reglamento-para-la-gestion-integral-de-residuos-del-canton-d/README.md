@@ -14,3 +14,4 @@ Reglamento para la gestión integral de residuos del cantón de Turrubares
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-02-19 | la propia norma |
+| 2 | 2022-10-05 | Reglamento municipal 48 (2022-10-05) |
