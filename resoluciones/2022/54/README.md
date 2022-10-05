@@ -14,3 +14,4 @@ Simplificación, estandarización y automatización de información regulatoria 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-07-27 | la propia norma |
+| 2 | 2022-10-05 | Resolución 71 (2022-10-05) |

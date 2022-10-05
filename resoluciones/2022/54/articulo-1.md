@@ -131,9 +131,10 @@ i. Anexo 1. Informe compras
 Además, adjunto a este anexo se debe remitir los B/L (bill of lading), carta de porte o algún documento de respaldo.
 b. Los cinco días hábiles siguientes a los segundos viernes de cada mes, un reporte de los precios FOB de referencia internacional consistente con la información indicada por el proveedor principal de precios de referencia contratado por Recope, en el formato y para el plazo correspondiente establecido en el siguiente anexo:
 i. Anexo 2. Reporte precios internacionales
-c. Los cinco días hábiles siguientes a los segundos viernes de cada mes, el informe de facturas de compras de hidrocarburos, cuya fecha de factura se encuentre contemplada en el mes inmediato anterior, de conformidad con el siguiente anexo donde se resume esa información:
+(*)c. Los cinco días hábiles siguientes a los segundos viernes de cada mes, el informe de facturas de compras de hidrocarburos, cuya fecha de factura se encuentre comprendida entre la fecha de corte del estudio extraordinario anterior y la fecha de corte del estudio extraordinario a presentar, de conformidad con el siguiente anexo donde se resume esa información:
 i. Anexo 3. Informe facturas importación
 Además, adjunto a este anexo se deben remitir las facturas certificadas.
+(*) (Así reformado el inciso c) anterior por resolución N° RE-0071-IE-2022 del 5 de octubre de 2022)
 d. Los cinco días hábiles siguientes a los segundos viernes de cada mes, las estadísticas del mes anterior referente a los anexos:
 i. Anexo 4. Ventas combustibles
 ii. Anexo 5. Precio Bandas
