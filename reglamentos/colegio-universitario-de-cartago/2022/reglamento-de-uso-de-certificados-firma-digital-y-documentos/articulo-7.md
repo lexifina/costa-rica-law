@@ -1,0 +1,1 @@
+Artículo 7°-Obligatoriedad: Es de acatamiento obligatorio la suscripción de la Firma Digital ante un certificador registrado para los colaboradores que lo requieran para el cumplimiento de sus funciones. El costo de suscripción y los costos relacionados al uso de la Firma Digital lo asume el CUC.

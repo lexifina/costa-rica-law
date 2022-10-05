@@ -1,0 +1,1 @@
+Artículo 11.-La firma digital no es un instrumento exclusivo para el desempeño de funciones, es la sustitución de la firma física de la persona, por lo que pertenece al sujeto y lo puede utilizar tanto en sus labores como en sus actividades personales.

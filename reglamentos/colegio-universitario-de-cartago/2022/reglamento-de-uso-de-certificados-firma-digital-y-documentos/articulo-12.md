@@ -1,0 +1,1 @@
+Artículo 12.-Plazos. Para todos los efectos institucionales, los documentos digitales serán jurídicamente válidos desde el momento de su suscripción digital. Para efectos del cómputo de los plazos consignados en los documentos firmados y transmitidos digitalmente, estos se contabilizarán a partir del día hábil siguiente de realizada la notificación por medio electrónico.

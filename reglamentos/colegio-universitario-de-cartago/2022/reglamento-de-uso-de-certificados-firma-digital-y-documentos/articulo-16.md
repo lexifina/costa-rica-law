@@ -1,0 +1,1 @@
+Artículo 16.-La unidad de tecnología informática velará por brindar las facilidades tecnológicas necesarias para el acceso permanente a la información, garantizando que puedan contar con la confidencialidad, integridad e independencia para el uso de la información.

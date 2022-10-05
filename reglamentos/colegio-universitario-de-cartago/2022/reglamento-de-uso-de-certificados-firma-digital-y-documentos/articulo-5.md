@@ -1,0 +1,1 @@
+Artículo 5°-Del Proceso de la Dirección Administrativa Financiera: Le corresponde llevar el control de Registro de Colaboradores con Firma Digital, validar e informar a TI sobre la incorporación y salida de los colaboradores al registro oficial de usuarios. Cada colaborador es responsable por los certificados y documentos electrónicos que firme digitalmente.

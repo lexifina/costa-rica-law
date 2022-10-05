@@ -1,0 +1,1 @@
+Artículo 10.-Presunción de autoría y responsabilidad. Para efectos legales y administrativos, todos los documentos electrónicos asociados a una firma digital se presumirán vigentes al momento de su emisión, íntegro, auténtico, de la autoría y responsabilidad del funcionario que lo emite.
