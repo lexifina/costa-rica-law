@@ -1,1 +1,0 @@
-Artículo 4º—Dependerá. El COREDES - PROLI dependerá de las disposiciones organizativas y operativas del presente decreto; y además contará con el apoyo del Despacho del Ministro de Coordinación Interinstitucional.
