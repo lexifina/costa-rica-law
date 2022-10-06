@@ -14,3 +14,4 @@ Se modifican las medidas administrativas relativas a la documentación de las pe
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-09-28 | la propia norma |
+| 2 | 2022-10-06 | Resolución 164 (2022-10-06) |

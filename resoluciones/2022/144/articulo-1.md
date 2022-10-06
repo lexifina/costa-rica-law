@@ -21,39 +21,39 @@ POR TANTO:
 LA DIRECCIÓN GENERAL DE MIGRACIÓN Y EXTRANJERÍA, de conformidad con los artículos 2, 11, 21 y 50 de la Constitución Política, 11 de la Ley General de la Administración Pública; 1 y 13 incisos 1), 15), 19) y 36) de la Ley General de Migración y Extranjería No. 8764, del 19 de agosto de 2009, resuelve establecer las siguientes modificaciones en la documentación de las personas extranjeras en el país, para la prestación adecuada y responsable de los servicios públicos de la Dirección General de Migración y Extranjería al usuario externo, conforme a lo siguiente:
 PRIMERO: PRÓRROGA DE LA VIGENCIA DE LOS DOCUMENTOS QUE ACREDITEN LA PERMANENCIA LEGAL DE PERSONAS EXTRANJERAS EN EL PAÍS (CONOCIDO COMO DIMEX) Vencido el plazo de prórroga automática establecido en la resolución de esta Dirección General N°DJUR-0197-12-2021-JM, de las quince horas cuarenta y cinco minutos del 21/12/2021 publicada en el alcance digital La Gaceta N.4 del Lunes 10 de Enero del año 2022, las personas extranjeras contarán con el plazo de tres meses para realizar el trámite de renovación, de conformidad con los artículos 129 inciso 10) de la Ley General de Migración y Extranjería número 8764 y 213 del Reglamento de Extranjería (Decreto Ejecutivo 37112-GOB publicado en el Alcance Digital N°64 a la Gaceta N°95 del 17 de mayo de 2012). Obtenida la cita respectiva dentro de los tres meses referidos en el párrafo anterior, el plazo de vigencia del DIMEX se verá prorrogado hasta el día de la cita correspondiente. La cita se podrá gestionar a partir del 01 de octubre de 2022, a través de:
 Llamada telefónica al 1311:
-• Cita para documentación por primera vez y renovación de DIMEX en Oficinas Centrales u Oficinas Regionales
-• Cita para documentación primera vez y renovación de DIMEX Correos de Costa Rica.
+. Cita para documentación por primera vez y renovación de DIMEX en Oficinas Centrales u Oficinas Regionales
+. Cita para documentación primera vez y renovación de DIMEX Correos de Costa Rica.
 Ingresando al sitio oficial www.migracion.go.cr
-• Cita para documentación por primera vez y renovación de DIMEX en Oficinas Regionales
-• Solicitudes de documentación rechazadas que requieren un subsane, mismo que fue comunicado por medio de un TELEGRAMA vía correo electrónico. Opción Documentación/Telegrama Socios Comerciales
-• Cita para documentación por primera vez y renovación Banco de Costa Rica al número 800-BCRCITA
-• Cita para documentación por primera vez y renovación Correos de Costa Rica, por medio llamado al 1311.
+. Cita para documentación por primera vez y renovación de DIMEX en Oficinas Regionales
+. Solicitudes de documentación rechazadas que requieren un subsane, mismo que fue comunicado por medio de un TELEGRAMA vía correo electrónico. Opción Documentación/Telegrama Socios Comerciales
+. Cita para documentación por primera vez y renovación Banco de Costa Rica al número 800-BCRCITA
+. Cita para documentación por primera vez y renovación Correos de Costa Rica, por medio llamado al 1311.
 SEGUNDO: PERSONAS EXTRANJERAS SIN DOCUMENTARSE A LAS CUALES SE LES APROBÓ Y NOTIFICÓ SU CATEGORÍA MIGRATORIA ANTES DEL 01 DE OCTUBRE DE 2022. A partir de la notificación de la resolución que le otorga la autorización de permanencia, la persona extranjera interesada, deberá gestionar su cita para documentación por primera vez dentro de los siguientes 90 días, conforme con lo señalado en el artículo 172 del Reglamento de Extranjería (Decreto Ejecutivo 37112-GOB publicado en el Alcance Digital N°64 a la Gaceta N°95 del 17 de mayo de 2012).
 Obtenida la cita respectiva dentro de los 90 días referidos en el párrafo anterior, la resolución debidamente notificada mediante la cual esta Dirección General autorizó la categoría o subcategoría migratoria, será el documento que acredite su permanencia legal, lo anterior de conformidad con el artículo 55 inciso b), del citado Reglamento de Extranjería.
 Para el caso específico de las personas reconocidas como Apátridas, la resolución debidamente notificada mediante la cual el Ministerio de Relaciones Exteriores y Culto, autorizó la subcategoría migratoria de Apátrida, será el documento que acredite su permanencia legal hasta el momento de su cita. La cita se podrá gestionar a partir del 01 de octubre de 2022, a través de:
 Llamada telefónica al 1311:
-• Cita para documentación por primera vez en Oficinas Centrales u Oficinas Regionales.
-• Cita para documentación primera vez Correos de Costa Rica.
+. Cita para documentación por primera vez en Oficinas Centrales u Oficinas Regionales.
+. Cita para documentación primera vez Correos de Costa Rica.
 Ingresando al sitio oficial www.migracion.go.cr
-• Cita para documentación por primera vez en Oficinas Regionales Socios Comerciales
-• Cita para documentación por primera vez Banco de Costa Rica al número 800-BCRCITA
-• Cita para documentación por primera vez Correos de Costa Rica, por medio llamado al 1311.
+. Cita para documentación por primera vez en Oficinas Regionales Socios Comerciales
+. Cita para documentación por primera vez Banco de Costa Rica al número 800-BCRCITA
+. Cita para documentación por primera vez Correos de Costa Rica, por medio llamado al 1311.
 Personas Apátridas: Únicamente podrán documentarse en Oficinas Centrales u Oficinas Regionales.
 TERCERO: PERSONAS EXTRANJERAS SIN DOCUMENTARSE A LAS CUALES SE LES APRUEBE Y NOTIFIQUE SU CATEGORÍA MIGRATORIA POSTERIOR AL 01 DE OCTUBRE DE 2022. A partir de la notificación de la resolución que le otorga la autorización de permanencia, la persona extranjera interesada, deberá gestionar su cita para documentación por primera vez dentro de los siguientes 90 días, conforme con lo señalado en el artículo 172 del Reglamento de Extranjería (Decreto Ejecutivo 37112-GOB publicado en el Alcance Digital N°64 a la Gaceta N°95 del 17 de mayo de 2012).
 Obtenida la cita respectiva dentro de los 90 días referidos en el párrafo anterior, la resolución debidamente notificada mediante la cual esta Dirección General autorizó la categoría o subcategoría migratoria, será el documento que acredite su permanencia legal, lo anterior de conformidad con el artículo 55 inciso b), del Reglamento de Extranjería.
 Para el caso específico de las personas reconocidas como Apátridas, la resolución debidamente notificada mediante la cual el Ministerio de Relaciones Exteriores y Culto, autorizó la subcategoría migratoria de Apátrida, será el documento que acredite su permanencia legal hasta el momento de su cita. La cita se podrá gestionar a partir del 01 de octubre de 2022, a través de:
 Llamada telefónica al 1311:
-• Cita para documentación por primera vez en Oficinas Centrales u Oficinas Regionales.
-• Cita para documentación primera vez Correos de Costa Rica.
+. Cita para documentación por primera vez en Oficinas Centrales u Oficinas Regionales.
+. Cita para documentación primera vez Correos de Costa Rica.
 Ingresando al sitio oficial www.migracion.go.cr
-• Cita para documentación por primera vez en Oficinas Regionales
+. Cita para documentación por primera vez en Oficinas Regionales
 Socios Comerciales
-• Cita para documentación por primera vez Banco de Costa Rica al número 800-BCRCITA
-• Cita para documentación por primera vez Correos de Costa Rica, por medio llamado al 1311.
+. Cita para documentación por primera vez Banco de Costa Rica al número 800-BCRCITA
+. Cita para documentación por primera vez Correos de Costa Rica, por medio llamado al 1311.
 Personas Apátridas: Únicamente podrán documentarse en Oficinas Centrales u Oficinas Regionales.
 CUARTO: CITAS PARA DUPLICADO DE DIMEX (POR PÉRDIDA O ROBO DE DIMEX FÍSICO VIGENTE) El trámite se realizará mediante cita, la cual se gestionará a partir del 01 de octubre de 2022, a través de llamada telefónica al número 1311 para Oficinas Centrales y Oficinas Regionales, o a través de los socios comerciales de la Dirección General de Migración y Extranjería, a saber, Banco de Costa Rica y Correos de Costa Rica a través de los medios indicados en puntos anteriores.
-QUINTO: DOCUMENTACIÓN DE ADULTOS MAYORES Y LEY No 7600. Las personas adultas mayores o las personas usuarias a las que les sea aplicable la Ley de Igualdad de Oportunidades para las personas con discapacidad número 7600 podrán apersonarse sin cita previa a realizar sus solicitudes de documentación por primera vez, renovación o duplicado, en horario diferenciado, de lunes a viernes, a partir de las 7:20 a.m. con un cupo de atención de 27 personas diarias, únicamente en la Unidad de Documentación de Oficinas Centrales.
-En esta ventanilla preferencial únicamente se atenderá a la persona extranjera interesada de conformidad con lo regulado en la resolución 2014-003913 del 30 de setiembre del 2014 de la Sala Constitucional.
+QUINTO: Documentación de Adultos Mayores y Ley N° 7600. Las personas adultas mayores y a aquellas a las que les sea aplicable la "Ley de Igualdad de Oportunidades para las personas con discapacidad" número 7600, podrán solicitar cita para documentación de primera vez, renovación y duplicado, mediante mensaje de la aplicación para teléfonos celulares de mensajería "Whatsapp", al número 8347-3338. Tal disposición estará vigente hasta el 16 de diciembre del 2022. Al solicitar la cita se deberá adjuntar la fotografía del Dimex vencido de la persona extranjera. Las citas se asignarán únicamente para atención en la Unidad de Documentación de Oficinas Centrales. En esta ventanilla preferencial únicamente se atenderá a la persona extranjera interesada de conformidad con lo regulado en la resolución 2014-003913 del 30 de setiembre del 2014 de la Sala Constitucional. A partir del 09 de enero del 2023 se retomará la atención presencial sin cita al adulto mayor y a las personas usuarias a las que les sea aplicable la Ley de Igualdad de Oportunidades para las personas con discapacidad número 7600 en Oficinas Centrales, un horario de atención de lunes a viernes de 7:00 a.m. a 9:20 a.m., y en Oficinas Regionales en un horario de atención de lunes a viernes de 8:00 a.m. a 9:00 a.m.
+(Así reformado el punto quinto anterior mediante resolución N° DJUR-0164-10-2022-JM del 6 de octubre del 2022)
 SEXTO: EXCEPCIONES. Las personas que ocupen los cargos de director (a) general y subdirector de la Dirección General de Migración y Extranjería, podrán dictar mediante oficio razonado, excepciones a las reglas establecidas anteriormente con relación a la prórroga de los DIMEX y ordenar a la Gestión de Extranjería, Subproceso de Documentación, que se proceda con una eventual entrega de documento físico renovado, en casos debidamente justificados por la persona extrajeras interesada y siempre que la disponibilidad de tarjetas así lo permita.
-SÉTIMO: Se deja sin efecto el apartado “3. SUBPROCESO DE DOCUMENTACIÓN” del punto “QUINTO: GESTIÓN DE EXTRANJERIA y OFICINAS ADMINISTRATIVAS REGIONALES” de la resolución DJUR- 0178-10-2021-JM, publicada en el Alcance 225 a La Gaceta N°213, del 4 de noviembre de 2021 y sus reformas.
+SÉTIMO: Se deja sin efecto el apartado "3. SUBPROCESO DE DOCUMENTACIÓN" del punto "QUINTO: GESTIÓN DE EXTRANJERIA y OFICINAS ADMINISTRATIVAS REGIONALES" de la resolución DJUR- 0178-10-2021-JM, publicada en el Alcance 225 a La Gaceta N°213, del 4 de noviembre de 2021 y sus reformas.
 OCTAVO: Rige a partir de su publicación y hasta la emisión de próximas medidas administrativas que modifiquen la documentación de las personas extranjeras, conforme a criterios de oportunidad y conveniencia, según valoración de esta Dirección General.
