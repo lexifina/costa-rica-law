@@ -1,1 +1,0 @@
-Artículo 3°.- La hoja de ruta señalada en el artículo anterior, tendrá como propósito ampliar la representación y participación activa de otros actores regionales que no están considerados en el Decreto Ejecutivo n.° 33778 del 18 de mayo del 2007, y será coordinada con la Dirección Regional de MIDEPLAN en la Región Huetar Caribe.
