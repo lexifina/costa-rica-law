@@ -1,0 +1,1 @@
+Artículo 5º-El Consejo Editor podrá reunirse en forma extraordinaria a solicitud de tres de sus integrantes, debiendo ser convocados los demás miembros con 48 horas de anticipación. Sin embargo, en casos de urgencia comprobada, podrán convocarse hasta con veinticuatro horas de antelación.

@@ -1,0 +1,1 @@
+Artículo 13.-Los artículos podrán ser evaluados desde el punto de vista de su capacidad de compresión, extensión, contenido y complejidad, de tal manera que sean de interés para todos los colegiados miembros.

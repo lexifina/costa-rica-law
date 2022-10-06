@@ -1,0 +1,1 @@
+Artículo 4º-El Consejo Editor sesionará de forma presencial o virtual, según la periodicidad que acuerden. Las convocatorias se harán con un mínimo de tres días hábiles de antelación, pudiendo hacerse aún por vía telefónica u otro medio en caso de urgencia, o por el medio que hubieses acordado sus miembros, dejándose constancia de ello.

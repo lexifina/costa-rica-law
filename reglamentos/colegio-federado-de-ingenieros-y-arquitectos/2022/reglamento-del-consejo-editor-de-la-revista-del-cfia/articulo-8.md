@@ -1,0 +1,1 @@
+Artículo 8º-En las sesiones del Consejo Editor, podrán participarán los miembros suplentes representantes de cada Colegio Miembro, así como también, los funcionarios del Departamento Comunicación Corporativa del CFIA, encargados del desarrollo de la Revista. Todos ellos podrán participar con voz, pero sin voto.

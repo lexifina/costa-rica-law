@@ -1,0 +1,1 @@
+Artículo 12.-Los miembros de Consejo Editor que participen como representantes de los Colegios Miembros, serán los responsables del área profesional de su respectivo colegio y pondrá a consideración de los demás integrantes, los temas de su especialidad para su publicación.

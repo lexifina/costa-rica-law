@@ -1,0 +1,2 @@
+Artículo 2º-Las Juntas Directivas de los Colegios Miembros deberán designar un miembro titular y un miembro suplente. Dichos nombramientos deberán ser ratificados a su vez por la Junta Directiva General del CFIA.
+Los representantes de cada Colegio Miembro, tanto titular como suplente, estarán nombrados por un periodo de cuatro años, pudiendo ser nombrado nuevamente por periodos iguales. Dichos representantes deberán encontrarse al día con sus obligaciones ante el CFIA y no estar inhabilitados por faltas a la ética profesional.
