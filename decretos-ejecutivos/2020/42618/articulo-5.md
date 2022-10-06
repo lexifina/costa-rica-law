@@ -1,1 +1,0 @@
-Artículo 5º—En caso que el Ministerio de Salud siga determinando, mediante resolución administrativa, que persiste el peligro epidemiológico del COVID-19 en el territorio nacional, el presente decreto podría ser ampliado por otro plazo adicional hasta un máximo de doce meses.

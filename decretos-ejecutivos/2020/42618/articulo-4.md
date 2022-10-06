@@ -1,1 +1,0 @@
-Artículo 4º—Tanto las prórrogas como las sustituciones de los nombramientos, se eximen de lo establecido en el inciso a) del artículo 11 del Decreto N° 39453, por lo que las personas nombradas se integrarán de inmediato y de pleno derecho a cumplir sus funciones en los Directorios de los Consejos Regionales.
