@@ -1,0 +1,2 @@
+Artículo 15.- Compras directas.
+Los sujetos privados podrán solicitar a la municipalidad la compra directa de equipamiento, materiales educativos y/o cualquier otro tipo de bien que sea requerido para alcanzar los fines propuestos. Esta compra será validada técnicamente por medio de la Dirección Municipal competente, la cual realizará las gestiones pertinentes para presupuestar y adquirir los insumos solicitados, quedando bajo su responsabilidad la formalización de un acta de entrega de estos hacia el sujeto privado.

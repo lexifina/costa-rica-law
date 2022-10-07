@@ -1,0 +1,2 @@
+Artículo 16.- Otorgamiento de la donación o ayuda en especie.
+Para otorgar la donación o ayuda en especie, laMunicipalidad se reserva el derecho de aplicar las pruebas que permitan determinar la necesidad real del solicitante. Queda facultada a hacer las visitas pertinentes al sitio donde se requiere la intervención, y podrá valerse de las técnicas de investigación social y criterios técnicos para validar las solicitudes.

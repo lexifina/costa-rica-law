@@ -1,0 +1,2 @@
+Artículo 17.- Obligación del sujeto privado beneficiado.
+Es obligación del beneficiario emplear la donación o ayuda en especie para el fin que le fueron concedidos. Para tales efectos la Alcaldía, dependiendo del tipo de ayuda, podrá solicitar la realización de inspecciones del uso de los recursos dados por la Municipalidad, dejando constancia mediante un acta que será incluida en el expediente respectivo.

@@ -1,0 +1,2 @@
+Artículo 23.- Sobre los expedientes.
+Deberá conformarse un expediente, que cumpla con lo establecido en el artículo 22 del jpresente reglamento, la creación, custodia y organización los expedientes estará a cargo de la dirección a la que se le delego el trámite de ayuda, el cual contendrá todos los requisitos, documentación, así como en caso de suspensión de la ayuda temporal o subvención de manera actualizada. Se deberán actualizar cada vez que surja nueva información documental referente la ayuda.

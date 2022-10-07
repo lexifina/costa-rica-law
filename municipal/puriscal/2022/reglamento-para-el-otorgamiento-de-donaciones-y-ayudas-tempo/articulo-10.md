@@ -1,0 +1,2 @@
+Artículo 10.- Inhabilitación para tramitar ayudas municipales.
+Si en alguna oportunidad se determina que el (la) interesado(a) hubiese suministrado datos falsos con el fin de obtener el beneficio, automáticamente será anulado todo el trámite y así quedará constando en el respectivo expediente. Dicha persona, y su familia (su núcleo familiar directo), quedarán imposibilitados para tramitar gestiones posteriores a efecto de obtener ayuda por parte de la Municipalidad de Puriscal por dos años.

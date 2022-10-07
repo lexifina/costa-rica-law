@@ -1,0 +1,5 @@
+SECCIÓN IV
+Sobre la entrega incompleta de la información
+Artículo 21.- Entrega incompleta de información.
+La entrega incompleta de la información requerida para tramitar los distintos tipos de ayudas descritas en el Artículo 2º de este reglamento, por lo que la plataforma de servicios recibirá la documentación y por una única vez otorgará un plazo conforme al artículo 6 de la Ley 8220, para que se subsane la información incompleta, con el objeto de no ocasionar retrasos en el trámite de la solicitud, ya que la administración concedente requerirá de la totalidad de la documentación para materializar las ayudas.
+Para el caso de las subvenciones, la administración concedente dará trámite a las solicitudes por medio de la presentación de una moción que considere la pertinencia de la formalización de un convenio de transferencia de fondos entre la Municipalidad de Puriscal y el sujeto privado solicitante, siempre y cuando el expediente conste de toda la documentación que se mencionada en el Anexo 1: Guía de requisitos para el giro de recursos de este reglamento.

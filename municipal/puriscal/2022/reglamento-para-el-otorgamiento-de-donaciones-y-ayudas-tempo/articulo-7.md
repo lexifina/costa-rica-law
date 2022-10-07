@@ -1,0 +1,2 @@
+Artículo 7.- Aplicación de Pruebas.
+Para otorgar la ayuda, la Municipalidad se reserva el derecho de aplicar las pruebas que permitan determinar la necesidad real del solicitante y para justificar debidamente su estado de desgracia o infortunio. Para tal fin, hará las visitas pertinentes al hogar, entrevistará a los miembros de la familia, a otros vecinos, y en general, usará las técnicas de investigación social de uso cotidiano en la rama del Trabajo Social cuando se cuente con el personal capacitado y de la Comisión Municipal de Emergencias.
