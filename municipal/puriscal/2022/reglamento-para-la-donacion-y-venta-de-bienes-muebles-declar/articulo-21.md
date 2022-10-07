@@ -1,0 +1,4 @@
+Artículo 21.- Procedimiento para dar de Baja Bienes en Desuso.
+El encargado (a) de la Administración de Bienes solicitará semestralmente, mediante comunicado formal, de las Jefaturas que informe sobre los bienes muebles que no están siendo utilizados. Previa coordinación con el Encargado (a) de la Administración de Bienes, las jefaturas responsables, deberán entregar los bienes en el lugar que les sea indicado.
+El encargado (a) de la administración de bienes procederá a descargarlos al responsable y cargarlo al stock general de bienes, para decidir su disposición posteriormente.
+Lo anterior, no excluye la responsabilidad de que en el momento que las Jefaturas identifiquen un bien en desuso, lo deberán remitir inmediatamente mediante formulario establecido por el encargado (a) de la Administración de Bienes, para que proceda con la coordinación del recibo y a realizar el descargo respectivo.

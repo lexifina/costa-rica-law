@@ -1,0 +1,2 @@
+Artículo 20.- Baja por Venta, Permuta o Dación de Pago.
+La venta, permuta o dación en pago de bienes muebles, se darán producto de un proceso de remate por Licitación Pública, de conformidad con la Ley de Contratación Administrativa y su Reglamento. La base se fijará según el avalúo emitido por el área técnica. Una vez concluida la contratación la Proveeduría, deberá de comunicar al encargado (a) de la administración de bienes que proceda a dar de baja el bien, en un plazo de 5 días hábiles.

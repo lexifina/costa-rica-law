@@ -1,0 +1,2 @@
+Artículo 7- Registro de Bienes muebles.
+Una vez que los bienes muebles han sido identificados según lo establecido en el artículo anterior, el encargado (a) de la administración de bienes dispondrá su inclusión y registro en el respectivo sistema informático, para lo cual se considerará las características del bien, precio, número de orden de compras, fecha de adquisición y garantía del fabricante o distribuidor, así como el responsable del bien.

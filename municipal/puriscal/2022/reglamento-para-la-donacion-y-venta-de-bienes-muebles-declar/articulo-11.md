@@ -1,0 +1,2 @@
+Artículo 11.- Alta de bienes muebles por compra.
+Cuando se adquieran bienes siguiendo los procedimientos de compra, la bodega y del plantel remitirá un comunicado al encargado (a) de la administración de bienes mediante el cual, indique el lugar de recibo de los bienes para proceder a asignar la identificación y su respectivo registro en el sistema informático, con la descripción, detalle de las característica y responsable del mismo, lo anterior en un plazo no mayor a 5 días hábiles, contados a partir de la fecha de recibido a satisfacción del bien o bienes.

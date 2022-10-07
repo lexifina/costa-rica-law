@@ -1,0 +1,2 @@
+Artículo 27.- Traslado de Bienes muebles entre Direcciones o Departamentos.
+Se le permitirá a las dependencias, trasladar bienes entre sus funcionarios, o entre ellas; para lo cual deberán acatar las directrices del encargado (a) de la Administración de Bienes y justificar ante ésta dicho traslado dentro del plazo de 3 días hábiles. De validarse el movimiento, se procederá al registro del respectivo traslado.

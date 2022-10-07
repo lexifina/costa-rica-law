@@ -1,0 +1,2 @@
+Artículo 13.- Alta de bienes muebles por donación.
+El encargado (a) de la Administración de Bienes, recibirá por parte del Departamento receptor de la donación, mediante el formulario para "Alta de Bienes", debidamente lleno, incluyendo la información respectiva sobre el bien o bienes donados (características, estimación del valor) así como aval correspondiente, para su alta en un plazo no mayor a 10 días hábiles posteriores.

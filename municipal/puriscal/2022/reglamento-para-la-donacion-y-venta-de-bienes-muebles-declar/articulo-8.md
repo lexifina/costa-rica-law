@@ -1,0 +1,2 @@
+Artículo 8.- Registro de bienes intangibles.
+De tratarse de software corporativo el procedimiento a seguir es el de identificar y registrar en el registro de activos las licencia correspondiente haciendo alusión a la cantidad de licencias. En el caso de que sea individual, se procederá de la misma manera adicionando la identificación de cada usuario. La información deberá ser remitida por el Departamento de Tecnología de la Información al encargado (a) de la Administración de bienes.
