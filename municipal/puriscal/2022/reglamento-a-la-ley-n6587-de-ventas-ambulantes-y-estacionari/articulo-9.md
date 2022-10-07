@@ -1,0 +1,1 @@
+Artículo 9.- Vigencia de la licencia comercial: La vigencia de las licencias estacionarias o ambulantes es por un periodo de dos años. La misma no tendrá prórroga automática, sino que deberá renovarse según condiciones del artículo 8 de este reglamento.

@@ -1,0 +1,1 @@
+Artículo 30.- Cierre temporal: En todos los casos de incumplimiento a las disposiciones del presente reglamento, procederá el cierre temporal hasta por 3 día del local estacionario, o bien hasta que el patentado cumpla con lo prevenido mediante notificación.

@@ -1,0 +1,1 @@
+Artículo 17.- Sobre el máximo de licencias por cuadra: La determinación de establecimientos o puestos para las ventas estacionarias será definida según diagnóstico y aprobación del proceso de Control Urbano, Licencias Municipales y la Alcaldía Municipal.

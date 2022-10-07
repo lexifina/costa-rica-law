@@ -1,0 +1,1 @@
+Artículo 24.- Sobre el cambio de línea comercial: La solicitud de cambio de línea comercial deberá ser tramitada ante el Subproceso de Licencias Municipales, dónde previo criterio técnico, podrá aprobar o negar el cambio de línea comercial.

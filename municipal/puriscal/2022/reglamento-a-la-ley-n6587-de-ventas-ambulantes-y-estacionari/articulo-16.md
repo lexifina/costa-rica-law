@@ -1,0 +1,1 @@
+Artículo 16.- Sobre los servicios público: Los servicios públicos de electricidad y agua deben ser solicitados por el respectivo patentado con previa autorización municipal, y son responsabilidad de los mismos su cancelación continua y oportuna, y demás aspectos inherentes a los servicios públicos.
