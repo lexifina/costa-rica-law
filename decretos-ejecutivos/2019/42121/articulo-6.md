@@ -1,1 +1,0 @@
-Artículo 6º—Se excluye de este aumento al presidente de la República, los vicepresidentes de la República(as), los diputados (as), los ministros (as), los viceministros (as), los presidentes ejecutivos (as), los gerentes (as) y los funcionarios (as) públicos, cuyas remuneraciones totales mensuales sean iguales o superiores a cuatro millones de colones (₵4.000.000.00).
