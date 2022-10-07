@@ -1,0 +1,1 @@
+Transitorio 2. - El presente reglamento deroga los reglamentos anteriores a este que tuviera la Municipalidad de Puriscal en materia de Estacionamientos autorizados (Estacionómetros / Parquímetros) en Vía Pública.

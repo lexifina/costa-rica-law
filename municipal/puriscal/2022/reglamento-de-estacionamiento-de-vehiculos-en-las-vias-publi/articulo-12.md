@@ -1,0 +1,1 @@
+Artículo 12° - Demarcación de zonas para personas con Discapacidad: Se demarcará según lo estipulado en la Ley 7600 y se colocará el símbolo internacional de discapacidad en el lugar designado, lo cual no exonera al usuario del pago de estacionamiento.
