@@ -1,0 +1,1 @@
+Artículo 19. Formalización de la contratación. El oferente elegido firmará un contrato con la Municipalidad, así como cualquier otro documento que requiera la Institución, según las regulaciones establecidas en la Ley de Contratación Administrativa y su reglamento, por el plazo establecido en el cartel.

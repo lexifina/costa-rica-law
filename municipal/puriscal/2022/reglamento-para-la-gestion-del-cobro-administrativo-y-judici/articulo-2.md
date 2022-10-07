@@ -1,0 +1,1 @@
+Artículo 2. Ámbito de aplicación. Este Reglamento será de aplicación obligatoria para la Administración Tributaria de la Municipalidad de Puriscal como para sus contribuyentes y se regulará por el marco normativo establecido en el artículo 6 de la Ley General de Administración Pública.

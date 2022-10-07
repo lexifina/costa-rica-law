@@ -1,0 +1,1 @@
+Artículo 14. Conclusión del arreglo de pago. El convenio de arreglo de pago se dará por concluido, únicamente ante el pago total que realice el deudor de la obligación vencida, o se dará por incumplido y exigible su saldo, cuando se haya retrasado treinta días hábiles en el cumplimiento de su obligación, en cuyo caso, vencido, se remitirá a la etapa judicial.

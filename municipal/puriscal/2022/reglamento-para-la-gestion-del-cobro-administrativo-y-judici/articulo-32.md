@@ -1,0 +1,1 @@
+Artículo 32. Terminación del proceso Judicial. Una vez que el cobro judicial haya sido iniciado, solo podrá darse por terminado con base a lo estipulado en el artículo 10, artículo 15, siguientes y concordantes del presente reglamento.

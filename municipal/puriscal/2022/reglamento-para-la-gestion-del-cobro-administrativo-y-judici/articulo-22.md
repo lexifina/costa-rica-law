@@ -1,0 +1,1 @@
+Artículo 22. Condonación de honorarios. Procederá únicamente la condonación de los honorarios profesionales cuando así lo haya determinado el director de la empresa el cual lo hará constar mediante nota dirigida a la Administración Tributaria de la Municipalidad.

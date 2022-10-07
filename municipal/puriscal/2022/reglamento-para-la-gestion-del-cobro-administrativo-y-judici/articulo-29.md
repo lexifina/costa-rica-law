@@ -1,0 +1,1 @@
+Artículo 29. Coordinación institucional. Con el fin de cumplir con los objetivos del presente reglamento, se mantendrá una coordinación entre el Subproceso de Administración Tributaria por medio de la oficina de la Gestión de Cobro y el Proceso de Servicios Jurídicos.
