@@ -1,1 +1,0 @@
-Artículo 3°.- Se insta a las instituciones fuera del ámbito de cobertura de la Autoridad Presupuestaria que no hayan pagado el aumento señalado en el artículo 1 del presente Decreto Ejecutivo, a suspender el aumento general anual al salario base, a efectos de focalizar dichos recursos para la atención de la emergencia nacional.
