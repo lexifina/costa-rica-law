@@ -1,0 +1,5 @@
+Artículo 2º-Definiciones. Para la aplicación correcta de este reglamento se entenderá por:
+Alimentos y bebidas: Corresponde a la compra de alimentos y bebidas naturales, semimanufacturados o industrializados para el consumo humano. Incluye los gastos de comida y otros servicios de restaurante brindados al personal que labora en las instituciones públicas, así como a usuarios externos que partición en reuniones de trabajo y otras actividades de carácter laboral, pacientes de los centros hospitalarios, comedores estudiantiles, albergues infantiles, internos de los centros penitenciarios y otros.
+Banco: Se refiere al Banco Hipotecario de la Vivienda.
+Junta: Se refiere a la Junta Directiva del Banco Hipotecario de la Vivienda.
+Gastos de alimentación: son los egresos en los en que puede incurrir el Banco para el pago de alimentos y bebidas a los miembros de la Junta Directiva, funcionarios y personas externas que participen sesiones o reuniones de trabajo donde se traten o desarrollen asuntos de interés y beneficio para la Institución.

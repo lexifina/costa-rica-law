@@ -1,0 +1,1 @@
+Artículo 6º-Procedimiento. Los procedimientos para la adquisición de alimentos y bebidas deben ser congruentes con lo establecido en la Ley y el Reglamento de Contratación Administrativa y en el Reglamento de Fondo de Caja Chica de este Banco; por lo que se deberá utilizar el mecanismo que corresponda de conformidad con lo establecido en la normativa citada.

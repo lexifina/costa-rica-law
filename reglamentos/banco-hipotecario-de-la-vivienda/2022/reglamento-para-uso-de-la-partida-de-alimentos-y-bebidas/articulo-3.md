@@ -1,0 +1,3 @@
+Artículo 3º-Ámbito de aplicación. Se autoriza incurrir en gastos de alimentación en los siguientes casos:
+a) Sesiones de Junta Directiva: Se autoriza la compra de alimentos y bebidas para las sesiones ordinarias y extraordinarias que realice la Junta Directiva del Banco, tanto para sus miembros como para los participantes en forma habitual u ocasional, así como para la secretaría del mismo órgano.
+b) Reuniones de trabajo de la Gerencia General: Se autoriza la compra de alimentos y bebidas para la atención de sesiones de trabajo convocadas por la Gerencia General que implique la dedicación de los participantes por un tiempo prolongado de forma tal que se les vea limitada la posibilidad de buscar alimentación por sus propios medios.
