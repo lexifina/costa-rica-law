@@ -1,0 +1,2 @@
+Artículo 7°- Caducidad
+Los premios especiales correspondientes a enteros del Sorteo Extraordinario de Navidad N°4727 que obtengan los ganadores podrán ser reclamados a partir del primer día hábil siguiente a la realización de cada sorteo y dentro del período de caducidad de 60 días naturales, establecido en el artículo 18 de la Ley No. 8718. Si transcurrido el plazo de caducidad el ganador no se presenta, la Junta de Protección Social procederá a efectuar la destrucción respectiva.
