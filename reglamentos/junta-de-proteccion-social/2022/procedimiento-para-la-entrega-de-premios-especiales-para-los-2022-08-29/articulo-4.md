@@ -1,0 +1,2 @@
+Artículo 4°- Detalle de los premios
+Entre todas las personas mayores de 18 años, sea nacional o extranjero, que completen al menos un coleccionable y hasta un máximo de 10 coleccionables para cada sorteo de esta promoción partir del lunes 10 de octubre del 2022, se otorgarán en total (entre todos los sorteos de la promoción) 200 premios de ¢1.000.000,00 (un millón de colones con cero céntimos), 200 premios de ¢500.000,00 (quinientos mil colones con cero céntimos) y 200 premios de un entero de lotería del Sorteo Extraordinario de Navidad N°4727.
