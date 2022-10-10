@@ -25,5 +25,6 @@ XVII. Que, de conformidad con el artículo 12 del Decreto Ejecutivo Nº 37045-MP
 Por Tanto,
 DECRETAN:
 CREACIÓN DEL BENEFICIO TEMPORAL POR INFLACIÓN
-Articulo 1.- Creación del beneficio. Se crea el beneficio temporal denominado) "Beneficio por inflación", el cual se financiará con recursos provenientes del Fondo de Desarrollo Social y Asignaciones Familiares, los cuales se trasladan al IMAS como entidad ejecutora del beneficio.
-El beneficio consistirá en una trasferencia mensual de sesenta mil colones exactos (60.000.ºº) para los hogares que se encuentren en situación de pobreza extrema o pobreza, según verificación realizada por la institución al momento de la selección.
+Artículo 1.- Creación del beneficio. Se crea el beneficio temporal denominado "Beneficio por inflación", el cual se financiará con recursos provenientes del Fondo de Desarrollo Social y Asignaciones Familiares, los cuales se trasladan al IMAS como entidad ejecutora del beneficio.
+El beneficio consistirá en una transferencia de sesenta mil colones exactos (60.000. ºº), por cada giro, para los hogares que se encuentren en situación de pobreza extrema o pobreza, según verificación realizada por la institución al momento de la selección y antes de realizar cada giro.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 43749 del 10 de octubre de 2022)

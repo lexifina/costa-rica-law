@@ -1,2 +1,4 @@
 Artículo 5.- Fuente de financiamiento. Los recursos financieros con los que el IMAS podrá ejecutar este beneficio provendrán de los recursos recaudados del Fondo de Desarrollo Social y Asignaciones Familiares y asignados vía presupuesto ordinario o extraordinario para tales efectos, consecuentemente se encuentran excluidos de la aplicación de la regla fiscal.
-Para el debido cumplimiento de los objetivos que este decreto establece, se realizan las modificaciones presupuestarias y todas las acciones pertinentes dentro del ámbito de la legalidad y disposiciones presupuestarias vigentes, para que estos recursos sean trasladados en un único tracto por año, al IMAS, para la ejecución respectiva.
+Para el debido cumplimiento de los objetivos que este decreto establece, se realizarán las modificaciones presupuestarias y todas las acciones pertinentes dentro del ámbito de la legalidad y disposiciones presupuestarias vigentes, para la ejecución respectiva por parte del IMAS.
+Toda asignación del beneficio se hará sujeta a la disponibilidad presupuestaria.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 43749 del 10 de octubre de 2022)

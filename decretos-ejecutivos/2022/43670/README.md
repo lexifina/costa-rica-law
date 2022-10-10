@@ -14,3 +14,4 @@ Creación del beneficio temporal por inflación
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-09-20 | la propia norma |
+| 2 | 2022-10-10 | Decreto Ejecutivo 43749 (2022-10-10) |
