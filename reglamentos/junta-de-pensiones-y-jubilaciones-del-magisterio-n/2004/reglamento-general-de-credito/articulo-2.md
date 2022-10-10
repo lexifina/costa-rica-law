@@ -21,3 +21,5 @@ iii. Reposición de bienes que haya perdido, a causa de hurto, robo o vandalismo
 iv. Reposición de bienes parcial o total por causa de desastres naturales (inundaciones, temblores, terremotos, etc). Debe aportar certificación emitida por la autoridad competente.
 8. Línea para servicios funerarios
 Dirigida a los afiliados, que requieren cancelar gastos funerarios.
+9. Línea de Crédito Verde: Dirigida para la adquisición de bienes que contribuyan con la conservación del medio ambiente y ahorro de energías.
+(Así adicionado el inciso anterior en sesión N° 0113 del 10 de octubre de 2022)

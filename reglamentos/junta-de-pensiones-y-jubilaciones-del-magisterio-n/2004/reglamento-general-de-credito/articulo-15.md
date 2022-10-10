@@ -1,2 +1,2 @@
-Artículo 15.-Coberturas en caso de fallecimiento. Como garantía en el proceso de formalización del crédito, el solicitante debe autorizar la suscripción de las coberturas mediante pólizas o seguros, según se detalla en cada línea, de conformidad con el tipo de patrono y condición laboral del deudor, por la totalidad del monto adeudado. Este proceso debe ser ejecutado en el acto del registro de la solicitud de crédito
-(Así reformado mediante sesión N° 0004-2022 del 6 de enero de 2022)
+Artículo 15.-Pagarés. Como parte del proceso de formalización cuando la garantía no sea hipotecaria; el solicitante firma un Pagaré, documento legal que contiene las principales características de la operación crediticia.
+(Así reformado en sesión N° 0113 del 10 de octubre de 2022)

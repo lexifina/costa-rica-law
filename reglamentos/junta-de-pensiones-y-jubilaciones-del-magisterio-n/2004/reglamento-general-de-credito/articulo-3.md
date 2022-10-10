@@ -9,4 +9,10 @@ f. Derechos sucesorios 8 años.
 Este plazo máximo aplica sólo en aquellos casos en que el plazo de extinción del derecho sucesorio exceda de cinco años. Si dicho plazo de extinción fuera menor de cinco años, el plazo del crédito no puede superar este plazo.
 g. Línea de urgencia 7 años.
 h. Línea para servicios funerarios 5 años.
+(*) i) Línea de crédito verde: De acuerdo con el plan de inversión
+a. Paneles Solares: 8 años.
+b. Vehículos nuevos eléctricos o híbridos: 10 años.
+c. Soluciones para el hogar: 5 años.
+d. Conversión de combustible: 5 años.
+(*) (Así adicionado el inciso i) anterior en sesión N° 0113 del 10 de octubre de 2022)
 (Así reformado mediante sesión ordinaria N° 0069-2021 del 18 de junio del 2021)

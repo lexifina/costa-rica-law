@@ -14,6 +14,12 @@ La tasa de interés sube en cinco puntos porcentuales, para aquellos créditos e
 De darse el aumento de la tasa de interés, el interesado está obligado a efectuar la cancelación de la cuota mensual por ventanilla y en caso de no pago oportuno de la cuota, el fiador debe asumir el saldo de la deuda.
 g) Línea de urgencia: 8% anual fija sobre saldos.
 h) Línea para servicios funerarios: 8% anual fija sobre saldos.
+(*) i) Línea de crédito verde: De acuerdo con el plan de inversión.
+a. Paneles Solares: 11% fija.
+b. Vehículos eléctricos o híbridos nuevos: 8% fija.
+c. Soluciones para el hogar: 11% fija.
+d. Conversión de combustible: 11% fija.
+(*) (Así adicionado el inciso i) anterior en sesión N° 0113 del 10 de octubre de 2022)
 Las tasas de interés solo pueden ser variadas por acuerdo de la Junta Directiva y se aplican únicamente para los nuevos créditos que se otorguen.
 Por acuerdo de Junta Directiva, se pueden establecer tasas de interés, ajustables y revisables semestralmente.
 Para efectos de cobro de intereses moratorios, se tiene como fecha de cobro, el primer día hábil del mes, siendo equivalente a la tasa de interés corriente del crédito más un 30%, según lo establecido en el Artículo 498 del Código de Comercio.

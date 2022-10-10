@@ -1,3 +1,3 @@
-Artículo 23.-Supervisión. JUPEMA, por medio del Departamento de Crédito y Cobro, implementa un plan de supervisión para asegurarse que los recursos otorgados mediante la línea de crédito MYPIME hayan sido utilizados adecuadamente y que la garantía otorgada no pierda valor durante la vigencia de la operación.
-La Unidad de Cobro debe informar por escrito y en forma inmediata, a la Jefatura del Departamento de Crédito y Cobro, cualquier inconveniente o anomalía presentada en la supervisión, para que se proceda según corresponda. Los reportes deben constar en el expediente respectivo. Queda entendido que las visitas no son requeridas, cuando la garantía del crédito no sea hipotecaria.
-(Así reformado mediante sesión N° 0004-2022 del 6 de enero de 2022)
+Artículo 23.-Comité de Crédito. Se establece un Comité de Crédito conformado por el Encargado de la Unidad de Crédito, el jefe del Departamento de Crédito y Cobro, el Encargado de la Unidad de Cobro, un Ejecutivo de Crédito II y un representante de la Dirección Ejecutiva. Este Comité tiene la facultad de analizar, y resolver las solicitudes de crédito MIPYME y las de garantía hipotecaria.
+De las reuniones realizadas, se levanta un Acta con los pormenores de los asuntos tratados.
+(Así reformado en sesión N° 0113 del 10 de octubre de 2022)
