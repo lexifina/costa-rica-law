@@ -1,0 +1,1 @@
+Artículo 44.-Una vez designadas las comisiones por el presidente municipal, sus miembros, en la sesión de instalación que deberá celebrarse dentro de los quince días siguientes, nombrarán de su seno a un coordinador y un secretario.

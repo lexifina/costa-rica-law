@@ -1,0 +1,1 @@
+Artículo 10.-A todas las sesiones extraordinarias, se convocará a los regidores propietarios y suplentes, así como a los síndicos propietarios y suplentes. En Sesión Extraordinaria se conocerán exclusivamente los asuntos indicados en la convocatoria, salvo modificación del orden de agenda aprobada por la totalidad de los regidores.

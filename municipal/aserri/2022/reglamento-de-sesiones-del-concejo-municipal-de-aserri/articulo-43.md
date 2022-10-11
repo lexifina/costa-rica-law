@@ -1,0 +1,2 @@
+Artículo 43.-Toda comisión estará integrada al menos por tres miembros. Las Comisiones permanentes deberán estar integradas únicamente por regidores propietarios; las Comisiones Especiales podrán estar integradas por regidores propietarios, por regidores suplentes, o por síndicos representantes de las fracciones políticas que tienen representación en la Municipalidad. Los funcionarios municipales y los particulares podrán participar en las sesiones con carácter de asesores.
+Los miembros de cada Comisión serán los que escojan a los asesores que consideren idóneos.

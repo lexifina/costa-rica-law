@@ -1,0 +1,1 @@
+Artículo 16.-Para retirarse temporalmente de la sesión, los miembros del Concejo deben solicitarlo permiso a la Presidencia Municipal o a quien este delegue tal responsabilidad. En todo caso, no puede retirarse más de los 15 minutos que estipula el Código.

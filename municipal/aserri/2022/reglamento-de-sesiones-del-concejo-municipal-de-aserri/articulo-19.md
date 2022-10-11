@@ -1,0 +1,1 @@
+Artículo 19.-El orden del día será elaborado por la secretaría con instrucciones del presidente municipal e informado a todos los miembros propietarios y suplentes del Concejo por el correo electrónico oficial indicado, con 2 horas de anticipación.

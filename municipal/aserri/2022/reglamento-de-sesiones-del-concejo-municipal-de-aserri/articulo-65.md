@@ -1,0 +1,1 @@
+Artículo 65.-Los regidores presentarán las mociones y proposiciones por escrito o escaneadas y firmadas o con firma digital. El secretario anotará la hora y fecha en que fueron presentadas y serán conocidas en estricto orden de presentación; salvo cuando se trate de mociones de orden.

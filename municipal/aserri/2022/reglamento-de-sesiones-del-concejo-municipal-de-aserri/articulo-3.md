@@ -1,0 +1,2 @@
+Artículo 3º-La Secretaría del Concejo Municipal levantará, por cada sesión ordinaria y extraordinaria celebrada por el órgano colegiado, una lista de asistencia conforme a la cual serán pagadas las dietas de los Regidores propietarios y suplentes, así como los Síndicos propietarios y suplentes.
+En el caso de sesiones virtuales excepcionales, la Secretaría del Concejo Municipal emitirá una certificación donde hará constar la asistencia a la videoconferencia y tendrá la misma validez que los listados dichos en el párrafo anterior.

@@ -1,0 +1,1 @@
+Artículo 66.-Las mociones y proposiciones se presentarán por escrito con las justificaciones pertinentes y deberán contar con al menos: Fecha, Nombre del proponente, Nombre de quien secunda en caso que se dé, Nombre de quien lo acoge en caso necesario, Considerando, Proposiciones, y Firmas de quienes participan en el acto.

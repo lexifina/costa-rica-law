@@ -1,0 +1,3 @@
+Artículo 8º-La Presidencia dará apertura a la sesión (presencial o virtual) a la hora fijada. De no haber quórum, el presidente realizará cuatro llamados, para poder iniciar la sesión con el mínimo requerido.
+Si transcurridos los 15 minutos aún no hay quórum, se dará por terminada la sesión y la secretaría levantará una lista con el nombre de los regidores presentes, a fin de acreditarles su asistencia para efecto del pago de dietas. De acuerdo al artículo 38 del Código Municipal, aquellos ediles que no concurran dentro de ese plazo de tiempo, no devengarán dietas.
+De igual manera ocurrirá para aquellos miembros que se retiren temporalmente de la conexión sin autorización de la Presidencia y quienes se hayan retirado virtualmente previo a su finalización.

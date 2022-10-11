@@ -1,0 +1,2 @@
+Artículo 63 bis.-El Secretario del Concejo coordinará con la Presidencia Municipal todos los aspectos de carácter administrativo relativos al personal subalterno de la Secretaría Municipal, quienes dependerán directamente del Concejo.
+Al quedar vacante la plaza del Secretario Municipal, el Concejo deberá llenarla de acuerdo con las opciones y pasos expresamente señalados en el artículo 137 del Código Municipal.

@@ -1,0 +1,1 @@
+Artículo 20.-Las actas de las sesiones del Concejo deberán ser aprobadas en la sesión ordinaria inmediata posterior, salvo que circunstancias especiales lo impidan, las cuales deben quedar constando en el acta siguiente. Es competencia de la Presidencia Municipal la definición de estos casos especiales.

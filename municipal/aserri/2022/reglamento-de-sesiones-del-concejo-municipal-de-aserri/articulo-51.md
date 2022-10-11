@@ -1,0 +1,1 @@
+Artículo 51.-Cuando el objeto de la audiencia fuere de competencia del Alcalde, el presidente ordenará a la Secretaría remitir el memorial presentado a dicho funcionario, para que éste le dé el trámite correspondiente. La secretaría lo hará del conocimiento de los interesados.

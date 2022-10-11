@@ -1,0 +1,2 @@
+Artículo 22.-Los dictámenes de las comisiones y/o informes del Alcalde Municipal, deben ser incluidos en el orden del día, siguiendo el orden en que fueron presentados a la secretaría. Para ese efecto, la secretaría al recibir los dictámenes, consignará al pie de ellos la hora y la fecha de la presentación, y los enviará al correo electrónico oficial de cada regidor propietario y suplente.
+Para todos los casos que no sean de extrema urgencia de votación, el presidente podrá trasladar los informes para que sean votados en la sesión siguiente.

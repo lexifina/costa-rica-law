@@ -1,0 +1,1 @@
+Artículo 24.-El presidente municipal no dará curso y declarará fuera de orden las proposiciones o mociones que evidentemente resulten improcedentes; o que simplemente vayan a dilatar u obstaculizar el curso normal del debate o la resolución de un asunto. Para ello el presidente dará un razonamiento verbal de su decisión, que constará en el acta.

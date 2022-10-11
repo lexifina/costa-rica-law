@@ -1,0 +1,1 @@
+Artículo 57.-Finalizadas las exposiciones de los particulares el presidente concederá la palabra a los regidores y síndicos que lo soliciten con el fin de intercambiar brevemente opiniones con los visitantes sobre el asunto de que se trate.

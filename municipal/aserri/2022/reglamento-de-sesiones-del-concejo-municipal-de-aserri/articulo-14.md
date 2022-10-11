@@ -1,0 +1,1 @@
+Artículo 14.-El regidor propietario que llegase después de transcurridos los quince minutos contados a partir de la hora señalada para iniciar la Sesión, perderá el derecho de devengar la dieta, aunque no se hubiere efectuado su sustitución.

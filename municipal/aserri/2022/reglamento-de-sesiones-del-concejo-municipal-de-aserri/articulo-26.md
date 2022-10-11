@@ -1,0 +1,2 @@
+Artículo 26.-El Concejo recibirá audiencias los días que éste acuerde, en las que tendrán 15 minutos para hacer su exposición y se someterán a una breve discusión. En casos especiales y cuando así lo considere el Concejo, se ampliará el tiempo de atención.
+En casos de emergencia nacional o cantonal, así declarados por el gobierno de la República o las autoridades competentes, el Concejo no recibirá audiencias con el fin de acatar las medidas de seguridad establecidas por el Gobierno Central.

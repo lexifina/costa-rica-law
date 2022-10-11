@@ -1,0 +1,1 @@
+Artículo 19 bis.-Cuando un regidor requiera alguna información que debe conocerse en la sesión, la solicitará formalmente al Presidente del Concejo, el día de la sesión ordinaria antes del mediodía, para que sea incluido en la agenda de esa misma sesión.

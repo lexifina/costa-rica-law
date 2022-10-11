@@ -1,0 +1,1 @@
+Artículo 9º-Las sesiones extraordinarias deberán convocarse con un mínimo de 24 horas de anticipación y se señalará el objeto de la sesión mediante el acuerdo municipal o según el artículo 17, inciso k) del Código Municipal. Las sesiones extraordinarias deberán celebrarse el día y la hora que se indique en la convocatoria.

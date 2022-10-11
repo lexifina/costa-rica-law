@@ -1,0 +1,1 @@
+Artículo 46.-Los dictámenes de las comisiones deberán presentarse por escrito o escaneados y firmados por todos los miembros de la comisión que lo emiten. Cuando no existiere un acuerdo unánime sobre un dictamen y los miembros de la comisión no lo aprueben, podrán rendir dictamen por separado si lo estiman conveniente.

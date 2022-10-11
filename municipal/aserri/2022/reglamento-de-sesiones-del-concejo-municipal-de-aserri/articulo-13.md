@@ -1,0 +1,1 @@
+Artículo 13.-Si en el transcurso de una sesión se rompiere el quórum, el presidente por medio del secretario instará a los señores regidores que se hubieren retirado sin permiso para que ocupen sus curules. Transcurridos quince minutos sin que se pueda restablecerse el quórum, se levantará la sesión. Los regidores remisos perderán el derecho a la dieta correspondiente.

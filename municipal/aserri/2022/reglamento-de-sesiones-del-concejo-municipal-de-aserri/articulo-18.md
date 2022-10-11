@@ -1,0 +1,1 @@
+Artículo 18.-Las sesiones del Concejo se desarrollarán conforme el orden previamente elaborado, el cual podrá ser modificado o alterado mediante acuerdo de mayoría calificada de los regidores presentes, tal como se establece en el artículo 39 del Código Municipal.

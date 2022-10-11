@@ -1,0 +1,1 @@
+Artículo 39.-Para referirse a los asuntos en discusión el presidente del Concejo iniciará su intervención con las siguientes palabras: "Señores (según el cargo que ostentan)" y los miembros del Concejo iniciarán sus intervenciones con las palabras, "Señor (según el cargo que ostenta)".

@@ -1,0 +1,1 @@
+Artículo 27.-Todo planteamiento expuesto al Concejo por agrupaciones o personas físicas o jurídicas, munícipes, etc., deberá presentarse debidamente firmado, número de cédula, copia de la cédula del suscrito, lugar para notificaciones y número telefónico.

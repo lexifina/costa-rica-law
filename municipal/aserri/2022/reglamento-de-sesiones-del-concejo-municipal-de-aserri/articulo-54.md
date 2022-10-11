@@ -1,0 +1,1 @@
+Artículo 54.-Si se presentaren memoriales que dirijan los particulares al Consejo, la secretaría los examinará, y si resulta que lo solicitado es de competencia del Alcalde municipal, lo enviará a dicho funcionario para que le dé el trámite que le corresponda y se informará a los firmantes.
