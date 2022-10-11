@@ -1,3 +1,0 @@
-Artículo 54. Refinanciamiento y Novaciones de deudor
-Para los casos en que los Organismos Cooperativos cuenten con una o varias operaciones vigentes y soliciten modificar en forma integral las condiciones contractuales vigentes, se tramitará como un nuevo crédito y aplicará lo regulado por medio del presente Reglamento General de Crédito. Esta figura puede aprobarse con desembolso de recurso de acuerdo con el plan de inversión y se aplica a organismos cooperativos que se encuentren al día en el pago de las operaciones.
-En los casos de novación de deudor se emitirá un informe técnico el cual deberá valorar la capacidad de pago y estar al día con las instituciones de la seguridad social y tributación directa
