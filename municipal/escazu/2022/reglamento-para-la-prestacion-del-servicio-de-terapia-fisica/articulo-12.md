@@ -1,0 +1,1 @@
+Artículo 12.-Las personas funcionarias de la municipalidad de Escazú, que se ausenten a cada cita, o realicen la cancelación de la cita incumpliendo con lo indicado en el artículo 11 de este reglamento, estarán en la obligación de autorizar el rebajo en planilla del costo de la cita que se paga al servicio de Terapia Física de la Municipalidad de Escazú.

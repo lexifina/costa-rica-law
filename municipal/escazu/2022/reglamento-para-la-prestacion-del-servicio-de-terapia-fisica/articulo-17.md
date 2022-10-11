@@ -1,0 +1,1 @@
+Artículo 17.-Se suspenderá la atención de lesiones que tengan más de un mes sin ser tratados en el servicio de fisioterapia. En estos casos, la persona interesada deberá solicitar valoración nuevamente con el médico de empresa, donde se determinará si se continúa con la fisioterapia o se suspende.

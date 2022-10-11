@@ -1,0 +1,1 @@
+Artículo 8°-Las citas se coordinarán exclusivamente con la Gerencia de Recursos Humanos. Para la primera cita la persona debe presentar la referencia del médico, en la cual se indica la lesión por la cual se está remitiendo a fisioterapia.

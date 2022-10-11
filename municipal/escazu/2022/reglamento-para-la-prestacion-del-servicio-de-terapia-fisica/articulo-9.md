@@ -1,0 +1,1 @@
+Artículo 9°-Se deberá presentar la referencia médica indicada en el artículo anterior en la primera cita de terapia física. De no hacerlo, la persona no podrá ser atendida y se descontará la misma de la cantidad máxima de citas disponibles para cada lesión.

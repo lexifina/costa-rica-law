@@ -1,0 +1,1 @@
+Artículo 14.-Al finalizar el ciclo de atención, la persona deberá entregar en la Oficina de Salud Ocupacional la hoja de evolución emitida por la persona profesional, para su inclusión en el expediente médico personal.
