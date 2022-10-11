@@ -1,0 +1,1 @@
+Transitorio II: Reglamentación Técnica. Durante los primeros 8 meses de la entrada en vigor del presente reglamento se elaborará la reglamentación técnica sobre disposiciones administrativas y de control relacionadas con el cultivo de cannabis, derivados y productos terminados de uso humano que contengan cannabis no psicoactivo o cáñamo y cannabis psicoactivo.
