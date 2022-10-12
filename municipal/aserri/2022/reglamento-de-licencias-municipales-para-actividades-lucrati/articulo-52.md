@@ -1,0 +1,1 @@
+Artículo 52.-Hechos de mera constatación. Sin necesidad de sustanciar el procedimiento ordinario administrativo, la Municipalidad podrá imponer sanciones por actos de mera constatación, siempre y cuando la sanción no sea la suspensión o revocación de la licencia comercial otorgada por la Municipalidad.

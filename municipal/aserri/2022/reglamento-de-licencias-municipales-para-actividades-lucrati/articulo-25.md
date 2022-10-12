@@ -1,0 +1,1 @@
+Artículo 25.-Impuesto en caso de otorgamiento. Otorgada la licencia, total o parcialmente, el Departamento de Patentes calculará el impuesto que debe cancelar inicialmente el nuevo patentado, cargará el monto al sistema y procederá con la imputación del cobro de las tasas comerciales por servicios municipales que sean aplicables.

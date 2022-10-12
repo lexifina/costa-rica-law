@@ -1,0 +1,1 @@
+Artículo 17.-Procedencia de las licencias municipales temporales. Las licencias municipales temporales, se podrán otorgar en el marco de actividades lucrativas especiales, como lo son las ferias, expoferias y similares, que se realicen en el territorio del Cantón, asimismo proceden las patentes temporales reguladas en el artículo 34 bis.

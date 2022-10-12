@@ -1,0 +1,1 @@
+Artículo 30.-Autorización del propietario. Cuando la actividad se vaya a realizar en una heredad privada, deberán aportarse los documentos idóneos que certifiquen que cuentan con la autorización del propietario para tales efectos.

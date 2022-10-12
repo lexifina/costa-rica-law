@@ -1,0 +1,1 @@
+Artículo 32.-Dictamen de comisión. Para su dictamen el Concejo Municipal podrá conformar una comisión o delegar el mismo en una comisión ya existente, siempre y cuando el plazo de resolución no exceda los 15 días hábiles.

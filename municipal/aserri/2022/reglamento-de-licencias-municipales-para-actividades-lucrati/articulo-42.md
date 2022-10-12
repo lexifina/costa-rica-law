@@ -1,0 +1,1 @@
+Artículo 42.-Determinación por base cierta. La determinación del impuesto por base cierta, se realizará a través de la declaración jurada referida en el artículo 5o de la Ley N° 8113. La determinación del impuesto por base presunta, se aplicará en los casos previstos por el artículo 9o y 14° de la ley de referencia.

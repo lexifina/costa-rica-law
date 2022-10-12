@@ -1,0 +1,1 @@
+Artículo 4°-Exclusión parcial de las Licencias de Licores. Quedan excluidas de las regulaciones del presente reglamento, las patentes de licores y su impuesto, los cuales se administrarán a través de su normativa propia, salvo en lo que respecta al procedimiento sancionador descrito en el presente reglamento, el cual será de entera aplicación para tales patentes.

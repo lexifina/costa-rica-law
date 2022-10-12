@@ -1,0 +1,1 @@
+Artículo 33.-Impugnación. Los actos devenidos del Concejo Municipal en virtud del presente procedimiento, contarán con los medios de impugnación contenidos en los artículos 162, 163, 164 y 165, así como con el veto del Alcalde Municipal.

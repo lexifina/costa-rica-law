@@ -1,0 +1,1 @@
+Artículo 27.-Procedimiento interno. Recibida la solicitud, el Departamento de Patentes procederá con la revisión ordenada en el inciso a) del artículo 20°. Superada satisfactoriamente esta revisión, podrá solicitarse la información indicada en el artículo 24°, quedando listo el asunto para decisión final, a lo cual será aplicable lo dispuesto en el artículo 22°, 23° y 25°.

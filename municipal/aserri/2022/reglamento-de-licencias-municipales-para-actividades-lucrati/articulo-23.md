@@ -1,0 +1,1 @@
+Artículo 23.-Impugnación. La resolución que aprueba con reservas la solicitud de licencia o la que la deniegue, contará con los medios de impugnación contenidos en el numeral 171 del Código Municipal.

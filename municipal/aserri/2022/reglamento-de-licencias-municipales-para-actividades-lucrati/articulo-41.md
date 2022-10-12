@@ -1,0 +1,3 @@
+CAPÍTULO III
+Del cálculo del impuesto de patentes
+Artículo 41.-Fórmula de cálculo y pago mínimo. Para conocer la tarifa del impuesto de patentes, se aplicará un cuatro por mil sobre los ingresos brutos de la actividad lucrativa. La suma obtenida de dicha operación aritmética, se dividirá entre cuatro y el monto resultante será el monto a pagar por cada trimestre. El pago mínimo de toda actividad comercial será equivalente a un veinticinco por ciento de un salario base, de acuerdo con el artículo 68 del Código de Normas y Procedimientos Tributarios, Ley N° 4755, de 3 de mayo de 1971 y sus reformas, y artículo 4° de la Ley 8113 (Tarifa de Impuestos de Patentes Municipales del Cantón de Aserrí).

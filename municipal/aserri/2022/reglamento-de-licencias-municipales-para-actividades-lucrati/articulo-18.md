@@ -1,0 +1,6 @@
+Artículo 18.-Plazo para el otorgamiento de patentes temporales.
+a. Las patentes para actividades temporales de actividades lucrativas especiales, como lo son las ferias, expoferias y similares, que se realicen en el territorio del Cantón se otorgarán hasta por un mes de plazo, salvo excepción motivada por el Concejo Municipal que amplíe el plazo.
+b. Las patentes para actividades lucrativas estacionaria y no estacionarias, que se realicen dentro del territorio del Cantón se otorgarán hasta por un año, el cual podrá extenderse por un período de seis meses adicionales si el interesado acredita que la gestión de su patente definitiva está en trámite.
+c. Las patentes ambulantes y ambulantes estacionarias se regirán en cuanto a plazo por las disposiciones de la Ley de Ventas Ambulantes y Estacionarios (Ley N° 6587) y su reglamento.
+d. Las patentes comerciales para el expendio y comercialización de bebidas con contenido alcohólico se regularán en cuanto a plazo por lo dispuesto en la Ley de Regulación y Comercialización de bebidas con contenido alcohólico (Ley N° 9047) y su reglamento.
+e. Las patentes de actividades lucrativas virtuales sin espacio físico determinado, no tienen plazo de vigencia, estarán reguladas por la Ley de tarifas de impuesto de patentes de la municipalidad de Aserrí (Ley N° 8113).

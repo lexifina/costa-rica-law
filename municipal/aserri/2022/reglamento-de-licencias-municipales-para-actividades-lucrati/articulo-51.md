@@ -1,0 +1,1 @@
+Artículo 51.-Remisión al órgano decisor. Sustanciado el procedimiento ordinario, se remitirá la recomendación final a la Alcaldía Municipal, quien en su calidad de órgano decisor, dictará el acto final del procedimiento sancionador, siempre mediante resolución motivada. Contra lo resuelto por el Alcalde Municipal, cabrán los recursos que dispone el ordenamiento aplicable.

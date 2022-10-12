@@ -1,0 +1,1 @@
+Artículo 7°-Licencia es de carácter previo. La obtención de la licencia deberá de ser previa al inicio de la actividad lucrativa, por lo que la mera solicitud de la misma no autorizará para el ejercicio del negocio pretendido.

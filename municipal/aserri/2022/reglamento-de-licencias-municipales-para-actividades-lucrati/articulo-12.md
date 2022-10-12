@@ -1,0 +1,1 @@
+Artículo 12.-Obligatoriedad del pago. El pago puntual del impuesto de patentes devenido de la obtención de la licencia municipal es obligatorio, sin excepción. El incumplimiento a esta disposición por dos o más trimestres será causal de suspensión de la licencia municipal concedida.

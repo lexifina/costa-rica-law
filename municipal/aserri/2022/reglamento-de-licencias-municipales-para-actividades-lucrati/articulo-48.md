@@ -1,0 +1,1 @@
+Artículo 48.-Inicio de la investigación preliminar. La investigación preliminar podrá iniciarse de oficio o a instancia de un tercero denunciante. Servirá para la iniciación de oficio la mera noticia del supuesto hecho ilícito, un acta de observación policial o el acta que un funcionario municipal haya levantado en ejercicio del control tributario y administrativo.

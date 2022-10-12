@@ -1,0 +1,1 @@
+Artículo 15.-Licencias no estacionarias. Las licencias no estacionarias, se otorgarán cuando la actividad lucrativa solicitada, por la naturaleza de su giro comercial, no se realice dentro de un local establecido, sino de forma deslocalizada dentro del cantón, sin que ello implique la ocupación de espacios públicos o demaniales.

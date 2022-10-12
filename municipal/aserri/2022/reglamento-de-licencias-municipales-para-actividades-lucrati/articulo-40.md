@@ -1,0 +1,1 @@
+Artículo 40.-Resolución. Después de realizadas las verificaciones del artículo 20° del presente reglamento, el Departamento de Patentes resolverá la solicitud en primera instancia, siendo aplicable lo dispuesto en el artículo 38°.

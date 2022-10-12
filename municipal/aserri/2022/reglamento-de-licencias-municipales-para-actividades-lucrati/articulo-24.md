@@ -1,0 +1,1 @@
+Artículo 24.-Información Adicional. De previo a emitir resolución por el fondo del asunto, otorgando o denegando la licencia, el Departamento de Patentes podrá requerir información adicional del solicitantes, en los términos de la Ley 8220.
