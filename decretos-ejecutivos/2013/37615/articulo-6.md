@@ -1,4 +1,4 @@
-Artículo 6—Funciones del Cuerpo de Bomberos. Corresponde al Cuerpo de Bomberos:
+Artículo 6-Funciones del Cuerpo de Bomberos. Corresponde al Cuerpo de Bomberos:
 a) Coordinar situaciones específicas de emergencia con las distintas entidades privadas y los órganos del Estado, cuya actividad y competencia se refieren a la prevención, atención y evaluación de tales situaciones.
 b) Prevenir, atender, mitigar, controlar, investigar y evaluar los incendios.
 c) Investigar el origen y causa de los incendios y otros incidentes producto de las emergencias antrópico-tecnológicas y naturales que sean competencia de Bomberos, para adoptar medidas preventivas y correctivas.
@@ -6,4 +6,9 @@ d) Coordinar, regular y reglamentar los aspectos relacionados con la instalació
 e) Colaborar en la atención de los casos específicos de emergencia.
 f) Otorgar medallas u otras distinciones, en reconocimiento de la trayectoria, la entrega o los actos de servicio extraordinario de los bomberos, permanentes o voluntarios del Cuerpo de Bomberos o de otros países, así como a personas y organizaciones que también hayan realizado actos de servicio extraordinario en beneficio de la sociedad.
 g) Organizar y administrar los servicios especiales que este reglamento y el Consejo Directivo determinen.
-h) Realizar cualquier otra función que le otorgue el ordenamiento jurídico y este reglamento.
+h) Revisar o visar, según la normativa aplicable, los planos constructivos, en temas exclusivos de Seguridad Humana y Protección Contra Incendios, de acuerdo con la normativa técnica que al efecto emita el BCBCR, así como inspeccionar la construcción, cuando corresponda, que ésta sea ejecutada de acuerdo con los planos previamente revisados o visados por esta institución. El procedimiento contemplado en este inciso se hará conforme al Reglamento para el Trámite de Revisión de los Planos para la Construcción, Nº 36550-MP-MIVAH-S-MEIC, sus reformas y modificaciones Además, se deberá ejecutar en apego absoluto de las disposiciones de la Ley de Protección al ciudadano del exceso de requisitos y trámites administrativos, N° 8220, sus reformas y modificaciones.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 43733 del 12 de octubre del 2022)
+i) Realizar el control de Equipos de Protección contra Incendios, que se define como pruebas de calidad y funcionamiento técnico que se realizan en los equipos de protección utilizados tanto para combatir y mitigar el riesgo de incendio como aquellos utilizados para la prevención y atención de cualquier situación específica de emergencia, incluyendo los sistemas fijos y portátiles de protección contra incendio en las obras construidas y sistemas de detección y alarma.
+(Así adicionado el inciso anterior por el artículo 2° del decreto ejecutivo N° 43733 del 12 de octubre del 2022)
+j) Realizar otras funciones que le otorguen el ordenamiento jurídico y este reglamento.
+(Así adicionado el inciso anterior por el artículo 2° del decreto ejecutivo N° 43733 del 12 de octubre del 2022)
