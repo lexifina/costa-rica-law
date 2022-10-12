@@ -1,2 +1,2 @@
 Artículo 116. Admisión de denuncias anónimas
-Las denuncias anónimas serán atendidas en el tanto aporten todos los elementos de convicción suficientes y se encuentren sustentadas en medios probatorios idóneos que permitan iniciar la investigación, de lo contrario se archivará la denuncia.
+(Derogada por el artículo 21 del Reglamento para la atención de denuncias del Instituto Nacional de las Mujeres, aprobado mediante sesión N° 20-2022 del 12 de octubre del 2022)

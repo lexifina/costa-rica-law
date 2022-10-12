@@ -1,2 +1,2 @@
 Artículo 114. Información adicional
-El o la denunciante también deberá brindar información complementaria respecto a la estimación del perjuicio económico producido al INAMU en caso de conocerlo, la indicación de probables testigos y el lugar o medios para citarlos, así como la aportación o sugerencia de otras pruebas.
+(Derogada por el artículo 21 del Reglamento para la atención de denuncias del Instituto Nacional de las Mujeres, aprobado mediante sesión N° 20-2022 del 12 de octubre del 2022)

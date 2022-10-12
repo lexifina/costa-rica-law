@@ -1,2 +1,2 @@
 Artículo 119. Trámite de las denuncias
-La persona Auditora Interna deberá evaluar si le da trámite a una denuncia presentada directamente o trasladada por la Contraloría General de la República, para lo cual deberá considerar entre otros, la importancia o impacto del estudio y los recursos disponibles en la Auditoría Interna.
+(Derogada por el artículo 21 del Reglamento para la atención de denuncias del Instituto Nacional de las Mujeres, aprobado mediante sesión N° 20-2022 del 12 de octubre del 2022)

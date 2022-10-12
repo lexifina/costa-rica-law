@@ -1,5 +1,2 @@
 Artículo 113. Requisitos que deben reunir las denuncias que se presentan
-Las denuncias que se presentan a la Auditoría Interna deben reunir los siguientes requisitos:
-1) Los hechos denunciados deberán ser expuestos en forma clara, precisa y circunstanciada, brindando el detalle suficiente que permita realizar la investigación: el momento y lugar en que ocurrieron los hechos y el sujeto que presuntamente los realizó.
-2) Se deberá señalar la posible situación irregular que afecta al INAMU para ser investigada.
-3) El denunciante deberá indicar cuál es su pretensión en relación con el hecho denunciado.
+(Derogada por el artículo 21 del Reglamento para la atención de denuncias del Instituto Nacional de las Mujeres, aprobado mediante sesión N° 20-2022 del 12 de octubre del 2022)

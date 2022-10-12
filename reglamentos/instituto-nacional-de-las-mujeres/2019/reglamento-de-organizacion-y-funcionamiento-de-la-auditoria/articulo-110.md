@@ -1,2 +1,2 @@
 Artículo 110. Confidencialidad de los denunciantes
-La Auditoría Interna deberá de asegurar la confidencialidad de las personas denunciantes, de acuerdo con el Artículo 6 de la Ley de Control Interno. Para mantener la confidencialidad de las personas denunciantes, la Auditoría Interna utilizará los medios que considere adecuados.
+(Derogada por el artículo 21 del Reglamento para la atención de denuncias del Instituto Nacional de las Mujeres, aprobado mediante sesión N° 20-2022 del 12 de octubre del 2022)

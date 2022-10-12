@@ -1,3 +1,4 @@
 6. SECCIÓN VI. TRÁMITE DE DENUNCIAS
+(Derogada la sección anterior por el artículo 21 del Reglamento para la atención de denuncias del Instituto Nacional de las Mujeres, aprobado mediante sesión N° 20-2022 del 12 de octubre del 2022)
 Artículo 109. Ámbito de competencia en denuncias
-La Auditoría Interna podrá dar trámite únicamente a aquellas denuncias que versen sobre posibles hechos irregulares o ilegales en relación con el uso y manejo de los fondos públicos o que afecten la Hacienda Pública, así como lo conceptuado en la Ley Contra la Corrupción y el Enriquecimiento Ilícito y que cumplan con lo establecido en este Reglamento.
+(Derogada por el artículo 21 del Reglamento para la atención de denuncias del Instituto Nacional de las Mujeres, aprobado mediante sesión N° 20-2022 del 12 de octubre del 2022)

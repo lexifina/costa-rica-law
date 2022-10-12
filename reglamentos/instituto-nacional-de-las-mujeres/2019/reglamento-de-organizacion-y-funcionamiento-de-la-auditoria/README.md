@@ -14,3 +14,4 @@ Reglamento de organización y funcionamiento de la auditoría interna del Instit
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-03-13 | la propia norma |
+| 2 | 2022-10-12 | Reglamento 20 (2022-10-12) |

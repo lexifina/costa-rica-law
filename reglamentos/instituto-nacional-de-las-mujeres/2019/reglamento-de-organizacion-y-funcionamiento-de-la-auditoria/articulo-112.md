@@ -1,2 +1,2 @@
 Artículo 112. Renuncia a la confidencialidad de la persona denunciante
-Si la persona denunciante tiene interés de que su identidad sea conocida en algún momento del proceso, deberá hacerlo de conocimiento por escrito a la Auditoría Interna para lo correspondiente.
+(Derogada por el artículo 21 del Reglamento para la atención de denuncias del Instituto Nacional de las Mujeres, aprobado mediante sesión N° 20-2022 del 12 de octubre del 2022)
