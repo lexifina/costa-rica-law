@@ -1,1 +1,2 @@
-Artículo 6-) Póliza de fidelidad: Cada funcionario responsable de recaudar, custodiar y administrar fondos o valores suscribirá una póliza de fidelidad anual (puede ser de manera personal o en forma colectiva, pagada por adelantado por INCOP y luego rebajada a cada uno), la cual estará suscrita a favor de INCOP, lo anterior de acuerdo a lo establecido en el Reglamento de cauciones.
+Artículo 6-) Póliza de fidelidad: Cada funcionario responsable de recaudar, custodiar y administrar fondos o valores suscribirá una póliza de fidelidad anual de manera personal y de su propio peculio.
+(Así reformado mediante sesión N° 4357 del 12 de octubre del 2022)
