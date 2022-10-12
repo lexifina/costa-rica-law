@@ -1,0 +1,2 @@
+Artículo 13º- Jornada laboral del Auditor Interno. La jornada laboral del Auditor Interno del Concejo Municipal de Distrito Peñas Blancas será de tiempo completo, tal como lo establece la Ley general de control interno.
+Cualquier modificación al tiempo de jornada, solo podrá ser tramitada por el Concejo Municipal ante la Contraloría General de la República, la cual no puede ser inferior a medio tiempo.

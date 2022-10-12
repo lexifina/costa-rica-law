@@ -1,0 +1,5 @@
+CAPÍTULO III
+Otros aspectos relativos al funcionamiento de la Auditoría Interna
+Artículo 31º- Servicios de auditoría y preventivos. De conformidad con el Manual de normas para el ejercicio de la auditoría interna en el sector público, como parte de las competencias de la auditoría interna, se encuentran los servicios de fiscalización, los cuales se clasifican en los servicios de auditoría y los servicios preventivos.
+Los servicios de auditoría se refieren a los distintos tipos de estudios orientados a evaluar el sistema de control interno institucional, entre los cuales se encuentran los siguientes: auditorias evaluadas por riesgos, labores y auditorias continuas, labores y auditorias de carácter obligatorio, estudios especiales y de seguimiento.
+Los servicios preventivos, corresponden a la asesoría, advertencia y autorización de libros, así como el seguimiento sobre estas labores, de acuerdo a las directrices que dicta el Archivo Nacional principalmente lo establecido en la Norma Técnica General para la elaboración del tipo documental Actas Municipales, publicada en La Gaceta N°8 del 17 de enero del 2018.

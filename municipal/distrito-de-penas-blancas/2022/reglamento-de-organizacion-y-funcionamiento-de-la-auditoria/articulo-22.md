@@ -1,0 +1,3 @@
+CAPÍTULO VI
+Ámbito de acción
+Artículo 22°- Ámbito de acción de la auditoría interna. El ámbito de acción de la Auditoría Interna está conformado por el Concejo Municipal de Distrito de Peñas Blancas y por los entes u órganos públicos y privados sujetos a su competencia institucional para lo cual el auditor interno deberá definir y mantener actualizado, por medio del instrumento que considere idóneo y pertinente, cuáles serán los órganos y entes sujetos a su ámbito de acción, con fundamento en lo estipulado en la Ley General de Control Interno y otra normativa legal y técnica que aplique en la materia.

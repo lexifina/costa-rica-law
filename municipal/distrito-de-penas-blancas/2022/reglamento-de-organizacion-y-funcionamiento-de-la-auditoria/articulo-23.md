@@ -1,0 +1,4 @@
+CAPÍTULO VIII
+Relaciones y coordinaciones
+Artículo 23º-Relaciones y coordinaciones de los funcionarios de la auditoría interna con los auditados. La Auditoría Interna mantendrá las siguientes relaciones y coordinaciones: con el Concejo Municipal, la Municipalidad de San Ramón, al estar el Concejo Municipal de Distrito Peñas Blancas integrados a ese gobierno local, con los titulares subordinados y otras instancias internas y externas, fundamentalmente con la Contraloría General, Instituciones de fiscalización y control, Ministerio Público, Procuraduría General de la República, denunciantes y otras pertinentes.
+Corresponde al Auditor Interno administrar esas relaciones y regular las de los demás funcionarios de la Auditoría Interna con los órganos internos y externos del ámbito de su competencia institucional, a fin de que se realicen de conformidad con el ordenamiento jurídico y técnico aplicable.

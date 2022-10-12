@@ -1,0 +1,8 @@
+CONCEJO MUNICIPAL DE DISTRITO PEÑAS BLANCAS
+DEPARTAMENTO DE AUDITORÍA INTERNA
+El Concejo Municipal de Distrito de Peñas Blancas en sesión ordinaria Nº 38-2022 del 23 de agosto del 2022 y la Contraloría General de la República, mediante oficio Nº 15710 (DFOE-LOC-1847) del 27 de octubre del 2022, resolvieron aprobar el Reglamento de Organización y Funcionamiento de la Auditoría Interna del Concejo Municipal de Distrito de Peñas Blancas, cuyo texto integral se encuentra en el siguiente enlace https://concejomunicipaldpb.go.cr/auditoria-concejo-municipal/
+(Nota de Sinalevi: El presente Reglamento de Organización y Funcionamiento de la Auditoría Interna del Concejo Municipal de Distrito de Peñas Blancas se extrajo del sitio web del Concejo Municipal del Distrito de Peñas Blancas y se transcribe a continuación:)
+REGLAMENTO DE ORGANIZACIÓN Y FUNCIONAMIENTO DE LA AUDITORÍA INTERNA
+TÍTULO I
+Disposiciones generales
+Artículo 1º-Objetivo. El presente Reglamento, en conjunto con las disposiciones contenidas en la Ley General de Control Interno, la Ley Orgánica de la Contraloría General de la República y los manuales técnicos, las disposiciones, normas, políticas y directrices emitidas por el órgano contralor, regula las actividades, organización, objetivos, funciones y atribuciones de la auditoría interna del Concejo Municipal de Distrito de Peñas Blancas, con la finalidad de orientar su accionar, de manera que la misma se perciba como una actividad que coadyuve al éxito de la gestión institucional, en aras de la legalidad y efectividad en el manejo de los fondos públicos que fiscaliza.
