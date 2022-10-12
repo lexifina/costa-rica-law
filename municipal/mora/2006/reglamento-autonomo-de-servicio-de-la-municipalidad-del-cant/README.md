@@ -14,3 +14,4 @@ Reglamento Autónomo de Servicio de la Municipalidad del Cantón de Mora
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-03-20 | la propia norma |
+| 2 | 2022-10-12 | SINALEVI (sin norma nombrada) |
