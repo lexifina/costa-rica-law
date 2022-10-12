@@ -1,0 +1,6 @@
+Artículo 29.-La municipalidad podrá declarar la apertura de calles públicas dentro de su jurisdicción en los siguientes supuestos:
+a) Apertura de calles originarias respetando el ancho de 14 metros.
+a) Apertura de calles a partir de proyectos urbanísticos y fraccionamientos con fines urbanísticos, respetando las disposiciones del Reglamento de Fraccionamientos y Urbanizaciones del INVU.
+b) Cuando el camino municipal esté entregado por ley; o también si, de hecho, el camino está destinado ya al uso público y consta en hojas cartográficas, mapas, catastros, entre otros, la titularidad del Estado.
+c) Apertura de una calle municipal a partir del cambio de destino de un bien de dominio público al amparo de una mutación demanial, y que ésta responda a un interés jurídico prevalente o más intenso, y se garantice la inseparabilidad del régimen de domino público. Si la afectación al uso público consta en el Registro Nacional, o en una ley, se requerirá autorización legal para la mutación demanial; si tal afectación al uso público consta en un reglamento o en un acto administrativo municipal, la mutación demanial deberá otorgarse por la misma vía, según el caso.
+d) A través de la donación, cesión, venta voluntaria o forzosa de un terreno particular, previa declaratoria de interés público, respetando el ancho de 14 metros.

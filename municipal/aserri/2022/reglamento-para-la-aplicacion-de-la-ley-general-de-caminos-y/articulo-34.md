@@ -1,0 +1,1 @@
+Artículo 34.-La visación o el visto bueno de la compatibilidad de un camino público municipal graficado en un plano de agrimensura con la existencia real del camino en la Red Vial Cantonal, será otorgado por el Titular de la Unidad Técnica de Gestión Vial.

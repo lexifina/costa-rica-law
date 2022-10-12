@@ -1,0 +1,2 @@
+Artículo 16.-El conductor de un vehículo y su propietario registral son responsables de todos los daños que causaren a la infraestructura vial cantonal, como resultado de impericia, negligencia, imprudencia o dolo con ocasión de la circulación en los caminos públicos cantonales.
+También incurrirá en responsabilidad y deberán cubrir los daños causados a la infraestructura vial cantonal, todos aquellos particulares que actúen con negligencia, imprudencia o dolosamente, en relación con la utilización de las vías públicas cantonales.

@@ -1,0 +1,1 @@
+Artículo 28.-Dentro de su jurisdicción la municipalidad está facultada para realizar la declaratoria de una calle pública, siempre y cuando dentro de las hojas cartográficas, mapas, catastros, etc., se pueda deducir con mediana facilidad que es un bien de dominio público y que de hecho haya estado destinada al uso público con anterioridad.

@@ -1,0 +1,4 @@
+CAPÍTULO IV
+Otras prohibiciones en vías municipales
+Artículo 13.-Nadie podrá romper los caminos públicos municipales para efectuar obras en relación con pajas de agua o instalaciones sanitarias, sin autorización escrita del Municipalidad de Aserrí. Para el otorgamiento del permiso respectivo es necesario realizar un depósito o rendir una garantía que será equivalente al costo estimado de la reparación correspondiente; salvo que se trate de alguna institución pública, la cual únicamente estará obligada a coordinar lo pertinente con la Municipalidad.
+Quedan exceptuados de la aplicación de la presente norma, las reparaciones urgentes que deban realizar los operadores del servicio de agua potable autorizados en el Cantón por el Instituto Nacional de Acueductos y Alcantarillados (AyA), quedando únicamente obligados a dejar las vías públicas en su estado original.

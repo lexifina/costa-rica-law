@@ -1,0 +1,2 @@
+Artículo 14.-Ninguna persona podrá impedir o entorpecer el libre escurrimiento de las aguas que corran por las cunetas, fosos y desagües laterales de los caminos públicos municipales.
+Los propietarios de los terrenos que reciban esas aguas o que enfrenten las vías públicas cantonales estarán obligados a cooperar con las autoridades respectivas en el mantenimiento de dichos desagües para que se conserven en buen estado.

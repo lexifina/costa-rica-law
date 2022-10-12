@@ -1,0 +1,1 @@
+Artículo 24.-Los vecinos de las comunidades a través de sus "Comités de Caminos" informarán a la Unidad Técnica de Gestión Vial, cuando un vecino incumpla con la ley, informando el nombre completo y la dirección exacta de domicilio y la actividad de mantenimiento manual que deberá realizar con el fin de que sea debidamente notificado.

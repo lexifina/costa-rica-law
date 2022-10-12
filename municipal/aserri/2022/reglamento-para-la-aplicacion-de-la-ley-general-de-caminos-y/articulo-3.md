@@ -1,0 +1,5 @@
+CAPÍTULO II
+De la red vial cantonal y categorías
+de caminos municipales
+Artículo 3º-Constitución de la red vial cantonal. La red vial del cantón de Aserrí estará constituida por todos los caminos y calles de naturaleza pública que estén bajo la administración de la municipalidad, inventariados y georeferenciados como rutas cantonales, y que constan como tales en el Registro Vial; así como por toda la infraestructura vial complementaria, siempre que se encuentre en terrenos de dominio público y cumpla los requisitos de ley. En consecuencia, se consideran caminos públicos municipales todos aquellos definidos en el artículo 1° de la Ley General de Caminos Públicos dentro del concepto de "Red Vial Cantonal" que sean utilizados para el tránsito de vehículos, personas y semovientes; para lo cual se requiere de un acto oficial de declaratoria de camino público por parte del Concejo Municipal de Aserrí.
+Para efectos registrales a los caminos públicos municipales se les aplicará el principio de inmatriculación de los bienes demaniales.

@@ -1,0 +1,1 @@
+Artículo 5º-La Red Vial Cantonal está compuesta por las siguientes categorías de caminos municipales: a) Caminos Vecinales, b) Calles Locales con sus respectivas subcategorías, c) Caminos Públicos no Clasificados.

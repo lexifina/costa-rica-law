@@ -1,0 +1,2 @@
+Artículo 36.-Durante la primera quincena de los meses de enero y julio de cada año, el Promotor Social de la Unidad Técnica de Gestión Vial, deberá rendir un informe semestral al Concejo Municipal de su labor en el asesoramiento y coadyuvancia de las organizaciones comunales, los Concejos de Distrito y los Comités de Caminos en el cumplimiento de los fines y metas para el mejoramiento de la Red Vial Cantonal.
+Rige a partir de su publicación.

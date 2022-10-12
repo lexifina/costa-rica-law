@@ -1,0 +1,3 @@
+Artículo 18.-Los "Comités de Caminos" serán electos por los vecinos residentes que utilizan un camino municipal, y estarán conformados en una junta integrada por cinco miembros, de los cuales habrá un Presidente, un Vicepresidente, un Secretario, un Tesorero y un Vocal. Sesionarán como mínimo una vez por mes y tomarán sus acuerdos por mayoría simple.
+Para su reconocimiento oficial deberán reportar su constitución a la Unidad Técnica de Gestión Vial, y serán juramentados por el Alcalde Municipal.
+En su conformación, operación y funcionamiento los "Comités de Caminos" recibirán la asesoría y seguimiento del Promotor Social de la Unidad Técnica de Gestión Vial, o de su Director.

@@ -1,0 +1,1 @@
+Artículo 15.-Queda prohibido la circulación de vehículos por las vías públicas cantonales sin contar con los permisos del MOPT estipulados en el Reglamento de Circulación por Carretera con Base en el Peso y las Dimensiones de los Vehículos de Carga (Decreto Ejecutivo 31363-MOPT), o con infracción a los límites fijados en dicho reglamento.

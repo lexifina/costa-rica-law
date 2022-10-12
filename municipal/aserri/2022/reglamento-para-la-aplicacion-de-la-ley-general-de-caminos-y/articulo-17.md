@@ -1,0 +1,3 @@
+CAPÍTULO V
+De los comités de caminos municipales
+Artículo 17.-En aquellas sectores o comunidades que sean atravesadas por un camino publico municipal, donde no exista una Asociación de Desarrollo Específica para el mejoramiento de caminos, o en su defecto una Asociación de Desarrollo Integral legalmente constituidas, se autoriza a los vecinos para que -debidamente organizados democráticamente- constituyan "Comités de Caminos" con el único fin de coadyuvar con la Municipalidad en las labores de mantenimiento manual de la vía y para la fiscalización del cumplimiento de las disposiciones de la Ley General de Caminos Públicos y del presente reglamento.

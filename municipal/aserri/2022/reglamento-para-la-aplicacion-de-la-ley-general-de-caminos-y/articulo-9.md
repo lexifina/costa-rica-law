@@ -1,0 +1,5 @@
+CAPÍTULO III
+Procedimiento de reapertura
+de vías municipales
+Artículo 9º-La Municipalidad de Aserrí tendrá la potestad de remover, por si y de pleno derecho, todo obstáculo de índole vegetativo situado en el derecho de vía legalmente constituido, siempre que el derecho de vía se encuentre localizado fuera de áreas de protección y áreas silvestres protegidas o cuando no se trate de especies arbóreas vedadas por las autoridades del MINAE. Cuando la remoción antes indicada afecte las áreas supra citadas o sean especies arbóreas vedadas, la Municipalidad deberá coordinar con las instancias competentes del Ministerio de Ambiente y Energía para la ejecución de la potestad aquí otorgada.
+Para la ejecución de obras de mantenimiento y mejoramiento de la red vial cantonal dentro de áreas de protección y áreas silvestres protegidas, previo al inicio de la obra, la Municipalidad deberá comunicarlo a las instancias competentes del Ministerio de Ambiente y Energía, a efectos de que lleve el registro de las obras correspondientes, pudiendo dar inicio a las obras una vez conste el recibido de la comunicación respectiva al MINAE.
