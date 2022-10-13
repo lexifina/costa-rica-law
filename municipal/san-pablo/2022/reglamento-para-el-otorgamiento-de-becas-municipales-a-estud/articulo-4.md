@@ -1,0 +1,1 @@
+Artículo 4º-Monto de la beca y responsable: será responsabilidad de la Dirección de Hacienda Municipal, la realización de estudios que determinen el monto o incremento de la beca anual a otorgar a cada estudiante.

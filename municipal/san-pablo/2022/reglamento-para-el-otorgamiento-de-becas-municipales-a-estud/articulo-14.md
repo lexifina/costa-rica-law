@@ -1,0 +1,1 @@
+Artículo 14.-Proyección integral: será responsabilidad de la Municipalidad de San Pablo de Heredia, desarrollar con el área social, proyectos, talleres y programas que procuren brindar continuidad, seguimiento, acompañamiento y ayuda a todas las personas que así lo requieran o que hayan formado parte de alguna ayuda municipal.

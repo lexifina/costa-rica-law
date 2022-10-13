@@ -1,0 +1,2 @@
+Artículo 16.-Entrega efectiva de la beca: las becas serán entregadas única y exclusivamente a los beneficiarios por medio de depósito bancario.
+A modo de excepción, aquellos beneficiarios que por su status migratorio no puedan accesar a cuenta bancaria en el sistema bancario nacional, la misma se podrá depositar a la persona encargada legalmente del menor (previa revisión de documento que así lo establezca).

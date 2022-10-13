@@ -1,0 +1,1 @@
+Artículo 6º-Recomendación de posibles beneficiarios de becas. De conformidad con el Código Municipal, los Concejos de Distrito, tendrán la potestad de recomendar posibles beneficiarios para la recepción de ayudas municipales.

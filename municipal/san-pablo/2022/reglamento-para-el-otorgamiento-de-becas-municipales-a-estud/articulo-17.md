@@ -1,0 +1,1 @@
+Artículo 17.-Fecha de entrega: las becas se entregarán a partir de la primera semana de cada mes, partiendo del mes en que se inicie el periodo lectivo, conforme con el calendario lectivo programado por el Ministerio de Educación Pública, concluyéndose en el mes de noviembre de cada año.

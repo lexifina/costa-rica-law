@@ -1,0 +1,1 @@
+Artículo 7º-Órgano Competente: la adjudicación de las becas las realizará la Comisión encargada (conformada por Alcaldía Municipal, Dirección de Servicios Municipales y Departamento de Trabajo Social).
