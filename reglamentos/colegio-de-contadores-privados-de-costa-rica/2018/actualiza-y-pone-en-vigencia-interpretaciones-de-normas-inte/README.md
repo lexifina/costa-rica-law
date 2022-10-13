@@ -14,3 +14,4 @@ Actualiza y pone en vigencia interpretaciones de normas internacionales referent
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-02-01 | la propia norma |
+| 2 | 2022-10-13 | Reglamento 0 (2022-10-13) |
