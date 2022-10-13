@@ -1,0 +1,1 @@
+Artículo 60.-Derogatoria. Deróguese el Reglamento de Organización y Funcionamiento de la Auditoría Interna de la Municipalidad de San Isidro de Heredia, publicado en La Gaceta N° 134 del 11 de julio del 2008, y cualquier otra normativa interna que se contraponga al presente Reglamento.

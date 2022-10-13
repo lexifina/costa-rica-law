@@ -1,0 +1,1 @@
+Artículo 39.-Comunicación respecto a las relaciones de hechos. Los proyectos de Relaciones de Hechos se ajustarán en su contenido a lo dispuesto por el órgano contralor en los "Lineamientos generales para el análisis de presuntos Hechos Irregulares, emitida por la Contraloría General de la República".

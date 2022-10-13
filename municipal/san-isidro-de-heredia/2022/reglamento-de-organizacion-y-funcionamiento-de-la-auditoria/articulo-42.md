@@ -1,0 +1,3 @@
+Artículo 42.-Seguimiento proyectos de control interno. Los proyectos de control interno como parte del programa de seguimiento de recomendaciones, verificará lo siguiente:
+i. Queeljerarca(Concejoo Alcaldía) oel/latitular subordinado/a, implemente de forma efectiva las recomendaciones de la Auditoría Interna, gire por escrito las instrucciones a la o las personas responsables designadas, para lo cual deberá disponer en sus instrucciones las fechas de inicio y de finalización para dicha implementación.
+ii. Una vez superados los plazos definidos en los artículos 36 y 37, según lo establece la Ley General de Control Interno, la ejecución de las recomendaciones se deberá de cumplir en un plazo no mayor al estipulado en cada una de las recomendaciones.

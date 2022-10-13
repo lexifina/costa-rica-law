@@ -1,0 +1,1 @@
+Artículo 58.-De las sanciones administrativas. La determinación de responsabilidades y aplicación de las sanciones administrativas corresponde al órgano competente, según las regulaciones internas y la normativa que resulte aplicable.

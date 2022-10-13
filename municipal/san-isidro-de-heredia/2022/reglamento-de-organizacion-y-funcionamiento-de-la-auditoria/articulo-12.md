@@ -1,0 +1,1 @@
+Artículo 12.-De las vacaciones. En el caso de las vacaciones de la/el auditor(a) y el/la subauditor(a), si el período solicitado es menor o igual a tres días, se gestionará directamente con Recursos Humanos, en caso de ser un periodo mayor deberán ser autorizadas por el Concejo Municipal.

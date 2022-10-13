@@ -1,0 +1,2 @@
+Artículo 53.-Solicitud de información adicional a la persona denunciante. En caso de imprecisión de los hechos, se otorgará a la persona denunciante diez días hábiles para que complete la información que fundamenta la denuncia.
+Lo anterior bajo apercibimiento de que el incumplimiento de esa prevención facultará a la Auditoría para el archivo inmediato de la gestión, sin perjuicio de que posteriormente sea presentada con mayores elementos, como una nueva denuncia.

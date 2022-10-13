@@ -1,0 +1,1 @@
+Artículo 49.-Atención de denuncias por parte de la auditoría interna. La persona Titular de la Auditoría Interna establecerá la reglamentación interna del procedimiento para la admisibilidad y atención de denuncias y para garantizar la confidencialidad de la persona denunciante, de conformidad con lo establecido en normativa técnica legal vigente.
