@@ -1,0 +1,1 @@
+Artículo 15.-Cierre de la jornada electoral. Una vez que ha sido realizada la elección y se han comunicado los resultados, se dará por finalizada la jornada electoral correspondiente y todas las personas electoras, sin excepción, deberán abandonar el recinto.

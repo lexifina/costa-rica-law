@@ -1,0 +1,3 @@
+Artículo 16.-Publicidad del Reglamento. Publíquese en el Diario Oficial La Gaceta y en la página web del Ministerio de Educación Pública. Además, el día de la elección deberán colocarse dos ejemplares íntegros de este reglamento en un lugar visible, dentro del recinto donde se realice la elección de los representantes, con el fin de que puedan ser inmediatamente consultados, en cualquier momento, por las personas interesadas.
+Dado en la ciudad de San José, por votación unánime de los miembros de la Comisión Coordinadora, a las quince horas del veintidós de setiembre dos mil veintidós.
+Consejo Superior de Educación.
