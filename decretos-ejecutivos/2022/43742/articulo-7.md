@@ -1,0 +1,2 @@
+Artículo 7. Tributos a cancelar para la presentación de la escritura ante el Registro Nacional.
+Para la presentación de la escritura deberá cancelarse la tasa del Registro Nacional con forme al artículo 2, inciso e, de la Ley de Aranceles del Registro Nacional, así como lo correspondiente a los timbres Fiscal, de Archivo Nacional y de Colegio de Abogados, y Educación y Cultura, cuando corresponda.

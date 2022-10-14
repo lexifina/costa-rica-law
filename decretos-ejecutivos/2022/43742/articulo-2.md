@@ -1,0 +1,2 @@
+Artículo 2. Reinscripción de entidades disueltas. Procede la reinscripción de las entidades disueltas por no pago del impuesto a las personas jurídicas, conforme a la Ley N º 9428, o por vencimiento del plazo social, acorde al artículo 201, inciso a, del Código de Comercio.
+No procede la reactivación de las entidades que publiciten su estado como “liquidada”, en consecuencia, al ser un acto no factible de inscripción, deberá será cancelada la presentación del documento.

@@ -1,0 +1,3 @@
+Artículo 5. Protección de razón social de la entidad. La protección de la razón social aplicará a las entidades disueltas por morosidad del Impuesto a las Personas Jurídicas dispuesto en la Ley N º 9428 y que adoptaron su denominación conforme lo establecido en el artículo 103 del Código de Comercio, desde el momento en que fue ejecutada su disolución.
+Al presentarse la reinscripción de la entidad no podrán afectarse los derechos de terceros que inscribieron entidades, marcas u otros signos distintivos de previo a la entrada en vigor de la Ley Nº 10255.
+En caso de existir similitud con otra entidad, marca u otros signos distintivos previamente inscritos, se deberá realizar la modificación pertinente a la razón social de la entidad que pretende ser reinscrita.

@@ -1,0 +1,2 @@
+Artículo 6. Trámite de reinscripción de sucursales y sociedades extranjeras. En el caso de sucursales y poderes extranjeros la reinscripción deberá ser gestionada mediante comparecencia del apoderado inscrito y vigente al momento de ejecutarse la disolución. En caso de que no tuviese apoderado inscrito y vigente, la comparecencia deberá ser realizada por un apoderado especial con facultades suficientes para dicho acto.
+Los poderes otorgados en el extranjero deberán cumplir con las solemnidades establecidas por la normativa vigente.
