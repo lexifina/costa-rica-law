@@ -15,3 +15,4 @@ Suministro de información por parte de las Municipalidades y Concejos Municipal
 | --- | --- | --- |
 | 1 | 2021-06-04 | la propia norma |
 | 2 | 2021-10-19 | Resolución 29 (2021-10-19) |
+| 3 | 2022-10-14 | Resolución 29 (2022-10-14) |
