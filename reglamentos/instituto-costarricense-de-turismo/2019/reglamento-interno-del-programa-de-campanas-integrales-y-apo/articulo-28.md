@@ -1,2 +1,0 @@
-Artículo 28. —Deróguese el Reglamento Interno para la Presentación, Aprobación y Ejecución de Campañas Cooperativas Integrales de Promoción del Instituto Costarricense de Turismo, publicado en el Diario Oficial La Gaceta número 200 del 17 de octubre del 2013, aprobado por la Junta Directiva en Sesión Ordinaria número 5811, artículo 2, inciso I), del 20 de agosto del 2013, acuerdo número SJD-371- 2013.
-(Corregida la numeración mediante Fe de Erratas y publicada en La Gaceta N° 136 del 19 de julio de 2019, página 36)

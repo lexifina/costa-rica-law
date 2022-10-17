@@ -1,1 +1,0 @@
-Artículo 18.- La Unidad Coordinadora será la encargada de realizar y coordinar los trámites administrativos correspondientes a la ejecución, fiscalización y por último el pago de la campaña integral o del apoyo cooperativo.
