@@ -16,3 +16,4 @@ Reglamento para la ordenación horaria de la circulación de vehículos pesados
 | 1 | 2014-04-28 | la propia norma |
 | 2 | 2019-09-06 | Decreto Ejecutivo 41966 (2019-09-06) |
 | 3 | 2022-09-30 | Decreto Ejecutivo 43735 (2022-09-30) |
+| 4 | 2022-10-17 | Reglamento 1349 (2022-10-17) |
