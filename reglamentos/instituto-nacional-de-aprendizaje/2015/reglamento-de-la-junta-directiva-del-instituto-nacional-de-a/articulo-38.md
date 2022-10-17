@@ -1,5 +1,2 @@
-CAPÍTULO XIII
-Disposiciones Transitorias
-(Así adicionado el capítulo anterior mediante sesión N° 4803 del 31 de julio de 2017)
-Artículo 38: Transitorios
-(Así adicionado mediante sesión N° 4803 del 31 de julio de 2017)
+Artículo 38.-Dependencia orgánica, nombramiento y regulaciones administrativas aplicables a la persona Auditora y Subauditora Interna.
+Dependerán orgánicamente de la Junta Directiva, quien les nombrará, por tiempo indefinido o temporal, según corresponda y establecerá las regulaciones de tipo administrativo que les serán aplicables, todo de conformidad con la Ley General de Control Interno, y demás normativa especial en lo conducente.

@@ -1,5 +1,6 @@
-CAPÍTULO IX
-De la Auditoría Interna
-Artículo 32.—La persona Auditora Interna o en su ausencia temporal la Subauditora Interna, asistirá a las sesiones ordinarias y extraordinarias de la Junta Directiva cuando se le convoque para asesorar en materia de su competencia, o cuando lo estime pertinente para el cabal cumplimiento de sus funciones.
-Su intervención tendrá carácter fundamental para la fiscalización, con independencia y objetividad, sobre la legalidad y la eficacia de los controles internos y del manejo de los recursos Institucionales, así como de los demás acuerdos y asuntos que dicte la Junta Directiva.
-Será un órgano de apoyo para la Junta Directiva, dentro del marco de la independencia que rige su accionar. Sus recomendaciones, asesorías y advertencia deberán estar direccionadas a reforzar la gestión.
+CAPÍTULO VII
+Unidad Secretaría Técnica de la Junta Directiva y Asesorías
+Artículo 32.-Composición y supervisión de la Unidad.
+La Secretaría Técnica tiene por objetivo brindar el apoyo administrativo, logístico y tecnológico requerido por la Junta Directiva para el cumplimiento de sus funciones. Tendrá nivel de Unidad Institucional y estará integrada al menos, de acuerdo a la aprobación efectuada por el Ministerio de Planificación Nacional y Política Económica, por un Secretario o Secretaria Técnico (a), dos asistentes administrativas, una persona recepcionista, una persona Profesional Operativa, un trabajador operativo para labores de limpieza y un operador de equipo móvil. Las funciones del personal de apoyo de la Secretaría Técnica están descritas en el Acta de la sesión 4063 de 7 de julio de 2003.
+La designación de la persona encargada de esa Unidad corresponderá a la Junta Directiva.
+En caso de ausencia o incapacidad de la persona encargada de la Secretaría Técnica, la Junta Directiva podrá designar una persona suplente. Quien desempeñe la Presidencia Ejecutiva tendrá a su cargo la supervisión directa de esta Unidad. En caso de ausencia de quien ejerza la Presidencia Ejecutiva, la persona que ocupa la Vicepresidencia de la Junta Directiva tendrá a su cargo la supervisión directa de esta Unidad.

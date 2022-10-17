@@ -1,6 +1,5 @@
-Artículo 22.—Recursos administrativos. Quienes integran la Junta Directiva podrán interponer recurso de revisión contra los acuerdos no firmes. El mismo deberá ser resuelto al conocerse el acta de esa sesión, a menos que por tratarse de un asunto que quien ejerza la Presidencia de la Junta Directiva juzgue urgente, prefiera conocerlo y resolverlo en sesión extraordinaria con la aprobación de la mayoría de sus integrantes presentes en esa sesión.
-El recurso de revisión deberá ser planteado a más tardar al discutirse el acta.
-Previamente a someter a discusión el fondo del asunto, quien ejerza la Presidencia de la Junta Directiva, pondrá a votación si se da curso o no a la revisión del mismo, lo cual se decidirá por simple mayoría.
-La revisión deberá concretarse, para efectos de votación, en una moción de derogatoria o modificación del acto a revisar, cuya aprobación requerirá de la mayoría absoluta de los integrantes presentes.
-Las simples observaciones de forma, relativas a redacción de los acuerdos y actas, no serán consideradas como recurso de revisión.
-En lo demás, contra los actos y resoluciones de la Junta Directiva, proceden los recursos ordinarios y extraordinarios que se establecen en la Ley General de la Administración Pública.
+Artículo 22.- Acerca de las mociones y de los puntos varios.
+Tratándose de mociones o de puntos varios, quienes integran la Junta Directiva, tendrán las siguientes atribuciones:
+1. Presentar mociones, ya sea por escrito o verbalmente.
+2. Solicitar la inclusión de puntos varios, por escrito o verbalmente.
+Lo anterior sin perjuicio de la utilización de los sistemas informáticos que al efecto puedan crearse, al amparo de la normativa aplicable y sin detrimento de los controles internos que al efecto se realizan. (Así reformado mediante sesión ordinaria N° 4803 del 31 de julio del 2017).

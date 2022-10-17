@@ -1,7 +1,4 @@
-CAPÍTULO IV
-De las sesiones y votaciones
-Artículo 11.—Sesiones ordinarias y extraordinarias. La Junta Directiva se reunirá ordinariamente una vez por semana, y en forma extraordinaria cada vez que sea necesario.
-Se reunirá en forma ordinaria, en el día, lugar y hora que la Junta Directiva determine, para lo cual no hará falta convocatoria especial.
-Cuando las circunstancias lo ameriten, quien ejerza la Presidencia Ejecutiva o quien le sustituya de conformidad con este Reglamento, podrá convocar a sesionar a la Junta Directiva en lugar, día y hora distinto al ordinario.
-En caso de las sesiones extraordinarias, será necesario una convocatoria por escrito, con una antelación mínima de veinticuatro horas, a la convocatoria se acompañará el orden del día, salvo en casos de urgencia.
-No obstante, quedará válidamente constituida la Junta Directiva, sin cumplir todos los requisitos referentes a la convocatoria o al orden del día, cuando asistan todos sus integrantes y así lo acuerden por unanimidad.
+Artículo 11.- De los tipos de sesiones.
+Se entenderá por sesión presencial, toda sesión en donde concurran físicamente todas las personas integrantes de la Junta Directiva a sesionar en el lugar que fueron convocados.
+Se entenderá por sesión presencial modalidad mixta, cuando a pesar de existir una convocatoria presencial, una o varias personas integrantes sesionan físicamente en el lugar convocado y otras virtualmente; estas últimas deberán justificar las razones por las cuales no sesionan presencialmente.
+Se entenderá por sesión presencial modalidad virtual aquella en donde participen todas las personas integrantes de la Junta Directiva que fueron debidamente convocadas mediante acto motivado y que se realiza utilizando cualquiera de las tecnologías de información y comunicación asociadas a la red de Internet, que garanticen tanto la posibilidad de una comunicación simultánea entre los miembros del órgano colegiado durante toda la sesión, como su expresión mediante documentación electrónica que permita el envío de la imagen, sonido y datos.

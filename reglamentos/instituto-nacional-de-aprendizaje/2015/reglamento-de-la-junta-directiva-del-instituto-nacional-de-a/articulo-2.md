@@ -1,9 +1,8 @@
 CAPÍTULO II
 De la Junta Directiva y sus integrantes
-Artículo 2º—Integración y nombramiento. La Junta Directiva estará integrada por nueve personas de la siguiente manera:
-a. Quien ejerza la Presidencia Ejecutiva del INA, que será persona de reconocida experiencia y conocimientos en el campo de la actividad de la Institución. Esta persona será designada por el Consejo de Gobierno, cuya gestión se regirá por las siguientes normas:
-1. Será la persona funcionaria de mayor jerarquía para efectos de gobierno de la Institución, cuyas funciones podrá delegar en sus inmediatos colaboradores de la Gerencia, ostentando su representación legal, y le corresponderá fundamentalmente velar porque las decisiones tomadas por la Junta Directiva se ejecuten, así como coordinar la acción de la entidad cuya Junta preside, con la de las demás instituciones del Estado. Asimismo, asumirá las demás funciones que por ley le están reservadas a quien preside la Junta Directiva así como las otras que le asigne la propia Junta;
-2. Será una persona funcionaria de tiempo completo y de dedicación exclusiva; consecuentemente, no podrá desempeñar ningún otro cargo público, ni ejercer actividad pública remunerada o profesional, en forma liberal, excepto la docencia en instituciones de enseñanza superior.
-3. Podrá ser removida libremente por el Consejo de Gobierno, en cuyo caso tendrá derecho a la indemnización laboral que le corresponda por el tiempo servido en el cargo. Para la determinación de esa indemnización, se seguirán las reglas que fijan los artículos 28 y 29 del Código de Trabajo, con las limitaciones en cuanto al monto que ese articulado determina.
-b. Quienes ejerzan las carteras de Trabajo y Seguridad Social y de Educación Pública, ejercerán el cargo en calidad de integrantes ex oficio. A su vez, quienes ejerzan los respectivos viceministerios podrán suplir al titular.
-c. Tres representantes del sector empresarial y tres representantes del sector laboral, distribuidos de la siguiente manera: uno por el sector sindical, uno por el sector cooperativo y uno por el sector solidarista, de nombramiento del Consejo de Gobierno.
+Artículo 2º-Integración de la Junta Directiva.
+La Junta Directiva del Instituto Nacional de Aprendizaje (INA) estará integrada de la siguiente manera:
+a) La persona que ocupe el cargo de la Presidencia Ejecutiva, la cual debe ser de reconocida experiencia y conocimiento en el campo de las actividades del Instituto, designado o designada por el Consejo de Gobierno.
+b) Las personas a cargo del Ministerio de Trabajo y Seguridad Social, y de Educación Pública, quienes ejercerán el cargo en calidad de miembros ex oficio.
+Las respectivas personas que ocupen los Viceministerios podrán suplir al titular en sus ausencias.
+c) Tres personas representantes del sector empresarial y tres representantes del sector laboral, elegidos en las condiciones que se fijan en el artículo siguiente.

@@ -1,5 +1,7 @@
-CAPÍTULO VI
-De las dietas, alimentación y otros
-Artículo 25.—Dietas. Quienes integran la Junta Directiva devengarán dietas por la asistencia a cada sesión ordinaria y extraordinaria, excepto quien ejerza la Presidencia Ejecutiva y los Ministros de Estado o sus representantes.
-La inasistencia o llegada tardía de más de treinta minutos, después de iniciada la sesión o el abandono de la misma, sin la debida justificación avalada por la Presidencia, ocasionará la pérdida de la dieta respectiva.
-(Así reformado mediante sesión N° 4851 del 27 de junio del 2018)
+Artículo 25.-Recursos administrativos.
+Quienes integran la Junta Directiva podrán interponer recurso de revisión contra los acuerdos no firmes. El mismo deberá ser resuelto al conocerse el acta de esa sesión, a menos que por tratarse de un asunto que quien ejerza la Presidencia de la Junta Directiva juzgue urgente, prefiera conocerlo y resolverlo en sesión extraordinaria con la aprobación de la mayoría de sus integrantes presentes en esa sesión.
+El recurso de revisión deberá ser planteado a más tardar al discutirse el acta.
+Previamente a someter a discusión el fondo del asunto, quien ejerza la Presidencia de la Junta Directiva, pondrá a votación si se da curso o no a la revisión del mismo, lo cual se decidirá por simple mayoría.
+La revisión deberá concretarse, para efectos de votación, en una moción de derogatoria o modificación del acto a revisar, cuya aprobación requerirá de la mayoría absoluta de los integrantes presentes.
+Las simples observaciones de forma, relativas a redacción de los acuerdos y actas, no serán consideradas como recurso de revisión.
+En lo demás, contra los actos y resoluciones de la Junta Directiva, proceden los recursos ordinarios y extraordinarios que se establecen en la Ley General de la Administración Pública.

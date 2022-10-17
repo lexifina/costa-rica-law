@@ -1,2 +1,2 @@
-Artículo 16.—Votaciones. Los acuerdos serán adoptados por mayoría absoluta de sus integrantes presentes, salvo en los casos en que la Ley o el Reglamento exija una mayoría calificada.
-Quienes integran la Junta Directiva, podrán votar afirmativa o negativamente sin que les sea permitido abstenerse de emitir su voto, salvo que concurra algún motivo de impedimento o excusa, previsto en el Código Procesal Civil, en el artículo 230 de la Ley General de Administración Pública y cualquier otra normativa aplicable en esta materia.
+Artículo 16. Grabación de las sesiones.
+Toda sesión de la Junta Directiva deberá ser grabada en audio y video y ser respaldadas en un medio digital que garantice su integridad y archivo de conformidad con la legislación vigente. Será obligación de todos los miembros del cuerpo colegiado verificar que se realice la grabación de la sesión y constituirá falta grave el no hacerlo.

@@ -1,5 +1,2 @@
-CAPÍTULO V
-De los acuerdos y las actas
-Artículo 21: Acuerdos firmes. Podrá declararse firme un acuerdo con el voto favorable de los dos tercios del total de quienes integran la Junta Directiva. Los acuerdos firmes no están sometidos al recurso de revisión que regula el artículo 22 del presente Reglamento, aunque sí podrán ser anulados o revocados, o impugnados, de conformidad con la Ley General de la Administración Pública.
-Los acuerdos en firme adoptados por la Junta Directiva serán comunicados por quien desempeñe la Presidencia Ejecutiva o por la Secretaría Técnica, actuando por delegación, a la mayor brevedad posible, a quien corresponda para su debida ejecución. Así mismo se le comunicará a quien interese, a la Administración Superior, Asesoría Legal y Auditoría Interna, para lo que corresponda.
-(Así reformado mediante sesión ordinaria N° 4803 del 31 de julio del 2017)
+Artículo 21.-Asuntos no incluidos en el orden del día.
+En sesiones extraordinarias no podrá ser objeto de acuerdo ningún asunto que no figure en el orden del día, salvo que por los dos tercios de quienes integran la Junta Directiva sea declarada la urgencia del asunto. El orden del día de las sesiones ordinarias deberá incluir siempre un capítulo de Mociones y Varios, así como un informe de asuntos de la Presidencia Ejecutiva.
