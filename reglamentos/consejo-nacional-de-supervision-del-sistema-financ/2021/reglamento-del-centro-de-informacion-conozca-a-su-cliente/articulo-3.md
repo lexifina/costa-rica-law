@@ -8,11 +8,15 @@ f) Usuario: persona física autorizada para consultar y actualizar la informaci�
 g) Sujeto obligado: entidad sujeta al cumplimiento de la Ley 7786, regulada, supervisada y fiscalizada por la Sugef, la Sugeval, la Supen o la Sugese, de conformidad con lo establecido en el artículo 14 de esa Ley.
 h) Organismos internacionales públicos o intergubernamentales: son organismos que se encuentran formados por individuos que están sujetos a la regulación internacional. En este sentido, el organismo debe contar con una serie de miembros, normas, así como presencia internacional para que sea catalogada como tal.
 Las características que tienen que cumplir para ser definido como un organismo internacional público o intergubernamental son las siguientes:
-• Asociación de estados.
-• Son parte del gobierno.
-• Están formadas y gobernadas por los gobiernos.
-• Se crean mediante tratados entre países.
-• Se persiguen intereses comunes de los Estados.
-• Tienen competencia propia.
-• Cuentan con voluntad autónoma.
-• Se organiza mediante un sistema de órganos.
+. Asociación de estados.
+. Son parte del gobierno.
+. Están formadas y gobernadas por los gobiernos.
+. Se crean mediante tratados entre países.
+. Se persiguen intereses comunes de los Estados.
+. Tienen competencia propia.
+. Cuentan con voluntad autónoma.
+. Se organiza mediante un sistema de órganos.
+i) Firma digital: entiéndase como firma digital la definida en el artículo 2 "Definiciones" del Reglamento a la Ley de Certificados, Firmas Digitales y Documentos electrónicos 33018.
+(Así adicionado el inciso anterior mediante sesión N° 1763-2022 del 17 de octubre del 2022)
+j) Firma digital certificada: entiéndase como firma digital certificada la definida en el artículo 2 "Definiciones" del Reglamento a la Ley de Certificados, Firmas Digitales y Documentos electrónicos 33018.
+(Así adicionado el inciso anterior mediante sesión N° 1763-2022 del 17 de octubre del 2022)

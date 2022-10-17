@@ -14,3 +14,4 @@ Reglamento del Centro de información conozca a su cliente
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-01-01 | la propia norma |
+| 2 | 2022-10-17 | Reglamento 1763 (2022-10-17) |

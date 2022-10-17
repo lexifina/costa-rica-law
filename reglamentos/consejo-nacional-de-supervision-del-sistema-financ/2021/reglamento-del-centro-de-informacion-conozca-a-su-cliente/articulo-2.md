@@ -6,4 +6,6 @@ b) al Régimen de invalidez, vejez y muerte de la Caja Costarricense de Seguro S
 c) al Régimen básico del Poder Judicial,
 d) al Régimen de capitalización colectiva del Magisterio Nacional, y otros regímenes complementarios creados por leyes especiales,
 e) a las sociedades agencia de seguros, agentes de seguros y vendedores de seguros autoexpedibles.
+f) las bolsas de valores supervisadas por la Sugeval.
+(Así adicionado el inciso anterior mediante sesión N° 1763-2022 del 17 de octubre del 2022)
 Se aclara que las obligaciones dispuestas en este reglamento y sus lineamientos aplican a las operadoras de pensiones con los demás regímenes que administren.
