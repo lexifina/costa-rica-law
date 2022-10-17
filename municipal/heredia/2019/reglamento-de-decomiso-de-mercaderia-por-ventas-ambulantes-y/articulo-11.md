@@ -1,1 +1,0 @@
-Artículo 11. Licencias otorgadas. Aquellas actividades comerciales similares amparadas en licencias o patentes otorgadas antes de la entrada en vigencia del presente Reglamento podrán seguir funcionando en los sitios autorizados hasta que se agote su periodo de vigencia.

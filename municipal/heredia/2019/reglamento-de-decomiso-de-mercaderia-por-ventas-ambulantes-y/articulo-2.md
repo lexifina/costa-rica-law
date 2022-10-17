@@ -1,1 +1,0 @@
-Artículo 2º Ámbito de aplicación. El presente Reglamento se aplicará a toda persona física o jurídica que se dedique a aquellas actividades comerciales lucrativas que sin contar con la licencia municipal se desarrollen en el cantón Central de Heredia de forma ambulante.
