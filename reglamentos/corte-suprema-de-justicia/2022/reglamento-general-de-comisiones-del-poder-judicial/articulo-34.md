@@ -1,0 +1,3 @@
+Artículo 34.-De la convocatoria a sesión extraordinaria:
+1. Para reunirse en sesión extraordinaria, por razones de necesidad o interés público, será siempre necesaria una convocatoria previa, con una antelación mínima de veinticuatro horas. A la convocatoria se acompañará el orden del día. Dicho término de antelación y la necesidad de aportar el orden del día no se aplicará en casos de urgencia.
+2. No obstante, quedará válidamente constituido un órgano colegiado sin cumplir todos los requisitos referentes a la convocatoria o al orden del día, cuando asistan todos sus miembros y así lo acuerden por unanimidad sus integrantes."

@@ -1,0 +1,2 @@
+Artículo 38.-Del orden del día y de su modificación o alteración: Por mayoría calificada de los miembros presentes de la Comisión, se podrá modificar el orden de los asuntos que se van a conocer o bien ampliar el orden del día, incluyendo asuntos nuevos.
+En el caso de sesiones extraordinarias, la inclusión de asuntos nuevos, solo es procedente si media acuerdo tomado por la unanimidad de todos sus miembros.

@@ -1,0 +1,2 @@
+Artículo 42.-Del derecho al uso de la palabra: Las personas integrantes de las Comisiones tienen derecho al uso de la palabra con respecto a los puntos objeto del orden del día, conforme la persona que ejerza la Presidencia conceda la posibilidad de intervención.
+Dichas intervenciones deberán ser realizadas de manera razonable y respetuosa, conforme al objeto del respectivo punto en el orden del día.

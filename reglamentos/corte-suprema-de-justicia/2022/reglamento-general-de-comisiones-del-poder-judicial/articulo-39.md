@@ -1,0 +1,4 @@
+Artículo 39.-De la formulación del orden del día: Para la formulación del orden del día, se seguirán las siguientes disposiciones:
+1. El Orden del Día será elaborado por la persona que ejerza la Presidencia de la respectiva Comisión.
+2. Cuando alguna persona integrante solicite el conocimiento de algún asunto de su especial interés, lo hará saber a la persona que ejerza la Presidencia, quien valorará y decidirá sobre la procedencia de incluirlos como punto de agenda. Dicha solicitud debe presentarse por escrito o por correo electrónico o podrá hacerlo de forma verbal.
+3. En el orden del día deberá priorizarse los temas que sean referidos por Corte Plena, Consejo Superior o la Presidencia de la Corte, Auditoría Judicial, las gestiones de partes interesadas y cualquiera que sea relacionado con grupos vulnerables.

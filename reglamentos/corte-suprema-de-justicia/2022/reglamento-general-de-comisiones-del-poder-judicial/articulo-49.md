@@ -1,0 +1,1 @@
+Artículo 49.-Del archivo de la documentación e información de las Comisiones: Toda la gestión documental de las Comisiones será llevada en formato digital y deberá tramitarse mediante el Sistema Integrado de Correspondencia o similar.

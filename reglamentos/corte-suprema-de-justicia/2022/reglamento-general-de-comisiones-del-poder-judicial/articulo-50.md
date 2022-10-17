@@ -1,0 +1,1 @@
+Artículo 50.-De la comunicación de los acuerdos de la Comisión: La Secretaría de cada comisión comunicará los acuerdos que se adopten a sus destinatarios por los medios electrónicos del Poder Judicial o al lugar en que estos señalen al efecto.

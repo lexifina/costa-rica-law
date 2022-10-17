@@ -1,0 +1,2 @@
+Artículo 43.-De la solicitud para realizar una intervención: La solicitud de uso de la palabra se hará levantando la mano, en caso de la que sesión sea presencial o por el medio electrónico respectivo, en el supuesto de que la misma sea virtual y la intervención se autorizará expresamente por la persona que ejerza la Presidencia.
+En caso de que la sesión se realice de manera no presencial total o parcialmente, la solicitud podrá hacerse de manera verbal."

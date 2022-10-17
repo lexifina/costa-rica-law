@@ -1,0 +1,4 @@
+Artículo 14.-Del período de vigencia de las Comisiones: La vigencia de las Comisiones del Poder Judicial se regirá por las siguientes disposiciones:
+1. Las comisiones permanentes mantienen su competencia, en tanto la normativa que les da origen no sea derogada.
+2. Las comisiones especiales tendrán carácter permanente, en tanto el Poder Judicial estime de interés institucional el tema o la necesidad que da origen a su creación.
+3. Las comisiones Especiales Temporales, mantendrán su vigencia, por el plazo de su creación o hasta que hayan cumplido su objetivo. Dichos órganos colegiados una vez cumplido lo anterior, sólo podrán seguir existiendo, si la Corte Suprema de Justicia, el Consejo Superior o la Presidencia de la Corte, según corresponda, dispone la prórroga de su mandato a solicitud de la propia comisión.

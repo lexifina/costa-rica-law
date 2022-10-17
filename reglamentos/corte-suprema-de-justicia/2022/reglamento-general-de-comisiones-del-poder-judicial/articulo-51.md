@@ -1,0 +1,1 @@
+Artículo 51.-De la cuenta oficial para comunicaciones de las Comisiones: Cada comisión contará con una cuenta oficial para la comunicación con las personas usuarias internas y externas de sus convocatorias y acuerdos.

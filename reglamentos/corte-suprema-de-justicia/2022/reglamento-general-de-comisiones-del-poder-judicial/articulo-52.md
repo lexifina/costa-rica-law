@@ -1,0 +1,1 @@
+Artículo 52.-De la publicidad de los planes de trabajo de las Comisiones: La Dirección de Tecnología de la Información adoptará las medidas necesarias para que cada Comisión pueda subir en la página WEB del Poder Judicial, sus planes de trabajo y los documentos que dichos órganos colegiados estimen pertinentes.

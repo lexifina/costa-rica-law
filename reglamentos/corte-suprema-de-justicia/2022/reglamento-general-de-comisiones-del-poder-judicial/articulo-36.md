@@ -1,0 +1,2 @@
+Artículo 36.-Del quórum. Del quórum: El quórum para que las Comisiones puedan sesionar válidamente será de mayoría absoluta, sea con la presencia de no menos de la mitad más uno de sus integrantes.
+Si verificada la asistencia de las personas integrantes por parte de la persona que ejerce la presidencia, al inicio de la sesión, éste determinare que no existe el quórum requerido, dará un término de 15 minutos para que se conforme.

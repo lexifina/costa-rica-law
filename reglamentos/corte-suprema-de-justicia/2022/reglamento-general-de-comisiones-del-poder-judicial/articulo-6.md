@@ -1,0 +1,1 @@
+Artículo 6º-Del apoyo y colaboración para el funcionamiento de las Comisiones: Las comisiones podrán requerir el apoyo, colaboración e información de los titulares subordinados y servidores de los diferentes órganos del Poder Judicial, para el cumplimiento de las competencias asignadas por el órgano responsable de su conformación o la normativa aplicable.

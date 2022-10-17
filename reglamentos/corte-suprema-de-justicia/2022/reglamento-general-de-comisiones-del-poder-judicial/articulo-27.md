@@ -1,0 +1,1 @@
+Artículo 27.-De la participación de personas no integrantes en las sesiones de Comisión: Con el fin de tratar temas propios de la agenda, se podrá invitar a asistir a una sesión de una Comisión, a personas servidoras del Poder Judicial y no servidoras, a efecto de expongan sobre temas de su conocimiento.

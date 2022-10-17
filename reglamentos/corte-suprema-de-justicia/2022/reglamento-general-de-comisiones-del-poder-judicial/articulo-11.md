@@ -1,0 +1,4 @@
+Artículo 11.-De los tipos de comisiones: Las Comisiones del Poder Judicial se categorizan de la siguiente manera:
+1. Comisiones Permanentes: Aquellas que son calificadas como tales por el artículo 66 de la Ley Orgánica del Poder Judicial u otra legislación que así prevea su existencia, así como aquellos órganos colegiados que la Corte Suprema de Justicia, estime deban tener tal naturaleza.
+2. Comisiones Especiales: Comisiones creadas por la Corte Suprema de Justicia, el Consejo Superior o la Presidencia de la Corte, cuando dichos órganos las estimen necesarias para el tratamiento de un tema de interés institucional.
+3. Comisiones Especiales con carácter temporal: Comisiones creadas por los citados órganos decisores, para el tratamiento de un tema de interés institucional de carácter específico temporal o coyuntural y cuya competencia se extingue una vez cumplido su objetivo o plazo de constitución.

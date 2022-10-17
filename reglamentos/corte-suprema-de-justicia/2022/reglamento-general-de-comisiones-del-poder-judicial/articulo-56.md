@@ -1,0 +1,1 @@
+Artículo 56.-Del apoyo secretarial a las Comisiones: Se establecerá una plataforma permanente de apoyo secretarial a las Comisiones, a fin de coadyuvar en el cumplimiento de las competencias establecidas en el presente Reglamento.

@@ -1,0 +1,1 @@
+Artículo 48.-Del carácter privado de las sesiones: Las sesiones de las Comisiones tienen carácter privado, excepto que una mayoría simple de las personas integrantes determine lo contrario para un tema en particular.

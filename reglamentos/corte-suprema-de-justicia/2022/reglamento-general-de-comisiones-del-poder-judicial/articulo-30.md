@@ -1,0 +1,1 @@
+Artículo 30.-De la designación de la persona que ocupe la Presidencia de una Comisión: Las personas que ocupen la Presidencia en una Comisión serán designadas por el órgano encargado de su conformación.

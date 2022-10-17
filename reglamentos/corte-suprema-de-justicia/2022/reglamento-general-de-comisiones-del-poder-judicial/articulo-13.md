@@ -1,0 +1,6 @@
+Artículo 13.-Del acuerdo que disponga la creación de una Comisión: Todo acuerdo que disponga la creación de una Comisión deberá tener al menos el siguiente contenido:
+1. Competencia asignada a la Comisión por parte de la Corte Suprema de Justicia, el Consejo Superior o la Presidencia de la Corte.
+2. Plazo de vigencia del órgano creado, cuando fuere procedente en el caso de las comisiones especiales con carácter temporal.
+3. Cantidad y nombre de las personas Magistradas que integrarán la Comisión, cuando sean por designación de la Corte Plena.
+4. Definición de los órganos cuyos titulares subordinados de apoyo para la toma de decisiones integrarán la Comisión respectiva, cuando se estime conveniente y oportuno. Para efectos de esta norma, se entenderá por titulares subordinados de apoyo para la toma de decisiones, los cargos de personas integrantes del Consejo Superior, Dirección Ejecutiva, de Gestión Humana, de Tecnologías de la Información, Planificación y Jurídica, así como la persona Directora o Director del Organismo de Investigación Judicial, de la Defensa Pública y la persona que ocupe el cargo de Fiscal o Fiscala General de la República.
+5. Otros deberes específicos que le sean asignados a la Comisión creada.

@@ -1,0 +1,1 @@
+Artículo 18.-De la participación de la Presidencia de la Corte: Cuando así lo estime oportuno y necesario, la persona que ejerza la Presidencia de la Corte Suprema de Justicia podrá, formar parte de cualquier comisión, asumiendo en la sesión o sesiones correspondientes su coordinación.
