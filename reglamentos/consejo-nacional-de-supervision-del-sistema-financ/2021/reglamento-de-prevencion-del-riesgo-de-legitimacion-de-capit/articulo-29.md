@@ -7,7 +7,8 @@ Para el caso de clientes clasificados como de alto riesgo, clientes PEP, cliente
 a) Clientes clasificados como alto riesgo:
 i) Implementar un procedimiento de diligencia debida reforzada que debe incorporar controles específicos para minimizar los factores de riesgo presentes en la relación con cada cliente.
 ii) Implementar otras medidas adicionales en el sistema de monitoreo y en la determinación de la fuente u origen de los fondos de los clientes, así como, de los beneficiarios de la cuenta.
-iii) Obtener aprobación expresa de la alta gerencia, para establecer relaciones comerciales con estos clientes.
+iii) El sujeto obligado debe obtener aprobación expresa de la alta gerencia, para establecer relaciones comerciales con estos clientes, en los casos en que cuente con dudas razonables, se haya levantado una alerta de su cliente o cuando el cliente ascienda a categoría de alto riesgo.
+(Así reformado el numeral anterior mediante sesión N° 1763-2022 del 17 de octubre del 2022)
 iv) Considerar en los procedimientos, que para los clientes que ascienden a categorías de alto riesgo, la alta gerencia debe pronunciarse con respecto a si la relación debe mantenerse.
 v) Considerar en los procedimientos que la alta gerencia debe pronunciarse cuando la clasificación descienda para un cliente catalogado previamente como de alto riesgo.
 vi) Documentar las decisiones concernientes a relaciones con clientes de alto riesgo y los fundamentos para tales decisiones que deben constar en el expediente del cliente.
