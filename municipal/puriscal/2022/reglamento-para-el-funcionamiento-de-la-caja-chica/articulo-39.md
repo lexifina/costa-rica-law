@@ -1,0 +1,1 @@
+Artículo 39.-Rige a partir del día de su publicación en el Diario Oficial. Publíquese por única vez en el Diario Oficial La Gaceta, por cuanto se trata de un reglamento de organización y de conformidad con el numeral 43 de la ley 7794 (Código Municipal), el mismo rige a partir de su publicación en el Diario Oficial La Gaceta.

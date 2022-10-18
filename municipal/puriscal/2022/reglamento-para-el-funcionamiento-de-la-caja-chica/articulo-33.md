@@ -1,0 +1,1 @@
+Artículo 33.-No podrán hacer uso del fondo de Caja Chica las personas que no presten servicio regular en la Municipalidad de Puriscal y, en consecuencia, no sean funcionarios públicos de la institución.

@@ -1,0 +1,1 @@
+Artículo 29.-El Tesorero (a) Municipal debe procurar tramitar con diligencia y frecuencia los reintegros de las sumas pagadas, para que se mantenga una adecuada rotación y el fondo no se agote. Por ende, el Tesorero (a) solicitará reintegros todos los viernes de cada semana.

@@ -1,0 +1,1 @@
+Artículo 5º-El tesorero (a) municipal, será la persona responsable por el uso correcto del Fondo de Caja Chica; en su ausencia asumirá la responsabilidad su asistente, jefe inmediato o funcionario que le supla, los recursos del Fondo de Caja Chica estarán bajo su custodia; previo arqueo de la Auditoría Interna.

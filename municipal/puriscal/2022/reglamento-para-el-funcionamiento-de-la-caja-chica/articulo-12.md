@@ -1,0 +1,1 @@
+Artículo 12.-Se autoriza al Tesorero (a) Municipal (o asistente) para entregar el efectivo del fondo de caja chica, contra la presentación del vale respectivo, de conformidad con el art. 11 de este Reglamento.

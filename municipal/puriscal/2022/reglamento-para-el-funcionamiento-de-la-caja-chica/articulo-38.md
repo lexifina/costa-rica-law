@@ -1,0 +1,1 @@
+Artículo 38.-El presente reglamento queda sujeto a las disposiciones de la Ley General de Contratación Administrativa y su respectivo reglamento, una vez entren en vigor por lo que posterior a ello se elaborará un procedimiento o bien modificación a este en su artículo 8.

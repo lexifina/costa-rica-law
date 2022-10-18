@@ -1,0 +1,1 @@
+Artículo 37.-El presente Reglamento deroga las anteriores disposiciones y regulaciones reglamentarias que tuviere la Municipalidad de Puriscal en materia de Fondo de Caja Chica, en todo lo que se oponga.

@@ -1,0 +1,1 @@
+Artículo 27.-Todo arqueo de caja chica se realizará en presencia del Tesorero (a) Municipal, o en presencia del funcionario que este designe para tales efectos. Este funcionario tendrá el derecho de pedir una segunda verificación, si mantiene dudas sobre el resultado obtenido.

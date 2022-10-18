@@ -1,0 +1,1 @@
+Artículo 26.-Los intereses devengados por los saldos de la cuenta bancaria del fondo de caja chica deberán ser depositados a la cuenta bancaria general de la Municipalidad de Puriscal, en un plazo no mayor a ocho días, a partir del recibo del estado de cuenta bancaria que consigne su acreditación.

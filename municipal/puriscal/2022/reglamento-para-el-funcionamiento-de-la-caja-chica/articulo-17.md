@@ -1,0 +1,1 @@
+Artículo 17.-Las facturas que sean por compra de bienes (activos), repuestos y otros de esta misma categoría, deberán ingresar a la bodega municipal, previo a realizar la liquidación respectiva que describe este reglamento.

@@ -1,0 +1,1 @@
+Artículo 6º-La custodia del fondo de caja chica será responsabilidad del Tesorero (a) Municipal o en ausencia de este el Asistente de Tesorería, jefe inmediato o funcionario que le supla quien deberá actuar de conformidad con lo que disponga este reglamento, el Código Municipal, la Ley de la Administración Financiera, y demás normativa vigente y aplicable en la materia.
