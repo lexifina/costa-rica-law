@@ -1,0 +1,12 @@
+CAPÍTULO III
+PLAZAS BANCARIAS EXTRANJERAS
+Artículo 25. Requisitos para la aceptación de plazas bancarias extranjeras
+La aceptación de la plaza bancaria extranjera en la que pueden estar domiciliados los intermediarios financieros extranjeros, a formar parte de un grupo o conglomerado financiero costarricense, está sujeta al cumplimiento permanente, a satisfacción del supervisor responsable costarricense, de cada una de las condiciones que se establecen a continuación:
+a) El supervisor de la plaza bancaria extranjera y el supervisor responsable costarricense del grupo o conglomerado financiero, o la Superintendencia General de Entidades Financieras cuando corresponda, hayan suscrito memorandos de entendimiento o arreglos formales que permitan la coordinación en materia de supervisión, fiscalización, cooperación e intercambio de información entre supervisores.
+b) La plaza bancaria extranjera cuenta con un régimen de regulación y supervisión prudencial efectivo que exige, al menos, los elementos descritos en el artículo 26 de este reglamento.
+c) La licencia otorgada por la autoridad de la plaza bancaria extranjera debe ser de tipo general y debe:
+i. Permitir a las empresas extranjeras la realización de todas las operaciones que sus entidades homologas locales pueden efectuar con residentes en la misma plaza bancaria extranjera.
+ii. Estar sujeta al régimen de regulación y supervisión, vigente en la plaza bancaria extranjera.
+iii. Exigir que la empresa extranjera mantenga, en su domicilio legal, una organización completa con niveles superiores con poder de decisión, organización funcional completa, sistemas de procesamiento de datos independientes y registros completos de todas las operaciones. La presencia física implica una organización independiente con su propio poder de decisión, no se trata solamente de una dirección electrónica o postal, o de una oficina de representación.
+La controladora del grupo o conglomerado financiero debe presentar al supervisor responsable un análisis en el que demuestre el cumplimiento de las condiciones establecidas, el cual debe ser verificado por el auditor interno del grupo o conglomerado financiero y sus resultados deben adjuntarse a la solicitud de la aceptación de la plaza extranjera. El supervisor responsable puede prescindir de la presentación de la información requerida a la controladora cuando disponga de esta
+de manera previa.

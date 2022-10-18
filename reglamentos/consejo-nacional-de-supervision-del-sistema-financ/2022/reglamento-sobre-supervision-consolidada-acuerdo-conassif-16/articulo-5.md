@@ -1,0 +1,4 @@
+Artículo 5. Determinación del supervisor responsable
+De manera conjunta, las superintendencias deben elaborar un análisis de los riesgos del grupo o conglomerado financiero que permita determinar según la naturaleza de las operaciones, si la identificación del supervisor responsable se realiza considerando el monto de activos totales, el monto de activos netos bajo administración o una combinación de ambos.
+Una vez determinado la o las variables a utilizar, el supervisor responsable es el que supervisa a la entidad del grupo o conglomerado financiero que presente el mayor monto de activos totales o el mayor monto de activos netos bajo administración, excepto cuando una ley especial determine el supervisor responsable. Por tanto, el supervisor responsable puede variar en el tiempo.
+La determinación del supervisor responsable será comunicada por el CONASSIF a la controladora del grupo o conglomerado financiero.

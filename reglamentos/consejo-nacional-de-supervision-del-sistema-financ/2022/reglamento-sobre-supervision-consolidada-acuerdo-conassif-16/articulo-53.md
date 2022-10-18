@@ -1,0 +1,11 @@
+Artículo 53. Contratación con terceros
+La controladora y las empresas y entidades integrantes de un grupo o conglomerado financiero debe actuar con la debida atención y diligencia al celebrar, gestionar o finalizar los acuerdos de contratación con un prestador de servicios, que les sean permitidos suscribir, para lo que se debe garantizar que:
+a) El prestador de servicios disponga de la competencia y capacidad para realizar las funciones, servicios o actividades contratados de forma fiable y profesional.
+b) El prestador de servicios supervise correctamente la realización de las funciones contratadas y gestione adecuadamente los riesgos asociados con la contratación.
+c) La entidad o empresa integrante del grupo o conglomerado financiero esté en capacidad de adoptar las medidas apropiadas cuando se detecte que el prestador de servicios no realice las funciones de acuerdo con las disposiciones legales y reglamentarias aplicables.
+d) El prestador de servicios tenga el deber de comunicar a la entidad o empresa supervisada cualquier evento subsecuente a la formalización del contrato que pueda afectar el desempeño de las funciones contratadas conforme a las disposiciones legales y reglamentarias aplicables.
+e) La entidad o empresa integrante del grupo o conglomerado financiero cuenta con la capacidad de rescindir el acuerdo de contratación de servicios en caso necesario sin detrimento de la continuidad y calidad de la prestación de servicios a los clientes.
+f) El Supervisor Responsable, los auditores externos contratados y demás autoridades competentes tengan acceso a los datos referidos a las actividades contratadas.
+g) El prestador de servicios proteja toda información confidencial referida a la controladora y a las empresas y entidades del grupo o conglomerado financiero, y de sus clientes, conforme a la normativa aplicable.
+h) Entre las partes que suscriben el contrato se desarrollen, apliquen y mantengan un plan de continuidad de negocio para la recuperación de datos en caso de alguna contingencia y la comprobación periódica de los mecanismos de seguridad informática, cuando ello sea necesario en consideración de la función, el servicio o la actividad contratada.
+i) Los contratos no pueden contener cláusulas que impliquen la asunción de riesgos de terceros para la entidad o empresa supervisada.

@@ -1,0 +1,31 @@
+Artículo 4. Actividad financiera
+Para los efectos de lo dispuesto en este reglamento, la actividad financiera comprende las siguientes:
+a) Servicios de seguros y relacionados con seguros
+i. Seguros directos (incluido el coaseguro).
+1. Seguros de vida.
+2. Seguros distintos de los de vida.
+ii. Reaseguros y retrocesión.
+iii. Actividades de intermediación de seguros, por ejemplo, la de los corredores o agentes de seguros.
+iv. Servicios auxiliares de los seguros, por ejemplo, los de consultores, actuarios, evaluación de riesgos e indemnización de siniestros.
+b) Servicios bancarios, bursátiles, de administración de fondos y demás servicios financieros (excluidos los seguros)
+i. Aceptación de depósitos y otros fondos reembolsables del público.
+ii. Préstamos de todo tipo, con inclusión de créditos personales, créditos hipotecarios, factoreo y financiación de transacciones comerciales, entre otros.
+iii. Arrendamiento financiero.
+iv. Todos los servicios de pago y transferencia monetaria, con inclusión de tarjetas de crédito, tarjetas de débito, de pago y similares, cheques de viajeros y giros bancarios.
+v. Garantías y compromisos.
+vi. La ejecución de órdenes de compra o venta, por cuenta propia o de clientes, ya sea en una bolsa, en un mercado extrabursátil o de otro modo, de lo siguiente:
+1. Instrumentos de mercado monetario (incluidos cheques, letras y certificados de depósito).
+2. Divisas.
+3. Productos derivados, incluidos, aunque no exclusivamente, futuros y opciones.
+4. Instrumentos de los mercados cambiario y monetario, por ejemplo, "swaps" y acuerdos a plazo sobre tipos de interés.
+5. Valores transferibles.
+6. Otros instrumentos y activos financieros negociables.
+vii. Participación en emisiones de toda clase de valores, con inclusión de la suscripción y colocación como agentes (pública o privadamente) y el suministro de servicios relacionados con esas emisiones.
+viii. Corretaje de cambios.
+ix. Administración de activos, por gestión, administración de fondos en efectivo o de carteras de valores, gestión de inversiones colectivas en todas sus formas, administración de fondos de pensiones y de capitalización laboral, servicios de depósito y custodia, servicios de titularización, y servicios fiduciarios.
+x. Servicios de pago y compensación respecto de activos financieros, con inclusión de valores, productos derivados y otros instrumentos negociables.
+xi. Suministro y transferencia de información financiera, y procesamiento de datos financieros y soporte lógico con ellos relacionado, por proveedores de otros servicios financieros.
+xii. Servicios de asesoramiento e intermediación y otros servicios financieros auxiliares respecto de cualesquiera de las actividades mencionadas en los literales "i" al "xi" anteriores, con inclusión de informes y análisis de crédito, estudios y asesoramiento sobre inversiones y carteras de valores, y asesoramiento sobre adquisiciones y sobre reestructuración y estrategia de las empresas y servicios compartidos de bancos internacionales.
+xiii. La recepción transmisión de órdenes para la compra o venta de valores por cuenta de terceros.
+xiv. El servicio de creadores de mercado.
+xv. Cualquier otro servicio que apoye la actividad financiera del Grupo o conglomerado financiero y que se relacionan con su modelo de negocio.

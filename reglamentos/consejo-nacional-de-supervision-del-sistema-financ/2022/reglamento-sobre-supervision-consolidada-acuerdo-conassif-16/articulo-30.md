@@ -1,0 +1,6 @@
+Artículo 30. Criterios para valorar la idoneidad de los socios y estructura de propiedad
+Los criterios para valorar la idoneidad de los socios con una participación significativa de la controladora de un grupo o conglomerado financiero, a que se refiere el artículo 29 de este reglamento, son los siguientes:
+a) Solvencia económica: El socio cuenta con un patrimonio neto que cubre el monto de los aportes de capital que le corresponde realizar.
+b) Solvencia moral: En caso de socio persona física, no poseer antecedentes disciplinarios o judiciales de las situaciones detalladas en la Sección II "Antecedentes disciplinarios y judiciales" del Anexo IX, de este reglamento. Lo contrario será causal de rechazo del socio.
+c) Transparencia de la estructura de propiedad: La estructura de propiedad permite conocer la identidad de los socios, con participaciones directas e indirectas, que figuran en ésta, independientemente de que las acciones sean mantenidas a través de mandatarios, custodios u otras figuras jurídicas a través de las cuales se pueda mantener la titularidad del capital, incluida la propiedad fiduciaria.
+d) Exposición a riesgos: La posibilidad de que la controladora o empresa supervisada quede expuesta a riesgos derivados de las actividades no financieras que realizan los socios.

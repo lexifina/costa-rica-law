@@ -1,0 +1,2 @@
+Artículo 15. Vigencia de los documentos
+Los documentos que acompañan la solicitud deben ser emitidos, como máximo, tres meses antes de la fecha de presentación de la solicitud, excepto en el caso de documentos oficiales que explícitamente señalen una vigencia diferente. Cuando se deba presentar información financiera auditada, la antigüedad no puede ser mayor a un año a partir de la fecha del informe del auditor.

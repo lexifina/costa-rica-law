@@ -1,0 +1,11 @@
+Artículo 106. Variaciones en instrumentos del capital social y sus efectos en el cálculo del capital común de nivel 1 y del capital adicional nivel 1
+Los aumentos y disminuciones en instrumentos del capital social de la controladora requieren la autorización previa del CONASSIF, de conformidad con lo dispuesto en el artículo 17 de este reglamento.
+Cuando se trate de aumentos en instrumentos del capital social, su admisión en el capital común de nivel 1 o en el capital adicional de nivel 1 requiere la verificación previa de que se cumple con los criterios dispuestos en el Anexo XVI, de este reglamento. Esta valoración puede efectuarse, a solicitud de la empresa, como parte del proceso de autorización de los aumentos en el capital social.
+En el caso de disminuciones en instrumentos del capital social, la respectiva autorización para la disminución conlleva simultáneamente la exclusión de los instrumentos del capital común de nivel 1 o del capital adicional de nivel 1.
+Es responsabilidad de la controladora demostrar, a satisfacción del supervisor responsable, que los niveles y composición del capital base, luego de la disminución solicitada, superarán los requerimientos aplicables a la empresa. El supervisor responsable puede verificar prospectivamente, solicitando las sensibilizaciones y proyecciones aportadas por la controladora, que luego de la disminución solicitada, la suficiencia patrimonial supera satisfactoriamente los requerimientos aplicables a la controladora; y que tal situación será sostenible en el tiempo considerando lo siguiente:
+a) El nivel y calidad de los componentes del capital base.
+b) La capacidad de generación de utilidades o excedentes de la controladora.
+c) La anticipación de eventos negativos que pudieran afectar dichos niveles.
+d) Las valoraciones bajo condiciones de estrés.
+e) La naturaleza, tamaño, complejidad y perfil de riesgo de la controladora.
+En general, frente a la disminución de instrumentos del capital común de nivel 1 o del capital adicional nivel 1, y con el propósito de preservar la solvencia de la empresa, el supervisor responsable puede requerir que, con anterioridad a la solicitud de autorización, o simultáneamente, la controladora sustituya los instrumentos por otros de igual o mejor calidad, entre otras acciones supervisoras posibles.

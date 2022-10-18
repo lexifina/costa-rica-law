@@ -1,0 +1,5 @@
+Artículo 8. Coordinación para el trámite de solicitudes
+Las solicitudes formuladas en forma individual por entidades supervisadas por alguna de las superintendencias se rigen por las disposiciones que al efecto aplican esas superintendencias de manera individual, las cuales deben resolverse previamente a la resolución que emita el supervisor responsable.
+En el caso de solicitudes de constitución o autorización, venta o fusión de entidades supervisadas, la controladora debe informar simultáneamente al supervisor responsable de que se inició el trámite individual con la superintendencia respectiva.
+Posteriormente, el supervisor responsable del grupo o conglomerado financiero atiende el trámite que involucre a la controladora.
+Cuando la solicitud de un acto de autorización involucre a entidades financieras, o grupos o conglomerados financieros supervisados por distintas superintendencias, el supervisor responsable debe coordinar con las otras superintendencias involucradas, de manera que no se produzcan incongruencias, duplicación de funciones o de requerimientos de información.

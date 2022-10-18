@@ -1,0 +1,5 @@
+Artículo 22. Otros requisitos para la fusión de grupos y conglomerados financieros
+En caso de que del proceso de fusión resulte una nueva empresa controladora, el solicitante debe cumplir con los requisitos establecidos para la solicitud de constitución de la nueva empresa controladora.
+En caso de que prevalezca alguna de las empresas controladoras, la solicitud de fusión debe referirse adicionalmente a la o las empresas controladoras que dejan de operar, respecto a cómo espera dar cumplimiento de los compromisos sucesorios.
+En caso de que una o varias de las empresas controladoras estén autorizadas para realizar oferta pública, la solicitud debe referirse a su compromiso para el cumplimiento de la regulación sobre el mercado de valores que le aplique a partir de la autorización de la fusión.
+En caso de que producto de la fusión de grupos o conglomerados financieros se realice la fusión de entidades financieras supervisadas por alguna de las superintendencias, previamente se debió de presentar ante el supervisor natural el trámite y documentación que este establece para la fusión de estas entidades.

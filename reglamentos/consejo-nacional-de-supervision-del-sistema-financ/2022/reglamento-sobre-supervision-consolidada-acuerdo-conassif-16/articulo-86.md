@@ -1,0 +1,4 @@
+Artículo 86. Requerimiento de capital basado en riesgos de una controladora
+El requerimiento de capital basado en riesgos de una empresa controladora de un grupo financiero es el equivalente al 10% de sus activos ponderados por riesgo de crédito, los cuales se calculan con base en las disposiciones que apliquen a las entidades supervisadas por el supervisor responsable del grupo financiero.
+No se considera como parte de los activos ponderados por riesgo de crédito, los activos que deban deducirse para el cálculo del capital base.
+Cuando se trate de una empresa controladora, que no sea de objeto único, por disposición legal, como es el caso de un conglomerado financiero, el requerimiento de capital basado en riesgos se calcula con base en el capital requerido por riesgos de una entidad supervisada dispuesto en el siguiente este capítulo.

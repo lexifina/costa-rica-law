@@ -1,0 +1,7 @@
+Artículo 33. Criterios para valorar el capital
+Los criterios para valorar el capital inicial y sus variaciones de una sociedad controladora son los siguientes:
+a) Calidad del capital: Los instrumentos representativos del capital cumplen con los criterios de admisibilidad para formar parte del capital común de nivel 1, dispuestos en el Anexo XVI de este reglamento. No se acepta como capital social las acciones adquiridas por una entidad o empresa del mismo grupo o conglomerado financiero en virtud de operaciones de suscripción y colocación de valores, hasta que las acciones hayan sido colocadas en terceros.
+b) Origen de los fondos: El origen de los fondos aportados como capital es lícito y se suministra evidencia suficiente y competente para realizar una adecuada verificación del origen de fondos.
+c) Autorización de la emisión: En el caso de una colocación de acciones en un mercado organizado, la emisión cuenta con la autorización de la respectiva autoridad reguladora del mercado.
+d) En caso de disminuciones de capital, la decisión no afecta el cumplimiento de las normas de suficiencia patrimonial, ni los objetivos estratégicos de la controladora a mediano y largo plazo.
+e) Los recursos aportados para la adquisición de acciones representativas de capital no deben originarse en financiamientos directos o indirectos otorgados por las entidades o empresas del mismo grupo financiero.

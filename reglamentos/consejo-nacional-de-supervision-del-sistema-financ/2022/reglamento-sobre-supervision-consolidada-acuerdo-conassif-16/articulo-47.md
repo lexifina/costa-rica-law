@@ -1,0 +1,2 @@
+Artículo 47. Actualización de la información de socios
+Con posterioridad a la autorización otorgada por el órgano resolutivo correspondiente, la controladora debe mantener actualizada, ante el supervisor responsable, la información de todos sus socios persona física y de sus socios persona jurídica hasta el nivel de la persona física y de aquellos socios que no les aplica la excepción establecida en el artículo 13 del presente reglamento.

@@ -1,0 +1,3 @@
+Artículo 6. Cambio de supervisor responsable
+Se define una periodicidad de al menos cada tres años para realizar el análisis descrito en el artículo anterior para determinar si procede el cambio de supervisor responsable.
+La fecha efectiva para un traslado de responsabilidades y funciones de un supervisor responsable a otro debe coordinarse entre las superintendencias involucradas, para lo cual el CONASSIF determinará un plazo prudencial que no puede exceder de seis meses salvo criterio fundamentado para un plazo mayor, y que será comunicado también por el CONASSIF a la controladora del grupo o conglomerado financiero.

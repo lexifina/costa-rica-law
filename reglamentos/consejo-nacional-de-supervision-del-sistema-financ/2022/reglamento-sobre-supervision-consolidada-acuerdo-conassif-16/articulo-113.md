@@ -1,0 +1,9 @@
+Artículo 113. Medidas prudenciales adicionales ante una situación de déficit patrimonial del grupo o conglomerado financiero
+El supervisor responsable, mediante una resolución motivada, puede ordenar a la controladora del grupo o conglomerado financiero que cumplan con alguna o todas de las siguientes medidas:
+a) Restringir o limitar la actividad, las operaciones o solicitar el abandono de actividades que planteen riesgos excesivos para la solidez de una entidad, empresa o el grupo o conglomerado en su conjunto.
+b) Exigir a las entidades o empresas que limiten la remuneración variable de los ejecutivos de la o las entidades o empresas integrantes del grupo o conglomerado financiero, cuando resulte incompatible con el mantenimiento de una base sólida de capital.
+c) Exigir a las entidades o empresas que utilicen las utilidades retenidas para reforzar las partidas de capital social.
+d) Prohibir o restringir la distribución por la entidad o empresa de dividendos a accionistas o de beneficios a asociados, siempre y cuando la prohibición no constituya un supuesto de impago de la entidad o empresa.
+e) Imponer obligaciones de información adicionales o más frecuentes, incluida información sobre la situación de capital y liquidez.
+f) Imponer requisitos específicos de liquidez, incluidas restricciones de los desfases de vencimiento entre activos y pasivos, en empresa, entidades o a nivel grupal.
+El supervisor responsable debe realizar la planificación y coordinación de las medidas excepcionales señaladas en este artículo en caso de un incumplimiento, en colaboración con las superintendencias que supervisan entidades del grupo o conglomerado financiero, las autoridades competentes extranjeras involucradas y, en su caso, con el Banco Central de Costa Rica si el grupo incluye entidades de importancia sistémica.

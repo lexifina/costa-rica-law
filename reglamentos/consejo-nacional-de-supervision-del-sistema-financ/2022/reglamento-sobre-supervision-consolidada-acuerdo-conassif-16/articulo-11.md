@@ -1,0 +1,7 @@
+Artículo 11. Verificación de la presentación de requisitos y documentos
+El supervisor responsable cuenta con un plazo máximo de quince días hábiles, contados a partir de la presentación de la solicitud, para verificar si se adjuntaron todos los requisitos y documentos descritos en este reglamento y sus lineamientos generales. Durante este plazo, el supervisor responsable no valorará el contenido de los documentos, sino simplemente su presentación.
+En caso de solicitudes que por el grado de complejidad justifique la conveniencia y necesidad de un plazo adicional, se puede prorrogar hasta por un periodo igual al plazo original, antes de su vencimiento y previo comunicado por escrito al solicitante.
+Si no se adjuntaron todos los requisitos y documentos, el supervisor responsable le otorgará al solicitante un plazo de 10 días hábiles para aclarar o subsanar lo prevenido respecto de la completitud de documentos.
+El plazo otorgado al solicitante para contestar la prevención puede ser ampliado a petición del solicitante, hasta por un periodo igual, cuando justifique su otorgamiento, siempre que la solicitud se realice antes del vencimiento del plazo otorgado.
+Si la solicitud completa fue presentada fuera del plazo otorgado al solicitante, la Superintendencia cursará el trámite como una nueva solicitud, corriendo nuevamente los plazos previstos en este reglamento a partir de la fecha de recepción de la información.
+Cuando la solicitud no sea completada se entiende por desistida.

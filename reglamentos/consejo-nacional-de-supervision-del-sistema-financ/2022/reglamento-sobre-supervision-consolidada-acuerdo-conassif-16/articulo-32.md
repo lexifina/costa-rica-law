@@ -1,0 +1,6 @@
+Artículo 32. Criterios para valorar la idoneidad del Órgano de dirección, la Alta gerencia y puestos de control
+Los criterios para valorar la idoneidad de los miembros del Órgano de dirección y la Alta gerencia, aplican según lo establece el Reglamento sobre idoneidad y desempeño de los miembros del Órgano de dirección y de la Alta gerencia de entidades y empresas supervisadas, Acuerdo CONASSIF 15-22.
+Los criterios para valorar la idoneidad de miembros de unidades o funciones de auditoría interna, oficialía de cumplimiento, gestión de riesgos y cumplimiento normativo, que se establezcan a nivel de grupo o conglomerado financiero, deben cumplir con los requisitos individuales que se encuentran establecidos en la normativa específica de cada entidad supervisada que integre el grupo o conglomerado, según corresponda a cada una de ellas, y complementariamente debe valorarse lo siguiente:
+a) Calificación profesional: La formación académica, la experiencia profesional y el historial laboral califican a la persona para el desempeño del puesto según el proyecto de negocio.
+b) Solvencia moral: No poseer antecedentes disciplinarios o judiciales de las situaciones detalladas en la Sección IV Antecedentes disciplinarios y judiciales del anexo VIII del presente reglamento.
+Lo contrario será causal de rechazo de la persona como función de control.

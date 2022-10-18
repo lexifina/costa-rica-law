@@ -1,0 +1,20 @@
+ANEXO II
+Separación o Venta de una entidad o empresa supervisada o la Disolución de Grupos o Conglomerados Financieros
+Documentación requerida para la separación o venta de una entidad o empresa supervisada de grupo o conglomerado financiero, o para la disolución de grupos o conglomerados financieros, en atención a los incisos b) y c) del artículo 17 de este Reglamento.
+I. BASE LEGAL
+A. LEY ORGÁNICA DEL BANCO CENTRAL DE COSTA RICA, LEY 7558
+En materia de disolución y venta: Artículo 141bis
+II. DOCUMENTACIÓN QUE DEBE ACOMPAÑAR LA SOLICITUD DE SEPARACIÓN O VENTA DE UNA ENTIDAD O EMPRESA SUPERVISADA DE UN GRUPO O CONGLOMERADO FINANCIERO O LA DISOLUCIÓN DE GRUPOS O CONGLOMERADOS FINANCIEROS
+A. INFORMACIÓN GENERAL
+1. Carta de solicitud de autorización para, la separación o venta de la entidad o empresa supervisada del grupo o conglomerado financiero, o para la disolución del grupo o conglomerado financiero, firmada por el representante legal de la controladora. La firma debe estar autenticada por un notario público o firmada mediante firma digital certificada. La carta debe señalar un lugar o medio veraz y existente para recibir notificaciones y contener los motivos que fundamentan la solicitud del acto de autorización.
+2. Certificaciones notariales de las actas de las asambleas de socios o asociados, o del órgano equivalente en sus funciones, en la que conste la aprobación en firme de la separación o venta de la entidad o empresa supervisada de que se trate, o la disolución del grupo o conglomerado financiero. Se debe presentar el acta de la asamblea de la controladora y el acta de la asamblea de la entidad o empresa que se separa o vende.
+3. Certificación notarial del acta de la asamblea de socios o asociados, o del órgano equivalente en sus funciones, de la controladora en la que se acuerda que, entre las restantes empresas del grupo o conglomerado financiero y la empresa objeto de separación o venta, no se realizarán actividades de forma tal que se configure una situación de grupo o conglomerado financiero de hecho.
+4. En caso de empresas supervisadas domiciliadas en el exterior, resolución u otra comunicación similar del órgano supervisor de la empresa supervisada del exterior, indicando si existe o no objeción para la solicitud, y en caso afirmativo, debe detallarse las razones que justifican la objeción.
+5. Cálculo y análisis del indicador de suficiencia patrimonial proyectado del grupo o conglomerado financiero, para el primer año siguiente a la separación o venta de la entidad o empresa supervisada de conformidad con lo establecido en el Anexo XV del presente reglamento, de manera trimestral.
+6. Certificación del poder otorgado ante notario público o certificación registral de personería jurídica, con una antigüedad no mayor a tres meses, en el que se acredite la capacidad de actuar del representante legal de la sociedad controladora, en caso de que dicha legitimación no esté acreditada en ante el supervisor responsable como parte de la información del Servicio de Actualización y Registro de Roles en el Supervisor Responsable.
+B. PLAN DE SEPARACIÓN O DESVINCULACIÓN O DISOLUCIÓN.
+1. Plan para la separación o venta de la entidad o empresa supervisada o para la disolución del grupo o conglomerado financiero, con detalle de las acciones relacionadas con:
+a. Gestión informativa con clientes, acreedores e inversionistas, y público en general.
+b. Gestión para el cumplimiento de los compromisos y obligaciones de todo tipo que la empresa, entidad o las entidades o empresas del grupo o conglomerado financieros mantiene pendientes de finiquitar.
+III. INSCRIPCIÓN ANTE EL SUPERVISOR RESPONSABLE
+1. Declaración jurada protocolizada, emitida por el representante legal de la controladora, en la que se consigne que la sociedad controladora no tiene participaciones en el capital de la entidad o empresa objeto de separación o venta o de que se han atendido todas las actividades requeridas para la efectiva disolución del grupo o conglomerado financiero o para la efectiva separación o desvinculación que le fueran requeridas por el Supervisor responsable.

@@ -1,0 +1,5 @@
+Artículo 89. Capital base de una entidad supervisada
+El capital base de una entidad supervisada integrante de un grupo o conglomerado financiero se calcula de la siguiente forma:
+a) El que se obtenga de la aplicación de las normativas prudenciales sobre suficiencia de capital con base en riesgos, aplicada por el respectivo supervisor natural. Cuando se trate de una entidad regulada por SUPEN, según se define en el artículo 37 de la Ley de Protección al Trabajador, Ley 7983, el capital base corresponde al capital mínimo de funcionamiento.
+b) Si es una entidad supervisada por la SUGESE que no cuenten con regulaciones específicas sobre suficiencia de capital, tales como sociedades agencias de seguros y sociedades corredoras de seguros, el capital base se calcula según lo dispuesto en el "Reglamento sobre la solvencia de entidades de seguros y reaseguros".
+c) Si es una entidad supervisada para la cual no se haya emitido regulación específica sobre suficiencia de capital, el cálculo del capital base se obtiene del monto que resulte de la suma del capital nivel 1 más el capital nivel 2, dispuestas en el Capítulo V del Título IV de este reglamento.

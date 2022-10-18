@@ -1,0 +1,3 @@
+Artículo 49. Depósito de acciones
+La sociedad controladora organizada como sociedad anónima debe depositar las acciones de las empresas y entidades en las que participe en alguna de las instituciones para el depósito de valores reguladas en la Ley 7732, Ley Reguladora del Mercado de Valores, en el plazo de tres días hábiles contados a partir de la fecha de comunicación de la resolución de constitución del grupo financiero, o de incorporación o adquisición de una empresa por un grupo o conglomerado financiero, o de aumentos en su capital social.
+Una vez que se ha completado el depósito de las acciones, la controladora debe informarlo al supervisor responsable.
