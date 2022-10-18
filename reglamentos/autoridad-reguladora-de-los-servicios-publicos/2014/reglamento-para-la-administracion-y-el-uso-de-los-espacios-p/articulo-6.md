@@ -1,2 +1,0 @@
-Artículo 6º—Asignación de espacios de estacionamiento. Corresponderá al Departamento de Servicios Generales, asignar en la tercera semana del mes de enero de cada año, los espacios de estacionamiento de la Autoridad Reguladora, de acuerdo a las disposiciones establecidas en este reglamento.
-Todos los actos de la Administración, que se realicen en cumplimiento de este reglamento serán incorporados al expediente conformado para la asignación anual de espacios para estacionamiento.

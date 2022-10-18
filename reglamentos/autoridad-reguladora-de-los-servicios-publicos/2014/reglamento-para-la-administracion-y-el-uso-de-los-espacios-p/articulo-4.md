@@ -1,9 +1,0 @@
-Artículo 4º—Definiciones. Para los efectos de este reglamento, los términos que a continuación se consignan, tienen el significado siguiente:
-a) Antigüedad: Periodo de tiempo laborado por un funcionario en el sector público, desde que inició la relación de servicio en este sector, hasta la actualidad. No se contabilizarán aquellos periodos donde se haya interrumpido la relación, ya sea por causas de permisos sin goce de salario o por trabajar en el sector privado.
-b) Autoridad Reguladora: Autoridad Reguladora de los Servicios Públicos. También se hace alusión a ella cuando se utiliza términos como Administración o Institución.
-c) Categoría: Puesto o conjunto de puestos similares en cuanto a deberes, responsabilidades y autoridad, para que se les pueda aplicar el mismo título a cada uno de ellos.
-d) Evaluación del desempeño: Sistema que evalúa el desempeño de los funcionarios en sus puestos durante un período determinado y que propicia la necesaria y efectiva comunicación entre los niveles de supervisión y los subordinados, para el oportuno reconocimiento de la labor, para el análisis de las diversas situaciones derivadas del trabajo y para la búsqueda conjunta de soluciones en procura de un mayor nivel de eficiencia.
-e) Flotilla: Grupo de automóviles de uso oficial de la Autoridad Reguladora.
-f) Funcionarios: Persona que presta sus servicios a la Autoridad Reguladora a través de una relación laboral. También se utiliza personal para referirse al conjunto de funcionarios.
-g) Persona con discapacidad: Persona con cualquier deficiencia física, mental o sensorial que limite, sustancialmente, una o más de sus actividades principales y que en atención de la Ley N° 7600 debe brindársele un lugar preferencial en el estacionamiento como ayuda técnica.
-h) Usuarios: Personas que requieren realizar algún trámite en las instalaciones de la Autoridad Reguladora.

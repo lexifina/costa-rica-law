@@ -1,3 +1,0 @@
-CAPÍTULO III
-El uso, las obligaciones, la responsabilidad y la revocación
-Artículo 12.—Uso del espacio asignado para estacionamiento. A quienes se les asigne un espacio de estacionamiento deben utilizarlo regularmente. En caso de vacaciones, incapacidad, permiso con o sin goce de salario por periodos mayores a 5 días hábiles, para los casos anteriores, por renuncia o despido u otra circunstancia, el responsable del control y ejecución de estos movimientos, comunicará de inmediato al Departamento de Servicios Generales el periodo de la ausencia, para que éste proceda a reasignar el espacio de forma temporal a quien tiene mejor derecho conforme la lista de espera.

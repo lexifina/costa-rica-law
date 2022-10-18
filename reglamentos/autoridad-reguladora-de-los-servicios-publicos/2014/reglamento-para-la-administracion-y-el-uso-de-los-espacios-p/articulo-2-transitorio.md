@@ -1,2 +1,0 @@
-Transitorio II.—En tanto la Sutel se encuentre arrendando instalaciones, el presente reglamento no le será aplicable a sus funcionarios, ello con excepción del artículos 2 y del artículo 15 incisos b), d), e) y f).
-En caso que los funcionarios de la Sutel incumplan dichas disposiciones del Departamento de Servicios Generales lo informará a la Junta Directiva de la Autoridad Reguladora quien solicitará al Consejo de la Sutel se corrija la conducta.
