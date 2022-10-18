@@ -1,0 +1,1 @@
+Artículo 68° -Ampliación de la cobertura de los servicios de mantenimiento de zonas verdes y aseo de vías. La Municipalidad decidirá de acuerdo a factores tales como recursos disponibles, niveles de recaudación y morosidad, entre otros, los cuales funcionarán para establecer en cuáles sectores se ampliará la cobertura del servicio.

@@ -1,0 +1,1 @@
+Artículo 62º -Sujeto pasivo con permiso de construcción vigente. Todo sujeto pasivo que cuente con permiso de construcción vigente deberá cancelar la categoría correspondiente a la infraestructura autorizada. Aunado a esto, se considerará el número de unidades a construir a fin de establecer la cantidad total de tasas sujetas de cobro.

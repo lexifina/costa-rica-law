@@ -1,0 +1,1 @@
+Artículo 59° -Nueva clase de patentado. Cualquier nueva actividad comercial, ente de carácter estatal u otro tipo de organización privada, que apareciera luego de haber entrado en vigencia este reglamento, se clasificará de acuerdo a las características de generación del mismo.

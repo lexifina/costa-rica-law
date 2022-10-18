@@ -1,0 +1,3 @@
+Artículo 16° -Residuos no tradicionales. La Municipalidad brindará el servicio de recolección de residuos no tradicionales de acuerdo a las condiciones, rutas, frecuencias y horarios que se informarán de manera oportuna por medio del sitio web institucional.
+Durante la recolección de residuos sólidos no tradicionales no podrá recolectarse residuos sólidos ordinarios. El generador se encargará de preparar adecuadamente los residuos para evitar lesiones en el operario recolector, tales como eliminación de clavos o bordes filosos.
+Estos residuos no requieren ser empacados para su recolección. No se recolectarán residuos no tradicionales si se encuentran contaminados con sustancias bioinfecciosas, radioactivas, explosivas, inflamables o corrosivas.

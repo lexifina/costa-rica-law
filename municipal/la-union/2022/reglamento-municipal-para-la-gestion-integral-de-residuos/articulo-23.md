@@ -1,0 +1,1 @@
+Artículo 23º -Chatarra. El servicio de recolección de residuos no incluye la recolección de chatarra. Las actividades que procesen y produzcan este tipo de residuos deberán realizar la movilización por medio de recolección privada como mínimo una vez al mes.

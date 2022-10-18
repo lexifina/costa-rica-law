@@ -1,0 +1,1 @@
+Artículo 90º -Entrada en vigencia. Este reglamento regirá a partir de su publicación definitiva en el Periódico Oficial La Gaceta; sustituyendo y derogando cualquier otra norma contenida en otro reglamento que lo contradiga.

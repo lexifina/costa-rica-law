@@ -1,0 +1,5 @@
+Artículo 32º -Frecuencia de recolección ordinaria. La Municipalidad brindará el servicio de recolección ordinaria según las rutas, frecuencia y sectores correspondientes, las cuales podrán estar sujetas a modificaciones, que serán informadas oportunamente a los usuarios por medio del sitio web de la Municipalidad www.launion.go.cr. La frecuencia mínima para brindar cada uno de los componentes del servicio de manejo de residuos sólidos será la siguiente:
+a) Recolección de residuos ordinarios: una a dos veces por semana dependiendo del sector.
+b) Recolección de residuos sólidos valorizables: una o dos veces por mes en las zonas donde se brinde el servicio.
+c) Recolección de residuos no tradicionales: la frecuencia se establecerá de acuerdo al estudio que realice la municipalidad para establecer rutas y sectores para este servicio.
+Los sectores, días y horas pueden ser consultados en la página web de la Municipalidad www.launion.go.cr y en el área de Información, ubicada en el edificio municipal.

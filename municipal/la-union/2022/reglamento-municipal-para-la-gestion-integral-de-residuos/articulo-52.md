@@ -1,0 +1,1 @@
+Artículo 52º - Recargo por morosidad. En caso de que el pago se realiza fuera del término establecido, generará el cobro de los intereses, el cual será fijado según lo dispuesto en los artículos 69° del Código Municipal y 57° del Código de Normas y Procedimientos Tributarios.

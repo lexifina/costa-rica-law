@@ -1,0 +1,1 @@
+Artículo 22º -Llantas y neumáticos. El servicio de recolección de residuos no incluye la recolección de llantas y neumáticos. El generador deberá atender la normativa establecida por el Ministerio de Salud en el Reglamento sobre Llantas de Desecho (Decreto Ejecutivo 33745-S, publicado en La Gaceta N° 92, del 15 de mayo de 2007).

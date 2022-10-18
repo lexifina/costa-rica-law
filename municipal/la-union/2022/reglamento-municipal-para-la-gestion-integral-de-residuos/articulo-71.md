@@ -1,0 +1,1 @@
+Artículo 71° -Tasa por el servicio de mantenimiento del Alcantarillado Pluvial. El servicio se cobrará a cada unidad localizada en el sector que tenga cobertura del servicio. El monto de la tasa por este servicio se facturará al propietario y/o poseedor, de acuerdo al modelo tarifario que determine la Municipalidad.

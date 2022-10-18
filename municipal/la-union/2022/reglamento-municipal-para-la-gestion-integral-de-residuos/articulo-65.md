@@ -1,0 +1,1 @@
+Artículo 65° -Tasa por el servicio de mantenimiento de zonas verdes. El servicio de mantenimiento de zonas verdes se cobrará a cada unidad localizada en el sector que tenga cobertura del servicio. El monto de la tasa por el servicio de mantenimiento de zonas verdes se facturará al propietario o poseedor, de acuerdo al modelo tarifario que determine la Municipalidad.

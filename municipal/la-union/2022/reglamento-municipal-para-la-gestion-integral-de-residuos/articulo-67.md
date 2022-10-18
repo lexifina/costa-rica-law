@@ -1,0 +1,1 @@
+Artículo 67° -Tasa por el servicio de aseo de vías. El servicio de aseo de vías se cobrará a las unidades localizadas en el área de cobertura del servicio, cuando cuenten con acera, cordón y caño frente a su propiedad. El monto de la tasa por el servicio de aseo de vías se facturará al propietario y/o poseedor, de acuerdo al modelo tarifario que determine la Municipalidad.
