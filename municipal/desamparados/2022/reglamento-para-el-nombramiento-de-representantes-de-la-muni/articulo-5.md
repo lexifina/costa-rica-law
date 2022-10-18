@@ -1,0 +1,1 @@
+Artículo 5°-De los munícipes que tengan interés de ser nombrados ante los distintos órganos o entes que requieran nombrar miembros por parte del Concejo Municipal, la Comisión analizará la idoneidad, capacidad, interés, compromiso, valores morales y éticos y que el régimen de incompatibilidades no cubra a las personas postulantes de acuerdo con el ordenamiento jurídico vigente.

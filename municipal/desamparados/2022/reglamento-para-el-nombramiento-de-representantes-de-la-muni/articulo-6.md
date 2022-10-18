@@ -1,0 +1,2 @@
+Artículo 6°-La Comisión Especial de Nombramientos entrevistará, mediante los medios necesarios, a los interesados en ocupar puestos que representen a la Municipalidad de Desamparados; y solicitará un criterio del Concejo de Distrito al que pertenezca el órgano o ente que así lo requiera -cuando se encuentre dentro de la circunscripción cantonal-
+Este criterio no será vinculante para la Comisión de Nombramientos.

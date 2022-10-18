@@ -1,0 +1,2 @@
+Artículo 7°-A partir del momento en que se cuente con los documentos necesarios de las personas postulantes, la Comisión tendrá un plazo de quince días para presentar ante el Concejo Municipal su dictamen recomendatorio.
+Una vez que el dictamen recomendatorio sea conocido por el Concejo Municipal, éste deberá elegir a sus representantes ante los diferentes órganos o entes que así lo requieran en el plazo de ocho días.
