@@ -1,0 +1,1 @@
+Artículo 3. Se corre la numeración del artículo 98 al artículo 118 correspondiente al Reglamento para la Prestación de Servicios y el Otorgamiento de Beneficios, para que ahora sean del artículo 99 al artículo 118.
