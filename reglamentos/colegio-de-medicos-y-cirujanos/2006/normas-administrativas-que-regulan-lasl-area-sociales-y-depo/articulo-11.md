@@ -1,1 +1,1 @@
-Artículo 11.—No podrá ingresar ni permanecer en las instalaciones del Colegio ninguna persona que presente síntomas de avanzado estado etílico, o bien manifestaciones de uso de drogas ilícitas, que pongan en riesgo la vida e integridad física de los usuarios de las instalaciones.
+Artículo 11.-No se podrá ingresar ni permanecer en las instalaciones del Colegio ninguna persona con comportamientos que atenten contra la paz y las buenas costumbres. El Colegio de Médicos y Cirujanos se reserva el derecho de admisión.

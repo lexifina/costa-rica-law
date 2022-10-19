@@ -1,1 +1,1 @@
-Artículo 22.—Las presentes Normas pueden ser reformadas, adicionadas, modificadas o eliminadas en cualquier momento por la Junta de Gobierno, ya sea por decisión propia o a solicitud del Comité Deportivo o un miembro del Colegio.
+Artículo 22.-Las presentes normas derogan cualquier otra de igual rango que se le oponga.

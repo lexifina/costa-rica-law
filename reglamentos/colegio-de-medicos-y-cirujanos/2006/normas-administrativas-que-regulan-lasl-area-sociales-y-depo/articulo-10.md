@@ -1,1 +1,1 @@
-Artículo 10.—Es prohibido el ingreso de cualquier tipo de mascotas a las instalaciones del Colegio de Médicos y Cirujanos de Costa Rica.
+Artículo 10.-Es prohibido ingresar con cualquier tipo de mascota o animal a las instalaciones del Colegio de Médicos y Cirujanos de Costa Rica, salvo con aquellos que sirvan como guías para personas con alguna necesidad especial, en cuyo caso, se debe acreditar previamente esa condición para poder permitir el ingreso del animal de servicio.

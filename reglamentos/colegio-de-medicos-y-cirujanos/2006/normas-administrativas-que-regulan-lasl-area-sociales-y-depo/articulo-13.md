@@ -1,1 +1,1 @@
-Artículo 13.—Los colegiados al día están exentos del pago de los cargos especiales por el uso de las instalaciones en horas de la noche.
+Artículo 13.-Si la persona agremiada se encuentra inhabilitada por el Colegio de Médicos y Cirujanos no podrá hacer uso de las instalaciones deportivas y recreativas.

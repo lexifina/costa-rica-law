@@ -1,1 +1,1 @@
-Artículo 4º—El Comité Deportivo velará por el aseo, ornato, seguridad, debida utilización y conservación de las edificaciones involucradas y vigilará el funcionamiento y utilización de las áreas correspondientes.
+Artículo 4º-El Comité Deportivo velará por el aseo, ornato y seguridad de las edificaciones involucradas en las actividades deportivas y recreativas y vigilará la debida conservación y utilización, así como el buen funcionamiento de las áreas correspondientes.

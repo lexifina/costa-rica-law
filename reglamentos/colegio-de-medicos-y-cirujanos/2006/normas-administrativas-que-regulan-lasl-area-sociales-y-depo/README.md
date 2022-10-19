@@ -17,3 +17,4 @@ Normas administrativas que regulan lasl área sociales y deportivas de la sede c
 | 2 | 2006-03-29 | Reglamento 0 (2006-03-29) |
 | 3 | 2015-09-16 | Reglamento 0 (2015-09-16) |
 | 4 | 2015-11-25 | Reglamento 0 (2015-11-25) |
+| 5 | 2022-10-19 | Reglamento 0 (2022-10-19) |
