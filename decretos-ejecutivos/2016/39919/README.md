@@ -14,3 +14,4 @@ Reglamento para implementar la modalidad de teletrabajo en el Ministerio de Obra
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-12-05 | la propia norma |
+| 2 | 2022-10-19 | Decreto Ejecutivo 43867 (2022-10-19) |
