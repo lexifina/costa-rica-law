@@ -14,3 +14,4 @@ Ajuste tarifario para el servicio de inspección técnica vehicular
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-08-19 | la propia norma |
+| 2 | 2022-10-19 | Resolución 101 (2022-10-19) |
