@@ -1,0 +1,2 @@
+Artículo 6°-Conflictos de interés.
+Se estará ante un conflicto de interés cuando exista una afectación a la imparcialidad y correcta toma de decisiones, debido a que los temas por resolver tengan relación directa o indirecta con intereses personales, o cuando los involucrados son parientes directos o cercanos, incluso allegados. Esta relación podrá poner en duda la independencia y objetividad con la que se realiza el ejercicio de la función pública.
