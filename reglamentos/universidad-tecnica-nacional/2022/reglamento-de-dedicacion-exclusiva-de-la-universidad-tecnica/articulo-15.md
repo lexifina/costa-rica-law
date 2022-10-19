@@ -1,0 +1,1 @@
+Artículo 15. De la renuncia. La persona servidora puede renunciar al Régimen de Dedicación Exclusiva, comunicándolo por escrito a la Dirección o Coordinación de Gestión del Desarrollo Humano, según corresponda, y no puede solicitar el reingreso al régimen en un período de dos años después de haber presentado su renuncia.

@@ -1,0 +1,1 @@
+Artículo 13. De la suspensión temporal del contrato. En caso de suspensión temporal del contrato de trabajo, el pago del incentivo económico por Dedicación Exclusiva se suspende por el mismo periodo y a la reanudación del contrato de trabajo, la persona servidora se mantiene en el régimen y se hace efectivo el pago del incentivo, siempre y cuando el contrato esté vigente.

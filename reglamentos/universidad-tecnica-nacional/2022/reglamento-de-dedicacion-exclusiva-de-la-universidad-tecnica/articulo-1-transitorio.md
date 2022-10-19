@@ -1,0 +1,3 @@
+CAPÍTULO V
+TRANSITORIOS
+Transitorio I. Dedicación Exclusiva de las personas servidoras antes de la entrada en vigencia de la Ley N° 9635 y de este reglamento. Las disposiciones contempladas en el presente Reglamento, no son aplicables a los contratos por Dedicación Exclusiva que se hayan suscrito y estuvieran vigentes con antelación a la entrada en vigencia de la Ley de Fortalecimiento de las Finanzas Públicas (Ley N° 9635) y este reglamento. En estos casos, corresponde un incentivo económico del 55% o 30% sobre el salario base de aquellas personas servidoras con el grado académico de licenciatura universitaria y un 20% sobre el salario base de aquellas personas servidoras con el grado académico de bachillerato universitario.

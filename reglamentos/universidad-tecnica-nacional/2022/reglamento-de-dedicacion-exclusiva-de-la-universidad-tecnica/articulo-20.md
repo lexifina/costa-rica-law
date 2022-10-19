@@ -1,0 +1,1 @@
+Artículo 20. De la vigencia y la derogatoria. Se deroga, de manera expresa, el Reglamento que venía regulando la materia de Dedicación Exclusiva en la Universidad Técnica Nacional y toda aquella normativa que se oponga a las nuevas disposiciones emitidas por la Institución, una vez que entre en vigencia el presente Reglamento, a partir de su publicación.

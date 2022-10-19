@@ -1,0 +1,1 @@
+Artículo 2. Del alcance. Este Reglamento aplica para todas las personas servidoras de la Universidad Técnica Nacional, que ingresen al régimen de Dedicación Exclusiva, indistintamente de la modalidad de trabajo en que desempeñen sus funciones.

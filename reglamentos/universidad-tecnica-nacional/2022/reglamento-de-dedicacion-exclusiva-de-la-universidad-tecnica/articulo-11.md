@@ -1,0 +1,1 @@
+Artículo 11. De la prórroga. El contrato puede ser prorrogado, siempre que se mantenga el cumplimiento de los requisitos exigidos y de acuerdo con la potestad facultativa de la administración. Este trámite debe realizarse sesenta días naturales antes de su vencimiento del contrato, la persona servidora debe solicitar la prórroga a la jefatura inmediata.

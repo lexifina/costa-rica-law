@@ -1,0 +1,1 @@
+Artículo 19. De los formatos. Corresponde a la Dirección de Gestión de Desarrollo Humano la redacción de los contratos y addendum de Dedicación Exclusiva, los cuales pueden ser modificados en su forma y fondo por esta instancia, no obstante, los contratos y addendum suscritos con anterioridad a este Reglamento conservan su validez y eficacia.

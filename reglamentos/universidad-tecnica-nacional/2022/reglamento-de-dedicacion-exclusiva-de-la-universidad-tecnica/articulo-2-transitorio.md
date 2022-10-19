@@ -1,0 +1,6 @@
+Transitorio II. Contratos de Dedicación Exclusiva sin fecha de vencimiento. Los contratos de Dedicación Exclusiva sin fecha de vencimiento deben estar sujetos a una periodicidad, la cual, permita su prórroga, por lo que se elaborara un addendum en el que se consigne la fecha de vencimiento, manteniendo una vigencia de cinco años, contados a partir del momento que es refrendado, con base en el artículo 30 del Título III de la Ley de Fortalecimiento de las Finanzas Públicas (Ley N°9635), y en consideración a lo que dispone la ley 8638 en este tema. La Dirección o Coordinación de Gestión de Desarrollo Humano, según corresponda, emitirá en un plazo máximo de un año, el addendum al contrato originalmente firmado para indicar la vigencia.
+(Aprobado por el Consejo Universitario mediante Acuerdo 2 tomado por el Consejo
+Universitario en la Sesión Extraordinaria No. 24-2022, celebrada el jueves 22 de
+septiembre del 2022, a las catorce horas, según el Artículo 2 del Capítulo II.
+Comisión Interna de Reglamentos. Publicado en el diario oficial La Gaceta No. 199
+del 19 de octubre del 2022, sección Reglamentos).

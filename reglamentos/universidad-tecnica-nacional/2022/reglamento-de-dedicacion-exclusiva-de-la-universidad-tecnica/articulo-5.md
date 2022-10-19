@@ -1,0 +1,4 @@
+Artículo 5. Del glosario. Las siguientes definiciones y términos se conceptualizan en este Reglamento de la siguiente manera:
+a. Addendum al contrato de Dedicación Exclusiva: documento añadido al contrato luego de la firma de las partes y durante la vigencia de este, en el que se añaden o modifican algunos de sus términos, manteniendo el resto del contrato incólume.
+b. Ascenso: toda promoción de un puesto a otro, cambio en la clasificación de un puesto o cambio de grupo clasificatorio de un puesto dentro de una misma clase, cuyo resultado concreto genere un incremento en la base salarial de la persona servidora pública.
+c. Cargo: nombre con el que se conoce dentro de la organización a un determinado conjunto de actividades que un servidor desarrolla en una posición definida dentro de la estructura organizacional y ocupacional. El cargo representa el conjunto de deberes y responsabilidades que lo separan y lo distinguen de los demás.
