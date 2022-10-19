@@ -1,0 +1,1 @@
+Artículo 4º-Derogatoria. Deróguese el artículo 111, y los párrafos segundos de los artículos 5° y 62, del Decreto Ejecutivo N° 41457-JP del 17 de octubre de 2018 y sus reformas, publicado en La Gaceta N° 23 del 01 de febrero de 2019.
