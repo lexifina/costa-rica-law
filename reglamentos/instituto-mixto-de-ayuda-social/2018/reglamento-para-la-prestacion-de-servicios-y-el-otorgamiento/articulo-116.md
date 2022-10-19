@@ -1,1 +1,2 @@
-Artículo 116: El Presente Reglamento se aprueba mediante acuerdo firme del Consejo Directivo del IMAS CD-204-05-2018 Articulo sexto, de fecha 28 de mayo del 2018.
+Artículo 116: Derogatoria: El presente Reglamento deroga íntegramente el Reglamento de Prestación de Servicios y Otorgamiento de Beneficios Institucionales aprobado por acuerdo del Consejo Directivo CD-17-11, artículo segundo de la sesión extraordinaria 1-E-11 del 19 de enero del 2011, así como toda otra normativa de rango inferior que le oponga.
+(Así modificada su numeración en sesión N° 53 del 19 de octubre de 2022, que lo traspaso del antiguo artículo 115 al 116)
