@@ -1,0 +1,2 @@
+Artículo 58. Comisión por pagos anticipados
+El deudor podrá cancelar o realizar abonos extraordinarios de forma anticipada una vez transcurrido 24 meses desde su primer desembolso. En plazos menor s de 24 meses estará sujeto a una comisión de penalización por pago anticipado de 0.50% del monto abonado. Excepto cuando la cancelación se de con fondos del INFOCOOP por una adecuación o un refinanciamiento o bien que los fondos procedan de la actividad empresarial propia.

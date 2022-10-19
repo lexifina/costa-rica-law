@@ -1,0 +1,8 @@
+Artículo 20. Clasificación de la organización cooperativa por nivel de riesgo según herramienta de riesgo.
+El Organismo Cooperativo que solicite un crédito ante el INFOCOOP, deberá ser clasificado como Grupo A, Grupo B y Grupo C, de acuerdo con el resultado de la aplicación de la herramienta de riesgo, se procederá de la siguiente manera:
+? Grupo A: Organismos cuyo nivel de riesgo con el INFOCOOP se encuentre en un rango igual o menor al 25.29%, serán sujetas de crédito. Cuando las áreas sustantivas del negocio, arrojen una calificación superior al 25.29%, serán valoradas por el analista para un posible acompañamiento técnico de previo a continuar el análisis de crédito.
+? Grupo B: Organismos cuyo nivel de riesgo con el INFOCOOP se encuentren en un rango mayor al 25.29% y menor al 40%, requerirán de Asistencia Técnica para mejorar la situación de riesgo del Organismo Cooperativo.
+? Grupo C: Organismos cuyo nivel de riesgo con el INFOCOOP se encuentre en un rango mayor al 40%, no serán sujetos de crédito.
+Los Organismos Cooperativos que se ubiquen en el grupo B y C, pueden ser sujetos a un estudio de adecuación en la cual no existan desembolsos de recursos, sin necesidad de asistencia técnica ni una nueva valoración de riesgo a criterio del Área de Financiamiento.
+En el caso de las cooperativas de ahorro y crédito supervisadas por la Superintendencia General de Entidades Financieras (SUGEF), el riesgo se valorará de acuerdo con la ficha CAMELS.
+En casos de niveles de riesgos que superen el grupo A se requiere un plan remedial para disminuir ese nivel llevándolos a nuevamente al Grupo A dado en un proceso de viabilización.
