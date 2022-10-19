@@ -14,3 +14,4 @@ Creación y declaratoria de interés público del Programa Nacional de Clústere
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-02-28 | la propia norma |
+| 2 | 2022-10-19 | Decreto Ejecutivo 43791 (2022-10-19) |
