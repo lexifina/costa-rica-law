@@ -1,0 +1,1 @@
+Artículo 3º-Derogatoria. Se deroga el Acuerdo SGV-A- 240 "Dispensa temporal de la presentación de documentos físicos relativos a certificaciones notariales o declaraciones juradas por parte de las entidades participantes del mercado de valores ante la declaratoria de Estado de Emergencia Nacional".
