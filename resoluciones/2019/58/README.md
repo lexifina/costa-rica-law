@@ -14,3 +14,4 @@ Procedimiento contribuyente que obtenga rentas inmobiliarias y/o mobiliarias com
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-10-16 | la propia norma |
+| 2 | 2022-10-20 | Resolución 31 (2022-10-20) |
