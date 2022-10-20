@@ -16,3 +16,4 @@ Reglamento Interno para Uso, Control y Mantenimiento de los Vehículos de Correo
 | 1 | 2001-06-01 | la propia norma |
 | 2 | 2005-09-02 | Reglamento 529 (2004-09-02) |
 | 3 | 2014-02-20 | Reglamento 0 (2014-02-20) |
+| 4 | 2022-10-20 | Reglamento 1753 (2022-10-20) |
