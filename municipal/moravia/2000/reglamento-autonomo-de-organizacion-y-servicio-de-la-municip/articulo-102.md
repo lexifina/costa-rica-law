@@ -1,1 +1,1 @@
-Artículo 102.—La Municipalidad otorgará quince becas a hijos de trabajadores cuyo monto será de cinco mil colones por mes. Las becas se otorgarán con un promedio superior al 80%, tomando en cuenta la calificación trimestral. Esto será según Reglamento de Becas, aplicado a internos.
+Artículo 102.- (Derogado mediante acuerdo N° 1527-2022 publicado en La Gaceta N° 200 del 20 de octubre del 2022)
