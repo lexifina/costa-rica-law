@@ -1,2 +1,2 @@
-Transitorio 4: Las disposiciones presentes en los artículos 44º y 79° a 119 bis de este Reglamento, concernientes a la aplicación de pruebas FARO en la asignatura de Estudios Sociales en los niveles de II Ciclo de la Educación General Básica y Educación Diversificada, resultarán aplicables cuando así lo determine el Consejo Superior de Educación, sujeto a la modificación de los programas de estudio respectivos.
+Transitorio 4: (Derogado por el artículo 3° del decreto ejecutivo N° 43770 del 20 de octubre de 2022)
 (Así adicionado por el artículo 4° del decreto ejecutivo N° 41686 del 28 de febrero del 2019)
