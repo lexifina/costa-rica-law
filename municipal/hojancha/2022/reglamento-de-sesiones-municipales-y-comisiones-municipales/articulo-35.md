@@ -1,0 +1,1 @@
+Artículo 35.-Presentada una moción de orden, se concede el uso de la palabra en primer término al proponente y luego a los regidores que así la soliciten, sin que pueda exceder de cinco minutos cada intervención. Cada regidor razonará su voto negativo, lo cual constará en el acta.

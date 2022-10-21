@@ -1,0 +1,1 @@
+Artículo 8º-El quórum para las sesiones será de tres regidores. Este número deberá encontrase presente en el salón de sesiones ocupando sus respectivas curules al inicio de la sesión, durante las deliberaciones y al efectuarse las votaciones.

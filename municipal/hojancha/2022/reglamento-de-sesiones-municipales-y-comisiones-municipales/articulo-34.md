@@ -1,0 +1,1 @@
+Artículo 34.-Son mociones de orden, las que se presentan para regular el debate; para programarle el uso de la palabra a un regidor, para alterar el orden del día y aquellas que el presidente califique como tales. En este último caso si algún regidor tuviere opinión contraria al presidente, podrá apelar ante el Concejo y este, decidirá por mayoría simple de votos.

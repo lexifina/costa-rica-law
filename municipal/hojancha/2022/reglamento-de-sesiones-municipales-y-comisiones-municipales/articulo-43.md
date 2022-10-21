@@ -1,0 +1,1 @@
+Artículo 43.-Las comisiones especiales serán integradas a discreción del presidente del Concejo de entre los regidores propietarios y suplentes. Sin embargo, podrán integrarse esas comisiones funcionarios o empleados de la Municipalidad de Hojancha y personas ajenas a ellas. Los jefes de departamento podrán formar parte de estas comisiones también.

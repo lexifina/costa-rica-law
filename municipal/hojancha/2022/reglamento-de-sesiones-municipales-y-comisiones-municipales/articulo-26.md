@@ -1,0 +1,1 @@
+Artículo 26.-Cuando concurran al Concejo, miembros de los Supremos Poderes, invitados especiales, representantes de organismos oficiales o extranjeros, representantes de instituciones autónomas, se les recibirá en la sala de sesiones, a la hora fijada para tal efecto e inmediatamente después del saludo de rigor se les concederá el uso de la palabra.

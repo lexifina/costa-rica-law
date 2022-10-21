@@ -1,0 +1,1 @@
+Artículo 15.-Cuando los regidores propietarios, suplentes o síndicos, fueran designados para integrar comisiones especiales por el presidente o por el Concejo mismo y si por la realización de su trabajo, no asistiera a las sesiones municipales devengarán la dieta correspondiente.

@@ -1,0 +1,1 @@
+Artículo 51.-La secretaria remitirá al Concejo en orden de presentación la solicitud de audiencia que presenten los particulares. El Concejo decidirá si acepta o no la petición formulada, tomando en cuenta el interés municipal, la oportunidad o cualquier otro elemento que se considere pertinente.

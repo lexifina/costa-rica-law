@@ -1,0 +1,1 @@
+Artículo 4º-Las sesiones extraordinarias, se efectuarán en la sala de sesiones municipales o en otro lugar, cuando la índole de los asuntos a tratar así lo requieran y siempre que la convocatoria así lo especifique.

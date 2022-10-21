@@ -1,0 +1,1 @@
+Artículo 19.-Las actas de las sesiones del Concejo deberán ser aprobadas y firmadas por la presidencia y la secretaria, en la sesión ordinaria inmediata posterior, salvo que circunstancias especiales lo impidan, en cuyo caso la aprobación del acta se pospondrá en a la sesión ordinaria siguiente.

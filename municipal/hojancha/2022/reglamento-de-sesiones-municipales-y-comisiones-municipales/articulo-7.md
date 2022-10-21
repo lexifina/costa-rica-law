@@ -1,0 +1,1 @@
+Artículo 7º-El Alcalde Municipal, podrá hacer la convocatoria a sesiones extraordinarias, por su propia iniciativa así mismo, estará obligado a hacerlo cuando se lo soliciten, por escrito, por lo menos dos regidores propietarios.

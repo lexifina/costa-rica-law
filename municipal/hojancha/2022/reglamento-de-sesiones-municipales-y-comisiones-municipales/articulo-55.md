@@ -1,0 +1,1 @@
+Artículo 55.-La discusión y los acuerdos que se deriven de la intervención de particulares, se hará finalizada la visita de los mismos, los cuales se harán del conocimiento de los interesados en forma escrita y en el menor tiempo posible.

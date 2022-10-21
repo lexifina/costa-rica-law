@@ -1,0 +1,1 @@
+Artículo 40.-Para referirse a los asuntos en discusión, el presidente del Concejo iniciara su intervención con las siguientes palabras "Señores Regidores" los regidores iniciaran su intervención con las palabras "Señor presidente, Señores Regidores..."

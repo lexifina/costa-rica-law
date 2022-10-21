@@ -1,0 +1,1 @@
+Artículo 39.-Las interrupciones, se harán únicamente con anuencia del presidente del Concejo, si se cuenta con la aprobación del interrumpido, quien en todo caso es el que acepta la interrupción. Este procedimiento se utilizará con fines declarativos y para ampliar o reforzar la tesis nunca para hacer debates. En todo caso, la interrupción no podrá ser mayor de dos minutos.

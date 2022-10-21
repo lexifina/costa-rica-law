@@ -1,0 +1,1 @@
+Artículo 52.-Corresponde a la secretaria del Concejo, comunicar oportunamente, a los interesados, de las audiencias que acuerde el Concejo. Las cuales se efectuarán los primeros y terceros lunes de cada mes y no excederá de un número mayor de tres por sesión ordinaria. Así mismo, se concederán audiencias en sesiones extraordinarias cuando así lo ameriten.

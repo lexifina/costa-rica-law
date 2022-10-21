@@ -1,0 +1,1 @@
+Artículo 10.-Las sesiones del Concejo Municipal deberán iniciarse dentro de los quince minutos siguientes a la hora señalada, al efecto conforme con el reloj del despacho. Pasados los quince minutos anteriores, si no hubiese quórum, se dejará constancia en el libro de actas y se consignará el nombre de los regidores presentes, los cuales tendrán derecho a sus respectivas dietas.

@@ -1,0 +1,1 @@
+Artículo 45.-Las comisiones despacharán los asuntos a su cargo a la mayor brevedad posible, salvo los casos especiales en que el presidente del Concejo, en forma expresa, fije un término menor o superior, las comisiones deberán rendir sus dictámenes en un plazo no mayor a treinta días prorrogables por quince días a juicio del presidente.

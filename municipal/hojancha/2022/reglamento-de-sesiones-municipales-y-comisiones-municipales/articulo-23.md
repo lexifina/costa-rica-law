@@ -1,0 +1,1 @@
+Artículo 23.-En el capítulo de iniciativas de los regidores, estos presentarán sus mociones y proposiciones por escrito y firmadas. La secretaria anotará la hora y la fecha en que fueron presentadas y serán conocidas en estricto orden de presentación, salvo que se trate de mociones de orden. Los suplentes las presentarán firmadas y secundadas por uno o dos propietarios.

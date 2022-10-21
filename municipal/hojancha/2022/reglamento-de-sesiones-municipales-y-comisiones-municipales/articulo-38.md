@@ -1,0 +1,1 @@
+Artículo 38.-Salvo lo establecido en el artículo 31, el presidente del Concejo solo abrirá debate si hay opiniones en contra del tema en discusión. Sin embargo, cuando se trate de asuntos de sumo interés general, a juicio de la presidencia, se puede abrir un espacio para comentarios.

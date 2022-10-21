@@ -1,0 +1,1 @@
+Artículo 24.-Es competencia de la presidencia del Concejo Municipal controlar el uso correcto de la palabra, que exista orden de acuerdo a la solicitud de la misma. Las deliberaciones sobre un tema o situación no deberán desviarse a otro.

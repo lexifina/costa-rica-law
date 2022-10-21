@@ -1,0 +1,1 @@
+Artículo 31.-Toda iniciativa tendiente a adoptar, reformar, suspender o derogar disposiciones reglamentarias deben ser presentadas o acogidas para su trámite por algún regidor y enviadas a comisión para su estudio y dictamen.

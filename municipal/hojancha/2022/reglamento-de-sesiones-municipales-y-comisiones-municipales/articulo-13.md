@@ -1,0 +1,1 @@
+Artículo 13.-El regidor suplente que sustituyere a un regidor propietario, tendrá derecho a devengar la dieta como propietario y a emitir el voto en los acuerdos del Concejo, si la sustitución se hubiere efectuado después de los quince minutos, a que se refiere el artículo anterior.

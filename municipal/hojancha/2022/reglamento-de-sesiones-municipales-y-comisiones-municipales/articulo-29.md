@@ -1,0 +1,1 @@
+Artículo 29.-Los acuerdos tomados por el Concejo, quedarán en firme al aprobarse el acta respectiva. En casos especiales de suma urgencia, el Concejo por votación de las dos terceras partes de la totalidad de sus miembros puede declarar firme sus acuerdos, para lo que la presidencia así lo solicitara: "sírvanse votar para dar firmeza al presente acuerdo".

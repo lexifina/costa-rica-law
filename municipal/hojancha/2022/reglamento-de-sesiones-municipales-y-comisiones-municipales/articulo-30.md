@@ -1,0 +1,1 @@
+Artículo 30.-El recurso de revisión procederá contra los acuerdos que no hubiesen sido declarados en firme y deberá presentarse por escrito antes de ser aprobada el acta, la misma mayoría requerida para dictar el acuerdo sobre el que solicita revisión, será necesaria para acordar esta. Aceptada la revisión, el presidente pondrá en discusión el asunto a que se refiere el acuerdo.

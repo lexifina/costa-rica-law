@@ -1,0 +1,1 @@
+Artículo 37.-Para la presentación de mociones escritas, se utilizará una hoja la cual debe contener: número de sesión, nombre completo del regidor que presenta la moción, espacio para considerandos y el, por tanto, además de la firma de un regidor propietario.
