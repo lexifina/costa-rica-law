@@ -1,0 +1,5 @@
+Capítulo 4:
+Roles y Responsabilidades
+Artículo 5: Responsabilidad de la Corporación Municipal
+La Corporación Municipal deberá velar por el cumplimiento en el accionar de la OSMAC, o su análogo, de las políticas públicas y directrices establecidas por el Servicio Nacional de Salud Animal (Senasa), en materia de salud pública veterinaria, salud animal y bienestar animal, de conformidad con las potestades que le otorga la Ley 8495, Ley General del Servicio Nacional de Salud Animal, de 6 de abril de 2006 y para lo cual podrá establecer mecanismos de cooperación a través de convenios específicos, de conformidad con el artículo 24 bis de la Ley 7451, Ley de Bienestar de los Animales, de 16 de noviembre de 1994, Asimismo por lo establecido en la Ley 10.141 Servicio Municipal de Atención de Animales de Compañía, del 30 de marzo de 2022, y el presente reglamento.
+Además, deberá garantizar la accesibilidad del servicio en su jurisdicción según criterios técnicos y de oportunidad previamente planificados.

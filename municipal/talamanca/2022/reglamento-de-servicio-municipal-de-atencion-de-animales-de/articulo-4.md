@@ -1,0 +1,8 @@
+Artículo 4: Funciones
+La Oficina de Servicio Municipal de Animales de Compañía (OSMAC) brindará los siguientes servicios:
+Campañas de castración:(Gestionar, ejecutar y/o coordinar) campañas de castración para animales de compañía dentro de la jurisdicción municipal y en acatamiento de las medidas establecidas por entidades técnicas de esta materia y el Servicio Nacional de Salud Animal.
+Campañas de vacunación: (Gestionar, ejecutar y/o coordinar) campañas de vacunación para animales de compañía dentro de la jurisdicción municipal y en acatamiento de las medidas establecidas por entidades técnicas en esta materia y el Servicio Nacional de Salud Animal.
+Campañas de desparasitación:(Gestionar, ejecutar y/o coordinar) campañas de desparasitación para animales de compañía dentro de la jurisdicción municipal y en acatamiento de las medidas establecidas por entidades técnicas en esta materia y el Servicio Nacional de Salud Animal.
+Eutanasia humanitaria: En casos particulares, la eutanasia podrá ser vista como una medida humanitaria, cuya causa debe ser determinada y acción ejecutada por una persona profesional en medicina veterinaria debidamente habilitada para el ejercicio profesional. Este procedimiento debe seguir las disposiciones del Reglamento para la Reproducción y Tenencia Responsable de Animales de Compañía, Nº 31626-S.
+Campañas de educación:(Gestionar, ejecutar y/o coordinar) campañas de educación a la población sobre la tenencia responsable de animales de compañía, control de enfermedades zoonóticas y demás temas relacionados al bienestar animal.
+Otra función que una instancia análoga se encontrase desarrollando y que no se encuentre limitada por el presente reglamento y en la cual pudiese brindar colaboración.
