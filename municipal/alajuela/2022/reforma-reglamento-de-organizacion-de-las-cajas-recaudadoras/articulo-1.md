@@ -1,0 +1,2 @@
+MUNICIPALIDAD DE ALAJUELA
+Alcaldía Municipal.-Al ser las 10 horas del 15 de setiembre de 2022, resuelve aprobar la siguiente actualización al artículo Nº 4 del fondo del Reglamento de Organización de las cajas recaudadoras de la Municipalidad de Alajuela, solicitado en el oficio Nº MA-ST-339-2022 y sea publicado en el Diario Oficial La Gaceta: Se aumenta la suma de ¢150.000.00 (ciento cincuenta mil colones exactos) para cada uno de los fondos fijos de caja, quedando un monto total por cada fondo de caja recaudadora por ¢400,000.00.
