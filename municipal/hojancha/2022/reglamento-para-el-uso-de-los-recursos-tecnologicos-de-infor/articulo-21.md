@@ -1,0 +1,2 @@
+Artículo 21° -El uso de Internet es sólo para consulta específica, por lo que se prohíbe a los usuarios mantenerlo abierto durante toda la jornada laboral, si no se está utilizando.
+Deberá utilizarlo para efectos institucionales, quedándole prohibido su uso para asuntos personales.

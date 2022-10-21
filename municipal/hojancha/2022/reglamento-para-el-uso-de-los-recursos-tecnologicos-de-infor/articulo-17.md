@@ -1,0 +1,2 @@
+Artículo 17° -El usuario podrá almacenar en los servidores de red únicamente información proveniente de la base de datos, aplicaciones institucionales y archivos compartidos para otros departamentos. Los archivos propios de cada usuario deben guardarse en los discos duros de las computadoras de cada usuario.
+El Departamento de Tecnologías de Información y Comunicación, realizará respaldos periódicos de la información almacenada en los servidores institucionales.

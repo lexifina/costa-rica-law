@@ -1,0 +1,1 @@
+Artículo 19° -El acceso a la red con una palabra de paso ajena o el uso indebido de la propia, constituirá causal para que el encargado del departamento de Tecnologías de Información y Comunicación, reporte por escrito al usuario con copia a su jefe inmediato y a la Alcaldía Municipal, para que se establezcan las responsabilidades del caso.

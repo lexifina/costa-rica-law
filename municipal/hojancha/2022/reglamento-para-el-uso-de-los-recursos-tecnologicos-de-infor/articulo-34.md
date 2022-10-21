@@ -1,0 +1,1 @@
+Artículo 34° -Toda Jefatura o Dirección, deberá controlar el uso de los activos dentro de sus departamentos e implementar controles apropiados para cada uno de ellos, además velará por el uso adecuado y el cuidado del equipo de cómputo que tienen asignado en sus dependencias.

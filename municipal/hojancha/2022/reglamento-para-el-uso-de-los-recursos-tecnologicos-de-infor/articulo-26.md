@@ -1,0 +1,1 @@
+Artículo 26°-En caso de que el departamento de Tecnologías de Información y Comunicación, identifique una falla de seguridad en un recurso tecnológico, podrá suspender el acceso a los servicios de comunicaciones electrónicas e Internet, mientras ésta es corregida, para evitar problemas adicionales que se puedan ocasionar mientras se elimina la falla detectada.
