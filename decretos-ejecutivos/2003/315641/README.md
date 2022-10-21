@@ -14,3 +14,4 @@ Reglamento para el Reconocimiento de la Compensación por Desarraigo a los Profe
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-12-19 | la propia norma |
+| 2 | 2022-10-21 | Decreto Ejecutivo 44035 (2022-10-21) |
