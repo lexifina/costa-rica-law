@@ -1,0 +1,2 @@
+Artículo 9º-Notificaciones e inspecciones. La Corporación Municipal será la encargada de realizar periódicamente las inspecciones de las áreas de uso comercial destinadas, con el fin de verificar el cumplimiento del artículo 8 de este reglamento.
+En caso de que la Corporación Municipal técnicamente determine la necesidad de mantenimiento, rehabilitación o construcción del espacio público donde una persona licenciataria tenga autorización de comercio sobre ruedas, procederá a realizar la notificación respectiva mínimo un mes antes a la obra a esta persona licenciataria.
