@@ -1,1 +1,0 @@
-Artículo 5º—La oficina de personal, llevará un registro actualizado con prontuario que contenga toda la información y record de los choferes con que cuenta la institución, así como del personal que en casos especiales y por situaciones emergentes puedan desempeñarse como chóferes.
