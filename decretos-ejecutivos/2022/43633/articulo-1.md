@@ -20,7 +20,7 @@ Trabajadores en Ocupación No Calificada | ¢11.009,97
 Trabajadores en Ocupación Semicalificada | ¢11.972,54
 Trabajadores en Ocupación Calificada | ¢12.289,59
 Trabajadores en Ocupación Especializada | ¢14.381,27
-A los trabajadores que realicen labores ya reconocidas como pesadas, insalubres o peligrosas y las que se determinen como tales por el Consejo de Salud Ocupacional, se les fijará un salario mínimo por hora, equivalente a la sexta parte del salario mínimo fijado por jornada para el Trabajador en Ocupación No Calificada.
+(Derogado el párrafo segundo original mediante resolución N° CNS-RG-3-2022 del 24 de octubre del 2022)
 Las ocupaciones en Pesca y Transporte acuático, cuando impliquen imposibilidad para el trabajador de regresar al lugar de partida inicial, al finalizar su jornada ordinaria, tienen derecho a la alimentación.
 b) Ocupaciones Genéricas por Mes:
 Trabajadores en Ocupación No Calificada | ¢330.299,11

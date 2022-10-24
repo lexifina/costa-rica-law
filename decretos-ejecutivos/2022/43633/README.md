@@ -14,3 +14,4 @@ Fijación de salarios mínimos para el sector privado que regirán a partir del 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-07-01 | la propia norma |
+| 2 | 2022-10-24 | Resolución 3 (2022-10-24) |
