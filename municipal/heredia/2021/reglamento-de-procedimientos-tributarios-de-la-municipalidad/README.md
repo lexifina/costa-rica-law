@@ -14,3 +14,4 @@ Reglamento de procedimientos tributarios de la Municipalidad de Heredia
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-03-11 | la propia norma |
+| 2 | 2022-10-24 | Reglamento municipal 211 (2022-10-24) |

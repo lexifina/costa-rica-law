@@ -1,9 +1,13 @@
-Artículo 56°- Requisitos: El solicitante deberá aportar la siguiente documentación:
+Artículo 56°- Requisitos: La persona solicitante deberá aportar la siguiente documentación:
+(Así reformado el párrafo anterior mediante sesión N° 211-2022 del 24 de octubre del 2022)
 a) Identificación o cédula de identidad. Presentar original de la identificación o cédula de identidad (vigente) y en el caso de personas jurídicas, se deberá presentar identificación o cédula de identidad del representante legal (vigente) o fotocopia de esta en caso de que no se presente personalmente. En casos de Terceros deberá aportar identificación o cédula el deudor o copia de esta en caso de que no se presente personalmente y para personas jurídicas el poder que da las facultades para asumir la deuda con la identificación o cédula del representante legal o copia de esta en caso de que no se presente personalmente.
 b) Certificación de la Personería Jurídica, con menos de un mes de expedición (en caso de personas jurídicas). O digitales con menos de quince (15) días naturales.
-c) Solicitud de Convenio de pago: La solicitud deberá plantearse en forma personal o por escrito indicando las causas por la que requiere pagar sus obligaciones en tractos.
-d) Firma del arreglo: Será confeccionado por el funcionario de Servicios Tributarios, el cuál emitirá dos tantos del mismo, el cual se firmará en forma conjunta con la persona contribuyente.
+c) Solicitud de Convenio de pago: La solicitud deberá plantearse en forma personal o por escrito indicando las causas por la que requiere pagar sus obligaciones en tractos. En los casos en que el arreglo sea a través de un tercero autorizado o en casos que requieran el plazo máximo de veinticuatro (24) meses debe aportar la solicitud por escrito.
+(Así reformado el inciso anterior mediante sesión N° 211-2022 del 24 de octubre del 2022)
+d) Firma del arreglo: Será confeccionado por los auxiliares de Servicios Tributarios, los cuáles emitirán dos tantos del mismo y se firmará en forma conjunta con la persona contribuyente o la autorizada para esto. En el caso donde la solicitud sea firmada por parte de la persona nombrada como curador deberá aportar documento legal que lo acredite como tal.
+(Así reformado el inciso anterior mediante sesión N° 211-2022 del 24 de octubre del 2022)
 e) Pago de primera cuota: Deberá cancelar, en el acto, la prima que corresponda al convenio de pago.
-f) Constancia de salario y /u orden patronal o declaración jurada de ingresos, en caso de personas jurídicas la última declaración de renta.
+f) Orden patronal, constancia de salario o pensión o declaración jurada de ingresos de la persona contribuyente, en caso de personas jurídicas la última declaración de renta o constancia de Salario de la persona que funge como representante legal, orden patronal o declaración jurada de ingresos.
+(Así reformado el inciso anterior mediante sesión N° 211-2022 del 24 de octubre del 2022)
 g) Fiador: En caso de bienes con afectación familiar. Deberá aportar constancia de salario.
 h) Garantía: En caso de Fraccionamientos de pago, la garantía debe ser suficiente a criterio de la Dirección de Servicios y Gestión Tributaria. Se aceptarán garantías Reales (Avales bancarios, títulos valores, derechos de marca, acciones de sociedades tenedoras de valores o de la misma solicitante, obras de arte previamente valoradas por la administración, joyas, inventarios, bienes, etc.) con valor suficiente y susceptibles de ser fácilmente ejecutados.
