@@ -18,3 +18,4 @@ Estatutos de la Unión Nacional de Gobiernos locales.
 | 3 | 2019-02-01 | Reglamento 0 (2019-02-01) |
 | 4 | 2020-07-31 | Reglamento municipal 1 (2020-07-31) |
 | 5 | 2020-10-02 | Reglamento municipal 2 (2020-10-02) |
+| 6 | 2022-10-25 | Reglamento 2 (2022-10-25) |

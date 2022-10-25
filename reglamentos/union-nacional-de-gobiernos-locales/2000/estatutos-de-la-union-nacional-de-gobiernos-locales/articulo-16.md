@@ -1,4 +1,4 @@
-Artículo 16.—Son atribuciones del Consejo Directivo:
+Artículo 16.-Son atribuciones del Consejo Directivo:
 a. Aprobar las actas de las sesiones, el presupuesto ordinario y extraordinarios de la Unión Nacional de Gobiernos Locales.
 b. Conocer los informes de la Dirección Ejecutiva, la liquidación de los ejercicios económicos y la memoria anual.
 (Así reformado el inciso anterior y publicado en el Alcance Digital N° 23 a La Gaceta N° 23 del 1° de febrero del 2019)
@@ -20,3 +20,5 @@ k. Autorizar al Director Ejecutivo las compras, ventas, enajenaciones y graváme
 l. Proponer a la Asamblea Legislativa los proyectos de ley que sean necesarios para el desarrollo municipal y evacuar las consultas legislativas sobre proyectos en trámite.
 m. Convocar extraordinariamente a la Asamblea Nacional para resolver los asuntos no previstos en estos Estatutos.
 n. Las que le sean asignadas por la Asamblea Nacional o por las leyes de la República.
+Ñ El Concejo Directivo de la entidad tendrá la potestad de desafiliar a las municipalidades, concejos municipales de distrito y federaciones de municipalidades, que incumplan con el compromiso legal y voluntario de pagar la cuota de afiliación a la entidad en un ejercicio económico presupuestario, previa solicitud de informe a la Dirección Ejecutiva del estado de las cuotas de afiliación. Constatado el estado de la morosidad el Consejo Directivo ordenara la instauración de un procedimiento administrativo para garantizar el debido proceso sobre la aplicabilidad de la sanción.
+(Así adicionado el anterior mediante sesión N° 02-2022 del 25 de octubre del 2022)

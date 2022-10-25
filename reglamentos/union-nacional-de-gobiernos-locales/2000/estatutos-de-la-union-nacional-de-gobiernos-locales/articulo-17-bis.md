@@ -1,0 +1,11 @@
+Artículo 17 bis.
+El Consejo Directivo queda facultado para realizar, en caso de que así se requiera, sesiones ordinarias o extraordinarias en la modalidad virtual. En el caso de la primeras previo acuerdo del órgano colegiado y publicación en el Diario Oficial La Gaceta.
+El medio tecnológico dispuesto por la Unión Nacional de Gobiernos Locales deberá garantizar la participación plena de todos los directores, funcionarios de la UNGL con participación activa de la sesión e invitados, la transmisión simultánea de audio, video y datos a todos quienes participen, debiendo respetar el principio de simultaneidad, colegialidad y deliberación del órgano colegiado.
+Las sesiones se podrán celebrar en dichas condiciones a través de esos medios tecnológicos, cuando se verifique la existencia del quórum de ley. Será responsabilidad de la secretaria del consejo directivo fiscalizar la existencia del quorum durante el desarrollo de la sesión.
+Para que la participación de los miembros del consejo por medios tecnológicos sea válida deberá:
+a. Existir una plena compatibilidad entre los sistemas o medios empleados por el emisor y el receptor, pues se debe garantizar la autenticidad e integridad de la participación, voluntad y la conservación de lo actuado.
+b. Los participantes no podrán realizar otra labor privada o pública y no podrán estar de forma simultánea durante el desarrollo de la sesión, en cualquier otro tipo actividad pública o privada.
+c. El pago de la dieta se justificaría únicamente si el miembro participa de la totalidad de la sesión y se mantiene en ella, y si, además, se garantizaron los principios de colegialidad, simultaneidad, deliberación y votación.
+d. Garantizar las condiciones para asegurar el acceso pleno a la sesión a todas las personas integrantes del consejo, propietarios y suplentes. De no ser posible esto, deberá optarse por el traslado físico del recinto de sesiones de la UNGL, coordinando con la Dirección
+La secretaría del consejo quedará gestionará con los encargados de tecnología de información de la UNGL, lo que corresponda para cumplir lo dispuesto y a dejar respaldo de audio, video y datos, así como para la elaboración del acta correspondiente a la sesión.
+(Así adicionado mediante sesión N° 02-2022 del 25 de octubre del 2022)
