@@ -1,0 +1,1 @@
+Transitorio Único.-Todos los pozos artesanales que, a la fecha de vigencia del presente Decreto Ejecutivo, se encuentren en trámite de inscripción ante la Dirección de Aguas del Ministerio de Ambiente y Energía, continuarán con el trámite hasta concluirlo.
