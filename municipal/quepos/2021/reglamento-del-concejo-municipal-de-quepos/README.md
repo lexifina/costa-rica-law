@@ -14,3 +14,4 @@ Reglamento del Concejo Municipal de Quepos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-07-14 | la propia norma |
+| 2 | 2022-10-25 | Reglamento municipal 203 (2022-10-25) |
