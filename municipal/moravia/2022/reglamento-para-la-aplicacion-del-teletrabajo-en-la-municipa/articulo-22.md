@@ -1,0 +1,1 @@
+Artículo 22.-La suspensión del contrato de teletrabajo operará previa verificación de la causal respectiva, será dispuesta mediante acto administrativo formal emitido por el Alcalde Municipal y se mantendrá vigente por todo el tiempo que permanezca la causal.

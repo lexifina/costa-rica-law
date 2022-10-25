@@ -1,0 +1,2 @@
+Artículo 50.-Será obligación de Recursos Humanos con la asesoría de la comisión señala en el artículo 07 de este reglamento verificar, periódicamente, al menos una vez cada seis meses, que las actividades identificadas como teletrabajables, lo sigan siendo.
+Rige a partir de su publicación.

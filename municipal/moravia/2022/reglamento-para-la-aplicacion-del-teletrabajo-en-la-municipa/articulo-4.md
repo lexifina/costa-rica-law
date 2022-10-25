@@ -1,0 +1,1 @@
+Artículo 4º-El ingreso al programa de teletrabajo podrá requerirse por el trabajador o podrá proponerse por la Municipalidad, no obstante, para lograr la aprobación deberá cumplirse con las regulaciones dispuestas en el presente reglamento y/o cualquier otra disposición legal aplicable.

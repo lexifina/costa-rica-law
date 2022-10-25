@@ -1,0 +1,1 @@
+Artículo 25.-Cuando se disponga la suspensión o terminación del teletrabajo, las personas que estén laborando bajo esa modalidad, deberán reintegrarse a su centro de trabajo, a más tardar, al día hábil siguiente después de la comunicación.

@@ -1,0 +1,1 @@
+Artículo 28.-Cuando el equipo que utilice el funcionario no sea propiedad de la Municipalidad, el departamento de Tecnologías de la Información, únicamente, brindara soporte técnico a los sistemas informáticos institucionales.

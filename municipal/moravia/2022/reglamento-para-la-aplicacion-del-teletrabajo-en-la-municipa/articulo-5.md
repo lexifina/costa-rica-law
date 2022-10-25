@@ -1,0 +1,1 @@
+Artículo 5º-Todos los funcionarios relacionados directa o indirectamente con las personas que teletrabajen, deben colaborar en su gestión para que esta modalidad de trabajo cumpla con los objetivos que se persiguen.

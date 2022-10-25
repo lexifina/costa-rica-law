@@ -1,0 +1,1 @@
+Artículo 17.-Los trabajadores que se incorporen al programa de teletrabajo deberán contar con una conexión a internet estable, lo cual será revisable por el Departamento de Tecnologías de la Información al menos una vez por año, esto a efecto de garantizar el cumplimiento de las labores institucionales.

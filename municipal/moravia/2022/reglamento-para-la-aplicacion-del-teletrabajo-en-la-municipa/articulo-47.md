@@ -1,0 +1,1 @@
+Artículo 47.-La jefatura pertinente deberá planificar, controlar y establecer actividades y metas, además de que deberá evaluar la efectividad del teletrabajador conforme a esos parámetros. Para efectos de control, la Municipalidad podrá implementar el uso obligatorio de diferentes herramientas informáticas.

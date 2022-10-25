@@ -1,0 +1,1 @@
+Artículo 41.-El teletrabajador es responsable de los activos institucionales que utilice y traslade hacia su domicilio para realizar sus funciones durante el teletrabajo, no obstante, la Municipalidad en la medida de sus posibilidades tratará de adquirir una póliza para cubrir dichos activos.

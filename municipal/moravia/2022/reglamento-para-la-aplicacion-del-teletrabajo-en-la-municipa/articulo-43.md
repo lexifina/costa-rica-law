@@ -1,0 +1,1 @@
+Artículo 43.-Es obligación del teletrabajador estar disponible durante la totalidad de su horario de trabajo, a efecto de atender asuntos propios de las actividades que presta a la Municipalidad, ya sea por medio del correo electrónico, teléfono, videoconferencia, personal u otro medio que disponga la Municipalidad.
