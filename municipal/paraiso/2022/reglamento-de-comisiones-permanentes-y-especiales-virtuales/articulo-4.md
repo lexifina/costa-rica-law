@@ -1,0 +1,1 @@
+Artículo 4º-Desconexión por falla de internet o electricidad. En caso de desconexión de alguno de los participantes de la sesión virtual, el presidente de la Comisión podrá otorgar un permiso hasta por 15 minutos para la reconexión de la persona, esto sin detener el funcionamiento de la Comisión Municipal.

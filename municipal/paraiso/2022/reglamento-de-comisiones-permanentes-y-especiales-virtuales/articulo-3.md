@@ -1,0 +1,1 @@
+Artículo 3º-Acuerdos y conducción. Las sesiones y acuerdos se regirán en función del Reglamento de Sesiones y Comisiones municipales del cantón de Paraíso. Esto para garantizar el adecuado funcionamiento del Concejo Municipal. Adecuando los señalamientos presenciales a la virtualidad.
