@@ -20,3 +20,4 @@ Aranceles de servicios de peritaje y avalúos del Colegio de Federado de Ingenie
 | 5 | 2012-04-24 | Acuerdo 14 (2012-04-24) |
 | 6 | 2012-07-04 | Decreto Ejecutivo 37216 (2012-07-04) |
 | 7 | 2018-07-03 | Acuerdo 55 (2018-07-03) |
+| 8 | 2022-10-25 | Acuerdo 9 (2022-10-25) |
