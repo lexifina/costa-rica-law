@@ -1,1 +1,0 @@
-Artículo 65.—Comunicación a partes fuera de la Organización. Cuando se envíen resultados de un trabajo a partes ajenas a la organización, la comunicación debe estar sustentada en las regulaciones procedentes.

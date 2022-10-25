@@ -1,1 +1,0 @@
-Artículo 31.—Asignación de Recursos Humanos. De conformidad con lo que se establece en los artículos 19, 20 y 18 de este Reglamento, para el desarrollo de sus actividades el Consejo Nacional de Concesiones deberá dotar a la Auditoría Interna de los recursos humanos necesarios para el cumplimiento de los trabajos en las distintas áreas de especialización.

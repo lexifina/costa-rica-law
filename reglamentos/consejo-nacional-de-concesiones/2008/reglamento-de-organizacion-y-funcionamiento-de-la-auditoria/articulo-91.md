@@ -1,1 +1,0 @@
-Artículo 91.—Promulgación y divulgación del Reglamento. El reglamento aprobado por la Contraloría General de la República, se deberá publicar en el Diario Oficial La Gaceta. Además, la Administración y la Auditoría Interna lo deben divulgar en el ámbito institucional.

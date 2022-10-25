@@ -1,1 +1,0 @@
-Artículo 56.—Supervisión del trabajo. Los trabajos deben ser adecuadamente supervisados por el Auditor Interno, Subauditor y/o a quién se le haya delegado la responsabilidad de supervisión del trabajo dentro de la Auditoría, para asegurar el logro de sus objetivos, la calidad del trabajo y el desarrollo profesional del personal.

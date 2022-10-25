@@ -1,1 +1,0 @@
-Artículo 15.—Asistencia a comisiones. Queda a criterio del Auditor Interno que tanto él como otros funcionarios de la Auditoría Interna participen en comisiones. Su asistencia permanente no debe ser la regla. Su participación será en carácter asesor y siguiendo criterios muy similares a los indicados en el artículo 14 de este reglamento.

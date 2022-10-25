@@ -1,1 +1,0 @@
-Artículo 49.—De los Servicios de Auditoría. Son las referidas a los distintos tipos de auditoría, incluyendo los estudios especiales de auditoría y las denuncias, tienen como resultado un informe de auditoría.

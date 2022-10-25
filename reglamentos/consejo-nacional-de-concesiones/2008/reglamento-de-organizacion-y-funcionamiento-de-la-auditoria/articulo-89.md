@@ -1,1 +1,0 @@
-Artículo 89.—Informes sobre las evaluaciones realizadas. Los resultados de las evaluaciones internas y externas deben constar en un informe y el auditor interno debe preparar un plan de mejora, si así lo requieren esos resultados y comunicarlo al Jerarca. El Auditor Interno es responsable de dar un seguimiento adecuado al plan de mejoras.

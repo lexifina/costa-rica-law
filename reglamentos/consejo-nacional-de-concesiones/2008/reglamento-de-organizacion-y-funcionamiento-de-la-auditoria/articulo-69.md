@@ -1,1 +1,0 @@
-Artículo 69.—Difusión de resultados. En el caso de informes de Control Interno que tengan disposiciones para titulares subordinados, podrá enviarse copia a cada uno de ellos, esto a criterio del Auditor Interno.

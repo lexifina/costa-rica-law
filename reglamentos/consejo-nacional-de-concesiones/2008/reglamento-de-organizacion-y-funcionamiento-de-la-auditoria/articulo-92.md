@@ -1,1 +1,0 @@
-Artículo 92.—Responsabilidades por incumplimiento. Las disposiciones de este Reglamento son de acatamiento obligatorio para los Jerarcas, Auditoría Interna y el resto del personal del CNC en lo que a cada uno corresponda. El incumplimiento injustificado de la presente normativa será causal de responsabilidad conforme al capítulo V de la Ley de Control Interno Nº 8292.

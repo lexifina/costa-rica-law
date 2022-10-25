@@ -1,1 +1,0 @@
-Artículo 71.—Informe de seguimientos. Como resultado del sistema de seguimientos de las recomendaciones, observaciones y demás, la Auditoría Interna podrá emitir informes de control interno, de responsabilidades u otros pertinentes, en los términos indicados en el artículo 50 de este Reglamento.

@@ -1,3 +1,0 @@
-SECCIÓN 5
-Del personal de la Auditoría Interna
-Artículo 29.—Administración del personal de la Auditoría Interna. El Auditor Interno es el Superior Jerárquico de la Auditoría Interna y por lo tanto es el responsable directo por la administración de dicha actividad. Será el jefe de personal de la Auditoría Interna y por lo tanto cualquier nombramiento, disminución, traslado, ascenso, permuta, reasignación suspensión, remoción, ocupación de plazas, vacaciones, concesión de licencias y demás movimientos de personal de los funcionarios a su cargo deberá contar con su autorización por escrito. Coordinará lo correspondiente con la unidad de Recursos Humanos.

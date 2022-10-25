@@ -1,6 +1,0 @@
-Artículo 47.—Prohibiciones de la Auditoría Interna. El Auditor Interno y los demás funcionarios de la Auditoría Interna, tendrán las siguientes prohibiciones:
-1. Realizar funciones y actuaciones de administración activa, salvo las necesarias para cumplir su competencia.
-2. Formar parte de un Órgano Director de un Procedimiento Administrativo.
-3. Ejercer profesiones liberales fuera del cargo, salvo en asuntos estrictamente personales, en los de su cónyuge, sus ascendientes, descendientes y colaterales por consanguinidad y afinidad hasta tercer grado, o bien, cuando la jornada no sea de tiempo completo, excepto que exista impedimento por la existencia de un interés directo o indirecto del propio ente u órgano. De esta prohibición se exceptúa la docencia, siempre que sea fuera de la jornada laboral.
-4. Participar en actividades político-electorales, salvo la emisión del voto en las elecciones nacionales y municipales.
-5. Revelar información sobre las auditorías o los estudios especiales de auditoría que se estén realizando y sobre aquello que determine una posible responsabilidad civil, administrativa o eventualmente penal de los funcionarios de los entes y órganos sujetos a La Ley de Control Interno.

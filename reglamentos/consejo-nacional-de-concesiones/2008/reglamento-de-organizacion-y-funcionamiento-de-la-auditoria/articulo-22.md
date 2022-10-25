@@ -1,1 +1,0 @@
-Artículo 22.—Jerarquía. Al Auditor interno le corresponderá la dirección superior y administración de la auditoría interna. Al subauditor interno le corresponderá apoyar al auditor interno en el descargo de sus funciones y lo sustituirá en sus ausencias temporales y deberá responder ante él por su gestión.
