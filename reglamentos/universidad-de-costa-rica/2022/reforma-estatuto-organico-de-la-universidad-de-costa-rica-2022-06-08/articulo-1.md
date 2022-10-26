@@ -1,0 +1,16 @@
+UNIVERSIDAD DE COSTA RICA
+PUBLICACIÓN DE PRIMERA VEZ
+En la sesión N°148 de la Asamblea Colegiada Representativa, celebrada el 8 de junio de 2022, se aprobaron las modificaciones de los artículos 210, 34, 1, 5 inciso g) y h) y 108 del Estatuto Orgánico de la Universidad de Costa Rica, que dice:
+ARTÍCULO 1º-La Universidad de Costa Rica es una institución de educación superior y cultura, autónoma constitucionalmente y democrática, constituida por una comunidad de docentes, estudiantes y personal administrativo, dedicada a la docencia, la investigación, la acción social, el estudio, la meditación, la creación artística y la construcción del conocimiento y su difusión.
+ARTÍCULO 5º-Para el cumplimiento de los fines y los propósitos orientadores del quehacer de la Universidad de Costa Rica, se establecen los siguientes propósitos:
+(...)
+g) Fortalecer la multiculturalidad y los espacios interculturales dialógicos en la sociedad mediante la acción universitaria.
+h) Estudiar los problemas de la comunidad y participar en proyectos académicos para eliminar las causas que producen la ignorancia y la miseria, promover un régimen social justo, el bienestar de la sociedad y el desarrollo integral del ser humano, en armonía con el ambiente.
+ARTÍCULO 34.-El cuórum para las sesiones del Consejo Universitario será de mayoría absoluta.
+Las resoluciones se tomarán por mayoría absoluta de los votos presentes, en votación nominal, excepto para aquellos casos en que se estableciere una mayoría especial o estuviere dispuesto o se acordare votación en secreto. En caso de empate, el director o la directora decidirá, aun cuando la votación fuere secreta.
+ARTÍCULO 108.-La acción de la Universidad de Costa Rica se nutre de una relación dialógica con comunidades de todas las regiones del país, con el propósito de contribuir activamente en las transformaciones necesarias para el logro del bien común.
+ARTÍCULO 210.-Para conferir el título de doctor honoris causa se requiere que la proposición sea hecha por una unidad académica, mediante votación no menor de dos tercios del total de sus miembros. El Consejo Universitario designará una comisión de tres de sus miembros para que rinda informe sobre la proposición, indicando en forma precisa los estudios o trabajos de índole cultural realizados por el candidato, su significación y trascendencia internacionales. La comisión también deberá verificar que su conducta refleje el cumplimiento de los fines y principios orientadores del quehacer universitario. La persona candidata no podrá ser profesor o profesora en ejercicio de la Universidad de Costa Rica.
+Si el informe de la Comisión fuere favorable, se procederá a la votación secreta. La proposición se tendrá por aceptada si recibe la totalidad de los votos presentes que no deben ser menos de las dos terceras partes de los miembros del Consejo. En el caso de una resolución favorable esta se hará constar en el acta correspondiente.
+La entrega del título, que firmarán las personas que ocupen la Dirección del Consejo y la Rectoría, se hará en un acto universitario solemne.
+La Universidad podrá revocar este título, de conformidad con la reglamentación establecida para este efecto y siguiendo el mismo procedimiento utilizado para su otorgamiento.
+Rige a partir de su publicación
