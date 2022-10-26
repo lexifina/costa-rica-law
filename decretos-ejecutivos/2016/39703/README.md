@@ -18,3 +18,4 @@ Reglamento para la Operación de Actividades de Turismo de Aventura
 | 3 | 2019-01-16 | Decreto Ejecutivo 41554 (2019-01-16) |
 | 4 | 2020-07-27 | Decreto Ejecutivo 42487 (2020-07-27) |
 | 5 | 2022-06-09 | Decreto Ejecutivo 43582 (2022-06-09) |
+| 6 | 2022-10-26 | Decreto Ejecutivo 43759 (2022-10-26) |

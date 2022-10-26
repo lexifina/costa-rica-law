@@ -22,5 +22,7 @@ articulo-21.md
 articulo-22.md
 articulo-1-transitorio.md
 articulo-2-transitorio.md
+articulo-3-transitorio.md
 articulo-1-anexo.md
 articulo-2-anexo.md
+articulo-3-anexo.md

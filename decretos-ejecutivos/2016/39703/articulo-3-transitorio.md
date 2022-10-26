@@ -1,0 +1,2 @@
+Transitorio III. El personal calificado que opera actividades de turismo de aventura, deberá presentar la solicitud y requisitos para acreditar su experiencia y la aprobación de cursos de primeros auxilios y de resucitación cardio pulmonar (RCP) ante el ICT según lo indicado en el Anexo 3 de este Reglamento, en un plazo no mayor a tres meses contados a partir del día hábil siguiente a la publicación de este Transitorio III.
+(Así adicionado por el artículo 2° del decreto ejecutivo N° 43759 del 26 de octubre de 2022)
