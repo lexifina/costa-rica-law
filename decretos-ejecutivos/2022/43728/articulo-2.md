@@ -1,0 +1,2 @@
+Artículo 2° - Adiciónese un transitorio al Decreto Ejecutivo No. 43263-S del 30 de septiembre de 2021 "Oficialización y declaratoria de interés público y nacional de la Norma Nacional para la prevención y el manejo del cáncer de mama en Costa Rica", publicado en la Gaceta No. 228 del 25 de noviembre de 2021, para que en lo sucesivo se lea como sigue:
+"Transitorio I-Se otorga a los proveedores de servicios de salud el plazo de tres meses para atender y resolver todas las solicitudes de mamografía en lisia de espera "
