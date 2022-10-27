@@ -1,6 +1,0 @@
-Artículo 98.—De las Asambleas Nacionales Electorales de los sectores beneficiador, exportador y torrefactor
-Para facilitar la participación de los sectores beneficiador, exportador y torrefactor en el proceso de elección de Delegados al Congreso Nacional Cafetalero y de la terna de candidatos a la Junta Directiva de ICAFE, las asambleas nacionales de estos sectores se efectuarán simultáneamente en el mismo lugar. Para tal efecto, se establecerá un centro de votación debidamente identificado para cada uno de esos sectores en el lugar que seleccione la Junta Directiva de ICAFE para la celebración de las elecciones con base en criterio técnico que recomiende la Administración.
-(Así adicionado por el artículo 3 del decreto ejecutivo N° 30197 del 12 de febrero del 2002 y posteriormente reformado por el artículo 1 del decreto ejecutivo N°33062 del 29 de marzo del 2006).
-(Así corrida su numeración mediante artículo N° 2° del decreto ejecutivo N° 33861 del 20 de junio de 2007, que lo traspasó del anterior artículo 88 al 97 actual)
-(Corrida su numeración por el artículo 28 del decreto ejecutivo N° 39854 11 de julio del 2016 que lo traspasó del antiguo 97 al 98)
-(Así reformado por el artículo 38 del decreto ejecutivo N° 39854 del 11 de julio del 2016)

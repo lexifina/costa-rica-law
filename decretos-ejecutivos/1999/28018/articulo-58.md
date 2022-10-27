@@ -1,2 +1,0 @@
-Artículo 58.—Los contratos de compra - venta de café para la exportación y de compra - venta de café para la exportación por consignación, una vez aprobados por el Director Ejecutivo, se inscribirán por orden de presentación y con numeración seguida, abierta para cada cosecha. Los datos contenidos en dichos contratos no podrán ser divulgados públicamente por el Instituto.
-(Así corrida su numeración mediante artículo N° 2° del decreto ejecutivo N° 33861 del 20 de junio de 2007, que lo traspasó del anterior artículo 49 al 58 actual).

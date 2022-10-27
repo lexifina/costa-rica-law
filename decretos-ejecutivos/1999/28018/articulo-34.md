@@ -1,4 +1,0 @@
-Artículo 34.-El Instituto mantendrá al día estudios de precios de insumos, mercaderías, servicios y otros aspectos relacionados con los costos de elaboración del café. Para tal propósito, los beneficiadores están obligados a suministrar conforme lo establece la Ley la información necesaria y al día para la elaboración de tales estudios.
-El Instituto, informará anualmente a la Junta de Liquidaciones o cuando esta lo requiera y a los interesados, sobre el resultado de los indicados estudios, para que ésta pueda contar con información suficiente para el cumplimiento de su cometido.
-(Así corrida su numeración mediante artículo N° 2° del decreto ejecutivo N° 33861 del 20 de junio de 2007, que lo traspasó del anterior artículo 25 al 34 actual)
-(Así reformado por el artículo 14 del decreto ejecutivo N° 39854 del 11 de julio del 2016)

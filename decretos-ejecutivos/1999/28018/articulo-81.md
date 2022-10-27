@@ -1,3 +1,0 @@
-Artículo 81.—El ejercicio financiero del Instituto se extenderá del primero de octubre al treinta de setiembre, al final de cada ejercicio financiero se hará una liquidación completa de sus operaciones, las cuales una vez auditadas por una auditoría externa, pasarán a conocimiento del Congreso Nacional Cafetalero y de la Contraloría General de la República.
-(Así corrida su numeración mediante artículo N° 2° del decreto ejecutivo N° 33861 del 20 de junio de 2007, que lo traspasó del anterior artículo 71 al 80 actual)
-(Corrida su numeración por el artículo 28 del decreto ejecutivo N° 39854 del 11 de julio del 2016 que lo traspasó del antiguo 80 al 81)

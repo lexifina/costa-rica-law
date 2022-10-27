@@ -1,3 +1,0 @@
-Artículo 27.- Las ventas de café de consumo nacional de acuerdo a lo previsto en el artículo 33 de la ley, que efectúen los beneficiadores a torrefactores o compradores comerciantes con el mercado nacional como destino, se regirán por las mismas normas aplicables a los contratos de exportación en lo referente a informes de venta, criterios de evaluación de precio, rescisiones, y controles de ejecución.
-(Así corrida su numeración mediante artículo N° 2° del decreto ejecutivo N° 33861 del 20 de junio de 2007, que lo traspasó del anterior artículo 18 al 27 actual)
-(Así reformado por el artículo 10 del decreto ejecutivo N° 39854 del 11 de julio del 2016)

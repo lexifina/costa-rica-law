@@ -1,2 +1,0 @@
-Artículo 44.—La Junta de Liquidaciones, salvo lo dispuesto por el artículo 60 de la Ley, a más tardar el último día del mes de noviembre siguiente a la cosecha, deberá de oficio, concluir la revisión de las liquidaciones proforma y los proyectos de liquidación presentados por la Unidad de Liquidaciones y haber determinado los precios oficiales de Liquidación.
-(Así corrida su numeración mediante artículo N° 2° del decreto ejecutivo N° 33861 del 20 de junio de 2007, que lo traspasó del anterior artículo 35 al 44 actual).

@@ -1,3 +1,0 @@
-Artículo 57.- La inscripción de contratos de compra - venta de café para la exportación cerrará el último día del mes de setiembre del respectivo año cafetero. El ICAFE está facultado para autorizar el registro de ventas de cosechas futuras conforme lo indicado en el artículo 23 de este Reglamento. Queda la Junta Directiva facultada para anticipar la fecha de inicio o prorrogar la de cierre.
-(Así corrida su numeración mediante artículo N° 2° del decreto ejecutivo N° 33861 del 20 de junio de 2007, que lo traspasó del anterior artículo 48 al 57 actual)
-(Así reformado por el artículo 20 del decreto ejecutivo N° 39854 del 11 de julio del 2016)

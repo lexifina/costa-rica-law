@@ -1,1 +1,0 @@
-Artículo 6°—Los beneficiadores, exportadores, torrefactores y compradores comerciantes de café están obligados a mantener al día los datos de su inscripción en los respectivos registros, para lo cual informarán al Instituto, dentro de los quince días hábiles siguientes a la fecha en que ocurra alguna modificación.

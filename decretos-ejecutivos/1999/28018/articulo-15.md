@@ -1,2 +1,0 @@
-Artículo 15.—Son prohibidas todas las negociaciones de café entre productores y beneficiadores, no sujetas a la fijación ulterior de precios en las respectivas liquidaciones, las cuales deberán ser elaboradas conforme con lo dispuesto en el artículo 52 siguientes y concordantes de la Ley Nº 2762 y su Reglamento.
-(Así adicionado mediante artículo N° 2 decreto ejecutivo N° 33861 del 20 de junio de 2007)

@@ -1,2 +1,0 @@
-Artículo 70.—Los exportadores deben ejecutar los contratos con el mismo café. recibido de los beneficiadores, cuando se trate de exponaciones de café por marcas inscritas a nombre de éstos. En estos casos el ICAFE deberá mantener a disposición del beneficiador una muestra del café exponado.
-(Así corrida su numeración mediante artículo N° 2° del decreto ejecutivo N° 33861 del 20 de junio de 2007, que lo traspasó del anterior artículo 61 al 70 actual).

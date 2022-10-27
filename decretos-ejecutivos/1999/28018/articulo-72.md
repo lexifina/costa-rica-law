@@ -1,3 +1,0 @@
-Artículo 72.-El tamaño de las muestras tomadas por el ICAFE obedecerá a estudios técnicos, dichas muestras permanecerán en custodia del Instituto por un plazo de tres meses, transcurrido ese plazo, se notificará al interesado. Pasados treinta días naturales sin que las muestras se retiren, pasaran a ser propiedad del Instituto del Café de Costa Rica.
-(Así corrida su numeración mediante artículo N° 2° del decreto ejecutivo N° 33861 del 20 de junio de 2007, que lo traspasó del anterior artículo 63 al 72 actual)
-(Así reformado por el artículo 25 del decreto ejecutivo N° 39854 del 11 de julio del 2016)

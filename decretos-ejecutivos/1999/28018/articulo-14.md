@@ -1,6 +1,0 @@
-Artículo 14.—Todo recibidor deberá tener el siguiente equipo y papelería:
-a) El documento de Permiso de Operación del ICAFE (puede ser original ó copia del mismo).
-b) Cada recibidor de café dispondrá para el recibo del café, de una(s) medida(s) de doble hectolitro y una(s) de doble decalitro, debidamente autorizada(s) con el sello respectivo del ICAFE para la cosecha que corresponda.
-c) Además cada recibidor mantendrá un(os) talonario(s) de recibos debidamente membretados y numerados, que identifique claramente el nombre de la firma beneficiadora a que pertenece el recibidor, así como la corporación (sí aplica). Además, debe especificar claramente el tipo de café que le está recibiendo al productor (convencional, diferenciado, orgánico, veranero, bellota, etc.), y el pago ofrecido por concepto de adelanto al momento del recibo del café en fruta. Cada recibo deberá ser confeccionado con base en los lineamientos fijados en el artículo 7º del Reglamento de la Ley N º 2762.
-d) La información anotada en el recibo (nombre de la firma beneficiadora, corporación y el tipo de café) debe de corresponder a lo rotulado en los recibidores.
-(Así adicionado mediante artículo N° 2 decreto ejecutivo N° 33861 del 20 de junio de 2007).

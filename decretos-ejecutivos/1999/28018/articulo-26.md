@@ -1,2 +1,0 @@
-Artículo 26.—La fijación de cuotas y porcentajes máximos de que hablan los tres artículos anteriores, igualmente que las modificaciones a los mismos, deberán ser comunicados por escrito a los beneficiadores, exportadores y torrefactores.
-(Así corrida su numeración mediante artículo N° 2° del decreto ejecutivo N° 33861 del 20 de junio de 2007, que lo traspasó del anterior artículo 17 al 26 actual).

@@ -1,7 +1,0 @@
-Artículo 110.—De la designación de Delegados al Congreso Nacional Cafetalero y Terna Candidatos a la Junta Directiva del ICAFE. Quedarán nombrados como Delegados Propietarios al Congreso Nacional Cafetalero, aquellos candidatos que obtuvieron mayor número de votos, de mayor a menor, hasta designar a los delegados suplentes. En caso de empate, se definirá a la suerte.
-Quedarán nombrados como integrantes de las respectivas ternas de candidatos a la Junta Directiva de ICAFE, los tres candidatos que obtuvieron mayor número de votos. En caso de empate, se definirá a la suerte.
-Toda la documentación relacionada, así como las papeletas serán debidamente guardadas en el ICAFE, hasta por seis meses, como archivo de respaldo de lo actuado.
-(Así corrida su numeración por el artículo 3 del decreto ejecutivo N° 30197 del 12 de febrero del 2002, que lo traspasó del antiguo 76 al 99 actual y posteriormente reformado por el artículo 1 del decreto ejecutivo N°33062 del 29 de marzo del 2006).
-(Así corrida su numeración mediante artículo N° 2° del decreto ejecutivo N° 33861 del 20 de junio de 2007, que lo traspasó del anterior artículo 99 al 108 actual)
-(Corrida su numeración por el artículo 28 del decreto ejecutivo N° 39854 del 11 de julio del 2016 que lo traspasó del antiguo 108 al 109)
-(Corrida su numeración por el artículo 45 del decreto ejecutivo N° 39854 del 11 de julio del 2016 que lo traspasó del antiguo 109 al 110)

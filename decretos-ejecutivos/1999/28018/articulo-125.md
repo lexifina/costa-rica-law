@@ -1,5 +1,0 @@
-Artículo 125.—El Director Ejecutivo será el Jefe superior de todas las dependencias del Instituto del Café, excepto de la Auditoría, y el responsable ante la Junta Directiva del eficiente y correcto funcionamiento de la Institución, sin perjuicio de la responsabilidad civil o penal que le corresponda. El Subdirector Ejecutivo será el Subjefe superior y actuará bajo la autoridad jerárquica del Director.
-(Así corrida su numeración por el artículo 3 del decreto ejecutivo N° 30197 del 12 de febrero del 2002, que lo traspasó del antiguo 91 al 114 actual y posteriormente reformado por el artículo 2 del decreto ejecutivo N°33062 del 29 de marzo del 2006).
-(Así corrida su numeración mediante artículo N° 2° del decreto ejecutivo N° 33861 del 20 de junio de 2007, que lo traspasó del anterior artículo 114 al 123 actual)
-(Corrida su numeración por el artículo 28 del decreto ejecutivo N° 39854 del 11 de julio del 2016 que lo traspasó del antiguo 123 al 124)
-(Corrida su numeración por el artículo 45 del decreto ejecutivo N° 39854 del 11 de julio del 2016 que lo traspasó del antiguo 124 al 125)
