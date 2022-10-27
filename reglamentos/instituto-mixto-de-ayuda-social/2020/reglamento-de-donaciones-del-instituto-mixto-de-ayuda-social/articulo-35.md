@@ -1,4 +1,4 @@
-CAPÍTULO VI
-Disposiciones finales
-Artículo 35.—Vigencia. Este reglamento rige a partir de su publicación en el Diario Oficial La Gaceta.
-El presente Reglamento se aprueba mediante acuerdo firme del Consejo Directivo del IMAS N° 477-12-2020 de fecha 03 de diciembre del 2020.
+ARTÍCULO 35º- Ejecución de proyectos a través de la vinculación con iniciativas de Responsabilidad Social. El IMAS a través de la Unidad de Donaciones podrá efectuar vinculaciones con empresas, organizaciones, o entidades, que mantengan vigentes Programas de Responsabilidad Social, partiendo del listado de organizaciones que hayan presentado solicitudes de donación, para que las necesidades de éstas puedan ser atendidas por medio de tales Programas de Responsabilidad Social. Para su implementación, se considerará lo siguiente:
+a) El IMAS podrá realizar el contacto a empresas, organizaciones o entidades, que mantengan Programas de Responsabilidad Social, para que colaboren con la ejecución de proyectos de organizaciones que se encuentren en la base de datos de solicitudes de donación.
+b) Las empresas, organizaciones o entidades, que mantengan Programas de Responsabilidad Social, podrán contactar al IMAS para obtener un listado de proyectos y organizaciones contenidos en la base de datos de solicitudes de donación, con las cuales puedan desarrollar proyectos de Responsabilidad Social dentro del ámbito de su interés.
+Las empresas, organizaciones o entidades, a las que les suministró dichos listados deberán informar al IMAS, sobre el proyecto o proyectos escogidos, a los efectos que el IMAS pueda establecer las comunicaciones pertinentes con posibles beneficiarios.

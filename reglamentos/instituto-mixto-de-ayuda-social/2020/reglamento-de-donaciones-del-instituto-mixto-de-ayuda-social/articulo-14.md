@@ -1,2 +1,2 @@
-Artículo 14.—Registro de inventario. La Unidad de Donaciones llevará el control del inventario por medio de un sistema de información, registrando todos los movimientos de ingreso, salidas y traslado de mercancías recibidas para donación, estén estas dispuestas en bodegas físicas o en bodegas virtuales.
+ARTÍCULO 14º- Registro de inventario. La Unidad de Donaciones llevará el control del inventario por medio de un sistema de información, registrando todos los movimientos de ingreso, salidas y traslado de mercancías recibidas para donación, estén estas dispuestas en bodegas físicas o en bodegas virtuales.
 El registro de inventario deberá permitir distinguir por separado entre los bienes disponibles para donación y los bienes donados que están pendientes de ser retirados.

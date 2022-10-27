@@ -1,1 +1,1 @@
-Artículo 17.—Disposición de activos del IMAS. Los bienes muebles y suministros propiedad del IMAS declarados en desuso, podrán ser dispuestos para donaciones, para lo cual se requerirá el aval de quién ocupe el cargo de Gerente General de la institución.
+ARTÍCULO 17º- Disposición de activos del IMAS. Los bienes muebles y suministros propiedad del IMAS declarados en desuso, podrán ser dispuestos para donaciones, para lo cual se requerirá el aval de quién ocupe el cargo de Gerente General de la Institución.

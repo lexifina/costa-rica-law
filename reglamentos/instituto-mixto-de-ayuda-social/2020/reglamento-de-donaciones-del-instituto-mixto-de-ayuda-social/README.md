@@ -14,3 +14,4 @@ Reglamento de donaciones del Instituto Mixto de Ayuda Social
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-02-01 | la propia norma |
+| 2 | 2022-10-27 | Reglamento 58 (2022-10-27) |

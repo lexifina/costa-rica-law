@@ -1,0 +1,1 @@
+ARTÍCULO 38º- Vigencia. El presente Reglamento fue aprobado por Acuerdo firme del Consejo Directivo del IMAS N° 297-10-2022 de la sesión N° 58-10-2022 de fecha 27 de octubre 2022 y rige a partir de su publicación en el Diario Oficial La Gaceta.
