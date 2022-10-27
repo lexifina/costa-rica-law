@@ -1,1 +1,0 @@
-Artículo 3º—Se instruye a ministras y ministros, viceministras y viceministros para reducir al máximo los gastos correspondientes a viajes al exterior, de manera que se realicen sólo aquellos que sean estrictamente necesarios y traigan un beneficio de importancia para el país.

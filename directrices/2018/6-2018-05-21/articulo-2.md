@@ -1,1 +1,0 @@
-Artículo 2º—La autorización emitida por Consejo de Gobierno será necesaria con el fin tramitar el acuerdo de viaje ante el despacho del Presidente de la República, en los términos que establece el artículo 31 del Reglamento Gastos de Viaje y Transporte para Funcionarios Públicos.
