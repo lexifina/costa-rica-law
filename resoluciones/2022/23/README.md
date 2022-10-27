@@ -15,3 +15,4 @@ Reforma Prórrogas para presentación de declaración y pago según tipo de cont
 | --- | --- | --- |
 | 1 | 2022-06-10 | la propia norma |
 | 2 | 2022-08-04 | Resolución 21 (2022-08-04) |
+| 3 | 2022-10-27 | Resolución 33 (2022-10-27) |
