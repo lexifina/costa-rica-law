@@ -1,0 +1,2 @@
+Artículo 99 bis. La Institución concederá cuatro días hábiles con goce de salario al año, no acumulables, a todos sus colaboradores, que podrán fraccionarse en medios días, según sea de su conveniencia, para atender asuntos personales. Para disfrutar de esta licencia, bastará que el colaborador notifique lo correspondiente a su jefe inmediato quien, de no existir razones de imperiosa necesidad para denegarlo, deberá conceder dicho permiso.
+(Así adicionado en sesión N° 6089 del 27 de octubre de 2022)
