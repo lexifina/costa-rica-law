@@ -1,1 +1,0 @@
-Artículo 10.—No obligación de CONAPE de aprobar la solicitud de préstamo. La entrega y recepción de los formularios: Solicitud de préstamo, Solicitud de ampliación del préstamo y Solicitud de Refundición de préstamo - en forma presencial o por otros medios tecnológicos de información y comunicación utilizados en CONAPE - no obliga a CONAPE a la aprobación de la misma.

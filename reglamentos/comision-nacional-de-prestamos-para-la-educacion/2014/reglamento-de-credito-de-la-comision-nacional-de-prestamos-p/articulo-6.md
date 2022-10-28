@@ -1,1 +1,0 @@
-Artículo 6°—Funciones y responsabilidades de los funcionarios del Departamento de Crédito. Las funciones y responsabilidades de los funcionarios del Departamento de Crédito quedan establecidas en el Anexo 2.

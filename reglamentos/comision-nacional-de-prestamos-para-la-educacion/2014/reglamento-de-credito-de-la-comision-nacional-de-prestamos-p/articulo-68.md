@@ -1,2 +1,0 @@
-Artículo 68.-Autorización al prestatario para tramitar la solicitud de ampliación del monto del préstamo. La Sección de Desembolsos por medio de sus profesionales o jefatura autoriza o no, por medio de un Acuerdo Administrativo, el trámite de la Solicitud de Ampliación del monto del préstamo, en las situaciones establecidas en el Anexo 18.
-(Corrida su numeración mediante sesión N° 13-2018 del 16 de abril del 2018 que lo traspasó del antiguo 69 al 68. Lo anterior ya que en dicha sesión se ordena derogar el artículo 29 original y correr la numeración de los siguientes)

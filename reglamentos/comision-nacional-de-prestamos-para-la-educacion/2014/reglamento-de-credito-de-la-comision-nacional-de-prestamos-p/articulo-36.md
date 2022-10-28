@@ -1,2 +1,0 @@
-Artículo 36.-Verificación de lugar de trabajo del fiador. A cada fiador asalariado propuesto, los Profesionales de la Sección de Gestión y Análisis de Crédito, debe verificar - por los medios que CONAPE determine -, que el fiador propuesto labora en el lugar indicado en la constancia de salario.
-(Corrida su numeración mediante sesión N° 13-2018 del 16 de abril del 2018 que lo traspasó del antiguo 37 al 36. Lo anterior ya que en dicha sesión se ordena derogar el artículo 29 original y correr la numeración de los siguientes)

@@ -1,2 +1,0 @@
-Artículo 55.-Sanciones al prestatario. La Sección de Desembolsos y Control de Crédito por medio de los profesionales o jefatura, queda facultada para trasladar la operación crediticia a la fase de cobro cuando el prestatario incumple la reglamentación vigente y/o las causas o motivos establecidos en el Anexo 14.
-(Corrida su numeración mediante sesión N° 13-2018 del 16 de abril del 2018 que lo traspasó del antiguo 56 al 55. Lo anterior ya que en dicha sesión se ordena derogar el artículo 29 original y correr la numeración de los siguientes)

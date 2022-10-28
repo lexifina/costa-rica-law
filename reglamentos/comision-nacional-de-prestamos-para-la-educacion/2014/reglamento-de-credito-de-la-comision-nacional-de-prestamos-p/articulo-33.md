@@ -1,4 +1,0 @@
-Artículo 33.-Ciclos lectivos adicionales para la conclusión de estudios. Como período de imprevistos para la conclusión de estudios, a los préstamos para Pregrados y Grados en Costa Rica se le sumarán dos ciclos lectivos adicionales a la fecha programada por el solicitante como conclusión de estudios, con excepción de los préstamos para Cursos de Pregrado, a los que se les adicionará dos meses posteriores a la fecha programada de conclusión.
-A los préstamos en el Exterior y Posgrados en Costa Rica se les asignarán un ciclo lectivo.
-(Corrida su numeración mediante sesión N° 13-2018 del 16 de abril del 2018 que lo traspasó del antiguo 34 al 33. Lo anterior ya que en dicha sesión se ordena derogar el artículo 29 original y correr la numeración de los siguientes)
-(Así reformado mediante sesión N° 15-2022 del 5 de agosto de 2022)

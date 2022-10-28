@@ -1,3 +1,0 @@
-ARTÍCULO 50: GARANTÍA DE TITULO VALOR. CONAPE puede aceptar como garantía de un préstamo, mediante endoso o cesión a su favor títulos valores emitidos por instituciones estatales, bancos estatales, mutuales, el Banco Popular y Desarrollo Comunal y otros bancos del Sistema Bancario Nacional, a juicio del Comité de Crédito. El monto de los títulos valores ofrecidos en garantía, debe cubrir al menos el 150% del monto del préstamo aprobado.
-(Corrida su numeración mediante sesión N° 13-2018 del 16 de abril del 2018 que lo traspasó del antiguo 51 al 50. Lo anterior ya que en dicha sesión se ordena derogar el artículo 29 original y correr la numeración de los siguientes)
-(Así reformado mediante sesión N° 07-2019 del 25 de febrero del 2019)

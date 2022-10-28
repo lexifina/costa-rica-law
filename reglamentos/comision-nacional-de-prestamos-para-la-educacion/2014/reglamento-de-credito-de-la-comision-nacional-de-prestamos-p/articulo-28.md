@@ -1,3 +1,0 @@
-Artículo 28.— FINANCIAMIENTO DE ADQUISICION DE EQUIPOS Y/O MATERIALES (*). CONAPE financia la adquisición de computadora de escritorio o portátil, tableta, accesorios1, herramientas, instrumentos, suministros, materiales u otros equipos necesarios, para el proyecto de estudios. Las condiciones de éste tipo de financiamiento quedan establecidas en el Anexo 9.
-1 No incluye el financiamiento de equipos de entretenimiento como consola de juegos, teléfono móvil, teatro en casa, televisor, mobiliario y otros equipos similares no relacionado con los estudios, a criterio exclusivo de CONAPE.
-(*)(Así reformado el encabezado anterior mediante sesión N° 07-2019 del 25 de febrero del 2019)

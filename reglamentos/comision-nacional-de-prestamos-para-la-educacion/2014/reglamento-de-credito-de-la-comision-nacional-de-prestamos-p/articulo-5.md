@@ -1,6 +1,0 @@
-Artículo 5°—Trámite de la solicitud de préstamo y solicitud del desembolso. El solicitante o prestatario para tramitar la Solicitud de préstamo, la solicitud del desembolso y otros servicios debe:
-a. Registrarse con un usuario en “Mis Servicios WEB” de CONAPE y cumplir con los requisitos exigidos.
-b. Tramitar la “Solicitud del Préstamo”, por los medios tecnológicos de información y comunicación habilitados por CONAPE, o por otros medios que ponga a la disposición del solicitante y aportar los documentos físicos por los medios que CONAPE determine para su verificación, en el plazo que establezca el Departamento de Crédito.
-c. Tramitar la “Solicitud de Desembolso” durante el período de estudios, por los medios tecnológicos de información y comunicación habilitados en CONAPE, o por otros medios que ponga a la disposición del prestatario y aportar – cuando CONAPE lo determine - los documentos físicos, para su verificación, en el plazo que establezca el Departamento de Crédito.
-Los documentos que respaldan cada tipo de solicitud, deben ser recibidos y revisados por el funcionario responsable, anotando en cada uno de ellos el nombre, firma y fecha, incluyendo la leyenda “confrontado contra original” cuando corresponda.
-En ningún caso se recibe la solicitud incompleta.

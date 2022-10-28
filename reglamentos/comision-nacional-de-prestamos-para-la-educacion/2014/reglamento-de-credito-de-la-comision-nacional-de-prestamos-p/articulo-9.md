@@ -1,8 +1,0 @@
-ARTÍCULO 9: CONCLUSION DE ESTUDIOS SECUNDARIOS DE LOS SOLICITANTES
-Los solicitantes de préstamos que inicien o continúen estudios de pregrado y grado en Costa Rica y en el exterior, tienen que demostrar a CONAPE, que son estudiantes que han obtenido el título de conclusión de educación secundaria.
-CONAPE deberá realizar la validación de que el solicitante es bachiller en secundaria en Costa Rica, por medio de consulta electrónica al registro de estudiantes graduados de secundaria, en la Base de Datos respectiva de la Dirección de Evaluación y Gestión de la Calidad del Ministerio de Educación Pública.
-En caso de no estar registrado en esa Base de Datos o de existir inconsistencias, el interesado debe presentar una certificación oficial extendida por el Director del Colegio y por el Asesor Supervisor o el Director Regional donde realizó los estudios.
-En el caso de que el estudiante lo haya obtenido en el exterior, se confrontará contra el documento de homologación correspondiente que realice el Ministerio de Educación Pública.
-Para Acciones Formativas impartidas y/o acreditadas por el Instituto Nacional de Aprendizaje (INA), o Cursos de Pregrado, no será necesario presentar título de aprobación de Bachillerato en Educación General Básica o superior, cuando no sea requisito del programa de estudios, en cuyo caso se registrará como Factor de Rendimiento Académico la calificación mínima de aceptación que corresponde a dicho factor.
-(Así reformado el párrafo anterior mediante sesión N° 15-2022 del 5 de agosto de 2022)
-(Así reformado mediante sesión N° 13-2018 del 16 de abril del 2018)

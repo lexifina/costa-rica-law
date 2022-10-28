@@ -1,2 +1,0 @@
-Artículo 56.-Firma de adenda al contrato de crédito para estudios. El prestatario, los fiadores y apoderados legales, deberán firmar una adenda al Contrato de Crédito para Estudios, cuando se modifiquen los términos contractuales originales.
-(Corrida su numeración mediante sesión N° 13-2018 del 16 de abril del 2018 que lo traspasó del antiguo 57 al 56. Lo anterior ya que en dicha sesión se ordena derogar el artículo 29 original y correr la numeración de los siguientes)

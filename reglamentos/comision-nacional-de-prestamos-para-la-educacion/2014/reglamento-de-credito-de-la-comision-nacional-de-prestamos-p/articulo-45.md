@@ -1,4 +1,0 @@
-Artículo 45.—Garantía hipotecaria en segundo grado CONAPE podrá aceptar garantías hipotecarias de segundo grado para respaldar un préstamo, cuando el valor consignado en el avalúo cubra no menos del 175% del monto aprobado y los grados hipotecarios contraídos estén otorgados a favor de instituciones públicas o instituciones de reconocida trayectoria financiera, a criterio del Comité de Crédito, salvo casos excepcionales a juicio del Consejo Directivo de CONAPE.
-El saldo de la deuda del primer grado hipotecario no debe superar el monto establecido en el Plan Anual de Gestión de Crédito.
-(Corrida su numeración mediante sesión N° 13-2018 del 16 de abril del 2018 que lo traspasó del antiguo 46 al 45. Lo anterior ya que en dicha sesión se ordena derogar el artículo 29 original y correr la numeración de los siguientes)
-(Así reformado mediante sesión N° 35-2020 del 16 de noviembre del 2020)
