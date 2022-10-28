@@ -1,1 +1,0 @@
-Artículo 2º—Principios generales de la contratación administrativa. Todas las contrataciones que se realicen al amparo de esta normativa deberán observar los principios de eficiencia, eficacia, publicidad, libre competencia, igualdad, buena fe e intangibilidad patrimonial según se define en la Ley de Contratación Administrativa y su Reglamento.

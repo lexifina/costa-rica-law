@@ -1,2 +1,0 @@
-Artículo 33.—Precios unitarios y totales. La OPC, podrá solicitar en el cartel a los oferentes que coticen precios unitarios y totales.
-Cuando se soliciten precios unitarios, la OPC, deberá advertir en el cartel que se reserva la posibilidad de adjudicación parcial de una misma línea. En caso que no hubiere sido advertido la OPC, consultará al oferente si acepta la adjudicación de una menor cantidad manteniendo el precio unitario. Si el oferente se negare no perderá la garantía de participación si la hubiere.

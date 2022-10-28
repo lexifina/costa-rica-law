@@ -1,1 +1,0 @@
-Artículo 4º—Competencia. Las Unidades Usuarias tramitarán únicamente las contrataciones propias de su competencia, salvo cuando por una situación extraordinaria la Gerencia General disponga lo contrario, lo cual deberá constar en el expediente.

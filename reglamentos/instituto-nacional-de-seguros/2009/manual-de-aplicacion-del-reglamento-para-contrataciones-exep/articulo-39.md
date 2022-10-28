@@ -1,1 +1,0 @@
-Artículo 39.—Plazo para dictar el acto final. El acto final se dictará dentro del plazo máximo fijado en el cartel y podrá prorrogarse mediante resolución que lo justifique la cual deberá constar en el expediente.

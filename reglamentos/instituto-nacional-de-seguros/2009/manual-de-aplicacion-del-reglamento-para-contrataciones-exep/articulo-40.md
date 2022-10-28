@@ -1,1 +1,0 @@
-Artículo 40.—Plazo para comunicar el acto final. El acto final será comunicado por los mismos medios que se cursó la invitación dentro de los tres días siguientes de dictado el acto final. Para esos efectos, basta indicar en el aviso la Institución, el número de concurso, descripción suscinta del objeto, el adjudicatario y el monto.

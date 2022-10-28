@@ -1,1 +1,0 @@
-Artículo 43.—Perfeccionamiento contractual. Se tendrá por perfeccionada la relación contractual entre la OPC y el contratista cuando el acto de adjudicación o readjudicación sea comunicado y, en los casos que se exija la constitución de la garantía de cumplimiento, ésta sea válidamente otorgada.

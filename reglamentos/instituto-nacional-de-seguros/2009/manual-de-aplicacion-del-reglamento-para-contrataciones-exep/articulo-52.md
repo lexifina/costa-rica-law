@@ -1,1 +1,0 @@
-Artículo 52.—Prórroga del plazo. A solicitud del contratista, la Unidad Usuaria, podrá autorizar prórrogas al plazo de ejecución del contrato siempre que esté debidamente sustentada y que esté vigente el plazo contractual.
