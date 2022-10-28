@@ -1,1 +1,0 @@
-Artículo 12.—Contratos de fideicomiso de cualquier índole cuando funja tanto como fideicomitente, fiduciario o fideicomisario. Este tipo de contrataciones independientemente de la cuantía requerirá revisión previa de la Subdirección de Finanzas y de la Dirección Jurídica.

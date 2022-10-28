@@ -1,2 +1,0 @@
-Artículo 18.—El instituto podrá realizar los procesos de contratación administrativa regulados en este Reglamento mediante el sistema Mer-Link, dichos procesos se ejecutarán de acuerdo con el Reglamento para la Utilización del Sistema Electrónico de Compras Públicas Mercado en Línea “Mer-Link”, decreto ejecutivo número 36242-MP-PLAN. Asimismo queda facultado para realizar dichos procedimientos haciendo uso de cualquier otra plataforma electrónica, siempre y cuando se cumpla con la normativa correspondiente.
-San José, 25 de octubre del 2011.—

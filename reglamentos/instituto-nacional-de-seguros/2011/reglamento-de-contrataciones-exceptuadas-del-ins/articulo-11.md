@@ -1,1 +1,0 @@
-Artículo 11.—Contrataciones de reaseguros y servicios accesorios a éstos. La contratación de reaseguros y servicios accesorios a éstos se regirá por el Reglamento específico aprobado por la Junta Directiva del INS, Supletoriamente se podrá aplicar el presente Reglamento y su Manual.
