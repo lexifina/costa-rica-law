@@ -1,3 +1,0 @@
-INSTITUTO NACIONAL DE SEGUROS
-La Junta Directiva del INS, mediante la sesión Nº 9046, acuerdo Nº IX del 21 de febrero de 2011, aprobó la incorporación del artículo 20 del Reglamento de Contrataciones Exceptuadas de los procedimientos ordinarios de contratación administrativa, de conformidad con el artículo 9º de la Ley del INS de la siguiente manera:
-Artículo 20.—EI Instituto podrá realizar los procesos de contratación administrativa regulados en este Reglamento mediante el sistema Mer-Link, dichos procesos se ejecutarán de acuerdo con el Reglamento para la Utilización del Sistema Electrónico de Compras Públicas Mercado en Línea “Mer-Link”, decreto ejecutivo número 36242-MP-PLAN.
