@@ -1,1 +1,0 @@
-Artículo 3°-El Registro de Proveedores es un elemento esencial de obligada consulta por todas aquellas unidades administrativas que estén facultadas para realizar trámites de contratación administrativa y permitirá mantener actualizados requisitos y características de proveedores, bienes y servicios ofrecidos.

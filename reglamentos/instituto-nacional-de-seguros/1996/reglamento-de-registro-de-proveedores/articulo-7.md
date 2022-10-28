@@ -1,1 +1,0 @@
-Artículo 7°-Todo interesado en integrar el Registro de Proveedores, con posterioridad a la presentación de la respectiva solicitud, estará obligado a verificar la inclusión dentro del lapso de quince días hábiles, a partir del vencimiento del plazo de inclusión.

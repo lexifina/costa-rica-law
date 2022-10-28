@@ -1,1 +1,0 @@
-Artículo 2°-Las personas que participen en los procesos de contratación administrativas, deberán estar registradas y serán evaluadas en forma integral en cuanto a su historial, capacidad técnica y demás aspectos que resulten de interés.

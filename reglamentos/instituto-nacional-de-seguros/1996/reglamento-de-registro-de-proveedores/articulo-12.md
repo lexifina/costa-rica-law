@@ -1,1 +1,0 @@
-Artículo 12.-Las empresas incorporadas en el Registro de Proveedores, no están obligadas a presentar en cada licitación, la certificación de personería, cuotas y acciones, si esta no tiene el año de emitida. Bastará con que indique que el contenido de lo certificado en los documentos aportados al momento de inscripción en el Registro de Proveedores permanece invariable.
