@@ -1,1 +1,0 @@
-Artículo 16.—La recepción de materiales y suministros deberá canalizarse por medio de una unidad independiente de la de compra. Se dispondrá de una Unidad de Aprovisionamiento, que deberá realizar en forma separada las funciones de recepción, almacenamiento y entrega de los bienes adquiridos.
