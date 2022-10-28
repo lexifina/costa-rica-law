@@ -1,3 +1,0 @@
-Artículo 18.—Publicaciones. La UBT en todos los casos de venta de bienes, deberá publicar las condiciones en el Portal WEB del Instituto, donde se indicará el plazo máximo para realizar ofertas y el o los medios de recepción de las mismas.
-Además, se podrá utilizar cualquier otro medio a disposición del Instituto como: publicar en un sistema de subasta electrónica, trasladar el detalle del bien para que sea promocionado por medio de corredores de bienes raíces y otros interesados, publicar aviso de venta en diarios de circulación nacional.
-Para la publicación del aviso de venta, el Departamento de Comunicaciones contará con cinco (5) días hábiles a partir de la recepción del mismo en su despacho.

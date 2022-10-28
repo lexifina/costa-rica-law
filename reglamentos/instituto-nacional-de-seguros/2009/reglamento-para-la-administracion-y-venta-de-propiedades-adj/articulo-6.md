@@ -1,1 +1,0 @@
-Artículo 6º—Presidencia del equipo de trabajo. El Equipo de Trabajo será presidido por el Jefe de la Dirección Administrativa o en su ausencia por el Jefe de la Subdirección de Finanzas. El Equipo de Trabajo le será aplicable para su funcionamiento el Reglamento que rige el accionar de los órganos colegiados del Grupo Financiero INS.

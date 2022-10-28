@@ -1,1 +1,0 @@
-Artículo 15.—Acuerdo de decisión de venta. Toda decisión de venta de un bien, se llevará a cabo mediante sesión ordinaria o extraordinaria del Equipo de Trabajo; para ello deberá dejarse constancia en actas del acuerdo completo, incluyendo al menos modalidad de venta y precio.

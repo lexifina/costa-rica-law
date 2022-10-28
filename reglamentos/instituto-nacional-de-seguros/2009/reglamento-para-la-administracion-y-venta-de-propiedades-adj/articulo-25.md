@@ -1,1 +1,0 @@
-Artículo 25.—Tratamiento de excedentes. Cuando exista un remanente después de aplicada la totalidad de la deuda. La Subdirección de Finanzas, en el plazo de diez (10) días hábiles, procederá con su liquidación por la subcuenta 408-05-001 “Ganancias y Créditos Especiales”.

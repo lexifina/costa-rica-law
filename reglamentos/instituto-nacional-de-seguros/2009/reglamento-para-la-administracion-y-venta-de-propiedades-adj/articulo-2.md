@@ -1,1 +1,0 @@
-Artículo 2º—Alcance. El proceso de administración y venta de bienes adjudicados como pago de obligaciones hipotecarias o dación de pago por créditos a favor del Instituto, estará a cargo de la Unidad de Bienes Temporales, en adelante “UBT”.

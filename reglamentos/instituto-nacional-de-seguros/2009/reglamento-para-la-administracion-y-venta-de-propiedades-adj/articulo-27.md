@@ -1,3 +1,0 @@
-Artículo 27.—Sanciones. El incumplimiento de lo establecido en el presente reglamento, dará lugar a la aplicación de las responsabilidades que establecen la ley General de Control Interno, ley contra la Corrupción y el Enriquecimiento Ilícito, la Convención Colectiva de Trabajo y las demás disposiciones concordantes.
-Será responsabilidad del jerarca y titulares subordinados la aplicación del presente reglamento, para ello deberán de establecer los mecanismos que aseguren el adecuado cumplimiento de lo establecido en esta normativa.
-Lo anterior sin perjuicio del control que debe ejercer la Auditoría Interna y de las competencias de la Contraloría General de la República.

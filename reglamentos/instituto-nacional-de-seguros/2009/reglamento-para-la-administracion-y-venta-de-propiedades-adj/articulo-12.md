@@ -1,1 +1,0 @@
-Artículo 12.—Registro de gastos. La UBT llevará un detalle de los gastos realizados por mantenimiento, vigilancia, pagos de servicios públicos e impuestos municipales, publicaciones para procesos de venta y cualquier otro costo o gasto adicional relacionado con los inmuebles.
