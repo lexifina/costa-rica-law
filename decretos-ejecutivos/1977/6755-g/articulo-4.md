@@ -1,1 +1,0 @@
-Artículo 4°—Para la determinación mediante declaración jurada se aplicará el procedimiento establecido en la Ley y el Capítulo V de este Reglamento para la imposición directa mediante el Capítulo VI; y por disposición expresa d la Ley, la aplicación de los casos contemplados en los artículos 15 y 16 de la Ley

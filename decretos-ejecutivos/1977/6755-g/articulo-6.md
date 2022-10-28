@@ -1,1 +1,0 @@
-Artículo 6°—El impuesto de patente se pagará durante todo el tiempo que se haya tenido establecimiento abierto o ejercido el comercio en forma ambulan y durante el tiempo en que se haya poseído licencia, aunque la actividad no : hubiere realizado.

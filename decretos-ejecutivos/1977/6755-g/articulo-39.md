@@ -1,1 +1,0 @@
-Artículo 39.—Las resoluciones de la Sección de Patentes tendrán los recursos de revocatoria y apelación para ante el Ejecutivo Municipal, salvo las de calificación y recalificación cuyas alzadas serán de conocimiento del Concejo Municipal.

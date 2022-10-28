@@ -1,1 +1,0 @@
-Artículo 32.—La certificación de la Tesorería Municipal en que se indique la diferencia adeudada por el interesado en virtud de la recalificación servirá de título ejecutivo, para efectos del cobro de la misma.

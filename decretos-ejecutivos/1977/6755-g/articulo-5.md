@@ -1,1 +1,0 @@
-Artículo 5°—El Impuesto de patente, deberá ser cancelado por trimestre adelantados. El atraso en la cancelación, además de las sanciones que se contemplan en este Reglamento, originará recargos con carácter de multa del 2% pe cada mes o fracción de atraso, sin que pueda exceder en cada caso del 24% del monto adeudado.
