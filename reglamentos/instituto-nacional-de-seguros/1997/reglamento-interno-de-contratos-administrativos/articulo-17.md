@@ -1,2 +1,0 @@
-Artículo 17.—La unidad asignada para recibir la mercadería debe proceder a contar, medir o pesar los bienes recibidos y constatar sus cualidades utilizando la información del cartel, de la oferta, de la orden de compra y de las muestras cuando así proceda.
-Esta unidad deberá confeccionar el informe de recepción indicando los bienes y las cantidades recibidas, los daños y defectos o cualquier otra información relevante sobre los artículos recibidos y remitir dicho informe al Departamento de Proveeduría.

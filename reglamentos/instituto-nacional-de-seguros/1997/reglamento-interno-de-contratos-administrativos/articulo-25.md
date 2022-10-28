@@ -1,1 +1,0 @@
-Artículo 25.—El órgano competente para autorizar imprevistos en la construcción de edificios e instalaciones es la Dirección Administrativa, siempre y cuando exista el contenido presupuestario suficiente.

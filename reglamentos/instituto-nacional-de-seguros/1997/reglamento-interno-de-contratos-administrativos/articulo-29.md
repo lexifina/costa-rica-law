@@ -1,1 +1,0 @@
-Artículo 29.—La ejecución de toda construcción o parte de ella, deberá realizarse de acuerdo con lo que establece el Complemento No 1 del Manual sobre normas técnicas de control interno para la Contraloría General de la República y las entidades y órganos sujetos a su fiscalización, relativas al control de obras públicas.

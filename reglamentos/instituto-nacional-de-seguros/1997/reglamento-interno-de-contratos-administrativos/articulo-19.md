@@ -1,2 +1,0 @@
-Artículo 19.—La Sección de Aprovisionamiento deberá recibir el equipo en las condiciones que lo entrega el proveedor y garantizar su conservación hasta tanto la dependencia usuaria no realice las pruebas técnicas de funcionamiento, así como la verificación de que el equipo se ajusta a las condiciones del Cartel respectivo.
-Por su parte, cuando por razones técnicas o por especificaciones propias del contrato, los activos sean entregados directamente en la Dependencia usuaria, éstas serán responsables de recibir el equipo.

@@ -1,1 +1,0 @@
-Articulo 9°—El Departamento de Proveeduría estará a cargo de un Jefe y del Subjefe quien lo suplirá en sus ausencias. La Jefatura del Departamento de Proveeduría es responsable de la organización y buen funcionamiento de esa unidad orgánica.

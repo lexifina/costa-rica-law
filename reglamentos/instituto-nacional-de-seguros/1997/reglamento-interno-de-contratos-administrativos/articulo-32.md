@@ -1,4 +1,0 @@
-TÍTULO VI
-CAPÍTULO ÚNICO
-Disposiciones adicionales
-Artículo 32.—Las dependencias a cuyo cargo se encuentran varias unidades, deben valorar globalmente sus necesidades de compra, venta o arrendamiento de bienes y servicios y planificar las solicitudes que remitirán al Departamento de Proveeduría, procurando que en cuanto a formalidades y plazo de presentación, cumplan con lo necesario para que este Departamento pueda brindar una óptima atención a sus requerimientos y pueda preparar y remitir a publicación en la forma y oportunidad que lo preveo la ley, el Programa Anual de Adquisiciones del Instituto.

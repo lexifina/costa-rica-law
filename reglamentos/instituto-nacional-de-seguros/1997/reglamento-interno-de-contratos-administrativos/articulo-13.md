@@ -1,1 +1,0 @@
-Artículo 13.—Corresponderá al Departamento de Proveeduría declarar desierto un procedimiento de contratación cuando el costo estimado inicial del suministro, esté dentro del rango de su competencia para adjudicar.

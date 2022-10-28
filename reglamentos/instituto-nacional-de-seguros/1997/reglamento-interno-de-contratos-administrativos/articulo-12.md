@@ -1,1 +1,0 @@
-Artículo 12.—El órgano competente para declarar desierta una licitación por fundadas razones será la Dirección Administrativa, sin perjuicio de la avocación de la competencia por parte de los órganos superiores a la citada Dirección.

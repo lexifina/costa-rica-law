@@ -1,1 +1,0 @@
-Artículo 27.—La potestad para la autorización de una extra en un proyecto de construcción de edificios e instalaciones, podrá ejercerse siempre y cuando exista contenido presupuestario para su realización.
