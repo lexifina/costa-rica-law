@@ -1,1 +1,0 @@
-Artículo 39. Vigencia. El presente Reglamento rige a partir de la aprobación del Consejo Directivo y entrara en vigencia el mismo dia en que la publicación de la ley 9618 se genere através del Diario Oficial La Gaceta.

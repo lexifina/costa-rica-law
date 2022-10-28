@@ -1,1 +1,0 @@
-Articulo 26. De las áreas de estudio sujetas al fondo de avales. Sólo se podrán conceder avales para estudios en Costa Rica a nivel de programas técnicos, diplomados universitarios y para universitarios, incluyendo profesorados y grados como bachillerato, licenciatura y cursos cortos que sean requisitos para acceder al grado universitario de bachillerato o licenciatura.

@@ -1,1 +1,0 @@
-Artículo 38. Transitorio II. Las solicitudes de crédito planteadas con antelación a la presente reforma serán resueltas con fundamento en la reglamentación vigente al momento de haberse presentado la solicitud.
