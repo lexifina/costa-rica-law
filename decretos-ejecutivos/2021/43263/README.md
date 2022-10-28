@@ -15,3 +15,4 @@ Oficialización y declaratoria de interés público y nacional de la Norma nacio
 | --- | --- | --- |
 | 1 | 2021-11-25 | la propia norma |
 | 2 | 2022-10-05 | Decreto Ejecutivo 43728 (2022-10-05) |
+| 3 | 2022-10-28 | Decreto Ejecutivo 43785 (2022-10-28) |
