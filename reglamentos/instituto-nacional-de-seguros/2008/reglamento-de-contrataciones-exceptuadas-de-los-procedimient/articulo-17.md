@@ -1,2 +1,0 @@
-Artículo 17.—Los contratos entre el INS y sus sociedades anónimas, o en las que tenga una participación en su capital social. Éstos contratos, cuando no se refieran a la actividad ordinaria de cada entidad, deberán contar con el visto bueno previo de la Gerencia o Presidencia Ejecutiva.
-(Así corrida su numeración y publicada en La Gaceta N° 241 del 13 de diciembre de 2010, que lo traspaso del antiguo artículo 18 al 17 actual. Lo anterior ya que en dicha sesión se ordena derogar el numeral 6 original y modificar su numeración)

@@ -1,2 +1,0 @@
-Artículo 20.—EI Instituto podrá realizar los procesos de contratación administrativa regulados en este Reglamento mediante el sistema Mer-Link, dichos procesos se ejecutarán de acuerdo con el Reglamento para la Utilización del Sistema Electrónico de Compras Públicas Mercado en Línea “Mer-Link”, decreto ejecutivo número 36242-MP-PLAN.
-(Así adicionado mediante sesión N° 9046 del 21 de febrero del 2011)

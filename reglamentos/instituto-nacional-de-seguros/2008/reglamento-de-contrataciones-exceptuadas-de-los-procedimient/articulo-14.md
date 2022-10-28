@@ -1,2 +1,0 @@
-Artículo 14.—Contratos de fideicomiso de cualquier índole cuando funja tanto como fideicomitente, fiduciario o fideicomisario. Este tipo de contrataciones independientemente de la cuantía requerirá revisión previa de la Dirección Jurídica, su tramitación se realizará conforme al procedimiento expuesto en este Reglamento.
-(Así corrida su numeración y publicada en La Gaceta N° 241 del 13 de diciembre de 2010, que lo traspaso del antiguo artículo 15 al 14 actual. Lo anterior ya que en dicha sesión se ordena derogar el numeral 6 original y modificar su numeración)

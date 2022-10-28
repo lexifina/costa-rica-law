@@ -1,1 +1,0 @@
-Artículo 3º—Principios generales de la contratación administrativa. Toda contratación de las acá reguladas deberá observar los principios de eficiencia, eficacia, publicidad, libre competencia, igualdad, buena fe e intangibilidad patrimonial según se definen en la Ley de Contratación Administrativa y su reglamento.

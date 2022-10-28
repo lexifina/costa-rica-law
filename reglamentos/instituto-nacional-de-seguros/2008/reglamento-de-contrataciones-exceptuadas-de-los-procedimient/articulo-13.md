@@ -1,2 +1,0 @@
-Artículo 13.—Contrataciones de reaseguros y servicios accesorios a éstos. La contratación de reaseguros y servicios accesorios a éstos se regirá por el reglamento específico aprobado por la Junta Directiva del INS.
-(Así corrida su numeración y publicada en La Gaceta N° 241 del 13 de diciembre de 2010, que lo traspaso del antiguo artículo 14 al 13 actual. Lo anterior ya que en dicha sesión se ordena derogar el numeral 6 original y modificar su numeración)
