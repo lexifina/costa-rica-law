@@ -1,1 +1,0 @@
-Artículo 4º—Para los casos en que el contribuyente sea el mismo importador, el respaldo del crédito fiscal lo constituye la misma declaración única aduanera en la que se consigne el pago del impuesto general sobre las ventas.
