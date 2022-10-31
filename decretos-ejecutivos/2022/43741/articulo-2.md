@@ -1,0 +1,1 @@
+Artículo 2º-Dejar sin efecto el Decreto Ejecutivo N° 36360-JP del 15 de noviembre del 2010, publicado en el Diario Oficial La Gaceta N° 22 del 1° de febrero del 2011, mediante el cual se declaró utilidad de utilidad pública la Asociación de Pequeños Productores, Agricultores e Industriales de México de Delicias de Upala, cédula jurídica N° 3-002-367310.

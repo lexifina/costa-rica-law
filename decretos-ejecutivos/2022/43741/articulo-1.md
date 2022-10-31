@@ -1,0 +1,17 @@
+N° 43741-MJP
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE JUSTICIA Y PAZ
+Con fundamento en lo dispuesto en los artículos 140, inciso 18) y 146 de la Constitución Política, en el artículo 32 de la Ley de Asociaciones N° 218 del 8 de agosto de 1939 y los artículos 27 y siguientes del Reglamento a la Ley de Asociaciones N° 29496-J, publicado en La Gaceta N° 96 del 21 de mayo del 2001.
+Considerando
+1º-El artículo 32 de la Ley de Asociaciones N° 218 del 8 de agosto de 1939 y sus reformas, confiere al Poder Ejecutivo la potestad de declarar de utilidad pública a las asociaciones simples, federadas o confederadas, cuyo desarrollo y actividades sean particularmente útiles para los intereses del Estado y que por ello contribuyan a solventar una necesidad social.
+II.-La Asociación para el Desarrollo Social y Humano Richmond Fellowship, cédula jurídica N° 3-002-138934, se inscribió en el Registro de Asociaciones del Registro Público el 24 de junio de 1993, al tomo 401, asiento 16045 bajo el expediente N° 5639. Así mismo, dicha entidad fue declarada de utilidad pública mediante el Decreto Ejecutivo N° 28954-J del 5 de setiembre del 2000, publicado en el diario oficial La Gaceta N° 189 del 3 de octubre del 2000.
+III.-La Asociación de Pequeños Productores, Agricultores e Industriales de México de Delicias de Upala, cédula jurídica N° 3-002-367310, se inscribió en el Registro de Asociaciones del Registro Público el 4 de agosto del 2004, al tomo 525, asiento 470. Asimismo, dicha entidad fue declarada de utilidad pública mediante el Decreto Ejecutivo N° 36360-JP del 15 de noviembre del 2010, publicado en el diario oficial La Gaceta N° 22 del 1° de febrero del 2011.
+IV.-El artículo 32 del Reglamento a la Ley de Asociaciones establece: "(..) En cualquier momento, el Ministerio de Justicia y Paz, revocará este beneficio, si desaparecen los motivos por los cuales fue concedido. (...)". Así mismo, el ordinal 32 del Reglamento a la Ley de Asociaciones, agrega: "(...) La declaratoria será revocable en cualquier momento, mediante resolución razonada...".
+V.-Las Asociaciones para el Desarrollo Social y Humano Richmond Fellowship, cédula jurídica N° 3-002- 138934, por medio de su representante legal señor Guillermo Rosabal Ramírez, cédula de identidad número 1-0533-0967 y de Pequeños Productores, Agricultores e Industriales de México de Delicias de Upala, cédula jurídica N° 3-002- 367310, por medio de su representante legal señor William Peraza Fernández, cédula de identidad número 9-0042-0674, incumplieron con la presentación de los informes anuales de labores correspondientes a los años 2017 al 2021 y del 2012 al 2021 respectivamente, al no presentarlos en los plazos de ley otorgados, ni presentar elementos de valor que permitan acreditar dichos incumplimientos, asimismo, ambas asociaciones se encuentran en causal de extinción en el Registro Nacional. Por tanto;
+Decretan
+DEROGAR LA DECLARATORIA DE UTILIDAD PÚBLICA
+A LAS ASOCIACIONES PARA EL DESARROLLO SOCIAL
+Y HUMANO RICHMOND FELLOWSHIP Y DE PEQUEÑOS
+PRODUCTORES, AGRICULTORES E INDUSTRIALES DE
+MÉXICO DE DELICIAS DE UPALA
+Artículo 1º-Dejar sin efecto el Decreto Ejecutivo N° 28954-J del 5 de setiembre del 2000, publicado en el diario oficial La Gaceta N° 189 del 3 de octubre del 2000, mediante el cual se declaró de utilidad pública la Asociación para el Desarrollo Social y Humano Richmond Fellowship, cédula jurídica N° 3-002-138934.
