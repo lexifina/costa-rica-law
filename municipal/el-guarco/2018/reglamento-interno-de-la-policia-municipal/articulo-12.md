@@ -1,1 +1,2 @@
-Artículo 12.—Nota de Sinalevi: En la publicación de este reglamento municipal, no aparece este artículo. No obstante el sistema exige una numeración consecutiva, por lo que se ha creado el mismo, pero sin texto.
+Artículo 12.-En la jornada laboral descrita en el artículo anterior la Policía Municipal tendrá derecho a tiempo de alimentación y descanso de una hora en la mitad de la jornada, quince minutos en el primer cuarto de la jornada y a quince minutos más en el tercer cuarto de la jornada, quedando prohibido acumular los tiempos de alimentación y descanso para el inicio o fi de la jornada laboral o para otros días.
+(Así adicionado en sesión N° 193-2022 del 31 de octubre de 2022)

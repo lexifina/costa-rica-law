@@ -1,1 +1,2 @@
-Artículo 11.—Nota de Sinalevi: En la publicación de este reglamento municipal, no aparece este artículo. No obstante el sistema exige una numeración consecutiva, por lo que se ha creado el mismo, pero sin texto.
+Artículo 11.-La Policía Municipal de El Guarco tendrá una jornada laboral ordinaria diurna y nocturna de doce horas diarias, en amparo del artículo 58 Constitucional y 143 del Código de Trabajo, excepcionalmente y en circunstancias especiales podrán laborar por más de 12 horas, siempre y cuando se respete su tiempo de descanso. En estos casos se realizará el pago correspondiente al tiempo extraordinario laborado.
+(Así adicionado en sesión N° 193-2022 del 31 de octubre de 2022)

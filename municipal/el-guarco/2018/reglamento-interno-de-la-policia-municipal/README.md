@@ -14,3 +14,4 @@ Reglamento interno de la policía municipal
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-08-23 | la propia norma |
+| 2 | 2022-10-31 | Reglamento municipal 193 (2022-10-31) |

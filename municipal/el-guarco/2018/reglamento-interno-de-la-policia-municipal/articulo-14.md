@@ -1,1 +1,3 @@
-Artículo 14.—Nota de Sinalevi: En la publicación de este reglamento municipal, no aparece este artículo. No obstante el sistema exige una numeración consecutiva, por lo que se ha creado el mismo, pero sin texto.
+Artículo 14.-Son hábiles para laborar y brindar servicio público de seguridad en jornada ordinaria diurna y nocturna por parte de la Policía Municipal de El Guarco, las 24 horas del día, los siete días de la semana y los 365 días del año.
+Todos los oficiales de la Policía Municipal del Guarco deberán cumplir íntegramente con su jornada de trabajo, para ello deben de presentarse listos para asumir su servicio a la hora establecida y del mismo modo no podrán abandonar su servicio hasta que se realice la entrega del puesto al oficial entrante, y solo en casos excepcionales se les realizará el pago de tiempo extraordinario correspondiente.
+(Así adicionado en sesión N° 193-2022 del 31 de octubre de 2022)

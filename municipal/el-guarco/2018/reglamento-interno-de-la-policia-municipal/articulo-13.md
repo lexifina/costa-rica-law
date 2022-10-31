@@ -1,1 +1,2 @@
-Artículo 13.—Nota de Sinalevi: En la publicación de este reglamento municipal, no aparece este artículo. No obstante el sistema exige una numeración consecutiva, por lo que se ha creado el mismo, pero sin texto.
+Artículo 13.-El alcalde en condición de Jefatura máxima y con la coadyuvancia de la coordinación de la Policía Municipal del Guarco dispondrá del horario de trabajo continuo y operativo semanal, sin detrimento de que los mismos puedan ser variados en respuesta a una necesidad operativa, además se establece que todos los días de la semana son hábiles y prioritarios para brindar seguridad y vigilancia en el cantón.
+(Así adicionado en sesión N° 193-2022 del 31 de octubre de 2022)
