@@ -6,4 +6,4 @@ ii. aquel destinado al financiamiento de ciclos definidos de negocio, excepto ca
 iii. aquel destinado al financiamiento de capital de trabajo,
 iv. [.]
 (Así adicionado mediante sesión 1579-2020 del 1° de junio del 2020)
-(Nota de Sinalevi: Mediante sesión N° 1697 del 1° de noviembre de 2021, se acordó extender la aplicación de este numeral, hasta el 31 de diciembre de 2022, inclusive)
+(Nota de Sinalevi: Mediante sesión N° 1767 del 31 de octubre de 2022, se acordó extender la aplicación de este numeral, hasta el 31 de diciembre de 2023, inclusive)
