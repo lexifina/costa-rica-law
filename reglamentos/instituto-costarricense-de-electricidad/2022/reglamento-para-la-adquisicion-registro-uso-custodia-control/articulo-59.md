@@ -1,3 +1,4 @@
-CAPÍTULO VII
-Disposiciones Finales
-Artículo 59.-Revisiones y actualizaciones. La Dirección Logística se encargará de revisar el presente Reglamento y planteará las modificaciones que estime pertinentes.
+CAPÍTULO VI
+Retiro físico y contable de activos
+Artículo 59.-El centro logístico debe gestionar ante la Gerencia de Finanzas la baja de activos.
+(Así reformado y publicado en La Gaceta N° 216 del 11 de noviembre de 2022)

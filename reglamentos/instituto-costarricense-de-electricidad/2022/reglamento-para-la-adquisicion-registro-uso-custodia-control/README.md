@@ -14,3 +14,4 @@ Reglamento para la adquisición, registro, uso, custodia control y descargo de a
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-07-11 | la propia norma |
+| 2 | 2022-10-31 | Reglamento 0 (2022-10-31) |

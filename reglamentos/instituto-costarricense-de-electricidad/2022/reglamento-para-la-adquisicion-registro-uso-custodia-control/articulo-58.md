@@ -1,10 +1,4 @@
-CAPÍTULO VI
-Retiro físico y contable de activos
-Artículo 58.-El centro logístico debe gestionar ante la Gerencia de Finanzas la baja de activos.
-La absorción y cobro de activos se debe realizar mediante los siguientes ajustes:
-a) Ajuste con responsabilidad para el personal:
-a.1) El titular subordinado, a partir de la información analizada, debe consultar al gestor de activos el precio del bien, y este a su vez debe enviar al centro logístico el formulario F-10-0061 "Ajuste por artículos prestados con vale". Anexo N°6.
-a.2) El centro logístico debe actualizar la información en el sistema, anulando y entregando el vale, remitiendo el ajuste original a Servicios de Gestión al Personal y carta a la Gerencia de Finanzas con la documentación de respaldo para el descargo contable.
-b) Ajuste sin responsabilidad para el personal:
-b.1) El gestor de activos debe enviar al centro logístico el formulario F-10-0061 Ajuste por artículos prestados con vale. Anexo N° 6.
-b.2) El centro logístico debe actualizar la información en el sistema, anulando y entregando el vale, procediendo a custodiar el ajuste original remitiendo carta a la Gerencia de Finanzas con la documentación de respaldo para el descargo contable
+Artículo 58.-Reposición del activo o reintegro de dinero por ejecución de la garantía:
+a) Reposición del activo por garantía: Cuando el proveedor debe reponer un activo dañado, ya que el mismo se encuentra en garantía.
+b) Reintegro de dinero por parte del proveedor: Cuando este no pueda reponer el activo, debe realizar el reintegro del valor mediante un depósito en las cuentas corrientes que se utilizan para este tipo de devoluciones.
+(Así reformado y publicado en La Gaceta N° 216 del 11 de noviembre de 2022)
