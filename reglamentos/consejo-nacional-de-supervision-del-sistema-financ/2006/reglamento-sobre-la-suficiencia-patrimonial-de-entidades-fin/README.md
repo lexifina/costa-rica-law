@@ -45,3 +45,4 @@ Reglamento sobre la Suficiencia Patrimonial de Entidades Financieras
 | 30 | 2022-04-04 | Reglamento 1724 (2022-04-04) |
 | 31 | 2022-04-25 | Reglamento 1727 (2022-04-25) |
 | 32 | 2022-08-29 | Reglamento 1752 (2022-08-29) |
+| 33 | 2022-10-31 | Reglamento 1767 (2022-10-31) |
