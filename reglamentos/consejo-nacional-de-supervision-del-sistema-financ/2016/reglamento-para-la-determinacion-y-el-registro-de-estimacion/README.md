@@ -22,3 +22,4 @@ Reglamento para la determinación y el registro de estimaciones contracíclicas 
 | 7 | 2020-03-23 | Reglamento 1566 (2020-03-23) |
 | 8 | 2020-11-02 | Reglamento 1617 (2020-11-02) |
 | 9 | 2021-11-01 | Reglamento 1697 (2021-11-01) |
+| 10 | 2022-10-31 | Reglamento 1767 (2022-10-31) |
