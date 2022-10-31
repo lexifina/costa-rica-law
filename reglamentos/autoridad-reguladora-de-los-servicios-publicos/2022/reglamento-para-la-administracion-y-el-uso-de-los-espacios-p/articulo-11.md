@@ -1,0 +1,9 @@
+Artículo 11. -Obligaciones de todas las personas funcionarias a quienes se les asigne un espacio para estacionamiento.
+Todas las personas funcionarias a quienes se les asigne un espacio para estacionamiento, tendrán las siguientes obligaciones:
+a) Brindar información completa y veraz a las consultas que le plantee la Administración relacionadas con el uso del espacio de estacionamiento asignado.
+b) Conducir dentro del área de estacionamiento respetando en todo momento las vías de acceso, la señalización o demarcación vial y las instrucciones que impartan el personal de seguridad.
+c) Estacionar el vehículo sea o no de su propiedad o de la flotilla institucional de forma apropiada en el espacio asignado para tal efecto. Los espacios disponibles para visitantes serán exclusivamente para este fin, sin que pueda ubicarse temporalmente en ese lugar alguna persona funcionaria o visitante que no cuente con los requisitos exigidos.
+d) Informar lo antes posible mediante un correo electrónico al Departamento de Servicios Generales, cuando no utilizará el espacio asignado.
+e) Abstenerse de intercambiar, ceder, prestar o permitir el uso del espacio que se le haya asignado, a otra persona funcionaria o persona ajena a la Institución, tengan o no el vehículo registrado a su nombre.
+f) Cumplir con las disposiciones reglamentarias del lugar donde se encuentre la institución arrendando en materia de estacionamiento y responsabilizarse por las multas que le sean atribuibles y por los daños que pueda ocasionar a otros vehículos o a la infraestructura física, producto del irrespeto a las disposiciones reglamentarias y/o una conducción inadecuada o temeraria.
+g) Reportar mediante correo electrónico y de forma inmediata en tanto las circunstancias se lo permitan, al Departamento de Servicios Generales cuando se presente algún incidente con otro vehículo o con la infraestructura física del lugar donde se encuentre la institución.

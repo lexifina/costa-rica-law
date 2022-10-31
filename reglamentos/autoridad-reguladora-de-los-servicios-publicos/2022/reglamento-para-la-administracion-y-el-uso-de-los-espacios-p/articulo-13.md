@@ -1,0 +1,2 @@
+Artículo 13. - Supervisión, Inspecciones y denuncias.
+El Departamento de Servicios Generales, podrá realizar supervisiones diarias de verificación del uso de los espacios para estacionamiento y elaborará un informe mensual del cumplimiento en el uso de estos. La persona funcionaria que realice esta labor de supervisión, reportará inmediatamente a su jefatura con el debido aporte de prueba, de cualquier aparente irregularidad o incumplimiento de las obligaciones tipificadas en este reglamento para la valoración respectiva.
