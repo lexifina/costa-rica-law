@@ -1,0 +1,3 @@
+Artículo 2.- Ámbito de aplicación.
+El presente reglamento, será de acatamiento para los miembros activos de las fuerzas de policía que desempeñen o vayan a ocupar un cargo en propiedad o interinamente en los distinto cuerpos policiales establecidos en la Ley 7410, Ley General de Policía.
+Los resultados derivados de la aplicación de la prueba psicofisiológica, formarán parte de los elementos considerados para la toma de decisiones relacionadas con nombramientos, ascensos, traslados y permanencia en el cargo, de dicho personal policial, asimismo, para la asignación de determinadas tareas según se requiera.

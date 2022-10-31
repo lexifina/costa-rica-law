@@ -1,0 +1,2 @@
+Artículo 29.- Efectos de los exámenes o pruebas Psicofisiológicas.
+Una vez que el informe sobre los resultados de las pruebas de poligrafía se encuentre en fim1e, el mismo se pondrá en conocimiento de la instancia solicitante competente, con la finalidad de ser valorado con el resto de requisitos para los procesos de nombramientos, ascensos, traslados y operaciones especiales, o cualquier otro movimiento de personal dentro de unidades policiales especiales.

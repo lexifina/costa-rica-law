@@ -1,0 +1,3 @@
+Artículo 30.- Régimen sancionatorio.
+La información que se obtenga con ocasión de la ejecución del examen será considerada como sensible y confidencial; su divulgación sin previo consentimiento del examinado, la manipulación de datos de la prueba y de los resultados, por parte de las personas físicas o jurídicas, públicas o privadas que practiquen exámenes de poligrafía podrán ser sancionados de conformidad con de la Ley Nº 8968, Protección de la Persona frente al Tratamiento de sus Datos Personales y se dará traslado al Ministerio Público de las acciones que puedan configurar delito.
+Además, esto podría estar considerado una falta grave y seria susceptible de una investigación y eventualmente un procedimiento administrativo disciplinario.

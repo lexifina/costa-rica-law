@@ -1,0 +1,3 @@
+Artículo 19.-Chequeo de funcionalidad y calibración (Instrumentos Computarizados).
+Los chequeos de funcionalidad deben ser realizados por lo menos cada seis meses. Cada vez que se identifique un mal funcionamiento, el instrumento no debe ser usado para realizar la prueba, hasta que el problema haya sido resuelto, y su corrección sea demostrada mediante un chequeo de funcionalidad.
+Un registro, en la forma de una gráfica de funcionalidad, debe ser impreso en formato digital, incluyendo la fecha, la identificación del instrumento y el nombre de quien realizó este proceso. Esta gráfica debe ser almacenada en un servidor institucional con las medidas de seguridad apropiadas por un periodo mínimo de un año.
