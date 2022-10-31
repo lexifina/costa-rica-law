@@ -1,1 +1,0 @@
-Artículo 9º—La Administración dispondrá un plazo de ocho días hábiles, prorrogables por un plazo igual en casos muy calificados, a juicio del Área de Desarrollo Social, para la emisión de la recomendación final.

@@ -1,1 +1,0 @@
-Artículo 21.—Corresponde al Concejo Municipal la aprobación del Presupuesto destinado para cubrir dichas subvenciones, mediante la aprobación del Plan Operativo Anual y el anteproyecto del presupuesto del ejercicio económico de los años subsiguientes, presentado en forma oportuna por la Contadora Municipal y la Alcaldía Municipal.
