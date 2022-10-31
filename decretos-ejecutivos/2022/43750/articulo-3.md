@@ -1,0 +1,1 @@
+Artículo 3.- Los volúmenes de importación con arancel preferencial del producto en cuestión, podrán ser importados a partir de la publicación del presente Decreto Ejecutivo hasta el 31 de enero de 2023.
