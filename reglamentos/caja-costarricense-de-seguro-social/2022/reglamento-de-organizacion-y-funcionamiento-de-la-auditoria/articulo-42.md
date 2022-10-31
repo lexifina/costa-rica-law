@@ -1,0 +1,1 @@
+Artículo 42.- Planeación estratégica. La Auditoría Interna contará con un proceso de planificación estratégica, en concordancia con lo incluido en el Plan Estratégico Institucional (visión, misión y principales políticas que regirán su accionar), el cual deberá revisar y actualizar como mínimo una vez al año.

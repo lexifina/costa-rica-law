@@ -1,0 +1,2 @@
+Artículo 35.- Asignación de recursos. De conformidad con lo dispuesto en el artículo 27 de la Ley General de Control Interno, la CAJA asignará los recursos financieros, humanos, materiales, tecnológicos, de transporte e infraestructura, así como otros necesarios y suficientes para que la Auditoría Interna pueda cumplir su labor.
+El auditor interno propondrá a la junta directiva, la creación de las plazas y servicios que considere indispensables para el cumplimiento de su plan estratégico, plan de trabajo y, en general, para el buen funcionamiento de su unidad.

@@ -1,0 +1,1 @@
+Artículo 63.- Informes parciales y finales. La Auditoría Interna, de acuerdo con su criterio, podrá emitir informes parciales durante el desarrollo de sus auditorías. Toda evaluación o proyecto de auditoría dará lugar a un informe final, cumpliendo con las normas técnicas relativas al trabajo de auditoría.

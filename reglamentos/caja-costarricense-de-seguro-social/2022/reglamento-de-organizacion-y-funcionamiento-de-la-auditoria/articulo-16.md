@@ -1,0 +1,7 @@
+Artículo 16.- Medidas de resguardo. Además de los impedimentos asociados a los deberes y prohibiciones contemplados en la Ley General de Control Interno, en otras leyes y en los reglamentos internos de la Institución, a efectos de no perjudicar su objetividad individual y ética profesional, el auditor interno y el resto del personal de la Auditoría Interna deberá abstenerse de:
+a. Recibir regalos o gratificaciones que puedan interpretarse como intentos de influir sobre su independencia e integridad, sin perjuicio del deber de denunciar tales hechos ante las instancias competentes.
+b. Utilizar su cargo oficial con propósitos privados.
+c. Sostener relaciones de negocios o de cualquier otra naturaleza que puedan influir, comprometer o amenazar la capacidad para actuar, o que puedan afectar su independencia de criterio y objetividad como funcionario público.
+d. Asesorar, advertir o auditar operaciones específicas de las cuales hayan sido responsable, en los últimos doce meses contados a partir de la fecha de su ingreso a la Auditoría Interna.
+e. Ser parte de grupos de trabajo, comisiones o similares que ejerzan función propia de la administración activa, a excepción de aquellos casos en que así lo solicite el jerarca, siendo su participación temporal y exclusivamente como asesor en asuntos de su competencia.
+f. Ser miembros de órganos colegiados de un sujeto privado que administra fondos públicos sujetos a la fiscalización de la Auditoría Interna.

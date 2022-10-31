@@ -1,0 +1,3 @@
+SECCIÓN B
+PROGRAMA DE ASEGURAMIENTO DE LA CALIDAD
+Artículo 51.- Establecimiento del programa. La Auditoría Interna mantendrá un programa de aseguramiento de la calidad para la actividad de auditoría interna, del cual formará parte la supervisión continua ejercida por las jefaturas sobre el cumplimiento de la normativa técnica para cada actividad y en cada fase del proceso de auditoría, actividades de seguimiento de gestión de la calidad a cargo del Área Auditoría de Innovación, Calidad y Control, así como, las autoevaluaciones anuales y evaluaciones externas de la calidad de la actividad de auditoría interna.

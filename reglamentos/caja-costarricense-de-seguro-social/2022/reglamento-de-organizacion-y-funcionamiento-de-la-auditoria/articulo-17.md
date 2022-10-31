@@ -1,0 +1,1 @@
+Artículo 17.- Evaluación independiente de la auditoría interna. La auditoría interna sólo será objeto de evaluaciones por un revisor o equipo de revisión cualificado e independiente, externo a la organización. Los resultados deberán presentarse al titular de la auditoría interna y al máximo jerarca, incluyendo el plan de mejoras correspondiente.

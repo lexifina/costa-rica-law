@@ -1,0 +1,1 @@
+Artículo 47.- Sobre la evidencia. Los funcionarios de la Auditoría Interna, para la ejecución de las actividades de auditoría asignadas, deben reunir y registrar información relevante, suficiente y competente, que les permita apoyar y sustentar los hallazgos, conclusiones, recomendaciones y demás resultados del trabajo.

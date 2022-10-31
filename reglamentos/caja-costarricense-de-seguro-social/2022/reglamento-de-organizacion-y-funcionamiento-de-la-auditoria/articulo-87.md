@@ -1,0 +1,1 @@
+Artículo 87.- Registro y control de denuncias. Las denuncias presentadas deberán ser registradas de tal manera que puedan identificarse y darles seguimiento con facilidad y oportunidad. Lo anterior, según el procedimiento que al efecto apruebe la Auditoría Interna.

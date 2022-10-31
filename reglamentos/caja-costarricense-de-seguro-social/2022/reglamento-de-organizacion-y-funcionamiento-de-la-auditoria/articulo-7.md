@@ -1,0 +1,1 @@
+Artículo 7.- Actualización del ámbito de acción o universo auditable. La Auditoría Interna mantendrá actualizado y detallado su ámbito de acción o universo auditable, considerando los órganos, unidades y procesos, con la colaboración de la Administración Activa en lo que corresponda.

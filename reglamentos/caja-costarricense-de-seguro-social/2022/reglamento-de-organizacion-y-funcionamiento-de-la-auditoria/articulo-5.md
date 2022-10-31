@@ -1,0 +1,4 @@
+SECCIÓN B
+NATURALEZA Y ÁMBITO DE ACCIÓN
+Artículo 5.- Concepto Funcional. De conformidad con el artículo 21 de la Ley General de Control Interno, la Caja Costarricense de Seguro Social, en adelante CAJA, contará con una sola auditoría interna, que es un componente orgánico del sistema de control interno de la Institución.
+La Auditoría Interna desarrollará sus funciones de manera independiente, objetiva y asesora, proporcionando seguridad razonable en la validez y mejoramiento de las operaciones de la institución. Esta unidad contribuye a que se alcancen los objetivos institucionales, mediante la práctica de un enfoque sistémico y profesional para evaluar y mejorar la efectividad de la administración del riesgo, del control y de los procesos de dirección de la CAJA. La actividad de la Auditoría Interna estará orientada a generar valor agregado a la gestión institucional.

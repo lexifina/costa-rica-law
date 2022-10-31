@@ -1,0 +1,3 @@
+SECCIÓN H
+DEL SEGUIMIENTO DE RECOMENDACIONES
+Artículo 88.- Seguimiento de acciones sobre resultados. El auditor interno debe establecer, mantener y ejecutar un programa de seguimiento, enfocado a verificar la implantación de las recomendaciones, como parte vital y permanente de la actividad de la Auditoría Interna, para asegurarse de su oportuna, adecuada y eficaz atención por parte de la administración activa. Ese programa debe incluir las recomendaciones u observaciones de las evaluaciones realizadas por la Auditoría Interna, la Contraloría General de la República, auditoría externa, u otros entes externos de fiscalización de la Hacienda Pública, que sean puestas en su conocimiento.

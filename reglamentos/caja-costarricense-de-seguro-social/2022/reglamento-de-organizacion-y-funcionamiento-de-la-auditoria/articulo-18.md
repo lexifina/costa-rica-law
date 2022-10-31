@@ -1,0 +1,1 @@
+Artículo 18.- Prohibiciones de los funcionarios de la Auditoría Interna. El auditor interno, subauditor y los demás funcionarios de la Auditoría Interna tendrán las prohibiciones establecidas en el artículo 34 de la Ley General de Control Interno y otras normas legales, reglamentarias y técnicas que le sean aplicables a la Auditoría Interna.

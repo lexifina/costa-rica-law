@@ -1,0 +1,3 @@
+SECCIÓN G
+DE LAS DENUNCIAS
+Artículo 77.- Ámbito de competencia. La Auditoría Interna dará trámite a aquellas denuncias que versen sobre posibles hechos que afecten la atención de los usuarios, sobre los cuales se haya agotado las instancias técnicas y administrativas respectivas, así como, actuaciones ilegales en el uso y manejo de fondos públicos asignados o administrados por la institución, que afecten la Hacienda Pública y se relacionen con lo regulado por la Ley Contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública y su Reglamento y la Política de Probidad institucional. En todos los casos, observará la normativa vigente, interna y externa según corresponda.

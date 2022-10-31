@@ -1,0 +1,1 @@
+Artículo 31.- Protección al personal de la auditoría. Cuando el personal de la Auditoría Interna, en el cumplimiento de sus funciones, se involucre en un conflicto legal o sea objeto de un proceso administrativo, civil o penal, la CAJA gestionará el apoyo jurídico interno o externo que se requiera, todo de conformidad con el artículo 26 de la Ley General de Control Interno.

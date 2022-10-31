@@ -1,0 +1,1 @@
+Artículo 37.- Administración de los recursos de la Auditoría Interna. Acorde con las regulaciones jurídicas y técnicas pertinentes, el auditor interno debe administrar los recursos de la unidad bajo su cargo, de forma económica, eficiente, eficaz, legal y transparente para la consecución de las metas y objetivos de la Auditoría Interna.

@@ -1,0 +1,1 @@
+Artículo 26.- Personal idóneo. El personal de la Auditoría Interna deberá ser seleccionado con base en la idoneidad -según la función que realice- y reunir conocimientos, destrezas, formación, experiencia, habilidades, aptitudes, cualidades y competencias necesarias para cumplir con sus responsabilidades, conforme lo establecido en el marco legal y técnico pertinente.

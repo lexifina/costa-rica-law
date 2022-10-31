@@ -1,0 +1,1 @@
+Artículo 2.- Ámbito de aplicación. El presente reglamento es de carácter obligatorio para todos los funcionarios de la Auditoría Interna, en lo que resulte aplicable, para los demás funcionarios de la institución y en general, usuarios internos y externos de los servicios de la Auditoría Interna de la Caja Costarricense de Seguro Social.
