@@ -1,0 +1,13 @@
+BANCO POPULAR Y DE DESARROLLO COMUNAL
+JUNTA DIRECTIVA
+La Junta Directiva Nacional en su calidad de tal y actuando en funciones propias de Asamblea de Accionistas, mediante Sesión Ordinaria N° 5944 acuerdo N° 755 celebrada el 5 de octubre del 2022, aprobó modificar el artículo 3 del Reglamento para la celebración de sesiones de órganos colegiados en forma virtual en el Conglomerado Financiero del Banco Popular, en los siguientes términos:
+Reglamento para la celebración de sesiones de órganos
+colegiados en forma virtual en el Conglomerado
+Financiero del Banco Popular
+Artículo 3°-Funcionamiento de los órganos colegiados en sesiones virtuales. La celebración de las sesiones virtuales de los Órganos de Dirección del Conglomerado podrá darse por razones debidamente calificadas, en forma excepcional, siempre y cuando exista un acuerdo dictado por mayoría calificada de los integrantes del colegio. El Presidente del Órgano de Dirección podrá convocar sin que medie acuerdo, en casos de urgencia, la celebración de una sesión virtual.
+Sin que se limiten a estos, se considerará como motivos válidos cuando existan desastres naturales, declaratorias de emergencia nacional, situación de urgencia o impedimento material de alguno de los directivos de asistir presencialmente a la sesión.
+Su convocatoria, ausencias, cuórum de integración o votación, orden del día, deliberación, votación, actas y medios de impugnación se regirán por lo estipulado en los artículos 56 y siguientes de la Ley General de la Administración Pública.
+Los órganos colegiados denominados comités y comisiones en su carácter instrumental y de apoyo a los diferentes jerarcas superiores y administrativos, podrán definir la celebración de sesiones tanto en forma presencial como en forma virtual de acuerdo con las condiciones particulares de cada órgano, siempre y cuando se garantice la colegialidad, simultaneidad, deliberación e integralidad en la discusión y aprobación de los acuerdos. Así como tomando en cuenta lo establecido en la Ley para regular el teletrabajo, N° 9738.
+Las sesiones virtuales serán convocadas con la misma antelación de las sesiones presenciales: en la convocatoria se debe indicar explícitamente que será una sesión virtual, y se debe incluir el enlace para el ingreso seguro a la sesión. Conformada y convocada adecuadamente, la sesión se llevará a cabo con normalidad y procederá el pago de dietas en caso de que así corresponda.
+En el caso de las Juntas de Crédito Local, se regirán por lo dispuesto para los Órganos de Dirección.
+Los Órganos internos de la Asamblea de Trabajadores y Trabajadoras se regirán por lo establecido para los comités y comisiones.
