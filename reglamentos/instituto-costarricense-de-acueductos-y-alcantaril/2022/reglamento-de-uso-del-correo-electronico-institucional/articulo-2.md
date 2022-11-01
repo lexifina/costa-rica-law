@@ -1,0 +1,1 @@
+Artículo 2º-Este reglamento es aplicable a todos aquellos funcionarios del Instituto Costarricense de Acueductos y Alcantarillados que poseen y hacen uso de una cuenta de correo electrónico institucional. Los lineamientos acá descritos son de obligado cumplimiento por parte de todos los usuarios del servicio.

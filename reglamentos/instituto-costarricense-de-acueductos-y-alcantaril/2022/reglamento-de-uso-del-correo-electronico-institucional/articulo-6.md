@@ -1,0 +1,1 @@
+Artículo 6º-El correo electrónico debe ser utilizado exclusivamente para asuntos laborales, de manera que los mensajes que se distribuyen no deben interferir de ninguna forma con el trabajo que desempeña el resto del personal o bien, causar alguna afectación al normal funcionamiento de la red tecnológica de la institución.

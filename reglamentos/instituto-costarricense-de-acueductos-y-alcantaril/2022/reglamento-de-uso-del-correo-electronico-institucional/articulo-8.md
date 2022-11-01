@@ -1,0 +1,1 @@
+Artículo 8º-Para compartir avisos, anuncios, invitaciones e información de interés para la población institucional, la Dirección de Comunicación emitirá cada semana un boletín. Para que la información sea parte de este boletín, cada unidad debe compartirla y hacer la solicitud al correo: ci@aya.go.cr

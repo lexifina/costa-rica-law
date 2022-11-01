@@ -1,0 +1,1 @@
+Artículo 12.-El funcionario deberá acatar las políticas de uso de correo electrónico que la Administración Pública emita, además de las disposiciones legales nacionales e internacionales vigentes y las nuevas políticas que la institución notifique.

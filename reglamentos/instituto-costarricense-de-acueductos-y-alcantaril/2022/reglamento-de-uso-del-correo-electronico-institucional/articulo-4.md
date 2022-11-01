@@ -1,0 +1,1 @@
+Artículo 4º-Las cuentas a los funcionarios son otorgadas de forma personal y los titulares son los responsables directos de que se haga buen uso de estas, así como de gestionar las actualizaciones requeridas, especialmente en los datos contenidos en la firma institucional. Para las cuentas impersonales se debe asignar inequívocamente los responsables de las mismas.

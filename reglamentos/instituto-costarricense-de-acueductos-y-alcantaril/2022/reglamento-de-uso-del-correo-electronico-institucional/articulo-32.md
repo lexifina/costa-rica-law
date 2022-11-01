@@ -1,0 +1,1 @@
+Artículo 32.-Vigencia. El presente Reglamento rige a partir de la fecha de su publicación en el Diario Oficial La Gaceta, y esta Junta Directiva lo comunicará oficialmente a toda la población institucional.

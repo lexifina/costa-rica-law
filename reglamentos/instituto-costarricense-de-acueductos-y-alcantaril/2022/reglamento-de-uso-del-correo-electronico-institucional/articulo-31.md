@@ -1,0 +1,1 @@
+Artículo 31.-Este Reglamento deberá ser revisado y actualizado, de ser necesario, al menos una vez cada dos años, por las áreas responsables: Gerencia General, Dirección Jurídica, TI y la Dirección de Comunicación y Archivo Central Institucional.

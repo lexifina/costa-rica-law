@@ -1,0 +1,1 @@
+Artículo 26.-Todo usuario de correo que difunda mensajes que contengan frases ofensivas o que cuestionen la ética de otros trabajadores, sea por reenvío de correos o por cualquier otro medio, dirigido a otros funcionarios o hacia lo externo del Instituto, será responsable por el contenido del documento que divulga o reenvía.

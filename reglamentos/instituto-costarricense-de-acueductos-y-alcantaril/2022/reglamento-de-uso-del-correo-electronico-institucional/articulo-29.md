@@ -1,0 +1,1 @@
+Artículo 29.-Las faltas por el incumplimiento del presente Reglamento, serán sancionadas según su gravedad y reiteración. Las sanciones disciplinarias aplicables serán las previstas en el Reglamento Autónomo de Servicio del AyA

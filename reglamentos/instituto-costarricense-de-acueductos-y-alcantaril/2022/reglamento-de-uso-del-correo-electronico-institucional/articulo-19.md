@@ -1,0 +1,1 @@
+Artículo 19.-Almacenar y transmitir comunicaciones e imágenes que puedan resultar ofensivas sobre temas sexuales, religiosos, raciales, de nacionalidad, políticos, o pornografía en cualquier modalidad.

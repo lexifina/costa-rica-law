@@ -1,0 +1,1 @@
+Artículo 24.-Crear, enviar o reenviar correos electrónicos, anónimos o no, cuyo contenido sea irrespetuoso, ofensivo o que denigren públicamente a funcionarios públicos, sean de AyA o de cualquier otra Institución, o a cualquier otra persona, o bien, atenten contra la imagen de la Institución.
