@@ -15,3 +15,4 @@ Reglamento para la organización y el funcionamiento de la junta directiva nacio
 | --- | --- | --- |
 | 1 | 2022-06-08 | la propia norma |
 | 2 | 2022-06-27 | Reglamento 5930 (2022-06-27) |
+| 3 | 2022-11-01 | Reglamento 5952 (2022-11-01) |
