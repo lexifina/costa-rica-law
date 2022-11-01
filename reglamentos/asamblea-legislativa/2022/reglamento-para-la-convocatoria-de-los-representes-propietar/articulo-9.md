@@ -1,0 +1,1 @@
+Artículo 9º-Juramentación. Los representantes de las organizaciones de sociedad civil designadas, deberán ser juramentados por el presidente de la Asamblea Legislativa, de previo a asumir sus funciones.
