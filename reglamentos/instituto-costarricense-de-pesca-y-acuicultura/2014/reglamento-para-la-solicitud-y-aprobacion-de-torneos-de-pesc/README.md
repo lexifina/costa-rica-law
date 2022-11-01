@@ -14,3 +14,4 @@ Reglamento para la solicitud y aprobación de torneos de pesca deportiva - turí
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-08-04 | la propia norma |
+| 2 | 2022-11-01 | Acuerdo 244 (2022-11-01) |

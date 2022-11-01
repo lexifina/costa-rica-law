@@ -1,14 +1,15 @@
 INSTITUTO COSTARRICENSE DE PESCA
 Y ACUICULTURA
-AJDIP/073-2014.—Puntarenas, a los catorce días del mes de marzo de dos mil catorce.
+AJDIP/073-2014.-Puntarenas, a los catorce días del mes de marzo de dos mil catorce.
 Considerando:
-1º—Se presenta por parte de la Comisión Nacional de Pesca Deportiva - Turística para su conocimiento y aprobación de éste Órgano Colegiado, la propuesta de Reglamento para la solicitud de realización de Torneos de Pesca Deportiva - Turística.
-2º—Debidamente analizada esta propuesta, consideran los Sres. Directores que la misma responde a las necesidades de establecer con claridad meridiana las pautas mínimas a seguir para la celebración de Torneos de Pesca Deportiva y Turística; la razón por la cual, la Junta Directiva. Por tanto,
+1º-Se presenta por parte de la Comisión Nacional de Pesca Deportiva - Turística para su conocimiento y aprobación de éste Órgano Colegiado, la propuesta de Reglamento para la solicitud de realización de Torneos de Pesca Deportiva - Turística.
+2º-Debidamente analizada esta propuesta, consideran los Sres. Directores que la misma responde a las necesidades de establecer con claridad meridiana las pautas mínimas a seguir para la celebración de Torneos de Pesca Deportiva y Turística; la razón por la cual, la Junta Directiva. Por tanto,
 ACUERDA:
-1º—Aprobar el Reglamento para la solicitud de realización de Torneos de Pesca Deportiva-Turística, en los siguientes términos y condiciones:
-REGLAMENTO PARA LA SOLICITUD DE REALIZACIÓN
-DE TORNEOS DE PESCA DEPORTIVA - TURÍSTICA
-1º—Definiciones (Según la Ley 8436)
+1º-Aprobar el Reglamento para la solicitud de realización de Torneos de Pesca Deportiva-Turística, en los siguientes términos y condiciones:
+Reglamento para la solicitud y aprobación de
+torneos de pesca deportiva - turística (*)
+(*) (Así modificada su denominación mediante acuerdo AJDIP/244-2022 del 1° de noviembre de 2022. Anteriormente se indicaba: " REGLAMENTO PARA LA SOLICITUD DE REALIZACIÓN DE TORNEOS DE PESCA DEPORTIVA - TURÍSTICA ".)
+1º-Definiciones (Según la Ley 8436)
 Autorización: Acto administrativo mediante el cual el Instituto Costarricense de Pesca y Acuicultura (INCOPESCA) habilita a personas físicas o jurídicas para que desarrollen la actividad acuícola y de pesca en los términos indicados en esta Ley.
 Autoridad Ejecutora: Instituto Costarricense de Pesca y Acuicultura (INCOPESCA).
 Desembocadura: Sitio o lugar donde un río, un estero o laguna confluye con el mar o el océano, y cuya área de influencia acuática se extiende a un semicírculo de un kilómetro de radio, a partir del centro de dicha boca.
@@ -22,24 +23,26 @@ Pescador: Persona dedicada a la actividad de la pesca.
 Recursos pesqueros marinos, y de agua dulce: Todos los organismos vivos cuyo medio y ciclo de vida total, parcial o temporal que se desarrollan dentro del medio acuático marino, o de agua dulce, y que son susceptibles de ser extraídos sosteniblemente.
 Recursos marinos costeros y de agua dulce: Los recursos marinos costeros y de agua dulce son: las aguas del mar, las playas, los playones y la franja del litoral, las bahías, las lagunas costeras, los manglares, los arrecifes de coral, los pastos marinos, es decir, las praderas de fanerógamas marinas, los estuarios, ríos, lagunas, las bellezas escénicas, los seres vivos y su entorno, contenidos en el agua del mar u océano territorial y patrimonial, la zona económica exclusiva y su zócalo insular y de agua dulce.
 Torneos de pesca: son aquellas actividades de pesca organizadas en agua dulce, y marinas por personas físicas y jurídicas cuyo fin es la participación de pescadores debidamente autorizados en una competencia con fines de esparcimiento y recreo.
-2º—Conforme al artículo 8 de la Ley 8436, los torneos de pesca deberán practicarse sin producir daños irreparables a los ecosistemas, sin entorpecer la navegación, la utilización y el curso natural de las aguas. Asimismo, deberán realizarse procurando respetar los derechos de terceros legítimamente adquiridos.
-3º—Corresponde al INCOPESCA el control de la actividad pesquera en aguas marinas interiores y exteriores y agua dulce, por lo cual antes de realizarse un torneo de pesca, deberá tramitarse ante la Comisión Nacional de Pesca Deportiva Turística, a quien le corresponderá elevar recomendación a la Junta Directiva del INCOPESCA para su autorización, conforme a las disposiciones del presente reglamento. En casos de excepción los interesados podrán elevar su solicitud directamente ante la Junta Directiva.
-4º—Disposiciones para el otorgamiento de permisos de torneos de pesca:
+2º-Conforme al artículo 8 de la Ley 8436, los torneos de pesca deberán practicarse sin producir daños irreparables a los ecosistemas, sin entorpecer la navegación, la utilización y el curso natural de las aguas. Asimismo, deberán realizarse procurando respetar los derechos de terceros legítimamente adquiridos.
+3º-Corresponde al INCOPESCA el control de la actividad pesquera en aguas marinas interiores y exteriores y agua dulce, por lo cual antes de realizarse un torneo de pesca, deberá tramitarse ante la Comisión Nacional de Pesca Deportiva Turística, la solicitud de autorización del torneo, con al menos un mes calendario de anticipación. La Comisión Nacional de Pesca Deportiva Turística una vez conocida la solicitud y cumpliendo esta con las disposiciones y requisitos establecidos en el presente reglamento, procederá a trasladar dicha solicitud con la respectiva recomendación de aprobación o denegación, con al menos veintidós días de antelación a la fecha programada para la celebración del torneo a la Presidencia Ejecutiva, quién resolverá en definitiva, según corresponda, pudiendo apartarse justificadamente de la recomendación emanada por la Comisión. La Presidencia Ejecutiva deberá resolver toda solicitud de torneos de pesca deportiva - turística que le sean trasladados, con al menos quince días de antelación a la fecha programada para la celebración del torneo. En aquellos casos en los cuales la Presidencia Ejecutiva, con sustento en criterios técnicos, legales o de oportunidad deniegue la aprobación de un torneo de pesca deportiva, el administrado de conformidad con lo establecido en el Título Octavo, Capítulo Primero de la Ley General de la Administración Pública, Ley 6227, podrá interponer recurso de revocatoria o apelación, o ambos. En caso del recurso de revocatoria le corresponderá a la Presidencia Ejecutiva, su resolución; en tratándose de recurso de apelación, será la Junta Directiva quien en definitiva resuelva. Sobre lo resuelto por la Junta Directiva no cabrá ulterior recurso, teniéndose con ello agotada la vía administrativa.
+(Así reformado el punto anterior mediante acuerdo AJDIP/244-2022 del 1° de noviembre de 2022.)
+4º-Disposiciones para el otorgamiento de permisos de torneos de pesca:
 a) Se permitirá la realización de torneos de pesca a personas físicas y jurídicas, tratándose de personas física estas deberán presentar su cedula de identidad o residencia, en el caso de personas jurídicas deberán aportar su personería al día.
 b) Los solicitantes deberán acatar todas las disposiciones vigentes en materias de zonas de veda, áreas protegidas, tallas y cantidad de especímenes por especie.
 c) Toda solicitud deberá ser presentada por escrito con un mínimo de 30 días naturales de anticipación a la fecha del torneo y debidamente firmado por la persona física o jurídica organizadora de este. Cuando se requiera el establecimiento de una veda temporal a la pesca comercial durante el torneo, la solicitud de autorización deberá ser presentada con 60 días naturales de anticipación.
 Para lo cual se establecen los siguientes requisitos de información:
-• Lugar y fecha del torneo.
-• Responsable directo de la actividad.
-• Número aproximado de participantes.
-• Especies objeto del torneo.
-• Tipo de torneo: por ejemplo: pesca de orilla en el mar, ríos, lagos, esteros y lagunas, pesca con embarcación de pequeña escala, pesca de grandes pelágicos, etc.
-• Copia del reglamento del torneo.
-• Categorías, modalidades.
-• Presentación del croquis del área o zona del torneo con sus coordenadas, el cual no deberá contemplar dentro de la misma ningún área o zona restringida, Reserva Biológica o Parque Nacional.
-• Requerimientos de veda temporal para la pesca comercial si el torneo lo amerita.
-• En caso de aprobarse una zona de veda temporal a la pesca comercial durante el torneo, el organizador correrá con todos los gastos de publicación del Acuerdo en el Diario Oficial La Gaceta.
-• Dirección postal o electrónica para notificaciones.
-El organizador del torneo deberá presentar a la Junta Directiva del INCOPESCA, un informe de los resultados del evento, así como copia de los permisos respectivos.
-5º—Para los efectos correspondientes se utilizará el Formulario de solicitud para realizar Torneos de Pesca, que se adjunta en el anexo I y forma parte del presente reglamento.
-6º—Los organizadores del torneo deberán velar que se cumplan todas las previsiones que resulten necesarias para garantizar la seguridad de los participantes de acuerdo a la legislación vigente y a la información disponible.
+. Lugar y fecha del torneo.
+. Responsable directo de la actividad.
+. Número aproximado de participantes.
+. Especies objeto del torneo.
+. Tipo de torneo: por ejemplo: pesca de orilla en el mar, ríos, lagos, esteros y lagunas, pesca con embarcación de pequeña escala, pesca de grandes pelágicos, etc.
+. Copia del reglamento del torneo.
+. Categorías, modalidades.
+. Presentación del croquis del área o zona del torneo con sus coordenadas, el cual no deberá contemplar dentro de la misma ningún área o zona restringida, Reserva Biológica o Parque Nacional.
+. Requerimientos de veda temporal para la pesca comercial si el torneo lo amerita.
+. En caso de aprobarse una zona de veda temporal a la pesca comercial durante el torneo, el organizador correrá con todos los gastos de publicación del Acuerdo en el Diario Oficial La Gaceta.
+Dirección postal o electrónica para notificaciones.
+El organizador del torneo deberá presentar a la Presidencia Ejecutiva, un informe de los resultados del evento, así como copia de los permisos respectivos, misma que los trasladará al Departamento de Estadística Pesquera y a la Dirección de Ordenamiento Pesquero y Acuícola, para lo de sus competencias.
+(Así reformado el párrafo anterior mediante acuerdo AJDIP/244-2022 del 1° de noviembre de 2022.)
+5º-Para los efectos correspondientes se utilizará el Formulario de solicitud para realizar Torneos de Pesca, que se adjunta en el anexo I y forma parte del presente reglamento.
+6º-Los organizadores del torneo deberán velar que se cumplan todas las previsiones que resulten necesarias para garantizar la seguridad de los participantes de acuerdo a la legislación vigente y a la información disponible.
