@@ -1,0 +1,5 @@
+CAPÍTULO IV
+Medidas Preventivas
+Artículo 9º-Identificación y actualización de las PVFI. El sujeto obligado debe desarrollar un procedimiento que permita la identificación y actualización periódica de la información de las PVFI recurrentes contra estudios de bases de datos internas y externas, gubernamentales y contra listas restrictivas de organismos internacionales.
+Para obtener la información o actualización de las PVFI, el sujeto obligado puede solicitar la autorización de consulta y tomar la información directamente de la base de datos del CICAC que como mínimo suministra: el nombre, número de
+identificación, información del contacto, ubicación, profesión u oficio para personas físicas y número de identificación, razón social, domicilio, actividad económica, puestos principales para personas jurídicas. Además, para obtener la información de los accionistas de las PVFI de las personas jurídicas se puede solicitar la certificación del Registro de Transparencia y Beneficiarios Finales (RTBF).

@@ -1,0 +1,1 @@
+Artículo 13.-Mantenimiento de registros. El sujeto obligado debe mantener el expediente con la información de los PVFI a disposición de la Superintendencia y de las autoridades competentes. Debe aplicar, en lo referente a los plazos de mantenimiento, lo establecido en el artículo 38 del Reglamento para la Prevención del riesgo de LC/FT/FPADM.

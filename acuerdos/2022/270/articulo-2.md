@@ -1,0 +1,1 @@
+Artículo 2º-Alcance. En adición a lo indicado en la Ley 7786 y en el artículo 2 sobre el ámbito de aplicación del Reglamento de Prevención del Riesgo de LC/FT/FPADM, lo dispuesto en este lineamiento aplica a las sociedades administradoras de fondos de inversión que manejan fondos inmobiliarios, de desarrollo de proyectos o fondos de capital de riesgo, autorizados por la SUGEVAL.
