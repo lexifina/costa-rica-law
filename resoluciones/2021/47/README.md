@@ -14,3 +14,4 @@ Procedimiento de subasta pública aduanera
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-03-08 | la propia norma |
+| 2 | 2022-11-01 | Resolución 357 (2022-11-01) |
