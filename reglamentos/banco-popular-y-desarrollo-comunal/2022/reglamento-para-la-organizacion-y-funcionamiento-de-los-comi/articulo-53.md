@@ -1,2 +1,1 @@
-Artículo 53º. Sesiones de la Comisión de Pautas y Banca Social.
-Las sesiones de la Comisión de Pautas y Banca Social son de tipo ordinarias y se desarrollan periódicamente dentro del cronograma establecido por este Comité, al menos mensualmente y en una fecha y hora prefijadas por sus miembros. Podrá sesionar de forma ordinaria como máximo una vez al mes. Además, podrá haber una sesión ordinaria adicional cuando así lo considere la Presidencia del Comité.
+Artículo 53º. Sesiones de la Comisión de Pautas y Banca Social. (Derogado en sesión N° 5952 del 1° de noviembre de 2022)
