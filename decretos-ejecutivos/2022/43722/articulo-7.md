@@ -1,0 +1,1 @@
+Artículo 7º-Toma de Gotas Gruesas y Pruebas de Diagnóstico Rápido de malaria (PDR). Se autoriza a los inspectores de salud 1 y 2 del Ministerio de Salud para que, en el ámbito de aplicación de este Decreto Ejecutivo, apoyen en la toma de gotas gruesas y pruebas rápidas de diagnóstico de malaria (PDR).

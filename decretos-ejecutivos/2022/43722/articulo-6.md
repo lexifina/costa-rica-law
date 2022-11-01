@@ -1,0 +1,1 @@
+Artículo 6º-Diagnóstico. Dada la necesidad de detectar casos de malaria de forma oportuna, se podrán utilizar todos los métodos diagnósticos aprobados para este fin, tomando en cuenta gotas gruesas y pruebas rápidas de diagnóstico de malaria (PDR).

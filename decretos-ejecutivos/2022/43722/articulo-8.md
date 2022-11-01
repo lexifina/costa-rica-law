@@ -1,0 +1,1 @@
+Artículo 8º-Protocolo de Vigilancia para Malaria y Estrategia Nacional para la Eliminación de la Malaria. El Ministerio de Salud oficializará el Protocolo de Vigilancia y Estrategia Nacional para la Eliminación de la Malaria, el cual contemplará los aspectos para que se aborde el proceso del control y eliminación de la Malaria de una forma integral.
