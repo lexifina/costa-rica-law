@@ -1,0 +1,1 @@
+Artículo 2º-Son de aplicación obligatoria las disposiciones de este Reglamento que regula el uso y control de los vehículos automotores del CNC, con el propósito de que estos cumplan apropiadamente los fines a que se destinan. Se regulan, asimismo, los deberes y responsabilidades de funcionarios para que los utilicen en estricta observancia del régimen jurídico.

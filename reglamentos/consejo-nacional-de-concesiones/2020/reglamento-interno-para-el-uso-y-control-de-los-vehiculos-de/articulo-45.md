@@ -1,0 +1,7 @@
+Artículo 45.-En caso de un siniestro, sea por hurto, robo, colisión, vuelco, lesión o muerte, daños a la propiedad de terceros y demás hipótesis de hecho cubiertos por las pólizas de seguros, los funcionarios autorizados deberán seguir las siguientes instrucciones:
+a. Comunicar el accidente de inmediato a las autoridades de tránsito para que se haga la boleta correspondiente. De igual forma, deberá llamar y coordinar la llegada al sitio del accidente de un inspector de la compañía aseguradora para que levante el informe correspondiente del seguro voluntario.
+b. Queda prohibido efectuar arreglos extrajudiciales.
+c. El operador del vehículo informará inmediatamente al Encargado de Transportes sobre los pormenores del accidente, manteniendo un comportamiento cortés con las autoridades que emitan las determinaciones.
+d. En caso de robo o hurto del vehículo, deberá comunicarlo inmediatamente al Encargado de Transportes y/o al Director Administrativo Financiero y proceder sin dilación alguna a interponer la denuncia ante el Ministerio Público.
+Posteriormente, el Encargado de Transportes y/o el Director Administrativo Financiero informará sobre lo sucedido a la Secretaría Técnica.
+e. El chofer y demás funcionarios involucrados en el siniestro, deberán servir como testigos de los hechos acaecidos y cumplir con las citaciones y demás actuaciones en que sean requeridos por las autoridades administrativas y jurisdiccionales hasta su solución definitiva.

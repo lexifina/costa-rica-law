@@ -1,0 +1,1 @@
+Artículo 32.-La función primordial del encargado del Proceso de Transportes es la de organizar, controlar y dirigir los procesos relacionados con el servicio de transportes de la institución, razón por la cual no se le podrá exigir como parte de sus funciones la realización de servicios de transporte, no obstante, en casos de urgencia comprobada, este podrá prestar el servicio.

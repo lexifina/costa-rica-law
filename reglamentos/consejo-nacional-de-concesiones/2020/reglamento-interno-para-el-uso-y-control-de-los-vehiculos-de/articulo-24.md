@@ -1,0 +1,1 @@
+Artículo 24.-Los vehículos oficiales no podrán circular en horas y días inhábiles, ni domingos, ni días feriados y tampoco en los días que se declare asueto nacional, salvo que se cuente con la boleta denominada "Autorización para Vehículos Oficiales que Circulan Fuera de la Jornada Ordinaria de Trabajo", debidamente autorizada.

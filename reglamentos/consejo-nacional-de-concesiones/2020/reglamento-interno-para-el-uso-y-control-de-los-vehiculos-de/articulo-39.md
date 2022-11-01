@@ -1,0 +1,1 @@
+Artículo 39.-En caso de pérdida, hurto o daños en el permiso para operar vehículos oficiales del CNC, el funcionario deberá comunicar la situación al Encargado del Proceso de Transportes para su reposición inmediata.

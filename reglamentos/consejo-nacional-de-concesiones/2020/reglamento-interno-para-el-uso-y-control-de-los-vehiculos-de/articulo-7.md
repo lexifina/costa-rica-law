@@ -1,0 +1,1 @@
+Artículo 7º-El uso de vehículos oficiales de la Institución queda restringido al territorio nacional, salvo que exista autorización expresa de la Secretaría Técnica para la salida temporal del país, previo cumplimiento de los requisitos y trámites exigidos por las instituciones competentes en la materia.

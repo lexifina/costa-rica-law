@@ -1,0 +1,1 @@
+Artículo 20.-En condiciones difíciles de operación, quienes conducen vehículos del CNC deberán actuar prudente y diligentemente evitando la temeridad, a fin de no exponerse a pérdidas humanas y materiales.

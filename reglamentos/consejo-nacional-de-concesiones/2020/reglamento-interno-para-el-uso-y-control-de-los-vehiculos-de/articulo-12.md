@@ -1,0 +1,1 @@
+Artículo 12.-La Dirección Administrativa Financiera en coordinación con el Encargado de Transportes, será la responsable de administrar y asignar los vehículos a los funcionarios que requieran del servicio, esto para agilizar y cubrir las necesidades de interés institucional.

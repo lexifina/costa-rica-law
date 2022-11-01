@@ -1,0 +1,1 @@
+Artículo 25.-Queda prohibido el uso de los vehículos oficiales del CNC en actividades que no se relacionen con las funciones propias del Consejo ni del Gobierno de la República, quedando prohibido su uso en gestiones político-electorales de conformidad con lo establecido en el Código Electoral.

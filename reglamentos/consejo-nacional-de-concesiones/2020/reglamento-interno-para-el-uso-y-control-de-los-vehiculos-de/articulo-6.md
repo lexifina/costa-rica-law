@@ -1,0 +1,1 @@
+Artículo 6º-Los vehículos del Consejo Nacional de Concesiones son estrictamente de uso oficial y no podrán ser empleados o conducidos en funciones o por personas no autorizadas, salvo que por aspectos de trabajo o emergencia se justifique.

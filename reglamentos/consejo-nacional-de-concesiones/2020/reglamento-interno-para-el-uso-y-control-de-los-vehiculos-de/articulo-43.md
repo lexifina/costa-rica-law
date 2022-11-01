@@ -1,0 +1,1 @@
+Artículo 43.-El conductor será responsable de entregar al Encargado del Proceso de Transportes los comprobantes y facturas originales en los siguientes dos días hábiles posteriores a la compra para su cancelación.

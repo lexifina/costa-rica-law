@@ -1,0 +1,1 @@
+Artículo 47.-En caso de sufrir un desperfecto mecánico durante la realización de un servicio, el operador deberá comunicarse inmediatamente con el Encargado del Proceso de Transportes y/o el Director Administrativo Financiero para las debidas instrucciones.

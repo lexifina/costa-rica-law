@@ -1,0 +1,1 @@
+Artículo 48.-Es responsabilidad exclusiva de cada operador, funcionario autorizado, usuarios y de la administración, en lo que compete a cada uno, el cumplimiento de lo establecido en el presente Reglamento y cualquier acción en contrario será sancionada según la normativa vigente.
