@@ -1,0 +1,3 @@
+Artículo 60. Prohibición sobreviniente
+Cuando después de iniciado un procedimiento y antes de que se dicte el acto final sobrevenga una causal de prohibición que afecte a una de las personas trabajadoras del Banco o de las subsidiarias, la persona trabajadora afectada está obligado a inhibirse e informarlo por escrito a su superior jerárquico y se debe abstener de participar en cualquier acto o diligencia relacionada con el trámite del procedimiento de que se trate. La persona trabajadora sujeta a la prohibición se debe abstener de participar, opinar o influir, en cualquier forma, en la ejecución del contrato.
+De ser necesario el superior jerárquico debe disponer la sustitución de la persona trabajadora inhibida.

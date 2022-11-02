@@ -1,4 +1,13 @@
-Artículo 40. Recursos en los procedimientos administrativos
-Contra las decisiones finales que adopte el órgano competente del Banco que resuelven el contrato por incumplimiento grave imputable al contratista, la rescisión unilateral del contrato y la sanción a particulares proceden los recursos de revocatoria y apelación, y el de reposición cuando el acto final haya sido dictado por la Gerencia General o subgerencias.
-Los recursos se deben interponer por el interesado ante el mismo órgano que las dictó, dentro de los tres días hábiles siguientes a aquel en que se le comunique al contratista la decisión.
-Para la resolución de los recursos de revocatoria y apelación se debe aplicar lo dispuesto en la Ley General de la Administración Pública y en las Disposiciones para la contratación administrativa del Banco de Costa Rica.
+Artículo 40. Terminación del contrato
+Los contratos se extinguen por la vía normal, sea por el acaecimiento del plazo, la ejecución del objeto contractual o el mutuo acuerdo. Así determinado en el artículo 110 de la Ley General de Contratación Pública y su Reglamento.
+De modo anormal, los contratos se terminan por:
+a) La resolución.
+b) La rescisión.
+c) La caducidad.
+d) La declaratoria de nulidad.
+e) La muerte del contratista o la extinción de la persona jurídica.
+f) La declaración de insolvencia o quiebra del contratista.
+g) La cesión del contrato sin estar autorizada previamente por la Administración.
+h) La supresión del servicio por razones de interés público.
+i) El rescate del servicio para ser explotado directamente por la Administración.
+Para finalizar de forma anormal un contrato, de conformidad con los anteriores presupuestos, se debe acudir al procedimiento interno dispuesto en las Disposiciones para la contratación pública en el Conglomerado Financiero BCR, y que se basa en lo establecido en el artículo 114 de la Ley General de Contratación Pública.

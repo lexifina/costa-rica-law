@@ -1,5 +1,3 @@
-Capítulo VI
-Formalización y refrendo de los contratos administrativos
-Artículo 18. Formalización contractual
-Los contratos se deben formalizar siguiendo lo dispuesto en el artículo 198 del Reglamento a la Ley de Contratación Administrativa y en el caso de las contrataciones electrónicas de acuerdo con lo regulado en el Reglamento para la utilización del Sistema Integrado de Compras Públicas SICOP. Se deben confeccionar en escritura pública los contratos que por su naturaleza así lo requiera y deban inscribirse en el Registro Nacional, así como los que por ley tengan que cumplir ese requisito.
-Para el procedimiento a seguir, se debe considerar lo establecido en las Disposiciones para la contratación administrativa en el Banco de Costa Rica.
+Artículo 18. Contrato de arrendamiento financiero
+En este tipo de contrato, el Conglomerado financiero BCR como arrendatario se obliga a pagar una contraprestación periódica denominada cuota de arrendamiento financiero, la cual puede ser por un monto fijo, variable o reajustable. Para emplear el arrendamiento financiero el Conglomerado financiero BCR debe justificar la conveniencia y oportunidad de su utilización frente a otras posibles opciones para satisfacer su necesidad, todo lo cual debe quedar debidamente acreditado en el expediente electrónico respectivo, de conformidad con lo establecido en el artículo 77 de la Ley General de Contratación Pública y su Reglamento.
+Para el procedimiento, se debe aplicar lo dispuesto en las Disposiciones para la contratación pública en el Conglomerado Financiero BCR.

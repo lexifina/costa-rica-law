@@ -1,4 +1,3 @@
-Capítulo VII
-Ejecución contractual
-Artículo 24. Orden de inicio
-En toda contratación se debe emitir y notificar al contratista, conforme a lo dispuesto en el cartel, la orden de inicio del contrato respectivo. La notificación al contratista se debe hacer dentro del plazo establecido en el cartel, o, en su defecto, dentro de los quince días hábiles siguientes a aquel en que se reciba el refrendo del contrato o se emita la respectiva orden de compra, según corresponda. En dicha orden de inicio se debe especificar la fecha a partir de la cual empieza a regir el plazo de ejecución contractual. En el caso de contrataciones electrónicas se debe comunicar la orden de inicio mediante la plataforma SICOP.
+Artículo 24. Formas de pago
+El pago al contratista procede una vez recibido a satisfacción el bien, obra o servicio. No obstante, se pueden convenirse pagos por anticipado, cuando así lo establezca el pliego de condiciones, en cuyo caso el Banco o subsidiarias puede otorgar pagos anticipados por un máximo del veinte por ciento (20%) del monto total de la contratación, porcentaje que se debe definir en el pliego de condiciones, todo pago anticipado debe estar respaldado por una garantía de cumplimiento.
+Se puede utilizar cualquier medio de pago que resulte seguro para ambas partes, incluidos los medios electrónicos, por lo cual en el pliego de condiciones se deben detallar los medios de pago que se van a utilizar en el concurso, y las formas de pago que se establecen en la Ley General de Contratación Pública y su Reglamento.

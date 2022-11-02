@@ -1,4 +1,2 @@
-Capítulo XI
-Disposiciones finales
-Artículo 47. Normas supletorias
-Cualquier hecho de fondo o de orden procedimental no previsto en el presente Reglamento debe ser resuelto aplicando las normas pertinentes de la Ley de Contratación Administrativa y su Reglamento cuyas disposiciones por el fondo deben prevalecer en caso de contradicción con el presente instrumento, así como el Reglamento para la utilización del Sistema Integrado de Compras Públicas SICOP.
+Artículo 47. Cesión de los derechos de pago
+Los derechos de pago frente al Banco o subsidiaria originados en contratos administrativos pueden ser cedidos por el contratista a un tercero, en cualquier momento, sin que sea necesario el consentimiento del Banco o de la subsidiaria. No obstante, se deben respetar en un todo las regulaciones pertinentes que sobre esta materia se desarrollan en el Reglamento a la Ley General de Contratación Pública, ello en salvaguarda de los intereses legales, económicos, financieros y técnicos del Conglomerado Financiero BCR.

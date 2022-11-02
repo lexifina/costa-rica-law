@@ -1,10 +1,9 @@
-Artículo 46. De la tarjeta de compras institucionales
-La tarjeta de compras institucionales es una tarjeta que tiene asociada una suma o línea de pago revolutiva que el Banco le asigna a algunas personas servidoras, para la compra de bienes o servicios que son requeridos en forma inmediata y ocasional, para la adecuada operatividad o funcionamiento de las diferentes áreas del Banco y cuya adquisición no se encuentre disponible a través de la proveeduría interna del Conglomerado Financiero BCR.
-La asignación y uso de las tarjetas de compras institucionales debe ser autorizada únicamente por:
-a. Gerente general y subgerentes del BCR.
-b. Auditora, auditor, subauditora o subauditor general corporativo.
-c. Gerentes corporativos.
-d. Gerentes de área.
-e. Gerentes regionales.
-Los colaboradores antes mencionados tienen la facultad de designar los servidores que deben utilizar la tarjeta y el monto límite de cada tarjeta.
-Las Disposiciones Administrativas para regular el uso de las tarjetas de compras institucionales en el Conglomerado Financiero BCR, establecen los lineamientos para la utilización de la tarjeta institucional.
+Artículo 46. Cesión del contrato
+Los derechos y obligaciones derivados de un contrato en ejecución pueden ser cedidos a un tercero, siempre que no se trate de una obligación personalísima. Toda cesión debe ser autorizada por el órgano que adjudicó el contrato, o uno de los niveles superiores de atribuciones, mediante acto debidamente razonado, previa solicitud de criterio a la oficina técnica solicitante. Para adoptar la decisión se deben analizar como mínimo los siguientes aspectos, mediante acto motivado:
+a. Causa de la cesión.
+b. Grado de cumplimiento por parte del cesionario de las principales condiciones legales, técnicas y financieras solicitadas en el pliego de condiciones.
+c. Que el cesionario no esté afectado por alguna causal legal de prohibición.
+d. Ventajas de la cesión frente a la posibilidad de resolver el contrato.
+e. Eventuales incumplimientos del cedente hasta el momento de su solicitud y medidas administrativas adoptadas al respecto.
+En el caso de las contrataciones del Banco y de las subsidiarias realizadas por el Banco, la tramitación de la cesión debe ser realizada por la Oficina de Contratación Administrativa, quien cuenta con un plazo de diez días hábiles para resolver la solicitud la cual debe requerir en lo que corresponda, la participación de la oficina técnica solicitante o de la oficina responsable de la ejecución contractual y debe ser autorizada por el órgano o personas trabajadoras que adjudicaron la contratación. La solicitud de cesión se debe acompañar como mínimo del requerimiento formulado por el cedente, la aceptación del cesionario y cualquier documentación que resulte pertinente en relación con sus condiciones, según lo establece el artículo 102 de la Ley General de Contratación Pública y su Reglamento La cesión del contrato sin estar autorizada previamente por el Banco o por la subsidiaria, extingue el contrato y origina un procedimiento especial, según se establece en el artículo 114 de la Ley General de la Contratación Pública y en las Disposiciones para la contratación pública en el Conglomerado Financiero BCR.
+En el caso de las contrataciones tramitadas por las subsidiarias, deben realizar esta gestión siguiendo los lineamientos antes indicados.

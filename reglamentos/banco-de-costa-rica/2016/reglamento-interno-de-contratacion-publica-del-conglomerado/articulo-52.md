@@ -1,0 +1,6 @@
+Artículo 52. Caducidad
+La figura de caducidad aplica ante la inactividad del Banco (o subsidiaria) o del contratista, por un período que alcance seis meses, ya sea de forma continua o de la sumatoria de las suspensiones parciales e implica la extinción del contrato en la etapa en que se encuentre.
+El cómputo del plazo se debe realizar de forma separada en cuanto a las actuaciones propias del Conglomerado Financiero BCR y aquellas del contratista, siendo que la primera que alcance ese plazo origina la caducidad. Se exceptúan de lo anterior los convenios marco y las modalidades de entrega, según demanda y consignación.
+Solamente en el caso de que el contrato caduque por responsabilidad del Banco o de la subsidiaria, cabe indemnización para el contratista, siempre y cuando este haya realizado gestiones tendientes a la consecución de la ejecución del contrato, en tal caso, tiene responsabilidad la persona trabajadora que con su omisión hubiera dado lugar a la caducidad del contrato.
+Lo anterior de conformidad con lo establecido en el artículo 112 de la Ley General de Contratación Pública y su Reglamento.
+El trámite interno para el procedimiento administrativo está regulado en las Disposiciones para la contratación pública en el Conglomerado Financiero BCR.

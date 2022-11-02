@@ -1,3 +1,4 @@
-Artículo 22. Casos en que procede el refrendo interno del contrato
-La Oficina de Contratación Administrativa debe solicitar el refrendo interno de los contratos administrativos a la Gerencia Jurídica de Derecho Público en todos aquellos casos expresamente así contemplados en el Reglamento sobre el refrendo de las contrataciones de la administración pública emitido por la Contraloría General de la República.
-Para los efectos anteriores, la estimación del precio del contrato debe considerar únicamente su plazo original y no sus eventuales prórrogas.
+Artículo 22. Razonabilidad del precio
+El Banco y sus subsidiarias deben realizar un estudio de razonabilidad del precio, debiendo utilizar la información del estudio de mercado para el análisis de la razonabilidad del precio, mediante el uso del sistema digital unificado y el banco de precios, y para lo cual debe acatar lo dispuesto en las Disposiciones para la contratación pública en el Conglomerado Financiero BCR.
+En el supuesto de que presente dudas acerca de la razonabilidad del precio de una oferta y ese sea el único factor determinante para adjudicar, se podrá adjudicar la contratación siempre y cuando el oferente presente de previo a la adjudicación una línea de crédito o garantía que asegure que cuenta con medios para cumplir con el bien, la obra o el servicio, sin que el Banco o subsidiaria cancele un mayor precio que el cotizado.
+El procedimiento para realizar el estudio de razonabilidad se regula en las Disposiciones para la contratación pública en el Conglomerado Financiero BCR.

@@ -1,2 +1,7 @@
-Artículo 17. Uso de medios electrónicos
-Los procedimientos de contratación administrativa se deben tramitar por medio del sistema de compras públicas SICOP, salvo los casos de excepción regulados en el artículo 9- Excepciones al uso de SICOP, del Reglamento para la utilización del Sistema Integrado de Compras Públicas SICOP, donde se acredite que la tramitación fuera del sistema es la mejor forma de satisfacer el interés público.
+Capítulo V
+Procedimientos de contratación
+Artículo 17. Contratación de bienes, obras y servicios
+Los bienes, obras y servicios que al Banco y subsidiarias les interese adquirir deben ser contratados mediante la promoción de los procedimientos de licitación mayor, licitación menor y licitación reducida, convenio marco, según corresponda de acuerdo con la legislación especial en la materia.
+Asimismo, para la realización de sus distintas contrataciones el Banco y subsidiarias deben usar los demás procedimientos y modalidades que contempla dicha legislación, como el remate, compra pública innovadora, la subasta inversa a la baja y los procedimientos especiales, tales como de urgencia, de bienes inmuebles o de servicios en competencia.
+Inclusive el Banco y sus subsidiarias puede emplear cualquier figura contractual no regulada expresamente en el ordenamiento jurídico, debiéndose remitir el reglamento a consulta a la Dirección de Contratación Pública, siempre y cuando, se ajuste a las condiciones dispuestas en el artículo 85 de la Ley General de Contratación Pública y su Reglamento. En todos los casos los procedimientos que se tramiten se deben ajustar a dicha legislación y contar para su inicio con la autorización y justificación de alguna de las personas trabajadoras facultadas por el artículo 6 de este Reglamento.
+La persona trabajadora que autorice el inicio del procedimiento respectivo es el responsable de la veracidad de la información que se incorpore al expediente.

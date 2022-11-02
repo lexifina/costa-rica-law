@@ -1,2 +1,3 @@
-Artículo 49. Vigencia y derogatorias
-Este Reglamento rige a partir de su publicación en el Diario Oficial La Gaceta y deroga o modifica, en lo que se le opongan, las disposiciones administrativas anteriores sobre la misma materia y se debe aplicar siempre con sujeción a las normas específicas del ordenamiento administrativo que regulen los asuntos que sean tratados en cada caso, sin perjuicio de lo estipulado en normas de rango superior.
+Artículo 49. Reajuste de precios
+Los reajustes de precios deben ser tramitados conforme a lo dispuesto en el artículo 43 de la Ley General de Contratación Pública y su Reglamento.
+La suma para pagar por los reajustes de precios debe ser autorizados por las personas trabajadoras indicadas en el artículo 6 de este reglamento, dentro del marco de sus atribuciones, de acuerdo con la cuantía del monto a pagar.

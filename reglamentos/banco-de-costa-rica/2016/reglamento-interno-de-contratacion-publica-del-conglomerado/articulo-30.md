@@ -1,5 +1,2 @@
-Artículo 30. Ejecución de garantías de participación y cumplimiento
-La ejecución de la garantía de cumplimiento se puede realizar en el procedimiento de resolución contractual que se instruya por parte de la Oficina de Contratación Administrativa o mediante el procedimiento especial para el cobro de la garantía de cumplimiento, establecido en el artículo 41 del Reglamento a la Ley de Contratación Administrativa.
-Cuando la ejecución se realice mediante el procedimiento especial establecido en el artículo 41 del Reglamento a la Ley de Contratación Administrativa, este debe ser iniciado y dictado en su acto final por la Oficina de Contratación Administrativa.
-En lo que corresponda, se debe aplicar el mismo trámite para la garantía de participación, según las causales establecidas en el artículo 39 del Reglamento a la Ley de Contratación Administrativa.
-El trámite interno de este procedimiento especial está regulado en las Disposiciones para la contratación administrativa en el Banco de Costa Rica.
+Artículo 30. Régimen jurídico aplicable
+El régimen jurídico aplicable a la función de refrendo de los contratos administrativos del Conglomerado Financiero BCR es el establecido en la Ley Orgánica de la Contraloría General de la República, en la Ley General de Contratación Pública y su Reglamento, así como en las disposiciones del Reglamento sobre el refrendo de las contrataciones de la administración pública y de este Reglamento.

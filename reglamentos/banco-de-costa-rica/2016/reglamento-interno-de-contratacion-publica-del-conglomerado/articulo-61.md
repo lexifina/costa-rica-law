@@ -1,0 +1,4 @@
+Artículo 61. Causales y procedimiento para sancionar a particulares
+Los particulares pueden ser sancionados por incurrir en algunas de las causales establecidas en el artículo 119 de la Ley General de Contratación Pública conforme al procedimiento determinado en el artículo 121 de la Ley General de Contratación Pública y su Reglamento.
+Para aplicar la sanción, que puede ser una inhabilitación simple o calificada, se debe valorar los criterios establecidos en el artículo 120 de la Ley General de Contratación Pública. El Banco y las subsidiarias deben comunicar a la Dirección de Contratación Pública, la sanción impuesta, la cual se deber comunicar dentro del día hábil siguiente a que la sanción quede en firme, así establecido en el artículo 123 de la Ley General de Contratación Pública y su Reglamento.
+El trámite interno está regulado en las Disposiciones para la contratación pública en el Conglomerado Financiero BCR.

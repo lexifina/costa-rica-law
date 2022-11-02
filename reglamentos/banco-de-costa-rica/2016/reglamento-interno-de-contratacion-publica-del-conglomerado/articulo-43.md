@@ -1,4 +1,3 @@
-Capítulo X
-De la autorización de gastos de agasajos, recepciones y eventos especiales
-Artículo 43. Gastos por agasajos, recepciones y eventos especiales
-Los gastos por agasajos, recepciones y eventos especiales son aquellos en los que el Banco incurre en la celebración de actos conmemorativos a personas ajenas al Banco u originados en la realización de actividades especiales de trabajo.
+Artículo 43. Rescisión del contrato por mutuo acuerdo
+Únicamente puede ser convenida cuando existan razones de interés público y no medie causa de resolución imputable al contratista, y reconocer cualquier daño y perjuicio previa comprobación, dentro de los límites de razonabilidad y proporcionalidad, según lo establece el artículo 116 de la Ley General de Contratación Pública.
+El trámite interno para el procedimiento administrativo está regulado en las Disposiciones para la contratación pública en el Conglomerado Financiero BCR.

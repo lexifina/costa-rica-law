@@ -1,0 +1,3 @@
+Artículo 56. Multa por presentación de recursos temerarios
+Se deben aplicar multas por la presentación de recursos temerarios, tal y como se establece en los artículos 93 y 94 de la Ley General de Contratación Pública, cuando el recurrente abusa ejercitando acciones infundadas y de mala fe. El procedimiento para aplicar estas multas a los recursos que corresponde conocer al Banco o sus subsidiarias debe ser instruido por la Oficina de Contratación Administrativa, y se establece en las Disposiciones para la contratación pública en el Conglomerado Financiero BCR.
+El monto que se obtenga como resultado de la imposición de una multa debe ser trasladado a la caja única del Estado.

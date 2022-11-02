@@ -1,2 +1,4 @@
-Artículo 32. Rescisión unilateral del contrato
-La rescisión unilateral de contratos administrativos no iniciados o en curso de ejecución debe proceder por razones de caso fortuito, fuerza mayor o interés público o bien por mutuo acuerdo, según lo establece el artículo 11 de la Ley de Contratación Administrativa y artículos 214, 215 y 216 del Reglamento a la Ley de Contratación Administrativa.
+Artículo 32. Modificación unilateral del contrato
+El órgano o persona trabajadora que emitió el acto de adjudicación, o personas trabajadoras con rangos de iguales o superiores atribuciones pueden modificar unilateralmente el contrato a partir de su perfección, aún antes de iniciarse su ejecución o durante esta, a cuyo efecto se deben dar los supuestos y cumplir las reglas establecidas en el artículo 101 de la Ley General de Contratación Pública y su Reglamento.
+En el caso de contrataciones del BCR y de las subsidiarias tramitadas por la Oficina de Contratación Administrativa, la tramitación correspondiente debe ser realizada por dicha Oficina, con el apoyo necesario de la oficina técnica solicitante o de la oficina responsable de la ejecución contractual.
+En el caso de contrataciones tramitadas por las subsidiarias, las modificaciones deben ser gestionadas por las jefaturas o gerencias de las áreas que promovieron la contratación.

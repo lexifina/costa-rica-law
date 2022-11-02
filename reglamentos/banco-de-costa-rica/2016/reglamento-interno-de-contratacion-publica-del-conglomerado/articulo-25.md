@@ -1,3 +1,6 @@
-Artículo 25. Modificación unilateral del contrato
-El órgano o servidor que emitió el acto de adjudicación, o servidores con rangos de iguales o superiores atribuciones pueden modificar unilateralmente el contrato a partir de su perfección, aún antes de iniciarse su ejecución o durante esta, a cuyo efecto se deben dar los supuestos y cumplir las reglas establecidas en el artículo 208 del Reglamento a la Ley de Contratación Administrativa, incluyendo cuando proceda la obtención de la autorización de la Contraloría General de la República para los supuestos que no se ajusten a la condición de imprevisión o que superen el cincuenta por ciento del valor de la contratación.
-La tramitación correspondiente debe ser realizada por la Oficina de Contratación Administrativa con el apoyo necesario de la oficina técnica solicitante o de la oficina responsable de la ejecución contractual.
+Capítulo VI
+Formalización y refrendo de los contratos administrativos
+Artículo 25. Formalización contractual
+La formalización contractual para el correcto entendimiento de los alcances de los derechos y obligaciones se configura con la firma digital de las partes en el sistema digital unificado.
+Los contratos se deben formalizar siguiendo lo dispuesto en el Reglamento a la Ley General de Contratación Pública. En escritura pública se deben confeccionar los contratos que por su naturaleza así lo requiera y deban inscribirse en el Registro Nacional, así como los que por ley tengan que cumplir ese requisito.
+Para el procedimiento a seguir, aplica lo dispuesto en las Disposiciones para la contratación pública en el Conglomerado Financiero BCR.

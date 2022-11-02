@@ -1,2 +1,3 @@
-Artículo 44. Servidores autorizados
-El gerente general, los subgerentes, los gerentes corporativos, gerentes de área y el jefe de la Oficina de Contratación Administrativa o quienes les sustituyan formalmente, están facultados para adjudicar conjuntamente la realización de tales gastos de acuerdo con las atribuciones establecidas en el artículo 7 de este Reglamento.
+Artículo 44. Rescate del servicio para ser explotado directamente por la Administración
+Cuando el Banco o sus subsidiarias determinen que existen motivos sobrevinientes de interés público para asumir directamente la prestación del servicio, puede decretar su rescate por causa de interés público, mediante acto motivado por el jerarca del Banco o de la subsidiaria, y acudir al procedimiento establecido en el artículo 114 de la Ley General de Contratación Pública, así regulado en el Reglamento a la citada ley.
+El trámite interno para el procedimiento administrativo está regulado en las Disposiciones para la contratación pública en el Conglomerado Financiero BCR.

@@ -1,9 +1,3 @@
-Artículo 45. Del manejo de fondos de caja chica
-Caja chica es un fondo fijo destinado para atender exclusivamente la adquisición de bienes y servicios de poca cuantía y que sean de carácter indispensable, urgente y ocasional y que no puedan ser adquiridos por los procedimientos de compra ordinarios por el tiempo y trámite que implica su realización.
-El gerente general o los subgerentes pueden crear fondos de caja chica en la oficina central u otras unidades administrativas descentralizadas cuando lo consideren conveniente y establecer:
-a. El monto fijo del fondo.
-b. La oficina responsable de este.
-c. Los servidores que pueden autorizar retiros.
-d. El monto máximo de cada retiro.
-Los funcionarios con competencia para establecer los límites de caja chica, deben aplicar criterios de razonabilidad, proporcionalidad y eficiencia para establecer dichos montos, de manera que resulten congruentes con la naturaleza de los bienes y servicios que se adquieren por este medio, los cuales son de baja cuantía.
-Los fondos de caja chica se deben regir por lo establecido en las Disposiciones administrativas para el manejo de caja chica en el Banco de Costa Rica.
+Artículo 45. Supresión del servicio por razones de interés público
+Cuando a criterio del Banco o de la subsidiaria existan motivos de interés público sobrevinientes, se puede suprimir la prestación del servicio, mediante acto motivado que debe ser suscrito por parte del jerarca, y acudir al procedimiento previsto en el artículo 114 de la Ley General de Contratación Pública, así regulado en el Reglamento a la citada ley.
+El trámite interno para el procedimiento administrativo está regulado en las Disposiciones para la contratación pública en el Conglomerado Financiero BCR.

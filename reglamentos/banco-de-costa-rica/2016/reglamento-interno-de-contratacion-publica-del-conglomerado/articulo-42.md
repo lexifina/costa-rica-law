@@ -1,3 +1,4 @@
-Artículo 42. Procedimiento para sancionar a particulares
-Los particulares que participen en los procedimientos de contratación que el Banco promueva deben acatar el régimen de prohibiciones que contemplan los artículos 22 y 22 bis de la Ley de Contratación Administrativa y cumplir a cabalidad las obligaciones que se derivan de dicha participación; caso contrario, deben ser susceptibles de ser sancionados conforme al régimen de sanciones a particulares que contemplan la Ley de Contratación Administrativa y su Reglamento.
-El trámite interno estará regulado en las Disposiciones administrativas para la contratación administrativa del Banco de costa Rica.
+Artículo 42. Rescisión del contrato por voluntad de la Administración
+La rescisión por voluntad del Banco o sus subsidiarias de los contratos no iniciados o en curso de ejecución debe proceder por razones de caso fortuito, fuerza mayor o interés público o bien por mutuo acuerdo, según lo establece el artículo 115 y 116 de la Ley General de Contratación Pública y para lo cual se debe instruir el procedimiento especial establecido en el artículo 114 de la Ley General de Contratación Pública.
+La Oficina de Contratación Administrativa debe fungir como Órgano Instructor del procedimiento especial y resolver los recursos contra las resoluciones de mero trámite e incidentales que se interpongan dentro de este.
+El trámite interno para el procedimiento administrativo está regulado en las Disposiciones para la contratación pública en el Conglomerado Financiero BCR.

@@ -1,3 +1,3 @@
-Artículo 21. Casos en que procede el refrendo a la Contraloría General de la República
-La Oficina de Contratación Administrativa debe solicitar el refrendo de los contratos administrativos a la Contraloría General de la República en todos aquellos casos expresamente contemplados en el Reglamento sobre el refrendo de las contrataciones de la administración pública emitido por esa Institución.
-Dicha oficina debe remitir la solicitud respectiva dentro de los tres días hábiles siguientes a aquel en que el contrato sea debidamente suscrito por ambas partes.
+Artículo 21. De las mejoras del precio
+En todos los procedimientos de compras públicas que la Administración considere necesario, se puede incorporar en los pliegos de condiciones la posibilidad de que los elegibles mejoren sus precios, de conformidad con lo regulado en el Reglamento a la Ley General de Contratación Pública, para lo cual se debe definir claramente en el pliego la metodología que se debe aplicar, respetando la igualdad de trato, la buena fe y la transparencia.
+Para el procedimiento de mejora del precio, se debe aplicar lo dispuesto en las Disposiciones para la contratación pública en el Conglomerado Financiero BCR.
