@@ -1,1 +1,0 @@
-Artículo 9°-El presente Decreto Ejecutivo rige a partir de su publicación en el Diario Oficial La Gaceta, y su vigencia finaliza una vez que se levante el estado de emergencia nacional en todo el territorio de la República de Costa Rica, decretado con motivo de la situación de emergencia sanitaria provocada por la enfermedad COVID- 19.

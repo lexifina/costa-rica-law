@@ -1,2 +1,0 @@
-Artículo 7°-Se instruye a la Dirección General de Aduanas velar por la aplicación del presente Decreto Ejecutivo, debiendo revisar que las exportaciones de los productos señalados en el artículo 1° del presente Decreto, cuenten con la respectiva Licencia.
-Por consiguiente, deberá impedir la exportación de los productos señalados, cuando no se adjunte la respectiva Licencia de Exportación a los documentos aduaneros correspondientes.

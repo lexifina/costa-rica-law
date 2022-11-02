@@ -1,1 +1,0 @@
-Artículo 4°-El Ministerio de Economía, Industria y Comercio deberá resolver la solicitud de Licencia de Exportación en el plazo de cinco días hábiles. Dicho plazo podrá ser ampliado en cinco días hábiles más, en el caso de que el solicitante deba presentar información adicional para efectos del análisis de la solicitud.

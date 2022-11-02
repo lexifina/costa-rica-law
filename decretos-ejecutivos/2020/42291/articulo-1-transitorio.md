@@ -1,2 +1,0 @@
-Transitorio Único.-Aquellos exportadores no amparados a la excepción indicada en el artículo 8 del presente Decreto Ejecutivo que, al momento de la emisión del mismo, cuenten con mercancías y productos contemplados en la lista que se detalla en su artículo 1° que vayan a ser exportados, deberán solicitar la respectiva Licencia de Exportación.
-Dado en la Presidencia de la República, San José, a los ocho días del mes de abril del año dos mil veinte.

@@ -1,4 +1,0 @@
-Artículo 2 bis°.- Del monitoreo y la comunicación del desabasto nacional. Para efectos del monitoreo y comunicación del desabasto nacional de los productos señalados en el artículo 1° del presente Decreto Ejecutivo:
-a) El Ministerio de Salud, la Caja Costarricense de Seguro Social y la Comisión Nacional de Prevención de Riesgos y Atención de Emergencias deberán comunicar al MEIC cuando exista desabasto de los mismos.
-b) El Ministerio de Agricultura y Ganadería y el Consejo Nacional de Producción, deberán comunicar al MEIC cuando exista riesgo de desabasto por el comportamiento del inventario de etanol y de los productos indicados en el artículo 1° (Alcohol fricción, Alcohol multiuso, Solución antiséptica para higiene, Alcohol en gel y Alcohol etílico).
-(Así adicionado por el artículo 2° del decreto ejecutivo N° 42354 del 21 de mayo del 2020)

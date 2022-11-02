@@ -1,3 +1,0 @@
-Artículo 2°- Las personas físicas o jurídicas que deseen exportar los productos indicados en la lista anterior, deberán contar con una Licencia de Exportación, expedida por el Ministerio de Economía, Industria y Comercio (MEIC).
-La referida licencia se emitirá por la vía de una resolución administrativa, la cual tendrá una vigencia de 15 días naturales para efectos de la exportación del o los productos objeto de la Licencia, y su denegatoria podrá ser recurrida por el interesado, de conformidad con la Ley General de la Administración Pública.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 42354 del 21 de mayo del 2020)
