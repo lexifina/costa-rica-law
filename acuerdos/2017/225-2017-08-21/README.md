@@ -14,3 +14,4 @@ Reforma Acuerdo que Establece restricciones para el otorgamiento de servicios nu
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-09-14 | la propia norma |
+| 2 | 2022-11-02 | Acuerdo 240 (2022-11-02) |
