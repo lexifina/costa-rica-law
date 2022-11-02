@@ -15,3 +15,4 @@ Reforma Establece restricciones para el otorgamiento de servicios nuevos de agua
 | --- | --- | --- |
 | 1 | 2019-02-28 | la propia norma |
 | 2 | 2020-05-25 | Acuerdo 93 (2020-05-25) |
+| 3 | 2022-11-02 | Acuerdo 240 (2022-11-02) |
