@@ -14,3 +14,4 @@ Reforma Establece restricciones para el otorgamiento de servicios nuevos de agua
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-06-24 | la propia norma |
+| 2 | 2022-11-02 | Acuerdo 240 (2022-11-02) |
