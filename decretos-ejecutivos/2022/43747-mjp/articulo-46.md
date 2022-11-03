@@ -1,0 +1,1 @@
+Artículo 46.-El rechazo de plano del recurso de apelación por inadmisión. Interpuesto el recurso el Órgano Colegiado lo rechazará de plano, si no se ajusta a los requisitos prescritos en el artículo anterior y enviará el legajo al registro de origen para que se una al expediente principal.

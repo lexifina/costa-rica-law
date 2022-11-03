@@ -1,0 +1,1 @@
+Artículo 19.-Del Vicepresidente(a). En caso de ausencias temporales, renuncia, destitución, incapacidad permanente o muerte del presidente, el vicepresidente(a) lo sustituirá con las mismas facultades y atribuciones, ejerciendo el cargo hasta que el presidente(a) reasuma su cargo o hasta que se nombre uno nuevo, conforme al procedimiento dispuesto en la Ley.

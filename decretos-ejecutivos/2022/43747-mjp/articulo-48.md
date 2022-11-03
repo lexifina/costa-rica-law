@@ -1,0 +1,1 @@
+Artículo 48.-Improcedencia del recurso de apelación por inadmisión. Si el recurso de apelación fuere improcedente, el Órgano Colegiado confirmará la resolución denegatoria dictada por el Registro de primera instancia, y el Juez(a) Tramitador(a) remitirá el expediente y el legajo, para que éste sea agregado al principal.

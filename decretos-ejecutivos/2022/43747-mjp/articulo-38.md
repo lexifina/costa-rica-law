@@ -1,0 +1,2 @@
+Artículo 38.-Asesoramiento técnico. Conforme lo dispuesto por el artículo 23 de la Ley de Procedimientos de Observancia de los Derechos de Propiedad Intelectual, en cualquier estado del procedimiento, el Tribunal podrá gestionar el asesoramiento pericial que considere idóneo y necesario, cuando así lo amerite el nivel técnico del punto en discusión.
+El asesoramiento no podrá provenir de personas relacionadas con el asunto por resolver o interesadas en él.

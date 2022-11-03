@@ -1,0 +1,6 @@
+CAPÍTULO II
+Proceso de Reclutamiento, Selección y Nombramiento
+de los Jueces(as) que Integran el Órgano Colegiado
+del Tribunal Registral Administrativo
+Artículo 6°-Integración del Tribunal Registral Administrativo. El Tribunal estará integrado por cinco jueces(as) titulares, así como cinco jueces(as) suplentes, tanto los titulares, como los suplentes serán nombrados de la siguiente manera: dos por el Ministro(a) de Justicia y Paz; y la Junta Administrativa del Registro Nacional enviará fres ternas al Poder Ejecutivo, para que se nombren a los tres miembros restantes. Todos los nombramientos se harán previo concurso de antecedentes y deberán ser ratificados por la Asamblea Legislativa.
+Cada vez que se integre una nueva conformación del Órgano Colegiado y así consecutivamente durante la respectiva conformación cada primero de diciembre, el Tribunal nombrará de su seno un presidente(a), un vicepresidente(a) y un secretario(a), quienes desempeñarán el cargo por un período de un año. Los miembros que desempeñen tales cargos podrán reelegirse indefinidamente, hasta por el período máximo de sus nombramientos, Si antes del vencimiento del año quedare un cargo vacante, el Tribunal podrá hacer un nuevo nombramiento hasta completar el resto del período.

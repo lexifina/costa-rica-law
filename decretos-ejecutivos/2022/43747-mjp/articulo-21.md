@@ -1,0 +1,1 @@
+Artículo 21.-Del Juez(a) Tramitador(a). El Juez(a) Tramitador(a) tendrá, en lo que respecta a los procedimientos seguidos en el Tribunal, las facultades y atribuciones descritas en este reglamento, así como en el manual institucional de clases, y será suplido cuando corresponda, por el suplente que designe el Órgano Colegiado.

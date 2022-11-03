@@ -1,0 +1,1 @@
+Artículo 25.-Nulidad. La resolución dictada por el Tribunal integrado por un miembro con motivo de impedimento será nula absolutamente y de pleno derecho, siempre que el motivo conste en el expediente, o sea de conocimiento del miembro con anterioridad a resolver el asunto.
