@@ -1,0 +1,1 @@
+Artículo 3º-Descripción del Incentivo a otorgar. El incentivo a otorgar corresponde a un dispensador de juegos de Lotería Instantánea tamaño: 6.2" Alto por 8.97" ancho por 7.2" de profundidad, capacidad para 2 juegos, con puerta de seguridad, placa de sujeción, divisor removible, pantalla, clips de funciones de panel lateral, barra de corte de tres dedos.

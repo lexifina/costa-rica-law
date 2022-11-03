@@ -1,0 +1,1 @@
+Artículo 9º-Vigencia. Este procedimiento rige a partir de su publicación en el Diario Oficial La Gaceta y por tiempo indefinido, reservándose la Junta, por interés institucional, la potestad de suprimir en cualquier momento el otorgamiento de dispensadores.
