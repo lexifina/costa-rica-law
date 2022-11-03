@@ -1,0 +1,1 @@
+Artículo 63. Una vez finalizado el periodo del contrato; el CNC iniciará la devolución de la totalidad del equipo recibido, por lo que se confeccionará un cronograma de devolución, el cual será notificado a los funcionarios.

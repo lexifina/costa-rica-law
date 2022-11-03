@@ -1,0 +1,1 @@
+Artículo 85. El servicio de sitio web institucional es oficialmente propiedad del CNC, se considera una herramienta de comunicación e intercambio oficial de información a disposición de los funcionarios internos y externos, siempre en procura de mejorar el acceso a la información por parte de la ciudadanía y brindar transparencia en la gestión institucional.

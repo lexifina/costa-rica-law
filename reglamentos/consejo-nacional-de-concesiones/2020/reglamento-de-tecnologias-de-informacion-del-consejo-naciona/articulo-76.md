@@ -1,0 +1,1 @@
+Artículo 76. El proceso de Servicios Generales, gestionará el trámite correspondiente ante el operador telefónico elegido, el cual comprende entre la adquisición o cese de servicios, la información será remitida al Área Administrativa Financiera para lo correspondiente.

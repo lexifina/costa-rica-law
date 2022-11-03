@@ -1,0 +1,1 @@
+Artículo 30. La Unidad de Planificación Institucional, en coordinación con el Área de TI será la responsable del diseño, mantenimiento y publicación de la documentación que proporcionen las diferentes Áreas del CNC, con el fin de incorporarlas al sitio web.

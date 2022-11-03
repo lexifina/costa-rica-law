@@ -1,0 +1,1 @@
+Artículo 61. Los mantenimientos preventivos se realizarán un mínimo de dos veces al año durante todo el periodo de arrendamiento, según un cronograma previamente definido y aprobado por el Área de TI.

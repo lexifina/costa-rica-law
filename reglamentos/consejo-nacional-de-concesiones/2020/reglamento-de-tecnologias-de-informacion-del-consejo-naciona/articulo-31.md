@@ -1,0 +1,1 @@
+Artículo 31. La información enviada por las jefaturas de cada área deberá ser remitida en formato PDF, la cual deberá ser revisada y validada por el Área de TI, quien una vez habiendo otorgado el respectivo visto bueno la publicará.

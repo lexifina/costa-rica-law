@@ -1,0 +1,2 @@
+Artículo 77. Tarifa telefónica, planes de financiamiento a reconocer por el CNC. La tarifa telefónica que se reconocerá incluye las llamadas telefónicas, el uso de Internet y de mensajería de texto. Para el caso de los planes telefónicos que incluyan el financiamiento del teléfono celular, se excluirá de la tarifa telefónica el costo mensual del aparato. El uso del sistema roaming será autorizado por la Secretaria Técnica.
+[imagen]

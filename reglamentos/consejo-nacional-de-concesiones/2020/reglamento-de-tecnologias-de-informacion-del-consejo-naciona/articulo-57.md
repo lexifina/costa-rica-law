@@ -1,0 +1,1 @@
+Artículo 57. El Área de TI procederá a realizar un inventario de los equipos de cómputo alquilados; un mínimo de 2 veces al año o cuando lo considere necesario para validar el registro y lo que está asignado físicamente.

@@ -1,0 +1,1 @@
+Artículo 56. Por ningún motivo, un equipo puede ser trasladado a otro funcionario diferente al que se le asignó originalmente o cambiado por otro equipo sin hacer el trámite respectivo ante el área de TI.

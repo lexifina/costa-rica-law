@@ -1,0 +1,1 @@
+Artículo 58. Los equipos de cómputo pueden ser llevados y utilizados fuera de la Institución únicamente cuando el funcionario que lo tiene en custodia lo necesite por motivos laborales. Antes de retirar el equipo de la Institución debe notificarlo mediante un correo electrónico al responsable del Área de TI.

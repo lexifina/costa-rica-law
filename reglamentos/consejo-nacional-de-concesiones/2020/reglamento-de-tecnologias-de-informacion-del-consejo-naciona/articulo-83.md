@@ -1,0 +1,1 @@
+Artículo 83. El servicio de red inalámbrica institucional, es oficialmente propiedad del CNC y se considera una herramienta de comunicación e intercambio de información a disposición de los funcionarios (as).

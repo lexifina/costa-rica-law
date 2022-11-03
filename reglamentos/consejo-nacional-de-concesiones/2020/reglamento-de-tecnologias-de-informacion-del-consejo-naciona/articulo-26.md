@@ -1,0 +1,1 @@
+Artículo 26. Es prohibido enviar, almacenar o distribuir mensajes cuyo contenido sea contrario o atente contra los derechos humanos contemplados en los instrumentos jurídicos internacionales ratificados por el Estado Costarricense y en la Legislación Nacional.

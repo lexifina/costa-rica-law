@@ -1,0 +1,1 @@
+Artículo 20. La Red Wi-Fi tendrá configuración de acceso restringido, el Área de TI colocará las credenciales de acceso a los funcionarios del CNC, cuando así lo requieran en el ejercicio de sus funciones.

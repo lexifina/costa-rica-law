@@ -1,0 +1,1 @@
+Artículo 72. En caso de determinarse, previo procedimiento, que el funcionario es el responsable por el extravío, robo, hurto o daño, del teléfono celular propiedad del CNC; se le deducirá de su salario el valor del aparato y/o accesorios

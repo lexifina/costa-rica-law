@@ -1,0 +1,1 @@
+Artículo 53. Una vez configurados e instalados en los escritorios de los funcionarios todos los equipos de la orden de pedido en trámite; el Área de TI procederá a realizar un acta de recibido conforme definitiva.

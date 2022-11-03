@@ -1,0 +1,2 @@
+Artículo 60. Queda absolutamente prohibido que el funcionario custodio trate de realizar reparaciones al equipo de cómputo, ni de hardware ni de software. Solamente el Área de TI o el contratista tienen derecho a realizar, reparaciones, instalaciones o configuraciones.
+Para lo anterior, todos los equipos de cómputo alquilados contarán con una única clave de administrador, la cual será de uso exclusivo del Área de TI y el contratista. Por ningún motivo será entregada a algún funcionario.

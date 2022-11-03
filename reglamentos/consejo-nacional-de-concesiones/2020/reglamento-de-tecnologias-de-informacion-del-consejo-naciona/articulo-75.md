@@ -1,0 +1,1 @@
+Artículo 75. El proceso de Servicios Generales, como responsable del control del pago de los servicios públicos, deberá llevar un registro en el que consigne lo siguiente: Detalle actualizado e histórico del gasto mensual de los teléfonos celulares asignados a los diferentes funcionarios del CNC.

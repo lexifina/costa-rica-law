@@ -1,0 +1,1 @@
+Artículo 54. Una vez entregado el equipo de cómputo al funcionario este pasa a ser su responsabilidad. Cuando por alguna razón el funcionario deje la Institución debe trasladar y entregar el equipo al área de TI, tal como le fue entregado.

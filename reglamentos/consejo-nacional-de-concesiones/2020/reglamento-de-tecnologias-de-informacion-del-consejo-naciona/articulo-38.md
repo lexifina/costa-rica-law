@@ -1,0 +1,3 @@
+Artículo 38. Es responsabilidad de las jefaturas:
+a) Velar porque sus colaboradores utilicen racionalmente el Internet y el correo electrónico institucional, asimismo ejecutarán las acciones administrativas que correspondan en caso de incumplimiento. Todo de conformidad con lo dispuesto en el presente reglamento, las políticas dictadas por la Administración Superior y lineamientos técnicos emitidos por el Área de TI.
+b) Las jefaturas deberán notificar con cinco días mínimos de antelación al Área de TI, cualquier movimiento del personal a su cargo (contratación, ascenso, destitución), esto con el fin de gestionar los permisos o apertura de cuentas para acceso a Internet y correo electrónico institucional.

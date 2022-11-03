@@ -1,0 +1,1 @@
+Artículo 80. El uso del teléfono celular no crea ningún tipo de derechos, en consecuencia, la Institución puede retirar su uso en cualquier momento, sea por la desaparición de la necesidad institucional, incumplimiento de este Reglamento, limitaciones presupuestarias o cualquier otra razón que el CNC discrecionalmente determine.

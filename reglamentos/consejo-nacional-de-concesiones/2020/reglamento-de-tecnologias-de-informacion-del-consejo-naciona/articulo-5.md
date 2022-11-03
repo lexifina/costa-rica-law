@@ -1,0 +1,1 @@
+Artículo 5. El área de TI es la responsable de confeccionar las características técnicas de los bienes o servicios a adquirir o contratar, y guiar el proceso de contratación administrativa en el Sicop.

@@ -1,0 +1,1 @@
+Artículo 25. Se considerará abuso en la utilización de la red inalámbrica institucional, aquellas actividades que trascienden los objetivos habituales de esa herramienta o que perjudiquen directa o indirectamente a otros funcionarios (as) de la institución.

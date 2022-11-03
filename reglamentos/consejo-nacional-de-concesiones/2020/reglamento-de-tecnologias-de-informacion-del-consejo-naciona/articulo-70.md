@@ -1,0 +1,1 @@
+Artículo 70. El funcionario será responsable en caso de extravío, robo o hurto y en los casos de deterioro o desperfecto cuando se compruebe, que no obedece a su uso normal y cuidadoso. En tal sentido, deberán responder reintegrando el costo del aparato o del accesorio. De previo a esa obligación se garantizará el debido proceso.

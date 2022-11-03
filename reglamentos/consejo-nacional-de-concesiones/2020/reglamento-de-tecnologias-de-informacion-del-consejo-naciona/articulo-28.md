@@ -1,0 +1,5 @@
+Artículo 28. Es Responsabilidad de los usuarios:
+a) Cada usuario será responsable de las acciones que se reporten, ejecutadas con su usuario y contraseña, asumiendo las consecuencias de las actuaciones que resulten de su uso.
+b) Los usuarios que transmitan datos confidenciales, como por ejemplo números de cuentas bancarias, claves de acceso y de tarjetas de crédito, asumirán las posibles consecuencias que eso conlleve, quedando eximido el CNC de toda responsabilidad directa o indirecta, en relación con pérdidas o daños causados por el uso privado del correo electrónico e Internet.
+c) El usuario deberá utilizar de forma racional la red inalámbrica, como medio de conexión para recursos disponibles en la red institucional, en caso de que no exista la posibilidad de utilizar la red cableada.
+d) Cuando el usuario haga uso de la red inalámbrica institucional para comunicaciones personales, ya sea por correo electrónico u otro medio, deberá minimizar la frecuencia y duración, con el fin de no perjudicar el trabajo de otras áreas del CNC.

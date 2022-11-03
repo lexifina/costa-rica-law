@@ -1,0 +1,1 @@
+Artículo 10. Cuando se requiera la salida de equipo informático fuera de las instalaciones del CNC, se deberá reportar al Área de TI y al proceso de Servicios Generales, para que proceda a generar la boleta de autorización.

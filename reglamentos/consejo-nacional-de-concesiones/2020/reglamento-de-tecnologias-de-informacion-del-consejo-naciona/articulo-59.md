@@ -1,0 +1,1 @@
+Artículo 59. Si el equipo de cómputo asignado presenta problemas de alguna índole, el funcionario en custodia deberá informar al Área de TI mediante el formulario de soporte técnico del portal institucional. El Área de TI procederá a generar el informe al contratista mediante el mecanismo de atención de incidentes establecido en el contrato de servicios.

@@ -1,0 +1,1 @@
+Artículo 9. Cuando un funcionario (a) deba trasladar equipo informático de forma permanente a otra oficina, dicha situación deberá ser reportada por el funcionario al proceso de Servicios Generales, con la finalidad de realizar la boleta respectiva de traslado a la nueva ubicación del bien.

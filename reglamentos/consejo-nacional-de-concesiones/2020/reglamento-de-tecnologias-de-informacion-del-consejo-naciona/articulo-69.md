@@ -1,0 +1,1 @@
+Artículo 69. Los funcionarios a quienes se les asigna teléfono celular, tienen responsabilidad sobre su custodia, uso y la conservación, así como de sus respectivos accesorios: baterías, cargadores, estuches, chips.

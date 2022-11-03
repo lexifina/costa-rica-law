@@ -1,0 +1,1 @@
+Artículo 55. Para realizar la devolución del equipo de cómputo, el funcionario deberá mantenerlo en buen estado y completo en todas sus partes y accesorios; mientras lo tenga bajo su custodia. Caso contrario se levantará un acta para que el Área de TI realice las gestiones pertinentes.

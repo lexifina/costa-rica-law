@@ -1,0 +1,1 @@
+Artículo 21. Las claves no se entregarán a personas que no son funcionarios de la institución, y en caso de requerirse, el Área de TI colocará la clave en el dispositivo respectivo, verificando que la misma no se guarde.

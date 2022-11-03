@@ -1,0 +1,1 @@
+Artículo 8. Es responsabilidad del proceso de Servicios Generales del CNC, velar porque todos los recursos informáticos se encuentren debidamente identificados e inventariados, siguiendo los lineamientos generales sobre control de bienes del Ministerio de Hacienda.

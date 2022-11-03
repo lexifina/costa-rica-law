@@ -1,0 +1,1 @@
+Artículo 64. Los funcionarios deberán preparar el equipo con todos los componentes que le fueron entregados, entregar según cronograma realizado por el área de TI el equipo asignado, además deberán realizar el respaldo de la información almacenada en los equipos.

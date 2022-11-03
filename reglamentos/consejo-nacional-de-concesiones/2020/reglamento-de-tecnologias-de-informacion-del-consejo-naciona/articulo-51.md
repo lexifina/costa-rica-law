@@ -1,0 +1,1 @@
+Artículo 51. Cada funcionario del CNC tendrá derecho a la asignación de un equipo de cómputo, las características técnicas (tipo de línea) serán definidas por el Área de TI a conformidad con las labores del funcionario. El equipo le será entregado en su ubicación listo para ser utilizado.
