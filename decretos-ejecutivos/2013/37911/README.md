@@ -19,3 +19,4 @@ Sistema de Registro del Ministerio de Agricultura y Ganadería, para Certificar 
 | 4 | 2020-12-04 | Decreto Ejecutivo 42773 (2020-12-04) |
 | 5 | 2021-05-11 | Decreto Ejecutivo 43013 (2021-05-11) |
 | 6 | 2022-01-13 | Decreto Ejecutivo 43395 (2022-01-13) |
+| 7 | 2022-11-04 | Decreto Ejecutivo 43921 (2022-11-04) |

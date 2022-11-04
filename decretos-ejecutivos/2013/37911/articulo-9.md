@@ -1,4 +1,4 @@
-Artículo 9º—Parámetros de tamaño de la finca para la determinación de pequeño y mediano productor agropecuario:
+Artículo 9º-Parámetros de tamaño de la finca para la determinación de pequeño y mediano productor agropecuario:
 Finca de uso agropecuario destinadas a la producción primaria agrícola o pecuaria | Parámetro para pequeño productor en hectáreas | Parámetro para mediano productor en hectáreas
 Pecuario grupo 1: Pastos naturales, pastos mejorados o forrajes para la producción de ganado bovino de carne o doble propósito; así como caballos y búfalos, incluye sistemas silvopastoriles. | ≤ 75 | > 75 =200
 Pecuario grupo 2: Pastos naturales, pastos mejorados, pastos de corta o forrajes para la utilización en sistemas de producción de lechería especializada, así como estabulados y semiestabulados. | ≤ 50 | > 50 = 125
@@ -23,3 +23,7 @@ Caña de azúcar | ≤ 25 | > 25 = 75
 Pejibaye: palmito y pejibaye para fruta. | ≤ 5 | > 5 = 15
 Tabaco | ≤ 1 | > 1 = 5
 Cultivos energéticos: higuerilla, jatrofa, biomasa. | ≤ 5 | > 5 = 10
+[imagen] [imagen] [imagen] [imagen]
+Cáñamo (Cannabis no psicoactivo) para siembra a cielo abierto (Así adicionado el párrafo anterior por el artículo 1° del decreto ejecutivo N° 43921 del 4 de noviembre de 2022) | ≤ 50 (Así adicionado el párrafo anterior por el artículo 1° del decreto ejecutivo N° 43921 del 4 de noviembre de 2022) | > 50=100 (Así adicionado el párrafo anterior por el artículo 1° del decreto ejecutivo N° 43921 del 4 de noviembre de 2022)
+Cáñamo (Cannabis no psicoactivo) para siembra en invernadero (Así adicionado el párrafo anterior por el artículo 1° del decreto ejecutivo N° 43921 del 4 de noviembre de 2022) | ≤ 0.5 (Así adicionado el párrafo anterior por el artículo 1° del decreto ejecutivo N° 43921 del 4 de noviembre de 2022) | > 0.5=1.5 (Así adicionado el párrafo anterior por el artículo 1° del decreto ejecutivo N° 43921 del 4 de noviembre de 2022)
+Cannabis (Cannabis psicoactivo) para siembra en invernadero (Así adicionado el párrafo anterior por el artículo 1° del decreto ejecutivo N° 43921 del 4 de noviembre de 2022) | ≤ 0.5 (Así adicionado el párrafo anterior por el artículo 1° del decreto ejecutivo N° 43921 del 4 de noviembre de 2022) | > 0.5=1.5 (Así adicionado el párrafo anterior por el artículo 1° del decreto ejecutivo N° 43921 del 4 de noviembre de 2022)
