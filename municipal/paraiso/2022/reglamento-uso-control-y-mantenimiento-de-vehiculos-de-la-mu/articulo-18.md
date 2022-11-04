@@ -1,0 +1,5 @@
+CAPÍTULO IV
+De las salidas y utilización de los vehículos
+Artículo 18.-Todo vehículo municipal para realizar salida, durante días y horas hábiles, debe poseer debidamente suscrita y autorizada la TARJETA DE AUTORIZACIÓN DE USO DE VEHÍCULO, donde los encargados de vehículos detallarán destino, objetivo de la gira, fecha salida, hora ingreso y salida, conductor asignado, placa vehículo en uso, salvo de presentarse caso fortuito o fuerza mayor, previa justificación de la Alcaldía Municipal o la Dirección Administrativa Financiera.
+En cuanto al vehículo para uso de gestiones administrativas, bajo responsabilidad de la Dirección Administrativa Financiera, para efectos de programación de las mismas, debe ser requerido ante el titular de dicha unidad administrativa con 24 horas de antelación. La tarjeta de autorización de salida de uso de vehículo, debe anotarse en la tarjeta de control de kilometraje y lubricantes que debe poseer la unidad.
+Las tarjetas de autorización de uso de vehículo se emitirán en formularios pre impreso y numerado, en ningún caso la orden de movilización tendrán carácter permanente, indefinido y sin restricciones.

@@ -1,0 +1,1 @@
+Artículo 58.-Las jefaturas responsables, deberán velar por la aplicación de las sanciones previstas en el Reglamento Autónomo de Organización y Servicios vigente de la Municipalidad de Paraíso, conforme el debido proceso y con copia al Departamento de Recursos Humanos para que las incorporen en el expediente del trabajador involucrado.

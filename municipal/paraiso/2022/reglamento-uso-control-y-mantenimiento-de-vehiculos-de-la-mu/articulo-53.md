@@ -1,0 +1,4 @@
+CAPÍTULO lX
+Del resguardo de vehículos municipales
+Artículo 53.-Las llaves de los vehículos permanecerán bajo custodia del guarda de turno, sea en el Palacio y Plantel Municipal, el cual responderá por los daños ocurridos, mientras permanezca a su cargo. En horas no laborables el guarda de turno anotará en el libro de guardia, la hora de entrada o salida de los vehículos y solicitará que el conductor registre su nombre y firma. De igual forma, durante la jornada ordinaria debe registrarse el equipo que se entrega luego de gestión diaria asignada, con las observaciones pertinentes y estado del mismo.
+Si por razones de fuerza mayor, previa autorización del Alcalde/sa Municipal o Dirección Administrativa Financiera, el vehículo podrá pernoctar en un parqueo público u otro sitio que brinde condiciones de seguridad adecuadas, lo cual debe garantizar el responsable de la unidad donde se encuentra asignado el vehículo o equipo.

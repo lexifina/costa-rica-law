@@ -1,0 +1,1 @@
+Artículo 2º-Ámbito de aplicación. El presente reglamento se aplicará a todo vehículo que este o entre a formar parte de la lista de bienes adscritos a la Municipalidad de Paraíso, así como al recurso humano que directamente tenga una relación operativa determinada por su margen de responsabilidad con su administración, custodia, uso, control y mantenimiento.

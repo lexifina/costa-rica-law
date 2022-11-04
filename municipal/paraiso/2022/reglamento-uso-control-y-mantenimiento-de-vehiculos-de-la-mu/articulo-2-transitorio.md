@@ -1,0 +1,2 @@
+II.-Publíquese en el Diario Oficial La Gaceta de conformidad con lo dispuesto en el numeral 43 del Código Municipal vigente, por única vez como Reglamento definitivo al no requerir audiencia pública, por tratarse de un cuerpo normativo de orden interno".
+Se extiende la presente a solicitud del interesado, al ser las once horas treinta minutos del día 28 del mes de setiembre del año 2022, de conformidad con el artículo 53, inciso c) del Código Municipal Vigente. Es todo.

@@ -1,0 +1,1 @@
+Artículo 31.-Los conductores no deben permitir, que personas no autorizadas para la función o el servicio que se propone brindar, viajen en los vehículos municipales, salvo en ocasiones especiales en que medie autorización superior, con excepción de personas relacionadas con labores propias de la Municipalidad o en casos de emergencia comprobada.

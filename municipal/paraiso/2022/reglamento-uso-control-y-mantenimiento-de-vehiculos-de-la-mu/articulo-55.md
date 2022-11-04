@@ -1,0 +1,1 @@
+Artículo 55.-Los guardas municipales deben mostrar en las bitácoras de trabajo el estado de los vehículos antes y después de cada servicio y todos los datos necesarios para el adecuado control del uso de los mismos, informando al Director Administrativo Financiero, cualquier anomalía.

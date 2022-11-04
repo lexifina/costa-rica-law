@@ -1,0 +1,1 @@
+Artículo 56.-Los guardas municipales no entregarán ningún vehículo en horas no hábiles a funcionarios de la Municipalidad, sin la autorización del Alcalde/sa o Dirección Administrativa Financiera, lo cual debe ser registrado en la bitácora de trabajo.
