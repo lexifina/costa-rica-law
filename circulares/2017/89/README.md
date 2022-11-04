@@ -13,3 +13,4 @@ Guía de Atención a Víctimas de Hostigamiento Sexual en el Poder Judicial”
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-06-16 | la propia norma |
+| 2 | 2022-11-04 | Circular 200 (2022-11-04) |
