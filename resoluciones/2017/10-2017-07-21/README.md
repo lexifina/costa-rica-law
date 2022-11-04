@@ -16,3 +16,4 @@ Comunica emisión de resoluciones de la Dirección General de Servicio Civil (DG
 | 1 | 2017-08-09 | la propia norma |
 | 2 | 2017-10-20 | Resolución 16 (2017-10-20) |
 | 3 | 2018-02-02 | Resolución 2 (2018-02-02) |
+| 4 | 2022-11-04 | Resolución 10 (2022-11-04) |
