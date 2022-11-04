@@ -1,0 +1,2 @@
+Artículo 7. Cesión de Áreas. Los proyectos habitacionales deben cumplir con el Artículo 40 de la Ley de Planificación Urbana, en lo que respecta a las áreas de cesión pública.
+Para ello, se promoverá que los proyectos habitacionales sirvan como instrumentos dinamizadores del espacio donde se ubiquen, mediante la cesión de áreas al uso público como: calles, espacios recreativos y zonas verdes; de modo que faciliten la conectividad y movilidad fortaleciendo el tejido social con el resto de los espacios de la ciudad.

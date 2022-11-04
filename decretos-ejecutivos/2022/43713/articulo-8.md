@@ -1,0 +1,1 @@
+Artículo 8. Derogatoria. Deróguese la directriz N°27 de fecha 01 de setiembre del 2003, denominada Especificaciones Técnicas y Lineamientos para la Escogencia de Tipologías Arquitectónicas para la Construcción de Viviendas y Obras de Urbanización, publicada en el Diario Oficial La Gaceta N°165 de fecha 11 de setiembre del 2003.

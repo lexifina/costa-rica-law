@@ -1,0 +1,2 @@
+Artículo 2.- Población Objetivo. La población objetivo que será beneficiada en los diferentes programas habitacionales financiados por el SFNV, será identificada a través de criterios sociales de priorización y jerarquización adecuados y disponibles para dicho fin, debidamente emitidos por el MIVAH.
+Dentro de las propuestas de desarrollos habitacionales que reúnan una pluralidad de familias o solicitudes, se propiciará la integración social de sus habitantes, mediante la inclusión de familias de diferentes estratos socios económicos.
