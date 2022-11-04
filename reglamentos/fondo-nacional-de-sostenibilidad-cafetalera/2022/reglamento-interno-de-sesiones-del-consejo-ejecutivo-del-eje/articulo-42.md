@@ -1,0 +1,1 @@
+Artículo 42.-Al dar por discutido un asunto, el Presidente del Consejo Ejecutivo dará un término prudencial para recibir la votación correspondiente, procurando que ésta se realice cuando los miembros de Consejo que participen en la sesión se encuentren presentes de forma física o virtual.

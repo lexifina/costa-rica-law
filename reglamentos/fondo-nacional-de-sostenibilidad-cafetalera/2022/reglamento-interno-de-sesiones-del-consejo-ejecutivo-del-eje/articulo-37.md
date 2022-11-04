@@ -1,0 +1,1 @@
+Artículo 37.-Los acuerdos tomados por el Consejo Ejecutivo quedarán firmes al aprobarse el acta respectiva. En casos especiales, el Consejo por votación de las dos terceras partes de la totalidad de sus miembros podrá declarar firmes sus acuerdos, dejando constancia expresa de ello.

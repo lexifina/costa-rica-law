@@ -1,0 +1,1 @@
+Artículo 27.-La participación virtual en las sesiones del Consejo Ejecutivo de FONACAFE deberá quedar registrada en el acta y resguardarse un registro digital (grabación de audio y/o video) de cada una de las sesiones. La custodia de la grabación estará a cargo de la secretaria de actas.

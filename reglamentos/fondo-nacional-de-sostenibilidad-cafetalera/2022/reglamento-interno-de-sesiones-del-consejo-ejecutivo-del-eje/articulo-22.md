@@ -1,0 +1,1 @@
+Artículo 22.-El Presidente del Consejo Ejecutivo dirigirá el debate procurando que se mantenga en orden según la agenda de temas y aceptando las mociones que resulten procedentes con relación al asunto tratado. Si algún miembro tuviere opinión contraria al criterio del Presidente podrá proponer una moción de orden en el acto ante el Consejo y éste decidirá por mayoría simple.

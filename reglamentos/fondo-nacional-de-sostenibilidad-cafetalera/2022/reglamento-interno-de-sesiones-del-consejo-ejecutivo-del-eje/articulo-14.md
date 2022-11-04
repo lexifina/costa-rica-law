@@ -1,0 +1,1 @@
+Artículo 14.-Podrán celebrarse sesiones en otros lugares, cuando los asuntos a tratar así lo requieran y siempre que la convocatoria así lo especifique. La convocatoria la hará la Presidencia del Fondo por iniciativa propia o a petición de tres de los miembros del Consejo Ejecutivo.

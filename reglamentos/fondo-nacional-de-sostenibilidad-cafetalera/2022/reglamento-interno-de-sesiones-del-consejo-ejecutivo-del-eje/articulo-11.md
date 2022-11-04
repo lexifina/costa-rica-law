@@ -1,0 +1,3 @@
+CAPÍTULO IV
+De las sesiones, sede y quórum
+Artículo 11.-Las sesiones ordinarias del Consejo Ejecutivo se celebrarán al menos dos veces al mes el día, el lugar y la hora que lo acuerde dicho Consejo. Para estas sesiones no habrá necesidad de convocatoria especial.

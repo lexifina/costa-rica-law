@@ -1,0 +1,1 @@
+Artículo 13.-Las sesiones ordinarias y extraordinarias se efectuarán preferentemente en el salón de sesiones de las oficinas centrales del ICAFE o de forma virtual conforme lo estipulado en el capítulo correspondiente de este Reglamento referente a las Sesiones Virtuales.
