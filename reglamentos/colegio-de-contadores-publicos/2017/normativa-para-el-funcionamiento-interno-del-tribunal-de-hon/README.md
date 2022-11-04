@@ -14,3 +14,4 @@ Normativa para el funcionamiento interno del tribunal de honor del Colegio de Co
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-11-14 | la propia norma |
+| 2 | 2022-11-04 | Reglamento 5 (2022-11-04) |
