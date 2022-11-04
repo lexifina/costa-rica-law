@@ -1,0 +1,1 @@
+Artículo 5º-Derogatorias. Deróguese los decretos ejecutivos N° 441158 del 17 de mayo del 2018, publicado en La Gaceta N° 94 del 28 de mayo del 2018 y N° 41215-RE del 13 de julio del 2018, publicado en La Gaceta N°139 del 01 de agosto del 2018.

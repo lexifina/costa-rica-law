@@ -1,0 +1,1 @@
+Artículo 4°º-Nómbrese un Comisionado de la Presidencia de la República para las poblaciones indígenas, afrodescendientes, personas con discapacidad y LGBTIQ, de manera ad honorem, quién además fungirá como Representante Especial para África y Asuntos de Afrodescendencia.
