@@ -1,0 +1,1 @@
+Artículo 8º-En el caso de campañas integrales y apoyos cooperativos con empresas internacionales, el tour operador nacional deberá contar con la Certificación de Sostenibilidad Turística (CST). Asimismo, las empresas nacionales que apliquen al Programa deberán contar con esta certificación.

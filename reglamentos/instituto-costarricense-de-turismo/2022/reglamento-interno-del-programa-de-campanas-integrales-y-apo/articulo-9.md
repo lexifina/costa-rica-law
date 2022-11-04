@@ -1,0 +1,1 @@
+Artículo 9º-Todo cambio relativo al nombre comercial, régimen accionario, modificación de la razón social, o cualquier aspecto que sea de importancia para la ejecución adecuada de las campañas integrales o apoyos cooperativos, deberá ser reportado al ICT para su valoración, haciendo sustitución del documento legal correspondiente.

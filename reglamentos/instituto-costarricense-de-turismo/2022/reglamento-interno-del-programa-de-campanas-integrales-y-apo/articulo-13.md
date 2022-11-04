@@ -1,0 +1,1 @@
+Artículo 13.-Corresponde a la Junta Directiva la aprobación o improbación del Plan General de Campañas Integrales y Apoyos Cooperativos y la evaluación de los resultados obtenidos, que le presentará la Dirección de Mercadeo, con sujeción al Plan Nacional de Desarrollo Turístico de Costa Rica, al Plan Anual Operativo y al Plan Táctico de Mercadeo.

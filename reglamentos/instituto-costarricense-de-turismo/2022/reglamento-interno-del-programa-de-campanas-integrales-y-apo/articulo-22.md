@@ -1,0 +1,2 @@
+Artículo 22.-La Unidad Coordinadora deberá presentar el análisis de este informe final de resultados ante su jefatura inmediata y ante la Dirección de Mercadeo, verificando el cumplimiento de los objetivos originalmente establecidos en
+el convenio, para remitirlo de forma conjunta a la Gerencia General a más tardar tres meses después de haber recibido de conformidad el informe por parte del socio.

@@ -1,0 +1,3 @@
+Artículo 17.-Se podrá realizar modificaciones en la ejecución del proyecto cuando el Socio justifique de forma técnica o legal los cambios requeridos ante la Unidad Coordinadora y ambas partes estén de acuerdo; dichas variaciones no deben alterar la efectividad de la campaña integral o del apoyo cooperativo, tampoco el mercado meta y no deben superar el presupuesto aprobado.
+En los casos en los que se altere la efectividad de la campaña integral o del apoyo cooperativo, el mercado meta para el cual el proyecto fue aprobado o supere el presupuesto aprobado, se requerirá de la respectiva adenda debidamente
+aprobada por la Dirección de Mercadeo, previo criterio técnico emitido por la Unidad Coordinadora; se incorporarán los documentos en el respectivo expediente.

@@ -1,0 +1,1 @@
+Artículo 25.-El incumplimiento de la campaña integral o apoyo cooperativo en el respectivo convenio por causas imputables al Socio, dará lugar a que el ICT no considere a este socio comercial en futuros proyectos cooperativos, según criterio técnico emitido por la Unidad Coordinadora.

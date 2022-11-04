@@ -1,0 +1,1 @@
+Artículo 23.-Corresponderá a la Unidad Coordinadora, realizar al menos una presentación anual a la Junta Directiva, que refleje los resultados obtenidos de acuerdo a los objetivos e indicadores planteados en el Plan General de Campañas Integrales y Apoyos Cooperativos y según lo establecido en el artículo 4 de este Reglamento.

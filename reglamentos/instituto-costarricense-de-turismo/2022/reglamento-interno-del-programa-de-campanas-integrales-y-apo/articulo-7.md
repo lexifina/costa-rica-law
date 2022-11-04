@@ -1,0 +1,2 @@
+Artículo 7º-De previo a presentar la recomendación de la propuesta a la instancia correspondiente, la Unidad Coordinadora consultará a los departamentos respectivos con el fin de constatar si el socio mantiene deudas pendientes con la Institución o si tiene quejas presentadas en su contra ante el ICT.
+El ICT no aprobará campañas integrales ni apoyos cooperativos con empresas que mantengan deudas, denuncias pendientes o procedimientos administrativos de queja en trámite con la Institución.
