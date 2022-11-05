@@ -3,8 +3,8 @@ IMAGENOLOGÍA DIAGNÓSTICA Y TERAPÉUTICA.
 Artículo 2.- Áreas de acción del profesional en Imagenología Diagnóstica y Terapéutica. La Imagenología Diagnóstica y Terapéutica integra cinco grandes áreas de acción: Radiología, Radioterapia, Medicina Nuclear, Protección radiológica, Docencia e investigación. Dentro de cada área existen diferentes competencias profesionales mencionadas a continuación.
 (Corregido el párrafo anterior mediante Fe de Erratas y publicada en La Gaceta N° 54 del 19 de marzo del 2020, página N° 72)
 1. Radiología
-La radiología como área de la Imagenología es la dedicada a la producción de imágenes de transferencia de las radiaciones ionizantes de baja energía mediante equipos emisores/receptores de la radiación, para el diagnóstico y tratamiento de enfermedades principalmente basado en las alteraciones anatómicas. El Bachiller y Licenciado (a) en Imagenología tienen la competencia en las siguientes áreas de la radiología, contemplando su desempeño tanto en el campo de la medicina humana y veterinaria como en otras áreas que hagan uso de este tipo de equipos y tomando en consideración, en cada caso, las prácticas de seguridad y protección radiológica pertinentes:
-(Corregido el párrafo anterior mediante Fe de Erratas y publicada en La Gaceta N° 54 del 19 de marzo del 2020, página N° 72)
+La radiología como área de la Imagenología se encarga de la producción de imágenes de transferencia de las radiaciones ionizantes de baja energía mediante equipos emisores/receptores de la radiación, para el diagnóstico y tratamiento de enfermedades principalmente basado en las alteraciones anatómicas. El Bachiller y Licenciado (a) en Imagenología tienen la competencia en las siguientes áreas de la radiología, contemplando su desempeño tanto en el campo de la medicina humana y veterinaria como en otras áreas que hagan uso de este tipo de equipos y tomando en consideración, en cada caso, las prácticas de seguridad y protección radiológica pertinentes:
+(Así reformado el párrafo anterior mediante acuerdo N° siete, tomado en sesión ordinaria y extraordinaria celebrada el 05 de noviembre de 2022)
 1.1 Radiología convencional
 El Bachiller y Licenciado (a) en lmagenología Diagnóstica y Terapéutica tienen la competencia en las siguientes funciones de la radiología convencional:
 a. Inspeccionar y encender el equipo de rayos X, verificar el funcionamiento mecánico sea digital o analógico, preparar y asegurar el desempeño del sistema de imágenes asociado y llevar registro de inconformidades.
@@ -13,10 +13,12 @@ c. Establecer el protocolo de adquisición de imágenes, indagar sobre las condi
 d. Realizar el posicionamiento específico tanto del equipo como del paciente sobre cada toma de imágenes del protocolo seleccionado.
 c. Determinar y seleccionar los parámetros técnicos de adquisición correspondientes a cada estudio y dosificar la radiación al paciente controlando y variando tiempos, corrientes y energías, tomando en cuenta las condiciones físicas del paciente y el equipo, así como los requerimientos diagnósticos para obtener las imágenes de la prueba.
 f. Analizar las imágenes obtenidas y determinar la necesidad de añadir imágenes que repercutan en el diagnóstico.
-g. Procesar y presentar las imágenes en el formato disponible y requerido, aplicando los parámetros técnicos y los instrumentos de medición necesarios y correspondientes a cada estudio que guíen el diagnóstico del médico radiólogo.
+g. Procesar y presentar las imágenes en el formato disponible y requerido, aplicando los parámetros técnicos y los instrumentos de medición necesarios y correspondientes a cada estudio que guíen el posterior diagnóstico.
+(Así reformado el inciso anterior mediante acuerdo N° siete, tomado en sesión ordinaria y extraordinaria celebrada el 05 de noviembre de 2022)
 h. Velar por el buen funcionamiento del equipo mediante el cumplimiento del programa de control de calidad, calibraciones y mantenimiento preventivo.
 i. Revisar periódicamente las imágenes descartadas como parte del aseguramiento de la calidad.
-J• Mantener un sistema de archivo y registro de estudios realizados que garanticen el seguimiento de la evolución a través del tiempo de los pacientes que lo requieran.
+J. Participar en la administración de las plataformas de los sistemas de información radiológica (RIS, por sus siglas en inglés) y los sistemas de archivo y comunicación de imágenes médicas (PACS, por sus siglas en inglés).
+(Así reformado el inciso anterior mediante acuerdo N° siete, tomado en sesión ordinaria y extraordinaria celebrada el 05 de noviembre de 2022)
 k. Efectuar el estudio mediante el manejo apropiado de los equipos empleados para estos fines, tomando en consideración la implementación de las prácticas en seguridad y protección radiológica pertinentes.
 1.2 Ortopantografía y cefalometría
 El Bachiller y Licenciado (a) en Imagenología Diagnóstica y Terapéutica tienen la competencia en las siguientes funciones en ortopantografía y cefalometría:
@@ -48,34 +50,74 @@ d. Velar por la adecuada preparación del paciente y asegurar el área de trabaj
 e. Informar al paciente sobre las indicaciones, contraindicaciones, riesgos y recomendaciones del estudio e indagar sobre su estado de salud para guiar el desarrollo del procedimiento.
 f. Realizar el posicionamiento específico tanto del equipo como del paciente sobre cada toma ele imágenes del protocolo seleccionado.
 g. Determinar y seleccionar los parámetros técnicos de adquisición correspondientes a cada estudio y dosificar la radiación al paciente controlando y variando tiempos, corrientes y energías, tomando en cuenta las condiciones físicas del paciente, el tipo de medio de contraste y los requerimientos diagnósticos para obtener las imágenes de la prueba.
-h. Analizar las imágenes obtenidas y determinar la necesidad de añadir series de imágenes que repercutan en el diagnóstico.
+h. Determinar y seleccionar los parámetros técnicos de adquisición correspondientes a cada estudio y dosificar la radiación al paciente controlando y variando tiempos, corrientes y energías, tomando en cuenta las condiciones físicas del paciente, el tipo de medio de contraste y los requerimientos diagnósticos para obtener las imágenes del estudio..
+(Así reformado el inciso anterior mediante acuerdo N° siete, tomado en sesión ordinaria y extraordinaria celebrada el 05 de noviembre de 2022)
 i. Procesar y presentar las imágenes en el formato disponible y requerido, aplicando los parámetros técnicos y los instrumentos de medición necesarios.
 j. Velar por el buen funcionamiento del equipo mediante el cumplimiento del programa de garantía de calidad.
 k. Revisar periódicamente las imágenes descartadas para el aseguramiento de la calidad y la detección de defectos tanto del equipo como del procedimiento.
 l. Mantener un sistema de archivo y registro de estudios realizados que garanticen el seguimiento de la evolución a través del tiempo de los pacientes que lo requieran.
 El Licenciado (a) en lmagenología Diagnóstica y Terapéutica tiene la competencia exclusiva del uso del equipo radiológico durante estudios contrastados invasivos.
-1.5 Mamografía y tomosíntesis
+1.5 Mamografía
+(Así reformado el párrafo anterior mediante acuerdo N° siete, tomado en sesión ordinaria y extraordinaria celebrada el 05 de noviembre de 2022)
 El Bachiller y Licenciado (a) en lmagenología Diagnóstica y Terapéutica tienen la competencia exclusiva en las siguientes funciones en mamografia:
 a. Inspeccionar y encender el mamógrafo, realizar el control de calidad diario y llevar registro de los resultados.
 b. Realizar los controles rutinarios: diarios, semanales, mensuales, semestrales, anuales y de puesta en funcionamiento de los equipos mamográficos a su cargo; elaborar reportes de desperfectos y llevar registro.
 c. Analizar la solicitud de exámenes, verificar con base en la historia clínica, si el paciente cumple con los criterios que justifican el examen solicitado y entrevistar al paciente sobre los padecimientos que puedan guiar el estudio.
 d. Informar y educar al paciente sobre el procedimiento; proveer, verificar y evaluar los consentimientos infom1ados.
-e. Ejecutar la adecuada colocación del paciente en sus cuatro posiciones básicas de estudio mamográfico, evaluar la necesidad de cualquier toma adicional, ejecutarla, y utilizar correctamente los accesorios de protección para mamografía.
+e. Ejecutar la adecuada colocación del paciente según el estudio mamográfico a realizar, evaluar la necesidad de cualquier toma adicional, ejecutarla, y utilizar correctamente los accesorios de protección para mamografía.
+(Así reformado el inciso anterior mediante acuerdo N° siete, tomado en sesión ordinaria y extraordinaria celebrada el 05 de noviembre de 2022)
 f. Dosificar la radiación al paciente estableciendo los factores radiológicos de exposición variables, según las condiciones de cada paciente y los requerimientos diagnósticos de cada estudio.
 g. Durante el procedimiento de estereotaxia, preparar las proyecciones, factores radiológicos en el equipo, posicionamiento del paciente y adquirir las imágenes.
 h. Procesar y presentar las imágenes en el formato disponible y óptimo. En caso de contar con equipos digitales, aplicar y seleccionar los parámetros de imagen y realizar las mediciones y marcajes correspondientes que guíen el diagnóstico.
 i. Llevar registro de los datos e imágenes que garanticen el archivo permanente y el análisis posterior de la información para valorar la evolución del paciente.
+j. Ejecutar procedimientos con tecnología derivada de la mamografía tales como la tomosíntesis y aquellas otras pertinentes.
+(Así adicionado el inciso anterior mediante acuerdo N° siete, tomado en sesión ordinaria y extraordinaria celebrada el 05 de noviembre de 2022)
 El Licenciado (a) en Imagenología Diagnóstica y Terapéutica tiene la competencia exclusiva del uso del equipo mamográfico durante las marcaciones y procedimientos invasivos en la mama. De igual manera, será exclusividad del Licenciado en Imagenología la utilización de este equipo durante procedimientos de marcaje con radiofármacos coordinados con medicina nuclear.
-1.6 Radiología intervencionista
-Serán competencia exclusiva del Licenciado (a) en lmagenología Diagnóstica y Terapéutica las siguientes funciones en radiología intervencionista:
-a. Realizar las pruebas de control de calidad y llevar registro del funcionamiento de los equipos radiológicos.
-b. Verificar los datos del paciente, el procedimiento a realizar, el diagnóstico clínico y la indicación de la cirugía para analizar las variables que influirán en el proceso de obtención de las imágenes radiológicas.
-c. Garantizar la aplicación de las normas de radioprotección específicas para la sala de operaciones.
-d. Coordinar con el equipo de cirugía el posicionamiento del paciente y el equipo radiológico, según el protocolo de adquisición de imágenes necesario para cada procedimiento.
-e. Establecer y aplicar el protocolo de adquisición de imágenes, dosificando la radiación eficientemente al paciente mediante la selección de factores radiológicos.
-f. Procesar, reconstruir y aplicar las mediciones (tamaños, distancias y densidades) de las imágenes que exija cada procedimiento, así como presentar, editar, imprimir y almacenar los datos imagenológicos que se requieran.
-g. Evaluar las imágenes finales y valorar la necesidad de obtener adquisiciones adicionales que aseguren la plena documentación del procedimiento.
-h. Mantener un registro de las imágenes en los sistemas de almacenamiento disponibles que permitan los controles y revaloraciones posteriores.
+(*)1.6. Terapia Endovascular (Angiografía y Hemodinamia)
+Radiología intervencionista, Cardiología Intervencionista, Electrofisiología, Neuro intervencionismo, Intervencionismo Vascular Periférico, Oncointervencionismo y otras especialidades.
+Serán competencia exclusiva del Licenciado (a) en Imagenología Diagnóstica y Terapéutica las siguientes funciones en angiografía y hemodinamia:
+a. Usar el angiografo o equipo emisor de radiaciones ionizantes que se encuentre instalado en la unidad de trabajo.
+b. Inspeccionar y encender los equipos de imágenes (ionizantes y no ionizantes) y de aquellos módulos integrados al angiografo, así como corroborar el correcto funcionamiento de estos.
+c. Realizar las pruebas de control de calidad de los equipos radiológicos (angiografo, Arco en C) y los equipos de imágenes no emisores de radiaciones ionizantes (Tomografía por Coherencia Óptica (OCT), Ultrasonido Intravascular (IVUS), Ultrasonido Convencional, Ultrasonido Ecocardiógrafo, Inyector de Medio de Contraste, Equipos de Fisiología Coronaria (FFR, RFR) y Polígrafo) y llevar registro correspondiente de su funcionamiento.
+d. Verificar la ausencia de fallos mediante prueba de adquisición y control fluoroscópico, así como llevar registro de inconformidades.
+e. Asegurar las condiciones del paciente para realizar el procedimiento, registrar los datos en los diferentes módulos de adquisición.
+f. Verificar que los resultados de las pruebas de laboratorio tal como la función renal, tiempos de coagulación entre otros se encuentren dentro del rango permitido.
+g. Entrevistar e informar al paciente sobre el objetivo e indicaciones del procedimiento.
+h. Garantizar la aplicación de las normas de radio protección específicas para la sala de angiografía y hemodinamia, así como velar porque se cumplan dentro de la sala estas medidas.
+i. Ingresar los datos del paciente en los módulos del angiografo, polígrafo, IVUS, OCT, fisiología coronaria y ultrasonidos, así como los resultados del laboratorio clínico necesarios para el inicio y realización del procedimiento.
+j. Operar los equipos portátiles o estacionales emisores de rayos X (Angiografos y o Arcos en C) para la obtención y procesamiento de imágenes que se utilicen en los procesos diagnóstico-terapéuticos del sistema cardiovascular en hemodinamia o su homólogo.
+k. Establecer y optimizar los parámetros en el equipo para dosificar la radiación del paciente, según las necesidades específicas de cada procedimiento que garanticen la calidad y seguridad.
+l. Colaborar con el uso del inyector de medio de contraste durante los procedimientos invasivos correspondientes.
+m. Verificar los acoples del inyector de medio contraste al sistema angiográfico para la inyección sincronizada
+n. Establecer parámetros de programación para el inyector de medio de contraste. Deberá poseer conocimiento sobre las diferentes presiones a las que puede ser sometida una arteria o vena u órgano, aplicación de ritmos de flujo y de volumen de administración según la región anatómica de interés para obtener imágenes de calidad diagnóstica.
+o. Operar el polígrafo que controla todos los parámetros hemodinámicos del paciente y que se encuentra integrado al angiografo; establecer los protocolos de acuerdo con el tipo de estudio a realizar.
+p. Participar en los procedimientos diagnósticos y terapéuticos en el manejo de equipo emisor de radiaciones ionizantes y los equipos con tecnologías de imágenes para cardiología cardiaca y estructural, electrofisiología, neurocirugía endovascular, vascular periférico, radiología intervencionista, oncología intervencionista o cualquier otra especialidad que lo requiera.
+q. Realizar las proyecciones necesarias para obtener imágenes adecuadas que logren establecer un diagnóstico certero de la patología y su tratamiento.
+r. Realizar las mediciones que correspondan (patológicas o funcionales) en los diferentes softwares.
+s. Establecer parámetros adecuados para la realización de adquisiciones con protocolos de reconstrucción en 3D de acuerdo con el tipo de estudio que se esté realizando.
+t. Manejar todas las aplicaciones clínicas que vienen incorporadas con el angiografo y sus actualizaciones.
+u. Procesar, reconstruir y realizar las mediciones (tamaños, distancias y densidades) de las imágenes que exija cada procedimiento, así como presentar, editar, imprimir y almacenar los datos imagenológicos que se requieran.
+v. Programar los parámetros de los sistemas de informática para crear imágenes compuestas (fusión de imágenes) mediante la guía de estructuras anatómicas.
+w. Valorar la evolución clínica del paciente y detectar signos tempranos de complicaciones.
+x. Manejar sistemas de electrofisiología y otros del campo de las imágenes.
+y. Organizar y respaldar los estudios imagenológicos dependiendo del formato de almacenamiento elegido.
+z. Conocer y aplicar maniobras básicas de resucitación cardiopulmonar.
+aa. Asistir las sesiones de cardiología intervencionista y cirugía cardiaca con la presentación de imágenes, mediciones y procesamientos de lesiones para la discusión de los tratamientos.
+bb. Asistir al médico intervencionista en el uso y procesamiento de las imágenes de los equipos de ultrasonido intravascular (IVUS) y tomografía por coherencia óptica (OCT), así como otras tecnologías de imágenes emergentes en el campo del intervencionismo y que se utilicen en estas áreas de trabajo.
+cc. Asistir al médico intervencionista en el uso de los equipos para Fisiología Coronaria y el correspondiente procesamiento de las imágenes.
+dd. Asistir al médico intervencionista en el uso de los equipos de ultrasonido.
+ee. Mantener el equipo en óptimas condiciones y llevar el control de las actividades diarias en la bitácora del servicio.
+ff. Evaluar la dosis de radiación que recibe el paciente con la finalidad de evitar que se supere el umbral de dosis de referencia.
+gg. Registrar en el histórico de cada paciente las dosis de radiación recibidas en cada procedimiento.
+hh. Coordinar con la jefatura superior aquellos mantenimientos correctivos que involucren el buen funcionamiento de la sala.
+ii. Coordinar y comunicar al Servicio de Ingeniería y Mantenimiento en el área de Electromedicina cualquier visita de proveedores de equipo médico dentro de las unidades de trabajo. jj. Reportar y dar seguimiento a los correctivos que se le realizan a los equipos a su cargo.
+kk. Realizar las rutinas de verificación del buen funcionamiento de los equipos a su cargo después de los mantenimientos preventivos y correctivos.
+ll. Gestionar la compra de los insumos necesarios para el buen funcionamiento de los equipos a su cargo.
+mm. Realizar las rutinas de limpieza de los equipos tomando en cuenta las recomendaciones del fabricante.
+nn. Educar al personal y pacientes respecto al uso adecuado de las radiaciones ionizantes.
+oo. Dar charlas educativas al personal de apoyo involucrado en los diferentes procedimientos.
+pp.Participar de los programas de educación continua.
+(Así reformado el inciso 1.6) anterior mediante acuerdo N° siete, tomado en sesión ordinaria y extraordinaria celebrada el 05 de noviembre de 2022)
 1.7 Angiografia y hemodioamia
 Serán competencia exclusiva del Licenciado (a) en lmagenología Diagnóstica y Terapéutica las siguientes funciones en angiografía y hemodinarnia:
 a. Inspeccionar y encender el equipo, así como corroborar el correcto funcionamiento del mismo.
@@ -99,8 +141,8 @@ r. Organizar y archivar las películas de los procedimientos.
 s. Conocer y aplicar maniobras básicas de resucitación cardiopulmonar.
 t. Asistir las sesiones de cardiología intervencionista y cirugía cardiaca con la presentación de imágenes, mediciones y procesamientos de lesiones para la discusión de los tratamientos.
 u. Manejo de equipos de ultrasonido intravascular (IVUS) y tomografia por coherencia óptica (OCT).
-1.8 Tomografía Computarizada (TC) Serán competencia exclusiva del Bachiller y Licenciado (a) en Imagenología Diagnóstica y Terapéutica las siguientes funciones en Tomografía Computarizada (y TC simulador) aplicadas a la salud humana y animal, como en cualquier otro campo en el que sea utilizada y este deberá tomar en consideración, en cada caso, las prácticas de seguridad y protección radiológica pertinentes:
-(Corregido el párrafo anterior mediante Fe de Erratas y publicada en La Gaceta N° 54 del 19 de marzo del 2020, página N° 72)
+1.8 Tomografía Computarizada (TC): Será competencia exclusiva del Bachiller y Licenciado (a) en Imagenología Diagnóstica y Terapéutica las siguientes funciones en Tomografía Computarizada (y TC simulador) aplicadas a la salud humana y animal, así como en cualquier otro campo en el que sea utilizada y este deberá tomar en consideración, en cada caso, las prácticas de seguridad y protección radiológica pertinentes:
+(Así reformado el inciso anterior mediante acuerdo N° siete, tomado en sesión ordinaria y extraordinaria celebrada el 05 de noviembre de 2022)
 a. Inspeccionar y encender el equipo de TC, así como comprobar y verificar las calibraciones antes de cada procedimiento, según los parámetros de calidad establecidos y llevar registro de inconformidades.
 b. Valorar las solicitudes de exámenes de TC para identificar el procedimiento adecuado, comprobar la idoneidad del estudio solicitado, y para establecer el protocolo específico a implementar en cada caso.
 c. Valorar y asegurar la adecuada preparación del paciente antes de iniciar la adquisición de las imágenes.
@@ -123,17 +165,19 @@ c. Valorar y asegurar las condiciones adecuadas para el estudio, recibir al paci
 d. Crear la imagen panorámica inicial, estimar la posibilidad de cubrir completamente las necesidades diagnósticas con el estudio solicitado, de no ser así, comunicarse directamente con el odontólogo referente y plantearle la situación.
 e. Establecer los parámetros del protocolo de adquisición, dosificar la radiación del paciente y adquirir las imágenes.
 f. Evaluar la calidad técnica de las imágenes obtenidas; revisar y analizar la anatomía del paciente en las imágenes y determinar la necesidad de adquirir imágenes adicionales que completen el diagnóstico.
-g. Procesar, reconstruir y presentar las imágenes para guiar el diagnóstico oportuno, por parte del radiólogo odontólogo.
+g. Procesar, reconstruir y presentar las imágenes para guiar el diagnóstico oportuno.
+(Así reformado el inciso anterior mediante acuerdo N° siete, tomado en sesión ordinaria y extraordinaria celebrada el 05 de noviembre de 2022)
 h. Generar las imágenes DICOM para software odontológico y manejar los sistemas de archivo para revaloraciones posteriores y para generar guías quirúrgicas.
 (Así adicionado el inciso anterior mediante Fe de Erratas y publicado en La Gaceta N° 54 del 19 de marzo del 2020, página N° 72)
-1.10 Resonancia magnética nuclear (RM). Serán competencia exclusiva del Bachiller y Licenciado (a) en Imagenología Diagnóstica y Terapéutica las siguientes funciones en Resonancia magnética nuclear aplicadas a la salud humana y animal, como en cualquier otro campo en el que sea utilizada:
-(Corregido el párrafo anterior mediante Fe de Erratas y publicado en La Gaceta N° 54 del 19 de marzo del 2020)
+1.10 Resonancia magnética. Serán competencia exclusiva del Bachiller y Licenciado (a) en Imagenología Diagnóstica y Terapéutica las siguientes funciones en Resonancia magnética nuclear aplicadas a la salud humana y animal, así como en cualquier otro campo en el que sea utilizada:
+(Así reformado el párrafo anterior mediante acuerdo N° siete, tomado en sesión ordinaria y extraordinaria celebrada el 05 de noviembre de 2022)
 a. Encender, revisar y llevar registro del estado del equipo con el objetivo de establecer patrones de funcionamiento.
 b. Ejecutar el control de calidad diario y llevar registro del desempeño del equipo.
 c. Evaluar, antes de cada procedimiento. la condición del paciente, estado físico e historia clínica para la realización del estudio. con el objetivo de establecer el protocolo adecuado y asegurar el área con el fin de evitar riesgos para el paciente, para el equipo y el personal, por la presencia de objetos rnetálicos de origen y características desconocidas que significan un peligro en una sala de RM.
 d. Preparar al paciente explicando en qué consiste el estudio y educando sobre instrucciones, riesgos y sensaciones durante el mismo por efecto de las interacciones de la radiofrecuencia con el cuerpo humano o con algunos componentes corno maquillaje, tatuajes, implantes y prótesis.
 e. Solicitar y coordinar la administración de sedantes farmacológicos en pacientes de difícil manejo o con riesgo de sufrir ataques de claustrofobia o ansiedad para aumentar la posibilidad ele realización efectiva del estudio.
-f. Realizar el estudio de RM seleccionando los parámetros de adquisición del equipo y el protocolo de secuencias adecuado que cubra completamente las necesidades diagnósticas del estudio solicitado por el médico referente.
+f. Realizar el estudio de RM seleccionando los parámetros de adquisición del equipo y el protocolo de secuencias adecuado que cubra completamente las necesidades diagnósticas del estudio solicitado.
+(Así reformado el inciso anterior mediante acuerdo N° siete, tomado en sesión ordinaria y extraordinaria celebrada el 05 de noviembre de 2022)
 g. Programar los parámetros de inyección para la aplicación del medio de contraste intravenoso en los equipos inyectores.
 h. Valorar las imágenes utilizando los parámetros de calidad para asegurar el procesamiento y reconstrucción del estudio según las necesidades diagnósticas, y definir y realizar las secuencias adicionales que complementen el estudio.
 i. Procesar, reconstruir y presentar las imágenes.
@@ -143,21 +187,26 @@ l. Coordinar los controles periódicos y programas de mantenimiento del equipo d
 m. Complementar el estudio de resonancia magnética con secuencias adicionales, según la patología encontrada, para aumentar la sensibilidad de la técnica de diagnóstico.
 n. Valorar las condiciones del paciente para la realización de la resonancia o administración del medio de contraste con el fin de asegurar su seguridad.
 o. Notificar las alteraciones y mal funcionamientos del resonador al departamento o entidad correspondiente.
-p. Coordinar la programación de estudios emergentes de urgencia.
+p. Programación de estudios emergentes de urgencia.
+(Así reformado el inciso anterior mediante acuerdo N° siete, tomado en sesión ordinaria y extraordinaria celebrada el 05 de noviembre de 2022)
 q. Seleccionar el tipo de bobina (antena) según las necesidades del paciente y tipo de exploración.
 r. Coordinar y realizar limpieza del magneto, en especial al ser expuesto el mismo a pacientes con enfermedades infectocontagiosas, tanto por la integridad del equipo como la de otros pacientes y personal laboral.
 s. Tomar la decisión de suspender estudios en caso de pacientes no colaboradores, con alguna incapacidad para mantener la posición de exploración, que presenten alguna demencia o en pacientes (adulto o niños) que aún con la administración de hidrato cloral.
 no hayan surtido ningún efecto.
 t. Solicitar aprobación y administración de corticoesteroides en pacientes que presenten algún tipo de reacción alérgica leve.
+u. Ejecución de estudios de resonancia magnética funcionales.
+(Así adicionado el inciso anterior mediante acuerdo N° siete, tomado en sesión ordinaria y extraordinaria celebrada el 05 de noviembre de 2022)
 Será competencia exclusiva del Licenciado (a) en lmagenología Diagnóstica y Terapéutica la utilización del resonador en todo aquel procedimiento de carácter invasivo, terapéutico o bien marcajes con radiofármacos guiados por resonancia magnética y coordinados con medicina nuclear. De igual manera, es exclusivo de este profesional el uso de las resonancias magnéticas destinadas para realizar simulación de tratamientos en radioterapia.
 1.11 Coordinación de imagenólogos
 El Licenciado (a) en lmagenología Diagnóstica y Terapéutica tiene la competencia exclusiva de coordinar y gestionar la nómina de imagenólogos y tecnólogos en los centros de radiología.
 2. Radioterapia
-La radioterapia como área de la Imagenología, se dedica a la aplicación de radiaciones ionizantes de alta energía mediante equipos emisores dirigidos al tratamiento curativo y paliativo de enfermedades, principalmente cáncer, basados en los umbrales de tolerancia a la radiación de los órganos corporales.
-(Corregido el párrafo anterior mediante Fe de Erratas y publicada en La Gaceta N° 54 del 19 de marzo del 2020, página N° 72)
-El Licenciado en Imagenología Diagnóstica y Terapéutica tiene la competencia exclusiva para las siguientes funciones en los departamentos y equipos de radioterapia, aplicadas a la salud humana y animal, como en cualquier otro campo en el que sea utilizada:
+La radioterapia como área de la Imagenología, se dedica a la aplicación de radiaciones ionizantes de alta energía mediante fuentes emisores dirigidos al tratamiento curativo y paliativo de enfermedades, principalmente cáncer, basados en los umbrales de tolerancia a la radiación de los órganos corporales.
+(Así reformado el párrafo anterior mediante acuerdo N° siete, tomado en sesión ordinaria y extraordinaria celebrada el 05 de noviembre de 2022)
+El Licenciado en Imagenología Diagnóstica y Terapéutica tiene la competencia exclusiva para las siguientes funciones en los departamentos y equipos de radioterapia, aplicadas a la salud humana y animal.
+(Así reformado el párrafo anterior mediante acuerdo N° siete, tomado en sesión ordinaria y extraordinaria celebrada el 05 de noviembre de 2022)
 2.1 Unidades de tratamiento (Acelerador lineal, cobalto 60, terapia superficial, braquitcrapia)
-a. Operar equipos radiológicos de radioterapia, de teleterapia (Equipos para terapia a distancia) como acelerador lineal y cobalto 60, ortovoltaje (Equipo para terapia superficial) y braquiterapia (Equipo para terapia de contacto).
+a. Operar equipos de radioterapia tales como teleterapia (acelerador lineal y cobalto 60, ortovoltaje) y braquiterapia.
+(Así reformado el inciso anterior mediante acuerdo N° siete, tomado en sesión ordinaria y extraordinaria celebrada el 05 de noviembre de 2022)
 b. Preparar reportes sobre los desperfectos que sufre el equipo con que realiza su trabajo y sobre las irregularidades observadas en el desarrollo de las labores y otros aspectos de interés que su1jan como consecuencia del trabajo que efectúa.
 c. Comprobar el funcionamiento de los equipos y los accesorios, así como sus límites de seguridad.
 d. Crear campos de Boost de electrones verificando que las protecciones y accesorios coincidan con el tratamiento establecido.
@@ -174,7 +223,7 @@ n. Dosificar la radiación del paciente aplicando y programando los parámetros 
 o. Verificar y revisar que la dosimetría en los registros digitales y físicos (cartillas de tratamientos) del paciente se encuentren iguales a la hora de iniciar su tratamiento.
 p. Realizar los desplazamientos de los campos de tratamiento desde los puntos de referencias hasta los puntos reales de tratamiento para realizar los cálculos.
 q. Realizar el correcto posicionamiento y colocación del paciente por medio de los puntos de referencia, láseres longitudinal, sagital y lateral y el uso de los accesorios o inmovilizadores para el tratamiento.
-r. Aplicar reducciones del margen de error debido a los desplazamientos el día del inicio, colocando marcas externas en el área donde ingresará la radiación de los campos de tratamiento, antes de realizar la planificación.
+r. Adquirir imágenes de localización y verificación de los campos de tratamiento y posicionamiento del paciente.
 s. Efectuar toma de placas e imágenes digitales de localización y verificación de los campos de tratamiento y posicionamiento del paciente.
 t. Corroborar la calidad de las imágenes digitales de posicionamiento y verificación de los campos de tratamiento posterior a su aplicación y grabarlas una vez comprobada su exactitud.
 u. Analizar y valorar las imágenes obtenidas para determinar si existe algún tipo de anomalía en el posicionamiento o localización de los campos de tratamientos, y tomar las mediciones y ajustes necesarios.
@@ -189,33 +238,42 @@ cc. Llevar un archivo de los pacientes que reciben radioterapia y dar seguimient
 dd. Realizar controles de calidad rutinarios del funcionamiento de los equipos de radioterapia.
 ee. Conocer y aplicar las regulaciones vigentes de radioprotección, detectar riesgos de irradiación innecesaria y contribuir a la radioprotección del paciente y público en general.
 2.2 Dosimetría
-a. Realizar la planificación dosimétrica de tratamientos para pacientes con cáncer u otras enfermedades que puedan requerir radioterapia.
+a. Realizar la planificación y control de calidad dosimétrica de tratamientos para pacientes con cáncer u otras enfermedades que puedan requerir radioterapia.
+(Así reformado el incisoanterior mediante acuerdo N° siete, tomado en sesión ordinaria y extraordinaria celebrada el 05 de noviembre de 2022)
 b. Utilizar la información obtenida en la simulación para colocar y programar haces de radiación en diferentes angulaciones y con diferentes energías, junto a implementos que ayuden a la modulación de la dosis en el paciente.
 c. Verificar cada plan de tratamiento para que a cada paciente se le administre la dosis de radiación a los volúmenes que se quieren tratar y que limite al mínimo posible la dosis que afecta los órganos de riesgo.
 d. Cumplir con los parámetros nacionales e internacionales sobre dosis entregada al volumen blanco y restricción de dosis a órganos de riesgo, evitando tanto la subdosificación como la sobredosificación del paciente.
 e. Crear y evaluar curvas de isodosis que expresen tanto la dosis porcentual como absoluta que reciben los volúmenes blancos y los órganos de riesgo.
 f. Evaluar que se cumplan los objetivos prescritos para cada plan de tratamiento, de acuerdo con un rango de dosis deseable, entregando la dosis adecuada a las estructuras y limitando la dosis en las estructuras anatómicas de riesgo.
+(Así reformado el inciso anterior mediante acuerdo N° siete, tomado en sesión ordinaria y extraordinaria celebrada el 05 de noviembre de 2022)
 g. Programar los parámetros de los sistemas de infom1ática para crear imágenes compuestas (fusión de imágenes) mediante la guía de estructuras anatómicas.
 h. Optimizar las delimitaciones de las estructuras anatómicas normales y patológicas mediante estudios imagenológicos compuestos (cuando sea posible) y más aptos para la valoración del área anatómica de interés en el tratamiento.
 i. Presentar los planes de tratamiento para su revisión, optimización y aprobación.
 j· Documentar el plan de tratamiento para hacerlo disponible a consulta ulterior, en forma impresa, escrita o digital y llevar control estadístico.
-k. Imprimir y llenar documentación que registre y reporte los datos más importantes del tratamiento, de acuerdo con el tipo de tecnología y métodos de trabajo del servicio.
+k. Documentar los datos relevantes del tratamiento, de acuerdo con el tipo de tecnología y métodos de trabajo del servicio.
+(Así reformado el inciso anterior mediante acuerdo N° siete, tomado en sesión ordinaria y extraordinaria celebrada el 05 de noviembre de 2022)
 l. Enviar los datos técnicos del tratamiento mediante sistema de cómputo por redes de comunicación entre los sistemas de planificación y los equipos de tratamiento.
-m. Realizar los controles de calidad diarios y comprobar los parámetros de funcionamiento adecuados de los equipos que garanticen la optimización del proceso.
+m. Realizar los controles de calidad diarios y comprobar los parámetros de funcionamiento adecuados de los sistemas operativos y de los equipos para garantizar la optimización del proceso.
+(Así reformado el inciso anterior mediante acuerdo N° siete, tomado en sesión ordinaria y extraordinaria celebrada el 05 de noviembre de 2022)
 n. Aplicar protocolos de controles de calidad en fantomas y hojas de cálculo, mediante procedimientos establecidos en el servicio.
 o. Determinar el isocentro de tratamiento en las imágenes obtenidas en la simulación.
 p. Contornear y delimitar los órganos de riesgo y estructuras de interés en las imágenes de simulación.
+(Así reformado el inciso anterior mediante acuerdo N° siete, tomado en sesión ordinaria y extraordinaria celebrada el 05 de noviembre de 2022)
 q. Evaluar la dosis de radiación que reciben los órganos de riesgo, con la finalidad de evitar que se supere el umbral de dosis de tolerancia.
 2.3 Simuladores
 a. Inspeccionar y encender el equipo simulador, así como comprobar y verificar las calibraciones antes de cada procedimiento y llevar registro de inconformidades.
 b. Simular tratamientos de radioterapia mediante equipo convencional utilizando los datos de localización y referencias anatómicas para obtener imágenes en dos dimensiones que simulen campos de radiación, cuando sea requerido de acuerdo con la tecnología disponible.
-c. Personalizar inmovilizadores según la región anatómica en las simulaciones.
+c. Personalizar inmovilizadores según la región anatómica a tratar.
+(Así reformado el inciso anterior mediante acuerdo N° siete, tomado en sesión ordinaria y extraordinaria celebrada el 05 de noviembre de 2022)
 d. Valorar las solicitudes para identificar el procedimiento adecuado e implementar el abordaje específico de la simulación.
 e. Asegurar el posicionamiento adecuado e identificación de puntos de referencia anatómicos durante el proceso de simulación.
 f. Preparar, posicionar, fijar y asegurar las máscaras, cuñas, soportes e instrumentos de posicionamiento del paciente según las especificaciones de la solicitud.
 g. Garantizar la aplicación de las normas de radioprotección específicas para el equipo simulador.
 h. Corroborar la necesidad de utilizar medios de contraste y velar porque se cumplan los requisitos para su administración.
-i. Enviar las imágenes adquiridas de la simulación al sistema de planificación establecido para su posterior trabajo en dosimetría.
+i. Realizar la adquisición de las imágenes en el equipo simulador.
+(Así reformado el inciso anterior mediante acuerdo N° siete, tomado en sesión ordinaria y extraordinaria celebrada el 05 de noviembre de 2022)
+j. Analizar y valorar la calidad de las imágenes adquiridas para determinar si existe algún tipo de anomalía en el posicionamiento de la persona usuaria.
+(Así adicionado el inciso anterior mediante acuerdo N° siete, tomado en sesión ordinaria y extraordinaria celebrada el 05 de noviembre de 2022)
 2.4 Coordinación de imagenólogos
 El Licenciado (a) en lmagenología tiene la competencia exclusiva de coordinar y gestionar la nómina de imagenólogos en los centros de radioterapia.
 3. Medicina nuclear
@@ -306,9 +364,10 @@ n. Adquirir las imágenes tomográficas siguiendo el protocolo computarizado esc
 o. Adquirir las imágenes de PET siguiendo el protocolo computarizado escogido y seleccionando los parámetros electrónicos variables que sean idóneos según peso, talla, edad, estado físico, órganos y estructuras en estudio, patologías sospechosas y confirmadas y capacidad del equipo.
 p. Valorar las imágenes utilizando los parámetros de calidad que permitan procesar y reconstruir el estudio según las necesidades diagnósticas para definir la conclusión, continuación o variación del protocolo en estudio.
 q. Realizar el procesamiento de las imágenes que guíen el diagnóstico mediante la fusión de imágenes PET con el CT, identificar imágenes con probables patologías y la demostración de ausencia patológica, utilizando reconstrucciones 30, anotaciones y demás herramientas de procesamiento.
-r. Elegir y presentar las imágenes post-procesamiento de PET-CT que permitan el análisis seguro del estudio por parte del médico nuclear en el formato requerido y archivar los datos requeridos para su control posterior.
+r. Elegir y presentar las imágenes post-procesamiento de PET-CT que permitan el análisis seguro del estudio en el formato requerido y archivar los datos requeridos para su control posterior..
+(Así reformado el inciso anterior mediante acuerdo N° siete, tomado en sesión ordinaria y extraordinaria celebrada el 05 de noviembre de 2022)
 s. Coordinar los controles periódicos y programas de mantenimiento del equipo de PET-CT y de los sistemas integrados de inyección automática, de impresión de imágenes y de almacenamiento de información, que aseguren el buen funcionamiento del equipo y la calidad imagenológica de los estudios.
-3.8 Tomografía por emisión de positrones-Resonancia Magnética Nuclear (PETRMN)
+3.8 Tomografía por emisión de positrones-Resonancia Magnética Nuclear (PET-RMN)
 a. Encender e inspeccionar el equipo de PET-RMN y llevar registro del estado del equipo con el objetivo de establecer patrones de funcionamiento del mismo, ejecutar el control de calidad diario y asegurar la reproducibilidad de estudios de PET-RMN, así como realizar informe de anomalías reportando a tiempo cualquier inconveniente en el desempeño del equipo.
 b. Realizar el control de calidad diario de las cámaras PET-RMN y del calibrador de dosis.
 c. Acondicionar el área de trabajo para brindar la seguridad tanto en aspectos mecánicos como de radioprotección.
@@ -322,15 +381,21 @@ j. Asegurar el área y garantizar la aplicación de las normas de radioprotecci�
 k. Evaluar, antes de cada procedimiento, la condición del paciente, estado físico e historia clínica para la realización del estudio, con el objetivo de establecer el protocolo adecuado y asegurar el área para evitar riesgos para el paciente, para el equipo y el personal del centro, debido a la presencia de objetos metálicos de origen y características desconocidas que significan un peligro en una sala de PET-RM.
 l. Preparar al paciente para el estudio, explicando en qué consiste el mismo y educando sobre instrucciones, riesgos y sensaciones durante el estudio por efecto de las interacciones de la radiofrecuencia con el cuerpo humano o con algunos componentes como maquillaje, tatuajes, implantes y prótesis.
 m. Solicitar y coordinar con la farmacia y la enfermería la aplicación de sedantes farmacológicos en pacientes de difícil manejo o con riesgo de sufrir ataques de claustrofobia o ansiedad para aumentar la posibilidad de realización efectiva del estudio.
-n. Corroborar la necesidad de utilizar medios de contraste oral según la patología, coordinar con el médico nuclear la solicitud de medios de contraste intravenosos en caso de ser necesarios, pero no haber sido solicitados y verificar con las pruebas de función renal y el consentimiento informado del paciente, si se procede o rechaza la aplicación de medios de contraste intravenoso.
-o. Realizar el estudio de RM seleccionando los parámetros de adquisición del equipo y el protocolo de secuencias adecuado que cubra completamente las necesidades diagnósticas del estudio solicitado por el médico referente.
+n. Corroborar la necesidad de utilizar medios de contraste oral según la patología, coordinar con el equipo multidisciplinario la solicitud de medios de contraste intravenosos en caso de ser necesarios, pero no haber sido solicitados y verificar con las pruebas de función renal y el consentimiento informado del paciente, si se procede o rechaza la aplicación de medios de contraste intravenoso.
+(Así reformado el inciso anterior mediante acuerdo N° siete, tomado en sesión ordinaria y extraordinaria celebrada el 05 de noviembre de 2022)
+o. Realizar el estudio de RM seleccionando los parámetros de adquisición del equipo y el protocolo de secuencias adecuado que cubra completamente las necesidades diagnósticas del estudio solicitado.
+(Así reformado el inciso anterior mediante acuerdo N° siete, tomado en sesión ordinaria y extraordinaria celebrada el 05 de noviembre de 2022)
 p. Programar los parámetros de inyección para la aplicación del medio de contraste intravenoso en los equipos inyectores, tomando en cuenta volúmenes, tiempos, flujos. presiones, vías y catéteres según los protocolos y parámetros de adquisición de las imágenes, con el fin de mejorar el diagnóstico mediante la captación de gadolinio de tejidos o estructuras patológicas.
 q. Adquirir las imágenes de PEl siguiendo el protocolo computarizado escogido y seleccionando los parámetros electrónicos variables que sean idóneos según peso, talla, edad, estado físico, órganos y estructuras en estudio, patologías sospechosas y confirmadas y capacidad del equipo.
 r. Valorar las imágenes crudas utilizando los parámetros ele calidad que permitan procesar y reconstruir el estudio según las necesidades diagnósticas para definir la conclusión, continuación o variación del protocolo estudio.
 s. Realizar el procesamiento de las imágenes que guíen el diagnóstico mediante la fusión de imágenes PET con el RMN, identificar imágenes con probables patologías y la demostración de ausencia patológica, utilizando reconstrucciones 30, anotaciones y demás herramientas de procesamiento.
-t. Elegir y presentar las imágenes post-procesamiento de PET-RMN que permitan el análisis seguro del estudio por parte del médico nuclear en el formato requerido y archivar los datos necesarios para su control posterior.
-u. Coordinar los controles periódicos y programas de mantenimiento del equipo de PETRMN y de los sistemas integrados de inyección automática, de impresión de imágenes y de almacenamiento de información, que aseguren el buen funcionamiento del equipo y la calidad imagenológica de los estudios.
+t. Elegir y presentar las imágenes post-procesamiento de PET-RM que permitan el análisis seguro del estudio, en el formato requerido y archivar los datos necesarios para su control posterior.
+(Así reformado el inciso anterior mediante acuerdo N° siete, tomado en sesión ordinaria y extraordinaria celebrada el 05 de noviembre de 2022)
+u. Coordinar los controles periódicos y programas de mantenimiento del equipo de PET- RM y de los sistemas integrados de inyección automática, de impresión de imágenes y de almacenamiento de información, que aseguren el buen funcionamiento del equipo y la calidad imagenológica de los estudios.
+(Así reformado el inciso anterior mediante acuerdo N° siete, tomado en sesión ordinaria y extraordinaria celebrada el 05 de noviembre de 2022)
 3.9 Radiofarmacia
+Labora en conjunto con el equipo multidisciplinario de la radiofarmacia participando en las siguientes actividades:
+(Así reformado el párrafo anterior mediante acuerdo N° siete, tomado en sesión ordinaria y extraordinaria celebrada el 05 de noviembre de 2022)
 a. Recibir y gestionar los isótopos radiactivos de uso en medicina nuclear.
 b. Dosificar y etiquetar las dosis radiactivas terapéuticas para el tratamiento de enfermedades.
 c. Realizar los controles de calidad diarios de los diferentes instrumentos empleados en dicha unidad para la gestión de material radiactivo.
@@ -342,13 +407,15 @@ h. Informar y educar al paciente sobre los efectos e instrucciones de la aplicac
 i. Administrar las dosis diagnósticas correspondientes, tanto vía oral como endovenosa para la obtención de estudios gammagráficos consecuentes con los requerimientos del paciente y la solicitud del referente.
 J· Realizar, procesar y reportar el procedimiento para diagnóstico de presencia de Helicobacter Pylori. mediante el test del aliento.
 k. Realizar los procedimientos de marcación de células con radioisótopos.
-3.10 Coordinación de imagenólogos
-El Licenciado (a) en lmagenología Diagnóstica y Terapéutica tiene la competencia exclusiva de coordinar y gestionar la nómina de lmagenólogos en los centros de medicina nuclear.
+3.10 Coordinación de recurso humano en imagenología
+(Así reformado el párrafo anterior mediante acuerdo N° siete, tomado en sesión ordinaria y extraordinaria celebrada el 05 de noviembre de 2022)
+El Lcenciado (a) en Imagenología Diagnóstica y Terapéutica tiene la competencia exclusiva de coordinar y gestionar la nómina del recurso humano en imagenología.
+(Así reformado el párrafo anterior mediante acuerdo N° siete, tomado en sesión ordinaria y extraordinaria celebrada el 05 de noviembre de 2022)
 4. Protección radiológica
 El área de protección radiológica es la dedicada a los procedimientos y disposiciones que optimizan y regulan la práctica de la Imagenología para proteger tanto como sea posible y razonable a los pacientes, personal ocupacionalmente expuesto, público en general y medio ambiente, de las potenciales consecuencias de las radiaciones ionizantes.
-(Corregido el párrafo anterior mediante Fe de Erratas y publicada en La Gaceta N° 54 del 19 de marzo del 2020, página N° 72)
-El Licenciado (a) en Imagenología Diagnóstica y Terapéutica tiene la competencia exclusiva como oficial y responsable de protección radiológica en los centros de salud humana y animal, así como en cualquier otro campo en el que sea utilizada, para la gestión, vigilancia y educación en radioprotección donde deberá ejecutar las siguientes funciones:
-(Corregido el párrafo anterior mediante Fe de Erratas y publicada en La Gaceta N° 54 del 19 de marzo del 2020, página N° 72)
+(Así reformado el párrafo anterior mediante acuerdo N° siete, tomado en sesión ordinaria y extraordinaria celebrada el 05 de noviembre de 2022)
+El Licenciado (a) en Imagenología Diagnóstica y Terapéutica tiene la competencia exclusiva como oficial y responsable de protección radiológica en los centros de salud humana y animal, así como en cualquier otro campo en el que sean utilizados equipos o fuentes emisoras de radiaciones ionizantes para la gestión, vigilancia y educación en radio protección donde deberá ejecutar las siguientes funciones:
+(Así reformado el párrafo anterior mediante acuerdo N° siete, tomado en sesión ordinaria y extraordinaria celebrada el 05 de noviembre de 2022)
 a. Informar a las autoridades competentes de cualquier situación que pueda poner en peligro evidente o potencial la salud tanto del personal como del público en general.
 b. Reportarse directamente con el titular de la licencia de la instalación para todo lo que concierne a la seguridad radiológica de la instalación correspondiente.
 c. Velar porque las normas de protección radiológica dispuestas por la autoridad competente y la institución concerniente se cumplan.
@@ -381,23 +448,24 @@ cc. Efectuar la vigilancia radiológica de residuos y materiales radiactivos, in
 dd. Registrar la información de las fuentes radiactivas y emisiones de radiación ionizante que se encuentran en el servicio
 ee. Mantener un registro dosimétrico, así como de aquellas variables clínicas relevantes para la estimación del riesgo radiológico del personal ocupacionalmente expuesto.
 ff. Asesorar en temas de protección radiológica otras prácticas relacionadas al uso de equipos emisores de radiación ionizante
-5. Docencia e investigación
+(*)5. Docencia e investigación
 El Bachiller y Licenciado (a) en Imagenología Diagnóstica y Terapéutica tiene la competencia en las siguientes funciones del campo educativo y científico:
-(Corregido el párrafo anterior mediante Fe de Erratas y publicada en La Gaceta N° 54 del 19 de marzo del 2020, página N° 72)
-a. Participar en la planificación, programación, diseño y desarrollo de la política nacional en temas de salud, como parte del equipo multidisciplinario en salud.
-b. Coordinar, dirigir o formar parte del cuerpo docente en carreras universitarias, procesos y programas educativos cuyo campo de acción se encuentre relacionado con la Imagenología Diagnóstica y Terapéutica.
-(Corregido el inciso anterior mediante Fe de Erratas y publicado en La Gaceta N° 54 del 19 de marzo del 2020, página 72)
-c. Participar en el diseño, rediseño, planificación, innovación y mejora de planes de estudio, material didáctico, procedimientos, protocolos, métodos y técnicas de la disciplina.
-d. Participar en trabajos y estudios de investigación educativa y científica del campo, así como de la publicación de los mismos.
-e. Asesorar trabajos de investigación básica en el campo.
-f. Contribuir a través del aporte educativo en la mejora de la sociedad y desarrollo del país.
-g. Asesorar y e instruir a otros profesionales y funcionarios en temas propios del área de la Imagenología Diagnóstica y Terapéutica cuando así se requiera.
-h. Diseñar planes de educación continua y permanente a nivel institucional en ternas relacionados con el campo de la docencia hospitalaria y prácticas de aprendizaje en lrnagenología Diagnóstica y Terapéutica.
-i. Fungir corno coordinador, así como instructor de prácticas hospitalarias de la disciplina, desarrollando labores docentes en centros de salud públicos y privados prestando el cuidado y atención de los estudiantes sin el detrimento en la calidad en la atención de los pacientes.
-j· Asignar tareas a los estudiantes que roten en los centros médicos, estimulando el proceso de aprendizaje y fomentando el desarrollo de las competencias profesionales.
-k. Supervisar permanentemente las actividades desempeñadas por los estudiantes bajo su cargo.
-l. Cumplir con los respectivos programas académicos.
-m. Coordinar, dirigir o formar parte del cuerpo docente en carreras universitarias, procesos y programas educativos cuyo campo de acción sea la Imagenología Diagnóstica y Terapéutica.
+a. Participar en la coordinación, planificación, programación, diseño y desarrollo de investigaciones en temas de salud, ciencia y tecnología.
+b. Participar en proyectos de investigación biomédica y epidemiológica para la generación de conocimiento, divulgación de los resultados, conclusiones y recomendaciones, aplicables a la toma de decisiones, elaboración de políticas públicas y distribución de recursos, entre otros, según contexto investigado.
+c. Participar en la planificación, programación, diseño y desarrollo de la política nacional en temas de salud.
+d. Participar en la planificación, programación, diseño y desarrollo de programas de acción social en temas de salud
+e. Evaluar y monitorear investigaciones clínicas en pacientes, aplicando fundamentos bioéticos.
+f. Investigar, desarrollar e innovar en procesos diagnósticos y terapéuticos que utilicen radiaciones ionizantes y no ionizantes (sean estos de uso humano o animal).
+g. Publicar resultados de investigaciones para contribuir al desarrollo de la imagenología y del conocimiento científico en general.
+h. Coordinar, dirigir o formar parte del cuerpo docente en carreras universitarias, programas de posgrado y educación continua del área de la salud, la ciencia y la tecnología.
+i. Participar en el diseño, rediseño, planificación, innovación y mejora de planes de estudio, material didáctico, procedimientos, protocolos, métodos y técnicas de la disciplina.
+j. Asesorar trabajos de investigación básica y aplicada en el campo de la salud humana.
+k. Contribuir a través del aporte educativo en la mejora de la sociedad y desarrollo del país.
+l. Asesorar y e instruir a otros profesionales y funcionarios en temas propios o afines a la Imagenología Diagnóstica y Terapéutica y en temas de salud humana cuando así se requiera.
+m. Diseñar planes de educación continua y permanente a nivel institucional en temas relacionados con la salud humana, la docencia hospitalaria y prácticas de aprendizaje en Imagenología Diagnóstica y Terapéutica.
+n. Coordinar actividades de enseñanza en el ámbito clínico y labores docentes en centros de salud públicos y privados.
+o. Guiar procesos de enseñanza clínica en los centros médicos, estimulando el proceso de aprendizaje y fomentando el desarrollo de las competencias profesionales.
+(*) (Así reformado el punto 5) anterior mediante acuerdo N° siete, tomado en sesión ordinaria y extraordinaria celebrada el 05 de noviembre de 2022)
 6. Funciones administrativas
 El Licenciado (a) en lmagenología Diagnóstica y Terapéutica tiene la competencia en la siguientes funciones administrativas:
 a. Colaborar con la jefatura en la programación anual de suministros para el servicio
