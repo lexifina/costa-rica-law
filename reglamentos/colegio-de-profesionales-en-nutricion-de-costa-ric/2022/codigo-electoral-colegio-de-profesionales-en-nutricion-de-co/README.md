@@ -14,3 +14,4 @@ Código electoral Colegio de Profesionales en Nutrición de Costa Rica
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-06-03 | la propia norma |
+| 2 | 2022-11-05 | Reglamento 29 (2022-11-05) |
