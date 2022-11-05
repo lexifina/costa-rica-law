@@ -1,0 +1,1 @@
+ARTÍCULO 7- Comisionado del Distrito Cívico del Bicentenario. El Consejo del Distrito Cívico del Bicentenario mencionado en el artículo anterior elegirá, de su seno, un comisionado, que será el responsable de coordinar e implementar sus decisiones colegiadas, de acuerdo con los recursos y las facilidades que le sean asignadas.

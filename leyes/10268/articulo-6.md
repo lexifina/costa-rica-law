@@ -1,0 +1,1 @@
+ARTÍCULO 6- Patrimonio. El patrimonio del Consejo del Distrito Cívico del Bicentenario estará conformado por las transferencias, los legados, las donaciones y los aportes que reciba de las instituciones estatales que lo conforman, y de los aportes voluntarios de cualquier sujeto de derecho privado que desee colaborar en su sostenimiento.
