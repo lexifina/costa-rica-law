@@ -1,3 +1,0 @@
-Artículo 7. Procesos de contratación de personal.
-El proceso para la contratación de personal en propiedad contará con las siguientes etapas: reclutamiento, declaración de elegibilidad, selección por competencias y nombramiento de la persona oferente más idónea para determinado puesto, según se regula en el presente Reglamento.
-El nombramiento de personal en condición de interino se regirá por las disposiciones especiales del presente Reglamento, para garantizar la continuidad de los servicios prestados por la Institución y durante el tiempo necesario para que la Administración proceda a iniciar el correspondiente concurso para el nombramiento en propiedad.

@@ -1,6 +1,0 @@
-B.- NOMBRAMIENTOS DE PERSONAL A PLAZO DEFINIDO.
-Artículo 32. Nombramientos por plazo definido.
-Todas las plazas regulares autorizadas para satisfacer las necesidades propias permanentes de la Institución deberán ser ocupadas por personas nombradas en propiedad a plazo indefinido. Sin embargo, se podrán hacer nombramientos o ascensos a plazo determinado de forma interina, cuando:
-a.- Sea necesario nombrar a una persona funcionaria para ocupar una plaza vacante temporal, cuya persona titular haya solicitado, por un período igual o mayor a seis meses, permiso con o sin goce de salario, licencia o ascenso interino, incapacidad y por cualquier causa de separación del servicio de las personas funcionarias, a excepción de los puestos, de jefatura y del nivel operativo, los cuales podrán sustituirse por períodos menores al indicado. Se salvaguarda las situaciones que excepcionalmente a criterio del Departamento de Recursos Humanos, o la instancia competente en el caso de los órganos adscritos, ameriten una decisión distinta.
-b.- Mientras se realiza el concurso respectivo para hacer el nombramiento en propiedad, plazo que no puede superar los 3 meses, prorrogable por otros 3 meses.
-El proceso para este tipo de nombramientos, se establecerá mediante el procedimiento al presente reglamento, siempre velando por la idoneidad del personal nombrado en la Institución.

@@ -1,2 +1,0 @@
-Artículo 48. Derogatoria.
-El presente reglamento deroga el REGLAMENTO DE RECLUTAMIENTO, SELECCIÓN Y NOMBRAMIENTOS DEL PERSONAL DEL PATRONATO NACIONAL DE LA INFANCIA aprobado por la Junta Directiva del Patronato Nacional de la Infancia mediante acuerdo tomado en Sesión Ordinaria 2018-033, celebrada el 23 de octubre del 2018, artículo 007, aparte 01, publicado en el Alcance No. 198 de la Gaceta del 26 de octubre del 2018.

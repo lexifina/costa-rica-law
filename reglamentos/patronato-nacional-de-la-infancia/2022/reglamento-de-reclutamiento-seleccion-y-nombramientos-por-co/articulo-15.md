@@ -1,2 +1,0 @@
-Artículo 15. De los concursos para integrar el registro de elegibles y para nombramientos en propiedad.
-Por medio de un procedimiento de concurso interno, externo o mixto se hará la escogencia de las personas oferentes que cumplen con los requisitos de idoneidad para optar por un nombramiento en propiedad. Las personas oferentes que alcancen la calificación requerida, obtendrán la condición de elegibles e integrarán el registro respectivo.

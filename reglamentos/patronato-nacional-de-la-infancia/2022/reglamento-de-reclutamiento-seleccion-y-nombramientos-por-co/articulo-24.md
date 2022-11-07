@@ -1,2 +1,0 @@
-Artículo 24. Comunicación a personas oferentes descalificados.
-El Departamento de Recursos Humanos comunicará, a las personas oferentes que no hayan aprobado la valoración escrita; la entrevista por competencias; que hayan incumplido los requisitos para el cargo en concurso; o que no se hayan presentado a la realización de alguna de las citadas valoraciones, que han sido descalificadas del concurso. Lo anterior, a través del medio señalado por el oferente para atender comunicaciones, dejando constancia de ello dentro del expediente del concurso.

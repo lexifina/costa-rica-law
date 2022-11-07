@@ -1,2 +1,0 @@
-Artículo 42. Periodo de prueba en caso de personas funcionarias que ocupen plaza en propiedad.
-Si una persona es nombrada en una plaza ya sea en propiedad, teniendo propiedad en otra plaza, se comprenderá que se encuentra con un permiso sin goce de salario en la plaza previa, para iniciar el periodo de prueba en la nueva plaza. En caso de no aprobar el periodo de prueba, la persona funcionaria podrá regresar a su plaza anterior.
