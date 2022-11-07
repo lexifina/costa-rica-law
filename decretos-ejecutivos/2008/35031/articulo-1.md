@@ -5,11 +5,11 @@ LA MINISTRA DE SALUD
 Y EL MINISTRO DE ECONOMÍA, INDUSTRIA Y COMERCIO
 De conformidad con las atribuciones que les confieren los incisos 3) y 18) del artículo 140 y el artículo 146 de la Constitución Política; los numerales 25, 27 párrafo primero, 28, párrafo 2 inciso b) de la Ley General de la Administración Pública, Ley Nº 6227 del 2 de mayo de 1978; los artículos 1, 3, 5, 7, 15, 26, 30, 36, 37, 38, 39, 46, 52 y 55 del Protocolo al Tratado General de Integración Económica Centroamericana, Ley de Aprobación Nº 7629 del 26 de setiembre de 1996; y
 Considerando:
-I.—Que el Consejo de Ministros de Integración Económica (COMIECO), mediante Resolución Nº 231-2008 (COMIECO-L) de fecha 26 de junio de 2008, aprobó los Reglamentos Técnicos Centroamericanos RTCA 71.03.49:08 Productos Cosméticos. Buenas Prácticas de Manufactura para los Laboratorios Fabricantes de Productos Cosméticos (Anexo 1), RTCA 71.01.35:06 Productos Cosméticos. Registro e Inscripción Sanitaria de Productos Cosméticos (Anexo 2), RTCA 71.03.36:07 Productos Cosméticos. Etiquetado de Productos Cosméticos (Anexo 3) y RTCA 71.03.45:07 Productos Cosméticos. Verificación de la Calidad (Anexo 4); y la aplicación entre los Estados Parte, del Reconocimiento Mutuo de Registro o Inscripción Sanitaria de Productos Cosméticos (Anexo 5).
-II.—Que en cumplimiento de lo indicado en el ordinal anterior, procede la publicación de dicha resolución. Por tanto,
+I.-Que el Consejo de Ministros de Integración Económica (COMIECO), mediante Resolución Nº 231-2008 (COMIECO-L) de fecha 26 de junio de 2008, aprobó los Reglamentos Técnicos Centroamericanos RTCA 71.03.49:08 Productos Cosméticos. Buenas Prácticas de Manufactura para los Laboratorios Fabricantes de Productos Cosméticos (Anexo 1), RTCA 71.01.35:06 Productos Cosméticos. Registro e Inscripción Sanitaria de Productos Cosméticos (Anexo 2), RTCA 71.03.36:07 Productos Cosméticos. Etiquetado de Productos Cosméticos (Anexo 3) y RTCA 71.03.45:07 Productos Cosméticos. Verificación de la Calidad (Anexo 4); y la aplicación entre los Estados Parte, del Reconocimiento Mutuo de Registro o Inscripción Sanitaria de Productos Cosméticos (Anexo 5).
+II.-Que en cumplimiento de lo indicado en el ordinal anterior, procede la publicación de dicha resolución. Por tanto,
 Decretan:
 Publicación de la Resolución. Nº 231-2008 (COMIECO-L) de fecha 26 de junio de 2008, Reglamento Técnico Centroamericano RTCA 71.03.49:08 Productos Cosméticos. Buenas Prácticas de Manufactura para los Laboratorios Fabricantes de Productos Cosméticos, Reglamento Técnico Centroamericano RTCA 71.01.35:06 Productos Cosméticos. Registro e Inscripción Sanitaria de Productor Cosméticos, Reglamento Técnico Centroamericano RTCA 71.03.36:07 Productos Cosméticos. Etiquetado de Productos Cosméticos, Reglamento Técnico Centroamericano RTCA 71.03.45:07 Productos Cosméticos. Verificación de la Calidad; y el Reconocimiento Mutuo de Registro o Inscripción Sanitaria de Productos Cosméticos.
-Artículo 1º—Publíquese la Resolución Nº 231-2008 (COMIECO-L) de fecha 26 de junio de 2008 y sus Anexos, que a continuación se transcriben:
+Artículo 1º-Publíquese la Resolución Nº 231-2008 (COMIECO-L) de fecha 26 de junio de 2008 y sus Anexos, que a continuación se transcriben:
 RESOLUCIÓN Nº 231-2008 (COMIECO-L)
 EL CONSEJO DE MINISTROS DE INTEGRACIÓN ECONÓMICA
 CONSIDERANDO:
@@ -813,11 +813,11 @@ RTCA 71.01.35:06
 PRODUCTOS COSMÉTICOS. REGISTRO E INSCRIPCIÓN SANITARIA DE PRODUCTOS COSMÉTICOS.
 CORRESPONDENCIA: Este Reglamento no tiene correspondencia con ningún otro reglamento o normativa internacional.
 Reglamento Técnico Centroamericano, editado por:
-• Ministerio de Economía, MINECO
-• Consejo Nacional de Ciencia y Tecnología, CONACYT
-• Ministerio de Fomento, Industria y Comercio, MIFIC
-• Secretaría de Industria y Comercio, SIC
-• Ministerio de Economía, Industria y Comercio, MEIC
+. Ministerio de Economía, MINECO
+. Consejo Nacional de Ciencia y Tecnología, CONACYT
+. Ministerio de Fomento, Industria y Comercio, MIFIC
+. Secretaría de Industria y Comercio, SIC
+. Ministerio de Economía, Industria y Comercio, MEIC
 Derechos Reservados.
 INFORME
 Los respectivos Comités Técnicos de Normalización o Reglamentación Técnica a través de los Entes de Normalización o Reglamentación Técnica de los países centroamericanos y sus sucesores, son los organismos encargados de realizar el estudio o la adopción de los Reglamentos Técnicos. Están conformados por representantes de los sectores Académico, Consumidor, Empresa Privada y Gobierno.
@@ -972,86 +972,7 @@ ANEXO 3 DE LA RESOLUCIÓN Nº 231-2008 (COMIECO-L)
 REGLAMENTO TÉCNICO CENTROAMERICANO
 RTCA 71.03.36:07
 PRODUCTOS COSMÉTICOS. ETIQUETADO DE PRODUCTOS COSMÉTICOS
-CORRESPONDENCIA: Este Reglamento no tiene correspondencia con ninguna otra norma o reglamento internacional.
-ICS 71.100
-RTCA 71.03.36:07
-Reglamento Técnico Centroamericano, editado por:
-· Ministerio de Economía, MINECO
-· Consejo Nacional de Ciencia y Tecnología, CONACYT
-· Ministerio de Fomento, Industria y Comercio, MIFIC
-· Secretaría de Industria y Comercio, SIC
-· Ministerio de Economía Industria y Comercio, MEIC
-Derechos Reservados
-INFORME
-Los respectivos Comités Técnicos de Normalización y de Reglamentación Técnica a través de los Entes de Normalización y de Reglamentación Técnica de los Países de la Región Centroamericana y sus sucesores, son los organismos encargados de realizar el estudio o la adopción de los Reglamentos Técnicos. Están conformados por representantes de los sectores Académico, Consumidor, Empresa Privada y Gobierno.
-Este documento fue aprobado como Reglamento Técnico Centroamericano, RTCA 71.03.36:07 Productos Cosméticos. Etiquetado de Productos Cosméticos, por el Subgrupo de Medicamentos y Productos Afines y el Subgrupo de Medidas de Normalización. La oficialización de este reglamento técnico, conlleva la ratificación por el Consejo de Ministros de Integración Económica Centroamericana (COMIECO).
-MIEMBROS PARTICIPANTES
-Por Guatemala
-Ministerio de Salud Pública y Asistencia Social
-Por El Salvador
-Consejo Superior de Salud Pública
-Ministerio de Salud Pública y Asistencia Social
-Por Nicaragua
-Ministerio de Salud
-Por Honduras
-Secretaria de Salud
-Por Costa Rica
-Ministerio de Salud
-1. OBJETO
-Este reglamento establece los requisitos de información que debe contener la etiqueta de productos cosméticos, de cualquier capacidad, para evitar que su uso represente un riesgo a la salud.
-2. CAMPO DE APLICACIÓN
-Este reglamento técnico es de observancia obligatoria en los Estados Parte por las personas naturales o jurídicas que se dedican a la producción o importación de cosméticos.
-Este reglamento no aplica a cosméticos utilizados exclusivamente en hotelería.
-3. DOCUMENTOS A CONSULTAR
-3.1 Anexo II del CONSLEG: 1976L0768, Lista de las sustancias que no pueden entrar en la composición de productos cosméticos. Oficina de publicaciones oficiales de las Comunidades Europeas.
-3.2 Anexo III Lista de las sustancias que no podrán contener los productos cosméticos salvo con las restricciones y condiciones establecidas. Oficina de publicaciones oficiales de las Comunidades Europeas.
-3.3 CTFA. International Cosmetic Ingredient Dictionary and Handbook.
-3.4 Reglamento Técnico Centroamericano RTCA 71.01.35:06 Registro e Inscripción Sanitaria de Producto Cosméticos.
-4. DEFINICIONES
-4.1. Envase primario o empaque primario: recipiente o envase que está en contacto directo con el producto.
-4.2. Envase secundario o empaque secundario: recipiente dentro del cual se coloca el envase primario.
-4.3. Etiqueta: todo rótulo, marbete, inscripción, imagen u otra forma descriptiva o gráfica ya sea que esté impreso, marcado, grabado, en relieve, hueco, estarcido, adherido o anexo al empaque o envase del producto, que identifica y contiene la información descrita en este reglamento.
-4.4. Etiqueta Complementaria: aquella que sustituye a la etiqueta de origen, cuando ésta se declara en idioma diferente al español/castellano, o bien, complementa la información no incluida en la etiqueta de origen presentada en idioma español/castellano.
-4.5. Etiquetado: Es la información obligatoria incluida en la etiqueta, rótulo, imagen u otra materia descriptiva o gráfica que se haya escrito, impreso, estarcido, marcado en relieve, que se adhiere o incluye en el envase de un producto cosmético.
-4.6. Forma cosmética: denominación que recibe un grupo de productos que tienen características físicas comunes, por ejemplo: crema, gel, champú y otros.
-4.7. Ingredientes: sustancias que forman parte del producto consignadas en nomenclatura INCI.
-4.8. Lote: cantidad determinada de producto, que ha sido elaborada bajo condiciones de producción uniformes y que se identifica con un mismo código o clave de producción que se conoce como número de lote.
-4.9. Número de lote: cualquier combinación de letras, números o símbolos que sirven para la identificación de un lote.
-4.10. Producto Cosmético: es toda sustancia o preparado destinado a ser puesto en contacto con las diversas partes superficiales del cuerpo humano (epidermis, sistema piloso y capilar, uñas, labios y órganos genitales externos), o con los dientes y las mucosas bucales, con el fin exclusivo o principal de limpiarlos, perfumarlos, modificar su aspecto y corregir los olores corporales y/o protegerlos o mantenerlos en buen estado.
-5. SIMBOLOGÍA Y ABREVIATURAS.
-5.1. CONSLEG: Legislación consolidada de la Oficina de Publicaciones Oficiales de las Comunidades Europeas.
-5.2. CTFA: Cosmetic Toiletry and Fragante Association.
-5.3. INCI: International Nomenclature of Cosmetic Ingredients.
-6. Contenido técnico del reglamento
-6.1. Requisitos de etiquetado
-Los requisitos mínimos que debe cumplir el etiquetado de los productos cosméticos son los siguientes:
-6.1.1. Forma cosmética. En el etiquetado del envase primario o secundario, debe figurar la forma cosmética.
-6.1.2. Factor de protección solar: en caso de los bronceadores y filtros o bloqueadores solares.
-6.1.3. Cantidad neta declarada. El contenido neto debe ser declarado en unidades del el Sistema Internacional de Unidades.
-6.1.4. Nombre del titular y país de origen. Debe figurar nombre, denominación o razón social del responsable del producto y país de origen.
-6.1.5. Declaración de la lista de ingredientes. La lista de los ingredientes debe declararse en nomenclatura INCI.
-Para la declaración de los ingredientes puede figurar en el etiquetado del envase secundario si lo hubiere, o bien en la etiqueta complementaria.
-6.1.6. Declaración del lote. En cualquier parte del envase primario o secundario, debe figurar en todos los productos objeto de este Reglamento, la identificación del lote, información que debe ser grabada o marcada con tinta indeleble o de cualquier otro modo similar por el fabricante la cual debe ser clara y asegurar su permanencia. Esta información no debe ser, removida, transcrita, alterada o cubierta.
-6.1.7. Información de seguridad. Esta información debe estar conforme en lo establecido en las siguientes normativas:
-6.1.7.1. Anexo II del CONSLEG: 1976L0768, Lista de las sustancias que no pueden entrar en la composición de productos cosméticos. Oficina de publicaciones oficiales de las Comunidades Europeas.
-6.1.7.2. Anexo III Lista de las sustancias que no podrán contener los productos cosméticos salvo con las restricciones y condiciones establecidas. Oficina de publicaciones oficiales de las Comunidades Europeas.
-6.1.7.3. CTFA. International Cosmetic Ingredient Dictionary and Handbook.
-6.1.8. Información adicional. En la etiqueta, en la etiqueta complementaria o en el inserto puede presentarse cualquier información o representación gráfica, así como material escrito, impreso o gráfico, siempre que esté de acuerdo con los requisitos obligatorios del presente reglamento. Dicha información debe ser veraz, comprobable y no debe inducir a error o confusión del consumidor.
-Cuando la etiqueta esté redactada en otro idioma diferente al castellano/español, debe agregarse una etiqueta complementaria que sea legible. Se permite el uso de insertos para la información de etiquetas complementarias.
-6.2. Presentación de la información
-Los datos que deben aparecer en la etiqueta de los productos objeto de este reglamento, deben indicarse con caracteres claros, visibles, indelebles y en colores contrastantes fáciles de leer por el consumidor, en circunstancias normales de compra y uso.
-6.3. Declaraciones prohibidas
-Se prohíbe el uso de las siguientes declaraciones:
-6.3.1 Declaración de propiedades engañosas.
-6.3.2 Declaración de propiedades terapéuticas de algún padecimiento o productos específicos para el tratamiento de disfunciones de la piel y anexos.
-7. VIGILANCIA Y VERIFICACIÓN
-Corresponde la vigilancia y verificación de este reglamento técnico a las autoridades regulatorias de Registro sanitario de Medicamentos y Productos Afines y otras autoridades competentes de cada Estado Parte.
-8. CONCORDANCIA
-Esta norma no tiene concordancia con ningún otro reglamento o normativa internacional.
-9. BIBLIOGRAFÍA
-9.1 Anexo II del CONSLEG: 1976L0768, Lista de las sustancias que no pueden entrar en la composición de productos cosméticos. Oficina de publicaciones oficiales de las Comunidades Europeas.
-9.2 Anexo III Lista de las sustancias que no podrán contener los productos cosméticos salvo con las restricciones y condiciones establecidas. Oficina de publicaciones oficiales de las Comunidades Europeas. establecidas por la Unión Europea.
-9.3 CTFA. International Cosmetic Ingredient Dictionary and Handbook.
+(Derogado este anexo por el punto 2 de la resolución N° 467-2022 (COMIECO-C) de fecha 29 de junio de 2022 aprobada mediante decreto ejecutivo N°43871 del 7 de noviembre del 2023 "Publicación de la Resolución N° 467-2022 (COMIECO-C) de fecha 29 de junio de 2022 y su Anexo: "Reglamento Técnico Centroamericano RTCA 71:03.36:21 Productos Cosméticos. Etiquetado de Productos Cosméticos")
 -FIN DEL REGLAMENTO-
 ANEXO 4 DE LA RESOLUCIÓN Nº 231-2008 (COMIECO-L)
 REGLAMENTO TÉCNICO CENTROAMERICANO
@@ -1106,7 +1027,7 @@ c) Viscosidad (cuando aplique)
 5.2.2.1 Cuando el fabricante efectúe otras pruebas físicas debe declararlas.
 5.2.2.2 Las especificaciones de las pruebas físicas serán de acuerdo a las características propias de cada forma cosmética y lo establecido por el fabricante.
 5.2.2 Pruebas químicas:
-Se deben efectuar pruebas identificación y de contenido de ingredientes activos y el de aquellas sustancias químicas restringidas, cuando aplique, que figuran en la última versión del documento denominado “Texto consolidado CONSLEG: 1976L0768. Anexo III. Producido por el sistema CONSLEG de la Oficina de Publicaciones Oficiales de las Comunidades Europeas”. Las especificaciones a cumplir se encuentran establecidas en dicho documento.
+Se deben efectuar pruebas identificación y de contenido de ingredientes activos y el de aquellas sustancias químicas restringidas, cuando aplique, que figuran en la última versión del documento denominado "Texto consolidado CONSLEG: 1976L0768. Anexo III. Producido por el sistema CONSLEG de la Oficina de Publicaciones Oficiales de las Comunidades Europeas". Las especificaciones a cumplir se encuentran establecidas en dicho documento.
 5.2.3 Pruebas microbiológicas:
 5.2.3.1 Límites microbianos
 Deben efectuarse a todos los cosméticos, excepto a los que no sean susceptibles a la contaminación microbiológica por la propia naturaleza del cosmético (ej. Perfumes con alto contenido de alcohol, productos con más de 10% de clorhidrato de aluminio, productos oleosos, productos con base de cera, productos que contiene peróxidos).
@@ -1122,9 +1043,9 @@ Staphylococcus aureus | Ausente
 Escherichia coli | Ausente
 Pseudomonas aeruginosa | Ausente
 6. BIBLIOGRAFÍA
-• The United States Pharmacopeia 29 and The Nacional Formulary 24. Twenty-eigth Edition. The United States Pharmacopeial Convention Inc. USA. 2006.
-• CTFA Technical Guidelines. Microbiology Guidelines. Washington, D.C., USA. November 2001.
-• Texto consolidado, CONSLEG: 1976L0768. Producido por el sistema CONSLEG de la Oficina de Publicaciones Oficiales de las Comunidades Europeas. 15/10/2003. Número de páginas 86.
+. The United States Pharmacopeia 29 and The Nacional Formulary 24. Twenty-eigth Edition. The United States Pharmacopeial Convention Inc. USA. 2006.
+. CTFA Technical Guidelines. Microbiology Guidelines. Washington, D.C., USA. November 2001.
+. Texto consolidado, CONSLEG: 1976L0768. Producido por el sistema CONSLEG de la Oficina de Publicaciones Oficiales de las Comunidades Europeas. 15/10/2003. Número de páginas 86.
 7. VIGILANCIA Y VERIFICACIÓN
 La vigilancia y verificación de este reglamento técnico corresponde a la Autoridad Reguladora de cada país.
 Anexo A
