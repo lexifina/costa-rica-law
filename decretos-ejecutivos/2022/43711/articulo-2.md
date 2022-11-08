@@ -1,0 +1,1 @@
+Artículo 2°-Derogatorias: Deróguese el artículo 6 del Decreto Ejecutivo N° 22446-MIRENEM y sus reformas, Reglamento Tarifario Mínimo del Colegio de Geólogos de Costa Rica, publicado en el Diario Oficial La Gaceta Nº 162 del 25 de agosto de 1993.
