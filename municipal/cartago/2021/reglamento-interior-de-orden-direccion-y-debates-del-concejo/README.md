@@ -14,3 +14,4 @@ Reglamento interior de orden, dirección y debates del Concejo Municipal del Can
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-10-29 | la propia norma |
+| 2 | 2022-11-08 | Reglamento municipal 0 (2022-11-08) |
