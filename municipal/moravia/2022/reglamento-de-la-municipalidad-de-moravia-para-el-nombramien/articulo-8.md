@@ -1,0 +1,1 @@
+Artículo 8º-Juramentación. El representante de la Municipalidad de Moravia en la Fundación deberá juramentarse ante el Concejo Municipal el día, hora y lugar que el respectivo acuerdo de nombramiento señale.

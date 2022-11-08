@@ -1,0 +1,1 @@
+Artículo 10.-Gratuidad de la función. Las funciones que realicen las personas que la municipalidad de Moravia nombre ante fundaciones con domicilio en el cantón de Moravia, serán totalmente ad honorem.
