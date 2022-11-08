@@ -14,3 +14,4 @@ Obligación de las oficinas con el Modelo de Sostenibilidad y Seguimiento de los
 | --- | --- | --- |
 | 1 | 2020-10-20 | la propia norma |
 | 2 | 2022-10-04 | Circular 187 (2022-10-04) |
+| 3 | 2022-11-08 | Circular 203 (2022-11-08) |
