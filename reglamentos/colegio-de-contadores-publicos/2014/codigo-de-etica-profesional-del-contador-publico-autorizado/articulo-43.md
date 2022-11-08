@@ -1,1 +1,0 @@
-Artículo 43.—El contador público autorizado no debe ofrecer sus servicios a clientes de otro despacho o firma de contadores, si no ha sido por concurso abierto o hay demanda de sus servicios por parte de ese cliente.

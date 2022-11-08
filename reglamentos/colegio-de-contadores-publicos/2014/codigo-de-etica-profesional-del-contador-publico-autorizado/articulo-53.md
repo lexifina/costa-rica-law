@@ -1,1 +1,0 @@
-Artículo 53.—Es obligación del contador público autorizado catedrático o docente, mantenerse actualizado en las áreas de su profesión, a fin de transmitir al alumno los conocimientos más avanzados de la materia existentes en la teoría y la práctica profesionales.

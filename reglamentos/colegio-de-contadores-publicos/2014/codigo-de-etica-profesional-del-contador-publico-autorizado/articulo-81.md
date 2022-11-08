@@ -1,1 +1,0 @@
-Artículo 81.—En caso de suspensión del procedimiento disciplinario mediante resolución debidamente razonada, el plazo de prescripción y de caducidad se entenderá suspendido por el mismo tiempo que dure el procedimiento en ese estado.

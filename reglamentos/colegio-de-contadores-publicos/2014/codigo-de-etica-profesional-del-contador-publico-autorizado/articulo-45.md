@@ -1,3 +1,0 @@
-Artículo 45: Un contador público autorizado no debe relacionarse con ninguna declaración o comunicación comprobable en la cual haya evidencias de que exista falsedad o engaño, cuando se dude de la veracidad de lo informado o cuando haya omisiones o poca claridad que pueden conducir a engaño a las autoridades fiscales.
-Cuando se descubre un error importante en la emisión de una declaración de impuestos o la falta de presentación de una declaración, se tiene la responsabilidad de avisar, mediante comunicación comprobable y oportuna, al cliente o empleador, para que se haga la rectificación correspondiente ante las autoridades fiscales.
-(Así reformado mediante sesión ordinaria N° 16-2019 del 16 de octubre del 2019)

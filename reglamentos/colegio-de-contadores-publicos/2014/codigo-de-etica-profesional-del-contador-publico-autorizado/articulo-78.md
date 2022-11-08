@@ -1,1 +1,0 @@
-Artículo 78.—Cuando los hechos investigados puedan constituir delito, y sin perjuicio de la sanción administrativa que se imponga, la Junta Directiva ordenará interponer la denuncia penal correspondiente ante el Ministerio Público, para que proceda con la investigación correspondiente, debiendo remitir la prueba documental necesaria.

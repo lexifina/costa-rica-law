@@ -1,1 +1,0 @@
-Artículo 40.—El contador público autorizado deberá analizar cuidadosamente las necesidades que puedan tenerse de sus servicios profesionales, para proponer aquellos que más convengan dentro de las circunstancias. Este consejo deberá darse de forma desinteresada y estará basado en los conocimientos y experiencia del profesional.

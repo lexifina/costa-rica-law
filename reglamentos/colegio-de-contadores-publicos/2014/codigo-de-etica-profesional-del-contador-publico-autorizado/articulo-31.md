@@ -1,3 +1,0 @@
-Artículo 31: Cuando un contador público realice actividades de mercadeo y de promoción de los servicios que brinda él como profesional o un despacho de contadores públicos, no pondrá en entredicho la reputación de la profesión ni de cualquier otro profesional incorporado al Colegio de Contadores Públicos de Costa Rica.
-Si fuera necesario, se le invita a realizar la denuncia, a través de la Fiscalía del Colegio de Contadores Públicos, si llega a su conocimiento un comportamiento no apropiado o desempeño de otro despacho de contadores públicos o contador público autorizado.
-(Así reformado mediante sesión ordinaria N° 16-2019 del 16 de octubre del 2019)

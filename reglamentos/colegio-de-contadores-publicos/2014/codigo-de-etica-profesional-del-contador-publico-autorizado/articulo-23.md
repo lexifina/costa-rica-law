@@ -1,2 +1,0 @@
-Artículo 23: El contador público autorizado debe adoptar un programa diseñado para asegurar el control de calidad en la ejecución de sus servicios profesionales, un programa que sea consistente con las exigencias nacionales e internacionales, y de estimarlo necesario, voluntariamente lo someterá a conocimiento de la unidad respectiva del Colegio. El Colegio también podrá ejercer vigilancia sobre este aspecto y le hará las recomendaciones correspondientes al profesional.
-(Así reformado mediante session ordinaria N° 16-2019 del 16 de octubre del 2019)

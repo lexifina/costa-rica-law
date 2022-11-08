@@ -1,2 +1,0 @@
-Artículo 70: Cuando un contador público autorizado sea juzgado por los Tribunales de Justicia, se encuentre culpable y se le prive de la libertad, debe solicitar un cese voluntario del Colegio, o en caso contrario, la Junta Directiva procederá con la sentencia en firme a la suspensión en el ejercicio de la profesión hasta que cumpla la condena en su totalidad. Y si fuera condenado por un delito en el ejercicio de la profesión la sanción sería grave.
-(Así reformado mediante sessón ordinaria N° 16-2019 del 16 de octubre del 2019)

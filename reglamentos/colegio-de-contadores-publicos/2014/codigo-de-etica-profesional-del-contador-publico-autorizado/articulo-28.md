@@ -1,1 +1,0 @@
-Artículo 28.—El contador público autorizado no debe omitir un hecho importante que conozca y sea necesario manifestar en su opinión o informe, para que los estados financieros no desorienten o induzcan a conclusiones erróneas.
