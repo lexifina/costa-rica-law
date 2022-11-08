@@ -1,0 +1,1 @@
+Artículo 3°-Derogatorias: deróguese el párrafo segundo del artículo 4, el inciso c) del artículo 10 y los artículos 15 y 16 del Decreto Ejecutivo N° 39347-MINAE del del 10 de agosto del 2015, denominado "Arancel de Honorarios por Servicios Profesionales en Biología", publicado el Diario Oficial La Gaceta N° 17 del 26 de enero de 2016, Alcance N° 7.
