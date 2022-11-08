@@ -1,0 +1,43 @@
+MUNICIPALIDAD DE BELÉN
+La suscrita Secretaria del Concejo Municipal de Belén, le notifica el acuerdo tomado, en la Sesión Ordinaria N° 58-2022, artículo 8, celebrada el cuatro de octubre del dos mil veintidós y ratificada el once de octubre del año dos mil veintidós, que literalmente dice:
+La encargada de la Secretaría del Concejo Municipal Ana Patricia Murillo informa que en La Gaceta 173 del lunes 12 de setiembre de 2022, se publicó modificación al Reglamento de la Policía de Tránsito, según acuerdo tomado en el artículo 19 del Acta 51-2022.
+I.-Considerando:
+1º-Que las municipalidades de conformidad en lo previsto en el artículo 169 constitucional, administran los intereses y servicios locales. Por lo anterior cada municipalidad deberá velar por la correcta aplicación de la legislación nacional que regula el tránsito terrestre de vehículos y peatones en cada jurisdicción cantonal.
+2º-Que las Municipalidades de conformidad con el artículo 170 Constitucional, posee autonomía, y una de sus manifestaciones es la potestad reglamentaria, lo que permite regular entre otras materias, la prestación de servicios y su debido funcionamiento técnico y administrativo.
+3º-Que la potestad reglamentaria municipal, la ejerce el Concejo Municipal, al tenor de lo dispuesto en el artículo 13 inciso e) del Código Municipal, Ley N° 7794 del 30 de abril de 1998 y sus reformas.
+4º-Que de acuerdo en lo previsto en los incisos a) y c) del artículo 4 del Código Municipal Ley 7794 del 30 de abril de 1998, publicado en el Diario Oficial La Gaceta N° 94 del 18 de mayo de 1998 y sus reformas, corresponde a las Municipalidades dictar los reglamentos autónomos de organización y de servicio y de administrar y prestar los servicios públicos municipales, así como velar por la vigilancia y el control.
+5º-Que no se incluyó un capítulo de derechos y considerando que por el rápido desarrollo de las actividades comerciales, agropecuarias e industriales, es necesario que al Estado, en su función tutelar de la seguridad e higiene de los trabajadores, disponga de un conjunto de normas que regulen, en forma eficaz, los distintos factores que inciden en la conservación de la integridad mental, física y moral de los trabajadores, con motivo de la ejecución de sus labores en los centros de trabajo; y que asimismo, es indispensable que el estado vigile el fiel cumplimiento de las normas que aseguren la previsión de accidentes, así como las obligaciones que al efecto deben cumplir, tanto patronos como trabajadores, con el fin de lograr un alto coeficiente de seguridad e higiene en el trabajo.
+6º-Que después de la pandemia y las restricciones el personal evidencia un aumento considerable en su peso, se ha demostrado que los índices de ansiedad y o depresión han aumentado considerablemente y que el año 2022 la policía de tránsito detuvo a 40 personas en diferentes delitos en flagrancia algunos de los cuales fue necesario un buen estado físico por parte de los oficiales para poder correr, someter resistencias físicas por parte de algún con delincuente de ser necesario, repeler agresiones, se considera que es apropiado fomentar un bien nivel físico por parte de los oficiales, sin mencionar que con ello evitaríamos problemas colesterol alto, problemas cardiacos, de estrés laboral, mejoraría la alimentación de los oficiales al ver resultados físicos, mejorando la moral y el ambiente laboral en general.
+II.-Por tanto,
+Se solicita realizar una reforma parcial al Reglamento de la Policía de Tránsito Municipal de Belén, a partir del Capítulo VI al cual se le cambia el título y se llama de derechos, se agrega un Capítulo VII el cual se denomina disposiciones finales, consecuentemente así se corre la numeración la existente para que se lea de la siguiente manera:
+CAPÍTULO VI
+Capítulo de derechos:
+Artículo 18.-Sin perjuicio de los establecido en el artículo del 143 al 155 del Código Municipal, son derechos de los Policías de Tránsito Municipal aquellas distinciones, que por sus actuaciones meritorias puedan hacerse acreedores, conforme se indica a continuación:
+a) Reconocimiento ante todos los miembros de la Policía de Tránsito Municipal.
+b) Mención Honorífica, a aquellos miembros, que se distingan en la ejecución de intervenciones, difíciles, arriesgadas o que enaltezcan la imagen de la policía de Tránsito Municipal y de la Corporación Municipal en General.
+c) Broche de mérito, a aquellos policías que se distingan por sus virtudes profesionales y humanas.
+d) Medalla de Policía de Tránsito Municipal de Belén a aquellos miembros de la policía de Tránsito Municipal que realicen algún acto heroico y generoso con peligro de sus vidas, así como por los méritos contraídos a lo largo de un periodo determinado.
+Artículo 19.-Los incentivos que se refiere el artículo anterior serán otorgados por:
+a) La alcaldía en caso de mención honorífica.
+b) El Concejo Municipal en caso de Broche al Mérito y Medalla de Policía.
+Artículo 20.-Las distinciones otorgadas a los policías municipales serán tomadas en cuenta en lo que se refiere a su carrera administrativa a que se refiere el artículo 124 del Código Municipal.
+Artículo 21.-Los Policías de Tránsito Municipales tendrán derecho a su defensa, en asuntos judiciales que provengan del cumplimiento de sus deberes, en aquellos casos que así lo disponga discrecionalmente la Dirección Jurídica de la Municipalidad.
+Artículo 22.-El personal de la policía de Tránsito de Belén tendrá derecho a:
+a) Capacitación especializada policial, pasantías, trabajos de investigación técnico-policial y similares.
+b) Enseñanza formal impartida por instituciones autorizadas por el Ministerio de Educación Pública y entidades de Educación superior Universitaria. Este derecho, como el dispuesto en el artículo a), deberá sujetarse a lo establecido por las disposiciones que sobre el particular cuente la municipalidad.
+c) Cobertura de Póliza de Riesgo Policial para todo el personal, para lo cual se otorgará el respaldo financiero correspondiente.
+d) Incentivos policiales entre otros de denominado "Riesgo Policial", todo de conformidad con lo establecido por la Ley General de Policía, según lo disponga la Dirección General del Servicio Civil.
+e) Tiempo para acondicionamiento físico dentro de la jornada laboral, de acuerdo con las disposiciones establecidas por la Alcaldía Municipal, previo criterio técnico del Proceso de Salud Ocupacional. En ninguno de los casos ese derecho, se ejercerá en perjuicio del servicio público policial.
+CAPÍTULO VII
+Disposiciones finales
+Artículo 23.-La ejecución de una orden del servicio hace responsable al superior jerárquico que la hubiere dado y no constituye una falta para quien la hubiere cumplido, salvo que se haya apartado de la orden o excedido en su ejecución contraviniendo las leyes o reglamentos vigentes.
+Artículo 24.-En asuntos referentes al cumplimiento del servicio, el personal de la Policía de Tránsito Municipal de Belén cumplirá las órdenes emanadas de la Alcaldía Municipal; en casos especiales donde se trate de un tema se Seguridad Nacional responderá a las órdenes de las siguientes autoridades jerárquicas:
+a) El Presidente de la República.
+b) El Ministro y Viceministro de Obras Públicas y Transportes.
+c) El Director y subdirector de la Dirección General de la Policía de Tránsito.
+Artículo 25.-El personal queda exceptuado de cumplir orden alguna que no fuera emitida por las antes mencionadas autoridades sin perjuicio de las disposiciones emanadas de la ley.
+Artículo 26.-Los funcionarios de la Policía de Tránsito Municipal de Belén, en su condición de Fuerza Pública, podrán garantizar coercitivamente en cumplimiento de las leyes vigentes, a fin de garantizar la seguridad y el ordenamiento público en la circulación, empleando los medios proporcionales a las circunstancias particulares de cada caso y en la medida indispensable para sus fines.
+Artículo 27.-La facultad patronal para diciplinar las faltas del personal de la Policía de Tránsito Municipal de Belén, se regirá por lo dispuesto en el Código Municipal, Código de Trabajo, Ley de Control Interno, Ley Orgánica de la Contraloría General de la República, Ley General de Administración Pública, y la Reglamentación Vigente de la Municipalidad de Belén.
+Artículo 28.-Rige a partir de su publicación definitiva.
+Se acuerda por unanimidad: No habiendo conocido objeciones a la publicación del Reglamento de la Policía de Tránsito, aprobado en el Artículo 19 del Acta 51-2022, queda el mismo definitivamente aprobado y entra en vigencia a partir de la siguiente publicación.
+San Antonio de Belén, Heredia, 12 de octubre del 2022.
