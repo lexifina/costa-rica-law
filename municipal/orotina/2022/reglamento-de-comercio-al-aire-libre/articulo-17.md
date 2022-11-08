@@ -1,0 +1,2 @@
+Artículo 17.-Monto por pagar por el derecho de comercio al aire libre. El monto por cobrar por la municipalidad por concepto del derecho de uso de espacios públicos será el cincuenta por ciento (50%) del monto devengado por el establecimiento comercial por concepto de la patente comercial para el desarrollo de la actividad comercial otorgada por la municipalidad.
+La totalidad de los ingresos generados por la autorización de comercio al aire libre deberá utilizarse para el mejoramiento general y la seguridad del espacio público.
