@@ -1,1 +1,0 @@
-Art. 55.—Todos los obreros ocupados en los trabajos públicos, con excepción de los que se dediquen á desmontes y terraplenes, llevarán consigo los útiles y herramientas de su profesión, y los conservarán su costo.

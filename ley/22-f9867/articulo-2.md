@@ -1,1 +1,0 @@
-Art. 2°-Son artículos de prohibida importación la nitroglicerina y las especies fiscales estancadas, ó las que en lo sucesivo se estancaren. Son asimismo de prohibida importación, excepto con permiso de la Secretaría de Hacienda, la dinamita y los elementos de guerra

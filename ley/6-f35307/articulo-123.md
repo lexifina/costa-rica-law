@@ -1,1 +1,0 @@
-Art. 123. — Si todas estas penas fueren ineficaces para obligar al padre, tutor ó encargado á cumplir con la obligación escolar, perderá la potestad que ejerciere sobre el niño, y se confiará á otra persona la guarda de éste.

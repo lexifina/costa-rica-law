@@ -1,1 +1,0 @@
-Art. 8°-Los trabajos y observaciones del Instituto, se publicarán en un boletín trimestral, redactado por el Director, y las efectuadas por la oficina central, lo serán diariamente en la Gaceta Oficial.

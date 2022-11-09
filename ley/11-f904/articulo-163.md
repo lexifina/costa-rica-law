@@ -1,1 +1,0 @@
-Art. 163.-La recusación sin causa debe hacerse antes del día señalado para la vista, y las partes pueden usar de ese derecho desde que la Sala de Apelaciones tenga que conocer en grado de cualquier incidente del negocio; mas no podrán las partes interponer las recusaciones después de tres días de vencido el emplazamiento.

@@ -1,1 +1,0 @@
-Art. 142.-En los juicios sobre cuentas que provengan de administración de tutela, compañía, sociedad ó cualquiera otra causa semejante, es competente el Juez donde existió la compañía ó donde se ejerció la administración, empleo, etc.

@@ -1,1 +1,0 @@
-Art. 2°-Para llevar á efecto la construcción del edificio y su mantenimiento, así como para la asistencia de los enfermos, gobierno y servicio del asilo, se establece una Lotería Nacional, cuyo reglamento y administración se confiere á la Junta de Caridad del Hospital de San Juan de Dios de esta ciudad.

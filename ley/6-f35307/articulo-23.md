@@ -1,1 +1,0 @@
-Art. 23.—El Ministerio de Instrucción Pública vigila, por medio de sus dependientes y delegados extraordinarios, todos los establecimientos públicos ó privados de instrucción, para que se dé cumplimiento á las leyes, reglamentos y acuerdos supremos.

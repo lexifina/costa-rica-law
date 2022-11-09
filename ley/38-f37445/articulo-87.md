@@ -1,1 +1,0 @@
-Art. 87.-Si el ejecutante ó el ejecutado no contestaren en los tres días de la audiencia de que hablan los artículos anteriores, se tendrá por reconocida la procedencia de la tercería sin más trámite.

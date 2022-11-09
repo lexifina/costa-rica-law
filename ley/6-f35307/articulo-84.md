@@ -1,1 +1,0 @@
-Art. 84.—Las diferencias que se susciten entre el Director de Obras Escolares y las Juntas de Educación sobre límite de sus respectivas atribuciones, serán resueltas por el Gobernador de la provincia, con recurso al Ministerio de Instrucción Pública,

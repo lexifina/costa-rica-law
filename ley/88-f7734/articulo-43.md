@@ -1,1 +1,0 @@
-Art. 43. —Los mandadores serán escogidos entre los peones más inteligentes que hayan trabajado un año por lo menos en estos servicios, y deberán saber leer y escribir. Se nombrarán por el Director á propuesta del ayudante.

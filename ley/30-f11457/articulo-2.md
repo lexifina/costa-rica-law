@@ -1,1 +1,0 @@
-Art. 2°-La Escuela dependerá inmediatamente del Poder Ejecutivo, al cual queda encomendada su suprema dirección, con facultad de dictar cuantas disposiciones juzgue convenientes á la prosperidad del instituto.

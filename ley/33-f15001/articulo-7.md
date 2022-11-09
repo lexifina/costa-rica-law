@@ -1,1 +1,0 @@
-Art. 7°. -Los estudios hechos en establecimientos privados tendrán validez académica, siempre que sus programas se ajusten, en cuanto extensión fuerza de In enseñanza, a las leyes que rigen cada ramo de los planteles de gobierno.

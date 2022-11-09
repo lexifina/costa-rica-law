@@ -1,1 +1,0 @@
-Art. 47-Cuando del Registro resultaren constancias o declaraciones que contradigan el certificado .de la partida de matrimonio, el Registrador suspenderá la inscripción, y pondrá en conocimiento del respectivo funcionario las dificultades que la impiden para que este lo comunique á los interesados.

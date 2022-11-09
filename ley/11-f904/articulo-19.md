@@ -1,1 +1,0 @@
-Art. 19.-Lo dispuesto en el artículo 17 no se opone á que puedan perseguirse otros bienes, ni se extingue la acción de responsabilidad por el hecho de no reclamarla en los dos años posteriores la salida del funcionario.

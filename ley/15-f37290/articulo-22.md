@@ -1,1 +1,0 @@
-Art. 22.-Si los postas demorasen en el camino más tiempo que el estipulado, el contratista queda sujeto á una multa de cincuenta centavos por hora de retraso, si no probase caso fortuito ó fuerza mayor.

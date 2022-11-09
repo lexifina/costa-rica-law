@@ -1,1 +1,0 @@
-Art. 28.-En el caso del artículo anterior deberá inventariarse todo lo que salve, y el inventario se depositará en el consulado de la nación á que pertenezca la nave; sin más excepción que la de los efectos corrompidos, los que se incinerarán en la playa, acto que se hará constar por diligencia.

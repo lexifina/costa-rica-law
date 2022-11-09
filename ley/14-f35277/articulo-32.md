@@ -1,1 +1,0 @@
-Art. 32.-Siempre que algún buque de guerra pida auxilio por estar garreando ó sufriendo cualquier otro peligro de mar, se lo darán todo buque de guerra, los mercantes y el puerto, al oir el cañonazo de estilo.

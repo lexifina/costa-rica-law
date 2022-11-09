@@ -1,1 +1,0 @@
-Artículo 74.—Después de aprobada por el Congreso una elección y admitido el Diputado electo, no se podrá recibir reclamación alguna, ni volver á tratar sobre la validez de la misma elección, ni tampoco sobre la aptitud legal del Diputado é no ser por causa de incapacidad posterior a su admisión.

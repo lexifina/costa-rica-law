@@ -1,1 +1,0 @@
-Art. 15.-El Juez entregará el proceso al Presidente del tribunal, sin relación alguna y sin emitir juicio. Concluida la lectura del expediente, comenzará la audiencia pública, y se concederá la palabra para que aleguen, al acusador y su abogado, al Agente Fiscal si interviene, al reo y al abogado.

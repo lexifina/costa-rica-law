@@ -1,1 +1,0 @@
-ART. 16.-Las asignaturas previas al título de perito agrimensor, son las siguientes: trigonometría rectilínea, topografía, dibujo y lavado de planos, óptica matemática, disposiciones legales sobre agrimensura.

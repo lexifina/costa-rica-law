@@ -1,1 +1,0 @@
-Art. 8-El Comandante en Jefe de cualquiera división, brigada ó regimiento puede girar contra los proveedores y habilitados de su respectivo mando, no sólo por gastos ordinarios, sino también por extraordinarios cuando éstos ocurran.

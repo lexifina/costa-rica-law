@@ -1,1 +1,0 @@
-Artículo 34.-Son oyentes aquellos que han solicitado y obtenido autorización para seguir cursos determinados. Deben tener diez y siete años cumplidos, y pueden, si lo solicitan, sufrir exámenes sobre los cursos que han seguido.
