@@ -1,1 +1,0 @@
-Artículo 12.—El Concejo Municipal, otorgando al encausado el derecho de audiencia, pero bajo el principio sumario de mera constatación, procederá a efectuar la sustitución correspondiente en el plazo de un mes calendario, computado a partir del acuerdo en firme de la destitución.

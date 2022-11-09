@@ -1,1 +1,0 @@
-Artículo 6º—Dichos integrantes, para resultar legitimados como tal, deben ostentar el carácter de miembros o agentes del órgano, institución o sector que representan, de tal forma que extinguida esa condición igualmente fenecerá la representación dicha.
