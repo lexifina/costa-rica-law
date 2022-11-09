@@ -4,7 +4,9 @@ Artículo 59.- Corresponde a la Corte Suprema de Justicia:
 3.- Aprobar el proyecto de presupuesto del Poder Judicial, el cual, una vez promulgado por la Asamblea Legislativa , podrá ejecutar por medio del Consejo.
 4.- Nombrar a los miembros propietarios y suplentes del Tribunal Supremo de Elecciones.
 5.- Resolver las competencias que se susciten entre las Salas de la Corte, excepto lo dispuesto por la ley respecto de la Sala Constitucional.
-6.- Designar, en votación secreta, al Presidente y al Vicepresidente de la Corte , por períodos de cuatro años y de dos años, respectivamente, quienes podrán ser reelegidos por períodos iguales y, si hubiere que reponerlos por cualquier causa, la persona nombrada lo será por un nuevo período completo. En los casos de faltas temporales, se procederá en la forma que indica el inciso 1) del artículo 32.
+6.- Designar, en votación pública, al presidente y al vicepresidente de la Corte, por períodos de cuatro años y de dos años, respectivamente, quienes podrán ser reelegidos por períodos iguales y, si hubiera que reponerlos por cualquier causa, la persona nombrada lo será por un nuevo período completo. En los casos de faltas temporales se procederá en la forma que indica el inciso 1) del artículo 32.
+(Así reformado el inciso anterior por el artículo único de la Ley para garantizar transparencia en las votaciones del Poder Judicial, N° 10325 del 9 de noviembre del 2022)
+(Nota de Sinalevi; Mediante resolución N° 036954 del 11 de diciembre de 2024, se anuló del inciso anterior la frase “secreta”, mismo que fue reformado posteriormente mediante la ley No. 10325 del 9 de noviembre de 2022)
 7.- Promulgar, por iniciativa propia o a propuesta del Consejo Superior del Poder Judicial, los reglamentos internos de orden y servicio que estime pertinentes.
 8.- Conocer del recurso de apelación de sentencia, de casación y del procedimiento de revisión de las sentencias dictadas por las Salas Segunda y Tercera, cuando estas actúan como tribunales de juicio o de única instancia.
 (Así reformado el inciso anterior por el artículo 5° de la ley N° 9021 del 3 de enero de 2012)
