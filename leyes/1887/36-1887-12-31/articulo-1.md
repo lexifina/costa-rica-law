@@ -1,4 +1,6 @@
-DECRETO No XXXVI..
+(Derogado)
+DECRETO No XXXVI.
+(Esta norma fue derogada por el artículo 1°, inciso 698, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 (de 31 de diciembre).
 Declara días feriados los de las fiestas cívicas.
 BERNARDO SOTO,

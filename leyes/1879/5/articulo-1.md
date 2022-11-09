@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO N° V.
+(Esta norma fue derogada por el artículo 1°, inciso 66, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Concede prórroga à Don Clemente Cantón, para el cumplimiento de un contrato.
 EL GRAN CONSEJO NACIONAL DE LA REPÚBLICA DE COSTA-RICA.
 Vista la exposición dirigida al Supremo Poder Ejecutivo por el Señor Don Clemente Cantón,

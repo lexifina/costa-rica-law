@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO No XXXIV.
+(Esta norma fue derogada por el artículo 1°, inciso 478, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Aprueba los decretos números 9 y 11 expedidos por la Comisión Permanente
 en enero de 1885, é imprueba el número 2 de 3 de setiembre de 1884.
 EL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE COSTA-RICA,

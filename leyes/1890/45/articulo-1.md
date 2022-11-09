@@ -1,5 +1,7 @@
+(Derogado)
 DECRETO No XLV.
 (de 17 de Jnnio).
+(Esta norma fue derogada por el artículo 1°, inciso 874, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Prorroga por dos años el término fijado por decreto no XV, emitido por la Comisión Permanente el 10 de Diciembre de 1887, para
 la explotación de los ochocientos mil acres de terrenos baldíos.
 EL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE COSTA RICA,

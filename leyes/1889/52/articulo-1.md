@@ -1,5 +1,7 @@
+(Derogado)
 DECRETO N° LIL
 (de 13 de julio)
+(Esta norma fue derogada por el artículo 1°, inciso 817, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Referente a los casos en que están impedidos de ejercer sus funciones los empleados encargados del orden administrativo.
 EL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE COSTA RICA
 En uso de las atribuciones constitucionales

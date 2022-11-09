@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO No XV.
+(Esta norma fue derogada por el artículo 1°, inciso 906, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Concede una prórroga al contratista del ferrocarril al Norte.
 (de 29 de Mayo).
 EL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE COSTA RICA,

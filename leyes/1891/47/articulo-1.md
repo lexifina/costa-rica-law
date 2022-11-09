@@ -1,5 +1,7 @@
+(Derogado)
 DECRETO NO XLVII.
 (de 29 de Julio.)
+(Esta norma fue derogada por el artículo 1°, inciso 930, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Concede un privilegio para la extracción las resinas de dos especies de árboles de la República.
 EL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE COSTA RICA,
 En uso de sus facultades constitucionales,

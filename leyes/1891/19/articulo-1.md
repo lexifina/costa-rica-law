@@ -1,5 +1,7 @@
+(Derogado)
 DECRETO No XIX.
 (de 9 de Junio).
+(Esta norma fue derogada por el artículo 1°, inciso 908, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Admite una renuncia.
 EL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE COSTA RICA,
 En uso de la facultad que le otorga la fracción 3a del artículo 73 de la Constitución,

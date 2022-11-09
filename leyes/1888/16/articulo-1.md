@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO No XVI.
+(Esta norma fue derogada por el artículo 1°, inciso 716, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 (de 24 de mayo).
 Aprueba, con excepción de un artículo, el decreto no 16 de la Comisión Permanente.
 EL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE COSTA RICA,

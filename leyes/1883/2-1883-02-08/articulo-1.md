@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO N° II.
+(Esta norma fue derogada por el artículo 1°, inciso 259, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Subvenciona la empresa de alumbrado eléctrico.
 LA HONORABLE COMISIÓN PERMANENTE,
 Con presencia del memorial en que los Señores Don Luis Batres y Don Manuel V. Dengo ofrecen establecer el alumbrado eléctrico en esta ciudad; y

@@ -1,5 +1,7 @@
+(Derogado)
 DECRETO No IX.
 (de 16 de marzo).
+(Esta norma fue derogada por el artículo 1°, inciso 780, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Dispone que vuelva al desempeño del Ministerio de Guerra y Marina
 el General don A. de Jesús Soto.
 BERNARDO SOTO,

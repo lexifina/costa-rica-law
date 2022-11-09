@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO NO VIII.
+(Esta norma fue derogada por el artículo 1°, inciso 640, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 (de 22 de abril).
 Aprueba un contrato con el Doctor don Marco Aurelio Soto, sobre fomento de la agricultura y la industria.
 LA COMISIÓN PERMANENTE DEL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE COSTA RICA,

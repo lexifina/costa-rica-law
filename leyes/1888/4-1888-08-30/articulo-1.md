@@ -1,5 +1,7 @@
+(Derogado)
 DECRETO No IV.
 (de 30 de agosto).
+(Esta norma fue derogada por el artículo 1°, inciso 769, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Aumenta á $30-00 mensuales la pensión del inválido don
 Rafael Demetrio Ruiz.
 LA COMISIÓN PERMANENTE DEL CONGRESO CONSTITUCIONAL

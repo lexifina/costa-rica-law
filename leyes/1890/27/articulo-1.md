@@ -1,5 +1,7 @@
+(Derogado)
 DECRETO No XXVII.
 (de 22 de Mayo).
+(Esta norma fue derogada por el artículo 1°, inciso 867, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Aprueba dos decretos emitidos por la Comisión Permanente.
 EL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE COSTA RICA,
 Examinados los antecedentes respectivos, y en uso de la facultad que le confiere la fracción 4a del artículo 94 de la Constitución,

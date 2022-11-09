@@ -1,5 +1,7 @@
+(Derogado)
 DECRETO No LXI.
 [de 3 de Agosto].
+(Esta norma fue derogada por el artículo 1°, inciso 944, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Concede una pensión vitalicia.
 EL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE COSTA RICA,
 En consideración á los servicios prestados á la Nación por don Pantaleón Abarca, primer tipógrafo del país,

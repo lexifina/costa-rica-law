@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO N° XI
+(Esta norma fue derogada por el artículo 1°, inciso 225, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Rebaja el 10% á todo sueldo y toda pensión que paga el Tesoro Nacional.
 PROSPERO FERNÁNDEZ
 GENERAL DE DIVISIÓN Y PRESIDENTE CONSTITUCIONAL DE LA REPÚBLICA DE COSTA RICA.

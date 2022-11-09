@@ -1,8 +1,10 @@
+(Derogado)
 DECRETO N° XXXVI
+(Esta norma fue derogada por el artículo 1°, inciso 339, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Permite el denuncio de las calles reservadas entre los lotes números 51 y 53 en la sección comprendida entre Río Pez y Reventazón.
 PROSPERO FERNÁNDEZ
 GENERAL DE DIVISIÓN Y PRESIDENTE CONSTITUCIONAL DE LA REPÚBLICA DE COSTA RICA,
-En atención á que las calles mandadas reservar por la ley de 20 de julio de 1880, entre los lotes números 51 á 53 de 4°, 5° y 6° orden de la sección comprendida entre los ríos “Pez y Reventazón”, no presentan servicio alguno por que los lotes que siguen á los ya enunciados, tienen su entrada natural á la otra margen de los ya citados ríos.
+En atención á que las calles mandadas reservar por la ley de 20 de julio de 1880, entre los lotes números 51 á 53 de 4°, 5° y 6° orden de la sección comprendida entre los ríos "Pez y Reventazón", no presentan servicio alguno por que los lotes que siguen á los ya enunciados, tienen su entrada natural á la otra margen de los ya citados ríos.
 Oído el dictamen del Agrimensor público, y con presencia del mapa por él levantado,
 DECRETA:
 Art. único. -Las calles de que se ha hecho referencia, quedan suprimidas; y pueden por consiguiente denunciarse junto con los lotes de terreno que dividen.

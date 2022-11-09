@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO NO XI.
+(Esta norma fue derogada por el artículo 1°, inciso 543, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Determina el modo de reivindicar el carácter de ciudadano costarricense.
 LA COMISIÓN PERMANENTE DEL CONGRESO CONSTITU CIONAL DE LA REPÚBLICA DE COSTA RICA,
 Considerando:

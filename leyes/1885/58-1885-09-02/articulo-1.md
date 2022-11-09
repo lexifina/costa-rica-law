@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO No LVIII.
+(Esta norma fue derogada por el artículo 1°, inciso 499, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Autoriza al P. E. para establecer un Instituto Agronómico.
 EL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE COSTA-RICA,
 En uso de la facultad que le confiere la fracción 213 artículo 73 de la Constitución, y á iniciativa del Poder Ejecutivo,

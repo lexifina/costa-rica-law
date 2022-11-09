@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO No LXXIII.
+(Esta norma fue derogada por el artículo 1°, inciso 523, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Ordena á los Gobernadores señalen día para que tengan lugar las elecciones
 de Municipes, Alcaldes y Jurados.
 BERNARDO SOTO,

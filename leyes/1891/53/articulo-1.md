@@ -1,5 +1,7 @@
+(Derogado)
 DECRETO No LIII.
 (de 30 de Julio.)
+(Esta norma fue derogada por el artículo 1°, inciso 932, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Concede una jubilación.
 EL CONGRESO CONSTITUCIONAL DE LA REPUBLICA DE COSTA RICA,
 En atención á los dilatados servicios prestados á la Nación por don Juan Vicente Marchena, y de conformidad con la ley de 27 de Junio de 1890,

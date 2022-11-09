@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO No XIII.
+(Esta norma fue derogada por el artículo 1°, inciso 560, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Aprueba los decretos números 7, 10, 11, 12, 18 y 29 emitidos por la Comisión Permanente en el ramo de Gobernación.
 EL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE COSTA RICA,
 Examinadas las disposiciones legislativas emitidas por la Comisión Permanente en el ramo de Gobernación, y usando de la facultad que le confiere el inciso 4o del artículo 94 de la Constitución,

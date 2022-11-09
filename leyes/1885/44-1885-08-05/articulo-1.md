@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO No XLIV.
+(Esta norma fue derogada por el artículo 1°, inciso 486, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Aprueba los actos del Poder Ejecutivo en las Carteras de Hacienda y Comercio en el año económico que terminó el 31 de marzo de 1885.
 EL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE COSTA-RICA,
 Examinados los antecedentes respectivos, y de a- cuerdo con la fracción 112, artículo 73 de la Constitución,

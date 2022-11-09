@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO No XIII.
+(Esta norma fue derogada por el artículo 1°, inciso 518, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Autoriza a la Municipalidad de Desamparados a enajenar un terreno de su propiedad llamado "El Salitral."
 LA COMISIÓN PERMANENTE DEL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE COSTA-RICA,
 En uso de la facultad que le atribuye la fracción 42, artículo 94 de la Constitución,

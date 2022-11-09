@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO No XXIX.
+(Esta norma fue derogada por el artículo 1°, inciso 571, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Autoriza la incorporación de los fondos del pueblo de Quircot á los del Colegio de Cartago.
 EL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE COSTA RICA
 Considerando justas las razones expuestas por la Corporación Municipal del cantón central de la provincia de Cartago, para que se le permita aumentar los capitales destinados al sostenimiento del Instituto de segunda enseñanza de la ciudad del mismo nombre,

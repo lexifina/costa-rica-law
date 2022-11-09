@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO No LXVIII.
+(Esta norma fue derogada por el artículo 1°, inciso 888, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 (de 29 de Julio).
 Suprime la cláusula 39 del contrato Alvarado-Smith, aprobado por
 decreto de 25 de Enero del presente año.

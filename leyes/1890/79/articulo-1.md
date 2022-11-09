@@ -1,5 +1,7 @@
+(Derogado)
 DECRETO No LXXIX.
 (de 25 de Noviembre).
+(Esta norma fue derogada por el artículo 1°, inciso 897, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Señala las doce del día veintiocho de Diciembre próximo para que la Asamblea Electoral de la provincia de Guanacaste proceda á la elección de un Diputado.
 LA COMISIÓN PERMANENTE
 DEL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE COSTA RICA,

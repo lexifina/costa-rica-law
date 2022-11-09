@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO NO XLVII.
+(Esta norma fue derogada por el artículo 1°, inciso 742, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 (de 16 de julio).
 Aprueba el decreto número 6 de la Comisión Permanente.
 EL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE

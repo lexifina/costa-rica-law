@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO N° LXI.
+(Esta norma fue derogada por el artículo 1°, inciso 501, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Señala el 1 de enero de 1886 para que la tarifa de aduanas empiece surtir sus efectos.
 BERNARDO SOTO,
 PRESIDENTE CONSTITUCIONAL DE LA REPÚBLICA Y GE NERAL EN JEFE DEL EJÉRCITO DE COSTA-RICA.

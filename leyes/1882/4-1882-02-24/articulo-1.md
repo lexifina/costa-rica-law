@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO N° IV.
+(Esta norma fue derogada por el artículo 1°, inciso 151, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Deroga el decreto de 21 de junio de 1881, sobre organización
 de las Secretarías de Estado.
 TOMÁS GUARDIA,

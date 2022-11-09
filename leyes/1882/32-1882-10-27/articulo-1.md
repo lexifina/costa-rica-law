@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO NO XXXII.
+(Esta norma fue derogada por el artículo 1°, inciso 231, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Dice qué diputados formarán la Comisión Permanente.
 EL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE COSTA-RICA,
 En observación de lo dispuesto en el artículo 93 de la Constitución,

@@ -1,5 +1,7 @@
+(Derogado)
 DECRETO No XVII.
 (de 6 de Mayo).
+(Esta norma fue derogada por el artículo 1°, inciso 861, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Nombra las personas que deben componer las diversas Magistraturas del Supremo Tribunal de Justicia en el presente período constitucional.
 EL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE COSTA RICA,
 Usando de la facultad que le confiere el decreto de 19 de Mayo de 1886, que reforma la Constitución vigente,

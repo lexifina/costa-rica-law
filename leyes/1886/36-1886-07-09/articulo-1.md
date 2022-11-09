@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO XXXVI.
+(Esta norma fue derogada por el artículo 1°, inciso 578, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Hace varias concesiones á don Carlos F. Willis para que establezca fábricas de extraer fibras y fabricar papel.
 EL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE COSTA RICA.
 En vista de las solicitudes hechas por don Car- los F. Willis con fechas 11 y 13 de mayo próximo pasado, y

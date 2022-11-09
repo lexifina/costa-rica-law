@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO No LXXIII.
+(Esta norma fue derogada por el artículo 1°, inciso 763, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 (de 31 de julio).
 Aprueba un contrato con el señor Erich Guido Gaertner Zadew, para la organización en el extranjero de sindicados que den á conocer las riquezas naturales y productos de Costa Rica.
 EL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE COSTA RICA,

@@ -1,5 +1,7 @@
+(Derogado)
 DECRETO NO XIV.
 (de 2 de Mayo).
+(Esta norma fue derogada por el artículo 1°, inciso 859, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Nombra las personas que han de servir los puestos de Diputados
 al Congreso Nacional.
 EL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE COSTA RICA,
@@ -9,7 +11,6 @@ Artículo único. Decláranse legalmente electos para ejercer el cargo de Diputa
 Por la Provincia de Alajuela, principales: Licenciado don José Antonio Castro, Licenciado don Eusebio F. Rodríguez, don Rafael Iglesias, don Francisco E. Fernández y don Clemente Méndez; y Suplente, don Lorenzo Montenegro.; Y suplente don Lorenzo Montenegro.
 Por la Provincia de Cartago, principales: Carlos H. Sancho y don Francisco Aguilar B. y Suplentes: don Jenaro Bonilla y don Juan de Dios Céspedes.
 Por la Provincia de Heredia, principal: don Joaquín Lizano, y Suplente: don Paulino Ortiz h.
-Y por la Comarca de Puntarenas, principal, Licenciado don Félix A. Montero, y Suplente, Licencia-
-do don Isidro Marín Calderón.
+Y por la Comarca de Puntarenas, principal, Licenciado don Félix A. Montero, y Suplente, Licencia-do don Isidro Marín Calderón.
 AL PODER EJECUTIVO.
 Dado en el Salón de Sesiones del Palacio Nacional, en San José, á los dos días del Mayo de mil ochocientos noventa.-FRANCISCO M. IGLESIAS.-F. AGUILAR B., Secretario.-RAFL. IGLESIAS, Secretario. Palacio Nacional. -San José, á dos de Mayo de mil ochocientos noventa.-Publíquese.-CARLOS DURÁN. El Secretario de Estado en el despacho de Gobernación, A. ALVARADO.

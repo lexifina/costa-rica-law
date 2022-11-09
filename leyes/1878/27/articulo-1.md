@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO N° XXVII.
+(Esta norma fue derogada por el artículo 1°, inciso 51, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Ordenando proceder a la renovacion del Gran Consejo Nacional.
 TOMAS GUARDIA, General en Jefe del Ejército y Presidente de la República de Costa-Rica.
 Considerando:

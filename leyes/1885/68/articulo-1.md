@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO No LXVIII.
+(Esta norma fue derogada por el artículo 1°, inciso 512, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Autoriza la formación de una Compañía para la terminación del ferro-carril del Atlántico hasta Cartago.
 BERNARDO SOTO,
 GENERAL EN JEFE DEL EJÉRCITO Y PRESIDENTE CONSTITUCIONAL DE

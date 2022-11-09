@@ -1,5 +1,7 @@
+(Derogado)
 DECRETO No XLIII.
-Reorganiz laa colonia de Talamanca.
+(Esta norma fue derogada por el artículo 1°, inciso 624, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
+Reorganiza la colonia de Talamanca.
 BERNARDO SOTO,
 GENERAL DE DIVISIÓN Y PRESIDENTE CONSTITUCION. DE LA REPÚBLICA DE COSTA RICA,
 Considerando:

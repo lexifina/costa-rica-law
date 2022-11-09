@@ -1,5 +1,7 @@
+(Derogado)
 DECRETO NO LXXIII.
 by bb (de 18 de Diciembre.)
+(Esta norma fue derogada por el artículo 1°, inciso 951, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Concede varias autorizaciones al Poder Ejecutivo.
 EL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE COSTA RICA,
 CONSIDERANDO:

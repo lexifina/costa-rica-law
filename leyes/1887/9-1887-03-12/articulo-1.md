@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO No IX.
+(Esta norma fue derogada por el artículo 1°, inciso 634, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Aprueba el memorandum del convenio celebrado entre Mr. M. C. Keith
 y los Tenedores de Bonos.
 [de 12 de marzo.]

@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO No XVIII.
+(Esta norma fue derogada por el artículo 1°, inciso 520, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Autorizá la Municipalidad de Cartago á que, para solventar una deuda que tiene con don Augusto Gallardo, tome cierta cantidad del fondo de propios.
 LA COMISIÓN PERMANENTE DEL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE COSTA-RICA,
 A solicitud de la Municipalidad del cantón principal de la provincia de Cartago, y en uso de la atribución que le confiere la fracción 4, artículo 94 de la Constitución,

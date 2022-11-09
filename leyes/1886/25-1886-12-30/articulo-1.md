@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO No XXV.
+(Esta norma fue derogada por el artículo 1°, inciso 627, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Exceptúa del pago de derechos de aduana los artesonados y techos de hierro para mercados en Cartago y Heredia.
 LA COMISIÓN PERMANENTE DEL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE COSTA RICA.
 En vista de la solicitud de los señores Tomás M. Calnek y Silas W. Hastings, y á iniciativa del Poder Ejecutivo,
