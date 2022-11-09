@@ -1,0 +1,1 @@
+Artículo 2°-Departamento encargado. Las donaciones de tipo educativo, cultural, deportivo y recreativo que se rigen bajo el presente reglamento, serán tramitadas directamente por el Departamento de Relaciones Públicas, siendo este el encargado de ejecutar el Programa de Educativos Culturales y Deportivos.
