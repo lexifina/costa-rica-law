@@ -1,1 +1,0 @@
-Art 195° El Centinela que abandone su puesto al frente del enemigo o de rebeldes o sediciosos, incurrirá en la pena de deportación, en Campaña o lugar declarado en estado de guerra, en la de presidio en los demás casos, en la de reclusión en celda.

@@ -1,1 +1,0 @@
-Art 319° En la diligencia que se extienda sobre el acto del reconocimiento se harán constar las declaraciones recibidas, y todas las circunstancias que ocurrieren, asi como los nombres de que hubieren formado el grupo o rueda.

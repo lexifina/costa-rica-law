@@ -1,1 +1,0 @@
-Art 435° Ante el Consejo de Guerra sólo se verificará el reconocimiento de objetos sólo se verificará el reconocimiento de objetos o documentos, se oirán los informes periciales, se examinará a los testigos presentes ratificados y a los que, por primera vez, hayan depuesto en el plenario.

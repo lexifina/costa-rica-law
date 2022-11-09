@@ -1,1 +1,0 @@
-Art 306° En los delitos de homicidio, antes del enterramiento del cadáver, o inmediatamente descripción del estado en se encuentre, procederá a su identificación por medio de testigos, los que declararán dando razón de su conocimiento.

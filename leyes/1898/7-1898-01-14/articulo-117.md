@@ -1,1 +1,0 @@
-Art 117° La duración en las penas temporales empezará a cortarse desde el día en que la sentencia condenatoria hubiese quedado firme, estando preso el reo. Caso de no estarlo, desde que sea reducido a prisión.
