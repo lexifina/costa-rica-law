@@ -1,1 +1,0 @@
-Artículo 6°.- El Instituto Costarricense de Electricidad indicará, para la mejor aplicación de los fondos, los tipos de plantas requeridas de acuerdo con el lugar en que se instalará, y además, brindará la ayuda técnica necesaria.

@@ -1,1 +1,0 @@
-Artículo 4°.- Si el Estado llegase a adquirir los bienes de la Empresa en la forma prevista en el contrato, o por convenio con la misma, se deducirá, del valor total, el monto del aporte hecho en virtud de esta ley.
