@@ -14,3 +14,4 @@ Procedimiento para Llenar Vacantes en el Consejo Superior de Educación
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1964-07-19 | la propia norma |
+| 2 | 2022-11-09 | Decreto Ejecutivo 43802 (2022-11-09) |
