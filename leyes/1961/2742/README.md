@@ -1,6 +1,6 @@
 # Autoriza a la Corporación Municipal del cantón de Puriscal para contratar un empréstito para el mejoramiento del servicio eléctrico
 
-Ley N° 2742 del 1961-05-18. SINALEVI, ficha 37407: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=37407&param2=39441&param3=1>.
+Ley N° 2742 del 1961-05-18. SINALEVI, ficha 37407: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=37407&param2=133441&param3=1>.
 
 Publicada en La Gaceta N° 118 del 1961-05-25.
 
@@ -9,3 +9,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | Versión | En vigor desde | Hecha por | Fecha de la versión |
 | --- | --- | --- | --- |
 | 1 de 2 | 1961-05-25 | Ley 2742 | 1961-05-18 |
+| 2 de 2 | 2022-11-09 | Ley 10290 | 2022-09-20 |
