@@ -1,0 +1,1 @@
+Artículo 2º-Ámbito de aplicación. El presente reglamento abarcará todos los programas, dependencias y unidades del Consejo Nacional de Rectores y aplicará a toda la actividad contractual relacionada a los servicios técnicos y profesionales. Las relaciones de empleo público no estarán reguladas por este reglamento.

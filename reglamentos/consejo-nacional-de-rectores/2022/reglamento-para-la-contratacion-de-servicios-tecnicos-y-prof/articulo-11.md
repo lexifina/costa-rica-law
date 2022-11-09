@@ -1,0 +1,1 @@
+Artículo 11.-Norma supletoria. Cualquier asunto no previsto en este Reglamento y la normativa institucional conexa se regirá en forma supletoria por la Ley General de Contratación Pública, su Reglamento y la Ley General de la Administración Pública.
