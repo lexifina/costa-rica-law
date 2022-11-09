@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO N°5
+(Esta norma fue derogada por el artículo 1°, inciso 249, de la ley N° 10288 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VIII parte)")
 (de 18 de mayo)
 Aprueba el decreto número 1 de 17 de setiembre de 1896, emitido por la Comisión Permanente.
 EL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE COSTA RICA

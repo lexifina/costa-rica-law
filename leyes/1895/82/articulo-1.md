@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO N° 82
+(Esta norma fue derogada por el artículo 1°, inciso 166, de la ley N° 10288 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VIII parte)")
 (de 29 de julio)
 Aprueba los contratos celebrados con don Antonio Amerling sobre navegación en los ríos San Carlos, Sarapiquí y San Carlos y una parte del San Juan.
 EL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE COSTA RICA,
@@ -6,7 +8,7 @@ Considerando: que son de reconocida importancia para la Nación los contratos ce
 Decreta:
 Artículo único: Apruebase el contrato celebrado el día 11 de setiembre de 1894 y su adicional de la misma fecha, entre el señor Secretario de Estado en el despacho de Fomento y don Antonio Amerling sobre navegación en los ríos San Carlos, Sarapiquí y Colorado, y del San Juan en la parte reservada a Costa Rica por el tratado de límites con Nicaragua, de 1858, y por el laudo arbitral de 1888, y que literalmente dicen:
 Artículo único: Apruebase el contrato celebrado el día 11 de setiembre de 1894 y su adicional de la misma fecha, entre el Señor Secretario de Estado en el Despacho de Fomento y don Antonio Amerling, sobre navegación en los ríos San Carlos, Sarapiquí y Colorado, y del San Juan en la parte reservada a Costa Rica, por el tratado de límites con Nicaragua, de 1858, y por el laudo arbitral de 1888 y que literalmente dice:
-“Juan J. Ulloa G. Secretario de Estado en el despacho de Fomento, debidamente autorizado por el señor Presidente de la República, por una parte, y Antonio Amerling, mayor de edad, viudo, natural de Austria y vecino de esta ciudad, por otra, hemos convenido en celebrar el siguiente contrato:
+"Juan J. Ulloa G. Secretario de Estado en el despacho de Fomento, debidamente autorizado por el señor Presidente de la República, por una parte, y Antonio Amerling, mayor de edad, viudo, natural de Austria y vecino de esta ciudad, por otra, hemos convenido en celebrar el siguiente contrato:
 I
 El Gobierno concede al señor Amerling libertad para la navegación por vapor o electricidad de los ríos San Carlos, Sarapiquí y Colorado, hasta sus muelles, pudiendo hacer uso de las aguas del San Juan en la parte que a Costa Rica reserva el tratado límites con Nicaragua, de 1858, y laudo arbitral de 1888.
 II
@@ -45,7 +47,7 @@ Pasajes:
 Cuatro y medio centavos por mil quinientos ochenta metros.
 TRANSPORTE DE ANIMALES
 Ganado Vacuno 4 ¼ centavos por mil quinientos ochenta metros.
-“ Caballar 5 ½ “ “ “ “ “ “
+" Caballar 5 ½ " " " " " "
 Otro animales 4
 Animales pequeños 2
 Aves de corral 1

@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO N°42
+(Esta norma fue derogada por el artículo 1°, inciso 209, de la ley N° 10288 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VIII parte)")
 (de 3 de julio)
 Prohíbe acuñación de moneda de plata nacional en el país y circulación de la del mismo metal extranjera, y dicta disposiciones acerca de la que actualmente está en circulación.
 El Congreso Constitucional de la República de Costa Rica,

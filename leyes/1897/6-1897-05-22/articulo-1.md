@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO N° 6
+(Esta norma fue derogada por el artículo 1°, inciso 251, de la ley N° 10288 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VIII parte)")
 (de 20 de mayo)
 Prohíbe la inmigración al país de individuos de raza china, y faculta al Poder Ejecutivo para que impida la de otras razas que, su juicio, sean nocivas.
 EL CONGRESO CONSTITUCIONAL DE LA

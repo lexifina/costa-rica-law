@@ -1,11 +1,13 @@
+(Derogado)
 DECRETO N°86
+(Esta norma fue derogada por el artículo 1°, inciso 165, de la ley N° 10288 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VIII parte)")
 (de 1 de agosto)
 Aprueba un contrato que reforma el celebrado el 23 de julio de 1893 entre el Ministro de Fomento y don Federico Medcalf
 EL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE COSTA RICA.
 Considerando que es de importancia a los intereses nacionales fomentar la agricultura en la zona de Talamanca.
 Decreta:
-Artículo único. – Apruebase el contrato celebrado el día 28 de marzo último entre el señor Secretario de Estado en el despacho de Fomento, autorizado por el señor Presidente de la República, y don Federico Medcalf, Presidente de la Compañía Colonizadora de Talamanca, sobre reformas al contrato de 23 de julio de 1891, el cual con las modificaciones introducidas, literalmente dice:
-“Jua J. Ulloa G. Secretario de Estado en el despacho de Fomento, autorizado por el señor Presidente, por una parte, y Federico Medcalf, Presidente de la Compañía Colonizadora de Talamanca, como cesionaria de los derechos del señor don W. H. Reynolds, por la otra, han convenido en hacer las siguientes modificaciones al contrato de 23 de julio de 1891.
+Artículo único. - Apruebase el contrato celebrado el día 28 de marzo último entre el señor Secretario de Estado en el despacho de Fomento, autorizado por el señor Presidente de la República, y don Federico Medcalf, Presidente de la Compañía Colonizadora de Talamanca, sobre reformas al contrato de 23 de julio de 1891, el cual con las modificaciones introducidas, literalmente dice:
+"Jua J. Ulloa G. Secretario de Estado en el despacho de Fomento, autorizado por el señor Presidente, por una parte, y Federico Medcalf, Presidente de la Compañía Colonizadora de Talamanca, como cesionaria de los derechos del señor don W. H. Reynolds, por la otra, han convenido en hacer las siguientes modificaciones al contrato de 23 de julio de 1891.
 I
 Medcalf se compromete: 1° A hacer venir por su propia cuenta cien familias de la América del Norte para que se establezca en los baldíos denunciables del territorio de la comarca de Limón y se dediquen a la Industria Agrícola en general, y con especialidad al cultivo del cacao, café, caña de azúcar, algodón, caucho, arroz, maíz, trigo, cebada, avenada, plantas forrajeras, textiles, tintóreos y oleaginosas y a la cría de ganado vacuno, caballar, lanar, cerdoso y aves de corral. Para este último fin Medcalf deberá introducir al país las mejores razas de animales y procurar su propagación y cruzamiento con los criollos.
 Los colonos que introdujere deberán ser de buen carácter, trabajadores, esencialmente agricultores en su mayor parte del sexo masculino, menores de cincuenta años, excepto el jefe de cada familia que puede ser mayor de esa edad, no deberán haber sido sentenciados en ninguna parte a pena de presidio, ni haber sido expulsado de ningún país por cualquiera otra causa, ni padecer de enfermedades contagiosas o crónicas que los imposibiliten para el trabajo.

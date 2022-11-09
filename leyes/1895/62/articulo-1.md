@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO N°62
+(Esta norma fue derogada por el artículo 1°, inciso 152, de la ley N° 10288 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VIII parte)")
 (de 23 de julio)
 Nombra los miembros de la Comisión Permanente que han de funcionar en el presente año
 EL CONGRESO DE LA CONSTITUCIONAL DE LA REPÚBLICA DE COSTA RICA

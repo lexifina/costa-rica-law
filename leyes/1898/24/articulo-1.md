@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO N°24
+(Esta norma fue derogada por el artículo 1°, inciso 315, de la ley N° 10288 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VIII parte)")
 (de 30 de junio)
 Aprueba el contrato celebrado entre el señor Secretario de Estado en el despacho de Marina y el Señor don Minor C. Keith presentado de la casa Snyder Hermanos.
 EL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE COSTA RICA.
@@ -6,7 +8,7 @@ En uso de sus atribuciones constitucionales,
 Decreta:
 Artículo único: Apruebase en todas sus partes el contrato celebrado entre el señor Secretario de Estado en el despacho de Marina, debidamente autorizado por el señor Presidente de la República y el señor don Minor C. Keith, representante de la casa Snyder Hermanos, residentes en Bocas del Toro, para el establecimiento de un servicio de navegación a vapor entre el puerto de Limón y el referido Bocas del Toro, con escala en puertos intermedios.
 Dicho contrato es como sigue:
-“Demetrio Tinoco, Secretario de Estado en el despacho de Marina, debidamente autorizado por el señor Presidente de la República, y Minor C. Keith, de este comercio, como representante de la casa Snyder Hermanos, establecidos en Bocas del Toro, por la otra, hemos convenido en celebrar el siguiente contrato:
+"Demetrio Tinoco, Secretario de Estado en el despacho de Marina, debidamente autorizado por el señor Presidente de la República, y Minor C. Keith, de este comercio, como representante de la casa Snyder Hermanos, establecidos en Bocas del Toro, por la otra, hemos convenido en celebrar el siguiente contrato:
 Minor C. Keith, en representación de la casa Snyder Hermanos, se obliga:
 I
 A establecer una línea de vapores que hagan el servicio puerto de Limón y Bocas del Toro, tocando en dos de los puertos costarricenses intermedios que elija el Gobierno.

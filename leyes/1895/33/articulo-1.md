@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO N°33
+(Esta norma fue derogada por el artículo 1°, inciso 131, de la ley N° 10288 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VIII parte)")
 (DE 4 de julio)
 Asigna pensiones a José Vargas y Juan Hidalgo
 El Congreso Constitucional de la República de Costa Rica.

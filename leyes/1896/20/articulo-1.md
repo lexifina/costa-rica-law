@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO N°20
+(Esta norma fue derogada por el artículo 1°, inciso 193, de la ley N° 10288 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VIII parte)")
 (de 2 de junio)
 Aprueba el decreto n°14 de febrero del corriente año, en que quedn sujetas las comarcas de Puntarenas y Limón a las Provincias de Alajuela y Cartago, en cuanto a juzgamiento de delitos militares.
 EL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE COSTA RICA

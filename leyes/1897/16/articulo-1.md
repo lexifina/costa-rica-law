@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO N°16
+(Esta norma fue derogada por el artículo 1°, inciso 256, de la ley N° 10288 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VIII parte)")
 (de 8 de junio)
 Destina una suma de dinero para socorrer a las victimas de la explosión habida en la capital del Estado de El Salvador.
 EL CONGRESO CONSTITUCIONAL DE LA REPUBLICA DE COSTA RICA.

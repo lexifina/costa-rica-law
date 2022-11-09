@@ -1,10 +1,12 @@
+(Derogado)
 DECRETO N°4
+(Esta norma fue derogada por el artículo 1°, inciso 236, de la ley N° 10288 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VIII parte)")
 (de 25 de setiembre)
 EL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE COSTA RICA.
 En uso de las atribuciones que le confiere el inciso 13° del artículo 73 de la Constitución.
 Decreta:
 Artículo 1° Apruebase el contrato celebrado el 25 de setiembre del corriente año entre el señor Secretario de Estado en el Despacho de Hacienda y Comercio y el Director del Banco de Costa Rica, el cual literalmente dice así:
-“ Juan Bautista Quirós, Secretario de Estado en el despacho de Guerra y Marina, encargado del de Hacienda y Comercio, a nombre del Gobierno de la República y suficientemente autorizado por el señor Presidente de la misma, por una parte y por la otra José Andrés Coronado, Director del Banco de Costa Rica, ampliamente facultado del mismo, han convenido en celebrar el siguiente contrato:
+" Juan Bautista Quirós, Secretario de Estado en el despacho de Guerra y Marina, encargado del de Hacienda y Comercio, a nombre del Gobierno de la República y suficientemente autorizado por el señor Presidente de la misma, por una parte y por la otra José Andrés Coronado, Director del Banco de Costa Rica, ampliamente facultado del mismo, han convenido en celebrar el siguiente contrato:
 I
 El Banco de Costa Rica, renuncia el privilegio exclusivo que le otorga el contrato Soto Ortuño de 21 de octubre de 1884m, para emitir billetes al portador.
 Esta renuncia tiene por condiciones:

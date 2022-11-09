@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO N°53
+(Esta norma fue derogada por el artículo 1°, inciso 143, de la ley N° 10288 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VIII parte)")
 (de 17 de julio)
 Concede una pensión a don Francisco Rojas Calvo.
 EL CONGRESO CONSTITUCIONAL DE LA REPUBLICA DE COSTA RICA.

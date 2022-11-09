@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO N°80
+(Esta norma fue derogada por el artículo 1°, inciso 161, de la ley N° 10288 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VIII parte)")
 (de 30 de julio)
 Aumenta la pensión del inválido Prudencio Blanco.
 EL CONGRESO CONSTITUCIONAL DE LA REPUBLICA DE COSTA RICA.

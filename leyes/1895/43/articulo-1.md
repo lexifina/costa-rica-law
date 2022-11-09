@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO N°43
+(Esta norma fue derogada por el artículo 1°, inciso 137, de la ley N° 10288 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VIII parte)")
 (de 9 de julio)
 Dispone auxiliar la educación de los jóvenes Roberto Félix y Roger Alberto Tessier
 A iniciativa del Poder Ejecutivo y

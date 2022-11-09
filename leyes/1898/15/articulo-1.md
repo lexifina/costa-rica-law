@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO N°15
+(Esta norma fue derogada por el artículo 1°, inciso 309, de la ley N° 10288 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VIII parte)")
 Reforme los artículos 116, 125 y 127 de la Constitución Política de la República.
 EL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE COSTA RICA,
 En uso de la facultad que le concede al artículo 134 de la Constitución y previas las formalidades que en él se establecen,

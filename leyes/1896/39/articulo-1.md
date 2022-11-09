@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO N°39
+(Esta norma fue derogada por el artículo 1°, inciso 205, de la ley N° 10288 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VIII parte)")
 (de 26 de junio)
 Concede al señor don Luís Mora Pérez una pensión vitalicia de setenta y cinco pesos mensuales.
 Considerando que el señor don Luís Mora Pérez ha prestado importantes y dilatados servicios a la Nación, aunque de categoría modesta.

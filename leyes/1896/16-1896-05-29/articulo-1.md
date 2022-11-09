@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO N°16
+(Esta norma fue derogada por el artículo 1°, inciso 190, de la ley N° 10288 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VIII parte)")
 (de 29 de mayo)
 Aprueba el decreto n°13 de 10 de febrero del corriente año, en el que autoriza al Poder Ejecutivo para contratar nuevas obras en el Puerto de Limón.
 EL CONGRESO CONSTITUCIONAL DE LA REPUBLICA DE COSTA RICA

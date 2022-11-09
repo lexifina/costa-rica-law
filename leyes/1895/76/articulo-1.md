@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO N°76
+(Esta norma fue derogada por el artículo 1°, inciso 156, de la ley N° 10288 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VIII parte)")
 (de 29 de agosto)
 Aprueba los actos del Poder Ejecutivo correspondiente al ramo de Instrucción Pública.
 EL CONGRESO CONSTITUCIONAL DE LA REPUBLICA DE COSTA RICA

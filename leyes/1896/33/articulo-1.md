@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO N°33
+(Esta norma fue derogada por el artículo 1°, inciso 203, de la ley N° 10288 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VIII parte)")
 (de 22 de junio)
 Aprueba los actos del Poder Ejecutivo con que ha dado cuenta el señor Secretario de Estado en el Secretario de Estado en el Despacho de Fomento,
 EL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE COSTA RICA,

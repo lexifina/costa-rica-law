@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO N°15
+(Esta norma fue derogada por el artículo 1°, inciso 255, de la ley N° 10288 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VIII parte)")
 (de 2 de junio)
 Faculta al Poder Ejecutivo para prorrogar, por el tiempo que crea conveniente, la prohibición de introducir al país tabaco en rama.
 EL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE COSTA RICA

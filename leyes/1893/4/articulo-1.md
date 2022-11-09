@@ -1,5 +1,7 @@
+(Derogado)
 DECRETO N°. IV.
 (de 28 de Febrero.)
+(Esta norma fue derogada por el artículo 1°, inciso 41, de la ley N° 10288 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VIII parte)")
 Ordena el modo de proceder en los delitos contra Hacienda.
 JOSÉ JOAQUÍN RODRÍGUEZ
 PRESIDENTE CONSTITUCIONAL DE LA REPÚBLICA DE COSTA RICA.

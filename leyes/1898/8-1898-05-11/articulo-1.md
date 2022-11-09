@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO N°8
+(Esta norma fue derogada por el artículo 1°, inciso 303, de la ley N° 10288 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VIII parte)")
 (de 11 de mayo)
 Admite la excusa que presenta el Licenciado don José Astúa Aguilar, para aceptar el cargo de Magistrado de la Sala de Casación y hace el nombramiento para dicho cargo.
 EL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE COSTA RICA.

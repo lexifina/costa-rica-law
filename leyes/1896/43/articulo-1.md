@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO N°43
+(Esta norma fue derogada por el artículo 1°, inciso 210, de la ley N° 10288 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VIII parte)")
 (de 8 de julio)
 Aprueba un contrato celebrado con la Compañía Internacional de Expresos y Transportes Norte y Sur Americana.
 EL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE COSTA RICA.

@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO N°10
+(Esta norma fue derogada por el artículo 1°, inciso 304, de la ley N° 10288 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VIII parte)")
 (de 13 de mayo)
 Aprueba el decreto número 5 emitidos por la Comisión Permanente la Ley de Jurado en cuanto a la comarca de Limón.
 EL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE COSTA RICA

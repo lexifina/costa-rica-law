@@ -1,10 +1,12 @@
+(Derogado)
 DECRETO N°2
+(Esta norma fue derogada por el artículo 1°, inciso 295, de la ley N° 10288 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VIII parte)")
 (de 24 de marzo)
 Aprueba el contrato el 14 de marzo entre el señor Secretario y Comercio y el Director del Banco de Costa Rica.
 De conformidad con lo dispuesto en la fracción 4° del artículo 73 de la Constitución,
 Decreta:
 Artículo único: Apruebase el contrato celebrado el 14 de marzo en curso entre el señor Secretario de Hacienda y Comercio y el Director del Banco de Costa Rica, el cual literalmente dice así:
-“ Ricardo Montealegre, Secretario de Estado en los despachos de Hacienda y Comercio, debidamente autorizado por el señor Presidente de la República, y José Andrés Coronado, Director del Banco de Costa Rica, en su nombre y con igual autorización del Consejo de Gobierno, para atender a los gastos extraordinarios que demanda la actual situación del país, originada del pie de guerra en que la defensa nacional lo ha colocado, han convenido en celebrar el contrato siguiente.
+" Ricardo Montealegre, Secretario de Estado en los despachos de Hacienda y Comercio, debidamente autorizado por el señor Presidente de la República, y José Andrés Coronado, Director del Banco de Costa Rica, en su nombre y con igual autorización del Consejo de Gobierno, para atender a los gastos extraordinarios que demanda la actual situación del país, originada del pie de guerra en que la defensa nacional lo ha colocado, han convenido en celebrar el contrato siguiente.
 I
 Se autoriza al Banco de Costa Rica para emitir hasta un millón de pesos ($1.000,000.00) en billetes al portador, con la reserva metálica de que habla la ley de 24 de octubre de 1884 en su cláusula III, los cuales billetes serán considerados al igual de los existentes hoy en circulación. El Banco podrá importar el metálico que fuere necesario para constituir dicha reserva.
 II
