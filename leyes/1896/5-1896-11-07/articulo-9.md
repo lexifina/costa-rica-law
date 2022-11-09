@@ -1,1 +1,0 @@
-Artículo 9° Todas las inscripciones y certificaciones que se hagan o expidan en el Registro de la Propiedad Científica, Literaria y Artística, serán firmadas por el Director de las Bibliotecas Públicas y autorizadas con el sello del Registro.

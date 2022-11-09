@@ -1,1 +1,0 @@
-Art. 117. —Todo fraude en las votaciones, cometido ó consentido por las corporaciones ó funcionarios electorales ó por particulares, que no esté expresamente determinado por esta ley, hará incurrir á los responsables: en reclusión menor en su grado medio á los funcionarios y en su grado mínimo á los particulares.

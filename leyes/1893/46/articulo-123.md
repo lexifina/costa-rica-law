@@ -1,1 +1,0 @@
-Art. 123. —Cuando una Junta electoral dejare de formar la lista de sufragantes en los términos establecidos por la ley, cada uno de los miembros culpables incurrirá en una multa de cincuenta á cien pesos.

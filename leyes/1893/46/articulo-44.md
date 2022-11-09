@@ -1,1 +1,0 @@
-Art. 44. —Asimismo la Junta declarará la vacante que resulte por muerte de alguno de los electores nombrados ó por haber perdido después de su nombramiento alguna de las calidades requeridas para ser elector.

@@ -1,1 +1,0 @@
-Art. 98. —Practicadas las elecciones, se comunicará al Poder Ejecutivo un conocimiento exacto de los nombramientos, y en su oportunidad la toma de posesión y elección de Presidente y Vicepresidente, para que se publiquen en el Diario Oficial.
