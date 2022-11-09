@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO V
+(Esta norma fue derogada por el artículo 1°, inciso 113, de la ley N° 10288 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VIII parte)")
 (de 23 de noviembre)
 La Comisión Permanente del Congreso Constitucional de la República de Costa Rica.
 De acuerdo con lo dispuesto en la atribución 4° del artículo 94 de la Constitución.

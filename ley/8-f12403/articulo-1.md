@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO N°8
+(Esta norma fue derogada por el artículo 1°, inciso 179, de la ley N° 10288 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VIII parte)")
 (de 25 de noviembre)
 Autoriza al Poder Ejecutivo para invertir hasta &3000 y $400 en el arreglo de unos reclamos de don Crisanto Medina.
 LA COMISIÓN PERMANENTE DEL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE COSTA RICA.

@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO N°. XLV.
+(Esta norma fue derogada por el artículo 1°, inciso 70, de la ley N° 10288 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VIII parte)")
 (de 28 de Octubre.)
 Aprueba un contrato con la Compañía Colonizadora de Talamanca.
 JOSÉ J. RODRÍGUEZ,
@@ -6,8 +8,8 @@ PRESIDENTE CONSTITUCIONAL DE LA REPÚBLICA DE COSTA RICA.
 Siendo de utilidad pública para el incremento de la agricultura nacional el contrato celebrado entre la Secretaría de Fomento y el señor John William Smith y Demoss, en su calidad de Presidente de la Compañía Colonizadora de Talamanca, para el cultivo de parte de la milla marítima de la costa del Atlántico, hoy improductiva;
 en uso de facultades extraordinarias,
 DECRETA:
-Artículo único. —Apruébase definitivamente y téngase por ley de la República el contrato citado, fecha veintisiete del mes en curso, que literalmente dice:
-“José Vargas M., Secretario de Estado en el despacho de Fomento, debidamente autorizado por el señor Presidente de la República, por una parte, y John William Smith y Demoss, en concepto de Presidente y representante legítimo de la Compañía Colonizadora de Talamanca, por la otra, han convenido en celebrar el conrrato siguiente:
+Artículo único. -Apruébase definitivamente y téngase por ley de la República el contrato citado, fecha veintisiete del mes en curso, que literalmente dice:
+"José Vargas M., Secretario de Estado en el despacho de Fomento, debidamente autorizado por el señor Presidente de la República, por una parte, y John William Smith y Demoss, en concepto de Presidente y representante legítimo de la Compañía Colonizadora de Talamanca, por la otra, han convenido en celebrar el conrrato siguiente:
 I.
 El Gobierno concede á la Compañía Colonizadora de Talamanca en usufructo por el término de cincuenta años, á contar desde la aprobación del presente contrato, mil quinientas sesenticinco hectáreas de las tierras de la milla marítima comprendida desde Punta Cahuita hasta la punta Piplikey, abrazando una distancia como de siete millas que se encuentran paralelas á las tierras denunciadas y que está desmontando la Compañía como cesionaria de la concesión hecha por el Gobierno á Mr. William Hornell Reynolds en 23 de Julio de 1891, para emprender los cultivos á que éste está obligado. Dentro de un año contado desde la fecha de este contrato, deberá estar levantado por la Compañía concesionaria, y presentado á esta Secretaría, para su aprobación, el plano de las tierras que comprende este convenio.
 II.
@@ -36,6 +38,6 @@ XIII.
 Todas las cuestiones que surjan en la ejecución de este contrato, serán resultas por los tribunales de Costa rica y con sujeción á las leyes del país, y en ningún caso se podrá recurrir á la intervención diplomática.
 XIV.
 Queda aquí refundido el contrato celebrado el día de ayer, con el mismo objeto y entre las mismas partes.
-En fe de lo cual firman los otorgantes en la ciudad de San José, en el Palacio Nacional, á veintisiete de Octubre de mil ochocientos noventa y tres. —J. VARGAS M. —JOHN W. SMITH. —Casa Presidencial. San José, veintisiete de Octubre de mil ochocientos noventa y tres. —Apruébase el contrato anterior. —(Hay una rúbrica). —Rubricado por el señor Presidente. —VARGAS M.”
-Dado en la Casa Presidencial, en San José, á veintiocho de Octubre de mil ochocientos noventa y tres. —JOSÉ J. RODRÍGUEZ.
-El Secretario de Estado en el despacho de Fomento, —J. VARGAS M.
+En fe de lo cual firman los otorgantes en la ciudad de San José, en el Palacio Nacional, á veintisiete de Octubre de mil ochocientos noventa y tres. -J. VARGAS M. -JOHN W. SMITH. -Casa Presidencial. San José, veintisiete de Octubre de mil ochocientos noventa y tres. -Apruébase el contrato anterior. -(Hay una rúbrica). -Rubricado por el señor Presidente. -VARGAS M."
+Dado en la Casa Presidencial, en San José, á veintiocho de Octubre de mil ochocientos noventa y tres. -JOSÉ J. RODRÍGUEZ.
+El Secretario de Estado en el despacho de Fomento, -J. VARGAS M.

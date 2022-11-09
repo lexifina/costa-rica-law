@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO N° 39
+(Esta norma fue derogada por el artículo 1°, inciso 133, de la ley N° 10288 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VIII parte)")
 (DE 6 de julio)
 Aprueba los actos comprendidos en la Memoria de Gobernación y Policía
 El Congreso Constitucional de la República de Costa Rica.

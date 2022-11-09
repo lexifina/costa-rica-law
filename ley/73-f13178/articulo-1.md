@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO N°73
+(Esta norma fue derogada por el artículo 1°, inciso 170, de la ley N° 10288 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VIII parte)")
 (de 5 de agosto)
 Declara de utilidad pública la carretera entre Tuis y la estación férrea de Turrialba
 EL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE COSTA RICA

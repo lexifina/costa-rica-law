@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO N°. VI.
+(Esta norma fue derogada por el artículo 1°, inciso 43, de la ley N° 10288 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VIII parte)")
 (de 14 de Marzo.)
 Autoriza á la Municipalidad de Alajuela para contratar un empréstito.
 JOSÉ JOAQUÍN RORÍGUEZ,
@@ -7,5 +9,5 @@ Por cuanto la Municipalidad del cantón central de Alajuela ha dispuesto en acue
 Por tanto, de acuerdo con el artículo 25 de las Ordenanzas Municipales y en uso de facultades extraordinarias,
 DECRETA:
 Artículo único. Autorizar á dicha Municipalidad para que con el objeto y en las condiciones expresadas negocie el empréstito de que se ha hecho mérito. Antes de emprenderse los trabajos á que el empréstito se destina, deberán presentarse para su aprobación á la Secretaría de Fomento, el presupuesto y planos respectivos.
-Dado en la Casa Presidencial, en San José, á los catorce días del mes de Marzo de mil ochocientos noventa y tres. —JO´SE J. RODRÍGUEZ.
-El Secretario de Estado en el despacho de Gobernación, —J. VARGAS M.
+Dado en la Casa Presidencial, en San José, á los catorce días del mes de Marzo de mil ochocientos noventa y tres. -JO´SE J. RODRÍGUEZ.
+El Secretario de Estado en el despacho de Gobernación, -J. VARGAS M.

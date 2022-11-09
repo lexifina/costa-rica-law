@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO N°8
+(Esta norma fue derogada por el artículo 1°, inciso 250, de la ley N° 10288 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VIII parte)")
 Deja exento de pago de derechos de Aduana hasta el 21 de octubre de 1898, el material fijo y rodante que se introduzcan para la construcción de ferrocarril próximos de vía férrea al Atlántico.
 EL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE COSTA RICA.
 En uso de sus facultades constitucionales.

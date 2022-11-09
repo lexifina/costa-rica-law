@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO N°11
+(Esta norma fue derogada por el artículo 1°, inciso 186, de la ley N° 10288 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VIII parte)")
 (de 22 de mayo)
 Aprueba el decreto n°2 de 6 de setiembre de 1895, que autoriza al Poder Ejecutivo para hacer los gastos que demandará la inauguración del Monumento Nacional.
 EL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE COSTA RICA,

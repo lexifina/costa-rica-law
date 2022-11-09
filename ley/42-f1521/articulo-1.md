@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO N°42
+(Esta norma fue derogada por el artículo 1°, inciso 134, de la ley N° 10288 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VIII parte)")
 (de 8 de julio)
 Confiere el grado de General de Brigada a don Lesmes Jiménez S. y el Coronel Arístides Román)
 EL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE COSTA RICA

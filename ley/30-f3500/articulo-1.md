@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO N°30
+(Esta norma fue derogada por el artículo 1°, inciso 321, de la ley N° 10288 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VIII parte)")
 (de 26 de julio)
 Permite que la Junta de Caridad del Hospital de Liberia disponga de su capital consolidado hasta la emisión de la presente ley y suspenda la consolidación hasta que reciba la suma de doce mil pesos.
 EL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE COSTA RICA.

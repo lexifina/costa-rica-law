@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO N°25
+(Esta norma fue derogada por el artículo 1°, inciso 198, de la ley N° 10288 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VIII parte)")
 (de 9 de junio)
 Aprueba el decreto n° 8 de 25 de noviembre de 1895, emitido por la Comisión Permanente
 EL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE COSTA RICA,

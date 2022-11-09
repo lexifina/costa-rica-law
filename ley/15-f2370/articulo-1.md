@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO N°15
+(Esta norma fue derogada por el artículo 1°, inciso 188, de la ley N° 10288 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VIII parte)")
 (de 29 de mayo)
 Aprueba el decreto n°12 de 8 de febrero del presente año, por el cual destina de las rentas públicas la cantidad de $150, 000 a beneficio de las provincias de Cartago, Heredia y Alajuela.
 El Congreso Constitucional de la República de Costa Rica,

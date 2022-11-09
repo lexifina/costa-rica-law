@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO N°15
+(Esta norma fue derogada por el artículo 1°, inciso 183, de la ley N° 10288 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VIII parte)")
 (de 27 de marzo)
 Declara que el articulo 5° de la ley de 13 de agosto de 1875 ha quedado derogado en virtud de leyes posteriores.
 LA COMISIÓN PERMANENTE DEL CONGRESO CONSTITUCIONAL DE LA REPUBLICA DE COSTA RICA

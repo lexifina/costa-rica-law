@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO N°34
+(Esta norma fue derogada por el artículo 1°, inciso 171, de la ley N° 10288 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VIII parte)")
 (de 5 de agosto)
 Asigna cinco mil pesos para la apertura de un camino de La Junta a los Negritos.
 EL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE COSTA RICA

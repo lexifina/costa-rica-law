@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO N°1
+(Esta norma fue derogada por el artículo 1°, inciso 195, de la ley N° 10288 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VIII parte)")
 (de 8 de junio)
 Declara no haber lugar a formación de causa contra el Licenciado don Ascensión Esquivel
 EL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE COSTA RICA
