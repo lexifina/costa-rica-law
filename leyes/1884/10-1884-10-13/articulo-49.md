@@ -1,1 +1,0 @@
-Art. 49.-Verificado un remate en forma legal, el Juez lo aprobará en el mismo acto, y ordenará al rematario la consignación del precio, dentro de tercero día. Hecha la consignación, mandará el Juez se entreguen los bienes al comprador, y librará la correspondiente orden al depositario.

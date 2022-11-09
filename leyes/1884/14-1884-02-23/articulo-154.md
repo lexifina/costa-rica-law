@@ -1,1 +1,0 @@
-Art. 154.-Es deber de todo práctico advertir á los capitanes y patrones de todo buque que salgan á pilotear, cuáles son los sitios á que se refiere el artículo anterior y la pena á que a que da lugar su infracción.

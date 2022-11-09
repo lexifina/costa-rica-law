@@ -1,1 +1,0 @@
-Art. 5°. -Los distritos que carecieren de casas para escuela, ó que teniéndolas, estuvieren en mal estado ó no reuniesen las condiciones requeridas por la arquitectura del ramo, procederán á la construcción de edificios adecuados á su fin, ó á la refección y modificación de los existentes.

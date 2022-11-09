@@ -1,1 +1,0 @@
-Art. 75.-Si la ejecución tuviere por objeto exigir del deudor de una obligación de no hacer, el cumplimiento de ella, y si el documento presentado fue- re ejecutivo, se procederá como está mandado en el artículo 71.

@@ -1,1 +1,0 @@
-Art. 50.-Consignado el precio, el Juez otorgará de oficio escritura de venta al rematario. Si no hubiere título inscrito á favor del ejecutado, el actor tiene personalidad bastante para practicar las diligencias que sean precisas para obtenerlo.

@@ -1,1 +1,0 @@
-Art, 22.-Las mercaderías recibidas en Carrillo se reputan allí en tránsito: su bodegaje libre se fija en dos meses, y su remisión á San José se hará por el jefe del depósito á solicitud escrita del consignatario.

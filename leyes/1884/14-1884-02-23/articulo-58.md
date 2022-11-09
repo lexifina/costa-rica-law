@@ -1,1 +1,0 @@
-Art. 58.-También serán sometidos á cuarentena de observación de tres á cuatro días, los buques procedentes de países rayanos de los infestados de cólera morbo asiático, viruelas y fiebre amarilla, que notoriamente estén expuestos al contagio.

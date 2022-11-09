@@ -1,1 +1,0 @@
-Art. 3°-Las personas que quieran internar sus mercaderías a la Áduana de Carrillo, sin que se tengan en el Depósito, pueden pedir al Ádministrador, tan luego como sean descargadas en el muelle, que tome nota de ellas y las remita en carros Cerrados y sellados.

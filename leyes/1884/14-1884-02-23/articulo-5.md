@@ -1,1 +1,0 @@
-Art. 5°-Los avisos de que trata el artículo anterior, serán dados en la forma ya establecida, ó en la que posteriormente se establezca, de conformidad con los nuevos inventos para trasmitir la palabra.

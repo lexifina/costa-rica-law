@@ -1,1 +1,0 @@
-Art. 15.-AI llegar el tren á Carrillo, el jefe del depósito, acompañado del resguardo, procederá á examinar el estado del marchamo de los carros, y si fuere hora competente para descargar, procederá á la apertura de dichos carros.

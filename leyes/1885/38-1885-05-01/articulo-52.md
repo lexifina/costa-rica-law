@@ -1,1 +1,0 @@
-Art. 52.-Consignado el precio, el Juez otorgará de oficio escritura de venta al rematario. Sino hubiere título inscrito á favor del ejecutado, el actor tiene personalidad bastante para practicar las diligencias que sean precisas hasta obtenerlo.

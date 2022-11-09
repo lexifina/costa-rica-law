@@ -1,1 +1,0 @@
-Artículo 64.-Todo profesor está obligado á llevar un libro privado en el cual anotará sucesivamente las tesis que comprendan las lecciones y conferencias que desarrolle en su curso, debiendo presentarlo al Consejo Superior cuando éste lo disponga.

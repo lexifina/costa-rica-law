@@ -1,1 +1,0 @@
-Art. 69. Si á bordo del buque hubiere enfermos, y ellos ó el capitán pidieren asistencia médica, se les prestará por el médico de sanidad, valiéndose éste de todas las precauciones que las circunstancias del caso aconsejen.

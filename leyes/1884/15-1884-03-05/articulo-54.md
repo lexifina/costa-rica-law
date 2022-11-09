@@ -1,1 +1,0 @@
-Art. 54.-Es correspondencia oficial y por tanto exenta de porte, la del Presidente de la República y los Secretarios de Estado, la de los empleados entre sí, civiles ó militares, cuando tengan por objeto el servicio público; y finalmente, las cartas de Obispo de esta Diócesis, siempre que lleven el sello del Obispado.

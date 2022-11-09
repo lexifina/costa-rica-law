@@ -1,1 +1,0 @@
-Art. 14.-El tercer jefe llevará un libro de ajustamiento de tropas y raciones diarias, y remitirá al segundo jefe copia del presupuesto de. pre, raciones de tropas, etc., y de la lista de comisario, con el V° B° del 2° jefe.

@@ -1,1 +1,0 @@
-Art. 103.-Los buques que lleguen antes de las seis de la mañana, y después de las seis de la tarde, no podrán ser visitados por ninguna embarcación, sino en los siguientes casos: llegada de correos, naufragio, y arribada forzosa.

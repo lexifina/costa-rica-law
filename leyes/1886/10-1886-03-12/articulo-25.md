@@ -1,1 +1,0 @@
-Art. 25.-Los alumnos que después de los catorce años quieran seguir asistiendo á la escuela, podrán hacerlo en calidad de auxiliares del maestro, siempre que para ello obtengan permiso del Inspector provincial.

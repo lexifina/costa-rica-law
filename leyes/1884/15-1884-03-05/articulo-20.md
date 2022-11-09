@@ -1,1 +1,0 @@
-Art. 20.-Ningún correo podrá conducir cartas ni encomiendas de ninguna especie, que no le sean entregadas por alguna Administración de correos, donde se haya pagado el porte correspondiente con arreglo á tarifa.

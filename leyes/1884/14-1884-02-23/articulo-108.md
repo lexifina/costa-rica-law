@@ -1,1 +1,0 @@
-Art. 108.-No obstante las anteriores prohibiciones, durante el tiempo del embarque del café será permitido á los botes, lanchas y ancones en que tal operación se practica, salir fuera de puerto para ese fin, pero con previa licencia del jefe del Resguardo.

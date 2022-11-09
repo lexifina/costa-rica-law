@@ -1,1 +1,0 @@
-Art. 17.-El uniforme de la Caballería será igual al de la Infantería, con la diferencia de que los vivos y aros de los kepis, que en ésta deben ser encarnados, en aquella deben ser blancos; y los galones, trencillas, charreteras y bordados que en la Infantería son de oro, en la Caballería serán de plata.

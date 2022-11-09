@@ -1,1 +1,0 @@
-Art.3°-Saprímese la Aduana de registro de la población de Carrillo, y establécese en la misma población un depósito general de mercaderías á cargo de un jefe, que lo será á la vez del resguardo fijo establecido por la ley.

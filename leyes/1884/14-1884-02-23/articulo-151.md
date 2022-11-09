@@ -1,1 +1,0 @@
-Art. 151.-Siempre que el Capitán del puerto juzgue que un buque costarricense está en peligro de romper amarras, por defecto de anclas ó de cables, lo advertirá al capitán y al dueño, ó al consignatario en defecto del último.

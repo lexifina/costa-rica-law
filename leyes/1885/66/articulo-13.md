@@ -1,1 +1,0 @@
-Art. 13.-El derecho para cobrar un giro postal prescribe los seis meses, contados desde la fecha de su expedición. En consecuencia, los que no hayan sido cobrados en el término expresado perder n su validez, y su importe quedar á favor del Tesoro Público.

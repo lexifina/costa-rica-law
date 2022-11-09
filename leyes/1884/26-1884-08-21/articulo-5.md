@@ -1,1 +1,0 @@
-Art. 5°-Los Alcaides anotarán la entrada con la descripción de las marcas, contramarcas y números de los bultos, tomados previamente del manifiesto general del buque. Los consignatarios ó sus agentes presenciarán también la descarga haciendo igual anotación.

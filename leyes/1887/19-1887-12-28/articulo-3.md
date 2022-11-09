@@ -1,1 +1,0 @@
-Art. 3°-Toda persona tendrá derecho de presentarse á examen ante cualquier establecimiento nacional de enseñanza secundaria, debiendo sujetarse en todo á los programas y reglamentos de los respectivos establecimientos.
