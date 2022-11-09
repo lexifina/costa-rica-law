@@ -1,4 +1,6 @@
+(Derogado)
 N° 1965
+(Esta norma fue derogada por el artículo 1° inciso 9) de la ley N° 10290 del 20 de setiembre del 2022 "Derogatoria de Leyes Caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (IX Parte Energía)
 LA SAMBLEA LEGISLATIVA DE LA REPÚBLICA
 DE COSTA RICA,
 DECRETA:

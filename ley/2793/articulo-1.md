@@ -1,4 +1,6 @@
+(Derogado)
 N° 2793
+(Esta norma fue derogada por el artículo 1° inciso 24) de la ley N° 10290 del 20 de setiembre del 2022 "Derogatoria de Leyes Caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (IX Parte Energía)
 LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA,
 Decreta:
 Artículo 1°.- Autorizase a la Corporación Municipal del cantón de Abangares, provincia de Guanacaste, a destinar la suma de ciento veinte mil quinientos colones (₵120.500.00), para mejorar las instalaciones que suministran electricidad a la ciudad de Las Juntas, distrito primero del mismo cantón.
