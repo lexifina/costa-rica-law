@@ -1,1 +1,0 @@
-Art. 8°. -Contestada afirmativamente por el jurado la pregunta, antes referida, el Juez, fundado en el veredicto de acusación y en las leyes respectivas, dictará auto motivado de prisión, y sustanciará el plenario conforme á las leyes vigentes.

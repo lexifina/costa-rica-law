@@ -1,1 +1,0 @@
-Artículo 11.- El nombramiento de Director, Jefes de sección, Maestros y Profesores, corresponde al Ministerio de Instrucción Pública. Los Capataces y demás empleados y operarios, serán nombrados por el Director.

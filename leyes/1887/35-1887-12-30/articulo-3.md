@@ -1,1 +1,0 @@
-Art. 3°-Cuando el ejercito se hallare en campaña, el Jefe de todo cuerpo ó columna que deba operar con independencia, encargará del servicio del Registro a un oficial, el cual se sujetará alas prescripciones legales para inscribir provisionalmente los actos civiles que ocurran.

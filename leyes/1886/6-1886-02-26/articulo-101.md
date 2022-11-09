@@ -1,4 +1,0 @@
-Artículo 101.—Pasado el dicho término, la Junta de detalle, con presencia de las observaciones que se hubieren presentado, confirmará o reformará el detalle, pudiendo fijar si lo estimare conveniente y para mayor comodidad del contribuyente, el número de partes en que ha de dividirse la cuota señalada para su pago, y las fechas en que deban verificarse los pagos.
-Si el interesado no se conformara con lo resuelto por la Junta, podrá apelar de la resolución en el acto de notificársele o dentro cíe los tres días posteriores a la notificación. La Junta admitirá la apelación y enviará los documentos del caso a la Secretaría de Educación, la cual conocerá del recurso y lo resolverá, sin que la tramitación de la alzada suspenda el cobro del detalle, salvo en lo que se refiere a la parte apelante.
-Las rentas que por esta ley se perciban serán depositadas en las Tesorerías escolares respectivas.
-(Así reformado por el artículo único de la ley N° 54 del 5 de agosto de 1936)

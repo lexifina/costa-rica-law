@@ -1,1 +1,0 @@
-Art. 6°. -Si el jurado creyere conveniente mandar tomar una prueba, entonces se abstendrá de resolver la pregunta y devolverá el proceso al Juez, con la indicación para que se reciba, debiendo volver reunirse el día y hora que el expresado funcionario cite de antemano.

@@ -1,1 +1,0 @@
-Art. 11-La Universidad será, desde la publicación de este decreto, la única autoridad competente en la República, para el conferimiento de cualquier grado académico. Lo será igualmente para el de los títulos periciales á que se contrae el capítulo XIII del reglamento de 1° de abril de 1875.

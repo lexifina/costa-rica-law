@@ -1,1 +1,0 @@
-ART. 73.-Los reembolsos anticipados procedentes de siniestros, no dan derecho á la indemnización que menciona el penúltimo párrafo del artículo sesenta y seis. Si la Sociedad estimare que por consecuencia de un siniestro están comprometidas sus garantías, puede exigir el pago de lo que se le deba por saldo.

@@ -1,1 +1,0 @@
-Art. 4°-Nómbrese por el Secretario de Estado en los Despachos de Hacienda y Comercio, un Comisario para que inmediatamente proceda a examinar con minuciosidad los negocios del referido Banco, á verificar las existencias en caja y la de todos los documentos de seguridad; debiendo, cuanto antes, informar al mismo Secretario de Estado, sobre el examen que verificare.

@@ -1,1 +1,0 @@
-Art. 87.—Para abrir los libros tendrá presente el inventario general de materiales firmado por duplicado por él y por el ingeniero de Trabajos. Un tanto del inventario quedará en el Depósito y el otro pasará á los Archivos de la Dirección General.

@@ -1,1 +1,0 @@
-Art. 12.-El precio que produzca la venta, después de deducir los gastos, pertenece á la sociedad y se aplica á lo que debe el accionista en retraso, quedando éste responsable de la diferencia, si hubiere déficit, pero aprovechando, al contrario, el sobrante, si éste existiese.

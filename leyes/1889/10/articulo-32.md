@@ -1,1 +1,0 @@
-Artículo 32.-Para poder entrar á las Escuelas de Derecho y de Medicina, los estudiantes están obligados á seguir durante un año cierto número de cursos de ciencias y de letras, según el plan que se adopte en el Reglamento.

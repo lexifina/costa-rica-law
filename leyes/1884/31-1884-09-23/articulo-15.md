@@ -1,1 +1,0 @@
-Art. 15.-El Tenedor de Libros está inmediatamente subordinado al Contador General del Supremo Gobierno, de quien recibirá órdenes é instrucciones, y estará en inmediata conexión con el Ministerio de Hacienda. Es, por lo mismo, independiente del Superintendente y del Administrador.

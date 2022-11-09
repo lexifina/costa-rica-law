@@ -1,1 +1,0 @@
-Art. 37-Todos los oficiales del Ejército cumplirán y harán cumplir estrictamente este Reglamento, y tendrán jurisdicción para corregir cualquier contravención que sus inferiores cometieren, sea cual fuere la plaza 6 guarnición á que pertenezcan.

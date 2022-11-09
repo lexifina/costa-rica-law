@@ -1,1 +1,0 @@
-Artículo 14.—Cuando sea absolutamente indispensable al concesionario ocupar temporalmente por sí ó por sus empleados propiedades particulares para pasar á un lugar donde haya materiales de construcción, propios de la empresa ó nacionales, el concesionario puede exigir que se le dé paso en la forma necesaria, obligándose á pagar los perjuicios que ocasione.

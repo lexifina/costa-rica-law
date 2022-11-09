@@ -1,1 +1,0 @@
-Art. 3°-Toda subvención y todo sueldo en los establecimientos á que se refiere el artículo 10, inclusa la dotación de los Inspectores de escuelas, que- dan reducidos á la mitad durante los meses de enero y febrero.

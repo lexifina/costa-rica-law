@@ -1,1 +1,0 @@
-Art.15. –La persona que ocupe algún empleo de los creados por el presente Decreto, tiene derecho á conservarlo por el tiempo de su buen desempeño, á juicio del superior de quien hubiere procedido el nombramiento.

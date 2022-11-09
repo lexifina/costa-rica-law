@@ -1,1 +1,0 @@
-Art. 5° Tiene acceso á la, academia de la provincia, toda persona que en cualquier punto de ésta tenga á su cargo alguna escuela pública de primera ensenanza, y toda la que desempeñase el oficio de ayudante en ella. Tiene tambien acceso todo joven.

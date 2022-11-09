@@ -1,1 +1,0 @@
-Art. 10,-No es permitido que los carros, carretas ó bestias permanezcan al frente de las bodegas del Ferro-carril en Río Sucio, más tiempo que el estrictamente necesario para la carga ó descarga. Los conductores de tales vehículos, que contravinieren a esta disposición, incurrirán en una multa de uno á cinco pesos.

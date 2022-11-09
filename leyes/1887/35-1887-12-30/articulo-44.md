@@ -1,2 +1,0 @@
-Art. 44.-Los que contraigan matrimonio católico deben presentar al funcionario encargado del Registro en su respectiva jurisdicción, en el término de veinte días contados desde su celebración, certificado de la partida de matrimonio firmada por el párroco que lo haya celebrado.
-Tratándose de matrimonios católicos celebrados en la capital de la República, las certificaciones se presentarán directamente al Registro Central.

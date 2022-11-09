@@ -1,1 +1,0 @@
-Art. 57.-Concluidos los tres primeros años de estudios, los alumnos que hubieren obtenido aprobación serán elevados á la categoría de Alféreces ó Subtenientes; y trascurrido el cuarto año se les conferirá el grado de Tenientes, si fueren aprobados en los exámenes respectivos.

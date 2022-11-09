@@ -1,1 +1,0 @@
-Art. 8º—Si dentro de veintisiete meses después de la aprobación de este contrato, dada por el Poder Legislativo, el concesionario no avisare al Gobierno que tiene reunido y disponible el capital que exija la construcción del ferrocarril, caducará de hecho la concesión.

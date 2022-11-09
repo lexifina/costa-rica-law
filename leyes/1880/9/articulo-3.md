@@ -1,1 +1,0 @@
-Art. 3°Se destina para el pago de las cantidades designadas, la suma de tres millones ciento setenta y cuatro mil cincuenta y un pesos, diez centavos ($3.164,051-10) á que asciende el Presupuesto General de Ingresos para el presente año económico, según el respectivo detalle.

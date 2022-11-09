@@ -1,1 +1,0 @@
-Art. 31.-Recibida la votación, el Presidente llamará á toque de campanilla la concurrencia, y si el sustentante hubiere obtenido por unanimidad de votos la superior calificación, lo anunciará en alta voz á la misma reunión, á presencia del examinado.

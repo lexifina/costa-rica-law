@@ -1,1 +1,0 @@
-Art. 6° -La amortización le las cédulas al portador, se verificará por sorteos trimestrales, tomando por base el producto de la venta de los «Billetes de Aduana", destinado al pago del capital é intereses representados por los números premiados, hasta la suma expresada de $500,000 (quinientos mil pesos) cada año.

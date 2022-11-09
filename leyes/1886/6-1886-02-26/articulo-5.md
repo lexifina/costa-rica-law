@@ -1,2 +1,0 @@
-Art. 5.—El niño de 8 á 15 años (*) de edad ha de frecuentar la escuela primaria pública ó privada, ó recibir en el hogar la instrucción elemental obligatoria, hasta el momento en que la Junta local de Educación conceda la licencia de retiro, previo examen en que se compruebe que el alumno ha alcanzado el mínimun de los conocimientos prescritos.
-(*)(Así reformado el rango de edad anterior por el artículo 2° de la ley N° 15 del 21 de setiembre de 1923)

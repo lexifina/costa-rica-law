@@ -1,1 +1,0 @@
-Artículo 5°.- El Defensor tendrá personalidad bastante para representar judicialmente los intereses de la sucesión, y administrará los bienes de ésta con las facultades y obligaciones de los albaceas.

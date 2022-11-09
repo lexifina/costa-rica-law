@@ -1,1 +1,0 @@
-Art. 2°-La oposición estará abierta durante la primera quincena del mes de enero, para que los maestros titulares que tengan a bien hacerlo, lo verifiquen por escrito ante el Secretario de Instrucción Pública, quien, con la oportunidad debida, expedirá la respectiva convocatoria.

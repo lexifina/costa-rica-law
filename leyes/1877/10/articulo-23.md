@@ -1,1 +1,0 @@
-ARTÍCULO 23.-Cada Secretario de estado pasará al fin del mes al de Hacienda, el presupuesto de gastos para el mes siguiente. Todo gasto ó sueldo que no figure en ese presupuesto, no será cubierto sino hasta el mes inmediato, siempre que haya sido incluido en el respectivo presupuesto, como se ha indicado.

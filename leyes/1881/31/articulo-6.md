@@ -1,1 +1,0 @@
-ART. 6°. -La duración de la Sociedad es de 50 años, contado desde el día en que principie sus operaciones, y su domicilio se establece en París. La Sucursal establecida en Costa-Rica, se considerará domiciliada en San José, capital de dicha República, donde tendrá su asiento.
