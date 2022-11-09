@@ -1,4 +1,6 @@
+(Derogado)
 N°1517
+(Esta norma fue derogada por el artículo 1° inciso 1) de la ley N° 10290 del 20 de setiembre del 2022 "Derogatoria de Leyes Caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (IX Parte Energía)
 LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA
 Considerando
 1º.- Que el problema eléctrico en las regiones servidas por las Compañías de Cartago, Puntarenas, Turrialba y Limón, ha venido agudizándose día con día, trayendo ello como consecuencia un estancamiento en las actividades de esas regiones y consecuentemente perjuicios para la economía nacional.
