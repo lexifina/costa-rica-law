@@ -1,0 +1,35 @@
+INSTITUTO COSTARRICENSE DE ELECTRICIDAD
+CONSEJO DIRECTIVO
+El Consejo Directivo del Instituto Costarricense de Electricidad aprobó en el artículo 6 del Capítulo III de la Sesión 6546 del 27 de setiembre del 2022, la siguiente reforma al Reglamento Interno del Comité de Estrategia
+Aprobar la reforma parcial de los artículos 12, 16 y 25 del Reglamento Interno del Comité de Estrategia, los cuales se leerán de la siguiente forma:
+"Artículo 12º- Funciones de la Presidencia del Comité.
+Corresponderá a la Presidencia del Comité de Estrategia, establecer el orden del día y dirigir las sesiones presenciales y/o virtuales, así como garantizar el debate de los temas que se pongan a consideración del Comité, promoviendo la participación activa de los demás miembros y asistentes. Tendrá voto decisorio en caso de empate. Si por razones justificadas, el Presidente (a) del Comité no pudiera concurrir a la sesión respectiva, podrá designar a uno de los otros miembros del Comité, para que lo sustituya temporalmente.
+Si por motivos de fuerza mayor, no pudiera hacer tal designación, corresponderá a los demás miembros, designar entre ellos quien presida la sesión.
+Corresponderá a la Presidencia del Comité presentar ante el Consejo Directivo las recomendaciones del Comité sobre los asuntos y temas analizados por el mismo."
+"Artículo 16°- De las sesiones virtuales.
+El Comité de Estrategia podrá sesionar de forma virtual, por cualquier medio tecnológico que garantice que haya interacción integral, multidireccional y en tiempo real entre sus miembros y todos aquellos que participen de la sesión. Las sesiones virtuales están sujetas a los mismos principios de quórum, convocatoria, colegialidad, simultaneidad, integralidad, deliberación y acuerdo, para la formación de la voluntad colegiada.
+Las sesiones virtuales deberán ser convocadas por la Secretaría del Comité con el aval de la Presidencia.
+Para la realización de sesiones virtuales, tanto ordinarias como extraordinarias, la Secretaría del Comité, con el apoyo de las correspondientes instancias administrativas y de tecnologías de información, pondrá a disposición de los miembros del Comité una plataforma tecnológica, que será la sede virtual, que permita dar cumplimiento a las disposiciones de este Reglamento referidas a la seguridad y confidencialidad de la información, que garanticen su privacidad, inmediatez y formalidad.
+La solución tecnológica debe garantizar al menos, los siguientes aspectos fundamentales, sin perjuicio de los otros dispuestos por órganos técnicos institucionales competentes:
+1. Autenticidad e integridad de la voluntad del Órgano Colegiado y de todos los asistentes a la sesión respectiva.
+2. Transmisión simultánea de audio, video y datos.
+3. Disponibilidad de las herramientas e infraestructura tecnológica.
+4. Conservación documental y digital de lo actuado y comentado en la sesión respectiva.
+5. Plena y exacta identificación de las personas que están sesionando virtualmente.
+6. No alteración de la comunicación ni del contenido mismo de la transmisión telemática.
+7. Compatibilidad de los medios tecnológicos utilizados para su realización.
+8. Plataforma tecnológica oficializada por parte del órgano rector del ICE, en esta materia.
+9. Facilidades de la grabación de la sesión.
+El equipo de apoyo secretarial, deberá mantener una estricta y permanente vigilancia sobre los participantes, invitados y otros ingresos a la plataforma tecnológica, de tal manera que se preserve la integridad y seguridad de las sesiones. En el momento que se identifique el acceso de personas no invitadas debe alertarse el Comité y detenerse la sesión.
+Para la realización de sesiones virtuales, los miembros del Comité deberán asegurar que en el lugar donde se encuentren tienen los medios tecnológicos necesarios para el desarrollo de la misma, así como los mecanismos de seguridad y confidencialidad que garanticen su privacidad, inmediatez y formalidad. Además, deberán coordinar con la Secretaría con el tiempo suficiente, previo a la hora de inicio de la sesión, para asegurar que cuentan con la funcionalidad de los equipos, requisitos técnicos de conectividad y seguridad mínimos establecidos por el área de TI y las condiciones necesarias para participar de forma segura en la sesión.
+Cuando alguno de los miembros del Comité requiera asistir virtualmente a la sesión ordinaria, deberá comunicarlo, por cualquier medio escrito, a la Presidencia del Comité y a la Secretaría, con al menos cuarenta y ocho horas (48 horas) de anticipación a la fecha de celebración de la respectiva sesión. Para el caso de las sesiones extraordinarias deberá comunicarlo al momento de recibir la convocatoria.
+Lo anterior excepto en casos de urgencia que se le presenten al miembro del comité ante lo cual deberá comunicarlo a la brevedad posible de previo al inicio de la sesión ordinaria o extraordinaria.
+Cuando por motivos técnicos se pierda la interacción en tiempo real entre los participantes en la sesión, superior a diez minutos, se considerará interrumpida la participación de los miembros que están participando virtualmente. Esta circunstancia deberá consignarse en el acta, no obstante, se mantendrá la sesión mientras permanezca el quórum mínimo requerido.
+La Secretaría coordinará una capacitación sobre el uso de las herramientas tecnológicas para los nuevos directores o participantes que así lo requieran."
+"Artículo 25°-De las actas.
+Se levantará un acta de cada sesión presencial o virtual, la cual contendrá el nombre de los miembros del Comité e invitados que asisten, el lugar, la fecha y hora de inicio y finalización, los asuntos de discusión, el resultado de la votación y los respectivos acuerdos. Cuando algún miembro del Comité quiera hacer constar su voto o hacer algún comentario en el acta respectiva lo señalará en el momento de su intervención, debiendo transcribirse literalmente lo indicado.
+En caso de que el Comité sesione virtualmente en el acta respectiva se dejará constancia de lo siguiente:
+1. La sesión se realiza de forma virtual.
+2. Indicación de los directivos y otros miembros que han atendido la sesión de forma virtual; así como el lugar donde se encuentran.
+3. Identificación del medio tecnológico empleado para la asistencia virtual y la compatibilidad con los equipos."
+San José, 18 de octubre 2022.
