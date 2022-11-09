@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO N° LI.
+(Esta norma fue derogada por el artículo 1°, inciso 319, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Sobre clausura de las sesiones del Congreso
 EL CONGRESO CONSTITUCIONAL DE LA REPÉBLICA DE
 COSTA-RICA,

@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO N° II
+(Esta norma fue derogada por el artículo 1°, inciso 150, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Exime de los derechos de importación, los artículos que se introduzcan para la elaboración de minas; y del servicio militar y de todo cargo concejil, á las personas empleadas en esta industria.
 TOMÁS GUARDIA.
 GENERAL DE DIVISIÓN Y PRESIDENTE DE LA REPÚBLICA DE COSTA -RICA

@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO N° XXXIV
+(Esta norma fue derogada por el artículo 1°, inciso 233, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Manda a la presentación de que habla el artículo 1° del decreto número
 XLVII del 2° de octubre de 73, sea hecho solamente por el Procurador General.
 EL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE COSTA-RICA.

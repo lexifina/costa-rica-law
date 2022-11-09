@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO N° V
+(Esta norma fue derogada por el artículo 1°, inciso 455, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Nombra al General Don A. de Jesús Soto Segundo Designado para ejercer el Poder Ejecutivo.
 EL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE COSTA RICA,
 En virtud de la renuncia admitida al Doctor Don José María Castro, y en uso de la atribución que le confiere la Fracción 8a, artículo 73 de la Constitución,

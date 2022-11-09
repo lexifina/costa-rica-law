@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO No V.
+(Esta norma fue derogada por el artículo 1°, inciso 535, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Hace concesiones á los señores Manau, Serra y Ca para establecer una fábrica de tejidos.
 LA COMISIÓN PERMANENTE DEL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE COSTA RICA,
 En uso de la atribución que le confiere la fracción 42, artículo 94 de la Constitución,

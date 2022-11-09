@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO No XI.
+(Esta norma fue derogada por el artículo 1°, inciso 422, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Aprueba el contrato celebrado con el Banco de la Unión para la administración de las rentas nacionales, etc.
 LA COMISIÓN PERMANENTE,
 En uso de la atribución que le confiere la fracción 4a, artículo 94 de la Constitución,
@@ -38,7 +40,7 @@ El Banco cobrará por el servicio de la administración principal, el cuarto por
 XIV.
 El Gobierno de la República se obliga á depositar en el Banco de la Unión, para su cobro, los pagarés ó pólizas de aduanas y demás valores á favor del Tesoro Nacional, y se devolverán al Ministerio de Hacienda los documentos que no se hicieren efectivos.
 XV.
-Como compensación de las facultades concedidas al Banco de la Unión por el presente contrato, se obliga él mismo á prestar al Gobirno la suma de doscientos cincuenta mil pesos ($ 250,000) de los cuales tiene ya recibidos, según convenio anterior, la cantidad de ciento veinte mil pesos (120,000).— También se obliga á recoger y pagar los billetes al portador que en esta fecha tiene el Gobierno en circulación, cuyo importe asciende á seiscientos mil pesos ($600,000).
+Como compensación de las facultades concedidas al Banco de la Unión por el presente contrato, se obliga él mismo á prestar al Gobirno la suma de doscientos cincuenta mil pesos ($ 250,000) de los cuales tiene ya recibidos, según convenio anterior, la cantidad de ciento veinte mil pesos (120,000).- También se obliga á recoger y pagar los billetes al portador que en esta fecha tiene el Gobierno en circulación, cuyo importe asciende á seiscientos mil pesos ($600,000).
 Los plazos, premios, garantías, y demás términos de estas negociaciones, son objeto de convenios especiales entre el Ministerio de Hacienda y el Banco.
 XVI.
 Mientras dure el presente contrato, el Gobierno no podrá emitir billetes del Tesoro Nacional al portador, é inutilizará los cuadernos de papel moneda que posee.

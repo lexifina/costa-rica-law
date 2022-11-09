@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO N° III.
+(Esta norma fue derogada por el artículo 1°, inciso 260, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Concede à los Señores Cornelio y José Monge 60 caballerías en los baldíos
 de Santa María de Dota, si estos Señores abren un camino entre este punto y el rio General.
 LA HONORABLE COMISIÓN PERMANENTE,

@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO N° XXXIII
+(Esta norma fue derogada por el artículo 1°, inciso 232, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Autoriza al Poder Ejecutivo para que arregle el pago de la deuda interior
 EL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE COSTA RICA
 Considerando

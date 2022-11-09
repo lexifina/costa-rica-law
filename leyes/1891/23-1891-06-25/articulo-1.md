@@ -1,5 +1,7 @@
+(Derogado)
 DECRETO No XXIII.
 (de 25 de Junio).
+(Esta norma fue derogada por el artículo 1°, inciso 912, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Declara legalmente electos á unos Diputados.
 EL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE COSTA RICA,
 Examinada la elección practicada el día 19 del mes en curso por la Asamblea Electoral de la provincia de Alajuela,

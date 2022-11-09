@@ -1,5 +1,7 @@
+(Derogado)
 DECRETO No XXIX.
 (de 20 de mayo.)
+(Esta norma fue derogada por el artículo 1°, inciso 796, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Aprueba el decreto en que eleva la pensión del Sargento Mayor don Rafael D. Ruiz emitido por la Comisión Permanente.
 EL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE COSTA RICA,
 En uso de sus atribuciones constitucionales,

@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO N° III.
+(Esta norma fue derogada por el artículo 1°, inciso 350, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Establece el monopolio del tabaco.
 LA COMISIÓN PERMANENTE,
 A iniciativa del Supremo Poder Ejecutivo, de conformidad con la atribución 4 del artículo 94 de la Constitución, y

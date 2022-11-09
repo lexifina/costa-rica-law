@@ -1,4 +1,6 @@
-Decreto N°XXVIII.
+(Derogado)
+Decreto N° XXVIII.
+(Esta norma fue derogada por el artículo 1°, inciso 386, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Asigna á Don Tadeo Gómez una pensión.
 EL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE
 COSTA-RICA,

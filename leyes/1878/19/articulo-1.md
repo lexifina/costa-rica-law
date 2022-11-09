@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO N° XIX
+(Esta norma fue derogada por el artículo 1°, inciso 44, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Fija el número de acciones que habilita al accionista del Banco Nacional para ser miembro de la Dirección General.
 TOMÁS GUARDIA, General en jefe del Ejército y Presidente de Costa Rica.
 Por cuanto el Gran Consejo Nacional ha emitido el siguiente Decreto:

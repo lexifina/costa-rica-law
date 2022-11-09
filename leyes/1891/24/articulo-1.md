@@ -1,5 +1,7 @@
+(Derogado)
 DECRETO No XXIV.
 [de 25 de Junio].
+(Esta norma fue derogada por el artículo 1°, inciso 913, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Retira la concesión hecha al Banco de la Unión por decreto de 19 de Junio de 1888.
 EL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE COSTA RICA,
 En atención á que las concesiones excesivas hechas por la ley de 19 de Junio de 1888 á favor del ex-Banco de la Unión, hoy Banco de Costa Rica, perjudican los fundamentos positivos de la riqueza circulante y cierran la entrada á capitales nacionales ó extranjeros en la competencia regular de las transacciones, por la desigualdad económica que tales medidas producen en el mercado:

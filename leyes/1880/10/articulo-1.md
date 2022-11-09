@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO N° X.
+(Esta norma fue derogada por el artículo 1°, inciso 88, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Relatico à comprobación del cuerpo del delito de fabricación clandestina de aguardiente.
 TOMÁS GUARDIA
 GENERAL DE DIVISIÓN Y PRESIDENTE DE LA REPÚBLICA DE COSTA-RICA.

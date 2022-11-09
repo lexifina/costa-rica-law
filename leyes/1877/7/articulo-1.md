@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO VII.
+(Esta norma fue derogada por el artículo 1°, inciso 2, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Determina el territorio que goza de la franquicia en el Puerto de Limon.
 Vicente Herrera, Presidente de la República de Costa-Rica.
 Considerando: 1° que, al mismo tiempo que debe favorecerse la naciente poblacion del Limon, es indispensable tomar todas las precauciones correspondientes á fin de impedir la introduccion clandestina de mercaderías y artículos de monopolio fiscal en el interior de la República:2° que estas precauciones deben ser mayores, á proporcion que se facilite mas el tránsito con las mejoras que el camino recibe: 3° y finalmente, que las ventajas de la franquicia otorgada al Puerto de Limon, en nada se disminuye limitándola á solo la parte poblada. En uso de las facultades de que estoy investido, y previa consulta al Consejo de Estado, decreto:

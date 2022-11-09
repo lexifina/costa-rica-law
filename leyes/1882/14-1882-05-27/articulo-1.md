@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO N° XIV.
+(Esta norma fue derogada por el artículo 1°, inciso 159, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Pena la captura o persecución de los indígenas; y prohíbe la extracción de hule y demás productos naturales en los baldíos comprendidos entre San Carlos y Sapoá.
 TOMÁS GUARDIA
 GENERAL DE DIVISIÓN Y PRESIDENTE DE LA REPÉBLICA DE COSTA-RICA,

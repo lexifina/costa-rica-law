@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO NO XXVII.
+(Esta norma fue derogada por el artículo 1°, inciso 724, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 (de 19 de junio).
 Autoriza al Poder Ejecutivo para hacer los gastos que por parte de Costa Rica exija
 la demarcación de los límites con Nicaragua.

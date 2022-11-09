@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO N° XIX.
+(Esta norma fue derogada por el artículo 1°, inciso 216, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Concede 200 caballerías de tierras baldías a Don José María Figueroa y á Don Jesús Bonilla, si estos Señores construyen un camino de herradura, en el término de 4 años, entre Cartago y Boruca.
 EL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE COSTA-RICA
 Con presencia del memorial presentado por los Señores Don José María Figueroa y Don Jesús Bonilla; y en uso de la atribución 15°, artículo 73 de la Constitución,

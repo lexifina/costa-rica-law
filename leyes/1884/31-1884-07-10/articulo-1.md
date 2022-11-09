@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO No XXXI
+(Esta norma fue derogada por el artículo 1°, inciso 387, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Aprueba los actos del Ejecutivo expresados en la memoria correspondiente á la Secretaría de lo interior, &.
 EL CONGRESO CONSTITUCIONAL DE LA REBÚBLICA DE COSTA-RICA.
 Examinada la memoria con que ha dado cuenta el Honorable Señor Secretario de Estado en el Despacho de lo Interior, y en uso de la atribución 11, artículo 73 de la Constitución,

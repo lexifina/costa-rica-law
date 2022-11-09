@@ -1,5 +1,7 @@
+(Derogado)
 DECRETO No XXIII.
 (de 14 de Mayo).
+(Esta norma fue derogada por el artículo 1°, inciso 864, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Ordena á las Asambleas Electorales de la Provincia de Guanacaste el nombramiento de un Diputado suplente por la provincia dicha.
 EL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE
 COSTA RICA,

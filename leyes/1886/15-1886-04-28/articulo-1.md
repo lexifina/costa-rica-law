@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO No XV.
+(Esta norma fue derogada por el artículo 1°, inciso 547, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Fija las horas de despacho ordinario de las oficinas de Justicia.
 LA COMISIÓN PERMANENTE DEL CONGRESO CONSTITU- CIONAL DE LA REPÚBLICA DE COSTA RICA,
 Vista la necesidad de mejorar la Administración de Justicia haciendo que el despacho de los asuntos sea más rápido; y usando de la facultad que le confiere el inciso 4°, artículo 94 de la Constitución,

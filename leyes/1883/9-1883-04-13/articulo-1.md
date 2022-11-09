@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO N° IX.
+(Esta norma fue derogada por el artículo 1°, inciso 264, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Aplica al camino de Alajuela à San Ramón, $ 1,000 destinados à la Construcción de un puente.
 PRÓSPERO FERNÁNDEZ
 GENERAL DE DIVISIÓN Y PRESIDENTE CONSTITUCIONAL
@@ -11,4 +13,4 @@ Considerando:
 Que el articulo 2° de la ley de 17 de mayo de 1864 faculta al Ejecutivo para señalar las vías en que de preferencia debe invertirse el referido subsidio,
 DECRETA:
 Art. único. -Autorizase al Gobernador de la provincia de Alajuela para invertir la expresada suma de mil pesos à que se refiere el segundo considerando del presente decreto, en construcción del nuevo camino de Alajuela á San Ramón; debiendo dicho funcionario presentar las cuentas comprobadas a la Secretaría de Fomento
-Dado en el Palacio Presidencial en San José, á trece de abril de mil ochocientos ochenta y ochenta y tres. P. FERNANDEZ. – El Secretario de Estado en el Despacho de Fomento. BERNARDO SOTO.
+Dado en el Palacio Presidencial en San José, á trece de abril de mil ochocientos ochenta y ochenta y tres. P. FERNANDEZ. - El Secretario de Estado en el Despacho de Fomento. BERNARDO SOTO.

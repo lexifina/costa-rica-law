@@ -1,5 +1,7 @@
+(Derogado)
 DECRETO No LX.
 (de 24 de Julio).
+(Esta norma fue derogada por el artículo 1°, inciso 883, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Prorroga el contrato Soto-Keith para la terminación del ferrocarril entre Cartago y Reventazón, hasta el 31 de Diciembre del presente año.
 EL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE COSTA RICA,
 En vista de las razones expuestas por el señor Minor C. Keith,

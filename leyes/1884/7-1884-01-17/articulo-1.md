@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO No VII.
+(Esta norma fue derogada por el artículo 1°, inciso 346, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Admite la renuncia del cargo de Secretarios de Estado á los Generales Don Victor y Don Miguel Guardia.
 PROSPERO FERNÁNDEZ,
 GENERAL DE DIVISIÓN Y PRESIDENTE CONSTITUCIONAL DE LA

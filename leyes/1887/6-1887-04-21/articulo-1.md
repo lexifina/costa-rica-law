@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO N°. VI.
+(Esta norma fue derogada por el artículo 1°, inciso 639, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 (Se respeta la ortografía y gramática del texto, tal y como fue publicado originalmente.)
 (de 21 de abril).
 Deroga algunos artículos del Código Penal y modifica otros.

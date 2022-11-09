@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO No XIV.
+(Esta norma fue derogada por el artículo 1°, inciso 515, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Asigna una pensión al Licdo don Juan R. Mata.
 LA COMISIÓN PERMANENTE DEL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE COSTA-RICA,
 En atención á los dilatados é importantes servicios que el Licenciado don Juan Rafael Mata ha prestado á la República, y en uso de la facultad que le confiere la fracción 4 del artículo 94 de la Constitución,

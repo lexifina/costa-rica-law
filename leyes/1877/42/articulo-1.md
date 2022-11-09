@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO XLII.
+(Esta norma fue derogada por el artículo 1°, inciso 23, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Expide la ley de garantías.
 Tomás Guardia. General en Jefe del Ejército y Presidente Provisorio de la República de Costa Rica.
 Por cuanto el Gran Consejo Nacional ha expedido el Decreto siguiente:

@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO N° XI.
+(Esta norma fue derogada por el artículo 1°, inciso 156, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Habilita à los Ingenieros y Agrimensores extranjeros, para el efecto las medidas de los lotes de Santa Clara,
 TOMÁS GUARDIA,
 GENERAL DE DIVISIÓN Y PRESIDENTE DE LA REPÉBLICA DE COSTA-RICA.

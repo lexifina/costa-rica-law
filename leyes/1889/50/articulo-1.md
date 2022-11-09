@@ -1,5 +1,7 @@
+(Derogado)
 DECRETO No L.
 (de 11 de julio.)
+(Esta norma fue derogada por el artículo 1°, inciso 816, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Referente á la elección de los diputados para el periodo que principia en mayo de 1890.
 EL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE COSTA RICA,
 Considerando:

@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO N° XXII.
+(Esta norma fue derogada por el artículo 1°, inciso 120, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Suspende los efectos del decreto de 14 de abril del año en curso, relativo à destilación de aguardiente.
 SALVADOR LARA,
 DESIGNADO EN EJERCICIO DEL PODER EJECUTIVO DE LA REPÚBLICA DE COSTA-RICA.

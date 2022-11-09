@@ -1,5 +1,7 @@
+(Derogado)
 DECRETO No XVII.
 (de 30 de abril.)
+(Esta norma fue derogada por el artículo 1°, inciso 786, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Admite á los señores don Manuel J. Jiménez, Licenciado don Máximo Fernández y General don A. de Jesús Soto, sus renuncias de las Secretarías de Estado en los despachos de Relaciones Exteriores, Gobernación y Guerra, que respectivamente desempeñaban.
 BERNARDO SOTO,
 PRESIDENTE DE LA REPÚBLICA DE COSTA RICA,

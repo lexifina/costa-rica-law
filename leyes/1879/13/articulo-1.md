@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO N° XIII
+(Esta norma fue derogada por el artículo 1°, inciso 72, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Aumenta las penas à los contrabandistas en tabaco ó aguardiente.
 TOMÁS GUARDIA,
 GENERAL EN JEFE DEL EJÉRCTTO Y PRESIDENTE DE LA RÚBLICA DE COSTA-RICA.

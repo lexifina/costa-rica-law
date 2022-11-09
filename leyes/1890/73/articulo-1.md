@@ -1,5 +1,7 @@
+(Derogado)
 DECRETO No LXXIII.
 (de 18 de Octubre.)
+(Esta norma fue derogada por el artículo 1°, inciso 893, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Aprueba un contrato celebrado por el señor Secretario de Estado en el despacho de Fomento y don Juan Rafael Mata, para la construcción de un Teatro provisional en esta capital.
 LA COMISIÓN PERMANENTE
 DEL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE COSTA RICA,

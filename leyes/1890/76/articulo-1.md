@@ -1,5 +1,7 @@
+(Derogado)
 DECRETO No LXXVI.
 (de 19 de Noviembre).
+(Esta norma fue derogada por el artículo 1°, inciso 896, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Ordena á las Juntas Electorales de provincia y comarca pro cedan á la reposición de las elecciones de primer grado en algunos lugares de la República.
 LA COMISION PERMANENTE
 DEL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE COSTA RICA,

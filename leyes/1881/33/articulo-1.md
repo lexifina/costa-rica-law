@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO N° XXXIII.
+(Esta norma fue derogada por el artículo 1°, inciso 129, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Somete la Instrucción pública á la inspección y vigilancia del Poder Ejecutivo; crea un Consejo de Enseñanza y dicta otras disposiciones referentes á esta.
 SALVADOR LARA,
 DESIGNADO EN EJERCICIO DEL PODER EJECUTIVO DE LA

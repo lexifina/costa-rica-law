@@ -1,5 +1,7 @@
+(Derogado)
 DECRETO No LXI.
 (de 26 de Julio).
+(Esta norma fue derogada por el artículo 1°, inciso 938, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Destina el cinco por ciento de las rentas de la Aduana de Limón á la mejora de los caminos públicos y de los puertos de Limón y Puntarenas.
 EL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE COSTA RICA,
 Considerando:

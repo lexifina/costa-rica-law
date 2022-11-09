@@ -1,5 +1,7 @@
+(Derogado)
 DECRETO No XX.
 (de 19 de Junio).
+(Esta norma fue derogada por el artículo 1°, inciso 910, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Ordena se dé una cantidad en pago de servicios prestados al Ejército Nacional.
 EL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE
 COSTA RICA,

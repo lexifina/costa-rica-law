@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO N° XXXIII.
+(Esta norma fue derogada por el artículo 1°, inciso 322, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Dispone que los pedimentos á la Aduana se hagan por duplicado, cuando ocurra el caso previsto por el articulo 3°. del decreto número 11 de 6 de agosto del corriente año
 PRÓSPERO FERNÁNDEZ
 GENERAL DE DIVISION Y PRESIDENTE CONSTITUCIONAL

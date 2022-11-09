@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO NO XLVII.
+(Esta norma fue derogada por el artículo 1°, inciso 406, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Acepta la renuncia del diputado Don Carlos Cabezas, y dispone su reposición.
 EL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE COSTA-RICA,
 En uso de la atribución 3°, artículo 73 de la Constitución,

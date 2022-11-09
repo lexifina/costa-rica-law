@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO N° XXIII
+(Esta norma fue derogada por el artículo 1°, inciso 382, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Deroga la ley de franquicia del puerto de Limón.
 EL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE COSTA- RICA,
 Considerando que la ley de 22 de mayo de 1883 no ha producido los resultados que de ella se esperaban, y sí graves perjuicios á la renta de aduana y al comercio en general: que destina esta renta al pago de la deuda interior, su pronta cancelación interesa vivamente al país,

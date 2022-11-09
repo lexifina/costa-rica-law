@@ -1,6 +1,8 @@
+(Derogado)
 DECRETO N° XLII.
 (de 11 de junio)
-Funda el “Instituto Físico -geográfico”
+(Esta norma fue derogada por el artículo 1°, inciso 808, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
+Funda el "Instituto Físico -geográfico"
 ASCENSIÓN ESQUIVEL
 DESIGNADO EN EL EJERCICIO DE LA PRESIDENCIA DE LA REPÚBLICA
 Considerando:

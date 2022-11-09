@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO No III.
+(Esta norma fue derogada por el artículo 1°, inciso 530, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Exime del pago de derechos ciertos útiles para un hipódromo en Mata Redonda.
 LA COMISIÓN PERMANENTE DEL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE COSTA RICA,
 Considerando:

@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO NO XVIII.
+(Esta norma fue derogada por el artículo 1°, inciso 651, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 (de 22 de junio).
 Autoriza al Poder Ejecutivo para invertir hasta $ 3,000-00 en la redacción de un Código General Militar y Reglamentos respectivos.
 EL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE COSTA RICA.

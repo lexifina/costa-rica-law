@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO N° VII.
+(Esta norma fue derogada por el artículo 1°, inciso 220, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Ordena la traslación del presidio del Coco al de San Lucas, y dispone que se hagan las obras necesarias para dar salubridad á éste.
 PROSPERO FERNÁNDEZ
 GENERAL DE DIVISIÓN Y PRESIDENTE CONSTITUCIONAL DE LA REPÚBLICA DE COSTA RICA

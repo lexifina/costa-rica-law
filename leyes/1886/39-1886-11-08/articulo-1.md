@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO No XXXIX.
+(Esta norma fue derogada por el artículo 1°, inciso 618, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Encarga el despacho de las carteras de Guerra y Marina al Subsecretario don Pedro Pérez Z.
 A. DE JESÚS SOTO,
 GENERAL DE DIVISIÓN Y PRIMER DESIGNADO EN EJERCICIO DE

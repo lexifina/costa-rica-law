@@ -1,4 +1,6 @@
+(Derogado)
 ACUERDO No CL.
+(Esta norma fue derogada por el artículo 1°, inciso 616, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Traslada á la Subsecretaría de Guerra y Marina al Licenciado don Pedro Pérez Z.
 Secretaría de Guerra.
 Palacio Presidencial. -San José, 8 de noviembre de1886.

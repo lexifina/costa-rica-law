@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO N° VII
+(Esta norma fue derogada por el artículo 1°, inciso 34, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Estableciendo Academias de maestros de escuela primaria.
 TOMAS GUARDIA, General en Jefe del Ejército y Presidente de la República de Costa-Rica.
 Consecuente con mi anhelo à extender y mejorar, conforme lo permitan los recursos del país, la Instrucción Pública, base principal del porvenir á que esta llamada la Nacion; de conformidad con las indicaciones que me ha hecho el Honorable Secretario del ramo, referentes al sesudo informe que se registra en el número cinco de la Gaceta Oficial del presente mes,

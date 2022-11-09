@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO N° X.
+(Esta norma fue derogada por el artículo 1°, inciso 207, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Autoriza al Poder Ejecutivo para que arregle como lo crea conveniente,
 los ramos del Correo y del Telégrafo
 EL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE COSTA-RICA,

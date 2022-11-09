@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO N° X
+(Esta norma fue derogada por el artículo 1°, inciso 155, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Convoca á elecciones para Presidente de la República y para Diputados al Congreso,
 TOMÁS GUARDIA,
 GENERAL DE DIVISIÓN Y PRESIDENTE DE LA REPÉBLICA DE COSTA-RICA.

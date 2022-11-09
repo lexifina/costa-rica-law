@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO No XIX.
+(Esta norma fue derogada por el artículo 1°, inciso 443, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Deroga el decreto que confiere el grado de General de División de las milicias de la República á J. Rufino Barrios.
 BERNARDO SOTO,
 GENERAL EN JEFE DEL EJÉRCITO Y PRESIDENTE DE LA REPÚBLICA DE COSTA-RICA,

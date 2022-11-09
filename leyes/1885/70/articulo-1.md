@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO No LXX.
+(Esta norma fue derogada por el artículo 1°, inciso 513, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Relativo á las mercaderías que pueden recibirse directamente en Puntarenas y Carrillo.
 BERNARDO SOTO,
 PLESIDENTE CONSTITUCIONAL DE LA REPÚBLICA DE COSTA-RICA Y

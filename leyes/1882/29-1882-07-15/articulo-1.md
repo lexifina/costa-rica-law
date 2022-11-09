@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO N° XXIX.
+(Esta norma fue derogada por el artículo 1°, inciso 172, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Prorroga à un año el termino señalado para introducir libres de derecho en el puerto de Limón, los materiales de construcción.
 SATURNINO LIZANO,
 PRESIDENTE DE LA REPÚBLICA DE COSTA-RICA.

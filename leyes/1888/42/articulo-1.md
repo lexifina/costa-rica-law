@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO No XLII.
+(Esta norma fue derogada por el artículo 1°, inciso 736, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 (de 13 de julio).
 Autoriza á la Municipalidad de San José para lanzar un empréstito hasta de $ 100,000 para mejorar la cañería.
 EL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE COSTA RICA,

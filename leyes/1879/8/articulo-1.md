@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO N° VIII.
+(Esta norma fue derogada por el artículo 1°, inciso 69, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Fija en un año el periodo del Prolomedicalo,
 TOMÁS GUARDIA,
 GENERAL EN JEFE DEL EJERCITO Y PRESIDENTE DE LA REPÚBLICA DE COSTA-RICA,
@@ -12,4 +14,4 @@ Para segundo Vocal, al Doctor Don Carlos R. Lordly;
 Para Secretario, al Licdo. Don Juan Padilla, y
 Para Tesorero, al Doctor Don José Ramón Boza
 Queda así reformado el artículo 4º del Reglamento de que se ha hecho mérito.
-Dado en el Palacio Presidencial, en San José, a cinco de julio de mil ochocientos setenta y nueve. TGUARDIA. –El Secretario de Estado en el Despacho de Beneficencia. -JOSÉ Ma. CASTRO.
+Dado en el Palacio Presidencial, en San José, a cinco de julio de mil ochocientos setenta y nueve. TGUARDIA. -El Secretario de Estado en el Despacho de Beneficencia. -JOSÉ Ma. CASTRO.

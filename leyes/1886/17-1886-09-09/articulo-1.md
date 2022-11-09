@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO No XVII.
+(Esta norma fue derogada por el artículo 1°, inciso 604, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Concede una pensión de quince pesos á la señorita Balbina Cañas.
 LA COMISIÓN PERMANENTE DEL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE COSTA RICA.
 En vista de la solicitud de la señorita Balbina Cañas; de la exposición favorable con que ha sido recomendada por el Poder Ejecutivo, y en uso de la facultad que le confiere la fracción 42, artículo 94 de la Constitución,

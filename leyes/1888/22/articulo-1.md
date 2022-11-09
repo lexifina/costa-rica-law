@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO NO XXII.
+(Esta norma fue derogada por el artículo 1°, inciso 720, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 (de 12 de junio).
 Declara legalmente electo Diputado por Guanacaste á don Santiago de la Guardia.
 EL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE COSTA RICA,

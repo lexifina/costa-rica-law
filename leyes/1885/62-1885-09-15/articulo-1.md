@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO N° LXII.
+(Esta norma fue derogada por el artículo 1°, inciso 502, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Dispone que haya una exhibición de productos nacionales el 15 de setiembre de 1886, 1887 y 1888
 BERNARDO SOTO,
 BENEMÉRITO DE LA PATRIA, GENERAL EN JEFE DEL EJÉRCITO Y PRESIDENTE CONSTITUCIONAL DE LA REPÚBLICA DE COSTA-RICA.

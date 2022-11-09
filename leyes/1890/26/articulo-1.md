@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO N° 26 (de 9 de junio)
+(Esta norma fue derogada por el artículo 1°, inciso 866, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Concede una pensión vitalicia al señor don Manuel Zamora Bonilla
 EL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE COSTA RICA,
 Considerando que el señor Manuel Zamora Bonilla ha justificado satisfactoriamente hallarse en las condiciones exigidas por la ley de pensiones de 1890,

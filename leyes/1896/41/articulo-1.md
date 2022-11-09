@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO No 41 (de 3 de julio)
+(Esta norma fue derogada por el artículo 1°, inciso 812, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Declara legalmente electos Diputados suplentes por las comarcas de Puntarenas y Limón á los señores don Agustin Guido y don Francisco Ma Fuentes
 EL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE COSTA RICA,
 Considerando que los señores don Agustín Guido y don Francisco María Fuentes han sido electos Diputados suplentes de las comarcas de Puntarenas y Limón, en reemplazo de los señores don Federico Tinoco y don Felipe Gallegos, respectivamente, y que en dichas e- lecciones se han observado las prescripciones de la ley,

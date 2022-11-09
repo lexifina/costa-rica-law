@@ -1,6 +1,8 @@
+(Derogado)
 DECRETO N° XXVIII.
+(Esta norma fue derogada por el artículo 1°, inciso 301, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Aprueba los actos de la Secretaría de Relaciones Exteriores, &, &, &.
 EL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE COSTA RICA,
 Decreta:
-Art. único. – Apruébase los actos del Poder Ejecutivo comprendidos en la Memoria de Relaciones Exteriores, Instrucción Pública, Culto y Beneficencia, referentes al período administrativo que terminó el 30 de abril del presente año.
-AL PODER EJECUTIVO. -Dado en el salón de sesiones del Palacio Nacional, en Sa José, á veintiocho de junio de mil ochocientos ochenta y tres. -JN. M. CARAZO, Presidente. -VICENTE C. SEGREDE, Secretario. -R. CHAVARRÍA, 2° PRO-SECRETARIO. Palacio Presidencial. -San José, á veintiocho de junio de mil ochocientos ochenta y tres. -Publíquese. -P. FERNÁNDEZ. – El Secretario de Estado en el Despacho de Relaciones Exteriores. – EUSEBIO FIGUEROA.
+Art. único. - Apruébase los actos del Poder Ejecutivo comprendidos en la Memoria de Relaciones Exteriores, Instrucción Pública, Culto y Beneficencia, referentes al período administrativo que terminó el 30 de abril del presente año.
+AL PODER EJECUTIVO. -Dado en el salón de sesiones del Palacio Nacional, en Sa José, á veintiocho de junio de mil ochocientos ochenta y tres. -JN. M. CARAZO, Presidente. -VICENTE C. SEGREDE, Secretario. -R. CHAVARRÍA, 2° PRO-SECRETARIO. Palacio Presidencial. -San José, á veintiocho de junio de mil ochocientos ochenta y tres. -Publíquese. -P. FERNÁNDEZ. - El Secretario de Estado en el Despacho de Relaciones Exteriores. - EUSEBIO FIGUEROA.

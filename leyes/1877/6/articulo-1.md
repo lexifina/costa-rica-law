@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO VI.
+(Esta norma fue derogada por el artículo 1°, inciso 3, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Nombra varios funcionarios municipales.
 Vicente Herrera, Presidente de la República de Costa-Rica.
 Habiendo sido admitida la renuncia de algunos funcionarios municipales, y siendo indispensable su reposicion; en uso de las facultades extraordinarias de que estoy investido, decreto:

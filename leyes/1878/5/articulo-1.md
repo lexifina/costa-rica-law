@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO N° V.
+(Esta norma fue derogada por el artículo 1°, inciso 32, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Ordena se hagan los depósitos judiciales en el Tesoro Nacional, hasta que se organice el Banco Nacional.
 TOMAS GUARDIA, General en Jefe del Ejército y Presidente de la República de Costa-Rica.
 Por cuanto el Gran Consejo Nacional ha emitido el siguiente Decreto:

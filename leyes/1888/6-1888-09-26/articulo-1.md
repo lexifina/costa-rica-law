@@ -1,5 +1,7 @@
+(Derogado)
 DECRETO No VI
 (de 26 de setiembre).
+(Esta norma fue derogada por el artículo 1°, inciso 770, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Deroga los artículos 127 y 128 de las Ordenanzas Municipales de 24 de julio de 1867.
 LA COMISIÓN PERMANENTE DEL CONGRESO CONSTITUCIONAL
 DE LA REPÚBLICA DE COSTA RICA,

@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO XI
+(Esta norma fue derogada por el artículo 1°, inciso 5, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Fija la base para la venta de terrenos baldios, municipales de ejidos y comunidad.
 Vicente Herrera, Presidente de la República de Costa-Rica.
 Considerando: que, en diferentes épocas y aun algunas muy lejanas, se han dictado diversas disposiciones fijando la base para la enajenacion de las tierras baldias. municipales, de comunidad ó de ejidos: que muchas de esas disposiciones son hoy inconvenientes por haber tomado, con el trascurso del tiempo, mayor incremento la riqueza pública, y aumentádose el valor de los terrenos con la extencion que ha recibido la agricultura: y siendo mas natural que el precio que se fije como base de los terrenos. sea con relacion á su fertilidad, posicion y demas circunstancias que los hagan mas ó ménos apreciables; de acuerdo con el voto del Consejo de Estado, y en uso de mis facultades extraordinarias, decreto:

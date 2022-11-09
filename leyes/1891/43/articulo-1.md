@@ -1,5 +1,7 @@
+(Derogado)
 DECRETO No XLIII.
 (de 27 de Julio.)
+(Esta norma fue derogada por el artículo 1°, inciso 927, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Fija la anchura de la vía férrea al Atlántico desde la ciudad de Cartago hasta el puerto de Limón.
 EL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE COSTA RICA,
 En cumplimiento de lo estipulado en la cláusula XXII del contrato Soto-Keith, aprobado por decreto de 21 de Abril de 1884, y á iniciativa del Poder Ejecutivo,

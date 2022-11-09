@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO N° 1.
+(Esta norma fue derogada por el artículo 1°, inciso 62, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Establece la proporción que ha de haber entre el personal instructivo
 de cada escuela, y el mismo de alumnos.
 TOMÁS GUARDIA;
