@@ -1,1 +1,0 @@
-Art 5°.- No pueden ejercer la Abogacía el Promotor Fiscal, el fiscal de Corte, los Agentes Fiscales y los auxiliares del Ministerio Público, sino en sus propios negocios, en los de sus ascendientes y descendientes y en los de su esposa.

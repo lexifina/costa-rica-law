@@ -1,1 +1,0 @@
-Art. 101. —Todo ciudadano tiene derecho de denunciar los casos de nulidad de elecciones; pero debe exponer los hechos que la constituyen y presentar la prueba. Sin estos requisitos no será admitida la denuncia. Esta reclamación deberá hacerse antes de que se declare la elección.
