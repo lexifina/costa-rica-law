@@ -1,1 +1,0 @@
-ARTÍCULO 3.- Derogatorias. Deróguese el inciso 1 ), del artículo 5) del Decreto Ejecutivo del Decreto Ejecutivo No. 14082-H del 29 de noviembre de 1982, denominado "Reglamento de la Ley del Impuesto General sobre las Ventas", y sus reformas, a partir de la vigencia del presente decreto.
