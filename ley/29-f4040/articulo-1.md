@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO NO XXIX.
+(Esta norma fue derogada por el artículo 1°, inciso 252, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Determina que las escuelas sean servidas por oposición,
 PRÓSPERO FERNÁNDEZ,
 GENERAL DE DIVISIÓN Y PRESIDENTE CONSTITUCIONAL

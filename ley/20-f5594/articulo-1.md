@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO XX.
+(Esta norma fue derogada por el artículo 1°, inciso 9, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Fija el presupuesto de egresos de la Administracion pública para el año en curso.
 Vicente Herrera, Presidente de la República de Costa-Rica.
 Considerando: que, no obstante las facultades extraordinarias de que estoy investido, es conveniente para el mejor órden y buena administracion de las rentas nacionales, fijar, como se

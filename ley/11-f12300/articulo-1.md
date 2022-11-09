@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO N° XI.
+(Esta norma fue derogada por el artículo 1°, inciso 111, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Crea una Judicatura Civil y del Crimen en la Instancia en la comarca de Limón, á cargo del Gobernador de la misma,
 TOMÁS GUARDIA
 GENERAL DE DIVISIÓN Y PRESIDENTE DE LA R\ÉBLICADE COSTA-RICA,

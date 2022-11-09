@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO No XIII.
+(Esta norma fue derogada por el artículo 1°, inciso 460, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Declara sin lugar la renuncia presentada por el Señor Presidente de la República, General Don Bernardo Soto, y reitera al Poder Ejecutivo su voto de confianza.
 EL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE COSTA-RICA,
 En vista de las causales en que el Señor Licenciado Don Bernardo Soto se funda para resignar el alto puesto de Primer Magistrado de la Nación, y

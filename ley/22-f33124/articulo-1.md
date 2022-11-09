@@ -1,5 +1,7 @@
+(Derogado)
 DECRETO NO XXII.
 (de 24 de Junio).
+(Esta norma fue derogada por el artículo 1°, inciso 914, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Prorroga las sesiones del Congreso.
 EL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE COSTA RICA.
 En consideración á que aun están pendientes muchos de los más importantes asuntos cuyo despacho no puede postergarse,

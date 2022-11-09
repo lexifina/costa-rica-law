@@ -1,5 +1,7 @@
+(Derogado)
 DECRETO No LXXII.
 (de 7 de Octubre).
+(Esta norma fue derogada por el artículo 1°, inciso 892, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Aumenta á cincuenta y dos mil quinientos francos la garantía que el Gobierno
 de la República presta al señor V. Cuenca Creus para el establecimiento de una comunicación telegráfica por cables submarinos.
 LA COMISIÓN PERMANENTE

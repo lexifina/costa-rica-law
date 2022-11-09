@@ -1,4 +1,6 @@
+(Derogado)
 ACUERDO N° CCLIV
+(Esta norma fue derogada por el artículo 1°, inciso 240 de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Relativo á compra de licores compuestos y siropes.
 SECRETARÍA DE HACIENDA.
 Palacio Nacional. – San José, noviembre 10 de 1882.

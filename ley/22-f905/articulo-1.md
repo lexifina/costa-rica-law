@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO No XXII
+(Esta norma fue derogada por el artículo 1°, inciso 598, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Fija los gastos de la Administración Pública del 12 de agosto de 1886 al 31 de marzo de 1887.
 BERNARDO SOTO,
 GENERAL DE DIVISIÓN Y PRESIDENTE CONSTITUCIONAL. DE LA REPÚBLICA DE COSTA RICA.
@@ -314,11 +316,11 @@ Id. del Inspector de la
 $ 437-00 $ 5,244-00
 San José.
 Sueldo del telegrafista 1°. 60-00
-Id. “ “ 2° 50-00
-Id. “ Contador Auxiliar 40-00
+Id. " " 2° 50-00
+Id. " Contador Auxiliar 40-00
 Id. del mensajero 1° 25-00
-Id. “ “ 2° 20-00
-Id. “ “ 3° 15-00
+Id. " " 2° 20-00
+Id. " " 3° 15-00
 $255-00 $ 3,060-00
 Escasú.
 Sueldo del telegrafista. 27-00
@@ -334,7 +336,7 @@ Id. mensajero... 5-00
 $35-00 $420-00
 Alajuela.
 Sueldo del telegrafista 1°. $40-00
-Id. “ 2° 30-00
+Id. " 2° 30-00
 Id. mensajero. 15-00
 $85-00 $1.020-00
 Grecia.
@@ -360,7 +362,7 @@ Id. mensajero 5-00
 $ 35-00 $ 420-00
 Cartago.
 Sueldo del telegrafista 1° $ 36-00
-Id. “ id. 2° 27-00
+Id. " id. 2° 27-00
 Id. mensajero. 12-00
 $ 75-00 900-00
 La Unión.
@@ -393,8 +395,8 @@ Id. mensajero. 5-00
 $32-00 $384-00
 Puntarenas.
 Sueldo del telegrafista 1° 60-00
-Id. “ 2° 40-00
-Id. “ mensajero. 12-00
+Id. " 2° 40-00
+Id. " mensajero. 12-00
 $112-00 $1,344-00
 Esparta.
 Sueldo del telegrafista 1° $ 60-00
@@ -440,19 +442,19 @@ Id. mensajero. 5-00
 $32-00 $384-00
 Alquiler de locales.
 Para la oficina de Puntarenas. $12-00
-Id. id. “ Esparta. 9-00
-Id. id. “ San Mateo. 8-00
-Id. id. “ Atenas 6-00
-Id. id. “ Liberia 8-00
-Id. id. “ Bagaces 6-00
-Id. id. “ Bebedero 6-00
-Id. id. “ Paraíso 4-00
+Id. id. " Esparta. 9-00
+Id. id. " San Mateo. 8-00
+Id. id. " Atenas 6-00
+Id. id. " Liberia 8-00
+Id. id. " Bagaces 6-00
+Id. id. " Bebedero 6-00
+Id. id. " Paraíso 4-00
 $ 59-00 708-00
 Sueldo de 26 guardas.
 17 á $ 25 cada uno. $ 425
-2 “ “ 30 id. id. 60-00
-6 “ “ 23 id. id. 138-00
-1 “ “ 10 id. id. 10-00
+2 " " 30 id. id. 60-00
+6 " " 23 id. id. 138-00
+1 " " 10 id. id. 10-00
 $633-00 $7,596-00
 Gastos de oficinas.
 $ 200-00 $2,400-00
@@ -536,8 +538,8 @@ Sueldo de 1 Agente Principal. $60-00 720-00
 POLICÍA DE SEGURIDAD, SALUBRIDAD Y
 ORNATO DE SAN JOSÉ.
 Sueldo del 1er. Comandante. 100-00
-Id. “ 2°. Id. 65-00
-Id. “ Secretario $50-00
+Id. " 2°. Id. 65-00
+Id. " Secretario $50-00
 Id. de 6 sargentos á
 $ 40 cu $240-00
 Id. de 60 policías á $30
@@ -628,9 +630,9 @@ Sueldo del Director General. $200-00
 Id. Auxiliar. 100-00
 Al mes. Al año.
 Id. del Secretario. $60-00
-Id. “ Dibujante. 60-00
-Id. “ Tenedor de Libros. 20-00
-Id. “ Portero. 25-00
+Id. " Dibujante. 60-00
+Id. " Tenedor de Libros. 20-00
+Id. " Portero. 25-00
 Alquiler de local para la
 Dirección y para el
 almacén de útiles. 85-00
@@ -641,7 +643,7 @@ Y mobiliario. $ 2,500-00 $30,000-00
 CARRETERA NACIONAL AL PACÍFICO.
 Sueldo del encargado
 de ella $ 75-00
-Id. “ ayudante 45-00
+Id. " ayudante 45-00
 $120-00 $1,440-00
 Sueldo de 4 cabos en 4
 Meses á $50 cada uno 800-00
@@ -669,7 +671,7 @@ Para composición del
 camino de Sarapiquí del
 punto "La Paz" al interior. $ 850-00
 Id. composición del camino
-de Sarapiquí de "La Paz”
+de Sarapiquí de "La Paz"
 al muelle. $ 1,200-00
 Id. gastos de la Exposición
 Nacional. $ 2,000-00
@@ -691,12 +693,12 @@ de campanillas eléctricas. $ 20-00
 $ 420-00 $ 5,040-00
 ESTADÍSTICA.
 Sueldo del Director. $ 150-00
-Id. “ Oficial Mayor $ 80-00
+Id. " Oficial Mayor $ 80-00
 Id. 4 Escribientes á
 $ 40 cada uno. $160-00
-Id. “ del encargado de
+Id. " del encargado de
 coleccionar productos. $ 80-00
-Id. “ del portero. $ 20-00
+Id. " del portero. $ 20-00
 Aquiler de local. $ 100-00
 $ 590-00 $ 7,080-00
 VAPORES.
@@ -1438,7 +1440,7 @@ Secretaría.
 Sueldos.
 Al mes. Al año.
 Sueldo de 1 Oficial mayor 100-00
-Id. “ 1 Escribiente 40-00
+Id. " 1 Escribiente 40-00
 Id. 1 id. 30-00
 $170-00 $ 2,040-00
 ESCUELA NORMAL.
@@ -2044,7 +2046,7 @@ de varones. 25-00
 1 Maestra de la escuela
 de niñas 25-00
 $50-00 $600-00
-Cantón Tercero. – La Unión
+Cantón Tercero. - La Unión
 Distrito I.-La Unión.
 1 Maestro de la escuela
 de varones. 30-00
@@ -2535,31 +2537,31 @@ Jubilaciones y Pensiones.
 Coronel Cauty $ 35-00
 Doña Amelia de Guardia 125-00
 Señorita Ana B. Escalante. 27-00
-“ Carrillo. 27-00
-“ Adela Mora. 27-00
-“ Calvo. 54-00
-“ Moya. 36-00
+" Carrillo. 27-00
+" Adela Mora. 27-00
+" Calvo. 54-00
+" Moya. 36-00
 Doña Maria T. de Carazo 24-00
-“ Jacinta C. de Estrada. 54-00
-“ Inés Ugalde 20-00
-“ Eduvigis A. de Bolandi. 27-00
-“ Juana S. de Segura 25-00
-“ Rosalina P. de Sáenz 25-00
-“ Francisca Chaves de
+" Jacinta C. de Estrada. 54-00
+" Inés Ugalde 20-00
+" Eduvigis A. de Bolandi. 27-00
+" Juana S. de Segura 25-00
+" Rosalina P. de Sáenz 25-00
+" Francisca Chaves de
 Villalta 10-00
 Don Damián Soto 20-00
 Gregorio Escalante (sus hijos) 54-00
 Doña María A. Peralta
 de Rivero. 40-00
 Don Tadeo Gómez 20-00
-“ Juan Méndez 44-00
+" Juan Méndez 44-00
 Señorita Pilar Quirós. 45-00
 Ana María Orozco 45-00
 Doña María Q. de
-“ Sotela hijos. 37-00
-“ Brigida L. de Segura. 31-00
-“ Teodora de Mora 27-00
-“ Dolores R. de Carranza. 25-00
+" Sotela hijos. 37-00
+" Brigida L. de Segura. 31-00
+" Teodora de Mora 27-00
+" Dolores R. de Carranza. 25-00
 Mercedes C. de Padilla. 25-00
 María R. de Loaiza 22-50
 Juana A. de Gallegos 20:35
@@ -2588,10 +2590,10 @@ Joaquín Carvajal 7-00
 Juan de Dios Cascante. 7-00
 Al mes. Al año.
 Don Juan Mora. 7-00
-“ Gabino Rivera 7-00
-“ José M. Valverde. 7-00
-“ Rudecindo Chaves 7-00
-“ Jerónimo Sevilla. 7-00
+" Gabino Rivera 7-00
+" José M. Valverde. 7-00
+" Rudecindo Chaves 7-00
+" Jerónimo Sevilla. 7-00
 Aureliano Coto. 7-00
 Juan Azofeifa 7-00
 Julián Angulo 7-00
@@ -2626,33 +2628,33 @@ Antonio Blanco 13-00
 Dolores Mora. 7-00
 Al mes. Al año.
 Don José Ma Lobo 7-00
-“ Ramón Chaves 7-00
-“ Narciso Umaña. 7-00
-“ Casimiro Flórez 7-00
-“ José Miranda. 7-00
-“ Francisco Quesada 7-00
-“ Encarnación Pérez. 7-00
+" Ramón Chaves 7-00
+" Narciso Umaña. 7-00
+" Casimiro Flórez 7-00
+" José Miranda. 7-00
+" Francisco Quesada 7-00
+" Encarnación Pérez. 7-00
 Doña Maria Frutos 14-00
-“ Maria Arrieta 8-00
+" Maria Arrieta 8-00
 Don Juan Láscares 15-00
-“ Luis Pacheco. 47-50
-“ Jesús Alvarado. 50-00
-“ Pedro Camaño 20-00
-“ Delfin Fonseca 7-00
-“ José Ma Sánchez 7-00
-“ Alejo Chinchilla 7-00
-“ Lino Vargas 7-00
-“ Carlos Sánchez 7-00
-“ Ramón Villegas. 7-00
-“ Jesús Soto. 7-00
-“ Tomás Salas 7-00
-“ José Quirós 7-00
-“ Agapito Quirós 7-00
-“ Víctor Ramos 7-00
-“ Cornelio Poveda 7-00
+" Luis Pacheco. 47-50
+" Jesús Alvarado. 50-00
+" Pedro Camaño 20-00
+" Delfin Fonseca 7-00
+" José Ma Sánchez 7-00
+" Alejo Chinchilla 7-00
+" Lino Vargas 7-00
+" Carlos Sánchez 7-00
+" Ramón Villegas. 7-00
+" Jesús Soto. 7-00
+" Tomás Salas 7-00
+" José Quirós 7-00
+" Agapito Quirós 7-00
+" Víctor Ramos 7-00
+" Cornelio Poveda 7-00
 Doña Teresa D' Hiriart. 9-00
 Don Horacio Villavicencio. 27-00
-“ Hipólito Chavarría 22-00
+" Hipólito Chavarría 22-00
 Señorita Balbina Cañas 15-00
 A la viuda de Biscouby 25-00
 $ 2,061-85 $ 24,742-26

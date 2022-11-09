@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO No VI.
+(Esta norma fue derogada por el artículo 1°, inciso 553, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Declara electos legalmente los nuevos Diputados que han integrado el
 Congreso.
 EL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE COSTA RICA,

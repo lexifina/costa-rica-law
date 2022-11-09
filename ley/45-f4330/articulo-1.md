@@ -1,5 +1,7 @@
+(Derogado)
 DECRETO No XLV.
 (de 27 de junio.)
+(Esta norma fue derogada por el artículo 1°, inciso 809, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 El Congreso Constitucional prorroga sus sesiones ordinarias.
 EL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE COSTA RICA,
 Considerando urgente el despacho de varios asuntos, cuya resolución no debe diferirse para la siguiente Legislatura,

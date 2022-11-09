@@ -1,4 +1,6 @@
-DECRETO N° LVII.
+(Derogado)
+DECRETO N° LVII
+(Esta norma fue derogada por el artículo 1°, inciso 147, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Determina que los libros del protocolo mayor, se llenen por completa.
 SALVADOR LARA.
 DESIGNADO EN EJERCICIO DEL PODER EJECUTIVO DE LA

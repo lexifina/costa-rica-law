@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO No XLII.
+(Esta norma fue derogada por el artículo 1°, inciso 622, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Admite las renuncias de los Secretarios de Estado, Licenciado don José J. Rodríguez, don Joaquín Lizano y don Manuel Aragón; nombra Secretario de Hacienda al Licenciado don Mauro Fernández, con recargo del Ministerio de Relaciones Exteriores, y se encarga al Secretario de la Guerra el Ministerio de Gobernación.
 BERNARDO SOTO,
 GENERAL DE DIVISIÓN Y PRESIDENTE CONSTITUCIONAL DE LA

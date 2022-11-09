@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO III
+(Esta norma fue derogada por el artículo 1°, inciso 256, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Declara la rescisión del contrato Argüello-Perera,relativ à inmigración
 PRÓSPERO FERNÁNDEZ.
 GENERAL DE DIVISIÓN Y PRESIDENTE CONSTITUCIONAL

@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO XLIX
+(Esta norma fue derogada por el artículo 1°, inciso 29, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Establece una ley adicional a la Tarifa de Aduanas.
 El Gran Consejo Nacional de la República de Costa-Rica.
 A iniciativa del Supremo Poder Ejecutivo y teniendo en consideracion:
@@ -11,7 +13,7 @@ Libra
 Aceite de coco y palma. $ 0.02
 Algodon en ropa hecha en cualquier tejido y forma. ,, 0.25
 Algodon en piquées. ,, 0.20
-“ tejidos en mantas crudas, lisas, asargadas y lonas ,,0.08
+" tejidos en mantas crudas, lisas, asargadas y lonas ,,0.08
 Algodón en cotines, driles y mezclillas. ,,0.12
 B.
 Bálsamos ,,0.10

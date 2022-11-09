@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO N° XXII
+(Esta norma fue derogada por el artículo 1°, inciso 466, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Prorroga el término para que rija la ley esbre sistema métrico decimal
 EL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE COSTA RICA,
 A iniciativa del Poder Ejecutivo, y en uso de la atribución 13a, artículo 73 de la Constitución,

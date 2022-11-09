@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO No XXXVI.
+(Esta norma fue derogada por el artículo 1°, inciso 449, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Funda un Hospicio Nacional de locos, establece una Loteria constituye las rentas del asilo. Nacional en patrocinio de aquel, y determina lo que
 BERNARDO SOTO,
 PRESIDENTE CONSTITUCIONAL DE LA REPÚBLICA Y GENERAL EN JEFE DEL EJÉRCITO,

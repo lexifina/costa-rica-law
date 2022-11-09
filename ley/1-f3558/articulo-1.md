@@ -1,4 +1,6 @@
+(Derogado)
 ACUERDO No I.
+(Esta norma fue derogada por el artículo 1°, inciso 425, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Prorroga el término para la subdivisión de los terrenos de "Felipe Diaz" en Cartago.
 Secretaría de Gobernación.
 Palacio Nacional. -San José, enero 3 de 1885.

@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO N° XI
+(Esta norma fue derogada por el artículo 1°, inciso 333, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Sobre otorgamiento de escrituras en que esté interesado el Fisco.
 LA HONORABLE COMISIÓN PERMANENTE,
 A iniciativa del Poder Ejecutivo, y en uso de la atribución 4, artículo 94 de la Constitución,

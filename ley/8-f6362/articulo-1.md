@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO N° VIII.
+(Esta norma fue derogada por el artículo 1°, inciso 223, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Modifica las condiciones exigidas á los expendedores de aguardiente,
 PRÓSPERO FERNANDEZ,
 GENERAL DE DIVISIÓN Y PRESIDENTE CONSTITUCIONAL DE LA REPÚBLICA DE COSTA-RICA,

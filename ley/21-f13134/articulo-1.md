@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO N° XXI.
+(Esta norma fue derogada por el artículo 1°, inciso 444, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Organiza el personal de las Secretarías de Estado, y funda el Archivo de los Ministerios.
 BERNARDO SOTO,
 GENERAL EN JEFE DEL EJÉRCITO Y PRESIDENTE DE LA REPÚBLICA DE COSTA-RICA,

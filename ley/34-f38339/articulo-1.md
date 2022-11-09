@@ -1,5 +1,7 @@
+(Derogado)
 DECRETO No XXXIV.
 (de 25 de mayo.)
+(Esta norma fue derogada por el artículo 1°, inciso 802, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Convoca á las Asambleas Electorales de Guanacaste para que elijan un Representante suplente.
 EL DESIGNADO EN EJERCICIO DE LA PRESIDENCIA DE LA REPÚBLICA,
 Con la mira de que se lleve á efecto lo ordenado por el Congreso Consticional en decreto del día de ayer,

@@ -1,5 +1,7 @@
+(Derogado)
 DECRETO NO LXII.
 (de 27 de julio.)
+(Esta norma fue derogada por el artículo 1°, inciso 824, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Aprueba el contrato celebrado entre el Secretario de Fomento y los se-señores G. Herrero & C,
 para el establecimiento de un cable submarino.
 EL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE COSTA RICA.

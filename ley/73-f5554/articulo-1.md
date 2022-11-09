@@ -1,5 +1,7 @@
+(Derogado)
 DECRETO NO LXXIII.
 (de 8 de octubre.)
+(Esta norma fue derogada por el artículo 1°, inciso 839, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Establece una nueva clase de sellos de correos y telégrafos, de valor de diez pesos cada uno.
 BERNARDO SOTO
 PRESIDENTE DE LA REPÚBLICA DE COSTA RICA.

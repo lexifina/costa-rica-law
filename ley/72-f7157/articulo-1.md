@@ -1,5 +1,7 @@
+(Derogado)
 DECRETO No LXXII.
 (de 4 de octubre.)
+(Esta norma fue derogada por el artículo 1°, inciso 838, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Admite á los señores Licenciado don Ricardo Jiménez y Doctor don Carlos Durán las renuncias de las Secretarías de Relaciones Exteriores y Gobernación, que respectivamente desempeñaban y encarga interinamente el servicio de esas Secretarías y Carteras anexas al Licenciado don Mauro Fernández, Ministro de Hacienda y Comercio.
 BERNARDO SOTO,
 PRESIDENTE DE LA REPÚBLICA DE COSTA RICA,

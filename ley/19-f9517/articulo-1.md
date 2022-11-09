@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO N° XIX.
+(Esta norma fue derogada por el artículo 1°, inciso 165, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Deroga los acuerdos que suprimía los sueldos de los Juzgados civiles y criminales.
 SATURNINO LIZANO,
 PRIMER DESIGNADO EN EJERCICIO DEL PODER EJECUTIVO DE LA REPÚBLICA DE COSTA-RICA.

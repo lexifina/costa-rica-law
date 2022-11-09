@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO No XXVII.
+(Esta norma fue derogada por el artículo 1°, inciso 473, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Facilita el modo de constituir hipotecas á favor del Banco de la Unión.
 EL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE COSTA-RICA.
 A instancia de la Directiva del Banco de la Unión, y

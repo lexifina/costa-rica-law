@@ -1,5 +1,7 @@
+(Derogado)
 DECRETO No LXIV.
 (de 3 de Agosto.)
+(Esta norma fue derogada por el artículo 1°, inciso 946, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Nombra los miembros de la Comisión Permanente.
 EL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE COSTA RICA,
 En observancia de lo que dispone el artículo 93 de la Constitución,

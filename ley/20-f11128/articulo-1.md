@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO N° XX.
+(Esta norma fue derogada por el artículo 1°, inciso 45, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Sobre presupuestos de rentas y gastos,
 TOMAS GUARDIA, General de Division y Presidente de la República de Costa-Rica,
 En uso de las omnímodas facultades de que me hallo investido,

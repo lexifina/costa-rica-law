@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO N° XX
+(Esta norma fue derogada por el artículo 1°, inciso 163, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Deroga el decreto que permitía cartular á los Jueces de la Instancia, por cantidad menor de $5,000.
 SATURNINO LIZANO,
 PRIMER DESIGNADO EN EJERCICIO DEL PODER EJECUTIVO DE LA REPÚBICA DE COSTA RICA.

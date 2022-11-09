@@ -1,4 +1,6 @@
+(Derogado)
 REFORMAS A LA CONSTITUCIÓN.
+(Esta norma fue derogada por el artículo 1°, inciso 554, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 EL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE COSTA RICA,
 Considerando necesaria la reforma de algunos artículos de la Constitución; en uso de la facultad que le concede el Título XII, Sección 3a de la misma, y con observancia de las formalidades legales,
 DECRETA

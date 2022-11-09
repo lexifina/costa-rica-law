@@ -1,5 +1,7 @@
+(Derogado)
 DECRETO No LXVII.
 (de 7 de Agosto.)
+(Esta norma fue derogada por el artículo 1°, inciso 947, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Concede una pensión.
 EL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE COSTA RICA,
 En mérito á los servicios prestados en el Magisterio por doña Sergio M. de Agüero, y al estado de pobreza en que se encuentra,

@@ -1,5 +1,7 @@
+(Derogado)
 DECRETO No IX.
 (de 18 de Febrero).
+(Esta norma fue derogada por el artículo 1°, inciso 857, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Dicta medidas para que todo giro á la vista contra el Tesoro Nacional se considere expedido al portador, siempre que el dueño ó persona conocida que lo reciba ponga su firma en el tronco, para salvar la respon- sabilidad de la Administración Principal de Rentas.
 LA COMISIÓN PERMANENTE
 DEL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE COSTA RICA,

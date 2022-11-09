@@ -1,5 +1,7 @@
+(Derogado)
 DECRETO No XLVI.
 (de 28 de Julio).
+(Esta norma fue derogada por el artículo 1°, inciso 935, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Aprueba un contrato.
 EL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE COSTA RICA,
 En uso de sus facultades constitucionales, y á iniciativa del Poder Ejecutivo,

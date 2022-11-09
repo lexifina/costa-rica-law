@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO No 1.
+(Esta norma fue derogada por el artículo 1°, inciso 341, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Prorroga el término para titular los terrenos ocupados á virtud de gracias.
 LA COMISIÓN PERMANENTE,
 A iniciativa del Poder Ejecutivo y en uso de la atribución 42, artículo 94 de la Constitución,

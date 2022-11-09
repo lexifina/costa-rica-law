@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO NO XIII
+(Esta norma fue derogada por el artículo 1°, inciso 158, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Prorroga à un año más el término señalado para establecer el Banco de Crédito hipotecario.
 TOMÁS GUARDIA
 GENERAL DE DIVISIÓN Y PRESIDENTE

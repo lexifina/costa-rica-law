@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO No XXI.
+(Esta norma fue derogada por el artículo 1°, inciso 653, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 (de 27 de junio.)
 Aprueba el Decreto no 13 emitido por la Comisión Permanente, en el ramo de Justicia.
 EL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE COSTA RICA,

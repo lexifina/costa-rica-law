@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO N° XXII
+(Esta norma fue derogada por el artículo 1°, inciso 95, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Nombra à Don Ezequiel Herrera para Magistrado del Tribunal de Justicia.
 TOMÁS GUARDIA,
 GENERAL EN JEFE DEL EIÉRCITO Y PRESIDENTE DE LA REPÚBLICA DE COSTA-RICA.

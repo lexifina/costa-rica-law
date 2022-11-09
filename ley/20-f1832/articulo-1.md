@@ -1,5 +1,7 @@
+(Derogado)
 DECRETO NO XX.
 (de 10 de mayo.)
+(Esta norma fue derogada por el artículo 1°, inciso 790, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Llama á ejercer temporalmente el Poder Ejecutivo, al Segundo Designado Licenciado don Ascensión Esquivel.
 BERNARDO SOTO,
 PRESIDENTE DE LA REPÚBLICA DE COSTA RICA,

@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO N° XIII
+(Esta norma fue derogada por el artículo 1°, inciso 113, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Separa las carteras de Guerra y Marina de la Secretaría de Gobernación.
 TOMAS GUARDIA,
 GENERAL EN JEFE DEL EJERCITO Y PRESIDENTE DE LA REPUBLICA DE COSTA-RICA,

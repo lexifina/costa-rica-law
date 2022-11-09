@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO N° XL
+(Esta norma fue derogada por el artículo 1°, inciso 181, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Confiere el grado de General de Brigada al Coronel Don Rafael Villegas.
 PRÓSPERO FERNÁNDEZ,
 PRESIDENTE DE LA REPÚBLICA Y COMANDANTE EN JEFE DEL EJÉRCITO.

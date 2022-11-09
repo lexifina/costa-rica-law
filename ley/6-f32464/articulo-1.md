@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO NO VI.
+(Esta norma fue derogada por el artículo 1°, inciso 533, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Nombra vocales de las Juntas electorales de provincias y comarcas.
 BERNARDO SOTO,
 GENERAL EN JEFE DEL EJÉRCITO Y PRESIDENTE CONSTITUCIONAL
@@ -22,13 +24,13 @@ Nazario Ocampo..
 CARTAGO.
 Principales.
 Don José R. Rojas Troyo y
-“ Francisco Aguilar Barquero.
+" Francisco Aguilar Barquero.
 Suplente.
 Don Luis Gómez.
 HEREDIA.
 Principales.
 Don Eustaquio Pérez y
-“ Fernando Zamora.
+" Fernando Zamora.
 Suplente.
 Licenciado don Daniel González.
 GUANACASTE.
@@ -46,7 +48,7 @@ Don Darío Zúñiga.
 LIMÓN.
 Principales.
 Don James Anderson y
-“ Telesforo Bonilla.
+" Telesforo Bonilla.
 Suplente.
 Don Ramón Barrios.
 Dado en el Palacio Presidencial, en San José, á veintisiete de enero de mil ochocientos ochenta y seis.-BERNARDO SOTO.-El Secretario de Estado en el despacho de Gobernación.-C. DURÁN.

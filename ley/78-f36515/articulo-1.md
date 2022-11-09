@@ -1,5 +1,7 @@
+(Derogado)
 DECRETO NO LXXVIII.
 (de 8 de noviembre.)
+(Esta norma fue derogada por el artículo 1°, inciso 845, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Suspende hasta por sesenta días las garantías individuales consignadas en la sección 22, titulo 39 de la Constitución.
 LA COMISIÓN PERMANENTE
 DEL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE COSTA RICA,

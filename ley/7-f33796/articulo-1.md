@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO No VIII.
+(Esta norma fue derogada por el artículo 1°, inciso 438, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Encargando, interinamente, á Don Santiago de la Guardia del Ministerio de lo Interior.
 BERNARDO SOTO,
 PRESIDENTE DE LA REPÚBLICA DE COSTA-RICA Y GENERAL EN JEFE DEL EJÉRCITO,

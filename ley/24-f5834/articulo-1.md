@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO N° XXIV.
+(Esta norma fue derogada por el artículo 1°, inciso 247, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 PROSPERO FERNÁNDEZ
 GENERAL DE DIVISION Y PRESIDENTE CONSTITUCIONAL
 DE LA REPUBLICA DE COSTA-RICA

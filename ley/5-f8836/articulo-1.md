@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO N° V.
+(Esta norma fue derogada por el artículo 1°, inciso 325, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Exceptúa del pago de muellaje por Limón, la exportación de frutas,
 legumbres y raíces alimenticias.
 LA HONORABLE COMISIÓN PERMANENTE,

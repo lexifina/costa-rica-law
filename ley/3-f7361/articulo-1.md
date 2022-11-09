@@ -1,14 +1,16 @@
+(Derogado)
 DECRETO N° III
+(Esta norma fue derogada por el artículo 1°, inciso 64, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Restablece en la Universidad la Facultad de Medicina y fija las asignaturas que comprende.
 TOMÁS GUARDIA,
 GENERAL EN JEFE DEL EJÉRCITO Y PRESIDENTE DE LA REPÚBLICA DE COSTA RICA.
 Deseoso de da á la enseñanza superior el ensanche posible, y de proporcionar al talento y aplicación de la juventud costarricense, acceso á una nueva é ilustre carrera;
 DECRETO:
-Art. 1°. –Se restablece en la Universidad de la República la Facultad de Medicina y Cirugía, comprendiendo las asignaturas que se distribuyen en la forma siguiente:
+Art. 1°. -Se restablece en la Universidad de la República la Facultad de Medicina y Cirugía, comprendiendo las asignaturas que se distribuyen en la forma siguiente:
 UNIVERSIDAD HOSPITAL
 1er Año -----------------------------------1er Año
 Anatomía descriptiva 1a parte.
-Fisiología 2 id. –Disección.
+Fisiología 2 id. -Disección.
 Historia Natural. Física Médica.
 2° Año ----------------------------------- 2° Año
 Anatomía 2a parte .
@@ -25,7 +27,7 @@ Id externa 2a id - Anatomía, Patología y Medicina Operatoria.
 5° Año ----------------------------------- 5° Año
 Terapéutica - Ambas Clínicas
 Materia Médica - Arte de formular y
-Medicina Legal 1a parte. –Medicina Operatoria.
+Medicina Legal 1a parte. -Medicina Operatoria.
 6° Año ----------------------------------- 6° Año
 Medicina Legal 2a parte.
 Toxicología Clínicas y

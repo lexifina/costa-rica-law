@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO No IX.
+(Esta norma fue derogada por el artículo 1°, inciso 556, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Aprueba el decreto n. 15 de la Comisión Permanente, respecto á un camino á Térraba y Boruca.
 EL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE COSTA RICA.
 Examinado el decreto no 15 emitido por la Comisión Permanente el 21 de diciembre del año 1885, en que se hacen algunas concesiones al señor Licenciado don Pedro Pérez Zeledón, para abrir un camino de herradura entre Nueva Santa María, Térraba y Boruca, y estimándose de verdadera conveniencia pública,

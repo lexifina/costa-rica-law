@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO N° LVI.
+(Esta norma fue derogada por el artículo 1°, inciso 146, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Fija el día en que ha de comenzar à regir la ley del registro civil.
 SALVADOR LARA,
 DESIGNADO EN EJERCICIO DEL PODER EJECUTIVO DE LA

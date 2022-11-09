@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO XVIII.
+(Esta norma fue derogada por el artículo 1°, inciso 563, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Aprueba los decretos números 5, 6, 13, 16, 23 y 28 emitidos por la Comisión Permanente.
 EL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE COSTA RICA.
 DECRETA:

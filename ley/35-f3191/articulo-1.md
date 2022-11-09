@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO No XXXV.
+(Esta norma fue derogada por el artículo 1°, inciso 477, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Condona á doña Inés de Fernández una deuda de su finado esposo don Lucas Fernández.
 EL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE COSTA-RICA,
 Atendidas las condiciones de pobreza en que se encuentra la familia de doña Inés de Fernández, y los importantes servicios prestados á la Patria por el padre de esta última,

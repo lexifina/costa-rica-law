@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO N° XXIII.
+(Esta norma fue derogada por el artículo 1°, inciso 219, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Deroga la ley número 41 de 1° de setiembre de 1868.
 EL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE COSTA-RICA,
 En uso de la atribución 13a, artículo 73 de la Constitución,

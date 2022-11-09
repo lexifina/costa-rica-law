@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO No VIII.
+(Esta norma fue derogada por el artículo 1°, inciso 456, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Concede una pensión á Don Félix Mata Lafuente.
 EL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE COSTA-RICA,
 En vista de la solicitud presentada por el Señor Don Félix Mata Lafuente, apoyada por el vecindario de Cartago, y en atención á los servicios que ha prestado á la Nación, á su avanzada edad y al mal estado de su salud,

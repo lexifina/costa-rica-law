@@ -1,5 +1,7 @@
+(Derogado)
 DECRETO No XLVI.
 (de 17 de Junio).
+(Esta norma fue derogada por el artículo 1°, inciso 875, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Imprueba el decreto de 7 de Setiembre del año próximo pasado, referente al contrato de servicio telefónico.
 EL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE COSTA RICA,
 En mérito á que el decreto que aprobó la convención para establecer en el país el servicio telefónico, fué emitido en desacuerdo con la fracción 4a del artículo 94 de la Constitución,

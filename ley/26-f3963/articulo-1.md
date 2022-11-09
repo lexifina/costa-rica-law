@@ -1,5 +1,7 @@
+(Derogado)
 DECRETO No XXVI.
 (de 15 de mayo.)
+(Esta norma fue derogada por el artículo 1°, inciso 794, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Admite á los señores Doctor don Abel Santos y don Juan R. Mata sus renuncias de Diputados.
 EL CONGRESO CONSTITUCIONAL DE LA
 REPÚBLICA DE COSTA RICA,

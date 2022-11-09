@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO No XVI.
+(Esta norma fue derogada por el artículo 1°, inciso 506, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Eleva á $ 60-00 la pensión asignada al General don Tomás Herra.
 LA COMISIÓN PERMANENTE DEL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE COSTA-RICA,
 En consideración á que el General don Tomás Herra, por los dilatados servicios que ha prestado al país, por su estado de invalidez, y por la honradez y lealtad con que ha procedido siempre en la carrera de las armas, es acreedor á mejor recompensa; en uso de la atribución que le confiere la fracción 42, artículo 94 de la Constitución,

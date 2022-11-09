@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO N° XLV.
+(Esta norma fue derogada por el artículo 1°, inciso 404, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Deroga la ley número 24 de 2 de diciembre de 1852, y manda que continúe la subvención asignada á la Iglesia Católica.
 EL CONGRESO CONSTITUCIONAL DE LA REBÚBLICA DE COSTA-RICA,
 Considerando:

@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO No XXI.
+(Esta norma fue derogada por el artículo 1°, inciso 613, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Prorroga el término concedido á los señores Irigoyen y March para establecer un servicio de vapores en el Pacífico.
 LA COMISIÓN PERMANENTE DEL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE COSTA RICA.
 DECRETA:

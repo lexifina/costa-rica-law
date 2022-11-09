@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO No LI.
+(Esta norma fue derogada por el artículo 1°, inciso 677, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 (de 28 de julio.)
 Se autoriza al Poder Ejecutivo para celebrar con Mr. W. J. Field un con- trato sobre Banco Hipotecario.
 EL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE COSTA RICA,

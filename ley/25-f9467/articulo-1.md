@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO No XXV.
+(Esta norma fue derogada por el artículo 1°, inciso 385, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Asigna al Capitán Ruiz una pensión vitalicia, &, &.
 EL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE COSTA-RICA,
 En premio de los dilatados servicios prestados á la patria en la carrera de las armas por el capitán Don Nicolás Ruiz,

@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO No XXXVI.
+(Esta norma fue derogada por el artículo 1°, inciso 397, de la ley N° 10285 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VII parte)")
 Determina el pie de fuerza armada.
 EL CONGRESO CONTITUCIONAL DE LA REPÚBLICA DE COSTA-RICA,
 En uso de la atribución 122 del artículo 73 de la Constitución,
