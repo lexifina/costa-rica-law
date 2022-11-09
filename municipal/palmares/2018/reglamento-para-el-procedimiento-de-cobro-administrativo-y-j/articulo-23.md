@@ -1,4 +1,0 @@
-Artículo 23.-Plazos de los arreglos de pago. La municipalidad podrá suscribir un arreglo de pago con aquellos contribuyentes físicos o jurídicos que posean deudas vencidas, sin importar si se encuentran en cobro administrativo o judicial, siempre que no se haya efectuado la ejecución de la deuda por una vía forzosa y una vez se hayan cumplido con los requisitos establecidos para este fin. Esta facilidad de pago no podrá exceder el plazo de dieciocho meses y se deberán tomar en cuenta las siguientes condiciones:
-a. Los arreglos de pago por deudas menores de medio salario base tendrán un plazo máximo de seis meses para su cancelación.
-b. Los arreglos de pago por deudas de medio salario base y hasta un salario base tendrán un plazo máximo de doce meses para su cancelación.
-c. Los arreglos de pago por deudas mayores a un salario base tendrán un plazo máximo de dieciocho meses para su cancelación.

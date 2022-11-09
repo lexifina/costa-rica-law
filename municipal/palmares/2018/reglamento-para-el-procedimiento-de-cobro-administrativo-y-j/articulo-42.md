@@ -1,1 +1,0 @@
-Artículo 42.- Condonación de honorarios. Procederá únicamente la condonación de los honorarios profesionales cuando así lo haya determinado el abogado director del proceso, el cual lo hará constar mediante nota dirigida al departamento de cobros. Lo anterior aplicará únicamente para el caso de abogados externos contratados.

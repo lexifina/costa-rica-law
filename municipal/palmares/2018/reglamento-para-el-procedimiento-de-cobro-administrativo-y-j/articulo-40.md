@@ -1,3 +1,0 @@
-SECCION II
-Sobre el pago a los abogados de cobro judicial
-Artículo 40.- Pago de honorarios profesionales de los abogados externos. La Municipalidad deberá cancelar los honorarios profesionales del abogado externo de conformidad con el mínimo señalado en el Arancel de Honorarios por Servicios Profesionales de Abogacía y Notariado de Costa Rica, asimismo, respetará el modo de pago establecido en dicho arancel. El profesional en derecho tendrá la responsabilidad a su vez de incorporar en la liquidación final del proceso, los montos que haya recibido por tal concepto, así como las costas procesales.

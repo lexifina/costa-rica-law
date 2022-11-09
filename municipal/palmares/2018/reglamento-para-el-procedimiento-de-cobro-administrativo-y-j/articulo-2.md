@@ -1,1 +1,0 @@
-Artículo 2.-Ámbito de aplicación. Este reglamento será de aplicación obligatoria, tanto para los funcionarios de la Municipalidad de Palmares como para los abogados externos que sean contratados por la municipalidad, para gestionar el cobro judicial de las cuentas vencidas.
