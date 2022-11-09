@@ -1,0 +1,1 @@
+Artículo 12.-El descarte de recursos bibliográficos se lleva a cabo conforme los procedimientos e instructivos vigentes, los cuales deben de tener actualización periódica que garanticen su aplicabilidad.

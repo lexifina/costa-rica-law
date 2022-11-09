@@ -1,0 +1,1 @@
+Artículo 28.-Le corresponde al personal de la Biblioteca atender todas aquellas gestiones administrativas encomendadas o solicitadas por los usuarios internos, externos o autorizados para el cumplimiento de las funciones en una forma eficiente y eficaz.

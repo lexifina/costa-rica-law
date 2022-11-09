@@ -1,0 +1,1 @@
+Artículo 24.-El personal de la Biblioteca está obligado a atender con diligencia y cortesía el servicio solicitado en su ámbito de responsabilidad, así como respetar y hacer respetar los reglamentos y manuales vigentes.

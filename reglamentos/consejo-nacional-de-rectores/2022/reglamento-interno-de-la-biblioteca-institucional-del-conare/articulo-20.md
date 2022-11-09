@@ -1,0 +1,19 @@
+Artículo 20.-La biblioteca brinda los servicios de:
+a) Préstamo a sala: proporciona al usuario el material dentro de las instalaciones de la Biblioteca, este servicio se brinda a usuarios internos, usuarios autorizados y usuarios externos.
+b) Préstamo a oficina: facilita al usuario el material para retirarlo de la biblioteca, sin embargo, debe de permanecer dentro de las instalaciones del CONARE. Este servicio exclusivo para usuarios internos y autorizados, con un plazo de 15 días calendario.
+c) Préstamo a departamento: material que se presta por tiempo prolongado a alguna de las dependencias del CONARE. El superior jerárquico de cada dependencia será el que firme la boleta de préstamo y asumirá la responsabilidad del material recibido. Se podrá cambiar la modalidad de préstamo cuando la demanda del material así lo amerite.
+d) Préstamo a domicilio: pueden optar por este préstamo usuarios internos y usuarios autorizados, con una duración de 15 días calendario, únicamente para atender asuntos de índole laboral.
+e) Resolución de consultas vía telefónica y por correo electrónico: este servicio da trámite a todas las consultas sin importar el medio por el cual el usuario se comunique con la Biblioteca, brindando comodidad y rapidez al obtener la información.
+f) Búsquedas bibliográficas y/o especializadas: estas búsquedas de información se realizan a demanda de los usuarios, de acuerdo con sus intereses y especificaciones.
+g) Archivo vertical: colección de carpetas con la selección de artículos de interés publicados en los periódicos suscritos.
+h) Préstamo de equipo tecnológico: computadores, escáner, pantalla de proyección, conectividad, entre otros, necesarios para apoyar la lectura, investigación y trabajo colaborativo de los usuarios.
+i) Inducción y capacitación al usuario: sobre conocimientos específicos en relación con el uso y funcionamiento de la Biblioteca, así como formación sobre las fuentes de información, métodos y herramientas disponibles para acceder a la misma.
+j) Catálogo referencial en línea: este catálogo brinda las referencias bibliográficas del material que posee la biblioteca del CONARE, y se puede acceder desde el sitio Web de la Biblioteca Digital.
+k) Diseminación Selectiva de la Información: se comunica a los usuarios internos información de interés y las nuevas adquisiciones de acuerdo con los perfiles de usuarios creados.
+l) Solicitud de ISSN e ISBN: gestión del número internacional normalizado ante la Agencia Nacional de ISBN e ISSN para las publicaciones producidas en el CONARE y sus Programas.
+m) Catalogación en la publicación: consiste en la descripción bibliográfica de la obra antes de su publicación, con el objetivo de ser incorporada dentro de la misma. Este servicio está disponible solamente para las obras institucionales.
+n) Documentos a texto completo: colaborar con las dependencias en la conformación de un archivo digital en pdf publicable, con marcadores de texto, tabla de contenido sensibilizado, metadatos internos y restricción de edición.
+o) Biblioteca digital: servicios diseñados y actualizados que responden a las necesidades de información de la comunidad de usuarios 24/7, desde cualquier localidad.
+p) Repositorio Institucional: Herramienta oficial a nivel institucional para el depósito y difusión de publicaciones institucionales, el cual se rige por las Políticas del Repositorio Institucional de CONARE que se encuentren vigentes.
+q) Acceso a Bases de Datos suscritas: se ofrece acceso a bases de datos referenciales y a texto completo, para uso personal. Queda terminantemente prohibido el compartir las credenciales para el acceso a estos recursos.
+r) Sala de trabajo grupal: se utiliza bajo demanda, sin reserva alguna. Pueden ingresar varios usuarios en forma conjunta o individual compartiendo espacio con otros usuarios.

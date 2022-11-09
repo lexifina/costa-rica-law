@@ -1,0 +1,1 @@
+Artículo 25.-Al personal de la Biblioteca le corresponde participar en actividades de capacitación y formación continua en las áreas de bibliotecología y todas aquellas que sean complementarias para el óptimo desarrollo de su quehacer, tanto dentro como fuera de la Institución.

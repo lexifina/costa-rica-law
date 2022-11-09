@@ -1,0 +1,1 @@
+Artículo 13.-Para un correcto descarte de los recursos bibliográficos deben de estar presentes al menos los siguientes elementos: conformación del Comité de descarte, acta firmada, retiro del activo del registro de inscripción y en el catálogo de la Biblioteca, así como del inventario y sistema contable institucional.

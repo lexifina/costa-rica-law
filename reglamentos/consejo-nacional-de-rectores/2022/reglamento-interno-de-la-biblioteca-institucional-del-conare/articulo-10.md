@@ -1,0 +1,1 @@
+Artículo 10.-Los procesos técnicos de los recursos bibliográficos se regulan mediante los procedimientos e instructivos vigentes, los cuales deben de tener actualización periódica que garanticen su aplicabilidad.

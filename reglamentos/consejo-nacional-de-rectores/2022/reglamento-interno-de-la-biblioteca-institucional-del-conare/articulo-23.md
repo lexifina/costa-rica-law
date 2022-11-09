@@ -1,0 +1,1 @@
+Artículo 23.-Los bibliotecólogos deben procurar brindar el más alto nivel de servicio mediante el uso de colecciones apropiadas y organizadas de manera útil, con las políticas de servicio y de circulación justa y equitativa, con respuestas atentas, precisas y expertas a todas las solicitudes de apoyo.

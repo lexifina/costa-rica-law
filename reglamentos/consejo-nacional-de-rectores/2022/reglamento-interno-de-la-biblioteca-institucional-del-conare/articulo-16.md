@@ -1,0 +1,1 @@
+Artículo 16.-El departamento de gestión del Talento Humano comunicará a la Biblioteca el ingreso de los nuevos funcionarios, para el respectivo registro en el sistema de la Biblioteca. Los Directores de Programa deberán indicar periódicamente el nombre y número de identificación de los usuarios autorizados a utilizar los servicios y productos de la Biblioteca.

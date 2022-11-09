@@ -1,0 +1,1 @@
+Artículo 17.-El Departamento de Gestión del Talento Humano, los administradores de Programa o la FunCenat, según corresponda, comunicarán con anticipación a la Biblioteca el cese de labores de los funcionarios, con el propósito de asegurar la cancelación de pendientes con la Biblioteca.

@@ -1,0 +1,1 @@
+Artículo 5º-La Biblioteca forma parte del Sistema Bibliotecario de la Educación Superior Universitaria Estatal de Costa Rica (SIBESE-CR), y como miembro debe de participar de las reuniones y actividades que de su organización susciten.

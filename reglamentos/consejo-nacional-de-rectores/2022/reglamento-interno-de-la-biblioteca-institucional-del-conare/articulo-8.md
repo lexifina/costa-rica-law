@@ -1,0 +1,1 @@
+Artículo 8º-Los formatos de adquisición de información se irán actualizando conforme evolucione la tecnología, siempre que la Biblioteca cuente con las herramientas y dispositivos necesarios para garantizar a los usuarios el acceso a los contenidos.
