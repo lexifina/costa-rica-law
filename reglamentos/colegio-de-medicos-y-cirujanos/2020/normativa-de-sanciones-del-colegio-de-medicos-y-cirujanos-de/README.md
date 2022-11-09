@@ -14,3 +14,4 @@ Normativa de sanciones del Colegio de Médicos y Cirujanos de Costa Rica
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-04-26 | la propia norma |
+| 2 | 2022-11-09 | Reglamento 0 (2022-11-09) |
