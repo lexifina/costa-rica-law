@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO N°13
+(Esta norma fue derogada por el artículo 1°, inciso 121, de la ley N° 10288 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VIII parte)")
 (de 1° de junio)
 Aprueba el Decreto n° 1 de la Comisión Permanente, de 9 de octubre de 1804)
 EL CONGRESO CONSTITUCIONAL DE LA REPUBLICA DE COSTA RICA

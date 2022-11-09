@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO N°. XII.
+(Esta norma fue derogada por el artículo 1°, inciso 47, de la ley N° 10288 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VIII parte)")
 (de 25 de Marzo.)
 Autoriza á la Municipalidad de Santo Domingo para negociar un empréstito
 JOSÉ J. RÓDRÍGUEZ
@@ -7,7 +9,7 @@ Por cuanto la Municipalidad del cantón de Santo Domingo de Heredia en sesiones 
 POR TANTO,
 En uso de facultades extraordinarias y de acuerdo con el artículo 114 de las Ordenanzas Municipales,
 DECRETA:
-Artículo único. —Autorízase á la Municipalidad expresada para negociar un empréstito interior de cincuenta mil pesos, acordado por aquella Corporación, con arreglo á las siguientes bases:
+Artículo único. -Autorízase á la Municipalidad expresada para negociar un empréstito interior de cincuenta mil pesos, acordado por aquella Corporación, con arreglo á las siguientes bases:
 a) El empréstito se emitirá á la par y devengará un interés anual de 6%.
 b) Para la realización de tal empréstito se emitirán cédulas al portador de $100-00 cada una, que pagarán los suscriptores por quintas partes. Con este objeto la Municipalidad hará los llamamientos correspondientes un mes antes del día que señale para el pago de cada cuota. Entre pago y pago y pago deberá mediar un mes por lo menos. De cada pago se dará al suscritor la constancia respectiva por el encargado de la recaudación; y una vez satisfechas las cinco cuotas y mediante la devolución de las constancias ó recibos indicados se otorgará la cédula.
 No comenzará á hacerse efectivo el pago, antes de estar suscrita la quinta parte del total del empréstito.
@@ -15,4 +17,4 @@ c) Para los efectos del último párrafo del inciso anterior, la Municipalidad i
 d) La amortización del capital é intereses se hará por anualidades vencidas, con los productos que desde el día de su completa instalación rinda la empresa. En la primera anualidad, que se pagará al año de instalación la empresa, se comprenderán todos los intereses hasta entonces vencidos y la parte del capital que los productos alcanzaren á cubrir; y así se continuará hasta la completa cancelación del empréstito.
 Desde el día en que la Municipalidad avise por el periódico oficial estar á la orden de los tenedores de cédulas una anualidad, cesarán de corres intereses sobre la parte de capital que se amortice.
 e) No se hará pago de ninguna anualidad sino mediante la presentación de la cédula respectiva y el otorgamiento de un recibo que extenderá y firmará el portador. Además se hará constar al reverso de la cédula, por razón que firmará el tenedor, el pago hecho, con especificación de la cantidad que corresponde al capital y de la que corresponde á intereses.
-Dado en la Casa Presidencial, en San José, á los veinticinco días del mes de Marzo de mil ochocientos noventa y tres. —JOSÉ J. RODRÍGUEZ. —El Secretario de Estado en el despacho de Gobernación, J. VARGAS M.
+Dado en la Casa Presidencial, en San José, á los veinticinco días del mes de Marzo de mil ochocientos noventa y tres. -JOSÉ J. RODRÍGUEZ. -El Secretario de Estado en el despacho de Gobernación, J. VARGAS M.

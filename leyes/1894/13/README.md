@@ -1,6 +1,6 @@
 # Ley de Expulsión de Extranjeros
 
-Ley N° 13 del 1894-06-19. SINALEVI, ficha 37291: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=37291&param2=109400&param3=1>.
+Ley N° 13 del 1894-06-19. SINALEVI, ficha 37291: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=37291&param2=149329&param3=1>.
 
 Publicada en La Gaceta N° 140 del 1894-06-20.
 
@@ -12,3 +12,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 2 de 5 | 1917-08-28 | Ley 22 | 1917-08-28 |
 | 3 de 5 | 1920-08-21 | Ley 41 | 1920-08-21 |
 | 4 de 5 | 1936-11-28 | Ley 28 | 1936-11-28 |
+| 5 de 5 | 2022-11-09 | Ley 10288 | 2022-09-20 |

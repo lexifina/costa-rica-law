@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO N°23
+(Esta norma fue derogada por el artículo 1°, inciso 314, de la ley N° 10288 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VIII parte)")
 (de 23 de junio)
 Aprueba el decreto 7 emitido por la Comisión Permanente el 14 de enero de este año, que contiene el Código de Justicia Militar.
 EL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE COSTA RICA.

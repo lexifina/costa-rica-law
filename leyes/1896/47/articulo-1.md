@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO N°47
+(Esta norma fue derogada por el artículo 1°, inciso 213, de la ley N° 10288 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VIII parte)")
 (de 15 de julio)
 Autoriza al Poder Ejecutivo para hacer los gastos de representación de Costa Rica en la primera Exposición Centroamericana.
 EL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE COSTA RICA

@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO N°5
+(Esta norma fue derogada por el artículo 1°, inciso 287, de la ley N° 10288 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VIII parte)")
 (de 9 de enero)
 Exceptúa únicamente para servir el cargo de jurados en la ciudad de Limón de las personas indicadas en los incisos 1 y 2 del artículo 4 de la ley de 31 de octubre de 1892 y a los empleados de correos y telégrafos.
 LA COMISIÓN PERMANENTE DEL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE COSTA RICA.

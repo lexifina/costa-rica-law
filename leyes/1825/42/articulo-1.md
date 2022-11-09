@@ -1,4 +1,6 @@
+(Derogado)
 Decreto XLII
+(Esta norma fue derogada por el artículo 1°, inciso 1, de la ley N° 10288 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VIII parte)")
 El Jefe Supremo del Estado libre de Costa-rica.
 Por cuanto la Asamblea ha decretado y el Consejo sancionada lo siguiente.
 La Asamblea Ordinaria del Estado libre de Costa-rica: teniendo presente la importancia de los fondos Municipales en los Pueblos, los muchos objetos útiles de que estos carecen por defecto de dichos fondos y entre ellos la Ciudad de Alajuela posé gran número de tierras informes y sin cultivo, ha tenido a bien decretar y decreta.

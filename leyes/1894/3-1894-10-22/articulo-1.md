@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO N° 3
+(Esta norma fue derogada por el artículo 1°, inciso 112, de la ley N° 10288 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VIII parte)")
 (de 22 de octubre)
 Modifica el párrafo 1° del artículo 10 de la Ley de Profilaxis Venérea
 LA COMISIÓN PERMANENTE DEL CONGRESO CONSTITUCIONAL DE COSTA RICA

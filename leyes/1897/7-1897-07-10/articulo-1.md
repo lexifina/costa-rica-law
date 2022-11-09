@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO N°7
+(Esta norma fue derogada por el artículo 1°, inciso 265, de la ley N° 10288 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VIII parte)")
 (de 10 de julio)
 Reglamento de la Escuela Nacional de Bellas Artes
 RAFAEL IGLESIAS

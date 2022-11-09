@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO N°17
+(Esta norma fue derogada por el artículo 1°, inciso 257, de la ley N° 10288 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VIII parte)")
 Aprueba un contrato celebrado el 11 de marzo del corriente año entre el señor Ministro de Fomento y don Francisco Mendiola Boza, Representante de la Compañía de Teléfonos de Costa Rica.
 EL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE COSTA RICA.
 De conformidad con lo dispuesto en la fracción 13° del artículo 73 de la Constitución.

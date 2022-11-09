@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO N° 4
+(Esta norma fue derogada por el artículo 1°, inciso 176, de la ley N° 10288 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VIII parte)")
 (de 14 de octubre)
 Aclara el artículo 3° del decreto n°75 de 31 de julio de 1895, que concede patente de invención y fabricación de la máquina para beneficiar el ramo.
 LA COMISIÓN PERMANENTE

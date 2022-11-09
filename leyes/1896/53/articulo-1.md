@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO N°53
+(Esta norma fue derogada por el artículo 1°, inciso 219, de la ley N° 10288 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VIII parte)")
 (de 24 de julio)
 Dispone que la Asamblea Electoral de Limón proceda a elegir un Diputado.
 EL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE COSTA RICA,

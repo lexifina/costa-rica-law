@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO N°19
+(Esta norma fue derogada por el artículo 1°, inciso 259, de la ley N° 10288 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VIII parte)")
 (de 16 de junio)
 Asigna una pensión la señora Estefanía Salazar, viuda del señor Toribio Artavia.
 EL CONGRESO CONSTUCIONAL DE LA REPÚBLICA DE COSTA RICA

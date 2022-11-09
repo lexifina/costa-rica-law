@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO XXIV
+(Esta norma fue derogada por el artículo 1°, inciso 6, de la ley N° 10288 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VIII parte)")
 Dispone que las medidas de lotes á orillas de la carretera de Carrillo y los no medidos en la zona del ferrocarril se hagan conforme al Código fiscal.
 EL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE COSTA RICA.
 Para obviar las dificultades que presenta la ejecución de la ley número 11 de 20 de julio de 1880; á iniciativa del Poder Ejecutivo,

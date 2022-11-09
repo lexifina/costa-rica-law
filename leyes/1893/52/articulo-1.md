@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO N°. LII.
+(Esta norma fue derogada por el artículo 1°, inciso 76, de la ley N° 10288 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VIII parte)")
 (de 21 de Diciembre.)
 Aprueba un contrato con don Guillermo de Roux.
 JOSÉ J. RODRÍGUEZ,
@@ -6,10 +8,10 @@ PRESIDENTE CONSTITUCIONAL DE LA REPÚBLICA DE COSTA RICA.
 Siendo de conveniencia pública el desarrollo de nuevos cultivos que den la materia prima indispensable para la creación de nuevas industrias que aumentarán la riqueza nacional, á lo cual tiende el contrato celebrado el diez y nueve del corriente entre la Secretaría de Fomento y el señor don Guillermo de Roux,
 En uso de facultades extraordinarias,
 DECRETA:
-Artículo único. —Apruébase definitivamente y en consecuencia téngase por ley de la República el contrato referido, que literalmente dice:
-“José Vargas M., Secretario de Estado en el Despacho de Fomento, competentemente autorizado por el señor Presidente de la República, por una parte, y Guillermo de Roux, mayor de edad, casado, comerciante, natural de Colombia y residente de esta ciudad, por la otra, han celebrado el siguiente contrato:
+Artículo único. -Apruébase definitivamente y en consecuencia téngase por ley de la República el contrato referido, que literalmente dice:
+"José Vargas M., Secretario de Estado en el Despacho de Fomento, competentemente autorizado por el señor Presidente de la República, por una parte, y Guillermo de Roux, mayor de edad, casado, comerciante, natural de Colombia y residente de esta ciudad, por la otra, han celebrado el siguiente contrato:
 I.
-Guillermo de Roux ó su representante legítimo, se compromete á establecer en el país la fabricación de telas, con la fibra del “Agave Americano.” cabulla henequén, ramié ú otras plantas análogas en sus aplicaciones industriales.
+Guillermo de Roux ó su representante legítimo, se compromete á establecer en el país la fabricación de telas, con la fibra del "Agave Americano." cabulla henequén, ramié ú otras plantas análogas en sus aplicaciones industriales.
 II.
 El mismo de Roux se compromete á introducir al país las semillas, maquinarias, útiles y enseres necesarios para el cultivo y beneficio de las plantas expresadas y para la completa instalación de la fábrica.
 III.
@@ -33,7 +35,7 @@ IX.
 No podrá el contratista ceder este contrato á ningún Gobierno extranjero.
 X.
 Las diferencias ó cuestiones que surjan en la ejecución de este contrato serán resueltas por dos árbitros arbitradores, nombrados uno por cada parte. Caso de discordia entre los árbitros, decidirá un tercero que se secará á la suerte entre dos personas nombradas también por cada árbitro. En ningún caso podrá recurrirse á la intervención diplomática.
-En fe de los cual firman los otorgantes en el Palacio Nacional, en San José, á diecinueve de Diciembre de mil ochocientos noventa y tres. —J. Vargas M. —W. de Roux.
-Casa Presencial, San José, diecinueve de Diciembre de mil ochocientos noventa y tres. Apruébase el contrato anterior. —(Hay uua rúbrica). —Rubricado por el señor Presidente. —VARGAS M.”
-Dado en la Casa Presidencial, en San José, á los veintiún días del mes de Diciembre de mil ochocientos noventa y tres. —JOSÉ J. RODRÍGUEZ.
-El Secretario de Estado en el despacho de Fomento, —J. VARGAS M.
+En fe de los cual firman los otorgantes en el Palacio Nacional, en San José, á diecinueve de Diciembre de mil ochocientos noventa y tres. -J. Vargas M. -W. de Roux.
+Casa Presencial, San José, diecinueve de Diciembre de mil ochocientos noventa y tres. Apruébase el contrato anterior. -(Hay uua rúbrica). -Rubricado por el señor Presidente. -VARGAS M."
+Dado en la Casa Presidencial, en San José, á los veintiún días del mes de Diciembre de mil ochocientos noventa y tres. -JOSÉ J. RODRÍGUEZ.
+El Secretario de Estado en el despacho de Fomento, -J. VARGAS M.

@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO N°18
+(Esta norma fue derogada por el artículo 1°, inciso 258, de la ley N° 10288 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VIII parte)")
 Permite la importación de varias mercaderías por los ríos San Juan y Colorado.
 EL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE COSTA RICA.
 Considerando:

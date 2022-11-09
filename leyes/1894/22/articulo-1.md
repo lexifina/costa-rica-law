@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO N°22
+(Esta norma fue derogada por el artículo 1°, inciso 97, de la ley N° 10288 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VIII parte)")
 (de 28 de julio)
 Manda hacer el estudio de un camino
 entre Sipurio y San Bernardo y el Ferrocarril de Limón al río Banano)

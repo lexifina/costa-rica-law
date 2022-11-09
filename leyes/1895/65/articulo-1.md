@@ -1,11 +1,13 @@
+(Derogado)
 DECRETO N°65
+(Esta norma fue derogada por el artículo 1°, inciso 149, de la ley N° 10288 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VIII parte)")
 (de 23 de julio)
 Aprueba el contrato de comunicación cablegrafía celebrado con dos Francisco Mendiola Boza.
 EL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE COSTA RICA.
 Considerando: que es una necesidad para el país el establecimiento de una línea cablegrafía que lo ponga en relación con las nociones mas importantes de este y demás continentes.
 DECRETA
 Artículo único: Apruébase el contrato celebrado el día doce de marzo del corriente año entre el señor Secretario de Fomento, autorizado por el señor Presidente de la República y el señor don Francisco Mendiola Boza, sobre establecimiento de comunicación cablegráfico entre esta República y los Estados más importantes del mundo, el cual, las modificaciones introducidas por la Cámara, literalmente dice:
-“ Juan J. Ulloa Secretario de Estado en el despacho de Fomento, autorizado por el señor Presidente de la República y Francisco Mendiola Boza, mayor de edad, casado, empresario y natural de Cuba, han convenido en el siguiente
+" Juan J. Ulloa Secretario de Estado en el despacho de Fomento, autorizado por el señor Presidente de la República y Francisco Mendiola Boza, mayor de edad, casado, empresario y natural de Cuba, han convenido en el siguiente
 CONTRATO
 I
 Mendiola Boza se compromete a establecer por una de las dos costas de la República, comunicación cablegráfica, entre ésta y los Estados Unidos de Norte América. Es entendidos que Costa Rica, quedará comunicada por medio de este cable con todos los demás países del mundo que tienen oficinas cablegráficas establecidas.

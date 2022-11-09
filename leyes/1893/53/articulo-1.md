@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO N°. LIII
+(Esta norma fue derogada por el artículo 1°, inciso 77, de la ley N° 10288 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VIII parte)")
 (de 23 de Diciembre.)
 Prorroga el término para el cumplimiento de un contrato.
 JOSÉ J. RODRÍGUEZ.
@@ -7,6 +9,6 @@ Por cuanto el señor Charles Kurtz, concesionario del privilegio para fabricar h
 Habiendo vencido ya el término primeramente concedido, y transcurrido también el tiempo durante el cual la prórroga debió hacerse efectiva; pero estando la empresa lista para comenzar sus trabajos,
 En uso de facultades extraordinarias,
 DECRETA:
-Artículo único. —Concédase un nuevo término de tres meses contaderos desde hoy, al citado señor Kurtz, para tener definitivamente instalada dicha empresa y poder gozar, en consecuencia, del privilegio otorgado, el cual se contará desde el día 14 de Agosto último; y autorizase al concesionario para ceder su concesión á la Sociedad “Joseph-Kurtz.”
-Dado en la Casa Presidencial, en San José, á los veintitrés días del mes de Diciembre de mil ochocientos noventa y tres. —JOSÉ J. RODRÍGUEZ.
-El Secretario de Estado en el Despacho de Fomento, —J. VARGAS M.
+Artículo único. -Concédase un nuevo término de tres meses contaderos desde hoy, al citado señor Kurtz, para tener definitivamente instalada dicha empresa y poder gozar, en consecuencia, del privilegio otorgado, el cual se contará desde el día 14 de Agosto último; y autorizase al concesionario para ceder su concesión á la Sociedad "Joseph-Kurtz."
+Dado en la Casa Presidencial, en San José, á los veintitrés días del mes de Diciembre de mil ochocientos noventa y tres. -JOSÉ J. RODRÍGUEZ.
+El Secretario de Estado en el Despacho de Fomento, -J. VARGAS M.

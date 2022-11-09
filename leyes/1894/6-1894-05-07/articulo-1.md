@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO No 6
+(Esta norma fue derogada por el artículo 1°, inciso 81, de la ley N° 10288 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (VIII parte)")
 Elige Conjueces de la Corte Suprema de Justicia
 EL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE COSTA RICA
 De conformidad con lo que dispone el artículo 128 de la Constitución.
