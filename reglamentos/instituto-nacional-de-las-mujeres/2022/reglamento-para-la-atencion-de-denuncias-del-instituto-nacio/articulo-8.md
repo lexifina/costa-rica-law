@@ -1,0 +1,1 @@
+Artículo 8º-De las denuncias anónimas. Se dará trámite a las denuncias que sean presentadas siempre y cuando las mismas cumplan con todos los requisitos establecidos en el artículo 6, incisos a, b y c del presente reglamento. En caso contrario, la Auditoría Interna dispondrá su archivo sin más trámite.

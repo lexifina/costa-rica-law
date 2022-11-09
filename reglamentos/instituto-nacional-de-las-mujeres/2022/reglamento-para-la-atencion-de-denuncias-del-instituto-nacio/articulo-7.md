@@ -1,0 +1,1 @@
+Artículo 7º-Información adicional. En caso de que resulte necesario se le podrá solicitar a la persona denunciante, información complementaria relacionada con personas que funjan como posibles testigos y el lugar o medio para localizarlas, además de otras pruebas que se consideren convenientes para la investigación.
