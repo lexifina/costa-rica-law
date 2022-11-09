@@ -1,0 +1,7 @@
+10306
+LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA
+DECRETA:
+AUTORIZACIÓN PARA LA DONACIÓN DE UN BIEN INMUEBLE DEL
+MINISTERIO DE EDUCACIÓN PÚBLICA A LA MUNICIPALIDAD
+DE VÁZQUEZ DE CORONADO
+ARTÍCULO 1- Se autoriza al Ministerio de Educación Pública (MEP), en la figura de la Junta de Educación Las Nubes de Coronado, cédula jurídica número tres- cero cero ocho - uno cero ocho ocho dos cinco (3-008-108825), quien según certificación es el propietario registra! del terreno, para que done a la Municipalidad de Vásquez de Coronado, cédula jurídica número tres- cero uno cuatro- cero cuatro cinco uno cuatro nueve- dos ocho (3-014-045149-28), el inmueble de su propiedad inscrito en el Registro Público de la Propiedad, bajo el sistema de folio real matrícula número tres ocho nueve nueve cuatro nueve- cero cero cero (N. º 389949-000), terreno destinado a área comunal con una escuela vieja y una plaza; situado en el distrito 2, San Rafael; cantón 11, Vázquez de Coronado, de la provincia de San José. Sus linderos son: al norte con Zeneida Fernández Gutiérrez; al sur con calle pública 22,76 y otro; al este con Zeneida Fernández Gutiérrez y al oeste con calle pública con dieciocho metros con dos decímetros (18,02m) de frente. El terreno mide cinco mil cuatrocientos treinta y un metros con cincuenta y cuatro decímetros cuadrados (5431,54 m2); con plano catastrado número SJ - cero siete ocho siete cuatro nueve siete - uno nueve ocho nueve (SJ-0787497-1989).

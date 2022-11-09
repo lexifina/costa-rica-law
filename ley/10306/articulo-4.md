@@ -1,0 +1,1 @@
+ARTÍCULO 4- La Municipalidad de Vázquez de Coronado podrá establecer convenios, cartas de entendimiento u otros mecanismos legales con asociaciones de desarrollo u otros grupos organizados, para lograr los fines de esta ley.
