@@ -1,0 +1,1 @@
+Artículo 6°-Superior jerárquico. El superior jerárquico de la Auditoría Interna, es el Auditor Interno, quien tiene a la dirección superior y administración de ésta. En sus ausencias temporales le sustituirá, con todas sus competencias, el funcionario que este designe.

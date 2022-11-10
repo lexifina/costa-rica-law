@@ -1,0 +1,1 @@
+Artículo 22.-Informes de Auditoría. Los Informes de Auditoría Interna serán confeccionados, de conformidad con las normas que emita la Contraloría General de la República, y buenas prácticas internacionales.

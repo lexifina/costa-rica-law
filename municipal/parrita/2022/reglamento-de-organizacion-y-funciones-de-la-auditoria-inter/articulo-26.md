@@ -1,0 +1,1 @@
+Artículo 26.-Denuncias. Las denuncias que se interpongan ante la Auditoría Interna, serán tramitadas conforme los requisitos que indiquen los Lineamientos para la atención de denuncias presentadas ante la Contraloría General de la República (R-DC-82-2020), y el Reglamento de Atención de Denuncias Planteadas ante la Auditoría Interna de la Municipalidad de Parrita.

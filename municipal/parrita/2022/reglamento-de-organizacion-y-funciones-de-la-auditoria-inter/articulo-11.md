@@ -1,0 +1,4 @@
+Artículo 11.-Prohibiciones del personal de la Auditoría Interna. El personal de la Auditoría Interna, debe tener presente los impedimentos y prohibiciones contemplados:
+1. Ser parte de grupos de trabajo o comisiones que ejerzan funciones propias de la Administración Activa, se debe tener en cuenta que la eventual participación será? exclusivamente en su función de asesor, en asuntos de su competencia y nunca podrá tener una participación permanente.
+2. Aceptar beneficios de cualquier naturaleza de personas tanto de la Municipalidad como de terceros relacionados, que estén siendo o puedan ser objeto de un estudio por parte de la Auditoría.
+3. Exponerse a riesgos de liquidez que atente contra su objetividad a la hora de desarrollar su trabajo a cambio de recibir dineros o regalos por parte personal de la Municipalidad o externos a esta.

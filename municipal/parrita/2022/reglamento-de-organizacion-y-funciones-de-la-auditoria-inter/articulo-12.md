@@ -1,0 +1,1 @@
+Artículo 12.-Apoyo administrativo, técnico y jurídico. Todas las dependencias administrativas de la Municipalidad de Parrita, y en especial la Asesoría Legal, están obligados a brindar en forma oportuna y efectiva el apoyo necesario para que la Auditoría Interna pueda desempeñar sus funciones.

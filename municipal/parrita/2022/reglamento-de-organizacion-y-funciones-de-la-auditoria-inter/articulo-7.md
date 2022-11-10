@@ -1,0 +1,4 @@
+Artículo 7°-Organización de la Auditoría Interna. Es responsabilidad del Auditor Interno, disponer de una estructura organizativa que le garantice el cumplimiento eficaz y eficiente los objetivos de la Auditoría y el cumplimiento de sus obligaciones legales y técnicas.
+Los funcionarios de la Auditoría Interna, estarán sujetas a las disposiciones administrativas aplicables al resto del personal de la Municipalidad de Parrita; sin embargo, el nombramiento, traslado, la suspensión, remoción, concesión de licencias y demás movimientos de personal, deberán contar con la autorización del Auditor Interno.
+Además, la oficina de Recursos Humanos deberá informar y coordinar con el Auditor Interno los procesos de reclutamiento y selección del personal a nombrar en la Auditoría.
+Los funcionarios de la Auditoría Interna ejercerán sus atribuciones con total independencia funcional y de criterio respecto del jerarca y de los demás órganos de la administración activa.

@@ -1,0 +1,1 @@
+Artículo 25.-Comunicación de los servicios preventivos. La comunicación de los servicios preventivos, como advertencias y otros, se realizarán a criterio del Auditor Interno, quien definirá su contenido y los medios idóneos para su respectiva comunicación, en razón de la naturaleza de los asuntos a que se refiera y en atención su criterio profesional.

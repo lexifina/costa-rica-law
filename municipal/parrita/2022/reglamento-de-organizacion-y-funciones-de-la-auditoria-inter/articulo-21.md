@@ -1,0 +1,1 @@
+Artículo 21.-Plan Anual de Trabajo. La Auditoría Interna confeccionará su Plan Anual de Trabajo, basado en el Universo Auditable, el cual podrá ser modificado a criterio del Auditor Interno, de previa comunicación al Concejo Municipal.

@@ -1,0 +1,2 @@
+Artículo 3°-Ámbito de aplicación. El presente Reglamento es de carácter obligatorio para todos los funcionarios de la Auditoría interna, y para funcionarios de la administración activa en la materia que les resulte aplicable.
+La formulación, modificación, aprobación y promulgación de este Reglamento, se realizará conforme a la normativa dispuesta por la Contraloría General de la República, y la administración activa se encuentra imposibilitada de modificarlo sin previo consentimiento y aprobación del Auditor Interno.

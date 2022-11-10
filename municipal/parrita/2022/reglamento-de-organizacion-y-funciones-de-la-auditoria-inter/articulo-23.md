@@ -1,0 +1,1 @@
+Artículo 23.-Comunicación de resultados. La Auditoría Interna deberá comunicar los resultados de los hallazgos, las conclusiones y recomendaciones o disposiciones de los estudios, en la forma y oportunidad que resulten pertinentes mediante informes escritos.

@@ -1,0 +1,1 @@
+Artículo 18.-Gestión documental. La Auditoría Interna deberá dispones de las políticas para la adecuada conservación y disposición de la información, el manejo de los archivos y de los flujos de documentos hacia lo interno y externo de la Auditoría, así como la custodia de la información y documentación física o digital.
