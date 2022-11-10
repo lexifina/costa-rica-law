@@ -14,3 +14,4 @@ Reglamento de la Comisión en materia de discapacidad del Tribunal Supremo de El
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-12-05 | la propia norma |
+| 2 | 2022-11-10 | Decreto TSE 11 (2022-11-10) |
