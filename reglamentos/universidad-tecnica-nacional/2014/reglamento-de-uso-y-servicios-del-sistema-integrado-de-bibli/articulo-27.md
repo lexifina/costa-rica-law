@@ -1,5 +1,4 @@
-CAPÍTULO VI.
-DE LA ADQUISICIÓN DE MATERIALES DOCUMENTALES
+CAPÍTULO VI. DE LA ADQUISICIÓN DE MATERIALES DOCUMENTALES
 Artículo 27. Adquisición de material documental.
 1. La selección de material documental es responsabilidad de la persona encargada de la Biblioteca previa solicitud de directores de carrera, profesores con la autorización del director de carrera, Directores de Investigación, Vicerrectores y encargados de Bibliotecas.
 2. Las listas de recomendación de material documental para comprar deben contener al menos los siguientes datos: autor, año de publicación, título, edición, editorial, ISBN.

@@ -1,6 +1,5 @@
-CAPÍTULO II.
-DE LOS USUARIOS
-Artículo 3. Clases de Usuarios.
+CAPÍTULO II. DE LOS USUARIOS
+Artículo 3. Clases de usuarios.
 Tienen derecho a utilizar los servicios brindados por la Biblioteca las siguientes personas.
 1. Personal académico y administrativo de la UTN.
 2. Estudiantes activos de la UTN.

@@ -2,7 +2,7 @@ UNIVERSIDAD TÉCNICA NACIONAL
 CONSEJO UNIVERSITARIO
 El Consejo Universitario de la Universidad Técnica Nacional informa sobre la aprobación de los siguientes reglamentos:
 3. Reglamento de Uso y Servicios del Sistema Integrado de Bibliotecas y Recursos Digitales (SIBIREDI-UTN), aprobado mediante acuerdo N° 97-2014 del 17 de julio de 2014, Acta 14-2014.
-La normativa arriba indicada se encuentra en su versión completa y actualizada en el portal electrónico de la Universidad Técnica Nacional www.utn.ac.cr, sección “Normativa Universitaria”.
+La normativa arriba indicada se encuentra en su versión completa y actualizada en el portal electrónico de la Universidad Técnica Nacional www.utn.ac.cr, sección "Normativa Universitaria".
 Rige a partir de su publicación.
 (Nota de Sinalevi: La presente norma se extrajo del sitio web de la Universidad Técnica Nacional, y se transcribe a continuación:)
 Sistema Integrado de Bibliotecas y Recursos Digitales
@@ -54,6 +54,6 @@ Artículo 29. Fuentes supletorias. .............................................
 Artículo 30. Vigencia. ...............................................................................................................13
 CAPÍTULO I.
 DISPOSICIONES GENERALES
-Artículo 1. Naturaleza y Objetivo:
-El presente Reglamento contiene las disposiciones que regirán las actividades del Sistema Integrado de Bibliotecas y Recursos Digitales de la Universidad Técnica Nacional en lo sucesivo SIBIREDI el que dependerá técnica y funcionalmente del Área de Investigación.
-“Reformado según acuerdo ACUERDO 91-2013 de la Sesión Ordinaria N° 45 del Consejo Universitario, celebrada el jueves 16 de mayo del 2013, Acta N°. 13-2013.
+(Nota de Sinalevi: Este reglamento fue reformado parcialmente y reproducido su texto de forma íntegra mediante sesión ordinaria Nº 29-2022 del 10 de noviembre de 2022, publicado en La Gaceta N° 233 del 7 de diciembre del 2022 y se transcribe a continuación:)
+Artículo 1. Naturaleza y objetivo:
+El presente Reglamento contiene las disposiciones que regirán las actividades del Sistema Integrado de Bibliotecas y Recursos Digitales de la Universidad Técnica Nacional en lo sucesivo SIBIREDI el que dependerá técnica y funcionalmente del Área de Investigación. "Reformado según acuerdo ACUERDO 91-2013 de la Sesión Ordinaria N° 45 del Consejo Universitario, celebrada el jueves 16 de mayo del 2013, Acta N°. 13-2013.

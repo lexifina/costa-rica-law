@@ -1,2 +1,2 @@
-Artículo 8. Boletas de Control de Préstamo.
+Artículo 8. Boletas de control de préstamo.
 Toda persona que solicite el préstamo de material documental (documentos electrónicos, documentos en papel, recursos audiovisuales) deberá completar una boleta de control de préstamos que contiene la siguiente información: número de clasificación, número de inscripción, autor, título, y volumen, número, mes y año en el caso de que sea una publicación periódica, los datos personales del usuario, la fecha de préstamo y la fecha de devolución, el código de quién presta el documento, y la firma de quien solicite el préstamo.

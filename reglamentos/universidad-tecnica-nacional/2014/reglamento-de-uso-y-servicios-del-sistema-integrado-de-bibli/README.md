@@ -14,3 +14,4 @@ Reglamento de Uso y Servicios del Sistema Integrado de Bibliotecas y Recursos Di
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-07-17 | la propia norma |
+| 2 | 2022-11-10 | Reglamento 29 (2022-11-10) |
