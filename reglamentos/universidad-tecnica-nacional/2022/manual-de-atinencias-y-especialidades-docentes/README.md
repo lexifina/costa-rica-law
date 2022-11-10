@@ -14,3 +14,4 @@ Manual de atinencias y especialidades docentes
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-06-02 | la propia norma |
+| 2 | 2022-11-10 | Reglamento 29 (2022-11-10) |
