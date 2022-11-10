@@ -1,0 +1,1 @@
+Transitorio 1°-La Dirección de Medicamentos Veterinarios contará con un plazo de seis meses a partir de la entrada en vigencia de la presente resolución para realizar los ajustes en la plataforma SIMEV, el cumplimiento de lo anterior queda sujeto a que exista la disponibilidad presupuestaria en el SENASA para efectuar dichos ajustes.

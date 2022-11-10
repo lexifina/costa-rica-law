@@ -1,0 +1,2 @@
+Transitorio 3°-Permitir por un plazo de tres años la importación del ingrediente activo norfloxacina, Penicilina G Benzatínica únicamente para la fabricación de productos solo para exportación que hasta la fecha se hayan producido en el país. Igualmente, por ese plazo se permitirá el registro de productos que contengan esos principios activos, siempre y cuando se trate de productos exclusivos para la exportación.
+3°-Rige a partir del de su publicación en el Diario Oficial La Gaceta. Publíquese igualmente en la página web del SENASA.
