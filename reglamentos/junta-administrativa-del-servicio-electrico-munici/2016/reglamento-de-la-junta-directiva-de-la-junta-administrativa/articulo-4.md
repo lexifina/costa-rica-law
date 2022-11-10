@@ -8,6 +8,6 @@ f) Vigilar el orden de las sesiones y hacer retirar de ellas, a quienes hayan si
 g) Firmar las actas firmes de las sesiones.
 h) Someter a votación el nombre de los señores Directores integrantes de comisiones y señalar el plazo para rendir los respectivos informes y dictámenes.
 i) Acordar recesos de las sesiones.
-j) Recibir y resolver sobre las solicitudes de permisos de ausencia que se hayan presentado de acuerdo con lo establecido en el presente reglamento
-k) Convocar a sesiones extraordinarias
+j) Recibir y resolver sobre las solicitudes de permisos de ausencia que se hayan presentado de acuerdo con lo establecido en el presente reglamento.
+k) Convocar a sesiones extraordinarias.
 l) Otros asuntos que puedan resultar de su competencia y que no riñan con las disposiciones del presente reglamento y demás normativa aplicable.

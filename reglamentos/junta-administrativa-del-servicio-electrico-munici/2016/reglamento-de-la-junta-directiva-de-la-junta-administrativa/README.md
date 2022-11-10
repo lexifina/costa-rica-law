@@ -14,3 +14,4 @@ Reglamento de la Junta Directiva de la Junta Administrativa del Servicio Eléctr
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-07-13 | la propia norma |
+| 2 | 2022-11-10 | Reglamento 53 (2022-11-10) |
