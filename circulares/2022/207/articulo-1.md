@@ -1,0 +1,20 @@
+CIRCULAR N° 207-2022
+ASUNTO: Reiteración de la circular N°63-2022 sobre "Obligatoriedad de mantener las fases de los expedientes actualizadas"
+A TODOS LOS DESPACHOS JUDICIALES DEL PAÍS
+QUE CONOCEN MATERIA DE VIOLENCIA DOMÉSTICA
+SE LES HACE SABER QUE:
+El Consejo Superior del Poder Judicial en sesión N° 87-2022 celebrada el 06 de octubre del 2022, artículo LXII, dispuso reiterar la circular 63-2022 del 18 de abril de 2022 a solicitud de la Comisión Permanente para el Seguimiento de la Atención y Prevención de la Violencia Intrafamiliar; en la que se hizo de conocimiento el oficio N° 06-CVI-2022 del 7 de marzo de 2022 de la citada Comisión, el cual hace referencia a fases de los expedientes en la materia, las cuales se resumen a continuación, a fin de que se mejore la recolección de información y se estandarice a nivel nacional los datos que se registran, facilitando el análisis y mejorando los controles que debe llevar las oficinas.
+1) Informar a los Juzgados de Violencia Doméstica que es su obligación mantener los expedientes actualizados en los sistemas, incluyendo las cuatro fases que existen en materia de Violencia Doméstica a saber:
+. Inicial o demanda: Inicio del proceso judicial, el sistema la asigna automáticamente. Se llevan a cabo las alegaciones de las partes y se resuelven las cuestiones interlocutorias previas a la prueba.
+Se utiliza desde que se creó la carpeta hasta la redacción del señalamiento a audiencia.
+Aquí también se ubican los expedientes cuando están a la espera de notificar a la parte la realización de la audiencia o algún trámite en donde la notificación ha sido infructuosa y ya se agotaron las posibilidades (estado archivo provisional hasta por un año). Sino aparece el prevenido se cierra por el motivo de término "levantamiento de medida por transcurso del tiempo sin notificar".
+. Demostrativa: Corresponde a la fase en la cual se llevan a cabo todos los actos procesales relativos a la prueba ordinaria. Desde el señalamiento a la audiencia hasta el momento que el expediente se ubica en "Exp listo para fallar-Sentencia Vd"
+. Conclusiva: Etapa procesal que se inicia a partir del momento que el expediente se encuentra listo para dictar sentencia, incorporado en la tarea "Exp. Listo para dictar fallar-Sentencia VD" siguiendo con el dictado de la sentencia de primera instancia. Durante el período que el expediente se pasa a fallo, se dicta sentencia y esta adquiere firmeza (3 días).
+Aquí se mantienen las carpetas cuando cesan las medidas (tipo de resolución: levantamiento de medida de protección) que no pasa a fase de seguimiento porque se cierra la carpeta por el motivo de término "Levanta medida (no constituye violencia intrafamiliar)".
+Los procesos de rechazo de medidas pasan de fase inicial a conclusiva y se cierra por el motivo de término "Rechazo adportas (Orden de Archivo)".
+. Seguimiento: Dar seguimiento al cumplimiento de las medidas en firme. Los procesos con sentencia que ordena seguimiento y se encuentren en alzada, también se ubican en esta fase. Luego el expediente se termina con motivo de término "Levanta medida por vencimiento de un año plazo".
+Los expedientes en donde no hay oposición a la medida de protección pasa directamente de la fase inicial a seguimiento.
+2) Informar a los Juzgados que conocen la materia de Violencia Doméstica y las Jueces y Jueces Coordinadores que deben asegurarse de que los expedientes se actualicen correctamente y cualquier corrección necesaria se realice en los primeros 5 días del mes junto con la revisión del informe de inconsistencias."
+De conformidad con la circular N°67-09 emitida por la Secretaría de la Corte el 22 de junio de 2009, se le comunica que en virtud del principio de gratuidad que rige esta materia, la publicación está exenta de todo pago de derechos.
+Publíquese una sola vez en el Boletín Judicial.
+San José, 10 de noviembre de 2022.
