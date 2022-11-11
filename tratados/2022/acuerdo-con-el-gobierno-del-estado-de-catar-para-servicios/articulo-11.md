@@ -1,0 +1,3 @@
+ARTÍCULO 11
+Suministro de Estadísticas
+Las Autoridades Aeronáuticas de una Parte Contratante deberán proporcionar a las Autoridades Aeronáuticas de la otra Parte Contratante a petición propia, o causa, sus líneas aéreas designadas para suministrar tales estados periódicos de estadísticas o de otro tipo que puedan ser razonablemente necesarios con el propósito de revisar la capacidad ofrecida en los servicios acordados por la línea aérea designada de la Parte Contratante mencionada primero en el presente Artículo. Dichos estados deberán incluir toda la información necesaria para determinar la cantidad de tráfico transportado por aquellas líneas aéreas indicadas en los servicios acordados, así como los orígenes y destinos de dicho tráfico.

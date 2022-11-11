@@ -1,0 +1,4 @@
+ARTÍCULO 10
+Aprobación de los Horarios
+1. Las Líneas Aéreas designadas por cada Parte Contratante deberán presentar, para su aprobación, a la Autoridad Aeronáutica de la otra Parte Contratante, al menos 30 días antes de la inauguración de sus servicios, los horarios de los servicios previstos, especificando la frecuencia, el tipo de aeronave y el período de validez. Este requisito también se aplicará para cualquier modificación de los mismos.
+2. Si una Línea Aérea designada desea operar vuelos ad-hoc complementarios a los contemplados en los horarios aprobados, dicha línea aérea deberá solicitar autorización previa de la Autoridad Aeronáutica de la Parte Contratante involucrada, quien deberá considerar de manera positiva y favorable dicha solicitud, de conformidad con sus requerimientos nacionales.

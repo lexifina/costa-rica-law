@@ -1,0 +1,5 @@
+ARTÍCULO 16
+Aplicabilidad de la Legislación Nacional
+1. Las leyes y reglamentos de una Parte Contratante en lo relativo a la admisión en o salida de su territorio de pasajeros y tripulación o carga de aeronaves, tales como las regulaciones relacionadas al ingreso, despacho, inmigración, pasaportes, aduanas, moneda, salud y cuarentena serán cumplidas con o por cuenta de dichos pasajeros, tripulación o carga, al ingreso en, salida de, o mientras permanece en el territorio de la Parte Contratante.
+2. Las leyes y reglamentos de una Parte Contratante en lo relativo a la admisión en o salida de su territorio de una aeronave dedicada a la navegación aérea internacional, o para la operación y navegación de dicha aeronave, se aplicarán a las aeronaves de la otra Parte Contratante mientras se encuentre en su territorio.
+3. Las autoridades competentes de una Parte Contratante tendrán el derecho, sin retrasos injustificados, de registrar la aeronave de la otra Parte Contratante al momento del aterrizaje o en la salida y de inspeccionar el certificado y los otros documentos prescritos por el Convenio.
