@@ -1,0 +1,1 @@
+Artículo 3º-El incumplimiento de las disposiciones establecidas en el presente Decreto Ejecutivo, dará lugar a la aplicación de las sanciones que señala la Ley Nº 5395 del 30 de octubre de 1973 "Ley General de Salud" y la Ley Nº 7554 del 04 de octubre de 1995 "Ley Orgánica de Ambiente", sin perjuicio del resto de sanciones establecidas en la legislación nacional.
