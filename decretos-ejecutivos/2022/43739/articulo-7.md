@@ -1,0 +1,1 @@
+Artículo 7º-Alcance de la Comisión. El alcance de la CIEV cubre a todas las personas funcionarias del Ministerio de Relaciones Exteriores y Culto. La CIEV no constituye un Tribunal de Ética ni ningún tipo de órgano disciplinario. Cualquier asunto en materia disciplinaria o legal deberá resolverse por las vías correspondientes.
