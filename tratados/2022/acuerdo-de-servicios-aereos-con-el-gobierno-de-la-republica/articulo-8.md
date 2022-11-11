@@ -1,0 +1,3 @@
+ARTÍCULO 8
+TRÁNSITO DIRECTO
+Con sujeción a las leyes y reglamentos de cada Parte Contratante, pasajeros, equipaje, carga y correo en tránsito directo a través del territorio de una Parte Contratante sin salir de la zona del aeropuerto reservada a tal efecto sólo estarán sujetos a un control muy simplificado excepto en el caso de medidas de seguridad contra la violencia, los piratas del aire y el tráfico ilícito de sustancias psicotrópicas y narcóticos. Dicho equipaje, carga y correo estará exento de aduanas, el ejercicio y funciones similares, las tarifas y los cargos no basados en el costo de los servicios prestados a la llegada.

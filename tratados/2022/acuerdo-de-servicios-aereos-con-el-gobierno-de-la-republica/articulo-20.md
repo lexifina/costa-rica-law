@@ -1,0 +1,4 @@
+ARTÍCULO 20
+PRESENTACIÓN DE ITINERARIOS
+1. La línea aérea designada (s) de cada Parte Contratante deberá presentar sus itinerarios de vuelo proyectados para la aprobación de las autoridades aeronáuticas de la otra Parte Contratante en cada período horario (verano e invierno) al menos treinta (30) días antes de la operación de los servicios convenidos.
+2. Para vuelos complementarios que la empresa aérea designada de una Parte Contratante desee operar en los servicios convenidos fuera del itinerario de vuelo aprobado, la línea aérea tiene que solicitar autorización previa de las autoridades aeronáuticas de la otra Parte Contratante. Dichas solicitudes se presentarán de acuerdo con las leyes y reglamentos nacionales de las Partes Contratantes. El mismo procedimiento se aplicará a cualquier modificación del mismo.

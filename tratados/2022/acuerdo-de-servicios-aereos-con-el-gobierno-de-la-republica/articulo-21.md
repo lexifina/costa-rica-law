@@ -1,0 +1,3 @@
+ARTÍCULO 21
+ESTADÍSTICAS
+Las autoridades aeronáuticas de cualquiera de las Partes Contratantes deberán facilitar a las autoridades aeronáuticas de la otra Parte Contratante a petición de éstas, estados periódicos de estadísticas o de otro tipo que puedan ser razonablemente necesarios con el propósito de revisar la capacidad ofrecida en los servicios convenidos por las líneas aéreas designadas de la primera Parte Contratante. Estas declaraciones deberán incluir toda la información necesaria para determinar la cantidad de tráfico transportado por la línea aérea en los servicios convenidos y el origen y destino de dicho tráfico.
