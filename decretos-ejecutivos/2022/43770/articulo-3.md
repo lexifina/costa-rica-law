@@ -1,0 +1,1 @@
+Artículo 3º-Deróguese los Transitorios 3, 4, 5, 6, 7 y 8 del Decreto Ejecutivo N°40862-MEP de fecha 12 de enero del año 2018, denominado Reglamento de Evaluación de los Aprendizajes, publicado en La Gaceta N°22 del 06 de febrero del 2018.
