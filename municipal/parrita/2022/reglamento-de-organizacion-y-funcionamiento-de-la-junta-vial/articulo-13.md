@@ -1,0 +1,3 @@
+CAPÍTULO VI
+Del directorio
+Artículo 13.-Para organizar su función deliberativa y parlamentaria, la Junta Vial tendrá un Directorio compuesto por un(a) presidente, que siempre recaerá en el(la) titular de la Alcaldía, un(a) vicepresidente y un(a) secretario(a). Para esos efectos, en la primera sesión, se eligirá quien ostentará el puesto de vicepresidente y se hará de conocimiento del Órgano Colegiado el(la) secretario(a), que corresponderá a un auxiliar administrativo de planta de la dependencia técnica encargada de la Gestión Vial Municipal, quien estará nombrado a tiempo completo y tendrá definidas de forma clara dentro de sus funciones todas las que correspondan a la secretaría propia de la Junta Vial.

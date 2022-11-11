@@ -1,0 +1,1 @@
+Artículo 35.-Las actas deberán constar en un "Libro de Actas", compuesto de hojas removibles o encuadernadas, con folios numerados consecutivamente. Dicho libro de actas será debidamente autorizado por la Auditoría Interna de conformidad con el artículo 22 inciso e) de la Ley de Control Interno Nº 8292 vigente, y sus reformas.

@@ -1,0 +1,1 @@
+Artículo 33.-Para la elaboración de las actas el (la) Secretario (a) podrá ser asistido por el personal administrativo de la dependencia técnica encargada de la Gestión Vial Municipal, en su condición de Secretaría Técnica.

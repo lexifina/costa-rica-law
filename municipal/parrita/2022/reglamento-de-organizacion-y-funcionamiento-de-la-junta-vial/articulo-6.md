@@ -1,0 +1,1 @@
+Artículo 6º-Las personas integrantes de la Junta Vial Cantonal, para resultar legitimados como tales deben de ostentar de miembros o funcionarios del órgano, institución o sector que representan, de forma tal que acabada esa condición igualmente por derivación se extingue la presentación.
