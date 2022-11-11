@@ -1,0 +1,7 @@
+ARTICULO 20
+FLEXIBILIDAD OPERACIONAL
+1. Cada aerolínea designada podrá en las operaciones de los servicios autorizados por este Acuerdo, utilizar sus propias aeronaves o aeronaves que hayan sido arrendadas, fletadas, o intercambiadas a través de un contrato celebrado entre líneas aéreas de ambas Partes o de terceros países, en cumplimiento de las normas y regulaciones de cada Parte, contrato que deberá ser presentado a las autoridades de ambas Partes.
+2. Con sujeción al párrafo 1 anterior, las líneas aéreas designadas de cada una de las Partes pueden utilizar aeronaves (o aeronaves y tripulación) arrendadas de otra empresa, a condición de que esto no tenga como resultado que una línea aérea arrendadora ejerza derechos de tráfico que no tiene, conforme a las políticas y lineamientos de cada país.
+3. Cada línea aérea designada puede, en cualquier vuelo en los servicios convenidos y a su discreción, cambiar de aeronave en el territorio de la otra Parte o en cualquier punto de las rutas especificadas.
+4. Para las operaciones de cambio de capacidad, una línea aérea designada puede utilizar su propio equipo y, con sujeción a los reglamentos nacionales, equipo arrendado, y puede efectuar operaciones en virtud de arreglos comerciales con otra línea aérea.
+5. Una línea aérea designada puede utilizar números de vuelo diferentes o idénticos para los sectores correspondientes a sus operaciones con cambio de aeronave.

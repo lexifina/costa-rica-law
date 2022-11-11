@@ -1,0 +1,8 @@
+ARTICULO 4
+REVOCACION, SUSPENSION O LIMITACIÓN DE LA AUTORIZACION
+1. Las autoridades aeronáuticas de cada Parte tendrán el derecho de negar las autorizaciones mencionadas en el Artículo 3 (Designación de Líneas Aéreas) del presente Acuerdo con respecto a una línea aérea designada por la otra Parte y de revocar y suspender dichas autorizaciones, o de imponer condiciones a las mismas, de forma temporal o permanente:
+a) en caso de que consideren que la línea aérea designada no tiene su oficina principal y la residencia permanente en el territorio de la Parte designante;
+b) en caso de que consideren que la Parte que designa la línea aérea no tiene y mantiene el control normativo efectivo de la línea aérea;
+c) en caso de que la Parte que designa la línea aérea no cumpla las disposiciones establecidas en el Artículo 7 (Seguridad operacional) y el Artículo 8 (Seguridad de la aviación); y
+d) en caso de que dicha línea aérea designada no esté calificada para satisfacer otras condiciones prescritas en virtud de las leyes y los reglamentos normalmente aplicados a la explotación de los servicios de transporte aéreo internacional por la Parte que recibe la designación.
+2. A menos que sean indispensables medidas inmediatas para impedir la violación de las leyes y los reglamentos mencionados antes o a menos que la seguridad operacional o la seguridad de la aviación requieran medidas de conformidad con las disposiciones del Artículo 7 (Seguridad operacional) o el Artículo 8 (Seguridad de la aviación), los derechos enumerados en el párrafo 1 de este Artículo se ejercerán únicamente después de que las autoridades aeronáuticas efectúen consultas de conformidad con el Artículo 27 (Consultas) del presente Acuerdo.

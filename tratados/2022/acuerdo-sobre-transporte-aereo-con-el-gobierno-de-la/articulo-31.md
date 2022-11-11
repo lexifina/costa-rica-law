@@ -1,0 +1,3 @@
+ARTICULO 31
+TERMINACIÓN
+Cualquiera de las Partes podrá, en cualquier momento notificar a la otra por escrito, por vía diplomática, su intención de denunciar el presente Acuerdo. Dicha notificación se comunicará simultáneamente a la Organización de Aviación Civil Internacional. El presente acuerdo terminará un (1) año después de que la otra Parte reciba el aviso respectivo, a menos que, de mutuo acuerdo, las Partes lo retiren antes de vencer dicho plazo. Si la otra Parte no acusare recibo del aviso de denuncia, éste se considerará recibido catorce (14) días después de su recepción por la Organización de Aviación Civil Internacional.

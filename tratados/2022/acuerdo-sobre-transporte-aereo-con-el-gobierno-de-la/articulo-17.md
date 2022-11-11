@@ -1,0 +1,3 @@
+ARTICULO 17
+CONVERSIÓN DE DIVISAS Y TRANSFERENCIA DE GANANCIAS
+Cada Parte permitirá a las líneas aéreas designadas de la otra Parte, a petición, convertir y transferir al extranjero, al Estado que escojan, todos los ingresos locales provenientes de la venta de servicios de transporte aéreo y de actividades conexas directamente vinculadas al transporte aéreo, y que excedan de las cantidades gastadas localmente, permitiéndose su rápida conversión y transferencia sin restricciones, discriminación ni cobro de impuestos sobre los mismos al tipo de cambio aplicable en la fecha de la solicitud de conversión y transferencia.

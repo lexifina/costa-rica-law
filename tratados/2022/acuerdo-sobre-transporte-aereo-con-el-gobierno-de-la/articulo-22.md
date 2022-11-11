@@ -1,0 +1,5 @@
+ARTICULO 22
+ACUERDOS DE COOPERACIÓN Y COLABORACIÓN
+Los servicios de transporte aéreo podrán desarrollarse bajo acuerdos de colaboración y cooperación comercial, celebrados por las aerolíneas designadas de ambas partes, entre ellas o con aerolíneas de terceros países tales como código compartido, bloqueo de espacio, utilización de equipo (intercambio de aeronaves, arrendamiento, fletamento, entre otros), siempre y cuando tales acuerdos se sometan a los requisitos y procedimientos de aprobación de cada Parte. Las autoridades aeronáuticas de Cada Parte, decidirán en un plazo máximo de un mes las solicitudes sometidas a su consideración.
+Todas las líneas aéreas que participan en acuerdos de código compartido deberán informar en el punto de venta cual es la línea aérea operadora.
+Todos los acuerdos de código compartido deben tener la aprobación previa de las autoridades aeronáuticas antes de su explotación. Tales acuerdos no garantizarán el ejercicio de derechos adicionales de tráfico accesorio.

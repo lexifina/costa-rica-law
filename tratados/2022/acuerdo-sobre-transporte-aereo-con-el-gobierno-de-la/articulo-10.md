@@ -1,0 +1,5 @@
+ARTICULO 10
+DERECHOS IMPUESTOS A LOS USUARIOS
+1. Ninguna de las Partes impondrá o permitirá que se imponga a las líneas aéreas designadas de la otra Parte derechos superiores a los que se impongan a sus propias líneas aéreas que exploten servicios internacionales similares.
+2. Cada Parte alentará las consultas relativas a derechos impuestos a los usuarios entre sus autoridades recaudadoras competentes, o el proveedor de servicios aeroportuarios o de navegación aérea, y las líneas aéreas que utilicen las instalaciones y los servicios proporcionados por dichas autoridades, o el proveedor de servicios, cuando sea posible por medio de las organizaciones representativas de dichas líneas aéreas.
+Debe darse a los usuarios un aviso previo razonable sobre toda propuesta de modificación de los derechos impuestos a fin de permitirles expresar sus puntos de vista antes de que se efectúen dichos cambios. Además, cada Parte alentará a su autoridad recaudadora competente, o proveedor de servicios y a dichos usuarios a que intercambien información apropiada relativa a los derechos impuestos a los usuarios.
