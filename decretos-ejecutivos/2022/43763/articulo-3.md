@@ -1,0 +1,1 @@
+Artículo 3º-Derogatoria. Deróguese el Decreto Ejecutivo N° 41433-MEIC del 16 de octubre de 2018, Publicado en el Diario Oficial La Gaceta Nº 5 del 08 de enero de 2019, Alcance N° 5, "Procedimiento de evaluación de la conformidad para muestras sin valor comercial para fines no comerciales".

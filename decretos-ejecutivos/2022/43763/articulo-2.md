@@ -1,0 +1,1 @@
+Artículo 2º-Recursos aplicables. Por su naturaleza técnica, a los actos administrativos originados en este procedimiento, no le aplican los Recursos ordinarios establecidos en la Ley General de la Administración Pública.
