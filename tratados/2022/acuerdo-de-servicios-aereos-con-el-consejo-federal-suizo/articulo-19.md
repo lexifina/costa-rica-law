@@ -1,0 +1,5 @@
+Artículo 19 Arreglo de Diferencias
+1. Cualquier controversia que surja en virtud del presente Acuerdo, que no pueda solucionarse mediante negociaciones directas o por la vía diplomática, deberá, a solicitud de cualquiera de las Partes Contratantes, ser sometida a un tribunal arbitral.
+2. En tal caso, cada Parte Contratante designará un árbitro, y los dos árbitros nombrarán un presidente, nacional de un tercer Estado. Si dentro de los dos (2) meses después de que una de las Partes Contratantes ha designado a su árbitro, la otra Parte Contratante no ha nominado el suyo, o, si dentro del mes siguiente a la designación del segundo árbitro, los dos árbitros no se han puesto de acuerdo sobre el nombramiento del presidente, cada Parte Contratante podrá solicitar al Presidente del Consejo de la Organización de la Aviación Civil Internacional proceder a los nombramientos necesarios.
+3. El tribunal arbitral determinará su propio procedimiento y decidirá sobre la distribución de los costos del procedimiento.
+4 Las Partes Contratantes deberán cumplir con cualquier resolución dictada en aplicación del presente Artículo.

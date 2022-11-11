@@ -1,0 +1,4 @@
+Artículo 21 Terminación
+1. Cada Parte Contratante podrá, en cualquier momento, notificar por escrito a través de la vía diplomática a la otra Parte Contratante, su decisión de dar por terminado el presente Acuerdo. Dicha notificación se enviará simultáneamente a la Organización de Aviación Civil Internacional.
+2. El Acuerdo terminará al final de un período de tiempo durante el cual hayan transcurrido doce (12) meses después de la fecha de recepción de la notificación, a menos que la notificación sea retirada por mutuo acuerdo de las Partes Contratantes antes del final de este período.
+3. A falta de acuse de recibo por la otra Parte Contratante, se considerará que la notificación ha sido recibida catorce (14) días después de la fecha en que la Organización de Aviación Civil Internacional ha recibido la comunicación de la misma.

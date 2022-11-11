@@ -1,0 +1,4 @@
+Artículo 20 Modificaciones
+1. Si una de las Partes Contratantes estima conveniente modificar alguna de las disposiciones del presente Acuerdo, dicha modificación entrará en vigor cuando las Partes Contratantes se hayan notificado mutuamente el cumplimiento de los procedimientos legales.
+2. Las modificaciones del Anexo del presente Acuerdo podrán acordarse directamente entre las autoridades aeronáuticas de las Partes Contratantes. Estas se aplicarán provisionalmente a partir de la fecha en que se han acordado y entrará en vigor cuando sea confirmado por un intercambio de notas diplomáticas.
+3. En el caso de la conclusión de un convenio sobre transporte aéreo multilateral, por el cual ambas Partes Contratantes se comprometen, el presente Acuerdo se modificará con el fin de ajustarse a las disposiciones de dicha convención.

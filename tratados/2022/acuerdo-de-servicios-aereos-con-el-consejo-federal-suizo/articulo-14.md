@@ -1,0 +1,2 @@
+Artículo 14 Conversión y Transferencia de Ingresos
+Las líneas aéreas designadas tendrán derecho a convertir y remitir a su país, a la tasa oficial de cambio, los ingresos en exceso de las sumas desembolsadas localmente en la debida proporción con el transporte de pasajeros, equipaje, carga y correo. En caso de que exista un acuerdo especial entre las Partes Contratantes para evitar la doble imposición, o en caso que haya un acuerdo especial que regule la transferencia de fondos entre las dos Partes Contratantes, dicho acuerdo prevalecerá.

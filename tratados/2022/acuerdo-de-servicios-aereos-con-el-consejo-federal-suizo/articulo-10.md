@@ -1,0 +1,2 @@
+Artículo 10 Tránsito Directo
+Los pasajeros, equipaje y carga en tránsito directo a través del territorio de una de las Partes Contratantes y que no abandonen el área del aeropuerto reservada para dichos fines, a menos que medidas de seguridad contra la violencia, la integridad fronteriza, piratería aérea y el tráfico ilícito de estupefacientes y medidas de control de la inmigración lo requieran, estarán sujetos a no más que un simple control. El equipaje y la carga en tránsito directo estarán exentos de derechos de aduana y otros impuestos similares.

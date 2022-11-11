@@ -1,0 +1,8 @@
+Artículo 15 Tarifas
+1. Cada Parte Contratante podrá exigir la notificación o presentación ante sus autoridades aeronáuticas de las tarifas de los servicios aéreos internacionales, operados de conformidad con el presente Acuerdo.
+2. Sin perjuicio de la aplicación de la competencia en general y la ley del consumidor en cada Parte Contratante, la intervención de la Parte Contratante se limitará a:
+a. la prevención de las tarifas o prácticas injustificadamente discriminatorias;
+b. la protección a los consumidores de las tarifas que son excesivamente altas o irrazonablemente restrictivas, ya sea por el abuso de una posición dominante o prácticas concertadas entre compañías aéreas; y
+c. la protección a empresas de tarifas que son artificialmente bajas a causa de subsidio o apoyo gubernamental directo o indirecto.
+3. Ninguna de las Partes Contratantes tomará medidas unilaterales para evitar la toma de posesión o la continuación de una tarifa propuesta o aplicada por las líneas aéreas designadas de cada Parte Contratante en los servicios aéreos internacionales entre los territorios de las Partes Contratantes. Si cualquiera de las Partes Contratantes considera que dicha tarifa es incompatible con las consideraciones establecidas en el presente Artículo, solicitará consultas y notificará a la otra Parte Contratante las razones de su descontento dentro de los catorce (14) días a partir de la recepción de la solicitud. Estas consultas se celebrarán en un plazo de catorce (14) días siguientes a la recepción de la solicitud.
+Sin un acuerdo mutuo, la tarifa entrará en vigor o continuará en efecto.
