@@ -1,0 +1,1 @@
+Artículo 2°-Sanciones por incumplimiento. Los incumplimientos, infracciones, u omisiones a las disposiciones del presente Decreto serán sancionadas, de conformidad con lo establecido en la Ley de Promoción de la Competencia y Defensa Efectiva del Consumidor, N° 7472 del 20 diciembre de 1994. La responsabilidad penal será sancionada conforme a la legislación penal vigente.
