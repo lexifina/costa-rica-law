@@ -1,1 +1,0 @@
-Artículo 3°-A partir de la fecha en que sea publicada la presente resolución en el Diario Oficial La Gaceta, se deja sin efecto la tasa de interés publicada en el Diario Oficial La Gaceta N°29, del jueves 11 de febrero de 2021.
