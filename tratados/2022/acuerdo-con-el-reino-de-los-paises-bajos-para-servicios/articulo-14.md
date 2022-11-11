@@ -1,0 +1,4 @@
+Artículo 14
+Reconocimiento de certificados y licencias
+Los certificados de aeronavegabilidad, los certificados de aptitud y las licencias expedidos o convalidados por una Parte Contratante incluidos, en el caso de la parte europea de los Países Bajos, los expedidos y convalidados de conformidad con las leyes y reglamentos de la UE, y aún vigentes, serán reconocidos como válidos por la otra Parte Contratante para el propósito de operar los servicios convenidos en las rutas especificadas, siempre que los requisitos bajo los cuales se hayan emitido o convalidado tales certificados y licencias sean iguales o superiores a los requisitos mínimos establecidos o que puedan establecerse en el futuro de acuerdo con el Convenio.
+Cada Parte Contratante, sin embargo, se reserva el derecho de negarse a reconocer, para los vuelos sobre su territorio, los certificados de competencia y licencias expedidos o validados a sus propios nacionales por la otra Parte Contratante.

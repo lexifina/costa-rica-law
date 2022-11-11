@@ -1,0 +1,5 @@
+Artículo 7
+Cambio de aeronave
+1. En cualquier segmento o segmentos de las rutas especificadas, una línea aérea designada podrá realizar servicios aéreos internacionales sin limitación alguna en cuanto a cambios en cualquier punto de la ruta especificada, en el tipo o número de aeronaves operadas, siempre que en la dirección de salida, el transporte más allá de tales puntos sea una continuación del transporte desde el territorio de la Parte Contratante que haya designado a la línea aérea y, en la dirección entrante, el transporte hacia el territorio de la Parte Contratante que haya designado a la línea aérea sea una continuación del transporte desde más allá de ese punto.
+2. A los efectos de las operaciones de cambio de aeronave, una línea aérea designada podrá utilizar su propio equipo y, con sujeción a los reglamentos nacionales, equipos arrendados, y podrá operar bajo acuerdos comerciales y/o de cooperación con otras líneas.
+3. Una línea aérea designada podrá utilizar números de vuelo diferentes o idénticos para los sectores de sus operaciones de cambio de aeronave.

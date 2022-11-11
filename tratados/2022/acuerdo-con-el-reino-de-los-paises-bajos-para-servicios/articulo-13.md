@@ -1,0 +1,9 @@
+CAPÍTULO V
+Disposiciones Reglamentarias
+Artículo 13
+Aplicación de las leyes, reglamentos y procedimientos
+1. Las leyes, reglamentos y procedimientos de cualquiera de las Partes Contratantes relativos a la entrada o salida de su territorio de aeronaves dedicadas a servicios aéreos internacionales, o a la operación y navegación de dichas aeronaves, deberán cumplirse por la(s) línea(s) aérea(s) designada(s) de la otra Parte Contratante, a su entrada y hasta su salida de dicho territorio.
+2. Las leyes, reglamentos y procedimientos de cualquiera de las Partes Contratantes relativos a inmigración, pasaportes u otros documentos de viaje aprobados, a la entrada, salida, aduanas y cuarentena, serán cumplidos por tripulantes o pasajeros y/o en relación con la carga y correo transportados por las aeronaves de la(s) línea(s) aérea(s) designada(s) de la otra Parte Contratante desde su entrada a, y hasta su salida del territorio de dicha Parte Contratante.
+3. Los pasajeros, equipaje, carga y correo en tránsito por el territorio de cualquiera de las Partes Contratantes y que no abandonen el área del aeropuerto reservada para tal fin, salvo en relación con las medidas de seguridad contra la violencia y la piratería aérea, estarán sujetos únicamente a un control simplificado.
+4. Ninguna de las Partes Contratantes dará preferencia a cualquier otra línea aérea sobre la(s) línea(s) aérea(s) designada(s) de la otra Parte Contratante en la aplicación de sus reglamentos de aduanas, inmigración, cuarentena y similares, o en el uso de aeropuertos, vías aéreas y servicios de tráfico aéreo y recursos asociados bajo su control.
+5. Cada Parte Contratante, a petición de la otra Parte Contratante, proporcionará copias de las leyes, reglamentos y procedimientos relevantes, mencionados en el presente Acuerdo.
