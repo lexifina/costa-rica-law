@@ -1,0 +1,1 @@
+Artículo 14.- De resultar procedente revocar la declaratoria de utilidad pública, la Dirección Nacional de Desarrollo de la Comunidad, emitirá una recomendación al Ministerio de Gobernación y Policía, quien podrá dictaminar en negativo y procederá junto con la Presidencia de la República a revocar la declaratoria de utilidad pública, de ser procedente.

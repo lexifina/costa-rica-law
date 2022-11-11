@@ -1,0 +1,1 @@
+Artículo 15.- La revocación de dicha declaratoria será por medio de decreto ejecutivo, el cual deberá ser publicado en el Diario Oficial La Gaceta, de manera que una vez publicado, se realizará la anotación en el Sistema de Registro de Dinadeco. De igual forma, se deberá comunicar al Departamento de Exenciones del Ministerio de Hacienda sobre la revocación de la Utilidad Pública.

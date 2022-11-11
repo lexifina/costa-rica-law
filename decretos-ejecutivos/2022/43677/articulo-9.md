@@ -1,0 +1,1 @@
+Artículo 9.- El plazo para realizar el trámite será de dos meses a partir de la presentación de la solicitud, de conformidad con lo establecido en el Artículo Nº 261 inciso l) de la Ley General de la Administración Pública, Nº 6227.

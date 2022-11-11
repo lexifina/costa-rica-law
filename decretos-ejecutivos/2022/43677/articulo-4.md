@@ -1,0 +1,10 @@
+Artículo 4.- Las organizaciones interesadas en beneficiarse de los servicios de utilidad pública deberán:
+a) Estar inscritas en el Registro Nacional de Asociaciones de Desarrollo Comunal de Dinadeco de conformidad con lo estipulado en el Artículo Nº 17 del Reglamento a la Ley Nº 3859 "Sobre Desarrollo del Comunidad", Decreto Ejecutivo Nº 26935-G.
+b) Tener junta directiva debidamente integrada en concordancia con lo indicado en el numeral 35 párrafo primero del Reglamento a la Ley Nº 3859 "Sobre Desarrollo del Comunidad", Decreto Ejecutivo Nº 26935-G.
+c) Estar inscritos como Acreedores del Estado de conformidad con la publicación en el Diario Oficial La Gaceta Nº 231 del 30 de noviembre del 2007, que al efecto documenta el Ministerio el Hacienda para recibir los recursos por medio de transferencia.
+d) Estar al día con la presentación de las respectivas liquidaciones, bien sea del Fondo por Girar, Fondo de Proyectos en cualquiera de sus modalidades o del Impuesto al Cemento ante la Dirección Nacional de Desarrollo de la Comunidad (Dinadeco) de acuerdo con las disposiciones establecidas en el Reglamento al Artículo Nº 19 de la Ley Nº 3859 "Sobre Desarrollo de la Comunidad", Decreto Ejecutivo Nº 32595-G.
+e) Estar al día con la presentación del informe del superávit generado de la Ley Nº 9371 sobre Eficiencia en la Administración de los Recursos Públicos.
+f) Tener calificación de idoneidad vigente de conformidad con las disposiciones del Reglamento para Transferencias de la Administración Central a Entidades Beneficiarias, Decreto Ejecutivo Nº 37485-H.
+g) Estar al día ante la Dirección General de Tributación Directa de conformidad con lo establecido en el Artículo Nº 62 de la Ley Nº 4755 "Código de Normas y Procedimientos Tributarios.
+h) Estar al día con las obligaciones ante la Caja Costarricense de Seguro Social (CCSS), de conformidad con lo establecido en el artículo 74 de la Ley Constitutiva de la Caja Costarricense de Seguro Social, Nº 17.
+Los cuáles serán verificados por la propia Administración de acuerdo con los controles internos que se mantienen para tales efectos.

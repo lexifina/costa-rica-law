@@ -1,0 +1,2 @@
+Artículo 8.- Toda solicitud de declaratoria de utilidad pública se otorgará por medio de Decreto Ejecutivo, según lo establecido en el Artículo Nº 28 inciso b) y Artículo Nº 121 inciso b), ambos de la Ley General de la Administración Pública; que deberá publicarse en el Diario Oficial La Gaceta.
+Dicha publicación corre por cuenta de Dinadeco. Con esta publicación se realiza la anotación en el Sistema de Registro de Dinadeco sobre la declaratoria de utilidad pública otorgada.

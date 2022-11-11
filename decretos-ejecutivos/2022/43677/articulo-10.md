@@ -1,0 +1,1 @@
+Artículo 10.- Las organizaciones reconocidas como de utilidad pública podrán gozar de las franquicias y concesiones administrativas y económicas que, para cumplir con sus fines, el Poder Ejecutivo o las leyes les otorguen.
