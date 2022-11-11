@@ -14,3 +14,4 @@ Directrices para realizar donaciones de bienes en desuso o en mal estado de la C
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-02-17 | la propia norma |
+| 2 | 2022-11-11 | Resolución 119 (2022-11-11) |
