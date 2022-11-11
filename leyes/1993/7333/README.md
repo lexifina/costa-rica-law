@@ -1,6 +1,6 @@
 # Reforma Integral a la Ley Orgánica del Poder Judicial
 
-Ley N° 7333 del 1993-05-05. SINALEVI, ficha 18809: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=18809&param2=130568&param3=1>.
+Ley N° 7333 del 1993-05-05. SINALEVI, ficha 18809: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=18809&param2=133392&param3=1>.
 
 Publicada en La Gaceta N° 124 del 1993-07-01.
 
@@ -36,3 +36,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 26 de 35 | 2019-12-13 | Ley 9782 | 2019-11-12 |
 | 27 de 35 | 2021-05-25 | Sala Constitucional, resolución 11957-2021 (2021-05-25) | 2021-05-25 |
 | 28 de 35 | 2022-05-31 | Ley 10257 | 2022-05-06 |
+| 29 de 35 | 2022-11-11 | Ley 10325 | 2022-11-09 |
