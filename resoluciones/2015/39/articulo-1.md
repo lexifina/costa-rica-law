@@ -1,7 +1,8 @@
 RESOLUCIONES
-R-DC-039-2015.—Contraloría General de la República.—Despacho Contralor.—San José, a las quince horas del veintiuno de mayo de dos mil quince. Por tanto,
-Artículo 1º—Se delega en la Gerencia de la División de Gestión de Apoyo la adopción de los siguientes tipos de actuaciones:
-1. La suscripción de los contratos administrativos celebrados por la Contraloría General de la República, producto de procedimientos inferiores a la licitación pública.
+R-DC-039-2015.-Contraloría General de la República.-Despacho Contralor.-San José, a las quince horas del veintiuno de mayo de dos mil quince. Por tanto,
+Artículo 1º-Se delega en la Gerencia de la División de Gestión de Apoyo la adopción de los siguientes tipos de actuaciones:
+1. La suscripción de los contratos celebrados por la Contraloría General de la República, producto de procedimientos de contratación pública inferiores a la licitación mayor.
+(Así reformado el inciso anterior por el artículo único de la resolución N° R-DC-00118-2022 del 11 de noviembre de 2022,
 2. La autorización de transferencias de pago electrónico sin límite de suma, por la adquisición de bienes o servicios contratados por la Contraloría General de la República.
 (Así reformado el apartado anterior por el artículo 1° de la resolución N° R-DC-34-2020 del 13 de abril de 2020)
 3. La autorización de transferencias de pago electrónico sin límite de cuantía, por servicios personales contratados por la Contraloría General de la República.

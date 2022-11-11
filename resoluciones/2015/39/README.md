@@ -15,3 +15,4 @@ Delega en la Gerencia de la División de Gestión de Apoyo algunas actuaciones
 | --- | --- | --- |
 | 1 | 2015-06-25 | la propia norma |
 | 2 | 2020-04-13 | Resolución 34 (2020-04-13) |
+| 3 | 2022-11-11 | Resolución 118 (2022-11-11) |
