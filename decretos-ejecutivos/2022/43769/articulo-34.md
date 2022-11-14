@@ -1,0 +1,1 @@
+Artículo 34.-Presentación. Los recursos son optativos por lo que podrán interponerse en forma conjunta o individual, más será inadmisible cualquiera que se presente fuera del plazo de tres días hábiles contados a partir del día siguiente hábil al que se realizó la prueba.

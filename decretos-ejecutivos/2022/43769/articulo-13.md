@@ -1,0 +1,1 @@
+Artículo 13.-Coordinación del Comité Técnico Médico. La coordinación del Comité Técnico Médico la ejercerá el Coordinador de Evaluación y contará con el apoyo de un Grupo de Redactores de Casos Clínicos del ECOM-CR designados por el Comité Técnico Médico para cada convocatoria.

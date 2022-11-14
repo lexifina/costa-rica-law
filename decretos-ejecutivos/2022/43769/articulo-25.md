@@ -1,0 +1,6 @@
+Artículo 25.-Requisitos que debe cumplir el aplicante para realizar el examen. Para poder inscribirse y aplicar el examen se requiere:
+a) Tener el grado académico de Licenciatura en Medicina y Cirugía otorgado por una universidad nacional, en el caso de egresados de universidades extranjeras tener el título debidamente homologado y equiparado según la normativa vigente. Para aplicantes de universidades nacionales también se podrá aportar una certificación expedida por la universidad de procedencia que indique que el egresado ha cumplido con toda la malla curricular del plan de estudios y que únicamente le resta el otorgamiento del título profesional como Licenciado en Medicina y Cirugía.
+b) Presentar original de cédula de identidad al día para nacionales; en caso de extranjeros deberán aportar Documento de Identidad Migratoria para Extranjeros DIMEX al día libre condición.
+c) Completar el formulario oficial designado para la inscripción al examen.
+d) Cancelar el costo económico del proceso de incorporación establecido por el Colegio para cada convocatoria.
+e) Haber llevado el curso de Ética Médica impartido por la Fiscalía del Colegio. El Colegio establecerá los mecanismos internos de coordinación para corroborar el cumplimiento del presente requisito.

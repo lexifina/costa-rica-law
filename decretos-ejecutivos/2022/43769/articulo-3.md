@@ -1,0 +1,1 @@
+Artículo 3º-Postulantes al Examen. Serán postulantes al examen, los egresados de las carreras de medicina de las universidades nacionales o extranjeras que cumplan los requisitos contemplados en el artículo 25 de este reglamento.

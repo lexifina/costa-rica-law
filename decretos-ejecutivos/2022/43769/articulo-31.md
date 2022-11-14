@@ -1,0 +1,5 @@
+Artículo 31.-Del Recurso de Apelación. En los casos en que el postulante esté en desacuerdo con el resultado del recurso de Revisión de Respuesta emitido por el Comité Técnico Médico, podrá presentar en los 3 días hábiles posteriores a la notificación del resultado, un recurso de Apelación ante la Coordinación de Evaluación para que ésta lo eleve a la Comisión Ad Hoc, en donde argumente con base en la bibliografía y recursos de consulta recomendados la validez de su respuesta seleccionada. El acuerdo de la Comisión Ad Hoc sobre los Recursos de Apelación son definitivos y concluyentes. Solo se aceptarán para revisión y análisis los recursos sobre el fondo del examen que cumplan lo siguiente:
+a) Que utilicen el formulario oficial para este efecto.
+b) Que justifiquen la validez de la respuesta seleccionada por el postulante en el ítem.
+c) Que sustenten sus argumentos en las fuentes de consulta recomendadas para cada convocatoria.
+Todo recurso de Apelación que no cumpla con lo anterior dispuesto será rechazado de plano.

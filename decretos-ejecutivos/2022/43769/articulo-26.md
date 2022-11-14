@@ -1,0 +1,2 @@
+Artículo 26.-Realización del examen. El examen se podrá realizar de forma presencial, ya sea en modalidad digital o escrita, teórica o práctica, lo cual se definirá en cada convocatoria según lo precise la organización.
+El examen se realizará en un recinto adecuado que cumpla los requerimientos de infraestructura y acceso para este efecto. Ese recinto se establecerá con anterioridad y anunciado en cada convocatoria.

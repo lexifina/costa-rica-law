@@ -1,0 +1,1 @@
+Artículo 22.-Tiempo para la realización del examen. El tiempo para la realización del ECOM-CR será propuesto por la Coordinación de Evaluación y consultados con el Comité Técnico y la Comisión Asesora previa publicación oficial, basados en los criterios psicométricos y en el análisis del proceso de validación de los ítems.

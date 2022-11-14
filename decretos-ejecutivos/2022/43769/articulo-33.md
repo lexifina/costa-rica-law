@@ -1,0 +1,1 @@
+Artículo 33.-De los Recursos contra la nulidad. En caso de que se produzca alguna violación a las normas establecidas que ocasione el retiro y perdida de la prueba, el postulante podrá presentar los recursos de revocatoria ante la Comisión Asesora y de apelación ante la Junta de Gobierno. El recurso de apelación agota la vía administrativa.

@@ -1,0 +1,1 @@
+Artículo 4º-Objeto del Reglamento. El presente Reglamento tiene por objeto establecer y regular la organización, aplicación, administración, notificación, custodia y análisis de los resultados del ECOM-CR como requisito de incorporación al Colegio de Médicos y Cirujanos de Costa Rica.

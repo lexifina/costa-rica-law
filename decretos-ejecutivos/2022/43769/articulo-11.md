@@ -1,0 +1,1 @@
+Artículo 11.-Del Comité Técnico Médico. Será un órgano colegiado certificado para el estudio, planificación, formulación, revisión, selección y análisis de los ítems a utilizar en los procesos de validación y aplicación del ECOM-CR. Es convocado y coordinado por la Coordinación de Evaluación y sus miembros deben cumplir los requisitos que establece este Reglamento.

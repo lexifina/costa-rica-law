@@ -1,0 +1,1 @@
+Artículo 12.-De la conformación del Comité Técnico Médico. El Comité Técnico Médico estará conformado por 7 miembros quienes serán los representantes de las 7 áreas troncales del ECOM-CR. Los miembros del Comité Técnico Médico serán nombrados por la Junta de Gobierno de la lista de profesionales que recomienda el Coordinador de Evaluación.
