@@ -1,1 +1,0 @@
-Artículo 25.—Cuando se presente faltante o sobrantes de caja chica, como resultado del arqueo, el encargado deberá responder con su propio peculio con el caso de los faltantes y depositando al Municipio en el caso de sobrantes de dinero.
