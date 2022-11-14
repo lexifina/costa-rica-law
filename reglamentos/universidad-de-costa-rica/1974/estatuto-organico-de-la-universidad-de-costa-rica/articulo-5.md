@@ -1,4 +1,5 @@
-Artículo 5º-Para el cumplimiento de los fines y los principios orientadores del quehacer de la Universidad de Costa Rica, se establecen los siguientes propósitos:
+Artículo 5.-Para el cumplimiento de los fines y los principios orientadores del quehacer de la Universidad de Costa Rica, se establecen los siguientes propósitos: .
+(Corregido el párrafo anterior mediante Fe de Erratas, aprobado mediante sesión N° 150 del 14 de noviembre del 2022)
 a. Estimular la formación de una conciencia creativa, crítica en las personas que integran la comunidad costarricense, que permita a todos los sectores sociales participar eficazmente en los diversos procesos de la actividad nacional.
 b. Buscar de manera permanente y libre, la verdad, la justicia, la belleza, el respeto a las diferencias, la solidaridad, la eficacia y la eficiencia.
 c. Formar profesionales en todos los campos del saber, que integre una cultura humanística con su formación especial o profesional.

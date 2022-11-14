@@ -1,1 +1,7 @@
-ARTÍCULO 67.- Los demás Consejos Coordinadores se reunirán cuando los convoque uno de los Coordinadores de Área o uno de los Vicerrectores. Estarán presididos por el Vicerrector, en caso de que éste lo convoque, o por el miembro que el Consejo designe en el momento de la reunión.
+Artículo 67.-Corresponderá al Consejo Académico de Áreas:
+a) Proponer políticas institucionales para consideración del Consejo Universitario.
+b) Proponer acciones institucionales para consideración del Consejo de Rectoría.
+c) Promover y realizar foros de discusión sobre temas de interés institucional, nacional e internacional.
+d) Propiciar líneas de trabajo académico que articulen acciones interdisciplinarias en cada área y entre las diferentes áreas.
+e) Mantener informada permanentemente a la comunidad universitaria sobre su gestión, mediante los medios disponibles.
+(Así reformado mediante sesión N° 150 del 14 de noviembre del 2022)

@@ -6,7 +6,10 @@ ch) Atender sus obligaciones como Decano durante el tiempo de labores de la Facu
 d) Ejercer en la Facultad las potestades de superior jerárquico de los funcionarios y su autoridad sobre los estudiantes.
 e) Coordinar las actividades de las Escuelas, Institutos y demás dependencias de la Facultad.
 f) Sugerir a los Vicerrectores las medidas que estime necesarias para el mejor desarrollo de las actividades de la Facultad.
-g) Cooperar con el Coordinador de Área en las gestiones interdisciplinarias que éste tiene a su cargo.
+g) Cooperar con el coordinador de Área y con la persona coordinadora del Consejo Académico de Áreas en las gestiones interdisciplinarias que este tiene a su cargo.
+(Así reformado el inciso anterior mediante sesión N° 150 del 14 de noviembre del 2022)
+g) bis. Integrar el Consejo Académico de Áreas.
+(Así adicionado mediante sesión N° 150 del 14 de noviembre del 2022)
 h) Convocar a las reuniones de la Asamblea de Facultad, del Consejo Asesor y de las comisiones especiales.
 i) Presidir la Asamblea de Facultad y el Consejo Asesor. El Decano no podrá delegar la función de presidir la Asamblea de Facultad.
 j) Asistir, con derecho a voz y voto, a las sesiones de las Escuelas y de las comisiones especiales de la Facultad cuando lo decidiere, con atribución de presidirlas, salvo que esté presente el Rector. No tendrá derecho a voz y voto cuando las sesiones de unidades académicas diferentes a las suyas, sean convocadas con fines electorales.
