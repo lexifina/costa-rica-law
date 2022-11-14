@@ -14,3 +14,4 @@ Reglamento General a la Ley de Educación y Formación Técnica Dual
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-04-30 | la propia norma |
+| 2 | 2022-11-14 | Decreto Ejecutivo 43869 (2022-11-14) |
