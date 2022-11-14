@@ -1,0 +1,2 @@
+-Artículo 11.- Volumen de contingente de importación asignado.
+1. COMEX transmitirá al Sistema de Tecnología de Información para el Control Aduanero (TIC@) o el sistema que le sustituya, el volumen asignado a cada solicitante conforme con los lineamientos que establezca al efecto la autoridad aduanera. Para efectos de control aduanero, dicha transmisión será considerada como certificado de contingente de importación.

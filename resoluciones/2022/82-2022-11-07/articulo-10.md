@@ -1,0 +1,3 @@
+-Artículo 10.- Asignación de remanentes.
+1. Los volúmenes que sean devueltos de conformidad con el artículo 8 y los volúmenes no asignados de conformidad con el artículo 7, serán puestos a disposición de cualquier interesado a través del Sitio Web oficial de COMEX, dentro de los primeros cinco días hábiles del mes de abril de 2023. Podrán ser solicitados tanto por solicitantes históricos como por solicitantes nuevos, a partir del día hábil siguiente en que se ponga a disposición dicha información.
+2. La asignación se realizará de conformidad con el procedimiento establecido en el artículo 12 del Reglamento General y se deberán aportar los documentos contemplados en los incisos a, b, c y f del párrafo 2 apartado II del artículo 6 del Reglamento General.
