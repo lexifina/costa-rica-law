@@ -32,3 +32,5 @@ Artículo 2° : Apruébense los siguientes Egresos Ordinarios y Extraordinarios 
 (Modificado por el artículo 5° del decreto ejecutivo N° 43720 del 30 de setiembre de 2022)
 (Modificado por el artículo 6° del decreto ejecutivo N° 43720 del 30 de setiembre de 2022)
 (Modificado por el artículo 1° del decreto ejecutivo N° 43755 del 14 de octubre de 2022)
+(Modificado por el artículo 2° del decreto ejecutivo N° 43797 del 15 de noviembre de 2022)
+(Modificado por el artículo 3° del decreto ejecutivo N° 43797 del 15 de noviembre de 2022)
