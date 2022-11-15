@@ -1,4 +1,0 @@
-CAPÍTULO V
-Del arreglo de pago
-Artículo 33.—Del arreglo de pago y de la constancia en el pago de impuestos. Se autoriza a la Sección de Cobros a realizar arreglos de pago, por una única vez, cuando el monto no supere la suma de medio salario base. Las sumas mayores a dicho monto serán autorizadas por el Administrador tributario, debiéndose establecer por escrito la forma de pago. Para que dicho arreglo de pago proceda, el abonado deberá cancelar un (40%) cuarenta por ciento de lo adeudado cancelando el restante en tres pagos pero según la circunstancia el Administrador Tributario está facultado para modificar el porcentaje del primer pago y la cantidad de pago, según el caso debidamente justificado, analizándose la situación económica y social del usuario.
-En el caso de que el usuario requiera una constancia del pago de los servicios municipales, se emitirá la misma indicándose los montos adeudados, periodos y otros datos como multas e intereses.

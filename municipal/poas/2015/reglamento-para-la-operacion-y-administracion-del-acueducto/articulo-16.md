@@ -1,1 +1,0 @@
-Artículo 16.—De la determinación tarifaria. Para el sostenimiento del acueducto, la Municipalidad de Poás establecerá una tarifa básica por el servicio, previo estudio de costos de administración, operación, mantenimiento desarrollo, inversión y servicio de deudas. Dicha tarifa se revisará de oficio cada año siguiendo las normas del código municipal.

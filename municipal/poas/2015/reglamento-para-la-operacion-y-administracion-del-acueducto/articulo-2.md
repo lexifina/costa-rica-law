@@ -1,1 +1,0 @@
-Artículo 2º—Alcance del Presente Reglamento. Este reglamento regulará la organización y funcionamiento del servicio del acueducto Municipal en cuanto a la prestación, facturación, registro y cobro a través de sus dependencias.
