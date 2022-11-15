@@ -1,1 +1,0 @@
-Artículo 28.—El comité cantonal clasificará los proyectos propuestos por los comités distritales y los del mismo comité cantonal, en el organigrama del PCDJ, para que de esta manera exista un control y revisión global de los proyectos.

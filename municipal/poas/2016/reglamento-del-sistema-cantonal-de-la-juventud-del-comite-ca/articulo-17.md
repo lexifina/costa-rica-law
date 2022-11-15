@@ -1,1 +1,0 @@
-Artículo 17.—Cada comité distrital deberá nombrar a mínimo dos jóvenes del distrito, para que los represente en las reuniones mensuales del comité cantonal, que en su caso serán el coordinador y subcoordinador siendo estos uno propietario y otro suplente respectivamente, ante el comité cantonal para lo correspondiente según el presente reglamento.

@@ -1,1 +1,0 @@
-Artículo 29.—El comité cantonal revisará al final de cada año, el cumplimiento de las metas propuestas en cada uno de los proyectos del PCDJ, esto específicamente antes del segundo sábado del mes de diciembre, con la finalidad de realizar un informe general.

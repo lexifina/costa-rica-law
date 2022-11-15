@@ -1,1 +1,0 @@
-Artículo 25.—Los concejos de distrito tendrán la responsabilidad en conjunto con el comité cantonal, de velar por el correcto funcionamiento de los comités distritales de la persona joven, además de intervenir el comité si fuera necesario, en caso de que surja algún conflicto.
