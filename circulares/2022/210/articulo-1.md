@@ -1,0 +1,10 @@
+CIRCULAR N° 210-2022
+ASUNTO: Reiteración de la Circular N° 73-2002 sobre los "Deberes que deben cumplir los despachos que conocen materia penal."
+A TODOS LOS TRIBUNALES DEL PAÍS:
+SE LES HACE SABER QUE:
+El Consejo Superior del Poder Judicial en sesión N° 87-2022 celebrada el 06 de octubre del 2022, artículo LIV, dispuso reiterar la circular N° 73-2002, publicada en el Boletín Judicial N° 130 del 08 de julio de 2002, sobre los "Deberes que deben cumplir los despachos que conocen materia penal."
+El Consejo Superiores, en sesión N° 35-02, celebrada el 21 de mayo del 2002, artículo LXXX, a solicitud de la Comisión de Asuntos Penales, dispuso recordar a las autoridades jurisdiccionales que tramitan materia penal, su deber de vigilar periódicamente el cumplimiento de las resoluciones provisionales decretadas en su Despacho, tales como la suspensión del proceso a prueba o la conciliación. Asimismo, se recuerda el deber de resolver a la brevedad lo que corresponda cuando se venzan los términos decretados o se incumplan las condiciones fijadas."
+Se les recuerda su deber de asistir puntualmente a las diligencias judiciales señaladas. En caso contrario, sin que exista justificación legítima, la autoridad que tramite la causa remitirá al Jefe de la Defensa Pública o del Ministerio Público según corresponda, informe de la diligencia que se retrasó o postergó por la tardanza o ausencia del profesional. Asimismo, los Fiscales y defensores comunicarán al Consejo Superior los casos en que tales retrasos ocurran por causas atribuibles a los jueces. Los Jefes respectivos, tomarán las previsiones correspondientes para evitar tales inconvenientes, y en su caso, deberán aplicar el régimen disciplinario, si procede.
+De conformidad con la Circular N° 67-09 emitida por la Secretaría de la Corte el 22 de junio de 2009, se le comunica que en virtud del principio de gratuidad que rige esta materia, la publicación está exenta de todo pago de derechos.
+Publíquese una sola vez en el Boletín Judicial.
+San José, 15 de noviembre de 2022.
