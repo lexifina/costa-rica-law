@@ -1,1 +1,2 @@
-Artículo 15.—Vigencia. Rige a partir de su publicación en el Diario Oficial La Gaceta.
+Artículo 15.-Cooperación interinstitucional. La Unidad Asesora para la Dirección y Coordinación de la propiedad accionaria del Estado y la Gestión de las Instituciones Autónomas podrá establecer mecanismos de alianza y coordinación interinstitucional para la generación de valor agregado a nivel de instituciones autónomas que no estén particularmente constituidas como empresas propiedad del Estado.
+(Así adicionado por el artículo 2° del decreto ejecutivo N° 43824 del 15 de noviembre de 2022)

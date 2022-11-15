@@ -1,4 +1,5 @@
 CAPÍTULO II
 Sección I
 Integración y Organización.
-Artículo 6º.—Integración. La Unidad estará constituida por una jefatura con rango gerencial y otros funcionarios de carácter técnico profesional, todos del más alto nivel académico y con experiencia comprobada en el sector de los entes objeto de este decreto o en empresas privadas de alto nivel de complejidad.
+Artículo 6º-Integración. La Unidad Asesora, estará constituida por una jefatura y por funcionarios de carácter técnico profesional, todos del más alto nivel académico y con perfiles asociados a los intereses de la Unidad.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 43824 del 15 de noviembre de 2022)
