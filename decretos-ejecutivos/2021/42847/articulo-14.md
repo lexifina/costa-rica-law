@@ -54,6 +54,8 @@ Requisitos específicos:
 a. Estar debidamente inscrito como Médico y Cirujano, ante el Colegio de Médicos y Cirujanos.
 b. Aprobación de un programa de estudios de posgrado (residencia médica) de seis (6) años en la Especialidad de Cirugía Plástica, Reconstructiva y Estética, en un Hospital de Tercer Nivel, perteneciente o adscrito a una Universidad.
 Podrán también solicitar la inscripción en esta Especialidad, aquellos Médicos Especialistas en Cirugía General o Especialista en Cirugía Pediátrica que cumplan con la aprobación de un programa de estudios de posgrado (residencia médica) de mínimo tres (3) años en la Especialidad de Cirugía Plástica, Reconstructiva y Estética, en un Hospital de Tercer Nivel, perteneciente o adscrito a una Universidad.
+Se reconoce como sinónimo de esta especialidad: Cirugía Plástica y Reconstructiva
+(Así adicionado el párrafo anterior mediante sesión ordinaria 2022-11-16, celebrada el 16 de noviembre de 2022)
 14.12 Especialidad Médica en Cirugía Torácica General.
 Requisitos específicos:
 a. Estar debidamente inscrito como Especialista en Cirugía General, en el Colegio de Médicos y Cirujanos.
