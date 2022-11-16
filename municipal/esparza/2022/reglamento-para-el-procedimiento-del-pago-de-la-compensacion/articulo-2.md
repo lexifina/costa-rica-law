@@ -1,0 +1,2 @@
+2º-Objetivo. Los funcionarios que se beneficien con el pago de la compensación económica establecida por ley a que
+se refiere este reglamento, están inhibidos en forma obligatoria e irrenunciable a ejercer liberalmente la profesión a que se refiere la misma.

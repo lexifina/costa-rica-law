@@ -1,0 +1,1 @@
+Artículo 6º-Cuando un puesto no afectado por prohibición legalmente remunerable, es trasladado a un programa que contempla el pago de la compensación económica por prohibición, será retribuido por tal concepto a partir del momento en que queda presupuestariamente, incluido en dicho programa.

@@ -1,0 +1,1 @@
+12.-Corresponderá al Departamento de Recursos Humanos la verificación del trámite de pago de la compensación por prohibición en los términos establecidos en la Ley, para lo cual deberá realizar la constatación del cumplimiento de requisitos, justificando y documentando su reconocimiento.

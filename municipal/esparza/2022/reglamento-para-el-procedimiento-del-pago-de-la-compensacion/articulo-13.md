@@ -1,0 +1,1 @@
+Artículo 13.-Es atribución de la Gestión de Recursos Humanos, coordinar, controlar y emitir criterios en relación con este beneficio, los cuales servirán de recomendación para la alcaldía y Concejo Municipal cuando así corresponda.

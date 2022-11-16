@@ -1,0 +1,1 @@
+Artículo 20.-Comprobado el incumplimiento, el servidor deberá reintegrar a la Municipalidad los montos percibidos por concepto de prohibición, de conformidad con el procedimiento administrativo que se establece en el artículo siguiente.

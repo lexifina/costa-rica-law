@@ -1,0 +1,1 @@
+Artículo 5º-Salvo disposición expresa en contrario, cuando la ley otorgue en forma general esta compensación económica, el servidor deberá ocupar un puesto cuyas funciones y especialidad sean afines con la establecida por la normativa que le otorga dicho beneficio.
