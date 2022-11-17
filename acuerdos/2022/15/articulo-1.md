@@ -13,6 +13,8 @@ Lo anterior de conformidad con lo dispuesto por este Órgano Superior en sesión
 5) Las personas que se acojan al disfrute de vacaciones durante los cierres colectivos expuestos no podrán sustituirse.
 6) Como medida alterna, para quienes no cuenten con saldo suficiente para cubrir los rebajos de vacaciones del cierre colectivo, se sugiere a la jefatura valorar la realización de trabajos pendientes, proyectos de la oficina que no hayan podido ejecutarse en tiempo ordinario, labores de archivo de documentos y mejoras en las condiciones de salud ocupacional en las que el servicio se presta (orden y ornato del despacho).
 7) En general y para todos los casos, debe indicarse que: "La PIN será de uso obligatorio, por lo que todas aquellas oficinas que tengan acceso a ella deberán hacer uso de esta herramienta para realizar, entre otros, todos los movimientos relacionados con vacaciones, toda vez que esta acción agiliza el trámite y permite llevar un mejor control de los saldos de este derecho". (Plan de Vacaciones, 4.1.)"
-- 0 -
+Durante dicho cierre se destaquen tres jueces y un técnico judicial en los Tribunales de Apelaciones de Sentencia Penal, para que apoyen en las labores administrativas y de coordinación que las mencionadas actividades requieren y la prestación del servicio en la modalidad de apertura efectiva. Lo anterior, en el entendido que, el personal que laborara en los roles que se establezcan, deberán de presentarse a laborar al despacho en los horarios ya establecidos durante los cierres colectivos.
+(Así adicionado el párrafo anterior mediante aviso N° 23-2022 del 17 de noviembre de 2022)
+-0 -
 De conformidad con la circular N° 67-09 emitida por la Secretaría de la Corte el 22 de junio de 2009, se le comunica que en virtud del principio de gratuidad que rige esta materia, la publicación está exenta de todo pago de derechos. Publíquese una sola vez en el Boletín Judicial.
 San José, 30 de agosto del 2022.

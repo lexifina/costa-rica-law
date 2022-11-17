@@ -13,3 +13,4 @@ Cierre colectivo de fin y principio de año, así como de Semana Santa del perí
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-08-30 | la propia norma |
+| 2 | 2022-11-17 | Acuerdo 23 (2022-11-17) |
