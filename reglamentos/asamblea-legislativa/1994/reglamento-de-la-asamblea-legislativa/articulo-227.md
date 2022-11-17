@@ -5,6 +5,7 @@ Para que haya elección, será necesaria la mayoría absoluta de los votos prese
 La Secretaría computará los votos emitidos los cuales deberán constar en el acta. El voto de la diputada o diputado que dejare de elegir o que se retirare cuando se estuviere verificando la elección, se sumará en favor de quien hubiere obtenido el mayor número de votos. La Presidencia anunciará si hubo elección y la persona que resultó electa.
 Aquellos nombramientos realizados por el Poder Ejecutivo en los cuales se requiera el voto de ratificación o en los que la Asamblea pueda objetar su designación, serán votados de forma ordinaria y en caso de imposibilidad material, se realizarán mediante votación nominal.
 La votación para la no reelección de magistraturas de la Corte Suprema de Justicia será votada de forma ordinaria, y solo a solicitud de uno o más diputados y diputadas y con la mayoría absoluta de los votos de los presentes la votación será nominal.
-Una vez recibidas las respectivas boletas, y realizada su contabilización, la mesa directiva leerá de viva voz, el nombre impreso del diputado o diputada y la forma de voto emitido.
+Una vez recibidas las respectivas boletas, y realizada su contabilización, la Presidencia anunciará el resultado final de la votación y ordenará su inmediata publicación en la web de la Asamblea Legislativa, así como su incorporación al acta de la sesión.
+(Así reformado el párrafo anterior en sesión N° 99 del 17 de noviembre de 2022)
 (Corrida su numeración mediante sesión N° 31 del 4 de marzo del 2019 , que lo traspasó del antiguo artículo 201 al 227)
 (Así reformado mediante sesión ordinaria N° 55 del 18 de agosto de 2022)
