@@ -1,0 +1,7 @@
+AVISO Nº 23-2022
+Asunto: Adición al aviso N° 15-2022, sobre; Cierre colectivo de fin y principio de año, así como de Semana Santa del período 2022/2023.
+A LAS INSTITUCIONES, ABOGADAS, ABOGADOS, SERVIDORAS, SERVIDORES JUDICIALES
+Y PÚBLICO EN GENERAL
+SE LES HACE SABER QUE:
+El Consejo Superior del Poder Judicial en sesión N° 96-2022 celebrada el 08 de noviembre de 2022, artículo LXIV, de conformidad con el voto Nº 2019-3237 de las 09:45 horas del 22 de febrero de 2019, de la Sala Constitucional, dispuso adicionar al plan de cierre colectivo de fin y principio de año, así como de Semana Sanata del periodo 2022/2023 -publicado mediante aviso N° 15-2022-, que durante dicho cierre se destaquen tres jueces y un técnico judicial en los Tribunales de Apelaciones de Sentencia Penal, para que apoyen en las labores administrativas y de coordinación que las mencionadas actividades requieren y la prestación del servicio en la modalidad de apertura efectiva. Lo anterior, en el entendido que, el personal que laborara en los roles que se establezcan, deberán de presentarse a laborar al despacho en los horarios ya establecidos durante los cierres colectivos. De conformidad con la circular N° 67-09 emitida por la Secretaría de la Corte el 22 de junio de 2009, se le comunica que en virtud del principio de gratuidad que rige esta materia, la publicación está exenta de todo pago de derechos. Publíquese una sola vez en el Boletín Judicial.
+San José, 17 de noviembre de 2022.
