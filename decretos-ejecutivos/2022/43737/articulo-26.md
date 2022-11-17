@@ -1,0 +1,1 @@
+Artículo 26º.- Las personas funcionarias tendrán cincuenta minutos para la alimentación durante la jornada, según lo dispuesto por el artículo 137 del Código de Trabajo. Si se tratare de las personas funcionarias que se indican en el artículo 143 del mismo cuerpo legal y tuvieren que laborar durante doce horas, su descanso y alimentación mínimo será de una hora y treinta minutos.

@@ -1,0 +1,1 @@
+Artículo 105º.- Se entiende por Enfermedad de Trabajo, de conformidad con el artículo 197 del Código de Trabajo, todo estado patológico que resulte de la acción continuada de una causa que tiene su origen o motivo en el propio trabajo o en el medio y condiciones en que, la persona funcionaria labora y debe establecerse que estos han sido la causa de la enfermedad.

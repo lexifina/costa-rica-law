@@ -1,0 +1,1 @@
+Artículo 60º.- Las personas funcionarias que ocasionalmente realicen giras al interior o viajes al exterior del país, deben justificar las omisiones de marca, dentro de los tres días hábiles posteriores a su regreso

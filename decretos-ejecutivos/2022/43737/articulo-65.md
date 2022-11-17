@@ -1,0 +1,1 @@
+Artículo 65º.- Corresponde a los jefes inmediatos sancionar a las personas subalternas, cuando se hagan acreedores de una amonestación verbal o escrita, y enviar una copia a la Oficina de Gestión Institucional de Recursos Humanos cuando aquella sanción fuere escrita, o informar a esa oficina cuando fuere verbal.

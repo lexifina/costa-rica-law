@@ -1,0 +1,1 @@
+Artículo 9º.- El expediente de personal deberá contener todos aquellos documentos y datos que sirvan para determinar el historial de la relación de servicios, y será responsabilidad de la persona funcionaria actualizar su expediente.

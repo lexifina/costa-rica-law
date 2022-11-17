@@ -1,0 +1,1 @@
+Artículo 126º.- Se considerará un acto de discriminación, cuando los mecanismos empleados para este proceso no estén adaptados a las condiciones de la persona aspirante, cuando se exijan requisitos adicionales a los establecidos para todas las personas solicitantes o cuando no se emplee en razón de su discapacidad, a una persona trabajadora que demuestre ser idónea.

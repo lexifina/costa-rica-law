@@ -1,0 +1,1 @@
+Artículo 62º.- En casos muy calificados, y a criterio del jefe inmediato, la persona funcionaria podrá solicitar que la ausencia injustificada sea rebajada de sus vacaciones, siempre que no se trate de medias jornadas y que no excedan el número de días de vacaciones correspondiente al período que tiene derecho.

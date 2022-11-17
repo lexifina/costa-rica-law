@@ -1,0 +1,1 @@
+Artículo 2º.- El Estado es la persona jurídica responsable de las consecuencias resultantes de las relaciones entre el Ministerio y sus empleados; pero la representación inmediata estará delegada en el jerarca del Ministerio de Relaciones Exteriores y Culto, en lo sucesivo denominado "Ministro".

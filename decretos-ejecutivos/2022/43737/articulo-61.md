@@ -1,0 +1,1 @@
+Artículo 61º.- El control de la entrada y salida del tiempo para almuerzo, queda bajo la responsabilidad de cada jefe inmediato, quien establecerá los mecanismos necesarios de manera que no se ocasione menoscabo en la prestación del servicio.

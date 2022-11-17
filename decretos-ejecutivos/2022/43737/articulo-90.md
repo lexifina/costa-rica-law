@@ -1,0 +1,1 @@
+Artículo 90º.- Cuando se compruebe, mediante una investigación preliminar o procedimiento ordinario, la incapacidad o deficiencia en el desempeño de un puesto, la persona funcionaria podrá ser trasladada a otro de grado inferior, disposición que se aplicará únicamente de acuerdo con los resultados de la calificación periódica y previo cumplimiento del debido proceso.

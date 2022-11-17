@@ -1,0 +1,1 @@
+Artículo 21º.- Las personas funcionarias del Ministerio de Relaciones Exteriores y Culto incluidas o no en el Régimen del Servicio Civil, tendrán derecho a que se les reconozcan las revaloraciones generales, decretadas para las personas funcionarias del Poder Ejecutivo.

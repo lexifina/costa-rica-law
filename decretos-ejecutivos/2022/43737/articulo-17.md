@@ -1,0 +1,1 @@
+Artículo 17º.- Todo nombramiento, ascenso, traslado, permuta, aumento de sueldo, permiso, incapacidad, renuncia, sanción, despido o cualquier otro movimiento de personal, será tramitado mediante la fórmula "acción de personal" y por los procedimientos que indica el Estatuto de Servicio Civil y su Reglamento.

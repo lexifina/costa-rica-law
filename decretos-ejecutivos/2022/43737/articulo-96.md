@@ -1,0 +1,2 @@
+Artículo 96º.- La Comisión de Salud Ocupacional elaborará e impulsará el programa de salud ocupacional que cubra a todas las dependencias del Ministerio, de conformidad con el artículo 288 de la Ley sobre Riesgos de Trabajo, del Título IV del Código de Trabajo.
+Todos los trabajadores deberán ser informados de los riesgos que para su salud conlleva su trabajo. Deberán además informar de todo factor de riesgo conocido o sospechoso en el ambiente de trabajo que puede afectar su salud o la del resto de compañeros de trabajo.

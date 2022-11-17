@@ -1,0 +1,5 @@
+Artículo 92º.- Cuando la persona funcionaria no hubiera cumplido un año de prestación de servicios al momento de hacerse la calificación, o hubiere trabajado a las órdenes de diferentes superiores jerárquicos en el año anterior, se observarán las siguientes reglas:
+a) Si la persona funcionaria no hubiere cumplido su periodo de prueba, su calificación de servicios estará sujeta a lo dispuesto por el artículo 44 del Reglamento del Estatuto de Servicio Civil.
+b) Si hubiere trabajado más de tres meses, su calificación será por el tiempo de servicio prestado.
+c) Si la persona funcionaria hubiere trabajado menos de un año, pero seis meses o más a las órdenes de un mismo superior jerárquico, corresponderá a este hacer su calificación.
+d) Si la persona funcionaria hubiere estado a las órdenes de varios superiores jerárquicos durante el año, pero con ninguno más de seis meses, la calificación la hará el superior jerárquico último con quien hubiere trabajado tres o más meses debiendo tomar en cuenta los informes que en este caso deberán rendir los otros jefes.

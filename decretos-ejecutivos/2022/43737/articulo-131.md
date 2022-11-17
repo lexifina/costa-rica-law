@@ -1,0 +1,1 @@
+Artículo 131º.- El presente Reglamento deroga el Reglamento Autónomo de Servicio y Organización del Ministerio de Relaciones Exteriores y Culto (Decreto Ejecutivo número 23194-RE, del 12 de abril de 1994).

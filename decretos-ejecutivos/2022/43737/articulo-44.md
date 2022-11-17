@@ -1,0 +1,1 @@
+Artículo 44º.- Las vacaciones son absolutamente incompensables, salvo los casos señalados en el artículo 156 del Código de Trabajo. Cada jefatura de deberá velar por el disfrute efectivo de las vacaciones de sus subalternos de forma oportuna.

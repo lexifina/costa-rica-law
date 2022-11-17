@@ -1,0 +1,1 @@
+Artículo 117º.- La persona funcionaria a quien se le conceda la licencia a que se refiere el artículo anterior, estará obligada a presentar a la Oficina de Gestión Institucional de Recursos Humanos, un informe bimestral, trimestral, cuatrimestral o semestral, según sea el caso, sobre el progreso de sus estudios y una copia certificada de las calificaciones obtenidas.

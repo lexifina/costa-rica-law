@@ -1,0 +1,1 @@
+Artículo 43º.- Las personas funcionarias del Ministerio deberán gozar sin interrupción de su período anual de vacaciones, y sólo podrán dividirse en tres fracciones como máximo, de común acuerdo entre las partes, cuando se trate de labores de índole especial que no permitan una ausencia prolongada del servidor.

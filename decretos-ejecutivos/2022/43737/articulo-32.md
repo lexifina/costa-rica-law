@@ -1,0 +1,1 @@
+Artículo 32º.- Cuando una emergencia debidamente declarada así lo exija, las personas funcionarias están obligadas a prestar sus servicios en las oficinas centrales o cualquier lugar de la República, siempre que se le reconozcan los gastos de transporte, de permanencia, viáticos y la jornada extraordinaria de servicio.

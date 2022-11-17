@@ -1,0 +1,3 @@
+Capítulo VII
+Categoría y salarios
+Artículo 34º.- Los sueldos de las personas funcionarias del Ministerio, en ningún caso podrán ser inferiores a los mínimos legales establecidos por el Estado y serán los que correspondan según la Ley de Presupuesto Nacional, de conformidad con el sistema oficial de retribución que establece la Ley de Salarios de la Administración Pública o en su caso, según los presupuestos que autoricen las leyes especiales. Los pagos se realizarán por los medios oficiales con los que cuenta el Ministerio de Relaciones Exteriores y Culto, en las fechas que establezca la Tesorería Nacional para las personas funcionarias pagados por medio de esas oficinas o en las fechas que determine la dependencia autorizada en los demás casos.

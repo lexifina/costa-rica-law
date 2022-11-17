@@ -1,0 +1,1 @@
+Artículo 22º.- La Oficina de Gestión Institucional de Recursos Humanos, por delegación de la Dirección General, será quien tenga a su cargo la aplicación de este Reglamento, así como también lo concerniente al personal y las relaciones con la Dirección General de Servicio Civil.

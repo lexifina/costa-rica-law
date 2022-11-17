@@ -1,0 +1,1 @@
+Artículo 42º.- Las vacaciones no podrán acumularse, excepcionalmente podrán acumularse por una sola vez mediante resolución razonada del Director General, cuando el trabajador desempeñare labores técnicas, de dirección, de confianza u otras análogas, que dificulten especialmente su reemplazo.

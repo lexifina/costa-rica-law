@@ -1,0 +1,3 @@
+Capítulo XXI
+De las condiciones de seguridad e higiene en el trabajo
+Artículo 93º.- En el Ministerio se establecerán las Comisiones de Seguridad que resulten necesarias, integradas con igual número de representantes del patrono y de las personas funcionarias. Dichas comisiones tendrán por finalidad investigar las causas de los riesgos profesionales, proponer medidas para prevenirlos, y vigilar que estas se cumplan. La constitución de estas se pondrá a conocimiento del Departamento de Medicina, Higiene y Seguridad Ocupacional del Ministerio de Trabajo y Seguridad Social, al cual se sujetarán en lo relativo a asesoramiento. Las personas integrantes de las comisiones desempeñarán los cargos gratuitamente y dentro de las jornadas de trabajo sin rebajo de salario.

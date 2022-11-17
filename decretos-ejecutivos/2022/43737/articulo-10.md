@@ -1,0 +1,1 @@
+Artículo 10º.- Es deber de las unidades y dependencias del Ministerio, enviar copia al expediente personal de las personas funcionarias, de aquellas gestiones que, dentro de su ámbito de competencia, pueden generar actos jurídico-administrativos.

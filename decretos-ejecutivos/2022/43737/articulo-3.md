@@ -1,0 +1,1 @@
+Artículo 3º.- En general todos aquellos empleados que tengan bajo su responsabilidad tareas de dirección o de supervisión de personal, son responsables ante el Ministerio de velar por la correcta aplicación de todas las disposiciones del presente Reglamento.

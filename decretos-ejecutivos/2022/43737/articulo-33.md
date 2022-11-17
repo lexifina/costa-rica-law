@@ -1,0 +1,2 @@
+Artículo 33º.- Para el trámite y pago de tiempo extraordinario se procederá de acuerdo con lo establecido en el presente Reglamento, y con observancia del capítulo cuarto del Manual de Procedimientos para el Trámite y Control de Vacaciones, Horas Extra e Incapacidades.
+No se reconocerá en ningún caso el trabajo extraordinario ejecutado sin la observancia de las disposiciones antes citadas y sin la previa y expresa autorización del superior inmediato, del Director General y de la Oficina de Gestión Institucional de Recursos Humanos, para su debido pago.

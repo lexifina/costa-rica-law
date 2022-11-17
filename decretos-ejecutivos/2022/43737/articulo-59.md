@@ -1,0 +1,1 @@
+Artículo 59º.- En caso de asistencia irregular de una persona funcionaria exonerada de controles de asistencia, el Ministro, previo informe del superior jerárquico inmediato, podrá suspender la exoneración, brindando a los efectos el debido proceso correspondiente.

@@ -1,0 +1,1 @@
+Artículo 54º.- El registro debe ser efectuado con el debido cuidado, de manera que quede correctamente registrada la marca. Las marcas defectuosas, con las que no se logre realizar el registro con claridad y que no se deba a defecto del marcador, se tendrán por no hechas.

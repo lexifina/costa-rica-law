@@ -1,0 +1,3 @@
+Artículo 25º.- A aquellas personas funcionarias que realicen labores que por su naturaleza se encuentran excluidas de la limitación de la jornada laboral, de acuerdo al artículo 143 del Código de Trabajo, se les podrá exigir una jornada ordinaria de hasta doce horas diarias.
+Para quienes eventualmente presten servicios en similares condiciones a las que señala el artículo 143 del Código antes citado, la jornada ordinaria de trabajo será la que allí se establece.
+La Oficina de Gestión Institucional de Recursos Humanos se encargará de elaborar, mantener al día y tramitar una lista de las personas funcionarias cubiertas por este numeral.

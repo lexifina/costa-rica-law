@@ -1,0 +1,1 @@
+Artículo 5º.- Este reglamento será de observancia obligatoria para todas las personas funcionarias del Ministerio de Relaciones Exteriores y Culto, y el patrono se reserva el derecho de adicionarlo o modificarlo; con sujeción, en cada caso, a las disposiciones legales aplicables.

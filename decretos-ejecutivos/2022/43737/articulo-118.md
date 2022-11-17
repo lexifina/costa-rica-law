@@ -1,0 +1,1 @@
+Artículo 118º.- Las licencias de estudio concedidas según este Reglamento, lo serán durante el tiempo necesario para atender el cronograma del programa de estudios; en estos casos, salvo disposición expresa en contrario, las licencias serán con goce de sueldo.

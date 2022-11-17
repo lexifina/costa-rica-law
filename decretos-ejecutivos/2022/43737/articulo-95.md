@@ -1,0 +1,4 @@
+Artículo 95º.- Son funciones de la Comisión Institucional de Salud Ocupacional:
+a) Crear Sub comités de Seguridad e Higiene de Trabajo en aquellos centros de actividades del Ministerio, principalmente donde debido a las maquinarias usadas, vehículos que se utilicen, o materias empleadas, sean susceptibles a accidentes o enfermedades.
+b) Instruir a los sub comités para que velen por la limpieza, iluminación, ventilación, espacio y volumen de los locales de trabajo, buen estado de las instalaciones, paredes, pasillos, manejo de material o sustancias peligrosas, estado de seguridad de los equipos y herramientas; así como de la protección de las personas funcionarias durante la prestación de los servicios y cualquier otra función compatible con su naturaleza; y
+c) Solicitar a los sub comités información sobre los equipos, utensilios y afines, que sean necesarias para el establecimiento de medidas de seguridad e higiene del trabajo.

@@ -1,0 +1,1 @@
+Artículo 56º.- Quedan excluidos de la obligación de marcar: las personas que ocupen los cargos de Coordinador Administrativo Financiero, Directores y Jefes departamentales o de las instancias asesoras.

@@ -1,0 +1,5 @@
+Artículo 39º.- El salario que la persona funcionaria deberá percibir durante sus vacaciones, se calculará con base en el sueldo que ordinariamente se encuentre devengando en el momento del disfrute del descanso, según la Ley de Salarios de la Administración Pública o la Ley de Presupuesto Ordinario y Extraordinario de la República, según sea el año correspondiente.
+No obstante, dicha remuneración se calculará con base en el tiempo de trabajo efectivo y el promedio de los salarios ordinarios y extraordinarios devengados durante las respectivas cincuenta semanas de relación laboral incluyendo los subsidios recibidos por el servidor, de parte del Estado o de sus instituciones de seguridad social si ha estado incapacitado- en los tres casos siguientes:
+a) Cuando el servidor hubiere disfrutado de licencia sin goce de sueldo por más de treinta días consecutivos o no;
+b) Cuando el servidor hubiere estado incapacitado para trabajar por razón de enfermedad o riesgo profesional, durante un período mayor de seis meses; y
+c) Cuando, por las circunstancias especiales, previstas por la ley, se acuerde la compensación en dinero, parcial o total, del período de vacaciones.

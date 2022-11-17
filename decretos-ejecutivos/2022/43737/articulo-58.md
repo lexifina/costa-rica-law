@@ -1,0 +1,2 @@
+Artículo 58º.- La dispensa descrita en el artículo anterior, no faculta de ninguna manera para una asistencia irregular, por lo que el superior inmediato de la persona funcionaria exonerada, deberá disponer de los mecanismos de verificación correspondientes.
+La exoneración de marca de asistencia implica que las personas funcionarias están exoneradas de registrarla en libros, tarjetas, carnés o cualquier otro método ordinario de control previsto para comprobar la asistencia.

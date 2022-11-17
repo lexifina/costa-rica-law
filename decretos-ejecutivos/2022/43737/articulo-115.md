@@ -1,0 +1,1 @@
+Artículo 115º.- Las licencias para asistir a estudios, que se regulan por la Ley de Licencias para Adiestramiento de Servidores Públicos (Ley número 1810 del 15 de octubre de 1954) y conjuntamente con todo lo anterior, serán regidos por las disposiciones pertinentes del Reglamento del Estatuto de Servicio Civil y por lo previsto en este Reglamento.

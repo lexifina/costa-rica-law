@@ -1,0 +1,1 @@
+Artículo 29º.- Las personas funcionarias están obligadas al desempeño de sus cargos durante los días hábiles y por el tiempo comprendido en las horas reglamentarias, no se concederán privilegios, prerrogativas o licencias que autoricen una asistencia irregular; con excepción de lo establecido en los artículos 37 inciso c) del Estatuto de Servicio Civil y 33 de su Reglamento.

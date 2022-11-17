@@ -1,0 +1,4 @@
+Artículo 57º.- Podrá el superior inmediato, bajo su responsabilidad, eximir a una persona funcionaria de la obligación de registrar su asistencia en los controles ordinarios, cuando concurra alguno de los siguientes supuestos:
+a) Por la naturaleza de sus funciones, le corresponda habitualmente permanecer en giras previamente autorizadas, o habitualmente atender reuniones fuera de la sede del Ministerio, o que se encuentren en los casos previstos en el artículo 143 del Código de Trabajo. En ningún caso esta disposición deberá originar discriminaciones injustificadas que afecten la buena marcha del Ministerio.
+b) Que posean un mínimo de veinticinco años de servicio en el Estado.
+c) Quienes posean alguna discapacidad física permanente, que le dificulte o impida registrar su marca de asistencia.

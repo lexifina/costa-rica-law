@@ -1,0 +1,2 @@
+Artículo 107º.- Las gestiones de las personas funcionarias, de acuerdo con el artículo anterior, deberán ser planteadas por escrito; pero podrán serlo en forma verbal cuando así lo exija la urgencia de una resolución.
+Sin perjuicio de lo anterior, las personas funcionarias tienen derecho a utilizar el procedimiento de la figura del Reclamo Administrativo establecido en el artículo 88 y siguientes del Reglamento al Estatuto del Servicio Civil.

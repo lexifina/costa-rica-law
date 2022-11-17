@@ -1,0 +1,1 @@
+Artículo 72º.- El superior inmediato de la persona funcionaria fungirá como órgano director del procedimiento administrativo sumario. La Asesoría Jurídica del Ministerio fungirá como órgano director del procedimiento administrativo ordinario.
