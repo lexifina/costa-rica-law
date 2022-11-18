@@ -1,1 +1,0 @@
-Artículo 15.--El Presidente de la Comisión entregará, en la primera semana de enero, un informe contable al tesorero de la Junta Directiva. El tesorero de la Junta Directiva resumirá la información para incluirla en su informe anual a la Asamblea General.

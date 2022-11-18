@@ -1,1 +1,0 @@
-Artículo 12.-La asistencia de los integrantes de la Comisión será obligatoria y cinco ausencias injustificadas durante el año, darán motivo suficiente para que el miembro respectivo quede automáticamente cesante de su cargo.
