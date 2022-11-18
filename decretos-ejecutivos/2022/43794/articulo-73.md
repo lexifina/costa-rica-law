@@ -1,0 +1,1 @@
+Artículo 73.- De la conversión de las fanegas a 46 kilogramos: Para la conversión de las fanegas a unidades de 46 kilogramos el Instituto utilizará el rendimiento de beneficiado de la última cosecha liquidada.

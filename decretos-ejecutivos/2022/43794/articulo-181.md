@@ -1,0 +1,1 @@
+Artículo 181.- De la constatación del balance de inventarios: Los Inspectores del Instituto del Café de Costa Rica, conforme las potestades conferidas en el ordinal 62 y 121 de la Ley Nº 9872 estarán facultados para verificar la información consignada en las declaraciones juradas, para lo cual podrán ingresar a las bodegas e instalaciones que se utilicen para almacenar el café.

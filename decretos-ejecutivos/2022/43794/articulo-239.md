@@ -1,0 +1,1 @@
+Artículo 239.- De la separación del cargo de los miembros de la Junta Directiva: El Congreso Nacional Cafetalero tiene la atribución de separar del cargo, en cualquier tiempo, a uno de los miembros Directores de la Junta Directiva del ICAFE de cualquiera de los sectores que la integran, con el voto afirmativo de una mayoría calificada y mediante resolución razonada.

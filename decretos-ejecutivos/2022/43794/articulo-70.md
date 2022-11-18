@@ -1,0 +1,2 @@
+Artículo 70.- De la comunicación de la fijación de cuotas, porcentajes máximos y modificaciones a las cuotas de disponibilidad: El Instituto deberá comunicar toda fijación de cuotas, porcentajes máximos y modificaciones a las cuotas de disponibilidad, exportación y consumo nacional a los beneficiadores, exportadores y torrefactores.
+Dicha comunicación será vía correo electrónico a los interesados y mediante publicación de la circular correspondiente en la página oficial del Instituto, www.icafe.cr

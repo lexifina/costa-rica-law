@@ -1,0 +1,1 @@
+Artículo 136.- De la resolución alterna de conflictos: Las partes podrán incorporar dentro del contrato de liquidación individualizada y acudir a la alternativa de la resolución alterna de conflictos para dirimir cualquier diferencia contractual.

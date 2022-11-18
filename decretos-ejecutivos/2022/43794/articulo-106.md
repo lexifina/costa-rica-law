@@ -1,0 +1,9 @@
+Artículo 106.- De la declaración de cuentas para la liquidación final: Cuando los beneficiadores hayan realizado la totalidad de sus ventas, o, en todo caso a más tardar dentro de los diez primeros días del mes de octubre siguiente a la cosecha, salvo lo dispuesto por el artículo 71 de la Ley, y con fundamento en el estado de cuentas al treinta de setiembre, deberán presentar a la Gerencia Regulatoria de Tráfico y Liquidaciones del Instituto, una declaración de cuentas para la liquidación final, declaración disponible en la aplicación SICWEB, en la que se consignará para cada una de las categorías de café autorizadas por el ICAFE, los siguientes datos:
+a. Cantidad y montos totales de las ventas de café, realizadas para exportación, excluyendo el café comprado a otros beneficios.
+b. Cantidad de café de la cuota de consumo nacional no vendida y estimación del valor
+de la misma, determinado en la forma prevista en el inciso 7) del artículo 69 de la Ley.
+c. Cantidad y montos totales del café vendido para consumo nacional.
+d. Cantidad y montos totales del café de la cuota de retención, en el caso de que la hubiere o que se hubiere acordado pago alguno sobre la misma.
+e. Cuando sea procedente, detalle de los gastos de elaboración aceptados por Ley, acompañado con las respectivas facturas, impresas o electrónicas, o certificación de las mismas extendida por un Contador Público Autorizado.
+f. Cantidad total de café recibido: desglosando para cada categoría las cantidades de café maduro, de café verde y bellota y el detalle por zonas de recibo, en el caso de que hubiere demarcación de las mismas y relación obtenida por conversión de café en fruta a café oro.
+Queda facultado el ICAFE para que mediante la Gerencia Regulatoria de Tráfico y Liquidaciones se realicen inspecciones a fin de verificar que el café informado quincenalmente coincida con el café almacenado en bodegas.

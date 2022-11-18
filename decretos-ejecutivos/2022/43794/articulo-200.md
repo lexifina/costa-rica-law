@@ -1,0 +1,1 @@
+Artículo 200.- De la exposición del Padrón electoral: El padrón electoral, deberá estar a disposición de los usuarios para su consulta en las sedes regionales ICAFE, en el mes de marzo del año en que corresponda la elección. El plazo para posibles correcciones serán los meses de marzo y abril de tal manera que a partir de mayo no se podrá realizar cambio al mismo.

@@ -1,0 +1,3 @@
+Artículo 220.-De las Asambleas Nacionales Electorales de los sectores Beneficiador, Exportador y Torrefactor: Para facilitar la participación de los sectores Beneficiador, Exportador y Torrefactor en el proceso de elección de Delegados al Congreso Nacional Cafetalero y de miembros de la Junta Directiva de ICAFE, las asambleas nacionales de estos sectores se efectuarán simultáneamente en el mismo lugar.
+Para tal efecto, se establecerá un centro de votación debidamente identificado para cada uno de esos sectores en el lugar que seleccione la Junta Directiva de ICAFE para la celebración de las elecciones con base en criterio técnico que recomiende la Administración.
+La Auditoría Interna del ICAFE fiscalizará todo el proceso electoral conforme sus potestades.

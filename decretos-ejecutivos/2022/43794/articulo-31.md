@@ -1,0 +1,4 @@
+Artículo 31.- Del procedimiento y plazo para subsanar inconformidades: Cuando al interesado en inscribir un recibidor se le deniegue la inscripción a razón de las causas descritas en el artículo anterior, éste deberá:
+a. Realizar las reparaciones, modificaciones o cambio de equipo de medición de café de forma tal que la estructura cumpla con los requisitos señalados en el artículo 26 de este Reglamento.
+b. Presentar nota, elaborada por la Firma Beneficiadora que registra el recibidor, solicitando la des inscripción del recibidor. Dicha nota deberá contener la información señalada en el artículo 36 de este Reglamento y enviarse a la jefatura de la Sede Regional del área cafetalera que corresponda.
+Los interesados contarán con un plazo de 10 días hábiles para cumplir con lo prevenido, so pena de archivar la solicitud. La des inscripción e inscripción de recibidores conlleva la inspección del artículo 27.

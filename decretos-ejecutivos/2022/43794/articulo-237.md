@@ -1,0 +1,1 @@
+Artículo 237.- De la custodia del material electoral: Toda la documentación relacionada o los respaldos electrónicos, así como las papeletas serán debidamente guardadas en el ICAFE, hasta por seis meses, como archivo de respaldo de lo actuado.

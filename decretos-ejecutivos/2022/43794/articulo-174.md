@@ -1,0 +1,1 @@
+Artículo 174.-De la liquidación del exportador: Para efectos de la liquidación anual prevista en el artículo 172 de este Reglamento, el Exportador deberá incluir el efecto neto de las coberturas y podrá deducir otros gastos complementarios al monto autorizado, ambos debidamente registrados en la contabilidad del Exportador y certificados por un Contador Público.

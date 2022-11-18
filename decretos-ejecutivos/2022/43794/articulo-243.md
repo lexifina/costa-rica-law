@@ -1,0 +1,1 @@
+Artículo 243.- De la elección del presidente, vicepresidente y secretario: La Junta Directiva elegirá de su seno por mayoría de votos y por postulación individual, a un Presidente, un Vicepresidente y un Secretario, que durarán dos años en sus funciones, pudiendo ser reelectos por un período igual.

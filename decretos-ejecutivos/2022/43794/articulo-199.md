@@ -1,0 +1,2 @@
+Artículo 199.- Del concurso de regiones cafetaleras: Cuando un Productor figure en diferentes regiones, éste mediante la Sede Regional del área cafetalera que corresponda dará a conocer su elección de recinto electoral. Lo anterior a más tardar al 31 de marzo del año correspondiente.
+Vencido ese plazo sin que así lo haya manifestado, el ICAFE de oficio le asignará la región en que le corresponderá ejercer su voto tomando como criterio la región electoral donde tenga la mayor cantidad de entregas de café.

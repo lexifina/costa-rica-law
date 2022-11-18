@@ -1,0 +1,1 @@
+Artículo 63.- Del mecanismo de control del rendimiento real obtenido: En caso de ser necesario, las partes podrán establecer un mecanismo de control para efectos de la correspondiente determinación del rendimiento real obtenido, que será el que prevalecerá para el finiquito del respectivo contrato de maquila.

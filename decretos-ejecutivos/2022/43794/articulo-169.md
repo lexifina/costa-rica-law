@@ -1,0 +1,1 @@
+Artículo 169.-De los controles previos a recibir el café: A fin de cumplir con lo previsto en el artículo 106 de la Ley N° 9872, la Dirección Ejecutiva podrá ejercer los controles que considere oportunos de previo a que el exportador, torrefactor o comprador comerciante reciba el café por parte del beneficiador.

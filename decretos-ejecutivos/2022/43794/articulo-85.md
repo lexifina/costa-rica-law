@@ -1,0 +1,3 @@
+Artículo 85.- Del proceso de autorización de ventas a futuro sin posición en bolsa cuando el café es propio: En el caso de ventas para entrega a futuro sin posición en bolsa cuando el café es propio, el interesado deberá completar el documento denominado Informe Diario de Compraventa a través de la aplicación SICWEB.
+Una vez recibido por la Gerencia Regulatoria de Tráfico y Liquidaciones, esta elevará a la Dirección Ejecutiva del Instituto para su debida inscripción.
+Todo lo anterior en un plazo de tres días computados a partir del día siguiente de la recepción del Informe Diario de Compraventa.

@@ -1,0 +1,1 @@
+Artículo 170.-De las muestras de café: El tamaño de las muestras tomadas por el ICAFE obedecerá a estudios técnicos, dichas muestras permanecerán en custodia del Instituto por un plazo de tres meses, transcurrido ese plazo, se notificará al interesado. Pasados treinta días naturales sin que las muestras se retiren, pasaran a ser propiedad del Instituto del Café de Costa Rica.

@@ -1,0 +1,2 @@
+Artículo 13.- De la coordinación de las inspecciones y plazos: Corresponde a la Unidad de Industrialización y a las Sedes Regionales coordinar, vía correo electrónico, con el interesado, la ejecución de la inspección.
+El plazo para realizar la inspección, emisión y traslado de los informes técnicos a la Unidad de Asuntos Jurídicos es de diez días naturales computados a partir del día de la presentación de la respectiva solicitud por esa Unidad.

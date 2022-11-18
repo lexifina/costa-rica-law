@@ -1,0 +1,1 @@
+Artículo 259.- De la fiscalización por parte de la Contraloría General de la República: El Instituto del Café de Costa Rica estará sujeto a la fiscalización de la Contraloría General de la República en las materias que corresponda por su naturaleza jurídica y el origen de sus fondos.

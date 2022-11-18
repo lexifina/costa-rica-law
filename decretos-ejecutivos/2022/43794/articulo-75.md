@@ -1,0 +1,1 @@
+Artículo 75.-Del traslado de la cuota de exportación al exportador: La Cuota de Exportación será deducida de la cuenta del beneficiador y trasladada a favor del exportador con la inscripción de cada contrato de compra y venta de café para exportación.

@@ -1,0 +1,1 @@
+Artículo 192.- Del domicilio legal del Instituto: El Instituto tendrá su domicilio legal en la ciudad de Heredia, cantón Barva, distrito San Pedro y podrá establecer sedes regionales y representaciones en cualquier lugar de la República o fuera de ella a juicio de su Junta Directiva.

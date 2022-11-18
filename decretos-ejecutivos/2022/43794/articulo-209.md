@@ -1,0 +1,1 @@
+Artículo 209.-De la realización de las Asambleas Regionales de Productores: Todas las Asambleas Regionales de Productores se realizarán simultáneamente en las regiones electorales definidas por ley, en los centros de votación que se definan para tal efecto, el día que acuerde la Junta Directiva de ICAFE en el mes de junio del respectivo año.

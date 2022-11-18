@@ -1,0 +1,1 @@
+Artículo 260.- De la publicación del ejercicio económico: El Instituto del Café de Costa Rica publicará en su página web, al cierre del respectivo ejercicio financiero el Balance de Situación y Estado de Resultados -una vez aprobados por la Junta Directiva del ICAFE.

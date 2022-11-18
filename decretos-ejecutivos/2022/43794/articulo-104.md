@@ -1,0 +1,1 @@
+Artículo 104.- Del informe de los estudios económicos a la Junta de Liquidaciones: La Unidad de Estudios Económicos y Mercado, informará anualmente a la Junta de Liquidaciones o cuando esta lo requiera y a los interesados, sobre el resultado de los indicados estudios, para que ésta pueda contar con información suficiente para el cumplimiento de su cometido.

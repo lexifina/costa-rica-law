@@ -1,0 +1,1 @@
+Artículo 90.- De las obligaciones de los miembros suplentes en la Junta de Liquidaciones: Corresponde a los miembros suplentes de la Junta de Liquidaciones asistir a todas las sesiones de la Junta de Liquidaciones, con voz, pero sin voto, salvo cuando sustituyan al respectivo propietario, en cuyo caso tendrán voto.

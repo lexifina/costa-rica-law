@@ -1,0 +1,2 @@
+Artículo 17.- De la notificación de la garantía de cumplimiento, monto y plazo para aportar la garantía de cumplimiento: Conocido por la Unidad de Asuntos Jurídicos el monto por el cual se debe suscribir la garantía de cumplimiento, esta Dependencia en un plazo máximo de tres días naturales enviará un oficio al interesado, señalando la garantía que debe aportar y el monto de ésta.
+El interesado tendrá un plazo de diez días hábiles para presentar la garantía ante la Unidad de Asuntos Jurídicos.

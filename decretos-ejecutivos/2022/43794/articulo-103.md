@@ -1,0 +1,1 @@
+Artículo 103.- Del estudio a realizar y la confidencialidad: El estudio a realizar es un estudio de costos, la información recopilada será de uso confidencial y el ICAFE no publicará datos o nombres específicos de las Firmas Beneficiadoras que colaboren.

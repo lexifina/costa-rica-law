@@ -1,0 +1,3 @@
+CAPÍTULO VIII
+DE LA COMISION DE PERITOS CATADORES
+Artículo 265.- De la conformación de la Comisión de Peritos Catadores: El Instituto del Café de Costa Rica, de oficio o a solicitud de parte, podrá actuar como perito o árbitro, en una controversia surgida en cumplimiento de las disposiciones de la Ley o este Reglamento, relacionadas con la elaboración, mercadeo y calidad del café. Para tal efecto, se crea la Comisión de Peritos Catadores del Café del Instituto del Café de Costa Rica, compuesta por un mínimo de siete miembros independientes del ICAFE, nombrados para tal efecto por la Junta Directiva del Instituto. Esta Comisión regirá sus actos con fundamento en la Ley de Resolución Alterna de Conflictos y el Protocolo interno que para los efectos que ejecute el ICAFE.

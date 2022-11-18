@@ -1,0 +1,1 @@
+Artículo 69.- Del señalamiento de las cuotas provisionales: La Junta Directiva fijará provisionalmente la cuota de exportación, consumo nacional, disponibilidad y retención, usando como base inicial el promedio de las dos cosechas anteriores.

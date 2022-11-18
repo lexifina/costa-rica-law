@@ -1,0 +1,1 @@
+Artículo 132.- De la aprobación del Contrato y plazo: La verificación de requisitos, la aprobación del Contrato de Liquidación Individualizada por parte de la Dirección Ejecutiva y la notificación a los interesados se realizará en un plazo de tres días computados a partir del día siguiente de la recepción del contrato.

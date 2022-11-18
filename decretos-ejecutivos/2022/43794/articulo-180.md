@@ -1,0 +1,4 @@
+Artículo 180.- De las obligaciones de los agentes económicos que importen café: Será responsabilidad del agente económico que importe café:
+a. Llevar el control de inventario de café importado y reportarlo en la aplicación SICWEB de forma que respalde los ingresos y salidas del producto -café oro- importado y Café de Costa Rica del cual pueda demostrar entre otros datos el peso, fecha, características del café, a saber: tipo, calidad y preparación, así como el destino de las partidas de café tanto del café importado como del café nacional y sus mezclas; esta última información será catalogada de carácter confidencial.
+b. Presentar ante el ICAFE un informe de balance de inventarios, con base a la información contenida en el inciso anterior, el cual tendrá el valor y la trascendencia legal de una declaración jurada.
+Se excluye de esta disposición a los Torrefactores, salvo que comercialicen partidas de café verde.

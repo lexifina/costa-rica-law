@@ -1,0 +1,1 @@
+Artículo 96.-Del plazo de la función del fiscal y reelección: Los nombramientos como fiscales tienen una duración de cuatro años en sus funciones los que contarán a partir del primer día del mes de setiembre siguiente al nombramiento de los miembros de la Junta de Liquidaciones y podrán ser reelectos indefinidamente.

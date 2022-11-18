@@ -1,0 +1,2 @@
+Artículo 111.- De la autorización del porcentaje de liquidación de café en fruta verde: Corresponde a la Junta Directiva del Instituto analizar la solicitud presentada por las Firmas Beneficiadoras para aumentar el porcentaje de liquidación, tomar acuerdos al respecto y notificar al interesado.
+Todo lo anterior en un plazo de 10 días naturales a partir del día siguiente en que se recibe la solicitud.

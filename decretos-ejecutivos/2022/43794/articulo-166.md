@@ -1,0 +1,1 @@
+Artículo 166.-De las leyes y convenios internacionales: Toda partida de café para la exportación deberá cumplir con los requisitos estipulados o derivados de leyes o convenios internacionales de los que Costa Rica sea parte, los que serán comunicados por el ICAFE a los interesados.

@@ -1,0 +1,3 @@
+CAPITULO III
+DEL PRECIO FINAL Y RECURSOS
+Artículo 124.- De la notificación de los precios de liquidación final e inconformidades: Antes de la publicación establecida por el artículo 71 de la Ley N° 9872, y, en ningún caso después del diez de diciembre siguiente a la comercialización de la cosecha respectiva, el Instituto deberá comunicar por escrito a las firmas beneficiadoras, los precios de liquidación final que hubiere aprobado la Junta de Liquidaciones, a fin de que éstas en caso de inconformidad, interpongan dentro del plazo de tres días hábiles, siguientes a la notificación, recurso de revocatoria.

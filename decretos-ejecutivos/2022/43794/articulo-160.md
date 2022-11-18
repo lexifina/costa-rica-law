@@ -1,0 +1,2 @@
+Artículo 160.- Del muestreo en bolsas al vacío: En los casos de partidas de exportación empacadas en sacos de plástico tipo "Grainpro", o en bolsas al vacío, se solicita a la Firma interesada suscribir declaración jurada denominada "Declaración jurada para partidas de exportación empacadas en sacos de plástico tipo Grainpro, o en bolsas al vacío," disponible en www.icafe.cr, sección trámites.
+El inspector solicitará la declaración jurada con el objetivo de garantizar que la muestra corresponde a la partida que se está exportando.

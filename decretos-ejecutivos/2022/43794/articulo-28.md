@@ -1,0 +1,1 @@
+Artículo 28.- De la emisión de resolución posterior a la inspección: Una vez realizada la inspección, la Jefatura de la Sede Regional deberá emitir una resolución dando el visto bueno para la autorización de inscripción de recibidor de café o señalando las inconformidades para subsanar por parte del interesado necesarias para la inscripción del inmueble como recibidor.

@@ -1,0 +1,2 @@
+Artículo 121.- De la aprobación definitiva de los Registros de las Divisas Extranjeras: Se aprobarán en definitivo aquellas divisas declaradas por la Firma Beneficiadora que concuerden con los datos suministrados en el CPA.
+La diferencia entre las divisas declaradas será excluida del registro definitivo y la exclusión será comunicada, vía correo electrónico, a la Firma Beneficiadora, dentro del plazo que señala el artículo anterior.

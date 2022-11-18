@@ -1,0 +1,3 @@
+Artículo 51.- De la re- inspección de la Unidad de Industrialización y plazo: La Unidad de Industrialización realizará una segunda inspección dentro del tercer día, computados a partir del último día del plazo otorgado al interesado para la subsanación de las inconsistencias encontradas en la primera inspección.
+En caso de que se haya subsanado las inconformidades, se procederá a emitir la resolución positiva y seguirá el procedimiento establecido en el artículo 48.
+En caso de mantenerse las inconformidades, se emitirá en un plazo de tres días, la resolución correspondiente, notificación vía correo electrónico al interesado y el archivo de la solicitud, sin perjuicio de que el interesado presente nuevamente la solicitud y cumpla con las condiciones correspondientes.

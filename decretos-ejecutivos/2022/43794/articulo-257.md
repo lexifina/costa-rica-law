@@ -1,0 +1,1 @@
+Artículo 257.-De la delegación de funciones del Auditor: El Auditor del Instituto del Café podrá delegar sus funciones y atribuciones en otros servidores y empleados de la Auditoría Interna para su normal funcionamiento, salvo cuando su intervención personal fuere legalmente obligatoria.

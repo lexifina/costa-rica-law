@@ -1,0 +1,1 @@
+Artículo 217.- De la custodia del material electoral: Toda la documentación relacionada con las Asambleas, así como las papeletas o los dispositivos electrónicos que se utilicen en el proceso de votación, serán debidamente guardadas en el ICAFE, hasta por seis meses, como archivo de respaldo de lo actuado.

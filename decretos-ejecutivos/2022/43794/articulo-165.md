@@ -1,0 +1,1 @@
+Artículo 165.-De las exportaciones de café con contrato de compra aprobado: En el caso de exportaciones de café tostado cuyo contrato de compra haya sido aprobado por el Instituto no se requerirá la aprobación previa del ICAFE.

@@ -1,0 +1,1 @@
+Artículo 228.-De la realización de las Asambleas Nacionales de los Sectores Beneficiador, Exportador y Torrefactor: Las Asambleas Nacionales de estos sectores se realizarán simultáneamente el día y en el lugar que determine la Junta Directiva del ICAFE, debiendo realizarse las mismas dentro del mes de julio del respectivo año en la fecha y hora en que se convocó.

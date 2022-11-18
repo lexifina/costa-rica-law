@@ -1,0 +1,11 @@
+Artículo 43.- De la solicitud de inscripción de café diferenciado: Cuando una Firma Beneficiadora, además de procesar café convencional, esté interesada en procesar café diferenciado, deberá:
+a. Encontrarse inscrita ante el Instituto del Café de Costa Rica como Firma Beneficiadora.
+b. Completar la solicitud de Inscripción de Café Diferenciado, disponible en la página oficial del ICAFE, www.icafe.cr, sección trámites.
+c. Suscribir declaración jurada digital, disponible en la página web del Instituto www.icafe.cr , sección trámites, en la cual, de aprobarse la inscripción de café diferenciado, la firma beneficiadora se compromete a:
+1. Establecer una bitácora, en un plazo máximo de 10 días hábiles posterior a la notificación de aprobación, para uso exclusivo de "CAFÉ DIFERENCIADO", en la que consignará protocolariamente todas las actividades ejecutadas en el proceso de este café. Esta bitácora se mantendrá en un lugar accesible y protegido, para consulta del personal del ICAFE en cualquier momento.
+2. Identificar con la leyenda "Uso en Café Diferenciado", todo el equipo e infraestructura que participe en el proceso.
+3. Enviar oficio a la Unidad de Industrialización del ICAFÉ, en un plazo máximo de 10 días hábiles a partir de la notificación de la aprobación, consignando el nombre del responsable de las actividades y proceso del café diferenciado en el Beneficio.
+4. Realizar el proceso de recibo, procesamiento, almacenamiento y comercialización totalmente por separado del resto del café recibido, para lo cual hará constar que cuenta con las instalaciones o se tomen las medidas necesarias para no mezclar el café diferenciado con el restante.
+5. Informar anualmente cualquier cambio al ICAFE, a través de la Gerencia Regulatoria de Tráfico y Liquidaciones, sobre el seguimiento o fiscalización del proceso de Beneficiado y comercialización del café diferenciado.
+6.Brindar acceso irrestricto a los funcionarios de la Unidad de Industrialización del Instituto del Café durante el periodo de procesamiento de café diferenciado, con el fin de que puedan verificar, cuando consideren conveniente, el cumplimiento de procedimientos definidos para este café.
+7. Entregar a los productores un recibo especialmente elaborado para cada categoría de diferenciación.

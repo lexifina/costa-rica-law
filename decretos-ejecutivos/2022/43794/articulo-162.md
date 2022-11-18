@@ -1,0 +1,1 @@
+Artículo 162.- De la aprobación del permiso de exportación: el inspector aprobará la Nota Técnica 80 o Formulario de Autorización de Desalmacenaje (FAD), una vez finalizada la carga y que ésta cumpla con todos los requisitos establecidos en este capítulo.

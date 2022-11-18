@@ -1,0 +1,1 @@
+Artículo 267.- Se deroga el Decreto Ejecutivo N° 28018-MAG, Reglamento a la Ley sobre el régimen de relaciones entre productores, beneficiadores y exportadores de café, publicado en el Diario Oficial La Gaceta N° 153 del 09 de agosto de 1999", así como todas sus reformas.

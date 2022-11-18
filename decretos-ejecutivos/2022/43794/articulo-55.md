@@ -1,0 +1,1 @@
+Artículo 55.- De la cantidad de contratos de maquila: Las Firmas Beneficiadoras podrán tener tantos contratos de maquila, como capacidad de procesamiento instalada tenga el beneficio. La capacidad de procesamiento instalada de un beneficio es determinada en la inspección que realiza la Unidad de Industrialización de conformidad con el artículo 11 de este Reglamento.

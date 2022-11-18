@@ -1,0 +1,2 @@
+Artículo 117.- De la inscripción de Registro de Declaraciones de Divisas Extranjeras: Corresponde a la Gerencia Regulatoria de Tráfico y Liquidaciones del Instituto inscribir las declaraciones y notas de negociación, asignar un número de consecutivo y notificar al interesado vía correo electrónico de la inscripción del Registro de Declaraciones de Divisas Extranjeras.
+Todo lo anterior en un plazo de diez días naturales computados a partir del día siguiente de la presentación del Registro.

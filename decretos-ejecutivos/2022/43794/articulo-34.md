@@ -1,0 +1,1 @@
+Artículo 34.- De la exclusividad del recibidor: La instalación inscrita debidamente como recibidor en el ICAFE, solamente podrá ser utilizado por una Firma Beneficiadora y quedará registrado a nombre de la Firma Beneficiadora que solicitó su inscripción.

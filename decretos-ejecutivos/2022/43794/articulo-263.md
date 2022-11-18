@@ -1,0 +1,1 @@
+Artículo 263.-De la publicación del estado económico: A más tardar, dentro de los primeros seis meses de cada año, el Instituto del Café publicará el informe de la actividad cafetalera en la que dará a conocer su situación económica y las operaciones y labores que hubiere efectuado en el curso del período anterior.

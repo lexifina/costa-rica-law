@@ -1,0 +1,7 @@
+Artículo 214.- De las papeletas nulas: Para efectos del conteo se considerarán papeletas nulas:
+a. Las que contengan más votos (marcas en las casillas) del máximo definido para cada papeleta conforme la información que contiene la misma papeleta de votación.
+b. Las que contengan tachones que no permitan conocer la voluntad de voto del elector.
+Una vez finalizado el respectivo conteo de votos, los miembros de la Junta Escrutadora de Votos procederán a llenar el acta de cierre, donde se hará constar necesariamente el nombre de los miembros, el número de papeletas en blanco, nulas y válidas, así como los resultados de la votación para Delegados al Congreso y miembros de Junta Directiva ICAFE. Todos los miembros procederán a firmar el acta.
+Finalizado el acto de cierre y firma del acta respectiva, los miembros de la Junta Escrutadora de Votos procederán a depositar las papeletas por separado en tres sobres de manila: un sobre con las papeletas nulas, otro con las papeletas en blanco y el otro con las papeletas válidas.
+Los tres sobres y las actas de apertura y cierre se colocarán posteriormente, dentro de otro sobre de manila rotulado con el nombre de la Región Electoral y la ubicación del Centro de Votación, sellándolo en el cierre.
+El funcionario del ICAFE que forma parte de la Junta Escrutadora de Votos procederá a llevar a las oficinas centrales del ICAFE, específicamente a la Dirección Ejecutiva, el sobre con toda la documentación, la cual se procesará en conteo final conforme posteriormente se indica en este Reglamento.

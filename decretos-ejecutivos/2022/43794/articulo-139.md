@@ -1,0 +1,3 @@
+Artículo 139.- Del responsable de la resolución y plazo: La Unidad de Asuntos Jurídicos es la Dependencia encargada de la revisión del trámite y constatación de la marca que se propone a usar, en el Registro de la Propiedad Industrial del Registro Nacional.
+Una vez revisada la información, la Unidad de Asuntos Jurídicos emitirá la debida resolución de aprobación o improbación, en un plazo de tres días computados a partir del día siguiente de la recepción de la solicitud.
+Una vez inscrita la marca, el ICAFE a través de la Unidad de Asuntos Jurídicos velará por el no uso de las marcas por terceros no autorizados, en contratos de compraventa, empaque o documentos de exportación.

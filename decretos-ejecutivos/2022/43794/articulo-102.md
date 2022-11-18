@@ -1,0 +1,1 @@
+Artículo 102.- De la aplicación de la encuesta en sitio: Posterior al envío de la carta de solicitud de colaboración, la Unidad de Estudios Económicos y Mercado se estará comunicando con la Firma Beneficiadora para verificar su anuencia a colaborar, y, de ser positiva, programar una única visita entre julio y setiembre para la aplicación de la boleta de la encuesta respectiva.

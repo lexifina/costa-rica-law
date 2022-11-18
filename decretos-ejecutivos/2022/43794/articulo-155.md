@@ -1,0 +1,1 @@
+Artículo 155.-De la solicitud de inspección: La Firma Beneficiadora interesada en realizar exportaciones debe solicitar una inspección de la partida de café a exportar, con al menos 72 horas de anticipación según la programación de la carga a exportar.

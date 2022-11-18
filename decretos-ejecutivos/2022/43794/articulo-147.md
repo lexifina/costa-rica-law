@@ -1,0 +1,2 @@
+Artículo 147.- Del cierre de inscripción de contratos: La inscripción de contratos de compra - venta de café para la exportación cerrará el último día del mes de setiembre del respectivo año cafetalero. El Instituto está facultado para autorizar el registro de ventas de cosechas futuras conforme lo indicado en el artículo 82 de este Reglamento.
+La Junta Directiva podrá anticipar la fecha de inicio o prorrogar la fecha de cierre de inscripción de contratos para la compraventa de café para exportación.

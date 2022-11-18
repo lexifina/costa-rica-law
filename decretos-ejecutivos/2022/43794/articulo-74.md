@@ -1,0 +1,4 @@
+CAPITULO III
+DE LA CUOTA DE EXPORTACIÓN Y CONSUMO NACIONAL
+Artículo 74.- De la utilidad del porcentaje máximo de exportación: El Instituto del Café de Costa Rica determinará la utilidad de porcentaje máximo que, de la cuota de exportación, pueden ser vendidos para ser exportados en los diferentes periodos del año cafetalero. Lo anterior, de conformidad con las disposiciones de los Convenios Internacionales y/o de políticas de regulación de ofertas.
+Para los beneficios de las zonas de maduración temprana o con malas vías de comunicación y para aquellos que elaboren tipos de café que tienen una demanda estacional particularmente pronunciada, podrá fijarse un mayor porcentaje para determinados períodos, sin que la cuota anual sobrepase el porcentaje general establecido para todos los beneficios.

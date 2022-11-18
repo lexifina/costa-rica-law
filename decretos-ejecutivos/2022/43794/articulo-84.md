@@ -1,0 +1,1 @@
+Artículo 84.- De las ventas a futuro sin posición en bolsa cuando el café es propio: Se permitirá la inscripción de contratos futuros a aquellos beneficios que solamente procesen y vendan café de sus propietarios.

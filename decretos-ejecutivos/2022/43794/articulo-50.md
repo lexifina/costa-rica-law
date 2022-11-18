@@ -1,0 +1,1 @@
+Artículo 50.- Del plazo para subsanar inconformidades: Se otorgará al interesado un plazo único e improrrogable de diez días hábiles para que el interesado subsane las inconformidades encontradas por la Unidad de Industrialización, plazo computado a partir del día siguiente del envío de la notificación al interesado.

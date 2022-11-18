@@ -1,0 +1,1 @@
+Artículo 134.- De la no aplicación del precio final de liquidación: En los contratos de liquidación individualizada, dado que el precio no queda sujeto al proceso de liquidación ordinario previsto en la Ley N° 9872, no aplicará en favor del productor, el precio de liquidación final establecido en este Reglamento.

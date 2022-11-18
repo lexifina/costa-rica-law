@@ -1,0 +1,1 @@
+Artículo 266.- Del carácter vinculante de los dictámenes: Los dictámenes de la Comisión de Peritos Catadores del Café, serán de carácter vinculante para las partes y se constituirán prueba idónea para las partes, la Junta Directiva o Dirección Ejecutiva ante la resolución de conflictos que se presenten.

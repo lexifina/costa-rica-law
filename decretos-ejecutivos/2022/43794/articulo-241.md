@@ -1,0 +1,1 @@
+Artículo 241.- De la no exoneración de responsabilidad de los Directores: La separación de cualquiera de los miembros de la Junta Directiva, no lo libra de las responsabilidades legales en que pudiere haber incurrido, durante la gestión, por incumplimiento de alguna de las disposiciones de las leyes, decretos o reglamentos aplicables al Instituto del Café.

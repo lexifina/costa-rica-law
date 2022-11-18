@@ -1,0 +1,2 @@
+Artículo 8.- Requisito especial: Aquellos Compradores- Comerciantes, Exportadores y Beneficiadores que, al momento de la solicitud de inscripción ante el Instituto del Café de Costa Rica no posean bienes inmuebles inscritos a nombre de la razón social, de su representante legal, o a título de persona física que respalden el giro de su operación, deberán suscribir una garantía de cumplimiento como requisito especial para su inscripción.
+El procedimiento para el cálculo de la garantía se encuentra disponible en el artículo 16 de este Reglamento.

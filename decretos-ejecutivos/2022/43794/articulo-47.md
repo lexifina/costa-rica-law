@@ -1,0 +1,2 @@
+Artículo 47.- Del objetivo de la inspección: La inspección por parte de la Unidad de Industrialización tendrá como objetivo verificar que la Firma Beneficiadora interesada tenga capacidad instalada suficiente para recibir, transportar, procesar y almacenar por separado cada categoría de café diferenciado.
+Una vez realizada la inspección, la Jefatura de la Unidad de Industrialización emitirá una resolución recomendando, o no, la aprobación de la solicitud. La resolución de la inspección es vinculante para la inscripción de la línea de café diferenciado.

@@ -1,0 +1,6 @@
+Artículo 222.- De la Publicación de información relacionada con la elección de las Asambleas Nacionales Electorales de los sectores Beneficiador, Exportador y Torrefactor: El cuarto lunes del mes de mayo del año en que corresponda la elección para Delegados al Congreso Cafetalero y de los miembros Directores ante la Junta Directiva, el ICAFE informará por medio de una circular, la página web y/u otros medios electrónicos disponibles, información relacionada con las Asambleas Nacionales de los Sectores Beneficiador, Exportador y Torrefactor, indicando lo siguiente:
+a. La finalidad del proceso electoral.
+b. El número de Delegados Propietarios y Suplentes al Congreso Nacional Cafetalero a ser electos por cada sector, así como la información para la selección de los miembros de Junta Directiva.
+c. Plazo para la postulación de candidatos para delegados al Congreso Nacional Cafetalero, postulación de candidatos para Junta Directiva y Junta Escrutadora de Votos. Este plazo será de quince días naturales improrrogable y se deberá indicar la fecha de inicio y finalización.
+d. Fecha, hora y lugar donde se llevarán a cabo en forma simultánea las asambleas de los sectores Beneficiador, Exportador y Torrefactor.
+e. Información sobre la acreditación de representantes para participar en las correspondientes Asambleas.

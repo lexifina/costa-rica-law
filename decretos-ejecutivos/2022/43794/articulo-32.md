@@ -1,0 +1,3 @@
+Artículo 32.- De la inspección final del recibidor, emisión de la resolución y plazo: Vencido el plazo para subsanar, se ejecutará una segunda inspección a fin de corroborar las condiciones del inmueble a inscribir como recibidor.
+La inspección final, emisión de resolución y notificación al interesado se efectuará dentro del tercer día computado a partir del día siguiente del último día de plazo para subsanar las inconformidades señaladas por el ICAFE en la primera inspección.
+Corresponde a la Sede Regional la coordinación de la inspección, así como la notificación al interesado vía correo electrónico.

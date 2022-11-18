@@ -1,0 +1,1 @@
+Artículo 168.-De la ejecución de contratos de exportación: Los exportadores deben ejecutar los contratos con el mismo café recibido de los beneficiadores, cuando se trate de exportaciones de café por marcas inscritas a nombre de éstos. En estos casos el ICAFE deberá mantener a disposición del beneficiador una muestra del café exportado.

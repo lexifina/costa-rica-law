@@ -1,0 +1,1 @@
+Artículo 230.- Del cierre del recinto: El período de votación iniciará a las catorce horas y finalizará a las diecisiete horas. En caso de que el total de representantes acreditados hayan emitido su voto antes de las diecisiete horas se procederá con el cierre del respectivo recinto electoral.

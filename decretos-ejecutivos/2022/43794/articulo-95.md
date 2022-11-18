@@ -1,0 +1,1 @@
+Artículo 95.- Del nombramiento de fiscales suplentes: En caso de vacantes de fiscales definitivas, la entidad que efectuó la designación tendrá derecho a nombrar el respectivo suplente siguiendo el proceso señalado en el artículo 92 de este Reglamento.

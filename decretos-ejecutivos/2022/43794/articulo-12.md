@@ -1,0 +1,1 @@
+Artículo 12.- De la inspección de la Sede Regional: La Sede Regional de la zona cafetalera que corresponda a solicitud de la Unidad de Asuntos Jurídicos, ejecutará una inspección en la finca productora a fin de estimar la capacidad de producción de café que tendrá la Firma Beneficiadora, y emitirá un informe donde conste la afluencia de café.

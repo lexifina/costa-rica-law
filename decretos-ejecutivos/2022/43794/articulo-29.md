@@ -1,0 +1,2 @@
+Artículo 29.- Del plazo para la inscripción de recibidores de café: La inspección, emisión de resolución, inscripción en los registros del ICAFE y notificación de ésta a la Firma Beneficiadora, se ejecutará en un plazo de diez días naturales contados a partir del día siguiente de la recepción de la solicitud de inscripción de recibidor, plazo que se suspenderá si el interesado debe subsanar inconformidades.
+Corresponde a la Sede Regional la coordinación, vía correo electrónico, con el interesado para la realización de la inspección.

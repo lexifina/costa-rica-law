@@ -1,0 +1,4 @@
+Artículo 110.- De la liquidación de café fruta verde: El precio definitivo del café fruta verde que reciba la Firma Beneficiadora se pagará a un cincuenta y cinco por ciento (55%) del precio promedio general del Beneficio en la categoría respectiva.
+La Junta Directiva del Instituto del Café de Costa Rica, a solicitud de las Firmas Beneficiadoras podrá autorizar liquidar el café fruta verde hasta un setenta por ciento (70%) del precio promedio general del Beneficio en la categoría respectiva, para lo cual deberán:
+a. Presentar nota escrita a la Junta Directiva del Instituto solicitando la liquidación de café en fruta verde hasta por un 70% en la categoría respectiva.
+b. Enviar la nota señalada en el punto anterior a más tardar el 30 de setiembre de cada año y ser firmada digitalmente por el representante legal de la Firma Beneficiadora.

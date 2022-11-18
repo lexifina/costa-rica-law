@@ -1,0 +1,2 @@
+Artículo 207.-Del formato de las papeletas de votación: El ICAFE elaborará las papeletas de votación impresas o electrónicas, en forma previa a la realización de las Asambleas, una vez realizada la publicación que establece el artículo anterior.
+De requerirse papeletas impresas, éstas se imprimirán en cantidades suficientes para dar abasto a las necesidades del acto, situación que quedará bajo la responsabilidad del ICAFE. Todas las papeletas -indistintamente de su formato- tendrán la misma forma, diseño y tamaño, además deberán contener el sello del ICAFE.

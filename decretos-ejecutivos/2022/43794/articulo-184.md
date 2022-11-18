@@ -1,0 +1,6 @@
+Artículo 184.-De la diferencia entre los datos de la nota y los análisis técnicos: De existir una diferencia entre los datos contenidos en la nota técnica de importación y los resultados obtenidos de los análisis técnicos efectuados por el Instituto, se deberá generar dos advertencias que serán dirigidas al Agente Económico o al Importador y a las autoridades competentes en materia de importaciones.
+De ser requerido, debido a las conclusiones del informe técnico de catación del café importado, de conformidad con el artículo 118 de la Ley N° 9872, el ICAFE con la finalidad de velar por el origen del café, solicitará a los administrados documentos que respalden la tenencia lícita del café, siendo estos:
+a. la declaración única aduanera.
+b. la factura comercial de compra del café al momento de nacionalizarse.
+c. las guías de traslado del producto (tanto de ingresos como salidas del café verde importado).
+d. las respectivas órdenes de trabajo para garantizar la trazabilidad de este café desde el ingreso en frontera hasta el Beneficio Seco o la Bodega de almacenamiento debidamente autorizada por el Ministerio de Agricultura y Ganadería (MAG) por medio del Servicio Fitosanitario del Estado y posteriormente hasta la puerta del Tostador.

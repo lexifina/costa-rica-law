@@ -1,0 +1,3 @@
+Artículo 224.- De la Convocatoria y publicación de candidatos Delegados al Congreso Nacional Cafetalero y Candidatos a la Junta Directiva ICAFE: El Instituto convocará por lo menos con 8 días naturales de antelación a la celebración de las Asambleas Nacionales de los Sectores Beneficiador, Exportador y Torrefactor a través de notificación personal o por correo electrónico a los representantes acreditados por las firmas Beneficiadoras, Exportadoras y Torrefactoras, que figuren en el padrón respectivo de cada sector. En la convocatoria se debe indicar como mínimo lo siguiente:
+a. Fecha, lugar y hora de las Asambleas.
+b. La lista de candidatos de cada sector, tanto para Delegados al Congreso Nacional Cafetalero como para la Junta Directiva de ICAFE.
