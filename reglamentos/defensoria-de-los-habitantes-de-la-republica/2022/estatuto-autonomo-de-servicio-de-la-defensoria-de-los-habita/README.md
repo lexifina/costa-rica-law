@@ -15,3 +15,4 @@ Estatuto autónomo de servicio de la Defensoría de los Habitantes
 | --- | --- | --- |
 | 1 | 2022-09-05 | la propia norma |
 | 2 | 2022-09-05 | Reglamento 0 (2022-09-05) |
+| 3 | 2022-11-18 | Reglamento 0 (2022-11-18) |
