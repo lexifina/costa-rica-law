@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO XXIV
+(Esta norma fue derogada por el artículo 1°, inciso 939, de la ley N° 10287 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (Sexta parte)")
 Admite la renuncia del segundo Designado y nombra quien lo reponga
 El Congreso Constitucional de la República de Costa Rica.
 Usando de la facultad que le concede la atribución 3° artículo 73 de la Constitución, y para cumplir con lo prevenido en la atribución 8° del mismo artículo, decreta:

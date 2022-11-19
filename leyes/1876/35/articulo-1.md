@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO XXXV
+(Esta norma fue derogada por el artículo 1°, inciso 947, de la ley N° 10287 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (Sexta parte)")
 Aprueba varios decretos de la Comisión Permanente, y deroga el decreto n° 12 de abril de este año.
 El Congreso Constitucional de la República.
 Habiendo correspondido los decretos emitidos por la Honorable Comisión Permanente durante el receso de este Alto Cuerpo, decreta:

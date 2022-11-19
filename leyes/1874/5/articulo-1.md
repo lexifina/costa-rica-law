@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO V
+(Esta norma fue derogada por el artículo 1°, inciso 861, de la ley N° 10287 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (Sexta parte)")
 Faculta a la Dirección de Estudios para que dispense el examen del segundo curso de latinidad para obtener el grado de Bachiller.
 La Comisión Permanente.
 Con presencia de la solicitud de algunos de los jóvenes alumnos de la Universidad de Santo Tomás, de 29 de agosto último sobre que se les dispense el examen del 2 curso de latinidad para optar al grado de bachiller en Artes, y del informe del Señor Rector del Instituto, teniendo además presentes las dificultades a que los postulantes se refieren, a iniciativa del S.P.E, decreta:

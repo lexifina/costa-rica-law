@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO IL
+(Esta norma fue derogada por el artículo 1°, inciso 859, de la ley N° 10287 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (Sexta parte)")
 Prorroga los efectos de los decretos de 26 de mayo y 24 de julio del corriente año.
 La Comisión Permanente.
 Con vista de las circunstancias expuestas por el Supremo Poder Ejecutivo, a solicitud y uso de la facultad que por fracción 3° del artículo 94 de la Constitución le compete.

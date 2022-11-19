@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO XXII
+(Esta norma fue derogada por el artículo 1°, inciso 882, de la ley N° 10287 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (Sexta parte)")
 Dieta medidas contra la carestía de los artículos de primera necesidad.
 El Congreso Constitucional de la República de Costa Rica.
 En vista de la creciente carestía de los alimentos de primera necesidad y para prevenir sus efectos, decreta:

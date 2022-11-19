@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO XXXIII
+(Esta norma fue derogada por el artículo 1°, inciso 635, de la ley N° 10287 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (Sexta parte)")
 Reforma el artículo 12 del decreto de 5 de julio de 1866, sobre adulteraciones de licores del país por expendedores de ellos.
 Considerando: que el artículo 28, Sección 3 del Reglamento de Hacienda de 30 de julio de 1858, se presta a interpretaciones que han dado lugar a declaratorias o sentencias opuestas, en casos idénticos: - que las penas designadas por el artículo 12 del Decreto de 5 de julio de 1866 para el delito de adulteración de licores nacionales, no se hallan por su gravedad, en proporción con falta; con la falta; y con mira de evitar toda duda y de que las penas se hagan efectiva, Decreta:
 Art 1° Es absolutamente prohibida para la expendedores de aguardientes del país, la adulteración de ellos con agua o cualesquiera otras sustancias y cometen delito e incurrirán en las penas que señala artículo 28 del citado Reglamento de Hacienda, los que efectúen tal adulteración, aunque ello se hagan en aquello licores que no estén de manifiesto para su expedio.

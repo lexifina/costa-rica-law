@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO XIX
+(Esta norma fue derogada por el artículo 1°, inciso 831, de la ley N° 10287 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (Sexta parte)")
 Aprueba el Informe del Secretario de Estado en el Despacho de Obras Públicas.
 El Congreso Constitucional de la República de Costa Rica.
 Habiendo examinado los actos del Poder Ejecutivo a que se refiere el Informe del Honorable Señor Secretario de Estado en el Despacho de Obras Públicas, decreta:

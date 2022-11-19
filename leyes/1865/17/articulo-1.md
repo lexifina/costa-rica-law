@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO XVII
+(Esta norma fue derogada por el artículo 1°, inciso 441, de la ley N° 10287 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (Sexta parte)")
 Concede una pensión vitalicia al Capitán retirado Don José María Rojas
 El Senado y Cámara de Representantes de la República de Costa Rica, reunidos en el Congreso.
 En vista del expediente elevado por el Poder Ejecutivo, en el cual el Capitán retirado Don José María Rojas, solicita la gracia de que se le aumente la pensión de que disfruta, como inválido; y en atención a los dilatados servicios de dicho Capitán en la carrera de las armas, y a los méritos que contrajo en la memorable jornada del 11 de abril de 1856.

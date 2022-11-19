@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO LX
+(Esta norma fue derogada por el artículo 1°, inciso 399, de la ley N° 10287 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (Sexta parte)")
 Determina la jurisdiccion territorial del Juez de mínas
 y las atribuciones que competen a éste
 N° 4

@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO XXXIX
+(Esta norma fue derogada por el artículo 1°, inciso 897, de la ley N° 10287 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (Sexta parte)")
 Aprueba los actos del Poder Ejecutivo contenidos en la Memoria de Guerra y Marina
 El Congreso Constitucional de la República de Costa Rica.
 Con presencia de los actos del Supremo Poder Ejecutivo contenidos en el Informe con que dio cuenta a este Alto Cuerpo el Honorable Señor Secretario de Estado en los Despachos de Guerra y Marina, correspondiente al año económico que espiró en 30 de abril, decreta:

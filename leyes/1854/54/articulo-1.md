@@ -1,6 +1,8 @@
+(Derogado)
 DECRETO LIV
+(Esta norma fue derogada por el artículo 1°, inciso 95, de la ley N° 10287 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (Sexta parte)")
 Reglamento la policía de la carretera nacional (1)
-“Juan Rafael Mora, Presidente de la República de Costa Rica.
+"Juan Rafael Mora, Presidente de la República de Costa Rica.
 Considerando: que serán inútiles cuantas obras y sacrificios se hagan en el camino que conduce desde Cartago a Puntarenas, mientras todo y todos no cooperen a su perfección, y que no debe omitirse nada de cuanto pueda mantener el orden, el aseo i seguridad, al mismo tiempo que la mejora de las vías de comunicación, he resuelto decretar y decreto el siguiente
 REGLAMENTO DE POLICIA
 PARA LA CARRETERA NACIONAL

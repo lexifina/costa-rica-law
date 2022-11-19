@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO XXXIV
+(Esta norma fue derogada por el artículo 1°, inciso 791, de la ley N° 10287 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (Sexta parte)")
 Establece nuevas penas contra los defraudadores de las rentas nacionales
 El Congreso Constitucional de la República de Costa Rica.
 Visto el decreto expedido por la Comisión Permanente, número 13 de 24 de abril último, convirtiendo en pecuniaria la pena corporal impuesta a los defraudadores de las rentas públicas, por la ley de 17 de abril de 1870.

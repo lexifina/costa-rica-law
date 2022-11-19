@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO XXX
+(Esta norma fue derogada por el artículo 1°, inciso 519, de la ley N° 10287 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (Sexta parte)")
 (Se respeta la ortografía y gramática del texto, tal y como fue publicado originalmente)
 Da instrucciones sobre la manera de redactar los instrumentos públicos sujetos á rejistro.
 JOSE MARIA CASTRO, Presidente de la República de Costa Rica.-Para facilitar la ejecución de la ley hipotecaria decretada en 31 de Octubre de 1866, en uso de las facultades que la misma ley me confiere, decreto la siguiente

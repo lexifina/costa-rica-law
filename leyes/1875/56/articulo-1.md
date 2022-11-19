@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO LVI
+(Esta norma fue derogada por el artículo 1°, inciso 913, de la ley N° 10287 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (Sexta parte)")
 Reforma el Decreto N°2 de 25 de agosto de este año.
 La Comisión Permanente.
 Con vista de la exposición del Supremo Poder Ejecutivo sobre la reforma que a su juicio parasen convenientes y necesarios en el Decreto n°2 de 25 agosto próximo pasado, decreta:

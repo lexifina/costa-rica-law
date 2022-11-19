@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO IV
+(Esta norma fue derogada por el artículo 1°, inciso 868, de la ley N° 10287 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (Sexta parte)")
 Suprimo el premio del diez por ciento de la moneda de plata Norte-americana.
 Tomas Guardia, General de División y Presidente de la República de Costa Rica.
 En atención a que el 10% de premio acordado a la moneda de plata de los EEUU, de Norteamérica, por disposición suprema de 19 de abril de 1873, es perjudicial y embarazosa para las transacciones mercantiles.

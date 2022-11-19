@@ -1,4 +1,6 @@
+(Derogado)
 Decreto XV
+(Esta norma fue derogada por el artículo 1°, inciso 623, de la ley N° 10287 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (Sexta parte)")
 Deroga el acto de carácter legislativo de la pasada Administración, que adiciona la Ordenanza de Aduana de 1866.
 El Jefe Provisorio de la República en uso de sus facultades, decreta:
 El Jefe Provisorio de la República en uso de sus facultades, decreta:

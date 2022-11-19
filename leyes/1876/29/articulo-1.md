@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO XXIX
+(Esta norma fue derogada por el artículo 1°, inciso 945, de la ley N° 10287 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (Sexta parte)")
 (Se respeta la ortografía y gramática del texto, tal y como fue publicado originalmente.)
 Concede privilegio por cinco años á D. Próspero Fernandez para extraer concha de perla en el litoral del Pacífico.
 El Congreso Constitucional de la República de Costa Rica.

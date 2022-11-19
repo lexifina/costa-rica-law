@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO XXIII.
+(Esta norma fue derogada por el artículo 1°, inciso 366, de la ley N° 10287 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (Sexta parte)")
 Estatutos y Reglamento del Hospital de San Juan de Dios y Lazareto.
 Jesús Jiménez, Presidente de la República de Costa- Rica.
 Estando por leyes anteriores vigentes establecido, Estatutos y Reglamento del Hospital de San Juan de Dios y Lazareto. en esta ciudad el Hospital general de San Juan de Dios, en uso de la facultad que concede al Poder Ejecutivo la fracción 252 del art. 110 de la Constitución política de la República, decreto los siguientes

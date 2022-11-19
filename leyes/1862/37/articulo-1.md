@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO XXXVII.
+(Esta norma fue derogada por el artículo 1°, inciso 345, de la ley N° 10287 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (Sexta parte)")
 Faculta al Poder Ejecutivo para reglamentar las materias de inmigración y colonización bajo las bases que el mismo decreto expresa.
 El Senado y Cámara de Representantes de Costa- Rica, reunidos en Congreso
 Con presencia de la exposición dirigida al Poder Legislativo por el Supremo Gobierno con fecha 25 de Setiembre último, decretan:

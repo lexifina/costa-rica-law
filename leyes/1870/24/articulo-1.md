@@ -1,4 +1,6 @@
+(Derogado)
 Decreto XXIV
+(Esta norma fue derogada por el artículo 1°, inciso 633, de la ley N° 10287 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (Sexta parte)")
 Crea una Comisión que se encargue de la formación de los Códigos Penal, de comercio y de procedimientos
 El Jefe Provisorio de la República, considerando:
 1° Que los Códigos de la República adolecen de graves defectos y sus disposiciones no están de acuerdo, en lo general, con las filosóficas y más adelantadas teorías del derecho.

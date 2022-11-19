@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO XVI
+(Esta norma fue derogada por el artículo 1°, inciso 720, de la ley N° 10287 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (Sexta parte)")
 Aprueba el informe del Ministro de Relaciones, Instrucción y Culto.
 El Congreso Constitucional de la República de Costa Rica.
 Con presencia del informe presentado por el Honorable Señor Secretario de Estado en los Despachos de Relaciones Exteriores, Instrucción Pública, Culto y Beneficencia, decreta:

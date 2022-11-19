@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO VII
+(Esta norma fue derogada por el artículo 1°, inciso 134, de la ley N° 10287 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (Sexta parte)")
 Desconoce la misión del actual Gobierno de Nicaragua, y manda levantar una fuerza para derrocarle,
 dictando al propio tiempo serias y activas disposiciones en este edificio.
 Considerando: que según todos los antecedentes, comunicaciones i noticias que existen en el Derecho del Gobierno, está próximamente amenazada las independencia de esta República y la de las otras de Centro América, por la horda de filibusteros que se ha apoderado ya de los pueblos de Nicaragua y que es de las mas apremiantes necesidad no solo defender los derechos patrios aquí, sino arrojar de Nicaragua y que es de a más apremiante necesidad no solo defender los derechos patrios aquí, sino arrojar de Nicaragua al enemigo común y cooperar con los Gobiernos aliados a sostener y la independencia absoluta de la América Central y la integridad de su territorio, en uso de las facultades omnímodas de que estoy investido, declaro y decreto:

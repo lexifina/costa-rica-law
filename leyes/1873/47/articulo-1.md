@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO XLVII
+(Esta norma fue derogada por el artículo 1°, inciso 803, de la ley N° 10287 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (Sexta parte)")
 Establece un Procurador general en la oficina de Hipotecas.
 La Comisión Permanente.
 Habiendo tomado en consideración la exposición que con fecha 28 del próximo pasado agosto le dirigió el Supremo Poder Ejecutivo, en la que manifiesta la necesidad de crear un empleado que desempeñe funciones del Procurador Público en el Registro de Hipotecas autorizado para la solicitud de inscripción y para las gestiones conducentes hasta la devolución de títulos; y

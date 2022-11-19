@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO VII
+(Esta norma fue derogada por el artículo 1°, inciso 766, de la ley N° 10287 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (Sexta parte)")
 Faculta al Gobierno para emitir cierta cantidad de billetes, e indica valores e inversión de ellos.
 La Comisión Permanente, considerando:
 1° Que, aunque el Gobierno había depositado en las arcas del Banco Nacional, una suma mayor de quinientos mil pesos, para subvenir a los gastos, de la empresa del Ferrocarril, con el fin de favorecer la industria y el comercio y para hacerla producir, dispuso que el mismo Banco la colocase a interés.

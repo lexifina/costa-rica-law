@@ -1,6 +1,8 @@
+(Derogado)
 DECRETO CXXXIII
+(Esta norma fue derogada por el artículo 1°, inciso 42, de la ley N° 10287 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (Sexta parte)")
 Dispone el modo de constituir el Consejo de Instrucción pública y dicta algunas disposiciones que lo reglamentan
-“ Juan Rafael Mora, Presidente de la República de Costa Rica.
+" Juan Rafael Mora, Presidente de la República de Costa Rica.
 Teniendo en consideración: que los miembros del Consejo de Instrucción pública, no pueden ser al mismo tiempo Catedráticos de la Universidad por ser incompatibles las funciones de superiores y de subalternos en la dirección de enseñanza y en las resoluciones que tengan por objeto hacer efectiva la responsabilidad de los empleados del establecimiento:
 Que además el art 8° de los Estatutos de 1° de setiembre de 1843, prohíbe expresamente que los Catedráticos sean miembros de aquella Corporación: que de otra parte, no estando señalada por la ley orgánica de Instrucción pública de 4 de octubre de 1849, la duración de los miembros del Consejo, debiera estarse con respecto de ella, a lo dispuesto en los artículos 10 y 12 de los estatutos que, aunque el art 49 de la ley orgánica señala la duración del Rector y Vicerrector el art 53 la del Secretario de la Universidad por el art 54° ellos son amovibles a juicio del Poder Ejecutivo, y que éste por dicha ley tiene facultad bastante para decretar respecto al establecimiento las reformas que juzgue oportunas, decreto:
 Art 1°.- El Director General de Estudios, el Rector y Vice-Rector, el Secretario de la Universidad y dos miembros más, nombrados por el Jefe de la Nación, del seno de la misma Universidad o fuera de él, formarán el Consejo de Instrucción pública.

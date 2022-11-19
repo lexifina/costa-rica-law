@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO XLI
+(Esta norma fue derogada por el artículo 1°, inciso 899, de la ley N° 10287 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (Sexta parte)")
 Nombra los Representantes que deben componer la Comisión Permanente.
 El Congreso Constitucional de la República de Costa Rica.
 De conformidad con el artículo 93 de la Constitución y con el decreto número 16 de 3 de julio de 1873, decreta:

@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO XIX
+(Esta norma fue derogada por el artículo 1°, inciso 362, de la ley N° 10287 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (Sexta parte)")
 Disuelve las Cámaras legislativas; declara separados del cargo de Munícipes a los Senadores y Representantes, que lo son al propio tiempo; y previene se convoque a elecciones para Senadores y Representantes.
 Jesús Jiménez, Presidente de la República de Costa Rica, considerando:
 1° Que el Poder Legislativo se ha extralimitado, emitiendo leyes contra el tenor expreso de la Constitución.

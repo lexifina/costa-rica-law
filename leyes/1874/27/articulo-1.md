@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO XXVII
+(Esta norma fue derogada por el artículo 1°, inciso 837, de la ley N° 10287 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (Sexta parte)")
 Autoriza al Poder Ejecutivo para construir un muelle en el Estero de Puntarenas
 El Congreso Constitucional de la República de Costa Rica.
 Teniendo en consideración las observaciones del Poder Ejecutivo, para evitar o disimular el contrabando que se ejerce con demasiada frecuencia en daño grave del Tesoro Público, decreta:

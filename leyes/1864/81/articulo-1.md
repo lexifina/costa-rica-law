@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO LXXXI
+(Esta norma fue derogada por el artículo 1°, inciso 416, de la ley N° 10287 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (Sexta parte)")
 Dispone que Juzgado municipal donde no se crea convén entre el Juez especial de que hable la ley se desempeñe por el alcalde 2; y determine otras providencias que respecto, a juicio verbales de Hacienda municipal y las funciones que deben a dichos empleados.
 El Senado y Cámara de Representantes de la República de Costa Rica, reunidos en Congreso, decretan:
 Art 1° El Juzgado de Hacienda Municipal civil en las Provincias, en donde las Municipalidades no crean conveniente que la subsista el Juez especial de que habla la ley n° 12 de 28 de Setiembre de 1858, estará a cargo del Alcalde 2. Constitucional propietario de la capital de Provincia, con el goce de los derechos establecidos por las leyes para los juicios verbales y escritos respectivamente correspondiéndoles también la cartulación en todos los negocios del resorte de dicho juzgado.

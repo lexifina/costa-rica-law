@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO XXXVI
+(Esta norma fue derogada por el artículo 1°, inciso 847, de la ley N° 10287 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (Sexta parte)")
 Declara nulas ciertas resoluciones del Poder Ejecutivo y unos procedimientos en el Juzgado de Hacienda.
 El Congreso Constitucional de la República de Costa Rica.
 Con presencia de la exposición dirigida por el Supremo Poder Ejecutivo con fecha 2 del corriente mes, contraída a llamar la atención de este Alto Cuerpo acerca de los procedimientos por los representantes de varios individuos que se dice haberse hecho acreedores a las gracias que concedida la ley de 29 de octubre de 1828 y considerando:

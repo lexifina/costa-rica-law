@@ -1,7 +1,9 @@
+(Derogado)
 DECRETO LXXXI
+(Esta norma fue derogada por el artículo 1°, inciso 3, de la ley N° 10287 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (Sexta parte)")
 Tarifa de sueldos y dotaciones de todos los Funcionarios y Empleados públicos (1)
 N°8
-“Juan Rafael Mora Presidente de la República de Costa Rica”
+"Juan Rafael Mora Presidente de la República de Costa Rica"
 Autorizado el Poder Ejecutivo por el decreto número 8 del Excelentísimo Congreso de3 17 de junio del corriente año para reformar la tarifa de sueldos vigente, decreto:
 Tarifa de sueldos, dotaciones y pensiones de
 los empleados y dependientes en todo los

@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO XXXIV
+(Esta norma fue derogada por el artículo 1°, inciso 690, de la ley N° 10287 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (Sexta parte)")
 Aprueba el contrato de Ferrocarril celebrado entre el señor licenciado Don Manuel Alvarado, Ministro de Guerra Marina y Fomento de la República de Costa Rica, y Ministro Plenipotenciario de la misma en el Perú, a nombre de su Gobierno, por una parte, y Don Enrique Meiggs, por sí, sus herederos y demás legítimos representantes, por la otra, han convenido en celebrar un contrato bajo las bases siguientes:
 1° Don Enrique Meiggs, por sí, sus herederos y demás legítimos representantes, se obliga a construir un ferrocarril a vapor que parta del puerto del Limón hasta San José de Costa Rica y de San José a Heredia y Alajuela.
 2° La línea recorrerá en su trayecto los puntos más adecuados al efecto y de mayor importancia y conveniencia para el desarrollo de los intereses locales, pudiendo en virtud de lo dicho, elegir el Contratista o el que posteriormente designasen sus ingenieros con tal que llene la condición expresada.

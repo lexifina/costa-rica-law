@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO XXXI
+(Esta norma fue derogada por el artículo 1°, inciso 548, de la ley N° 10287 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (Sexta parte)")
 Señala el sueldo que deben gozar varios empleados; y crea un Director Ingeniero para los trabajos del camino y Puerto del Limón.
 El Senado y la Cámara de Representantes de la República de Costa Rica, reunidos en Congreso:
 Decretan:

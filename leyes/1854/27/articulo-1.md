@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO XXVII
+(Esta norma fue derogada por el artículo 1°, inciso 68, de la ley N° 10287 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (Sexta parte)")
 Dispone que todos los habitantes de cierta edad y condición deban contribuir a la destrucción de la “ Langosta”
 “ Juan Rafael Mora, Presidente de la República de Costa Rica.
 Considerando: que hallándose invadida de la Langosta mucha parte del territorio de la República, los habitantes todos tienen obligación de prestar sus servicios para destruirla o al menos para disminuir sus estragos en las sementeras y aun para disminuir sus estragos en las sementeras y aun en los potreros de repasto: que sin no toman en tiempo medidas adecuadas y perentorias, pueden ser de gran tamaño los males que cause aquella plaga en todas las poblaciones que el Gobierno encargado de dar protección a la propiedad territorial, lo está también de dictar las providencias que juzgue mas eficaces al intento; y que los subalternos de la Administración deben llevarlas a efecto, bajo su mas estrecha responsabilidad, sin consideración alguna a personas o fueros, decreto:

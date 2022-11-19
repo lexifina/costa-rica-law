@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO XI
+(Esta norma fue derogada por el artículo 1°, inciso 618, de la ley N° 10287 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (Sexta parte)")
 Manda que todos los habitantes de la República que tengan armas en su poder, las presenten en los respectivos cuarteles.
 El Gobierno Provisorio inaugurado en esta fecha se ha servido dictar el siguiente decreto:
 1° Todos los habitantes de esta capital y demás poblaciones de esta Provincia de San José, que tengan armas en su poder, se presentarán con ellos a los respectivos cuarteles.

@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO LV
+(Esta norma fue derogada por el artículo 1°, inciso 643, de la ley N° 10287 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (Sexta parte)")
 Designa las atribuciones y sueldo del Consejo de Estado
 Tomas Guardia General de División y Presidente Provisorio de la República de Costa Rica.
 Considerando:

@@ -1,4 +1,7 @@
+(Derogado)
 DECRETO LXI
+DECRETO LXVI
+(Esta norma fue derogada por el artículo 1°, inciso 975, de la ley N° 10287 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (Sexta parte)")
 Hace cesar en sus funciones el personal de que se compone la Municipalidad de Cartago, y nombra nuevos Registradores.
 Vicente Herrera, Presidente Provisorio de la República de Costa Rica.
 Con el fin de acabar de reestablecer la tranquilidad y el orden en la ciudad de Cartago, desgraciadamente alterado por los acontecimientos ocurridos el 30 de julio anterior y considerando: 1° Que la marcha del Gobierno no puede ser expedida y provechosa a los intereses de la Provincia si las autoridades locales no prestan un decido apoyo, y 2° que del Tenor de las actas de las sesiones celebradas por la Corporación Municipal de la misma Provincia de Cartago en el indicado día 30 de julio y 2 del corriente, dirigidas ambas al Gobierno, se desprende el convencimiento de que dicha Corporación con el personal de que actualmente se haya compuesta, lejos de facilitar la acción del Gobierno en la obra de dar del respecto y sumisión a la autoridad y promover los intereses particulares de la Provincia, puede convertirse en una rémora para obtener esos resultados. En uso de las facultades extraordinarias de que estoy investido, decreto:

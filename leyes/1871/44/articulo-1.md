@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO XXXXIV.
+(Esta norma fue derogada por el artículo 1°, inciso 705, de la ley N° 10287 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (Sexta parte)")
 Sustituye el art. 11 de la ley de 12 de julio de 1867,
 Con otro sobre penas en los delitos de hurto.
 Tomas Guardia, General de División y Presidente de la República de Costa Rica

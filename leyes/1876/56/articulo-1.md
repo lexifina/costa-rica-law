@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO LXVI
+(Esta norma fue derogada por el artículo 1°, inciso 961, de la ley N° 10287 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (Sexta parte)")
 Prohíbe la introducción de alcohol y fija los derechos que debe pagar el tabaco bajo cualquier forma que se introduzca.
 Vicente Herrera, Presidente Provisorio de la República de Costa Rica.
 Por cuanto: la introducción de alcoholes en el país, es gravemente perjudicial a los intereses fiscales, porque ella da lugar a la fabricación de aguardiente que hace la competencia al que se expende por cuenta del Tesoro Nacional.

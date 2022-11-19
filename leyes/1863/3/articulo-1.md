@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO III
+(Esta norma fue derogada por el artículo 1°, inciso 351, de la ley N° 10287 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (Sexta parte)")
 Señala el verdadero sentido de algunas disposiciones de la ley electoral emitida en 5 de noviembre del año anterior, a cerca de las cuales han ocurrido dudas y dificultades en las practicas
 El Senado y Cámara de Representantes de Costa Rica, reunidos en el Congreso.
 Considerando: que, para la puntual ejecución de la ley electoral emitida en cinco de noviembre del año anterior, es importante señalar el verdadero sentido de algunas disposiciones acerca de las cuales han ocurrido dudas y dificultades en la práctica, decretan:

@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO XLIII
+(Esta norma fue derogada por el artículo 1°, inciso 383, de la ley N° 10287 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (Sexta parte)")
 Autoriza al Poder Ejecutivo para la compra de un edificio con el fin de trasladará el la Corte Suprema de Justicia y Juzgado y Juzgados de su dependencia.
 El Senado y Cámara de Representantes de Costa Rica, reunidos en Congreso.
 Con presencia de la exposición que ha dirigido la Secretaria de Estado en el Despacho de Hacienda el 19 de octubre último, decretan:

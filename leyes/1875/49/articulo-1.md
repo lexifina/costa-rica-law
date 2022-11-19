@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO XLIX
+(Esta norma fue derogada por el artículo 1°, inciso 903, de la ley N° 10287 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (Sexta parte)")
 Extiende la franquicia del Puerto del Limón y Reglamenta otros varios puntos relativos a ella.
 El Congreso Constitucional de la República de Costa Rica.
 Con presencia de las consultas del Supremo Poder Ejecutivo de 4 del corriente, declara:

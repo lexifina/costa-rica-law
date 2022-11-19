@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO XXVIII
+(Esta norma fue derogada por el artículo 1°, inciso 695, de la ley N° 10287 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (Sexta parte)")
 Toma las acciones que faltan para completar el efectivo del Banco Nacional, extendiendo las operaciones de este establecimiento
 Tomas Guardia General de División y Presidente Provisorio de la República de Costa Rica, considerando:
 1°

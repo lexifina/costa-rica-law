@@ -1,6 +1,8 @@
+(Derogado)
 DECRETO V
+(Esta norma fue derogada por el artículo 1°, inciso 207, de la ley N° 10287 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (Sexta parte)")
 Señala para la reunión ordinaria del Excemo. Congreso el 9° de Agosto próximo.
-“Juan Rafael Mora, Presidente de la República de Costa Rica”
+"Juan Rafael Mora, Presidente de la República de Costa Rica"
 Teniendo en consideración 1° que el curso de los acontecimientos retardó el año anterior la reunión ordinaria del Excelentísimo Poder Legislativo de la Nación y por motivo apenas han transcurrido cinco meses desde que se declaró en receso:
 2°.- Que tan corto periodo de tiempo no permite a las Secretarias del Despacho obtener los conocimientos indispensables para dar cuenta alto Cuerpo del estado de los negocios públicos por medio de las Memorias que deben presentarle en sus sesiones ordinarias, para cuyo apertura está designado el mes de mayo próximo.
 3°- Que esta circunstancia enervará las decisiones del Poder Legislativo, porque la falta de aquellos documentos le privaría de datos y antecedentes en que basar sus disposiciones.

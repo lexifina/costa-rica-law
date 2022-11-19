@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO XX
+(Esta norma fue derogada por el artículo 1°, inciso 363, de la ley N° 10287 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (Sexta parte)")
 Convoca a Juntas populares para el nombramiento de Electores que deben componer las Asambleas electorales y al mismo tiempo a estas para que elijas Senadores y Representantes; ordenando que las Municipalidades procedan al nombramiento de los individuos que deben componer las respectivas Juntas Calificadoras.
 Jesús Jiménez, Presidente de la República de Costa Rica.
 Considerando: que a consecuencia del decreto de 1° del corriente, en que se apela a la Nación, como en quien exclusivamente reside la soberanía, las elecciones anunciadas en aquella providencia deben comenzar desde su primer grado, decreto:

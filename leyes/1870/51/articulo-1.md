@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO LI
+(Esta norma fue derogada por el artículo 1°, inciso 648, de la ley N° 10287 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (Sexta parte)")
 Confiere a Don Buenaventura Carazo el grado de General efectivo de Brigada de las milicias de la República.
 Tomas Guardia General de División y Presidente Provisorio de la República.
 Considerando:

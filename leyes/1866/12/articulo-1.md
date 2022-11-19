@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO XII
+(Esta norma fue derogada por el artículo 1°, inciso 469, de la ley N° 10287 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (Sexta parte)")
 Concede a Don Luciano Tartiere, privilegio exclusivo por el término de doce años, para la construcción, introducción y expendio de un aparato que ha inventado con el objeto de secar café por medio del vapor y de extraer de dicho fruto la miel que contiene, facultando al Poder Ejecutivo para rescatar el privilegio por una suma convencional en caso de que los experimentos den por resultado Tartiere señalada para el beneficio.
 El Senado y la Cámara de Representantes de la República de Costa Rica, reunidos en Congreso. Vista la solicitud de Don Luciano Tartiére para que se le conceda privilegio por la invención de un aparato destinado a secar el café, y para que se remuneren sus trabajos en un descubrimiento que promete al país, grandes y positivas ventajas en uso de la facultad concedida por la fracción 11° art 90° de la Constitución. Decretan:
 Art 1°.- Se concede a don Luciano Tartiére, privilegio exclusivo por el término de doce años, que empezarán a contarse desde el día de la emisión de la presente ley, para la construcción, introducción y expendio del aparato que ha descubier

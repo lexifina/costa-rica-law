@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO XLII
+(Esta norma fue derogada por el artículo 1°, inciso 900, de la ley N° 10287 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (Sexta parte)")
 Previene la recepción por el Tribunal de Justicia para ejercer la Abogada.
 El Congreso Constitucional de la República de Costa Rica.
 Con presencia de la exposición del Supremo Tribunal de Justicia, de 6 de mayo último y a iniciativa del Poder Ejecutivo, declara:

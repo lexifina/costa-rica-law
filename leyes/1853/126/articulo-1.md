@@ -1,8 +1,10 @@
+(Derogado)
 DECRETO CXXXVI
+(Esta norma fue derogada por el artículo 1°, inciso 33, de la ley N° 10287 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (Sexta parte)")
 Declara que los que el día 30 de julio de 1841 se encontrasen en continua,
 Quieta y pacífica posesión de una cosa raíz, no pueden ser inquietados,
 Sino es un los casos excepcionales que se expresan.
-“ Juan Rafael Mora, Presidente de la República de Costa Rica.
+" Juan Rafael Mora, Presidente de la República de Costa Rica.
 Para evitar los males que resulten de la incertidumbre de la propiedad actual por la confusión de las leyes preexistentes al Código general después de haber penetrado la legislación patria en el comercio país:
 Para preparar un nuevo arreglo de hipotecas con el objeto de dar la mayor seguridad a los bienes raíces, de facilitar el movimiento en ellos y defenderlos de perturbaciones que, fundándose en leyes ya abolidas y en echos añejos, siguen conmoviendo la propiedad, estorbando el comercio y la industria de los habitantes, despertando la sospecha del pueblo y debilitación el crédito público.
 Considerando la necesidad de sentar una base firme e inalterable a la posesión actual de un modo definitivo como se ha verificado en legislaciones semejantes:

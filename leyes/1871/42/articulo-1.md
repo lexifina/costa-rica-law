@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO XXXXII
+(Esta norma fue derogada por el artículo 1°, inciso 703, de la ley N° 10287 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (Sexta parte)")
 Deroga el artículo 6, del decreto de 18 de mayo de 1870
 Tomas Guardia, General de División y Presidente Provisorio de la República de Costa Rica.
 Considerando:

@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO XLII
+(Esta norma fue derogada por el artículo 1°, inciso 850, de la ley N° 10287 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (Sexta parte)")
 Prórroga el término del decreto número 6 de 26 de mayo último que suspende unas garantías constitucionales.
 El Congreso Constitucional de la República de Costa Rica.
 Considerando de imperiosa necesidad para la conservación del orden público en las actuales circunstancias que continúen suspensas las garantías consignadas en los artículos 38, 40 y 42 de la Carta fundamental, y que también se suspenda la que establece el artículo 37 de la misma a iniciativa del Poder Ejecutivo, decreta:

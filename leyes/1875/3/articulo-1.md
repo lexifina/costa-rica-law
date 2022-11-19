@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO III
+(Esta norma fue derogada por el artículo 1°, inciso 867, de la ley N° 10287 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (Sexta parte)")
 Reglamento del Instituto Nacional
 Tomas Guardia General de División y Presidente de la República de Costa Rica
 En ejercicio del decreto número 19, de 4 de julio del año anterior, decreto siguiente:

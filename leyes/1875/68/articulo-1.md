@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO LXVIII
+(Esta norma fue derogada por el artículo 1°, inciso 920, de la ley N° 10287 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (Sexta parte)")
 Deroga el Decreto N°1 de agosto próximo pasado.
 La Comisión Permanente.
 Con vista de la exposición del Supremo Poder Ejecutivo, y considerando:

@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO LXI
+(Esta norma fue derogada por el artículo 1°, inciso 658, de la ley N° 10287 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (Sexta parte)")
 Reglamenta el tráfico de las embarcaciones pequeñas en las costas del Pacifico y del Atlántico y establece penas para los contraventores.
 Tomas Guardia, General de División y Presidente Provisorio de la República de Costa Rica.
 Considerando: Que ciertas franquicias en el tráfico de las embarcaciones menores y de los buques destinados a carga de maderas u otros frutos naturales en nuestros puertos, dan lugar y facilidad al contrabando y la importancia de artículos de ilícito comercio de la República, decreto:

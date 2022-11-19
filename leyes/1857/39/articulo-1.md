@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO XXXIX
+(Esta norma fue derogada por el artículo 1°, inciso 189, de la ley N° 10287 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (Sexta parte)")
 Reglamento la construcción de aceras y calzadas en la República
 “Juan Rafael Mora, Presidente de la República de Costa Rica. - Por cuanto el Excelentísimo Congreso Constitucional ha decretado lo siguiente:
 El Excelentísimo Congreso Constitucional de la República de Costa Rica. - Considerando: que la ley de 20 de julio de 1849 no llena todos los objetos de la Policía, y que el incremento y mejora de las ciudades reclaman nuevas disposiciones mientras se decreta el Reglamento del régimen político de las Provincias en consonancia con las exigencias del progreso, ha venido en decretar y decreta:

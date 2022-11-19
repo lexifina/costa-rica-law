@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO XXVII
+(Esta norma fue derogada por el artículo 1°, inciso 632, de la ley N° 10287 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (Sexta parte)")
 Designa a Moin como capital y residencia de los empleados superiores de la Comarca del Limón, comprendiendo esta todas las poblaciones de la costa del Norte.
 El Jefe del Gobierno provisorio de la República.
 Considerando la distancia a que se hallan de esta capital las poblaciones situadas en la costa Norte de la Nación, y las necesidades peculiares de aquellos dispersos caseríos, decreta:

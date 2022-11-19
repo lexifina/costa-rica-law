@@ -1,5 +1,7 @@
+(Derogado)
 DECRETO XXXVII
+(Esta norma fue derogada por el artículo 1°, inciso 252, de la ley N° 10287 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (Sexta parte)")
 Autoriza a los Jueces de 1° Instancia y Alcaldes para que indistintamente puedan cartular en asuntos que tengan cantidad fija, y para que puedan también autorizar testamentos, aunque excedan del valor de cinco mil pesos.
-“Juan Rafael Mora, Presidente de la República de Costa Rica- Por cuanto el Excelentísimo Congreso Constitucional ha decretado lo siguiente.
+"Juan Rafael Mora, Presidente de la República de Costa Rica- Por cuanto el Excelentísimo Congreso Constitucional ha decretado lo siguiente.
 El Excelentísimo Congreso Constitucional de la República de Costa Rica, considerando: que la facultad concedida a los Jueces de 1° Instancia por el inciso 8° del artículo 34 del Reglamento de Justicia de 18 de febrero de 1852 presenta en la práctica graves inconvenientes, tanto porque hay negocios que no tienen por objeto un interés pecuniario, como por que existen otros en los cuales difícil averiguar la cantidad a que esta asciende y deseando poner en término a estas dificultades, lo mismo que evitar las nulidades que podrían originarse, ha venido en decretar y decreta:
 Art 1° Los Jueces de 1° Instancia y Alcaldes Constitucionales cartularán indistintamente todos aquellos asuntos que no tengan cantidad fija, precio o valor conocido, y autorizan testamentos, aunque los bienes del testador excedan la suma de cinco mil pesos o no lleguen a esta cantidad.

@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO XIX
+(Esta norma fue derogada por el artículo 1°, inciso 687, de la ley N° 10287 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (Sexta parte)")
 Tarifa de Aduanas
 Tomás Guardia, Presidente de la República de Costa Rica.
 Por cuanto: el interés del comercio y el incremento de las rentas nacionales recomiendan adoptar en la Tarifa de Aduanas, reformas que aconsejan, la experiencia y las peculiaridades del país, que alejen la confusión que ofrece la existencia al determinar el aforo de algunos artículos, e impulsen la introducción de otros, por la baratura del impuesto, decreto:

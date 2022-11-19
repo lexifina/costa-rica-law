@@ -1,3 +1,5 @@
+(Derogado)
 DECRETO XXVI
+(Esta norma fue derogada por el artículo 1°, inciso 886, de la ley N° 10287 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (Sexta parte)")
 Reforma los artículos 187 de la ley de 4 de noviembre de 1845 y el 227 del Reglamento de Hacienda, indicando las horas en que deben abrirse las oficinas de la Corte de Justicia, de los Juzgados abrirse las Oficinas de la Corte de Justicia, de los Juzgados de 1° Instancia y de las Oficinas de Hacienda
 Artículo 1°. -Las Oficinas de la Corte Suprema de Justicia y Juzgados de 1° Instancia, se abrir n obligatoriamente, desde las diez de la mañana hasta las tres de la tarde en todos los días excepto solamente los domingos y días festivos y los qu por la ley por disposición especial se declaren feriados. A las mismas horas se abrir n y cerrar n las Oficinas de Hacienda todos los días, sin más excepciones que las expresadas aquí observándose en lo demás lo dispuesto en el artículo 227 Sección 2° del Reglamento de Hacienda.

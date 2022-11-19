@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO XL
+(Esta norma fue derogada por el artículo 1°, inciso 800, de la ley N° 10287 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (Sexta parte)")
 Entiende la franquicia del Puerto y Comarca del Limón
 La Comisión Permanente.
 Considerando: que es de grande importancia para los intereses de la Nación el impulsar por todos los medios el adelanto y progreso del Puerto de Limón, terminó del Ferrocarril en el Atlántico que la franquicia concedida por decreto de 4 de setiembre del año próximo pasado, no ha podido producir todos los buenos efectos que eran de esperarse, producir todos los buenos efectos que eran de esperarse, por la excepción que contiene el artículo 3° que estando al terminarse el contrato celebrado con la Empresa del Ferrocarril, por el cual se le concedió el privilegio de la importación y expendio de licores en el referido Puerto de Limón, es llegado el tiempo en el referido Puerto de Limón, es llegado el tiempo de dar a la franquicia toda su extensión, decreta:
