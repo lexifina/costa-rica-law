@@ -1,1 +1,0 @@
-Art 2° La Provincia de San José elegirá cuatro Representantes principales y dos suplentes: la de Cartago y Heredia dos principales y un suplente la de Cartago y Heredia dos principales y un suplente cada una: la de Guanacaste y Comarca de Puntarenas un propietario y un suplente cada una.

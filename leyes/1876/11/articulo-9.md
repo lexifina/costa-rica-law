@@ -1,1 +1,0 @@
-ARTICULO 9°. -Quedan reformados en estos términos el artículo 269 de la Ley Hipotecaria, el 3° capítulo 11de la ley adicional al Reglamento de Hacienda, y derogadas las demás disposiciones que se opongan la presente.

@@ -1,1 +1,0 @@
-Art 5°.- Los profesores de Derecho pueden ser electos Ministros Jueces de la Suprema Corte de Justicia, desde la edad de veinticinco años en adelante, cuando en igualdad de circunstancia no haya sujetos de mayor edad.

@@ -1,1 +1,0 @@
-ARTICULO 7°. -Son responsables por los derechos que dejen de recaudarse, el Oficial recaudador, el Procurador y el Fiscal, cuando por morosidad en el cumplimiento de sus respectivos deberes, dejasen de cobrarse los derechos fiscales.

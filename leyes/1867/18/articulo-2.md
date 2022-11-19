@@ -1,1 +1,0 @@
-Art 2° Cuando a juicio del Poder Ejecutivo convenga, se establecerán oficinas sucursales del mismo Banco en todas las cabeceras de Provincia, y además en aquellas localidades donde la necesidad lo exija.

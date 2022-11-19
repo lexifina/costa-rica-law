@@ -1,1 +1,0 @@
-Art 2° Esta declaratoria y las providencias que, en virtud de ella dicten, no produjeran ninguno de los efectos determinados por las leyes para los casos de enjuiciamiento, ni para los de pena por sentencia condenatoria.

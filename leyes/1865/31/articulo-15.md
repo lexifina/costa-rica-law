@@ -1,1 +1,0 @@
-Artículo 15° Inscrito en el registro cualquier título traslativo del dominio de los inmuebles, no podrá inscribirse ninguno otro de fecha anterior, por el cual se trasmita grave la propiedad del mismo inmueble.

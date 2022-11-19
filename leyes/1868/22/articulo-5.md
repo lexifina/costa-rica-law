@@ -1,1 +1,0 @@
-Art 5° El sueldo de estos empleados será el de treinta pesos mensuales que se satisfarán del Tesorero Público, y el Juez de minas, en razón del recargo en sus atribuciones, gozará de diez pesos mensuales sobre el sueldo que se le asigna la ley y cinco más para bagaje.

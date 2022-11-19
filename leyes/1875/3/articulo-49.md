@@ -1,1 +1,0 @@
-ARTICULO 49.-Los ex menes son generales y particulares. Los primeros son de prueba de curso y los segundos son los que, durante el curso se verifiquen conforme al Reglamento interior. Todo examen ser público.

@@ -1,1 +1,0 @@
-Art 3°.- El Traductor general que se nombre prestará el juramento de ley ante la Corte Suprema de Justicia; y en su virtud cuanto exponga en desempeño de su encargo y bajo su responsabilidad tiene la fe pública.

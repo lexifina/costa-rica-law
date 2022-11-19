@@ -1,1 +1,0 @@
-Art 2° La provisión y venta de dichos licores, se hará por el Gobierno del Estado, de igual manera que se efectúa con lo que se destilan en el país y a los precios que oportunamente serán determinados.

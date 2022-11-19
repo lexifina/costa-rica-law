@@ -1,1 +1,0 @@
-Art 7° Asimismo queda autorizado el Poder Ejecutivo para demarcar la jurisdicción de cada Jefatura Política, para dictar todas las Providencias conducentes a la mejor administración de aquellos pueblos, y para nombrar y asignar dotación a los empleados que juzgue sean allí estrictamente necesarios.

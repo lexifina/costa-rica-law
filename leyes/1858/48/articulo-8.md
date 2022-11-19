@@ -1,1 +1,0 @@
-Art 8°. - En consecuencia, ni el comerciante introductor de las mercaderías, ni los empleados de la Aduana son ya responsables por los errores que pueda tener una póliza visada de la manera antes dicha.

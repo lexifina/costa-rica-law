@@ -1,1 +1,0 @@
-Art 4° Las disposiciones contenidas en los artículos anteriores comenzarán a surtir sus efectos sobre Representación de las Provincias, en la próxima renovación del Congreso, y con respecto a las Asambleas electorales, cuando deba procederse a las elecciones parroquiales.

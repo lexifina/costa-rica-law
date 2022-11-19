@@ -1,1 +1,0 @@
-Art 3° Los Fiscales entregarán en la Secretaría de Hacienda, las sumas que colectaren por derechos judiciales en cualquiera de las Instancias, debiendo hacerlo cada mes, o pasar aviso de que nada se ha recaudado, expresando el motivo.

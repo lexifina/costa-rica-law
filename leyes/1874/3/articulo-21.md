@@ -1,1 +1,0 @@
-Art 21° La recaudación de pasajes y fletes queda recargada en los respectivos agentes de Estación, los cuales prestarán la fianza y garantía que les fije la Secretaría de Obras Públicas y que no deberá ser inferior al sueldo de un año.

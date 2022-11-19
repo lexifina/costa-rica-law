@@ -1,1 +1,0 @@
-Art 55° Los pobladores reconocerán al Superintendente como autoridad que reuna a la vez las funciones de Gobernador y Comandante de plaza; pero no les será aplicable la disciplina establecida para el Batallón.

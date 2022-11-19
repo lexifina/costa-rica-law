@@ -1,1 +1,0 @@
-Artículo 2°. -El Fiscal auxiliar de Hacienda obrar bajo la dependencia y conforme las instrucciones que le d‚ el Fiscal de Hacienda, y estar obligado trasladarse cualquier punto en donde puedan obtenerse los datos y demás informes que aquel necesite para instaurar proseguir las acciones que correspondan al Fisco.

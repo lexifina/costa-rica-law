@@ -1,1 +1,0 @@
-Artículo 4°. -Los cargos científicos del Instituto no recaer n sino en personas de idoneidad comprobada y de notoria buena conducta: los demás cargos tampoco se encomendarán sino personas honradas y capaces para el cumplimiento de los deberes respectivos.

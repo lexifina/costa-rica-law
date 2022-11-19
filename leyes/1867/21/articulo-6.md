@@ -1,1 +1,0 @@
-Art 6° El Poder Ejecutivo queda facultado para asignar sueldos que no pasen de sesenta pesos mensuales a las Curas que el Diocesano envié a aquellos pueblos, los cuales allá no podrán cobrar ningunos derechos o proventos.

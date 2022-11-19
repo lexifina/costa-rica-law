@@ -1,1 +1,0 @@
-Art 22° Las señoras que componen esta Junta deberán, turnándose por semanas, visitar diariamente en el Hospital si les fuese posible y aun invitar a otras señoras para que las acompañen en el ejercicio de este piadoso deber.

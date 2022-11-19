@@ -1,1 +1,0 @@
-ARTICULO 8°.-Los demás empleados y dependientes, ser n de nombramiento del Secretario de instrucción Pública propuesta del Director de acuerdo con el Rector, quienes propondrán también su número y dotaciones.

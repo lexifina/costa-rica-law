@@ -1,1 +1,0 @@
-Art 11° Las autoridades gubernativas y de policía, asi como las judiciales y militares prestaran al Inspector los auxilios más eficaces en igual concepto, y cuando este los solicitare y le sean negados, dará parte inmediatamente para lo que haya lugar.

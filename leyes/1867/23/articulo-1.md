@@ -1,6 +1,0 @@
-(Derogado)
-DECRETO XXIII
-(Esta norma fue derogada por el artículo 1°, inciso 512, de la ley N° 10287 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (Sexta parte)")
-Reforma los artículos 207 y 210 del Reglamento de Policía número 20 de 30 de octubre de 1849, el 6° del número 7 del 31 de mayo de 1855 y la orden suprema número 01 del 13 de octubre de 1864.
-El Senado y la Cámara de Representantes de la República de Costa Rica, reunidos en Congreso, Considerando: que la experiencia ha demostrado la necesidad de reformar en un sentido equitativo los artículos 207 y 210 del Reglamento de Policía número 20 de 30 de octubre de 1849, 6° de la ley número 7 del 31 de mayo de 1855, y orden Suprema n° 61 de 13 de octubre de 1864, Decretan:
-Artículo 1°-Cuando se probare que el ganado ha salido de los potreros solares en que se hallaba sin culpa de su dueño, quedar ,esté libre de la multa que establece el artículo 207 del citado Reglamento; más si el ganado se encontrare en las cementeras plantaciones, ser responsable su dueño los daños y perjuicios que causare no ser que hubiese salido por culpa de alguna persona que no fuere sirviente del mismo dueño, en cuyo caso esta ser la responsable.

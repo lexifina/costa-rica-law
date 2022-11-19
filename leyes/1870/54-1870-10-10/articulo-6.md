@@ -1,1 +1,0 @@
-Art 6° El Secretario de Estado en el Despacho de Justicia queda encargado de la ejecución de este decreto. Dado en el Palacio Nacional de San José a los dieciocho días del mes de octubre de mil ochocientos sesenta.

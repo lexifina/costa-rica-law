@@ -1,1 +1,0 @@
-Art 3° El complemento del capital del Banco tiene por objeto que en el se pueda dar dinero hasta con un año de plazo, bajo las seguridades que exigen sus Estatutos, pagando el interés del uso por ciento mensual por trimestre vencidos.

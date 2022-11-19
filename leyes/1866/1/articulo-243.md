@@ -1,1 +1,0 @@
-Artículo 243. De toda sentencia ejecutoriada que se dicte, condenando al Registrador a daños y perjuicios, al mismo tiempo que se notifique a las partes, se remitir una copia al Gobierno para que, en su vista y con la oportunidad conveniente, pueda adoptar las medidas que crea necesarias.

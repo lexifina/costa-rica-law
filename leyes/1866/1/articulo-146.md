@@ -1,1 +1,0 @@
-ARTÍCULO 146. Los Registradores no admitir n documento alguno para su inscripción en el registro, ni harán ningún asiento de presentación, sino durante las seis horas señaladas en el artículo anterior; pero podrán fuera de ellas, ejecutar todas las demás operaciones propias de su cargo.

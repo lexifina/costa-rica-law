@@ -1,1 +1,0 @@
-Artículo 80. Cuando la Sala declare la competencia del Juez, el Registrador hará desde luego la cancelación. Cuando no lo estime competente, el mismo Registrador comunicar esta decisión al interesado, devolviéndole el despacho.

@@ -1,1 +1,0 @@
-Art 3°.- El Jefe Político es la primera autoridad del Cantón, preside todos sus actos, está subordinados al Gobernador de la Provincia y solo su medio pueda comunicarse con el Ministerio del Interior.

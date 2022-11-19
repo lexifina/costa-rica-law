@@ -1,1 +1,0 @@
-Art 2°.- Al efecto se procederá por los mismos Jueces al repartimiento entre ellos de todas las causas y expedientes que existan en ambos Juzgados, particularmente si el que conoce estuviese impedido por algún motivo.

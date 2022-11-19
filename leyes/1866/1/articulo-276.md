@@ -1,1 +1,0 @@
-Artículo 276. La clase de papel sellado de que deber usarse en estos expedientes, ser la que corresponda al valor de que se trata, esto es: Del sello 4°. 1°. clase para aquellos cuyo interés no pase de 250 y el Del sello 3°. para aquellos cuyo interés exceda de dicha cantidad.

@@ -1,1 +1,0 @@
-Artículo 109. Si requerido el deudor, el tercer poseedor, en su caso, no pagare ni desamparare los bienes hipotecados en los términos señalados respectivamente, podrá pedir el acreedor que se despache mandamiento de ejecución contra los mismos bienes, presentando el título de su derecho y el documento que acredite haberse verificado dichos requerimientos y su fecha.

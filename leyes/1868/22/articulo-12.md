@@ -1,1 +1,0 @@
-Art 12°. No tendrá lugar la acción rescisoria por causa de lesión enorme o enormísimo relativamente a las ventas de minas o parte de ellas, háyase o no justipreciado por peritos para celebrar el contrato.

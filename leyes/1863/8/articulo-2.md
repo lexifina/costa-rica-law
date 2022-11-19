@@ -1,1 +1,0 @@
-Art 2° Señalase la una de la tarde del día ocho del presente mes para que los nombrados presten el juramento constitucional.-Al Poder Ejecutivo.-Dado en San José, mayo cuatro de mil ochocientos sesenta y tres.

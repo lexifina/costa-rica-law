@@ -1,1 +1,0 @@
-Artículo 46. Si alguno de los que tuvieren su favor las obligaciones reales expresadas en el artículo anterior, no fuere persona cierta, estuviere ausente ignorándose su paradero, negare su consentimiento, no podrá hacerse la anotación sino por providencia judicial.

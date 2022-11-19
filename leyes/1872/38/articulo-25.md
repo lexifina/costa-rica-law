@@ -1,1 +1,0 @@
-Art 25° Los Alcaldes Constitucionales en los lugares donde hoy existen pagados por la Nación, y en aquellos puntos donde convengan retribuirles de igual manera, gozarán de la dotación que el Poder Ejecutivo señale, no debiendo o exceder de cincuenta pesos.

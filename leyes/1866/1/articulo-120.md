@@ -1,1 +1,0 @@
-ARTÍCULO 120. Los bienes, que con arreglo a la ley; pertenecieren a comunidad conyugal, se inscribirán como propios de ambos cónyuges. Si estuvieren inscritos a favor tan solo de alguno de ellos, se hará constar aquella circunstancia por medio de una nota marginal.

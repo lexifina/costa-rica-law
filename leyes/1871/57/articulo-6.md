@@ -1,1 +1,0 @@
-Art 6° Recibidos que sean esos documentos en la Contaduría Mayor, cada fin de mes, el Contador 1°, en vista de ellos pondrá en las pólizas originales la cancelación que corresponde, y lo anotará en el libro de cuentas respectivo.

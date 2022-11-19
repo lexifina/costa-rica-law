@@ -1,1 +1,0 @@
-ARTICULO 4°. -Es atribución del Procurador del Registro pasar aviso los interesados para que concurran retirar los títulos ya despachados, conforme al conocimiento que le d‚ el Oficial recaudador cada fin de mes.

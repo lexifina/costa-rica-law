@@ -1,1 +1,0 @@
-Artículo 103. El acreedor no podrá reclamar del tercer poseedor de los bienes hipotecados el pago de su crédito, sino cuando el deudor no lo verifique en los diez días siguientes al vencimiento del plazo.

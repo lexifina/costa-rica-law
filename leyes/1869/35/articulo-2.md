@@ -1,1 +1,0 @@
-Art 2° La Dirección General estará a cargo del Administrador General de correos de la República, quien desempeñará esas funciones como anexas a un destino. A este empleado quedan sujetos todos los Administradores subalternos de las Provincias.

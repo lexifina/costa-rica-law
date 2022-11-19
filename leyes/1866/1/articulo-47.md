@@ -1,1 +1,0 @@
-Artículo 47. Los que no se opusieren al aprecio o a las obras, nombrar n perito que, en unión con el del propietario, rectifique la tasación manifieste su dictamen sobre las mismas obras. Para el nombramiento de este perito y dirimir las discordias que ocurrieren, se observar n las reglas establecidas en los artículos 248 y 250 del Código de procedimientos.

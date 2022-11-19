@@ -1,1 +1,0 @@
-Art 9°. – La Junta nuevamente nombrada entrará en ejercicio de sus funciones el primero domingo del mes de enero, dándose la posesión en Junta General de la Hermandad, a cuyo fin será convocada prácticamente.

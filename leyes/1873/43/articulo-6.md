@@ -1,1 +1,0 @@
-Art 6° Las sumas sobrantes eventuales decretadas para el servicio de un Departamento de la Administración no podrán aplicarse a gastos de otra Cartera o Departamento, ni al pago de sobresueldos a empleados o funcionarios públicos.

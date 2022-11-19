@@ -1,1 +1,0 @@
-Art 2° La base de la operación será actual división territorial en Provincia, Comarcas, Cantones, y Distritos, pudiendo subdividirse estos últimos, cuando sean muy extensos a juicio del Director, para la mayor facilidad y exactitud.

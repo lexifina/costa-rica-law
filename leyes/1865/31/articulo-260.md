@@ -1,1 +1,0 @@
-Artículo 260. En el registro habrá los oficiales y auxiliares que el Registrador necesita‚ nombre, y retribuya, los cuales desempeñarán los trabajos que el mismo les encomiende; pero bajo su £nica y exclusiva responsabilidad.

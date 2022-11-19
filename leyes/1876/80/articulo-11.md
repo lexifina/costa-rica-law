@@ -1,1 +1,0 @@
-ARTICULO 11.-La suma prestada por el Gobierno ser devuelta con los primeros ingresos que tenga el Banco en todo el año; el préstamo ser reducido a la cantidad estrictamente Necesaria, la cual ir disminuyendo cada año, a consecuencia de las amortizaciones. El sobrante ser devuelto al Gobierno inmediatamente.

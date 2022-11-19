@@ -1,1 +1,0 @@
-Art 3° Por los demás gastos de la Universidad y del Instituto, previa presentación del presupuesto respectivo, la Secretaría de Instrucción Pública girará en favor del Tesoro o del Ecónomo según corresponda.

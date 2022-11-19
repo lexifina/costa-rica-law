@@ -1,1 +1,0 @@
-ARTÍCULO 223. Aunque los asientos de que deba certificarse, se refieran a diferentes fincas o personas, se comprender n todos en una misma certificación, a menos que el interesado pretenda que se le den de ellos certificaciones separadas.

@@ -1,5 +1,0 @@
-(Derogado)
-DECRETO XXXIII
-(Esta norma fue derogada por el artículo 1°, inciso 341, de la ley N° 10287 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (Sexta parte)")
-Declara que el derecho de recusar concedido por el art 1192 del Código de procedimientos está limitado a dos Magistrados en 2° Instancia y tres en la 3° conforme al espíritu del art 1197 del mismo Código y que en caso de despacharse sin lugar sin lugar la recusación el que la propone, será condenado al pago de las costas y multa correspondiente.
-Art 1° El derecho de recusar concedido por el artículo 1, 192 del Código de procedimientos, está limitado a dos Magistrados en 2° instancia y tres en la 3°, conforme al espíritu del artículo 1,197 del mismo Código, y en el caso de declararse sin lugar la recusación, el que la propone será condenado al pago de las costas, y al de una multa de diez a cincuenta pesos según la malicia con que se haya hecho y la categoría del recusado.

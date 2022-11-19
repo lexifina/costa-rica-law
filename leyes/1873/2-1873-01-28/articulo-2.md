@@ -1,1 +1,0 @@
-Art 2° El Inspector General será el Jefe Superior de los resguardos, quienes obrarán bajo su dirección e instrucción. Tendrá para el despacho de los negocios un Secretario. - Escribiente cuya firma hará fe pública en las actuaciones que ocurran.

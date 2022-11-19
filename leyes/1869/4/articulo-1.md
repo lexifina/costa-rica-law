@@ -1,7 +1,0 @@
-(Derogado)
-DECRETO IV
-(Esta norma fue derogada por el artículo 1°, inciso 569, de la ley N° 10287 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (Sexta parte)")
-Convoca a elecciones para Presidente de la República y Representantes, en el periodo que principia el primero de mayo del presente año.
-Jesús Jiménez Presidente Provisorio de la República de Costa Rica, considerando:- Que habiéndose emitido la Constitución es llegado el tiempo de proceder a la elección de los Poderes Constitucionales, y que si bien el acta de 1° de noviembre próximo pasado, al facultarme omnímodamente como Presidente Provisorio, mientras lo sea, sienta como principio que la Constitución no debe regir hasta el día en que tome posesión el Presidente electo, esto no obsta para que la elección se ajuste estrictamente a las prescripciones de la nueva Constitución pues la mente, de la precitada acta, en este respecto, solo ha sido dejar en manos del Ejecutivo un poder amplio para salvar la sociedad de cualquier conflicto que pudiera suscitarse en las próximas elecciones.
-Decreto
-Art 1° Se convoca a los costarricenses a elecciones para Presidente de la República, Senadores y Representantes para de la República, Senadores y Representantes para el próximo periodo Constitucional, que principiará el 1° de mayo inmediato.

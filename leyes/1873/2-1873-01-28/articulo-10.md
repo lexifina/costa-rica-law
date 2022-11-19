@@ -1,1 +1,0 @@
-Art 10° Todos empleados públicos proporcionará al Inspector los datos que este requiera y que se hallen a su alcance, para la persecución de los delincuentes o averiguación de los delitos, quedando sujetos o destitución los que no lo hicieren.
