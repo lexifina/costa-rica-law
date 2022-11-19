@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO XXXVIII
+(Esta norma fue derogada por el artículo 1°, inciso 849, de la ley N° 10287 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (Sexta parte)")
 Aprueba la Memoria de Guerra y Marina
 El Congreso Constitucional de la República de Costa Rica.
 Habiendo examinado los actos del Supremo Poder Ejecutivo a que se contrae el Informe presentado por el Honorable Señor Secretario de Estado en los Despachos de Guerra y Marina, decreta:

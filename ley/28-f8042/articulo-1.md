@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO XXVIII
+(Esta norma fue derogada por el artículo 1°, inciso 546, de la ley N° 10287 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (Sexta parte)")
 Faculta al Poder Ejecutivo para que, por cuenta del Tesoro Público, los jóvenes Federico y Teófilo, hijos del teniente coronel Don Ezequiel Pi, reciban alimentos y educación, y aprendan el oficio a que el mismo Poder crea conveniente dedicarlos.
 El Senado y la Cámara de Representantes de la República de Costa Rica, reunidos en congreso. - Por cuanto los jóvenes Federico y Teófilo, hijos, según los atestados que se tienen a la vista, del Teniente Coronel Don Ezequiel Pi, que expiró en el campo de batalla al servicio de la República, se hallan destituidos de los recursos más indispensables para alimentos y educación. Decretan:
 Art único: El Supremo Poder Ejecutivo dictará las providencias necesarias para que, por cuenta del Tesoro Público, los expresados jóvenes reciban alimentos y educación; y aprendan el oficio que el mismo Poder crea conveniente, hasta que cumplan la edad de dieciocho años.

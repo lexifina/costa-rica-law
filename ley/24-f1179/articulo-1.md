@@ -1,5 +1,7 @@
+(Derogado)
 DECRETO XXIV
-Fija el precio a que debe venderse en las tercenas el tabaco conocido con los nombres de “Breva” y “Virjinia”
+(Esta norma fue derogada por el artículo 1°, inciso 330, de la ley N° 10287 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (Sexta parte)")
+Fija el precio a que debe venderse en las tercenas el tabaco conocido con los nombres de "Breva" y "Virjinia"
 El Senado y Cámara de Representantes de Costa Rica.
 En atención a que el tabaco que se obtiene en los mercados de los E.E.U.U de Norte América para el consumo del país, ha subido de precio con motivo de la guerra, que dichos Estados sostienen, de tal modo que el Gobierno no reporta utilidad en su expendio y antes bien resuelto menoscabo en una de las rentas de la Nación, decretan:
 Art único: El precio de tabaco conocido con los nombres de Breva y Virjinia, será en todas las tercenas de la República el de seis reales por cada fibra.

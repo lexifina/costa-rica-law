@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO III
+(Esta norma fue derogada por el artículo 1°, inciso 614, de la ley N° 10287 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (Sexta parte)")
 Aprueba el Congreso la protesta y declaratoria de caducidad que el Poder Ejecutivo hace de la contrata del Ferrocarril celebrada con el Señor Reilly
 El Senado y la Cámara de Representantes de Costa Rica, reunidos en Congreso:
 Con presencia de los documentos presentados por el Poder Ejecutivo, referente a la protesta y declaratoria de caducidad que el mismo Poder Ejecutivo ha hecho en 20 de enero del corriente año, de contrato de ferrocarril interoceánico celebrado con el señor Eduardo Reilly y asociados, decretan:

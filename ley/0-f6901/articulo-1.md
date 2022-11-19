@@ -1,3 +1,5 @@
+(Derogado)
+(Esta norma fue derogada por el artículo 1°, inciso 686, de la ley N° 10287 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (Sexta parte)")
 CODIGO MILITAR
 REPUBLICA DE COSTA-RICA.
 TOMAS GUARDIA,
@@ -91,7 +93,7 @@ Art. 27. El Cabo cuidará de llevar las centinelas entrantes y salientes con la 
 Art. 28. El Cabo de una guardia debe ser la confianza y descanso de sus Jefes La vigilancia: y desempeño de los centinelas, aseo de su tropa y puntual cumplimiento de las órdenes que se dieren, son atenciones indispensables y propias de su obligación é instituto.
 Art. 29. Los centinelas se relevarán de dos en dos horas; variando esta regla según las circunstancias, a juicio del Jefe del puesto.
 Art. 30. El Cabo de cada guardia 'sea en guarnición o en campaña visitará de día con frecuencia a sus centinelas y de noche cada media hora, dándole para esto el Oficial una señal, que, oída de los centinelas a distancia competente, reconozcan ser la visita del Cabo, Sargento u Oficial; y a fin de que· las guardias inmediatas no lo ignoren y que sus centinelas no extrañen el ruido, se la comunicarán recíprocamente los Jefes de las guardias confinantes.
-Art. 31. El Cabo que mandare una guardia (y lo mismo· otro en igual caso) antes que se haya entregado del puesto, reconocerá las armas y municiones de su guardia y cuidará de que todas estén en el mejor’ estado. Después que reciba, leerá las obligaciones generales de los centinelas y añadirá: las órdenes o prevenciones peculiares de la plaza y suyas para aquel puesto, esto es, las que puedan ser públicas y: no· sean reservadas al Cabo Je la guardia parra su particular atención y cuidado.
+Art. 31. El Cabo que mandare una guardia (y lo mismo· otro en igual caso) antes que se haya entregado del puesto, reconocerá las armas y municiones de su guardia y cuidará de que todas estén en el mejor' estado. Después que reciba, leerá las obligaciones generales de los centinelas y añadirá: las órdenes o prevenciones peculiares de la plaza y suyas para aquel puesto, esto es, las que puedan ser públicas y: no· sean reservadas al Cabo Je la guardia parra su particular atención y cuidado.
 Art. 32. El que mandare guardia que dependa tiene una plaza en caso de oír tiros, ver fuego, señal de alarma o cualquiera alboroto, la pondrá inmediatamente sobre las armas, si hubiere barreras las cerrará y tomará las demás precauciones que juzgare conducentes a su seguridad: en el acto enviará un soldado a dar parte de la ocurrencia á la plaza, verbalmente, y seguirá de allí apoco otro parte por escrito. Cuando la guardia sea del cuartel, dará aviso a su Coronel al mismo tiempo que á la plaza.; y si la novedad mereciere alguna atención, prevendrá á todas las compañías que se· apronten para tomar las armas a la primera orden.
 Art 33. Todo Jefe de guardia, sea Cabo, Sargento u Oficial, llevará consigo papel y tintero para escribir los partes por sí mismo; pues toca solamente al que manda el puesto esta confianza y la responsabilidad de la explicación en las novedades de que diere cuenta.
 .
@@ -354,7 +356,7 @@ Art. 1O. Cuidara de que en los cuarteles de su provincia el servicio se haga con
 Art. 11. Impedirá que los instructores traten mal a la tropa en los ejercicios doctrinales, recomendándoles que tenga paciencia y constancia para enseñar a los que sean torpes: graduará las penas arbitrarias que sus subalternos impongan; pues para las faltas o delitos que tengan pena establecida. por las ordenanzas, se debe aplicar irremisiblemente la señalada al delito o falta que se haya cometido.
 Art.12. Dará cuenta por escrito al Comandante General de todo lo que crea digno de su atención: le enviará con el pase correspondiente las solicitudes de sus subalternos; y le consultará en los casos no previstos todas aquellas medidas que conduzcan al mejor servicio de la provincia de su mando.
 Art. 13. Cuando algún individuo deba ser juzgado militarmente, nombrará un fiscal específico entre sus subalternos, dando cuenta de este nombramiento al Comandante General para su aprobación. Esto tendrá lugar, siempre que no puedan hacerlo el Sargento Mayor o Ayudante Mayor respectivos.
-Art. 14. Dará pronto complimiento a las órdenes que le comunique la Comandancia General. ¡Y cuando reciba alguna que presente graves inconvenientes!’, si la ejecución no se exige inmediatamente y el servicio no se atrasa, podrá significar a su Jefe, con el debido respeto, aquellos de que crea que el Comandante General no tiene noticia por la distancia u otras circunstancias. Este puede o no atender las razones del Comandante de provincia; y en el segundo caso, reiterará. la orden, que debe ser cumplida a todo trance.
+Art. 14. Dará pronto complimiento a las órdenes que le comunique la Comandancia General. ¡Y cuando reciba alguna que presente graves inconvenientes!', si la ejecución no se exige inmediatamente y el servicio no se atrasa, podrá significar a su Jefe, con el debido respeto, aquellos de que crea que el Comandante General no tiene noticia por la distancia u otras circunstancias. Este puede o no atender las razones del Comandante de provincia; y en el segundo caso, reiterará. la orden, que debe ser cumplida a todo trance.
 Art. 15. Siempre que considere conveniente para el mejor servicio, la traslación de alguno de sus subalternos a otra provincia, la solicitará del Comandante General, exponiendo las razones que para ello tenga. En la provincia de su mando, puede hacer los cambios que crea oportunos, respecto de los puntos en que deben prestar sus servicios los subalternos; pero de todo dará parte al Comandante General.
 Art. 16. Cuando alguno de su subordinado fuere inepto o excesivamente descuidado en el cumplimiento de sus deberes, escandaloso y sin pundonor, que tuviere vicios indecorosos, nombrará un fiscal específico para que siga la correspondiente información, y dará cuenta con ella al Comandante General a fin de que ordene lo que crea conveniente.
 Art. 17. El Comandante de Provincia mandará a todo Oficial que exista en ella, de cualquiera carácter que sea, sin excepción de los de mayor graduación; a menos que alguno de estos tenga orden expresa para mandar en casos dados.
@@ -1178,7 +1180,7 @@ Los litigios cuyo importe no excediere de quince pesos, serán fenecidos verbalm
 Art 199° En las causas criminales la sumaria, será instruida por Jueces militares dotados por el Tesoro público y nombrados por el Poder Ejecutivo a presentación del General en Jefe.
 Las indemnizaciones en causa criminales se decidirán en la sentencia penal por los mismos Jueces que le hayan pronunciado.
 La liquidación y determinación respectivas se ventilarán ante el Juez militar con el recurso al Auditor de Guerra respectivo o a la Suprema Corte de Justicia, según exceda o no su cantidad de dosicentos cincuenta pesos.
-Art 200° El Auditor General de Guerra y demás Auditores subalternos que hubiere, no tienen calidad de Juez. –Ellos desempeñarán exclusivamente las funciones del Ministerio Público.
+Art 200° El Auditor General de Guerra y demás Auditores subalternos que hubiere, no tienen calidad de Juez. -Ellos desempeñarán exclusivamente las funciones del Ministerio Público.
 Art 201° Todo delito a que la presente ley imponga pena en público, y será perseguido y castigado en el interés del orden y de la seguridad pública.
 Se exceptúan solamente los delitos conta la honra que no serán castigados sino a petición de la parte ofendida.
 Art 202° En ningún caso pueden ser embargados ni ejecutados por razón de la deuda, el prest, las raciones, las armas y el vestuario del militar.
@@ -1337,240 +1339,240 @@ Art 95° Mientras se expide la nueva tarifa de sueldos, seguirá rigiendo la con
 Dada en el Palacio Nacional de San José, a once de mayo de mil ochocientos setenta y uno.
 FE DE ERRATAS DE LA PRIMERA PARTE
 Pag | Lin | Dice | Léase
-1…………. | 23…………. | Ayudante……… | Ayudantes
-“…………. | 26…………. | Comisario……. | Comisario
-3…………. | 2………….. | Tibiesa………… | Tibieza
-6…………. | 33………… | Excepción | Excepción
-“…………. | 1…………. | Desencia | Decencia
-7………… | 26……….. | Quien | Que
-“…………. | 8…………. | Glasis | Glásis
-“…………. | 9………….. | Lápiz | lápiz
-8…………. | 19……….. | Cualesquiera | Cualquier
-11……….. | 18………… | Sucediendiendo | Sucediendo
-17……….. | 8…………. | Título | Título
-19………… | 7…………. | Apoco | A poco
-24……….. | 15……….. | Reconocer | reconocer
-“…………. | 26………. | Examen | examen
-26……….. | 19……….. | Descanzar | descansar
-73………. | 21………. | De pendencia | dependencia
-75………... | 17……….. | Asus | A sus
-76……….. | 23………. | O | U
-83………. | 2…………. | cansado | cansada
-85………. | 2………….. | Señal de | Señal de
-87………. | 8…………. | Secolacarán | Se colocaran
-88………. | 25……….. | Nombrara | nombrará
-98………. | 30………. | Cuartos | cuartas
-“…………. | 20………. | Cuartos | cuartas
-“…………. | 25……….. | Lo | La
-101……… | 30……….. | Apróposito | A próposito
-103…….. | 20……….. | Puestos avanzadas | Puesto avanzado
-114……… | 22………… | Desembarazarlo | embarazarlo
-116……… | 3………….. | Forrajeados | Forrejeadores
-119…….. | 10………… | A campo | Al campo
-122…….. | 2…………. | Comande | Al campo
-129…….. | 19…………. | Bandera | bandera
-132……… | 24……….. | tropas | Tropa
+1..... | 23..... | Ayudante... | Ayudantes
+"..... | 26..... | Comisario... | Comisario
+3..... | 2...... | Tibiesa.... | Tibieza
+6..... | 33.... | Excepción | Excepción
+"..... | 1..... | Desencia | Decencia
+7.... | 26..... | Quien | Que
+"..... | 8..... | Glasis | Glásis
+"..... | 9...... | Lápiz | lápiz
+8..... | 19..... | Cualesquiera | Cualquier
+11..... | 18.... | Sucediendiendo | Sucediendo
+17..... | 8..... | Título | Título
+19.... | 7..... | Apoco | A poco
+24..... | 15..... | Reconocer | reconocer
+"..... | 26.... | Examen | examen
+26..... | 19..... | Descanzar | descansar
+73.... | 21.... | De pendencia | dependencia
+75...... | 17..... | Asus | A sus
+76..... | 23.... | O | U
+83.... | 2..... | cansado | cansada
+85.... | 2...... | Señal de | Señal de
+87.... | 8..... | Secolacarán | Se colocaran
+88.... | 25..... | Nombrara | nombrará
+98.... | 30.... | Cuartos | cuartas
+"..... | 20.... | Cuartos | cuartas
+"..... | 25..... | Lo | La
+101... | 30..... | Apróposito | A próposito
+103.... | 20..... | Puestos avanzadas | Puesto avanzado
+114... | 22.... | Desembarazarlo | embarazarlo
+116... | 3...... | Forrajeados | Forrejeadores
+119.... | 10.... | A campo | Al campo
+122.... | 2..... | Comande | Al campo
+129.... | 19..... | Bandera | bandera
+132... | 24..... | tropas | Tropa
 INDICE DEL CÓDIGO MILITAR
 Título 1° Página
-Del Soldado…………………………….... 1
+Del Soldado............... 1
 Título 2° Página
-Del Cabo…………………………….... 10
+Del Cabo............... 10
 Título 3° Página
-Del Tambor Mayor……………………… 26
+Del Tambor Mayor......... 26
 Título 4° Página
-Del Abanderado……………………………28
+Del Abanderado...........28
 Título 5° Página
-Obligaciones del subteniente……………… 30
+Obligaciones del subteniente...... 30
 Título 6° Página
-Del Teniente…………………………….... 35
+Del Teniente............... 35
 Título 7° Página
-Del Ayudante Mayor………………………… Id
+Del Ayudante Mayor.......... Id
 Título 8° Página
-Del Ayudante Mayor……………………………Id
+Del Ayudante Mayor...........Id
 Título 9° Página
-Obligaciones del Capitán……………………36
+Obligaciones del Capitán........36
 Título 10° Página
-Obligaciones del Guarda Almacenes……… 44
+Obligaciones del Guarda Almacenes... 44
 Título 11° Página
-Obligaciones de los Directores de Música…… 49
+Obligaciones de los Directores de Música.. 49
 Título 12° Página
-Obligaciones del Sargento Mayor……………… 51
+Obligaciones del Sargento Mayor...... 51
 Título 13° Página
-Obligaciones del Teniente Coronel……………. 1
+Obligaciones del Teniente Coronel...... 1
 Título 14° Página
-Coronel en regimiento…………………………….... 1
+Coronel en regimiento............... 1
 Título 15° Página
-Funciones del Mayor General de Infantería………… 1
+Funciones del Mayor General de Infantería.... 1
 Título 16° Página
-Obligaciones de los Comandantes de Provincia…… 1
+Obligaciones de los Comandantes de Provincia.. 1
 Título 17° Página
-Funciones de los Sargentos Mayores de las Plazas…… 74
+Funciones de los Sargentos Mayores de las Plazas.. 74
 Título 18° Página
-Ordenes generales para oficiales…………………………….1
+Ordenes generales para oficiales............1
 SERVICIO DE GUARNICIÓN
 Título 1° Página
-Instrucciones para los Comandantes de una guardia……………………………81
+Instrucciones para los Comandantes de una guardia...........81
 Título 2° Página
-Guardia de prevención……………83
+Guardia de prevención.....83
 Título 3° Página
-Revista de prevención…………….85
-Visitas de hospital…………………88
+Revista de prevención......85
+Visitas de hospital.......88
 Título 4° Página
-Formalidades para dar la orden y el santo o señal de campo…………………………….Id
+Formalidades para dar la orden y el santo o señal de campo............Id
 Título 1° Página
-Servicio de Campaña………………………92
+Servicio de Campaña.........92
 Título 2° Página
-Marchas……………………………………53
-Descubiertas………………………………95
-Flanqueos…………………………………97
-Reconocimientos………………………… 98
+Marchas..............53
+Descubiertas............95
+Flanqueos.............97
+Reconocimientos.......... 98
 Título 3° Página
-Campamentos………………………………100
-Servicio de Avanzada………………………103
-Convoyes…………………………………….108
-Sitios de Plazas………………………… ….111
-Sobre forraje………………………………….113
+Campamentos............100
+Servicio de Avanzada.........103
+Convoyes...............108
+Sitios de Plazas.......... ..111
+Sobre forraje..............113
 Título 4° Página
-Servicio de campaña por brigada……………116
+Servicio de campaña por brigada.....116
 Título 5° Página
-Ordenes generales para el servicio de campaña…122
+Ordenes generales para el servicio de campaña.122
 Título 6° Página
-Destacamentos………………………………124
+Destacamentos............124
 Título 7° Página
-Movimiento de un campo a otro………………126
+Movimiento de un campo a otro......126
 Título 8° Página
-Alojamiento en cuarteles o cantones y modo de distribuir el forraje que haya en ellos ………………………………128
+Alojamiento en cuarteles o cantones y modo de distribuir el forraje que haya en ellos ............128
 Título 9° Página
-Honores Militares………………………………129
-Al Santísimo Sacramento………………………Id
-Presidente de la República……………………130
-General en Jefe………………………………….Id
-Oficiales Generales y Jefes……………………131
-Subalternos…………………………………….Id
-Guardias de honor……………………………..id
+Honores Militares............129
+Al Santísimo Sacramento.........Id
+Presidente de la República........130
+General en Jefe..............Id
+Oficiales Generales y Jefes........131
+Subalternos...............Id
+Guardias de honor.............id
 Título 10° Página
-Honores fúnebres………………………………132
-General en Jefe…………………………………Id
-Oficiales Generales y Jefes……………………133
-Oficiales subalternos……………………………134
-Tropa……………………………………………..135
-Reformados, graduados y paisanos……………Id
+Honores fúnebres............132
+General en Jefe.............Id
+Oficiales Generales y Jefes........133
+Oficiales subalternos...........134
+Tropa...................135
+Reformados, graduados y paisanos.....Id
 Fin del Indice del Código Militar
 ----------------♀----------------------
 INDICE DEL CÓDIGO PENAL MILITAR
-Título preliminar…………………………1
-Leyes penales…………………………...2
+Título preliminar..........1
+Leyes penales.............2
 Título 1° Página
 Capitulo 1°
-De las penas i sus efectos i de la satisfacción ………2
+De las penas i sus efectos i de la satisfacción ...2
 Capitulo 2°
-De los delitos consumados y de la tentativas……….5
+De los delitos consumados y de la tentativas....5
 Título 2° Página
 Capitulo 1°
-De los asuntos y cómplices de un delito ………….5
+De los asuntos y cómplices de un delito .....5
 Capitulo 2°
-De la imputación de las penas……………………..7
+De la imputación de las penas..........7
 Capitulo 3°
-De la graduación de las penas, de las circunstancias, agravantes y disminuyentes y de la commutación legal……………………..7
+De la graduación de las penas, de las circunstancias, agravantes y disminuyentes y de la commutación legal..........7
 Capitulo 4°
-De la extinción y prescripción de las penas…………………9
+De la extinción y prescripción de las penas.......9
 Capitulo 5°
-Disposiciones generales……………………………………….Id
+Disposiciones generales................Id
 Título 3° Página
 De los diferentes delitos especiales
 Capitulo 6°
-De los delitos contra la seguridad de la República y del Ejercito y contra el orden Constitucional ………………………………10
+De los delitos contra la seguridad de la República y del Ejercito y contra el orden Constitucional ............10
 Capitulo 7°
-De la rebelión i sedición…………………………………………13
+De la rebelión i sedición................13
 Capitulo 8°
-De la insubordinación……………………………………………16
+De la insubordinación.................16
 Capitulo 9°
-De la violación de los deberes y del abuso de autoridad…………………………………………………………..18
+De la violación de los deberes y del abuso de autoridad........................18
 Capitulo 10°
 De la deserción y recluta para el extrangero
-De la deserción……………………………………………..24
-De la recluta o enganche para el extranjero…………….25
+De la deserción...................24
+De la recluta o enganche para el extranjero......25
 Capitulo 11°
 Del homicidio
-Del asesinato……………………………………………..24
-Del homicidio voluntario…………………..…………….25
-Del homicidio por negligencia…………………………..27
-Del homicidio en riña…………………………………….Id
-Del duelo…………………………………………………..id
+Del asesinato...................24
+Del homicidio voluntario...............25
+Del homicidio por negligencia............27
+Del homicidio en riña...............Id
+Del duelo.....................id
 Capitulo 12°
 De las lesiones corporales y violencias
-De las lesines corporales en general…………….28
-Lesión calificada en primer grado……………….. Id
-Lesión calificada en segundo grado………………id
-De las lesiones corporales por imprudencia o negligencia…29
-De las lesiones corporales en riña o pelea……….Id
-De las lesiones corporales en duelo………………30
-Del esturpo violento y alevoso y del abuso de las personas…Id
-Del rapto………………………………………………31
-De los atentados contra la libertad individual y de la detención arbitraria………………………………………………Id
-De la violación del domicilio…………………………32
+De las lesines corporales en general......28
+Lesión calificada en primer grado........ Id
+Lesión calificada en segundo grado......id
+De las lesiones corporales por imprudencia o negligencia.29
+De las lesiones corporales en riña o pelea....Id
+De las lesiones corporales en duelo......30
+Del esturpo violento y alevoso y del abuso de las personas.Id
+Del rapto..................31
+De los atentados contra la libertad individual y de la detención arbitraria..................Id
+De la violación del domicilio..........32
 Capitulo 13°
-De los incendios, devastaciones y otros daños de la propiedad ajena………………………………………………………..32
+De los incendios, devastaciones y otros daños de la propiedad ajena.......................32
 Capitulo 14°
-Del hurto…………………………………………34
-Del robo………………………………………….35
-De la estorción………………………………….36
+Del hurto................34
+Del robo.................35
+De la estorción..............36
 Del delito de los merodeadores y del saqueo.Id
 Capitulo 15°
 De la malversación, estafa y testimonio falso
-De la malversación…………………………………………34
-Del fraude o la estafa………………………………………35
-Del testimonio falso………………………………………..41
+De la malversación................34
+Del fraude o la estafa...............35
+Del testimonio falso.................41
 Capitulo 16
-De los atentados contra la honra…………………………Id
+De los atentados contra la honra..........Id
 Capítulo 17
-De la turbación del culto divino………………………..42
+De la turbación del culto divino...........42
 Capitulo 18
-De las amenazas…………………………………………..Id
+De las amenazas..................Id
 Título 4°
 De las faltas de disciplina
 Capítulo 19
-Enumeración y definición de las faltas de disciplina……Id
+Enumeración y definición de las faltas de disciplina..Id
 Capitulo 20
-De las penas de disciplina o correcionesnales…………45
+De las penas de disciplina o correcionesnales....45
 Capitulo 21
-De la competencia penal………………………………….47
+De la competencia penal..............47
 Capítulo 22
-De las partes…………………………………………………50
+De las partes...................50
 Capítulo 23
-De las reclamaciones y quejas…………………………….51
-Disposiciones generales……………………………………Id
+De las reclamaciones y quejas............51
+Disposiciones generales..............Id
 Fin del Indice
 ------ô------
 INDICE DE LA ORGANIZACIÓN DEL EJERCITO
 Capítulo 1
-Obligación de sentir…………………………………...2
+Obligación de sentir................2
 Capítulo 2
-De la formación del Ejercito…………………………….3
+De la formación del Ejercito............3
 Capítulo 3
-De la división del Ejercito…………………………….4
-Infantería………………………………………………Id
-Artillería…………………………………………………5
-Caballería………………………………………………6
-Reserva y Guardia Nacional…………………………Id
+De la división del Ejercito............4
+Infantería..................Id
+Artillería...................5
+Caballería..................6
+Reserva y Guardia Nacional..........Id
 Capítulo 4
-Del Supremo Consejo de la Guerra, Estados Mayores y obligaciones…………………………………………….7
-Estados Mayores……………………………………….Id
-Obligaciones de los Ayudantes de campo…………..8
-Obligaciones de los Ayudantes Generales………….9
-Obligaciones del Mayor General de División……….10
-Estado Mayor General………………………………..11
-Obligaciones del General de Brigada……………….12
+Del Supremo Consejo de la Guerra, Estados Mayores y obligaciones..................7
+Estados Mayores................Id
+Obligaciones de los Ayudantes de campo......8
+Obligaciones de los Ayudantes Generales.....9
+Obligaciones del Mayor General de División....10
+Estado Mayor General..............11
+Obligaciones del General de Brigada.......12
 Capítulo 5°
-Uniformes………………………………………………14
+Uniformes..................14
 Capítulo 6°
-Montepío……………………………………………….17
-Bagaje………………………………………………….18
-Forraje………………………………………………….19
+Montepío...................17
+Bagaje....................18
+Forraje....................19
 Capítulo 7°
-Fuero……………………………………………………Id
+Fuero....................Id
 Capítulo 8°
-Uniformes………………………………………………20
+Uniformes..................20
 Fin del Indice
 Código Militar
 Para el
@@ -1601,12 +1603,12 @@ Esta unidad entra, por tanto, en las combinaciones necesarias, para la formació
 Para la composición de un cuerpo de ejercito, destinado a entara en campaña, bajo el mando de un General en Jefe, hemos admitido, asimismo, el principio divisonario que rige casi en todos los países mas adelantados en el arte militar. Este principio está suficientemente recomendando por todos los expertos, y corroboradores en la práctica su fundamento científico y su utilidad, porque unido a los demás requisitos de buena organización, da la ductilidad conveniente a la máquina militar, y la composición de un ejercito de operaciones no puede ya ser, según la expresión de un expositor, lenta, laboriosoa ni empírica, sino que brota como de la planta el fruto.
 No debe olvidarse por lo que están llamados a hacer un juicio crítico del proyecto eleaborado, lo que hemos tenido muy presente, en punto a organización y es precisamente que nuestros grandes ejércitos no lo pueden ser hoy, ni antes de algunos siglos, sino en un sentido relativo, y por lo tanto, el mecanismo de ellos debe adaptarse a sus proporciones númerica, a los elementos que entran en su composición, y a las demás condiciones ya apreciadas circunstancias diferentes a las que concurren en la formación de grandes ejércitos europeos, para la cual el mecanismo apropiado, lo para organizar y movilizar grandes masas de hombres, sobre un vasto teatro de guerra. En esta inteligencia, si nos hemos apartado algo de la organización actual, es obediciendo a las indicaciones del arte militar y a las poderosas consideraciones aludidas, sin embargo, si llegare a encontrarse razón para conservar integro el sistema que rige, bastarían al efecto, algunas ligeras modificaciones, sin desestimar, por otra parte, los principios elementales, consultados y seguidos.
 En la parte directiva, se ha constituido el Ministerio de Guerra como el centro de acción a donde viene a converger toda la actividad orgánica y administrativa, mediante la función ordenada de todas las oficinas y dependencias de este Departemento de gobierno.
-“Y así si como toda esta acción disemina en los varios órganos del Estado militar concurre a crear, organizar, mantener, conservar y fomentar el ejército, como una institución social en los tiempos modernos”
+"Y así si como toda esta acción disemina en los varios órganos del Estado militar concurre a crear, organizar, mantener, conservar y fomentar el ejército, como una institución social en los tiempos modernos"
 Considerado el Estado Mayor como el cerebro de un ejercito, se ha procurado organizarlo, en el proyecto, calándolo en los modelos que nos ofrece el arte militar moderno, y se le ha dado toda la amplitud que permiten circunstancias especiales imprescindibles, incorporando en él los cuerpos científicos mas necesarios.
-En General en Jefe y el Mayor General son lo que figuran en primer término, y respecto de su importancia no podemos menos que citar los párrafos de la interesante obra “Guía del oficial en campaña” por el brigadier Don José Almirante, que siguen:
-“Sobre estos dos pilares, dice el autor, principia a levantarse y descansa luego la complicada máquina de un ejercito de operaciones.
+En General en Jefe y el Mayor General son lo que figuran en primer término, y respecto de su importancia no podemos menos que citar los párrafos de la interesante obra "Guía del oficial en campaña" por el brigadier Don José Almirante, que siguen:
+"Sobre estos dos pilares, dice el autor, principia a levantarse y descansa luego la complicada máquina de un ejercito de operaciones.
 El primero, el General en Jefe, centro, por decirlo así, de todos los sistemas, atiende al mando en toda la latitud, a la dirección en sus altas concepciones. Al segundo le incumbe mas directamente el gobierno en un mecanismo y sus detalles, la ejecución en sus pormenores.
-“Uno y otro se rodean del número y clase de oficiales, que tienen por conveniente, predominando los facultativos, y entre ellos los del cuerpo especial de Estado Mayor”. La reunión de todos ellos, con sus dos Jefes, constituye lo que antes se llamó Plan Mayor, y ahora Estado Mayor General del Ejercito de operaciones, órgano y oficina central de donde parten y a donde concurren los varios y múltiples elementos de la dirección del ejercito.
+"Uno y otro se rodean del número y clase de oficiales, que tienen por conveniente, predominando los facultativos, y entre ellos los del cuerpo especial de Estado Mayor". La reunión de todos ellos, con sus dos Jefes, constituye lo que antes se llamó Plan Mayor, y ahora Estado Mayor General del Ejercito de operaciones, órgano y oficina central de donde parten y a donde concurren los varios y múltiples elementos de la dirección del ejercito.
 Nada más tenemos que agregar a este propósito, que aludir a la demostración de la importancia del Estado Mayor y de los servicios administración del ejercito que ofrecen aun a los mas extraños al arte militar, los resultados de dos de las guerras mas recientes, la franco-alemana y la chileno-peruana.
 Como un medio eficaz para obtener en lo posible los ventajosos resultados de que hacemos mérito, hemos procuado que la instrucción dada a los individuos del ejercito, llene sus fines en la proporción de los elementos disponibles, dejando abierto campo para que ella sea mas comprensiva y dejando abierto campo para que ella sea mas comprensiva y completa a medida que el progreso suministre nuevos medios y las aptitudes individuales se desarrollen.
 En este concepto se ha divido la enseñanza en civil y propiamente militar, y se ha provisto al establecimiento de biblioteca militar, y se ha provisto al establecimiento de bibliotecas y académicas poniendo las bases para que se puedan establecer, en previsión del adelanto y del asumento de recursos, una escuela militar que, aunque no llegue a merecer el pomposo nombre de institución politécnico, habilite algunos alumnos para las funciones técnicas del ejercito, puedan ellos obtener grados científicos y corresponder así, con la satisfacción de esta necesidad, a las radicales reformas de la ciencia y del arte militar que realizan en el periodo histórico presente.
@@ -1692,7 +1694,7 @@ Art. 12. Son objetos secundarios de la fuerza pública:
 3° Trabajar en las obras públicas nacionales en calidad de zapadores con la autorización superior para ellos.
 CAPITULO III
 División de la fuerza pública
-Art 14° La fuerza pública militar se divide en naval y terrestre. La primera tiene la denominación de “Armada Nacional” y será objeto de una ley especial. La segunda que es de la que trata este código, la forma el “Ejercito Nacional”, que se divide en guardia activa, guardia de reserva y guardia civíca
+Art 14° La fuerza pública militar se divide en naval y terrestre. La primera tiene la denominación de "Armada Nacional" y será objeto de una ley especial. La segunda que es de la que trata este código, la forma el "Ejercito Nacional", que se divide en guardia activa, guardia de reserva y guardia civíca
 Art. 15. La. guardia activa es la que esta destinada inmediatamente á atender á los objetos primordiales y secundarios de la administración pública y al servicio de guarnición, tornando entonces el nombre de guardia permanente, y á movilizarse para entrar en campaña, convirtiéndose entonces en ejercito de operaciones. La componen los costarricenses comprendidos en la primera categoría.
 Art 16° La guardia de reserva se destina al servicio de las plazas y a los demás objetos secundarios, conforme al artículo 11, cuando el ejercito activo sale a campaña y subsidiariamente concurre también a la composición del ejercito de operaciones. La forman los costarricenses comprendidos en la segunda categoría.
 ArL. 17. La guardia cívica la forman los costarricenses comprendidos en la tercera categoría, aptos para llevar las armas; y está destinada subsidiariamente, a falta de los cuerpos de reserva, á los objetos primordiales y secundarios de la fuerza militar.
@@ -1713,10 +1715,10 @@ Art 19° Habrá en el ejército el destino de General en Jefe, y los siguientes 
 10° El del soldado.
 Único: Habrá también los destinos de corneta, tambor y músico.
 Art. 20.-Los anteriores grados ú empleos se confieren de por vida: pero quedan sujetos los individuos que los obtengan á perderlos en lo casos que se expresan en este código y por pena impuesta por las leyes.
-Art. 21.-Desde General hasta Subtieniente se denominan genéricamente “oficiales”
-Los empleos comprendidos en los incisos 9° y 10° del artículo 19, llevan el nombre genérico de “tropa” o individuos de tropa.
-Los comprendidos en el inciso 9, de dicho artículo se llaman “clases”
-Los comprendidos en el único se denominan genéricamente “banda” o individuos de banda.
+Art. 21.-Desde General hasta Subtieniente se denominan genéricamente "oficiales"
+Los empleos comprendidos en los incisos 9° y 10° del artículo 19, llevan el nombre genérico de "tropa" o individuos de tropa.
+Los comprendidos en el inciso 9, de dicho artículo se llaman "clases"
+Los comprendidos en el único se denominan genéricamente "banda" o individuos de banda.
 Art 22° El General en Jefe extiende su mando a un ejercito.
 En General de División, a una división y el de Brigada, a una brigada.
 El Coronel, a un regimiento.
@@ -1855,7 +1857,7 @@ Art 95 La organización de una columna es la reunión de tropas de diferentes ar
 Art 96° Toda columna será mandada por un jefe u oficial superior de la graduación que el Poder Ejecutivo o el General del ejercito determine, y con el Estado Mayor y ayudantes necesarios, según el objeto de la comisión.
 Art 97° El comandante de la columna tendrá de uno a dos ayudantes de campo de la clase de Teniente o Subtenidente, según la fuerza y la importancia de ella, de manera que, si la columna consta de solo dos cuerpos o tres medios cuerpos, el comandante tendrá un solo ayudante de campo.
 Art 98° Cuando el comandante de la columna sea General, podrá ser Capitán uno de los Ayudantes de campo.
-Art 99° La Comandancia y el Estado Mayor juntos, componen un cuerpo que se llama genéricamente “Estado mayor de la columna” y todos los oficiales que a él pertenezcan se llaman oficiales de Estado Mayor, un Estado Mayor de columna puede tener hasta dos cornetas de órdenes y cuatro ordenanzas.
+Art 99° La Comandancia y el Estado Mayor juntos, componen un cuerpo que se llama genéricamente "Estado mayor de la columna" y todos los oficiales que a él pertenezcan se llaman oficiales de Estado Mayor, un Estado Mayor de columna puede tener hasta dos cornetas de órdenes y cuatro ordenanzas.
 CAPITULO V
 Divisiones- Ejercitos
 Art 100° Una división se compone de dos brigadas de infantería, con las baterías y caballerías que su composición, según el caso.
@@ -1962,7 +1964,7 @@ Art 166° A ningun recluta se le hará entrar de guardia hasta que no se le haya
 Art 167 El soldado, para entrar de guardia, reconocerá con anticipación su arma, y sus municiones llevando arreglados los cartuchos, y en buen estado y corrientes el fusil o rifle.
 Art 168° Cuando se haya montado la guardia, no podrá separarse de ella ningún soldado, sino con licencia del comandante del puesto, solicitada por conducto del cabo, pero antes de concederla hará dicho comandante que el soldado deje al cabo la cartuchera con la bayoneta o sable y el correaje, a fin de evitar su pérdida.
 Art 169° rán esta licencias sino en caso de urgente necesidad, y por una o dos horas. Al recién incorporado en un cuerpo no se concederá en nigún caso licencia, a menos que el cabo u otro soldado veterano de toda confianza le acompañe, hasta regresar con el al cuerpo de guardia.
-Art 170° Todo soldado, inmediatamente que oyere al superior de quien dependa la voz de “a las armas” deberá acudir a ellas con prontitud y silencio, y formarse en su puesto, descansando sobra la suya para ejecutar cuanto disponga el que lo estuviere mandando.
+Art 170° Todo soldado, inmediatamente que oyere al superior de quien dependa la voz de "a las armas" deberá acudir a ellas con prontitud y silencio, y formarse en su puesto, descansando sobra la suya para ejecutar cuanto disponga el que lo estuviere mandando.
 Art 171° El soldado que se enviare de una guardia a llevar un parte por escrito o verbalmente, marchará con su fusil o rifle el brazo, hasta llegar a la presencia de la persona fuere de graduación por la cual la presentaría estando él de centinela, le dara el parte que lleva, y después de recibir la orden que lo diere, terciara el arma, dará media vuelta y regresará inmediatamente a su puesto, arma al brazo.
 Art 172° Si al empleado a quien se dirige el parte no le corresponde el honor de presentarle el arma, el soldado la bajará para entregarlo el parte.
 Art 173° Aquel a quien toque entrar de centinela, cuando fuere llamado por su cabo, lo seguirá con el arma bien terciada, y en llegando al que debe relevar, las presentarán ambos. El centinela saliente explicará al entrante, con claridad, las obligaciones particulares de su puesto, el cabo las oirá con atención y satisfecho de que la consignada esta bien dada, y renovando lo que hubiere omitido el centinela saliente, encarrecerá al entrante la exacta observación de lo que se le ha encargado, y que tenga presentes las obligaciones
@@ -1984,8 +1986,8 @@ Art 188° Si el centinela notare incendio, oyese tiros u observare riña o cualq
 Art 189° Todas las órdenes que el centinela reciba han de darse por conducto del cabo, pero si en algún caso particular quisiera darla por si el comandante de la guardia, la recibirá, obedecerá y reservará, si así se lo encargare el oficial.
 Art 190° A ninguna persona podrá el centinela comunicar las órdenes que tenga, sino al cabo o al comandante de la guardia, en caso de que se lo mandaren y el cabo deberá callar las que dicho comandante, como superior, haya dado con prevención de reservarlas.
 Art 191° El centinela no se dejará relevar sino a presentar del cabo o de que quien haga sus veces, salvo que lo mande el comandante de la guardia y mientras estuviere de facción, no entrará en la garita de día ni de noche, a excepción de cuando por copiosa lluvia o excesivo calor, se lo permita el comandante del puesto, bajo su responsabilidad y en tal caso tendrá siempre abiertas las ventanas de la garita.
-Art 192° Los centinelas de un recinto o cordon que puediera comunicarse, pasará la señal de alerta, cada cuarto de hora desde la retreta hasta la diana en esta forma: “centinela alerta” o del modo que prevenga el comandante de la guardia y en la misma forma se trasmitirá de uno a otro, empezando por el paraje que estuviere señalado.
-Art 193° El centinela apostado en puerta, en avanzada o cualquier paraje en que le ponga por precaución desde la retreta hasta la diana, dará el quien vive a cuantos lleguen a sus inmediaciones, y respondiendo “Costa Rica, preguntará que gente y si fuese en campaña que cuerpo.
+Art 192° Los centinelas de un recinto o cordon que puediera comunicarse, pasará la señal de alerta, cada cuarto de hora desde la retreta hasta la diana en esta forma: "centinela alerta" o del modo que prevenga el comandante de la guardia y en la misma forma se trasmitirá de uno a otro, empezando por el paraje que estuviere señalado.
+Art 193° El centinela apostado en puerta, en avanzada o cualquier paraje en que le ponga por precaución desde la retreta hasta la diana, dará el quien vive a cuantos lleguen a sus inmediaciones, y respondiendo "Costa Rica, preguntará que gente y si fuese en campaña que cuerpo.
 Art 194° Si los preguntados respondieren mal o dejaren de responder repetirá el quien vive, dos veces y sucediendo en ellos lo mismo, llamará la guardia para hacerlos reconocer y arrestarlos, y en caso de huir, dando con esto fundado motivo de sospechar que sean personas mal intencionadas, les hará fuego.
 Art 195° Siempre que el quien vive de un centinela apostado, se le respondiere ronda mayor, ronda, contra ronda o rondilla, la hará hacer alto, y avisará al cabo de guardia apra se reciba como corresponde y lo mismo practicarán los centinelas en campaña si al preguntar que cuerpo, respondieren General, jefe u ofidial de día.
 Art 196. Los centinelas que estuvieren a los flancos y retaguardia de cada batallón acampado, sólo permitirán a los Generales de la fuerza y a los jefes de día, pasar a caballo por las calles que forman las compañías, y no dejarán que, entre paisano alguno, ni aun individuos de tropa de otros cuerpos, sin licencia del capitán de la guardia de prevención.
@@ -2393,7 +2395,7 @@ Los turnos 1°, 3°, 4°, 5°, 6° y 7° tienen lugar en tiempo de paz como el d
 Art 456° El Mayor de plaza debe cuidar que las tropas hagan el servicio altamente para su mayor descanso, para lo cual graduarán, según la calidad de cada puesto, la tropa y clases de oficiales que hayan de cubrirlos, arreglándose a lo que para el servicio de guarnición está prevenido, y regulado cuatro hombres para cada centinela precisa.
 Art 457° Los sargentos mayores darán cada mes al de la plaza un estado de la gente efectiva que tenga para poner sobre las armas, rebajando la guardia de prevención, de imaginaria, los cuarteleros, rancheros y presos. Estos darán cuenta al Comandante de la plaza, a fin de que sepa siempre la tropa de que puede usar en los accidentes que ocurrieren, sin dasatender ni perturbar los destinos y servicios fijos a indispensables de cada cuartel.
 Art 458° Cada oficial de los que estuvieren de guarnición en una plaza, hará el servicio para que se le nombre en el turno y clase que por la escala de su cuerpo le corresponde. Los que entran de servicio conducirán la tropa a la parada en la forma prevenida en el servicio de guarnición y luego que se presente a la parada el Mayor de plaza, el ayudante de servicio le entregará una relación que exprese los nombres y destinos de los oficiales, sargentos y cabos que en aquel día mandan puestos, cuya distribución toca al cuerpo hacerla, según el orden y fuerza de las guardias, teniendo cuidado de variar en los sucesivos servicios los que sean de igual grado, para conocerlos todos. La relación que le ayudante da a Mayor de plaza servirá para que se anoten en el libro respectivo de ella, por registro, los oficiales y tropa que se emplean y puestos que guarnecen.
-Art 459° Después de abiertas las filas, el Mayor de plaza visitará la parada, revistará la parada, y recibiará la relación de que habla el artículo anterior, hecha la inspección y unidas ya la fila al orden de batalla, despedirá las guardias con esta voz “guardias a sus respectivos destinos, marchen” tocarán marcha los tambores, la emprenderá a su frente toda la parada, y habiendo dado los pasos que convengan, cada comandante de guardia conducirá a su tropa las guardias hayan salido de la plaza, continuarán tocando marcha los tambores, esperando la seña que el Mayor les haga para retirarse a sus cuarteles.
+Art 459° Después de abiertas las filas, el Mayor de plaza visitará la parada, revistará la parada, y recibiará la relación de que habla el artículo anterior, hecha la inspección y unidas ya la fila al orden de batalla, despedirá las guardias con esta voz "guardias a sus respectivos destinos, marchen" tocarán marcha los tambores, la emprenderá a su frente toda la parada, y habiendo dado los pasos que convengan, cada comandante de guardia conducirá a su tropa las guardias hayan salido de la plaza, continuarán tocando marcha los tambores, esperando la seña que el Mayor les haga para retirarse a sus cuarteles.
 Art 460° Despedidas las guardias se sortearán en presencia del Mayor de la plaza los oficiales y sargentos nombrados para el servicio de ronda, con expresión de las horas que la suerte les hubiere destinado. Y de todos los oficiales y tropas que en este servicio y el de guardia estén empleados, darán una relación por escrito al Comandante de la plaza.
 Art 461° Para poder atender con exactitud el detalle de la guarnición y cuyo deber pertenece al Mayor de plaza arreglarán su oficina y labores de ella en la forma siguiente:
 A- Llevará un libro en folio para anotar la copia de las partes dadas por los oficiales de las guardias de plaza, prevención, retenes y destacamentos y guardias extraordinarias.
@@ -2403,8 +2405,8 @@ D- Uno ídem medio folio para llevar la cuenta del utensilio expresándose los c
 Art 462° Aunque el Mayor de plaza no tiene ningún mando directo, si tendrá la facultad de arrestar en cualquier cuartel o guardia principal a un oficial de menos grado que él, por falta que cometa en el servicio. En este concepto, nunca dejará de vigilar y le es permitido, por si cualquiera falta o irregularidad que se cometiere en asuntos militares de la guardia de prevención de los batallones o de los regimientos en la plaza, dando cuenta de todos sus actos y providencias al Comandante de provincia, para la aprobación correspondiente.
 CAPITULO III
 Junta de Capitanes
-Art 463° En cada cuerpo de la fuerza permanente habrá una junta llamada “Junta de Capitanes” que será presidida por el Comandante y a la que pertenecerán el Sargento Mayor, el Ayudante Mayor y todos los Capitanes comandantes de compañías. En los regimientos, la junta será presidida por el Comandante de la compañía. En los regimientos, la junta será presidida por el Comandante, y pertenecerán de escuadrón.
-En las compañías sueltas, la junta se denominará “de oficiales” se compondrá de todos los de la compañía y será presidida por el Capitán o comandante de la compañía.
+Art 463° En cada cuerpo de la fuerza permanente habrá una junta llamada "Junta de Capitanes" que será presidida por el Comandante y a la que pertenecerán el Sargento Mayor, el Ayudante Mayor y todos los Capitanes comandantes de compañías. En los regimientos, la junta será presidida por el Comandante de la compañía. En los regimientos, la junta será presidida por el Comandante, y pertenecerán de escuadrón.
+En las compañías sueltas, la junta se denominará "de oficiales" se compondrá de todos los de la compañía y será presidida por el Capitán o comandante de la compañía.
 Art 464° El principal objeto de la junta de Capitanes u oficiales es ilustrar a los comandantes respectivos en todos los negocios administrativos y económicos de los cuerpos o compañías sueltas en que tengan a bien consultarlas, y proponerles las medidas que juzgue convenientes para mejorar la instrucción, disciplina y bienestar de la tropa.
 Art 465° Corresponde privativamente a la Junta de Capitanes hacer el nombramiento de habilitado, inspeccionar sus cuentas y su conducta y removerlo y mandarlo someter a juicio por mal manejo de los fondos o por faltas graves en el cumplimiento de sus deberes.
 Art 466° En caso de malversación o mal manejo de los fondos públicos por parte del habilitado o del clavero de la caja de un cuerpo, si no alcanzare a cubrir con sus bienes el alcance que sea a su cargo, lo pagarán a prorrata los miembros de la junta de Capitanes o de oficiales que lo hubiere elegido.
@@ -2561,7 +2563,7 @@ Reconocimiento de empleados
 Art 557° Todo empleado con mando, que se destine a la fuerza activa, se llame al servicio de las armas o sea asendido, se dará a reconocer a la fuerza que haya de mandar.
 El reconocimiento se hará practicar de dos modos, por escrito de presente o por uno de los dos sino pudiere efectuarse de ambos.
 Art 558° El reconocimiento por escrito es el que se previene en la orden general del campamento o en la orden del cuerpo a que destina el empleado, expresamente la clase del empleado y el destino que se le da, como también la autoridad que lo ha destinado.
-Art 559° El reconocimiento de presente es el que se ordena por el oficial o clase respectiva, teniendo formada la tropa y estando presente el empleado que se da a reconocer, con esta fórmula la tropa y estando presente el empleado que se da a reconocer, con esta fórmula de orden de…. (tal autoridad) se reconocerá como……… (tal empleado) de…… (esta columna, cuerpo, o compañía) al Señor N.N a quien, en tal virtud, se respetará y obedecerá estrictamente en todo lo relativo al servicio.
+Art 559° El reconocimiento de presente es el que se ordena por el oficial o clase respectiva, teniendo formada la tropa y estando presente el empleado que se da a reconocer, con esta fórmula la tropa y estando presente el empleado que se da a reconocer, con esta fórmula de orden de.. (tal autoridad) se reconocerá como... (tal empleado) de.. (esta columna, cuerpo, o compañía) al Señor N.N a quien, en tal virtud, se respetará y obedecerá estrictamente en todo lo relativo al servicio.
 El oficial reconocido dará en seguida algunas voces de mando en señal de su autoridad.
 Art 560° A todo empleado lo dará siempre a reconocer otro de carácter superior o igual, pero en caso de que nos los haya en la fuerza o sección respectiva de tales clases, puede darlo a reconocer el inferior que estuviere mandando.
 CAPITULO XIII
@@ -2570,8 +2572,8 @@ Art 561° A todo cuerpo, medio cuerpo o compañía suelta, se le suministrará b
 Art 562° Las banderas y estandartes se recibirá, en los cuerpos con toda la solemnidad posible, y siempre que la mayoría de los individuos de un cuerpo fuere católica, se bendecirá conforme al rito católico.
 Art 563° El Estado Mayor, o si no lo hubiere, el comandante en los cuerpos con toda la solemnidad posible, y siempre que la mayoría de los individuos de un cuerpo fuere católica, se bendecirán conforme al rito católico.
 Art 564° Todo individuo a quien se de de alta en la fuerza permanente, prestará el juramento de fidelidad a la bandera nacional, en manos de Sargento Mayor del cuerpo, o del comandante de la compañía si fuere suelta.
-Art 565° El juramento de bandera lo hará cada individuo según su religión, y para esto, el funcionario preguntará: ¿Jurais a Dios y prometeis a la patria defender esta bandera hasta perder vuestra vida, y no abandonar a vuestro jefe, y superiores en acción de guerra, ni en ninguna otra ocasión.”
-Cuando los que hayan respondido “si juro” fueren católicos, contestará el Capellan, y si no lo fueren o no hubiere, Capellán o sacerdote contestará el mismo funcionario diciendo en ambos casos: “Ruego a Dios que os ayude y premie, si cumplis con vuestro juramento, y que si no lo cumplis os los demande.
+Art 565° El juramento de bandera lo hará cada individuo según su religión, y para esto, el funcionario preguntará: ¿Jurais a Dios y prometeis a la patria defender esta bandera hasta perder vuestra vida, y no abandonar a vuestro jefe, y superiores en acción de guerra, ni en ninguna otra ocasión."
+Cuando los que hayan respondido "si juro" fueren católicos, contestará el Capellan, y si no lo fueren o no hubiere, Capellán o sacerdote contestará el mismo funcionario diciendo en ambos casos: "Ruego a Dios que os ayude y premie, si cumplis con vuestro juramento, y que si no lo cumplis os los demande.
 En seguido, pasarán por debajo de la bandera todos los que hayan prestado el juramento, saludándola marcialmente con el arma.
 CAPITULO XIV
 Revista de comisario
@@ -2990,7 +2992,7 @@ CAPITULO VII
 Disposiciones complementarias de este título
 Art 776° Los honore que deberán hacer las tropas de la República en guarnición, cuartel y campaña, se harán con bayoneta puestas o quitada, según estuvieren.
 Art 777° Los honores se harán solamente después de la diana y antes del toque de retrate en campaña y en guarnición, antes de ponerse el sol. Solamente se le harán por la noche, en la guardia de Palacio, el Presidente o Encargado del Poder Ejecutivo a menos que se anuncie oficialmente al entrar o salir de una plaza o ciudad en que haya guarnición.
-Art 778° La guardia del Presidente se presentará en ala, al entara a Palacio el Comandante general o el jefe del cuerpo que hace el servicio, para que examine si éste se hace con regularidad, pero el centinela que anuncie la venida de estos Jefes, lo hará diciendo: “Cabo de Guardia, Comandante General o “ el comandandte del cuerpo”.
+Art 778° La guardia del Presidente se presentará en ala, al entara a Palacio el Comandante general o el jefe del cuerpo que hace el servicio, para que examine si éste se hace con regularidad, pero el centinela que anuncie la venida de estos Jefes, lo hará diciendo: "Cabo de Guardia, Comandante General o " el comandandte del cuerpo".
 Art 779° Los comandantes de guardia saludarán siempre al Jefe a quien hacen los honores.
 Art 780° Las guardias de prevención, cuando estén en sus cuarteles, tomarán las armas para hacer los honores señalados el Presidente de la República o al Encargado del Poder Ejecutivo y trpa que pase con bandera o estandarte, pero para cualquiera otra persona que tenga honore de los expresados en los artículos anteriores, o tropa armada o desarmada que no lleve dichas insignias, formaran por precaución en ala, descansando sobre las armas, y sin salir fuera de la puerta del cuartel, y el oficial o comandante en su puesto. Lo mismo, pero sin armas, deberán en su puesto. Lo mismo, pero sin armas deberán hacer para el Comandante del cuerpo y Jefe de Estado Mayor que no sea General.
 Art 781° El Presidente de la República tendrá uno o dos oficiales de órdenes del Estado Mayor o de otro del ejercito, que le acompañará cuando lo tenga por conveniente, y por medio del cual podrá hacer indicaciones a lso Secretarios de Estado, mandar citar el Consejo de Gobierno, y hacer los cumplimientos que exige la urbanidad de parte del Jefe la Nacioón a individuos del Cuerpo, diplomático u otros empleados generales.
@@ -3109,7 +3111,7 @@ Por tanto, los comisiarios, además de sus deberes legales como ordenadores, cum
 Art 845° Para que los comisarios ordenadores puedan ordenar la entrega de efectos de guerra y los gastos extraordinarios que les exijan los comandantes de sus respectivos divisiones, brigadas o columnas es preciso que tengan delegación o facultad expresa del Intendente, quien podrá, a prevención, poner un almacén y un pequeño parque a disposición de cada comisario ordenador, según las circunstancias.
 Art 846° Cada comisario ordenador ordenador para revista de comisario ordenador, pasa revista de comisario y autoriza las listas de su respectivo división, brigada o columna.
 Los otros deberes de los comisarios ordenadores, son lo que prescriban las leyes fiscales y los reglamentos del Poder Ejecutivo.
-Art 847 Cuando en campaña no haya sino una división brigada o columna a su comisario ordenador toca desempeñar todas las funciones atribuidas al Intendente general y los comisarios de las brigadas o columnas estarán subordinadas al de la división que en tal caso se denominará “comisario superior”
+Art 847 Cuando en campaña no haya sino una división brigada o columna a su comisario ordenador toca desempeñar todas las funciones atribuidas al Intendente general y los comisarios de las brigadas o columnas estarán subordinadas al de la división que en tal caso se denominará "comisario superior"
 Art 848° Lass funciones de los comisarios pagadores se reducen al cumplimiento de los deberes que como a responsables del Erario les imponen las leyes fiscales y las disposiciones ejecutivas y a cumplir las órdenes y providenciass del Intendente general y de los visitadores de sus oficinas.
 Art 849° El habilitado del cuerpo, que podrá serlo un oficial del graado de Teniente o Capitán, es el encargado del ajuste general del cuerpo ante la comisaria u oficina de Hacienda correspondiente, y su cuenta con la comisaria u oficina fiscal, comprenderá tres capítulos 1° Armas y equipo 2° Sueldos 3| Vestuarios. El primero se liquidará periódicamente devolviendo la cantidad no invertida, y cubriendo la invertida con los recibos de los Captianes de compañías, el segundo se rige por la revista de comisario y el segundo se rige por la revista de comisario, y el tercero se lleva con las especies o fondos aplicados al objeto, conforme a las instrucciones de la comisaria respectiva.
 El habilitado debe ser competente en materia de contabilidad y no desempeñara su empleo sin dar suficiente fianza.
@@ -3393,12 +3395,12 @@ Art 1009° El Presidente propondrá al Consejo, con tal fin, las cuestiones sigu
 4° ¿Hay circunstancias atenuantes?
 Art 1011° Si el Consejo resuelve negativamente la primera o la segunda cuestión no habrá necesidad de resolver las otras. Las circunstancias agravantes o atenuantes se expresarán en la resolución y servirán para graduar la pena, según el Código Penal de la República. Declarando por el Consejo que el procesado menor de diez y seis años no tuvo dicernimiento en la comisión del delito, queda absuelto.
 Art 1012° Cuando el reo es hallado culpable o responsable del delito, el Consejo deberá aplicar la pena correspondiente, para lo cual, así como para los demás puntos de Derecho, consultará al Auditor, que estará presente en la sesión secreta, siéndole prohibido dar parecer algun osobre los hechos de que resulte la culpabilidad o la inocencia.
-Art 1013° Terminada la conferencia o deliberación del Consejo, el presidente someterá a votación cada una de las cuestiones propuestas, según el caso, y cada vocal, comenzando por el menos antiguo, dará su voto escribiéndolo y firmándolo en un pliego separado en que estén escritas las cuestiones para cada reo. El voto expresará solamente “afirmativo” o “negativo” a la respectiva cuestión. El presidente votará en último lugar.
+Art 1013° Terminada la conferencia o deliberación del Consejo, el presidente someterá a votación cada una de las cuestiones propuestas, según el caso, y cada vocal, comenzando por el menos antiguo, dará su voto escribiéndolo y firmándolo en un pliego separado en que estén escritas las cuestiones para cada reo. El voto expresará solamente "afirmativo" o "negativo" a la respectiva cuestión. El presidente votará en último lugar.
 Art 1014° Luego que el presidente hallare tres votos afirmativos o tres negativos, sobre los cinco del Consejo, o que están unámimes, los votos en un sentido o en otro, hará redactar la sentencia por el vocal que designe ayuidado del Auditor, o la redactaraá éste por comisión del presidente o del Consejo. No habrá sentencia, y por tanto no podrá levantarse la sesión del Consejo mientras la mayoría de los vocales no esté de acuerdo en una sola opinón.
-Art 1015° La sentencia contendrá una parte expositiva, en la que se refieran circunstanciadamente los hechos por los cuales se ha procedido y las pruebas contra el reo, otra parte motiva con los considerados en que se funda la culpabilidad o inocencia de éste y las disposiciones penales aplicables, y otra resolutiva en que, empleado la fórmula de “administrando justicia en nombre de la Repuiblica de Costa Rica y por autoridad de la ley” se condene o se absuelva al procesado, señalando claramente el delito cometido o el artículo del código vioalado y la pena que le corresponde, así como el lugar donde deberá sufrir la condena.
+Art 1015° La sentencia contendrá una parte expositiva, en la que se refieran circunstanciadamente los hechos por los cuales se ha procedido y las pruebas contra el reo, otra parte motiva con los considerados en que se funda la culpabilidad o inocencia de éste y las disposiciones penales aplicables, y otra resolutiva en que, empleado la fórmula de "administrando justicia en nombre de la Repuiblica de Costa Rica y por autoridad de la ley" se condene o se absuelva al procesado, señalando claramente el delito cometido o el artículo del código vioalado y la pena que le corresponde, así como el lugar donde deberá sufrir la condena.
 Art 1016° Una vez acordada y redactada la sentencia, la firmarán con firma entera todos los vovales, aun los que hayan votado en contra o estén, en minoría, comenzando por el presidente, con expresión de su empleo militar, y siguiendo los demás del mismo modo por el orden de antigüedad de mayor o menor empleo, firmando también el Auditor con este carácter y el del empleo militar que tenga los vocales que no hayan votado de acuerdo con la sentencia podrán salvar sus votos.
 Art 1017° Firmada la sentencia del modo prescrito en el artículo anterior, volverá el Consejo a constituirse en sesión pública. El presidente tocará la campanilla para que todos los ocupen sus puestos, y una vez en ellos, entregará el secretario el pliego de votación, para publicarlo de la manera siguiente.
-Art 1018° El secretario leerá las cuestiones propuestas por el presidente, hecho lo cual, este funcionario invitará al vocal menos antiguo a que diga en alta voz cual es su voto, el cual lo dará poneidose de pie y descubriéndose, con estas palabras: “ “ Por mi palabra de honor y conforme a mi conciencia, ni voto sobre la cuestión 1° (2° o la que fuere) es afirmativo (o negativo) y volverá a ocupar s su asiento, continuamente el que sigue.
+Art 1018° El secretario leerá las cuestiones propuestas por el presidente, hecho lo cual, este funcionario invitará al vocal menos antiguo a que diga en alta voz cual es su voto, el cual lo dará poneidose de pie y descubriéndose, con estas palabras: " " Por mi palabra de honor y conforme a mi conciencia, ni voto sobre la cuestión 1° (2° o la que fuere) es afirmativo (o negativo) y volverá a ocupar s su asiento, continuamente el que sigue.
 Art 1019° Concluida la votación, el presidente, ponendose de pie y descubriéndose, leerá la sentencia, que habrá firmado de antemano el secretario Dicada la sentencia, se pasará al Comandante General y por su Conducto se remitirá a la Corte Suprema.
 Art 1020° Pero si el acto de la notificación de la sentencia, que se hará inmediatamente después de levantada la sesión, el reo y su defensor y al fiscal, alguno de ellos interpusiere el recurso de apelación o de nulidad para ante la Corte Suprema, el presidente del Consejo suspenderá la remisión dispuesta en el artículo anterior, y dará cuenta al General en Jefe, Comandante General o jefe de operaciones de lo resuelto para que éste lo conceda si se usó de ese derecho al acto de la notificación, o por escrito separada dentro de las veinticuatro horas siguientes, de otro modo lo negará. En este caso, o en el de no interponerse recurso alguno, remitirá el proceso a la Corte Suprema en consulta de la sentencia.
 Art 1021° Durante la sesión del Consejo de Guerra, el secretario llevará una minuta de todo lo que ocurriere en ella, y después de publicada la sentencia, leerá el acta de la sesión, que habrá redactado con arreglo a la minuta.
@@ -3714,79 +3716,79 @@ Organización de la fuerza pública
 Composición, carácter, objeto y clasificación del ejercito nacional.
 Páginas
 Capitulo | I | Composición | 1
-“ | II | Caracter y objeto del ejercito | 4
-“ | III | División de la fuerza pública | 5
+" | II | Caracter y objeto del ejercito | 4
+" | III | División de la fuerza pública | 5
 TÍTULO II
 Organización general
 Capitulo | I | Empleos, destinados y clases de mando | 6
-“ | II | Sucesión de mando | 10
-“ | III | Sueldos y haberes miltares | 11
-“ | IV | Uniformes, divisas y tratamientos | 12
-“ | V | Nombramiento de oficiales y clases | 13
-“ | VI | Vacantes ascensos y letras | 14
+" | II | Sucesión de mando | 10
+" | III | Sueldos y haberes miltares | 11
+" | IV | Uniformes, divisas y tratamientos | 12
+" | V | Nombramiento de oficiales y clases | 13
+" | VI | Vacantes ascensos y letras | 14
 TÍTULO III
 Organización especial por armas y cuerpos
 Capitulo | I | Clasificación de las armas | 16
-“ | II | Cuerpos | 18
-“ | III | Medios, cuerpos y compañías sueltas | 20
-“ | IV | Columnas y brigadas | 20
-“ | V | Divisiones, ejercitos | 21
-“ | VI | Estado Mayores | 23
-“ | VII | Cuerpo de ingenieros | 25
+" | II | Cuerpos | 18
+" | III | Medios, cuerpos y compañías sueltas | 20
+" | IV | Columnas y brigadas | 20
+" | V | Divisiones, ejercitos | 21
+" | VI | Estado Mayores | 23
+" | VII | Cuerpo de ingenieros | 25
 | VIII | Armamento | 27
 Sección Segunda
 Fuerza Activa
 Capítulo único: Disposiciones sobre la fuerza permanente
 Capitulo | I | Individuos de tropa en general | 29
-“ | II | Soldado Centinela | 34
-“ | III | Cabo | 37
-“ | IV | Soldados y cabos de cabellería I. Soldado II. Cabo | 43
-“ | V | Sargentos | 50
-“ | VI | Sargentos de caballeria | 51
-“ | VII | Ordenes generals, o deberes communes a todos los oficiales de la fuerza activa | 54
-“ | VIII | Oficiales subalternos | 56
-“ | IX | Subalternos de caballeria | 60
-“ | X | Capitán | 62
-“ | XI | Capitán de caballeria | 69
-“ | XII | Sargento Mayor | 72
-“ | XIII | Sargento Mayor de caballeria | 73
-“ | XIV | Teniente Coronel | 77
-“ | XV | Coronel | 78
-“ | XVI | General | 82
-“ | XVII | Funciones de los subalternos y sargentos de las planas mayores | 82
-“ | XIV | Teniente Coronel | 82
+" | II | Soldado Centinela | 34
+" | III | Cabo | 37
+" | IV | Soldados y cabos de cabellería I. Soldado II. Cabo | 43
+" | V | Sargentos | 50
+" | VI | Sargentos de caballeria | 51
+" | VII | Ordenes generals, o deberes communes a todos los oficiales de la fuerza activa | 54
+" | VIII | Oficiales subalternos | 56
+" | IX | Subalternos de caballeria | 60
+" | X | Capitán | 62
+" | XI | Capitán de caballeria | 69
+" | XII | Sargento Mayor | 72
+" | XIII | Sargento Mayor de caballeria | 73
+" | XIV | Teniente Coronel | 77
+" | XV | Coronel | 78
+" | XVI | General | 82
+" | XVII | Funciones de los subalternos y sargentos de las planas mayores | 82
+" | XIV | Teniente Coronel | 82
 | XV | Coronel | 85
 | XVI | General | 86
 | XVII | Funciones de los subalternos y sargentos de las planas mayores | 87
 TÍTULO III
 Servicio Militar
 Capitulo | I | Estado Mayor I- Estado mayor en general II- Funciones del Estado mayor general III- Estado Mayores divisorios, de brigadas y de columna IV- Funciones de los Jefes de Estado Mayor en las marchas y combates | 91 91 92 95 96
-“ | II | Servicio de plaza I-Comandantes militares. II.- Mayores de plaza | 97 97 103
-“ | III | Junta de Capitanes | 107
-“ | IV | Formaciones | 108
-“ | V | Santo | 109
-“ | VI | Guardias | 112
-“ | VII | Rondas | 117
-“ | VIII | Patrullas | 120
-“ | IX | Destacamentos | 121
-“ | X | Marchas | 122
-“ | XI | Convoves | 128
-“ | XII | Reconocimiento de empleados | 131
-“ | XIII | Bendicón y juramento de las banderas y estadares | 132
-“ | XIV | Revista de Comisario | 133
-“ | XV | Posesión, excusas, renuncias y licencias de lso empleados y modos de llenar las vacantes | 135
+" | II | Servicio de plaza I-Comandantes militares. II.- Mayores de plaza | 97 97 103
+" | III | Junta de Capitanes | 107
+" | IV | Formaciones | 108
+" | V | Santo | 109
+" | VI | Guardias | 112
+" | VII | Rondas | 117
+" | VIII | Patrullas | 120
+" | IX | Destacamentos | 121
+" | X | Marchas | 122
+" | XI | Convoves | 128
+" | XII | Reconocimiento de empleados | 131
+" | XIII | Bendicón y juramento de las banderas y estadares | 132
+" | XIV | Revista de Comisario | 133
+" | XV | Posesión, excusas, renuncias y licencias de lso empleados y modos de llenar las vacantes | 135
 TITULO IV
 Autoridad de los Generales en Jefe y divisionarios e Inspector y Sub inspectores generales
 Capitulo | I | De los en Jefe | 136
-“ | II | De los Comandantes en Jefe de division y Comandantes generales | 139
-“ | III | Inspectort y Sub inspector generales | 140
+" | II | De los Comandantes en Jefe de division y Comandantes generales | 139
+" | III | Inspectort y Sub inspector generales | 140
 TITULO V
 Instrucción del Ejercito
 Capitulo | I | Disposiciones generales | 142
-“ | II | Instrucción civil | 143
-“ | III | Instrucción militar | 144
-“ | IV | Biblioteca | 146
-“ | V | Academia de música | 147
+" | II | Instrucción civil | 143
+" | III | Instrucción militar | 144
+" | IV | Biblioteca | 146
+" | V | Academia de música | 147
 PARTE SEGUNDA
 Reglas del Derecho de Gentes, aplicables al estado de guerra
 Titulo I
@@ -3796,12 +3798,12 @@ Título II
 Ley marcial y jurisdicción militar
 Hostilidades
 Capitulo | I | Principios generales | 152
-“ | II | Reglas de conducta respect a las personas | 153
-“ | III | Reglas de conducta respect a las cosas, propiedad pública | 157
-“ | IV | Ocupación military del territorio | 159
-“ | V | De la condición de los prisioneros de Guerra y de los rehenes | 164
-“ | VI | Internado en el país neutral | 167
-“ | VII | Guerra civil | 169
+" | II | Reglas de conducta respect a las personas | 153
+" | III | Reglas de conducta respect a las cosas, propiedad pública | 157
+" | IV | Ocupación military del territorio | 159
+" | V | De la condición de los prisioneros de Guerra y de los rehenes | 164
+" | VI | Internado en el país neutral | 167
+" | VII | Guerra civil | 169
 Título III
 Sanción Penal
 Capitulo | único | Disposiciones concretas | 170
@@ -3809,7 +3811,7 @@ Parte Tercera
 Recompesas y honores
 Premsios y pensiones
 Capitulo | I | Acciones distinguidas | 172
-“ | II | Premios y pensiones | 175
+" | II | Premios y pensiones | 175
 Título II
 Honores militares en el servicio activo
 Capítulo | I | Honores al Sacramento o imágenes del culto católico | 179

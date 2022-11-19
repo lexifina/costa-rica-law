@@ -1,4 +1,7 @@
+(Derogado)
 DECRETO LXIX
+DECRETO LXVI
+(Esta norma fue derogada por el artículo 1°, inciso 985, de la ley N° 10287 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (Sexta parte)")
 Autoriza la fundación de un Banco de Emisión de Crédito
 Vicente Herrera, Presidente Provisorio de la República de Costa Rica.
 Con presencia de la exposición de varias personas capitalistas, de fecha 6 del corriente, en la cual manifiestan su propósito de fundar un Banco de Crédito en la República, con el capital, por ahora de medio millón de pesos, garantizado por los exponentes, con fincas que representan el doble de dicho capital y considerando:

@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO XXII
+(Esta norma fue derogada por el artículo 1°, inciso 726, de la ley N° 10287 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (Sexta parte)")
 Autoriza al Poder Ejecutivo para la adquisición de un buque de vapor
 El Congreso Constitucional de la República de Costa Rica.
 Con la mira de celar el contrabando que, con facilidad puede hacerse por diferentes puntos de la costa en el Pacífico, y para dar mayores facilidades o impulso al comercio, decreta:

@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO XLIV
+(Esta norma fue derogada por el artículo 1°, inciso 385, de la ley N° 10287 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (Sexta parte)")
 Autoriza al Poder Ejecutivo para que nombre una comisión de tres personas inteligentes, que reforma la parte penal de las Ordenanzas del Ejercito.
 El Senado y Cámara de Representantes de Costa Rica, reunidas en Congreso.
 En atención a que la Ordenanza militar española adoptada para el Ejercito de la República se halla en su parte penal en oposición con la Carta fundamental y con otras leyes secundarias, y considerando que el de absoluta necesidad modificarla, adaptado a la peculiar circunstancia del país, decretan.

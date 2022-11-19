@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO LVIII
+(Esta norma fue derogada por el artículo 1°, inciso 398, de la ley N° 10287 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (Sexta parte)")
 Declara no ser atribución del Congreso
 dar explicaciones en un asunto de tierras baldías
 N° 2

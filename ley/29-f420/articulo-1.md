@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO XXIX
+(Esta norma fue derogada por el artículo 1°, inciso 371, de la ley N° 10287 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (Sexta parte)")
 Aprueba el presupuesto de tres mil pesos para los gastos del establecimiento de la casa nacional de reclusión y cárcel provisional de mujeres.
 El Senado y Cámara de Representantes Costa Rica, reunidos en Congreso.
 Visto el presupuesto presentado por el Supremo Poder Ejecutivo con fecha 26 de octubre del corriente año de acuerdo con el artículo 3° del decreto n° 13 de 30 de julio del mismo, decretan:

@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO LV
+(Esta norma fue derogada por el artículo 1°, inciso 395, de la ley N° 10287 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (Sexta parte)")
 Designa las personas que deben ejercer el Poder Ejecutivo,
 en las faltas del Presidente.
 N°4

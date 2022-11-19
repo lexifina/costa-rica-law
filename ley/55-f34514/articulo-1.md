@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO LV
+(Esta norma fue derogada por el artículo 1°, inciso 863, de la ley N° 10287 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (Sexta parte)")
 Sobre elección de miembros del Cuerpo Municipal Alcalde e individuos que componen el Jurado.
 Tomas Guardia General de División y Presidente de la República de Costa Rica.
 Acercándose el tiempo en que deben practicarse las elecciones municipales, en uso de las facultades extraordinarias de que estoy investido,

@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO L
+(Esta norma fue derogada por el artículo 1°, inciso 860, de la ley N° 10287 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (Sexta parte)")
 Sobre el procedimiento verbal en las informaciones a favor de los poseedores que no tengan título escrito.
 La Comisión Permanente.
 Con presencia de la consulta dirigida al Supremo Poder Ejecutivo por el Señor Registrador General de Hipotecas y pasada a este alto Cuerpo para su resolución, en uso de la atribución 4° artículo 94 de la Constitución.

@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO IX
+(Esta norma fue derogada por el artículo 1°, inciso 873, de la ley N° 10287 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (Sexta parte)")
 Concede licencia al Presidente de la República para separarse temporalmente del mando Supremo.
 El Congreso Constitucional de la República de Costa Rica.
 Con presencia de la solicitud que ha hecho S.E el Señor General Presidente de la República, para separarse temporalmente del ejercicio del P.E. por hallarse su salud notablemente quebrantado, decreta:

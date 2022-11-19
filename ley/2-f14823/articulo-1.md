@@ -1,4 +1,6 @@
-N° 1
+(Derogado)
+N° 2
+(Esta norma fue derogada por el artículo 1°, inciso 206, de la ley N° 10287 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (Sexta parte)")
 REPUBLICA DE COSTA RICA
 MINISTERIO DE GOBERNACIÓN
 S.E el Presidente de la República se ha servido expedir el decreto que sigue.

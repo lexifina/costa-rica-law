@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO XIX.
+(Esta norma fue derogada por el artículo 1°, inciso 510, de la ley N° 10287 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (Sexta parte)")
 Determina quienes son vagos y los castigos correccionales que debe aplicárseles: establece penas para las personas que fueren tomadas en estado de embriaguez: Para el hurto y juego prohibido; para los que se introdujeren sin conocimiento de su dueño en la propiedad ajena: para el que deje de presentarse al concierto ó servicio de hacienda ó cualquier establecimiento; y para el marido que falte a su esposa con los alimentos, y esta sin justa causa abandone la habitación que le esta designada por su esposo.
 EL SENADO Y LA CAMARA DE REPRESENTANTES de la República de Costa Rica, reunidos en Congreso
 DECRETAN:

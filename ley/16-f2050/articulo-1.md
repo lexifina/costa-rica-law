@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO XVI
+(Esta norma fue derogada por el artículo 1°, inciso 829, de la ley N° 10287 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (Sexta parte)")
 Suspende las garantías consignadas en los artículos 38, 40 y 42 de la Constitución y declara a la comprobación, por la ley, de los delitos de sedición o rebelión.
 El Congreso Constitucional de la República de Costa Rica, en presencia de las actuales y notorias circunstancias creadas por los que se han propuesto el trastorno del orden público, a que se refieren las exposiciones del Supremo Poder Ejecutivo de 17 de marzo último y 2 del corriente, Considerando:
 1° Que la conservación del orden público encargada al Poder Ejecutivo por el inciso 2° art 102 de la Constitución es la base de todo bien y de todo progreso.

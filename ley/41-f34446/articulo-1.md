@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO XLI
+(Esta norma fue derogada por el artículo 1°, inciso 640, de la ley N° 10287 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (Sexta parte)")
 La Convención Nacional declara separado de la Presidencia de la República al Jefe del Gobierno Provisorio y la de un voto de gracia y de honor por sus patrióticos servicios en la administración de los Poderes Públicos.
 La Convención Nacional Constituyente de la República de Costa Rica, Considerando:
 1° Que el Licenciado Don Bruno Carranza, Jefe Provisorio de la República, ha resignado en la Convención Nacional Constituyente los Poderes Públicos de que estaba investido, y que esta resignación deja vacante el puesto del Jefe del Gobierno Provisorio.

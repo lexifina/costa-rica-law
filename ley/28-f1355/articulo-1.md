@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO XXVIII
+(Esta norma fue derogada por el artículo 1°, inciso 841, de la ley N° 10287 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (Sexta parte)")
 Hace algunas aclaraciones sobre el delito de hurto.
 El Congreso Constitucional de la República de Costa-Rica.
 Vista la consulta hecha por el Honorable Señor Secretario de Gobernación sobre la verdadera inteligencia de los artículos 1° y 2° del decreto 44 de 17 de Noviembre de 1871, y en uso de la atribución 13°. Art. 74 de la Constitución, decreta:

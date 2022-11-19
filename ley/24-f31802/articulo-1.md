@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO XXIV
+(Esta norma fue derogada por el artículo 1°, inciso 292, de la ley N° 10287 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (Sexta parte)")
 Desarrolla el título 5°, sección 1° de la Constitución que habla de los costarricenses
 El Senado y Cámara de Representantes de Costa Rica, reunidos en Congreso.
 En desarrollo del título 5°sección 1° de la Constitución decretan:

@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO XLXLX
+(Esta norma fue derogada por el artículo 1°, inciso 391, de la ley N° 10287 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (Sexta parte)")
 Manda que, para suplir las faltas accidentales de los individuos de la Dirección de Estudios, se nombren cada año tres Directores suplentes; expresa la manera de proveerles Cátedras y faculta a la Dirección para designar las obras que deben servir de texto en las aulas.
 El Senado y Cámara de Representantes de Costa Rica, reunidos en Congreso.
 Habiendo tomado en consideración la exposición que la Dirección de Estudios dirigió a las Cámaras con fecha 13 de mayo del corriente año, decretan:

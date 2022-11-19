@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO XLII
+(Esta norma fue derogada por el artículo 1°, inciso 268, de la ley N° 10287 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (Sexta parte)")
 Suspende hasta su próxima reunión ordinaria los artículos 32, 33, 34, 36, 38 y 39 de la Constitución.
 El Senado y Cámara de Representantes de Costa Rica, reunidos en Congreso.
 Con presencia de la esposición del Ejecutivo, fecha 5 del corriente, solicitando medidas eficaces para conservar el orden público, y en uso de facultad que les confiere el artículo 69 de la Constitución en su inciso 7°, decretan:

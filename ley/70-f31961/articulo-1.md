@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO LXX.
+(Esta norma fue derogada por el artículo 1°, inciso 107, de la ley N° 10287 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (Sexta parte)")
 Deroga el Art. 262. de la 1¦ parte del Código general y establece otro en su lugar.
 N°9
 "Juan Rafael Mora,- Presidente de la República de Costa-Rica.

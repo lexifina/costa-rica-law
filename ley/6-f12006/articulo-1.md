@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO VI
+(Esta norma fue derogada por el artículo 1°, inciso 674, de la ley N° 10287 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (Sexta parte)")
 Deroga el decreto de 27 de mayo de 1870, dejando vigentes los artículos 126, 127 y 128 de las Ordenanzas Municipales de 24 de julio de 1867.
 Tomas Guardia General de División y Presidente Provisorio de la República de Costa Rica.
 En uso de las facultades de que estoy investido, decreto:

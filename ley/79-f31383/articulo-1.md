@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO LXXIX
+(Esta norma fue derogada por el artículo 1°, inciso 415, de la ley N° 10287 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (Sexta parte)")
 El Poder Legislativo abre sus sesiones extraordinarias
 El Senado y Cámara de Representantes de la República de Costa Rica, reunidos en el Congreso.
 Con presencia del Decreto del Poder Ejecutivo n° 3 de 2 de corriente.

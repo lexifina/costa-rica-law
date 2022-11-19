@@ -1,4 +1,6 @@
+(Derogado)
 Decreto XXXVIII
+(Esta norma fue derogada por el artículo 1°, inciso 592, de la ley N° 10287 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (Sexta parte)")
 Reglamenta los trabajos de la carretera Nacional que conduce al Puerto de Limón.
 Jesús Jiménez Presidente de la República de Costa Rica. - En cumplimiento de los dispuesto en la parte final del artículo 2° del decreto legislativo de 20 de julio de 1868 y para organizar debidamente los trabajos emprendidos en la carretera Nacional que conduce al Puerto del Limón, he venido en decretar el siguiente:
 Reglamento

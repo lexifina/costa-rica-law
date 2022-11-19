@@ -1,4 +1,6 @@
+(Derogado)
 Decreto XLIII
+(Esta norma fue derogada por el artículo 1°, inciso 594, de la ley N° 10287 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (Sexta parte)")
 Nombra a D. Marcelino Pacheco y a D. Ramón Chavarría Conjueces de la 1° Sala del Tribunal de Justicia, en reposición de D. Carlos Sancho y D. Juan González.
-El Senado y la Cámara de Representantes de la República de Costa Rica, reunidos en Congreso. – Habiéndose admitido la renuncia que del cargo de Conjueces de la Sala 1° del Supremo Tribunal de Justicia hicieron los señores Don Carlos Sancho y Don Juan González y de conformidad con el inciso 3° artículo 67 de la Constitución. – Decretan:
+El Senado y la Cámara de Representantes de la República de Costa Rica, reunidos en Congreso. - Habiéndose admitido la renuncia que del cargo de Conjueces de la Sala 1° del Supremo Tribunal de Justicia hicieron los señores Don Carlos Sancho y Don Juan González y de conformidad con el inciso 3° artículo 67 de la Constitución. - Decretan:
 Artículo único: Nombrase Conjueces de la Sala 1° del Supremo Tribunal de Justicia en reposición de los Señores Don Carlos Sancho y Don Juan González, a los señores Don Marcelino Pacheco y Don Ramón Chavarría. Al Poder Ejecutivo. - Dado en el Salón de Sesiones, Palacio Nacional, San José a cinco de agosto de mil ochocientos sesenta y nueve. Palacio Nacional, San José, agosto seis de mil ochocientos sesenta y nueve.

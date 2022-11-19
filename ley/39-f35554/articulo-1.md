@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO XXXIX
+(Esta norma fue derogada por el artículo 1°, inciso 851, de la ley N° 10287 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (Sexta parte)")
 Declara el porte que debe pagarse por cartas certificaciones en las Administraciones de correos
 El Congreso Constitucional de la República de Costa Rica.
 De conformidad con el art 93 de la Constitución y con el decreto n° 16 de 3 de julio del año próximo pasado, decreta:

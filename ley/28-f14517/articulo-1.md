@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO XXVIII
+(Esta norma fue derogada por el artículo 1°, inciso 732, de la ley N° 10287 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (Sexta parte)")
 Declara que el Poder Ejecutivo presidio por el General D. Tomás Guardia, se hallaba autorizado para negociar empréstito
 El Congreso Constitucional de la República por el General D. Tomas Guardia, se hallaba autorizado para negociar empréstito.
 Con vista de la iniciativa dirigida por el Poder Ejecutivo a este alto Cuerpo y en atención a la importancia y conveniencia en que ella se funda, declara y decreta:

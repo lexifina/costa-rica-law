@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO XXVIII
+(Esta norma fue derogada por el artículo 1°, inciso 943, de la ley N° 10287 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (Sexta parte)")
 Subvenciona la obra de la Catedral
 El Congreso Constitucional de la República de Costa Rica.
 Para auxiliar los trabajos de reconstrucción de la Iglesia Catedral de San José, y obsequiando los sentimientos religiosos del pueblo costarricense, decreta:

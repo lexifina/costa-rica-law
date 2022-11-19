@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO XXVIII
+(Esta norma fue derogada por el artículo 1°, inciso 370, de la ley N° 10287 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (Sexta parte)")
 Manda pagar diez mil pesos a Don Luís Molina, en recompensa de sus servicios prestados a la Nación,
 en los reclamos hechos por varios individuos de los Estados Unidos.
 El Senado y Cámara de Representantes de Costa Rica, reunidos en Congreso.

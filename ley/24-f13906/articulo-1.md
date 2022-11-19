@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO XXIV
+(Esta norma fue derogada por el artículo 1°, inciso 782, de la ley N° 10287 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (Sexta parte)")
 Manda que las Asambleas Electorales elijan en cada Provincia los Diputados que deben llenar los asientos vacantes.
 El Congreso Constitucional de la República de Costa Rica, decreta:
 Habiendo procedido al sorteo de los Diputados propietarios y suplentes de deben dejar sus asientos desde el 1° de mayo de 1874; hallándose vacante el asiento del Diputado propietario por la Comarca de Puntarenas Doctor Don Vicente Herrera, por haber sido llamado a desempeñar una de las secretarias de Estado; y estando de antemano admitidas las renuncias de los señores Don Félix Mata, Diputado propietario por la provincia de Cartago, y Licenciado Don Camilo Esquivel, suplente por dicha Comarca de Puntarenas, decreta:

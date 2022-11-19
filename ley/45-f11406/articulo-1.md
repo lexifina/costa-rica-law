@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO XXXXV
+(Esta norma fue derogada por el artículo 1°, inciso 706, de la ley N° 10287 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (Sexta parte)")
 Declaras que las contratas y convenciones celebradas por la Dirección del Ferrocarril de Costa Rica, tienen fuerza de escritura pública.
 Tomas Guardia, General de División y Presidente Provisorio de la República de Costa Rica.
 Considerando:
