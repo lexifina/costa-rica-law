@@ -1,1 +1,0 @@
-Art 3° El Fiscal de Hacienda otorgará la cancelación de las escrituras respectivas sea a consecuencia de haber obtenido los interesados el correspondiente finiquito o de haber por otra causa justa cesado toda la responsabilidad.

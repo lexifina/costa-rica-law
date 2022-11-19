@@ -1,1 +1,0 @@
-Artículo 257. Transcurrido el término prefijado en el artículo anterior, podrá acudir el interesado al juez, solicitando le admita justificación de la demora y procedimiento conforme a lo prevenido en el artículo 247.

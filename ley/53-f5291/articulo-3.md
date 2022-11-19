@@ -1,2 +1,0 @@
-Art 3° Los funcionarios de que hablan los artículos anteriores, prestarán el juramento constitucional, a las cinco de la tarde del día de mañana.
-Al Poder Ejecutivo. -Dado en el Salón de sesiones. -Palacio Nacional. San José, mayo primero de mil ochocientos sesenta y cuatro. -J. Ma Zamora, Vice-Presidente. -Vicente Herrera, Secretario. -M. J. Zamora, Secretario. -Palacio Nacional. San José, mayo 2 de 1864. – Ejecútese.

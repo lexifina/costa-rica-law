@@ -1,1 +1,0 @@
-Artículo 184. La ampliación de la hipoteca de qué trata el artículo anterior, podrá pedir por cualquier persona, o decretase de oficio en cualquier tiempo en que el juez lo estime conveniente; pero guardándose, en todo caso, las formalidades prevenidas en el Código civil.

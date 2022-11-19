@@ -1,1 +1,0 @@
-ARTÍCULO 206. Toda persona que tuviere noticia de cualquier falta, informalidad o fraude cometido en algún registro, podrá denunciarlo al Ministro por escrito. El Ministro adoptar las providencias que juzgue oportunas para averiguar la verdad de los hechos, si creyere pertinente la denuncia.

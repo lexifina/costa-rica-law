@@ -1,1 +1,0 @@
-Art. 29. El Presidente de cada Municipalidad comunicará al respectivo Gobernador de la Provincia, todos los acuerdos que dicho Cuerpo celebre, para que aquel funcionario les mande dar su cumplimiento y puntual ejecución.

@@ -1,1 +1,0 @@
-Artículo 275. El que, por error, malicia o negligencia del Registrador, quede libre de alguna obligación inscrita, ser responsable solidariamente con el mismo Registrador, del pago de las indemnizaciones a que ‚este, sea condenado por su falta.

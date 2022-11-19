@@ -1,1 +1,0 @@
-Artículo 20.-Los alguaciles se destinan al servicio interior y exterior de la casa, bajo las órdenes del Alcaide y Directora: deben vigilar el establecimiento y dar parte a sus superiores de cuanto observen digno de su noticia.

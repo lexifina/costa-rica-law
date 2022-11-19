@@ -1,1 +1,0 @@
-Artículo 244. Cuando el Gobierno suspenda algún Registrador, nombrar al mismo tiempo otro interino que le reemplace, y dispondrá que se le entregue el registro, después de practicar en una visita extraordinaria.

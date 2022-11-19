@@ -1,1 +1,0 @@
-Art 14° Los poderes para representar en juicios verbales hasta la cantidad de doscientos cincuenta pesos bastará que sean simples, escritos en papel común y firmados por el otorgante si supiere y dos testigos.

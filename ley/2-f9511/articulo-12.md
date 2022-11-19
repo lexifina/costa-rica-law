@@ -1,1 +1,0 @@
-Art 12° Las disposiciones del decreto n° 7 de 29 de octubre de 1870 referente a la prueba del cuerpo del delito sin necesidad de la aprehensión real, se hacen extensión a todos los artículos de monopolio fiscal.

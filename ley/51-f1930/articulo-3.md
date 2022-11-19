@@ -1,1 +1,0 @@
-Art. 3. En lo relativo a construcción y reparación de las obras públicas, el Director tiene voto informativo; pero para darlo se pondrá de acuerdo con el Gobernador de la Provincia en donde esté situada o deba ubicarse la obra que se intenta reparar o construir.

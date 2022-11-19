@@ -1,1 +1,0 @@
-Artículo 34°.- Las Secretarias del Congreso, de la Comisión Permanente y de la Corte de Justicia, pasarán cada fin del mes al Ministerio de Hacienda la lista de servicio de todos los empleados y dependientes de sus respectivas oficinas.

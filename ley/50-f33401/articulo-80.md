@@ -1,1 +1,0 @@
-Artículo 80.-Es obligación del Secretario poner el expediente dentro de veinticuatro horas, a m s tardar, en manos del Juez del Crimen, quien, en el caso de que el veredicto sea declarando que se ha infringido la ley, proceder a la imposición de la pena al culpable.

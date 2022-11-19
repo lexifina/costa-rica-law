@@ -1,1 +1,0 @@
-Art 354°.- No siendo el título del acreedor escritura pública, sino contrata privada u otro documento que sin previo reconocimiento de los deudores no tenga fuerza ejecutiva, deberá este proceder al auto de apremio. Si el deudor negare la legitimidad del documento, usará el acreedor de su derecho en el juicio competente.

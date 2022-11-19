@@ -1,1 +1,0 @@
-Art 29°.- En las fiestas religiosas o civiles, reservadas expresamente por las leyes, no se hará acto alguno judicial so pena de nulidad, a no ser que por causa urgente se providencie su hablilitación.

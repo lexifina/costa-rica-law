@@ -1,1 +1,0 @@
-Art 2°.- La facultad que confiere el artículo anterior a los Alcaldes Constitucionales, surtirá sus efectos respecto de cualquier capital que no exceda de quinientos pesos, aunque esté ya inventariado o pertenezco a personas muertas antes de la publicación del presente decreto.

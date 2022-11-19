@@ -1,1 +1,0 @@
-Art 9° Las Municipalidades cantonales los mismo que las provincias, solo podrán comunicarse con el Poder Ejecutivo o con los otros Poderes Supremos de la República por medio de los respectivos Gobernadores.

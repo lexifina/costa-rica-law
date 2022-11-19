@@ -1,1 +1,0 @@
-Art 241°.- Los acreedores cuyas reclamaciones contra el orden de graduación de créditos hubieren sido desechados por la junta, tendrá el término perentorio de ocho días para usar de su derecho en justicia consentida, la resolución de la junta.

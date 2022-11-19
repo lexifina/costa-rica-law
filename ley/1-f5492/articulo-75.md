@@ -1,1 +1,0 @@
-Artículo 75. Siempre que llegue a verificarse la cancelación suspendida, antes de ser cancelada la anotación de suspensión, surtir la cancelación sus efectos desde la fecha de dicha suspensión. La cancelación de este caso, hará precisamente referencia de la anotación mencionada.

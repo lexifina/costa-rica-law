@@ -1,1 +1,0 @@
-Art 6° La prueba privilegiada existente hoy para la comprobación del cuerpo de este delito, por medio de testigos y de los Guardas aprehensores, se entiende a la comprobación de la circunstancia de ser la plantación sembrada, o asistida la naturalmente nacida, que podrá ser por los mismos testigos y Guardas.

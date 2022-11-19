@@ -1,1 +1,0 @@
-Artículo 72. Los dispuesto en el artículo 35 respecto a la calificación por el Registrador, de la legalidad de las escrituras, en cuya virtud se pidan las inscripciones, ser aplicable a la calificación por los mismos de las escrituras en cuya virtud deban hacerse las cancelaciones, conforme a lo establecido en el art. 78 de la ley.

@@ -1,1 +1,0 @@
-Art 3° Se nombran Conjueces para el caso de agotarse el número de los Letrados, los Señores Don Rafael Ramírez, Don Juan Rafael Mata, Don Félix Mata, Don Alejo Jiménez, don José Antonio Chamorro y don Eustaquio Pérez.

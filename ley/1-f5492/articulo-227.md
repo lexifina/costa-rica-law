@@ -1,1 +1,0 @@
-ARTÍCULO 227. Para el nombramiento de los empleados, ser necesariamente oído el Registrador sobre las calidades y requisitos de los que hayan de ser nombrados. Los auxiliares ser n nombrados a propuesta del Registrador.

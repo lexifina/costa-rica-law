@@ -1,1 +1,0 @@
-Art 4° Si el aumento de personas no católicas romanas, a lo extensivo de las capillas o templos edificados, exigiere más terreno para las inhumaciones, podrán los interesados hacer la ampliación que quisieren a su propia costa.

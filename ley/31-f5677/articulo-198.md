@@ -1,1 +1,0 @@
-Artículo 198. En el libro llevado por orden de fechas, se asentar n todas las inscripciones y cancelaciones de hipotecas que deban hacerse, así como las notas marginales que a las mismas hagan referencia. Los asientos se numerar n por el mismo orden.

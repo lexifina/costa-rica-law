@@ -1,1 +1,0 @@
-Artículo 18°.- Todas las actas de comparecencias se insertarán por el orden progresivo con que se vayan celebrando, en un libro que habrá en cada Juzgado de avenencia, y titulado Libro de Comparecencia.

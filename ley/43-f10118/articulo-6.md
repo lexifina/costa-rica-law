@@ -1,1 +1,0 @@
-Art 6° De las multas que los Jueces impongan a los jurados, conforme al artículo 13 de la ley citada en el preámbulo de este decreto, pasarán conocimiento a los Gobernadores respectivos, quienes para hacer las efectivas pueden emplear las vías de apremio si fuere necesario.

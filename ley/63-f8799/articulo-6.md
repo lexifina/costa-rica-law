@@ -1,1 +1,0 @@
-Art 6° La Municipalidad, con presencia de los planos, hará modificar a los poseedores la cantidad y valor de los terrenos que ocupan, señalándose el término de ocho días para que se presten a aceptar la venta y otorgar la escritura de seguridad, si no prefieren pagar al contado.

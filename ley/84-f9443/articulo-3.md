@@ -1,1 +1,0 @@
-Art 3° La elección de los Regidores y Suplentes corresponde a la Asamblea electoral del respectivo cantón, cuando halla Constitucional. La renovación anual se hará sacando la primera vez a la suerte un solo Regidor con su suplente.

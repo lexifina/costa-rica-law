@@ -1,1 +1,0 @@
-Art 2° Esta siembra deberá hacerse precisamente en los terrenos situados al Noreste de esta Ciudad y que se denominan “de Tabacales” debiendo procurarse en cuanto sea posible que la siembra sea contigua.

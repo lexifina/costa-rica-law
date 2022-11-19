@@ -1,1 +1,0 @@
-ARTICULO 36.-Toda causa de Jurado ser despachada por la Corte dentro de veinte días después de introducido el proceso en la oficina y pasado el término del emplazamiento y comparecido las partes, bajo la responsabilidad del Presidente de la Sala.

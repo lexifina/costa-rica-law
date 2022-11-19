@@ -1,1 +1,0 @@
-Artículo 190. Los libros expresados en el artículo anterior, se formar n bajo la dirección del Ministerio de Gobernación, con todas las precauciones convenientes, a fin de impedir cualquiera fraudes o falsedades que pudieran cometerse en ellos.

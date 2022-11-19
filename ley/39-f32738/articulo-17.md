@@ -1,1 +1,0 @@
-Artículo 17.-Corresponde al Presidente de la Junta calificadora, oír y decidir las escusas que presenten los llamados componerla; y no se le admitir sino es por causa grave ‚ impeditiva legalmente comprobada.

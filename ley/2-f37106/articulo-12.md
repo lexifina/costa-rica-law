@@ -1,1 +1,0 @@
-Art 12° También se preparan, en cada población o barrio, luego que el cólera ingrese a la República, una cuadrilla de sepultureros con el correspondiente número de carros y un cementerio especial, convenientemente situado, donde se mantendrá abierto suficiente número de hondas excavaciones.

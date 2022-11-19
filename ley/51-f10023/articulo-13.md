@@ -1,1 +1,0 @@
-Artículo 13°. -Quedan así reformadas las leyes penales y de procedimientos sobre delitos de fábricas clandestinas de licores, y de siembras y ventas clandestinas de tabaco, y derogadas las que las presentes se opongan.

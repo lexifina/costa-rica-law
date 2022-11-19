@@ -1,1 +1,0 @@
-Artículo 2.-Los cómplices, auxiliadores encubridores, en cuyo testimonio descanse la prueba de los delitos de que se trata, quedan exentos de la pena que pudiera corresponderles; y ser n considerados como testigos hábiles en el juicio respectivo.

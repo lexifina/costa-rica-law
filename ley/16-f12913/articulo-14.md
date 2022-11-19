@@ -1,1 +1,0 @@
-ARTÍCULO 14.-Si un dictamen fuese desechado, se pasar la proposición una nueva Comisión especial, y si el de esta corriere igual suerte, decidir la Cámara si el dictamen la proposición misma lo que se desecha, pasándose en el primer caso otra Comisión.
