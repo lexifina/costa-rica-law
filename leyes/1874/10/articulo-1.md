@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO X
+(Esta norma fue derogada por el artículo 1°, inciso 824, de la ley N° 10287 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (Sexta parte)")
 Declara cierta interpretación sobre la ley de jurados
 La Comisión Permanente,
 Con presencia de la exposición del Supremo Poder Ejecutivo, procedente de consulta elevada por el Señor Agente Fiscal de la Provincia de Cartago, y considerando que no puede concebirse que la mente de la ley de 10 de julio del año próximo pasado, que establece el enjuiciamiento por Jurados, fuese privar a las partes del derecho de imponerse de la causa para formular sus alegatos porque esto equivaldría a impedir al acusador fundar su acción y al reo su defensa, declara:

@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO XXVIII
+(Esta norma fue derogada por el artículo 1°, inciso 263, de la ley N° 10287 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (Sexta parte)")
 Declara terminada la franquicia del puerto de Puntarenas
 meses después de la publicación de esta ley.
 El Senado y Cámara de Representantes de Costa Rica, reunidos en Congreso.

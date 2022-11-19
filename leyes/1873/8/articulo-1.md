@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO VIII
+(Esta norma fue derogada por el artículo 1°, inciso 767, de la ley N° 10287 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (Sexta parte)")
 Designa el día y hora en que debe instalarse el Supremo Poder Legislativo.
 Tomas Guardia General Presidente de la República de Costa Rica.
 De conformidad con el inciso 8° artículo 102 de las Constitución, decreto:

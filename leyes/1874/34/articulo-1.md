@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO XXXIV
+(Esta norma fue derogada por el artículo 1°, inciso 846, de la ley N° 10287 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (Sexta parte)")
 Señala una pensión vitalicia al D. Mercedes Bolandi.
 El Congreso Constitucional de la República de Costa Rica
 Con vista del memorial presentado por el señor Don José Mercedes Bolandi, en atención al mérito que ha adquirido durante más de treinta años de buen desempeño como Secretario de la Gobernación de San José, y al mal estado de su salud, decreta:

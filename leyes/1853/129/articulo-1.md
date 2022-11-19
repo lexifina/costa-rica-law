@@ -1,7 +1,9 @@
+(Derogado)
 DECRETO CXXIX
-Manda vender una parte de las tierras del común de “Pacaca y reglamenta el modo de verificar la venta.
-“ Juan Rafael Mora, Presidente de la República de Costa Rica”
-“ En vista de la solicitud del vecindario de Pacaca presentada por la Municipalidad de la villa de Escazú; y teniendo en consideración:
+(Esta norma fue derogada por el artículo 1°, inciso 36, de la ley N° 10287 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (Sexta parte)")
+Manda vender una parte de las tierras del común de "Pacaca y reglamenta el modo de verificar la venta.
+" Juan Rafael Mora, Presidente de la República de Costa Rica"
+" En vista de la solicitud del vecindario de Pacaca presentada por la Municipalidad de la villa de Escazú; y teniendo en consideración:
 Que dicho vecindario de Pacaca carece de recursos para reedificar su Iglesia parroquial, la casa de habitación del Párroco, la de enseñanza pública, la de sesiones Municipales y la que es necesaria para cárceles:
 Que también se carece allí de un fondo suficiente con que sostener la enseñanza primaria de la juventud:
 Que semejante falta puede remediarse reduciendo a dominio particular una porción de tierra de la que posee aquel pueblo con título de Gobierno Nacional:

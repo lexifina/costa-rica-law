@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO II
+(Esta norma fue derogada por el artículo 1°, inciso 567, de la ley N° 10287 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (Sexta parte)")
 Aumenta el sueldo de los Alcaldes de la Aduana de Puntarenas.
 Jesús Jiménez, Presidente Provisorio de la República de Costa Rica, Atendiendo a los informes del Administrador de la Aduana del Sur, sobre el trabajo y responsabilidad de los Alcaldes de la misma
 Decreto:

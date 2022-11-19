@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO VII.
+(Esta norma fue derogada por el artículo 1°, inciso 244, de la ley N° 10287 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (Sexta parte)")
 Ordenanza que Cria recursos para amortizar la deuda interior y pagos de sueldos de empleados.
 "Rafael G. Escalante, Vice-Presidente de la República de Costa Rica, en ejercicio del Supremo Poder Ejecutivo.
 Considerando:

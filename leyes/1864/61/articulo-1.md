@@ -1,5 +1,7 @@
+(Derogado)
 N° LXI
 JESUS JIMENEZ
+(Esta norma fue derogada por el artículo 1°, inciso 400, de la ley N° 10287 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (Sexta parte)")
 PRESIDENTE DE LA REPÚBLICA DE COSTA RICA
 En cumplimiento del deber que me impone el art. 3° de la ley n° 13 de 17 de julio de 1862 y en uso de las facultades que me confiere el final del art.110 de la Constitución.
 DECRETO

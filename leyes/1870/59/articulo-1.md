@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO LIX
+(Esta norma fue derogada por el artículo 1°, inciso 656, de la ley N° 10287 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (Sexta parte)")
 Reforma el Capítulo 9, sección 3° del Reglamento de hacienda, modificando las disposiciones que requieren la aprehensión real para comprobar los delitos del contrabando de licores.
 Tomas Guardia, General de División y Presidente Provisorio de la República de Costa Rica.
 Considerando: Que los contrabandos de licores en el país, se han multiplicado por la impunidad con que los clandestinarios cuentan, confiando en las disposiciones legales, que requieran condiciones difíciles para la comprobación del delito; con la mira de destruir un abuso tan contrario a los intereses fiscales, y hacer más eficaces otras medidas, que en conexión con la presente se han dictado.- para la persecución y descubrimiento de las ventas y destilaciones desautorizados previo dictamen del Consejo de Estado, decreto:

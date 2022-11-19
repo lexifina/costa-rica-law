@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO VIII
+(Esta norma fue derogada por el artículo 1°, inciso 50, de la ley N° 10287 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (Sexta parte)")
 Dispone que las cuestiones mercantiles nacidas de contratos celebrados antes de empezar a regir el Código de comercio, se decidan conforme a las leyes preexistentes, pero según los procedimientos que señala el citado Código.
 “Juan Rafael Mora, Presidente de la República de Costa Rica.- Por cuanto la Honorable Comisión Permanente ha declarado lo que sigue:
 La Honorable Comisión Permanente, con presencia de la consulta que la Corte Suprema de Justicia le dirigió en 30 de enero próximo pasado, refiriéndose a otra que el Juez de 1° Instancia de Comercio de este capital, sobre si las cuestiones, entre comerciantes, emanadas de contratos y obligaciones contraídas antes de la publicación del Código de comercio, deben ser determinadas por los Tribunales comunes y con arreglo a las disposiciones del Código general o preexistentes: habiendo considerado este negocio con el detenimiento que merece, en uso de sus facultades, se ha servido declarar:

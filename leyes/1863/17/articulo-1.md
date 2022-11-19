@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO XVII
+(Esta norma fue derogada por el artículo 1°, inciso 361, de la ley N° 10287 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (Sexta parte)")
 Manda incluir en el presupuesto general de gastos las sumas de mil seiscientos ocho pesos, que a favor de la Santa Iglesia Catedral y del Venerable Cabildo Eclesiástico, concedido el decreto de 30 de setiembre de 1858.
 El Senado y Cámara de Representantes de Costa Rica, reunidos en Congreso.
 Con presencia de la exposición elevada por el Ilustrísimo Señor Obispo para que del Tesoro público se siga suministrando al Venerable Cabildo Eclesiástico la cantidad de mil seiscientos ocho pesos en mensualidad, de ciento treinta y cuatro pesos para subvenir a los gastos del culto, decretan:

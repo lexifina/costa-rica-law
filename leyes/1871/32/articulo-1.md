@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO XXXII
+(Esta norma fue derogada por el artículo 1°, inciso 698, de la ley N° 10287 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (Sexta parte)")
 Suprime el destino de Alcalde en los pueblos del Cot, Quircot y Tobosi y faculta a las municipalidades para que hagan igual supresión llenando los requisitos que indica.
 Tomas Guardia, General de División y Presidente Provisorio de la República de Costa Rica.
 Con presencia de la exposición elevada por el Gobernador de la Provincia de Cartago sobre la conveniencia de suprimir en los pueblos de Cot, Quircot y Tobosi el destino de Alcalde Constitucional, en razón de la inopia de personas que a la honradez reúnan los conocimientos necesarios para desempeñar digna y últimamente aquel cargo, atendida la corte distancia y fácil comunicación de los vecinos con la ciudad capital de la Provincia y.

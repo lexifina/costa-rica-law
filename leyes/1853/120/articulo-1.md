@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO CXX.
+(Esta norma fue derogada por el artículo 1°, inciso 30, de la ley N° 10287 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (Sexta parte)")
 Explica la fracción 21 art. 77 de la Constitución. (1)
 N° 19.
 "Presidente de la República de Costa Rica.-Por cuanto el Excelentísimo Congreso Constitucional ha decretado lo siguiente.

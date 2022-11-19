@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO XXI
+(Esta norma fue derogada por el artículo 1°, inciso 834, de la ley N° 10287 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (Sexta parte)")
 Concede el uso exclusivo a Mc Ray de una comisión de herradura que ofrece abrir en la Provincia de Guanacaste.
 El Congreso Constitucional de la República de Costa Rica.
 Con presencia de la solicitud que ha hecho el Señor Don Santiago Mc Kay, y en atención a la utilidad que reportará el país de llevar a cabo la empresa que dicho Señor se propone, decreta:

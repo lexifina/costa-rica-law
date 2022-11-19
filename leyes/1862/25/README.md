@@ -1,9 +1,10 @@
 # Reglamenta la tramitación de los juicios verbales en la material civil y criminal
 
-Ley N° 25 del 1862-09-23. SINALEVI, ficha 32706: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=32706&param2=34507&param3=1>.
+Ley N° 25 del 1862-09-23. SINALEVI, ficha 32706: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=32706&param2=139623&param3=1>.
 
 Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit, fechada el día en que entró en vigor):
 
 | Versión | En vigor desde | Hecha por | Fecha de la versión |
 | --- | --- | --- | --- |
 | 1 de 2 | 1862-09-23 | Ley 25 | 1862-09-23 |
+| 2 de 2 | 2022-11-19 | Ley 10287 | 2022-09-20 |

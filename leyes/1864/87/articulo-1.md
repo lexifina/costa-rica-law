@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO LXXXVII
+(Esta norma fue derogada por el artículo 1°, inciso 421, de la ley N° 10287 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (Sexta parte)")
 Manda que el día 27 de noviembre del presente año, se proceda simultáneamente en toda la República a levantar el censo de sus habitantes.
 JESUS JIMENEZ
 PRESIDENTES DE LA REPÚBLICA DE COSTA RICA

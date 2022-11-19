@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO XXXIX
+(Esta norma fue derogada por el artículo 1°, inciso 307, de la ley N° 10287 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (Sexta parte)")
 Previene que el beneficio de esperas solo se concede al deudor, cuyos bienes alcancen a satisfacer sus créditos.
 El Senado y Cámara de Representantes de Costa Rica reunidos en Congreso.
 Para resolver las dudas que se han presentado en los Tribunales, y para evitar la mala interpretación y los abusos cometidos con frecuencia en los juicios de esperas, mientras se emite una ley general sobre el concurso de acreedores en virtud del decreto número 16 de 24 de julio próximo pasado, y de conformidad con el capítulo 4° lib 2° del Código, parte 3°, decretan:
