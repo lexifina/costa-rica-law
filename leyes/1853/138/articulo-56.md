@@ -1,1 +1,0 @@
-Art 56°.- Cuando las providencias que dén los Tribunales de comercio sean conformes al dictamen del letrado consultor, será este responsable del error de Derecho que contuviere la providencia y no los Jueces que la hubieren acordado.

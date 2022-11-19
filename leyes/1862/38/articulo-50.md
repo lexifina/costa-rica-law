@@ -1,1 +1,0 @@
-Art. 50. Las leyes y decretos de las Cámaras Legislativas, y los decretos, órdenes y resoluciones del Poder Ejecutivo se comunicarán á todas las autoridades civiles de la respectiva Provincia por conducto del Gobernador.

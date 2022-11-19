@@ -1,1 +1,0 @@
-Art 77.- Después que las partes hayan concluido para sentencia o que por haberse cumplido todos los trámites señalados por la ley para el juicio, se halle este concluso de derecho, no se admitirán nuevas alegaciones ni probanzas de especie alguna, cualquiera que sea la causa que para ello se exponga.

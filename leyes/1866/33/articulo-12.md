@@ -1,1 +1,0 @@
-Art 12° Todos los empleados de la Administración General de Tabaco y Licores son responsables conforme al Reglamento de Hacienda, según el cual afianzará su responsabilidad aquellos a quienes corresponda.

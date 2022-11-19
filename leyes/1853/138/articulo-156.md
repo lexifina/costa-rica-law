@@ -1,1 +1,0 @@
-Art 156.- Resultando de las pruebas algún hecho dudoso podrá el litigante a quien interese probarlo pedir sobre él la confesión judicial de la parte contraria, o deferirle el juramento, entiéndele que solo podrá usarse de esta facultad una sola vez.

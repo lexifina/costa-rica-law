@@ -1,1 +1,0 @@
-Art, 54. Cuidarán así mismo los Gobernadores, de que los miembros del Cuerpo Legislativo que han sido nombrados en las Provincias, concurran a las reuniones ordinarias y extraordinarias de las Cámaras.

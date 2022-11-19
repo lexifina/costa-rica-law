@@ -1,1 +1,0 @@
-Art 3°. - Todo taquillero o expendedor de aguardiente del país deberá pagar en favor de los fondos de enseñanza de la respectiva localidad, un quince por ciento sobre sus honorarios, debiendo los Administradores bajo su responsabilidad hacer la respectiva deducción antes de satisfacerlo.

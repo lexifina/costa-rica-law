@@ -1,1 +1,0 @@
-ARTICULO 23.-Estos juicios se sustanciar n en expediente separado y formado en papel común, observándose en ellos los mismos trámites y disposiciones establecidas por la ley para los juicios criminales escritos, con solo la diferencia de practicarse todo verbalmente.

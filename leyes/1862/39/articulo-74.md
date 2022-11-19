@@ -1,1 +1,0 @@
-Artículo 74.-El Presidente de la Electoral notificar los Rejidores y Alcaldes electos su nombramiento, para que las diez de la mañana del día 1° de Enero, presten ante el mismo Presidente, el juramento constitucional.

@@ -1,1 +1,0 @@
-Art 284°.-Con vista de las pretensiones de las partes, y sin más escritos, recibirán los árbitros el expediente a prueba por el término que estimen arreglado, según las circunstancias del negocio y el plazo del compromiso.

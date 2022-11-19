@@ -1,1 +1,0 @@
-Art 102.- Si apelándose de la sentencia en que se hubiese destinado la recusación por insuficiencia o por falta de prueba, fuere aquella confirmada , se doblara la multa que se le hubiere impuesto en 1° Instancia, y se le condenará además en las costas de la segunda.

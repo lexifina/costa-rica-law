@@ -1,1 +1,0 @@
-Art 379°.- El acreedor es responsable de todas las costas, daños y perjuicios que se ocasionen al deudor por el embargo, siempre que este caducase por las causas prevenidas en el artículo anterior o en el 376 de este mismo título.

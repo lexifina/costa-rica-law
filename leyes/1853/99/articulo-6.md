@@ -1,1 +1,0 @@
-Art 6°.- El comerciante o dueño de carga, es obligado a pagar al arriero los perjuicios que le cause por falta de cumplimiento en su contrato, pues es recíproca la responsabilidad que se establece en este decreto.

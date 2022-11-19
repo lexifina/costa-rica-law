@@ -1,1 +1,0 @@
-Art 92°.- Cuando la demanda comprenda varios puntos que aunque tengan conexión entre si sean objetos distintos, se dividirá la sentencia en capítulos, arreglándose sobre cada uno la decisión que proceda en justicia.

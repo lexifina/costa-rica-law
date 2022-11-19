@@ -1,1 +1,0 @@
-12. Las reuniones ordinarias de las Municipalidades se verificarán en los días 1 y 15 de cada mes, o en los siguientes si aquellos fuesen feriados, y extraordinariamente, cada vez que las convoque el Gobernador respectivo el que las presida.

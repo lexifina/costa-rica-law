@@ -1,1 +1,0 @@
-Art 411°.- Tampoco se podrán presentar testigos ni exigirse confesiones judiciales sobre los mismos capítulos articulados en primera instancia, ni sobre hechos que estén en contradicción con su contenido.

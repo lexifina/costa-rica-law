@@ -1,1 +1,0 @@
-Art 311°.- Las obligaciones mercantiles contraídas en países extrangeros no serán obligatorios en territorio costarricense, sino con arreglo a las disposiciones del Código de comercio, de los tratados existentes, y de esta ley.

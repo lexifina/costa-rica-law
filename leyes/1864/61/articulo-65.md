@@ -1,1 +1,0 @@
-Artículo 65.-Las reas de que habla el artículo 59 que fueren declaradas acreedoras a mejor tratamiento pueden, no siendo a expensas del establecimiento, ni por medios ilícitos, proporcionarse en sus alimentos cualesquiera otras mejoras que las designadas en el artículo 62, cesando de darles los de la casa cuando por la enunciada gracia dejen de necesitarlos.

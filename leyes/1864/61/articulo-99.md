@@ -1,1 +1,0 @@
-Artículo 99.-Cuando convenga contratar el suministro de todos o de alguno de los artículos que se consumen en la casa, el Gobernador convocar postores, con el término de quince días, y señalamiento de la fecha y hora del remate, el que verificar en la persona que ofrezca mayores ventajas, sin perfeccionarse hasta que obtenga la aprobación del Poder Ejecutivo.

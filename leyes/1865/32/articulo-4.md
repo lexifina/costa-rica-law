@@ -1,1 +1,0 @@
-Art 4° El legado forzoso establecido por anteriores disposiciones sobre los mortuales de los costarricenses, se extiende a la de los extranjeros que posean en la República bienes raíces o establecimientos de industria o de comercio, siempre que por tratados no estén expresamente exceptuados de esta especie de contribución.

@@ -1,1 +1,0 @@
-Art 409°.- En cuanto al término de prueba, medios probatorios de que puede usarse, y formalidades con que se han de practicar las probanzas, regirán las mismas disposiciones establecidas para la primera instancia.

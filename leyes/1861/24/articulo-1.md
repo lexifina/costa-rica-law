@@ -1,7 +1,0 @@
-(Derogado)
-DECRETO XXIV
-(Esta norma fue derogada por el artículo 1°, inciso 292, de la ley N° 10287 del 20 de setiembre de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (Sexta parte)")
-Desarrolla el título 5°, sección 1° de la Constitución que habla de los costarricenses
-El Senado y Cámara de Representantes de Costa Rica, reunidos en Congreso.
-En desarrollo del título 5°sección 1° de la Constitución decretan:
-Art 1° Son costarricenses por nacimiento todos los ya nacidos o que nacieren en el territorio de la República. Esceptúandose: 1° los hijos de padres extranjeros legítimos o naturales reconocidos conforme a la ley, aunque sean habidos, con mujer costarricense estos siguen la condición de su padre, mientras hábiles para tomar otra, no lo hubiesen verificado; y los hijos de mujer-extranjera, naturales no reconocidos conforme a derecho.

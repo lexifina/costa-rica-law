@@ -1,1 +1,0 @@
-Art 437°.- Del escritorio que se interponga el recurso se dará traslado a a la parte que hubiere ganado la ejecutoria por el término de tercero día, y con lo que exponga se declarará si ha lugar o no al recurso.

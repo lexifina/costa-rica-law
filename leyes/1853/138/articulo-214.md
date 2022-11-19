@@ -1,1 +1,0 @@
-Art 214°.- En el justiprecio y venta del caudal de a quiebre según su diferente calidad de efectos mercantiles, bienes muebles de otra clase, y bienes raíces, se estará a lo que prescriben los artículos 1024, 1025, 1026,. 1027 y 1028 del Código

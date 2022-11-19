@@ -1,1 +1,0 @@
-Art 184.- Ofreciéndose duda al alguacil sobre la suficiencia del fiador que presente el quebrado, será este conducido a presencia del Juez comisario de la quiebra, que proveerá lo que halle de justicia.
