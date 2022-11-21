@@ -1,1 +1,2 @@
-Artículo 10.—Seguimiento: La AI de acuerdo con los procedimientos establecidos determinará los casos en que dará el seguimiento de las denuncias que remita a las diferentes unidades de la administración Municipal, con el fin de que cumplan la obligación de atenderlas.
+Artículo 10.-Seguimiento: La AI podrá darle seguimiento a los casos que considere necesarios y que haya remitido a las diferentes unidades de la administración municipal, con el fin de que cumplan la obligación de atenderlas. Con ello, quedando la AI exonerada de responsabilidad sobre su atención en tiempo, forma y en la comunicación de los resultados al denunciante.
+(Así reformado mediante sesión N° 064-2022 del 21 de noviembre del 2022)

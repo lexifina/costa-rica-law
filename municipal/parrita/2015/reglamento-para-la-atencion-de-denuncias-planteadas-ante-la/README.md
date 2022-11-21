@@ -14,3 +14,4 @@ Reglamento para la Atención de Denuncias Planteadas ante la Auditoría Interna 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-01-21 | la propia norma |
+| 2 | 2022-11-21 | Reglamento municipal 64 (2022-11-21) |
