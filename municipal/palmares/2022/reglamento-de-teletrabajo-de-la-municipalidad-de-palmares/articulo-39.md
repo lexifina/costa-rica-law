@@ -1,0 +1,1 @@
+Artículo 39.-Deber de cumplimiento. Independientemente del lugar donde se desarrollen las actividades a teletrabajar, la persona trabajadora debe cumplir con todas las condiciones que establezcan los reglamentos y procedimientos aplicables al Programa de Teletrabajo.

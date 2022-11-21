@@ -1,0 +1,1 @@
+Artículo 62.-Requerimientos y características tecnológicas del equipo de cómputo y comunicación. Será responsabilidad de Tecnologías de Información de la municipalidad, establecer anualmente los parámetros de los requerimientos y características mínimas del equipo de cómputo y comunicación (banda de acceso a internet), entre otros.

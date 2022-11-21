@@ -1,0 +1,30 @@
+MUNICIPALIDAD DE PALMARES
+SECRETARÍA DEL CONCEJO MUNICIPAL
+MP-ACM-547-2022
+Señora
+MSc. Katerine Ramírez González
+Alcaldesa Municipal
+PRESENTE
+Estimada señora:
+Para su conocimiento y fines consiguientes me permito transcribir Acuerdo ACM-05-1212022, tomado por el Concejo Municipal de Palmares en Sesión Ordinaria N° 121, Cap. IV, Art. 06, celebrada por el Concejo el día 26 de setiembre del año dos mil veintidós, que dice:
+Dictamen de la Comisión de Asuntos Jurídicos es aprobado por unanimidad, por lo tanto, se acuerda aprobar el Reglamento de Teletrabajo para la Municipalidad de Palmares.
+REGLAMENTO DE TELETRABAJO
+De conformidad con el acuerdo municipal ACM-05-121- 2022 adoptado por el Concejo Municipal de Palmares en la sesión ordinaria N° 121, del tres de octubre del 2022; se dispone: Aprobar el texto del "Reglamento de Teletrabajo de la Municipalidad de Palmares", debido a lo anterior, se procede a publicar este reglamento por única vez en razón de tratarse de un reglamento interno: "La Municipalidad de Palmares, en el uso de las facultades que le confiere la Constitución Política, el Código Municipal, la Ley General de la Administración Pública N° 6227 y sus reformas, la Ley de Riesgos del Trabajo N° 6727, la Ley General de Control Interno N° 8292, el Decreto Ejecutivo N° 9738 sobre Teletrabajo en las Instituciones Públicas.
+Considerando:
+I.-Que con la implementación del Programa de Teletrabajo en las Instituciones del Sector Público, en el marco de las acciones estratégicas de la modernización del Estado, se pretende que la Municipalidad de Palmares logre reducir costos, incrementar la productividad, reducir el consumo de combustibles, favorecer la conciliación de la vida personal, familiar y laboral, promover la inserción laboral, el desarrollo laboral en el territorio, contribuir con la protección del medio ambiente, así como apoyar las políticas públicas en materia de empleo mediante la utilización de Tecnologías de la Información y Comunicación, conforme los planes estratégicos y objetivos institucionales.
+II.-Que los enfoques modernos de gestión humana buscan articular ambientes de trabajo colaborativos, basados en el uso intensivo de las tecnologías de la información y de la comunicación, donde el mejoramiento del desempeño organizacional conlleva el máximo desarrollo de sus trabajadores, mejorando con ello el servicio que brinda la institución con la optimización de su capital humano, tecnología y recursos materiales.
+III.-Que el Programa de Teletrabajo forma parte de dicho enfoque, ya que brinda beneficios tangibles para la corporación municipal, los usuarios y el teletrabajador; entre los cuales se destacan, el mejoramiento de la gestión institucional, la optimización de las tecnologías de la información, la reducción de costos por concepto de espacio físico y servicios públicos, insumos y materiales de oficina, la mejoría de los tiempos de respuesta en el servicio, la satisfacción laboral del teletrabajador y la disminución de costos en tiempo, por no desplazamiento a la sede laboral institucional.
+IV.-Que el Programa de Teletrabajo permite el fortalecimiento de una cultura de mejoramiento continuo amigable con el ambiente, en la medida que contribuye a disminuir el congestionamiento vial, la polución (CO2) y contribuye al ahorro en el consumo de combustibles.
+V.-Que el Programa de Teletrabajo posibilita la igualdad de oportunidades laborales en diversos ámbitos de la sociedad de la mano con la normativa vigente, entre ella la Ley de Inclusión y Protección Laboral de las Personas con Discapacidad N° 8862, que permite a la municipalidad una mejor inclusión laboral de las personas que presentan dicha condición.
+VI.-Que de acuerdo con lo establecido en el Decreto Ejecutivo N° 9738, corresponde a los jerarcas de las instituciones públicas implementar el Programa de Teletrabajo en el contexto de su estrategia de modernización de la gestión institucional.
+VII.-Que de conformidad con la normativa vigente para el diseño de los Programas de Teletrabajo, las instituciones públicas deben contemplar como mínimo:
+a) la conformación de una Comisión Institucional de Teletrabajo,
+b) objetivos del programa de teletrabajo,
+c) definición de las áreas y puestos teletrabajables,
+d) determinación del órgano responsable del programa, así como la elaboración de herramientas y sistemas de control y medición de la productividad, costos, entre otras variables de gestión,
+e) determinación de las aplicaciones y sistemas informáticos que le permitan a las personas teletrabajar haciendo uso de herramientas colaborativas; y
+f) lo referente a la capacitación y formación de los funcionarios de las instituciones que participan.
+CAPÍTULO I
+Disposiciones generales
+Artículo 1º-Objeto. El presente Reglamento tiene por objeto, promover y regular el teletrabajo en la Municipalidad de Palmares, como instrumento para promover la modernización de la institución, la inserción laboral, reducir el gasto institucional, incrementar el rendimiento del funcionario, el ahorro de combustibles, la protección del ambiente, fortalecer la conciliación de la vida personal, familiar y laboral mediante la utilización de las tecnologías de información y comunicación. Así mismo, regular y establecer los lineamientos técnicos y administrativos necesarios para la promoción, implementación, ejecución y el control de la prestación de servicios bajo la modalidad de teletrabajo.
+Este reglamento, pretende regular las relaciones de servicio bajo la modalidad de teletrabajo y de conformidad con las nuevas tecnologías de la Información y Comunicaciones desarrolladas o que lleguen a serlo dentro la Municipalidad de Palmares, para dar continuidad al cumplimiento de los objetivos contemplados en los planes institucionales, de manera que las actividades se realicen de forma eficaz y eficiente. Lo anterior con el fin de aprovechar los cambios y desarrollos tecnológicos, con los cuales se pretende potenciar la productividad y mejorar la calidad de vida de los servidores y las servidoras municipales, en beneficio de la Municipalidad de Palmares.

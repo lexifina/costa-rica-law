@@ -1,0 +1,1 @@
+Artículo 56.-Solicitud de recisión contractual de la adenda. Informar y solicitar a Recursos Humanos la recisión contractual de la adenda al Contrato de prestación de servicios bajo la modalidad de teletrabajo en el caso que no cumpla con las condiciones establecidas.

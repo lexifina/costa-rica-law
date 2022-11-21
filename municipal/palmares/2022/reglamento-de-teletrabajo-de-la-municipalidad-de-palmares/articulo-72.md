@@ -1,0 +1,1 @@
+Artículo 72.-Informes estadísticos. Recursos Humanos será responsables de elaborar los informes estadísticos y de ejecución de la gestión de teletrabajo, actividad que se presentará de forma semestral.

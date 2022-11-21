@@ -1,0 +1,1 @@
+Artículo 20.-Solicitud de ingreso. El funcionario o la jefatura interesada en participar del Programa de Teletrabajo, deberá presentar una solicitud formal ante Recursos Humanos quien la presentará ante la CITT, la cual procederá a su estudio y emitirá la recomendación correspondiente a la Alcaldía.

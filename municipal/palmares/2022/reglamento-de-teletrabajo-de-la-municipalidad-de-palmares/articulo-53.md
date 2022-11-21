@@ -1,0 +1,1 @@
+Artículo 53.-Información de carácter confidencial. La jefatura deberá determinar si la información a la cual tiene acceso el teletrabajador es de carácter confidencial y sensible a los intereses de la institución.

@@ -1,0 +1,1 @@
+Artículo 40.-Costos fijos de la actividad de Teletrabajo. La persona teletrabajadora debe asumir los gastos de electricidad, agua y alimentación e internet relacionados con el desarrollo de las actividades tele trabajables.

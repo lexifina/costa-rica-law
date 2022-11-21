@@ -1,0 +1,1 @@
+Artículo 28.-Carrera administrativa. Los Teletrabajadores tendrán el mismo derecho de acceso a la información y a las oportunidades de desarrollo de la carrera administrativa y profesional que los demás funcionarios, que laboran en las instalaciones de la municipalidad.

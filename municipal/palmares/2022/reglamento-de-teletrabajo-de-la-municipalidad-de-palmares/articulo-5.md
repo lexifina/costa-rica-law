@@ -1,0 +1,1 @@
+Artículo 5º-Modalidad de Teletrabajo. La modalidad de teletrabajo a ejecutarse por el Teletrabajador será únicamente la que establezca unilateralmente la Alcaldía municipal, quien tiene potestad de rescindir unilateralmente el contrato de teletrabajo.

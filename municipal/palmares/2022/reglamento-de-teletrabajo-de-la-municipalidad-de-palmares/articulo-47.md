@@ -1,0 +1,1 @@
+Artículo 47.-Disponibilidad. Dentro del horario definido como modalidad ordinaria, la persona teletrabajadora estará disponible para su superior jerárquico, con el fin de permitir un adecuado intercambio de información, su supervisión, recibir las instrucciones correspondientes o ejecutar tareas urgentes. Esta disponibilidad, no da derecho a una remuneración adicional.

@@ -1,0 +1,1 @@
+Artículo 68.-Instalación y mantenimiento de medios telemáticos. Tecnologías de Información de la municipalidad es la responsable de la instalación y el mantenimiento oportuno de los enlaces telemáticos requeridos para realizar las labores de teletrabajo.

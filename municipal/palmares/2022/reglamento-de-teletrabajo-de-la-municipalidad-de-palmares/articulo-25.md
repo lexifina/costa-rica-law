@@ -1,0 +1,1 @@
+Artículo 25.-Evaluación de resultados. Toda actividad tele trabajable deberá ser documentada y evaluada semanalmente por parte de cada jefatura, conforme a los indicadores previamente aprobados, a efectos de determinar el rendimiento individual del teletrabajador y de la gestión.

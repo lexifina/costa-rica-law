@@ -1,0 +1,1 @@
+Artículo 54.-Medición de la gestión. La jefatura deberá evaluar las metas del Teletrabajador y recomendar las acciones que permitan mejorar el desempeño. Para este fin debe llevar los registros correspondientes, realizar seguimiento de metas e informar cuando se le solicite.

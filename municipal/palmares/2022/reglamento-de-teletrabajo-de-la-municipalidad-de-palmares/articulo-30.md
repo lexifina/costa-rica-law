@@ -1,0 +1,1 @@
+Artículo 30.-Póliza de Riesgos del Trabajador. Los Teletrabajadores están protegidos por la Póliza de Riesgos del Trabajo que tiene la municipalidad, siempre que se encuentren ejerciendo las labores propias de su función en el lugar que se haya pactado para realizar las labores tele trabajables.

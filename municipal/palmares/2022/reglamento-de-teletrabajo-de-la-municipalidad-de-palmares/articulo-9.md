@@ -1,0 +1,1 @@
+Artículo 9º-Selección de teletrabajadores. La Municipalidad se reserva la facultad de incorporar o no a las personas trabajadoras en esta modalidad de trabajo, dependiendo de las funciones que desempeñen y de los requisitos establecidos en el presente Reglamento.

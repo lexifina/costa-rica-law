@@ -1,0 +1,1 @@
+Artículo 71.-Divulgación y comunicación. Recursos Humanos en será los responsables de elaborar y dar a conocer los programas de comunicación, sobre la implementación de la gestión de teletrabajo, actividad que desarrollará.
