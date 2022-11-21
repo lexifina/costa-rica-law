@@ -26,17 +26,10 @@ Horario de atención al público oficina administración mercado (Así adicionad
 |
 ESTACIONAMIENTO AUTORIZADO (Derogado el trámite anterior por el artículo 30 del Reglamento para la Administración y Operación de los Sistemas de Estacionamiento Autorizado y publicado en La Gaceta N° 71 del 12 de abril de 2012)
 |
-PROVEEDURÍA
-Registro de Proveedores | Llenar el formulario Adjuntar copia de la cédula jurídica, en caso de empresa. Adjuntar copia de la cédula de identidad en caso de persona física. Declaración de que cumple con los artículos 22, 53 de la Ley General de Contratación Administrativa.
-Envío de ofertas o cotizaciones | Enviar cotizaciones por escrito, vía fax o directamente en nuestra oficina, detallando claramente cada rubro, el plazo de entrega, la vigencia de la oferta y el monto en términos unitarios y totales.
-En caso de Compras Directas, se invitarán al menos tres diferentes. |
-Retiro de órdenes de compra | Presentarse en la Proveeduría Municipal.
-Trámite de facturas para pago | Entregar el material. Presentar original y copia al carbón de la factura comercial de conformidad con lo que establece Tributación Directa.
-Otros tipos de compra En el caso de Licitaciones, Restringidad, Por Registro y Públicas, que pudieran darse, el procedimiento de aviso a los interesados, se hará conforme lo establece el Reglamento y la Ley de la Contratación Administrativa. |
+PROVEEDURÍA (Derogado el trámite anterior en sesión N° 217 del 21 de noviembre de 2022)
 |
 CONTABILIDAD (Derogado el requisito anterior por los Requisitos para devolución de timbres por pagos erróneos de traspasos (BI) en el Registro Nacional y solicitud de certificación de retención del 2% a los proveedores, aprobado en sesión N° 172 del 9 de mayo de 2022)
-ALCALDÍA
-Audiencias | Solicitar la audiencia con antelación indicando :Nombre, número telefónico, asunto
+ALCALDÍA (Derogado el trámite anterior en sesión N° 217 del 21 de noviembre de 2022)
 Atención de Quejas (Nota de Sinalevi: Mediante el artículo 41 del Reglamento para el cobro de tarifas y multas por omisiones a los deberes de los propietarios y poseedores de inmuebles localizados en el Cantón de Heredia, aprobado en sesión N° 154 del 28 de febrero de 2022, se acordó derogar, de esta norma, el trámite de Atención de quejas (corta de árboles y recolección de desechos) publicados en la Alcance Nº 43 a La Gaceta número 113, el jueves 13 de junio del 2002. Al no existir este trámite se transcribió la misma) | Llenar el formulario correspondiente.
 |
 CEMENTERIO
@@ -60,8 +53,7 @@ Constancias de tiempo laborado en la Municipalidad (Así adicionado el párrafo 
 CONTRALORÍA DE SERVICIOS (Así adicionado el requisito anterior en sesión N° 157 del 9 de abril de 2012)
 Requisitos para presentar quejas, reclamos, denuncias (Así adicionado el párrafo anterior en sesión N° 157 del 9 de abril de 2012) | . Presentarse personalmente en la Contraloría de Servicios y llenar formulario, o a través de cualquier medio que permita la identificación del usuario o ciudadano. . La queja, reclamo y denuncia, deberá cumplir con lo dispuesto en el Reglamento Interno de la Contraloría de Servicios de esta Municipalidad . Las denuncias, reclamos y quejas deberán cumplir con: O Fecha de presentación. o Nombre completo y número de cédula. En caso de extranjeros, número de pasaporte o cédula de residencia. o Número de Teléfono de habitación y/o número de celular donde contactarlo o Indicar medio y lugar legalmente válido para atender notificaciones, sea domicilio exacto, número de fax, dirección de correo electrónico u otros. o Detalle de las omisiones o hechos denunciados con indicación de las personas y órganos (departamentos, instituciones, empresas, sitios) involucrados. o Referencia específica o comprobantes cuando la queja, el reclamo o denuncia se refiere a servicios por los cuales se emite comprobante. o Firma del denunciante . La queja, reclamo o denuncia se debe presentar dentro del año en curso a partir de la fecha en que se conoce por parte del interesado, los hechos que lo generan. . La queja deberá estar bien fundamentada y debe indicar la pretensión de su planteamiento e incluir los motivos. . Las quejas, reclamos o denuncia deben tener por objeto un acto, omisión, o actuación material originada en la actividad administrativa o técnica de cada una de las áreas de los servicios municipales. . En todas las quejas, reclamos y denuncias, que se advierta evidente mala intención, carencia de fundamento, serán rechazadas. De la misma forma se podrán rechazar todas aquellas quejas, reclamos o denuncias en las que por su contenido se compruebe que se trata de una reiteración o reproducción de una gestión anterior o similar que fue rechazada . Serán rechazadas todas aquellas quejas, reclamos o denuncias en que se compruebe que su ámbito de acción no es competencia de la Contraloría de Servicios o de la Municipalidad. . Serán No admisibles las quejas, reclamos o denuncias donde no exista un asunto pendiente de resolución administrativa respecto del mismo objeto de la queja, reclamo o denuncia, excepto por cuanto el plazo para dar respuesta del área que tramita y éste finalice sin haber obtenido respuesta alguna. Si durante la tramitación el usuario o cliente interpone algún recurso administrativo o demanda judicial referente a la misma queja, reclamo, o denuncia, se suspenderá la tramitación. . Si el denunciante no es el dueño del inmueble, trámite o servicios, y requiere solucionar una situación que implique aspectos legales, debe presentar una carta del dueño del inmueble, patente o servicio; donde lo autorice para realizar el trámite respectivo, exceptuando cuando se trate de altos consumos, omisiones o mala atención de los servicios municipales. (Así adicionado los requisitos anteriores en sesión N° 157 del 9 de abril de 2012)
 |
-AUDITORÍA INTERNA
-Liquidación de asignación de Recursos Municipales para Juntas de Educación, Administrativa y asociaciones de Desarrollo. Revisar documentación acorde con la naturaleza del gasto. Si hay error se devuelve la liquidación a la organización, pidiendo la explicación del casi a la aclaración. | Presentar fotocopia de las facturas de los gastos realizados
+AUDITORÍA INTERNA (Derogado el trámite anterior en sesión N° 217 del 21 de noviembre de 2022)
 |
 RENTAS Y COBRANZAS (Derogado este apartado por el artículo 69 del Reglamento de procedimientos tributarios de la Municipalidad de Heredia, y publicado en el Alcance Digital N° 51 a La Gaceta N° 49 del 11 de marzo de 2021)
 |
@@ -99,6 +91,11 @@ Permiso de construcción en obras mayores de 30 m2 | Planos constructivos aproba
 Requisitos del permiso de construcción (Así adicionado el párrafo anterior en sesión N° 157 del 9 de abril de 2012) | . Encontrarse al día con el pago de tributos municipales. . Copia y Original del recibo de estar al día con el mantenimiento de nichos. .Traer los datos personales del Contratista: (Nº cédula, dirección, Nº de Teléfono). . El Arrendatario debe presentarse personalmente con Fotocopia de la Cédula de Identidad, o bien Fotocopia de la Cédula de Residencia en caso de ser extranjero (Vigentes). En caso de que el mismo no pueda apersonarse puede autorizar por escrito a una persona y adjuntar copia de cedula para su debido proceso. . En el caso de que el arrendatario este fallecido, el tramite lo puede hacer los hijos o la esposa, y SI NO TUVIERA, un hermano, con algún documento que nos indique que son familiares directos (CÉDULA). (Así adicionado los requisitos anteriores en sesión N° 157 del 9 de abril de 2012)
 |
 |
+(Nota de Sinalevi: Mediante sesión N° 217 del 21 de
+noviembre de 2022, se acordó derogar el trámite
+Aseo de Vías. Al no existir dicho trámite, en esta
+norma, se hace la indicación de la misma de dicha
+abrogación.)
 NOTA: Los formularios anotados se encuentran a disposición, para cualquier consulta, en esta Municipalidad.
 Heredia, 4 de junio del 2002.
 |
