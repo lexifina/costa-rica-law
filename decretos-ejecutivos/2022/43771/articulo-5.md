@@ -1,0 +1,6 @@
+Artículo 5º-Para el desarrollo de los ejes de actuación, se crearán los Centros de Atención y Apoyo en los procesos de Denuncia de referencia en todo el país, que se ubicaran en las direcciones regionales de la Fuerza Pública, Oficinas del Instituto Nacional de las Mujeres, Casas de Justicia y direcciones de inspección de trabajo, que pretenden complementar y ampliar la cobertura del servicio de atención que brinda actualmente el INAMU a través de sus Unidades Regionales, para atender a las mujeres en situaciones de violencia y fortalecer la regionalización, según el plan de acción anexo del presente Decreto Ejecutivo.
+Dichos centros tendrán las siguientes funciones:
+a) Brindar información y orientación a las mujeres víctimas de acoso y hostigamiento sexual, sobre sus derechos y rutas de acción en las diferentes sedes y competencias.
+b) Prestar apoyo de primeros auxilios psicológicos para las mujeres victimizadas con acoso y hostigamiento sexual.
+c) Coordinar la prestación de los servicios de representación y acompañamiento legal para los procesos de acoso y hostigamiento sexual que lo requieran.
+d) Recibir y trasladar ante la instancia competente las denuncias por acoso y hostigamiento sexual.

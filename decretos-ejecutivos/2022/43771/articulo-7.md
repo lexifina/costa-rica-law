@@ -1,0 +1,1 @@
+Artículo 7º-Declárese de interés público la presente Estrategia Nacional para el combate del Acoso y Hostigamiento Sexual contra las Mujeres como forma de prevención de la violencia de género, en centros educativos, de trabajo y en espacios públicos.
