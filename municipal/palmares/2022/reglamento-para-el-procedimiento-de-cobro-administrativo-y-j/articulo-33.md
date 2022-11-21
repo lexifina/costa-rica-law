@@ -1,0 +1,22 @@
+SUBSECCION V
+Del cobro de las obligaciones tributarias
+municipales en la etapa judicial
+Artículo 33.-Deberes del Departamento de Cobros en la etapa judicial. La etapa judicial se iniciará una vez agotada la fase administrativa, el Departamento de Cobros deberá cumplir con lo siguiente, en esta etapa:
+a. Determinar las obligaciones vencidas que se le adeuden a la municipalidad, de acuerdo a los siguientes criterios:
+1. Todas aquellas cuentas cuyo valor sea igual o mayor a la quinta parte de un salario base según lo establecido en el artículo 02 de la Ley 7337.
+2. Todas aquellas cuentas que superen el monto exiguo según lo determinado en el presente reglamento.
+3. Todas aquellas cuentas que posean más de un año de antigüedad.
+Todas las cuentas vencidas que cumplan con lo anterior serán trasladadas a los abogados internos y/o externos para que se inicie la etapa de cobro judicial. En consecuencia, las obligaciones que no cumplan con lo indicado en este artículo seguirá siendo su recuperación responsabilidad de los funcionarios del Departamento de Cobros.
+b. Confeccionar el expediente respectivo a cada caso y que será trasladado a los abogados internos o externos con el fin de iniciar el proceso respectivo. Este expediente contendrá al menos:
+1. Copia de las notificaciones de cobro administrativo realizadas al sujeto pasivo, quedando el original de todo el expediente en el Departamento de Cobros.
+2. Certificación emitida por el Contador Municipal que haga constar la obligación vencida que vaya a ser remitida a cobro judicial, la cual incluirá multas e intereses y constituirá el título ejecutivo para el proceso judicial respectivo, de conformidad con lo que establece el Código Municipal.
+3. Certificación registral del bien inmueble que constituirá la garantía de la obligación tributaria adeudada a la Municipalidad de conformidad con lo que establece el Código Municipal. La misma será aportada por la municipalidad por lo que podrá gestionarse en la Plataforma de Servicios de la Municipalidad cancelando el gasto administrativo que esto conlleve o bien en las oficinas del Registro Nacional.
+4. Calidades del sujeto pasivo y domicilio para personas físicas, en caso de las personas jurídicas deberá la municipalidad aportar una certificación de la personería jurídica la cual podrá gestionarse en la Plataforma de Servicios de la Municipalidad cancelando el gasto administrativo que esto conlleve o bien en las oficinas del Registro Nacional.
+5. Certificación del valor de la propiedad emitida por el Perito Valuador de la Municipalidad, cuando sea solicitado por el juzgado o bien se tenga el valor actualizado en la municipalidad.
+c. Efectuar de manera equitativa la asignación de casos a los abogados externos, tomando en cuenta al menos los siguientes criterios: número de casos asignados a cada profesional, así como su cuantía, fijación de un orden rotativo y el rendimiento que demuestre la estadística individual de cuentas recuperadas. El Departamento de Cobros llevara un registro electrónico de los casos asignados a cada abogado.
+d. Fiscalizar la labor de los abogados, cuando ejecuten cobros, para ello compete a los licenciados entregar al Departamento de Cobros los informes trimestrales de lo actuado para su análisis y toma de decisiones en la asignación de casos futuros.
+e. Solicitar a la Alcaldía la aplicación de las sanciones que en este reglamento se establecen para los abogados internos o externos que incumplan con sus obligaciones.
+f. Solicitar a la Alcaldía, el nombramiento de nuevos profesionales en derecho o la resolución de la contratación de los existentes.
+g. Llevar un expediente de cada uno de los abogados, en el cual se llevará toda la documentación relacionada con su contratación, los procesos asignados, los informes que éste presente y demás documentos relacionados con su actuar, los cuales serán agregados al expediente en forma cronológica y estarán debidamente foliados.
+h. Solicitar al Departamento de Valoración y Bienes Inmuebles el avalúo o peritaje, requerido por el juzgado, de los bienes inmuebles que garanticen las obligaciones vencidas, con el fin de cumplir con el plazo de valoración que exige la Ley de Cobro Judicial.
+i. Informar a los abogados al momento en que se llegue a una facilidad de pago o sean canceladas las deudas que estaban siendo manejadas en la vía cobro judicial para que se proceda con el retiro de los procesos ante los juzgados correspondientes.

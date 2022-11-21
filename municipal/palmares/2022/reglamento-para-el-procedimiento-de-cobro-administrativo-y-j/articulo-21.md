@@ -1,0 +1,2 @@
+Artículo 21.-Deudas tributarias no susceptibles de facilidad de pago y condicionadas. La Administración Tributaria a través de una resolución motivada realizará un estudio para determinar cuál será el monto mínimo que deben tener las deudas vencidas para que las mismas estén sujetas a un arreglo de pago.
+Así mismo no estarán sujetas a las facilidades de pago las deudas relacionadas con el impuesto a los permisos de construcción y sus multas.

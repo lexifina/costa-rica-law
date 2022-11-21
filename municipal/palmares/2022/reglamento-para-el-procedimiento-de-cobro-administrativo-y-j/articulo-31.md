@@ -1,0 +1,2 @@
+Artículo 31.-Recibos de pago. Es todo aquel documento físico oficial de la municipalidad, emitido en las cajas municipales o en los entes recaudadores convenidos, que demuestra que el pago de la deuda tributaria se ha llevado a cabo sea de forma total o parcial.
+De igual manera se entenderá como recibo de pago, toda transacción realizada a través de internet que quede debidamente acreditada en la cuenta integral tributaria de la base de datos municipal.

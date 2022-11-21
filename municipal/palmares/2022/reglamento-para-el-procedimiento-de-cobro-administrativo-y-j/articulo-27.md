@@ -1,0 +1,1 @@
+Artículo 27.-Sobre la documentación relacionada con las facilidades de pago. Toda la documentación que haya sido requerida y generada por el Departamento de Cobros para la formalización de alguna facilidad de pago, será agregada al expediente y debidamente foliada para su conservación.
