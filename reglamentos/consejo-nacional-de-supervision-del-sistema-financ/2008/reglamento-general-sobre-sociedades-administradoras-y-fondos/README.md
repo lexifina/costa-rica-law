@@ -43,3 +43,4 @@ Reglamento General sobre Sociedades Administradoras y Fondos de Inversión
 | 28 | 2022-01-27 | Reglamento 1711 (2022-01-27) |
 | 29 | 2022-05-27 | Reglamento 1734 (2022-05-27) |
 | 30 | 2022-07-04 | Reglamento 1742 (2022-07-04) |
+| 31 | 2022-11-21 | Reglamento 1771 (2022-11-21) |
