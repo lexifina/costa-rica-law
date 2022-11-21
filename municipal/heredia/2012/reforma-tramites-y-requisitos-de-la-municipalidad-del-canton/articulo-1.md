@@ -405,24 +405,7 @@ Constancias de becas (escuelas - colegios)
 Constancias de tiempo laborado en la Municipalidad
 . Presentar solicitud por escrito, señalando lugar para notificaciones.
 CONTRALORÍA DE SERVICIOS
-Requisitos para presentar quejas, reclamos, denuncias
-. Presentarse personalmente en la Contraloría de Servicios y llenar formulario, o a través de cualquier medio que permita la identificación del usuario o ciudadano.
-. La queja, reclamo y denuncia, deberá cumplir con lo dispuesto en el Reglamento Interno de la Contraloría de Servicios de esta Municipalidad
-. Las denuncias, reclamos y quejas deberán cumplir con:
-o Fecha de presentación.
-o Nombre completo y número de cédula. En caso de extranjeros, número de pasaporte o cédula de residencia.
-o Número de Teléfono de habitación y/o número de celular donde contactarlo
-o Indicar medio y lugar legalmente válido para atender notificaciones, sea domicilio exacto, número de fax, dirección de correo electrónico u otros.
-o Detalle de las omisiones o hechos denunciados con indicación de las personas y órganos (departamentos, instituciones, empresas, sitios) involucrados.
-o Referencia específica o comprobantes cuando la queja, el reclamo o denuncia se refiere a servicios por los cuales se emite comprobante.
-o Firma del denunciante
-. La queja, reclamo o denuncia se debe presentar dentro del año en curso a partir de la fecha en que se conoce por parte del interesado, los hechos que lo generan.
-. La queja deberá estar bien fundamentada y debe indicar la pretensión de su planteamiento e incluir los motivos.
-. Las quejas, reclamos o denuncia deben tener por objeto un acto, omisión, o actuación material originada en la actividad administrativa o técnica de cada una de las áreas de los servicios municipales.
-. En todas las quejas, reclamos y denuncias, que se advierta evidente mala intención, carencia de fundamento, serán rechazadas. De la misma forma se podrán rechazar todas aquellas quejas, reclamos o denuncias en las que por su contenido se compruebe que se trata de una reiteración o reproducción de una gestión anterior o similar que fue rechazada
-. Serán rechazadas todas aquellas quejas, reclamos o denuncias en que se compruebe que su ámbito de acción no es competencia de la Contraloría de Servicios o de la Municipalidad.
-. Serán No admisibles las quejas, reclamos o denuncias donde no exista un asunto pendiente de resolución administrativa respecto del mismo objeto de la queja, reclamo o denuncia, excepto por cuanto el plazo para dar respuesta del área que tramita y éste finalice sin haber obtenido respuesta alguna. Si durante la tramitación el usuario o cliente interpone algún recurso administrativo o demanda judicial referente a la misma queja, reclamo, o denuncia, se suspenderá la tramitación.
-. Si el denunciante no es el dueño del inmueble, trámite o servicios, y requiere solucionar una situación que implique aspectos legales, debe presentar una carta del dueño del inmueble, patente o servicio; donde lo autorice para realizar el trámite respectivo, exceptuando cuando se trate de altos consumos, omisiones o mala atención de los servicios municipales.
+(Así derogado el apartado anterior en sesión N° 217 del 21 de noviembre de 2022)
 TESORERÍA
-(Derogado el trámite de tesorería anterior mediante sesión N° 200 del 8 de setiembre de 2022, “Tramites del departamento de tesorería”)
+(Derogado el trámite de tesorería anterior mediante sesión N° 200 del 8 de setiembre de 2022, "Tramites del departamento de tesorería")
 Heredia, 4 de mayo del 2012.
