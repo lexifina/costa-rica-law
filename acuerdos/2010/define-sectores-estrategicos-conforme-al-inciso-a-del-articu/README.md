@@ -14,3 +14,4 @@ Define sectores estratégicos conforme al inciso a) del artículo 21 bis de la L
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-11-25 | la propia norma |
+| 2 | 2022-11-22 | Acuerdo 0 (2022-11-22) |
