@@ -1,2 +1,0 @@
-Artículo 197.—Perfeccionamiento contractual. Se tendrá por perfeccionada la relación contractual entre la Administración y el contratista cuando el acto de adjudicación o readjudicación adquiera firmeza y, en los casos que se exija la constitución de la garantía de cumplimiento, ésta sea válidamente otorgada.
-(Corrida su numeración por el artículo 2° del decreto ejecutivo N° 40124 del 10 de octubre del 2016, que lo traspasó del antiguo 189 al 197)

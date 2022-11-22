@@ -1,3 +1,0 @@
-Artículo 222.—Sanciones a funcionarios. Las sanciones administrativas deberán ser impuestas por el órgano que ostente la potestad disciplinaria, en contra de los funcionarios que realicen actuaciones contrarias a las disposiciones de la Ley de Contratación Administrativa y el presente Reglamento.
-Dichas sanciones consistirán en apercibimiento escrito, suspensión sin goce de salario, despido y retiro de credenciales según las disposiciones de la Ley de Contratación Administrativa.
-(Corrida su numeración por el artículo 2° del decreto ejecutivo N° 40124 del 10 de octubre del 2016, que lo traspasó del antiguo 214 al 222)

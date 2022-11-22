@@ -1,3 +1,0 @@
-Artículo 169.—Permiso de uso. En los bienes de dominio público la Administración podrá otorgar permisos de uso, los cuales serán motivados en razones de oportunidad o conveniencia para el interés general, siempre y cuando no implique una desmejora en la disposición del bien.
-En todo caso se entenderán otorgados a título precario, por lo que podrán ser revocados por razones de oportunidad o conveniencia sin responsabilidad de la Administración. La revocación no deberá ser intempestiva ni arbitraria y deberá darse en todos los casos un plazo prudencial para el cumplimiento del acto de revocación.
-(Corrida su numeración por el artículo 2° del decreto ejecutivo N° 40124 del 10 de octubre del 2016, que lo traspasó del antiguo 161 al 169)

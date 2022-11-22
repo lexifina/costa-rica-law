@@ -1,2 +1,0 @@
-Artículo 151.—Libertad de tecnologías y seguridad de la información. El sistema que utilice la Administración no deberá contener exigencias propias de tecnologías propiedad de determinados fabricantes. De igual forma no podrá permitir la alteración de los documentos contenidos en dicho sistema.
-(Corrida su numeración por el artículo 2° del decreto ejecutivo N° 40124 del 10 de octubre del 2016, que lo traspasó del antiguo 143 al 151)

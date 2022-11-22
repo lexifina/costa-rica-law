@@ -1,2 +1,0 @@
-Artículo 232.—Obligada colaboración. Para el eficiente y eficaz cumplimiento de las funciones de las Proveedurías Institucionales, todas las demás unidades administrativas de la Institución de tipo técnico, jurídico, contable, financiero, presupuestario, informático y de cualquier otro orden, están obligadas a brindarle colaboración y asesoría en el cumplimiento de sus cometidos.
-(Corrida su numeración por el artículo 2° del decreto ejecutivo N° 40124 del 10 de octubre del 2016, que lo traspasó del antiguo 224 al 232)

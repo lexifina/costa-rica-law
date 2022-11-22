@@ -1,6 +1,0 @@
-Artículo 181.—Objeción en licitaciones abreviadas. Contra el cartel de las licitaciones abreviadas procederá la interposición del recurso de objeción al cartel, ante la Administración licitante.
-El recurso podrá ser interpuesto por cualquier potencial oferente del bien, servicio u obra requerido. En cualquier momento, dentro del plazo máximo para resolver, la Administración podrá convocar a una audiencia oral para discutir los asuntos sometidos a debate. En estos casos la Administración podrá, si así lo considera conveniente, dictar de inmediato la resolución final de manera oral.
-(Así reformado el párrafo anterior por el artículo 1° del decreto ejecutivo N° 35218 del 30 de abril de 2009)
-El recurso deberá ser resuelto dentro de los diez días hábiles siguientes a su presentación, mediante acto debidamente motivado.
-Cuando la Administración disponga la modificación del cartel, deberá realizar las enmiendas y publicarlas o comunicarlas por los medios correspondientes. Si de las modificaciones efectuadas se derivare una variación sustancial del objeto, deberá ampliarse el plazo de recepción de ofertas, para ajustarlo a los plazos mínimos señalados por este Reglamento.
-(Corrida su numeración por el artículo 2° del decreto ejecutivo N° 40124 del 10 de octubre del 2016, que lo traspasó del antiguo 173 al 181)

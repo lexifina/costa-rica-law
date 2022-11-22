@@ -1,1 +1,0 @@
-Artículo 94.—Recepción de ofertas. El plazo mínimo para recibir ofertas será de quince días hábiles, contado desde el día siguiente de la publicación del aviso a participar hasta el día y hora de la apertura de las ofertas, inclusive.

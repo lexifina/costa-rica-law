@@ -1,5 +1,0 @@
-Artículo 221.—Debido proceso. Las sanciones administrativas a las que aquí se hace referencia sólo son aplicables previa observancia del debido proceso.
-(Mediante resolución N° 17949 del 8 de noviembre del 2017, se anuló del párrafo anterior la frase que disponía: “En el caso sanciones a funcionarios públicos, éstas se impondrán mediante los procedimientos disciplinarios que en cada órgano o ente estuvieren previstos y en el caso de las sanciones a particulares por el procedimiento desarrollado en el presente Capítulo.”)
-Solo en ausencia de regulaciones que garanticen la defensa a que se refiere este artículo se aplicarán las disposiciones relativas al procedimiento ordinario contenidas en el Libro Segundo de la Ley General de la Administración Pública.
-La Administración o la Contraloría General de la República procederán de oficio o por denuncia de los particulares a instaurar los procedimientos respectivos.
-(Corrida su numeración por el artículo 2° del decreto ejecutivo N° 40124 del 10 de octubre del 2016, que lo traspasó del antiguo 213 al 221)

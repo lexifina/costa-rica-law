@@ -1,2 +1,0 @@
-Artículo 88.-Plazo para comunicar el acto final. El acto final será comunicado por medio del Sistema Integrado de Compras Públicas (SICOP) en los tres días hábiles siguientes a su dictado o notificado a los participantes por el medio electrónico señalado en ese mismo plazo cuando no sea posible realizarlo mediante el sistema.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 41243 del 10 de julio del 2018)

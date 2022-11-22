@@ -1,2 +1,0 @@
-Artículo 123.- Expediente Electrónico de Convenio Marco. El expediente electrónico que se elabore para cada convenio marco, debe contener la documentación que respalde la totalidad de los actos de todas las fases que componen un convenio marco, desde los actos preparatorios del trámite de Licitación Pública hasta el seguimiento y control de la ejecución contractual, lo cual es responsabilidad de los órganos competentes en cada una de las etapas.
-(Así adicionado por el artículo 1° del decreto ejecutivo N° 40124 del 10 de octubre del 2016)

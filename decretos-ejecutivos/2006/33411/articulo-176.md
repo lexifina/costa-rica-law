@@ -1,2 +1,0 @@
-Artículo 176.—Vicios de nulidad no alegados en el expediente. Cuando en el conocimiento de un recurso la Administración o la Contraloría General de la República consideren que se encuentran en presencia de un vicio causante de nulidad absoluta no alegado en el expediente lo pondrá en conocimiento de las partes por un plazo de entre tres a cinco días hábiles para que manifiesten su posición al respecto.
-(Corrida su numeración por el artículo 2° del decreto ejecutivo N° 40124 del 10 de octubre del 2016, que lo traspasó del antiguo 168 al 176)

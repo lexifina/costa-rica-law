@@ -1,2 +1,0 @@
-Artículo 149.—Principios rectores. Deberán utilizarse medios electrónicos que garanticen la transparencia; libre competencia; igualdad, libre acceso, integridad, neutralidad, seguridad, consistencia, confidencialidad; y no repudiabilidad de las actuaciones, basados en estándares interoperables, permitir el respaldo de la información y el registro de operaciones desde su origen.
-(Corrida su numeración por el artículo 2° del decreto ejecutivo N° 40124 del 10 de octubre del 2016, que lo traspasó del antiguo 141 al 149)

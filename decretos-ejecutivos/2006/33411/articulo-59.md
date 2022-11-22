@@ -1,3 +1,0 @@
-Artículo 59.-Publicación y contenido de la invitación al concurso. La invitación a participar, se publicará en el Sistema Integrado de Compras Públicas (SICOP), sin perjuicio de cualquier publicación facultativa que la Administración contratante considere necesaria en otro medio.
-En todo caso la publicación deberá contener: la identificación de la Administración contratante; la indicación del tipo y número del concurso y una breve descripción del objeto contractual; la hora y fecha límite para la recepción de ofertas.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 41243 del 10 de julio del 2018)

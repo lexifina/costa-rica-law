@@ -1,4 +1,0 @@
-Artículo 201.—Obligación de tramitación. Las gestiones formuladas por el contratista en procura de continuar la ejecución contractual, serán resueltas por la Administración, de manera motivada, dentro de los treinta días hábiles, contados a partir del recibo de la petición. En caso de requerirse información adicional al contratista, se le dará un plazo de 10 días hábiles para que aporte la documentación respectiva, de lo contrario la Administración resolverá con lo que conste en el expediente.
-El silencio de la Administración, se entenderá como aceptación de la petición, cuando se trate de una autorización admisible en Derecho y se haya cumplido con todos los requisitos.
-La no atención de la gestión dentro del plazo señalado generará responsabilidad administrativa al servidor.
-(Corrida su numeración por el artículo 2° del decreto ejecutivo N° 40124 del 10 de octubre del 2016, que lo traspasó del antiguo 193 al 201)

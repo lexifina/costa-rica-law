@@ -1,2 +1,0 @@
-Artículo 158.—Riesgo del contratista. En el contrato de obra la ejecución se realizará por cuenta y riesgo del contratista, sin perjuicio de su derecho a que se mantenga el equilibrio económico del contrato, en los términos que lo regula la respectiva normativa. La Administración no asumirá ante el contratista más responsabilidades que las previstas y derivadas de la respectiva contratación.
-(Corrida su numeración por el artículo 2° del decreto ejecutivo N° 40124 del 10 de octubre del 2016, que lo traspasó del antiguo 150 al 158)
