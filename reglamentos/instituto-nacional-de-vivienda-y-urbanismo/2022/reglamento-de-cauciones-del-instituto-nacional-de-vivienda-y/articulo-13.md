@@ -1,0 +1,1 @@
+Artículo 13.-Cálculo de la caución en el nivel B. Quienes desempeñen puestos contemplados dentro de los incisos e), f), g), h), i), j), k) y l) del artículo 9° del presente Reglamento, deberán rendir una caución equivalente a tres salarios base.

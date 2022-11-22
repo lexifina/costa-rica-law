@@ -1,0 +1,2 @@
+Transitorio III.-Este Reglamento deroga el Reglamento sobre la Rendición de Cauciones en favor del Instituto Nacional de Vivienda y Urbanismo aprobado por la Junta Directiva del INVU en la sesión ordinaria N° 6036, artículo II, inciso 3) del 20 de marzo de 2014. Se instruye a la Unidad de Adquisiciones y Contrataciones para que proceda con la publicación respectiva.
+El presente Reglamento rige a partir de su publicación en el Diario Oficial La Gaceta.

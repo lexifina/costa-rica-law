@@ -1,0 +1,1 @@
+Artículo 14.-Cálculo de la caución en el nivel C. Quienes desempeñen puestos contemplados dentro de los incisos m), n) y ñ) del artículo 9° del presente Reglamento, deberán rendir una caución equivalente a dos salarios base.

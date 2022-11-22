@@ -1,0 +1,1 @@
+Transitorio II.-Los funcionarios que a la entrada en vigencia del presente Reglamento mantengan garantías de caución vigentes, esperarán a su vencimiento y, en el momento de su renovación deberán ajustarse a la presente normativa.

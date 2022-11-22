@@ -1,0 +1,1 @@
+Artículo 7º-Momento para rendir la caución. La caución deberá ser rendida por el funcionario que ostenta en propiedad el cargo o por los funcionarios o miembros de la Junta Directiva que sean notificados de su designación en el puesto. Para ello contarán con 30 días hábiles a partir de la notificación que les haga la Unidad de Talento Humano.

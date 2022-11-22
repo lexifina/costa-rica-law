@@ -1,0 +1,3 @@
+Artículo 5º-Deber de solventar la caución. A tenor de lo establecido en el artículo 13 de la Ley de Administración Financiera de la República y Presupuestos Públicos, es deber de la persona caucionante gestionar y sufragar de su propio peculio el costo de la garantía a favor del INVU.
+Los montos de las cauciones que regula este Reglamento son mínimos, de manera que cada persona obligada puede voluntariamente incrementarlos a su discreción.
+Cuando las condiciones de los mercados de seguros y otras garantías establezcan solo productos que obligan a la persona caucionante a ajustar el monto de su garantía a sumas superiores, será su obligación adaptarse a esas condiciones.
