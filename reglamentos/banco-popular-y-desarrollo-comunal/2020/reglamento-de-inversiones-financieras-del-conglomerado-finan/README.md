@@ -15,3 +15,4 @@ Reglamento de inversiones financieras del Conglomerado Financiero Banco Popular 
 | --- | --- | --- |
 | 1 | 2021-01-29 | la propia norma |
 | 2 | 2022-07-13 | Reglamento 5935 (2022-07-13) |
+| 3 | 2022-11-22 | Reglamento 5959 (2022-11-22) |
