@@ -1,0 +1,1 @@
+Artículo 4°-En relación con los funcionarios de la Dirección General de Aduanas, será el jerarca del Ministerio de Hacienda, quien determine, con base en el artículo 14, párrafo segundo de la Ley General de Aduanas y mediante circular interna, si los días y horas señaladas se establecerá un horario especial a los funcionarios de esa Dirección.

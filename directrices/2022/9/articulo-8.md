@@ -1,0 +1,1 @@
+Artículo 8°.- Se insta respetuosamente a la Administración Descentralizada, al Poder Judicial, Poder Legislativo, Tribunal Supremo de Elecciones, Municipalidades, Universidades Públicas y Sector Privado a la aplicación de esta medida temporal.

@@ -1,0 +1,1 @@
+Artículo 3°- En cuanto a los funcionarios del Ministerio de Educación Pública, será el jerarca de dicha institución quien determine, con base en el artículo 213 del Código de Educación y mediante circular interna, si los días y horas señaladas se les establecerá un horario especial a los funcionarios de esa cartera.
