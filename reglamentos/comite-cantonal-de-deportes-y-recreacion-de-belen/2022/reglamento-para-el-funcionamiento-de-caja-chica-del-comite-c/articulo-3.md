@@ -1,0 +1,1 @@
+Artículo 3º-Establecimiento de la Caja Chica. Se establece un fondo de caja chica cuyo monto podrá aumentarse o disminuirse, previo estudio enviado por la Tesorería del CCDRB con el visto bueno de la Administración, el cual será aprobado por la Junta Directiva.
