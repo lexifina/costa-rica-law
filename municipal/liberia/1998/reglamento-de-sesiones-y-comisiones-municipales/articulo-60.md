@@ -1,2 +1,2 @@
-Artículo 60.—Toda sesión dará inicio a las 17 horas y durará hasta que se agote la agenda, no pudiendo pasar de las 12 de la noche.
-(Así reformado en sesión N° 05 del 31 de enero de 2011)
+Artículo 60.- Las sesiones del Concejo Municipal se iniciarán a las diecisiete horas y concluirá como máximo a las veinte horas, salvo que mediante acuerdo que requerirá votación calificada, se decida seguir sesionando después de esa hora. Aprobar que las sesiones ordinarias del año 2022-2023, que se celebran el día lunes sean trasladadas el día martes a las 5:00 p.m., cuando el feriado sea lunes o bien cuando el feriado se traslade al día lunes
+(Así reformado mediante publicación en La Gaceta N° 224 del 23 de noviembre del 2022)
