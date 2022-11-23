@@ -1,0 +1,1 @@
+Artículo 8º-Contenido presupuestario existente. La Municipalidad de San Pablo de Heredia, incluirá una partida presupuestaria dentro del presupuesto ordinario de cada año, para el otorgamiento de medallas o reconocimientos.

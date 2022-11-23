@@ -1,0 +1,1 @@
+Artículo 5º-Determinación del cuerpo edil. Una vez dictaminada la propuesta por parte de la Comisión de Asuntos Sociales y la Comisión de Cultura, el Concejo Municipal tomará el acuerdo respectivo, otorgando o no el reconocimiento solicitado.

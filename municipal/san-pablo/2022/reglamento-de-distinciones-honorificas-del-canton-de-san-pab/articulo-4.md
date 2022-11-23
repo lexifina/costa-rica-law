@@ -1,0 +1,1 @@
+Artículo 4º-Procedimiento de revisión. Recibida la propuesta de mención honorífica por parte del Concejo Municipal, se remitirá a la Comisión de Asuntos Sociales y Comisión de Cultura, la cual se encargará de estudiar y valorar cada uno de los legajos de las personas propuestas y emitirá el dictamen respectivo en un plazo máximo de treinta días naturales.

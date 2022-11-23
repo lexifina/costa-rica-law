@@ -1,0 +1,1 @@
+Artículo 6º-Insumos a entregar. La Municipalidad de San Pablo de Heredia, contará con medallas, placas, pergaminos o artículos conmemorativos, en los cuales se consignarán las razones que justifiquen tal designación y el número y fecha de la sesión donde se aprobó.

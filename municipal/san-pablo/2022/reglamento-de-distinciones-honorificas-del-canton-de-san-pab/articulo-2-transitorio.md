@@ -1,0 +1,1 @@
+Transitorio II.-La Municipalidad de San Pablo de Heredia, tendrá seis meses a partir de la entrada en vigencia de este reglamento para consignar en las fotografías o retratos que están instaladas en el Salón de Sesiones del Concejo Municipal, las razones que justificaron tales designaciones.

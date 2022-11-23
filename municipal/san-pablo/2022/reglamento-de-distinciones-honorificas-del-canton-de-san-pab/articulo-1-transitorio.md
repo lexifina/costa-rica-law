@@ -1,0 +1,2 @@
+Disposiciones transitorias
+Transitorio I.-Cuantas personas o entidades corporativas se hallen actualmente en posesión de algunas de las distinciones que son materia de este reglamento, continuarán en el disfrute de las mismas con todos los derechos, honores y prerrogativas reconocidos por los reglamentos respectivos o por anteriores acuerdos municipales dictados con relación con dichas distinciones.
