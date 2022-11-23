@@ -14,3 +14,4 @@ Reglamento para la Autorización, Reconocimiento y Pago del Tiempo Extraordinari
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-05-01 | la propia norma |
+| 2 | 2022-11-23 | Decreto Ejecutivo 43886 (2022-11-23) |
