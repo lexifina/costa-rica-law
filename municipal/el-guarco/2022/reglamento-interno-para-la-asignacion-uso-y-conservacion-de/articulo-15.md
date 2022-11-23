@@ -1,0 +1,1 @@
+Artículo 15.-Las irregularidades en relación con el incumplimiento del presente reglamento serán remitidas a la Alcaldía Municipal a efectos de que se determinen las responsabilidades que corresponda, previo cumplimiento del debido proceso.

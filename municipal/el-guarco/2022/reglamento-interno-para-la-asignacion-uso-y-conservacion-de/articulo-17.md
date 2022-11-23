@@ -1,0 +1,1 @@
+Artículo 17.-Deróguese cualquier reglamento, directriz, acuerdo, contrato referente a la materia que regula el presente reglamento, emitido con anterioridad a la entrada en vigencia del presente reglamento.
