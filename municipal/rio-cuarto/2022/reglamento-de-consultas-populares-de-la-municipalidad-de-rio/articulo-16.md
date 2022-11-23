@@ -1,0 +1,1 @@
+Artículo 16.-Documentación electoral. El Tribunal Supremo de Elecciones asesorará a la Municipalidad en cuanto a las seguridades básicas de la confección y manejo de la documentación electoral que sea necesaria.

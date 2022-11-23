@@ -1,0 +1,1 @@
+Artículo 5º-Órgano encargado. El Concejo Municipal deberá nombrar una Comisión Especial conformada por cinco (5) miembros escogidos entre regidores y síndicos, que se encargarán de la organización y dirección de la consulta. A esta Comisión deberá proveérsele los recursos suficientes para el cumplimiento de su cometido.

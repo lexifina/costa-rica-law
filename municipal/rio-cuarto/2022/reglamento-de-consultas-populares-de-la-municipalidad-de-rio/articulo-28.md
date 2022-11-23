@@ -1,0 +1,1 @@
+Artículo 28.-Propuestas. El Concejo Municipal en un término no menor de un mes a partir de la difusión de la convocatoria a Cabildo recibirá propuestas escritas de la ciudadanía referentes al tema a discutir.

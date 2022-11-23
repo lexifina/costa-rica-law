@@ -1,0 +1,2 @@
+Artículo 9º-Personas Electoras. Pueden ejercer su derecho al voto en los plebiscitos y los referendos las personas electoras que aparezcan en el padrón electoral del cantón de Río Cuarto, según el corte del mes anterior al de la aprobación en firme del acuerdo de convocatoria.
+La identidad del elector se determinará según lo establecido en el Código Electoral y los lineamientos que al efecto ha emitido el Tribunal Supremo de Elecciones para las Elecciones Nacionales.

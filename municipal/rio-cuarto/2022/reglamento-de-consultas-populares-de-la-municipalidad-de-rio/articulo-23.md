@@ -1,0 +1,1 @@
+Artículo 23.-Reposición de la Alcaldía. Si el resultado de la consulta fuere la destitución de la persona titular de la Alcaldía Municipal, el Concejo Municipal lo comunicará al Tribunal Supremo de Elecciones, el cual designará a la persona que ocupará el cargo según lo dispuesto por el artículo 14 del Código Municipal.

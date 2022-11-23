@@ -1,0 +1,3 @@
+Artículo 17.-Juntas Receptoras de Votos. Las Juntas Receptoras de Votos (JRV) estarán conformadas por un mínimo de tres (3) miembros propietarios y tres (3) miembros suplentes. Están compuestas por nóminas que presentará cada Consejo de Distrito ante el Concejo Municipal, dentro el plazo de un mes anterior a la fecha señalada para la realización de la consulta.
+En el caso de que el Consejo de Distrito no presente dicha nómina, el Concejo Municipal queda facultado para designar en forma directa las personas que serán miembros de las Juntas Receptoras de votos.
+Las personas miembros de mesa deberán recibir instrucción adecuada para el cumplimiento de sus funciones. La juramentación de las personas miembros de mesa estará a cargo de la Presidencia del Concejo Municipal.

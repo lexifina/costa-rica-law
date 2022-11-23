@@ -1,0 +1,1 @@
+Artículo 31.-Organización. La organización y dirección de las consultas populares distritales estará a cargo del Concejo de Distrito y no del Concejo Municipal; órgano que fungirá únicamente como asesor.

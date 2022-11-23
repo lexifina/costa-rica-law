@@ -1,0 +1,1 @@
+Artículo 14.-Formulación de las preguntas. La formulación de la pregunta objeto de la consulta popular debe ser clara y concisa de modo que se eviten interrogaciones confusas, capciosas o de doble sentido. Salvo casos excepcionales, la pregunta debe ser formulada de manera que la respuesta sea con un "SI" o un "NO".
