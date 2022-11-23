@@ -1,0 +1,1 @@
+Artículo 16.-El Departamento de Presupuesto deberá digitar al Ente Contralor por medio del Sistema Integrado de Presupuestos Públicos (SIPP), cada modificación presupuestaria que se autorice, a más tardar cinco días hábiles posteriores a su aprobación definitiva. El Coordinador Financiero validará la modificación en el SIPP en un plazo no mayor a tres días hábiles.

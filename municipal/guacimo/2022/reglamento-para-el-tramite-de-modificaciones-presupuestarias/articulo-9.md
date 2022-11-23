@@ -1,0 +1,1 @@
+Artículo 9º-Las modificaciones presupuestarias que sean aprobadas, deberán transcribirse íntegramente en el acta correspondiente a la sesión en que fue aprobada; los expedientes donde se tramite la modificación deberán mantenerse a disposición de los munícipes.

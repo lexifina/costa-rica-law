@@ -1,0 +1,1 @@
+Artículo 10.-En caso de que sean las modificaciones improbadas por el Concejo Municipal, se plasmarán las razones formales de su improbación y, de considerarlo oportuno, la Administración podrá volver a presentar la modificación con las correcciones pertinentes, que será tramitada bajo el número de modificación inicialmente no aprobada.

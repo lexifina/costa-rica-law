@@ -1,0 +1,1 @@
+Artículo 2 º- Vigencia de las modificaciones presupuestarias. Las modificaciones presupuestarias surtirán efecto en el presupuesto a partir de su aprobación por parte del Concejo Municipal. El Departamento de Presupuesto deberá enviar la Modificación a la Contraloría General de la República a más tardar tres días de aprobado por el Concejo Municipal.
