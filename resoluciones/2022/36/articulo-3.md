@@ -1,0 +1,2 @@
+Artículo 3. Actividad económica.
+Las personas físicas o jurídicas que fabriquen armas, municiones, explosivos, artificios, pólvora en todas sus presentaciones, regulados en el artículo 68bis de la Ley N° 7530, "Ley de Armas y Explosivos", son contribuyentes del Impuesto Selectivo de Consumo, y deberán inscribirse en el Registro Único Tributario, en la actividad económica 292701, denominada "fabricación de armas y municiones".
