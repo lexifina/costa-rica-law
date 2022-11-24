@@ -11,7 +11,7 @@ Oficial de Cumplimiento | X | X | X | X
 Oficial de Cumplimiento adjunto | X | X | X | X
 Auditor Interno | X | X | X | X
 Gestor de Portafolios | X | X | X | X
-Estructura de Capital | X | X | X |
+Estructura de Capital (Así reformado el punto anterior mediante acuerdo SGV-A-274 del 24 de noviembre del 2022) | | | | X (Así reformado el punto anterior mediante acuerdo SGV-A-274 del 24 de noviembre del 2022)
 Consejo de Calificación | X | X | X |
 (Así reformado el cuadro anterior por el artíuclo 6° aparte c) del acuerdo N° SGV-A-269 del 20 de julio de 2022)
-Para los roles que sean desempeñados por no residentes que no posean firma digital emitida en Costa Rica y que se requieran la firma de la declaración jurada, el formulario original debe ser presentado ante la Superintendencia mediante documentación certificada notarialmente o apostillados, para poder concluir con el proceso de registro del Rol.
+Para los roles que sean desempeñados por no residentes que no posean firma digital emitida en Costa Rica y que se requieran la firma de la declaración jurada, el formulario original debe ser presentado ante la Superintendencia mediante documntación certificada notarialmente o apostillados, para poder concluir con el proceso de registro del Rol.
