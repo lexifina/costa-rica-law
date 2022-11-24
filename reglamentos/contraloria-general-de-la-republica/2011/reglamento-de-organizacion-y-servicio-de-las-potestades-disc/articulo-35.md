@@ -1,2 +1,0 @@
-Artículo 35.- Cese de la responsabilidad por pago
-En los supuestos donde únicamente se busque determinar la existencia de responsabilidad civil, una vez efectuado el traslado de cargos y en cualquier etapa del procedimiento, éste se dejará sin efecto, si la parte investigada demuestra que ha concurrido a pagar la suma o importe correspondiente a los daños y perjuicios establecidos en el acto de apertura.

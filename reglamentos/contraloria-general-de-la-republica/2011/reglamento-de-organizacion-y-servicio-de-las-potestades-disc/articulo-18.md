@@ -1,3 +1,0 @@
-Artículo 18.- Consecuencias de actuaciones de funcionarios con impedimentos
-La actuación de funcionarios en los que concurran motivos de abstención implicará la invalidez de los actos en que hayan intervenido y, además, dará lugar a responsabilidad. Cuando los motivos de abstención sean los consagrados en los incisos 1 y 2 del artículo 3 del Reglamento de Abstenciones para los Funcionarios de la Contraloría General de la República, la nulidad será absoluta; en los demás casos será relativa.
-Los superiores deberán separar del conocimiento del expediente a las personas en quienes concurra algún motivo de abstención, susceptible de causar nulidad absoluta, de conformidad con el párrafo anterior.

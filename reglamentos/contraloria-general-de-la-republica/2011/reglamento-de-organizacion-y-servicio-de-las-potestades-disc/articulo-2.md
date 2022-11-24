@@ -1,2 +1,0 @@
-Artículo 2.- Ámbito de aplicación
-Este reglamento será aplicable a todos los procedimientos administrativos tramitados por la Contraloría General relacionados con la Hacienda Pública, en el ejercicio de sus potestades constitucionales y legales. Asimismo, se observarán las normas del procedimiento ordinario de la Ley General de la Administración Pública, en concordancia con las normas propias del ordenamiento de fiscalización y control superior de La Hacienda Pública.

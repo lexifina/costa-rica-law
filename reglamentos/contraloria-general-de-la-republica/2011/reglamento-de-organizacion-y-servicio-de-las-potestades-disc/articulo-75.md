@@ -1,1 +1,0 @@
-Artículo 75.- Deróguese la resolución R-CO-45-2007 de las quince horas del veinticuatro de septiembre de dos mil siete, “Directriz para la Operación del Sistema de Registro de Sanciones de la Hacienda Pública (SIRSA)”, publicada en el Diario Oficial La Gaceta, número 201 del 19 de octubre de 2007.

@@ -1,2 +1,0 @@
-Artículo 3.- Competencia
-El cumplimiento de las funciones encomendadas a la Contraloría General en materia de procedimientos administrativos tendentes a declarar responsabilidades en el orden administrativo sancionador, civil o para declarar la nulidad absoluta, evidente y manifiesta de los actos o contratos que emiten los sujetos pasivos del ordenamiento de control y fiscalización de la Hacienda Pública, estará a cargo de la División Jurídica, sin perjuicio de las potestades del Despacho Contralor.

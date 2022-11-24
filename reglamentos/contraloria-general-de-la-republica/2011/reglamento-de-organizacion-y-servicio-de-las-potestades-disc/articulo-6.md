@@ -1,4 +1,0 @@
-Artículo 6.- Medidas cautelares
-Durante la investigación preliminar podrán dictarse las medidas cautelares necesarias para prevenir situaciones que puedan entorpecer o dificultar la búsqueda de la verdad real, o bien, la efectiva ejecución de una eventual resolución final. Esas medidas podrán mantenerse, modificarse o revocarse cuando varíen las circunstancias de hecho que motivaron su adopción, ya sea de oficio o a petición de parte.
-La información que se recabe durante una investigación preliminar tiene carácter confidencial. En el caso de dictarse medidas cautelares de previo a la apertura del procedimiento, el mismo deberá dar inicio en el plazo no mayor de quince días hábiles a partir del día siguiente de la notificación de la resolución que adopta la medida cautelar.
-En lo procedente se aplicarán las disposiciones de la Sección VII de este Capítulo.

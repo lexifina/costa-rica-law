@@ -1,2 +1,0 @@
-Artículo 71.- Reclamaciones
-Las reclamaciones y solicitudes que eleven los particulares relativas al contenido de las certificaciones emitidas así como al contenido de los datos incluidos en el Registro, de conformidad con el Principio de Autodeterminación Informativa, deberán ser resueltas, en un plazo no mayor a ocho (8) días hábiles por la División Jurídica de la Contraloría General de la República.

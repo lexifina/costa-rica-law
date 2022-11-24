@@ -1,2 +1,0 @@
-Artículo 65.- Seguridades de auditoría del SIRSA
-El SIRSA tendrá un sistema de auditoría interna que permitirá conocer la fecha de las diferentes operaciones; el funcionario responsable del registro y verificación; el contenido de los campos grabados o modificados y el número de certificados expedidos, su fecha, contenido y el funcionario que lo expidió. De la misma manera deberá contener un ambiente seguro que imposibilite la intrusión en la base de datos.

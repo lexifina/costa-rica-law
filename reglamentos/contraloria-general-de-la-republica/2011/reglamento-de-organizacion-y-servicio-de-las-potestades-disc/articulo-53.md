@@ -1,2 +1,0 @@
-Artículo 53.- Incumplimiento de la recomendación de sanción
-En caso de que el órgano competente del sujeto pasivo incumpla con la recomendación, el órgano decisor deberá proceder de conformidad con los artículos 69 y 70 de la Ley Orgánica de la Contraloría General de la República, a fin de determinar la eventual responsabilidad disciplinaria del funcionario infractor por dicho incumplimiento, sin perjuicio de la responsabilidad penal que proceda por el delito de desobediencia dispuesto en el artículo 68 de esa Ley.

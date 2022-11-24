@@ -1,2 +1,0 @@
-Artículo 39.- Evacuación de prueba antes de la comparecencia
-Cuando las circunstancias así lo requieran, las pruebas podrán ser evacuadas antes de la comparecencia. En todo caso, el órgano decisor informará la hora y fecha de la diligencia a las partes con el fin de que puedan ejercer su derecho de defensa.

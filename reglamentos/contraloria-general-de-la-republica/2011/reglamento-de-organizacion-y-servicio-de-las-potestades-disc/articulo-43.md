@@ -1,8 +1,0 @@
-Artículo 43.- Asistencia a la comparecencia
-1. Las partes o sus representantes, debidamente acreditados, deberán presentarse a las sesiones de la comparecencia a las que sean convocados.
-2. La ausencia no justificada de cualquiera de las partes o de sus representantes, debidamente acreditados, no impedirá la celebración de la comparecencia.
-3. En caso de que cualquiera de las partes o sus representantes comparezca en forma tardía a la comparecencia, la tomará en el estado en que se encuentre, sin que se retrotraigan las etapas ya cumplidas.
-4. Las partes o sus representantes podrán presentar ante el órgano decisor la justificación para no asistir a la comparecencia antes o durante su celebración.
-5. El órgano decisor valorará los motivos de la ausencia y de existir justa causa, tomará las acciones que correspondan a fin de garantizar el debido proceso.
-6. En casos excepcionales, las partes o sus representantes podrán presentar la justificación de la ausencia con posterioridad a la celebración de la comparecencia, para lo cual deberán acreditar además de los motivos que impidieron su asistencia, las razones por las que se presenta la justificación después de finalizada la comparecencia, todo lo cual será valorado por el órgano decisor, de conformidad con lo indicado en el inciso anterior.
-7. Si por razones justificadas el representante de la parte no puede comparecer al primer señalamiento para celebrar la comparecencia, éste se podrá diferir por una sola vez. La ausencia justificada del representante en el segundo señalamiento no suspenderá la comparecencia, por lo que, de ser necesario, la parte podrá nombrar otro representante para que asista a la audiencia.

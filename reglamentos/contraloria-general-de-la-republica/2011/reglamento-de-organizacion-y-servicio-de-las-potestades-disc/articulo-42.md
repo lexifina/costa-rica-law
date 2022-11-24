@@ -1,2 +1,0 @@
-Artículo 42.- Facultades del órgano decisor durante la comparecencia
-El órgano decisor dirigirá la comparecencia bajo las reglas de la oralidad, hará las advertencias legales, recibirá los juramentos y declaraciones, ejercerá el poder de disciplina y moderará la discusión, impidiendo intervenciones impertinentes, injustificadamente prolongadas y rechazará las solicitudes notoriamente improcedentes o dilatorias, respetando el derecho de defensa de las partes.

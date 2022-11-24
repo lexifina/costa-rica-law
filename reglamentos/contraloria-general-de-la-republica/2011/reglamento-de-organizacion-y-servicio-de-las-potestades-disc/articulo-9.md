@@ -1,7 +1,0 @@
-Articulo 9.- Órganos decisores colegiados
-Todos los demás asuntos serán resueltos por los órganos decisores colegiados. Cuando se resuelven los asuntos de manera colegiada aplicarán las siguientes regulaciones:
-a) Cada órgano colegiado que se integre estará constituido por tres miembros, según el rol que establezca al efecto la División Jurídica.
-b) La presidencia del órgano decisor recaerá en el funcionario proponente del caso, según corresponda.
-c) El quórum para la validez de las deliberaciones del colegio lo constituyen sus tres miembros, adoptándose las decisiones por mayoría simple.
-d) Los integrantes del colegio tendrán igualdad en voz y voto, en caso de que existan tres posiciones diferentes sobre la existencia de la falta y/o la sanción a imponer entre los miembros del órgano, la presidencia contará con voto de calidad.
-e) Cuando las resoluciones se adopten en forma escrita, los votos salvados se consignarán por escrito y se notificarán junto con la resolución de fondo, la cual deberán suscribir todos los integrantes del colegio. Cuando las resoluciones se adopten en forma oral los votos salvados se podrán consignar también oralmente y para esos efectos se utilizarán los medios tecnológicos necesarios. Las resoluciones orales así como los votos salvados quedarán notificadas en el acto en que se emiten oralmente, y a partir de ese momento se contarán los plazos para la interposición de los recursos.
