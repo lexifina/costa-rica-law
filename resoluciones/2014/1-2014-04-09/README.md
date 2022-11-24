@@ -15,3 +15,4 @@ Establece normas de acatamiento obligatorio para las Instituciones que conforman
 | --- | --- | --- |
 | 1 | 2015-01-08 | la propia norma |
 | 2 | 2016-03-18 | Resolución 1 (2016-03-18) |
+| 3 | 2022-11-24 | Resolución 4 (2022-11-24) |
