@@ -1,0 +1,14 @@
+Artículo 18. Requisitos: Toda persona física o jurídica que solicite licencia para expendio de bebidas con contenido alcohólico debe haber obtenido previamente la licencia comercial para realizar la actividad. El interesado debe presentar los siguientes documentos a la Municipalidad para su análisis:
+a) Solicitud debidamente llena con letra clara y firmada por el interesado. En caso de que la(s) firma(s) no sea igual a la estampada en la(s) cédula(s), la solicitud debe ser autenticada por un abogado.
+b) Copia de la cédula de identidad al día, si el solicitante es persona física. En caso de que sea una persona jurídica, la solicitud debe ser firmada por el representante legal y deberá aportar la personería jurídica vigente y certificación de la composición del capital social (original o copia con tres meses de expedida como máximo).
+c) Estar al día en sus obligaciones con la Caja Costarricense del Seguro Social con Asignaciones Familiares. (El solicitante estará exento de aportar los documentos aquí mencionados cuando la información esté disponible de forma remota por parte de la Municipalidad).
+d) Informe Registral vigente de la propiedad donde está autorizada la licencia comercial.
+e) Copia del Permiso Sanitario de funcionamiento extendido por el Ministerio de Salud, a nombre de la persona física o jurídica de quien solicita la licencia de licores, vigente y acorde a la actividad comercial autorizada.
+f) Copia de la cédula de identidad del propietario del inmueble. Si el dueño del inmueble es persona jurídica, aportar certificación de la personería de la sociedad vigente y copia de la cédula de identidad del representante legal al día.
+g) Certificación que acredite la titularidad del inmueble en el cual se desarrollará la actividad y en caso de pertenecer a un tercero, copia certificada del contrato o título que permita al solicitante operar la actividad que va a desempeñar.
+h) El nombre de fantasía y la publicidad del negocio, debe de coincidir con la actividad autorizada.
+i) Deberá estar al día en el pago de obligaciones formales y materiales municipales, el solicitante y el dueño del inmueble donde se ubicará la actividad comercial.
+Es obligación del solicitante informar a la municipalidad cualquier modificación de las condiciones acreditadas mediante el formulario y la documentación antes indicada, y que se verifique antes del otorgamiento de la licencia.
+En casos especiales como los que se detallan a continuación, deberá cumplir con los siguientes requisitos adicionales:
+Cuando solicite una licencia clase C, deberá de cumplir con el artículo 8 inciso d) de la Ley 9047 y su respectivo reglamento, mismo será confirmado mediante inspección previa. En caso que se solicite una licencia clase E, deberá aportar copia de la declaratoria turística vigente a nombre de la persona solicitante.
+Cuando se trate de construcciones nuevas debe contar con el pago correspondiente del permiso de construcción.

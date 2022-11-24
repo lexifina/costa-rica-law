@@ -1,0 +1,2 @@
+Artículo 37. Denegación. En conformidad con resolución que autorice o deniegue una solicitud de licencia temporal de bebidas con contenido alcohólico, se expedirá copia a la Delegación Policial del Cantón, para que proceda a verificar el fiel cumplimiento de lo ordenado por la Administración. Debiendo de acatarse con sentido restrictivo, resguardando, primordialmente el interés público, en caso de que no suceda esto, la fuerza pública podrá proceder inclusive por uso
+de la fuerza para cesar cualquier actividad no autorizada.

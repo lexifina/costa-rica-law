@@ -1,0 +1,11 @@
+CAPITULO II. ATRIBUCIONES MUNICIPALES.
+Artículo 6. Atribuciones. a) El Concejo Municipal será el responsable de conceder o de denegar las peticiones que realicen los sujetos pasivos; mediante acto motivado asignará la categoría a los establecimientos definidos en la jurisdicción cantonal donde se les indicará el tipo de licencia, la categoría, el giro comercial y su horario, como lo ordenan los artículos 4 y 11 de la Ley 9047, después de que la Administración Tributara emita su criterio técnico de la posible actividad.
+6.1 Autorizar, denegar o cancelar la emisión de licencias permanentes de bebidas con contenido alcohólico
+6.2 Autorizar los cambios de giro del establecimiento, con el correspondiente ajuste del horario y del monto de pago de los derechos trimestrales de la licencia.
+6.3 Regular la comercialización de bebidas con contenido alcohólico, su consumo en las vías públicas y sitios públicos, los días que se celebren actos definidos en el artículo 26 de la Ley 9047. b) La administración activa a través de su equipo de profesionales según corresponda y en cumplimiento del mandato legal a nivel de los artículos 3 y 99 del Código de Normas y Procedimientos Tributarios, 4 inciso e) será la encargada de
+6.4 Elaborar todos los criterios técnicos que requiera la institución para aplicar el presente reglamento y demás normativa conexa.
+6.5 Asignar mediante acto motivado la categoría de los establecimientos indica el tipo de horario, y condiciones legales para su funcionamiento ordenado en los artículos 4 y 11 de la Ley 9047.
+6.6 Ajustar los cálculos correspondientes a las categorías asociadas con la comercialización, venta o consumo a efectos de proceder a la tasación conforme a la Ley 9047.
+6.7 Regular y fiscalizar el adecuado funcionamiento de los establecimientos destinados a la comercialización o consumo de bebidas alcohólicas para la efectiva tutela de las disposiciones urbanísticas, protección de la salud y la seguridad pública.
+6.8 Realizar la homologación de categorías en las actividades asociadas a la comercialización de bebidas de contenido alcohólico, ajustes y cálculos correspondientes a efecto de proceder a la tasación conforme a la Ley 9047 y este Reglamento.
+6.9 Imponer las sanciones establecidas en la Ley 9047 y este reglamento.

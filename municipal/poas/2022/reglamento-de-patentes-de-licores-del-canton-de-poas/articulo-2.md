@@ -1,0 +1,2 @@
+Artículo 2. Requerimientos:
+Para ejercer la comercialización al detalle de bebidas con contenido alcohólico en el Cantón de Poás, los interesados deberán contar con la licencia municipal respectiva, la cual se obtendrá mediante el cumplimiento de los requisitos establecidos en el presente reglamento. A su vez, la obtención de la licencia generará la obligación del titular de pagar a favor de la Municipalidad un impuesto trimestral por adelantado de conformidad con la ley vigente.

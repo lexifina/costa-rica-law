@@ -1,0 +1,1 @@
+Artículo 25. Cada una de las categorías deberán de cumplir con la distancia mínima que establece el artículo 9 de la Ley 9047, los horarios del artículo 11 de la ley 9047 (tanto para ventas en sitio como para servicio a domicilio); además de cumplir con Ley 7600 y el artículo 85 "espacios de estacionamientos" del Reglamento de Construcciones de la Municipalidad de Poás vigente.
