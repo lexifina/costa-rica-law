@@ -14,3 +14,4 @@ Reglamento para los Servicios de Alimentación al Público
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-04-17 | la propia norma |
+| 2 | 2022-11-25 | Decreto Ejecutivo 43842 (2022-11-25) |
