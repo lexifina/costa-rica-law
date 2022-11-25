@@ -1,0 +1,1 @@
+Artículo 3° .-Modificase los artículos 2°, 5° y 6º de la Ley de Presupuesto Ordinario y Extraordinario de la República para el Ejercicio Económico del 2022, Ley No. 10.103 citada, con el fin de realizar el traslado de partidas en los Órganos del Gobierno de la República aquí incluidos.
