@@ -1,0 +1,1 @@
+ARTÍCULO 2- El costo de reposición de la cédula de identidad será definido anualmente por el Tribunal Supremo de Elecciones, mediante acuerdo tomado al efecto, con base en el principio de servicio al costo, lo cual será divulgado por los medios institucionales correspondientes.
