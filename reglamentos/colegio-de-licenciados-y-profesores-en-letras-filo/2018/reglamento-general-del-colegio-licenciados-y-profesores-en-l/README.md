@@ -14,3 +14,4 @@ Reglamento general del Colegio Licenciados y Profesores en Letras, Filosofía Ci
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-07-20 | la propia norma |
+| 2 | 2022-11-26 | Reglamento 112 (2022-11-26) |
