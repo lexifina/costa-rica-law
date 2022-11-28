@@ -1,1 +1,0 @@
-Transitorio II.—Los permisos especiales que hayan sido solicitados antes de la publicación del presente Decreto y se encuentren aún pendientes de ser resueltos y analizados por parte del CTP, al amparo del Decreto Ejecutivo N° 15203-MOPT y sus Reformas, se les dará su debido trámite.

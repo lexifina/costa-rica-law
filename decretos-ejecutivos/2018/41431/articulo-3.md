@@ -1,1 +1,0 @@
-Artículo 3º—El Consejo de Transporte Público no recibirá solicitudes nuevas para operar servicios al amparo de permisos especiales, hasta que se logre equilibrar las demandas de estos servicios mediante estudios técnicos de oferta y demanda, y se promulgue un nuevo reglamento para el otorgamiento de servicios especiales en todas sus modalidades.
