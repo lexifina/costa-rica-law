@@ -1,0 +1,5 @@
+CAPÍTULO 3
+Otorgamiento de la autorización
+Artículo 3º—Autorización. La corporación municipal mediante el área de Licencias Comerciales, bajo la supervisión y visto bueno del señor Alcalde Municipal, podrá emitir, mediante resolución fundada, el otorgamiento de una licencia de actividad comercial de alimentos y bebidas, que se encuentren en propiedad privada o en concesión, una “autorización de comercio al aire libre”, para la utilización de espacios públicos tales como aceras, parques, plazas, vía pública, calles u otros lugares públicos, siempre y cuando la persona solicitante haya cumplido con todas sus obligaciones establecidas en la Ley de Comercio al Aire Libre Ley N° 10.126, leyes conexas del cantón de Mora y en este reglamento.
+Para el otorgamiento de la autorización mencionada en este acápite, será requisito indispensable que el beneficiario o licenciatario del mismo, se encuentre al día en el pago tanto de los tributos nacionales como municipales.
+No se podrá emitir la autorización de comercio al aire libre para licencias ambulantes o estacionarias.

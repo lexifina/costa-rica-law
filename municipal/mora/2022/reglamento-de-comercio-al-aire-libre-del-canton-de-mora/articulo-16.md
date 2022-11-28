@@ -1,0 +1,1 @@
+Artículo 16.—Formula de cobro. El monto a pagar por concepto del derecho de uso de espacios públicos otorgado mediante la autorización de comercio al aire libre, según la cantidad de metros cuadrados del espacio público destinada a su actividad.
