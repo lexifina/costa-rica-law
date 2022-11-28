@@ -1,0 +1,1 @@
+Artículo 119.-Todas las propuestas de reglamentos que elabore la Junta Directiva del Comité Cantonal de Deportes para la implementación de lo dispuesto en el presente reglamento deberán contar con la aprobación del Concejo Municipal.

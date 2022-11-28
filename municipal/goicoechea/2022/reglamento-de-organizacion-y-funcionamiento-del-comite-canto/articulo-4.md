@@ -1,0 +1,1 @@
+Artículo 4°-Las personas integrantes de la Junta Directiva del Comité Cantonal de Deporte y Recreación de Goicoechea serán juramentados por el Concejo Municipal de Goicoechea, en la sesión ordinaria que siga al nombramiento en firme de las personas integrantes.

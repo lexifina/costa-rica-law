@@ -1,0 +1,1 @@
+Artículo 108.-La juramentación del o los nuevos miembros del Comité Cantonal de Deportes que hayan sido nombrados ya sea por el Concejo Municipal o por la instancia que corresponda, se llevara a cabo a más tardar ocho días después de la elección correspondiente.

@@ -1,0 +1,1 @@
+Artículo 62.-En caso de renuncia, destitución o finalización de sus funciones por cualquier razón, el Comité Comunal enviará una terna al Comité Cantonal para que nombre a la persona sustituta de la persona integrante saliente.

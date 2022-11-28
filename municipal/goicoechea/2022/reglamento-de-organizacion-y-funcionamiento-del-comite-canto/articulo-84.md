@@ -1,0 +1,3 @@
+Artículo 84.-Los equipos afiliados, equipos de liga menor y selecciones locales que representen oficialmente a la comunidad y que estén reconocidos por el Comité Cantonal, tendrán prioridad para el uso de las instalaciones deportivas municipales.
+Las actividades organizadas por el Comité Cantonal o Comunal estarán exentas del pago de tarifas, exceptuando la luz eléctrica. Las competencias o campeonatos promovidos por órganos u organismos deportivos nacionales, con el aval previo del Comité Cantonal, deberán incluirse en la programación anual del uso de las instalaciones.
+Las competencias aficionadas tendrán preferencia sobres las no aficionadas o profesionales.

@@ -1,0 +1,3 @@
+CAPÍTULO XI
+De las finanzas
+Artículo 71.-La Municipalidad deberá asignar al Comité Cantonal al menos tres por ciento (3%) de los ingresos ordinarios anuales municipales. El giro correspondiente se realizará por parte de la Municipalidad al Comité Cantonal de forma periódica mensual, para lo cual el Comité Cantonal deberá cumplir con lo dispuesto por la Ley de la Administración Financiera de la República y Presupuestos Públicos N° 8131, Normas técnicas sobre presupuesto público, los lineamientos emitidos por la Contraloría General de la República y por la Municipalidad de Goicoechea y demás normativa vigente aplicable.

@@ -1,0 +1,1 @@
+Artículo 27.-Los requisitos para ser la persona fiscal serán los mismos que se establece el artículo 14 de este Reglamento y adicionalmente deberá contar con conocimiento en materia de control interno, materia presupuestaria o administración de recursos públicos.

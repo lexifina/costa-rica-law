@@ -1,0 +1,1 @@
+Artículo 83.-Las políticas para el establecimiento de tarifas por el uso de las instalaciones deportivas y recreativas de la Municipalidad bajo su administración estarán a cargo del Comité Cantonal y deberán ser aprobadas semestralmente por el Concejo Municipal.

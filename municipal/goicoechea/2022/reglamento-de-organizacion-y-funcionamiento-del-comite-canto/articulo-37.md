@@ -1,0 +1,1 @@
+Artículo 37.-Toda persona integrante, en el plazo de tres días hábiles siguientes contados a partir del día siguiente de la ausencia, en forma escrita deberá comunicar cuando proceda, las razones de su inasistencia. La Junta Directiva aprobará o no las razones como justificantes.

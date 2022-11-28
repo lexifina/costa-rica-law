@@ -1,0 +1,1 @@
+Artículo 33.-Las sesiones deberán iniciarse a más tardar quince minutos después de la hora señalada para que sean válidas. En caso de falta de quórum se hará constar la asistencia de los presentes, para los efectos de los artículos 33, 36 y 37 de este Reglamento. Ninguna sesión podrá extenderse por más de tres horas ni pasar de la media noche.

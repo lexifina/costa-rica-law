@@ -1,0 +1,1 @@
+Artículo 70.-La Junta Directiva del Comité Cantonal definirá un único manual con las normas respectivas para la realización de torneos internos en los Distritos, mismo que será de aplicación obligatoria de los Comités Comunales.

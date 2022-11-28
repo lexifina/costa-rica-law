@@ -1,0 +1,1 @@
+Artículo 58.-Los Comités Comunales estarán integrados por una Junta Directiva, compuesta de siete miembros: presidencia, vicepresidencia, secretaría, tesorería y vocalías, de acuerdo con el principio de paridad y alternancia de género. Adicionalmente, el Comité Cantonal de Deportes nombrará una persona fiscal de la Junta Directiva en cada distrito.

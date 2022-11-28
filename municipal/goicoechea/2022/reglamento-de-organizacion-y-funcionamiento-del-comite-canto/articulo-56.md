@@ -1,0 +1,1 @@
+Artículo 56.-Los Comités Comunales durarán en sus cargos dos años y serán nombrados en Asamblea General Ordinaria convocada al efecto por el Comité Cantonal, misma que se llevará a cabo a más tardar el 30 de enero del año de elección, según lo dispuesto por el artículo 175 del Código Municipal.

@@ -1,0 +1,1 @@
+Artículo 78.-Los Comités Comunales deberán presentar ante el Comité Cantonal, un plan anual operativo en el mes de mayo de cada año, en el cual se indicarán las actividades y proyectos a desarrollar. Adicionalmente presentarán un informe de rendición de cuentas en el mes de octubre, donde indiquen las principales actividades desarrolladas, los ingresos y egresos del período

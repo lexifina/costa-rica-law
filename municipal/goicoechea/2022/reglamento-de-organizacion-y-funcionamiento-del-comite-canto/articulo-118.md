@@ -1,0 +1,1 @@
+Artículo 118.-La Municipalidad de Goicoechea, con el fin de garantizar un óptimo funcionamiento administrativo, brindará asesoría técnica al Comité para la contratación del personal administrativo de conformidad con el Manual Descriptivo de Puestos del Comité.

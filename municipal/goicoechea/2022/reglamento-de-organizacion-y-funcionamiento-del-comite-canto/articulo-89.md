@@ -1,0 +1,1 @@
+Artículo 89.-El Comité Cantonal regulará y aprobará lo referente a las cuotas de ingreso a las instalaciones deportivas, incluyendo la forma en que se deben distribuir los ingresos obtenidos por este concepto.

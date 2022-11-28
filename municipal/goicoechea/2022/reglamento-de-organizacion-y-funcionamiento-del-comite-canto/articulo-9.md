@@ -1,0 +1,1 @@
+Artículo 9.- Están inhibidos para integrar el Comité Cantonal, los Comités y Subcomités Comunales; las personas miembros del Concejo, propietarias o suplentes, la alcaldía, vice alcaldía, la tesorería, la auditoría y la contaduría municipal, sus cónyuges, parientes, en línea directa o colateral hasta el tercer grado inclusive.
