@@ -14,3 +14,4 @@ Reglamento para Prevenir, Investigar y Sancionar en casos de Hostigamiento Sexua
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-12-14 | la propia norma |
+| 2 | 2022-11-28 | Reglamento municipal 220 (2022-11-28) |

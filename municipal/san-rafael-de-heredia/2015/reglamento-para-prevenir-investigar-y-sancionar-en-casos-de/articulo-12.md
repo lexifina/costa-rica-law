@@ -1,4 +1,4 @@
-Artículo 12.—Medidas cautelares. La Comisión Investigadora, previa solicitud de parte y mediante resolución fundada podrá solicitar al alcalde (sa), ordenar cautelarmente:
+Artículo 12.-Medidas cautelares: La Comisión Investigadora Municipal, previa solicitud de parte y mediante resolución fundada podrá solicitar al Alcalde(sa) Municipal, ordenar cautelarmente:
 a) Que el presunto hostigador, se abstenga de perturbar al denunciante.
 b) Que el presunto hostigador se abstenga de interferir en el uso y disfrute de los instrumentos de trabajo de la persona hostigada.
 c) La reubicación laboral.
