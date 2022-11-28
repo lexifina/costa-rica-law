@@ -1,0 +1,1 @@
+Artículo 16º Derogatoria. El presente reglamento deroga el Reglamento de Decomisos de Mercadería por Ventas Ambulantes y Estacionarias de la Municipalidad de Heredia, publicado en La Gaceta No. 160 del martes 27 de agosto de 2019.

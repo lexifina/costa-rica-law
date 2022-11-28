@@ -1,0 +1,1 @@
+Artículo 15. Licencias otorgadas en espacios públicos. Aquellas actividades comerciales similares, amparadas en licencias o patentes otorgadas antes de la entrada en vigor del presente Reglamento, identificadas en la Municipalidad de Heredia como Licencias Estacionarias o ambulantes, podrán seguir funcionando en los sitios autorizados hasta que se agote su periodo de vigencia.

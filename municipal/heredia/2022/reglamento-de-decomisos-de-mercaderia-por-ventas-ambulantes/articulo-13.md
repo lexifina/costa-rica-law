@@ -1,0 +1,1 @@
+Artículo 13º. En aquellos casos de artículos decomisados que contravengan el Capítulo V de la Ley de Procedimientos de Observancia de los Derechos de Propiedad intelectual No. 8039 de 12 de octubre de 2000, publicada; para tales efectos presentará las denuncias respectivas a la Fiscalía con la evidencia decomisada.
