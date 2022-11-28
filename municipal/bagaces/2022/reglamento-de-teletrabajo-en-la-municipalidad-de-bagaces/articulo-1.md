@@ -1,0 +1,17 @@
+MUNICIPALIDAD DE BAGACES
+El Concejo de Bagaces acuerda:
+REGLAMENTO DE TELETRABAJO EN
+LA MUNICIPALIDAD DE BAGACES
+El Concejo de Bagaces, de conformidad con lo que establecen los artículos 169 y 170 de la Constitución Política; 4°, inciso 3 a); 13, inciso c); del Código Municipal, por acuerdo N° 06-26-2022, Artículo V. Inciso 3, tomado en sesión ordinaria veintiséis del dos mil veintidós, celebrada el martes 03 de mayo del 2022.
+Considerando:
+1.-Que el teletrabajo es una modalidad de organización de la prestación laboral basada en las tecnologías de la información, por el cual la Municipalidad de Bagaces, podrá obtener importantes beneficios, al fomentar la reducción del consumo del combustible; el impacto positivo en el medio ambiente; la organización, al exigir la identificación de los objetivos y la evaluación del grado de su cumplimiento, así como para los funcionarios que al desempeñar, total o parcialmente su jornada de trabajo desde su domicilio o lugar habilitado ven aumentadas sus posibilidades de conciliación del desarrollo profesional y laboral.
+2.-Que la Alcaldía, procedió a desarrollar, la implementación de ésta modalidad de trabajo, debido a la pandemia por COVID-19 y se verifico su efectividad y ahorro tanto para el trabajador como para la institución; realizando una coordinado con las diferentes Direcciones del Municipio, con consultas, y se ha logrado dinamizar un sistema viable para la Institución. El presente documento es fruto de esa iniciativa y es propicio para asumir los retos impuestos por las nuevas tecnologías de la información.
+3°-Que existen funcionarios de diversos niveles ocupacionales y diferentes Direcciones e instancias de la Institución que tienen interés de que se continúe con la implementación de la modalidad de prestación de servicios de teletrabajo, pues consideran que se logra la consecución de los objetivos propuestos y el fin del servicio público.
+4°-Que la Administración, debe propiciar proyectos que promuevan la eficiencia, la eficacia, economía, celeridad, en la función pública, por medio de iniciativas que surjan del cambio tecnológico y las prácticas administrativas, desde la guía de la Alcaldía, con el apoyo de las Direcciones y del cuerpo funcionarial en general, en fin todo el aparato institucional, el cual se debe a los administrados, beneficiarios últimos del servicio público prestado por la Municipalidad de Bagaces.
+5°-Que la práctica del Teletrabajo requiere establecer una serie de principios, reglas, procedimientos y roles que permitan su aplicación de forma clara y uniforme para todas las instancias de la Municipalidad.
+6°-Que por lo expuesto y de forma complementaria a la normativa que, regula toda la materia laboral y la del uso de las tecnologías de la información; se procede a dictar el presente Reglamento.
+REGLAMENTO DE TELETRABAJO EN
+LA MUNICIPALIDAD DE BAGACES
+CAPÍTULO I
+Generalidades
+Artículo 1°-El objetivo del teletrabajo es contribuir con la modernización de la Municipalidad, mejorar la calidad en el servicio al usuario, aumentar la productividad, reducir costos, mejorar el servicio al usuario y brindar el mejor desarrollo laboral de los funcionarios de la Municipalidad, todo de conformidad con los Principios Administrativos de Eficiencia, Eficacia, Economía y Celeridad. Este reglamento es aplicable a todos los trabajadores que tienen puestos con actividades que la Municipalidad determine como teletrabajables y donde existan las condiciones tecnológicas requeridas para su implementación.

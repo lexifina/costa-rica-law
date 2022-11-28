@@ -1,0 +1,1 @@
+Artículo 57.-La Comisión, en conjunto con el Departamento de Recursos Humanos, coordinará los requerimientos de capacitación del programa de teletrabajo, hará la provisión presupuestaria correspondiente y realizará las convocatorias a participar de los eventos que se programen.

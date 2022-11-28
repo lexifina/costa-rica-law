@@ -1,0 +1,2 @@
+Tecnología de la información
+Artículo 17.-La Municipalidad podrá dotar en calidad de préstamo y de acuerdo con sus posibilidades, de equipo de cómputo y accesorios necesarios a los teletrabajadores. En los casos donde esa situación no se pueda cumplir, el acceso a internet, la línea telefónica, el mobiliario y equipo de cómputo, los debe aportar el teletrabajador con los costos que esto represente. Esta situación, deberá quedar debidamente consignada en el acuerdo suscrito por las partes.
