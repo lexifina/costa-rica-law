@@ -1,0 +1,1 @@
+Artículo 31.-Convocatoria. El Concejo Municipal hará la convocatoria a cabildo abierto por medios idóneos que garanticen su conocimiento por parte de la población, en tiempo prudencial que no será menor a un mes de su celebración.
