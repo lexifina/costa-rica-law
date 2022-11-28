@@ -14,3 +14,4 @@ Reglamento de etiquetado de los productos de tabaco y sus derivados
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-07-18 | la propia norma |
+| 2 | 2022-11-28 | Decreto Ejecutivo 43819 (2022-11-28) |
