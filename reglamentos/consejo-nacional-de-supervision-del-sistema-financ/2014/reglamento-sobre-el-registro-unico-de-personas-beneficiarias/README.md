@@ -15,3 +15,4 @@ Reglamento sobre el Registro Único de personas beneficiarias
 | --- | --- | --- |
 | 1 | 2014-07-27 | la propia norma |
 | 2 | 2014-10-20 | Reglamento 1130 (2014-10-20) |
+| 3 | 2022-11-28 | Reglamento 1772 (2022-11-28) |
