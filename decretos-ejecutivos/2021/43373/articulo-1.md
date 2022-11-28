@@ -19,5 +19,7 @@ DECRETAN
 Reglamento para la asignación de la capacidad de pesca reconocida al Estado
 de Costa Rica en la Comisión Interamericana del Atún
 Tropical para su utilización por buques atuneros de cerco
-Artículo 1°-OBJETIVO: El objetivo del presente reglamento es regular la asignación de la capacidad de pesca para su utilización por buques atuneros de cerco, reconocida al Estado de Costa Rica en la resolución sobre la capacidad de la flota atunera operando en el Océano Pacífico Oriental, en adelante "capacidad de pesca", de la Comisión Interamericana del Atún Tropical, en adelante CIAT, así como la creación del registro de asignación de esta capacidad y la captura nominal generada.
+Artículo 1°-OBJETIVO: El objetivo del presente reglamento es regular la asignación de la capacidad de pesca para su utilización por buques atuneros de cerco, reconocida al Estado de Costa Rica en la resolución sobre la capacidad de la flota atunera operando en el Océano Pacífico Oriental, en adelante capacidad de pesca, de la Comisión Interamericana del Atún Tropical, en adelante CIAT, así como la creación del registro de asignación de esta capacidad y la captura nominal generada.
 La asignación de la capacidad de pesca reconocida al Estado de Costa Rica constituye un derecho soberano de participación costarricense en la pesquería de atún y especies afines en el área de la Convención de la CIAT y el Océano Pacífico Oriental, en adelante OPO.
+La asignación de capacidad de pesca por parte del Estado, deberá procurar el abastecimiento de materia prima, a la industria nacional, y la de incentivar la creación de una flota pesquera atunera nacional.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 43811 del 28 de noviembre de 2022)

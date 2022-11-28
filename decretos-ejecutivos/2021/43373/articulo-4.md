@@ -1,5 +1,6 @@
 Artículo 4°-TRAMITES PREVIOS: El MAG, previo a la asignación de la capacidad de pesca a embarcaciones pesqueras atuneras de pabellón nacional o extranjero con red de cerco, deberá realizar las siguientes acciones:
-a)Verificará la disponibilidad de la capacidad de pesca, según el registro de asignaciones de capacidad de pesca establecido en el artículo 15 de este reglamento.
-b)Determinará con base en los estudios técnicos, la asignación de volúmenes parciales con sustento en la recomendación establecida en el artículo 3 de este reglamento.
-c)Emitirá un comunicado oficial, que se publicará en el Diario Oficial La Gaceta, así como en la página web del MAG, la disponibilidad de la asignación de la capacidad de pesca.
-d)El MAG realizará el procedimiento para la asignación de la cuota, establecido de conformidad con los términos y condiciones del presente reglamento.
+a) Verificará la disponibilidad de la capacidad de pesca, según el registro de asignaciones de capacidad de pesca establecido en el artículo 15 de este reglamento y de conformidad al estudio de mercado elaborado por el Incopesca, que determine las necesidades de la industria nacional.
+b) Determinará con base en los criterios técnicos, la asignación de volúmenes totales o parciales con sustento en la recomendación establecida en el artículo 3 de este reglamento.
+c) Emitirá un comunicado oficial, que se publicará en el Diario Oficial La Gaceta, así como en la página web del MAG, en dicho comunicado se establecerá las fechas de inicio y cierre de recepción de solicitudes (el plazo no podrá ser menor a un mes calendario), así como los porcentajes reservados que se indican el artículo 2 sobre la disponibilidad de la asignación de la capacidad de pesca.
+d) El MAG realizará el procedimiento para la asignación de la cuota, establecido de conformidad con los términos y condiciones del presente reglamento.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 43811 del 28 de noviembre de 2022)
