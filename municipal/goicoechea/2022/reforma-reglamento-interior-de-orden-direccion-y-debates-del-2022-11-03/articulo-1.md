@@ -1,0 +1,3 @@
+MUNICIPALIDAD DE GOICOECHEA
+El Concejo Municipal del Cantón de Goicoechea en Sesión Extraordinaria 23-2022, celebrada el día 03 de noviembre de 2022, Artículo II. VII por unanimidad y con carácter firme aprobó el Dictamen N° 24-2022 de la Comisión Especial de Estudio y Creación de Reglamentos, donde se aprueba:
+"Aprobar la siguiente reforma al artículo 68 del Reglamento Interior de Orden, Dirección y Debates del Cantón de Goicoechea, y que en adelante se lea de la siguiente manera: "Artículo 68. Una misma regiduría no podrá ser la Presidencia o Vicepresidencia, en más de cuatro comisiones de forma simultánea Podrán ser reelectas en sus cargos de forma indefinida".
