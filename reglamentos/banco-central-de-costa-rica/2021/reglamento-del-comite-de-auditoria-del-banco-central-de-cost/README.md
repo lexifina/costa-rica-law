@@ -14,3 +14,4 @@ Reglamento del comité de auditoría del Banco Central de Costa Rica
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-02-25 | la propia norma |
+| 2 | 2022-11-29 | Reglamento 6094 (2022-11-29) |
