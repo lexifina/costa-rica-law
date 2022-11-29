@@ -1,5 +1,7 @@
-Artículo 6°-Responsables del Fondo Fijo de Caja Chica. Corresponden a la jefatura de Proveeduría Municipal y al Tesorero Municipal.
-La Jefatura de Proveeduría Municipal: es el responsable de la operatividad del Fondo Fijo de Caja Chica. Compete el ejercicio de las siguientes funciones:
+Artículo 6°-Responsables del Fondo Fijo de Caja Chica. Corresponden a Jefatura de Proveeduría y en ausencia de este, al Proveedor municipal y al Tesorero Municipal.
+(Así reformado el párrafo anterior en sesión ordinaria N°208 del 29 de noviembre del año 2022)
+La Jefatura de Proveeduría Municipal y/o al Proveedor Municipal: es el responsable de la operatividad del Fondo Fijo de Caja Chica. Compete el ejercicio de las siguientes funciones:
+(Así reformado el párrafo anterior en sesión ordinaria N°208 del 29 de noviembre del año 2022)
 a) Autorizar las compras de los bienes y/o servicios que solicitan los diferentes departamentos municipales, sustentados en criterio de necesidad urgente, fuerza mayor o caso fortuito según el presente reglamento.
 b) Verificar si lo solicitado se encuentra o no en existencia en la bodega municipal.
 c) Velar si lo solicitado se puede adquirir por medio del Fondo Fijo de Caja Chica o se utiliza otro mecanismo de contratación administrativa.

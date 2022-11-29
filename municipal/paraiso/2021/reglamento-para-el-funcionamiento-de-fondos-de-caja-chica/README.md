@@ -14,3 +14,4 @@ Reglamento para el funcionamiento de fondos de caja chica
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-06-01 | la propia norma |
+| 2 | 2022-11-29 | Reglamento municipal 208 (2022-11-29) |
