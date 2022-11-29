@@ -19,3 +19,4 @@ Reforma acuerdos tomados en la sesión N° 5569-2013 del 7 de noviembre del 2012
 | 4 | 2017-05-29 | Acuerdo 0 (2017-05-29) |
 | 5 | 2020-04-15 | Acuerdo 0 (2020-04-15) |
 | 6 | 2020-12-02 | Reglamento 5974 (2020-12-02) |
+| 7 | 2022-11-29 | Reglamento 6094 (2022-11-29) |
