@@ -79,11 +79,13 @@ RAC-OPS 1.001 Aplicabilidad
 (b) La RAC-OPS 1 es aplicable para la operación de aviones con un peso máximo de despegue de más de 5,700 Kg o con una configuración mayor de 19 asientos para pasajeros y a todos los multimotores turborreactores (aviones de turbina o hélices), que operan comercialmente, pasajeros, carga y correo ubicado en el territorio nacional de la República de Costa Rica.
 (c) La RAC-OPS 1 no es aplicable a:
 (1) Los aviones que se utilicen en servicios militares, de aduana, de policía, y en general de Estado; ni
-(2) Los vuelos de lanzamiento de paracaidistas, contra incendios o la actividad de trabajo aéreo, ni a sus vuelos de ida y regreso asociados, siempre que las personas a bordo estén directamente relacionadas con este tipo de vuelos; ni
+(2) (Derogado este inciso por el artículo 1° del decreto ejecutivo N° 43909 del 29 de noviembre del 2022)
 (3) Las operaciones sujetas a un Certificado Operativo (CO).
 (d) En el Anexo 1 al RAC-OPS 1 se establecen los requisitos de la sección 1 para operadores con aviones de hélice con una configuración aprobada de asientos para 19 pasajeros o menos, o con un peso máximo de despegue de 5.700 Kg. o menos. Los requisitos que noestén listados en el Anexo 1 se deben aplicar como están establecidos en la sección 1 deeste RAC-OPS 1. (Ver anexo 1 a la RAC OPS Sección 1)
 (e) Las aeronaves de operadores extranjeros operando comercialmente, pasajeros, carga y correo en el territorio nacional deben cumplir con la norma internacional, así mismo con lo establecido en la normativa aplicable de la Republica de Costa Rica, y estarán incluidos en el sistema de vigilancia de la DGAC.
 (Así adicionado el inciso anterior por el artículo 1° del decreto ejecutivo N° 43357 del 17 de noviembre del 2021)
+(f) Las aeronaves certificadas bajo esta regulación podrán realizar adicionalmente operaciones de vuelos ambulancia o paracaidismo si cumplen las normas y procedimientos establecidos por la DGAC y otras entidades estatales que correspondan para tales efectos.
+(Así adicionado el inciso anterior por el artículo 1° del decreto ejecutivo N° 43909 del 29 de noviembre del 2022)
 RAC-OPS 1.003 Definiciones y Abreviaturas
 (Ver CA OPS 1.003)
 (a) Definiciones:
@@ -7595,7 +7597,7 @@ Encabezamiento principal | Áreas amplias que han de tratarse en la solicitud | 
 | columna de subrequisitos. | Equipo requerido para operaciones con sistemas de visión |
 Encabezamiento principal | Áreas amplias que han de tratarse en la solicitud | Subrequisitos | Referencia del manual de operaciones del operador o documento de referencia
 | | Tipos de aproximación en que pueden utilizarse sistemas de visión. Declaración de que el piloto automático/dispositivo director de vuelo debería utilizarse cuando sea posible. Referencias visuales mínimas para el aterrizaje. Prohibición de aproximación, y RVR en la aproximación. Criterios para aproximaciones estabilizadas. Posiciones correctas de asientos y ojos. Coordinación de la tripulación, p. ej., tareas del piloto a los mandos y del piloto que no está a los mandos: ❑ limitaciones; ❑ designación de piloto encargado y piloto no encargado; |
-| | ❑ uso de sistema de mando automático de vuelo; ❑ tramitación de la lista de verificación; ❑ información para la aproximación; ❑ manejo de las radiocomunicaciones; ❑ vigilancia y verificación de instrumentos y radioayudas; y ❑ uso de la pantalla repetidora por el piloto que no está a los mandos. Procedimientos de contingencia incluyendo: ❑ fallas por encima y por debajo de la altura de decisión; ❑ advertencia de desviación del ILS; ❑ piloto automático desconectado; ❑ mando de gases automático desconectado; ❑ fallas eléctricas; ❑ fallas del motor; ❑ fallas y pérdidas de referencias visuales a la altura de decisión o por debajo; |
+| | ❑ uso de sistema de mando automático de vuelo; ❑tramitación de la lista de verificación; ❑ información para la aproximación; ❑ manejo de las radiocomunicaciones; ❑ vigilancia y verificación de instrumentos y radioayudas; y ❑ uso de la pantalla repetidora por el piloto que no está a los mandos. Procedimientos de contingencia incluyendo: ❑ fallas por encima y por debajo de la altura de decisión; ❑ advertencia de desviación del ILS; ❑ piloto automático desconectado; ❑ mando de gases automático desconectado; ❑ fallas eléctricas; ❑ fallas del motor; ❑ fallas y pérdidas de referencias visuales a la altura de decisión o por debajo; |
 Encabezamiento principal | Áreas amplias que han de tratarse en la solicitud | Subrequisitos | Referencia del manual de operaciones del operador o documento de referencia
 | | - falla del sistema de visión/HUD por debajo de la altura de decisión |
 | | normal; ❑ cizalladura del viento; ❑ advertencias ACAS; ❑ advertencias EGPWS. |

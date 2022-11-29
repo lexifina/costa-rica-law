@@ -15,3 +15,4 @@ Regulaciones aeronáuticas costarricenses, transporte aéreo comercial (aviones)
 | --- | --- | --- |
 | 1 | 2020-10-30 | la propia norma |
 | 2 | 2021-11-17 | Decreto Ejecutivo 43357 (2021-11-17) |
+| 3 | 2022-11-29 | Decreto Ejecutivo 43909 (2022-11-29) |
