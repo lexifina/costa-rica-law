@@ -14,3 +14,4 @@ Reglamento para la prevención, investigación y sanción del hostigamiento sexu
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-02-28 | la propia norma |
+| 2 | 2022-11-29 | Reglamento 1760 (2022-11-29) |
