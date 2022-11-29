@@ -1,1 +1,1 @@
-Artículo 18.—De conformidad con el artículo 126 de la Ley General de Migración y Extranjería los apátridas podrán optar por la categoría de Residente Permanente y estarán exonerados de los costos por concepto de cambio de categoría migratoria, así como del pago del depósito de garantía.
+Artículo 18.- (Derogado por el artículo 7° del decreto ejecutivo N° 43810 del 29 de noviembre del 2022)

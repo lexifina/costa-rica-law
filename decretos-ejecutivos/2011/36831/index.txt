@@ -145,3 +145,4 @@ articulo-144.md
 articulo-145.md
 articulo-146.md
 articulo-147.md
+articulo-1-transitorio.md

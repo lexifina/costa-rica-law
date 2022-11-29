@@ -14,3 +14,4 @@ Reglamento de Personas Refugiadas
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-11-01 | la propia norma |
+| 2 | 2022-11-29 | Decreto Ejecutivo 43810 (2022-11-29) |
