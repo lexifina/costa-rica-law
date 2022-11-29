@@ -1,1 +1,0 @@
-Artículo 3º—Colaboración. Los funcionarios y las instituciones públicas y privadas, dentro del bloque de legalidad respectivo y en la medida de sus posibilidades, podrán y procurarán contribuir con sus recursos u otras opciones de cooperación posibles, sin menoscabo del cumplimiento de sus propios objetivos.

@@ -1,2 +1,0 @@
-Artículo 4º—Dirección y Coordinación. La coordinación general del proyecto estará a cargo de la Comisión Nacional de “Ciudad Gobierno”, esta comisión la conforman los y las jerarcas de los Ministerios de Planificación Nacional y Política Económica, quién la coordina; de Obras Públicas y Transportes; de Hacienda; de Vivienda y Asentamientos Humanos; del Instituto Nacional de Vivienda y Urbanismo; y el Alcalde de la Municipalidad de San José; cada jerarca podrá asignar un representante.
-(Así reformado por el artículo 2° del decreto ejecutivo N° 42310 del 6° de julio de 2020)
