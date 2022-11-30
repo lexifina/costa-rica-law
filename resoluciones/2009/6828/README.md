@@ -14,3 +14,4 @@ Amplia la lista del equipo médico, que se detalla en el Reglamento para la Impo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-08-26 | la propia norma |
+| 2 | 2022-11-30 | Decreto Ejecutivo 43902 (2022-11-30) |
