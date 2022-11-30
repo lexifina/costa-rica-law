@@ -14,3 +14,4 @@ Reglamento de proveeduría
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-04-28 | la propia norma |
+| 2 | 2022-11-30 | Reglamento municipal 212 (2022-11-30) |
