@@ -14,3 +14,4 @@ Importación de guantes de uso médico sin registro sanitario, para lo que solic
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-05-14 | la propia norma |
+| 2 | 2022-11-30 | Decreto Ejecutivo 43902 (2022-11-30) |
