@@ -1,1 +1,0 @@
-Artículo 4°—Los contribuyentes del impuesto general sobre las ventas que adquieran de los mayoristas indicados en el artículo 1º bebidas gaseosas para su venta al consumidor final, tienen derecho al crédito fiscal únicamente cuando estos bienes se incorporen en la prestación de servicios gravados tales como: hoteles, restaurantes, bares y similares.
