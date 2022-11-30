@@ -19,3 +19,4 @@ Reglamento para el funcionamiento y la utilización del portal "Regístrelo"
 | 4 | 2014-04-09 | Decreto Ejecutivo 38409 (2014-04-09) |
 | 5 | 2014-06-10 | Decreto Ejecutivo 38498 (2014-06-10) |
 | 6 | 2015-08-10 | Decreto Ejecutivo 39252 (2015-08-10) |
+| 7 | 2022-11-30 | Decreto Ejecutivo 43902 (2022-11-30) |
