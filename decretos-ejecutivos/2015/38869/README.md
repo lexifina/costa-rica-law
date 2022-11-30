@@ -14,3 +14,4 @@ Reforma Reglamento para el registro, clasificación, importación y control de e
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-03-10 | la propia norma |
+| 2 | 2022-11-30 | Decreto Ejecutivo 43902 (2022-11-30) |
