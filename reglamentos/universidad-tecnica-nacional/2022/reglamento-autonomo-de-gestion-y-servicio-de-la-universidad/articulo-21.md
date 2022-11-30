@@ -1,10 +1,2 @@
-Artículo 21. Jornada adicional para atender funciones docentes. Las personas servidoras pueden laborar más de un tiempo completo y hasta un máximo de tiempo y medio en labores docentes, o desempeñando funciones administrativas por tiempo completo y hasta medio tiempo en labores docentes.
-Cuando se requiera que la jornada sea superior a un tiempo y cuarto, se debe justificar para atender las siguientes situaciones imprevistas:
-a. Licencia o incapacidad médica.
-b. Fallecimiento de la persona servidora.
-c. Renuncia o abandono de trabajo.
-d. Conveniencia institucional.
-e. Condiciones de ubicación geográfica derivadas de las condiciones particulares de la persona servidora.
-f. Desastres naturales.
-g. Suspensión laboral por situaciones legales.
-En ningún caso, puede existir superposición horaria. La violación a lo aquí dispuesto es justa causa de despido.
+Artículo 21. Jornada adicional para atender funciones docentes. Las Decanaturas y Director Ejecutivo de Centro de Formación Pedagógica, podrá autorizar incrementos docentes de jornada hasta por un cuarto de tiempo. Cuando se requiera de manera excepcional y por razones imprevistas que la jornada de un funcionario sea hasta tiempo y medio, deberá solicitarse la autorización al Rector. En ningún caso, podrá existir superposición horaria. Los funcionarios administrativos de la institución, podrán ser considerados para estos nombramientos docentes únicamente por un cuarto de tiempo y en casos de inopia declarada. Estos tipos de nombramientos de señalados anteriormente, no podrán sobrepasar el plazo de un año.
+(Reformado mediante Acuerdo 11 tomado por el Consejo Universitario en la Sesión Ordinaria No. 30-2022, celebrada el miércoles 30 de noviembre de 2022 a las once horas, según el Artículo 16 del Capítulo IX. Dirección General de Asuntos Jurídicos).

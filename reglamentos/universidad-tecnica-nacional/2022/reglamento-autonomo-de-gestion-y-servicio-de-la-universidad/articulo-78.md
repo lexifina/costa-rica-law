@@ -8,7 +8,7 @@ e. Responder, personalmente, ante la UTN o ante terceros por todos los daños qu
 f. Ofrecer a las personas servidoras la consideración y el debido respeto, sin perjuicio de la obligación de denunciar todo comportamiento indecoroso, irrespetuoso, deshonesto, que éstos muestren en el ejercicio de sus funciones.
 g. Colaborar en la prestación de servicios en horas y días inhábiles, cuando así lo requiera la institución para atender situaciones de emergencia, con los ajustes de horario que sea necesario realizar
 h. Guardar la discreción necesaria sobre asuntos relacionados con su trabajo, que por su naturaleza o en virtud de instrucciones de sus superiores así se requiera, sin perjuicio de la obligación de denunciar cualquier hecho delictivo.
-i. [imagen] Guardar hacia el público toda la consideración y el debido respeto, de modo que no se origine queja justificada por servicio o atención deficiente.
+i. Guardar hacia el público toda la consideración y el debido respeto, de modo que no se origine queja justificada por servicio o atención deficiente.
 j. Cumplir con las normas de puntualidad y asistencia de acuerdo con la jornada y horario asignados.
 k. Subsanar los errores que se le imputen, aunque esto implique laborar fuera de su jornada ordinaria, sin derecho alguno a retribución económica.
 l. Cumplir con las normas de seguridad e higiene tales como uso de uniformes, gabachas, accesorios especiales y cualquier otra que indique la normativa universitaria.

@@ -8,4 +8,4 @@ f. Notificar a las partes, dentro de los plazos establecidos, sobre los actos de
 g. Emitir, en el plazo establecido, un informe final debidamente fundamentado, trasladarlo a la autoridad competente para que ejerza la potestad disciplinaria y ampliarlo por solicitud de esta.
 h. Velar por el cumplimiento de los plazos del procedimiento disciplinario establecidos en este reglamento.
 i. Denunciar ante las autoridades competentes cualquier actuación irregular u obstrucción del procedimiento, por parte de miembros de la comunidad universitaria.
-j Recomendar, en forma razonada a las autoridades competentes, por iniciativa propia o por solicitud de las partes interesadas, la adopción de medidas cautelares, con la finalidad de asegurar la protección y el respeto a los derechos de las partes, denunciantes o testigos.
+j. Recomendar, en forma razonada a las autoridades competentes, por iniciativa propia o por solicitud de las partes interesadas, la adopción de medidas cautelares, con la finalidad de asegurar la protección y el respeto a los derechos de las partes, denunciantes o testigos.

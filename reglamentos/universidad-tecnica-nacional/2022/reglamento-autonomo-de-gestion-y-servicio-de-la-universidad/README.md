@@ -14,3 +14,4 @@ Reglamento autónomo de gestión y servicio de la Universidad Técnica Nacional
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-07-28 | la propia norma |
+| 2 | 2022-11-30 | Reglamento 30 (2022-11-30) |

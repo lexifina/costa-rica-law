@@ -1,5 +1,5 @@
 Artículo 97. Condiciones que afectan la presentación en el trabajo. La asistencia al trabajo bajo los efectos del licor o drogas enervantes, o el consumo de éstos durante el transcurso de la jornada, además del rebajo del salario correspondiente, da lugar a la imposición de las siguientes sanciones, sujeto al debido proceso:
-a.Por primera vez, amonestación por escrito.
+a. Por primera vez, amonestación por escrito.
 b. Por segunda vez, suspensión sin goce de salario hasta por quince días.
 c. Por tercera vez, despido sin responsabilidad patronal.
 No obstante, lo anterior en caso que producto del estado de embriaguez o intoxicación se deriven situaciones dañosas, se procederá con el despido sin responsabilidad patronal de la persona servidora dependiendo de la gravedad de los daños generados a la Institución o terceros particulares afectados.
