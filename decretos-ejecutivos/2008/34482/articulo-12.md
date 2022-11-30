@@ -1,1 +1,1 @@
-Artículo 12.—La presentación de los requisitos para registro podrá hacerse en forma electrónica según procedimiento establecido vía resolución y de acuerdo con los lineamientos establecidos legalmente.
+Artículo 12.- (Derogado por el artículo 4° del Reglamento Técnico RTCR:505: 2022 "Equipo y material biomédico. clasificación, registro, importación, etiquetado, publicidad, vigilancia, y control", aprobado mediante decreto ejecutivo N° 43902 del 30 de noviembre del 2022)

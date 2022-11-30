@@ -1,3 +1,3 @@
 CAPÍTULO V
 Prohibiciones
-Artículo 24.—Los EMB para diagnóstico "in Vitro" de uso personal establecidos en los numerales 4.3.12.4 y 4.4.10 del presente reglamento no serán autorizadas por el Ministerio de Salud para la venta al público.
+Artículo 24.- (Derogado por el artículo 4° del Reglamento Técnico RTCR:505: 2022 "Equipo y material biomédico. clasificación, registro, importación, etiquetado, publicidad, vigilancia, y control", aprobado mediante decreto ejecutivo N° 43902 del 30 de noviembre del 2022)

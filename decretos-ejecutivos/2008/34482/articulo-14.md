@@ -1,1 +1,1 @@
-Artículo 14.—El registro de EMB tendrá una vigencia de cinco años, Derjuicio de las facultades de cancelación o modificación que le otorga linisterio la Ley General de Salud.
+Artículo 14.- (Derogado por el artículo 4° del Reglamento Técnico RTCR:505: 2022 "Equipo y material biomédico. clasificación, registro, importación, etiquetado, publicidad, vigilancia, y control", aprobado mediante decreto ejecutivo N° 43902 del 30 de noviembre del 2022)

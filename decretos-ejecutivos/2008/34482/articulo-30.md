@@ -1,1 +1,1 @@
-Artículo 30.—Rige a partir de su publicación.
+Artículo 30.- (Derogado por el artículo 4° del Reglamento Técnico RTCR:505: 2022 "Equipo y material biomédico. clasificación, registro, importación, etiquetado, publicidad, vigilancia, y control", aprobado mediante decreto ejecutivo N° 43902 del 30 de noviembre del 2022)

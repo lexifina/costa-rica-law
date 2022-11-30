@@ -1,13 +1,1 @@
-Artículo 8°—Para los EMB clase 3, se requiere el registro en el Ministerio de Salud. Para ello, deberá ser presentado a la unidad organizacional respectiva del Nivel Central del Ministerio de Salud los originales de la siguiente información:
-8.1. Formulario de solicitud de registro sanitario de EMB. Se debe utilizar el Formulario de solicitud de registro de EMB oficial y vigente, indicando todos los datos que se solicitan, a máquina, sin correcciones, borrones o tachaduras. La solicitud debe venir firmada por el responsable legal del producto. Al momento de su entrega deberá presentar su cédula de identidad; en caso de que no realicen el
-trámite personalmente, la firma en la solicitud debe estar autenticada y debe adjuntarse una copia de su cédula de identidad certificada por notario público, por única vez.
-8.2 Para el caso de EMB importados deberá presentarse el Certificado de Libre Venta y uso del país de origen, debidamente autenticado, legalizado por parte del consulado de Costa Rica en ese país acompañado de su traducción oficial, cuando el idioma de origen no sea el español.
-8.3. Especificaciones médicas y técnicas para el EMB en español cuando el idioma de origen sea diferente además presentar las instrucciones de uso para los EMB para diagnóstico in vitro.
-8.4. Certificado de buenas prácticas de manufactura del fabricante, emitido por la autoridad competente del país de origen, debidamente autenticado, legalizado por parte del consulado de Costa Rica en ese país y acompañado de su traducción oficial, cuando el idioma de origen no sea el español. Para los EMB esterilizados este certificado debe indicar que el método de esterilización ha sido validado.
-8.5. Autorización de la fuente de emisión para los EMB que emiten radiaciones ionizantes.
-8.6. Cancelación del pago o arancel definido por el Ministerio de Salud según decreto. '
-8.7. Lista de los países donde el EMB se comercializa.
-8.8. Presentación de un programa de vigilancia para el EMB por parte del fabricante.
-8.9. Resumen en español de los ensayos clínicos incluyendo las referencias bibliográficas, donde se demuestre la seguridad y eficacia del EMB y el estudio completo en forma digital o impresa. Para el registro de equipo para diagnóstico "in vitro" clase 3, además de lo indicado en los incisos anteriores, presentar la siguiente documentación:
-8.10. Indicar la norma internacional que contenga los estándares de exactitud y precisión aplicables al EMB.
-8.11. Etiquetado original del producto en caso de equipo para diagnóstico "in vitro" de uso personal. En caso de estar en idioma diferente al español, acompañado de la traducción y del arte de nueva etiqueta.
+Artículo 8°-(Derogado por el artículo 4° del Reglamento Técnico RTCR:505: 2022 "Equipo y material biomédico. clasificación, registro, importación, etiquetado, publicidad, vigilancia, y control", aprobado mediante decreto ejecutivo N° 43902 del 30 de noviembre del 2022)

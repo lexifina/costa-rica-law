@@ -1,1 +1,1 @@
-Artículo 11.—El Certificado de buenas prácticas de manufactura del fabricante podrá ser sustituido por un certificado emitido por un ente certificador autorizado y reconocido por el Ente Costarricense de Acreditación.
+Artículo 11.- (Derogado por el artículo 4° del Reglamento Técnico RTCR:505: 2022 "Equipo y material biomédico. clasificación, registro, importación, etiquetado, publicidad, vigilancia, y control", aprobado mediante decreto ejecutivo N° 43902 del 30 de noviembre del 2022)

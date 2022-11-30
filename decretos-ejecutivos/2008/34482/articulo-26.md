@@ -1,1 +1,1 @@
-Artículo 26.—Toda persona responsable de un EMB debe reportar a la unidad organizativa del Nivel Central del Ministerio de Salud que corresponda en el momento que ocurra cualquier problema de mal funcionamiento o eventos adversos detectados en el uso del EMB.
+Artículo 26.- (Derogado por el artículo 4° del Reglamento Técnico RTCR:505: 2022 "Equipo y material biomédico. clasificación, registro, importación, etiquetado, publicidad, vigilancia, y control", aprobado mediante decreto ejecutivo N° 43902 del 30 de noviembre del 2022)
