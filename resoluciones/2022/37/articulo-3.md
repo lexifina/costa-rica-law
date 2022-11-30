@@ -1,0 +1,1 @@
+Artículo 3.- La presente disposición se mantendrá vigente en el tanto el impuesto al valor agregado se recaude con base en la aplicación del margen de ganancia estimada a nivel de aduana, y no se traslade la liquidación y recaudación del mismo al sistema general del impuesto al valor agregado.
