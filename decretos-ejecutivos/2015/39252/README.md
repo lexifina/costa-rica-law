@@ -14,3 +14,4 @@ Reforma Reglamento para el funcionamiento y la utilización del portal "Regístr
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-10-30 | la propia norma |
+| 2 | 2022-11-30 | Decreto Ejecutivo 43902 (2022-11-30) |
