@@ -1,0 +1,6 @@
+Transitorio. Los pensionados que al momento en que entre en vigencia la reforma al artículo 1 de este acuerdo se encuentren disfrutando de una pensión que utilice, para su cálculo, la tasa técnica del 3%, anteriormente vigente, podrán solicitar a la operadora donde se encuentren afiliados el recálculo de la pensión a pagar, con la nueva tasa técnica establecida en el artículo 1. Las operadoras deberán comunicar de lo anterior a los pensionados que hayan adquirido dichos productos para que puedan realizar la solicitud de recálculo, si así fuere su voluntad.
+El recálculo no dará derecho al cambio de modalidad indicado en el artículo 3 de este acuerdo y tampoco interrumpirá el plazo de un año indicado en el artículo 14, cumplido el cual, el afiliado podrá cambiar de modalidad de pensión, según señala el inciso 3 del artículo 47 del Reglamento de beneficios del régimen de capitalización individual.
+Vigencia.
+Esta reforma entrará en vigor quince días naturales contados a partir del día siguiente a su publicación en el diario oficial La Gaceta.
+Publíquese en el Diario Oficial La Gaceta.
+Comuníquese a las Operadoras de Pensiones Complementarias y a la Asociación Costarricense de Operadoras de Pensiones (ACOP).
