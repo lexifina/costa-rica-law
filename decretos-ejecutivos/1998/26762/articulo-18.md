@@ -1,2 +1,0 @@
-Artículo 18.- El Consejo de Ministros de Integración Económica deberá elevar a conocimiento de la Reunión de Presidentes, las propuestas de políticas y estrategias sobre las materias de su competencia que requieran de decisión del órgano supremo del SICA.
-Los Consejos, a través de la SIECA, informarán semestralmente de sus actividades a la Reunión de Presidentes, a cuyo efecto la SIECA mantener la más estrecha relación de coordinación con la Secretaría General del SICA (SG-SICA).

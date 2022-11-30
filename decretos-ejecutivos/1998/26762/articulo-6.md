@@ -1,2 +1,0 @@
-Artículo 6º—Son Consejos Sectoriales de Ministros de Integración Económica específicos: el Consejo Agropecuario Centroamericano, el Consejo Monetario Centroamericano, los Consejos de Ministros de Hacienda o Finanzas, de Infraestructura, de Transporte, de Turismo y de Servicios.
-(Así reformado por Resolución 136-2004 COMIECO, puesta en vigencia por decreto ejecutivo N° 32361 de 22 de abril de 2005).

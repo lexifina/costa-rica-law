@@ -1,3 +1,0 @@
-CAPITULO VI
-Preparación de las decisiones del Consejo
-Artículo 49.- Una vez aprobada la agenda por el Consejo, la SIECA, con el auxilio de las demás secretarías técnicas que corresponda, hará la presentación de los documentos técnicos relacionados con cada punto de la agenda. Cuando proceda, en las reuniones intersectoriales se organizarán Grupos de Homólogos compuestos por los Ministros o sus Delegados, de todos los países y del mismo ramo de actividad, quienes, asistidos por la SIECA o las respectivas secretarías técnicas según la temática que compele conocer a cada Grupo, se reunirán por separado.

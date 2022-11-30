@@ -1,1 +1,0 @@
-Artículo 21.- Las reuniones de los Consejos Intersectorial y Sectorial de Ministros de Integración Económica y de las entidades se refiere el artículo 7° de este Reglamento se celebrarán en cualquier tiempo, para cumplir con los objetivos y propósitos del Subsistema de Integración Económica.

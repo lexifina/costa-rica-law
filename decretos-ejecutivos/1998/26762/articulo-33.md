@@ -1,3 +1,0 @@
-Artículo 33.- El quórum del Consejo se constituye con la presencia de representantes de todos los países miembros.
-Si la reunión del Consejo no pudiera celebrarse en la fecha señalada en la primera convocatoria, por falta de quórum, podrá tener lugar en la fecha que determine una segunda convocatoria, siempre que se trate de la misma agenda. En tal caso bastará la presencia de la mayoría de sus miembros, aunque no estén representados todos los Estados Parte.
-No obstante lo anterior, si en la agenda figurara un asunto que atañe única y exclusivamente a un país determinado, tal tema no podrá ser tratado sin la presencia del país interesado, sin perjuicio de que se conozcan los demás temas de la agenda.

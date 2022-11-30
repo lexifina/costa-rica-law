@@ -1,4 +1,0 @@
-Artículo 23.- La Agenda Preliminar de cada reunión del Consejo, así como cualquier tema suplementario que se proponga, serán sometidos a consideración del mismo en su primera sesión de trabajo, para su aprobación o modificación.
-En el transcurso de cualquier reunión ordinaria el Consejo podrá modificar, incorporar o eliminar los temas de la Agenda aprobada, excepto aquellos que esté obligado a conocer por disposición de los instrumentos de la Integración Económica.
-La agenda de todas las reuniones debe comprender como primer punto, la evaluación del estado de los acuerdos suscritos en las reuniones anteriores, pendientes de cumplimiento.
-(Así adicionado el último párrafo por Resolución No 42-99 (COMIECO XIII), la cual fue aprobada por decreto ejecutivo N° 28223 de 30 de setiembre de 1999).

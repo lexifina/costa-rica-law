@@ -1,1 +1,0 @@
-Artículo 52.- Agotada la etapa anterior, los Grupos de Homólogos se reunirán de nuevo para discutir los puntos de vista de los respectivos Grupos de Ministros y ponerse de acuerdo, en su caso, acerca de la propuesta definitiva de decisión a someter, en la sesión plenaria, al Consejo de Ministros, la cual será transmitida por el vocero que designara cada Grupo de Homólogos.

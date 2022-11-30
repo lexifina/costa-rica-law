@@ -1,2 +1,0 @@
-Artículo 47.- La falta de lectura y aprobación de las actas no impedirá la ejecución y puesta en práctica de las decisiones del Consejo en la forma y tiempo que las mismas establezcan.
-No obstante lo anterior, cualquier Estado Parte podrá pedir revisión de las decisiones del Consejo, la cual se discutirá y decidirá en el período de sesiones siguiente al en que se hubieren adoptado. De ser declarada con lugar la revisión, la decisión de que se trate quedará modificada como corresponda, pero los efectos que hubiere producido quedarán totalmente firmes y convalidados.

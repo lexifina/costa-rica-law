@@ -1,3 +1,0 @@
-Artículo 22.- La SIECA cursará la correspondiente convocatoria a todos los miembros de los respectivos órganos con suficiente anticipación a la reunión de que se trate, y en ella se consultará la Agenda Preliminar propuesta. Se circulara una propuesta de agenda anotada con un mes de anticipación y la definitiva quince días antes de la respectiva reunión.
-(Así reformado el párrafo anterior por la Resolución No 42-99 (COMIECO XIII), aprobada por decreto ejecutivo N° 28223 de 30 de setiembre de 1999).
-Los documentos técnicos o informativos que se relacionen con la Agenda de las reuniones se enviarán a los miembros de los órganos de que se trate con 10 días hábiles de antelación, cuando ello sea posible.

@@ -1,1 +1,0 @@
-Artículo 54.- Las reuniones de los Grupos de Homólogos y de los representantes de las entidades a que se refiere el artículo 7 de este Reglamento se regirán por los procedimientos y demás disposiciones previstas en el presente Reglamento, en lo que fueren aplicables.

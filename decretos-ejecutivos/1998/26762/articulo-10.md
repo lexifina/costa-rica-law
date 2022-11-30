@@ -1,2 +1,0 @@
-Artículo 10.- El presente Reglamento se aplicará e interpretará de conformidad con los propósitos, objetivos, principios y enunciados básicos de los Protocolos de Tegucigalpa y de Guatemala y los precedentes que apruebe el Consejo de Ministros de Integración Económica.
-Las disposiciones interpretativas que apruebe la Corte Centroamericana de Justicia serán consideradas como precedentes y podrán invocarse como fuente de Derecho.

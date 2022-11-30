@@ -1,1 +1,0 @@
-Artículo 46.- Las actas serán leídas y aprobadas en el curso del período de sesiones a que correspondan. Pero cuando ello no fuere posible por razones atendibles, se leerán y aprobarán en la primera sesión de la reunión siguiente.

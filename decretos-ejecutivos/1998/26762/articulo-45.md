@@ -1,2 +1,0 @@
-Artículo 45.- Todo lo tratado y resuelto por el Consejo deberá figurar en un acta de cada reunión, en la que deberá asentarse, de manera general y resumida, las principales intervenciones de sus miembros, excepto cuando cualquiera de ellos solicite dejar constancia expresa de su punto o puntos de vista, en cuyo caso tal intervención deberá particularizarse lo más fielmente posible. El interesado podrá suministrar el texto escrito de su intervención.
-Las actas deberán contener, también, las decisiones del Consejo en forma clara, precisa e individualizada.

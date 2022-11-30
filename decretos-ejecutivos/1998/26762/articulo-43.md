@@ -1,1 +1,0 @@
-Artículo 43.- El Secretario General de la SIECA, o la persona que haga sus veces, no podrá ser excluido de ninguna de las reuniones del Consejo, sean ellas formales, informales, públicas o restringidas, y tendrá derecho a voz, pero no a voto, así como a las más amplia capacidad de propuesta sobre los asuntos sometidos a conocimiento del Consejo.

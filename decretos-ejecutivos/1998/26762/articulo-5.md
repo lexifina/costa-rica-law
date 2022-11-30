@@ -1,1 +1,0 @@
-Artículo 5°- En Consejo Sectorial de Ministros de Integración Económica lo conforman, por cada ramo de las administraciones públicas nacionales, los Ministros o sus representantes, en su caso, de todos los Estados Parte del Protocolo de Guatemala.

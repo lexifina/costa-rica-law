@@ -1,1 +1,0 @@
-Artículo 51.- Las propuestas de decisión que se adopten por cada Grupo de Homólogos se discutirán separadamente en el seno del Grupo de Ministros de cada país asistentes a la reunión del Consejo, a fin de conciliar, en su caso, los intereses nacionales con el interés regional.

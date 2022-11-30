@@ -1,5 +1,0 @@
-Artículo 31.-
-1) Las Resoluciones son los actos obligatorios mediante los cuales el Consejo adopta decisiones referentes a los asuntos internos del Subsistema de Integración Económica; constituyen un todo indivisible; contienen las disposiciones de fondo relacionadas con el cumplimiento de los objetivos fundamentales del Subsistema de Integración Económica; deben ser debidamente razonadas en su propio texto; serán interpretadas de manera que ninguna de sus disposiciones se contradiga y tengan efectiva aplicación en todas sus partes; y contendrán la indicación de los medios de acción para su ejecución efectiva.
-2) Los Reglamentos tendrán carácter general, obligatoriedad en todos sus elementos y serán directamente aplicables en todos los Estados Parte. En el procedimiento de su adopción el Consejo consultará al Comité Consultivo de Integración Económica.
-3) Los Acuerdos tendrán carácter específico o individual y serán obligatorios para sus destinatarios.
-4) Las Recomendaciones contendrán orientaciones que solo serán obligatorias en cuanto a sus objetivos y principios y servirán para preparar la emisión de Resoluciones, Reglamentos o Acuerdos.

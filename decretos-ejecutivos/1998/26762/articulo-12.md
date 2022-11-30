@@ -1,2 +1,0 @@
-Artículo 12.- Todos los asuntos y recomendaciones que surjan de los grupos técnicos serán conocidos por la Reunión de Viceministros de Integración Económica.
-El Consejo podrá delegar en la reunión de Viceministros o Vicepresidentes de sus respectivos ramos, el estudio y decisión de determinados asuntos de su competencia, cuando lo estime pertinente y así convenga a los intereses del Subsistema de Integración Económica.

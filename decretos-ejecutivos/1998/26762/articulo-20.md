@@ -1,2 +1,0 @@
-Artículo 20.- Las reuniones ordinarias del Consejo de Ministros de Integración Económica se celebrarán tres veces al año, los viernes siguientes a las reuniones de Viceministros de los meses 4, 8 y 12. Las reuniones extraordinarias podrán celebrarse en cualquier tiempo, cuando sea necesario
-(Así reformado por la Resolución No 42-99 (COMIECO XIII), la cual fue aprobada por decreto ejecutivo N° 28223 de 30 de setiembre de 1999).

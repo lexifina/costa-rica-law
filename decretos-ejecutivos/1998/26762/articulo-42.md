@@ -1,1 +1,0 @@
-Artículo 42.- Todos los miembros asesores de las respectivas delegaciones podrán asistir a las sesiones del Consejo, pero no tendrán derecho a participar en las mismas, a menos que a petición expresa del Jefe de Delegación correspondiente sea autorizados para ello por el Presidente.

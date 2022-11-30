@@ -1,1 +1,0 @@
-Artículo 36.- Ningún miembro del Consejo podrá hacer uso de la palabra sin previa autorización del Presidente, quien la otorgará en la forma prevista en la literal e) del artículo 33 de este Reglamento.

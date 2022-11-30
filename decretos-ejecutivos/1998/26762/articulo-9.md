@@ -1,2 +1,0 @@
-Artículo 9°- Los representantes designados ante los Consejos tendrán, por el solo hecho de su designación, todas las facultades de deliberación y adopción de decisiones que les compete de conformidad con el Protocolo de Guatemala, el Protocolo de Tegucigalpa y los demás instrumentos derivados o complementarios de tales convenios.
-Las designaciones no podrán estar sujetas a condición o limitación alguna.

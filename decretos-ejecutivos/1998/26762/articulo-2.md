@@ -1,1 +1,0 @@
-Artículo 2°- Cuando en este Reglamento se utilizan las expresiones "el Consejo" o "los Consejos", debe entenderse que se refieren, indistintamente, a los tres Consejos de Ministros establecidos por el artículo 37, numeral 2, del Protocolo de Guatemala, de cuya organización funcionamiento trata el presente instrumento.

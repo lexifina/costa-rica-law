@@ -1,2 +1,0 @@
-Artículo 25.- Normalmente las reuniones de los Consejos se celebrarán en forma rotativa y en orden alfabético de los países centroamericanos, pero el Consejo podrá variar ese orden. Las reuniones extraordinarias podrán celebrase (sic) fuera de Centroamérica, pero siempre deberán ser previamente convocadas y en ellas estará presente la SIECA.
-La SIECA deberá hacer las consultas pertinentes con todos los miembros del respectivo Consejo.

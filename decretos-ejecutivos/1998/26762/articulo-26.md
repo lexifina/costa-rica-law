@@ -1,1 +1,0 @@
-Artículo 26.- Las sesiones del Consejo serán abiertas en cuanto a la presencia de todas las delegaciones, salvo cuando por la naturaleza de los temas a tratar se decida celebrarlas de manera restringida.

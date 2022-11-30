@@ -1,1 +1,0 @@
-Artículo 50.- Cada Grupo de Homólogos elegirá a un Director de Debates y a un Subdirector, en su caso, procederá a organizarse internamente como lo estime pertinente, pudiendo establecer grupos de trabajo que lo asistan técnicamente, y analizara la temática de la agenda que le corresponda conocer en razón de su competencia.

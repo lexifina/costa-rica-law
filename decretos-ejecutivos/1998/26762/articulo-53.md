@@ -1,1 +1,0 @@
-Artículo 53.- El Consejo de Ministros, reunido en sesiones plenarias, recibirá de los respectivos voceros las correspondientes propuestas de decisión, procederá a su discusión y análisis y decidirá lo procedente.
