@@ -14,3 +14,4 @@ Procedimiento de Autorización de Importación Utilizados en la Investigación B
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-10-21 | la propia norma |
+| 2 | 2022-11-30 | Decreto Ejecutivo 43902 (2022-11-30) |
