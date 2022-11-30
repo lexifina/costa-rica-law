@@ -17,3 +17,4 @@ Reglamento a la Ley Sobre Desarrollo de la Comunidad
 | 2 | 2002-06-27 | Decreto Ejecutivo 30546 (2002-06-27) |
 | 3 | 2002-11-26 | Decreto Ejecutivo 30940 (2002-11-26) |
 | 4 | 2006-02-16 | SINALEVI (sin norma nombrada) |
+| 5 | 2022-11-30 | Decreto Ejecutivo 43924 (2022-11-30) |
