@@ -14,3 +14,4 @@ Reglamento para la prestación de los servicios de mantenimiento preventivo y co
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-11-30 | la propia norma |
+| 2 | 2022-11-30 | Reglamento 0 (2022-07-28) |
