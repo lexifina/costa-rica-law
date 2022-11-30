@@ -14,3 +14,4 @@ Modifica la estructura de la sub-partida arancelaria 9022.12 realizando las aper
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-09-24 | la propia norma |
+| 2 | 2022-11-30 | Decreto Ejecutivo 43902 (2022-11-30) |
