@@ -1,0 +1,1 @@
+Artículo 10.—Sobre la disponibilidad de recursos para atender los servicios de mantenimiento: Los proveedores garantizarán al BCBCR, que contarán con el personal, espacio, herramientas, software, repuestos de prueba y demás insumos que sean necesarios para atender el servicio de mantenimiento que sea requerido, según se describe en los requisitos técnicos del presente Reglamento.

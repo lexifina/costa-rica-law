@@ -1,0 +1,1 @@
+Artículo 9º—Sobre la asignación de servicios. Los servicios de mantenimiento preventivo y correctivo serán asignados por la Unidad de Mantenimiento Vehicular a través del rol de asignación de servicios a los proveedores inscritos en un registro de elegibles.

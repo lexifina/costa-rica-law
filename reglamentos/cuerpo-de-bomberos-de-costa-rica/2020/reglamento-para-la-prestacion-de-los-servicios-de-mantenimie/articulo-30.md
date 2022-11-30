@@ -1,0 +1,1 @@
+Artículo 30.—Ámbito de servicio: Los talleres clase A podrán solicitar ser parte de la clasificación “taller clase B”. Lo anterior siendo el interés que los proveedores de considerarlo oportuno puedan registrarse en todas las categorías que contempla el reglamento.

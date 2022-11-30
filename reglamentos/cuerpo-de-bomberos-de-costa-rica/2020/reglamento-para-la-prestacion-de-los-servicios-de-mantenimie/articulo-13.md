@@ -1,0 +1,19 @@
+Artículo 13.—Del anexo 6 “Formulario Prestación de Servicios”: Sin excepción, los interesados en prestar los servicios relacionados al presente Reglamento deberán indicar en el Formulario Prestación de Servicios lo siguiente:
+a) Datos generales del solicitante. Nombre, número de identificación, correo electrónico, domicilio, número de teléfono, la ubicación física de las instalaciones donde se prestará el servicio y el medio a través del cual atenderá comunicaciones.
+b) Servicios y subservicios: Indicará el tipo de mantenimiento vehicular que puede proveer. En ese sentido, el ofrecimiento puede comprender un único tipo de servicio, a saber, mantenimiento preventivo, mantenimiento correctivo o reparaciones emergentes, sin perjuicio de eventuales ofrecimientos para proveer dos o la totalidad de ellos. En este caso, en el formulario marcará las casillas correspondientes.
+c) El tipo de vehículo al que ofrece dar mantenimiento según la siguiente clasificación:
+- Liviano: De 0 a 2 toneladas.
+- Mediano: Más de 2 toneladas hasta 5 toneladas.
+- Pesado: Más de 5 toneladas.
+d) La marca del (los) automotor (es) y los componentes electromecánicos de los mismos a los que brindará servicio.
+e) El tipo de taller para el cual se califica, según la siguiente clasificación:
+- Clase “A”: Brindarán servicio a los vehículos con una antigüedad máxima 1825 días (5 años), contados a partir del año de fabricación del vehículo.
+- Clase “B”: Brindarán servicio para los vehículos con una antigüedad mayor a los pertenecientes a la clase “A”.
+El BCBCR se reserva el derecho de visitar las instalaciones que el proveedor ofrezca para prestar servicio, lo anterior para verificar que la asignación de la categoría sea real y se mantenga en el tiempo.
+f) La(s) zona(s) geográfica(s) dentro de la(s) cual (es) se ofrece prestar servicio.
+La(s) zona(s) geográfica(s) para la prestación de servicios estará(n) circunscrita(s) a los límites previstos para el Gran Área Metropolitana por el Ministerio de Vivienda y Asentamientos Humanos (MIVAH). Para tal efecto, a través del Anexo 10 “Estaciones y dependencias del Benemérito Cuerpo de Bomberos de Costa Rica” al presente Reglamento, se detalla la ubicación de las instalaciones institucionales a lo largo y ancho del territorio nacional.
+g) El precio de mano de obra: La propuesta económica detallará puntualmente, el costo por hora de servicio, el cual debe incluir todos los rubros asociados al mismo, entre ellos, salarios, cargas sociales y demás previsiones de ley.
+h) Servicio de traslado para asistencia técnica en sitio: Si el interesado ofrece el servicio de atención de servicios emergentes en sitio, así lo señalará puntualmente, entendiéndose que la reparación se realizará en el lugar donde se produjo la avería.
+En estos casos, el costo del traslado sólo se pagará cuando la avería se produzca fuera del Gran Área Metropolitana. En caso de ofrecerse el servicio de traslado para asistencia técnica en sitio, el interesado asumirá el compromiso de trasladarse a cualquier parte del país.
+A efecto de pago de los traslados referenciados en el párrafo anterior, el costo del mismo se calculará por hora según los tiempos de traslado contemplados en el anexo 8 “Horas traslado a Estaciones”.
+i) Horario de atención: El solicitante especificará el horario de los días hábiles, comprendidos entre lunes y viernes, dentro del cual garantiza prestar servicio. Dicho horario como mínimo debe extenderse de las 7:00 a.m. a las 5:00 p.m. En caso de ofrecer mayor disponibilidad de horario debe detallarlo. Quedan exentos del referido horario, los que implique la atención de servicios emergentes y mantenimientos de las unidades aeroportuarias, éstas últimas dada su sensible función, respecto de los cuales la disponibilidad horaria implicará sin excepción las 24 horas de cada uno de los días del año.

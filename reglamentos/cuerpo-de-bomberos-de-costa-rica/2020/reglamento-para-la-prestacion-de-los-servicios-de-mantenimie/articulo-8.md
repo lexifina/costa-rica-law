@@ -1,0 +1,1 @@
+Artículo 8º—Lugar de servicio: En cada caso, la UMV y el proveedor correspondiente convendrán en forma expresa, si el servicio se prestará en las instalaciones del Proveedor, en las de la UMV o en la respectiva estación de bomberos.

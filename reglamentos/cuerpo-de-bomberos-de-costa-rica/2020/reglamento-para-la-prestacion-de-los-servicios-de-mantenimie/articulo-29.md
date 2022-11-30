@@ -1,0 +1,4 @@
+Artículo 29.—Sobre los requisitos técnicos para brindar servicio:
+a) Quienes ofrezcan prestar servicio de Mantenimiento Correctivo, deberán cumplir con los requisitos técnicos detallados en el Anexo 3 del presente Reglamento. En igual sentido, quienes ofrezcan prestar servicio de Mantenimiento Preventivo, deberán cumplir con los requisitos técnicos detallados en el Anexo 4 del presente Reglamento.
+Sin perjuicio de lo que detallan los referidos Anexos 3 y 4, quien solicite ingreso al registro de proveedores para ambos servicios (preventivo y correctivo) podrá sujetarse a los requisitos mínimos de personal establecidos para el servicio de mantenimiento correctivo.
+b) Los requisitos de los servicios especializados se detallan y reseñan en el Anexo 5. “Requisitos técnicos para Servicios Especializados”.

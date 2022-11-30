@@ -1,0 +1,1 @@
+Artículo 11.—De la asignación para atender servicios emergentes. La distribución de servicios emergentes estará a cargo de la Unidad de Mantenimiento Vehicular, siguiendo al efecto, el rol secuencial de asignación correspondiente, del cual formarán parte los proveedores que hayan ofrecido dicho servicio.

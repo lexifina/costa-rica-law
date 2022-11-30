@@ -1,0 +1,2 @@
+Artículo 34.—Manual de Ejecución Contractual: Los proveedores deberán aplicar lo dispuesto por el BCBCR en el manual de ejecución que se genere complementariamente al presente reglamento, el cual será de conocimiento de los interesados junto con la invitación de participación.
+Nota: Debido al volumen de información, los documentos correspondientes al Manual de Ejecución de este reglamento, anexos y formularios estarán disponibles en la nuestra página web www.bomberos.go.cr y medios que oportunamente se comunicarán.
