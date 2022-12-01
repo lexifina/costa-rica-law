@@ -1,0 +1,4 @@
+Artículo 8. Inclúyase un Transitorio único al Reglamento de Personas Refugiadas, Decreto Ejecutivo número 36831-G, publicado en La Gaceta11ú01ero 209 del 1 de noviembre de 2011, que dirá lo siguiente:
+"Transitorio único: Las personas solicitantes de refugio que ya cuenten con permiso laboral previo a la reforma establecida en el presente decreto ejecutivo deberán demostrar en cada renovación de dicho permiso su respectivo aseguramiento ante la Caja Costarricense del Seguro Social, de manera ininterrumpida, conforme al artículo 7 inciso 7) de la Ley General de Migración y Extranjería N° 8764.
+De no demostrar su aseguramiento, se les dará un carné que les identifique como personas solicitantes de refugio, pero que no incluirá una autorización para laborar."
+Les permisos de trabajo que se hayan otorgado previo a la presente reforma subsistirán hasta que se emita por parte de la Administración la resolución en firme de la solicitud de refugio.
