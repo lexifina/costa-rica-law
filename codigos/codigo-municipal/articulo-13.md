@@ -1,10 +1,11 @@
-Artículo 13. — Son atribuciones del concejo:
+Artículo 13. - Son atribuciones del concejo:
 a) Fijar la política y las prioridades de desarrollo del municipio, conforme al programa de gobierno inscrito por el alcalde municipal para el período por el cual fue elegido y mediante la participación de los vecinos.
 (Así reformado el inciso anterior por el artículo 17 de la ley General de transferencia de competencias del Poder Ejecutivo a las Municipalidades, N° 8801 del 28 de abril de 2010)
 b) Acordar los presupuestos y aprobar las contribuciones, tasas y precios que cobre por los servicios municipales, así como proponer los proyectos de tributos municipales a la Asamblea Legislativa.
 c) Dictar los reglamentos de la Corporación, conforme a esta ley.
 d) Organizar, mediante reglamento, la prestación de los servicios municipales.
-e) Celebrar convenios, comprometer los fondos o bienes y autorizar los egresos de la municipalidad, excepto los gastos fijos y la adquisición de bienes y servicios que estén bajo la competencia del alcalde municipal, según el reglamento que se emita, el cual deberá cumplir con los principios de la Ley de Contratación Administrativa, No. 7494, de 2 de mayo de 1995 y su reglamento.
+e) Celebrar convenios, comprometer los fondos o bienes y autorizar los egresos de la municipalidad, excepto los gastos fijos y la adquisición de bienes y servicios que estén bajo la competencia del alcalde municipal, según el reglamento que se emita conforme a la Ley General de Contratación Pública y su reglamento.
+(Así reformado el inciso anterior por el artículo 134 inciso f) de la Ley General de Contratación Pública, N° 9986 del 27 de mayo de 2021)
 f)Nombrar y remover a la persona auditora, contadora, según el caso, así como a quien ocupe la secretaría del concejo.
 (Así reformado el inciso anterior por aparte c) del artículo único de la Ley N° 8679 del 12 de noviembre de 2008).
 g)Nombrar directamente, por mayoría simple y con un criterio de equidad entre géneros, a las personas miembros de las juntas administrativas de los centros oficiales de enseñanza y de las juntas de educación, quienes solo podrán ser removidos por justa causa. Además, nombrar, por igual mayoría, a las personas representantes de las municipalidades ante cualquier órgano o ente que los requiera.
