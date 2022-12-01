@@ -4,7 +4,7 @@ a) Fijar la política y las prioridades de desarrollo del municipio, conforme al
 b) Acordar los presupuestos y aprobar las contribuciones, tasas y precios que cobre por los servicios municipales, así como proponer los proyectos de tributos municipales a la Asamblea Legislativa.
 c) Dictar los reglamentos de la Corporación, conforme a esta ley.
 d) Organizar, mediante reglamento, la prestación de los servicios municipales.
-e) Celebrar convenios, comprometer los fondos o bienes y autorizar los egresos de la municipalidad, excepto los gastos fijos y la adquisición de bienes y servicios que estén bajo la competencia del alcalde municipal, según el reglamento que se emita conforme a la Ley General de Contratación Pública y su reglamento.
+e) e) Celebrar convenios, comprometer los fondos o bienes y autorizar los egresos de la municipalidad, excepto los gastos fijos y la adquisición de bienes y servicios que estén bajo la competencia del alcalde municipal, según el reglamento que se emita conforme a la Ley General de Contratación Pública y su reglamento.
 (Así reformado el inciso anterior por el artículo 134 inciso f) de la Ley General de Contratación Pública, N° 9986 del 27 de mayo de 2021)
 f)Nombrar y remover a la persona auditora, contadora, según el caso, así como a quien ocupe la secretaría del concejo.
 (Así reformado el inciso anterior por aparte c) del artículo único de la Ley N° 8679 del 12 de noviembre de 2008).
@@ -39,5 +39,11 @@ r) Autorizar las membresías ante entidades nacionales y extranjeras, públicas 
 (Corrida la numeración del inciso anterior por el artículo 1° de la ley N° 8822 del 29 de abril de 2010, que lo traspaso del antiguo inciso q) al inciso r) actual)
 s) Acordar, si se estima pertinente, la creación del servicio de policía municipal dentro de su jurisdicción territorial, su respectivo reglamento y su partida presupuestaria.
 (Así adicionado el inciso anterior por el artículo 3° de la ley N° 9542 "Ley de Fortalecimiento de la Policía Municipal" del 23 de abril del 2018)
-t) Las demás atribuciones que la ley señale expresamente.
-(Corrida la numeración del inciso anterior por el artículo 3° de la ley N° 9542 "Ley de Fortalecimiento de la Policía Municipal" del 23 de abril del 2018, que lo traspasó del antiguo inciso s) al t))
+t) Acordar, si se estima pertinente, la creación de la Oficina de la persona adulta mayor y de personas en situación de discapacidad dentro de su jurisdicción territorial, así como su respectivo reglamento y su partida presupuestaria, para velar, desde el ámbito local, por una efectiva inclusión, promoción y cumplimiento de los derechos de las personas adultas mayores y de las personas en situación de discapacidad.
+En caso de acordar su creación, esta oficina podrá articular y conjugar los fines y las funciones con la Comisión Municipal de Accesibilidad (Comad), para cumplir las políticas que la municipalidad acuerde y para maximizar la ejecución de resultados, del presupuesto y del recurso humano asignado. Igualmente, podrá coordinar acciones cantonales en la materia con el Consejo Nacional de Personas con Discapacidad (Conapdis) y el Consejo Nacional de la Persona Adulta Mayor (Conapam).
+Las municipalidades que acuerden crear estas oficinas podrán disponer, para su financiamiento, hasta de un treinta y cinco por ciento (35%) del cero coma cincuenta por ciento (0,50%) de los recursos que aportan al Consejo Nacional de Personas con Discapacidad, conforme al artículo 10 de la Ley 9303, Creación del Consejo Nacional de Personas con Discapacidad, de 26 de mayo de 2015.
+Esta oficina deberá rendir un informe de gestión anual ante el Concejo Municipal sobre la ejecución del presupuesto asignado, así como del cumplimiento de las metas establecidas.
+(Así adicionado el inciso t) anterior por el artículo único de la ley N° 10046 del 15 de noviembre del 2022, "Crea la oficina de la persona adulta mayor y de personas en situación de discapacidad en las Municipalidades")
+u) Las demás atribuciones que la ley señale expresamente.
+(Así modificada la numeración del inciso anterior por el artículo 3° de la ley N° 9542 "Ley de Fortalecimiento de la Policía Municipal" del 23 de abril del 2018, que lo traspasó del antiguo inciso s) al t).
+(Así modificada la numeración del inciso anterior por el artículo único de la ley N° 10046 del 15 de noviembre del 2022, "Crea la oficina de la persona adulta mayor y de personas en situación de discapacidad en las Municipalidades", que lo traspasó del antiguo inciso t) al u))
