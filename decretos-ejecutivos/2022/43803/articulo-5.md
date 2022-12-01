@@ -1,0 +1,1 @@
+ARTÍCULO 5.- Restricción de inicio de procesos de Licitación y compra de edificios. Las Instituciones públicas que técnicamente sean incluidas en el alcance del proyecto no podrán iniciar trámites de licitación que impliquen compra de facilidades de infraestructura administrativa.
