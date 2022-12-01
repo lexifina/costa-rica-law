@@ -1,9 +1,10 @@
-Artículo 9º—Deberes de los miembros de la Junta Directiva:
+Artículo 9º-Deberes de los miembros de la Junta Directiva:
 a) Asistir a las sesiones puntualmente.
 b) Excusarse, según sea el caso, por la inasistencia a sesiones.
 c) Modificar o aprobar el Orden del Día de las sesiones del Órgano Colegiado.
 d) Emitir sus votos en los asuntos que se someten a conocimiento de la Junta Directiva.
-e) Integrar las comisiones que la Presidencia de la Junta Directiva les encargue.
+e) Integrar las comisiones/comités que la Presidencia de la Junta Directiva o la Junta Directiva les encargue.
+(Así reformado el inciso anterior en sesión N° 0133 del 1 de diciembre de 2022)
 f) Rendir informes verbales o escritos, según lo solicite la Junta Directiva, de todas las gestiones que realice en representación de la Junta o por encargo de la Junta Directiva.
 g) Comunicar a la Presidencia su retiro momentáneo o definitivo de la sesión correspondiente
 h) Pedir y obtener del Presidente el derecho de palabra para referirse a un asunto y externar su criterio hasta por tres turnos no mayores a cinco minutos cada uno de ellos, salvo que por la importancia del tema y a propuesta de alguno de los Directores, en el ánimo de buscar consenso, la Junta Directiva apruebe que el término de cada intervención se aumente pertinentemente a los requerimientos. Para estos efectos no se permitirá la cesión de tiempo por parte de un Director en beneficio de otro. El director podrá conceder interrupciones hasta por un máximo de un minuto. Cuando se trate de mociones, los directores harán uso de la palabra, por una única vez, hasta por tres minutos para referirse al asunto o moción en debate.
