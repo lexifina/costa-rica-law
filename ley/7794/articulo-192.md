@@ -1,6 +1,8 @@
-ARTÍCULO 192. — Deróganse las siguientes leyes:
-a) Código Municipal, No. 4574, de 4 de mayo de 1970.
-(Corregido mediante Fe de Erratas, publicada en La Gaceta N° 240 de 10 de diciembre 1998)
-b) Ordenanzas Municipales, No. 20, de 24 de julio de 1867.
-(Así corrida su numeración por el inciso a) del artículo único de la Ley N° 7812 del 8 de julio de 1998, que lo traspasó del antiguo 174 al 183 actual del artículo)
-(Corrida su numeración por el artículo 1° de la ley N° 9542 “Ley de Fortalecimiento de la Policía Municipal” del 23 de abril del 2018, que lo traspasó del antiguo artículo 183 al 192)
+Artículo 192- Requisitos documentales para el trámite. Los requisitos que se exigirán para el trámite simplificado de inicio y renovación serán establecidos vía reglamento.
+La municipalidad no podrá exigirle al administrado la presentación de ninguna constancia, fotocopia, certificación o cualquier información que emita de conformidad con el artículo 8 de la Ley 8220, Protección al Ciudadano del Exceso de Requisitos y Trámites Administrativos, de 4 de marzo de 2002. Además, verificará de forma interna si cumple con los requerimientos siguientes:
+a) Que la actividad esté conforme al uso de suelo establecido.
+b) Que el solicitante de la licencia comercial o la empresa, así como el dueño del inmueble donde se va a desarrollar la actividad, estén al día en el pago de impuestos y tarifas municipales.
+c) Los comprobantes de pago a favor del Servicio Nacional de Salud Animal del Ministerio de Agricultura y Ganadería (MAG) o a favor del Ministerio de Salud, según corresponda, o bien, el comprobante de exoneración del pago extendido por el Instituto Mixto de Ayuda Social (IMAS).
+En caso de no existir una plataforma electrónica donde se pueda constatar la información, sin perjuicio de que el solicitante aporte la información por su cuenta, la municipalidad podrá solicitar y verificar vía correo electrónico o por otro medio que sea de igual o de mayor efectividad:
+a) Que el solicitante se encuentre al día en los pagos correspondientes a la Caja Costarricense de Seguro Social (CCSS), al Fondo de Desarrollo Social y Asignaciones Familiares (Fodesaf) y no encontrarse moroso en el Registro de Infractores contemplado en el artículo 35 de la Ley 9028, Ley General de Control de Tabaco y sus Efectos Nocivos en la Salud, de 22 de marzo de 2012.
+(Así adicionado por el artículo 12 de la ley Fomento e incentivos a los emprendimientos y las microempresas, N° 9998 del 4 de octubre de 2021)
