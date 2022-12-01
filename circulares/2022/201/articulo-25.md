@@ -1,0 +1,1 @@
+Artículo 25.-Verificación de la conexión. A la hora y fecha señaladas, la persona juzgadora procederá a verificar que los interesados estén conectados a la aplicación. Si una o ambas partes omiten conectarse y no informan de inconveniente alguno al despacho, se dejará constancia de ello en el expediente. El despacho posteriormente resolverá lo que legalmente corresponda.
