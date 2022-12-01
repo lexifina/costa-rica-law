@@ -1,4 +1,4 @@
-Artículo 4º—Principios. La actividad del SINART, S. A., como sistema de comunicación, se inspirará en los siguientes principios:
+Artículo 4º-Principios. La actividad del SINART, S. A., como sistema de comunicación, se inspirará en los siguientes principios:
 a) La objetividad, veracidad e imparcialidad de las informaciones.
 b) La separación entre las informaciones y las opiniones, así como la identificación de quienes sustentan estas últimas y su libre expresión.
 c) El respeto al pluralismo político, religioso, social y cultural.
@@ -15,3 +15,5 @@ m) Promover el fortalecimiento de los valores en que se fundamenta el Estado cos
 n) Coadyuvar a garantizar las pautas indicadas en el artículo 89 de la Constitución Política, a efecto de desarrollar y conservar el patrimonio natural, histórico, artístico y cultural.
 ñ) Promover foros para la discusión de temas de interés nacional e internacional.
 o) Cooperar en el fortalecimiento de la comunidad internacional, especialmente en las materias atinentes a la promoción y tutela de los derechos humanos.
+p) principio de protección, promoción y divulgación de los derechos humanos de las mujeres y las niñas a una vida libre de violencia y discriminación en los ámbitos públicos y privados.
+(Así adicionado el inciso anterior por el artículo 36 de la Ley para Prevenir, Atender, Sancionar y Erradicar la Violencia contra las Mujeres en la Política, N° 10235 del 3 de mayo de 2022)

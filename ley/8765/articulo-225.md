@@ -1,6 +1,7 @@
 CAPÍTULO II
 RECURSO DE AMPARO ELECTORAL
-ARTÍCULO 225.- Derechos tutelados por el amparo electoral
-El recurso de amparo electoral constituye, además de un derecho fundamental en sí mismo, un mecanismo procesal para la tutela efectiva de los derechos y las libertades de carácter político-electoral.
+ARTÍCULO 225.- Derechos tutelados por el amparo electoral. El recurso de amparo electoral constituye, además de un derecho fundamental en sí mismo, un mecanismo procesal para la tutela efectiva de los derechos y las libertades de carácter político-electoral.
 El amparo electoral procederá contra toda acción u omisión, incluso, contra simple actuación material que viole o amenace violar cualquiera de los derechos, cuando el autor de cualesquiera de ellas sea un partido político u otros sujetos, públicos o privados, que de hecho o de derecho se encuentren en una posición de poder susceptible de afectar el ejercicio legítimo de los referidos derechos. Los reclamos contra las decisiones de los organismos electorales inferiores no se tramitarán por esta vía, sino por la del recurso de apelación electoral.
 Este recurso no solo procederá contra los actos arbitrarios sino también contra las actuaciones u omisiones fundadas en normas erróneamente interpretadas o indebidamente aplicadas.
+Serán conocidas por amparo electoral las manifestaciones de violencia contra las mujeres en la política, cuando esta suponga una afectación al efectivo ejercicio de su cargo o en general, del derecho de participación política de la afectada.
+(Así adicionado el párrafo anterior por el artículo 35 de la Ley para Prevenir, Atender, Sancionar y Erradicar la Violencia contra las Mujeres en la Política, N° 10235 del 3 de mayo de 2022)
