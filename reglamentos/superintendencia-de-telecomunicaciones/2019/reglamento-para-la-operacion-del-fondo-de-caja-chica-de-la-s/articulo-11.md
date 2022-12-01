@@ -1,3 +1,0 @@
-CAPÍTULO II
-CONTROL DEL FONDO DE CAJA CHICA
-ARTÍCULO 11.- La administración del Fondo de Caja Chica de la SUTEL estará asignada a un funcionario del Área de Finanzas de la Dirección General de Operaciones y las Cajas Chicas Auxiliares estarán asignadas a los funcionarios subordinados al Consejo de la SUTEL que éste designe, pero en lo que corresponde a su operación administrativa, gozarán de independencia funcional y estarán subordinados a este Reglamento y a las disposiciones técnicas que instruya el encargado del Fondo y/o el Director de Operaciones, quienes serán los responsables de la correcta operación de este Fondo, ante el Consejo de la Superintendencia de Telecomunicaciones.

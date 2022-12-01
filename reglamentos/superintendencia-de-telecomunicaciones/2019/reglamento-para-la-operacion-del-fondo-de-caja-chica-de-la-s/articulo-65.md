@@ -1,1 +1,0 @@
-ARTÍCULO 65.- Los aspectos no contemplados en este Reglamento se regirán por la Ley de la Administración Financiera de la República, en lo que aplique a la SUTEL, la Ley General de la Administración Pública, la Ley de Contratación Administrativa y su reglamento.

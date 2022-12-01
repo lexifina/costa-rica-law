@@ -1,1 +1,0 @@
-ARTÍCULO 62.-Todo funcionario de esta Superintendencia que siendo usuario de los recursos del Fondo de Caja Chica de la SUTEL y/o sus Cajas Auxiliares que incumpla con cualquiera de las disposiciones aquí descritas será sometido a un proceso administrativo disciplinario y podrá ser sancionado de acuerdo a las disposiciones de la normativa vigente.

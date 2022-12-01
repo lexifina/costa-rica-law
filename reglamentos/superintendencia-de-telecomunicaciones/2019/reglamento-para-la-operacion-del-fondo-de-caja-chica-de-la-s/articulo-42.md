@@ -1,1 +1,0 @@
-ARTÍCULO 42.- Las facturas de cancelación de bienes o servicios pagadas con recursos del Fondo de Caja Chica deberán indicar en el dorso el número de vale de caja, la fecha del adelanto, la unidad solicitante, la subpartida presupuestaria aplicada y el nombre del funcionario a quien se entregó el adelanto, así como el nombre y la firma del encargado del Fondo.

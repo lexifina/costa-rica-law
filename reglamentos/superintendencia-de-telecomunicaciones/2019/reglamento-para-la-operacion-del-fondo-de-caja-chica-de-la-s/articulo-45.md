@@ -1,1 +1,0 @@
-ARTÍCULO 45.- Los adelantos en efectivo que se tramiten para la adquisición de bienes o servicios, deben realizarse por medio del formulario “Vale de caja chica”, solicitado por el funcionario que realizará la transacción, con base en el formulario denominado, “Requisición de Bienes y Servicios, según consta en el artículo 29 de este Reglamento.

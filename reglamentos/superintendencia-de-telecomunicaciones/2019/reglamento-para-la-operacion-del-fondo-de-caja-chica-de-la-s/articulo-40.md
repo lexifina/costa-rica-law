@@ -1,1 +1,0 @@
-ARTÍCULO 40.- Los cheques de reintegro del efectivo del Fondo que funciona en el Área de Finanzas, deberán emitirse a nombre del encargado del Fondo o en ausencia de éste, a nombre del funcionario que lo supla, o en su defecto a nombre del Profesional Jefe del Área de Finanzas.

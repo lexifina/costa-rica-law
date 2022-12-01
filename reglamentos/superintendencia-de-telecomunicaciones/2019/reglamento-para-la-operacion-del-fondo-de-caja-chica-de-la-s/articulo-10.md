@@ -1,1 +1,0 @@
-ARTÍCULO 10.- Se podrán utilizar recursos del Fondo de Caja Chica para cubrir servicios y gastos de viaje Y transportes y conexos, por giras, tanto al interior como al exterior del país y los gastos de representación.

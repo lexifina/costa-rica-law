@@ -1,1 +1,0 @@
-ARTÍCULO 32.- Toda compra por el Fondo de Caja Chica deberá quedar respaldada por la factura comercial debidamente emitida por el proveedor respectivo y el pedido de compra por Fondo de Caja Chica. Estos documentos son responsabilidad del Área de Finanzas en cuanto a recibo, emisión, registro, según corresponda.
