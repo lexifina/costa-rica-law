@@ -1,0 +1,1 @@
+Artículo 2º-Ámbito de aplicación. Este Reglamento será de aplicación obligatoria, tanto para la Oficina de Cobro de la Municipalidad como para los abogados internos o externos que sean contratados por la Municipalidad de Cañas, para gestionar el cobro de las obligaciones que se le adeuden a la Municipalidad.

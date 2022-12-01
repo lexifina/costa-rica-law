@@ -1,0 +1,1 @@
+Artículo 45.-En todo aquello que no se contraponga con lo establecido por el Código de Normas y Procedimientos Tributarios, o bien con las directrices emitidas por el Órgano de Normalización Técnica del Ministerio de Hacienda, se actuará conforme lo consignado en este Reglamento.

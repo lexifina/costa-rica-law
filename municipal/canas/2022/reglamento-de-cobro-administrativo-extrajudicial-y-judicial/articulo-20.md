@@ -1,0 +1,1 @@
+Artículo 20.-Cuando un sujeto pasivo solicite una certificación de la Contabilidad Municipal y mantenga un arreglo de pago sobre su morosidad, deberá indicarse en la certificación si sus pagos se encuentran al día.

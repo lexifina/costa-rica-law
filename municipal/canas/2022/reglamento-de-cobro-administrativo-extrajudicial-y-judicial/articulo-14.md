@@ -1,0 +1,1 @@
+Artículo 14.-Formalización del arreglo de pago. La formalización del arreglo de pago se realizará ante la Unidad de Cobro, única competente para realizar esta gestión, mediante la suscripción del documento idóneo que confeccionará dicha Oficina para tales efectos, siempre y cuando el sujeto pasivo haya cumplido con los requisitos que esta Oficina exija para tal gestión.

@@ -1,0 +1,14 @@
+Artículo 30.-Deberes de la Unidad de Cobro en la etapa ejecutiva. La etapa ejecutiva se iniciará una vez agotada la fase administrativa, según lo dispuesto en el artículo 11 de este Reglamento.
+La Unidad de Cobro deberá cumplir con lo siguiente, en esta etapa:
+a. Determinar las obligaciones vencidas que se le adeuden a la Municipalidad, cuyo valor sea todas las que están vencidas vigente al momento de realizarse el cobro. Esas obligaciones serán trasladadas a los abogados externos para cumplir con la etapa ejecutiva.
+b. La Unidad de Cobro trasladará mediante nota de remesa el expediente respectivo para efectos de iniciar la etapa ejecutiva a los abogados externos o a los abogados internos. Este expediente contendrá al menos:
+b1: Notificaciones originales del cobro al sujeto pasivo.
+b2: Certificación del Contador Municipal que haga constar la obligación vencida que vaya a ser remitida a cobro judicial, la cual incluirá multas e intereses, y constituirá el título ejecutivo para el proceso judicial respectivo, de conformidad con lo que establece el Código Municipal.
+b3: Informe registral certificado con las citas de anotación si existieran, con el fin de conocer el estado actual de las mismas.
+b4: Calidades del sujeto pasivo y domicilio, si se tratara de una persona jurídica aportar personería jurídica con no menos de un mes de emitida al momento del traslado del expediente.
+c. Asignar a los abogados externos los casos de forma equitativa por la unidad de cobros, a los abogados internos será la alcaldía según volumen de trabajo quien asignará los casos a tramitar por cobro judicial.
+d. Fiscalizar la labor de los abogados externos cuando lleven cobros judiciales, para ello, compete a esta Unidad, recibir los informes trimestrales que realicen los abogados externos de conformidad con este Reglamento, analizarlos y emitir mensualmente un informe sobre los mismos para conocimiento del Alcalde Municipal.
+e. Solicitar al Departamento Tributario la aplicación de las sanciones que en este Reglamento se establecen a los abogados que incumplan con sus obligaciones, para que la proveeduría en la competencia de la contratación del abogado externo proceda con el procedimiento a seguir a raíz del incumplimiento de la contratación del servicio establecido.
+f. Solicitar al Departamento Tributario, el nombramiento de nuevos abogados o la resolución de la contratación de abogados externos, de conformidad con la demanda que de esta gestión requiera la Municipalidad.
+g. Llevar un expediente de cada uno de los abogados externos, en el cual se incorporará toda la documentación relacionada con su contratación, los procesos asignados, los informes que éste presente y demás documentos relacionados con su actuar, los cuales serán agregados al expediente en forma cronológica y estarán debidamente foliados.
+h. Solicitar de la Unidad de Valoraciones de la Municipalidad, el avalúo de los bienes inmuebles que garanticen las obligaciones vencidas

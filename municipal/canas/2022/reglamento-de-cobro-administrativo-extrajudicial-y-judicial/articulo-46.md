@@ -1,0 +1,1 @@
+Artículo 46.-Derogaciones. Este Reglamento deroga cualquier otra disposición administrativa o reglamentaria aprobada con anterioridad a la presente, entrando a regir la actual una vez que esté debidamente aprobada y cuente con la vigencia establecida por Ley para su publicación.

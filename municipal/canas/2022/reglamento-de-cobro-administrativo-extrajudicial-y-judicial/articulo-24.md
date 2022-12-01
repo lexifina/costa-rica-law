@@ -1,0 +1,1 @@
+Artículo 24.-Confusión. Procederá la extinción de la obligación vencida por confusión, siempre que el sujeto activo, como consecuencia de la transmisión de los bienes o derechos afectos al tributo, quede colocado en
