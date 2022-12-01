@@ -59,6 +59,7 @@ articulo-58.md
 articulo-59.md
 articulo-60.md
 articulo-61.md
+articulo-61-bis.md
 articulo-62.md
 articulo-63.md
 articulo-64.md
@@ -95,8 +96,8 @@ articulo-94.md
 articulo-95.md
 articulo-96.md
 articulo-96-bis.md
-articulo-97.md
 articulo-96-ter.md
+articulo-97.md
 articulo-98.md
 articulo-99.md
 articulo-100.md
