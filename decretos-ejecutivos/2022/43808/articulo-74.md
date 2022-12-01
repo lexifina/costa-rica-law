@@ -1,0 +1,4 @@
+Artículo 74. Verificación de Condición PYME. En aplicación del artículo 23 de la Ley General de Contratación Pública, la entidad contratante deberá verificar la condición PYME de la empresa, por los medios que el Ministerio de Economía, Industria y Comercio disponga al efecto.
+La Administración deberá establecer los métodos de verificación de la ubicación de la empresa y podrá apoyarse en la información que consta en el sistema digital unificado.
+En lo que respecta a la generación de empleo local, la PYME que opte por el beneficio del puntaje adicional deberá aportar una declaración jurada firmada por su representante legal en la que indique que al menos el sesenta por ciento (60 ) de su planilla tiene domicilio en dicho cantón, cuando se trate de un municipio o en la región, en los restantes casos.
+En caso de que el personal contratado no reúna el origen declarado, se procederá a descartar la oferta y proceder con la denuncia respectiva.

@@ -1,0 +1,2 @@
+Artículo 267. Efectos de la interposición y de la resolución que resuelve el recurso de apelación. Una vez interpuesto el recurso de apelación opera la suspensión automática de todos los efectos del acto final recurrido. Los efectos de las resoluciones que se emitan con ocasión del trámite del recurso de apelación serán los indicados en el artículo 98 de la Ley General de Contratación Pública.
+La resolución que resuelva el recurso de apelación dará por agotada la vía administrativa.

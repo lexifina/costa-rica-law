@@ -1,0 +1,1 @@
+Artículo 312 Requerimiento de información a las instituciones del sector público. Las instituciones públicas están en la obligación de brindar la información requerida por la Dirección de Contratación Pública en el ámbito de su competencia, cuando esta sea necesaria para el cumplimiento de los fines previstos en la Ley General de Contratación Pública y este Reglamento.

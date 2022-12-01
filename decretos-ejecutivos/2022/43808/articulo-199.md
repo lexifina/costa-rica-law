@@ -1,0 +1,4 @@
+CAPÍTULO III
+CONTRATO DE DONACIÓN
+Artículo 199. Donación de bienes patrimoniales entre instituciones de la Administración Pública. La donación constituye un contrato traslativo de dominio, de carácter gratuito, mediante el cual se cumple la finalidad de traspasar un bien de la institución donante a la institución donataria. La donación deberá adoptarse mediante un acto motivado por autoridad competente, el cual será comunicado en todos los casos a la dependencia encargada del registro y control de bienes de la Administración.
+Cuando el bien pase entre instituciones de la Administración Central procederá el traslado o la reasignación de bienes, mediante acto motivado, en virtud de que no se modifica cuantitativa ni cualitativamente el patrimonio del Estado, conforme a lo establecido en el Reglamento para el Registro y Control de Bienes de la Administración Central y sus reformas.

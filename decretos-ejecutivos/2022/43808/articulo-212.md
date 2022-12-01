@@ -1,0 +1,5 @@
+CAPÍTULO V
+CONTRATO DE SERVICIOS
+Artículo 212. Objeto de la contratación de servicios. Para la contratación de servicios técnicos o profesionales, que brinden personas físicas o jurídicas, la Administración decidirá la modalidad de contratación que mejor satisfaga su necesidad y deberá seguir los procedimientos ordinarios establecidos en la Ley General de Contratación Pública, salvo lo dispuesto en el inciso i) del artículo 3 de la Ley General de Contratación Pública
+La Administración podrá realizar este tipo de contratación cuando requiera servicios especializados que brinden personas físicas o jurídicas, siempre y cuando acredite en la decisión inicial que no puede llevarlos a cabo con su propio personal. El contrato de servicios no originará relación de empleo entre la Administración y el contratista y deberá remunerarse conforme lo señalado en el artículo 214 del presente Reglamento.
+El contratista deberá cumplir con lo pactado utilizando para ello el recurso humano y todo aquel recurso que según el pliego de condiciones está obligado a suministrar.

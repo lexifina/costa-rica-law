@@ -1,0 +1,4 @@
+SECCIÓN II
+SUBASTA INVERSA ELECTRÓNICA
+Artículo 160. Subasta Inversa electrónica. Es un procedimiento extraordinario de selección a través del cual las entidades públicas contratan bienes y servicios comunes y estandarizados o compra de tecnología, entendiéndose como tales, aquellos productos genéricos como suministros, equipos o bienes de uso común, cuya fabricación obedezca a reglas estandarizadas, siendo el postor ganador aquel que oferte el menor precio por los productos objeto de la subasta. El acceso a la subasta inversa electrónica y su procedimiento se realiza directamente a través del sistema digital unificado.
+Conforme al artículo 65 de la Ley General de Contratación Pública, este procedimiento podrá utilizarse formulando los requerimientos según la demanda que la Administración requiera.

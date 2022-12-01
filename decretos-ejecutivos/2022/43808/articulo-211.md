@@ -1,0 +1,1 @@
+Artículo 211. Plazo. El plazo del contrato de arrendamiento financiero debe ser fijo, no disponible y ser suficiente para que con el pago de la cuota periódica se logre la amortización de la inversión e intereses, de los gastos que resulten aplicables y el rendimiento del capital, sin perjuicio de que se defina y ejecute una opción de compra.

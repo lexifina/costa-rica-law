@@ -1,0 +1,2 @@
+Artículo 324. Estrategia para la acreditación de las unidades de compra. La Autoridad de Contratación Pública emitirá lineamientos para la estrategia de acreditación de las unidades de compra en toda la Administración Pública, la cual estará basada en la estructura mínima funcional que deberá contemplar toda unidad de compra, de acuerdo con la normativa aplicable.
+La estrategia será una guía para que las unidades de compra aseguren que la prestación de sus servicios sea ofrecida bajo los estándares de calidad, eficiencia, transparencia y economía.

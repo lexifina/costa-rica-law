@@ -1,0 +1,1 @@
+Transitorio I. Los procedimientos de contratación y contratos iniciados antes de la vigencia de este Reglamento, se concluirán conforme a las disposiciones vigentes en el momento de adoptarse la decisión inicial del concurso.

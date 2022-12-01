@@ -1,0 +1,2 @@
+Artículo 243. Presentación. Todo recurso se deberá interponer utilizando para ello los formularios electrónicos designados en el sistema digital unificado y los documentos adjuntos corresponderán a la prueba que apoye las argumentaciones de las partes.
+Para la interposición del recurso se entienden hábiles todas las horas del día en que venza el plazo para presentarlo. En el evento en que el recurso se presente en un día inhábil se tendrá por presentado al día hábil siguiente.

@@ -1,0 +1,11 @@
+SECCIÓN III
+FISCALIZACIÓN Y RESPONSABILIDADES
+Artículo 283. Fiscalización y control. La Administración fiscalizará todo el proceso de ejecución del contrato, para eso el contratista deberá ofrecer las facilidades necesarias. En virtud de esta obligación de fiscalización, la Administración tiene la potestad de aplicar los términos contractuales para que el contratista corrija cualquier desajuste respecto del cumplimiento exacto de las obligaciones pactadas. El contratista igualmente tendrá la obligación de cumplir cabalmente con lo ofrecido en su propuesta y en cualquier manifestación formal documentada, que hayan aportado adicionalmente en el curso del procedimiento o en la formalización del contrato.
+Los funcionarios encargados de los contratos deberán fiscalizar en la ejecución contractual al menos los siguientes aspectos:
+a) Realizar un control objetivo de la ejecución contractual, aplicando las medidas de control de forma eficiente en los procesos involucrados a fin de que el objeto contractual se cumpla a cabalidad.
+b) Verificar mediante control técnico que el objeto contractual sea de la calidad y cumpla los requerimientos establecidos en la contratación en procura de que el contratista se ajuste a las condiciones y plazos establecidos en el contrato. Para tal efecto, podrá solicitar asistencia a las unidades técnicas respectivas, cuando sea necesario.
+c) Comunicar en forma inmediata al contratista el incumplimiento de la programación de las actividades, de conformidad con el plan de ejecución vigente y autorizado, a fin de que el contratista adopte las medidas pertinentes para su corrección y se apliquen las multas, según corresponda.
+d) Llevar el control de la vigencia de las garantías de cumplimiento, así como las colaterales.
+e) En caso de posibles faltas e incumplimientos de gravedad cometidas por el contratista durante la ejecución del contrato, procederá a comunicarlo al órgano competente, para que éste tome las medidas legales y contractuales correspondientes.
+f) Solicitar los criterios técnicos necesarios para una mejor fiscalización de los contratos, cuando se requiera por la naturaleza de la materia o especialidad.
+a) Cualquier otro aspecto que la Administración contratante considere necesaria para la correcta fiscalización del contrato.

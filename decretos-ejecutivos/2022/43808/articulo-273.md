@@ -1,0 +1,1 @@
+Artículo 273. Validez. Será válido el contrato administrativo sustancialmente conforme con el ordenamiento jurídico, por lo que, en aplicación del principio de eficiencia, no le afectarán aquellos vicios intrascendentes del procedimiento de selección del contratista.

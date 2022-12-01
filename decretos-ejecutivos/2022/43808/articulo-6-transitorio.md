@@ -1,0 +1,1 @@
+Transitorio VI. Las Instituciones Públicas tendrán un plazo de doce meses naturales a partir de la entrada en vigencia del presente Reglamento, para emitir las correspondientes disposiciones institucionales ajustadas a la Ley General de Contratación Pública a las que alude el artículo 12 de este Reglamento.

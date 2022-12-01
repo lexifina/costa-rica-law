@@ -1,0 +1,1 @@
+Artículo 192. Modalidades de contratos de suministros. Entre las modalidades quepuede utilizar la Administración en la contratación de suministros, se encuentran la contratación por cantidad definida, por consignación y según demanda.

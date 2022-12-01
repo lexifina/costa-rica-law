@@ -1,0 +1,1 @@
+Artículo 197. Periodicidad de las entregas. Cuando resulte procedente, dependiendo del objeto del contrato y cuando se trate de entregas sucesivas, la Administración deberá indicar en el pliego de condiciones la periodicidad de las entregas.

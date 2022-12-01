@@ -1,0 +1,3 @@
+Artículo 258. Efectos de la interposición y de la resolución del recurso de objeción presentado ante la propia Administración. Interpuesto oportunamente el recurso de objeción, se prorrogará la apertura de las ofertas, en tanto sea necesaria para resolver el recurso planteado.
+El recurso deberá ser conocido por el órgano interno competente, el cual resolverá por el fondo los alegatos planteados. Dicha resolución dará por agotada la vía administrativa. El recurrente podrá solicitar que el recurso de objeción sea conocido y resuelto por el jerarca en el caso de que se objete un pliego de condiciones de una licitación menor.
+Las modificaciones al pliego de condiciones que sean acogidas en el recurso deberán ser comunicadas a través del sistema digital unificado.

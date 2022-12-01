@@ -1,0 +1,1 @@
+Artículo 248. Nulidades alegadas en el recurso en caso de rechazo por inadmisibilidad o improcedencia. Las nulidades que se aleguen con el recurso no se conocerán en caso de que el recurso sea declarado inadmisible o improcedente, salvo lo indicado en el artículo anterior en relación con la nulidad absoluta evidente y manifiesta.

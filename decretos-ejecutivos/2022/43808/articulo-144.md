@@ -1,0 +1,1 @@
+Artículo 144. Invitación. La invitación a participar, las modificaciones al pliego de condiciones y el acto de adjudicación, así como los demás actos propios del procedimiento, se publicarán en el sistema digital unificado.

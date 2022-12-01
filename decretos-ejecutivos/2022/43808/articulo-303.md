@@ -1,0 +1,2 @@
+Artículo 303. Plazo para emitir criterio. El comité contará con un plazo máximo de seis semanas para emitir su decisión contado a partir de que se someta la controversia a su decisión, salvo que las partes contratantes y el comité de expertos pacten un plazo distinto, atendiendo estrictamente a las circunstancias del caso concreto, todo lo cual deberá constar en acto debidamente motivado.
+En todo se buscará la celeridad y oportunidad en la toma de decisión.

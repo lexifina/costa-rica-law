@@ -1,0 +1,4 @@
+Artículo 34. Causales para declarar inactivo a un proveedor o subcontratista registrado. La Dirección de Contratación Pública, declarará inactivo a un proveedor o subcontratista registrado, cuando constate alguna de las siguientes circunstancias:
+a) La muerte o la extinción de la persona física o jurídica, salvo que el albacea, liquidador o el curador soliciten ejecutar el contrato en las mismas condiciones pactadas, todo lo cual se tramitará como una solicitud de cesión del contrato, bajo las reglas previstas en el artículo 102 de la Ley General de Contratación Pública. Lo anterior no será aplicable en el caso de obligaciones personalísimas.
+b) La manifestación expresa del proveedor o subcontratista inscrito de no permanecer activo en el Registro.
+c) Los que hayan sido sancionados con pena de inhabilitación para participar en procedimientos de contratación pública con las instituciones usuarias durante el tiempo que subsista la sanción.

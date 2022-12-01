@@ -1,0 +1,2 @@
+Artículo 316. De la tramitación por medio del sistema digital unificado. Las contrataciones que tramiten las proveedurías institucionales deberán realizarse por medio del sistema digital unificado; en caso de no realizarlo a través de dicho sistema, acarreará la nulidad absoluta del procedimiento, salvo situaciones de casos fortuitos o fuerza mayor.
+La Dirección de Contratación Pública, en forma motivada, podrá exceptuar en forma parcial o total del uso de dicho sistema, todo conforme al artículo 16 de la Ley General de Contratación Pública y lo previsto en este Reglamento.

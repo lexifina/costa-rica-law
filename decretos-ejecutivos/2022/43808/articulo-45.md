@@ -1,0 +1,1 @@
+Artículo 45. Operatividad del uso del sistema digital unificado. Los lineamientos para garantizar la operatividad del uso del sistema digital unificado, serán emitidos por la Dirección de Contratación Pública con apego a los principios previstos en los artículos 16 y 19 de la Ley General de Contratación Pública.

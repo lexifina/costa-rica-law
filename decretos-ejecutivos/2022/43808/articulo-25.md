@@ -1,0 +1,10 @@
+CAPÍTULO III
+CONTRATACIÓN PÚBLICA ELECTRÓNICA
+SECCIÓN I
+SISTEMA DIGITAL UNIFICADO, BANCO DE PRECIOS, RAZONABILIDAD DEL
+PRECIOS Y MODELO TARIFARIO
+Artículo 25. Generalidades del uso del sistema digital unificado. Toda la actividad de contratación pública regulada en la Ley General de Contratación Pública y este Reglamento, debe realizarse por medio del sistema digital unificado, empleando para ello el uso de los formularios electrónicos que se dispongan al efecto en la plataforma. El sistema digital unificado de compras públicas al que se refiere el artículo 16 de la Ley General de Contratación Pública, será el que definirá la Dirección de Contratación Pública.
+El uso del sistema digital unificado será de acatamiento obligatorio para todos los proveedores registrados y todas las instituciones públicas y sujetos cubiertos por el ámbito de aplicación previsto en el artículo 1 de la Ley General de Contratación Pública, siendo de su exclusiva responsabilidad los datos e información que ingresen o consignen en él.
+Los proveedores registrados deberán aceptar las políticas de uso del sistema digital unificado, firmando digitalmente el formulario electrónico.
+Lo relativo al uso del sistema digital unificado y las condiciones para la implementación del modelo tarifario se regularán mediante reglamento.
+La Dirección de Contratación Pública es la encargada de administrar el sistema digital unificado emitiendo los lineamientos y regulaciones para ello, correspondiéndole a la Dirección de Tecnologías de Información y Comunicación en su calidad de órgano técnico del Ministerio de Hacienda y en coordinación con la Dirección de Contratación Pública, velar por la implementación y operación del sistema digital unificado de tal manera que permita garantizar la eficiencia, disponibilidad y continuidad de los servicios de compra pública, lo anterior por medio de la administración conjunta del contrato sobre el suministro de software integral de acuerdo con el modelo de gestión de uso del sistema o cualquier otro esquema de suministro propio del Ministerio de Hacienda o a través de un tercero.

@@ -1,0 +1,1 @@
+Artículo 205. Objeto del contrato de arrendamiento financiero. El objeto de la contratación deberá corresponder a un arrendamiento financiero, de acuerdo con su esencia y realidad financiera, según el principio de realidad y no solamente en consideración a su calificación y forma legal, conforme a las normas de contabilidad que apliquen a la institución respectiva.

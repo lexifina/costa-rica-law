@@ -1,0 +1,5 @@
+Artículo 209. Estructuración del arrendamiento. Cuando corresponda conforme al ordenamiento jurídico, una vez que se cuenten con las respectivas autorizaciones del endeudamiento la Administración solicitante, deberá realizar la estructuración del arrendamiento y posteriormente presentar para aval de la Dirección de Crédito Público del Ministerio de Hacienda con la siguiente información:
+a) Informe de estructuración que incluye, el esquema de financiamiento, modelo de cuota de arrendamiento, definición de comisiones y costos, entre otros aspectos.
+b) Propuesta del contrato de arrendamiento con fideicomiso, según corresponda.
+De considerarlo necesario, la Dirección de Crédito Público podrá solicitar información adicional para el análisis de la solicitud.
+La Dirección de Crédito Público emitirá el respectivo aval en un plazo no mayor a cuarenta y cinco días naturales, a partir de la presentación de la solicitud que incluya la información completa por parte de la Administración solicitante.

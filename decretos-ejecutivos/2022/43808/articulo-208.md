@@ -1,0 +1,3 @@
+Artículo 208. Aprobaciones. Para la utilización de la figura del arrendamiento financiero la Autoridad Presupuestaria deberá autorizar la contratación, previa recomendación de la Dirección de Crédito Público, así como la autorización del Ministerio de Planificación Nacional y Política Económica y el dictamen favorable del Banco Central de Costa Rica, cuando conforme al ordenamiento jurídico corresponda.
+Las solicitudes de autorizaciones deberán resolverse en forma célere. En caso de solicitar información adicional, se hará por una única vez.
+Cuando los entes contables lo consideren oportuno, podrán recurrir a la Dirección General de Contabilidad Nacional, por medio de consulta técnica, conforme lo dispuesto en el artículo 207 de este Reglamento.

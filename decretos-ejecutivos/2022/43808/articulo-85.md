@@ -1,0 +1,1 @@
+Artículo 85. Sondeo, estudio de mercado y precio de referencia. Previo a la estimación de la contratación, la Administración deberá realizar un sondeo o estudio de mercado a fin de determinar los precios de referencia conforme a lo previsto en el artículo 44 del presente Reglamento y podrá considerar las guías que emitirá al efecto la Dirección de Contratación Pública.

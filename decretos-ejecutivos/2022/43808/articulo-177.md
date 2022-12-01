@@ -1,0 +1,2 @@
+Artículo 177. Separación por unidades funcionales. Cuando resulte más conveniente y sea técnicamente procedente, la Administración podrá licitar segmentos de obra pública de punto a punto que se constituyan como unidades funcionales o soluciones que puedan funcionar por sí mismas.
+A fin de propiciar la mayor participación de empresas, la Administración determinará en sus proyectos de obra pública la posibilidad de adjudicar por unidades funcionales.

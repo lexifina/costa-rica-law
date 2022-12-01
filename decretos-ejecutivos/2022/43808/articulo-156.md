@@ -1,0 +1,3 @@
+Artículo 156. Recepción de ofertas. Para la recepción de ofertas el plazo será entre tres y cinco días hábiles según la complejidad del objeto contractual, contabilizados a partir del día siguiente a la comunicación de la invitación a participar y hasta el día fijado para la apertura de ofertas, inclusive.
+Antes de recibir ofertas, por razones de interés público o institucional, la Administración, podrá dejar sin efecto el respectivo concurso dejando constancia de su decisión mediante una resolución motivada.
+Si la contratación está cubierta por el monto del umbral de un instrumento comercial internacional vigente, deberá respetarse lo dispuesto en cuanto al plazo mínimo según lo previsto en el artículo 9 de la Ley General de Contratación Pública.

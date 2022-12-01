@@ -1,0 +1,2 @@
+Artículo 242. Cómputo del plazo. En todos los casos el plazo para interponer el recurso contra el acto respectivo iniciará su cómputo a partir del día hábil siguiente a la notificación de todas las partes. En el sistema digital unificado se deberá acreditar las fechas y horas de notificación a cada uno de los participantes.
+En materia de contratación pública los plazos se computarán conforme a las reglas especiales previstas en la Ley General de Contratación Pública y en el presente Reglamento. Se acudirá a otras normas generales, de forma supletoria.

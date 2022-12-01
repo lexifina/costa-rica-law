@@ -1,0 +1,1 @@
+Artículo 193. Contratación de suministros por cantidad definida. En esta modalidad de contratación la Administración adquiere una cantidad específica, previamente definida, de bienes muebles ya sea en una única o varias entregas parciales. El oferente presentará su cotización considerando la cantidad total definida y su costo unitario.

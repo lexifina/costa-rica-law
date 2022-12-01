@@ -1,0 +1,2 @@
+Artículo 126. Participación única en cada procedimiento de contratación. Una persona física o jurídica únicamente podrá figurar para un mismo concurso en una única oferta ya sea como subcontratista, oferente individual o participar de forma conjunta o consorciada. La condición anterior también resultará aplicable a las personas físicas o jurídicas que conformen un mismo grupo de interés económico en los términos establecidos en el artículo 49 de la Ley General de Contratación Pública.
+Lo anterior a excepción de lo establecido en el artículo 133 de este Reglamento.

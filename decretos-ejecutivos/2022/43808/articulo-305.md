@@ -1,0 +1,2 @@
+Artículo 305. Honorarios y gastos. Las partes asumen en partes iguales todos los honorarios y gastos de los miembros del comité de expertos, conforme a lo establecido en las respectivas tablas de tarifas del Centro de Resolución de Controversias previsto y las condiciones reguladas en el pliego y adoptadas en el respectivo contrato.
+La Administración deberá realizar las previsiones presupuestarias que correspondan.

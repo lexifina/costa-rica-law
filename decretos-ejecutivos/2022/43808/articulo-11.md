@@ -1,0 +1,1 @@
+Artículo 11. Contratación de numerario. Se exceptúa de los procedimientos ordinarios la contratación de numerario que realiza el Banco Central de Costa Rica, actividad regida por la normativa que esa entidad emite al efecto.

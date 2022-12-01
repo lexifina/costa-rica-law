@@ -1,0 +1,3 @@
+SECCIÓN III
+PARTICIPACIÓN DE LAS PEQUEÑAS Y MEDIANAS EMPRESAS (PYMES)
+Artículo 72. Fomento a las PYMES. La Administración deberá fomentar la participación de las empresas que posean la condición PYME conforme a la Ley N°8262 del 02 de mayo de 2002, en la adquisición de bienes, obras y servicios. El Ministerio de Economía, Industria y Comercio podrá colaborar con la Administración en la elaboración de los pliegos de condiciones que impulsen la participación efectiva de las PYMES en el monto total de las compras públicas. La Autoridad de Contratación Pública, mediante directriz, podrá informar a las proveedurías institucionales los criterios a utilizar, que aseguren la participación de las PYME en sus procesos de compra.

@@ -1,0 +1,1 @@
+Artículo 298. Comité ad hoc de expertos. El comité ad hoc de expertos será nombrado cuando se suscite cualquier controversia que no pueda ser resuelta entre las partes por negociación directa. Este Comité ad hoc intervendrá únicamente para la resolución de controversias específicas que se susciten en la ejecución del contrato.

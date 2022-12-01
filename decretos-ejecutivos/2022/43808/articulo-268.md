@@ -1,0 +1,1 @@
+Artículo 268. Prórroga para resolver. En casos de recursos contra actos finales de procedimientos que revistan alta complejidad en razón del objeto o por el número de los sujetos intervinientes, la Contraloría General de la República podrá prorrogar el plazo de resolución del recurso hasta por diez días hábiles adicionales, mediante acto motivado.

@@ -1,0 +1,4 @@
+Artículo 200. Donación de bienes muebles patrimoniales entre instituciones de la Administración Pública. La donación de bienes muebles patrimoniales entre instituciones de la Administración Pública es posible en el tanto la donación tenga por objeto la satisfacción del interés público.
+Para la donación de bienes muebles patrimoniales la decisión de donar deberá ser adoptada por el máximo jerarca o por quien éste delegue.
+La donación se instrumentará mediante acuerdo de donar de la institución donante y el acuerdo de aceptación de la institución donataria, adoptados por funcionarios competentes.
+Los bienes muebles inscribibles serán donados con las formalidades legales respectivas. En esos casos, el documento traslativo de dominio, así como los gastos en que se incurrieran por dicha donación, si lo hubiera, serán a cargo de la institución donataria, salvo acuerdo en contrario.

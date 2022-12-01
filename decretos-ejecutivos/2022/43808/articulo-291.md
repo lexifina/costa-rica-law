@@ -1,0 +1,3 @@
+Artículo 291. Finiquito de los contratos de servicios y suministro de bienes. En los contratos de servicios o suministros de bienes podrán pactarse finiquitos dentro del plazo de seis meses, contado a partir de la recepción definitiva del objeto contractual, conforme a lo previsto por el artículo 111 de la Ley General de Contratación Pública.
+En el pliego de condiciones para este tipo de contratos se dispondrá la obligación de realizar el respectivo finiquito y en tal caso, se aplicarán en lo pertinente, los requisitos establecidos en el artículo 190 de este Reglamento para el finiquito del contrato de obra pública.
+El finiquito deberá formar parte del expediente electrónico de la contratación.

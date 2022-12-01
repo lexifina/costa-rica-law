@@ -1,0 +1,1 @@
+Artículo 114. Vigencia de la garantía de cumplimiento. La Administración establecerá en el pliego de condiciones la vigencia mínima de la garantía de cumplimiento. En caso de omisión en el pliego de condiciones, la garantía regirá hasta por dos meses adicionales a la fecha probable de la recepción definitiva del objeto contractual o terminación del plazo de la contratación.

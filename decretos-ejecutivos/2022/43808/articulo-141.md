@@ -1,0 +1,2 @@
+Artículo 141. Plazo para comunicar el acto final. El acto final será comunicado por medio del sistema digital unificado al día hábil siguiente a su dictado.
+Cuando por caso fortuito o fuerza mayor debidamente acreditados, no sea posible realizarlo mediante el sistema digital unificado, la Administración deberá notificar el acto final a los participantes por el medio electrónico señalado en ese mismo plazo.

@@ -1,0 +1,2 @@
+Artículo 26. Horario habilitado para el uso del sistema. Todos los días y horas se consideran hábiles para las actuaciones en el sistema digital unificado, salvo aquellos que por disposición de ley hayan sido declarados inhábiles, o cuando la Administración disponga de una hora o día específicos para realizar determinada actuación de acuerdo con lo establecido en la Ley General de la Administración Pública, Ley N°6227 de 02 de mayo de 1978.
+Las actuaciones presentadas en días inhábiles se entenderán por interpuestas en el siguiente día hábil.

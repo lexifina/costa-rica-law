@@ -1,0 +1,2 @@
+Artículo 217. Partes del contrato de fideicomiso público. La Administración será la fideicomitente y el fiduciario será un banco del Sistema Bancario Nacional o un organismo público internacional, seleccionado mediante un concurso entre dichas entidades.
+Los fideicomisarios serán los sujetos beneficiarios de los resultados conseguidos por el fideicomiso. No se consideran fideicomisarios los proveedores del financiamiento que pudiera requerir el fideicomiso, aunque sí tendrán la condición de acreedores principales, con la primera opción en la prelación de pagos.

@@ -1,0 +1,6 @@
+Artículo 231. Modelos de Convenio Marco. Los convenios marco podrán implementarse atendiendo al objeto contractual y condiciones de mercado, en cualquiera de los modelos que se describen a continuación:
+a) Modelo con precio desde la oferta: En este modelo de convenio marco, se consideran las opciones de negocio para obras, bienes y servicios con características específicas en una ficha técnica con un precio determinado.
+b) Modelo con cotización: Este modelo de convenio marco, es aquel que será establecido de acuerdo a las características generales obras, bienes y servicios que requiera la Institución Usuaria, por lo que no incluye un precio previo absoluto, sino que éste será cotizado durante la ejecución.
+En la fase de ejecución contractual, las instituciones usuarias realizarán un concurso entre las empresas adjudicadas en las opciones de negocio que requieran abastecerse; los adjudicatarios remitirán la cotización en el plazo establecido en el pliego de condiciones.
+Para la selección de la mejor oferta la institución deberá aplicar lo dispuesto en el pliego de condiciones.
+La selección de la mejor oferta podrá ser objeto de recurso en cuyo caso se aplicará lo establecido en el artículo 99 de la Ley General de Contratación Pública.

@@ -1,0 +1,11 @@
+CAPITULO IV
+CONTRATACIÓN PÚBLICA ESTRATÉGICA
+SECCIÓN I
+ASPECTOS GENERALES
+Artículo 46. Objetivos de Contratación Pública Estratégica. La contratación pública estratégica deberá articular los objetivos de política pública en materia social, ambiental, económica y de innovación, en los términos dispuestos por el artículo 20 de la Ley General de Contratación Pública y según se disponga en el Plan Nacional de Compra Pública, considerando lo siguiente:
+a) El desarrollo social equitativo nacional y local, promoviendo entre otros, el acceso de las PYMES a la contratación pública, la reducción de la pobreza y la generación de empleo local y nacional.
+b) La promoción económica de sectores vulnerables, bajo consideraciones sociales en materia de género, discapacidad, discriminación por orientación sexual y minorías étnicas, religiosas y lingüísticas, así como el respeto a los derechos humanos.
+c) La protección ambiental, mediante la promoción de enfoques de ciclo de vida de bienes, servicios y obras, utilización de energías renovables, certificados de producto y eco-etiquetas.
+d) El Fomento de la innovación desde la Administración contratante y en la promoción de procedimientos, que permitan la obtención de bienes, obras y servicios, procesos, mercadotecnia o de organización empresarial de carácter innovador bajo criterios de sostenibilidad y que generen mayor bienestar social.
+La Autoridad de Contratación Pública deberá impulsar las estrategias y normas para fomentar la conducta empresarial responsable, en coordinación con el Ministerio de Economía, Industria y Comercio, asimismo se contará con un Comité de Compra Pública Estratégica el cual fungirá como órgano asesor de la Autoridad de Contratación Pública y coadyuvante de la Dirección de Contratación Pública en materia de compra pública estratégica y se regulará mediante Decreto.
+La implementación de las variables ambientales, sociales, económicas e innovadoras en la contratación pública deberá hacerse bajo reglas de transparencia, integridad, objetividad y proporcionalidad que aseguren el cumplimiento de los objetivos perseguidos. La aplicación de los criterios regulados en este artículo supone el cumplimiento de los análisis de mercado regulado en el artículo 56 de este Reglamento.

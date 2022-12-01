@@ -1,0 +1,1 @@
+Artículo 121. Jurisdicción. Los contratos a ejecutar en el país, cuyas propuestas provengan de persona física o jurídica extranjera deberán someterse a la jurisdicción y tribunales nacionales para todas las incidencias que de modo directo o indirecto puedan surgir del contrato, con renuncia expresa a su jurisdicción.

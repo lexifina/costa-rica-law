@@ -1,0 +1,1 @@
+Artículo 94. Experiencia. Cuando la Administración solicite acreditar la experiencia, se aceptará en el tanto haya sido positiva, entendida ésta, como los bienes, obras o servicios recibidos a entera satisfacción, debiendo indicarse en el pliego de condiciones la forma idónea de acreditarla. Igual regla se seguirá cuando se trate de experiencia obtenida en el extranjero.

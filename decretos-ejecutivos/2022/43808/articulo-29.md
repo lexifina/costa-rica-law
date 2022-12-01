@@ -1,0 +1,2 @@
+Artículo 29. Incorporación de documentos. Todos los documentos que se adjunten al expediente electrónico de la contratación, a los formularios y/o documentos electrónicos disponibles en el sistema digital unificado, deben ser digitales e incorporados en el módulo que corresponda.
+En los casos en los que el documento no esté disponible en formato electrónico, deberá digitalizarse e incluirse como archivo en formato PDF o según lo disponga el pliego de condiciones de la contratación respectiva, en el módulo que corresponda.
