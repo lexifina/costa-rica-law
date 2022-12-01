@@ -1,2 +1,0 @@
-Artículo 29.—Prescripción. La prescripción es la forma de extinción de la obligación que surge como consecuencia de la inactividad de la Unidad de Cobro en el ejercicio de la acción cobradora. Los plazos para que ésta opere, su interrupción y demás aspectos sustanciales se regirán conforme a la ley, de conformidad con el artículo 73 del Código Municipal y en el caso de tributos de administración municipal, se regula según lo establecido en el artículo 51 del Código de Normas y Procedimientos Tributarios.
-(Así reformado en sesión N° 177 del 1° de noviembre del 2004)

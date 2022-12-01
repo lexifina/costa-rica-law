@@ -1,1 +1,0 @@
-Artículo 24.—En el supuesto que a una persona o empresa morosa, se le permitiera por error realizar un trabajo o suministrar un servicio a la Municipalidad, el cheque que se emita para cubrir esa obligación, quedará retenido hasta que normalice su situación.
