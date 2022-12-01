@@ -1,0 +1,4 @@
+Artículo 96 ter- Trámite de donaciones y bienes en desuso o mal estado
+Todos los bienes, las obras o los servicios que la Administración central reciba o done, en carácter de donaciones nacionales o internacionales, deberán registrarse contablemente según los lineamientos que determine para este efecto la Contabilidad Nacional, como órgano rector en materia contable.
+Los bienes de los órganos de la Administración central, que ingresen en las categorías de bienes en desuso o mal estado, podrán ser vendidos o donados por las instituciones, atendiendo las regulaciones que se dicten, mediante reglamento, a propuesta de la Contabilidad Nacional como órgano rector del subsistema.
+(Así adicionado por el artículo 133 inciso c) de la Ley General de Contratación Pública, N° 9986 del 27 de mayo de 2021)

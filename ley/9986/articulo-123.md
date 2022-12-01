@@ -1,0 +1,3 @@
+ARTÍCULO 123- Registro único de sanciones a particulares
+La Administración o la Contraloría General, según corresponda, está obligada a comunicar a la Dirección de Contratación Pública todas y cada una de las sanciones que imponga a particulares, independientemente de su naturaleza, lo cual deberá comunicar dentro del día hábil siguiente a aquél en que la sanción quede en firme.
+La Dirección de Contratación Pública deberá conformar un registro actualizado y único de sanciones, el cual deberá estar disponible para su consulta pública y de fácil acceso en el sistema digital unificado. La información deberá estar visible en el sistema dentro del día hábil siguiente a aquel en que la recibe y por el plazo de la sanción.

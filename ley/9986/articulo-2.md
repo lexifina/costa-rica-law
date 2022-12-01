@@ -1,0 +1,11 @@
+ARTÍCULO 2- Exclusiones de la aplicación de la ley
+Se excluyen del alcance de la presente ley las siguientes actividades:
+a) La actividad ordinaria de la Administración.
+b) Las relaciones de empleo público.
+c) Los empréstitos públicos. Los procedimientos de contratación derivados de ellos se regirán por la presente ley, salvo que la ley que apruebe el empréstito disponga otro régimen de contratación.
+d) Las contrataciones que se realicen fuera del país para la construcción, la instalación o la provisión de oficinas y para la contratación de bienes, obras y servicios, los cuales deberán ser utilizados y consumidos en su totalidad en el exterior.
+e) Los acuerdos celebrados con otros Estados o sujetos de derecho internacional público de carácter humanitario, los cuales se rigen por el derecho internacional público.
+f) Los convenios de colaboración entre entes de derecho público, entendidos como aquellos acuerdos que se realizan dentro del ámbito de competencia legal de cada sujeto, donde hay paridad entre las obligaciones de las partes y se busca un mismo fin común, sin mediar pago alguno.
+g) Las contrataciones que realice la Comisión Nacional de Emergencias, en virtud de la actividad extraordinaria definida en el artículo 4 de la Ley 8488, Ley Nacional de Emergencias y Prevención del Riesgo, de 22 de noviembre de 2005.
+Las restantes contrataciones se regirán por lo previsto en la presente ley.
+h) La adquisición de combustible.

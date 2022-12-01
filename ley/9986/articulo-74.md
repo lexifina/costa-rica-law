@@ -1,0 +1,5 @@
+CAPÍTULO II
+ARTÍCULO 74-Contrato de suministro
+Regulación y modalidades del contrato de suministro de bienes
+Considerando la necesidad que se pretende solventar, la Administración decidirá la modalidad de contratación de suministros de bienes que mejor satisfaga su necesidad, ya sea por cantidad definida, consignación, entrega según demanda o cualquier otra modalidad que resulte aplicable.
+La Administración deberá designar al responsable de verificar el cumplimiento de cada una de las etapas definidas en la decisión inicial para la obtención del suministro de bienes, aprobando o improbando la etapa, a fin de decidir continuar o no con la etapa siguiente. La aprobación deberá realizarse por escrito y con el detalle de cada una de las actividades realizadas y verificadas. No podrá iniciarse con el procedimiento de contratación, si no se cuenta con la aprobación del responsable designado para la etapa de planificación, donde se indique que esta fue realizada de forma completa y satisfactoria.

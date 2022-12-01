@@ -1,0 +1,5 @@
+SECCIÓN III
+Aplicación de instrumentos internacionales en compras públicas
+ARTÍCULO 9- Reglas de aplicación
+Al momento de la decisión inicial, la Administración deberá verificar si la contratación se encuentra o no cubierta por el capítulo de compras públicas de un instrumento comercial internacional vigente en Costa Rica, para lo cual deberá considerar el ámbito de cobertura y aplicar, en su caso, plazos mínimos de recepción de ofertas, reglas sobre objeto contractual, avisos y cualquier otro aspecto específico de la materia.
+Para la efectiva implementación de los capítulos de compras públicas de los instrumentos comerciales internacionales vigentes en Costa Rica, la Dirección de Contratación Pública, en coordinación con el Ministerio de Comercio Exterior, incluirá, dentro del sistema digital unificado, una herramienta tecnológica con los parámetros necesarios para facilitar la identificación de las contrataciones cubiertas por esos capítulos. Además, deberán coordinar las actividades de capacitación destinadas a funcionarios a cargo de procedimientos de contratación.
