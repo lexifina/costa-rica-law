@@ -1,0 +1,2 @@
+Artículo 11° - Vigencia
+Este procedimiento rige a partir de su publicación en el Diario Oficial La Gaceta y en cada una de las tiendas de los diferentes sistemas operativos, y será aplicable a partir del jueves 01 de diciembre del 2022 y hasta el viernes 06 de enero del 2023, inclusive. La Junta por razones de interés público se reserva el derecho de retirar del mercado está promoción, lo cual comunicará con la debida antelación de conformidad con la ley.
