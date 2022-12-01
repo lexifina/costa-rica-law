@@ -1,0 +1,2 @@
+Artículo 194- Cuando se trate de solicitudes para el otorgamiento de permisos, licencias o autorizaciones, vencido el plazo de resolución otorgado establecido por el ordenamiento jurídico a la administración, sin que esta se haya pronunciado, se establecerá lo estipulado en el artículo 7 de la Ley 8220, Protección al Ciudadano del Exceso de Requisitos y Trámites Administrativos de 4 de marzo de 2002.
+(Así adicionado por el artículo 12 de la ley Fomento e incentivos a los emprendimientos y las microempresas, N° 9998 del 4 de octubre de 2021)
