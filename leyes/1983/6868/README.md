@@ -1,6 +1,6 @@
 # Ley Orgánica del Instituto Nacional de Aprendizaje (INA)
 
-Ley N° 6868 del 1983-05-06. SINALEVI, ficha 11208: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=11208&param2=124209&param3=1>.
+Ley N° 6868 del 1983-05-06. SINALEVI, ficha 11208: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=11208&param2=133732&param3=1>.
 
 Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit, fechada el día en que entró en vigor):
 
@@ -15,3 +15,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 7 de 13 | 2019-03-18 | Ley 9654 | 2019-02-14 |
 | 8 de 13 | 2019-10-15 | Ley 9728 | 2019-09-12 |
 | 9 de 13 | 2021-01-29 | Ley 9931 | 2021-01-18 |
+| 10 de 13 | 2022-12-01 | Ley 9986 | 2021-05-27 |

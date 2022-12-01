@@ -1,0 +1,3 @@
+ARTICULO 33- Prohibición de fragmentación y separación por funcionalidad
+La Administración, incluidos sus órganos desconcentrados, no podrá fragmentar las adquisiciones de los bienes, las obras y los servicios que requiera con el propósito de variar el procedimiento de contratación.
+Cuando resulte más conveniente y sea técnicamente procedente, la Administración podrá licitar segmentos de obra pública de punto a punto que se constituyan como unidades funcionales o soluciones que puedan funcionar por sí mismas, a fin de propiciar la mayor participación de empresas, siempre y cuando se consigne así en la decisión inicial.

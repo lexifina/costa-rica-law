@@ -1,0 +1,4 @@
+ARTÍCULO 89- Allanamiento y desistimiento
+Las partes, dentro del trámite de un recurso de objeción, apelación o revocatoria, pueden allanarse parcial o totalmente a la pretensión de quien recurre. El competente para resolver el recurso, ya sea la Contraloría General de la República o la Administración, no está obligado a acoger las pretensiones ante un allanamiento y deberá resolver conforme a derecho.
+En cualquier momento del trámite de un recurso de objeción, de apelación o de revocatoria y antes de la adopción de la resolución final, quien recurre podrá desistir del recurso interpuesto.
+Cuando la parte recurrente desista de su recurso no será necesario conferir audiencia, se acogerá el desistimiento y se procederá al archivo inmediato de la gestión, a menos que se observen nulidades que ameriten la participación oficiosa de quien conozca del recurso. El desistimiento opera con respecto a quien así lo solicite y únicamente acerca de su recurso.

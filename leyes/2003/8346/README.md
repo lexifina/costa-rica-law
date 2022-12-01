@@ -1,6 +1,6 @@
 # Ley Orgánica del Sistema Nacional de Radio y Televisión Cultural (SINART)
 
-Ley N° 8346 del 2003-02-12. SINALEVI, ficha 50094: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=50094&param2=84854&param3=1>.
+Ley N° 8346 del 2003-02-12. SINALEVI, ficha 50094: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=50094&param2=133742&param3=1>.
 
 Publicada en La Gaceta N° 44 del 2003-03-04.
 
@@ -10,3 +10,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | --- | --- | --- | --- |
 | 1 de 4 | 2003-03-04 | Ley 8346 | 2003-02-12 |
 | 2 de 4 | 2011-05-25 | Ley 8941 | 2011-04-27 |
+| 3 de 4 | 2022-12-01 | Ley 9986 | 2021-05-27 |

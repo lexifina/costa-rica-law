@@ -1,7 +1,7 @@
-ARTÍCULO 29.- Subsistemas
-El Sistema de Administración Financiera comprende los siguientes subsistemas, que deberán estar interrelacionados:
-a) Subsistema de Presupuesto.
-b) Subsistema de Tesorería.
-c) Subsistema de Crédito Público.
-d) Subsistema de Contabilidad.
-Asimismo, el Sistema de Administración de Bienes y Contratación Administrativa se concebirá como un sistema complementario.
+Artículo 29- Subsistemas. El Sistema de Administración Financiera comprende los siguientes subsistemas, que deberán estar interrelacionados:
+a) Subsistema de presupuesto.
+b) Subsistema de tesorería.
+c) Subsistema de crédito público.
+d) Subsistema de contabilidad.
+e) Subsistema de contratación pública.
+(Así reformado por el artículo 134 inciso j) de la Ley General de Contratación Pública, N° 9986 del 27 de mayo de 2021)

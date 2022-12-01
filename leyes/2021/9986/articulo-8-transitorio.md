@@ -1,0 +1,1 @@
+TRANSITORIO VIII- Dentro de los dos años siguientes a la entrada en vigencia de esta ley, el rector deberá emitir el Plan Nacional de Compras Públicas (PNCP), el cual tendrá por esta única vez una vigencia de cuatro años.

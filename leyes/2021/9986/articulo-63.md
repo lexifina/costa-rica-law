@@ -1,0 +1,17 @@
+ARTÍCULO 63- Requerimientos mínimos. Las contrataciones que se realicen atendiendo al procedimiento de licitación reducida deberán contar necesariamente con lo siguiente:
+a) Decisión inicial, la cual deberá ser emitida considerando los requisitos estipulados en el artículo 37 de la presente ley.
+b) Recursos presupuestarios suficientes y disponibles para amparar la erogación, según la modalidad de la contratación.
+c) Acreditación de que cuenta con los recursos humanos idóneos, técnicos y financieros necesarios para verificar el cumplimiento de la contratación.
+d) Pliego de condiciones que establezca los requerimientos básicos y contenga un sistema objetivo de valoración de ofertas.
+e) Publicidad de todas las actuaciones a través de la incorporación oportuna y accesible de la información que se derive con ocasión de la actividad contractual, en el sistema digital unificado. La forma y el tiempo en que se dé acceso a la información no podrá exceder las veinticuatro horas posteriores a su emisión. La inobservancia de este plazo podrá acarrear responsabilidad del funcionario.
+f) Invitación, a través del sistema digital unificado, a un mínimo de tres oferentes idóneos para que participen. Si la Administración lo estima conveniente, podrá invitar a todos los proveedores que consten en el sistema.
+g) El plazo para recibir ofertas será entre tres y cinco días hábiles, contabilizados a partir del día siguiente a la comunicación de la invitación a participar y hasta el propio día de la apertura de ofertas, inclusive. Si la contratación está cubierta por un instrumento comercial internacional, deberá respetarse lo dispuesto en cuanto al plazo mínimo según lo previsto en el artículo 9 de la presente ley.
+h) El plazo de vigencia de la oferta debe estar indicado en el pliego de condiciones.
+i) La posibilidad de subsanar los defectos que contenga la oferta, bajo las reglas estipuladas en el artículo 50 de la presente ley.
+j) La posibilidad, para todos los oferentes, de mejorar su propuesta económica original, en los términos del artículo 41 de la presente ley, si así lo establece el pliego de condiciones.
+k) El deber de motivar el acto final del procedimiento, según lo indicado en el artículo 51 de la presente ley.
+l) La posibilidad de recurrir el acto final, siendo competente para conocerlo la Administración que promueve el procedimiento. El recurso de revocatoria deberá interponerse dentro de los dos días hábiles siguientes a su notificación. Si el recurso
+es admisible, se dará audiencia al adjudicatario por dos días hábiles, debiendo ser resuelto dentro de los tres días hábiles siguientes.
+m) La obligación de readjudicar o declarar desierto o infructuoso el concurso ante la anulación del acto final del procedimiento derivado de un recurso de revocatoria regulado en este artículo, dentro del plazo máximo de tres días hábiles a partir de la comunicación de la resolución anulatoria. Únicamente en casos excepcionales, por única vez y mediante acto debidamente motivado, el plazo para el dictado del acto final se podrá prorrogar por un plazo igual al inicial para recibir ofertas.
+n) La posibilidad de recurrir el pliego de condiciones, siendo competente para conocer del recurso de objeción la Administración que promueve el procedimiento.
+En el sistema digital unificado deberá constar un registro del uso de las licitaciones reducidas que trimestralmente realice cada Administración.

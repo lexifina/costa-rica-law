@@ -1,0 +1,1 @@
+TRANSITORIO VI- Las competencias de la Dirección General de Administración de Bienes y Contratación Administrativa asignadas en la Ley 8131, Administración Financiera de la República y Presupuestos Públicos, de 18 de setiembre de 2001, establecidas en los artículos 97 al 106, serán asumidas por la Dirección de Contratación Pública con los funcionarios asignados a aquella.

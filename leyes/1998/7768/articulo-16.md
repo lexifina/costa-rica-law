@@ -1,6 +1,5 @@
-ARTÍCULO 16.- Controles
-Correos de Costa Rica no estará sujeta a las siguientes disposiciones legales:
-a) Ley de Contratación Administrativa, No. 7494, de 2 de mayo de 1995.
+ARTÍCULO 16.- Controles. Correos de Costa Rica no estará sujeta a las siguientes disposiciones legales:
+a) (Derogado por el artículo 135 inciso g) de la Ley General de Contratación Pública, N° 9986 del 27 de mayo de 2021).
 b) Ley de Planificación Nacional, No. 5525, de 2 de mayo de 1974.
 c) Libro II de la Ley General de la Administración Pública, No. 6227, de 2 de mayo de 1978.
 d) Ley de administración financiera de la República y presupuestos públicos, N.º 8131, de 18 de setiembre de 2001.

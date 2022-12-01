@@ -1,0 +1,7 @@
+SECCIÓN IV
+Acto final
+ARTÍCULO 51- Acto final del procedimiento. El acto final, ya sea una adjudicación, declaratoria de desierto o de infructuoso, deberá consistir en una decisión informada de la persona u órgano que lo adopte, motivada en criterios técnicos y jurídicos.
+El plazo para dictar el acto final será el dispuesto en el pliego de condiciones, que en ningún caso podrá ser superior al doble del plazo fijado en el pliego para la recepción de ofertas. En casos excepcionales, por acto motivado, se podrá prorrogar hasta por un plazo igual al de recibir ofertas.
+Si transcurrido el plazo de seis meses, contado a partir del vencimiento de la prórroga, no se ha emitido el primer acto final, operará la caducidad del procedimiento.
+El acto final que no haya adquirido firmeza podrá ser revocado por la propia Administración, aun cuando sea recurrido. En caso de recurrirse el acto final, la revocación deberá ser adoptada previo al vencimiento del plazo otorgado para la audiencia inicial, haciendo constar las razones de tal proceder mediante resolución motivada y, en tal caso, se ordenará el archivo inmediato del recurso sin mayor trámite. Contra el acto de revocación y el de archivo no cabrá recurso alguno.
+La Dirección de Contratación Pública procurará que el sistema digital unificado permita a los interesados identificar los plazos que consumen las entidades promotoras de concursos para dictar el acto final y la cantidad de veces que han superado los plazos previstos inicialmente, facilitando el respectivo control ciudadano.

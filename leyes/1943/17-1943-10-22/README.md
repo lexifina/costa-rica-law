@@ -1,6 +1,6 @@
 # Ley Constitutiva de la Caja Costarricense de Seguro Social CCSS
 
-Ley N° 17 del 1943-10-22. SINALEVI, ficha 2340: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=2340&param2=117100&param3=1>.
+Ley N° 17 del 1943-10-22. SINALEVI, ficha 2340: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=2340&param2=133739&param3=1>.
 
 Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit, fechada el día en que entró en vigor):
 
@@ -15,3 +15,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 10 de 14 | 2010-06-01 | Ley 8823 | 2010-05-05 |
 | 11 de 14 | 2011-03-17 | Ley 8909 | 2011-02-08 |
 | 12 de 14 | 2019-07-22 | Ley 9686 | 2019-05-21 |
+| 13 de 14 | 2022-12-01 | Ley 9986 | 2021-05-27 |

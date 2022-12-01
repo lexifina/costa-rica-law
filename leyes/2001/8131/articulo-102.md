@@ -1,2 +1,1 @@
-ARTÍCULO 102.- Bienes dados en concesión
-El órgano rector del Sistema de Administración de Bienes llevará el registro de las obras y los bienes cedidos por órganos o entes de la Administración Central conforme al régimen de concesión de obra pública, el de concesión establecido en la Ley de Contratación Administrativa o de conformidad con otras disposiciones legales aplicables. Para este efecto, las dependencias y empresas correspondientes le proporcionarán a este órgano la información que requiera. Dicha información tendrá carácter público.
+ARTÍCULO 102.- Bienes dados en concesión. (Derogado por el artículo 135 inciso d) de la Ley General de Contratación Pública, N° 9986 del 27 de mayo de 2021)

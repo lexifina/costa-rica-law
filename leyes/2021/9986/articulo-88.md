@@ -1,0 +1,2 @@
+ARTÍCULO 88- Deber de fundamentación
+Los recursos se presentarán debidamente fundamentados y con la prueba idónea, con invocación de los principios de la contratación pública y normas infringidas. Se deberá indicar la infracción sustancial del ordenamiento jurídico que se alegue como fundamento de la impugnación. Junto con el recurso deberán aportarse los estudios técnicos que desvirtúen los criterios en que se sustente el acto impugnado.

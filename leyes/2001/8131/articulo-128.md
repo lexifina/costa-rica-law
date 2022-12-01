@@ -1,2 +1,2 @@
-ARTÍCULO 128.-Cambio de nomenclatura
-Al entrar en vigor la presente Ley, en la legislación vigente toda referencia a la Proveeduría Nacional corresponderá a la Dirección General de Administración de Bienes y Contratación Administrativa.
+Artículo 128- Cambio de nomenclatura y separación de competencias. En la legislación vigente, toda referencia a la Proveeduría Nacional y a la Dirección General de Administración de Bienes y Contratación Administrativa corresponderá a la Contabilidad Nacional, en lo referente a la materia de administración de bienes y, a la Dirección de Contratación Pública, en lo referente a la materia de contratación pública.
+(Así reformado por el artículo 134 inciso k) de la Ley General de Contratación Pública, N° 9986 del 27 de mayo de 2021)

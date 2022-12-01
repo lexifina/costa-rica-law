@@ -1,0 +1,1 @@
+TRANSITORIO IV- La Contraloría General de la República, en el plazo de un mes contado a partir de la entrada en vigencia de la presente ley, actualizará el valor de los umbrales establecidos en el artículo 36 de esta ley, si ello fuera necesario.

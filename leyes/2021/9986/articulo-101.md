@@ -1,0 +1,4 @@
+ARTÍCULO 101- Modificación unilateral del contrato
+En forma general, la Administración podrá modificar sus contratos vigentes siempre que con ello se logre una mejor satisfacción del interés público, sin superar bajo ningún concepto el veinte por ciento (20%) del monto y el plazo del contrato original.
+Cuando concurran circunstancias excepcionales, técnicamente acreditadas en el expediente, que no se hayan podido prever al momento de iniciar el procedimiento, el contrato podrá modificarse hasta un máximo del cincuenta por ciento (50%), en cuanto monto y plazo del contrato original, previa autorización del jerarca o por quien él delegue. En el caso de contratos de obra pública, esta autorización no podrá ser delegada.
+En el caso de que se califiquen de excepcionales circunstancias que técnicamente no lo sean, se podrá imponer al funcionario infractor la sanción administrativa prevista en el artículo 125, inciso v) de esta ley.

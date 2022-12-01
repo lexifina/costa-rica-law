@@ -1,6 +1,6 @@
 # Crea Ministerio de Comercio Exterior y Promotora de Comercio Exterior
 
-Ley N° 7638 del 1996-10-30. SINALEVI, ficha 25531: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=25531&param2=27012&param3=1>.
+Ley N° 7638 del 1996-10-30. SINALEVI, ficha 25531: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=25531&param2=133729&param3=1>.
 
 Publicada en La Gaceta N° 218 del 1996-11-13.
 
@@ -12,3 +12,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 2 de 6 | 1996-11-13 | SINALEVI | 1996-10-30 |
 | 3 de 6 | 2001-01-15 | Ley 8056 | 2000-12-21 |
 | 4 de 6 | 2002-05-27 | Ley 8262 | 2002-05-02 |
+| 5 de 6 | 2022-12-01 | Ley 9986 | 2021-05-27 |

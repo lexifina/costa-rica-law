@@ -1,0 +1,4 @@
+CAPÍTULO III
+Profesionalización en la contratación pública
+ARTÍCULO 132- Estrategia de profesionalización. Corresponde a la Autoridad de Contratación Pública definir una estrategia que promueva la profesionalización, la certificación de idoneidad y la capacitación continua de los funcionarios encargados de la contratación pública, así como de la acreditación de las unidades de compra institucionales.
+La Dirección de Contratación Pública ejecutará las acciones tendientes para la formación del personal de la Administración y fomentará el intercambio de buenas prácticas y proporcionará apoyo a los funcionarios para garantizar el trabajo cooperativo y la transmisión de conocimientos técnicos. Para ello, podrá impulsar convenios con entidades como universidades, centros de formación o sujetos de derecho internacional público, a fin de mejorar las capacidades y competencia del personal de la contratación pública.

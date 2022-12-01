@@ -1,0 +1,4 @@
+ARTÍCULO 25- Participación de los servidores públicos dentro del procedimiento de contratación pública
+Existirá participación directa del servidor público cuando, por el ejercicio de sus funciones, tenga la facultad jurídica de decidir, deliberar, opinar, asesorar o participar de cualquier otra forma directamente en el procedimiento de contratación, entendido este desde la definición del objeto contractual hasta su ejecución final.
+Este supuesto abarca a quienes deben rendir dictámenes o informes técnicos, preparar o tramitar alguna de las fases del procedimiento de contratación o fiscalizar la fase de ejecución.
+La participación directa incluye a las personas físicas contratadas por servicios profesionales que intervengan en el procedimiento de contratación pública. Existirá participación indirecta de los servidores públicos cuando por interpósita persona, física o jurídica, se participe en los procedimientos de contratación.
