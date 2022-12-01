@@ -10,4 +10,6 @@ g) Convocar al municipio a consultas populares, para los fines establecidos en e
 h) Promover un desarrollo local participativo e inclusivo, que contemple la diversidad de las necesidades y los intereses de la población.
 i) Impulsar políticas públicas locales para la promoción de los derechos y la ciudadanía de las mujeres, en favor de la igualdad y la equidad de género.
 j) Crear los albergues necesarios para la atención de personas en situación de abandono y situación de calle.
+k) Participar en el desarrollo de la política pública de vivienda que incida en el cantón, así como tener la posibilidad de desarrollar y gestionar proyectos de vivienda propios.
+(Así adicionado el inciso anterior por el artículo 24 de la Ley de vivienda municipal, N° 10199 del 5 de mayo de 2022)
 (Así reformado por el artículo 1° de la Ley para la creación de albergues para las personas en situaciones de abandono y situación de calle, N° 10009 del 27 de setiembre de 2021)
