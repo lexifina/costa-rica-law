@@ -1,12 +1,4 @@
 SECCION VII
 Disposiciones generales
-Artículo 57.- Mientras no se hayan establecido de modo definitivo
-los servicios de la Caja, ésta gozará de una amplia libertad de acción en
-cuanto al orden y época en que deba asumir los riesgos, y queda
-autorizada para limitar la prestación o prestaciones a las zonas de
-territorio y categorías de trabajadores que estime convenientes, en
-atención a los recursos con que cuente, facilidades para el
-establecimiento de los servicios, población que gozará de ellos,
-desarrollo económico de cada región, medios de comunicación y
-cualesquiera otras circunstancias que puedan influir en el buen resultado
-del implantamiento de los seguros sociales.
+Artículo 57.-La Caja gozará de facultades para decidir el orden y la época en que deba asumir riesgos respecto al establecimiento de servicios y queda autorizada para limitar la prestación de servicios a las zonas de territorio y a las categorías de trabajadores que determine reglamentariamente, en atención a los recursos financieros disponibles, las facilidades para el establecimiento de servicios, la cantidad de población a cubrir, el desarrollo económico de cada región, las condiciones de seguridad y rentabilidad, disposición de recurso humano y cualesquiera otras circunstancias que valore como necesarias para tomar una decisión, pero siempre respetando el derecho fundamental a la salud de los ciudadanos.
+(Así reformado por el artículo 6° de la Ley para promover la construcción de un área de salud tipo 3 ubicada en la Virgen de Sarapiquí para dar cobertura médica a la Región Huertar Norte y la Región Huertar Atlántica, N° 10012 del 27 de setiembre de 2021)
