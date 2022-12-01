@@ -1,0 +1,6 @@
+ARTÍCULO 112- Caducidad
+En materia de contratación pública aplicará la figura de la caducidad ante la inactividad de la Administración o del contratista, por un período que alcance seis meses, ya sea de forma continua o de la sumatoria de las suspensiones parciales e implicará la extinción del contrato en la etapa en que se encuentre. Tal cómputo se realizará de forma separada en cuanto a las actuaciones propias de la Administración y aquellas del contratista y la primera que alcance ese plazo originará la caducidad.
+Por inactividad se entenderá que, pese al desarrollo de algunas actuaciones durante la ejecución del contrato, estas no conducen a su efectiva continuidad en la forma, el tiempo y el plazo previstos para la óptima satisfacción del interés público, lo cual se regulará en el reglamento de la presente ley.
+Se exceptúan de lo anterior los convenios marco y las modalidades de entrega, según demanda y consignación.
+Únicamente en el caso de que el contrato caduque por responsabilidad de la Administración cabría indemnización para el contratista, siempre y cuando este haya realizado gestiones tendientes a la consecución de la ejecución del contrato.
+En tal caso, cabrá responsabilidad del funcionario público que con su omisión hubiera dado lugar a la caducidad del contrato.

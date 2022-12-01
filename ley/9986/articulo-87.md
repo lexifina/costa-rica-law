@@ -1,0 +1,3 @@
+ARTÍCULO 87- Presentación y causales de rechazo
+Todo recurso se presentará utilizando para ello el sistema digital unificado. Para la interposición del recurso se entienden hábiles todas las horas del propio día en que venza el plazo para presentarlo.
+El recurso será rechazado de plano, por inadmisible, en los siguientes supuestos: por incompetencia en razón de la materia, por el tiempo, por tipo de procedimiento o por la inobservancia de requisitos formales. Será rechazado de plano, por improcedencia manifiesta, cuando el recurrente no cuente con legitimación o no acredite su mejor derecho, el recurso se presente sin fundamentación o gire sobre argumentos precluidos.

@@ -1,0 +1,4 @@
+ARTÍCULO 21- Incorporación de criterios sociales, económicos, ambientales y de innovación en los pliegos de condiciones
+Los sujetos cubiertos por la presente ley promoverán la incorporación de consideraciones sociales, económicos, ambientales, culturales, de calidad y de innovación en los pliegos de condiciones, atendiendo a las particularidades del objeto contractual y el mercado y a las disposiciones que sobre el particular contemple el reglamento de la presente ley.
+En la incorporación de esos criterios se deberán respetar los principios de contratación pública, así como plantearse dichos criterios de manera objetiva, verificable y atinente al objeto contractual.
+El objeto de la contratación debe reunir exigencias de calidad y actualización tecnológica que obedezcan a avances científicos contemporáneos, de conformidad con las necesidades y posibilidades de la entidad contratante.

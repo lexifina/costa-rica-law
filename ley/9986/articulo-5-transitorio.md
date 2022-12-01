@@ -1,0 +1,1 @@
+TRANSITORIO V- La Autoridad de Contratación Pública, deberá definir la estrategia de profesionalización establecida en el artículo 132 de la presente ley, dentro del plazo de dieciocho meses contado a partir de la entrada en vigencia de esta ley.

@@ -1,0 +1,8 @@
+SECCIÓN II
+Subasta inversa electrónica
+ARTÍCULO 65- Subasta inversa electrónica
+Se faculta a la Administración para que utilice el procedimiento de contratación de subasta inversa electrónica, independientemente del monto, a través del sistema digital unificado, cuando se trate de bienes y servicios comunes y estandarizados o compra de tecnología que reúna tales requisitos. La entidad contratante elegirá al oferente cuya propuesta constituya el menor precio luego de un proceso de puja a la baja. Este procedimiento podrá utilizarse formulando los requerimientos según la demanda que la Administración requiera.
+Para utilizar este procedimiento, se deberá conformar un registro de proveedores precalificados y la base de la subasta será el precio estimado de la Administración con base en el banco de precios o previo sondeo de mercado, precio que podrá ser mejorado a la baja por los participantes.
+La invitación se publicará en el sistema digital unificado y facultativamente en un diario de circulación nacional, donde se indicarán los servicios o bienes que se pretenden adquirir, con una descripción amplia y detallada; además de la hora y fecha de la subasta y el monto de la garantía de cumplimiento.
+Entre el día de la publicación y la realización de la subasta deberán mediar al menos cinco días hábiles, contados a partir del día siguiente de la publicación en el sistema digital unificado.
+Dentro de los cinco días hábiles siguientes a la emisión del acto final, podrá 1nterponerse recurso de revocatoria ante la Administración, debiendo resolverse según las regulaciones del recurso de revocatoria establecido en el artículo 99 de la presente ley.

@@ -1,4 +1,5 @@
 N° 7494
+(Esta norma fue derogada por el artículo 135 inciso a) de la Ley General de Contratación Pública, N° 9986 del 27 de mayo de 2021. No, obstante, mediante resolución de la Sala Constitucional N° 5944 del 26 de febrero del 2025, se acordó adicionar la sentencia de la Sala Constitucional N° 022483 del 7 de agosto de 2024, de forma que en el dimensionamiento de los efectos de la declaratoria de inconstitucionalidad contenida en ese fallo, se agregue que también recobra vigencia el artículo 27 de la Ley de Contratación Administrativa, Ley N°7494, específicamente, en relación con el artículo 22 de la Ley N°8660, de Fortalecimiento y Modernización de las Entidades Públicas del Sector Telecomunicaciones. Dado lo anterior el numeral 27 de esta norma recobra su vigencia.)
 Ley de Contratación Administrativa
 CAPITULO I
 Cobertura y principios generales

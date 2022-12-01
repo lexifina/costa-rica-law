@@ -1,0 +1,4 @@
+ARTÍCULO 42- Desglose del precio
+El oferente deberá presentar la estructura del precio tanto en términos absolutos como porcentuales; lo anterior será obligatorio para los contratos de servicios y de obra pública, así como para cualquier otro objeto contractual según se establezca en el pliego de condiciones. La Administración establecerá el formato para la presentación de la estructura del precio.
+Cuando haya discrepancias entre los valores absolutos y los porcentuales de la estructura de precio presentada por el oferente, prevalecerán los valores absolutos sobre los porcentuales.
+El presupuesto detallado deberá ser presentado únicamente por el adjudicatario dentro del plazo de ocho días hábiles posteriores a la firmeza de la adjudicación y antes de la suscripción del contrato. En caso de no presentarse en ese plazo, la Administración procederá conforme a lo establecido en el artículo 52.

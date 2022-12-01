@@ -1,0 +1,6 @@
+CAPÍTULO V
+Contrato de servicios
+ARTÍCULO 78- Contratación de servicios
+La entidad contratante podrá realizar la contratación de servicios especializados que brinden personas físicas o jurídicas, cuando no pueda suplirlos a través de su propio personal y únicamente en forma temporal, si se acredita que tales servicios son idóneos para satisfacer la necesidad institucional. El contrato de servicios no originará relación de empleo entre la Administración y el contratista.
+Cuando la Administración contrate servicios según lo regulado en la presente ley, deberá establecer en el pliego de condiciones la forma de remuneración de los servicios prestados, la cual podrá ser por medio de tarifas en el caso de que se encuentren remunerados por aranceles obligatorios, por unidades de tiempo, por unidades de ejecución, por los elementos de la prestación o por una combinación de estas, entre otros. En caso de que no se cancele el servicio por tarifas, en el pliego de condiciones se deberá solicitar la estructura del precio y al adjudicatario se solicitará el presupuesto detallado.
+En caso de que el servicio deba realizarse fuera del Gran Área Metropolitana se procederá en la forma prevista en el artículo 23.

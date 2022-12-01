@@ -1,0 +1,4 @@
+ARTÍCULO 38- Contenido presupuestario
+Previo a promover el concurso, la Administración debe acreditar la existencia de contenido presupuestario.
+Si el procedimiento se iniciara sin disponer de recursos presupuestarios, el jerarca o quien él delegue así lo autorizará, lo cual deberá advertirse en el pliego de condiciones. En tal supuesto, no podrá emitirse el acto de adjudicación hasta que se cuente con el presupuesto suficiente, disponible y aprobado por quien corresponda.
+En caso de que la ejecución de un contrato se prolongue en diversos ejercicios económicos, se deberán incorporar únicamente los recursos necesarios para garantizar el pago de las obligaciones anuales en cada ejercicio, mientras que el valor total de la contratación deberá estar contemplado en el marco de presupuestación plurianual.

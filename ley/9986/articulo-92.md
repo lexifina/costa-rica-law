@@ -1,0 +1,3 @@
+ARTÍCULO 92- Régimen recursivo en contrataciones efectuadas con normativa de sujetos de derecho público internacional
+Cuando se promuevan concursos con sustento en normativa de un sujeto de derecho público internacional, al respectivo concurso le resultará aplicable el régimen recursivo previsto en la presente ley una vez que la Administración emita el acto final y, para todos los efectos, los concursos se asumirán como licitación mayor.
+Cuando en la ley del empréstito se establezca un régimen recursivo especial, este deberá ser observado, de modo que no resultará de aplicación lo previsto en el párrafo anterior.

@@ -1,0 +1,2 @@
+ARTÍCULO 50- Subsanación y aclaración de ofertas. Podrán ser susceptibles de subsanación los defectos que contenga una oferta, siempre y cuando con ello no se otorgue una ventaja indebida.
+Una vez emitidos los estudios de ofertas, la Administración consolidará los defectos advertidos en cada uno de ellos y dará una única prevención por un plazo razonable para que el oferente subsane o aclare su oferta, bajo pena de caducidad. En el mismo plazo concedido el oferente deberá subsanar o aclarar aquellos extremos no prevenidos por la Administración.
