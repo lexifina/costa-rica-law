@@ -14,3 +14,4 @@ Requisitos y procedimiento para la homologación o reconocimiento del registro s
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-12-01 | la propia norma |
+| 2 | 2022-12-01 | Decreto Ejecutivo 43766 (2022-08-25) |
