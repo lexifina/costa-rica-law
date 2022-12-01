@@ -1,0 +1,26 @@
+Nº 43448-RE-MGP
+EL PRESIDENTE DE LA REPÚBLICA,
+EL MINISTRO DE RELACIONES EXTERIORES Y CULTO
+Y EL MINISTRO DE GOBERNACIÓN Y POLICÍA
+En ejercicio de las facultades que confieren los artículos 140, incisos 3) y 18) y 146 de la "Constitución Política de la República de Costa Rica", los artículos 25 inciso 1), 27 inciso 1), 28 inciso 2), acápite b) y 112 inciso 1) de la "Ley General de la Administración Pública", Ley Nº 6227 del 02 de mayo de 1978, la "Ley Orgánica del Ministerio de Relaciones Exteriores y Culto", Ley Nº 3008 del 18 de julio de 1962, "Ley General de Migración y Extranjería", Ley Nº 8764 de 19 de agosto de 2009 y la "Convención sobre el Estatuto de los Apátridas" (Nueva York, 1954), Ley Nº 6079-B del 29 de agosto de 1977.
+Considerando:
+1º-Que Costa Rica es Parte de la "Convención sobre el Estatuto de los Apátridas" de 1954 (en adelante Convención de 1954), la cual fue aprobada mediante Ley N° 6079-B del 29 de agosto de 1977.
+2º-Que Costa Rica es Parte de la "Convención para Reducir los Casos de Apatridia" de 1961, la cual fue aprobada mediante Ley N° 6079-C del 29 de agosto de 1977.
+3º-Que la Convención de 1954 establece que el Estado contratante asume ante la comunidad internacional y ante sí mismo, en su propio ordenamiento jurídico, una serie de obligaciones, se acepta el principio de que los seres humanos, sin discriminación alguna, deben gozar de los derechos y libertades fundamentales, y establece y regula en ese aspecto la garantía para los apátridas del ejercicio amplio de esos derechos y libertades.
+4º-Que el derecho a la nacionalidad se encuentra consagrado en el artículo 15 de la Declaración Universal de Derechos Humanos adoptada y proclamada por la Resolución de la Asamblea General de las Naciones Unidas número 217 A (iii) el 10 de diciembre de 1948. Asimismo, es reconocido en el artículo XIX de la Declaración Americana de los Derechos y Deberes del Hombre y en el artículo 20 de la Convención Americana sobre Derechos Humanos.
+5º-Que la declaratoria de Apátrida corresponde al Ministerio de Relaciones Exteriores y Culto, de conformidad con el artículo 13 inciso 19) de la Ley General de Migración y Extranjería, y el artículo 16 del Reglamento de Personas Refugiadas, Decreto Nº 36831 del 28 de setiembre de 2011.
+6º-Que resulta necesario adecuar el procedimiento vigente para la determinación de la condición de personas apátridas a la realidad, tomando en cuenta las necesidades de esta población y de los solicitantes de su reconocimiento, para así cumplir con las obligaciones adoptadas por el Estado costarricense, lo anterior, con el objetivo de reducir los casos de apatridia y de asegurar a las personas declaradas como tales, el goce y disfrute de la totalidad de sus derechos.
+7º-Que las presentes reformas reglamentarias se basan en el principio de Apoyo Institucional y tienen el objetivo esencial de otorgar a las personas solicitantes del reconocimiento de la condición apatridia la posibilidad de obtener una nacionalidad y asegurar que la apatridia sea la "ultima ratio", buscando, además, evitar calificar erróneamente como apátridas a personas que no reúnen las condiciones para ser calificadas como tales.
+8º-Que en la "Declaración de Brasilia Sobre la Protección de Personas Refugiadas y Apátridas en el Continente Americano", adoptada el 11 de noviembre del 2010, se resaltó la contribución del continente americano al fortalecimiento de la protección de las personas apátridas.
+9º-Que el presente decreto se encuentra cubierto por la excepción establecida en el inciso e) del artículo 2 de la directriz N° 052-MP-MEIC del 19 de junio de 2019, publicada en La Gaceta N° 118 del 19 de junio de 2019, denominada "Moratoria a la creación de nuevos trámites, requisitos o procedimientos al ciudadano para la obtención de permisos, licencias o autorizaciones"; en el tanto las disposiciones incluidas reducen a la mitad los plazos de resolución de los procedimientos de declaratoria de la condición de persona apátrida y aseguran el acceso a documentos de viaje a personas que actualmente no cuentan con esa posibilidad. Por tanto,
+Decretan:
+"REFORMA AL REGLAMENTO PARA LA DECLARATORIA
+DE LA CONDICIÓN DE LA PERSONA APÁTRIDA,
+DECRETO EJECUTIVO N° 39620-RE-G DEL 7 DE ABRIL
+DE 2016; AL REGLAMENTO DE CONTROL MIGRATORIO,
+DECRETO EJECUTIVO N° 36769-G, DEL 23 DE MAYO
+DE 2011; Y AL REGLAMENTO DE EXTRANJERÍA,
+DECRETO EJECUTIVO N° 37112-GOB,
+DEL 21 DE MARZO DE 2012"
+Artículo 1º-Refórmese el inciso b) del artículo 7 del del Reglamento para la Declaratoria de la Condición de Persona Apátrida, Decreto Ejecutivo N° 39620-RE-G del 07 de abril de 2016, publicado en el Diario Oficial La Gaceta N° 92 del 13 de mayo del 2016, que deberá leerse:
+"b) Promover y coordinar ante la Dirección General de Migración y Extranjería, de conformidad con lo establecido en el presente reglamento y en la Convención sobre el Estatuto de los Apátridas de 1954, la emisión de la documentación de identidad provisional de la persona solicitante y definitiva para la persona apátrida y sus familiares, así como los documentos oficiales de identidad y viaje, que les permitan salir y entrar del país, ya sea como apátridas declarados o como solicitantes de reconocimiento de la condición de apatridia".

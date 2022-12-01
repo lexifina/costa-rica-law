@@ -1,0 +1,2 @@
+Artículo 13.-Adiciónese un inciso k) al artículo 53 del Reglamento de Control Migratorio, Decreto Ejecutivo N° 36769-G del 23 de mayo del 2011, publicado en el Diario Oficial La Gaceta N° 184 del 26 de setiembre del 2011, que se lea de la siguiente manera:
+"k. Documento de identidad y viaje para personas solicitantes de reconocimiento de la condición de apátridas extendido por la Dirección General."
