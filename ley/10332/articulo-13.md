@@ -1,0 +1,10 @@
+ARTÍCULO 13- Presentación de informe de las operaciones de financiamiento internacionales
+En un plazo no mayor a treinta días naturales, contado a partir de la fecha de presentación de los informes señalados en los artículos 12 y 12 bis, el Ministerio de Hacienda deberá presentar, a la Comisión Permanente Ordinaria de Asuntos Hacendarios de la Asamblea Legislativa, un informe en el que indique:
+a. El proceso de selección, adjudicación y los costos administrativos de las contrataciones señaladas en los artículos 5, 6, 7 y 8 de esta ley.
+b. El monto que se colocó, la fecha de salida al mercado, el plazo de colocación y el precio.
+c. Los resultados de la colocación, desagregados por distribución geográfica y tipo de inversionistas, el impacto en el mercado doméstico, la justificación técnica de la tasa de interés pactada en función de las condiciones financieras prevalecientes en el mercado.
+d. Detalle exhaustivo de todos los costos y gastos adicionales incurridos, aparte de la tasa de interés de los bonos, calculando la tasa efectiva que incluye todos los costos y gastos, en concordancia con lo dispuesto en el artículo 4.
+e. Cuando corresponda, las condiciones financieras de las respectivas colocaciones en términos de tasas de interés, plazo, pago de comisiones y otros gastos asociados, así como los costos, comisiones y otros gastos de los avales previstos en el artículo 8, de forma tal que ese mejoramiento de garantía permita tener acceso a condiciones más favorables, en comparación con la situación en que no se haga uso de dichos instrumentos.
+f. Las colocaciones de títulos de deuda interna que fueron sustituidas con los recursos autorizados mediante esta ley.
+g. El impacto en el gasto financiero por concepto de pago de intereses con el ajuste en las fuentes de financiamiento de las subpartidas destinadas a la amortización de la deuda .
+El Ministerio de Hacienda comparecerá ante la Comisión Permanente Ordinaria de Asuntos Hacendarios, a fin de explicar todo lo relativo a este informe.
