@@ -1,0 +1,2 @@
+Artículo 19. Controles e incorporación de documentos al expediente electrónico. El Proceso de Adquisiciones deberá establecer los controles y actividades para que los documentos relativos a compras de bienes y servicios estén incorporados en el expediente electrónico del trámite de compra, ordenado cronológicamente.
+El expediente electrónico estará foliado mediante un índice de asientos consecutivos que genera el mismo SUC. Todo interesado tendrá libre acceso al expediente electrónico del procedimiento de contratación el cual podrá ser consultado en línea.

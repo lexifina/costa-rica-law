@@ -1,0 +1,1 @@
+Artículo 9º Registro de Proveedores. El Registro de Proveedores que utilizará la Institución será el que defina el SUC, cuya actualización y reglamentación estará a cargo de la administración de dicho Sistema.

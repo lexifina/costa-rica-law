@@ -1,0 +1,2 @@
+Disposiciones finales
+Artículo 44. Conservación de la información de los expedientes electrónicos. La información que se genera del uso del SUC será resguardada por un plazo de 5 años por la administración del SUC; posterior a ese plazo le será enviada la información a la Institución en el medio de resguardo seleccionado y corresponderá a la Unidad de Compras Institucionales su resguardo y custodia.

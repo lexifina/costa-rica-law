@@ -1,0 +1,1 @@
+TRANSITORIO II: Los trámites cuya decisión inicial se haya dictado antes del 01 diciembre del 2022 se regirán conforme a los procedimientos, en lo que corresponda, con la Ley de Contratación Administrativa y su reglamento, así como los reglamentos y normativa interna vigentes en ese momento.
