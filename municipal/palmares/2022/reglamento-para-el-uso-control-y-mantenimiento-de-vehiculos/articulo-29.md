@@ -1,0 +1,1 @@
+Artículo 29.-Es absolutamente prohibido al funcionario autorizado para conducir un vehículo, ceder la conducción del mismo a otras personas no autorizadas, salvo razones muy calificadas que deberán comunicarse al Encargado de los Vehículos.

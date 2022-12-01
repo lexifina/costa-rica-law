@@ -1,0 +1,1 @@
+Artículo 12.-Del abastecimiento de accesorios, repuestos combustibles y lubricantes. Se establecerá un control de consumo de combustible con referencia hecha al rendimiento de kilómetros por galón de acuerdo a cada tipo de vehículo.

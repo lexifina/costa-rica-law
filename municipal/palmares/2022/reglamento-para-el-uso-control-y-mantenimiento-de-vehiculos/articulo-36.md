@@ -1,0 +1,1 @@
+Artículo 36.-De la notificación por accidentes menores. El conductor informará de cualquier novedad o percance ocurrido al vehículo y para este fin comunicará mediante oficio las novedades y accidentes.

@@ -1,0 +1,2 @@
+Artículo 31.-En condiciones difíciles de operación (carretera en mal estado, condiciones climáticas adversas, lugares de difícil acceso), todo conductor deberá actuar prudente y diligentemente, evitando la temeridad a fin de no exponerse a pérdidas humanas y materiales.
+Los conductores de vehículos no podrán hacer intercambio de accesorios entre las unidades, si no cuentan con la aprobación de la dependencia encargada.

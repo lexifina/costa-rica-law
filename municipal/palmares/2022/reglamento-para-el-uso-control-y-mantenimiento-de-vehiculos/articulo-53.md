@@ -1,0 +1,1 @@
+Artículo 53.-La persona designada por el Alcalde/sa como responsable de los Vehículos Municipales, llevará los registros que permitan conocer el estado de los vehículos antes y después de cada servicio y todos los datos necesarios para el adecuado control del uso de los mismos, informando a la Alcalde/sa cualquier anomalía.

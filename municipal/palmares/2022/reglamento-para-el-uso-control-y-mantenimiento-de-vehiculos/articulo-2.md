@@ -1,0 +1,1 @@
+Artículo 2.-Ámbito de aplicación: El presente reglamento se aplicará a todo vehículo que se encuentre o entre a formar parte de la lista de bienes adscritos a la Municipalidad de Palmares; así como al recurso humano que directamente tenga una relación operativa determinada por su margen de responsabilidad con la administración, custodia, uso, control y mantenimiento.

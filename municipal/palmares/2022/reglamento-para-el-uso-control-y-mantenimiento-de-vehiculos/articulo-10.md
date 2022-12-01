@@ -1,0 +1,1 @@
+Artículo 10.-De las acciones de control. La auditoría interna o el Alcalde/sa Municipal a través de quien delegue, efectuará cada seis meses el control de los vehículos propiedad de la municipalidad con base a operativos programados o sorpresivos y de acuerdo a las circunstancias en forma aleatoria.

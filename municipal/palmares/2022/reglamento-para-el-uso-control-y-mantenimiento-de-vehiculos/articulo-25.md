@@ -1,0 +1,1 @@
+Artículo 25.-Cuando por razones especiales, el servicio de transporte se requiera en horas y días no hábiles, su uso solo podrá ser autorizado por el Alcalde/sa Municipal, el Vicealcalde o el Concejo Municipal mediante resoluciones administrativas.

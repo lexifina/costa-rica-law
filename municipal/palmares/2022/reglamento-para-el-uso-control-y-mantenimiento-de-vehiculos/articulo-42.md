@@ -1,0 +1,2 @@
+Artículo 42.-Será responsabilidad de la dependencia encargada de la unidad, según las investigaciones de accidentes de tránsito, en la que participa un vehículo de la Municipalidad, solicitar la asistencia profesional necesaria por parte de la Asesoría Legal.
+El cumplimiento de lo anterior debe hacerse dentro del plazo perentorio judicial, de forma tal que se posibilite una adecuada y oportuna defensa de los intereses de la Municipalidad. El involucrado en un accidente deberá poner a disposición de la Asesoría Legal los testigos y pruebas con que se cuente en tiempo y forma

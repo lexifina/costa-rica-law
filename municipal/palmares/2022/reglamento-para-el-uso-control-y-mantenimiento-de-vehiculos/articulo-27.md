@@ -1,0 +1,1 @@
+Artículo 27.-La Secretaría del Concejo Municipal coordinará directamente con la Presidencia o Vicepresidencia para el traslado de los regidores/as que les corresponda cumplir con el ejercicio de sus labores del Concejo Municipal y solicitará el servicio respectivo ante el Encargado de los Vehículos Municipales con más de 48 horas de anticipación.

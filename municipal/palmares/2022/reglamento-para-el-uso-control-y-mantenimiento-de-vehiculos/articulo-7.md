@@ -1,0 +1,5 @@
+CAPITULO III
+De la administración, control, mantenimiento y salida de funcionamiento de los
+vehículos
+Artículo 7.-De la administración de vehículos. La administración de los vehículos le corresponde al Alcalde/sa Municipal, quien a la vez delegará en el Vicealcalde municipal o las Jefaturas con Equipo Automotor a cargo mencionado en el artículo 5 y sus incisos, la responsabilidad como encargado de vehículos. Este será responsable ante el Alcalde/sa de la correcta planificación del uso, mantenimiento y custodia de los vehículos mediante el análisis de las necesidades y requerimientos de las dependencias municipales y el de su manejo.
+El Jefe de la Sección la Unidad Técnica de Gestión Vial y el Encargado de Servicios Municipales y otros departamentos con vehículos asignados, remitirá un informe semestral al Alcalde/sa sobre el uso de los vehículos municipales donde indique el estado, mantenimiento preventivo y reparaciones, así como el registro de entradas y salidas y el motivo de la salida o uso del automotor, y consumo promedio mensual de combustible. El informe debe ser detallado por cada vehículo.

@@ -1,0 +1,1 @@
+Artículo 58.-Derogatoria: Este reglamento deroga el Reglamento anterior, denominado: "Reglamento para la Utilización, Control y Mantenimiento de Vehículos de la Municipalidad de Palmares", así como cualquier otra disposición anterior que se le oponga. Rige a partir de su publicación.
