@@ -1,0 +1,3 @@
+3. ARTÍCULO Plan Anual de Gestión de Crédito
+El Departamento de Crédito elaborará el Plan Anual de Gestión de Crédito, en adelante PAGC, cada año con las condiciones que serán aplicadas en los créditos del año, tales como: topes de los préstamos por niveles de estudio, asignación de recursos, períodos de estudios, coberturas de las garantías, condiciones crediticias, y otros lineamientos crediticios.
+El Plan Anual de Gestión de Crédito de cada año, será presentado al Consejo Directivo para su aprobación y se comunicará al público por los medios oficiales que utiliza la institución, dicho plan regirá en el momento que sea comunicado y se habilite el primer periodo de dicho plan.

@@ -1,0 +1,2 @@
+2. ARTÍCULO Referencia Ley de CONAPE
+La Comisión Nacional de Préstamos para Educación, en adelante CONAPE, tramita y concede préstamos a estudiantes, en adelante solicitantes o prestatarios según corresponda, de acuerdo con lo dispuesto en la Ley Nº 6041 del 18 de enero de 1 977 y sus reformas, este Reglamento de Crédito, así como en todas aquellas disposiciones legales, normas y acuerdos que le sean aplicables.

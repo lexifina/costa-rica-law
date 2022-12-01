@@ -1,0 +1,2 @@
+73. ARTÍCULO Asignatura en condición de escolaridad
+Se entiende por escolaridad las asignaturas que no han sido reprobadas, pero tampoco aprobadas por el prestatario. Cuando se tiene esta condición de "escolaridad" en una o más asignaturas, el prestatario debe aprobarlas de conformidad con el sistema de requisitos académicos propios del centro de estudios y el programa de estudios del prestatario, en un plazo máximo de un año calendario a partir del momento en que obtiene la escolaridad.

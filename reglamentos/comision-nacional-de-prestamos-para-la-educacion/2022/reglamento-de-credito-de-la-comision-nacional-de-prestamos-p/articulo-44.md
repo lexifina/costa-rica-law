@@ -1,0 +1,2 @@
+44. ARTÍCULO De la actualización del FAC.
+Una vez que el prestatario finalice su fase de ejecución y la operación crediticia se traslade a la fase de Cobro, el fondo se actualizará considerando el saldo real de la deuda, siendo que se liberará la diferencia sobrante de recursos del FAC. Esta información la comunicará la Sección de Cobro a las Jefaturas de los Departamentos de Crédito y Financiero, dentro de los primeros cinco días hábiles de cada mes.

@@ -1,0 +1,2 @@
+81. ARTÍCULO Interposición de Recursos Ordinarios y Extraordinarios.
+Contra lo resuelto por el Comité de Crédito, cabrán los recursos ordinarios y extraordinarios, conforme lo establecido por la Ley General de la Administración Pública. Los recursos de revocatoria serán resueltos por el Comité de Crédito y el recurso de apelación y de reposición por el Consejo Directivo. Lo resuelto por el ente colegiado conforme la Ley 6041 carecerá de ulterior recurso.

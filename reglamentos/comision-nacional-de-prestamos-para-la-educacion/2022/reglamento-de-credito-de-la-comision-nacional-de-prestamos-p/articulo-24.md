@@ -1,0 +1,2 @@
+24. ARTÍCULO Verificación del Lugar de Trabajo del Fiador
+Los funcionarios con la categoría de Profesional del Departamento de Crédito validarán las constancias o certificaciones salariales en los procesos relacionados con el análisis de las solicitudes de préstamo, cambios de garantía y otros trámites en los que se soliciten estos documentos, utilizando los medios de comunicación y/o electrónicos disponibles con que cuente la institución.

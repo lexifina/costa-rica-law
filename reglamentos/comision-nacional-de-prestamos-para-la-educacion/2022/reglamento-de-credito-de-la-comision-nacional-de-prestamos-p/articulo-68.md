@@ -1,0 +1,2 @@
+68. ARTÍCULO Desembolso suspendido y no tramitado por el prestatario
+Los desembolsos suspendidos por la Sección de Desembolsos y Control de Crédito y los no tramitados por el prestatario, podrán ser autorizados, distribuidos entre los restantes ciclos lectivos o reprogramados, de conformidad con el tope crediticio aprobado del préstamo, a solicitud escrita de éste y resuelto mediante Resolución Administrativa por parte de la Sección de Desembolsos y Control de Crédito.

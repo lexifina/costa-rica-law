@@ -1,0 +1,2 @@
+34. ARTÍCULO De la administración del fondo de avales.
+CONAPE deberá adoptar las medidas que garanticen la sostenibilidad del Fondo (FAC), en cuanto a inversiones, colocaciones anuales, la gestión de donaciones por medio de la cooperación internacional, la recepción de bienes otorgados en administración por el sector público o privado; por las donaciones de personas físicas o jurídicas, inversiones y comisiones.

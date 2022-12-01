@@ -1,0 +1,2 @@
+67. ARTÍCULO Transferencia electrónica del desembolso
+Después de firmado el Contrato de Crédito para Estudios, la Sección de Desembolsos y Control de Crédito, por medio de los profesionales o jefatura, autoriza el desembolso a través de la Transferencia Electrónica de Desembolso, a la cuenta de ahorro en colones del prestatario. En casos excepcionales, a juicio de la Jefatura de la Sección de Desembolsos y Control de Crédito, el desembolso podrá realizarse por medio de cheque.
