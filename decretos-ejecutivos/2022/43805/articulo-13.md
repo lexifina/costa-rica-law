@@ -1,0 +1,1 @@
+Artículo 13.- Integridad e inalterabilidad de la información. La plataforma TD Car debe conservar sin ningún tipo de alteración, los formularios electrónicos enviados y recibidos mediante el Sistema y dejar constancia en su bitácora de todas las transacciones y los mensajes generados.

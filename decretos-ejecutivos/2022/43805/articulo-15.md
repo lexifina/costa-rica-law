@@ -1,0 +1,1 @@
+Artículo 15.- Requerimientos técnicos. Los usuarios que deseen hacer uso de la plataforma TD CAR, deben cumplir los requerimientos técnicos que se definan en las Políticas de uso; además, son responsables del mantenimiento de los medios que adquieran e instalen para la utilización de la Plataforma.

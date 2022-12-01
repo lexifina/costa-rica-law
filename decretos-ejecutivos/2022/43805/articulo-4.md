@@ -1,0 +1,1 @@
+Artículo 4.- Uso de firma digital. Todos los actos que se realicen por medio de TD CAR, deben estar suscritos mediante firma digital emitida al amparo de lo dispuesto en la Ley de Certificados, Firmas Digitales y Documentos Electrónicos y su reglamento.

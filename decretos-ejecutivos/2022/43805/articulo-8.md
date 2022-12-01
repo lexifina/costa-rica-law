@@ -1,0 +1,1 @@
+Artículo 8.- Pagos. Los usuarios registrados deben realizar los pagos que generen los trámites por los medios de pago electrónico habilitados en el sistema y este a su vez debe generar la respectiva factura electrónica como comprobante de pago.
