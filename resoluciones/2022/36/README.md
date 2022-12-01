@@ -14,3 +14,4 @@ Formulario para liquidación y pago del impuesto selectivo de consumo de los con
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-11-24 | la propia norma |
+| 2 | 2022-12-01 | Resolución 40 (2022-12-01) |
