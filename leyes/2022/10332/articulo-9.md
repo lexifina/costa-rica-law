@@ -1,0 +1,2 @@
+ARTÍCULO 9- Régimen jurídico de las contrataciones
+A las contrataciones previstas en los artículos 5, 6, 7 y 8 no se les aplicarán los procedimientos ordinarios de concurso dispuestos en la Ley 7494, Ley de Contratación Administrativa, de 2 de mayo de 1995 y en la Ley 9986, Ley General de Contratación Pública, de 27 de mayo de 2021, excepto en cuanto a que sí deberán regirse por los principios de la actividad contractual del Estado .
