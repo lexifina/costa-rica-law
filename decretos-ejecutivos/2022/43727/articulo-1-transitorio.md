@@ -1,0 +1,1 @@
+TRANSITORIO ÚNICO: Quienes ocupen cargos en Ja Junta Directiva, la Fiscalía y la Fiscalía del Fondo en el momento de la promulgación del presente reglamento podrán ser reelectos según el artículo ocho anterior.

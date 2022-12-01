@@ -1,0 +1,1 @@
+Articulo 32.- De la conducción del procedimiento: La Fiscalía y el Tribunal de Honor deberán conducir el procedimiento, con la intención de lograr un máximo de celeridad y eficiencia, dentro del respeto al ordenamiento jurídico y a los derechos e intereses de las personas agremiadas y las parles y serán responsables de cualquier retardo grave e injustificado.

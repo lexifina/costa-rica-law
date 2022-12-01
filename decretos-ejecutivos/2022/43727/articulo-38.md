@@ -1,0 +1,1 @@
+Artículo 38.- De la recomendación del Tribunal: Celebradas las comparecencias convocadas por el Tribunal de Honor, se remitirá el expediente a la Junta Directiva con la recomendación correspondiente, debidamente fundamentada, la cual se adoptará por mayoría simple de los presentes.

@@ -1,0 +1,2 @@
+Artículo 15.- De las votaciones: Los acuerdos de la Asamblea General se Lomarán por simple mayoría, salvo los casos que se refieran a la modificación total o parcial del Reglamento a la Ley y los proyectos de modificación de la Ley Orgánica, en cuyo caso se necesita una mayoría de dos tercios de los votos presentes. En cualquier votación, en caso de empate, la Presidencia tendrá doble voto.
+Contra las resoluciones de la Asamblea General en materias de su competencia no cabrá recurso alguno, excepto lo dispuesto por la Ley General de Administración Pública.

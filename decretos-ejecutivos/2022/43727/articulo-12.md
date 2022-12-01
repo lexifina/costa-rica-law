@@ -1,0 +1,1 @@
+Articulo 12.- De la convocatoria: Para que se lleve a cabo una asamblea es necesaria la publicación de la convocatoria en La Gaceta y en uno de los diarios impreso; o digitales del país, así como en la página web del Colegio, además, deben mediar por lo menos tres días hábiles entre la primera publicación y el día señalado y expresar en el aviso el objeto de la convocatoria.

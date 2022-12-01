@@ -1,0 +1,1 @@
+Artículo 28.- De la designación: La designación de las personas miembros del Tribunal del Honor se hace lomando en cuenta los atestados profesionales de las personas agremiadas. Estos nombramientos deben asegurar la representación paritaria de ambos sexos, la diferencia entre ambos será de uno.

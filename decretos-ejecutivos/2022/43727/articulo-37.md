@@ -1,0 +1,1 @@
+Artículo 37.- De la intimación ante el Tribunal: Una vez remitido el caso al Tribunal de Honor por la Junta Directiva, en atención al principio del debido proceso y otros derechos constitucionales, este procederá a intimar a la parte denunciada.

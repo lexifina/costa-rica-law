@@ -1,0 +1,1 @@
+Artículo 16.- De la dirección de las asambleas: Las asambleas generales ordinarias o extraordinarias serán dirigidas por la Presidencia de la Junta Directiva, en su ausencia por la vicepresidencia o en ausencia de ambos por la vocalía en el orden de su nombramiento.

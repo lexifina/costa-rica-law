@@ -1,0 +1,1 @@
+Artículo 5.- De la separación temporal o definitiva: Para separarse del Colegio, temporal o definitivamente, la persona interesada debe hacerlo saber por escrito a la Junta Directiva. Para reintegrarse es necesario notificar ese propósito por escrito ante la Junta Directiva y cancelar la cuota de reincorporación.

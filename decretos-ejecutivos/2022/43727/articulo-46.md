@@ -1,0 +1,2 @@
+Artículo 46.- De los integrantes: No pueden formar parte del Tribunal Electoral las personas integrantes de la Junta Directiva, del Tribunal de Honor o personas colegiadas que sean funcionarias del Colegio.
+A los efectos de este artículo, así como para regular los distintos aspectos del proceso electoral, la Asamblea General dictará el Reglamento, el cual se aprobará por simple mayoría de los miembros presentes.

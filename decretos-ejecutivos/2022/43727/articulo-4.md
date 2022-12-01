@@ -1,0 +1,1 @@
+Artículo 4.- De las cuotas: Quienes se incorporen al Colegio deben cancelar la cuota de incorporación, cumplir con el pago de las cuotas mensuales y con los deberes establecidos para las personas colegiada, de acuerdo con la Ley, los reglamentos y disposiciones internas del Colegio.

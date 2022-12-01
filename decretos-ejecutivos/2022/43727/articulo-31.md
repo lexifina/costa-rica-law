@@ -1,0 +1,2 @@
+Artículo 31.- Del acceso al expediente y el derecho a la comparecencia: Las partes tienen derecho a conocer el expediente y a alegar sobre lo actuado para hacer valer sus derechos o intereses antes de la decisión final, de conformidad con los principios del debido proceso, con el fin de garantizar el derecho de defensa.
+Las partes tienen derecho a una comparecencia o actuación y se deberán respetar los derechos de audiencia y defensa consagrados en la Constitución Política.

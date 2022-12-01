@@ -1,0 +1,1 @@
+Articulo 24.- De las vocalías: Deberán asistir a todas las sesiones de Junta Directiva y desempeñar en ellas las funciones que les corresponden a la Vicepresidencia, a la Tesorería y a la Secretaria, por impedimento o ausencia temporal de estos directores, en cuyo caso actuarán en el orden de nombramiento. Asimismo, coordinarán las comisiones que la Presidencia les asigne.

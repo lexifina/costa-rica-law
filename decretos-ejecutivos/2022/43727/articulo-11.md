@@ -1,0 +1,1 @@
+Artículo 11.- De las Asambleas Extraordinarias: Se celebrarán, además, las Asambleas Extraordina1ias que acuerde la Junta Directiva o que solicite por lo menos el cinco por ciento (5 %) de las personas colegiadas. Asimismo, la Fiscal/a puede convocar a la Asamblea .Extraordinaria cuando algún asunto de su competencia lo amerite.
