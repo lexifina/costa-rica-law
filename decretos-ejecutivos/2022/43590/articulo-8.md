@@ -1,0 +1,10 @@
+Artículo 8º-Causas de no reconocimiento. No se otorgará reconocimiento al registro cuando:
+a) Exista confusión o igualdad en el nombre comercial de un producto farmacéutico previamente registrado.
+b) En una formulación donde se combinan principios activos de síntesis química con productos naturales medicinales y dicha combinación no esté catalogada como medicamento.
+c) La formulación sea un suplemento a la dieta o un producto naturales medicinal.
+d) Exista una alerta internacional que cuestione la seguridad y eficacia del principio activo o combinaciones de los mismos.
+e) En caso de coempaque que no se justifique científicamente para el esquema de tratamiento solicitado.
+f) Si la modalidad de venta aprobada en el registro del país de origen difiere a la del país de reconocimiento.
+g) Cuando el titular del medicamento no ha notificado ante el Ministerio de Salud las modificaciones al registro del producto aprobadas en el país de registro de conformidad con el Anexo 1 del Decreto Ejecutivo N° 43259-COMEXS- MEIC del 27 de setiembre de 2021 "Publica resolución N° 446-2021 (COMIECO-XCIV) del 28/04/2021 Anexo 1: Reglamento Técnico Centroamericano RTCA 11.03.59:18 Productos Farmacéuticos. Medicamentos para Uso Humano. Requisitos de Registro Sanitario", el Anexo A del Decreto N° 37006-S del 15 de noviembre de 2011 "Reglamento Técnico: RTCR 44(): 2010. Reglamento de Inscripción y Control de Medicamentos Biológicos", o el Decreto Ejecutivo N° 32470 del 4 de febrero de 2005 "Reglamento para el registro sanitario de los medicamentos que requieren demostrar equivalencia terapéutica", según corresponda con el medicamento a registrar y con la finalidad de contar con la información necesaria para realizar la vigilancia sanitaria.
+h) Productos que no demuestren estabilidad en la zona climática IV.
+(Corregido el inciso anterior mediante Fe de Erratas y publicada en La Gaceta N° 141 del 26 de julio de 2022, página N° 2 y 3. Posteriormente mediante Fe de Erratas y publicada en el Alcance Digital N° 169 a La Gaceta N° 150 del 9 de agosto de 2022, página N° 2, se corrigió el inciso anterior)

@@ -1,0 +1,1 @@
+Artículo 11.-Plazo de resolución del trámite. El Ministerio de Salud dispondrá de un plazo de 30 días naturales para la resolución de las solicitudes de homologación o reconocimiento del registro sanitario otorgados por autoridades reguladoras ICH.
