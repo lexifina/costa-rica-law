@@ -1,0 +1,3 @@
+Artículo 61 bis- El cargo de tesorero nacional será incompatible con cualquier otro cargo público, salvo lo indicado en el artículo 17 de la Ley 8422, Ley contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública, de 6 de octubre de 2004, en relación con las salvedades allí indicadas.
+Es prohibido, a quien ocupe el cargo de tesorero nacional, desempeñar cualquier otro cargo o empleo público.
+(Así adicionado por el artículo 1° de la Ley para mejorar el proceso de control presupuestario, por medio de la corrección de deficiencias normativas y prácticas de la administración pública, N° 10053 del 25 de octubre de 2021)
