@@ -1,0 +1,1 @@
+Artículo 14.-Del registro y la facturación. El Departamento de Acueducto en coordinación con el departamento financiero Municipal, una vez autorizada la paja de agua, de oficio registrará y facturará la conexión realizada a partir del día de su instalación. Dicha conexión será por tiempo indefinido, pero sujeta a las obligaciones establecidas en este reglamento.

@@ -1,0 +1,1 @@
+Artículo 17.-De la disponibilidad para servicios múltiples. Cuando se requiera la disponibilidad de agua potable para un inmueble que solicite de manera unificada o separada más de 8 servicios, la solicitud y estudio técnico firmado por el jefe de acueducto municipal deberá ser elevada a conocimiento y aprobación del Concejo Municipal.

@@ -1,0 +1,1 @@
+Artículo 7º-Tipos de servicio. La Municipalidad prestará el servicio de agua potable bajo cualquiera de las siguientes modalidades: a) Servicio Medido: Aquel que se cobrará de acuerdo al consumo que registre el hidrómetro, según las tarifas vigentes. b) Servicio Fijo: Aquel con consumo no controlado cuyo pago se efectuará de acuerdo a una tarifa fija.

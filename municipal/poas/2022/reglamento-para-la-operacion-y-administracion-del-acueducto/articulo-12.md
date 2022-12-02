@@ -1,0 +1,1 @@
+Artículo 12°-De la verificación. Posterior al establecimiento de la conexión de la paja de agua se procurará verificar que las instalaciones estén en buen estado, que no existan interconexiones que puedan dar lugar a contaminación de las aguas o puedan ocasionar perjuicios a los demás usuarios, que la paja de agua prestará servicio únicamente a la propiedad que se solicitó.

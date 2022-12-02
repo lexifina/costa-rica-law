@@ -1,0 +1,1 @@
+Artículo 23.-Del pago. El pago del servicio de agua potable será responsabilidad del propietario, arrendatario o figura legal autorizada, del bien inmueble al cual está conectado el servicio. En cualquier caso, de arrendamiento o inquilinato, el propietario es el responsable directo de velar por el pago que genere el servicio.

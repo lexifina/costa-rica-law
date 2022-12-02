@@ -1,0 +1,1 @@
+Artículo 51.-De la denuncia al Ministerio Público. El Departamento de Acueducto de la Municipalidad de Poás, procederá a realizar el informe y recopilar las pruebas de rigor y remitirlas a la Alcaldía Municipal, a fin de que se considere la presentación de una denuncia ante el Ministerio Público, cuando el abonado realice cualquier irregularidad según el artículo 50.

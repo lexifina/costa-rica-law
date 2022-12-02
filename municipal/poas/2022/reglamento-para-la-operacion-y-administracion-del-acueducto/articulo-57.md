@@ -1,0 +1,1 @@
+Artículo 57.-Testigos. La presencia de alguna persona propietaria o no en el inmueble como testigo de una inspección municipal, no será requisito sine qua non para que aquella pueda realizarse, por lo que de no encontrarse nadie en el sitio en el momento en que se realice la inspección, siempre se realizará la diligencia prevista.

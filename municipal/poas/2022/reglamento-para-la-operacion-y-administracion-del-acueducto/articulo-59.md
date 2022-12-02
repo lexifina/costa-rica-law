@@ -1,0 +1,1 @@
+Artículo 59.-Del uso de GPS. Los vehículos relacionados con el Acueducto Municipal, al igual que los dispositivos electrónicos de recolección de datos usados por los colaboradores de la Municipalidad de Poás, podrán contar con un sistema de posicionamiento global (GPS), con el fin de controlar el uso de los mismos y así optimizar la prestación de los servicios.
