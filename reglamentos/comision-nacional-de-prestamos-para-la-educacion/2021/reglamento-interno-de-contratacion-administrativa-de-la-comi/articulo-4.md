@@ -12,7 +12,8 @@ h) Contribuir con material informativo y de apoyo en la gestión de contratació
 i) Normalizar, estandarizar y actualizar los formatos de documentos a utilizar en el proceso de gestión de contratación administrativa.
 j) Elaborar los carteles definitivos de acuerdo con la información recibida de las unidades solicitantes y someterlo para aprobación, según corresponda.
 k) Atender las solicitudes recibidas (compra de bienes o servicios, modificación, aclaración, revocatorias, apelaciones, consultas, entre otros) respecto a los procedimientos de contratación administrativa, según normativa vigente, en coordinación con las unidades involucradas.
-l) Coordinar el recibo y la devolución de las garantías de participación o cumplimiento según normativa.
+l) Coordinar el recibo y la devolución de las garantías de cumplimiento según normativa.
+(Así reformado el inciso anterior en sesión N° 26 del 2 de diciembre de 2022, que eliminó del inciso anterior la palabra: "participación o")
 m) Revisar ofertas en aspectos administrativos o legales de cumplimiento obligatorio en las contrataciones, requisitos de admisibilidad y aportar observaciones a la revisión de ofertas técnicas, para ser consideradas por el Administrador del contrato en su análisis.
 n) Elaborar y comunicar al contratista, la orden de compra del bien, servicio u obra que respalda el procedimiento de contratación administrativa, una vez que se cumpla con todos los requisitos de formalización del contrato.
 o) Revisar y calcular el reajuste de precios solicitados por los contratistas. De ser necesario coordinar documentación de respaldo con la unidad gestora de la contratación.

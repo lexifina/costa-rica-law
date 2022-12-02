@@ -14,3 +14,4 @@ Reglamento interno de contratación administrativa de la Comisión Nacional de P
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-05-07 | la propia norma |
+| 2 | 2022-12-02 | Reglamento 26 (2022-12-02) |
