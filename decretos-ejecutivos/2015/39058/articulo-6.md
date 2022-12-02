@@ -1,1 +1,0 @@
-Artículo 6º—El Estado de emergencia fitosanitaria se mantendrá hasta tanto la Comunidad Económica Europea no cambie sus medidas cuarentenarias, respecto a la exportación de ornamentales de plantas para plantar de Costa Rica.
