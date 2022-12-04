@@ -1,2 +1,2 @@
-Artículo 11.-Puestos a elegir. Los puestos a designar en cada elección son: en los años impares se eligen Presidente, Vicepresidente y Dos Vocales y en los años pares se eligen Secretario, Tesorero y Fiscal.
-Ningún profesional en odontología empleado del Colegio de Cirujanos Dentistas de Costa Rica podrá tomar partido con alguna papeleta inscrita, ni ser candidato. Si desea hacerlo deberá renunciar al cargo en el momento en que la papeleta sea inscrita.
+Artículo 11 . Profesionales en odontología que deseen postularse para algún puesto de la Junta Directiva del Colegio de Cirujanos Dentistas de Costa Rica, no podrán haber sido funcionarios administrativos del Colegio durante el último mes anterior a la inscripción de la papeleta en la cual vayan a participar.
+(Así reformado en sesión N° 098 del 4 de diciembre de 2022)
