@@ -1,1 +1,0 @@
-Artículo 2º-El uso del Timbre Electrónico se extiende a los documentos indicados en los incisos a), c) y ch) del artículo 4 de la Ley 6614 Creación del Timbre del Contador Privado, así como a cualquier otro que precise la firma de un Contador Privado Incorporado.

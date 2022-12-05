@@ -1,1 +1,0 @@
-II.-Todos los documentos que lleven un timbre físico y se desean convertir a documento digital deberán seguir lo establecido en el procedimiento para el uso de la firma digital, en los EEFF y otros documentos emitidos por parte del contador privado incorporado.

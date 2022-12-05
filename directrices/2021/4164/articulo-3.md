@@ -1,1 +1,0 @@
-Artículo 3º-El Timbre Electrónico se emitirá en un solo tanto por el valor total correspondiente al documento emitido, en concordancia con los incisos a), c) y ch) del artículo 4 de la Ley 6614 y en su Reglamento.
