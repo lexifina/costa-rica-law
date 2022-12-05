@@ -1,0 +1,2 @@
+Artículo 40. Derogatoria.
+El presente reglamento deroga el REGLAMENTO DE RECLUTAMIENTO, SELECCIÓN Y NOMBRAMIENTOS POR COMPETENCIAS DEL RECURSO HUMANO DEL PATRONATO NACIONAL DE LA INFANCIA aprobado por la Junta Directiva del Patronato Nacional de la Infancia mediante acuerdo tomado en Sesión Ordinaria 2022-007, celebrada el 01 de marzo del 2022, artículo 007, aparte 01, publicado en el Alcance No. 45 de la Gaceta No. 43 del 04 de marzo del 2022.

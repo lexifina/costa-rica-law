@@ -1,0 +1,2 @@
+Artículo 36. Imposibilidad de ser oferente.
+La persona que haya perdido el periodo de prueba, no podrá constituirse como oferente para el PANI dentro de los 3 años siguientes a la pérdida de dicho periodo de prueba. Así mismo, será excluido de forma permanente, la persona que pierda el periodo de prueba por segunda vez. Lo anterior se hará constar en la resolución administrativa que resuelva la no aprobación del periodo de prueba.

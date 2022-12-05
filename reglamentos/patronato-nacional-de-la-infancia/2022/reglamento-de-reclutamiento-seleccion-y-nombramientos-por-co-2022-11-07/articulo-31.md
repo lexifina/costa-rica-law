@@ -1,0 +1,2 @@
+Artículo 31. Nombramiento del personal de la Auditoría Interna.
+El nombramiento de las demás personas funcionarias de la Auditoría Interna estará sujeto a las disposiciones de este reglamento, sin embargo, todo nombramiento, traslado, suspensión, remoción, concesión de licencias y demás movimientos de personal, deberán contar con visto bueno del auditor o auditora interna, como jefatura directa del personal de auditoría.
