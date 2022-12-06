@@ -16,3 +16,4 @@ Reglamento para la gesti√≥n del cobro administrativo y judicial, la fiscalizaci√
 | 1 | 2013-06-25 | la propia norma |
 | 2 | 2020-06-08 | Reglamento municipal 6 (2020-06-08) |
 | 3 | 2021-04-19 | Reglamento municipal 51 (2021-04-19) |
+| 4 | 2022-12-06 | Reglamento municipal 136 (2022-12-06) |
