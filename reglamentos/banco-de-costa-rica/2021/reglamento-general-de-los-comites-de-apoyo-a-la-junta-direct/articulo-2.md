@@ -1,33 +1,16 @@
-Artículo 2.-De las funciones. El Comité Corporativo Ejecutivo tiene las siguientes funciones:
-Relacionadas con temas estratégicos para articular y controlar el accionar del Conglomerado Financiero BCR:
-a. Proponer y dar seguimiento al cumplimiento del Plan Estratégico, a la normativa interna y controles del Banco y sus subsidiarias; así como, aprobar las propuestas relacionadas con el cumplimiento de dicho plan y someterlo a conocimiento y aprobación de la Junta Directiva General o de las Juntas Directivas de las subsidiarias según corresponda.
-b. Asegurar el seguimiento de los objetivos estratégicos; así como, la implementación de objetivos tácticos y las actividades programadas.
-c. Revisar y actualizar permanentemente la agenda estratégica del Banco y sus subsidiarias.
-d. Dar seguimiento periódico a los sistemas de evaluación y de gestión del desempeño enfocados a la mejora continua, con la finalidad de identificar los principales aciertos; así como, las oportunidades de mejora en la gestión, a fin de definir las medidas que sean necesarias para encauzar los esfuerzos hacia el cumplimiento de los objetivos estratégicos.
-e. Revisar el presupuesto anual del Conglomerado Financiero BCR y recomendar su aprobación a la Junta Directiva General.
-f. Analizar y evaluar los resultados financieros del Conglomerado BCR y sus posibles impactos y recomendar a la Junta Directiva General el informe financiero mensual (del Banco y de sus subsidiarias), con sus respectivas observaciones. Asimismo, trimestralmente, presentar al Comité Corporativo de Auditoría y a la Junta Directiva General un análisis de los estados financieros individuales y consolidados.
-g. Analizar y trasladar al Comité Corporativo de Auditoría, los estados financieros anuales auditados (individuales y consolidados), el informe del auditor externo, los informes complementarios y la carta de gerencia.
-h. Conocer los informes y acuerdos que les remitan órganos colegiados que brindan soporte a la operación del BCR y tomar las decisiones que se consideren procedentes.
-i. Dar seguimiento al estatus de los proyectos estratégicos y resolver los conflictos de recursos.
-j. Optimizar la gestión de los recursos para apoyar eficientemente los objetivos del Conglomerado Financiero BCR.
-k. Balancear las inversiones entre el soporte y el crecimiento del negocio alineado a la planificación estratégica.
-l. Conocer los temas que en materia de riesgos del Conglomerado se presentan para resolución en el Comité Corporativo de Riesgo.
-m. Garantizar la transparencia y la rendición de cuentas hacia las partes interesadas por medio de los canales e informes que correspondan.
-n. Aprobar y recomendar la normativa que corresponda para la gestión de la gobernanza del Conglomerado Financiero BCR.
-o. Establecer un sistema de información gerencial que permita la toma de decisiones oportuna y la rendición de cuentas.
-p. y dar seguimiento a las recomendaciones emitidas por los reguladores y auditores internos y externos.
-Funciones relacionadas con temas vinculados a la gestión comercial:
-a. Analizar, aprobar y dar seguimiento a los planes comerciales y sus respectivos índices de medición; así como, resolver las propuestas de otras áreas relacionados con estos planes.
-b. Aprobar las campañas publicitarias y patrocinios por encima de los trescientos mil dólares o su equivalente en colones.
-c. Aprobar las propuestas de negocios del área comercial.
-d. Dar seguimiento a los proyectos de impacto del área comercial y de soporte; así como, aquellos convenios comerciales establecidos en el Conglomerado Financiero BCR.
-e. Dar seguimiento a la calidad de los servicios de apoyo a las áreas comerciales del Conglomerado Financiero BCR.
-f. Proponer a la Junta Directiva General las acciones estratégicas, planes y programas vinculados a la actividad comercial.
-g. Cumplir con las funciones establecidas en el acuerdo Sugef 12-21 Reglamento para la prevención del riesgo de legitimación de capitales, financiamiento al terrorismo y financiamiento de la proliferación de armas de destrucción masiva, aplicable a los sujetos obligados por el artículo 14 de la ley 7786.
-Funciones relacionadas con gobernanza de las TI según lo establecido en el Acuerdo Sugef 14-17 Reglamento general de gestión de la Tecnología de Información
-a. Definir la priorización de las inversiones de tecnología, asesorar y dar seguimiento al cumplimiento de la estrategia de TI; así como, asegurar la existencia de los recursos para su implementación.
-b. Proponer a la Junta Directiva General las estrategias y los recursos requeridos para la implementación del marco de Gestión de TI.
-c. Proponer a la Junta Directiva General, la firma de auditores externos o profesional independiente de TI para la ejecución de la Auditoría Externa de TI.
-d. Implementar y controlar la ejecución de la normativa administrativa interna de gestión de TI.
-e. Asignar las áreas de negocio responsables de implementar los procesos del Marco de Gestión TI.
-(Así reformado en sesión N° 20 del 24 de mayo de 2022)
+Artículo 2. De las funciones
+Para cumplir con lo establecido en el acuerdo Conassif 04-16 Reglamento de Gobierno Corporativo, al Comité Corporativo de Auditoría le corresponden las siguientes funciones:
+a. Conocer los informes de avance del plan de labores que debe presentar cada tres meses el auditor general y los auditores internos de las sociedades.
+b. Ejercer la debida vigilancia en el cumplimiento de las funciones y responsabilidades de la Auditoría Interna con respecto al marco regulatorio y las sanas prácticas.
+c. Informar al órgano de dirección sobre la confiabilidad de los procesos contables y financieros, incluido el sistema de información gerencial.
+d. Recomendar a la Junta Directiva General las condiciones de contratación y el nombramiento o revocación de la firma o auditor externo conforme los términos del Reglamento sobre auditores externos aplicable a los sujetos fiscalizados por las superintendencias. En caso de que la contratación incluya la auditoría externa de TI, se debe solicitar a la Junta Directiva General informar al Comité Corporativo Ejecutivo y al Comité Corporativo de Tecnología, la resolución correspondiente.
+e. Supervisar e interactuar con auditores internos y externos.
+f. Conocer la evaluación del desempeño de los auditores externos contratados aplicada por la Gerencia Corporativa de Finanzas y los gerentes de las sociedades anónimas.
+g. Proponer a la Junta Directiva General, con base en el resultado de la evaluación, la ampliación del contrato de la firma de auditores externos.
+h. Vigilar que la Alta Gerencia tome las acciones correctivas necesarias en el momento oportuno para hacer frente a las debilidades de control, el incumplimiento de las políticas, leyes y reglamentos; así como, otras situaciones identificadas por los auditores y el supervisor.
+i. Supervisar el cumplimiento de las políticas y prácticas contables.
+j. Revisar las evaluaciones y opiniones sobre el diseño y efectividad del gobierno de riesgos y control interno.
+k. Conocer y recomendar a la Junta Directiva correspondiente, las condiciones del concurso para los puestos de auditor interno y subauditor, que gestione el Comité Corporativo de Nominaciones y Remuneraciones.
+l. Revisar y aprobar el programa anual de trabajo de la auditoría interna o equivalente y el alcance y frecuencia de la auditoría externa, de acuerdo con la normativa vigente.
+m. Revisar la información financiera anual y trimestral antes de su remisión a la Junta Directiva correspondiente, de la entidad y del Vehículo de Administración de Recursos de Terceros, con énfasis en cambios contables, estimaciones contables, ajustes importantes como resultado del proceso de auditoría, evaluación de la continuidad del negocio y el cumplimiento de leyes y regulaciones vigentes que afecten a la entidad o al Vehículo de Administración de Recursos de Terceros.
+n. Revisar y trasladar a la Junta Directiva correspondiente, los estados financieros anuales auditados, los informes complementarios, las comunicaciones del auditor externo y demás informes de auditoría externa o interna.

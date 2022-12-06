@@ -1,1 +1,2 @@
-Artículo 21. De la periodicidad de las reuniones. Las reuniones del Comité Corporativo de Nominaciones y Remuneraciones se celebran semestralmente, en la fecha y hora que determine el Comité, salvo que se requiera antes, por solicitud del presidente.
+Artículo 21. De la periodicidad de las reuniones
+Las reuniones se deben celebrar al menos una vez al mes, el día y la hora que este Comité determine, salvo que el presidente considere que no hay asuntos que tratar hasta la siguiente sesión.

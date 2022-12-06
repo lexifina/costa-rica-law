@@ -1,1 +1,7 @@
-Artículo 51. Del objeto de esta Comisión. Esta Comisión tiene como objeto velar por la promoción de la igualdad y equidad efectiva, así como contribuir a erradicar las prácticas discriminatorias por razones de orientación sexual o identidad de género que, por acción u omisión, puedan lesionar los derechos humanos fundamentales y exponer al Conglomerado Financiero BCR a riesgos reputacionales, financieros o legales. Para ello, debe establecer un Plan anual de trabajo que debe considerar las directrices del Plan Estratégico y los lineamientos institucionales que sobre esta materia emita la Administración Superior del Banco, así como la disponibilidad de recursos humanos y presupuestarios para su debida diligencia.
+Artículo 51. De las funciones
+Sin perjuicio de lo indicado en la Ley del Sistema Nacional de Archivos y su Reglamento, son funciones del Comité Institucional de Selección y Eliminación de Documentos las siguientes:
+a. Evaluar y determinar la vigencia administrativa y legal de los documentos de la institución. Para ello, promueve la elaboración y actualización de la tabla de plazos de conservación de documentos desde el Archivo Central Institucional.
+b. Consultar a la Comisión Nacional de Selección y Eliminación de Documentos cuando se deban eliminar documentos que han finalizado su trámite administrativo y no existan tablas de plazos aprobadas.
+c. Hacer de conocimiento de la Comisión Nacional de Selección y Eliminación, las tablas de plazos institucionales aprobadas por el Comité Institucional.
+d. Avalar las consultas parciales de eliminación que se deban remitir a la Comisión Nacional de Selección y Eliminación de Documentos.
+e. Resolver las consultas para eliminar documentos que carezcan de valor científicocultural.

@@ -1,12 +1,23 @@
-Artículo 8º-De las funciones. Para cumplir con lo establecido en el acuerdo Sugef 12- 21 Reglamento para la prevención del riesgo de legitimación de capitales, financiamiento al terrorismo y financiamiento de la proliferación de armas de destrucción masiva, aplicable a los sujetos obligados por el artículo 14 de la ley 7786, al Comité Corporativo de Cumplimiento le corresponden las siguientes funciones:
-a. Proponer a la Junta Directiva las políticas de confidencialidad respecto a las personas trabajadoras del Conglomerado Financiero BCR y directivos en el tratamiento de los temas relacionados con LC/FT/ FPADM/FDO.
-b. Conocer y vigilar el cumplimiento del plan de trabajo de la Oficialía de Cumplimiento del BCR y de las oficialías de cumplimiento de cada una de las empresas del Conglomerado Financiero BCR, y elevarlo a la Junta Directiva para su respectiva aprobación.
-c. Colaborar con la Gerencia Corporativa de Capital Humano para la inclusión de temas de prevención de LC/FT/FPADM/FDO en el Código de ética corporativo del Conglomerado Financiero BCR para su aprobación por parte de la Junta Directiva General.
-d. Proponer y recomendar para la aprobación por parte de la Junta Directiva General, la metodología y la inclusión o exclusión de criterios del modelo de LC/FT/FPADM/ FDO de cada empresa del Conglomerado Financiero BCR.
-e. Realizar informes al menos semestralmente a la Junta Directiva General, sobre la exposición al riesgo de LC/ FT/FPADM/FDO, y en casos en que existan situaciones relevantes de reportar.
-f. Conocer los resultados que presenta el oficial de cumplimiento de: las evaluaciones de la capacitación anual del personal, el detalle de los clientes que han sufrido movimientos ascendentes o descendentes en su clasificación de riesgo, las operaciones inusuales analizadas y un resumen de las operaciones sospechosas y operaciones intentadas reportadas a la UIF.
-g. Revisar las políticas, procedimientos, normas y controles implementados para cumplir con el marco normativo vigente en materia de LC/FT/FPADM/FDO.
-h. Conocer informes de los estudios efectuados de las auditorías internas y en materia de LC/FT/FPADM/ FDO.
-i. Informar a la Junta Directiva General sobre el seguimiento de los planes correctivos definidos para subsanar las debilidades y oportunidades de mejora identificadas en los estudios de las auditorías interna y externa; informes de la superintendencia respectiva y de la evaluación de riesgos de LC/FT/FPADM/FDO por parte de la Oficialía de Cumplimiento y por el Comité Corporativo de Cumplimiento.
-j. Dar seguimiento a los proyectos de impacto en el área de Cumplimiento.
-(Así reformado en sesión N° 20 del 24 de mayo de 2022)
+Artículo 8. De las funciones
+Para cumplir con lo establecido en los acuerdos: Sugef 02-10 Reglamento sobre administración integral de riesgo, Conassif 04-16 Reglamento sobre Gobierno Corporativo y Sugeval 11-09 Reglamento de gestión de Riesgos; así como, aquellas normas que sean atinentes en la materia de su competencia y que se establezcan en la regulación específica emitida por los entes reguladores, supervisores y fiscalizadores; al Comité Corporativo de Riesgo le corresponden las siguientes funciones, las cuáles recogen la esencia de las diversas normas pero no las sustituyen:
+Funciones relacionadas con asesorar e informar:
+a. Asesorar a la Junta Directiva correspondiente sobre el adecuado funcionamiento, evaluación y perfeccionamiento de los sistemas de gestión integral del riesgo del Conglomerado Financiero BCR.
+b. Evaluar, revisar y proponer para aprobación de la Junta Directiva correspondiente los objetivos, políticas, estrategias, metodologías, manuales y planes de continuidad del negocio para el proceso de gestión del riesgo.
+c. Asesorar al Órgano de Dirección en todo lo relacionado con las políticas de gestión de riesgos, la capacidad y el apetito de riesgo.
+d. Analizar y proponer para la aprobación de la Junta Directiva correspondiente, el grado de exposición al riesgo y límites internos individuales y agregados.
+e. Analizar y proponer a la Junta Directiva correspondiente para su aprobación, los mecanismos para la implementación de las acciones correctivas propuestas por la Gerencia Corporativa de Riesgo, las jefaturas de riesgo de las sociedades del CFBCR o por las unidades de negocio, en caso de que existan desviaciones con respecto a los límites y el nivel de apetito.
+f. Proponer a la Junta Directiva General, la designación de la firma auditora o el profesional independiente para la auditoría del proceso de Administración Integral de Riesgos.
+g. Proponer planes de contingencia en materia de riesgos.
+h. Informar a la Junta Directiva correspondiente los resultados de sus valoraciones sobre las exposiciones al riesgo de cada entidad.
+i. Informar sobre la inobservancia de los parámetros de aceptabilidad y límites de tolerancia de riesgo aprobados.
+j. Informar a la Junta Directiva correspondiente sobre las acciones correctivas y mejoras implementadas.
+k. Conocer y gestionar el programa anual del plan de cultura de riesgo y dar seguimiento a su cumplimiento.
+l. Analizar y elevar a la Junta Directiva correspondiente los informes emitidos por la Gerencia Corporativa de Riesgo o las jefaturas de riesgo de las sociedades del CFBCR, incluido el análisis de las pruebas de estrés en los riesgos que corresponde hacerlas.
+m. Intercambiar periódicamente con la Auditoría Interna o equivalente y otros comités relevantes, la información necesaria para asegurar la cobertura efectiva de todos los riesgos y los ajustes necesarios en el Gobierno Corporativo de la entidad a la luz de sus planes de negocio o actividades y el entorno.
+Funciones relacionadas con supervisión:
+a. Supervisar que la gestión del riesgo sea efectiva y que los eventos de riesgo sean consistentemente identificados, evaluados, mitigados y monitoreados.
+b. Supervisar las estrategias, la gestión de los riesgos y la ejecución de la Declaración de Apetito de Riesgo y contrastar dichas exposiciones frente a los límites de tolerancia aprobados por la Junta Directiva General según el Apetito de Riesgo establecido.
+c. Conocer, analizar y referirse a los informes sobre el Perfil de Riesgo y el funcionamiento, evaluación y perfeccionamiento de los sistemas de gestión integral del riesgo del Conglomerado Financiero BCR.
+d. Conocer sobre los temas estratégicos analizados por el Comité de Riesgos de la OPC.
+e. Analizar las pruebas de estrés realizadas en la gestión de riesgo que correspondan.
+f. Supervisar la labor de la Gerencia Corporativa de Riesgo en la implementación de la gestión integral del riesgo.

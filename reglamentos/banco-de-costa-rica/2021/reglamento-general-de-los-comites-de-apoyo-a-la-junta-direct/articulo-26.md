@@ -1,7 +1,13 @@
-Artículo 26. De las funciones. El Comité de Continuidad del Negocio es el órgano colegiado responsable para vigilar la existencia y mantenimiento de la documentación correspondiente a las fases del Sistema de Gestión de Continuidad del Negocio (SGCN); así como, de asegurar la mejora continua y establecer las directrices que permitan la adquisición de herramientas y competencias organizacionales para desarrollar la resiliencia deseada. Además, corresponden a este comité las siguientes funciones:
-a. Vigilar que cada área representada en el Comité, elabore y presente un plan de trabajo anual de las labores a desarrollar en materia de continuidad de negocio.
-b. Vigilar que se implementen los planes, procedimientos y protocolos de continuidad que faciliten la ejecución de procesos de recuperación de los servicios críticos del negocio.
-c. Participar en la ejecución de pruebas, divulgación y entrenamiento de los temas relacionados a la continuidad del negocio del Conglomerado Financiero BCR.
-d. Aportar los recursos e información requeridos por los servidores y funcionarios a cargo del Sistema de Gestión de Continuidad del Negocio, en el desempeño de sus labores.
-e. Aprobar los documentos Análisis de impacto al negocio, Análisis de riesgos de continuidad, Estrategias de recuperación, planes de pruebas, planes de capacitación y requerimientos de continuidad del negocio.
-f. Conocer y recomendar a la Junta Directiva General la aprobación del Plan de continuidad del negocio, Plan de continuidad de TI y el Diagnóstico del nivel de madurez de continuidad del negocio.
+Capítulo IV
+Comité de Continuidad del Negocio
+Artículo 26. De la integración
+Este Comité es presidido por el Gerente General del Banco de Costa Rica o por uno de los miembros de este Comité que designe en su ausencia, y está conformado por las personas que ostentan los siguientes cargos:
+. Gerente general del Banco
+. Subgerente de Banca Personas
+. Gerente corporativo de Finanzas
+. Gerente corporativo de Operaciones
+. Gerente corporativo de Transformación Digital
+. Gerente corporativo de TI
+. Gerente Corporativo de Riesgo
+Cuando se conozcan temas específicos de alguna empresa del Conglomerado Financiero BCR, puede estar presente su gerente general o el ejecutivo de alto nivel que lo sustituya, quién cuenta con voz, pero sin voto.
+El Comité de Continuidad del Negocio está facultado para requerir la asistencia permanente de invitados a las sesiones, con el propósito de brindarle apoyo técnico en las decisiones que involucran los asuntos de agenda. Dichos invitados cuentan con voz, pero sin voto.

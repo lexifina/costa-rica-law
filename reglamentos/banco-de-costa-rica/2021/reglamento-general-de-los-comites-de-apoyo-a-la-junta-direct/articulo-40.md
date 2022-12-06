@@ -1,2 +1,3 @@
-Artículo 40. Secretaría. Cada comité debe designar una persona de apoyo para el control de agendas, elaboración de actas y seguimiento de pendientes en cada una de las sesiones. Esta persona debe documentar en el acta la asistencia a cada reunión del comité que le corresponde guardar estricta confidencialidad sobre los temas que se comenten.
-Para el Comité Corporativo de Auditoría, este rol lo desempeña la Secretaría de la Junta Directiva General.
+Artículo 40. Del quorum
+El quorum de funcionamiento queda válidamente constituido con la mayoría simple (presencia de la mitad más uno de sus integrantes con voz y voto).
+Para los comités corporativos que en su conformación participen miembros del órgano de dirección, no podrán sesionar cuando la Junta Directiva General por motivo del vencimiento de los nombramientos de sus directores esté desintegrada. Esto hasta que el órgano de dirección esté nuevamente integrado y nombre a los directores en cada comité. La Secretaría General Junta Directiva es la encargada de informar a los entes supervisores la situación dada.

@@ -1,1 +1,2 @@
-Artículo 53. De la periodicidad de las reuniones. Las reuniones se celebran al menos bimestralmente, el día y la hora que esta Comisión lo determine.
+Artículo 53. Del funcionamiento del Comité
+Para el funcionamiento de este comité, se rige por todas las disposiciones que le sean aplicables de acuerdo con el título III de este reglamento, partiendo del sentido común de su aplicabilidad.

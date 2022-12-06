@@ -1,3 +1,3 @@
-Artículo 44. Preparación de agenda. Las áreas que requieran presentar temas ante el Comité respectivo, deben remitir sus informes en los formatos correspondientes, con un memorando que describa el tema.
-En los casos que el comité sesione semanalmente, los informes deben remitirse de forma electrónica a la secretaría del Comité, a más tardar dos días antes de que se efectúe la sesión, quien se encarga de cerrar la agenda y depositarla en carpetas públicas para su análisis. En los casos que comité sesione de forma mensual, bimestral, trimestral o semestral, los informes deben remitirse con cinco días de anticipación.
-Como punto de agenda se debe incorporar la presentación por parte de la persona designada por el Comité, un informe del estado y seguimiento de los acuerdos pendientes.
+Artículo 44. Secretaría
+Cada comité debe designar una persona de apoyo para el control de agendas, elaboración de actas y seguimiento de pendientes en cada una de las sesiones. Esta persona debe documentar en el acta la asistencia a cada reunión del comité que le corresponde guardar estricta confidencialidad sobre los temas que se comenten.
+Para el Comité Corporativo de Auditoría, este rol lo desempeña la Secretaría de la Junta Directiva General.

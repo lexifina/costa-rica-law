@@ -1,14 +1,19 @@
-Capítulo VI
-Comité de Crédito del BCR
-Artículo 16. De la Integración. El Comité de Crédito del BCR es presidido por el gerente general del Banco o por el subgerente que este designe y está integrado por los servidores que ocupen los siguientes cargos:
+Título II
+De los comités de apoyo a la Administración
+Capítulo I
+Comité Corporativo Ejecutivo
+Artículo 16. De la integración
+El Comité Corporativo Ejecutivo es presidido por el gerente general del Banco y está conformado por las personas que ocupan los siguientes cargos:
 . Gerente general del Banco
-. Subgerente Banca Corporativa
-. Subgerente de Banca de Personas
+. Subgerente de Banca Personas
+. Subgerente de Banca Corporativa y Empresarial
 . Gerente corporativo de Finanzas
-. Gerente corporativo Gestión de Crédito
-El Comité de Crédito requiere la asistencia permanente de los siguientes invitados a las sesiones, con el propósito de brindarle apoyo técnico en las decisiones que involucran los asuntos de agenda. Dichos invitados cuentan con voz, pero no voto:
-. Gerente del área de Riesgo y Control Normativo
-. Gerente corporativo Jurídico o quien éste designe
-. Gerente regional de Gestión de Crédito
-. Gerente de Negocios Banca Corporativa
-Según los temas específicos que forman parte del orden del día, el Comité en mención puede invitar a los servidores que estime conveniente.
+. Gerente corporativo de Operaciones
+. Gerente corporativo de Capital Humano
+. Gerente corporativo de TI
+. Gerente corporativo de Gestión de Crédito
+. Gerente corporativo de Transformación Digital
+El Comité Corporativo Ejecutivo cuenta con la facultad de requerir la asistencia permanente de los siguientes invitados a las sesiones, con el propósito de brindarle apoyo técnico en las decisiones que involucran los asuntos de agenda. Dichos invitados tienen voz, pero no voto:
+. Gerente Corporativo de Riesgo
+. Gerente corporativo jurídico
+Según los temas específicos que forman parte del orden del día, el Comité en mención puede invitar a las personas trabajadoras que estime conveniente. En el caso de las subsidiarias, se consideran invitados los gerentes generales o el ejecutivo de alto nivel que los sustituya en su ausencia; en particular cuando se traten temas que les interesen.

@@ -1,7 +1,12 @@
-Artículo 47. De las funciones. Sin perjuicio de lo indicado en la Ley del Sistema Nacional de Archivos y su Reglamento, son funciones del Comité Institucional de Selección y Eliminación de Documentos las siguientes:
-a. Evaluar y determinar la vigencia administrativa y legal de los documentos de la institución.
-Para ello, promueve la elaboración y actualización de la tabla de plazos de conservación de documentos desde el Archivo Central Institucional.
-b. Consultar a la Comisión Nacional de Selección y Eliminación de Documentos cuando se deban eliminar documentos que han finalizado su trámite administrativo y no existan tablas de plazos aprobadas.
-c. Hacer de conocimiento de la Comisión Nacional de Selección y Eliminación, las tablas de plazos institucionales aprobadas por el Comité Institucional.
-d. Avalar las consultas parciales de eliminación que se deban remitir a la Comisión Nacional de Selección y Eliminación de Documentos.
-e. Resolver las consultas para eliminar documentos que carezcan de valor científico-cultural.
+Capítulo V
+Orden del día, preparación y conocimiento de agenda
+Artículo 47. Orden del día
+De conformidad con la Ley general de la Administración Pública, los asuntos son tratados según el orden del día. Para los casos de temas que no figuren en el orden del día, deben estar presentes los dos tercios de los miembros del órgano y sea declarada la urgencia del asunto por el voto favorable de todos ellos.
+El orden del día debe ser propuesto por el presidente del comité y se divide en dos partes, una para ver asuntos resolutivos y otra para ver asuntos informativos. Además, debe vigilar los siguientes aspectos:
+. La agenda esté equilibrada en cuanto a temas.
+. El tiempo sea razonable para el análisis.
+. Que los informes y las presentaciones cumplan con los criterios de calidad establecidos en el Procedimiento para la aplicación del modelo de medición de efectividad de los órganos colegiados del Conglomerado Financiero BCR.
+. Los tiempos preestablecidos sean los adecuados y vigilar por su cumplimiento.
+. Los temas deben ser congruentes con las funciones de cada órgano.
+. La propuesta de acuerdos sea concreta.
+Cuando alguno de los miembros con voz y voto de un comité considere que un tema del orden del día no cumple con los puntos anteriores, debe solicitar y justificar en el punto de la sesión "orden del día" la exclusión del tema.

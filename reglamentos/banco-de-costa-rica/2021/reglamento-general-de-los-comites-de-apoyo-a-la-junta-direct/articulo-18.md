@@ -1,1 +1,2 @@
-Artículo 18. De la periodicidad de las reuniones. Las reuniones del Comité de Crédito del BCR se celebran semanalmente, el día y la hora que determine el Comité, salvo que el presidente considere que no hay asuntos que tratar hasta la siguiente sesión.
+Artículo 18. De la periodicidad de las reuniones
+Las reuniones se tienen programadas para celebrarse semanalmente, el día y la hora que este Comité determine. Salvo que el presidente considere que no hay asuntos que tratar hasta la siguiente sesión.

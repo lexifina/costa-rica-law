@@ -1,6 +1,14 @@
-Artículo 32.-De las funciones. Al Comité de Negocios Esfera, le corresponden las siguientes funciones:
-a. Conocer y aprobar las propuestas de proyectos a desarrollar por parte de la Gerencia de Negocios Esfera, de acuerdo con lo establecido en el Reglamento sobre fideicomisos y otras comisiones de confianza en el BCR.
-b. Conocer los informes que emita la Gerencia Corporativa de Riesgo en relación con la Gerencia de Negocios Esfera; además, de las matrices de riesgo y el seguimiento a la administración de los programas de mitigación de esos riesgos.
-c. Conocer sobre los hechos relevantes que se presenten en los negocios administrados por la Gerencia de Negocios Esfera.
-d. Conocer los informes que emita la Gerencia de Cumplimiento en relación con la Gerencia de Negocios Esfera.
-(Así reformado en sesión N° 20 del 24 de mayo de 2022)
+Capítulo V
+Comité de Negocios Esfera
+Artículo 32. De la integración
+El Comité de Negocios Esfera es presidido por el subgerente de Banca Corporativa y Empresarial y está conformado por las personas que ocupen los siguientes cargos:
+. Subgerente de Banca Corporativa y Empresarial
+. Gerente Corporativo Finanzas
+. Gerente corporativo de Operaciones
+. Gerente de Negocios Esfera
+. Gerente de Desarrollo de Negocios Banca Corporativa y Empresarial
+Este Comité cuenta con la facultad de requerir la asistencia permanente de los siguientes invitados a las sesiones, con el propósito de brindarle apoyo técnico en las decisiones que involucran los asuntos de agenda. Dichos invitados cuentan con voz, pero sin voto y son:
+. Gerente corporativo de Riesgo o quien este designe
+. Gerente corporativo Jurídico o quien este designe
+. Gerente de Banca de Inversión
+Además, según los temas específicos que forman parte del orden del día, el Comité en mención puede invitar a las personas trabajadoras que estime conveniente.

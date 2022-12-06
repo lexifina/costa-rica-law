@@ -1,12 +1,8 @@
-Artículo 14.-De las funciones. Para cumplir con lo establecido en el acuerdo Sugef 14-17 Reglamento general de gestión de las Tecnologías de Información, al Comité Corporativo de Tecnología le corresponden las siguientes funciones:
-a. Vigilar por la implementación de los procesos de la gestión de las TI.
-b. Asesorar en la creación y cumplimiento de las estrategias, metas de las TI para su aprobación por parte de la Junta Directiva General.
-c. Analizar y proponer las políticas generales con base en el marco de gestión de las TI.
-d. Dar seguimiento al marco de gestión de las TI.
-e. Proponer los niveles de tolerancia al riesgo de las TI en congruencia con el perfil tecnológico del Conglomerado Financiero BCR.
-f. Presentar a la Junta Directiva General un reporte al menos semestralmente, sobre el impacto de los riesgos asociados a las TI.
-g. Vigilar que la alta gerencia tome medidas para gestionar el riesgo de las TI de manera consistente con las estrategias y políticas aprobadas; además, que cuente con los recursos necesarios para esos efectos.
-h. Recomendar sobre las prioridades para las inversiones de las TI, al Comité Corporativo Ejecutivo y posteriormente a la instancia que corresponda.
-i. Analizar y proponer el Plan de Acción Correctivo - Preventivo derivado de la supervisión y de la auditoría externa sobre la gestión de las TI.
-j. Dar seguimiento a las acciones contenidas en el Plan Acción Correctivo Preventivo.
-(Así reformado en sesión N° 20 del 24 de mayo de 2022)
+Artículo 14. De las funciones
+Para cumplir con lo establecido en los acuerdos Conassif 04-16 Reglamento de Gobierno Corporativo y Conassif 15-22 Reglamento sobre idoneidad y desempeño de los miembros del órgano de dirección y de la alta gerencia de entidades y empresas supervisadas, al Comité Corporativo de Nominaciones y Remuneraciones le corresponden las siguientes funciones:
+a. Identificar y recomendar los candidatos (miembros externos y fiscales) de las juntas directivas de las subsidiarias; además, para banco los puestos de gerente general y subgerentes, auditor general y subauditor, gerente corporativo de riesgo, oficial de cumplimiento titular y adjunto, tomando en cuenta las recomendaciones de los comités técnicos cuando corresponda, los criterios y disposiciones establecidas en la normativa externa e interna que regula la idoneidad y el desempeño de los miembros de los órganos colegiados y de las altas gerencias de las entidades supervisadas.
+b. Analizar y recomendar el informe anual de resultados del cumplimiento de la normativa de idoneidad (individual y colectivo) de los miembros de los órganos colegiados, fiscalías y altas gerencias.
+c. Conocer y recomendar al órgano de dirección las políticas y prácticas de remuneración de las personas trabajadoras del Conglomerado Financiero BCR.
+d. Analizar y proponer a la Junta Directiva General las recomendaciones correspondientes, cuando se conozcan propuestas de ajustes en la estructura salarial.
+e. Analizar y recomendar los ajustes salariales correspondientes, relacionados con los puestos que son de elección del órgano de dirección y que no estén sujetos a las normas de convención colectiva vigente.
+f. Informar al Órgano de Dirección y dar seguimiento a las medidas correctivas que deban adoptarse cuando se encuentre un hallazgo adverso con respecto a la idoneidad de un miembro de un órgano colegiado o de la alta gerencia, individualmente o en conjunto, que evidencie puntos de mejora o incumplimientos al marco legal que justifique la no designación, incompatibilidad, prohibiciones o cese del puesto.

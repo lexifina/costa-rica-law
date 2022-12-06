@@ -1,12 +1,2 @@
-Capítulo IX
-Comité de Continuidad del Negocio
-Artículo 25. De la Integración. Este Comité es presidido por el Gerente General del Banco de Costa Rica, o en su ausencia, por alguno de los subgerentes y está conformado por las personas que ostentan los siguientes cargos:
-. Gerente general del Banco
-. Subgerente de Banca Personas
-. Gerente corporativo de Finanzas
-. Gerente corporativo de Operaciones
-. Gerente corporativo de Banca Digital
-. Gerente corporativo de TI
-. Gerente del área de Riesgo y Control Normativo
-Cuando se conozcan temas específicos de alguna empresa del Conglomerado Financiero BCR, debe estar presente su gerente general o el ejecutivo de alto nivel que lo sustituya, quién cuenta con voz y voto.
-El Comité de Continuidad del Negocio está facultado para requerir la asistencia permanente de invitados a las sesiones, con el propósito de brindarle apoyo técnico en las decisiones que involucran los asuntos de agenda. Dichos invitados cuentan con voz, pero sin voto.
+Artículo 25. Fiscalización
+Corresponde a la Gerencia Corporativa de Riesgo, efectuar una revisión de las solicitudes de crédito y temas resueltos en el Comité de Crédito, con el fin de constatar si estas se ajustan y cumplen con la normativa interna y externa vigente en materia crediticia; aspectos regulatorios y otros riesgos relevantes identificados. Además, debe remitir a la Junta Directiva General, dentro los ocho días naturales siguientes a la reunión del Comité de Crédito, el detalle de los créditos y temas resueltos mediante el formulario 365-SD Fiscalización Gerencia de Riesgo y Control Normativo.

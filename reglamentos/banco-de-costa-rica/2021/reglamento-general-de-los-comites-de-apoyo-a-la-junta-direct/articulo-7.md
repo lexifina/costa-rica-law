@@ -1,13 +1,11 @@
 Capítulo III
-Comité Corporativo de Cumplimiento
-Artículo 7º-De la integración. El Comité Corporativo de Cumplimiento es presidido por el director representante de la Junta Directiva General y está conformado por las personas que ostentan los siguientes cargos:
-. Un director representante de la Junta Directiva General
-. Gerente General
-. Gerente de Negocios de la Banca de Personas.
-. Oficial de Cumplimiento (según lo establecido en el acuerdo Sugef 12-21, es miembro permanente del comité con voz, pero sin voto).
-De conformidad con lo establecido en el Acuerdo Sugef 12-21 Reglamento para la prevención del riesgo de legitimación de capitales, financiamiento al terrorismo y financiamiento de la proliferación de armas de destrucción masiva, aplicable a los sujetos obligados por el artículo 14 de la ley 7786, para validez de las sesiones del Comité, donde se conozcan temas específicos de una de las entidades integrantes del Conglomerado Financiero BCR, deben estar presentes su gerente general o el ejecutivo de alto nivel que lo sustituye en su ausencia y el oficial de cumplimiento de dicha entidad, si lo hay, ambos con voz y voto.
-El Comité Corporativo de Cumplimiento cuenta con la facultad de requerir la asistencia permanente de los siguientes invitados a las sesiones, con el propósito de brindarle apoyo técnico en las decisiones que involucran los asuntos de agenda, quienes tienen con voz, pero sin voto:
-. Gerente corporativo jurídico o quien este designe
+Comité Corporativo de Riesgo
+Artículo 7. De la integración
+El Comité Corporativo de Riesgo debe ser presidido por un director que represente a la Junta Directiva General y está integrado por las personas que ocupan los siguientes cargos:
+. Dos directores de la Junta Directiva General del BCR
+. Gerente general del Banco o quien este designe que no pertenezca al área comercial
 . Gerente Corporativo de Riesgo
-Según los temas específicos que forman parte del orden del día, el Comité en mención puede invitar a los servidores que estime conveniente.
-(Así reformado en sesión N° 20 del 24 de mayo de 2022)
+. Miembro externo e independiente al Conglomerado Financiero BCR
+El Comité Corporativo de Riesgo cuenta con la facultad de requerir la asistencia de invitados a las sesiones, tanto de la Administración Superior del Conglomerado Financiero BCR, como a las personas trabajadoras que estime conveniente; con el propósito de brindarle apoyo técnico para decisiones que involucran los asuntos de agenda. Dichos invitados cuentan con voz, pero sin voto.
+De conformidad con el acuerdo Sugef 2-10, Reglamento sobre Administración Integral de Riesgo, para validez de las reuniones del Comité en las cuales se conozcan temas específicos de alguna empresa del Conglomerado Financiero BCR, debe estar presente su gerente general o el ejecutivo de alto nivel que lo sustituya en su ausencia y el responsable de la Unidad de Riesgos, o quien lo sustituya en su cargo, quienes cuentan con voz, pero sin voto.
+Los miembros que conformen este Comité deben contar al menos cinco años de experiencia en materia económica, financiera o bursátil, la que debe quedar debidamente acreditada y documentada ante la Gerencia Corporativa de Capital Humano.

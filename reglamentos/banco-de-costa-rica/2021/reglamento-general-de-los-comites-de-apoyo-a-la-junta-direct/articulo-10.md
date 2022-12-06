@@ -1,10 +1,12 @@
 Capítulo IV
-Comité Corporativo de Riesgo
-Artículo 10. De la integración. El Comité Corporativo de Riesgo debe ser presidido por un director que represente a la Junta Directiva General y está integrado por las personas que ocupan los siguientes cargos:
-. Dos directores de la Junta Directiva General del BCR
-. Gerente general del Banco o quien este designe que no pertenezca al área comercial
-. Gerente del área de Riesgo y Control Normativo
-. Miembro externo e independiente al Conglomerado Financiero BCR
-El Comité Corporativo de Riesgo cuenta con la facultad de requerir la asistencia de invitados a las sesiones, tanto de la Administración Superior del Conglomerado Financiero BCR, como los servidores que estime conveniente; con el propósito de brindarle apoyo técnico para decisiones que involucran los asuntos de agenda. Dichos invitados cuentan con voz, pero no voto.
-De conformidad con el acuerdo Sugef 2-10, Reglamento sobre Administración Integral de Riesgo, para validez de las reuniones del Comité en las cuales se conozcan temas específicos de alguna empresa del Conglomerado Financiero BCR, debe estar presente su gerente general o el ejecutivo de alto nivel que lo sustituya en su ausencia y el responsable de la Unidad de Riesgos, o quien lo sustituya en su cargo, quienes cuentan con voz y voto.
-Los miembros que conformen este Comité deben contar al menos cinco años de experiencia en materia económica, financiera o bursátil, la que debe quedar debidamente acreditada y documentada ante la Gerencia Corporativa de Capital Humano.
+Comité Corporativo de Tecnología
+Artículo 10. De la integración
+Este Comité es presidido por el gerente general del Banco, o en su ausencia, por el subgerente de Banca Personas o el gerente de negocios Banca Corporativa y Empresarial y está conformado por las personas que ostentan los siguientes cargos:
+. Un director de la Junta Directiva General
+. Gerente general del Banco
+. Subgerente de Banca Personas
+. Gerente de Negocios Banca Corporativa y Empresarial
+. Gerente corporativo de Transformación Digital
+. Gerente corporativo de TI
+Para la validez de las reuniones del Comité en las cuales se conozcan temas específicos de alguna empresa del Conglomerado Financiero BCR, puede estar presente su gerente general o el ejecutivo de alto nivel que lo sustituya en su ausencia y el responsable de la unidad de informática respectiva, o quien lo sustituya en su cargo y ambos cuentan con voz, pero sin voto.
+El Comité está facultado para contar con la participación de asesores externos a la organización. Según los temas específicos que formen parte del orden del día, el Comité en mención puede invitar a las personas trabajadoras que estime conveniente.

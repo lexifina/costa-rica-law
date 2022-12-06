@@ -1,1 +1,1 @@
-Artículo 30. De la periodicidad de las reuniones. Las reuniones se deben celebrar mensualmente, el día y la hora que este Comité determine, salvo que el presidente considere que no hay asuntos que tratar hasta la siguiente sesión.
+Artículo 30: (Nota de Sianalevi: En la publicación de este reglamento no aparece este artículo . No obstante, el sistema exige una numeración consecutiva por lo que se ha creado el mismo pero sin texto)

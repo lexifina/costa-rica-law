@@ -1,16 +1,14 @@
-Artículo 23.-De las funciones. Para cumplir con lo establecido en el acuerdo Sugef 16-16 Reglamento de Gobierno Corporativo, al Comité Corporativo de Auditoría le corresponden las siguientes funciones:
-a. Conocer los informes de avance del plan de labores que debe presentar cada tres meses el auditor general y los auditores internos de las sociedades.
-b. Ejercer la debida vigilancia en el cumplimiento de las funciones y responsabilidades de la Auditoría Interna con respecto al marco regulatorio y las sanas prácticas.
-c. Informar al Órgano de Dirección sobre la confiabilidad de los procesos contables y financieros, incluido el sistema de información gerencial.
-d. Coordinar con la Gerencia Corporativa de Finanzas la contratación de la firma de auditores externos, (al menos con tres meses de anticipación al vencimiento del plazo de comunicación al regulador indicado en el acuerdo Sugef 32-10 Reglamento General de auditores externos) y recomendar a la Junta Directiva General las condiciones de contratación y el nombramiento o revocación de la firma o auditor externo conforme los términos del Reglamento sobre auditores externos aplicable a los sujetos fiscalizados por las superintendencias.
-e. Supervisar e interactuar con auditores internos y externos.
-f. Conocer la evaluación del desempeño de los auditores externos contratados aplicada por la Gerencia Corporativa de Finanzas y los gerentes de las sociedades anónimas.
-g. Proponer a la Junta Directiva General, con base en el resultado de la evaluación, la ampliación del contrato de la firma de auditores externos.
-h. Vigilar que la Alta Gerencia tome las acciones correctivas necesarias en el momento oportuno para hacer frente a las debilidades de control, el incumplimiento de las políticas, leyes y reglamentos; así como, otras situaciones identificadas por los auditores y el supervisor.
-i. Supervisar el cumplimiento de las políticas y prácticas contables.
-j. Revisar las evaluaciones y opiniones sobre el diseño y efectividad del gobierno de riesgos y control interno.
-k. Proponer a la Junta Directiva General, los candidatos para ocupar el cargo de auditor interno y subauditor cuando corresponda, excepto en el caso de las entidades supervisadas que se rigen por lo dispuesto en la Ley General de Control Interno, Ley 8292. Para el Conglomerado Financiero BCR aplica esta excepción por lo que procede lo indicado en el Comité Corporativo de Nominaciones y Remuneraciones.
-l. Revisar y aprobar el programa anual de trabajo de la auditoría interna o equivalente y el alcance y frecuencia de la auditoría externa, de acuerdo con la normativa vigente.
-m. Revisar la información financiera anual y trimestral antes de su remisión a la Junta Directiva General, de la entidad y del Vehículo de Administración de Recursos de Terceros, con énfasis en cambios contables, estimaciones contables, ajustes importantes como resultado del proceso de auditoría, evaluación de la continuidad del negocio y el cumplimiento de leyes y regulaciones vigentes que afecten a la entidad o al Vehículo de Administración de Recursos de Terceros.
-n. Revisar y trasladar a la Junta Directiva General, los estados financieros anuales auditados, los informes complementarios, las comunicaciones del auditor externo y demás informes de auditoría externa o interna.
-(Así reformado en sesión N° 20 del 24 de mayo de 2022)
+Artículo 23. De las funciones
+Al Comité de Crédito del BCR le corresponden las siguientes funciones:
+a. Conocer y resolver las solicitudes de crédito de cualquier naturaleza (directa o indirecta), en apego a la normativa de crédito aplicable. Así como, las renovaciones, modificaciones y arreglos de las operaciones de crédito, hasta por el límite máximo establecido en las Políticas de Crédito.
+b. Conocer y resolver hasta por el monto de sus atribuciones, modificaciones a las cláusulas de los contratos de crédito, ante algún planteamiento hecho por un cliente.
+c. Conocer y resolver las solicitudes de clientes sobre modificaciones de tasas de interés según las atribuciones establecidas en las Políticas de Crédito y de conformidad con los esquemas de tasas vigentes.
+d. Conocer y resolver los créditos de salvamento.
+e. Conocer y resolver el traslado de operaciones de crédito activas a cuentas líquidas, en aplicación de la normativa.
+f. Dar seguimiento al estado de morosidad de la cartera crediticia
+g. Dar seguimiento a los clientes TOP (situación financiera y aspectos cualitativos).
+h. Conocer y resolver las modificaciones en las Disposiciones administrativas de crédito presentadas por el área correspondiente.
+i. Conocer y recomendar a la Junta Directiva General las modificaciones en las políticas, reglamentos, lineamientos y metodologías de crédito, presentadas por el área correspondiente.
+j. Conocer otros asuntos varios en materia de crédito (informes de Sugef, auditoría, auditores externos, etc.).
+k. Conocer y dar seguimiento a los informes y recomendaciones emitidos por la Gerencia Corporativa de Riesgo, relacionados con la gestión de los riesgos de crédito.
+l. Informar a la Junta Directiva General en un plazo de ocho días naturales siguientes a la reunión respectiva, las condiciones de los créditos resueltos; mediante la utilización del formulario 364-SD Créditos resueltos por el Comité de Crédito; así como, cualquier otro tema resuelto por este Comité, en apego con lo establecido en la Ley orgánica del Sistema Bancario Nacional.

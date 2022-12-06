@@ -1,1 +1,2 @@
-Artículo 24. De la periodicidad de las reuniones. Las reuniones del Comité Corporativo de Auditoría se deben realizar al menos mensualmente, en la fecha y hora que determine el Comité, salvo que se requiera antes, por razones de oportunidad y a solicitud del presidente.
+Artículo 24. De la periodicidad de las reuniones
+Las reuniones del Comité de Crédito del BCR se celebran semanalmente, el día y la hora que determine el Comité, salvo que el presidente considere que no hay asuntos que tratar hasta la siguiente sesión.

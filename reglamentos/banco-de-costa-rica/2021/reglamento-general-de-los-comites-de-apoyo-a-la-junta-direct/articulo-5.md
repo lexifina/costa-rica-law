@@ -1,14 +1,12 @@
-Artículo 5º-De las funciones. Al Comité Corporativo de Activos y Pasivos le corresponden las siguientes funciones:
-a. Analizar el entorno macroeconómico y financiero del país e internacional, a fin de determinar posibles oportunidades o amenazas como resultado del comportamiento de las variables macroeconómicas o de los mercados financieros y bursátiles.
-b. Analizar periódicamente tarifas, comisiones, tasas de interés activas y pasivas y el comportamiento de la liquidez del Banco, en relación con el mercado y la
-competencia, con el propósito de determinar si las de la entidad son adecuadas y competitivas.
-c. Evaluar posibles cambios y fijar su valor para los diferentes productos y servicios del Banco durante la operación normal; así como, para promociones o eventos especiales. Lo anterior dentro de los límites de la potestad que le delegue la Junta Directiva General.
-d. Evaluar los resultados financieros del Conglomerado Financiero BCR y su impacto en los objetivos estratégicos; el comportamiento de la liquidez y el fondeo y las acciones claves para su control.
-e. Conocer, analizar y aprobar, cuando corresponda, las nuevas iniciativas comerciales y las modificaciones sobre productos y servicios que requieran tasas de interés, incluyendo las tasas de interés con fondeo del Sistema de Banca para el desarrollo, tarifas y comisiones nuevas o diferentes a las establecidas; así como, las valoraciones de riesgos.
-f. Revisar anualmente la capitalización del Banco y de las subsidiarias y recomendar a la Junta Directiva General, cuando sea necesario, la capitalización de las utilidades y ajustes a su capital social.
-g. Elevar a la Junta Directiva General los asuntos conocidos por el Comité que requieran ser conocidos o resueltos por dicho órgano.
-h. Dar seguimiento a la estrategia tributaria institucional.
-i. Liderar la gestión del margen de intermediación financiera a través de la medición, análisis y seguimiento de los resultados del margen financiero.
-j. Administrar las desviaciones de riesgos dentro del Balance, sujetos al perfil de riesgos que evidencie la Gerencia de Riesgos y Control Normativo.
-k. Analizar el comportamiento de la liquidez y el fondeo; así como, definir las acciones claves para su control.
-(Así reformado en sesión N° 20 del 24 de mayo de 2022)
+Artículo 5. De las funciones
+Para cumplir con lo establecido en el acuerdo Conassif 12- 21 Reglamento para la prevención del riesgo de legitimación de capitales, financiamiento al terrorismo y financiamiento de la proliferación de armas de destrucción masiva, aplicable a los sujetos obligados por el artículo 14 de la ley 7786, al Comité Corporativo de Cumplimiento le corresponden las siguientes funciones:
+a. Proponer a la Junta Directiva las políticas de confidencialidad respecto a las personas trabajadoras del Conglomerado Financiero BCR y directivos en el tratamiento de los temas relacionados con LC/FT/FPADM/FDO.
+b. Conocer y vigilar el cumplimiento del plan de trabajo de la Oficialía de Cumplimiento del BCR y de las oficialías de cumplimiento de cada una de las empresas del Conglomerado Financiero BCR y, elevarlo a la Junta Directiva para su respectiva aprobación.
+c. Proponer las políticas para la prevención de LC/FT/FPADM/FDO que se deben incluir en el Código de ética corporativo del Conglomerado Financiero BCR para su aprobación por parte del Órgano de Dirección. El apartado debe incluir las responsabilidades, consecuencias legales y medidas o sanciones disciplinarias relacionadas con este tema.
+d. Proponer y recomendar para la aprobación por parte de la Junta Directiva General, la metodología institucional y la inclusión o exclusión de criterios del modelo de riesgo para la prevención de LC/FT/FPADM/FDO de cada empresa del Conglomerado Financiero BCR.
+e. Realizar informes al menos semestralmente a la Junta Directiva General, sobre la exposición al riesgo de LC/FT/FPADM/FDO, y en casos en que existan situaciones relevantes de reportar.
+f. Conocer los resultados que presenta el oficial de cumplimiento de: las evaluaciones de la capacitación anual del personal, el detalle de los clientes que han sufrido movimientos ascendentes o descendentes en su clasificación de riesgo, las operaciones inusuales analizadas y un resumen de las operaciones sospechosas y operaciones intentadas reportadas a la UIF.
+g. Revisar las políticas, procedimientos, normas y controles implementados para cumplir con el marco normativo vigente en materia de LC/FT/FPADM/FDO.
+h. Conocer informes de los estudios efectuados de las auditorías internas y en materia de LC/FT/FPADM/FDO.
+i. Informar a la Junta Directiva General sobre el seguimiento de los planes correctivos definidos para subsanar las debilidades y oportunidades de mejora identificadas en los estudios de las auditorías interna y externa; informes de la superintendencia respectiva y de la evaluación de riesgos de LC/FT/FPADM/FDO por parte de la Oficialía de Cumplimiento y por el Comité Corporativo de Cumplimiento.
+j. Dar seguimiento a los proyectos de impacto en el área de Cumplimiento.
