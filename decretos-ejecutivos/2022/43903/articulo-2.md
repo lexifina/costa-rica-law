@@ -1,0 +1,2 @@
+Artículo 2°-El documento que contiene el Plan Nacional de Desarrollo e Inversión Pública (PNDIP) 2023-2026, está disponible en la dirección electrónica del Ministerio de Planificación Nacional y Política Económica: (http://www.mideplan.go.cr). Una versión física del Plan Nacional de Desarrollo e Inversión Pública (PNDIP) 2023-2026, se custodiará en el Centro de Documentación de MIDEPLAN.
+(Nota de Sinalevi: Por lo extenso de su contenido el Plan Nacional de Desarrollo e Inversión Pública (PNDIP) 2023-2026, puede ser consultado en el siguiente Enlace)
