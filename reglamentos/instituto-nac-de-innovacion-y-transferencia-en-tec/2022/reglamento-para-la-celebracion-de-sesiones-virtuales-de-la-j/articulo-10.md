@@ -1,0 +1,1 @@
+Artículo 10.-La participación de la o las personas que ocupen cargos en la Junta Directiva bajo la modalidad virtual no podrá superar la cantidad de dos sesiones al mes, ya sean estas ordinarias o extraordinarias.

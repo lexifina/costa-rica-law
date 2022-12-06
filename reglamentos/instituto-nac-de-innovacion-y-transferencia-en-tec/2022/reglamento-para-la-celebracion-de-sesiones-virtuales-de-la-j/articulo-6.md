@@ -1,0 +1,1 @@
+Artículo 6º-En el acta respectiva debe indicarse cuál o cuáles de los miembros del órgano colegiado han estado "telepresentes", el mecanismo tecnológico utilizado, la compatibilidad de sistemas, la identificación del lugar en el que se encuentra y las circunstancias particulares por las cuales la sesión o su asistencia se realizó mediante este mecanismo.

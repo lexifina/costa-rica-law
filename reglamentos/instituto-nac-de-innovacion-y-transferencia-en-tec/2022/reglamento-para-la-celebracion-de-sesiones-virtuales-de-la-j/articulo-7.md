@@ -1,0 +1,1 @@
+Artículo 7º-Como requerimiento de seguridad, deberá asegurase la efectiva y recíproca visibilidad y audibilidad de las personas presentes en ambos lugares, para lo cual el INTA garantizará un espacio con la tecnología idónea que dé cumplimiento a esta disposición.
