@@ -1,0 +1,1 @@
+Artículo 5º-De la Coordinación. La Coordinación estará a cargo de la dirección de Hacienda Municipal, la comisión elegirá una segunda coordinación quien asumirá en las ausencias de la coordinación, en caso de ausencia de ambas, quienes integran la comisión señalarán una coordinación para que presida la sesión.

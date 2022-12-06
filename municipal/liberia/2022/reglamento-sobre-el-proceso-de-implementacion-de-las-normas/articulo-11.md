@@ -1,0 +1,4 @@
+CAPÍTULO II
+De las unidades productoras de información
+Artículo 11.-Unidades productoras de Información: Son las unidades que deben suministrar información a la Contabilidad Municipal para la elaboración de los registros contables y los Estados Financieros, de acuerdo con los detalles de información a revelar establecidos en las NICSP. Son unidades productoras de información Recursos Humanos, Proveeduría, Gestión de Cobros, Administración Tributaria, Tesorería, Legal, Desarrollo y Control Urbano, Unidad Técnica de Gestión Vial, Servicios Generales, Presupuesto, Alcaldía, Informática. Podrán añadirse otras unidades que, en el proceso de implementación de las NICSP, se determine que deben brindar información.
+La definición de las unidades productoras se realizará de conformidad con las funciones y tareas de las unidades y la información que producen, así como por designación de la Comisión de acuerdo con la información de que disponen.

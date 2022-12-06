@@ -1,0 +1,1 @@
+Artículo 8º-De las responsabilidades. Las personas integrantes de la comisión tendrán la responsabilidad de participar en la ejecución de las acciones propuestas como parte del plan de trabajo de la comisión y cumplir con las tareas que se les asigne.

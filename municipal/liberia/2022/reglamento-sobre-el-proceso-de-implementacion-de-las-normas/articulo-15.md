@@ -1,0 +1,1 @@
+Artículo 15.-Solicitudes de recursos: Las unidades productoras de información comunicarán por escrito a la Comisión, las necesidades de recursos para la producción de la información requerida por la Contabilidad Municipal, para la elaboración de los registros contables y de los estados financieras según las NICSP.
