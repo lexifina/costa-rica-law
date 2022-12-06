@@ -1,2 +1,0 @@
-Artículo 19º. -Apoyo y asesoría. El Comité de Riesgos podrá apoyarse para el ejercicio de sus funciones en funcionarios y trabajadores de las empresas del Grupo ICE. En materia jurídica, el Comité podrá apoyarse en la asesoría brindada por la División Jurídica, para tal efecto solicitará, mediante la convocatoria respectiva, la participación de un profesional en derecho.
-El Comité de Riesgos, previa autorización del Consejo Directivo, podrá utilizar, de forma excepcional, asesores externos que considere pertinentes para reforzar su capacidad técnica para temas específicos.

@@ -1,1 +1,0 @@
-Artículo 26º. -Del respaldo de las actas. Cada acta levantada de las sesiones que celebre el Comité debe llevar su respectivo expediente físico o digital, el cual estará conformado por los documentos originales, copias o antecedentes de los asuntos que se han conocido en cada sesión.
