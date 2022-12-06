@@ -1,0 +1,1 @@
+ARTÍCULO 47.- Mayoría requerida. Para cada puesto, la elección se realizará por mayoría simple de las personas presentes y sólo podrán votar personas jóvenes domiciliadas registralmente ante el Tribunal Supremo de Elecciones en el Cantón de Poás.

@@ -1,0 +1,1 @@
+ARTÍCULO 96.- Reglas elementales. De conformidad con la Ley de Administración Financiera de la República y Presupuestos Públicos, deben cumplirse con las reglas elementales de la lógica, justicia y conveniencia en el uso y destino de los fondos recibidos.

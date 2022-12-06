@@ -1,0 +1,1 @@
+ARTÍCULO 116.- Naturaleza. La Oficina Municipal de Adolescencia y Juventud es la promotora de la participación joven en el cantón, ofreciendo apoyo técnico, atención, orientación, coordinación y formación al CCPJP y jóvenes del cantón, además, es el canal de información para jóvenes acerca de sus derechos y deberes.

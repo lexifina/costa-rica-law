@@ -1,0 +1,1 @@
+ARTÍCULO 147.- El Comité cantonal revisará al final de cada año, el cumplimiento de las metas propuestas en cada uno de los proyectos del PECDJ, esto específicamente se incluirá en el informe anual presentado por el CCPJP.

@@ -1,0 +1,1 @@
+ARTÍCULO 56.- Asesoría. Para los fines de su labor el CCPJP coordinará con el enlace o bien con la Oficina de Adolescencia y Juventud, lo concerniente a proyectos, asesoría y orientación. Así mismo podrá recibir asesoría y capacitación de entes públicos y privados del Cantón y fuera de este.

@@ -1,0 +1,1 @@
+ARTÍCULO 37.- Inscripción de organizaciones. Las representaciones de cada sector (organizaciones juveniles, religioso, deportivos y colegios) deben completar debidamente el formulario de inscripción que para tal efecto estará disponible en la oficina donde se ubique el enlace o bien en la de Adolescencia y Juventud, en caso contrario no podrán postularse para el cargo.

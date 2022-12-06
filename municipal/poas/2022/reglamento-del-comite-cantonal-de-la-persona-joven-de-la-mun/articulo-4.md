@@ -1,0 +1,1 @@
+ARTÍCULO 4.- Ámbito de aplicación. El ámbito de aplicación del presente reglamento se restringe únicamente a la jurisdicción del Cantón de Poás, de la provincia de Alajuela y es válido para toda la ciudadanía o munícipes y organizaciones de la sociedad civil, domiciliadas en su territorio.

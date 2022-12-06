@@ -1,0 +1,1 @@
+ARTÍCULO 31.- Formulario. El formulario para tal efecto estará disponible en la ubicación del enlace o bien en la Oficina de Adolescencia y Juventud y deberá contará con espacios para señalar, al menos, lo siguiente: a) Nombre completo y dos apellidos. b) Fecha de nacimiento. c) Edad. d) Dirección exacta. e) Correo electrónico para atender notificaciones. f) Número telefónico.

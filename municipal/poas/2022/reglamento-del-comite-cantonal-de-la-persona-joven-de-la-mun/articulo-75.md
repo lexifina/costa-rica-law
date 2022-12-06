@@ -1,0 +1,1 @@
+ARTÍCULO 75.- Firmeza. Los acuerdos tomados alcanzarán firmeza mediante el procedimiento descrito en el artículo anterior con la aprobación del acta, todo acuerdo que no haya alcanzado firmeza podrá ser revisado si cuenta con votación calificada y si ya está en firme, podrá ser recurrido extraordinariamente al Órgano Superior Jerárquico de este Comité.

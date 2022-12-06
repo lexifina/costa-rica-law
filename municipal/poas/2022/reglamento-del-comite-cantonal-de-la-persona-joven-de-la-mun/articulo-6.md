@@ -1,0 +1,1 @@
+ARTÍCULO 6.- El presente Reglamento deberá ser acatado por las autoridades del Honorable Concejo Municipal de Poás, el personal administrativo municipal y por los sectores que postulen representantes para la conformación del Comité Cantonal de la Persona Joven del Cantón de Poás.

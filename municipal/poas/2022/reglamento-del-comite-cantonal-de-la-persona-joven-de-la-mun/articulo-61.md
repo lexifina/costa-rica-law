@@ -1,0 +1,1 @@
+ARTÍCULO 61.- Cuórum para sesionar. Para las reuniones del CCPJP sólo es necesario el quórum funcional que permite sesionar con un mínimo de cuatro miembros, es decir, con una mayoría absoluta, sea la mitad más uno de los integrantes. Si no hubiere cuórum, el órgano no podrá sesionar y deberá realizarse una nueva convocatoria.

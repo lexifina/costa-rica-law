@@ -1,0 +1,1 @@
+ARTÍCULO 146.- El Comité cantonal clasificará los proyectos propuestos por los comités distritales y los del mismo Comité cantonal, en los objetivos del PECDJ, para que de esta manera exista un control y revisión global de los proyectos.

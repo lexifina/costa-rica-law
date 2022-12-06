@@ -1,0 +1,1 @@
+ARTÍCULO 119.- Elección virtual. Se concibe como elección virtual, aquella que se ejecuta mediante las tecnologías de información y comunicación asociadas a la red de Internet, que garanticen la comunicación simultánea mediante el envío de la imagen, sonido, documentos y datos, de las personas jóvenes interesadas en formar parte del Comité Cantonal de la Persona Joven.

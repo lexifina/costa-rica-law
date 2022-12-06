@@ -1,0 +1,1 @@
+ARTÍCULO 52.- Carta de postulación. Las personas postulantes a la presidencia y secretaría del CCPJP deben presentar una carta de postulación, junto con su currículum, a los miembros electos del CCPJP y a la Comisión Especial creada para este fin, una semana antes de la primera sesión del Comité.

@@ -1,0 +1,2 @@
+TITULO IX: DEL PRESUPUESTO GENERAL SISTEMA CANTONAL DE JUVENTUD
+ARTÍCULO 148.- El concejo municipal aprobará un 0.19% adicional del presupuesto anual de la municipalidad y la administración municipal lo incluirá según las necesidades de los comités distritales, para el correcto funcionamiento del Sistema Cantonal de Juventud, que se incluirán dentro del presupuesto ordinario de la municipalidad, posterior a la presentación del PECDJ del año siguiente.

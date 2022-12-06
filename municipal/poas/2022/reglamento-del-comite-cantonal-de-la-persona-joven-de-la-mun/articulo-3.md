@@ -1,0 +1,1 @@
+ARTÍCULO 3.- Regulación. El presente Reglamento establece criterios y formas de participación ante la Municipalidad de Poás de las personas jóvenes, así como de las organizaciones juveniles creadas para el desarrollo humano sustentable y el progreso general de las personas jóvenes del cantón.

@@ -1,0 +1,1 @@
+ARTÍCULO 23.- Integración. El CCPJP lo integran siete personas con edades comprendidas entre los 12 y 35 años, en representación de los distintos sectores de juventud del Cantón de Poás, de conformidad con lo dispuesto en el artículo 24 de la Ley General de la Persona Joven Ley No. 8261: deportivo, comunal, religioso y que residen en el Cantón.

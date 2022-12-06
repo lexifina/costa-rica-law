@@ -1,0 +1,1 @@
+ARTÍCULO 103.- Evaluación del Concejo Municipal. Es responsabilidad del Concejo Municipal de Poás evaluar los resultados de la gestión del CCPJP, tomando en cuenta tanto el respeto de las disposiciones normativas aplicables como el cumplimiento de los objetivos y metas previamente establecidas con la consecuente responsabilidad en caso de incumplimiento.

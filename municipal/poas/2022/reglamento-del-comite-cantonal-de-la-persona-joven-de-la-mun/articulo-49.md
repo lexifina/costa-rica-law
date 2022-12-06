@@ -1,0 +1,1 @@
+ARTÍCULO 49.- Acta. Terminada cada asamblea de sectores de colegios, grupos religiosos, organizaciones juveniles y deportivas, el enlace o bien la Oficina Municipal de Adolescencia y Juventud deberá levantar un acta donde se establezca el proceso de elección, postulantes, lista de asistentes, entre otra información de interés.

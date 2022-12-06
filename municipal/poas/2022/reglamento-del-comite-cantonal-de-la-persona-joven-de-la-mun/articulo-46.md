@@ -1,0 +1,1 @@
+ARTÍCULO 46.- Principios. Se procurará conformar el Comité Cantonal de la Persona Joven del Cantón de Poás bajo un principio de igualdad de condiciones, rigiéndose por el principio electoral de la paridad de género en los puestos de elección.

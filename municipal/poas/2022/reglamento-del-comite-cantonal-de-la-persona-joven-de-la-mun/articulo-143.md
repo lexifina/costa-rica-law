@@ -1,0 +1,1 @@
+ARTÍCULO 143.- Los concejos de distrito tendrán la responsabilidad en conjunto con la Oficina Municipal de Adolescencia y Juventud, de velar por el correcto funcionamiento de los comités distritales de la persona joven, además de intervenir el Comité si fuera necesario, en caso de que surja algún conflicto. El CCPJP será el fiscalizador del proceso.

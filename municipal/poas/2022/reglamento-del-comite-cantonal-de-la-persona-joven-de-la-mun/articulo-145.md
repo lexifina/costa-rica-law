@@ -1,0 +1,1 @@
+ARTÍCULO 145.- El PECDJ está conformado por cuatro programas de trabajo, las cuales son: a) Captación de Jóvenes. b) Formación y Capacitación Juvenil. c)Fortalecimiento de los Comités Distritales de la Persona Joven y Organizaciones Juveniles. d) Actividades de Voluntariado, expresión artística, musical y Proyección Comunal.

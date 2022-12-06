@@ -1,0 +1,1 @@
+ARTÍCULO 97.- Finalidad de los fondos. La Municipalidad de Poás y el Comité Cantonal de la Persona Joven del Cantón de Poás deberán utilizar los fondos exclusivamente para la finalidad descrita en el proyecto aprobado por el CCPJP y el CPJ.

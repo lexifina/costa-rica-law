@@ -1,0 +1,1 @@
+ARTÍCULO 138.- Los concejos de distrito tendrán la responsabilidad de velar por la ejecución del(os) proyecto(s) de su respectivo Comité distrital, buscando acompañarlos y asesorarlos para cumplir con la normativa.

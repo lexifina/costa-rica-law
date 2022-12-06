@@ -1,0 +1,1 @@
+ARTÍCULO 127.- Voto público. El voto será público, directo y universal. Se emitirá puesto por puesto. El moderador deberá preservar la seguridad y transparencia del proceso. Para ejercer el derecho al voto, las personas postulantes deberán encontrase inscritas. En caso de que las personas postulantes abandonen la reunión automáticamente el voto no será contabilizado.

@@ -1,0 +1,1 @@
+ARTÍCULO 99.- De la información. La Municipalidad de Poás deberá brindar al CPJ la información, documentos, aclaraciones y explicaciones que este requiera sobre el manejo de los fondos aportados por la institución para el proyecto del CCPJP.

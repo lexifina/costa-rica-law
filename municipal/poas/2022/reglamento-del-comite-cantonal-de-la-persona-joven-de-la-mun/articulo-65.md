@@ -1,0 +1,1 @@
+ARTÍCULO 65.- Publicidad de las sesiones. Las sesiones del CCPJP serán siempre públicas y deberá publicarse el calendario de las fechas de reuniones, con el objetivo de que las personas jóvenes puedan asistir.

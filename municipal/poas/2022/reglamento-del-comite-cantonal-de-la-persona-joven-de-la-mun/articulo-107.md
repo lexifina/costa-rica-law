@@ -1,0 +1,1 @@
+ARTÍCULO 107.- Informe a la Dirección Ejecutiva del CPJ. El CCPJP deberá presentar a la Dirección Ejecutiva del CPJ un informe que permita visualizar los alcances, cumplimiento de objetivos que son producto de su gestión y de los diferentes proyectos y actividades planteadas y ejecutadas.

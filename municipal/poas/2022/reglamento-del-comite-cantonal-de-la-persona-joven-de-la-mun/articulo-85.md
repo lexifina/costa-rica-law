@@ -1,0 +1,2 @@
+SECCIÓN X. DE LA ASIGNACIÓN DE RECURSOS
+ARTÍCULO 85.- Requisitos. Para acceder a la transferencia por parte del CPJ, el CCPJP deberá presentar los Proyectos ante la Dirección Ejecutiva del CPJ en el periodo determinado por la Ney No. 8261, para lo cual se debe cumplir con los siguientes requisitos: a) Estar legalmente constituido el CCPJP de conformidad con el artículo 24 de la Ley No. 8261. b) Presentarse en el primer trimestre del año. c) Presentar acuerdo del CCPJP donde se aprueba el proyecto.
