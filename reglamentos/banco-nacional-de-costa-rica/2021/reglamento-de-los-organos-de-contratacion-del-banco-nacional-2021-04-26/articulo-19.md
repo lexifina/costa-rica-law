@@ -1,1 +1,0 @@
-Artículo 19.-Normas Supletorias. En lo no regulado expresamente por este reglamento se estará a lo dispuesto por la Ley General de la Administración Pública, la Ley de Contratación Administrativa y su Reglamento y demás normativa atinente a la materia, así como a las disposiciones internas del Banco.
