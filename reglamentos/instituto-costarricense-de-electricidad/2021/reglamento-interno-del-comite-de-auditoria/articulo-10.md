@@ -1,1 +1,0 @@
-Artículo 10.-Informes. El Comité de Auditoría brindará un informe anual de sus actuaciones al Consejo Directivo, además podrá presentar informes particulares que se requieran para complementar el cumplimiento de las funciones establecidas en este Reglamento.

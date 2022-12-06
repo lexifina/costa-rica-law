@@ -1,3 +1,0 @@
-Artículo 23.-De los acuerdos. Los acuerdos del Comité de Auditoría, serán adoptados por mayoría absoluta de los miembros asistentes, y se harán constar en un libro de actas, el cual estará en custodia de la Secretaría del Consejo Directivo y a disposición de la SUGEVAL, para los efectos de la supervisión que corresponda realizar.
-Este libro, podrá ser llevado en forma electrónica u otros medios, de acuerdo con las disposiciones que emita SUGEVAL. Concierne a los integrantes del Comité de Auditoría, en el seno de ese Comité, aprobar las actas en la siguiente sesión ordinaria.
-Los acuerdos del Comité de Auditoría constituyen recomendaciones no vinculantes para el Consejo Directivo y tendrán el propósito de apoyar el proceso decisorio de este último.
