@@ -1,0 +1,1 @@
+Artículo 13.-Variante en la etapa 3, evaluación de competencias. El procedimiento simplificado permite que se dispense de la realización de la pruebas o exámenes de carácter técnico, sin perjuicio de las restantes evaluaciones para determinar las competencias gerenciales requeridas para el puesto.

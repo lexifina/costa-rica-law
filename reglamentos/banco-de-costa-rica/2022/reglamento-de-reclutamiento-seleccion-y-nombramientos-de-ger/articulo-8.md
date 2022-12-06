@@ -1,0 +1,2 @@
+SECCIÓN II.-Selección de Personal.
+Artículo 8°-Etapa 4. Recomendación del Comité de Nominaciones y Remuneraciones. El Comité de Nominaciones y Remuneraciones emitirá su recomendación de terna o nómina ampliamente justificada a la Junta Directiva General, con las personas candidatas que se consideran aptas para el puesto. La terna o nómina debe ser justificada, técnicamente, con el apoyo de la Gerencia Corporativa de Capital Humano o del contratista externo que se haya designado, quienes participarán como asesores técnicos de dicho Comité.

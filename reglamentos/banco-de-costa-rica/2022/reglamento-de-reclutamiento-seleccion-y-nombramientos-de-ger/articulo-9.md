@@ -1,0 +1,5 @@
+Artículo 9°-Etapa 5. Aprobación. Tres miembros de la Junta Directiva General, asesorados por la Gerencia Corporativa de Capital Humano, podrán realizar las entrevistas a los integrantes de la terna o nómina. Se debe dejar constancia del resultado de las entrevistas, a efectos de que sirvan de insumo para la decisión de la Junta Directiva General.
+Los miembros designados remitirán sus hallazgos y observaciones a la Junta Directiva General, y se discutirá el nombramiento en la próxima sesión de la Junta Directiva General.
+La Junta Directiva General verificará la terna o nómina emitida por el Comité de Nominaciones y Remuneraciones y determinará su aprobación o desaprobación en el plazo que determine el cartel.
+Si la Junta Directiva General aprueba la recomendación, someterá el nombramiento a votación.
+En caso de que la Junta no apruebe la recomendación, de manera escrita y justificada en criterios técnicos y en razones objetivas, podrá declarar infructuoso el concurso y ordenar la apertura de un nuevo procedimiento, el cual será de tipo simplificado, conforme al trámite señalado en el Capítulo III del presente reglamento.

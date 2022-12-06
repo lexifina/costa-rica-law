@@ -1,0 +1,2 @@
+Artículo 14.-Procedimiento simplificado de reelección. Cuando la persona funcionaria que haya ocupado el puesto durante el plazo legalmente establecido cuente con aptitud legal para su reelección, la Junta Directiva General podrá convocar a votación directamente para valorar su posible reelección.
+Si no resultare reelecto, podrá continuar participando en el procedimiento de concurso público o procedimiento simplificado que se determine.

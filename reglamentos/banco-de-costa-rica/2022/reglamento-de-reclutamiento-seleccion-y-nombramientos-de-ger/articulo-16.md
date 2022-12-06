@@ -1,0 +1,2 @@
+Artículo 16.-Exclusiones. El presente Reglamento regirá para los nombramientos de Gerente General y Subgerentes que efectúa la Junta Directiva General, por lo que se excluyen los nombramientos de Oficialía de Cumplimiento, Gerencia Corporativa de Riesgo, Auditor y Subauditor Interno, y puestos de confianza designados por la Junta Directiva General, los cuales se regirán por la normativa correspondiente.
+La presente normativa se podrá aplicar solo de manera supletoria en aquellos aspectos no regulados y cuando sea compatible con dicha normativa.

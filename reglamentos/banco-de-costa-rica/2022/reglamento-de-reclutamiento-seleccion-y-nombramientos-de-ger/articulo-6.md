@@ -1,0 +1,4 @@
+Artículo 6°-Etapa 2. Validación de admisibilidad. En el plazo máximo de tres meses calendario se debe realizar el estudio de admisibilidad de las personas candidatas mediante el estudio de los currículos.
+Corresponderá a la Gerencia Corporativa de Capital Humano contactar a cada persona candidata admisible, para efectos de informarle las siguientes etapas y los requisitos que debe hacer llegar, como copias de títulos, certificados, documentos legales, entre otros.
+El plazo para remitir dichos requisitos debe ser definido en el cartel, de acuerdo con la complejidad de estos.
+Cuando se trate de personas candidatas internas, se debe realizar la verificación con el expediente personal de la persona trabajadora, de oficio, sin necesidad de solicitarle requisitos a la persona trabajadora activa. Si en el expediente personal no se encontrare algún atestado requerido, se le otorgará el mismo plazo que para las personas candidatas externas.
