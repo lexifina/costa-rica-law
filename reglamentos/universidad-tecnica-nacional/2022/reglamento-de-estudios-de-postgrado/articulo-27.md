@@ -1,0 +1,2 @@
+Artículo 27. Maestrías
+Como maestrías se entiende el grado de educación superior que supone como requisito previo de estudio el grado de bachillerato universitario o licenciatura, dependiendo del programa de maestría. La maestría cuenta con una duración aproximada de dos años, un mínimo de 60 créditos y un máximo de 72 créditos. Existen dos modalidades: maestría profesional y maestría académica. Lo anterior, según lo establecido en Convenio para crear una nomenclatura de grados y títulos de la educación superior universitaria estatal del Consejo Nacional de Rectores.

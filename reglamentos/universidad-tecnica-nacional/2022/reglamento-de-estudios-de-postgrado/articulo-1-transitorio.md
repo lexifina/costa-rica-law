@@ -1,0 +1,4 @@
+CAPÍTULO X DISPOSICIONES TRANSITORIAS
+Transitorio único. Recargo de la Coordinación del Sistema Estudios de Posgrado y Estudios Avanzados en la persona Vicerrectora de Investigación y Transferencia
+La Coordinación del Sistema de Estudios de Posgrado y Estudios Avanzados es asumida como recargo de forma temporal, por la persona Vicerrectora de Investigación y Transferencia o a quién ésta designe, mientras se nombra a la persona Coordinadora del Sistema Estudios de Posgrado y Estudios Avanzados.
+(Aprobado por el Consejo Universitario mediante Acuerdo 16 tomado por el Consejo Universitario en la Sesión Ordinaria No. 28-2022, celebrada el jueves 27 de octubre del año 2022 a las nueve horas, según el Artículo 26 del Capítulo X. Comisión Interna de Reglamentos. Publicado en el diario oficial La Gaceta No. 233 del 7 de diciembre del 2022, sección Reglamentos).

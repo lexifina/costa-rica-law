@@ -1,0 +1,2 @@
+Artículo 28. Doctorados
+Los doctorados responden a un grado de educación superior cuyo rango es de mínimo 50 créditos y máximo 70 créditos sobre maestría. La duración aproximada del programa de doctorado es de tres a cuatro años. Lo anterior, según lo establecido en Convenio para crear una nomenclatura de grados y títulos de la educación superior universitaria estatal del Consejo Nacional de Rectores.

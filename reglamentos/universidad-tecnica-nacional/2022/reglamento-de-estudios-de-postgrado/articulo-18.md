@@ -1,0 +1,3 @@
+Artículo 18. Programas de posgrado y unidades académicas
+Los programas de posgrado están adscritos al Sistema de Estudios de Posgrado y Estudios Avanzados de la Universidad Técnica Nacional y a una unidad académica institucional. Estas unidades brindan soporte técnico y operativo en colaboración al programa de posgrado, a partir de un trabajo conjunto, que permita el aprovechamiento y maximización en el uso de recursos institucionales y funcionamiento del mismo.
+Los programas de posgrado, informan sobre aspectos académicos, administrativos, logísticos y financieros a la Coordinación del Sistema de Estudios de Posgrado y Estudios Avanzados.

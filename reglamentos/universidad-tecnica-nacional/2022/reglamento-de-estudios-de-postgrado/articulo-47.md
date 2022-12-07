@@ -1,0 +1,2 @@
+Artículo 47. Nota mínima para la aprobación de exámenes de candidatura La nota mínima de aprobación de los exámenes de candidatura es de ocho (8,0) como promedio ponderado. La persona estudiante que obtenga esta nota, es declarada candidata al grado que postula y puede continuar su proceso de investigación.
+Si la persona estudiante, no logra alcanzar el 8,0 que se requiere como nota mínima, podrá presentarlo nuevamente, por una única vez, en el plazo que considere y determine el Tribunal Evaluador del programa de posgrado al que aspira.

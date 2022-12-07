@@ -1,0 +1,3 @@
+Artículo 25. Registro de estudiantes de posgrado
+El proceso de inscripción, selección y matrícula de los estudiantes de posgrado de la Universidad Técnica Nacional cuenta con procedimientos de matrícula y registro específicos definidos en la normativa institucional emanada por el Consejo Universitario.
+Estos procedimientos y mecanismos apoyan los programas de posgrado de la Universidad Técnica Nacional, principalmente aquellos programas de carácter interuniversitario. Tanto la Coordinación del Sistema de Estudios de Posgrado y Estudios Avanzados, como Registro Universitario deben mantener una estrecha comunicación que permita el correcto desarrollo de procesos para la inscripción, cohorte, matrícula, ingreso y otros procesos que se requieran.

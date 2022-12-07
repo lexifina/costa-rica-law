@@ -1,0 +1,2 @@
+Artículo 38. Costos de aranceles y valor del crédito
+Cada programa de posgrado debe justificar el valor de los aranceles y el valor del crédito con base a un estudio de costos, en el cual se incluya el recurso académico, administrativo y de infraestructura. La propuesta debe ser avalada por la Coordinación del Sistema de Posgrado y Estudios Avanzados y la Vicerrectoría de Investigación y Transferencia.

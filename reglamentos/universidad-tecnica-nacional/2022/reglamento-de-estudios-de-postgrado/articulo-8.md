@@ -1,0 +1,2 @@
+Artículo 8. Sobre el Consejo del Sistema de Estudios de Posgrado y Estudios Avanzados
+El Consejo del Sistema de Estudios de Posgrado y Estudios Avanzados es una instancia superior dentro del Sistema que, de forma permanente, atiende los asuntos relativos a los programas de posgrado para que cumplan con los requerimientos de la Universidad Técnica Nacional y el Sistema de Estudios de Posgrado y Estudios Avanzados.

@@ -1,0 +1,2 @@
+Artículo 49. Planes de estudio
+Los planes de estudio deben tomar en cuenta lo establecido en Convenio para crear una nomenclatura de grados y títulos de la educación superior universitaria estatal del Consejo Nacional de Rectores, en relación con el número de créditos que corresponden al grado (maestría, especialización, doctorado). La Comisión del programa de posgrado debe actualizar los planes de estudio en coordinación con Gestión y Evaluación Curricular de la Vicerrectoría de Docencia.

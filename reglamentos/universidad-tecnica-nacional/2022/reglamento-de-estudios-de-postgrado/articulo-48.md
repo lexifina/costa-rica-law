@@ -1,0 +1,5 @@
+Artículo 48. Cursos de nivelación académica
+Los cursos complementarios o de nivelación son definidos por la Comisión del programa de posgrado y se establecen de acuerdo al perfil de entrada de cada estudiante. Estos cursos deben ser aprobados por las personas estudiantes previo al inicio del plan de estudio del programa de posgrado.
+La Subcomisión de admisión estudiantil, estudia los casos excepcionales de aquellas personas que solicitan llevar de forma simultánea los cursos de nivelación y los del plan de estudio. Esta Subcomisión dictamina lo que corresponda para cada caso.
+Los cursos se desarrollan fundamentalmente, para los casos de personas que, por su condición de perfil deseable de ingreso al posgrado, deben adquirir ciertos conocimientos y habilidades que garanticen el nivel deseable antes del ingreso al programa de posgrado que aspire.
+La persona aspirante al programa respectivo debe asumir los costos de estos cursos con sus propios recursos económicos. Los créditos de este proceso nivelatorio, no forman parte del plan de estudio, salvo que el programa de posgrado en específico, así lo indique.

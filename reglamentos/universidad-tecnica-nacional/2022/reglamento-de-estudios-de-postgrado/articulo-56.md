@@ -1,0 +1,3 @@
+Artículo 56. Incumplimientos
+Para efectos del presente Reglamento, se considera como incumplimiento cualquier acción u omisión de la persona estudiante que comprometa el desarrollo del programa de posgrado, la imagen de la Universidad ante las instancias asociadas, así como las descritas en el Reglamento Disciplinario Estudiantil y cualquier otra normativa universitaria existente.
+En caso de que exista incumplimiento demostrado de los deberes de la persona académica se debe remitir el caso a las instancias correspondientes, según los procedimientos y normativa institucional con la finalidad de establecer el tipo de falta y la sanción correspondiente.

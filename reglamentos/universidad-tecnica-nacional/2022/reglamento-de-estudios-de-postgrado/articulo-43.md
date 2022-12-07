@@ -1,0 +1,3 @@
+Artículo 43. Resolución de ingreso y admisión
+Toda solicitud de admisión debe ser revisada en primera instancia por la persona Coordinadora del Sistema de Estudios de Posgrado y Estudios Avanzados, quien una vez comprobada la debida presentación de los requisitos, traslada la solicitud a la Subcomisión de admisión estudiantil, para que emitan el criterio correspondiente.
+En caso de que una solicitud sea rechazada, la persona puede solicitar revisión de su caso, por una única vez, ante la Subcomisión de admisión estudiantil, quienes tienen un plazo de 15 días hábiles para reconsiderar su criterio y brindar respuesta debidamente documentada y con las argumentaciones correspondientes.

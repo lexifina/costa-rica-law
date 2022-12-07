@@ -1,0 +1,2 @@
+Artículo 12. Nombramiento de la persona Coordinadora del Sistema de Estudios de Posgrado y Estudios Avanzados
+La Vicerrectoría de Investigación y Transferencia, propone el nombramiento de la persona Coordinadora del Sistema de Estudios de Posgrado y Estudios Avanzados, quién es nombrada por el Consejo Universitario, por un periodo de cuatro años, con posibilidad de reelección por una única vez y sin repetir el área del conocimiento.

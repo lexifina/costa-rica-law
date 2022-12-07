@@ -1,0 +1,2 @@
+Artículo 51. Dominio de una segunda lengua
+Las personas que deseen ingresar a un programa de posgrado, deben comprobar el manejo instrumental de un segundo idioma, con preferencia el idioma inglés. Si la Comisión del programa de posgrado lo cree conveniente, puede aprobar que el postulante complete dicho requisito durante el curso de sus estudios, pero es necesario completar el requisito para poder graduarse.
