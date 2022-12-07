@@ -1,0 +1,1 @@
+Artículo 4.-Los preceptos que hacen alusión al proceso electoral municipal de 2024 son normas temporales, en tanto están sujetas a un contexto particular como lo es la entrada en vigencia de nuevas regulaciones del régimen municipal, según lo dispuesto en la Ley N.° 10.183, particularmente en su transitorio.
