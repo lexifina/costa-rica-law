@@ -1,0 +1,1 @@
+Artículo 25. Depreciación de activos. La depreciación se calcula bajo el método de línea recta, con base en la vida útil estimada para cada tipo de activo, según las políticas contables generales emitidas por el Ministerio de Hacienda.

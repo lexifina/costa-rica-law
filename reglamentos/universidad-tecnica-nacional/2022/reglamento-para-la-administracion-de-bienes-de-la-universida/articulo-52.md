@@ -1,0 +1,1 @@
+Artículo 52. Información de respaldo de las donaciones. La Dirección de Control de Bienes e Inventarios es la responsable de remitir al Área de Contabilidad de la Dirección de Gestión Financiera, la información soporte de las donaciones para lo que corresponda.

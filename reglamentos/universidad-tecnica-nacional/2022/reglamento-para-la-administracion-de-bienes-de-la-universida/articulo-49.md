@@ -1,0 +1,1 @@
+Artículo 49. Instituciones sujetas para recibir donaciones. Las donaciones se pueden otorgar a entidades declaradas de interés público, de interés social o sin fines de lucro, que estén debidamente inscritas ante el Ministerio de Hacienda.

@@ -1,0 +1,1 @@
+Artículo 42. Autorización para el préstamo de activos a otras instituciones. La autorización para efectuar el préstamo de un activo a otra institución, le corresponde a la persona que tiene a cargo la Dirección General de Administración Universitaria, la Decanatura de la Sede o la Dirección Ejecutiva de los Centros, según corresponda.

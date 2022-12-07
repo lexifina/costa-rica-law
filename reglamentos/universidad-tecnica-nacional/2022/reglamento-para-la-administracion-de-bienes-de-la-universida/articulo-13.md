@@ -1,0 +1,1 @@
+Artículo 13. Obligación de las personas servidoras de brindar información. Todas las personas servidoras están obligadas a brindar la información que la Dirección de Control de Bienes e Inventarios o la persona Encargada de Control de Bienes e Inventarios en la Sede o Centro, solicite sobre los bienes asignados que tengan bajo su custodia.

@@ -1,0 +1,1 @@
+Artículo 23. Deterioro de activos por el uso normal. Las personas servidoras de la UTN no son responsables por el deterioro normal, daño, destrucción o pérdida que sufran los bienes en caso fortuito, fuerza mayor, mala calidad o defectuosa confección, previa comprobación de los hechos, mediante debido proceso de investigación administrativa.

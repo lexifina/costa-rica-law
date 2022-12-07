@@ -1,0 +1,1 @@
+Artículo 12. Otros usos de bienes. Es responsabilidad de la Dirección de Control de Bienes e Inventarios proponer a la Dirección General de Administración Universitaria, los lineamientos necesarios para la aplicación de cualquier otro tipo de uso de los bienes, no regulados en el presente Reglamento, y someterlo a la aprobación correspondiente.

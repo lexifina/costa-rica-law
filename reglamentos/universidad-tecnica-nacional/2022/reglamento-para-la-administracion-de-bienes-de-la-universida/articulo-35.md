@@ -1,0 +1,1 @@
+Artículo 35. Envío de información sobre ajustes al Área de Contabilidad. La Dirección de Control de Bienes e Inventarios es la responsable de remitir al Área de Contabilidad de la Dirección de Gestión Financiera, los documentos o informes, que respalden los asientos correspondientes a los ajustes realizados a cualquier bien; dichos ajustes deben apegarse a la normativa vigente.

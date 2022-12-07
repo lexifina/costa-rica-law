@@ -1,0 +1,1 @@
+Artículo 44. Autorización para el alquiler de un activo. La autorización para el arrendamiento de un activo le corresponde otorgar al Consejo Universitario, previa solicitud de la persona que tiene a cargo la Dirección General de Administración Universitaria, la Decanatura de la Sede o la Dirección Ejecutiva de los Centros, según corresponda.

@@ -1,0 +1,1 @@
+Artículo 10. Prohibición de uso de bienes. Queda prohibido el uso de los bienes propiedad de la institución para atender asuntos personales, el incumplimiento a esta prohibición da origen a la apertura de un procedimiento administrativo para determinar la verdad real de los hechos y potenciales responsabilidades.

@@ -1,0 +1,3 @@
+CAPÍTULO IX
+INCIDENCIAS PRESENTADAS EN LOS BIENES INSTITUCIONALES
+Artículo 53. Informe de incidencias a las autoridades. La Dirección de Control de Bienes e Inventarios, con fundamento en lo indicado en el presente Reglamento, debe informar sobre el acontecimiento de un accidente, colisión, daño, faltante, robo o hurto de un bien institucional o muerte no natural de un semoviente, a la persona encargada de la Dirección General de Administración Universitaria, la Decanatura de Sedes o la Dirección Ejecutiva de los Centros, según sea el caso, con el fin de que se proceda con el debido proceso, cuyo resultado final debe ser comunicado "por escrito" a la Dirección de Control de Bienes e Inventarios para lo que corresponda.

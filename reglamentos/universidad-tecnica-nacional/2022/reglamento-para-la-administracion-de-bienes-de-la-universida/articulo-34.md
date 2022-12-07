@@ -1,0 +1,1 @@
+Artículo 34. Cierre mensual de inventarios. Los encargados de inventarios deben presentar la información correspondiente al cierre mensual de inventarios, de acuerdo con la normativa que establezca la Dirección de Control de Bienes e Inventarios.

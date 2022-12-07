@@ -1,0 +1,1 @@
+Artículo 18. Activos elaborados, desarrollados o reparados internamente. Las dependencias internas que desarrollen, elaboren o realicen reparaciones capitalizables de activos, deben proporcionar a la Dirección de Control de Bienes e Inventarios, toda la información que se requiere para realizar los registros correspondientes.

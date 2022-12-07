@@ -1,0 +1,1 @@
+Artículo 24. Deterioro de activos aplicando la normativa técnica NICSP. Le corresponde a la Dirección de Control de Bienes e Inventarios realizar el registro del deterioro de los activos como mínimo una vez al año, una vez recibida la información de parte de las personas servidoras responsables de realizar la evaluación del deterioro.

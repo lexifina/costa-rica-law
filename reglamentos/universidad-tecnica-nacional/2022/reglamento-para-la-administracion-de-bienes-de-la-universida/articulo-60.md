@@ -1,0 +1,2 @@
+Artículo 60. Vigencia. El presente Reglamento rige a partir de su publicación en el Diario Oficial La Gaceta.
+(Aprobado por el Consejo Universitario mediante Acuerdo 11 tomado por el Consejo Universitario en la Sesión Ordinaria No. 29-2022, celebrada el jueves 10 de noviembre del año 2022 a las nueve horas, según el Artículo 23 del Capítulo XI. Comisión Interna de Reglamentos. Publicado en el diario oficial La Gaceta No. 233 del 7 de diciembre del 2022, sección Reglamentos).

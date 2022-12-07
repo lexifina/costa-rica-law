@@ -1,0 +1,1 @@
+Artículo 54. Debido proceso La Administración de la UTN aplica el Debido Proceso establecido en la Ley General de Administración Pública, en todos aquellos casos determinados o denunciados, relativos al tratamiento inadecuado de bienes propiedad de la UTN.

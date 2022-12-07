@@ -1,0 +1,1 @@
+Artículo 20. Actualización de registros contables y auxiliares. La Dirección de Control de Bienes e Inventarios debe asegurarse de que en los registros contables se incluyan todas las operaciones relacionadas con los bienes capitalizables.

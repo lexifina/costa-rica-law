@@ -1,0 +1,1 @@
+Artículo 27. Registro de las desincorporaciones de activos. Le corresponde a la Dirección de Control de Bienes e Inventarios realizar el registro, control y seguimiento de las desincorporaciones de activos.

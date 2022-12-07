@@ -1,0 +1,1 @@
+Artículo 38. Autorización para el traslado o préstamo de un activo entre dependencias de una misma Sede o Centro. La autorización para realizar el traslado o préstamo de un activo a otra dependencia dentro de la misma Sede o Centro, le corresponde a la jefatura de la dependencia que tiene asignado el activo.

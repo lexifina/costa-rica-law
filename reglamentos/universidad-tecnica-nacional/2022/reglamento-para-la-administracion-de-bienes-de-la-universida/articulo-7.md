@@ -1,0 +1,6 @@
+Artículo 7. Obligaciones y responsabilidades de la Dirección de Producción y Gestión Empresarial. Le corresponde a la Dirección de Producción y Gestión Empresarial la realización de las siguientes funciones:
+a. Informar a la Dirección General de Administración Universitaria, sobre la administración de los semovientes, inventarios de los procesos productivos, activos biológicos y subproductos de la academia.
+b. Mantener actualizado el auxiliar de los inventarios en lo referente a los semovientes para la venta e inventario de los procesos productivos, y mantener actualizado el registro auxiliar de activos para los semovientes y otros activos biológicos, de acuerdo con la normativa vigente.
+c. Proponer los formularios, boletas o documentos que deben acompañar a la normativa que se emita.
+d. Brindarle a la administración los requerimientos para el desarrollo o funcionamiento del módulo de inventarios, en lo referente a la administración de los inventarios de los procesos productivos y los semovientes y en el módulo de activos, en lo referente al registro de los semovientes y activos biológicos.
+e. Realizar otras funciones que se establezcan en este Reglamento o en la normativa aplicable a la materia.

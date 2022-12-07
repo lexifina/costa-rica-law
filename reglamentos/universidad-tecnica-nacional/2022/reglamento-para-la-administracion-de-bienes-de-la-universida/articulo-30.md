@@ -1,0 +1,1 @@
+Artículo 30. Incorporación de semovientes como propiedad, planta y equipo. Se registran en la partida de propiedad, planta y equipo, aquellos semovientes que son adquiridos para efectos reproductivos, han alcanzado la madurez en su crecimiento biológico, son utilizados en proyectos académicos o para realizar trabajos en las fincas o en las instalaciones universitarias.

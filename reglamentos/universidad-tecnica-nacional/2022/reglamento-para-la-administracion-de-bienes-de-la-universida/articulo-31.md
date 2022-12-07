@@ -1,0 +1,1 @@
+Artículo 31. Traslado de semovientes a cuentas de inventario. Un semoviente se traslada de las cuentas de propiedad, planta y equipo o activo biológico a las cuentas de inventario, en el momento que se tome la decisión de venderlo, se traslade a un proceso productivo o se utilice para una actividad académica.

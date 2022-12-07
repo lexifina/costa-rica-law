@@ -1,0 +1,1 @@
+Artículo 58. Sanciones. La violación de cualquier disposición contenida en el presente Reglamento, da origen a un procedimiento administrativo para determinar la verdad real de los hechos y la respectiva sanción cuando corresponda, según lo que determine el órgano decisor.

@@ -1,0 +1,1 @@
+Artículo 40. Préstamo de activos a estudiantes, servidores o servidoras de la UTN. La institución puede prestar un activo a una persona estudiante o servidora de la UTN, en caso que la persona presente alguna discapacidad, una necesidad educativa debidamente comprobada para realizar un proyecto académico, para realizar trabajo domiciliar o atender actividades institucionales.

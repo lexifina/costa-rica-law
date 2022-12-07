@@ -1,0 +1,3 @@
+Artículo 2. Alcance. El presente Reglamento es de acatamiento obligatorio para todas las personas servidoras de la Universidad, así como terceros tales como estudiantes, concesionarios, instituciones públicas y empresas privadas, que administren, custodien o hagan uso de los bienes de la UTN.
+La institución regula la normativa correspondiente en materia de convenios o cartas de entendimiento, de conformidad con lo dispuesto por este Reglamento.
+Para los bienes institucionales no contemplados en el presente Reglamento que, por su naturaleza, características y sus particularidades requieren ser fiscalizados por la Dirección General de Administración Universitaria, se debe crear la respectiva reglamentación.

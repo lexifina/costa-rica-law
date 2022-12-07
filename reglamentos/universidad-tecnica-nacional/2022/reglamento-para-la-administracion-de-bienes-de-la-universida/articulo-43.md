@@ -1,0 +1,1 @@
+Artículo 43. Alquiler de activos. Se pueden dar en arrendamiento los activos de la UTN, siempre y cuando no se entorpezca el quehacer institucional y exista un contrato debidamente firmado entre las partes.

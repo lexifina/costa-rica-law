@@ -1,0 +1,1 @@
+Artículo 22. Trámites ante entes públicos. La Dirección de Control de Bienes e Inventarios debe presentar a la Dirección General de Administración Universitaria un informe de los bienes muebles, inmuebles e intangibles, pendientes de inscripción o desinscripción ante los diferentes entes públicos para que tramite lo correspondiente ante la Dirección General de Asuntos Jurídicos.

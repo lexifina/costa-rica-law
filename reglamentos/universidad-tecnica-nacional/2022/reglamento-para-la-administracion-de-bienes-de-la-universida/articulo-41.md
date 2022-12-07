@@ -1,0 +1,1 @@
+Artículo 41. Préstamo de activos a otras instituciones. La institución puede prestar activos a otras instituciones, siempre y cuando exista un contrato firmado entre ambas instituciones. La dependencia responsable del activo es la encargada de verificar que la devolución se realice en la fecha acordada y que se encuentre en buen estado.

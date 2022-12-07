@@ -1,0 +1,1 @@
+Artículo 36. Precio de los inventarios para la venta. El precio de venta de los productos elaborados internamente o semovientes deben ser aprobados por la Comisión Institucional de Precios, con base en la normativa vigente.

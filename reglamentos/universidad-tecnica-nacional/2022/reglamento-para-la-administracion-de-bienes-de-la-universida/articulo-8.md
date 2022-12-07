@@ -1,0 +1,4 @@
+CAPÍTULO III
+DE LA RESPONSABILIDAD DE LAS PERSONAS SERVIDORAS EN EL USO Y CONTROL DE BIENES
+Artículo 8. Responsabilidad sobre el uso de los bienes. La persona servidora es responsable, a partir de la firma del documento de recepción de conformidad con los bienes que se le entregan. Se exceptúa del proceso de firma de la boleta de asignación de semovientes, a los encargados de los hatos de la UTN, ya que la responsabilidad corre a partir del momento en que firman el acta de nacimiento, acta de recepción definitiva o el acta de recepción de la donación.
+La persona servidora que por cualquier razón tenga suspendida su actividad laboral formal o que deja de laborar para la UTN, debe realizar el respectivo traslado de los bienes a su superior jerárquico o a la persona que lo va a sustituir (en caso que esté definida) e incluir copia del traslado en el informe de fin de gestión, en los casos que corresponda.

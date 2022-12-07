@@ -1,0 +1,1 @@
+Artículo 46. Autorización de salida de activos fuera del país. Cuando un servidor requiera, en razón de sus actividades institucionales, trasladar un activo fuera del país, debe solicitar el aval del superior jerárquico en apego a la normativa vigente.

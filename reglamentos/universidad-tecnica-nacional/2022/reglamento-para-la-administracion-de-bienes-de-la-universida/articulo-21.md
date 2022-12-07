@@ -1,0 +1,1 @@
+Artículo 21. Medición del costo de un activo para su registro. Todos los activos deben ser registrados contablemente a su costo de adquisición o construcción, incluyendo los costos en que se incurra para su puesta en funcionamiento. Cuando se desconozca dicho costo, se debe utilizar el valor razonable o, en su defecto, el costo que establezca un perito especialista en la materia.
