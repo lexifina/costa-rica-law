@@ -27,3 +27,4 @@ Reglamento a la Ley de Fortalecimiento de las Pequeñas y Medianas Empresas, Ley
 | 12 | 2021-08-25 | Decreto Ejecutivo 43244 (2021-08-25) |
 | 13 | 2021-12-21 | Decreto Ejecutivo 43387 (2021-12-21) |
 | 14 | 2022-03-08 | Resolución 10 (2022-03-08) |
+| 15 | 2022-12-07 | Decreto Ejecutivo 43826 (2022-12-07) |
