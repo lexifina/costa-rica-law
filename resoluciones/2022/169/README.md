@@ -14,3 +14,4 @@ Medidas administrativas temporales de atención al usuario externo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-10-14 | la propia norma |
+| 2 | 2022-12-07 | Resolución 206 (2022-12-07) |
