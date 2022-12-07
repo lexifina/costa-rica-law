@@ -14,3 +14,4 @@ Actualización de los valores de referencia de los parámetros monetarios de ven
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-03-31 | la propia norma |
+| 2 | 2022-12-07 | Decreto Ejecutivo 43826 (2022-12-07) |
