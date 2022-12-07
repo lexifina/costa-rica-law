@@ -1,0 +1,4 @@
+Artículo 14.-Responsabilidades de las organizaciones vecinas que reciban, administren o custodien fondos públicos. Para el caso de las organizaciones vecinas que cumplan que ostenten la responsabilidad de administrar o custodiar fondos públicos, se le asignarán las siguientes responsabilidades:
+a. Hacer uso efectivo y transparente de los fondos públicos que le fueron asignados, incluyendo el utilizar el fondo público únicamente para la justificación que fue aprobada.
+b. Realizar un informe anual de rendición de cuentas sobre os recursos emitidos por la municipalidad, dando énfasis en la liquidación de los fondos y resultados obtenidos. Este informe deberá ser remitido a la Comisión de Control Interno para su respectivo análisis.
+c. Otras que la Administración activa considere pertinente solicitar en el afán de resguardar el adecuado uso de los recursos públicos.
