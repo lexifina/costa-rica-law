@@ -1,1 +1,0 @@
-Artículo 5°—Debido a los ajustes que se requieren para implantar el sistema que se establece, la presente resolución rige para las importaciones que se realicen a partir del primer día hábil del mes siguiente al de su publicación.
