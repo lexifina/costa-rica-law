@@ -1,0 +1,2 @@
+MUNICIPALIDAD DE LA UNIÓN
+La Alcaldía Municipal de la Unión, comunica que de acuerdo con Resolución Administrativa N° MLU-DAM-RES-053-2022 del 17 de octubre del 2022 "Se resuelve aprobar la Adhesión al Manual de Valores Base Unitarios por Tipología Constructiva 2021, publicado en el Alcance Digital N° 213, en La Gaceta 202 del 20 de octubre del 2021, por el Órgano de Normalización Técnica (O.N.T.) del Ministerio de Hacienda".
