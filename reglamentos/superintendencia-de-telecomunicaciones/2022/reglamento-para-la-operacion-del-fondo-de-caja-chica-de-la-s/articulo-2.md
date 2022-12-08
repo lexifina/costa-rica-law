@@ -1,0 +1,1 @@
+Artículo 2º-El Fondo de Caja Chica es aquella suma de dinero fija con que cuenta la SUTEL a su nombre, ya sea en efectivo, o en una de sus cuentas corrientes en uno de los bancos comerciales del Estado, para realizar gastos menores en la adquisición de bienes y servicios que tienen carácter de urgente, indispensable e impostergable.

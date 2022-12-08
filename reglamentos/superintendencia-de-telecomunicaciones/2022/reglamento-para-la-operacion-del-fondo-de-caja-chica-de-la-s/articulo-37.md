@@ -1,0 +1,1 @@
+Artículo 37.-Los cheques de reintegro del efectivo del fondo que funciona en la Unidad de Finanzas, deberán emitirse a nombre del encargado del Fondo o en ausencia de éste, a nombre del funcionario que lo supla o en su defecto a nombre de la jefatura de la Unidad de Finanzas.

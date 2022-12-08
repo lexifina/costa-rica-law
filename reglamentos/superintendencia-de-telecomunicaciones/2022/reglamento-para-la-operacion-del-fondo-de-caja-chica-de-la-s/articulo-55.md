@@ -1,0 +1,1 @@
+Artículo 55.-Todo funcionario de esta Superintendencia que, siendo usuario de los recursos del Fondo de Caja Chica de la SUTEL, incumpla con cualquiera de las disposiciones aquí descritas será sometido a un proceso administrativo disciplinario y podrá ser sancionado de acuerdo con las disposiciones de la normativa vigente.

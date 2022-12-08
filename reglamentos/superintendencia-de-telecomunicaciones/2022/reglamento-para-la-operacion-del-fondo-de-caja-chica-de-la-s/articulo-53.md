@@ -1,0 +1,1 @@
+Artículo 53.-Los funcionarios que participan en los procesos del Fondo, deberán rendir las garantías de fidelidad respectivas, según lo disponga la normativa interna de la Institución, de conformidad con el artículo 13 de la Ley de la Administración Financiera de la República y Presupuestos Públicos N° 8131.

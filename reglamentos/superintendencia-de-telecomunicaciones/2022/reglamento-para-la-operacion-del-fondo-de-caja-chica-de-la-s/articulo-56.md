@@ -1,0 +1,1 @@
+Artículo 56.-Corresponderá velar por la aplicación de este Reglamento, a los funcionarios encargados de realizar los trámites que se señalan en el mismo, a la Jefatura de la Unidad de Finanzas y al Director de la Dirección General de Operaciones.

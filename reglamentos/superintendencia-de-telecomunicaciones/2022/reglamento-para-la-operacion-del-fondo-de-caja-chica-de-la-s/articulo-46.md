@@ -1,0 +1,1 @@
+Artículo 46.-Cuando el encargado del manejo del Fondo en la unidad de Finanzas considere necesario, podrá retener los justificantes de pagos, en el plazo que considere indispensable, siempre que no superen los tres meses, con el fin de conformar un grupo de comprobantes del mismo objeto del gasto para proceder luego a su reintegro.

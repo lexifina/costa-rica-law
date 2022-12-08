@@ -1,0 +1,1 @@
+Artículo 12.-El Jefatura de la Unidad de Finanzas o el funcionario designado revisará, evaluará e informará al Director de Operaciones y al Presidente del Consejo sobre los resultados, durante los diez días naturales posteriores a su realización. La copia del instrumento indicado se archivará en un consecutivo bajo la custodia de la jefatura de la Unidad de Finanzas.

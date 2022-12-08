@@ -1,0 +1,1 @@
+Artículo 44.-Los reintegros del efectivo del Fondo de Caja Chica deberán ser realizados por el encargado del manejo de éste cuando el disponible llegue a un treinta por ciento (30%) del fondo en efectivo autorizado, con el propósito de que le permita cumplir adecuadamente con la operación de este.

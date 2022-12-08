@@ -1,0 +1,1 @@
+Artículo 26.-El Fondo de Caja Chica de la Superintendencia de Telecomunicaciones deberá regirse por los límites de desembolsos que establecerá el Consejo de la SUTEL para la adquisición de bienes y servicios, conforme con lo establecido por la Contraloría General de la República. El monto máximo para cada compra será hasta un 50% del valor total del Fondo.
