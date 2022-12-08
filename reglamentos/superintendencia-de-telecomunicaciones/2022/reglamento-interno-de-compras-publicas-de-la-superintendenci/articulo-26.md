@@ -1,0 +1,1 @@
+Artículo 26- Uso indebido de la tarjeta. Si se detecta un posible uso diferente al permitido en este reglamento, deberá informarse de inmediato a la Dirección General de Operaciones, para que eleve el informe respectivo ante el Consejo de la SUTEL, a fin de que se tomen las medidas pertinentes.

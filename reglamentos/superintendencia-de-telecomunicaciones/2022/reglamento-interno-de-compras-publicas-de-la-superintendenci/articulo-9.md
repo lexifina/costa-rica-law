@@ -1,0 +1,3 @@
+Artículo 9- Compras por medio de las modalidades convenios marco y entrega según demanda.
+Las licitaciones que se requieran bajo estas modalidades serán gestionadas por la Unidad de Proveeduría y Servicios Generales, tomando en consideración cada caso y determinando que es la mejor forma de obtener lo requerido para la SUTEL. Cualquiera de las modalidades será aprobada según lo estipulado en este reglamento interno y lo dispuesto en la LGCP y el RLGCP.
+Con respecto a la modalidad de contratación por medio de convenios marco serán tramitadas por la Unidad de Proveeduría y Servicios Generales ante el Ministerio de Hacienda o el Ente que corresponda según la normativa vigente, para ello se debe seguir todo lo establecido en la LGCP y en el RLGCP.

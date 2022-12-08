@@ -1,0 +1,8 @@
+Artículo 18- Unidad de Finanzas. Corresponde a la Unidad de Finanzas, además de las funciones establecidas en el RIOF, realizar las actividades siguientes:
+1. Emitir a solicitud del área solicitante, los documentos necesarios que respaldan y reservan la existencia suficiente del contenido presupuestario disponible para tramitar la compra pública respectiva.
+2. Custodiar los recibos de garantías de cumplimiento y colaterales correspondientes que son generados por el sistema interno de la SUTEL, los cuales cuentan con la información que ingresa la Unidad de Proveeduría y Servicios Generales que es igual a la del sistema digital unificado.
+3. Tramitar a solicitud del proveedor y por medio de la Unidad de Proveeduría y Servicios Generales, la devolución de las garantías, lo cual incluye la aprobación en el sistema digital unificado por parte del jefe de la Unidad de Finanzas.
+4. Tramitar a solicitud del administrador del contrato y por medio de la Unidad de Proveeduría y Servicios Generales, la aplicación de multas o cláusulas penales en las facturas de pago.
+5. Realizar los pagos de las facturas de los bienes, obras y servicios provistos a la Institución, para ello la SUTEL cuenta con el plazo establecido en la LGCP y su Reglamento.
+6. Analizar y resolver junto con el administrador del contrato y la Unidad de Proveeduría y Servicios Generales lo relacionado a las solicitudes de revisión y reajustes de precios que presenten los contratistas.
+7. Revisar y validar que las características indicadas en los pliegos de condiciones correspondientes a un contrato de arrendamiento cumplan a cabalidad con la normativa contable y presupuestaria vigente a la Institución.

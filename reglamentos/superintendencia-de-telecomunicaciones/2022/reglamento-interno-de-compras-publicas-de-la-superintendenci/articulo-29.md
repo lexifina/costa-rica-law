@@ -1,0 +1,1 @@
+Artículo 29- Transferencia de fondos. Una vez verificada la solicitud definida en el artículo anterior, la Dirección General de Operaciones deberá realizar la transferencia de fondos en un plazo no mayor a dos días hábiles.

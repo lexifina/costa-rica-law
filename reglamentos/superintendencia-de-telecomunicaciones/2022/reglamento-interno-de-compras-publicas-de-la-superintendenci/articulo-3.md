@@ -1,0 +1,24 @@
+Artículo 3-Términos y definiciones. Para los efectos de este Reglamento, se establecen los términos y definiciones siguientes:
+1. Acto final: Acto administrativo que decide, resuelve o concluye con la cuestión sustancial. Por ejemplo, el acto en el cual se adjudica o se declarara desierto o infructuoso el concurso.
+2. Administrador del Contrato: Funcionario de la SUTEL autorizado y designado por el área solicitante, para solicitar, elaborar, ejecutar y aprobar trámites, actividades y otros relacionados con las contrataciones públicas solicitadas. El administrador del contrato será el responsable de la correcta ejecución del contrato durante toda su vigencia.
+3. Área solicitante: Dirección, unidad u otra dependencia dentro de la estructura organizacional de la SUTEL que gestiona ante la Unidad de Proveeduría y Servicios Generales, la adquisición de un bien, servicio, obra u otros.
+4. Capacitación abierta (curso): Modalidad que consiste en realizar una invitación abierta al público en general, para brindar una capacitación sobre un determinado tema de interés.
+5. Compra o contratación: Es la adquisición de bienes, servicios, obras y otros que se realiza para que la SUTEL obtenga lo que requiere para cumplir sus objetivos.
+6. Comprobante de pago: Documento que emite el proveedor del bien o servicio, acreditando el pago con la tarjeta de débito o crédito institucional.
+7. Contenido presupuestario: Recursos presupuestarios con que cuenta la SUTEL para la compra o contratación.
+8. Contratista: Persona física o jurídica contratada por la SUTEL para el suministro del bien, servicio, obra u otro.
+9. Decisión inicial: Acto administrativo que ordena el inicio del procedimiento de contratación.
+10. Director del área solicitante: Es el director del área que solicita la compra y al que le corresponde realizar las aprobaciones respectivas.
+11. Estudio de mercado: Proceso mediante el cual se identifican las posibilidades ofrecidas en el mercado para la satisfacción de las necesidades de bienes, servicios, obras u otros requeridos por la institución, con miras a determinar un valor referencial, existencia de potenciales oferentes idóneos, factores de evaluación y características técnicas del objeto contractual, entre otros aspectos.
+12. Expediente electrónico: Documentación y procesos correspondientes de todas las actuaciones internas y externas, en orden cronológico correspondiente a su presentación, relativas a un trámite de compras realizado en el sistema digital unificado.
+13. Formato: Documento elaborado por la Unidad de Proveeduría y Servicios Generales, de uso obligatorio, el cual indica la información que se requiere y corresponde a las etapas específicas del procedimiento de compras.
+14. Funcionario del área solicitante: Funcionario de la SUTEL designado como apoyo o enlace para el área solicitante de la compra o para el administrador del contrato, el cual puede solicitar y elaborar trámites, actividades y otros relacionados con las compras solicitadas. Este funcionario no asume ninguna responsabilidad durante la vigencia del contrato, por lo tanto, no podrá realizar aprobaciones.
+15. Institución: Superintendencia de Telecomunicaciones.
+16. Licitación por excepción: Contrataciones que por su propia naturaleza se encuentran excluidas de los procedimientos ordinarios de concurso, según lo establecido en la LGCP.
+17. Manual: Instructivo de acceso público que se encuentra en el sistema digital unificado de compras, en el cual se describen todos los pasos a realizar en un módulo especifico de la plataforma.
+18. Orden de compra: Documento generado en el sistema interno de la SUTEL, el cual se utiliza como respaldo de presupuesto para el pago de una factura.
+19. Pliego de condiciones: Norma específica de la contratación que contiene las condiciones generales, las especificaciones técnicas, financieras, de calidad, jurídicas y otras para la adquisición de bienes, obras, servicios u otros. Está compuesto por varias partes, como son el documento que contiene las especificaciones técnicas y otros, los anexos y la información que se ingresa directamente en el sistema digital unificado.
+20. Procedimiento interno: Documento elaborado por la Unidad de Proveeduría y Servicios Generales, en el cual se describen los pasos a realizar en los procedimientos de contratación pública.
+21. Programa de adquisiciones: Proyección de contrataciones de bienes, obras, servicios u otros durante un periodo presupuestario determinado, para satisfacer las necesidades de la SUTEL.
+22. Sistema o Sistema digital unificado: Sistema electrónico mediante el cual se automatizan, tramitan, gestionan y ejecutan las compras institucionales, el cual es establecido por el Estado.
+23. Sistema interno: Sistema electrónico interno que utiliza la SUTEL, mediante el cual se automatizan, tramitan, gestionan y ejecutan diferentes actividades institucionales.
