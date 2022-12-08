@@ -46,13 +46,21 @@ Como marco legal de referencia se debe considerar la siguiente normativa naciona
 . Convención Interamericana sobre la Protección de los Derechos Humanos de las Personas Mayores.
 . Norma Nacional para la Atención en Salud libre de estigma y discriminación a personas lesbianas, gais, bisexuales, trans, intersex (LGBTI y otros hombres que tienen sexo con hombres (HSM) (2016). Ministerio de Salud.
 . Plan Estratégico Nacional VIH-SIDA 2016-2021
+Política nacional de cuidados 2021-2031
+(Así adicionado el párrafo anterior mediante sesión ordinaria N° 63-2022 del 8 de diciembre de 2022)
+Ley 10192 Creación del Sistema Nacional de Cuidados y Apoyos para personas Adultos Mayores en situaciones de Dependencia (SINCA).
+(Así adicionado el párrafo anterior mediante sesión ordinaria N° 63-2022 del 8 de diciembre de 2022)
 2.- Fundamento Técnico.
 a- ENFOQUES Y PRINCIPIOS RECTORES.
 Para los efectos del presente manual, los lineamientos se sustentan en los siguientes enfoques transversales y paradigmas:
+Desarrollo sostenible e inclusivo: Desde este enfoque, la aproximación a la igualdad se hace desde una perspectiva multidimensional, en la que se reconoce la importancia de la distribución de ingresos, activos y recursos, pero también la relevancia de afirmar la autonomía, la dignidad y los derechos de todos los sujetos.
+(Así adicionada la definición anterior mediante sesión ordinaria N° 63-2022 del 8 de diciembre de 2022)
 . Enfoque de Derechos Humanos: El eje central de este enfoque, parte del reconocimiento y respeto por la dignidad inherente a las personas, así como de que estas son titulares activos de derechos, los cuales son universales, inalienables, intransferibles, irrenunciables, imprescriptibles, irreversibles, jurídicamente exigibles, progresivos e inacabados, interdependientes, complementarios e indivisibles entre sí. En virtud de lo anterior; asume que todas las personas, deben tener asegurado el goce pleno de sus derechos y el ejercicio de sus deberes; sin distinción alguna, respecto de otras personas. Ratifica la responsabilidad del Estado en la toma de medidas pertinentes para promover, respetar, proteger y hacer efectivos los derechos humanos. (CONAPDIS,2019).
 . Enfoque de Género: este enfoque reconoce la existencia de relaciones desiguales entre mujeres y hombres y, por lo tanto, busca la transformación para alcanzar la igualdad y equidad. (INAMU,2019).
 . Enfoque de Diversidades: "reconoce que todos los cuerpos, comportamientos, pensamientos, sensaciones, deseos, expresiones y manifestaciones sexuales, forman parte de un amplio espectro que está disponible para toda persona y para la construcción de su identidad y forma parte de este abanico de posibilidad sexuales, que tiene igual derecho de existir y presentarse siempre que no atente contra su integridad o los derechos de terceros" (Norma Nacional para la Atención en Salud libre de estigma y discriminación, Ministerio de Salud (2016).
 . Enfoque de derechos de las personas con discapacidad: parte del modelo social de la discapacidad, planteado por la Convención sobre los Derechos de las Personas con Discapacidad, de 19 de agosto de 2008, que tutela los derechos de esta población. Plantea que la discapacidad no es atribuible a las personas, sino que resulta de la interacción entre las personas con deficiencias que limitan su funcionamiento y las barreras que el entono les plantea. Por tanto, se concluye que la construcción de un entorno inclusivo en toda su extensión, necesario para la eliminación de estas barreras; es responsabilidad de la sociedad en su conjunto; y que es menester y urgente su construcción, para que todas las personas, puedan participar y acceder en igualdad de condiciones, a todos los ámbitos del mismo, sin barrera alguna. (CONAPDIS,2019).
+Enfoque de corresponsabilidad social de los cuidados: este enfoque toma como punto de partida la necesidad de visibilizar el tema de los cuidados y apoyos, movilizándolo de la esfera privada y familiar a la social, a partir de la identificación de los determinantes socioculturales que lo configuran y de las desigualdades que se encuentran en la base de la reproducción social del poder.
+(Así adicionada la definición anterior mediante sesión ordinaria N° 63-2022 del 8 de diciembre de 2022)
 . Paradigma de Protección Integral para personas menores de edad: El Modelo de Atención del PANI, 2019 establece:
 "La Doctrina de Protección Integral considera a las personas menores de edad como sujetos sociales plenos de derechos y responsabilidades. Por su parte el artículo 20 (inciso 1) de la Convención de los Derechos del Niño plantea: "Los niños temporal o permanentemente privados de su medio familiar, o cuyo superior interés exija que no permanezcan en ese medio, tendrán derecho a la protección y asistencia especiales del Estado". (p.5).
 . Paradigma de Atención Centrada en la Persona (ACP): se basa en considerar a las PAM como agentes activos de sus propios cambios. Sus principios rectores son: la autonomía en la diversidad; la participación, accesibilidad e interdisciplinariedad; la integralidad y globalidad; la individualidad, atención personalizada y flexibilidad; la inclusión social, proximidad y enfoque comunitario, la independencia, prevención y rehabilitación; y la continuidad, coordinación y convergencia de los distintos niveles asistenciales. (CONAPAM)
@@ -620,13 +628,15 @@ De 30 a 39 | 32 |
 De 40 a 49 | 40 |
 De 50 a 59 | 48 |
 60 y más personas con discapacidad | 55 | 55,00
+5- En caso de organizaciones que cuenten con servicio de asistencia domiciliaria, se considerará la población beneficiaria de este servicio como parte de la nómina.
+(Así adicionado el punto anterior mediante sesión ordinaria N° 63-2022 del 8 de diciembre de 2022)
 B- Servicios Brindados
 B-1- Modalidad de atención (valor máximo 20%)
 Dado que los costos difieren según el tipo de programa que se desarrolle, se valora el tipo de programa desarrollado, según el siguiente detalle:
 Categoría | % | Puntaje asignado
 Alternativas residenciales | 20 | 20,00
 Centros de atención integral para adultos con discapacidad | 15 |
-Talleres protegidos, laborales y sociales. | 10 |
+Talleres protegidos, laborales y sociales. | 8 (Así modificado el porcentaje anterior mediante sesión ordinaria N° 63-2022 del 8 de diciembre de 2022) |
 B-2- Prestación de Servicios: (valor máximo 17%)
 Categoría | % | Puntaje asignado
 Terapia ocupacional | |
@@ -668,6 +678,9 @@ Alimentación | |
 ningún tiempo | 0,1 |
 Un tiempo de alimentación | 0,5 |
 Dos o más tiempos de alimentación | 2 | 2,00
+Servicio de atención en domicilio (Así adicionado servicio anterior mediante sesión ordinaria N° 63-2022 del 8 de diciembre de 2022) | |
+Si (Así adicionado servicio anterior mediante sesión ordinaria N° 63-2022 del 8 de diciembre de 2022) | | 2 puntos (Así adicionado puntaje anterior mediante sesión ordinaria N° 63-2022 del 8 de diciembre de 2022)
+No (Así adicionado servicio anterior mediante sesión ordinaria N° 63-2022 del 8 de diciembre de 2022) | | 0.1 puntos (Así adicionado puntaje anterior mediante sesión ordinaria N° 63-2022 del 8 de diciembre de 2022)
 C- Facilidades de acceso a medios, servicios y recursos (valor máximo 8%)
 La valoración de estos aspectos pretende compensar las limitaciones de acceso que se presentan a las organizaciones, por su ubicación geográfica y entorno socioeconómico:
 Categoría | % | Puntaje asignado
@@ -914,6 +927,8 @@ TOTAL | | 100,00
 Antes de girar los recursos correspondientes a apoyo a la gestión en esta área, se reserva el porcentaje aprobado por Junta Directiva correspondiente a APRONAGE, la suma restante se distribuye entre los hogares para personas adultas mayores, con base en la siguiente tabla de ponderación:
 A- Beneficiarios (valor máximo 45%)
 A-1. La cantidad de personas adultas mayores institucionalizadas es un factor determinante en la definición del costo de atención por persona adulta mayor.
+En caso de organizaciones que cuenten con servicio de asistencia domiciliaria (no red de cuido), se considerará la población beneficiaria de este servicio como parte de la nómina.
+(Así adicionado el párrafo anterior mediante sesión ordinaria N° 63-2022 del 8 de diciembre de 2022)
 Se asigna una ponderación a cada institución, de acuerdo con el número de personas adultas mayores que cumple los siguientes requisitos:
 a) Que tengan 65 años o más, según lo establecido en el artículo 2 de la Ley No. 7935.
 b) Aquellos cuyo ingreso sea menor al 50% del costo de atención, monto establecido por el CONAPAM. El ingreso puede corresponder a cualquier régimen de pensión, aporte familiar u otro de cualquier índole.
@@ -978,11 +993,14 @@ Sucias o desordenadas y con malos olores | 0,1 |
 Administración de medicamentos | |
 Por auxiliar o enfermera (o) | 1 | 1,00
 Por empleado no calificado | 0,25 |
-Cambio diario de ropa de cama | |
-Varias veces al día | 1 | 1,00
-Diariamente | 0,75 |
-Dos veces por semana | 0,50 |
-Una vez por semana | 0,25 |
+Cambio diario de ropa de cama (Derogado el punto anterior mediante sesión ordinaria N° 63-2022 del 8 de diciembre de 2022) | |
+Varias veces al día (Derogado el punto anterior mediante sesión ordinaria N° 63-2022 del 8 de diciembre de 2022) | 1 (Derogado el punto anterior mediante sesión ordinaria N° 63-2022 del 8 de diciembre de 2022) | 1,00 (Derogado el punto anterior mediante sesión ordinaria N° 63-2022 del 8 de diciembre de 2022)
+Diariamente (Derogado el punto anterior mediante sesión ordinaria N° 63-2022 del 8 de diciembre de 2022) | 0,75 (Derogado el punto anterior mediante sesión ordinaria N° 63-2022 del 8 de diciembre de 2022) |
+Dos veces por semana (Derogado el punto anterior mediante sesión ordinaria N° 63-2022 del 8 de diciembre de 2022) | 0,50 (Derogado el punto anterior mediante sesión ordinaria N° 63-2022 del 8 de diciembre de 2022) |
+Una vez por semana (Derogado el punto anterior mediante sesión ordinaria N° 63-2022 del 8 de diciembre de 2022) | 0,25 (Derogado el punto anterior mediante sesión ordinaria N° 63-2022 del 8 de diciembre de 2022) |
+Servicio de atención en domicilio (Así adicionado el punto anterior mediante sesión ordinaria N° 63-2022 del 8 de diciembre de 2022) | |
+Sí: (Así adicionado el punto anterior mediante sesión ordinaria N° 63-2022 del 8 de diciembre de 2022) | | 1 punto (Así adicionado el punto anterior mediante sesión ordinaria N° 63-2022 del 8 de diciembre de 2022)
+No (Así adicionado el punto anterior mediante sesión ordinaria N° 63-2022 del 8 de diciembre de 2022) | | 0.1 punto (Así adicionado el punto anterior mediante sesión ordinaria N° 63-2022 del 8 de diciembre de 2022)
 Aseo personal general: baño y cambio de ropa diario | |
 Si | 1 | 1,00
 No | 0,1 |
@@ -1035,6 +1053,7 @@ No se brinda el servicio | 0,1 |
 TOTAL | | 100,00
 10. Tabla de ponderación Centros diurnos de personas adultas mayores (inciso p).
 A- Número de Beneficiarios: (valor máximo 50%)
+En caso de organizaciones que cuenten con servicio de asistencia domiciliaria (no red de cuido), se considerará la población beneficiaria de este servicio como parte de la nómina.
 Se le asigna una ponderación de acuerdo con el número de adultos mayores que asisten regularmente al centro diurno, se consideran como beneficiarios:
 1. Las personas de 65 años o más, según lo estipula el artículo 2 de la Ley No. 7935.
 2. Aquellos cuyo aporte al centro sea menor al 50% del costo de atención.
@@ -1049,6 +1068,8 @@ De 25 a menos de 30 | 30 |
 De 30 a menos de 35 | 36 |
 De 35 a menos de 40 | 42 |
 40 y más | 50 | 50
+En caso de organizaciones que cuenten con servicio de asistencia domiciliaria (no red de cuido), se considerará la población beneficiaria de este servicio como parte de la nómina.
+(Así adicionado el párrafo anterior mediante sesión ordinaria N° 63-2022 del 8 de diciembre de 2022)
 B- Modalidad de atención: (valor máximo 15%)
 El modelo de atención se enmarca en lo definido en el presente Manual como Centro de Atención Diurna, sin embargo, por la cultura, necesidades y condiciones de las comunidades, las organizaciones brindan el servicio solo algunos días de la semana, por lo que se asigna un puntaje de acuerdo con los días de servicio prestado.
 Categoría | % | Puntaje asignado
@@ -1086,8 +1107,8 @@ D-1 Prestación de servicios: (valor máximo 24%)
 La prestación de servicios debe orientarse a la atención integral, tanto en calidad como en cantidad, la cual se determinará de acuerdo con:
 Categoría | % | Puntaje asignado
 Terapia Ocupacional | |
-Profesional pagado por la organización ¾ de tiempo y más | 10 | 10,00
-Profesional pagado por la organización a 1/2 tiempo | 7 |
+Profesional pagado por la organización ¾ de tiempo y más (Así reformado el párrafo anterior mediante sesión ordinaria N° 63-2022 del 8 de diciembre de 2022) | 8 (Así reformado el punto anterior mediante sesión ordinaria N° 63-2022 del 8 de diciembre de 2022) | 8 (Así reformado el punto anterior mediante sesión ordinaria N° 63-2022 del 8 de diciembre de 2022)
+Profesional pagado por la organización a 1/2 tiempo (Así reformado el párrafo anterior mediante sesión ordinaria N° 63-2022 del 8 de diciembre de 2022) | 6 (Así reformado el punto anterior mediante sesión ordinaria N° 63-2022 del 8 de diciembre de 2022) |
 Profesional pagado por la organización a 1/4 de tiempo | 4 |
 Acceso a profesional en Terapia Ocupacional | 1 |
 No se brinda el servicio | 0.1 |
@@ -1104,6 +1125,9 @@ No se brinda el servicio | 0,1 |
 Nutrición | |
 Acceso | 2 | 2,00
 No acceso | 0,1 |
+Servicio de atención en domicilio (Así adicionado el punto anterior mediante sesión ordinaria N° 63-2022 del 8 de diciembre de 2022) | |
+Si (Así adicionado el punto anterior mediante sesión ordinaria N° 63-2022 del 8 de diciembre de 2022) | | 1 puntos (Así adicionado el punto anterior mediante sesión ordinaria N° 63-2022 del 8 de diciembre de 2022)
+No (Así adicionado el punto anterior mediante sesión ordinaria N° 63-2022 del 8 de diciembre de 2022) | | 0.1 punto (Así adicionado el punto anterior mediante sesión ordinaria N° 63-2022 del 8 de diciembre de 2022)
 TOTAL | | 100,00
 11. Tabla de ponderación para entidades dedicadas a la capacitación, organización y dirección de asociaciones, fundaciones y grupos de personas dedicadas a atender y proteger a las personas adultas mayores (inciso o).
 En caso de que solo exista una organización que califique para recibir los recursos correspondientes al inciso o), se le girará el 100% de los fondos. Para lo cual el Área de Acción Social analizará el plan anual que debe presentar la organización a beneficiarse y determinará que el uso de los recursos sea concordante con lo estipulado en el inciso o) del artículo 8) de la Ley No. 8718, emitirá el criterio técnico respectivo, antes de realizar el primer giro de recursos de cada periodo presupuestario.
@@ -2113,6 +2137,8 @@ Apoyo a la Gestión: Programa mediante el que se hacen transferencias de recurso
 Atención Directa: Atención individualizada que brinda el personal de la organización en procura de satisfacer las necesidades de las personas beneficiarias.
 Atención domiciliaria y/o ambulatoria: Se refiere al servicio que prestan organizaciones de atención a personas adultas mayores, a pacientes en fase terminal o a personas portadoras del virus VIH/SIDA, en su propio domicilio, como una extensión del programa. Como mínimo se brindan los servicios de atención de la salud, apoyo para la alimentación o compra de suplementos alimenticios y se integra a los servicios que brinda la organización. (Ministerio de Salud-CCSS).
 Atención domiciliaria (PAM): Se refiere al servicio que prestan organizaciones a personas adultas mayores, en su propio domicilio. Se pueden brindar los servicios de terapia física, enfermería, psicología, trabajo social, apoyo para la alimentación o compra de suplementos alimenticios y se integra a los servicios que brinda la organización. (Norma para la habilitación de servicios residenciales de atención integral a la persona adulta mayor)
+Atención Domiciliar: Son modalidades no convencionales atención, que se desarrollan en el escenario domiciliar con la participación de un equipo interdisciplinario capacitado, con experiencia en su disciplina, en el trabajo en equipo y con habilidades sociales. En esta modalidad destaca el papel de los cuidadores. (Política Nacional de Cuidados, 201-2031, pág. 26).
+(Así adicionada la definición anterior mediante sesión ordinaria N° 63-2022 del 8 de diciembre de 2022)
 Atención Integral: Conjunto de actividades tendientes a brindarles a las personas menores de edad, atención en salud, educación, formación permanente y atención terapéutica cuando sea necesario, con el fin de asegurarles gozar de mayores niveles de autonomía, participación, protección y cuidado, así como el máximo disfrute de sus derechos cuando residan tanto en el seno de sus familias, como en establecimientos especialmente creados para su atención y cuidado. (PANI, Reglamento para transferencia, uso, control y liquidación de recursos girados a sujetos privados.). (Ente rector/Departamento de Gestión Social).
 Atención Integral para personas adultas mayores: Satisfacción de las necesidades físicas, materiales, biológicas, emocionales, sociales, laborales, productivas y espirituales de las personas adultas mayores. Para facilitarles una vejez plena y sana, se considerarán sus hábitos, capacidades funcionales y preferencias. (Ley Integral para la Persona Adulta Mayor; Ley n°7935, Capítulo II, artículo 2)
 Casa Cuna: Programa desarrollado por la Dirección General de Adaptación Social, en un Centro Penitenciario de Mujeres, con el fin de permitir la permanencia de los hijos e hijas menores de tres años con sus madres
@@ -2129,12 +2155,18 @@ Establece, asimismo, la importante presunción de la existencia del contrato de 
 Costo de atención: Erogación mensual requerida para la atención integral de cada persona en un programa. La Junta de Protección Social toma como referencia el monto del costo de atención definido por el ente rector de cada área.
 Cuidados Paliativos: Es la atención integral a la persona con una enfermedad avanzada y progresiva, que ya no responde a un tratamiento curativo y donde de gran importancia la atención y control del dolor total, constituye un verdadero sistema de soporte para la persona enferma y su familia. Los cuidados paliativos no adelantan ni retrasan la muerte, consideran el morir como un proceso natural el objetivo es lograr la mejor calidad de vida posible para la persona enferma y su familia, intrínsicamente, conllevan los principios de los derechos humanos y los derechos humanos en salud, de manera que sirvan de guía para los establecimientos y las personas que prestan servicios en la atención de las personas que requieran de cuidados paliativos. (Norma del Ministerio de Salud)
 Derecho a la autonomía personal: derecho de todas las personas con discapacidad a construir su propio proyecto de vida, de manera independiente, controlando, afrontando, tomando y ejecutando sus propias decisiones en los ámbitos público y privado. Implica el respeto a los derechos humanos, así como los patrimoniales de todas las personas con discapacidad, por lo que se garantiza su derecho a ser propietarios, heredar bienes, controlar sus propios asuntos económicos, tener acceso a préstamos bancarios, hipotecarios y cualquier otra modalidad de crédito financiero, además de la garantía estatal de que no serán privados de sus bienes de manera arbitraria. Igualmente, la autonomía personal trae consigo el respeto a los derechos sexuales y reproductivos de las personas con discapacidad, como también del ejercicio de los derechos civiles y electorales, entre otros.
+Dependencia: que la persona tenga problemas para el desarrollo de las actividades de vida diaria como desplazarse, comer y beber, levantarse acostarse, permanecer de pie y aseo personal; que exista necesidad de apoyos de terceros para desarrollar estas actividades y, que estos requerimientos y necesidades sean permanentes o estén presenten durante un extenso período (OMS, 2004; CE, 2009; OCDE, 2012, Matus- López, 2019).
+Se entenderá la dependencia como una situación permanente o prolongada, en que vive una persona que ha perdido su autonomía física, mental, intelectual o sensorial, lo cual impide realizar por sí misma, al menos una de sus actividades básicas de la vida diaria sin apoyo de otra persona, de manera prolongada en el tiempo. (Política Nacional de Cuidados, 201-2031, pág. 33).
+(Así adicionada la definición anterior mediante sesión ordinaria N° 63-2022 del 8 de diciembre de 2022)
 Desintoxicación residencial manejo médico directo: programa que brinda atención a pacientes que presentan cuadros de intoxicación o de abstinencia, de moderada a grave intensidad, con gran riesgo de complicaciones, que deben ser atendidos por un equipo de profesionales de la salud siguiendo protocolos específicos de intervención, y por los que se requiere iniciar un proceso de inducción y motivación para posterior referencia a un programa que se ajuste a las necesidades del usuario. Cuenta con recursos hospitalarios y personal médico y de enfermería con presencia en el lugar durante las 24 horas. (IAFA)
 Discapacidad: concepto que evoluciona y resulta de la interacción entre las personas con discapacidad y las barreras debidas a la actitud y el entorno que evitan su participación plena y efectiva en la sociedad, en igualdad de condiciones con las demás personas. (Ley para Promoción de la Autonomía Personal de las Personas con Discapacidad).
 Enfermedad terminal: Es aquella enfermedad avanzada, progresiva y no curable con síntomas múltiples, multifactoriales, intensos y cambiantes, con impacto emocional en la persona, la familia o el entorno afectivo, y con pronóstico de vida limitado, por causa de cáncer, SIDA, enfermedades crónicas evolutivas incapacitantes, y otras enfermedades y condiciones crónicas relacionadas con la edad avanzada. X. Gómez-Batiste et al. Cuidados Paliativos en Oncología, Ed. JIMS, Barcelona, España, 1996
 Ente rector: Es la institución, que por competencia de ley o en virtud de disposición normativa, define planes, políticas, directrices, lineamientos y prioridades alrededor de un sector o área de acción.
 Entidad apta para recibir fondos públicos: organización legalmente constituida, sin fines de lucro que se encuentra avalada por el ente rector y al ser valorada por los diferentes actores institucionales, se determina que cumple con la normativa vigente, los criterios sociales y la estructura de control interno para manejar las posibles trasferencias de manera adecuada para el cumplimiento de sus fines.
 Entidades dedicadas a la capacitación, coordinación y dirección de asociaciones y fundaciones dedicadas a atender y proteger a las personas adultas mayores: son las entidades conformadas por organizaciones. Dentro de su gestión principal debe contemplar el fortalecimiento y la integración de sus afiliadas, así como el desarrollo de acciones tendientes a mejorar la calidad de vida de las personas adultas mayores que atienden. (Norma para la habilitación de servicios residenciales de atención integral a la persona adulta mayor)
+Equiparación de oportunidades: Proceso de ajuste del entorno, los servicios, las actividades, la información, la documentación, así como las actitudes a las necesidades de las personas, en particular de las discapacitadas. (Ley N° 7600, capítulo I, art. 2).
+Al ser de interés público la Junta de Protección Social como institución gubernamental procura apoyar dicha iniciativa mediante la implementación de proyectos propuestos por diversas organizaciones de bienestar social, concernientes con población adulta mayor y personas en condición de discapacidad.
+(Así adicionada la definición anterior mediante sesión ordinaria N° 63-2022 del 8 de diciembre de 2022)
 Equipo interdisciplinario de cuidados paliativos: Equipo formado fundamentalmente por profesionales de: medicina, trabajo social, enfermería, psicología, nutrición, farmacia, consejería espiritual con capacitación en cuidados paliativos y voluntarios/as, cuyo interés será satisfacer las necesidades del enfermo y su familia (Ministerio de Salud-CCSS).
 Equipo médico especializado: Es cualquier instrumento, dispositivo, equipo o articulo utilizado solo o en combinación, incluidos los programas informáticos que intervengan en su buen funcionamiento, destinado por el fabricante a ser utilizado en seres humanos con alguno de los siguientes fines, diagnóstico, prevención, control, tratamiento o alivio de una enfermedad. diagnóstico, control, tratamiento, alivio o compensación de una lesión o una deficiencia. Investigación. Siempre que el producto no ejerza su acción principal por medios farmacológicos, inmunológicos ni metabólicos aun cuando pueden contribuir a estos medios (Ministerio de Salud-CCSS).
 Establecimiento de Atención a los cuidados paliativos y manejo del dolor: Lugar donde se brindan servicios de atención integral total en cuidados paliativos, a la persona con enfermedad en fase terminal o condición de vida limitada y su familia, en modalidad ambulatoria o domiciliar, o ambas por un equipo interdisciplinario. Pueden depender directamente de una organización no gubernamental o tener relaciones de coordinación con grupos de apoyo de las comunidades como organizaciones no gubernamentales, se brinda capacitación a personas del campo de la salud y se realiza divulgación y educación a la comunidad, además pueden realizar labores de docencia e investigación en este campo. (Ministerio de Salud, Dirección Servicios Salud-Unidad Acreditación 2007). http://www.ministeriodesalud.go.cr/empresas/normativas/normacuidadospaliativos.pdf
@@ -2164,6 +2196,13 @@ Recursos económicos familiares muy limitados para atender las necesidades bási
 Personas Menores de edad en situación de Abandono: Niños, niñas y adolescentes menores de 18 años, que carecen de padre y madre responsables de su cuidado y manutención; sea huérfano de padre y madre y no se encuentre bajo tutela; se halle en riesgo social debido a la insatisfacción de sus necesidades básicas, materiales, morales, jurídicas y psico-afectivas, a causa de negligencia por parte de quienes ejercen legalmente los derechos y los deberes inherentes a la patria potestad.
 Plan de inversión: se refiere al objeto de atención al cual se destinarán los recursos. El destino de los recursos deberá ser congruente con los rubros autorizados en este Manual para cada modalidad de atención: Programa de Apoyo a la Gestión, Programa de Atención de Necesidades Específicas y Proyectos Específicos.
 Población privada de libertad: Se refiere a la población penal menor de edad femenina y masculina, que están en ejecución de una sanción, medida o sentencia definida por alguna autoridad judicial, bajo la atención, control y seguimiento de la Dirección General de Adaptación Social. Para ello la institución cuenta con: Programa Institucional, ProgramaSemi-institucional (.) y Población Penal Juvenil.
+Política Nacional de Cuidados: diseñada para brindar bienestar a personas adultas mayores, con discapacidad o con enfermedades crónicas que necesitan apoyos y cuidados para realizar sus actividades diarias.
+(https://www.imas.go.cr/es/general/politica-nacional-de-cuidados-2021-2031).
+Tiene por objetivo implementar progresivamente un sistema de atención a las personas en situación de dependencia, es decir, las personas que necesitan apoyos y cuidados para realizar sus actividades diarias.
+(https://www.imas.go.cr/es/general/politica-nacional-de-cuidados-2021-2031).
+(Así adicionada la definición anterior mediante sesión ordinaria N° 63-2022 del 8 de diciembre de 2022)
+Principio de igualdad de oportunidades y no discriminación: reconoce la importancia de las diversas necesidades del individuo, las cuales deben constituir la base de la planificación de la sociedad con el fin de asegurar el empleo de los recursos para garantizar que las personas disfruten de iguales oportunidades de acceso y participación en idénticas circunstancias. (Ley N° 7600, capítulo I, art. 2)
+(Así adicionada la definición anterior mediante sesión ordinaria N° 63-2022 del 8 de diciembre de 2022)
 Productos y servicios de apoyo: dispositivos, equipos, instrumentos, tecnologías, software y todas aquellas acciones y productos diseñados o disponibles en el mercado para propiciar la autonomía personal de las personas con discapacidad (Ley 9379 para la Promoción de la Autonomía Personal de las Personas con Discapacidad).
 Programa de Atención de Necesidades Específicas: Programa dirigido a apoyar con recursos adicionales, a las organizaciones que reciben recursos para Apoyo a la Gestión, de modo que puedan atender en forma ágil y oportuna la reposición y/o adquisición de mobiliario, equipo (incluye vehículo) y material didáctico, entre otros, así como obras de mantenimiento y mejoras de planta física.
 Programa de prevención: Aquellos ejecutados con el objetivo de promover acciones para la prevención y detección temprana del cáncer, prevención del alcoholismo, farmacodependencia, enfermedades de transmisión sexual y VIH-sida, explotación sexualcomercial, el abuso y el maltrato infantil. Departamento de Gestión Social
@@ -2183,6 +2222,8 @@ Servicios profesionales: Relación civil cuyo objeto es la prestación de un ser
 Esto implica básicamente que el profesional no será tratado como un empleado y asumirá las obligaciones que su condición le demanda, entre ellas: 1. Proporcionar una factura como comprobante de pago. 2. Cumplir con las obligaciones tributarias relacionadas con la prestación del servicio (declaraciones y pago de impuestos). 3. Cumplir con las obligaciones de seguridad social (registrarse como trabajador independiente ante la CCSS y pagar las cuotas que corresponden).
 En la relación por servicios profesionales, pueden darse todas o algunas de las siguientes características: 1. El servicio es normalmente prestado por profesionales liberales quienes se identifican como tales para efectos de captar clientela. 2. No existe exclusividad. El profesional está en posibilidad de prestar los mismos servicios a otros clientes y normalmente lo hace. 3. El profesional presta sus servicios asumiendo los costos de bienes de capital necesarios para prestar los servicios (herramientas, transporte, pago de servicios, teléfono, papelería, etc.). 4. El profesional normalmente tiene una oficina o lugar de operaciones no relacionada con el cliente, desde donde presta los servicios. Puede eventualmente ir a prestarlos donde sus clientes, pero normalmente tiene la capacidad hacerlo en un lugar que tiene acondicionado para estos fines.
 Si no encontramos estos elementos en la relación que se analiza seguramente estaremos en presencia de una relación laboral.
+Servicios de base domiciliaria: Los servicios de base domiciliaria son aquellos que permiten a las personas dependientes, continuar residiendo en sus hogares. Concretamente, están constituidos por la atención domiciliaria, los centros de día o noche y las distintas formas de cuidado telemático (teleasistencia o tele-cuidado). (Política Nacional de Cuidados, 2012031, pág. 46).
+(Así adicionada la definición anterior mediante sesión ordinaria N° 63-2022 del 8 de diciembre de 2022)
 Síndrome de inmunodeficiencia humana (sida): es una enfermedad causada por el VIH, el virus de la inmuno deficiencia humana. El VIH destruye la capacidad del organismo para combatir la infección y la enfermedad, lo que al final puede llevar a la muerte." (Ministerio de Salud-CCSS).
 Suspensión: Conducta administrativa mediante el cual, previo procedimiento administrativo, y acuerdo de Junta Directiva, se suspende el giro de los recursos a las organizaciones cuando incurren en alguna de las causales señaladas por el artículo 12 de la Ley No. 8718 y el presente Manual. Los recursos que se suspenden a una organización se redistribuirán entre el resto de las organizaciones que conformen el área de que se trate Talleres protegidos, laborales, ocupacionales y sociales a cargo de una organización no gubernamental, con carácter de bienestar social y sin fines de lucro: Centros para personas mayores de 18 años, de formación laboral, de terapia ocupacional, o en los que se ejecuten otros apoyos y actividades que garantizan el ejercicio de los derechos y las potencialidades de personas con discapacidad, como podrían ser: recreación, música, equinoterapia, tecnologías en información y comunicación, y otros, a cargo de una organización social no gubernamental, sin fines de lucro.
 Trabajo itinerante: Programa estructurado que llevan a cabo los profesionales del centro educativo de educación especial, en apoyo a la familia del estudiante, ya sea a domicilio o bien en el centro educativo.
