@@ -14,3 +14,4 @@ Actualización del impuesto solidario para el fortalecimiento de programas de vi
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-01-01 | la propia norma |
+| 2 | 2022-12-08 | Decreto Ejecutivo 43851 (2022-12-08) |
