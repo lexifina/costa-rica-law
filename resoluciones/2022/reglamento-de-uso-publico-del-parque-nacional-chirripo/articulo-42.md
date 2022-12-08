@@ -1,0 +1,1 @@
+Artículo 42º-- Los vehículos particulares de los usuarios que lleguen al puesto operativo de San Gerardo de Rivas deberán ser estacionados en posición de salida en el sitio indicado por la Administración y deberán apagar el motor mientras estén estacionados.

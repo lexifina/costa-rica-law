@@ -1,0 +1,1 @@
+Artículo 12º-- Las tarifas correspondientes a los servicios no esenciales que se brinden en el PNCh serán definidas y reguladas de acuerdo con lo establecido en el contrato de concesión de servicios no esenciales, y que deberán ser definidas mediante los estudios de costos elaborados para este fin, en común acuerdo entre los grupos organizados permisionarios y el SINAC-PNCh.

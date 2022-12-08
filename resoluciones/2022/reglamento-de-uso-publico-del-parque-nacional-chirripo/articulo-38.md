@@ -1,0 +1,1 @@
+Artículo 38º-- Recreación, educación ambiental, investigación, grabación, filmación y fotografía. Estas actividades están reguladas por los correspondientes reglamentos, tarifas y decretos establecidos por el SINAC.

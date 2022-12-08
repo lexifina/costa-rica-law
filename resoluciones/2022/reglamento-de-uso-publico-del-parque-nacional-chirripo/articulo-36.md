@@ -1,0 +1,1 @@
+Artículo 36º-- Toda actividad que involucre el uso consuetudinario indígena por parte de las personas legalmente reconocidas como indígenas dentro de las áreas de traslape en Sitio Hilda sin resolución legal al 2022. Estas limitaciones se revisarán una vez resuelto el traslape y consolidado el PNE.

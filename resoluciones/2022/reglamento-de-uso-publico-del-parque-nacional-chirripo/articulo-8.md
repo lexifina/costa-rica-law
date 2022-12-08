@@ -1,0 +1,1 @@
+Artículo 8º-- El procedimiento y los períodos de reservaciones para el ingreso, el horario de atención al público y visitantes, el número máximo de visitantes que pueden ingresar de forma simultánea al ASP, la estadía máxima y el proceso de reservaciones del PNCh serán actualizadas y establecidas mediante resolución administrativa emitida por la Dirección Regional de ACLA´P.

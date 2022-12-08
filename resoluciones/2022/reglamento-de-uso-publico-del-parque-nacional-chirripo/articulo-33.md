@@ -1,0 +1,1 @@
+Artículo 33º-- La filmación dentro del PNCh estará regulada por los correspondientes reglamentos y decretos tarifarios, se deberán acatar las disposiciones que la Administración del ASP y la Dirección del ACLA-P considere pertinente.

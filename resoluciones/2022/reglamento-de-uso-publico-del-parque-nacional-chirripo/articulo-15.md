@@ -1,0 +1,1 @@
+Artículo 15º--El ingreso de todos los visitantes del PNCh se podrá realizar únicamente caminando. A través de los Permisos de Uso, CSANE u otros mecanismos administrativos, el visitante podrá acceder al servicio de porteo o traslado del equipaje producto de la visita al Área Protegida.

@@ -1,0 +1,1 @@
+Artículo 39º-- Caminatas en senderos: las caminatas se podrán realizar en los senderos habilitados para tal fin, siguiendo las indicaciones que en los mismos se establezcan, o con el acompañamiento de personas debidamente identificadas y acreditadas por el PNCh y los grupos comunales de la Zona de Amortiguamiento que tienen suscritos Permisos de Uso.

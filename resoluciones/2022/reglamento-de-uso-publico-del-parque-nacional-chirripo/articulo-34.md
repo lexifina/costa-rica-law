@@ -1,0 +1,1 @@
+Artículo 34º-- Cualquier construcción en PNE se hará con justificación técnica y valoración de impacto ambiental según corresponda y coordinando con la Oficina de Infraestructura del SINAC, acorde con la zonificación. La infraestructura será aquella que mejore la seguridad y experiencia de las personas, ya sean, senderos, miradores, zonas de acampar, albergues, puentes u otros.

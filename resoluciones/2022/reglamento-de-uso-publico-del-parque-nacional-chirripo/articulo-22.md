@@ -1,0 +1,1 @@
+Artículo 22º-- Cada visitante del Parque Nacional Chirripó deberá portar durante su permanencia en el ASP, el tiquete que acredite su derecho de permanencia en este Parque Nacional, o bien los dispositivos alternos que la administración defina para el control de visitantes, lo cual podrá ser solicitado en cualquier momento por funcionarios y colaboradores del PNCh.

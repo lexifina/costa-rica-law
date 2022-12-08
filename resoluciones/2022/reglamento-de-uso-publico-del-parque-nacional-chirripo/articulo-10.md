@@ -1,0 +1,1 @@
+Artículo 10º-- Las tarifas por concepto de admisión, acampar, hospedaje y otros servicios como la filmación serán las establecidas para el PNCh en el Decreto Nº 38295-MINAE "Tarifas por derechos de ingreso y otros servicios ofrecidos en las ASP bajo la administración del SINAC" o el que se encuentre vigente.

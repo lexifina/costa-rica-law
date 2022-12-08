@@ -1,0 +1,1 @@
+Artículo 6º-- Mediante el uso público y actividades de educación ambiental, se promoverá el conocimiento, la conservación y la valoración de los Elementos Focales de Manejo (EFM) del PNCh que incluyen bosques premontanos; robledales o bosques montanos; humedales de altura, ríos, aves, grandes mamíferos de Talamanca y el páramo.

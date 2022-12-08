@@ -1,0 +1,1 @@
+Artículo 7º-- Las personas que deseen ingresar al PNCh y permanecer dentro del ASP, únicamente podrán hacerlo cumpliendo con todos los procedimientos, disposiciones y requisitos establecidos en el sistema de reservaciones, que para tal efecto han definido las autoridades competentes.

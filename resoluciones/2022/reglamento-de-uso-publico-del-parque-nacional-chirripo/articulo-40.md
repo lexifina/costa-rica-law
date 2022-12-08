@@ -1,0 +1,1 @@
+Artículo 40º-- El número máximo de personas que permanecerá un tiempo en cada sendero o zona apta para recibir visitantes, está estipulado en este RUP o bien será estipulado en cada permiso de uso según estudios técnicos previos.

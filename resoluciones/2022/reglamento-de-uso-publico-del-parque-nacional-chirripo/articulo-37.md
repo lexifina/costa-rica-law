@@ -1,0 +1,1 @@
+Artículo 37º-- El aprovechamiento de agua para consumo humano y construcción de obras conexas en el Patrimonio Natural del Estado, acorde con la Ley N.º 9590, Ley para autorizar el aprovechamiento de agua para consumo humano y construcción de obras conexas en el PNE (expediente 20.447), así como el Pronunciamiento de la PGR C-103-2018 del 18 de mayo del 2018.
