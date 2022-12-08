@@ -1,2 +1,2 @@
-Anexo 2. Manual de Teletrabajo del Poder Judicial
+Anexo 2. Manual de Condiciones laborales para Personal en Teletrabajo.
 [imagen]

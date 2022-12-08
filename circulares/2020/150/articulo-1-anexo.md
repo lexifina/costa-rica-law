@@ -1,2 +1,2 @@
-Anexo 1. Guía para la implementación de medidas administrativas para el cumplimiento del distanciamiento social.
+Anexo 1. Manual de Teletrabajo del Poder Judicial.
 [imagen]

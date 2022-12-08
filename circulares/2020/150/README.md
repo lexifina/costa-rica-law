@@ -13,3 +13,4 @@ Protocolo de condiciones de trabajo por COVID-19
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-07-13 | la propia norma |
+| 2 | 2022-12-08 | Circular 227 (2022-12-08) |
