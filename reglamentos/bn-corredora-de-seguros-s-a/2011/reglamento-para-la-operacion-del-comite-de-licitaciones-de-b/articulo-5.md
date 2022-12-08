@@ -1,2 +1,0 @@
-Artículo 5º—Funciones del Jefe de la Unidad Administrativa financiera.
-a. Adjudicar cualquier tipo de procedimiento por excepción cuyo acto de adjudicación sea menor al tope establecido de escasa cuantía, según los límites generales de contratación fijados por la Contraloría General de la República. Para el cálculo de dicha estimación se seguirán las reglas previstas en el artículo 31 de la Ley de Contratación Administrativa; y cuando el acto de adjudicación sea menor al tope establecido de escasa cuantía.
