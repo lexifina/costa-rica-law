@@ -14,3 +14,4 @@ Protocolo para la Gestión Institucional de Equipos de Protección Personal por 
 | --- | --- | --- |
 | 1 | 2020-09-09 | la propia norma |
 | 2 | 2020-09-23 | Circular 205 (2020-09-23) |
+| 3 | 2022-12-08 | Circular 227 (2022-12-08) |

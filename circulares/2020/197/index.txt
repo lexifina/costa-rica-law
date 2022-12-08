@@ -9,4 +9,3 @@ articulo-7-anexo.md
 articulo-8-anexo.md
 articulo-9-anexo.md
 articulo-10-anexo.md
-articulo-11-anexo.md
