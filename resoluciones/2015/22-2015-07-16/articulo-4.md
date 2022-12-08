@@ -1,1 +1,0 @@
-Artículo 4º—Los contribuyentes del impuesto general sobre las ventas que adquieran las bombillas de incandescencia y fluorescentes tienen derecho al crédito fiscal únicamente cuando esos bienes sean utilizados en la fabricación, comercialización y distribución de artículos gravados y exentos o se incorporen en la prestación de servicios gravados.

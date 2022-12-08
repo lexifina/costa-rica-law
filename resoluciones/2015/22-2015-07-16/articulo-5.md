@@ -1,1 +1,0 @@
-Artículo 5º—Para cuantificar el crédito fiscal, los contribuyentes mencionados en el artículo anterior, en el caso de que no se detalle el impuesto sobre ventas en la factura de compra, deben multiplicar el total del precio de venta por el factor 0.11504.
