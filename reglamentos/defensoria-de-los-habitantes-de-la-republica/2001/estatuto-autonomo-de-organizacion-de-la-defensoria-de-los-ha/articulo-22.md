@@ -16,4 +16,6 @@ l) Ejecutar los acuerdos interinstitucionales e internacionales y los programas 
 i) Realizar todas aquellas otras funciones que le indique el Defensor (a) de los Habitantes o que se desarrolle en la normativa interna de la institución.
 j) Coordinar la Cátedra Nacional de Derechos Humanos, bajo la guía y dirección del Despacho del Defensor o Defensora de los Habitantes.
 (Así adicionado el inciso anterior mediante acuerdo N° 2491 del 19 de agosto del 2022)
+K) Coordinar y gestionar lo referente al funcionamiento, aplicabilidad y desarrollo de la Red Interinstitucional de Transparencia de la Defensoría de los Habitantes de la República
+(Así adicionado el inciso anterior mediante acuerdo N° 2541 del 9 de diciembre de 2022)
 (Así reformado mediante acuerdo N° 2266 del 19 de diciembre del 2019)
