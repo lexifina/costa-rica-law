@@ -14,3 +14,4 @@ Reglamento para la administración, prestación y utilización de servicios de t
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-12-07 | la propia norma |
+| 2 | 2022-12-09 | Reglamento 0 (2022-12-09) |
