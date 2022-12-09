@@ -1,2 +1,3 @@
-Artículo 22. Del subauditor interno
-Al Subauditor Interno le corresponderá apoyar al auditor interno en el descargo de sus funciones y lo sustituirá, con todas sus competencias, en sus ausencias temporales. El auditor interno asignará las funciones al subauditor interno y éste deberá responder ante él por su gestión.
+Artículo 22.-De la persona subauditora interna. A la persona que ostente la titularidad del puesto de Subauditor (a) Interno (a), le corresponderá apoyar a la Dirección de la Auditoría Interna en el descargo de sus funciones. La Dirección de la Auditoría Interna asignará las funciones a la persona que ocupe el puesto de Subauditor (a) Interno (a) y esta deberá responder ante la Dirección por su gestión.
+Así modificado por el Consejo Institucional en la Sesión Ordinaria N° 3292, Artículo 16, del 09 de diciembre de 2022 y aprobado por la Contraloría General de República mediante oficio 23221 (DFOE-CAP-3885), del 23 de diciembre de 2022.
+(Así reformado en sesión N° 3292 del 9 de diciembre de 2022)

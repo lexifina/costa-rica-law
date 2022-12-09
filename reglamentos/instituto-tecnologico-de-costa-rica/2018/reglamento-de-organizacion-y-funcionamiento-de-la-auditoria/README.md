@@ -14,3 +14,4 @@ Reglamento de organización y funcionamiento de la auditoría interna del Instit
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-12-06 | la propia norma |
+| 2 | 2022-12-09 | Reglamento 3292 (2022-12-09) |
