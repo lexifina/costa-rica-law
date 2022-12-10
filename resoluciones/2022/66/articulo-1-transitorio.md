@@ -1,0 +1,2 @@
+Transitorio. Los titulares del registro sanitario de productos que actualmente hayan presentado solicitudes de registro nuevo podrán requerir a la Dirección de Medicamentos Veterinarios que su solicitud sea tramitada conforme a lo dispuesto en la presente resolución, siempre y cuando se cumpla con los requerimientos que en esta se establecen.
+No aplica en los casos en los que la Dirección de Medicamentos Veterinarios hubiere prevenido el incumplimiento de alguno de los requisitos establecidos en el RTCA de Medicamentos Veterinarios.
