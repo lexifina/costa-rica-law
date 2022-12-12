@@ -14,3 +14,4 @@ Reglamento de financiamiento del Instituto de Fomento y Asesoría Municipal (IFA
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-10-08 | la propia norma |
+| 2 | 2022-12-12 | Reglamento 27 (2022-12-12) |
