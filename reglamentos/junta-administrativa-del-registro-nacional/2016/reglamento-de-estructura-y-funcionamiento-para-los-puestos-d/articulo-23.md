@@ -1,0 +1,3 @@
+Artículo 23.-Sobre el reconocimiento de las actividades de capacitación. Para los efectos del reconocimiento de certificados de capacitación para carrera administrativa de las personas funcionarias del Régimen de la Actividad Informática del Registro Nacional, aplicarán las disposiciones que la Administración definan para las demás personas funcionarias de la Institución.
+Para todos los casos ante la ausencia de normativa específica se utilizará de forma supletoria lo establecido por el ente rector en materia de empleo público (MIDEPLAN - Dirección General del Servicio Civil).
+(Así adicionado en sesión N° 35 del 12 de diciembre de 2022)

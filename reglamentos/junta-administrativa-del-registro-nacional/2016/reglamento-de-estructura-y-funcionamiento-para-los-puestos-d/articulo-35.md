@@ -1,0 +1,5 @@
+Artículo 35.-Los traslados, reubicaciones y recargos de funciones se regirán de acuerdo con lo que se indica a continuación:
+a. Los traslados y reubicaciones podrán ser acordados unilateralmente por la instancia competente o por la Dirección General, siempre que no se cause grave perjuicio a la persona funcionaria.
+b. Los recargos de funciones de puestos de mayor categoría, que excedan de un mes, podrán ser remunerados, pero estarán sujetos a la aprobación de la Dirección General, previa verificación por parte del Departamento de Recursos Humanos de que la persona funcionaria a quien se hiciere el recargo, reúne los requisitos establecidos.
+Finalmente, cuando el servicio público lo exija, podrán asignarse a una persona funcionaria labores correspondientes a otro puesto, distinto al suyo, sin que ello signifique ascenso, descenso ni aumento de sueldo, por un plazo que no deberá exceder de sesenta días -consecutivos o no- durante un año.
+(Así adicionado en sesión N° 35 del 12 de diciembre de 2022)

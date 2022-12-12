@@ -14,3 +14,4 @@ Reglamento de estructura y funcionamiento para los puestos del Régimen de la Ac
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-02-27 | la propia norma |
+| 2 | 2022-12-12 | Reglamento 35 (2022-12-12) |

@@ -1,0 +1,2 @@
+Artículo 21.-Sobre el otorgamiento de Becas. La participación para el otorgamiento de becas de las personas funcionarias del Régimen de la Actividad Informática del Registro Nacional se regirá por lo dispuesto en la Ley de Licencias de Adiestramiento de Servicios Públicos, Ley N°1810, sus reformas y su reglamento, así como en el Estatuto de Servicio Civil, su reglamento y el RASRN.
+(Así adicionado en sesión N° 35 del 12 de diciembre de 2022)

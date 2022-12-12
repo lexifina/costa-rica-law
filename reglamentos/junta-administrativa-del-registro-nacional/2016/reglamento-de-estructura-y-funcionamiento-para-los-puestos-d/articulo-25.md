@@ -1,0 +1,2 @@
+Artículo 25.-A la Junta le corresponderá aprobar la realización de los procesos concursales internos o externos y el Departamento de Recursos Humanos definirá los lineamientos correspondientes al procedimiento del respectivo concurso, su publicación, trámite, requisitos, pruebas, verificación de datos, atestados y otros aspectos a considerar en las bases de selección para el proceso de calificación, presentando a la Junta un informe final con el resultado del proceso realizado para su aprobación.
+(Así adicionado en sesión N° 35 del 12 de diciembre de 2022)

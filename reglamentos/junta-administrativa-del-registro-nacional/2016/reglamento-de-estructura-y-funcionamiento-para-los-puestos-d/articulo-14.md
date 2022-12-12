@@ -1,5 +1,5 @@
-CAPÍTULO II
-De los derechos y obligaciones
-Título Único
-De los derechos y obligaciones de los colaboradores
-Artículo 14º—: Son derechos y obligaciones de los trabajadores del Régimen de la Actividad Informática, los contenidos dentro del Código de Trabajo, la Ley General de la Administración Pública, la Ley General de Control Interno, la Ley contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública, el Reglamento Autónomo de Servicios del Registro Nacional, la Negociación Colectiva de los Trabajadores del Registro Nacional, la Ley contra el Hostigamiento Sexual en el Empleo y la Docencia, el Reglamento para Prevenir, Investigar y Sancionar el Hostigamiento Sexual en el Registro Nacional y demás normas conexas.
+TITULO IV
+De la Gestión de Asistencia y Vacaciones
+(Así adicionado el título anterior en sesión N° 35 del 12 de diciembre de 2022)
+Artículo 14.-Del registro de asistencia. La asistencia al trabajo debe ser registrada personalmente por la persona funcionaria al iniciar y finalizar la jornada laboral, por los medios dispuestos para tal fin. Se podrá otorgar y eliminar el beneficio de no registrar asistencia conforme lo dispuesto por el RASRN.
+(Así adicionado en sesión N° 35 del 12 de diciembre de 2022)

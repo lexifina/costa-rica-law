@@ -1,0 +1,2 @@
+Artículo 22.-Sobre el otorgamiento de Licencias para Estudio. Las solicitudes de licencias de estudio con o sin goce de salarios que hicieran las personas funcionarias del Régimen de la Actividad Informática del Registro Nacional, deberán ser tramitadas de conformidad con el ordenamiento jurídico vigente aplicable a las demás personas funcionarias del Registro Nacional, atendiendo los procedimientos institucionales.
+(Así adicionado en sesión N° 35 del 12 de diciembre de 2022)

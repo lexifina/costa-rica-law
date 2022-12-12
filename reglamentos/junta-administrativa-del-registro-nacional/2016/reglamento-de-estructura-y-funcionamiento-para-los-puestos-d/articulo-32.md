@@ -1,0 +1,2 @@
+Artículo 32.-Serán autorizadas por la Dirección General las propuestas de nombramientos interinos, cuando exista la necesidad de llenar una vacante temporalmente, de manera que no se afecte la continuidad del servicio que presta la Dirección de Informática, previa presentación de documento emitido por el Director, donde se motive la necesidad de contar con el recurso de forma inmediata, no siendo posible esperar a la realización de un concurso interno, externo o la promoción mediante carrera administrativa.
+(Así adicionado en sesión N° 35 del 12 de diciembre de 2022)
