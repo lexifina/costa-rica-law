@@ -7,3 +7,14 @@ i) Las contrataciones que realicen las empresas públicas no financieras naciona
 ii) Las contrataciones que realicen las empresas públicas no financieras nacionales, empresas públicas no financieras municipales, las instituciones públicas financieras bancarias y las instituciones públicas financieras no bancarias, enlistadas en el clasificador institucional del sector público, que emite el Ministerio de Hacienda, realizarán el procedimiento de licitación mayor en las contrataciones de obra pública cuya estimación sea superior a mil veintiséis millones ciento noventa y cinco mil quinientos veinte colones (¢ 1 026 195 520), licitación menor en las contrataciones de obra pública cuya estimación sea igual o inferior a mil veintiséis millones ciento noventa y cinco mil quinientos veinte colones (¢ 1 026 195 520) pero mayor a doscientos cincuenta y seis millones quinientos cuarenta y ocho mil ochocientos ochenta colones (¢ 256 548 880) y licitación reducida en aquellos casos cuya estimación sea igual o menor a doscientos cincuenta y seis millones quinientos cuarenta y ocho mil ochocientos ochenta colones (¢ 256 548 880).
 El monto de los umbrales será actualizado por la Contraloría General de la República, en la segunda quincena del mes de diciembre, utilizando el monto de las unidades de desarrollo establecido por el Banco Central de Costa Rica para el 15 de diciembre de cada año y regirán del 1 º de enero al 31 de diciembre del año siguiente a su publicación.
 Ante situaciones extraordinarias en las condiciones macroeconómicas del país o en el comportamiento de las compras públicas, la Contraloría General de la República podrá modificar, mediante resolución motivada, los umbrales establecidos en este artículo.
+(Nota de Sinalevi: Mediante resolución N° 00132 del 12 de diciembre de 2022, se acordó actualizar los umbrales de los procedimientos de contratación del presente artículo de conformidad con lo que se indica en la siguiente table:
+Umbrales año 2023 (montos en colones)
+Régimen | Tipo de contratación | Licitación Mayor | Licitación Menor | Licitación reducida
+| | Igual a o más de | Menos de | Igual a o más de | Menos de
+Ordinario | Bienes y Servicios | 264.519.083 | 264.519.083 | 66.129.771 | 66.129.771
+Obras | | | |
+712.166.540 | 712.166.540 | 178.041.690 | 178.041.690
+Diferenciado | Bienes y Servicios | 317.422.900 | 317.422.900 | 79.355.725 | 79.355.725
+Obras | | | |
+1.139.466.819 | 1.139.466.819 | 284.866.705 | 284.866.705
+De conformidad con lo anterior, y de acuerdo con el artículo 1° de la Ley General de Contratación Pública, los sujetos privados aplicarán la Ley General cuando la contratación supere el monto de ¢33.064.885,37 para bienes y servicios; y ¢89.020.845,22 para obras. En los casos en que los sujetos privados no apliquen esta ley deberán respetar el régimen de prohibiciones, los principios constitucionales y legales de la contratación pública, y lo dispuesto en el artículo 128, inciso d) de esta ley.)
