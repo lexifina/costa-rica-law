@@ -1,0 +1,1 @@
+Artículo 10.-La liquidación de gastos de alimentación, hospedaje y transporte, por concepto de ejecución de funciones propias del cargo de regidor o síndico, fuera del cantón, deberá hacerse dentro de los ocho días hábiles después de efectuada la erogación, aportando los comprobantes respectivos.

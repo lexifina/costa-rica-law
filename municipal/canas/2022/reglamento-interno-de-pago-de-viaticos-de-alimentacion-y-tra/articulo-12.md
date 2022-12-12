@@ -1,0 +1,1 @@
+Artículo 12.-La solicitud del pago de viáticos referidos en este Reglamento que se presenten después de los ocho días hábiles, se considerará extemporánea, no se le dará trámite alguno, con las consecuencias pecuniarias que conlleva, salvó causa mayor.
