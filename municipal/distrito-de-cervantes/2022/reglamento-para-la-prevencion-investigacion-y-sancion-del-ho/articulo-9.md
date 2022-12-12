@@ -1,0 +1,1 @@
+Artículo 9°-Garantías para personas en condición de discapacidad. En caso de que una de las partes tenga una condición de discapacidad, se tomarán las medidas necesarias para garantizar el cumplimiento de sus derechos.

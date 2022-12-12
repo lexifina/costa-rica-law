@@ -1,0 +1,4 @@
+Artículo 23.-Disposiciones supletorias. En todo aquello no previsto en este Reglamento sobre acoso u hostigamiento sexual, rige la Ley 7476 de 03 de febrero de 1995, Ley contra el hostigamiento sexual en el empleo y la docencia, y la Ley General de la Administración Pública.
+Artículo 19.-Vigencia: El presente cuerpo normativo regirá a partir de su publicación en el Diario Oficial La Gaceta dejando sin valor y efecto jurídico cualquier otra disposición reglamentaria municipal que se le oponga.
+Cervantes, 24 de noviembre del 2022.
+(Nota de Sinalevi: En la publicación de este reglamento municipal, se publicó el numeral 19 después del artículo 23. No obstante ya existe un artículo 19 con contenido diferente, por lo que este segundo artículo 19 se dejó dentro del numeral 23, tal y como fue publicado en el Diario Oficial La Gaceta.)
