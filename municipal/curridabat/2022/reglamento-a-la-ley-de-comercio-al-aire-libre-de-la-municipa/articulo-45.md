@@ -1,0 +1,1 @@
+Artículo 45.-Procedimiento. Para la revocación de autorización de uso de espacio público, descrita en el inciso b) del artículo anterior, se aplicará lo dispuesto en el Libro Segundo de la Ley General de la Administración Pública del procedimiento sumario, en cuanto a lo no regulado por el Código Municipal.

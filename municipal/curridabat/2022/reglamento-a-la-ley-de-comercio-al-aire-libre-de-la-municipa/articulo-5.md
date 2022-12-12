@@ -1,0 +1,2 @@
+Artículo 5º-Tipo de actividad comercial sobre la cuales se otorgará la autorización. La autorización para el desarrollo temporal de la actividad comercial en espacio público será otorgada únicamente para la actividad de comercialización de alimentos y bebidas, cuyos establecimientos comerciales que se encuentren en propiedad privada.
+No se podrá emitir la autorización de comercio al aire libre para patentes ambulantes o estacionarias.

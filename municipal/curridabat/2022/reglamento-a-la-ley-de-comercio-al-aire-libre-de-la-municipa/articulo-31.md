@@ -1,0 +1,1 @@
+Artículo 31.-El monto a cobrar por concepto del derecho de uso de espacios públicos no podrá superar el cincuenta por ciento (50%) del monto devengado por el establecimiento comercial por concepto de la Licencia Comercial para el desarrollo de la actividad comercial.

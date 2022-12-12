@@ -1,0 +1,2 @@
+Artículo 29.-El incumplimiento a las prohibiciones señaladas en el artículo anterior conllevará la pérdida de la autorización, previo cumplimiento del debido proceso administrativo, siendo responsable el patentado por cualquier daño ocasionado al espacio público.
+En caso de comprobarse por medio del proceso administrativo el incumplimiento, el infractor no podrá solicitar un nuevo permiso en el plazo de dos años.

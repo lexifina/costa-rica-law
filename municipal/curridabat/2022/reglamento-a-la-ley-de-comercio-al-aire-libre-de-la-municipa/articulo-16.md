@@ -1,0 +1,1 @@
+Artículo 16.-El Departamento de Patentes podrá contar con el criterio técnico del Departamento de Parques y Ornato, para los casos en los que la autorización implique el uso de un área de parque, facilidad comunal u otro similar, a efectos de que la autorización no desnaturalice la función del espacio público.

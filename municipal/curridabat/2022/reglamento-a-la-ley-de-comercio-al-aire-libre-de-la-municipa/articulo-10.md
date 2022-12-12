@@ -1,0 +1,7 @@
+SECCIÓN II
+Sobre las especificaciones de la autorización
+Artículo 10.-Lineamientos de utilización del espacio
+La utilización del espacio público definidos en la Ley 10126 no podrán contravenir el derecho de libre tránsito, el acceso y la movilidad de peatones, el cumplimiento de la Ley de Igualdad de Oportunidades para las Personas con Discapacidad N° 7600 y la Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial N° 9078.
+Igualmente deberá utilizarse por parte del patentado autorizado, el mobiliario adecuado al desarrollo de la actividad comercial de forma lógica y conforme a su naturaleza, que no lleve a la contaminación visual y sonora al entorno en que se desarrolla la misma.
+Esta autorización solamente permitirá la colocación de mesas, sillas y otro mobiliario liviano de apoyo a la actividad.
+Todo mobiliario deberá ser retirado diariamente al finalizar la actividad comercial.

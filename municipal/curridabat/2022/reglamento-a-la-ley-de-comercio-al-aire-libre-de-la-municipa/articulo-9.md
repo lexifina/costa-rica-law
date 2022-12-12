@@ -1,0 +1,1 @@
+Artículo 9º-Denegatoria de la autorización. La autorización para ejercer el comercio al aire libre sólo podrá ser denegada, cuando la actividad es contraria a la normativa que resulte aplicable al caso, la moral o las buenas costumbres.

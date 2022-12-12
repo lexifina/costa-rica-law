@@ -1,0 +1,1 @@
+Artículo 15.-El Departamento de Patentes podrá contar con los inspectores de la Dirección de Gestión Vial para los casos en los que se requiere de su criterio técnico en el caso de calles, vía pública y aceras.

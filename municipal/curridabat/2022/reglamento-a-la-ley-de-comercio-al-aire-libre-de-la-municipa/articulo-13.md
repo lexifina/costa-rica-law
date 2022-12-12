@@ -1,0 +1,2 @@
+Artículo 13.-Horarios de operación. Las actividades comerciales que se autoricen para ser desarrolladas en espacio público podrán operar dentro del horario de apertura y cierre actual del local no pudiendo exceder las veintidós horas.
+En caso de que el local comercial cuente con habilitación de licencia de licores, se deben respetar los horarios de venta establecidos en la Ley de regulación y comercialización de bebidas con contenido alcohólico N° 9047 que corresponda.

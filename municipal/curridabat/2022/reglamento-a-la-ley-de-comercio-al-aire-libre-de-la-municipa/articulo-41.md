@@ -1,0 +1,1 @@
+Artículo 41.-Cuando un establecimiento se encuentre explotando una actividad lucrativa sin la autorización respectiva en un espacio público, será objeto de cierre inmediato notificándole en el mismo momento el acto de cierre, toda vez que la actividad se estaría ejerciendo al margen de la ley.

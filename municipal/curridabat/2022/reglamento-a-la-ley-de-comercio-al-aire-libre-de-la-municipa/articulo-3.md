@@ -1,0 +1,11 @@
+Artículo 3º-Ámbito de aplicación. Las disposiciones de este reglamento serán de aplicación y acatamiento obligatorio para todas los patentados que cuenten con una licencia comercial previamente aprobada y que pretendan ejercer de forma temporal la actividad en espacios públicos.
+Igualmente aplicará para personas físicas o jurídicas que gestionen la obtención de una licencia comercial por primera vez y que realicen la solicitud expresamente al momento de gestionar la solicitud respectiva.
+CAPÍTULO II
+SECCIÓN I
+Sobre la autorización en general
+Artículo 3º-Sobre el alcance de la autorización. La autorización para el desarrollo temporal de la actividad comercial en espacio público implica que el patentado por medio de la resolución de autorización podrá ejercer la actividad para la cual ya cuenta con la licencia comercial respectiva, en un espacio público que podrá ser aceras, parques, plazas, vía pública, calles u otros lugares públicos.
+Dichos espacios públicos deberán estar adyacentes a los respectivos establecimientos comerciales, entendiendo que se refiere exclusivamente a los sitios que se ubican a un costado o al frente del local comercial.
+En el caso de autorizarse el uso de la acera, además de asegurar el espacio mínimo requerido para el tránsito de peatones, solo podrá ser otorgado el permiso para la utilización del espacio que comprende el frente comercial inmediatamente adyacente al respectivo establecimiento comercial.
+Con la autorización deberá asegurarse que la utilización del espacio público no contraviene el derecho de libre tránsito, el acceso y la movilidad de peatones, el cumplimiento de la Ley de Igualdad de Oportunidades para las Personas con Discapacidad N° 7600, la Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial N° 9078.
+Igualmente, el desarrollo de la actividad comercial no podrá implicar la contaminación visual y sonora al entorno en que se desarrolla la actividad comercial, afectando el espacio público. Esta autorización solamente permitirá la colocación de mesas, sillas y otro mobiliario liviano de apoyo a la actividad, el que deberá ser retirado diariamente al finalizar la actividad comercial.
+(Nota de Sinalevi: En la publicación de este reglamento aparece 2 veces el artículo N° 3)

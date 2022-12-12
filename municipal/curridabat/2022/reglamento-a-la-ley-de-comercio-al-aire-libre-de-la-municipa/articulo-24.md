@@ -1,0 +1,4 @@
+SECCIÓN III
+Sobre la resolución de autorización
+Artículo 24.-Resolución de autorización. Una vez verificado el cumplimiento de los requisitos y condiciones, por medio de una resolución emitida por el Departamento de Patentes, se otorgará la autorización para el desarrollo temporal de la actividad comercial al aire libre en los términos establecidos en la Ley y este Reglamento.
+La sola notificación no habilita el inmediato ejercicio de la actividad comercial en el espacio público al aire libre, siendo necesario que previamente se cancele el monto que de conformidad con el presente reglamento corresponde pagar por parte del patentado.

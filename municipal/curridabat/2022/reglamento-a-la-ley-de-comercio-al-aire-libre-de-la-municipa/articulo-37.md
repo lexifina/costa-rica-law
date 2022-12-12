@@ -1,0 +1,1 @@
+Artículo 37.-Los inspectores comunitarios prestaran la colaboración en la inspección cuando se utilizan las aceras, parques, plazas, vía pública, calles u otros lugares adyacentes a los respectivos establecimientos comerciales.

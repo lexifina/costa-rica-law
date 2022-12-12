@@ -1,0 +1,2 @@
+Artículo 6º-Pago del derecho. El ejercicio de comercio al aire libre generará la obligación del patentado de pagar anticipadamente a la Municipalidad dicho derecho, siendo que el hecho generador lo constituye el otorgamiento de la autorización respectiva.
+El monto por cobrar por parte de la Municipalidad se definirá reglamentariamente, y no podrá superar el cincuenta por ciento (50%) del monto devengado por el establecimiento comercial por concepto de la patente comercial para el desarrollo de la actividad comercial ya otorgada.

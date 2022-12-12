@@ -1,0 +1,2 @@
+Artículo 23.-Plazos de resolución. De conformidad con la Ley de Protección al ciudadano del exceso de requisitos y trámites administrativos N° 8220, toda solicitud deberá resolverse en el término máximo de diez días hábiles contados a partir del día siguiente de su presentación.
+No se computará como parte de dicho plazo, las subsanaciones que sean debidamente notificadas al peticionario por defectos u omisiones de su solicitud, siendo que el plazo iniciará su conteo una vez presentado lo requerido.
