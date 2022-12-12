@@ -15,3 +15,4 @@ Reglamento de Licencias Municipales para las Actividades Económicas que se desa
 | --- | --- | --- |
 | 1 | 2013-09-27 | la propia norma |
 | 2 | 2020-07-13 | Reglamento municipal 11 (2020-07-13) |
+| 3 | 2022-12-12 | Reglamento municipal 137 (2022-12-12) |
