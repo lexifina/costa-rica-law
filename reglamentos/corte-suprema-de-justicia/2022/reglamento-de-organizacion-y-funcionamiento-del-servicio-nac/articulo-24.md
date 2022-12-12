@@ -1,0 +1,3 @@
+Artículo 24.- Los Jueces y Juezas Contravencionales.
+Los jueces y juezas contravencionales, de conformidad con las directrices aprobadas por Corte Plena y Consejo Superior, son los responsables de coordinar la correcta implementación del SNFJ en sus despachos y dentro de su respectiva jurisdicción, constituyéndose en actores centrales de este Servicio. Para ello contarán con el personal del despacho y deberán incorporar en su Plan Anual Operativo (PAO) todas las actividades concernientes al SNFJ.
+La coordinación del Servicio podrá recaer en otra dependencia judicial de manera excepcional y cuando así sea determinado por la Comisión de Justicia Abierta o por Conamaj.

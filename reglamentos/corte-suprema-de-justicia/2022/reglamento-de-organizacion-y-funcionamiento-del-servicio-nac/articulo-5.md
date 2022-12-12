@@ -1,0 +1,4 @@
+Artículo 5.- Características.
+El SNFJ se materializa gracias a la asistencia voluntaria de las personas facilitadoras, quienes apoyan las labores de los jueces y las juezas a nivel local, mediante acciones de: divulgación y orientación sobre los servicios que presta el Poder Judicial; mediación comunitaria de conflictos menores; la orientación sobre aspectos legales; la realización de charlas o actividades de capacitación en sus comunidades; y acompañamientos a gestiones en caso de ser requerido.
+Se basa en la colaboración estrecha de personas líderes de las comunidades quienes se desempeñan como facilitadoras y facilitadores judiciales, designados por la propia comunidad.
+Este es un servicio enfocado principalmente en garantizar el acceso a la justicia a personas en condición de vulnerabilidad y con mayores dificultades y obstáculos para acceder a los servicios judiciales, en igualdad y no discriminación.

@@ -1,0 +1,2 @@
+Artículo 58.- Del cumplimiento de las disposiciones en la atención de grupos y colectivos específicos
+Las actividades de las facilitadoras y facilitadores judiciales especializados en la atención de asuntos propios de agrupaciones o colectivos específicos, deberán realizarse de conformidad con las regulaciones establecidas en este reglamento, y el servicio que se preste debe llevarse a cabo en observancia de todas las disposiciones que aquí se regulan y cumplir con todos y cada uno de los requisitos previstos en este reglamento.

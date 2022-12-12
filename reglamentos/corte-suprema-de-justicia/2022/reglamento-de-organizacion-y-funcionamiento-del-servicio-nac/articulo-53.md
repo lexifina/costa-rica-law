@@ -1,0 +1,2 @@
+Artículo 53.- De la remisión de asuntos sometidos a su conocimiento por parte de las personas usuarias
+Cuando la persona facilitadora judicial se vea impedida de resolver algún asunto ya sea por impedimento o por la complejidad, o en los asuntos en los que la mediación fracasa por falta de acuerdo entre las partes, deberá cuando así lo solicite alguna de ellas, orientar a las personas usuarias sobre el despacho judicial al que deben acudir para solucionar su conflicto.
