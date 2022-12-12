@@ -1,4 +1,5 @@
 N° MS-DM-JG-6584-2021
+(Nota de Sinalevi: Mediante resolución N° MS-DM-FG-7211-2022 del 12 de diciembre de 2022, se acordó ampliar el pazo de transición para utilizar los anteriores y nuevos diseños de mensajes sanitarios de productos de tabaco y sus derivados durante las campañas sétima y octava, comunicadas mediante Directrices Ministeriales N° MS-DMJG-6584-2021 del 3 de diciembre del 2021 y N° MS-DM-FG-7209-2022 del 7 de diciembre del 2022.)
 SÉTIMA CAMPAÑA DE MENSAJES SANITARIOS DE
 PRODUCTOS DE TABACO Y SUS DERIVADOS
 EL MINISTRO DE SALUD

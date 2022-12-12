@@ -14,3 +14,4 @@ Séptima campaña de mensaje sanitario de productos de tabaco y sus derivados
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-01-01 | la propia norma |
+| 2 | 2022-12-12 | Resolución 7211 (2022-12-12) |
