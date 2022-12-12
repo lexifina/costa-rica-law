@@ -1,0 +1,13 @@
+MUNICIPALIDAD DE POCOCÍ
+Oficio SMP-2405-2022: Acuerdo tomado por el Concejo Municipal de Pococí en Sesión N° 81 Ordinaria del 17-11-2022, Artículo II, Acuerdo N° 2497, dice:
+REGLAMENTO DE VIATICOS Y TRANSPORTE DE LA MUNICIPALIDAD
+DE POCOCÍ
+Considerando
+I. Que de conformidad con las atribuciones que le confiere los artículos 4 inciso a), 13 inciso c) del Código Municipal (Ley Nº 7794), así como los artículos 6 y 17 del Reglamento de Gastos de Viajes y Transporte para funcionarios públicos Nº RCO-1-2007, y en lo que corresponde a la Ley de Fortalecimiento de las Finanzas Públicas (Ley 9635), dicta el presente reglamento de gastos de viáticos y transporte de la Municipalidad de Pococí.
+II. Que según con lo establecido en el artículo 110 inciso f de la Ley de la Administración Financiera de la Republica y Presupuestos Públicos y el artículo 112 del Código Municipal, constituye un hecho generador de responsabilidad la autorización o realización de compromisos o erogaciones sin que exista contenido económico suficiente, debidamente presupuesto.
+III. Qué el artículo 170 de la Constitución Política, así como el artículo 4º del Código Municipal reconocen la autonomía política, administrativa y financiera de las municipalidades.
+IV. Que de conformidad con la normativa citada el Concejo Municipal de Pococí, en el ejercicio de la potestad establecida en la Constitución Política, valorando que en el ejercicio de sus funciones, continuamente diferentes funcionarios municipales, deben realizar inspecciones, giras y visitas, a comunidades del Cantón, significativamente alejadas del centro de la ciudad y por ende del edificio del centro de trabajo, consistiendo en viajes a sitios de difícil acceso, alejados, y que por lo extenso de las zonas, conlleva la dedicación de varias horas de la jornada diaria; por lo que resulta más razonable, reconocer a dichos funcionarios el pago de viáticos, para viajes dentro del Cantón de Pococí, que por sus condiciones especiales, así lo ameriten.
+V. Que, luego de analizar las observaciones presentadas con motivo de la publicación de los anteriores reglamentos, este Municipio resuelve derogar en su totalidad cualquier reglamento interno de pago de gastos de transporte, alimentación y gastos de representación de la Municipalidad de Pococí.
+CAPÍTULO I
+DISPOSICIONES GENERALES
+Artículo 1.- Este Reglamento y las personas que involucra, quedan sujetas a las disposiciones contenidas en el Reglamento de Viáticos de la Contraloría General de la República, el Código Municipal, la Ley de Fortalecimiento de las finanzas Públicas, Ley de Control Interno.

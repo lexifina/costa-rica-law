@@ -1,0 +1,1 @@
+Artículo 12.- Documentos adjuntos a la boleta de liquidación. La boleta de liquidación deberá ser acompañada de los documentos que respalden y justifiquen el gasto, se podrán presentar facturas, acuerdos, minutas, informes u otro tipo de comprobantes de conformidad con el artículo 17 y artículo 20 del presente reglamento.

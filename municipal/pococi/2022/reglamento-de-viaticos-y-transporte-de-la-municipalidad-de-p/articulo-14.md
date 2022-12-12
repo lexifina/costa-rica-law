@@ -1,0 +1,2 @@
+Artículo 14.- Comisiones Especiales y Permanentes.
+En caso de que los miembros del Concejo Municipal sean nombrados en comisiones permanentes y/o especiales, se les reconocerá el pago de viáticos conforme a lo establecido en los artículos: 13 inciso a) y 20 del presente Reglamento. Así mismo, lo establecido en el reglamento de gastos de viaje y de transporte para funcionarios públicos emitido por la Contraloría General de la República.

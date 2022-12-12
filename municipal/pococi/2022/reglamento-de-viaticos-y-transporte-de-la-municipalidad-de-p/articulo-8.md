@@ -1,0 +1,3 @@
+Artículo 8.- Adelanto de viáticos. Por adelanto debe entenderse la suma total estimada para los gastos de viaje que correspondan al período de la gira, de acuerdo con los montos establecidos en este Reglamento; así como los gastos de transporte cuando proceda, posteriormente a la autorización del viaje.
+En el caso de viajes dentro del país, la solicitud deberá presentarse ante el área Administrativa-Financiera mediante el formulario correspondiente, como mínimo tres días hábiles antes de la gira, para su autorización.
+En el caso que la gira se origine por una invitación externa, deberá aplicarse lo dispuesto en el inciso b) del artículo 5 de este Reglamento.

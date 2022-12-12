@@ -1,0 +1,1 @@
+Artículo 27.- Se deberá realizar la cancelación de liquidaciones de gastos de viáticos y de transporte con el presupuesto del ejercicio económico del año en curso (del 01 de enero al 31 de diciembre), lo anterior, de conformidad con el artículo 5, inciso d), de la Ley de la Administración Financiera de la República y Presupuestos Públicos.

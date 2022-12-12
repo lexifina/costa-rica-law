@@ -1,0 +1,1 @@
+Artículo 6.- Asignaciones de tarifas para gastos. Las sumas establecidas para gastos a las que se refiere este Reglamento se ajustarán a las dispuestas en el Reglamento de Gastos de Viaje y Transporte para funcionarios públicos de la Contraloría General de la República.
