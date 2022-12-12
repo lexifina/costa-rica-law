@@ -1,0 +1,1 @@
+Artículo 4º-Este reglamento deroga el "Reglamento para definir niveles de adjudicación y autorización de compras y contratos de los procedimientos de contratación administrativa de la Municipalidad de Escazú", publicado en La Gaceta N0221 del jueves 15 de noviembre del 2012 y su reforma.
