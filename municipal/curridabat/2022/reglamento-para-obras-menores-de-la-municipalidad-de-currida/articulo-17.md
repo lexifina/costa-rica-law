@@ -1,0 +1,1 @@
+Artículo 17.-Derogatorias. Se deroga el Reglamento para Obras Menores de la Municipalidad de Curridabat aprobado mediante sesión N° 172-2019 del 13 de agosto de 2019 y publicado en el Diario Oficial La Gaceta N° 197 del 17 de octubre de 2019.

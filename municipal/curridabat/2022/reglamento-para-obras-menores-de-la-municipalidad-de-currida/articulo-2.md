@@ -1,0 +1,1 @@
+Artículo 2º-Ámbito de aplicación. Las disposiciones de este reglamento serán de aplicación y acatamiento obligatorio para todas las personas físicas o jurídicas, públicas o privadas que pretendan gestionar y obtener la autorización municipal para la ejecución de obras menores en un bien inmueble que se ubique en el Cantón de Curridabat.

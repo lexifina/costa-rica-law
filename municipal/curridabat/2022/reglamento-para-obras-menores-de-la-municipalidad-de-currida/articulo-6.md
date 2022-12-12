@@ -1,0 +1,1 @@
+Artículo 6º-Sobre lo que no contempla la obra menor. No se considerarán obras menores las obras de construcción que incluyan modificaciones o ampliaciones al sistema estructural, eléctrico o mecánico existente de una edificación.

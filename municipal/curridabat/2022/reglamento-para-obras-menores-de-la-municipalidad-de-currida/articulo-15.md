@@ -1,0 +1,1 @@
+Artículo 15.-Denegatoria de la autorización. Cualquier obra que no se ajuste a lo establecido en el artículo 83 bis de la Ley de Construcciones y a las condiciones descritas en el presente reglamento, no será autorizada para que se tramite por medio de obra menor, siendo que el interesado deberá cumplir con el procedimiento normal de permiso de construcción municipal.
