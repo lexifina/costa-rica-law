@@ -1,1 +1,0 @@
-Artículo 8°—Los (as) Regidores (as) Suplentes estarán sometidos a las mismas disposiciones que regulan a los (as) Regidores (as) Propietarios. Sustituirán a los (as) Propietarios (as) de su mismo Partido Político, en los casos de ausencias temporales u ocasionales y serán llamados por el Presidente Municipal de entre los presentes y según el orden de elección.

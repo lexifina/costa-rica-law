@@ -1,1 +1,0 @@
-Artículo 41.—Para solicitar el uso de la palabra a el (la) Presidente, los (as) Regidores (as) o Síndicos (as) lo harán levantando la mano y el (la) Presidente anotará los nombres de los solicitantes según el orden de petición para otorgar la palabra.

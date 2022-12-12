@@ -1,2 +1,0 @@
-Artículo 76.—Este reglamento rige a partir de su publicación como Reglamento en el Diario Oficial La Gaceta, quedando derogado a partir de ese acto, el Reglamento de Sesiones del Concejo Municipal de San Carlos, que fue acordado por el Concejo Municipal mediante el Artículo 2 del Acta 63, de la Sesión celebrada el 8 de noviembre del 2006 y publicado como Reglamento en La Gaceta número 97 del martes 22 de mayo del 2007.
-Ocho votos a favor y un voto en contra de la Regidora Liz Vargas. Acuerdo definitivamente aprobado.

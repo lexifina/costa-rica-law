@@ -1,5 +1,0 @@
-Artículo 54 bis.—Las Comisiones Municipales, Permanentes y Especiales, estarán autorizadas a realizar sesiones virtuales, tanto ordinarias como extraordinarias, de manera excepcional, previa declaración de estado de emergencia nacional o en el cantón de San Carlos, debiéndose respetar al principio de simultaneidad, colegialidad y deliberación (video conferencia) de los miembros que la conforman haciendo uso de la tecnología como herramienta necesaria para facilitar una gestión más eficaz y ágil.
-Dicha plataforma deberá garantizar la trasmisión simultánea de audio, video y datos.
-Para que la sesión virtual sea válida debe existir una plena compatibilidad entre los sistemas empleados por el emisor y el receptor, pues se debe garantizar la autenticidad e integridad de la voluntad y la conservación de lo actuado.
-Los informes y/o dictámenes de las Comisiones podrán ser remitidos vía digital a la Secretaría del Concejo Municipal, los cuales deberán ser firmados posteriormente por todos los miembros de la Comisión que lo emiten.
-(Así adicionado mediante acuerdo N° 35, acta N° 35 del 22 de junio del 2020)

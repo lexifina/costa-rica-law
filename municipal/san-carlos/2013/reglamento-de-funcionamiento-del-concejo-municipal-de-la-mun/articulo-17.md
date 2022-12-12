@@ -1,1 +1,0 @@
-Artículo 17.—El quórum de las Sesiones será la mitad más uno de los miembros del Concejo Municipal. Deberán encontrarse en el Salón de Sesiones, ocupando sus respectivas curules al inicio de la sesión, durante las deliberaciones y votaciones y al efectuarse las justificaciones de los votos negativos.

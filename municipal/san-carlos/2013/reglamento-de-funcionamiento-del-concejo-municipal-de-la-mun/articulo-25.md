@@ -1,1 +1,0 @@
-Artículo 25.—El (la) Presidente Municipal, calificará los asuntos de trámite urgente para incluirlos en el orden del día. En sesión del Concejo Municipal podrán incluirse los de trámite urgente por iniciativa del (la) Presidente o de uno o más Regidores (as) por acuerdo de dos terceras partes de los miembros del Concejo Municipal.

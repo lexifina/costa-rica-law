@@ -1,1 +1,0 @@
-Artículo 48.—Todo acuerdo se tomará previo dictamen de una Comisión del Concejo Municipal y después de considerarse suficientemente discutido el asunto. El trámite de Comisión podrá dispensarse, si el Concejo Municipal lo acuerda por votación calificada de los (as) Regidores (as) presentes.

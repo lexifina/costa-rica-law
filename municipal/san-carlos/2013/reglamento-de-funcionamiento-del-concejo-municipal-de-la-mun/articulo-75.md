@@ -1,1 +1,0 @@
-Artículo 75.—En cuanto a los permisos y vacaciones se designa para otorgarlos únicamente al Alcalde Municipal en cuanto a la Secretaria o Secretario del Concejo Municipal y para el señor Auditor Interno al Concejo Municipal.

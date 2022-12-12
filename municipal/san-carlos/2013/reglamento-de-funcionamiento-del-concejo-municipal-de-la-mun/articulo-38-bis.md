@@ -1,2 +1,0 @@
-Artículo 38 bis.—En caso de que la sesión municipal, ordinaria o extraordinaria, se deba llevar a cabo de manera virtual, los (as) Regidores y Síndicos, Alcalde o Alcaldesa, tendrán un tiempo de 3 minutos para referirse a los temas en discusión y 2 minutos de réplica, que podrán ser utilizados como tales, o bien, una vez concluidos los 3 minutos, podrían solicitar utilizar esos 2 minutos de réplica como una extensión a su tiempo.
-(Así adicionado mediante acuerdo N° 35, acta N° 35 del 22 de junio del 2020)

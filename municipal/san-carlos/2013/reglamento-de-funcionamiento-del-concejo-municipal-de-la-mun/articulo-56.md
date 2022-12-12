@@ -1,1 +1,0 @@
-Artículo 56.—Una vez designadas las Comisiones por el (la) Presidente Municipal, sus miembros en la sesión de instalación que deberá celebrarse dentro de los quince días siguientes, nombrará de su seno a un Coordinador, un Secretario y fijarán las fechas y horas de sesiones ordinarias, brindando dicha información al Concejo mediante su primer informe de comisión.

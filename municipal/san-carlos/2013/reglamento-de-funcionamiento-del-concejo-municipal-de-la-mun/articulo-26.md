@@ -1,1 +1,0 @@
-Artículo 26.—En el capítulo de asuntos de Concejos de Distrito, la intervención de los Síndicos (as), deberá realizarse acompañado de una solicitud o moción por escrito y firmada, y secundada con la firma de un(a) Regidor (a) Propietario (a).

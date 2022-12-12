@@ -1,1 +1,0 @@
-Artículo 40.—En caso de que algún Regidor (a) tuviere opinión contraria al criterio de él (la) Presidente, podrá apelar ante el Concejo y éste decidirá sobre la Moción de Orden, por simple mayoría de votos.

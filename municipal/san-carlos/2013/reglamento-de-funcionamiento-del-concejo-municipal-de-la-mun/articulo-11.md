@@ -1,1 +1,0 @@
-Artículo 11.—Podrá ser recusado por cualquier interesado el (la) Regidor (a) que no se excuse de intervenir en la discusión a la que se refiere el inciso a) del artículo anterior. El Concejo decidirá si la recusación procede y buscar más datos para resolver.

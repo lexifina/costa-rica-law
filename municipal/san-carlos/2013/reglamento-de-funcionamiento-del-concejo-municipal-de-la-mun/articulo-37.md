@@ -1,1 +1,0 @@
-Artículo 37.—Será potestativo para el (la) Presidente Municipal el denunciar de conformidad con los artículos 389, inciso VII) y 390, inciso 2) del Código Penal, al que interrumpiere el desarrollo normal de la Sesión Municipal.

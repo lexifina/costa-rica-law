@@ -1,1 +1,0 @@
-Artículo 62.—Los (as) Regidores (as) y Síndicos (as) deberán participar en las Comisiones permanentes o especiales que se les nombre, el incumplimiento acarreará una sanción con una llamada de atención verbal.

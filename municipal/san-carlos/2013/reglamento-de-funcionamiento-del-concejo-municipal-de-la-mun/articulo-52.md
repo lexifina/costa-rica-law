@@ -1,1 +1,0 @@
-Artículo 52.—Las Actas deberán ser firmadas por el Presidente y el Secretario en la Sesión Municipal posterior a la aprobación respectiva, además las Actas podrán llevarse en hojas sueltas cuando fueren previamente foliadas y selladas por el Departamento de Auditoria Interna de esta Municipalidad.

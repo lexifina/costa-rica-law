@@ -1,1 +1,0 @@
-Artículo 65.—Las dietas se pagarán de acuerdo al Presupuesto Ordinario de la Municipalidad de San Carlos. Los aumentos anuales de las dietas serán acordes al porcentaje de aumento del Presupuesto Municipal.

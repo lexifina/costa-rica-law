@@ -1,1 +1,0 @@
-Artículo 30.—En las audiencias los expositores tendrán un tiempo de hasta treinta minutos para hacer su manifestación, quedando el tiempo asignado a criterio de la Presidencia y se darán cinco minutos a los (as) miembros del Concejo Municipal, que lo solicite para evacuación de consultas.

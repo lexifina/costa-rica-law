@@ -1,1 +1,0 @@
-Artículo 72.—Los (as) Regidores (as) que se ausenten de la Municipalidad, para representar a la misma, se les otorgará licencia con goce de dieta, según el caso y previo informe debidamente presentado al Concejo, de la gestión realizada.

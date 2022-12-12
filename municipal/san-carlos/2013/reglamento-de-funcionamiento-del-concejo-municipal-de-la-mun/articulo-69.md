@@ -1,1 +1,0 @@
-Artículo 69.—En caso que los (as) Regidores (as) Suplentes, no hayan sustituido a los (as) Propietarios (as) en una Sesión remunerable, pero estén presentes durante toda la Sesión, serán acreedores de un cincuenta por ciento de la dieta correspondiente del Regidor Propietario.
