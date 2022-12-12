@@ -1,0 +1,1 @@
+Artículo 9º-Pago ante el INS. Una vez tasado el proyecto, se deberá cancelar lo correspondiente del seguro de trabajo en el Instituto Nacional de Seguros, debiendo adjuntar al APC el respectivo comprobante de pago.

@@ -1,0 +1,1 @@
+Artículo 10.-Certificado de permiso de construcción. Una vez que conste en el APC el pago del derecho de construcción y la póliza del INS, se emitirá el certificado de permiso de construcción con el que cual se habilita el inicio de las obras.

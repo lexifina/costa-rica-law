@@ -1,0 +1,1 @@
+Artículo 12.-Denegatoria de la autorización. Cualquier obra que no se ajuste a lo establecido en la Ley de Construcciones, en el Plan Regulador, normativa urbanística y a las condiciones descritas en el presente reglamento, no será autorizada.

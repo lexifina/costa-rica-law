@@ -1,0 +1,2 @@
+Artículo 8º-Tasación del proyecto y pago del derecho de construcción. A partir de la revisión técnica, de cumplir el proyecto con los requerimientos técnico y legales, se procederá a tasar la obra que corresponderá al uno por ciento (1%) del valor municipal con base en la tipología del Ministerio de Hacienda.
+El comprobante respectivo del pago del derecho de construcción deberá realizarse digitalmente en el APC.

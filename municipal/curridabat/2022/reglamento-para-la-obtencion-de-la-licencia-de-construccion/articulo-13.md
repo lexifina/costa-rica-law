@@ -1,0 +1,2 @@
+Artículo 13.-Recursos. De conformidad con el artículo 172 del Código Municipal, contra todo acto municipal que deniegue total o parcialmente el proyecto, cabrá los recursos de revocatoria con apelación en subsidio, los que deberán presentarse dentro del plazo de cinco días hábiles contados a partir del día siguiente de efectuada la notificación.
+El recurso de revocatoria será resuelto por la Dirección de Desarrollo y Control Urbano y el de apelación en subsidio por la Alcaldía.
