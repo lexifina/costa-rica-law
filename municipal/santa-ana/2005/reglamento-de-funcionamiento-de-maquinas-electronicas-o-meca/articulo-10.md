@@ -1,1 +1,0 @@
-Artículo 10.—Del rechazo de una solicitud de otorgamiento de patente comercial. El rechazo de una solicitud de otorgamiento de patente comercial deberá ser debidamente motivado según la normativa aplicable.

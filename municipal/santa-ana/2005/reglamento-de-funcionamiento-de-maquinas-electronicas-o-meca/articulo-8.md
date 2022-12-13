@@ -1,2 +1,0 @@
-ARTÍCULO 8: De la patente comercial. La Municipalidad no estará obligada a extender la correspondiente patente comercial para la operación de estas máquinas con la sola petición del administrado. Este deberá atender los diferentes requisitos que para tal tipo de autorización establece el Ordenamiento Jurídico y este reglamento en el artículo 17, la licencia obtenida por el solicitante cubrirá la operación de todas las máquinas de juego que el mismo tenga en el cantón.
-(Así reformado en sesión N° 136-2018 del 4° de diciembre del 2018)

@@ -1,1 +1,0 @@
-Artículo 20.—Sobre las anomalías cometidas por funcionarios municipales. Los propietarios o arrendatarios de establecimientos en donde funcionen máquinas permitidas tienen el deber y la obligación de denunciar de inmediato y por escrito ante la Municipalidad, cualquier anomalía cometida por algún funcionario municipal.

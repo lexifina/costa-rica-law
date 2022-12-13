@@ -1,1 +1,0 @@
-Artículo 22.—Procedimiento para las máquinas de juegos no autorizadas. Toda máquina de juegos instalada en lugares no autorizados o que no tenga patente debidamente autorizada por la Municipalidad, serán clausuradas por funcionarios municipales o la Policía de Proximidad, operando conjuntamente o individualmente, sin necesidad de proceder a notificar previamente la clausura.
