@@ -1,0 +1,1 @@
+Artículo 15.- El Ministerio publicará en la página web del Ministerio de Salud la información sobre las autorizaciones otorgadas, la cual incluirá el nombre del medicamento, el número de registro sanitario del producto con su respectivo importador paralelo o por terceros.

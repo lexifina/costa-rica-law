@@ -1,0 +1,1 @@
+Artículo 8.- Presentación única de documentos. En caso de que los requisitos indicados en el presente Decreto Ejecutivo hayan sido presentados previamente ante el Ministerio de Salud para otro trámite por parte del regente de la droguería importadora y se encuentren aún vigentes, se permitirá que éste haga referencia al trámite en el cual se encuentran depositados.

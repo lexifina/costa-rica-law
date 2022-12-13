@@ -1,0 +1,1 @@
+Artículo 9.- Formalidad de los documentos. Los documentos oficiales o legales se deben presentar en idioma español o acompañados de su respectiva traducción oficial. Todo documento emitido en el extranjero debe ser legalizado o apostillado.
