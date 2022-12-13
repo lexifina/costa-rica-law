@@ -1,0 +1,1 @@
+Artículo 6º-Cuando las Cuotas de Colegiatura tengan descuentos o comisiones, estas no deben afectar las cuotas ordinarias o extraordinarias del Fondo, debiendo la Administración y Contabilidad del Colegio, determinar la cuota de colegiatura con descuento más la cuota del Fondo sin deducciones.

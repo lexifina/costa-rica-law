@@ -1,0 +1,1 @@
+Transitorio II.-Se aprueba para que, en un plazo de 18 meses, se genere la venta del mausoleo destinado originalmente para el Fondo de Mutualidad y Contingencias, y que los recursos obtenidos por esta venta sean aportados como parte de los recursos económicos del Fondo de Solidaridad.

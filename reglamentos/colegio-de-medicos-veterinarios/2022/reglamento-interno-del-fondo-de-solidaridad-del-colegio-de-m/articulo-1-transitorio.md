@@ -1,0 +1,1 @@
+Transitorio I.-Se deroga el Reglamento Interno del Fondo de Mutualidades y Contingencias en su totalidad, siendo este sustituido por el presente Reglamento, dándose continuidad a sus estados financieros e inversiones transitorias y permanentes, bajo las condiciones establecidas en los puntos anteriores del Reglamento del Fondo de Solidaridad y sus anexos.

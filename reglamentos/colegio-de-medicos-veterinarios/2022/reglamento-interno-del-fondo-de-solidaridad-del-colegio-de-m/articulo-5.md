@@ -1,0 +1,1 @@
+Artículo 5º-Las cuotas serán iguales para todos, otorgando iguales derechos y obligaciones a todos los colegiados, siendo proporcional el cobro a partir de las diferentes tarifas que mantiene el Colegio según el estatus del Colegiado.

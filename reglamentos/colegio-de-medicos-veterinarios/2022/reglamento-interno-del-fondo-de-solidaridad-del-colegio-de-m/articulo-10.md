@@ -1,0 +1,1 @@
+Artículo 10.-El quorum de la Comisión se hará con tres de sus miembros. Las decisiones se tomarán por mayoría de votos, no se tendrá por recibido votos nulos ni abstención de parte de los integrantes de esta comisión. En el caso de un empate en la definición de algún acuerdo, el presidente podrá hacer uso del doble voto que se le concede para la materia de desempate.

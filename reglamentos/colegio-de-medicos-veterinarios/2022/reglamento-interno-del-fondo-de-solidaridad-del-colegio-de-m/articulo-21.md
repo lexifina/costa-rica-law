@@ -1,0 +1,1 @@
+Artículo 21.-Dentro de las auditorías externas que contrate el Colegio para fiscalizar la buena marcha de sus operaciones financieras, siempre se deberá incluirse la auditoría del Fondo de Solidaridad para el ejercicio económico que corresponda.

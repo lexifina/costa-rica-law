@@ -1,0 +1,3 @@
+CAPÍTULO VI
+De las Consideraciones Finales
+Artículo 28.-La liquidación del Fondo de Solidaridad, debe tratarse únicamente a partir de situaciones de fuerza mayor o caso fortuito que se originen por el entorno económico del país o la Institución, debiendo definirse un procedimiento adecuado a la estructura del Fondo. Esta solicitud de liquidación, así como su procedimiento debe ser justificada por la Comisión del Fondo de Solidaridad, y aprobada por la Junta Directiva para que sea expuesta y presentada ante la Asamblea General, la cual deberá aprobar o improbar la solicitud de liquidación y sus argumentos.

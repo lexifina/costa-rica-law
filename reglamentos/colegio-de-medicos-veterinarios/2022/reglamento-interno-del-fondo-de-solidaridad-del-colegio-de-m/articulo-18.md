@@ -1,0 +1,1 @@
+Artículo 18.-El Fiscal del Colegio, podrá realizar u ordenar la realización de auditorías parciales a la Comisión del Fondo de Solidaridad, de acuerdo con los argumentos que considere necesarios y pertinentes para el cumplimiento de sus funciones.

@@ -1,0 +1,1 @@
+Artículo 4º-El Monto de la Cuota Ordinaria y/o Extraordinaria, será solicitado y propuesto por la Comisión Permanente del Fondo de Solidaridad ante la Junta Directiva, para que sea evaluado y sometido a la aprobación o no de la Asamblea General del Colegio.

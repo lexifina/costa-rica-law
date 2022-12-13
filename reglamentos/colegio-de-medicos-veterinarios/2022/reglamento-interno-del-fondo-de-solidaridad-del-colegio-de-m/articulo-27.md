@@ -1,0 +1,1 @@
+Artículo 27.-Cuando un colegiado no hubiera dejado establecido los nombres de los beneficiarios de sus derechos o en caso de extinguirse la cadena de beneficiarios, se asume que el Fondo de Solidaridad será el beneficiario.

@@ -1,0 +1,3 @@
+CAPÍTULO IV
+De los Fondos y Beneficios
+Artículo 23.-Adicionalmente a las Cuotas Ordinarias y Extraordinarias especificadas en el artículo 3 del presente Reglamento, el Fondo de Solidaridad podrá incrementar su patrimonio a partir de rendimientos que se puedan generar a razón de la inversión de recursos económicos en Fondo de Inversión a la Vista, Certificados de Depósito a Plazo u otros instrumentos financieros en entidades reconocidas y supervisadas por la Superintendencia General de Entidades Financieras (SUGEF), apegándose la política de inversión al Reglamento de Inversiones que mantiene aprobada el Colegio.

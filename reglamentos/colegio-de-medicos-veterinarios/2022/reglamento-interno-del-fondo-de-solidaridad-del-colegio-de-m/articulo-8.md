@@ -1,0 +1,1 @@
+Artículo 8º-La Comisión Permanente de Solidaridad que administrará el Fondo de Solidaridad, estará integrada por cuatro miembros que durarán en sus cargos tres años. Los miembros podrán ser reelectos hasta por cuatro períodos consecutivos.
