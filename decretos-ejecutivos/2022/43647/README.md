@@ -14,3 +14,4 @@ Procedimiento para la importación de medicamentos por importación paralela o p
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-12-13 | la propia norma |
+| 2 | 2022-12-13 | Decreto Ejecutivo 43656 (2022-08-12) |
