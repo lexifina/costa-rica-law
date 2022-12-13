@@ -1,1 +1,0 @@
-Artículo XI.—Las personas físicas o jurídicas que se dediquen a brindar el servicio de "karaoke", los potentados de negocios de ese cantón deberán contar, con una licencia municipal de acuerdo con el artículo 79 del Código Municipal.
