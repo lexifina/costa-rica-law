@@ -14,3 +14,4 @@ Modifica los textos de incisos arancelarios
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-12-13 | la propia norma |
+| 2 | 2022-12-13 | Resolución 405 (2022-12-02) |
