@@ -15,3 +15,4 @@ Reglamento sobre la Simplificación de Trámites para los Ciudadanos del Cantón
 | --- | --- | --- |
 | 1 | 2003-09-17 | la propia norma |
 | 2 | 2010-01-12 | Reglamento municipal 184 (2010-01-12) |
+| 3 | 2022-12-13 | Reglamento municipal 137 (2022-12-13) |
