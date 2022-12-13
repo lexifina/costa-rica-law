@@ -1,1 +1,0 @@
-Artículo 27.—El Departamento de Patentes a través de sus inspectores deberá rendir un informe trimestral al Alcalde y al Concejo Municipal sobre todas las ventas que funcionan y que tienen su respectivo permiso de funcionamiento a partir de la publicación de este Reglamento.

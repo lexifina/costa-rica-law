@@ -1,1 +1,0 @@
-Artículo 11.—Las personas beneficiadas con el permiso de venta estacionaria están obligadas a velar por el buen estado de las instalaciones del puesto; asimismo, no podrán hacerle ampliaciones, sin autorización de la Municipalidad.

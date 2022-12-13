@@ -1,2 +1,0 @@
-Artículo 3º—La licencia deberá ser solicitada por escrito a la Municipalidad, la cual previa a la autorización respectiva del Alcalde Municipal deberá contar con el pronunciamiento, del respectivo Concejo de Distrito, de acuerdo al lugar donde se va a realizar la actividad comercial.
-Originalmente decía "según el domicilio del solicitante", pero puede darse el caso de que no sea vecino del cantón, violándose con ello un derecho fundamental de todos los habitantes del país, como lo es la libertad de comercio.
