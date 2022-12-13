@@ -1,8 +1,9 @@
 Artículo 3.- De las Actuaciones realizadas de oficio por parte de la Administración Tributaria.
-Mientras se verifiquen los presupuestos establecidos en el artículo 4 de la presente resolución, procederá la suspensión de los plazos de atención de los siguientes actos y trámites de la Dirección General de Tributación:
-(Así reformado el párrafo anterior mediante resolución N° DGT-R-017-2022 del 19 de mayo del 2022)
-1 DIRECCIÓN DE SERVICIO AL CONTRIBUYENTE:
-1.1 Consulta pública de resoluciones u otros.
+Se ordena la suspensión de los plazos de atención de los siguientes actos y trámites de la Dirección General de Tributación:
+(Así reformado el párrafo anterior por el artículo 2° de la resolución N° DGT-R-047-2022 del 13 de diciembre del 2022)
+1. Dirección de Servicio al Contribuyente:
+1.1 Accesos a bases de datos o sistemas de la Dirección General de Migración y Extranjería y Caja Costarricense del Seguro Social.
+(Así reformado el párrafo anterior por el artículo 2° de la resolución N° DGT-R-047-2022 del 13 de diciembre del 2022)
 1.2 Cualquier trámite ante otras instituciones relacionadas con la Consulta de Situación Tributaria (CCSS, Dirección General de Migración y Extranjería, Ministerio de Salud, entre otras).
 (*)2 ÁREAS DE RECAUDACIÓN:
 2.1 Administración del Registro Único Tributario y depuración de inconsistencias de Datos

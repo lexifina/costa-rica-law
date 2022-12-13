@@ -15,3 +15,4 @@ Suspensión temporal de plazos y la promulgación de lineamientos para la atenci
 | --- | --- | --- |
 | 1 | 2022-04-18 | la propia norma |
 | 2 | 2022-05-19 | Resolución 17 (2022-05-19) |
+| 3 | 2022-12-13 | Resolución 47 (2022-12-13) |
