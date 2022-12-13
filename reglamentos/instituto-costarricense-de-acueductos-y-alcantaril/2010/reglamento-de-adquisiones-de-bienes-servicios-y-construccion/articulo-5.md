@@ -1,2 +1,0 @@
-Artículo 5º—Las adquisiciones por medio del fondo de caja chica procederán hasta por el 5% del límite superior para compras por escasa cuantía que no incluyen obra pública, dispuesto por la Contraloría General de la República, en los ajustes de cada año, redondeado al mil inmediato anterior terminado en cero o cinco.
-(Así reformado mediante acuerdo N° 2021- 038 y publicado en La Gaceta N° 28 del 10 de febrero del 2021)

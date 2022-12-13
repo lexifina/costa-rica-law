@@ -1,1 +1,0 @@
-Artículo 36.—En cuanto a las adjudicaciones de los Fondos de Trabajo esta facultad de corrección de errores materiales y aritméticos del acto ad adjudicación, le corresponderá al Jerarca inmediato de la Dependencia en donde se ubican dichos Fondos, mediante la emisión de una resolución debidamente motivada.

@@ -1,2 +1,0 @@
-Artículo Nº 47: Para la existencia del quórum necesario para conocer y votar los asuntos sometidos a una sesión, será necesario contar la presencia del Director de la Dirección de Proveeduría, del Representante del Área de Contratación Administrativa de la Dirección Jurídica y el representante del Área solicitante del bien, servicio u obra. Se entenderá que los representantes de estas áreas y dependencias que asistan a las sesiones, cuentan con la debida autorización para ello.
-(Así reformado mediante sesión ordinaria N° 2014-044 del 28 de enero del 2014)

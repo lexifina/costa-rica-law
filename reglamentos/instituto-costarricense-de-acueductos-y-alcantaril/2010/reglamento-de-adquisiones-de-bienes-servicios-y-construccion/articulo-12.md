@@ -1,1 +1,0 @@
-Artículo 12.—Los Fondos de Trabajo Institucionales estarán conformados al menos por un encargado directo y específico para realizar las labores que le son asignadas en este Reglamento, este será el responsable del cumplimiento de la normativa vigente en materia de procedimientos contratación administrativa y del correcto desarrollo de la tramitación de los expedientes a su cargo.

@@ -1,1 +1,0 @@
-Artículo 41.—En el seno de la Comisión tendrán voz y voto los funcionarios indicados en el punto a, b, c y d; los funcionarios señalados en los puntos e) y f) tendrán voz pero no voto. En caso de que exista un empate la Jefatura de la Proveeduría tendrá doble voto.

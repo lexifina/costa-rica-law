@@ -1,1 +1,0 @@
-Artículo 58.—Por ningún motivo al administrador del contrato le está permitido dispensar - por su propia cuenta- al contratista del cumplimiento de alguno de los requisitos u obligaciones del aquel. El administrador del contrato siempre debe buscar el cumplimiento puntual y total de la contratación que supervisa y fiscaliza.

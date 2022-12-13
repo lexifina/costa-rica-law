@@ -1,1 +1,0 @@
-Artículo 13.—En cada Fondo de Trabajo Institucional podrá existir una comisión asesora para la contratación de obras, bienes y servicios con competencia exclusiva para analizar y recomendar la adjudicación, la cual estará integrada por el jefe administrativo de la región respectiva, el encargado del Fondo de Trabajo Institucional y la parte interesada o unidad solicitante.

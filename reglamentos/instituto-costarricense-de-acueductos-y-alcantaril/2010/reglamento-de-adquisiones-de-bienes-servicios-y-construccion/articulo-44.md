@@ -1,1 +1,0 @@
-Artículo 44.—Cuando el Director de la Proveeduría se vea imposibilitado para presidir alguna de las sesiones de la Comisión Asesora, por razones debidamente justificadas y en forma excepcional, este podrá ser sustituido por el representante de la Dirección así designado por este o por quien formalmente lo sustituya en el puesto, situación de la cual se dejará constancia en actas.

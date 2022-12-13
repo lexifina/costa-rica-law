@@ -1,1 +1,0 @@
-Artículo 31.—Aprobará además las Órdenes de Cambio, Ampliaciones de plazo, Suspensiones temporales o totales, así como las ampliaciones de objeto de las licitaciones abreviadas, cuyo monto de la ampliación corresponda a una contratación directa de escasa cuantía.

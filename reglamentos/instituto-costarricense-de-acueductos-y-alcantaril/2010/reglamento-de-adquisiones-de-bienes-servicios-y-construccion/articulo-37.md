@@ -1,1 +1,0 @@
-Artículo 37.—Estas resoluciones de corrección también deberán ser comunicadas a los participantes de cada concurso por el medio señalado en su oferta para atender notificaciones; al no variarse ningún aspecto esencial de la adjudicación, la corrección no implicará ampliación de plazo para interponer recursos.
