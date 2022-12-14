@@ -1,2 +1,0 @@
-Artículo 5º—Responsabilidad sobre el control interno.
-La Administración Activa es la responsable del diseño, la implantación, la operación, evaluación, el mejoramiento y el perfeccionamiento del sistema de control interno institucional, así como de realizar las acciones necesarias para garantizar su efectivo funcionamiento, de acuerdo con lo establecido en el Artículo 10 de la Ley General de Control Interno.

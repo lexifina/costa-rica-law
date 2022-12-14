@@ -1,1 +1,0 @@
-Artículo 28.—Durante un procedimiento administrativo de carácter disciplinario, el informe de relación de hechos u otro informe elaborado por la Auditoría Interna, podría ser considerado por el Órgano Director como elemento de apoyo. Esto sin que el Órgano Director renuncie a sus potestades legales de establecer por sus propios medios, la verdad real de los hechos.

@@ -1,1 +1,0 @@
-Artículo 23.—La Auditoría Interna deberá comunicar oficialmente los resultados del trabajo, mediante informes, oficios u otros dirigidos al Jerarca o a los titulares subordinados de la Administración Activa, con competencia y autoridad para ordenar la implantación de las respectivas recomendaciones o atender los asuntos comunicados.

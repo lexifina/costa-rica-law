@@ -1,1 +1,0 @@
-Artículo 15.—El Auditor Interno deberá establecer las relaciones de coordinación necesarias, de manera que se mantenga un control en la ejecución y las modificaciones de los recursos presupuestarios asignados a la Auditoría Interna.

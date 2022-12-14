@@ -1,3 +1,0 @@
-Artículo 2º—Concepto funcional de la Auditoría Interna.
-La Auditoría Interna es la actividad independiente, objetiva y asesora, que proporciona seguridad a la organización, puesto que se crea para validar y mejorar sus operaciones.
-Contribuye a que se alcancen los objetivos institucionales, mediante la práctica de un enfoque sistémico y profesional para evaluar y mejorar la efectividad de la administración del riesgo, del control y de los procesos de dirección, conforme con las disposiciones de la Ley General de Control Interno. La Auditoría Interna proporciona a la ciudadanía una garantía razonable de que la actuación del Jerarca y la del resto de la administración se ejecuta conforme al marco legal y técnico y a las prácticas sanas.

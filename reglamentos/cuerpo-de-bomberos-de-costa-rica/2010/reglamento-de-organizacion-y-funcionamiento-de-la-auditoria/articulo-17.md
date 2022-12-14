@@ -1,1 +1,0 @@
-Artículo 17.—Al amparo del Artículo 33 de la Ley General de Control Interno, el Auditor Interno realizará las gestiones pertinentes para lograr la incorporación de profesionales o técnicos de diferentes disciplinas, funcionarios o no del Benemérito Cuerpo de Bomberos, para que lleven a cabo labores de su especialidad en los estudios de auditoría que realice la Auditoría Interna.

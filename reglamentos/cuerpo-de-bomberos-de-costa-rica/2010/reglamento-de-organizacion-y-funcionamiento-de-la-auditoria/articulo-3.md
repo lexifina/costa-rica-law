@@ -1,2 +1,0 @@
-Artículo 3º—Marco legal y técnico.
-La función de Auditoría Interna del Benemérito Cuerpo de Bomberos de Costa Rica se regirá de conformidad con lo establecido en el Artículo 7 bis de la Ley del Benemérito Cuerpo de Bomberos, la Ley General de Control Interno, Ley Orgánica de la Contraloría General de la República, el presente Reglamento y las disposiciones, normas, políticas y directrices que emita la Contraloría General de la República, las cuales serán de acatamiento obligatorio.
