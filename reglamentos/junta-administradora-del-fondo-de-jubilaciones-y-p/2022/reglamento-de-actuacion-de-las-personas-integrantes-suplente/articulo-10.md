@@ -1,0 +1,1 @@
+Artículo 10.-Atribuciones de los integrantes suplentes durante las suplencias: Las personas suplentes, mientras se encuentren cubriendo una suplencia, tendrán exactas facultades que un miembro titular, siempre y cuando esté ejerciendo en sustitución de éste.

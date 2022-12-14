@@ -1,0 +1,1 @@
+Artículo 5°-Género y representación paritaria: Para integrar la Junta Administradora se procurará cumplir la representación paritaria de género, por lo que se debe contemplar para el momento de definir los nombramientos de las personas integrantes suplentes.

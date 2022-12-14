@@ -1,0 +1,3 @@
+Artículo 7°-Prohibiciones para ser miembro suplente de la Junta Administradora. De acuerdo con lo referido en el artículo 240 de la Ley Orgánica del Poder Judicial, no podrá ser miembro suplente de la Junta Administradora:
+a) Las personas contra quienes en los últimos diez años haya recaído sentencia judicial penal condenatoria por la comisión de un delito doloso.
+b) Las personas que en los últimos diez años hayan sido inhabilitadas para ejercer un cargo de administración o dirección en la Administración Pública o en las entidades supervisadas por la Superintendencia General de Entidades Financieras, la Superintendencia General de Seguros, la Superintendencia de Valores y la Superintendencia de Pensiones.
