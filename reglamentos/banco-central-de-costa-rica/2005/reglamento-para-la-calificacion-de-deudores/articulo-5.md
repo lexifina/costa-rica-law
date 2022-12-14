@@ -1,1 +1,0 @@
-Artículo 5º—Categorías de riesgo. La entidad debe calificar individualmente a los deudores en una de las ocho categorías de riesgo, las cuales se identifican con A1, A2, B1, B2, C1, C2, D y E, correspondiendo la categoría de riesgo A1 a la de menor riesgo de crédito y la categoría E a la de mayor riesgo de crédito.

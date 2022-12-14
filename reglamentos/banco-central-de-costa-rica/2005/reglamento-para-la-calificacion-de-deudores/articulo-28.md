@@ -1,2 +1,0 @@
-Artículo 26.—Envío de información. La información de los XML de las clases de datos personas, garantías y operaciones crediticias de SICVECA deben ser remitidos a más tardar el noveno, décimo y undécimo día hábil de acuerdo al grupo asignado por la SUGEF para cada una de las entidades supervisadas, según los contenidos, formatos y medios que defina la SUGEF en el Manual de Información del Sistema Financiero
-(Así adicionado mediante sesión N° 650 del 4 de junio de 2007)

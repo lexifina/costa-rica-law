@@ -1,5 +1,0 @@
-Artículo 7bis.- Análisis de la capacidad de pago para deudores del Grupo 2
-La entidad debe calificar la capacidad de pago de los deudores del Grupo 2, con base en las metodologías aprobadas por la Junta Directiva o autoridad equivalente. Estas metodologías deben ser consonantes con sus políticas crediticias y congruentes con el tipo de deudor que se trate, las líneas de negocio y productos crediticios.
-Las metodologías para la calificación de la capacidad de pago del deudor, tanto en la etapa de otorgamiento del crédito como en las etapas de seguimiento y control, pueden apoyarse en análisis estadísticos a partir de portafolios crediticios, determinados por la propia entidad financiera con base en características comunes entre los deudores que sean de utilidad para establecer esquemas de calificación de capacidad de pago.
-(Así reformado el párrafo anterior mediante sesión N° 1258-2016 del 7 de junio del 2016)
-(Derogado el párrafo 3, 4, 5 , 6 mediante sesión 1775-2022 del 14 de diciembre del 2022)

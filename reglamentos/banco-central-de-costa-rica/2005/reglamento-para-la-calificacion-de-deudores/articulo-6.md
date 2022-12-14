@@ -1,1 +1,0 @@
-Artículo 6º—Lineamientos Generales. Mediante acuerdo y de conformidad con lo dispuesto en este Reglamento, el Superintendente debe emitir los Lineamientos Generales necesarios para la aplicación de esta normativa. Estos lineamientos generales pueden ser modificados por el Superintendente cuando identifique elementos adicionales que puedan poner en riesgo a las entidades.
