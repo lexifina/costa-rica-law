@@ -1,1 +1,0 @@
-TRANSITORIO 4. Los procesos administrativos de modificaciones al registro pendientes ante la AC, en el momento de entrar en vigencia este reglamento, podrán continuar con la normativa vigente a su presentación. Sin embargo, podrán acogerse a las disposiciones de este reglamento a solicitud expresa del interesado.
