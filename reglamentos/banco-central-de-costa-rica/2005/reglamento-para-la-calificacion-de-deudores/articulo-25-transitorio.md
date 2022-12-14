@@ -1,0 +1,5 @@
+Transitorio XXV:
+A partir del primero de enero de 2023 y hasta el 31 de diciembre de 2023, inclusive, para efectos del numeral 2 del inciso i. del Artículo 3, Definiciones, de este Reglamento, un deudor con al menos una operación modificada dos veces en un periodo de 24 meses será clasificado en la categoría de riesgo B2. Asimismo, un deudor con al menos una operación modificada más de dos veces en un periodo de 24 meses será clasificado en la categoría de riesgo C1.
+El número de modificaciones incluirá la cantidad de modificaciones aplicadas a partir del 1° de enero de 2022.
+Se aclara que el deudor mantiene la categoría de riesgo previa a tener la operación especial a que se refiere el párrafo primero de este Transitorio, siempre que esta sea igual a B2 o C1, respectivamente, o de mayor riesgo. No obstante, si las condiciones del deudor justifican la reclasificación a categorías de mayor riesgo, la entidad debe realizar la reclasificación correspondiente.
+(Así adicionado mediante sesión N° 1775-2022 del 14 de diciembre del 2022)

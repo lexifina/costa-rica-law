@@ -59,3 +59,4 @@ Reglamento para la Calificación de Deudores
 | 44 | 2021-11-11 | Reglamento 1699 (2021-11-11) |
 | 45 | 2022-08-29 | Reglamento 1752 (2022-08-29) |
 | 46 | 2022-10-31 | Reglamento 1767 (2022-10-31) |
+| 47 | 2022-12-14 | Reglamento 1775 (2022-12-14) |
