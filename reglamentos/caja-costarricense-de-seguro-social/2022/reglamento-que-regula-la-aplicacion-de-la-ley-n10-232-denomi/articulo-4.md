@@ -1,0 +1,29 @@
+Artículo 4°-Definiciones o terminologías a considerar en este Reglamento.
+Aportes LPT: Corresponden a las contribuciones obreras y patronales que surgen con motivo de la entrada en vigor de la Ley de Protección al Trabajador y son los establecidos en el artículo 13 ibidem.
+CCSS: Siglas que identifican a la Caja Costarricense de Seguro Social. Institución autónoma a la cual le corresponde el gobierno y la administración de los seguros sociales.
+Costas procesales: Cantidad de dinero en que incurre la CCSS, durante la tramitación de un proceso de cobro judicial.
+Cuota: Es la cotización o aporte mensual que por Ley o Reglamento los trabajadores asalariados, los patronos y/o trabajadores independientes realizan al Seguro de Salud, Invalidez, Vejez y Muerte, según corresponda.
+Cuota nivelada y vencida: Es Suma de intereses más principal a pagar por el deudor al vencimiento de cada mes con ocasión de un acuerdo de pago.
+Convenio de pago: Es un tipo de acuerdo de pago administrativo entre la CCSS y el deudor, que permite normalizar su situación de morosidad con la Institución de conformidad con la normativa establecida.
+Cuota Obrera: Es el aporte que realiza un trabajador a la CCSS por razón de su contrato de trabajo.
+Cuota Patronal: Es el aporte que realiza una persona física o jurídica a la CCSS debido a su relación laboral como empleador con sus trabajadores.
+Cuota de Trabajador Independiente: Es el aporte que realiza un trabajador independiente a la CCSS, debido a su actividad generadora de ingresos.
+DESAF: Siglas que identifican a la Dirección de Desarrollo Social y Asignaciones Familiares.
+Estado de cuenta: documento emitido por la CCSS que contiene el detalle de los períodos, conceptos y montos adeudados por el cotizante a una fecha determinada
+Facturas por servicios médicos: Costo asignado a las prestaciones del Seguro de Salud, brindadas al trabajador asegurado cuyo patrono se encuentra moroso por más de un mes en el pago de las cuotas obrero-patronales, así como al trabajador independiente que presente esta situación.
+FODESAF: Siglas que identifican al Fondo de Desarrollo Social y Asignaciones Familiares.
+Gastos administrativos: Cantidad de dinero en que incurre la CCSS, en la gestión administrativa y judicial de cobro.
+Honorarios: Retribución o pago por servicios de Abogacía y Notariado.
+Interés: Rendimiento que genera la existencia de un principal. Para los efectos del presente reglamento el interés será el que se establece en el artículo N° 49 de la Ley Constitutiva de la CCSS.
+Multa: Para efectos del presente reglamento se define multa como la establecida en el artículo N° 44 de la Ley Constitutiva de la CCSS.
+Pago total: Para efectos del presente reglamento, corresponde a la cancelación de todas las cuotas sujetas a condonación.
+Patrono: Toda persona física o jurídica, de derecho público o privado, que emplea los servicios de otra u otras, en virtud de un contrato de trabajo, expreso o implícito, verbal o escrito, individual o colectivo (artículo 2 del Código de Trabajo).
+Patrono Inactivo: Toda persona física o jurídica, de derecho público o privado, que se encuentra inscrita como patrono en los registros de la CCSS, pero que suspendió su actividad como tal mediante los trámites formales ante la institución aseguradora.
+Planilla adicional: Documento diseñado para registrar los datos de los patronos, así como los referentes a los trabajadores dependientes o independientes, cuyas remuneraciones o ingresos no fueron reportados oportunamente a la CCSS, así como las cuotas y aportes dejados de pagar en su oportunidad.
+Proceso de quiebra: Es una situación regulada jurídicamente en la que una persona o empresa no puede hacer frente a los pagos que debe realizar a sus acreedores, dado que estos son mayores que los recursos económicos que posee.
+Recargo: Se refiere a los montos que se cobran por presentación tardía de las planillas, que corresponde al 2% del monto total de las cuotas obrero-patronales y por la omisión o falsedad de los datos identificativos de los trabajadores, que corresponde a un 2% del salario en cada caso que se omita esa información, según lo establecido en el Reglamento de Seguro de Salud y del Reglamento de Invalidez, Vejez y Muerte ambos de la CCSS.
+SICERE: Siglas que identifican al Sistema Centralizado de Recaudación de la CCSS.
+Sociedad disuelta: Es aquella persona jurídica a la que se le suspende el desarrollo de su actividad social y entra en el proceso para terminar su operación y llegar a su liquidación, como consecuencia de la falta de pago, por tres periodos consecutivos del impuesto a las personas jurídicas (Artículo 7 de la Ley N° 9428), o en su defecto aquellas que suspenden el desarrollo de su actividad social conforme lo establecido en el artículo 201 siguientes y concordantes del Código de Comercio.
+Trabajador Independiente: Para los efectos del presente Reglamento, se entenderá como trabajador independiente aquella persona física que de manera autónoma ejecuta una actividad económica o trabajo sin subordinación y que puede organizarse a través de una unidad económica, con el fin de ordenar los recursos e insumos que le permitan producir bienes o servicios generadores de ingresos de carácter no salarial, asumiendo los riesgos de dicha actividad. El trabajador independiente ejerce el control de las actividades y por cuenta propia toma las decisiones más importantes de una unidad económica. Puede trabajar solo o en colaboración con otros trabajadores independientes y proporcionar o no trabajo a terceros.
+Trabajador Independiente inactivo: toda persona física que se encuentra inscrita como trabajador independiente en los registros de la Caja, pero que suspendió su actividad como tal, mediante los procedimientos y trámites formales para tales efectos
+Unidad económica: persona jurídica a través de la cual se desarrolla un trabajo o actividad económica.

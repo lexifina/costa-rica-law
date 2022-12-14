@@ -1,0 +1,3 @@
+Artículo 7°-De los períodos sujetos a condonación.
+La condonación se aplicará a las multas, recargos e intereses, adeudados por patronos y trabajadores independientes que superen un año de antigüedad, contados a partir del momento de la entrada en vigencia del presente reglamento.
+Para los trabajadores independientes, en los casos en que se realice la condonación de los intereses de periodos retroactivos incluidos en cuotas adicionales, la CCSS podrá realizar únicamente el cobro de las cuotas de períodos anteriores a los que ya fueron condonados, no así a sus intereses, conforme lo establecido en el último párrafo del artículo 5 de la Ley N° 10.232.
