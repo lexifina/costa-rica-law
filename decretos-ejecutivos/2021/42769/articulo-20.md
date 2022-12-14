@@ -1,2 +1,0 @@
-Artículo 20. Medio electrónico permanente. El registrante debe designar una dirección de correo electrónico como el medio para la recepción de notificaciones relacionadas con el trámite de registro. La seguridad de la cuenta designada es responsabilidad del registrante.
-El medio electrónico podrá ser modificado por el registrante en cualquier tiempo, sin perjuicio de las consecuencias jurídicas surgidas hasta ese momento producto de las notificaciones efectuadas al medio electrónico permanente anteriormente señalado.

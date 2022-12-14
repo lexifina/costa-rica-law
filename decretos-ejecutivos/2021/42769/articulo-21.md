@@ -1,3 +1,0 @@
-Artículo 21. Trámite de admisibilidad. La AC, dentro del plazo máximo de 8 días hábiles contados a partir de la presentación de la solicitud de registro, debe realizar una revisión de admisibilidad de la solicitud, que consistirá en una verificación de forma de los requisitos definidos en el artículo 18 del presente reglamento, de acuerdo con lo establecido en la Guía de Admisibilidad publicada en la página web de la AC.
-Una vez finalizado el proceso de admisibilidad y si se determina que el trámite fue admitido, la solicitud de registro se tramitará en los términos previstos en este reglamento.
-La verificación del contenido de los requisitos documentales y técnicos corresponderá a las autoridades revisoras competentes.

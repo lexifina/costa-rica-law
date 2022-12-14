@@ -1,1 +1,0 @@
-Artículo 24. Evaluación técnica ante las Autoridades revisoras competentes. El MINSA, el MINAE, así como las dependencias competentes del SFE, evaluarán, según sus competencias técnicas la documentación e información administrativa, técnica y confidencial aportada en la solicitud de registro.

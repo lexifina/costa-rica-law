@@ -1,7 +1,0 @@
-Artículo 29. Suspensión del registro IAGT. La AC suspenderá el registro si concurren una o más de las siguientes causales:
-a) El titular de registro no proporcione en el plazo otorgado por la AC, la información requerida.
-b) Por orden de la autoridad judicial, ambiental o sanitaria notificada a la AC por la autoridad que ordena el acto de suspensión.
-c) Cuando el titular del registro no se encuentre al día en el pago del canon.
-d) Cuando el titular del registro no proporcione en el plazo otorgado por la AC el material de Referencia Certificado de IAGT y sustancias relacionadas.
-La suspensión del registro, otorgado en cualquiera de sus modalidades, impide, durante el período de suspensión, el uso y comercialización en el país del producto registrado. Tampoco se podrá formular, reformular, importar, envasar, reenvasar, o reempacar los productos, a excepción que estas acciones sean necesarias para corregir la causal por la que se suspendió el registro.
-La AC, ordenará la suspensión de registro mediante el dictado de una resolución sustentada técnica y legalmente, con indicación del motivo que la origina, y se mantendrá hasta tanto se corrija el motivo de la suspensión. No obstante, si tal corrección no se ha realizado dentro de un plazo de seis meses, a partir de su notificación se procederá a la cancelación del registro de conformidad con el artículo 30, a excepción de aquellas suspensiones ordenadas por la instancia judicial.

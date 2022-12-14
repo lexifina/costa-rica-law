@@ -1,1 +1,0 @@
-Artículo 19. Conformación del expediente administrativo. Desde la presentación de la solicitud inicial y luego de dictada la resolución final, la AC, debe mantener los expedientes relativos a las solicitudes de registro, debidamente ordenados y foliados, sin perjuicio de los expedientes internos que elabore cada Autoridad revisora competente.
