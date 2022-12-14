@@ -1,1 +1,0 @@
-ARTÍCULO 4. Los registros de IAGT otorgados, conforme al presente decreto no podrán ser utilizados como perfil de referencia bajo la modalidad de registro por equivalencia, salvo que haya aportado la data completa.
