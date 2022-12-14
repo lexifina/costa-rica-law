@@ -102,6 +102,7 @@ articulo-22-transitorio.md
 articulo-23-transitorio.md
 articulo-24-transitorio.md
 articulo-25-transitorio.md
+articulo-26-transitorio.md
 articulo-1-anexo.md
 articulo-2-anexo.md
 articulo-3-anexo.md
