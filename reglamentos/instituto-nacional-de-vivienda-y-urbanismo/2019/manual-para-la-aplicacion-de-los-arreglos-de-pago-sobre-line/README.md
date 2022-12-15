@@ -14,3 +14,4 @@ Manual para la aplicación de los arreglos de pago sobre líneas de préstamos d
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-02-08 | la propia norma |
+| 2 | 2022-12-15 | Reglamento 6559 (2022-12-15) |
