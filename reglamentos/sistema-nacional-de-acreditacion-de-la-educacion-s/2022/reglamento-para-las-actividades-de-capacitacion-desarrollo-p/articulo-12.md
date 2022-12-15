@@ -1,0 +1,1 @@
+Artículo 12.-Tipos de beneficios. La DE y el CNA podrán otorgar total o parcialmente beneficios para la capacitación y el desarrollo del personal. Dependiendo del caso, los beneficios pueden consistir en uno o varios de los siguientes.

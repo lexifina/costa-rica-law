@@ -1,0 +1,3 @@
+Artículo 8º-Sobre el Plan Anual de Capacitación. Las actividades de capacitación y desarrollo se deben ejecutar con base en el Plan anual, formulado por el área de TH y aprobado por Dirección Ejecutiva, a partir de los resultados del diagnóstico de necesidades de capacitación (DNC).
+Para elaborar el Plan anual, el área de TH tomará en cuenta los requerimientos de capacitación que cada división incluya en su PAO, así como el DNC para las personas trabajadoras del SINAES.
+Los contenidos del Plan anual deberán estar estrechamente relacionados con las necesidades institucionales y las funciones que las personas trabajadoras desempeñan en esta institución, lo cual debe ser corroborado de manera coordinada entre el área de TH y la división respectiva.

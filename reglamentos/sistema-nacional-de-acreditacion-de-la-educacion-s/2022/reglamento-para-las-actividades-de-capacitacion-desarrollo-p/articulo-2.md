@@ -1,0 +1,1 @@
+Artículo 2º-Objetivo del reglamento. Este Reglamento tiene como objetivo normar el marco general para la gestión de las actividades de capacitación, desarrollo profesional y becas del personal del SINAES, siempre que las actividades sean de interés y prioridad para el SINAES y que por lo tanto contribuyen a mejorar los servicios prestados.

@@ -1,0 +1,1 @@
+Artículo 33.-Modificaciones en los programas de estudio. En caso de presentarse alguna modificación al programa de estudios, la persona beneficiaria de la beca deberá informar esta circunstancia ante TH mediante la documentación correspondiente emitida por la Institución de Educación Superior, en un plazo no mayor a un mes, después de realizada la modificación.

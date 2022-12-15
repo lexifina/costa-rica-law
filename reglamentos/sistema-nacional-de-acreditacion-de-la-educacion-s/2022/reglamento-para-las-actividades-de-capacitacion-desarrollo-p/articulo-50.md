@@ -1,0 +1,1 @@
+Artículo 50.-Enfermedad o muerte de la persona beneficiaria. En caso de enfermedad grave o muerte de la persona beneficiaria durante el periodo de cumplimiento del compromiso contractual esta quedará exenta de las obligaciones contraídas con el SINAES.

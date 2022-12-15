@@ -1,0 +1,1 @@
+Artículo 18.-Ayuda adicional. Recursos destinados para el pago de libros, licencias, accesos a plataformas, pruebas para obtener certificaciones nacionales o internacionales y cualquier otro medio que se utilice como parte de la actividad formativa.

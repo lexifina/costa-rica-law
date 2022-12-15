@@ -1,0 +1,2 @@
+Artículo 5º-Obligaciones de la administración. Es deber de la administración proporcionar las condiciones y facilidades necesarias a las personas beneficiarias para garantizar que estas inicien, se mantenga y finalicen satisfactoriamente las actividades de capacitación.
+Se excepcionan de este artículo aquellas actividades imperiosas y urgentes de la administración requeridas para la efectiva y oportuna prestación del servicio público, que ameriten interrupción de una actividad de manera justificada.

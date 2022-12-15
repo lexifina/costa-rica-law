@@ -1,0 +1,1 @@
+Artículo 3º-El financiamiento. El financiamiento, total o parcial, de la participación de las personas trabajadoras del SINAES en las actividades de capacitación y la concesión de tiempo laboral u otras facilidades quedarán sujetos a la disponibilidad de presupuesto.

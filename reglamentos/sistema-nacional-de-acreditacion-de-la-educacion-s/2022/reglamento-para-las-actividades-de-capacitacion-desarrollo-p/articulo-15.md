@@ -1,0 +1,2 @@
+Artículo 15.-Pago de viáticos. Recursos destinados para la atención de gastos de hospedaje, alimentación, impuestos, tasas de salida y otros gastos menores, que el SINAES reconoce al personal cuando éste deba desplazarse en forma transitoria del centro de trabajo para atender actividades de formación.
+El pago de viáticos y gastos de transporte, cuando proceda, se efectuará de conformidad con el "Reglamento de Gastos de Viaje y Transporte Público para Funcionarios Públicos", emitido por la CGR.

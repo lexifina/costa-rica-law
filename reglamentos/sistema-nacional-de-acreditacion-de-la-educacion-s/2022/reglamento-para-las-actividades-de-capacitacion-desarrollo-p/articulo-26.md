@@ -1,0 +1,1 @@
+Artículo 26.-Elaboración del presupuesto para becas. Para la estimación del presupuesto requerido para becas, en el mes de abril de cada año, TH solicitará a las Direcciones de División las posibles solicitudes de beca del personal a su cargo.

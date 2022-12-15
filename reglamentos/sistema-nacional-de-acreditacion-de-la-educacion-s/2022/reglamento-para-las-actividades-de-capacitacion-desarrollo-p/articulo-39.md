@@ -1,0 +1,2 @@
+Artículo 39.-De las becas concedidas u ofrecidas por organismos nacionales o internacionales. Cuando se trate de becas ofrecidas al SINAES por organismos nacionales o internacionales, la DE procederá al análisis previo, a efecto de definir si son de interés institucional.
+Una vez determinado el interés institucional la DE procederá con la realización de un concurso a nivel interno con criterios de evaluación que se informarán al momento de socializar el concurso.

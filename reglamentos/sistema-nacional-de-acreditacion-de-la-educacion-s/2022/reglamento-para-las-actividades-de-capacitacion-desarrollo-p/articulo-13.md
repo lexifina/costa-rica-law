@@ -1,0 +1,4 @@
+Artículo 13.-Permiso o licencia con goce de salario total o parcial. Se concederá como máximo un día de permiso con goce salarial para recibir lecciones, realizar trabajos finales de investigación, trabajos de campo, prácticas dirigidas, presentación de tesis y otras relacionadas directamente con los estudios.
+Para otorgar estos permisos debe tratarse de estudios conducentes a obtener un título en grados superiores y afines a la profesión de la persona trabajadora. Además, debe tratarse de un campo de estudio o especialidad de interés institucional, según lo defina la DE. Lo anterior sujeto a que la persona esté en propiedad con nombramiento de plazo indefinido.
+Este artículo no aplica para las personas trabajadoras adheridas a la convención colectiva de la Universidad de Costa Rica, párrafo segundo, artículo 70:
+"Para el otorgamiento de dicho permiso no se requiere afinidad con el puesto de trabajo."

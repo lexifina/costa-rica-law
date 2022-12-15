@@ -1,0 +1,2 @@
+Artículo 38.-Plazo para realizar y defender proyectos de graduación. Las personas becarias que cursen grados y posgrados universitarios contarán con un plazo de dieciocho meses a partir de la finalización del plan de estudios, para realizar y defender su proyecto final de graduación, en los casos en los que corresponda, y presentar la certificación o el título correspondiente.
+En el caso de los doctorados, las personas becarias contarán con un plazo de cuatro años a partir de la finalización del plan de estudios, para realizar y defender su proyecto final de graduación.

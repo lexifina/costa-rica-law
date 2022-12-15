@@ -1,0 +1,2 @@
+Artículo 4º-Obligaciones de la persona beneficiaria. Es obligación de las personas trabajadoras del SINAES someterse y cumplir satisfactoriamente con los programas de capacitación y perfeccionamiento técnico, requeridos para el buen desempeño de sus puestos, así como contribuir a la transferencia de los conocimientos adquiridos.
+La persona beneficiaria deberá colaborar como facilitador en las actividades de transmisión de conocimiento que determine la jefatura inmediata en coordinación con el área de Talento Humano.
