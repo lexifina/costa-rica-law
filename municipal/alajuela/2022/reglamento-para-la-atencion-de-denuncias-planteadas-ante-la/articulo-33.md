@@ -1,0 +1,1 @@
+Artículo 33.-El presente Reglamento, deroga el Reglamento para la Atención de Denuncias Planteadas ante la Auditoría Interna de la Municipalidad de Alajuela, publicado en el diario La Gaceta N°34 del 18 de febrero del 2010.

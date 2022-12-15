@@ -1,0 +1,1 @@
+Artículo 25.-Cuando en razón del resultado de la investigación se recomiende la apertura de un proceso administrativo para determinar eventuales responsabilidades, se adjuntará el expediente con toda la documentación habida que sustenta el hecho acusado.

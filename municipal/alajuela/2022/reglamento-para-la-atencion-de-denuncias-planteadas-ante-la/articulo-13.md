@@ -1,0 +1,1 @@
+Artículo 13.-Información que debe acompañar adicionalmente el denunciante. Deberá brindar información complementaria respecto al posible monto en perjuicio de los fondos públicos manejados por la Municipalidad de Alajuela, en caso de conocerlo; además, aportará sugerencias de otras pruebas que considere conveniente para la investigación.

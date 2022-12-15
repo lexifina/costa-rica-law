@@ -1,0 +1,5 @@
+CAPÍTULO IV:
+Fase de Investigación
+Artículo 23.-Fase de investigación. Admitida la denuncia, esta quedará incluida de oficio en el plan de trabajo de la Auditoría Interna. La fase de investigación de las denuncias dará inicio en estricto orden de recibo, con excepción de aquellas que, a criterio del Auditor Interno mediante resolución razonada, y atendiendo a la complejidad, importancia relativa y demás características del caso, deban iniciarse primero.
+Artículo 23.-Para la fase de investigación, se conformará un expediente que contendrá todas las diligencias realizadas, sean datos, informaciones, entrevistas, documentos, evidencias, elementos probatorios y demás insumos relacionados con el asunto, todo lo cual tendrá carácter confidencial. El documento original de la denuncia no formará parte de este expediente, sino que se archivará por aparte, en cumplimiento de la obligación de mantener confidencial la identidad del denunciante.
+(Nota de Sinalevi: En la publicación de este reglamento aparece dos veces el artículo N° 23)
