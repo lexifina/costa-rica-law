@@ -14,3 +14,4 @@ Reglamento interno para la tramitación de modificaciones presupuestarias de la 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-04-23 | la propia norma |
+| 2 | 2022-12-15 | Reglamento municipal 231 (2022-12-15) |

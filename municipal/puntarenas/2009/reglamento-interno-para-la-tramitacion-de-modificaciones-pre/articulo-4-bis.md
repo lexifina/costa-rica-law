@@ -1,0 +1,2 @@
+Artículo 4°-BIS: Todas las disposiciones contenidas en el presente reglamento aplican también de forma obligatoria para los Concejos Municipales de Distrito del Cantón, y en el caso de la cantidad de modificaciones presupuestarias posibles al mes referidas en el artículo número 4 inciso 1, se contabilizarán de forma individual para cada Concejo Municipal de Distrito y de forma independiente con las de la Municipalidad de Puntarenas.
+(Así adicionado en sesión N° 231 del 15 de diciembre de 2022)
