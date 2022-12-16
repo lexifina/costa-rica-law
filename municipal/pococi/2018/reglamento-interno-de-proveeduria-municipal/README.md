@@ -15,3 +15,4 @@ Reglamento interno de proveeduría municipal
 | --- | --- | --- |
 | 1 | 2019-01-08 | la propia norma |
 | 2 | 2020-06-08 | Reglamento municipal 0 (2020-06-08) |
+| 3 | 2022-12-16 | Reglamento municipal 88 (2022-12-16) |
