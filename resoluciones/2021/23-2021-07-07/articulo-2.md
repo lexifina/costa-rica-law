@@ -1,1 +1,0 @@
-Artículo 2º-Presentación del trámite de solicitud. La presentación de dicha solicitud se realizará mediante plataforma de Trámite Virtual (TRAVI), según las condiciones generales, reguladas en la resolución DGT-R-46-2020, del 23 de diciembre del 2020.

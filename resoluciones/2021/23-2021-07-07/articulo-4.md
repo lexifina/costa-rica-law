@@ -1,1 +1,0 @@
-Artículo 4º-Celeridad del trámite. Se prescinde del trámite de compensación previa para la emisión de las resoluciones que ordenan la devolución de créditos por concepto de percepción indebida del Impuesto Sobre el Valor Agregado por la compra de supuestos servicios digitales transfronterizos, así como de validar la cuenta del obligado tributario.

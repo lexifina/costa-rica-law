@@ -1,1 +1,0 @@
-Artículo 5º-Adición al artículo 1º de la resolución Nº DGT-06-2007. Adiciónese a la resolución Nº DGT-06-2007 de las ocho horas del treinta de enero del dos mil siete, publicada en La Gaceta Nº 40 el 26 de febrero del 2007, sobre prescindir de la compensación en devolución de créditos por Timbre Consular para que después de "Timbre Consular" diga: "y Timbre Fiscal".
