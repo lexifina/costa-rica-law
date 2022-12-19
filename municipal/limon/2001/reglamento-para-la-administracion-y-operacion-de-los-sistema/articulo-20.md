@@ -1,1 +1,0 @@
-Artículo 20- Estacionamiento de motocicletas. Las motocicletas que se estacionen en el espacio dedicado al estacionamiento autorizado para vehículos, deberán pagar las lasas respectivas y quedan sujetas a las sanciones que prevé este Reglamento en su articulo I3.

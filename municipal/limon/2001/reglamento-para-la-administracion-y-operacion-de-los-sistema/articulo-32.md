@@ -1,1 +1,0 @@
-Articulo 32.—Aquellos permisos de patentes que se otorguen para ventas ambulantes en las zonas de estacionamiento autorizado deberán obtener previo visto bueno del Departamento Estacionamiento Autorizado y el COLOSEVI (Consejo Local de Seguridad Vial),.

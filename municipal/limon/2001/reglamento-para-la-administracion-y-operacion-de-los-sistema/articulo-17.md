@@ -1,1 +1,0 @@
-Articulo 17.— La Municipalidad de Limón por medio de inspectores velará por el cumplimiento en el pago de la lasa establecida en este Reglamento, quienes reportarán los vehículos que infrinjan la ley en caso necesario. El jefe de sección pasará el respectivo parte o aviso, al Departamento de Tesorería de cada infracción cometida.
