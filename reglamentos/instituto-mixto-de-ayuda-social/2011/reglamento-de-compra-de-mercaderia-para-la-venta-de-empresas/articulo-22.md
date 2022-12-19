@@ -1,1 +1,0 @@
-Artículo 22.—De la justificación en la cantidad de las compras. En caso de que la administración de Empresas Comerciales sugiera adquirir una cantidad diferente a la recomendada por el lote económico esta diferencia deberá ser justificada por dicha administración y valorada por la Comisión.

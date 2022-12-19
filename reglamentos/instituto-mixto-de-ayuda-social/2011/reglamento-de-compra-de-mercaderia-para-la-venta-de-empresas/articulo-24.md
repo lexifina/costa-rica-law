@@ -1,1 +1,0 @@
-Artículo 24.—De la prohibición de modificación. Aún cuando la Comisión de Recomendación de Compras apruebe a solicitud de la Administración de Empresas Comerciales, la adquisición de una cantidad de mercadería diferente a la recomendada por el lote económico, no podrá a su criterio realizar variaciones en cantidades ni en tipos de mercadería.

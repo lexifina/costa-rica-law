@@ -1,1 +1,0 @@
-Artículo 36.—De la renovación de documentos. Los proveedores inscritos en el Registro objeto del presente Reglamento, no están obligados a solicitar nuevamente su incorporación en caso de tener su registro desactualizado, sino que será suficiente renovar aquellos documentos legales que están vencidos y notifiquen cualquier cambio en su condición.

@@ -1,1 +1,0 @@
-Artículo 38.—Del incumplimiento. El incumplimiento de los preceptos de este Reglamento se regirá por el régimen disciplinario establecido en el Reglamento Autónomo de Servicios del IMAS, siguiendo los procedimientos administrativos establecidos al efecto por la Ley General de la Administración Pública.

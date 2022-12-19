@@ -1,1 +1,0 @@
-Artículo 33.—De la mercadería almacenada. Las mercancías estarán en la bodega del IMAS habilitada por la autoridad aduanera competente y adecuada para la seguridad fiscal, con los requisitos exigidos conforme a la normativa existente.

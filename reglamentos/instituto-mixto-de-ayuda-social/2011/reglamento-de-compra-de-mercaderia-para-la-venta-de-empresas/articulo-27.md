@@ -1,1 +1,0 @@
-Artículo 27.—De la aprobación de la orden de compra. Todas las órdenes de compra, llevarán la aprobación del Proveedor y deberán realizarse de conformidad con la aprobación otorgada por la Gerencia General al acta que contiene la respectiva recomendación de la Comisión de Recomendación de Compras.

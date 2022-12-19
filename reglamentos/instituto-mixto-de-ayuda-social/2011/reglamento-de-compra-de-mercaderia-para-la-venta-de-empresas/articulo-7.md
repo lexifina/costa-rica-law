@@ -1,1 +1,0 @@
-Artículo 7º—De la ausencia temporal del Gerente General. En caso de ausencia temporal del titular de la Gerencia General, corresponderá a la Subgerencia de Soporte Administrativo ejercer la competencia establecida en el artículo anterior.
