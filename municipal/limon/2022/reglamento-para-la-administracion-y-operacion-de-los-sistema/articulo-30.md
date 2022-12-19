@@ -1,0 +1,1 @@
+Artículo 30.-Finalidad de lo recaudado: Lo que se recaude por concepto de los impuestos autorizados por esta ley, será invertido en el mantenimiento y desarrollo del sistema de Estacionómetros, en la construcción y el mantenimiento de vías públicas, instalación de sistemas de videovigilancia cantonal y en el desarrollo de cuerpos de policía municipal.

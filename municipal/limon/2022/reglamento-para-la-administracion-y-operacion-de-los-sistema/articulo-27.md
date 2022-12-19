@@ -1,0 +1,1 @@
+Artículo 27.-Transporte remunerado: La Municipalidad determinará, de común acuerdo con el Ministerio de Obras Públicas y Transportes, los espacios necesarios de parada de vehículos dedicados al transporte remunerado de personas. Estos no pagarán impuesto de estacionamiento, cuando usen las paradas oficiales destinadas para tales efectos.

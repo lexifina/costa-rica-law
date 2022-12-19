@@ -1,0 +1,3 @@
+Artículo 5º-Zonas céntricas y zonas no céntricas. En las zonas céntricas y no céntricas, se cobrará la tarifa de estacionamiento en todas aquellas vías que por sus medidas y condiciones sean aptas para el estacionamiento de vehículos.
+Las tarifas que se cobrará, tanto en zonas céntricas como en las no céntricas, serán aprobadas por el Concejo Municipal, previo estudio técnico tarifario aportado por la administración. De considerarse necesario podrá fijarse una tarifa única tanto para las zonas céntricas como en las no céntricas.
+Estas tarifas no podrán ser menores a un setenta y cinco por ciento del valor que cobren los estacionamientos privados de uso público por servicios similares.

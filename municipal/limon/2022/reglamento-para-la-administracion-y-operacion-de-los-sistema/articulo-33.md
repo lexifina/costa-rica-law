@@ -1,0 +1,2 @@
+Artículo 33.-Derogatorias: Este Reglamento deroga cualquier otra disposición administrativa o reglamentaria que se contraponga a lo aquí estipulado y publicado en fecha anterior al presente.
+Se acuerda: Aprobar Reglamento para la Administración y Operación de los Sistemas de Estaciono metros Autorizados en la Ciudad de Limón en todos sus términos, así mismo se recomienda instar a la Administración para que se sirva realizar la respectiva publicación del presente reglamento.

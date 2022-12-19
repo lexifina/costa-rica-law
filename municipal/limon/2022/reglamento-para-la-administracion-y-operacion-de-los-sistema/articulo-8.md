@@ -1,0 +1,1 @@
+Artículo 8º-Referente a daños en los vehículos: La Municipalidad de Limón, queda eximida de toda responsabilidad por cualquier daño causado al vehículo durante su estacionamiento en las zonas autorizadas, estos correrán por cuenta y riesgo del usuario.

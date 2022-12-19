@@ -1,0 +1,1 @@
+Artículo 26.-Sobre la autoridad de los inspectores: Para el mejor cumplimiento de esta ley, la Municipalidad y la Dirección General de la Policía de Tránsito, tomarán las medidas pertinentes en estrecha y efectiva colaboración, y sus delegados estarán investidos de autoridad para lo que atañe a sus actuaciones oficiales a ese respecto.
