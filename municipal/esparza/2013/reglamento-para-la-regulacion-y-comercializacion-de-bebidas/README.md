@@ -16,3 +16,4 @@ Reglamento para la Regulación y Comercialización de Bebidas con Contenido Alco
 | 1 | 2013-05-09 | la propia norma |
 | 2 | 2013-10-07 | Reglamento municipal 75 (2013-10-07) |
 | 3 | 2015-06-08 | Reglamento municipal 58 (2015-06-08) |
+| 4 | 2022-12-20 | Reglamento municipal 0 (2022-12-20) |
