@@ -1,2 +1,0 @@
-Artículo 17.-Niveles de competencia. La Junta Directiva de la Empresa otorgará competencia a las personas funcionarias que en razón de su puesto deban aprobar el inicio del proceso de contratación y dictar los actos finales de los procesos de contratación.
-El Presidente, o en su ausencia, el Gerente General, aprobará la decisión inicial para contratar en los procesos de contratación cuyo dictado del acto final sea competencia de la Junta Directiva.

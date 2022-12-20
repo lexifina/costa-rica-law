@@ -1,1 +1,0 @@
-Artículo 4º-Exportación de productos. Para la exportación de productos deberá promoverse un concurso internacional, salvo que concurran situaciones de excepción que justifiquen acudir al procedimiento establecidos en el artículo 2.2, lo cual deberá quedar acreditado en el expediente respectivo.

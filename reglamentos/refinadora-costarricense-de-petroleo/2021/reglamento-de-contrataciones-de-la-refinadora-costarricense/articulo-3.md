@@ -1,2 +1,0 @@
-Artículo 3º-Servicios por excepción. En casos debidamente justificados, se podrán utilizar las modalidades reguladas en los incisos 2.1 y 2.2, para contratar los servicios que se requieran a fin de garantizar la continuidad del servicio público encomendado por ley a RECOPE.
-Para tal efecto, en el expediente administrativo de la contratación deberán acreditarse las razones que justifiquen esta contratación.
