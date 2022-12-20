@@ -1,0 +1,1 @@
+ARTÍCULO 8.- Los principios del CCPJE serán el de velar por una correcta incorporación de las personas jóvenes en el quehacer municipal impulsando la toma en cuenta de este sector en decisiones de relevancia y la puesta en práctica de acciones afirmativas para la atención de necesidades e intereses.

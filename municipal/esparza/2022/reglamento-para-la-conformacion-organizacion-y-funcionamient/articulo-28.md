@@ -1,0 +1,1 @@
+ARTÍCULO 28.- De conformidad con lo que establece el artículo 50 de la Ley General de Administración Pública, el levantamiento de las actas es atribución propia del Secretario del Órgano, en este caso del CCPJE, y constituye un requisito de validez de los acuerdos tomados en la respectiva sesión.

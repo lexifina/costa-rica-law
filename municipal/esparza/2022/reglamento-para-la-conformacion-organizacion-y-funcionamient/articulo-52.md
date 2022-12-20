@@ -1,0 +1,1 @@
+ARTÍCULO 52.- La Municipalidad deberá brindar al CPJ la información, documentos, aclaraciones y explicaciones que este requiera sobre el manejo de los fondos aportados por la Institución para el proyecto del CCPJE.

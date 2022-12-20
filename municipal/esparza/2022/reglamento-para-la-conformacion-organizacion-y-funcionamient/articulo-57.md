@@ -1,0 +1,1 @@
+ARTÍCULO 57.- Es responsabilidad del CCPJE y del funcionario de la gestión social municipal que les apoye en la gestión de sus proyectos, particularmente con la erogación de los recursos asignados, velar por una adecuada gestión de los recursos y fondos públicos de las transferencias efectuadas por el CPJ al CCPJE a través de la Municipalidad.

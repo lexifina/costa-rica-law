@@ -1,0 +1,1 @@
+ARTICULO 64.- Este Reglamento deroga el anterior Reglamento de Promoción, Constitución y Funcionamiento de los Comités Cantonales de la Persona Joven, y cualquier otra normativa de la Municipalidad de Esparza que se le oponga en contrario.

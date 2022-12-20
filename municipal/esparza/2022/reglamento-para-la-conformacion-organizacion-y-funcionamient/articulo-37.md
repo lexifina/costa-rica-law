@@ -1,0 +1,1 @@
+ARTÍCULO 37.- De conformidad con lo señalado en La Ley General de Administración Pública, en el artículo 56, las actas del CCPJE deberán contener la indicación de las circunstancias de lugar y tiempo en que se ha celebrado, los puntos principales de la deliberación, la forma y resultado de la votación y el contenido de los acuerdos.

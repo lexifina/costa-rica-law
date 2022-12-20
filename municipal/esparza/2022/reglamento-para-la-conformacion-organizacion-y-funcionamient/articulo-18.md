@@ -1,0 +1,1 @@
+ARTÍCULO 18.- Las unidades o departamentos de la Municipalidad, según su área de competencia, podrán brindar el apoyo y asesoría que el CCPJE requiera cuando se tramiten consultas relacionadas con asuntos propios de su labor, por medio de la Alcaldía y del Concejo Municipal.

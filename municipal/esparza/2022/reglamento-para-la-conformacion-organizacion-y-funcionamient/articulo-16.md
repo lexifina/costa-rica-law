@@ -1,0 +1,1 @@
+ARTÍCULO 16.- La Municipalidad convocará por todos los medios disponibles a la elección del miembro del CCPJE de los sectores religiosos, debiendo establecer previamente un formulario de inscripción para realizarse. Cada organización postulará dos representantes de manera paritaria para que participen en la Asamblea de este sector.

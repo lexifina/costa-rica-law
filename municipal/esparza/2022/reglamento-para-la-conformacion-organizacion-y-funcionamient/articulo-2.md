@@ -1,0 +1,1 @@
+ARTÍCULO 2º- El presente Reglamento deberá ser acatado por las autoridades del Concejo Municipal, el personal administrativo municipal, los integrantes del CCPJE y por los sectores que postulen representantes para la conformación del CCPJE.

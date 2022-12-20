@@ -1,0 +1,2 @@
+ARTÍCULO 40.- El CPJ procederá a hacer la revisión de los Proyectos, determinando si cumplen con la información solicitada y si responden a los principios, fines y objetivos de la LGPJ y de la Política Pública de la Persona Joven.
+En el caso de cumplir con lo establecido, la Junta Directiva del CPJ autorizará la transferencia de los recursos, caso contrario, no autorizará la transferencia de los recursos. En ambos casos deberá notificar al Concejo Municipal y al CCPJE.

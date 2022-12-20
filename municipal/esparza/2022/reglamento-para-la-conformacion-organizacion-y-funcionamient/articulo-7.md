@@ -1,0 +1,1 @@
+ARTÍCULO 7.- El CCPJE tendrá como objetivo fundamental elaborar y ejecutar propuestas locales o nacionales que consideren los principios, fines y objetivos de la LGPJ, que contribuyan a la construcción de la política nacional de las personas jóvenes.

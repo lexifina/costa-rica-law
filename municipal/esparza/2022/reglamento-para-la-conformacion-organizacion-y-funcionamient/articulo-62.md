@@ -1,0 +1,1 @@
+ARTICULO 62.- La Municipalidad de conformidad con el artículo 4 de este Reglamento, dará apoyo técnico-operativo al CCPJE, para la ejecución del proyecto aprobado con la transferencia del CPJ, y brindará el informe correspondiente al CPJ sobre el gasto presupuestario realizado.

@@ -1,0 +1,1 @@
+ARTÍCULO 4º- Para la aplicación del presente Reglamento, la Administración Municipal designará un funcionario del área de gestión social para dar acompañamiento y será el encargado de la asesoría al CCPJE.

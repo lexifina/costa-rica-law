@@ -1,0 +1,1 @@
+ARTÍCULO 47.- El CPJ requerirá para hacer efectiva la transferencia a la Municipalidad, copia del oficio de la CGR donde se aprueban los presupuestos del Gobierno Local con la transferencia del CPJ incluida.
