@@ -15,3 +15,4 @@ Modificar el texto de la circular 7-2014, sobre “Información contenida en los
 | 1 | 2019-08-07 | la propia norma |
 | 2 | 2021-03-19 | Circular 67 (2021-03-19) |
 | 3 | 2021-05-14 | Circular 105 (2021-05-14) |
+| 4 | 2022-12-20 | Circular 239 (2022-12-20) |
