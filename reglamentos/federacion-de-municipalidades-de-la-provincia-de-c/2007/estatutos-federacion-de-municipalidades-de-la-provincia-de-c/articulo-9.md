@@ -2,7 +2,8 @@ Artículo 9º-De la Asamblea General: La Asamblea General, es el órgano superio
 a) El Alcalde (sa) o Intendente(a), no obstante, el Vicealcalde (sa) o Viceintendente(a) podrá representar al titular en cumplimiento de sus funciones por delegación o suplencia, ostentando los mismos derechos y obligaciones.
 b) Dos regidores nombrados por su respectivo Concejo Municipal y durarán en sus funciones el mismo período que dure su cargo electoral.
 La Asamblea General sesionará ordinariamente una vez al año en el mes de junio y en forma extraordinaria cuando sea así requerido por acuerdo del Consejo Directivo y/o cuando así lo solicite la mitad más uno los miembros de la Asamblea.
-El quórum de la Asamblea será de la mitad más uno de sus integrantes. Si efectuada la primera convocatoria no se estableciera el quórum, la Asamblea General se realizará treinta minutos después, con al menos la mitad más uno de los miembros. En el caso de que no pudiera realizarse se hará una nueva convocatoria.
+El quórum de la Asamblea será de la mitad más uno de sus integrantes que gocen de plenos derechos en ese momento. Si efectuada la primera convocatoria no se estableciera el quórum, la Asamblea General se realizará treinta minutos después, con al menos la mitad más uno de los miembros. En el caso de que no pudiera realizarse se hará una nueva convocatoria.
+(Así reformado el párrafo anterior en sesión N° 01 del 20 de diciembre de 2022)
 Los acuerdos de la Asamblea General serán tomados por simple mayoría, salvo aquellos que requieran una mayoría calificada, como las reformas parciales o totales de estatutos.
 Los miembros de la Asamblea General pierden su designación automáticamente al dejar sus funciones en la municipalidad, debiendo notificarse a la Federación el nuevo nombramiento que se haga, dentro del plazo de los siguientes 30 días, a partir del cese de sus funciones.
 (Así reformado y publicado en La Gaceta N° 228 del 11 de setiembre del 2020)

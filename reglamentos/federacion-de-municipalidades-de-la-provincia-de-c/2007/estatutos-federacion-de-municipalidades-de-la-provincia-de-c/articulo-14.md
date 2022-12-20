@@ -1,4 +1,4 @@
-Artículo 14.—Son atribuciones de la Presidencia:
+Artículo 14.-Son atribuciones de la Presidencia:
 a) Abrir, presidir, suspender y cerrar las sesiones del Consejo Directivo y de la Asamblea General.
 (Así reformado el inciso anterior y publicado en La gaceta N° 228 del 11 de setiembre del 2020)
 b) Preparar el orden del día.
@@ -8,7 +8,8 @@ e) Vigilar el orden de las sesiones.
 f) Firmar con el secretario las actas de cada sesión.
 g) Procurar la solidaridad, la fraternidad y la equitativa participación entre los miembros del Concejo Directivo.
 h) Propiciar el intercambio de información intermunicipal.
-i) Delegar y coordinar con los demás Directores el trabajo a realizar.
+i) Delegar y coordinar con los demás Directivos del Consejo el trabajo a realizar.
+(Así reformado el inciso anterior en sesión N° 01 del 20 de diciembre de 2022)
 j) Nombrar a los miembros de las comisiones que el Concejo Directivo acuerde conformar.
 k) Rendir un informe anual a la Asamblea General sobre las actividades desarrolladas por la Federación.
 l) Tramitar y ejecutar los acuerdos del Concejo Directivo.

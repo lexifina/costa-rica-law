@@ -18,3 +18,4 @@ Estatutos Federación de Municipalidades de la Provincia de Cartago
 | 3 | 2017-08-04 | Reglamento 0 (2017-08-04) |
 | 4 | 2019-01-28 | Reglamento 0 (2019-01-28) |
 | 5 | 2020-09-04 | Reglamento 0 (2020-09-04) |
+| 6 | 2022-12-20 | Reglamento 1 (2022-12-20) |

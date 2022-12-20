@@ -3,7 +3,8 @@ Tendrá un perfil profesional universitario, con grado mínimo de bachillerato, 
 (Así reformado el párrafo anterior y publicado en La Gaceta N° 19 del 28 de enero del 2019)
 Podrá ser remunerado y su salario será fijado por el Concejo Directivo de acuerdo a los establecido en el Reglamento Autónomo de la Federación.
 (Así reformado el párrafo anterior y publicado en La Gaceta N° 19 del 28 de enero del 2019)
-La oferta de empleo para el puesto será pública para favorecer la concurrencia de aspirantes.
+La oferta de empleo para el puesto deberá ser publicada en un diario de circulación nacional para favorecer la concurrencia de aspirantes.
+(Aí reformado el párrafo anterior en sesión N° 01 del 20 de diciembre de 2022)
 No podrán ejercer el cargo de Director Ejecutivo de la Federación, los regidores y síndicos de las municipalidades federadas, durante el ejercicio de sus cargos de elección popular.
 El Consejo Directivo podrá nombrar a un Director Ejecutivo Interino por no más de doce meses cumpliendo a un criterio razonado de necesidad y urgencia para la administración, debidamente demostrado y justificado.
 (Así reformado y publicado en La Gaceta N° 233 del 8 de diciembre de 2017)

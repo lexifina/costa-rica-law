@@ -1,10 +1,12 @@
-Artículo 20.—Son atribuciones de la Dirección Ejecutiva:
+Artículo 20.-Son atribuciones de la Dirección Ejecutiva:
 a) Ejercer la administración general de la Federación conforme a las disposiciones y mandatos del Concejo Directivo.
 b) Elaborar y someter al Concejo Directivo el Plan Anual Operativo con su respectivo presupuesto y plan de trabajo.
-c) Elaborar y presentar el informe de labores correspondiente al Plan Anual Operativo, antes del 15 de enero.
+c) Elaborar y presentar el informe de labores correspondiente al Plan Anual Operativo, en el mes de enero.
+(Así reformado el inciso anterior en sesión N° 01 del 20 de diciembre de 2022)
 d) Remitir a los Concejos Municipales el Plan Anual Operativo y la memoria de labores correspondiente al ejercicio anterior.
 e) Cumplir y hacer cumplir las disposiciones, acuerdos y resoluciones de la Asamblea General y del Concejo Directivo.
-f) Convocar al Concejo Directivo a sesiones extraordinarias.
+f) Convocar a la asamblea general y/o el concejo directivo de manera extraordinaria, con al menos 48 y 24 horas de anticipación respectivamente, cuando así lo considere necesario por razones fundadas.
+(Así reformado el inciso anterior en sesión N° 01 del 20 de diciembre de 2022)
 g) Promover y desarrollar las actuaciones precisas para el mejor funcionamiento de los distintos servicios y actividades que desarrolle la Federación de Municipalidades.
 h) La preparación de anteproyectos y proyectos con destino a la captación de fondos e inversiones, con carácter público o privado.
 i) Nombrar, remover o ejercer la autoridad disciplinaria en relación con el personal administrativo de la Federación. Autorizar la gestión técnica de cada actividad y servicio que preste la FEDEMUCARTAGO.
