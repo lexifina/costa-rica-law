@@ -13,3 +13,4 @@ Se modifica la circular número 256-2014, denominada "Lineamientos para el segui
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-02-22 | la propia norma |
+| 2 | 2022-12-20 | Circular 232 (2022-12-20) |
