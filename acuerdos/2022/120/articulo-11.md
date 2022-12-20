@@ -1,0 +1,2 @@
+Artículo 11.- Publicación.
+El procedimiento de selección y contratación para las contrataciones requeridas en el proceso de emisión de títulos valores en el mercado internacional y autorizadas en la Ley N° 10.332, iniciará mediante la publicación de la invitación en un medio electrónico de información internacional, así como también en la página web del Ministerio de Hacienda y del Banco Central de Costa Rica. En dicha publicación, se indicará la dirección de internet donde se puedan obtener las bases para la selección, el lugar y plazo máximo para la recepción de atestados.

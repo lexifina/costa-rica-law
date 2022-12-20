@@ -1,0 +1,3 @@
+Artículo 12.- Invitación Directa.
+De forma paralela a la publicación internacional indicada en el artículo anterior, el Ministerio de Hacienda invitará en forma directa a los potenciales oferentes para que, en caso de estar interesados, presenten sus ofertas según lo establecido en los artículos 6 y 7 de la Ley N° 10.332. Dicha invitación deberá realizarse el mismo día que se realice la publicación a que se refiere el artículo anterior.
+En la invitación se indicará la dirección de internet en donde se pueden acceder a las bases para la selección, el lugar o dirección electrónica y plazo máximo para la recepción de ofertas y el contacto respectivo en el Ministerio para enviar la información.

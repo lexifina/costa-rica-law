@@ -1,0 +1,2 @@
+Artículo 17.- Comunicación de los resultados de la preselección.
+El Ministerio de Hacienda comunicará mediante resolución, a todos los bancos de inversión participantes, el resultado del proceso de preselección, indicando el puntaje obtenido en la precalificación y, a aquellos que formen parte del grupo de bancos preseleccionados, se indicará la fecha y hora para una presentación oral de su propuesta.

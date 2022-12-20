@@ -1,0 +1,3 @@
+Artículo 3.- Integración de la Comisión Ejecutiva de Calificación y Selección.
+La Comisión Ejecutiva de Calificación y Selección, estará integrada por el Ministro de Hacienda, el Presidente del Banco Central y el Ministro (a) de Planificación Nacional y Política Económica. Esta Comisión será presidida por el Ministro de Hacienda. Asimismo, corresponderá a esta Comisión cumplir con lo establecido en el artículo 6 y 7 de la Ley N° 10.332, a cuyos efectos, y en caso de ausencia, los integrantes podrán designar un suplente de la institución que representan.
+El Director de Crédito Público o, en su ausencia, quién este designe, será el Secretario de esta Comisión.
