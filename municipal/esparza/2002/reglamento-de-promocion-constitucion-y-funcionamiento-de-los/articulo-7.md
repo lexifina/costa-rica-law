@@ -1,8 +1,0 @@
-III.—Sobre la convocatoria para la elección del comité:
-7. La Municipalidad deberá hacer una convocatoria general a las organizaciones juveniles por los medios que considere idóneos para que éstas envíen sus delegados a la Asamblea de elección del Comité Cantonal de la Persona Joven, para ello deberá cumplirse con los siguientes pasos:
-a) La convocatoria debe hacerse con un mínimo de 10 días hábiles.
-b) La asamblea debe subdividirse en elecciones por sector que deben ser avaladas por la Municipalidad.
-c) Las organizaciones cuyo sector está representado por más de una agrupación deberá presentar dos delegados (hombre y mujer) a la asamblea, en su calidad de personas con iguales derechos y deberes. En la escogencia de los representantes de la Municipalidad y el Comité Cantonal de Deportes respectivamente, deberá privar igual criterio, en virtud del principio de igualdad y heterogeneidad que fundamenta la Ley de la Persona Joven.
-d) La Municipalidad constatará la autenticidad de la organización solicitando la presentación de la copia de registro como forma de acreditación ante el evento.
-e) En caso de no presentarse ningún delegado de algunos de los sectores juveniles, sean estos religiosos, comunales, políticos, etc., la Municipalidad podrá hacer una segunda convocatoria 15 días después, pero sólo para la elección del sector o sectores no representados en la primera convocatoria. Una vez efectuada ésta, el Comité quedará constituido legalmente.
-f) La Municipalidad, por medio de su asesor(a) legal, levantará el acta respectiva de constitución del Comité, una vez concluido el proceso de elección de los representantes.

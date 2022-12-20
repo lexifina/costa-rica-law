@@ -1,1 +1,0 @@
-5. La Municipalidad pondrá en práctica un formulario que consigne estos datos, el cual será mantenido en archivo para los usos correspondientes. La organización tendrá una copia de este formulario con el recibido respectivo.
