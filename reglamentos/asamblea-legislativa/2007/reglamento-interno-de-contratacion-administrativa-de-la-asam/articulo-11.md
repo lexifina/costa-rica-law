@@ -1,2 +1,0 @@
-Artículo 11.—Cuando surja una necesidad imprevista, el programa institucional de adquisiciones podrá ser modificado, siguiendo el mismo procedimiento descrito en el artículo anterior, para modificarlo deberán adjuntarse las justificaciones correspondientes.
-La Proveeduría no tramitará las contrataciones que no estén amparadas al programa institucional de adquisiciones. Se excluyen los casos de emergencia o excepción que autorice la Administración Superior.

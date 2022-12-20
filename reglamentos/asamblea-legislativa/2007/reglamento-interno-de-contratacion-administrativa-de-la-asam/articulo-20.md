@@ -1,4 +1,0 @@
-CAPÍTULO VII
-Contrataciones de Servicios Técnicos o Profesionales
-Artículo 20.—Para contratar servicios técnicos o profesionales a cargo de personas físicas o jurídicas, la Proveeduría deberá seguir los procedimientos de licitación pública, abreviada o contratación directa, según corresponda, y únicamente será de aplicación para cubrir necesidades ocasionales y de excepcionalidad, cuyo objeto de contratación sea diferente de las labores que realizan los funcionarios de las dependencias de la Asamblea Legislativa, previo visto bueno del Departamento de Recursos Humanos.
-La unidad usuaria o programática deberá resguardar de modo apropiado los informes presentados por el contratista y avalar formalmente los pagos del contratista, conforme a los términos y plazos establecidos en el contrato y de acuerdo con la legislación vigente. También deberá remitir dichos informes al expediente principal.

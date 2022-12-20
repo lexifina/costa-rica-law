@@ -1,1 +1,0 @@
-Artículo 18.—Se tendrá como proveedor inactivo al que, habiendo sido invitado a participar en procedimientos de contratación administrativa, no haya participado en tres ocasiones, sin haber mediado justa causa, según el artículo 123 del Reglamento de la Ley de contratación administrativa.

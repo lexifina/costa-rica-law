@@ -1,1 +1,0 @@
-Artículo 14.—Para conformar el registro referido en el artículo anterior, una vez al año, por medio de una publicación en La Gaceta y dos diarios de circulación nacional, se invitará a los interesados en registrarse como proveedores de la Institución.

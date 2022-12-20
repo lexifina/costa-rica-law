@@ -1,1 +1,0 @@
-Artículo 12.—Al finalizar cada período presupuestario, la Proveeduría evaluará la gestión de adquisición de bienes y servicios e informará a la Dirección Ejecutiva del resultado de la evaluación, la cual deberá incluir las recomendaciones que considere pertinentes el Departamento de Proveeduría.

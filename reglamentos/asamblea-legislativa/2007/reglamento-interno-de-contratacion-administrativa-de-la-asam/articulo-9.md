@@ -1,1 +1,0 @@
-Artículo 9º—El programa institucional de adquisiciones deberá contar con los recursos presupuestarios necesarios, con excepción de lo dispuesto en la legislación de contratación administrativa en cuanto al inicio y la adjudicación de futuros, según el artículo 9 del Reglamento de la Ley de contratación administrativa.
