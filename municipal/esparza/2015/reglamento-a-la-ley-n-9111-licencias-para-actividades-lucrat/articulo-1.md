@@ -5,18 +5,18 @@ REGLAMENTO A LA LEY N° 9111, LICENCIAS PARA
 ACTIVIDADES LUCRATIVAS Y NO LUCRATIVAS
 DEL CANTÓN DE ESPARZA
 Considerando:
-I.—Que el artículo 169 de la Constitución Política y el artículo 3º del Código Municipal, establecen que compete a la Administración Municipal velar por los intereses y servicios locales, incluyendo velar por un adecuado funcionamiento de la actividad lucrativa que se realiza en el Cantón.
-II.—Que de conformidad con lo que establecen los artículos 79, 80, 81, 82 y 83 del Código Municipal, Ley Nº 7794 del 16 de abril de 1998, compete a la Municipalidad la potestad de establecer las políticas generales de las actividades lucrativas a desarrollarse en el Cantón.
-III.—Que la Sala Constitucional mediante el voto Nº 6469-97 de las dieciséis horas, veinte minutos del ocho de octubre de mil novecientos ochenta y siete, estableció “que es materia municipal todo lo que se refiere al otorgamiento de las licencias para el ejercicio del comercio en su más variada gama de actividades, y su natural consecuencia que es percibir el llamado impuesto de patente”.
-IV.—Que el Concejo Municipal de Esparza se encuentra facultado para emitir este Reglamento, con sustento en la Constitución Política en sus numerales 169 y 170, Código Municipal, artículos 3°, 4°, 13 y 43.
-V.—Que el Transitorio I de la Ley de Licencias para Actividades Lucrativas y No Lucrativas del Cantón de Esparza establece que la Municipalidad deberá elaborar las disposiciones reglamentarias correspondientes para implementar lo dispuesto en esta ley. Por tanto,
+I.-Que el artículo 169 de la Constitución Política y el artículo 3º del Código Municipal, establecen que compete a la Administración Municipal velar por los intereses y servicios locales, incluyendo velar por un adecuado funcionamiento de la actividad lucrativa que se realiza en el Cantón.
+II.-Que de conformidad con lo que establecen los artículos 79, 80, 81, 82 y 83 del Código Municipal, Ley Nº 7794 del 16 de abril de 1998, compete a la Municipalidad la potestad de establecer las políticas generales de las actividades lucrativas a desarrollarse en el Cantón.
+III.-Que la Sala Constitucional mediante el voto Nº 6469-97 de las dieciséis horas, veinte minutos del ocho de octubre de mil novecientos ochenta y siete, estableció "que es materia municipal todo lo que se refiere al otorgamiento de las licencias para el ejercicio del comercio en su más variada gama de actividades, y su natural consecuencia que es percibir el llamado impuesto de patente".
+IV.-Que el Concejo Municipal de Esparza se encuentra facultado para emitir este Reglamento, con sustento en la Constitución Política en sus numerales 169 y 170, Código Municipal, artículos 3°, 4°, 13 y 43.
+V.-Que el Transitorio I de la Ley de Licencias para Actividades Lucrativas y No Lucrativas del Cantón de Esparza establece que la Municipalidad deberá elaborar las disposiciones reglamentarias correspondientes para implementar lo dispuesto en esta ley. Por tanto,
 Este Concejo Municipal de Esparza resuelve emitir el siguiente:
 REGLAMENTO A LA LEY N° 9111, LICENCIAS PARA
 ACTIVIDADES LUCRATIVAS Y NO LUCRATIVAS
 DEL CANTÓN DE ESPARZA
 CAPÍTULO I
 Disposiciones generales
-Artículo 1°—Definiciones: Para los efectos del presente Reglamento se entenderán los siguientes conceptos y siglas, de esta forma:
+Artículo 1°-Definiciones: Para los efectos del presente Reglamento se entenderán los siguientes conceptos y siglas, de esta forma:
 ACAM: Asociación de Compositores y Autores Musicales de Costa Rica.
 Área de Influencia de la Municipalidad de Esparza: Comprende toda la jurisdicción del cantón de Esparza.
 Atracar: Poner una embarcación junto a muelle o junto a otra asegurándose para que no se mueva.
@@ -49,5 +49,8 @@ SUDESEG: Superintendencia de Seguros.
 SUGEF: Superintendencia General de Entidades Financieras.
 SUTEL: Superintendencia de Telecomunicaciones.
 Valla: Superficies colocadas en calles, carreteras u otros lugares, en las que se fijan anuncios publicitarios.
-Zarpe: Acción por medio del cual una embarcación parte del lugar donde se encontraba anclada o atracada.
-Cualquier otra establecida por las Leyes en las que se fundamenta este reglamento.
+Zarpe: Acción por medio del cual una embarcación parte del lugar donde se encontraba anclada o atracada. Cualquier otra establecida por las Leyes en las que se fundamenta este reglamento.
+VUI: Ventanilla Única de Inversión, es una plataforma digital, que permite realizar todos los procesos y trámites requeridos por las empresas para instalarse formalmente, operar y funcionar en Costa Rica.
+MEIC: Ministerio de Economía Industria y Comercio de Costa Rica.
+Código CIIU: Clasificación Industrial Internacional Uniforme de todas las actividades económicas.
+(Así reformado mediante publicación en el Alcance Digital N° 277 a La Gaceta N° 242 del 20 de diciembre del 2022)

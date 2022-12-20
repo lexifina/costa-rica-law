@@ -14,3 +14,4 @@ Reglamento a la ley N° 9111 Licencias para actividades lucrativas y no lucrativ
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-08-24 | la propia norma |
+| 2 | 2022-12-20 | Reglamento municipal 0 (2022-12-20) |

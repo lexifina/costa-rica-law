@@ -1,0 +1,2 @@
+Artículo 11 bis-Plataformas para trámites de licencias. La Municipalidad de Esparza de acuerdo con el Convenio "Marco para la Implementación del Proyecto VUI - PROCOMER - Municipalidad de Esparza", hará uso y pondrá a disposición de los contribuyentes la plataforma VUI para el trámite de las solicitudes de licencias comerciales conforme la plataforma así lo permita. Además, se dispone el trámite de solicitud de licencia comercial a través de la página web.
+(Así adicionado mediante publicación en el Alcance Digital N° 277 a La Gaceta N° 242 del 20 de diciembre del 2022)

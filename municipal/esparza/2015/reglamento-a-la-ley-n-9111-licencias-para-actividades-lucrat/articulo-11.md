@@ -1,41 +1,40 @@
-Artículo 11.—Requisitos extraordinarios. De acuerdo al tipo actividad económica y con fines lucrativos y no lucrativos que se trate, además, de los requisitos generales y especiales que atrás se definieron, en los siguientes casos, las solicitudes de licencia deberán aportar los siguientes requisitos extraordinarios:
+Artículo 11. -Requisitos extraordinarios. De acuerdo al tipo actividad económica y con fines lucrativos y no lucrativos que se trate, además, de los requisitos generales y especiales que atrás se definieron, en los siguientes casos, las solicitudes de licencia deberán aportar los siguientes requisitos extraordinarios:
 a) Cuando en el ejercicio de la actividad económica con fines lucrativos y no lucrativos, ya sea de manera esporádica o frecuente, surja la necesidad de organizar eventos especiales y espectáculos públicos, el solicitante deberá cumplir con los requisitos y procedimientos establecidos en el Reglamento para el Cobro del Impuesto de Espectáculos Públicos con que cuente la municipalidad.
-b) Cuando la actividad esté relacionada con eventos de índole comunal (fiestas comunales, populares, ferias, turnos y afines); los solicitantes autorizados deberá cumplir con los requisitos y procedimientos establecidos en el respectivo Reglamento para la realización de ferias, turnos, actividades y similares con que cuente la Municipalidad.
-c) Para la licencia de moteles, hoteles, apartotel, casa de alojamiento, pensiones o afines se deberá presentar Declaración jurada en donde se indique el número de habitaciones con qué cuenta, la capacidad por cada habitación y los servicios adicionales que se ofrecen.
-d) En las actividades como moteles, hoteles sin registro, casas de alojamiento ocasional, salas de masaje, “night clubs” con servicio de habitación y similares, deberá aportarse la correspondiente certificación de la calificación emitida por el IMAS. Además, para operar esos negocios, los mismos no podrán estar ubicados en un radio de quinientos metros de un centro educativo, oficialmente reconocido por el Estado, lo anterior conforme al artículo 61 de la Ley de Contingencia Fiscal (Ley N° 8343).
+b) Cuando la actividad esté relacionada con eventos de índole comunal (fiestas comunales, populares, ferias, turnos y afines); los solicitantes autorizados deberán cumplir con los requisitos y procedimientos establecidos en el respectivo Reglamento para la realización de ferias, turnos, actividades y similares con que cuente la Municipalidad.
+c) Para la licencia de moteles, hoteles, apartoteles, casas de alojamiento, pensiones o afines, se deberá presentar declaración jurada en donde se indique el número de habitaciones con qué cuenta, la capacidad por cada habitación y los servicios adicionales que se ofrecen. Además, cuando así lo ameriten, deberán cumplir con lo establecido en la Ley N°9742 "Ley Marco para la Regularización del Hospedaje No Tradicional y su intermediación a través de Plataformas Digitales".
+d) En las actividades como moteles, hoteles sin registro, casas de alojamiento ocasional, salas de masaje, "night clubs" con servicio de habitación y similares, deberá aportarse la correspondiente certificación de la calificación emitida por el IMAS. Además, para operar esos negocios, los mismos no podrán estar ubicados en un radio de quinientos metros de un centro educativo, oficialmente reconocido por el Estado, lo anterior conforme al artículo 61 de la Ley de Contingencia Fiscal (Ley N° 8343).
 e) Para el funcionamiento de karaokes, se deberá presentar:
-• El permiso de funcionamiento extendido por el Ministerio de Salud, sobre la actividad en particular.
-• Autorización para el repertorio y uso de los derechos de autor, extendido por la ACAM.
-• Calificación del Espectáculo Público, extendido por la Oficina de Control y Calificación de Espectáculo Público del Ministerio de Justicia y Paz. Cabe indicar que el permiso para la realización de esta actividad, deberá tenerlo tanto el negocio comercial en donde se desarrolla la misma, así como el dueño del equipo utilizado para esta actividad, quien deberá cumplir con los requisitos que le correspondan.
+1. El permiso de funcionamiento extendido por el Ministerio de Salud, sobre la actividad en particular.
+2. Autorización para el repertorio y uso de los derechos de autor, extendido por la ACAM.
 f) Para el funcionamiento de la actividad de café internet se deberá presentar adicionalmente un croquis en el cual se indique la distribución de los monitores de tal modo que diferencien espacios para personas menores de edad y para personas mayores de dieciocho años. A su vez se deberá presentar una declaración jurada en donde se exprese sobre la existencia de un software o cualquier otro medio adecuado sobre el servidor principal o cada terminal, con el objetivo de que se impida el acceso a las páginas web con exhibición de pornografía a los menores de edad.
 g) Para la instalación y operación de casinos se deberá aportar:
-• El dato de la cantidad de juegos a utilizar, así como el Reglamento de cada uno de ellos.
-• La autorización del ICT en que se demuestre la facultad para ejercer la actividad y la condición de hotel cuatro estrellas (aspecto indicado en la Ley N° 9050).
-• La certificación de Inscripción en el Registro de Contribuyentes del Ministerio de Hacienda.
-• La autorización del Ministerio de Seguridad Publica para el uso de la cantidad de mesas de juego y/o máquinas tragamonedas.
+1. El dato de la cantidad de juegos a utilizar, así como el reglamento de cada uno de ellos.
+2. La autorización del ICT en que se demuestre la facultad para ejercer la actividad y la condición de hotel cuatro estrellas (aspecto indicado en la Ley N° 9050).
+3. La autorización del Ministerio de Seguridad Publica para el uso de la cantidad de mesas de juego y/o máquinas tragamonedas.
 h) En la instalación de clínicas de salud, hospitales, consultorios médicos y farmacias, así como los parques industriales se deberá presentar a la Municipalidad un plan del manejo adecuado de los desechos, sean éstos basura orgánica o no, líquidos, aguas sucias y otros; lo anterior de conformidad con la normativa que rige la materia.
-i) En caso de ser una licencia para servicios profesionales o en aquellos establecimientos en donde se presten esos tipos servicios, deberán presentarse copia de los títulos que los acredita ejercer la profesión, así como copia de la incorporación al Colegio Profesional respectivo.
-j) Cuando se tratare de vehículos altoparlantes o similares con fines publicitarios o de promoción de ventas o eventos, se deberá aportar la autorización para el uso de los derechos protegidos por parte de sus autores, emitida por ACAM, y además, presentar la autorización extendida por la oficina respectiva del MOPT, en la que haga referencia del permiso para el funcionamiento de esta actividad.
-k) Para el trámite de licencias municipales de transporte público, de tipo (taxis, buses, transporte terrestre de turistas), adicionalmente, cada vehículo deberá aportarse:
-• Registro de propiedad del vehículo.
-• Derecho Circulación vigente.
-• Revisión técnica vehicular vigente.
-• Permiso o concesión, o certificación del tipo de transporte público, emitido por la oficina correspondiente del MOPT.
-• Pólizas de Seguro de Vehículos.
+i) En caso de ser una licencia para servicios profesionales o en aquellos establecimientos en donde se presten esos tipos de servicios, deberán presentarse copias de los títulos que los acredita para ejercer la profesión, así como copia de la incorporación al Colegio Profesional respectivo.
+j) Cuando se tratare de vehículos altoparlantes o similares con fines publicitarios o de promoción de ventas o eventos, se deberá aportar la autorización para el uso de los derechos protegidos por parte de sus autores, emitida por ACAM y, además, presentar la autorización extendida por la oficina respectiva del MOPT, en la que haga referencia del permiso para el funcionamiento de esta actividad.
+k) Para el trámite de licencias municipales de transporte público, de tipo (taxis, buses, transporte terrestre de turistas), adicionalmente, por cada vehículo deberá aportarse:
+1. Registro de propiedad del vehículo.
+2. Derecho Circulación vigente.
+3. Revisión técnica vehicular vigente.
+4. Permiso o concesión, o certificación del tipo de transporte público, emitido por la oficina correspondiente del MOPT.
+5. Pólizas de Seguro de Vehículos.
 l) Para los bancos y oficinas financieras será necesario presentar la correspondiente aprobación de la SUGEF para ejercer la actividad.
 m) Para la ubicación de agencias de aduanas se deberá aportar la autorización del Ministerio de Hacienda, por medio de la Dirección General de Aduanas.
 n) En cuanto a oficinas de seguridad privada o venta de armas, se deberá presentar el aval del Ministerio de Seguridad Pública.
-o) Para el funcionamiento de parqueos públicos y privados, será necesario presentar el permiso de funcionamiento del MOPT, donde indica la capacidad del parqueo, área, dirección y nombre del mismo. Además deberán cubrir con cualquier otro requisito estructural exigido por la Ley de Construcciones y su reglamento.
+o) Para el funcionamiento de parqueos públicos y privados, será necesario presentar el permiso de funcionamiento del MOPT, donde indica la capacidad del parqueo, área, dirección y nombre del mismo. Además, deberán cubrir con cualquier otro requisito estructural exigido por la Ley de Construcciones y su reglamento.
 p) En cuanto al funcionamiento de gasolineras o similares se deberá presentar el aval del Consejo de Salud Ocupacional del Ministerio de Trabajo o afín, así como la certificación de la viabilidad emitida por la Secretaría Técnica Nacional Ambiental.
 q) Para la venta de clubes de ahorro y crédito, se deberá aportar el aval del Ministerio de Economía.
 r) En cuanto al funcionamiento de salas de juegos se deberá presentar la calificación de la Oficina de Control y Calificación de Espectáculo Público del Ministerio de Justicia y Paz.
 s) Para la ubicación de un club nocturno (night club), se deberá presentar la Calificación de la Oficina de Control y Calificación de Espectáculos Públicos del Ministerio de Justicia y Paz.
 t) Para el funcionamiento de centros de educación privada, ya sea materno, primaria, secundaria, universitaria o parauniversitaria, se deberá presentar la autorización de infraestructura física del inmueble en donde se ubicará la actividad, extendida por el Departamento de Arquitectura Escolar del Centro Nacional de Infraestructura Física Educativa del Ministerio de Educación Pública, así como, la autorización por parte de la dependencia respectiva de dicho ministerio, para la emisión de los títulos de los estudiantes.
-u) En los casos de licencias municipales relacionadas con la actividad de Restaurante, el establecimiento debe cumplir, adicionalmente, con las condiciones establecidas en la Ley de Regulación y Comercialización de bebidas con contenido alcohólico y su respectivo Reglamento para el cantón de Esparza. Además deberá contar con los siguientes requisitos.
-• Mueble para caja.
-• Señalización de la ruta de evacuación en casos de emergencias.
-• Carta menú para comidas y bebidas con el respectivo precio.
-• Servicios sanitarios públicos para hombres y mujeres con los accesos y dimensiones legales en materia de accesibilidad.
-• Una o varias entradas para clientes que cumplan con la legislación sobre accesibilidad.
-v) Para los casos de licencias para el desarrollo de actividades de telecomunicaciones establecidas en el Reglamento General para Licencias Municipales en Telecomunicaciones de la Municipalidad de Esparza, se deberá aportar la respectiva autorización de la SUTEL, con la cual se avala la operación de la misma.
+u) En los casos de licencias municipales relacionadas con la actividad de Restaurante, el establecimiento debe cumplir, adicionalmente, con las condiciones establecidas en la Ley de Regulación y Comercialización de bebidas con contenido alcohólico y su respectivo Reglamento para el cantón de Esparza. Además, deberá contar con los siguientes requisitos.
+1. Mueble para caja.
+2. Señalización de la ruta de evacuación en casos de emergencias.
+3. Carta menú para comidas y bebidas con el respectivo precio.
+4. Servicios sanitarios públicos para hombres y mujeres con los accesos y dimensiones legales en materia de accesibilidad.
+5. Una o varias entradas para clientes que cumplan con la legislación sobre accesibilidad.
+v) Para los casos de licencias para el desarrollo de actividades de telecomunicaciones establecidas en el Reglamento de construcciones del INVU, se deberá aportar la respectiva autorización de la SUTEL, con la cual se avala la operación de la misma.
 w) Para los casos de licencias para el desarrollo de actividades de venta de seguros, se deberá aportar la respectiva autorización de la SUDESEG, con la cual se avala la operación de la misma.
+(Así reformado mediante publicación en el Alcance Digital N° 277 a La Gaceta N° 242 del 20 de diciembre del 2022)
