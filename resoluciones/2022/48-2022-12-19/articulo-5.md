@@ -1,0 +1,2 @@
+Artículo 5. Suspensión de intereses.
+De acuerdo con lo establecido en el artículo 217 del RPT, en el caso de solicitudes a las que corresponda el reconocimiento de intereses, el cómputo de los mismos se suspenderá por las demoras en el trámite atribuibles al obligado tributario. Dichas demoras corresponden al plazo otorgado para el cumplimiento de requisitos generales y/o específicos, que correrá desde la fecha de notificación del requerimiento respectivo, hasta el momento en que el gestionante presente lo requerido.

@@ -1,0 +1,3 @@
+Artículo 4. Incumplimiento de requisitos o de requerimiento.
+En caso de incumplimiento de los requisitos generales o específicos establecidos en el RPT o en esta resolución, la Administración Tributaria requerirá por una única vez, el cumplimiento de los mismos.
+El obligado tributario contará con un plazo de 10 días hábiles, a partir del día siguiente a la notificación del requerimiento, para la presentación de los requisitos, aclaración o información que le haya sido requerida. Una vez vencido el plazo otorgado, si ha incumplido total o parcialmente, la solicitud de devolución se declarará sin derecho al trámite, indicando los motivos, y se procederá al archivo del expediente.

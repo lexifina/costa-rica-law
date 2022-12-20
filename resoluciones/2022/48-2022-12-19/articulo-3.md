@@ -1,0 +1,4 @@
+Artículo 3. Requisitos específicos.
+El interesado, además de cumplir con los requisitos generales señalados en los artículos precedentes, deberá aportar los requisitos específicos de acuerdo con la naturaleza del crédito que reclama, detallados en el Anexo 1 de la presente resolución.
+La Administración Tributaria podrá requerir aclaraciones o documentos adicionales siempre y cuando se consideren relevantes para la valoración y resolución de la solicitud de devolución, de lo cual se dejará constancia en el respectivo expediente
+Tratándose de documentos emitidos por instituciones públicas, bastará con que el interesado suministre la referencia del mismo e institución que lo emite para que la Administración Tributaria lo solicite, no obstante, para evitar atrasos en el trámite por dicha gestión, el interesado podrá aportar copia del mismo si así lo desea, en el momento de presentar la solicitud.
