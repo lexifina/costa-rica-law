@@ -1,0 +1,1 @@
+Artículo 31.- Inspección. En todos los casos indicados en este Reglamento, la Municipalidad de Alajuela, a través del Proceso de Control Fiscal y Urbano, será el proceso encargado de inspeccionar las condiciones del local e instalaciones donde se realizarán las actividades, previo al otorgamiento del respectivo permiso y posteriormente también.

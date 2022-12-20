@@ -1,0 +1,1 @@
+Artículo 25.- Actividades excluidas. Se excluyen de la disposición anterior, aquellas actividades que, aunque se clasifiquen como espectáculos públicos, cuenten con una patente que expresamente los autorice según el Reglamento correspondiente y demás normativa vigente.

@@ -1,0 +1,1 @@
+Artículo 15.- Cálculo del depósito. El cálculo del referido depósito deberá realizarse de la misma forma que se calcula el impuesto de espectáculo público, señalado en el artículo 4 del presente reglamento.

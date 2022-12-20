@@ -1,0 +1,56 @@
+Artículo 26.- Requisitos. Para el otorgamiento del permiso respectivo, los organizadores de espectáculos públicos deberán cumplir con los siguientes requisitos generales:
+1. Solicitud de Espectáculos Públicos, debidamente llena y firmada por el solicitante y si es persona jurídica por la persona representante legal, con la especificación del tipo de actividad, horario y fecha o fechas en que se llevarán a cabo, aforo, entre otros.
+2. Copia por ambos lados de la cédula de identidad del solicitante y de la persona propietaria del inmueble al día. Si el solicitante y/o propietario del inmueble son personas jurídicas, deben presentar certificación de la(s) personería(s) vigente y aportar copia de la cédula de identidad quien ejerza la representación legal al día. Si la propiedad cuenta con varios copropietarios, debe aportar copias de las cédulas de identidad respectivas.
+3. Copia de contrato de arrendamiento del local o predio donde se realizará la actividad. O una carta del dueño o dueña del inmueble, copropietarias o copropietarios autorizando la realización del evento.
+4. Informe registral actualizado del bien inmueble, donde se realizará el evento siempre que sea posible registralmente hacerlo.
+5. Permiso Sanitario de Funcionamiento temporal extendido por el Ministerio de Salud donde se aprueban todas las actividades a realizar.
+6. Póliza de Responsabilidad Civil emitida por el Instituto Nacional de Seguros (INS) que cubra los posibles accidentes de todas las actividades del evento.
+7. Documento que garantice la participación de servicios de atención médica y paramédica durante toda la duración del evento, incluyendo vehículo y equipo móvil de atención de accidentes. Puede ser emitida por la Cruz Roja o cualquier otro centro especializado privado.
+8. Documento que garantice que el Benemérito Cuerpo de Bomberos de Costa Rica fue informado del evento.
+9. Documento que garantice la participación o monitoreo de la Fuerza Pública durante el evento.
+10. Plan de manejo de Desechos Sólidos aprobado por parte de Recolección de Desechos Sólidos de la Municipalidad de Alajuela.
+11. Declaración jurada sencilla, apegándose al artículo 318 del Código Penal, del detalle de las entradas por parte del emisor, según lo dispuesto en el artículo 10 del presente Reglamento.
+12. Depósito de garantía a favor de la Municipalidad de Alajuela, del monto resultante a lo determinado según el artículo 15 del presente Reglamento, el cual debe ser depositado en la Tesorería Municipal, ya sea mediante dinero efectivo, cheque certificado o transferencia electrónica (especificando el evento) a favor de la Municipalidad, en las cuentas que para este efecto disponga la Municipalidad de Alajuela.
+13. Estar al día con las obligaciones tributarias de la Municipalidad, tanto quien solicita como la persona propietaria o propietarias del inmueble.
+14. En todos los casos que se cobre entrada se deberá de indicar la capacidad instalada del sitio donde se realizará la actividad en la cual se determine el aforo total.
+En caso de que el evento sea gratuito, deberá presentar una declaración jurada sencilla indicando tal circunstancia, apegándose al artículo 318 del Código Penal. En caso de que se encuentre exonerado del pago del Impuesto de Espectáculos Públicos cuando el producto íntegro se destine a personas jurídicas de beneficencia, social, escolar, religiosa del Cantón Central de Alajuela; deberán aportar copia del acuerdo del Concejo Municipal donde consta la aprobación de dicha exoneración y al momento de liquidar el evento se deberán demostrar la entrega de los fondos a la organización beneficiada.
+Cuanto están exentos los espectáculos, las actividades o los torneos deportivos que organicen las Sociedades Anónimas Deportivas, las asociaciones y federaciones deportivas, debidamente inscritas en el Registro de Asociaciones Deportivas y reconocidas como por el Consejo Nacional de Deporte y la Recreación, deberán de aportar dicho documento.
+En caso de que se construyan tarimas, mega bares o estructuras temporales similares deben aportar la resolución de permiso de construcción emitido por parte del Sub Proceso Planificación Urbana. En caso de que no se cuente con este tipo de estructuras deberá presentar una declaración jurada sencilla indicando tal circunstancia, apegándose al artículo 318 del Código Penal.
+Si pretenden vender licor deberán realizar las gestiones ante el Concejo Municipal de Alajuela para la obtención de la patente temporal para el expendio de bebidas con contenido alcohólico y realizar el pago del respectivo impuesto, previo al otorgamiento del permiso de espectáculo público.
+Cuando la actividad implique el uso de pólvora o juegos pirotécnicos deberán aportar la autorización del Departamento de Armas y Explosivos del Ministerio de Seguridad Pública.
+En caso de que no se haga uso de pólvora o juegos pirotécnicos deberán presentar una declaración jurada indicando tal circunstancia, apegándose al artículo 318 del Código Penal.
+Si pretenden hacer uso de repertorio musical deberán aportar autorización extendida por la Asociación de Compositores y Autores Musicales de Costa Rica (ACAM). En caso de que no se haga uso de repertorio musical deberán presentar una declaración jurada sencilla indicando tal circunstancia, apegándose al artículo 318 del Código Penal.
+Si el evento contempla el cierre parcial o total de rutas cantonales, deberán aportar copia del Acuerdo Municipal mediante el cual el Concejo Municipal de Alajuela autoriza la realización del mismo. En caso de que el evento contemple el cierre parcial o total de rutas nacionales deberán aportar el permiso de la Dirección General de Tránsito del Ministerio de Obras Públicas y Transporte (MOPT). En caso de que no se realice el cierre de calles, deberá presentar una declaración jurada sencilla indicando tal circunstancia, apegándose al artículo 318 del Código Penal.
+En caso de que se requieran patentes comerciales temporales para el evento, deberán presentar la solicitud formal con al menos un mes de anticipación, cumpliendo con los requisitos establecidos para tal fin.
+En caso de que el organizador suscriba contratos privados con terceras personas para la realización de actividades que forman parte del evento, tales como carruseles, corridas de todos u otras; deberán aportar copia de los respectivos contratos, copia de las cédulas de identidad de las partes y cuando se trate de personas jurídicas, deberán aportar copias de las personerías jurídicas vigentes y copia de las cédulas de los representantes legales. En tal circunstancia, las pólizas deberán estar a nombre de las personas responsables de dichas actividades.
+Cuando se trate de conciertos, además de los requisitos generales deberán aportar:
+. Fotocopia de los diferentes tipos de tiquetes.
+. Documento emitido por la Dirección Nacional de Control y Calificación de Espectáculos Públicos donde se califica el espectáculo público.
+. Croquis del evento donde se detallen al menos las diferentes zonas de ubicación del público según los diferentes tipos de tiquetes, los accesos (entrada y salida), y tarimas. Además, deberán indicar el área habilitada para personas con discapacidad, la que debe ser un 5% del aforo en los sitios donde se realizará la actividad, según lo dispone la Ley No. 8306, denominada Ley para Asegurar en los Espectáculos Públicos Espacios Exclusivos para Personas con Discapacidad.
+En caso de turnos, ferias, miniferias, fiestas patronales o similares además de los requisitos generales deberán aportar:
+. Lista completa de los carruseles, juegos y actividades que se pretenden realizar.
+. Póliza del INS que cubra de accidentes a las personas usuarias de los carruseles.
+En caso de topes o cabalgatas, exhibiciones de animales u otros similares, además de los requisitos generales establecidos para los espectáculos públicos con excepción del Permiso Sanitario, deberán aportar:
+. Certificado Veterinario de Operación emitido por el Servicio Nacional de Salud Animal (SENASA).
+. Programa de la actividad que contenga el cronograma.
+. Si el tope se va a realizar en rutas cantonales deben aportar copia del acuerdo municipal mediante el cual el Concejo Municipal de Alajuela autoriza la realización del mismo. En caso de que el tope contemple el cierre parcial o total de rutas nacionales deben aportar el permiso de la Dirección General de Tránsito del Ministerio de Obras Públicas y Transporte.
+. Croquis del recorrido del tope.
+Cuando se trate de actividades relacionadas con semiovientes, tales como corridas o monta de toros, entre otros, además de los requisitos generales indicados anteriormente debe cumplirse con lo siguiente:
+. Permiso de funcionamiento del redondel extendido por el Ministerio de Salud.
+. Contrato taurino y programa de la actividad.
+. Certificado Veterinario de Operación emitido por el Servicio Nacional de Salud Animal (SENASA).
+. Póliza de Responsabilidad Civil, por lesión y/o muerte de terceras personas y/o daños a la propiedad de terceras personas, que cubra el evento y copia del recibo oficial de la prima.
+. Póliza básica de accidentes que cubra a las personas montadoras, así como a las personas toreras improvisadas y copia del recibo oficial de prima.
+. Póliza de riesgos que cubre las labores realizadas por las personas montadoras y toreras contratadas y copia del recibo oficial de prima.
+. Resolución del permiso de construcción de la estructura temporal del redondel.
+Todas las actividades que involucren animales deberán cumplir con las leyes, decretos y reglamentos para su bienestar, que al efecto se encuentren vigentes en Costa Rica.
+En caso de karaoke, música en vivo, shows y similares que se realizan en bares y restaurantes, solamente deberán cumplir con:
+. Solicitud de Espectáculos Públicos, debidamente llena y firmada por la persona patentada y si es persona jurídica por quien sea representante legal.
+. Horario y fechas de la actividad o actividades.
+. Copia por ambos lados de la cédula de identidad vigente de quien solicita, si se trata de persona física. Tratándose de persona jurídica, deberá aportar: certificación de personería jurídica de la sociedad con no más de un mes de emitida y copia de la cédula de identidad de quien o quienes sean representante (s) legal (es) al día de la solicitud.
+. Póliza de Responsabilidad Civil a nombre de la persona patentada.
+. Copia de permiso de confinamientos de ruidos y molestias vigente aprobado por parte del Ministerio de Salud.
+. Copia del Permiso Sanitario de Funcionamiento del Ministerio de Salud, del establecimiento comercial vigente a nombre de la persona patentada.
+. Estar al día con las obligaciones tributarias de la Municipalidad de Alajuela, tanto quien realiza la solicitud como la persona propietaria del inmueble.
+. Contar con Licencia para el Expendio de Bebidas con Contenido Alcohólico vigente en caso de que se comercialice licor.
+. En caso de música en vivo, aportar el documento emitido por la Dirección Nacional de Control y Calificación de Espectáculos Públicos donde se califica el espectáculo público, de acuerdo con la Ley No. 7440 "Ley de Espectáculos Públicos, Materiales Audiovisuales e Impresos" y el Decreto Ejecutivo No. 26937 "Reglamento a la Ley General de Espectáculos Públicos, Materiales Audiovisuales e Impresos".

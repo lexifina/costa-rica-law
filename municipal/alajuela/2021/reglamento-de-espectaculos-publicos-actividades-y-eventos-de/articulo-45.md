@@ -1,0 +1,1 @@
+Artículo 45.- Todas las solicitudes que regula este reglamento deberán contener un correo electrónico como medio de notificación, según lo regula la Ley de Notificaciones bajo la responsabilidad de que si no funciona se dará por notificado 24 horas después de ser notificado.

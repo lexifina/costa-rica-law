@@ -1,0 +1,1 @@
+Artículo 13.- Evasión del impuesto. En caso de que se evada el pago del impuesto de espectáculos públicos sea parcial o totalmente, la Municipalidad de Alajuela procederá a la determinación oficiosa del monto dejado de percibir, recurriendo para ello a lo previsto en el Código de Normas y Procedimientos Tributarios.

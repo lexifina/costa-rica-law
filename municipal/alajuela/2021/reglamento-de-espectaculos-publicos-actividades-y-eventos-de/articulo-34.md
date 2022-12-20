@@ -1,0 +1,1 @@
+Artículo 34.- Declaraciones juradas. Las declaraciones juradas que menciona este Reglamento podrán realizarse en un solo documento cuando sea para una misma actividad o para un periodo específico, según sea el caso y detallando cada uno de los requisitos solicitados.

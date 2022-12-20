@@ -1,0 +1,1 @@
+Artículo 29.- Plazo para la presentación de solicitudes. Las solicitudes de permiso para realizar actividades de las previstas en este reglamento deberán presentarse, con el menos un mes de anticipación a la fecha de realización del evento.
