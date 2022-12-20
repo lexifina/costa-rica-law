@@ -1,0 +1,2 @@
+Sección VI Director de Proyecto
+Artículo 14°. Persona nombrada por la Administración Superior, Auditoría Interna, jefaturas de División y Dirección, para liderar al equipo responsable de alcanzar los objetivos del proyecto y que impacten en la planificación estratégica de los negocios de las diversas dependencias del ICE, según se dispone en el modelo para la Administración Proyectos Integral (API).

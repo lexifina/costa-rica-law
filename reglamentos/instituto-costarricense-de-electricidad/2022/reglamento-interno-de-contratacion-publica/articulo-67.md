@@ -1,0 +1,3 @@
+TÍTULO III TIPOS Y MODALIDADES DE CONTRATO
+Capítulo I Contrato de Obra Pública
+Artículo 67°. La contratación de obras públicas se hará mediante los procedimientos de licitación mayor, menor y reducida según corresponda a los umbrales establecidos en el artículo 36 de la Ley General de Contratación Pública. Para su realización se deberá cumplir con la decisión inicial que establece el presente Reglamento. Además, en este caso, el Gerente respectivo deberá nombrar un director de proyecto para que verifique y apruebe el cumplimiento de cada una de las etapas de la contratación y el ciclo de vida de la obra, de conformidad con el artículo 72 de la Ley General de Contratación Pública.

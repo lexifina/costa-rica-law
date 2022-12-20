@@ -1,0 +1,4 @@
+Capítulo IX Tipos Abiertos
+Artículo 78°. La Administración podrá emplear cualquier figura contractual no regulada expresamente en el ordenamiento jurídico, ya sea porque constituyen figuras mixtas de tipos de contratos ya regulados o porque su base normativa proviene de la aplicación consuetudinaria de normas surgidas en el derecho privado y, en consecuencia, carecen de regulación legal y hasta de una nominación uniforme.
+Los reglamentos que la Administración emita para tales efectos deberán ser consultados previamente a la Dirección de Contratación Pública, a fin de que ésta presente las recomendaciones que estime procedentes, en relación con los aspectos de su competencia.
+Las contrataciones efectuadas con fundamento en un reglamento de tipo abierto deberán ser tramitadas en el sistema digital unificado.

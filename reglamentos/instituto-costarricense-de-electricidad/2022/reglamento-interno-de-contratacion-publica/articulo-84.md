@@ -1,0 +1,1 @@
+Artículo 84°. Si el recurso es declarado con lugar, la Dirección Proveeduría, en coordinación con el CCP, se encargará de efectuar las modificaciones y comunicarlas o publicarlas por los mismos medios utilizados para invitar.

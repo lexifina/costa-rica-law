@@ -1,0 +1,1 @@
+Artículo 88°. En caso de audiencia especial, la Dirección Proveeduría solicitará el dictamen técnico y/o jurídico correspondiente dentro del día hábil siguiente a su notificación; quienes tendrán un plazo de tres días hábiles para emitir su criterio. La Dirección de Proveeduría tendrá un día hábil para emitir la respuesta ante el Órgano Contralor.

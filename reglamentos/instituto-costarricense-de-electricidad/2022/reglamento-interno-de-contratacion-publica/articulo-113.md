@@ -1,0 +1,1 @@
+Artículo 113°. La Dirección Proveeduría por medio del Área de Procedimientos Administrativos dará inicio al procedimiento de resolución de contrato, con fundamento en los motivos de incumplimiento acreditados por el AC, de conformidad con el procedimiento que establece el artículo 114 de la Ley General de Contratación Pública, así como los artículos 117 y 118 de este Reglamento.

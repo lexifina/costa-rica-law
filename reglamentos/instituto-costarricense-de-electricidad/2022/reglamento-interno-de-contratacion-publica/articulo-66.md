@@ -1,0 +1,3 @@
+Artículo 66°. Contratación de tecnologías para instituciones y empresas en competencia.
+De conformidad con el artículo 70 de la Ley General de Contratación Pública, el ICE podrá utilizar este procedimiento especial cuando contraten la adquisición, el mantenimiento y la actualización o el arrendamiento de equipos tecnológicos para la informática, hardware y software y desarrollos de sistemas informáticos.
+Para la realización de esta contratación especial se utilizará el procedimiento estipulado en el artículo 68 de la Ley General de Contratación Pública y cumplir con los requisitos establecidos en el artículo 64 de este Reglamento.

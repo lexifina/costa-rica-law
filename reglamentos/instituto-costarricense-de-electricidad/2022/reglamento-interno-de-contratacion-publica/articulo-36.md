@@ -1,0 +1,1 @@
+Artículo 36°. Razonabilidad del precio. Toda recomendación de adjudicación deberá incluir un estudio de razonabilidad del precio, según lo establece el artículo 41 de la Ley General de Contratación Pública.

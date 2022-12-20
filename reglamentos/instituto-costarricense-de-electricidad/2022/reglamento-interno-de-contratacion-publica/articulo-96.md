@@ -1,0 +1,1 @@
+Artículo 96°. En caso de acogerse el recurso de revocatoria, la Administración cuenta con un plazo de 10 días hábiles para readjudicar. En casos excepcionaleseste plazo podrá prorrogarse por un plazo de 5 días hábiles.
