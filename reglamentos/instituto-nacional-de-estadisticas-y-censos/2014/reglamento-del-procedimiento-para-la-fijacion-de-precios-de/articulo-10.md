@@ -1,1 +1,0 @@
-Artículo 10. Se adjunta al presente reglamento la tabla de precios de los productos que actualmente ofrece el INEC. El precio de los servicios se establece conforme a los criterios en el presente reglamento.
