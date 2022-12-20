@@ -1,0 +1,2 @@
+Artículo 22.-Almacenamiento de Activos devueltos a bodega. Los activos a donar deben ser devueltos a bodega y estar en un lugar con las condiciones adecuadas de seguridad hasta su disposición final para que no se extravíen.
+Así mismo, los activos en buenas condiciones que sean devueltos a la bodega, para luego ser reasignados tienen que ser custodiados por la bodega municipal hasta que el encargado de activos solicite el retiro del mismo para la reasignación de custodio.

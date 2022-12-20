@@ -1,0 +1,1 @@
+Artículo 12.-Responsabilidades de la Alcaldía. La Alcaldía Municipal girará las directrices correspondientes; a su vez gestionará ante el Concejo Municipal la aprobación de las políticas relacionadas con activos y aprobación de reglamentos, así como de incoar los procedimientos administrativos disciplinarios en los casos de los artículos 28, 29 y 34 del presente Reglamento.

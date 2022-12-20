@@ -1,0 +1,1 @@
+Artículo 43.-Traslado de Custodios: Cuando un Custodio sea trasladado a otra dependencia, sus activos asignados permanecerán en la ubicación original y deberán ser reasignados en forma inmediata al Director, salvo que exista acuerdo de las jefaturas para el traslado de los bienes.

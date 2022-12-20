@@ -1,0 +1,2 @@
+Artículo 49.-Casos no previstos en este Reglamento: Los casos no previstos en este Reglamento se resolverán conforme con la jurisprudencia administrativa y los dictámenes del Poder Ejecutivo, de la Procuraduría General de la República y de la Contraloría General de la República, emitidos sobre la materia aquí reglamentada.
+Se somete a consulta pública por el plazo de 10 días hábiles a partir de su publicación.

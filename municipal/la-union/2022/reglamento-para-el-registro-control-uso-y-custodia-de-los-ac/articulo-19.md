@@ -1,0 +1,1 @@
+Artículo 19.-Lugar donde deben pernoctar los activos. Los activos móviles deberán pernoctar en las instalaciones de la Municipalidad, establecidas para dicho fin, a excepción de aquellos bienes que por situaciones especiales o por su naturaleza, deban resguardarse fuera de las mismas con previa autorización del superior jerárquico inmediato.

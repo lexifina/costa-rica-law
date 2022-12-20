@@ -1,0 +1,1 @@
+Artículo 3º-Alcance. Las disposiciones contenidas en este y Reglamento son de aplicación obligatoria para todos los funcionarios(as) de la Municipalidad de La Unión en el desempeño de sus actividades y en especial de aquellos que custodien o usen bienes de la institución.

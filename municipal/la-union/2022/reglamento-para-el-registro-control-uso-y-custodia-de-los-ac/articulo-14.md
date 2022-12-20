@@ -1,0 +1,1 @@
+Artículo 14.-Responsabilidad de Las Jefaturas. Las jefaturas serán responsables de velar que el Reglamento de Activos se aplique debidamente, además suministrarán el apoyo necesario al Encargado de Activos y a los Custodios, en el cumplimiento de las actividades encomendadas en el mismo.

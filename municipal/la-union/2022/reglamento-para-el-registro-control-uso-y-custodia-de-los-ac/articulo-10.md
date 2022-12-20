@@ -1,0 +1,1 @@
+Artículo 10.-Responsabilidades del Director Financiero. El Director Financiero será el responsable de sugerir las políticas relacionadas con activos y además de coordinar las actividades de planificación, ejecución y evaluación a nivel institucional, enfocadas al cumplimiento de lo establecido en el presente reglamento.

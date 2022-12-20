@@ -1,0 +1,1 @@
+Artículo 38.-Deterioro anormal: Cuando un activo sufra un deterioro anormal, por las razones que fueren, el Custodio lo informará al Jefe Inmediato y/o al Encargado de Activos, en un plazo no mayor a cinco (5) días hábiles después de haber conocido del evento.

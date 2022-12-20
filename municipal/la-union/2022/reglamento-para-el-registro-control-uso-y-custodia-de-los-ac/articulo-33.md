@@ -1,0 +1,1 @@
+Artículo 33.-Escogencia de la institución beneficiada: Las instituciones que se encuentran en el registro de instituciones aptas para recibir donación, no requerirán hacer solicitud de donaciones. Para el otorgamiento de donaciones, la Comisión de Donaciones deberá escoger la o las instituciones del registro, que para tales efectos lleva la Alcaldía.

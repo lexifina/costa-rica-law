@@ -1,0 +1,11 @@
+MUNICIPALIDAD DE LA UNIÓN
+REGLAMENTO DE ACTIVOS
+REGLAMENTO PARA EL REGISTRO, CONTROL,
+USO Y CUSTODIA DE LOS ACTIVOS
+El Concejo Municipal de La Unión. De conformidad con lo que establecen los artículos 169 y 170 de la Constitución Política; 4 inciso a); y 13 inciso c); del Código Municipal y el Capítulo II de La ley General de Control Interno, emiten el siguiente reglamento.
+Considerando:
+1º-Que la Municipalidad goza de absoluta autonomía administrativa, respecto de cualquier Poder, ente u órgano público y, en este sentido tiene la potestad de dictar los reglamentos autónomos de servicio y organización en las materias de su competencia constitucional y legal.
+2º-Que la Ley de Administración Financiera y Presupuestos Públicos Nº 8131 de 18 de septiembre del 2001, establece una serie de principios y disposiciones referentes al régimen económico-financiero de los órganos y entes administradores o custodios de fondos públicos, así como deberes y responsabilidades relativas a la debida protección, custodia, inventario, correcto uso y control de los bienes y derecho propiedad del Estado y demás entes públicos.
+3º-Que la Ley de Control Interno Nº 8292 de 27 de agosto del 2002 dispone como parte de los objetivos de un sistema de control interno en la Administración Pública el deber de proteger y conservar el patrimonio público contra cualquier pérdida, despilfarro, uso indebido, irregularidad o acto ilegal.
+4º-Que en virtud de lo expuesto resulta necesario el que esta Municipalidad regule adecuadamente todo lo relativo al registro, control, uso y custodia de los bienes propiedad de la Municipalidad de La Unión. Por tanto, emite el siguiente;
+Artículo 1º-Finalidad del Reglamento: Este Reglamento tiene como fin normar los aspectos relativos a la administración general de los activos, sea bienes muebles e inmuebles, propiedad de la Municipalidad de La Unión. Rigen para estos bienes todos los principios de la Administración Pública, enunciados y establecidos en la Ley General de la Administración Pública, la Ley de Administración Financiera y Presupuestos Públicos y su Reglamento, la Ley de Contratación Administrativa y su Reglamento, y demás leyes y reglamentos atinentes a la materia.

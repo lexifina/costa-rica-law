@@ -1,0 +1,2 @@
+Artículo 29.-Delegación de donación: Le corresponde al Alcalde Municipal firmar las actas de donaciones. No obstante, éste o ésta podrán delegar formalmente esta función siguiendo al efecto las disposiciones y observando los límites que establecen la Ley General de la Administración Pública la Ley de la Administración Financiera y Presupuestos Públicos.
+En el caso de donaciones de bienes inmuebles, deberá existir la autorización expresa del Concejo Municipal mediante acuerdo. (artículo 71 del Código Municipal).
