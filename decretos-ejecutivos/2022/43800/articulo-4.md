@@ -1,0 +1,1 @@
+Artículo 4, El ICE deberá realizar la menor coita de árboles posible, y el pago de los daño forestales que correspondan según el "Manual de Pago de Daños a Terceros del ICE", previa autorización del Área de Conservación correspondiente del Sistema Nacional de .Áreas de Conservación.
