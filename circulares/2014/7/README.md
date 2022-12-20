@@ -15,3 +15,4 @@ Aclaración de la circular N° 98-2013, sobre Información contenida en los dict
 | 1 | 2014-01-13 | la propia norma |
 | 2 | 2019-08-07 | Circular 127 (2019-08-07) |
 | 3 | 2019-08-07 | Circular 128 (2019-08-07) |
+| 4 | 2022-12-20 | Circular 239 (2022-12-20) |
