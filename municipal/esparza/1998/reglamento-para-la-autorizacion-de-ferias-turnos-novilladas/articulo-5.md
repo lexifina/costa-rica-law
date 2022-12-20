@@ -1,1 +1,0 @@
-Artículo 5°—En caso de que se vayan a efectuar bailes, recibo de cancelación del impuesto del Teatro Nacional y autorización de uno del repertorio musical extendido por la Asociación de Compositores y Autores musicales de Costa Rica (ACAM).
