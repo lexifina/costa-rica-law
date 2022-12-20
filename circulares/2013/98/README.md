@@ -18,3 +18,4 @@ Información contenida en los dictámenes periciales
 | 4 | 2019-08-07 | Circular 128 (2019-08-07) |
 | 5 | 2021-03-19 | Circular 67 (2021-03-19) |
 | 6 | 2021-05-14 | Circular 105 (2021-05-14) |
+| 7 | 2022-12-20 | Circular 239 (2022-12-20) |
