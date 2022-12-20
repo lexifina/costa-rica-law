@@ -1,1 +1,0 @@
-Artículo 12. El INEC publicará en la página Web los servicios que ofrece, Además, en el Reglamento del procedimiento para la Fijación de Precios de los Productos y Servicios del INEC, establecerá la metodología para fijar el precio de cada tipo de servicio y para la actualización de los mismos.

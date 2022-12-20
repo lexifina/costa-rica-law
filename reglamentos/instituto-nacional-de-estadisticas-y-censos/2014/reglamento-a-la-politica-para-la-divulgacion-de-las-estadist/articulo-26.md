@@ -1,1 +1,0 @@
-Artículo 26. El respaldo de las bases de datos incorporará toda la documentación: directorio de variables, manuales de codificación y cualquier otro necesario para el uso correcto y la interpretación de los datos. En todos los casos, se deben resguardar las bases de datos entregadas al Archivo Institucional, independientemente de que sea luego actualizada.

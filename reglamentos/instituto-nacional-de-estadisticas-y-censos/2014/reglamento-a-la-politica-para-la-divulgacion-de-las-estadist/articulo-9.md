@@ -1,1 +1,0 @@
-Artículo 9. El ASIDE es la responsable de atender las solicitudes de información de los usuarios y lo que conlleve la aplicación de la Política de Divulgación de Resultados Estadísticos, y la entrega de Microdatos, el presente Reglamento y el Reglamento del procedimiento para la Fijación de Precios de los Productos y Servicios del INEC.

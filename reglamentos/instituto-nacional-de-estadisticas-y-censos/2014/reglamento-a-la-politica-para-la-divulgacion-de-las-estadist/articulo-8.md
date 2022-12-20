@@ -1,1 +1,0 @@
-Artículo 8. En el caso de que el INEC comprobara que alguna de las instituciones, medios de comunicación o personas, haya violado el acuerdo de confidencialidad, será excluido de entregas anticipadas futuras, y ejecutará las medidas civiles y penales que la legislación establezca para estos casos.

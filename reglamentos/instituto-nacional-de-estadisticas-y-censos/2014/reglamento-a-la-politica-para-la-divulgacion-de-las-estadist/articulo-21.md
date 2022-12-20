@@ -1,1 +1,0 @@
-Artículo 21. Los productos y servicios cartográficos estarán especificados en el Catálogo de productos del INEC. Asimismo, la metodología de fijación del precio estará especificada en el Reglamento del Procedimiento para la Fijación de Precios de los Productos y Servicios del INEC.

@@ -1,2 +1,0 @@
-CAPÍTULO VII. Sobre la protección de los archivos de datos
-Artículo 23. Se crea el Archivo Institucional de Bases de Datos con el fin de administrar el uso, resguardar y preservar las bases de microdatos, marcos muestrales, directorios, y bases de datos cartográficos. Este archivo estará bajo la responsabilidad de la UTSI, donde deberán quedar claramente establecidos y documentados el proceso y protocolos por medio de los cuales se realizará la administración, uso, respaldo y conservación de las bases de datos. Dicha documentación se publicará en la página web del INEC.

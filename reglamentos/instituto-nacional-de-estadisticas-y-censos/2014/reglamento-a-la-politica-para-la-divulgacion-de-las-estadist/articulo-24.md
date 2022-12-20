@@ -1,1 +1,0 @@
-Artículo 24. La UTSI considerará las directrices establecidas por el Archivo Nacional para la conservación documental, sobre lo cual asesorará la persona a cargo del proceso de Archivo del INEC. Asimismo, utilizará un sistema de registro y clasificación que permita la ubicación y uso de las bases de datos cuando así se requieran.
