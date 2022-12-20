@@ -1,3 +1,0 @@
-Artículo 15.—No se permite el subarriendo, ni la cesión de locales o puestos del mercado. En el caso de un concesionario o inquilino que no desee continuar con la actividad comercial desplegada, deberá devolver el local a la Municipalidad sin deuda alguna, y ésta procederá mediante remate a re-adjudicarlo respetando el debido proceso y evitar que terceros lucren con los bienes demaniales municipales.
-Respecto al lote o espacio físico sin construir anexo al costado sur del Mercado Municipal del distrito San Pedro que es parte integral del inmueble le cobijan las mismas disposiciones contenidas en el presente reglamento.
-(Así reformado en sesión N° 130 del 23 de octubre de 2012 y definitivamente aprobado en sesión N° 141 del 8 de enero de 2013)

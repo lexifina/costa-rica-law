@@ -1,1 +1,0 @@
-Artículo 2º—Se denomina Mercado los lugares construidos o destinados por la Municipalidad para servir como centro de expendio o abastecimiento de artículos de primera necesidad, consumo popular o uso doméstico.

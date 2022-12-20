@@ -1,8 +1,0 @@
-Artículo 22.—El Alcalde Municipal podrá autorizar concesión de patentes, ampliación o cambios de destino comercial del puesto o local en este Mercado; para esos efectos, el interesado previamente, deberá:
-A) Presentar el Formulario de Solicitud ante el funcionario delegado como Administrador del Mercado o en su defecto, a la Alcaldía.
-B) Estar al día con los tributos municipales.
-C) Detallar claramente el tipo de actividad a desarrollar.
-D) En caso de persona físicamente imposibilitada para firmar, o bien de personas que no sepan hacerlo, firmará a ruego otra persona, en presencia de dos testigo de libre escogencia de la primera y dicha firma será igualmente autenticada por Abogado.
-E) En caso de aprobación, la Alcaldía la remitirá a la Administración Tributaria para su incorporación al sistema y la aplicación del cobro. Es responsabilidad del intensado hacer por escrito la renuncia de su patente, caso contrario, la administración deberá seguir cargando el cobro.
-F) Antes de darle su aprobación se hará del conocimiento de la Asociación de Comerciantes del Mercado y juntos elaborarán las estimaciones de conveniencia o no para el equilibrio de las actividades en inmueble municipal, y por escrito la remitirán a la Comisión Municipal del Mercado, para que esta dictamine ante el Concejo Municipal lo que más conviene.
-G) Dicha solicitud deberá indicar con claridad el número del puesto, denominación comercial, artículos o mercaderías que expende, o las que aspira vender. No se recibirán solicitudes para comercio en general, ni nadie podrá arrogarse ese derecho dentro de locales municipales del Mercado.

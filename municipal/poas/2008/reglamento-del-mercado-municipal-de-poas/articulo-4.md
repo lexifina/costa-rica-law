@@ -1,1 +1,0 @@
-Artículo 4º—La Municipalidad coordinará y resolverá todos los asuntos pertinentes, y relacionados con los Mercados Municipales de Poás, a través de un funcionario adscrito a la Alcaldía Municipal, quien fungirá en calidad de Administrador o funcionario encargado de todas las diligencias que en aquellos centros comerciales se lleven a cabo.

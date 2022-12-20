@@ -1,1 +1,0 @@
-Artículo 25.—Queda terminantemente prohibido colocar bultos o mantener permanentemente sacos, cajones, carretillos, cajas, etc., en los pisos de los callejones. Queda también prohibido alistar mercaderías, verduras, etc.; en los pasadizos o callejones.
