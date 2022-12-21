@@ -1,0 +1,1 @@
+Artículo 61: Cuando una persona CPA sea juzgada por los Tribunales de Justicia, se encuentre culpable y se le prive de la libertad, y exista una sentencia en firme de un Tribunal de la República, la Junta Directiva procederá con la sentencia en firme a la suspensión en el ejercicio de la profesión hasta que cumpla la condena en su totalidad.

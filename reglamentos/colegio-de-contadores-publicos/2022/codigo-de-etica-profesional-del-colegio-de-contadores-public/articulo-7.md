@@ -1,0 +1,1 @@
+Artículo 7: La persona CPA podrá consultar o cambiar impresiones con otros colegas en cuestiones de criterio o de doctrina, pero nunca deberá proporcionar datos o información que identifiquen a las personas o negocios de que se trate, a menos que sea con el consentimiento de los propios interesados.

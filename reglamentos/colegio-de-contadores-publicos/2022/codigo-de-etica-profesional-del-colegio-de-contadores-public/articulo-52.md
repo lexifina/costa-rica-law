@@ -1,0 +1,1 @@
+Artículo 52: La persona CPA, en la exposición de su cátedra o lección, podrá referirse a casos reales y concretos de los negocios, pero se abstendrá de proporcionar información que identifique a personas, empresas o instituciones relacionadas con dichos casos, salvo que estos sean del dominio público.

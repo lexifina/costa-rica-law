@@ -1,0 +1,2 @@
+Artículo 65: El Tribunal de Honor está integrado por cinco miembros titulares y cinco suplentes, para que puedan actuar en caso de recusación, inhibición, ausencia definitiva o temporal. En este último caso, si un miembro titular ha iniciado un proceso, debe concluirlo hasta que finalice en su totalidad, incluyendo resolución e informes de las acciones recursivas, aunque haya nuevo integrante titular.
+Todos los integrantes, titulares y suplentes, son nombrados por la Asamblea General, de acuerdo con la normativa vigente.

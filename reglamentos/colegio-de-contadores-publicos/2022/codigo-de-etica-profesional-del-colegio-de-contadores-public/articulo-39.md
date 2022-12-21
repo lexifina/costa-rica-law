@@ -1,0 +1,2 @@
+Artículo 39: La persona CPA, en ningún caso, podrá conceder comisiones o corretajes por la obtención de un trabajo profesional. Solo podrá conceder participación en los honorarios o utilidades derivadas de su trabajo, a personas físicas o jurídicas con quienes comparta el ejercicio profesional directamente.
+Se origina una amenaza de interés propio en relación con el cumplimiento de los principios de objetividad, competencia y diligencia profesional, si la persona CPA paga o cobra honorarios por referencia o recibe una comisión con respecto a un cliente.

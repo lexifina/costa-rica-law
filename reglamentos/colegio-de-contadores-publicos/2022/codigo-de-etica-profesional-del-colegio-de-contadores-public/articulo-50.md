@@ -1,0 +1,1 @@
+Artículo 50: Es obligación de la persona CPA catedrática o docente, mantenerse actualizada en las áreas de su profesión, a fin de transmitirle al alumno los conocimientos más avanzados de la materia existentes en la teoría y la práctica profesionales.

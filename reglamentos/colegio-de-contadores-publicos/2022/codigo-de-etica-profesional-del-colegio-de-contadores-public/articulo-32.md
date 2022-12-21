@@ -1,0 +1,1 @@
+Artículo 32: La persona CPA puede participar en la elaboración, patrocinio o revisión de libros técnicos, artículos sobre materiales profesionales y entrevistas en que es permitido hacer referencia a su nombre, profesión, especialización, calidades profesionales, así como el nombre de la organización a la que pertenece.

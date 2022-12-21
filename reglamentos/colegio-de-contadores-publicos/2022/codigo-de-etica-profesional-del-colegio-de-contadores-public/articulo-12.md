@@ -1,0 +1,1 @@
+Artículo 12: En los servicios, que presten las personas jurídicas o consorcios, quien responde es la persona CPA que ha firmado el informe de aseguramiento con base en la documentación respectiva, y tiene la obligación de sostener un criterio libre e imparcial.

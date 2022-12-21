@@ -1,0 +1,5 @@
+CAPÍTULO VI
+Honorarios profesionales
+Artículo 34: La persona CPA debe cumplir con la normativa vigente en relación con los honorarios profesionales.
+Los honorarios profesionales cobrados deben ser registrados en el Libro Digital de Servicios Profesionales o mediante el uso de la plataforma de CPA Digital. Si la persona CPA omitiera este registro, incumpliría los pilares de transparencia y credibilidad.
+Una persona CPA no debe participar en un servicio que sea retribuido mediante un honorario contingente, cobrado directa o indirectamente, tal como aquellos que dependen de un juicio futuro o actual relacionado con la auditoría de un importe significativo que figura en los estados financieros, ya que puede originar amenazas al cumplimiento de los pilares fundamentales, conforme se describe en los apartados V.8.6.16 a V.8.6.18 en el marco conceptual de este Código de Ética, en especial una amenaza de interés propio en relación con el cumplimiento de los pilares de transparencia y objetividad.

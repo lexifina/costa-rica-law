@@ -1,0 +1,1 @@
+Artículo 13: Cuando una persona CPA acepte un cargo que pueda ser incompatible con sus actividades en el ejercicio profesional, deberá comunicar por escrito a la Fiscalía del Colegio de Contadores Públicos de Costa Rica, el plazo de dicho cargo.

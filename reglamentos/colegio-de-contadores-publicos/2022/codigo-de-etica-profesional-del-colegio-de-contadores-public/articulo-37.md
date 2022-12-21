@@ -1,0 +1,1 @@
+Artículo 37: La persona CPA deberá analizar cuidadosamente las necesidades que pueda tener el cliente, para proponer aquellos servicios profesionales que más convengan dentro de las circunstancias. Esta recomendación deberá darse de forma desinteresada, y estará basada en los conocimientos y experiencia de la persona CPA.

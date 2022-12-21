@@ -1,0 +1,1 @@
+Artículo 38: No deben obtenerse ventajas económicas directas o indirectas por la venta a su cliente, de productos o servicios que él haya sugerido en el ejercicio de su profesión, excepto de aquellos que sean propios de su actividad como persona CPA.

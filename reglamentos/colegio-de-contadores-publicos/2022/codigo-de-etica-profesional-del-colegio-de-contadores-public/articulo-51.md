@@ -1,0 +1,2 @@
+Artículo 51: La persona CPA debe dar a sus alumnos un trato digno y respetuoso permanentemente, acorde con su constante superación.
+La persona CPA catedrática o docente, en sus relaciones con sus alumnos, deberá abstenerse de hacer comentarios que lesionen la reputación y el prestigio de alumnos, catedráticos o docentes, colegas o de la profesión en general, y apegarse a este Código de manera práctica.

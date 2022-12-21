@@ -1,0 +1,2 @@
+Artículo 33: Una persona CPA puede realizar charlas y seminarios de capacitación profesional para sus clientes y empleados, abiertas al público, teniendo en cuenta que no se convierta en un evento forzado o coerción para colocar un producto o servicio, motivado por que es la mejor opción de mercado en respuesta a una tendencia.
+La persona CPA tienen la obligación de asegurarse de que la información y los contenidos cumplan con los requisitos promovidos y expuestos apropiadamente.

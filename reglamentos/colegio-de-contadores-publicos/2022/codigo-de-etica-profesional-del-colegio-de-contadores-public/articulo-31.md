@@ -1,0 +1,1 @@
+Artículo 31: Una persona CPA puede participar con artículos de opinión, entrevistas o en temas de interés nacional en diferentes medios de comunicación, dando a conocer los diferentes servicios profesionales.

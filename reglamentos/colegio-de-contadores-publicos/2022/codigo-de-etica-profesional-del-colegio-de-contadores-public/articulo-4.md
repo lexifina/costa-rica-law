@@ -1,0 +1,10 @@
+CAPÍTULO II
+Confidencialidad
+Artículo 4: La persona CPA tiene la obligación de respetar la confidencialidad de la información adquirida por los diferentes encargos de un cliente, con respecto a sus relaciones profesionales, o de los incidentes del empleador que surjan durante el curso de la prestación de sus servicios profesionales, incluidas aquellas que se han obtenido como subordinado dentro de una empresa. Esa confidencialidad consiste en la obligación de guardar el secreto profesional y no revelarlo por ningún motivo.
+Esta obligación continúa aun después de que termine la relación profesional con el cliente o empleador.
+La persona CPA no revelará información confidencial obtenida como resultado de relaciones profesionales y empresariales ajenas a la entidad para la que trabaja, salvo:
+a. Cuando la Fiscalía del Colegio de Contadores Públicos lo requiera por la actuación disciplinaria por denuncia o de oficio, conforme a la normativa vigente. En el caso de los papeles de trabajo o documentos de los auditores internos del sector público, se debe resguardar lo establecido en la Ley General de Control Interno y las disposiciones de la Contraloría General de la República sobre informes de Relaciones de Hechos y sus expedientes son confidenciales;
+b. Cuando expresamente el cliente o empleador autorice la divulgación, tomando en cuenta todos los posibles interesados, incluyendo los terceros que pueden ser afectados.
+c. En relación con lo establecido en la Ley sobre Estupefacientes, Sustancias Psicotrópicas, Drogas de Uso no Autorizado, Actividades Conexas, Legitimación de Capitales y Financiamiento al Terrorismo y la Ley Lucha contra Fraude Fiscal.
+d. En relación con lo indicado en la Ley sobre Responsabilidad de las Personas Jurídicas sobre Cohechos Domésticos, Soborno Transnacional y Otros Delitos, y cualquiera otra ley que así lo señale.
+En los casos señalados en c) y d), cuando la persona CPA detecte en el desarrollo de su labor, un presunto ilícito, conforme lo indican dichas leyes, tiene el deber de acatar las disposiciones referidas ante las autoridades competentes.
