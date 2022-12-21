@@ -1,0 +1,3 @@
+Artículo 17.-Juramentación
+La juramentación de las personas integrantes de CIEVAS es un acto solemne que se lleva a cabo en la Aresep o Sutel según sea el caso. Es realizada por el jerarca superior administrativo de Aresep o Sutel, en presencia de una persona representante de la Junta Directiva y de la Dirección Ejecutiva de la Comisión Nacional de Rescate de Valores (CNRV).
+Al acto de juramentación debe asistir un representante de los titulares subordinados de la institución, como responsables con los jerarcas, del fortalecimiento de la ética conforme la Ley de Control Interno y sus Normas y para reafirmar el compromiso de apoyar la Gestión Ética.

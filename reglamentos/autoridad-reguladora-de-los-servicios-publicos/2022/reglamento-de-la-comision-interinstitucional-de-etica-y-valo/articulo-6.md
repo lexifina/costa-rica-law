@@ -1,0 +1,2 @@
+Artículo 6°-Vinculación a los procesos institucionales
+La gestión de la ética es un asunto colectivo y transversal por su importancia en todos los procesos y actividades de la institución, por lo que debe quedar evidenciada en las actuaciones diarias y toma de decisiones del personal de Aresep y Sutel, con el propósito de consolidar una cultura de integridad, probidad, transparencia, control interno y rendición de cuentas.
