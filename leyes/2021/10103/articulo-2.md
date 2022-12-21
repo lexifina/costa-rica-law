@@ -37,3 +37,6 @@ Artículo 2° : Apruébense los siguientes Egresos Ordinarios y Extraordinarios 
 (Modificado por el artículo 1° del decreto ejecutivo N° 43798 del 28 de noviembre de 2022)
 (Modificado por el artículo 1° del decreto ejecutivo N° 43814 del 30 de noviembre de 2022)
 (Modificado por el artículo 1° del decreto ejecutivo N° 43840 del 8 de diciembre de 2022)
+(Reformado por el artículo 2° de la ley N° 10339 del 21 de diciembre de 2022)
+(Reformado por el artículo 3° de la ley N° 10339 del 21 de diciembre de 2022)
+(Reformado por el artículo 4° de la ley N° 10339 del 21 de diciembre de 2022)
