@@ -1,1 +1,0 @@
-Artículo 5º—Destino y uso de los recursos por el traslado de costos de la EIA: El destino y uso de los fondos objeto de este Reglamento, se rige por lo que al efecto disponen los artículos 18, 93, 94 y 95 de la Ley Orgánica del Ambiente.
