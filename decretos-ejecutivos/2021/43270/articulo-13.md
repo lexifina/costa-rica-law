@@ -6,14 +6,15 @@ d. Plazo de vigencia del contrato.
 e. Monto máximo de crédito autorizado.
 f. Plazo por el que se otorga el crédito autorizado, para los efectos del cálculo de las obligaciones correspondientes al período en curso.
 g. Tasa de interés corriente o nominal anual y mensual, aplicables al financiamiento de los saldos adeudados, según la moneda de que se trate.
-h. Tasa de Interés Efectiva, con el desglose de todos sus componentes, y la fórmula para su cálculo, sí como la explicación de la forma en que se cargan los montos o tasas determinados para ellos. Cuando se incluyan seguros deberá, además, facilitar al consumidor la indicación de la entidad aseguradora, así como una copia de la póliza o el lugar donde ubicarla, de conformidad con lo dispuesto en la Ley N° 8956, Ley Reguladora del Contrato de Seguros y en el Reglamento sobre Seguros Colectivos. Para aquellas operaciones de crédito sujetas a una tasa de interés variable se debe de incluir el mecanismo para determinarla y la fórmula para el cálculo de su variación.
-En caso de existir un cambio en el proveedor de servicios de seguro, tal circunstancia deberá ser notificada al consumidor en los medios señalados por él para tales efectos.
+h. Tasa de Interés Total Anual, con el desglose de todos sus componentes, y la fórmula para su cálculo, así como la explicación de la forma en que se cargan los montos o tasas determinados para ellos. Cuando se incluyan seguros deberá facilitar al consumidor una copia de la póliza o el lugar donde ubicarla, de conformidad con lo dispuesto en la Ley N° 8956, Ley Reguladora del Contrato de Seguros y en el Reglamento sobre Seguros Colectivos. Para aquellas operaciones de crédito sujetas a una tasa de interés variable se debe de incluir el mecanismo para determinarla y la fórmula para el cálculo de su variación.
+(Así reformado el inciso anterior por el artículo 2° del decreto ejecutivo N° 43855 del 21 de diciembre del 2022)
 j. Tasa de intereses moratorios, según la moneda de que se trate.
 k. Definición del monto base sobre el cual se aplicarán los intereses, tanto corrientes como moratorios, así como los plazos sobre los cuales se aplicarán dichas tasas.
 l. Definición y condiciones del período de gracia, según el caso.
 m. Forma y medios de pago permitidos.
 n. Fecha de pago de la transacción.
-o. Definición de los cargos administrativos.
+o. Definición de los cargos administrativos, y los cargos administrativos por gestión de cobranza, los cuales deben ajustarse a lo dispuesto en el artículo 10 del presente reglamento.
+(Así reformado el inciso anterior por el artículo 2° del decreto ejecutivo N° 43855 del 21 de diciembre del 2022)
 p. Periodicidad con la que se entregará el estado de cuenta.
 q. Definición de los gastos, costos, multas y comisiones, así como la explicación de la forma en que se cargan los montos o tasas determinados para ellos.
 r. Procedimientos para presentar reclamos y plazos para su resolución.

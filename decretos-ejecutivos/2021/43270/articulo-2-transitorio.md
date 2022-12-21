@@ -1,1 +1,1 @@
-Transitorio II. Los proveedores de servicios de crédito dispondrán de hasta cinco meses a partir de la publicación del presente Reglamento, para efectuar los ajustes relacionados a los contenidos y presentación de los estados de cuenta al consumidor.
+Transitorio II. (Derogado por el artículo 5° del decreto ejecutivo N° 43855 del 21 de diciembre del 2022)

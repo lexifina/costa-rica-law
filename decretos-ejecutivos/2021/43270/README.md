@@ -14,3 +14,4 @@ Reglamento de las operaciones financieras, comerciales y microcréditos que se o
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-12-16 | la propia norma |
+| 2 | 2022-12-21 | Decreto Ejecutivo 43855 (2022-12-21) |
