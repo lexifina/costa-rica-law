@@ -1,0 +1,2 @@
+Artículo 2: Modifícanse los artículos 2, 3 y 6 de la Ley de Presupuesto Ordinario y Extraordinario de la República para el Ejercicio Económico del 2022, Ley No. 10.103, publicada en los Alcances números 249-A, 249 -B, 249-C, 249-D, 249-E, 249-F y 249-G a La Gaceta No. 235 del 07 de diciembre de 2021, en la forma que seindica a continuación:
+(Nota de Sinalevi: Por lo extenso de su contenido y tipo de formato consultar el Alcance Digital N° 279 a La Gaceta N° 243 del 21 de diciembre de 2022)
