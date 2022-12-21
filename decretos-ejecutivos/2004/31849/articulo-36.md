@@ -1,1 +1,0 @@
-Artículo 36.—Responsables del EsIA. El desarrollador de la actividad, obra o proyecto en cuestión y su equipo consultor, serán responsables de la información que aporte al Estudio de Impacto Ambiental y estarán obligados a presentar cualquier respuesta, aclaración o adición que la SETENA requiera por medio de la presentación de un anexo oficial al Estudio de Impacto Ambiental.

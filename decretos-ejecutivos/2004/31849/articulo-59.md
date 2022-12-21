@@ -1,1 +1,0 @@
-Artículo 59.—Del costo de las audiencias públicas. Los costos necesarios para llevar a cabo una audiencia pública, deberán ser cubiertos por el desarrollador de la actividad, obra o proyecto, para lo cual la Comisión Plenaria deberá emitir una resolución administrativa indicándole, el detalle de los aspectos que debe aportar o cubrir.

@@ -1,1 +1,0 @@
-Artículo 96.—Procedimiento para determinar daño ambiental. Para determinar si existe daño ambiental deberá llevarse a cabo un procedimiento ordinario administrativo ante la SETENA, cumpliendo con lo dispuesto en la Ley General de la Administración Pública.

@@ -1,2 +1,0 @@
-III.—La SETENA, en un plazo no mayor a tres meses, reglamentará un procedimiento administrativo, ajustado a la Ley General de la Administración Pública, a la garantía constitucional del debido proceso y a los principios fundamentales que la integran, con ocasión o motivo de imponer las sanciones administrativas que correspondan, tanto para administrados o particulares, como para funcionarios públicos, por el quebranto de la normativa ambiental.
-Dado en la Presidencia de la República.—San José, a los veinticuatro días del mes mayo del dos mil cuatro.

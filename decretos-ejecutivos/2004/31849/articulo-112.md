@@ -1,3 +1,0 @@
-CAPÍTULO XII
-Costos del proceso de Evaluación de Impacto Ambiental
-Artículo 112.—Costos del proceso de EIA. De conformidad con el artículo 18 de la Ley Orgánica del Ambiente, los costos del proceso de Evaluación de Impacto Ambiental, que incluyen: los estudios técnicos, el uso de instrumentos de EIA, aplicación de medidas ambientales (preventivas, correctivas, mitigadoras o de compensación), de control y seguimiento, auditorías ambientales, implementación de los planes de gestión ambiental y demás procedimientos relacionados al proceso, deberán ser asumidos por el desarrollador de la actividad, obra o proyecto.

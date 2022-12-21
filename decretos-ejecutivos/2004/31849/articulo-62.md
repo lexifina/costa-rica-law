@@ -1,3 +1,0 @@
-CAPÍTULO VII
-Evaluación Ambiental Estratégica
-Artículo 62.—Objetivo y alcance de la Evaluación Ambiental Estratégica. La Evaluación Ambiental Estratégica tiene como objetivo integrar la variable de impacto ambiental a la planificación del desarrollo económico del país. Se aplica a los planes, programas y políticas de desarrollo nacional, regional y local; generados en entidades del Estado incluyendo municipios, cuencas hidrográficas y regiones específicas; y cuyo fin sea el planeamiento del uso del suelo, el desarrollo de infraestructura (urbana, vial, portuaria, comunicaciones, energética, turística y agrícola, entre otros), o bien el aprovechamiento de los recursos naturales (minería, energía, hidrocarburos, agua, flora y fauna).

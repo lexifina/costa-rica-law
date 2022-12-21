@@ -1,2 +1,0 @@
-Artículo 53.—Trámite de la denuncia ambiental. La SETENA deberá dar curso a la denuncia con una investigación del caso, que podría conllevar también la realización de una inspección del sitio, por medio del levantamiento de un acta y la generación del informe técnico correspondiente. Para ello, la SETENA podrá disponer del apoyo de los funcionarios de las oficinas del MINAE o de aquellos que hubiera investido legalmente de autoridad ambiental.
-La SETENA dispondrá de un plazo máximo de 15 días naturales para dar respuesta a la denuncia.

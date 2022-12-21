@@ -1,2 +1,0 @@
-Artículo 54.—Traslado de la Denuncia Ambiental. En caso de que no exista expediente en la SETENA de la actividad, obra o proyecto en el que se han llevado a cabo los hechos que se desean denunciar, ésta deberá remitir la denuncia al Tribunal Ambiental Administrativo (TAA) para su conocimiento y resolución, de conformidad del artículo 111 de la Ley Orgánica del Ambiente.
-El Tribunal Ambiental Administrativo, tal como lo dispone el artículo 109 de la Ley Orgánica del Ambiente, cuando así lo amerite, debe asesorarse por la SETENA.

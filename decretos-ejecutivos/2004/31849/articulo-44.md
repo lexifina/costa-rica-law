@@ -1,2 +1,0 @@
-Artículo 44.—Inspecciones Ambientales "ex – ante". Durante el proceso de revisión de EsIA la SETENA, podrá realizar giras de inspección al sitio donde se desarrollaría el proyecto, obra o actividad en revisión.
-Durante la inspección se verificarán en el campo los elementos esenciales del EsIA, incluyendo aspectos técnicos, socioeconómicos y culturales de relevancia. La SETENA contará con un procedimiento común para el registro de datos en este tipo de labor, el cual se establecerá y publicará vía Manual de EIA.

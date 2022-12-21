@@ -1,1 +1,0 @@
-Artículo 75.—Actualización de los datos de inscripción. Toda persona física o jurídica, inscrita como consultor ambiental o empresa consultora ambiental, asume la obligación de mantener actualizados todos los datos proporcionados para su inscripción, debiendo comunicar de inmediato a la SETENA, cualquier modificación al respecto.

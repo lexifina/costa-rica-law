@@ -1,2 +1,0 @@
-Artículo 77.—Registro de consultores ambientales externos acreditados. La SETENA llevará un registro de consultores ambientales externos, acreditados por el Ente Costarricense de Acreditación (ECA), para que le den apoyo en los procesos de revisión de los instrumentos de la EIA para los cuales sea necesario.
-En el Manual de EIA se establecerán los procedimientos y requisitos que regularán el proceso de registro y de eventual contratación o designación de los consultores ambientales externos – acreditados.

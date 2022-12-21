@@ -1,1 +1,0 @@
-Artículo 66.—Procedimientos e instrumentos de la EAE. La SETENA, vía Manual de la EIA, establecerá los lineamientos y procedimientos básicos para el desarrollo e implementación gradual de un sistema de Evaluación Ambiental Estratégica en el país como parte de su responsabilidad como autoridad de Evaluación de Impacto Ambiental conferido en la Ley Orgánica del Ambiente.
