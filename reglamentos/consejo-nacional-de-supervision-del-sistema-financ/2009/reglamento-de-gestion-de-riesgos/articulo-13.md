@@ -1,7 +1,8 @@
-Artículo 13.—Capital base. El capital base corresponde a la suma del capital primario y capital secundario, menos las deducciones establecidas en el inciso c de este artículo. El monto considerado como capital secundario no puede exceder el 100% (cien por ciento) del monto del capital primario. En el caso de las bolsas de valores, deben consolidarse los estados financieros de las sociedades que la componen según definición del Artículo 3, inciso a) del Acuerdo SUGEVAL-50-10, Reglamento de Bolsas de Valores.
-(Así reformado el párrafo anterior por el anexo 4 del "Reglamento de Bolsas de Valores," aprobado mediante sesión N° 890-2010 del 12 de noviembre de 2010)
+Artículo 13.-Capital base. El capital base corresponde a la suma del capital primario y capital secundario, menos las deducciones establecidas en el inciso c de este artículo. El monto considerado como capital secundario no puede exceder el 100% (cien por ciento) del monto del capital primario.
+(Así reformado el párrafo mediante sesión N° 1777-2022 del 22 de diciembre de 2022)
 El capital base no puede en ningún caso, ser inferior o igual al capital social mínimo exigido por ley a las entidades.
-a. Capital primario. El capital primario está conformado por las siguientes partidas:
+a. Capital primario
+El capital primario está conformado por las siguientes partidas:
 Partidas que suman
 i. Capital pagado ordinario y capital pagado preferente con dividendo no acumulativo. Debe estar aprobado por la Superintendencia General de Valores. En el caso de puestos de bolsa, el capital debe ser autorizado por las bolsas de valores y comunicado por éstas a la Superintendencia.
 ii. Capital donado que se encuentre debidamente autorizado por parte de la Superintendencia General de Valores. En el caso de los puestos de bolsa, debe ser autorizado por las bolsas de valores y comunicado por éstas a la Superintendencia.
@@ -10,8 +11,8 @@ iv. Reservas legales.
 Partidas que restan
 i. Valor en libros de las acciones de la entidad que hayan sido objeto de gravámenes por operaciones efectuadas por ella misma.
 ii. Acciones en tesorería de capital pagado ordinario y capital pagado preferente con dividendo no acumulativo.
-iii. Participaciones en acciones de otras empresas del grupo financiero y, en el caso de las bolsas de valores, las participaciones en acciones de todas las sociedades que no forman parte de la bolsa, según definición del Artículo 3, inciso a) del Acuerdo SUGEVAL-50-10, Reglamento de Bolsas de Valores.
-(Así reformado el inciso anterior por el anexo 4 del "Reglamento de Bolsas de Valores," aprobado mediante sesión N° 890-2010 del 12 de noviembre de 2010)
+iii. Valor de las participaciones en instrumentos representativos de capital en otras entidades o empresas.
+(Así reformado el inciso anterior mediante sesión N° 1777-2022 del 22 de diciembre de 2022)
 b. Capital secundario. El cálculo del capital secundario está conformado por las siguientes partidas:
 Partidas que suman
 i. Capital pagado preferente con dividendo acumulativo.

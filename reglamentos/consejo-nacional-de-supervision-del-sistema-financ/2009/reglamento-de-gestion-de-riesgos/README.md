@@ -29,3 +29,4 @@ Reglamento de Gestión de Riesgos
 | 14 | 2020-11-16 | Reglamento 1620 (2020-11-16) |
 | 15 | 2020-12-10 | Reglamento 1630 (2020-12-10) |
 | 16 | 2022-05-27 | Reglamento 1734 (2022-05-27) |
+| 17 | 2022-12-22 | Reglamento 1777 (2022-12-22) |
