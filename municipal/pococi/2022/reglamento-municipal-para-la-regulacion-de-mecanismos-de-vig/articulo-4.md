@@ -1,0 +1,4 @@
+Artículo 4º-Diseño de casetas de seguridad y dispositivos de acceso. El diseño de la caseta de seguridad y su ubicación será definido por el Departamento de Planificación y Desarrollo Urbano de la Municipalidad de Pococí.
+La caseta deberá estar equipada con un servicio sanitario que tenga un adecuado tratamiento de las aguas residuales y jabonosas, además, o en su defecto establecer una solución para estos efectos, deberá contar con agua potable y energía eléctrica, y el grupo solicitante deberá garantizar su mantenimiento permanente.
+Podrá estar equipada con medios o equipos de comunicación que garanticen la trasmisión de información a cualquier hora del día entre los vigilantes, Policía y representantes de los vecinos.
+El uso del resto de área pública no estará limitado únicamente a los vecinos de la urbanización que le da mantenimiento, sino que la misma, por su condición, podrá ser utilizada por cualquier persona.

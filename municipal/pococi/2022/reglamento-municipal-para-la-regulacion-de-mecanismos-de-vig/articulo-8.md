@@ -1,0 +1,3 @@
+Artículo 8º-Solicitante. La solicitud para la colocación de cualquiera de estos dispositivos deberá ser presentada por:
+. Los vecinos de las comunidades interesadas, por medio de una asociación formal comunitaria, como las asociaciones de desarrollo comunal u otras entidades jurídicamente similares.
+. Así mismo, por vecinos de una comunidad, por medio de una solicitud firmada al menos por el setenta por ciento (70%) de los vecinos mayores de edad de la comunidad en cuestión, quienes constituirán un comité de vecinos que se acreditará ante la municipalidad respectiva, el cual designará al menos a dos representantes formales. Cualquiera que sea la modalidad de organización vecinal, esta será la que represente a la comunidad frente al gobierno local en esta materia.

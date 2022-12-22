@@ -1,0 +1,1 @@
+Artículo 15.-Vigencia de las autorizaciones. Las autorizaciones para la colocación de casetas y dispositivos de acceso en vías públicas o bienes de dominio municipal no constituyen derechos adquiridos a favor de terceros y pueden ser revocadas en cualquier momento por el Concejo Municipal, siguiendo el debido proceso.

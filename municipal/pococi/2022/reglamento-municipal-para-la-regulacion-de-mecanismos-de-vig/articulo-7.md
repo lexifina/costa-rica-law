@@ -1,0 +1,2 @@
+Artículo 7º-Servicio de vigilancia obligatorio. Bajo ningún concepto se permitirá la existencia de los dispositivos de acceso sin la colateralidad del servicio de vigilancia que los manipule.
+La contratación de este servicio será responsabilidad del grupo solicitante y la Municipalidad no asumirá responsabilidad civil, laboral ni penal por el ejercicio de dicha actividad, además, en caso de violentarse estas condiciones se procederá a revocar el permiso municipal otorgado, previo cumplimiento del debido proceso.

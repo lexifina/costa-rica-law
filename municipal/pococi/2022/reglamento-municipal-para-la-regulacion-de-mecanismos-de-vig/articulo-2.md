@@ -1,0 +1,1 @@
+Artículo 2º-Autorización Municipal. El Concejo Municipal de Pococí podrá autorizar la instalación de casetas de seguridad y de dispositivos de acceso en lugares del cantón, ingresos de las urbanizaciones o fraccionamientos que cumplan con ser: 1. Un circuito cerrado o 2. Calle sin salida de acuerdo con lo dispuesto en la Ley 8892.
