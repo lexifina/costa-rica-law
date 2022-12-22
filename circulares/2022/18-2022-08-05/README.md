@@ -15,3 +15,4 @@ Directrices Generales de Visas de Ingreso y Permanencia para No Residentes
 | --- | --- | --- |
 | 1 | 2022-08-16 | la propia norma |
 | 2 | 2022-09-28 | Circular 27 (2022-09-28) |
+| 3 | 2022-12-22 | Circular 43 (2022-12-22) |
