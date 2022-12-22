@@ -17,3 +17,4 @@ Reglamento de Compensación y Liquidación de Valores
 | 2 | 2009-07-24 | Reglamento 794 (2009-07-24) |
 | 3 | 2009-11-26 | Reglamento 819 (2009-11-26) |
 | 4 | 2010-02-26 | Reglamento 838 (2010-02-26) |
+| 5 | 2022-12-22 | Reglamento 1777 (2022-12-22) |
