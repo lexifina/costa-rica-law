@@ -9,5 +9,7 @@ g) la capacitación en sus sistemas transaccionales, en los tipos de contrato y 
 h) la asesoría bursátil a otras bolsas.
 i) Prestar servicios de entidad repositorio de transacciones de derivados bursátiles y extra bursátiles.
 (Así adicionado el inciso anterior en sesión N° 1603 del 7 de setiembre del 2020)
+j. Prestar servicios para facilitar la operación, negociación o post contratación para el mercado de valores.
+(Así adicionado el inciso anterior mediante sesión N° 1777-2022 del 22 de diciembre de 2022)
 La bolsa puede realizar además todas las actividades administrativas y de gestión patrimonial que resulten necesarias para asegurar el buen funcionamiento de la bolsa. Adicionalmente puede solicitar ante la SUGEVAL, siguiendo el procedimiento indicado en el Artículo 29, la autorización de modificación para realizar otras actividades siempre que faciliten las transacciones con valores y se enmarquen dentro del objeto único.
 Las actividades indicadas en los incisos a), b), c) y d) deben ser realizadas por la sociedad de la bolsa de valores.

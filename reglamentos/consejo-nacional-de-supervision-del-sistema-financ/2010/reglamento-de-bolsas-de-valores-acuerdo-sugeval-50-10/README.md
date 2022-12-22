@@ -18,3 +18,4 @@ Reglamento de Bolsas de Valores (Acuerdo SUGEVAL-50-10)
 | 3 | 2016-06-17 | Reglamento 1259 (2016-06-17) |
 | 4 | 2018-06-25 | Reglamento 1426 (2018-06-25) |
 | 5 | 2020-09-07 | Reglamento 1603 (2020-09-07) |
+| 6 | 2022-12-22 | Reglamento 1777 (2022-12-22) |
