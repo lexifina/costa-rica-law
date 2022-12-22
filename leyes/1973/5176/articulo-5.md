@@ -1,7 +1,5 @@
-Artículo 5º.- Cuando el Gobierno Central y sus instituciones
-descentralizadas construyan edificaciones nuevas para servicios
-administrativos, dispondrán de un porcentaje razonable, de acuerdo con
-sus posibilidades y el costo del edificio respectivo, para su
-embellecimiento, con murales, esculturas, pinturas, muebles, lámparas,
-obras de artesanía y cualquier otra manifestación apropiada del arte
-nacional.
+Artículo 5- Cuando el Gobierno y sus instituciones descentralizadas construyan edificaciones nuevas para servicios administrativos dispondrán de un porcentaje razonable, de acuerdo con sus posibilidades y el costo del edificio respectivo, para su embellecimiento, con murales, esculturas, pinturas, muebles, lámparas, obras de artesanía y cualquier otra manifestación apropiada del arte nacional y creadas por artistas nacionales.
+El porcentaje dispuesto deberá cumplir con los criterios de razonabilidad y proporcionalidad, tomando en cuenta la situación fiscal del país y los requerimientos técnicamente justificables para su adquisición.
+Las obras de arte adquiridas, de conformidad con esta ley, se considerarán de dominio público y deberán colocarse en espacios que permitan el disfrute de todas las personas, sean estas funcionarias o no de la institución de que se trate.
+Se exceptúan de la obligación de destinar recursos para este fin, las siguientes instituciones públicas de bienestar social la Caja Costarricense de Seguro Social (CCSS), el Instituto Mixto de Ayuda Social (IMAS), el Ministerio de Educación Pública (MEP), la Junta de, Protección Social (JPS), el Instituto sobre Alcoholismo y Farmacodependencia (IAFA), el Consejo Nacional de la Persona Adulta Mayor (Conapam), el Patronato Nacional de la Infancia (PANI) y el Consejo Nacional de Personas con Discapacidad (Conapdis).
+(Así reformado por el artículo 2° de la ley N° 10149 del 22 de marzo del 2022)
