@@ -13,3 +13,4 @@
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-12-14 | la propia norma |
+| 2 | 2022-12-22 | Acuerdo 27 (2022-12-22) |
