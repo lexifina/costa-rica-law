@@ -1,0 +1,9 @@
+Artículo 41Bis. Organización del grupo financiero en que participe una bolsa de valores
+Los grupos financieros en que participe una bolsa de valores deben organizarse de la siguiente forma:
+a. La entidad controladora será una Bolsa de Valores autorizada.
+b. Debe incluir a las centrales de valores y sociedades de compensación y liquidación, autorizadas según la Ley Reguladora del Mercado de Valores, en que la bolsa participe como su accionista mayoritario.
+c. Debe incluir las empresas locales dedicadas a realizar actividades exclusivamente para facilitar la operación, negociación o post contratación para el mercado de valores y organizadas como sociedades anónimas, siempre y cuando sea propietaria de más de un 50% (cincuenta por ciento) del capital social.
+d. Pueden formar parte del grupo financiero aquellas sociedades propietarias o administradoras de los bienes muebles o inmuebles del grupo.
+e. Queda prohibido, a las entidades y empresas de un grupo financiero local, participar en el capital de otras empresas, financieras o no financieras, salvo lo dispuesto en el artículo 6 el Reglamento de Bolsas de Valores, Acuerdo Sugeval 13-10.
+En caso de que una entidad o empresa sea propiedad de dos o más bolsas de valores y no sea posible determinar la participación mayoritaria, la SUGEVAL debe recomendar su tratamiento al órgano resolutivo, mediante un análisis que considere al menos las actividades desarrolladas en cada grupo o entidad supervisada, sus gobiernos corporativos, estrategias empresariales, perfiles de riesgo, niveles de interconexión y de exposición de riesgo. Por razones prudenciales, el órgano resolutivo puede disponer la incorporación a determinado grupo financiero o la determinación de que sea tratada como entidad o empresa individual y no se incluya a ninguno de los grupos financieros.
+(Así adicionado mediante sesión N° 1777-2022 del 22 de diciembre de 2022)

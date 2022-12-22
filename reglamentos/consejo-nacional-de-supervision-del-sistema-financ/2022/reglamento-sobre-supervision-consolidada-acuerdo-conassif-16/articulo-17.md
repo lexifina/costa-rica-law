@@ -13,3 +13,5 @@ h) El cambio de nombre de una sociedad controladora o de alguna de las empresas 
 i) Los cambios accionarios, directos o indirectos, que representen para el adquirente una participación significativa en el capital social o conlleve el control efectivo de la controladora o de las empresas supervisadas integrantes del grupo financiero.
 j) La aceptación de la plaza bancaria extranjera en la que podrán estar domiciliadas las empresas extranjeras que sean intermediarios financieros integrantes de un grupo o conglomerado financiero.
 k) Las variaciones en los instrumentos de deuda que conformen el Capital de Nivel 2 de la controladora del grupo o conglomerado financiero, que forman parte de la medición de los indicadores de suficiencia patrimonial de conformidad con el procedimiento general dispuesto en este reglamento.
+El grupo financiero en que participe una bolsa de valores únicamente está sujeto a los actos de autorización previa dispuestos en los incisos a), b), c), d) y f) del presente artículo.
+(Así adicionado el párrafo anterior mediante sesión N° 1777-2022 del 22 de diciembre de 2022)
