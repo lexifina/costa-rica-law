@@ -14,3 +14,4 @@ Metodología de medición aplicable a los indicadores comunes de todos los servi
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-02-27 | la propia norma |
+| 2 | 2022-12-22 | Resolución 333 (2022-12-22) |

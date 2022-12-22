@@ -2,8 +2,8 @@ SUPERINTENDENCIA DE TELECOMUNICACIONES
 946-SUTEL-SCS-2018 Resolución del Consejo
 El suscrito, Secretario del Consejo de la Superintendencia de Telecomunicaciones, en ejercicio de las competencias que le atribuye el inciso b) del artículo 50 de la Ley General de la Administración Pública, ley 6227, y el artículo 35 del Reglamento interno de organización y funciones de la Autoridad Reguladora de los Servicios Públicos y su órgano desconcentrado, me permito comunicarle(s) que en sesión ordinaria 006-2018 celebrada el 31 de enero del 2018, mediante acuerdo 029-006-2018, de las 17:00 horas, el Consejo de la Superintendencia de Telecomunicaciones aprobó por unanimidad, la siguiente resolución:
 RCS-019-2018
-“RESOLUCIÓN SOBRE METODOLOGÍAS DE MEDICIÓN APLICABLES AL REGLAMENTO DE
-PRESTACIÓN Y CALIDAD DE LOS SERVICIOS”
+"RESOLUCIÓN SOBRE METODOLOGÍAS DE MEDICIÓN APLICABLES AL REGLAMENTO DE
+PRESTACIÓN Y CALIDAD DE LOS SERVICIOS"
 EXPEDIENTE GCO-NRE-REG-01209-2016
 RESULTANDO
 1. Que el reglamento de prestación y calidad de los servicios (en adelante RPCS) publicado en el Alcance Digital N° 36 a La Gaceta N° 35 del viernes 17 de febrero de 2017, dispuso que la Superintendencia de Telecomunicaciones debe establecer las metodologías de medición aplicables a los indicadores de calidad establecidos en dicha normativa.
@@ -14,19 +14,19 @@ RESULTANDO
 6. Que, según consta en el Informe de Oposiciones y Coadyuvancias, oficio 4141-DGAU-2017/34131 del 27 de noviembre de 2017, y en el Acta de Audiencia, oficio 4150-DGAU-2017/34202 del 27 de noviembre de 2017, no se presentaron posiciones de operadores o proveedores de servicios de telecomunicaciones a los cuales están dirigidas las metodologías de medición y su aplicación es de carácter obligatorio, siendo que únicamente se recibieron posiciones por parte de la empresa Radiotrónica S.A., con cédula de persona jurídica número 3-101-281696, representada por el señor Enrique Meseguer Cabalceta, portador de la cédula de identidad número 106440602, en su condición de presidente con facultades de apoderado generalísimo sin límite de suma.
 7. Que dentro del expediente SUTEL GCO-NRE-REG-01209-2016, se encuentra el oficio 00494-SUTELDGC-2018 de fecha 23 de enero de 2018, en el cual se detallan las respuestas brindadas en atención a las observaciones y coadyuvancias recibidas de la audiencia pública sobre la propuesta de Metodologías de medición aplicables al reglamento de prestación y calidad de servicios.
 CONSIDERANDO
-I. Que el artículo 60 de la Ley N° 7593, Ley de la Autoridad Reguladora de los Servicios Públicos, establece que son obligaciones fundamentales de la Superintendencia de Telecomunicaciones, entre otras las siguientes: “a) Aplicar el ordenamiento jurídico de las telecomunicaciones, para lo cual actuará en concordancia con las políticas del Sector, lo establecido en el Plan nacional de desarrollo de las telecomunicaciones, las disposiciones establecidas en esta Ley y las demás disposiciones legales y reglamentarias que resulten aplicables, (…) d) Garantizar y proteger los derechos de los usuarios de las telecomunicaciones; e) Velar por el cumplimiento de los deberes y derechos de los operadores de redes y proveedores de servicios de telecomunicaciones (…); i) Establecer y garantizar estándares de calidad de las redes y de los servicios de telecomunicaciones para hacerlos más eficientes y productivos (…)”.
+I. Que el artículo 60 de la Ley N° 7593, Ley de la Autoridad Reguladora de los Servicios Públicos, establece que son obligaciones fundamentales de la Superintendencia de Telecomunicaciones, entre otras las siguientes: "a) Aplicar el ordenamiento jurídico de las telecomunicaciones, para lo cual actuará en concordancia con las políticas del Sector, lo establecido en el Plan nacional de desarrollo de las telecomunicaciones, las disposiciones establecidas en esta Ley y las demás disposiciones legales y reglamentarias que resulten aplicables, (.) d) Garantizar y proteger los derechos de los usuarios de las telecomunicaciones; e) Velar por el cumplimiento de los deberes y derechos de los operadores de redes y proveedores de servicios de telecomunicaciones (.); i) Establecer y garantizar estándares de calidad de las redes y de los servicios de telecomunicaciones para hacerlos más eficientes y productivos (.)".
 II. Que el artículo 73 de la Ley N° 7593, Ley de la Autoridad Reguladora de los Servicios Públicos, establece que son funciones del Consejo de la Superintendencia de Telecomunicaciones, entre otras las siguientes:
-“a) Proteger los derechos de los usuarios de los servicios de telecomunicaciones, asegurando eficiencia, igualdad, continuidad, calidad, mayor y mejor cobertura, mayor y mejor información, más y mejores alternativas en la prestación de los servicios (…); k) Establecer los estándares mínimos de calidad de las redes públicas y los servicios de telecomunicaciones disponibles al público y fiscalizar su cumplimiento
-(…)”.
+"a) Proteger los derechos de los usuarios de los servicios de telecomunicaciones, asegurando eficiencia, igualdad, continuidad, calidad, mayor y mejor cobertura, mayor y mejor información, más y mejores alternativas en la prestación de los servicios (.); k) Establecer los estándares mínimos de calidad de las redes públicas y los servicios de telecomunicaciones disponibles al público y fiscalizar su cumplimiento
+(.)".
 III. El artículo 2 de la Ley N° 8642, Ley General de las Telecomunicaciones, establece dentro de sus objetivos:
-“Proteger los derechos de los usuarios de los servicios de telecomunicaciones asegurando eficiencia,
-igualdad, continuidad, calidad, mayor y mejor cobertura, mayor y mejor información, más y mejores alternativas en la prestación de los servicios (…)”. Lo cual hace necesario que la regulación se adapte a la evolución tecnológica de conformidad con los desarrollos de un sector de telecomunicaciones caracterizado por un alto dinamismo, para asegurar que la labor de fiscalización de la SUTEL como garante del cumplimiento de los estándares de calidad, cumpla con las mejores prácticas de la industria basadas en normativa internacional.
-IV. Que el artículo 45 de la Ley N° 8642, Ley General de las Telecomunicaciones, establece como derechos de los usuarios finales de los servicios de telecomunicaciones, entre otros los siguientes: “(…) 5) Recibir el servicio de forma continua, equitativa, así como tener acceso a las mejoras que el proveedor implemente
-(…) 13) Recibir servicios de calidad en los términos estipulados previamente y pactados con el proveedor
-(…); 14) Conocer los indicadores de calidad y rendimiento de los proveedores de servicios de telecomunicaciones disponibles al público (…)”.
-V. Que el artículo 49 de la Ley N° 8642, Ley General de las Telecomunicaciones, establece como obligaciones de los operadores y proveedores, entre otras las siguientes: “1) Operar las redes y prestar los servicios en las condiciones que establezcan el título habilitante respectivo, así como la ley, los reglamentos y las demás disposiciones que al efecto se dicten (…); 3) Respetar los derechos de los usuarios de telecomunicaciones (…)”.
-VI. Que el artículo 4 del Reglamento de Prestación y Calidad de Servicios, publicado en el Alcance Digital N° 36 a La Gaceta N°35 del viernes 17 de febrero de 2017, define la calidad del servicio a partir de: “(…) la norma E.800 del Sector de Normalización de la Unión Internacional de Telecomunicaciones (UIT-T), y la recomendación G.1010 de la UIT-T”. Lo cual reconoce la importancia de las recomendaciones de la Unión Internacional de Telecomunicaciones, en el establecimiento y normalización de las condiciones de calidad de servicio, entre las cuales se incluye tanto la definición de indicadores de calidad desde la perspectiva del usuario final, como la posibilidad técnica de medir dichos indicadores, con lo que toma relevancia la actualización constante de la regulación para contemplar los cambios tecnológicos y la realidad de la industria.
-VII. Que el artículo 9 del Reglamento de Prestación y Calidad de Servicios, publicado en el Alcance Digital N° 36 a La Gaceta N° 35 del viernes 17 de febrero de 2017, dispone que la SUTEL: “(…), convocará el proyecto de metodologías de medición al proceso de audiencia pública, de conformidad con lo establecido en el artículo 73 inciso h), siguiendo para ello el procedimiento dispuesto en el artículo 36, ambos de la Ley de la Autoridad Reguladora de los Servicios Públicos”.
+"Proteger los derechos de los usuarios de los servicios de telecomunicaciones asegurando eficiencia,
+igualdad, continuidad, calidad, mayor y mejor cobertura, mayor y mejor información, más y mejores alternativas en la prestación de los servicios (.)". Lo cual hace necesario que la regulación se adapte a la evolución tecnológica de conformidad con los desarrollos de un sector de telecomunicaciones caracterizado por un alto dinamismo, para asegurar que la labor de fiscalización de la SUTEL como garante del cumplimiento de los estándares de calidad, cumpla con las mejores prácticas de la industria basadas en normativa internacional.
+IV. Que el artículo 45 de la Ley N° 8642, Ley General de las Telecomunicaciones, establece como derechos de los usuarios finales de los servicios de telecomunicaciones, entre otros los siguientes: "(.) 5) Recibir el servicio de forma continua, equitativa, así como tener acceso a las mejoras que el proveedor implemente
+(.) 13) Recibir servicios de calidad en los términos estipulados previamente y pactados con el proveedor
+(.); 14) Conocer los indicadores de calidad y rendimiento de los proveedores de servicios de telecomunicaciones disponibles al público (.)".
+V. Que el artículo 49 de la Ley N° 8642, Ley General de las Telecomunicaciones, establece como obligaciones de los operadores y proveedores, entre otras las siguientes: "1) Operar las redes y prestar los servicios en las condiciones que establezcan el título habilitante respectivo, así como la ley, los reglamentos y las demás disposiciones que al efecto se dicten (.); 3) Respetar los derechos de los usuarios de telecomunicaciones (.)".
+VI. Que el artículo 4 del Reglamento de Prestación y Calidad de Servicios, publicado en el Alcance Digital N° 36 a La Gaceta N°35 del viernes 17 de febrero de 2017, define la calidad del servicio a partir de: "(.) la norma E.800 del Sector de Normalización de la Unión Internacional de Telecomunicaciones (UIT-T), y la recomendación G.1010 de la UIT-T". Lo cual reconoce la importancia de las recomendaciones de la Unión Internacional de Telecomunicaciones, en el establecimiento y normalización de las condiciones de calidad de servicio, entre las cuales se incluye tanto la definición de indicadores de calidad desde la perspectiva del usuario final, como la posibilidad técnica de medir dichos indicadores, con lo que toma relevancia la actualización constante de la regulación para contemplar los cambios tecnológicos y la realidad de la industria.
+VII. Que el artículo 9 del Reglamento de Prestación y Calidad de Servicios, publicado en el Alcance Digital N° 36 a La Gaceta N° 35 del viernes 17 de febrero de 2017, dispone que la SUTEL: "(.), convocará el proyecto de metodologías de medición al proceso de audiencia pública, de conformidad con lo establecido en el artículo 73 inciso h), siguiendo para ello el procedimiento dispuesto en el artículo 36, ambos de la Ley de la Autoridad Reguladora de los Servicios Públicos".
 VIII. Que la audiencia pública a la que se refiere el numeral anterior se realizó el 20 de noviembre de 2017.
 IX. Que las metodologías de medición establecidas en la presente resolución son las idóneos para recopilar los datos para la evaluación de la calidad de los servicios teniendo en cuenta el estado actual de las tecnologías y redes de telecomunicaciones en Costa Rica.
 POR TANTO
@@ -58,7 +58,7 @@ Tabla de contenido
 2.4 Reclamaciones por el contenido de la facturación (IC-4) ......................................................7
 2.5 Reclamaciones sobre saldos de cuentas prepago (IC-5) .......................................................8
 2.6 Tiempo de respuesta para centros de atención de llamadas (IC-6) .......................................9
-2.7 Disponibilidad del servicio asociada a la red de núcleo o “core” (IC-7) ............................... 10
+2.7 Disponibilidad del servicio asociada a la red de núcleo o "core" (IC-7) ............................... 10
 2.8 Calidad de servicio percibida por el usuario (IC-8) ............................................................. 12
 3. Capítulo III. Formatos y tablas para remisión de resultados ....................................................... 12
 1. Capítulo I. Introducción
@@ -104,6 +104,8 @@ Para efectos de contabilizar los tiempos para la reparación de fallas, los oper
 2. Retrasos producto de una solicitud expresa del usuario, bien sea por escrito o de forma verbal. El operador/proveedor deberá contar con la constancia que respalde dicha solicitud de retraso del usuario.
 3. Retrasos producto de situaciones debidamente comprobadas y documentadas, según lo dispone el artículo 19 del RPCS.
 4. Retrasos producto de impedimentos de acceso a zonas de riesgo o zonas inseguras para las cuales sea necesario el apoyo de la fuerza pública, en cuyo caso el operador/proveedor deberá contar con una constancia que respalde dicha condición.
+5. Servicios en los cuales medie un contrato de libre negociación con SLA (Acuerdo de Nivel de Servicio) establecido entre el operador y el usuario.
+(Así adicionado el punto anterior mediante resolución N° RCS-333-2022 del 22 de diciembre del 2022)
 Para cada uno de los servicios comercializados, el operador/proveedor deberá llevar la contabilización de las solicitudes de las fallas reparadas, y para cada servicio, se deberá calcular el indicador de tiempo de reparación de fallas (IC-2), de la siguiente forma:
 [imagen]
 2.3 Emisión de la factura del servicio (IC-3)
@@ -113,18 +115,20 @@ Para cada uno de los servicios comercializados, el operador/proveedor deberá ll
 [imagen]
 2.4 Reclamaciones por el contenido de la facturación (IC-4)
 Las reclamaciones por el contenido de la facturación es un indicador de calidad que evalúa la proporción de facturas que resultan en una reclamación del usuario, referida al contenido de la facturación, con respecto de la cantidad total de facturas puestas a disposición del usuario, lo anterior de conformidad con la definición 57 del artículo 7 del RPCS.
-El operador/proveedor, deberá llevar un registro mensual de la cantidad de las facturas a partir de las cuales se presenta una reclamación, y al concluir el periodo trimestral deberá reportar a la SUTEL la cantidad de facturas reclamadas relacionadas con el contenido de la facturación, así
-como la cantidad total de facturas puestas a disposición de los usuarios, con desglose mensual por servicio, de conformidad con el artículo 29 del RPCS.
+El operador/proveedor, deberá llevar un registro mensual de la cantidad de las facturas a partir de las cuales se presenta una reclamación, y al concluir el periodo trimestral deberá reportar a la SUTEL la cantidad de facturas reclamadas relacionadas con el contenido de la facturación, así como la cantidad total de facturas puestas a disposición de los usuarios, con desglose mensual por servicio, de conformidad con el artículo 29 del RPCS.
+(*)Para efectos de contabilizar el indicador de reclamaciones por el contenido de la facturación, los operadores/proveedores deberán excluir los siguientes casos:
+1. Servicios en los cuales medie un contrato de libre negociación con SLA (Acuerdo de Nivel de Servicio) establecido entre el operador y el usuario.
+(*)(Así adicionado el párrafo anterior mediante resolución N° RCS-333-2022 del 22 de diciembre del 2022)
 Para efectos de contabilizar este indicador, el operador deberá considerar aquellas facturaciones para las cuales la reclamación del usuario incluye aspectos como los siguientes:
-• cobro de servicios que no corresponden a los contratados,
-• cargos incluidos sin autorización del usuario,
-• datos incorrectos en los registros de facturación,
-• llamadas o comunicaciones cobradas con tarifa incorrecta,
-• servicios o paquetes de servicios cobrados con tarifa incorrecta,
-• descuentos aplicados incorrectamente,
-• créditos o débitos aplicados incorrectamente,
-• totalización incorrecta del monto facturado,
-• cálculo incorrecto de impuestos de ley.
+. cobro de servicios que no corresponden a los contratados,
+. cargos incluidos sin autorización del usuario,
+. datos incorrectos en los registros de facturación,
+. llamadas o comunicaciones cobradas con tarifa incorrecta,
+. servicios o paquetes de servicios cobrados con tarifa incorrecta,
+. descuentos aplicados incorrectamente,
+. créditos o débitos aplicados incorrectamente,
+. totalización incorrecta del monto facturado,
+. cálculo incorrecto de impuestos de ley.
 Para cada uno de los servicios comercializados, el operador/proveedor deberá llevar la contabilización de los reclamos relacionados con el contenido de la facturación, y para cada servicio, se deberá calcular este indicador de la siguiente forma:
 [imagen]
 2.5 Reclamaciones sobre saldos de cuentas prepago (IC-5)
@@ -140,14 +144,14 @@ b) El usuario llamante haya terminado voluntariamente la llamada antes de comple
 El operador/proveedor, deberá llevar un registro del tiempo de respuesta efectiva de los agentes de atención humana del centro de atención de llamadas de forma mensual, y al concluir el periodo trimestral deberá reportar a la SUTEL la cantidad de llamadas con respuesta efectiva dentro del umbral establecido, así como la cantidad total de llamadas recibidas en el centro de atención de llamadas, con desglose mensual por servicio, de conformidad con el artículo 31 del RPCS
 Para cada uno de los servicios comercializados, el operador/proveedor deberá llevar la contabilización de los tiempos de atención de cada una de las llamadas atendidas en su centro de llamadas, y para la totalidad de servicios atendidos por el Centro de Llamadas del operador/proveedor, se deberá calcular este indicador de la siguiente forma:
 [imagen]
-2.7 Disponibilidad del servicio asociada a la red de núcleo o “core” (IC-7)
-La disponibilidad del servicio asociada a la red de núcleo o “core” se define como la cantidad de horas dentro de un mes en las que se encuentra disponible un servicio de telecomunicaciones y asociado al correcto funcionamiento de la red de núcleo o “core” que lo soporta, lo anterior de conformidad con la definición 15 del artículo 7 del RPCS.
-Los elementos que serán identificados como componentes de la red núcleo o “core”, se detallan en la tabla a continuación:
+2.7 Disponibilidad del servicio asociada a la red de núcleo o "core" (IC-7)
+La disponibilidad del servicio asociada a la red de núcleo o "core" se define como la cantidad de horas dentro de un mes en las que se encuentra disponible un servicio de telecomunicaciones y asociado al correcto funcionamiento de la red de núcleo o "core" que lo soporta, lo anterior de conformidad con la definición 15 del artículo 7 del RPCS.
+Los elementos que serán identificados como componentes de la red núcleo o "core", se detallan en la tabla a continuación:
 [imagen] [imagen]
 [imagen]
 Los elementos considerados como componentes de la red de núcleo corresponden a los indicados en la tabla 2 y a las nuevas versiones o actualizaciones de cada uno de estos.
 El operador/proveedor, deberá llevar un registro del tiempo de no disponibilidad del servicio por interrupciones de la red núcleo de forma mensual, y al concluir el periodo trimestral deberá reportar a la SUTEL la cantidad de horas de disponibilidad mensual del servicio asociada a la red de núcleo, así como la cantidad total de horas del mes correspondiente, con desglose mensual por servicio, de conformidad con el artículo 32 del RPCS.
-El total de horas de disponibilidad del servicio asociada a la red de núcleo o “core” se obtiene de restar el tiempo de no disponibilidad del servicio por interrupciones de la red núcleo, al tiempo total de horas del mes correspondiente.
+El total de horas de disponibilidad del servicio asociada a la red de núcleo o "core" se obtiene de restar el tiempo de no disponibilidad del servicio por interrupciones de la red núcleo, al tiempo total de horas del mes correspondiente.
 Este indicador se calculará de la siguiente forma:
 [imagen]
 2.8 Calidad de servicio percibida por el usuario (IC-8)
@@ -211,13 +215,13 @@ Tabla de contenido
 Este documento establece los métodos de medición para evaluar la calidad de los servicios de telefonía fija, en cumplimiento de lo estipulado en el artículo 9 del Reglamento de prestación y calidad de servicios (en adelante RPCS) publicado en el Alcance Digital a la Gaceta N° 36 del viernes 17 de febrero de 2017.
 El objetivo principal de esta metodología es establecer las condiciones que la Superintendencia de Telecomunicaciones (SUTEL) y los operadores/proveedores de servicios deben aplicar para la evaluación de la calidad de los servicios de telefonía fija que se ofrecen a los usuarios finales, con el fin de obtener resultados objetivos y comparables.
 Es importante destacar que esta metodología está diseñada para evaluar la calidad de los servicios de telefonía fija, independientemente de la tecnología utilizada para brindar dicho servicio, de manera que es aplicable tanto a servicios de telefonía básica tradicionales (conmutación de circuitos) como servicios de telefonía IP (conmutación de paquetes), y es también independiente del medio o la capa física utilizada para la comunicación, siendo entonces aplicable a servicios fijos tanto cableados como inalámbricos.
-• Este documento utiliza como referencia la guía ETSI EG 201 769 V1.2.1 (2000-10), denominada “Speech Processing, Transmission & Quality Aspects (STQ); QoS parameter definitions and measurements;Parameters for voice telephony service required under the ONP Voice Telephony Directive 98/10/EC”, el estándar y la recomendación UIT-T G.114 (05-2003) denominada “One-way transmission time”.
+. Este documento utiliza como referencia la guía ETSI EG 201 769 V1.2.1 (2000-10), denominada "Speech Processing, Transmission & Quality Aspects (STQ); QoS parameter definitions and measurements;Parameters for voice telephony service required under the ONP Voice Telephony Directive 98/10/EC", el estándar y la recomendación UIT-T G.114 (05-2003) denominada "One-way transmission time".
 1.2. Alcance
 Este documento contiene las definiciones y condiciones de medición para evaluar los indicadores de calidad de servicio desde la perspectiva del usuario final del servicio de telefonía fija. El propósito de este documento es establecer un conjunto de condiciones de medición que permitan obtener mediciones objetivas y comparables sobre la calidad de servicios comercialmente disponibles a los usuarios finales.
 Los indicadores de calidad de servicio establecidos en el RPCS, están relacionados principalmente con los servicios y sus características, y no con la tecnología utilizada para su prestación. De forma similar, los métodos definidos en el presente documento son aplicables al servicio de telefonía fija, independientemente de la tecnología subyacente utilizada, a no ser que expresamente se señale lo contrario. Esto incluye, pero no se limita a:
 ▪ Tecnologías basadas en conmutación de circuitos como: telefonía básica tradicional, Red Digital de Servicios Integrados (RDSI).
 ▪ Tecnologías basadas en conmutación de paquetes como: VoIP, telefonía IP.
-Los métodos de medición establecidos en este documento, son aplicables independientemente del medio de acceso utilizado en la “última milla”, sea este cableado o inalámbrico.
+Los métodos de medición establecidos en este documento, son aplicables independientemente del medio de acceso utilizado en la "última milla", sea este cableado o inalámbrico.
 1.3. Indicadores por evaluar
 En la tabla a continuación se detallan los principales indicadores por evaluar, para la calidad del servicio de telefonía fija.
 [imagen]
@@ -258,7 +262,7 @@ El sistema de medición debe mantener un respaldo centralizado con un histórico
 3. Capitulo III. Condiciones de medición de los indicadores de calidad
 Para poder realizar las mediciones requeridas, el equipo debe ser configurado con los parámetros y condiciones que se detallan en esta sección.
 3.1. Porcentaje de llamadas no exitosas
-Este indicador podrá ser evaluado en comunicaciones “ON NET” u “OFF NET”. El destino podrá ser sondas fijas de medición o servidores robot de respuesta automática.
+Este indicador podrá ser evaluado en comunicaciones "ON NET" u "OFF NET". El destino podrá ser sondas fijas de medición o servidores robot de respuesta automática.
 Las llamadas podrán ser realizadas desde:
 a) Sondas fijas de medición con destino a otras sondas fijas de medición.
 b) Sondas fijas de medición con destino a servidores de medición.
@@ -277,7 +281,7 @@ completo de los siguientes eventos:
 Luego, se calculará el indicador IV-9 (porcentaje de llamadas no exitosas) de la siguiente manera:
 [imagen]
 3.2. Tiempo de establecimiento de llamada
-Este indicador podrá ser evaluado en comunicaciones “ON NET” u “OFF NET”. El destino podrá ser sondas fijas de medición o servidores robot de respuesta automática.
+Este indicador podrá ser evaluado en comunicaciones "ON NET" u "OFF NET". El destino podrá ser sondas fijas de medición o servidores robot de respuesta automática.
 Las llamadas podrán ser realizadas desde:
 a) Sondas fijas de medición con destino a otras sondas fijas de medición.
 b) Sondas fijas de medición con destino a servidores de medición.
@@ -476,9 +480,9 @@ Los terminales deben ser soportados y totalmente compatibles con el equipo de me
 Los terminales de prueba que serán utilizados durante las evaluaciones deberán estar debidamente homologados de conformidad con la Resolución RCS-332-2013 (publicada en La Gaceta N° 247 del 23 de diciembre del 2013).
 2.1.2. Antenas para pruebas de campo tipo drive test
 Las antenas para mediciones por medio de pruebas de campo tipo drive test, podrán ser internas o externas4, dependiendo de la evolución tecnológica de los sistemas de medición, siempre que se aseguren condiciones de medición equivalentes a exteriores. Alternativamente, se podrán utilizar otros arreglos de equipos terminales, siempre y cuando se garantice que los sistemas efectúan mediciones equivalentes a exteriores.
-4 Ver referencia ETSI TS 102 250-4 “Speech and multimedia Transmission Quality (STQ); QoS aspects for popular services in mobile networks; Part 4: Requirements for Quality of Service measurement equipment
+4 Ver referencia ETSI TS 102 250-4 "Speech and multimedia Transmission Quality (STQ); QoS aspects for popular services in mobile networks; Part 4: Requirements for Quality of Service measurement equipment
 En caso de utilizar antenas externas, estas deberán estar sujetas a la parte externa del techo del vehículo utilizado para las pruebas. Se deben colocar con una separación mínima de 17 cm entre ellas.
-Las antenas utilizadas deben acoplarse con los terminales de prueba, deben ser preferiblemente deben ser de ganancia unitaria, y deben compensar las pérdidas de cableado y conectores desde los terminales de prueba hasta la antena propiamente. En caso de no ser posible incorporar antenas de ganancia unitaria, se deberá tomar en consideración la ganancia o la pérdida al momento de procesar los datos recopilados. Las antenas deben cubrir al menos los rangos de frecuencia detallados en el apartado 2.2.1 “Terminal de usuario de prueba”.
+Las antenas utilizadas deben acoplarse con los terminales de prueba, deben ser preferiblemente deben ser de ganancia unitaria, y deben compensar las pérdidas de cableado y conectores desde los terminales de prueba hasta la antena propiamente. En caso de no ser posible incorporar antenas de ganancia unitaria, se deberá tomar en consideración la ganancia o la pérdida al momento de procesar los datos recopilados. Las antenas deben cubrir al menos los rangos de frecuencia detallados en el apartado 2.2.1 "Terminal de usuario de prueba".
 2.1.3. GPS
 Respecto a las mediciones por medio de pruebas de campo tipo drive test, el sistema debe contar con un navegador GPS, que sirva para su georreferenciación.
 La precisión de este dispositivo debe ser de ± 10m o mejor y debe contar con soporte del protocolo NMEA 0183 o similar.
@@ -517,7 +521,7 @@ Se definen como servidores de medición aquellas máquinas físicas o virtuales 
 3. Capitulo III. Condiciones de medición de los indicadores de calidad
 Para poder realizar las mediciones requeridas, el equipo debe ser configurado con los parámetros y condiciones que se detallan en esta sección.
 3.1. Porcentaje de llamadas no exitosas, tiempo de establecimiento de llamadas y porcentaje de llamadas interrumpidas
-Estos indicadores podrán ser evaluados en comunicaciones “ON NET” u “OFF NET”. El destino podrá ser terminales de prueba, sondas fijas de medición o servidores robot de respuesta automática.
+Estos indicadores podrán ser evaluados en comunicaciones "ON NET" u "OFF NET". El destino podrá ser terminales de prueba, sondas fijas de medición o servidores robot de respuesta automática.
 Los aspectos básicos de configuración del equipo de medición son:
 a. Tiempo máximo de acceso5: 25 segundos.
 5 Corresponde a la configuración del tiempo de espera del sistema de medición para que el destino responda efectivamente la llamada.
@@ -531,8 +535,8 @@ A continuación, se detallan los eventos que deberán ser registrados por los eq
 a. Llamadas exitosas: se considera que una llamada fue establecida exitosamente cuando la parte llamante recibe tono de ocupado, tono de llamada o señal de respuesta (respuesta del lado llamado).
 b. Llamadas no exitosas: es un intento válido de llamada, para el cual el llamante no logra obtener ninguno de los siguientes tipos de respuesta, dentro de un plazo de 10 segundos desde el instante en que el último dígito del número de destino es recibido por la red: recepción de tono de timbrado, recepción de tono de ocupado o respuesta del lado llamado.
 c. Llamadas caídas: corresponden a aquellas que una vez que han sido correctamente establecidas y por consiguiente tienen asignado un canal de comunicación, se caen o interrumpen antes de su terminación normal por parte del usuario, siendo dicha terminación temprana causada por la red del operador.
-Respecto al tiempo de establecimiento de llamada, este se define como el tiempo transcurrido desde el instante en que la información de direccionamiento requerida para establecer la llamada es recibida por la red (es decir, es reconocida por la red de acceso del usuario que realiza la llamada), hasta que la parte llamante recibe tono de ocupado, tono de llamada o señal de respuesta. Por lo anterior, para el registro de este indicador se debe extraer la información del parámetro: “tiempo de establecimiento de llamadas hasta la alerta (Call setup time to Alerting) [seg]”. Este indicador debe ser analizado únicamente para las llamadas establecidas de forma exitosa.
-El entorno de pruebas mediante el cual se evalúan los indicadores de porcentaje de llamadas no exitosas, tiempo de establecimiento de llamadas y porcentaje de llamadas interrumpidas, corresponde a un entorno controlado, en el cual no hay pérdidas de llamadas provocadas por los siguientes factores: cliente o usuario “B” ocupado, cliente o usuario “B” no contesta, otras causas de usuario o cliente “B”, abandono de intento de comunicación, desvíos a casillero de voz, así como mensaje máquina parlante.
+Respecto al tiempo de establecimiento de llamada, este se define como el tiempo transcurrido desde el instante en que la información de direccionamiento requerida para establecer la llamada es recibida por la red (es decir, es reconocida por la red de acceso del usuario que realiza la llamada), hasta que la parte llamante recibe tono de ocupado, tono de llamada o señal de respuesta. Por lo anterior, para el registro de este indicador se debe extraer la información del parámetro: "tiempo de establecimiento de llamadas hasta la alerta (Call setup time to Alerting) [seg]". Este indicador debe ser analizado únicamente para las llamadas establecidas de forma exitosa.
+El entorno de pruebas mediante el cual se evalúan los indicadores de porcentaje de llamadas no exitosas, tiempo de establecimiento de llamadas y porcentaje de llamadas interrumpidas, corresponde a un entorno controlado, en el cual no hay pérdidas de llamadas provocadas por los siguientes factores: cliente o usuario "B" ocupado, cliente o usuario "B" no contesta, otras causas de usuario o cliente "B", abandono de intento de comunicación, desvíos a casillero de voz, así como mensaje máquina parlante.
 Para recopilar los datos correspondientes a los indicadores de porcentaje de llamadas no exitosas, tiempo de establecimiento de llamada y porcentaje de llamadas interrumpidas, por medio de pruebas de campo tipo drive test, se debe configurar un terminal por tecnología (2G y 3G) y por operador, en modo conectado, para la evaluación de los tres indicadores. Estos terminales deben ser de uso dedicado para dichas pruebas.
 En caso de efectuar las mediciones utilizando sondas fijas de medición, se deberán generar rutinas de medición que permitan evaluar ambas tecnologías 2G y 3G por operador en modo conectado para la evaluación de los tres indicadores.
 3.2. Área de cobertura
@@ -543,7 +547,7 @@ Para las tecnologías 3G y 4G, se deberán utilizar terminales en modo conectado
 Los parámetros que se utilizarán para la evaluación de intensidad de señal son los siguientes:
 [imagen]
 3.3. Calidad de voz en servicios telefónicos
-Este indicador deberá ser evaluado en comunicaciones “ON NET”. El destino podrá ser terminales de prueba, sondas fijas de medición o servidores robot de respuesta automática.
+Este indicador deberá ser evaluado en comunicaciones "ON NET". El destino podrá ser terminales de prueba, sondas fijas de medición o servidores robot de respuesta automática.
 Este indicador se debe evaluar efectuando llamadas de prueba y aplicando el algoritmo POLQA (recomendación UIT-T P.863), para lo cual se deberá utilizar un archivo de voz estándar de alta calidad que cumpla las especificaciones de la UIT y que debe estar en un formato no compreso.
 Siguiendo la norma P.863, se podrán efectuar evaluaciones de calidad de voz utilizando dos modos operacionales distintos:
 1. Banda estrecha (300 a 3.400 Hz)
@@ -558,7 +562,7 @@ Está estrictamente prohibido mezclar resultados de súper banda ancha y de band
 Para efectos de comparar redes de súper banda ancha con redes de banda estrecha, de un mismo operador, se debe utilizar el modo súper banda ancha de POLQA en ambos casos.
 No está permitido el uso de señales de referencia de ancho de banda limitado en el modo súper banda ancha. Una señal de referencia de ancho de banda limitado es un archivo de referencia que ha sido grabado con un micrófono o con un codificador de voz que aplica un filtro de frecuencia a la voz original, por lo tanto, no se tiene el ancho de banda del archivo completo y disponible para la prueba. Incluso, si se utiliza un equipo para realizar las pruebas con tasa de muestra a 48 kHz, y el archivo presentado se ha grabado con un filtro que limita el ancho de banda a 8 kHz, el resultado de la prueba no será válido debido a que es necesario tener una muestra con un ancho de banda de 48 kHz como entrada.
 3.4. Tiempo de entrega de mensajes de texto
-Este indicador podrá ser evaluado mediante el envío de mensajes de texto entre terminales de prueba de usuario o sondas fijas de medición, o un terminal de prueba o sonda de medición contra un servidor robot. Se podrá evaluar en comunicaciones “ON NET” y “OFF NET”, es decir, mediante el envío de mensajes de texto entre origen y destino del mismo operador, u origen y destino de diferentes operadores.
+Este indicador podrá ser evaluado mediante el envío de mensajes de texto entre terminales de prueba de usuario o sondas fijas de medición, o un terminal de prueba o sonda de medición contra un servidor robot. Se podrá evaluar en comunicaciones "ON NET" y "OFF NET", es decir, mediante el envío de mensajes de texto entre origen y destino del mismo operador, u origen y destino de diferentes operadores.
 Para recopilar los datos correspondientes al tiempo de entrega de mensajes de texto, se podrá efectuar por medio de pruebas de campo o sondas fijas de medición, mediante la configuración de un terminal o sonda por tecnología (2G y 3G), y por operador, para efectuar el proceso de recolección de estos datos.
 3.5. Condiciones específicas para pruebas de campo tipo drive test
 3.5.1. Vehículo
@@ -569,7 +573,7 @@ La velocidad del vehículo debe ser tal que se respeten los límites establecido
 La definición de rangos de horas de medición aplicables a poblados y carreteras, se obtiene mediante el análisis de datos de tráfico de telefonía móvil por mes, semestre y año, con base en la información aportada por los operadores o proveedores de los servicios de telecomunicaciones.
 A partir de lo anterior, se define el rango de horas desde las 06:00 hasta las 23:00, en días hábiles, como horario para efectuar las mediciones de calidad. Para casos de estudio particular, como reclamaciones o casos especiales de análisis, se podrán definir otros horarios de medición.
 3.5.4. Aspectos adicionales
-Los terminales de prueba deben operar exclusivamente en la (o las) banda de frecuencia respectiva a la tecnología, por ejemplo: los terminales deben poder medir la red GSM en la banda de 850 MHz y 1800 MHz, y el servicio o tecnología del operador/proveedor bajo estudio, por ejemplo: el terminal debe estar configurado en “Modo GSM o 2G”, “Modo WCDMA o 3G”, “Modo LTE o 4G”, según corresponda para no permitir el roaming entre tecnologías del mismo operador.
+Los terminales de prueba deben operar exclusivamente en la (o las) banda de frecuencia respectiva a la tecnología, por ejemplo: los terminales deben poder medir la red GSM en la banda de 850 MHz y 1800 MHz, y el servicio o tecnología del operador/proveedor bajo estudio, por ejemplo: el terminal debe estar configurado en "Modo GSM o 2G", "Modo WCDMA o 3G", "Modo LTE o 4G", según corresponda para no permitir el roaming entre tecnologías del mismo operador.
 Asimismo, se debe realizar la selección manual del operador con el fin de evitar el roaming con otros operadores.
 Las zonas donde los operadores brinden servicios a través de acuerdos de roaming con otros operadores, no se tomarán como zonas válidas para evaluar el cumplimiento de los indicadores de calidad descritos en la presente metodología.
 En caso que se pierda la continuidad de las mediciones durante la evaluación, sea en carretera o poblados, por desconexión de un terminal, falla mecánica del vehículo, entre otros casos, se deberá retomar la prueba, a partir del último punto de medición válido registrado.
@@ -591,7 +595,7 @@ Con base en lo anterior, se define el rango de horas desde las 06:00 hasta las 2
 Se deberá validar que en la ubicación de la sonda se registra un nivel de intensidad de señal como mínimo de cobertura en exteriores, cumpliendo con los valores de intensidad de señal en dBm establecidos en la resolución de umbrales vigente.
 3.6.3. Aspectos adicionales
 Las sondas deben operar exclusivamente en la (o las) bandas de frecuencia respectiva a la tecnología, por ejemplo: las sondas deben poder medir la red GSM en la banda de 850 MHz y 1800 MHz, y al servicio o tecnología del operador/proveedor que este bajo estudio, por ejemplo:
-la sonda debe estar configurada en “Modo GSM o 2G”, “Modo WCDMA o 3G”, “Modo LTE o 4G”, según corresponda para no permitir el roaming entre tecnologías del mismo operador. Asimismo, se debe realizar la selección manual del Operador con el fin de evitar el roaming con otros operadores.
+la sonda debe estar configurada en "Modo GSM o 2G", "Modo WCDMA o 3G", "Modo LTE o 4G", según corresponda para no permitir el roaming entre tecnologías del mismo operador. Asimismo, se debe realizar la selección manual del Operador con el fin de evitar el roaming con otros operadores.
 Las zonas donde los operadores brinden servicios a través de acuerdo de roaming con otros operadores, no se tomarán como zonas válidas para evaluar el cumplimiento de los indicadores de calidad descritos en la presente metodología.
 Al momento de realizar las pruebas, en el caso específico de detectar un aumento anormal en la cantidad de llamadas no exitosas de forma continua, o cualquier otro indicador de calidad muestre de manera sostenida un comportamiento atípico, se recomienda verificar la configuración del equipo y los terminales, para descartar la existencia de posibles problemas con el sistema de medición.
 4. Capítulo IV. Frecuencia de muestreo
@@ -660,8 +664,8 @@ de tipo drive test .............................................................
 Este documento establece los métodos de medición para evaluar la calidad del servicio de acceso a Internet, en cumplimiento de lo estipulado en el artículo 9 del Reglamento de prestación y calidad de servicios (en adelante RPCS) publicado en el Alcance Digital N°36 del viernes 17 de febrero de 2017.
 El objetivo principal de esta metodología es establecer un esquema detallado de las condiciones de medición que deben ser aplicadas por la SUTEL y por los proveedores de servicios de acceso a Internet (ISP), para la recolección de los datos correspondientes a los indicadores de calidad del servicio de acceso a Internet, con la finalidad de obtener resultados objetivos y comparables.
 Esta metodología es aplicable para la evaluación de servicios de acceso a Internet brindado a través de redes de acceso tanto fijo (cableado o inalámbrico) como móvil, y la evaluación se efectúa con base en los planes comerciales que los operadores y proveedores tienen a disposición de sus usuarios.
-Es importante destacar que esta metodología está diseñada para evaluar la calidad del servicio de acceso a Internet mediante el grupo de protocolos TCP/IP, y es aplicable independientemente del medio o la capa física utilizada para la transmisión de datos. No obstante, las condiciones bajo las cuales se miden estos parámetros y la configuración de la plataforma de medición, podrán depender de la capa física utilizada en el tramo de acceso o la “última milla”, en particular para establecer una distinción entre una conectividad de tipo fija cableada, fija inalámbrica o móvil. Cuando sea necesario diferenciar entre el tipo de tecnología, se indicará de forma explícita.
-Este documento utiliza como referencia la guía ETSI EG 202 057-4 v1.2.1 (2008-07) parte 4, denominada “Speech Processing, Transmission and Quality Aspects (STQ); User related QoS parameter definitions and measurements; Part 4: Internet Access”, la cual establece una guía metodológica para la medición de la calidad del servicio de acceso a Internet.
+Es importante destacar que esta metodología está diseñada para evaluar la calidad del servicio de acceso a Internet mediante el grupo de protocolos TCP/IP, y es aplicable independientemente del medio o la capa física utilizada para la transmisión de datos. No obstante, las condiciones bajo las cuales se miden estos parámetros y la configuración de la plataforma de medición, podrán depender de la capa física utilizada en el tramo de acceso o la "última milla", en particular para establecer una distinción entre una conectividad de tipo fija cableada, fija inalámbrica o móvil. Cuando sea necesario diferenciar entre el tipo de tecnología, se indicará de forma explícita.
+Este documento utiliza como referencia la guía ETSI EG 202 057-4 v1.2.1 (2008-07) parte 4, denominada "Speech Processing, Transmission and Quality Aspects (STQ); User related QoS parameter definitions and measurements; Part 4: Internet Access", la cual establece una guía metodológica para la medición de la calidad del servicio de acceso a Internet.
 1.2. Alcance
 Este documento contiene las definiciones y condiciones de medición para evaluar los indicadores de calidad de servicio desde la perspectiva del usuario final del servicio de acceso a Internet. El propósito de este documento es establecer un conjunto de condiciones de medición que permitan obtener datos objetivos y comparables sobre la calidad de servicios comercialmente disponibles a los usuarios finales.
 Los indicadores de calidad de servicio establecidos en el RPCS, están relacionados principalmente con los servicios y sus características, y no con la tecnología utilizada para su prestación. De forma similar, los métodos definidos en el presente documento son aplicables a cualquier tipo de acceso a Internet independientemente de la tecnología subyacente utilizada, a no ser que expresamente se señale lo contrario. Esto incluye, pero no se limita a, las siguientes tecnologías de tipos de acceso:
@@ -672,9 +676,9 @@ En la tabla 1, a continuación, se detallan los indicadores que se deben medir p
 [imagen]
 2. Capítulo II. Metodología de medición
 La metodología de medición para evaluar los servicios de acceso a Internet, admite dos modalidades distintas:
-• Evaluación mediante sondas fijas de medición: para evaluar servicios de Internet fijo,
+. Evaluación mediante sondas fijas de medición: para evaluar servicios de Internet fijo,
 sean cableados o inalámbricos.
-• Evaluación mediante drive test: para evaluar servicios de Internet móvil.
+. Evaluación mediante drive test: para evaluar servicios de Internet móvil.
 De forma opcional, pueden utilizarse sondas fijas para la evaluación de servicios de Internet móvil, como complemento o extensión de las evaluaciones de drive test. No obstante, para efectos de evaluar el cumplimiento de los indicadores de calidad de servicio estipulados en el RPCS, para el servicio de Internet móvil serán válidas únicamente las mediciones efectuadas mediante drive test.
 A continuación, se describen las características básicas del sistema requerido para efectuar el proceso de recolección de datos, ya sea por medio del despliegue de sondas fijas o mediante pruebas de campo tipo drive test, así como la configuración básica del equipo para evaluar los indicadores señalados en la tabla 1.
 2.1. Sistema de medición mediante sondas
@@ -727,7 +731,7 @@ Un terminal de usuario de prueba utilizado para mediciones de campo de tipo driv
 El terminal de usuario de prueba deberá ser de la categoría más alta posible con el fin de evitar afectaciones a los resultados de medición producto de limitaciones en dicho terminal. La SUTEL y los operadores mantendrán una comunicación bidireccional permanente en relación con las categorías de terminales utilizados en sus sistemas de medición, y deberán incluir este dato dentro de los informes o reportes con los resultados de las evaluaciones de calidad.
 2.2.2. Antenas para pruebas de campo tipo drive test
 Las antenas para mediciones por medio de pruebas de campo tipo drive test, podrán ser internas o externas4, dependiendo de la evolución tecnológica de los sistemas de medición, siempre que se aseguren condiciones de medición equivalentes a exteriores. Alternativamente, se podrán utilizar otros arreglos de equipos terminales, siempre y cuando se garantice que los sistemas efectúan mediciones equivalentes a exteriores.
-4 Ver referencia ETSI TS 102 250-4 “Speech and multimedia Transmission Quality (STQ); QoS aspects for popular services in mobile networks; Part 4: Requirements for Quality of Service measurement equipment”
+4 Ver referencia ETSI TS 102 250-4 "Speech and multimedia Transmission Quality (STQ); QoS aspects for popular services in mobile networks; Part 4: Requirements for Quality of Service measurement equipment"
 En caso de utilizar antenas externas, estas deberán estar sujetas a la parte externa del techo del vehículo utilizado para las pruebas y se deben colocar con una separación mínima de 17 cm entre ellas.
 Las antenas utilizadas deben acoplarse con los terminales de prueba y deben ser preferiblemente de ganancia unitaria. En caso de no ser posible incorporar antenas de ganancia unitaria, se deberá tomar en consideración la ganancia o la pérdida al momento de procesar los datos recopilados. Las antenas deben cubrir al menos los rangos de frecuencia detallados en el apartado 2.3.1 Terminal de usuario de prueba.
 2.3. Condiciones generales para la realización de mediciones
@@ -736,9 +740,9 @@ De conformidad con lo establecido en el artículo 7, inciso 93 del RPCS, las med
 La determinación del servicio más representativo de cada operador/proveedor se actualizará con una periodicidad mínima de un año, de forma tal que, al menos 1 vez al año los operadores/proveedores reporten a la SUTEL la cantidad total de clientes activos para cada uno de los servicios que tienen disponibles de forma comercial.
 2.3.2. Tipos de tecnologías
 A la fecha, para efectos de este documento, las tecnologías de medición se agrupan en tres categorías.
-• Fijas cableadas: aquellas que proveen conectividad a una ubicación geográfica fija utilizando tecnologías cableadas;
-• Fijas inalámbricas: que proveen conectividad a una ubicación con tecnologías de última milla inalámbricas; y finalmente
-• Móviles: que proveen conectividad inalámbrica en múltiples ubicaciones geográficas.
+. Fijas cableadas: aquellas que proveen conectividad a una ubicación geográfica fija utilizando tecnologías cableadas;
+. Fijas inalámbricas: que proveen conectividad a una ubicación con tecnologías de última milla inalámbricas; y finalmente
+. Móviles: que proveen conectividad inalámbrica en múltiples ubicaciones geográficas.
 Respecto a la evaluación del servicio de acceso a Internet fijo cableado o inalámbrico, en el caso que el CPE soporte múltiples tecnologías alternando entre ellas de manera automatizada o a voluntad del cliente, el ISP deberá elegir una sola tecnología como representativa de la velocidad para dicho CPE, procurando que dicha tecnología responda a la habitualmente elegida por los usuarios y sin sesgar arbitrariamente el criterio de representatividad definido en la sección 6.4.1 (cantidad de sondas).
 2.3.3. Clientes Activos
 En una fecha cualquiera, los clientes activos con respecto a esa fecha serán aquellos que hayan hecho uso del servicio de acceso a Internet, de cualquier forma, en los últimos 90 días. Esto incluye tanto clientes con planes, como clientes de pre y post pago, en el caso de servicios móviles.
@@ -753,10 +757,11 @@ Para poder realizar las mediciones requeridas, el equipo debe ser configurado co
 3.2. Retardo local (ID-16) y retardo internacional (ID-17)
 3.2.1. Definición
 El retardo entre dos extremos A y B, es el tiempo necesario para enviar un paquete, ida y vuelta entre ambos extremos, y se mide como el tiempo necesario para enviar y recibir un paquete ICMP Echo/Echo-Reply entre los puntos evaluados. Cabe destacar que este tiempo incluye tanto el tiempo de transporte de los paquetes involucrados por la red, así como el tiempo requerido para el procesamiento de éstos en los equipos ubicados en los extremos A y B.
-El retardo se mide desde la sonda de medición o el terminal de usuario de prueba, hacia uno o varios servidores o instancias habilitadas para brindar respuestas ICMP, según la forma de medirlo, ya sea con alcances locales (retardo local) o internacionales (retardo internacional) (sección 2.4.4).
+El retardo se mide desde la sonda de medición o el terminal de usuario de prueba, hacia uno o varios servidores o instancias habilitadas para brindar respuestas ICMP, según la forma de medirlo, ya sea con alcances locales (retardo local) o internacionales (retardo internacional) (sección 2.3.4).
+(Así reformado el párrafo anterior mediante resolución N° RCS-333-2022 del 22 de diciembre del 2022)
 3.2.2. ¿Cómo se mide?
 Una medición de retardo se realiza enviando un tren de al menos 100 paquetes ICMP Echo Request, a al menos un servidor (o una instancia de respuesta ICMP, por ejemplo, un router) en el alcance 𝑎 (sección 2.4.4), y contabilizando el tiempo que toma recibir las respuestas ICMP Echo Reply para cada paquete ICMP Echo Request enviado5. Los paquetes ICMP enviados deberán tener un tamaño estándar de 64 bytes (encabezado IP + encabezado ICMP + datos), tanto en IPv4 como en IPv6, por lo que la cantidad de bytes en el payload ICMP deberá ajustarse para asegurar esta condición; por ejemplo, en IPv6 se podrían utilizar 16 bytes de datos y en IPv4 se podrían utilizar de 32 a 36 bytes. Por cada paquete ICMP Echo Request enviado por una sonda de medición o terminal de usuario de prueba, se deberá esperar como máximo 10 segundos por la respuesta a cada paquete antes de considerarla como fallida. La diferencia de tiempo entre el envío de un paquete y la recepción de su respuesta se conoce como Round Trip Time (RTT).
-5 Referencia IETF RFC 792 “Internet Control Message Protocol”.
+5 Referencia IETF RFC 792 "Internet Control Message Protocol".
 6 Referencias RFC 7230, 7231, 7232, 7233, 7234 y 7235.
 3.3. Relación entre velocidad de transferencia de datos local o internacional respecto a la velocidad aprovisionada (ID-18)
 3.3.1. Definición
@@ -766,9 +771,9 @@ Para efectos de las evaluaciones de calidad de servicio, la velocidad de transfe
 3.3.2. ¿Cómo se mide?
 La velocidad debe ser medida transmitiendo datos incompresibles entre una sonda de medición o terminal de usuario de prueba y un servidor de medición mediante el protocolo HTTP o FTP.
 La transferencia de los datos se debe realizar utilizando el protocolo HTTP 1.16, de tal forma que la sonda o terminal de usuario de prueba y servidor sean respectivamente el cliente y servidor HTTP. Opcionalmente, se permite utilizar HTTP/27. De forma alternativa, la medición se puede realizar utilizando el protocolo FTP especificado en el RFC 9598 y en el RFC 24289 para IPv6.
-7 Referencia RFC 7540 “Hypertext Transfer Protocol Version 2 (HTTP/2)”.
-8 Referencia RFC 959 “FILE TRANSFER PROTOCOL (FTP)”
-9 Referencia RFC 2428 “FTP Extensions for IPv6 and NATs”
+7 Referencia RFC 7540 "Hypertext Transfer Protocol Version 2 (HTTP/2)".
+8 Referencia RFC 959 "FILE TRANSFER PROTOCOL (FTP)"
+9 Referencia RFC 2428 "FTP Extensions for IPv6 and NATs"
 El tamaño del archivo de datos por utilizar en las mediciones dependerá de la velocidad nominal máxima de transferencia teórica del servicio, es decir la velocidad teórica máxima contratada o aprovisionada por parte del operador/proveedor del servicio, tanto para descarga como para envió. El tamaño del archivo de datos en bits, debe ser de al menos 10 veces la velocidad contratada o aprovisionada. Por ejemplo, si la velocidad aprovisionada de descarga es de 1 Mbps, el tamaño del archivo deberá ser de, al menos, [imagen]
 Cada una de las pruebas de medición de velocidad deberá cumplir con los siguientes pasos:
 1. Conexión a un servidor: Para iniciar la medición, la sonda o el terminal de usuario de prueba debe establecer una conexión TCP a un servidor HTTP de medición en el puerto 80.
@@ -797,10 +802,13 @@ desplegarán como mínimo 5 sondas.
 ▪ En las provincias en que el operador/proveedor tenga entre 100.000 y 200.000 clientes activos se desplegarán como mínimo 3 sondas.
 ▪ En las provincias en que el operador/proveedor tenga entre 50.000 y 100.000 clientes activos se desplegarán como mínimo 2 sondas.
 ▪ En las provincias en que el operador/proveedor tenga entre 25.000 y 50.000 clientes activos se desplegará como mínimo 1 sonda.
-Adicionalmente se deberán cumplir las siguientes restricciones:
-▪ Se deberán desplegar como mínimo 7 sondas en todo el territorio nacional, una sonda por provincia, exceptuando las provincias en las que el operador no tenga clientes activos.
-▪ Los clientes activos para efectos de estos cálculos deben ser considerados como se detalla en la sección 2.4.3.
-▪ En el caso de las tecnologías móviles, para determinar la posible ubicación de las sondas fijas de medición, se debe efectuar un análisis de tráfico en la totalidad de radiobases, para identificar las zonas con mayor tráfico. Adicionalmente, la sonda debe ser ubicada garantizando que el nivel de intensidad de señal para las tecnologías 3G y 4G sea mejor al umbral establecido para el tipo de cobertura verde o dentro de vehículos según los umbrales definidos de conformidad con el artículo 8 del RPCS.
+▪ Para los operadores que tengan menos de 25.000 clientes en todo el territorio nacional, será necesario como mínimo 1 sonda.
+(Así adicionado el punto anterior mediante resolución N° RCS-333-2022 del 22 de diciembre del 2022)
+(*)Adicionalmente se deberán cumplir las siguientes restricciones:
+▪ Para los casos de operadores que cuenten con más de 25.000 clientes, se deberán desplegar como mínimo 7 sondas en todo el territorio nacional, una sonda por provincia, exceptuando las provincias en las que el operador no tenga clientes activos, y adicionando sondas en cada provincia donde cuente con clientes activos según se indicó en el listado anterior.
+▪Los clientes activos para efectos de estos cálculos deben ser considerados como se detalla en la sección 2.3.3.
+▪ En el caso de las tecnologías móviles, la sonda debe ser ubicada garantizando que el nivel de intensidad de señal para las tecnologías 3G y 4G sea mejor al umbral establecido para el tipo de cobertura verde o dentro de vehículos según los umbrales definidos de conformidad con el artículo 8 del RPCS.
+(*)(Así reformado el párrafo anterior mediante resolución N° RCS-333-2022 del 22 de diciembre del 2022)
 3.4.4. Restricciones para tecnologías fijas
 Todas las sondas deberán ubicarse en puntos de medición que repliquen las condiciones de los usuarios finales. Para tecnologías ADSL y otras similares de la familia xDSL, para las cuales es sabido que la calidad de la conexión disminuye con la distancia, se deberá procurar que la longitud promedio del bucle ADSL de todas las sondas sea superior a 1200 metros.
 Para el caso de tecnologías HFC, FTTx, u otras similares, la ubicación de las sondas debe abarcar la última milla (red primaria y secundaria de planta externa), incluyendo el bucle de abonado.
@@ -821,13 +829,19 @@ Referirse a la sección 3.4.2.
 3.5.5. Representatividad Geográfica
 Se tomarán como muestras válidas aquellas recolectadas dentro de las capas de cobertura azul (en interiores) y verde (dentro de vehículos), de conformidad con lo indicado en el inciso 4 del artículo 46 del RPCS.
 4. Capítulo IV. Frecuencia de muestreo
-4.2. Representatividad Temporal para mediciones por medio de sondas
-Cada sonda deberá efectuar mediciones periódicas en intervalos regulares de al menos 20 minutos, es decir que cada sonda debe realizar un mínimo de tres pruebas por hora, para cada indicador, por alcance (sección 2.4.4), a medir.
-Considerando el horario de medición de la sección 4.3, y la cantidad mínima de sondas (1 por provincia) de la sección 3.4.3, la cantidad mensual de muestras es, como mínimo:
+(*)4.1 Representatividad Temporal para mediciones por medio de sondas
+Cada sonda deberá efectuar mediciones periódicas en intervalos regulares de al menos 20 minutos, es decir que cada sonda debe realizar un mínimo de tres pruebas por hora, para cada indicador, por alcance (sección 2.3.4), a medir. Las mediciones se pueden efectuar durante las 24 horas del día, pudiendo utilizar también un horario preferente de las 6 horas a las 23 horas. En cualquier caso, independientemente del rango horario utilizado, se debe garantizar que la cantidad total de mediciones efectuadas en un mes exceda el mínimo de 1000 mediciones a fin de cumplir con el mínimo establecido en la norma ETSI EG 202 057-4 V1.2.1 (2008-07).
+En la norma ETSI EG 202 057-4 V1.2.1 (2008-07), se establece que para evaluar características cuantitativas, como lo son el retardo (delay) y la velocidad (throughput), la cantidad mínima de mediciones que se debe hacer depende de la relación entre la desviación estándar y el valor medio de la variable a evaluar (ver cuadro en el apéndice C de la citada norma ETSI). De acuerdo con el historial completo de un año de mediciones retardo (delay) y velocidad (throughput) de servicios de Internet fijo en Costa Rica, se ha determinado que la relación desvstdr/media es de 0,26; lo cual corresponde, según la norma ETSI, a un mínimo de 1000 mediciones.
+Considerando una medición continua durante las 24 horas del día, la cantidad mensual de muestras recopilada por una sola sonda a lo largo de un mes es, como mínimo:
 [imagen]
-La cantidad n de muestras, corresponde un valor mínimo considerando las recomendaciones de la norma ETSI EG 202 057-4 V1.2.1 (2008-07) y las restricciones establecidas en la presente metodología, por lo que la realización de una mayor cantidad de muestras no afecta negativamente la confiabilidad de los resultados finales.
-4.3. Representatividad Temporal para mediciones por medio de pruebas de campo de tipo drive test
+Siendo que una única sonda proporciona 2160 mediciones realizando mediciones de forma constante durante 24 horas diarias, las mediciones recolectadas por una sonda serán suficientes para que los resultados sean estadísticamente representativos. De acuerdo con lo anterior, el uso de una única sonda de medición proporciona datos suficientes para los casos de operadores/proveedores que cuenten con menos de 25.000 clientes en todo el territorio nacional (ver sección 3.4.3).
+La cantidad n de muestras, debe exceder el valor mínimo de 1000 mediciones considerando las recomendaciones de la norma ETSI EG 202 057-4 V1.2.1 (200807) y las restricciones establecidas en la presente metodología, por lo que la realización de una mayor cantidad de muestras no afecta negativamente la confiabilidad de los resultados finales.
+(*)(Así reformado el punto 4.1) anterior mediante resolución N° RCS-333-2022 del 22 de diciembre del 2022. )
+4.2. Representatividad Temporal para mediciones por medio de pruebas de campo de tipo drive test
+(Así modificada la numeración del punto anterior mediante resolución N° RCS-333-2022 del 22 de diciembre del 2022, que lo traspasó del antigua inciso 4.3 al 4.2)
 El proceso de recolección de datos por medio de pruebas de campo, dado que el vehículo se encuentra en movimiento, implica que entre pruebas consecutivas el tiempo de espera no debe ser mayor a 15 segundos, la duración de la prueba tiene relación directa con el tamaño del archivo por descargar o enviar. Se deberá esperar como máximo 30 segundos antes de dar como pérdida la prueba por desconexión. Estas mediciones se deben efectuar en el rango de horas desde las 06:00 hasta las 23:00, días hábiles.
+Estas mediciones se pueden efectuar durante las 24 horas del día, dando prioridad al rango de horas desde las 06:00 hasta las 23:00 horas.
+(Así adicionado el párrafo anterior mediante resolución N° RCS-333-2022 del 22 de diciembre del 2022)
 5. Capítulo IV. Formatos y tablas para remisión de resultados
 Los formatos y tablas que deben ser utilizadas por la SUTEL, los ISP y los operadores del servicio de Internet móvil para registrar los resultados de las mediciones, se adjuntan como un archivo
 *.xlsx adjunto a este documento.
