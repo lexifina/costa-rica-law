@@ -1,4 +1,6 @@
-ARTÍCULO 89.- Características de los instrumentos de deuda
+ARTÍCULO 89.-Características de los instrumentos de deuda
 Para negociar los títulos de deuda interna del Gobierno de la República correspondientes al crédito interno aprobado en la ley de presupuesto nacional, la Tesorería Nacional podrá utilizar los mecanismos que estime convenientes, siempre que respete las limitaciones en cuanto al monto y otros aspectos que disponga dicha ley.
 Para ese efecto y mediante la reglamentación correspondiente, podrán definirse las características, los procedimientos y, al menos, los aspectos operativos, presupuestarios y contables, para lo cual se considerará el criterio de los órganos rectores de los restantes subsistemas de la Administración Financiera en las materias correspondientes. Entre las características de los títulos podrán establecerse las tasas de interés fijas o variables, la denominación en colones u otra moneda y la colocación con descuentos y premios, de conformidad con la política de endeudamiento.
 Las renegociaciones de deuda interna que impliquen su conversión a moneda extranjera requerirán el criterio previo favorable de la Junta Directiva del Banco Central de Costa Rica.
+Por deuda pública interna se entenderá la emitida y registrada dentro del país, en cualquier moneda, que se rige por las leyes nacionales y sobre la cual son competentes los tribunales nacionales.
+(Así adicionado el párrafo anterior por el artículo 3° inciso c) de la ley Promoción y apertura del mercado de deuda pública costarricense, N° 10335 del 21 de diciembre del 2022)

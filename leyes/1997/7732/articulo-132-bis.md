@@ -1,0 +1,3 @@
+Artículo 132 bis- Liquidación transfronteriza de operaciones con valores de deuda pública
+En los casos en que el Ministerio de Hacienda lo considere necesario podrá utilizar medios internacionales de pago para materializar la liquidación transfronteriza de las operaciones, de conformidad con lo establecido para estos efectos en los reglamentos de compensación y liquidación emitidos por el Consejo Nacional de Supervisión del Sistema Financiero (Conassif).
+(Así adicionado por el artículo 3° inciso a) de la ley Promoción y apertura del mercado de deuda pública costarricense, N° 10335 del 21 de diciembre del 2022)
