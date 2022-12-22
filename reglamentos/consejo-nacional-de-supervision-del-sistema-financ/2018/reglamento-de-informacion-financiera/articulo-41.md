@@ -138,7 +138,7 @@ En esta subcuenta se registra el monto de los gastos originados en la constituci
 4 070 100 040 Amortización de gastos de organización e instalación
 4.070.100.040.M.010 Seguros Generales
 4.070.100.040.M.020 Seguros Personales")
-(Nota de Sinalevi: Mediante sesión N° 1682 del 23 de agosto de 2021, se acordó modificar, eliminar y agregar las cuentas, subcuentas y cuentas analíticas, así como la descripción de las cuentas en los Anexos 2 y 4 del presente reglamento. No obstante mediante información suministrada por el Consejo Nacional de Supervisión del Sistema Financiero, los anexos no fueron publicados en el Diario Oficial La Gaceta, los mismos pueden ser visualizados en la página Web de las Superintendencias Dado lo anterior se transcriben las reformas de los anexos 2 y 4 del Reglamento de Información Financiera, conforme el siguiente texto: i. Modificar el concepto del grupo 1.000 para que se lea de la siguiente manera:
+(Nota de Sinalevi: Mediante sesión N° 1682 del 23 de agosto de 2021, se acordó modificar, eliminar y agregar las cuentas, subcuentas y cuentas analíticas, así como la descripción de las cuentas en los Anexos 2 y 4 del presente reglamento. No obstante mediante información suministrada por el Consejo Nacional de Supervisión del Sistema Financiero, los anexos no fueron publicados en el Diario Oficial La Gaceta, los mismos pueden ser visualizados en la página Web de las Superintendencias Dado lo anterior se transcriben las reformas de los anexos 2 y 4 del Reglamento de Información Financiera vigente conforme el siguiente texto: i. Modificar el concepto del grupo 1.000 para que se lea de la siguiente manera:
 "CONCEPTO:
 Esta clase comprende todos los recursos representativos de los bienes propiedad de la entidad y los derechos que la misma tiene frente a terceros, y de los que espera obtener en el futuro beneficios económicos. Cuando se considere improbable que del activo no se vayan a obtener beneficios futuros, se debe registrar como un gasto en el estado de resultados. El activo debe tener un costo o valor que permita su medición con fiabilidad.
 Se reconoce un activo en el balance cuando es probable que se obtengan, del mismo, beneficios económicos futuros para la entidad, y además el activo tiene un costo o valor que puede ser medido con fiabilidad.
@@ -1264,13 +1264,7 @@ SUBCUENTA | 3.010.010.080 | Cuotas de participación Mutualista")
 (Nota de Sinalevi: Mediante Sesión N° 1724 del 4 de abril de 2022, se acordó modificar el concepto de la subcuenta 321.03 (Costos de emisión y colocación de acciones), en el Anexo 1 Plan de cuentas para las entidades supervisadas por SUGEF, SUGEVAL y SUPEN, los grupos y conglomerados financieros. No obstante mediante información suministrada por el Consejo Nacional de Supervisión del Sistema Financiero, los anexos no fueron publicados en el Diario Oficial La Gaceta, los mismos pueden ser visualizados en la página Web de las Superintendencias. Dado lo anterior se transcribe la reforma: "Modificar el concepto de la subcuenta 321.03 (Costos de emisión y colocación de acciones), en el Anexo 1 Plan de cuentas para las entidades supervisadas por SUGEF, SUGEVAL y SUPEN, los grupos y conglomerados financieros, de conformidad con el siguiente texto:
 "321.03 (Costos de emisión y colocación de acciones)
 CONCEPTO: En esta subcuenta se registran aquellos costos que estén directamente relacionados con la emisión y colocación de acciones u otras aportaciones de capital entregadas." )
-(Nota de Sinalevi: Mediante sesión N° 1752-2022 del 29 de agosto del 2022 se reforma el Anexo 1 Plan de Cuentas y al Anexo 3 Catálogo de Cuentas, para las entidades supervisadas por SUGEF, SUGEVAL y SUPEN. No obstante mediante información suministrada por el Consejo Nacional de Supervisión del Sistema Financiero, los anexos no fueron publicados en el Diario Oficial La Gaceta, los mismos pueden ser visualizados en la página Web de las Superintendencias. el texto de dichoas reformas será el siguiente: " agregar la cuenta analítica "139.02.M.05 (Componente para Deudores con Exposición
-a Riesgo Cambiario)", en el Anexo 1 del Plan de Cuentas y el Anexo 3 Catálogo de Cuentas, para las entidades supervisadas por SUGEF, SUGEVAL y SUPEN, los grupos y conglomerados financieros, de conformidad con el siguiente texto: "139.02.M.05 (Componente para Deudores con Exposición a Riesgo Cambiario)
-CONCEPTO: Esta cuenta analítica registra el importe de la estimación a deudores con exposición a riesgo cambiario, de conformidad con lo dispuesto en el marco de regulación vigente."
-En cuanto al Anexo 2 Plan de Cuentas y al Anexo 4 Catálogo de Cuentas, para las entidades supervisadas por SUGESE, del Acuerdo CONASSIF 6-18, Reglamento de Información Financiera (Antes Acuerdo SUGEF 30-18): dispuso en firme:
-agregar la cuenta analítica "1.030.090.020.M.050 (Componente para Deudores no Generadores)", en el Anexo 2 del Plan de Cuentas y el Anexo 4 Catálogo de Cuentas, para las entidades supervisadas por SUGESE, de conformidad con el siguiente texto: "1.030.090.020.M.050 (Componente para Deudores con Exposición a Riesgo Cambiario)
-CONCEPTO: Esta cuenta analítica registra el importe de la estimación a deudores con exposición a riesgo cambiario, de conformidad con lo dispuesto en el marco de regulación vigente.")
-(Nota de Sinalevi: Mediante el inciso c) del artículo 116 del Reglamento sobre supervisión consolidada (Acuerdo CONASSIF 16-22), aprobado mediante session N° 1759-2022 del 26 de setiembre del 2022 reforma el Anexo 1. Plan de cuentas para las entidades supervisadas por SUGEF, SUGEVAL y SUPEN, los grupos y conglomerados financieros y Anexo 2. Catálogo de cuentas para las entidades supervisadas por SUGEF, SUGEVAL y SUPEN, los grupos y conglomerados financieros, del Reglamento de Información Financiera, conforme se indica seguidamente:
+(Nota de Sinalevi: Mediante el artículo 116 del Reglamento sobre Supervisión Consolidada (Acuerdo CONASSIF 16-22), aprobado en sesión N° 1759-2022 del 26 de setiembre del 2022 se acordó reformar los anexos 1, 2, y 4 del presente reglamento. No obstante mediante información suministrada por el Consejo Nacional de Supervisión del Sistema Financiero, los anexos no fueron publicados en el Diario Oficial La Gaceta, los mismos pueden ser visualizados en la página Web de las Superintendencias. De conformidad con lo establecido en la indicada norma la mima empieza a regir a partir del 1° de enero del 2023, por lo que a partir de esa fecha el texto de dichoas reformas será el siguiente: " Reforma al Anexo 1. Plan de cuentas para las entidades supervisadas por SUGEF, SUGEVAL y SUPEN, los grupos y conglomerados financieros y Anexo 2. Catálogo de cuentas para las entidades supervisadas por SUGEF, SUGEVAL y SUPEN, los grupos y conglomerados financieros, del Reglamento de Información Financiera, conforme se indica seguidamente:
 1. Se modifica el concepto y se adicionan cuentas analíticas a la subcuenta 121.99 de la cuenta
 121 Inversiones al Valor Razonable con Cambios en Resultado, conforme con el siguiente texto:
 "SUBCUENTA
@@ -1281,7 +1275,7 @@ No. CUENTA | CONCEPTO | SUGEF | SUGEVAL | SUPEN
 12199M03 | Participaciones fondos inversión cerrados del país | x | x |
 12199M04 | Participaciones fondos inversión cerrados del exterior | x | x |
 12199M05 | Ajuste por valuación de otros instrumentos financieros al valor razonable con cambios en resultados | x | x |
-[...]"
+[.]"
 2. Se adicionan las siguientes subcuentas, denominadas 123.12 Reporto tripartito posición vendedor a plazo - Recursos propios y 123.14 Operaciones Diferidas de Liquidez -Recursos propios y sus respectivas cuentas analíticas de la cuenta 123 Inversiones al Costo Amortizado, conforme con el siguiente texto:
 "123.12 Reporto y reporto tripartito posición vendedor a plazo - Recursos propios CONCEPTO: En esta subcuenta se registran los importes desembolsados por la entidad con recursos propios, para la adquisición, a través de una bolsa de valores, de reporto y reporto tripartito (recompras) con el compromiso de revenderlos en un plazo y a un precio convenido. En el caso de los reportos tripartitos, los instrumentos financieros subyacentes se mantienen en un fideicomiso de garantía, administrado por la Bolsa Nacional de Valores para garantizarle al inversionista (posición vendedora a plazo) la recuperación de lo invertido.
 Además, esta subcuenta incluye las operaciones de reporto, que consiste en un contrato u operación de crédito mediante el cual el reportador adquiere por una suma de dinero, la propiedad de instrumentos financieros y se obliga a transferir al reportado la propiedad de otros tantos instrumentos financieros de la misma especie en el plazo convenido, y contra el reembolso del mismo precio más un premio.
@@ -1300,11 +1294,10 @@ No. CUENTA | CONCEPTO | SUGEF | SUGEVAL | SUPEN
 12314M01 | Contraparte B.C.C.R. con o sin garantía | X | X | X
 12314M08 | Otras contrapartes con garantía | X | X |
 12314M09 | Otras contrapartes sin garantía | X | X" |
-")
-(Nota de Sinalevi: Mediante el inciso d) del artículo 116 del Reglamento sobre supervisión consolidada (Acuerdo CONASSIF 16-22), aprobado mediante session N° 1759-2022 del 26 de setiembre del 2022 reforma el Anexo 2: Plan de cuentas para las entidades supervisadas por SUGESE y Anexo 4: Catálogo de cuentas para las entidades supervisadas por SUGESE, del Reglamento de Información Financiera, para adicionar las siguientes subcuentas y cuentas analíticas pertenecientes a la subcuenta 1.020.010.990 Otros instrumentos financieros al Valor Razonable con cambios en resultados y a la cuenta 1.020.030 Inversiones al Costo Amortizado, conforme con el siguiente texto:
+d. Reforma al Anexo 2: Plan de cuentas para las entidades supervisadas por SUGESE y Anexo 4: Catálogo de cuentas para las entidades supervisadas por SUGESE, del Reglamento de Información Financiera, para adicionar las siguientes subcuentas y cuentas analíticas pertenecientes a la subcuenta 1.020.010.990 Otros instrumentos financieros al Valor Razonable con cambios en resultados y a la cuenta 1.020.030 Inversiones al Costo Amortizado, conforme con el siguiente texto:
 "1.020.010.990 Otros instrumentos financieros al Valor Razonable con cambios en resultados CONCEPTO: En esta subcuenta se registran las inversiones realizadas por la entidad en participaciones en fondos de inversión abiertos y cerrados en entidades del país y del exterior y en otros activos para negociar no comprendidas en las anteriores subcuentas.
 CUENTAS ANALÍTICAS
-[...]
+[.]
 1.020.010.990.M.030 Participaciones fondos inversión cerrados del país
 1.020.010.990.M.040 Participaciones fondos inversión cerrados del exterior
 1.020.010.990.M.050 Ajuste por valuación de otros instrumentos financieros al valor razonable con cambios en resultados"
@@ -1322,3 +1315,108 @@ CUENTAS ANALÍTICAS
 1.020.030.120.M.010 Contraparte B.C.C.R. con o sin garantía
 1.020.030.120.M.080 Otras contrapartes con garantía
 1.020.030.120.M.090 Otras contrapartes sin garantía")
+(Nota de Sinalevi: Mediante sesión N° 1752-2022 del 29 de agosto del 2022 se reforma el Anexo 1 Plan de Cuentas y al Anexo 3 Catálogo de Cuentas, para las entidades supervisadas por SUGEF, SUGEVAL y SUPEN. No obstante mediante información suministrada por el Consejo Nacional de Supervisión del Sistema Financiero, los anexos no fueron publicados en el Diario Oficial La Gaceta, los mismos pueden ser visualizados en la página Web de las Superintendencias. el texto de dichoas reformas será el siguiente: “ agregar la cuenta analítica "139.02.M.05 (Componente para Deudores con Exposición
+a Riesgo Cambiario)", en el Anexo 1 del Plan de Cuentas y el Anexo 3 Catálogo de Cuentas, para las entidades supervisadas por SUGEF, SUGEVAL y SUPEN, los grupos y conglomerados financieros, de conformidad con el siguiente texto: "139.02.M.05 (Componente para Deudores con Exposición a Riesgo Cambiario)
+CONCEPTO: Esta cuenta analítica registra el importe de la estimación a deudores con exposición a riesgo cambiario, de conformidad con lo dispuesto en el marco de regulación vigente."
+En cuanto al Anexo 2 Plan de Cuentas y al Anexo 4 Catálogo de Cuentas, para las entidades supervisadas por SUGESE, del Acuerdo CONASSIF 6-18, Reglamento de Información Financiera (Antes Acuerdo SUGEF 30-18): dispuso en firme:
+agregar la cuenta analítica "1.030.090.020.M.050 (Componente para Deudores no Generadores)", en el Anexo 2 del Plan de Cuentas y el Anexo 4 Catálogo de Cuentas, para las entidades supervisadas por SUGESE, de conformidad con el siguiente texto: "1.030.090.020.M.050 (Componente para Deudores con Exposición a Riesgo Cambiario)
+CONCEPTO: Esta cuenta analítica registra el importe de la estimación a deudores con exposición a riesgo cambiario, de conformidad con lo dispuesto en el marco de regulación vigente.")
+(Nota de Sinalevi: Mediante sesión N° 1777-2022 del 22 de diciembre de 2022 se reforma Anexo 1, Plan de cuentas para las entidades supervisadas por SUGEF, SUGEVAL y SUPEN, los grupos y conglomerados financieros y Anexo 3, Catálogo de cuentas para las entidades supervisadas por SUGEF, SUGEVAL y SUPEN, los grupos y conglomerados financieros No obstante mediante información suministrada por el Consejo Nacional de Supervisión del Sistema Financiero, los anexos no fueron publicados en el Diario Oficial La Gaceta, los mismos pueden ser visualizados en la página Web de las Superintendencias, De conformidad con lo establecido en el transitorio Segundo de la indicada norma la misma empezatá a regir a partir del 24 de enero del 2024 por lo que a partir de esa fecha las reformas serán las siguientes: " 1. Se adiciona la subcuenta 231.16 y sus respectivas cuentas analíticas a la cuenta 231, OBLIGACIONES A LA VISTA CON ENTIDADES FINANCIERAS, conforme con el siguiente texto:
+"SUBCUENTA
+231.16 Operaciones de Bolsa por Pagar
+CONCEPTO: En esta subcuenta se registran las operaciones por negociaciones de los intermediarios bursátiles que se encuentran en el ciclo de compensación y liquidación de una bolsa o una sociedad de compensación y liquidación autorizada, que se deben liquidar a los miembros liquidadores y a las centrales de valores.
+CUENTAS ANALÍTICAS
+[.]
+No. CUENTA | CONCEPTO | SUGEF | SUGEVAL | SUPEN
+23116M01 | Puestos de bolsa | | x |
+23116M02 | Garantías en centrales de valores | | x |
+[.]"
+2. Se adicionan las subcuentas: 251.07, Ingresos diferidos por actividad de Bolsas y sus respectivas cuentas analíticas y 51.08, Ingresos diferidos por actividad de entidades de registros centralizados y sus respectivas cuentas analíticas, a la cuenta 251, INGRESOS DIFERIDOS, conforme con el siguiente texto:
+"251.07 Ingresos diferidos por actividad de bolsas de valores CONCEPTO: En esta subcuenta se registran los importes recibidos anticipadamente por servicios provistos por las bolsas de valores a puestos de bolsa, emisores, entidades adheridas al sistema de anotación en cuenta, entre otras, que no corresponde reconocer en los resultados del período debido a que aún no se han devengado.
+CUENTAS ANALÍTICAS
+No. CUENTA | CONCEPTO | SUGEF | SUGEVAL | SUPEN
+25107M01 | Sistemas y herramientas de gestión de datos | | X |
+25107M02 | Sistemas y herramientas para el análisis de datos | | X |
+25107M03 | Herramientas de comunicación con sistemas de negociación y post- contratación | | X |
+25107M04 | Cuotas de mantenimientos de Puestos de Bolsa | | X |
+25107M05 | Arrendamientos operativos | | X |
+"251.08 Ingresos diferidos por actividad de entidades de registros centralizados
+CONCEPTO: En esta subcuenta se registran los importes recibidos anticipadamente por servicios provistos por entidades de registros centralizados de letras de cambio y pagarés electrónicos de conformidad con lo establecido en la Ley 10069, a personas físicas y jurídicas usuarias, que no corresponde reconocer en los resultados del período debido a que aún no se han devengado.
+No. CUENTA | CONCEPTO | SUGEF | SUGEVAL | SUPEN
+25108M01 | Sistemas y herramientas de gestión de datos | | X |
+25108M02 | Sistemas y herramientas para el análisis de datos | | X |
+25108M06 | Comisiones por servicios prestados entidades registros centralizados | | X |
+3. Se adicionan las siguientes subcuentas y sus respectivas cuentas analíticas en la cuenta 531 Comisiones por Servicios y además se adicionan subcuentas y sus respectivas cuentas analíticas en la cuenta 538 Otros ingresos con partes relacionadas, estas cuentas forman parte del grupo 530 INGRESOS OPERATIVOS DIVERSOS, conforme con el siguiente texto:
+"SUBCUENTA
+531.42 COMISIONES DEL ORGANIZADOR DEL MERCADO DE
+VALORES
+CONCEPTO: En esta subcuenta se registra las comisiones que cobra el organizador del mercado de valores por el uso de la plataforma de negociaciones en el mercado primario y mercado secundario de las bolsas de valores.
+CUENTAS ANALÍTICAS
+No. CUENTA | CONCEPTO | SUGEF | SUGEVAL | SUPEN
+53142M01 | Mercado Primario | | X |
+53142M02 | Mercado Secundario | | X |
+53142M03 | Comisiones Servicios de Compensación y Liquidación | | X |
+53142M04 | Comisiones Asignación de contratos | | X |
+SUBCUENTA
+531.43 COMISIONES POR SERVICIOS DE ANOTACION EN CUENTA CONCEPTO: En esta subcuenta se registra los ingresos por servicios de anotación en cuenta de las Centrales de Valores y de las Entidades de Registros Centralizados.
+CUENTAS ANALÍTICAS
+No. CUENTA | CONCEPTO | SUGEF | SUGEVAL | SUPEN
+53143M01 | Ingresos por servicios de anotación en cuenta de Centrales de Valores | | X |
+53143M02 | Ingresos por servicios de anotación en cuenta de Entidades de Registros Centralizados | | X |
+531.44 COMISIONES POR SERVICIOS COMPLEMENTARIOS DE LAS ENTIDADES DE REGISTROS CENTRALIZADOS
+CONCEPTO: En esta subcuenta se registran los ingresos por brindar servicios complementarios por parte de las entidades de registros centralizados de letras de cambio y pagarés electrónicos, de conformidad con lo establecido en la Ley
+10069.
+CUENTA ANALÍTICA
+No. CUENTA | CONCEPTO | SUGEF | SUGEVAL | SUPEN
+53144M01 | Ingresos por servicios complementarios de entidades de registro centralizado | | X |
+SUBCUENTA
+538.04 INGRESOS POR CUOTA DE MANTENIMIENTO PUESTOS DE BOLSA
+CONCEPTO: En esta subcuenta se registra los ingresos por cuota de mantenimiento de los puestos de bolsa.
+CUENTA ANALÍTICA
+No. CUENTA | CONCEPTO | SUGEF | SUGEVAL | SUPEN
+53804M01 | Cuota de mantenimiento puestos de bolsa | | X |
+SUBCUENTA
+538.05 INGRESOS POR SERVICIOS INFORMATICOS
+CONCEPTO: En esta subcuenta se registra los ingresos por servicios informáticos prestados.
+CUENTA ANALÍTICA
+No. CUENTA | CONCEPTO | SUGEF | SUGEVAL | SUPEN
+53805M01 | Ingresos por servicios informáticos prestados | | X |
+k. Reforma al Anexo 2, Plan de cuentas para las entidades supervisadas por Sugese y Anexo 4, Catálogo de cuentas para las entidades supervisadas por Sugese, del Reglamento de Información Financiera, para adicionar las siguientes subcuentas y cuentas analíticas pertenecientes a la subcuenta, conforme con el siguiente texto:
+"SUBCUENTA
+5.060.010.420 COMISIONES DEL ORGANIZADOR DEL MERCADO DE
+VALORES
+CONCEPTO: En esta subcuenta se registra las comisiones que cobra el organizador del mercado de valores por el uso de la plataforma de negociaciones en el mercado primario y mercado secundario de las bolsas de valores.
+CUENTAS ANALÍTICAS
+No. CUENTA | CONCEPTO
+5.060.010.420.M.010 | Mercado Primario
+5.060.010.420.M.020 | Mercado Secundario
+5.060.010.420.M.030 | Comisiones Servicios de Compensación y Liquidación
+5.060.010.420.M.040 | Comisiones Asignación de contratos
+SUBCUENTA
+5.060.010.430 COMISIONES POR SERVICIOS DE ANOTACION EN
+CUENTA
+CONCEPTO: En esta subcuenta se registra los ingresos por servicios de anotación en cuenta de las Centrales de Valores y de las Entidades de Registros Centralizados.
+CUENTAS ANALÍTICAS
+No. CUENTA | CONCEPTO
+5.060.010.430.M.010 | Ingresos por servicios de anotación en cuenta de Centrales de Valores
+5.060.010.430.M.020 | Ingresos por servicios de anotación en cuenta de Entidades de Registros Centralizados
+5.060.010.440 COMISIONES POR SERVICIOS COMPLEMENTARIOS DE
+LAS ENTIDADES DE REGISTROS CENTRALIZADOS
+CONCEPTO: En esta subcuenta se registran los ingresos por brindar servicios complementarios por parte de las entidades de registros centralizados de letras de cambio y pagarés electrónicos, de conformidad con lo establecido en la Ley 10069.
+CUENTA ANALÍTICA
+No. CUENTA | CONCEPTO
+5.060.010.430.M.010 | Ingresos por servicios complementarios de entidades de registro centralizado
+(.)
+SUBCUENTA
+5.060.080.040 INGRESOS POR CUOTA DE MANTENIMIENTO PUESTOS DE BOLSA
+CONCEPTO: En esta subcuenta se registra los ingresos por cuota de mantenimiento de los puestos de bolsa.
+CUENTA ANALÍTICA
+No. CUENTA | CONCEPTO
+5.060.080.040.M.010 | Cuota de mantenimiento puestos de bolsa
+SUBCUENTA
+5.060.080.050 INGRESOS POR SERVICIOS INFORMATICOS
+CONCEPTO: En esta subcuenta se registra los ingresos por servicios informáticos prestados.
+CUENTA ANALÍTICA
+No. CUENTA | CONCEPTO
+5.060.080.050.M.010 | Ingresos por servicios informáticos prestados
+")

@@ -33,3 +33,4 @@ Reglamento de información financiera
 | 18 | 2022-04-04 | Reglamento 1724 (2022-04-04) |
 | 19 | 2022-08-29 | Reglamento 1752 (2022-08-29) |
 | 20 | 2022-09-26 | Reglamento 1759 (2022-09-26) |
+| 21 | 2022-12-22 | Reglamento 1777 (2022-12-22) |
