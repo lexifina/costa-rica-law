@@ -1,0 +1,2 @@
+Artículo 23.-Resolución final. La persona jerarca institucional, tendrá un plazo máximo de ocho días hábiles para resolver lo que corresponda. La resolución final deberá estar debidamente fundamentada y será notificada a las partes interesadas.
+En caso de que exista mérito suficiente para recomendar el despido de la persona denunciada, se elevará el asunto ante el Directorio Legislativo para su decisión final.

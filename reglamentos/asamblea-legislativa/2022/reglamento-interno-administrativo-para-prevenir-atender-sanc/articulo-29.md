@@ -1,0 +1,7 @@
+Artículo 29.-Registro de sanciones firmes. La Dirección Ejecutiva será el órgano competente para comunicar al Tribunal Supremo de Elecciones la resolución final sancionatoria, en un plazo de ocho días hábiles después de haber adquirido firmeza el acto. Lo anterior, a efecto de levantar un registro de sanciones de acceso público por violencia contra las mujeres en la política, según lo dispuesto en la Ley N°10.235, "Ley para Prevenir, Atender, Sancionar y Erradicar la Violencia contra las Mujeres en la Política".
+Sera responsabilidad del Departamento de Asesoría Legal resguardar y mantener actualizado el registro de sanciones en firme, impuestas en la Institución, por conductas de violencia contra las mujeres en la política, conforme con lo dispuesto en la Ley para Prevenir, Atender, Sancionar y Erradicar la Violencia contra las Mujeres en la Política. El registro que contendrá la siguiente información:
+a) Nombre de la persona sancionada.
+b) Número de cédula de identidad.
+c) Número del expediente disciplinario en el que se tramitó la investigación.
+d) Sanción impuesta.
+El registro e información relativa a las sanciones, incluyendo la identidad de las personas sancionadas, será de acceso público, después de su firmeza, resguardando la identidad, los datos personales y cualquier otra información sensible de las víctimas. La información se mantendrá en el registro por un plazo de diez años, a partir de la firmeza de la respectiva sanción.

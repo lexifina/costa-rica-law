@@ -1,0 +1,1 @@
+Artículo 31.-De la normativa supletoria. En ausencia de norma específica en la Ley N° 10.235 y en este reglamento, se aplicará, bajo el principio de integración jurídica y en forma supletoria, otras normas que regulen la materia que están establecidas en la Ley N° 10.235, "Ley para Prevenir, Atender, Sancionar y Erradicar la Violencia Contra las Mujeres en la Política".

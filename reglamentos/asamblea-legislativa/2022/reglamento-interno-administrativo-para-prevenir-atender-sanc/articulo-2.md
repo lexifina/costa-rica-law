@@ -1,0 +1,1 @@
+Artículo 2.-Ámbito de aplicación. Las disposiciones de este reglamento son de aplicación general para todas las personas servidoras legislativas con independencia del régimen o su condición de nombramiento.

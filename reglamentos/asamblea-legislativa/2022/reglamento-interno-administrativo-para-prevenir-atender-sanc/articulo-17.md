@@ -1,0 +1,1 @@
+Artículo 17.-Comparecencia de la persona denunciante. Vencido el plazo de los 10 días hábiles otorgados a la persona denunciada para contestar el traslado de la denuncia, y en los siguientes cinco días hábiles, el órgano director dará audiencia a la funcionaria denunciante, para que comparezca ante esta instancia.

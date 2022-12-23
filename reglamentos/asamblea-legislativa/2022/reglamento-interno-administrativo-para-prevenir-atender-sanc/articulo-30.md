@@ -1,0 +1,3 @@
+CAPÍTULO V
+Disposiciones Finales
+Artículo 30.-Remisión a otras jurisdicciones. Las sanciones contempladas en la Ley y este Reglamento se impondrán sin perjuicio de que la mujer o las mujeres afectadas acudan a la vía correspondiente, cuando las conductas también constituyan hechos punibles por el Código Penal o en otras leyes especiales, o bien, configuren conductas sancionadas en la Ley contra el Hostigamiento o Acoso Sexual en el Empleo y la Docencia o en otras leyes conforme al artículo 34, Ley N° 10.235, "Ley para Prevenir, Atender, Sancionar y Erradicar la Violencia Contra las Mujeres en la Política".

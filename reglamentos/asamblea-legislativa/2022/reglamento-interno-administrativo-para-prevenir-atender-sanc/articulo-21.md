@@ -1,0 +1,1 @@
+Artículo 21.-Conclusiones o alegatos finales. Evacuada la prueba y recibida la comparecencia de las partes, éstas podrán presentar sus alegatos finales y conclusiones dentro de un plazo máximo de tres días hábiles.

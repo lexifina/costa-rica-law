@@ -1,0 +1,1 @@
+Artículo 28.-Agravantes de las sanciones. Las acciones comprendidas en la Ley N° 10.235, "Ley para Prevenir, Atender, Sancionar y Erradicar la Violencia contra las Mujeres en la Política", serán agravantes de las sanciones previstas en el artículo anterior.

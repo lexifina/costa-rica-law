@@ -1,0 +1,1 @@
+Artículo 13.-De la ampliación o aclaración. El órgano director podrá solicitar a la persona denunciante, dentro del término de tres días hábiles, contados a partir de su instalación, que amplíe o aclare los términos de la denuncia.

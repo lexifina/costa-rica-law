@@ -1,0 +1,6 @@
+Artículo 27.-Sanciones. Las sanciones a imponer por conductas de violencia contra las mujeres en la política, según la gravedad de conducta y de acuerdo con las definiciones del presente reglamento son:
+a) Faltas leves: Amonestación escrita.
+b) Faltas graves: Suspensión sin goce de salario hasta por dos meses.
+c) Faltas muy graves: Despido sin responsabilidad patronal o revocatoria del nombramiento por designación.
+Cuando una persona reincide en una conducta de violencia contra las mujeres en la política, le será aplicada la sanción prevista para la calificación más grave siguiente a la que resultare del procedimiento. Se podrán utilizar como medidas complementarias de las sanciones dispuestas anteriormente, el traslado de la persona denunciada de su departamento actual a otra instancia legislativa, así como cualquier otra medida que recomiende el órgano Director u ordene la Dirección Ejecutiva o el Directorio Legislativo al respecto, siempre que garanticen los derechos de las partes, guarden proporción y legalidad, y siempre que no afecte el servicio público que se brinda.
+En el caso del órgano director, la recomendación de la medida complementaria deberá ser parte del informe final que brinde ante la Dirección Ejecutiva o Directorio Legislativo.

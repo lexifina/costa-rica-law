@@ -1,0 +1,1 @@
+Artículo 8°-Del apoyo a las partes afectadas. Las partes afectadas, denunciante y denunciada, tendrán derecho a contar, durante el procedimiento, con el patrocinio letrado y con el apoyo emocional o psicológico de su confianza.

@@ -1,0 +1,1 @@
+Artículo 22.-De la conclusión e informe final. En el plazo máximo de ocho días hábiles, después de recibidos los alegatos de conclusiones, el órgano director informará a la persona jerarca institucional el informe final de la investigación disciplinaria y las recomendaciones que se consideren aplicables. Este informe, al carecer de efectos jurídicos, no es recurrible.

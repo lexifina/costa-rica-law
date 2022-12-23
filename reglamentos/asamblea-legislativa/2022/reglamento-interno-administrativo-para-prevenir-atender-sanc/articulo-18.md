@@ -1,0 +1,1 @@
+Artículo 18.-Comparecencia de la persona denunciada. La persona denunciada tendrá derecho a una audiencia oral y privada ante el órgano director, la cual deberá ser precedida por al menos quince días hábiles, a partir del traslado de cargos que da inicio al procedimiento.

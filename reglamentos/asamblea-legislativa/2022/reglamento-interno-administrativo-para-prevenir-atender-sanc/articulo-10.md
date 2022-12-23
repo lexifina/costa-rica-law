@@ -1,0 +1,6 @@
+Artículo 10.-De la integración del órgano director del proceso. El órgano director estará conformado por tres funcionarios (as) de la Institución, designados (as) por el Director Ejecutivo, y en la siguiente forma:
+a) Un (a) profesional, preferiblemente con conocimientos en materia de igualdad de género, derechos humanos, derechos políticos y/o violencia contra las mujeres.
+b) Un (a) profesional en medicina y/o Psicología, preferiblemente del Departamento de Servicios de Salud o bien del Departamento de Recursos Humanos.
+c) Un (a) profesional, con grado de licenciatura en leyes, preferiblemente del Departamento de Asesoría Legal, con conocimientos en materia disciplinaria, que velará porque se respete el debido proceso y tendrá en custodia el expediente administrativo. Coordinará la comisión.
+El órgano director estará conformado, preferiblemente, en mayoría, por mujeres cada una de las personas integrantes tendrán su respectiva suplencia, para aquellas ausencias de fuerza mayor, por parte de los (las) titulares. Todas estas personas funcionarias tendrán el deber de mantener la confidencialidad sobre lo conocido y resuelto en el caso.
+La Unidad Técnica de Igualdad y Equidad de Género podrá brindar asesoría especializada en género al órgano Director cuando este así lo requiera.
