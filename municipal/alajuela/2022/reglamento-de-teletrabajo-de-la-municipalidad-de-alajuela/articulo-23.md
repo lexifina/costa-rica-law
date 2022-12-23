@@ -1,0 +1,1 @@
+Artículo 23.-Teletrabajo permanente. Recursos Humanos en coordinación con la Comisión y las dependencias correspondientes, podrán determinar las plazas o los puestos que se podrán desarrollar de manera exclusiva bajo la modalidad de teletrabajo, conforme al artículo 12 de este Reglamento.
