@@ -1,0 +1,2 @@
+Artículo 29.-
+El profesional en Odontología no debe confiar trabajos de prótesis a laboratorios que sean dirigidos por técnicos dentales que excedan sus competencias e irrumpan en el campo del profesional en Odontología. Al conocer este hecho, el profesional en Odontología tendrá la obligación de denunciarlo ante el fiscal de la Junta Directiva del Colegio de Cirujanos Dentistas, con el fin de que este disponga lo pertinente y entable la denuncia de rigor por ejercicio ilegal de la Odontología ante las autoridades judiciales correspondientes.

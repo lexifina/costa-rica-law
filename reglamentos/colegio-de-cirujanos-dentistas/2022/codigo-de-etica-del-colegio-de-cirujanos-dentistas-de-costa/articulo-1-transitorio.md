@@ -1,0 +1,3 @@
+Transitorio Único
+Los procesos disciplinarios que se hayan iniciado antes de la entrada en vigencia de este Código se tramitarán y se concluirán de conformidad con las disposiciones del Código de Ética publicado en el Diario Oficial La Gaceta N° 246 del día 22 de diciembre del 2011. Rige a partir de su publicación en el Diario Oficial
+Dado en sesión de Junta Directiva del Colegio de Cirujanos Dentistas de Costa Rica, efectuada el 12 de octubre de 2022, según el acuerdo número 1, acta ordinaria 1788; habiendo sido aprobado íntegramente su contenido en la Asamblea General Extraordinaria celebrada el 17 de noviembre de 2022, en la sede del Colegio, según consta en el Libro de Actas de Asamblea General.

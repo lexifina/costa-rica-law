@@ -1,0 +1,2 @@
+Artículo 28.-
+El profesional en Odontología solo podrá delegar funciones administrativas o técnicas al personal auxiliar, conforme a lo señalado en la Ley General de Salud o cualquier normativa aplicable. No podrá delegar competencias propias del acto odontológico. El ejercicio de las libertades de diagnóstico, terapéutica y su control son exclusivamente responsabilidad del profesional en Odontología, por lo que no podrá participar en ninguna forma de ejercicio donde tal control esté sometido a personas ajenas a la profesión odontológica.

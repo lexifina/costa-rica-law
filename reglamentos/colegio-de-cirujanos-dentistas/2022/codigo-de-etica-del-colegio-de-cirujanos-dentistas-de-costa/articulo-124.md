@@ -1,0 +1,5 @@
+Artículo 124.-
+El profesional en Odontología que ejerza la docencia en este campo:
+1. No deberá impartir asignaturas o contenidos curriculares para los que no cuente con experiencia que lo respalde, ni impartirá un número tan diverso de asignaturas del campo profesional que haga dudar de su seriedad como docente.
+2. No debe facilitar trámites indebidos para obtener créditos académicos de cualquier naturaleza ni propiciar el facilismo académico, de modo que conceda títulos a personas que no hayan sido debidamente capacitadas y formadas.
+3. No deberá promover que estudiantes ejerzan la profesión ilegalmente. Toda práctica profesional deberá ser supervisada por un profesional en Odontología. Quien en ejercicio de la docencia tuviera conocimiento de tal condición deberá por su propia cuenta interponer la denuncia correspondiente ante la instancia judicial competente, o en su caso ante la Fiscalía del Colegio de Cirujanos Dentistas, para que sea esta la que dé parte a la autoridad judicial.

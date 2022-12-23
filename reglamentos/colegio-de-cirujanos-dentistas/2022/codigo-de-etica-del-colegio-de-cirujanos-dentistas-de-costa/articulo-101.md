@@ -1,0 +1,2 @@
+Artículo 101.-
+El profesional en Odontología no prestará su imagen para la promoción de productos de interés sanitario, incluidos los medicamentos, en los que destaquen únicamente buenas características, enmascarando las propiedades reales o que resulten inexactas, omitan posibles efectos secundarios, contraindicaciones o puedan inducir a error a la población y no cuenten con el registro sanitario para su comercialización en el país.

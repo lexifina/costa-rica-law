@@ -1,0 +1,2 @@
+Artículo 51.-
+El profesional en Odontología, cualquiera que sea la modalidad de su ejercicio, está obligado a prestar ayuda de urgencia al enfermo o a quien hubiese sufrido un accidente que generare una emergencia en salud oral. En situaciones de urgencia sanitaria, catástrofe, epidemia o pandemia, el profesional en Odontología podrá presentarse voluntariamente a las autoridades para colaborar en la asistencia sanitaria en la medida en que le sea requerida, bajo el entendido de que su intervención no puede ir más allá de lo que resulta propio del ejercicio de la Odontología.

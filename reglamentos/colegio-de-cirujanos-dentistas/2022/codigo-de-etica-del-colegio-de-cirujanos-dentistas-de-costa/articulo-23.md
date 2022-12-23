@@ -1,0 +1,2 @@
+Artículo 23.-
+El profesional en Odontología no debe aceptar salarios menores a los fijados por las instancias competentes. Deberá respetar los montos que se determinen como tarifas mínimas por concepto de honorarios y tarifas del Colegio de Cirujanos Dentistas de Costa Rica, independientemente de que su intervención o ejercicio profesional se dé en forma liberal o al amparo de una relación laboral.

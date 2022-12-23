@@ -1,0 +1,2 @@
+Artículo 52.-
+En casos de pacientes que sufren una enfermedad incurable y terminal, el profesional en Odontología debe evitar el ensañamiento terapéutico, absteniéndose de acciones diagnósticas o terapéuticas inútiles u obstinadas y se limitará en sus intervenciones a aliviar los dolores físicos del sistema estomatognático que pueda experimentar el paciente, con el fin de resguardar su dignidad en procura de ofrecer la mejor calidad de vida posible hasta el final de su existencia y siempre dentro del ámbito de atención que compete al profesional en Odontología.

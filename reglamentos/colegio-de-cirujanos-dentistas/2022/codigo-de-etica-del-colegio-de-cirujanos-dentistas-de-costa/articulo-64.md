@@ -1,0 +1,2 @@
+Artículo 64.-
+Ningún sistema de informatización, sea de carácter administrativo, epidemiológico, clínico, científico-profesional, de investigación o cualquier otra naturaleza, comprometerá el derecho del paciente a la imagen y el resguardo de sus datos sensibles. Los profesionales en Odontología no pueden cooperar en la creación de bancos electrónicos de datos sanitarios que puedan poner en peligro o mermar el derecho del paciente a su imagen, intimidad, datos sensibles y en general a la seguridad y protección de su vida privada.

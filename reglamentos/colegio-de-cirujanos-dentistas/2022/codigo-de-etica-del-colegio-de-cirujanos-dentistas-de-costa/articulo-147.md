@@ -1,0 +1,2 @@
+Artículo 147.-
+Se considera falta grave la infracción de los postulados establecidos en cualesquiera de los siguientes artículos: 13, 14, 20, 21, 23, 31, 32, 33, 34, 35, 37, 38, 41, 43, 45, 47, 48, 49, 50, 52, 55, 57, 59, 61, 67, 71, 72, 73, 77, 78, 86,88, 89, 90, 91, 92, 95, 101, 102, 103, 105, 108, 110, 111, 112, 113, 116, 121, 123, 124, 125, 127, 128, 129, 130, 131, 133, 135, 139, 140, 141 y 142.

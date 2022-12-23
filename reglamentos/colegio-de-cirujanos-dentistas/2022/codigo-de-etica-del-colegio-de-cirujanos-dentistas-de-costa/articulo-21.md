@@ -1,0 +1,2 @@
+Artículo 21.-
+El profesional en Odontología no puede cobrar menos de la tarifa mínima establecida por el Colegio de Cirujanos Dentistas de Costa Rica. Además, no debe abrir, colaborar, facilitar ni mantener en operación establecimientos odontológicos o Centros Radiológicos Dentomaxilofaciales donde se infrinja el ordenamiento jurídico, incluyendo la inobservancia de las tarifas mínimas o los honorarios profesionales mínimos fijados por el Colegio de Cirujanos Dentistas de Costa Rica.

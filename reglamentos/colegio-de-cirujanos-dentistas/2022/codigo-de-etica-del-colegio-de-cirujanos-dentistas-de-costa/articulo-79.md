@@ -1,0 +1,2 @@
+Artículo 79.-
+El profesional en Odontología deberá asumir las consecuencias negativas de sus actuaciones y errores, ofreciendo una explicación clara, honrada, constructiva y adecuada en aplicación de la Ley de Derechos y Deberes de las Personas Usuarias de los Servicios de Salud Públicos y Privados. Asimismo, deberá informar la ocurrencia de un evento adverso, independientemente de la magnitud de los daños que haya ocasionado.

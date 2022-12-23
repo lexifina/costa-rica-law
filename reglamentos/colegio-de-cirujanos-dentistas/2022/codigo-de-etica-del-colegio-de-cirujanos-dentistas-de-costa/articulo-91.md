@@ -1,0 +1,2 @@
+Artículo 91.-
+Los anuncios, rótulos y material publicitario en general deberán llevar el nombre de la clínica, o establecimiento odontológico, el del profesional o profesionales en Odontología que brinden sus servicios en esta. Adicionalmente, se debe indicar el título del profesional en Odontología o la especialidad en que se encuentre inscrito en el Registro de Especialidades del Colegio de Cirujanos Dentistas de Costa Rica. En caso de que no haya especialistas registrados, se omitirá toda mención de especialidades dentro de la publicidad de la clínica.

@@ -1,0 +1,4 @@
+CAPÍTULO VII
+Sobre la Documentación de las Intervenciones Clínicas
+Artículo 62.- Del Expediente Clínico
+Tanto la relación profesional en Odontología-paciente, como los actos propios de la intervención del profesional en Odontología, deberán ser registrados en el expediente clínico, el cual es un documento fundamental que el profesional en Odontología tiene el deber y también el derecho de llevar a cabo, con el objetivo de facilitar la asistencia del paciente. Es obligación del profesional en Odontología y también su derecho registrar sus intervenciones profesionales en el expediente clínico, el cual contendrá la historia clínica, historia dental, diagnóstico dental y radiográfico, plan de tratamiento, registro diario del tratamiento efectuado, consentimiento válidamente informado (específico para cada tratamiento) y otros elementos diagnósticos tales como: radiografías, modelos, fotografías, exámenes de laboratorio u otros.

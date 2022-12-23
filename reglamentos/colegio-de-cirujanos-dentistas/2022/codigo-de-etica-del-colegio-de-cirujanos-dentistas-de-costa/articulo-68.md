@@ -1,0 +1,2 @@
+Artículo 68.-
+El expediente clínico se redacta y conserva para la atención del paciente. Es deontológicamente correcto el uso del contenido de este para su análisis científico, estadístico o con fines docentes y de investigación, siempre que se respete rigurosamente la confidencialidad de los datos del paciente. La publicación o presentación científica del historial clínico de pacientes deberá respetar el derecho a la imagen y al resguardo de los datos sensibles.

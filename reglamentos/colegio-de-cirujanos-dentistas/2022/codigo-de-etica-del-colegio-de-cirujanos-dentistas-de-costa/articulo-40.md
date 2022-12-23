@@ -1,0 +1,2 @@
+Artículo 40.-
+Cuando se trate de posibles errores clínicos en el tratamiento de un paciente, que de previo fue atendido por un Profesional en Odontología, es obligatorio realizar las diligencias razonables para comunicarse con el colega tratante y explicarle la situación y consultar la información relevante previo cualquier intervención. Cuando el problema sea repetitivo, es deber ético ponerlo en conocimiento de la Fiscalía del Colegio de Cirujanos Dentistas de Costa Rica para lo que corresponda.

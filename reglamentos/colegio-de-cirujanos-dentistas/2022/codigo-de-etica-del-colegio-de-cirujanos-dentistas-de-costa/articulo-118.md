@@ -1,0 +1,2 @@
+Artículo 118.-
+El profesional en Odontología podrá negarse a emitir su opinión o dictamen cuando se lo solicite un colega o el paciente, haciendo constar las razones por las cuales se niega. Entre ellas puede alegar el haber participado en el tratamiento o tener relación de parentesco o afinidad con el profesional en Odontología que efectuó dicho tratamiento o con el paciente. Debe en estos casos comunicarlo así al Colegio de Cirujanos Dentistas de Costa Rica.

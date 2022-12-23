@@ -1,0 +1,7 @@
+Artículo 47.-
+Una vez que el profesional en Odontología o el establecimiento en que brinde sus servicios acepte la atención del paciente, queda comprometido a asegurar la continuidad de sus servicios profesionales. No obstante, el profesional en Odontología podrá suspender la continuidad de la atención en los siguientes casos:
+1. De llegar al convencimiento de que no existiera la necesaria confianza del paciente hacia el tratamiento propuesto o realizado por el profesional en Odontología. Este último dejará constancia en el expediente, informando de ello al paciente, representante legal, familiares o allegados (o a quien corresponda), y deberá facilitar al profesional que se haga cargo del paciente toda la información necesaria.
+2. La falta de capacitación o destreza para atender un determinado caso, habiendo sobrevenido alguna complicación en la salud del paciente que demandare la intervención de otro profesional especializado, con una pericia o expertiz que el profesional tratante no posee.
+3. Cuando se violente la integridad física o psicológica del profesional o del paciente, o el deterioro de la relación profesional en Odontología-paciente.
+4. También podrá suspender la asistencia, con las precauciones recogidas en el punto anterior, en caso de incumplimiento reiterado por parte del paciente de las indicaciones orales o escritas dadas por el profesional.
+5. Cuando se presente morosidad de parte del paciente, al no cancelar sus obligaciones económicas producto de los servicios prestados por parte del profesional en odontología.

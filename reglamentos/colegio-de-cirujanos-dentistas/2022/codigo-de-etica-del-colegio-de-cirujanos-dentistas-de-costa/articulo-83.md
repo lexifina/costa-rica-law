@@ -1,0 +1,2 @@
+Artículo 83.-
+Es facultad del profesional en Odontología otorgar descuentos en los servicios prestados, pero en ningún momento podrá infringir los montos mínimos fijados en la Tabla de Tarifas Mínimas establecidas por el Colegio de Cirujanos Dentistas. Asimismo, podrá prescindir del cobro de honorarios o cobrar una fracción de la tarifa mínima a sus familiares hasta tercer grado de consanguinidad o afinidad o a cualquier otro profesional en odontología.

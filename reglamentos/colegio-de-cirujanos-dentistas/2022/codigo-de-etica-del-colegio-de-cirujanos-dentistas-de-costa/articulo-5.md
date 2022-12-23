@@ -1,0 +1,4 @@
+CAPÍTULO II
+Principios Aplicables en la Atención Odontológica
+Artículo 5.- Principio de Autonomía
+Los profesionales en Odontología reconocen, respetan y legitiman la autonomía de todo ser humano para tomar sus decisiones en salud, con base en la racionalidad de un consentimiento informado dentro del marco de los principios y valores éticos y morales que pueda sustentar. Las personas profesionales en Odontología velarán para que nadie coarte externamente la voluntad de las personas y les brindará protección cuando se encuentren en una situación vulnerable o tengan disminuida su autonomía. En este mismo sentido, se respeta la libertad del paciente de escoger al profesional en Odontología de quien desea recibir tratamiento y de su potestad de cambiarlo en el momento que guste, bajo el entendido y riesgo que eso pueda suponer para el avance de sus tratamientos.

@@ -1,0 +1,2 @@
+Artículo 134.- Límites de la Teleconsulta Dental
+Es responsabilidad del profesional en Odontología, en apego a su juicio clínico y las guías, protocolos y normas en general que sobre la teleconsulta dental dictare el Colegio, determinar los casos en que el paciente puede ser abordado de esta forma, los casos en que debe migrar de una teleconsulta dental a una intervención o atención presencial, siempre en resguardo de la salud del paciente.

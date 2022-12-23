@@ -1,0 +1,2 @@
+Artículo 86.-
+Todos los profesionales en odontología que trabajen o presten sus servicios para cualquier establecimiento odontológico que pertenezca a personas físicas o jurídicas, deben velar por el cumplimiento de las tarifas mínimas establecidos por el Colegio de Cirujanos Dentistas para la profesión odontológica, independientemente de la modalidad en la que presta sus servicios. Es la responsabilidad del profesional en odontología conocer el monto que se cobra al paciente por el tratamiento del cual es responsable.
