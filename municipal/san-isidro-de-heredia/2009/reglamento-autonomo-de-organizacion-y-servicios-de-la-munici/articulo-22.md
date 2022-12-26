@@ -1,7 +1,7 @@
 CAPÍTULO VIII
 Obligaciones de los o las funcionarios(as) con autoridad
 administrativa, técnica o de ambos tipos
-Artículo 22.—Además de lo contemplado en el artículo anterior y en el presente reglamento, los o las funcionarios(as) que ocupen cargos con autoridad administrativa, técnica o de ambos tipos, están obligados a:
+Artículo 22.-Además de lo contemplado en el artículo anterior y en el presente reglamento, los o las funcionarios(as) que ocupen cargos con autoridad administrativa, técnica o de ambos tipos, están obligados a:
 a) Diagnosticar periódicamente, en forma objetiva y veraz las características del desempeño de todos(as) sus colaboradores(as), tanto en el aspecto técnico como administrativo y brindarles o gestionar la capacitación que requieran.
 b) Preparar informes y reportes con la correspondiente periodicidad sobre el desempeño de su respectiva unidad o proyecto.
 c) Reportar de forma inmediata cualquier hecho relevante que requiera una pronta solución.
@@ -19,6 +19,6 @@ n) Crear y mantener una cultura de trabajo orientada a estimular en sus colabora
 o) Cumplir con todas las responsabilidades que se confieran y con aquellas contenidas en el artículo 104 de la Ley General de la Administración Pública.
 p) Velar para que sus subordinados(as) disfruten de sus vacaciones de modo tal que no se produzcan acumulaciones indebidas.
 q) Brindar especial atención a los o las servidores(as) en los aspectos propios de su desempeño durante el período de prueba.
-r) Cumplir con sus funciones sin sujeción a los límites de la jornada establecida por este Reglamento, cuando fuere necesario, sin que ello genere remuneración, de conformidad con lo establecido por el Código de Trabajo y las directrices de la Contraloría General de la República.
+r) (Derogado mediante sesión ordinaria N° 84-2022 del 26 de diciembre de 2022)
 s) Elevar a decisión del o la Alcalde(sa) en el plazo improrrogable de tres días a partir del mismo día en que tuvo conocimiento, las faltas graves en que incurrieron los o las servidores(as) a su cargo.
 t) Cumplir con todas las demás obligaciones propias de su cargo.
