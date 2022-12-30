@@ -14,3 +14,4 @@ Distribución del cobro del canon de regulación 2023 por regulado de la Autorid
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-12-14 | la propia norma |
+| 2 | 2022-12-30 | Resolución 669 (2022-12-30) |

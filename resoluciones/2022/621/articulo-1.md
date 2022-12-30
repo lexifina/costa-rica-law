@@ -179,6 +179,10 @@ Identificación Detalle/Regulado Total Costos Otros Ingresos Liquidación 2021 C
 | REVISIÓN TÉCNICA VEHÍCULAR | 151.402.110,80 | 4.322.473,75 | 0,00 | 147.079.637,05
 | 3101860392 | Consorcio DEKRA CR | 151.402.110,80 | 4.322.473,75 | 0,00 | 147.079.637,05
 | | | | | | | | | |
+(Nota de Sinalevi: Mediante resolución N° RE-0669-RG-2022 del 30 de diciembre de 2022, se acordó modificar la estructura del canon 2023 de transportistas y Peddlers de manera transitoria para que se cobre de la siguiente manera en el I Trimestre del año 2023:
+[imagen]
+II. A partir del 1 de abril del año 2023, se realice el cobro del canon 2023 de transportistas y Peddlers según resuelto en la resolución RE- 0621-RG-2022 y de conformidad del siguiente detalle:
+[imagen] ")
 1. El cálculo del canon se realizó de acuerdo con la aplicación de la normativa vigente. Metodología para distribuir el canon por actividad entre empresas reguladas (publicado en el Diario Oficial La Gaceta No.168 del 30 de agosto de 2010). Reglamento para el cálculo, distribución, cobro y liquidación de cánones (publicado en el Diario Oficial La Gaceta No.245 del 19 de diciembre de 2013 y modificación publicada en La Gaceta No.134 del 14 de julio de 2014). Metodología , para el cálculo y distribución del canon publicada en el alcance digital 50 de la Gaceta digital 186 del día 29 setiembre del 2014.
 2. El detalle del presupuesto de gastos e ingresos se encuentra en el informe IN-0046-DGEE-2022 denominado proyecto de presupuesto 2023.
 3. Una explicación detallada del cálculo del canon se puede leer en el capítulo de información complementaria del informe IN-0046-DGEE-2022 denominado proyecto de presupuesto 2023.
