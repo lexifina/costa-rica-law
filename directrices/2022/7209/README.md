@@ -14,3 +14,4 @@ Octava campaña de mensajes sanitarios de productos de tabaco y sus derivados
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-01-01 | la propia norma |
+| 2 | 2023-01-01 | Resolución 7211 (2022-12-12) |
