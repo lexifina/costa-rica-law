@@ -1,0 +1,1 @@
+Artículo 3°.- Deróguese el Decreto Ejecutivo N° 33492 de fecha 10 de noviembre de 2006, que publicó la Resolución N° 175-2006 (COMIECO-XXXVIII) de fecha 5 de octubre de 2006, de conformidad con lo dispuesto en el numeral 2 de la parte dispositiva de la Resolución N° 459-2022 (COMIECO-C) de fecha 29 de junio de 2022.

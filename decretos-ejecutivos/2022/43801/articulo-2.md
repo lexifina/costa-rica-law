@@ -1,0 +1,1 @@
+Artículo 2°.- Modifíquese el Decreto Ejecutivo N° 32060 de fecha 16 de setiembre de 2002, que publicó la Resolución ° 117-2004 (COMIECO) del 28 de junio de 2004, de conformidad con lo dispuesto en el numeral 1 de la parte dispositiva de la Resolución N° 459-2022 (COMIECO-C) de fecha 29 de junio de 2022.
