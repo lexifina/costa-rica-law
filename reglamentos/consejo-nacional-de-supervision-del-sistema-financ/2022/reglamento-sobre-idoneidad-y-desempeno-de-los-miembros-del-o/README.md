@@ -14,3 +14,4 @@ Reglamento sobre Idoneidad y desempeño de los miembros del Órgano de Direcció
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-01-01 | la propia norma |
+| 2 | 2023-01-01 | Reglamento 1759 (2022-09-26) |
