@@ -1,0 +1,2 @@
+Artículo 3º-Los salarios mínimos fijados en este Decreto, son referidos a la jornada ordinaria, de acuerdo con lo estipulado en el Capítulo Segundo del Título Tercero del Código de Trabajo, con excepción de cuando se indique específicamente, que están refe1idos a otra unidad de medida.
+Cuando el salario sea pagado por hora, ese valor se entiende referido a la hora ordinaria diurna; para las jornadas mixta y nocturna, se harán las equivalencias correspondientes, a efecto, que siempre resulten iguales los salarios por las respectivas jornadas ordinarias.
