@@ -13,3 +13,4 @@ Actualización de los montos de las multas de tránsito que regirán para enero 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-01-01 | la propia norma |
+| 2 | 2023-01-01 | Circular 216 (2022-11-22) |
