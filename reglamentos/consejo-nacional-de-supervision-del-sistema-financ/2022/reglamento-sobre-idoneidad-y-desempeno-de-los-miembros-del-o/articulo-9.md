@@ -1,0 +1,2 @@
+Artículo 9. Idoneidad conjunta del Órgano de Dirección
+El Órgano de Dirección debe estar integrado por personas con un balance de conocimientos, experiencia y calificaciones acordes con el tamaño de la entidad empresa o grupo o conglomerado financiero, la complejidad de sus operaciones, la estructura de propiedad, la naturaleza jurídica y los mercados en que opera, que permitan promover la diversidad de opiniones.
