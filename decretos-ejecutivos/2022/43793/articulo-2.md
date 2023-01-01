@@ -1,0 +1,1 @@
+Artículo 2.- Modifíquese el Decreto Ejecutivo Nº 43293-COMEX del 11 de octubre de 2021, que publicó la Resolución Nº 449-2021 (COMIECO-XCV) de fecha 30 de junio de 2021; de conformidad con lo dispuesto en el numeral l de la parte dispositiva de Ia Resolución Nº 461-2022 (COMIECO-C) de fecha 29 de junio de 2022, que se publica mediante el presente Decreto Ejecutivo.

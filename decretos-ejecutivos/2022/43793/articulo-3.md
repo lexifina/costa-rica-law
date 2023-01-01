@@ -1,0 +1,1 @@
+Artículo 3.- Deróguese el Decreto Ejecutivo Nº 40835-COM EX de fecha 15 de mayo de 2017, que publicó la Resolución Nº 377-2016 (COMIECO-LX:XVIII) de fecha 24 de noviembre de 2016; de conformidad con Io dispuesto en el numeral 3 de la parte dispositiva de la Resolución Nº 461-2022 (COMIECO-C) de fecha 29 de junio de 2022, que se publica mediante el presente Decreto Ejecutivo.
