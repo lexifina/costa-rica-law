@@ -1,0 +1,1 @@
+Artículo 2°-Modifíquese el Decreto Ejecutivo N° 35031 -COMEX-S-MEIC de fecha 25 de julio de 2008, que publicó la Resolución N° 231-2008 (COMIECO-L) de fecha 26 de junio de 2008, de conformidad con lo dispuesto en el numeral I de la parte dispositiva de la Resolución N° 467-2022 (COMIECO-C) de fecha 29 de junio de 2022.
