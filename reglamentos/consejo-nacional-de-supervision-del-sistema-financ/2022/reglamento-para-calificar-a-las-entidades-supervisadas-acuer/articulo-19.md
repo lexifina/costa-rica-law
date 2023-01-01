@@ -1,0 +1,2 @@
+Artículo 19. Revisión de la normalidad e irregularidad
+La SUGEF revisa los aspectos de evaluación para determinar la normalidad e irregularidad de una entidad conforme con los procesos de supervisión y en función del perfil riesgo e importancia sistémica de la entidad. No obstante, esta normalidad e irregularidad puede ser actualizada mensualmente cuando la misma se derive del aspecto nivel y calidad del Capital Base, así como la suficiencia patrimonial del respectivo grupo o conglomerado financiero.
