@@ -14,3 +14,4 @@ Reforma Requisitos para Trámites de Visado de Planos de Construcción, Visado d
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-09-20 | la propia norma |
+| 2 | 2023-01-02 | Reglamento municipal 1 (2023-01-02) |

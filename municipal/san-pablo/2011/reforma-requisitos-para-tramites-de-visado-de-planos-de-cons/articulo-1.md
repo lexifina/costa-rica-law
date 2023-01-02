@@ -5,6 +5,7 @@ El Concejo Municipal de San Pablo de Heredia, en el ejercicio de las facultades 
 Para que en adelante se incorpore como un requisito para la tramitación de este tipo de proyectos, los siguientes requisitos:
 9. Viabilidad ambiental (SETENA).
 10. Los requisitos y/o documentos que se describen en la minuta de calificación de urbanizaciones que dispone el Departamento de Ingeniería.
-11. Estar al día con la Municipalidad de San Pablo. Si un administrado tiene trámites pendientes en el Municipio, de cualquier naturaleza que estos sean, no podrá gestionar nuevas solicitudes para el trámite de Visados, Licencias o Permisos de Construcción.”
+11: el contribuyente deberá encontrarse al día en el cumplimiento de sus obligaciones tributarias materiales y formales, así como la presentación de las declaraciones tributarias a las que estuviera obligado, según el artículo 18 BIS del Código de Normas y Procedimientos Tributarios.
+(Así reformado el punto anterior mediante en sesión N° 01 del 2 de enero de 2023)
 Acuerdo unánime y declarado definitivamente aprobado Nº 219-11.
-San Pablo de Heredia, 14 de setiembre del 2011.—
+San Pablo de Heredia, 14 de setiembre del 2011.
