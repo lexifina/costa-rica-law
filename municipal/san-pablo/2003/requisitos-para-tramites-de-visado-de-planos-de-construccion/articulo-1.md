@@ -40,8 +40,9 @@ Edificaciones bajo el régimen de condominios y urbanizaciones:
 (Así adicionado el punto anterior mediante sesión ordinaria N° 34-11 del 22 de agosto del 2011)
 10. Los requisitos y/o documentos que se describen en la minuta de calificación de urbanizaciones que dispone el Departamento de Ingeniería.
 (Así adicionado el punto anterior mediante sesión ordinaria N° 34-11 del 22 de agosto del 2011)
-11. Estar al día con la Municipalidad de San Pablo. Si un administrado tiene trámites pendientes en el Municipio, de cualquier naturaleza que estos sean, no podrá gestionar nuevas solicitudes para el trámite de Visados, Licencias o Permisos de Construcción.
+11: el contribuyente deberá encontrarse al día en el cumplimiento de sus obligaciones tributarias materiales y formales, así como la presentación de las declaraciones tributarias a las que estuviera obligado, según el artículo 18 BIS del Código de Normas y Procedimientos Tributarios.
 (Así adicionado el punto anterior mediante sesión ordinaria N° 34-11 del 22 de agosto del 2011)
+(Así reformado el punto anterior mediante en sesión N° 01 del 2 de enero de 2023)
 12. Todos los requisitos generales.
 (Así corrida su numeración mediante sesión ordinaria N° 34-11 del 22 de agosto del 2011, que lo traspasó del antiguo punto 9) al 12))
 Duración del trámite: este trámite dura como máximo un mes calendario a partir de la fecha de presentación de todos los requisitos, período durante el cual la Municipalidad podrá aprobar el proyecto o hacer observaciones por escrito, sobre los requisitos y exigencias de la Ley, por una única vez. En este caso el interesado deberá presentar los documentos con las correcciones u observaciones señaladas y la institución deberá resolver esta presentación en plazo máximo de siete días naturales a partir del aporte de los documentos corregidos.
@@ -127,4 +128,4 @@ DISPOSICIONES FINALES
 2. El Concejo Municipal de San Pablo de Heredia, podrá reformar total o parcialmente estos requisitos siguiendo el mismo procedimiento que se ha seguido para su adopción.
 3. Este documento entrará a regir a partir de su primera publicación completa en el Diario Oficial La Gaceta.
 Aprobado por el Concejo Municipal de San Pablo de Heredia, en su sesión ordinaria Nº 57-03 del día 16 de junio del 2003.
-San Pablo de Heredia, 7 de octubre del 2003.—
+San Pablo de Heredia, 7 de octubre del 2003.-
