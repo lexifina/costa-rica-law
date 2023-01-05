@@ -17,3 +17,4 @@ Reglamento de Venta de Bienes Adquiridos en Pago de Obligaciones
 | 2 | 2014-02-17 | Reglamento 7 (2014-02-17) |
 | 3 | 2014-10-06 | Reglamento 43 (2014-10-06) |
 | 4 | 2022-05-31 | Reglamento 22 (2022-05-31) |
+| 5 | 2023-01-05 | Reglamento 5 (2023-01-05) |
