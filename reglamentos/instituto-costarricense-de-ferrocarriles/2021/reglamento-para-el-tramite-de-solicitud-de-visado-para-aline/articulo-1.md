@@ -14,12 +14,12 @@ e. Satisfacer la necesidad de los usuarios o colindantes con el derecho de vía 
 f. Eliminar el anterior requisito de presentar tres copias a escala original del Plano Catastro o Presentación Catastral legibles, siendo ahora la presentación de únicamente una copia del Plano de Catastro o Presentación Catastral legible, como se indica en el Artículo 2, inciso b).
 4º-Que el punto N°3 de este Considerando demuestra que el beneficio de esta regulación es mayor al de su inexistencia, apegándose de esta forma a la excepción estipulada en el Artículo 2°, inciso e) de la Directriz N°52-MP-MEIC, por lo cual fue informado al Ministro Rector por medio del oficio PE-OF-0471-2020. Por tanto;
 Se dicta el presente Reglamento para el Trámite de solicitud de Visado para Alineamientos con el Derecho de Vía Férrea del Tren del INCOFER:
-CAPÍTULO I
-Disposiciones generales
-Artículo 1º-Definiciones:
-1.1 Derecho de vía: se define como el dimensionamiento explícito en el Decreto Ejecutivo Nº 22483- MOPT del 01 de setiembre de 1993 sobre las Dimensiones de los Derechos Vía en los Ferrocarriles Nacionales (Art. 42 Ley Nº 7001, Orgánica del INCOFER). Publicado en La Gaceta N° 174 del 10 de setiembre de 1993.
+(Nota de Sinalevi: El presente reglamento fue reformado parcialmente y reproducido su texto de forma íntegra mediante ssesión ordinaria N° 001- 2023 del 08 de enero del 2023, y publicado en publicación en La Gaceta N° 91 del 24 de mayo del 2023, y se transcribe a continuación:)
+CAPÍTULO I. DISPOSICIONES GENERALES
+Artículo 1°- Definiciones:
+1.1 Derecho de vía: se define como el dimensionamiento explícito en el Decreto Ejecutivo Nº 22483-MOPT del 01 de setiembre de 1993 sobre las Dimensiones de los Derechos Vía en los Ferrocarriles Nacionales (Art. 42 Ley Nº 7001, Orgánica del INCOFER). Publicado en La Gaceta # 174 del 10 de setiembre de 1993.
 1.2 Alineamiento: Distancia de retiro del centro de vía hacia una propiedad.
 1.3 Centro de vía: eje central ubicado entre los rieles o referenciado topográficamente por coordenadas nacionales oficiales.
-1.4 Plano catastro: documento inscrito ante el Registro Nacional que define las dimensiones de un bien inmueble, el cual ejerce los efectos jurídicos estipulados en la Ley del Catastro Nacional y su reglamento.
+1.4 Plano catastro: documento inscrito ante el Registro Nacional que define las dimensiones de un bien inmueble, el cual ejerce los efectos jurídicos estipulados en La Ley del Catastro Nacional y su reglamento.
 1.5 Presentación catastral: plano de agrimensura que ha sido presentado ante el Registro Nacional, que representa en forma gráfica y matemática un inmueble, el cual cumple con las normas que establece el Reglamento del Catastro Nacional.
 1.6 Solicitud de Visado para Alineamiento: es el trámite para la verificación física del cumplimiento del Alineamiento estipulado en el Decreto Ejecutivo Nº 22483-MOPT y además de la expresión correcta de esta información dentro del plano catastro o de la presentación catastral, debiendo de cumplir ambas condiciones para su otorgamiento.

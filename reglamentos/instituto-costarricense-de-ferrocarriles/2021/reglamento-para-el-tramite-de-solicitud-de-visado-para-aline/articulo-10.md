@@ -1,1 +1,1 @@
-Artículo 10.-Vigencia del resultado: un año. Cuando la Administración justificadamente lo demuestre podrá extender la vigencia por un periodo similar o bien se actualizará el Visado bajo el mismo procedimiento del presente reglamento.
+Artículo 10 - Vigencia del resultado: un año. Cuando la Administración justificadamente lo demuestre podrá extender la vigencia por un periodo similar o bien se actualizará el Visado bajo el mismo procedimiento del presente reglamento.

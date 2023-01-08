@@ -14,3 +14,4 @@ Reglamento para el trámite de solicitud de visado para alineamientos de derecho
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-12-23 | la propia norma |
+| 2 | 2023-01-08 | Reglamento 1 (2023-01-08) |
