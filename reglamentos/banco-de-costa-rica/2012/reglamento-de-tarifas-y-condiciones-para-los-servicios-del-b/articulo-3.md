@@ -1,13 +1,17 @@
 . Tarjetas de crédito y débito
 3. Tarjetas de crédito y débito
+3. Tarjetas de crédito y débito
 3.1.- Comisión por reemplazo normal y reposición
 $10.00 Débito Personas y Pymes
-$10.00 Crédito Clásica o Estándar y Pymes
+$10.00 Crédito Clásica o Estándar Y Pymes
 $15.00 Crédito Oro y Platino
 $20.00 Crédito Infinite, Black, Empresarial
-Nota:
-En aquellos casos donde la sustitución de la tarjeta sea por deterioro y el mismo no es atribuido al tarjetahabiente; así también por motivos de seguridad en que el Banco requiera realizar el cambio de tarjetas; no se pagará la comisión establecida en este ítem.
-(Así reformado el punto 3.1) anterior en sesión N° 45-21 del 19 de octubre del 2021)
+Excepciones al pago de esta comisión:
+a) Reposición de los medios de pago (tarjetas, pulseras y sticker) por deterioro y el mismo no es atribuido al tarjetahabiente.
+b) Reemplazo de la tarjeta por fraude (transacciones no reconocidas por el tarjetahabiente).
+c) Reemplazo de la tarjeta cuando está retenida en un cajero de la red del BCR.
+d) Reposición de la tarjeta de Firma Digital con Medio de Pago por deterioro del certificado digital que no sea atribuible al tarjetahabiente. La garantía de la firma digital debe cubrir su deterioro.
+(Así reformado el punto 3.1) anterior mediante sesión 01-23 del 9 de enero del 2023)
 3.2.- Comisión por adelanto de efectivo
 Tarjetas de crédito
 $1.00 + 4 % por avance efectivo utilizando cualquier medio disponible. Esta comisión no se cobrará cuando el adelanto de efectivo se realice por canales electrónicos (ATM´S, sitio web, Apps, IVR o cualquier otro canal electrónico que se implemente).
@@ -22,7 +26,16 @@ $1.25 por avances efectivo en ATM´S en emisores locales.
 . $1.00 por Prepago
 (Así reformada la tarifa anterior en sesión N° 48-2020 del 24 de noviembre del 2020)
 (Así reformado el punto 3.2) anterior en sesión N° 15 del 19 de abril de 2017)
-3.3.- Comisión por cargo administrativo por mora (Derogado mediante sesión N° 48-2020 del 24 de noviembre del 2020)
+3.3.- Reposición de pin para tarjeta de crédito y débito
+$5,00
+Se cobra esta tarifa cuando el cliente se presente a una sucursal bancaria a realizar la solicitud por olvidar el PIN.
+Para la tarjeta Firma Digital con Medio de Pago el cliente debe pagar esta comisión cuando olvide el PIN de la tarjeta de débito.
+Excepciones de cobro:
+a. Por problemas de índole tecnológico u operativos atribuibles al Banco.
+b. Cuando el cliente realice la autogestión por medio de canales digitales que el Banco habilite para su obtención.
+Nota:
+La comisión por el cambio del PIN de la Firma Digital está detallada en el punto Servicios Bancarios Electrónicos/ Certificados Digital ítem Costo tarjeta firma digital con medio de pago.
+(Así reformado el punto 3.3) anterior mediante sesión 01-23 del 9 de enero del 2023)
 3.4.- Reposición de pin para tarjeta de crédito y débito
 $5,00
 Se cobra esta tarifa cuando el cliente se presente a una sucursal bancaria a realizar la solicitud por olvidar el PIN.
@@ -31,8 +44,8 @@ a. Por problemas de índole tecnológico u operativos atribuibles al Banco.
 b. Cuando el cliente realice la autogestión por medio de canales digitales que el Banco habilite para su obtención.
 (Así reformado el punto 3.4) anterior mediante sesión N° 45-21 del 19 de octubre del 2021. En la reformad ice punto 3.3 no obstante la numeración no coincide y del análisis se deduce que el punto a reformar es el 2.4) anterior)
 3.5 Comisión por servicios administrativos en tarjetas de débito
-$10.00 excepto tarjetas: Cuenta Conmigo (HIT), Cuenta Propia (Morpho), Pensionados, Distribución, pulseras y stickers débito.
-(Así reformado el punto 3.5) anterior mediante sesión N° 24-2020 del 23 de junio del 2020)
+$10,00 excepto tarjetas: Cuenta Conmigo (HIT), Cuenta Propia (Morpho), Pensionados, Nómina Corporativa, pulseras y stickers débito.
+(Así reformado el punto 3.5) anterior mediante mediante sesión 01-23 del 9 de enero del 2023. En la reformad ice punto 3.4 no obstante la numeración no coincide y del análisis se deduce que el punto a reformar es el 3.5anterior)
 3.6.- Comisión por solicitud de copia de voucher
 $11.50 por voucher consultado a otros procesos o emisores.
 Nota: Este cobro también debe aplicarse para las copias de vouchers o documentación que víncula al cliente con la transacción.
@@ -50,6 +63,9 @@ $10.00 Tarjeta prepago
 $15.00 Tarjetas All in one personalizada a solicitud del cliente
 $10.00 Tarjetas All in one con diseños preestablecidos
 $5.00 Tarjetas BCR Compras")
+(Nota de Sinalevi: Mediante sesión 01-23 del 9 de enero del 2023 se reforma el punto 3.9 anterior. No obstante, al no coincidir la reforma la misma se transcribe a continuación: 3.9 Emisión de tarjetas
+$ 10,00 Tarjeta prepago
+$ 15,00 Tarjetas personalizada a solicitud del cliente $ 10,00 Tarjetas con diseños preestablecidos $ 5,00 Tarjetas BCR Compras)
 3.10.-Comisión por confección de máquina manual a los comercios afiliados
 $35 por cada máquina manual confeccionada para los comercios afiliados, esta comisión se cobrará una vez.
 (Así reformado el punto 3.10) anterior mediante sesión N° 43-14 del 6 de octubre del 2014)

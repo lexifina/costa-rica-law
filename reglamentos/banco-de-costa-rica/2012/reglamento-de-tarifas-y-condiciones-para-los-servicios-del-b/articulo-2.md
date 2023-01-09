@@ -1,10 +1,11 @@
 2. Productos de captación
 2.1.- Comisión por el exceso de cheques girados en cuenta corriente
 Cuentas personales:
-Saldos promedios mensuales | Cantidad cheques sin costo | S/ exceso de cheques girados
-Hasta $500,00 | 5 | $1,00 c/u
-$501,00 a $2.500,00 | 10 | $1,00 c/u
-$2.501,00 | 15 | $1,00 c/u
+$3,00 por cada cheque girado
+Cuentas empresariales y corporativas:
+$3,00 por cada cheque girado
+Clientes con saldos promedios mensuales superiores a $100000 o su equivalente en colones giran 25 cheques sin costo.
+(Así reformado el punto 2.1) anterior mediante sesión 01-23 del 9 de enero del 2023)
 Cuentas empresariales y corporativas
 Saldos promedios mensuales | Cantidad cheques sin costo | S/ exceso de cheques girados
 Hasta $10.000,00 | 50 | $1,00 c/u

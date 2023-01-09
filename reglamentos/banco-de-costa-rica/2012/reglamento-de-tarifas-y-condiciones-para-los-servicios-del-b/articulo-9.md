@@ -2,8 +2,10 @@
 9.1.- Tarifa por reposición o daño parcial de datáfono (POS) extraviados, por mal uso o con daño irreparable por el comercio afiliado
 En caso de reposición el costo del equipo dependerá del valor de mercado en el momento de la reposición. En el caso de daños parciales dependerá del costo de los repuestos y de la atención de la avería según el valor de mercado.
 (Así reformado el punto 9.1) anterior mediante sesión N° 48-2020 del 24 de noviembre del 2020. La tarifa original "9.1.- Comisiones a negocios afiliados" fue derogada en esta misma sesión)
-9.2.- Comisión por alquiler de la terminal de punto de venta y de la tecnología de comunicación ¢20.000 mensuales por POS instalado.
-(Así reformado el punto 9.) anterior mediante sesión N° 48-2020 del 24 de noviembre del 2020. La tarifa original "9.2.- Comisión por afiliación al servicio de adquirencia" fue derogada en esta misma sesión)
+9.2.- Comisión por alquiler de la terminal de punto de venta y de la tecnología de comunicación
+El cobro rige hasta por el monto máximo pactado por el Banco Central de Costa Rica (BCCR), información publicada por dicho ente, según lo establecido en el Reglamento del Sistema de Tarjetas y Medios de Pago y la Ley N° 9831 Comisiones Máximas del Sistema de Tarjetas.
+El Banco aplica una categorización según las variables de comportamiento de facturación de los comercios.
+(Así reformado el punto 9.2) anterior mediante sesión 01-23 del 9 de enero del 2023)
 9.3. - Comisión por el servicio de Adquirencia para comercios afiliados
 Las siguientes categorías se rigen como excepción al porcentaje que el Banco Central de Costa Rica (BCCR) indique en acatamiento con la Ley 9831 y sus modificaciones:
 - Estaciones de servicio

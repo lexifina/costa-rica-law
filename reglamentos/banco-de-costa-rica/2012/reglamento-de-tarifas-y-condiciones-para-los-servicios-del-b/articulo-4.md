@@ -29,20 +29,24 @@ Emisión $65.00 por certificado
 Solo lector $30.00
 Solo tarjeta $32.00
 Renovación $32.00
-Cambio PIN - Desbloqueo $5.00
+Cambio PIN -Desbloqueo $5.00
+Para el cobro de esta comisión se debe aplicar + el IVA.
 B- Usuarios BCR (denominados como aquellos usuarios que no tienen ninguna relación comercial con el BCR)
-Emisión $75.00 por certificado
-Solo lector $39.00
-Solo tarjeta $32.00
-Renovación $32.00
-Cambio PIN - Desbloqueo $10.00
-(*)C- Costo Tarjeta Firma Digital con Medio de Pago Emisión $55.00
-Solo Lector $30.00
-Solo Tarjeta $25.00
-Renovación $32.00
-Cambio de Pin-Desbloqueo $5.00
+Emisión $75,00 por certificado
+Solo lector $39,00
+Solo tarjeta $32,00
+Renovación $32,00
+Cambio PIN -Desbloqueo $10,00
+Para el cobro de esta comisión se debe aplicar + el IVA.
+C- Costo Tarjeta Firma Digital con Medio de Pago
+Emisión $55,00
+Solo Lector $30,00
+Solo Tarjeta $25,00
+Renovación $32,00
+Cambio de Pin-Desbloqueo $5,00
+Para el cobro de esta comisión se debe aplicar + el IVA.
 (*)(Así adicionado el inciso c) anterior al punto 4.7) mediante sesión N° 24-2020 del 23 de junio del 2020)
-(Así reformado el punto 4.7) anterior en sesión N° 49-18 del 24 de setiembre de 2018)
+(Así reformado el punto 4.6) anterior mediante sesión 01-23 del 9 de enero del 2023. La reforma dice que se reforma el punto 4.6. No obstante al no coincidir la numeración del análisis se deduce que el punto a reformar es el 4.7 anterior)
 4.8.- Servicio Quick Pass
 (Así reformado el punto 4.8) anterior en sesión N° 48-2020 del 24 de noviembre del 2020)
 4.9.- Transferencia por medio de web corporativo (Derogado este punto mediante sesión N° 24-2020 del 23 de junio del 2020)
