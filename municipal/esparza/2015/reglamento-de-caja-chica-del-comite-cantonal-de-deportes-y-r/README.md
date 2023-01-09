@@ -14,3 +14,4 @@ Reglamento de caja chica del Comité Cantonal de Deportes y Recreación de Espar
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-03-23 | la propia norma |
+| 2 | 2023-01-09 | Reglamento municipal 0 (2023-01-09) |
