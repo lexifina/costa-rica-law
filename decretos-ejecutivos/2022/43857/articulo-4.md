@@ -1,0 +1,11 @@
+Artículo 4°- De las excepciones: Podrán ingresar al país sin las disposiciones sanitarias dispuestas en el artículo 3 ° del presente decreto:
+a) Las personas extranjeras que cuenten con una permanencia legal autorizada bajo las categorías migratorias de Residencia Permanente, Residencia Temporal, Categorías Especiales o No Residentes subcategoría Estancia, podrán ingresar a territorio nacional sin las disposiciones sanitarias establecidas en este decreto.
+b) Las personas nacionales.
+c) Personas extranjeras ingresando por la vía marítima.
+d) Personas en tránsito vía aérea.
+e) Personas que ingresen para realizar operaciones de carga y/o descarga de mercancías en territorio nacional: a las personas extranjeras que formen parte del personal de medios de transporte internacional terrestre de mercancías que requieran ingresar al territorio nacional para realizar operaciones ele carga y/o descarga de mercancías.
+f) Personas extranjeras que viajan al país vía aérea, bajo la categoría migratoria de No Residente, subcategoría Personal de medios de transporte internacional de pasajeros y mercancías, que formen parte de la tripulación del medio de transporte, entendiéndose estos como el personal que se encuentre a bordo de una aeronave desempeñando funciones durante el vuelo, o esperando realizar funciones en ese mismo vuelo o después de haber ejecutado funciones durante un vuelo.
+g) La Dirección General de Migración y Extranjería y la Comisión de Visas Restringidas y Refugio, según corresponda podrán otorgar visas de ingreso para personas solicitantes de regularización migratoria que requieran visa consular o restringida, de conformidad con los trámites ordinarios establecidos para ello en la legislación vigente.
+h) Personas extranjeras en cualquier categoría migratoria que no tengan relación con viajes a República Popular de China comprendiendo todas su regiones y provincias, incluyendo Taiwán, Hong Kong, y Macao en los últimos 14 días naturales previos al ingreso a territorio nacional, por cualquier vía.
+i) Los niños menores de 2 años están eximidos de presentar las disposiciones sanitarias indicadas en el artículo 3 °.
+j) Las personas mayores de 2 años y menores de 12 años están eximidas de presentar el documento de vacunación.
