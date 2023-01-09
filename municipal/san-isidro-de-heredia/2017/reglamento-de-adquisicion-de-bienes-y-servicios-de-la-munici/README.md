@@ -15,3 +15,4 @@ Reglamento de adquisición de bienes y servicios de la Municipalidad de San Isid
 | --- | --- | --- |
 | 1 | 2017-11-23 | la propia norma |
 | 2 | 2018-07-23 | Reglamento municipal 47 (2018-07-23) |
+| 3 | 2023-01-09 | Reglamento municipal 2 (2023-01-09) |
