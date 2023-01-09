@@ -1,0 +1,4 @@
+COLEGIO CIRUJANOS DENTISTAS DE COSTA RICA
+El Tribunal Electoral del Colegio Cirujanos Dentistas de Costa Rica informa que en la Asamblea General Ordinaria y Extraordinaria N° 098-2022 del Colegio Cirujanos Dentistas de Costa Rica celebrada el 04 de diciembre del 2022, aprobó modificar el artículo 2 y el artículo 11 del Código Electoral y que se leerá como se indica a continuación:
+Artículo 2. Los miembros del Tribunal Electoral que deseen postularse para algún puesto de la Junta Directiva del Colegio de Cirujanos Dentistas de Costa Rica, deberán renunciar al menos tres meses antes de la inscripción de la papeleta en la cual vayan a participar.
+Artículo 11 . Profesionales en odontología que deseen postularse para algún puesto de la Junta Directiva del Colegio de Cirujanos Dentistas de Costa Rica, no podrán haber sido funcionarios administrativos del Colegio durante el último mes anterior a la inscripción de la papeleta en la cual vayan a participar.
