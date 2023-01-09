@@ -1,1 +1,0 @@
-Artículo 2º-Al entrar en vigencia la presente resolución, se deja sin efecto la actualización efectuada mediante la resolución número RES-DGH-029-2022, del 07 de julio de 2022, publicada en La Gaceta número 135 del 15 de julio de 2022.
