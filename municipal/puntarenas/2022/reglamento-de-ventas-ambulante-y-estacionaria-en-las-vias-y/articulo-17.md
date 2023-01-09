@@ -1,0 +1,1 @@
+Artículo 17.-Sobre el Pago de la Patente. La patente se pagará durante todo el tiempo que se ejerza la actividad comercial o por el tiempo que se haya poseí do, aunque la actividad no se haya realizado.

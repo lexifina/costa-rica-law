@@ -1,0 +1,2 @@
+Artículo 12.-Sobre las características del puesto o Local para la Venta estacionaria. En coordinación con el ICT y otras instituciones promotoras del turismo y la Municipalidad se buscará financiamiento, para que los locales o puestos sean propiedad de la Municipalidad- de forma que mantenga la uniformidad de tamaño, así como la calidad de los materiales utilizados.
+Para ello se creará un reglamento para el otorgamiento de los locales a los patentados estacionarios- Sobre los actuales puesto o locales deberá ajustarse a las medidas establecidas en este reglamento.

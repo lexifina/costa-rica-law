@@ -1,0 +1,1 @@
+Artículo 30.-Sobre las Potestad de la Municipalidad. En cualquier momento la municipalidad se reserva el derecho de reubicar los puestos cuando las condiciones del tránsito o de los peatones lo ameriten.

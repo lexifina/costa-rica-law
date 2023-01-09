@@ -1,0 +1,1 @@
+Artículo 31.-Cancelación de las Patentes. En cualquier momento la municipalidad tiene la potestad de anular, o cancelar en forma definitiva: a. Cuando se compruebe que la patente está siendo utilizada con fines ilícitos. b. Cuando es otra persona que no es el patentado, la que atiende el local. Capitulo IV Sobre la parte recursiva.

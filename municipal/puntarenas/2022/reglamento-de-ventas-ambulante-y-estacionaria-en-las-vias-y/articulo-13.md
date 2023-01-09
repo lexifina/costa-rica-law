@@ -1,0 +1,1 @@
+Artículo 13.-Ubicación y cantidad de Puesto de Venta Estacionaria permitido. La ubicación de los puestos de ventas estacionaria es exclusivamente de la Municipalidad, será esta quien delimite el lugar exacto en donde se ubicará el local, adema s fija la cantidad de puesto permitidos en 100 metros lineales, respetando las esquinas y parada de buses.

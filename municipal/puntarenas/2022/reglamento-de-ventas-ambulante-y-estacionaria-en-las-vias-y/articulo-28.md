@@ -1,0 +1,1 @@
+Artículo 28.-Del Traslado del Puesto. Queda absolutamente prohibido el traslado del puesto a cualquier otro sitio, sin la autorización previa de la Municipalidad igualmente se prohíbe el uso de altavoces, o cualquier otro equipo sonoro con el fin de atraer clientes.

@@ -1,0 +1,1 @@
+Artículo 33.-Derogación. El presente Reglamento de Ventas Ambulante y Estacionaria en las Vías y Zonas Públicas de la Municipalidad de Puntarenas. DEROGA, todos los anteriores relacionados con las ventas ambulantes y estacionarias, así como el reglamento de ventas ambulante.

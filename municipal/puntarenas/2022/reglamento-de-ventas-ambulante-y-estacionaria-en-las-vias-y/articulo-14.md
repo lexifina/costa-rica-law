@@ -1,0 +1,1 @@
+Artículo 14.-El Monto de la Patente Estacionaria y Ambulante. Esta será fijada por la Municipalidad de acuerdo a para metros previamente establecido por la Administración Tributaria. Siendo este el monto de menor cobro a nivel general de patentes comerciales cobradas en el cantón de Puntarenas.

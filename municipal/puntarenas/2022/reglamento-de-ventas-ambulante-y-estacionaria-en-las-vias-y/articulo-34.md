@@ -1,0 +1,1 @@
+Artículo 34.-Transitorio Único. Los patentados que en la actualidad tienen una licencia municipal al día, con relación a la infraestructura de sus puestos donde exhiben la mercadería, deberán ajustarse a la medidas de este reglamento en un plazo máximo de tres meses a partir de la vigencia del reglamento.

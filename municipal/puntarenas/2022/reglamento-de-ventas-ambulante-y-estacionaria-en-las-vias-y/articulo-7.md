@@ -1,0 +1,1 @@
+Artículo 7º-De la revocación de la Patente. El incumplimiento de uno o varios incisos anteriormente citados faculta a la municipalidad previa comunicación a inhabilitar la patente hasta tanto cumpla con lo solicitado. Pasado un mes sin cumplir con lo exigido se cancelará la patente de forma definitiva.

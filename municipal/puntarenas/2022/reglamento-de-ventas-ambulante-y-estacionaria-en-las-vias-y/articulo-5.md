@@ -1,0 +1,1 @@
+Artículo 5º-Del horario de las Ventas Ambúlate y Estacionaria. Será potestad de la administración fijar el horario en la licencia Municipal de acuerdo al tipo de patente municipal. "Ambulante o Estacionaria", así como la zona comercial a designar.

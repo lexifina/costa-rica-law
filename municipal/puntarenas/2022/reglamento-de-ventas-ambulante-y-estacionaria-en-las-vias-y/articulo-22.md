@@ -1,0 +1,1 @@
+Artículo 22.-Sobre el decomiso de alimentos. Ante la falta de Permisos Sanitarios emitidos por el Ministerio de Salud, así como la Patente Municipal, faculta a los funcionarios Municipales a decomisar la mercadería de forma inmediata.

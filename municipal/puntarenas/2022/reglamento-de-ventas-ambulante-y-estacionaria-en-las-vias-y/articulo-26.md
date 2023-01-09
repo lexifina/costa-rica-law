@@ -1,0 +1,1 @@
+Artículo 26.-Sobre las Medidas del Puesto de carácter Obligatorio. Dimensiones 2 metros de frente y 1. metro 30 de fondo y con una altura mínima 2 metros. Está área no podrá ampliarse de ninguna forma, ni siquiera con toldos o plásticos o cualquier otro objeto.

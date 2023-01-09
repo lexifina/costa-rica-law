@@ -1,0 +1,3 @@
+Artículo 19.-Sobre el Procedimiento del Decomiso. Ante la falta de Licencia municipal "Patente" de un puesto estacionaria o venta ambulante.
+a. Debe de forma inmediata los funcionarios Municipales proceder a decomisar la mercadería conjuntamente con el puesto -, para ello se levantará un acta de la mercadería a que se encuentre en exhibición, y sobre la mercadería que se encuentre en cajas se hará mención de que existen tantas cajas.
+b. Se debe entregar copia a la persona que se le decomiso la mercadería- indicar en la misma acta, el plazo para recuperar la mercadería, así como la multa que debe de cancelar, misma que será calculada por la Administración Tributaria.

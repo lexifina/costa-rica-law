@@ -1,0 +1,1 @@
+Artículo 18.-Sobre la suspensión y cancelación de la Patente. De comprobarse que la patente no se está explotando comercialmente, en el lugar señalado por la Municipalidad, dará derecho a la Municipalidad a cancelar la patente en forma definitiva siguiendo el debido proceso.
