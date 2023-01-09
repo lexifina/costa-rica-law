@@ -1,1 +1,0 @@
-Artículo 21.—Evaluación independiente de la Auditoría Interna. La Auditoría Interna sólo será objeto de evaluaciones por un revisor o equipo de revisión cualificado e independiente, externo a la entidad contralora, el cual informará los resultados al jerarca y al Auditor Interno.

@@ -1,1 +1,0 @@
-Artículo 3º—Ámbito de aplicación. El presente Reglamento es de carácter obligatorio para todos los funcionarios de la Auditoría Interna y funcionarios de la administración activa en lo que les resulte aplicable. El Auditor Interno deberá formular y mantener actualizado y en uso de su Unidad el “Reglamento de Organización y Funcionamiento de la Auditoría Interna”.
