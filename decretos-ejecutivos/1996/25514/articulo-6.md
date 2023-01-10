@@ -1,3 +1,0 @@
-Artículo 6.- De la declaración y pago(*). Los contribuyentes inscritos en el Régimen presentarán una declaración trimestral, en los formularios especiales suministrados por la Administración Tributaria. Estas declaraciones deben presentarse y cancelarse dentro del decimoquinto día natural siguiente a la conclusión del respectivo trimestre, es decir, en los primeros quince días hábiles de los meses de octubre, enero, abril y julio de cada año.
-(*) (Así adicionado el epígrafe anterior por el artículo 3° del decreto ejecutivo N°41819 del 18 de junio del 2019)
-(Reformado parcialmente por el artículo 9° del Decreto Ejecutivo N° 29643, del 10 de julio de 2001)
