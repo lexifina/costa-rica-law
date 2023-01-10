@@ -23,15 +23,17 @@ Información brindada por la SUGEF.
 8. Pluses salariales permanentes: corresponden a aquellas compensaciones salariales que hayan sido percibidas por los trabajadores y que formen parte de su salario ordinario, con carácter de permanencia.
 9) Pignoración de la Póliza Mutual de la Sociedad de Seguros de Vida del Magisterio Nacional: como garantía en el proceso de formalización del crédito, el solicitante debe autorizar la pignoración de la póliza mutual de la Sociedad de Seguros de Vida del Magisterio Nacional sobre el monto disponible para pignorar en concordancia al monto del crédito.
 (Así reformado el inciso anterior mediante sesión N° 0143 del 17 de diciembre de 2019)
-10. Sucesor: Para efectos de este Reglamento, entiéndase “sucesor” como todo aquel beneficiario que haya adquirido el derecho en calidad de padres o hermanos del causante.
+10. Sucesor: Para efectos de este Reglamento, entiéndase "sucesor" como todo aquel beneficiario que haya adquirido el derecho en calidad de padres o hermanos del causante.
 11. Tasa de interés: La tasa de interés es el precio del dinero en el mercado financiero.
 12) Pólizas: Garantía colateral del crédito en caso de fallecimiento, JUPEMA acepta la pignoración de la póliza mutual de la Sociedad de Seguros de Vida del Magisterio Nacional, la póliza de saldos deudores y la póliza de incendio y líneas aliadas para los créditos de vivienda, que consideren el valor de alguna construcción en la garantía.
 (Así reformado el inciso anterior mediante sesión N° 0143 del 17 de diciembre de 2019)
-13) Póliza de Saldos Deudores: póliza que se suscribe con alguna aseguradora, debidamente autorizada, que sirve como garantía colateral de la operación crediticia.
+13) Póliza de Saldos Deudores: Póliza que se suscribe mediante un acto personalísimo con alguna aseguradora debidamente autorizada, que sirve como garantía colateral de la operación crediticia.
 (Así adicionado el inciso anterior mediante sesión N° 0143 del 17 de diciembre de 2019)
+(Así reformada la definición anterior mediante sesión ordinaria N° 02-2023 del 10 de enero del 2023)
 14) Sujeto de Crédito: Los afiliados al Régimen, según los artículos 7 y 21 de la Ley 7531 y sus reformas.
 (Así adicionado el inciso anterior mediante sesión N° 0143 del 17 de diciembre de 2019)
-15) Sucesor: Para efectos de este Reglamento, entiéndase “sucesor” como todos aquellos beneficiarios que hayan adquirido el derecho como padres o hermanos del causante, además de nietos amparados bajo la ley 2248 del Régimen de Pensiones del Magisterio Nacional.
+15) Sucesor: Afilado con un derecho sucesorio aprobado, se excluyen los que tienen un beneficio como hijos del causante y que perciban la pensión hasta una edad ya definida de acuerdo con la ley de pertenencia.
+(Así reformada la definición anterior mediante sesión ordinaria N° 02-2023 del 10 de enero del 2023)
 (Así adicionado el inciso anterior mediante sesión N° 0143 del 17 de diciembre de 2019)
 16) Tasa de interés: La tasa de interés es el precio del dinero en el mercado financiero.
 (Así adicionado el inciso anterior mediante sesión N° 0143 del 17 de diciembre de 2019)
@@ -40,8 +42,8 @@ Información brindada por la SUGEF.
 4. Cuerpo del reglamento
 CAPÍTULO 1
 Artículo 1. Sujetos de crédito. Son sujetos de los créditos, fiadores o codeudores regulados por este Reglamento.
-• Los pensionados y jubilados por derecho propio y los sucesores (según se indica en el apartado definiciones).
-• Los trabajadores en servicio con nombramiento en propiedad del Ministerio de Educación Pública, Universidades Públicas, y el Instituto Nacional de Aprendizaje con 3 cotizaciones inmediatas anteriores a la fecha de solicitud.
-• Los trabajadores en servicio con nombramiento interino del Ministerio de Educación Pública, Universidades Públicas, y el Instituto Nacional de Aprendizaje con 12 cotizaciones inmediatas anteriores a la fecha de solicitud cuyo el nombramiento venza en un periodo posterior a tres meses.
-• Los trabajadores de centros educativos privados con 12 cotizaciones inmediatas anteriores a la fecha de solicitud y cuyo nombramiento venza en un periodo posterior a tres meses.
+. Los pensionados y jubilados por derecho propio y los sucesores (según se indica en el apartado definiciones).
+. Los trabajadores en servicio con nombramiento en propiedad del Ministerio de Educación Pública, Universidades Públicas, y el Instituto Nacional de Aprendizaje con 3 cotizaciones inmediatas anteriores a la fecha de solicitud.
+. Los trabajadores en servicio con nombramiento interino del Ministerio de Educación Pública, Universidades Públicas, y el Instituto Nacional de Aprendizaje con 12 cotizaciones inmediatas anteriores a la fecha de solicitud cuyo el nombramiento venza en un periodo posterior a tres meses.
+. Los trabajadores de centros educativos privados con 12 cotizaciones inmediatas anteriores a la fecha de solicitud y cuyo nombramiento venza en un periodo posterior a tres meses.
 (Así reformado mediante sesión N° 0143 del 17 de diciembre de 2019)
