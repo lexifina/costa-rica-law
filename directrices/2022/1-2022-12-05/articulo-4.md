@@ -1,0 +1,1 @@
+Artículo 4º-Cuando se utilice el timbre en su modalidad de estampilla física o electrónica, para la emisión de estados financieros, deberá adherir o insertar a cada uno de los estados financieros que se establece en la NIC 1 (Balance de Situación Financiera, Estado de Resultados Integral, Estado cambios en el Patrimonio, Estado de Flujo de Efectivo).

@@ -1,0 +1,1 @@
+Artículo 7º-En los casos en que la Ley 6614 o su Reglamento fueran omisos respecto al valor del timbre a consignar, se debe proceder de manera análoga a lo que establece el inciso ch) del artículo 4 de la Ley 6614 para el valor principal del documento emitido.

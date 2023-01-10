@@ -1,0 +1,1 @@
+Artículo 3º-El uso del timbre electrónico y de las estampillas tradicionales se extiende a los documentos indicados en los incisos a), c) y ch) del artículo 4 de la Ley 6614 Creación del Timbre del Contador Privado, podrá usar el timbre de manera opcional para adicionarlo a cualquier otro documento que el profesional así lo desee.
