@@ -13,3 +13,4 @@ Procedimiento general para el trámite de vistos buenos ante el Instituto Nacion
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-02-11 | la propia norma |
+| 2 | 2023-01-11 | Circular 4 (2023-01-11) |
