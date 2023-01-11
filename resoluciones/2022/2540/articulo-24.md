@@ -1,0 +1,1 @@
+24) En la Sección II: Evidencias para orígenes de fondos, apartado E) Evidencia según origen de fondos para persona jurídica, literal a) Orígenes de fondos persona jurídica, eliminar el inciso iii) Otros ingresos y su contenido.
