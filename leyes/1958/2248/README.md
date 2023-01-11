@@ -1,6 +1,6 @@
 # Ley de Pensiones y Jubilaciones del Magisterio Nacional
 
-Ley N° 2248 del 1958-09-05. SINALEVI, ficha 11692: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=11692&param2=127912&param3=1>.
+Ley N° 2248 del 1958-09-05. SINALEVI, ficha 11692: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=11692&param2=148924&param3=1>.
 
 Publicada en La Gaceta N° 201 del 1958-09-07.
 
@@ -48,3 +48,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 38 de 41 | 2012-12-11 | Ley 9104 | 2012-12-10 |
 | 39 de 41 | 2020-06-21 | Ley 9796 | 2019-12-05 |
 | 40 de 41 | 2021-11-24 | Ley 10078 | 2021-11-05 |
+| 41 de 41 | 2023-01-11 | Sala Constitucional, resolución 000429 (2023-01-11) | 2023-01-11 |
