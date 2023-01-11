@@ -1,0 +1,1 @@
+Artículo 2º-Cada una de las instancias indicadas en el artículo anterior según su competencia serán las responsables de efectuar la aprobación y adjudicación respectiva de los actos que le han sido asignados.

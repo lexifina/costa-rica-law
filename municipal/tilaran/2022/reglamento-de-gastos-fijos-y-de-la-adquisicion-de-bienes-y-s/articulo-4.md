@@ -1,0 +1,1 @@
+Artículo 4º-Este Reglamento deroga el "Reglamento sobre Gastos Fijos y Adquisición de Bienes y Servicios de Competencia del Alcalde, Municipalidad de Tilarán" y cualesquiera otra disposición que se le oponga.
