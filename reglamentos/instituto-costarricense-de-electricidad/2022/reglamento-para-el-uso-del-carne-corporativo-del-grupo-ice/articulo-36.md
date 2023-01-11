@@ -1,0 +1,1 @@
+Artículo 36.-Los carnés corporativos no pueden ser perforados, salvo casos especiales y sólo efectuado por la dependencia emisora. Para facilitar su portación y protección, se debe utilizar una funda plástica.

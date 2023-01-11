@@ -1,0 +1,1 @@
+Artículo 22.-Para la reposición del carné corporativo, se procederá de acuerdo con lo establecido en cada una de las empresas del Grupo ICE, a efecto de determinar el cobro o no del mismo para su reposición.

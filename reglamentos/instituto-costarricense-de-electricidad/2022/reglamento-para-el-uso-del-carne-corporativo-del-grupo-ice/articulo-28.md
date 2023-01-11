@@ -1,0 +1,1 @@
+Artículo 28.-Los Oficiales de Seguridad de las empresas del Grupo ICE tienen la potestad de solicitar en cualquier momento o lugar dentro de las instalaciones, el carné corporativo al funcionario o trabajador, y de ser preciso, la cédula de identidad para su comprobación, aun y cuando haya sido permitido su ingreso dentro de la instalación que se trate.

@@ -1,0 +1,1 @@
+Artículo 13.-Los diseños de los carnés corporativos y los accesorios aportados por las empresas del Grupo ICE, deben ser adoptados y respetados en los aspectos y requerimientos estrictos del Manual de Identidad Corporativa.

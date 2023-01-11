@@ -1,0 +1,1 @@
+Artículo 18.-El carné corporativo es un documento personal, así como un dispositivo de seguridad, por lo que se entregará únicamente al funcionario o trabajador titular, o excepcionalmente, podrá ser entregado a un tercero debidamente autorizado. El funcionario o trabajador titular es responsable por el adecuado uso, mantenimiento y resguardo de éste.

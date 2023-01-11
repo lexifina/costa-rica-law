@@ -1,0 +1,1 @@
+Artículo 17.-Una vez finalizadas las labores o bien la jornada laboral del funcionario o trabajador, o mientras no se esté desarrollando actividades propias del cargo, éste debe guardar el carné corporativo y no utilizarlo en actividades personales.

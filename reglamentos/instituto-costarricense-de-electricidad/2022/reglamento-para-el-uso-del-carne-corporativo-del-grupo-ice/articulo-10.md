@@ -1,0 +1,6 @@
+Artículo 10.-Oficial de Seguridad.
+a) Verificar la debida portación del carné corporativo a todo funcionario o trabajador que requiera ingresar, permanecer y transitar en las instalaciones de las empresas del Grupo ICE, así como velar por el buen uso de los dispositivos de control electrónico y uso del carné corporativo en los lectores electrónicos cuando corresponda.
+b) Impedir el ingreso a las instalaciones de las empresas del Grupo ICE a la persona que no esté debidamente identificada y autorizada.
+c) Notificar debida y oportunamente, a los supervisores de seguridad, o centros de monitoreo según corresponda, los incidentes o incumplimientos en el uso correcto del carné corporativo.
+d) Vigilar y cuidar el estado de funcionamiento de los elementos que conforman, junto con el carné corporativo, los medios de control de acceso, tales como: puertas, plumas vehiculares, trompos electrónicos peatonales y portones, de manera que le permitan efectuar eficazmente el control de ingreso a las instalaciones. Así mismo, debe reportar inmediatamente cualquier daño o mal funcionamiento a la dependencia de Seguridad o centro de monitoreo de las empresas del Grupo ICE, según corresponda.
+e) Realizar el proceso de autorización de ingreso y asignación de carné temporal, para los funcionarios o trabajadores que no porten su carné corporativo.

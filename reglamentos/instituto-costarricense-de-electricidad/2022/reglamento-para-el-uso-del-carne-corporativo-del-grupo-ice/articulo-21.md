@@ -1,0 +1,1 @@
+Artículo 21.-Es deber del funcionario o trabajador dejar registro del uso de los privilegios de acceso, sea mediante la anotación en las bitácoras de registro de ingreso, por los medios electrónicos de registro o en cualquiera que se haya designado para el control respectivo. En cualesquiera de los casos, deberá portar y mostrar el carné corporativo.

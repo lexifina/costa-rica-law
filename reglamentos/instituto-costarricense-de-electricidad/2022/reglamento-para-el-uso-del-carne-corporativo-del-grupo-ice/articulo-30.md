@@ -1,0 +1,1 @@
+Artículo 30.-La dependencia de Seguridad en cada una de las empresas del Grupo ICE es la única autorizada, cuando proceda jurídicamente, para brindar información relacionada con la base de datos de carnés corporativos.

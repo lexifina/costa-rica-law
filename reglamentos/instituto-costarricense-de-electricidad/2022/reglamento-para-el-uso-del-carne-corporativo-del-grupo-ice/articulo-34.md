@@ -1,0 +1,1 @@
+Artículo 34.-El carné debe mantenerse a salvo de condiciones que lo deterioren tales como: calor excesivo, los efectos de la luz solar directa, solventes, químicos oxidantes o similares, fuerzas indebidas o fuego, de manera que se evite su daño o destrucción física.

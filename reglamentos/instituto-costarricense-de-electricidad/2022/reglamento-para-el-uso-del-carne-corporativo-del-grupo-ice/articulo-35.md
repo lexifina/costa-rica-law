@@ -1,0 +1,1 @@
+Artículo 35.-Cuando el carné cuente con elementos electrónicos (chip), debe evitarse someterlos, además de las condiciones descritas en el artículo anterior, a fuerzas magnéticas, microondas o eléctricas que puedan dañar estos elementos.

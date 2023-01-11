@@ -1,0 +1,1 @@
+Artículo 31.-Es deber de todos los funcionarios y trabajadores reportar a la dependencia de Seguridad respectiva la pérdida, robo o sustracción del carné corporativo, así como del hallazgo de este documento perteneciente a otra persona.

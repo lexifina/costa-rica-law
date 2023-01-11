@@ -1,0 +1,1 @@
+Artículo 33.-Cuando el carné corporativo muestre un daño o deterioro al grado que dificulte la verificación de la identidad del portador o el funcionamiento electrónico, el funcionario o trabajador titular debe gestionar de inmediato la sustitución con la dependencia encargada de emitir el dispositivo.

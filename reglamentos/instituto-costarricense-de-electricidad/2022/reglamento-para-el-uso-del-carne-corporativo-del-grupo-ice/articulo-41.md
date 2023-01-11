@@ -1,0 +1,1 @@
+Artículo 41.-Transitorio II. La Dirección de Comunicación del ICE gestionará, dentro del plazo de tres meses a partir de la publicación de este reglamento, la inclusión del carné corporativo en el Manual de Identidad Corporativa vigente.

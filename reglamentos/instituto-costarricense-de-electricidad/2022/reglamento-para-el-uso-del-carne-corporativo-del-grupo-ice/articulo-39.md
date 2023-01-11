@@ -1,0 +1,1 @@
+Artículo 39.-Cuando por el uso indebido del carné corporativo se desprenda un delito o se obtenga un beneficio personal irregular o el acceso a áreas restringidas no autorizadas para el funcionario o trabajador titular, las acciones se considerarán falta gravísima y se aplicaría lo establecido en la normativa aplicable de cada una de las empresas del Grupo ICE, según corresponda.

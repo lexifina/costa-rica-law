@@ -1,0 +1,1 @@
+Artículo 19° - El carné corporativo es de uso absolutamente personal; su utilización por terceros con o sin conocimiento del funcionario o trabajador titular, acarreará sanciones según corresponda a nivel administrativo o legal.
