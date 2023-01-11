@@ -1,1 +1,0 @@
-Artículo 2º-Durante la suspensión señalada en el artículo 1º del presente Decreto, seguirán vigentes las demás disposiciones aplicables a la fabricación, registro y etiquetado del producto, contenidas en otras regulaciones vigentes.
