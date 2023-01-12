@@ -1,0 +1,11 @@
+MUNICIPALIDAD DE OSA
+MODIFICACIÓN DEL ARTÍCULO 10 Y SUS INCISOS DEL
+REGLAMENTO DE ORGANIZACIÓN Y FUNCIONAMIENTO
+DE LA PROVEEDURÍA MUNICIPAL DE OSA
+Una vez leída y analizada la nota el Concejo Municipal Acuerda: 1- dispensar de trámite de comisión. Esto por medio de los votos de los regidores Alfredo Soto Elizondo, Damaris Guadamuz Castro, Rocío Soto Varela, Lorenzo Ibarra Rosales y Tairis Chavarría Vargas.
+Acuerdo N° 2. Aprobar de manera definitiva. Esto por medio de los votos de los regidores: Alfredo Soto Elizondo, Damaris Guadamuz Castro, Rocío Soto Varela, Lorenzo Ibarra Rosales y Tairis Chavarría Vargas. Por tanto, de acuerdo con las recomendaciones se acuerda modificar el artículo 10 y sus incisos del Reglamento de Organización y Funcionamiento de la Proveeduría Municipal de Osa, se modifiquen quedando de la siguiente manera:
+Artículo 10.-Formalidades del pedido: La respectiva solicitud de pedido, deberá estar suscrita por el jefe de la dependencia solicitante y contar la aprobación del alcalde municipal según la delegación que en adelante se indicara, quienes serán los responsables de verificar y justificar la efectiva necesidad del bien, servicio u obra.
+10.1 En el caso de las contrataciones de Licitación Reducida según límite presupuestario definido por Ley y la Contraloría General de República, el acto de decisión inicial y adjudicación son delegadas por el Concejo Municipal al alcalde municipal, mediante el presente reglamento.
+10.2 En caso de las Licitaciones Mayores, Licitaciones Menores, remate, así como las otras modalidades de Contratación Reguladas por Ley que no sean de Licitación Reducida según límite presupuestario definido por Ley y la Contraloría General de la República, tanto el acto de la aprobación de la decisión inicial y el acto de adjudicación corresponde al Concejo Municipal.
+10.3 Que en el caso de las contrataciones Licitaciones Mayores Internacionales el acto de decisión inicial, así como el acto de adjudicación será responsabilidad del Concejo Municipal.
+Asimismo, se autoriza al Alcalde Municipal, a publicar ante el Diario Oficial La Gaceta, la modificación realizada al artículo 10 del reglamento de marras. No se omite manifestar que la documentación del trámite consta en el expediente del acta para cualquier consulta.
