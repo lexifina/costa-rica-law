@@ -1,0 +1,1 @@
+Artículo 25.-De la aprobación de las actas y acuerdos en firme. Las actas se aprobarán en la siguiente sesión ordinaria. Antes de esta aprobación los acuerdos carecerán de firmeza, salvo que los miembros presentes acuerden su firmeza por votación de dos tercios de la totalidad de los miembros del órgano.
