@@ -14,3 +14,4 @@ Reglamento de sesiones concejo Municipal de la Municipalidad de Santo Domingo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-11-24 | la propia norma |
+| 2 | 2023-01-12 | Reglamento municipal 2 (2023-01-12) |
