@@ -14,3 +14,4 @@ Reglamento de organización y funcionamiento de la proveeduría municipal de Osa
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-07-28 | la propia norma |
+| 2 | 2023-01-12 | Reglamento municipal 0 (2023-01-12) |
