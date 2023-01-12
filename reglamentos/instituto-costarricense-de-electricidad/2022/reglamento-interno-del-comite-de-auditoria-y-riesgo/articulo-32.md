@@ -1,0 +1,12 @@
+Artículo 32.—De las funciones corporativas en materia de auditoría:
+1. Revisar que las revelaciones hechas a la información financiera y los procesos contables de las empresas del Grupo ICE, reflejen razonablemente las condiciones financieras, los resultados de operación y los compromisos y planes a largo plazo. Para ello debe:
+1.1. Conocer, de previo a su remisión al Consejo Directivo, los informes de control Interno, los estudios de auditoría, asesorías y las advertencias que las Auditorías Internas de las Empresas remitan a dicho Órgano y plantear recomendaciones sobre su abordaje.
+1.2. Valorar el Informe Financiero Empresarial trimestral, que está relacionado con la situación y resultados consolidados del Grupo ICE y sus empresas, para trasladarlo con sus observaciones y recomendaciones al Consejo Directivo.
+1.3. Revisar los estados financieros anuales consolidados auditados del Grupo ICE, los hallazgos significativos de la Carta a la Gerencia del ICE relacionados con las empresas del Grupo ICE y las comunicaciones del Auditor Externo, poniendo énfasis en cambios contables, estimaciones contables y ajustes importantes como resultado del proceso de auditoría, para trasladarlos con sus observaciones y recomendaciones al Consejo Directivo.
+1.4. Dar seguimiento a los hallazgos significativos de la Carta a la Gerencia del ICE relacionados con las empresas del Grupo ICE.
+1.5. Brindar seguimiento sobre la atención a las recomendaciones y observaciones emanadas de los informes semestrales que deben brindar los Comités de Vigilancia y Fiscales de las empresas en cumplimiento de sus atribuciones.
+1.6. Supervisar que las empresas del ICE, tomen las acciones correctivas necesarias en el momento oportuno para hacer frente a las debilidades de control, el incumplimiento de las políticas, leyes y reglamentos, así como otras situaciones identificadas por los auditores internos, auditores externos, órganos de control y fiscalización.
+1.7. Sugerir al Consejo Directivo la emisión de lineamientos para reforzar los procesos de supervisión de las Empresas del Grupo.
+2. Asegurar que el ICE y sus empresas cumplan razonablemente con las leyes y regulaciones aplicables, que se conducen éticamente en los negocios y mantienen un control efectivo contra posibles conflictos de intereses. Para ello debe:
+2.1. Requerir a los auditores internos un reporte semestral de puntos significativos que deban ser de conocimiento del Comité de Auditoría y Riesgos, en su rol corporativo.
+3. Cualquier otra función que le asigne el Consejo Directivo.

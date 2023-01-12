@@ -1,0 +1,1 @@
+Artículo 38.—Derogatorias. El presente reglamento deroga el Reglamento Interno del Comité de Auditoría aprobado en el inciso a), artículo 1°, capítulo II, sesión 6458 del 29 de junio de 2021 y el Reglamento Interno del Comité de Riesgos aprobado en el inciso c), artículo 1°, capítulo II, sesión 6458 del 29 de junio de 2021.

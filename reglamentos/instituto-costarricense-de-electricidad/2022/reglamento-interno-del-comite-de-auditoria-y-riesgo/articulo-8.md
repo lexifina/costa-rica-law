@@ -1,0 +1,1 @@
+Artículo 8º-Informes. El Comité de Auditoría y Riesgos brindará un informe anual de sus actuaciones al Consejo Directivo, además podrá presentar informes particulares que se requieran para complementar el cumplimiento de las funciones establecidas en este Reglamento.
