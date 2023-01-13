@@ -1,0 +1,1 @@
+Artículo 2.- La modificación arancelaria del artículo anterior solamente aplicará para papa de uso industrial y dicha cantidad deberá ingresar al país en tres momentos del año 2023, específicamente: del 01 de enero al 28 de febrero, del 01 de junio al 31 de julio y del 01 al 31 de diciembre de 2023.
