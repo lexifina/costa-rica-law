@@ -1,0 +1,1 @@
+Artículo 4º-Forma de rendir la caución: la caución a favor de INS Servicios S.A, podrá ser rendida mediante la constitución de un seguro o póliza de fidelidad, cuya formalización y renovación será responsabilidad del caucionante o mediante una letra de cambio que el Departamento de Talento Humano le hará firmar.

@@ -1,0 +1,1 @@
+Artículo 3º-Finalidad de la caución. La caución tiene como finalidad garantizar el resarcimiento de eventuales daños y perjuicios que el caucionante responsable pueda producir directa o indirectamente al patrimonio de INS Servicios S.A., sin que ello limite la eventual responsabilidad civil, penal y administrativa, que de ello devenga.
