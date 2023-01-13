@@ -1,1 +1,1 @@
-Artículo 27.—Rige a partir de su publicación en La Gaceta y deroga cualquier otra disposición reglamentaria que se le oponga.
+Artículo 27.-La suspensión del servicio se mantendrá mientras persista la situación que le dio origen. Aún, cuando el servicio esté suspendido, por causas imputables al usuario, ello no lo exime del pago de la tarifa y los recargos correspondientes.

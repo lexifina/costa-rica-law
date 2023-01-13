@@ -1,1 +1,1 @@
-Artículo 6º—El SENARA es el responsable de la construcción, administración, operación y mantenimiento de las obras de conducción y distribución del agua a nivel primario y secundario, incluyendo los caminos construidos para tales efectos. La construcción, operación y mantenimiento de infraestructura dentro de cada finca corresponderá al usuario.
+Artículo 6°-Las aguas excedentes de proyectos de acuicultura deben ser devueltas al sistema de riego en el sitio que SENARA defina y deberán cumplir las normas de calidad que para tal efecto establece la normativa vigente.

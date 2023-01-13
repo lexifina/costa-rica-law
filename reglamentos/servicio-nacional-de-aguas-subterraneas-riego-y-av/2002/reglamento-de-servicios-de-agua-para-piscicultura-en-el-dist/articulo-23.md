@@ -1,1 +1,1 @@
-Artículo 23.—La suspensión del servicio se mantendrá mientras persista la situación que le dio origen. Aún cuando el servicio esté suspendido, por causas imputables al usuario, ello no lo exime del pago de la tarifa y los recargos correspondientes.
+Artículo 23.-El SENARA preparará y mantendrá actualizado un padrón de usuarios, conforme al cual se realizará el cobro del servicio de agua para acuicultura.

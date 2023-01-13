@@ -1,1 +1,1 @@
-Artículo 20.—El SENARA incluirá en la factura por servicios de agua para piscicultura, todas aquellas sumas de facturación y recargos por morosidad, pendientes de pago.
+Artículo 20.-La tarifa por el servicio de agua para acuicultura será pagadera mensualmente, por mes vencido. Las facturas se pondrán al cobro durante la primera quincena del mes inmediato siguiente a la finalización de cada mes y tendrán como fecha de vencimiento el último día hábil de ese mes.

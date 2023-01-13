@@ -1,0 +1,1 @@
+Artículo 30.-Responsabilidad Ambiental: El usuario del servicio de agua para acuicultura será responsable por los daños ambientales que provoquen prácticas inadecuadas, mal uso o disposición de aguas de descarga y contaminantes que genere dicha actividad.

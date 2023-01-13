@@ -1,10 +1,9 @@
-CAPÍTULO IV
-Prohibiciones
-Artículo 16.—Queda prohibido al usuario lo siguiente:
-14.1. Colocar cercas u obstáculos en canales de conducción y distribución, y derechos de vía de SENARA.
-14.2. Usar los canales y caminos adyacentes como paso de maquinaria en sitios diferentes a los dispuestos para tal efecto por el SENARA, sin previa autorización expresa de la Jefatura del DISTRA.
-14.3. Apropiarse de un caudal superior al autorizado por SENARA o derivar caudales en puntos no aprobados por SENARA.
-14.4. Depositar en los canales basura o materiales de cualquier naturaleza, que de algún modo, impida el libre curso de las aguas, o las contaminen, incumpliendo con la reglamentación vigente sobre la calidad de aguas residuales.
-14.5. Operar las compuertas de los canales y otras estructuras que estén bajo el control del Distrito.
-14.6. Alterar o dañar las obras de infraestructura construidas por el SENARA.
-14.7. Descargar aguas en sitios no aprobados de previo por el SENARA.
+CAPÍTULO II
+De los derechos de los usuarios
+Artículo 16.-Serán derechos de los usuarios:
+16.1 Solicitar ante el SENARA la inscripción en el Padrón de Usuarios de Agua para Acuicultura del Distrito.
+16.2 Solicitar las modificaciones que sean necesarias a los datos consignados en el Padrón de Usuarios de Agua para Acuicultura, aportando la documentación pertinente. Si el reclamo consiste en una revisión del área sujeta al servicio de agua para acuicultura, el usuario deberá aportar el levantamiento topográfico actualizado, elaborado por un profesional competente, para análisis y resolución por parte del SENARA. Lo cual regirá a partir de la fecha que se indique en la resolución correspondiente.
+16.3 Recibir en la obra de toma de su proyecto, la dotación de agua correspondiente, bajo condiciones normales de prestación del servicio, conforme con los planes de utilización de uso del agua requerida por usuarios de riego ubicados aguas abajo de la explotación acuícola, o excedentes disponibles en el sistema asignado a la actividad de acuicultura.
+16.4 Gestionar ante las autoridades del Distrito aquellas sugerencias o peticiones relacionadas con el servicio de agua para acuicultura.
+16.5 Presentar quejas o reclamaciones del servicio, que le brinda el SENARA mediante el formulario que al efecto tiene disponible en las oficinas o por los medios electrónicos autorizados o habilitados por SENARA. El SENARA tendrá la obligación de atender las quejas o reclamaciones oportunamente y dentro de los términos que establece la Ley General de la Administración Pública. De igual manera, el usuario tendrá derecho en cualquier tiempo de presentar quejas o reclamaciones ante la ARESEP relativas al servicio que brinda el SENARA. Las reclamaciones planteadas al SENARA se tramitarán ante las autoridades del Distrito, la Gerencia y en última instancia, ante la Junta Directiva del SENARA.
+16.6 Los demás derechos establecidos en otras Leyes y Reglamentos.

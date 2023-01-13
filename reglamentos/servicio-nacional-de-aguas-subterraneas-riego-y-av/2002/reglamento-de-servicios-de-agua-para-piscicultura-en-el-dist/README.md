@@ -14,3 +14,4 @@ Reglamento de Servicios de Agua para Piscicultura en el Distrito de Riego Arenal
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-07-12 | la propia norma |
+| 2 | 2023-01-13 | Reglamento 12023 (2023-01-13) |
