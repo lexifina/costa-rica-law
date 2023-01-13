@@ -17,3 +17,4 @@ Reforma Políticas para el Funcionamiento del Dominio de Nivel Superior, CR
 | 2 | 2014-09-10 | Acuerdo 0 (2014-09-10) |
 | 3 | 2016-11-04 | Acuerdo 0 (2016-11-04) |
 | 4 | 2018-02-09 | Acuerdo 0 (2018-02-09) |
+| 5 | 2023-01-13 | Reglamento 0 (2023-01-13) |
