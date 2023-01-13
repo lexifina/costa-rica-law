@@ -26,7 +26,8 @@ La decisión inicial debe cumplir con los requisitos establecidos en la Ley de C
 4) La denominación de los Fondos de Trabajo en adelante será Unidades de Compra Desconcentradas, pudiendo identificarse por las siguientes siglas UCD.
 5) Si el trámite de la contratación debe realizarse fuera de la plataforma SICOP, la autorización para ello deberá ser suscrita conjuntamente por el jefe de la unidad solicitante y la Subgerencia de área.
 6) Para el Arrendamiento o compra de bienes inmuebles debe contarse con un Acto motivado adoptado por el jefe de la unidad solicitante y la Subgerencia de área.
-7) Para la donación debe contarse con un Acto motivado adoptado por el jefe de la unidad solicitante y la Subgerencia de área.
+7) Para la donación de bienes muebles debe contarse con un Acto motivado adoptado por el jefe de la unidad solicitante y la Subgerencia de área.
+(Así reformado el punto anterior mediante sesión N° 2022-62 del 13 de diciembre del 2022)
 8) Para la donación de bienes inmuebles debe contarse con una resolución motivada adoptada por la Junta Directiva y un acto de aceptación de la aceptación tomado por el máximo jerarca de la institución beneficiaria de la donación.
 9) Le corresponderá a la Junta Directiva:
 a) Adjudicar las Licitaciones Mayores y todas las licitaciones y los procedimientos de excepción que superen el límite superior de la licitación Menor.
@@ -56,35 +57,42 @@ c) Resolver los recursos de objeción al pliego de condiciones y de revocatoria 
 d) Aprobación en SICOP del pliego de condiciones de los procedimientos tramitados en su dependencia.
 e) Aprobar todos los contratos en SICOP sin firma del contratista de los procedimientos tramitados en su dependencia.
 13) Los procedimientos de contratación y contratos iniciados, antes de la comunicación de este acuerdo, se concluirán conforme a las disposiciones vigentes en el Reglamento de Adquisición de bienes.
-14) Compras por la excepción de caja chica según el artículo 3° de la Ley 9986.
-a) Las adquisiciones por medio del fondo de caja chica procederán hasta por el 10% del monto fijado para la licitación reducida que no incluye obra pública, dispuesto por la Contraloría General de la República, en los ajustes de cada año. Este monto será comunicado por la Proveeduría cada año.
-b) La Caja Chica se utilizará para atender situaciones de carácter indispensable e impostergable según lo establecido en la Ley General de Contratación Pública, hasta por el monto indicado en el artículo anterior. Mediante este mecanismo se podrán realizar compras para garantizar o restablecer la prestación del servicio de agua potable, alcantarillado sanitario, de hidrantes, de plantas de tratamiento de aguas residuales, o la operación de las oficinas institucionales.
-c) Para estas compras deben cumplirse los requisitos que a continuación se establecen:
-i) Que los artículos o materiales no sean parte del stock permanente de la institución ni estén bajo contrato según demanda, o que siendo parte del stock o contratados según demanda no se encuentren disponibles en el momento.
-ii) Que los bienes o servicios sean Urgentes o indispensables e impostergables para la prestación del servicio, o para garantizar o restablecer la continuidad y calidad de los servicios de agua potable, alcantarillado sanitario, de hidrantes, de plantas de tratamiento de aguas residuales, o el funcionamiento de las oficinas institucionales.
-d) Por montos superiores al 10% del monto autorizado para compras por caja chica y hasta el tope de la misma se puede contratar únicamente lo siguiente:
-i. Materiales y mano de obra para reparación de sistemas de acueducto, alcantarillado e hidrantes.
-ii. Materiales de purificación para los sistemas de acueducto.
-iii. Alquiler de equipo y maquinaria.
-iv. Reparación mecánica de vehículos para cuadrilla, camiones, maquinaria y grúas.
-v. Alquiler de camiones cisterna para reparto de agua potable.
-e) Las compras por caja chica deben ser autorizadas de la siguiente manera:
-i. Gastos hasta un 10% del monto autorizado para compras por caja chica deben ser autorizados por el Director General del área, o Jefe Cantonal o Jefe de zona, según corresponda, en caso de ausencia la aprobación la dará el funcionario indicado en el inciso ii siguiente.
-ii. Gastos hasta un 50% del monto autorizado para compras por caja chica deben ser autorizados por el Director Experto del área o Región, según corresponda en caso de ausencia la aprobación la dará el funcionario indicado en el inciso iii siguiente.
-iii. Gastos por más del 50% y hasta el 100% del monto autorizado para compras por caja chica deben ser autorizados por el Subgerente de Área o en su ausencia el Gerente o Subgerente General. En el caso de las Direcciones Nacionales estas compras deben ser aprobadas por el Gerente o Subgerente General.
-f) Toda compra debe tener una justificación en la que se incluya expresamente, respecto al gasto, el detalle de:
-1. La procedencia de utilizar esta vía dejando constancia de los motivos legales, técnicos y financieros que hacen de esta la mejor para la satisfacción del interés público.
-2. Carácter indispensable e impostergable (señalando la afectación del servicio en caso de no realizarse la compra o la situación que se pretende solucionar con la misma), esta justificación es responsabilidad absoluta del superior jerárquico de la unidad que realiza la compra.
-3. Indicar si para esta misma necesidad que se pretende satisfacer se han adquirido otros servicios o materiales por medio de caja chica durante los últimos 3 meses, en caso positivo justificar el porqué, se requirió una nueva compra.
-4. Explicar el motivo por el cual se seleccionó el proveedor.
-5. Demostrar en la justificación que la compra no obedece a una mala planificación.
-6. Hacer referencia expresa a la razonabilidad del precio de lo adquirido.
-7. En el caso de compras de artículos de stock debe presentarse, nota del Almacén o bodega correspondiente en la que se señale la no existencia en inventario del artículo.
-8. En el caso de compras de artículos de contratos según demanda debe explicarse el motivo por el cual no se cuenta con los mismos.
-g) Se autoriza a contratar por caja chica, en casos excepcionales la mano de obra por reparaciones mecánicas, eléctricas y compra de repuestos, siempre y cuando no obedezca a la excepción de reparación indeterminada para vehículos livianos, pesados y equipo especial.
-h) La suma de los servicios y compra de repuestos indicados en el artículo anterior, no podrán superar al año el 10% del tope de caja chica para vehículos pesados y equipo especial.
-i) Será obligación del Área de Transportes que corresponda velar que esta sumatoria no se sobregire, para lo cual deberá llevarse un expediente por cada vehículo. Para la selección del proveedor se deberá, en tanto sea posible, utilizar el Registro de Proveedores y aplicar la respectiva rotación de estos, en caso de que ello no sea posible se deberá justificar debidamente.
+14) La Caja Chica se utilizará para atender situaciones de carácter excepcional e indispensable, hasta por el monto indicado en el artículo 5 de este Reglamento. Mediante este mecanismo se podrán realizar compras para garantizar o restablecer la prestación del servicio de agua potable y alcantarillado sanitario, hidrantes, plantas de tratamiento de aguas residuales, así como la operación de las respectivas oficinas.
+Para estas compras deben cumplirse los requisitos que a continuación se establecen:
+a. Que los artículos o materiales no sean parte del stock permanente de la institución ni estén bajo contrato según demanda, o que siendo parte del stock o contratados según demanda no se encuentren disponibles en el momento.
+b. Que los bienes o servicios sean:
+. Urgentes o indispensables para la prestación del servicio.
+. Necesarios para garantizar o restablecer la continuidad y calidad del servicio.
+Por montos superiores al 10% del monto autorizado para compras por caja chica y hasta el tope de la misma se puede contratar únicamente lo siguiente:
+a. Materiales y mano de obra para reparación de sistema de acueducto, alcantarillado e hidrantes, así como materiales de purificación para los sistemas de acueducto.
+b. Alquiler de equipo y maquinaria.
+c. Reparación mecánica de vehículos para cuadrilla, camiones, maquinaria y grúas.
+d. Alquiler de camiones cisterna para reparto de agua potable.
+Las compras por caja chica deben ser autorizadas de la siguiente manera:
+a. Gastos hasta un 10% del monto autorizado para compras por caja chica deben ser autorizados por el Director General del área, o Jefe Cantonal o Jefe de zona, según corresponda, en caso de ausencia la aprobación la dará el funcionario indicado en el inciso b).
+b. Gastos hasta un 50% del monto autorizado para compras por caja chica deben ser autorizados por el Director Experto del área o Región, según corresponda en caso de ausencia la aprobación la dará el funcionario indicado en el inciso c).
+c. Gastos por más del 50% y hasta el 100% del monto autorizado para compras por caja chica deben ser autorizados por el Subgerente de Área o en su ausencia el Gerente o Subgerente General. En el caso de las Direcciones Nacionales estas compras deben ser aprobadas por el Gerente o Subgerente General.
+Cada compra debe tener una justificación en la que se incluya expresamente, respecto al gasto, el detalle de:
+. Carácter excepcional.
+. Indispensable (señalando la afectación del servicio en caso de no realizarse la compra o la situación que se pretende solucionar con la misma).
+. Indicar si para esta misma necesidad que se pretende satisfacer se han adquirido otros servicios o materiales por medio de caja chica durante los últimos 3 meses, en caso positivo justificar el porqué, se requirió una nueva compra.
+. Explicar el motivo por el cual se seleccionó el proveedor.
+. Demostrar en la justificación que la compra no obedece a una mala planificación.
+. Hacer referencia expresa a la razonabilidad del precio de lo adquirido.
+. En el caso de compras de artículos de stock debe presentarse, nota del Almacén o bodega correspondiente en la que se señale la no existencia en inventario del artículo.
+. En el caso de compras de artículos de contratos según demanda debe explicarse el motivo por el cual no se cuenta con los mismos.
+(Así reformado el punto anterior mediante sesión N° 2022-62 del 13 de diciembre del 2022)
 15) Para todo procedimiento de contratación pública se debe cumplir con los plazos establecidos en los cronogramas publicados por la Proveeduría Institucional.
-16) La Dirección de Proveeduría en coordinación con la Dirección Jurídica dispondrán de un plazo no mayor a cuatro meses a partir de la publicación del Reglamento a la Ley General de Contratación Pública para la presentación ante esta Junta Directiva del Reglamento interno para contratación administrativa de AyA.
+16) La Dirección de Proveeduría en coordinación con la Dirección Jurídica dispondrán de un plazo no mayor a seis meses a partir de la publicación del Reglamento a la Ley General de Contratación Pública para la presentación ante esta Junta Directiva del Reglamento interno para contratación administrativa de AyA.
+(Así reformado el punto anterior mediante sesión N° 2022-62 del 13 de diciembre del 2022)
+17. Se derogan el Reglamento de adquisiciones de bienes, servicios y construcción de obras del Instituto Costarricense de Acueductos y Alcantarillados y el Manual de Procedimientos de contratación administrativa del AyA.
+(Así adicionado el punto anterior mediante sesión N° 2022-62 del 13 de diciembre del 2022)
+18. El Comité de Compras Institucionales: Estará integrado por el Gerente o Subgerente General, quién la presidirá, por los Subgerentes de Área, el Director Jurídico, el Director de la Proveeduría Institucional y el Director de Planificación, o quien los sustituya formalmente en caso de ausencias prolongadas. Deberán reunirse ordinariamente al menos una vez cada tres meses y extraordinariamente cuando así se requiera. La convocatoria será mediante comunicación formal con tres días de anticipación, salvo situaciones de urgencia.
+Tendrá como funciones específicas:
+a) Definir los bienes y servicios estratégicos para la Institución.
+b) Aprobar el Programa Anual de Compras Institucional y sus modificaciones.
+c) Definir el plan de operación para la compra de los productos estratégicos, que permita garantizar la continuidad y calidad del servicio.
+d) Dar seguimiento a la ejecución del Programa Anual de Compras.
+(Así adicionado el punto 18) anterior mediante sesión N° 2022-62 del 13 de diciembre del 2022)
 Estas Directrices tienen una vigencia hasta la publicación del Reglamento interno para contratación administrativa de AyA.
 Acuerdo firme.

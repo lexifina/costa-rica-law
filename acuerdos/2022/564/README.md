@@ -14,3 +14,4 @@ Disposiciones temporales en materia de contratación pública para el AyA
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-01-13 | la propia norma |
+| 2 | 2023-01-13 | Acuerdo 572 (2022-12-13) |
