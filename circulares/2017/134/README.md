@@ -13,3 +13,4 @@ Directrices para la “Estandarización de señalamientos de agendas en materia 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-09-05 | la propia norma |
+| 2 | 2023-01-13 | Circular 3 (2023-01-13) |
