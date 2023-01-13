@@ -1,0 +1,2 @@
+Transitorio III.-Corresponderá a la Dirección Administrativa gestionar a más tardar al 31 de enero de 2023 la actualización del Reglamento de Capacitación y Formación, con las nuevas disposiciones previstas en la LGCP y su Reglamento, conforme lo regulado en el artículo 24 de este Reglamento.
+Junta Directiva de RECOPE S. A. San Francisco de Goicoechea, 20 de diciembre del 2022, artículo N° 4 de la sesión ordinaria N° 5333-31.

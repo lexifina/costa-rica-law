@@ -1,0 +1,1 @@
+Artículo 21.-Reclamos económicos. El acto administrativo mediante el cual se apruebe o rechace el reclamo económico que presenten los contratistas, debe ser emitido por la Gerencia de Área en el caso de la licitación reducida y licitación menor, para las licitaciones mayores corresponderá emitir el acto administrativo a la Gerencia General.

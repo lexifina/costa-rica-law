@@ -1,0 +1,1 @@
+Transitorio II. Corresponderá a la Dirección Financiera gestionar a más tardar al mes de noviembre de 2023 la actualización del Reglamento General de Caja Chica, con las nuevas disposiciones previstas en la LGCP y su Reglamento, conforme lo regulado en el artículo 23 de este Reglamento.
