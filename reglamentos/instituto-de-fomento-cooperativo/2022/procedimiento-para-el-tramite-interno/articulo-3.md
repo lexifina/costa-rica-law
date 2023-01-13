@@ -1,0 +1,5 @@
+Artículo 3. Comunicación y firma del convenio y similares.
+Una vez comunicado el acuerdo por parte de la Dirección Ejecutiva, la Gerencia Técnica convoca a los personeros de la institución o instituciones contraparte con la finalidad de establecer la firma respectiva del acuerdo, para ello deberá:
+a. Coordinar la actividad de firma, la cual se define en atención al tipo y objetivos del convenio/acuerdo y a las indicaciones de la Dirección Ejecutiva. La actividad de firma varía desde un evento de amplia convocatoria con la concurrencia de la prensa, hasta las suscripciones del instrumento en el respectivo despacho de cada representante legal, y el posterior envío de los originales debidamente firmados a cada contraparte.
+b. Remitir el original con todas las firmas al departamento Administrativo Financiero el cual será el encargado de mantenerlo debidamente custodiado.
+También remitirá copia a la Dirección Ejecutiva y Desarrollo Estratégico departamento que llevará un registro de esos convenios.
