@@ -1,0 +1,15 @@
+Artículo 3º-Definiciones. Para los efectos del presente reglamento, se entenderá por:
+a. Condiciones del entorno de la persona teletrabajadora: conjunto de requerimientos y especificaciones, que la persona funcionaria debe de cumplir, para que pueda desempeñarse en la modalidad de teletrabajo, tales como herramientas tecnológicas mínimas, conectividad y todos aquellos otros requerimientos que resulten indispensables para el correcto desempeño de sus labores.
+b. Horario de teletrabajo: la jornada laboral de la persona teletrabajadora, el cual podrá ser flexible, siempre y cuando se ajuste a los límites legales establecidos para las distintas jornadas de trabajo y en cumplimiento de lo establecido en el Código de Trabajo, la Ley N°2.
+c. INVU: Instituto Nacional de Vivienda y Urbanismo.
+d. MTSS: Ministerio de Trabajo y Seguridad Social.
+e. Perfil de la persona teletrabajadora: conjunto de aptitudes, conocimientos, destrezas y habilidades, que la Institución ha determinado de previo, que debe poseer una persona trabajadora para poder desempeñar sus labores de manera remota.
+f. Persona teletrabajadora: Persona protegida por esta regulación, que teletrabaja en relación de dependencia o subordinación.
+g. Puesto teletrabajable: puesto de trabajo susceptible a desempeñarse a través de la modalidad del teletrabajo.
+h. Teletrabajo: Modalidad de trabajo que se realiza fuera de las instalaciones de la Institución, utilizando las tecnologías de la información y comunicación sin afectar el normal desempeño de otros puestos, de los procesos y de los servicios que se brindan. Esta modalidad de trabajo está sujeta a los principios de oportunidad y conveniencia, donde la Institución y la persona teletrabajadora definen sus objetivos y la forma en cómo se evalúan los resultados del trabajo.
+i. Teletrabajo domiciliario: se da cuando las personas trabajadoras ejecutan sus actividades laborales desde su domicilio.
+j. Actividades teletrabajables: Conjunto de tareas que pueden ser realizadas mediante el uso de las tecnologías de la información y comunicaciones, desde el domicilio personal o centro de trabajo destinado para tal fin, y que no requieren la presencia física de la persona funcionaria en las instalaciones del INVU.
+k. Acuerdo de teletrabajo: Es el documento en el cual el Jerarca Superior Administrativo correspondiente y la persona funcionaria, acuerdan las condiciones en que se desarrollará el programa de teletrabajo, el cual tendrá vigencia de un año, prorrogable dependiendo del resultado obtenido y el desempeño de la persona.
+l. Comisión Institucional de Teletrabajo (CIT): Órgano interlocutor oficial con el Equipo de Coordinación Técnica, éste último designado por el Ministerio de Trabajo y Seguridad Social.
+m. Solicitud de teletrabajo: Documento que contiene los requisitos mínimos que debe cumplir cada solicitante de teletrabajo, incluye autorización de la jefatura inmediata,
+actividades teletrabajables, perfil de competencias y habilidades personales, requerimientos de salud ocupacional y de tecnologías de información.

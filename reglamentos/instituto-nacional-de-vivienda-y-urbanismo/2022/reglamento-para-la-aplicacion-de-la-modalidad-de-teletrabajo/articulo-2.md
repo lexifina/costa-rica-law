@@ -1,0 +1,1 @@
+Artículo 2º-Alcance. Este Reglamento será aplicable a las personas trabajadoras del INVU que se sometan a realizar sus funciones bajo la modalidad del teletrabajo; siempre que cumplan con los requisitos descritos en este precepto.

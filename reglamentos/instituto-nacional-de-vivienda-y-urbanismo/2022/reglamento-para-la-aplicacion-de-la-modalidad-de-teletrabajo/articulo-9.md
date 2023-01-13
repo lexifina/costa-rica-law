@@ -1,0 +1,1 @@
+Artículo 9º-Disposición del equipo. Cuando el INVU no pueda proporcionar el equipo, la persona teletrabajadora deberá aportarlo para poder ejecutar el teletrabajo, mismo que deberá cumplir con los requisitos y parámetros que establezca la Unidad de Tecnologías de Información, así como con las disposiciones del presente Reglamento y las disposiciones internas del INVU.

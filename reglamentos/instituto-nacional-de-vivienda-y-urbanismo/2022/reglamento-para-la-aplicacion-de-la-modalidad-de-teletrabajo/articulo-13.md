@@ -1,0 +1,1 @@
+Artículo 13.-Sobre los riesgos en el teletrabajo. Para el teletrabajo, se aplicarán las pólizas previstas para el trabajo presencial, siempre que se cumplan con las disposiciones y procedimientos establecidas para este fin.
