@@ -1,1 +1,1 @@
-Artículo 14.—Vigencia. Este Reglamento así modificado rige a partir de su publicación en el Diario Oficial La Gaceta.
+Artículo 14.-Actualización de costos. Los costos de la prestación de servicios, serán revisados al menos una vez al año por el SENARA para efectos de la respectiva actualización, debiendo observarse en todo caso la justificación y aprobación requerida de la Junta Directiva del SENARA.

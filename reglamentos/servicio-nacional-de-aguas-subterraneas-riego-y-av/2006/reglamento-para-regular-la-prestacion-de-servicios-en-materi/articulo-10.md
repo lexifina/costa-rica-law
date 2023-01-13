@@ -1,4 +1,7 @@
-Artículo 10.—Plazo de revisión y resolución del SENARA. La DIGH brindará los servicios referidos en este reglamento, dentro de los siguientes plazos a partir del recibido de la solicitud cumpliendo con toda la información solicitada:
-a) Dictámenes generales, dictámenes detallados y solicitudes de Perforación de Pozos y Concesiones de Aprovechamiento de Aguas, 30 días hábiles.
-b) Certificaciones de Base de Datos: 5 días hábiles.
-c) Asesorías a entidades públicas en materia hidrogeológica: Según convenio.
+Artículo 10.-Presentación y recepción de la información.
+a) Para la recepción de los trámites y la prestación de los servicios de Dictámenes Generales y Dictámenes Detallados, el usuario debe llenar de forma completa la información solicitada, ya sea mediante formularios o según los mecanismos establecidos por la DIGH en las plataformas digitales, los cuales se indicarán y estarán a disposición de los usuarios en la página web del SENARA.
+b) El SENARA revisará los requisitos de ingreso verificando que la documentación cumple para ser recibida e iniciar el trámite en el SENARA. Y se debe adjuntar este formulario junto con el resto de la documentación a aportar.
+En caso de que no cumpla con los requisitos, se seguirá el procedimiento establecido en el artículo 6 de la ley N° 8220.
+c) Para la atención de la audiencia relacionada con la perforación y aprovechamiento de los pozos perforados, la información enviada por parte de la Dirección de Agua del MINAE se recibe en SENARA mediante los mecanismos establecidos entre las dos instituciones.
+d) Las Certificaciones e Información de las bases de datos, se tiene que solicitar por medio de la dirección de correo electrónico que la dirección habilite para tal fin, o el usuario puede realizar una consulta directa en la Base de Datos de Pozos. Ambas direcciones estarán disponibles en la página WEB del SENARA.
+e) Las asesorías para las instituciones públicas serán reguladas para cada caso en particular, por medio del mecanismo que se defina entre el SENARA y la instancia a la cual se le prestará el servicio.

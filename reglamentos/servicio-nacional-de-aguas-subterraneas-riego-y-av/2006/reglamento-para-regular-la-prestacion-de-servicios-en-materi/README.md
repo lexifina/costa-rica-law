@@ -15,3 +15,4 @@ Reglamento para Regular la Prestaci√≥n de Servicios en Materia de Aguas Subterr√
 | --- | --- | --- |
 | 1 | 2007-01-09 | la propia norma |
 | 2 | 2020-02-24 | Reglamento 774 (2020-02-24) |
+| 3 | 2023-01-13 | Reglamento 1 (2023-01-13) |

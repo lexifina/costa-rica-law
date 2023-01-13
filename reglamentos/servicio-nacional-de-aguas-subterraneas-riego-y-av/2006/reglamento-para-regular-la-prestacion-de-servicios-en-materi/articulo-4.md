@@ -1,1 +1,1 @@
-Artículo 4º—Usuarios. Se entiende por usuario a toda entidad pública, persona física o jurídica que solicite al SENARA los servicios a que se refiere este Reglamento.
+Artículo 4º-Usuario. Se entiende por usuario a toda entidad pública o privada, ya sea una persona física o jurídica, que solicite a SENARA los servicios a que se refiere este Reglamento.
