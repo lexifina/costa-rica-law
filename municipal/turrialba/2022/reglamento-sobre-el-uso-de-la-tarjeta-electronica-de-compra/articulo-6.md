@@ -1,0 +1,1 @@
+Artículo 6º-El costo de la tarjeta o membresía lo asumirá la Municipalidad, así como en los casos de renovación o deterioro de la misma. En caso de robo, hurto o extravió por parte del funcionario, es responsabilidad de éste asumir el costo de reposición de la misma y darle el uso adecuado de la tarjeta conforme a lo estipulado en este reglamento.

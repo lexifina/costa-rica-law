@@ -1,0 +1,1 @@
+Artículo 10.-En el caso de que por algún motivo calificado la Municipalidad necesite rentar vehículos o que utilicen vehículos que han sido suministrados por la Administración en calidad de préstamo y requieran la utilización de combustible, deberá mediar una autorización previa de la Alcaldía Municipal, y utilizar una tarjeta especial hecha para los vehículos Alquilados.

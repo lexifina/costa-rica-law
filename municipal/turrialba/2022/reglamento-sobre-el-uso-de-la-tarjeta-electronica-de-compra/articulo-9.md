@@ -1,0 +1,1 @@
+Artículo 9º-La tarjeta será exclusiva para la compra de combustibles a nombre de la Municipalidad, (gasolina, diésel y otros hidrocarburos que en el futuro puedan ser utilizados por nuestra flota vehicular).

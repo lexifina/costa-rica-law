@@ -1,0 +1,1 @@
+Artículo 7º-Será obligación de cada encargado de tarjetas de cada departamento, que los vehículos porten la tarjera correspondiente al vehículo utilizado, así como velar por el buen uso de dicho instrumento.

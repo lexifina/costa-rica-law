@@ -1,0 +1,1 @@
+Artículo 16.-El proceso de pago de comisiones, rebajos por consumo de combustible y control presupuestario se realizarán conforme al presente Reglamento y a las demás disposiciones que la Municipalidad de Turrialba pueda dictar en relación al uso y control de los combustibles.

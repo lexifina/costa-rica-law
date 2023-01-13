@@ -1,0 +1,1 @@
+Artículo 8º-Cada jefe o encargado de Departamento deberá retirar personalmente todas las TECC que se le designe. Luego de realizar el retiro de la tarjeta, deberá administrar dichas tarjetas entre los usuarios o choferes bajo su responsabilidad.

@@ -1,0 +1,1 @@
+Artículo 26.-A efectos de imponer cualquier sanción disciplinaria, deberán aplicarse los derechos y garantías inherentes al principio del debido proceso. Serán de aplicación obligatoria las reglas del procedimiento ordinario administrativo en todo proceso disciplinario que conduzca a la aplicación de sanciones de suspensión o destitución o cualquiera otra de similar gravedad.

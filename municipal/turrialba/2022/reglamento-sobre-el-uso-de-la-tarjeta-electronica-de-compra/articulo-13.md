@@ -1,0 +1,1 @@
+Artículo 13.-El suministro de combustible para activos tales como: Motosierras, moto guadañas, plantas, y toda clase de equipo menor, podrá adquirirse mediante el uso de una tarjeta especial para pichingas, tanquetas u otro recipiente de almacenamiento.
