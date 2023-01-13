@@ -14,3 +14,4 @@ Reforma integral Reglamento para Regular la Prestación de Servicios en Materia 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-03-19 | la propia norma |
+| 2 | 2023-01-13 | Reglamento 1 (2023-01-13) |
