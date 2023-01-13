@@ -1,0 +1,1 @@
+Artículo 7º-Proceso de preparación. El proceso de preparación para la vida independiente corresponderá al Equipo Técnico de Albergues y deberá iniciarse en el plazo mínimo de seis meses previos a que la persona menor de edad cumpla la mayoría de edad;

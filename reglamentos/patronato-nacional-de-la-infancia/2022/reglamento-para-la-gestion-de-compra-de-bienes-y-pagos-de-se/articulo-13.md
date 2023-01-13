@@ -1,0 +1,1 @@
+Artículo 13.-Determinación de bienes y servicios requeridos. El Equipo Técnico de Albergues, determinará y decidirá con base en el análisis del caso, los bienes y servicios requeridos por la persona menor de edad en proceso de vida independiente

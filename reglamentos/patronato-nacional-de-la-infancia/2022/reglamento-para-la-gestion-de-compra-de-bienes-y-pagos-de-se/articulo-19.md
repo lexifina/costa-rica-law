@@ -1,0 +1,1 @@
+Artículo 19.-Valoración conjunta. La persona gestora administrativa deberá valorar con el Equipo Técnico de Albergues el cuadro comparativo de precios y las alternativas de compras tomando en cuenta calidad, precios y garantías.

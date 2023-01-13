@@ -1,0 +1,1 @@
+Artículo 23.-Fecha de entrega de bienes y suministros. Los bienes y suministros deberán ser entregados a la persona menor de edad un día antes del cumplimiento de la mayoría de edad, para lo cual el Equipo Técnico de Albergues de la Dirección Regional y la persona administradora regional deberán estar presentes, para la verificación respectiva.
