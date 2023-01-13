@@ -27,3 +27,4 @@ Políticas para el Funcionamiento del Dominio superior CR
 | 12 | 2018-02-09 | Acuerdo 0 (2018-02-09) |
 | 13 | 2018-09-04 | Acuerdo 0 (2018-09-04) |
 | 14 | 2019-06-20 | Acuerdo 0 (2019-06-20) |
+| 15 | 2023-01-13 | Reglamento 0 (2023-01-13) |
