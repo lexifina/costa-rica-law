@@ -1,1 +1,2 @@
-Artículo 4°: El funcionario encargado (Encargado del Departamento de Tesorería) de la custodia del Fondo de Caja Chica, será responsable por su correcto manejo, de conformidad con lo establecido en el presente Reglamento, sin excepción no se permitirá el cambio de cheques personales.
+Artículo 4º-El funcionario encargado (encargado del departamento de tesorería) de la custodia del fondo de caja chica, será responsable por su correcto manejo, de conformidad con lo establecido en el presente reglamento, sin excepción no se permitirá el cambio de cheques personales. De forma obligatoria el funcionario encargado de la caja chica deberá proceder con el registro del proceso en la plataforma SICOP.
+(Así reformado mediante sesión ordinaria N° 02-2023 del 13 de enero del 2023)
