@@ -1,0 +1,1 @@
+Artículo 99.- Impuesto de patente. Por el ejercicio de la actividad lucrativa de venta ambulante, el patentado cancelará el respectivo impuesto de patente, de conformidad con lo establecido en la Ley de Impuestos Municipales del Cantón de Santa Ana número 7245.

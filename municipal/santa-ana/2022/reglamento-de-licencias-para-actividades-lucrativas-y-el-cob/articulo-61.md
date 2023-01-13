@@ -1,0 +1,1 @@
+Artículo 61.- Acondicionamientos de los locales de juegos. Deberán estar iluminados de manera adecuada, que permita tener una visión clara y completa de lo que acontece en el local, tener amplitud suficiente para permitir libertad de movimiento a las personas participantes, sin ningún tipo de decoración dirigida a adultos o no apta para menores.

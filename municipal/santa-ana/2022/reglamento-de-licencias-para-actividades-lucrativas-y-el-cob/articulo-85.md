@@ -1,0 +1,1 @@
+Artículo 85.- Actividades exentas. Están exentos los espectáculos, las actividades o los torneos deportivos organizados por las sociedades anónimas deportivas, las asociaciones y las federaciones deportivas, debidamente inscritas en el registro de asociaciones deportivas y reconocidas como tales por el Consejo Nacional del Deporte y la Recreación.

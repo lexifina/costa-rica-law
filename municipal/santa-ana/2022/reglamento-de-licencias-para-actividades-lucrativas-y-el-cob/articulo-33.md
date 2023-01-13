@@ -1,0 +1,4 @@
+Artículo 33.- Modificación de Licencia: La actividad que el solicitante desarrollará será únicamente aquella que la Municipalidad le haya autorizado mediante la licencia otorgada.
+Para modificarla, sea para ampliación de actividad, eliminación de actividad, cambio de nombre comercial y/o de razón social, mediante trámite digitalizado en la página web municipal, con firma digital del Banco Central de Costa Rica o firma criptográfica municipal. Se debe completar el formulario digital con la información indicada en el siguiente cuadro y adjuntar los documentos indicados en el siguiente artículo, en formato PDF.
+Nombre completo, físico y/o jurídico | Número de identificación físico y/o jurídico | Ofrecimiento de correo como medio p recibir notificaciones | Correo electrónico | Teléfono | | Dirección | Número de folio real | Firma digital
+Descripción tipo de nueva actividad | Número de CUS | | | | | | |

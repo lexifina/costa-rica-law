@@ -1,0 +1,1 @@
+Artículo 63.- Contenido de violencia. Estas máquinas deberán indicar el contenido de violencia y señalar, expresamente, la población apta para jugarlos, según se establece en la Ley de espectáculos públicos, materiales audiovisuales e impresos número 7440.

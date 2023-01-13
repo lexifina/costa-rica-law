@@ -1,0 +1,1 @@
+Artículo 87.- Multa por no pago. El no pago de este impuesto faculta a la municipalidad para imponer una multa igual a diez veces el monto dejado de pagar. Para determinar este monto, la municipalidad realizará una estimación del impuesto no pagado, la que servirá de base para el cálculo de la multa respectiva.

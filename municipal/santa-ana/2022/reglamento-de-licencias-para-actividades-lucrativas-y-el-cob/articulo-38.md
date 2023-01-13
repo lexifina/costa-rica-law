@@ -1,0 +1,1 @@
+Artículo 38.- Requisitos por declaración jurada: Los requisitos de cualquiera de los trámites, no mencionados en el artículo anterior, pueden ser temporalmente cumplidos, rindiendo una declaración jurada, indicando que se presentarán los requisitos faltantes en el plazo máximo de 180 días naturales.

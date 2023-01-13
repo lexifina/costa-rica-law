@@ -1,0 +1,1 @@
+Artículo 74.- Obligatoriedad. En las actividades de bar, restaurante y centro nocturno con licencia permanente, la actividad de entretenimiento requiere estar contemplada en el PSF para asegurar el confinamiento del ruido, y por ende estará contemplado en la licencia comercial. De lo contrario, no se permitirán las actividades de entretenimiento.

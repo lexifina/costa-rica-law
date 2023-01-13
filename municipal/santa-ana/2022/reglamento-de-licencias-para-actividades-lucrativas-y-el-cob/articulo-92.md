@@ -1,0 +1,1 @@
+Artículo 92.- Tasación de oficio. Con base en las actas de observación realizadas durante el evento, el Proceso de Patentes realizará una tasación de oficio del impuesto e impondrá la multa establecida en el presente capítulo, siempre observando el debido procedimiento administrativo.

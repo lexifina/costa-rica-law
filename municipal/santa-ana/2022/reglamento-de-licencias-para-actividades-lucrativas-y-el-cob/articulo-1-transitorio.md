@@ -1,0 +1,1 @@
+Transitorio. Requisitos modificados con posterioridad. Para aplicar el requisito o condición nuevo o modificado mediante ley, decreto o Plan Regulador; cuya entrada en vigor sea posterior a la publicación del presente reglamento; bastará con que la Municipalidad informe de tal modificación en su página electrónica, redes sociales y lugares visibles del edificio municipal."

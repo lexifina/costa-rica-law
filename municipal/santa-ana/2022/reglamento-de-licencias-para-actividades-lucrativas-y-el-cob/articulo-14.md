@@ -1,0 +1,3 @@
+Artículo 14.- Licencias para actividades ocasionales en propiedad privada: Son otorgadas por el Proceso de Patentes para el ejercicio de actividades de carácter ocasional, tales como competencias, concursos, exhibiciones, festivales,
+carácter ocasional, tales como competencias, concursos, exhibiciones, festivales, turnos, ferias por temporada navideñas y de otras festividades o afines. Se otorgarán hasta por tres meses y podrán ser revocadas cuando la explotación de la actividad autorizada sea variada o cuando la misma implique una violación a la ley o el orden público.
+Transcurrido dicho plazo la actividad deberá cesar. En caso de que la persona interesada desee continuar realizando la actividad, deberá cumplir con los requisitos para una licencia permanente.

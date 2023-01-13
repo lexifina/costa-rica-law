@@ -1,0 +1,1 @@
+Artículo 12.- Licencia no georreferenciada: Licencia permanente que se otorga para ejercer una actividad lucrativa, en la que no se tiene un local para la atención al público o para realizar la actividad, sus actividades se desarrollan por medios electrónicos o similares.

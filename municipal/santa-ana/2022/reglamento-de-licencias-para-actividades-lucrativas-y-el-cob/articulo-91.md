@@ -1,0 +1,1 @@
+Artículo 91.- Fiscalización en sitio. Los inspectores municipales y la Policía Municipal tienen la facultad de ingresar en los establecimientos donde se esté realizando un espectáculo público o de diversión, para fiscalizar posibles irregularidades en la admisión de clientes. De lo cual levantarán actas de observación.

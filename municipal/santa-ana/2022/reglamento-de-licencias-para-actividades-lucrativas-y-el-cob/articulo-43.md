@@ -1,0 +1,8 @@
+Artículo 43.- Sobre la multa: Sanción administrativa de tipo pecuniario impuesta en las siguientes leyes:
+1. El artículo 10 de la Ley de Impuestos Municipales del Cantón de Santa Ana número 7245, establece que el patentado que no presenten la declaración jurada de ventas brutas, serán sancionados con una multa equivalente al diez por ciento (10%) del impuesto de patentes correspondiente al año anterior.
+2. El artículo 78 del Código Municipal, Ley número 7794, establece que el atraso en el pago genera multas que se calcularan según el Código de Normas y Procedimientos Tributarios.
+3. El artículo 90bis del Código Municipal, establece multa equivalente a tres salarios base, al patentado que con licencia suspendida continúe desarrollando la actividad.
+4. El artículo 80bis del Código de Normas y Procedimientos Tributarios, Ley número 4755; establece que los patentados que paguen los tributos determinados por ellos mismos, después del plazo fijado legalmente, deberán liquidar y pagar una multa equivalente al uno por ciento (1%) por cada mes o fracción de mes transcurrido desde el momento en que debió satisfacerse la obligación hasta la fecha del pago efectivo del tributo. Esta sanción se calculará sobre la suma sin pagar a tiempo y, en ningún caso, superará el veinte por ciento (20%) de esta suma.
+5. El artículo 3 de la Ley 6844 que Establece Impuesto a Espectáculos Públicos a favor de Municipalidades; impone las multas que se indican en los artículos 87 y 92 del presente reglamento
+6. La Ley de Juegos número 3, establece las multas que se indican en los artículos 64 y 65 del presente reglamento.
+7. La Ley 7717 de Estacionamientos Públicos, reformada por la Ley 10146, establece obligaciones y multas por el incumplimiento de estas.

@@ -1,0 +1,1 @@
+Artículo 15.- Revocación. La licencia podrá ser revocada por la Municipalidad, cuando por causa sobrevenida, el establecimiento o la actividad, no reúna los requisitos mínimos establecidos por ley para su explotación, o sin autorización municipal haya variado el giro de la actividad, o que esta se esté realizando en evidente violación a la ley y/o al orden público.

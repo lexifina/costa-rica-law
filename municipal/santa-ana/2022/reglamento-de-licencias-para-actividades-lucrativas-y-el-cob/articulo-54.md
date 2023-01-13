@@ -1,0 +1,1 @@
+Artículo 54.- Prohibición por distancia. Está prohibida la instalación y funcionamiento de máquinas de juegos autorizados por ley, en festejos cívicos, patronales o religiosos, ubicados a menos de ochenta metros de centros de enseñanza debidamente autorizados, templos religiosos, y centros de salud (Artículos 8 y 11, Decreto 3510 del 24/01/1974)

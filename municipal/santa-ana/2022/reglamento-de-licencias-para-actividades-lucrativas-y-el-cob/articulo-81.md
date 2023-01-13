@@ -1,0 +1,1 @@
+Artículo 81.- Hecho generador. Constituye hecho generador, la venta de entradas para los espectáculos públicos o actividades de entretenimiento, así como los que se efectúen con motivo de festejos cívicos y patronales, veladas, ferias, turnos o novilladas.

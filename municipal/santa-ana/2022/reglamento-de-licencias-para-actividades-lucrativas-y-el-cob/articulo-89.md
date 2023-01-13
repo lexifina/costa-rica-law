@@ -1,0 +1,1 @@
+Artículo 89.- Forma de pago. El 100% del impuesto sobre lo declarado, será cancelado por adelantado. Y al menos cinco días hábiles después del evento presentaran otra declaración jurada indicando la cantidad de entradas efectivamente vendidas y su valor unitario. Debiendo cancelar el exceso que resultare.

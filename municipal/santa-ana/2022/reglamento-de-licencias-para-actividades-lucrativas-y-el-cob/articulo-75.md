@@ -1,0 +1,1 @@
+Artículo 75.- Licencia ocasional. En actividades con licencia permanente distintas a las del artículo anterior, las actividades de entretenimiento ocasional requieren autorización municipal. La cual debe ser solicitada con diez días de anticipación al evento.

@@ -1,0 +1,1 @@
+Artículo 65.-Horario. Los locales que mantengan juegos electrónicos y virtuales tendrán un horario desde las 10:00 horas hasta las 22:00 horas. A quienes incumplan las disposiciones de este artículo se les multará con tres salarios base.

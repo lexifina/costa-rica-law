@@ -1,0 +1,1 @@
+Artículo 107.- Multa por no presentación. La no presentación de la declaración municipal será sancionada con multa equivalente al diez por ciento (10%) del impuesto de patentes correspondiente al año anterior.

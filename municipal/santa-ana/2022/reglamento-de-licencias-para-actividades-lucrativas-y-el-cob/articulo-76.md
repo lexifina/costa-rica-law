@@ -1,0 +1,1 @@
+Artículo 76.- Contaminación por ruido. La actividad con amplificación de sonido, deberá respetar en todo momento la normativa que establece el Decreto 28718-S Reglamento para el Control de Contaminación por Ruido, referente al horario y los niveles permitidos de sonido.

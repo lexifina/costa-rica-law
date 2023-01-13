@@ -1,0 +1,1 @@
+Artículo 3.- Obligatoriedad de obtener licencia. Para ejercer cualquier actividad lucrativa se debe obtener la licencia municipal respectiva al tipo de actividad, la cual se obtiene cumpliendo con los requisitos establecidos en el presente reglamento y mediante el pago por adelantado del impuesto de patente, correspondiente al primer trimestre de actividad.

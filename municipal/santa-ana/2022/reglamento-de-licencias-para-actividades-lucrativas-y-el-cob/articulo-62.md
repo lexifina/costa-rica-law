@@ -1,0 +1,2 @@
+Artículo 62.- Potestades municipales. El Proceso de Patentes, el de Fiscalización y la Policía Municipal, tienen la potestad de ingresar a estos locales y de permanecer en ellos, así como de solicitar la documentación de funcionamiento
+y corroborar el apego del establecimiento a la normativa vigente; además, podrá solicitarles información y el documento de identidad a los empleados, propietarios y jugadores.

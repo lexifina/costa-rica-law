@@ -1,0 +1,1 @@
+Artículo 64.- Menores de doce años. Es prohibida la permanencia de personas menores de doce años en estos locales, sin el acompañamiento de un adulto responsable. La presencia de personas menores de doce años sin el acompañamiento de un adulto responsable, genera multa equivalente de dos salarios base.

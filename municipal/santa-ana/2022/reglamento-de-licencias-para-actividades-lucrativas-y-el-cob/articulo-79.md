@@ -1,0 +1,1 @@
+Artículo 79.- Disco móvil. Las personas físicas o jurídicas que se dediquen brindar el servicio de karaoke, disco móvil y perifoneo, deberán contar con licencia municipal, de acuerdo con el artículo 88 del Código Municipal.

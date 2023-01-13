@@ -1,0 +1,1 @@
+Artículo 86.- Destinos exentos. Están exentos los espectáculos y actividades de entretenimiento cuyo producto íntegro se destine a fines escolares, de beneficencia, religiosos o sociales, previa aprobación por acuerdo del Concejo Municipal.

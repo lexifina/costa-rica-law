@@ -1,0 +1,1 @@
+Artículo 9.- Condición de estar al día. La condición de estar al día consiste en tener el saldo en cero o tener un arreglo de pago al que se le haya realizado el pago de tres cuotas en la forma y plazo pactados; o bien el arreglo de pago recientemente suscrito con el pago de una prima del 50% de la deuda.
