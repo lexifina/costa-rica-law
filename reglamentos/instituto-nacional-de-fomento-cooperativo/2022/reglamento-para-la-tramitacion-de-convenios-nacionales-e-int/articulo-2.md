@@ -1,0 +1,3 @@
+Artículo 2: Toda actividad de naturaleza consensual mediante la cual el Infocoop participe, deberá ser formalizada mediante un acuerdo o convenio, siendo que cuando intervengan sujetos privados se debe procurar que las acciones de colaboración a convenir no sean para favorecer exclusivamente a esa parte en forma directa o indirecta.
+En todo momento el actuar de los funcionarios públicos que participen en la planificación, formalización y ejecución del respectivo convenio, deberá hacerse conforme al deber de probidad.
+En ninguna circunstancia los convenios de colaboración podrán utilizarse como un mecanismo para la contratación de terceros sin atender los procedimientos ordinarios previstos en la Ley de Contratación Administrativa y este Reglamento.

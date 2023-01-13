@@ -1,0 +1,4 @@
+Artículo 15. Deberes: Serán obligaciones de Gerencia de Desarrollo Estratégico las siguientes:
+·Conocer y revisar los convenios marco, convenios específicos y adenda que remita la Dirección Ejecutiva con el fin de verificar si las actividades que incluyen están enmarcadas en los planes institucionales de mediano y largo plazo definidos por el Infocoop.
+En el caso que contemplen actividades que no estén incorporadas en el Plan Anual Operativo, o que no se ajusten al Plan Estratégico Institucional, debe emitir un dictamen de pertinencia y en caso de ser pertinentes, recomendar que se incorporen las actividades correspondientes en los planes, para lo cual contará con cinco días hábiles a partir de la solicitud de revisión, en los casos que corresponda.
+· Llevar un registro de convenios con la información recibida por parte de la Dirección Ejecutiva.

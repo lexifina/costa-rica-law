@@ -1,0 +1,1 @@
+Artículo 13. Transparencia. Existirá transparencia en la formulación, suscripción y ejecución de los convenios de cooperación. Infocoop permitirá el acceso público a cualquier aspecto vinculado con el convenio y rendirá cuentas para que cualquier persona interesada, pueda analizar la información y ponderar si se ha cumplido con la finalidad convenida

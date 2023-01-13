@@ -1,0 +1,1 @@
+Artículo 20. Propiedad Intelectual: En atención a los programas/proyectos específicos que se desarrollarán es necesario identificar conocimiento, producción industrial o material que sea protegible mediante la normativa vigente y establecer con claridad los derechos de las partes y las regulaciones a las que deben atenerse.
