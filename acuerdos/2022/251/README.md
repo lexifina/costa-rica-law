@@ -14,3 +14,4 @@ Decreta veda para la extracción de especies de piangua "Anadara tuberculosa" y 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-01-15 | la propia norma |
+| 2 | 2023-01-15 | Acuerdo 271 (2022-12-06) |
