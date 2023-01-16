@@ -1,0 +1,9 @@
+ARTÍCULO 6- Funciones de la Comisión. Serán funciones de la Comisión las siguientes:
+a) Formular planes, acciones, estrategias, proyectos e iniciativas relacionadas con la atracción de inversiones, promoción y fomento de exportaciones de servicios de la industria del turismo de la salud.
+b) Recomendar y diseñar mecanismos de cooperación entre las entidades y organizaciones del sector público y privado, sobre temas relacionados con esta actividad, con el propósito de contribuir a resolver los problemas económicos, financieros y jurídicos y prevenir las situaciones que puedan afectar la capacidad del país de exportar servicios de turismo de salud.
+c) Incentivar y apoyar el intercambio de conocimientos y experiencias con entidades públicas y organizaciones privadas, nacionales y extranjeras, sobre servicios de salud.
+d) Promover una estrategia de comunicación y mercadeo nacional e internacional de los servicios de turismo de salud.
+e) Fomentar condiciones óptimas para la creación de alianzas público-privadas y convenios con organizaciones y entidades del sector público y privado, nacionales y extranjeras, universidades públicas y privadas, que beneficien e incentiven el desarrollo del turismo de salud en Costa Rica.
+f) Coordinar entre las organizaciones e instituciones que integran la Comisión, dispuestas en el artículo 5 de esta ley, las acciones requeridas para el desempeño y funcionamiento administrativo y organizacional.
+g) Organizar foros, congresos, ferias, eventos y cualquier otra actividad relacionada con el turismo de salud en el país.
+Asimismo, para el cumplimiento de las funciones de la Comisión, se autoriza a las instituciones y organizaciones competentes vinculadas, facilitar y detallar los requerimientos normativos o reglamentarios necesarios para la consecución de estos, con el fin de armonizar la aplicación de esta ley.
