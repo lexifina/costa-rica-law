@@ -1,0 +1,1 @@
+Artículo 11.-Seguimiento al Plan de Trabajo. El Equipo Técnico de Albergues dará seguimiento mensual al Plan de Trabajo y convocará a reuniones cada 20 días hábiles a la jefatura de Oficina Local, a la persona profesional psicosocial responsable del caso y a la persona representante legal.

@@ -1,0 +1,1 @@
+Artículo 20.-Gestiones de compra. Coordinar con el Equipo Técnico de Albergues la fecha de compra de los bienes y suministros, para efectos de cancelación de las compras a través del fondo de trabajo.

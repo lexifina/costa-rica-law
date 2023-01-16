@@ -1,0 +1,1 @@
+Artículo 26.-Traslado al inmueble en alquiler. Las personas menores de edad solo podrán trasladarse a habitar el inmueble alquilado el mismo día que hayan cumplido la mayoría de edad, pues previo a ese momento siguen bajo la protección institucional del PANI.

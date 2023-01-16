@@ -1,0 +1,1 @@
+Artículo 24.-Entrega de documentos de liquidación de las compras. Entregar copia de la liquidación del fondo, transferencias, facturas y garantías a la persona gestora técnica del Equipo Técnico de Albergues a fin de que estos documentos sean debidamente custodiados en el expediente de la persona menor de edad de la Dirección Regional.

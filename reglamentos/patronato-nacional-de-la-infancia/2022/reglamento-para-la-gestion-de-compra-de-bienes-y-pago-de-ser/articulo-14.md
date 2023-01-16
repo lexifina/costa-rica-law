@@ -1,0 +1,1 @@
+Artículo 14.-Bienes y servicios. Serán considerados únicamente los bienes y servicios de instalación para el proceso de vida independiente de la persona menor de edad definidos en el Manual de este Reglamento, y se determinará la compra de acuerdo a las necesidades detectadas por el Equipo Técnico de Albergues y Aldea.

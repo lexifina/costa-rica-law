@@ -1,0 +1,2 @@
+Artículo 9º-Informe diagnóstico de la persona menor de edad. Corresponderá al Equipo Técnico de Albergues elaborar un informe diagnóstico de la persona menor de edad en el plazo máximo de 20 días hábiles posterior a la discusión del caso.
+En el caso de la Oficina Local deberá elaborar un informe actualizado con los resultados obtenidos sobre valoración (y de ser necesario revaloración) y agotamiento en la búsqueda de recursos de acogimiento familiar o institucional.

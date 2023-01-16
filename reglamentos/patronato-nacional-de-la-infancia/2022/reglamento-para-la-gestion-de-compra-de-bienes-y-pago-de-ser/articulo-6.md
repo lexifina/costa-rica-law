@@ -1,0 +1,3 @@
+CAPÍTULO II
+Proceso Técnico
+Artículo 6º-Base de datos. Con base en la información contenida en la matriz de población semanal de cada Dirección Regional de la población protegida en los albergues institucionales, el Equipo Técnico de Albergues deberá reportar a la persona a cargo de la Dirección Regional y a la persona profesional en administración de la región, el dato de todas las personas menores de edad que se encuentren a un año de cumplir la mayoría de edad y que cumplan o puedan cumplir con los requerimientos del artículo 2 del presente Reglamento, con el fin de que puedan realizar la planificación presupuestaria correspondiente para atender las disposiciones de este reglamento.

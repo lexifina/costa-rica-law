@@ -1,0 +1,1 @@
+Artículo 5º-Responsabilidad indelegable. El delegar la gestión técnica y la administrativa no exime a las personas directoras regionales de la responsabilidad sobre estos procesos, pues la responsabilidad es indelegable.

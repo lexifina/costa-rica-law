@@ -1,0 +1,1 @@
+Artículo 4º-Delegación Técnica y Administrativa. La persona responsable del proceso de vida independiente podrá delegar de forma escrita, mediante oficio, la gestión técnica en una de las personas miembros del equipo de técnico de albergues, y la gestión administrativa en la persona profesional en administración de la dirección regional.
