@@ -15,3 +15,4 @@ Reglamento del Cuerpo de la Policía Municipal Moravia
 | --- | --- | --- |
 | 1 | 2014-03-07 | la propia norma |
 | 2 | 2016-06-27 | Reglamento municipal 9 (2016-06-27) |
+| 3 | 2023-01-16 | Reglamento municipal 142 (2023-01-16) |
