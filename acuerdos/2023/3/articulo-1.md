@@ -1,0 +1,14 @@
+AVISO Nº 3-2023
+Asunto: Procedimiento para la destrucción o donación de objetos sin identificación de causa judicial.
+A TODA LA POBACIÓN JUDICIAL, ABOGADOS,
+ABOGADOS Y PÚBLICO EN GENERAL
+SE LES HACE SABER QUE:
+El Consejo Superior del Poder Judicial en sesión N° 108- 2022 celebrada el 8 de diciembre de 2022, artículo XIII, dispuso modificar el acuerdo tomado sesión Nº 14-2018 celebrada el 20 de febrero de 2018, artículo XVII, en el sentido que, el paso Nº 3 del “Procedimiento para la destrucción o donación de objetos sin identificación de causa judicial”, debe leerse de la siguiente forma:
+PASO | RESPONSABLE | DETALLE
+1 | Autoridad Judicial (Encargado de la custodia del objeto) | Producto del inventario que deben realizar, se identifi los objetos que no se encuentran asociados a ninguna causa judicial, con el propósito de trasladar al Departamento de Proveeduría el listado de ellos para su respectiva valoración. El listado debe contener lo siguiente: • Tipo de custodia • Descripción detallada del objeto u objetos • Lugar físico de la custodia, sea, Deposito de Custodias o Banco • Número de sobre • Fecha de ingreso • Estado de conservación • Vencimiento o prescripción
+PASO | RESPONSABLE | DETALLE
+2 | Departamento de Proveeduría | Según el tipo de custodia, el Departamento de Proveeduría contratará a un perito especializado para determinar el estado de conservación de los objetos, de forma tal, que el listado remitido por la autoridad judicial sea reclasificado en objetos a destruir y objetos a donar. Una vez valorados, remitirá a la Dirección Ejecutiva el detalle de los objetos a destruir y donar, adjuntando la documentación de respaldo en cuanto a peritaje realizado.
+3 | Dirección Ejecutiva | Verifica el cumplimiento adecuado del procedimiento de elección de los objetos a destruir y donar, conforme la documentación entregada por el Departamento de Proveeduría; para luego remitir a la Imprenta Nacional, para su respectiva publicación en el Boletín Judicial, el aviso con el listado de objetos a destruir o donar.
+4 | Departamento de Proveeduría | Brindará el plazo de veinte días hábiles, para que las partes interesadas de los objetos se apersonen a la Departamento de Proveeduría Judicial a realizar el reclamo correspondiente. De no existir reclamo alguno en el plazo concedido, el Departamento de Proveeduría, mediante resolución, procederá con la destrucción o donación de los objetos publicados, aplicando lo indicado en la Ley de Distribución de Bienes Confiscados o Caídos en Comiso N° 6106.
+De conformidad con la circular N° 67-09 emitida por la Secretaría de la Corte el 22 de junio de 2009, se le comunica que en virtud del principio de gratuidad que rige esta materia, la publicación está exenta de todo pago de derechos. Publíquese una sola vez en el Boletín Judicial.
+San José, 16 de enero de 2023
