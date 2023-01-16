@@ -14,3 +14,4 @@ Modificación de la circular N° 150-2004 sobre “Debida comunicación al Organ
 | --- | --- | --- |
 | 1 | 2013-09-11 | la propia norma |
 | 2 | 2015-03-09 | Circular 44 (2015-03-09) |
+| 3 | 2023-01-16 | Circular 8 (2023-01-16) |
