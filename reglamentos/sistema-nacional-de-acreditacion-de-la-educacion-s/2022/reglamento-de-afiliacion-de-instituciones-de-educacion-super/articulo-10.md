@@ -1,0 +1,1 @@
+Artículo 10.-Conocimiento de trámite para pérdida y retiro de afiliación. El Consejo Nacional de Acreditación conocerá; ya sea de oficio, a solicitud de la misma institución afiliada, de la Dirección Ejecutiva o por denuncia debidamente suscrita por cualquier interesado, los asuntos de pérdida de afiliación por justa causa de cualquier institución afiliada al SINAES.

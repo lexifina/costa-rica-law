@@ -1,0 +1,2 @@
+Artículo 4º-De la solicitud. La solicitud se dará por recibida cuando la información esté completa y se remitirá para conocimiento al Consejo Nacional de Acreditación. En caso de que la documentación resulte insuficiente, la Dirección Ejecutiva o el Consejo Nacional de Acreditación podrá solicitar a la institución la ampliación de los términos de su solicitud o de la documentación presentada.
+Una vez completado el expediente, el Consejo adoptará la resolución correspondiente dentro de los treinta días hábiles siguientes.

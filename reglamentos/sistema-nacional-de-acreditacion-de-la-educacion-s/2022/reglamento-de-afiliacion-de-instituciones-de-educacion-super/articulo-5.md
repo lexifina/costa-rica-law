@@ -1,0 +1,3 @@
+Artículo 5º-De la categoría de miembros. Las universidades y parauniversidades miembros del SINAES se dividirán en dos categorías:
+a. Miembros asociados: universidades y parauniversidades que han cumplido los requisitos de afiliación y que han sido admitidas temporalmente por el SINAES bajo la condición de cumplir los compromisos que contempla el presente reglamento.
+b. Miembros plenos: universidades y parauniversidades que han cumplido los requisitos de afiliación y mantienen vigente la acreditación oficial mínima de 3 carreras o programas de posgrado, o la totalidad de su oferta académica cuando la institución imparta menos de tres carreras o programas.

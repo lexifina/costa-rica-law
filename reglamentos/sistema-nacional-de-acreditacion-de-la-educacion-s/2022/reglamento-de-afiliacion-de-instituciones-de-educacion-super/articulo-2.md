@@ -1,0 +1,5 @@
+Artículo 2º-Afiliación al SINAES. El Sistema Nacional de Acreditación de la Educación Superior (SINAES) está integrado por las universidades e instituciones parauniversitarias, estatales y privadas, que mediante acto formal, libre y voluntario se comprometen a cumplir los principios de la ética, calidad y excelencia académica que rigen al SINAES y cuya incorporación sea formalmente aprobada por el Consejo Nacional de Acreditación.
+a. La afiliación al SINAES conlleva el deber de colaborar en el sostenimiento y desarrollo del Sistema y el de someterse a procesos de autoevaluación, evaluación externa y acreditación oficial bajo los términos y condiciones que el SINAES defina como norma académica nacional de calidad.
+b. Para afiliarse al SINAES la institución debe contar con al menos cinco años de funcionamiento.
+c. Para presentar a acreditación oficial una carrera universitaria o parauniversitaria o programa de postgrado la institución debe estar previamente afiliada al SINAES.
+d. Las instituciones de educación superior cancelarán un monto por concepto de canon de afiliación el cual será fijado por el Consejo Nacional de Acreditación.

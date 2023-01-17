@@ -1,0 +1,2 @@
+Artículo 11.-Trámite de pérdida y retiro de afiliación. Una vez conocido por el Consejo el asunto de pérdida de afiliación, para los casos de denuncia o proceso de oficio, se aplicará el Procedimiento de Trámite de Denuncias definido por el SINAES.
+En el caso de retiro voluntario antes de registrarlo se procederá a solicitar audiencia con las autoridades de la institución que presenta la solicitud, a fin de conocer las causas de su petición de retiro.
