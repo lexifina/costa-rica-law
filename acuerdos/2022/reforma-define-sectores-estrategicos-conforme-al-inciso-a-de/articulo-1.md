@@ -1,0 +1,17 @@
+PROMOTORA DE COMERCIO EXTERIOR
+COMISIÓN ESPECIAL PARA LA DEFINICIÓN
+DE SECTORES ESTRATÉGICOS
+La Comisión Especial para la Definición de Sectores Estratégicos, en sesión extraordinaria celebrada a las diez horas del día veintidós de noviembre de dos mil veintidós, adoptó el siguiente acuerdo:
+Considerando:
+I.-Que, mediante ley 8794 del 12 de enero de 2010, se reformó la Ley de Régimen de Zonas Francas, Ley N° 7210 del 23 de noviembre de 1990, y se incluyó una nueva categoría para clasificar a las empresas que se acojan a dicho régimen, en el inciso f) del artículo 17.
+II.-Que en tal categoría se ubican las industrias procesadoras que producen, procesan o ensamblan bienes, independientemente de que exporten o no, que reúnan los requisitos establecidos en el artículo 21 bis de dicha ley.
+III.-Que, dentro de los requisitos que enumera el artículo 21 bis inciso a), para que una empresa pueda clasificarse en la indicada categoría dentro de la Gran Área Metropolitana el proyecto o actividad a desarrollar se debe ejecutar dentro de un sector estratégico para el desarrollo del país.
+IV.-Que la Comisión Especial para la Definición de Sectores Estratégicos es el órgano encargado de definir los sectores estratégicos, de conformidad con lo indicado en el inciso a) del artículo 21 bis referido.
+V.-Que dicha Comisión, en sesión extraordinaria celebrada a las once horas del día doce de noviembre de dos mil diez, definió sectores estratégicos conforme al inciso a) del artículo 21 bis de la Ley de Régimen de Zonas Francas y sus reformas.
+VI.-Que, de conformidad con el artículo 2 del Reglamento de la Comisión Especial para la definición de Sectores Estratégicos, Decreto Ejecutivo N° 41864-COMEX-H-MIDEPLAN del 27 de junio de 2019, salvo justificación razonada aprobada por la Comisión, los sectores que sean definidos como estratégicos tienen una vigencia de 12 años, prorrogables previa valoración de la Comisión, computados a partir de su publicación en el Diario Oficial La Gaceta.
+VII.-Que el acuerdo que definió los sectores estratégicos indicado en el considerando V, fue debidamente publicado en el Diario Oficial La Gaceta No.239 del 25 de noviembre de 2010.
+VIII.-Que los miembros de la Comisión Especial para la Definición de Sectores Estratégicos, se reunieron para valorar la procedencia de prorrogar los sectores estratégicos vigentes en la actualidad, llegando a concluir que resulta necesaria una valoración profunda de los datos recopilados y procesados por la Promotora del Comercio Exterior de Costa Rica y el Ministerio de Comercio Exterior y contar con un estudio detallado y prospectivo que permita determinar los sectores estratégicos que estarán vigentes por los siguientes 12 años, por lo que, en observancia de los principios de legalidad, seguridad jurídica y transparencia y en el tanto se realiza dicho estudio, se acordó prorrogar el listado actual de sectores estratégicos por un plazo máximo de tres meses.
+IX.-Con fundamento en las consideraciones indicadas, la Comisión Especial para la Definición de Sectores Estratégicos
+ACUERDA:
+Prorrogar por tres meses la vigencia de los sectores estratégicos definidos por la Comisión Especial para la Definición de Sectores Estratégicos, mediante acuerdo de la sesión extraordinaria celebrada a las once horas del día doce de noviembre de dos mil diez, publicado en La Gaceta N° 239 del 25 de noviembre de 2010, para los efectos de lo dispuesto por el inciso a) del artículo 21 bis de la Ley de Régimen de Zonas Francas y sus reformas.
+Acuerdo firme.
