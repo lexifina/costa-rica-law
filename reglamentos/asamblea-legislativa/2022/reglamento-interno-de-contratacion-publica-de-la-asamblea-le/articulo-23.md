@@ -1,0 +1,1 @@
+Artículo 23.-Los plazos máximos establecidos en los tres artículos anteriores pueden ser ampliados, excepcionalmente, previa valoración y autorización de la Dirección del Departamento de Proveeduría, de acuerdo con la complejidad de cada contratación.

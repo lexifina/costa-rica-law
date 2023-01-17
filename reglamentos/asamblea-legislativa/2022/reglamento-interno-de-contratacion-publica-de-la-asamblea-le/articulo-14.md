@@ -1,0 +1,5 @@
+CAPÍTULO VII
+Finiquito de contratos
+Artículo 14.-Finalizada una contratación de obra, el fiscalizador del contrato deberá enviar a la Proveeduría los informes finales, las liquidaciones y el finiquito correspondiente,
+para formar parte del expediente en el sistema digital unificado, en acatamiento a lo dispuesto en el artículo 111 de la Ley General de Contratación Pública.
+Tratándose de contratos de servicios o suministros, el finiquito es potestativo.

@@ -1,0 +1,1 @@
+Artículo 8º-El programa de adquisiciones deberá contar con los recursos presupuestarios necesarios, con excepción de lo dispuesto en la legislación de contratación pública en cuanto al inicio y la adjudicación de futuros, según el artículo 38 de la Ley General de Contratación Pública.

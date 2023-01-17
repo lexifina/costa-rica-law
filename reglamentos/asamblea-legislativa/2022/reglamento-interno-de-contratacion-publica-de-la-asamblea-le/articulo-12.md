@@ -1,0 +1,3 @@
+CAPÍTULO V
+Pago por medio de caja chica
+Artículo 12.-Para la adquisición de bienes y servicios de menor cuantía, deberán cumplirse los requisitos establecidos en el Reglamento para custodia y administración de la caja chica de la Asamblea Legislativa, los lineamientos de la contratación pública, las directrices de la Tesorería Nacional y del Presupuesto Nacional, así como el Clasificador por objeto del gasto del Sector Público, para compras por el Fondo fijo-caja chica. Conforme al artículo 3 de este Reglamento de Contratación Pública, se utilizará para enfrentar gastos menores indispensables, urgentes e impostergables, siempre y cuando no excedan el diez por ciento (10%) del monto fijado para la licitación reducida.

@@ -1,0 +1,2 @@
+Artículo 10.-Cuando surja una necesidad imprevista, el programa de adquisiciones podrá ser modificado, siguiendo el mismo procedimiento descrito en el artículo anterior. Para modificarlo deberán adjuntarse las justificaciones correspondientes.
+La Proveeduría no tramitará las contrataciones que no estén amparadas al programa de adquisiciones. Se excluyen los casos de emergencia o excepción que autorice la Administración Superior.

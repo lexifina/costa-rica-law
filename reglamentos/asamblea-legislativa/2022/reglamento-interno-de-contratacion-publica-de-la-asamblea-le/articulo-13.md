@@ -1,0 +1,14 @@
+CAPÍTULO VI
+Fiscalizadores de contratos
+Artículo 13.-El Departamento de Proveeduría designará, en coordinación con el jerarca de la unidad técnica respectiva, a los fiscalizadores de los contratos que resulten idóneos, según el suministro, obra o servicio por contratar. En general, al fiscalizador le corresponde velar y exigir el cumplimiento de los términos contractuales; además, garantizar que el contratista corrija cualquier desajuste respecto del cumplimiento exacto de las obligaciones pactadas.
+En el respectivo expediente electrónico deberá acreditarse la designación y comunicación al fiscalizador; la designación deberá quedar consignada en el pliego de condiciones y la comunicación antes de la ejecución contractual, así mismo cualquier modificación que surja ante el cambio del fiscalizador. Lo anterior, con el fin de que estos coordinen y fiscalicen la ejecución de los contratos que se promueven en sus respectivas áreas, conforme a las siguientes funciones específicas:
+1. Atender cualquier consulta técnica que surja durante el proceso de una contratación a su cargo. También deberá intervenir en el proceso de análisis, valoración de ofertas y recomendación de la decisión final.
+2. Atender toda gestión que formule el contratista, respondiendo en un máximo de 10 días hábiles, cualquier requerimiento que sea necesario para la continuidad del contrato.
+3. Velar por la correcta ejecución de los contratos que se les asignen, con estricto apego al pliego de condiciones y al contrato que se haya suscrito para el efecto. Serán responsables de la recepción y aceptación de los bienes y servicios, así como de gestionar los trámites de pagos que la institución realice, según lo pactado.
+4. Cuando lo amerite, realizar informes de avance de la ejecución de los contratos.
+5. Mantenerse vigilante de que la garantía de cumplimiento no venza antes del plazo acordado contractualmente.
+6. Elaborar y remitir a la Proveeduría la respuesta de todos los recursos que les competa conocer; advertir a la Proveeduría sobre posibles incumplimientos contractuales para que proceda a la ejecución de las multas, las cláusulas penales, las garantías, las prórrogas, las sanciones a los contratistas y la rescisión o resolución contractual, según corresponda.
+7. Preparar el informe final y solicitar el finiquito cuando proceda y remitirlo al Departamento de Proveeduría.
+8. Evaluar la conveniencia de solicitar las prórrogas o las adendas a los contratos administrativos, e informar de ello a la Proveeduría.
+9. Suscribir el acta de recepción o boleta de inspección, si lo requiere, la cual deberá detallar el cumplimiento de los parámetros exigidos en el pliego de condiciones, dando fe de que los bienes, obras o servicios son acordes con el objeto adjudicado.
+10. Remitir al Departamento de Proveeduría el acta de recepción y la boleta de inspección, con el fin de incluirla en el respectivo expediente electrónico.
