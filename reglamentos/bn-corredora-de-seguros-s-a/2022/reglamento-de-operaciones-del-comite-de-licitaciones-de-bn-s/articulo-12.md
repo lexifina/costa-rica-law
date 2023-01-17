@@ -1,0 +1,1 @@
+Artículo 12.-Refrendo de las contrataciones. Para efectos de lo dispuesto "Reglamento sobre el Refrendo de las contrataciones de la Administración Pública", se designa a la Dirección Jurídica del Banco Nacional, como la unidad interna encargada de dar el refrendo o la aprobación interna a las contrataciones administrativas, cuando éstas lo requieran.

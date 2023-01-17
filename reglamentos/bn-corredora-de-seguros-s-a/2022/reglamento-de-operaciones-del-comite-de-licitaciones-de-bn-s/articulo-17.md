@@ -1,0 +1,1 @@
+Artículo 17.-Procedimiento. Para garantizar el cumplimiento de las funciones de los miembros. El comité funcionara en apego a lo estipulado en el procedimiento PR01-AD01 Procedimiento de Adquisición de bienes y servicios.
