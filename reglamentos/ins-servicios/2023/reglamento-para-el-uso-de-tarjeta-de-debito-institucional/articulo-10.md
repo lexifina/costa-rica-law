@@ -1,0 +1,1 @@
+Artículo 10.-Monto máximo anual de la TDI. El monto máximo será el acumulado de los pagos realizados con la TDI del año anterior. Cualquier incremento anual de la TDI superior a 5% debe ser aprobado por la Junta Directiva.

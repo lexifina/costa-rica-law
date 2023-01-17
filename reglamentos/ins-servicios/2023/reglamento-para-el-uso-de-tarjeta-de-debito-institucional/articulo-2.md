@@ -1,0 +1,1 @@
+Artículo 2º-Ámbito de aplicación. Las disposiciones del presente Reglamento serán aplicables al personal de INS Servicios S. A. y únicamente para aquellos pagos, mediante los cuales no exista otra forma ágil y oportuna para proveerse el servicio o bien, según se regula en este reglamento.

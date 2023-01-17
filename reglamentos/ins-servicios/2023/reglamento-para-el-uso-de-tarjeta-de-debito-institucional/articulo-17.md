@@ -1,0 +1,1 @@
+Artículo 17.-Es responsabilidad del superior inmediato y el gerente del departamento que los colaboradores conozcan y cumplan las disposiciones de este reglamento. En caso de no acatamiento se deberán establecer las medidas disciplinarias o administrativas que correspondan.
