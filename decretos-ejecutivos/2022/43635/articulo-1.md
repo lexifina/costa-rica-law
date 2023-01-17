@@ -11,9 +11,11 @@ INTEGRACIÓN DEL CONSEJO
 DE TRANSPORTE PÚBLICO
 Artículo 1º-Se conforma la integración del Consejo de Transporte Público de la siguiente manera:
 a) Luis Amador Jiménez, portador de la cédula de identidad N° 1-0932-0986, en condición de Ministro de Obras Públicas y Transportes, quien presidirá la Junta Directiva.
-b) Laura Ulloa Albertazzi, portadora de la cédula de identidad N° 1-0877-0390, en condición de Viceministra de Transportes, como persona con experiencia y conocimiento en las materias relacionadas con el transporte público.
+b) Carlos Ávila Arquín, portador de la cédula de identidad N° 1-1034-0515, Abogado del Despacho del Ministro de Obras Públicas y Transportes, como persona con experiencia y conocimiento en las materias relacionadas con el transporte público.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 43873 del 17 de enero del 2023. De acuerdo con el artículo 3° del decreto ejecutivo antes mencionado, dicha modificación empieza a regir a partir de la aceptación del cargo)
 c) Franz de los Ángeles Tattenbach Capra, portador de la cédula de identidad N° 1-06220325, en su condición de Ministro de Ambiente y Energía, quien en caso de ausencia designa como representante y suplente al señor Ronny Rodríguez Chaves, portador de la cédula de identidad N° 5-0259-0084.
 d) Esteban José Ramírez Bioley, portador de la cédula de identidad N° 1-0767- 0916, representante del Sector Empresarial de Transporte Remunerado de Personas en Vehículos Automotores, Buses, Microbuses o Busetas.
 e) Gilbert Ureña Fonseca, portador de la cédula de identidad N° 3-0208-0649, representante del Sector de Transporte Remunerado de Personas en Vehículos Automotores en la Modalidad de Taxi.
-f) José Miguel Jiménez Araya, portador de la cédula de identidad N° 2-0575-0334, representante de la Unión Nacional de Gobiernos Locales.
+f) Dennia Yaslyn Morales Grajal, portador de la cédula de identidad N° 7-0179-0177, como representante de la Unión Nacional de Gobiernos Locales.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 43873 del 17 de enero del 2023. De acuerdo con el artículo 3° del decreto ejecutivo antes mencionado, dicha modificación empieza a regir a partir de la aceptación del cargo)
 g) Erick Gerardo Ulate Quesada, portador de la cédula de identidad N° 1-0902- 0837, representante de los Usuarios.

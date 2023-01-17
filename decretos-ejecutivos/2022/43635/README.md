@@ -14,3 +14,4 @@ Integración del Consejo de Transporte Público
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-07-28 | la propia norma |
+| 2 | 2023-01-17 | Decreto Ejecutivo 43873 (2023-01-17) |
