@@ -1,0 +1,2 @@
+Artículo 42.-La resolución inicial de apertura del procedimiento disciplinario deberá notificársele personalmente a la persona denunciada.
+Cuando resulte imposible notificar la resolución de apertura del procedimiento a la persona denunciada, por ignorarse o estar equivocado su domicilio, o porque la persona no se encuentra en la dirección registrada en el Colegio, se procederá conforme lo regulado en la Ley de Notificaciones, Citaciones y Otras Comunicaciones Judiciales.

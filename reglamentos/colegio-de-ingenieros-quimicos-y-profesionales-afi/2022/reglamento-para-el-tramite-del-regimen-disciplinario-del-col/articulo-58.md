@@ -1,0 +1,3 @@
+Artículo 58.- Durante la recepción de la prueba testimonial y la prueba pericial, las partes podrán formular preguntas, que deberán ser aprobadas de previo a su contestación por parte del Tribunal de Ética Profesional.
+Mientras los testigos o peritos estén declarando, las partes no pueden intervenir ni sugerirle la respuesta.
+Si el Tribunal de Ética Profesional lo considera necesario, podrá solicitar al testigo o al perito que se retire del recinto por un determinado periodo de tiempo para debatir algunos aspectos con las partes y permitirá su reingreso una vez finalizado la discusión. Podrá realizar esto siempre que lo estime pertinente.

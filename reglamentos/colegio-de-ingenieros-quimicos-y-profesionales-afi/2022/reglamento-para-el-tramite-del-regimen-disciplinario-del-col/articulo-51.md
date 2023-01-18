@@ -1,0 +1,2 @@
+Artículo 51.- La audiencia oral y privada deberá celebrarse en el lugar que señale el Tribunal de Ética Profesional, sin embargo, por economía de gastos o cualquier otra ventaja, podrá celebrarse en otro lugar del territorio nacional o de manera virtual siempre que esto no cause perjuicio grave a las partes.
+Si la audiencia se celebra de manera virtual deberá seguirse un protocolo especial establecido por el Tribunal que será debidamente comunicado a las partes en la resolución que convoque a la audiencia.

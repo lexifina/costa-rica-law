@@ -1,0 +1,2 @@
+Artículo 66.- Los recursos ordinarios deberán interponerse en el plazo de tres días hábiles contados a partir de la fecha de notificación de la resolución final a todas las partes.
+El recurso de revocatoria será resuelto por el mismo Tribunal de Ética Profesional, y el recurso de apelación por la Junta Directiva, salvo que se trate de un asunto contra alguno de sus miembros, en cuyo caso el recurso deberá ser conocido y resuelto por la Asamblea General de conformidad con el artículo 103 de la Ley 8412, Ley Orgánica del Colegio de Químicos de Costa Rica, Título II.

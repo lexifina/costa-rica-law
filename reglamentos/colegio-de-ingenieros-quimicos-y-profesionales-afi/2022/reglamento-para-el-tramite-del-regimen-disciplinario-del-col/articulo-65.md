@@ -1,0 +1,3 @@
+CAPÍTULO IX: DE LOS RECURSOS
+Artículo 65.- Contra la resolución final del procedimiento emitida por el Tribunal de Ética Profesional, cabrá la interposición de los recursos ordinarios de revocatoria y de apelación, que podrán interponerse juntos o de manera separada.
+También cabrá el recurso extraordinario de revisión ante la Asamblea General de conformidad con los supuestos previstos en el artículo 62 del Decreto Ejecutivo Nº 34699- MINAE-S Reglamento al Título II de la Ley orgánica del Colegio de Ingenieros Químicos y Profesionales Afines y Ley Orgánica del Colegio de Químicos de Costa Rica, Ley Nº 8412.

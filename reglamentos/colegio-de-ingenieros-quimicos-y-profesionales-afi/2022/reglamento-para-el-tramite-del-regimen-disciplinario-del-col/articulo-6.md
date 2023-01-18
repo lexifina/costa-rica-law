@@ -1,0 +1,2 @@
+CAPÍTULO II. DEL TRIBUNAL DE ÉTICA PROFESIONAL
+Artículo 6.- La Asamblea General Ordinaria del Colegio procederá a integrar al Tribunal de Ética Profesional con cinco miembros propietarios y dos suplentes, quienes permanecerán en sus funciones dos años y podrán ser reelegidos No podrán ser parte del Tribunal de Ética Profesional las personas integrantes de la Junta Directiva, la Fiscalía, la Dirección Ejecutiva, ni los miembros activos que laboren para el CQCR.

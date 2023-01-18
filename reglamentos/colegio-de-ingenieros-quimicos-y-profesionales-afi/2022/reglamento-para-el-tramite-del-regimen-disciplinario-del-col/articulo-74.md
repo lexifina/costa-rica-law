@@ -1,0 +1,1 @@
+Artículo 74.- Este reglamento deroga cualquier otra disposición normativa o reglamentaria que se le oponga, en particular el Reglamento de Operación del Tribunal de Ética Profesional publicado en La Gaceta N°24 el 2 de febrero del 2006, vigente hasta antes de la publicación de este reglamento.

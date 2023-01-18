@@ -1,0 +1,1 @@
+Artículo 49.- El Tribunal de Ética Profesional no homologará la conciliación, cuando tenga motivos debidamente fundamentados para estimar que se han violado requisitos de validez establecidos en el ordenamiento jurídico.

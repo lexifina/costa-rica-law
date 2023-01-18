@@ -1,0 +1,3 @@
+Artículo 67.- Los recursos deberán presentarse por escrito en la oficina de recepción de documentos del Colegio. Esta oficina remitirá el recurso de inmediato al Tribunal de Ética Profesional o a la Junta Directiva, según corresponda.
+El Tribunal de Ética Profesional deberá sesionar para conocer el recurso de revocatoria planteado y resolver, de manera fundamentada, si declara con lugar o no el recurso.
+Si la parte sí presentó recurso de apelación de manera conjunta con el recurso de revocatoria, el Tribunal de Ética Profesional, en la resolución que rechaza el recurso de revocatoria, remitirá el expediente a la Junta Directiva para lo que corresponda.

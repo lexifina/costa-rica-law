@@ -1,0 +1,2 @@
+Artículo 59.- La audiencia oral y privada podrá suspenderse y continuarse en una nueva fecha, cuando así lo soliciten las partes de manera fundamentada y el Tribunal de Ética Profesional lo apruebe.
+También procederá la suspensión, cuando la cantidad de prueba ofrecida fuera abundante y no se hubiera podido evacuar en su totalidad, o cuando el Tribunal considere que se requiere incorporar prueba adicional que será diligenciada por el mismo Tribunal o por las partes.

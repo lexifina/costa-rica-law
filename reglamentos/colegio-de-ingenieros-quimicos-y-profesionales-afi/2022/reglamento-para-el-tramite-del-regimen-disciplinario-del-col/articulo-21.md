@@ -1,0 +1,2 @@
+Artículo 21.- Si la denuncia no cumple con los requisitos señalados en el artículo 19, la Fiscalía prevendrá por escrito a la persona denunciante en el lugar señalado para recibir notificaciones, que complete los requisitos en un plazo de ocho días hábiles a partir de la notificación de la prevención y lo apercibirá de que, en caso de no hacerlo en tiempo y forma, se procederá con el archivo de la denuncia.
+No se prevendrá la subsanación de requisitos que puedan ser inferidos claramente de la denuncia o de los documentos anexos.

@@ -1,0 +1,1 @@
+Artículo 44.- Contra la resolución inicial de apertura del procedimiento disciplinario cabrán los recursos ordinarios de revocatoria y apelación, que se deberán interponer en el plazo de veinticuatro horas contados a partir del acto de notificación.

@@ -1,0 +1,4 @@
+Artículo 55.- En la audiencia oral y privada se evacuará la prueba documental, se recibirá la prueba testimonial y pericial, si la hubiera, y se escucharán los argumentos de cargo y de descargo de las partes.
+En caso de aportar o solicitar prueba testimonial o prueba pericial, la parte que la ofrece deberá indicar las calidades de las personas, forma de localizarlas y los hechos a los cuales se referirán. El costo del peritaje correrá por cuenta de la parte solicitante.
+El Tribunal podrá rechazar la prueba testimonial o pericial ofrecida, mediante una resolución que se comunicará a las partes, con indicación de los motivos por los cuales se está rechazando.
+Contra el rechazo de prueba por parte del Tribunal, cabrá la interposición de los recursos ordinarios de revocatoria y apelación, salvo que la denegatoria se de en la audiencia, los recursos podrán interponerse en ese mismo acto.

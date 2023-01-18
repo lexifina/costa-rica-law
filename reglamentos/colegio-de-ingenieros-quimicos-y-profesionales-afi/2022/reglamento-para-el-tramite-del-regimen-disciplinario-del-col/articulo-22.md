@@ -1,0 +1,2 @@
+Artículo 22.- Si la persona denunciante no cumple con la prevención, o manifiesta expresamente por escrito no estar interesado en continuar con la denuncia, quedará a criterio de la Fiscalía continuarla de oficio en caso de que considere que se trata de un caso de interés público.
+De continuar con ella, le corresponderá a la Fiscalía completar todos los requisitos de la denuncia para su debida tramitación.

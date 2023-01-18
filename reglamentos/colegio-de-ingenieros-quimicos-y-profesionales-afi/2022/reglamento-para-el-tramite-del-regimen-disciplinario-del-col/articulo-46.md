@@ -1,0 +1,2 @@
+Artículo 46.- La conciliación podrá celebrarse ante cualquier centro de resolución de conflictos debidamente autorizado por el Ministerio de Justicia y Paz, cuyo costo deberá ser asumido por las partes.
+Si las partes llegan a un acuerdo conciliatorio, deberán presentarlo por escrito, con la firma de todas las partes involucradas, ante el Tribunal de Ética Profesional, para que este conozca de los alcances del acuerdo, proceda a su homologación y se continúe el procedimiento disciplinario sobre los aspectos no conciliados, si fuera necesario.

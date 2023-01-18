@@ -1,0 +1,1 @@
+Artículo 41.- El Tribunal de Ética Profesional deberá tramitar el expediente que le será entregado por la Secretaría de la Junta Directiva. Deberá agregar todas las actuaciones previas que hayan sido realizadas por la Fiscalía las que se celebren durante el procedimiento disciplinario respectivo.

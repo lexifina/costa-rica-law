@@ -1,0 +1,3 @@
+Artículo 57.- Las partes y las personas que sean llamadas a declarar en el procedimiento como testigos o peritos, antes de rendir su declaración, deberán identificarse con su cédula de identidad, pasaporte, o cualquier otro documento válido que permita su identificación.
+Los profesionales en derecho que se apersonen para ejercer el patrocinio letrado de las partes deberán presentar su carné profesional.
+A los testigos y peritos se les indicará la razón por la cual fueron llamados a declarar en el procedimiento y se les exhortará a declarar en apego a la verdad y al conocimiento que tengan de los hechos.

@@ -1,0 +1,1 @@
+Artículo 2.-Este Reglamento será de aplicación obligatoria para las instancias y las personas funcionarias del Colegio que intervengan en el trámite de los procedimientos disciplinarios, así como también, para las personas involucradas y terceros.

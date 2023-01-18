@@ -1,0 +1,3 @@
+Artículo 48.- En caso de que no exista conciliación, el Tribunal de Ética Profesional continuará con el procedimiento.
+Si se logra llegar a un acuerdo conciliatorio, el Tribunal de Ética Profesional homologará el acuerdo y declarará el archivo del expediente. El archivo del expediente tendrá efectos a partir del momento en que se tengan por cumplidas las obligaciones contraídas. Para tal propósito se fijará un plazo máximo de un año, durante el cual se suspende la prescripción de la acción disciplinaria.
+Si hay incumplimiento del acuerdo, sin justa causa, el procedimiento disciplinario se reanudará a partir de la etapa procesal a la que se había llegado previo a la conciliación.

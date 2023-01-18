@@ -1,0 +1,2 @@
+Artículo 35.- El informe final del resultado de la investigación preliminar no tendrá recurso alguno. La recomendación dada en el informe no es vinculante para la Junta Directiva, quien podrá apartarse de la recomendación de manera fundamentada.
+En caso de que la Junta Directiva acoja la recomendación de la Fiscalía, el informe del resultado de la investigación preliminar servirá como motivo del acto mediante el cual se ordenará la apertura del procedimiento disciplinario, o bien, el archivo del asunto.

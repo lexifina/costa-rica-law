@@ -1,0 +1,4 @@
+CAPÍTULO VII: DEL DESARROLLO DEL PROCEDIMIENTO
+Artículo 50.- Concluido el plazo conferido en la resolución inicial para que la persona denunciada se haya apersonado al procedimiento, y si no opera la conciliación o esta resulta infructuosa, el Tribunal de Ética Profesional, en un plazo no mayor de 30 días hábiles, procederá a señalar día y hora para llevar a cabo una audiencia oral y privada.
+La notificación de la convocatoria a audiencia a las partes deberá hacerse con no menos de quince días hábiles de antelación, y se les prevendrá que deben de presentar toda la prueba antes o en el momento de la audiencia si todavía no lo han hecho.
+En caso de considerarlo necesario por la complejidad del asunto o la cantidad de prueba ofrecida, el Tribunal de Ética Profesional podrá fijar dos o más fechas para realizar la audiencia.
