@@ -1,0 +1,3 @@
+Artículo 17. Divulgación de información a través de medios de comunicación electrónica
+17.1 Se prohíbe la divulgación no autorizada de información concerniente a la empresa, su operación, sus clientes, sus trabajadores(as) o terceros, a través de cualquier medio de comunicación electrónica o de almacenamiento externo, de acuerdo con lo establecido en el artículo 71, inciso G, Código de Trabajo y lo establecido en la normativa laboral interna.
+17.2 Cualquier información referente a los sistemas, equipos y comunicaciones de la Institución, que haya sido clasificada como privada o declarada como confidencial, debe tener controles de acceso implementados para usuarios autorizados.

@@ -1,0 +1,3 @@
+Artículo 12. Uso de hardware
+12.1 Queda prohibido configurar, instalar u operar cualquier dispositivo no institucional en el ambiente de red institucional. En caso de que por razones específicas el funcionario requiera acceder con dispositivos no institucionales, debe acatar el Reglamento del Uso de Información del ICE Mediante Dispositivos Móviles y contar con la autorización de la Dirección de Soluciones Tecnológicas.
+12.2 El usuario(a) asegurará el adecuado uso y cuidados de su equipo de trabajo. En caso de requerirse reparaciones o mantenimiento debe considerar los períodos de garantía que aplican, así como las condiciones de esta, según lo establecido por el Centro de Soporte Usuario Final (CSUF).
