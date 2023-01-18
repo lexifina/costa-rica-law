@@ -1,0 +1,4 @@
+CAPÍTULO III
+Operación y funcionamiento de la red
+Artículo 3º-Por disposición del Consejo Nacional de la Persona Adulta Mayor (CONAPAM), la Red de Cuido debe disponer de un Comité de Apoyo Local, que se configurará como un equipo técnico que podrá estar conformado por representantes de instituciones públicas, privadas, organizaciones comunales, personas adultas mayores, u otros actores, que contribuyan en la implementación de los programas desarrollados por el CONAPAM en la comunidad.
+Para la conformación de este equipo de apoyo, se utilizará como base el Reglamento para la conformación y los procedimientos bajo los cuales operarán los Comités de Apoyo a los programas del CONAPAM y las entidades ejecutoras, establecido en el Decreto Ejecutivo N° 39080-MP de 16 de abril de 2015, u otras directrices que brinde el CONAPAM para este objetivo.

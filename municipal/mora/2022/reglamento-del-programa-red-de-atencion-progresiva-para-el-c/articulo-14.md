@@ -1,0 +1,1 @@
+Artículo 14.-Toda persona beneficiaria deberá reportar los cambios que se presenten a nivel socioeconómico y psicosocial dentro del grupo familiar para re-analizar el caso. No informar dichos cambios podrá ser causal de la pérdida del beneficio.

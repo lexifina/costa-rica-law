@@ -1,0 +1,1 @@
+Artículo 9º-Los casos valorados se presentarán en las reuniones del Comité Local de la Red de Cuido, que tendrá la decisión final en la aceptación o rechazo de la solicitud de la persona adulta mayor.
