@@ -14,3 +14,4 @@ Reglamento para prevenir, erradicar y sancionar el hostigamiento laboral en el I
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-07-14 | la propia norma |
+| 2 | 2023-01-18 | Reglamento 2 (2023-01-18) |
