@@ -1,0 +1,1 @@
+Artículo 7º-Excepciones. Se exceptúan de este incentivo impuesto sobre espectáculos públicos, timbres y los tributos de carácter temporal, impuesto de patente y licores nacionales, la multa por construir sin permiso. Asimismo, el precio por alquiler de locales comerciales.

@@ -1,0 +1,1 @@
+Artículo 5º-Dependencia encargada de aplicar e l incentivo. El Departamento de Administración Tributaria de la Municipalidad de Bagaces, será el encargado de aplicar el incentivo y de actualizar el porcentaje que se utilizará en la aplicación de este.

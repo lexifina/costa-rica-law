@@ -1,0 +1,1 @@
+Artículo 12.-DivulgacióndelReglamento. LaMunicipalidad tendrá la responsabilidad de divulgar adecuadamente el presente reglamento una vez que haya sido aprobado y publicarlo en el diario Oficial. Cualquier modificación posterior deberá seguir un procedimiento de consulta a la ciudadanía, publicación y difusión.

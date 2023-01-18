@@ -1,0 +1,3 @@
+Artículo 9º-Aplicación de beneficios en amnistías y condonaciones. Cuando a través de proyecto de Ley de la República se concedan a los ciudadanos del Cantón de Bagaces, Amnistías o Condonaciones, estas tendrán toda la vigencia (plazo para gozar del beneficio) que se disponga en el proyecto de ley y la aprobación por parte el Concejo Municipal, sin embargo, para ejercer el derecho de dichos beneficios el ciudadano deberá:
+a) Cumplir con las condiciones previstas en la ley que otorga la Amnistía o Condonación.
+b) Estar al día con la actualización de sus datos personales, medio para recibir notificaciones o cualquier medio que faciliten la identificación y localización del mismo.
