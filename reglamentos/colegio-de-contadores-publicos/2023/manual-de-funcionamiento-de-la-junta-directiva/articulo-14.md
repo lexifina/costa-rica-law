@@ -1,0 +1,1 @@
+Artículo 14.-Disciplina: Los Directores se dirigirán con respeto para con sus compañeros presentes, prestando su atención y evitando efectuar comentarios ajenos al asunto en discusión. De los asuntos que en el ejercicio de su cargo sean conocedores, guardarán máxima discreción.

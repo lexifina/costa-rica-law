@@ -1,0 +1,5 @@
+Artículo 20.-Transcripción de las sesiones:
+1) Las sesiones de la Junta Directiva deberán grabarse en audio y video y ser respaldadas en un medio digital que garantice su integridad y archivo de conformidad con la legislación vigente. Será obligación de todos los integrantes del cuerpo colegiado verificar que se realice la grabación de la sesión y constituirá falta grave el no hacerlo.
+2) De cada sesión se levantará un acta, que contendrá la indicación de las personas asistentes, así como las circunstancias de lugar y tiempo en que se ha celebrado, la transcripción literal de todas las intervenciones efectuadas, la forma y el resultado de la votación y el contenido de los acuerdos.
+3) Las actas se aprobarán en la siguiente sesión ordinaria. Antes de esa aprobación carecerán de firmeza los acuerdos tomados en la respectiva sesión, a menos que los miembros presentes acuerden su firmeza por votación de dos tercios de la totalidad de los miembros del Colegio.
+4) Las actas serán firmadas por el presidente y por aquellos miembros que hubieran hecho constar su voto disidente. Además, por el secretario, conforme a los artículos 25 inciso e) y 26 de la Ley 1038.

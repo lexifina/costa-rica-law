@@ -1,0 +1,4 @@
+Artículo 22.-De la comunicación de acuerdos: Solamente procederá la comunicación de acuerdos en firme. Todas las comunicaciones formales del Colegio deberán ser conocidas y aprobadas por la Junta Directiva y firmadas por el Presidente, o en su efecto por el Secretario.
+La comunicación deberá hacerse a más tardar cinco días hábiles posteriores a disponer el acuerdo en firme.
+La secretaria administrativa será la encargada de dar trámite a la notificación del acuerdo correspondiente, debiendo dejarse comprobante de dicho trámite, a su vez estampará su firma como responsable de ejecutar la notificación. En el acto de notificación debe indicarse fecha y hora en que se notifica, número del acuerdo y oficio por el cual se notifica.
+Igualmente, la secretaria de actas estará pendiente de aquellos acuerdos en los que se concedió plazo para interponer recursos a fin de tenerlos por firme o bien para que proceda a dar trámite al recurso que se interpusiere.

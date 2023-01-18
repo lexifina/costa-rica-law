@@ -1,0 +1,1 @@
+Artículo 12.-Recibo de visitas: Las sesiones serán privadas pero la Junta Directiva podrá invitar a las personas que estime conveniente para que asistan a rendir información, criterios, declaraciones u otras diligencias de interés. Estos tendrán voz, pero no podrán votar los acuerdos que se dispongan.

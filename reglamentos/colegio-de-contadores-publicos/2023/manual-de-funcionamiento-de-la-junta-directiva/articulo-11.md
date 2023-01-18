@@ -1,0 +1,1 @@
+Artículo 11.-Abstención de los Miembros en Votaciones: Los Miembros de la Junta Directiva deberán abstenerse de conocer y votar algún asunto en que tenga interés directo, ellos o sus parientes hasta tercer grado por consanguinidad o afinidad y en cualquier otro caso en que tengan impedimento de acuerdo con las leyes vigentes.

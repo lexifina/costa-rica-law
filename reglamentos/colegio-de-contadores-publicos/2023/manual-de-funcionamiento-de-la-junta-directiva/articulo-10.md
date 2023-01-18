@@ -1,0 +1,1 @@
+Artículo 10.-Quórum para sesionar: El quórum de la Junta se formará con cinco de sus miembros; si transcurridos treinta minutos después de la hora fijada para la sesión no hubiere quórum, ésta no se celebrará y los directores presentes se pueden retirar, de lo cual se dejará constancia en el acta de la sesión siguiente.

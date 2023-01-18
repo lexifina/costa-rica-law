@@ -1,0 +1,6 @@
+Artículo 6º-Dirección Ejecutiva: Para atender las labores administrativas, conforme se establece en el artículo 32 bis de la Ley 1038, adicionalmente le corresponderá:
+a) Asistir ordinariamente a las sesiones de Junta Directiva, con voz, pero sin voto.
+b) Presentar a conocimiento y aprobación de la Junta Directiva los estados financieros mensualmente, flujo de caja y así como la liquidación presupuestaria por lo menos una vez al mes, en coordinación con el Tesorero de Junta Directiva.
+c) Presentar ante la Junta Directiva el proyecto de presupuesto anual, con el visto bueno del Tesorero de Junta Directiva, que será presentado a la Asamblea General Ordinaria a celebrarse en enero de cada año, de conformidad con el planeamiento estratégico y coordinando en forma previa con los diferentes comités y las previsiones necesarias para la buena marcha de los programas.
+d) Coadyuvar con la elaboración o el seguimiento del planeamiento estratégico cada tres años, así mismo informar a la Junta Directiva de los avances que este tenga al respecto.
+e) Disponer de los gastos que generen las actividades del Colegio dentro de los límites que fije la Junta Directiva y cuando la naturaleza y fines lo requieran.

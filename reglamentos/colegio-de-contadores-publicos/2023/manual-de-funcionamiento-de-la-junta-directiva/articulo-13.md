@@ -1,0 +1,3 @@
+Artículo 13.-Inicio de la sesión y dirección: El Presidente o el director que lo remplace en sus ausencias será quien dirigirá el desarrollo de la sesiones y como tal será el encargado de administrar el uso de la palabra.
+En ausencia del Presidente a las sesiones debidamente convocadas, la Junta Directiva será presidida por el Vicepresidente y en el caso de que este también se encuentre ausente corresponderá ejercer la presidencia al Vocal que esté presente de acuerdo con el orden de su nombramiento.
+Lo anterior sin perjuicio de que el Presidente o a quien le corresponda suplirlo jerárquicamente pueda incorporarse a la sesión en cualquier momento y continuar presidiendo una vez concluido el asunto en discusión.

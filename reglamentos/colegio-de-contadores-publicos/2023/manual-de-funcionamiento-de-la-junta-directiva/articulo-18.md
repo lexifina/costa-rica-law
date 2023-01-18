@@ -1,0 +1,1 @@
+Artículo 18.-Mociones: En el capítulo de los asuntos de directores se podrán plantear los asuntos específicos que estimen de interés lo cual deberán presentar por escrito o en forma verbal. Dichas mociones o propuestas serán conocidas y resueltas en estricto orden de presentación.

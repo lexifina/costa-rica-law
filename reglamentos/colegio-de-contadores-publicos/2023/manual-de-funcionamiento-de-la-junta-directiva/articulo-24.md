@@ -1,0 +1,1 @@
+Artículo 24.-De los vocales: Corresponde a los vocales según el artículo 29 de la Ley 1038, sustituir al Vicepresidente, Prosecretario, Tesorero y Fiscal, por lo tanto, el orden de sustitución se hará de la siguiente forma, el Vocal I al Vicepresidente o Prosecretario, Vocal II al Fiscal y Vocal III al Tesorero.

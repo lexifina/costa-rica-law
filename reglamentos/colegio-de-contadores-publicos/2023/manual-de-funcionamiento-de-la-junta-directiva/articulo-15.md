@@ -1,0 +1,1 @@
+Artículo 15.-Interrupciones en el uso de la palabra: Ningún Director podrá ser interrumpido en el uso de la palabra, salvo con su consentimiento o cuando el Presidente por razones de orden lo estime conveniente.
