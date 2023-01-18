@@ -1,0 +1,2 @@
+Artículo 7º-Tratándose de ingenios receptores que se encuentren en el supuesto del párrafo cuarto del artículo 125 de la Ley, la cuota de referencia del ingenio que cerró en forma definitiva, se transferirá, total o parcialmente, según proceda, a la cuota de referencia calculada del ingenio o de los ingenios receptores.
+De este modo, dicha cuota trasladada se sumará a la cuota calculada del ingenio receptor, y no a la cuota que le correspondería por aplicación del referido párrafo cuarto del artículo 125 de la Ley.

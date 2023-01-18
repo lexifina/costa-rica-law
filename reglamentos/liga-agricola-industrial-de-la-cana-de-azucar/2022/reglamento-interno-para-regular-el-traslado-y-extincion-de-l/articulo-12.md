@@ -1,0 +1,1 @@
+Artículo 12.-Para la debida ejecución de los artículos 10 y 11 anteriores, el Departamento Técnico efectuará los respectivos cálculos y los elevará a la Junta Directiva para que sea esta la que fije las respectivas cuotas de referencia y efectúe la correspondiente asignación de las cuotas individuales de producción.

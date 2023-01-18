@@ -1,0 +1,5 @@
+Artículo 8º-Tratándose de personas físicas o jurídicas, que fueron propietarias, arrendatarias o poseedoras del ingenio, se procederá así:
+El monto de participación de cada una en la cuota de producción de azúcar del ingenio, será el promedio del azúcar contenido en la caña entregada por ella, en el período de las cinco zafras anteriores -o menos si procede-, a aquella en que ocurrió el cierre definitivo del ingenio, calculado con base en azúcar de 96° de polarización.
+En el caso de los ingenios a los que se refiere el inciso 1 del artículo 128 de la Ley, el monto de participación calculado según el párrafo anterior, regirá para la primera zafra, o sea, en la que cesó operaciones el ingenio. En las cuatro zafras sucesivas hasta completar cinco, se le harán las deducciones indicadas en el artículo 2.1.d.ii) del presente Reglamento.
+Concluidas dichas cinco zafras, las expresadas personas jurídicas, se regirán por lo dispuesto en los artículos 54 y siguientes de la Ley.
+Para la aplicación de la presente norma, las relacionadas entregas de caña tuvieron que ser consideradas y declaradas como caña propia del respectivo ingenio.
