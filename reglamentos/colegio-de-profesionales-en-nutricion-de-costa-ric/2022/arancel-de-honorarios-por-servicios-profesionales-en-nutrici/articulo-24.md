@@ -1,0 +1,1 @@
+Artículo 24.-Consultoría nacional: monto mínimo de veintisiete mil setecientos ochenta y cinco colones por hora más el monto correspondiente a gastos de alimentación, hospedaje y traslados, si estos gastos aplican.
