@@ -1,0 +1,1 @@
+Artículo 15.-Cumplimiento de horario establecido. Los usuarios deberán sacar sus residuos sólidos al lugar de recolección de conformidad con lo establecido por el artículo anterior en los días y horarios que se establezcan.

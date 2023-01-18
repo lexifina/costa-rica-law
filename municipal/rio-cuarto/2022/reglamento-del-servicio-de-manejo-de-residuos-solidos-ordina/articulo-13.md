@@ -1,0 +1,1 @@
+Artículo 13.-Residuos autoclavados. Cuando el usuario entregue residuos considerados como autoclavados deberá disponer de éstos en bolsas color rojo con el fin de que puedan ser diferenciados. Es obligación del contribuyente hacer entrega del certificado correspondiente al personal recolector, ya que este es indispensable para su posterior entrega en el relleno sanitario.

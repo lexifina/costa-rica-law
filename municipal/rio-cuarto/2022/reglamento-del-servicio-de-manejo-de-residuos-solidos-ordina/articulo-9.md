@@ -1,0 +1,1 @@
+Artículo 9°-Forma del cobro. La municipalidad realizará el cobro mensual de la tarifa correspondiente al servicio de manejo de residuos sólidos ordinarios en estricta relación a la cantidad y categoría de las unidades generadoras que se encuentren en todo inmueble ubicado en el área del cantón de Río Cuarto en que se preste dicho servicio cantón de Río Cuarto.

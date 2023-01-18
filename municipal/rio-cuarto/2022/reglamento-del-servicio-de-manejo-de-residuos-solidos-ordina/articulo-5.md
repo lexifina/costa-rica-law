@@ -1,0 +1,1 @@
+Artículo 5°-Hecho generador del tributo. El hecho generador de la tasa lo constituye la prestación efectiva del servicio público de manejo de residuos sólidos ordinarios por parte de la Municipalidad a los propietarios, poseedores, arrendatarios y usufructuarios de una unidad habitacional, comercial u gubernamental generadora ubicada en el cantón de Río Cuarto.

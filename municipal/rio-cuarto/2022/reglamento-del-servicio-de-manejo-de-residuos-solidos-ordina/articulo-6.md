@@ -1,0 +1,2 @@
+Artículo 6°-Sujeto pasivo. Se constituye sujeto pasivo de la tarifa por servicio público de manejo de residuos sólidos ordinarios la persona propietaria, poseedora, arrendataria y usufructuaria de una unidad habitacional, comercial u gubernamental generadora ubicada en el cantón de Río Cuarto quién efectivamente sea beneficiaria de dicho servicio.
+El sujeto pasivo se encuentra obligado al cumplimiento de las prestaciones tarifarias, en calidad de contribuyente, desee recibir el servicio o no.

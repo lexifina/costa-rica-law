@@ -1,0 +1,2 @@
+Artículo 2°-Ámbito de aplicación. El presente reglamento es de acatamiento obligatorio para todas las personas, físicas o jurídicas, públicas o privadas, generadoras de residuos sólidos ordinarios que se encuentre dentro del área de cobertura del servicio de manejo de residuos sólidos ordinarios en el cantón de Río Cuarto.
+Los residuos peligrosos, de manejo especial, valorizables y no ordinarios no se consideran dentro de este reglamento y deben ser manejados por parte del generador de acuerdo a la legislación vigente respectiva.
