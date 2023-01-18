@@ -3,28 +3,14 @@ Pago de prestaciones por terminación del contrato
 37-1 Salvo lo establecido en disposiciones expresas de este Estatuto y sus anexos, que superan los derechos mínimos garantizados a los trabajadores en el Código de Trabajo, el pago de prestaciones por terminación del contrato de trabajo, se efectuará únicamente en los casos en los que las leyes específicamente así lo obliguen o por sentencia firme de los Tribunales competentes del país.
 Al trabajador que se dé por terminado su contrato de trabajo con reconocimiento de prestaciones legales, tendrá derecho al pago de auxilio de cesantía, de acuerdo con su antigüedad, en la siguiente forma:
 A los trabajadores que tengan un año o más de laborar para la institución antes de la vigencia del artículo 3º de la Ley Nº 7983 y continuaron prestando sus servicios a la Institución después de tal fecha, se les calculará el pago a que se refiere este artículo mediante un sistema compuesto, de la siguiente manera:
-A) El tiempo servido antes de la vigencia de esta norma se les reconocerá a razón de un mes de salario por cada año laborado o fracción no menor de seis meses. Cuando ese tiempo sobrepasara ocho años, se le reconocerá un mes de salario por cada dos años laborados después del octavo año o fracción no menor de un año.
+(*)A) El tiempo servido antes de la vigencia de esta norma se les reconocerá a razón de un mes de salario por cada año laborado o fracción no menor de seis meses. Cuando ese tiempo sobrepasara ocho años, se le reconocerá un mes de salario por cada dos años laborados después del octavo año o fracción no menor de un año.
 (Así reformado el punto anterior en sesión N° 5915 del 30 de junio de 2010)
+(*) (Nota de Sinalevi: Mediante resolución de la Sala Constitucional N° 001055 del 18 de febrero de 2023, se interpretó el punto 37.1.a) anterior en el sentido que el tope máximo de cesantía no puede exceder los doce años.)
 B) El tiempo servido después de la vigencia de la Ley de Protección al Trabajador, se pagará con el importe de días de salario que contiene el artículo 29 reformado del Código de Trabajo y de conformidad con la escala que allí se establece. Por los primeros ocho años de servicio, para efectos de pago, se tomarán las fracciones superiores a seis meses y por los restantes años de servicio por cada dos años de trabajo continuo o fracción no menor de un año, el importe de días de salario que contiene el artículo citado.
 (Así reformado el punto anterior en sesión N° 5915 del 30 de junio de 2010)
+(*) (Nota de Sinalevi: Mediante resolución de la Sala Constitucional N° 001055 del 18 de febrero de 2023, se interpretó el punto 37.1.b) anterior en el sentido que el tope máximo de cesantía no puede exceder los doce años.)
 La sumatoria de años reconocidos antes de la vigencia y después de la vigencia de la Ley de Protección al Trabajador no podrá exceder 24 años de cesantía correspondientes a un período de 40 años de trabajo continuo en el ICE.
-37-2 El trabajador que renuncie a la Institución acogiéndose al retiro voluntario, después de haber prestado servicios a la misma en forma ininterrumpida durante 10 años o más, tendrá derecho a recibir un porcentaje de la Cesantía que haya acumulado, de acuerdo con la siguiente tabla:
-Años de servicio | Porcentaje de retiro
-10 a menos de 11 | 25
-11 a menos de 12 | 30
-12 a menos de 13 | 35
-13 a menos de 14 | 40
-14 a menos de 15 | 45
-15 a menos de 16 | 50
-16 a menos de 17 | 60
-17 a menos de 18 | 70
-18 a menos de 19 | 80
-19 a menos de 20 | 90
-20 y más | 100
-De los alcances de este artículo, se exceptúan los trabajadores que la atención de sus hijos o su condición familiar, les impida realizar sus labores en forma normal y los empleados que se retiren del Instituto con motivo de jubilación, para quienes, a tal efecto, existe una reglamentación especial.
-También quedan excluidos aquellos que incumplan su compromiso de servicio al ICE, provenientes de contratos de becas y los que hayan incurrido en las causales de despido establecidas por el Código de Trabajo.
-A los trabajadores que provengan de otras entidades públicas no se les reconocerá, para efectos del porcentaje de retiro de este auxilio de cesantía, los años prestados a esos otros organismos. Empezarán a contar los años a partir del momento de su ingreso al ICE.
-El trabajador que se haya acogido a la liquidación de sus prestaciones con base en el presente artículo, no podrá volver a trabajar en el Instituto, por un periodo de siete años. La Gerencia podrá hacer la excepción en casos de inopia, previo estudio de la DCH.
+37-2 (Anulado resolución de la Sala Constitucional N° 001055 del 18 de febrero de 2023, en tanto establece el pago del auxilio de cesantía en supuestos de renuncia del trabajador.)
 37-3 La Gerencia General podrá considerar y autorizar la liquidación del contrato de trabajo con responsabilidad patronal, de los trabajadores a quienes la atención de sus hijos o su condición familiar, les afecte el normal desempeño de sus funciones en la Institución. Con este fin, los interesados presentarán la solicitud del caso a su coordinador, exponiendo los motivos que respaldan su petición y el Director de DIV/UEN/DT/DA/DAS, si la considera procedente, la remitirá a la DCH, para el estudio del caso y para que lo eleve con su recomendación para la resolución definitiva.
 Quien solicite la liquidación de su contrato de trabajo por los motivos apuntados, deberá haber prestado sus servicios a la Institución en forma ininterrumpida por un período no menor de dos años.
 37-4 El pago de indemnización por concepto de Auxilio de Cesantía en las diferentes modalidades de este capítulo, inhibe al Instituto para volver a contratar al trabajador que lo reciba por un período de siete años.
