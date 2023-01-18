@@ -1,0 +1,2 @@
+Artículo 29.-Franjas Verdes y Señaléticas. La Municipalidad definirá los sectores que contarán con la franja de mobiliario. Las áreas verdes tendrán preferiblemente una dimensión mínima de 30cm de ancho.
+Cuando por las condiciones geométricas y topográficas, se requiera salvaguardar la integridad de terrenos se podrán construir obras de protección en las zonas verdes siempre y cuando no se afecte el tránsito peatonal. Toda obra que se realice debe contar con el permiso de construcción correspondiente y la aprobación del municipio.

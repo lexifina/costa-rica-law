@@ -1,0 +1,1 @@
+Artículo 2°-Alcance. El presente reglamento tiene como alcance la jurisdicción del cantón de Río Cuarto. Las disposiciones de este reglamento son aplicables a toda persona física o jurídica que sea propietaria o poseedora por cualquier título de bienes inmuebles ubicados en el cantón.

@@ -1,0 +1,3 @@
+Artículo 32.-Cruces Peatonales. Los cruces peatonales deberán contar con prioridad de paso propiciada por medidas de pacificación vial, como la demarcación, señalética y rampa correspondiente.
+Las superficies de las vías de circulación peatonales deben ser firmes, antideslizantes y sin obstáculos, debiéndose evitar la presencia de piezas sueltas, tanto en la constitución del pavimento, así como también por falta de mantenimiento, la canalización de aguas y drenaje.
+Las zonas inmediatas a los cruces, deben permanecer libre de obstáculos físicos y visuales, demarcarse reglamentariamente e iluminarse apropiadamente.

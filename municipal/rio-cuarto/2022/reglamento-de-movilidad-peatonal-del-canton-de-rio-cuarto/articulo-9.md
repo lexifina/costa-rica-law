@@ -1,0 +1,1 @@
+Artículo 9°-Construcción de acera nueva. La Municipalidad se encuentra facultada para realizar las labores de construcción de obra nueva de acera de forma directa, con el fin de garantizar la accesibilidad y la seguridad de todas las personas, posterior a la debida notificación a las personas propietarias o poseedoras de los inmuebles.

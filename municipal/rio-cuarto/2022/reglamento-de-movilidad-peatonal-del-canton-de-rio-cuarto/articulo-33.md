@@ -1,0 +1,5 @@
+CAPÍTULO V
+Financiamiento de la infraestructura peatonal
+Artículo 33.-Tasa. Se cobrará una tasa según lo dispuesto por el Código Municipal por el mantenimiento, rehabilitación y construcción de aceras. El cálculo anual deberá considerar el costo efectivo invertido; la municipalidad cobrará tasas que se fijarán tomando en consideración su costo más un diez por ciento (10%) de utilidad para desarrollarlos, tal suma se cobrará proporcionalmente entre los contribuyentes del distrito, según el valor de la propiedad.
+La Municipalidad calculará cada tasa en forma anual y las cobrará en tractos trimestrales sobre saldo vencido. La municipalidad queda autorizada para emanar el reglamento correspondiente, que norme de qué forma se procederá para organizar y cobrar cada tasa.
+Se cobrará un cincuenta por ciento (50%) de esta tasa en el caso de inmuebles que constituyan bien único de los sujetos pasivos (personas físicas) y tengan un valor máximo equivalente a cuarenta y cinco salarios base establecidos en el artículo 2 de la Ley 7337, de 5 de mayo de 1993.
