@@ -1,1 +1,1 @@
-Articulo 7-El Consejo sesionar ordinariamente cada 15 dias y extraordinariamente cuando el director lo convoque. El quorum necesario para sesionar ser de 3 miembros.
+Articulo 7- (Derogado por el artículo 3° del decreto ejecutivo N° 43930 del 18 de enero del 2023)
