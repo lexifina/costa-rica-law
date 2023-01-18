@@ -14,3 +14,4 @@ Reglamento de Organización y Funcionamiento del Festival Navidad Liberiana
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-12-06 | la propia norma |
+| 2 | 2023-01-18 | Reglamento municipal 219 (2023-01-18) |
