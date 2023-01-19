@@ -1,0 +1,1 @@
+Artículo 4º-Revisión Anual. El proceso de cobro podrá realizar el procedimiento para declarar una deuda como incobrable en cualquier momento, sin embargo, por lo menos una vez al año deberá realizar una revisión de las cuentas posibles a declarar como de difícil recuperación a efecto de someterlas al proceso correspondiente descrito en el presente reglamento.

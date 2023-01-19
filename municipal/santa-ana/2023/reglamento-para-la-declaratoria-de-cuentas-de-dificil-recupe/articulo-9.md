@@ -1,0 +1,2 @@
+Artículo 9º-Seguimiento Bianual. Cada 2 años el proceso de cobros deberá realizar un seguimiento a las cuentas declaradas de difícil recuperación y si detecta que la deuda puede ser recuperada por la Municipalidad, se podrá emitir una nueva resolución para revalidarla. Esta revisión será comunicada a la jefatura inmediata, y deberá constar en el expediente.
+Asimismo, el Proceso de Cobro podrá seguir este mismo procedimiento en cualquier momento en que determine que existe la posibilidad de recuperar este tipo de cuentas.

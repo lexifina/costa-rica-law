@@ -1,0 +1,1 @@
+Artículo 10.-Normas complementarias: para la resolución de los aspectos no previstos en el presente Reglamento, éste se integrará con lo dispuesto en el Código Municipal, el Código de Normas y Procedimientos Tributarios, la Ley General de la Administración Pública y demás normativa aplicable vigente según sea el caso.
