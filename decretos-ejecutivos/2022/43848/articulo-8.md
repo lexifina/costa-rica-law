@@ -1,0 +1,1 @@
+Artículo 8º-El INEC deberá establecer la metodología y el proceso de seguimiento y evaluación de la ENDE y del PEN, a partir de los cuales se deben generar y presentar, al CDINEC, Conace y a la CIE, los informes correspondientes.

@@ -1,0 +1,1 @@
+Artículo 18.- Las entidades del SEN pueden compartir entre sí, datos y metadatos para fines estadísticos, con el objeto de evitar una recopilación duplicada de datos y para mejorar la calidad de las estadísticas oficiales, en los términos establecidos por el artículo 21 de la Ley.

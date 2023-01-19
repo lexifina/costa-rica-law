@@ -1,0 +1,1 @@
+Artículo 17.-Independientemente de los métodos y las fuentes de recopilación, los datos estadísticos obtenidos por las entidades del SEN están bajo su titularidad y deberán ser procesados, almacenados y difundidos en plena conformidad con las disposiciones de la Ley.

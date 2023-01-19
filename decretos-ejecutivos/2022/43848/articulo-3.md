@@ -1,0 +1,1 @@
+Artículo 3.- El INEC, establecerá los criterios de calidad que deben cumplir las estadísticas oficiales, y elaborará de forma bienal un INOE a cargo de las instituciones del SEN. Las nuevas operaciones estadísticas serán incorporadas en el INOE, una vez aprobadas por el CDINEC

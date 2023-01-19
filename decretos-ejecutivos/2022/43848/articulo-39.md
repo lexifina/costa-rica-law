@@ -1,0 +1,5 @@
+Artículo 39.-El gerente es el funcionario de mayor jerarquía administrativa del INEC y tendrá las funciones que le asigna la Ley. En el ejercicio de su cargo, tendrá las siguientes funciones y responsabilidades:
+a. Proponer y presentar al CDINEC para aprobación: proyectos, políticas institucionales, plan de producción plurianual, sistemas de control interno y valoración de los riesgos que enfrenta la entidad, memoria institucional e informes.
+b. Establecer y conformar los comités y comisiones que considere oportunos y necesarios para el funcionamiento del INEC.
+c. Asistir a las sesiones del Consejo Directivo, en las cuales participará con voz, pero sin voto. Cuando lo considere oportuno, podrá solicitar que se hagan constar en actas sus opiniones sobre los asuntos que se debatan.
+d. En el ejercicio de su función le corresponderá resolver los reclamos administrativos de cualquier índole que se presenten contra el INEC. En relación con reclamos de índole económica que tengan que ver con recursos girados al amparo del artículo 76 de la Ley, la Gerencia resolverá previo análisis de las probanzas aportadas.

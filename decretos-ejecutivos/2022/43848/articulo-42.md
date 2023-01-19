@@ -1,0 +1,1 @@
+Artículo 42.-El CDINEC aprobará los lineamientos para las inversiones del INEC. La Administración del INEC someterá a consideración y aprobación del CDINEC las propuestas de inversión de los recursos disponibles. Cada semestre, la Administración le rendirá un informe al CDINEC sobre las inversiones.

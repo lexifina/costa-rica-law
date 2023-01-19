@@ -1,0 +1,1 @@
+Artículo 28.-Los resultados de los servicios de recopilación de datos no se consideran estadísticas oficiales, al menos que así sea establecido, conforme a los procedimientos definidos en este Reglamento.
