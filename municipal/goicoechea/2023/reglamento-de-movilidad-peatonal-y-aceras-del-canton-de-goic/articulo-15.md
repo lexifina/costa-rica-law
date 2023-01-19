@@ -1,0 +1,4 @@
+CAPÍTULO III
+Personas propietarias o poseedoras
+Artículo 15.-Obligación. Son deberes de las personas propietarias o poseedoras de los inmuebles ubicados en el cantón de Goicoechea, velar por el cuidado y resguardo de la infraestructura pública de las aceras así como la seguridad de las personas peatonas cuando se realicen obras de reparación y mantenimiento.
+Las personas propietarias o poseedoras de los predios o inmuebles ubicados en el cantón de Goicoechea tendrán la obligación de construir y dar mantenimiento a las aceras frente a sus propiedades, remover objetos, materiales o similares de las aceras, abstenerse de obstaculizar el paso por las aceras con objetos o vehículos, así como instalar bajantes y canoas para recoger las aguas pluviales de las edificaciones, cuyas paredes externas colinden con vía pública.

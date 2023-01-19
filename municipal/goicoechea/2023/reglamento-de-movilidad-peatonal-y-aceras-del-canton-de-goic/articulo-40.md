@@ -1,0 +1,2 @@
+Artículo 40.-Sobre los desniveles. La diferencia de nivel entre la vía de circulación peatonal y la calzada no debe superar dieciocho (18) centímetros de altura y no ser inferior a quince (15) centímetros de altura. Cuando se superen los dieciocho (18) centímetros de altura, se debe disponer de bordillos, de acuerdo a lo establecido en la normativa vigente.
+Donde exista desnivel entre la vía de circulación peatonal y la senda para el cruce de la calzada, el mismo se debe salvar mediante vados, de acuerdo a lo establecido en la normativa vigente.

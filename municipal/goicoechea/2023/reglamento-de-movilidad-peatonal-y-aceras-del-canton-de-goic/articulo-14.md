@@ -1,0 +1,1 @@
+Artículo 14.-Convenios con el Ministerio de Obras Públicas y Transporte. La Municipalidad podrá establecer convenios con el Ministerio de Obras Públicas y Transportes con el objetivo de gestionar efectivamente los objetivos del presente Reglamento.

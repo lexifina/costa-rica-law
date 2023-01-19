@@ -1,0 +1,1 @@
+Artículo 48.-Participación y gobernanza. La Municipalidad establecerá un procedimiento directo con la población del cantón, para poder atender de la manera más rápida, requerimientos y solicitudes relacionadas con la infraestructura peatonal y/o conflictos de movilidad donde se exponga la seguridad o integridad de las personas peatonas.

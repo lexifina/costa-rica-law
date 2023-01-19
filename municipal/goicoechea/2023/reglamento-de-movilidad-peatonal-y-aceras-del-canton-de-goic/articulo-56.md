@@ -1,0 +1,1 @@
+Artículo 56.-La municipalidad realizará las labores de construcción de obra nueva de aceras de forma directa, con el fin de garantizar la accesibilidad, la integridad y la seguridad de todas las personas, previa notificación a la persona propietaria.

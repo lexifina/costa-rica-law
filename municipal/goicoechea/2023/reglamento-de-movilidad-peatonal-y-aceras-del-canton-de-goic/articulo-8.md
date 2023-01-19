@@ -1,0 +1,1 @@
+Artículo 8°-Dispositivos de seguridad. La Municipalidad se encuentra facultada para colocar, en las aceras, cualquier dispositivo de seguridad que pueda garantizar la seguridad de las personas ciudadanas y proteger la infraestructura pública siempre y cuando se respete el ancho mínimo de circulación peatonal libre de obstáculos.

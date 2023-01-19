@@ -1,0 +1,3 @@
+Artículo 41.-De los predios. Todo lote o predio deberá ser conservado en un correcto estado de limpieza, tanto en su infraestructura como en su vegetación, con el fin de no perjudicar o dificultar la circulación sobre las zonas destinadas a la movilidad y visibilidad peatonal.
+En caso que se incumpla o no se observe lo indicado en el párrafo anterior, la Municipalidad notificará a la persona propietaria o poseedora del bien inmueble a efecto de aplicar el procedimiento establecido en el Código Municipal.
+Los cierres perimetrales y cercados de propiedades deberán garantizar la movilidad peatonal.

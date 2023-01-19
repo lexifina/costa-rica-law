@@ -1,0 +1,1 @@
+Transitorio II. Del Estudio Técnico para la Fijación de Costos. La Administración Municipal deberá presentar al Concejo Municipal el estudio técnico para la fijación de costos establecido en el artículo 58 del presente reglamento, en un plazo no mayor a tres meses a partir de la entrada en vigencia del presente reglamento.

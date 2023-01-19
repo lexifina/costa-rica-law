@@ -1,0 +1,1 @@
+Artículo 21.-Sobre las denuncias. La Contraloría de Servicios recibirá las denuncias, quejas, requerimientos y solicitudes relacionada con la infraestructura peatonal y/o conflictos de movilidad donde se exponga la seguridad o integridad de las personas peatonas o el incumplimiento de los lineamientos técnicos de accesibilidad presentes en este reglamento y demás normativa.
