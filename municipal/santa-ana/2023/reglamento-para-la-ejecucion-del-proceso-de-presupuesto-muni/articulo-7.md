@@ -1,0 +1,7 @@
+Artículo 7º-Cualquier propuesta de proyecto realizada desde la ciudadanía (para la aplicación de recursos financieros municipales), deberá ser presentada o respaldada al menos por una agrupación, organización, asociación o institución distrital o cantonal, debidamente acreditada por la Municipalidad, para participar del proceso de Planificación y Presupuesto Municipal Participativo.
+Las propuestas de proyecto también podrán ser formuladas por dos o más agrupaciones, organizaciones o Concejos de Distrito; cuando exista interés en desarrollar proyectos que les beneficie. En este último caso, cada Concejo de Distrito deberá indicar la cantidad de recursos que se tomarán del monto asignado a cada distrito.
+En el caso de organizaciones no formales, éstas deberán acreditarse como tales ante el Proceso de Promoción Social, para lo cual deberán cumplir con lo siguiente:
+1. Reunir y mantener un mínimo de 5 personas físicas plenamente identificadas.
+2. Deberán mantener actualizado un registro de inclusión y exclusión de personas que integran la organización, el cual podrá ser solicitado por la Municipalidad en cualquier momento. Cada vez que se prese3nte un proyecto, deberá presentarse copia de ese registro actualizado.
+3. La organización deberá tener un alcance territorial claramente determinado.
+4. Cualquier documento presentado al Concejo de Distrito para efectos de este reglamento deberá ser acompañado del acta de la sesión en la que se haya discutido el asunto y en la que conste que el acuerdo fue tomado al menos por mayoría simple de sus integrantes.

@@ -1,0 +1,1 @@
+Artículo 11.-Cualquier verificación de falsedad en la información aportada en el formulario de proyectos, será motivo suficiente de rechazo o desestimación de la solicitud; así como de las eventuales responsabilidades penales y civiles que correspondan.
