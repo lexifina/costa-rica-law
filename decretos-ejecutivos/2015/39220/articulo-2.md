@@ -1,1 +1,0 @@
-Artículo 2º—Interés público. Se declara de interés público la actividad de generación distribuida para autoconsumo como un instrumento para promover la generación de electricidad haciendo uso de fuentes de energía renovable, y contribuir con el cumplimiento de la meta establecida por el país de ser carbono neutral.

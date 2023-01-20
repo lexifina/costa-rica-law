@@ -1,1 +1,0 @@
-Artículo 17.—Prohibición de interconexión, distribución y comercialización. Se prohíbe al productor-consumidor no interconectado, que se interconecte a la red de distribución y que distribuya o comercialice de alguna forma, la energía que produzca.

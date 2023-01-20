@@ -1,1 +1,0 @@
-Artículo 32.—De la renovación, cesión, suspensión o cancelación. Para proceder a modificar el asiento de inscripción del contrato de interconexión, la empresa distribuidora deberá notificar a la Dirección de Energía cualquier modificación al contrato de interconexión (sea renovación, cesión, suspensión o cancelación) dentro de los diez días posteriores.

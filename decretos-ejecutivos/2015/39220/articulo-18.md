@@ -1,1 +1,0 @@
-Artículo 18.—El productor-consumidor con un sistema de generación interconectado a la red de distribución. Es el abonado que instala y opera un sistema de generación distribuida para autoconsumo interconectado a la red de distribución eléctrica, por medio un contrato de interconexión.

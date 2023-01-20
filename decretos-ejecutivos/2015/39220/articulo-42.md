@@ -1,1 +1,0 @@
-Artículo 42.—Tarifas. La ARESEP será la responsable de establecer las tarifas de interconexión, acceso, cargos por potencia, actividades de gestión administrativa y técnica y cualquier otro cargo aplicable a la actividad regulada asociada a la generación distribuida para autoconsumo modalidad contractual medición neta sencilla.

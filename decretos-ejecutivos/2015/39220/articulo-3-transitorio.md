@@ -1,1 +1,0 @@
-Transitorio III.—Todos los abonados que instalaron un sistema de generación para autoconsumo con fuentes renovables, previo a la entrada en vigencia de este reglamento, tendrán un plazo máximo de tres meses para solicitar a la empresa distribuidora la interconexión a la red eléctrica, sujetos al análisis correspondiente.

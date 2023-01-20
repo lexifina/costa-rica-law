@@ -1,1 +1,0 @@
-Artículo 24.—Revisión del sistema de generación distribuida para autoconsumo. La empresa distribuidora revisará el sistema de generación distribuida para verificar que cumple las normas técnicas para la operación en paralelo con el sistema de distribución eléctrica.

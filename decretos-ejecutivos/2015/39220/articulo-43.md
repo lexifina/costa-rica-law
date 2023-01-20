@@ -1,1 +1,0 @@
-Artículo 43.—Pruebas técnicas. Aquellas que la empresa distribuidora considere necesarias para resguardar la confiabilidad y seguridad operativa de su red de distribución eléctrica, así como la continuidad y calidad del suministro eléctrico, de acuerdo a lo establecido en el contrato de interconexión.

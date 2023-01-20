@@ -1,1 +1,0 @@
-Artículo 31.—De la inscripción. La empresa distribuidora, dentro de los ocho días posteriores a la firma del contrato de interconexión inscribirá el mismo en el Registro de Generación Distribuida para Autoconsumo de la Dirección de Energía.
