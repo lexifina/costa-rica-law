@@ -1,0 +1,1 @@
+Artículo 3º-Derogaciones. Deróguese el Decreto Ejecutivo Nº 35853-MAG-MEIC del 17 de noviembre del 2009, "RTCR 432: 2009 Reglamento Técnico para Miel de Abejas", publicado en el Diario Oficial La Gaceta Nº 79 del 26 de abril de 2010.
