@@ -1,0 +1,1 @@
+Artículo 14.-Los Estados de Cuenta generados por las compras de combustible deberán ser conciliados de manera semanal y corroborados contra las Liquidaciones presentadas por los funcionarios. Dicha función le corresponderá a la Tesorería de la Institución. Posteriormente, se realizarán conciliaciones mensuales, con el departamento de Contabilidad.

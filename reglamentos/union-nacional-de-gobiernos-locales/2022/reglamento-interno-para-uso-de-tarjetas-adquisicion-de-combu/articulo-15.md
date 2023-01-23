@@ -1,0 +1,1 @@
+Artículo 15.-Para efecto de liquidaciones, los funcionarios deberán remitir un informe a la Tesorería, aportando todos los documentos detallados, conteniendo las facturas originales que respalden la compra de combustibles. Del cual la Tesorería realizará y aplicará el procedimiento respectivo para el pago correspondiente.

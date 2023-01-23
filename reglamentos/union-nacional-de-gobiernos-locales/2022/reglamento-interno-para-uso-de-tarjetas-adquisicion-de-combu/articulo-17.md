@@ -1,0 +1,1 @@
+Artículo 17.-Para efectos de trámite de pago, los funcionarios responsables de las compras de combustibles, facilitarán a la Tesorería, la información precisa y oportuna, para efectos de liquidación, lo podrá verificar a través de los medios existentes su veracidad.

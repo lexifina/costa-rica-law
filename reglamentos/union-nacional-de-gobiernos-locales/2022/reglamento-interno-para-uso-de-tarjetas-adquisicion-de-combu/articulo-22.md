@@ -1,0 +1,1 @@
+Artículo 22.-El suministro de combustible será único y exclusivamente para la flota vehicular de La Unión (UNGL) o vehículos que estén en uso de la Unión, y deberán ajustarse al horario preestablecido por la jefatura responsable, de acuerdo con los parámetros aprobados.
