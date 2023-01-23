@@ -1,0 +1,1 @@
+Artículo 6º-Del monto del subsidio temporal: El monto del subsidio no será en ningún caso, mayor a la suma de dos salarios mínimos de una persona trabajadora no calificada genérica fijados por el Ministerio de Trabajo y Seguridad Social. Dicho monto se adecuará de conformidad con el valor actualizado que establezca dicho Ministerio.

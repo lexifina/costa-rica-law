@@ -1,0 +1,4 @@
+Artículo 5º-Del otorgamiento del subsidio temporal:
+a) El subsidio temporal a una persona o familia solicitante, se otorgará por una única vez por año presupuestario y este se brindará mediante transferencia bancaria o, en casos excepcionales, mediante cheque.
+b) No se tramitarán subsidios temporales durante años consecutivos por un mismo motivo de solicitud. En caso de que una persona o grupo familiar presente solicitudes en años consecutivos por motivos distintos, se realizará valoración de disponibilidad presupuestaria y, en caso necesario se dará prioridad a solicitudes de personas o grupos familiares que se presenten por primera vez.
+d) El subsidio se otorgará para la adquisición de los bienes y/o servicios estipulados en el respectivo acuerdo del Concejo Municipal, de ninguna manera la persona usuaria podrá destinar los fondos para algún otro bien o servicio.
