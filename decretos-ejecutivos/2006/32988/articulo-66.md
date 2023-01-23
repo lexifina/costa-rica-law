@@ -1,1 +1,1 @@
-Artículo 66.—Consolidación preliminar. Con base en las propuestas de programación que presenten los órganos de la Administración Central, la Dirección General de Presupuesto Nacional procederá a realizar una consolidación preliminar de la ejecución, que servirá para determinar, en coordinación con la Tesorería Nacional, las cuotas periódicas máximas por las que la Administración Central podrá comprometerse al pago de sus obligaciones.
+Artículo 66.-Consolidación preliminar. (Derogado por el artículo 6° del decreto ejecutivo N° 44114 del 23 de enero del 2023)

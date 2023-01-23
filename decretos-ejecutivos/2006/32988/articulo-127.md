@@ -1,1 +1,2 @@
-Artículo 127.—Administración de los sistemas contables. La Contabilidad Nacional administrará .los sistemas contables de ejecución de los ingresos y los gastos presupuestarios, teniendo como propósito garantizar la oportunidad y efectividad del registro contable.
+Artículo 127.-Administración de los sistemas contables. La Contabilidad Nacional administrará los sistemas contables que generen afectaciones contables: presupuestarias, patrimoniales y .financieras, teniendo como propósito garantizar fa oportunidad y efectividad del registro contable, conforme a las políticas, los procedimientos y normativa vigente.
+(Así reformado por el artículo 2° del decreto ejecutivo N° 44114 del 23 de enero del 2023)

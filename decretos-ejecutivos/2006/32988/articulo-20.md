@@ -8,11 +8,12 @@ e) Verificar e informar sobre el cumplimiento de los acuerdos tomados por la Aut
 f) Elaborar metodologías de valoración salarial para los puestos gerenciales, de fiscalización superior, directores y subdirectores de programas presupuestarios, directores y subdirectores de órganos desconcentrados y puestos de confianza subalternos, entre otros, para presentarlas a la Autoridad Presupuestaria, a quien le corresponde la respectiva valoración.
 g) Revisar las propuestas salariales para los puestos excluidos del Régimen de Servicio Civil, contemplados en los manuales de clases de las diferentes instituciones, que servirán de insumo, entre otros aspectos técnicos, para posterior resolución de la Autoridad Presupuestaria. En materia salarial podrá contar con el asesoramiento de la Dirección General de Servicio Civil.
 (Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 38941 del 2 de marzo de 2015)
-h) Elaborar estudios técnicos y legales, para determinar la procedencia de nuevos incentivos salariales o modificar la cobertura de los existentes, para la emisión del respectivo acuerdo de la Autoridad Presupuestaria.
+h) (Derogado por el artículo 6° del decreto ejecutivo N° 44114 del 23 de enero del 2023)
 i) (Derogado por el artículo 2° del decreto ejecutivo N° 38941 del 2 de marzo de 2015)
-j) Dar seguimiento al gasto presupuestario máximo establecido en las directrices presupuestarias, para las entidades públicas y órganos desconcentrados.
-k) Dictaminar los documentos presupuestarios remitidos por las entidades y órganos desconcentrados, para verificar el cumplimiento de las Directrices y lineamientos formulados por la Autoridad Presupuestaria.
-(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 38941 del 2 de marzo de 2015)
+j) Dar seguimiento al gasto presupuestario máximo establecido en las directrices presupuestarias, para las entidades públicas.
+(Así reformado el inciso anterior por el artículo 2° del decreto ejecutivo N° 44114 del 23 de enero del 2023)
+k) Dictaminar los documentos presupuestarios remitidos por las entidades, para verificar el cumplimiento de las Directrices y lineamientos formulados por la A P
+(Así reformado el inciso anterior por el artículo 2° del decreto ejecutivo N° 44114 del 23 de enero del 2023)
 l) Elaborar propuestas para adaptar y aplicar la metodología establecida en los manuales de estadísticas de las finanzas públicas, con la finalidad de obtener informes de ingresos, gastos y financiamiento de todo el Sector Público por diferentes clasificaciones, y efectuar análisis sobre diversos aspectos macroeconómicos.
 m) Dar seguimiento a la ejecución del gasto presupuestario del Gobierno Central, y realizar estimaciones mediante el estudio del comportamiento histórico de los rubros principales, la aplicación de modelos y la experiencia, con el propósito de controlar el comportamiento del déficit del Gobierno Central.
 n) Elaborar estadísticas fiscales en materia de empleo, salarios, inversiones financieras, entre otras y la consolidación institucional, funcional y sectorial del Sector Público, mediante la recopilación de información de ingresos, gastos y financiamiento de las entidades que lo conforman.

@@ -108,6 +108,7 @@ articulo-107.md
 articulo-108.md
 articulo-109.md
 articulo-110.md
+articulo-110-bis.md
 articulo-111.md
 articulo-112.md
 articulo-113.md
@@ -152,3 +153,4 @@ articulo-151.md
 articulo-152.md
 articulo-153.md
 articulo-154.md
+articulo-155.md

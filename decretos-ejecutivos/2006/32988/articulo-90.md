@@ -1,1 +1,2 @@
-Artículo 90.—Coordinación. Con el propósito de confeccionar los contratos a que se refiere el artículo anterior, la Tesorería Nacional deberá coordinar con las Administraciones Tributarias los aspectos que estén bajo el ámbito de su competencia.
+Artículo 90.-Coordinación. Con el propósito de confeccionar los contratos y convenios a que se refiere el artículo anterior, la TN será la facultada para definir las estructuras de costos, las comisiones por recaudación, así como los plazos de acreditación de los dineros recaudados y otras obligaciones dentro del ámbito de su competencia; para lo cual deberá coordinar con las áreas correspondientes.
+(Así reformado por el artículo 2° del decreto ejecutivo N° 44114 del 23 de enero del 2023)

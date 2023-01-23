@@ -1,1 +1,2 @@
-Artículo 102.—Cesiones de créditos. Toda persona que posea derechos de crédito cuyo deudor sea el Tesoro Público y los ceda a un tercero, deberán presentar el contrató respectivo respetando todas las formalidades que para tales efectos establece el Código Civil, de conformidad con las disposiciones y procedimientos que al efecto establezca la Tesorería Nacional.
+Artículo 102.-Cesiones de créditos. Toda persona que posea derechos de crédito cuyo deudor sea el Tesoro Público y los ceda a un tercero, deberá presentar la documentación respectiva, según las formalidades establecidas en el Código Civil, y demás disposiciones y procedimientos que al efecto establezca la TN.
+(Así reformado por el artículo 2° del decreto ejecutivo N° 44114 del 23 de enero del 2023)

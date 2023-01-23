@@ -1,1 +1,1 @@
-Artículo 70.—Reprogramación por modificaciones. En forma adjunta a los decretos de modificación presupuestaria, así como a las solicitudes de nuevo gasto o modificaciones para su inclusión en proyectos de Ley de Presupuestos extraordinario, los órganos componentes del Presupuesto de la República deberán enviar a la Dirección General de Presupuesto la reprogramación de la ejecución del gasto que resulte de esos cambios.
+Artículo 70.-Reprogramación por modificaciones. (Derogado por el artículo 6° del decreto ejecutivo N° 44114 del 23 de enero del 2023)
