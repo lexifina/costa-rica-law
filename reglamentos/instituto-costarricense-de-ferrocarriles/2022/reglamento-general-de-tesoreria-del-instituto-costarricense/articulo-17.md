@@ -1,0 +1,1 @@
+Artículo 17. - El Tesorero enviará mensualmente un informe sobre la situación de las Cuentas por Cobrar en los términos del artículo 11, inciso b.2), del presente Reglamento, a la Dirección Financiera.

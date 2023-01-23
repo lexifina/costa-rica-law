@@ -1,0 +1,1 @@
+Artículo 19. - Los cheques deben estar previamente numerados igual que las transferencias que emita el sistema. El control y la custodia de la existencia de los cheques en blanco estará a cargo del Tesorero.

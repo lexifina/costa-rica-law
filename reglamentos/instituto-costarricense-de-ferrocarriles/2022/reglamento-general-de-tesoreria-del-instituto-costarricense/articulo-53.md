@@ -1,0 +1,1 @@
+Artículo 53. -Es responsabilidad del Director financiero o quien se designe, de diseñar y mantener un adecuado sistema de control del fondo autorizado en caja chica, en concordancia con las prácticas sanas de control interno, el Manual de Normas Técnicas de Control Interno para la Contraloría General de la República y demás órganos Sujetos a su Fiscalización.

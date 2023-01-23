@@ -1,0 +1,1 @@
+Artículo 28. -Las garantías en efectivo deberán estar depositadas en las cuentas bancarias destinadas para tales fines ya sea en moneda de colones o dólares. Es terminantemente prohibido al Tesorero y al personal de la Tesorería cambiar cheques. Podrán ser recibidos como pago, únicamente, cuando vengan girados a nombre de INCOFER.

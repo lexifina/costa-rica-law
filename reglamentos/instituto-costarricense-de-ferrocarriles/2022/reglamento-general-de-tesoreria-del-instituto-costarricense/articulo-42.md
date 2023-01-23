@@ -1,0 +1,1 @@
+Artículo 42. -Contenido Presupuestario: Toda erogación de caja chica, deberá ser respaldada previamente por la respectiva reserva presupuestaria, a su vez, se tiene que verificar que no haya existencias en inventario de las mercancías solicitadas y que éstas no se encuentren en trámite de compra, antes de otorgar dicho contenido.

@@ -1,0 +1,1 @@
+Articulo 21.- Las personas autorizadas para firmar cheques y otros títulos valores serán designados por el Presidente Ejecutivo y deberán firmar en forma mancomunada al menos dos funcionarios, sin que esto afecte las medidas de Control Interno que para estos casos rigen.

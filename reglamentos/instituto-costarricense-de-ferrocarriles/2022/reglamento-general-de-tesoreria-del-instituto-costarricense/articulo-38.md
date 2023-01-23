@@ -1,0 +1,1 @@
+Artículo 38. -Arqueos: El monto de Caja Chica estará sujeto a arqueos periódicos o sorpresivos a cargo de la Dirección Financiera y cualquier otro órgano externo facultado para ello. Estos arqueos deberán hacerse en presencia del custodio y para tal fin se dispondrá de un formulario que será firmado por el custodio y el revisor, como evidencia de la acción.

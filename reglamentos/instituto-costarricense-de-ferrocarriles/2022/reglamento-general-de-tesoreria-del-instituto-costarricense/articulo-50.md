@@ -1,0 +1,1 @@
+Artículo 50. -Solicitud de Reintegro: Cuando el monto del fondo se halla agotado hasta por un 50%, el funcionario encargado hará la solicitud de reintegro de lo gastado, de tal manera que las compras por Caja Chica no se interrumpan por falta de efectivo. Dicha solicitud deberá ir respaldada de las facturas originales de los pagos efectuados.

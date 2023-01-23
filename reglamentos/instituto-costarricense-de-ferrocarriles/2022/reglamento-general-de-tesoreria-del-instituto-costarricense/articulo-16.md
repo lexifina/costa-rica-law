@@ -1,0 +1,1 @@
+Artículo 16. - Una vez transcurrido el plazo mencionado en el artículo 11 inciso c 2) la Dirección Financiera procederá a trasladar la cuenta al Departamento Legal para dar inicio al cobro por la vía judicial. Igualmente deberá ordenar los ajustes contables que corresponda.

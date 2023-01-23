@@ -1,0 +1,1 @@
+Artículo 8. - El Tesorero y sus auxiliares deben estar cubiertos de una Póliza de Fidelidad de conformidad con las regulaciones vigentes, lo cual estará enmarcado en lo que se indique en el Reglamento de cauciones del Incofer.

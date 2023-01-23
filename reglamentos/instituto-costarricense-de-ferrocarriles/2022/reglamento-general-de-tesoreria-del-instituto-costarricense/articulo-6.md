@@ -1,0 +1,1 @@
+Artículo 6.- El Tesorero podrá delegar funciones en su personal subalterno para el cumplimiento de las labores encomendadas. Dicho personal será responsable ante el Tesorero del correcto manejo y desempeño de las labores que le sean encomendadas.

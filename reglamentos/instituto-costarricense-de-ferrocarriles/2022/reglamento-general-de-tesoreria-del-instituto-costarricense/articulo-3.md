@@ -1,0 +1,1 @@
+Artículo 3. - El Consejo Directivo del INCOFER dictará las políticas a seguir, competencia de la Tesorería, mismas que se le encomendarán a la Dirección Financiera para que, en forma conjunta, se aboquen a realizar los procedimientos administrativos y sus controles de acuerdo con las normas y principios del Ordenamiento Jurídico vigentes.

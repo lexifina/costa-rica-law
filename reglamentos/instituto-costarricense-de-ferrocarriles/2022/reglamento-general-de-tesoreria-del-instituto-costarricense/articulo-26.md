@@ -1,0 +1,1 @@
+Artículo 26. -El Tesorero emitirá y trasladará a la Dirección Financiera, durante los primeros cinco días hábiles de cada mes, un listado de cheques con más de tres meses de haberse emitido y que permanezcan en custodia de la Tesorería, con el fin de que la Dirección Financiera le indique cuáles cheques del listado deben anularse.

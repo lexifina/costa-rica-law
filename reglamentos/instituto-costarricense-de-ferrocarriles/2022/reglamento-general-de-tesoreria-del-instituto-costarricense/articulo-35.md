@@ -1,0 +1,1 @@
+Artículo 35. -Integridad de la Caja Chica: El monto fijo que opere por el sistema de Cajas Chicas requiere que en todo momento el encargado del mismo tenga la suma total asignada ya sea en efectivo, adelantos de dinero (vales), facturas, tiquetes de caja, solicitudes de reintegro en trámite y otros documentos representativos del efectivo.

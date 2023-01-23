@@ -1,0 +1,1 @@
+Artículo 24. -Para cada cuenta bancaria habrá un Registro Auxiliar para el respectivo Control del Saldo Diario. Todos los cheques o transferencias deberán ser registrados en dicho auxiliar al momento de ser emitidos. Lo mismo deberá ocurrir con los depósitos y las notas de débito o crédito de los bancos.
