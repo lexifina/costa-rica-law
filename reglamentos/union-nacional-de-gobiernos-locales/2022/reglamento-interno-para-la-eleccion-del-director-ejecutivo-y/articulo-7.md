@@ -1,0 +1,1 @@
+Artículo 7º-Finalizadas las entrevistas, se procederá a realizar en la siguiente sesión el nombramiento de la persona que ocupará la Dirección Ejecutiva previo análisis de los atestados y del informe de la comisión especial de las entrevistas.

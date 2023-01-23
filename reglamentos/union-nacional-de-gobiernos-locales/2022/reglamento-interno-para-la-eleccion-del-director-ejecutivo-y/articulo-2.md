@@ -1,0 +1,1 @@
+Artículo 2º-De conformidad con el artículo 16 inciso e de los Estatutos, el Concejo Directivo tiene la facultad de nombrar y remover al director ejecutivo, para lo cual se requiere del voto de dos terceras partes de sus miembros, en ambos casos.

@@ -1,0 +1,1 @@
+Artículo 3º-El director ejecutivo, será un funcionario de tiempo completo, su nombramiento será bajo el régimen de puesto de confianza, le corresponderá el pago de prohibición de acuerdo a la legislación vigente, y su nombramiento será por un plazo de 4 años, pudiendo ser reelecto.

@@ -1,0 +1,1 @@
+Artículo 6º-Posterior a la recepción de la documentación del concurso de antecedentes, se procederá por parte del Concejo Directivo, a calendarizar una entrevista a cada uno de los participantes para lo cual la junta directiva designará una comisión especial compuesta por tres miembros del Concejo Directivo para tal efecto.

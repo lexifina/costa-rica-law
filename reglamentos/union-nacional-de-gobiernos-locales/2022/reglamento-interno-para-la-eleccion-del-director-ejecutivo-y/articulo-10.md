@@ -1,0 +1,1 @@
+Artículo 10.-Para ser nombrados como representantes, no tener prohibición alguna de acuerdo a la ley para ocupar dicho cargo, lo cual se procederá a verificar por parte del Concejo Directivo, no tener sentencias condenatorias en su contra en materia penal, disponer del tiempo necesario para asistir a las sesiones de la Institución que se represente.
