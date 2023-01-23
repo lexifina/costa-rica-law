@@ -1,0 +1,39 @@
+MUNICIPALIDAD DE POÁS
+La suscrita Edith Campos Víquez, en calidad de Secretaria del Concejo Municipal de la Municipalidad de Poás, hago constar que: El Concejo Municipal del Cantón de Poás, en su sesión ordinaria N° 138-2022, celebrada el 20 de diciembre del 2022, según consta en el Acuerdo N° 1784-12-2022, aprobó definitivamente aprobado, el siguiente acuerdo:
+Considerando:
+1.-Que el 31 de mayo del año 2021, se publicó en el Diario Oficial La Gaceta N° 103, Alcance N° 109 la Ley General de Contratación Pública N° 9986, la cual entró a regir el pasado 01 de diciembre del año 2022.
+2.-Que mediante el Decreto Ejecutivo Nº 43808-H, del pasado 01 de diciembre del año 2022, empezó a regir el reglamento a la Ley General de Contratación Pública N° 9986.
+3.-Que la Ley N° 9986 en su título VIII, capítulo I: Adiciones, reformas y derogatorias, específicamente el numeral 134 dispuso reformar el artículo 13, inciso e), y 164 de la Ley 7794, Código Municipal, de 30 de abril de 1998 para que se lea:
+Artículo 13 - Son atribuciones del Concejo:
+(...)
+e) Celebrar convenios, comprometer los fondos o bienes y autorizar los egresos de la municipalidad, excepto los gastos fijos y la adquisición de bienes y servicios que estén bajo la competencia del alcalde municipal, según el reglamento que se emita conforme a la Ley General de Contratación Pública y su reglamento.
+Anteriormente indicaba:
+e) Celebrar convenios, comprometer los fondos o bienes y autorizar los egresos de la municipalidad, excepto los gastos fijos y la adquisición de bienes y servicios que estén bajo la competencia del Alcalde municipal, según el reglamento que se emita, el cual deberá cumplir con los principios de la Ley de Contratación Administrativa, No. 7494, de 2 de mayo de 1995 y su reglamento.
+4.-Que conforme al artículo 17 del Código Municipal le corresponden a la persona titular de la alcaldía las siguientes atribuciones y obligaciones:
+b) Delegar las funciones encomendadas por esta ley, con base en los artículos 89 y siguientes de la Ley General de la Administración Pública.
+h) Autorizar los egresos de la municipalidad, conforme al inciso e) del artículo 13 de este código.
+5.-Que el actual Reglamento de Proveeduría de la Municipalidad de Poás, publicado en el Diario Oficial La Gaceta N°. 59 del jueves 25 de marzo de 2021, quedó desactualizado con la entrada en vigor de la Ley General de Contratación Pública N° 9986 y su reglamento.
+6.-Que este Reglamento establecía en los artículos 5 y 7 que:
+Artículo 5.—Competencia de los órganos en la adjudicación: El Concejo Municipal y Alcaldía Municipal adjudicarán los procedimientos de contratación según los límites económicos de contratación administrativa que define y actualiza anualmente la Contraloría General de la República, de acuerdo a la categoría o estrato en la que se ubique la Municipalidad; con los siguientes rangos de aprobación:
+➢ Alcalde Municipal: Adjudicará los procesos de contratación cuyo monto de adjudicación sea el establecido para contrataciones directas y aquellos procesos para obra pública que se realicen a través de contrataciones directas.
+➢ Concejo Municipal: Adjudicará los procesos de contratación para los procedimientos que superen el monto máximo establecido para contrataciones directas.
+Artículo 7°—Concejo Municipal. Tendrá a su cargo las siguientes funciones relacionadas con procesos de contratación:
+a. Adjudicar las contrataciones según el monto de adjudicación.
+b. Autorizar los arrendamientos y ventas de bienes inmuebles propiedad de la Municipalidad, así como las compras de dichos bienes, todo de conformidad con la LCA y el RLCA.
+c. Autorizar o aceptar según corresponda, las donaciones de bienes inmuebles cuando la Municipalidad sea sujeto donante o donatario, previa recomendación de la Comisión de Adquisiciones.
+d. Resolver los recursos de revocatoria según su rango de acción.
+e. Autorizar el procedimiento de remate y subasta, cuando el avalúo se encuentre dentro de su rango de acción, previa recomendación de la Comisión de Adquisiciones.
+7.—Que el artículo 36 de la nueva Ley de Contratación Pública, define los umbrales para determinar los nuevos procedimientos de contratación, perteneciendo la institución al régimen ordinario, que cita:
+Artículo 36.—Umbrales para determinar el procedimiento de contratación El procedimiento de contratación se determinará de acuerdo con los siguientes umbrales:
+a) Régimen ordinario:
+i) Se realizará procedimiento de licitación mayor en las contrataciones de bienes y servicios cuya estimación sea superior a doscientos treinta y ocho millones doscientos veintitrés mil novecientos sesenta colones ((¢238 223 960), licitación menor en las contrataciones de bienes y servicios cuya estimación sea igual o inferior a doscientos treinta y ocho millones doscientos veintitrés mil novecientos sesenta colones ((¢238 223 960) pero superior a cincuenta y nueve millones quinientos cincuenta y cinco mil novecientos noventa colones ((¢59 555 990) y licitación reducida en aquellos casos cuya estimación sea igual o menor a cincuenta y nueve millones quinientos cincuenta y cinco mil novecientos noventa colones ((¢59 555 990).
+ii) Se realizará procedimiento de licitación mayor en las contrataciones de obra pública cuyo valor sea superior a seiscientos cuarenta y un millones trescientos setenta y dos mil doscientos colones (¢641 372 200), licitación menor en las contrataciones de obra pública cuya estimación sea igual o inferior a seiscientos cuarenta y un millones trescientos setenta y dos mil doscientos colones (¢641 372 200) pero superior a ciento sesenta millones trescientos cuarenta y tres mil cincuenta colones (¢160 343 050), y licitación reducida en aquellos casos cuya estimación sea igual o menor a ciento sesenta millones trescientos cuarenta y tres mil cincuenta colones ((¢160 343 050).
+8.—Que en el capítulo II de la Ley de Contratación Pública N° 9986, se definen tres procedimientos ordinarios: Licitación mayor, Licitación Menor y Licitación Reducida.
+9.—Que la Ley General de Contratación Pública N° 9986 y su reglamento, plantea una reforma integral a la normativa, procedimiento y directrices institucionales en materia de compras para la atención de necesidades de bienes, servicios y obra pública; lo cual obliga a realizar un replanteamiento en la normativa interna.
+10.—Que, de acuerdo con lo expuesto, será necesario que el Concejo Municipal y Alcalde emitan una disposición temporal referente a los procedimientos de contratación pública, específicamente en cuanto a la recomendación y el acto final de adjudicación de los estos procedimientos.
+Se acuerda:
+Acuerdo N°. 1784-12-2022.
+El Concejo Municipal de Poás, con base en los elementos de hecho y derechos antes expuestos, en el oficio N° MPO-ALM-743-2022, del MBA. Heibel Rodríguez Araya, Alcalde Municipal. Se acuerda:
+Primero: corresponderá al Concejo Municipal, autorizar los egresos y emitir el acto final de los procedimientos derivados de licitación mayor, licitación menor y procedimientos especiales, de excepción y urgencia que superen el umbral de la licitación reducida.
+Segundo: Corresponderá al Alcalde, autorizar los egresos y emitir el acto final de los procedimientos derivados de la licitación reducida, así como los procedimientos especiales, de excepción y urgencia que se encuentren dentro del umbral definido para este tipo de procedimiento.
+Tercero: Estas disposiciones regirán temporalmente hasta la entrada en vigencia del nuevo reglamento institucional para la adquisición de bienes, servicios y obra pública de la Municipalidad de Poás, conforme la nueva Ley N° 9986 y su reglamento. Publíquese en el Diario Oficial La Gaceta. Votan a favor los regidores Marco Vinicio Valverde Solís, Gloria E. Madrigal Castro, Tatiana Bolaños Ugalde, Margot Camacho Jiménez, y Marvin Rojas Campos. con dispensa de trámite de comisión. Acuerdo unánime y definitivamente.
