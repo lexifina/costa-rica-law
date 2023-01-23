@@ -1,0 +1,1 @@
+Artículo 6º-Asignación de vehículos. Ningún vehículo estará asignado a funcionario o funcionaria determinado, por lo que será el Titular de la Dirección Financiera quien asignaráel uso de los vehículos a los conductores, conductoras y choferes institucionales previa solicitud en el sistema de control interno que la entidad destine para ese fin.

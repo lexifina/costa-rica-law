@@ -1,0 +1,1 @@
+Artículo 17.-Custodia de los vehículos en gira. Cuando un vehículo se encuentre en gira, deberá ser guardado en lugares que brinden las condiciones de seguridad adecuadas, para lo cual el funcionario a cargo del vehículo es el responsable de estacionar en los lugares adecuados según su valoración de la escogencia de un lugar seguro.

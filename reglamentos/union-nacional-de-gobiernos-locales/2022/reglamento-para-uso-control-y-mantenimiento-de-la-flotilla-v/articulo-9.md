@@ -1,0 +1,1 @@
+Artículo 9º-Atención de solicitudes de vehículos. La atención de las solicitudes de vehículos, serán tramitadas de acuerdo con el orden de presentación de las solicitudes, y en horas hábiles. Entendiéndose para este efecto el horario de las 8 horas a las 16 horas.

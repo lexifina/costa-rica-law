@@ -1,0 +1,1 @@
+Artículo 39.-De la responsabilidad del conductor por daños a terceros, en caso de accidente. El conductor, conductora u chofer institucional que sea declarado responsable por los Tribunales de Justicia deberá pagar el monto correspondiente al deducible o las indemnizaciones que deba de hacer la UNGL, en favor de terceros afectados.

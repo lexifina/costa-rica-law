@@ -1,0 +1,1 @@
+Artículo 49.-Cumplimiento de la normativa. Es responsabilidad exclusiva de cada conductor, conductora u choferes institucionales del UNGL como tal, en lo que corresponda a cada uno, el cumplimiento de lo establecido en el presente Reglamento, de ahí que si acata órdenes que contravenga dichas disposiciones, asumirá las consecuencias que esa acción conlleve.

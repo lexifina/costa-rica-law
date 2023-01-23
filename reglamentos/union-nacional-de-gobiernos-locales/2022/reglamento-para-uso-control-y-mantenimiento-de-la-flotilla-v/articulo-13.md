@@ -1,0 +1,6 @@
+Artículo 13.-Entrega del vehículo. Se procede lo siguiente:
+1. Una vez finalizada la gira, es responsabilidad del conductor, conductora u choferes institucionales realizar la revisión del vehículo con el Director Financiero o quien este designe, siguiendo las instrucciones que se haya dictado al respecto.
+2. No se deben dejar artículos personales, basura o materiales dentro del vehículo.
+3. Los vehículos deben de ser entregados el día y hora señalada en la solicitud, en caso de requerir extender la gira debe de ser comunicado a la Dirección Financiera para validar la disponibilidad y ser autorizado por la Jefatura inmediata.
+4. Si en la entrega del vehículo se determina que el mismo viene con algún daño, golpe o le hace falta alguna herramienta, el Director Financiero realizará la anotación en la boleta respectiva, lo comunicará al funcionario para que el funcionario realice el informe escrito correspondiente, además seguirá el procedimiento para aviso de accidentes.
+5. La Dirección Financiera o quien este designe, realizará revisión de los vehículos después de cada servicio, y tendrá un lapso de un día hábil para notificar cualquier daño que haya sido causado en la gira o con ocasión de ésta, que no haya sido visto en la revisión de entrega.

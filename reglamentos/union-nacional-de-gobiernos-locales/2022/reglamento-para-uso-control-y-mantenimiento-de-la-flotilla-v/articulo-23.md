@@ -1,0 +1,1 @@
+Artículo 23.-Personas autorizadas para conducir vehículos de la UNGL. Únicamente están autorizados para conducir vehículos de uso de la UNGL quienes tengan una relación laboral con la entidad y estén previamente autorizados en el sistema de control interno por la Dirección Financiera.

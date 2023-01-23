@@ -1,0 +1,1 @@
+Artículo 32.-Prohibición del uso de vehículos oficiales en actividades particulares. No se podrán utilizar vehículos de la UNGL para actividades que no sean propias de la Institución, así mismo queda prohibida la utilización de estos en actividades político- electorales.

@@ -1,0 +1,1 @@
+Artículo 10.-Disponibilidad de vehículos. Corresponde a la Dirección Financiera, una vez recibidas las solicitudes, realizar la asignación del vehículo y entregar la boleta de salida misma que deberá indicar el kilometraje del vehículo al momento de la entrega, llaves, una ficha del estado del vehículo.

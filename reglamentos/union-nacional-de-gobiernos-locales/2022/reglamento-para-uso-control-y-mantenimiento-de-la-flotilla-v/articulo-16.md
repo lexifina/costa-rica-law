@@ -1,0 +1,1 @@
+Artículo 16.-De la custodia de los vehículos. Todos los vehículos institucionales deben ser guardados al final de la jornada en el estacionamiento del edificio institucional. Excepto aquellos que se encuentren de gira, deberán ser guardados en la entidad el día en que se indica que finaliza la gira según la solicitud previamente aprobada.

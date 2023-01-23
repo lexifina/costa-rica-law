@@ -1,0 +1,1 @@
+Artículo 14.-Agrupación de solicitudes. Con el propósito de lograr un mejor aprovechamiento de los vehículos disponibles, la Dirección Financiera coordinará con los diferentes funcionarios el agruparlos en un solo vehículo cuando se dirigen a un mismo destino, con la finalidad de optimizar el recurso.

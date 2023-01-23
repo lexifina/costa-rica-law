@@ -1,0 +1,1 @@
+Artículo 29.-Uniformidad de vehículos. Para que los vehículos de la UNGL circulen dentro de las normas apropiadas de seguridad y ofrezcan una apariencia uniforme, no se deben colocar adornos, tanto en el interior como en el exterior de estos, o mantener objetos en el panel de instrumentos, que afecten la buena conducción del vehículo.

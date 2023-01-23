@@ -1,0 +1,1 @@
+Artículo 11.-Cambios en las solicitudes. En el caso que se requiera realizar un cambio en las solicitudes de las giras ya aprobadas, el funcionario debe de comunicarlo por medio de correo electrónico a la Dirección Financiera con el visto bueno de la Jefatura inmediata.
