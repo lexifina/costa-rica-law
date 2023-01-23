@@ -14,3 +14,4 @@ Emite resoluciones de la Dirección General del Servicio Civil (DG-296-2011, DG-
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-06-30 | la propia norma |
+| 2 | 2023-01-23 | Resolución 1 (2023-01-23) |

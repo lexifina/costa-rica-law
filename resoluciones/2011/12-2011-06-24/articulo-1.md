@@ -1,5 +1,5 @@
 DIRECCIÓN GENERAL DE SERVICIO CIVIL
-Nº SC-012-2011.—San José, 24 de junio del 2011
+Nº SC-012-2011.-San José, 24 de junio del 2011
 Se hace saber que la Dirección General de Servicio Civil ha emitido las siguientes resoluciones:
 - DG-296-2011. Modificar el Manual Descriptivo de Especialidades para incluir la carrera de Maestría en Administración de la Tecnología de la Información como atinente a la especialidad Formación Profesional subespecialidad Generalista.
 - DG-298-2011. Modificar el Manual Descriptivo de Especialidades para incluir la Carrera de Licenciatura en Comunicación de Mercadeo como atinente para la especialidad Fomento de Actividades Culturales.
@@ -13,3 +13,4 @@ Se hace saber que la Dirección General de Servicio Civil ha emitido las siguien
 - DG-310-2011. Modificar el Manual Descriptivo de Especialidades para incluir la Carrera Ciencias de la Educación Preescolar Bilingüe, dentro de las atinencias para la Especialidad Atención Integral de Infantes.
 - DG-313-2011. Modificar el artículo 7º inciso a) del Anexo a la Resolución Nº DG-085-99.
 - DG-329-2011. Crear la clase de Secretario de Consejo Presidencial, como parte del Manual de Puestos Sin Oposición y según la descripción y especificación que se adjunta.
+(Nota de Sinalevi: Mediante resolución N° DG-AV-1-2023.-23 de enero de 2023 se emite la resolución N° DG-RES-114-2022 la cual acuerda reformar el Manual de Clases del Servicio Sin Oposición del Ministerio de la Presidencia, contenido en la Resolución N° DG-329-2011, del 22 de junio del 2011 y sus reformas)
