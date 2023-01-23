@@ -1,0 +1,1 @@
+Artículo 37.-Cuando se trate de unificar dos tramos contiguos el trámite deberá realizarse directamente en el Departamento de Control y Planificación Urbana, siempre y cuando se tenga el visto bueno de la Alcaldía y que no violente lo establecido en el presente Reglamento.

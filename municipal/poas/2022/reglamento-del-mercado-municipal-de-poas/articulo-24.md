@@ -1,0 +1,1 @@
+Artículo 24.-En caso de daños o reparaciones internas de los servicios públicos de electricidad, agua y otros, los inquilinos están en la obligación de facilitar la entrada al local o puesto, a los operarios municipales o de otras entidades para las labores respectivas.

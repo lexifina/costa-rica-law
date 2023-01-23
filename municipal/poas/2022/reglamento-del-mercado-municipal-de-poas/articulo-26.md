@@ -1,0 +1,1 @@
+Artículo 26.-No se permitirá mantener basura, desechos, cajas vacías, cosas en mal estado, yerbas secas, cosas inflamables, etc., sobre los techos de los locales, tramos o negocios. El acto de comprobarse una desobediencia por parte de algún inquilino será causal suficiente de la pérdida del derecho de explotación que le confiere la Municipalidad.

@@ -1,0 +1,1 @@
+Artículo 18.-Una persona física o jurídica no podrá acceder a más de dos derecho o local inscrito a su nombre, y no permitirá en forma alguna la cesión de parte de un tramo, así como el subarriendo o traspaso subrepticio del mismo, los cuales se consideran como causales para la rescisión unilateral del contrato.

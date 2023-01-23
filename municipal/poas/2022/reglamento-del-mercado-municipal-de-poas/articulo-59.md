@@ -1,0 +1,2 @@
+Artículo 59.-Conforme al artículo 43 del Código Municipal, se somete a consulta pública no vinculante, por un plazo mínimo de diez días hábiles, luego del cual se pronunciará sobre el fondo del asunto. Publíquese en el Diario Oficial La Gaceta. Este reglamento suplanta al publicado en el Diario Oficial La Gaceta, San Pedro de Poás del 24 de mayo de 2008 y las modificaciones establecidas en La Gaceta N° 218 del 12 de noviembre de 2012.
+Poás, 5 de enero de 2023.

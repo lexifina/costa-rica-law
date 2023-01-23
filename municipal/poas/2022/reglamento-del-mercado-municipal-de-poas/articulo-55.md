@@ -1,0 +1,1 @@
+Artículo 55.-La Municipalidad, podrá destinar el área de Servicios sanitarios a uso público o bien, a arrendarlo como un local comercial más, en este segundo caso, utilizará el último estudio técnico realizado para determinar el valor del alquiler del mismo, dicho estudio técnico no podrá tener más de 5 años de elaborado.

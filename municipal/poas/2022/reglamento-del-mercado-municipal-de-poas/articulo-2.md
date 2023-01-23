@@ -1,0 +1,1 @@
+Artículo 2°-Se denomina Mercado los lugares construidos o destinados por la Municipalidad para servir como centro de expendio o abastecimiento de artículos de primera necesidad, consumo popular, gastronomía o uso doméstico, o bien servicios fundamentales para el desarrollo del cantón.

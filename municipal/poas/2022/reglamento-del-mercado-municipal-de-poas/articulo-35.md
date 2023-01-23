@@ -1,0 +1,1 @@
+Artículo 35.-Renuncia. Pese a la declaratoria de desocupación, para evitar la acumulación del cobro, el arrendatario deberá formular por escrito la renuncia definitiva ante el funcionario Administrador del Mercado o la Alcaldía.

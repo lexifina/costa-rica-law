@@ -1,0 +1,1 @@
+Artículo 44.-Los inquilinos deberán mantener sus tramos en orden y limpieza, la cual será pagada de su peculio. El servicio especial de cañería deberá ser pagado por el inquilino que lo solicite y el importe se cargará en el recibo correspondiente.

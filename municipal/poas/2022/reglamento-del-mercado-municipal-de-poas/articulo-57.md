@@ -1,0 +1,1 @@
+Artículo 57.-Los arrendatarios o inquilinos del Mercado están sometidos a las disposiciones de este Reglamento a partir de su publicación y no podrán alegar ignorancia de sus disposiciones ni de la normativa conexa.

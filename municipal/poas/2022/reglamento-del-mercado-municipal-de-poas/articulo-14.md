@@ -1,0 +1,1 @@
+Artículo 14.-En caso de venta mercaderías diferentes a aquellas para las cuales fue adjudicado el puesto se procederá con una revisión para constatar la infracción. La infracción a esta disposición provocará el rompimiento del contrato en forma inmediata.

@@ -1,0 +1,1 @@
+Artículo 58.-Con fundamento en la Ley de Comercio al Aire Libre N° 10126. La Municipalidad divulgará y propiciará que los inquilinos se beneficien de esa normativa para crear negocios más innovadores y productivos.
