@@ -1,2 +1,0 @@
-Artículo 12.—Cuando por algún motivo la compra no se lleve a cabo, el funcionario que ha recibido el dinero del vale, deberá hacer el reintegro inmediato del dinero entregado para tales efectos, aportando una justificación escrita, avalada con la firma de la jefatura superior inmediata.
-(Así corrida la numeración en sesión N° 055 del 16 de mayo del 2017, que lo traspasó del antiguo artículo 11) al 12))

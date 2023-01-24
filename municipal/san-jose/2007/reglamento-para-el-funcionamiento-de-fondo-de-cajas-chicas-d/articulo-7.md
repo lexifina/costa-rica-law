@@ -1,2 +1,0 @@
-Artículo 7º—La Caja Chica, mantendrá siempre el total del monto asignado, el cual estará conformado de la siguiente forma: Dinero en efectivo, vales liquidados, vales pendientes de liquidación y vales en trámite de reintegro. En ningún momento ni por motivo alguno, se podrán sustituir esos valores por otros de naturaleza distinta al de la Caja Chica.
-(Así corrida la numeración en sesión N° 055 del 16 de mayo del 2017, que lo traspasó del antiguo artículo 6) al 7))

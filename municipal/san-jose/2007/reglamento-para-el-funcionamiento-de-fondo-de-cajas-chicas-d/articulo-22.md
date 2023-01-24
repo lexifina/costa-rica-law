@@ -1,2 +1,0 @@
-Artículo 22.—Si por caso fortuito o fuerza mayor el encargado del fondo se ausente de su puesto y siendo necesario la utilización del fondo, se realizará un arqueo en presencia del tesorero municipal o a quien él designe y dos testigos, haciendo constar mediante un documento firmado, el contenido del mismo.
-(Así corrida la numeración en sesión N° 055 del 16 de mayo del 2017, que lo traspasó del antiguo artículo 21) al 22))
