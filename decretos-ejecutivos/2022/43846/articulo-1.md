@@ -1,0 +1,19 @@
+N° 43846-MEIC-MAG-COMEX-S
+EL PRESIDENTE DE LA REPÚBLICA,
+Y LOS MINISTROS DE ECONOMÍA, INDUSTRIA
+Y COMERCIO, DE AGRICULTURA Y GANADERÍA,
+DE COMERCIO EXTERIOR Y DE SALUD
+En el ejercicio de las facultades que les confiere los artículos 140, incisos 3) y 18) y el 146 de la Constitución Política; los artículos 25 inciso 1) y 28 inciso 2), acápite b) de la Ley General de la Administración Pública, Ley N° 6227 del 02 de mayo de 1978; el artículo 2 de la Ley de Creación del Ministerio de Comercio Exterior y de la Promotora del Comercio Exterior de Costa Rica, Ley N° 7638 del 30 de octubre de 1996; la Ley de Promoción de la Competencia y Defensa Efectiva del Consumidor, Ley N° 7472 del 20 de diciembre de 1994; la Ley Orgánica del Ministerio de Economía, Industria y Comercio, Ley N° 6054 del 14 de junio de 1977; la Ley General de Salud, Ley N° 5395 del 30 de octubre de 1973; la Ley Orgánica del Ministerio de Salud, Ley N° 5412 del 08 de noviembre de 1973; la Ley de Fomento a la Producción Agropecuaria (FODEA) y Orgánica del Ministerio de Agricultura y Ganadería, Ley N° 7064 del 29 de abril de 1987; y
+Considerando:
+I.-Que, de acuerdo con lo dispuesto por la Constitución Política, en sus artículos 21 y 50, el derecho a la vida y a la salud de las personas es un derecho fundamental, así como el bienestar de la población, los cuales se tornan en bienes jurídicos de interés público y, ante ello, el Estado tiene la obligación inexorable de velar por su tutela, invocando el principio de unidad estatal y el poder directivo que reviste su función. Por lo que, derivado de ese deber de protección, se determina la necesidad de adoptar y generar medidas de salvaguarda inmediatas cuando tales bienes jurídicos están en amenaza o peligro.
+II.-Que, mediante el Decreto Ejecutivo N° 42227-MP-S del 16 de marzo de 2020, publicado en el Alcance N° 46 al Diario Oficial La Gaceta N° 51 del 16 de marzo de 2020, se declaró estado de emergencia nacional en todo el territorio de la República, debido a la situación sanitaria provocada por la enfermedad COVID-19.
+III.-Que, mediante el Decreto Ejecutivo N° 42291-MEIC-S-COMEX del 08 de abril de 2020, publicado en el Alcance N° 82 al Diario Oficial La Gaceta N° 76 del 10 de abril de 2020, se procedió por parte del Poder Ejecutivo a la emisión de la regulación sobre Licencias de exportación de productos específicos, dada la existencia de riesgo de desabasto en el mercado local para la atención de la emergencia sanitaria por la enfermedad COVID-19.
+IV.-Que, mediante el Decreto Ejecutivo N° 43650-MP-S del 10 de agosto de 2022, publicado en el Diario Oficial La Gaceta N° 155 del 17 de agosto de 2022, se procedió a declarar la cesación del estado de emergencia declarado mediante el Decreto Ejecutivo N° 42227-MP-S.
+V.-Que, dada la cesación del estado de emergencia, se considera oportuno proceder a la derogatoria del Decreto Ejecutivo N° 42291-MEIC-S-COMEX del 08 de abril de 2020, y su reforma, el Decreto Ejecutivo N° 42354-MEIC-S-MAG-COMEX del 21 de mayo de 2020, publicado en el Alcance N° 151 al Diario Oficial La Gaceta N° 149 del 22 de junio de 2020. Por tanto,
+Decretan:
+DEROGATORIA DEL DECRETO EJECUTIVO
+N° 42291-MEIC-S-COMEX DEL 08 DE ABRIL DE 2020,
+Y SU REFORMA, EL DECRETO EJECUTIVO
+N° 42354-MEIC-S-MAG-COMEX
+DEL 21 DE MAYO DE 2020
+Artículo 1º-Derogatoria. Deróguese el Decreto Ejecutivo N° 42291-MEIC-S-COMEX del 08 de abril de 2020, publicado en el Alcance N° 82 al Diario Oficial La Gaceta N° 76 del 10 de abril de 2020, denominado "Licencias de exportación de productos específicos, dada la existencia de riesgo de desabasto en el mercado local para la atención de la emergencia sanitaria por la enfermedad COVID-19", y su reforma, el Decreto Ejecutivo N° 42354-MEIC-S-MAG-COMEX del 21 de mayo de 2020, publicado en el Alcance N° 151 al Diario Oficial La Gaceta N° 149 del 22 de junio de 2020.
