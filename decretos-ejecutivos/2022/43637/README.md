@@ -14,3 +14,4 @@ Creación de la Comisión Auxiliar de la Comisión Nacional de Conmemoraciones H
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-08-05 | la propia norma |
+| 2 | 2023-01-24 | Decreto Ejecutivo 43927 (2023-01-24) |
