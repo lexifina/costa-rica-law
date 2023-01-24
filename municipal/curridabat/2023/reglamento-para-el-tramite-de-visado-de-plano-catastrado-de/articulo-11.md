@@ -1,0 +1,3 @@
+CAPÍTULO III
+Trámite
+Artículo 11.-Sobre la presentación de la solicitud. El peticionario presentará la solicitud completa en la Plataforma de Servicios o por el medio electrónico que la Municipalidad habilite para tal fin, al que se le asignará un número de trámite único, y se remitirá a la Dirección de Sistemas de Información Territorial para su análisis y resolución, o la oficina que así designe la Alcaldía.
