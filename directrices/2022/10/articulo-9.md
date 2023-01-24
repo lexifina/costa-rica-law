@@ -1,0 +1,1 @@
+Artículo 9º-Facultad de uso de la Directriz. Cualquier institución pública no contemplada en el ámbito de aplicación de la presente Directriz podrá adoptar ésta como guía o complemento a la aplicación del Reglamento a la Ley N° 8862, Decreto Ejecutivo N° 36462-MP-MTSS.

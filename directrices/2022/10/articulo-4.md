@@ -1,0 +1,1 @@
+Artículo 4º-Obligación de ocupar las plazas vacantes reservadas en el misino año. Se instruye a la Administración Pública Central y se insta a la Administración Pública Descentralizada, la obligatoriedad de ocupar las plazas vacantes reservadas en el mismo año, en que se reservan para evitar la acumulación de plazas reservadas, sin ocupar en el Sector Público.
