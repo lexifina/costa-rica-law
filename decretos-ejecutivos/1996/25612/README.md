@@ -19,3 +19,4 @@ Fíjase Contribución Obligatoria Financiamiento Promotora Comercio Exterior (PR
 | 4 | 2012-08-09 | Decreto Ejecutivo 37281 (2012-08-09) |
 | 5 | 2013-04-23 | Decreto Ejecutivo 37671 (2013-04-23) |
 | 6 | 2014-04-01 | Decreto Ejecutivo 38355 (2014-04-01) |
+| 7 | 2023-01-24 | Decreto Ejecutivo 43905 (2023-01-24) |
