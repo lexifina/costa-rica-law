@@ -1,2 +1,0 @@
-Artículo 35.-De las Gerencias del ICE:
-1. Cada Gerencia adscrita será la responsable de tomar las acciones que permitan aplicar las mejores prácticas del mercado, a fin de garantizar la adecuada y oportuna ejecución de las Asociaciones Empresariales que se suscriban, y garantizar la incorporación de las medidas pertinentes que durante la ejecución se determine sea necesario ejecutar, con base en los resultados obtenidos.

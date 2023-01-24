@@ -1,1 +1,0 @@
-Transitorio I. Todos los Acuerdos de Asociación Empresarial vigentes al momento de entrada en vigor del presente Reglamento, se regirán por la normativa vigente al momento de la formalización, salvo en lo indicado en el Capítulo IX de Seguimiento y Control de la presente reforma al Reglamento.

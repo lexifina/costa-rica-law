@@ -1,1 +1,0 @@
-Artículo 27.-Asesorías en la ejecución. La División Jurídica, así como la Gerencia de Finanzas, brindarán la asesoría que se le requiera durante la etapa de ejecución de la Asociación Empresarial, según sea necesario y de conformidad con los requerimientos formalizados.

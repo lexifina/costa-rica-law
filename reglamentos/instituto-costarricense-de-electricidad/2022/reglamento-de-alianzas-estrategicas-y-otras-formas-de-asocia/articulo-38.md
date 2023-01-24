@@ -1,1 +1,0 @@
-Artículo 38.-Derogatorias. Se deroga el Reglamento de Alianzas Estratégicas y Otras Formas de Asociación y Colaboración Empresarial, versión 3, vigente a partir del 23 de mayo de 2018, así como cualquier otra normativa, directriz, lineamiento o circular que se le oponga.

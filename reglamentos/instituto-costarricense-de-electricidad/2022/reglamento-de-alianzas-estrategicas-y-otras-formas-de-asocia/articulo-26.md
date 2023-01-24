@@ -1,5 +1,0 @@
-CAPÍTULO VIII
-De la Ejecución
-Artículo 26.-Fase de Ejecución. Una vez implementado el negocio o formalizado el Acuerdo según proceda, la Unidad Gestora traslada el expediente completo a la Unidad Ejecutora, la cual será la responsable de supervisar y dar seguimiento a la ejecución de la Asociación Empresarial; para tal fin podrá gestionar en forma oportuna la asesoría y colaboración de las distintas áreas involucradas, considerando áreas técnicas, administrativas, comerciales, jurídicas y de gestión financiera. Asimismo, deberá mantener la custodia y actualización del expediente.
-Las distintas dependencias de la Gerencia respectiva deberán acatar lo solicitado por la Unidad Ejecutora, a fin de llevar a buen término la ejecución de la Asociación Empresarial. En caso de que se incumpla esta obligación, así lo hará saber la Unidad Ejecutora a la Gerencia correspondiente.
-La documentación técnica y administrativa generada en esta fase de ejecución y seguimiento debe ser incorporada al expediente de la Asociación Empresarial. En cada documento se debe consignar la autoría, revisión y se deben incluir las firmas de los autores y revisores.

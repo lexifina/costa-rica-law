@@ -1,5 +1,0 @@
-CAPÍTULO V
-Del Análisis Preliminar del Negocio
-Artículo 16.-De la orientación de las Asociaciones Empresariales. Toda forma de Asociación Empresarial deberá ser congruente con los objetivos de la Estrategia del ICE y estar orientada a fortalecerla y a mejorar su participación relativa en el mercado, a aumentar el valor que el Instituto le brinda a la sociedad costarricense, así como el mejor aprovechamiento posible de los recursos desde una perspectiva sectorial.
-Las Asociaciones Empresariales que realice el ICE deberán considerar aspectos según el tipo de Asociación, tales como: a) retorno de la inversión, margen neto, porcentaje de participación de los ingresos, detalle de la contribución de ambas partes en las inversiones y egresos; b) beneficios de la Asociación Empresarial, incluyendo fidelización y retención, c) valor agregado a los productos; d) potencial del negocio, etc.
-Las negociaciones se inspirarán en los principios de buena fe, ética, equilibrio de intereses, razonabilidad, colaboración, confianza, responsabilidad, probidad y eficiencia.
