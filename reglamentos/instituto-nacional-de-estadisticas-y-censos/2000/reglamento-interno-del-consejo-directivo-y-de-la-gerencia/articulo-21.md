@@ -1,1 +1,0 @@
-Artículo 21.—Mociones. Los Directores podrán en cualquier momento de la sesión, presentar mociones sobre los asuntos que se estén discutiendo; aquellas que se refieran a cuestiones de orden o procedimiento tendrán prioridad en la discusión.

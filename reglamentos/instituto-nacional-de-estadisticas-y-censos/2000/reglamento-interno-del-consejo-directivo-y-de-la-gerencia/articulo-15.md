@@ -1,2 +1,0 @@
-Artículo 15.—Quórum de las sesiones. El quórum para que pueda sesionar válidamente el Consejo Directivo será el de la mayoría absoluta de sus miembros. Si no hubiere quórum, el órgano podrá sesionar válidamente en segunda convocatoria veinticuatro horas después de la señalada para la primera, salvo casos de urgencia en que podrá sesionar después de quince minutos y para ello será suficiente la asistencia de al menos tres de sus miembros.
-(Así reformado en sesión N° 703 del 22 de octubre de 2013)

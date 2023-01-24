@@ -1,1 +1,0 @@
-Artículo 20.—Conocimiento de asuntos de urgencia. En caso de que deba conocerse algún asunto con urgencia declarada, que no esté incluida en el orden del día, este se podrá conocer con el voto favorable de la mayoría simple de los miembros presentes.

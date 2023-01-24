@@ -1,1 +1,0 @@
-Artículo 29.—Medidas disciplinarias. Cuando alguno de los Directores incumplieren reiteradamente las disposiciones del presente Reglamento, se pondrá en conocimiento del Consejo de Gobierno y de la Contraloría General de la República dicha situación, a fin de que se sienten las responsabilidades del caso y se adopten las medidas pertinentes.

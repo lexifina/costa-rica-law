@@ -1,1 +1,0 @@
-Artículo 16.—Privacidad de las sesiones. Las sesiones del Consejo Directivo serán privadas, pero éste podrá disponer, acordándolo así por unanimidad de los miembros presentes, que tenga acceso a ella el público en general u otros funcionarios de la Institución, concediéndoseles o no el derecho a participar en las deliberaciones con voz pero sin voto.
