@@ -1,0 +1,1 @@
+ARTÍCULO 20.- El enlace y quienes colaboren en la eventual actividad municipal de Adolescencia y Juventud deberán colaborar con el CCPJA en la realización, ejecución y evaluación de los proyectos dirigidos a la población joven.

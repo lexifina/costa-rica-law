@@ -1,0 +1,1 @@
+ARTÍCULO 88. Principios de los proyectos. Los proyectos deben responder a los principios de eficacia, eficiencia, racionalidad, transparencia y proporcionalidad, así como elaborarse bajo la modalidad participativa.

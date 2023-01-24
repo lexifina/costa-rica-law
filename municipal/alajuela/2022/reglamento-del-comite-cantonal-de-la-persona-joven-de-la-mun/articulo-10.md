@@ -1,0 +1,2 @@
+CAPÍTULO III: DE LA PARTICIPACIÓN JOVEN
+ARTÍCULO 10.- La intervención joven dentro de la función pública deberá entenderse como aquellas formas de participación en las cuales la sociedad civil, compuesta por todos sus elementos físicos, organizativos, jurídicos y otros, confluye con el Gobierno Local en diferentes niveles de su accionar, para la búsqueda de objetivos comunes que pretenden alcanzar un verdadero desarrollo de las personas jóvenes del Cantón Central de Alajuela.

@@ -1,0 +1,1 @@
+ARTÍCULO 42.- Carta de motivación. Los sectores de organizaciones juveniles, de colegios, grupos religiosos y deportivos deberán presentar por cada persona joven postulante, una carta donde se expliquen los motivos de participación, así como posibles áreas de trabajo a desarrollar.

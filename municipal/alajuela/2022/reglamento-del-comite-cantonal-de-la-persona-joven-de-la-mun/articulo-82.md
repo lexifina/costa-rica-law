@@ -1,0 +1,2 @@
+ARTÍCULO 82.- Integración comisiones permanentes. Las comisiones permanentes estarán integradas por, al menos, tres personas jóvenes de la comunidad como mínimo, dentro de las cuales al menos una representación propietaria del CCPJA deberá integrarlas y será quien ejerza la coordinación.
+La vigencia será la misma del CCPJA y servirán a sus cargos ad honoren. Toda persona joven del Cantón podrá participar activamente de estas comisiones.

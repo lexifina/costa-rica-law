@@ -1,0 +1,1 @@
+ARTÍCULO 73.- Carácter público de los acuerdos. Cualquier persona podrá solicitar copia de los acuerdos que se tomen en el seno del CCPJA, para ello deberá hacer la solicitud al Concejo Municipal para su autorización y posterior certificación.

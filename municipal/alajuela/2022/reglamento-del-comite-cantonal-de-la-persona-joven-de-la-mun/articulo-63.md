@@ -1,0 +1,1 @@
+ARTÍCULO 63.- Sustitución de presidencia y secretaría. En caso de ausencia o de enfermedad y en general, cuando concurra alguna causa justa, la presidencia y la secretaría del CCPJA serán sustituidos por una presidencia ad-hoc y una secretaría suplente, respectivamente.

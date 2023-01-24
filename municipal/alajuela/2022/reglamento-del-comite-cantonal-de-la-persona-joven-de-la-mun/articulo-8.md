@@ -1,0 +1,1 @@
+ARTÍCULO 8.- Oficina de Adolescencia y Juventud. Según las necesidades y posibilidades, la Municipalidad creará la actividad municipal encargada de todo lo relacionado con adolescencia y juventud en la Municipalidad de Alajuela. Además, brindará asesoría y apoyo al Comité Cantonal de la Persona Joven de Alajuela.

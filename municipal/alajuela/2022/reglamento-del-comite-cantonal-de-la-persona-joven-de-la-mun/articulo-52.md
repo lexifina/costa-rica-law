@@ -1,0 +1,1 @@
+ARTÍCULO 52.- Carta de postulación. Las personas postulantes a la presidencia y secretaría del CCPJA deben presentar una carta de postulación, junto con su currículum, a los miembros electos del CCPJA y a la Oficina de Adolescencia y Juventud, una semana antes de la primera sesión del Comité.

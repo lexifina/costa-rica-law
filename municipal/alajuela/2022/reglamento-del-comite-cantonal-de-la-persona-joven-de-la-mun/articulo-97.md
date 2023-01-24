@@ -1,0 +1,1 @@
+ARTÍCULO 97.- Finalidad de los fondos. La Municipalidad de Alajuela y el Comité Cantonal de la Persona Joven del Cantón Central de Alajuela deberán utilizar los fondos exclusivamente para la finalidad descrita en el proyecto aprobado por el CCPJA y el CPJ.

@@ -1,0 +1,1 @@
+ARTICULO 68.- Acta de sesión. De cada sesión se levantará un acta que contendrá la indicación de las personas asistentes, así como las circunstancias de lugar y tiempo en que se ha celebrado, los puntos principales de la deliberación, el resultado de las votaciones que se presenten y el contenido de los acuerdos.

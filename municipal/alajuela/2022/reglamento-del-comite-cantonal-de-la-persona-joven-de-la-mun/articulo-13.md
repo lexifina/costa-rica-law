@@ -1,0 +1,1 @@
+ARTÍCULO 13.- La Municipalidad de Alajuela y el CCPJA son las instancias inmediatas de los procesos de participación joven en los asuntos públicos y así mismo el municipio es ámbito territorial para el ejercicio de los derechos reconocidos en la legislación de régimen local del Cantón Central de Alajuela.

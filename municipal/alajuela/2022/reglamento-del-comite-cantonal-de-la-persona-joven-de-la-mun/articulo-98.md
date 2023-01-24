@@ -1,0 +1,1 @@
+ARTÍCULO 98.- De la documentación. La Municipalidad de Alajuela deberá mantener ordenada, bajo custodia y responsabilidad de la persona funcionaria que corresponda, toda la documentación relacionada con el manejo de los fondos de cada proyecto aprobado.

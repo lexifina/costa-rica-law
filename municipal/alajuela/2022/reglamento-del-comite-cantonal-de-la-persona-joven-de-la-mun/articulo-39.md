@@ -1,0 +1,1 @@
+ARTÍCULO 39.- Subsanación. En caso de presentar documentación incompleta o requisitos omitidos, se deberá subsanar en un plazo no mayor a 3 días hábiles luego de notificado por el enlace o bien la Oficina de Adolescencia y Juventud mediante correo electrónico, a las personas que figuran como representantes de la organización interesada en inscribirse.

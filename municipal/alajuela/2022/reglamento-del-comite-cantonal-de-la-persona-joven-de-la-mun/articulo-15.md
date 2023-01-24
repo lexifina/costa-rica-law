@@ -1,0 +1,1 @@
+ARTÍCULO 15.- Para efectos del presente Reglamento serán deberes de la Municipalidad de Alajuela con las personas jóvenes los temas de salud, trabajo, educación, recreación, igualdad de género, ambiente, deporte y otros según lo establecido en la Política Pública de la Persona Joven.

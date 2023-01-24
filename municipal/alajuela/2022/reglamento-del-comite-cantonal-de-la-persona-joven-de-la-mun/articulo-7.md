@@ -1,0 +1,2 @@
+ARTÍCULO 7.- PERSONA FUNCIONARIA DE LA PERSONA JOVEN. La Municipalidad de Alajuela pondrá a disposición a una persona funcionaria municipal, quien fungirá como enlace municipal entre el Comité Cantonal de la Persona Joven y las instancias, departamentos o áreas municipales, para brindar asesoría, capacitación y acompañamiento para el desarrollo, ejecución e implementación de los proyectos, planes o programas del comité cantonal de la persona joven.
+Este enlace municipal no formará parte de la integración de ningún comité cantonal de la Persona Joven.

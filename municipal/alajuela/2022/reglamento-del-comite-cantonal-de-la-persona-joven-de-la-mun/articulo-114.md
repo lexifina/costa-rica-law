@@ -1,0 +1,2 @@
+SECCIÓN XV. DEL CAMBIO DE INTEGRANTES DEL CCPJA
+ARTÍCULO 114.- Sustituciones. Las personas integrantes del CCPJA que renuncien, mueran, dejen de ser parte del sector para el que fueron designadas, cambien de domicilio electoral a uno distinto del distrito Central de Alajuela o cumplan 36 años, deberán ser sustituidas de forma inmediata por el Concejo Municipal de Alajuela, debiendo para tales efectos, realizar la convocatoria respectiva tal y como lo indica este reglamento. Hasta tanto no se cumpla con este nombramiento, el CCPJA no podrá funcionar.

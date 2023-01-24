@@ -1,0 +1,3 @@
+ARTÍCULO 123.- Requisitos para participar. Para poder participar de las asambleas de cada sector, el o la postulante deberán:
+a) Llenar y enviar los formularios o hoja de inscripción que suministrará la municipalidad al correo electrónico estipulado en la convocatoria.
+b) Indicar si tiene acceso a computadora o dispositivo con acceso a internet. De lo contrario deberá manifestar la imposibilidad de contar con lo indicado, para lo cual la Municipalidad se pondrá en contacto para garantizar la participación.

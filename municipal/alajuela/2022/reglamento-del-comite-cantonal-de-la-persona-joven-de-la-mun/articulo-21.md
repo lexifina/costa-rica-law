@@ -1,0 +1,3 @@
+CAPÍTULO V: DE LOS DERECHOS DE LAS PERSONAS JÓVENES
+ARTÍCULO 21.- Las personas jóvenes de Alajuela cuentan con todos los derechos establecidos en el artículo 4 de la Ley General de la Persona Joven, leyes vigentes y la Constitución Política de Costa Rica.
+Las personas adolescentes gozarán, además, de los derechos contemplados en el Código de la Niñez y la Adolescencia No. 7739 y demás normativa vigente.

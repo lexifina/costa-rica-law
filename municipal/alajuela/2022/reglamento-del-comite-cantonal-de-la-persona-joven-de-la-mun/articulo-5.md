@@ -1,0 +1,2 @@
+ARTÍCULO 5.- Competencia. El Honorable Concejo Municipal de Alajuela es, para todos los efectos de este Reglamento, el órgano superior jerárquico del Comité Cantonal de la Persona Joven del Cantón Central de Alajuela.
+El Honorable Concejo Municipal de Alajuela será quien conozca todo recurso de impugnación del proceso de elección del Comité Cantonal de la Persona Joven. Solo el Honorable Concejo Municipal de Alajuela tiene competencia rectora sobre el proceso de elección del Comité Cantonal de la Persona Joven, del Cantón Central de Alajuela.

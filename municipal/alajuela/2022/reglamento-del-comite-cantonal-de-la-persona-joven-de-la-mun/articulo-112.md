@@ -1,0 +1,1 @@
+ARTÍCULO 112.- Sanción a faltas graves. Las faltas graves se sancionarán con la solicitud de remoción del miembro del CCPJA ante la organización o institución que represente y ante el Concejo Municipal.

@@ -1,0 +1,2 @@
+SECCIÓN XII. DE LA TRANSFERENCIA DE LOS RECURSOS
+ARTÍCULO 93.- Inclusión en presupuesto municipal. Para proceder al giro de recursos a la Municipalidad de Alajuela, el CCPJA debe encontrarse debidamente conformado; dichos recursos deben encontrarse incorporados y aprobados en un presupuesto de la Municipalidad según el artículo 12 de la Ley de la Administración Financiera de la República y Presupuestos Públicos.

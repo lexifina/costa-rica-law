@@ -1,0 +1,1 @@
+ARTÍCULO 90.- De la no ejecución de proyectos. En caso de no poderse ejecutar algún proyecto, el CCPJA deberá comunicarlo por escrito al CPJ y al Concejo Municipal de Alajuela, detallando y justificando la situación.

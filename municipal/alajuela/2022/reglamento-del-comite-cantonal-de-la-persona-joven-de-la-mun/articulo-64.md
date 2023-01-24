@@ -1,0 +1,1 @@
+ARTÍCULO 64.- Orden del día. La agenda u orden del día de cada sesión estará a cargo de la persona presidenta y deberá entregarse a las y los integrantes del CCPJA, a más tardar veinticuatro horas antes de la sesión en que los temas serán discutidos y aprobados. El orden del día se deberá publicar dentro del mismo plazo en las redes sociales oficiales del CCPJA.
