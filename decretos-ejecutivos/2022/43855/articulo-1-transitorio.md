@@ -1,0 +1,1 @@
+Transitorio I. - De las solicitudes de homologación en trámite. Todas las solicitudes pendientes de homologación por parte de la Comisión Nacional del Consumidor previo a la publicación del presente decreto deberán ser presentadas conforme al artículo 23 de la presente reforma.

@@ -1,0 +1,1 @@
+Transitorio II. Por una única vez la Comisión Nacional del Consumidor (CNC) contará con un plazo de hasta 90 días para resolver las solicitudes de homologación que ingresen durante los tres meses posteriores a la entrada en vigencia de la presente reforma.

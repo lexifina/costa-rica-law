@@ -1,0 +1,1 @@
+Transitorio III. Los proveedores de servicios de crédito dispondrán de hasta 9 meses a partir de la publicación del presente decreto, para efectuar los ajustes relacionados a los contenidos y presentación de los estados de cuenta al consumidor.

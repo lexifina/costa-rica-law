@@ -1,0 +1,1 @@
+Artículo 5.- Derogatoria. Deróguese el Transitorio I y II del Decreto Ejecutivo N° 43270-MEIC del 22 de octubre de 2021, Reglamento de las Operaciones Financieras, Comerciales y Microcréditos que se ofrezcan al consumidor, publicado en el Diario Oficial La Gaceta N° 242 del 16 de diciembre de 2021, Alcance N° 256.
