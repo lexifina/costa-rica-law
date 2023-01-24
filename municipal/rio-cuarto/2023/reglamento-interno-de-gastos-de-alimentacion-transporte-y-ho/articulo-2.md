@@ -1,0 +1,1 @@
+Artículo 2º-Concepto. Por viáticos se entenderá aquella suma destinada a la atención de gastos de transporte, alimentación u hospedaje que la Municipalidad de Río Cuarto, reconocerá a las personas funcionarias, regidoras y síndicas, ya sean propietarias o suplentes, que en cumplimiento de sus funciones deban desplazarse, dentro o fuera del territorio nacional.

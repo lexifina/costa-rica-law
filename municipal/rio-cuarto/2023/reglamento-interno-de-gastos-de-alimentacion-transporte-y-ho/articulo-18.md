@@ -1,0 +1,2 @@
+Artículo 18.-Justificantes de gastos. Para el reconocimiento de los gastos de hospedaje la Administración requerirá la presentación de facturas, las cuales deberán ser emitidas a nombre de la Municipalidad Río Cuarto.
+Los gastos de pasajes de transporte público colectivo no requerirán la presentación de la factura correspondiente, salvo en aquellos casos y oportunidades en que se reúna la posibilidad o cuando el presente reglamento así lo requiera.

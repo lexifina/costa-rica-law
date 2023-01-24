@@ -1,0 +1,1 @@
+Artículo 8º-Gastos por concepto de alimentación. Por alimentación, la Municipalidad de Río Cuarto, reconocerá gastos por concepto de desayuno, almuerzo o cena en atención a las tarifas y los horarios establecidos por la Contraloría General de la República en el Reglamento de Gastos de Viaje y de Transporte para Funcionarios Públicos.

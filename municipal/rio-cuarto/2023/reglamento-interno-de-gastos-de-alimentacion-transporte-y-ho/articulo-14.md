@@ -1,0 +1,3 @@
+CAPÍTULO III
+Liquidación de los gastos
+Artículo 14.-Formato de la liquidación de gastos. La liquidación de los gastos de viaje, de transporte u alimentación deberá hacerse por medio del formulario que la Administración habilite para tal efecto. En dicho formulario se deberán consignar, como mínimo, los siguientes datos: fecha de presentación de la liquidación, nombre, número de cédula de identidad y puesto ocupado; cuando se trate de viajes al exterior el acuerdo respectivo; motivo de la gira, con indicación clara del tipo de gestión realizada, valor en letras de la suma gastada; lugares visitados, fechas, horas y lugares de salida y de regreso; firma de la persona que solicita, de la jefatura inmediata; visto bueno de Presupuesto; desglose de gastos.

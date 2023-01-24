@@ -1,0 +1,2 @@
+Artículo 5º-Punto de lejanía. Los gastos de transporte referidos en el presente reglamento, en cuanto a la lejanía, se reconocerán a una distancia igual o superior a diez (10) kilómetros desde la sede municipal.
+En el caso de las personas funcionarias, dicha distancia se medirá respecto del lugar de destino. Por su parte, para las personas regidoras y síndicas, se medirá de conformidad al lugar de residencia.

@@ -1,0 +1,5 @@
+CAPÍTULO II
+Reconocimiento de gastos
+Artículo 6º-Gastos por concepto de transporte. El reconocimiento de gastos de transporte estará sujeto a la tarifa aprobada por el organismo regulador correspondiente, para la ruta de transporte público colectivo que deba utilizar la persona beneficiaria para acceder a la sede de las sesiones, en el caso de las regidurías y las sindicalías, o llegar al destino de las labores en el caso de las personas funcionarias.
+Asimismo, se reconocerá el pago de transporte por medio de la modalidad taxi, en tanto no exista ruta de autobús autorizada que llegue al destino, la finalización de la sesión ordinaria o extraordinaria o de las labores asignadas finalice en horas que se encuentren fuera del horario normal del servicio de transporte público de autobuses y que la municipalidad se encuentre impedida de transportarlos a su lugar de destino o residencia.
+No se reconocerán gastos por concepto de transporte, cuando la municipalidad provea el trasporte por medio de los vehículos oficiales o de transporte especial contratado al efecto.

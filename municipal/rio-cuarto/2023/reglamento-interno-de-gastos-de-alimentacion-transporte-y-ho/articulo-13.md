@@ -1,0 +1,1 @@
+Artículo 13.-Tarifas. Las tarifas que reconocerá la Municipalidad de Río Cuarto por concepto de gastos de alimentación, hospedaje y transporte, serán aquellas autorizadas por la Contraloría General de la República en el Reglamento de Gastos de Viaje y Transporte para funcionarios Públicos.

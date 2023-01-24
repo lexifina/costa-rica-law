@@ -1,0 +1,1 @@
+Artículo 19.-Solicitud extemporánea. La solicitud del pago de viáticos referidos en este Reglamento que se presenten después de los cinco (5) días naturales, se considerará extemporánea, por lo tanto, no se le dará trámite alguno.
