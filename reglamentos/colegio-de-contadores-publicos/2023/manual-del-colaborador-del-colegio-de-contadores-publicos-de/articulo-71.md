@@ -1,0 +1,1 @@
+Artículo 71º: El Colegio le brindará el soporte técnico y mantenimiento preventivo y correctivo a los sistemas informáticos y equipos aportados por el Colegio para que la persona teletrabajadora desarrolle sus funciones.

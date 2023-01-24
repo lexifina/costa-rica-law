@@ -1,0 +1,1 @@
+Artículo 21º: Embargos sobre el Salario: En el caso de deducciones por embargo se procederá a avisar al colaborador y a aplicar el embargo, según lo estipulado en el artículo N.° 172 del Código de Trabajo de la República de Costa Rica. Dicha deducción de embargo debe respaldarse con la notificación del embargo por parte del Juzgado correspondiente.

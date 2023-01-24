@@ -1,0 +1,4 @@
+Artículo 82º: El encargado de Tecnologías de la Información (TI) tendrá las siguientes funciones con relación al teletrabajo:
+a) Brindarle a la persona teletrabajadora, en primera instancia, asistencia técnica oportuna para la resolución de los problemas de infraestructura tecnológica de los equipos de la Institución.
+b) Brindar soporte técnico a las herramientas de software y sistema operativo necesarios para realizar el teletrabajo. Se excluye cualquier solicitud de instalación, configuración o solución de problemas sobre paquetes de software que no sean requeridos para el teletrabajo, o para los cuales la Institución no posea licenciamiento.
+c) Instalar y dar mantenimiento oportuno a las herramientas tecnológicas y servicios requeridos para realizar las labores de teletrabajo, cuando sean propiedad de la Institución.

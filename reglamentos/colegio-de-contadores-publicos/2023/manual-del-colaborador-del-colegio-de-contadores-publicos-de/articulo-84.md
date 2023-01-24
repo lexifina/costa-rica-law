@@ -1,0 +1,1 @@
+Artículo 84º: Regalos en Ocasiones Especiales para los Colaboradores: El Colegio según considere pertinente en ocasiones especiales entrega un presente a sus colaboradores, eso lo determinara el encargado de recursos humanos junto con la Dirección Ejecutiva, no generando un derecho adquirido.

@@ -1,0 +1,1 @@
+Artículo 16º: Revisión del Salario: El propósito de la revisión salarial es velar porque las remuneraciones no sean menores a los salarios mínimos publicados por decreto por el Ministerio de Trabajo y Seguridad Social, según correspondan. También deberán adecuarse a lo normado en la "Política Salarial de Colaboradores".

@@ -1,0 +1,1 @@
+Artículo 2º: Misión Institucional: Somos una entidad pública no estatal, que regula, controla, garantiza y promueve en los usuarios y clientes de los servicios que ofrece el Contador Público Autorizado, el correcto ejercicio de la calidad, aseguramiento, la credibilidad y la actualización continua de la profesión con altos estándares éticos

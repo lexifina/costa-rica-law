@@ -1,0 +1,1 @@
+Artículo 3º: Visión Institucional: Ser una entidad sólida, ética y técnica en el ejercicio de la Contaduría Pública mediante la fiscalización, regulación y articulación a través de la innovación y la desmaterialización y virtualización de los servicios.

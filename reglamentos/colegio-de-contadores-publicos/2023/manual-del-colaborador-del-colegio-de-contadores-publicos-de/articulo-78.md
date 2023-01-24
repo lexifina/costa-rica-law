@@ -1,0 +1,1 @@
+Artículo 78º: Las personas teletrabajadoras estarán protegidas por la Póliza de Riesgos del Trabajo que tiene la Institución, siempre que se encuentren ejerciendo las labores propias de su función y en el sitio declarado para teletrabajar, previa comunicación a la jefatura o coordinador inmediato y a la Dirección Ejecutiva.

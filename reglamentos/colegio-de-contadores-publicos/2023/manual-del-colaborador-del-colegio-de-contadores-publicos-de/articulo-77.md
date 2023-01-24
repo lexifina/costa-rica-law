@@ -1,0 +1,1 @@
+Artículo 77º: La persona teletrabajadora debe brindar información verídica y oportuna en los procesos de investigación, evaluación del desempeño y medición a los que deba someterse. En caso de comprobarse un incumplimiento, se procederá según lo establecido en este Manual y demás marco legal del Colegio, siguiendo el debido proceso ante la Dirección Ejecutiva.

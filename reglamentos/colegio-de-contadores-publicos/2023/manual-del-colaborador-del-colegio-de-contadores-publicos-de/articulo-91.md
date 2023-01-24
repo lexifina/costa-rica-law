@@ -1,0 +1,1 @@
+Artículo 91º: Área Recreativa: El Colegio mantiene áreas recreativas y deportivas para el uso exclusivo de sus colegiados. El colaborador del Colegio puede hacer uso de estas áreas en su hora de descanso o fuera de la jornada ordinaria. Sin embargo, si las mismas están siendo utilizadas por los colegiados, éstos tendrán prioridad.

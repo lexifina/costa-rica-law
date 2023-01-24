@@ -1,0 +1,1 @@
+Artículo 75º: La persona teletrabajadora es responsable de los activos de la institución que utilice y traslade hacia el lugar donde realice teletrabajo. En caso de extravío o deterioro (caída, golpe o mal uso) se procederá de acuerdo con lo que establece la normativa vigente del Colegio y respetando el debido proceso.

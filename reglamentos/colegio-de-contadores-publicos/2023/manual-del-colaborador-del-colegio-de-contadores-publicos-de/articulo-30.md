@@ -1,0 +1,4 @@
+Artículo 30º: Definiciones:
+a) Medidas Disciplinarias: Son las acciones que toma la Institución para prevenir o reducir las actitudes negativas presentadas por los colaboradores a su contrato de trabajo.
+b) Disciplina Progresiva: Consiste en cuatro pasos aplicados en sucesión y dependiendo de la gravedad de la falta se aplicará indistintamente: "Amonestación Verbal", "Amonestación Escrita", "Suspensión" y "Despido sin Responsabilidad Patronal". En caso de faltas graves "Art. 81 del Código de Trabajo" se podrá proceder de inmediato al "Despido sin Responsabilidad Patronal".
+c) Falta Grave: Se entiende por falta grave aquella que es cometida por todos los colaboradores y que puede estar contenida en el "Artículo 72 y 81 del Código de Trabajo", o toda aquella falta que lesiona seriamente la armonía y la disciplina en el lugar de trabajo que afecta las buenas relaciones laborales o la moral dentro y fuera del lugar de trabajo.

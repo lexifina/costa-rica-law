@@ -1,0 +1,1 @@
+Artículo 26º: Constancia sobre funciones del puesto: El colaborador o excolaborador podrá solicitar una constancia del puesto desempeñado y de sus funciones al encargado de recursos humanos quien la firmará junto con el Director Ejecutivo.

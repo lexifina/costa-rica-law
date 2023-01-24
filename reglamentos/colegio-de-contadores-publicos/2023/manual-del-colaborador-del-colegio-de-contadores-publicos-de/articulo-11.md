@@ -1,0 +1,2 @@
+Artículo 11º: Uso del Teléfono: Cada colaborador representa al Colegio por lo que se recomienda tener siempre amabilidad, cortesía, discreción y responsabilidad. No debe haber un abuso del teléfono por el respeto a otros que desean comunicarse con la organización y la urgencia. No se permiten las llamadas personales, al menos que correspondan a una emergencia familiar.
+Las Administración del Colegio controlara mensualmente el uso de llamadas de los colaboradores y será remitido a la Dirección Ejecutiva un reporte cuando esta lo solicite para su debido control.

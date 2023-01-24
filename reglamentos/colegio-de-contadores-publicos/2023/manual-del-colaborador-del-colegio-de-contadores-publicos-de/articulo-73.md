@@ -1,0 +1,1 @@
+Artículo 73º: La persona teletrabajadora deberá cumplir con las condiciones pactadas en el acuerdo contractual y en las normas establecidas en el presente Manual. Además, deberá cumplir con aquellas capacitaciones necesarias para ajustar su perfil laboral al teletrabajo.

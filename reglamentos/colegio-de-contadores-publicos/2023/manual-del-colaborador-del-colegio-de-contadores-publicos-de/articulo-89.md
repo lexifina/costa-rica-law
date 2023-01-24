@@ -1,0 +1,1 @@
+Artículo 89º: Actividad Navideña: El Colegio celebra en esas fechas junto con sus colaboradores actividades de convivio, las cuales serán definidas por el encargado de recursos humanos y la Dirección Ejecutiva.

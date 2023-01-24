@@ -1,0 +1,11 @@
+Artículo 36º: Aplicación de la Amonestación Escrita:
+b) La llamada de atención escrita puede aplicarse cuando el colaborador repite o reincide en falta a las obligaciones contempladas en el artículo 71 del Código de Trabajo, de este Manual y a las diferentes políticas y deberes de los colaboradores en la Institución. Sin embargo, de acuerdo a la gravedad de la misma la Institución podría
+enviar la amonestación por escrito sin haberle amonestado verbalmente.
+c) La llamada de atención escrita debe de ser enviada al colaborador en un plazo no mayor de cinco días hábiles posteriores a la fecha en que se conoció la falta, por parte de la jefatura inmediata o el Director Ejecutivo.
+d) El derecho y las acciones del Colegio de Contadores Públicos de Costa Rica para amonestar en forma escrita al colaborador prescriben en un mes a partir de la fecha en que se conoce la falta cometida por el Trabajador.
+e) El jefe inmediato o Director Ejecutivo antes de la amonestación escrita deben revisar el expediente personal del colaborador para establecer los antecedentes disciplinarios del mismo y definir los términos en que se redactará el documento por parte del Jefe inmediato o Director Ejecutivo.
+f) Si procede la amonestación escrita, se confecciona la nota de amonestación con la copia la cual se le entregara al colaborador.
+g) Una vez confeccionada la amonestación, la misma debe ser firmada por el jefe inmediato y debe ser firmada por la Dirección Ejecutiva quien refrendará el proceso y en su ausencia se designará un responsable.
+h) Cuando la nota de amonestación se entrega al colaborador indicando los motivos de la misma se le informará que deberá firmar como recibido la copia de dicho documento ya sea en forma digital o física. En caso que el colaborador se negará a firmar la amonestación, el jefe inmediato o Director Ejecutivo solicitará el testimonio de dos personas pertenecientes a la Institución, quienes deberán firmar la copia con una nota aclaratoria.
+i) Al aplicar una amonestación escrita deberá de prestarse a lo que estipula el debido proceso de darle la oportunidad a los colaboradores para que se pronuncien al respecto por escrito en un plazo no mayor a los cinco días hábiles del recibido de la nota de amonestación.
+j) La amonestación escrita original debe quedar documentada en el expediente personal del colaborador.

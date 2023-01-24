@@ -1,0 +1,1 @@
+Artículo 74º: La persona teletrabajadora deberá cumplir con la jornada laboral oficial de la institución. La Dirección Ejecutiva definirá, según la conveniencia de la Institución, los días que serán teletrabajables y cuáles colaboradores podrán realizar teletrabajo.

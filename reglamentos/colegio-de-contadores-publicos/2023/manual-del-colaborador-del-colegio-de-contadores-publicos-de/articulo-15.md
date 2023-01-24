@@ -1,0 +1,1 @@
+Artículo 15º: Clima Organizacional: Tanto colaboradores como Junta Directiva tendrán como propósito desempeñar sus funciones en un excelente clima laboral. teniendo presentes los valores institucionales y el intercambio asertivo de aquellos asuntos que deben ser mejorados.

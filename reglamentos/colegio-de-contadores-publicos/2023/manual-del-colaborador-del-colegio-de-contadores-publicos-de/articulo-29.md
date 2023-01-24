@@ -1,0 +1,1 @@
+Artículo 29º: Documentos Relacionados: El Manual del Colaborador en todos sus extremos, el Código de Conducta Administrativo - Ética Institucional, el Manual de Inducción del Colaborador, el Manual de Atención de Servicio al Cliente y todos los manuales, reglamentos y directrices establecidas por la Administración del Colegio.

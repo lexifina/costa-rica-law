@@ -1,0 +1,3 @@
+Artículo 57º: Objetivos: Resguardar la información y documentación física del Colegio de Contadores Públicos de Costa Rica, dado que es fundamental el orden y limpieza para una adecuada organización, permite trabajar más eficientemente, ser más productivos en el trabajo, y aprovechar el tiempo de mejor manera.
+Se disminuye el tiempo de búsqueda de cosas que se necesiten, utilizar organizadores que permitan que sobre el escritorio no quede información sensible o confidencial expuesta.
+Procurar contar con las cosas que utilicemos con más frecuencia, el resto mantenerlo guardado y organizado en estantes, archivador, arturitos, etc.

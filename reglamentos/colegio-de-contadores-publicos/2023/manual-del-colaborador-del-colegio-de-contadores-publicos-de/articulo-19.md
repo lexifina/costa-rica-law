@@ -1,0 +1,1 @@
+Artículo 19º: Aguinaldo: El aguinaldo se cancela en el mes de diciembre y se calcula con el promedio anual de los salarios devengados desde el primero de diciembre del año anterior al 30 de noviembre del período vigente. Igualmente es depositado en la cuenta bancaria de cada colaborador.

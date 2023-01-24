@@ -1,0 +1,1 @@
+Artículo 25º: Referencias Laborales: Sólo pueden ser suministradas por la Dirección Ejecutiva. Si un colaborador del Colegio desee dar referencias o dar una carta de recomendación sobre alguna persona que laboró en la Institución, debe hacerlo a título personal y no podrá utilizar ningún signo o logo de identificación o cargo que tenga dentro del Colegio.

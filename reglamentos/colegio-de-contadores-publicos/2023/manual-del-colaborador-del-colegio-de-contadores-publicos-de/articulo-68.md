@@ -1,0 +1,1 @@
+Artículo 68º: Bajo la modalidad de teletrabajo se podrá reconocer tiempo extraordinario, según la normativa establecida en este Manual, pero solo se podrá realizar con la aprobación de la Dirección Ejecutiva.

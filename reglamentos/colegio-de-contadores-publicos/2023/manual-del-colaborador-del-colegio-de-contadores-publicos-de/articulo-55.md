@@ -1,0 +1,7 @@
+Artículo 55º: Aplicación del Proceso de Marcas Digitales:
+a) Todos los colaboradores deben cumplir puntualmente con su jornada laboral, como lo establece artículo N.° 71, inciso b, del Código de Trabajo y para tales efectos el medio de control lo será el sistema de control de asistencia y en su caso la marca que registre el mismo.
+b) No se permite a los colaboradores o sus jefes evitar que se marque digitalmente, La Dirección Ejecutiva es la posición autorizada para realizar marcas por otros medios por alguna situación en particular.
+c) Todo colaborador deberá marcar la entrada y salida por el medio correspondiente asignado por la Institución, sin excepción, este es un requisito indispensable de la asistencia para el pago de salario.
+d) El hecho de no laborarse las 48 horas semanales todas las semanas, a pesar de que el sistema de marca registre esa disminución no consiste en una reducción de la jornada ni crea un derecho adquirido, que permita cobrar horas extras posteriormente; si no que consiste en una liberalidad en la organización de los horarios y jornadas del Colegio.
+e) La marca de reloj digital u otro medio podría quedar eximida para los puestos que están tipificados en el artículo N.° 143 de nuestro Código de Trabajo.
+f) Ningún colaborador podrá alterar la marca digital, si esto sucediera, La Dirección Ejecutiva notificaría a los colaboradores responsables para que deponga esta acción y se les señale que se les aplicara la sanción de separarlo de su cargo, por la pérdida de confianza.
