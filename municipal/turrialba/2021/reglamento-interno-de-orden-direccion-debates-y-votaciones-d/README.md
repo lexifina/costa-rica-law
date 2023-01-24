@@ -15,3 +15,4 @@ Reglamento interno de orden, dirección, debates y votaciones del Concejo Munici
 | --- | --- | --- |
 | 1 | 2021-12-16 | la propia norma |
 | 2 | 2022-01-13 | Reglamento municipal 0 (2022-01-13) |
+| 3 | 2023-01-24 | Reglamento municipal 143 (2023-01-24) |
