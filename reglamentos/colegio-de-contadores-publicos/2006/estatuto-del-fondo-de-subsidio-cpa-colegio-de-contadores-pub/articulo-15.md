@@ -1,2 +1,0 @@
-Artículo 15.—Salud. En el beneficio de Salud el fondo podrá utilizarse en la modalidad de préstamo para sufragar gastos de atención de enfermedades o accidentes padecidos por colegiados (as).
-Las distintas modalidades de implementación de las líneas de crédito, serán reguladas por el Reglamento de Crédito dictado al efecto por la Junta Directiva, respetando las más estrictas normas de seguridad, rentabilidad y haciendo las provisiones financieras correspondientes.

@@ -1,1 +1,0 @@
-Artículo 2º—La Junta Directiva del Colegio de Contadores Públicos de Costa Rica, es por disposición expresa de la Ley Orgánica Nº 1038, el ente que tiene la responsabilidad final y autoridad para controlar y manejar la operación y administración del fondo.
