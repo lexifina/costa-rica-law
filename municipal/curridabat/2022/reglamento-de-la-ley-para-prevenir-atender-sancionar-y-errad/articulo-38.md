@@ -1,0 +1,3 @@
+Artículo 38.-Asesoramiento jurídico y apoyo emocional. En el desarrollo del procedimiento administrativo, las partes podrán hacerse representar por una persona profesional en derecho de su elección.
+También, podrán hacerse acompañar del apoyo emocional o psicológico de su confianza en las diversas fases del procedimiento.
+Bajo el principio de imparcialidad, en caso de que alguna de las partes opte porque la persona que ejerce el apoyo emocional o psicológico sea parte de la prueba testimonial, ésta no podrá participar durante todo el desarrollo de la audiencia, a excepción del momento que tenga que rendir su declaración como testigo.

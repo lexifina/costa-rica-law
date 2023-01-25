@@ -1,0 +1,2 @@
+Artículo 41.-Resolución de recomendaciones finales. Una vez finalizada la audiencia, el Órgano director cuenta con el plazo improrrogable de cinco días hábiles para emitir la resolución de recomendaciones finales, las que serán remitidas junto con el expediente completo a la Alcaldía o al Concejo Municipal, según corresponda.
+En razón del principio de confidencialidad y la materia objeto del procedimiento, la resolución de recomendaciones finales no será trasladada a la Junta de Relaciones Laborales.

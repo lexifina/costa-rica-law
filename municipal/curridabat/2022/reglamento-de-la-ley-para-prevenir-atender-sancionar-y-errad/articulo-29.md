@@ -1,0 +1,5 @@
+Artículo 29.-Sobre el traslado de la denuncia. Según el funcionario que se trate, así se trasladará la denuncia:
+a) En caso de ser un funcionario que sea de la Administración Municipal, el funcionario (a) que recibió la denuncia, pondrá en conocimiento al alcalde (sa).
+b) En caso de que la persona denunciada sea el alcalde (sa), la denuncia será entregada a la persona que funja como Vicealcalde (sa).
+c) El funcionario (a) a cargo de recibir la denuncia la trasladará en un sobre cerrado a fin de resguardar la confidencialidad en un lapso máximo de 48 horas siguientes de recibida, siendo que podrá hacerlo de forma personal entregando directamente el sobre a la persona.
+Sólo en caso de que por motivos de fuerza mayor y a fin de cumplir con el plazo establecido, se imposibilite la pronta entrega personal del sobre cerrado, podrá hacerlo por una única vez por medio de correo electrónico, resguardando el sobre para la entrega personal, que no podrá ser mayor a siete días una vez enviado el correo electrónico.

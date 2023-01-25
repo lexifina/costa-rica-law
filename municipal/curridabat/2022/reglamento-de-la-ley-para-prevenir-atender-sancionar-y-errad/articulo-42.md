@@ -1,0 +1,2 @@
+Artículo 42.-Resolución acto final. Una vez recibido el expediente con la resolución de recomendaciones finales, el alcalde (sa) o los regidores miembros del Concejo Municipal, en condición de Órgano Decisor, deberán emitir y notificar el acto final dentro del plazo máximo de un mes.
+Contra dicha resolución, cabe el recurso de apelación el que deberá observar el siguiente procedimiento según corresponda a un funcionario municipal adscrito a la Administración Municipal o a un miembro del Concejo Municipal, de conformidad con lo establecido en el presente reglamento.

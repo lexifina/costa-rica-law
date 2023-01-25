@@ -1,0 +1,3 @@
+Artículo 35.-Resolución de traslado de cargos por parte del Órgano Director. Una vez nombrado el Órgano director, en el plazo máximo de cinco días hábiles deberá emitir la resolución de traslado de cargos contra el denunciante, la que deberá ser notificada de forma personal.
+De conformidad con los artículos 344.2 y 346.1 de la Ley General de la Administración pública, contra dicha resolución cabe el recurso de apelación el que deberá ser interpuesto en el plazo de 24 horas.
+Dicho recurso será resuelto por la Alcaldía o por el Concejo Municipal según corresponda. Contra lo resuelto por la instancia correspondiente no cabrá recurso alguno.

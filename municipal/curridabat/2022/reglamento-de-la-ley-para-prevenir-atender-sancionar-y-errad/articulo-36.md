@@ -1,0 +1,1 @@
+Artículo 36.-Audiencia. A fin de recibir la prueba ofrecida por las partes, se deberá realizar una audiencia, la que se convocará hora y fecha en la misma resolución de traslado de cargos, para lo cual se deberá observar las formalidades establecidas en el 308 siguientes y concordantes de la Ley General de la Administración Pública.

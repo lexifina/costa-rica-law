@@ -1,0 +1,1 @@
+Artículo 32.-Plazo para interponer la denuncia y prescripción. La denunciante cuenta con el plazo de un año contado a partir del último hecho de violencia, o del cese del impedimento que le imposibilitaba denunciar.

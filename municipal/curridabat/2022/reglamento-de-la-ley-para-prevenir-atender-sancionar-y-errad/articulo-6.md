@@ -1,0 +1,24 @@
+CAPÍTULO II
+Definiciones
+Artículo 6º-Definiciones: Para los efectos del presente reglamento, se tienen las siguientes definiciones:
+a) Violencia contra las mujeres en la política: Toda conducta, sea por acción, omisión o tolerancia, dirigida contra una o varias mujeres que aspiren o estén en ejercicio de un cargo o una función pública, que esté basada en razones de género o en la identidad de género, ejercida de forma directa, o a través de terceras personas o por medios virtuales, que cause daño o sufrimiento y que tenga como objeto o como resultado menoscabar o anular el reconocimiento, goce o ejercicio de sus derechos políticos, en uno o en varios de los siguientes supuestos:
+1) Obstaculizar total o parcialmente el ejercicio del cargo, puesto o funciones públicas.
+2) Forzar a la renuncia de la precandidatura, candidatura o cargo político o a lo interno de una organización social.
+3) Afectar el derecho a la vida, la integridad personal y los derechos patrimoniales para impedir el libre ejercicio de los derechos políticos.
+4) Perjudicar la reputación, el prestigio y la imagen pública para impedir el libre ejercicio de los derechos políticos.
+b) La violencia contra las mujeres en la política incluye, entre otras, el acoso u hostigamiento, la violencia física, psicológica, sexual, patrimonial y simbólica.
+c) Puede ocurrir en cualquier ámbito, público o privado, y puede ser verbal, en línea o en el mundo digital y puede adoptar muchas formas. Cualquier forma de expresión tendiente a descalificar la participación por razones de genero está totalmente prohibida y deberá sancionarse para eliminar los estereotipos o creencias relacionadas con las capacidades políticas de las mujeres.
+d) Discriminación contra las mujeres: según lo establece la Convención sobre la Eliminación de todas las Formas de Discriminación contra la Mujer, la discriminación contra las mujeres denotará toda distinción, exclusión o restricción basada en el sexo que tenga por objeto o resultado menoscabar o anular el reconocimiento, goce o ejercicio por la mujer, independientemente de su estado civil, sobre la base de la igualdad del hombre y la mujer, de los derechos humanos y las libertades fundamentales en las esferas política, económica, social. cultural y civil o en cualquier otra esfera. La violencia contra las mujeres basada en el sexo o en el género configuran también una forma de discriminación contra las mujeres, prohibida por la citada convención.
+e) Cargos de elección popular: son aquellos cargos a los que, según la Constitución Política o las leyes, se accede mediante el voto directo de la ciudadanía. Estos puestos incluyen los cargos titulares y suplentes. Deberá entenderse como parte de estos puestos las candidaturas.
+f) Cargos por designación: son aquellos cargos que, según la Constitución Política o las leyes, se accede mediante un acto de nombramiento que realiza la persona que ostenta la Alcaldía.
+g) Cargos de la función pública para la promoción de la igualdad y la equidad de género: son aquellos que tienen la competencia municipal de impulsar políticas de promoción de la igualdad de género y que pueden implicar participación en órganos y estructuras institucionales como parte de sus funciones y atribuciones.
+h) Ley o Ley N° 10235: Ley para Prevenir, Atender, Sancionar y Erradicar la Violencia conta las Mujeres en la Política N° 10235.
+i) Alcalde o alcaldesa: persona que ocupa el puesto al que se refiere el artículo 169 de la Constitución política y el artículo 14 párrafo primero del Código Municipal.
+j) Vicealcalde o Vicealcaldesa: persona que ocupa el puesto al que se refiere el artículo 14 párrafo segundo del Código Municipal.
+k) Regidor o Regidora: persona que ocupa el puesto designado por el artículo 171 de la Constitución Política y artículo 21 del Código Municipal. Deberá entenderse como parte de este puesto a los regidores (as) suplentes.
+l) Síndico o Síndica: persona que ocupa el puesto designado por el artículo 172 de la Constitución Política y artículo 55 del Código Municipal. Deberá entenderse como parte de este puesto a los síndicos (as) suplentes.
+m) Municipalidad: Municipalidad de Curridabat.
+n) Víctima o Persona Denunciante: Mujer que sufre una o varias de las acciones que se tipifican en la Ley N° 10235.
+o) Persona denunciada: Persona que ejecuta una o varias de las acciones que se tipifican en la Ley N° 10235.
+p) Órgano director: Instancia colegiada que, ante una denuncia, se encargará de la tramitación del procedimiento administrativo de conformidad con la Ley N° 10235 y el presente reglamento.
+q) Órgano decisor: La Alcaldía o el Concejo Municipal en su condición de órgano que ordena la apertura del procedimiento administrativo, nombra los integrantes del Órgano director y emite el acto final del procedimiento.

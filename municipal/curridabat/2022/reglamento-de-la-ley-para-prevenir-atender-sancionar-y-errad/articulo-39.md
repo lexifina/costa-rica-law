@@ -1,0 +1,10 @@
+Artículo 39.-Medidas cautelares. Con el objetivo de garantizar la integridad y la seguridad personal de la mujer denunciante el Órgano director podrá ordenar la aplicación de una medida cautelar, que podrá consistir en:
+a) Que la persona denunciada se abstenga de perturbar a la mujer o mujeres afectadas o a las personas que brinden asesoría o acompañamiento legal o psicológica a la mujer o mujeres afectadas.
+b) Que la persona denunciada se abstenga de interferir en el ejercicio de los derechos políticos de la mujer afectada.
+c) Comunicar a las autoridades policiales sobre la denuncia interpuesta para que brinden auxilio o protección prioritaria en caso de requerirlo.
+d) Cualquier otra medida que cumpla con la naturaleza cautelar, según se requiera para la protección de los derechos la mujer afectada.
+La resolución que ordena una medida cautelar será notificada personalmente y establecerá el plazo máximo de cumplimiento, atendiendo a las circunstancias particulares y el contexto en el que se dicta la medida.
+En caso de desacato, el Órgano director deberá informarlo a la Alcaldía o al Concejo Municipal, según corresponda, a fin de interponer la denuncia en sede penal por el delito de desobediencia regulado en el artículo 314 del Código Penal.
+De manera excepcional el Órgano director podrá aprobar una medida cautelar ante causa para lo cual la víctima deberá interponer la denuncia respectiva en un plazo de diez días hábiles contados a partir del día siguiente hábil de la entrada en vigencia de dicha medida cautelar o de lo contrario la misma no surtirá efectos. En contra de la resolución que dicte una medida cautelar, cabe recurso de revocatoria y apelación en subsidio en el plazo de cinco días contados a partir del día hábil siguiente de notificada.
+El recurso de revocatoria será resuelto por el Órgano director y el de apelación en subsidio por la Alcaldía o el Concejo Municipal según corresponda.
+El plazo para resolver el recurso de antes descrito no podrá ser mayor al plazo de cinco días.
