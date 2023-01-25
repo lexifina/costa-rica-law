@@ -13,3 +13,4 @@ Protocolo para la Administración, Control y Asignación de Suscripciones Office
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-04-01 | la propia norma |
+| 2 | 2023-01-25 | Circular 17 (2023-01-25) |
