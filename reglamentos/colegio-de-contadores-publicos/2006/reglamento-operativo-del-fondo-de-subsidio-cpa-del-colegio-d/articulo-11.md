@@ -1,1 +1,0 @@
-Artículo 11.—Tope de préstamos. El máximo a prestar por los anteriores conceptos podrá ser hasta equivalente a diez salarios mínimos de contador, en todo caso dependerá del tipo de crédito y del disponible presupuestario.

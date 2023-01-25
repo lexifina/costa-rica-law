@@ -1,1 +1,0 @@
-Artículo 6º—De las garantías para los préstamos. Las garantías que el Fondo puede aceptar son: Fiduciarias, Prendarias e Hipotecarias en Primer Grado. La aceptación de cada caso quedará a juicio de la Junta Directiva. Las mismas serán reguladas por el Reglamento de Crédito.
