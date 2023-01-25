@@ -1,2 +1,3 @@
-Artículo 51.—Incumplimiento del Reglamento
-El funcionario que incumpla con las disposiciones del presente reglamento, así como las directrices vinculadas con este y las disposiciones que emane la Contraloría General de la República, se remitirá a la Administración Superior para la investigación disciplinaria; de manera que se le establezca la sanción que corresponda, de conformidad con el libro II del Procedimiento Administrativo de la Ley General de Administración Pública.
+Artículo 51. Retiro de efectivo
+En ningún caso se autoriza el retiro de efectivo con la "Tarjeta de uso condicionado para compras institucionales".
+(Así adicionado mediante sesión ordinaria N° 003-2023 del 25 de enero del 2023)

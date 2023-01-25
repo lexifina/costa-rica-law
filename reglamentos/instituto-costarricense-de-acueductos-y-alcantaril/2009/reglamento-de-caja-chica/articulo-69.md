@@ -1,0 +1,3 @@
+Artículo 69. Reporte de la tarjeta por robo o perdida
+El tarjetahabiente reportará de inmediato el robo o pérdida de su tarjeta mediante llamada telefónica a la entidad bancaria (centro de asistencia al cliente), con el propósito de que la misma sea bloqueada temporalmente y comunicará esta situación por escrito al director nacional, regional o jefatura inmediata, indicando el número de reporte asignado por el banco. El tarjetahabiente queda obligado a verificar el cumplimiento del artículo N°69 de este reglamento y en caso de que esto no se cumplan puede reportar esta situación directamente a la Dirección de Finanzas.
+(Así adicionado mediante sesión ordinaria N° 003-2023 del 25 de enero del 2023)

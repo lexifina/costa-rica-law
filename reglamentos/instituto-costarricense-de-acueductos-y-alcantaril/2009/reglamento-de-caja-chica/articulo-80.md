@@ -1,0 +1,3 @@
+Artículo 80. Transferencia electrónica de fondos
+Una vez aplicada la transferencia electrónica de fondos a cualesquiera de las cuentas corrientes indicadas por la Dirección de Finanzas, el administrador de la Caja Chica debe enviar un correo informando de esta transacción al buzón tarjetasbncontrol@aya.go.cr. En el correo debe indicar el nombre del tarjetahabiente, número de cédula, número de la tarjeta, número de voucher, fecha de la compra, detalle de la compra, monto, número documento registro del gasto y número documento registro del crédito a la cuenta corriente.
+(Así adicionado mediante sesión ordinaria N° 003-2023 del 25 de enero del 2023)

@@ -1,2 +1,3 @@
-Artículo 49.—Administración Indivisible del Fondo Fijo
-Todo fondo fijo es indivisible y debe ser administrado y controlado en un único espacio físico por el funcionario debidamente designado, en las condiciones estipuladas en el artículo N° 7 de este Reglamento.
+Artículo 49. Monto de las compras
+El monto máximo por cada compra en que se utilice la "Tarjeta de uso condicionado para compras institucionales" será hasta el monto máximo autorizado para realizar compras con fondos de caja chica. para satisfacer las necesidades de alimentación del personal que labora en la atención de emergencias, el monto máximo para las compras por refrigerio y cena no podrá ser superior a la tarifa autorizada para desayuno y cena, respectivamente, en el Reglamento de Gastos de Viaje y de Transporte para funcionarios públicos.
+(Así adicionado mediante sesión ordinaria N° 003-2023 del 25 de enero del 2023)

@@ -1,2 +1,3 @@
-Artículo 28.—Imposibilidad de Liquidación de Adelanto
-Cuando un funcionario a quien se le haya girado un adelanto por caja chica, sea de viáticos o para compras, tuviera una incapacidad o cualquier otra situación por la que le fuera materialmente imposible realizar la liquidación del adelanto, la jefatura deberá realizar todas las acciones necesarias tendientes a liquidar el adelanto e informar a la Dirección de Finanzas el resultado de estas.
+Artículo 28. Imposibilidad liquidación de gastos.
+Cuando un funcionario a quien se le haya girado un adelanto por caja chica sea de viáticos o para compras, o cuando deba presentar una liquidación de gastos para los que no solicitó adelanto, tuviera una incapacidad o cualquier otra situación por la que le fuera materialmente imposible realizar la liquidación de los gastos, la jefatura deberá realizar todas las acciones necesarias tendientes a liquidar los gastos e informar a la Dirección de Finanzas el resultado de estas.
+(Así reformado mediante sesión ordinaria N° 003-2023 del 25 de enero del 2023)

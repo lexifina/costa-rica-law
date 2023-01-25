@@ -1,4 +1,3 @@
-CAPÍTULO IX
-Disposiciones Finales
-Artículo 52.—Derogatoria
-El presente Reglamento deroga totalmente el Acuerdo N° 97-370, adoptado por la Junta Directiva del Instituto Costarricense de Acueductos y Alcantarillados, en la sesión N° 1997-055, celebrada el 24 de noviembre de 1997, publicado en La Gaceta N° 13 del 20 de enero de 1998, mediante el cual se dictó el Reglamento General de Cajas Chicas y Fondos de Trabajo del Instituto Costarricense de Acueductos y Alcantarillados, así como cualquier otro acuerdo o directriz interno que se le oponga.
+Artículo 52. Monto disponible
+La Gerencia General juntamente con la Dirección de Finanzas determinarán el monto que tendrá disponible cada "Tarjeta de uso condicionado para compras institucionales" autorizada; el importe definido será revisado y modificado de acuerdo con las necesidades institucionales y el consumo promedio anual.
+(Así adicionado mediante sesión ordinaria N° 003-2023 del 25 de enero del 2023)

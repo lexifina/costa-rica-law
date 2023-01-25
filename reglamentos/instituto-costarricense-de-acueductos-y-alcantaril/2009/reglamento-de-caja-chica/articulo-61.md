@@ -1,0 +1,3 @@
+Artículo 61. Recibo tarjeta
+El tarjetahabiente al recibir su tarjeta debe verificar que la información impresa en la misma está correctamente consignada; firma el acta de entrega de la tarjeta y procede de inmediato a estampar su firma en la banda magnética al dorso de la tarjeta; caso contrario, es decir si los datos impresos en la tarjeta están incorrectos, no recibe los documentos y comunica esta situación a su jefatura para que la tarjeta sea devuelta a la Dirección de Finanzas, a efecto de coordinar con la entidad bancaria la emisión de un nuevo plástico.
+(Así adicionado mediante sesión ordinaria N° 003-2023 del 25 de enero del 2023)

@@ -1,0 +1,3 @@
+Artículo 59. Recepción tarjetas
+El funcionario designado por la Dirección de Finanzas para recibir por parte de la entidad bancaria las tarjetas (plástico) debe verificar que los datos impresos en éstas son correctos, es decir corresponden a la información remitida esa entidad para la emisión de las "Tarjetas de uso condicionado para compras institucionales", debiendo de custodiar las mismas, hasta que sean entregadas al funcionario autorizado por los directores, quien asume la misma responsabilidad hasta que ésta sea entregada al tarjetahabiente.
+(Así adicionado mediante sesión ordinaria N° 003-2023 del 25 de enero del 2023)
