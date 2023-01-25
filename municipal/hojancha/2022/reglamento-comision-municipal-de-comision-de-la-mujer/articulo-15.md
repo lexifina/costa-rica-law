@@ -1,0 +1,2 @@
+Artículo 15.-La Comisión deberá presentar ante el Concejo Municipal un informe completo de las labores realizadas; tanto como de aquellas pendientes para resolver.
+Es deber de la Comisión desarrollar y participar en el proceso de capacitación denominado: "Fortaleciendo nuestro liderazgo para la incidencia política como integrante de la Comisión Municipal de la Condición de la Mujer" y para ello, la presidenta de la Comisión solicitará a la OFIM y al INAMU su acompañamiento en dicho proceso.

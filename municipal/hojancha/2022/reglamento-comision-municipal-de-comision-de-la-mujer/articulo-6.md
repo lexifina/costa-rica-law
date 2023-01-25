@@ -1,0 +1,1 @@
+Artículo 6º-Garantizar que en el Plan de Desarrollo Municipal presentado por la persona titular de la alcaldía Municipal, se incorpore la perspectiva de género y se promueva el acceso y ejercicio de los derechos de las mujeres del Cantón.

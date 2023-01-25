@@ -1,0 +1,1 @@
+Artículo 12.-El nombramiento de la presidencia de la Comisión de la Condición de la Mujer, deberá escogerse entre las personas Regidoras Propietarias que la conforman, así como el cargo de secretaria de la comisión. La encargada de la Ofim fungirá como asesora de apoyo.

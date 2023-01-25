@@ -1,0 +1,1 @@
+Artículo 4º-Preparar y presentar al Concejo, las necesidades presupuestarias anuales, para cumplir su cometido y en caso fortuito cualquier iniciativa que sea requerida para que sean incorporados al presupuesto de la OFIM para los proyectos de la CMCM.

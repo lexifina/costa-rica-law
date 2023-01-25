@@ -1,0 +1,1 @@
+Artículo 5º-Promover las directrices que en políticas de género y derechos humanos de las mujeres se emanen del Instituto Nacional de las Mujeres INAMU, e impulsará los proyectos que en este campo se requieran.
