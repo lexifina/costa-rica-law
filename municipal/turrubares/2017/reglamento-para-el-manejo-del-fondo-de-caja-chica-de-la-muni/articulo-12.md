@@ -1,1 +1,0 @@
-Artículo 12.—Al finalizar las operaciones diarias, los días viernes de cada semana el encargado de la caja chica deberá efectuar un arqueo del fondo, para lo cual utilizará el formulario de arqueos de caja chica y deberá dejarse evidencia de esta operación en el archivo consecutivo de los formularios. La Administración Municipal verificará estos arqueos periódicamente.

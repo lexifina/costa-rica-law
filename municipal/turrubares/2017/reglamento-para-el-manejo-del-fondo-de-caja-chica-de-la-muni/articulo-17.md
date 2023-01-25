@@ -1,1 +1,0 @@
-Artículo 17.—Traslado del manejo del fondo: Los traslados del fondo de caja chica de un encargado a otro quedarán respaldados por un previo arqueo del fondo, debidamente firmado por ambos funcionarios y con el Visto Bueno del Alcalde Municipal.

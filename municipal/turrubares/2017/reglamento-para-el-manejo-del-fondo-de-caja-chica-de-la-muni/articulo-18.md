@@ -1,1 +1,0 @@
-Artículo 18.—En lo relativo a activos fijos sujetos a depreciación, debe procederse a incluir en el inventario por lo que cada Unidad deberá comunicar a Proveeduría para que esta selle la factura correspondiente y proceda a actualizar el registro.

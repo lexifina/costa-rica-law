@@ -1,1 +1,0 @@
-Artículo 8º—Monto del fondo: Se autoriza la apertura de La Chica, para realizar pagos menores a 500 mil colones, el monto fijo de la caja chica será de 2 millones de colones exactos, dichos montos se incrementarán automáticamente un 10% el 01 de enero de cada año.
