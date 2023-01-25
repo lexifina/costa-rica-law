@@ -1,1 +1,3 @@
-Artículo 16. Notificaciones por medios electrónicos. La dirección de correo electrónico señalada por las empresas en cualquiera de las etapas de este capítulo, será el medio oficial de notificación para todos los efectos del proceso de adquisición y demás procedimientos relacionados con ésta.
+CAPÍTULO V
+Sanciones y derogaciones
+Artículo 16.-Sanciones. Las disposiciones establecidas en el presente Reglamento son las indicadas en el TÍTULO VI Régimen sancionatorio de la LGCP y se impondrán mediante los procedimientos disciplinarios establecidos para tal efecto.

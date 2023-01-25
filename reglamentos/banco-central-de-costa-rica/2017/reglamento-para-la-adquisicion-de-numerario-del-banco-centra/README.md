@@ -14,3 +14,4 @@ Reglamento para la adquisición de numerario del Banco Central de Costa Rica
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-09-20 | la propia norma |
+| 2 | 2023-01-25 | Reglamento 6102 (2023-01-25) |

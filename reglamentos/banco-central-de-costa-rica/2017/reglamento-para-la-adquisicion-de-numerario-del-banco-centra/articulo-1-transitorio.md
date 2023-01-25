@@ -1,2 +1,4 @@
-Capítulo VII. Disposiciones finales
-Transitorio 1. Procedimientos de contratación en trámite. Los procedimientos de contratación y los sondeos de mercado de numerario iniciados antes de la vigencia de este reglamento, se concluirán conforme con las disposiciones vigentes en el momento en que se inició el trámite respectivo.
+CAPÍTULO VI
+Disposiciones finales
+Transitorio I.-Los procedimientos de contratación y contratos iniciados, antes de la vigencia de este reglamento, se concluirán conforme a las disposiciones vigentes en el momento de adoptarse la decisión inicial del procedimiento.
+El presente Reglamento rige a partir de su publicación en el diario oficial La Gaceta.
