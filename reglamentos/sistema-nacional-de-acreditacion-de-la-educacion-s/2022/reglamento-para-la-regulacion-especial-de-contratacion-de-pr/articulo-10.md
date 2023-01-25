@@ -1,0 +1,3 @@
+CAPÍTULO III
+Procedimiento
+Artículo 10.-Generalidades del Procedimiento. El procedimiento como mecanismo de contratación del profesional, así como la ejecución del contrato, deben de ser expeditos, prácticos y ajenos a plazos cuya extensión desvirtúen su naturaleza, y deberá adaptarse, en lo pertinente, a los principios de eficiencia y eficacia de la administración pública. El procedimiento está establecido en el Manual de procedimientos de SINAES.

@@ -1,0 +1,2 @@
+Artículo 7º-De los acuerdos de nombramiento. Por cada proceso de acreditación, serán nombrados por parte del CNA los profesionales evaluadores, sean estos nacionales y/o extranjeros con sus respectivos suplentes para que, como función principal, comprueben la objetivad y veracidad de los informes de autoevaluación que las carreras deben presentar;
+así como las revisiones de actividades o etapas internas que son parte del proceso de acreditación. Cada uno de estos acuerdos de nombramiento autorizan el inicio del proceso de contratación de los profesionales.

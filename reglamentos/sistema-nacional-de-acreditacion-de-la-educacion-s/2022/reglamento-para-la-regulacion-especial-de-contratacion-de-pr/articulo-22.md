@@ -1,0 +1,1 @@
+Artículo 22.-Modificaciones de Procedimientos. Deberá la Dirección Ejecutiva instruir a las diferentes Divisiones realizar las modificaciones a todos aquellos procedimientos internos del SINAES para ajustarlos a lo aquí dispuesto.

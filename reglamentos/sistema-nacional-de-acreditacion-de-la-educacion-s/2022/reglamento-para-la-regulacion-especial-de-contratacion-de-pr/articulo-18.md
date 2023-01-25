@@ -1,0 +1,1 @@
+Artículo 18.-Recepción definitiva del objeto contractual. Corresponde al representante institucional (GEA) realizar la recepción definitiva del objeto contractual, el cual deberá constar en el expediente, en un documento en el que se indique la recepción a satisfacción del objeto requerido.
