@@ -1,0 +1,1 @@
+Transitorio I.-La administración tiene la responsabilidad de notificar a los funcionarios o representantes en un plazo máximo de 3 días hábiles después de emitido el acuerdo de aprobación del presente reglamento.

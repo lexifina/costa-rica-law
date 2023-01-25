@@ -1,0 +1,1 @@
+Artículo 21.-Perdidas de objetos. En caso de sustracción o pérdida de los objetos transportados a giras o actividades que sean propiedad de la institución, el funcionario o representante deberá informar oportunamente al superior inmediato y a la administración, y se procederá de acuerdo con lo establecido en el Reglamento de Gestión de Bienes de Propiedad, Planta y Equipo.

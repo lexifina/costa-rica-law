@@ -1,0 +1,6 @@
+Artículo 15.-Condiciones para el pago del kilometraje. Será responsabilidad de la contabilidad, previo a la ejecución del pago, verificar que la solicitud presente las siguientes condiciones:
+. La solicitud haya sido elaborada por medio del formulario oficial destinado para este fin, con la excepción de aquellos casos de fuerza mayor o caso fortuito que ha criterio de la administración proceda el pago.
+. La revisión del formulario determine que no existen errores o inconsistencias en el contenido, en caso contrario, se prevendrá al solicitante a fin de que los corrija.
+. La solicitud debe incluir únicamente el kilometraje que corresponda entre el lugar de origen y lugar de destino, salvo casos eventuales en los cuales haya sido necesario acudir a desvíos en las rutas oficiales, ya sea por cierre de carreteras, condiciones climáticas, u otros motivos de fuerza mayor debidamente justificados.
+. Cuando se solicite reconocer gastos adicionales por concepto de peajes, transbordos o parqueos, estos deben presentar el comprobante respectivo.
+En caso de incumplimiento de alguna de las condiciones anteriormente indicadas, se procederá inmediatamente con el rechazo del trámite de pago de kilometraje, notificando al solicitante para su corrección.

@@ -1,0 +1,1 @@
+Artículo 22.-Sanciones. El incumplimiento de cualquiera de los artículos que conforman este reglamento o en caso de identificar falsedades e irregularidades en la información presentada, obligará a la imposición de las medidas disciplinarias, civiles o penales que correspondan, con previo cumplimiento del debido proceso.

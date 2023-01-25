@@ -1,0 +1,1 @@
+Artículo 25.-Casos no previstos. Los casos no previstos en el presente reglamento se resolverán considerando normas supletorias vigentes, procedimientos o lineamientos internos institucionales y finalmente por las directrices o criterios que sean emitidos por la administración.

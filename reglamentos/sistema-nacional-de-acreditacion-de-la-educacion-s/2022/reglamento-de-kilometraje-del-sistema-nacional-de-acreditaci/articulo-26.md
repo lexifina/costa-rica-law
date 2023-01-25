@@ -1,0 +1,1 @@
+Artículo 26.-Entrada en vigor. El presente reglamento rige a partir de su publicación en el Diario Oficial La Gaceta. Aprobada por el Consejo Nacional de Acreditación en la sesión ordinaria 1614-2022, celebrada el viernes 2 de setiembre de 2022.

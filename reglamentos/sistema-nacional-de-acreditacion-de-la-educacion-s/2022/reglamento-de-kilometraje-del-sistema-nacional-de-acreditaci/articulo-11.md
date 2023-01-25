@@ -1,0 +1,4 @@
+CAPÍTULO III
+Del procedimiento de pago del kilometraje
+Artículo 11.-Solicitud de pago de kilometraje. Aquellos funcionarios o representantes que posean con anterioridad un contrato de arrendamiento podrán solicitar el reconocimiento de kilometraje cuando su superior inmediato apruebe trasladarse fuera de su domicilio laboral para el cumplimiento de las actividades laborales o en el ejercicio de actividades asignadas que son de interés institucional.
+El pago del kilometraje se reconocerá contra recorrido efectuado, es decir, posterior a la actividad y no antes de esta, por lo que no se autorizará ningún tipo de adelanto. Será responsabilidad del superior inmediato, previo a la asistencia a la actividad, validar que se cumplan las condiciones establecidas en el artículo N° 7 del presente reglamento.
