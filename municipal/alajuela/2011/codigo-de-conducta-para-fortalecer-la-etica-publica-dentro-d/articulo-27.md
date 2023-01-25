@@ -1,1 +1,0 @@
-Artículo 27.—Evitar la injerencia política que pueda afectar nuestra honestidad, objetividad e independencia en nuestra toma de decisiones, conforme a los valores institucionales, y en beneficio del interés público.

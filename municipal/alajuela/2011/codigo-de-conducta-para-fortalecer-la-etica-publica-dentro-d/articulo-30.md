@@ -1,4 +1,0 @@
-CAPÍTULO VI
-Relaciones con los y las clientes
-Brindar servicios públicos a la ciudadanía cada vez más eficientes para el logro de la cobertura total en la prestación de los mismos, con altos niveles de calidad, atendiendo las necesidades de los y las clientes que reciben un producto o servicio generado por los procesos institucionales, según lo establecen las políticas institucionales así como las mejores prácticas de una sana administración, que brinde al cliente un clima de apoyo y transparencia en nuestras labores cotidianas. Con el fin de ofrecer servicios efectivos a las personas ciudadanas Alajuelenses, nos comprometemos con las siguientes conductas:
-Artículo 30.—Ofrecemos al cliente la debida y oportuna atención, de manera amable y diligente identificándonos con sus intereses y los objetivos institucionales, y procurando una buena presentación personal.

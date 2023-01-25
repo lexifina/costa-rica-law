@@ -1,1 +1,0 @@
-Artículo 22.—Nos solidarizamos con los/as compañeros/as que se encuentran atravesando situaciones difíciles, las cuales guardamos con respeto, y sin comentarios, aportando nuestro apoyo necesario, para evitar acciones que puedan interferir con el menoscabo de la dignidad de las personas, o su integridad física.

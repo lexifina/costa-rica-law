@@ -1,1 +1,0 @@
-Artículo 8º—La equidad. Frente a quienes solicitan o demandan el servicio se debe actuar con imparcialidad y objetividad, sin discriminación, ni preferencias, en la idea esencial de ser útil a las demás personas. Estarán justificados sólo aquellos tratamientos especiales amparados por ley o resolución pública del organismo competente.

@@ -1,1 +1,0 @@
-Artículo 41.—Los/as servidores/as municipales responsables de adquisiciones y compras deberán informar al superior/a una relación de los bienes adquiridos y servicios contratados, el objeto y valor de tales bienes y servicios, su destino, el nombre del adjudicatario/a, así como las licitaciones declaradas desiertas.

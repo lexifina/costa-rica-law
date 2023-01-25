@@ -1,1 +1,0 @@
-Artículo 14.—La responsabilidad. Responder por lo que se asume, por asignación o por iniciativa propia, conocer sus limitaciones y con el debido control y seguimiento conforme a competencias, sin evadir compromisos contraídos, y proteger el patrimonio de su ámbito de trabajo.

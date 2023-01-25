@@ -1,1 +1,0 @@
-Artículo 11.—La vocación de servicio. Siempre con sentido institucional, entrega diligente a las tareas asignadas y atención respetuosa, oportuna, pronta y eficaz a los justos requerimientos que se hagan, procurando en todo momento los mejores resultados del servicio.
