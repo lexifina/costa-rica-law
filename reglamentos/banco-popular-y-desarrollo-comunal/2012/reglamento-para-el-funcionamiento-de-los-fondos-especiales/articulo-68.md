@@ -1,3 +1,9 @@
+CAPÍTULO VI
+Del Fondo de Avales Especiales FAE
+El Fondo de Avales Especiales FAE, se podrá gestionar por medio de Programas de Avales Individuales o Programas de Avales de Cartera en sus diferentes modalidades.
 Artículo 68.
-La Dirección de Banca de Desarrollo Social y en función del ISP definido para los Fondos Especiales, determinará un sistema de comisiones sobre los avales otorgados y/o renovados, independientes de aquellas comisiones que cobre la entidad que otorgue el crédito por concepto del otorgamiento de los créditos, comisiones que podrá ser de 0% hasta 5% del monto avalado. Lo anterior de conformidad con los principios de sostenibilidad, racionalidad y solidaridad aplicables en la materia.
-Estas comisiones serán determinadas independientemente para cada programa de acuerdo con las condiciones establecidas por la Dirección Banca de Desarrollo Social para cada programa.
+Aval individual:
+Garantía otorgada a un sujeto de crédito por parte del FAE, con el fin de conceder avales parciales para los créditos de vivienda o refinanciamientos de vivienda que las personas de clase media tramiten ante el Banco y con ello facilitar el acceso a la vivienda o conservar la que ya poseen.
+Aval de cartera:
+Instrumento financiero creado para respaldar un conjunto de operaciones de crédito, garantías de participación, y/o cumplimiento mediante un tercero a favor de los beneficiarios cuyo perfil demuestre algún grado de vulnerabilidad.
+Siendo este tercero responsable de velar por las condiciones de elegibilidad que establecen los requisitos legales de este Reglamento, así como demás requerimientos que se definan en cada programa específico.

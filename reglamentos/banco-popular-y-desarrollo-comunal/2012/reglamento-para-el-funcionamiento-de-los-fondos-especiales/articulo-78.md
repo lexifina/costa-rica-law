@@ -1,0 +1,2 @@
+Artículo 78.
+Una vez honrado el aval, le corresponderá a la entidad que otorga el crédito realizar todas las gestiones de cobro administrativas y judiciales con la debida diligencia hasta la resolución final según las normas vigentes en materia de Gestión Cobratoria e incluso el reintegro al Área de Fondos Especiales (AFE) del monto total o parcial del aval en caso de que se recupere. Todos los gastos que se generen por tales gestiones le serán a cargo de la entidad que otorga el crédito.

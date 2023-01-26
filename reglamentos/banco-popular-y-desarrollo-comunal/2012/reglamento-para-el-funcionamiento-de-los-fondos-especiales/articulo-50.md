@@ -1,2 +1,2 @@
-Artículo 50.
-Cuando el Banco lo requiera, realizará el avalúo correspondiente para verificar el estado de los bienes recibidos en garantía y actualizar su valoración.
+Artículo 50. De las garantías:
+Todos los créditos deberán ser respaldados con garantía suficiente.

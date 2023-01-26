@@ -1,0 +1,3 @@
+Artículo 85.
+De recuperarse parcial o totalmente el monto del aval por parte de la entidad que otorga el crédito, esta deberá trasladar esos recursos al Área de Fondos Especiales (AFE) dentro de los 30 dí|as hábiles posteriores a que los haya recibido. En todo caso la entidad que otorga el crédito cancelará de manera prioritaria el aval honrado, condiciones que se establecerán para cada programa específico; según lo normado a nivel de procedimiento.
+La entidad que otorga el crédito no podrá privilegiar el cobro administrativo y/o judicial de la operación de crédito en detrimento del aval honrado.

@@ -1,4 +1,7 @@
 Artículo 64.
-Para el honramiento de los avales y ante solicitud expresa de la entidad que otorga el crédito, el AFE lo tramitará en forma irrevocable e incondicional, después de la verificación del cumplimiento de requisitos definidos, de lo contrario se devuelve. Luego de transcurridos hasta noventa días naturales contados a partir del primer día de incumplimiento del deudor, según se defina para cada programa.
-En los expedientes de crédito de cada operación avalada y para una eventual revisión, deben quedar documentadas las acciones que demuestren que se ha cumplido con la debida diligencia de las gestiones cobratorias.
-Toda la gestión de· honramiento del aval, así como su eventual reintegro al Área de Fondos Especiales (AFE), corresponderá a la entidad que otorga el crédito.
+Cuando se compruebe que una persona solicitante u obligada, sin mediar dolo, ha suministrado información incorrecta, el Banco, considerando el interés institucional, respetando el principio de igualdad y de acuerdo con la gravedad de la falta podrá aplicar una de las siguientes opciones:
+a) Efectuar las correcciones del caso y mantener las condiciones del crédito.
+b) Variar la tasa de interés hasta la tasa activa más alta que en la respectiva moneda rija en ese momento en el Banco. Si la infracción se comete en un crédito que tiene la tasa activa más alta de
+todas, se podrá aumentar dicha tasa hasta en cinco puntos porcentuales o,
+c) Dar por vencida la obligación y exigir su cancelación inmediata.
+En caso de que el crédito haya sido otorgado por un órgano unipersonal, la sanción la fijará el órgano colegiado con atribuciones inmediatamente superiores.

@@ -1,6 +1,4 @@
-Artículo 54.
-Cuando el Banco compruebe que una persona solicitante u obligada ha infringido cualquiera de las condiciones convenidas en la contratación del préstamo o en este Reglamento no indicadas en los dos artículos anteriores, salvo atraso de la operación, y considerando el interés institucional, respetando el principio de igualdad y de acuerdo con la gravedad de la falta, podrá aplicar una de las siguientes opciones:
-a) efectuar las correcciones del caso y mantener las condiciones del crédito,
-b) variar la tasa de interés hasta la tasa activa más alta que en la respectiva moneda rija en ese momento en el Banco. Si la infracción se comete en un crédito que tiene la tasa activa más alta de todas, se podrá aumentar dicha tasa hasta en cinco puntos porcentuales o,
-c) dar por vencida la obligación y exigir su cancelación inmediata.
-En caso de que el crédito haya sido otorgado por un órgano unipersonal, la decisión deberá trasladarse al órgano colegiado con atribuciones inmediatamente superiores.
+Artículo 54. De las comisiones:
+Para la fijación de las comisiones de los créditos del Fondo BP Bienestar deberá considerarse lo siguiente:
+a. Se establecerá una única comisión de formalización que no podrá exceder el 3% sobre el principal de la operación, la cual puede ser financiada.
+b. La Gerencia General Corporativa, podrá ajustar las comisiones de formalización dentro del rango establecido en el punto anterior respetando el principio de igualdad. De conformidad con lo definido en la guía general de productos de crédito.

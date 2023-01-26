@@ -1,0 +1,2 @@
+Artículo 84.
+El monto máximo del aval por honrar para cada operación de crédito se calculará de acuerdo con las condiciones establecidas por la Dirección Banca de Desarrollo Social para cada programa.

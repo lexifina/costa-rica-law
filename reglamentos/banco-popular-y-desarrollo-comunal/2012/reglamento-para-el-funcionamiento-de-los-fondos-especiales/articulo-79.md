@@ -1,0 +1,2 @@
+Artículo 79.
+En toda recuperación de crédito administrativa o judicial que haga la entidad que otorga el crédito, tendrá prelación la recuperación del aval una vez aplicados los gastos, costas, comisiones u otros rubros que tengan prelación de pago.

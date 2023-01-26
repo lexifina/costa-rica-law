@@ -1,2 +1,2 @@
-Artículo 48.
-Sin pe􀁇uicio de lo indicado en el artículo 54 de este Reglamento, ante incumplimiento por parte del cliente debidamente comprobado de alguna de las cláusulas del contrato, el Banco se reserva el derecho de suspender total o parcialmente los desembolsos del crédito.
+Artículo 48. Sujetos de Crédito
+Los sujetos de crédito son todas las personas asalariadas o con ingresos propios que tengan una condición de sobreendeudamiento, pero que han demostrado interés en cancelar sus obligaciones, independientemente de su calificación crediticia en la SUGEF.

@@ -1,2 +1,6 @@
 Artículo 66.
-En toda recuperación de crédito administrativa o judicial que haga la entidad que otorga el crédito, tendrá prelación la recuperación del aval una vez aplicados los gastos, costas, comisiones u otros rubros que tengan prelación de pago.
+Cuando el Banco compruebe que una persona solicitante u obligada ha infringido cualquiera de las condiciones convenidas en la contratación del préstamo o en este Reglamento no indicadas en los dos artículos anteriores, salvo atraso de la operación, y considerando el interés institucional, respetando el principio de igualdad y de acuerdo con la gravedad de la falta, podrá aplicar una de las siguientes opciones:
+a) Efectuar las correcciones del caso y mantener las condiciones del crédito,
+b) Variar la tasa de interés hasta la tasa activa más alta que en la respectiva moneda rija en ese momento en el Banco. Si la infracción se comete en un crédito que tiene la tasa activa más alta de todas, se podrá aumentar dicha tasa hasta en cinco puntos porcentuales o,
+c) Dar por vencida la obligación y exigir su cancelación inmediata.
+En caso de que el crédito haya sido otorgado por un órgano unipersonal, la decisión deberá trasladarse al órgano colegiado con atribuciones inmediatamente superiores.

@@ -1,2 +1,3 @@
 Artículo 71.
-El monto máximo del aval por honrar para cada operación de crédito se calculará de acuerdo con las condiciones establecidas por la Dirección Banca de Desarrollo Social para cada programa.
+Serán beneficiarios del FAE:
+Personas físicas o jurídicas que requieran un aval como garantía del FAE, en función de las condiciones establecidas para cada programa avalado y cuyo perfil demuestre algún grado de vulnerabilidad.

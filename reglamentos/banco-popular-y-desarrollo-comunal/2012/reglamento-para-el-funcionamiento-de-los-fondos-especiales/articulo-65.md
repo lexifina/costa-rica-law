@@ -1,2 +1,6 @@
 Artículo 65.
-Una vez honrado el aval, le corresponderá a la entidad que otorga el crédito realizar todas las gestiones de cobro administrativas y judiciales con la debida diligencia hasta la resolución final según las normas vigentes en materia de Gestión Cobratoria e incluso el reintegro al Área de Fondos Especiales (AFE) del monto total o parcial del aval en caso de que se recupere. Todos los gastos que se generen por tales gestiones le serán a cargo de la entidad que otorga el crédito.
+Cuando el Banco compruebe que un solicitante u obligado ha incumplido el plan de inversión, el Banco, considerando el interés institucional, respetando el principio de igualdad y de acuerdo con la gravedad de la falta podrá aplicar una de las siguientes opciones:
+a. Efectuar las correcciones del caso y mantener las condiciones del crédito,
+b. Variar la tasa de interés hasta la tasa activa más alta que en la respectiva moneda rija en ese momento en el Banco. Si la infracción se comete en un crédito que tiene la tasa activa más alta de todas, se podrá aumentar dicha tasa hasta en cinco puntos porcentuales, o,
+c. Dar por vencida la obligación y exigir su cancelación inmediata.
+En caso de que el crédito haya sido otorgado por un órgano unipersonal, la decisión deberá trasladarse al órgano colegiado con atribuciones inmediatamente superiores.

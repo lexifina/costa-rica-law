@@ -1,5 +1,4 @@
-Artículo 59.
-Los beneficiarios del FAE podrán hacer uso de los siguientes tipos de avales:
-Avales Individuales y Avales de Cartera definidos en este Reglamento.
-Queda a facultad de la Gerencia General Corporativa la definición de los parámetros de cumplimiento para cada programa autorizado según la modalidad, y que serán definidos bajo las políticas y directrices Institucionales.
-Para todos los casos indicados el FAE solo podrá honrar avales y bajo ninguna premisa girar dinero.
+CAPITULO V
+DISPOSICIONES FINALES PARA LOS FONDOS DE FEDE, FEVI y BP BIENESTAR
+Artículo 59. Intereses moratorios:
+El monto de los intereses moratorias será de hasta dos puntos porcentuales sobre la tasa vigente del crédito. Los intereses moratorios se aplicarán a partir del primer día de atraso y únicamente sobre las cuotas pendientes de pago.

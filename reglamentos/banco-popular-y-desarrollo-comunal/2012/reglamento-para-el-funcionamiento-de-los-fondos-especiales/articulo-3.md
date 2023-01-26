@@ -1,18 +1,20 @@
-*Artículo 3. Definiciones
+Artículo 3. Definiciones:
 Para los efectos de este Reglamento se entenderá por:
 AFE: Área de Fondos Especiales de la DBDS.
 APIS: Operación de vivienda refinanciada por el Banco que requirió de un aval del FAVI. (Arreglo de Pago con Impacto Social).
 Asada: Asociación administradora de los sistemas de acueductos y alcantarillados comunales que cumplan con las disposiciones legales aplicables al servicio.
 Banco: Banco Popular y de Desarrollo Comunal.
+La Junta Directiva Nacional en Sesión Ordinaria No. 5972 celebrara el 26 de enero del 2023, mediante acuerdo No. 081 inciso 2) acuerda modificar el Reglamento para el Funcionamiento de los Fondos Especiales, en los siguientes términos:
 Crédito al Sector Ambiente: Financiamiento a una persona jurídica, organización o empresa de la economía social solidaria, cuyo plan de inversión esté relacionado con la política del Banco en esta materia.
-Crédito para capacitación: Financiamiento a una persona jurídica, organización o empresa de la economía social solidaria que, como parte del desarrollo productivo por financiar, requiera fortalecer las habilidades del personal. Dicha capacitación debe estar estrechamente ligada al plan de inversión por financiar con los recursos del FEDE.
+Crédito para capacitación: Financiamiento a una persona jurídica, organización o empresa de la economía social solidaria que, como parte del desarrollo productivo por financiar, requiera fortalecer las habilidades del personal.
+Dicha capacitación debe estar estrechamente ligada al plan de inversión por financiar con los recursos del FEDE.
 Crédito Banca de segundo Piso: Crédito que se otorga a una persona jurídica, organización o empresa de la economía social solidaria que fungirá como entidad de primer piso, con el fin de que se atiendan las necesidades crediticias de la persona usuaria final. La persona jurídica, organización o empresa de la economía social solidaria deberán ajustarse a los parámetros definidos en el artículo 13 de este Reglamento.
 Crédito Sector Educación: Crédito que se otorga a una persona jurídica, organización o empresa de la economía social solidaria con el fin de que atienda las necesidades relacionadas a procesos educativos de la persona usuaria final.
 Crédito al Sector Productivo: Financiamiento que se confiere a una persona jurídica, organización o empresa de la economía social solidaria para una actividad que combina dos o más factores de producción (tierra, capital, trabajo, conocimiento), con el objetivo de obtener un bien o servicio final para ser vendido en un mercado determinado.
 Crédito al Sector Salud: Financiamiento a una persona jurídica, organización o empresa de la economía social solidaria para el establecimiento de una clínica, Centro de Salud, o proyecto similar.
 EESS: Empresas de la Economía Social Solidaria. Conjunto de entidades y organizaciones privadas que realizan actividades económicas y empresariales para satisfacer el interés colectivo de las personas que las integran y el interés general económico social de los territorios donde se ubican, de conformidad con los principios, fines, características y actores siguientes:
 a) Primacía de las personas y del fin u objetivos sociales sobre el capital, dado que la toma de decisiones y la gestión son democráticas y participativas, prevaleciendo en estas los aportes de trabajo y los servicios utilizados por las personas que las integran, y no sus aportaciones al capital social
-b) Los resultados obtenidos de la actividad económica en las EESS se aplican al logro de los _objetivos sociales. Los excedentes por distribuir entre las personas que las _integran se_ realizan principalmente en función del trabajo, por el uso de los servicios o por las actividades que estas hayan aportado. Las reservas y fondos creados para el cumplimiento de los fines sociales no son repartibles entre las personas integrantes, aun en caso de liquidación de la entidad.
+b) Los resultados obtenidos de la actividad económica en las EESS se aplican al logro de los objetivos sociales. Los excedentes por distribuir entre las personas que las integran se realizan principalmente en función del trabajo, por el uso de los servicios o por las actividades que estas hayan aportado. Las reservas y fondos creados para el cumplimiento de los fines sociales no son repartibles entre las personas integrantes, aun en caso de liquidación de la entidad.
 c) Promoción de la solidaridad interna y con el entorno social, a fin de fortalecer el compromiso con el desarrollo local, por la igualdad de oportunidades entre todas las personas que participan, por la cohesión y la inserción social, por la generación de empleos y puestos de trabajo estables y de calidad, por la sostenibilidad, así como por la conciliación entre la vida personal, familiar y laboral.
 d) Autonomía e independencia de los poderes públicos y de intereses externos.
 e) Que entre las diversas expresiones de la economía social solidaria se encuentran organizaciones tales como:
@@ -31,6 +33,7 @@ Entes Rectores y Aliados Estratégicos: Instituciones públicas o privadas con l
 Estrato Salarial: Un estrato salarial es igual al salario mínimo definido para un trabajador no especializado de la industria de la construcción.
 FAE: Fondo de Avales Especiales
 FAVI: Fondo Avales para Vivienda para la clase media.
+Fondo BP-Bienestar: Fondo creado para otorgar financiamiento a personas físicas con sobreendeudamiento, para solucionar emergencias de carácter social.
 Fondo Especial de Desarrollo (FEDE): Fondo constituido para financiar las líneas de crédito indicadas en este Reglamento, siempre y cuando sean económicamente viables y técnicamente factibles.
 Fondo Especial de Vivienda (FEVI): Fondo constituido para financiar hasta el 100% de la compra, remodelación, ampliación o mejoras de la primera vivienda según los parámetros de dicho fondo.
 Fondos Especiales: Fondos creados por la Junta Directiva Nacional para fines específicos.
@@ -41,14 +44,13 @@ Jóvenes: Hombres y mujeres con una edad comprendida entre los 18 y los 35 años
 Línea de crédito: Modalidad de crédito en la cual el FEDE puede formalizar diferentes operaciones derivadas de esta línea, y que generan disponibilidad independientemente del tipo de garantía.
 Menaje de casa: es el ajuar y utensilios de una casa que sirven exclusiva y propiamente para el uso diario de quienes la habitan. Se consideran, entre otros: cocina, lavadora, refrigeradora, muebles, televisor, microondas.
 Mercado meta FEDE: Las entidades pertenecientes a persona jurídicas, organización o empresas de la economía social solidaria, así como las poblaciones en esta normativa definidas para los usuarios de Banca de segundo piso.
+Mercado Meta Fondo BP Bienestar: Todas las personas asalariadas del sector público y del sector privado, o con ingresos propios como trabajadores independientes, que ostenten una condición de sobreendeudamiento.
 Núcleo familiar: Conjunto de personas que conviven y se han organizado para compartir las obligaciones derivadas del sustento y la protección mutua, y en el que al menos uno de ellos ostenta lazos de afinidad o consanguinidad hasta el tercer grado con los demás integrantes del núcleo. La unión de hecho según la define el artículo 242 del Código de Familia se tomará en cuenta para determinar lazos de afinidad.
 Pesca comercial pequeña escala: Pesca realizada en forma artesanal por personas físicas, sin mediar el uso de embarcación, en las aguas continentales o en la zona costera, o la practicada a bordo de una embarcación con una autonomía para faenar hasta un máximo de tres millas náuticas del mar territorial costarricense.
 Prima para vivienda: Monto económico que el comprador le da al vendedor de una vivienda como "señal de trato" dentro de un contrato de opción de compraventa.
 Refinanciamiento: Programas de refinanciamiento que la Dirección de Banca de Desarrollo Social autoriza para regularizar operaciones de crédito en los diferentes fondos y supletoriamente aquellas que implemente el BPDC.
 Riesgo de crédito: Condición a la que está expuesta la entidad de que el deudor incumpla con sus obligaciones en los términos pactados en el contrato de crédito.
 Seguimiento y acompañamiento: Son programas que desarrolla el Banco, a fin de brindarle seguimiento y acompañamiento a la persona jurídica, organización o empresa de la economía social solidaria que suscribe el crédito, en alianza con los entes rectores y aliados estratégicos.
+Sobreendeudamiento: Es la acumulación de deuda que impide que la persona reciba al menos un 25% de sus ingresos totales o ingresos líquidos mayor o igual al salario intangible e inembargable.
 Solución de Vivienda Clase Media (SVCM): Facilidad financiera que combina crédito y aval como medio para contribuir a resolver el problema de vivienda de la clase media según los parámetros definidos por la Gerencia General Corporativa con base en la actualización de los estudios de vivienda.
 Tope de vivienda programas de Fondos Especiales: Aquel definido por la Gerencia General Corporativa con base en la actualización de los estudios de vivienda.
-* Este artículo fue modificado por la Junta Directiva Nacional en sesión 5170 del 20 de mayo del 2014. Publicado en La Gaceta No. 107 del 05 de junio de 2014.
-** Este artículo fue modificado por la Junta Directiva Nacional en sesión 5170 del 20 de mayo del 2014. Publicado en La Gaceta No. 134 del 14 de julio de 2014.
-*** Este artículo fue modificado por la Junta Directiva Nacional en sesión 5318 del 20 de octubre del 2015. Publicado en La Gaceta No. 233 del 01 de diciembre de 2015.

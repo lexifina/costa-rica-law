@@ -1,3 +1,2 @@
 Artículo 60.
-Los beneficiarios solo tendrán acceso a los avales del FAE en productos de crédito o refinanciamiento y debe existir de previo una autorización general para usar dichos avales.
-Las condiciones finales de los programas de crédito o refinanciamiento por avalar son exclusivas de la entidad que otorga el crédito.
+Sin perjuicio de lo indicado en el artículo 54 de este Reglamento, ante incumplimiento por parte del cliente debidamente comprobado de alguna de las cláusulas del contrato, el Banco se reserva el derecho de suspender total o parcialmente los desembolsos del crédito.

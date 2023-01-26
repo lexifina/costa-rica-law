@@ -1,4 +1,5 @@
 CAPÍTULO IV
-DISPOSICIONES FINALES PARA LOS FONDOS DE FEDE Y FEVI
-Artículo 47. Intereses moratorios:
-El monto de los intereses moratorias será de hasta dos puntos porcentuales sobre la tasa vigente del crédito. Los intereses moratorias se aplicarán a partir del primer día de atraso y únicamente sobre las cuotas pendientes de pago.
+Del Fondo BP Bienestar
+Artículo 47. Objetivo del Fondo:
+Procurar el bienestar de los trabajadores costarricenses en condición de sobreendeudamiento, por medio de soluciones de crédito para cancelación de deudas, que les permita mejorar el ingreso líquido disponible.
+Será facultad de la Gerencia General Corporativa la definición de los parámetros de cumplimiento para la determinación de las condiciones y requisitos de cada producto, los cuales deberán consignarse en la guía general de productos de crédito.

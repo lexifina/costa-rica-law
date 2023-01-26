@@ -1,6 +1,2 @@
-Artículo 53.
-Cuando el Banco compruebe que un solicitante u obligado ha incumplido el plan de inversión, el Banco, considerando el interés institucional, respetando el principio de igualdad y de acuerdo con la gravedad de la falta podrá aplicar una de las siguientes opciones:
-a. efectuar las correcciones del caso y mantener las condiciones del crédito,
-b. variar la tasa de interés hasta la tasa activa más alta que en la respectiva moneda rija en ese momento en el Banco. Si la infracción se comete en un crédito que tiene la tasa activa más alta de todas, se podrá aumentar dicha tasa hasta en cinco puntos porcentuales, o,
-c. dar por vencida la obligación y exigir su cancelación inmediata.
-En caso de que el crédito haya sido otorgado por un órgano unipersonal, la decisión deberá trasladarse al órgano colegiado con atribuciones inmediatamente superiores.
+Artículo 53. Tasas de interés:
+La Gerencia General Corporativa podrá definir la modalidad de tasa de interés que considere conveniente, tomando como referencia la Tasa Básica Pasiva sin que exceda 5 puntos porcentuales superior o inferior a la referencia; según las condiciones propias del producto definido; siempre que sean de conocimiento público. De conformidad con lo definido en la guía general de productos de crédito.

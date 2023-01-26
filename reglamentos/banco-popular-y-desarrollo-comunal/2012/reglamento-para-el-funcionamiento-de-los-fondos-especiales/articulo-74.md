@@ -1,3 +1,6 @@
-Artículo 74. Metodologías de inversión
-El Área dueña del producto deberá acatar para el manejo operativo y la toma de decisiones sobre la ejecución de las inversiones, las disposiciones y las metodologías que en esta materia defina el Comité de Inversiones Ampliado del Banco Popular.
-Para montos mayores a Qt500.000.000,00 (Quinientos millones de colones), se faculta al comité de inversiones Ampliado del Banco Popular, a fijar disposiciones y autorizar las metodologías a utilizar, con el fin de establecer de una forma ágil y estandarizada del proceso de manejo de las Inversiones de Fondos Especiales
+Artículo 74.
+La formalización de cada crédito o refinanciamiento en combinación con el aval del FAE lo hará la entidad que otorga el crédito mediante el documento legal apropiado para dicho acto a utilizar en esa formalización.
+Estos documentos serán constituidos entre el beneficiario y la entidad que otorga el crédito; deben asegurar una correcta y pronta recuperación del aval.
+El FAE podrá utilizar mecanismos de contragarantías o reafianzamientos para generar mayor rentabilidad al patrimonio.
+El AFE puede hacer revisiones presenciales o virtuales de seguimiento en cualquier momento para verificar que se estén otorgando adecuadamente los avales y para hacer las recomendaciones operativas de mejora que sean necesarias, según lo normado a nivel de procedimiento.
+Estas revisiones deberán quedar evidenciadas y enviadas a la entidad que otorga el crédito.
