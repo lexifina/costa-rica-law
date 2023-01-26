@@ -1,0 +1,1 @@
+Artículo 2º-Marco normativo aplicable. La generación y publicación de información geoespacial debe ajustarse a los lineamientos, políticas, procedimientos, guías y fichas técnicas oficiales, que establezca el Instituto Geográfico Nacional del Registro Nacional.
