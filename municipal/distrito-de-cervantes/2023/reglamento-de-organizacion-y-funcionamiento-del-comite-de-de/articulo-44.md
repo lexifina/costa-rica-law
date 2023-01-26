@@ -1,0 +1,1 @@
+Artículo 45.-Los Comités Comunales deberán llevar un libro de actas y financiero en el que consten los informes referentes a su gestión, los cuales podrán ser solicitados por el Comité de deportes en cualquier momento.

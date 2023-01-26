@@ -1,0 +1,1 @@
+Artículo 46.-Cuando el Comité Comunal en coordinación con el área técnica del Comité de deportes realice torneos estará en la obligación de confeccionar el respectivo reglamento, el que debe ser aprobado previamente por el mencionado Comité de deportes y el concejo municipal.

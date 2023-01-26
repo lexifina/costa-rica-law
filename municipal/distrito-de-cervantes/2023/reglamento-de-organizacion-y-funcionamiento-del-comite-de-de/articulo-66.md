@@ -1,0 +1,1 @@
+Artículo 67.-Los colores oficiales del deporte del distrito de Cervantes deben ser los representativos en caso de no estar establecido se deberá de hacer un concurso para establecerlos con la participación de la comunidad.

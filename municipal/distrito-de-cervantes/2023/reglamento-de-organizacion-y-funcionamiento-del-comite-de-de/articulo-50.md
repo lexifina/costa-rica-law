@@ -1,0 +1,1 @@
+Artículo 51.-El presupuesto del Comité de deportes y sus distintos órganos, debe elaborarse reflejando los planes propuestos y programas que se ejecutarán en el período que éste cubre; los gastos presupuestarios no pueden exceder los ingresos estimados.

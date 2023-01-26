@@ -1,0 +1,1 @@
+Artículo 22.-Todo miembro deberá comunicar en forma escrita, cuando proceda, las razones de su inasistencia a las sesiones, a más tardar dentro de las veinticuatro horas siguientes de celebrada la sesión, en la oficina del Comité de deportes; caso contrario, será catalogada la inasistencia como injustificada y sancionable.

@@ -1,0 +1,2 @@
+Artículo 8°-Las comisiones, Asociaciones Deportivas y Comisiones establecidas deberán entregar al Comité de deportes en la primera semana del mes de febrero de cada año, los planes de trabajo para el año inmediato posterior, los cuales, serán sujetos de aprobación por parte del Comité de deportes, el que ejercerá los controles debidos para su ejecución.
+Igualmente deberán entregar informes trimestrales de labores y de ingresos y egresos.
