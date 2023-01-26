@@ -34,18 +34,9 @@ ANEXO DE TABLA N°1
 Equivalencias de las calificaciones de las agencias calificadoras de nesgo internacionales.
 B. Calificaciones de corto plazo:
 TABLA N° 2
-PLAZOS MÁXIMOS
-Línea crédito (Según Garantía) | Meses hasta
-a) Crédito personal con garantía hipotecaria que cubra el 100% del monto del crédito | 240
-b) Crédito personal con otras garantías (incluye además crédito para gastos médicos educación). | 180
-c) Crédito ambiental ara personas físicas. | 180
-d) Crédito garantizado con valores emitidos por el Banco Popular. | 360
-e) Crédito Empresarial: (Micro, Pequeños, Medianos, grandes empresas y empresarios y Corporativas). | 360
-f) Crédito Organizaciones Sociales | 360
-g) Vivienda | 360
-|
-h Bienes adjudicados | 360
-(Así reformada la tabla 2) anterior en sesión N° 5878 del 6 de diciembre de 2021)
+Plazos máximos
+[imagen]
+(Así reformada la tabla 2) anterior mediante sesión ordinaria N° 5972 del 26 de enero del 2023)
 TABLA N° 3
 MONTOS MÁXIMOS
 (*) TABLA N° 4
