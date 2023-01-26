@@ -15,3 +15,4 @@ Reglamento de Organización y Funcionamiento de la Auditoría Interna de la Univ
 | --- | --- | --- |
 | 1 | 2012-02-03 | la propia norma |
 | 2 | 2014-06-12 | Reglamento 2344 (2014-06-12) |
+| 3 | 2023-01-26 | Reglamento 2945 (2023-01-26) |

@@ -1,1 +1,1 @@
-Artículo 46.—Derogación de Reglamento. El presente Reglamento deroga el Reglamento de Auditoría Interna, aprobado por el Consejo Universitario en la sesión No. 632, artículo IV, inciso 11), del 30 de octubre de 1986, así como cualquier otra disposición interna que se le oponga.
+Artículo 46.- (Nota de Sinalevi: El texto de este numeral debe de ser consultado en el artículo 40. Ya que en sesión N° 2945 del 26 de enero de 2023, se derogó los numerales 37, 38, 39, 42, 43 y 44 del presente reglamento)

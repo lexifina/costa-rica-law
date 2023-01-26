@@ -1,1 +1,1 @@
-Artículo 47.—Vigencia del Reglamento. El presente Reglamento rige a partir de su publicación en el Diario Oficial La Gaceta.
+Artículo 47.- (Nota de Sinalevi: El texto de este numeral debe de ser consultado en el artículo 41. Ya que en sesión N° 2945 del 26 de enero de 2023, se derogó los numerales 37, 38, 39, 42, 43 y 44 del presente reglamento)

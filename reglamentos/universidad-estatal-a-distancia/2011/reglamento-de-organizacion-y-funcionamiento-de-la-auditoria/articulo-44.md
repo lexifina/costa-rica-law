@@ -1,1 +1,1 @@
-Artículo 44.—Envío de Actas y Minutas. Los Consejos o Comisiones Institucionales deberán enviar copia de sus actas o minutas, según corresponda, a la Auditoría Interna, a más tardar un mes después de aprobadas. La Auditoría Interna podrá solicitar por escrito en que otros casos, no contemplados, será necesario recibir dichos documentos.
+Artículo 44.- (Derogado en sesión N° 2945 del 26 de enero de 2023)

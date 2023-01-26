@@ -1,1 +1,1 @@
-Artículo 45.—Sanciones. El régimen sancionatorio por el incumplimiento de lo establecido en este Reglamento, lo será de conformidad con el Artículo 40 de la Ley General de Control Interno, así como cualquier normativa conexa.
+Artículo 45.-(Nota de Sinalevi: El texto de este numeral debe de ser consultado en el artículo 39. Ya que en sesión N° 2945 del 26 de enero de 2023, se derogó los numerales 37, 38, 39, 42, 43 y 44 del presente reglamento)
