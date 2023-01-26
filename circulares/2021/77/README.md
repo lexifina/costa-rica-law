@@ -13,3 +13,4 @@ Modificación de la circular N° 47-2021, denominada "Reiteración de la circula
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-04-15 | la propia norma |
+| 2 | 2023-01-26 | Circular 22 (2023-01-26) |
