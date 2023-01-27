@@ -14,3 +14,4 @@ Reglamento de evaluaciones prácticas de manejo para la obtención de licencias 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-05-14 | la propia norma |
+| 2 | 2023-01-27 | Resolución 5 (2023-01-27) |
