@@ -1,0 +1,1 @@
+Artículo 7º-Los documentos emitidos y recibidos por correo electrónico tendrán la validez y la eficacia de documentos físicos originales, también los archivos de documentos, mensajes, imágenes, banco de datos y toda aplicación almacenada o transmitida por este medio.

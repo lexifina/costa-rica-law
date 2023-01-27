@@ -1,0 +1,1 @@
+Transitorio 2º-La Municipalidad de Grecia deberá ir a las comunidades a informar y comunicar los alcances de este reglamento durante el plazo establecido para que los contribuyentes se apersonen a la municipalidad a fijar el buzón electrónico permanente.

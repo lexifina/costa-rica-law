@@ -1,0 +1,2 @@
+Artículo 5º-El buzón electrónico permanente registrado ante la municipalidad permitirá al contribuyente, la presentación de solicitudes, gestiones y comunicaciones a la Administración Tributaria Municipal todos los días del año, durante las veinticuatro horas, al correo electrónico oficial del departamento pertinente de esta municipalidad.
+A efectos del cómputo de plazos, la recepción en un día inhábil se entenderá efectuada en el primer día hábil siguiente.

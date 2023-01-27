@@ -1,0 +1,1 @@
+Artículo 4º-En los casos a los que se refiere el artículo anterior, la notificación de cualquier resolución o acto administrativo como autoridad tributaria se entenderá practicada para todos los efectos legales, al quinto día hábil siguiente de aquel en que el documento ha sido introducido en el buzón electrónico.
