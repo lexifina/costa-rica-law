@@ -1,0 +1,1 @@
+Artículo 3º-Recomendación técnica: en los casos en que se requiera una recomendación técnica de un órgano especializado, conforme lo establezca la legislación que ampare el beneficio fiscal respectivo, el sistema EXONET redireccionará la solicitud automáticamente al ente, cuando el interesado realiza la solicitud.

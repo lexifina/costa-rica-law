@@ -1,0 +1,1 @@
+Artículo 13.-Derogatorias: se deja sin efecto las resoluciones RES-DGH-038-2019 con fecha 21 de junio del 2019 y RES-DGH-044-2020 con fecha 01 de octubre del 2020, emitidas por la Dirección General de Hacienda.

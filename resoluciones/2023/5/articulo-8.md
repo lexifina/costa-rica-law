@@ -1,0 +1,1 @@
+Artículo 8º-Autorización Concreta y vigencia: se faculta al Departamento de Gestión de Exenciones conceder autorización Concreta de beneficios fiscales para compra local y/o de importación de mercancías para la adquisición de bienes y/ o servicios según corresponda a lo preceptuado en su respectiva legislación, por una única vez en un plazo de hasta seis meses.

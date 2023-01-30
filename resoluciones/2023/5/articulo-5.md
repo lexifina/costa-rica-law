@@ -1,0 +1,1 @@
+Artículo 5º-Revisión en el Departamento de Gestión de Exenciones: una vez constatado el cumplimiento de los requisitos señalados, el Departamento de Gestión de Exenciones deberá emitir la autorización correspondiente dentro del plazo de dos meses previsto en el artículo 102 del Código de Normas y Procedimientos Tributarios.

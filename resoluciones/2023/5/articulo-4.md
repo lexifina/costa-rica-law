@@ -1,0 +1,1 @@
+Artículo 4º-Requisitos: con el fin de que el Departamento de Gestión de Exenciones proceda a evaluar, la solicitud de exención de los beneficiarios indicados en el artículo 8 de la Ley del Impuesto Sobre el Valor Agregado, se requiere que estos se encuentren al día, tanto en sus obligaciones con la Caja Costarricense del Seguro Social como con sus obligaciones Tributarias.

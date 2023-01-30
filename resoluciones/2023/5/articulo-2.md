@@ -1,0 +1,1 @@
+Artículo 2º-Situaciones de Contingencia. En los casos en que, por fuerza mayor, causa fortuita o cualquier otro motivo que afecte el desempeño del Sistema EXONET, se podrá exceptuar su uso obligatorio, permitiendo al beneficiario realizar el trámite correspondiente de manera documental o por un medio digital alterno, mientras persistan tales circunstancias.
