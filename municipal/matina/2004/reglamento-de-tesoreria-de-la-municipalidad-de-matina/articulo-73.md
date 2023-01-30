@@ -1,1 +1,0 @@
-Artículo 73.—La custodia de formularios continuos de cheques en bodega, estarán bajo la responsabilidad de la Contadora, quien llevará los registros necesarios para controlar el uso y la cantidad mínima, a efecto de que realicen los trámites para nuevas impresiones.

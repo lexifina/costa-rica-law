@@ -1,1 +1,0 @@
-Artículo 4º—Queda prohibido la entrada de particulares y servidores municipales al Departamento de Tesorería. Se exceptúa de esta disposición al Auditor o Contador, en funciones de sus cargos previamente autorizado por el Tesorero Municipal.

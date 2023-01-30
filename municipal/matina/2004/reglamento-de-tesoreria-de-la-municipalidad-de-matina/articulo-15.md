@@ -1,1 +1,0 @@
-Artículo 15.—Los cheques debidamente prenumerados en forma consecutiva, serán emitidos por la contador, en estricto orden numérico, previa revisión y codificación de la documentación por parte del Tesorero encargado. Los cheques de salarios y aguinaldo serán emitidos normalmente por el centre de compute, siguiendo este mismo procedimiento.

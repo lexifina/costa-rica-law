@@ -1,1 +1,0 @@
-Artículo 78.—Las sanciones que correspondan, según lo dispuesto en el artículo anterior, serán aplicadas por el Despacho del Alcalde Municipal, a través de la Dirección de Recursos Humanos, conforme lo establece la Convención, Reglamento de Organización y Servicios de esta Municipalidad, Código Municipal y Código de Trabajo.

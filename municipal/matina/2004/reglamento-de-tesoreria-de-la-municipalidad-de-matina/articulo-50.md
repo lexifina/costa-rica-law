@@ -1,1 +1,0 @@
-Artículo 50.—Si realizado un arqueo, resulta una diferencia, esta debe ser justificada por el responsable de Caja Chica, quien además deberá, en forma inmediata, depositar o reintegrar el faltante, según corresponda.

@@ -1,1 +1,0 @@
-Artículo 49.—Se procederá a realizar arqueos en forma sorpresiva al fondo fijo de Caja Chica, con el propósito de verificar, supervisar y controlar la aplicación de las normas y principales de auditoria vigentes y de las sanas prácticas de la Administración.

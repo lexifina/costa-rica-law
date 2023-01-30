@@ -1,1 +1,0 @@
-Artículo 59.—Los encargados de Caja Chica, no podrán guardar documentos en efectivo o cheques de propiedad particular, en los lugares destinados para tal fin, y por ningún motivo podrán suplir con su dinero, compras o pagos que correspondan a la Municipalidad, salvo en casos emergentes, que se justificarán para el caso con el aval del Director de la dependencia de que se trate.
