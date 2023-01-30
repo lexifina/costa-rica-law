@@ -1,0 +1,2 @@
+Transitorio XV. El primer envío de información de conformidad con esta modificación será con la información con fecha de corte al 30 de junio de 2023, inclusive. Dicho envío, incluirá por esta única vez, la información correspondiente al periodo semestral que finaliza el 30 de junio de 2023.
+(Así adicionado en sesión N° 1783 del 30 de enero de 2023. Nótese que el transitorio a adicionar es el Transitorio XV. No obstante; el reglamento consta de ocho transitorios, por lo que se ha adicionado el mismo como transitorio N° IX)
