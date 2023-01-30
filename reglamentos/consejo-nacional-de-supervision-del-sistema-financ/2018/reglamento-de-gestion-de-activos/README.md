@@ -22,3 +22,4 @@ Reglamento de gestión de activos
 | 7 | 2022-05-02 | Reglamento 1728 (2022-05-02) |
 | 8 | 2022-05-27 | Reglamento 1734 (2022-05-27) |
 | 9 | 2022-11-07 | Reglamento 1768 (2022-11-07) |
+| 10 | 2023-01-30 | Reglamento 1782 (2023-01-30) |
