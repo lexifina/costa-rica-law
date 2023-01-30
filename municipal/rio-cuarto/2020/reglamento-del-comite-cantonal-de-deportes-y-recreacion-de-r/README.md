@@ -14,3 +14,4 @@ Reglamento del Comité Cantonal de Deportes y Recreación de Río Cuarto
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-11-25 | la propia norma |
+| 2 | 2023-01-30 | Reglamento municipal 0 (2023-01-30) |
