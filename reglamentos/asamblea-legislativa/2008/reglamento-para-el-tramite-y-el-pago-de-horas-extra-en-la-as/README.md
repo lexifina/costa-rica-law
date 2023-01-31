@@ -22,3 +22,4 @@ Reglamento para el Trámite y el Pago de Horas Extra en la Asamblea Legislativa
 | 7 | 2018-02-06 | Reglamento 204 (2018-02-06) |
 | 8 | 2019-09-24 | Reglamento 68 (2019-09-24) |
 | 9 | 2020-11-26 | Reglamento 134 (2020-11-26) |
+| 10 | 2023-01-31 | Reglamento 34 (2023-01-31) |
