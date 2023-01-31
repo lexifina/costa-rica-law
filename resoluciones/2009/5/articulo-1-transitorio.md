@@ -1,2 +1,0 @@
-Transitorio único.—A partir de la fecha de vigencia, los sujetos privados que sean custodios o administradores, por cualquier título, de fondos públicos, contarán con un período máximo improrrogable de un año, para realizar los ajustes necesarios a fin de incorporar en su gestión lo regulado en estas normas. La documentación relacionada con dicho ajuste, no deberá comunicarse a la Contraloría, sin perjuicio de que este órgano fiscalizador pueda requerirla en la forma y oportunidad que estime necesarias.
-Publíquese.
