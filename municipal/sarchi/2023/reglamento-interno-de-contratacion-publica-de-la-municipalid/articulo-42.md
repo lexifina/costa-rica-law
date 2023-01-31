@@ -1,0 +1,8 @@
+CAPÍTULO X
+Excepciones de los procedimientos ordinarios
+Artículo 42.-Requerimientos generales. El proceso se tramitará en el sistema digital unificado y deberá de cumplir con los siguientes requerimientos:
+a. Decisión administrativa que da inicio al procedimiento de contratación emitida por el titular de la Alcaldía.
+b. Acreditar, cuando corresponda, mediante informes legales, técnicos y financieros, el uso de la excepción respectiva, con indicación expresa de la necesidad a satisfacer, dejando constancia de la justificación que hacen de esta vía la mejor opción para la satisfacción del interés público.
+c. Realizar un sondeo o estudio de, que incluya la investigación exploratoria del mercado (oferta y demanda), para lo cual se considerará la información histórica disponible, gestionando información de fuentes primarias y secundarias, nacionales e internacionales, mediante diversos mecanismos de consulta y en general, utilizando todo aquel material y otros medios complementarios que permitan una mejor comprensión del producto o servicio por adquirir, suscrito por el funcionario idóneo designado para tales efectos.
+d. Para los efectos del presente reglamento debe entenderse que el estudio de mercado es el instrumento para que las instituciones identifiquen las posibilidades ofrecidas por el mercado a través de un estudio riguroso, especializado y a partir de muestras concretas en un mayor espacio de tiempo. El sondeo de mercado tiene el mismo objetivo, pero se realiza a través de una pequeña muestra aleatoria y, en consecuencia, se genera en un menor plazo.
+e. Monto total por contratar, con la indicación expresa de que la Municipalidad de Sarchí está exenta del pago de impuestos.

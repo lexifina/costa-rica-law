@@ -1,0 +1,1 @@
+Artículo 47.-Asignación de roles del sistema digital unificado de compras. El titular de la Alcaldía instruirá a la Proveeduría Institucional y/o a la Jefatura de Servicios Informáticos sobre la forma en que se realizará la asignación de roles del sistema unificado de compras.
