@@ -1,0 +1,3 @@
+Disposición Transitoria:
+Las Boletas de Seguridad expedidas con anterioridad a la presente circular, tendrán una vigencia de dos años y transcurrido dicho plazo se procederá a la cancelación automática de todas aquellas que no fueron utilizadas para la presentación de instrumentos públicos, con excepción de las boletas del Poder Judicial. El cómputo de plazo para la caducidad empezará a correr una vez publicada esta Circular en el Diario Oficial La Gaceta.
+A partir de su vigencia, ésta Circular deja sin efecto y/o modifica tácitamente cualquier disposición anterior de igual rango en relación con la materia acá tratada.
