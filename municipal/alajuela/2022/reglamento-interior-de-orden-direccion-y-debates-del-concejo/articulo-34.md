@@ -1,3 +1,0 @@
-Artículo 34.-La interposición del veto por parte del alcalde o alcaldesa, tendrá prioridad en el orden del día del Concejo Municipal y el presidente municipal no podrá negarse a dar trámite a ese veto, ni posponer su conocimiento en el Concejo.
-La interposición del veto suspende la ejecución del acuerdo recurrido.
-Para dar cumplimiento al inciso d), del artículo diecisiete del Código Municipal, quien ocupe la alcaldía debe coordinar con el Directorio del Concejo, la presentación ante éste y la difusión pública de su programa de gobierno.

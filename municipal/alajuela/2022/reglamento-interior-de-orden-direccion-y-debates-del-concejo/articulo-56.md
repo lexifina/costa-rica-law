@@ -1,2 +1,0 @@
-Artículo 56.-Las presidencias de comisión podrán nombrar subcomisiones de trabajo para el estudio de determinados proyectos o asuntos. Esta se integra con tres miembros o los que considere pertinente. Por mayoría simple, la comisión puede disponer que no es necesaria la conformación de la subcomisión.
-Los informes que presenten estas subcomisiones deberán ser analizados y eventualmente podrán ser modificados. Luego se elaborarán el o los dictámenes.

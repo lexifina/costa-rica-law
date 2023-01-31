@@ -1,1 +1,0 @@
-Artículo 66.-Si se presentaran memoriales que dirijan las o los particulares a la Municipalidad, la Secretaría los eximirá y si resulta que lo solicitado es de competencia de la Alcaldía, lo enviará a dicho funcionario para que le dé el trámite que le corresponde. De lo anterior se informará a los firmantes. Previo visto bueno de la presidencia municipal.

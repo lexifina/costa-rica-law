@@ -1,2 +1,0 @@
-Artículo 38.-La persona secretaria municipal, de acuerdo con el artículo cincuenta y tres del Código Municipal, sólo podrá ser suspendida o destituida de su cargo si existiera justa causa, la cual debe ser demostrado mediante la interposición de un procedimiento administrativo que garantice el derecho de defensa.
-Para los efectos del debido proceso, deberán atenderse el Reglamento de Funciones de la Secretaría, los Reglamentos Internos de la Municipalidad, la Convención Colectiva de Trabajadores y las disposiciones establecidas en el Transitorio III del Código Municipal.

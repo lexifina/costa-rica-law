@@ -1,1 +1,0 @@
-Artículo 6º-Las personas regidoras propietarias y suplentes deben de encontrarse ocupando sus respectivas curules para cuando dé inicio la sesión y para que se les contabilice el voto cuando se someta a votación alguna moción.

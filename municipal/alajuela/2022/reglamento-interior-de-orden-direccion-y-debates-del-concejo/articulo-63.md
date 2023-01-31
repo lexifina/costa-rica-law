@@ -1,1 +1,0 @@
-Artículo 63.-Cuando el objeto de la audiencia fuere un asunto de competencia de la Alcaldía, la presidencia ordenará a la Secretaría del Concejo remitir el memorial presentado a ese despacho para que le dé el trámite correspondiente. La Secretaría lo hará del conocimiento de las personas interesadas.

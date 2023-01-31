@@ -1,1 +1,0 @@
-Artículo 14.-El Concejo Municipal podrá acordar que una sesión ordinaria o extraordinaria, sea calificada como sesión solemne, con el fin exclusivo de recibir u homenajear a alguna persona ciudadana costarricense o extranjera, celebrar un acontecimiento o fecha importante o, dedicarla a cualquier otro asunto que considere que lo amerite.

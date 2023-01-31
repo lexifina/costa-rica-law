@@ -1,5 +1,0 @@
-Artículo 54.-Cuando al final de la discusión de un asunto, en la comisión, persistieran diferencias de criterio, entonces se podrán redactar dos o más dictámenes, según sea el número de opiniones y criterios existentes.
-Se considerará dictamen de mayoría el suscrito por el mayor número de integrantes de la comisión y de minoría los que tengan el menor número, ordenándose según el número de firmas que cada dictamen tenga.
-En el momento en que el Concejo Municipal conozca de un asunto proveniente de una comisión con más de un dictamen, se pondrá a discusión aquel que sea de mayoría. Si este es aprobado, los demás se archivarán sin ser discutidos. Si el dictamen de mayoría es rechazado se seguirá con la discusión y votación del siguiente y así sucesivamente.
-Si hay dos o más dictámenes con el mismo número de firmas, la presidencia del Concejo ordenará mediante un sorteo, la ubicación de cada dictamen para su discusión y votación, lo cual se consignará en el acta de la sesión.
-En la redacción de todos los dictámenes, colaborará la secretaría de actas de comisión, siguiendo las instrucciones de quien presida que será, en todo caso, quien firme.

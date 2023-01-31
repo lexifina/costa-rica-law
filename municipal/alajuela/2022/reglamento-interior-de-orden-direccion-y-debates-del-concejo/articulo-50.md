@@ -1,1 +1,0 @@
-Artículo 50.-Las sesiones de la comisión son públicas. No obstante, la presidencia de la comisión por razones de oportunidad y conveniencia podrá declarar, en memorial razonado, una sesión privada o bien, a solicitud de parte de quien así lo solicite y justifique, por razones de seguridad personal.

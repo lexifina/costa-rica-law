@@ -1,1 +1,0 @@
-Artículo 49.-La Presidencia de una comisión o, en su ausencia, la Vicepresidencia, podrá convocar a sesiones extraordinarias, por lo menos con veinticuatro horas de anticipación. En ausencia de la presidencia y la vicepresidencia, convocará y presidirá la sesión el miembro de la comisión de mayor edad.
