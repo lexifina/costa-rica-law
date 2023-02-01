@@ -14,3 +14,4 @@ Reglamento Técnico RTCR 509:2022. Insumos Agrícolas. Plaguicidas Sintéticos F
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-02-01 | la propia norma |
+| 2 | 2023-02-01 | Decreto Ejecutivo 43884 (2023-01-25) |
