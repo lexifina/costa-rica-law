@@ -1,0 +1,6 @@
+ARTÍCULO 4°-Definiciones. Para la aplicación del presente reglamento, se deberá atender a las acepciones aquí indicadas:
+a) Carnes preparadas (aves [gallina, gallo, pollo y pavo], cerdo, pescado, res): carne fresca o congelada, a la que se han añadido o inyectado productos alimenticios, condimentos o aditivos. No se consideran carnes preparadas aquellas cuya manipulación se realiza para asegurar la conservación de la carne durante el transporte o almacenamiento.
+b) Frutas preparadas: frutas frescas o congeladas, que han sufrido un proceso de transformación como deshidratación, cocción, o se la han añadido productos alimenticios, condimentos o aditivos.
+c) Pastas alimenticias preparadas: Pastas alimenticias que han sufrido proceso de cocción, o se la ha añadido productos alimenticios, condimentos o aditivos.
+d) Queso no madurado: queso que está listo para el consumo inmediatamente o poco después de su fabricación. Para los efectos de la Canasta Básica no se incluyen los quesos frescos tipo mozzarella o cottage.
+e) Vegetales, leguminosas, tubérculos y hortalizas, preparados: vegetales, leguminosas, tubérculos y hortalizas, frescos, refrigerados o congelados, que han sufrido un proceso de transformación como deshidratación, cocción, o se la han añadido productos alimenticios, condimentos o aditivos.
