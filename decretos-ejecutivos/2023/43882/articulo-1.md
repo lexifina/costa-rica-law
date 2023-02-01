@@ -1,0 +1,29 @@
+Nº 43882-MEP
+LA SEGUNDA VICEPRESIDENTA
+EN EL EJERCICIO DE LA PRESIDENCIA
+DE LA REPÚBLICA Y LA MINISTRA
+DE EDUCACIÓN PÚBLICA
+En ejercicio de las atribuciones conferidas por los artículos 140 inciso 3), 8) y 18), 146 de la Constitución Política; los artículos 25 inciso 1), 27 inciso 1), 28 inciso 2) acápite b, de la Ley General de la Administración Pública, Ley N° 6227 del 2 de mayo de 1978, Ley N° 1362 del 8 de octubre de 1951, Creación del Consejo Superior de Educación Pública, Decreto Ejecutivo N° 14 del 31 de agosto de 1953, Reglamento del Consejo Superior de Educación y;
+Considerando:
+I.-Que de conformidad con el artículo 1° de la Ley N° 1362 del 8 de octubre de 1951, Creación del Consejo Superior de Educación Pública, se establece el Consejo Superior de Educación Pública como órgano de naturaleza constitucional con personalidad jurídica instrumental y presupuesto propio, que tendrá a su cargo la orientación y dirección de la enseñanza oficial.
+II.-Que mediante Decreto Ejecutivo N° 14 del 31 de agosto de 1953, se promulgó el Reglamento del Consejo Superior de Educación.
+III.-Que, en consonancia con las tendencias actuales, el uso de la tecnología y con la finalidad de establecer un marco regulatorio en situaciones excepcionales para que el Consejo Superior de Educación pueda sesionar de forma virtual o mixta; esto en aras de garantizar la continuidad y regularidad del funcionamiento del ente.
+IV.-Que el Consejo Superior de Educación en sesión N° 31-2022, celebrada el día 28 de noviembre del 2022, mediante acuerdo firme y unánime N° 05-31-2022, dispuso: "Aprobar la propuesta de reforma al artículo 9 bis del Reglamento del Consejo Superior de Educación, Decreto Ejecutivo N°14, del 31 de agosto de 1953, para habilitar el desarrollo de las sesiones mixta de manera excepcional."
+V.-Que de conformidad con el artículo 12 del Reglamento a la Ley de Protección al Ciudadano del Exceso de Requisitos y Trámites Administrativos, Decreto Ejecutivo N° 37045-MP-MEIC de fecha 22 de febrero de 2012, adicionado por el artículo 12 bis de la Reforma Reglamento a la Ley de Protección al Ciudadano del Exceso de Requisitos y Trámites Administrativos, Decreto Ejecutivo N° 38898-MPMEIC de fecha 20 de noviembre de 2014, y en virtud de que este instrumento jurídico no contiene trámites, requisitos ni obligaciones que perjudiquen al administrado, se exonera del trámite de la evaluación costo-beneficio de la Dirección de Mejora Regulatoria del Ministerio de Economía, Industria y Comercio. Por tanto,
+Decretan:
+REFORMA AL ARTÍCULO 9 BIS DEL DECRETO
+EJECUTIVO N° 14 DEL 31 DE AGOSTO DE 1953,
+REGLAMENTO DEL CONSEJO SUPERIOR
+DE EDUCACIÓN
+Artículo 1º-Se reforma el artículo 9 bis del Decreto Ejecutivo N° 14 del 31 de agosto de 1953 "Reglamento del Consejo Superior Educación", para que, en adelante se lea de la siguiente manera:
+Artículo 9 bis.- Los miembros del Consejo Superior de Educación podrán sesionar de forma presencial, por medios digitales o de forma mixta, en el tanto concurra el quórum de ley. Para todos los efectos de la sesión, se considera valida la asistencia de los miembros cuando participen de manera presencial, mixta o por medios digitales.
+La plataforma tecnológica dispuesta por el Consejo Superior de Educación deberá garantizar la conectividad a internet, la participación plena de todos los asistentes, la transmisión simultánea de audio, video y datos a todos quienes participen, y deberá respetar los principios de simultaneidad, colegialidad y deliberación que rigen el funcionamiento de los órganos colegiados.
+Para que sea considerada válida la participación de los miembros del Consejo por medios tecnológicos, deberá:
+1) Existir una plena compatibilidad entre los sistemas o medios empleados por el emisor y el receptor, pues se debe garantizar la autenticidad e integridad de la participación, voluntad y la conservación de lo actuado. Cuando por motivos técnicos se pierda la interacción en tiempo real entre los participantes en la sesión, superior a diez minutos, se considerará interrumpida la participación de esa persona. Esta circunstancia deberá consignarse en el acta. No obstante, se mantendrá la sesión mientras permanezca el cuórum mínimo requerido.
+2) Los participantes no podrán realizar otra labor privada o pública y no podrán estar, de forma simultánea, durante el desarrollo de la sesión, en cualquier otro tipo de actividad pública o privada.
+3) El pago de la dieta se justificaría únicamente, si el miembro participa de la totalidad de la sesión y se mantiene en ella, y si, además, se garantizaron los principios de colegialidad, simultaneidad, deliberación y votación.
+4) Garantizar las condiciones para asegurar el acceso pleno a la sesión a todas las personas integrantes del Consejo, propietarios y suplentes. De no ser posible esto, deberá optarse por la presencialidad de la sesión en el lugar que así disponga el órgano.
+La persona secretaria general del Consejo Superior de Educación gestionará lo que corresponda para cumplir lo dispuesto y a dejar respaldo de audio, video y datos, así como para la elaboración del acta correspondiente conforme a lo dispuesto en el artículo 26 de este reglamento.
+Cuando un miembro del consejo participe de forma válida por medios tecnológicos, se deberá considerar como presente para los efectos de los artículos 21 y 22 de este reglamento.
+La Secretaría General del Consejo Superior de Educación, con el apoyo de la Administración del Ministerio de Educación y conforme a sus posibilidades, proveerá a los miembros propietarios y suplentes los medios, las condiciones y la asistencia necesaria para asegurar su eventual participación en una sesión por medios tecnológicos.
+Este mecanismo también podrá ser utilizado por las comisiones contempladas en el artículo 19 de este reglamento.
