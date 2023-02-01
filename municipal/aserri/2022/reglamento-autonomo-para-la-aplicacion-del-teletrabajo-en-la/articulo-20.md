@@ -1,0 +1,4 @@
+CAPÍTULO IV
+Modalidad de teletrabajo
+Artículo 20.-Potestad Municipal. La Municipalidad de Aserrí mantendrá activa la aplicación de la modalidad de Teletrabajo, pero se reserva la facultad de incorporar o no a sus trabajadores en esta forma de trabajo, dependiendo de las condiciones, actividades, aprobación de pruebas psicométricas, la conectividad disponible y otros aspectos que se estimen pertinentes.
+En aquellas situaciones donde la Municipalidad de Aserrí, en su condición de patrono, autorizó a un servidor para la aplicación de la modalidad de teletrabajo, queda facultada la Jefatura Inmediata para la constatación física por apersonamiento en la estación de teletrabajo o bien mediante video conferencia, para comprobar que el teletrabajador cumple satisfactoriamente sus funciones teletrabajables.

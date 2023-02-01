@@ -1,0 +1,1 @@
+Artículo 34.-Visto bueno de la jefatura. Para acceder a la modalidad de teletrabajo, el funcionario municipal interesado deberá contar con el visto bueno de su jefatura inmediata, que en todo caso deberá otorgarse por escrito y con su debida justificación.

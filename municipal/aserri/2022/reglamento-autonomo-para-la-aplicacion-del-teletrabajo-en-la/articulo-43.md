@@ -1,0 +1,1 @@
+Artículo 43.-La estación de teletrabajo debe estar dotada de ventilación, ya sea de forma natural a través de puertas o ventanas o por medios mecánicos, como, por ejemplo, abanicos o aires acondicionados, que permitan un ambiente confortable, calidad del aire y confort térmico.

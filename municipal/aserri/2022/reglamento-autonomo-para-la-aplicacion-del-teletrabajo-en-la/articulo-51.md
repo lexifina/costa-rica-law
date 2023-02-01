@@ -1,0 +1,1 @@
+Artículo 51.-La persona teletrabajadora debe tener un mayor compromiso personal para organizar diariamente o semanalmente las actividades laborales, respetando el inicio y fin de la jornada laboral, los periodos de alimentación y descanso; de tal manera que se cumplan las metas propuestas por las jefaturas inmediatas de los puestos.

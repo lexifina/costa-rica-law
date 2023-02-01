@@ -1,0 +1,2 @@
+Artículo 27.-Cuando el teletrabajador utilice un equipo de su propiedad para desarrollar sus labores de teletrabajo, deberá almacenar todos los documentos generados dichas funciones en una unidad extraíble (disco duro externo, USB,
+etc.), que deberá ser suministrada y es propiedad de la Municipalidad de Aserrí, pudiendo descargarlos en el equipo municipal con autorización de las jefaturas inmediatas de los puestos, a fin de que sean reseteados para la puesta en condiciones iniciales del dispositivo.

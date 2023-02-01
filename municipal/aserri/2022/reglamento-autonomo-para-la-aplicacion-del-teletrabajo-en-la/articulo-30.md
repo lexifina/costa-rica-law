@@ -1,0 +1,1 @@
+Artículo 30.-Requerimiento técnico del equipo. Las computadoras utilizadas para el teletrabajo deben cumplir con todas las características técnicas y de seguridad indicadas por parte de la Unidad de Tecnologías de la Información de la Municipalidad, ya sea propio del teletrabajador o de la Institución.

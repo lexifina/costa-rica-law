@@ -1,0 +1,1 @@
+Artículo 7º-Compromiso de colaboración. Todas las jefaturas y funcionarios municipales relacionados, directa o indirectamente, con las personas que ejecuten sus labores bajo la modalidad de teletrabajo están obligados a colaborar en su gestión para que la implementación del teletrabajo cumpla con los objetivos fijados por la Municipalidad de Aserrí y la normativa asociada.

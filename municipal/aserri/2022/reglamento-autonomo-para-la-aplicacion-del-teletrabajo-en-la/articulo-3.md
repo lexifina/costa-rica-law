@@ -1,0 +1,13 @@
+Artículo 3º-Glosario. Sin perjuicio de las definiciones contenidas en la Ley N° 9738 y el Decreto Ejecutivo N° 42083-MP-MTSS-MIDEPLAN-MICITT, para efectos del presente reglamento, se establecen las siguientes:
+a. Actividades teletrabajables: conjunto de tareas que pueden ser realizadas por medios telemáticos, desde el domicilio del trabajador, y que no requieren de su presencia física del en el centro de trabajo.
+b. Acuerdo de teletrabajo: es el documento donde la Municipalidad de Aserrí y el Teletrabajador acuerdan las condiciones en que se desarrollará la modalidad de Teletrabajo.
+c. Asistencia técnica para el teletrabajador: es el recurso al que puede acudir el trabajador cuando los medios tecnológicos o las telecomunicaciones, no satisfagan los requerimientos necesarios para realizar el trabajo.
+d. Comisión Institucional de Teletrabajo: Entidad encargada de coordinar y administrar la aplicación de la modalidad de teletrabajo en la Municipalidad de Aserrí.
+e. Empleador: Municipalidad de Aserrí.
+f. Jornada de teletrabajo: es el tiempo establecido por la institución, dedicado para realizar las actividades teletrabajables.
+g. Perfil: Es el conjunto de actividades y atributos que describen las funciones y la naturaleza de un puesto según el Manual Descriptivo de Puestos General de la Municipalidad de Aserrí, y que deberá cumplir el ocupante de dicho puesto, para tener éxito en el desarrollo del mismo, mediante la modalidad de teletrabajo.
+h. Salas de videoconferencia: espacio físico que permite aplicaciones de comunicación remota de video, audio y datos en tiempo real entre los teletrabajadores, y entre éstos y el empleador, ubicadas en las instalaciones de la Municipalidad de Aserrí.
+i. Teletrabajo: prestación de servicios de carácter no presencial, ejecutado remotamente desde el domicilio del teletrabajador fuera de las instalaciones del empleador, siempre que las necesidades del servicio público lo permitan, en virtud de la cual un trabajador puede desarrollar su jornada laboral de forma parcial o total, mediante el uso de medios telemáticos.
+j. Teletrabajador: trabajador de la institución que realiza sus actividades bajo la modalidad del teletrabajo.
+k. TIC: tecnologías de la información y comunicaciones. Es un conjunto de servicios, redes, software y dispositivos que tienen como fin el mejoramiento de la calidad de vida de las personas dentro un entorno, y que se integran a un sistema de información interconectado y complementario.
+l. Videoconferencia PC: sistema de comunicación por video que utilizan una cámara Web y un PC para enviar voz, video y datos a través de las redes de la empresa o de internet.

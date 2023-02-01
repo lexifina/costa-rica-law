@@ -1,0 +1,1 @@
+Artículo 47.-La silla a utilizar por la persona teletrabajadora, debe cumplir al menos con los siguientes requerimientos básicos: dimensiones adecuadas de acuerdo a las características antropométricas de la persona teletrabajadora, asiento, y respaldo para ofrecer un apoyo adecuado a la espalda, principalmente en la zona lumbar y torácica.

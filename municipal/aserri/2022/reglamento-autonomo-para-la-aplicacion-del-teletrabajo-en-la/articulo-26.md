@@ -1,0 +1,1 @@
+Artículo 26.-A los trabajadores que ingresen a la modalidad de teletrabajo no les resultará aplicable el plus salarial de la DISPONIBILIDAD prevista en el "Reglamento de Aplicación de la dedicación exclusiva y disponibilidad para la Municipalidad de Aserrí".

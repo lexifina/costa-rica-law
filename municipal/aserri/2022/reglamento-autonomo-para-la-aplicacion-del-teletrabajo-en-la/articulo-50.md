@@ -1,0 +1,1 @@
+Artículo 50.-El teletrabajador debe reportar los accidentes o enfermedades de trabajo de forma inmediata, de acuerdo a la legislación vigente, en caso de que se produzcan bajo la modalidad de teletrabajo y cumpla con todos los requisitos de la definición de un accidente de trabajo, según el Código de Trabajo.

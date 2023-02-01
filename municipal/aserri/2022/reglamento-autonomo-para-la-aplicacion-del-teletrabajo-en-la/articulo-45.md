@@ -1,0 +1,1 @@
+Artículo 45.-El espacio donde se ubique la estación de trabajo, debe estar alejado o aislado los ruidos externos, como los del tráfico y los ruidos propios de los vecinos o de la propia casa (visitas, niños, tareas domésticas, equipos ruidosos) ya que el trabajo requiere concentración, y generalmente para realizar algunas tareas se requiere comunicación por teléfono.

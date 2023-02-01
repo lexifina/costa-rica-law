@@ -1,0 +1,1 @@
+Artículo 46.-El escritorio o mesa de trabajo debe ser de tamaño adecuado para la colocación del equipo informático, otros equipos de trabajo y materiales; además debe adaptarse a las dimensiones corporales de la persona teletrabajadora, así como a las tareas que va a realizar.

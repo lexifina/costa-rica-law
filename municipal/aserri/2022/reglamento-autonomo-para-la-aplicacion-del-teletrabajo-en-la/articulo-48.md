@@ -1,0 +1,1 @@
+Artículo 48.-El teletrabajo es una extensión del lugar del trabajo, por lo que se mantienen las obligaciones en materia de Salud Ocupacional estipuladas en la normativa vigente, acorde al lugar de teletrabajo.

@@ -1,0 +1,1 @@
+Artículo 52.-Régimen disciplinario. El incumplimiento de las disposiciones contenidas en este reglamento por parte del teletrabajador, será sancionada de conformidad con lo dispuesto en el Reglamento Autónomo de Trabajo de la Municipalidad de Aserrí y el Código Municipal.

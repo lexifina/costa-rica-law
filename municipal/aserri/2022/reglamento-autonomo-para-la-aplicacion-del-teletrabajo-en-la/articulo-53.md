@@ -1,0 +1,1 @@
+Artículo 53.-Personal de la Secretaría del Concejo. Todo lo relativo a la aplicación de la modalidad de teletrabajo para el personal de la Secretaría Municipal, será autorizado directamente por el Concejo Municipal.
