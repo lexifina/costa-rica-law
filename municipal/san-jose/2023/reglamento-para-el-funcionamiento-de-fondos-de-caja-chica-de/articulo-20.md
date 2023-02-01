@@ -1,0 +1,1 @@
+Artículo 20.-De la liquidación. La liquidación del anticipo queda formalizada, cuando el responsable de la Caja Chica revisa todos los requisitos y finaliza a nivel del sistema informático establecido dicho procedimiento.
