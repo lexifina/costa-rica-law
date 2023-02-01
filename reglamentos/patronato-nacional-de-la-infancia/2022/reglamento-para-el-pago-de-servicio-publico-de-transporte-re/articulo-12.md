@@ -1,0 +1,2 @@
+Artículo 12.-Responsabilidad Disciplinaria. En el caso que la jefatura inmediata determine alguna causa o situación que le genere duda de algún cobro por servicio de transporte deberá darle audiencia escrita al funcionario o funcionaria gestionante para que este pueda presentar sus aclaraciones o argumentos.
+En caso de que se determine alguna situación anómala o de abuso deberá elevar a investigación preliminar conforme con lo establecido en los artículos 76, 88 y 89 del Reglamento Autónomo de Trabajo del Patronato Nacional de la Infancia.

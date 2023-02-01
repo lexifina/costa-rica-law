@@ -1,0 +1,1 @@
+Artículo 5°-Monto a reconocer en el caso de Servicio público de transporte remunerado de personas. En los casos de servicios públicos de transporte de personas, el monto de los servicios a pagar por parte de la institución será la tarifa establecida por la Autoridad Reguladora de los Servicios Públicos (ARESEP), para los casos que exista tarifa establecida.

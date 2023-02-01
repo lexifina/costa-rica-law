@@ -1,0 +1,3 @@
+Artículo 7°-Plazo de presentación de la Liquidación. El funcionario o funcionaria gestionante contará con tres días hábiles posteriores a la utilización del servicio de transporte para presentar ante la jefatura inmediata, la liquidación del pago del servicio en el SIGAF.
+En el caso de que los gastos de transporte sean con motivo de la realización de una gira, se contará con el tiempo que se indica en el Reglamento de Gastos de Viaje y Transporte, por lo que se tendrá 7 días hábiles para la liquidación.
+Las personas que ejerza la jefatura será el responsable de revisar, cotejar y aprobar la información consignada por el funcionario o funcionaria gestionante.

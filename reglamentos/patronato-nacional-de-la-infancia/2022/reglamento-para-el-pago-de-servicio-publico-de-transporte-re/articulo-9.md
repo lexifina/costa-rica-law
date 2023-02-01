@@ -1,0 +1,1 @@
+Artículo 9°-Liquidación en casos de transporte acuático. Para liquidación de gastos incurridos por servicios de transporte acuáticos (ferry, lancha, bote, plataforma, panga) se deberá incluir el comprobante o tiquete entregado por la empresa, al igual que el comprobante de los gastos que se incurran para el traslado del vehículo institucional.

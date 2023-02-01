@@ -1,0 +1,1 @@
+Artículo 10.-Reintegro. Una vez autorizado por la jefatura inmediata la liquidación en SIGAF se procederá a su reintegro mediante Fondo de Caja Chica Auxiliar, Fondo de Trabajo Regional o Caja Chica Central, según corresponda.

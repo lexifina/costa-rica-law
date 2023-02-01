@@ -1,0 +1,1 @@
+Artículo 11.-Cancelación del pago. La cancelación por el pago de servicio de transporte público se hará con posterioridad a la realización de la gira, salvo cuando se requiera del adelanto para los gastos relacionados para servicios de transporte en el SIGAF.

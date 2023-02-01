@@ -1,0 +1,1 @@
+Artículo 14.-Responsabilidad de las personas jefaturas. Corresponderá a las personas que ejercen cargos de jefaturas velar por el correcto cumplimiento de la presente reglamentación por parte de sus colaboradores.
