@@ -5,7 +5,7 @@ Artículo 16° --Corresponde a la Presidencia de la Junta Directiva, junto a las
 2) Firmar junto con el secretario, las Actas de las Sesiones de la Junta Directiva.
 3) Preparar el orden del día de la sesión ordinaria o extraordinaria.
 4) Velar por el cumplimiento de las obligaciones y objetivos del Comité.
-5) Suscribir los contratos o convenios que celebre el Comité, en su condición de Presidente, deberá tomar en cuenta presupuestos, requisitos y legalidad de las cláusulas del contrato. 6) Integrar las comisiones que se crean para asuntos de su naturaleza.
+5) (Derogado en sesión N° 223 del 1° de febrero de 2023).
 7) Vigilar que las comisiones cumplan con sus objetivos, en los plazos dispuestos y asistir a las reuniones de éstas, cuando lo considere oportuno, con voz pero sin voto, salvo que sea parte integrante de la Comisión.
 8) Vigilar que el personal administrativo y la secretaria cumplan con sus funciones, en la forma dispuesta en la Ley y los Reglamentos e informar a la Junta Directiva, sobre sus observaciones, para que ésta adopte las decisiones oportunas.
 9) Evaluar junto con cualquier otro integrante de la Junta Directiva, la ejecución y cumplimiento de los objetivos del área deportiva y recreativa del Comité e informar a la Junta Directiva, para que se adopten las decisiones que sean convenientes para la buena marcha del Comité.

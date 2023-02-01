@@ -15,3 +15,7 @@ Artículo 11° --Funciones de la Junta Directiva: Serán funciones de la Junta D
 14) Entregar semestralmente al Concejo Municipal de Liberia un informe económico y de labores.
 15) Organizar el Campeonato de Barrios y distritos de fútbol en Liga Menor y Mayor; una vez por año, al igual que en las otras disciplinas.
 16) Rendir cuentas de su administración una vez al año al Concejo Municipal, a la Alcaldía, a los Concejos de Distrito, comités comunales y juntas administradoras; así como a los vecinos del cantón.
+17) Gestionar ante el Concejo Municipal, los contratos y convenios para su aprobación y autorización al Presidente de la Junta Directiva para que suscriba los contratos y convenios.
+(Así adicionado el inciso anterior en sesión N° 223 del 1° de febrero de 2023)
+18) Gestionar ante el Concejo Municipal los reglamentos que elabore el Comité Cantonal de Deportes y Recreación de Liberia, para su aprobación.
+(Así adicionado el inciso anterior en sesión N° 223 del 1° de febrero de 2023)
