@@ -1,0 +1,4 @@
+Artículo 8. Modalidades de operación: Para la aplicación del presente reglamento se utilizará las siguientes modalidades de GDA
+a) Operación en isla: modalidad del sistema GDA propiedad de un PDER que, estando energizado, no está interconectado ni tiene interacción alguna con el SEN.
+b) Operación sin entrega de excedentes de energía a la red: modalidad de generación distribuida para autoconsumo, en la cual los sistemas de generación distribuida disponen de mecanismos tecnológicos para gestionar los excedentes en el punto de generación e imposibilitan la entrega de excedentes mientras opera en paralelo con el SEN.
+c) Operación con entrega de excedentes: condición de un sistema GDA está interconectado con el SEN en un punto definido en el contrato de interconexión, con intercambios de energía eléctrica.

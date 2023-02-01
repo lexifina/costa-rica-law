@@ -1,0 +1,4 @@
+Artículo 18. Modos de operación. Para la aplicación del presente reglamento se utilizarán los siguientes modos de operación
+a) Red a VE: modo de operación en el cual la energía eléctrica almacenada en las baterías o celdas de un VE puede ser transmitida a la red eléctrica de la infraestructura de un PDER por el conductor de un VE por medio de un sistema IRVE, cuando este es conectado a la red en los momentos que no se use para el transporte
+b) VE a red: modo de operación en el cual la energía eléctrica almacenada en las baterías o celdas de un VE puede ser transmitida a la red eléctrica de la infraestructura de un PDER, por medio de un sistema IRVE, cuando este es conectado a la red en los momentos que no se use para el transporte.
+c) Servicio a la red: El SAE puede ser parte de una red inteligente.

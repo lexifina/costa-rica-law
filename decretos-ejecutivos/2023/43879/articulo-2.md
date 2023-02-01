@@ -1,0 +1,1 @@
+Artículo 2. Interés Público. Se declara de interés público la integración de los Recursos Energéticos Distribuidos que interactúen con el Sistema Eléctrico Nacional en las modalidades establecidas en la Ley, bajo los criterios de eficiencia, confiabilidad, continuidad, seguridad y sostenibilidad

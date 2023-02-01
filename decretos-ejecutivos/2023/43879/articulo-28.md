@@ -1,0 +1,3 @@
+CAPÍTULO VII
+DE LOS INCUMPLIMIENTOS
+Artículo 28. Sanción e incumplimiento: Los abonados, los generadores distribuidos, las personas físicas o jurídicas que posean u operen DER, las empresas eléctricas y demás participantes del SEN relacionados con el acceso, la instalación, la conexión, la interacción y el control de los recursos energéticos distribuidos, que incumplan el presente reglamento, serán sancionados con multa por la ARESEP, cumpliendo con el procedimiento administrativo previsto en la Ley 6227, Ley General de Administración Pública, de 2 de mayo del 1978, con el monto de cinco a veinte salarios base de acuerdo con el artículo 2 de la Ley 7337, de 5 de mayo de 1993.

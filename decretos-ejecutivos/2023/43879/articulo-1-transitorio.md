@@ -1,0 +1,1 @@
+Transitorio Único: A partir de la vigencia de este reglamento los PDER con contratos vigentes que firmen un nuevo contrato con las empresas distribuidoras tendrán un plazo de 3 meses para que cumplan con las nuevas condiciones establecidas en la Ley 10086 y el Reglamento.
