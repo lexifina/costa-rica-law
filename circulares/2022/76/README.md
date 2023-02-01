@@ -13,3 +13,4 @@ Modificar la Circular N° 157-2021 Instructivo para la elaboración de tablas de
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-05-03 | la propia norma |
+| 2 | 2023-02-01 | Circular 26 (2023-02-01) |
