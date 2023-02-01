@@ -1,1 +1,0 @@
-Artículo 18.- Manejo de fondos. Cada fondo de Caja Chica debe estar bajo la custodia de una sola persona. En caso de ausencia del encargado del fondo el jefe o responsable directo deberá asignar un funcionario para ejercer la suplencia, previo arqueo de los fondos.

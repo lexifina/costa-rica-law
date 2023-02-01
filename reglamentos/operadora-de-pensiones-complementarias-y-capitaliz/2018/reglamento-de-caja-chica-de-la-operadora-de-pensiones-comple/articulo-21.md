@@ -1,1 +1,0 @@
-Artículo 21.- Registro contable. Es responsabilidad del encargado de la Tesorería coordinar con la Contabilidad el registro contable actualizado de las compras que se han realizado con los fondos de Caja Chica.
