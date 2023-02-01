@@ -4,13 +4,21 @@ La definición de los Sectores y su integración institucional, se señala a con
 a) Sector Ambiente y Energía:
 1. Ministerio de Ambiente y Energía (MINAE) y sus órganos desconcentrados a saber: Comisión de Ordenamiento y Manejo de la Cuenca Alta del Río Reventazón (COMCURE), Comisión Nacional para la Gestión de la Biodiversidad (CONAGEBIO), Fondo Nacional de Financiamiento Forestal (FONAFIFO), Junta Directiva del Parque Nacional Isla San Lucas, Junta Directiva para el fideicomiso del Parque Nacional Manuel Antonio, Parque Marino del Pacífico, Secretaría Técnica Nacional Ambiental (SETENA), Sistema Nacional de Áreas de Conservación (SINAC), Tribunal Ambiental Administrativo.
 2. Comisión Nacional de Prevención de Riesgos y Atención de Emergencias (CNE)
-3. Instituto Costarricense de Electricidad (ICE) y Gestión de Cobro ICE S.A.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 43917 del 1° de febrero del 2023)
+3. Instituto Costarricense de Electricidad (ICE) y Gestión de Cobro ICE S. A.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 43917 del 1° de febrero del 2023)
 4. Refinadora Costarricense de Petróleo S. A. (RECOPE)
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 43917 del 1° de febrero del 2023)
 5. Compañía Nacional de Fuerza y Luz S. A. (CNFL)
-6. Instituto Costarricense de Acueductos y Alcantarillados (ICAA)
-7. Empresa de Servicios Públicos de Heredia S.A. (ESPH)
-8. Junta Administrativa del Servicio Eléctrico Municipal de Cartago (JASEC)
-9. Oficina Nacional Forestal, entendiéndose su participación en lo que a protección del medio ambiente se refiere.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 43917 del 1° de febrero del 2023)
+6. Empresa de Servicios Públicos de Heredia S. A. (ESPH)
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 43917 del 1° de febrero del 2023)
+7. Junta Administrativa del Servicio Eléctrico Municipal de Cartago (JASEC)
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 43917 del 1° de febrero del 2023)
+8. Oficina Nacional Forestal, entendiéndose su participación en lo que a protección del medio ambiente se refiere.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 43917 del 1° de febrero del 2023)
+9. Autoridad Reguladora de los Servicios Públicos (ARESEP).
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 43917 del 1° de febrero del 2023)
 10. Autoridad Reguladora de los Servicios Públicos (ARESEP).
 El Rector del Sector Ambiente y Energía será la persona que ocupe el cargo de Ministro de Ambiente y Energía.
 b) Sector Bienestar, Trabajo e Inclusión Social:
@@ -143,6 +151,8 @@ k) Sector Obras Públicas y Transportes:
 2. Instituto Costa1Ticense de Ferrocarriles (INCOFER)
 3. Instituto Costarricense de Puertos del Pacifico (INCOP)
 4. Junta de Administración Portuaria y de Desarrollo Económico de la Vertiente Atlántica (JAPDEVA).
+5. Instituto Costarricense de Acueductos y Alcantarillados (ICAA)
+(Así adicionado el numeral anterior por el artículo 2° del decreto ejecutivo N° 43917 del 1° de febrero del 2023)
 El Rector del Sector Obras Públicas y Transpo1ies será la persona que ocupe el cargo de Ministro de Obras Públicas y Transportes.
 l) Sector Acción Exterior
 1. Ministerio de Relaciones Exteriores y Culto.

@@ -14,3 +14,4 @@ Reglamento orgánico del Poder Ejecutivo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-06-10 | la propia norma |
+| 2 | 2023-02-01 | Decreto Ejecutivo 43917 (2023-02-01) |
