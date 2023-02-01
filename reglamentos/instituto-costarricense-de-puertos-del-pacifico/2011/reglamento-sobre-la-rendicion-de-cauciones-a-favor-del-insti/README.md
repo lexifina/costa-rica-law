@@ -14,3 +14,4 @@ Reglamento sobre la rendición de cauciones a favor del Instituto Costarricense 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-02-06 | la propia norma |
+| 2 | 2023-02-01 | Reglamento 4373 (2023-02-01) |

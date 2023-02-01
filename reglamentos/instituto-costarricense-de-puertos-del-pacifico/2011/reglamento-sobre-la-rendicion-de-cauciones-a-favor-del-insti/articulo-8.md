@@ -1,1 +1,1 @@
-Artículo 8º—Caucionantes del estrato II. En este nivel deben rendir caución para el ejercicio de sus cargos, los Encargados de Contabilidad, Proveeduría Institucional y Tesorería, así como la Comisión de Contratación Administrativa.
+Artículo 8º-Simultaneidad de funciones sujetas a caución. El caucionante que, por disposición de ley, decreto ejecutivo u otra disposición desempeñe dos o más puestos en la Institución, cuyas funciones sean calificadas como de recaudación, administración o custodia de fondos públicos, deberá rendir una única caución y por el monto de mayor valor.

@@ -1,1 +1,1 @@
-Artículo 16.—Cálculo de la caución en el estrato II. Quienes desempeñen puestos clasificados dentro del estrato II, deberán de rendir una caución equivalente a tres y medio salarios base de un Oficinista del Servicio Civil 2.
+Artículo 16.-Responsabilidad de no informar. El encargado de la administración y control de las cauciones que por culpa o dolo no informe cualquier anomalía por escrito a la Gerencia General y a la Dirección Administrativa Financiera, será solidariamente responsable del perjuicio ocasionado.

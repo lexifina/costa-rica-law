@@ -1,10 +1,10 @@
-Artículo 3º—Definiciones. Con el fin de unificar conceptos se establecen las siguientes definiciones:
-a) Caución o Garantía: Monto que rinde el caucionante mediante la constitución de un seguro o póliza de fidelidad.
-b) Caucionante: Todo servidor del INCOP encargado de recaudar, custodiar y administrar fondos y valores públicos.
-c) Administrador de fondos públicos: funcionario que por sus atribuciones puede determinar los objetivos y políticas del INCOP.
-d) INCOP: Instituto Costarricense de Puertos del Pacífico.
+Artículo 3º-Definiciones. Con el fin de unificar conceptos se establecen las siguientes definiciones:
+a) Caución Póliza de Fidelidad o Garantía: contrato de seguro ofrecido por entidades autorizadas a brindar ese servicio, con el cual los funcionarios rinden garantía en beneficio del Estado con tal de afianzar los daños y perjuicios causados por la comisión de actos culposos y/o dolosos por parte de estos en el desempeño de su labor.
+b) Caucionante: todo servidor del Incop responsable de recaudar, custodiar y administrar fondos, valores o bienes públicos activos institucionales y administrar y ejecutar presupuesto institucional.
+c) Administrador de fondos públicos: funcionario que por sus atribuciones determina los objetivos, metas, presupuesto, propone reglamentos, políticas u otras regulaciones internas de Incop.
+d) Incop: Instituto Costarricense de Puertos del Pacífico.
 e) Custodio de fondos o valores públicos: funcionario que por la índole de sus responsabilidades, guarda o tiene a su cargo recursos, bienes o derechos públicos.
-f) Fondos públicos: son recursos, valores, bienes y derechos de naturaleza pública, de conformidad con el artículo 9 de la Ley Orgánica de la Contraloría General de la República.
-g) Póliza o Seguro de Fidelidad: contrato de seguro ofrecido por entidades autorizadas a brindar ese servicio, con el cual los funcionarios rinden garantía en beneficio del Estado con tal de afianzar los daños y perjuicios causados por la comisión de actos culposos y/o dolosos por parte de estos en el desempeño de su labor.
-h) Recaudador de fondos públicos o valores públicos: funcionario que por sus responsabilidades cobra o percibe rentas públicas (fondos o valores públicos).
+f) Fondos públicos: Son los recursos, valores, bienes y derechos propiedad del Estado, de órganos, de empresas o de entes públicos, de conformidad con el artículo 9 de la Ley Orgánica de la Contraloría General de la República; Ley N° 7428.
+g) Responsable de activos: jefe de cada unidad responsable de realizar la designación de custodio de activos a lo interno de su unidad, realizar y aprobar los traslados o aceptación de activos; todo en el portal de trámites dispuesto para el registro y control de los activos de Incop. Así mismo, responsable de que se realice auto inventario de activos de la unidad a su cargo y responsable de velar por el cumplimiento de lo dispuesto en el presente reglamento.
+h) Recaudador de fondos públicos o recursos públicos, valores o bienes públicos: funcionario que por sus responsabilidades cobra, percibe rentas públicas (fondos o valores públicos); o es responsable de presupuestar, aprobar y ejecutar el uso y administrar fondos públicos y/o activos institucionales
 i) Propio peculio: patrimonio perteneciente al funcionario.

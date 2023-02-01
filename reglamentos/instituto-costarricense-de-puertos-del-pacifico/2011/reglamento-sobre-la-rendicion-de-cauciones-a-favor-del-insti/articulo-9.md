@@ -1,5 +1,1 @@
-Artículo 9º—Caucionantes del estrato III. En este nivel deben rendir caución quienes desempeñen alguna de las funciones que se citan a continuación:
-a) Labores de caja chica y fondos fijos.
-b) Recaudación directa de ingresos por venta de servicios.
-c) Trámite ante entidades financieras u otras que impliquen manejo ordinario de valores.
-d) Custodia de materiales y suministros superiores a los ¢500.000,00
+Artículo 9º-Ajuste de la caución. El caucionante que por algún motivo sea trasladado de un puesto a otro que implique una nueva ubicación en la clasificación por niveles de responsabilidad, deberá ajustar la caución conforme a la nueva situación, para lo cual contará con un plazo de veinte días hábiles.

@@ -1,1 +1,0 @@
-Artículo 21.—Responsabilidad de no informar. El encargado de la administración y control de las cauciones que por culpa o dolo no informe cualquier anomalía por escrito a la Gerencia General y a la Dirección Administrativa Financiera, será solidariamente responsable del perjuicio ocasionado.

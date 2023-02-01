@@ -1,7 +1,1 @@
-Artículo 10.—Revisión del listado de funcionarios obligados a caucionar. Una vez cada tres años La Dirección Administrativa Financiera, con la obligada colaboración de la Jefatura de la Unidad de Capital Humano y la Jefatura de la Unidad de Tesorería cuando la primera así lo solicite, revisará el listado de funcionarios obligados a caucionar referenciado en los artículos anteriores, para lo cual deberá de considerar, entre otros aspectos:
-a) La existencia en forma separada o combinada de las funciones y actividades de administrar, custodiar o recaudar fondos y valores públicos.
-b) La confiabilidad y eficacia del sistema de control interno y el grado de riesgo de acuerdo con la valoración realizada por la Administración.
-c) El nivel de la responsabilidad, el monto administrado y el salario correspondiente al caucionante.
-d) Calcular y mantener actualizados los montos, que por concepto de las garantías, deben rendir los caucionantes.
-e) Asesorar y recomendar a las instancias correspondientes las medidas que correspondan con el propósito de mantener montos de garantía apropiados.
-f) Tomar las medidas adicionales que le correspondan para el resarcimiento de daños y perjuicios irrogados por el caucionante al patrimonio del Instituto Costarricense de Puertos del Pacífico, cuando la responsabilidad del caucionante haya sido declarada conforme lo establece el ordenamiento jurídico vigente.
+Artículo 10.-Eliminación de la caución. El caucionante que sea trasladado a un puesto que no esté contemplado en ninguno de los estratos definidos para los caucionantes, cesará con su obligación de caucionar a partir de la fecha de su nuevo nombramiento.

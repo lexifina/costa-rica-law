@@ -1,1 +1,3 @@
-Artículo 15.—Cálculo de la caución en el estrato I. Quienes desempeñen puestos clasificados dentro del estrato I, deberán de rendir una caución equivalente a cinco salarios base de un Oficinista del Servicio Civil 2.
+CAPÍTULO V
+De la responsabilidad por no presentar caución
+Artículo 15.-Responsabilidad por la no presentación de la caución. El no rendir o renovar la garantía dentro del plazo previsto al efecto, originará al servidor responsabilidad administrativa.
