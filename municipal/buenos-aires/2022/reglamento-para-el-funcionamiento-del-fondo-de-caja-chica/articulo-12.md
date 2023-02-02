@@ -1,0 +1,7 @@
+Artículo 12.-El vale se tramitará únicamente, cuando cumpla con todos y cada uno de los siguientes requisitos:
+a. Se presente debidamente lleno, indicando el monto exacto y los artículos o servicios que se comprarán.
+b. En caso de la compra de bienes y servicios, deberá aportarse una factura proforma lo cual no debe considerar el pago del impuesto al valor agregado, conforme lo establece el artículo 9°, inciso 2) de la Ley N° 9635 (No están sujetos al impuesto al valor agregado los bienes y servicios que adquieran las corporaciones municipales). La fecha de la factura no puede ser inferior a la fecha en la que se tramita el vale, toda vez que se trata, de tramites de urgencia que en principio se deben atender en las próximas 24 horas al hecho acontecido como impostergable.
+c. La Tesorería entregará una constancia a favor del proveedor de los bienes y servicios en relación con la no sujeción al impuesto al valor agregado por parte de la Municipalidad de Buenos Aires.
+d. Tenga aprobación por parte del Alcalde Municipal o del funcionario en quien él haya delegado tal función, de conformidad con lo dispuesto en el artículo 17, inciso b) del Código Municipal.
+e. Establecer el control respectivo sobre el retiro del dinero, dejando constancia del funcionario responsable de su recibo.
+f. Se detalle en el formulario la compra de los bienes y servicios por adquirir, con la correspondiente justificación.

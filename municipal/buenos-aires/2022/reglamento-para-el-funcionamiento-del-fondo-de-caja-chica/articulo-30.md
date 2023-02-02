@@ -1,0 +1,1 @@
+Artículo 30.-Por ninguna razón se aceptará el fraccionamiento ilícito en las compras de Caja Chica, por ende, no se podrá acudir a la formalización de más de 1 vale para pagar un mismo bien o servicio, conforme a lo preceptuado en el numeral 33 de la LGCP, N° 9986.

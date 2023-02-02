@@ -1,0 +1,1 @@
+Artículo 37.-Las sanciones que correspondan, según lo dispuesto en el Reglamento anterior, serán aplicadas por el Despacho del Alcalde Municipal, a través de la Oficina de Recursos Humanos, conforme lo establece, el Código Municipal, el Código de Trabajo y el Reglamento Autónomo de Organización y Servicio de esta Municipalidad.

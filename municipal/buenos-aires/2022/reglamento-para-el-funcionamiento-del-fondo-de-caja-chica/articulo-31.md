@@ -1,0 +1,1 @@
+Artículo 31.-Únicamente podrán hacer uso del fondo de caja chica. Las personas que se encuentren en propiedad, y los interinos que se encuentren nombrados en una plaza vacante, o supliendo temporalmente al titular de la misma.

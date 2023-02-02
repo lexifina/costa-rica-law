@@ -1,0 +1,1 @@
+Artículo 33.-Los fondos de Cajas Chica no podrán ser utilizados para el cambio de cheques personales ni usarse para fines distintos para el que fue creado ni disponerse para actuaciones distintas a las autorizadas por la ley y este reglamento.
