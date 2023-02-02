@@ -1,0 +1,11 @@
+Nº 43876-MJP
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE JUSTICIA Y PAZ
+Con fundamento en lo dispuesto en los artículos 140, inciso 18) y 146 de la Constitución Política, en el artículo 32 de la Ley de Asociaciones Nº 218 del 8 de agosto de 1939 y los artículos 27 y siguientes del Reglamento a la Ley de Asociaciones Nº 29496-J, publicado en la Gaceta Nº 96 del 21 de mayo del 2001.
+Considerando:
+I.-El artículo 32 de la Ley de Asociaciones NO 218 del 8 de agosto de 1939 y sus reformas, confiere al Poder Ejecutivo la potestad de declarar de utilidad pública a las asociaciones simples, federadas o confederadas, cuyo desarrollo y actividades sean particularmente útiles para los intereses del Estado, y que por ello contribuyan a solventar una necesidad social.
+II.-La Asociación Pro Centro de Enseñanza Carlos Luis Valle Masís, cédula de persona jurídica número 3-002- 124992, se inscribió en el Registro de Asociaciones del Registro Público desde el 7 de julio del 2004, bajo el tomo 392 y asiento 5554. Asimismo, dicha entidad fue declarada de utilidad pública mediante el decreto ejecutivo NO 42152-MJP, publicado La Gaceta Nº 30 del 14 de febrero del 2020.
+III.-Mediante escrito de fecha 29 de junio del 2022, suscrito por la señora Norma Jeannette Vega Monge, cédula de identidad número 9-0075-0460, presidenta de la asociación, solicitó la derogatoria de la Utilidad Pública para dicha Asociación, aunado a que la asociación tiene pendiente de presentar el informe anual de gestiones para el año 2021, el cual fue prevenido por la Asesoría Jurídica mediante los oficios A.J. 1856-06-2022 de fecha 21 de junio del 2022 y A.J. 2092-07-2022 del 11 de julio del 2022 y cuya presentación es obligatoria. Por tanto,
+Decretan
+DEROGATORIA DEL DECRETO EJECUTIVO Nº 42152-MJP, MEDIANTE EL CUAL SE OTORGÓ LA DECLARATORIA DE UTILIDAD PÚBLICA A LA ASOCIACIÓN PRO CENTRO DE ENSEÑANZA CARLOS LUIS VALLE MASÍS
+Artículo 1º-Dejar sin efecto el Decreto Ejecutivo NO 42152-MJP publicado en el diario oficial La Gaceta NO 30 del 14 de febrero del 2020, mediante el cual se declaró de utilidad pública para los intereses del Estado a la Asociación Pro Centro de Enseñanza Carlos Luis Valle Masís, cédula de persona jurídica número 3-002-124992.
