@@ -1,4 +1,6 @@
-Artículo 113°.-Recursos ante la Dirección de Gestión y Evaluación de la Calidad. Los recursos contra el contenido o la calificación de las pruebas nacionales deben plantearse en los términos que dispone el artículo anterior, de la siguiente manera:
-El interesado tiene el derecho de interponer mediante escrito dirigido a la Dirección de Gestión y Evaluación de la Calidad, recurso de revocatoria con apelación en subsidio, contra el contenido y el resultado de las pruebas nacionales, dentro de los tres días hábiles siguientes a la entrega de las notas obtenidas.
-La entrega del recurso se debe hacer ante el o la directora del respectivo centro educativo. El escrito debe contener en forma debidamente razonada y fundamentada, el señalamiento expreso y detallado de los aspectos que se objetan. Además, debe ir acompañado del nombre completo del gestionante, número de identificación, medio para notificarle, fecha y firma.
+SECCIÓN VIII
+Comunicación nacional y aplicación de los resultados de las Pruebas Nacionales
+(Así reformada la sección anterior por el artículo 3° del decreto ejecutivo N° 41686 del 28 de febrero del 2019)
+Artículo 113°.-Comunicación de los resultados a nivel nacional. El Ministerio de Educación Pública, comunicará a la comunidad educativa nacional los resultados de las pruebas señaladas en el artículo 79 de este reglamento y los utilizará para tomar las decisiones técnicas y administrativas, que permitan cumplir a cabalidad con los objetivos señalados en el artículo 81 de este reglamento.
 (Así reformado por el artículo 3° del decreto ejecutivo N° 41686 del 28 de febrero del 2019)
+(Así modificada su numeración por el artículo 41 del decreto ejecutivo N° 43942 del 2 de febrero del 2023, que lo traspasó del antiguo 115 al artículo 113, ya que se indicó derogar los artículos 93, 94 y 96 y correr la numeración de los restantes artículos)

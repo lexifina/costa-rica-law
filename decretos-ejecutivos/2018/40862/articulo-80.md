@@ -1,6 +1,7 @@
-Artículo 80°.- Certificado de conclusión del I y II Ciclo de la Educación General Básica y el Título de Bachiller en Educación Media.
-a) Certificado de conclusión del I y /1 Ciclo de la Educación General Básica: certifica el conocimiento o las habilidades obtenidas al concluir el I y II Ciclo de la Educación General Básica.
+Artículo 80 °. -Certificado de conclusión del I y II Ciclo de la Educación General Básica y el Título de Bachiller en Educación Media.
+a) Certificado de conclusión del I y II Ciclo de la Educación General Básica: certifica los aprendizajes obtenidos al concluir el I y II Ciclo de la Educación General Básica. Además, las capacidades lingüísticas, científicas, matemáticas y ciencias sociales de acuerdo con los enfoques y fundamentación teórica de los Programas de Estudio de las asignaturas de Español, Matemáticas, Ciencias y Estudios Sociales, que se evalúan en la Prueba Nacional Estandarizada.
 El certificado obtenido por estudiantes que cursaron y aprobaron el I y II Ciclo de la Educación General Básica o el I nivel del Plan de Estudio de Educación de Adultos, con el apoyo de la adecuación curricular significativa, debe adjuntar el informe final de ciclo con el que fue evaluado.
-b) Título de Bachiller en Educación Media: certifica los aprendizajes o las habilidades obtenidas al concluir la Educación Diversificada.
-El Título de Bachiller en Educación Media de estudiantes que cursaron y aprobaron la Educación Diversificada o el Plan de Estudio de la Educación de Adultos, con el apoyo de la adecuación curricular significativa, debe adjuntar el informe final de ciclo con el cual fue evaluado.
-(Así reformado por el artículo 3° del decreto ejecutivo N° 41686 del 28 de febrero del 2019)
+b) Título de Bachiller en Educación Media: Certifica los aprendizajes obtenidos al concluir la Educación Diversificada. Además, certifica capacidades lingüísticas, científicas, matemáticas y ciencias sociales de acuerdo con los enfoques y
+fundamentación teórica de los Programas de Estudio de las asignaturas de Español, Matemáticas, Ciencias e Idioma (inglés o francés), Estudios Sociales y Educación Cívica.
+El Título de Bachiller en Educación Media de estudiantes que cursaron y aprobaron la Educación Diversificada o el Plan de Estudio de la Educación de Adultos, con el apoyo de la adecuación curricular significativa, debe adjuntar el informe final de ciclo en el cual fue evaluado.
+(Así reformado por el artículo 4° del decreto ejecutivo N° 43942 del 2 de febrero del 2023)

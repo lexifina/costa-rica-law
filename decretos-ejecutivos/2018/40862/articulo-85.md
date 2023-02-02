@@ -1,7 +1,13 @@
-Artículo 85°.-Ámbito de aplicación de las pruebas nacionales FARO. Las pruebas nacionales FARO descritas en el inciso a) del artículo 79 de este reglamento, se rigen por los siguientes criterios según el ámbito de aplicación:
-a) I y II Ciclo de la Educación General Básica: La población estudiantil debe realizar las pruebas nacionales FARO en el quinto año de forma obligatoria y en el sexto año con carácter facultativo y con fines de mejora del logro de los aprendizajes, así como la calificación obtenida por el estudiantado.
-b) Educación Diversificada: La población estudiantil debe realizar las pruebas nacionales FARO con carácter obligatorio en el décimo año de la modalidad académica y en el undécimo año de la modalidad técnica. En el undécimo año de la modalidad académica y el duodécimo año de la modalidad técnica el estudiante realizará las pruebas FARO con carácter facultativo y con fines de mejora del logro de los aprendizajes, así como la calificación obtenida por el estudiantado.
-c) Para las ofertas educativas de IPEC y CINDEA: La población estudiantil debe realizar las pruebas nacionales FARO con carácter obligatorio en el quinto periodo del primer nivel y en el segundo periodo del /JI nivel del Plan de Estudio de Educación de Adultos. En el sexto periodo del I nivel y en el cuarto periodo del III nivel del Plan de Estudio de Educación de Adultos realizará las pruebas nacionales FARO con carácter facultativo y confines de mejora del logro de los aprendizajes, así como la calificación obtenida por el estudiantado.
-d) Para la oferta educativa de CONED: La población estudiantil debe realizar las pruebas nacionales FARO con carácter obligatorio en el penúltimo año de la Educación Diversificada. En el último año de la Educación Diversificada el estudiante realizará las pruebas nacionales FARO con carácter facultativo y con fines de mejora del logro de los aprendizajes, así como la calificación obtenida por el estudiantado.
-e) Para la aplicación de apoyos educativos al estudiantado en condición de discapacidad: La persona estudiante que así lo requiera, puede aplicar Las pruebas nacionales FARO con apoyos educativos (de acceso y curriculares no significativos) de acuerdo con los apoyos brindados en su proceso educativo, la normativa vigente y los protocolos que emita la Dirección de Gestión y Evaluación de la Calidad.
-(Así reformado por el artículo 3° del decreto ejecutivo N° 41686 del 28 de febrero del 2019)
+Artículo 85°. - Ámbito de aplicación de la Prueba Nacional Estandarizada
+La Prueba Nacional Estandarizada se aplicará a la siguiente población estudiantil:
+Educación primaria:
+. Estudiantes matriculados en sexto año, aula regular y aula edad, de la Educación General Básica.
+. Estudiantes matriculados en VI periodo del I nivel del Programa de Educación para Personas Jóvenes y Adultas, que hayan aprobado los periodos y módulos anteriores con atinencias sujetas a evaluación nacional.
+. Estudiantes matriculados en sexto año, aula regular y aula edad de la Educación General Básica de Escuelas Nocturnas.
+. Estudiantes matriculados en calendario diferenciado y en el Plan de Educación de Adultos que, por la particularidad de estas ofertas educativas, inician curso lectivo en el segundo semestre del año y lo finalizan el primer semestre del año siguiente.
+Educación Secundaria:
+. Estudiantes matriculados en undécimo año de Educación Diversificada.
+. Estudiantes matriculados en IV periodo del III nivel del Programa de Educación para Personas Jóvenes y Adultas, que hayan aprobado los periodos y módulos anteriores con atinencias sujetas a evaluación nacional.
+. Duodécimo año de Educación Diversificada de Colegios Técnicos Profesionales.
+. Estudiantes matriculados en calendario diferenciado y en el Plan de Educación de Adultos que, por la particularidad de estas ofertas educativas, inician el curso lectivo en el segundo semestre del año y lo finalizan el primer semestre del año siguiente.
+(Así reformado por el artículo 8° del decreto ejecutivo N° 43942 del 2 de febrero del 2023)

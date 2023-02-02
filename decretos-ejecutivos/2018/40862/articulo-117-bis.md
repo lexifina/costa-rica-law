@@ -1,0 +1,3 @@
+Artículo 117 bis.-Autorizaciones especiales para el Ministerio de Educación Pública en torno a las pruebas nacionales ante situaciones de caso fortuito y fuerza mayor. (Derogado por el artículo 2° del decreto ejecutivo N° 42968 del 16 de abril del 2021)
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 41331 del 26 de setiembre de 2018)
+(Así modificada su numeración por el artículo 41 del decreto ejecutivo N° 43942 del 2 de febrero del 2023, que lo traspasó del antiguo 119 bis al artículo 117 bis, ya que se indicó derogar los artículos 93, 94 y 96 y correr la numeración de los restantes artículos)

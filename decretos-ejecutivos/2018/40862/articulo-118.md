@@ -1,2 +1,6 @@
-Artículo 118 °-Envío de información. Será obligación del director o la directora de cada centro educativo, en las fechas, la forma y mediante el procedimiento que disponga la Dirección de Gestión y Evaluación de la Calidad, remitir toda la información requerida para la adecuada administración del proceso.
-(Así reformado por el artículo 3° del decreto ejecutivo N° 41686 del 28 de febrero del 2019)
+CAPÍTULO VI
+Convivencia Estudiantil y Conducta
+SECCIÓN I
+Convivencia Estudiantil
+Artículo 118.-Sistema de Convivencia Estudiantil. El Sistema de Convivencia Estudiantil es el conjunto de principios, normas, instancias y prácticas institucionales que regulan las relaciones entre los miembros de la comunidad educativa de cada centro educativo y la evaluación de la conducta de la persona estudiante, con el fin de posibilitar el cumplimiento de los fines del sistema educativo costarricense.
+(Así modificada su numeración por el artículo 41 del decreto ejecutivo N° 43942 del 2 de febrero del 2023, que lo traspasó del antiguo 120 al artículo 118, ya que se indicó derogar los artículos 93, 94 y 96 y correr la numeración de los restantes artículos)

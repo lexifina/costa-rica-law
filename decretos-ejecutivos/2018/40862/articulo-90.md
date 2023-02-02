@@ -1,2 +1,3 @@
-Artículo 90°.-Aplicación de instructivos y protocolos de la Dirección de Gestión y Evaluación de la Calidad. Conforme a lo señalado en el artículo 89 de este reglamento, corresponde a los delegados y a los tutores especialistas de las pruebas nacionales, cumplir con todas las disposiciones contenidas en los protocolos e instructivos de aplicación, elaborados por la Dirección de Gestión y Evaluación de la Calidad.
-(Así reformado por el artículo 3° del decreto ejecutivo N° 41686 del 28 de febrero del 2019)
+Artículo 90 °. - Aplicación de instructivos y protocolos de la Dirección de Gestión y Evaluación de la Calidad
+Corresponde a los funcionarios señalados en el artículo 89 de este reglamento, cumplir con todas las disposiciones contenidas en los protocolos e instructivos de aplicación, elaborados por la Dirección de Gestión y Evaluación de la Calidad.
+(Así reformado por el artículo 13 del decreto ejecutivo N° 43942 del 2 de febrero del 2023)

@@ -1,2 +1,3 @@
-Transitorio 4: (Derogado por el artículo 3° del decreto ejecutivo N° 43770 del 20 de octubre de 2022)
+Transitorio 4: Para el curso lectivo 2023, la Prueba Nacional Estandarizada evaluará habilidades lingüísticas, científicas, matemáticas y de ciencias sociales para la adquisición de conocimientos y habilidades, por lo cual, la Prueba Nacional Estandarizada Diagnóstica, servirá como estudio de validez del proceso de gestión y administración.
 (Así adicionado por el artículo 4° del decreto ejecutivo N° 41686 del 28 de febrero del 2019)
+(Así adicionado por el artículo 38 del decreto ejecutivo N° 43492 del 2 de febrero del 2023. Anteriormente este numeral había sido derogado por el artículo 3° del decreto ejecutivo N° 43770 del 20 de octubre de 2022)

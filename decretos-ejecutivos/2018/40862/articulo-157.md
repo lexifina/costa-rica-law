@@ -1,12 +1,3 @@
-CAPÍTULO VII
-Comunicaciones
-SECCIÓN ÚNICA
-Comunicaciones e interacción entre el centro educativo, el estudiantado y la
-persona encargada legal
-Artículo 157°.-Medios de comunicación. Cada centro educativo, sin perjuicio de otros medios idóneos y de lo que señale este reglamento, mantendrá comunicación con la persona encargada legal de la persona estudiante o la persona estudiante
-mayor de edad, por los siguientes medios:
-a) Informe de notas.
-b) Informe cualitativo de desempeño.
-c) Cuaderno de comunicaciones.
-d) Instrumentos de evaluación aplicados.
-e) Entrevista personal.
+Artículo 157°.-Envío de los informes e instrumentos de evaluación. Los instrumentos e informes de evaluación debidamente calificados deben ser entregados al estudiantado mayor de edad o ser remitidos a la persona encargada legal de la persona estudiante, para su conocimiento y firma.
+(Así reformado por el artículo 15 del decreto ejecutivo N° 43925 del 12 de enero del 2023)
+(Así modificada su numeración por el artículo 41 del decreto ejecutivo N° 43942 del 2 de febrero del 2023, que lo traspasó del antiguo artículo 159 al artículo 157, ya que se indicó derogar los artículos 93, 94 y 96 y correr la numeración de los restantes artículos)

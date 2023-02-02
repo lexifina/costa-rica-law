@@ -82,6 +82,7 @@ articulo-79.md
 articulo-80.md
 articulo-81.md
 articulo-82.md
+articulo-82-bis.md
 articulo-83.md
 articulo-84.md
 articulo-85.md
@@ -89,6 +90,7 @@ articulo-86.md
 articulo-87.md
 articulo-88.md
 articulo-89.md
+articulo-89-bis.md
 articulo-90.md
 articulo-91.md
 articulo-92.md
@@ -109,6 +111,8 @@ articulo-106.md
 articulo-107.md
 articulo-108.md
 articulo-109.md
+articulo-109-bis.md
+articulo-109-ter.md
 articulo-110.md
 articulo-111.md
 articulo-112.md
@@ -117,9 +121,9 @@ articulo-114.md
 articulo-115.md
 articulo-116.md
 articulo-117.md
+articulo-117-bis.md
 articulo-118.md
 articulo-119.md
-articulo-119-bis.md
 articulo-120.md
 articulo-121.md
 articulo-122.md

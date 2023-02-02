@@ -1,5 +1,3 @@
-SECCIÓN VIII
-Comunicación nacional y aplicación de los resultados de las Pruebas Nacionales
-(Así reformada la sección anterior por el artículo 3° del decreto ejecutivo N° 41686 del 28 de febrero del 2019)
-Artículo 115°.-Comunicación de los resultados a nivel nacional. El Ministerio de Educación Pública, comunicará a la comunidad educativa nacional los resultados de las pruebas señaladas en el artículo 79 de este reglamento y los utilizará para tomar las decisiones técnicas y administrativas, que permitan cumplir a cabalidad con los objetivos señalados en el artículo 81 de este reglamento.
+Artículo 115°.-De la comunicación de las normas que rigen las pruebas nacionales. El director o la directora de cada centro educativo realizará el número de reuniones que fueren necesarias para informar a los estudiantes y a la persona encargada legal en torno a las disposiciones contenidas en este capítulo, con el fin de lograr una clara comprensión de los alcances de éstas, de sus derechos y deberes y de la trascendencia de las pruebas nacionales.
 (Así reformado por el artículo 3° del decreto ejecutivo N° 41686 del 28 de febrero del 2019)
+(Así modificada su numeración por el artículo 41 del decreto ejecutivo N° 43942 del 2 de febrero del 2023, que lo traspasó del antiguo artículo 117 al artículo 115, ya que se indicó derogar los artículos 93, 94 y 96 y correr la numeración de los restantes artículos)

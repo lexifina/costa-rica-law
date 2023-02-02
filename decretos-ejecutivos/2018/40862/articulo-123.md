@@ -1,19 +1,14 @@
-Artículo 123.-Objetivos del Sistema de Convivencia Estudiantil. Los objetivos del Sistema de Convivencia Estudiantil en el sistema educativo son los siguientes:
-a) Propiciar la participación democrática de todos los miembros de la comunidad educativa, según las competencias y responsabilidades asignadas a cada uno, en la elaboración, construcción y respeto de las normas que rijan la convivencia en el centro educativo; para promover un clima institucional propicio para el desarrollo del proceso educativo de la persona estudiante.
-b) Promover, en toda la comunidad educativa, los siguientes valores:
-. El respeto por la vida, la integridad física y moral de las personas.
-. La protección y el resguardo del medio ambiente.
-. La justicia, la verdad y la honradez.
-. La defensa de la paz y la no violencia.
-. El respeto y la aceptación de las diferencias.
-. La solidaridad, la cooperación y el rechazo de todo tipo de discriminación.
-. La responsabilidad individual.
-. La responsabilidad ciudadana, el respeto a los símbolos patrios y el compromiso social.
-c) Propiciar la implementación de mecanismos eficaces para la prevención y resolución de los conflictos en los centros educativos.
-d) Fomentar la evaluación y atención continua de las conductas y conflictos que se susciten en el centro educativo, en procura de desarrollar los mecanismos de prevención necesarios y garantizar el correcto abordaje de cada situación.
-e) Generar las condiciones necesarias en el centro educativo, que propicien la permanencia de la persona estudiante en el sistema educativo, la conclusión de sus estudios y la reducción de la exclusión escolar.
-f) Promover la formación de la persona estudiante en las prácticas de la ciudadanía democrática, el resguardo de los derechos fundamentales y los deberes de los miembros de la comunidad educativa, mediante la participación responsable de estos en la construcción de una sana convivencia estudiantil en los centros educativos.
-g) Establecer la necesaria correlación entre las faltas y las acciones correctivas a aplicar en los centros educativos, en un marco de proporcionalidad y justicia, enfocado a una finalidad educativa que procure la formación integral y promoción final de la persona estudiante.
-En el nivel de Educación Preescolar para una atención oportuna de las características de la población de Primera Infancia, las conductas o faltas en que incurra una niña o un niño deben llevar un abordaje integral de detección, atención y/o referencia a instancias externas al MEP cuando proceda.
-(Así reformado el inciso anterior por el artículo 12 del decreto ejecutivo N° 43925 del 12 de enero de 2023)
-h) Propiciar que toda acción correctiva aplicada sea acompañada de un proceso de reflexión sobre el comportamiento o los comportamientos inadecuados, buscando la modificación de la conducta a partir de la toma de conciencia respecto a las consecuencias de la falta cometida y el asume de compromisos por parte del estudiante o de las personas estudiantes involucrados en la situación.
+Artículo 123.-Deberes y obligaciones de la persona estudiante en relación con el Sistema de Convivencia Estudiantil. Aunados a los desarrollados en el artículo 20 de este reglamento, son deberes y obligaciones de la persona estudiante en cuanto al Sistema de Convivencia Estudiantil y la evaluación de la conducta, los siguientes:
+a) Mostrar una conducta y comportamiento que lo dignifiquen como persona y que enaltezcan tanto al centro educativo al que pertenece, como a la comunidad en general.
+b) Cumplir estrictamente con las regulaciones establecidas por el centro educativo en cuanto al uniforme y a la presentación personal.
+c) Contribuir, con su conducta y su participación responsables, en la creación, el mantenimiento y el fortalecimiento de un ambiente propicio para el aprendizaje.
+d) Practicar las normas de consideración y respeto en sus relaciones con sus compañeros, con los profesores, personal, autoridades de la institución y, en general, con todas las personas.
+e) Respetar las normas de convivencia humana, dentro y fuera de la institución y, muy particularmente, los derechos que corresponden a las demás personas.
+f) Respetar la integridad física, emocional y moral de sus compañeros y compañeras, sus profesores y, en general, de todos los funcionarios de la institución y la comunidad.
+g) Cumplir estricta y puntualmente con el Calendario Escolar, los horarios y las instrucciones que rigen para el desarrollo de las actividades institucionales.
+h) Respetar los bienes de las compañeras, compañeros y de los funcionarios del centro educativo.
+i) Cuidar y conservar las edificaciones, instalaciones, equipo, material, mobiliario y, en general, todos los bienes del centro educativo.
+j) Proteger, conservar y utilizar racionalmente los recursos naturales a disposición del centro educativo y la comunidad en general.
+k) Reconocer y reparar el daño u ofensa a personas y/o bienes del centro educativo o miembros de la comunidad educativa.
+l) Cumplir las orientaciones e indicaciones que le formulen las autoridades educativas, relacionadas con los hábitos de aseo e higiene personal, así como con las normas de ornato, aseo, limpieza y moralidad que rigen en la institución.
+(Así modificada su numeración por el artículo 41 del decreto ejecutivo N° 43942 del 2 de febrero del 2023, que lo traspasó del antiguo 125 al artículo 123, ya que se indicó derogar los artículos 93, 94 y 96 y correr la numeración de los restantes artículos)

@@ -1,3 +1,9 @@
-Artículo 119°.-Autorizaciones especiales para el Ministerio de Educación Pública en torno a las Pruebas Nacionales. Queda autorizado el Ministerio de Educación Pública para que adopte y ejecute las disposiciones técnicas y administrativas necesarias, según se requiera en las diversas ramas y modalidades del sistema educativo, con el fin de alcanzar una adecuada institucionalización del proceso de Pruebas Nacionales.
-En casos especiales, las fechas para la realización de las convocatorias a pruebas nacionales, previstas en el artículo 86 de este reglamento, podrán ser modificadas parcial o totalmente por el despacho ministerial, quien deberá informarlo al Consejo Superior de Educación y a todas las Instituciones Educativas directamente interesadas con suficiente antelación.
-(Así reformado por el artículo 3° del decreto ejecutivo N° 41686 del 28 de febrero del 2019)
+Artículo 119.-Participantes en el sistema de convivencia estudiantil. En atención a las disposiciones contenidas en el artículo 6 de este reglamento, la implementación y ejecución del sistema de convivencia estudiantil implica la participación activa y colaboración de:
+a) El estudiantado.
+b) El personal docente.
+c) El director o la directora del centro educativo.
+d) El Comité de Evaluación de los Aprendizajes.
+e) El grupo de mejora de convivencia del Programa Convivir, en atención a las disposiciones contenidas en el Decreto Ejecutivo N° 36779-MEP, denominado "Crea el Programa Nacional de Convivencia en Centros Educativos (Programa Convivir)".
+f) El o la profesional de orientación del centro educativo, si lo hubiere.
+g) La persona encargada legal de la persona estudiante.
+(Así modificada su numeración por el artículo 41 del decreto ejecutivo N° 43942 del 2 de febrero del 2023, que lo traspasó del antiguo 121 al artículo 119, ya que se indicó derogar los artículos 93, 94 y 96 y correr la numeración de los restantes artículos)

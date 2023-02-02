@@ -1,2 +1,2 @@
-Artículo 170º-Derogatoria. Mediante la emisión del presente Reglamento, deróguese la siguiente normativa: Decreto Ejecutivo Nº 35355-MEP del 02 de junio de 2009 y sus reformas, denominado Reglamento de Evaluación de los Aprendizajes.
+Artículo 170º-(Nota de Sinalevi: El texto de este artículo debe de ser consultado en el numeral 168)
 (Así modificada su numeración por el artículo 1° del decreto ejecutivo N° 42968 del 16 de abril del 2021, que lo traspaso del antiguo artículo 169 al 170)

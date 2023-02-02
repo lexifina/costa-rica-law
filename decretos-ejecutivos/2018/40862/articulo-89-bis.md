@@ -1,0 +1,3 @@
+Artículo 89° Bis. - Del personal técnico, administrativo y propiamente docente de las direcciones regionales de educación, supervisiones y centros educativos
+El personal técnico, administrativo y propiamente docente de las direcciones regionales de educación, supervisiones y centros educativos son los encargados de administrar, supervisar, vigilar y asegurar la aplicación de la Prueba Nacional Estandarizada conforme a las normas técnicas y los procedimientos establecidos por la Dirección de Gestión y Evaluación de la Calidad a través de protocolos e instructivos emanados por la DGEC.
+(Así adicionado por el artículo 32 del decreto ejecutivo N° 43492 del 2 de febrero del 2023)

@@ -1,5 +1,15 @@
-Artículo 108.- Consignación y entrega de los resultados para la obtención del Certificado del I y II Ciclo de la Educación General Básica y el Título de Bachillerato en Educación Media.
-a) Concluido el proceso de calificación de las Pruebas Nacionales FARO y establecido el resultado final obtenido por cada persona estudiante, en su último año escolar, la Dirección de Gestión y Evaluación de la Calidad procederá a elaborar las actas respectivas, las cuales remitirá a cada centro educativo junto con el documento que transcribe los resultados para cada persona estudiante.
-b) Recibida el acta de resultados de las calificaciones finales, La dirección del centro educativo convocará a Las personas postulantes, con el fin de comunicarles en sesión formal los resultados obtenidos. La dirección del centro educativo deberá dejar constancia de la actividad de entrega de resultados por medio del acta correspondiente.
-c) En atención a la información remitida por la Dirección de Gestión y Evaluación de la Calidad, el centro educativo emite según sus disposiciones internas, la mención de Bachiller con Excelencia, cuando la persona postulante hubiere obtenido una calificación igual o superior a noventa en cada una de las asignaturas, módulos o periodos del último año escolar y en cada una de las pruebas nacionales FARO
-(Así reformado por el artículo 3° del decreto ejecutivo N° 41686 del 28 de febrero del 2019)
+SECCIÓN V
+Programas de Bachillerato de la Educación Abierta
+(Así adicionada la sección V) anterior por el artículo 3° del decreto ejecutivo N° 41686 del 28 de febrero del 2019)
+Artículo 108-. Programas de Educación Abierta
+En el caso de los programas de I y II Ciclos de la Educación General Básica Abierta, Bachillerato por Madurez Suficiente y Bachillerato de Educación Diversificada a Distancia, se desprende que:
+a) I y II Ciclos de la Educación General Básica Abierta:
+. Las pruebas nacionales de I y II Ciclos de Educación Abierta son de certificación.
+. Para obtener el certificado de Conclusión de I y II Ciclo de la Educación General Básica, la persona estudiante debe realizar cuatro pruebas nacionales en las asignaturas de: Ciencias, Español, Estudios Sociales, Educación Cívica y Matemáticas.
+. El certificado obtenido por la conclusión de I y II Ciclo de la Educación General Básica Abierta posee el mismo valor jurídico que el certificado obtenido en otras ofertas educativas del I y II Ciclos de la Educación General Básica.
+b) Bachillerato por Madurez Suficiente y Bachillerato de Educación Diversificada a Distancia:
+. Las pruebas nacionales de Bachillerato realizadas en la Educación Abierta son de certificación.
+Para efectos de obtener el Título de Bachillerato en Educción Media en la Educación Abierta, la persona estudiante debe realizar seis pruebas nacionales de Bachillerato en las asignaturas de Ciencias (Biología, Física y Química), Español (gramática y literatura - composición y ortografía), Estudios Sociales, Educación Cívica, Lengua Extranjera y Matemáticas.
+El título de Bachiller en Educación Media obtenido mediante el sistema de Educación Abierta posee el mismo valor jurídico que el obtenido al concluir la Educación Diversificada en las modalidades académica (diurna y nocturna) técnica y del Plan de Estudio de Educación de Adultos.
+(Así reformado por el artículo 29 del decreto ejecutivo N° 43942 del 2 de febrero del 2023)
+(Así modificada su numeración por el artículo 41 del decreto ejecutivo N° 43942 del 2 de febrero del 2023, que lo traspasó del antiguo 110 al artículo 108, ya que se indicó derogar los artículos 93, 94 y 96 y correr la numeración de los restantes artículos)

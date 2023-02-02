@@ -1,5 +1,8 @@
-SECCIÓN VII
-Recursos de las Pruebas Nacionales
-(Así reformada la sección anterior por el artículo 3° del decreto ejecutivo N° 41686 del 28 de febrero del 2019)
-Artículo 112°-Normas generales de presentación de los recursos. Todo estudiante o la persona encargada legal de este, podrá requerir la revisión del contenido o de la calificación obtenida en cualquiera de las pruebas nacionales, cuando se sustenten en hechos concretos, específicos y verificables correspondientes a su estructura, administración o calificación. Igualmente, pueden requerir la revisión de la nota final correspondiente obtenida por la persona estudiante.
+Artículo 112°.-Trámite de los recursos contra las pruebas nacionales. El director o la directora del centro educativo remitirá a la dirección regional de educación correspondiente, la totalidad de los recursos de revocatoria y apelación en subsidio recibidos, el día hábil siguiente del vencimiento del plazo con que cuenta la persona estudiante para interponerlos.
+La Dirección de Gestión y Evaluación de la Calidad resolverá los recursos de revocatoria dentro de los ocho días siguientes a su recibo, de conformidad con lo establecido por la Ley General de la Administración Pública.
+Con el fin de dictar su resolución, la Dirección de Gestión y Evaluación de La Calidad podrá solicitar asesoría a los especialistas que estime convenientes.
+En los casos en que el recurso de apelación sea procedente, la Dirección de Gestión y Evaluación de la Calidad, hará el traslado de las acciones recursivas al despacho ministerial, para que se pronuncie respecto a la apelación en subsidio planteada. Para tal efecto adjuntará a la documentación copia de la resolución de primera instancia que conoció el recurso de revocatoria.
+El despacho ministerial resolverá los recursos de apelación dentro de los ocho días siguientes al recibo del expediente, de acuerdo con el plazo establecido para tales efectos en la Ley General de la Administración Pública.
+Para resolver dicho recurso el despacho ministerial podrá solicitar criterio técnico de los especialistas que estime conveniente, dependiendo de la materia que se trate.
 (Así reformado por el artículo 3° del decreto ejecutivo N° 41686 del 28 de febrero del 2019)
+(Así modificada su numeración por el artículo 41 del decreto ejecutivo N° 43942 del 2 de febrero del 2023, que lo traspasó del antiguo 114 al artículo 112, ya que se indicó derogar los artículos 93,94 y 96 y correr la numeración de los restantes artículos)

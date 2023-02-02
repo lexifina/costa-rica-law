@@ -1,5 +1,9 @@
-Artículo 105.- Actualización de las calificaciones. Corresponde al director o directora del centro educativo o coordinador de sede, en las fechas y plazos dispuestos por la Dirección de Gestión y Evaluación de la Calidad, actualizar las calificaciones de asignaturas, módulos o periodos de los estudiantes, en los siguientes casos:
-a) La aprobación de una o varias asignaturas, módulos o periodos en las pruebas de ampliación organizadas en el centro educativo, de conformidad con el calendario escolar vigente. La calificación mínima de aprobación de la prueba de ampliación es de 65 o de 70 según el nivel que corresponda. En caso de que la persona estudiante apruebe la prueba de ampliación, se consignará la nota de 65 o de 70 según el nivel que corresponda, en los períodos correspondientes en los que él o la estudiante no haya obtenido la nota mínima de promoción.
-b) La aprobación de una asignatura, módulo o periodo mediante la estrategia de promoción prevista en el artículo 54 y siguientes de este reglamento. La calificación mínima de aprobación de la estrategia de promoción es de 70. En caso de que la persona estudiante apruebe la estrategia de promoción, se consignará la nota de 70 en los períodos correspondientes en los que el o la estudiante no haya obtenido la nota mínima de promoción.
-c) La aplicación voluntaria de las pruebas nacionales FARO y su consecuente mejora en la calificación.
-(Así reformado por el artículo 3° del decreto ejecutivo N° 41686 del 28 de febrero del 20199
+Artículo 105.- Requisito del Servicio Comunal Estudiantil. El estudiantado debe realizar el Servicio Comunal Estudiantil en décimo año, en los colegios académicos y en undécimo año en los colegios técnicos, como complemento de las tareas académicas. Este comprende una labor de 30 horas reloj durante el curso lectivo correspondiente.
+El Servicio Comunal Estudiantil tendrá los siguientes objetivos:
+a) Fortalecer los valores cívicos de la persona estudiante.
+b) Desarrollar los sentimientos de solidaridad y comprensión humanas.
+c) Establecer sentimientos de compromiso y desarrollar actitudes de cooperación para con la comunidad.
+d) Proyectar al centro educativo en su entorno social y económico.
+Quedan exentos de este requisito los postulantes de las ofertas educativas expresamente excluidas por acuerdo del Consejo Superior de Educación.
+(Así reformado por el artículo 3° del decreto ejecutivo N° 41686 del 28 de febrero del 2019)
+(Así modificada su numeración por el artículo 41 del decreto ejecutivo N° 43942 del 2 de febrero del 2023, que lo traspasó del antiguo 107 al artículo 105, ya que se indicó derogar los artículos 93, 94 y 96 y correr la numeración de los restantes artículos)

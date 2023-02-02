@@ -1,2 +1,12 @@
-Artículo 155.-Responsabilidades de la institución y de la persona estudiante a quien se aplica una acción correctiva. La institución educativa por medio del profesor guía o maestro a cargo, según sea el caso, y del orientador, si lo hubiere, debe dar orientación y seguimiento a la persona estudiante que hubiese incurrido en faltas, con el propósito educativo de que este comprenda su responsabilidad, modifique para bien su conducta e interiorice una actitud favorable a una armónica convivencia social.
-Cuando a la persona estudiante se le aplique una acción correctiva, es responsabilidad suya garantizarse, por sus propios medios, los elementos que permitan la continuidad del proceso educativo.
+CAPÍTULO VII
+Comunicaciones
+SECCIÓN ÚNICA
+Comunicaciones e interacción entre el centro educativo, el estudiantado y la
+persona encargada legal
+Artículo 155°.-Medios de comunicación. Cada centro educativo, sin perjuicio de otros medios idóneos y de lo que señale este reglamento, mantendrá comunicación con la persona encargada legal de la persona estudiante o la persona estudiante mayor de edad, por los siguientes medios:
+a) Informe de notas.
+b) Informe cualitativo de desempeño.
+c) Cuaderno de comunicaciones.
+d) Instrumentos de evaluación aplicados.
+e) Entrevista personal.
+(Así modificada su numeración por el artículo 41 del decreto ejecutivo N° 43942 del 2 de febrero del 2023 que lo traspasó del antiguo artículo 157 al artículo 155, ya que se indicó derogar los artículos 93, 94 y 96 y correr la numeración de los restantes artículos)
