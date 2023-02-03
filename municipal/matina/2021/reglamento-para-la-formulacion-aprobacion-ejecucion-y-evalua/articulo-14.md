@@ -1,2 +1,0 @@
-ARTÍCULO 14.-
-La Unidad de Presupuesto es la responsable de elaborar el proyecto de presupuesto al nivel de detalle que establezcan los clasificadores de ingresos y gastos, las categorías programáticas y otros, de acuerdo con lo establecido en el marco normativo vigente.

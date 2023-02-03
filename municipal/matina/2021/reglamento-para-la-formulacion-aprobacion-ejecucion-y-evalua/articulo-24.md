@@ -1,2 +1,0 @@
-ARTÍCULO 24.-
-La Coordinación de Tecnologías de Información, solicitará los recursos financieros necesarios para el mantenimiento de los equipos de cómputo, correo electrónico, internet, portal web, servidores, renovación de licencias, actualizaciones, accesorios de cómputo y demás para todas las unidades municipales, así como de los equipos, servidores y similares que requiera la Municipalidad de Matina.

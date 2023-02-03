@@ -1,2 +1,0 @@
-ARTÍCULO 33.-
-Cuando se incluyan en el Plan-Presupuesto recursos de la Ley N° 8114, la aplicación de los recursos debe ser recomendada previamente por la Junta Vial Cantonal, de conformidad con las competencias establecidas en el (Artículo 11) del Reglamento al inciso b) del artículo 5 de la Ley de Simplificación y Eficiencia Tributaria, N° 8114), Decreto Ejecutivo N° 40138, o en su defecto dispensada de ese trámite por votación calificada de la totalidad de los presentes del Concejo Municipal conforme el artículo 44 del Código Municipal, previo a su aprobación definitiva.

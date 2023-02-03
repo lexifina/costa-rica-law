@@ -1,2 +1,0 @@
-ARTÍCULO 3.-
-La Municipalidad de Matina orientará sus esfuerzos para la formulación, aprobación, ejecución y evaluación del Plan-Presupuesto, a lograr una equidad e igualdad de género, tanto en su desarrollo organizacional, como en la definición y el logro de los objetivos y metas establecidos para el cumplimiento de sus fines.

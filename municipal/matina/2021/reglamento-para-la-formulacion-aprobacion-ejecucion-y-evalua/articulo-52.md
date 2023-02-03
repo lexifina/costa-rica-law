@@ -1,2 +1,0 @@
-ARTÍCULO 52.-
-El monto máximo de recursos que se podrá redistribuir por medio de Modificaciones Presupuestarias, no podrá exceder del 25% del monto total del presupuesto inicial más los presupuestos extraordinarios aprobados, salvo por situaciones excepcionales en las que surja una obligación imprevista que deba cubrir la Municipalidad, en acatamiento de una orden judicial o de una disposición legal.

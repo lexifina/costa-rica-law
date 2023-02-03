@@ -1,2 +1,0 @@
-ARTÍCULO 22.-
-La Unidad de Recursos Humanos es la responsable de confeccionar la Relación de Puestos, los Perfiles de Puestos, estimar el monto de las subpartidas de Remuneraciones como Sueldos Fijos, Beneficios Laborales, Cargas Sociales y Póliza de Riesgos Laborales, Incrementos Salariales y otras, así como de Jornales Ocasionales y Servicios Especiales. La base de datos con la información sobre la Relación de Puestos y demás derechos y beneficios, deberá estar actualizada, para evitar que los recursos asignados sean insuficientes.

@@ -1,2 +1,0 @@
-ARTÍCULO 47.-
-Serán generadores de responsabilidad incurrir en los hechos enunciados en el Artículo 110 de la Ley de Administración Financiera y Presupuestos Públicos, el Artículo 112 del Código Municipal, y normas concomitantes.

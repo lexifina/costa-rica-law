@@ -1,2 +1,0 @@
-ARTÍCULO 42.-
-Todas las sub partidas de egresos consignadas en el Plan-Presupuesto constituyen previsiones presupuestarias y no autorizaciones para gastos; por lo tanto, sólo se autorizará el pago de egresos o gastos cuando estos se tramiten de conformidad con la normativa legal, técnica y administrativa vigente.

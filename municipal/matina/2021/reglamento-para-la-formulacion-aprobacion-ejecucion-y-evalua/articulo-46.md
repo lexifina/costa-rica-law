@@ -1,6 +1,0 @@
-ARTÍCULO 46.-
-En el proceso de Ejecución y Control son responsabilidades de las Coordinaciones, Encargados (as) y Jefaturas, las siguientes:
-a) Dar seguimiento y el control requerido, para que la ejecución de las metas y del presupuesto se realice conforme a lo establecido en el Plan-Presupuesto, y la normativa legal, técnica y administrativa vigente.
-Para ello deberá velar por atender lo establecido en el Código Municipal, la Ley General de Control Interno en cuanto a proteger y conservar el patrimonio institucional contra cualquier pérdida, despilfarro, uso indebido, irregularidad o acto ilegal y lo instituido en la Ley Contra la Corrupción y el Enriquecimiento Ilícito en la función pública referente a la administración de los recursos públicos con apego a los principios de legalidad, eficacia, economía y eficiencia, rindiendo cuentas satisfactoriamente.
-b) Aplicar los ajustes y las medidas correctivas que se estimen necesarias para garantizar el cumplimiento de los objetivos y metas, y el uso racional de los recursos financieros asignados.
-c) Será obligatorio al finalizar cada trimestre y durante los primeros ocho días hábiles del mes siguiente, brindar un informe a la Alcaldía y Gerencia Municipal, de la ejecución de las metas programadas, de los recursos financieros asignados y del comportamiento de los indicadores de gestión.
