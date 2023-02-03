@@ -1,1 +1,0 @@
-Artículo 11.—Traslado de información. MIDEPLAN enviará al Ministerio de Hacienda la información relativa a los proyectos de Cooperación No Reembolsable que haya aprobado al momento de oficializarlos ante el MRREE, incluyendo aquellos proyectos cuya eventual formalización competa al Ministerio de Hacienda por su condición de representante ante el organismo respectivo.

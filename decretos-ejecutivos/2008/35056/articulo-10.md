@@ -1,1 +1,0 @@
-Artículo 10.—Cooperación No Reembolsable ligada a créditos externos. La Cooperación No Reembolsable ligada a créditos y avales externos del gobierno de la República, será negociada y aprobada por el Ministerio de Hacienda, siguiendo el esquema existente en el país para la cooperación reembolsable.
