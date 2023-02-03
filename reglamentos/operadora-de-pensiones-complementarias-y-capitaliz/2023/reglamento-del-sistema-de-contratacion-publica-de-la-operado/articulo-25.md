@@ -1,0 +1,3 @@
+Artículo 25.- Apertura de las ofertas. Es responsabilidad de la Proveeduría realizar la apertura de las ofertas de todos los procedimientos de contratación, siguiendo las disposiciones legales y reglamentarias aplicables.
+Por otra parte, y en caso de ser necesario, la Proveeduría será la responsable de dejar sin efecto un concurso antes de recibir ofertas cuando existan razones justificadas debidamente acreditadas en resolución motivada que conste en el expediente de la contratación.
+Será la responsable de tramitar la suspensión del plazo de recepción de ofertas en caso de interposición de recurso de objeción al pliego de condiciones.

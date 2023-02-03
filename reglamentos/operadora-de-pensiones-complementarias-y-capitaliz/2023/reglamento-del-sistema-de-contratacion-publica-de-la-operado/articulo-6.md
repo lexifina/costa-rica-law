@@ -1,0 +1,2 @@
+Artículo 6. Sobre la Proveeduría. Como dependencia encargada de los procedimientos de contratación pública de la Operadora, es competente para tramitar los procedimientos de adquisición de bienes, obras y servicios que requiere la operadora.
+La Proveeduría es responsable de evaluar, actualizar, automatizar, estandarizar y difundir los procedimientos necesarios para el óptimo aprovisionamiento de bienes, obras y servicios que requieran las diversas dependencias internas de la Operadora.

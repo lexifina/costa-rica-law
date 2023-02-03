@@ -1,0 +1,2 @@
+Artículo 37. Finiquito de los contratos. El Administrador del Contrato será el encargado de formalizar el finiquito de los contratos bajo su responsabilidad, cuando así corresponda obligatoriamente por ley o haya sido definido facultativamente en el pliego de condiciones de la contratación por la Administración.
+La firma del finiquito deberá ajustarse a los plazos previstos en la Ley General de Contratación Pública, Nº 9986 según el tipo de contrato del que se trate.

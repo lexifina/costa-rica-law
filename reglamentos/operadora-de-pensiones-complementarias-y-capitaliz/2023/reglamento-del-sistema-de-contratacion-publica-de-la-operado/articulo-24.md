@@ -1,0 +1,1 @@
+Artículo 24.- Invitación. La Proveeduría será la responsable de realizar la invitación para cada procedimiento que se promueva, utilizando el Sistema Digital Unificado, y de conformidad con lo establecido por la Ley General de Contratación Pública y su Reglamento.
