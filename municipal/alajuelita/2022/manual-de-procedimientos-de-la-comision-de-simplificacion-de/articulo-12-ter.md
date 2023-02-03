@@ -1,0 +1,1 @@
+Artículo 12 ter- Esquemas de revisión. Para asegurar la consecución de los objetivos de esta ley, todas las propuestas regulatorias nuevas estarán sujetas a la utilización del análisis de impacto regulatorio ex ante y todas las propuestas regulatorias existentes, al análisis regulatorio ex post en las modalidades, según los umbrales y términos que se definan vía reglamento.
