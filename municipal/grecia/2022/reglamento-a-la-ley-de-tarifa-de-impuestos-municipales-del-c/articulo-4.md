@@ -1,0 +1,1 @@
+Artículo 4º-Ejercicio conjunto de personas físicas que se dedique a actividades profesionales. Las personas físicas que se dediquen a las actividades profesionales y que se encuentren asociadas con fines mercantiles en un mismo establecimiento comercial, deberán obtener la licencia y pagar el impuesto de patente comercial.

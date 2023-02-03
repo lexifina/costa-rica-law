@@ -1,0 +1,1 @@
+Artículo 14.-Actividades exceptuadas a la aplicación del presente reglamento. La licencia de venta de licores al menudeo, espectáculos públicos, minería entre otras, se regulará por la ley especial y el reglamento respectivo, salvo aquellas disposiciones de tipo administrativo que sean aplicables con carácter general.

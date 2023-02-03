@@ -1,0 +1,1 @@
+Artículo 13.-Establecimientos con varios sujetos pasivos. Cuando en un mismo establecimiento diversas personas físicas o jurídicas ejerzan varias actividades lucrativas, la licencia y el monto del impuesto se determinarán y pagarán individualmente, debiendo solicitarse una licencia por cada una de ellas.

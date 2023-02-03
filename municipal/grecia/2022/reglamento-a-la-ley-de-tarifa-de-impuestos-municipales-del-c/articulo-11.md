@@ -1,0 +1,4 @@
+Artículo 11.-Determinación del Impuesto. El impuesto de patentes se determina:
+1) Mediante declaración jurada del contribuyente, salvo cuando la Ley de Impuestos Municipales del cantón de Grecia determine un procedimiento diferente para fijar el monto del impuesto de patentes.
+2) Mediante imposición directa de la Municipalidad, según se establece en el Capítulo V de este reglamento.
+Se establece como factor determinante de la imposición, los ingresos brutos anuales que perciban los afectos al impuesto, durante el período fiscal anterior al año que se grava. En el caso de los establecimientos financieros y de correduría de bienes muebles e inmuebles, se consideran ingresos brutos los percibidos en razón de comisiones e intereses. Se aplicará, para determinar la suma que el contribuyente debe cancelar, el porcentaje que determine la Ley, de acuerdo con la actividad.

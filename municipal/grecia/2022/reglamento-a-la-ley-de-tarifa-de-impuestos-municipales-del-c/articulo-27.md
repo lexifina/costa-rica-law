@@ -1,0 +1,1 @@
+Artículo 27.-Ejecutividad de la certificación de la recalificación. La certificación de la Contaduría Municipal en la que se indique la diferencia adeudada por el patentado en virtud de la recalificación servirá de título ejecutivo para efectos de cobro de esta.

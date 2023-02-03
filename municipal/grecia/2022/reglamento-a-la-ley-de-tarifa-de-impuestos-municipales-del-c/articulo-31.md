@@ -1,0 +1,1 @@
+Artículo 31.-Subordinación de la licencia al permiso de funcionamiento. La licencia que otorgue la Unidad de Patentes quedará condicionada a las actividades y los requisitos que establezcan los permisos de funcionamiento, sin perjuicio de las renovaciones a que puedan ser sujetos los mismos.

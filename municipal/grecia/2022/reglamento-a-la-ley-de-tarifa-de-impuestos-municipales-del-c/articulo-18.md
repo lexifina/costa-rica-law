@@ -1,0 +1,1 @@
+Artículo 18.-Del término para resolver. La Unidad de Patentes deberá resolver las solicitudes de licencia para actividades lucrativas permanentes en un plazo no mayor de treinta días naturales, contados a partir de su presentación.

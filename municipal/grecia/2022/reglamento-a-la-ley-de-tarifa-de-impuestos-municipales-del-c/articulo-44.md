@@ -1,0 +1,1 @@
+Artículo 44.-Denuncias ante los órganos jurisdiccionales. La Unidad de Patentes, procederá a informar a la Administración Tributaria a efectos de gestionar ante la Alcaldía Municipal la posible denuncia ante los órganos jurisdiccionales competentes, en los casos contemplados en los artículos 28 y 38 de este Reglamento.
