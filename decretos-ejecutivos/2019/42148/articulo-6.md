@@ -1,6 +1,0 @@
-Artículo 6.-De los enfoques estratégicos.
-Se establecen como enfoques estratégicos para la implementación de las acciones y programas, los siguientes:
-a-. Gobernanza y articulación del ecosistema: Mediante el cual se establece un ordenamiento institucional que facilite, a partir de las competencias y especializaciones, la articulación de la institucionalidad en la definición de instrumentos de apoyo y en la atención de la población objetivo.
-b-. Instrumentos de Apoyo: Por medio del cual se definen programas generales que articulan recursos y procesos para el acompañamiento de la población objetivo en servicios de desarrollo empresarial y financiero.
-c-. Enfoque de Atención y Acompañamiento: Por medio del cual se establecen orientaciones metodológicas para la atención, acompañamiento y apoyo de las iniciativas empresariales promovidas por la población objetivo.
-Los aspectos regulados en los enfoques de la Estrategia se orientarán a lograr que el desarrollo de las iniciativas creativas y culturales apoyadas en el marco de ella, impacten de manera creciente en el valor agregado de las identidades culturales, en el crecimiento económico, la generación de empleo y en el impulso de oportunidades de desarrollo social y económico para la población objetivo.

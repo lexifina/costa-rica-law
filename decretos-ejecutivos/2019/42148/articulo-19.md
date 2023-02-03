@@ -1,2 +1,0 @@
-Capítulo IV: Disposiciones finales
-Artículo 19.- Disposiciones complementarias. Para efectos de lo dispuesto en materia de emprendimiento, micro, pequeñas y medianas empresas culturales que no esté regulado en este Decreto Ejecutivo, se entenderá como normativa complementaria las disposiciones establecidas por la Ley de Fortalecimiento de las Pequeñas y Medianas Empresas, Ley Nº 8262 del 2 de mayo de 2002, y sus reglamentos.
