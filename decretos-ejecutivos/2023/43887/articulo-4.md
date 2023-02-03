@@ -1,0 +1,2 @@
+Artículo 4º-Enfoques y principios que orientan la Política Pública para el Sector Agropecuario 2023-2032. La Política Pública para el Sector Agropecuario 2023-2032 se caracteriza por promover los enfoques de Desarrollo Sostenible, Derechos Humanos e Inclusivo.
+Del mismo modo, incorpora como principios orientadores la sostenibilidad multidimensional, la integralidad, la solidaridad, la inclusión, la responsabilidad social, la transparencia y la rendición de cuentas.

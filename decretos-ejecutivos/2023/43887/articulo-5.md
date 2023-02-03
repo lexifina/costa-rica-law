@@ -1,0 +1,1 @@
+Artículo 5º-Objetivo. La Política Pública para el Sector Agropecuario 2023-2032 tiene como objetivo general el potenciar la sostenibilidad económica, social y ambiental mediante la implementación de herramientas y mecanismos que contribuyan al desarrollo del Sector Agropecuario Costarricense.
