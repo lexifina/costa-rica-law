@@ -1,3 +1,4 @@
 Sección III
 De la Convocatoria a las Elecciones
-Artículo 34.-La Inscripción de puestos: Corresponde al Tribunal Electoral realizar la convocatoria a la apertura para las inscripciones de los puestos de las elecciones y notificar a la Junta Directiva que proceda al comunicado oficial, con un plazo de treinta y cinco días hábiles antes de la asamblea ordinaria.
+Artículo 34.-La Inscripción de puestos: Corresponde al Tribunal Electoral realizar la convocatoria a la apertura para las inscripciones de los puestos de las elecciones y notificar a la Junta Directiva que proceda al comunicado oficial, con un plazo de treinta y cinco días antes de la Asamblea Ordinaria. En caso de requerirse una convocatoria a Asamblea Extraordinaria para elección de un puesto vacante especificados en el Artículo 10 de este reglamento, en sesión de Junta Directiva al conocer sobre la vacante, este deberá notificar el día siguiente al Tribunal Electoral quien en ocho días deberá iniciar el proceso de inscripción de los puestos vacantes de Junta Directiva o Fiscalía.
+(Así reformado mediante sesión N° 1-2023 del 4 de febrero del 2023)

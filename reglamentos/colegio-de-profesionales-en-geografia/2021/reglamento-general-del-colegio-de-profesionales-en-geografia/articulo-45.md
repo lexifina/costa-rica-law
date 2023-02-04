@@ -1,1 +1,2 @@
-Artículo 45.-La conformación: El Padrón Electoral, estará conformado por los colegiados activos y habilitados para ejercer el voto, que se encuentren incorporados treinta días hábiles antes de la Asamblea General.
+Artículo 45.-La conformación: El padrón Electoral, estará conformado por los colegiados activos y habilitados para ejercer el voto, que se encuentren incorporados treinta días hábiles antes de la Asamblea General. Para elecciones en Asambleas Extraordinarias el Padrón Electoral será definitivo 5 días antes de celebrarse la Asamblea Extraordinaria.
+(Así reformado mediante sesión N° 1-2023 del 4 de febrero del 2023)
