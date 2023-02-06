@@ -1,0 +1,1 @@
+Artículo 115.- Derogatoria. Deróguese el Reglamento anterior publicado en La Gaceta Nº 105 del 02 de junio del 2008, Reglamento de Organización y Funcionamiento para la Auditoría Interna del Consejo Nacional de Concesiones.

@@ -1,0 +1,16 @@
+Artículo 52.- De los deberes. El Auditor Interno y demás funcionarios de la Auditoría interna tendrán los siguientes deberes:
+a) Cumplir las competencias asignadas por ley.
+b) Cumplir el ordenamiento jurídico y técnico aplicable.
+c) Colaborar en los estudios que la Contraloría General de la República y otras instituciones realicen en el Consejo Nacional de Concesiones, en ejercicio de competencias de control o fiscalización legalmente atribuidas.
+d) Administrar, de manera eficaz, eficiente y económica, los recursos que le son asignados como responsable, para el cumplimiento de su gestión.
+e) No revelar a terceros que no tengan relación directa con los asuntos tratados en sus informes, información sobre las auditorías o los estudios especiales de auditoría que se estén realizando, ni información sobre aquello que determine una posible responsabilidad civil, administrativa o eventualmente penal de los funcionarios.
+f) Guardar la confidencialidad del caso sobre la información a la que tengan acceso.
+g) Acatar las disposiciones emanadas de la Contraloría General de la República. En caso de oposición por parte de la Auditoría Interna referente a tales disposiciones se debe proceder conforme con lo establecido en el artículo 26 de la Ley Orgánica ele la Contraloría General de la República.
+h) Facilitar la información que solicite la Asamblea Legislativa en ejercicio de las atribuciones que dispone el inciso 23) del artículo 121 de la Constitución Política. La información de carácter confidencial, sólo se entregará a comisiones legislativas de investigación debidamente acreditadas y no a diputados en forma individual ni a otros órganos de la Asamblea Legislativa.
+i) Guardar y adve1iir lo relativo a la confidencialidad que establece el artículo 6 de la Ley General de Control Interno y el artículo 8 de la Ley Contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública y demás normativa aplicable.
+j) Ser prudente y fundamentar con efectividad los contenidos de las diversas comunicaciones orales y escritas que emita la Auditoría Interna tanto a lo interno como externo del CNC.
+k) Practicar auditorías o estudios especiales de auditoría en cualesquiera unidades del Consejo, en el momento que se considere oportuno, con base en su plan de trabajo anual o de acuerdo con las prioridades del caso cuando medie petición del Consejo Directivo del CNC o la Contraloría General de la República.
+l) Comunicar por escrito los resultados de cada auditoría o estudio especial de auditoría que se lleve a cabo, por medio de informes, para mejorar la eficiencia y la eficacia en el sistema de control interno, y en la gestión financiera, administrativa y operativa del CNC.
+m) Colaborar en los estudios que la Contraloría General de la República y otras instituciones realicen en el ejercicio de competencias de control o fiscalización legalmente atribuidas.
+n) Administrar, de manera eficaz, eficiente y económica los recursos del proceso del que sea responsable.
+o) Fiscalizar que las unidades de recursos humanos o similares, cumplan con el deber de informar lo que señala el artículo 28 de la Ley Contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública y su veracidad, en acatamiento de lo que señala el artículo 80 del Reglamento a la citada ley.

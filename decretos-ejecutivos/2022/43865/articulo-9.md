@@ -1,0 +1,1 @@
+Artículo 9- Facultades del Auditor Interno. La dirección superior, la administración y el funcionamiento de la Auditoría Interna es responsabilidad del Auditor Interno, sin perjuicio de lo establecido en la Ley General de Control Interno y en el presente Reglamento, así corno en las disposiciones emitidas por la Contraloría General de la República.

@@ -1,0 +1,3 @@
+SECCIÓN V
+Relaciones y coordinaciones
+Artículo 44.- Información y relación con órganos externos. El Auditor Interno tiene absoluta independencia y libertad para la comunicación y el intercambio de información con la Contraloría General de la República en el ejercicio de sus competencias, así como con otros entes externos e internos, sin perjuicio de la coordinación que al respecto deba darse; de igual forma regulara la relación de los funcionarios de la Auditoría Interna con las dependencias internas o externas del CNC, con la finalidad de que las mismas se establezcan en apego a la normativa jurídica y técnica aplicable.

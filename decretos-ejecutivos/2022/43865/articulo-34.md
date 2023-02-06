@@ -1,0 +1,1 @@
+Artículo 34.- Responsabilidades con respecto a la gestión de la Auditoría Interna. El Auditor Interno es el responsable del correcto cumplimiento de las funciones encomendadas a la Auditoría Interna. El Auditor Interno podrá delegar autoridad y exigir responsabilidad, de acuerdo a lo delegado.

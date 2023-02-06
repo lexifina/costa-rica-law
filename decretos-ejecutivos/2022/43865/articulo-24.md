@@ -1,0 +1,1 @@
+Artículo 24.- De la delegación de funciones. El Auditor Interno podrá delegar en el personal a su cargo las funciones, en aquellos casos que a su criterio la situación lo amerite, amparado a los criterios de idoneidad conforme lo establece la normativa vigente.

@@ -1,0 +1,5 @@
+Artículo 69.- Acta de presentación del borrador del informe. El Auditor Interno o el funcionario de Auditoría Interna que realizó el estudio, debe confeccionar un acta de la discusión del informe o conferencia final. El acta deberá contener:
+a) En la introducción, el funcionario de Auditoría hará constar la fecha, la hora, el lugar, indicar el nombre de las personas presentes y sus calidades el motivo por el cual se confecciona el acta, su calidad de funcionario de Auditoría, debe indicar a las partes el derecho que les asiste & hacer constar las manifestaciones que tengan a bien sobre esa diligencia, siempre que sean pertinentes a juicio del profesional.
+b) En el acta deberán constar los asuntos más relevantes ocurridos en la gestión. El acta será firmada por todos los asistentes a dicha conferencia.
+c) Una vez concluida la conferencia final se sellará el acta con el sello de Auditoría Interna.
+d) Se otorgará un plazo de cinco días hábiles para observaciones de la Administración Activa al borrador entregado. Este plazo podrá ampliarse a solicitud de la administración debidamente justificado.

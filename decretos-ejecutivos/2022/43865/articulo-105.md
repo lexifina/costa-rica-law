@@ -1,0 +1,2 @@
+Artículo 105.- Programa del seguimiento de las recomendaciones. La Auditoría Interna establecerá e implementará los mecanismos necesarios para verificar oportunamente el cumplimiento efectivo de las disposiciones o recomendaciones emitidas.
+La Auditoría Interna verificará el cumplimiento de las disposiciones o recomendaciones que otras organizaciones de auditoría hayan dirigido a la entidad u órgano de su competencia institucional. Las actividades de seguimiento se incluirán en el Plan de Trabajo Anual de la Auditoría Interna

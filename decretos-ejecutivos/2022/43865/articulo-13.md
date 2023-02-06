@@ -1,0 +1,1 @@
+Artículo 13.- Asistencia a comisiones. Podrá el Auditor Interno y los funcionarios de la Auditoría, bajo su criterio profesional, participar en comisiones en carácter de asesor, si así fuere convocado. Su asistencia permanente no debe ser la regla.
