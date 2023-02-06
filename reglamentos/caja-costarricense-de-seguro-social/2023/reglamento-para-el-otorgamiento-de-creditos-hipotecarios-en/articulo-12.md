@@ -1,0 +1,1 @@
+Artículo 12.-De la obligatoriedad de estar al día con la Seguridad Social. En ningún caso se aprobarán préstamos a favor de aquellas personas, que estén morosas en la atención de sus obligaciones con la Institución, sean éstas por concepto de cuotas obrero-patronal, cuotas de trabajador independiente, servicios médicos, otros préstamos hipotecarios o cualquier otra obligación.

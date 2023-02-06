@@ -1,0 +1,13 @@
+Artículo 3º-De la organización y administración. El Área de Crédito y Cobro de la Dirección Financiera Administrativa de la Gerencia de Pensiones, es la unidad responsable de la administración de la cartera de créditos hipotecarios del Seguro de Invalidez, Vejez y Muerte, y le corresponde entre sus funciones sustantivas:
+a) La recepción, tramite y análisis de las solicitudes de crédito presentadas por los interesados, conforme a las disposiciones reglamentarias vigentes.
+b) Con base en el informe técnico valorado por el perito valuador, analizará la suficiencia de la garantía para optar por el financiamiento y su capacidad de pago ante una nueva deuda con garantía hipotecaria.
+c) Cuando se trate de préstamos para construcción, las gestiones administrativas para el pago de los avances de las obras, con base en la autorización efectuada por el respectivo profesional.
+d) El cumplimiento de la Política y Estrategia Institucional de los Créditos Hipotecarios aprobada por la Junta Directiva.
+e) Exponer ante el comité de Crédito los casos que deben ser aprobados por el citado órgano en sus sesiones ordinarias y extraordinarias.
+f) Presentar a la Gerencia de Pensiones y al Comité de Crédito, en el mes de enero del año siguiente, un informe sobre los resultados obtenidos en materia de concesión y colocación de créditos hipotecarios durante el año anterior.
+g) Resolver prórrogas para la formalización de créditos, como parte del control interno a los notarios externos, cuando las circunstancias así lo justifiquen.
+h) Velar por la formalización de los créditos hipotecarios y generar procesos de control interno que garantice la transparencia en el proceso de canalización y entrega de los recursos financieros para los fines aquí señalados.
+i) Generar mecanismos de control que permitan agilidad en la supervisión de los profesionales externos involucrados en el proceso de colocación de crédito hipotecario.
+j) Elaborar en conjunto con la Dirección Actuarial y Económica, una estimación de los costos administrativos relativos a la concesión de los créditos hipotecarios, involucrando los procesos y subprocesos relacionados a la colocación de este tipo de servicio. Dicha información deberá ser presentada en el primer trimestre de cada año al Comité de Crédito.
+k) Solicitar al menos una vez al año la colaboración a la Dirección Actuarial y Económica o a la Gerencia de Pensiones, a fin de realizar en conjunto con el Área de Crédito y Cobro y la Subárea Gestión Crédito un estudio de tasas que determine la tasa de interés activa ofrecida para los créditos hipotecarios del IVM.
+l) Brindar la asesoría legal y técnica al Comité de Crédito ante consultas referentes a las operaciones crediticias presentadas.

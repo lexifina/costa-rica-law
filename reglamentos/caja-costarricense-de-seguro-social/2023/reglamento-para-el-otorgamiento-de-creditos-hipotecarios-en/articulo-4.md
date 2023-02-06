@@ -1,0 +1,12 @@
+Artículo 4º-De la conformación del Comité de Crédito. Se constituye un Comité de Crédito, como máximo órgano responsable de la aprobación de los créditos hipotecarios y cualquiera modificación posterior de sus condiciones iniciales, el cual estará integrado por los siguientes funcionarios:
+a) El Gerente de Pensiones quien fungirá como Coordinador o su representante.
+b) El Director Financiero Administrativo, de la Gerencia de Pensiones, o podría ser su representante.
+c) El Gerente Financiero o su representante.
+A su vez, el Gerente de Pensiones nombrará a un secretario técnico que tomará las actas del Comité y se encargará de la custodia de las mismas y el respectivo seguimiento a los acuerdos tomados.
+Es obligación de los miembros de este Comité participar activamente en las sesiones efectuadas y solo en caso excepción o fortuitos podrán asistir sus representantes.
+Los acuerdos de este Comité se tomarán por mayoría simple y deberán quedar plasmados en un libro de actas o registro electrónico, que deberá ser llevado y custodiado por el secretario técnico designado por la Gerencia de Pensiones. Asimismo, de conformidad con los artículos N° 56 y N° 57, de la Ley General de la Administración Pública, las actas serán firmadas por el Gerente de Pensiones y aquellos miembros que hubiesen hecho constar su voto disidente. Los miembros del órgano colegiado podrán hacer constar su voto contrario al acuerdo adoptado, justificando los motivos y quedando exento de las responsabilidades que podrían derivarse de los acuerdos.
+El Comité de Crédito sesionará al menos dos veces por mes, sin perjuicio de que se puedan realizar un número mayor de sesiones de trabajo durante el mes, para atender la demanda de créditos.
+Los miembros titulares podrán nombrar a sus representantes en dicho Comité, para lo cual se seguirá el siguiente procedimiento:
+a) El Gerente de Pensiones podrá nombrar, de forma temporal o permanente a su representante por medio de oficio dirigido a este Comité mediante el cual se justifique las razones por las cuales se da dicho nombramiento.
+b) El Gerente Financiero podrá nombrar, de forma temporal o permanente a su representante por medio de oficio dirigido a este Comité mediante el cual se justifique las razones por las cuales se da dicho nombramiento.
+c) El Director Financiero Administrativo podrá nombrar, en casos de excepción y de forma temporal a su representante en este Comité para lo cual remitirá oficio en donde se señale las razones por las cuales se da dicho nombramiento.
