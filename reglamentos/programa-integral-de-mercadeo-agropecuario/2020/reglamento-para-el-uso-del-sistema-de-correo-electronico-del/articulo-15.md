@@ -1,1 +1,0 @@
-Artículo 15: De la información personal: Todo funcionario que deje de laborar en PIMA o cambie de puesto deberá eliminar de su correo información de índole privado, esto con el fin de garantizar su propia privacidad y el resto de la información pueda ser utilizada por la institución.

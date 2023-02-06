@@ -1,1 +1,0 @@
-Artículo 7: Responsabilidad: Es responsabilidad de TI establecer los mecanismos de control interno necesarios, con base en la normativa correspondiente, entre estas las Normas Técnicas para la gestión y el control de las Tecnologías de Información, para garantizar la buena administración del SCE.

@@ -1,1 +1,0 @@
-Artículo 19: Respuesta automática: si un colaborador se encuentra fuera de la oficina por más de un día hábil, deberá configurar una respuesta automática a los mensajes que reciba durante su ausencia, indicando que no se encuentra laborando e incluyendo el mensaje, la fecha en que regresa y la información de la persona a la que puede acudir en su ausencia.

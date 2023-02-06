@@ -1,1 +1,0 @@
-Artículo 4: Ámbito de aplicación: El Reglamento se establece como la normativa que regula el SCE como mecanismo electrónico de mensajería interna y externa, cuya finalidad es brindar información relacionada con las labores propias del PIMA, de forma ágil, eficiente, oportuna entre el personal de las diferentes dependencias de PIMA y personas externas.
