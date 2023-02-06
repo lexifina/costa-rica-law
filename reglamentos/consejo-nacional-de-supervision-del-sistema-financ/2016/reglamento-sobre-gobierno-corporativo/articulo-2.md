@@ -16,6 +16,8 @@ xii. Sociedades Calificadoras de Riesgo.
 xiii. Proveedores de Precio.
 xiv. Emisores no financieros, excepto los vehículos de administración de recursos de terceros que sean emisores de valores.
 xv. Centrales de Valores.
+xvi. Entidades de Registros Centralizados de Letras de cambio y pagarés electrónicos.
+(Así adicionado el acápite anterior por el artículo 42 inciso b) apartado disposiciones adicionales del Reglamento sobre entidades de registros centralizados de letras de cambio y pagarés electrónicos, (acuerdo SUGEVAL 21-23), aprobado en sesión N° 1784 del 6 de febrero de 2023)
 2.3 Supervisados por SUGESE:
 xvi. Entidades Aseguradoras y Reaseguradoras.
 xvii. Sociedades Corredoras de Seguros.

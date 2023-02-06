@@ -16,3 +16,4 @@ Reglamento sobre Gobierno Corporativo
 | 1 | 2017-06-08 | la propia norma |
 | 2 | 2020-12-21 | Reglamento 1634 (2020-12-21) |
 | 3 | 2022-05-02 | Reglamento 1728 (2022-05-02) |
+| 4 | 2023-02-06 | Reglamento 1784 (2023-02-06) |
