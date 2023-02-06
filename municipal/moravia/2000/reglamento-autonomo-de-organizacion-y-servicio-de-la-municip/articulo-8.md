@@ -1,1 +1,2 @@
-Artículo 8º—Solamente el Alcalde Municipal podrá celebrar contratos de trabajo para la prestación de servicios en la Institución.
+Artículo 8º-Solamente el Alcalde Municipal podrá celebrar contratos de trabajo para la prestación de servicios en la Institución. Se prohíbe la contratación de personal municipal que sea pariente hasta el tercer grado de consanguinidad o afinidad de los siguientes jerarcas municipales electos popularmente: Alcalde, Vicealcaldes y Regidores Propietarios y/o suplentes. El Departamento de Recursos Humanos verificará esta condición por medio de una declaración jurada emitida por las personas que participen en los concursos externos.
+(Así reformado mediante sesión N° 145 del 6 de febrero del 2023)

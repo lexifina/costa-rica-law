@@ -15,3 +15,4 @@ Reglamento Autónomo de Organización y Servicio de la Municipalidad de Moravia
 | --- | --- | --- |
 | 1 | 2000-11-24 | la propia norma |
 | 2 | 2022-10-20 | Reglamento municipal 0 (2022-10-20) |
+| 3 | 2023-02-06 | Reglamento municipal 145 (2023-02-06) |
