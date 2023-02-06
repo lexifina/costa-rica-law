@@ -14,3 +14,4 @@ Reglamento para el uso, control y mantenimiento de los vehículos institucionale
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-02-02 | la propia norma |
+| 2 | 2023-02-06 | Decreto Ejecutivo 44009 (2023-02-06) |
