@@ -16,6 +16,8 @@ iii. Sociedades de Compensación y Liquidación.
 iv. Sociedades Calificadoras de Riesgo.
 v. Proveedores de Precio.
 vi. Centrales de Valores.
+vii. Entidades de Registros Centralizados de Letras de cambio y pagarés electrónicos.
+(Así adicionado el acápite anterior por el artículo 42 apartado disposiciones adicionales del Reglamento sobre entidades de registros centralizados de letras de cambio y pagarés electrónicos, (acuerdo SUGEVAL 21-23), aprobado en sesión N° 1784 del 6 de febrero de 2023)
 2.3 Supervisados por SUGESE:
 i. Entidades Aseguradoras y Reaseguradoras.
 ii. Sociedades Corredoras de Seguros.
