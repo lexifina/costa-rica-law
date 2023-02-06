@@ -1,3 +1,0 @@
-Artículo 24.—En tanto no se haya cancelado el préstamo, la Caja se reserva la facultad de inspeccionar las construcciones financiadas y podrá exigir que en un plazo razonable, que se hará constar en la respectiva prevención, se reparen los daños causados en las construcciones por acción del tiempo o por otros motivos. La falta de cumplimiento por parte del deudor dará mérito a la Institución para tener por vencido el plazo y exigir el cumplimiento total de la obligación.
-Las disposiciones contempladas y aprobadas en el Reglamento propuesto, derogan el Reglamento aprobado en el Artículo 1 de la sesión 7197 y artículo 2º de la sesión 7200 del 13 y 17 de febrero de 1998 respectivamente, y sus modificaciones posteriores.”
-San José, 2 de enero del 2007.

@@ -1,4 +1,0 @@
-Artículo 23- De la supervisión e inspección de obras financiadas con préstamos para construcción.
-La Subárea Gestión de Créditos, por medio de los profesionales internos y/o externos contratados por la Institución, ejercerá el control necesario para determinar el avance de las obras en construcción del Sistema de Préstamos Hipotecarios del Régimen de Invalidez, Vejez y Muerte, con el propósito de autorizar los desembolsos de los préstamos otorgados. En el caso de que se observen cambios importantes en el tipo de construcción, variaciones en dimensiones y calidad de los materiales, los supervisores suspenderán la autorización de nuevos desembolsos, hasta tanto no se justifique la situación.
-Los profesionales internos ejercerán su labor previa autorización del Comité de Crédito.
-(Así reformado mediante sesión N° 8551 del 15 de diciembre del 2011)

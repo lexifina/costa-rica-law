@@ -1,1 +1,0 @@
-Artículo 14.—De las garantías. Para garantizar los préstamos hipotecarios, únicamente se aceptará hipoteca en primer grado. Las hipotecas de grado superior, se podrán aceptar solamente cuando la o las hipotecas anteriores estén constituidas a favor de la Caja.

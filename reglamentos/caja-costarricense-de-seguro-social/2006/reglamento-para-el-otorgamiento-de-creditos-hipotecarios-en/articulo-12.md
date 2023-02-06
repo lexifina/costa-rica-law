@@ -1,1 +1,0 @@
-Artículo 12.—En ningún caso se aprobarán préstamos a favor de aquellas personas o empresas que estén morosas en la atención de sus obligaciones con la Caja, sean éstas por concepto de cuotas obrero patronales, cuotas del trabajador independiente, servicios médicos, otros préstamos hipotecarios, o cualquier otra obligación.

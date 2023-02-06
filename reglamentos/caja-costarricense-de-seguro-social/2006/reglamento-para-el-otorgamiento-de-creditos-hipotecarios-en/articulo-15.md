@@ -1,2 +1,0 @@
-Artículo 15.—La(s) propiedades ofrecidas en garantía, serán valoradas por peritos designados por la Caja Costarricense de Seguro Social y los honorarios correrán por cuenta del prestatario, según tarifas fijadas por el Colegio Federado de Ingenieros y Arquitectos.
-Los servicios ofrecidos por estos profesionales, deberán ajustarse a los lineamientos establecidos en el “Instructivo que regula las relaciones entre la CCSS y los peritos contratados para realizar avalúos de bienes inmuebles ofrecidos como garantía hipotecaria”.
