@@ -1,0 +1,1 @@
+Artículo 2°.-Debe entenderse por "horario flexible o escalonado", la alternativa de elegir el horario de entrada y salida del centro de trabajo dentro de los límites establecidos en esta directriz, sin que implique una disminución ni ampliación de la jornada de trabajo ordinaria de la persona funcionaria, ni interrupción alguna del servicio público que se presta.

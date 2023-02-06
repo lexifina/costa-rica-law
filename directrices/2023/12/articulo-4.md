@@ -1,0 +1,1 @@
+Artículo 4°.-Las personas funcionarias que estén dentro de los supuestos del artículo 1º de esta directriz y que laboren en puestos teletrabajables, podrán gestionar la implementación de la modalidad de teletrabajo durante la semana de vigencia de la presente directriz.
