@@ -1,0 +1,2 @@
+Artículo 11.-Resolución Final. El jerarca de MIDEPLAN deberá emitir dentro del plazo de diez (10) días hábiles, la resolución final de la reorganización administrativa. Este plazo rige a partir del día hábil siguiente de la notificación del dictamen técnico, emitido por la Unidad de Reforma Institucional.
+En dicha resolución, el Ministro (a) podrá apartarse del dictamen técnico, justificando los motivos técnicos, fácticos o jurídicos que respaldan su determinación.

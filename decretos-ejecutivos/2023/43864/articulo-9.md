@@ -1,0 +1,5 @@
+Artículo 9º-Análisis y dictamen de resolución. Una vez que la propuesta cumpla con todos los requisitos de admisibilidad, la Unidad de Reforma Institucional deberá analizar la documentación de la propuesta de reorganización administrativa y emitir el dictamen técnico de resolución, en los siguientes plazos:
+a) Cuarenta (40) días hábiles, en el caso de una reorganización administrativa integral.
+b) Veinticinco (25) días hábiles, en el caso de una reorganización administrativa parcial.
+c) Diez (10) días hábiles, en el caso de una reorganización administrativa por ley, dado que conforme el artículo 5, inciso b) solamente se realizará el registro respectivo.
+Las propuestas de reorganización administrativa serán analizadas en estricto orden cronológico, considerado a partir de la fecha en la que fue presentada y al cumplimiento de los requisitos establecidos en este reglamento; salvo mejor criterio del despacho ministerial que podrá disponer una modificación a este orden, con fundamento en una necesidad de orden público o a sus prioridades debidamente justificadas y demostradas, lo cual deberá quedar por escrito en el expediente respectivo.

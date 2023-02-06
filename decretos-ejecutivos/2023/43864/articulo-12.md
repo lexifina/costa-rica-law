@@ -1,0 +1,1 @@
+Artículo 12.-Oficialización de la estructura organizacional. La entidad proponente deberá tramitar la publicación de un Decreto Ejecutivo o Reglamento de Organización, en el cual se oficialice la estructura organizacional aprobada por MIDEPLAN.

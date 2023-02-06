@@ -1,0 +1,1 @@
+Artículo 16.-Régimen sancionatorio. Los funcionarios obligados a implementar lo dispuesto en la resolución de reorganización administrativa, podrían incurrir en responsabilidad administrativa, civil o penal, en caso de incumplimiento, según sea el marco superior de normativa que corresponda.

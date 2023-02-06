@@ -1,0 +1,1 @@
+Transitorio único.-Las propuestas de reorganización administrativa que se hubiesen presentado de previo a la entrada en vigencia de este reglamento, continuarán tramitándose conforme al procedimiento que se encontraba vigente.
