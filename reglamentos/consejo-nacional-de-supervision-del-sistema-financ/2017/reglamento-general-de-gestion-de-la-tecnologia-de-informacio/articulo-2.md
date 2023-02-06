@@ -26,4 +26,6 @@ d) Supervisados por SUPEN:
 1. Operadoras de Pensiones Complementarias.
 2. Fondos complementarios creados por leyes especiales o convenciones colectivas.
 3. Regímenes públicos sustitutos del Régimen de Invalidez, Vejez y Muerte de la Caja Costarricense de Seguro Social.
+e. Controladoras y empresas integrantes de grupos y conglomerados financieros supervisados, en los casos en que así lo requiere el supervisor responsable.
+(Así adicionado el inciso anterior por el inciso a) del artículo 116 del Reglamento sobre supervisión consolidada (Acuerdo CONASSIF 16-22), aprobado mediante session N° 1759-2022 del 26 de setiembre del 2022)
 Se exceptúan los regímenes administrados por la Dirección Nacional de Pensiones del Ministerio de Trabajo, las entidades reguladas y fondos en proceso de liquidación, los fondos creados por leyes especiales cuya gestión de TI es contratada a una operadora de pensiones, así como los fondos de pensiones cerrados a nuevas afiliaciones.
