@@ -1,1 +1,0 @@
-Artículo 11.—Reintegro: cuando por cualquier motivo no se efectúe la compra proyectada, el funcionario responsable del adelanto deberá hacer el reintegro del dinero entregado en forma inmediata, aportando una justificación escrita que deberá ser avalada con la firma de la jefatura inmediata o de otro superior jerárquico.

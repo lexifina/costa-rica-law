@@ -1,1 +1,0 @@
-Artículo 21.—Periodicidad: Se confeccionarán reintegros de caja chica, cuando se haya gastado más del 30% de cualquiera de ambos fondos fijos correspondiente, además si en el plazo máximo de dos semanas no se ha alcanzado el 30%, el encargado deberá tramitar el reintegro de lo gastado.
