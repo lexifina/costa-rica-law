@@ -14,3 +14,4 @@ Reglamento de gestión de la información técnica de estudios especiales y cons
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-11-12 | la propia norma |
+| 2 | 2023-02-06 | Reglamento 534 (2023-02-06) |
