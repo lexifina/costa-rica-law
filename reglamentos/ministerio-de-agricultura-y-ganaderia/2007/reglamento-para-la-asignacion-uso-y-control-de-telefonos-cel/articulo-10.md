@@ -1,4 +1,0 @@
-Artículo 10.—Del pago del excedente de llamadas telefónicas. Si el monto del recibo telefónico excede los límites indicados en el artículo precedente, el beneficiario de la línea, deberá reembolsar al PIMA, el monto equivalente a la diferencia, de conformidad con los límites de uso dispuestos en este Reglamento. El control sobre el excedente y la comunicación al beneficiario será responsabilidad de la Dirección Administrativa Financiera.
-Los reembolsos indicados se podrán realizar de las siguientes maneras:
-Vía depósito directo en la Caja Central de la Oficina de Tesorería del PIMA.
-Vía deducción automática de planillas, en cuyo caso el beneficiario obligado debe brindar su consentimiento expreso ante el Área de Recursos Humanos. De no mediar depósito directo ni consentimiento expreso, el reembolso deberá realizarse. Mediante el procedimiento de cobro administrativo por medio de la Asesoría Legal.
