@@ -16,3 +16,4 @@ Reglamento Autónomo de Organización y Servicio del Consejo de Seguridad Vial
 | 1 | 2006-05-23 | la propia norma |
 | 2 | 2007-08-07 | Decreto Ejecutivo 34094 (2007-08-07) |
 | 3 | 2018-03-14 | Decreto Ejecutivo 41062 (2018-03-14) |
+| 4 | 2023-02-06 | Decreto Ejecutivo 43954 (2023-02-06) |
