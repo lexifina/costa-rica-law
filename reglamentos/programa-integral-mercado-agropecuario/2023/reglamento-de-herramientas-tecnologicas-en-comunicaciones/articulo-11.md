@@ -1,0 +1,1 @@
+Artículo 11.-Capacidad de Almacenamiento. La capacidad máxima por cada buzón de correo electrónico del PIMA, se determinará dependiendo de las capacidades de los equipos y estas pueden variar dependiendo de cada Dependencia del PIMA.

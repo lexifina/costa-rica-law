@@ -1,0 +1,10 @@
+Artículo 7°-Prohibiciones. Queda prohibido a todos los usuarios utilizar los medios de comunicación telemática para:
+a) Enviar mensajes con información que no sean con fines laborales y de interés institucional del PIMA o no correspondan a la razón de ser por lo que fue creada la cuenta tales como: mensajes masivos relacionados con encuestas no oficiales, para asuntos personales, con fines de lucro, concursos, cadenas, mensajes no deseados, música, videos (no relacionados con actividades laborales), violación explícita de derechos de autor o violación a la privacidad, correos molestos (spam) u otros correos duplicativos o no solicitados (comerciales, religiosos, políticos, sexuales o de otro tipo) u otros.
+b) Enviar mensajes o intercambiar mensajes que constituyan un riesgo para la imagen institucional o para el sistema tecnológico del PIMA.
+c) Difamar, insultar, acosar, acechar, amenazar o lesionar cualquier otra forma los derechos de terceros (derecho a la intimidad o a la propia imagen).
+d) Publicar, distribuir o divulgar a otras personas cualquier información o material, inapropiado, sacrílego, difamatorio, ilícito, obsceno, indecente, ilegal, ofensivo o en contra de las buenas costumbres, sean morales, religiosas o culturales por medio del SCE.
+e) Transmitir o cargar archivos de forma intencional que contengan malware, virus, caballo de Troya (troyanos), gusanos u otros programas conocidos como "spyware" perjudiciales o nocivos para el Sistema Tecnológico Institucional.
+f) Responder a todas las direcciones de correo electrónico, cuando se envíen correos masivos.
+g) Utilizar el equipo de cómputo y los servicios de mensajería y comunicación del PIMA para acceder a material pornográfico.
+h) Queda estrictamente prohibido prestar o facilitar este servicio a otra persona.
+i) Para los colaboradores del PIMA es prohibido facilitar a otros funcionarios o terceros la contraseña del correo electrónico. Por lo cual dichas contraseña es personal e intransferible, por lo tanto, el uso y manejo es responsabilidad absoluta del funcionario.

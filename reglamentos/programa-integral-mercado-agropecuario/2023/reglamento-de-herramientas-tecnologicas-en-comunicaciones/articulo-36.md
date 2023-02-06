@@ -1,0 +1,1 @@
+Artículo 36.-Configuración de la telefonía digital. Las configuraciones y limitantes de los teléfonos digitales son de acuerdo al perfil del usuario en la central telefónica, ya que es una copia fiel del teléfono IP ubicado en cada una de las oficinas de los funcionarios.

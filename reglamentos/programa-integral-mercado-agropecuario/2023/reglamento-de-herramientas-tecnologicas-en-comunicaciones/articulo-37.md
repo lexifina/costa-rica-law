@@ -1,0 +1,1 @@
+Artículo 37.-De las asignaciones de las hand held. Para la asignación de los hand held se elaborará un protocolo por parte del CENADA para su uso. En cuanto a las responsabilidades y prohibiciones del funcionario, le serán aplicables las establecidas las del capítulo 4 del presente reglamento.

@@ -1,0 +1,1 @@
+Artículo 34.-El celular asignado es un instrumento de trabajo que les confiere la Institución a los Beneficiarios, para facilitar el mejor desempeño en su cargo, por lo que son responsables directos del estado de conservación, utilidad y del uso racional y proporcionado de la línea del equipo telefónico y los accesorios responderán en los términos de este Reglamento.

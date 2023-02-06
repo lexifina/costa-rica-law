@@ -1,0 +1,1 @@
+Artículo 20.-WhatsApp Institucional. Podrá utilizarse para consultas de boletines, horarios de plazas, permisos de ingresos en horas no hábiles y realizar trámites internos enlazados con sistemas institucionales, ya que la herramienta es gestionada por un Chatbot.

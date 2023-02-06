@@ -1,0 +1,1 @@
+Artículo 39.-De la asignación de Hardware. Las responsabilidades y control para asignación de hardware se regirán por lo establecido en el Reglamento de Tecnología de Información publicado en La Gaceta N° 224 del 20-12-2021.

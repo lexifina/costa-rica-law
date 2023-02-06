@@ -1,0 +1,4 @@
+Artículo 30.-De los límites de uso de los servicios telefónicos. De los servicios telefónicos otorgados de conformidad con el presente Reglamento, la Institución reconocerá a los beneficiarios los siguientes montos:
+a. Del teléfono asignado a la Gerencia General: No tendrá límite alguno para realizar llamadas nacionales, e internacionales.
+b. De los teléfonos asignados al Auditor Interno, Asesor Legal y Direcciones: Se establece como límite de uso hasta un monto equivalente a cinco tarifas básicas fijada por la SUTEL más el costo por el servicio de internet y los servicios adicionales según plan respectivo.
+c. Del teléfono asignado a otros beneficiarios: Se establece como límite el monto equivalente a tres tarifas básicas fijada por la SUTEL, más el costo por el servicio de internet y los servicios adicionales según plan respectivo.

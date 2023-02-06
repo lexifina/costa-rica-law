@@ -1,0 +1,1 @@
+Transitorio Único. Tecnologías de la Información y Archivo Institucional tienen un plazo perentorio de seis meses a partir de la aprobación de este reglamento, para contar con los lineamientos, mecanismos y procedimientos para implementar lo establecido el sistema de correo electrónico institucional.

@@ -1,0 +1,4 @@
+Artículo 10.-Solicitud de cuentas de correo. La solicitud de las cuentas institucionales, especiales, organizativas y de sistema, deben regirse mediante el siguiente procedimiento:
+a) Serán solicitadas por el interesado utilizando el medio oficial de comunicación a la Gerencia General, quién remite el caso, según corresponda, a TI.
+b) TI, mediante oficio, asignará un colaborador responsable de cuenta, las cuentas institucionales, especiales, organizativas, pueden ser usadas por uno o varios usuarios, designado(s) por la persona responsable de la cuenta, previa comunicación, mediante oficio o herramienta informática para tal fin, dirigido a TI.
+c) El contenido de los mensajes enviados es estrictamente responsabilidad de la persona designada como responsable de la cuenta por TI. Los usuarios de este tipo de cuentas, deben cumplir con lo establecido en este Reglamento, de conformidad con el tipo de cuenta que administren.

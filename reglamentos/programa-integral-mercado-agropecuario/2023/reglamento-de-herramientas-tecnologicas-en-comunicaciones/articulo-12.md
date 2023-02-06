@@ -1,0 +1,2 @@
+Artículo 12.-Respuesta automática y fecha de recibido. Si un colaborador se encuentra fuera de la oficina por más de un día hábil, deberá configurar una respuesta automática a los mensajes que reciba durante su ausencia, indicando que no se encuentra laborando e incluyendo el mensaje, la fecha en que regresa y la información de la persona a la que puede acudir en su ausencia.
+La fecha de recibido de la información será aquella en la cual se registre su ingreso en la bandeja de entrada del notificado.

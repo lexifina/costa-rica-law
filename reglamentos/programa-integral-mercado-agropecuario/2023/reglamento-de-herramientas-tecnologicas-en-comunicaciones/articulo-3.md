@@ -1,0 +1,1 @@
+Artículo 3°-Del uso exclusivo. Queda prohibido el uso de internet, correo electrónico, chat y redes sociales para actividades lucrativas, comerciales, religiosas, políticas, ofensivas, discriminatorias, ilegales y no éticas, de carácter personal o privado.

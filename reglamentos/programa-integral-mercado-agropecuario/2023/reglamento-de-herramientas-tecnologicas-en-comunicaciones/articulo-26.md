@@ -1,0 +1,1 @@
+Artículo 26.-Del recibo de los aparatos celulares. De no mediar oposición, cuando le sea comunicado que el aparato se encuentra ya a su disposición, deberá el Beneficiario acudir dentro de un plazo idéntico al anterior indicado al Proceso de Servicios Generales donde se formalizará la entrega y recibo del aparato.
