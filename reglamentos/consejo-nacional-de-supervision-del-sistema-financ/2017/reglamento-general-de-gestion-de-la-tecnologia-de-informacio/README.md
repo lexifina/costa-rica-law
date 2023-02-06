@@ -15,3 +15,4 @@ Reglamento General de Gestión de la Tecnología de Información
 | --- | --- | --- |
 | 1 | 2017-05-02 | la propia norma |
 | 2 | 2020-08-31 | Reglamento 1602 (2020-08-31) |
+| 3 | 2023-02-06 | Reglamento 1784 (2023-02-06) |

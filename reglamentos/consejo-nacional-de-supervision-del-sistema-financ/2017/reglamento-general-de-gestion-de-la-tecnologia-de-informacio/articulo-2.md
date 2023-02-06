@@ -17,6 +17,8 @@ b) Supervisados por SUGEVAL:
 6. Centrales de Valores;
 7. Sistemas de Anotación Electrónica en Cuenta, y
 8. Sociedades titularizadoras y fiduciarias.
+9. Entidades de Registros Centralizados de Letras de cambio y pagarés electrónicos.
+(Así adicionado el acápite anterior por el artículo 42 inciso c) apartado disposiciones adicionales del Reglamento sobre entidades de registros centralizados de letras de cambio y pagarés electrónicos, (acuerdo SUGEVAL 21-23), aprobado en sesión N° 1784 del 6 de febrero de 2023)
 c) Supervisados por SUGESE:
 1. Entidades Aseguradoras y sociedades Reaseguradoras;
 2. Sucursales de entidades aseguradoras extranjeras.
@@ -25,4 +27,3 @@ d) Supervisados por SUPEN:
 2. Fondos complementarios creados por leyes especiales o convenciones colectivas.
 3. Regímenes públicos sustitutos del Régimen de Invalidez, Vejez y Muerte de la Caja Costarricense de Seguro Social.
 Se exceptúan los regímenes administrados por la Dirección Nacional de Pensiones del Ministerio de Trabajo, las entidades reguladas y fondos en proceso de liquidación, los fondos creados por leyes especiales cuya gestión de TI es contratada a una operadora de pensiones, así como los fondos de pensiones cerrados a nuevas afiliaciones.
-(Nota de Sinalevi: Mediante el artículo 116 del Reglamento sobre Supervisión Consolidada (Acuerdo CONASSIF 16-22), aprobado en sesión N° 1759-2022 del 26 de setiembre del 2022 se adicionará un inciso e) a este artículo. De conformidad con lo establecido en la indicada norma la mima empieza a regir a partir del 1° de enero del 2023, por lo que a partir de esa fecha el texto de dicho inciso será el siguiente: “e. Controladoras y empresas integrantes de grupos y conglomerados financieros supervisados, en los casos en que así lo requiere el supervisor responsable”)
