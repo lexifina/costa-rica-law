@@ -1,1 +1,0 @@
-Artículo 28.—En condiciones difíciles de operación quienes conducen vehículos del CONSEJO, deberán actuar prudentemente y diligentemente, evitando la temeridad, a fin de no exponerse a pérdidas humanas y materiales.

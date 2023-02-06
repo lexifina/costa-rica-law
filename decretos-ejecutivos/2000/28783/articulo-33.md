@@ -1,1 +1,0 @@
-Artículo 33.—El operador o funcionario autorizado deberá informar a la brevedad posible al Departamento de Transportes sobre los pormenores del accidente y comportarse cortésmente con las autoridades que emitan las determinaciones.
