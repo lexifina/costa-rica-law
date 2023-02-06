@@ -1,1 +1,0 @@
-Artículo Nº 23. Aquellos investigadores o personal del Instituto que requieran utilizar parte de su tiempo como director o colaborador de tesis de grado y posgrado, deberán registrar todas estas actividades en la Unidad de Gestión de Información Técnica del INTA, incluyendo dentro de algún proyecto, la actividad que ha dado origen a la tesis.
