@@ -1,1 +1,0 @@
-Artículo 10.—La proveeduría agrupará los pedidos de las diversas dependencias que versen sobre la misma clase de objeto de acuerdo a semejanzas en las características técnicas y de uso, siempre que la naturaleza y circunstancia lo permita.
