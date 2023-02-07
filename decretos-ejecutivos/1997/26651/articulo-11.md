@@ -1,1 +1,0 @@
-Artículo 11,—Previo a la incorporación de un documento en el Diario Oficial, deberá ser cancelado por el interesado, según las tarifas fijadas por la Junta, salvo las instituciones del Estado, que podrían hacerlo siguiendo los procedimientos establecidos por la Imprenta Nacional.

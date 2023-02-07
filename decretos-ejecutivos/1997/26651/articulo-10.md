@@ -1,1 +1,0 @@
-Artículo 10.—Las publicaciones de actos públicos serán formalmente ordenadas por quien suscriba los respectivos actos, o por el funcionario delegado al efecto. Quien ordene la publicación dará autenticidad de los documentos, con su firma, cuando no se presenten los originales.

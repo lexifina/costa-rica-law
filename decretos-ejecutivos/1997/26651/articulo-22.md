@@ -1,2 +1,0 @@
-Artículo 22.—Conservación y Permanencia del Diario Oficial. La edición impresa se obtendrá de la edición digital, para garantizar la conservación y permanencia del diario, asegurar su continuidad como patrimonio documental y permitir su soporte en papel cuando razones de carácter técnico impidan el acceso a la edición digital.
-(Así adicionado por el artículo 1° del decreto eejcutivo N° 37159 del 14 de mayo de 2012)

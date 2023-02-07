@@ -1,3 +1,0 @@
-Artículo 5°—"La Gaceta" podrá ser adicionada con Alcances. Todo Alcance deberá tener una numeración corrida que se iniciará cada año.
-Tendrá como fecha aquella en que efectivamente circule, y se distribuirá con "La Gaceta" adicionada.
-Cuando se haya adicionado un Alcance a "La Gaceta", dentro de los siguientes dos días hábiles, en el siguiente deberá indicarse la existencia del o los Alcances publicados. Para ello: se insertará un recuadro de notificación en la primera página del diario. En este recuadro se debe indicar el numero de Alcance, la fecha de su circulación y "La Gaceta" adicionada.

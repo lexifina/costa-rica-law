@@ -1,1 +1,0 @@
-Artículo 8°—En la provincia de San José habrá por lo menos dos puestos oficiales de venta de "La Gaceta". Además, la venta del Diario Oficial podrá realizarse mediante venta al pregón o por suscripción.

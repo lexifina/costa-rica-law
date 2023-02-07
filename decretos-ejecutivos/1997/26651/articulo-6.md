@@ -1,2 +1,0 @@
-Artículo 6°—Cuando el texto por publicar, por razones de extensión deba imprimirse en un formato diferente del utilizado para "La Gaceta", éste se considerará un Alcance, con aplicación de lo, dispuesto en el artículo anterior, salvo la obligación de distribuirlo con 'La Gaceta"
-adicionada. En este caso el suscriptor o el comprador al pregón deberá retirar este tipo de Alcance en la sede de la Imprenta Nacional o en los puestos fijos de venta de "La Gaceta" que la Imprenta Nacional establezca.

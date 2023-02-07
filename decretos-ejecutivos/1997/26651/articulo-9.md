@@ -1,1 +1,0 @@
-Artículo 9°—Los precios de venta de "La Gaceta", al pregón y por suscripción, serán determinados por la Junta Administrativa de la Imprenta Nacional. Si "La Gaceta" fuere adicionada con Alcances según lo establecido en el artículo 6 anterior, el precio de venta de "La Gaceta" al pregón puede ser fijado por la Dirección siguiendo las directrices que al efecto establezca la Junta.

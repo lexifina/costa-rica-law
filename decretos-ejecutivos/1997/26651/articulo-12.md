@@ -1,1 +1,0 @@
-Articulo 12.—Todos los documentos a publicar en el Diario Oficial seguirán el orden de publicación establecido en el artículo 2; sin embargo, cuando por alguna circunstancia se presenten documentos urgentes para su publicación, el Director General o en su ausencia el Subdirector, podrá asignarles la prioridad que a su criterio corresponda.

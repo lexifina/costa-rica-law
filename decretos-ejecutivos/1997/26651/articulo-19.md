@@ -1,2 +1,0 @@
-Artículo 19.—Conservación y Almacenamiento. Todo lo concerniente a la conservación y almacenamiento, se realizará conforme a lo dispuesto para ese efecto en el Capítulo V de la Ley del Sistema Nacional de Archivos Nº 7202 del 24 de octubre de 1990 y sus reformas y en las Normas Técnicas para la gestión y el control de las tecnologías de Información dictadas por la Contraloría General de la República.
-(Así adicionado por el artículo 1° del decreto ejecutivo N° 37159 del 14 de mayo de 2012)
