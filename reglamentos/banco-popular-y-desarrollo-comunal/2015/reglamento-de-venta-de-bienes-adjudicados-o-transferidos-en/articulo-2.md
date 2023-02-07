@@ -1,1 +1,1 @@
-Artículo 2º—Objeto. Este Reglamento tiene por objeto regular la administración y venta de toda clase de bienes transferidos al Banco en pago de obligaciones a su favor, por cualquier medio de adjudicación o adquisición. Su ejecución le corresponde al Área de Bienes Adjudicados.
+Artículo 2º—Objeto Este Reglamento tiene por objeto regular la administración y venta de toda clase de bienes transferidos al Banco en pago de obligaciones a su favor, por cualquier medio de adjudicación o adquisición. Su ejecución le corresponde al Área de Bienes Adjudicados.

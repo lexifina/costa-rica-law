@@ -1,0 +1,4 @@
+Artículo 27.—Gastos de traspaso
+Todo gasto por concepto de honorarios profesionales, derechos, timbres e impuestos que se deriven del traspaso de la propiedad del bien corre por cuenta del comprador. En el caso de ventas con financiamiento con recursos del Banco, el traspaso del bien se confeccionará según los procedimientos establecidos en el Banco.
+En el caso de venta cuyo pago se efectúe de contado, la parte compradora puede designar un notario(a) de su elección, previa solicitud expresa al Área de Bienes Adjudicados; debiendo cancelar todo gasto por honorarios profesionales, derechos, timbres e impuestos que se deriven del traspaso de la propiedad.
+Si el comprador desea utilizar un Notario Institucional, no se le cobrarán gastos por concepto de honorarios profesionales, pero si deberá cancelar el monto correspondiente a los derechos, timbres e impuestos que se deriven del traspaso de la propiedad.

@@ -1,1 +1,2 @@
-Artículo 26.—Vigencia. El presente reglamento rige a partir de su publicación en el Diario Oficial La Gaceta, y deroga el ‘Reglamento de Venta de Bienes Adjudicados o Transferidos en Pago de Obligaciones’, publicado en el alcance digital N° 187 de La Gaceta N° 147 del 3 de agosto del 2017, página 41.
+Artículo 26.—Liquidación de precio de venta
+Una vez recibido el pago total por la venta, el Área de Bienes Adjudicados debe hacer la respectiva liquidación y registro contable. También, en el caso que proceda, realiza los trámites indicados en la Ley n.º 4631 y el Reglamento sobre la Distribución de Utilidades por la Venta de Bienes Adjudicados (artículo 1 de la Ley n.º 4631), publicado en La Gaceta n.º 252 del 29 de diciembre del 2005.

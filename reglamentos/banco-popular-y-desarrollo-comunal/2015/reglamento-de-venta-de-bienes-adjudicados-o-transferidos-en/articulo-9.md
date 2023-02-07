@@ -1,9 +1,7 @@
-Artículo 9º-Recepción de ofertas. Las ofertas deben remitirse al correo electrónico indicado en la publicación o en sobre cerrado al Área de Bienes Adjudicados o Área que promueva la venta, por lo que se deberá dejar constancia de recibido.
-Las personas participantes deben presenter su oferta en el formulario que el Banco suministre, el cual puede obtenerse en las oficinas del Banco o en la página web.
-Dicho formulario debe ser completado en su totalidad y tener adjunta la documentación requerida.
-Solo pueden admitirse, en concurso público, venta directa, readquisiciones, ventas sin sujeción a base, ventas sin publicación, ferias o subastas, las ofertas que presenten:
+***Artículo 9º —Recepción de ofertas Las ofertas deben remitirse al correo electrónico indicado en la publicación o en documento físico en sobre cerrado al Área de Bienes Adjudicados o Área que promueva la venta. Las ofertas que se presentan en sobre cerrado en alguna Oficina Comercial del Banco Popular pueden recibirse con al menos tres días hábiles de anticipación al cierre de recepción de ofertas estipulado en la publicación del Cartel, por lo que se deberá dejar constancia de recibido. Las personas participantes deben presentar su oferta en el formulario que el Banco suministre, el cual puede obtenerse en las oficinas del Banco o en la página web. Dicho formulario debe ser completado en su totalidad y tener adjunta la documentación requerida. Solo pueden admitirse, en concurso público, venta directa, readquisiciones, ventas sin sujeción a base, ventas sin publicación, ferias o subastas, las ofertas que presenten:
 a) Los formularios de oferta que cumplen con todos los requisitos de admisibilidad.
-b) El comprobante del depósito del 1% del precio base publicado como garantía de participación.
-En caso de retiro o incumplimiento del pago pactado, el Banco ejecutará a su favor la garantía de participación.
-Los oferentes que remitieron la oferta por correo electrónico deben entregar la documentación original ante el Banco, durante el día hábil siguiente.
-(Así reformado mediante sesión N° 5808 del 1° de marzo del 2021)
+b) El comprobante del depósito del 1 % del precio base publicado como garantía de participación.
+c) Los Formularios de Oferta y requisitos que requieran la firma del oferente (s) y personal del Banco Popular, pueden ser firmados digitalmente siempre y cuando lleven la firma digital certificada.
+d) En el caso de que el oferente(s) no posea certificado para firmar digitalmente, la oferta debe ser enviada en su totalidad con firma manuscrita.
+e) No se aceptan formularios ni ningún tipo de documento con combinación de firmas, sea con firma manuscrita y con firma digital, debe ser solo con alguna de las dos. En caso de retiro o incumplimiento del pago pactado, el Banco ejecutará a su favor la garantía de participación. Los oferentes que remitieron la oferta por correo electrónico con firma manuscrita deben entregar la documentación original ante el Banco, durante el día hábil siguiente.
+*** Modificado el artículo según acuerdo JDN-5808-Acd185-2021-Art-11
