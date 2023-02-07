@@ -1,0 +1,3 @@
+CAPÍTULO VI
+Demás Reconocimientos
+Artículo 14.-El Reconocimiento al Atleta o Agrupación Deportiva del año será la distinción que la Municipalidad podrá otorgar para reconocer una sobresaliente participación en competiciones nacionales o internacionales en ámbitos deportivo, o bien por su meritoria trayectoria en áreas afines al deporte, recreación y demás áreas del desempeño físico. Este reconocimiento podrá otorgarse máximo uno (1) por año calendario, y se realizará en conjunto con el Comité Cantonal de Deportes y Recreación de Esparza de acuerdo a las consideraciones que estos órganos tomen.

@@ -1,0 +1,3 @@
+CAPÍTULO III
+Procedimiento de Designación
+Artículo 6°-Cualquier integrante del Concejo Municipal, o ciudadano y/o grupo organizado por medio de los representantes ediles, podrá presentar en el seno del Concejo la postulación de un Ciudadano, Institución o Grupo Organizado, que considere merecedor de este reconocimiento, para lo que deberá aportar las consideraciones de hechos particularmente sobresalientes que fundamenten la postulación. Esta postulación no podrá ser dispensado de trámite de Comisión siendo que deberá trasladarse para su análisis a la Comisión Permanente de Asuntos Culturales del Concejo Municipal prevista en el artículo 49 de la Ley 7794 Código Municipal

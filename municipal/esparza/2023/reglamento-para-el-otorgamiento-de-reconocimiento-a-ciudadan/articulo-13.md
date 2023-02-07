@@ -1,0 +1,1 @@
+Artículo 13.-El procedimiento corresponderá a lo señalado en artículos 6, 7 y 8 del Capítulo III "Procedimiento de Designación". La declaratoria vendrá acompañada de un Pergamino que contenga los detalles del reconocimiento y contendrá la firma de la Alcaldía Municipal y la Comisión Permanente de Asuntos Culturales del Concejo Municipal.

@@ -1,0 +1,1 @@
+Artículo 18.-El Concejo Municipal no estará obligado a realizar estas actividades, si por motivos económicos, de oportunidad, o conveniencia se hace imposible. Empero por su relevancia cultural se deberán procurar las acciones relacionadas al otorgamiento de reconocimientos de alguna índole a personalidades y acciones merecedoras en el cantón.

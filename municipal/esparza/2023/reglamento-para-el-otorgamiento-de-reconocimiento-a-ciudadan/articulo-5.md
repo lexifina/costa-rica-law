@@ -1,0 +1,3 @@
+Artículo 5°-La Declaratoria de Hijo(a) Predilecto(a) consistirá en las siguientes acciones:
+a) Entrega de una Placa Conmemorativa y un Pergamino en donde se haga constar al ciudadano la declaratoria y las razones por las que ha sido designado con el reconocimiento. Esta Placa estará confeccionada por la Municipalidad, así como el Pergamino que deberá ser firmado por los Regidores que integren la Comisión Permanente de Asuntos Culturales del Concejo Municipal y por quien ocupe la Alcaldía Municipal
+b) Publicación biográfica en las redes sociales y pagina webs oficiales de la municipalidad que contengan el repaso de los méritos realizados por quien ha obtenido el reconocimiento
