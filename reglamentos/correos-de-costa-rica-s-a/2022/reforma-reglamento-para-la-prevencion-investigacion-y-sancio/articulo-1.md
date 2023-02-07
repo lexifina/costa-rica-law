@@ -1,0 +1,8 @@
+CORREOS DE COSTA RICA S. A.
+Reforma Reglamento para la prevención, investigación
+y sanción del hostigamiento sexual
+en Correos de Costa Rica
+Que la presente reforma fue aprobada por la Junta Directiva de Correos de Costa Rica S. A., mediante Acuerdo N°10417, tomado en la sesión ordinaria N° 1760, celebrada el día 29 de noviembre de 2022, se procede a modificar los arts. 24 y 29 del Reglamento para la prevención, investigación y sanción del hostigamiento sexual en Correos de Costa Rica., para que se lea de la siguiente manera:
+Artículo 24.-Plazo para denunciar. El plazo para interponer la denuncia por parte de la presunta víctima es de ocho años y se computará a partir del último hecho consecuencia del hostigamiento sexual o a partir de que cesó la causa justificada que le impidió denunciar, de acuerdo con el artículo 38 de la Ley contra Hostigamiento o Acoso Sexual y la Docencia N° 7476.
+Artículo 29.-Sanciones para quien haya incurrido en Hostigamiento Sexual. Las sanciones por hostigamiento sexual se aplicarán según la gravedad del hecho y serán las siguientes: la amonestación escrita, la suspensión sin goce de salario y el despido sin responsabilidad patronal. La información relativa a estas sanciones, así como la identidad de las personas sancionadas, se llevarán en un registro que será de acceso público, a solicitud de parte, después de que adquiera firmeza, resguardando la identidad, los datos personales y cualquier otra información sensible de las víctimas. La información se mantendrá en el registro por un plazo de diez años, a partir de la firmeza de la respectiva sanción. Se exceptúan de la aplicación de este inciso a las personas menores de edad.
+Rige a partir de su publicación.
