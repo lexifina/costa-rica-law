@@ -1,0 +1,9 @@
+SECCIÓN V
+Debido Proceso
+(Mediante Fe de Erratas y publicada en el Alcance Digital N° 58 a La Gaceta N° 60 del 31 de marzo de 2023, página N° 2, se procedió ajustar la ubicación del título de la Sección V Debido Proceso, misma que cubre los artículos 13 y 14 del presente reglamento. Anteriormente dicha sección estaba ubicada en el numeral 14)
+Artículo 13°. Todo trabajador que tenga una supresión o transformación de su puesto, se le deberá aplicar el debido proceso el cual consiste en lo siguiente:
+a) Carta informativa del resultado de la supresión o transformación del puesto de trabajo o del cambio de las condiciones laborales y salariales, debiendo señalarse al trabajador los cambios que tendrá su contrato de trabajo, finalización del nombramiento en el puesto actual, su ubicación en la anterior plaza en propiedad que haya ocupado y reubicación en una unidad administrativa, todo lo anterior cumpliendo con las previsiones del artículo 136 de la Ley General de la Administración Pública.
+b) Se le otorga al trabajador un plazo de 5 días hábiles para presentar argumentos y oposiciones, para lo cual el trabajador deberá presentarlo en carta formal dirigido a la jefatura que lo está notificando.
+c) Las impugnaciones o actos recursivos que presente el trabajador no detienen el acto administrativo de acuerdo con lo que al efecto dicta el artículo 148 de la Ley General de Administración Pública.
+d) Envío de la solicitud de Movimiento de Personal con la identificación del cambio en el contrato de trabajo.
+e) La Administración tendrá un plazo de 10 días naturales para resolver las oposiciones interpuestas, el cual se iniciará al día siguiente de la presentación de las mismas. Este plazo por motivos de oportunidad, necesidad institucional o requerimiento de informes técnicos adicionales, podrá prorrogarse por uno igual al señalado.

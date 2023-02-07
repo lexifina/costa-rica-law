@@ -1,0 +1,1 @@
+Artículo 14.—Para efectos de agotamiento de la vía administrativa, por ser un tema de administración de personal, cada dependencia donde se presente el recurso administrativo de reclamo resolverá en esa instancia y el último recurso en la cadena de tramite será la Gerencia General.

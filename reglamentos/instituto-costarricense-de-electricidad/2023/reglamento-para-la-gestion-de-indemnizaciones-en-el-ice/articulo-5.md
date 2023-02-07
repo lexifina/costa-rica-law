@@ -1,0 +1,9 @@
+Artículo 5º-Definiciones:
+Indemnización: acción de indemnizar, cantidad de dinero que se paga una persona para compensar un daño o perjuicio que se le ha causado.
+Acción de resarcimiento económico por el daño o perjuicio causado por la institución a personas físicas que resulten afectados tanto por reorganizaciones formalmente aprobadas por el Consejo Directivo u otro tipo de movimientos de personal (estudios de puestos) donde se presenten clasificaciones descendentes, cambios en detrimento de la clasificación del puesto y de la condición salarial de los trabajadores de forma unilateral por parte de la Administración. Toda indemnización debe contar con el respaldo en una resolución administrativa.
+Puesto: Conjunto de deberes y responsabilidades permanentes, que requieren la atención de una persona durante la totalidad o una fracción de la jornada de trabajo, para realizar parte de la actividad administrativa, técnica o asistencial del ICE. El puesto puede estar ocupado o vacante.
+Reasignación: cambio en la clasificación de un puesto, estando ocupado o vacante reintegración: La acción de regresar a una determinada situación laboral anterior.
+Resarcimiento: acción de subsanar y reparar un daño o perjuicio causado a un trabajador.
+Reorganización: cambio parcial o total de la forma en que está estructurada administrativamente la Institución.
+Supresión: acción de eliminar, o deje de existir una unidad administrativa o el cargo que ocupa el trabajador.
+Titular Subordinado: trabajador de la administración activa responsable de un proceso con autoridad para ordenar y tomar decisiones (gerentes, jefes de división, directores y coordinadores nivel 1). transformación: acción de modificar, hacer que algo cambie o sea distinto, pero sin alterar totalmente todas sus características esenciales.

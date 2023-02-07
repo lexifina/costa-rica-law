@@ -1,0 +1,1 @@
+Artículo 12.—Le corresponderá al área de donde proviene la persona trabajadora de la cual ha sido destituida por supresión o transformación del puesto asegurar el contenido presupuestario para el reconocimiento de la indemnización.
