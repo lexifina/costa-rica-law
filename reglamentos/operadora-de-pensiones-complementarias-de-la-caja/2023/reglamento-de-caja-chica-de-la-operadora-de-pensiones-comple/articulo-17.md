@@ -1,0 +1,1 @@
+Artículo 17.-Reintegro del fondo de Caja Chica. El área de Tesorería debe tener el cuidado de que el fondo no se agote, para esto deberá gestionar el reintegro de los recursos, según las proyecciones de pagos semanales suministradas por el área de Proveeduría. Para efectos de fondeo de la caja chica por parte del área de Tesorería, se deben adjuntar las facturas correspondientes.

@@ -1,0 +1,1 @@
+Artículo 9°-Composición del fondo de Caja Chica. Las cajas chicas contendrán siempre el total del monto asignado, el cual, según cada caso, estará integrado por el saldo de las cuentas Corrientes destinadas para caja chica.

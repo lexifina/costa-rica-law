@@ -1,0 +1,1 @@
+Artículo 6°-Utilización de los fondos de viáticos. La Caja Chica se podrá utilizar para realizar pagos de viáticos al exterior, requeridos por los colaboradores de la Operadora y miembros de la Junta Directiva cuando les corresponda representar a la Operadora en algún acto, siguiendo los mecanismos indicados en los documentos internos de la entidad.

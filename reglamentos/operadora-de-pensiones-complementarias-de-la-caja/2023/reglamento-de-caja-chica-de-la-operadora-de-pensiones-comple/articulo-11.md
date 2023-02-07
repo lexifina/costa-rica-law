@@ -1,0 +1,1 @@
+Artículo 11.-De la retención del impuesto sobre la renta. En aquellos casos donde aplique la retención del impuesto sobre la renta, será necesario elaborar una orden de pedido con el objetivo de retener las sumas correspondientes y deberá quedar debidamente registrada en la liquidación que respalda la liquidación del fondo.

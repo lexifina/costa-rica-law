@@ -1,0 +1,2 @@
+Artículo 8°-Montos de la Caja Chica. El monto de la Caja Chica lo definirá la Dirección Financiera Administrativa, de acuerdo con el comportamiento del gasto real o potencial a realizarse por medio de dicho mecanismo y de las necesidades de la Operadora para cada caso específico.
+La rotación de los fondos para el reintegro de las sumas asignadas se hará periódicamente de acuerdo con la necesidad de reponer los adelantos y cancelaciones girados.

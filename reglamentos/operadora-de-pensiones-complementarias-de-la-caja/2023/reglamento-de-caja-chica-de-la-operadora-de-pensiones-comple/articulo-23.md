@@ -1,0 +1,12 @@
+Artículo 23.-Funciones de las Unidades Solicitantes. Las Unidades solicitantes, tendrán a su cargo las siguientes funciones relacionadas con los procesos de compra por medio de la caja chica:
+a) Elaborar la decisión inicial de las compras de bienes, servicios y obras que se lleven a cabo por medio de la caja chica, debiendo reunir y acreditar el cumplimiento de todos los requisitos previos exigidos por la Ley General de Contratación Pública.
+b) Realizar, los sondeos o estudios de mercado que considere los potenciales oferentes idóneos del objeto que se pretende contratar.
+c) Verificar que los proveedores a los que se pretende comprar cumplan con todas las obligaciones exigidas por la ley, el reglamento a la ley, entre ellas estar al día con los impuestos nacionales, la CCSS y FODESAF.
+d) Verificar que las compras de bienes, servicios y obras no generan fraccionamiento ilícito, para lo cual deben coordinar con la Proveeduría las compras en función de la planificación anual que esta establezca.
+e) Determinar la razonabilidad del precio del bien, obra o servicio, de la oferta que se va a utilizar para formalizar una compra por medio de la caja chica.
+f) Determinar el bien, obra o servicio, más conveniente para el cumplimento de los fines públicos que será satisfecha por medio del uso de la caja chica.
+g) Dar seguimiento a la ejecución de la contratación y adoptar las medidas de control con el fin de garantizar una correcta ejecución de lo pactado en las compras de caja chica, adoptando las medidas necesarias por incumplimientos por parte del contratista.
+a) Llevar a cabo los procesos de recepción provisional y definitiva de los contratos formalizados por medio de la caja chica de conformidad con los requisitos de la normativa vigente.
+b) Atender en tiempo las gestiones o consultas que formule el contratista, que sean necesarias para la continuidad de la ejecución del contrato, así como también poner a disposición del contratista en el plazo pactado, los insumos necesarios para la ejecución del contrato, en caso de que la Administración deba entregar insumos necesarios para que el contratista cumpla con la prestación objeto del contrato.
+c) Autorizar la cancelación de las compras de bienes, servicios y obras que se lleven a cabo por medio de la caja chica.
+d) Cualquier otra derivada de la Ley General de Contratación Pública, N° 9986, su Reglamento y cualquier otra normativa aplicable.

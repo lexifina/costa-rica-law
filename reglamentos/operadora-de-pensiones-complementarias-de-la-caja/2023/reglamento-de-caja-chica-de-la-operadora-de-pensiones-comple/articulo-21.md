@@ -1,0 +1,1 @@
+Artículo 21.-De la responsabilidad de los funcionarios que manejan un fondo de Caja Chica. Los funcionarios encargados de la custodia de los fondos de Caja Chica, son responsables por el adecuado manejo de los recursos, de conformidad con lo establecido en este Reglamento.
