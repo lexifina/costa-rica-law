@@ -1,1 +1,0 @@
-Transitorio 3.El MINAE contará con un plazo máximo de seis meses a partir de la publicación de este reglamento en el Diario Oficial La Gaceta para emitir la resolución administrativa que se hace mención en este reglamento referente al derecho y uso de una etiqueta ambienta de Costa Rica (EACR) o una etiqueta de eficiencia energética (EECR) en un producto o servicio.

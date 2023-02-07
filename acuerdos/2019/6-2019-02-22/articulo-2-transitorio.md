@@ -1,1 +1,0 @@
-Transitorio 2. Las instancias que conforman el Comité Técnico de etiquetado ambiental y energético contarán con un plazo de un mes a partir de la publicación de este Acuerdo en el Diario Oficial La Gaceta para realizar el nombramiento de sus representantes (titular y suplente).

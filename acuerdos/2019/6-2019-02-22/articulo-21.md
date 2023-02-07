@@ -1,2 +1,0 @@
-Artículo 21 º- Del registro de productos y servicios que tienen derecho a usar las etiquetas ambientales y energéticas ele Costa Rica: El MINAE, por medio del CTEAE será el responsable de mantener un registro actualizado de los productos o servicios que cuentan con etiquetas ambientales o energéticas vigentes.
-Este registro estará actualizado y disponible para consulta en los sitios web de la DIGECA y la DE.
