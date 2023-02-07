@@ -1,4 +1,4 @@
-Artículo 7º—Objetivo y funciones de la Unidad de Asesoría y Estudios Especiales. La Unidad de Asesoría y Estudios Especiales tiene como objetivo brindar apoyo a la Dirección para la consecución de los objetivos de la Institución, mediante la asesoría en materia contable gubernamental y la propuesta de resolución de los estudios especiales ordinarios del proceso de ejecución de la Dependencia.
+Artículo 7º-Objetivo y funciones de la Unidad de Asesoría y Estudios Especiales. La Unidad de Asesoría y Estudios Especiales tiene como objetivo brindar apoyo a la Dirección para la consecución de los objetivos de la Institución, mediante la asesoría en materia contable gubernamental y la propuesta de resolución de los estudios especiales ordinarios del proceso de ejecución de la Dependencia.
 Para su cumplimiento desarrollará las siguientes funciones y deberes:
 a) Elaborar las propuestas de políticas, normativas y directrices para el Sector Público Costarricense y a lo interno, que deba emitir la Contabilidad Nacional, en materia de contabilidad gubernamental, para la posterior revisión y aprobación por parte de la Dirección General.
 b) Confeccionar las propuestas de planes de acción, los cuales deberán ser coherentes e integrados con el sistema actual, con objetivos de mediano y largo plazo para el mantenimiento y mejoramiento del sistema contable, para su posterior revisión y aprobación por parte de la Dirección General.
@@ -14,4 +14,21 @@ k) Elaborar propuestas de las normas, procedimientos, directrices y políticas e
 l) Suministrar la información requerida por la Unidad de Fiscalización y Control; en los términos y plazos solicitados; para la resolución de sus fiscalizaciones en ejecución.
 m) Elaborar las propuestas de respuestas a las consultas de las instituciones del Sector Público, Contraloría General de la República, Auditoria Interna u otras instituciones o Dependencias del Ministerio de Hacienda, brindando un respaldo legal que coadyuve en la toma de decisiones. Además, confeccionar los criterios técnicos relacionados con las Normas Internacionales de Contabilidad para el Sector Público (NICSP), atender y resolver las consultas formuladas de manera escrita, en esta materia por instituciones públicas o terceros interesados.
 n) Revisar y actualizar el Plan General de Contabilidad para el Sector Público.
-o) Otras que le asigne la Dirección.
+o) Elaborar y proponer, políticas, reglamentos, manuales de procedimientos e instrumentos técnicos sobre Administración de Bienes, o el ajuste a la legislación vigente, armonizado con las Normas Internacionales de Contabilidad del Sector Público.
+(Así adicionado el inciso anterior por el artículo 1° del decreto ejecutivo N° 43947 del 7 de febrero de 2023)
+p) Elaborar y proponer las directrices y los lineamientos en relación con el manejo y la disposición de los bienes pertenecientes a una dependencia de la Administración Central que sea suprimida.
+(Así adicionado el inciso anterior por el artículo 1° del decreto ejecutivo N° 43947 del 7 de febrero de 2023)
+q) Colaborar con la unidad encargada de la Administración de los Bienes, en asesorar a las diferentes Instituciones, así como a lo interno de la Dirección General de Contabilidad Nacional.
+(Así adicionado el inciso anterior por el artículo 1° del decreto ejecutivo N° 43947 del 7 de febrero de 2023)
+r) Coordinar actividades en materia de Administración de Bienes con las Unidades de la Dirección General de Contabilidad Nacional y las instituciones de la Administración Central, para que el trabajo pueda ser ejecutado en forma eficiente, eficaz y oportuna en busca de la consecución de los objetivos y metas propuestas por la Dirección General de Contabilidad Nacional.
+(Así adicionado el inciso anterior por el artículo 1° del decreto ejecutivo N° 43947 del 7 de febrero de 2023)
+s) Coadyuvar con el cumplimiento de las políticas y directrices que, en materia de administración de bienes, sean de acatamiento obligatorio para las diferentes instituciones de la Administración Central que están bajo la rectoría de la Dirección General de Contabilidad Nacional.
+(Así adicionado el inciso anterior por el artículo 1° del decreto ejecutivo N° 43947 del 7 de febrero de 2023)
+t) Emitir criterios y pronunciamientos sobre las funciones de la Dirección General de Contabi lidad Nacional en materia de Administración de Bienes, en todos los asuntos de naturaleza técnica y legal de acuerdo con las solicitudes planteadas.
+(Así adicionado el inciso anterior por el artículo 1° del decreto ejecutivo N° 43947 del 7 de febrero de 2023)
+u) Coordinar la Comisión de Donaciones, preparar las actas y documentos correspondientes para remitirlos Dirección General de Contabilidad Nacional y atender las solicitudes de instituciones que pretendan ser incluidas en el Registro de Instituciones Aptas para Recibir Donaciones (RIARD) y mantener actualizado dicho Registro.
+(Así adicionado el inciso anterior por el artículo 1° del decreto ejecutivo N° 43947 del 7 de febrero de 2023)
+v) Coordinar con las otras Unidades de la Dirección General de Contabilidad Nacional y con el organismo técnico competente las labores relacionadas con el perfeccionamiento catastral y registral de los títulos de propiedad de la Administración Central para preservar el patrimonio inmobiliario de la Administración Central.
+(Así adicionado el inciso anterior por el artículo 1° del decreto ejecutivo N° 43947 del 7 de febrero de 2023)
+w) Otras que le asigne la Dirección.
+(Así modificada la numeración del inciso anterior por el artículo 2° del decreto ejecutivo N° 43947 del 7 de febrero de 2023, que lo traspaso del antiguio inciso o) al w))

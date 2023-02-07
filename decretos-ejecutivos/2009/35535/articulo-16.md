@@ -1,2 +1,2 @@
-Artículo 16.—Vigencia. Rige a partir de su publicación.
-Dado en la Presidencia de la República.—San José, a los siete días del mes de agosto del dos mil nueve.
+Artículo 16.-Derogatoria. Deróguese el Decreto Ejecutivo Nº 31584-H "Reglamento de la Organización de la Dirección General de la Contabilidad Nacional", publicado en La Gaceta Nº 8 del 13 de enero del 2004.
+(Así modificada su numeración por el artículo 3° del decreto ejecutivo N° 43947 del 7 de febrero de 2023, que lo traspaso del antiguo artículo 15 al artículo 16)

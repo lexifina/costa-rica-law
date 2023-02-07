@@ -14,3 +14,4 @@ Reglamento de la Organización de la Dirección General de la Contabilidad Nacio
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-10-16 | la propia norma |
+| 2 | 2023-02-07 | Decreto Ejecutivo 43947 (2023-02-07) |

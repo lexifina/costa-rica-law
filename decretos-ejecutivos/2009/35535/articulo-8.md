@@ -1,7 +1,7 @@
-Artículo 8º—Objetivo y funciones de la Unidad de Fiscalización y Control. La Unidad de Fiscalización y Control tiene como objetivo fiscalizar y controlar las operaciones contables, financieras y administrativas que se llevan a cabo dentro de la Contabilidad Nacional; así como velar por la aplicación efectiva de la normativa contable.
+Artículo 8º-Objetivo y funciones de la Unidad de Fiscalización y Control. La Unidad de Fiscalización y Control tiene como objetivo fiscalizar y controlar las operaciones contables, financieras y administrativas que se llevan a cabo dentro de la Contabilidad Nacional; así como velar por la aplicación efectiva de la normativa contable.
 Para su cumplimiento desarrollará las siguientes funciones y deberes:
 a) Elaborar y someter a consideración de la Dirección de la Contabilidad Nacional, el plan anual de fiscalización y control; y proceder a su ejecución una vez aprobado.
-b) Fiscalizar y controlar la ejecución de lo dispuesto en la Ley 8131 “Ley de la Administración Financiera de la República y Presupuestos Públicos” en relación al Subsistema de Contabilidad, y en especial con las directrices, procedimientos y otra normativa emitidos por esta Dirección en su condición de órgano rector.
+b) Fiscalizar y controlar la ejecución de lo dispuesto en la Ley 8131 "Ley de la Administración Financiera de la República y Presupuestos Públicos" en relación al Subsistema de Contabilidad, y en especial con las directrices, procedimientos y otra normativa emitidos por esta Dirección en su condición de órgano rector.
 c) Fortalecer los controles internos que deben de existir en todas las Unidades de la Contabilidad Nacional, y fiscalizar su aplicación, sobre la base de las disposiciones y legislación existente en la materia, así como las normas y directrices emitidas por las Entidades competentes o por la misma Dirección de la Contabilidad Nacional.
 d) Controlar el cumplimiento por parte de las Unidades de la Contabilidad Nacional, con respecto a las diferentes disposiciones y recomendaciones que emita la Contraloría General de la República y la Dirección General de Auditoría Interna.
 e) Dar seguimiento a la remisión de información de la Dirección General de la Contabilidad Nacional, para efectos de la aplicación del régimen disciplinario contemplado en la ley 8131, hasta donde competa a la Contabilidad Nacional.
@@ -10,4 +10,11 @@ g) Informar a la Dirección de la Contabilidad Nacional, sobre las desviaciones 
 h) Suministrar la información requerida por la Unidad de Asesoría y Estudios Especiales en los términos y plazos solicitados; para la resolución de los estudios asignados.
 i) Elaborar y proponer las actualizaciones que requieran los manuales de procedimientos de cada uno de los procesos que se ejecutan en esta Unidad; y hacerlos del conocimiento de la Dirección para su aprobación respectiva.
 j) Fiscalizar el funcionamiento de los servicios de apoyo administrativo dentro de la Contabilidad Nacional.
-k) Otras funciones que determine la Dirección de la Contabilidad Nacional para el cumplimiento de sus objetivos.
+k) Proponer a la Dirección General de Contabilidad Nacional los planes, programas y proyectos relacionados con los procesos de control y supervisión de la Administración de Bienes y dirigir los mismos cuando sean aprobados por la citada Dirección.
+(Así adicionado el inciso anterior por el artículo 1° del decreto ejecutivo N° 43947 del 7 de febrero de 2023)
+l) Supervisar las direcciones institucionales de abastecimiento de la Administración Central, para asegurar la ejecución adecuada de los procedimientos de almacenamiento y distribución o tráfico de bienes, de acuerdo a la normativa vigente.
+(Así adicionado el inciso anterior por el artículo 1° del decreto ejecutivo N° 43947 del 7 de febrero de 2023)
+m) Supervisar las proveedurías institucionales, o bien, las unidades encargadas de la Administración Central, para asegurarse de la ejecución adecuada de los procesos de almacenamiento y distribución o tráfico de bienes y el registro contable.
+(Así adicionado el inciso anterior por el artículo 1° del decreto ejecutivo N° 43947 del 7 de febrero de 2023)
+n) Otras funciones que determine la Dirección de la Contabilidad Nacional para el cumplimiento de sus objetivos.
+(Así modificada la numeración del inciso anterior por el artículo 2° del decreto ejecutivo N° 43947 del 7 de febrero de 2023, que lo traspaso del antiguio inciso k) al n))
