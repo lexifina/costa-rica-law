@@ -14,3 +14,4 @@ Procedimiento para la renovación del registro sanitario de equipo y material bi
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-02-07 | la propia norma |
+| 2 | 2023-02-07 | Decreto Ejecutivo 43902 (2022-11-30) |

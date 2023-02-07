@@ -1,7 +1,8 @@
 N° 43789-S
 EL PRESIDENTE DE LA REPÚBLICA
 Y LA MINISTRA DE SALUD
-En uso de las facultades que les confiere el artículo 140 incisos 3) y 18) y 146 de la Constitución Política; 25 inciso 1), 27 inciso 1), 28 inciso 2) acápite b) y 103 inciso 1) de la Ley N° 6227 del 02 de mayo de 1978 "Ley General de la Administración Pública; la Ley N° 5395 de 30 de octubre de 1973 "Ley General de Salud"; y el Decreto Ejecutivo N° 34482-S del 3 de marzo de 2008 "Reglamento para el registro, clasificación, importación y control de equipo y material biomédico".
+En uso de las facultades que les confiere el artículo 140 incisos 3) y 18) y 146 de la Constitución Política; 25 inciso 1), 27 inciso 1), 28 inciso 2) acápite b) y 103 inciso 1) de la Ley N° 6227 del 02 de mayo de 1978 "Ley General de la Administración Pública; la Ley N° 5395 de 30 de octubre de 1973 "Ley General de Salud"; y el Decreto Ejecutivo N° 43902-S (*) Reglamento Técnico RTCR:505: 2022 "Equipo y material biomédico. clasificación, registro, importación, etiquetado, publicidad, vigilancia, y control".
+(*)(Así modificada su denominación por el artículo 6°del Reglamento Técnico RTCR:505: 2022 "Equipo y material biomédico. clasificación, registro, importación, etiquetado, publicidad, vigilancia, y control", aprobado mediante decreto ejecutivo N° 43902 del 30 de noviembre del 2022. Anteriormente indicaba "34482- S" del 3 de marzo de 2008 "Reglamento para el registro, clasificación, importación y control de equipo y material biomédico")
 Considerando:
 1º-Que es un deber ineludible del Estado velar por la salud de la población, evitando o reprimiendo aquellos actos u omisiones de particulares que impliquen un riesgo para la salud humana que es un bien jurídico de importancia suprema para el desarrollo social y económico del país.
 2º-Que el Ministerio de Salud al tener como misión velar por la salud pública, debe regular los productos de interés sanitario que se comercializan en el país y así evitar afectaciones a la salud de la población.
@@ -16,4 +17,5 @@ Y MATERIAL BIOMÉDICO POR
 NOTIFICACIÓN
 CAPÍTULO I
 Disposiciones generales
-Artículo 1º-Objeto. Oficializar, para efectos de la aplicación del Decreto Ejecutivo N° 34482-S del 3 de marzo de 2008 "Reglamento para registro, clasificación, importación y control de equipo y material biomédico", publicado en el Alcance N° 19 a La Gaceta N° 80 del 25 de abril de 2008, el procedimiento por el cual se realizará la renovación del registro sanitario de equipo y material biomédico por notificación, con el fin de agilizar el proceso.
+Artículo 1º-Objeto. Oficializar, para efectos de la aplicación del Decreto Ejecutivo N° 43903-S (*) del 3 de marzo de 2008 "Reglamento para registro, clasificación, importación y control de equipo y material biomédico", publicado en el Alcance N° 19 a La Gaceta N° 80 del 25 de abril de 2008, el procedimiento por el cual se realizará la renovación del registro sanitario de equipo y material biomédico por notificación, con el fin de agilizar el proceso.
+(*)(Así modificada su denominación por el artículo 6°del Reglamento Técnico RTCR:505: 2022 "Equipo y material biomédico. clasificación, registro, importación, etiquetado, publicidad, vigilancia, y control", aprobado mediante decreto ejecutivo N° 43902 del 30 de noviembre del 2023. Anteriormente indicaba "34482- S")
