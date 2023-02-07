@@ -1,0 +1,19 @@
+N° 43789-S
+EL PRESIDENTE DE LA REPÚBLICA
+Y LA MINISTRA DE SALUD
+En uso de las facultades que les confiere el artículo 140 incisos 3) y 18) y 146 de la Constitución Política; 25 inciso 1), 27 inciso 1), 28 inciso 2) acápite b) y 103 inciso 1) de la Ley N° 6227 del 02 de mayo de 1978 "Ley General de la Administración Pública; la Ley N° 5395 de 30 de octubre de 1973 "Ley General de Salud"; y el Decreto Ejecutivo N° 34482-S del 3 de marzo de 2008 "Reglamento para el registro, clasificación, importación y control de equipo y material biomédico".
+Considerando:
+1º-Que es un deber ineludible del Estado velar por la salud de la población, evitando o reprimiendo aquellos actos u omisiones de particulares que impliquen un riesgo para la salud humana que es un bien jurídico de importancia suprema para el desarrollo social y económico del país.
+2º-Que el Ministerio de Salud al tener como misión velar por la salud pública, debe regular los productos de interés sanitario que se comercializan en el país y así evitar afectaciones a la salud de la población.
+3º-Que la renovación del registro sanitario de equipo y material biomédico por notificación es una opción que le ofrece a los administrados un procedimiento ágil y con menos tiempo de resolución administrativa.
+4º-Que por medio del Decreto N° 41795-MP-MEIC del 19 de junio de 2019 "Agilización de los trámites en las entidades públicas, mediante el uso de la declaración jurada", se insta a las instituciones públicas como parte de los esfuerzos en materia de mejora regulatoria a realizar una transición gradual hacia un modelo de aprobación de trámites más expedito y ágil, privilegiando un sistema que revitalice el uso de la declaración jurada, aparejado a un fortalecimiento de las capacidades institucionales de verificación posterior, basado en mecanismos novedosos de monitoreo, trazabilidad y atención de denuncias e inspecciones aleatorias.
+5º-Que la reglamentación para el registro de productos de interés sanitario requiere de una revisión y actualización periódica para el cumplimiento de las funciones que contempla la Ley N° 5395 del 30 de octubre de 1973 "Ley General de Salud", dicho decreto busca mejorar y simplificar los trámites vigentes, en los términos que establece el Decreto Ejecutivo N° 41795-MP-MEIC del 19 de junio de 2019 "Agilización de los trámites en las entidades públicas, mediante el uso de la declaración jurada", ya que presenta mejoras al establecer un trámite simplificado por notificación para la renovación de los registros sanitarios de equipo y material biomédico.
+6º-Que de conformidad con el artículo 12 bis del Decreto Ejecutivo N° 37045-MP-MEIC del 22 de febrero de 2012 y su reforma "Reglamento a la Ley de Protección al Ciudadano del Exceso de Requisitos y Trámites Administrativos", la persona encargada de la Oficialía de Simplificación de Trámites del Ministerio de Salud ha completado como primer paso la Sección I denominada Control Previo de Mejora Regulatoria, que conforma el formulario de Evaluación Costo Beneficio. Las respuestas brindadas en esa Sección han sido todas negativas, toda vez que la propuesta no contiene trámites ni requisitos. Por tanto,
+Decretan:
+PROCEDIMIENTO PARA LA RENOVACIÓN
+DEL REGISTRO SANITARIO DE EQUIPO
+Y MATERIAL BIOMÉDICO POR
+NOTIFICACIÓN
+CAPÍTULO I
+Disposiciones generales
+Artículo 1º-Objeto. Oficializar, para efectos de la aplicación del Decreto Ejecutivo N° 34482-S del 3 de marzo de 2008 "Reglamento para registro, clasificación, importación y control de equipo y material biomédico", publicado en el Alcance N° 19 a La Gaceta N° 80 del 25 de abril de 2008, el procedimiento por el cual se realizará la renovación del registro sanitario de equipo y material biomédico por notificación, con el fin de agilizar el proceso.
