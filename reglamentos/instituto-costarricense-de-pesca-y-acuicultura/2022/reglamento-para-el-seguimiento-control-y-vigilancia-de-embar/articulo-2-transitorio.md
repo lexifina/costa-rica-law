@@ -1,2 +1,3 @@
 Transitorio II: Para las embarcaciones de Pesca Deportiva y Turística, el presente reglamento será aplicable a partir del día martes 28 de febrero del año 2023.
 (Así reformado mediante acuerdo N° AJDIP/247-2022 del 9 de noviembre de 2022)
+(Nota de Sinalevi: Mediante acuerdo N° AJDIP/030-2023 del 7 de febrero del 2023 se establece lo siguiente: " Que en relación a lo dispuesto en el Acuerdo de Junta Directiva AJDIP/247-2022, el mismo será aplicable únicamente para las embarcaciones de mediana escala de la Pesca Turística y Deportiva, para las cuales lo establecido en dicho acuerdo empezará a regir a partir del 28 de febrero del año 2023")
