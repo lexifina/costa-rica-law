@@ -14,3 +14,4 @@ Reforma Procedimiento ECA-MC-C 18 Criterios para evaluación y acreditación de 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-10-18 | la propia norma |
+| 2 | 2023-02-08 | Acuerdo 1 (2023-02-08) |
