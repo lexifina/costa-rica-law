@@ -14,3 +14,4 @@ Interpretación oficiosa de los alcances de los artículos 2, 52 y 148 del Códi
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-03-14 | la propia norma |
+| 2 | 2023-02-08 | SINALEVI (sin norma nombrada) |
