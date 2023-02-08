@@ -1,0 +1,1 @@
+Artículo 17.-En lo relativo a activos fijos sujetos a depreciación, debe procederse a incluir en el inventario, por lo que cada Unidad deberá comunicar al Encargado de Activos Fijos para que este proceda a actualizar el registro en el sistema.
