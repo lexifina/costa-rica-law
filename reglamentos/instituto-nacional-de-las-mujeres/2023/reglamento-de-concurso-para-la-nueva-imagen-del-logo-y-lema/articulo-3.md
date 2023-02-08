@@ -1,0 +1,1 @@
+Artículo III.-Responsable del concurso. Instituto Nacional de las Mujeres, cédula jurídica 3-007-075876, domiciliada en San José, San Pedro de Montes de Oca, cuya Presidencia Ejecutiva y Unidad de Comunicación son las áreas organizadoras y administradoras del concurso.
