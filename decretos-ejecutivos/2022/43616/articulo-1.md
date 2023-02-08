@@ -1,4 +1,5 @@
 Nº 43616 -COMEX-MEIC-MINAE
+(Nota de Sinalevi: Mediante decreto ejecutivo N° 44037 del 28 de abril de 2023, se publicó el Reglamento Complementario para la Aplicación del RTCA 23.01.78:20 Productos Eléctricos. Acondicionadores de Aire tipo dividido inverter, con flujo de refrigerante variable descarga libre y sin ductos de aire. Especificaciones de Eficiencia Energética, el cual indica que es complemento del presente decreto ejecutivo. Dicha norma puede ser consultada en el siguiente Enlace)
 EL PRESIDENTE DE LA REPÚBLICA
 Y LOS MINISTROS DE COMERCIO EXTERIOR,
 DE ECONOMÍA, INDUSTRIA Y COMERCIO
@@ -29,7 +30,8 @@ POR TANTO:
 Con fundamento en los artículos 1, 3, 5, 7, 15, 26, 36, 37, 38, 39, 52 y 55 del Protocolo de Guatemala; y 19, 20 Bis, 32 y 32 Bis del Reglamento de Organización y Funcionamiento de los Consejos: de Ministros de Integración Económica, Intersectorial de Ministros de Integración Económica y Sectorial de Ministros de Integración Económica,
 RESUELVE:
 1. Aprobar el Reglamento Técnico Centroamericano RTCA 23.01.78:20 Productos Eléctricos. Acondicionadores de Aire Tipo Dividido Inverter, con Flujo de Refrigerante Variable Descarga Libre y sin Duetos de Aire. Especificaciones de Eficiencia Energética, en la forma en que aparece el Anexo de la presente Resolución y que forma parte integrante de la misma.
-2. La presente Resolución entrará en vigor para las Repúblicas de El Salvador, Honduras y Nicaragua el 17 de agosto de 2022 y para las Repúblicas de Costa Rica, Guatemala y Panamá el 17 de diciembre de 2022 y será publicada por los Estados Parte.
+2. La presente Resolución entrará en vigor para la República de El Salvador el 17 de agosto de 2022; para las Repúblicas de Costa Rica, Honduras, Nicaragua y Panamá el 17 de diciembre de 2022 y para la República de Guatemala, el 17 de junio de 2023 y será publicada por los Estados Parte.
+(Así reformado el punto anterior por el artículo 1 y 2 del decreto ejecutivo N° 44015 del 8 de febrero del 2023 " Publicación de la Resolución Nº 470-2022 (COMIECO-CII) de 2/12/22 que resuelve modificar el numeral 2 de la Resolución Nº 451-2021 (COMIECO-XCVIII) del 17/12/2021 y el numeral 11.3.16 del Reglamento Técnico Centroamericano RTCA 23.01.78:20 Productos Eléctricos. Acondicionadores de Aire Tipo Dividido Inverter, con Flujo de Refrigerante Variable Descarga Libre y sin Duetos de Aire. Especificaciones de Eficiencia Energética, que aparece como Anexo de la citada Resolución Nº 451-2021 (COMIECO-XCV")
 Andrés Valenciano Yammü
 Ministro de Comercio Exterior
 de Costa Rica
@@ -197,7 +199,8 @@ La etiqueta de eficiencia energética debe contener en forma legible e indeleble
 11.3.13. La leyenda "REEE o CSPF establecido en este RTCA (Wt/Wc):" en negrita, seguida de la REEE o CSPF mínima confom1e a lo establecido en la tabla 1 de este RTCA, (un entero y dos decimales aplicando la regla del redondeo progresivo).
 11.3.14. La leyenda "(BTU/hW):" (sólo valores enteros), seguida de la REEE o CSPF mínima conforme a lo establecido en la tabla 1 de este RTCA.
 11.3.15. La leyenda "REEE o CSPF de este equipo (Wt/We):", en negrita, seguida de la REEE determinada, (un entero y dos decimales aplicando la regla del redondeo progresivo).
-11.3.16. La leyenda "(BTU/hW):" (sólo valores enteros), seguida de la REEE o CSPF mínima conforme a lo establecido en la tabla 1 de este RTCA.
+11.3.16. La leyenda "(BTU/hW):" (sólo valores enteros), seguida de la REEE o _GSPF de este equipo.
+(Así reformado el punto anterior por el artículo 1 y 2 del decreto ejecutivo N° 44015 del 8 de febrero del 2023 " Publicación de la Resolución Nº 470-2022 (COMIECO-CII) de 2/12/22 que resuelve modificar el numeral 2 de la Resolución Nº 451-2021 (COMIECO-XCVIII) del 17/12/2021 y el numeral 11.3.16 del Reglamento Técnico Centroamericano RTCA 23.01.78:20 Productos Eléctricos. Acondicionadores de Aire Tipo Dividido Inverter, con Flujo de Refrigerante Variable Descarga Libre y sin Duetos de Aire. Especificaciones de Eficiencia Energética, que aparece como Anexo de la citada Resolución Nº 451-2021 (COMIECO-XCV")
 11.3.17. La leyenda "Ahorro de Energía de este Equipo" de manera horizontal, en negrita.
 11.3.18. Una escala horizontal, indicando el por ciento de ahorro de energía, de 0% al l 00% de 10% en 10%.
 11.3.19. Al costado inferior izquierdo de la escala, en 0%, debe colocarse la leyenda: "Menor ahorro" ( en negrita).

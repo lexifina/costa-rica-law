@@ -14,3 +14,4 @@ Publica Resolución Nº 451-2021 (COMIECO-XCVIII) de fecha 17/12/2021 y su Anexo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-12-17 | la propia norma |
+| 2 | 2023-02-08 | Decreto Ejecutivo 44015 (2023-02-08) |
