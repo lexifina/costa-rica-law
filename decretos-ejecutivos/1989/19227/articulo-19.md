@@ -1,2 +1,0 @@
-Artículo 19—Derogatoria y transitorio.
-Derogatoria: El presente decreto deroga en todos sus extremos el decreto ejecutivo N° 6210 de 3 de agosto de 1976, publicado en "La Gaceta" N° 152 de 11 de agosto de 1976 y sus reformas según decreto ejecutivo N° 6982-T de 2 de mayo de 1977, publicado en "La Gaceta" N° 90 de 12 de mayo de 1977, y el decreto ejecutivo N°7057 de 3 de junio de 1977, publicado en "La Gaceta" N°112 de 14 de junio de 1977.

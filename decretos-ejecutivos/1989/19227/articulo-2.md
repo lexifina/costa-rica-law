@@ -1,1 +1,0 @@
-Artículo 2°—La Comisión estará integrada por cuatro profesionales en medicina debidamente incorporados al Colegio de Médicos y Cirujanos de Costa Rica. Los integrantes de la Comisión Médica deberán tener formación en medicina aeronáutica de acuerdo con los requerimientos internacionales establecidos por la OACI.

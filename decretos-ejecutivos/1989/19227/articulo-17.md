@@ -1,1 +1,0 @@
-Artículo 17.—La Comisión rendirá un informe anual al Consejo Técnico de Aviación Civil sobre aquellos accidentes o incidentes aéreos cuya causa determinada sea atribuida a factores humanos, incluyendo las recomendaciones que estime pertinentes.
