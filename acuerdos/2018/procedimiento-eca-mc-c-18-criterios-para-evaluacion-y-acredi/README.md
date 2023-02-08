@@ -15,3 +15,4 @@ Procedimiento ECA-MC-C 18 Criterios para evaluación y acreditación de laborato
 | --- | --- | --- |
 | 1 | 2018-11-22 | la propia norma |
 | 2 | 2019-10-10 | Acuerdo 9 (2019-10-10) |
+| 3 | 2023-02-08 | Acuerdo 1 (2023-02-08) |
