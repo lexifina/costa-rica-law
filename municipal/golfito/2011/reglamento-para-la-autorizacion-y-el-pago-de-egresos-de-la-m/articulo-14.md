@@ -1,1 +1,0 @@
-Artículo 14.—Los días designados para el trámite de facturas serán los lunes y martes de cada semana, durante la jornada laboral de 8:00 a. m. a 4:00 p. m., las cuales únicamente serán recibidas en la proveeduría municipal.
