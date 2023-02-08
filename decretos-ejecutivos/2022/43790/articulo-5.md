@@ -27,10 +27,12 @@ II. CEREALES, ARROCES, HARINAS Y PASTAS ALIMENTICIAS, NO INCLUYE ARROZ CON PROCE
 9. Fécula de maíz.
 10. Granola (con frutos secos y avena, sin azúcar añadida).
 11. Harina de maíz (masa) y masa preparada para chorreadas.
-12. Harina de trigo (Según Reglamento Técnico Centroamericano RTCA 67 .01 .15: 2007 Harinas, Harinas de Trigo Fortificada. Especificaciones. Decreto Ejecutivo Nº 34080 Resolución N º 201-2007(COMIECOXLV).
+12. Harina de trigo
+(Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 43899 del 8 de febrero del 2023)
 13. Harina integral.
 14. Levadura.
-15. Pasta caracolitos, cabello de ángel, lengua, canelones, chop suey, espaguetis, lasaña, (no incluyen las pastas con relleno, preparadas o las que contienen otros aditamentos).
+15. Pastas alimenticias independientemente de su forma y presentación, como son, tipo caracolitos, cabello de ángel, lengua, canelones, chop suey, espaguetis, lasaña, (no incluyen las pastas con relleno, preparadas o las que contienen otros aditamentos).
+(Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 43899 del 8 de febrero del 2023)
 16. Pasta de arroz.
 III. QUESOS Y LECHE (SEGÚN REGLAMENTO TÉCNICO CENTROAMERICANO RTCA 67.04.66.12 LECHE PASTEURIZADA (PASTERIZADA) Y REGLAMENTO TÉCNICO RTCR 423-2008 LECHE EN POLVO). NO INCLUYE LOS QUESOS MADUROS.
 Cuajada, natilla y queso de leche de vaca:
@@ -155,7 +157,8 @@ XII. VEGETALES, LEGUMINOSAS, TUBÉRCULOS Y HORTALIZAS (FRESCOS, REFRIGERADOS O C
 3. Ayote sazón y calabaza.
 4. Ayote tierno.
 5. Camote.
-6. Cebolla (blanca o morada).
+6. Cebolla.
+(Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 43899 del 8 de febrero del 2023)
 7. Cebollín.
 8. Chayote sazón.
 9. Chayotes.
