@@ -1,0 +1,1 @@
+Artículo 3º-Ámbito de Aplicación. Este Reglamento será aplicable únicamente en el cantón de Goicoechea, a todos los espacios de uso público, siempre y cuando se cumplan con los requisitos determinados en este cuerpo normativo.

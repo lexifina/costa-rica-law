@@ -1,0 +1,1 @@
+Artículo 13.-De las inspecciones. La Municipalidad podrá inspeccionar en cualquier momento los establecimientos en los cuales se desarrolle el comercio al aire libre. La persona funcionaria municipal que dirija la inspección, emitirá constancia de lo observado y lo notificará a la persona patentada.

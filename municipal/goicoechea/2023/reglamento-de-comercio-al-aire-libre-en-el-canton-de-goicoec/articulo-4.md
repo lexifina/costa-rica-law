@@ -1,0 +1,1 @@
+Artículo 4º-De la naturaleza precaria de la autorización para el comercio al aire libre. Los permisos para el comercio al aire libre se otorgan a título precario, por lo cual no generan derechos al patentado sobre el espacio público ya que no son más que actos de mera tolerancia por parte de la Municipalidad.

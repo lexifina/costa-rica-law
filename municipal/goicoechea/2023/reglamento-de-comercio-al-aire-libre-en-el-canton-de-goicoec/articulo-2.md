@@ -1,0 +1,10 @@
+Artículo 2º-Definiciones. Para efectos de la interpretación y aplicación del presente reglamento, se tendrán las siguientes definiciones.
+a) Autorización de comercio al aire libre: patente comercial y licencia para la utilización de espacios públicos tales como aceras, parques, plazas y vías cantonales.
+b) Comercio al aire libre: corresponde únicamente a las actividades de comercialización de alimentos y bebidas mediante el uso de espacios públicos.
+c) Condición en precario: es la situación jurídica que se relaciona con el uso de propiedad ajena sin contar con el respectivo título inmobiliario o contrato de alquiler.
+d) Espacio Público: es el espacio que está abierto a toda la sociedad civil, de propiedad estatal y dominio y uso de la población en general. Está integrado por las calles, caminos, vías de circulación, plazas, paseos, avenidas, parques, jardines y demás espacios verdes, puentes, fuentes y demás espacios destinados al uso público o general de la ciudadanía, ya sean de titularidad pública municipal o de otras administraciones públicas.
+e) Licencia Municipal: corresponde al acto administrativo emitido por la Municipalidad de Goicoechea, mediante el cual se autoriza el desarrollo de la actividad lucrativa solicitada.
+f) Mobiliario: corresponde únicamente a mesas, sillas y otro mobiliario liviano de apoyo a la actividad, tales como bancas, mostradores, estantes, entre otros.
+g) Municipalidad: Entiéndase por Municipalidad al gobierno local del Cantón del Goicoechea.
+h) Patentado: se denomina patentado a toda persona física o jurídica; de hecho, o de derecho; pública o privada, con licencia municipal autorizada para llevar a cabo una actividad lucrativa en el cantón de Goicoechea.
+i) Uso de espacios públicos: es la autorización de uso que se otorga sobre el espacio común cuando se cumpla con todas las obligaciones correspondientes establecidas en este reglamento o leyes especiales vigentes; este permiso es otorgado por el Departamento de Cobro, Licencias y Patentes Municipales previo estudio técnico jurídico en conjunto con la Dirección de Ingeniería y Operaciones.
