@@ -1,1 +1,0 @@
-Artículo 13.—Recibidas las listas de plazas y las solicitudes de los participantes, la Comisión o su respectiva Subcomisión, se reunirá para confrontar el número de plazas ofrecidas y el número de solicitantes que se inscribieron al sorteo. Si la cantidad de plazas fuera insuficiente, la Comisión gestionará ante las instituciones el aporte complementario de plazas.

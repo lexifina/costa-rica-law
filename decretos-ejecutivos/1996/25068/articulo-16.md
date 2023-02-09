@@ -1,1 +1,0 @@
-Artículo 16.—La actividad será exclusiva para la realización del sorteo y solo participarán e ingresarán al recinto, los profesionales que habiendo completado satisfactoriamente la inscripción, se hagan presentes, sea en forma personal o por medio de un tercero con autorización escrita debidamente autenticada por un abogado.

@@ -1,1 +1,0 @@
-Artículo 7°—Las plazas de Servicio Social Obligatorio para cada clase profesional se adjudicarán por sorteo, que será convocado por el Ministerio de Salud. Habrá dos sorteos ordinarios al año, uno en enero y otro en agosto. En caso necesario, el Ministerio de Salud convocará a sorteos extraordinarios, previa recomendación de la Comisión.

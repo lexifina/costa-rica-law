@@ -1,1 +1,0 @@
-Artículo 22.—Los Profesionales que efectúen su Servicio Social Obligatorio, recibirán una remuneración en concordancia con el salario del profesional que inicia sus labores, de conformidad con el Ordenamiento Jurídico vigente en la materia.

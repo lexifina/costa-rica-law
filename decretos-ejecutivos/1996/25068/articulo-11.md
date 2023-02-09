@@ -1,1 +1,0 @@
-Artículo 11.—Solamente los Profesionales interesados, que presenten su solicitud dentro del plazo aquí previsto, podrán ser incluidos en la lista de participantes al sorteo. Vencido el plazo dicho, no podrá agregarse a las listas ningún otro participante.

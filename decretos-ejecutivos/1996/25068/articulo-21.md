@@ -1,1 +1,0 @@
-Artículo 21.—Las instituciones deberán contratar las plazas de servicio social por el tiempo determinado de un año y la jornada laboral ordinaria no podrá será menor de 8 horas diarias. Al finalizar el término del contrato, la relación laboral se tendrá por concluida.
