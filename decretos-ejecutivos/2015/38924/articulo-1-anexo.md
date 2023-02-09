@@ -6,12 +6,12 @@ Turbiedad | UNT | 1,0 | 5,0
 Olor | - | Aceptable | Aceptable
 Cloro residual libre (a) | mg/L | 0,3 | 1,0
 (a) Para el parámetro cloro residual libre, se establece rangos permisibles y no VA ni VMA.
-(Así reformado el cuadro anterior por el artículo 1° del decreto ejecutivo N° 42332 del 6 de marzo del 2020. De conformidad con el artículo 2° del decreto ejecutivo antes referido dicha modificación rige a partir de su publicación y tendrá una vigencia de 6 meses.)
+(Así reformado el cuadro anterior por el artículo 1° del decreto ejecutivo N° 44220 del 9 de febrero del 2023)
 Cuadro 2: Parámetros de Calidad del Agua
 Nivel Primero (N1)
 Parámetro | Unidad | Valor Alerta (VA) | Valor Máximo Admisible (VMA)
 Color aparente | U-Pt-Co | < 5 | 15(c)
-Conductividad | μS/cm | 400 | -
+Conductividad | ?S/cm | 400 | -
 Coliforme fecal | NMP/100 ml o UFC/100ml | No detectable (c) | No detectable (c)
 Escherichia coli | NMP/100 ml o UFC/100ml | No detectable (c) | No detectable (c)
 Cloro residual libre (a) | mg/L | 0,3 | 1,0
@@ -20,10 +20,11 @@ Turbiedad | UNT | 1,0 | 5,0
 Olor | --- | Aceptable | Aceptable
 Temperatura (a) | °C | 18 | 30
 pH (a) | Valor pH | 6,0 | 8,0
+Notas
 (a) Para los parámetros de pH, temperatura, cloro residual libre y cloro residual combinado, se establece rangos permisibles y no VA ni VMA.
 (b) Sólo en el caso que el residual del cloro se encuentre en forma combinada o se esté dosificando cloro en la forma de cloramina (cloro-amoniaco).
-(c) No detectable (N.D.): de acuerdo al límite de detección del Método.
-(Así reformado el cuadro anterior por el artículo 1° del decreto ejecutivo N° 42332 del 6 de marzo del 2020. De conformidad con el artículo 2° del decreto ejecutivo antes referido dicha modificación rige a partir de su publicación y tendrá una vigencia de 6 meses.)
+(c) No detectable (N.D.): de acuerdo con el límite de detección del Método.
+(Así reformado el cuadro anterior por el artículo 1° del decreto ejecutivo N° 44220 del 9 de febrero del 2023)
 CUADRO 3. Parámetros de Calidad del Agua
 Nivel Segundo (N2)
 Nivel Segundo (N2) PARAMETRO | Valor de Alerta (VA) mg/L | Valor Máximo Admisible (VMA) mg/L

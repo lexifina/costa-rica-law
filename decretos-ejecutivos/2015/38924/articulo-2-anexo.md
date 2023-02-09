@@ -15,21 +15,24 @@ Frecuencia | N° muestras | Frecuencia | N° muestras
 20.001 a 200.000 | Semanal | 1 en cada fuente o en la mezcla de todas las fuentes, que ingresa a la red de distribución. | Semanal | 1 |
 >200.000 | Diario | 1 en cada fuente o en la mezcla de todas las fuentes, que ingresa a la red de distribución. | Diario | 1 |
 | | | | | | | | | |
-CUADRO B.2. Frecuencia mínima de muestreo y número de muestras a recolectar en las FUENTES DE ABASTECIMIENTO TANQUE DE ALMACENAMIENTO Y RED DE DISTRIBUCIPON para el nivel primero (N1)
-Población abastecida (habitantes) | Fuentes de abastecimiento (a) (b) | | Tanques de almacenamiento (a) | | Red de distribución (a) y (b) | | Total de muestras mínimas por año ©
+CUADRO B.2. Frecuencia mínima de muestreo y número de muestras a recolectar en las
+FUENTES DE ABASTECIMIENTO TANQUE DE ALMACENAMIENTO Y RED DE
+DISTRIBUCIÓN para el nivel primero (N1)
+Población abastecida (habitantes) | Fuentes de abastecimiento (a) (b) | | Tanques de almacenamie nto (a) | | Red de distribución (a) y (b) | | Total de muestras mínimas por año (c)
 | Frecuencia | N° muestras | Frecuencia | N° muestras | Frecuencia | N° muestras |
-< 5.000 | Semestral | 1 en cada fuente | Semestral | 1 en cada tanque | Semestral | 3 | 10
-5000 a 100.000 | Semestral | 1 en cada fuente | Trimestral | 1 en cada tanque | Trimestral | 3 | 18
-100 001 a 500 000 | Mensual | 1 en cada fuente | Mensual | 1 en cada tanque | Mensual | 15 | 120 más 12 por cada 100.000 habitantes (d)
-> 500 000 | Mensual | 1 en cada fuente | Mensual | 1 en cada tanque | Diaria | 15 | 180 más 12 por cada 100.000 habitantes
+< 5.000 | Semestral | 1 en cada fuente o en la mezcla de todas las fuentes que ingresan a la red de distribución | Semestral | 1 en cada tanque | Semestral | 3 | 10
+5000 a 100.000 | Semestral | 1 en cada fuente o en la mezcla de todas las fuentes que ingresan a la red de distribución | Trimestral | 1 en cada tanque | Trimestral | 3 | 18
+100 001 a 500 000 | Mensual | 1 en cada fuente o en la mezcla de todas las fuentes que ingresan a la red de distribución | Mensual | 1 en cada tanque | Mensual | 15 | 120 más 12 por cada 100.000 habitantes (c)
+> 500 000 | Mensual | 1 en cada fuente o en la mezcla de todas las fuentes que ingresan a la red de distribución | Mensual | 1 en cada tanque | Diaria | 15 | 180 más 12 por cada 100.000 habitantes
 Notas:
 (a). Aplica para los parámetros microbiológicos del N1.
 (b). Aplica para los parámetros físico-químicos del N1. En el caso de la red de distribución se realiza una (1) única muestra.
 (c) En los acueductos que abastecen poblaciones superiores a 100.000 personas, con historial de calidad, por al menos 2 años, y resultados de:
-i. Coliformes fecales y E.coli negativos en más del 95% de las muestras anuales.
-ii. Cloro residual entre 0,3 mg/L a 0,6 mg/L (en el 90% de las muestras anuales).
+i. Coliformes fecales y E. coli negativos en más del 95% de las muestras anuales.
+ii. Cloro residual entre 0,3 mg/L a 1.0 mg/L (en el 90% de las muestras anuales).
 iii. Turbiedad menor o igual a 1 U.N.T. (en el 90% de las muestras anuales).
 Los entes operadores pueden reducir hasta en un 50% el número de muestras y readecuar la frecuencia de muestreo en concordancia con la mencionada reducción. Para optar por esta reducción, en un acueducto, el ente operador debe probar con datos estadísticos el historial de resultados de la calidad del agua (previa autorización del M.S.).
+(Así reformado el cuadro b.2 anterior por el artículo 1° del decreto ejecutivo N° 44220 del 9 de febrero del 2023)
 CUADRO B.3 Frecuencia de muestreo y número de muestras a recolectar para análisis físico en las FUENTES DE ABASTECIMIENTO Y RED DE DISTRIBUCIÓN para los NIVELES N2 Y N3 (después de tener el perfil de calidad)
 | | |
 Población abastecida (habitantes) | Fuentes de abastecimiento | Red de distribución

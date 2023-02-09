@@ -18,3 +18,4 @@ Reglamento para la calidad del Agua Potable
 | 3 | 2017-11-08 | SINALEVI (sin norma nombrada) |
 | 4 | 2018-11-29 | Decreto Ejecutivo 41499 (2018-11-29) |
 | 5 | 2020-03-06 | Decreto Ejecutivo 42332 (2020-03-06) |
+| 6 | 2023-02-09 | Decreto Ejecutivo 44220 (2023-02-09) |
