@@ -1,0 +1,1 @@
+Artículo 17.-Plazo para interponer la denuncia. El plazo para interponer la denuncia será de un año calendario contado a partir del último hecho de violencia o a partir de que cesó la causa justificada que impidió denunciar.

@@ -1,0 +1,1 @@
+Transitorio I.-Dentro de los seis meses siguientes a la entrada en vigencia del presente reglamento, la Alcaldía capacitará a la Oficina Municipal de la Mujer o su similar, al Departamento de Talento Humano o su similar y a las personas que intervienen en los procedimientos con el fin de garantizar el trámite de las denuncias derivadas de Ley N° 10.235 y este reglamento.

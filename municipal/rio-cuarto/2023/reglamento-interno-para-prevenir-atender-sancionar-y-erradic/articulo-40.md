@@ -1,0 +1,1 @@
+Artículo 40.-Procedimientos aplicables. Para la investigación, medidas cautelares por hechos que configuren violencia contra las mujeres en la política, en caso de personas electas popularmente, se observarán las reglas dispuestas por este reglamento.

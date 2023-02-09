@@ -1,0 +1,1 @@
+Artículo 21.-Garantías para la persona denunciante y testigos. Ninguna persona denunciante o que haya comparecido como testigo de alguna de las partes, podrá sufrir por ello perjuicio personal en su trabajo. La Municipalidad garantizará a las personas denunciantes y a los y las testigos, que no serán sancionadas por participar en el proceso.

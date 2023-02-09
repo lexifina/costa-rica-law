@@ -1,0 +1,3 @@
+CAPÍTULO VII
+Disposiciones Finales
+Artículo 44.-Fuentes supletorias. Para interpretar o integrar el presente reglamento, se tendrán como fuentes supletorias: Ley para prevenir, atender, sancionar y erradicar la violencia contra las mujeres en la política, Ley N°10.235, de 17 de mayo de 2022, Ley contra el Hostigamiento Sexual en el Empleo y la Docencia, Ley N°7476, de 3 de febrero de 1995; la Ley contra la Violencia Doméstica, Ley N° 7586, de 10 de abril de 1996; Código Electoral, Ley N° 8765, de 19 de agosto de 2009; Ley de Penalización de la Violencia contra las Mujeres, Ley N°8589, de 25 de abril de 2007; Ley General de la Administración Pública, Ley N° 6227, de 2 de mayo de 1978 y Código Municipal, Ley N° 7794, de 30 de abril de 1998.

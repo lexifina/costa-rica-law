@@ -1,0 +1,1 @@
+Artículo 16.-Plazo de la investigación. El procedimiento de investigación por denuncias de violencia contra las mujeres en la política tendrá un trámite prioritario y expedito. Este y deberá resolverse en un plazo ordenatorio de tres meses, incluyendo la emisión de la resolución final.

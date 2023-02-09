@@ -1,0 +1,3 @@
+Artículo 43.-Sanciones. La persona que fuese encontrada responsable de incurrir en falta por violencia contra una mujer en la política, podrá ser sancionada con amonestación escrita, suspensión o pérdida de credenciales, según la gravedad de la falta.
+En caso de que el Concejo Municipal acuerde la sanción de amonestación escrita, será notificada a la persona responsable por parte de la Secretaría del Concejo Municipal, se dejará constancia en el expediente y se remitirá al Tribunal Supremo de Elecciones, para efectos del registro que establece la Ley N°10.235.
+En caso de que el Concejo Municipal acuerde la sanción de pérdida de credencial, el expediente se trasladará al Tribunal Supremo de Elecciones, para que éste de inicio al proceso de cancelación de credenciales.

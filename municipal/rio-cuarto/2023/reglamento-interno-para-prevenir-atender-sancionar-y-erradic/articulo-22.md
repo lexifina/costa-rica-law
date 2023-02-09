@@ -1,0 +1,1 @@
+Artículo 22.-Deber de colaboración. Todas las personas funcionarias de la Municipalidad de Río Cuarto y las diferentes dependencias están en la obligación de brindar su colaboración -cuando así se solicite por el órgano instructor-para facilitar su labor y el desempeño cabal del procedimiento.

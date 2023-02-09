@@ -1,0 +1,1 @@
+Artículo 37.-Remisión a otras jurisdicciones. Las sanciones contempladas en el presente reglamento se impondrán sin perjuicio de que la persona afectada pueda a la vía jurisdiccional correspondiente, cuando las conductas también constituyan hechos punibles por el ordenamiento jurídico vigente.
