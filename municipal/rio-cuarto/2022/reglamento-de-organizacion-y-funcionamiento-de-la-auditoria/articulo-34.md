@@ -1,0 +1,3 @@
+CAPÍTULO VI
+De los demás funcionarios de Auditoría
+Artículo 34.-Disposiciones. Los funcionarios de la Auditoría estarán sujetos a las disposiciones administrativas aplicables al resto del personal de la Municipalidad. Esas disposiciones no deberán afectar negativamente la actividad de la Auditoría y la independencia funcional y de criterio de ese personal.

@@ -1,0 +1,4 @@
+Artículo 31.-Ausencia temporal del Auditor y del Sub auditor. Cuando se ausente temporalmente el Auditor (a) interno (a), el jerarca recargará las funciones en el Subauditor (a) o, de no existir éste, podrá hacer el recargo en otro funcionario idóneo de la auditoría interna o en su defecto en un funcionario externo a la unidad, en ese orden. Para efectos de proceder a ese recargo no se requerirá de la autorización de la Contraloría General de la República.
+Cuando se ausentare temporalmente el Subauditor interno y en caso de requerirse nombrar en forma interina deberá nombrarlo previa autorización de la Contraloría General de la República.
+Hechos los nombramientos interinos correspondientes, cesarán una vez los recargos o sustituciones.
+Se deberán de considerar las regulaciones emitidas para este tipo de ausencias, de acuerdo con la normativa vigente en cuanto a las designaciones temporales.

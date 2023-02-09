@@ -1,0 +1,1 @@
+Artículo 59.-De la revisión del informe por parte de la administración activa. En cuanto a los requisitos, parte, revisión y remisión de los informes se aplicará principalmente lo dispuesto en la Ley General de Control Interno y lo dispuesto en "Las Normas Generales de Auditoría para el Sector Público."

@@ -1,0 +1,1 @@
+Artículo 60.-De la estructura del informe de la Auditoría Interna. La estructura de los informes de auditoría o estudio especial, constará de aquellas partes que defina el o la Auditor (a), tomado en consideración lo indicado por la normativa que regula la función de la Auditoría Interna.

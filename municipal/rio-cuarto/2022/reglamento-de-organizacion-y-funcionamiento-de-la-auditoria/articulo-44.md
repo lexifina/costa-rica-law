@@ -1,0 +1,3 @@
+Artículo 44.-Planificación de la actividad. La persona titular de Auditoría Interna deberá administrar efectivamente la actividad de la Auditoría Interna, para asegurar que añada valor a la Gestión Municipal.
+La persona titular de la Auditoría Interna deberá establecer planes basados en criterios razonables y fundamentados, especialmente en una valoración del riesgo, a fin de determinar las prioridades de la actividad de la Auditoría Interna. Dichos planes deberán ser consistentes con los objetivos de la Municipalidad.
+La planificación de la Auditoría debe permitir un normal desarrollo del proceso, de manera que se facilite su administración, ejecutando un uso eficiente de los recursos y que se puedan incorporar ajustes que sean necesarios.

@@ -1,0 +1,1 @@
+Artículo 72.-Creación de procedimiento. Será responsabilidad de la persona titular de la Auditoría Interna, confeccionar el procedimiento de atención de denuncia y su actualización cuando corresponda.

@@ -1,0 +1,1 @@
+Artículo 58.-Errores y omisiones. Si una comunicación contuviera un error u omisión significativa, el Auditor (a) Interno (a) deberá comunicar la información corregida a todas las partes que recibieron la comunicación original.

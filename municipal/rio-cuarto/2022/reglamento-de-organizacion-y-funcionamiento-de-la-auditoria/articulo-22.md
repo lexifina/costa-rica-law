@@ -1,0 +1,3 @@
+CAPÍTULO V
+Del Auditor y Subauditor Interno
+Artículo 22.-Idoneidad del Auditor y el Subauditor internos. El cargo de Auditor corresponde al máximo nivel de competencia, responsabilidad y autoridad de la Auditoría, tienen un carácter estratégico, por ende, quienes lo ocupen deberán desarrollar funciones de planeación, organización, dirección, supervisión, coordinación y de control propios de los procesos técnicos y administrativos de la Auditoría Interna. Igual categoría gozará el Subauditor (a) interno, cuando suplan a la persona titular del puesto, por alguna circunstancia como el disfrute de vacaciones, incapacidades, licencias con o sin goce de salario, entre otras.
