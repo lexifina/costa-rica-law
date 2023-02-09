@@ -1,0 +1,6 @@
+JUNTA DE PROTECCIÓN SOCIAL
+INSTITUCIÓN BENEMÉRITA
+Comunica al público en general que a partir del miércoles 08 de febrero del 2023 se da por finalizado los juegos N° 2081 denominado "¡Vive el Fútbol!" y N°2084 denominado "Sorpresa Navideña.
+En cuanto a la participación por medio de activaciones en el programa Rueda de la Fortuna para ambos juegos, es hasta el sábado 25 de febrero del 2023 y el último día de activación, así como, la participación a través de llamada telefónica es el sábado 18 de febrero del 2023.
+En cuanto a la participación a través de raspa directa de los juegos N° 2081 y N° 2084 queda abierta para las personas que se encuentran en lista de espera para ir a girar la rueda y para las personas se presenten a validar su participación dentro del plazo de los 60 días naturales una vez publicada la finalización de los juegos en el Diario Oficial La Gaceta, esto debido a la rotación de los juegos, y que producto de la crisis sanitaria que atraviesa el país por el Covid-19 por un tiempo el programa fue suspendido en atención a la emergencia, y que por consiguiente la lista de participantes por raspa directa se extendió en el tiempo.
+Asimismo, los vendedores puedan efectuar la devolución de los juegos "N° 2081 denominado "¡Vive el Fútbol!" y N° 2084 denominado "Sorpresa Navideña" el viernes 03 de febrero del 2023.
