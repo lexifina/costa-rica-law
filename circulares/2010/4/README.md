@@ -13,3 +13,4 @@ Manual de Procedimientos para la Administración y Custodia de las Boletas de Se
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-01-18 | la propia norma |
+| 2 | 2023-02-09 | Circular 34 (2023-02-09) |
