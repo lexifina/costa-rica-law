@@ -1,0 +1,23 @@
+INSTITUTO NACIONAL DE VIVIENDA
+Y URBANISMO
+El Instituto Nacional de Vivienda y Urbanismo comunica acuerdo adoptado por la Junta Directiva de este Instituto, según consta en el Artículo II, Inciso 1) del Acta de la Sesión Ordinaria N° 6564 del 02 de febrero de 2023, que textualmente dice:
+Considerando:
+1º-Que de conformidad a los artículos 314 y 317 del Reglamento a la Ley General de Contratación Pública al permitir la delegación del máximo jerarca de las decisiones finales de los procedimientos de contratación pública y la firma de las ordenes de pedidos como órdenes de compra y formalizaciones de contratos, se requiere la transferencia de dicha competencia administrativa para cumplir con el principio de celeridad y la satisfacción del interés público.
+2º-Que la Ley General de la Administración Pública en sus numerales 89, 90, 91 y 92 permite y regula la delegación, cuando una Ley en forma tácita lo establezca.
+3º-Que la Ley N° 8131 Administración Financiera de la República y Presupuestos Públicos, en su artículo 106, establece que Los jerarcas de los órganos o entes del sector público podrán delegar la suscripción de los contratos asociados al proceso de contratación, de conformidad con la reglamentación que se establezca para el efecto.
+4º-Que de conformidad al artículo 36 de la Ley General de Contratación Pública (LGCP), el INVU se encuentra dentro del régimen diferenciado, por ser una Institución Pública Financiera no Bancaria (ver Clasificador Institucional del Sector Público del Ministerio de Hacienda), por lo que los umbrales que le aplican para el 2023 son:
+[imagen]
+Por tanto,
+Con los votos a favor de Arq. Jessica Martínez Porras, Lic. Rodolfo Freer Campos, Arq. Juan Carlos Sanabria Murillo, Arq. Yenory Quesada Díaz, MSc. Virgilio Calvo González y Dr.-Ing. Álvaro Guillén Mora, se acuerda: conforme Resolución INVU-CL-026-2022 y en amparo a los artículos 314 y 317 del Reglamento a la Ley General de Contratación Pública, y numerales 89, 90, 91 y 92 de la Ley General de la Administración Pública, delegar la decisión final de los procedimientos de contratación pública, así como la firma del pedido u orden de compra y formalización contractual, bajo las siguientes condiciones:
+1. Los Órganos competentes para adjudicar, declarar desierto o infructuoso, revocar un procedimiento o emitir una nueva adjudicación son:
+1.1 Las Licitaciones Reducidas como los procesos de excepción cuyo monto estimado esté dentro del umbral definido para las Licitaciones Reducidas, la responsabilidad será de la persona Encargada de la Unidad Adquisiciones y Contrataciones.
+1.2 Las Licitaciones Menores y las Licitaciones Mayores que no sean de objeto contractual de obra pública, y las contrataciones de excepción cuyo monto estimado esté dentro del umbral definido para las Licitaciones Mayores, le corresponderá dictar el Acto Final a la Junta de Adquisiciones.
+1.3 Las Licitaciones Mayores de Obra pública, le corresponderá a la Junta Directiva.
+2. La formalización contractual de los procesos de contratación estará a cargo de:
+2.1 La persona Encargada de la Unidad Adquisiciones y Contrataciones: para las Licitaciones Reducidas y los procesos de excepción cuyo monto estimado esté dentro del umbral definido para las Licitaciones Reducidas.
+2.2 El Gerente General: para las Licitaciones Menores, Licitaciones Mayores y las contrataciones de excepción cuyo monto estimado esté dentro del umbral definido para las Licitaciones Menores y Mayores.
+La firma que autoriza el pedido u orden de compra, recae en el encargado de cada centro de costo.
+3. Que todo acto en materia de contratación pública que vaya a emitir la Junta Directiva del INVU, debe darse a partir de una recomendación emitida por la Junta de Adquisiciones.
+3.1 El plazo para dictar el acto final será el dispuesto en el pliego de condiciones, que en ningún caso podrá ser superior al doble del plazo fijado para la recepción de ofertas. Únicamente en casos excepcionales y mediante acto debidamente motivado, se podrá prorrogar hasta por un plazo igual al de recibir ofertas, acto que será suscrito por la persona Encargada de la Unidad Adquisiciones y Contrataciones para dictar el Acto Final según la persona u órgano competente, transcurrido el plazo de seis meses contados a partir del vencimiento del plazo original o su prórroga, no se ha emitido el primer acto final, operará la caducidad del procedimiento.
+La modificación unilateral ordinaria del contrato de obra pública y las modificaciones unilaterales del contrato de bienes y servicios serán aprobadas por la persona y órgano que haya emitido el Acto Final del procedimiento según la cuantía del umbral. Notifíquese.
+Acuerdo firme.
