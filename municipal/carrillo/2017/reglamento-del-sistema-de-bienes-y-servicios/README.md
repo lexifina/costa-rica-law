@@ -14,3 +14,4 @@ Reglamento del sistema de bienes y servicios
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-12-07 | la propia norma |
+| 2 | 2023-02-10 | Reglamento municipal 6 (2023-02-10) |
