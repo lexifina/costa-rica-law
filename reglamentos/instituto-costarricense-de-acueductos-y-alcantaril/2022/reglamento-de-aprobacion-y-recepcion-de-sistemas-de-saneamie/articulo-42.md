@@ -1,0 +1,1 @@
+Artículo 42º.- Rehabilitación de PTAR para recepción. Las PTAR que a pesar de haber sido aprobadas estuvieran fuera de funcionamiento por operación y mantenimiento, deberán ser rehabilitadas y cumplir con la normativa de recepción vigente al momento de presentar la solicitud.

@@ -1,0 +1,3 @@
+Sección IV: Recepción de Sistemas de Saneamiento por Orden Administrativa y/o
+Judicial
+Artículo 27º.- Recepción por Orden Judicial o Administrativa. Cuando la recepción del Sistema de Saneamiento de aguas residuales proceda de una orden judicial o administrativa, sin que sea posible el cumplimiento de los requisitos que se establece en este reglamento en Artículo 21°.- y Artículo 22°.- , así como el procedimiento ordinario dispuesto en el Artículo 23°.- y Artículo 29°.-, la Gerencia General, previo al dictado del acto final deberá conformar un expediente administrativo, justificando para cada caso concreto los requisitos ausentes con fundamento en el informe de estado actual y requerimiento de inversiones y operación.

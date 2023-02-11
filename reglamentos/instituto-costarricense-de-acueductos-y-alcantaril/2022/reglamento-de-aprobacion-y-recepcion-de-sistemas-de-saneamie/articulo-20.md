@@ -1,0 +1,1 @@
+Artículo 20º.- Fundamento legal del procedimiento y plazos para aprobación. El procedimiento y plazos para la aprobación de proyectos de sistemas de saneamiento, se dará en apego a lo dispuesto por el Reglamento para el Trámite de Revisión de los Planos para la Construcción N.º 36550-MP-MIVAH-S-MEIC y sus reformas o la versión que se encuentre vigente.

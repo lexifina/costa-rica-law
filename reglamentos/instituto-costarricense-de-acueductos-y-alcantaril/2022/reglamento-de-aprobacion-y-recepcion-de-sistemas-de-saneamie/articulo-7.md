@@ -1,0 +1,1 @@
+Artículo 7º.- Principio de Transparencia. En todo el proceso de aprobación y /o recepción de sistemas de saneamiento de aguas residuales, se garantizará la prevalencia del interés público sobre cualquier tipo de interés privado. Toda decisión se fundamentará en la imparcialidad, objetividad, eficacia y transparencia de la función pública.

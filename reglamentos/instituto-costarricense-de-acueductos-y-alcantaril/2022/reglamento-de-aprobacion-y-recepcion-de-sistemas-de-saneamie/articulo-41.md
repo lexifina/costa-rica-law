@@ -1,0 +1,1 @@
+Artículo 41º.- Incumplimiento de particulares. Deberá la Administración interponer las acciones civiles y/o penales que correspondan, contra los particulares que incumplan con lo dispuesto en este reglamento.

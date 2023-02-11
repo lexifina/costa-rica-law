@@ -1,0 +1,1 @@
+Artículo 32º.- Administración de los fondos. Los fondos recaudados en los sistemas delegados por este concepto deben ser administrados en una cuenta independiente y destinados exclusivamente a la administración, operación y mantenimiento del Sistema de Saneamiento asumido.

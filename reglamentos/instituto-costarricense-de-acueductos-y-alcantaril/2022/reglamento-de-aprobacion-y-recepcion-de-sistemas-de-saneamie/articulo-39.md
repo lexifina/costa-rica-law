@@ -1,0 +1,1 @@
+Artículo 39º.- Asesorías y capacitación de ASADAS. Deberá la Subgerencia de Gestión de Sistemas Delegados, de forma periódica, emitir recordatorios, asesorías y capacitación a las Juntas Directivas de las ASADAS respecto al cumplimiento de la presente normativa.

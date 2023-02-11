@@ -1,0 +1,1 @@
+Artículo 2º.- Alcance. Este Reglamento es de aplicación nacional tanto para el AyA como para todos aquellos terceros interesados que tramiten la Aprobación y Recepción de Sistemas de Saneamiento de Aguas Residuales de tipo ordinario; así como para sistemas delegados por AyA. Asimismo, podrá ser utilizado de forma supletoria por otros operadores.

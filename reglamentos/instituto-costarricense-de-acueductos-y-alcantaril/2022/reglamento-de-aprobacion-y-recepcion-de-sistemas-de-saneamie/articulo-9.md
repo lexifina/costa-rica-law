@@ -1,0 +1,2 @@
+Artículo 9º.- Principio de prestación de servicio de acueducto y alcantarillado. El ente operador del sistema de agua potable, será el responsable de administrar, operar y mantener el Sistema de Saneamiento que se reciba, en cumplimiento de lo regulado en el presente reglamento.
+El Instituto en uso de sus potestades rectoras y en consideración a criterios legales, financieros, técnicos y operativos determinará la factibilidad de asumir o delegar sistemas de saneamiento, cuyo sistema de agua potable se encuentre siendo operado por otro prestador.
