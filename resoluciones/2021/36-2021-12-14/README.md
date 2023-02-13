@@ -14,3 +14,4 @@ Reforma Operaciones exentas relacionadas con las exportaciones establecidas en e
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-12-22 | la propia norma |
+| 2 | 2023-02-13 | Resolución 1 (2023-02-13) |

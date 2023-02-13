@@ -26,4 +26,5 @@ a) Los servicios de atención a la nave, entre los que se incluyen, entre otros,
 b) Servicios brindados para la atención de contenedores vacíos de exportación o importación acogidos al régimen de importación temporal. Estos servicios incluyen, entre otros, la carga y descarga de los contenedores, así como los servicios de transporte terrestre de los contenedores vacíos, incluyendo el trayecto de puerto al domicilio donde se encuentre ubicada la carga y viceversa.
 c) Servicios portuarios o aeroportuarios en general.
 d) Servicios de transporte de bienes destinados a la exportación, hacia los puertos, aeropuertos y fronteras terrestres, siempre que el transportista esté debidamente inscrito ante la Dirección General de Tributación y emita el comprobante electrónico correspondiente, aún en aquellos supuestos en que no se encuentre registrado como auxiliar de la función pública.
-e) Servicios de transporte de bienes destinados a la exportación, hacia su destino final, siempre que se tenga como respaldo la factura de exportación en la que conste el código del exportador."
+e) Servicios de transporte de bienes destinados a la exportación, hacia su destino final, siempre que se tenga como respaldo la Declaración Única Aduanera (DUA).
+(Así reformado el inciso anterior mediante resolución N° MH-DGT-RES-0001-2023 del 13 de febrero del 2023)
