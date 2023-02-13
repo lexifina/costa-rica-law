@@ -1,6 +1,6 @@
 # Ley de Desarrollo Social y Asignaciones Familiares
 
-Ley N° 5662 del 1974-12-23. SINALEVI, ficha 2687: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=2687&param2=130483&param3=1>.
+Ley N° 5662 del 1974-12-23. SINALEVI, ficha 2687: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=2687&param2=134709&param3=1>.
 
 Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit, fechada el día en que entró en vigor):
 
@@ -30,3 +30,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 22 de 30 | 2022-01-25 | Ley 10079 | 2021-12-15 |
 | 23 de 30 | 2022-03-30 | Ley 10108 | 2022-01-13 |
 | 24 de 30 | 2022-05-23 | Ley 10234 | 2022-05-04 |
+| 25 de 30 | 2023-02-13 | Ley 10206 | 2022-09-07 |
