@@ -1,2 +1,0 @@
-Artículo 5º—Coordinación entre los distintos ministerios.
-Corresponde al Consejo Técnico a través de la Dirección General de Aviación Civil y ésta mediante la Comisión, coordinar las acciones con los ministerios, para el establecimiento y cumplimiento de las disposiciones reglamentarias y normativas relacionadas con la protección de la salud de las personas, animales y de la conservación del ambiente.

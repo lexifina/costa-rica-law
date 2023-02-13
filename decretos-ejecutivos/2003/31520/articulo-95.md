@@ -1,2 +1,0 @@
-Artículo 95.—Obligatoriedad de cumplimiento del presente Reglamento por parte de los funcionarios públicos.
-Los funcionarios de los Ministerios de Agricultura y Ganadería, Salud Pública, Trabajo y Seguridad Social, Ambiente y Energía y Obras Públicas y Transportes deberán velar por el cumplimiento de lo aquí establecido en sus respectivos ámbitos de acción. Deberán además de notificar las anomalías o incumpliento de este Reglamento, al Consejo Técnico por medio de las vías administrativas respectivas o a través de su representante en la Comisión Asesora.

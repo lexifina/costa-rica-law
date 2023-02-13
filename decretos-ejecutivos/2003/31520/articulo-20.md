@@ -1,1 +1,0 @@
-Artículo 20.—Comunicación. La Dirección General de Aviación Civil a petición del interesado dará constancia de la aprobación de cada certificado de explotación agrícola y de los permisos de operación.

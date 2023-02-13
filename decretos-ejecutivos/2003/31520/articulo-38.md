@@ -1,2 +1,0 @@
-Artículo 38.—Responsabilidades generadas por la aplicación aérea de agroquímicos. El piloto será responsable de la técnica empleada en la aplicación aérea de agroquímicos y de evitar la aplicación o derrame sobre escuelas, casas, carreteras, ríos, quebradas, lagos, manglares o embalses.
-El dueño del cultivo o el contratante, será responsable del producto aplicado y sus efectos, su dosificación, mezcla, así como de retirar personas y de avisar a sus vecinos y colocar rótulos y pictogramas. En caso de incumplimiento se aplicarán las sanciones correspondientes.

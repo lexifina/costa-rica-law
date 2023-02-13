@@ -1,1 +1,0 @@
-Artículo 39.—Responsabilidades del operador. El operador es la persona física o jurídica responsable de que el personal auxiliar asignado realice en forma adecuada las labores de carga y descarga de los agroquímicos a las aeronaves, así como su lavado y de que los equipos de aplicación estén en óptimas condiciones.

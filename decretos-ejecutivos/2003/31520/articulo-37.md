@@ -1,1 +1,0 @@
-Artículo 37.—Obligatoriedad para los pilotos de adjuntar las copias de las recetas profesionales. Todo piloto debe adjuntar a su informe diario de labores las copias de las recetas profesionales que autorizan las aplicaciones de agroquímicos.

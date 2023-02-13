@@ -1,2 +1,0 @@
-Artículo 78.—Normas aplicables al lavado de aeronaves.
-Toda persona que realice el lavado de aeronaves, equipos y en caso de operadores privados, envases y utensilios empleados en la aplicación aérea de agroquímicos, es responsable solidariamente con el operador y con el dueño del campo, por la contaminación que pueda ocasionar y está sujeta a las penas que establece la Ley de Protección Fitosanitaria, Ley General de Salud y otras leyes conexas.

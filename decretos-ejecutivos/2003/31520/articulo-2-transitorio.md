@@ -1,2 +1,0 @@
-Transitorio 2º—Las empresas que al momento de la promulgación del presente Decreto cuenten con certificados que los habiliten para brindar servicios de trabajo agrícola, contarán con un plazo de un año para ajustarse a los lineamientos y requerimientos formales y técnicos que señala esta regulación.
-Dado en la Presidencia de la República.—San José, a los dieciséis días del mes de octubre del dos mil tres.

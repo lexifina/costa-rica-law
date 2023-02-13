@@ -1,2 +1,0 @@
-Artículo 25.—Prohibiciones. Se prohíbe efectuar actividades de aviación agrícola con carácter privado con aeronaves arrendadas en terrenos no autorizados; o con aeronaves propias en terrenos propios arrendados a terceras personas, que no contaren con el respectivo certificado de operación.
-El incumplimiento de la presente disposición dará lugar a que el Consejo Técnico revoque el permiso de operación otorgado, sin responsabilidad alguna para el Estado.

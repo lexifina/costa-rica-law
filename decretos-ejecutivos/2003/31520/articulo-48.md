@@ -1,2 +1,0 @@
-Artículo 48.—Obligatoriedad de inspección de aeronaves que hayan sido reparadas o sufrido modificaciones.
-Toda aeronave agrícolaque haya sido reparada o sufrido modificaciones en su estructura para el servicio en actividades de aviación agrícola no podrá reanudar sus actividades hasta tanto no haya sido inspeccionada y autorizada para tales fines por el Departamento de Aeronavegabilidad de la Dirección General.

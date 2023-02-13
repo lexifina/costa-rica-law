@@ -1,1 +1,0 @@
-Artículo 42.—Mantenimiento. Las aeronaves recibirán el mantenimiento debido de acuerdo con lo establecido por la Dirección General de Aviación Civil y conforme con lo establecido en el Programa de Mantenimiento aprobado por la autoridad del país que haya otorgado la matrícula respectiva.

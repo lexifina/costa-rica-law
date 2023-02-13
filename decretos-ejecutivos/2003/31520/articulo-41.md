@@ -1,3 +1,0 @@
-CAPÍTULO VI
-De los requerimientos de las aeronaves
-Artículo 41.—Requisitos de las aeronaves. Las aeronaves que se utilicen en aviación agrícola deberán tener matrícula nacional o extranjera y estar inscritas en el registro aeronáutico a nombre del propietario. En caso de arrendamiento de aeronaves por compañías de aviación agrícola comercial será necesario presentar la escritura pública del contrato de arrendamiento e inscribirse en el Registro Aeronáutico Costarricense. Dicho contrato será aprobado por el Director General de Aviación Civil. Para aeronaves con matrícula extranjera deberá presentarse un contrato de arrendamiento incluyendo los requerimientos del Estado de matrícula y ser inscrito en el Registro Aeronáutico Costarricense.

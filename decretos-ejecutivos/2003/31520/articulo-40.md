@@ -1,1 +1,0 @@
-Artículo 40.—Prohibición para desechar en vuelo los sobrantes o remanentes. Se prohíbe desechar en vuelo los remanentes de agroquímicos no utilizados. Al terminar el trabajo el piloto debe solicitar al personal de tierra descargar el tanque de la aeronave en un sistema de tratamiento debidamente aprobado por el Ministerio de Salud para este fin.

@@ -1,2 +1,0 @@
-Artículo 10.—Permiso de operación para actividades de aviación
-agrícola sin fines comerciales. La realización de actividades de aviación agrícola sin fines comerciales por parte de propietarios de aeronaves en terrenos propios o arrendados a su nombre, requiere del permiso de operación correspondiente, expedido por el Consejo Técnico de Aviación Civil conforme con el procedimiento establecido en la Ley General de Aviación Civil y las disposiciones del presente Reglamento.

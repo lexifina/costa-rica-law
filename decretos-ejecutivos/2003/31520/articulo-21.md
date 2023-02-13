@@ -1,1 +1,0 @@
-Artículo 21.—Seguros. El propietario de las aeronaves destinadas a la aviación agrícola debe garantizar, por medio de un seguro, el pago de las indemnizaciones correspondientes a los daños que las aeronaves en vuelo puedan causar a terceros o a bienes, según los artículos 102 y 271 de la Ley General de Aviación Civil.

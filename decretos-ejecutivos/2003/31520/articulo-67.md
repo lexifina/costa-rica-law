@@ -1,2 +1,0 @@
-Artículo 67.—Condiciones meteorológicas bajo las cuales debeefectuarse la aplicación de productos agroquímicos.
-La aplicación de productos químicos destinados a usos agrícolas se debe efectuar bajo óptimas condiciones meteorológicas y dentro de los períodos diurno o nocturno, siempre y cuando el operador cumpla con los requerimientos técnicos que la Dirección General establezca para la operación de fumigación.

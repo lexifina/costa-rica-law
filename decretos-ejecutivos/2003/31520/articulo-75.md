@@ -1,2 +1,0 @@
-Artículo 75.—Normas aplicables para evitar derramamientos en los tanques de almacenamiento de agroquímicos.
-Los tanques de almacenamiento de agroquímicos en las aeronaves deben tener un indicador externo del nivel de contenido, o en su defecto, la manguera utilizada en el llenado debe poseer un aditamento que se cierre automáticamente cuando el contenido del agroquímico haya alcanzado un nivel determinado. Para evitar derrames del mecanismo el cierre debe estar perfectamente ajustado.

@@ -1,2 +1,0 @@
-Artículo 68.—Prohibición de aspersión y polvoreo de plaguicidas en zonas acuíferas.
-Se prohíbe la aspersión y espolvoreo de plaguicidas sobre los diferentes cuerpos de agua (ríos, lagos, embalses, manantiales, esteros, pantanos, manglares, quebradas, lagunas, océanos, mares y estuarios). En cuanto a la protección de ríos y quebradas se acatará lo establecido en la Ley Forestal Nº 7575 y sus modificaciones.

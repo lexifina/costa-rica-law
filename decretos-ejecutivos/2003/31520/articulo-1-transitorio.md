@@ -1,2 +1,0 @@
-Disposiciones Transitorias
-Transitorio 1º—La Comisión Asesora para el Control y Regulación de las Actividades de la Aviación Agrícola, a que se refiere el Decreto Ejecutivo número 20305-MOPT-MAG-S-TSS actualmente integrada, se mantendrá en sus funciones por un año calendario a partir de la publicación del presente Decreto. Transcurrido ese término, se reintegrará la misma conforme a las disposiciones contenidas en el presente Decreto. Esta nueva comisión en un término de seis meses dictará un reglamento interno de funcionamiento.
