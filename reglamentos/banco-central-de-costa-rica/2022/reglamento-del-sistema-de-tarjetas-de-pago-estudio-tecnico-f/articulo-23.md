@@ -1,0 +1,7 @@
+CAPÍTULO VI
+DE LOS RECLAMOS
+Artículo 23. Reclamo del cliente ante el emisor. Los clientes podrán presentar al emisor el reclamo sobre transacciones de pago no autorizadas, a más tardar 120 días naturales después de la fecha de registro de la transacción de pago.
+Para tales fines, los emisores deberán disponer de canales ágiles, sin costo y de fácil acceso para la presentación del reclamo del cliente. Cada reclamo presentado por el cliente deberá contar con un número de gestión que permita al cliente solicitar información sobre el estado de su reclamo y hacer llegar cualquier otra información que estime relevante para el caso.
+El emisor dispondrá de 30 días naturales, contados desde la fecha de presentación del reclamo, para efectuar una investigación y responder al reclamante. Al finalizar dicho plazo, si el emisor no cuenta con las pruebas que demuestren que ha mediado dolo por parte del cliente, deberá devolverle inmediatamente la totalidad del monto reclamado.
+Mientras se encuentren en estado de investigación, los montos sujetos a reclamo no generarán ningún tipo de interés, costo, gasto, multa, comisión u otros cargos para el cliente, siempre y cuando el reclamo se resuelva a su favor.
+Es deber del emisor mediar en todo momento por los intereses del cliente. En ningún caso, el emisor podrá remitir al cliente con terceros proveedores o afiliados para resolver sus reclamos, ni supeditar la devolución de los fondos reclamados a la previa adquisición de un seguro.

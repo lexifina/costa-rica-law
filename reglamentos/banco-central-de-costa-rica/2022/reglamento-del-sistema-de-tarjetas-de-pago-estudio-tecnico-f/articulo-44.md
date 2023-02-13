@@ -1,0 +1,1 @@
+Artículo 44. Del cobro por la terminal de punto de venta. El adquirente podrá, adicional a las comisiones máximas de adquirencia, aplicar un cobro máximo mensual de 12.500 colones por el costo de la terminal de punto de venta requerida para operar.

@@ -1,0 +1,1 @@
+Artículo 5. De la norma complementaria. Para aquellos elementos del presente reglamento que requieran un mayor detalle técnico y operativo, se autoriza al director de la División Sistemas de Pago del BCCR para emitir y oficializar la norma complementaria y las normas técnicas correspondientes al sistema de tarjetas de pago.
