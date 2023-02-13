@@ -1,1 +1,2 @@
-Artículo 19.-Incumplimiento del contrato. El incumplimiento del trabajador dará lugar a la resolución del contrato. Esto a través de los procedimientos legales pertinentes y considerando las eventuales consecuencias civiles.
+Artículo 19.-Incumplimiento del contrato. El incumplimiento del contrato por parte del beneficiario, y de lo establecido en este Reglamento, se considerará infracción grave a la relación laboral, y por tanto causal de despido sin responsabilidad patronal. Lo anterior sin perjuicio de lo contemplado en el artículo 81 del Código de Trabajo y de aquellas responsabilidades de carácter administrativo, civil y penal, que pudieren generarse.
+(Así reformado mediante sesión ordinaria N° 141 del 13 de febrero del año 2023)

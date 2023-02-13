@@ -14,3 +14,4 @@ Reglamento para la aplicación del régimen de dedicación exclusiva y prohibici
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-06-23 | la propia norma |
+| 2 | 2023-02-13 | Reglamento municipal 141 (2023-02-13) |
