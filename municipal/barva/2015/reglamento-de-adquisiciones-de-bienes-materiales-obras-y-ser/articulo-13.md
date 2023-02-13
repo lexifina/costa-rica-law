@@ -1,3 +1,0 @@
-Artículo 13.—Adjudicación. El Concejo Municipal y la Alcaldía Municipal, adjudicarán los trámites de contratación según los siguientes rangos de acción:
-- Concejo Municipal: Las contrataciones realizadas por medio de procedimientos ordinarios o materias excluidas, cuya estimación contractual sea igual o superior a los límites inferiores establecidos por la Contraloría General de la República para los procedimientos de licitaciones públicas y abreviadas.
-- Alcaldía Municipal: Las contrataciones realizadas por medio de procedimientos ordinarios o materias excluidas, cuya estimación contractual se encuentre en el rango de los límites establecidos por la Contraloría General de la República, para los procedimientos de contrataciones directas, según el monto correspondiente.

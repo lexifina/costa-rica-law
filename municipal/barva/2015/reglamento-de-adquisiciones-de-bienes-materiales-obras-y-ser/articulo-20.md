@@ -1,4 +1,0 @@
-CAPÍTULO V
-Recepción, custodia temporal y distribución
-de materiales y bienes
-Artículo 20.—De la recepción y custodia temporal de materiales y bienes. Para la recepción de los materiales y bienes deberá llevarse un registro, en el cual deberán constar: las cantidades, características, naturaleza de los materiales y/o bienes y concordancia con lo adjudicado, constancia de recibido conforme, indicación del contratista o quien hace la entrega. El encargado de bodega será el responsable de establecer y llevar a cabo los procedimientos y controles para la adecuada recepción y almacenamiento o custodia temporal de los materiales y/o bienes, para asegurar un servicio eficiente a la Municipalidad de Barva.
