@@ -1,1 +1,0 @@
-Artículo 10.—La Sección de Gestión y Cobro deberá rendir informes trimestrales al Alcalde Municipal, o un informe específico cuando así lo soliciten, sobre las gestiones realizadas de cobro de las cuentas morosas y el estado en que se encuentren las acciones de cada gestión, a la fecha, tanto de cobro administrativo, como de cobro extrajudicial y judicial.
