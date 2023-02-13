@@ -1,0 +1,1 @@
+Artículo 7º-Criterio de aplicación de leyes conexas. Si no resulta aplicable la Ley contra el Acoso u Hostigamiento Sexual en el Empleo y la Docencia, N° 7476, del 3 de febrero de 1995, debido a las particularidades del caso, se deberá aplicar lo dispuesto en la Ley N° 10.235.

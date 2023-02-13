@@ -1,0 +1,1 @@
+Artículo 37.-Registro de sanciones. Para efectos de levantar un registro de sanciones de acceso público por violencia contra las mujeres en la política, la resolución final sancionatoria en firme deberá ser comunicada al Tribunal Supremo de Elecciones.
