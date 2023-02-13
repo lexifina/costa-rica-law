@@ -1,1 +1,0 @@
-Artículo 3°-Toda dependencia interesada en solicitar la adquisición de un bien, y cumpliendo con el artículo anterior, debe tramitar la "Orden de Pedido", indicando el artículo que se necesita, así como, especificando las características y calidades que se desean, para que el Departamento de Proveeduría proceda a efectuar la compra, con los trámites que esto conlleva.

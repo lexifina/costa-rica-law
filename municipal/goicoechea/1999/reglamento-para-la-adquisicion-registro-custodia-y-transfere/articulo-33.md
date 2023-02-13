@@ -1,1 +1,0 @@
-Artículo 33.-EI departamento de Contabilidad debe efectuar el cálculo y registro de los cargos por depreciación de todos los activos de la institución, conforme a los principios de contabilidad generalmente aceptados.

@@ -1,1 +1,0 @@
-Artículo 10.-EI departamento de Cómputo será responsable de colaborar con el suministro de un programa que cumpla con los requerimientos de registro y control. Así mismo velar por que se mantenga actualizado según sean las necesidades.

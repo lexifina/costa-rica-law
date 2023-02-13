@@ -1,1 +1,0 @@
-Artículo 22.-Los activos que se encuentran totalmente depreciados y no estén siendo utilizados, podrán ser donados, tal como lo estipula la Ley de Administración Financiera previo acuerdo del Concejo Municipal.

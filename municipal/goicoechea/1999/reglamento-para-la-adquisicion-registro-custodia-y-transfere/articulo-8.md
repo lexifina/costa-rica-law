@@ -1,1 +1,0 @@
-Artículo 8°-Para efectos del presente reglamento, se entenderá por usuario de un activo, aquel servidor de la institución a quien se le ha entregado un activo contra el formulario "Boleta de Entrega de Activos".
