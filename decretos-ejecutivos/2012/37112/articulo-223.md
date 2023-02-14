@@ -1,12 +1,2 @@
 INVERSIONISTAS Y SUS DEPENDIENTES
-Artículo 223.- La persona extranjera a la cual se le aprobó la permanencia temporal como inversionista y sus dependientes, podrá renovar bianualmente esta condición, para lo cual deberá aportar lo siguiente:
-a) Comprobante de pago a favor del Gobierno correspondiente al artículo 251 de la Ley.
-b) Comprobante de pago a favor del Gobierno por treinta dólares (US$30,00) o su equivalente en colones al tipo de cambio de referencia del Banco Central, correspondiente a la solicitud de documento de permanencia, según lo dispuesto en el artículo 252 de la Ley.
-c) Comprobante de pago a favor del Gobierno por treinta dólares (US$30,00) o su equivalente en colones al tipo de cambio de referencia del Banco Central, por la emisión del documento que acredite la permanencia legal , según lo dispuesto en el artículo 253 de la Ley.
-d) Comprobante de pago anual a favor del Gobierno por veinticinco dólares (US$25,00) el cual será destinado al Fondo Social de Migración, según lo dispuesto en el artículo 33 inciso 4) de la Ley.
-e) (Derogado por el artículo 1° del decreto ejecutivo N° 42389 del 17 de enero de 2022).
-f) (Derogado por el artículo 1° del decreto ejecutivo N° 42389 del 17 de enero de 2022).
-g) En caso de que la inversión haya sido por proyectos productivos o proyectos de interés nacionaldeberá aportar copia certificada de la declaración de impuesto sobre la renta ante la Dirección General de Tributación Directa u otra oficina habilitada para ese efecto, de los dos últimos periodos.
-h) En caso de que la inversión se haya otorgado por ser poseedor de un bien inmueble deberá aportar fotocopia certificada del comprobante del pago de impuestos municipales sobre bienes e inmuebles y pago de impuesto solidario de Tributación Directa. En caso de que la inversión se realizó sobre bienes muebles,deberá aportar el comprobante de pago de impuestos correspondiente.
-i) En caso de que la inversión se haya otorgado por ser dueño (a) de acciones y valoresdeberá aportar certificación emitida por notario público, con vista en libro de accionistas donde se compruebe que mantiene las acciones o valores a su nombre.
-j) En el caso de las inversiones de plantaciones forestales deberá aportar informe del Regente Forestal, sobre el avance del proyecto según lo indicado en el Plan de Manejo Forestal y copia certificada de la declaración de impuesto sobre la renta ante la Dirección General de Tributación Directa u otra oficina habilitada para ese efecto, de los dos últimos periodos.
+Artículo 223.- (Derogado por el artículo 31 del Reglamento a la Ley N° 9996, Ley para la atracción de inversionistas, rentistas y pensionados, aprobado mediante decreto ejecutivo N° 43926 del 14 de febrero del 2023)

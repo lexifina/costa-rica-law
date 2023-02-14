@@ -1,5 +1,1 @@
-Artículo 92.- En caso de que la inversión se realice en plantaciones forestalesde conformidad con el artículo 70 de la Ley Forestal N° 7575, deberá aportar los siguientes requisitos:
-a) Certificación por contador público autorizado, donde se compruebe que la persona extranjera realizó una inversión inicial de $100 mil dólares, asimismo, deberá proyectar en dicha certificación, el valor total de la inversión, según lo establecido en el Plan de Manejo Forestal.
-b) Copia de la resolución de aprobación del Plan de Manejo de Inversión, en actividades de establecimiento, manejo y aprovechamiento en Plantaciones Forestales. El Plan de Manejo debe estar programado a un plazo mínimo de 3 años, donde se establezca la inversión mínima inicial de $100 cien mil dólares de conformidad con el artículo 70 de Ley 7575.
-c) Copia Certificada del contrato del Regente Forestal.
-d) Copia certificada o en su defecto original y copia para ser confrontada por funcionario público, de los permisos municipales y de la SETENA, si fuesen necesarios por la naturaleza del proyecto.
+Artículo 92.- (Derogado por el artículo 31 del Reglamento a la Ley N° 9996, Ley para la atracción de inversionistas, rentistas y pensionados, aprobado mediante decreto ejecutivo N° 43926 del 14 de febrero del 2023)

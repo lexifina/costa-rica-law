@@ -1,2 +1,2 @@
 INVERSIONISTAS Y SUS DEPENDIENTES
-Artículo 87.- Para la solicitud de residencia temporal como inversionista, la persona extranjera interesada deberá demostrar su inversión con un capital no inferior a US$200.000.00 (doscientos mil dólares) según el tipo de cambio oficial de venta que determine el BCCR, ya sea en bienes inmuebles, bienes inscribibles, acciones, valores y proyectos productivos o proyectos de interés nacional. En aquellos casos que la inversión se regule mediante Leyes especiales, será analizado de manera individual.
+Artículo 87.- (Derogado por el artículo 31 del Reglamento a la Ley N° 9996, Ley para la atracción de inversionistas, rentistas y pensionados, aprobado mediante decreto ejecutivo N° 43926 del 14 de febrero del 2023)

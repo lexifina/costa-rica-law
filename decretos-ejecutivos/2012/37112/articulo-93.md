@@ -1,1 +1,1 @@
-Artículo 93.- La persona extranjera a la que se le otorgue la residencia temporal como inversionista y sus dependientes no podrán realizar ninguna labor manual o intelectual remunerada.
+Artículo 93.- (Derogado por el artículo 31 del Reglamento a la Ley N° 9996, Ley para la atracción de inversionistas, rentistas y pensionados, aprobado mediante decreto ejecutivo N° 43926 del 14 de febrero del 2023)
