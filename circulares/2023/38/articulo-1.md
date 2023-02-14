@@ -1,0 +1,43 @@
+CIRCULAR N° 38-2023
+ASUNTO: Uso del Formulario "Compromiso de Confidencialidad y Privacidad de la Información del Expediente Judicial (para las personas estudiantes de Derecho).
+A LAS INSTITUCIONES EDUCATIVAS, COLEGIO
+DE ABOGADAS Y ABOGADOS, SERVIDORAS,
+SERVIDORES JUDICIALES Y PÚBLICO
+EN GENERAL
+SE LES HACE SABER QUE:
+El Consejo Superior del Poder Judicial en sesión 02- 2023 celebrada el 12 de enero de 2023, artículo XXXVIII, aprobó el informe N° 1100-PLA-OI-2022 del 18 de noviembre de 2022, del Subproceso de Organización Institucional de la Dirección de Planificación, sobre los lineamientos para el Uso del Formulario "Compromiso de Confidencialidad y Privacidad de la Información del Expediente Judicial (para las personas estudiantes de Derecho).
+Lo anterior, a fin de garantizar la efectiva protección de los datos sensibles, conforme lo establecido en la Ley de Protección de la Persona Frente al Tratamiento de sus Datos Personales, por lo que deberá utilizarse en forma obligatoria el formulario adjunto, el cual, deberá ser rellenado y suscrito por las y los estudiantes de Derecho que sean autorizados por sus profesores para consultar un expediente judicial.
+Se adjunta el citado formato, el cual se podrá acceder en el siguiente link: https://secretariacorte.poder-judicial.go.cr/index.php/documento s?download=5309:compromisode-confidencialidad-y-privacidad-de-la-informacion-del-expediente-judicial
+(Nota de Sinalevi: El Formulario "Compromiso de Confidencialidad y Privacidad de la Información del Expediente Judicial (para las personas estudiantes de Derecho, se extrajo del sitio Web del Nexus Poder Judicial, y se transcribe a continuación:)
+[imagen] Compromiso de Confidencialidad y Privacidad de la Información del Expediente Judicial (para las personas estudiantes de Derecho).
+A fin de garantizar la efectiva protección de los datos sensibles, conforme lo establecido en la Ley de Protección de la Persona Frente al Tratamiento de sus Datos Personales, deberá utilizarse en forma obligatoria este formulario, el cual, deberá ser rellenado y suscrito por las y los estudiantes de Derecho que sean autorizados por sus profesores para consultar un expediente judicial.
+Yo, (nombre y apellidos de la persona estudiante) ______________, cédula _______________, estudiante de derecho de la Universidad__________ del curso ___ impartido por la persona docente _______________, por medio de la firma del presente documento, expreso de manera voluntaria, libre e informada los siguientes compromisos:
+1. A mantener la privacidad y la confidencialidad de la información que contienen los expedientes judiciales y de los documentos a los que pueda tener acceso en el desarrollo de la revisión de expedientes judiciales, fundamentalmente en lo que corresponde a datos sensibles o de uso restringido.
+2. A emplear la información de datos sensibles o de uso restringido que obtenga para fines exclusivamente académicos.
+3. A no trascender la información que obtenga en lo que corresponde a datos sensibles o de uso restringido a terceros.
+4. A despersonalizar los nombres de partes y testigos en cualquier documento o actividad académica con motivo de la investigación realizada.
+5. A adoptar medidas de prevención de uso, custodia y trasiego de la información recopilada en los dispositivos de almacenamiento y equipos tecnológicos en donde la misma sea guardada, para evitar que la misma sea modificada o destinada otros usos distintos a los fines académicos señalados.
+6. A que cualquier tratamiento de los datos personales de partes y testigos sea realizado de manera responsable, aplicando el deber de confidencialidad, absteniéndose de emitir sesgos subjetivos, descalificantes, discriminatorios, contrarios a la dignidad humana o falsos de tener la necesidad de ser empleados en sus actividades académicas.
+Todo lo anterior en cumplimiento de las normativas institucionales, nacionales e internacionales que regulan la protección de los datos.
+De acuerdo con lo establecido en la Ley N.º 8968 “Ley de Protección de la Persona Frente al Tratamiento de sus Datos Personales”, las personas que forman parte de los procesos judiciales tienen derecho a que se les garantice el respeto a sus derechos fundamentales, concretamente, el derecho a la autodeterminación informativa en relación con su vida o actividad privada, al derecho a la intimidad, así como a la confidencialidad de toda la información sensible que pudiera existir en los expedientes judiciales que se tramiten bajo la custodia del Poder Judicial, y que nadie pueda acceder a ella sin previa autorización.
+La persona estudiante de derecho suscribiente del presente documento acepta y es conocedora de lo siguiente:
+1. Que las partes y testigos y cualquier persona que sea mencionada en un expediente judicial son los titulares de la información personal que conste de ellos.
+2. Que el presente compromiso no implica que la persona estudiante tenga acceso a aquellos expedientes en que por existir normativa especial y por la materia respectiva, exista ley que impida acceso a terceros no autorizados por las partes a todo o parte de los mismos.
+3. Que una persona servidora judicial podrá eventualmente negar el acceso a determinadas piezas del expediente o información cuando esta contenga información sensible de poblaciones tuteladas por el ordenamiento jurídico o comprometan el resultado del proceso.
+4. Que es conocedora de la existencia de una responsabilidad subjetiva personal legal y ética de proteger y mantener la privacidad, la confidencialidad de la información de las personas que son parte de los procesos judiciales.
+5. Que el incumplimiento del presente compromiso puede resultar en responsabilidad civil o penal por todos los daños y perjuicios que se deriven para el Poder Judicial o terceros por posibles acciones legales en contra de esta Institución, como consecuencia del incumplimiento doloso o culposo de las obligaciones que le corresponden a la persona estudiante, según el presente documento.
+6. Que dicho deber de confidencialidad subsistirá aún después de haber finalizado la revisión del expediente y que la información recabada sólo podrá ser usada para fines académicos y no podrá ser compartida con terceros con otros fines distintos, ya sea por medios físicos o electrónicos.
+7. Que las personas titulares de la información que constan en expedientes judiciales tienen el derecho de saber quienes y cuando han accedido a su información personal.
+He leído el acuerdo de confidencialidad y privacidad de la información y acepto cumplir con todos los términos del Poder Judicial; con la firma del presente compromiso, declaro que conozco y comprendo la obligación de guardar la confidencialidad acerca de todos los datos e informaciones de acceso restringido o datos sensibles que puedan consignarse en los expedientes tramitados en instancias jurisdiccionales, y a los que voy a tener acceso con la revisión del expediente judicial número ____________________ que se tramita en __________________ (despacho judicial).
+Advertencias:
+a) La persona estudiante de derecho suscribiente del presente documento acepta y es conocedora que el incumplimiento total o parcial del presente compromiso autoriza al Poder Judicial a poner en conocimiento de la respectiva Universidad en donde aquella estudie la situación presentada, a efecto de que adopte las medidas que procedan conforme a su régimen particular.
+b) La persona estudiante de derecho suscribiente del presente documento se compromete a dar una copia del presente compromiso a la persona docente del curso que originó el estudio del o los expedientes judiciales a que se refiere el mismo.
+c) El Poder Judicial se reserva la posibilidad de no brindar acceso a un expediente electrónico si se determinar que el respectivo dispositivo electrónico en donde se pretende su almacenamiento no reúne suficientes condiciones de seguridad para los sistemas institucionales.
+Nombre, apellidos y firma de la persona estudiante. ___________________
+Nombre, apellidos y firma del profesor (a) que autoriza al estudiante. _________
+Nº de carné del Colegio de Abogados del profesor (a). ___________________
+Fecha de la revisión del expediente judicial. ___________________
+Número del expediente judicial. ___________________
+Pla.Rev., (10-2022), Depto. de Artes Gráficas, OT. xxxx, F-441-Addendum
+De conformidad con la circular N° 67-09 emitida por la Secretaría de la Corte el 22 de junio de 2009, se le comunica que en virtud del principio de gratuidad que rige esta materia, la publicación está exenta de todo pago de derechos. Publíquese una sola vez en el Boletín Judicial.
+San José, 14 de febrero de 2023.
