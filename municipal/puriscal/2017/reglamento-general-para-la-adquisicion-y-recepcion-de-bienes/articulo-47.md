@@ -1,5 +1,0 @@
-Artículo 47.— Procedimiento para la atención de casos de ejecución inmediata en vías de comunicación.
-Para la atención de casos de ejecución inmediata en vías de comunicación, la Unidad Técnica de Gestión Vial Municipal creará un expediente en el cual se aporte un perfil del caso a atender, acompañado de fotografías o cualquier otro medio que justifique la atención urgente en imprevisible, para lo cual la proveeduría municipal aplicará lo indicado en el artículo 139. K. del RLCA, pudiendo en todo caso de acuerdo a la planificación de la Unidad Técnica de Gestión Vial, previa solicitud podrá también realizar un procedimiento de precalificación para obtención de bienes y servicios para atender este tipo de situaciones.
-Vigencia: Este reglamento entrará en vigencia una vez que sea aprobado por el Concejo Municipal mediante acuerdo en firme y publicado en el Diario Oficial La Gaceta, y deroga cualquier reglamento sobre el tema aprobado con anterioridad por la Municipalidad de Puriscal.
-Acuerdo firme Nº041232017, de la sesión ordinaria 123, celebrada por el Concejo Municipal del Cantón de Puriscal, el 30 de noviembre del 2017.
-Puriscal, 04 de diciembre del 2017.
