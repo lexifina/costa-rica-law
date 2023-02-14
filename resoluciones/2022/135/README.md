@@ -14,3 +14,4 @@ Medidas para operativizar temporalmente la aplicación a la Ley General de Contr
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-12-08 | la propia norma |
+| 2 | 2023-02-14 | Resolución 24 (2023-02-14) |
