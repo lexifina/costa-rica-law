@@ -1,0 +1,13 @@
+Artículo 22º- De la gestión del etiquetado ambiental y energético.
+Corresponderá a cada Dirección del MINAE que ejecute un programa de etiquetado ambiental o energético permanente, gestionar este programa nacional en el área de su competencia con la mayor eficiencia. Para lograr lo anterior, cada dirección ejecutora del MINAE de un programa de etiquetado ambiental o energético permanente será responsable de:
+a- Recomendar la elaboración de normas técnicas o reglas de categoría de producto según corresponda, para que estas sean elaboradas por parte del Ente Nacional de Normalización.
+b- Desarrollar los mecanismos para la actualización y mejora continua de los procesos asociados con la entrega de las etiquetas indicadas en el presente Acuerdo.
+c- Crear y mantener actualizado el registro de productos que tienen vigente una EACR o una EECR, como se especifica en el presente Acuerdo.
+d- Apoyar a las organizaciones a las que se le aprobó el derecho uso de una EACR o una EECR con el fin de promover el etiquetado ambiental y energético y el mejoramiento continuo de sus procedimientos aplicados.
+e- Gestionar, otorgar, monitorear y retirar el uso de las EACR o las EECR cuando corresponda. El retirar el uso de alguna etiqueta se dará en caso de incumplimiento de lo establecido en el presente Acuerdo o del Reglamento de Uso de las etiquetas ambientales y energéticas.
+f- Hacer de conocimiento público, el retiro del uso de las EACR o las EECR que no cumplan con lo establecido en este Acuerdo, por medio de publicación en los sitios web de las Direcciones del MINAE participantes en este programa, según corresponda, sin detrimento que también se pueda hacer apoyándose en otros medios.
+g- Velar por el cumplimiento del presente acuerdo en lo que respecta a su área de competencia.
+h- Velar por el cumplimiento de lo establecido en el artículo 25 de este Acuerdo.
+i- Analizar y resolver las solicitudes de permiso temporal para ejercer como organismos de certificación, laboratorios de análisis para evaluar criterios solicitados en las normas técnicas de etiquetado ambiental según lo dispuesto en el presente acuerdo u organismos verificadores para realizar evaluaciones temporales de etiquetado ambiental o energético amparadas al transitorio incluido en este Acuerdo para tal efecto.
+j- Resolver las consultas sobre etiquetado ambiental o energético que el jerarca del MINAE quiera realizar a las Direcciones encargadas de ejecutar programas permanentes de etiquetado ambiental o energético.
+k- Cualquier otra necesaria para la debida implementación de las condiciones y estipulaciones consagradas en el presente acuerdo y que así sea determinada por el ministro del MINAE.

@@ -1,0 +1,1 @@
+Artículo 29º- Derogatoria. Deróguese el Acuerdo 006-2019-MINAE denominado "Programa Nacional de Etiquetado Ambiental y Eficiencia Energética de Costa Rica y Creación del Comité Técnico de Etiquetado Ambiental y Energético" del 22 de febrero de 2019, publicado en la Gaceta 87 del 13 de mayo de 2019, en el alcance 106.

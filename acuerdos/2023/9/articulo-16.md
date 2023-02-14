@@ -1,0 +1,2 @@
+Artículo 16º- Evaluaciones de cumplimientos para otorgar las EACR y las EECR.
+Con el fin de garantizar la independencia, credibilidad, objetividad y estabilidad de las evaluaciones que se realicen para otorgar las EACR o las EECR, las evaluaciones para demostrar el cumplimiento de lo establecido en las normas voluntarias o las reglas de categoría de producto según corresponda, serán realizadas por organismos de certificación de producto u organismos verificadores debidamente acreditados ante el ECA o de forma supletoria por lo establecido en el presente Acuerdo.

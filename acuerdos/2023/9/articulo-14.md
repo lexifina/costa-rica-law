@@ -1,0 +1,4 @@
+Artículo 14º- Evaluación de la conformidad de productos que soliciten las EACR o las EECR.
+a. Las auditorías para demostrar el cumplimiento de los requisitos de aquellos productos que soliciten el uso de una etiqueta ambiental o de eficiencia energética, deben ser realizadas por organismos de tercera parte acreditados en la norma correspondiente o de forma supletoria, por lo establecido en los transitorios del presente acuerdo.
+b. Se realizarán auditorías de seguimiento (parciales) por parte del organismo de certificación u organismo de verificación, según corresponda, al menos en forma anual, para demostrar el cumplimiento de las condiciones bajo las que fue otorgado el uso de la etiqueta ambiental o energética.
+c. El OC o el OV según corresponda deberá de notificar al AP el resultado obtenido de las auditorias de seguimiento realizadas o la no realización de la misma.

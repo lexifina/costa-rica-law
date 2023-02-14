@@ -1,0 +1,5 @@
+Artículo 11º- Requisitos generales para participar en el Programa Nacional de Etiquetado Ambiental y Energético
+Toda persona física o jurídica interesada en obtener el uso de las etiquetas ambientales y energéticas de Costa Rica, deberá cumplir con los siguientes requisitos generales:
+a. Cumplimiento de las características propias de desempeño del producto: el que solicite una EACR o una EECR según corresponda, deberá demostrar el cumplimiento de las características propias de desempeño del producto a evaluar.
+Lo anterior de acuerdo con lo definido en las normas del Ente Nacional de Normalización que serán indicadas en el sitio web de las respectivas direcciones encargadas de programas de etiquetado en el MINAE.
+b. Cumplimiento de la normativa legal obligatoria: aquellos productos que soliciten una EACR o una EECR, deben demostrar el cumplimiento de la normativa legal obligatoria ya sea ambiental o energética que le sea atinente, mediante una declaración jurada cuyo formato estará a disposición de los interesados en las respectivas Direcciones del MINAE que cuentan con los programas de etiquetado ambiental o energético.
