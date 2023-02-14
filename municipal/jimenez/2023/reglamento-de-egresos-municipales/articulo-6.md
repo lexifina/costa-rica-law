@@ -1,0 +1,1 @@
+Artículo 6º-En todos los demás casos, el Titular de la Alcaldía debe solicitar la autorización del Concejo Municipal previo a la realización del desembolso, de lo contrario contraviene las disposiciones vigentes y los artículos 6, 7 y 8 de la Ley de Administración Financiera.
