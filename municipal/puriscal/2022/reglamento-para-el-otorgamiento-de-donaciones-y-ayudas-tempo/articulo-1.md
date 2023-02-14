@@ -1,5 +1,5 @@
 MUNICIPALIDAD DE PURSICAL
-URSICAL
+(Nota de Sinalevi: Mediante el artículo 34 del Reglamento interno de contratación públicas de la Municipalidad de Puriscal, aprobado en sesión N° 228 del 14 de febrero de 2023, se acordó reformar la presente norma conforme a lo estipulado por la Ley General de Contratación Administrativa y su reglamento)
 ALCALDÍA
 Actualización de Reglamentos
 La Municipalidad de Puriscal comunica y ratifica la segunda publicación de los siguientes reglamentos: 1. Para el otorgamiento de donaciones y ayudas temporales, 2. Estacionamiento de vehículos en las vías públicas del cantón, 3. Donación o venta de bienes muebles declarados en mal estado o desuso, 4. Licencias temporales y estacionarias, 5. Cobros Administrativos y Judiciales.

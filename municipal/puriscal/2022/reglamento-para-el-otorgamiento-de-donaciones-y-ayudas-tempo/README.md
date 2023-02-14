@@ -14,3 +14,4 @@ Reglamento para el otorgamiento de donaciones y ayudas temporales
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-10-07 | la propia norma |
+| 2 | 2023-02-14 | Reglamento municipal 228 (2023-02-14) |
