@@ -29,3 +29,4 @@ Reglamento Interno para la Utilización, Adquisición y Sustitución de Vehícul
 | 14 | 2018-05-10 | Reglamento 2 (2018-05-10) |
 | 15 | 2020-11-26 | Reglamento 134 (2020-11-26) |
 | 16 | 2023-01-17 | Reglamento 32 (2023-01-17) |
+| 17 | 2023-02-14 | Reglamento 36 (2023-02-14) |
