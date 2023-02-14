@@ -15,3 +15,4 @@ Reglamento autónomo de organización y funcionamiento del Comité Cantonal de D
 | --- | --- | --- |
 | 1 | 2020-09-24 | la propia norma |
 | 2 | 2021-10-26 | Reglamento municipal 78 (2021-10-26) |
+| 3 | 2023-02-14 | Reglamento municipal 146 (2023-02-14) |

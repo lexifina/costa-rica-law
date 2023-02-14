@@ -18,4 +18,9 @@ n) Entregar trimestralmente al Concejo Municipal un informe económico y de labo
 o) Autorizar la firma de los convenios que resulten necesarios para construir, administrar y mantener las instalaciones deportivas de su propiedad u otorgadas en administración y los demás convenios que resulten necesarios para el cumplimiento de sus objetivos.
 p) Nombrar, sancionar y remover al Administrador si existiere, conforme a la normativa establecida en el Código Municipal, Ley General de la Administración Pública, éste Reglamente, el Código de Trabajo y demás normativa vigente y supletoria aplicable.
 q) Nombrar y sancionar en su oportunidad, a los empleados del Comité, conforme a la normativa establecida en el Código Municipal, Ley General de la Administración Pública, este Reglamente, el Código de Trabajo y demás normativa vigente aplicable.
-r) Cualquier otra propia de su competencia.
+r) Trasladar mediante acuerdo de Junta Directiva la solicitud y documentación necesaria para todas las compras del Comité Cantonal y Sub Comités Distritales ante el departamento de Proveeduría Municipal con el objetivo de que las compras se realicen mediante el programa SICOP. Si existiera nombrado un administrador deportivo como parte de la estructura del Comité Cantonal, este podrá tramitar directamente todas las compras aprobadas por la junta directiva en el Plan Anual de compras.
+(Así adicionado el inciso anterior en sesión N° 146 del 14 de febrero de 2023)
+s) Designar mediante acuerdo en firme el funcionario del CCDR responsable de tramitar y gestionar todas las compras del Comité Cantonal y Subcomités de Deportes a realizarse por medio de la plataforma SICOP, dicha designación deberá ser comunicada a la administración Municipal a efectos de cualquier coordinación necesaria con el funcionario.
+(Así adicionado el inciso anterior en sesión N° 146 del 14 de febrero de 2023)
+t) Cualquier otra propia de su competencia.
+(Así modificada la numeración adiiconado del inciso anterior en sesión N° 146 del 14 de febrero de 2023, que lo traspaso del inciso r) al inciso t))
