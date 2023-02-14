@@ -1,0 +1,1 @@
+Artículo 4°-Todas las personas que opten permiso laboral, estarán sujetas a la verificación de que no cuentan con antecedentes penales en Costa Rica o en algún otro país, mediante la confrontación en las bases de datos de información judicial nacional o internacional, con el objetivo de garantizar la seguridad nacional y el desarrollo productivo del país.

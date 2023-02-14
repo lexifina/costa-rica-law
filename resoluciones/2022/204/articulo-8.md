@@ -1,0 +1,1 @@
+Artículo 8°-Conforme lo establecido en el numeral 221 de la Ley General de Migración y Extranjería contra la resolución que rechace el permiso laboral de persona solicitante de refugio no tendrá recursos.
