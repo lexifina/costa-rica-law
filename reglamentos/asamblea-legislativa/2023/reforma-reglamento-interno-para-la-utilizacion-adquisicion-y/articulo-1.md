@@ -2,13 +2,16 @@ N° 010 22-23
 LA ASAMBLEA LEGISLATIVA
 DE LA REPÚBLICA DE COSTA RICA
 En sesión ordinaria N° 032-2022 celebrada por el Directorio Legislativo el 17 de enero del 2023, se tomó el acuerdo que, en lo que interesa, a continuación transcribo:
-Artículo 15.- (…)
+Artículo 15.- (.)
 Por lo tanto,
 SE ACUERDA:
 I. Aprobar las siguientes reformas al "Reglamento Interno para la Utilización, Adquisición y Sustitución de Vehículos en la Asamblea Legislativa", para que diga de la siguiente forma:
 1. Modificar el Capítulo I, Artículo 3º, Inciso 3.4 para que se lea de la siguiente manera:
 3.4. Unidad de Transportes. La Unidad de Transportes tiene como función principal la administración de los vehículos de uso discrecional y administrativo, por indicación directa del Directorio Legislativo, de la Dirección Ejecutiva o del Departamento de Servicios Generales, según se indica en este reglamento. Además, velará por la administración responsable del uso de los vehículos.
-3.5. Unidad de Seguridad y Vigilancia. Será el encargado, por medio del centro de monitoreo, de controlar el sistema de rastreo satelital (GPS) para la seguridad de las personas que viajen en los vehículos institucionales.
+3.5. Departamento de Proveeduría. Sera?el encargado, en coordinación con el Departamento de Servicios Generales y la Unidad de Transportes, de realizar en forma periódica los tramites de contratación de los diferentes proveedores para la adquisición, mantenimiento y reparación, de los vehículos de la Institución.
+(Así reformado el punto anterior mediante sesión ordinaria Nº 036-2022 del 14 de febrero del 2023)
+3.6. Área de Seguridad. Será la encargada, por medio del centro de monitoreo, de controlar el sistema de rastreo satelital (GPS) para la seguridad de las personas que viajen en los vehículos institucionales.
+(Así adicionado el punto anterior mediante sesión ordinaria Nº 036-2022 del 14 de febrero del 2023)
 2. Modificar el Capítulo V, Artículo 15 para que se lea de la siguiente manera:
 Artículo 15.- Requisitos de la solicitud de transporte.
 Cada diputado o departamento de la Asamblea Legislativa que requiera los servicios de transporte, deberá realizarla en forma digital a través de la red de cómputo institucional, en el Sistema Automatizado de Transportes. El solicitante deberá digitar toda la información requerida por el sistema en forma detallada.

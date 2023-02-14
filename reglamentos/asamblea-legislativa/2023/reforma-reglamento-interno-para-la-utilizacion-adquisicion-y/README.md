@@ -14,3 +14,4 @@ Reforma Reglamento interno para la utilización, adquisición y sustitución de 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-01-26 | la propia norma |
+| 2 | 2023-02-14 | Reglamento 36 (2023-02-14) |
