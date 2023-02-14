@@ -16,3 +16,4 @@ Reglamento de Ingresos y Egresos
 | 1 | 2002-07-22 | la propia norma |
 | 2 | 2008-01-15 | Reglamento municipal 141 (2008-01-15) |
 | 3 | 2013-11-12 | Reglamento municipal 309 (2013-11-12) |
+| 4 | 2023-02-14 | Reglamento municipal 228 (2023-02-14) |
