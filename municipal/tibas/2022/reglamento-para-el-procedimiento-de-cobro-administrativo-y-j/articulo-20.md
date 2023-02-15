@@ -1,0 +1,1 @@
+Artículo 20.-Formalización del arreglo de pago. La formalización del arreglo de pago se realizará ante la Gestión de Cobros Municipal, única competente para realizar esta gestión, mediante la suscripción del documento idóneo que tendrá dicha Oficina para tales efectos, siempre y cuando el sujeto pasivo haya cumplido con los requisitos que esta Oficina exija para tal gestión.
