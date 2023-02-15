@@ -1,0 +1,1 @@
+Artículo 14.-Cualquier alteración o modificación de las aceras o vías peatonales en cuanto a geometría, anchos, niveles, acabados, materiales y demás elementos inherentes a la construcción original, deberá ajustarse a los lineamientos del Manual del Espacio Público y contar con previa autorización de la Actividad Control Constructivo.

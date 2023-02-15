@@ -1,0 +1,1 @@
+Artículo 27.-El Subproceso Planificación Urbana elaborará el Manual del Espacio Público, el cual será de uso vinculante en el proceso de notificación e inspección, construcción de obra nueva o mantenimiento de infraestructura de movilidad que realice la Municipalidad; así como en el proceso de otorgamiento de permisos de construcción.

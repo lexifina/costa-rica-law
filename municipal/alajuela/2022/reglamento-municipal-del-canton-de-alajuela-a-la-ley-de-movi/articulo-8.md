@@ -1,0 +1,1 @@
+Artículo 8º-Los elementos que se pretendan colocar en el paso de los transeúntes, siempre que no lo limiten y que pretendan generar remuneración económica a los interesados, como vallas publicitarias MUPI's, acrónimos o similares, así como todos los contemplados en la Ley de Utilización de Espacios Públicos, deberán contar con una licencia o patente municipal, según corresponda.

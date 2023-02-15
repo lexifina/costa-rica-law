@@ -1,0 +1,1 @@
+Artículo 23.-El Subproceso Planificación Urbana realizará el diagnóstico del tipo y calidad de las aceras del Cantón prevaleciendo la prioridad establecida en el Plan Regulador Cantonal vigente, el mismo será desarrollado utilizando la metodología del IFAM para determinar el índice de Movilidad Activa o caso contrario deberá utilizarse una metodología similar a la indicada.

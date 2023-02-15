@@ -1,0 +1,1 @@
+Artículo 9º-Los criterios de diseño, requerimientos y necesidades serán establecidos por el Subproceso Planificación Urbana, mediante el Manual del Espacio Público, en tanto que la gestión de la solicitud del permiso de construcción corresponderá a la Actividad Control Constructivo.

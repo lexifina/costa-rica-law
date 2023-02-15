@@ -1,0 +1,1 @@
+Artículo 11.-El ancho mínimo de circulación de transeúntes será definido en el Manual del Espacio Público, y el mismo deberá mantenerse libre de toda obstrucción. En dicho caso, cualquier actividad que se desarrolle en el espacio público debe contar con la correspondiente autorización de la Municipalidad, incluyendo el acuerdo del Concejo Municipal que así lo faculte.

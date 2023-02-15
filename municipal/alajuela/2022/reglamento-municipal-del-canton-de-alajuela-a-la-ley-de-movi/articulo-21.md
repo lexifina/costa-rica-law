@@ -1,0 +1,4 @@
+Capítulo IV
+Capital de trabajo
+Artículo 21.-La Municipalidad dispondrá como capital de trabajo, para la construcción de obras que faciliten la movilidad peatonal, e incorporarlo dentro del plan quinquenal y del plan anual operativo; el cinco por ciento (5%) de los recursos provenientes de la Ley 7509, Impuesto sobre Bienes Inmuebles, de 9 de mayo de 1995, el cual se irá reduciendo de forma escalonada en un uno por ciento (1%) anual hasta llegar a un mínimo de un uno por ciento (1%) de forma permanente.
+Además, podrá disponer de los fondos indicados en el inciso b) del artículo 5 de la Ley 8114, Ley de Simplificación y Eficiencia Tributarias, de 4 de julio de 2001 y Ley 9329, Primera Ley Especial para la Transferencia de Competencias: Atención Plena y Exclusiva de la Red Vial Cantonal, de 15 de octubre de 2015.

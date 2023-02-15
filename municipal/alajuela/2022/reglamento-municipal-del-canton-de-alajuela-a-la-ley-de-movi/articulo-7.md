@@ -1,0 +1,1 @@
+Artículo 7º-Toda entidad pública o privada que pretenda realizar obras de infraestructura de movilidad y colocación de cualquier tipo de mobiliario urbano en zonas destinadas al paso de transeúntes en vías cantonales, previo a cualquier intervención, deberá contar con la aprobación municipal a través de la Actividad Control Constructivo.

@@ -1,0 +1,2 @@
+Artículo 42.-La Municipalidad podrá establecer facilidades de pago respecto del cobro efectivo de las obras nuevas de aceras, cuando estas hayan sido realizadas como parte de proyectos municipales financiados con el capital de trabajo dispuesto en el artículo 83 de la Ley N° 7794 Código Municipal y se encuentren en las áreas definidas bajo los criterios de priorización establecidos a partir de este Reglamento.
+Para tales efectos, deben cumplirse las formalidades y requisitos dispuestos por la Actividad Gestión de Cobro de la Municipalidad de Alajuela".

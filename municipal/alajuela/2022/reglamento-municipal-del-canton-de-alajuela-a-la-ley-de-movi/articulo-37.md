@@ -1,0 +1,1 @@
+Artículo 37.-La Municipalidad de Alajuela está facultada para realizar las labores de construcción de "obra nueva de acera" de forma directa, con el fin de garantizar la accesibilidad y la seguridad de todas las personas, previa notificación al propietario, conforme al debido proceso.

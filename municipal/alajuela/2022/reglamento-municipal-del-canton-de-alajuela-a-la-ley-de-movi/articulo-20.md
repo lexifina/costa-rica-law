@@ -1,0 +1,1 @@
+Artículo 20.-En la Municipalidad de Alajuela, la planificación, diseño, construcción, mantenimiento y rehabilitación de las obras de infraestructura peatonal se realizarán de acuerdo con las labores propuestas en el Plan Quinquenal del Subproceso Gestión Vial, según el artículo 17 de este reglamento.

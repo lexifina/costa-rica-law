@@ -1,0 +1,1 @@
+Artículo 25.-El Subproceso Planificación Urbana elaborará los análisis de niveles de servicio de las aceras, utilizando la normativa técnica y la reglamentación vigente, considerando los intereses de movilidad urbana y sostenible de la ciudad.

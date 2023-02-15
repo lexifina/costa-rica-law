@@ -1,0 +1,1 @@
+Artículo 33.-En el caso de inmuebles que constituyan bien único de los sujetos pasivos (personas físicas) y tengan un valor máximo equivalente a cuarenta y cinco salarios base establecidos en el artículo 2 de la Ley 7337, de 5 de mayo de 1993, se cobrará un cincuenta por ciento (50%) de la tasa correspondiente.
