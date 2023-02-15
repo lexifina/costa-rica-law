@@ -1,0 +1,1 @@
+Artículo 23.-Registro presupuestario. La Auditoría Interna, en colaboración con la dependencia responsable del control del presupuesto institucional, mantendrá un registro de asignación presupuestaria detallado por objeto del gasto.

@@ -1,0 +1,1 @@
+Artículo 17.-Actualización del ámbito de acción. La Auditoría Interna mantendrá actualizado y detallado su ámbito de acción por dependencias y procesos, con la colaboración de la administración activa en lo que corresponda.

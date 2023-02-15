@@ -1,0 +1,1 @@
+Artículo 40.-Acceso a informes. La tramitación de los servicios de auditoría contemplados en esta sección es de acceso restringido hasta la emisión del informe final correspondiente, una vez cumplidos los plazos indicados en los artículos 36 y 37 de la Ley General de Control Interno.

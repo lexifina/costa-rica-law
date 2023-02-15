@@ -1,0 +1,1 @@
+Artículo 33.-Servicios de advertencia. Consisten en prevenir a la administración activa, por escrito, sobre los posibles riesgos y consecuencias de determinadas conductas o decisiones que resulten del conocimiento de la Auditoría Interna. El proceder y la legalidad de lo actuado por la administración activa será objeto de verificación por la Auditoría Interna.

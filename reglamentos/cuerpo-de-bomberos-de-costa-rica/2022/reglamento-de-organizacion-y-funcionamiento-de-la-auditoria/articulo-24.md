@@ -1,0 +1,1 @@
+Artículo 24.-Asesoría. Cuando así lo requiera la Auditoría Interna, las direcciones, unidades, áreas y demás dependencias del BCBCR, brindarán un oportuno y efectivo servicio de asesoría en sus ámbitos de actividad.

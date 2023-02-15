@@ -1,0 +1,1 @@
+Artículo 2°-Ámbito de aplicación. El presente Reglamento resulta vinculante para todos los funcionarios de la Auditoría Interna y, en lo que les resulte aplicable, para los demás colaboradores del Benemérito Cuerpo de Bomberos de Costa Rica.

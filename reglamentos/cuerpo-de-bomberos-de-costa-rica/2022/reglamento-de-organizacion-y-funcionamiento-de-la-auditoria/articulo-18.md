@@ -1,0 +1,1 @@
+Artículo 18.-Archivo de la Auditoría Interna. La Auditoría Interna dispondrá del archivo pertinente para el correcto desarrollo de su actividad, organizándolo de conformidad con las necesidades que dicta la técnica aplicable.
