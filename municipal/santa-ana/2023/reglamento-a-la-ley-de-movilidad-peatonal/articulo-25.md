@@ -1,0 +1,1 @@
+Artículo 25.-Infraestructura o trabajos de servicios públicos. La acera debe ser respetada por las instituciones y empresas que brindan servicios públicos, en caso de que se encuentre obstrucción, se notificará a la empresa o institución correspondiente, que debe remover la obstrucción y dejar la acera en las condiciones en que la encontró.

@@ -1,0 +1,1 @@
+Artículo 15.-Otros deberes. Durante los trabajos de mantenimiento, rehabilitación o construcción de aceras, la persona propietaria o poseedora debe solicitar permiso para el cierre temporal de la acera y establecer una ruta alterna que complete el espacio caminable y accesible como alternativa segura durante toda la intervención.

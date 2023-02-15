@@ -1,0 +1,1 @@
+Artículo 7º-Plazo para iniciar los trabajos. El plazo para iniciar los trabajos de mantenimiento, rehabilitación o construcción de aceras será de quince días hábiles. El cual iniciará a partir del día hábil siguiente de la notificación del acto administrativo que gira la orden de hacer obra nueva de acera.

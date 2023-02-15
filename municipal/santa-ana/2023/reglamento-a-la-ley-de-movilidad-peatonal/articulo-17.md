@@ -1,0 +1,1 @@
+Artículo 17.-Casos de excepción de reembolso. De manera excepcional, la Municipalidad podrá eximir del cobro por concepto de obra nueva de aceras cuando se demuestre, mediante un estudio socioeconómico realizado por la Municipalidad, que las personas propietarias o poseedoras, carecen de recursos económicos suficientes.

@@ -1,0 +1,3 @@
+Artículo 39.-Capital de trabajo. La Municipalidad dispondrá de los siguientes rubros como capital de trabajo, para la construcción de obras que faciliten la movilidad peatonal y lo incorporará dentro de la planificación anual y dentro del plan quinquenal:
+a. Del 5% de los recursos provenientes de la Ley de Impuesto sobre Bienes Inmuebles 7509, el cual se irá reduciendo de forma escalonada en un uno por ciento (1 %) anual hasta llegar a un mínimo de un uno por ciento (1 %) de forma permanente.
+b. De los fondos indicados en el inciso b) del artículo 5 de la Ley de Simplificación y Eficiencia Tributarias 8114 y la Primera Ley Especial para la Transferencia de Competencias: Atención Plena y Exclusiva de la Red Vial Cantonal 9329.
