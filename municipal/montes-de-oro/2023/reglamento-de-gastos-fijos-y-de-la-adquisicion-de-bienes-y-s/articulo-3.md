@@ -1,0 +1,1 @@
+Artículo 3º-Los contratos producto de todos los procedimientos de contratación pública serán firmados por el Alcalde Municipal, quien de conformidad con el artículo 17 inciso n) del Código Municipal, ejerce la representación legal de esta Corporación Municipal.
