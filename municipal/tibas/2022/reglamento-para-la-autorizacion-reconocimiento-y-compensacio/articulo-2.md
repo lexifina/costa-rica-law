@@ -1,0 +1,15 @@
+Artículo 2º-Definiciones. Para los efectos del presente Reglamento, se entenderá por:
+a) Municipalidad: Municipalidad de Tibás, integrada por el Despacho del Alcalde, las Direcciones, Departamentos, Secretaría, Auditoría Interna y Oficinas.
+b) Alcalde (sa): Alcalde (sa) de Tibás.
+c) Patrono: Municipalidad de Tibás o Administración.
+d) Funcionario: Aquella persona que preste sus servicios materiales, intelectuales o ambos a favor de la Municipalidad, en forma permanente o transitoria, a cambio de una retribución o salario a nombre y por cuenta de la Municipalidad.
+e) Recursos Humanos: El Departamento de Recursos Humanos de la Municipalidad de Tibás.
+f) Tiempo de trabajo efectivo: Es el tiempo efectivo máximo que él o la funcionaria está al servicio de la Administración, realizando labores propias de su cargo, en condiciones de subordinación y dependencia como resultado de un nombramiento conforme el inciso d) del presente artículo, dentro de una jornada ordinaria o extraordinaria.
+g) Jornada ordinaria: Servicio efectivo de un funcionario que no podrá ser mayor de ocho horas diurnas, siete horas mixtas o seis horas nocturnas, conforme la legislación laboral vigente, salvo que se trate de trabajos que por su propia condición no sean insalubres o peligrosos, que requieran una jornada ordinaria diurna hasta de un máximo de diez horas o una mixta hasta de ocho horas, siempre que el trabajo semanal no exceda de las cuarenta y ocho horas, conforme al artículo 136 del Código de Trabajo.
+h) Jornada extraordinaria: Trabajo efectivo de un funcionario que exceda la jornada ordinaria, que se ejecute en razón de trabajos eminentemente ocasionales y que no corresponda a subsanación de errores imputables al funcionario. La jornada extraordinaria sumada a la ordinaria, no podrá exceder de doce horas, conforme al artículo 140 del Código de Trabajo.
+i) Horas extraordinarias previsibles: El tiempo extraordinario requerido por las diferentes Direcciones o Departamentos, que pueda ser establecido en virtud de proyectos o actividades programadas con anticipación en el lapso de un año calendario.
+j) Horas extraordinarias imprevisibles: El tiempo extraordinario que deba ser laborado ante la imperiosa necesidad de la Administración, que por su naturaleza resulten imposibles de prever, sin que excedan del límite diario de cuatro horas adicionales a la jornada ordinaria y de ciento veinte horas al mes.
+k) Horas con valor sencillo: Las horas que han sido laboradas en día sábado, domingo, feriados, asueto o descanso y que no han sobrepasado la jornada ordinaria, según corresponda.
+l) Horas con valor a tiempo y medio: Las horas que se laboran después de la jornada ordinaria y que suma de ambas jornadas no sobrepase doce horas diarias, o cuatro horas después de la jornada ordinaria.
+m) Horas con valor doble: Las horas que sobrepasan la jornada ordinaria que han sido laboradas en días feriados.
+n) Siniestro o riesgo inminente: Circunstancia excepcional, derivada de una situación imprevisible para la Municipalidad o sus funcionarios, que pueda causar grave perjuicio al cumplimiento de cualquiera de sus funciones.
