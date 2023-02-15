@@ -1,0 +1,2 @@
+Transitorio II.-Para cumplir con lo dispuesto en los artículos 11 sobre las acciones preventivas a cargo de la Alcaldía y artículo 12, sobre las acciones preventivas a cargo del Concejo Municipal, se establece un plazo de hasta seis meses a partir de la entrada en vigor del presente reglamento.
+Acuerdo N° 15° inciso A, de la sesión ordinaria N° 143 celebrada por el Concejo Municipal de Jiménez el 23 de enero de 2023. Publíquese en el Diario Oficial La Gaceta.
