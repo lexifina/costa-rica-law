@@ -1,2 +1,0 @@
-Artículo 10.—Cobro judicial. Agotados los trámites del cobro administrativo, se iniciarán las gestiones de Cobro Judicial, a cargo de la Unidad de Administración de Cobro.
-En caso de contratarse externamente los servicios de la Unidad de Administración de Cobro Administrativo y Judicial con cualquiera de las instituciones financieras del Estado, esta será la responsable de todo lo referente a la gestión de cobro administrativo y judicial, con total apego a lo dispuesto en el presente reglamento.

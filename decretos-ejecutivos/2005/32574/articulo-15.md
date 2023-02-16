@@ -1,6 +1,0 @@
-Artículo 15.—Suspensión provisional del proceso judicial. La suspensión provisional es la orden escrita que dé JUDESUR al ente u órgano encargado del cobro judicial, de no realizar gestión alguna en la tramitación de un proceso, durante un plazo no mayor a cuarenta y cinco días naturales, incluyendo la prórroga.
-La suspensión provisional del proceso judicial deberá ser fundamentada y emitida en los siguientes casos:
-a) Cuando se acepte una propuesta de pago por escrito de los obligados en el crédito.
-b) Cuando lo autorice la junta directiva, dirección ejecutiva o cualquier otro funcionario autorizado por la junta directiva para tal efecto.
-c) Cuando se suscriba un arreglo de pago y se cuente con elementos suficientes para la formalización del mismo. En caso de duda en el avance del proceso judicial de la operación, se consultará al ente ejecutor del cobro, si conviene o no a los intereses de la institución la suspensión provisional.
-En caso de incumplimiento se continuará con la tramitación normal del proceso, no siendo posible el otorgamiento de un nuevo arreglo si no media el pago de todos los gastos administrativos y judiciales, honorarios y todo tipo de carga financiera indispensables para la regularización.
