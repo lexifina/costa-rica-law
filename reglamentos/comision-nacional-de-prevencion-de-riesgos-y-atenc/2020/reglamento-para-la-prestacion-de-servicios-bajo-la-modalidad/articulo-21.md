@@ -1,3 +1,2 @@
-Artículo 21. Vigencia. El presente reglamento rige a partir de su publicación en el Diario Oficial La Gaceta.
-2. Se instruye a la Dirección Ejecutiva para que proceda con la publicación del respectivo Reglamento.
-Acuerdo aprobado.
+Artículo 21.-Normas supletorias. Forman parte del marco jurídico del Teletrabajo en la CNE la Ley N° 9738 "Ley para regular el Teletrabajo" de 18 de setiembre de 2019, publicado en La Gaceta N° 184 del 30 de setiembre del 2019; y su reglamento Decreto Ejecutivo N° 42083-MP-MTSS-MIDEPLAN-MICITT, "Reglamento para regular el Teletrabajo", publicado en La Gaceta N° 286 a La Gaceta N° 243, de viernes 20 de diciembre del 2019. Los aspectos no regulados serán resueltos de conformidad con las regulaciones propias de la relación de empleo público aplicables a los servidores de la CNE.
+(Así modificada su numeración en sesión N° 03 del 16 de febrero de 2023, que lo traspaso del antiguo artículo 20 al 21)

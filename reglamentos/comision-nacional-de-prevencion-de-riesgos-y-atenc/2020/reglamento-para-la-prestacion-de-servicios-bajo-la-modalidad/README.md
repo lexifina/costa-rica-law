@@ -14,3 +14,4 @@ Reglamento para la prestación de servicios bajo la modalidad de teletrabajo de 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-04-05 | la propia norma |
+| 2 | 2023-02-16 | Reglamento 3 (2023-02-16) |
