@@ -1,0 +1,1 @@
+Artículo 4º-Carácter excepcional del gasto: Se determinará la procedencia del gasto observando los principios de austeridad y probidad, entendiendo que el mismo sólo procede en los casos estrictamente necesarios y ocasionales, cuyo gasto no pueda considerarse superfluo.

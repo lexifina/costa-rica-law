@@ -1,0 +1,6 @@
+Artículo 2º-Definiciones: Para la interpretación correcta del presente reglamento se establecen las siguientes definiciones:
+a) Alimento: Incluye toda sustancia o producto natural o elaborado, destinado a la nutrición del organismo humano, que al ser ingerido facilite al organismo los elementos necesarios para su mantenimiento y desarrollo, así como todo aquel que, sin tener tales propiedades, se consuma por hábito o agrado. Se consideran alimentos, para los mismos efectos, los aditivos alimentarios, que es toda sustancia o producto natural o elaborado, que poseyendo o no cualidades nutritivas, se adicione a los alimentos para coadyuvar, modificar o conservar sus propiedades.
+b) Bebida: Sustancia líquida que se ingiere.
+c) Gastos de alimentación: Son los egresos en los que puede incurrir la Municipalidad, para el pago de alimentos y/o bebidas de las personas asistentes a las actividades de índole institucional que así lo requieran.
+d) Los principios de austeridad, racionalidad, eficacia y eficiencia se interpretarán según las definiciones que establecen las Normas Técnicas sobre Presupuestos Públicos emitidas por la Contraloría General de la República.
+e) Actividades institucionales: actividades organizadas por alguna unidad administrativa, comisiones, regidurías o jerarcas de la Municipalidad de Moravia.

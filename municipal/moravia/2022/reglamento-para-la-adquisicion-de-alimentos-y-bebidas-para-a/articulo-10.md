@@ -1,0 +1,1 @@
+Artículo10.-Sanciones: En caso de comprobarse incumplimiento a las disposiciones de este reglamento, el funcionario responsable está en la obligación de reintegrar la totalidad de lo asignado, sin perjuicio de las sanciones disciplinarias que podrían serle impuestas según el ordenamiento jurídico.
