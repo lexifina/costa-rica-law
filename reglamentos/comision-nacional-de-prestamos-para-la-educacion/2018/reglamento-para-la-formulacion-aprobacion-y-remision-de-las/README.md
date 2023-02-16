@@ -14,3 +14,4 @@ Reglamento para la formulación, aprobación y remisión de las variaciones al p
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-03-13 | la propia norma |
+| 2 | 2023-02-16 | Reglamento 5 (2023-02-16) |
