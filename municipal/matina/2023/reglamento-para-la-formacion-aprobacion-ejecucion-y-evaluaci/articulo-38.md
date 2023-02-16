@@ -1,0 +1,2 @@
+Artículo 38.- Todos los egresos estarán sujetos a la disponibilidad del flujo de caja.
+Conforme lo establece los artículos N° 7 y 8, de la "Ley de Contratación Administrativa" y su Reglamento y el artículo N° 112 del "Código Municipal", para iniciar el procedimiento de contratación administrativa, es obligatorio contar con recursos presupuestarios suficientes para asumir la erogación respectiva, sin embargo, no es necesario tener los recursos líquidos depositados en las cuentas de caja única para iniciar este proceso.

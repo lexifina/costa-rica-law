@@ -1,0 +1,2 @@
+Artículo 18.- Las unidades municipales deben entregar con la solicitud de recursos financieros la programación para su ejecución.
+La programación de los recursos financieros comprende la definición de objetivos, metas (acciones, proyectos), período de ejecución, persona responsable y estimación del gasto, todo de conformidad con lo dispuesto en este reglamento y el Manual para la Formulación, Ejecución y Evaluación del Plan-Presupuesto de la Municipalidad de Matina.

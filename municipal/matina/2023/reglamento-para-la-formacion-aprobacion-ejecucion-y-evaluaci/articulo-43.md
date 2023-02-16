@@ -1,0 +1,1 @@
+Artículo 43.- Los cambios de las metas propuestas, el uso de los saldos de las sub partidas y el traslado de los recursos entre sub partidas, partidas y programas solo podrán ser autorizados por el Concejo Municipal, siguiendo las normas establecidas en el reglamento para el trámite de modificaciones de la Municipalidad de Matina.

@@ -1,0 +1,1 @@
+Artículo 13.- La jefatura financiera es la responsable de elaborar el Plan Operativo según las normas técnicas vigentes, así como el Estudio de Viabilidad Financiera y los indicadores de gestión. A más tardar el 30 de agosto de cada año
