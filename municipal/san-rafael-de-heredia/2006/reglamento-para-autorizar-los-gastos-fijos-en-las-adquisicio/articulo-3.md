@@ -1,1 +1,0 @@
-3º—El gobierno municipal estará compuesto por un cuerpo deliberativo denominado Concejo e integrado por los regidores que determine la ley, además, por un alcalde y sus respectivos suplentes, todos de elección popular.

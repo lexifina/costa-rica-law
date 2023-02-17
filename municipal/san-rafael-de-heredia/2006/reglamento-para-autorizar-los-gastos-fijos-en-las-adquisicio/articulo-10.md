@@ -1,1 +1,0 @@
-10.—Los funcionarios administrativos y/o operativos de la Municipalidad, no pueden ser contratados por servicios técnicos o profesionales, para remunerar funciones adicionales, de la misma naturaleza, de su contratación laboral.

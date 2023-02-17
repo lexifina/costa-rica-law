@@ -1,1 +1,0 @@
-15.—En casos de contratación o adquisición de bienes y servicios que superen los doscientos mil colones sin céntimos (¢200.000,00), es necesario para la sana administración y control, pedir al menos tres cotizaciones como mínimo, deberán solicitarse en forma escrita y que ello debe constar en el expediente respectivo.

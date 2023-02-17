@@ -1,1 +1,0 @@
-11.—En los procedimientos de contratación administrativa que promueva la Municipalidad, están inhibidos de participar como oferentes, en forma directa o indirecta, las personas que se indican en el artículo 22º de la Ley de Contratación Administrativa.
