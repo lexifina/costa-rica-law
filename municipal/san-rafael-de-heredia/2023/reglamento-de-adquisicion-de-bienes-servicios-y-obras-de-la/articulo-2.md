@@ -1,0 +1,28 @@
+Artículo 2º-Definiciones. Para los efectos del presente Reglamento se entiende por:
+Bien: Todo objeto mueble o inmueble, material o inmaterial, susceptible de satisfacer las necesidades del interés público.
+Servicio: Conjunto de actividades, que por su naturaleza son intangibles y que, contratados por personas físicas o jurídicas a la institución, para el desarrollo de las actividades municipales.
+Obra pública: Se denomina obra pública a todos los trabajos de construcción, ya sean infraestructuras o edificación, promovidos por la Municipalidad de San Rafael, teniendo como objetivo el beneficio de la comunidad.
+Meta Presupuestaria: Es el contenido económico que se le da a los Bienes, servicios y obras, que fueron aprobados en los presupuestos que se realizan a través del año económico.
+Unidades Usuarias: Corresponde a aquellas dependencias que tienen un meta presupuestario asignado y que por lo tanto está autorizado para tramitar Bienes, servicios y obras por medio de la unidad encargada.
+Proveeduría Municipal: Unidad encargada de tramitar, en estricto apego de la norma, las contrataciones de Bienes, servicios y obras que solicite las unidades usuarias.
+Tesorero Municipal: Unidad encargada de avalar el contenido presupuestario que tienen las unidades usuarias para la adquisición de Bienes, servicios y obras.
+Alcalde Municipal: Jerarca Administrativo, que aprueba el inicio de la contratación de Bienes, servicios y obras.
+Sistema digital unificado: Según lo establece la Ley General de Contratación Pública vigente, toda actividad de contratación pública deberá realizarse por medio del sistema digital unificado, será único y centralizará todos los procedimientos de contratación de todas las entidades, y su administración estará a cargo de la Dirección de Contratación Pública.
+Inicio de Procedimiento de Contratación: Inicio del trámite de contratación, emitido e ingresado en el sistema digital unificado por la unidad usuaria, en donde se expresa la finalidad de la contratación en forma explícita y detallada, los recursos presupuestarios con que se atenderán las obligaciones derivadas de la contratación, se manifiesta que la Administración cuenta con los recursos humanos y la infraestructura administrativa suficiente para verificar el cumplimiento de la contratación.
+Contenido Presupuestario: Es la certificación que emite el Tesorero Municipal por medio del cual da fe que la contratación cuenta con recursos económicos, se solicita mediante un sistema digital y así mismo se devuelve la aprobación con firmas digitales.
+Detalle de Especificaciones Técnicas para el Procedimiento de Contratación: Documento donde se plasma detalladamente todos los detalles del concurso, requisitos de admisibilidad, detalles técnicos, evaluaciones, entregas, vigencia, entro otros detalles importantes para tomar en cuenta en la contratación.
+Umbrales para determinar el procedimiento de contratación: Es el monto económico establecido para determinar el tipo de contratación que debe seguirse, conforme Ley General de Contratación Pública vigente.
+Ley General de Contratación Pública vigente: Se definirá con las siglas LGCP, es la ley que rige la materia de contratación pública, sin dejar de lado la Constitución Política, la Ley General de la Administración Pública y/o cualquier otra ley o reglamento que tenga injerencia en el tema.
+Reglamento de la Ley General de Contratación Pública: Se definirá con las siglas RLGCP, es el reglamento específico hecho para la LGCP, deberá actualizarse constantemente, por lo tanto, es de revisión continua.
+Comisión de Compras: Órgano encargado de asesorar a las Autoridades Superiores de la Municipalidad de San Rafael de Heredia en el análisis y recomendación de las adjudicaciones que por su naturaleza lo requiera, para lo cual la Administración deberá regular su estructura y funcionamiento conforme a la reglamentación.
+Análisis de Ofertas: Es la revisión de los cumplimientos de las ofertas conforme a lo establecido en el Pliego de condiciones.
+Evaluación de las ofertas: Es la aplicación del sistema de evaluación establecido en el pliego de condiciones, de las ofertas que cumplieron en la primera fase del análisis de la oferta.
+Estudio legal: Verificación del cumplimiento de todos los aspectos de legalidad establecidos en el pliego de condiciones.
+Estudio técnico: Verificación del cumplimiento de todos los aspectos técnicos del objeto contractual u objetos contractuales solicitados en el pliego de condiciones.
+Adjudicación: Es el acto final una vez analizadas y evaluadas las ofertas, que reflejará el ganador o ganadores del proceso de contratación.
+Revocación o Apelación al acto de adjudicación: Los oferentes podrán interponer un recurso de revocatoria o apelación, dentro de los días siguientes a la comunicación del acto de adjudicación, demostrando porque no están de acuerdo en el mismo.
+Formalización contractual: La Municipalidad acatará las directrices establecidas en la Ley General de Contratación Pública y el pliego de condiciones.
+Contrato y Orden de Compra: Es cuando la contratación está totalmente formalizada y ya se puede dar inicio a la ejecución contractual.
+Inicio de ejecución Contractual: Una vez formalizada la contratación la unidad usuaria procederá a emitir una decisión de inicio de ejecución al contratista para la entrega del bien, servicio u obra contratada.
+SIAC: Sistema Integrado de la Actividad Contractual, es el sistema de registro de contrataciones de la Contraloría General de la República.
+Actividad Ordinaria: Es aquella que la administración por su constante tráfico y relación inmediata con los usuarios resulta claramente incompatible con los procedimientos concursales de contratación.

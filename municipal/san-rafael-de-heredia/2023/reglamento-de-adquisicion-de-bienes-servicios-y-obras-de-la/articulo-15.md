@@ -1,0 +1,1 @@
+Artículo 15.-La unidad usuaria será responsable de realizar el estudio técnico y evaluación de las ofertas recibidas en el proceso de contratación de Bienes, servicios y obras respectivo. También deberá informar mediante un oficio dirigido a la proveeduría la recomendación de adjudicación.

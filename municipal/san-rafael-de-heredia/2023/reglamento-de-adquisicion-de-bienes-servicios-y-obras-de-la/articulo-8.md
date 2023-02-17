@@ -1,0 +1,1 @@
+Artículo 8º-El Alcalde Municipal será responsable de convocar a la Comisión de Compras, cuando el proceso de contratación requiere asesoría especial para la toma de decisiones. Dicha Comisión, estará conformada por el Alcalde Municipal, Financiero, Legal, Proveeduría, dos miembros nombrados por el Concejo Municipal y la Unidad usuaria referida al proceso de contratación a tratar.
