@@ -1,0 +1,1 @@
+Artículo 14: Uso del espacio público La corporación municipal determinará, respetando el ancho mínimo de circulación libre de obstáculos, el permiso de uso espacial del espacio público para actividades.

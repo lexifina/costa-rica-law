@@ -1,0 +1,1 @@
+Artículo 8: La Municipalidad ejecutará las obras de reparación o sustitución de manera directa, de forma tal que el servicio no se vea afectado, conforme el artículo 16 de la Ley de Movilidad Peatonal N°9976.

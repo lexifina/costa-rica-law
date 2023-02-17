@@ -1,0 +1,1 @@
+Artículo 12: La Municipalidad podrá eliminar cualquier obstáculo existente en la vía pública peatonal que dificulte o interrumpa de alguna forma la movilidad peatonal, Conforme al artículo 17 de la Ley de Movilidad Peatonal N°9976, esto previa notificación única a la persona propietaria o poseedora.
