@@ -1,1 +1,0 @@
-Artículo 10.—En un plazo máximo de diez días hábiles, contados a partir de la recepción de la solicitud de registro, la Municipalidad tiene que emitir la resolución respectiva. Si se incumple ese plazo, se tendrá por aceptada la inclusión en el Registro de Proveedores.

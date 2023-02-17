@@ -1,1 +1,0 @@
-Artículo 16.—Cuando se suspenda o excluya a un proveedor del Registro respectivo, se le dará un plazo de cinco días hábiles para que realice su defensa. Pasado este lapso, quedará en firme la resolución.
