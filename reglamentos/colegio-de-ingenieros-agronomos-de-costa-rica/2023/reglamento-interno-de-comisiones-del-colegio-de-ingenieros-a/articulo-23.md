@@ -1,0 +1,1 @@
+Artículo 23.-Los representantes del Colegio ante comisiones externas a éste deberán presentar ante el Secretario de la Junta Directiva, un informe de sus labores en forma semestral en los meses de junio y diciembre de cada año y cuando dicha Junta Directiva lo solicite.

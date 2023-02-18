@@ -1,0 +1,1 @@
+Artículo 4º-Las comisiones permanentes estarán integradas por el número de colegiados que la Junta Directiva considere necesarios, siendo dicho número impar; al menos uno de sus integrantes será miembro de la Junta Directiva, si ésta así lo determina.

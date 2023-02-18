@@ -1,0 +1,2 @@
+Artículo 17.-El quórum de las comisiones permanentes y de las consultivas estará formado por la presencia de la mayoría absoluta de sus miembros. El Secretario llevará un registro de asistencia de sus miembros de cada reunión.
+Los acuerdos de las comisiones requerirán mayoría absoluta de los miembros presentes; excepto la declaración de la firmeza de los acuerdos, que requerirá el voto del setenta y cinco por ciento de los miembros presentes. En caso de empate en la aprobación de un acuerdo el Coordinador tendrá derecho a ejercer doble voto.

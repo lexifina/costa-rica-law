@@ -1,0 +1,1 @@
+Artículo 25.-La administración del Colegio deberá brindar todo el apoyo logístico necesario para realización de las reuniones y otras actividades de las comisiones, previa solicitud del Coordinador o de la persona designada por éste para tal gestión.

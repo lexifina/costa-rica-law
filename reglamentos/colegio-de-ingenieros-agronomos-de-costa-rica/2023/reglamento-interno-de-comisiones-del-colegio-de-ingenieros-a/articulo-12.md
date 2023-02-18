@@ -1,0 +1,1 @@
+Artículo 12.-El Secretario de cada comisión sea permanente o consultiva, deberá elaborar una ayuda memoria de cada reunión, en la que consten todos los acuerdos tomados. La misma será firmada en conjunto con el Coordinador de la comisión y deberá ser custodiada por el Secretario.

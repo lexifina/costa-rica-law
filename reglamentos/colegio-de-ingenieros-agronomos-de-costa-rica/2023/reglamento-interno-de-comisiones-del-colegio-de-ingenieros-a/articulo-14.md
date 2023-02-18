@@ -1,0 +1,1 @@
+Artículo 14.-En la primera sesión ordinaria cada comisión permanente deberá definir el día y la hora de celebración de este tipo de sesiones. El Secretario de la comisión deberá enviar por escrito o vía electrónica los puntos de la agenda a tratar con una anticipación de por lo menos dos días hábiles previos a la fecha de la reunión.

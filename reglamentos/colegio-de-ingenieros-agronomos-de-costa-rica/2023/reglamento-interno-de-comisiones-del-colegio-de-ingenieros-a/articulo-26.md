@@ -1,0 +1,1 @@
+Artículo 26.-En aquellos casos en que el Coordinador de la comisión lo estime necesario, podrá solicitar el apoyo de cualquier otro órgano del Colegio, si se trata de asuntos relacionados con la actividad asignada a la Comisión.

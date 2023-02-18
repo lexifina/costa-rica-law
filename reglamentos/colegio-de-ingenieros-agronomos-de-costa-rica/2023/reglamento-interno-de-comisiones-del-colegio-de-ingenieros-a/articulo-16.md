@@ -1,0 +1,1 @@
+Artículo 16.-Si previo a la realización de una sesión formalmente convocada, sea de una comisión permanente o consultiva, se determina que la misma no se puede realizar por cualquier motivo, la misma podrá ser desconvocada por el Secretario ya sea por escrito, por vía electrónica o vía telefónica, con al menos veinticuatro horas de antelación.

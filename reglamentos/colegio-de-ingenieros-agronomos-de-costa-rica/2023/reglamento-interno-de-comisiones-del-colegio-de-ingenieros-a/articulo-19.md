@@ -1,0 +1,1 @@
+Artículo 19.-El Coordinador de la comisión permanente estará en la obligación de informar a la Junta Directiva del Colegio, cuando no se efectúan dos reuniones ordinarias consecutivas, ante lo cual la Junta Directiva del Colegio, previo análisis de la situación podrá realizar un cambio parcial o total de los miembros de la comisión por el resto de período legal.

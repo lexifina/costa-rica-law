@@ -1,0 +1,1 @@
+Artículo 5º-Los integrantes de las comisiones permanentes serán nombrados por un período de dos años y podrán ser reelectos por igual término, para períodos subsiguientes. La integración de estas comisiones la hará la Junta Directiva durante el primer trimestre del año que corresponde con la elección del Presidente de la Junta Directiva.

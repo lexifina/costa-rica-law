@@ -1,0 +1,1 @@
+Artículo 2º-Las comisiones permanentes y las consultivas tienen el propósito fundamental de brindar asesoría, apoyo y colaboración a la Junta Directiva del Colegio, para la toma de decisiones en los aspectos de su competencia.

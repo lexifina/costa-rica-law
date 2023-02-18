@@ -1,0 +1,1 @@
+Artículo 30.-El secretario de Junta deberá llevar un registro detallado y vigente de todas las comisiones que funcionan en el Colegio tanto en Sede Central como filiales, en el que se indique: nombre de la comisión, tipo de comisión, Sede, integrantes, coordinador, período de vigencia.

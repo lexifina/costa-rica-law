@@ -1,0 +1,5 @@
+Artículo 20.-Las reuniones de las comisiones permanentes o consultivas podrán realizarse a través de medios electrónicos, para facilitar la participación de miembros o integrantes que radican en lugares distantes, para lo cual se establecen los siguientes requisitos:
+- El sistema tecnológico o medio de comunicación deberá permitir la plena identificación de todos los miembros de la comisión que intervienen.
+- Deberá garantizarse la conservación y autenticidad de lo deliberado y acordado.
+- La participación será en tiempo real y no diferido, de tal manera que permita a todas las personas que participan en la reunión, escuchar y comunicarse entre sí al mismo tiempo y de forma permanente.
+- Deberá indicarse de modo expreso, los medios y formas mediante los cuales todo lo expresado garantiza la bidireccionalidad en tiempo real, del envío y recepción de datos, que permita de modo simultáneo la deliberación, justo como si se estuviera en presencia física entre personas en una discusión plena e inmediata.

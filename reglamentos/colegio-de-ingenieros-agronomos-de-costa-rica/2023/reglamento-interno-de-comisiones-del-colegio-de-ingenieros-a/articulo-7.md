@@ -1,0 +1,1 @@
+Artículo 7º-Los representantes del Colegio de Ingenieros Agrónomos ante comisiones externas a éste serán designados por la Junta Directiva, por el tiempo que se establezca en la normativa que regula la materia respectiva y su accionar será regulado por dicha normativa.
