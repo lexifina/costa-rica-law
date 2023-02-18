@@ -14,3 +14,4 @@ Reglamento para la realización de sesiones de Junta Directiva
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1995-06-26 | la propia norma |
+| 2 | 2023-02-18 | Reglamento 172 (2023-02-18) |
