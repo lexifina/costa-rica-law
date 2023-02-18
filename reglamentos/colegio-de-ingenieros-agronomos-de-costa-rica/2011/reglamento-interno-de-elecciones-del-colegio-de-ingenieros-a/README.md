@@ -14,3 +14,4 @@ Reglamento Interno de Elecciones del Colegio de Ingenieros Agrónomos de Costa R
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-06-24 | la propia norma |
+| 2 | 2023-02-18 | Reglamento 172 (2023-02-18) |
