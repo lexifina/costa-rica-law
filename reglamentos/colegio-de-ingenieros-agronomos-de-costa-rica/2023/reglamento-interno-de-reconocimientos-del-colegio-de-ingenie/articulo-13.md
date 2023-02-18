@@ -1,0 +1,2 @@
+Asuntos varios:
+Artículo 13.-En concordancia con el artículo 103 del Reglamento a la Ley Orgánica del Colegio, si en alguno de los reconocimientos fuese postulada una persona que mantenga parentesco o afinidad hasta el segundo grado, o relación laboral o profesional con alguno de los miembros de la Comisión; dicho integrante deberá abstenerse de participar en el proceso, lo cual deberá constar en el acta respectiva.

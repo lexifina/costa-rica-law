@@ -1,0 +1,1 @@
+Artículo 9º-Además del cumplimiento de los requisitos y procedimientos establecidos para cada reconocimiento, la Comisión deberá efectuar un análisis de los atestados y atributos actuales y pasados de la persona postulada para determinar, en forma transparente, si la misma es merecedora de recibir un reconocimiento público por parte del Colegio.

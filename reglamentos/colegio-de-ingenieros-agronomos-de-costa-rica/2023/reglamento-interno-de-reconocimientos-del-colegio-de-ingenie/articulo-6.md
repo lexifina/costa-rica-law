@@ -1,0 +1,1 @@
+Artículo 6º-La Comisión llevará un libro y un registro digital con las actas de todas las reuniones, en las que se consignarán los participantes, los puntos que se discutan y los acuerdos firmes que se tomen.

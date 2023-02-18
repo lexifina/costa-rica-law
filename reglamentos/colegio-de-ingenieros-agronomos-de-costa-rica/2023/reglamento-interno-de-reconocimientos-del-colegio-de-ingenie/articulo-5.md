@@ -1,0 +1,1 @@
+Artículo 5º-La elección de los miembros de la Comisión, se hará mediante votación por parte de la Junta Directiva del Colegio, de una lista de candidatos y candidatas, los que deberán haber aceptado de previo por escrito su postulación, serán elegidos en el primer trimestre del año que corresponda.

@@ -1,0 +1,1 @@
+Artículo 8º-Para los reconocimientos, una vez concluido el proceso respectivo, la Comisión emitirá un dictamen que trasladará a la Junta Directiva, la que acusará el recibido por escrito y procederá en última instancia a ratificar o denegar el dictamen propuesto.
