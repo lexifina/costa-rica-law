@@ -1,0 +1,1 @@
+Artículo 61. Cuando una filial se disuelva por cualquiera de los motivos indicados, la Junta Directiva del Colegio en coordinación con la Administración, procederá a custodiar y disponer de todos los bienes, fondos y recursos del Colegio, que la Filial posee en administración, levantándose un acta para esos efectos.

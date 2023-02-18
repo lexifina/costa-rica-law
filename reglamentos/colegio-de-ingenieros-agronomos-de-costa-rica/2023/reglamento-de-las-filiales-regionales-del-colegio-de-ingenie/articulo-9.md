@@ -1,0 +1,2 @@
+Artículo 9. Para incorporarse a una determinada Filial, el colegiado deberá llenar un formulario de afiliación, el cual será suministrado por la secretaría de la Filial, la información mínima que debe llevar es la siguiente:
+Nombre completo, número de colegiado, número de cédula, área de orientación, dirección exacta, número telefónico, correo electrónico, lugar y dirección del trabajo, teléfono y correo electrónico del trabajo, fecha de nacimiento, firma y fecha de firma de la boleta.

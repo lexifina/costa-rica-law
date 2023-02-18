@@ -1,0 +1,1 @@
+Artículo 25. Las resoluciones de la Asamblea se tomarán por mayoría absoluta de los votos de los afiliados presentes, salvo las declaraciones de acuerdo firme, para lo cual se requerirá el voto de dos tercios de los miembros presentes.

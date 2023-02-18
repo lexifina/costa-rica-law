@@ -1,0 +1,1 @@
+Artículo 60. En cualquiera de los casos citados en el artículo anterior, la parte que establece o define la disolución, comunicará por escrito a la otra parte las razones y motivos que originaron la disposición, en un plazo no mayor de 30 días posteriores a la fecha donde se tomó el acuerdo.

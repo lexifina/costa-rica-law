@@ -1,0 +1,2 @@
+Artículo 33. En cualquiera de los casos del artículo anterior, la Junta Directiva de la Filial comunicará por escrito a la persona correspondiente la situación dada y convocará al vocal, para que ocupe el cargo en cuestión. Se debe convocar a un suplente para sustituir el puesto de vocal, hasta la próxima Asamblea General, en la cual se deberá conocer la situación presentada y se procederá a elegir el puesto respectivo.
+(Corregido mediante Fe de Erratas y publicada en La Gaceta N° 160 del 1° de setiembre de 2023, página N° 2)

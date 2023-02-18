@@ -1,0 +1,1 @@
+Artículo 50. El Colegio incluirá dentro de su presupuesto anual, una partida general para el funcionamiento y operación de las Filiales, la cual será distribuida por la Administración a cada Filial, de acuerdo con los lineamientos que defina la Junta Directiva del Colegio.

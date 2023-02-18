@@ -1,0 +1,2 @@
+Artículo 23. Para la formación del quórum en la primera convocatoria, se requerirá la presencia de la mayoría absoluta de los miembros de la Filial.
+Si a la hora señalada no se ha formado el quórum necesario, quedará automáticamente constituida una segunda convocatoria media hora después, en cuyo caso el quórum mínimo se formará con la presencia de no menos de 20 afiliados, de no haber tampoco quórum, se tendrá por constituida la Asamblea en tercera convocatoria una hora después de la primera convocatoria con un quórum mínimo de 15 afiliados.

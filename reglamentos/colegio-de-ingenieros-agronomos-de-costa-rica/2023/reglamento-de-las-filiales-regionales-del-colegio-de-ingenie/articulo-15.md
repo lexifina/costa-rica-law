@@ -1,0 +1,1 @@
+Artículo 15. La secretaría de cada Filial llevará un registro actualizado de los miembros que la integran y deberá remitir a la Junta Directiva del Colegio en setiembre de cada año, una la lista de sus afiliados.

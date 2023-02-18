@@ -1,0 +1,1 @@
+Artículo 10. No podrá ser miembro de ninguna Filial, el colegiado que este suspendido o retirado del Colegio. Cuando la Junta Directiva del Colegio efectúe la suspensión de algún miembro, hará el correspondiente comunicado a las Filiales, para que procedan a des inscribirlo de su nómina, si es que se encuentra afiliado a alguna de ellas.

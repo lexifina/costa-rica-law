@@ -1,0 +1,1 @@
+Artículo 34. La Junta Directiva de cada Filial podrá conceder en caso calificado y por única vez, permiso por escrito a cualquiera de los directivos para que se ausente a las sesiones por un período máximo de tres meses.

@@ -1,0 +1,1 @@
+Artículo 49. La Junta Directiva de cada Filial deberá presentar en setiembre de cada año a la Junta Directiva del Colegio, el presupuesto ordinario, el Plan operativo y proyectos de inversión del año siguiente para su respectivo análisis y aprobación.

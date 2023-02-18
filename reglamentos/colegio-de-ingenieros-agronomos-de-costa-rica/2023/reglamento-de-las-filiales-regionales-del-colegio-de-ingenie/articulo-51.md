@@ -1,0 +1,1 @@
+Artículo 51. Todos los gastos que realice una Filial de los fondos y recursos que le asigne el Colegio, deberán efectuarse estrictamente de conformidad con los procedimientos internos con que se rige la Administración del Colegio.

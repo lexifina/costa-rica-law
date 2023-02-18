@@ -1,0 +1,1 @@
+Artículo 14. Podrá ser suspendido temporal o definitivamente, una vez cumplido el debido proceso, el miembro de la Filial que, a juicio de la Junta Directiva del Colegio, haya cometido o ejecutado acciones que, vayan en demérito de la Filial, sus miembros o del Colegio de Ingenieros Agrónomos, de acuerdo con lo dispuesto en Ley 8454la Ley Orgánica y Reglamentos del Colegio.

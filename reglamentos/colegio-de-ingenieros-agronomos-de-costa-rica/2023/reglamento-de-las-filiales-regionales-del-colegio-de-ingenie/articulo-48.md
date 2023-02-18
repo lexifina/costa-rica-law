@@ -1,0 +1,1 @@
+Artículo 48. Las Filiales podrán gestionar la adquisición de bienes, fondos o recursos para su funcionamiento, pero éstos serán inscritos a nombre del Colegio, el cual los facilitará a aquellas, bajo los lineamientos que apruebe la Junta Directiva del Colegio.

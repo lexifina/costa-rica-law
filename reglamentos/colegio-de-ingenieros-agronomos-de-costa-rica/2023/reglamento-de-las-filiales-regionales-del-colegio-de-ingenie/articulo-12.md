@@ -1,0 +1,1 @@
+Artículo 12. Cuando un miembro de una Filial tenga que trasladarse de manera permanente a otra región que no corresponda a la Filial donde se encuentra inscrito, deberá renunciar efectuando la debida notificación por escrito a la Junta Directiva. No obstante, si dicha notificación no se hace y la Junta Directiva se informa del traslado, ésta deberá desafiliarlo y comunicarle.
