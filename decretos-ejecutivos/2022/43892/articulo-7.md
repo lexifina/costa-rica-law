@@ -1,0 +1,8 @@
+Artículo 7º-De las Funciones: Las funciones de las personas reservistas serán siempre en carácter auxiliar o de coadyuvancia al cuerpo policial al cual es asignada dicha auxiliaridad; sólo ejecutarán aquellas funciones específicas que originaron su convocatoria para atender estados de emergencia o situaciones excepcionales.
+La Reserva de las Fuerzas de Policía, cuando haya sido convocada de conformidad con lo establecido en la Ley General de Policía y sus reformas, tendrá, en esas circunstancias y dentro de ese marco de competencias, las siguientes funciones:
+1) Coordinar con la Fuerza Pública las labores de prevención, vigilancia y protección en el territorio nacional, para preservar la seguridad de las personas habitantes, sus bienes y sus derechos y libertades constitucionales.
+2) Cooperar con la Fuerza Pública, instituciones gubernamentales y otras entidades en casos de calamidad o desastre natural, eventos masivos, conflagraciones y conmoción civil.
+3) Hacer cumplir lo ordenado por el Tribunal Supremo de Elecciones, en materia electoral, en coordinación con la Fuerza Pública y de conformidad con la Constitución Política y demás normativa aplicable.
+4) Velar por el cumplimiento de la normativa ambiental, ejerciendo las labores de vigilancia, protección y conservación del ambiente y denunciando, ante los órganos administrativos y judiciales competentes, aquellos actos y omisiones que contravengan esta normativa.
+5) Realizar las acciones pertinentes para procurar la capacitación de las personas miembros de la Reserva de las Fuerzas de Policía, de acuerdo con las necesidades y funciones que desempeñan.
+6) Aquellas otras que se deriven del ordenamiento jurídico, de conformidad con su competencia.
