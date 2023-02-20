@@ -1,0 +1,1 @@
+Artículo 35.- De la fiscalización contractual. La persona fiscalizadora del contrato será definida en el pliego de condiciones y este será responsable de verificar que la ejecución contractual se perfeccione conforme a lo pactado, de manera que, siempre se logre satisfacer el objeto contractual, en las mismas condiciones que se adjudicó.

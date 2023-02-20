@@ -1,0 +1,1 @@
+Artículo 3.- Aplicación. Este reglamento será aplicable a todos los procedimientos de contratación pública, así como los procesos de almacenamiento y distribución o tráfico interno de bienes que promueva la municipalidad por medio de la proveeduría.

@@ -1,0 +1,1 @@
+Artículo 18.- Consolidación de requerimientos. Para efectos de realizar compras, aprovechando las economías de escala, siempre que la naturaleza y circunstancia lo permitan, la proveeduría consolidará los requerimientos de consumo de las diversas dependencias que versen sobre la misma o similar clase de objeto contractual.

@@ -1,0 +1,1 @@
+Artículo 21.- Compra y arrendamiento de bienes inmuebles. En el caso de compra y arrendamiento de bienes inmuebles, cuando se esté en los supuestos establecidos en el artículo 67 de LCP, se podrá recurrir al procedimiento especial dispuesto por el citado artículo.

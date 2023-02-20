@@ -1,0 +1,2 @@
+Artículo 45.- Procedimiento. La persona fiscalizadora del contrato realizará la solicitud de modificación de contrato, posterior a esto, corresponderá, a la jefatura inmediata y al departamento de presupuesto otorgar el visto bueno a dicha solicitud.
+Una vez que se cuente con las aprobaciones anteriores se remitirá el trámite a la proveeduría, dependencia que verificará el cumplimiento de los requisitos señalados por los artículos 101 de la LCP, 184 y 185 del RLCP y emitirá una recomendación al órgano que dictó el acto de adjudicación para que resuelva, en definitiva.

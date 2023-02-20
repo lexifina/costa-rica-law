@@ -1,0 +1,1 @@
+Artículo 4.- Sistema digital de compras. Toda la actividad de contratación pública regulada en el presente reglamento deberá realizarse por medio del sistema digital unificado, definido por la Dirección de Contratación Pública del Ministerio de Hacienda.

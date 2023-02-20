@@ -1,0 +1,1 @@
+Artículo 15.- Calendarización de obra pública. En el caso de las solicitudes de obra pública, estas se calendarizarán con ajuste a los instrumentos de planificación debidamente aprobados por la Municipalidad.

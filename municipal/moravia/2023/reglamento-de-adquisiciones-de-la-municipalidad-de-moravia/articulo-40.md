@@ -1,0 +1,2 @@
+Artículo 40.- Sobre la recepción de obras. En cada procedimiento de contratación, la recepción de obras deberá quedar consignada en un acta, la cual será levantada y firmada en el momento que se desarrolle la diligencia de recepción. La persona encargada de realizar el levantamiento del acta es la fiscalizadora de la contratación.
+El acta deberá incorporarse al expediente electrónico de la contratación.

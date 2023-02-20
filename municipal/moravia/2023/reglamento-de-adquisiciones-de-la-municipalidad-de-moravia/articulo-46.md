@@ -1,0 +1,3 @@
+Artículo 46.- De las prórrogas de contrato. Las prórrogas de contrato deberán regirse por lo dispuesto en los artículos 105 de la LCP y 281 del RLCP.
+A solicitud del contratista, la Municipalidad podrá autorizar prórrogas al plazo de ejecución de un contrato vigente, cuando existan demoras ocasionadas por ella misma o causas ajenas al contratista originadas por caso fortuito, fuerza mayor y hecho de un tercero.
+La Municipalidad resolverá la solicitud de prórroga del contratista y en caso de aceptarla, parcial o totalmente, ajustará la programación de la ejecución contractual, conforme a lo que le haya acreditado y probado el contratista en su requerimiento.

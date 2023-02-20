@@ -1,0 +1,1 @@
+Artículo 50.- Cumplimiento de los requisitos sustanciales del pliego de condiciones. De forma obligatoria el cesionario deberá demostrar que cumple con los requisitos sustanciales (legales, técnicos y financieros) establecidos del pliego de condiciones.

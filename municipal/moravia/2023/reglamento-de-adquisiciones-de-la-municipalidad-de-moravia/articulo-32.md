@@ -1,0 +1,1 @@
+Artículo 32.- Plazo para otorgar la aprobación interna. Una vez que el expediente esté listo para que se resuelva por el fondo la solicitud de aprobación interna, la Dirección de Gestión y Asesoría Jurídica emitirá el acto correspondiente en un plazo máximo de 5 días hábiles.

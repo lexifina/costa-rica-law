@@ -1,0 +1,1 @@
+Artículo 11.- Inicio de procedimiento sin contenido presupuestario. Si se requiere iniciar un procedimiento de contratación pública sin disponer de recursos presupuestarios, debe mediar la autorización formal por parte de jerarca (Alcalde o Concejo Municipal) a quien corresponda eventualmente adjudicar por el monto de que se trate.
