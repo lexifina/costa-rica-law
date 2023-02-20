@@ -14,3 +14,4 @@ Reglamento a la Ley N° 9047, "Regulación y la comercialización de bebidas con
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-07-05 | la propia norma |
+| 2 | 2023-02-20 | Reglamento municipal 11 (2023-02-20) |
