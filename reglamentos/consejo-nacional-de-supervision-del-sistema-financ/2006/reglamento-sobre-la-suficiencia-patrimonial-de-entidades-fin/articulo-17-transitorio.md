@@ -47,15 +47,20 @@ Requerimiento adicional de capital por conservación de 2.50% | A partir de la p
 | | 0% | Mayor a 2,50% |
 9. Porcentajes de gradualidad para aplicar el requerimiento adicional de capital por importancia sistémica.
 Efecto regulatorio (Entidades de Importancia Sistémica) | Porcentajes de gradualidad para aplicar el requerimiento adicional de capital por importancia sistémica. Aplican los mismos porcentajes de gradualidad independientemente de la categoría de importancia sistémica de la entidad.
-Requerimiento adicional de capital por importancia sistémica: Categoría 1: 0.30% Categoría 2: 0.70% Categoría 3: 1.10% Categoría 4: 1.50% | A partir de la publicación en el Diario Oficial: 0% A partir del primero de enero de 2022: 25% (Para informes de impacto) A partir del primero de enero de 2023: 50% (Para informes de impacto) A partir del primero de enero de 2024: 75% (Para informes de impacto) A partir del primero de enero de 2025: 100% (A partir de vigencia efectiva)
+Requerimiento adicional de capital por importancia sistémica: Categoría 1: 2% Categoría 2: 1,50% Categoría 3: 1% Categoría 4: 0,50% | A partir de la publicación en el Diario Oficial: 0% A partir del primero de enero de 2022: 25% (Para informes de impacto) A partir del primero de enero de 2023: 50% (Para informes de impacto) A partir del primero de enero de 2024: 75% (Para informes de impacto) A partir del primero de enero de 2025: 100% (A partir de vigencia efectiva)
+(Así reformada la tabla anterior mediante sesión N° 1785-2023 del 20 de febrero del 2023)
 10. Porcentajes de gradualidad para aplicar conjuntamente el requerimiento adicional de capital total por conservación y por importancia sistémica.
-Efecto regulatorio (Efecto combinado de los dos cuadros anteriores, para entidades de importancia sistémica) | | Porcentajes de gradualidad para aplicar conjuntamente el requerimiento adicional de capital total por conservación y por importancia sistémica. Aplican los mismos porcentajesde gradualidad independientemente de la categoría de importancia sistémica de la entidad.
-Requerimiento adicional de capital total por conservación y por importancia sistémica: Categoría 1: 2.80% Categoría 2: 3.20% Categoría 3: 3.60% Categoría 4: 4.00% | | A partir de la publicación en el Diario Oficial: 0% A partir del primero de enero de 2022: 25% (Para informes de impacto) A partir del primero de enero de 2023: 50% (Para informes de impacto) A partir del primero de enero de 2024: 75% (Para informes de impacto) A partir del primero de enero de 2025: 100% (A partir de vigencia efectiva)
-| | Durante esta gradualidad los tramos del CCN1 que determinarán los porcentajes de restricción y prohibición se determinarán multiplicando los porcentajes que definen los rangos que se indican a continuación por el porcentaje de gradualidad que corresponda, y sumando 6.5% al resultado obtenido. Tramos para el requerimiento de capital conjunto de conservación y de importancia sistémica, según categoría de importancia sistémica
-| | Porcentaje de restricción y prohibición | 1 | 2 | 3 | 4 |
-| | 100% | Mayor a 0% y menor o igual a 0.70% | Mayor a 0% y menor a 0,80% | Mayor a 0% y menor a 0,90% | Mayor a 0% y menor a 1,00% |
-| | 80% | Mayor a 0.70% y menor o igual a 1,40% | Mayor a 0.80% y menor o igual a 1,60% | Mayor a 0.90% y menor o igual a 1,80% | Mayor a 1.00% y menor o igual a 2,00% |
-| | 60% | Mayor a 1.40% y menor o igual a 2,10% | Mayor a 1.60% y menor o igual a 2,40% | Mayor a 1.80% y menor o igual a 2,70% | Mayor a 2.00% y menor o igual a 3,00% |
-| | 40% | Mayor a 2.10% y menor o igual a 2,80% | Mayor a 2.40% y menor o igual a 3,20% | Mayor a 2.70% y menor o igual a 3,60% | Mayor a 3.00% y menor o igual a 4,00% |
-| | 0% | Mayor a 2.80% | Mayor a 3.20% | Mayor a 3.60% | Mayor a 4.00% |
+Efecto regulatorio (Efecto combinado de los dos cuadros anteriores, para entidades de importancia sistémica) | Porcentajes de gradualidad para aplicar conjuntamente el requerimiento adicional de capital total por conservación y por importancia sistémica. Aplican los mismos porcentajes de gradualidad independientemente de la categoría de importancia sistémica de la entidad.
+Requerimiento adicional de capital total por conservación y por | A partir de la publicación en el Diario Oficial: 0% A partir del primero de enero de 2022: 25% (Para informes de impacto)
+importancia sistémica: A partir del primero de enero de 2023: 50% (Para Categoría 1: 4,50% informes de impacto) Categoría 2: 4% A partir del primero de enero de 2024: 75% (Para Categoría 3: 3,50% informes de impacto) Categoría 4: 3% A partir del primero de enero de 2025: 100% (A partir de vigencia efectiva)
+Durante esta gradualidad los tramos del CCN1 que determinarán los porcentajes de restricción y prohibición se determinarán multiplicando los porcentajes que definen los rangos que se indican a continuación por el porcentaje de gradualidad que corresponda, y sumando 6.5% al resultado obtenido.
+Tramos para el requerimiento de capital conjunto de conservación y de importancia sistémica, según categoría de importancia sistémica |
+| | Porcenta je de restricció n y prohibici ón | 1 | 2 | 3 | 4 |
+| | 100% | Mayor a 0% y menor a 1,125% | Mayor a 0% y menor a 1,00% | Mayo r a 0% y menor a 0,875 % | Mayor a 0% y menor o igual a 0,75% |
+| | 80% | Mayor a 1,125% y menor o igual a 2,25% | Mayor a 1,00% y menor o igual a 2,00% | Mayo r a 0,875 % y menor o igual a 1,75% | Mayor a 0,75% y menor o igual a 1,50% |
+| | 60% | Mayor a 2,25% y menor o igual a 3,375% | Mayor a 2,00% y menor o igual a 3,00% | Mayo r a 1,75% y menor o igual a | Mayor a 1,50% y menor o igual a 2,25% |
+| | | | | 2,625 % | |
+| | 40% | Mayor a 3,375% y menor o igual a 4,50% | Mayor a 3,00% y menor o igual a 4,00% | Mayo r a 2,625 % y menor o igual a 3,50% | Mayor a 2,25% y menor o igual a 3,00% |
+| | 0% | Mayor a 4,50% | Mayor a 4,00% | Mayo r a 3,50% | Mayor a 3,00% |
+(Así reformada la tabla anterior mediante sesión N° 1785-2023 del 20 de febrero del 2023)
 (Así adicionado en sesión N° 1663 del 17 de mayo de 2021)
