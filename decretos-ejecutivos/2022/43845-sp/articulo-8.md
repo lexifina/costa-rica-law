@@ -1,0 +1,1 @@
+Artículo 8°-Derogatoria. Deróguese el Decreto Ejecutivo N° 41242-SP "Oficializa y declara de interés público y nacional la Estrategia Integral de Prevención para la Seguridad Pública "Sembremos Seguridad" del 08 de agosto de 2018, publicado en La Gaceta N° 161 del 04 de setiembre de 2018.
