@@ -1,0 +1,2 @@
+Artículo 78.- Distribución de Recursos en las Alianzas Público Privadas. Para la asignación de recursos del FONADER a las entidades privadas, en el marco de las alianzas público privadas, se priorizará que el objetivo del proyecto impacte a sectores vulnerables para contribuir con la disminución de las desigualdades sociales y territoriales.
+Para tales efectos y en aras del buen uso de los recursos públicos se deberán firmar "Contratos de Compromiso", debidamente detallados donde conste la correcta utilización de los recursos.

@@ -1,0 +1,1 @@
+Artículo 43.- Elección de Presidencia y Vicepresidencia de la AREDE. En la primera sesión ordinaria posterior a la Asamblea, el Directorio elegirá entre sus personas miembros por mayoría simple a la Presidencia y la Vicepresidencia de la AREDE. Quienes resulten electos ejercerán sus cargos por dos años, pudiendo ser reelegidos por un máximo de dos períodos consecutivos.

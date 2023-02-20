@@ -1,0 +1,1 @@
+Artículo 71.- Cooperación Internacional. Para la gestión de recursos el Área de Planificación Regional presentará al Área de Cooperación Internacional de Mideplan las temáticas y proyectos prioritarios de cada Región presentadas por las AREDES al FONADER. Para el cumplimiento de este propósito ambas áreas establecerán los mecanismos de coordinación necesarios.

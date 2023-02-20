@@ -1,0 +1,1 @@
+Artículo 56.- Especialistas invitados a las sesiones del Directorio. El Directorio podrá invitar a sus sesiones a diferentes especialistas para analizar temas complejos o aspectos específicos de su quehacer. De la asistencia a la sesión deberá quedar constancia en el acta.

@@ -1,0 +1,1 @@
+Artículo 82.- Inversiones Públicas. Los proyectos de inversión pública deben registrarse en el BPIP, en cumplimiento con lo establecido en el Reglamento para el Funcionamiento del SNIP, Decreto Ejecutivo 43251-PLAN de 15 de setiembre de 2021 y las Normas Técnicas, Lineamientos y Procedimientos de Inversión Pública.

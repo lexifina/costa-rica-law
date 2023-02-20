@@ -1,0 +1,1 @@
+Artículo 69.- Administración del FONADER. El Área de Planificación Regional definirá el mecanismo interno de administración y gestión del FONADER, según lo contemplado en el artículo 34 de la Ley Nº 10096.

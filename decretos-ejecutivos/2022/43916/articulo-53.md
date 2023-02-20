@@ -1,0 +1,1 @@
+Artículo 53.-Ausencia de Presidente y Vicepresidente del Directorio. En caso de ausencia de la Presidencia y Vicepresidencia en una sesión, se elegirá por mayoría simple, entre las personas miembros presentes, una Presidencia Ad Hoc para que presida la respectiva sesión.

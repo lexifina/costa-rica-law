@@ -1,0 +1,1 @@
+Artículo 22.- Índices Económicos. Con el propósito de construir el PIB Regional, Mideplan establecerá la coordinación necesaria con el Banco Central de Costa Rica, según lo establecido en el art. 17 de la Ley Nº 10096.

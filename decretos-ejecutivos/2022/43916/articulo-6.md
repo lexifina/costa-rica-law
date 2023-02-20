@@ -1,0 +1,1 @@
+Artículo 6º.- Instancias de participación y coordinación en el contexto del Subsistema de Planificación para el Desarrollo Regional. Constituyen instancias de participación ciudadana y coordinación institucional las AREDES, los CIR, los CSRA, los CTDR, y los CCCI/CDCl.

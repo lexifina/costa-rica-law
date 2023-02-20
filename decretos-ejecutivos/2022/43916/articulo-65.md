@@ -1,0 +1,1 @@
+Artículo 65.- Del registro de la sesión de la Mesa de Acuerdo. La Secretaría Técnica elaborará una minuta que registre los acuerdos alcanzados, que posteriormente se traducirán en los Convenios de Gestión con los actores presentes.

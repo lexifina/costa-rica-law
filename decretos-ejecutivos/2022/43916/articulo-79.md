@@ -1,0 +1,1 @@
+Artículo 79.- Fortalecimiento de organizaciones regionales. Para facilitar el acceso a los recursos del FONADER, el Área de Planificación Regional del Mideplan, realizará acciones que coadyuven a fortalecer la organización de los diferentes sectores económicos, sociales y ambientales.

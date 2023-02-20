@@ -1,0 +1,1 @@
+Artículo 59.- De la coordinación del Directorio con instancias interinstitucionales. El Directorio de la AREDE podrá coordinar y proponer mecanismos de coordinación técnica con instancias interinstitucionales de desarrollo regional, en materia de su competencia.

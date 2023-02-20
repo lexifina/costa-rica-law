@@ -1,0 +1,1 @@
+Transitorio Único.- Las políticas, los planes, programas, proyectos y las acciones de interés regional de los Consejos Regionales de Desarrollo (COREDES), que se encuentren en ejecución al momento de entrada en vigencia del presente Reglamento, deberán ser valorados por la Asamblea de las AREDES a fin de decidir sobre su continuidad.

@@ -1,0 +1,1 @@
+Artículo 34.- Lista nominal de los integrantes de la Asamblea. Con base en lo establecido en el artículo 28 de este Reglamento, corresponde al Mideplan, a través de la Secretaría Técnica, gestionar la lista nominal de personas integrantes de la Asamblea.

@@ -1,0 +1,1 @@
+Artículo 13.- Sesiones con coordinadores de los CIR. En el contexto de la Rectoría del Subsistema de Planificación Regional, las jefaturas de las Direcciones Regionales del Mideplan convocarán al menos una vez por trimestre a las coordinaciones de los CIR, con el fin de velar por la integralidad de las acciones que se estén desarrollando en estas instancias.

@@ -1,0 +1,1 @@
+Artículo 80.- Informes de los usuarios del FONADER. La periodicidad y los contenidos de los informes se establecerán en las condiciones suscritas entre el FONADER y receptor de los recursos, de acuerdo al tipo y naturaleza del proyecto.

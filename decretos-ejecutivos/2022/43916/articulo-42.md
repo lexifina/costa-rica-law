@@ -1,0 +1,1 @@
+Artículo 42.- Representación Equitativa de Género en la conformación del Directorio. Cada sector velará por la equidad de género, en la escogencia de las personas representantes. De incumplirse el requerimiento, se deberán justificar por escrito los motivos ante la Secretaría Técnica.

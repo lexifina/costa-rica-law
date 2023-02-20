@@ -1,0 +1,1 @@
+Artículo 32.-Asamblea Constitutiva de la AREDE. Le corresponde a la Secretaría Técnica de la AREDE convocar y facilitar la Asamblea Constitutiva de la AREDE; posteriormente, convocar a las personas miembros del Directorio electos para proceder con el nombramiento de la Presidencia y Vicepresidencia en la primera sesión.

@@ -1,0 +1,1 @@
+Artículo 76.- Procedimientos para el manejo de Gastos Operativos del FONADER y de gestión de las AREDES. Para la correcta utilización de lo establecido en los artículos 74 y 75 de este Reglamento, el Área de Planificación Regional emitirá los lineamientos y procedimientos necesarios.

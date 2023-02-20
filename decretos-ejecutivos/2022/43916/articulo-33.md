@@ -1,0 +1,1 @@
+Artículo 33.- Sesiones de la Asamblea. La Asamblea General de la AREDE sesionará en forma ordinaria al menos una vez al año y extraordinariamente cuando lo convoque su Presidente por acuerdo del Directorio.

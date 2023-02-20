@@ -1,0 +1,1 @@
+Artículo 36.- De las votaciones de la Asamblea. Los acuerdos de la Asamblea de la AREDE, serán tomados por mayoría absoluta, es decir, la mitad más uno de la totalidad de las personas miembros presentes. Estos acuerdos quedarán en firme en el acto, previo acuerdo por votación de dos tercios de la totalidad de los miembros presentes.

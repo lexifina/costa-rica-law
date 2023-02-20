@@ -1,0 +1,1 @@
+Artículo 58.- De las Actas de las Sesiones Extraordinarias. Las actas de las sesiones extraordinarias serán aprobadas en la sesión ordinaria del Directorio siguiente a su celebración. Únicamente están habilitados para deliberar y aprobar el acta quienes estuvieron presentes en la sesión extraordinaria en la que se tomaron.

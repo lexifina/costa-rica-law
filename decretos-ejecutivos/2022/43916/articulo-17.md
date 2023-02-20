@@ -1,0 +1,1 @@
+Artículo 17.- Planes Regionales de Desarrollo (PRD). La elaboración de los Planes de Desarrollo Regional implica un proceso de participación de actores institucionales gubernamentales y no gubernamentales, coordinado técnicamente por el Área de Planificación Regional de Mideplan.

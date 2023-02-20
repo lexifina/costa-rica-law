@@ -1,0 +1,1 @@
+Artículo 24.- Homogeneidad de Modelos de Regionalización Institucional. Mideplan a través del Área de Planificación Regional, definirá los lineamientos dentro de los plazos previstos por la Ley Nº 10096, los pondrá a disposición en su sitio Web y brindará la asesoría necesaria para cumplir con ese proceso.

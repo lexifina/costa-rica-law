@@ -1,0 +1,1 @@
+Artículo 48.- Secretaría Técnica de la AREDE. La Secretaría Técnica de la AREDE, tanto de la Asamblea como el Directorio, será ejercida por la persona que tiene a cargo la Oficina Regional de Mideplan, con el apoyo de su personal.

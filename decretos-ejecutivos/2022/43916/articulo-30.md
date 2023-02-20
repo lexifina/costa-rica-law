@@ -1,0 +1,1 @@
+Artículo 30.- Representantes del Poder Ejecutivo en la AREDE. En relación con lo establecido en el artículo 28 inciso 8 de este Reglamento, Mideplan facilitará una nómina a la Presidencia de la República para el nombramiento de representantes del Poder Ejecutivo en cada AREDES.

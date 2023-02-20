@@ -1,0 +1,1 @@
+Artículo 66.- Sobre los Convenios de Gestión. Para homogeneizar la información de los Convenios de Gestión, el Área de Planificación Regional suministrará el formato que contenga al menos: el nombre del programa o proyecto, las partes involucradas, los compromisos adquiridos y sus respectivos responsables, los plazos y los mecanismos de seguimiento.

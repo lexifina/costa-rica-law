@@ -1,0 +1,1 @@
+Artículo 63.- Periodicidad de reuniones. Los jerarcas se reunirán al menos una vez por semestre, por convocatoria realizada por acuerdo del Directorio. A efecto de incidir en el ciclo presupuestario, la preparación de la Mesa de Acuerdo debe procurar que la fecha de la primera reunión sea antes del mes de marzo de cada año.

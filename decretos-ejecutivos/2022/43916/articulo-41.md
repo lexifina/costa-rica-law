@@ -1,0 +1,1 @@
+Artículo 41.- Sustitución de personas miembros del Directorio. De requerirse sustituir a alguna persona representante de los sectores sociedad civil, privado, academia pública o privada y municipal que integran el Directorio; el sector correspondiente se reunirá a la mayor brevedad para designar a su nuevo representante y lo comunicará de forma escrita a la Secretaría Técnica.

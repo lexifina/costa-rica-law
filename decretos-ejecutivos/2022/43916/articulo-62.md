@@ -1,0 +1,1 @@
+Artículo 62.- Convocatoria a Jerarcas. Con base en los temas, programas o proyectos priorizados por el Directorio, el Presidente del Directorio de la AREDE realizará la convocatoria a los jerarcas de las instituciones competentes.

@@ -1,0 +1,1 @@
+Artículo 52.- Quórum del Directorio. El quórum requerido para sesionar en primera convocatoria será la mayoría absoluta, es decir, la mitad más uno de la totalidad de las personas miembros que lo conforman. De no lograrse el quórum requerido se podrá sesionar en segunda convocatoria, treinta minutos después, con al menos una tercera parte de la totalidad de las personas miembros.
