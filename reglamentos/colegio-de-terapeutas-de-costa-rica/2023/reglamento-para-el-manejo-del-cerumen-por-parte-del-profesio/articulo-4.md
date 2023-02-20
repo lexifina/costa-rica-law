@@ -1,0 +1,2 @@
+Artículo 4º-Competencias requeridas para el Audiólogo que emplee técnicas de manejo de cerumen. Todo profesional en Audiología que desee utilizar técnicas de manejo de cerumen debe cumplir con lo señalado en el artículo anterior y poseer capacitación con una duración no menor a veinte (20) horas, en la cual las horas prácticas equivalgan al menos al sesenta por ciento (60%) de las horas totales del o los cursos.
+Los cursos nacionales y extranjeros deberán cumplir las condiciones específicas establecidas en este Reglamento para cada caso.

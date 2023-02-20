@@ -1,0 +1,1 @@
+Artículo 10.-El Colegio de Terapeutas coordinará un plan de capacitación que tenga como fin la nivelación de los profesionales Audiólogos que deseen optar por la certificación en manejo de cerumen, en un plazo de un año a partir de la entrada en vigor de esta normativa.

@@ -1,0 +1,1 @@
+Artículo 11.-Las situaciones y casos que no se encuentren contemplados en la presente reglamentación, serán resueltos por la Junta Directiva del Colegio de Terapeutas de Costa Rica. Asimismo, corresponderá a la Junta Directiva, la interpretación auténtica de las disposiciones de este Reglamento.

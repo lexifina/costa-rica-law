@@ -1,0 +1,7 @@
+Artículo 6º-Trámite. Una vez presentada la solicitud de certificación, con todos los requisitos, se seguirá el siguiente procedimiento:
+a. El Audiólogo entregará la documentación en la Plataforma de Servicios del Colegio de Terapeutas, quienes verificarán su autenticidad y que la misma se encuentre completa.
+b. Posteriormente, esta será remitida a la Dirección Académica, quien analizará la validez del o los certificados y su correspondencia con el presente Reglamento.
+c. La Dirección Académica deberá emitir una resolución al respecto en un plazo no mayor a quince (15) días hábiles a partir de la fecha en que le fue entregada la solicitud.
+d. Cuando la solicitud sea aceptada, y el solicitante haga el pago del arancel respectivo, el Colegio de Terapeutas emitirá un diploma en el cual hará constar que el Audiólogo, se encuentra en capacidad de aplicar las técnicas de manejo de cerumen.
+e. En caso de que el profesional, de conformidad con el criterio de la Dirección Académica, deba realizar alguna aclaración o adición al contenido de su solicitud, la misma le será notificada mediante correo electrónico y el Audiólogo, tendrá un plazo de quince (15) días hábiles para presentar lo que corresponda. Transcurrido dicho plazo y si el profesional no hubiera presentado lo requerido, la solicitud se tendrá por abandonada y el profesional deberá iniciar nuevamente la solicitud de certificación.
+En caso de disconformidad con el resultado de la solicitud por parte del Audiólogo, esta podrá ser elevada a la Junta Directiva para su resolución final.

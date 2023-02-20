@@ -1,0 +1,14 @@
+CAPÍTULO II
+De la aplicación de las técnicas
+de manejo de cerumen
+Artículo 3º-Requisitos generales. Son requisitos generales para la aplicación de las técnicas de manejo de cerumen, los siguientes:
+a. El manejo del cerumen debe ser realizado por un Audiólogo que cumpla con las siguientes competencias curriculares y/o académicas:
+i. Poseer grado académico de Licenciatura o superior en Audiología.
+ii. Estar debidamente incorporado al Colegio de Terapeutas de Costa Rica con el grado académico o posgrado requerido para la aplicación de estas técnicas y en cumplimiento de sus obligaciones profesionales (pago de colegiatura, carné al día y no tener sanciones disciplinarias en ejecución que le impidan ejercer la profesión).
+iii. Contar con capacitación en las técnicas de manejo de cerumen, mediante cursos avalados por el Colegio de Terapeutas de Costa Rica, cuando estos hayan sido realizados en Costa Rica. En caso de contar con cursos realizados en el extranjero, los certificados de capacitación deberán encontrarse debidamente apostillados por la autoridad competente en el país de origen. Asimismo, para los títulos de posgrados obtenidos en el extranjero, que cuenten con cursos de manejo de cerumen, se deberá realizar el procedimiento de reconocimiento ante el Consejo Nacional de Rectores.
+iv. Contar con la certificación emitida por el Colegio, para aplicar técnicas de manejo del cerumen.
+b. El Audiólogo únicamente debe aplicar la técnica de manejo de cerumen cuando ha sido debidamente capacitado para ello y cumple con las disposiciones señaladas anteriormente.
+c. El Audiólogo debe conocer las limitaciones y contraindicaciones para emplear las técnicas de manejo de cerumen, así como estar en capacidad de determinar cuándo se debe remitir o derivar al paciente o usuario para que sea atendido por otro Audiólogo con experiencia o bien, por un profesional en otra área de la salud, tomando en cuenta el entorno clínico y las necesidades individuales de cada usuario. Estas derivaciones deberán ser siempre documentadas.
+d. El Audiólogo debe llevar un expediente clínico físico o digital completo y mantener registros detallados de cada paciente, en el cual deben constar los hallazgos antes del procedimiento, los resultados de la aplicación de la técnica y los cuidados post-intervención sugeridos.
+e. De previo a que el Audiólogo lleve a cabo la intervención o aplicación de las técnicas de manejo de cerumen, este deberá informar ampliamente y asegurarse de que el paciente conozca el procedimiento, sus posibles consecuencias y contraindicaciones, así como manifestar su consentimiento informado por escrito.
+f. El Audiólogo debe conocer sobre el proceso de asepsia de la técnica de manejo de cerumen que desea aplicar y las regulaciones nacionales respecto a la eliminación de desechos biológicos.
