@@ -14,3 +14,4 @@ Reglamento para la utilización de vehículos de la Junta Administrativa de la I
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-01-20 | la propia norma |
+| 2 | 2023-02-20 | Reglamento 3 (2023-02-20) |
