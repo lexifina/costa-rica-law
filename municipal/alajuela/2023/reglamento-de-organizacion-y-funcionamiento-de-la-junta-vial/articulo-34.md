@@ -1,0 +1,1 @@
+Artículo 34.-Del registro de votos salvados: -Aplica cuando algunos miembros quieran salvar su responsabilidad sobre la votación de acuerdos que no comparte. Para ello, debe solicitar que conste en el acta e indicando los motivos que tuvo para votar en contra, lo cual quedará también consignado en la respectiva grabación.

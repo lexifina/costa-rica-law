@@ -1,0 +1,1 @@
+Artículo 8º-Investidura: -Será requisito para la existencia legal de la Junta Vial, así como para el inicio del ejercicio colegiado de sus competencias, que todos los miembros hayan sido nombrados según el artículo anterior, y debidamente juramentados, (investidos previamente, mediante el solemne juramento constitucional realizado en sesión formal del Concejo Municipal.).

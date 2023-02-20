@@ -1,0 +1,1 @@
+Artículo 6º-El Concejo Municipal, mediante acuerdo firme, podrá valorar la conveniencia de solicitar a la Administración u Unidad Técnica, el apoyo necesario para la realización de los actos previos que se requieran para obtener la debida conformación de la Junta Vial Cantonal.

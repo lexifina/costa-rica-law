@@ -1,0 +1,1 @@
+Artículo 31.-Para la elaboración de las actas el (la) Secretario(a) podrá ser asistido por el personal administrativo de la Unidad Técnica de Gestión Vial Municipal, en su condición de Secretaría Técnica.

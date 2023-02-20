@@ -1,0 +1,1 @@
+Artículo 2º-De su naturaleza: -La Junta Vial, es un órgano público nombrado por el Concejo Municipal de Alajuela, ante quien responde por su gestión, la cual será de consulta obligatoria en materia de planificación y evaluación de la gestión vial cantonal y de servicio vial municipal, indistintamente de la procedencia u origen de los recursos destinados a esos efectos.

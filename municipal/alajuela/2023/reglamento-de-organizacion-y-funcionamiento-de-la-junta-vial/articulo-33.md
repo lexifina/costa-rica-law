@@ -1,0 +1,1 @@
+Artículo 33.-Las actas serán firmadas por el Presidente y por los miembros que voten acuerdos en contra; así como por el Secretario, quien con su firma deja constancia de todo lo acaecido en la sesión y del trámite legal de la misma, incluyendo la votación y la mayoría, dando fe de esas actuaciones.

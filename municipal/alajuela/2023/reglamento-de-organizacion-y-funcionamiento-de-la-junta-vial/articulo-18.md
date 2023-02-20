@@ -1,0 +1,2 @@
+CAPÍTULO VIII
+Artículo 18.-De las Sesiones: -La Junta Vial, sesionará ordinariamente una vez al mes, y extraordinariamente cada vez que lo acuerde la Junta Vial Cantonal o sea convocada por el presidente (a) del Directorio. En ambos casos, se requiere la participación del número necesario para contar con el respectivo quorum. Dicha Junta sesionará válidamente con la presencia de la mayoría absoluta, es decir con mitad más uno del total de sus miembros, es decir deberán de estar presentes 3 miembros.
