@@ -1,3 +1,0 @@
-Artículo 6. Capital regulatorio de las entidades supervisadas
-El capital regulatorio de las entidades supervisadas será el que se obtenga de la aplicación de las normativas prudenciales sobre adecuación de capital con base en riesgos, emitidas por los respectivos supervisores nacionales o extranjeros.
-En el caso de las entidades supervisadas para las cuales el respectivo supervisor no haya emitido regulaciones específicas sobre adecuación de capital, tales como Sociedades Agencias de Seguros, Sociedades Corredoras de Seguros y Casas de Cambio, deberán tratarse para efectos del cálculo del capital regulatorio, según lo dispuesto en el artículo 10 de este Reglamento.
