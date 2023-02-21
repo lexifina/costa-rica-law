@@ -1,0 +1,28 @@
+N° 43917-MP-PLAN
+EL PRESIDENTE DE LA REPÚBLICA, Y LAS MINISTRAS DE LA PRESIDENCIA Y DE PLANIFICACIÓN NACIONAL Y POLÍTICA ECONÓMICA
+En uso de las facultades y atribuciones que les confieren los artículos 11, 50, 140 incisos 3), 8), 18) y 20), 144, 146 y 188 de la Constitución Política y con fundamento en los numerales 21, 22, 25 párrafo 1), 26 inciso b), 27 párrafo 1), 47 párrafo 3), 99 y 100 de la Ley General de la Administración Pública, Ley N° 6227 del 02 de mayo de 1978; los Capítulos I, II, IV y VI de la Ley de Planificación Nacional, Ley N° 5525 de 02 de mayo de 1974; el Reglamento General del Sistema Nacional de Planificación, Decreto Ejecutivo N° 37735-PLAN de 06 de mayo de 2013 y el artículo 4 de la Ley de la Administración Financiera de la República y Presupuestos Públicos, Ley N° 8131 de 18 de setiembre de 2001.
+Considerando:
+I.-Que de conformidad con los numerales 21, 26 inciso b) y 27 inciso 1) de la Ley General de la Administración Pública, corresponde al Presidente de la República en forma exclusiva dirigir y coordinar las tareas de Gobierno y de la Administración Pública central en su totalidad y hacer lo propio en la Administración Pública descentralizada; atribución que comparte con los ministros actuando como Poder Ejecutivo, en tanto a estos corresponde el ejercicio de tal rectoría política sobre los órganos y entes de la Administración central y descentralizada del respectivo ramo ministerial, en cumplimiento del principio de unidad estatal que rige al Estado Costarricense consagrado en la Constitución Política.
+II.-Que el numeral 140 inciso 8) de nuestra Constitución Política, establece como atribución del Poder Ejecutivo, vigilar el buen funcionamiento de los servicios y dependencias administrativas mediante un proceso de mejora continua de las instituciones y servicios públicos que prestan y un cabal direccionamiento y coordinación de la Administración Pública.
+III.-Que el artículo 50 de la Constitución Política establece que: "El Estado procurará el mayor bienestar a todos las habitantes del país, organizando y estimulando la producción y el más adecuado reparto de las riquezas"; política de Estado cuya implementación -de conformidad con la Ley de Planificación Nacional- exige una labor permanente de planificación del desarrollo social, económico y ambiental del país en pro del bienestar común.
+IV.-Que los numerales 2, 6, 12, 28, 35, 41 de la Constitución Política instituyen la obligación de brindar especial atención a la seguridad nacional a fin de proteger la soberanía interna y brindar sostenibilidad al desarrollo nacional.
+V.-Que para alcanzar las metas propuestas por el Gobierno, en especial la aceleración del crecimiento económico y la generación de empleo; así como su sostenibilidad mediante la atracción de inversiones, la apertura al comercio internacional e inserción de Costa Rica en la economía mundial, es indispensable llevar a cabo una serie de acciones que tienen que ser planificadas ejecutadas de manera coordinada entre las distintas entidades relacionadas con la acción estatal en dichas materias.
+VI.-Que el Poder Ejecutivo mediante el Decreto Ejecutivo N° 43580-MP-PLAN del 1° de junio de 2022, publicado en el Alcance N° 117 a La Gaceta N° 108 del 10 de junio de 2022; estableció el Reglamento Orgánico del Poder Ejecutivo, con el fin de adoptar un modelo de organización sectorial mediante el cual los órganos y entes públicos de la Administración Central y Descentralizada, se agrupen y conformen sectores estratégicos de gobierno, cada uno bajo la rectoría política de uno o varios ministros, conjuntamente con el Presidente de la República.
+VII.-Que tras varios meses de gestión resulta necesario reformar el Decreto Ejecutivo N° 43580-MP-PLAN con la finalidad de ajustar y fortalecer la organización de los diferentes ministerios e instituciones públicas contenidos en dicho Reglamento, a fin de lograr un mejor desempeño en su modo de operación en los diferentes Sectores Estratégicos Gubernamentales y en los Consejos Presidenciales.
+VIII.-Que de conformidad con los artículos 12 y 12 bis del Reglamento a la Ley de Protección al Ciudadano del Exceso de Requisitos y Trámites Administrativos, Decreto Ejecutivo N° 37045-MPMEIC del 22 de febrero de 2012, se procedió a tramitar el Formulario de Evaluación Costo Beneficio en la Sección I denominada Control Previo de Mejora Regulatoria, siendo que el mismo dio resultado negativo y que la propuesta no contiene trámites ni requerimientos.
+Por tanto,
+Decretan:
+"REFORMA A VARIOS ARTÍCULOS DEL DECRETO EJECUTIVO N° 43580-MP-PLAN DEL 1° DE JUNIO DE 2022, DENOMINADO "REGLAMENTO ORGÁNICO DEL PODER EJECUTIVO"
+Artículo 1°-Refórmese el inciso a) del artículo 7 del Decreto Ejecutivo N° 43580-MP-PLAN del 1° de junio de 2022, Reglamento Orgánico del Poder Ejecutivo, para que se suprima el numeral 6 correspondiente al Instituto Costarricense de Acueductos y Alcantarillados (ICAA) se corra la numeración en dicho inciso, cuyo texto es el siguiente:
+"Artículo 7°-De los Sectores Estratégicos Gubernamentales: creación e integración.
+(...)
+a) Sector Ambiente y Energía:
+(...)
+2. Comisión Nacional de Prevención de Riesgos y Atención de Emergencias (CNE)
+3. Instituto Costarricense de Electricidad (ICE) y Gestión de Cobro ICE S. A.
+4. Refinadora Costarricense de Petróleo S. A. (RECOPE)
+5. Compañía Nacional de Fuerza y Luz S. A. (CNFL)
+6. Empresa de Servicios Públicos de Heredia S. A. (ESPH)
+7. Junta Administrativa del Servicio Eléctrico Municipal de Cartago (JASEC)
+8. Oficina Nacional Forestal, entendiéndose su participación en lo que a protección del medio ambiente se refiere.
+9. Autoridad Reguladora de los Servicios Públicos (ARESEP). (...)"
