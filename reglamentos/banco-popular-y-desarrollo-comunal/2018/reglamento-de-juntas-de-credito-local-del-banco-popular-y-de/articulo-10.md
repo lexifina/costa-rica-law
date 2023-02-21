@@ -1,16 +1,14 @@
-Artículo 10.—Funciones de las Juntas de Crédito Local. Corresponde a las Juntas de Crédito Local cumplir con lo dispuesto en el artículo 32 de la Ley Orgánica del Banco Popular y de Desarrollo Comunal, para recomendar al canal administrativo que defina lo siguiente:
-a. El otorgamiento de crédito a los grupos de interés del Banco Popular y de Desarrollo Comunal, según los parámetros legales y reglamentarios que apliquen para cada caso.
-b. Fomentar la recuperación de las carteras de crédito con recomendaciones que fortalezcan las buenas prácticas bancadas.
-c. Mejorar las relaciones públicas del Banco con sus grupos de interés económico.
-d. Coordinar con la Gerencia de la Sucursal la promoción de los productos y servicios del Conglomerado Financiero Banco Popular y de Desarrollo Comunal, dentro de la zona de su competencia.
-e. Proponer a la Junta Directiva:
-i. Las alianzas estratégicas en su zona de influencia que generen oportunidades en lo económico-financiero, social y ambiental, en concordancia con los objetivos estratégicos del Conglomerado Financiero del Banco Popular y de Desarrollo Comunal.
-ii. Las acciones que contribuyan a la identificación de proyectos de desarrollo local en pro de la búsqueda de procesos de articulación con actores locales.
-iii. Procurar el desarrollo económico y social de los sectores que componen la Asamblea Nacional de Trabajadores y Trabajadoras, para el fortalecimiento de las comunidades de influencia de la sucursal.
-f. Elaborar su plan de trabajo anual, en concordancia con el PAO de la respectiva sucursal y con el plan estratégico del Conglomerado Financiero del Banco Popular y de Desarrollo Comunal.
-g. Presentar semestralmente a la Comisión de Pautas, Políticas y Juntas de Crédito Local un avance de los resultados del plan de trabajo.
-h. Conocer mensualmente los informes en materia de crédito, morosidad e incobrabilidad y, cuando se requiera, realizar las recomendaciones pertinentes a la Administración, según corresponda.
-i. Conocer trimestralmente el cumplimiento del Plan Anual de Trabajo de la sucursal y, cuando se requiera, realizar las recomendaciones pertinentes a la Administración, según corresponda.
-j. Presentar un informe de fin de gestión y realizar la entrega formal del órgano a su sucesor, de conformidad con la normativa aplicable.
-k. Asistir a las capacitaciones a las que se le convoque formalmente por el Banco, por medio de los órganos especializados.
-La convocatoria deberá hacerse con una antelación no menor de 15 días naturales. El Banco suplirá los viáticos y gastos de viaje necesarios con cargo al presupuesto de cada sucursal.
+Artículo 10.-Funciones de las JCL. Las funciones que deben desempeñar las Juntas de Crédito Local establecidas en el artículo 32 de la LOBPD, se deben desempeñar tomando en cuenta el siguiente detalle:
+a. Otorgar o improbar las solicitudes de créditos a los grupos de interés del Banco Popular y de Desarrollo Comunal, legales y reglamentarios que aplique para cada caso.
+b. Conocer y analizar mensualmente el informe del estado de la cartera de crédito, morosidad, incobrabilidad y estimaciones, de manera que se emitan las recomendaciones a la Administración para valorar su implementación y así fortalecer los mecanismos de recuperación de la cartera conforme a las metas definidas en el Plan Estratégico.
+c. Coordinar con la Gerencia de la Sucursal visitas a las organizaciones que integran los grupos de interés del Banco Popular y de Desarrollo Comunal dentro de la zona de su competencia, para promocionar los servicios y productos que ofrece el conglomerado.
+d. Proponer a la Junta Directiva
+i. Alianzas con los grupos de interés y posibles clientes actuales y potenciales en su zona de influencia para propiciar y mejorar las relaciones públicas y oportunidades en lo económico-financiero, social y ambiental, en concordancia con los objetivos estratégicos del Conglomerado Financiero del Banco Popular y de Desarrollo Comunal.
+ii. Las acciones que contribuyan a la identificación de proyectos de desarrollo local en su zona de influencia, en procura del desarrollo económico, social y ambiental que fortalezca a las comunidades y los sectores que componen la Asamblea Nacional de Trabajadores y Trabajadoras, en la búsqueda de procesos de articulación con actores locales.
+e. Elaborar su plan de trabajo de acuerdo con el período de nombramiento, en concordancia con el PAO de la respectiva sucursal y con el plan estratégico del Conglomerado Financiero del Banco Popular y de Desarrollo Comunal. Anualmente se debe revisar para determinar las actualizaciones correspondientes y posibles mejoras.
+f. Presentar semestralmente al Comité Corporativo de Nominaciones y Remuneraciones, un avance de los resultados del plan de trabajo.
+g. Conocer trimestralmente el cumplimiento del Plan Anual de Trabajo de la sucursal y, cuando se requiera, realizar las recomendaciones pertinentes a la Administración, según corresponda.
+h. Presentar un informe de fin de gestión y realizar la entrega formal del órgano a su sucesor, de conformidad con la normativa aplicable.
+i. Participar de las capacitaciones presenciales o virtuales a las que se le convoque formalmente por el Banco, por medio de los órganos especializados. La convocatoria deberá hacerse con una antelación no menor de 15 días naturales. El Banco suplirá los viáticos y gastos de viaje necesarios con cargo al presupuesto de cada sucursal si esta es presencial. La formación de los integrantes de los integrantes de las Juntas de Crédito Local se realizará sobre temas de banca y finanzas, riesgos y normativa prudencial, entre otros.
+j. Impulsar la colocación de productos de Banca Social, en el área de influencia de la sucursal donde se encuentran nombrados.
+(Así reformado en sesión N° 5979 del 21 de febrero de 2023)
