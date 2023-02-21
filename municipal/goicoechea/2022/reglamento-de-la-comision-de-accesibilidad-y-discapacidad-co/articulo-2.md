@@ -1,0 +1,1 @@
+Artículo 2º-De la Comisión Municipal de Accesibilidad y Discapacidad. La COMAD, velará porque la Municipalidad de Goicoechea impulse políticas públicas locales a favor de la igualdad y la equiparación de oportunidades, promoviendo un desarrollo local participativo e inclusivo y accesible que contemple las diversas necesidades y derechos de la población con discapacidad.
