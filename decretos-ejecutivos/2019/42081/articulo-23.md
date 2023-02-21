@@ -1,1 +1,0 @@
-Artículo 23. Trazabilidad y consulta de VUI. El Sistema debe permitir la visualización del estado en que se encuentran los trámites realizados, así como los responsables de diligenciarlos; además, dará alerta a los responsables de cada proceso sobre el vencimiento de los plazos definidos para cada trámite.

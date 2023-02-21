@@ -1,1 +1,0 @@
-Artículo 64. Intercambio de información. Los organismos públicos que integran y participen en el Sistema VUI, con competencias que tiendan a un mismo fin o que resulten complementarias, tienen el deber de compartir información necesaria para el ejercicio de sus competencias legales.

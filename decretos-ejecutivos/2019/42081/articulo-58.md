@@ -1,1 +1,0 @@
-Artículo 58. Plazos de los tramites ambientales. El Documento Evaluación Ambiental D2 (VUI-FD2) que los usuarios tramiten en VUI serán resueltas por la Secretaría Técnica Ambiental (SETENA) en el plazo máximo de dos días hábiles, posterior a la presentación de la solicitud.

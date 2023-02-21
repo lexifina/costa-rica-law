@@ -1,1 +1,0 @@
-Artículo 16.- Presunción de autoría y responsabilidad. Todo documento, mensaje o formulario electrónico asociado a un Usuario sin Firma Digital, validado en el ámbito del sistema VUI, se presumirá como válido, salvo prueba en contrario, como de la autoría y responsabilidad del usuario registrado con este mecanismo.

@@ -1,2 +1,0 @@
-Artículo 7. Obligación de actualización. Los usuarios registrados están obligados a mantener actualizada la información aportada en el Sistema en el Registro de Usuarios cuando se presente algún cambio.
-Asimismo, los usuarios registrados son responsables de que la información que se remita a la institución usuaria a través del Sistema sea veraz, completa, oportuna y exacta, todo lo anterior sin perjuicio de la responsabilidad civil y penal que conlleve cualquier omisión o alteración en ese sentido.

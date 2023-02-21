@@ -1,1 +1,0 @@
-Artículo 26. Requerimientos técnicos. Los usuarios que utilicen VUI, deben cumplir los requerimientos técnicos que se definan en las Políticas de uso; además, son responsables del mantenimiento de los medios que adquieran e instalen para la utilización de VUI.

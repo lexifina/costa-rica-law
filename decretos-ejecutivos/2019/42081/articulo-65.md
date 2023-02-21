@@ -1,3 +1,0 @@
-Artículo 65. Modifíquense el artículo 31 del Reglamento General para el otorgamiento del Certificado Veterinario de Operación, Decreto Nº 34859-MAG del 20 de octubre del 2008, publicado en el Diario Oficial La Gaceta Nº 230 del 20 de noviembre del 2008, para que en adelante se lean de la manera siguiente:
-"Artículo 31.- Plazo de resolución del trámite del CVO. El SENASA deberá resolver la solicitud del CVO dentro del plazo de diez naturales a partir del día de recepción de los documentos.
-Se podrá requerir ampliaciones o aclaraciones adicionales a los documentos presentados en forma escrita y motivada por una única vez y cuando ello sea imprescindible para la resolución de la solicitud."
