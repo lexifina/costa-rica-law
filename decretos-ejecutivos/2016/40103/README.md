@@ -15,3 +15,4 @@ Reglamento del sistema de Ventanilla única de Inversión
 | --- | --- | --- |
 | 1 | 2018-04-19 | la propia norma |
 | 2 | 2022-04-18 | Decreto Ejecutivo 43479 (2022-04-18) |
+| 3 | 2023-02-21 | Decreto Ejecutivo 43941 (2023-02-21) |
