@@ -14,3 +14,4 @@ Reforma Medidas de ordenamiento para el uso de carnada viva para la flota pesque
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-02-09 | la propia norma |
+| 2 | 2023-02-21 | Acuerdo 33 (2023-02-21) |
