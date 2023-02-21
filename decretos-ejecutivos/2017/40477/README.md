@@ -14,3 +14,4 @@ Regulaciones para el aprovechamiento y extracción de madera de árboles caídos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-07-04 | la propia norma |
+| 2 | 2023-02-21 | Decreto Ejecutivo 43933 (2023-02-21) |
