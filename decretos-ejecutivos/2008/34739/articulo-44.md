@@ -9,13 +9,15 @@ e) Número de teléfono, fax y correo electrónico de la empresa sustituta.
 f) Nombre del representante legal de la empresa sustituta, con indicación del documento y el número de identificación.
 g) Declaración jurada de la empresa sustituta en la cual se indique lo siguiente:
 i. Que la empresa no se dedicará a la producción o comercialización de cualquier tipo de armas y municiones que contengan uranio empobrecido ni la producción o comercialización de cualquier tipo de arma.
-ii. Que la empresa no se dedicará a la extracción minera, la exploración o extracción de hidrocarburos, ni tampoco se dedicará a la generación de energía eléctrica, salvo que la generación sea para el autoconsumo.
+ii. Que la empresa no se dedicará a la extracción minera, la exploración o extracción de hidrocarburos, ni tampoco se dedicará a la generación de energía eléctrica, salvo que la generación sea para el autoconsumo o en los supuestos establecidos en el artículo 16 bis de la Ley del Régimen de Zona Franca.
+(Así reformado el inciso anterior por el artículo 2° del decreto ejecutivo N° 43934 del 21 de febrero del 2023)
 iii) Que la empresa está inscrita como contribuyente ante la DGT, y está al día con las obligaciones tributarias y aduaneras de conformidad con lo dispuesto en los artículos 18 bis, 62, 64 y 99 del Código de Normas y Procedimientos Tributarios, Ley Nº 4755 del 3 de mayo de 1971, y sus reformas; el artículo 29 de la Ley General de Aduanas, Ley Nº 7557 del 20 de octubre de 1995 y sus reformas y el artículo 6 del Reglamento a la Ley del Impuesto sobre la Renta, Decreto Ejecutivo Nº 18445-H del 09 de septiembre de 1988 y sus reformas.
 (Así reformado el inciso anterior por el artículo 2° del decreto ejecutivo N° 42189 del 20 de diciembre del 2019)
 iv. Que la empresa se encuentra al día en todas sus obligaciones obrero-patronales con la Caja Costarricense de Seguro Social.
 v. Que la empresa, sus accionistas, directores, empleados o personeros, no han sido sancionados en relación con las actividades de la empresa, mediante resolución firme en vía administrativa, por haber incurrido en infracciones administrativas, aduaneras, tributarias o tributario-aduaneras.
 vi. Que la empresa, sus accionistas, directores, empleados o personeros, no han sido condenados en relación con las actividades de la empresa, mediante resolución firme en la vía judicial, por haber incurrido en delitos aduaneros o tributarios.
-vii. Que la empresa no es una entidad bancaria, financiera o aseguradora y tampoco se dedica a prestar servicios profesionales.
+vii. Que la empresa no es una entidad bancaria, financiera o aseguradora y tampoco se dedica a prestar servicios profesionales, excepto los de los centros de servicios de salud humana que se instalen fuera del Gran Área Metropolitana (GAM).
+(Así reformado el inciso anterior por el artículo 2° del decreto ejecutivo N° 43934 del 21 de febrero del 2023)
 viii. Que la empresa se compromete a adquirir un software apto para la transmisión electrónica de datos al sistema de información del Servicio Nacional de Aduanas.
 ix. Que la empresa se compromete a cumplir con las disposiciones legales, reglamentarias y procedimentales relativas al control y seguridad de las mercancías que deben observase en las instalaciones.
 h) La firma del formulario deberá estar autenticada por abogado o notario público.
