@@ -1,0 +1,1 @@
+Artículo 20.-La Municipalidad coordinará con los Concejos de Distrito como mecanismo para involucrar a las comunidades en la solución de sus propios problemas y en la definición de su propio modelo de desarrollo.

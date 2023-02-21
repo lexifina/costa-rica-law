@@ -1,0 +1,1 @@
+Artículo 8º-Principio de equidad y justicia. La Municipalidad, en sus interacciones con las distintas expresiones de la Sociedad Civil, actuará siempre con base en los principios de equidad y Justicia contenidos en la Constitución Política y en los tratados y convenios internacionales ratificados por nuestro país.

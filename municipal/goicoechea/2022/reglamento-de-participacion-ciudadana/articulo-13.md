@@ -1,0 +1,1 @@
+Artículo 13.-La Municipalidad divulgará por transmisión en vivo o asincrónica, dichos eventos, procurando la accesibilidad de los mismos por medio de la interpretación en Lengua en señas costarricense así como el uso de texto alternativo y aumentativo.

@@ -1,0 +1,1 @@
+Artículo 10.-La Municipalidad diseñará políticas y programas destinados a la niñez, la adolescencia y las juventudes, con el propósito de fomentar en estos sectores el interés por la participación ciudadana en la gestión municipal.

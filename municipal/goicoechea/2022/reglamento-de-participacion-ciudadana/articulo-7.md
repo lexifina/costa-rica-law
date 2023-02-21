@@ -1,0 +1,1 @@
+Artículo 7º-Principio de solidaridad. La Municipalidad y la sociedad civil actuarán en todo momento con base en el principio de solidaridad y cocreación, colaborando entre sí para conseguir un mismo fin: el desarrollo sostenible y armónico con la sociedad y el medio ambiente.
