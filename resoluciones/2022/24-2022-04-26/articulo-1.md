@@ -82,7 +82,7 @@ Así, establece la norma citada, que el procedimiento para fijar tarifas, puede 
 Con el fin de precisar lo consultado, se indica que, en las fijaciones de carácter ordinario, pueden ser contempladas aquellas revisiones que se realizan a una o varias empresas, ya sea por gestión directa, o de oficio por el Ente Regulador. En la fijación ordinaria, se contemplan factores de costo e inversión, de conformidad con lo dispuesto en el inciso b) del artículo 3 de la Ley N°. 7593. En ese sentido, en dichas fijaciones individuales, se contemplan tanto factores de operación (como la flota, la carrera y la distancia) como gastos de funcionamiento y de inversión necesarios para prestar el servicio (ver sentencia de la Sala Primera N°. 000655-F- S1-2012).
 Ahora bien, con respecto a las fijaciones de carácter extraordinario, el artículo 30 de la Ley N°. 7593, establece que serán aquellas que consideren variaciones importantes en el entorno económico, por caso fortuito o fuerza mayor y cuando se cumplan las condiciones de los modelos automáticos de ajuste.
 A su vez, el cardinal 31 de la Ley N°. 7593, establece que para fijar tarifas se deben tomar en cuenta las estructuras productivas modelo para cada servicio público, según el desarrollo del conocimiento, la tecnología, las posibilidades del servicio, la actividad de que se trate y el tamaño de las empresas prestadoras. En este último caso, se procurará fomentar la pequeña y la mediana empresa. Si existe imposibilidad comprobada para aplicar este procedimiento, se considerará la situación particular de cada empresa. Dicha normativa, define en su párrafo tercero las condiciones de los modelos automáticos de ajuste, de la siguiente manera:
-"(…) La Autoridad Reguladora deberá aplicar modelos de ajuste anual de tarifas, en función de la modificación de las variables externas a la administración de los prestadores de los servicios, tales como inflación, tipos de cambio, tasas de interés, precios de hidrocarburos, fijaciones salariales realizadas por el Poder Ejecutivo y cualquier otra variable que la Autoridad Reguladora considere pertinente (.)".
+"(.) La Autoridad Reguladora deberá aplicar modelos de ajuste anual de tarifas, en función de la modificación de las variables externas a la administración de los prestadores de los servicios, tales como inflación, tipos de cambio, tasas de interés, precios de hidrocarburos, fijaciones salariales realizadas por el Poder Ejecutivo y cualquier otra variable que la Autoridad Reguladora considere pertinente (.)".
 Así, en el procedimiento tarifario, cada petición sobre tarifas y precios deberá estar debidamente justificada, según lo dispone el artículo 33 de la Ley N°. 7593 y regirán las tarifas y precios, que fije la Aresep, a partir del momento de su publicación en el Diario Oficial La Gaceta o a partir del momento en que lo indique la resolución correspondiente, artículo 34 ibídem.
 Lo anterior, también es desarrollado en los artículos 14 al 17 del Decreto Ejecutivo N°. 29732-MP, que disponen entre otras cosas, que para fijar las tarifas, se utilizarán los modelos, los cuales deben ser aprobados por la Aresep, de acuerdo con la ley; que las tarifas se fijaran de manera que incorporen elementos técnicos y económicos; que se tomarán en cuenta ingresos y costos necesarios para prestar el servicio, la obligación de que los prestadores lleven una contabilidad separada para la actividad de explotación del servicio público que prestan.
 El numeral 36 de la Ley N°. 7593, dispone el procedimiento de audiencia pública, que deberá seguirse en la formulación o revisión de los modelos de fijación de precios y tarifas, en la que podrán participar las personas que tengan interés legítimo para manifestarse. Dicho numeral, se encuentra reglamentado en los artículos 44 al 56 del Decreto N°. 29732-MP, en relación con el numeral 9 de la Constitución Política, como manifestación del derecho constitucional de participación ciudadana, el cual ha sido plasmado por la Sala Constitucional en la sentencia 7213-2012, al establecer la obligación de la Aresep, de garantizar la participación ciudadana en la formulación de metodologías tarifarias (en igual sentido ver las sentencias de la Sala Constitucional Nº 2009-016649 y Nº 2008- 17093, entre otras).
@@ -123,7 +123,7 @@ Por su parte, el artículo 3 de la Ley N°. 6588, establece, además, una funci�
 Asimismo, el Servicio Nacional de Electricidad tendrá libre acceso a los libros de contabilidad, cuentas, comprobantes, archivos y registros de RECOPE, con el fin de verificar cualquier dato relacionado con los costos de operación, ventas de hidrocarburos y otras actividades que sean necesarias en el proceso de fijación de precios.
 RECOPE, deberá acatar las indicaciones correctivas que, sobre el particular, le señale el SNE; además está obligada a adoptar y mantener los sistemas contables que llegue a convenir con éste".
 Este artículo, ha sido analizado por la PGR, en el dictamen C-126-87, el cual cita en lo de interés:
-"(…) confiere una serie de atribuciones al SNE, siempre en aras al cumplimiento de aquella función primordial asignada en el artículo 2º, cual es la fijación de los precios de los productos que venda RECOPE. Atribuciones que pueden sintetizarse en un acceso a toda información que tenga RECOPE relacionada con el punto y que se despliegan en virtud del ejercicio de una función de control, consecuencia del desarrollo de una función de decisión. (.)
+"(.) confiere una serie de atribuciones al SNE, siempre en aras al cumplimiento de aquella función primordial asignada en el artículo 2º, cual es la fijación de los precios de los productos que venda RECOPE. Atribuciones que pueden sintetizarse en un acceso a toda información que tenga RECOPE relacionada con el punto y que se despliegan en virtud del ejercicio de una función de control, consecuencia del desarrollo de una función de decisión. (.)
 El Servicio Nacional de Electricidad en ejercicio a su función de control, tiene acceso a la información que obre en manos de RECOPE, Estaciones de Servicio y Transportistas de combustibles, con el objeto de fijar los precios de venta de estos productos, así como los márgenes de utilidad."
 En el marco normativo de la ley Nº 6588, se debe considerar lo establecido en los diferentes Decretos emitidos por el Poder Ejecutivo, con la finalidad de reglamentar esa ley.
 Al respecto, el Reglamento a Ley N°. 6588 "Ley que Regula a la Refinadora Costarricense de Petróleo (RECOPE)", Decreto Ejecutivo Nº 14874-MIEM, vigente desde el 14 de octubre de 1983, ratificó en sus artículos 2 y 2 bis, la competencia de la Aresep, para fijar el precio de venta de los productos suministrados por Recope. El Decreto Ejecutivo Nº 14874-MIEM, establece en su artículo 6:
@@ -136,7 +136,7 @@ Artículo 7°-La Refinadora Costarricense de Petróleo, S. A., reconocerá a par
 El Reglamento de Biocombustibles, Decreto Ejecutivo N°. 35091-MAG-MINAET3 del 9 de enero de 2009, que tiene por objetivo propiciar el desarrollo de una industria nacional de biocombustibles y un régimen equitativo de relaciones entre los actores o los agentes de la actividad de biocombustibles, que garantice el desarrollo sostenible de la cadena de valor del sector energético nacional el cual incluye la producción, el transporte, el almacenamiento, la distribución, y la comercialización tanto mayorista como de detalle (art. 2), establece con respecto a los precios de venta del combustible fósil mezclado, lo siguiente: .
 3El artículo primero del Decreto Ejecutivo N° 35091-MAG-MINAET, define en lo de interés: "Biocombustible: Combustible que se deriva de la biomasa, masa biológica o materia viva producida en un área determinada de la superficie terrestre, lacustre o marítima o por organismos de un tipo específico de origen no fósil, el cual cumple con los indicadores técnicos de calidad correspondientes. Biodiesel: Biocombustible formado por ésteres monoalquílicos con cadenas largas derivadas de ácidos grasos provenientes de aceites o grasas de origen vegetal o animal, y por ende de recursos renovables, identificado como B100, que cumple con las especificaciones de calidad establecidas en el Decreto Ejecutivo 34128-COMEX-MEIC-MINAE. Etanol o Bioetanol: Biocombustible derivado de recursos renovables, que posee en su estructura dos átomos de carbono, en uno de los cuales se ha sustituido un átomo de hidrógeno por un grupo funcional hidroxilo (OH), también conocido como alcohol etílico, cuya fórmula química es C2H5OH. Denominado de ahora en adelante E-100.
 Combustible fósil mezclado: Combustible de origen fósil mezclado con Biocombustibles, en las proporciones autorizadas por la autoridad competente.
-Distribuidor de Combustible Fósil Mezclado: Persona física o jurídica, pública o privada, que cuenta con las autorizaciones necesarias para almacenar y vender combustibles mezclados a usuarios finales, de conformidad con las especificaciones de calidad aplicables a cada uno de los productos.”
+Distribuidor de Combustible Fósil Mezclado: Persona física o jurídica, pública o privada, que cuenta con las autorizaciones necesarias para almacenar y vender combustibles mezclados a usuarios finales, de conformidad con las especificaciones de calidad aplicables a cada uno de los productos."
 "Artículo 10.-Precios de venta del combustible fósil mezclado. El precio de venta del combustible fósil mezclado en los planteles de RECOPE será fijado por la Autoridad Reguladora de los Servicios Públicos. De la misma manera será fijado el precio a los usuarios finales.
 Como parte del servicio público de suministro de combustibles, los prestatarios de servicio público deberán realizar las actividades de limpieza, calibración y mantenimiento de la infraestructura utilizada para garantizar el suministro del combustible según la reglamentación vigente."
 Además, dispone el Decreto Ejecutivo N°. 35091-MAG-MINAET en su artículo 6, lo siguiente:
@@ -239,7 +239,7 @@ Lo anterior, se realiza de conformidad con lo solicitado por la lE, en el oficio
 El informe, como se indicó, se sustenta en las conclusiones de distintos proyectos de valor agregado desarrollados por la Intendencia durante el año 2020, así como la experiencia de los equipos técnicos responsables de la tramitación de estudios tarifarios, en donde destacan oportunidades de mejora relacionadas con el tratamiento de: 1) liquidación tarifaria, 2) costos y gastos de operación, mantenimiento y administrativos (COMA), 3) rédito, 4) base tarifaria y 5) inversiones y otras consideraciones generales que atañen el servicio regulado.
 En el informe IN-0233-IE-2020 que sirve de sustento a dicho oficio, se procedió a dar una justificación para realizar el cambio en relación con la liquidación a desarrollar, basado en la experiencia que se ha tenido en la liquidación instituida en las metodologías de electricidad, en dicha justificación se indicó:
 Dentro del análisis realizado mediante el Proyecto de Valor Agregado "Efecto tarifario del proceso de liquidación tarifaria", se aprecia que las empresas han utilizado el mecanismo de liquidación para prácticamente compensar las diferencias en costos y gastos que vía tarifas se les negaron principalmente por no estar debidamente justificados y de información incompleta, aspecto que a todas luces debe ser parte integral de peticiones ordinarias de conformidad con el artículo 33 de la Ley 7593.
-(…)
+(.)
 Es por eso, que se propone aquí una modificación a esta sección, de tal manera que, si hay una necesidad de liquidación, la misma se realice con base en un estudio de fiscalización formal que evalúe las variables implicadas, que deben ser exógenas al servicio público, su impacto tarifario, su necesidad para prestar el servicio el público y todos los análisis necesarios en resguardo del principio de servicio al costo.
 Se analizó la propuesta y justificaciones planteadas por la IE y se consideró adecuado el planteamiento en su gran mayoría, de modo que en las liquidaciones ordinarias se busque garantizar el principio del servicio al costo y la eficiencia, desde un proceso más riguroso y con un seguimiento más detallado por medio de estudios de fiscalización, que podrían ser incluidos en los estudios tarifarios ordinarios como insumo.
 i) Revaluación de activos:
@@ -351,26 +351,26 @@ Para la determinación de los precios al consumidor final, se deberán considera
 La fórmula para establecer el precio al consumidor final para productos vendidos en volumen (litros) será la siguiente:
 [imagen]
 Donde:
-PCDFLi,t = Precio de venta al consumidor final por litro, para el combustible “i” en el ajuste tarifario “t”.
-PPCVi,t = Precio de venta en terminales de ventas, del combustible “i” que se comercializa en volumen, en el ajuste tarifario “t”.
-MGLi,t,m = Margen de suministro en el segmento “m” de la cadena, para el combustible “i”, expresado en colones por litros, en el ajuste tarifario “t”. Estos valores se determinarán por medio de metodologías específicas.
+PCDFLi,t = Precio de venta al consumidor final por litro, para el combustible "i" en el ajuste tarifario "t".
+PPCVi,t = Precio de venta en terminales de ventas, del combustible "i" que se comercializa en volumen, en el ajuste tarifario "t".
+MGLi,t,m = Margen de suministro en el segmento "m" de la cadena, para el combustible "i", expresado en colones por litros, en el ajuste tarifario "t". Estos valores se determinarán por medio de metodologías específicas.
 i = Tipos de combustibles.
 t = Subíndice que representa cada fijación tarifaria.
-m = Subíndice que representa cada segmento de la cadena para el combustible “i”, desde el primer segmento “mp” hasta el último segmento “mf”.
-mp = Subíndice que representa el primer segmento de la cadena para el combustible “i”.
-mf = Subíndice que representa el último segmento de la cadena para el combustible “i”.
+m = Subíndice que representa cada segmento de la cadena para el combustible "i", desde el primer segmento "mp" hasta el último segmento "mf".
+mp = Subíndice que representa el primer segmento de la cadena para el combustible "i".
+mf = Subíndice que representa el último segmento de la cadena para el combustible "i".
 2.2. Precio de venta al consumidor final para productos vendidos en masa
 La fórmula para establecer el precio al consumidor final para productos vendidos en masa (kilogramos) será la siguiente:
 [imagen]
 Donde:
-PCDFKi,t = Precio de venta al consumidor final por kilogramo, para el combustible “i” en el ajuste tarifario “t”.
-PPCMi,t = Precio de venta en terminales de ventas, del combustible “i” que se comercializa en masa, en el ajuste tarifario “t”.
-MGKi,t,m = Margen de suministro en el segmento “m” de la cadena, para el combustible “i”, expresado en colones por kilogramo, en el ajuste tarifario “t” (ver ecuación 3).
+PCDFKi,t = Precio de venta al consumidor final por kilogramo, para el combustible "i" en el ajuste tarifario "t".
+PPCMi,t = Precio de venta en terminales de ventas, del combustible "i" que se comercializa en masa, en el ajuste tarifario "t".
+MGKi,t,m = Margen de suministro en el segmento "m" de la cadena, para el combustible "i", expresado en colones por kilogramo, en el ajuste tarifario "t" (ver ecuación 3).
 i = Tipos de combustibles.
 t = Subíndice que representa cada fijación tarifaria.
-m = Subíndice que representa cada segmento de la cadena para el combustible “i”, desde el primer segmento “mp” hasta el último segmento “mf”.
-mp = Subíndice que representa el primer segmento de la cadena para el combustible “i”.
-mf = Subíndice que representa el último segmento de la cadena para el combustible “i”.
+m = Subíndice que representa cada segmento de la cadena para el combustible "i", desde el primer segmento "mp" hasta el último segmento "mf".
+mp = Subíndice que representa el primer segmento de la cadena para el combustible "i".
+mf = Subíndice que representa el último segmento de la cadena para el combustible "i".
 Se aclara que para el caso de los productos que se comercialicen o se lleguen a comercializar en masa esta metodología dispone de un transitorio denominado "Conversión de los márgenes para los combustibles que se comercialice en masa" de la sección "PRIMERA APLICACIÓN Y TRANSITORIOS", el cual establece que se debe convertir los diferentes márgenes que intervienen en la cadena de comercialización en el segmento "m" de la cadena, para el combustible "i" en el ajuste tarifario "t, que estén fijados en volumen utilizando la ecuación 3.
 2.3.Márgenes de la cadena de suministro para cada producto
 Los márgenes propios de la cadena de suministro de cada producto pueden variar según el tipo de producto y se calculan con base en los costos incurridos por los diversos agentes y las actividades necesarias para poner los productos a disposición del usuario final, por lo cual contemplará márgenes de transporte, envasado, distribución, comercialización, estaciones de servicio terrestres, estaciones de servicio aéreas, entre otras, según corresponda.
@@ -378,13 +378,13 @@ Los márgenes para cada producto serán definidos por medio de metodologías esp
 Para otros productos que se comercialicen o que se lleguen a comercializar en masa, en caso de que el margen de suministro en el segmento "m" de la cadena, para el combustible "i" en el ajuste tarifario "t", esté fijado en volumen (colones por litro), se deberá convertir dicho margen a masa (colones por kilogramos) de conformidad con la siguiente ecuación:
 [imagen]
 Donde:
-MGKi,t,m = Margen de suministro en el segmento “m” de la cadena, parael combustible “i”, expresado en colones por kilogramo, en elajuste tarifario “t”.
-MGLi,t,m = Margen de suministro en el segmento “m” de la cadena, para el combustible “i”, expresado en colones por litros, en el ajuste tarifario “t”. Estos valores se determinarán por medio de metodologías específicas.
-DRFi,t = Densidad de referencia del combustible “i” en el ajuste tarifario “t”, expresado en kilogramos por metro cúbico (ver ecuación 6).
+MGKi,t,m = Margen de suministro en el segmento "m" de la cadena, parael combustible "i", expresado en colones por kilogramo, en elajuste tarifario "t".
+MGLi,t,m = Margen de suministro en el segmento "m" de la cadena, para el combustible "i", expresado en colones por litros, en el ajuste tarifario "t". Estos valores se determinarán por medio de metodologías específicas.
+DRFi,t = Densidad de referencia del combustible "i" en el ajuste tarifario "t", expresado en kilogramos por metro cúbico (ver ecuación 6).
 i = Tipo de combustibles.
 t = Subíndice que representa cada fijación tarifaria.
-m = Subíndice que representa cada segmento de la cadena para el combustible “i”, desde el primer segmento “mp” hasta el último segmento “mf”.
-La conversión de la unidad del margen de litros a kilogramos se calculará con estafórmula, hasta tanto no se modifiquen las metodologías y los instrumentos regulatorios que fijen los márgenes respectivos y los requerimientos técnicos aplicables. Tal y como se indica en el transitorio “Conversión de los márgenes para los combustibles que se comercialice en masa” de la sección “PRIMERA APLICACIÓN Y TRANSITORIOS”.
+m = Subíndice que representa cada segmento de la cadena para el combustible "i", desde el primer segmento "mp" hasta el último segmento "mf".
+La conversión de la unidad del margen de litros a kilogramos se calculará con estafórmula, hasta tanto no se modifiquen las metodologías y los instrumentos regulatorios que fijen los márgenes respectivos y los requerimientos técnicos aplicables. Tal y como se indica en el transitorio "Conversión de los márgenes para los combustibles que se comercialice en masa" de la sección "PRIMERA APLICACIÓN Y TRANSITORIOS".
 En caso de que se determinen nuevos márgenes en la cadena, deberá contarse con un estudio técnico que justifique la unidad de venta idónea aplicable.
 2.4. Precio de venta por producto
 El precio en terminales de ventas se obtendrá con base en los costos asociados a la adquisición y distribución de los hidrocarburos en las distintas terminales. Todos los datos de ventas estimadas y ventas reales provienen de los reportes de venta de cada terminal a temperatura observada, con excepción de los productos negros, GLP y productos que se vendan por masa o de modo dual que se registran a 15°C. La condición antes descrita de la temperatura se aplicará para cualquier información volumétrica utilizada como insumo para el cálculo de los componentes de la fórmula para determinar el precio en terminales de ventas.
@@ -400,20 +400,20 @@ Las especificaciones de calidad para los combustibles que se comercializan en el
 La fórmula para fijar el precio por litro en terminales de ventas (PPCVi,t), para los productos que se vendan en litros es la siguiente:
 [imagen]
 Donde:
-PPCVi,t = Precio de venta en terminales de ventas, del combustible “i” que se comercializa en volumen, en el ajuste tarifario “t”.
-COAi,t = Costo de adquisición por litro del combustible “i”, en el ajuste tarifario “t” (ver detalle de cálculo en el apartado “Actualización del costo de adquisición de los combustibles” de la sección “FIJACIONES EXTRAORDINARIAS”).
-ASi,t = Asignación del subsidio del combustible “i”, para el ajuste tarifario “t”. Únicamente participan los combustibles “i” subsidiadores (ver detalle de cálculo en el apartado “Asignación del subsidio cruzado a otros combustibles” de lasección “VARIABLES QUE SE ACTUALIZAN ORDINARIA Y EXTRAORDINARIAMENTE”).
-SEi,t = Subsidio específico por tipo de combustible “i” otorgado por el Estado mediante transferencia directa a Recope, para el ajuste tarifario “t” (ver detalle de cálculo en el apartado “Transferencia directa por parte del Estado” de la sección “VARIABLES QUE SE ACTUALIZAN ORDINARIA Y EXTRAORDINARIAMENTE”).
-SCi,t = Subsidio cruzado por tipo de combustible “i”, para el ajuste tarifario “t” (ver detalle de cálculo en el apartado “Subsidios cruzados” de la sección “VARIABLES QUE SE ACTUALIZAN ORDINARIA Y EXTRAORDINARIAMENTE”).
-DAi,t = Diferencial de precio del combustible “i”, en el ajuste tarifario
-“t” (ver detalle de cálculo en el apartado “Diferencial de precios (DAi,t)” de la sección “FIJACIONES EXTRAORDINARIAS”).
-ALEi,t = Ajuste por liquidación extraordinaria del combustible “i”, para el ajuste tarifario “t” (ver detalle de cálculo en el apartado “Ajuste por liquidación extraordinaria (ALEi,t)” de la sección “FIJACIONES EXTRAORDINARIAS”).
-IUi,t = Impuesto único por tipo de combustible “i”, para el ajuste tarifario “t” (ver detalle de cálculo en el apartado “Impuesto único a los combustibles” de la sección “FIJACIONES EXTRAORDINARIAS”).
-CAi,t = Canon de regulación de la actividad de suministro del combustible “i”, para el ajuste tarifario “t” (ver detalle de cálculo en el apartado “Canon de regulación de Recope
-(CAi,t)” de la sección “FIJACIONES EXTRAORDINARIAS”).
-MOi,t = Margen de operación de Recope por litro del combustible “i”,en el ajuste tarifario “t” (ver detalle de cálculo en el apartado “Determinación del margen de operación (MOi,t)” de la sección “FIJACIONES ORDINARIAS”).
-RSBTi,t = Rendimiento sobre base tarifaria para el combustible “i”, en el ajuste tarifario “t” (ver detalle de cálculo en el apartado “Determinación del rendimiento sobre la base tarifaria” de la sección “FIJACIONES ORDINARIAS”).
-ALOi,t = Ajuste por liquidación ordinaria del combustible “i”, en el ajuste tarifario “t” (ver detalle de cálculo en el apartado “Liquidación ordinaria” de la sección “FIJACIONES ORDINARIAS”).
+PPCVi,t = Precio de venta en terminales de ventas, del combustible "i" que se comercializa en volumen, en el ajuste tarifario "t".
+COAi,t = Costo de adquisición por litro del combustible "i", en el ajuste tarifario "t" (ver detalle de cálculo en el apartado "Actualización del costo de adquisición de los combustibles" de la sección "FIJACIONES EXTRAORDINARIAS").
+ASi,t = Asignación del subsidio del combustible "i", para el ajuste tarifario "t". Únicamente participan los combustibles "i" subsidiadores (ver detalle de cálculo en el apartado "Asignación del subsidio cruzado a otros combustibles" de lasección "VARIABLES QUE SE ACTUALIZAN ORDINARIA Y EXTRAORDINARIAMENTE").
+SEi,t = Subsidio específico por tipo de combustible "i" otorgado por el Estado mediante transferencia directa a Recope, para el ajuste tarifario "t" (ver detalle de cálculo en el apartado "Transferencia directa por parte del Estado" de la sección "VARIABLES QUE SE ACTUALIZAN ORDINARIA Y EXTRAORDINARIAMENTE").
+SCi,t = Subsidio cruzado por tipo de combustible "i", para el ajuste tarifario "t" (ver detalle de cálculo en el apartado "Subsidios cruzados" de la sección "VARIABLES QUE SE ACTUALIZAN ORDINARIA Y EXTRAORDINARIAMENTE").
+DAi,t = Diferencial de precio del combustible "i", en el ajuste tarifario
+"t" (ver detalle de cálculo en el apartado "Diferencial de precios (DAi,t)" de la sección "FIJACIONES EXTRAORDINARIAS").
+ALEi,t = Ajuste por liquidación extraordinaria del combustible "i", para el ajuste tarifario "t" (ver detalle de cálculo en el apartado "Ajuste por liquidación extraordinaria (ALEi,t)" de la sección "FIJACIONES EXTRAORDINARIAS").
+IUi,t = Impuesto único por tipo de combustible "i", para el ajuste tarifario "t" (ver detalle de cálculo en el apartado "Impuesto único a los combustibles" de la sección "FIJACIONES EXTRAORDINARIAS").
+CAi,t = Canon de regulación de la actividad de suministro del combustible "i", para el ajuste tarifario "t" (ver detalle de cálculo en el apartado "Canon de regulación de Recope
+(CAi,t)" de la sección "FIJACIONES EXTRAORDINARIAS").
+MOi,t = Margen de operación de Recope por litro del combustible "i",en el ajuste tarifario "t" (ver detalle de cálculo en el apartado "Determinación del margen de operación (MOi,t)" de la sección "FIJACIONES ORDINARIAS").
+RSBTi,t = Rendimiento sobre base tarifaria para el combustible "i", en el ajuste tarifario "t" (ver detalle de cálculo en el apartado "Determinación del rendimiento sobre la base tarifaria" de la sección "FIJACIONES ORDINARIAS").
+ALOi,t = Ajuste por liquidación ordinaria del combustible "i", en el ajuste tarifario "t" (ver detalle de cálculo en el apartado "Liquidación ordinaria" de la sección "FIJACIONES ORDINARIAS").
 i = Tipo de combustibles.
 t = Subíndice que representa cada fijación tarifaria.
 Es importante aclarar que los productos que se comercializarán por volumen (litro) en terminales de ventas, serán los productos del pliego tarifario vigente, con excepción del GLP, propano comercial, emulsión asfáltica tanto de rompimiento rápido como lento y asfaltos, los cuales se comercializarán por masa y les aplicaría lo indicado en la ecuación 5.
@@ -424,42 +424,43 @@ La temporalidad y el detalle de cálculo de cada una de las variables se definen
 Para el caso de los productos de GLP, propano comercial, búnker, asfalto y emulsiones asfálticas tanto de rompimiento rápido como lento, así como la incorporación de nuevos productos cuyas ventas deben ser realizadas por masa, la fórmula para fijar el precio en terminales de ventas (PPCMi,t), es la siguiente:
 [imagen]
 Donde:
-PPCMi,t = Precio de venta en terminales de ventas, del combustible “i” que se comercializa en masa, en el ajuste tarifario “t”.
-COAi,t = Costo de adquisición por litro del combustible “i”, en el ajuste tarifario “t” (ver detalle de cálculo en el apartado “Actualización del costo de adquisición de los combustibles” de la sección “FIJACIONES EXTRAORDINARIAS”).
-ASi,t = Asignación del subsidio del combustible “i”, para el ajuste tarifario “t”. Únicamente participan los combustibles “i” subsidiadores (ver detalle de cálculo en el apartado “Asignación del subsidio cruzado a otros combustibles” de la sección “VARIABLES QUE SE ACTUALIZAN ORDINARIA Y EXTRAORDINARIAMENTE”).
-SEi,t = Subsidio específico por tipo de combustible “i” otorgado por el Estado mediante transferencia directa a Recope, para el ajuste tarifario “t” (ver detalle de cálculo en el apartado “Transferencia directa por parte del Estado” de la sección “VARIABLES QUE SE ACTUALIZAN ORDINARIA Y EXTRAORDINARIAMENTE”).
-SCi,t = Subsidio cruzado por tipo de combustible “i”, para el ajuste tarifario “t” (ver detalle de cálculo en el apartado “Subsidios cruzados” la sección “VARIABLES QUE SE ACTUALIZAN ORDINARIA Y EXTRAORDINARIAMENTE”).
-DAi,t = Diferencial de precio del combustible “i”, en el ajuste tarifario
-“t” (ver detalle de cálculo en el apartado “Diferencial de precios (DAi,t)” de la sección “FIJACIONES EXTRAORDINARIAS”).
-ALEi,t = Ajuste por liquidación extraordinaria del combustible “i”, para el ajuste tarifario “t” (ver detalle de cálculo en el apartado “Ajuste por liquidación extraordinaria (ALEi,t)” en la sección “FIJACIONES EXTRAORDINARIAS”).
-IUi,t = Impuesto único por tipo de combustible “i”, para el ajustetarifario “t” (ver detalle de cálculo en el apartado “Impuesto único a los combustibles” en la sección “FIJACIONES EXTRAORDINARIAS”).
-CAi,t = Canon de regulación de la actividad de suministro del combustible “i”, para el ajuste tarifario “t” (ver detalle de cálculo en el apartado “Canon de regulación de Recope
-(CAi,t)” de la sección “FIJACIONES EXTRAORDINARIAS”).
-MOi,t = Margen de operación de Recope por litro del combustible “i”, en el ajuste tarifario “t” (ver detalle de cálculo en el apartado “Determinación del margen de operación (MOi,t)” de la sección “FIJACIONES ORDINARIAS”).
-RSBTi,t = Rendimiento sobre base tarifaria para el combustible “i”, en el ajuste tarifario “t” (ver detalle de cálculo en el apartado “Determinación del rendimiento sobre la base tarifaria” de la sección “FIJACIONES ORDINARIAS”).
-ALOi,t = Ajuste por liquidación ordinaria del combustible “i”, en el ajuste tarifario “t” (ver detalle de cálculo en el apartado “Liquidación ordinaria” de la sección “FIJACIONES ORDINARIAS”).
+PPCMi,t = Precio de venta en terminales de ventas, del combustible "i" que se comercializa en masa, en el ajuste tarifario "t".
+COAi,t = Costo de adquisición por litro del combustible "i", en el ajuste tarifario "t" (ver detalle de cálculo en el apartado "Actualización del costo de adquisición de los combustibles" de la sección "FIJACIONES EXTRAORDINARIAS").
+ASi,t = Asignación del subsidio del combustible "i", para el ajuste tarifario "t". Únicamente participan los combustibles "i" subsidiadores (ver detalle de cálculo en el apartado "Asignación del subsidio cruzado a otros combustibles" de la sección "VARIABLES QUE SE ACTUALIZAN ORDINARIA Y EXTRAORDINARIAMENTE").
+SEi,t = Subsidio específico por tipo de combustible "i" otorgado por el Estado mediante transferencia directa a Recope, para el ajuste tarifario "t" (ver detalle de cálculo en el apartado "Transferencia directa por parte del Estado" de la sección "VARIABLES QUE SE ACTUALIZAN ORDINARIA Y EXTRAORDINARIAMENTE").
+SCi,t = Subsidio cruzado por tipo de combustible "i", para el ajuste tarifario "t" (ver detalle de cálculo en el apartado "Subsidios cruzados" la sección "VARIABLES QUE SE ACTUALIZAN ORDINARIA Y EXTRAORDINARIAMENTE").
+DAi,t = Diferencial de precio del combustible "i", en el ajuste tarifario
+"t" (ver detalle de cálculo en el apartado "Diferencial de precios (DAi,t)" de la sección "FIJACIONES EXTRAORDINARIAS").
+ALEi,t = Ajuste por liquidación extraordinaria del combustible "i", para el ajuste tarifario "t" (ver detalle de cálculo en el apartado "Ajuste por liquidación extraordinaria (ALEi,t)" en la sección "FIJACIONES EXTRAORDINARIAS").
+IUi,t = Impuesto único por tipo de combustible "i", para el ajustetarifario "t" (ver detalle de cálculo en el apartado "Impuesto único a los combustibles" en la sección "FIJACIONES EXTRAORDINARIAS").
+CAi,t = Canon de regulación de la actividad de suministro del combustible "i", para el ajuste tarifario "t" (ver detalle de cálculo en el apartado "Canon de regulación de Recope
+(CAi,t)" de la sección "FIJACIONES EXTRAORDINARIAS").
+MOi,t = Margen de operación de Recope por litro del combustible "i", en el ajuste tarifario "t" (ver detalle de cálculo en el apartado "Determinación del margen de operación (MOi,t)" de la sección "FIJACIONES ORDINARIAS").
+RSBTi,t = Rendimiento sobre base tarifaria para el combustible "i", en el ajuste tarifario "t" (ver detalle de cálculo en el apartado "Determinación del rendimiento sobre la base tarifaria" de la sección "FIJACIONES ORDINARIAS").
+ALOi,t = Ajuste por liquidación ordinaria del combustible "i", en el ajuste tarifario "t" (ver detalle de cálculo en el apartado "Liquidación ordinaria" de la sección "FIJACIONES ORDINARIAS").
 DRFi,t =
-Densidad de referencia del combustible “i”, en el ajuste
-tarifario “t”, expresado en kilogramos por metro cúbico (ver
+Densidad de referencia del combustible "i", en el ajuste
+tarifario "t", expresado en kilogramos por metro cúbico (ver
 ecuación 6).
 i = Tipo de combustibles.
 t = Subíndice que representa cada fijación tarifaria.
 Para la determinación de la densidad de referencia, del combustible "i" se utiliza la siguiente ecuación:
 [imagen]
 Donde
-DRFi,t = Densidad de referencia del combustible “i”, en el ajuste tarifario “t”.
-γh = Proporción de cada combustible o componente “h” que se utiliza en la mezcla, y en donde 0 <γh ≤ 1 y la
+DRFi,t = Densidad de referencia del combustible "i", en el ajuste tarifario "t".
+γh = Proporción de cada combustible o componente "h" que se utiliza en la mezcla, y en donde 0 <γh ≤ 1 y la
 Σ γh H h=1 = 1.
 Para el caso de mezclas de productos nuevos se utilizará el γh teórico proporcionado por Recope.
 Para el caso de búnker, emulsiones asfálticas y asfalto, γh =1.
-DRFh,t = Densidad de referencia del combustible o componente “h”, en el ajuste tarifario “t”, expresado
+DRFh,t = Densidad de referencia del combustible o componente "h", en el ajuste tarifario "t", expresado
 en kilogramos por metro cúbico.
 i = Tipos de combustibles.
-h = Subíndice que representa cada uno de los combustibles o componentes derivados de hidrocarburos o biocombustibles, los cuales componen la mezcla del combustible “i”.
+h = Subíndice que representa cada uno de los combustibles o componentes derivados de hidrocarburos o biocombustibles, los cuales componen la mezcla del combustible "i".
 H = Subíndice que denota el número de combustibles o componentes derivados de hidrocarburos o biocombustibles.
 t = Subíndice que representa cada fijación tarifaria.
 Para el GLP y el propano comercial: la fuente de referencia para la determinación del parámetro DRFh,t será proporcionado por Recope conforme los valores indicados en la norma GPA 2145-16 (versión vigente), aquella que la sustituya, u otra norma que demuestre equivalencia y validez con condiciones de corrección para densidades y volúmenes observados a una temperatura de 15°C y presión atmosférica, entendidos como condiciones estándar. Para este fin se considerarán como la cantidad total de propano: las cantidades de propano y componentes más livianos a éste. Y como la cantidad total de butano: los butanos y componentes más pesados a éstos".
-Para el búnker, asfaltos y emulsiones asfálticas tanto de rompimiento rápido como lento: el valor del parámetro DRFh,t será el promedio de las medianas mensuales de las densidades corregidas a una temperatura de 15°C y presión atmosférica, entendidos como condiciones estándar, correspondientes a las ventas históricas de cada producto, medidas en brazo de carga o en tanque, de los últimos 4 meses anteriores a la presentación del estudio tarifario. La estimación de este estadístico será proporcionada por Recope para cada fijación tarifaria.
+Para el búnker, asfaltos y emulsiones asfálticas tanto de rompimiento rápido como lento: el valor del parámetro DRFh,t será el promedio de las medianas mensuales de las densidades corregidas a una temperatura de 15°C y presión atmosférica, entendidos como condiciones estándar, correspondientes a las ventas históricas de cada producto, medidas en brazo de carga o en tanque y/o en la línea de venta, de los últimos 4 meses anteriores a la presentación del estudio tarifario. La estimación de este estadístico será proporcionada por Recope para cada fijación tarifaria.
+(Así reformado el párrafo anterior mediante resolución N° RE-0025-JD-2023 del 21 de febrero de 2023)
 Para productos nuevos, la fuente de referencia para la determinación del parámetro DRFh,t será proporcionada por Recope y deberá justificar en detalle la equivalencia y validez técnica y jurídica del valor propuesto.
 En el caso del GLP y el propano comercial, el porcentaje de mezcla a utilizar en cada fijación se determinará con base en los 3 últimos informes de compras de combustible presentados, según las compras registradas para cada componente de la mezcla.
 En caso de que se requiera modificar o no se pueda determinar con el detallerequerido los componentes o porcentajes de la mezcla (?h) a utilizar en la ecuación 6, la IE (o el órgano de la Aresep que la Junta Directiva llegue a designar como responsable del proceso de fijación tarifaria) podrá utilizar para el cálculo la información establecida en los informes de compra y los análisis de calidad realizados por Recope y la Autoridad Reguladora, justificando con detalle las razones jurídicas y técnicas del análisis e incorporación.
@@ -470,42 +471,42 @@ Para el caso del Jet fuel A-1, Av-gas e IFO 380 vendidos en puertos y terminales
 Para el precio máximo:
 [imagen]
 Donde:
-NPPCmáxȻ i,t = Precio máximo en colones por litro, en terminales de ventas, de los combustibles Jet fuel A-1, Av-gas e IFO 380, que se vende en aeropuertos o puertos, del combustible “i” para el ajuste tarifario “t”.
-COAi,t = Costo de adquisición por litro del combustible “i” en el ajuste tarifario “t” (ver detalle de cálculo en el apartado “Actualización del costo de adquisición de los combustibles” de la sección “FIJACIONES EXTRAORDINARIAS”).
-σi,t = Desviación estándar del costo de adquisición (COAi,t) del combustible “i” para la fijación tarifaria “t”. Se calcula con información de una serie histórica de costos de adquisición de cada combustible, que se obtendrá del informe de compras suministrado por Recope durante 24 meses anteriores inmediatos al segundo viernes del mes en que se esté presentando la solicitud tarifaria.
-ASi,t = Asignación del subsidio del combustible “i”, para el ajuste tarifario “t”. Únicamente participan los combustibles “i” subsidiadores (ver detalle de cálculo en el apartado “Asignación del subsidio cruzado a otros combustibles” de la sección “VARIABLES QUE SE ACTUALIZAN ORDINARIA Y EXTRAORDINARIAMENTE”).
-SEi,t = Subsidio específico por tipo de combustible “i” otorgado por el Estado mediante transferencia directa a Recope para el ajuste tarifario “t” (ver detalle de cálculo en el apartado “Transferencia directa por parte del Estado” de la sección “VARIABLES QUE SE ACTUALIZAN ORDINARIA Y EXTRAORDINARIAMENTE”).
-SCi,t = Subsidio cruzado por tipo de combustible “i”, para el ajuste tarifario “t” (ver detalle de cálculo en el apartado “Subsidios cruzados” de la sección “VARIABLES QUE SE ACTUALIZAN ORDINARIA Y EXTRAORDINARIAMENTE”).
-DAi,t = Diferencial de precio del combustible “i” en el ajuste tarifario
-“t” (ver detalle de cálculo en el apartado “Diferencial de precios (DAi,t)” de la sección “FIJACIONES EXTRAORDINARIAS”).
-ALEi,t = Ajuste por liquidación extraordinaria del combustible “i”, para el ajuste tarifario “t” (ver detalle de cálculo en el apartado “Ajuste por liquidación extraordinaria (ALEi,t)” de la sección “FIJACIONES EXTRAORDINARIAS”).
-IUi,t = Impuesto único por tipo de combustible “i”, para el ajuste tarifario “t” (ver detalle de cálculo en el apartado “Impuesto único a los combustibles” en la sección “FIJACIONES EXTRAORDINARIAS”).
-CAi,t = Canon de regulación de la actividad de suministro del combustible “i”, para el ajuste tarifario “t” (ver detalle de cálculo en el apartado “Canon de regulación de Recope
-(CAi,t)” de la sección “FIJACIONES EXTRAORDINARIAS”).
-MOi,t = Margen de operación de Recope por litro del combustible “i” en el ajuste tarifario “t” (ver detalle de cálculo en el apartado “Determinación del margen de operación (MOi,t)” de la sección “FIJACIONES ORDINARIAS”).
-RSBTi,t = Rendimiento sobre base tarifaria para el combustible “i”, en el ajuste tarifario “t” (ver detalle de cálculo en el apartado “Determinación del rendimiento sobre la base tarifaria” de la sección “FIJACIONES ORDINARIAS”).
-ALOi,t = Ajuste por liquidación ordinaria del combustible “i”, en el ajuste tarifario “t” (ver detalle de cálculo en el apartado “Liquidación ordinaria” de la sección “FIJACIONES ORDINARIAS”).
+NPPCmáxȻ i,t = Precio máximo en colones por litro, en terminales de ventas, de los combustibles Jet fuel A-1, Av-gas e IFO 380, que se vende en aeropuertos o puertos, del combustible "i" para el ajuste tarifario "t".
+COAi,t = Costo de adquisición por litro del combustible "i" en el ajuste tarifario "t" (ver detalle de cálculo en el apartado "Actualización del costo de adquisición de los combustibles" de la sección "FIJACIONES EXTRAORDINARIAS").
+σi,t = Desviación estándar del costo de adquisición (COAi,t) del combustible "i" para la fijación tarifaria "t". Se calcula con información de una serie histórica de costos de adquisición de cada combustible, que se obtendrá del informe de compras suministrado por Recope durante 24 meses anteriores inmediatos al segundo viernes del mes en que se esté presentando la solicitud tarifaria.
+ASi,t = Asignación del subsidio del combustible "i", para el ajuste tarifario "t". Únicamente participan los combustibles "i" subsidiadores (ver detalle de cálculo en el apartado "Asignación del subsidio cruzado a otros combustibles" de la sección "VARIABLES QUE SE ACTUALIZAN ORDINARIA Y EXTRAORDINARIAMENTE").
+SEi,t = Subsidio específico por tipo de combustible "i" otorgado por el Estado mediante transferencia directa a Recope para el ajuste tarifario "t" (ver detalle de cálculo en el apartado "Transferencia directa por parte del Estado" de la sección "VARIABLES QUE SE ACTUALIZAN ORDINARIA Y EXTRAORDINARIAMENTE").
+SCi,t = Subsidio cruzado por tipo de combustible "i", para el ajuste tarifario "t" (ver detalle de cálculo en el apartado "Subsidios cruzados" de la sección "VARIABLES QUE SE ACTUALIZAN ORDINARIA Y EXTRAORDINARIAMENTE").
+DAi,t = Diferencial de precio del combustible "i" en el ajuste tarifario
+"t" (ver detalle de cálculo en el apartado "Diferencial de precios (DAi,t)" de la sección "FIJACIONES EXTRAORDINARIAS").
+ALEi,t = Ajuste por liquidación extraordinaria del combustible "i", para el ajuste tarifario "t" (ver detalle de cálculo en el apartado "Ajuste por liquidación extraordinaria (ALEi,t)" de la sección "FIJACIONES EXTRAORDINARIAS").
+IUi,t = Impuesto único por tipo de combustible "i", para el ajuste tarifario "t" (ver detalle de cálculo en el apartado "Impuesto único a los combustibles" en la sección "FIJACIONES EXTRAORDINARIAS").
+CAi,t = Canon de regulación de la actividad de suministro del combustible "i", para el ajuste tarifario "t" (ver detalle de cálculo en el apartado "Canon de regulación de Recope
+(CAi,t)" de la sección "FIJACIONES EXTRAORDINARIAS").
+MOi,t = Margen de operación de Recope por litro del combustible "i" en el ajuste tarifario "t" (ver detalle de cálculo en el apartado "Determinación del margen de operación (MOi,t)" de la sección "FIJACIONES ORDINARIAS").
+RSBTi,t = Rendimiento sobre base tarifaria para el combustible "i", en el ajuste tarifario "t" (ver detalle de cálculo en el apartado "Determinación del rendimiento sobre la base tarifaria" de la sección "FIJACIONES ORDINARIAS").
+ALOi,t = Ajuste por liquidación ordinaria del combustible "i", en el ajuste tarifario "t" (ver detalle de cálculo en el apartado "Liquidación ordinaria" de la sección "FIJACIONES ORDINARIAS").
 i = Tipo de combustibles.
 t = Subíndice que representa cada fijación tarifaria.
 Para el precio mínimo:
 [imagen]
 Donde:
 NPPCminȻ
-i,t = Precio mínimo en colones por litro, en terminales de ventas, de los combustibles Jet fuel A-1, Av-gas e IFO 380, que se vende en aeropuertos o puertos, del combustible “i” para el ajuste tarifario “t”.
-COAi,t = Costo de adquisición por litro del combustible “i” en el ajuste tarifario “t” (ver detalle de cálculo en el apartado “Actualización del costo de adquisición de los combustibles” de la sección “FIJACIONES EXTRAORDINARIAS”).
-σi,t = Desviación estándar del costo de adquisición (COAi,t) del combustible “i” para la fijación tarifaria “t”. Se calcula con información de una serie histórica de costo de adquisición de cada compra de cada combustible, que se obtendrá del informe de compras suministrado por Recope de los 24 meses anteriores inmediatos al segundo viernes del mes en que se esté presentando la solicitud tarifaria.
-ASi,t = Asignación del subsidio del combustible “i”, para el ajuste tarifario “t”. Únicamente participan los combustibles “i” subsidiadores (ver detalle de cálculo en el apartado “Asignación del subsidio cruzado a otros combustibles” de la sección “VARIABLES QUE SE ACTUALIZAN ORDINARIA Y EXTRAORDINARIAMENTE”).
-SEi,t = Subsidio específico por tipo de combustible “i” otorgado por el Estado mediante transferencia directa a Recope para el ajuste tarifario “t” (ver detalle de cálculo en el apartado “Transferencia directa por parte del Estado” de la sección “VARIABLES QUE SE ACTUALIZAN ORDINARIA Y EXTRAORDINARIAMENTE”).
-SCi,t = Subsidio cruzado por tipo de combustible “i”, para el ajuste tarifario “t” (ver detalle de cálculo en el apartado “Subsidios cruzados” de la sección “VARIABLES QUE SE ACTUALIZAN ORDINARIA Y EXTRAORDINARIAMENTE”).
-DAi,t = Diferencial de precio del combustible “i” en el ajuste tarifario
-“t” (ver detalle de cálculo en el apartado “Diferencial de precios (Dai,t) de la sección “FIJACIONES EXTRAORDINARIAS”).
-ALEi,t = Ajuste por liquidación extraordinaria del combustible “i”, para el ajuste tarifario “t” (ver el apartado “Ajuste por liquidación extraordinaria (ALEi,t)” de la sección “FIJACIONES EXTRAORDINARIAS”).
-IUi,t = Impuesto único por tipo de combustible “i”, para el ajuste tarifario “t” (ver detalle de cálculo en el apartado “Impuesto único a los combustibles” en la sección “FIJACIONES EXTRAORDINARIAS”).
-CAi,t = Canon de regulación de la actividad de suministro del combustible “i”, para el ajuste tarifario “t” (ver detalle de cálculo en el apartado “Canon de regulación de Recope
-(CAi,t)” de la sección “FIJACIONES EXTRAORDINARIAS”).
-MOi,t = Margen de operación de Recope por litro del combustible “i” en el ajuste tarifario “t” (ver detalle de cálculo en el apartado “Determinación del margen de operación (MOi,t)” de la sección “FIJACIONES ORDINARIAS”).
-RSBTi,t = Rendimiento sobre base tarifaria para el combustible “i”, en el ajuste tarifario “t” (ver detalle de cálculo en el apartado “Determinación del rendimiento sobre la base tarifaria” de la sección “FIJACIONES ORDINARIAS”).
-ALOi,t = Ajuste por liquidación ordinaria del combustible “i”, en el ajuste tarifario “t” (ver detalle del cálculo en el apartado “Liquidación ordinaria” de la sección “FIJACIONES ORDINARIAS”).
+i,t = Precio mínimo en colones por litro, en terminales de ventas, de los combustibles Jet fuel A-1, Av-gas e IFO 380, que se vende en aeropuertos o puertos, del combustible "i" para el ajuste tarifario "t".
+COAi,t = Costo de adquisición por litro del combustible "i" en el ajuste tarifario "t" (ver detalle de cálculo en el apartado "Actualización del costo de adquisición de los combustibles" de la sección "FIJACIONES EXTRAORDINARIAS").
+σi,t = Desviación estándar del costo de adquisición (COAi,t) del combustible "i" para la fijación tarifaria "t". Se calcula con información de una serie histórica de costo de adquisición de cada compra de cada combustible, que se obtendrá del informe de compras suministrado por Recope de los 24 meses anteriores inmediatos al segundo viernes del mes en que se esté presentando la solicitud tarifaria.
+ASi,t = Asignación del subsidio del combustible "i", para el ajuste tarifario "t". Únicamente participan los combustibles "i" subsidiadores (ver detalle de cálculo en el apartado "Asignación del subsidio cruzado a otros combustibles" de la sección "VARIABLES QUE SE ACTUALIZAN ORDINARIA Y EXTRAORDINARIAMENTE").
+SEi,t = Subsidio específico por tipo de combustible "i" otorgado por el Estado mediante transferencia directa a Recope para el ajuste tarifario "t" (ver detalle de cálculo en el apartado "Transferencia directa por parte del Estado" de la sección "VARIABLES QUE SE ACTUALIZAN ORDINARIA Y EXTRAORDINARIAMENTE").
+SCi,t = Subsidio cruzado por tipo de combustible "i", para el ajuste tarifario "t" (ver detalle de cálculo en el apartado "Subsidios cruzados" de la sección "VARIABLES QUE SE ACTUALIZAN ORDINARIA Y EXTRAORDINARIAMENTE").
+DAi,t = Diferencial de precio del combustible "i" en el ajuste tarifario
+"t" (ver detalle de cálculo en el apartado "Diferencial de precios (Dai,t) de la sección "FIJACIONES EXTRAORDINARIAS").
+ALEi,t = Ajuste por liquidación extraordinaria del combustible "i", para el ajuste tarifario "t" (ver el apartado "Ajuste por liquidación extraordinaria (ALEi,t)" de la sección "FIJACIONES EXTRAORDINARIAS").
+IUi,t = Impuesto único por tipo de combustible "i", para el ajuste tarifario "t" (ver detalle de cálculo en el apartado "Impuesto único a los combustibles" en la sección "FIJACIONES EXTRAORDINARIAS").
+CAi,t = Canon de regulación de la actividad de suministro del combustible "i", para el ajuste tarifario "t" (ver detalle de cálculo en el apartado "Canon de regulación de Recope
+(CAi,t)" de la sección "FIJACIONES EXTRAORDINARIAS").
+MOi,t = Margen de operación de Recope por litro del combustible "i" en el ajuste tarifario "t" (ver detalle de cálculo en el apartado "Determinación del margen de operación (MOi,t)" de la sección "FIJACIONES ORDINARIAS").
+RSBTi,t = Rendimiento sobre base tarifaria para el combustible "i", en el ajuste tarifario "t" (ver detalle de cálculo en el apartado "Determinación del rendimiento sobre la base tarifaria" de la sección "FIJACIONES ORDINARIAS").
+ALOi,t = Ajuste por liquidación ordinaria del combustible "i", en el ajuste tarifario "t" (ver detalle del cálculo en el apartado "Liquidación ordinaria" de la sección "FIJACIONES ORDINARIAS").
 i = Tipo de combustibles.
 t = Subíndice que representa cada fijación tarifaria.
 Los precios que Recope cobre en terminales de ventas en aeropuertos o puertos de los combustibles Jet fuel, Av-gas e IFO 380 deben estar dentro de los límites de la banda de precios establecida por Aresep en la última fijación tarifaria (ver ecuaciones 7 y 8).
@@ -537,24 +538,23 @@ En caso de que se requiera modificar o no se puedan determinar con el detalle re
 De este modo, la fórmula para la determinación del costo de adquisición por litro del combustible "i" será la siguiente:
 [imagen]
 Donde:
-COAi,t = Costo de adquisición por litro del combustible “i” en el ajuste tarifario “t”.
-COABi,t = Costo de adquisición en colones por barril del combustible “i”, que incluye: precio del producto (primas o descuentos incorporados), flete de transporte internacional, seguro de transporte internacional, el margen de comercialización del proveedor (trader) y costo portuario, en el ajuste tarifario “t”(ver ecuación 10).
-FCi = Factor de conversión a litros para el combustible “i”.
+COAi,t = Costo de adquisición por litro del combustible "i" en el ajuste tarifario "t".
+COABi,t = Costo de adquisición en colones por barril del combustible "i", que incluye: precio del producto (primas o descuentos incorporados), flete de transporte internacional, seguro de transporte internacional, el margen de comercialización del proveedor (trader) y costo portuario, en el ajuste tarifario "t"(ver ecuación 10).
+FCi = Factor de conversión a litros para el combustible "i".
 i = Tipos de combustibles.
 t = Subíndice que representa cada fijación tarifaria.
 El costo de adquisición en colones por barril del combustible "i" (COABi,t), se calcula como el promedio ponderado expresado en colones, que incluye: precio del producto (primas o descuentos incorporados), flete de transporte internacional, seguro de transporte internacional, el margen de comercialización del proveedor (trader) y costo portuario. Para obtener este dato se suman todos los costos del producto por la cantidad de combustible "i" comprado expresado en barriles y en colones de las transacciones indicadas en el informe de compras, y este monto se divide entre la cantidad de producto comprado en barriles. Este informe debe ser remitido por Recope incluyendo todas las compras cuya fecha de BL o documento de envío se encuentre dentro del periodo comprendido entre el segundo viernes del mes anterior a la presentación del estudio tarifario extraordinario y el jueves inmediato anterior al segundo viernes del mes en que se esté presentando la solicitud tarifaria del combustible "i", tal y como se detalla a continuación:
-[imagen]
 Donde:
-COABi,t = Costo de adquisición en colones por barril del combustible “i”, que incluye: precio del producto (primas o descuentos incorporados), flete de transporte internacional, seguro de transporte internacional, el margen de comercialización del proveedor (trader) y costo portuario, en el ajuste tarifario “t”.
-COAi,r = Costo de adquisición del combustible “i” en la compra “r” en dólares. En este concepto se incluye: precio del producto (primas o descuentos incorporados), flete de transporte internacional, seguro de transporte internacional, el margen de comercialización del proveedor (trader). En caso de que este costo esté expresado en colones no se debe realizar la conversión por el tipo de cambio (TCRt).
-CPi,r = Costos portuarios de recepción: costo de las actividades de descarga de los combustibles en puerto de destino o punto de entrega, en dólares para el combustible “i” en la compra
-“r”. En aquellos productos en los cuales no exista un costo portuario asociado, el valor de esta variable deberá ser igual a cero. En caso de que este costo esté expresado en colones no se debe realizar la conversión por el tipo de cambio (TCRt).
-TCRt = Tipo de cambio de venta (colones / dólares USA) del ajuste tarifario “t”. Se calcula como la media aritmética diaria de los datos de tipo de cambio de venta de los últimos 15 días naturales anteriores al segundo viernes de cada mes, para el Sector Público no Bancario, publicado por el Banco Central de Costa Rica.
-QIi,r = Cantidad comprada en barriles del combustible “i” en la compra “r”.
+COABi,t = Costo de adquisición en colones por barril del combustible "i", que incluye: precio del producto (primas o descuentos incorporados), flete de transporte internacional, seguro de transporte internacional, el margen de comercialización del proveedor (trader) y costo portuario, en el ajuste tarifario "t".
+COAi,r = Costo de adquisición del combustible "i" en la compra "r" en dólares. En este concepto se incluye: precio del producto (primas o descuentos incorporados), flete de transporte internacional, seguro de transporte internacional, el margen de comercialización del proveedor (trader). En caso de que este costo esté expresado en colones no se debe realizar la conversión por el tipo de cambio (TCRt).
+CPi,r = Costos portuarios de recepción: costo de las actividades de descarga de los combustibles en puerto de destino o punto de entrega, en dólares para el combustible "i" en la compra
+"r". En aquellos productos en los cuales no exista un costo portuario asociado, el valor de esta variable deberá ser igual a cero. En caso de que este costo esté expresado en colones no se debe realizar la conversión por el tipo de cambio (TCRt).
+TCRt = Tipo de cambio de venta (colones / dólares USA) del ajuste tarifario "t". Se calcula como la media aritmética diaria de los datos de tipo de cambio de venta de los últimos 15 días naturales anteriores al segundo viernes de cada mes, para el Sector Público no Bancario, publicado por el Banco Central de Costa Rica.
+QIi,r = Cantidad comprada en barriles del combustible "i" en la compra "r".
 ep = Subíndice que representa la primera compra del combustible
-“i” en el periodo tarifario, es decir desde el segundo viernes del mes anterior a la presentación del estudio tarifario.
-ef = Subíndice que representa la última compra del combustible “i” en el periodo tarifario, es decir hasta el jueves inmediato anterior al segundo viernes del mes en que se esté presentando la solicitud tarifaria.
-r = Subíndice que representa un consecutivo de los embarques con fecha de BL (o algún otro documento oficial) que se encuentren entre la primera compra del combustible “i” en el periodo tarifario, es decir desde el segundo viernes del mes anterior “ep” y la última compra del jueves inmediato anterior al segundo viernes del mes en que se esté presentando la solicitud tarifaria “ef”. En el evento que se trate de una compra la fecha de BL será sustituida por la fecha de carga del producto en las instalaciones del proveedor. A cada embarque se le asignará un consecutivo en orden de prelación de la fecha de BL y se asignará por producto.
+"i" en el periodo tarifario, es decir desde el segundo viernes del mes anterior a la presentación del estudio tarifario.
+ef = Subíndice que representa la última compra del combustible "i" en el periodo tarifario, es decir hasta el jueves inmediato anterior al segundo viernes del mes en que se esté presentando la solicitud tarifaria.
+r = Subíndice que representa un consecutivo de los embarques con fecha de BL (o algún otro documento oficial) que se encuentren entre la primera compra del combustible "i" en el periodo tarifario, es decir desde el segundo viernes del mes anterior "ep" y la última compra del jueves inmediato anterior al segundo viernes del mes en que se esté presentando la solicitud tarifaria "ef". En el evento que se trate de una compra la fecha de BL será sustituida por la fecha de carga del producto en las instalaciones del proveedor. A cada embarque se le asignará un consecutivo en orden de prelación de la fecha de BL y se asignará por producto.
 Cuando haya dos embarques con igual fecha de BL se utilizará el siguiente criterio: orden de prelación dentro del mismo día, si se conoce esta información, de no conocerse Recope puede establecer el orden de manera aleatoria.
 A cada embarque se le asignará un consecutivo, el cual se debe realizar con números cardinales e iniciando con elnúmero uno, según orden de prelación de la fecha del BL y por producto.
 i = Tipos de combustibles.
@@ -576,14 +576,13 @@ g)Detalle de variables que intervinieron para adjudicar las licitaciones interna
 La Intendencia de Energía analizará este informe y, si es del caso, emitirá las respectivas recomendaciones y aplicará los ajustes que correspondan en las fijaciones tarifarias.
 3.3. Determinación del costo de adquisición para mezclas de productos.
 Para las mezclas de combustibles, el precio de referencia se determinará con base en los volúmenes de cada uno de esos componentes en la mezcla total. Para tales efectos se utilizará la siguiente ecuación:
-[imagen]
 Donde:
-COAi,t = Costo de adquisición por litro del combustible “i” en el ajuste tarifario “t”.
-γh = Proporción de cada combustible o componente “h” que se utiliza en la mezcla, y en donde 0 < γh ≤ 1 y la Σ γh H h=1 = 1.
+COAi,t = Costo de adquisición por litro del combustible "i" en el ajuste tarifario "t".
+γh = Proporción de cada combustible o componente "h" que se utiliza en la mezcla, y en donde 0 < γh ≤ 1 y la Σ γh H h=1 = 1.
 Para el caso de mezclas de productos nuevos se utilizará el γh teórico proporcionado por Recope.
-COAh,t = Costo de adquisición por litro del combustible o componente “h” para el ajuste tarifario “t”, el cual deberá ser calculado de modo análogo a lo indicado en la ecuación 9.
+COAh,t = Costo de adquisición por litro del combustible o componente "h" para el ajuste tarifario "t", el cual deberá ser calculado de modo análogo a lo indicado en la ecuación 9.
 i = Tipos de combustibles.
-h = Subíndice que representa cada uno de los combustibles o componentes derivados de hidrocarburos o biocombustibles, los cuales componen la mezcla del combustible “i”.
+h = Subíndice que representa cada uno de los combustibles o componentes derivados de hidrocarburos o biocombustibles, los cuales componen la mezcla del combustible "i".
 H = Subíndice que denota número de combustibles o componentes, derivados de hidrocarburos o biocombustibles.
 t = Subíndice que representa cada fijación tarifaria.
 De este modo, con base en los costos de adquisición de cada producto o componente utilizado en la mezcla, en cada estudio extraordinario se actualizará el costo de adquisición de la mezcla de conformidad con la ecuación 11. En los costos de adquisición se incluirán, tanto productos importados, como adquiridos en el mercado nacional, homologados a la misma moneda.
@@ -610,74 +609,76 @@ La cantidad de litros en inventarios deberán estar estandarizados a una tempera
 Para el caso de la liquidación extraordinaria del canon debe realizarse solamente en la fijación extraordinaria que se tramita para marzo y considerará los datos del año calendario anterior.
 A continuación, se detallan las ecuaciones de cálculo para cada variable:
 3.7.1. Diferencial de precios (DAi,t)
-El diferencial de precios parte del cálculo de la suma semestral de las diferencias diarias entre el costo del litro promedio de combustible en tanque, menos el costo de compra del litro promedio incorporado en el precio vigente del combustible "i" en el día "d" (COAi,d) (entradas), ambos sin considerar el impuesto único a los combustibles, multiplicado por las salidas reales del combustible "i", todo lo anterior dividido entre el total de ventas estimadas por combustible "i" para el periodo de ajuste "t". Y se calcula mediante la siguiente ecuación:
+El valor del inventario diario por combustible al costo sin impuesto, (𝑉𝐼𝑖,𝑑), se determina considerando el saldo del inventario al costo sin impuesto, del día anterior o inicial (𝑉𝐼𝑖,(𝑑?1)), más el valor total de entradas del día "d" al costo en colones (𝐶𝐶𝑖,𝑟,𝑑), que incluye: compra al costo facturado real del producto (primas o descuentos incorporados), flete de transporte internacional, seguro de transporte internacional, el margen de comercialización del proveedor (trader) y costos portuarios, más los ajustes de conciliación con los estados financieros al costo (𝐴𝐽𝑖,𝑓), menos el total de salidas diarias de inventario multiplicadas por el costo promedio ponderado en tanque para valoración de salidas en el día "d" (𝑆𝑅𝑖,𝑑 *((𝑉𝐼𝑖,(𝑑-1) + 𝐶𝐶𝑖,𝑟,𝑑 )/( 𝐼𝑛𝑣𝑖,(𝑑-1) + 𝐸𝐿𝑖,𝑑)) ).
+(Así reformado el párrafo anterior mediante resolución N° RE-0025-JD-2023 del 21 de febrero de 2023)
 [imagen]
 Donde:
-DAi,t = Diferencial de precio del combustible “i” en el ajuste tarifario “t”.
-CIPi,d = Costo promedio del inventario en colones del combustible “i” en tanque, para el día “d”.
-COAi,d = Costo de adquisición por litro del combustible “i” en colones que incluye: precio del producto (primas o descuentos incorporados), flete de transporte internacional, seguro de transporte internacional, el margen de comercialización del proveedor (trader) y costo portuario, utilizado por la IE (o el órgano de la Aresep que la Junta Directiva llegue a designar como responsable del proceso de fijación tarifaria de este servicio), para fijar el precio vigente en el día “d”.
-Para el caso del o los productos que se fijen vía banda de precios, el valor de esta variable será la efectivamente cobrada y facturada por este concepto por parte de Recope en los puertos y aeropuertos.
-SRi,d = Salidas reales del combustible “i” en litros, para el día “d”, estandarizadas a 15,56 °C, las cuales deben ser consistentes con el anexo 3-A Movimiento de inventario o su equivalente.
-VSEi,t = Ventas estimadas para los próximos 6 meses en litros, para el combustible “i” en el ajuste tarifario “t”.
-Si para algún “i” VSEi,t= 0, entonces el cociente será igual a cero.
-d = Subíndice que indica el número de día en el periodo considerado en el ajuste por diferencial.
-p = Subíndice que indica el primer día de febrero o agosto, según corresponda.
-c = Subíndice que indica el último día de enero o julio según corresponda.
+𝑉𝐼𝑖,𝑑 = Valor del inventario del combustible "i" al costo sin impuesto, en colones, para el día "d".
+𝑉𝐼𝑖,(𝑑-1) = Valor del inventario del combustible "i" al costo sinimpuesto, en colones, para el día "d-1".
+𝐶𝐶𝑖,𝑟,𝑑 = Valor total de entradas del día "d" al costo en colones, que incluye: compra al costo facturado real por combustible "i", que incluye: precio del producto (primas o descuentos incorporados), flete de transporte internacional, seguro de transporte internacional, el margen de comercialización del proveedor (trader) y costo portuario, del embarque r, para el día de descarga
+"d", convertido en colones utilizando el tipo de cambio de venta para el sector público no bancario (CRC/USD) de la fecha de pago del embarque "r", estandarizadas a 15,56 °C, sin impuesto.
+𝐴𝐽𝑖,𝑓 = Ajuste al costo de los inventarios al final de cada mes de cálculo para el combustible "i". Para los días que no son cierre de periodo esta variable se iguala a cero. (ver ecuación 15).
+𝑆𝑅𝑖,𝑑 = Salidas reales del combustible "i" en litros, para el día "d" estandarizadas a 15,56 °C, las cuales deben ser consistentes con el anexo 3-A Movimiento de inventario o su equivalente.
+𝐼𝑛𝑣𝑖,(𝑑?1) = Cantidad en litros del inventario del combustible "i" para el día "d-1".
+𝐸𝐿𝑖,𝑑 = Entradas en litros del combustible "i" para el día de descarga "d".
 i = Tipos de combustibles.
-t = Subíndice que representa cada fijación tarifaria.
-El costo de adquisición por litro del combustible "i" en colones, utilizado por la Aresep, para fijar el precio vigente, se tomará del valor de la variable COAi,t del precio fijado por Aresep en cada fijación extraordinaria, disponible en la página web de la Aresep y que se encuentre vigente en el día "d".
+d = Subíndice que indica el número de día en el periodo considerado en el ajuste por diferencial.
+r = Subíndice que representa un consecutivo de los embarques con fecha de BL (o algún otro documento oficial) que se encuentren entre la primera compra del combustible "i" en el periodo tarifario, es decir desde el segundo viernes del mes anterior "ep" y la última compra del jueves inmediato anterior al segundo viernes del mes en que se esté presentando la solicitud tarifaria "ef". En el evento que se trate de una compra local, la fecha de BL será sustituida por la fecha de carga del producto en las instalaciones del proveedor. A cada embarque se le asignará un consecutivo en orden de prelación de la fecha de BL y se asignará por producto. Cuando haya dos embarques con igual fecha de BL se utilizará el siguiente criterio: orden de prelación dentro del mismo día, si se conoce esta información, de no conocerse Recope puede establecer el orden de manera aleatoria.
+A cada embarque se le asignará un consecutivo, el cual se debe realizar con números cardinales e iniciando con el número uno, según orden de prelación de la fecha del BL y por producto.
+f = Subíndice que indica el último día del mes según corresponda.
+d-1
+(Así reformada la ecuación anterior mediante resolución N° RE-0025-JD-2023 del 21 de febrero de 2023)
+(Eliminado este párrafo mediante resolución N° RE-0025-JD-2023 del 21 de febrero de 2023)
 El costo promedio del inventario del combustible "i" en colones para el día "d" (CIPd,i), se obtiene de la división del valor monetario del saldo del inventario diario por producto (VIi,d), entre la cantidad de litros del inventario del combustible "i" al final del día "d" (Invi,d).
-[imagen]
 Donde:
-CIPi,d = Costo promedio del inventario en colones del combustible “i” en tanque, para el día “d”.
-VIi,d = Valor del inventario del combustible “i” al costo sin impuesto, en colones, para el día “d” (ver ecuación 14).
-Invi,d = Cantidad de litros de inventario del combustible “i” al final del día
-“d”. Si para algún “i” Invi,d= 0, entonces CIPi,d = 0.
+CIPi,d = Costo promedio del inventario, sin impuesto único, en colones por litro, del combustible "i" en tanque, para el día "d”.
+(Así reformado el párrafo anterior mediante resolución N° RE-0025-JD-2023 del 21 de febrero de 2023)
+VIi,d = Valor del inventario del combustible "i" al costo sin impuesto, en colones, para el día "d" (ver ecuación 14).
+Invi,d = Cantidad de litros de inventario del combustible "i" al final del día
+"d". Si para algún "i" Invi,d= 0, entonces CIPi,d = 0.
 i = Tipos de combustibles.
 d = Subíndice que indica el número de día en el periodo considerado en el ajuste por diferencial.
 El valor del inventario diario por combustible al costo sin impuesto, (VIi,d), se determina considerando el saldo del inventario al costo sin impuesto, del día anterior o inicial (VIi,(d?1)), más el valor total de entradas del día "d" al costo en colones, que incluye: compra al costo facturado real del producto (primas o descuentos incorporados), flete de transporte internacional, seguro de transporte internacional, el margen de comercialización del proveedor (trader) y costo portuarios, más los ajustes de conciliación con los estados financieros al costo (AJi,f), menos el total de salidas diarias de inventario valoradas al costo promedio en tanque incluido en tarifa del día "d" (SRi,d * COAi,d).
 [imagen]
 Donde:
-VIi,d = Valor del inventario del combustible “i” al costo sin impuesto, en colones, para el día “d”.
-VIi,(d−1) = Valor del inventario diario promedio del combustible “i” al costo sin impuesto, para el día “d-1”.
-CCi,r = Compra al costo facturado real por combustible “i”, que incluye: precio del producto (primas o descuentos incorporados), flete de transporte internacional, seguro de transporte internacional, el margen de comercialización del proveedor (trader) y costo portuario, del embarque r, para el día de descarga “d”, convertido en colones utilizando el tipo de cambio de venta para el sector público no bancario (CRC/USD) de la fecha de pago del embarque “r”, estandarizadas a 15,56 °C, sin impuesto.
-AJi,f = Ajuste al costo de los inventarios al final de cada mes de cálculo para el combustible “i”. Para los días que no son cierre de periodo esta variable se iguala a cero. (ver ecuación 15).
-SRi,d = Salidas reales del combustible “i” en litros, para el día “d” estandarizadas a 15,56 °C, las cuales deben ser consistentes con el anexo 3-A Movimiento de inventario o su equivalente.
-COAi,d = Costo de adquisición por litro del combustible “i” en colones que incluye: precio del producto (primas o descuentos incorporados), flete de transporte internacional, seguro de transporte internacional, el margen de comercialización del proveedor (trader) y costo portuario, utilizado por la Aresep, para fijar el precio vigente en el día “d”.
+VIi,d = Valor del inventario del combustible "i" al costo sin impuesto, en colones, para el día "d".
+VIi,(d−1) = Valor del inventario diario promedio del combustible "i" al costo sin impuesto, para el día "d-1".
+CCi,r = Compra al costo facturado real por combustible "i", que incluye: precio del producto (primas o descuentos incorporados), flete de transporte internacional, seguro de transporte internacional, el margen de comercialización del proveedor (trader) y costo portuario, del embarque r, para el día de descarga "d", convertido en colones utilizando el tipo de cambio de venta para el sector público no bancario (CRC/USD) de la fecha de pago del embarque "r", estandarizadas a 15,56 °C, sin impuesto.
+AJi,f = Ajuste al costo de los inventarios al final de cada mes de cálculo para el combustible "i". Para los días que no son cierre de periodo esta variable se iguala a cero. (ver ecuación 15).
+SRi,d = Salidas reales del combustible "i" en litros, para el día "d" estandarizadas a 15,56 °C, las cuales deben ser consistentes con el anexo 3-A Movimiento de inventario o su equivalente.
+COAi,d = Costo de adquisición por litro del combustible "i" en colones que incluye: precio del producto (primas o descuentos incorporados), flete de transporte internacional, seguro de transporte internacional, el margen de comercialización del proveedor (trader) y costo portuario, utilizado por la Aresep, para fijar el precio vigente en el día "d".
 Para el caso del o los productos que se fijen vía banda de precios, el valor de esta variable será la efectivamente cobrada y facturada por este concepto por parte de Recope en los puertos y aeropuertos.
 i = Tipos de combustibles.
 d = Subíndice que indica el número de día en el periodo considerado en el ajuste por diferencial.
-r = Subíndice que representa un consecutivo de los embarques con fecha de BL (o algún otro documento oficial) que se encuentren entre la primera compra del combustible “i” en el periodo tarifario, es decir desde el segundo viernes del mes anterior “ep” y la última compra del jueves inmediato anterior al segundo viernes del mes en que se esté presentando la solicitud tarifaria “ef”. En el evento que se trate de una compra local, la fecha de BL será sustituida por la fecha de carga del producto en las instalaciones del proveedor. A cada embarque se le asignará un consecutivo en orden de prelación de la fecha de BL y se asignará por producto.
+r = Subíndice que representa un consecutivo de los embarques con fecha de BL (o algún otro documento oficial) que se encuentren entre la primera compra del combustible "i" en el periodo tarifario, es decir desde el segundo viernes del mes anterior "ep" y la última compra del jueves inmediato anterior al segundo viernes del mes en que se esté presentando la solicitud tarifaria "ef". En el evento que se trate de una compra local, la fecha de BL será sustituida por la fecha de carga del producto en las instalaciones del proveedor. A cada embarque se le asignará un consecutivo en orden de prelación de la fecha de BL y se asignará por producto.
 Cuando haya dos embarques con igual fecha de BL se utilizará el siguiente criterio: orden de prelación dentro del mismo día, si se conoce esta información, de no conocerse Recope puede establecer el orden de manera aleatoria.
 A cada embarque se le asignará un consecutivo, el cual se debe realizar con números cardinales e iniciando con el número uno, según orden de prelación de la fecha del BL y por producto.
 f = Subíndice que indica el último día del mes según corresponda.
 El costo de adquisición por litro del combustible "i" en colones, utilizado por la Aresep, para fijar el precio vigente, se tomará del valor de la variable COAi,t del precio fijado por Aresep en cada fijación extraordinaria disponible en la página web de la Aresep y que se encuentre vigente en el día "d".
 El ajuste por inventario al costo al final del mes se define como:
-[imagen]
 Donde:
-AJi,f = Ajuste al costo de los inventarios al final de cada mes de cálculo para el combustible “i”. Para los días que no son cierre de periodo esta variable se iguala a cero.
-SInvi,f = Saldo de inventario al costo, calculado al día “f” de cada mes según corresponda, tomado de los EEFF, anexo 3 A o su equivalente, una vez restado el impuesto único a los combustibles correspondiente para el combustible “i”.
-VICi,f = Valor del inventario del combustible “i” calculado al día “f” del mes en ejercicio del proceso de cálculo según corresponda.
+AJi,f = Ajuste al costo de los inventarios al final de cada mes de cálculo para el combustible "i". Para los días que no son cierre de periodo esta variable se iguala a cero.
+SInvi,f = Saldo de inventario al costo, calculado al día "f" de cada mes según corresponda, tomado de los EEFF, anexo 3 A o su equivalente, una vez restado el impuesto único a los combustibles correspondiente para el combustible "i".
+VICi,f = Valor del inventario del combustible "i" calculado al día "f" del mes en ejercicio del proceso de cálculo según corresponda.
 Este dato se obtiene del proceso de cálculo respectivo.
 i = Tipos de combustibles.
 f = Subíndice que indica el último día del mes según corresponda.
 El volumen en litros de inventario diario por producto (Invid), se obtiene partiendo de la cantidad de litros del inventario del día anterior por producto, se le suman las entradas en litros del día "d" por producto, además de los ajustes respectivos y se le restan las salidas en litros del día "d" por producto, según las siguientes fórmulas:
-[imagen]
 Donde:
-Invi,d = Cantidad de litros de inventario del combustible “i” al final del día “d”. Si para algún “i” Invi,d= 0, entonces CIPi,d = 0.
-Invi,(d−1) = Cantidad en litros del inventario del combustible “i” para el día “d-1”.
-ELi,d = Entradas en litros del combustible “i” para el día de descarga “d”.
-AJLi,f = Ajuste en los litros del inventario calculado al día “f”, para el combustible “i”. Para los días que no son cierre de periodo esta variable se iguala a cero (ver ecuación 17).
-SRi,d = Salidas reales del combustible “i” en litros, para el día “d” estandarizadas a 15,56 °C, las cuales deben ser consistentes con el anexo 3-A Movimiento de inventario o su equivalente.
+Invi,d = Cantidad de litros de inventario del combustible "i" al final del día "d". Si para algún "i" Invi,d= 0, entonces CIPi,d = 0.
+Invi,(d−1) = Cantidad en litros del inventario del combustible "i" para el día "d-1".
+ELi,d = Entradas en litros del combustible "i" para el día de descarga "d".
+AJLi,f = Ajuste en los litros del inventario calculado al día "f", para el combustible "i". Para los días que no son cierre de periodo esta variable se iguala a cero (ver ecuación 17).
+SRi,d = Salidas reales del combustible "i" en litros, para el día "d" estandarizadas a 15,56 °C, las cuales deben ser consistentes con el anexo 3-A Movimiento de inventario o su equivalente.
 i = Tipos de combustibles.
 d = Subíndice que indica el número de día en el periodo considerado en el ajuste por diferencial.
 f = Subíndice que indica el último día del mes según corresponda.
 El ajuste por litros de inventario al final del mes se define como:
 [imagen]
 Donde:
-AJLi,f = Ajuste en los litros del inventario calculado al día “f”, para el combustible “i”. Para los días que no son cierre de periodo esta variable se iguala a cero.
-CLi,f = Cantidad de litros en inventario calculado al día “f” de cada mes, para el combustible “i”. Este dato se toma de los EEFF, actualmente anexo 3A, o el que lo sustituya.
-VLi,f = Cantidad de litros en inventario calculado al día “f” de cada mes, para el combustible “i”. Este dato se obtiene del proceso de cálculo respectivo.
+AJLi,f = Ajuste en los litros del inventario calculado al día "f", para el combustible "i". Para los días que no son cierre de periodo esta variable se iguala a cero.
+CLi,f = Cantidad de litros en inventario calculado al día "f" de cada mes, para el combustible "i". Este dato se toma de los EEFF, actualmente anexo 3A, o el que lo sustituya.
+VLi,f = Cantidad de litros en inventario calculado al día "f" de cada mes, para el combustible "i". Este dato se obtiene del proceso de cálculo respectivo.
 i = Tipos de combustibles.
 f = Subíndice que indica el último día del mes según corresponda.
 El ajuste por litros de inventario al final del mes permite dar trazabilidad y transparencia al cálculo tarifario, conciliándolo con los datos que consten en los estados financieros de Recope. El volumen en litros del cálculo para el último día del mes "f" debe coincidir con los datos de la fuente de información (estados financieros mensuales).
@@ -689,34 +690,32 @@ Dado que la variable de liquidación del canon de regulación es anual, en la ec
 el cociente será igual a cero.
 En la fijación de setiembre solamente se realiza la liquidación de los subsidios y el diferencial de precios, considerando los datos que estuvieron vigentes del 1° de febrero hasta el 31 de julio de ese año, la liquidación del canon mantiene el dato del primer semestre, ya que es una variable anual. Además, el cálculo desarrollado en el periodo "t" estará vigente por los siguientes 6 meses, hasta que se desarrolle el siguiente cálculo.
 Antes de iniciar con la explicación del proceso, es importante indicar que existen dos tipos de roles que podría tener un producto en el manejo de los subsidios:
-• Subsidiados: si el producto recibe el subsidio cruzado o de transferencia del estado, se denomina "subsidiado". Para estos productos, las variables SEi,t y SCi,t mostrarán de modo concreto los montos a favor que recibirán y la variable relacionada con la contribución o aporte al subsidio ASi,t deberá ser igual a cero, con excepción de que se solicite a alguno de estos productos una contribución específica por cuestiones particulares.
-• Subsidiadores: los productos que no reciban subsidio, sino que más bien aportan o contribuyan a subsidiar otros productos, se denominan "subsidiadores" y mediante la variable ASi,t se establece el monto por litro con el cual contribuyen o aportan al subsidio. Por su parte, las variables SEi,t y SCi,t, deberán ser igual a cero, dado que no reciben ningún monto de subsidio a su favor, con excepción de que se brinde a alguno de estos productos una contribución específica por cuestiones particulares.
+. Subsidiados: si el producto recibe el subsidio cruzado o de transferencia del estado, se denomina "subsidiado". Para estos productos, las variables SEi,t y SCi,t mostrarán de modo concreto los montos a favor que recibirán y la variable relacionada con la contribución o aporte al subsidio ASi,t deberá ser igual a cero, con excepción de que se solicite a alguno de estos productos una contribución específica por cuestiones particulares.
+. Subsidiadores: los productos que no reciban subsidio, sino que más bien aportan o contribuyan a subsidiar otros productos, se denominan "subsidiadores" y mediante la variable ASi,t se establece el monto por litro con el cual contribuyen o aportan al subsidio. Por su parte, las variables SEi,t y SCi,t, deberán ser igual a cero, dado que no reciben ningún monto de subsidio a su favor, con excepción de que se brinde a alguno de estos productos una contribución específica por cuestiones particulares.
 A continuación, se explica el proceso mediante el cual se liquidan extraordinariamente, las siguientes variables:
 ·Asignación del subsidio de combustible y subsidio específico otorgado por el Estado. Para este cálculo se deben determinar las diferencias entre las ventas reales y las ventas estimadas para cada periodo de tiempo señalado supra, según corresponda.
 · Diferencial de precios anterior y el ajuste por liquidación extraordinaria anterior, pues las diferencias entre las ventas reales y las estimaciones ocasionan que no se logre recuperar tarifariamente el monto respectivo y por tanto, debe volver a liquidarse. Para el cálculo de estas variables se debe utilizar las ventas semestrales estimadas en el último cálculo (marzo o setiembre según corresponda).
 · Subsidio cruzado por combustible determinando si el subsidio fue mayor o menor al estimado, la diferencia se debe volver a reasignar entre los subsidiadores.
 · Canon del periodo anterior, debido a que las diferencias entre las ventas estimadas y las reales, ocasionarán que el monto efectivamente percibido sea mayor o menor al monto que debía ser recuperado vía tarifa y por tanto se debe realizar la respectiva liquidación.
 La fórmula es la siguiente:
-[imagen]
 Donde:
-ALEit = Ajuste por liquidación extraordinaria del combustible “i”, para el ajuste tarifario “t”.
-LASEi,t = Ajuste por liquidación de las variables de asignación del subsidio del combustible “i” y subsidio específico otorgado por el Estado, para el ajuste tarifario “t”. (ver ecuación 19).
-LPSi,t = Asignación del ajuste por liquidación del subsidio cruzado del combustible “i”, para el estudio extraordinario “t” (ver ecuación 20).
-LALi,t = Ajuste por liquidación de las variables del diferencial de precios anterior y ajuste por liquidación extraordinaria anterior, del combustible “i”, para el ajuste tarifario “t”. (ver ecuación 22).
+ALEit = Ajuste por liquidación extraordinaria del combustible "i", para el ajuste tarifario "t".
+LASEi,t = Ajuste por liquidación de las variables de asignación del subsidio del combustible "i" y subsidio específico otorgado por el Estado, para el ajuste tarifario "t". (ver ecuación 19).
+LPSi,t = Asignación del ajuste por liquidación del subsidio cruzado del combustible "i", para el estudio extraordinario "t" (ver ecuación 20).
+LALi,t = Ajuste por liquidación de las variables del diferencial de precios anterior y ajuste por liquidación extraordinaria anterior, del combustible "i", para el ajuste tarifario "t". (ver ecuación 22).
 LCi,t = Ajuste por liquidación del canon de regulación, para el combustible
-“i” en el ajuste tarifario “t” (ver ecuación 23).
-VSEi,t = Ventas estimadas para los próximos 6 meses en litros, para el combustible “i” en el ajuste tarifario “t”. Para el caso de la liquidación del canon de regulación esta variable debe leerse de la siguiente manera: Ventas totales estimadas para los próximos 12 meses en litros, para el combustible “i” en el ajuste tarifario “t”.
-Si para algún “i” VSEi,t= 0, entonces el cociente será igual a cero.
+"i" en el ajuste tarifario "t" (ver ecuación 23).
+VSEi,t = Ventas estimadas para los próximos 6 meses en litros, para el combustible "i" en el ajuste tarifario "t". Para el caso de la liquidación del canon de regulación esta variable debe leerse de la siguiente manera: Ventas totales estimadas para los próximos 12 meses en litros, para el combustible "i" en el ajuste tarifario "t".
+Si para algún "i" VSEi,t= 0, entonces el cociente será igual a cero.
 t = Subíndice que representa cada fijación tarifaria.
 i = Tipos de combustibles
 Para el cálculo del ajuste que se genera al utilizar ventas estimadas para distribuir el aporte del subsidio entre los productos subsidiadores y aplicación del subsidio específico otorgado por el Estado, la fórmula de ajuste por liquidación es la siguiente:
-[imagen]
 Donde:
-LASEi,t = Ajuste por liquidación de las variables de asignación del subsidio del combustible “i” y subsidio específico otorgado por el Estado, para el ajuste tarifario “t”.
-VTRi,n = Ventas totales reales en litros, para el combustible “i”, en el mes “n” a liquidar, según corresponda.
-VTEi,n = Ventas totales estimadas en litros, del combustible “i” en el mes “n” a liquidar, según corresponda.
-ASi,n = Promedio ponderado mensual de la asignación del subsidio del combustible “i”, a los productos subsidiadores en el mes “n” a liquidar, según corresponda. Se deberá calcular el dato promedio aplicando el apartado “Procedimiento para la determinación del promedio mensual ponderado en función de la cantidad vendida”. Incorporando el resultado de la ecuación 24, según corresponda.
-SEi,n Promedio ponderado mensual del subsidio específico por tipo de combustible “i” otorgado por el Estado a los subsidiados mediante transferencia directa a Recope en el mes “n” a liquidar, según corresponda. Se deberá calcular el dato promedio aplicando el apartado “Procedimiento para la determinación del promedio mensual ponderado en función de la cantidad vendida”. Incorporando el resultado de la ecuación 24, según corresponda.
+LASEi,t = Ajuste por liquidación de las variables de asignación del subsidio del combustible "i" y subsidio específico otorgado por el Estado, para el ajuste tarifario "t".
+VTRi,n = Ventas totales reales en litros, para el combustible "i", en el mes "n" a liquidar, según corresponda.
+VTEi,n = Ventas totales estimadas en litros, del combustible "i" en el mes "n" a liquidar, según corresponda.
+ASi,n = Promedio ponderado mensual de la asignación del subsidio del combustible "i", a los productos subsidiadores en el mes "n" a liquidar, según corresponda. Se deberá calcular el dato promedio aplicando el apartado "Procedimiento para la determinación del promedio mensual ponderado en función de la cantidad vendida". Incorporando el resultado de la ecuación 24, según corresponda.
+SEi,n Promedio ponderado mensual del subsidio específico por tipo de combustible "i" otorgado por el Estado a los subsidiados mediante transferencia directa a Recope en el mes "n" a liquidar, según corresponda. Se deberá calcular el dato promedio aplicando el apartado "Procedimiento para la determinación del promedio mensual ponderado en función de la cantidad vendida". Incorporando el resultado de la ecuación 24, según corresponda.
 t = Subíndice que representa cada fijación tarifaria.
 i = Tipos de combustibles.
 n = Subíndice que representa cada mes a liquidar en el periodo que va desde el 1° de agosto al 31 de enero o del 1° de febrero al 31 de julio, según corresponda.
@@ -724,21 +723,19 @@ pb = Subíndice que indica el primer mes a liquidar (febrero o agosto), según c
 cb = Subíndice que indica el último mes a liquidar (enero o julio) según corresponda.
 En lo que respecta al subsidio cruzado, las diferencias entre las ventas estimadas y reales de los productos subsidiados deben ser trasladados nuevamente a tarifa, por lo cual se debe liquidar el monto total subsidiado y esta diferencia debe reasignarse entre todos los demás productos subsidiadores9, tal y como sigue:
 9Para los productos que no son subsidiadores, la variable LPSi,t será igual a cero.
-[imagen]
 Donde:
-LPSi,t = Asignación del ajuste por liquidación del subsidio cruzado del combustible “i”, para el estudio extraordinario “t”.
-LVTSt = Liquidación del valor total del subsidio cruzado para el ajuste tarifario “t” (ver ecuación 21).
-VSESi,t = Ventas semestrales estimadas para el próximo semestre en litros, para el combustible “i” en el ajuste tarifario “t”. Únicamente participan los combustibles “i” subsidiadores.
-Σ VTSEi,t = Ventas totales estimadas para el próximo semestre en litros, para todos los combustibles “i” subsidiadores en el ajuste tarifario “t”. Únicamente participan los combustibles “i” subsidiadores.
+LPSi,t = Asignación del ajuste por liquidación del subsidio cruzado del combustible "i", para el estudio extraordinario "t".
+LVTSt = Liquidación del valor total del subsidio cruzado para el ajuste tarifario "t" (ver ecuación 21).
+VSESi,t = Ventas semestrales estimadas para el próximo semestre en litros, para el combustible "i" en el ajuste tarifario "t". Únicamente participan los combustibles "i" subsidiadores.
+Σ VTSEi,t = Ventas totales estimadas para el próximo semestre en litros, para todos los combustibles "i" subsidiadores en el ajuste tarifario "t". Únicamente participan los combustibles "i" subsidiadores.
 t = Subíndice que representa cada fijación tarifaria.
 i = Tipos de combustibles
 Por su parte, el valor total del subsidio cruzado LVTSt se calcula utilizando la siguiente ecuación:
-[imagen]
 Donde:
-LVTSt = Liquidación del valor total del subsidio cruzado para el ajuste tarifario “t”.
-SCi,n = Promedio ponderado mensual del subsidio cruzado por tipo de combustible “i”, en el mes “n” a liquidar, según corresponda. Se deberá calcular el dato promedio aplicando el apartado “Procedimiento para la determinación del promedio mensual ponderado en función de la cantidad vendida”. Incorporando el resultado de la ecuación 24, según corresponda.
-VTRi,n = Ventas totales reales en litros, para el combustible “i”, en el mes “n” a liquidar, según corresponda.
-VTEi,n = Ventas totales estimadas en litros, del combustible “i” en el mes “n” a liquidar, según corresponda.
+LVTSt = Liquidación del valor total del subsidio cruzado para el ajuste tarifario "t".
+SCi,n = Promedio ponderado mensual del subsidio cruzado por tipo de combustible "i", en el mes "n" a liquidar, según corresponda. Se deberá calcular el dato promedio aplicando el apartado "Procedimiento para la determinación del promedio mensual ponderado en función de la cantidad vendida". Incorporando el resultado de la ecuación 24, según corresponda.
+VTRi,n = Ventas totales reales en litros, para el combustible "i", en el mes "n" a liquidar, según corresponda.
+VTEi,n = Ventas totales estimadas en litros, del combustible "i" en el mes "n" a liquidar, según corresponda.
 t = Subíndice que representa cada fijación tarifaria.
 i = Tipos de combustibles.
 I = Subíndice que representa la cantidad total de tipos de combustibles existentes en el ajuste extraordinario, sujeto de esta liquidación.
@@ -746,15 +743,14 @@ n = Subíndice que representa cada mes a liquidar en el periodo que va desde el 
 pb = Subíndice que indica el primer mes a liquidar (febrero o agosto), según corresponda.
 cb = Subíndice que indica el último mes a liquidar (enero o julio) según corresponda.
 Para la liquidación de las variables de diferencial de precios anterior y ajuste de liquidación extraordinaria anterior, la fórmula a utilizar es la siguiente:
-[imagen]
 Donde:
-LALi,t = Ajuste por liquidación de las variables del diferencial de precios anterior y ajuste por liquidación extraordinaria anterior, del combustible “i”, para el ajuste tarifario “t”.
-VTRi,n = Ventas totales reales en litros, para el combustible “i”, en el mes
-“n” a liquidar, según corresponda.
-VTESi,n = Ventas totales estimadas en litros, del combustible “i” en el mes
-“n” a liquidar, obtenido del estudio de diferencial y liquidación extraordinaria en el que se estimó dicho mes. Es decir, este dato se debe tomar del estudio en el que se estimó el diferencial de precios y liquidación extraordinaria, y en el cual, dentro del semestre proyectado, se realizó la estimación para el mes “n”, según corresponda.
-DAi,n = Promedio ponderado mensual del ajuste por el diferencial de precio del combustible “i”, en el mes “n” a liquidar, según corresponda. Se deberá calcular el dato promedio aplicando la sección “Procedimiento para la determinación del promedio mensual ponderado en función de la cantidad vendida”. Incorporando el resultado de la ecuación 24, según corresponda.
-ALEi,n = Promedio ponderado mensual del ajuste por liquidación extraordinaria del combustible “i” en el mes “n” a liquidar, según corresponda. Se deberá calcular el dato promedio aplicando la sección “Procedimiento para la determinación del promedio mensual ponderado en función de la cantidad vendida”. Incorporando el resultado de la ecuación 24, según corresponda.
+LALi,t = Ajuste por liquidación de las variables del diferencial de precios anterior y ajuste por liquidación extraordinaria anterior, del combustible "i", para el ajuste tarifario "t".
+VTRi,n = Ventas totales reales en litros, para el combustible "i", en el mes
+"n" a liquidar, según corresponda.
+VTESi,n = Ventas totales estimadas en litros, del combustible "i" en el mes
+"n" a liquidar, obtenido del estudio de diferencial y liquidación extraordinaria en el que se estimó dicho mes. Es decir, este dato se debe tomar del estudio en el que se estimó el diferencial de precios y liquidación extraordinaria, y en el cual, dentro del semestre proyectado, se realizó la estimación para el mes "n", según corresponda.
+DAi,n = Promedio ponderado mensual del ajuste por el diferencial de precio del combustible "i", en el mes "n" a liquidar, según corresponda. Se deberá calcular el dato promedio aplicando la sección "Procedimiento para la determinación del promedio mensual ponderado en función de la cantidad vendida". Incorporando el resultado de la ecuación 24, según corresponda.
+ALEi,n = Promedio ponderado mensual del ajuste por liquidación extraordinaria del combustible "i" en el mes "n" a liquidar, según corresponda. Se deberá calcular el dato promedio aplicando la sección "Procedimiento para la determinación del promedio mensual ponderado en función de la cantidad vendida". Incorporando el resultado de la ecuación 24, según corresponda.
 t = Subíndice que representa cada fijación tarifaria.
 i = Tipos de combustibles.
 n = Subíndice que representa cada mes a liquidar en el periodo que
@@ -764,10 +760,10 @@ cb = Subíndice que indica el último mes a liquidar (enero o julio) según corr
 Para la liquidación del canon de regulación la ecuación de cálculo a emplear será la siguiente:
 [imagen]
 Donde:
-LCi,t = Ajuste por liquidación del canon de regulación, para el combustible “i” en el ajuste tarifario “t”.
-VTRi,b = Ventas totales reales en litros, para el combustible “i”, en el periodo a liquidar “b”.
-VTEi,b = Ventas totales estimadas en litros, del combustible “i” en el periodo a liquidar “b”.
-CAi,b = Canon de regulación de la actividad de suministro del combustible “i”, vigente en el periodo a liquidar “b”.
+LCi,t = Ajuste por liquidación del canon de regulación, para el combustible "i" en el ajuste tarifario "t".
+VTRi,b = Ventas totales reales en litros, para el combustible "i", en el periodo a liquidar "b".
+VTEi,b = Ventas totales estimadas en litros, del combustible "i" en el periodo a liquidar "b".
+CAi,b = Canon de regulación de la actividad de suministro del combustible "i", vigente en el periodo a liquidar "b".
 t = Subíndice que representa cada fijación tarifaria.
 i = Tipos de combustibles.
 b = Subíndice que representa el año calendario anterior, según corresponda.
@@ -779,15 +775,15 @@ Se usará una ecuación genérica, que pueda ser utilizada en cualquiera de las 
 La fórmula es la siguiente:
 [imagen]
 Donde:
-CXi,n = Promedio ponderado mensual del componente “x” del combustible “i”, en el mes “n” a liquidar, según corresponda.
-CXi,g = Valor del componente “x” del combustible “i”, que estuvo vigente en el ajuste tarifario “g”.
-VRPi,g = Ventas reales en litros, para el combustible “i” en los días que estuvo vigente el ajuste “g”. Es decir, únicamente las ventas que se dieron mientras estaba rigiendo el ajuste “g”.
-VTRi,n = Ventas reales en litros, para el combustible “i” en el mes “n” a liquidar. Es decir, las ventas de todos los días del mes, para el combustible “i”.
+CXi,n = Promedio ponderado mensual del componente "x" del combustible "i", en el mes "n" a liquidar, según corresponda.
+CXi,g = Valor del componente "x" del combustible "i", que estuvo vigente en el ajuste tarifario "g".
+VRPi,g = Ventas reales en litros, para el combustible "i" en los días que estuvo vigente el ajuste "g". Es decir, únicamente las ventas que se dieron mientras estaba rigiendo el ajuste "g".
+VTRi,n = Ventas reales en litros, para el combustible "i" en el mes "n" a liquidar. Es decir, las ventas de todos los días del mes, para el combustible "i".
 n = Subíndice que representa cada mes a liquidar en el periodo que va desde el 1° de agosto al 31 de enero o del 1° de febrero al 31 de julio, según corresponda.
 i = Tipos de combustibles.
-g = Subíndice que representa cada ajuste tarifario que estuvo vigente durante el mes “n”, desde el primer ajuste “gp” hasta el último ajuste “gu”.
-gp = Subíndice que representa el primer ajuste que estuvo vigente en el mes “n”.
-gu = Subíndice que representa el último ajuste que estuvo vigente en el mes “n”.
+g = Subíndice que representa cada ajuste tarifario que estuvo vigente durante el mes "n", desde el primer ajuste "gp" hasta el último ajuste "gu".
+gp = Subíndice que representa el primer ajuste que estuvo vigente en el mes "n".
+gu = Subíndice que representa el último ajuste que estuvo vigente en el mes "n".
 Una vez calculado la variable "Promedio ponderado mensual del componente "x" del combustible "i", en el mes "n" a liquidar, según corresponda (CXi,n)", se debe incorporar en el cálculo de las ecuaciones 19,21 y 22 según corresponda.
 4. VARIABLES QUE SE ACTUALIZAN ORDINARIA Y EXTRAORDINARIAMENTE
 Los precios en terminales de ventas por producto y los precios al consumidor final se actualizan de forma ordinaria y extraordinaria ante cambios en las variables que lo componen.
@@ -797,35 +793,32 @@ A continuación, se presenta el procedimiento de actualización de las variables
 4.1. Subsidio por tipo de combustible y asignación del pago del subsidio
 Es importante indicar que existen los dos tipos de roles señalados en el apartado "Procedimiento para el cálculo de la liquidación extraordinaria" referidos al producto subsidiado o productos subsidiadores, ambos conceptos aplican en los mismos términos ahí enunciados.
 Antes de iniciar con la explicación del proceso, es importante recordar que existen dos tipos de roles que podría tener un producto en el manejo de los subsidios:
-• Subsidiados: si el producto recibe el subsidio cruzado o de transferencia del estado, se denomina "subsidiado". Para estos productos, las variables SEi,t y SCi,t mostrarán de modo concreto los montos a favor que recibirán y la variable relacionada con la contribución o aporte al subsidio ASi,t deberá ser igual a cero, con excepción de que se solicite a alguno de estos productos una contribución específica por cuestiones particulares.
-• Subsidiadores: los productos que no reciban subsidio, sino que más bien aportan o contribuyan a subsidiar otros productos, se denominan "subsidiadores" y mediante la variable ASi,t se establece el monto por litro con el cual contribuyen o aportan al subsidio. Por su parte, las variables SEi,t y SCi,t, deberán ser igual a cero, dado que no reciben ningún monto de subsidio a su favor, con excepción de que se brinde a alguno de estos productos una contribución específica por cuestiones particulares.
+. Subsidiados: si el producto recibe el subsidio cruzado o de transferencia del estado, se denomina "subsidiado". Para estos productos, las variables SEi,t y SCi,t mostrarán de modo concreto los montos a favor que recibirán y la variable relacionada con la contribución o aporte al subsidio ASi,t deberá ser igual a cero, con excepción de que se solicite a alguno de estos productos una contribución específica por cuestiones particulares.
+. Subsidiadores: los productos que no reciban subsidio, sino que más bien aportan o contribuyan a subsidiar otros productos, se denominan "subsidiadores" y mediante la variable ASi,t se establece el monto por litro con el cual contribuyen o aportan al subsidio. Por su parte, las variables SEi,t y SCi,t, deberán ser igual a cero, dado que no reciben ningún monto de subsidio a su favor, con excepción de que se brinde a alguno de estos productos una contribución específica por cuestiones particulares.
 Se reitera que para la determinación de los precios al consumidor final, se deberá considerar tanto la Política Sectorial vigente para los precios de gas licuado de petróleo, búnker, asfalto y emulsión asfáltica establecida mediante Decreto Ejecutivo N° 39437-MINAE publicado en el Alcance N°4 a La Gaceta N°8 del 13 de enero de 2016 y su reforma, Decreto Ejecutivo 42352- MINAE, del 20 de mayo de 2020, publicado en el Alcance N.°122 a La Gaceta N.°118 del 22 de mayo de 2020, como el Subsidio a la flota pesquera nacional no deportiva (Subsidio a Pescadores), establecido por el Poder Ejecutivo mediante la Ley N° 7384 (Creación del Instituto Costarricense de Pesca y Agricultura y sus reformas y la Ley 9134 Interpretación auténtica del Artículo 45 de la Ley N° 7384 o bien la norma que la sustituya al momento de la aplicación de la metodología o nueva normativa que se establezca. También se requiere de datos específicos y de la banda de precios para productos que se distribuyen en puertos y aeropuertos. Sobre este tema se aplicarán las siguientes ecuaciones:
 4.1.1. Transferencia directa por parte del Estado:
 Representa el subsidio específico por tipo de combustible otorgado por alguna institución competente del Estado y aplicado a partir del momento en que se demuestre que el valor total del subsidio ha sido trasladado a Recope. El subsidio por litro para el tipo de combustible "i", se determinará de la siguiente manera:
-[imagen]
 Donde:
-SEi,t = Subsidio específico por tipo de combustible “i” otorgado por el Estado mediante transferencia directa a Recope para el ajuste tarifario “t”.
-VTSi,t = Valor a subsidiar en el ajuste “t”, aprobado por la Asamblea Legislativa o el ente competente y trasladado a Recope para el combustible “i” y para el ajuste tarifario “t”.
-VTEi,t = Ventas totales estimadas en litros del combustible “i”, para el ajuste tarifario “t”. Si para algún “i” VTEi,t = 0 entonces SEi,t = 0.
+SEi,t = Subsidio específico por tipo de combustible "i" otorgado por el Estado mediante transferencia directa a Recope para el ajuste tarifario "t".
+VTSi,t = Valor a subsidiar en el ajuste "t", aprobado por la Asamblea Legislativa o el ente competente y trasladado a Recope para el combustible "i" y para el ajuste tarifario "t".
+VTEi,t = Ventas totales estimadas en litros del combustible "i", para el ajuste tarifario "t". Si para algún "i" VTEi,t = 0 entonces SEi,t = 0.
 i = Tipos de combustibles.
 t = Subíndice que representa cada fijación tarifaria.
 4.1.2. Subsidios cruzados:
 a) Porcentual: Ocurre cuando se subsidia un porcentaje del precio del combustible "i".
 Para calcular este monto se debe obtener previamente el cálculo del subsidio por litro, de la siguiente forma:
-[imagen]
 Donde:
-SCi,t = Subsidio cruzado por tipo de combustible “i”, para el ajuste tarifario “t”.
-Si,t = Porcentaje a subsidiar del precio del combustible “i”, para el ajuste tarifario “t”.
-PPSi,t = Precio terminal sin subsidio del combustible “i”, para el ajuste tarifario “t”.
+SCi,t = Subsidio cruzado por tipo de combustible "i", para el ajuste tarifario "t".
+Si,t = Porcentaje a subsidiar del precio del combustible "i", para el ajuste tarifario "t".
+PPSi,t = Precio terminal sin subsidio del combustible "i", para el ajuste tarifario "t".
 i = Tipos de combustibles.
 t = Subíndice que representa cada fijación tarifaria.
 b) Fijo: Ocurre cuando se subsidia un monto específico por litro del combustible "i". Es decir, el monto del subsidio (SCi,t) por litro no se determina como un porcentaje del precio del producto,
 El valor total del subsidio se calcula de la siguiente manera:
-[imagen]
 Donde:
-VTSt = Valor total del subsidio para el ajuste tarifario “t”.
-SCi,t = Subsidio cruzado por tipo de combustible “i”, para el ajuste tarifario “t”.
-VTEi,t = Ventas totales estimadas en litros del combustible “i”, para el ajuste tarifario “t”.
+VTSt = Valor total del subsidio para el ajuste tarifario "t".
+SCi,t = Subsidio cruzado por tipo de combustible "i", para el ajuste tarifario "t".
+VTEi,t = Ventas totales estimadas en litros del combustible "i", para el ajuste tarifario "t".
 i = Tipos de combustibles.
 I = Subíndice que representa la cantidad total de tipos de combustibles existentes en el ajuste extraordinario, sujeto de esta liquidación.
 t = Subíndice que representa cada fijación tarifaria.
@@ -834,10 +827,10 @@ Para la asignación del pago del subsidio i, en el periodo tarifario t, para los
 El subsidio del combustible "i" lo pagarán únicamente los combustibles subsidiadores en el ajuste tarifario "t", a menos que la normativa vigente al momento del cálculo, estipule lo contrario. La participación del pago del subsidio será distribuida de la siguiente manera:
 [imagen]
 Donde:
-ASi,t = Asignación del subsidio del combustible “i”, para el ajuste tarifario “t”. Únicamente participan los combustibles “i” subsidiadores.
-VTSt = Valor total del subsidio para el ajuste tarifario “t”.
-VTEi,t = Ventas totales estimadas en litros del combustible “i”, para el ajuste tarifario “t”, en caso de que no se estimen ventas de alguno de los combustibles “i”, el porcentaje del subsidio a aplicar sería cero.
-PRVTi,t = Participación relativa del combustible “i”, en las ventas totales físicas estimadas de todos los combustibles subsidiadores para el ajuste tarifario “t”. Únicamente participan los combustibles “i” subsidiadores.
+ASi,t = Asignación del subsidio del combustible "i", para el ajuste tarifario "t". Únicamente participan los combustibles "i" subsidiadores.
+VTSt = Valor total del subsidio para el ajuste tarifario "t".
+VTEi,t = Ventas totales estimadas en litros del combustible "i", para el ajuste tarifario "t", en caso de que no se estimen ventas de alguno de los combustibles "i", el porcentaje del subsidio a aplicar sería cero.
+PRVTi,t = Participación relativa del combustible "i", en las ventas totales físicas estimadas de todos los combustibles subsidiadores para el ajuste tarifario "t". Únicamente participan los combustibles "i" subsidiadores.
 t = Subíndice que representa cada fijación tarifaria.
 i = Tipos de combustibles.
 La ecuación anterior se establece para ventas estimadas de productos mayores que cero; en caso de que no se estimen ventas de alguno de los combustibles "i", el porcentaje del subsidio a aplicar sería cero.
@@ -875,18 +868,17 @@ En relación con lo anterior, es importante indicar que, en la actualidad existe
 El margen de operación se debe calcular para cada combustible. Cuando los rubros de costo no puedan asociarse directamente con un combustible, el monto del gasto que se debe asignar a ese producto se determinará por el parámetro de distribución de costos (Cost drivers) que mejor se ajuste al costo a distribuir. En caso de no contar con ese conductor, se considerará su participación en las ventas totales físicas de los 12 meses previos a la presentación del estudio tarifario ordinario.
 Este margen absoluto generará los ingresos para cubrir el costo de operación necesario para el suministro oportuno del combustible y será tramitado de manera ordinaria, siguiendo el procedimiento establecido en la Ley N°. 7593 y su reglamento.
 A continuación, se describe el procedimiento de estimación del margen de operación para cada tipo de combustible, el cual se basa en el análisis de los costos históricos, su temporalidad se indica en el siguiente detalle. Con ese propósito, la fórmula a emplear es:
-[imagen]
 Donde:
-MOi,t = Margen de operación de Recope por litro de combustible “i”, en el ajuste tarifario “t”.
-ATDi,t = Costos de almacenamiento, trasiego y distribución por litro y tipo de combustible “i”, en el ajuste tarifario “t”.
-GAi,t = Costos y gastos de las gerencias de apoyo por litro y tipo de combustible “i”, en el ajuste tarifario “t”.
-GPi,t = Gastos pre-operativos por litro y tipo de combustible “i”, en el ajuste tarifario “t”.
-EFIt = Eficiencia esperada por la disminución de costos, en el ajuste tarifario “t”.
-CDi,t = Costos por demora por litro y tipo de combustible “i”, en el ajuste tarifario “t”.
-DEPi,t = Gastos por depreciación por litro y tipo de combustible “i”, en el ajuste tarifario “t”.
-CAJi,t = Cargas ajenas por litro y tipo de combustible “i”, en el ajuste tarifario “t”.
-PETi,t = Pérdidas en tránsito por litro y tipo de combustible “i”, en el ajuste tarifario “t”.
-OCi,t = Otros costos y gastos no recurrentes, debidamente justificados y no incluidos en los rubros anteriores, necesarios para disponer del combustible en los planteles de distribución de Recope Gastos por litro y tipo de combustible “i”, en el ajuste tarifario “t”.
+MOi,t = Margen de operación de Recope por litro de combustible "i", en el ajuste tarifario "t".
+ATDi,t = Costos de almacenamiento, trasiego y distribución por litro y tipo de combustible "i", en el ajuste tarifario "t".
+GAi,t = Costos y gastos de las gerencias de apoyo por litro y tipo de combustible "i", en el ajuste tarifario "t".
+GPi,t = Gastos pre-operativos por litro y tipo de combustible "i", en el ajuste tarifario "t".
+EFIt = Eficiencia esperada por la disminución de costos, en el ajuste tarifario "t".
+CDi,t = Costos por demora por litro y tipo de combustible "i", en el ajuste tarifario "t".
+DEPi,t = Gastos por depreciación por litro y tipo de combustible "i", en el ajuste tarifario "t".
+CAJi,t = Cargas ajenas por litro y tipo de combustible "i", en el ajuste tarifario "t".
+PETi,t = Pérdidas en tránsito por litro y tipo de combustible "i", en el ajuste tarifario "t".
+OCi,t = Otros costos y gastos no recurrentes, debidamente justificados y no incluidos en los rubros anteriores, necesarios para disponer del combustible en los planteles de distribución de Recope Gastos por litro y tipo de combustible "i", en el ajuste tarifario "t".
 i = Tipos de combustibles.
 t = Subíndice que representa cada fijación tarifaria.
 Detalle de los componentes de costo
@@ -945,13 +937,14 @@ Para efectos de reconocimiento tarifario, la empresa regulada deberá remitir un
 Para el cálculo del costo de pérdidas en tránsito, se deben valorar técnicamente por parte de la IE (o el órgano de la Aresep que la Junta Directiva llegue a designar como responsable del proceso de fijación tarifaria de este servicio), los porcentajes de pérdida por producto especificados por Recope y sus respectivas justificaciones.
 En aquellos casos en donde el flete se realice por una vía distinta a la marítima, Recope deberá de presentar adicionalmente un informe técnico detallado a la IE (o el órgano de la Aresep que la Junta Directiva llegue a designar como responsable del proceso de fijación tarifaria de este servicio) solicitando aprobación de los puntos de referencia que serían considerados para la cuantificación del diferencial volumétrico según el tipo de producto importado.
 El cálculo del valor en moneda nacional del costo por pérdidas en tránsito se cuantifica sobre los costos del producto en el puerto de destino de la siguiente forma:
-[imagen]
+𝑃𝐸𝑇𝑖,𝑡 = 𝐶𝑂𝐴𝑃𝑖,𝑡 * 𝑃𝑃𝐸𝑇𝑖,𝑡 Ecuación 30
 Donde:
-PETi,t = Pérdidas en tránsito para el combustible “i”, en el ajuste tarifario “t”.
-COAi,t = Costo de adquisición por litro del combustible “i” en el ajuste tarifario “t” (ver detalle de cálculo en el apartado “Actualización del costo de adquisición de los combustibles” de la sección “FIJACIONES EXTRAORDINARIAS”).
-PPETi,t = Porcentaje de pérdidas en tránsito por combustible “i”, en el ajuste tarifario “t”.
+PETi,t = Pérdidas en tránsito para el combustible "i", en el ajuste tarifario "t".
+COAPi,t = Promedio ponderado del costo de adquisición por litro de combustible "i" en el ajuste tarifario "t", que incluye: precio del producto (primas o descuentos incorporados), flete de transporte internacional, seguro de transporte internacional, el margen de comercialización del proveedor (trader) y costo portuario, el cual se calculará utilizando los mismos embarques empleados en el cálculo del porcentaje de pérdidas en tránsito, ponderado en función de la cantidad de combustible adquirido.
+PPETi,t = Porcentaje de pérdidas en tránsito por combustible "i", en el ajuste tarifario "t".
 i = Tipos de combustibles.
 t = Subíndice que representa cada fijación tarifaria.
+(Así reformada la ecuación 30 anterior mediante resolución N° RE-0025-JD-2023 del 21 de febrero de 2023)
 5.1.8.Otros Costos (OCi,t)
 Se refiere a otros costos y/o gastos no recurrentes y no incluidos en los rubros anteriores, necesarios para disponer del combustible en los planteles de distribución de Recope y para los cuales se deberá adjuntar la respectiva justificación técnica, que será revisada y avalada por la IE (o el órgano de la Aresep que la Junta Directiva llegue a designar como responsable del proceso de fijación tarifaria de este servicio).
 El resultado de estos costos y/o gastos se expresa en colones por litro del combustible "i", se pueden incorporar distintos métodos de asignación de costos y gastos, se puede valorar un cambio en el mecanismo de asociación, en el momento en que se evidencien mejores resultados con respecto a la utilización de otros mecanismos, en tanto estos nuevos criterios de distribución de costo estén debidamente sustentados en criterios técnicos y lógicos, con amplia justificación por parte del proponente del nuevo modelo de asignación de costo.
@@ -999,11 +992,10 @@ A su vez, es importante recordar las definiciones del índice de Laspeyres y Paa
 En resumen, los índices de Laspeyres y Paasche lo que hacen es una multiplicación de los precios por las cantidades para una cesta en dos periodos temporales, utilizando los precios como ponderadores en el índice, a fin de analizar con mayor detalle la evolución de las cantidades. La diferencia es que "el primero utiliza ponderaciones fijas del año base y el segundo ponderaciones del periodo corriente, en tanto que el índice (Ideal) de Fisher constituye un promedio geométrico de los dos anteriores" (Hernández, 2007, pág. 42)17.
 17Hernández, E. (2007). La productividad multifactorial: concepto, medición y significado. Economía: Teoria y práctica, 31-67.
 Por lo anterior, se plantea la medición de la eficiencia, por medio del índice de Fisher, tal y como se describe en las siguientes fórmulas:
-[imagen]
 Donde:
-EFIt = Eficiencia esperada en la disminución de costos, en el ajuste tarifario “t”.
-PTLz = Índice Laspeyres de Productividad Total de los Factores para el periodo base “z” (ver ecuación 32).
-PTPz = Índice Paasche de Productividad Total de los Factores para el periodo base “z” (ver ecuación 33).
+EFIt = Eficiencia esperada en la disminución de costos, en el ajuste tarifario "t".
+PTLz = Índice Laspeyres de Productividad Total de los Factores para el periodo base "z" (ver ecuación 32).
+PTPz = Índice Paasche de Productividad Total de los Factores para el periodo base "z" (ver ecuación 33).
 t Subíndice que representa cada fijación tarifaria.
 p-1 Subíndice que representa el periodo base. Cada periodo base corresponde a 12 meses.
 p-3 Subíndice que representa el tercer periodo base.
@@ -1012,36 +1004,35 @@ Es importante indicar que el valor de EFIt debe ser mayor o igual a cero, en cas
 El cálculo del índice Laspeyres se calcula de la siguiente manera:
 [imagen]
 Donde:
-PTLz = Índice Laspeyres de Productividad Total de los Factores para el periodo base “z”.
-MOi,z−1 = Margen de operación de Recope por litro de combustible “i” en el periodo base “z-1”, es decir el periodo base previo a “z”.
-PINx,z−1 = Precio o valor monetario del insumo “x”, seleccionado para la medición de productividad en el periodo base “z-1”, es decir el periodo base previo a “z”.
-VTRi,z = Ventas totales reales en litros, para el combustible “i”, en elperiodo base “z”.
-QINx,z = Cantidad determinada en unidades físicas del insumo “x” seleccionado para la medición de productividad en el periodo base “z”.
-VTRi,z−1 = Ventas totales reales en litros, para el combustible “i”, en el periodo base “z-1”, es decir el periodo base previo a “z”.
-QINx,z−1 = Cantidad determinada en unidades físicas del insumo “x” seleccionado para la medición de productividad en el periodo base “z-1”, es decir el periodo base previo a “z”.
+PTLz = Índice Laspeyres de Productividad Total de los Factores para el periodo base "z".
+MOi,z−1 = Margen de operación de Recope por litro de combustible "i" en el periodo base "z-1", es decir el periodo base previo a "z".
+PINx,z−1 = Precio o valor monetario del insumo "x", seleccionado para la medición de productividad en el periodo base "z-1", es decir el periodo base previo a "z".
+VTRi,z = Ventas totales reales en litros, para el combustible "i", en elperiodo base "z".
+QINx,z = Cantidad determinada en unidades físicas del insumo "x" seleccionado para la medición de productividad en el periodo base "z".
+VTRi,z−1 = Ventas totales reales en litros, para el combustible "i", en el periodo base "z-1", es decir el periodo base previo a "z".
+QINx,z−1 = Cantidad determinada en unidades físicas del insumo "x" seleccionado para la medición de productividad en el periodo base "z-1", es decir el periodo base previo a "z".
 t = Subíndice que representa cada fijación tarifaria.
 i = Tipos de combustibles.
 z = Subíndice que representa cada uno de los periodos base anteriores al estudio tarifario.
-z-1 = Subíndice que representa el periodo base “z-1”, es decir el periodo base previo a “z”.
+z-1 = Subíndice que representa el periodo base "z-1", es decir el periodo base previo a "z".
 ip = Subíndice que representa el primer combustible empleado en la medición de productividad.
 iu Subíndice que representa el último combustible empleado en la medición de productividad.
 x Subíndice que representa cada uno de los insumos seleccionados para la medición de la productividad.
 xp = Subíndice que representa el primer insumo seleccionado para la medición de productividad.
 xu = Subíndice que representa el último insumo seleccionado para la medición de productividad.
 El cálculo del índice Paasche se calcula de la siguiente manera:
-[imagen]
 Donde
-PTPz = Índice Paasche de Productividad Total de los Factores para el periodo base “z”
-MOi,z = Margen de operación de Recope por litro de combustible “i”, en el periodo base “z”.
-PINx,z = Precio o valor monetario del insumo “x” seleccionado para la medición de productividad en el periodo base “z”.
-VTRi,z = Ventas totales reales en litros, para el combustible “i”, en el periodo base “z”.
-QINx,z = Cantidad determinada en unidades físicas del insumo “x” seleccionado para la medición de productividad en el periodo base “z”.
-VTRi,z−1 = Ventas totales reales en litros, para el combustible “i”, en el periodo base “z-1”, es decir el periodo base previo a “z”.
-QINx,z−1 = Cantidad determinada en unidades físicas del insumo “x” seleccionado para la medición de productividad en el periodo base “z-1”, es decir el periodo base previo a “z”
+PTPz = Índice Paasche de Productividad Total de los Factores para el periodo base "z"
+MOi,z = Margen de operación de Recope por litro de combustible "i", en el periodo base "z".
+PINx,z = Precio o valor monetario del insumo "x" seleccionado para la medición de productividad en el periodo base "z".
+VTRi,z = Ventas totales reales en litros, para el combustible "i", en el periodo base "z".
+QINx,z = Cantidad determinada en unidades físicas del insumo "x" seleccionado para la medición de productividad en el periodo base "z".
+VTRi,z−1 = Ventas totales reales en litros, para el combustible "i", en el periodo base "z-1", es decir el periodo base previo a "z".
+QINx,z−1 = Cantidad determinada en unidades físicas del insumo "x" seleccionado para la medición de productividad en el periodo base "z-1", es decir el periodo base previo a "z"
 = Subíndice que representa cada fijación tarifaria.
 i = Tipos de combustibles.
 z = Subíndice que representa cada uno de los periodos base anteriores al estudio tarifario.
-z-1 = Subíndice que representa el periodo base “z-1”, es decir el periodo base previo a “z”.
+z-1 = Subíndice que representa el periodo base "z-1", es decir el periodo base previo a "z".
 ip = Subíndice que representa el primer combustible empleado en la medición de productividad.
 iu= Subíndice que representa el último combustible empleado en la medición de productividad.
 x = Subíndice que representa el último combustible empleado en la medición de productividad.
@@ -1056,46 +1047,43 @@ La IE (o el órgano de la Aresep que la Junta Directiva llegue a designar como r
 5.4.Determinación del rendimiento sobre la base tarifaria (RSBTi,t).
 El rendimiento sobre la base tarifaria (RSBTi,t) se determina a partir de una tasa que refleje el costo del capital de Recope, con el objetivo de que cuente con los fondos necesarios para financiar las inversiones en infraestructura necesarias para garantizar que el servicio público se preste en las condiciones de calidad, cantidad, confiabilidad, continuidad y oportunidad que indica la Ley N°. 7593.
 Se determina mediante la siguiente ecuación:
-[imagen]
 Donde:
-RSBTi,t = Rendimiento sobre la base tarifaria del combustible “i” para el ajuste tarifario “t”.
-Rt = Tasa de rédito para el desarrollo para el ajuste tarifario “t” (Ver detalle del cálculo en el apartado “Tasa de rédito para el desarrollo (Rt)” de la sección “FIJACIONES ORDINARIAS”).
-AFNORi,t = Activo fijo neto de operación al costo revaluado del combustible “i” para el ajuste tarifario “t” (Ver detalle del cálculo en el apartado “Activo fijo neto en operación” de la sección “FIJACIONES ORDINARIAS”).
-CTi,t = Capital de trabajo para el combustible “i”, en el ajuste tarifario “t” (Ver detalle del cálculo en el apartado “Capital de trabajo
-(CTi,t)” de la sección “FIJACIONES ORDINARIAS”).
-VAEi,t = Ventas totales estimadas en litros del combustible “i”, para el ajuste tarifario “t”. Si para algún “i” VAEi,t= 0; RSBTi,t = 0.
+RSBTi,t = Rendimiento sobre la base tarifaria del combustible "i" para el ajuste tarifario "t".
+Rt = Tasa de rédito para el desarrollo para el ajuste tarifario "t" (Ver detalle del cálculo en el apartado "Tasa de rédito para el desarrollo (Rt)" de la sección "FIJACIONES ORDINARIAS").
+AFNORi,t = Activo fijo neto de operación al costo revaluado del combustible "i" para el ajuste tarifario "t" (Ver detalle del cálculo en el apartado "Activo fijo neto en operación" de la sección "FIJACIONES ORDINARIAS").
+CTi,t = Capital de trabajo para el combustible "i", en el ajuste tarifario "t" (Ver detalle del cálculo en el apartado "Capital de trabajo
+(CTi,t)" de la sección "FIJACIONES ORDINARIAS").
+VAEi,t = Ventas totales estimadas en litros del combustible "i", para el ajuste tarifario "t". Si para algún "i" VAEi,t= 0; RSBTi,t = 0.
 i = Tipos de combustibles.
 t = Subíndice que representa cada fijación tarifaria.
 5.5. Tasa de rédito para el desarrollo (Rt)
 El cálculo de la tasa de rédito para el desarrollo se realiza mediante la aplicación del Costo Promedio Ponderado del Capital (Weighted Average Cost of Capital, WACC, por sus siglas en inglés), según se muestra en la siguiente ecuación.
-[imagen]
 Donde:
-Rt = Tasa de rédito para el desarrollo para el ajuste tarifario “t”.
-KDt = Costo del endeudamiento para el ajuste tarifario “t” (ver sección “Costo del endeudamiento para el ajuste tarifario “t” (KDt)”).
-TIt = Tasa impositiva para el ajuste tarifario “t”. Será determinada según lo indicado en el acuerdo 15-149-99 de la Junta Directiva de la Autoridad Reguladora (acta de sesión 149-99 del 19 de agosto de 1999) o lo que en su momento disponga la Junta Directiva de la Aresep.
-VDt = Valor de la deuda excluidos los aportes realizados al proceso de refinación para el ajuste tarifario “t”. Se considera únicamente las obligaciones con costo financiero excluidas las adquiridas para financiar la actividad de refinación. Se utiliza el dato consignado en los estados financieros, o el dato de la Contabilidad Regulatoria e información complementaria a esta, que la Aresep establezca. Los estados financieros corresponderán a los 12 meses anteriores a la presentación del estudio tarifario siempre que los datos no excedan de 4 meses de antigüedad.
-VCPt = Valor del capital correspondiente a recursos propios o patrimonio excluidos los aportes realizados al proceso de refinación para el ajuste tarifario “t”. Se utiliza el dato consignado en los estados financieros, o el dato de la Contabilidad Regulatoria e información complementaria a esta, que la Aresep establezca. Los estados financieros corresponderán a los 12 meses anteriores a la presentación del estudio tarifario, siempre que los datos no excedan de 4 meses de antigüedad.
-KEt = Costo del capital propio para el ajuste tarifario “t” (ver apartado “Costo del capital propio (KEt)” de la sección “FIJACIONES ORDINARIAS”)
+Rt = Tasa de rédito para el desarrollo para el ajuste tarifario "t".
+KDt = Costo del endeudamiento para el ajuste tarifario "t" (ver sección "Costo del endeudamiento para el ajuste tarifario "t" (KDt)").
+TIt = Tasa impositiva para el ajuste tarifario "t". Será determinada según lo indicado en el acuerdo 15-149-99 de la Junta Directiva de la Autoridad Reguladora (acta de sesión 149-99 del 19 de agosto de 1999) o lo que en su momento disponga la Junta Directiva de la Aresep.
+VDt = Valor de la deuda excluidos los aportes realizados al proceso de refinación para el ajuste tarifario "t". Se considera únicamente las obligaciones con costo financiero excluidas las adquiridas para financiar la actividad de refinación. Se utiliza el dato consignado en los estados financieros, o el dato de la Contabilidad Regulatoria e información complementaria a esta, que la Aresep establezca. Los estados financieros corresponderán a los 12 meses anteriores a la presentación del estudio tarifario siempre que los datos no excedan de 4 meses de antigüedad.
+VCPt = Valor del capital correspondiente a recursos propios o patrimonio excluidos los aportes realizados al proceso de refinación para el ajuste tarifario "t". Se utiliza el dato consignado en los estados financieros, o el dato de la Contabilidad Regulatoria e información complementaria a esta, que la Aresep establezca. Los estados financieros corresponderán a los 12 meses anteriores a la presentación del estudio tarifario, siempre que los datos no excedan de 4 meses de antigüedad.
+KEt = Costo del capital propio para el ajuste tarifario "t" (ver apartado "Costo del capital propio (KEt)" de la sección "FIJACIONES ORDINARIAS")
 t = Subíndice que representa cada fijación tarifaria.
 5.5.1.Costo del endeudamiento para el ajuste tarifario "t" (KDt):
 El costo del endeudamiento de Recope es el valor de las obligaciones de largo plazo con costo financiero, producto de obligaciones formalizadas mediante documentos oficiales, excluido lo relacionado con el proceso de refinación. Se expresa mediante la siguiente ecuación:
 [imagen]
 Donde:
-KDt = Costo del endeudamiento para el ajuste tarifario “t”.
-Dw,t = Monto de la deuda para la obligación con costo financiero “w” para el ajuste tarifario “t”. Es el monto en colones de la obligación de largo plazo con costo financiero “w” (excluido lo relacionado con el proceso de refinación) formalizada mediante documentos oficiales.
+KDt = Costo del endeudamiento para el ajuste tarifario "t".
+Dw,t = Monto de la deuda para la obligación con costo financiero "w" para el ajuste tarifario "t". Es el monto en colones de la obligación de largo plazo con costo financiero "w" (excluido lo relacionado con el proceso de refinación) formalizada mediante documentos oficiales.
 Este dato de cada préstamo asociado a cada uno de los pasivos de largo plazo con costo financiero se obtiene de los estados financieros con el correspondiente detalle, o el dato de la Contabilidad Regulatoria e información complementaria a esta, que la Aresep establezca. Los estados financieros corresponderán a los 12 meses anteriores a la presentación del estudio tarifario, siempre que los datos no excedan de 4 meses de antigüedad.
-Rw,t = Tasa de interés en colones de la deuda “w” para el periodo “t”. Es la tasa de interés en colones, de los pasivos de largo plazo con costo financiero, producto de obligaciones formalizadas mediante documentos oficiales. El dato de la tasa de interés se obtiene de los contratos con el acreedor de la deuda, o el dato de la Contabilidad Regulatoria e información complementaria a esta, que la Aresep establezca.
-Cuando la tasa de interés del endeudamiento se encuentre expresado en dólares se debe aplicar el procedimiento descrito en la ecuación 37 para obtener la equivalencia a colones y el resultado obtenido “Rw” se incorpora a este cálculo.
+Rw,t = Tasa de interés en colones de la deuda "w" para el periodo "t". Es la tasa de interés en colones, de los pasivos de largo plazo con costo financiero, producto de obligaciones formalizadas mediante documentos oficiales. El dato de la tasa de interés se obtiene de los contratos con el acreedor de la deuda, o el dato de la Contabilidad Regulatoria e información complementaria a esta, que la Aresep establezca.
+Cuando la tasa de interés del endeudamiento se encuentre expresado en dólares se debe aplicar el procedimiento descrito en la ecuación 37 para obtener la equivalencia a colones y el resultado obtenido "Rw" se incorpora a este cálculo.
 w = Cada obligación con costo financiero que se encuentra pendiente de pago al momento de la solicitud del estudio tarifario.
 Q = Total de obligaciones de largo plazo con costo financiero que se encuentra pendiente de pago al momento de la solicitud del estudio tarifario.
 t = Subíndice que representa cada fijación tarifaria.
 5.5.2. Procedimiento para colonizar las tasas en dólares
 Para calcular la tasa colonizada de los endeudamientos que se encuentra en dólares se utiliza la teoría de la Paridad de Tipos de Interés Cubierta, la cual establece que la diferencia en los tipos de interés es igual al cambio futuro esperado del tipo de cambio, que se expresa en la siguiente ecuación:
-[imagen]
 Donde:
-Rw = Tasa colonizada para la deuda “w”.
-TB$w = Tasa de interés en dólares de la deuda “w”. Es la tasa de interés en dólares de los pasivos de largo plazo con costo financiero, producto de obligaciones formalizadas mediante documentos oficiales. El dato de la tasa de interés se obtiene de los contratos con el acreedor de la deuda, o el dato de la Contabilidad Regulatoria e información complementaria a esta, que la Aresep establezca.
-EDt = Tasa de la variación esperada (expectativa de mercado) del colón respecto al dólar para el ajuste tarifario “t”. Se utiliza la información de las “Expectativas de mercado sobre variación cambiaria a 12 meses”, publicada por el BCCR, o publicación que le sustituya. Se calcula como un promedio simple de los datos de los 12 meses que se consideren en los estados financieros que se incorporan en la solicitud tarifaria a la Aresep.
+Rw = Tasa colonizada para la deuda "w".
+TB$w = Tasa de interés en dólares de la deuda "w". Es la tasa de interés en dólares de los pasivos de largo plazo con costo financiero, producto de obligaciones formalizadas mediante documentos oficiales. El dato de la tasa de interés se obtiene de los contratos con el acreedor de la deuda, o el dato de la Contabilidad Regulatoria e información complementaria a esta, que la Aresep establezca.
+EDt = Tasa de la variación esperada (expectativa de mercado) del colón respecto al dólar para el ajuste tarifario "t". Se utiliza la información de las "Expectativas de mercado sobre variación cambiaria a 12 meses", publicada por el BCCR, o publicación que le sustituya. Se calcula como un promedio simple de los datos de los 12 meses que se consideren en los estados financieros que se incorporan en la solicitud tarifaria a la Aresep.
 w = Cada obligación con costo financiero que se encuentra pendiente de pago al momento de la presentación del estudio tarifario.
 t = Subíndice que representa cada fijación tarifaria.
 Una vez colonizada la tasa de interés del endeudamiento que se encuentre expresado en dólares "Rw" se debe incorporar en el cálculo de la ecuación 36.
@@ -1109,32 +1097,29 @@ Se empleará para el cálculo del CAPM la información relacionada con el beta y
 La paridad cubierta de tasas de interés establece que, dado que existen flujos de capital a nivel internacional libres de todo tipo de restricciones, entonces, se tenderán a igualar los retornos de una inversión a nivel doméstico o en el extranjero, al ser medidos en una moneda común. Otra manera de especificar la paridad cubierta es señalar que el diferencial de tasas de interés entre dos activos idénticos en todo respecto, excepto la moneda de denominación, debería ser cero, una vez que se haya hecho la cobertura del riesgo cambiario en el mercado forward correspondiente. (Rojas, 1997, pág. 7)
 De este modo, en el Anexo 1, se desarrolla la formulación matemática que justifica la utilización de la fórmula para obtener la tasa en colones.
 Para obtener el costo de capital propio en dólares, se utiliza la siguiente ecuación:
-[imagen]
 Donde:
-KE$t = Costo del capital propio, en dólares para el ajuste tarifario “t”.
-RFt = Tasa libre de riesgo para el ajuste tarifario “t”. Supone una alternativa de inversión que no tiene riesgo para el inversionista.
+KE$t = Costo del capital propio, en dólares para el ajuste tarifario "t".
+RFt = Tasa libre de riesgo para el ajuste tarifario "t". Supone una alternativa de inversión que no tiene riesgo para el inversionista.
 Tasa nominal de rendimiento diario de los bonos del Tesoro (a un plazo de 10 años) de los Estados Unidos de América (USA). Esta información se toma del Sitio Web del Departamento del Tesoro de los Estados Unidos (U.S. Department of the Treasury, por su nombre en inglés) y se calcula como el promedio simple de los datos de los 60 meses anteriores a la solicitud de fijación tarifaria.
-βAt = Beta apalancada para el ajuste tarifario “t”. Es el coeficiente de riesgo sistémico de la industria. Es la co-varianza de la rentabilidad de un activo determinado y la rentabilidad del mercado. Se denomina “apalancada” ya que se ha ajustado para considerar que parte de la inversión se financia con deuda. Su cálculo se realiza según se expresa en la ecuación 39.
-PMEt = Prima de riesgo de mercado para el ajuste tarifario “t”. El coeficiente de prima por riesgo de mercado o rendimiento esperado del mercado se define como la diferencia entre el rendimiento esperado sobre el portafolio de mercado y la tasa libre de riesgo.
-Dado que en Costa Rica el mercado de capitales no es un mercado profundo, para determinar esta prima de riesgo de mercado se utiliza una aproximación obtenida de la publicación que se realiza en el sitio web del profesor Aswath Damodaran denominada “Country Default Spreads and Risk Premiums”. Se debe utilizar el dato para Estados Unidos correspondiente al “Total Equity Risk Premium” que no incluya volatilidad adicional. Se calcula como el promedio simple de los datos de los 60 meses anteriores a la presentación de la solicitud de fijación tarifaria a la Aresep.
+βAt = Beta apalancada para el ajuste tarifario "t". Es el coeficiente de riesgo sistémico de la industria. Es la co-varianza de la rentabilidad de un activo determinado y la rentabilidad del mercado. Se denomina "apalancada" ya que se ha ajustado para considerar que parte de la inversión se financia con deuda. Su cálculo se realiza según se expresa en la ecuación 39.
+PMEt = Prima de riesgo de mercado para el ajuste tarifario "t". El coeficiente de prima por riesgo de mercado o rendimiento esperado del mercado se define como la diferencia entre el rendimiento esperado sobre el portafolio de mercado y la tasa libre de riesgo.
+Dado que en Costa Rica el mercado de capitales no es un mercado profundo, para determinar esta prima de riesgo de mercado se utiliza una aproximación obtenida de la publicación que se realiza en el sitio web del profesor Aswath Damodaran denominada "Country Default Spreads and Risk Premiums". Se debe utilizar el dato para Estados Unidos correspondiente al "Total Equity Risk Premium" que no incluya volatilidad adicional. Se calcula como el promedio simple de los datos de los 60 meses anteriores a la presentación de la solicitud de fijación tarifaria a la Aresep.
 t = Subíndice que representa cada fijación tarifaria.
 5.5.4. Beta apalancado (BAt)
 El beta apalancado se refiere a un coeficiente, que se obtiene de ajustar el beta desapalancado a la parte de la inversión que se financia con deuda y se obtiene de la siguiente fórmula:
-[imagen]
 Donde:
-βAt = Beta apalancada para el ajuste tarifario “t”. Es el coeficiente de riesgo sistémico de la industria. Es la co-varianza de la rentabilidad de un activo determinado y la rentabilidad del mercado. Se denomina “apalancada” ya que se ha ajustado para considerar que parte de la inversión se financia con deuda.
-βDt = Beta desapalancada para el ajuste tarifario “t”. El coeficiente que refleja el riesgo sistémico de la industria o Beta. Es la co-varianza de la rentabilidad de un activo determinado y la rentabilidad del mercado, usualmente se obtiene a través de un análisis de regresión partiendo de datos históricos de la relación entre los retornos de un conjunto de empresas de una industria específica y los retornos del mercado. Mide la volatilidad de los rendimientos de los activos financieros de un sector específico en el mercado accionario del país, en comparación con el resto del mercado.
-Dado que el mercado accionario en Costa Rica es poco profundo y que al ser Recope una empresa estatal no puede emitir acciones en la Bolsa de Valores y que además es un prestador de servicio público, se utiliza los datos del beta desapalancado “unlevered beta” del sector denominado “Utility (general)” y se calcula como el promedio simple de los datos de los 60 meses anteriores a la presentación de la solicitud de fijación tarifaria. Esta información se toma de la publicación que se realiza en el sitio web del profesor Aswath Damodaran. En caso de que el beta se publique de modo anual, se empleará la información de los últimos 5 datos más recientes, al momento del cálculo del promedio.
-TIt = Tasa impositiva para el ajuste tarifario “t”. Será determinada, según lo indicado en el acuerdo 15-149-99 de la Junta Directiva de la Autoridad Reguladora (acta de sesión 149-99 del 19 de agosto de 1999) o lo que en su momento disponga la Junta Directiva de la Aresep.
-VDt = Valor de la deuda excluidos los aportes realizados al proceso de refinación para el ajuste tarifario “t”. Se considera únicamente las obligaciones con costo financiero excluidas las adquiridas para financiar la actividad de refinación. Se utiliza el dato consignado en los estados financieros, o el dato de la Contabilidad Regulatoria e información complementaria a esta, que la Aresep establezca. Los estados financieros corresponderán a los 12 meses anteriores a la presentación del estudio tarifario, siempre que los datos no excedan de 4 meses de antigüedad.
-VCPt = Valor del capital correspondiente a recursos propios o patrimonio excluidos los aportes realizados al proceso de refinación para el ajuste tarifario “t”. Se utiliza el dato consignado en los estados financieros, o el dato de la Contabilidad Regulatoria e información complementaria a esta, que la Aresep establezca. Los estados financieros corresponderán a los 12 meses anteriores a la presentación del estudio tarifario, siempre que los datos no excedan de 4 meses de antigüedad.
+βAt = Beta apalancada para el ajuste tarifario "t". Es el coeficiente de riesgo sistémico de la industria. Es la co-varianza de la rentabilidad de un activo determinado y la rentabilidad del mercado. Se denomina "apalancada" ya que se ha ajustado para considerar que parte de la inversión se financia con deuda.
+βDt = Beta desapalancada para el ajuste tarifario "t". El coeficiente que refleja el riesgo sistémico de la industria o Beta. Es la co-varianza de la rentabilidad de un activo determinado y la rentabilidad del mercado, usualmente se obtiene a través de un análisis de regresión partiendo de datos históricos de la relación entre los retornos de un conjunto de empresas de una industria específica y los retornos del mercado. Mide la volatilidad de los rendimientos de los activos financieros de un sector específico en el mercado accionario del país, en comparación con el resto del mercado.
+Dado que el mercado accionario en Costa Rica es poco profundo y que al ser Recope una empresa estatal no puede emitir acciones en la Bolsa de Valores y que además es un prestador de servicio público, se utiliza los datos del beta desapalancado "unlevered beta" del sector denominado "Utility (general)" y se calcula como el promedio simple de los datos de los 60 meses anteriores a la presentación de la solicitud de fijación tarifaria. Esta información se toma de la publicación que se realiza en el sitio web del profesor Aswath Damodaran. En caso de que el beta se publique de modo anual, se empleará la información de los últimos 5 datos más recientes, al momento del cálculo del promedio.
+TIt = Tasa impositiva para el ajuste tarifario "t". Será determinada, según lo indicado en el acuerdo 15-149-99 de la Junta Directiva de la Autoridad Reguladora (acta de sesión 149-99 del 19 de agosto de 1999) o lo que en su momento disponga la Junta Directiva de la Aresep.
+VDt = Valor de la deuda excluidos los aportes realizados al proceso de refinación para el ajuste tarifario "t". Se considera únicamente las obligaciones con costo financiero excluidas las adquiridas para financiar la actividad de refinación. Se utiliza el dato consignado en los estados financieros, o el dato de la Contabilidad Regulatoria e información complementaria a esta, que la Aresep establezca. Los estados financieros corresponderán a los 12 meses anteriores a la presentación del estudio tarifario, siempre que los datos no excedan de 4 meses de antigüedad.
+VCPt = Valor del capital correspondiente a recursos propios o patrimonio excluidos los aportes realizados al proceso de refinación para el ajuste tarifario "t". Se utiliza el dato consignado en los estados financieros, o el dato de la Contabilidad Regulatoria e información complementaria a esta, que la Aresep establezca. Los estados financieros corresponderán a los 12 meses anteriores a la presentación del estudio tarifario, siempre que los datos no excedan de 4 meses de antigüedad.
 t = Subíndice que representa cada fijación tarifaria.
 Una vez obtenido el costo de capital propio en dólares se debe realizar la equivalencia a colones como se muestra en la siguiente ecuación:
-[imagen]
 Donde:
-KEt = Costo de capital propio para el ajuste tarifario “t”.
-KE$t = Costo de capital propio, en dólares para el ajuste tarifario “t” (ver ecuación 38).
-EDt = Tasa de la variación esperada (expectativa de mercado) del colón respecto al dólar para el ajuste tarifario “t”. Se utiliza la información de las "Expectativas de mercado sobre variación cambiaria a 12 meses”, publicada por el BCCR, o publicación que le sustituya. Se calcula como un promedio simple de los datos de los 12 meses que se consideren en los estados financieros que se incorporan en la solicitud tarifaria a la Aresep.
+KEt = Costo de capital propio para el ajuste tarifario "t".
+KE$t = Costo de capital propio, en dólares para el ajuste tarifario "t" (ver ecuación 38).
+EDt = Tasa de la variación esperada (expectativa de mercado) del colón respecto al dólar para el ajuste tarifario "t". Se utiliza la información de las "Expectativas de mercado sobre variación cambiaria a 12 meses", publicada por el BCCR, o publicación que le sustituya. Se calcula como un promedio simple de los datos de los 12 meses que se consideren en los estados financieros que se incorporan en la solicitud tarifaria a la Aresep.
 t = Subíndice que representa cada fijación tarifaria.
 5.6. Activo fijo neto en operación
 El activo fijo neto de operación al costo revaluado por tipo de combustible "i", será el dato consignado en los estados financieros y sus respectivos auxiliares de los 12 meses anteriores a la presentación de la fijación tarifaria, siempre y cuando no tengan más de cuatro meses de antigüedad, el cual se calcula como el activo fijo neto que efectivamente se encuentre en operación y se utilice en el proceso productivo asociado con el servicio regulado. Según esta definición, no se considerarán activos que hayan sido retirados, estén deteriorados, no correspondan al giro del servicio regulado o se hayan contratado mediante la modalidad de arrendamiento.
@@ -1144,13 +1129,12 @@ A continuación, se detallan algunos de los criterios generales a emplear para l
 · Además, se deben aportar los respectivos auxiliares de activos.
 ·Los activos deben responder a dos criterios: útiles para la prestación del servicio y que efectivamente se utilicen en la misma (utilizable).
 A continuación, se plantea la ecuación para definir el activo fijo neto en operación:
-[imagen]
 Donde:
-AFNORi,t = Activo fijo neto de operación al costo revaluado del combustible “i” para el ajuste tarifario “t”.
-AFNi,(p−1) = Activo fijo neto en colones que efectivamente se encuentre capitalizado, en operación y se utilice en el proceso productivo asociado con el servicio regulado en el periodo base para el combustible “i”.
-ADi,t = Adiciones a reconocer del combustible “i” para el periodo “t” (ver el apartado “Determinación de las adiciones” de la sección FIJACIONES ORDINARIAS”).
-REi,t = Retiros de activos obsoletos en el ajuste tarifario “t” para el combustible “i”, deteriorados o trasladados a la prestación de otros servicios no incluidos en el (MOi,t) (ver el apartado “Retiros de activos” de la sección “FIJACIONES ORDINARIAS”).
-DPAi,t Depreciación acumulada de los activos productivos hasta el ajuste tarifario “t”, para el combustible “i”.
+AFNORi,t = Activo fijo neto de operación al costo revaluado del combustible "i" para el ajuste tarifario "t".
+AFNi,(p−1) = Activo fijo neto en colones que efectivamente se encuentre capitalizado, en operación y se utilice en el proceso productivo asociado con el servicio regulado en el periodo base para el combustible "i".
+ADi,t = Adiciones a reconocer del combustible "i" para el periodo "t" (ver el apartado "Determinación de las adiciones" de la sección FIJACIONES ORDINARIAS").
+REi,t = Retiros de activos obsoletos en el ajuste tarifario "t" para el combustible "i", deteriorados o trasladados a la prestación de otros servicios no incluidos en el (MOi,t) (ver el apartado "Retiros de activos" de la sección "FIJACIONES ORDINARIAS").
+DPAi,t Depreciación acumulada de los activos productivos hasta el ajuste tarifario "t", para el combustible "i".
 i = Tipos de combustibles.
 t = Subíndice que representa cada fijación tarifaria.
 p-1 = Subíndice que representa el periodo base. Cada periodo base corresponde a 12 meses.
@@ -1158,9 +1142,9 @@ p-1 = Subíndice que representa el periodo base. Cada periodo base corresponde a
 Para determinar el valor de las adiciones a reconocer en cada periodo de cálculo tarifario se seguirá el siguiente procedimiento:
 [imagen]
 Donde:
-ADi,t = Adiciones a reconocer del combustible “i” para el ajuste tarifario “t”.
-ADIi,t = Adiciones inspeccionadas por Aresep, del combustible “i” para el ajuste tarifario “t” (ver el apartado “Visitas de campo e inspecciones de proyectos” de la sección “FIJACIONES ORDINARIAS”).
-ADPEi,t = Adiciones ajustadas por el porcentaje de ejecución a reconocer del combustible “i” para el ajuste tarifario “t” (ver el apartado “Ajuste por porcentaje de ejecución” de la sección “FIJACIONES ORDINARIAS”).
+ADi,t = Adiciones a reconocer del combustible "i" para el ajuste tarifario "t".
+ADIi,t = Adiciones inspeccionadas por Aresep, del combustible "i" para el ajuste tarifario "t" (ver el apartado "Visitas de campo e inspecciones de proyectos" de la sección "FIJACIONES ORDINARIAS").
+ADPEi,t = Adiciones ajustadas por el porcentaje de ejecución a reconocer del combustible "i" para el ajuste tarifario "t" (ver el apartado "Ajuste por porcentaje de ejecución" de la sección "FIJACIONES ORDINARIAS").
 i = Tipos de combustibles.
 t = Subíndice que representa cada fijación tarifaria.
 Solo se incorporarán como adiciones o nuevas inversiones, aquellos proyectos que estén debidamente justificados. Para esto RECOPE deberá aportar la información que garantice que las inversiones cumplen con el principio de servicio al costo establecido en el art. 3.b de la Ley 7593 y que no se trata de alguna de las excepciones contempladas en el artículo 32 de esa misma Ley.
@@ -1176,11 +1160,10 @@ Estas visitas de campo tienen el fin de verificar los montos, los porcentajes de
 A partir de la información contenida en los reportes de la empresa, y lo constatado en las visitas realizadas, se desarrollará un informe en el que se determine el monto y la fecha de capitalización estimados de las adiciones que serán reconocidas tarifariamente. Para aquellos proyectos para los cuales los resultados de la visita de campo evidencien diferencias con la información presentada por la empresa, se hará un ajuste sobre el monto a capitalizar y fecha de capitalización a criterio de Aresep.
 5.6.3. Ajuste por porcentaje de ejecución:
 En aquellos proyectos que se presentan como adiciones a reconocer a nivel tarifario, y los cuáles no fueron sujetos a visitas de campo establecidas en el punto anterior (Visitas de campo e inspecciones de proyectos (ADIi,t)), las adiciones se reconocerán de la siguiente manera:
-[imagen]
 Donde:
-ADPEi,t = Adiciones ajustadas por el porcentaje de ejecución a reconocer del combustible “i” para el ajuste tarifario “t”.
-ADDi,t = Adiciones valoradas por Aresep y no inspeccionadas, unavez realizada la deducción de los montos sin justificacióntécnica razonable, del combustible “i” para el ajuste tarifario“t”.
-EJEi,t = Porcentaje de ejecución promedio a reconocer del combustible “i”, para el ajuste tarifario “t”, de los últimos 5 periodos base. (ver ecuación 44).
+ADPEi,t = Adiciones ajustadas por el porcentaje de ejecución a reconocer del combustible "i" para el ajuste tarifario "t".
+ADDi,t = Adiciones valoradas por Aresep y no inspeccionadas, unavez realizada la deducción de los montos sin justificacióntécnica razonable, del combustible "i" para el ajuste tarifario"t".
+EJEi,t = Porcentaje de ejecución promedio a reconocer del combustible "i", para el ajuste tarifario "t", de los últimos 5 periodos base. (ver ecuación 44).
 i = Tipos de combustibles.
 t = Subíndice que representa cada fijación tarifaria.
 Para la determinación de este porcentaje se debe de considerar:
@@ -1191,11 +1174,10 @@ d) El porcentaje de ejecución total de cada periodo base considerado tiene un t
 e) El promedio a utilizar es un promedio simple de los porcentajes de ejecución de esos últimos cinco periodos base considerando lo indicado en los puntos precedentes.
 f) El valor del porcentaje promedio de los cinco periodos base anteriores es el porcentaje de ejecución a utilizar. Éste se aplica a los montos asociados a la cantidad de obras o de equipos reconocidos, y no inspeccionados, previa deducción de los montos de adiciones que no cuenten con una justificación técnica razonable.
 La ecuación de cálculo es la siguiente:
-[imagen]
 Donde:
-EJEi,t = Porcentaje de ejecución promedio a reconocer del combustible “i”, para el ajuste tarifario “t”, de los últimos 5 periodos base.
-ADRi,z = Adiciones reales totales desarrolladas por la empresa regulada para el combustible “i”, en el periodo base “z”.
-ADEi,z = Adiciones reconocidas totales en tarifa a la empresa regulada para el combustible “i”, en el periodo base “z”.
+EJEi,t = Porcentaje de ejecución promedio a reconocer del combustible "i", para el ajuste tarifario "t", de los últimos 5 periodos base.
+ADRi,z = Adiciones reales totales desarrolladas por la empresa regulada para el combustible "i", en el periodo base "z".
+ADEi,z = Adiciones reconocidas totales en tarifa a la empresa regulada para el combustible "i", en el periodo base "z".
 t = Subíndice que representa cada fijación tarifaria.
 p-1= Subíndice que representa el periodo base. Cada periodo base corresponde a 12 meses.
 p-5= Subíndice que representa el quinto periodo base.
@@ -1212,19 +1194,18 @@ Cuando la empresa no presente la información sobre los retiros de activos con l
 El capital de trabajo se obtiene mediante la siguiente ecuación
 [imagen]
 Donde:
-CTi,t = Capital de trabajo para el combustible “i”, en el ajuste tarifario “t”.
-VTPi,t = Ventas diarias promedio, en litros para el combustible “i” en los 12 meses anteriores a la presentación del estudio tarifario, siempre que los datos no excedan de 4 meses de antigüedad. Calculadas como una media aritmética simple de las ventas diarias, usando como denominador los días efectivos de ventas reales.
-PPAi,t = Valor promedio del inventario final, expresado en colones por litro, para el combustible “i”. Calculado como la media aritmética simple de los valores del inventario final mensual en colones, dividido entre la media aritmética simple de los saldos de inventario final mensual en litros, reportados en los estados financieros de Recope, para los 12 meses anteriores a la presentación del estudio tarifario, siempre que los datos no excedan de 4 meses de antigüedad.
+CTi,t = Capital de trabajo para el combustible "i", en el ajuste tarifario "t".
+VTPi,t = Ventas diarias promedio, en litros para el combustible "i" en los 12 meses anteriores a la presentación del estudio tarifario, siempre que los datos no excedan de 4 meses de antigüedad. Calculadas como una media aritmética simple de las ventas diarias, usando como denominador los días efectivos de ventas reales.
+PPAi,t = Valor promedio del inventario final, expresado en colones por litro, para el combustible "i". Calculado como la media aritmética simple de los valores del inventario final mensual en colones, dividido entre la media aritmética simple de los saldos de inventario final mensual en litros, reportados en los estados financieros de Recope, para los 12 meses anteriores a la presentación del estudio tarifario, siempre que los datos no excedan de 4 meses de antigüedad.
 DIPi,t = Días de inventario promedio real en los 12 meses anteriores a la presentación del estudio tarifario, siempre que los datos no excedan de 4 meses de antigüedad.
 t = Subíndice que representa cada fijación tarifaria.
 i = Tipos de combustibles.
 Los días de inventario promedio real del periodo previo, se obtienen al aplicar la siguiente fórmula:
-[imagen]
 Donde:
 DIPi,t = Días de inventario promedio real en los 12 meses anteriores a la presentación del estudio tarifario, siempre que los datos no excedan de 4 meses de antigüedad.
 DVi,t = Días efectivos de venta al año, durante los que se expenden combustibles en los planteles de Recope en los 12 meses anteriores a la presentación del estudio tarifario, siempre que los datos no excedan de 4 meses de antigüedad.
-VTRPi,t = Ventas totales reales en colones para el combustible “i”, en los 12 meses anteriores a la presentación del estudio tarifario, siempre que los datos no excedan de 4 meses de antigüedad.
-INCi,t = Promedio del Inventario final neto al costo, del combustible “i” que se muestra en el Anexo 3 A de los EEFF (o su equivalente) de los últimos 12 meses anteriores a la presentación del estudio tarifario, siempre que los datos no excedan de 4 meses de antigüedad.
+VTRPi,t = Ventas totales reales en colones para el combustible "i", en los 12 meses anteriores a la presentación del estudio tarifario, siempre que los datos no excedan de 4 meses de antigüedad.
+INCi,t = Promedio del Inventario final neto al costo, del combustible "i" que se muestra en el Anexo 3 A de los EEFF (o su equivalente) de los últimos 12 meses anteriores a la presentación del estudio tarifario, siempre que los datos no excedan de 4 meses de antigüedad.
 i = Tipos de combustibles.
 t = Subíndice que representa cada fijación tarifaria.
 5.8. Rendimiento sobre la base tarifaria máximo a reconocer
@@ -1254,12 +1235,11 @@ En caso de que no exista un estudio de fiscalización, órdenes judiciales que d
 ordinaria, se asumirá que el valor de esta será igual a cero, es decir: ALOi,t = 0.
 Para efectos de la presente metodología el periodo a liquidar definido anteriormente se representa mediante el subíndice "a", para lo que corresponda.
 El ajuste por liquidación ordinaria se calcula de la siguiente forma:
-[imagen]
 Donde:
-ALOi,t = Ajuste por liquidación ordinaria del combustible “i”, en el ajuste tarifario “t”.
-LRSBTi,a,t = Ajuste por liquidación de variables asociadas al rendimiento sobre base tarifaria u otras gestiones especiales que la IE desarrolle de conformidad con el “Manual de seguimiento y fiscalización” y tengan un impacto tarifario del combustible “i”, correspondiente al periodo “a”, en el ajuste tarifario “t”.
-LAEi,t = Ajuste por liquidación de órdenes judiciales que dispongan un reconocimiento tarifario directo; y/o resoluciones o disposiciones administrativas vinculantes, cuya ejecución tendrán un impacto tarifario directo en el combustible “i”, en el ajuste tarifario “t”.
-VAEi,t = Ventas totales estimadas en litros del combustible “i” para el ajuste tarifario “t”. Si para algún “i” VAEi,t= 0; ALOi,t = 0.
+ALOi,t = Ajuste por liquidación ordinaria del combustible "i", en el ajuste tarifario "t".
+LRSBTi,a,t = Ajuste por liquidación de variables asociadas al rendimiento sobre base tarifaria u otras gestiones especiales que la IE desarrolle de conformidad con el "Manual de seguimiento y fiscalización" y tengan un impacto tarifario del combustible "i", correspondiente al periodo "a", en el ajuste tarifario "t".
+LAEi,t = Ajuste por liquidación de órdenes judiciales que dispongan un reconocimiento tarifario directo; y/o resoluciones o disposiciones administrativas vinculantes, cuya ejecución tendrán un impacto tarifario directo en el combustible "i", en el ajuste tarifario "t".
+VAEi,t = Ventas totales estimadas en litros del combustible "i" para el ajuste tarifario "t". Si para algún "i" VAEi,t= 0; ALOi,t = 0.
 a = Subíndice empleado para hacer referencia al periodo a liquidar, que corresponde al periodo fiscal anterior en que se está solicitando la liquidación.
 i = Tipos de combustibles.
 t = Subíndice que representa cada fijación tarifaria.
@@ -1284,8 +1264,8 @@ De igual manera, en caso de que producto de algún ajuste en la estructura organ
 Lo mismo aplicará en caso de que haya cambios en los nombres de las
 dependencias, de modo que, en los estudios tarifarios correspondientes, se remita la información actualizada con la nueva estructura organizacional y la homologación respectiva con la justificación de los criterios de equiparación de costos.
 8. DEROGATORIA
-Derogar la resolución RJD-230-2015, publicada en La Gaceta N.° 211 del 30 de octubre de 2015, mediante la cual la Junta Directiva de la Aresep aprobó la “Metodología tarifaria ordinaria y extraordinaria para fijar el precio de los
-combustibles derivados de los hidrocarburos en planteles de distribución y al consumidor final” y su modificación, contenida en la resolución RJD-070-2016 publicada en el Alcance N° 70 de la Gaceta Nº 86 del 5 de mayo de 2016.
+Derogar la resolución RJD-230-2015, publicada en La Gaceta N.° 211 del 30 de octubre de 2015, mediante la cual la Junta Directiva de la Aresep aprobó la "Metodología tarifaria ordinaria y extraordinaria para fijar el precio de los
+combustibles derivados de los hidrocarburos en planteles de distribución y al consumidor final" y su modificación, contenida en la resolución RJD-070-2016 publicada en el Alcance N° 70 de la Gaceta Nº 86 del 5 de mayo de 2016.
 Es importante indicar que esta derogatoria, aplicará hasta el momento en que se dé la transición entre metodologías, según lo establecido en el transitorio correspondiente.
 9. PRIMERA APLICACIÓN Y TRANSITORIOS
 A continuación, se detallan los procedimientos para la aplicación por primera vez de la presente metodología y el mecanismo de transición:
@@ -1293,14 +1273,14 @@ A continuación, se detallan los procedimientos para la aplicación por primera 
 Una vez publicada la presente metodología en el diario Oficial La Gaceta, se establece un periodo máximo de hasta 30 días naturales para que se active de oficio la primera fijación de carácter ordinario para modificar las variables que correspondan.
 Las fijaciones extraordinarias que se gestionen a partir de la publicación de la presente metodología y hasta la resolución del primer ordinario, se resolverán de conformidad con lo establecido en las resoluciones RJD-230-2015 y RJD-070 2016, con excepción del cálculo por diferencial de precios (ver punto 4 de este apartado), posteriormente se aplicará lo acá dispuesto.
 9.2. Determinación del margen de operación de Recope y subsidios
-Para cumplir con lo indicado en el transitorio “Transición entre metodologías” se desarrollará un estudio ordinario de oficio para:
-a) La depuración del margen de operación vigente (calculado de conformidad con las resoluciones RJD-230-2015 y RJD-070-2016). La Aresep deberá identificar el monto en colones por litro reconocido para cada combustible “i”, por concepto de flete de transporte internacional, seguro de transporte internacional, costo portuario y el margen de comercialización del proveedor (trader) y excluirlo del margen de operación (MOi,t). Los demás costos incorporados en el margen de operación vigente se mantendrán invariables, hasta tanto no se resuelva el segundo estudio ordinario de margen de operación bajo esta propuesta.
-b) La variable factor de eficiencia esperado por la disminución de costos “EFIt” podría ser cero.
+Para cumplir con lo indicado en el transitorio "Transición entre metodologías" se desarrollará un estudio ordinario de oficio para:
+a) La depuración del margen de operación vigente (calculado de conformidad con las resoluciones RJD-230-2015 y RJD-070-2016). La Aresep deberá identificar el monto en colones por litro reconocido para cada combustible "i", por concepto de flete de transporte internacional, seguro de transporte internacional, costo portuario y el margen de comercialización del proveedor (trader) y excluirlo del margen de operación (MOi,t). Los demás costos incorporados en el margen de operación vigente se mantendrán invariables, hasta tanto no se resuelva el segundo estudio ordinario de margen de operación bajo esta propuesta.
+b) La variable factor de eficiencia esperado por la disminución de costos "EFIt" podría ser cero.
 c) Cálculo del COAi,t, exclusivamente para la primera aplicación ordinaria de la nueva metodología, a pesar de ser una variable de ajuste extraordinario, la Aresep calculará el costo de adquisición (COAi,t) de los productos a fin de que queden incorporados al costo de compra, que incluye: precio del producto (primas o descuentos incorporados), flete de transporte internacional, seguro de transporte internacional, el margen de comercialización del proveedor (trader) y costo portuario, de conformidad con los registros de compra disponibles.
 d) El cálculo de los subsidios se ajustará en lo que corresponda considerando la normativa vigente, la cual es la Política Sectorial vigente para los precios de gas licuado de petróleo, búnker, asfalto y emulsión asfáltica establecida mediante Decreto Ejecutivo N° 39437 publicado en el Alcance N°4 a La Gaceta N°8 del 13 de enero de 2016 y su reforma, Decreto Ejecutivo 42352- MINAE, del 20 de mayo de 2020, publicado en el Alcance N.°122 a La Gaceta N.°118 del 22 de mayo de 2020, y el Subsidio a la flota pesquera nacional no deportiva (Subsidio a Pescadores), establecida por el Poder Ejecutivo mediante la Ley N° 7384 (Creación del Instituto Costarricense de Pesca y Agricultura y sus reformas y la Ley 9134 Interpretación auténtica del Artículo 45 de la Ley 7384 o bien la que la sustituya al momento de la aplicación de la metodología.
 e) También se modificará en ese estudio la banda de precios para productos que se distribuyen en puertos y aeropuertos, según corresponda.
 f) Se eliminará el cargo por otros ingresos prorrateados.
-g) Se reitera que para la variable diferencial de precios se aplicará lo establecido en el transitorio “Cálculo del diferencial de precios y liquidación extraordinaria”.
+g) Se reitera que para la variable diferencial de precios se aplicará lo establecido en el transitorio "Cálculo del diferencial de precios y liquidación extraordinaria".
 9.3. Productos que no posean información en el reporte de compras de Recope
 Para los productos que, al momento de la primera fijación ordinaria, bajo esta nueva metodología, no posean información en el reporte de compras de Recope para el cálculo de la variable (COAi,t,) se procederá a mantener el precio de referencia calculado en el último estudio desarrollado bajo la metodología establecida en las resoluciones RJD-230-2015 y RJD-070-2016, más los montos de los conceptos de flete de transporte internacional, seguro de transporte internacional, y el margen de comercialización del proveedor (trader) y el costo portuario, que fueron excluidos del margen de operación (MOi,t), dicho valor se mantendrá hasta tanto no se cuente con información suficiente en el reporte de compra de Recope, para la determinación del (COAi,t).
 9.4. Cálculo del diferencial de precios y liquidación extraordinaria
@@ -1314,7 +1294,31 @@ De este modo, el resultado obtenido en la metodología específica será el que 
 La conversión de la unidad del margen de litros a kilogramos en la cadena de envasado, distribución y comercialización del GLP se aplicará para el segmento de cilindros. El precio final de tanque por litro y de estación de servicio, se mantendrá en litros, hasta tanto no se modifique las metodologías y los instrumentos regulatorios que fijen los márgenes respectivos y los requerimientos técnicos aplicables.
 En caso de que se determinen nuevos márgenes en la cadena, deberá contarse con un estudio técnico que justifique la unidad de venta idónea aplicable.
 Una vez que se hayan realizado los ajustes en dichas metodologías para homologar la unidad de medida a masa, ya no será necesario el uso de la ecuación 3 para realizar la conversión.
+(*)9.7. Cálculo de la liquidación extraordinaria para la variable diferencial de precios
+En el siguiente cálculo de la liquidación extraordinaria, la variable 𝐿𝐴𝐿𝑖,𝑡 que se obtiene mediante la Ecuación 22, se debe aplicar por una única vez en los siguientes términos:
+[imagen]
+Donde:
+𝐿𝐴𝐿𝑖,𝑡 = Ajuste por liquidación de las variables del diferencial de precios anterior(es) y ajuste por liquidación extraordinaria anterior(es), del combustible "i", para el ajuste tarifario "t".
+𝑉𝑇𝑅𝑖,𝑛𝑚 = Ventas totales reales en litros, para el combustible "i", en el mes "nm" a liquidar, según corresponda.
+𝑉𝑇𝐸𝑆𝑖,𝑛𝑚 = Ventas totales estimadas en litros, del combustible "i" en el mes "nm" a liquidar, obtenido de los estudios de diferencial y liquidación extraordinaria en el que se estimó dicho mes. Es decir, este dato se debe tomar del estudio en el que se estimó el diferencial de precios y liquidación extraordinaria, y en el cual, dentro del periodo proyectado, se realizó la estimación para el mes "nm", según corresponda.
+𝑉𝑇𝑅𝑖,𝑛 = Ventas totales reales en litros, para el combustible "i", en el mes "n" a liquidar, según corresponda.
+𝑉𝑇𝐸𝑆𝑖,𝑛 = Ventas totales estimadas en litros, del combustible "i" en el mes "n" a liquidar, obtenido del estudio de diferencial y liquidación extraordinaria en el que se estimó dicho mes. Es decir, este dato se debe tomar del estudio en el que se estimó el diferencial de precios y liquidación extraordinaria, y en el cual, dentro del semestre proyectado, se realizó la estimación para el mes "n", según corresponda.
+𝐷𝐴𝑇𝑖,𝑛𝑚 | = | Promedio ponderado mensual del ajuste por el diferencial de precio del combustible "i", en el mes "nm" a liquidar, resultante a partir de la utilización de la modificación de la ecuación 14, sustituyendo el valor recalculado según corresponda. Se deberá calcular el dato promedio aplicando la sección "Procedimiento para la determinación del promedio mensual ponderado en función de la cantidad vendida". Incorporando el resultado de la ecuación 24, según corresponda.
+𝐷𝐴𝑖,𝑛𝑚 | = | Promedio ponderado mensual del ajuste por el diferencial de precio del combustible "i", en el mes "nm" a liquidar, según corresponda. Se deberá calcular el dato promedio aplicando la sección "Procedimiento para la determinación del promedio mensual ponderado en función de la cantidad vendida". Incorporando el resultado de la ecuación 24, según corresponda.
+𝐴𝐿𝐸𝑖,𝑛 | = | Promedio ponderado mensual del ajuste por liquidación extraordinaria del combustible "i" en el mes "n" a liquidar, según corresponda. Se deberá calcular el dato promedio aplicando la sección "Procedimiento para la determinación del promedio mensual ponderado en función de la cantidad vendida". Incorporando el resultado de la ecuación 24, según corresponda.
+t | = | Subíndice que representa cada fijación tarifaria.
+i | = | Tipos de combustibles.
+nm | = | Subíndice que representa cada mes a liquidar en el periodo, según corresponda.
+pl | = | Subíndice que indica el primer mes a liquidar, según corresponda.
+pu | = | Subíndice que indica el último mes a liquidar, según corresponda.
+n | = | Subíndice que representa cada mes a liquidar en el periodo que va desde el 1° de agosto al 31 de enero o del 1° de febrero al 31 de julio, según corresponda.
+pb | = | Subíndice que indica el primer mes a liquidar (febrero o agosto), según corresponda.
+cb | = | Subíndice que indica el último mes a liquidar (enero o julio) según corresponda.
+El subíndice "nm", deberá incluir todos los meses que fueron calculados dentro del diferencial de precios y liquidación extraordinaria, desde de entrada en vigor de la RE-0024-JD-2022 y hasta la presente aplicación de la modificación de la ecuación 14 de la citada resolución.
+En el cálculo de los promedios ponderados establecidos en la ecuación 24, se deberá utilizar los periodos del mes que correspondan según lo establecido en el subíndice "nm" o "n" indicados en la ecuación 22.a.
+En caso de que el periodo establecido por medio del subíndice "nm" contemple más de un semestre, se debe revisar que no se realice ningún reconocimiento por diferencias entre ventas estimadas y reales que hayan sido previamente incorporados en tarifas, para lo cual, se deberán realizar los cálculos necesarios para ajustar el valor de 𝑉𝑇𝐸𝑆𝑖,𝑛𝑚 ? 𝐷𝐴𝑇𝑖,𝑛𝑚 a fin de evitar un doble impacto tarifario y garantizar que la modificación genere solo los recursos tarifarios estrictamente necesarios para cubrir los diferenciales de precios señalados.
+(*) (Así adicionado el punto 9.7) anterior mediante resolución N° RE-0025-JD-2023 del 21 de febrero de 2023)
 10. VIGENCIA DE LAS RESOLUCIONES
-Las variaciones de precio de los combustibles regirán a partir del día siguiente al de la publicación en el Diario Oficial La Gaceta o según se establezca en cada resolución tarifaria, de conformidad con lo establecido en el artículo 34 de la Ley N°. 7593.
-(…)
+Rige a partir del día siguiente de su publicación en La Gaceta.
+(Así reformado el párrafo anterior mediante resolución N° RE-0025-JD-2023 del 21 de febrero de 2023)
 11. ANEXOS

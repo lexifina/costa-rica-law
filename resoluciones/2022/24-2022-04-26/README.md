@@ -14,3 +14,4 @@ Metodología tarifaria ordinaria y extraordinaria para fijar el precio de los co
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-05-05 | la propia norma |
+| 2 | 2023-02-21 | Resolución 25 (2023-02-21) |
