@@ -1,0 +1,1 @@
+Articulo 15.-Uso de telecentros y otros lugares destinados para el teletrabajo. La persona funcionaria teletrabajadora indiferentemente de la clase de teletrabajo que le haya sido autorizado, puede hacer uso de telecentros disponibles para realizar sus funciones en forma transitoria y debe acatar las normas de uso que se establezcan para dichos lugares de trabajo.

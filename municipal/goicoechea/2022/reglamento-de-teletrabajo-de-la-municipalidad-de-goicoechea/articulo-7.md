@@ -1,0 +1,5 @@
+CAPÍTULO III
+Procedimiento para la implementación del teletrabajo
+Artículo 7º-Funciones del Departamento de Recursos Humanos. Corresponde al Departamento de Recursos Humanos, en coordinación debida con las Direcciones y la Alcaldía Municipal, preparar los perfiles de las funciones o las actividades que pueden realizarse en la modalidad de teletrabajo.
+También, debe definir el perfil general relacionado con las competencias y las habilidades que deben ser valoradas por parte de la Comisión de Teletrabajo, para los casos de las personas que deseen optar por esta modalidad de prestación de servicios. Asimismo, el Departamento de Recursos Humanos debe poseer debidamente resguardado, conforme las normas de archivo vigentes en la Municipalidad, la información sobre las personas que se acojan, parcial o totalmente, a la modalidad del teletrabajo.
+Las herramientas técnicas para el registro de las acciones teletrabajables, podrán ser modificadas según criterio y necesidades de la administración previa notificación del Departamento de Recursos Humanos a todas las personas que se encuentren bajo esta modalidad.

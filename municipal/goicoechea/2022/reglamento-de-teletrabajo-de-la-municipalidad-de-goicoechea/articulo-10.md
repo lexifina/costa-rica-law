@@ -1,0 +1,3 @@
+CAPÍTULO IV
+Comisión de Teletrabajo Institucional (CTTI)
+Artículo 10.-Comisión de Teletrabajo Institucional (CTTI). La Administración Municipal conformará una Comisión de Teletrabajo integrada por las personas titulares de la Dirección Administrativa Financiera, Dirección de Desarrollo Humano, Dirección Jurídica y Departamento Recursos Humanos, con la asesoría en lo pertinente de la Jefatura del Departamento de Informática, para orientar la modalidad del teletrabajo que se desarrolle en la Municipalidad. Esta comisión sesionará ordinariamente cuando menos una vez por mes y extraordinariamente cuando lo requiera la Alcaldía.

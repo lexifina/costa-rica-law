@@ -1,0 +1,1 @@
+Artículo 2º-Ámbito de aplicación. Es aplicable a las personas funcionarias de la Municipalidad que recaen labores que la Administración determinará como teletrabajables en el lugar donde existan las condiciones tecnológicas requeridas y bajo una relación laboral con la Municipalidad.

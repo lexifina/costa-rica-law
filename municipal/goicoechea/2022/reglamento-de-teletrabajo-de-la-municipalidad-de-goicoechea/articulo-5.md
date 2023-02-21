@@ -1,0 +1,8 @@
+Artículo 5º-Deberes de las personas funcionarias teletrabajadoras. Las personas funcionarias teletrabajadoras, deben:
+a) Cumplir con los criterios de medición, evaluación y control determinados en el contrato adenda, así como sujetarse a las políticas, demás disposiciones, respecto a temas de prestación de servicio, comportamiento, confidencialidad, manejo de la información y demás disposiciones aplicables.
+b) La persona funcionaria debe cumplir con el horario establecido, su jornada laboral y estar disponible para la persona empleadora durante dicho horario y jornada. El incumplimiento de la jornada u horario de trabajo, o bien, el no estar disponible para la persona empleadora durante dicho horario y jornada serán considerados como abandono de trabajo.
+c) Mantenerse localizable durante toda la jornada laboral destinada para el teletrabajo.
+d) Remitir la documentación exigida por la Administración Municipal para el reporte del tiempo extraordinario laborado en esta modalidad de trabajo.
+f) Retirar únicamente copias de los documentos, expedientes y oficios o similares que requieran trasladar a su lugar de teletrabajo. Lo anterior será aplicable únicamente a los documentos que no se encuentren en formato digital.
+g) Las personas que asumen cargos en los cuales por sus competencias tienen personal a cargo y que se encuentren bajo la modalidad de teletrabajo, deberán realizar coordinaciones de índole logística y administrativa garantizando el adecuado desempeño de la oficina a su cargo y el cumplimiento óptimo de sus responsabilidades vinculadas a los procesos de supervisión.
+h) Otras disposiciones de fiscalización que apruebe la Alcaldía Municipal por recomendación de la Comisión de Teletrabajo Institucional.
