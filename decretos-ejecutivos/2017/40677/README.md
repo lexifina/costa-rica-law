@@ -14,3 +14,4 @@ Declara estado de emergencia nacional la situación provocada por la tormenta tr
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-10-05 | la propia norma |
+| 2 | 2023-02-21 | Decreto Ejecutivo 43973 (2023-02-21) |

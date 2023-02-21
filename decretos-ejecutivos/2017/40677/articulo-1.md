@@ -1,4 +1,5 @@
 N° 40677-MP
+(Nota de Sinalevi: Mediante el artículo 1° del decreto ejecutivo N° 43973 del 21 de febrero del 2023, se acordó ampliar la vigencia del presente decreto ejecutivo, hasta el 02 de febrero del año 2024)
 EL PRESIDENTE DE LA REPÚBLICA
 Y EL MINISTRO DE LA PRESIDENCIA
 En ejercicio de las facultades que les confieren los artículos 140 incisos 3) 6) 16) y 18), 146 y 180 de la Constitución Política. los articulas 25 acápite l ), 27 acápite 1 ), 28 acápite 2) inciso b) y j) de la Ley General de la Administración Pública (Nº 6227), y artículo 29 de la Ley Nacional de Emergencias y Prevención del Riesgo (Nº8488).
