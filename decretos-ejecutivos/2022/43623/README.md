@@ -16,3 +16,4 @@ Reglamento para regular el proceso de transición entre la finalización del con
 | 1 | 2022-07-16 | la propia norma |
 | 2 | 2022-07-20 | Decreto Ejecutivo 43630 (2022-07-20) |
 | 3 | 2022-10-25 | Decreto Ejecutivo 43756 (2022-10-25) |
+| 4 | 2023-02-21 | Decreto Ejecutivo 43939 (2023-02-21) |
