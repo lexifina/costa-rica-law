@@ -1,2 +1,0 @@
-Artículo 15.—Resolución del Arreglo de Pago. El convenio de arreglo de pago se dará por concluido, únicamente, ante el pago total que realice el sujeto pasivo de la obligación vencida, o se dará por incumplido y exigible su saldo cuando se haya retrasado quince días hábiles en el cumplimiento de su obligación, en cuyo caso, vencido dicho plazo, se remitirá inmediatamente el expediente a etapa de cobro ejecutiva.
-(Así reformado en sesión N° 6 del 12 de marzo de 2019)

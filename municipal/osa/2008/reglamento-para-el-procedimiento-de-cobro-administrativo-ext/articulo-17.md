@@ -1,1 +1,0 @@
-Artículo 17.—Sobre la documentación relacionada con los arreglos de pago. Toda la documentación que haya sido requerida por la Oficina de Cobro para la suscripción del arreglo de pago, así como dicho documento, será agregada al expediente y debidamente foliada, para su conservación.

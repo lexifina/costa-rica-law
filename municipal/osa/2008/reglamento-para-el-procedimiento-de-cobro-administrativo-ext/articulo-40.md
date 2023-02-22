@@ -1,1 +1,0 @@
-Artículo 40.- (NOTA DE SINALEVI: en la publicación de este Reglamento no se consignó el artículo 40. No obstante, el sistema exige una numeración corrida, por lo que se ha creado dicho artículo pero sin texto reglamentario).
