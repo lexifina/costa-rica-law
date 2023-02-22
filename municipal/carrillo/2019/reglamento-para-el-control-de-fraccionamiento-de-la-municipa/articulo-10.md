@@ -1,8 +1,2 @@
-Artículo 10.—Para fraccionamientos simples de todo el cantón se autorizarán aquellas propuestas de segregación (fraccionamientos simples) frente a calle pública existente si cumplen con las siguientes condiciones urbanísticas:
-a) Que la calle pública que enfrenta esté representada en los mapas oficiales de la municipalidad o que lo demuestre mediante documento idóneo del Concejo Municipal o de la Unidad Técnica Vial. Y para más de 10 segregaciones de una misma finca frente a calle pública el fraccionador deberá hacer efectiva la ampliación vial.
-b) Que existan servicios indispensables según lo establecido en el artículo 7 de este reglamento y para más de 10 segregaciones de una misma finca frente a calle pública el solicitante deberán aportar la disponibilidad de los servicios de parte de los proveedores o medidas alternas que lo garanticen.
-c) Que el área mínima del lote cumpla con el mínimo de 140 metros cuadrados.
-d) Que el frente mínimo del lote cumpla con el mínimo de 6 metros lineales para lotes medianeros y de (6 y 8) metros para lotes esquineros.
-e) Que frente a servidumbres de paso cumplan con los artículos 11 u 12 según caso.
-f) Que frente a servidumbres agrícolas, pecuarias, forestales, ecológicas cumplan con el artículo 13 de este reglamento. g) Que en fraccionamiento en callejón de acceso cumpla con las condiciones del artículo 15 de este reglamento.
-h) Que la relación de proporción de distancias de fondo entre frente cumpla con la proporción fondo/frente < 7; donde la distancia del frente lo es al acceso inmediato (sea este una calle pública o una servidumbre de cualquier tipo) y la distancia del fondo se usará el largo mayor del rectángulo dentro del cual se circunscriba el polígono sujeto al análisis. En casos de planos con más de un frente podrán sumarse los frentes y mantener el fondo.
+Artículo 10.-Para fraccionamientos simples se aplicará lo contemplado en los artículos 14 al 17 del Reglamento para Fraccionamientos y Urbanizaciones.
+(Así reformado en sesión N° 04 del 22 de febrero de 2023)

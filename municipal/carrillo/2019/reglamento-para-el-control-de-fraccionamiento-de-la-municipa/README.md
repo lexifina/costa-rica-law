@@ -14,3 +14,4 @@ Reglamento para el Control de Fraccionamiento de la Municipalidad de Carrillo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-02-05 | la propia norma |
+| 2 | 2023-02-22 | Reglamento municipal 4 (2023-02-22) |

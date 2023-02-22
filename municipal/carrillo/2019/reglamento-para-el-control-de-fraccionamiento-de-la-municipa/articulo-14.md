@@ -1,2 +1,1 @@
-Artículo 14.—Propuestas de fraccionamientos mixtos de servidumbre de paso y de servidumbre agrícola o similar.
-Para fincas en donde se pretendan segregar lotes de área menor o igual 5000 y lotes mayores a 5000 metros de manera mixta, podrá admitirse la coexistencia de ambos tipos de servidumbre siempre que no se sobrepongan unas a otras, más bien será necesario que cada una abarque el área que necesite según los requisitos mínimos de ancho de cada una de ellas.
+Artículo 14.-Propuestas de fraccionamientos mixtos de servidumbre de paso y de servidumbre agrícola o similar. (Derogado en sesión N° 04 del 22 de febrero de 2023)
