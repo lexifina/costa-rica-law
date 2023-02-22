@@ -1,5 +1,4 @@
-Artículo 28º. Funciones del Comité Corporativo de Auditoría.
-El Comité Corporativo de Auditoría conocerá sobre aquellos asuntos propuestos por la Junta Directiva Nacional, las Juntas Directivas de las Sociedades, la Gerencia General Corporativa, las Auditorías Internas, así como, cualquier otro que considere pertinente, relacionados con los roles y responsabilidades de este Comité.
+Artículo 28.-Funciones del Comité Corporativo de Auditoría. El Comité Corporativo de Auditoría conocerá sobre aquellos asuntos propuestos por la Junta Directiva Nacional, las Juntas Directivas de las Sociedades, la Gerencia General Corporativa, las Auditorías Internas, así como, cualquier otro que considere pertinente, relacionados con los roles y responsabilidades de este Comité.
 Son funciones de este Comité:
 a) Revisar el proceso de reporte financiero e informar a la respectiva Junta Directiva sobre la confiabilidad de los procesos contables y financieros, incluido el sistema de información gerencial.
 b) Supervisar e interactuar con auditores internos y externos.
@@ -15,3 +14,7 @@ k) Revisar y trasladar a la respectiva Junta Directiva, los estados financieros 
 l) Conocer y dar seguimiento a los informes que remita la Contraloría General de la República en la materia de especialidad del Comité.
 m) Dar seguimiento a la implementación de las acciones correctivas que formulen la Auditoría Externa, la respectiva Auditoría Interna y la Superintendencia correspondiente.
 n) Supervisar el proceso de reporte financiero, para informar a la Junta Directiva correspondiente sobre la confiabilidad de los procesos contables y financieros, incluido el sistema de información gerencial.
+o) Conocer, revisar y analizar la evaluación y ejecución presupuestaria. Así como el resultado producto de la evaluación PAO.
+p) Conocer, revisar y analizar las modificaciones presupuestarias cuya aprobación dependa de la Junta Directiva Nacional.
+q) Conocer, revisar y analizar el informe de liquidación presupuestaria anual.
+(Así reformado en sesión N° 5980 del 22 de febrero de 2023)
