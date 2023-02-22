@@ -1,3 +1,3 @@
-Artículo 37.El impuesto sobre los licores nacionales será del diez por ciento (10%) sobre el precio de la venta del productor, excluido el correspondiente impuesto de ventas. Asimismo, los licores y las cervezas extranjeros pagarán por concepto de impuesto el diez por ciento (10%) sobre el costo total de importación.
-(Así reformado por el artículo 27 de la ley N° 9047 del 25 de junio del 2012,"Regulación y Comercialización de bebidas con contenido alcohólico")
+Artículo 37- El impuesto sobre los licores nacionales será del diez por ciento (10%) sobre el precio de la venta del productor, excluido el correspondiente impuesto sobre el valor agregado. Por su parte, los licores extranjeros pagarán, por concepto de impuesto, el diez por ciento (10%) sobre el costo total de importación.
 (El presente artículo fue originalmente adicionado por el 2º de la ley Nº 2940 de 18 de diciembre de 1961, pasando el anterior 37 a ser el 43 -actual 44 según el artículo 52 de la Ley Nº 4716 de 9 de febrero de 1971-)
+(Así reformado por el artículo 1°de la Ley para eliminar un impuesto sobre la venta de cerveza importada, N° 10337 del 15 de febrero de 2023)
