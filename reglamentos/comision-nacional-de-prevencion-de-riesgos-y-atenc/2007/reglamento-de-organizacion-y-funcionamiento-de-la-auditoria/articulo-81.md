@@ -1,2 +1,0 @@
-Artículo 81.—Aprobación. Este reglamento fue aprobado por la Junta Directiva en su sesión ordinaria N°-09-07, artículo III, acuerdo N° 153-07, celebrada el 14 de diciembre del 2007, modificado en sesión ordinaria N° 10-09-14, artículo X, acuerdo N° 242-09-2014 celebrada el 24 de setiembre de 2014 y sesión ordinaria N° 13-11-14, artículo VII, acuerdo N° 268-11-2014, celebrada el 5 de noviembre de 2014.
-(Así reformado en sesión N° 10-09-14 del 24 de setiembre de 2014 y sesión ordinaria N° 13-11-14 del 5 de noviembre de 2014)

@@ -1,1 +1,0 @@
-Artículo 80º—Derogatoria. Este Reglamento deroga el Reglamento de Organización y Funciones de Auditoría de la Comisión Nacional de Emergencias aprobado en la sesión Nº 52, artículo XXII, del 03 de julio de 1991 y publicado en el Diario Oficial La Gaceta Nº 131 del 12 de julio de 1993.

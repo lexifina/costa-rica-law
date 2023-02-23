@@ -1,1 +1,0 @@
-Artículo 2º—Ámbito de aplicación. El presente Reglamento es de carácter obligatorio para todos los funcionarios de la Auditoría Interna y funcionarios de la administración activa de la CNE en lo que resulte aplicable.
