@@ -15,7 +15,7 @@ sobre la renta de la ley
 no.3859 de 07/04/1967
 y sus reformas, y según
 artículos Nos. 15 y 25 del
-título IV de la Ley N° 9635 “Ley Fortalecimiento de las Finanzas Públicas del 3 de
+título IV de la Ley N° 9635 "Ley Fortalecimiento de las Finanzas Públicas del 3 de
 diciembre de 2018).
 Conforme la Ley N° 3859
 articulo 19 y conforme a
@@ -27,3 +27,4 @@ menos un 3% de estos
 recursos al centro nacional
 de formación y capacitación.
 )
+(Modificado por el artículo 1° del decreto ejecutivo N° 43943 del 23 de febrero de 2023)
