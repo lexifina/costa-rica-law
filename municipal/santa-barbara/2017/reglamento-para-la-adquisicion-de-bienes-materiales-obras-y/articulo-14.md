@@ -1,2 +1,0 @@
-Artículo 14.—Controles y custodia de documentos. La Proveeduría deberá establecer los controles de las operaciones y de los documentos relativos a compras de los bienes y servicios. De igual forma deberá mantener en custodia los documentos de las contrataciones tramitadas.
-Para la revisión expedientes de las contrataciones administrativas la PI, tendrá el siguiente horario de atención: lunes, miércoles y viernes de 9:00 am o 11: 30 am.

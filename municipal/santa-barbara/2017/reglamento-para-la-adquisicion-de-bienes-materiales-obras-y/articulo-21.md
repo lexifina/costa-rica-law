@@ -1,1 +1,0 @@
-Artículo 21.—De la distribución de materiales y bienes. Para la distribución de los materiales y bienes el encargado de bodega deberá garantizar el cumplimiento de las condiciones de adjudicación y la realización del plaqueo, en los casos que corresponda. Esa verificación deberá efectuarla el órgano competente según sea la naturaleza de los materiales o bienes de que se trate.

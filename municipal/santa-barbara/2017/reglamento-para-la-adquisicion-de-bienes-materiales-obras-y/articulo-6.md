@@ -1,2 +1,0 @@
-CAPÍTULO II
-Artículo 6º—Programación anual de las unidades usuarias. Las unidades usuarias deberán incluir en la formulación del plan-presupuesto sus requerimientos de bienes, materiales y servicios del año correspondiente. Deberán en la formulación del plan-presupuesto determinar el tipo de objeto a adquirir. Lo anterior, con el propósito de que la PI proceda a preparar el Programa de Adquisiciones de la Municipalidad de Santa Bárbara.
