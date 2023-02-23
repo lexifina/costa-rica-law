@@ -1,0 +1,1 @@
+ARTÍCULO 11-Normativa Supletoria. Los aspectos migratorios no regulados expresamente en el presente Reglamento, se regirá conforme a la normativa contenida en el "Reglamento de Extranjería y Crea Día del Costarricense en el Exterior, cuya fecha de conmemoración será el 11 de abril de cada año, Decreto Ejecutivo N º 3 7112 del 21 de marzo de 2012.

@@ -1,0 +1,3 @@
+ARTÍCULO 19.- Procedimiento para solicitar la Exención en EXONET. Para realizar las gestiones relacionadas con el goce de las exoneraciones que se enlistan en el artículo 5 ele la Ley, las personas beneficiarias deben inscribirse en el Sistema de Información Electrónico denominado EXONET de la Dirección General de Hacienda.
+El beneficiario deberá ingresar vía Internet a la pestaña denominada "Exenciones" que se encuentra en la página oficial del Sitio Web del Ministerio de Hacienda o bien a la dirección URL https://www.hacienda.go.cr/.
+De conformidad con lo establecido en el artículo 102 del Código Tributario, la DGE cuenta con el plazo máximo de dos meses para atender y resolver la gestión planteada.

@@ -1,0 +1,1 @@
+ARTÍCULO 12- Falsedad de documentos. En caso de que se haya otorgado permanencia legal con base en documentos falsos o alterados, se sancionará de acuerdo con el artículo 129 de la Ley General de Migración y Extranjería y su correspondiente reglamentación, sin perjuicio de las acciones judiciales que en materia penal puedan interponerse.

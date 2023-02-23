@@ -1,0 +1,3 @@
+ARTÍCULO 21.-Exención en el Impuesto de Traspaso de Bienes Inmuebles. En los casos en que el beneficiario adquiera bienes inmuebles dentro del plazo de vigencia ele esta ley, podrá aplicar una reducción de hasta un veinte por ciento (20%) del total del impuesto de traspaso que corresponda.
+Para ello, el beneficiario podrá aplicar la reducción del impuesto en el formulario de traspaso establecido por la Dirección General de Tributación, conforme al procedimiento que se establezca mediante resolución general.
+En los casos en que la persona beneficiaria traspase estos bienes adquiridos en virtud de este artículo dentro plazo de vigencia de la Ley, el adquirente deberá liquidar y cancelar los impuestos exentos originalmente.

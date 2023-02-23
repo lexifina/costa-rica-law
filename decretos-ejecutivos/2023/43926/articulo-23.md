@@ -1,0 +1,4 @@
+ARTÍCULO 23.- Reposición de menaje de casa o sus instrumentos o materiales para el ejercicio profesional o científico. Los bienes importados exentos que sufran su destrucción o bien pérdida por causa de robo podrán ser sustituidos por otros similares exentos del pago de tributos en su adquisición, durante los primeros cinco años de vigencia de la ley Nº9996, previo cumplimiento de:
+1- Nueva solicitud de exención tramitada por el Sistema EXONET, en el que se aporten los requisitos establecidos en el artículo 18 de este Reglamento, referido a los "Requisitos para la exención de tributos de importación".
+2- En caso de robo, presentar copia de la denuncia judicial correspondiente donde se . describa adecuadamente los bienes sustraídos.
+3- En caso de destrucción, presentar declaración jurada indicando los motivos y fecha de acaecimiento del evento que produjo la destrucción de los bienes.
