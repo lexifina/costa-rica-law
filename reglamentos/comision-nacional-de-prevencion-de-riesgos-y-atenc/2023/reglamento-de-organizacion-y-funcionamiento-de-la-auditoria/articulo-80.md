@@ -1,0 +1,1 @@
+Artículo 80.- Servicios de Auditoría. La Auditoría realizará, de acuerdo con su programa anual de trabajo, estudios de auditoría sobre aspectos específicos en relación con el Universo Auditable. En la realización de esos estudios se aplicará la metodología y los procedimientos de trabajo aprobados por dicha Auditoría, comunicando los resultados a quien corresponda.

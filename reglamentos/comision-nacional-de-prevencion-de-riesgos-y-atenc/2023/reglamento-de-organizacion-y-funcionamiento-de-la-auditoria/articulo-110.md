@@ -1,0 +1,1 @@
+Artículo 110.- Sobre la admisibilidad. Las denuncias recibidas serán examinadas en el orden en que se presentan. Al respecto, en el transcurso de 10 días hábiles se comunicará lo pertinente al denunciante que hubiere señalado lugar para notificaciones, informándole sobre la decisión adoptada, sea su admisión, desestimación o traslado a la Administración.

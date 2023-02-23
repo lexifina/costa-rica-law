@@ -1,0 +1,1 @@
+Artículo 109.- Admisión de denuncias anónimas. Cuando la denuncia anónima aporte consigo elementos indiciarios o de prueba que den mérito para ello y se encuentren soportados en medios probatorios idóneos que permitan iniciar la investigación, será admitida, en caso contrario, el Auditor(a) Interno (a) dispondrá su archivo sin más trámite.

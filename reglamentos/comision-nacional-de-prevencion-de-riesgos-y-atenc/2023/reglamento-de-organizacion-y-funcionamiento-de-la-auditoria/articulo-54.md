@@ -1,0 +1,2 @@
+Artículo 54.- Capacitación. La Auditoría contará con un plan de capacitación tomando en cuenta las necesidades de la Auditoría Interna y su funcionamiento.
+El Auditor (a) Interno (a) organizará el uso de los recursos económicos, materiales, tecnológicos y de otra naturaleza de su dependencia, de tal manera que se utilicen de conformidad con los estándares de calidad, eficiencia, efectividad, legalidad, transparencia y economía, para el logro de las metas y objetivos de la Auditoría Interna.

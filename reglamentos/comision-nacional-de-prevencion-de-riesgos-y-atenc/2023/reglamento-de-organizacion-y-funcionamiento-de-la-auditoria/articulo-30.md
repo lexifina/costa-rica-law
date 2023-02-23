@@ -1,0 +1,1 @@
+Artículo 30.- Jornada laboral y plazo de nombramiento. La jornada laboral del Auditor (a) Interno (a) es de tiempo completo y su nombramiento es por tiempo indefinido de conformidad con el ordenamiento jurídico en la materia.

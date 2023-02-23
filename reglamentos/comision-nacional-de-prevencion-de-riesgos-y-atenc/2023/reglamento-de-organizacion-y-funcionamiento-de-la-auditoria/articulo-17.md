@@ -1,0 +1,1 @@
+Artículo 17.- Comunicación de limitaciones. En caso de existir una presunción de limitación o conflicto de interés, previo al inicio de un estudio, el funcionario (a) de Auditoría o el Auditor(a) Interno (a) declarará bajo fe de juramento que no tiene conflicto de interés en relación con la consanguinidad y afinidad, ni responsabilidad, respecto al trabajo a ejecutar.

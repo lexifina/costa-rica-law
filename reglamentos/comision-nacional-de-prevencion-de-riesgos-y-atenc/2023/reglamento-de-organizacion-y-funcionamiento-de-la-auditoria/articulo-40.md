@@ -1,0 +1,1 @@
+Artículo 40. Pericia y cuidado profesional. El Auditor (a) Interno (a) deberá cumplir con pericia y debido cuidado profesional sus funciones, haciendo valer sus competencias con independencia funcional y de criterio, y vigilará además porque el personal bajo su cargo actúe de igual manera.

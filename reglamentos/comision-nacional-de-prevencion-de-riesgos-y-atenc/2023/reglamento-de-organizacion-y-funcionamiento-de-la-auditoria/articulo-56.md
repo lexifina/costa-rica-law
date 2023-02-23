@@ -1,0 +1,1 @@
+Artículo 56.- De la jornada laboral. La jornada laboral de los funcionarios (as) se regirá como lo establezca la administración activa en aprobación del Auditor (a) Interno (a) todo de acuerdo con el marco jurídico aplicable.

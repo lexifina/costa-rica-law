@@ -1,0 +1,1 @@
+Artículo 88.- Evidencias. Durante el proceso de cada estudio se obtendrá por medio de inspecciones, observaciones, investigaciones, indagaciones, confirmaciones y certificaciones, material de prueba adecuada con el propósito de sustentar las conclusiones de los informes.

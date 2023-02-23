@@ -1,0 +1,1 @@
+Artículo 23.- Asistencia a comisiones. Podrá el Auditor (a) Interno (a) y los funcionarios de la Auditoria, bajo su criterio profesional, participar en comisiones en carácter de asesorar, si así fuere convocado. Su asistencia permanente no debe ser la regla.

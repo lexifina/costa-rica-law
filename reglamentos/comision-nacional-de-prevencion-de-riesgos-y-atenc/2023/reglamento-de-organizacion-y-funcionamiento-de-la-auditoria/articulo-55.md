@@ -1,0 +1,1 @@
+Artículo 55-. Recursos Humanos de la Auditoría Interna. La Auditoría Interna debe contar con un número determinado de funcionarios que le permita ejercer su actividad con la oportunidad, cobertura y disponibilidad. El Auditor (a) Interno (a) justificará ante la Junta Directiva, la creación de nuevas plazas.

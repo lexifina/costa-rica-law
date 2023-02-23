@@ -1,0 +1,2 @@
+Artículo 52.- Presupuesto y plan de adquisiciones. La Auditoría Interna formulará su proyecto anual de adquisiciones de conformidad con el ordenamiento jurídico aplicable y lineamientos institucionales.
+La Administración integrará en su plan de adquisiciones de bienes y servicios, la programación que sobre la ejecución presupuestaria establezca la Auditoría Interna, para satisfacer y atender sus necesidades y cumplir con su Plan de Trabajo Anual.

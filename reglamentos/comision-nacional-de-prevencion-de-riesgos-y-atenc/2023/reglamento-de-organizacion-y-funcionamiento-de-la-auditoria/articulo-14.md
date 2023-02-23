@@ -1,0 +1,1 @@
+Artículo 14.- Independencia funcional y criterio. Tiene independencia funcional y de criterio al realizar el proceso de planificación estratégica, elaborar el Plan de Trabajo Anual, Presupuesto y sus modificaciones, la administración de los recursos, al desempeñar su trabajo y al comunicar los resultados.

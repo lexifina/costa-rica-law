@@ -1,0 +1,1 @@
+Artículo 85.- Criterios para la evaluación de objetivos y metas. Los funcionarios (as) de la Auditoría Interna deben tener presente la efectividad con la que la Administración ha establecido criterios para determinar el cumplimiento de los objetivos y metas.

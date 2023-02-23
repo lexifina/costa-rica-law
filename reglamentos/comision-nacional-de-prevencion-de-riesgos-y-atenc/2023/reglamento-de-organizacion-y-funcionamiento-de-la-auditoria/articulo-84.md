@@ -1,0 +1,1 @@
+Artículo 84.- Fiscalización de resultados, metas y programas. Los funcionarios (as) de la Auditoría Interna podrán fiscalizar las operaciones, programas y presupuestos para analizar que los resultados sean consistentes con los objetivos y metas establecidas verificando que estén siendo desempeñados tal como fueron planeados.

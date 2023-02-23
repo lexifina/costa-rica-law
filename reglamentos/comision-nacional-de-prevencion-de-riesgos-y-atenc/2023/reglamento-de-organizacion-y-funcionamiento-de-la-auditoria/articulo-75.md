@@ -1,0 +1,1 @@
+Artículo 75.- Plan Anual de Trabajo. El Auditor (a) Interno (a) confeccionará y presentará ante la CGR y para conocimiento a la Junta Directiva, un plan anual de trabajo que entrará en vigor a partir del primer mes del año a que corresponde de conformidad con los lineamientos emitidos por la Contraloría General de la República.

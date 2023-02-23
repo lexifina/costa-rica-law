@@ -1,0 +1,1 @@
+Artículo 63.- Asesoría de profesionales. Cuando la Auditoría Interna realice evaluaciones en campos diferentes a su especialidad podrá requerir y contratar asesoría pertinente de profesionales del área objeto de examen.

@@ -1,0 +1,1 @@
+Artículo 81.- Ejecución de los Estudios de Auditoría. El desarrollo de las diferentes etapas que conlleva la ejecución de los estudios de auditoría se regirá por las normas técnicas emitidas por la CGR, así como los procedimientos y directrices para la ejecución de los trabajos que promulgue el Auditor (a) Interno (a).

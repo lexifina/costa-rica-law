@@ -1,0 +1,1 @@
+Artículo 20.- Debido cuidado profesional. Todo el personal de Auditoría debe ejecutar siempre sus funciones con apego a la normativa legal y técnica aplicable y a los procedimientos e instrucciones pertinentes de la auditoría.

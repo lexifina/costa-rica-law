@@ -1,0 +1,1 @@
+Artículo 13.- Objetividad. La actividad de la Auditoría Interna deberá ser ejercida con total independencia funcional y de criterio, respecto del jerarca y los demás órganos de la Administración Activa.

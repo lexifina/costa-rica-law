@@ -1,0 +1,4 @@
+SECCIÓN II
+Concepto de Auditoría Interna
+Artículo 6.- Concepto. Es la actividad independiente, objetiva y asesora, que proporciona seguridad al ente u órgano, concebida para agregar valor, validar y mejorar sus operaciones. Contribuye a que se alcancen sus objetivos, mediante la práctica de un enfoque sistemático y profesional para evaluar y mejorar la efectividad de la administración del riesgo, del control y de los procesos de dirección, proporcionando a la ciudadanía una garantía razonable de que la actuación del Jerarca y del resto de la Administración, se ajusta al marco legal y técnico vigente y se lleva a cabo de acuerdo con sanas prácticas.
+La Auditoría Interna es el componente orgánico del sistema de control interno, que contribuye a que se alcancen los objetivos institucionales mediante la efectividad del cumplimiento de sus competencias. Además, contribuye al logro de los objetivos institucionales según el artículo 8 de la LGCI (8292).

@@ -1,0 +1,1 @@
+Artículo 87.- Registro de la información física y/o digital. Los funcionarios (as) de la Auditoría Interna deben controlar el acceso a los registros de trabajo de personas ajenas a la Auditoría Interna, los archivos de trabajo deben estar ubicados en lugares físicos y/o digitales seguras estableciendo requisitos de custodia para los registros y documentación del trabajo.

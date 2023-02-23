@@ -1,0 +1,6 @@
+Artículo 108.- Requisitos que deben reunir las denuncias. Requisitos mínimos que deben reunir las denuncias que se presenten a la Auditoría Interna:
+a) Los hechos denunciados deberán ser expuestos en forma clara, precisa y circunstanciada, brindando el detalle suficiente para realizar la investigación y algunos elementos orientadores que permitan identificar los posibles responsables o que aporten prueba indiciaria o documentación que otorgue la posibilidad de individualizarlos.
+b) Debe señalar la posible situación irregular que afecta la labor y recursos públicos de la CNE, la descripción detallada de la conducta.
+c) Aportar medio para recibir notificaciones, en caso de no aportar este requisito se aplicaría supletoriamente lo contemplado en la Ley de Notificaciones.
+d) La Auditoría Interna en caso de determinar que existe imprecisión de los hechos denunciados, le otorgará al denunciante un plazo no menor de 10 días hábiles para que éste complete su información o de lo contrario se archivará o desestimará la gestión, sin perjuicio de que sea presentada con mayores elementos posteriormente, como una nueva denuncia.
+Estos requisitos son deseables, pero no pueden constituirse en una limitación para la tramitación de denuncias.

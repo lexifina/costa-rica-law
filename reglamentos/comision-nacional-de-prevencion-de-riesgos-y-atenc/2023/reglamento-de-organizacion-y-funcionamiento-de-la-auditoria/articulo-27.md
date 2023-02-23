@@ -1,0 +1,1 @@
+Artículo 27.- Procedimiento y concurso. Se aplicarán los trámites y procedimientos establecidos por la institución, (Manual de Procedimientos de Contratación Auditor y Subauditor), siempre y cuando no resulten contrarios a la normativa vigente.

@@ -1,0 +1,3 @@
+SECCIÓN II
+De las relaciones y coordinaciones
+Artículo 57.- Relaciones y coordinación. La Auditoría Interna mantendrá relaciones y coordinaciones con la Junta Directiva, Administración Activa, los titulares subordinados de la CNE y otras instancias internas y externas, fundamentalmente con la Contraloría General de la República, Instituciones de Control y fiscalización, Comisiones Legislativas, Ministerio Público, Procuraduría General de la República, denunciantes y otras pertinentes. Sus funcionarios en la realización de su gestión deberán mantener relaciones cordiales, profesionales, de respeto y una efectiva comunicación en el ámbito de sus competencias.

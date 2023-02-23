@@ -1,0 +1,1 @@
+Artículo 79.- Servicios de Fiscalización de la Auditoría Interna. La Auditoría Interna dentro del ámbito Institucional de la CNE, brinda servicios de fiscalización, de conformidad con la normativa legal vigente, estos servicios son preventivos, control interno, cumplimiento y de responsabilidad.

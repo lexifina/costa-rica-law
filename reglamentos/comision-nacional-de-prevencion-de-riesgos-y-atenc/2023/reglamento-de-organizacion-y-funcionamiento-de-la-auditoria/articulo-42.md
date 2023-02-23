@@ -1,0 +1,1 @@
+Artículo 42. Gestión de plazas vacantes. El Auditor (a) Interno (a) gestionará oportunamente lo relativo a las plazas vacantes de la dependencia a su cargo con la intención de cubrir dichas plazas según lo estipulado en el artículo 28 de la Ley 8292. (máximo 3 meses)

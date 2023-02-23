@@ -1,0 +1,1 @@
+Artículo 100.- Servicios Preventivos. El Auditor (a) Interno (a) definirá el contenido y la forma de los documentos por los cuales se comunicará el resultado de los servicios preventivos conforme a la naturaleza de criterios establecidos por la Contraloría General de la República.

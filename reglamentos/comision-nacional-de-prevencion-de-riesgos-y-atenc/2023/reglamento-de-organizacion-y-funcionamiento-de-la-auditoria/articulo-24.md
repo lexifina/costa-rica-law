@@ -1,0 +1,1 @@
+Artículo 24.- Atributos del personal de la Auditoría. El Auditor (a) Interno (a), así como el resto del personal de la Auditoría Interna, deberán conducirse de conformidad con lo dispuesto en el capítulo I de "Normas Personales" de las Normas Generales de Auditoría para el Sector Público, emitido por la Contraloría General de la República.

@@ -1,0 +1,4 @@
+SECCIÓN III
+De las responsabilidades
+Artículo 134.- Responsabilidad del Jerarca. Mantener la vigilancia sobre el debido cumplimiento de las disposiciones y recomendaciones y velar por la eficacia de las acciones correctivas implementadas. Vigilar que se ejecuten las acciones necesarias para que no se reiteren a futuro las deficiencias comunicadas en el informe de auditoría. Tomar de inmediato las acciones correctivas que se requieran ante cualquier evidencia de desviación o irregularidad en las operaciones de la entidad. Asignar el responsable del expediente de cumplimiento de las disposiciones y recomendaciones en cumplimiento de la Resolución R-DC 144-2015. En caso de que este funcionario no pueda cumplir con los plazos establecidos por la Auditoría en sus
+informes, deberá antes de su vencimiento, indicarlo por escrito aportando la fecha en que cumplirá con las recomendaciones, siempre y cuando esos plazos sean ordenatorios y no perentorios.

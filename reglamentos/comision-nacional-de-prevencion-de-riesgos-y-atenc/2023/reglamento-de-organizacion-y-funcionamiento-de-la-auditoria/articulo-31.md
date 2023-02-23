@@ -1,0 +1,1 @@
+Artículo 31.- Periodo de prueba. El nombramiento a plazo indefinido del Auditor (a) y el Subauditor (a) estará sujeto al periodo de prueba que regule el Manual de Procedimientos de Contratación Auditor (a) y Subauditor (a) y según lo establecido en los Lineamientos de sobre Gestiones que Involucran a la Auditoría Interna presentadas ante la CGR.
