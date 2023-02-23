@@ -1,5 +1,6 @@
 CAPÍTULO II
 VICERRECTORÍA DE DOCENCIA
-Artículo 34.—La Vicerrectoría de Docencia es el órgano que orienta, direcciona, coordina, controla, evalúa la funcionalidad y la calidad de los procesos y programas de formación a la vez que promueve y genera espacios para la innovación y el uso de tecnologías para la educación.
+Artículo 34. La Vicerrectoría de Docencia es el órgano que orienta, direcciona, coordina, controla, evalúa la funcionalidad y la calidad de los procesos y programas de formación a la vez que promueve y genera espacios para la innovación y el uso de tecnologías para la educación.
 Para cumplir con el desarrollo de sus funciones cuenta con las siguientes áreas de gestión: Integración y Articulación Educativa, Formación Humanística, Éxito Académico, Gestión y Evaluación Curricular, Idiomas para el Trabajo, Gestión de Áreas de Conocimiento y Carreras y Registro Universitario.
-(Así reformado mediante sesión ordinaria N° 27-2020 del 20 de noviembre del 2020)
+(Reformado mediante Acuerdo 22-17-2020, tomado por el Consejo Universitario en la Sesión Ordinaria No. 17-2020, celebrada el jueves 30 de julio de 2020, a las nueve horas, según el Artículo 34 y publicado en el Diario Oficial la Gaceta No. 250 del jueves 30 de julio de 2020)
+(Reformado mediante Acuerdo 5-27-2020, tomado por el Consejo Universitario en la Sesión Ordinaria No. 27-2020, celebrada el viernes 20 de noviembre de 2020, a las nueve horas, según Artículo 5 y publicado en el Diario Oficial la Gaceta No. 287 del 7 de diciembre del 2020)

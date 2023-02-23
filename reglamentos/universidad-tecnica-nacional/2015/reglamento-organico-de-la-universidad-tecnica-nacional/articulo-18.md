@@ -1,6 +1,7 @@
 Artículo 18. Son funciones y atribuciones del Rector:
 1. Dirigir y administrar las actividades académicas, administrativas y financieras de la Universidad al más alto nivel.
-2. Representar judicial y extrajudicialmente a las Universidad con el carácter de apoderado generalísimo sin límite de suma y dar por agotada la vía administrativa en materia disciplinaria laboral y estudiantil. Para la enajenación de bienes de la Universidad, deberá contar de previo con acuerdo expreso del Consejo Universitaria.
+2. Representar judicial y extrajudicialmente a las Universidad con el
+carácter de apoderado generalísimo sin límite de suma y dar por agotada la vía administrativa en materia disciplinaria laboral y estudiantil. Para la enajenación de bienes de la Universidad, deberá contar de previo con acuerdo expreso del Consejo Universitaria.
 3. Administrar los bienes de la Universidad, sin perjuicio de las atribuciones del Consejo Universitario.
 4. Presentar al Consejo Universitario, para su aprobación, los proyectos de: plan estratégico, institucional, plan anual operativo, planes específicos y los presupuestos ordinario y extraordinarios que se requieran, así como sus modificaciones, y vigilar su correcta ejecución.
 5. Proponer al Consejo Universitario el proyecto de estructura organizativa interna y sus modificaciones.

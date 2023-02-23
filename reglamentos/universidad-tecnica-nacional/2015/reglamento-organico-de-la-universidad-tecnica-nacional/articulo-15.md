@@ -1,4 +1,4 @@
 CAPITULO VI
 DEL TRIBUNAL ELECTORAL UNIVERSITARIO
-Artículo 15. Es el órgano desconcentrado responsable de todos los aspectos relativos a la organización y ejecución de las elecciones que se efectúen en la universidad. Actúa con intendencia técnica y como órgano jurisdiccional en ese campo y sus resoluciones agotan la vía administrativa en materia electoral.
+ARTÍCULO 15. Es el órgano desconcentrado responsable de todos los aspectos relativos a la organización y ejecución de las elecciones que se efectúen en la universidad. Actúa con intendencia técnica y como órgano jurisdiccional en ese campo y sus resoluciones agotan la vía administrativa en materia electoral.
 Para cumplir sus funciones elaborará su propio Reglamento de Organización y Funcionamiento, así como el de Elecciones Universitarias, los que someterá a la aprobación del Consejo Universitario. Las modificaciones deberán ser aprobabas por mayoría de al menos dos terceras partes de los miembros del Consejo Universitario presentes, previa consulta obligatoria al Tribunal Electoral, en caso de que la iniciativa de reforma no surgiere de este órgano.
