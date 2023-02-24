@@ -1,0 +1,3 @@
+CAPÍTULO V
+Disposiciones Finales
+Artículo 21.-Sanciones: Todo colegiado que brinde información falsa para obtener alguna de las asistencias sociales establecidas en este Reglamento, una vez realizado el debido proceso administrativo correspondiente, no podrá obtener más ayudas de asistencia social en el plazo de diez años, contados desde el momento en que se conozca el hecho indebido. La Junta Directiva exigirá devolver el monto de la asistencia social recibida, si no lo hiciera el caso será trasladado por la Junta Directiva a conocimiento a la Fiscalía y después al Tribunal de Honor del Colegio, para que lo juzgue según corresponda.

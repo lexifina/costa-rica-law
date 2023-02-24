@@ -1,0 +1,1 @@
+Artículo 20.-La Junta Directiva del Colegio por medio del informe de labores de tesorería presentará por escrito a la Asamblea General Ordinaria sobre la gestión realizada en el transcurso del año y todas las asistencias sociales entregadas.

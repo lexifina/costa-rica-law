@@ -1,0 +1,1 @@
+Artículo 14.-Formulario de Beneficiarios: Todo CPA deberá designar por escrito, en el formulario correspondiente aportado por el Colegio, la persona o personas beneficiario(s), para que reciban la asistencia social según lo estipulado en el artículo N° 4 de este Reglamento.

@@ -1,0 +1,1 @@
+Artículo 13.-La administración del Colegio emitirá un estado de cuenta del Colegiado como respaldo, donde se muestre que el CPA esta al día con sus obligaciones con el Colegio. Además, se deberá adjuntar copia del formulario de beneficiarios consignados por el CPA.

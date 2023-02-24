@@ -1,0 +1,1 @@
+Artículo 15.-Cambios de beneficiarios: Todo CPA podrá sustituir en cualquier momento al o los beneficiarios designados con anticipación, llenando nuevamente el formulario correspondiente de beneficiarios y entregándolo al Departamento de Admisión del Colegio.

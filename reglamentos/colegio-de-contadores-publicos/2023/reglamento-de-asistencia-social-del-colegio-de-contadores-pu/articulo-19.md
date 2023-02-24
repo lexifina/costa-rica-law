@@ -1,0 +1,1 @@
+Artículo 19.-El registro contable de la asistencia social estará a cargo de la Administración del Colegio, el cual registrará los recursos recibidos del Fondo de Mutualidad y Subsidio y los montos de asistencia social entregados a los CPA, y también lo aplicará en el presupuesto anual del Colegio.

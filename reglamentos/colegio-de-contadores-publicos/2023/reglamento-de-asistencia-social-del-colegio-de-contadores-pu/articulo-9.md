@@ -1,0 +1,1 @@
+Artículo 9º-En caso de fallecimiento o de enfermedad terminal de varios Contadores Públicos Autorizados (CPA) según lo estipulado en el artículo N° 4, se otorgará la asistencia social en igualdad de condiciones, de acuerdo con los recursos disponibles del Colegio aportados por el Fondo de Mutualidad y Subsidios para estos efectos en ese momento.

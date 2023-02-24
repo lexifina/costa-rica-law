@@ -1,0 +1,1 @@
+Artículo 2º-Objetivo: El Reglamento de Asistencia Social del Colegio de Contadores Públicos de Costa Rica, fue creado de conformidad con lo dispuesto por el acuerdo de Asamblea General Extraordinaria N° 240 del 25 de enero de 2023, acuerdo N° 2-240-2023, con el fin de brindar asistencia social a todas los Contadores Públicos Autorizados (CPA).

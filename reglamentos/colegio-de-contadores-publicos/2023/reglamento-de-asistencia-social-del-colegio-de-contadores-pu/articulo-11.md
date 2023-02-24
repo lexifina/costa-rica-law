@@ -1,0 +1,1 @@
+Artículo 11.-Se entregará la asistencia social al CPA que se encuentre al día con todas sus obligaciones con el Colegio, incluyendo la cuota del Fondo de Mutualidad y Subsidios, al momento de que ocurran los hechos estipulados en el artículo N° 4 de este Reglamento.

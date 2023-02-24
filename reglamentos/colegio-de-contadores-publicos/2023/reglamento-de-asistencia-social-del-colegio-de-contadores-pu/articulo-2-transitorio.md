@@ -1,0 +1,1 @@
+Transitoria 2.-Queda sin efecto los beneficiarios que hayan nombrado el CPA, por medio de cualquier formulario; a partir de la publicación de este Reglamento deben llenar el nuevo formulario indicado en este Reglamento y que estará disponible en la página web del Colegio.
