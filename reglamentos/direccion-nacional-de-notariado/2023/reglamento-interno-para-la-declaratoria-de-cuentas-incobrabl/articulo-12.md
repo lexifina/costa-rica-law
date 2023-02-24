@@ -1,0 +1,2 @@
+Artículo 12.-Expediente. En los procesos de cobro administrativos, previo a declarar una cuenta incobrable, debe de existir un expediente de cobro físico o digital, confeccionado por el Proceso de Tesorería, el cual, además debe estar ordenado de manera cronológica, actualizado y foliado, deberá contener de forma clara y legible, toda la documentación de respaldo.
+En caso de que la declaratoria de una cuenta incobrable surja a raíz de un proceso judicial, se debe crear el expediente administrativo correspondiente, indicado en el párrafo anterior.

@@ -1,0 +1,1 @@
+Artículo 13.-Responsabilidad de los funcionarios. Los funcionarios encargados de llevar a cabo la gestión para la declaratoria de cuentas incobrables son responsables disciplinaria y civilmente por la inercia, negligencia e imprudencia en dichos trámites.

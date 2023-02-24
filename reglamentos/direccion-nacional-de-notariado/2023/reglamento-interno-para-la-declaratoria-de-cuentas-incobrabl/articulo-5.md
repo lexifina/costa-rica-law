@@ -1,0 +1,1 @@
+Artículo 5º-Comunicación a la Unidad de Gestión Financiera. Las Unidades encargadas de realizar el cobro deben emitir nota a la Unidad de Gestión Financiera con toda la información requerida, para que procedan a emitir la resolución técnica de incobrabilidad.

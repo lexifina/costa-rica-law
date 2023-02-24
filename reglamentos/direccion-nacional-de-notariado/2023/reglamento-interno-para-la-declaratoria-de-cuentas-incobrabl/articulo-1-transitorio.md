@@ -1,0 +1,1 @@
+Transitorio único: los casos anteriores a la entrada en vigencia del presente reglamento, le será aplicable esta normativa, si los mismo cumplen con las condiciones necesarias para ser declarados incobrables, previa resolución fundada conforme lo establecido en el artículo 6 del presente reglamento.
