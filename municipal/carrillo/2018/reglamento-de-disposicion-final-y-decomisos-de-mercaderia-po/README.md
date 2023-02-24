@@ -14,3 +14,4 @@ Reglamento de disposición final y decomisos de mercadería por ventas ambulante
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-11-21 | la propia norma |
+| 2 | 2023-02-24 | Reglamento municipal 8 (2023-02-24) |
