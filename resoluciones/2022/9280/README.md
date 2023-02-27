@@ -14,3 +14,4 @@ Suspensión de la restricción de aforo a Estadios Nacionales que cuenten con or
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-10-12 | la propia norma |
+| 2 | 2023-02-27 | Resolución 1210 (2023-02-27) |
