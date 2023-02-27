@@ -1,8 +1,34 @@
-Artículo 74. Condecoraciones y reconocimientos del Servicio Nacional de Guardacostas: Corresponde al Director General del Servicio Nacional de Guardacostas, el procedimiento y forma de calificación y recomendación ante el Ministro y el Consejo Superior de Oficiales.
-Todos los reconocimientos se otorgarán una vez al año en cada aniversario de creación del Servicio.
-A. Años de Servicio en Guardacostas: Otorgada a oficiales operativos policiales y de apoyo desde la creación del Servicio Nacional de Guardacostas en mayo del 2000, por los años de servicio. Se otorgará a los ocho, diez, quince, veinte, veinticinco, treinta, treinta y cinco, cuarenta y cuarenta y cinco años de servicio. A aquellos funcionarios que se les haya reconocido años de servicio en Guardacostas no podrán utilizar el pin que le haya otorgado la Fuerza Pública por servicios después del año dos mil. Solamente podrá portar el de una Dirección a la vez. Todos Los pines tendrán una medida de 1 cm por 4 cm.
-(Así reformado el inciso anterior por el artículo 3° del decreto ejecutivo N° 43031 del 27 de mayo del 2021)
-B. Mención al Mérito (Meritoria de Unidad): Otorgado a aquellos funcionarios del Servicio que hayan destacado por acciones de valor, humanitarios, y que hayan destacado sobre los demás de su unidad, embarcación o del Servicio en general. Los méritos también se reconocerán por sus deseos de superación, preparación, honradez, disciplina y otras que en el caso se estimen meritorias.
-C. Servicio Distinguido: Para aquellos funcionarios que por su deseo personal hayan superado el escalafón a grados superiores o inmediatos al de agente o llegado al escalafón de oficiales, demostrando con ello entrega en el servicio y superación personal y liderazgo. Se otorgará a aquellos funcionarios con calificación anual de excelente en los últimos tres años, y con al menos cinco años en el Servicio y que no tengan sanciones o causas en proceso en el Departamento Disciplinario Legal del MSP, o causas judiciales.
-D. Pin de Servicio de especialidad: A los oficiales de la Escala Ejecutiva y Superior, con mando sobre Flota, embarcaciones, y tripulaciones de marinería con dotes demostradas de liderazgo y superación personal, el Director General del Servicio le otorgará el pin de oficial navegador que consta de una figura en relieve en color oro con dos bandas en forma de olas marinas, al centro el ancla distintiva del Servicio en color Plata, y sobre ello la leyenda "GUARDACOSTAS" en color oro. También se podrá otorgar a oficiales de servicio similar nacional o extranjeros que por su apoyo a la labor y eficacia del Servicio hayan permitido alcanzar los objetivos profesionales y de desarrollo trazados.
-(Corrida su numeración por el artículo 5° del decreto ejecutivo N° 40669 del 22 de agosto del 2017, que lo traspasó del antiguo artículo 57 al 74)
+Artículo 74. De las Condecoraciones: Las Condecoraciones que se podrán otorgar para reconocer los méritos a los miembros de la Fuerza Pública, será la medalla al Mérito Policial en tres categorías básicas: Por Servicios, Herido en Cumplimiento del Deber, y al Valor. Todos en Calidad de Condecoración se subdividen en:
+A. Medalla de Oro por Servicios Excepcionales: Será otorgada a aquellos funcionarios policiales de la escala superior que:
+1. Con riesgo de su vida o sacrificio excepcional, ejecuten actos de valor heroico en el mantenimiento del orden público y la seguridad nacional.
+2. Participación proactiva en la atención de casos de desastre, calamidad pública, que vayan más allá del cumplimiento del deber.
+3. Dirigir o realizar algún servicio de trascendental importancia, que redunde en prestigio de la Fuerza Pública, poniendo de manifiesto excepcionales cualidades de patriotismo, lealtad o abnegación.
+4. Tener una actuación ejemplar y extraordinaria, destacando por su valor, capacidad o eficacia reiterada en el cumplimiento de importantes servicios.
+5. Realizar, en general, hechos análogos a los expuestos que, sin ajustarse plenamente a las exigencias anteriores merezcan esta recompensa por implicar méritos de carácter extraordinario.
+B. Medalla de Plata por Servicios Distinguidos: Será otorgada a aquellos funcionarios policiales que:
+1. Mantengan una excelente trayectoria en el campo policial y civil.
+2. Por su cooperación tanto en su tiempo laboral como de descanso.
+3. Se destaque en las labores realizadas en los cuerpos de policía.
+4. Realizar, en circunstancias de peligro para su persona, un hecho abnegado o que ponga de manifiesto un alto valor en el funcionario.
+5. Observar una conducta que, sin llenar plenamente las condiciones exigidas para la concesión de la Medalla de Plata por Servicios Distinguidos, merezca especial recompensa, en consideración a hechos distinguidos y extraordinarios.
+C. Medalla de Bronce por Servicios Especiales: Será otorgada a aquellos funcionarios policiales:
+1. Se destaquen en las labores de seguridad ciudadana y mantenimiento del orden público.
+2. Realizar cualquier hecho que evidencie un alto sentido del patriotismo o de la lealtad.
+3. Sobresalir en el cumplimiento de los deberes de su empleo o cargo, o realizar destacados trabajos o estudios profesionales o científicos que redunden en prestigio de la Fuerza Pública o utilidad para el servicio.
+D. Cruz Escarlata al Herido en el Cumplimento del Deber: Se otorgará al personal policial que resultare:
+1. Fallecido en acto de servicio o con ocasión de él, sin menoscabo del honor; ni por imprudencia, impericia o accidente.
+2. Con mutilaciones o heridas graves de las que quedaren deformidad o inutilidad importante y permanente, concurriendo las mismas condiciones señaladas en el párrafo anterior.
+3. Herido en un acto de arrojo o heroísmo en cumplimiento del deber policial.
+E. Servicios a la Patria en Defensa de la Soberanía Nacional: Esta es otorgada en aquellos servicios a la patria en defensa de la Soberanía Nacional.
+F. Cruz de Oro al Valor y Mérito: Esta es otorgada a aquellos funcionarios policiales que:
+1. En ejercicio de un cumplimiento al deber donde exponiendo su propia vida, con arrojo y valentía protegiera la seguridad nacional o ciudadana.
+2. Realizare acciones sobresalientes en las cuales se logre alcanzar con éxito una misión en la lucha contra el terrorismo y crimen organizado.
+3. Haya enfrentado un peligro donde estuviesen comprometidas vidas de civiles y policías y bienes de interés común, teniendo que enfrentar con desventaja la delincuencia.
+G. Cruz de Plata al Valor y Mérito: Esta es otorgada a aquellos funcionarios policiales que:
+1. Exponiendo su vida lograra alcanzar con éxito una misión en la que se protegiera la seguridad nacional o ciudadana.
+2. Presente una lucha decidida contra la delincuencia y desarticulación de grupos delictivos.
+H. Cruz de Bronce al Valor y Mérito: Esta es otorgada a aquellos funcionarios policiales que:
+1. Demuestren un alto valor, entrega en el cumplimiento de una misión en seguridad ciudadana, lucha contra acciones delincuenciales comunes, atención de desastres naturales o antrópicos.
+2. Por el desempeño en las labores tácticas y estratégicas de apoyo a unidades regulares o especializadas en la entrega de información que conlleve la realización de acciones operativas de manera eficiente y eficaz.
+(Corrida su numeración por el artículo 5° del decreto ejecutivo N° 40669 del 22 de agosto del 2017, que lo traspasó del antiguo artículo 54 al 71)
+(Así modificada su numeración por el artículo 1° del decreto ejecutivo N° 43981 del 27 de febrero del 2023, que lo traspasó del antiguo artículo 71 al 74)

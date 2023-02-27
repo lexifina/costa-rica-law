@@ -1,9 +1,6 @@
-CAPÍTULO V
-UNIFORMES DE LA POLICÍA DE CONTROL DE DROGAS
-Artículo 58. Del uniforme de faena clase 8-1.
-Será camisa de fatiga o camiseta de color azul oscuro. La camisa de fatiga contará con dos bolsas delanteras colocadas una a la derecha y otra a la izquierda, ambas con tapa.
-La camiseta será tipo deportiva color azul con la leyenda "PCD" en color amarillo en la espalda y en el pecho al lado izquierdo el emblema de la Policía de Control de Drogas.
-El pantalón será de fatiga de color azul oscuro, con dos bolsas delanteras colocadas una a la derecha y otra a la izquierda; dos bolsas traseras colocadas una a la derecha y otra a la izquierda, con tapa cada una; dos bolsas laterales con tapa, colocadas a la altura de los muslos, pudiéndose dispensar de estas en el diseño por seguridad personal y por decisión del Director de la Policía de Control de Drogas. Los ruedos irán dentro de las botas o fuera de estas de acuerdo a la situación operativa. Asimismo, se utilizará faja de color negro de lona.
-Las botas serán de color negro, de caña baja y alta, con cordón de color negro, y se utilizarán medias en color negro.
-La gorra del uniforme será de color azul tipo beisbolera, con la leyenda "PCD" al frente en letras blancas.
+Artículo 58.-Sobre el escudo del Servicio Nacional de Guardacostas y la Bandera de Costa Rica. Los mismos serán colocados de la siguiente manera en caso de ser incorporados al uniforme según corresponda.
+Del Escudo. Deberá ubicarse cosido en la manga de la camisa al lado izquierdo en el centro a 3.5 cm de la costura superior. Tendrá las características definidas en la imagen contenida en el artículo 56, denominada "Escudo Oficial del Servicio Nacional de Guardacostas". El escudo medirá 9 cm de largo por 7 cm de ancho.
+De la bandera. Deberá ubicarse cosida en la manga de la camisa al lado derecho en el centro a 3.5 cm de la costura superior. Tendrá el borde tejido en color negro, la bandera medirá 9 cm de largo por 6 cm de ancho, la franja roja medirá 2 cm de ancho y las azules y blancas de 1 cm.
 (Así adicionado por el artículo 4° del decreto ejecutivo N° 40669 del 22 de agosto del 2017)
+(Así reformado por el artículo 1° del decreto ejecutivo N° 43310 del 16 de setiembre de 2021)
+(Así modificada su numeración por el artículo 1° del decreto ejecutivo N° 43981 del 27 de febrero del 2023, que lo traspasó del antiguo artículo 55 al 58)

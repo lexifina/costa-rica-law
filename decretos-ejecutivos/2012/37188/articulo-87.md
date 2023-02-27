@@ -1,4 +1,3 @@
-Artículo 87. Vigencia: Rige a partir del 01 de enero del 2013.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 37215 del 10 de julio del 2012)
-Dado en San José, a los ocho días del mes de mayo del dos mil doce.
-(Corrida su numeración por el artículo 5° del decreto ejecutivo N° 40669 del 22 de agosto del 2017, que lo traspasó del antiguo artículo 70 al 87)
+Artículo 87. Deberes y sanciones. Los Directores del respectivo Cuerpo Policial podrán de oficio o a solicitud de quién lo requiera autorizar la entrega de los uniformes y demás accesorios para la buena función policial. Los Directores y los Jefes de Unidades Policiales serán los responsables de la distribución de uniformes en forma equitativa, y adoptarán las medidas necesarias que permitan establecer la responsabilidad individual de cada funcionario respecto del uniforme que se le entrega. Para la entrega y solicitud de uniformes, se coordinará en forma directa con la Unidad Administrativa de cada Dirección.
+(Corrida su numeración por el artículo 5° del decreto ejecutivo N° 40669 del 22 de agosto del 2017, que lo traspasó del antiguo artículo 67 al 84)
+(Así modificada su numeración por el artículo 1° del decreto ejecutivo N° 43981 del 27 de febrero del 2023, que lo traspasó del antiguo artículo 84 al 87)

@@ -1,13 +1,8 @@
-Artículo 57. De los grados del Servicio Nacional de Guardacostas. De conformidad con lo indicado en el párrafo segundo del artículo 58 de la Ley N° 7410 "Ley General de Policía", se establece la siguiente tabla de grados policiales para uso del Servicio Nacional de Guardacostas:
-INSIGNIAS DEL SERVICIO NACIONAL DE GUARDACOSTAS
-a) ESCALA BÁSICA
-[imagen]
-b) ESCALA OFICIALES EJECUTIVOS:
-[imagen]
-[imagen]
-c) ESCALA OFICIALES SUPERIORES:
-[imagen]
-[imagen]
-Para el Servicio Nacional de Guardacostas, las insignias propias marinas serán usadas en aquellos casos de encuentros internacionales, trabajos conjuntos con fuerzas navales, de Guardacostas y similares y visitas de instituciones marítimas internacionales. Para el servicio nacional deberán obligatoriamente portar las insignias estandarizadas para la Fuerza Pública."
+Artículo 57. Del uniforme para las mujeres en estado de gravidez. En caso de mujeres en estado de gravidez, su uniforme será tipo maternal de conformidad con la escala policial a la cual pertenezcan.
+De la blusa: Será blusa estilo maternal en color beige, con cuello tipo sport, con porta charreteras que cierran con un botón, manga corta con dobladillo, con cierre de la blusa lado derecho con ojales y botones. Con seis botones (según talla), en la parte frontal dos bolsas truncadas ambas con tapa truncada con cierre de velcro (*), charretera en punta de lanza, sujeta con ojal y botón, La espalda es tipo aviador, con costadillos que terminan en la manga. En el centro de la manga derecha, tendrá la Bandera de Costa Rica cosida con puntada fina. En el centro de la manga izquierda tendrá cosido con puntada fina el escudo del Servicio Nacional de Guardacostas en el centro del hombro. Sobre la bolsa derecha, un parche negro con letras bordadas en hilo color oro conteniendo en la parte superior el nombre completo del funcionario y bajo este el grado policial correspondiente. En los porta charreteras, se llevará en cada una, una capona confeccionada en tela negra, con la insignia correspondiente a la nomenclatura jerárquica bordada en hilo color oro, llevará una línea bordada en hilo color oro en el borde distal del cuello. Para los oficiales de las Escalas Ejecutivas y Superior, llevarán en las puntas del cuello de la camisa, el pin correspondiente a su escala.
+(Así modificada su denominación pro el artículo 4° del decreto ejecutivo N° 43031 del 27 de mayo del 2021. Anteriormente indicaba "velero")
+Del pantalón: Será en color beige, el frente del pantalón tendrá 2 bolsas fingidas sesgadas en la parte superior, ambas bolsas tendrán atraques como adorno. La pretina tendrá elástico cubierto por la tela de algodón del mismo color que permita estirar de acuerdo al crecimiento del vientre.
+La parte trasera tendrá 2 sisas entre la pretina y bolsa trasera con vivo y con tapadera, el cierre de la tapa será de velcro (*), en los costados tendrá 2 bolsas tipo cargo truncadas en la parte inferior y ruedo superior con fuelle interno en el centro de la parte superior de la pretina, y la bolsa tendrá una tapadera no troncada.
+(Así modificada su denominación por el artículo 4° del decreto ejecutivo N° 43031 del 27 de mayo del 2021. Anteriormente indicaba "velero")
 (Así adicionado por el artículo 4° del decreto ejecutivo N° 40669 del 22 de agosto del 2017)
-(Así reformado por el artículo 1° del decreto ejecutivo N° 43031 del 27 de mayo del 2021)
+(Así modificada su numeración por el artículo 1° del decreto ejecutivo N° 43981 del 27 de febrero del 2023, que lo traspasó del antiguo artículo 54 al 57)

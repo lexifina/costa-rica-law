@@ -1,5 +1,6 @@
-Artículo 55.-Sobre el escudo del Servicio Nacional de Guardacostas y la Bandera de Costa Rica. Los mismos serán colocados de la siguiente manera en caso de ser incorporados al uniforme según corresponda.
-Del Escudo. Deberá ubicarse cosido en la manga de la camisa al lado izquierdo en el centro a 3.5 cm de la costura superior. Tendrá las características definidas en la imagen contenida en el artículo 56, denominada "Escudo Oficial del Servicio Nacional de Guardacostas". El escudo medirá 9 cm de largo por 7 cm de ancho.
-De la bandera. Deberá ubicarse cosida en la manga de la camisa al lado derecho en el centro a 3.5 cm de la costura superior. Tendrá el borde tejido en color negro, la bandera medirá 9 cm de largo por 6 cm de ancho, la franja roja medirá 2 cm de ancho y las azules y blancas de 1 cm.
+Artículo 55. Del uniforme para la Academia de Guardacostas. La Academia Nacional de Guardacostas, además de los uniformes estipulados en este reglamento, podrá utilizar el siguiente:
+Para actividades académicas dentro y fuera de las aulas, los instructores podrán usar la camiseta tipo polo blanca con mangas, bordado en el lado izquierdo a la altura del pecho el escudo de la Academia y al lado derecho el apellido bordado en color amarillo, en la manga izquierda usará en mayúscula las siglas "ANG" bordadas en color amarillo, en la manga derecha tendrá la Bandera de Costa Rica también bordada.
+Para actividades de entrenamiento de campo y prácticas de polígono, podrá utilizar el mismo diseño y característica de camiseta en color rojo.
+Fuera del ámbito de la Academia no se usará la camisa tipo polo.
 (Así adicionado por el artículo 4° del decreto ejecutivo N° 40669 del 22 de agosto del 2017)
-(Así reformado por el artículo 1° del decreto ejecutivo N° 43310 del 16 de setiembre de 2021)
+(Así modificada su numeración por el artículo 1° del decreto ejecutivo N° 43981 del 27 de febrero del 2023, que lo traspasó del antiguo artículo 52 al 55)

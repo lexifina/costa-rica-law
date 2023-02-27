@@ -24,3 +24,4 @@ Reglamento de Uso de Uniformes y Distintivos de los Cuerpos Policiales Adscritos
 | 9 | 2020-11-09 | Decreto Ejecutivo 42710 (2020-11-09) |
 | 10 | 2021-05-27 | Decreto Ejecutivo 43031 (2021-05-27) |
 | 11 | 2021-09-16 | Decreto Ejecutivo 43310 (2021-09-16) |
+| 12 | 2023-02-27 | Decreto Ejecutivo 43981 (2023-02-27) |

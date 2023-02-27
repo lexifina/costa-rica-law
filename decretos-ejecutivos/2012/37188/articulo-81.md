@@ -1,4 +1,3 @@
-CAPÍTULO V
-Del uso y colocación de las insignias de grado y otros distintivos
-Artículo 81. Colocación de grados. En los Uniformes de Diario los distintivos de grado se utilizarán sobre las charreteras, en caponas de tela negra bordadas en hilo de color oro y deberán tener una línea bordada en hilo color oro en el borde distal del cuello. En los Uniformes Ejecutivos y Formales los distintivos de grado se utilizarán sobre las charreteras en pines metálicos color oro. En los Uniformes de Fatiga que así se haya dispuesto, los distintivos de grado se usaran bordados con hilo color oro en un parche cuadrado de tela negra, el cual se colocará adherido con velcro al respectivo uniforme en el pecho. La utilización de un grado policial por funcionarios no autorizados será considerada falta grave de conformidad con la Ley General de Policía.
-(Corrida su numeración por el artículo 5° del decreto ejecutivo N° 40669 del 22 de agosto del 2017, que lo traspasó del antiguo artículo 64 al 81)
+Artículo 81. De la entrega. La entrega de las medallas, condecoraciones y reconocimientos, a los miembros de la Fuerza Pública, se realizará en acto formal que se realizará al efecto.
+(Corrida su numeración por el artículo 5° del decreto ejecutivo N° 40669 del 22 de agosto del 2017, que lo traspasó del antiguo artículo 61 al 78)
+(Así modificada su numeración por el artículo 1° del decreto ejecutivo N° 43981 del 27 de febrero del 2023, que lo traspasó del antiguo artículo 78 al 81)

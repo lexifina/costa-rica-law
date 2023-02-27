@@ -1,2 +1,7 @@
-Artículo 78. De la entrega. La entrega de las medallas, condecoraciones y reconocimientos, a los miembros de la Fuerza Pública, se realizará en acto formal que se realizará al efecto.
-(Corrida su numeración por el artículo 5° del decreto ejecutivo N° 40669 del 22 de agosto del 2017, que lo traspasó del antiguo artículo 61 al 78)
+Artículo 78. Condecoraciones y reconocimientos de la Policía de Control de Drogas: Corresponde al Director de la Policía de Control de Drogas, el procedimiento y forma de calificación y recomendación ante el Ministro y el Consejo Superior de Oficiales.
+Todos los reconocimientos se otorgarán una vez al año en cada aniversario de creación de la Policía, y estos serán:
+A. Años de Servicio: Otorgada a Oficiales Policiales y de Apoyo. Se otorgará a los diez, quince, veinte, veinticinco, treinta años de servicio.
+B. Honor al Mérito: Otorgado a aquellos oficiales que se hayan destacado por acciones humanitarias y que hayan destacado sobre los demás de grupo, departamento o de la policía en general. Los méritos también se reconocerán por sus deseos de superación, preparación, honradez, disciplina y otras que en el caso se estimen meritorias.
+C. Honor al Valor: Para aquellos funcionarios que se distingan por su valor en el cumplimiento de su deber.
+(Corrida su numeración por el artículo 5° del decreto ejecutivo N° 40669 del 22 de agosto del 2017, que lo traspasó del antiguo artículo 58 al 75)
+(Así modificada su numeración por el artículo 1° del decreto ejecutivo N° 43981 del 27 de febrero del 2023, que lo traspasó del antiguo artículo 75 al 78)
