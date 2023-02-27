@@ -1,0 +1,1 @@
+Artículo 4º-Este Decreto deroga la tarifa de seguridad complementaria, establecida mediante el Decreto Ejecutivo N° 42339 del 13 de marzo del 2020, publicada en La Gaceta N° 124 del jueves 28 de mayo de 2020.

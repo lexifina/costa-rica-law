@@ -1,0 +1,1 @@
+Artículo 3º-Se otorga a los operadores aéreos un plazo de noventa (90) días naturales, contados a partir de la entrada en vigencia del presente decreto, para la implementación de dicha tarifa en los boletos aéreos respectivos.
