@@ -1,2 +1,0 @@
-Artículo 4º—Comunicación oficial. La clasificación oficial de cooperativas se remitirá por parte de la Dirección Ejecutiva a más tardar el 15 de abril de cada año impar al Consejo Nacional de Cooperativas (CONACOOP), para que proceda con su publicación y convocatoria a elecciones.
-Supervisión Cooperativa comunicará a cada cooperativa a más tardar el 10 de marzo del año impar o el día hábil siguiente si está o no acreditada para formar parte de la clasificación oficial de cooperativas.
