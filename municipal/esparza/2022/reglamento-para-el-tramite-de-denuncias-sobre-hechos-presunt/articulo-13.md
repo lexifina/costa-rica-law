@@ -1,0 +1,1 @@
+Artículo 13.-Fundamentación del acto, desestimación o archivo de denuncias. En caso de la desestimación de los asuntos denunciados, la situación deberá quedar debidamente acreditada en los papeles de trabajo del estudio especial y se deberá elaborar la Resolución Administrativa según los procedimientos de la Auditoría Interna.

@@ -1,0 +1,1 @@
+Artículo 5°-Procedimiento para la atención de denuncias. La Auditoría Interna de la Municipalidad de Esparza para analizar presuntos hechos irregulares lo hará de conformidad con este Reglamento y los procedimientos internos para la atención de denuncias planteadas ante esa Auditoría.
