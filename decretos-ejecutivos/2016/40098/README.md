@@ -14,3 +14,4 @@ Reglamento de Sistemas de Desalinización
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-01-16 | la propia norma |
+| 2 | 2023-02-27 | Decreto Ejecutivo 43956 (2023-02-27) |

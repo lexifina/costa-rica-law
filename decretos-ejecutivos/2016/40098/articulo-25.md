@@ -1,2 +1,2 @@
-Artículo 25°- Rige a partir de su publicación.
-Dado en la Presidencia de la República.-San José, el dos de noviembre del año dos mil dieciséis.
+Artículo 25°- Los costos de la Evaluación de Impacto Ambiental se regirán en el Reglamento de Fijación de Tarifas de Servicios Brindados por la Secretaría Técnica Nacional Ambiental, Decreto Nº 34536, más el impuesto de venta correspondiente o las tarifas que estén rigiendo al momento de publicase esta reforma.
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 43956 del 27 de febrero del 2023)
