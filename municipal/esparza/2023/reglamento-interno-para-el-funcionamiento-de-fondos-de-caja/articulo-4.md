@@ -1,0 +1,13 @@
+Artículo 4°-De las definiciones. Seguidamente se muestra la conceptualización de los términos y definiciones empleados en este reglamento:
+a) Anticipo: Adelanto de dinero de caja chica, para el pago de las necesidades definidas como gastos menores.
+b) Arqueo de Caja Chica: corresponde a la verificación del cumplimiento de la normativa y reglamentación que rige el Fondo Fijo de Caja Chica.
+c) Caso fortuito: es el acontecimiento natural inevitable, imprevisible y que impide en forma absoluta el cumplimiento de la obligación.
+d) Factura: título comercial con carácter de título ejecutivo conforme con el Reglamento de la ley de IVA artículos 1 inciso 11) y artículo 60, la cual debe cumplir los requisitos dispuestos por la autoridad tributaria.
+e) Fondo Fijo de Caja Chica: es el fondo autorizado por el Concejo Municipal para la adquisición de bienes y/o servicios.
+f) Fuerza mayor: es un acontecimiento que no puede preverse, es imprevisible o inevitable y que afecta el cumplimiento de una obligación o función.
+g) Gastos Menores: son aquellos gastos urgentes, indispensables e impostergables que no excedan el monto máximo fijado de conformidad con lo indicado en este Reglamento y que se requieren para cubrir una necesidad de manera rápida y oportuna, cuya solución no puede esperar la demora en tiempo y trámites establecidos en la normativa y además, que corresponden a la adquisición de bienes, obras o servicios que no se encuentren en la bodega, sea porque no se ha llevado a cabo o está en proceso la correspondiente contratación administrativa o porque su naturaleza impide conservarlos en la bodega. Además, que no corresponden a gastos que sean susceptibles de ser planificados o bien, que la adquisición que se pretende no resulte más onerosa que el procedimiento ordinario de contratación a realizar, debiendo acreditarse el costo beneficio para la Administración, siempre y cuando no haya fragmentación.
+h) Dependencia que Solicita el Vale de Caja Chica: se denominan como tal lo, Direcciones, Departamentos, Secciones y Unidades, así como todas aquellas instancias que sean autorizadas expresamente por el alcalde.
+i) Encargado de Fondo Fijo de Caja Chica: El cual corresponde al Proveedor Municipal como encargado de validar las compras y el Tesorero Municipal como encargado del manejo y custodia del Fondo Fijo de Caja Chica, según sus competencias, con la finalidad de que velen por el fiel cumplimiento de este Reglamento.
+j) Liquidación: rendición de cuentas que efectúa el funcionario responsable del vale de Caja Chica.
+k) Reintegro de Fondos: solicitud de reintegro de dinero al fondo para cubrir los gastos efectuados.
+l) Servicios: se considerarán como servicios autorizados para compra por medio del Fondo Fijo de Caja Chica.

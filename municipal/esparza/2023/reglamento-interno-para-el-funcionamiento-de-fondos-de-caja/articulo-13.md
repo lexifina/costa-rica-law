@@ -1,0 +1,1 @@
+Artículo 13.-De la compra de activos fijos. Los activos fijos que se adquieren mediante este mecanismo y que estén sujetos a depreciación serán ingresados a la Bodega Municipal y deberán ser debidamente plaqueados de acuerdo con el procedimiento establecido para tal fin.

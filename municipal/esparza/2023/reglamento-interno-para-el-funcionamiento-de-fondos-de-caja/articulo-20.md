@@ -1,0 +1,1 @@
+Artículo 20.-De la devolución por compra no realizada. Cuando por cualquier motivo no se efectúe la compra, el funcionario responsable del anticipo deberá reintegrar el dinero hasta el día hábil siguiente en que tramitó el anticipo, aportando para ello, una justificación escrita que deberá ser avalada con la firma del Gestor del Área que corresponda.

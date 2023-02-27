@@ -1,0 +1,3 @@
+CAPÍTULO III
+De las prohibiciones
+Artículo 16.-De la prohibición para adquirir bienes, obras o servicios existentes. Por ningún motivo se autorizarán compras por el Fondo Fijo de Caja Chica N° 2, cuando la bodega Municipal mantenga existencias de los artículos solicitados o cuando la Administración por medio de sus dependencias se encuentre en capacidad de suministrar el artículo o servicio requerido. Será responsabilidad de la Proveeduría verificar que esta situación no se produzca.

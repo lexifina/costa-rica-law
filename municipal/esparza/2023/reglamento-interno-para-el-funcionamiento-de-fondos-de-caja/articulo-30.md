@@ -1,0 +1,1 @@
+Artículo 30.-Del funcionario que deberá estar presente durante un Arqueo. Todo arqueo de los Fondos Fijo de Caja Chica se realizará en presencia del Tesorero Municipal o del funcionario que él designe para tal efecto. Lo anterior, no limita la posibilidad de que cualquier otro órgano de control realice arqueos cuando se considere conveniente.

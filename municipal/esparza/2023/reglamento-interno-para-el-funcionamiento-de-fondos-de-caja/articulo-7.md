@@ -1,0 +1,1 @@
+Artículo 7°-De los gastos menores indispensables y urgentes. Se denominarán gastos menores aquellos que no excedan el monto máximo fijado en este reglamento y que cumplan con los requisitos establecidos en el Artículo 8 del presente Reglamento.
