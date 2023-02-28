@@ -1,1 +1,0 @@
-Artículo 39.—Trámite cuando se recibe en Bodega. En el caso de la mercadería que es recibida en la Bodega Municipal, el encargado enviará a la Unidad de Proveeduría copia de la factura con su debida recepción del material, para que ésta proceda a tramitar y trasladar ambos documentos con el anexo respectivo a la Unidad de Tesorería, para que procedan al trámite de pago.
