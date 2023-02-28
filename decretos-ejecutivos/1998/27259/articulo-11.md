@@ -1,1 +1,0 @@
-Artículo 11°-El Instituto nacional de Criminología llevará un registro de los informes que los Estados Receptores envíen semestralmente, sobre la ejecución de la condena, de cada una de las personas que hayan sido trasladadas.
