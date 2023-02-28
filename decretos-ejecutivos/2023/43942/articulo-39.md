@@ -1,0 +1,2 @@
+Artículo 39.- Adiciónese, un nuevo transitorio 5 al Decreto Ejecutivo Nº40862-MEP de fecha 12 de enero del año 2018, denominado Reglamento de Evaluación de los Aprendizajes, publicado en el Alcance Nº 26, a La Gaceta Nº 22, del 06 de febrero del 2018, cuyo texto en adelante dirá:
+"Transitorio 5.- La población estudiantil que para el curso lectivo 2023, deberá realizar la Prueba Nacional de Certificación del dominio de las competencias lingüísticas en lenguas extranjeras, que refiere los artículos '44° y 79º de este reglamento, se encuentra exenta de su aplicación.

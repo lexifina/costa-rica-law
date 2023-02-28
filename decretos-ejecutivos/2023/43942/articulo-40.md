@@ -1,0 +1,1 @@
+Artículo 40.- Derogatorias. Deróguense los artículos: 93, 94 y 96, del Decreto Ejecutivo 40862-MEP, de fecha 12 de enero de 2018, denominado Reglamento de Evaluación de los Aprendizajes, publicado en el Alcance Nº26, a La Gaceta Nº22, del 6 de febrero de 2018.

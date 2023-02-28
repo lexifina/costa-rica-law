@@ -1,0 +1,3 @@
+Artículo 20.- Refórmese el artículo 100 del Decreto Ejecutivo Nº40862-MEP de fecha 12 de enero del año 2018, denominado Reglamento de Evaluación de los Aprendizajes, publicado en el Alcance Nº 26, a La Gaceta Nº 22, del 06 de febrero del 2018, cuyo texto en adelante dirá:
+"Artículo 100.- Obligatoriedad del uso de resultados de la Prueba Nacional Estandarizada
+El personal técnico, administrativo y propiamente docente de las direcciones regionales de educación, supervisiones y centros educativos tienen la obligatoriedad de utilizar los resultados e informes de la Prueba Nacional Estandarizada para la mejora del proceso de enseñanza y aprendizaje del sistema educativo costarricense, según los lineamientos emitidos por la DGEC."

@@ -1,0 +1,5 @@
+Artículo 14.- Refórmese el artículo 91 del Decreto Ejecutivo Nº 40862-MEP de fecha 12 de enero del año 2018, denominado Reglamento de Evaluación de los Aprendizajes, publicado en el Alcance Nº 26, a La Gaceta Nº 22, del 06 de febrero del 2018, cuyo texto en adelante dirá:
+"Artículo 91 º. - Deber de acatamiento al principio de probidad y confidencialidad
+En atención al principio de probidad que rige la función pública, los funcionarios de la Dirección de Gestión y Evaluación de la Calidad y los señalados en el artículo 89 del Reglamento y todo funcionario que participe en las Pruebas Nacionales
+Estandarizadas, deberán garantizar la confidencialidad en el proceso de elaboración, distribución y aplicación de dichas pruebas, absteniéndose de sustraer, suministrar, reproducir, distribuir o publicar cualquier dato o material relacionado con estas.
+El incumplimiento de las disposiciones anteriores significará el inicio de los procedimientos correspondientes a efecto de determinar la responsabilidad de las personas implicadas."

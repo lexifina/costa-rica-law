@@ -1,0 +1,3 @@
+Artículo 16.- Refórmese el artículo 95 del Decreto Ejecutivo Nº40862-MEP de fecha 12 de enero del año 2018, denominado Reglamento de Evaluación de los Aprendizajes, publicado en el Alcance Nº 26, a La Gaceta Nº 22, del 06 de febrero del 2018, cuyo texto en adelante dirá:
+"Artículo 95.- Inscripción obligatoria en la convocatoria de la Prueba Nacional Estandarizada
+Corresponde al director o directora del centro educativo o coordinador de sede, realizar la inscripción obligatoria de la población estudiantil en la Prueba Nacional Estandarizada, diagnóstica y sumativa, de acuerdo con lo establecido en el artículo 85 de este reglamento y conforme a las disposiciones emanadas por la Dirección de Gestión y Evaluación de la Calidad."

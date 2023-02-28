@@ -1,0 +1,22 @@
+Artículo 3.- Refórmese los incisos a), b ), c ), d) y e) del artículo 79 del Decreto Ejecutivo Nº40862-MEP de fecha 12 de enero del año 2018, denominado Reglamento de Evaluación de los Aprendizajes, publicado en el Alcance Nº 26, a La Gaceta Nº 22, del 06 de febrero del 2018, cuyo texto en adelante dirá:
+"Artículo 79° . -Tipo y naturaleza de las Pruebas Nacionales Estandarizadas En materia de pruebas nacionales y para efectos de este reglamento se considera lo siguiente:
+a) La Prueba Nacional Estandarizada tiene como propósito monitorear el desarrollo de aprendizajes esenciales de los estudiantes para la mejora continua en el proceso de enseñanza y aprendizaje, entre el inicio y final del año académico, asimismo, para la medición de la calidad educativa.
+La Prueba Nacional Estandarizada evaluará capacidades lingüísticas, científicas, matemáticas y de ciencias sociales, de acuerdo con los enfoques y fundamentación teórica de los Programas de Estudio de las asignaturas de Español, Matemáticas, Ciencias e Idioma (inglés o francés, secundaria), Estudios Sociales (primaria y secundaria) y Educación Cívica (secundaria), lo cual constituye el insumo principal para el diseño de la prueba.
+La Prueba Nacional Estandarizada se conforma por dos aplicaciones: una diagnóstica, que se caracteriza por ser censal y anual, la cual se aplicará en el primer semestre del curso lectivo; y una sumativa aplicada en el segundo semestre del curso lectivo, se caracteriza por ser censal, anual y además es un requisito para obtener el Certificado de conclusión de la Educación General Básica en I y II Ciclo y el Título de Bachiller en Educación Media.
+El Ministerio de Educación Pública se encuentra facultado para realizar la aplicación de la Pmeba Nacional Estandarizada en dos formatos: digital ( en línea y fuera de línea) y/o físico de acuerdo con los siguientes planteamientos:
+i) La Prueba Nacional Estandarizada será aplicada preferentemente en formato digital mediante la plataforma informática ( en línea), que defina el Ministerio de Educación Pública.
+ii) La Prueba Nacional Estandarizada será aplicada en formato electrónico, empleando computadora y dispositivo USB (fuera de línea), en los siguientes escenarios:
+. Estudiantes matriculados en centros educativos sin conexión a internet.
+. Estudiantes que requieren apoyos educativos por su condición de discapacidad: la persona estudiante -que así lo requiera- puede aplicar la prueba nacional con apoyos educativos ( de acceso y curriculares no significativos), de acuerdo con los apoyos brindados en su proceso educativo.
+La aplicación de la Prueba Nacional Estandarizada en formato digital se realizará en ambientes controlados y supervisados provistos por los laboratorios de informática educativa de los centros educativos. O bien, otros espacios que la Dirección de Gestión y Evaluación de la Calidad (DGEC) en coordinación con las direcciones regionales de educación establezcan como sedes de aplicación y que cumplan con los requerimientos para fungir como tal.
+Asimismo, el Ministerio de Educación Pública planificará y comunicará las condiciones particulares de la aplicación digital.
+iii) La Prueba Nacional Estandarizada será aplicada en formato físico en los siguientes escenarios:
+. Centros educativos que no cuentan con servicio eléctrico.
+. Estudiantes matriculados en centros de atención integral (CAi)
+. Estudiantes matriculados en unidad de atención integral (UAI)
+. Servicios especializados de salud.
+. Caso fortuito o de fuerza mayor valorado por la DGEC.
+b) Pruebas Nacionales Escritas Comprensivas Estandarizadas de Especialidades en Educación Técnica: Son pruebas de carácter censal y de certificación, las cuales se rigen por su propio reglamento.
+c) Pruebas Nacionales de Educación Abierta: Las pruebas nacionales de Educación Abierta son de certificación y constituyen una alternativa educativa para quienes no ingresan o concluyen los diferentes ciclos educativos de la Educación General Básica y la Educación Diversificada.
+d) Pruebas Nacionales de Certificación del Dominio de las Competencias Lingüísticas en Lenguas Extranjeras: Estas pruebas tiene como objetivo certificar el dominio de las competencias lingüísticas de una lengua extranjera en la población estudiantil, según las disposiciones contenidas en el artículo 103 de este reglamento.
+e) Otras pruebas nacionales o internacionales, que disponga el Ministerio de Educación Pública."

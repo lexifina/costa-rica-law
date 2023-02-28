@@ -1,0 +1,3 @@
+Artículo 13.- Refórmese el artículo 90 del Decreto Ejecutivo N º40862-MEP de fecha 12 de enero del año 2018, denominado Reglamento de Evaluación de los Aprendizajes, publicado en el Alcance N º 26, a La Gaceta N º 22, del 06 de febrero del 2018, cuyo texto en adelante dirá:
+"Artículo 90 °. - Aplicación de instructivos y protocolos de la Dirección de Gestión y Evaluación de la Calidad
+Corresponde a los funcionarios señalados en el artículo 89 de este reglamento, cumplir con todas las disposiciones contenidas en los protocolos e instructivos de aplicación, elaborados por la Dirección de Gestión y Evaluación de la Calidad.".

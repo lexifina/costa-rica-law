@@ -1,0 +1,5 @@
+Artículo 37.- Adiciónese un nuevo transitorio 3 al Decreto Ejecutivo Nº 40862-MEP de fecha 12 de enero del año 2018, denominado Reglamento de Evaluación de los Aprendizajes, publicado en el Alcance Nº 26, a La Gaceta Nº 22, del 06 de febrero del 2018, cuyo texto en adelante dirá:
+"Transitorio 3.- Cálculo de la nota final, de Bachiller en Educación Media
+El cálculo de la nota final para la obtención del Título de Bachiller en Educación Media para el curso lectivo 2023, se regirá de la siguiente manera:
+a) La ponderación de las notas obtenidas por el estudiante en las asignaturas de Español, Ciencias, Matemáticas, Idioma (Inglés o Francés), Estudios Sociales y Educación Cívica del último año de la Educación Diversificada, módulos o períodos equivalentes, corresponde proporcionalmente al 60 % de calificación final para la obtención del certificado.
+b) La calificación obtenida por el estudiante en la Prueba Nacional Estandarizada sumativa, corresponde, proporcionalmente, al 40% de la calificación final para la obtención del certificado."

@@ -1,0 +1,3 @@
+Artículo 7.- Refórmese el artículo 84 del Decreto Ejecutivo Nº40862-MEP de fecha 12 de enero del año 2018, denominado Reglamento de Evaluación de los Aprendizajes, publicado en el Alcance Nº 26, a La Gaceta Nº 22, del 06 de febrero del 2018, cuyo texto en adelante dirá:
+"Artículo 84 °- Estructura, validez y confiabilidad de la Prueba Nacional Estandarizada
+La estructura de la Prueba Nacional Estandarizada corresponde a los criterios técnicos definidos por la Dirección de Gestión y Evaluación de la Calidad, cuya validez y confiabilidad se determina a través de los análisis técnicos pertinentes."
