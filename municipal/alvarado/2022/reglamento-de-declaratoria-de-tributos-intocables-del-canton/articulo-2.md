@@ -1,0 +1,1 @@
+Artículo 2°-Objetivo. Por medio de la presente norma se establecen los supuestos y procedimiento tendente a la declaratoria de incobrabilidad de deudas de contribuyentes morosos con la Municipalidad de Alvarado.

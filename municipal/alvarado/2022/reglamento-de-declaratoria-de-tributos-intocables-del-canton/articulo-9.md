@@ -1,0 +1,1 @@
+Artículo 9.-Comunicación de declaratoria de incobrabilidad. La resolución que declare la incobrabilidad de una deuda será comunicada al área Financiera municipal para que proceda a realizar el ajuste contable correspondiente.

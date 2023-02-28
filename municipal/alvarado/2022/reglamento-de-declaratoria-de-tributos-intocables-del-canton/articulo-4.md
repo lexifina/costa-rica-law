@@ -1,0 +1,2 @@
+Artículo 4°-Trámites previos a la declaratoria de incobrabilidad. En los casos en que el deudor sea ubicable, la administración deberá realizar la gestión de cobro administrativo, salvo que el costo de esta diligencia sea mayor que la suma adeudada; en estos casos se realizarán llamadas telefónicas y avisos vía correo electrónico.
+Una vez agotada la vía administrativa el caso se trasladará a la etapa judicial a efectos de que el abogado interno o externo gestione la declaratoria de incobrabilidad de conformidad con los supuestos expuestos en el artículo 3 de este reglamento.

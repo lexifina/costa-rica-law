@@ -1,0 +1,1 @@
+Artículo 6°-Gestión de declaratoria de Tributos Incobrables. La Administración Tributaria como dependencia encargada de gestionar la declaratoria de incobrabilidad de una deuda deberá realizar un análisis de si se cumple o no con los supuestos de incobrabilidad.
