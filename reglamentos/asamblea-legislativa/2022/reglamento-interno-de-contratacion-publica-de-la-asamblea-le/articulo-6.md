@@ -1,15 +1,16 @@
-Artículo 6º-El Directorio Legislativo será el órgano competente para adjudicar las licitaciones mayores que tramite la Asamblea Legislativa, así como para revocar, readjudicar o declarar infructuoso o desiertos dichos concursos.
+Artículo 6°-El Directorio Legislativo será el órgano competente para adjudicar las licitaciones mayores que tramite la Asamblea Legislativa, así como para revocar, readjudicar o declarar infructuoso o desiertos dichos concursos.
 Le corresponden además las siguientes funciones:
-1. Autorizar la aplicación de las excepciones establecidas en el artículo 3 de la Ley General de Contratación Pública, de acuerdo con los requisitos del artículo 4 de dicha ley, excepto las referentes a capacitación abierta y reparaciones indeterminadas, cuya autorización será labor de la Dirección Ejecutiva.
+1. Autorizar la aplicación de las excepciones establecidas en el artículo 3 de la Ley General de Contratación Pública, de acuerdo con los requisitos del artículo 4 de dicha ley, excepto las referentes a capacitación abierta, medios de comunicación social y reparaciones indeterminadas, cuya autorización será labor de la Dirección Ejecutiva, mientras que la excepción de compra con fondos de caja chica se regirá por su propio reglamento interno. La decisión de inicio del procedimiento deberá contener todos los requerimientos establecidos en el artículo 4 y siguientes del Reglamento a la Ley General de Contratación Pública. El sondeo o estudio de mercado será realizado por la jefatura de la Unidad solicitante, así como la verificación en el sistema, en caso de proveedor único.
 2. Autorizar la utilización instrumental de cualquier figura contractual, en los términos del artículo 7 de la Ley General de Contratación Pública.
 3. Suscribir, en conjunto con la Dirección de la unidad solicitante, la decisión inicial en los procedimientos contractuales de obra que deban tramitarse mediante licitación mayor.
 4. Dar la autorización para iniciar un procedimiento de contratación sin disponer de recursos presupuestarios, en los términos del artículo 38 de la Ley General de Contratación Pública.
 5. En los supuestos de contrataciones de urgencia, dar la autorización para realizar previamente la contratación y luego registrar la información de esta en el sistema digital unificado.
 6. Dar la autorización para comprar y tomar en arrendamiento bienes inmuebles, sin emplear los procedimientos ordinarios de contratación.
-7. Autorizar la donación de bienes muebles e inmuebles de la institución.
+7. Autorizar la donación de bienes inmuebles de la institución. La donación de bienes muebles se regirá por lo dispuesto en el Reglamento de Bienes Muebles de la Asamblea Legislativa.
 8. Autorizar la cesión de cualquier contrato en ejecución, así como la modificación unilateral de los contratos, en un rango que va del 20% a un máximo del 50% del monto y el plazo original.
 9. Autorizar la concesión de instalaciones públicas en los términos del artículo 83 de la Ley General de Contratación Pública.
 10. Resolver el recurso de revocatoria contra el acto final de una licitación menor, en los casos en que el recurrente haya solicitado que su gestión sea conocida y resuelta por el jerarca.
 11. Autorizar la ampliación de plazos contractuales mayores a cuatro años.
 12. Obtener las autorizaciones y los demás requisitos previstos en el ordenamiento jurídico para el endeudamiento, con motivo del empleo del mecanismo de licitación con financiamiento.
 13. Autorizar la transmisión de fondos públicos al patrimonio de un fideicomiso constituido por la Asamblea Legislativa.
+14. Dictar, mediante acto motivado, el rescate de un servicio para ser explotado directamente por la Administración, la supresión del servicio por razones de interés público, así como la declaratoria de caducidad, según lineamientos establecidos en los artículos 289, 290 y 292 RLGCP.

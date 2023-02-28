@@ -1,8 +1,1 @@
-Artículo 20.-En el caso de las licitaciones reducidas, los plazos para realizar los trámites respectivos serán los siguientes:
-Actividad de contratación | Responsable | Días hábiles
-Revisión primer borrador pliego de condiciones enviado por Proveeduría a la unidad técnica | Unidad técnica | 3 días
-Apertura de ofertas | Proveeduría | 1 día
-Análisis de ofertas y solicitud de apercibimientos | Unidad técnica | 2 días
-Realizar y comunicar subsanes a proveedores | Proveeduría | 3 días
-Análisis de cumplimiento de subsanes y recomendación de adjudicación técnica | Unidad técnica | 2 días
-Preparar recomendación de adjudicación, aprobación y adjudicación | Proveeduría | 2 días
+Artículo 20.-El procedimiento sancionatorio del personal legislativo se llevará a cabo según las disposiciones del artículo del 121 de la Ley General de la Contratación Pública. En tales casos, la Asesoría Legal institucional será el órgano director del procedimiento y le corresponderá recomendar lo pertinente a la Dirección Ejecutiva, o al Directorio Legislativo, según corresponda, para el acto final del jerarca.

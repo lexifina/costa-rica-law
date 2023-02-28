@@ -1,2 +1,3 @@
-Artículo 10.-Cuando surja una necesidad imprevista, el programa de adquisiciones podrá ser modificado, siguiendo el mismo procedimiento descrito en el artículo anterior. Para modificarlo deberán adjuntarse las justificaciones correspondientes.
-La Proveeduría no tramitará las contrataciones que no estén amparadas al programa de adquisiciones. Se excluyen los casos de emergencia o excepción que autorice la Administración Superior.
+CAPÍTULO III
+Programa de adquisiciones
+Artículo 10.-El programa de adquisiciones deberá estar vinculado con el PAO institucional y con los respectivos presupuestos de cada departamento; se iniciará con la promulgación del PAO, el cual, para su debida ejecución, deberá estar respaldado financiera y presupuestariamente. Para estos efectos se deberá recurrir al sistema utilizado por la institución para la planificación financiera.

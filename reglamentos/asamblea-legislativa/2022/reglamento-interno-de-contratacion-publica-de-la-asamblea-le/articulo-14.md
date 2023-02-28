@@ -1,5 +1,3 @@
-CAPÍTULO VII
-Finiquito de contratos
-Artículo 14.-Finalizada una contratación de obra, el fiscalizador del contrato deberá enviar a la Proveeduría los informes finales, las liquidaciones y el finiquito correspondiente,
-para formar parte del expediente en el sistema digital unificado, en acatamiento a lo dispuesto en el artículo 111 de la Ley General de Contratación Pública.
-Tratándose de contratos de servicios o suministros, el finiquito es potestativo.
+CAPÍTULO IV
+Comisión de Recomendación de Adjudicaciones
+Artículo 14.-La Comisión de Recomendación de Adjudicaciones estará integrada por los directores del Departamento de Asesoría Legal, del departamento técnico especializado y del Departamento de Proveeduría. El proveedor institucional la dirigirá. Será la encargada de recomendar, por medio de un documento denominado RECOM, la decisión final en los casos de licitaciones mayores y menores, las cuales deberán ser elevadas al Directorio Legislativo o a la Dirección Ejecutiva, según corresponda, a fin de que se proceda a adjudicar, readjudicar o se declare desierta o infructuosa la licitación. Las decisiones de la comisión se tomarán por mayoría simple, en caso de empate decidirá quien la dirige.

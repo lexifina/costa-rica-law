@@ -1,13 +1,4 @@
-Artículo 21.-Tratándose de licitaciones menores, los plazos para realizar los trámites respectivos serán los siguientes:
-Actividad de contratación | Responsable | Días hábiles
-Revisión primer borrador pliego de condiciones enviado por Proveeduría a las unidades mediante SDU | Unidad técnica, Asesoría Legal y Depto. Financiero | 5 días
-Aprobación del pliego de condiciones | Unidad técnica, Asesoría Legal y Depto. Financiero | 2 días
-Apertura y traslado ofertas | Proveeduría | 1 día
-Análisis de ofertas y solicitud de subsanes | Unidad técnica, Asesoría Legal y Depto. Financiero | 5 días
-Realizar y comunicar subsanes a proveedores y aviso de la respuesta a los subsanes, para verificación de cumplimiento por parte de las unidades técnicas | Proveeduría | 7 días
-Actividad de contratación | Responsable | Días hábiles
-Análisis de cumplimiento de subsanes y recomendación legal, financiera y técnica, esta última deberá contener la razonabilidad del precio. | Unidad técnica, Asesoría Legal y Depto. Financiero | 5 días
-Confección, revisión borrador y aprobación de RECOM | Proveeduría, División Administrativa, Unidad técnica, Asesoría Legal y Depto. Financiero | 7 días
-Confección y aprobación adjudicación | Proveeduría Dirección Ejecutiva | 3 días
-Publicación, comunicado de adjudicación y firmeza del acto de adjudicación | Proveeduría | 6 días
-Estos plazos toman como base una licitación menor con un plazo de apertura de 20 días hábiles, los cuales pueden variar de acuerdo con el plazo de apertura otorgado.
+CAPÍTULO X
+Recurso de revocatoria
+Artículo 21.-El recurso de revocatoria será resuelto por el órgano que dictó la decisión final, a menos que el recurrente solicite sea conocido y resuelto por el jerarca, de conformidad con las competencias consignadas en el artículo 99 de la Ley General de Contratación Pública.
+Cuando la resolución del recurso no recaiga en la Proveeduría institucional, esta deberá suministrarle a su superior todos los antecedentes de la contratación y los informes técnicos, legales y financieros que considere pertinentes para resolver, así como su recomendación técnica. En todo caso, existirá solo una instancia, cuya resolución final dará por agotada la vía administrativa.

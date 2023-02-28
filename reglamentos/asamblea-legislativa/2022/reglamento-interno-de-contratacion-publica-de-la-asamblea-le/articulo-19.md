@@ -1,4 +1,4 @@
-CAPÍTULO XI
-Plazos
-Artículo 19.-El plazo máximo para que las unidades usuarias gestionen el inicio de un procedimiento de licitación mayor será el 1 de marzo y de un procedimiento de licitación menor será el 1 de mayo. En el caso de las licitaciones reducidas dichos plazos serán definidos por la Dirección Ejecutiva, mediante comunicación al resto de la Administración.
-Cuando una unidad solicitante presente el requerimiento de inicio en fecha posterior a la definida en el párrafo anterior, deberá contarse con el visto bueno de la Dirección Ejecutiva.
+CAPÍTULO IX
+Sanciones
+Artículo 19.-El procedimiento sancionatorio a particulares se llevará a cabo según las disposiciones del artículo del 121 de la Ley General de la Contratación Pública.
+En tales casos, la Asesoría Legal institucional será el órgano director del procedimiento y le corresponderá recomendar lo pertinente a la Dirección Ejecutiva, para el acto final del jerarca. De previo al inicio del procedimiento, el Director del Departamento de Proveeduría, en conjunto con el fiscalizador del contrato, presentará al órgano director un informe detallado que contenga todos los pormenores y alcances de la presunta falta, acompañado con la prueba en que se sustenta, la estimación de daños y perjuicios, así como la existencia de multas, cláusula penal, garantía de cumplimiento. Contra el acto final cabrá recurso de revocatoria ante la Dirección Ejecutiva y de apelación ante el Directorio Legislativo. Una vez que la sanción quede en firme, corresponde a la Dirección Ejecutiva comunicarlo a la Dirección de Contratación Pública, para que se incluya en el Registro Único de sanciones a particulares.

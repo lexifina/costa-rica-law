@@ -14,3 +14,4 @@ Reglamento interno de contratación pública de la Asamblea Legislativa
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-01-17 | la propia norma |
+| 2 | 2023-02-28 | Reglamento 38 (2023-02-28) |

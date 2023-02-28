@@ -1,1 +1,4 @@
-Artículo 17.-El procedimiento sancionatorio del personal legislativo se llevará a cabo según las disposiciones del artículo del 121 de la Ley General de la Contratación Pública. En tales casos, la Asesoría Legal institucional será el órgano director del procedimiento y le corresponderá recomendar lo pertinente a la Dirección Ejecutiva, o al Directorio Legislativo, según corresponda, para el acto final del jerarca.
+CAPÍTULO VII
+Finiquito de contratos
+Artículo 17.-Finalizada una contratación de obra, el fiscalizador del contrato deberá enviar a la Proveeduría los informes finales, las liquidaciones y el finiquito correspondiente, para formar parte del expediente en el sistema digital unificado, en acatamiento a lo dispuesto en el artículo 111 de la Ley General de Contratación Pública.
+Tratándose de contratos de servicios o suministros, el finiquito es potestativo.
