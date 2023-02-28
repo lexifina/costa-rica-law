@@ -1,0 +1,1 @@
+Artículo 6º-Se prohíbe la voltea o eliminación de palmáceas, (palma aceitera, cocoteros, pejibaye y otras de crecimiento espontáneo como la palma real (Roystonea regia) y el coyol (Acronoma vinífera), sin aplicar el procedimiento recomendado y establecido por el SFE.

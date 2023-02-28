@@ -1,0 +1,1 @@
+Artículo 12.-El Ministerio de Agricultura y Ganadería a través del SFE con el apoyo del sector público-privado, podrán establecer las medidas fitosanitarias para el manejo del complejo Picudo Negro-Anillo Rojo, así como de otras plagas que puedan afectar la producción de palmáceas.

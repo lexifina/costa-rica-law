@@ -1,0 +1,1 @@
+Artículo 4º-Todo productor u ocupante debe establecer en sus áreas de producción de palmáceas un sistema de trampeo para la captura de picudos y dar el mantenimiento de dicho sistema, según plazos para recebo y cambio de feromonas, de conformidad con las técnicas actualizadas y compartidas entre el sector público y privado.

@@ -1,0 +1,1 @@
+Artículo 13.-Se podrán crear grupos técnicos regionales cuando se considere necesario, con el fin de apoyar las labores de vigilancia tanto del picudo negro y otras plagas de importancia en el cultivo de palmáceas

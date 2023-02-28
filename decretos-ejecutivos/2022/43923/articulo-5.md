@@ -1,0 +1,1 @@
+Artículo 5º-El productor u ocupante debe destruir las palmáceas enfermas en forma inmediata, siguiendo las prácticas o procedimientos establecidos por el SFE, de manera que no se constituyan en un sitio de reproducción de las plagas antes mencionadas y por ende la diseminación de la enfermedad Anillo Rojo en las plantaciones de palmáceas establecidas.

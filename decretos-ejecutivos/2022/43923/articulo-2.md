@@ -1,0 +1,1 @@
+Artículo 2º-Dictar las medidas técnicas para el manejo del picudo negro de las palmáceas (Rhynchophorus palmarum), vector del nematodo conocido como Bursaphelenchus cocophilus causante de la enfermedad Anillo Rojo de las palmáceas, así como de otros picudos que afectan la producción de los cultivos de palmáceas (Metamasius hemipterus y Metamasius dimidiatipennis).
