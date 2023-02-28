@@ -39,3 +39,4 @@ Reglamento del Estatuto de Servicio Civil
 | 25 | 2017-06-30 | Decreto Ejecutivo 40608 (2017-06-30) |
 | 26 | 2018-04-02 | Decreto Ejecutivo 41071 (2018-04-02) |
 | 27 | 2019-10-16 | Decreto Ejecutivo 41862 (2019-10-16) |
+| 28 | 2023-02-28 | Decreto Ejecutivo 43952 (2023-02-28) |
