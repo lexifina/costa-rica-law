@@ -1,7 +1,4 @@
 CAPÍTULO X
 Sanciones aplicables
-Artículo 47.—Infracciones leves.
-Se considerarán infracciones leves, sin perjuicio de que constituya delito, las siguientes:
-a) Extraer de los recipientes colectores, depósitos o contenedores instalados en la vía pública, los residuos sujetos a programas de reciclaje por parte de las municipalidades o a quienes estas deleguen.
-b) Arrojar en la vía pública residuos ordinarios.
-c) Extraer y recuperar cualquier material no valorizable, contenido en las celdas de disposición final de los rellenos sanitarios.
+(Derogado el capítulo anterior por el artículo 18 del Reglamento municipal para la aplicación de las infracciones y sanciones administrativas de la Ley N° 8839, aprobado mediante sesión ordinaria Nº 09-2023 del 28 de febrero del 2023)
+Artículo 47.-Infracciones leves. (Derogado por el artículo 18 del Reglamento municipal para la aplicación de las infracciones y sanciones administrativas de la Ley N° 8839, aprobado mediante sesión ordinaria Nº 09-2023 del 28 de febrero del 2023)
