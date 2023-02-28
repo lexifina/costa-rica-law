@@ -150,6 +150,8 @@ articulo-147.md
 articulo-148.md
 articulo-149.md
 articulo-150.md
+articulo-150-bis.md
+articulo-150-ter.md
 articulo-151.md
 articulo-152.md
 articulo-153.md
@@ -205,6 +207,7 @@ articulo-202.md
 articulo-203.md
 articulo-204.md
 articulo-205.md
+articulo-205-bis.md
 articulo-206.md
 articulo-207.md
 articulo-208.md
