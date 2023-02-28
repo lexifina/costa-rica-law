@@ -15,3 +15,4 @@ Reglamento para el Funcionamiento del Fondo de Caja Chica de la Municipalidad de
 | --- | --- | --- |
 | 1 | 2007-08-21 | la propia norma |
 | 2 | 2020-11-17 | Reglamento municipal 41 (2020-11-17) |
+| 3 | 2023-02-28 | Reglamento municipal 220 (2023-02-28) |
