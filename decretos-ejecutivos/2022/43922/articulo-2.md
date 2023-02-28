@@ -1,0 +1,1 @@
+Artículo 2º-Deróguese el Decreto Ejecutivo N° 39058- MAG, publicado en el Diario Oficial La Gaceta N° 143 del 24 de julio de 2015, denominado "Declara estado de emergencia fitosanitaria nacional por el incremento de la plaga conocida como Xylella fastidiosa"

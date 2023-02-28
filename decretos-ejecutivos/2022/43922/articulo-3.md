@@ -1,0 +1,1 @@
+Artículo 3º-Deróguese el Decreto Ejecutivo N°27045- MAG, publicado en el Diario Oficial La Gaceta N° 176 del 9 de Setiembre de 1998, denominado "Crear la comisión nacional para la prevención y combate de plagas de las palmáceas, como órgano coordinador y asesor del Ministerio de Agricultura y Ganadería".
