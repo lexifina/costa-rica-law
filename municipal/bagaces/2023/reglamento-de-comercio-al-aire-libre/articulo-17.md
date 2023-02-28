@@ -1,0 +1,2 @@
+Artículo 17.-Monto a pagar por el derecho de comercio al aire libre. El monto a cobrar por la municipalidad por concepto del derecho de uso de espacios públicos será de un cincuenta por ciento (50%) el monto devengado por el establecimiento comercial por concepto de la patente comercial para el desarrollo de la actividad comercial, otorgada por la municipalidad.
+No se podrá realizar cobro alguno por las zonas al aire libre que se encuentren dentro del perímetro privado según las disposiciones de la Ley 10126, Ley de Comercio al Aire Libre, de 09 de febrero de 2022.
