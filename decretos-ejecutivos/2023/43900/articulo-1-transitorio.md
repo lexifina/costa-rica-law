@@ -1,0 +1,1 @@
+Transitorio I.-Para aquellas embarcaciones que se encontraren realizando viajes cle pesca al momento de la publicación del presente Decreto, la vigencia del mismo se tenclrá a partir del momento en que zarpen nuevamente con fecha posterior a la publicación en el Diario Oficial La Gaceta

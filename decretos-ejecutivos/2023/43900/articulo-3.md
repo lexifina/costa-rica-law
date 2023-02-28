@@ -1,0 +1,1 @@
+Artículo 3º-El INCOPESCA en coordinación con el SINAC-MINAE, definirán lineamientos y herramientas para las buenas prácticas de manipulación y liberación de los tiburones martillo (Sphyrnidae) que son capturados de forma incidental.
