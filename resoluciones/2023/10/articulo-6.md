@@ -1,0 +1,1 @@
+Artículo 6º-Se derogan las resoluciones R-CO-67-2006 "Reglamento sobre variaciones al presupuesto de los sujetos privados" y R-CO-5-2009 "Normas de Control Interno para los Sujetos Privados que custodien o administren, por cualquier título, Fondos Públicos" (N-1-2009-CO-DFOE).

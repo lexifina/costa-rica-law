@@ -1,0 +1,1 @@
+Transitorio I.-Las Fundaciones de iniciativa pública; es decir, aquellas creadas por instituciones públicas, para el cumplimiento de un fin público y cuyo patrimonio es en su totalidad público; estarán sujetas a las presentes normas, hasta tanto no se cuente con normas específicas para su control.
