@@ -14,3 +14,4 @@ Reglamento de Seguridad de la Información y Ciberseguridad del Conglomerado Fin
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-09-04 | la propia norma |
+| 2 | 2023-03-01 | Reglamento 5982 (2023-03-01) |

@@ -1,1 +1,5 @@
-Artículo 10.—De la definición y uso de contraseñas. La información de registro de la persona usuaria para su autenticación en las plataformas tecnológicas del Conglomerado debe ser tratada como información de carácter confidencial, por lo que se prohíbe ceder, prestar, registrar o dar a conocer por cualquier medio las credenciales de acceso. Su correcta utilización es responsabilidad directa de cada persona usuaria en cumplimiento de las directrices o normas establecidas en el Conglomerado para el efecto.
+CAPÍTULO TERCERO:
+Contratación de servicios con terceros
+Artículo 10.-Regulación de las empresas que ofrezcan servicios al Conglomerado.
+a) Las empresas y terceros que brinden servicios al Conglomerado, bajo cualquier modalidad, deben cumplir con regulaciones y normativa de seguridad del Conglomerado, que se deriven del presente Reglamento.
+b) Los fiscalizadores de los contratos deben velar porque los proveedores o terceros cumplan con la normativa de seguridad del Conglomerado.

@@ -1,2 +1,0 @@
-Capítulo Sétimo: Sanciones disciplinarias
-Artículo 17.—De las infracciones a este Reglamento. El personal del Conglomerado que incumpla con las obligaciones contenidas en este Reglamento será sancionado, previo debido proceso, de la siguiente forma: Si se incumple con los siguientes artículos-incisos se considera una falta grave y se le aplicará lo estipulado en el Reglamento Interno de Trabajo de la respectiva entidad y en el Código de Trabajo: 8, 9.1, 10, 11.1, 11.4, 11.5, 11.6, 11.7, 14.2.
