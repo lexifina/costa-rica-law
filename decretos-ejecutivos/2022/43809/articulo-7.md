@@ -1,0 +1,1 @@
+Artículo 7- La resolución que deniegue la autorización de permanencia legal en el país al amparo de la categoría especial que establece el presente Decreto Ejecutivo, contará con los recursos ordinarios, conforme al artículo 221 y siguientes de la Ley General de Migración y Extranjería.

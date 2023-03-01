@@ -1,0 +1,1 @@
+Artículo 17- En ausencia de disposición expresa en el presente Decreto Ejecutivo, se aplicará supletoriamente, en lo que fuere compatible, la Ley General de Migración y Extranjería y sus diferentes Reglamentos.

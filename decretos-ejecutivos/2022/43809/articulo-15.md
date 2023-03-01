@@ -1,0 +1,1 @@
+Artículo 15- En caso de detectarse por cualquier medio que la persona que goza de la categoría especial ha cometido un delito o constituye un peligro para la seguridad y el orden público, se procederá a cancelar, previo procedimiento administrativo y mediante resolución razonada, la permanencia legal, de conformidad con la normativa vigente.
