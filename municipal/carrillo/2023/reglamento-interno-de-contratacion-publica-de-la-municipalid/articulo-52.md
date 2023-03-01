@@ -1,0 +1,1 @@
+Artículo 52.-Régimen Sancionatorio. Lo relacionado al régimen sancionatorio para los administrados, los oferentes, los adjudicatarios, los contratistas, así como las personas funcionarias públicas se regirá conforme a lo dispuesto en la Ley General de Contratación Pública y el Reglamento a la Ley de Contratación Pública y normativa conexa emitida por las entidades competentes.

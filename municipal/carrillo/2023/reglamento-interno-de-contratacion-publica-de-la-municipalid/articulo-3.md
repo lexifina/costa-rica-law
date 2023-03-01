@@ -1,0 +1,1 @@
+Artículo 3º-Uso de medios electrónicos. Toda la actividad de contratación pública de la Municipalidad de Carrillo deberá de realizarse por medio del Sistema Digital Unificado, conforme a los lineamientos que disponga el administrador del servicio, según lo dispuesto en la Ley General de Contratación Pública y el Reglamento a la Ley General de Contratación Pública.

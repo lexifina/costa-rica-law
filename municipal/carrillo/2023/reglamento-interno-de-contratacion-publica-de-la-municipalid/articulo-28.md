@@ -1,0 +1,1 @@
+Artículo 28.-Actas y Presidencia. La comisión será presidida por la Jefatura del Departamento de Contratación Pública, quien será el responsable de la elaboración de las actas y la notificación de los acuerdos. La apertura del libro de actas se gestionará con la Auditoría Interna. La custodia de las actas será responsabilidad del Departamento de Contratación Pública.

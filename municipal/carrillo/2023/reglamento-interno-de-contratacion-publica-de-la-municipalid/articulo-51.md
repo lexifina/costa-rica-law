@@ -1,0 +1,1 @@
+Artículo 51.-Firma Digital. La Municipalidad de Carrillo realizará las gestiones administrativas y presupuestarias necesarias para que cada persona funcionaria pública con roles asignados en el Sistema Digital Unificado cuente con el certificado de firma digital, conforme a la Ley de Certificados, Firmas Digitales y Documentos Electrónicos (Ley N° 8454).

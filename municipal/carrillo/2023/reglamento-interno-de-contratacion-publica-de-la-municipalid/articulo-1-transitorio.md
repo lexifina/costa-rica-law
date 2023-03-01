@@ -1,0 +1,3 @@
+CAPÍTULO XII
+Disposiciones transitorias
+Transitorio I.-En tanto no existan disposiciones institucionales ajustadas a la Ley General de Contratación Pública para la Gestión del Fondo de Cajas Chicas, según lo dispuesto en el artículo 12 del Reglamento a la Ley de Contratación Pública se utilizará la reglamentación interna emitida para tal efecto, ajustándose al porcentaje definido en el artículo 3° inciso g) de la Ley General de Contratación Pública.
