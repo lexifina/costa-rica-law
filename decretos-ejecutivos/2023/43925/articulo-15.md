@@ -1,0 +1,2 @@
+Artículo 15.—Se reforma el artículo 159 al Decreto Ejecutivo N° 40862-MEP del 12 de enero de 2018 “Reglamento de evaluación de los aprendizajes”, para que en adelante se lea de la siguiente manera:
+Artículo 159.—Envío de los informes e instrumentos de evaluación. Los instrumentos e informes de evaluación debidamente calificados deben ser entregados al estudiantado mayor de edad o ser remitidos a la persona encargada legal de la persona estudiante, para su conocimiento y firma.

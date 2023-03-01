@@ -1,0 +1,26 @@
+Artículo 4º—Se reforma el artículo 34 al Decreto Ejecutivo N° 40862-MEP del 12 de enero de 2018 “Reglamento de evaluación de los aprendizajes”, para que en adelante se lea de la siguiente manera:
+Artículo 34.—Valor porcentual de cada uno de los componentes de la calificación en el I Ciclo de la Educación General Básica. La calificación de los aprendizajes de la persona estudiante en cada asignatura en el I Ciclo de la Educación General Básica será el resultado de la suma de los siguientes valores porcentuales:
+a) En el I Ciclo en las asignaturas de Matemática, Estudios Sociales y Educación Cívica, Ciencias, Español, Lengua Extranjera y Lengua Indígena:
+Trabajo cotidiano | 60%
+Tareas | 10%
+Prueba (dos) | 20%
+Asistencia | 10%
+b) En el I Ciclo, en las asignaturas Educación Musical, Educación Física, Educación para el Hogar, Artes Plásticas, Artes Industriales, Culturas Indígenas y en todas aquellas asignaturas de modalidad especial que apruebe el Consejo Superior de Educación:
+Trabajo cotidiano | 65%
+Tareas | 10%
+Prueba (una) | 15%
+Asistencia | 10%
+c) En el I Ciclo, en la asignatura de Educación Religiosa:
+Trabajo cotidiano | 70%
+Tareas | 20%
+Asistencia | 10%
+d) En los centros educativos que tienen el Programa de Nivelación Aula Edad, en las asignaturas de Español, Matemática, Ciencias, Estudios Sociales y Educación Cívica y Lengua Extranjera:
+Trabajo cotidiano | 50%
+Tareas | 20%
+Prueba (dos) | 20%
+Asistencia | 10%
+e) En los centros educativos que tienen el Programa de Nivelación Aula Edad, en las asignaturas de Educación Física y Educación para el Hogar:
+Trabajo cotidiano | 65%
+Tareas | 10%
+Prueba (una) | 15%
+Asistencia | 10%

@@ -1,0 +1,4 @@
+Artículo 12.—Se reforma el inciso g) al artículo 123 al Decreto Ejecutivo N° 40862-MEP del 12 de enero de 2018 “Reglamento de evaluación de los aprendizajes”, para que en adelante se lea de la siguiente manera:
+Artículo 123.—Objetivos del Sistema de Convivencia Estudiantil. Los objetivos del Sistema de Convivencia Estudiantil en el sistema educativo son los siguientes:
+g) Establecer la necesaria correlación entre las faltas y las acciones correctivas a aplicar en los centros educativos, en un marco de proporcionalidad y justicia, enfocado a una finalidad educativa que procure la formación integral y promoción final de la persona estudiante.
+En el nivel de Educación Preescolar para una atención oportuna de las características de la población de Primera Infancia, las conductas o faltas en que incurra una niña o un niño deben llevar un abordaje integral de detección, atención y/o referencia a instancias externas al MEP cuando proceda.

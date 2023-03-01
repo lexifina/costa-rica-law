@@ -1,0 +1,3 @@
+Artículo 17.—Se reforma el artículo 162 al Decreto Ejecutivo N° 40862-MEP del 12 de enero de 2018 “Reglamento de evaluación de los aprendizajes”, para que en adelante se lea de la siguiente manera:
+Artículo 162.—Informe cualitativo de desempeño. En atención a las disposiciones contenidas en el artículo 24 de este reglamento, el Informe Cualitativo de Desempeño consiste en la sistematización de la información recopilada por la persona docente, respecto del nivel de logro alcanzado por la persona estudiante, en cada período, así como sus logros, avances y dificultades.
+En la Educación Preescolar, al finalizar cada uno de los períodos en que se divide el año escolar, la persona docente a cargo, entregará a la persona encargada legal de la persona estudiante, este informe.

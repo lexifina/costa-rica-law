@@ -1,0 +1,4 @@
+Artículo 9º—Se reforma el artículo 44 al Decreto Ejecutivo N° 40862-MEP del 12 de enero de 2018 “Reglamento de evaluación de los aprendizajes”, para que en adelante se lea de la siguiente manera:
+Artículo 44.—Aprobación del año escolar.
+a) En atención a las particularidades previstas en el artículo 24 de este reglamento, el estudiantado de Educación Preescolar aprueba este nivel educativo siempre que haya asistido al menos al 80% de la totalidad de las clases impartidas durante el curso lectivo. Y serán acreedores del certificado de conclusión de estudios del nivel de Educación Preescolar.
+b) El estudiantado de I y II Ciclos de la Educación General Básica que apruebe todas las asignaturas, periodos o módulos, según corresponda, tendrá derecho a ubicarse en el año escolar, periodo, semestre o nivel inmediato superior, o bien, tendrá derecho a ostentar la condición de egresado del respectivo año escolar, período o nivel.
