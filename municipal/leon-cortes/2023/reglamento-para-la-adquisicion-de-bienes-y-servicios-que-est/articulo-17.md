@@ -1,0 +1,1 @@
+Artículo 17.-La Dirección del departamento promotor de la contratación, deberá indicar mediante oficio el visto bueno a las facturas que presente el proveedor para efectos de pagos parciales o finales de la contratación.

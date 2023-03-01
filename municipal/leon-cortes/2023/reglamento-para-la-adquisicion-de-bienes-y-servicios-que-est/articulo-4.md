@@ -1,0 +1,1 @@
+Artículo 4°-Una vez seleccionado el contratista, la unidad usuaria deberá recibir los bienes y servicios de acuerdo a los términos fijados en la contratación, pudiendo ser verificado por la Proveeduría Municipal en cualquier momento del proceso.

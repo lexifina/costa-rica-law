@@ -1,0 +1,1 @@
+Artículo 19.-Los órganos competentes podrán autorizar la realización de compras de bienes y servicios con cargo al fondo de caja chica dentro de los montos y parámetros fijados en el artículo 10 de éste Reglamento.

@@ -1,0 +1,1 @@
+Artículo 21.-Para compras de caja chica será necesario presentar al menos dos proformas del bien a adquirir y se debe justificar en el caso de servicios el por qué la elección del proveedor designado, será responsabilidad del solicitante la custodia y el buen uso de los bienes y servicios adquiridos.

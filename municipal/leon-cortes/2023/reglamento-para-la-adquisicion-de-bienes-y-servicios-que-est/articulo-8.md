@@ -1,0 +1,4 @@
+Artículo 8°-La competencia entre los distintos órganos se distribuirá en razón del monto de la contratación, que se establece con base en el monto de referencia. Para los efectos de éste Reglamento, el monto de referencia es el máximo que defina por período, la Contraloría General de la República en los umbrales de las licitaciones reducidas, de manera que los criterios de atribución de competencia son los siguientes:
+a- La Proveeduría Municipal adjudicará licitaciones reducidas hasta el monto equivalente a un diez por ciento (10 %) del monto de referencia.
+b- Los Directores de unidades o departamentos, y la Auditoría Interna específicamente en las contrataciones propias de dicha unidad, adjudicarán licitaciones reducidas hasta el monto equivalente a un veinticinco por ciento (25 %) del monto de referencia.
+c- El Alcalde adjudicará licitaciones reducidas hasta el monto equivalente al ciento por ciento (100%) del monto de referencia.

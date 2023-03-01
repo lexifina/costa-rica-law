@@ -1,0 +1,1 @@
+Artículo 16.-La Proveeduría Municipal exigirá la garantía de cumplimiento, en los supuestos en que así lo determine el Pliego de condiciones. Las garantías de cumplimiento, serán controladas, en cuanto a su monto y vigencia, por parte de la Proveeduría Municipal. La custodia de las mismas estará a cargo de la Tesorería Municipal.

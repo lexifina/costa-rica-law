@@ -1,0 +1,1 @@
+Artículo 23.-En lo no regulado por éste Reglamento, se aplicarán las disposiciones pertinentes de la Ley General de Contratación Pública, el Reglamento a la Ley General de Contratación Pública y la Ley de Administración Financiera de la República.

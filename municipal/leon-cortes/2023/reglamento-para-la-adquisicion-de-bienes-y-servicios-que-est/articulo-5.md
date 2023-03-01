@@ -1,0 +1,1 @@
+Artículo 5°-La Proveeduría Municipal y las unidades solicitantes, serán las encargadas de vigilar que las adquisiciones de bienes y servicios que requieran dentro de su ámbito de competencia no sean fraccionadas.

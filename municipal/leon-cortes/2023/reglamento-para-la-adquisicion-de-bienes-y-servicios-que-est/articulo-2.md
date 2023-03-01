@@ -1,0 +1,1 @@
+Artículo 2°-Las licitaciones reducidas estarán bajo la dirección y supervisión de la Proveeduría Municipal, la cuál será responsable de llevar a cabo los procedimientos en la plataforma SICOP en coordinación con las demás unidades de la Municipalidad.
