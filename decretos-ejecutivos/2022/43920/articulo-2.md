@@ -1,0 +1,1 @@
+Artículo 2º-Dejar sin efecto el Decreto Ejecutivo N° 36239-JP de fecha 3 de setiembre del 2010, publicado en La Gaceta N° 213 del 3 de noviembre del 2010, mediante el cual se declaró de utilidad pública para los intereses del Estado a la Asociación The Women's Club of Costa Rica, cédula de persona jurídica número 3-002-051999.
