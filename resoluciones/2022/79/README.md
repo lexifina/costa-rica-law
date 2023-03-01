@@ -15,3 +15,4 @@ Lineamientos para los trámites relacionados con los trámites, internamientos, 
 | --- | --- | --- |
 | 1 | 2022-03-30 | la propia norma |
 | 2 | 2022-04-26 | Resolución 119 (2022-04-26) |
+| 3 | 2023-03-01 | Resolución 331 (2023-03-01) |
