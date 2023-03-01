@@ -1,0 +1,7 @@
+MUNICIPALIDAD DE DESAMPARADOS
+"La Municipalidad de Desamparados comunica que, al no presentarse objeciones ni observaciones al proyecto de "Reglamento para prevenir, atender, sancionar y erradicar la violencia contra las mujeres en la política de la municipalidad de Desamparados", publicado inicialmente en La Gaceta N° 7 de 17 de enero de 2023, el Concejo Municipal de Desamparados acordó mediante el acuerdo N° 2 de la sesión N° 7-2023, celebrada el 31 de enero de 2023, que entre a regir a partir de la presente publicación:
+REGLAMENTO PARA PREVENIR, ATENDER, SANCIONAR Y ERRADICAR LA VIOLENCIA CONTRA LAS MUJERES EN LA POLÍTICA DE LA MUNICIPALIDAD DE DESAMPARADOS
+CAPÍTULO I
+Objetivo y ámbito de aplicación
+Artículo 1º-Objetivo. El objetivo del presente reglamento es prevenir, atender, sancionar y erradicar la violencia contra las mujeres en la política en la Municipalidad de Desamparados, por medio del establecimiento de un procedimiento interno en observancia con los principios que lo informan, que permita las denuncias por este motivo, su investigación y eventual sanción de las personas responsables.
+Para efectos de este reglamento, cuando en adelante se indique en el articulado la frase: "Ley 10.235", debe entenderse que se refiere a la Ley para prevenir, atender, sancionar y erradicar la violencia contra las mujeres en la política, Nº 10.235 del 03 de mayo del 2022, publicada en el Alcance Nº 98 a La Gaceta Nº 90 del 17 de mayo de 2022.
