@@ -1,0 +1,1 @@
+Artículo 7º-Funciones y competencia de la Comisión de Recomendación de Adjudicaciones. La CRA tendrá la competencia para analizar y recomendar la adjudicación de las contrataciones que por la naturaleza de la contratación así se requiera.
