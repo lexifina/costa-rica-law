@@ -1,0 +1,17 @@
+N° 43919-MJP
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE JUSTICIA Y PAZ
+Con fundamento en lo dispuesto en los artículos 140, incisos 3) ,18) y 146 de la Constitución Política, 27 y 28 inciso 2. b) de la Ley General de la Administración Pública N° 6227 del 2 de mayo de 1978 y los artículos 2 y 7 inciso f) de la Ley Orgánica del Ministerio de Justicia y Paz N° 6739 del 28 de abril de 1982 y sus reformas.
+Considerando:
+I.-Que el Plan Nacional de Desarrollo e Inversión Pública 2023-2026 "Rogelio Fernández Güell", incluye como uno de sus ejes principales avanzar en la construcción de una sociedad desarrollada y competitiva, comprendiendo el bienestar de la sociedad más allá de las métricas económicas, priorizando el desarrollo estratégico de la economía, la competitividad, la reforma del estado, la cohesión social, la seguridad, el medio ambiente y la corrupción, articulando su quehacer con el sector privado y la sociedad civil.
+II.-Que en consonancia con lo anterior, el Ministerio de Justicia y Paz se ha comprometido con la tarea de promover una mayor seguridad jurídica y competitividad para el país, procurando además su incorporación al entorno internacional, por medio de la aprobación de importantes instrumentos en materia de derecho internacional privado.
+III.-Que la ley de Arbitraje Comercial Internacional basada en la Ley Modelo de la Comisión de las Naciones Unidas para el Derecho Mercantil Internacional (CNUDMI), pone a Costa Rica en el mapa como posible sede de arbitrajes internacionales y facilita la solución de controversias privadas comerciales en la que participan empresas costarricenses.
+IV.-Que la Comisión de Arbitraje y Resolución Alterna de Conflictos del Capítulo Costarricense de la Cámara de Comercio Internacional (ICC por sus siglas en inglés), con el apoyo del Ministerio de Justicia y Paz, así como el de otras instituciones públicas y privadas, se encuentran organizando la XIV Edición del Congreso de Arbitraje Internacional 2023 denominado: "Enfocados en la Esencia", a celebrarse en San José, Costa Rica, los días 8, 9 y 10 de febrero del 2023.
+V.-Que la realización del citado Congreso resulta de trascendental importancia para el país, no solo por la temática que se abordará, directamente relacionada con la promoción y práctica del arbitraje comercial internacional, sino también por la oportunidad de mostrar a Costa Rica al mundo, por medio de los distinguidos visitantes que asistirán al Congreso, provenientes de diversos países e involucrados todos en el quehacer del arbitraje internacional y el desarrollo económico, así como promocionar a Costa Rica como lugar idóneo como sede de diversos arbitrajes internacionales y un centro académico de primer mundo.
+VI.-Que de conformidad con el Reglamento a la Ley de Protección al Ciudadano del Exceso de Requisitos y Trámites Administrativos, Decreto Ejecutivo N° 37045-MP-MEIC y sus reformas, se determinó que la presente propuesta no establece ni modifica trámites, requisitos o procedimientos, que el administrado deba cumplir, situación por la que no se procedió con el trámite de control previo. Por tanto,
+Decretan:
+"DECLARAR DE INTERÉS PÚBLICO LA XIV
+EDICIÓN DEL CONGRESO DE ARBITRAJE
+INTERNACIONAL 2023 "ENFOCADOS
+EN LA ESENCIA"
+Artículo 1º-Se declara de interés público la "XIV Edición del Congreso de Arbitraje Internacional 2023 "Enfocados en la Esencia", a celebrarse en San José, Costa Rica, los días 8, 9 y 10 de febrero del 2023.
