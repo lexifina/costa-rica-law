@@ -1,0 +1,6 @@
+Artículo13.-Instalación de Torres de Telecomunicaciones en predios independientes:
+1) Los predios donde se pretendan ubicar e instalar las Obras Constructivas de torres tendrán unas dimensiones mínimas de frente y de fondo equivalente al 30% de la altura de la torre medida desde el centro de la base de la torre hasta el final de la torre sin incluir el pararrayo, para infraestructura de 30 metros de altura.
+2) En casos donde se instale infraestructura mayor a 30 metros de altura, los predios tendrán unas dimensiones mínimas de frente y de fondo equivalente al 20% de la altura de la torre medida desde el centro de la base de la torre hasta el final de la torre sin incluir el pararrayo.
+3) Las dimensiones del predio en cualquiera de los casos mencionados nunca serán menores a lo establecido en el punto 1 de este artículo.
+4) El acceso al sitio donde se encuentre la torre de telecomunicaciones debe ser por calle pública o por servidumbre.
+5) Este tipo de predios, no podrán usarse bajo estas dimensiones bajo ningún otro uso que no sea para el que se originó, podrán registrarse como derechos individualizados pero no segregables, a menos que cumpla con lo dispuesto con las dimensiones mínimas y los requisitos que dicta el plan regulador.

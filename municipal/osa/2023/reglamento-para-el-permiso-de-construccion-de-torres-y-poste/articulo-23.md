@@ -1,0 +1,1 @@
+Artículo 23.-Normativa de entes competentes. Todas las medidas de seguridad e higiene en la construcción deben cumplir con las disposiciones establecidas en los cuerpos normativos vigentes relacionados con el desarrollo constructivo en sitio.

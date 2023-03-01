@@ -1,0 +1,1 @@
+Artículo 12.-Altura Máxima y Señalización. La DGAC determina y autorizará la altura máxima que puede alcanzar la infraestructura para el soporte de redes de telecomunicaciones. además, las medidas de seguridad, tales como señalización mínima, tipo pintura, color de estructura y luces de prevención, entre otras.

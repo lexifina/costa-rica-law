@@ -1,0 +1,1 @@
+Artículo 20.-Otras Instalaciones. Las instalaciones eléctricas, telefónicas y cualquier otra que se requiera dentro del lindero del lote o área delimitada donde se ubique la infraestructura de telecomunicaciones, se debe realizar de acuerdo con las disposiciones legales vigentes en esa materia.
