@@ -1,0 +1,1 @@
+Artículo 12.-Variación en los factores. La Dirección General de Tributación queda facultada para variar los factores señalados en el artículo número 5 de este reglamento, cuando se determinen cambios en los márgenes de valor agregado y de rendimiento netos (porcentaje de utilidades gravables).
