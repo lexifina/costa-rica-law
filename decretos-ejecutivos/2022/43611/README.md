@@ -14,3 +14,4 @@ Modifíquese el documento denominado "Clasificación Funcional del Sector Públi
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-07-02 | la propia norma |
+| 2 | 2023-03-02 | Decreto Ejecutivo 44074 (2023-03-02) |
