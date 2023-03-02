@@ -1,5 +1,6 @@
-Artículo 17.—Además de las establecidas en la Ley, son funciones del Consejo Nacional:
-a) Aprobar y reformar los reglamentos internos que regulan el funcionamiento y organización del Instituto.
+Artículo 17.-Además de las establecidas en la Ley, son funciones del Consejo Nacional:
+a) Aprobar y reformar únicamente reglamentos relacionados con: Presupuesto global del Instituto, Políticas Públicas y reglamentos señalados por Ley.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 44031 del 2 de marzo de 2023)
 b) Aprobar la estructura orgánica del Instituto y su personal.
 c) Crear, reclasificar, suprimir y fusionar las plazas necesarias para su « buena marcha, fijándoles las correspondientes funciones y remuneraciones, de conformidad con las disposiciones vigentes.
 d) Conocer y aprobar el presupuesto anual del Instituto, sus modificaciones y estados financieros.
