@@ -1,0 +1,1 @@
+Artículo 11.-El presente Decreto Ejecutivo no otorga beneficios fiscales, tales como exoneraciones o cualquier otro beneficio fiscal, de conformidad con lo establecido en el artículo 5 del Decreto Ejecutivo N° 40540-H del 1 de agosto de 2017 "Contingencia Fiscal".

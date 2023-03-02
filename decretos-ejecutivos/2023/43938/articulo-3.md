@@ -1,0 +1,1 @@
+Artículo 3º-Comité Técnico de Salud Digital. Se crea el Comité Técnico de Salud Digital, en adelante conocido como Comité, adscrito al despacho del jerarca del Ministerio de Salud, con el objetivo de apoyar todos aquellos elementos necesarios en la implementación de planes, políticas y estrategias en salud digital en el sector salud.

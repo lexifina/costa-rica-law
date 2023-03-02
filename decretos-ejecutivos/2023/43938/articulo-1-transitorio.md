@@ -1,0 +1,1 @@
+Transitorio Único.-El Ministerio de Salud cuenta con un plazo de tres meses a partir de la publicación del presente Decreto Ejecutivo, para presentar en sesión, la hoja de ruta de la "Estrategia Nacional de Salud Digital de Costa Rica" al Comité Técnico de Salud Digital.
