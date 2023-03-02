@@ -16,3 +16,4 @@ Reglamento para la operación y administración del acueducto de la Municipalida
 | 1 | 2003-05-19 | la propia norma |
 | 2 | 2004-11-17 | Reglamento municipal 352 (2004-11-17) |
 | 3 | 2006-04-04 | Reglamento municipal 424 (2006-04-04) |
+| 4 | 2023-03-02 | Reglamento municipal 59 (2023-03-02) |
