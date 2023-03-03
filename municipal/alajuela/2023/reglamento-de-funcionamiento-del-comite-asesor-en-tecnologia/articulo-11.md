@@ -1,0 +1,1 @@
+Artículo 11.-Del Quorum y los Acuerdos. El Comité Asesor en Tecnologías de Información podrá sesionar válidamente con la presencia de al menos cuatro de sus miembros. Los acuerdos serán aprobados por mayoría simple de los presentes.
