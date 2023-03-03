@@ -1,6 +1,6 @@
-Artículo 27.- Creación e integración de la Asamblea
-Se crea la Asamblea Nacional de la Red Nacional Consultiva de la Persona Joven, como órgano colegiado y máximo representante de la Red Consultiva; estará integrada por los siguientes miembros:
-a) Una persona representante de cada uno de los comités cantonales de la persona joven.
+Artículo 27.- Creación e integración de la Asamblea. Se crea la Asamblea Nacional de la Red Nacional Consultiva de la Persona Joven, como órgano colegiado y máximo representante de la Red Consultiva; estará integrada por los siguientes miembros:
+a) Una persona representante de cada uno de los comités de la persona joven.
+(Así reformado el inciso anterior por el artículo 1° de la ley N° 10328 del 3 de marzo de 2023, "Reforma Ley General de la Persona Joven, para la inclusión de los concejos municipales de distrito")
 b) Una persona representante por cada una de las universidades públicas.
 c) Tres personas representantes de las universidades privadas.
 d) Dos personas representantes de las instituciones de educación parauniversitaria.
