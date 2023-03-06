@@ -14,3 +14,4 @@ Establece Determinación de Residencias Fiscales y Certificados de Residencia Fi
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-02-04 | la propia norma |
+| 2 | 2023-03-06 | Resolución 3 (2023-03-06) |
