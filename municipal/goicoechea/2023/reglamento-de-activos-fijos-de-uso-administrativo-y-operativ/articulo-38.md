@@ -1,0 +1,3 @@
+CAPÍTULO XIV
+Disposiciones Finales
+Artículo 38.-Casos no previstos en este reglamento. Se resolverán conforme a la Ley General de Control Interno, la Ley General de la Administración Pública, el Código Municipal, directrices internas y demás normativa en lo que resulte aplicable y de conformidad con la jurisprudencia administrativa y judicial que se emita sobre la materia de regulación de bienes municipales.

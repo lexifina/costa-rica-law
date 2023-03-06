@@ -1,0 +1,1 @@
+Artículo 26.-De la dación de baja de bienes por remate. La baja de bienes muebles por remate procederá previa autorización de la Dirección Administrativa-Financiera conforme de lo establecido en el ordenamiento jurídico que rige la materia.

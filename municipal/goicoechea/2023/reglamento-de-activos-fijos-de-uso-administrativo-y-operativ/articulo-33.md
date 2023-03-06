@@ -1,0 +1,1 @@
+Artículo 33.-Recibido conforme de un bien mueble reparado. Una vez reparado el bien mueble, el Departamento de Proveeduría entrega el bien a la jefatura formalmente con copia a la Dirección Administrativa Financiera y Departamento de Contabilidad.

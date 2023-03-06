@@ -1,0 +1,2 @@
+Artículo 3°-Del acatamiento del presente reglamento. Las disposiciones de este Reglamento son de acatamiento obligatorio para todas las dependencias de la Municipalidad de Goicoechea y para las personas funcionarias que se beneficien del uso y servicio de los activos fijos propiedad de la Institución.
+Para el cumplimiento del presente reglamento, se deberán adoptar las medidas pertinentes para dotar los recursos humanos y materiales indispensables para ejecutar debidamente las labores encomendadas.

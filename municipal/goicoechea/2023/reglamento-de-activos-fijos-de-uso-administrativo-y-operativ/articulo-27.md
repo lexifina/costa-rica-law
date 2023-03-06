@@ -1,0 +1,2 @@
+Artículo 27.-De la dación de baja de bienes por venta, permuta o dación en pago. Se darán producto de un proceso de contratación administrativa, conforme los alcances de la Ley General de Contratación Pública y su Reglamento. La base se fijará según el avalúo emitido por medio del peritaje correspondiente.
+Una vez concluido el procedimiento respectivo, el área encargada de contratación administrativa, deberá informar al Departamento de Contabilidad para que proceda a dar de baja en el registro contable y auxiliar respectivo.

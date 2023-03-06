@@ -1,0 +1,1 @@
+Artículo 25.-De la dación de baja de bienes por donación. Para la baja de bienes muebles que la Institución autorice donar, previo cumplimiento de lo establecido en el ordenamiento jurídico que rige la materia; el Departamento de Proveeduría comunicará la gestión al Departamento de Contabilidad para que proceda con la baja de los bienes muebles en el sistema auxiliar.

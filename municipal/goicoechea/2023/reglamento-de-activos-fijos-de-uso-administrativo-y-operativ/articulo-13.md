@@ -1,0 +1,1 @@
+Artículo 13.-De la vigencia del software. El Departamento de Cómputo llevará un registro de la vigencia del software de manera que se informe a la Dirección Administrativa-Financiera la fecha de vencimiento de la respectiva licencia, con el fin de ser reemplazado o renovado, con la anticipación correspondiente.

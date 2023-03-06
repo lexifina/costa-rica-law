@@ -1,0 +1,3 @@
+Artículo 28.-De la dación de baja de bienes en desuso. Para los bienes en desuso, las unidades primarias de información que poseen este tipo de bienes llenarán el formulario digital provisto por el Departamento de Contabilidad y se remitirá al Departamento de Proveeduría, con los bienes muebles que no están siendo utilizados.
+Previa coordinación las jefaturas responsables, deberán entregar los bienes en el lugar que les sea indicado. El Departamento de Proveeduría, recibirá los bienes de la unidad administrativa correspondiente y los cargará a las existencias generales de la bodega municipal, para decidir su disposición posteriormente.
+El Departamento de Contabilidad con base en el formulario digital correspondiente realizará el descargo respectivo.
