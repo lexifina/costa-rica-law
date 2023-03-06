@@ -14,3 +14,4 @@ Reglamento interno de orden, dirección y disciplina de la Junta Directiva del I
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-04-28 | la propia norma |
+| 2 | 2023-03-06 | Reglamento 0 (2023-03-06) |
