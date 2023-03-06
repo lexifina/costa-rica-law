@@ -1,1 +1,0 @@
-Artículo 14.—Podrá otorgarse igualmente la declaratoria de interés cultural o cantonal, como una distinción honorífica, a aquéllas actividades o proyectos que impliquen un aporte a la cultura, el arte, la ciencia, el ambiente, la salud, el deporte o la tecnología, la defensa o promoción de los Derechos Humanos del cantón de Goicoechea.

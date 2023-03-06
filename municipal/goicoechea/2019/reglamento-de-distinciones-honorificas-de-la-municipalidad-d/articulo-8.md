@@ -1,1 +1,0 @@
-Artículo 8º—La entrega de las menciones honoríficas se realizará en una sesión extraordinaria del Concejo Municipal, en el caso de la develación de fotografías, se realizará en el mismo acto y se ubicará en el lugar correspondiente.

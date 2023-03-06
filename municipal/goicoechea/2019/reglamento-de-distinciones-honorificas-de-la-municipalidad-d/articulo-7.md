@@ -1,1 +1,0 @@
-Artículo 7º—La Municipalidad incluirá una partida presupuestarla dentro del presupuesto ordinario de cada año, para el otorgamiento de medallas, pergaminos o reconocimientos, fotografías y cenas, almuerzos o refrigerios según corresponda.

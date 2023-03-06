@@ -1,1 +1,0 @@
-Artículo 9º—El título de hijo/a predilecto/a o de ciudadano/a distinguido del cantón de Goicoechea, dará derecho a quien lo ostente de acompañar a la Corporación Municipal en ciertos actos y solemnidades propias de la misma a que aquella concurra, ocupando el lugar que el efecto le esté señalado
