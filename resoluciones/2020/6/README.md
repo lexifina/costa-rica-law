@@ -22,3 +22,4 @@ Resolución Conjunta de Alcance General para el Registro de Transparencia y Bene
 | 7 | 2021-11-26 | Resolución 33 (2021-11-26) |
 | 8 | 2022-03-24 | Resolución 10 (2022-03-24) |
 | 9 | 2022-04-25 | Resolución 13 (2022-04-25) |
+| 10 | 2023-03-06 | Resolución 4 (2023-03-06) |

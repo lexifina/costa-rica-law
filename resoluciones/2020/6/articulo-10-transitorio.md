@@ -1,0 +1,2 @@
+Transitorio X.—Las personas jurídicas y los fideicomisos obligados a presentar la declaración para el período 2023, por única vez, podrán hacerlo en el período comprendido entre el 01 de mayo de 2023 y hasta el 30 de junio del 2023, ambos días inclusive, en los años subsiguientes les corresponderá declarar de acuerdo con lo dispuesto en el artículo 6° de esta Resolución, es decir, en el mes de abril de cada año.
+(Así adicionado por el artículo 2° de la resolución N° MH-DGT/ICD-RES-0004-2023 del 6 de marzo del 2023)
