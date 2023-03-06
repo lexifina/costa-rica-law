@@ -1,0 +1,2 @@
+Artículo 42.-Regularización de la obra.
+Cuando el propietario inicia la tramitología para obtener los permisos respectivos, deberá presentar un oficio en el cual indique el plazo estimado de trámite y el nombre del profesional que lo asesora y acompaña en el proceso.

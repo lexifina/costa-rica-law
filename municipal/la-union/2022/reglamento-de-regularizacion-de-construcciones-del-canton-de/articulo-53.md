@@ -1,0 +1,2 @@
+Artículo 53.-Firmeza de la resolución.
+Se tendrá por firme todo acto final transcurrido un plazo de cinco días hábiles a partir de la notificación, sin que este haya formulado algún recurso procesal ni se haya notificado alguna medida cautelar de suspensión de efectos del acto. Con la firmeza de la resolución que ordena la demolición, se procederá a ejecutar la desocupación y/o demolición de la obra de conformidad con este Reglamento.

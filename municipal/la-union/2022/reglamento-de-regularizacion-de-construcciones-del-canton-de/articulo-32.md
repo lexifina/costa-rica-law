@@ -1,0 +1,2 @@
+Artículo 32.-Violación de sellos, desobediencia a la autoridad y denuncia penal.
+Para los casos de imposición de sellos y clausura de la obra, si el inspector corrobora en sus inspecciones diarias o mediante quejas una violación de sellos y/o desobediencia a la autoridad, comunicará mediante un informe de inspección al Coordinador de Inspección Urbano Constructiva de la Dirección de Desarrollo y Control Urbano.

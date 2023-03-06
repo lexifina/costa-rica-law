@@ -1,0 +1,2 @@
+Artículo 19.-Confirmación de documentos.
+Una vez en presencia del encargado de la obra o del propietario, el Inspector le solicitará presente los documentos que muestran la existencia de permiso municipal.

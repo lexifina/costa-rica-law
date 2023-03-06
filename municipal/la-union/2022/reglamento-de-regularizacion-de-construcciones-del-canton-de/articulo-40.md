@@ -1,0 +1,2 @@
+Artículo 40.-Información a otros departamentos.
+El Coordinador de Inspección de Control Urbano informará al departamento de Patentes y Recurso Hídrico que se realiza un proceso administrativo por no contar con permisos municipales, indicando la identificación de la propiedad donde se realizan los trabajos.

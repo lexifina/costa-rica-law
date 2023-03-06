@@ -1,0 +1,2 @@
+18.-Inspección en el sitio.
+Cuando se ubique una construcción, se solicitará el permiso de ingreso a la propiedad, requiriendo la presencia del encargado de la obra o del derechohabiente, a efectos de consignar en el informe si se otorgó o no permiso de ingreso.

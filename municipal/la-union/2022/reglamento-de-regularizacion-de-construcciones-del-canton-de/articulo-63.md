@@ -1,0 +1,2 @@
+Artículo 63.-De la notificación del acto.
+Corresponde a la Dirección de Desarrollo y Control Urbano, notificar el Acto de Apertura de recuperación del espacio, según lo indicado por el ordenamiento jurídico costarricense.

@@ -1,0 +1,2 @@
+Artículo 66.-Obstaculización del libre tránsito.
+Si la invasión a la vía pública estuviere cerrando total o parcialmente el libre tránsito, la Unidad Técnica de Gestión Vial Municipal de conformidad con sus competencias procederá a la recuperación del derecho de vía según la normativa que le aplica.

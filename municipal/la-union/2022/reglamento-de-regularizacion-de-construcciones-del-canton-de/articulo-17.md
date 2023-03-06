@@ -1,0 +1,2 @@
+Artículo 17.-Informes y fotografías.
+Los inspectores deberán documentar sus actuaciones mediante la elaboración de informes de inspección, así como fotografías para mejor respaldo. Estos insumos serán necesarios para motivar las actuaciones y serán trasladados al Coordinador de Inspección Urbano Constructiva.

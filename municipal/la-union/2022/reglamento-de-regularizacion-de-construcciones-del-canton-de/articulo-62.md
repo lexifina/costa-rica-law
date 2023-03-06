@@ -1,0 +1,3 @@
+Artículo 61.-Acto de apertura.
+Una vez se cuente con el informe técnico emitido por el Departamento de Recuperación de Bienes Inmuebles al Departamento de Inspección Urbano Constructiva de la Dirección de Desarrollo y Control Urbano, este procederá a emitir una resolución administrativa, otorgándole un único plazo de quince días hábiles para demoler y/o derribar al infractor. Su formato será definido por la Dirección de Desarrollo y Control Urbano.
+(Nota de Sinalevi: En este reglamento se publica dos veces el artículo 61. No obstante de análisis se deduce que realmente corresponde al artículo 62)

@@ -1,0 +1,2 @@
+Artículo 43.-De no regularizar la situación.
+Vencido el cómputo del plazo de treinta días hábiles se verificará la existencia de trámites, en caso de no haberlos presentado se continuará con el siguiente paso del proceso.
