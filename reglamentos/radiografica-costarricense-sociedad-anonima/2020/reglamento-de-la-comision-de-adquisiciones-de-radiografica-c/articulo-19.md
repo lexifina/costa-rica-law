@@ -1,1 +1,1 @@
-Artículo 19.—Los miembros de la Comisión, en su calidad de funcionarios públicos, son responsables de sus actos y responderán por sus actuaciones. En caso de incumplimiento de sus deberes, serán sancionados, de conformidad con el ordenamiento jurídico vigente.
+Artículo 19.-Vigilancia de la gestión. De conformidad con el artículo 91 de la Ley General de la Administración Pública, la Junta Directiva mantendrá la obligación de vigilar la gestión de la Comisión de Adquisiciones de RACSA, lo cual hará mediante un sistema de control interno.

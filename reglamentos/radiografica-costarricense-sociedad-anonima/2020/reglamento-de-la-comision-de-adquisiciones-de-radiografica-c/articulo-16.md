@@ -1,1 +1,1 @@
-Artículo 16.—Contra los actos y resoluciones de la Comisión de Adquisiciones de RACSA, procederán los recursos que establece el Reglamento para los procesos de contratación de las empresas del ICE.
+Artículo 16.-Voto en Contrario. Los miembros de la Comisión podrán hacer constar en la respectiva minuta, su voto contrario al acuerdo emitido y los motivos que lo justifiquen, quedando exento de las responsabilidades que en su caso pudieren derivarse de los acuerdos.

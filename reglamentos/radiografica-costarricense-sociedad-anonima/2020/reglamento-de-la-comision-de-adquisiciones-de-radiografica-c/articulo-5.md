@@ -1,5 +1,5 @@
-Artículo 5º—Facultades de los Miembros de la Comisión. Son atribuciones de los miembros de la Comisión de Adquisiciones de RACSA:
-5.1 Exponer y presentar oportunamente proyectos, proposiciones, sugerencias y mociones sobre asuntos que se sometan a su conocimiento que sean de interés para RACSA, así como solicitar la revisión, revocatoria o anulación de algún acuerdo.
-5.2 Hacer constar en la minuta, el voto negativo con el respectivo razonamiento del mismo.
-5.3 Coordinar, cuando lo considere necesario en razón de la trascendencia del asunto a discutir, o bien de la especialidad de la materia, un asesor ad hoc, que asista a la sesión para que participe en la discusión y esté disponible para atender las consultas que sobre el tema tuvieren los miembros.
-5.4 Cuando lo considere necesario en razón de la trascendencia del asunto a discutir, o bien de la especialidad de la materia a tratar, podrá solicitar a un funcionario de RACSA, que asista a la sesión para que exponga, y esté disponible para atender las consultas que sobre el tema tuvieren los miembros.
+Artículo 5º-Facultades de los Miembros de la Comisión. Son atribuciones de los miembros de la Comisión de Adquisiciones:
+a. Exponer y presentar oportunamente proyectos, proposiciones, sugerencias y mociones sobre asuntos que se sometan a su conocimiento que sean de interés para RACSA, así como solicitar la revisión, revocatoria o anulación de algún acuerdo.
+b. Hacer constar en la minuta el voto negativo con el respectivo razonamiento de este.
+c. Coordinar, cuando lo considere necesario debido a la trascendencia del asunto a discutir, o bien de la especialidad de la materia, un asesor ad hoc, que asista a la sesión para que participe en la discusión y esté disponible para atender las consultas que sobre el tema tuvieren los miembros.
+d. Cuando lo considere necesario debido a la trascendencia del asunto a discutir, o bien de la especialidad de la materia a tratar, podrá solicitar a un funcionario de RACSA, que asista a la sesión para que exponga, y esté disponible para atender las consultas que sobre el tema tuvieren los miembros.

@@ -1,1 +1,3 @@
-Artículo 20.—De conformidad con el artículo 91 de la Ley General de la Administración Pública, la Junta Directiva y la Gerencia General de RACSA mantendrán la obligación de vigilar la gestión de la Comisión de Adquisiciones de RACSA, lo cual hará mediante un sistema de control interno.
+CAPÍTULO III
+Disposiciones finales
+Artículo 20.-Vigencia. El presente Reglamento regirá a partir de su aprobación y publicación en el Diario Oficial La Gaceta.

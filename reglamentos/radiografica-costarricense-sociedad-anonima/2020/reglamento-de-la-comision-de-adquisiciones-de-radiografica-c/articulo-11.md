@@ -1,6 +1,3 @@
-SECCIÓN II
-De las minutas
-Artículo 11.—El Secretario levantará una minuta de la sesión, la cual indicará el nombre de los miembros asistentes, el lugar, fecha, hora de inicio y finalización, los puntos principales de discusión, la forma y resultado de las votaciones y el contenido de los acuerdos, los cuales quedaron en firme
-desde el momento de su adopción.
-Cuando algún miembro de la Comisión que quiera razonar su voto o hacer algún comentario y así lo quiera hacer constar en la minuta respectiva, lo señalará al Secretario en el momento de su intervención, para que así lo consigne, debiendo éste transcribir literalmente, que será aprobada por las partes.
-Una vez consensuado plenamente el contenido de la minuta por parte de los integrantes de la Comisión, todos procederán con la firma respectiva.
+Artículo 11.-De las Sesiones Virtuales.
+a. La Comisión podrá sesionar de forma virtual, siempre que haya interacción integral, multidireccional y en tiempo real entre los miembros del Órgano y todos aquellos que participen de la sesión. Las sesiones virtuales deberán realizarse por cualquier medio tecnológico que garantice los principios de colegialidad y simultaneidad que rigen el funcionamiento de los órganos colegiados.
+b. Cuando por motivos técnicos se pierda la interacción en tiempo real entre los participantes en la sesión, superior a diez minutos, se considerará interrumpida la participación del o de los miembros de la Comisión de Adquisiciones. Esta circunstancia deberá consignarse en la Minuta. No obstante, se mantendrá la sesión mientras permanezca el cuórum mínimo requerido. Las desconexiones menores a cinco minutos no se consignarán para efectos de la participación de alguno de los miembros.
