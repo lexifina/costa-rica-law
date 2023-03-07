@@ -1,1 +1,0 @@
-Artículo 9º—Formas de pago. Las compras podrán realizarse con dinero efectivo o cualquier otro medio de pago aceptado por el negocio proveedor. En caso de que el medio de pago utilizado involucre el pago de comisión, ésta no será reconocida o asumida por la Municipalidad, debiendo asumirla el funcionario en cuestión.

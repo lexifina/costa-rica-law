@@ -1,1 +1,0 @@
-Artículo 34.—Necesidad de presencia del encargado del fondo. Todo arqueo de caja chica se realizará en presencia del tesorero municipal, o del funcionario que él designe para tal efecto, quienes estarán obligados a brindar toda la colaboración.

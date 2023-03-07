@@ -1,1 +1,0 @@
-Artículo 35.—Arqueo de excepción. Si por caso fortuito o fuerza mayor el encargado del fondo se ausentara de su puesto y siendo necesario la utilización del fondo, se realizará un arqueo por parte del superior jerárquico del Tesorero y con la presencia de dos testigos, haciendo constar mediante un documento firmado, el resultado del mismo.

@@ -1,1 +1,0 @@
-Artículo 37.—Se confeccionarán reintegros de caja chica, cuando se haya consumido al menos el 60% del fondo fijo, con el propósito de darle la rotación óptima a los recursos y mantener la liquidez del fondo.

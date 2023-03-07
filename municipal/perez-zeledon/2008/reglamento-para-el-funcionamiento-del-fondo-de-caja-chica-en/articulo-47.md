@@ -1,3 +1,0 @@
-CAPÍTULO IX
-De las sanciones
-Artículo 47.—De las sanciones. Todo funcionario que hiciere mal uso o disposición no autorizada de los recursos de la Municipalidad, que en este Reglamento se establecen, estarán sujetos a las sanciones establecidas en la Ley General de la Administración Pública Nº 6227, la Ley General de Control Interno Nº 8292, la Ley de la Administración Financiera de la República y Presupuestos Públicos Nº 8131, la Ley de Contratación Administrativa Nº 7494 y su Reglamento, así como el Reglamento Autónomo de Organización y Servicios de la Municipalidad de Pérez Zeledón, Código Penal, Código Procesal Penal y demás normativa concordante que se refiera al control de fondos públicos.

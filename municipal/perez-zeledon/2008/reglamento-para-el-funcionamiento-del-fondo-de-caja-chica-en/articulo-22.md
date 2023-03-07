@@ -1,2 +1,0 @@
-Artículo 22.—Del trámite de la Alcaldía y la Tesorería. Una vez que el Alcalde o el funcionario que en el futuro se designe haya firmado los formularios, su despacho deberá trasladar los mismos, en el menor tiempo posible, a la Tesorería Municipal.
-La Tesorería deberá realizar las anotaciones respectivas y luego de aprobada la liquidación, informará al interesado, en forma verbal y por correo electrónico interno, para que éste formalice la liquidación, sea para reintegrar dinero sobrante o bien para retirar sumas a su favor.
