@@ -22,7 +22,8 @@ REQUISITOS TOXICOLÓGICOS
 1.4 Estudio de irritación dérmica (Guía Técnica número 404 OCDE). Este estudio se requerirá a menos que el producto sea un gas o sea altamente volátil; sea corrosivo para la piel o presente un pH menor a 2 o mayor a 11,5.
 1.5 Estudio de irritación ocular (Guía Técnica número 405 OCDE). Este estudio se requerirá a menos que el producto sea un gas o sea altamente volátil; sea corrosivo para los ojos o presente un pH menor a 2 o mayor a 11,5.
 1.6 Estudio de sensibilización de piel (Guía Técnica número 406 OCDE). Este estudio se requerirá en todos los casos, excepto cuando se conozca que el producto sea sensibilizante para la piel.
-REQUISITOS ECOTOXICOLÓGICOS Y DE DESTINO AMBIENTAL
+REQUISITOS ECOTOXICOLOGICOS(*)
+(*) (Así modificada su denominación por el artículo 3° del decreto ejecutivo N° 43961 del 7 de marzo del 2023. Anteriormente se indicaba: “REQUISITOS ECOTOXICOLOGICOS Y DE DESTINO AMBIENTAL”)
 Estudios para el perfil ecotoxicológico. Se deberá presentar la información disponible según las siguientes alternativas:
 1. El registrante podrá presentar la información respaldada técnica o científicamente que considere competente para justificar que las impurezas presentes no representan un aumento inaceptable de la peligrosidad de la nueva fuente en comparación con el perfil de referencia (por ejemplo: QSAR/SAR).
 2. El registrante podrá presentar los siguientes estudios ecotoxicológicos del IAGT a registrar, basado en la toxicidad de organismos acuáticos y terrestres (peces, dafnia, aves, abejas, algas). El registrante puede justificar la no presentación de alguno de los estudios mediante un informe basado en el modo y mecanismo de acción, solubilidad, volatilidad, estado físico u otros, según aplique en cada caso:
