@@ -1,0 +1,1 @@
+Artículo 11.-Los ingresos los recibirá únicamente el Departamento de Tesorería por medio de la Caja General. Por cada ingreso recibido deberá emitirse un recibo de caja, mediante el sistema informático, de forma consecutiva por caja autorizada, que deberá reflejar los recibos anulados.

@@ -1,0 +1,1 @@
+Artículo 27.-Cuando existan cheques con seis meses de entregados y no hayan sido cambiados por el beneficiario, el encargado de realizar las conciliaciones debe investigar la razón y si es del caso, efectuar los ajustes pertinentes, considerando anulado el cheque y trasladar el monto a una cuenta a pagar.

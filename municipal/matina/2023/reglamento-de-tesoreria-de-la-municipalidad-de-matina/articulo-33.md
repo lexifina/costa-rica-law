@@ -1,0 +1,1 @@
+Artículo 33.-El monto de vale de Caja Chica se mantendrá en la suma que determine el Concejo Municipal a solicitud de la Alcaldía Municipal, y será incrementado de acuerdo al índice de inflación a diciembre del año anterior según lo determine la Instituto Nacional de Estadística y Censos (INEC).

@@ -1,0 +1,3 @@
+CAPÍTULO VII
+Disposiciones generales
+Artículo 59.-La Tesorería es responsable de cualquier faltante de valores de los cuales es depositario. El plazo con que cuenta para justificarlo es de 24 horas después de que haya determinado, sin perjuicio de cualquier sanción que la falta amerite. En caso de sobrantes estos deberán depositarse inmediatamente a favor quién corresponda y en caso de faltantes requerirse al funcionario según corresponda. La Tesorería deberá efectuar las investigaciones del caso para determinar su origen, y en caso de no poderlo determinar, la suma sobrante será liquidada como un ingreso al finalizar el ejercicio.

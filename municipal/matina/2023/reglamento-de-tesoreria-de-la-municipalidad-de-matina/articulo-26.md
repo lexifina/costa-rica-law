@@ -1,0 +1,1 @@
+Artículo 26.-Cuando existan cheques en poder de la Tesorería con tres meses de emitidos, el Tesorero procederá a anularlos, para lo cual levantará una lista de ellos y los enviará junto con esta al archivo.

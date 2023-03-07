@@ -1,0 +1,1 @@
+Artículo 66.-Uso de Caja Chica. Todo funcionario que haga uso del fondo de Caja Chica, tiene la obligación de conocer el presente Reglamento; el incumplimiento del mismo será sancionado conforme a lo dispuesto en el Reglamento.

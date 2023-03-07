@@ -1,0 +1,1 @@
+Artículo 65.-Cuando un cheque sea anulado por error en su confección u otra causa que determina, la Tesorería estampará el sello de anulado en el original y copia del cheque. Cuando la anulación es posterior al día de la emisión del cheque, el Tesorero enviará nota al encargado municipal o al Contador de la Municipalidad.

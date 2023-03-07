@@ -1,0 +1,1 @@
+Artículo 4º-Queda prohibido la entrada de particulares que no tengan un trámite administrativo relacionado a las funciones de la tesorería municipal al Departamento de Tesorería. Los funcionarios municipales podrán ingresar con previa autorización por la Tesorería Municipal.

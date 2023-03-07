@@ -1,0 +1,1 @@
+Artículo 48.-Se procederá a realizar arqueos al saldo de cada cuenta bancaria del fondo fijo de Caja Chica, de forma sorpresiva con el propósito de verificar, supervisar y controlar la aplicación de las normas de auditoria vigentes y de las sanas prácticas de la Administración.

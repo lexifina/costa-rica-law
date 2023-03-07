@@ -1,0 +1,1 @@
+Artículo 63.-Los formularios de cheque serán guardados en la Tesorería Municipal, y las chequeras en uso estarán en poder de la Contabilidad, para el retiro de los cheques se dejará constancia de la entrega a contabilidad por parte de tesorería.

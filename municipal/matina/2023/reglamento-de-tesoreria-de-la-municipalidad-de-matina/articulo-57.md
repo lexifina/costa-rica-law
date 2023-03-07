@@ -1,0 +1,1 @@
+Artículo 57.-Los encargados de Caja Chica, y por ningún motivo podrán suplir con su dinero, compras o pagos que correspondan a la Municipalidad, salvo en casos emergentes, que se justificarán para el caso con el aval de la Jefatura inmediata del funcionario que solicito el vale de caja chica.

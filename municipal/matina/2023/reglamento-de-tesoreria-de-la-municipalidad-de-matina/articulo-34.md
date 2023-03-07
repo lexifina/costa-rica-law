@@ -1,0 +1,1 @@
+Artículo 34.-Corresponde al Concejo Municipal, mediante el correspondiente acuerdo que emanan de su seno, variar el monto establecido para este fondo, según solicitud escrita y justificada que le haga la Alcaldía Municipal.

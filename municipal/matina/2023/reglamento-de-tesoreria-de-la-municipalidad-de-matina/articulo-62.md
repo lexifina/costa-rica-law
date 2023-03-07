@@ -1,0 +1,1 @@
+Artículo 62.-La custodia de formularios continuos de cheques en bodega, estarán bajo la responsabilidad de Tesorería y Contabilidad Municipal, quienes llevarán los registros necesarios para controlar el uso y la cantidad mínima, a efecto de que realicen los trámites para nuevas impresiones.

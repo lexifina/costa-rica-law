@@ -1,0 +1,1 @@
+Artículo 51.-Cuando el Tesorero Municipal sea sustituido por otra persona que ocupe temporalmente ese cargo, por vacaciones o cualquier otro motivo, se realizará un arqueo del cual se dejará constancia escrita, con la firma del Tesorero y de la persona que lo sustituirá. Igual procedimiento se utilizará cuando el titular de la Tesorería Municipal se reintegre a su puesto.

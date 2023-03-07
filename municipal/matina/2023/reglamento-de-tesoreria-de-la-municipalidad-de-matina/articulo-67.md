@@ -1,0 +1,1 @@
+Artículo 67.-Las sanciones que correspondan, según lo dispuesto en el artículo anterior, serán aplicadas por el Despacho del Alcalde Municipal, a través de la Coordinación de Recursos Humanos, conforme lo establece la Convención, Código Municipal y Código de Trabajo.

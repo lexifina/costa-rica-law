@@ -1,0 +1,1 @@
+Artículo 21.-La Tesorería Municipal, llevará un auxiliar de los comprobantes que amparen los pagos, de forma separada por cada cuenta bancaria, deberán ser marcados con sello, el cual contenga la leyenda de: "pagado o cancelado con la transferencia o cheque Número__".

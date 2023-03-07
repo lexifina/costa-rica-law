@@ -1,0 +1,1 @@
+Artículo 14.-Todos los pagos se efectuarán por medios electrónicos y en caso de ser necesario mediante cheque, incluyendo los que corresponde hacer por Caja Chica o los pagos a funcionarios por ajuste que sean por bajos montos según criterio del Tesorero Municipal. Para la elaboración del cheque, se requiere la autorización respectiva del documento o documentos que los respalden.
