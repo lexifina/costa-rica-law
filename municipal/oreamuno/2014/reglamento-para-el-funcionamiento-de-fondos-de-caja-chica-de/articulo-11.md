@@ -1,4 +1,0 @@
-Artículo 11.—Las facturas o recibos de las adquisiciones efectuadas con fondos de la Caja Chica, que servirán como comprobante del egreso, deberán cumplir con los siguientes requisitos:
-a. Ser documentos originales, estar timbrados o dispensados del mismo por la Dirección General de la Tributación del Ministerio de Hacienda y estar emitidos en favor de la Municipalidad.
-b. Especificar claramente el detalle de la compra o servicio recibido, la cual deberá ser igual o posterior a la fecha en la que se entrega el efectivo del vale. Por ningún motivo, deben contener tachaduras ni borrones.
-c. Si la factura no tiene logotipo por pertenecer el proveedor al régimen simplificado, debe indicarse el nombre, el número de cédula de la persona física o jurídica que suministra el bien o servicio y sus especificaciones, así como el número de resolución otorgado por la Dirección General de Tributación Directa.

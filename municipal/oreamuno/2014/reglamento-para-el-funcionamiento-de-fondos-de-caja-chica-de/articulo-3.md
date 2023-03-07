@@ -1,1 +1,0 @@
-Artículo 3º—El monto total del fondo de caja chica será de 300 mil colones y el monto de pago máximo por vale será de 30 mil colones, pudiéndose actualizar con aprobación del Concejo Municipal previa solicitud de la Alcaldía, será utilizado para el pago de gastos menores y urgentes.

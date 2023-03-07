@@ -1,1 +1,0 @@
-Artículo 7º—La Caja Chica recibirá devoluciones de dinero, únicamente en efectivo, sin excepción de ninguna clase, asimismo deberá ser en moneda nacional de curso. No podrán recibirse para este fondo notas de crédito.

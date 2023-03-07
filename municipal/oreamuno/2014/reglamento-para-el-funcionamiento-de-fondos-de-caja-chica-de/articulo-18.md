@@ -1,1 +1,0 @@
-Artículo 18.—Todo arqueo de caja chica se realizará en presencia del tesorero municipal y podrán realizarse tanto por la Alcaldía, el Encargado del Área Financiera o por el Auditor Municipal.
