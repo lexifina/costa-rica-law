@@ -28,3 +28,4 @@ recursos al centro nacional
 de formación y capacitación.
 )
 (Modificado por el artículo 1° del decreto ejecutivo N° 43943 del 23 de febrero de 2023)
+(Modificado por el artículo 1° del decreto ejecutivo N° 43957 del 7 de marzo del 2023)
