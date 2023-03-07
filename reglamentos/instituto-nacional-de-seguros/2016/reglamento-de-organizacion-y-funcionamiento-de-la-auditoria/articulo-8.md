@@ -1,1 +1,1 @@
-Artículo 8°—Actualización del ámbito de acción. La Auditoría Interna definirá y mantendrá actualizado el ámbito de acción, denominado Universo Auditable, el cual debe ser revisado y actualizado una vez al año, antes de realizar el proceso de planificación anual.
+Artículo 8°-Actualización del ámbito de acción. La Auditoría Interna definirá y mantendrá actualizado el ámbito de acción, denominado Universo Auditable, el cual debe ser revisado y actualizado una vez al año, antes de realizar el proceso de planificación anual.

@@ -1,3 +1,2 @@
-CAPÍTULO V
-Disposiciones finales
-Artículo 75°—Modificación. El presente Estatuto modifica el Reglamento de Organización y Funcionamiento de la Auditoría del Instituto Nacional de Seguros, publicado en el Diario Oficial La Gaceta 239 del 13 de diciembre del 2016, Alcance 305.
+Artículo 75°-Colaboración. En el desarrollo de las investigaciones, las Auditorías Internas del Grupo INS, podrán brindarse apoyo entre ellas, tales como asesoría, insumos, o intercambio de experiencias; pudiendo incluso efectuar análisis conjuntos cuando lo estimen pertinente y las condiciones propias del caso particular lo permitan; sin que eso implique compartir o delegar las competencias propias de cada auditoría.
+Quienes colaboren con las Auditorías Internas en la realización de investigaciones por presuntos hechos irregulares no tendrán acceso a la identidad del denunciante. En aquella información a la que lleguen a tener acceso producto de la colaboración brindada, quedan sujetos a las reglas de confidencialidad previstas en los lineamientos correspondientes.

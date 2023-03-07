@@ -1,1 +1,1 @@
-Artículo 56°—Evaluaciones continuas de la calidad. La Auditoría Interna deberá realizar continuamente evaluaciones y monitoreo de la calidad del trabajo de Auditoría, en función de la normativa técnica y jurídica relacionada.
+Artículo 56°-Evaluaciones continuas de la calidad. La Auditoría Interna deberá realizar continuamente evaluaciones y monitoreo de la calidad del trabajo de Auditoría, en función de la normativa técnica y jurídica relacionada.

@@ -1,1 +1,1 @@
-Artículo 76°—Aprobación. Este Reglamento fue aprobado por la Junta Directiva del Instituto Nacional de Seguros en la sesión extraordinaria No. 9609 del 27 de agosto, 2020.
+Artículo 76°-Denuncia Penal. Cuando las diligencias de investigación acrediten la existencia de elementos suficientes para considerar al menos en grado de probabilidad la ocurrencia de un delito, la Auditoría Interna deberá elaborar una denuncia penal, la cual será remitida al Ministerio Público; para lo cual, se podrá coordinar lo correspondiente con dicha instancia en cualquier etapa del proceso.

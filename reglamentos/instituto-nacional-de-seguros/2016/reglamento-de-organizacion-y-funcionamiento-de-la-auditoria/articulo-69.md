@@ -1,1 +1,4 @@
-Artículo 69°—Procedimientos de investigación. El proceso de análisis de presuntos hechos irregulares constituye un proceso distinto de los tipos de auditorías que se regulan en las “Normas Generales de Auditoría para el Sector Público”, a saber: auditorías financieras, auditorías operativas y auditorías de carácter especial.
+Artículo 69°-Comunicación al denunciante en caso de denuncias suscritas. En tanto el denunciante haya especificado su nombre, calidades y lugar de notificación, se le deberá comunicar cualquiera de las siguientes resoluciones:
+a) La desestimación y archivo de la denuncia.
+b) El traslado a otra instancia interna o externa.
+c) El resultado final de la investigación, sin aportar información, documentación u otras evidencias inherentes a la investigación.

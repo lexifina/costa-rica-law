@@ -1,1 +1,1 @@
-Artículo 72°—Sobre la Comunicación de resultados. En cuanto a la comunicación verbal de resultados (conferencia final), se debe tener en cuenta que esta no procede efectuarla respecto de las Relaciones de Hechos.
+Artículo 72°-Procedimientos de investigación. El proceso de análisis de presuntos hechos irregulares constituye un proceso distinto de los tipos de auditorías que se regulan en las "Normas Generales de Auditoría para el Sector Público", a saber: auditorías financieras, auditorías operativas y auditorías de carácter especial.

@@ -75,3 +75,5 @@ articulo-74.md
 articulo-75.md
 articulo-76.md
 articulo-77.md
+articulo-78.md
+articulo-79.md

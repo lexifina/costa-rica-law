@@ -1,2 +1,6 @@
-Artículo 60°—Confidencialidad
-De acuerdo con lo señalado en el artículo 6 de la Ley General de Control Interno y en el artículo 8 de la Ley Contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública, la identidad de los denunciantes, la información, la documentación y otras evidencias serán confidenciales.
+Artículo 60°-Principios. En concordancia con el marco jurídico aplicable, para la realización de investigaciones de presuntos hechos irregulares, la Auditoría Interna deberá cumplir con los siguientes principios:
+a) Principio de legalidad.
+b) Principio de celeridad.
+c) Principio de independencia.
+d) Principio de objetividad.
+e) Principio de oficiosidad

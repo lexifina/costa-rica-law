@@ -1,1 +1,1 @@
-Artículo 7°—Ámbito de acción. La Auditoría ejercerá sus competencias en todas las dependencias, órganos, procesos, actividades y otros que conforman el Instituto Nacional de Seguros y sobre los recursos públicos sujetos a su competencia institucional.
+Artículo 7°-Ámbito de acción. La Auditoría ejercerá sus competencias en todas las dependencias, órganos, procesos, actividades y otros que conforman el Instituto Nacional de Seguros y sobre los recursos públicos sujetos a su competencia institucional.
