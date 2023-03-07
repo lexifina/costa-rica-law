@@ -14,3 +14,4 @@ Reforma integral Reglamento de organización y funcionamiento de la auditoría i
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-01-05 | la propia norma |
+| 2 | 2023-03-07 | Reglamento 9772 (2023-03-07) |
