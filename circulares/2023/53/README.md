@@ -13,3 +13,4 @@ Cambio de tecnología para la continuidad del servicio, en la Unidad de Atenció
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-03-06 | la propia norma |
+| 2 | 2023-03-07 | Circular 55 (2023-03-07) |
