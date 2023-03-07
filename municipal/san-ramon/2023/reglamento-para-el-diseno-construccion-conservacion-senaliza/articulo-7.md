@@ -1,0 +1,1 @@
+Artículo 7°-La Municipalidad ejecutará las obras de reparación o sustitución de manera directa, de forma tal que el servicio no se vea afectado, de conformidad con el artículo 16 de la Ley de Movilidad Peatonal N° 9976.

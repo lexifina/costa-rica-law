@@ -1,0 +1,2 @@
+Artículo 6°-Deberes de las personas propietarias o poseedoras. Queda prohibido la colocación de cualquier elemento que obstruya el libre tránsito en la vía pública.
+Para efectuar alteraciones o reparaciones de construcciones que afecten el libre tránsito y la seguridad de las personas peatonas, el propietario o poseedor debe solicitar a la municipalidad el permiso para el cierre temporal de aceras y establecer una ruta alterna que complete el espacio caminable y accesible como alternativa segura durante toda la intervención, esto con previa autorización Municipal.
