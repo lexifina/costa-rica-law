@@ -1,0 +1,1 @@
+Artículo 15.-La firma Beneficiadora y Tostadora que se encuentre en desacuerdo con la resolución emitida por el ICAFE, podrá interponer los recursos pertinentes de acuerdo con lo establecido en la Ley General de la Administración Pública.

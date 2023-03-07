@@ -1,0 +1,1 @@
+Artículo 21.-Las empresas Beneficiadoras y Tostadoras que decidan voluntariamente ingresar al Programa Café bajo en emisiones, deberá declarar ante el ICAFE mediante una Declaración Jurada la cantidad de café que se encuentra en sus bodegas, con el fin de determinar las cantidades de café costarricense.

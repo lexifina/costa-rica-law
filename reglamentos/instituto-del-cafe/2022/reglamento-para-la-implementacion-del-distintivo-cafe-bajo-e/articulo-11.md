@@ -1,0 +1,7 @@
+CAPÍTULO IV
+Del procedimiento de inscripción
+Artículo 11.-La firma Beneficiadora y Tostadora interesada que cumpla con los requisitos indicados en el capítulo anterior deberá:
+a) Realizar la solicitud formal del uso distintivo "Café bajo en emisiones" mediante el formulario de solicitud dispuesto en la página web de ICAFE.
+b) La Unidad de Asuntos Jurídicos del ICAFE verificará: código activo de la Firma Beneficiadora y Tostadora, donde se describan los datos generales del beneficio y la tostadora, los nombres de la (o las) marcas o nombres comerciales de la empresa, elaboradas con café bajo en emisiones, la cantidad de distintivos que requieren para cubrir su producción durante 12 meses y demás requisitos establecidos en el artículo 8 del presente reglamento.
+c) Suministrar sus inventarios de GEI de al menos 1 año previa a la solicitud mediante el CR-CAFE, el cuál será debidamente revisado por la Unidad de Industrialización y Sección de Control de Calidad.
+d) Al completar el formulario a través de la página web del ICAFE, el solicitante autorizará de manera expresa al personal de la Institución, a gestionar las inspecciones necesarias en las plantas Beneficiadoras y Torrefactora, así como brindar la documentación necesaria en aras de corroborar que los productores a los cuales les han recibido el café en fruta cuentan con buenas prácticas agrícolas (BPA) y/o forman parte del Proyecto NAMA Café de Costa Rica.

@@ -1,0 +1,2 @@
+Artículo 28.-Rige a partir de su publicación en el Diario Oficial La Gaceta.
+Aprobado por la Junta Directiva del ICAFE, según el acuerdo 6, del acta N° 2379, con fecha de sesión del 21/12/2022 y a través de la aprobación final que emitirá la Unidad de Asuntos Jurídicos del ICAFE con la firma de la Jefatura de dicha Unidad, el interesado que envíe la información solicitada y desee participar del proceso, recibirá una resolución final del caso

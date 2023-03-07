@@ -1,0 +1,1 @@
+Artículo 16.-La utilización del distintivo y su colocación en el empaque, no tendrá ningún cobro económico por parte de ICAFE; sin embargo, el Beneficiador y Tostador asumirán el valor de los distintivos que cubran su producción máxima aprobada por ICAFE.

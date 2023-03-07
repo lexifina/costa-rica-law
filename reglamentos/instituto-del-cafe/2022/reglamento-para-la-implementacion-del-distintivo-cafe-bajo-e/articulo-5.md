@@ -1,0 +1,1 @@
+Artículo 5°-El logo y/o los diseños que identifican el distintivo "Café bajo en emisiones", no pueden ser utilizados bajo ningún concepto, por ninguna persona o firma Beneficiadora y Tostadora sin previa autorización por escrito del Instituto del Café de Costa Rica.

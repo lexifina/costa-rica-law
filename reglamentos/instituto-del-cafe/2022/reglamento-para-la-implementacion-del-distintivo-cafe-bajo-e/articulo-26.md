@@ -1,0 +1,1 @@
+Artículo 26.-Si la autorización del distintivo fuera suspendida o cancelada a una empresa Beneficiadora y Tostadora, el solicitante estará en la obligación de cesar inmediatamente la publicidad relacionada con el distintivo y en un plazo no mayor de 30 días, deberá retirar el producto que tenga el distintivo del mercado.

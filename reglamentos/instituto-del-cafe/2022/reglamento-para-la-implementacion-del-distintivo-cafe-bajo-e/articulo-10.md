@@ -1,0 +1,1 @@
+Artículo 10.-El distintivo estará sujeto a inspecciones periódicas realizadas por el Instituto del Café de Costa Rica. La infracción a alguna de las normas establecidas para verificar el origen y trazabilidad del café, las buenas prácticas agrícolas, será causal de pérdida en el uso del distintivo "Café bajo en emisiones."

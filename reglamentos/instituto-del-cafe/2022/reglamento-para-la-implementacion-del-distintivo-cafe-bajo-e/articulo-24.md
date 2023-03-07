@@ -1,0 +1,1 @@
+Artículo 24.-El distintivo "Café bajo en emisiones" podrá ser utilizado en los empaques de las diferentes presentaciones en las marcas propiedad de las Empresas Tostadoras. De igual forma, dicho sello podrá ser utilizado en publicaciones, artículos promocionales y actividades en las que participen las firmas Tostadoras.

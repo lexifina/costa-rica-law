@@ -1,0 +1,1 @@
+Artículo 18.-El café de origen 100% costarricense, deberá encontrarse debidamente empacado e identificado de acuerdo con lo establecido en el presente reglamento y en la normativa conexa que refiere al tema.
