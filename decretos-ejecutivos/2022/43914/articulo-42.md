@@ -1,0 +1,1 @@
+Artículo 42º - Ejecución de los estudios de auditoría interna. El desarrollo de las diferentes etapas que conlleva la ejecución de los estudios de auditoría interna, se regirá por las normas técnicas emitidas por la Contraloría General de la República, así como los procedimientos y directrices para la ejecución de los trabajos de la Auditoría Interna.

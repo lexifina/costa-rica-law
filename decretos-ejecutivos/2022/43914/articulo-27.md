@@ -1,0 +1,1 @@
+Artículo 27º - Archivo digital. La Auditoría Interna deberá disponer y mantener actualizado todas las regulaciones legales y técnicas que afecten su ámbito de acción y su actividad, mediante el acopio digital de las mismas en los sistemas de información, a efecto de fortalecer la política cero papeles.

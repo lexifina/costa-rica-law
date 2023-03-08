@@ -1,0 +1,1 @@
+Artículo 22º - Ámbito de acción. La Auditoría Interna ejercerá sus competencias en todas las unidades y dependencias de la Imprenta, por tal razón es responsabilidad del Auditor Interno definir y mantener actualizado el Universo Auditable.

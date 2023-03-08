@@ -1,0 +1,4 @@
+Artículo 10° - Del personal de la Auditoría Interna. Corresponde el Auditor Interno en cuanto al personal a su cargo lo siguiente:
+a) Autorizar los movimientos de personal y la disminución o aumento de las plazas de la Auditoría Interna, de conformidad con lo que establecen los artículos 24 y 28 de la Ley General de Control Interno Nº 8292 y demás normas aplicables.
+b) Gestionar oportunamente ante la Oficina de Gestión Institucional de Recursos Humanos, la ocupación de las plazas vacantes de la Auditoría Interna; disponiendo de ellas de conformidad con las regulaciones o políticas institucionales y la normativa vigente.
+c) Vigilar y tomar las decisiones que correspondan, para que los funcionarios de la Auditoría Interna cumplan en el ejercicio de sus competencias, con la normativa jurídica y técnica pertinente, así como con las políticas, procedimientos, prácticas y demás disposiciones administrativas que le sean aplicables.

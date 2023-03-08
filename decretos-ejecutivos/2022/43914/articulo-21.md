@@ -1,0 +1,1 @@
+Artículo 21 º - Delegación de funciones. El Auditor Interno podrá delegar a su personal las funciones asignadas por fey, utilizando criterios de idoneidad y conforme lo establece la Ley General de Administración Pública Nº 6227, en su artículo 89.

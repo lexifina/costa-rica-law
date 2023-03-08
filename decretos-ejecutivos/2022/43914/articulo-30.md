@@ -1,0 +1,1 @@
+Artículo 30º - Informe de labores. Una vez concluido el año de trabajo y a más tardar el 30 de enero del siguiente año, el Auditor Interno presentará al Ministro, un informe de labores que detallará los trabajos ejecutados y el resultado del seguimiento de recomendaciones efectuado en el año.

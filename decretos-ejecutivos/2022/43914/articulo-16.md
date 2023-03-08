@@ -1,0 +1,2 @@
+Sección III - Otros asuntos administrativos
+Artículo 16º - Horarios. El personal de la Auditoría Interna deberá laborar en el horario dispuesto por la Administración, asimismo estarán sometidos a las mismas disposiciones administrativas institucionales en esta materia. El Auditor y Sub-Auditor Interno, debido a la naturaleza de sus funciones y la independencia funcional y de criterio que deben mantener, estarán exentos de controles administrativos y de la marca de asistencia.

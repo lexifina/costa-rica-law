@@ -1,0 +1,1 @@
+Artículo 14 ° - Anteproyecto de presupuesto de la Auditoría Interna. Le corresponderá al Auditor Interno proponer, someter y defender el anteproyecto de presupuesto para el ejercicio presupuesta! respectivo, a efecto de que se otorgue su aprobación.

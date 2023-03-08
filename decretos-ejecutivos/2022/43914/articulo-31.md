@@ -1,0 +1,1 @@
+Artículo 31 º- Supervisión. El Auditor Interno deberá supervisar todas las labores de la Auditoría Interna, de acuerdo con el tamaño y organización de la auditoría interna, para asegurar el logro de sus objetivos, la calidad de sus servicios y el desarrollo profesional de sus funcionarios.

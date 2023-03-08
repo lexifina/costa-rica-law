@@ -1,0 +1,1 @@
+Artículo 19º - Aseguramiento de la calidad. El Auditor Interno debe instaurar y velar por la aplicación de los procesos necesarios para el aseguramiento de la calidad en el ejercicio de la auditoría interna, mediante evaluaciones internas y externas, según lo dispuesto en las "Normas para el ejercicio de la auditoría interna en el Sector Público".

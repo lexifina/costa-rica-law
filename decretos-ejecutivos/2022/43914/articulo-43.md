@@ -1,0 +1,3 @@
+Sección III - De la comunicación de resultados
+Artículo 43°- Forma de comunicación. La comunicación de resultados es la actividad en el proceso de auditoria mediante la cual se informa al Jerarca y titulares subordinados de manera oral y por escrito, los resultados del trabajo realizado.
+Durante el desarrollo de un estudio de auditoría o estudio especial, se podrán emitir informes parciales o bien informes finales (de control interno y de presuntos hechos irregulares), documentos de asesoría y de advertencia, si las implicaciones de los hallazgos encontrados lo ameritan, a juicio del Auditor Interno.

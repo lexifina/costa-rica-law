@@ -1,0 +1,1 @@
+Artículo 60º - Admisibilidad de las denuncias anónimas. Se dará tramite a las denuncias que sean presentadas en forma anónima, cuando contengan elementos de prueba que den mérito para ello y se encuentren soportados en medios probatorios idóneos que permitan iniciar la investigación. En caso contrario, el Auditor Interno dispondrá su archivo sin más trámite.

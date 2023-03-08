@@ -1,0 +1,16 @@
+CAPITULO III
+Sobre el Desarrollo del Trabajo
+Sección I - Competencias, deberes y potestades
+Artículo 37º - Competencias. De conformidad con la Ley General de Control Interno Nº 8292, compete a la Auditoría Interna:
+a) Realizar auditorías o estudios especiales, con relación a los fondos públicos sujetos a su competencia institucional, incluidos fideicomisos, fondos especiales y otros de naturaleza similar. Efectuar auditorías y estudios especiales sobre fondos y actividades privadas, al tenor de lo dispuesto en los artículos 5 y 6 de la Ley Orgánica de la Contraloría General de la República, en el tanto éstos se originen en transferencias efectuadas por dependencias de su competencia institucional.
+b) Verificar el cumplimiento, la validez y la suficiencia del sistema de control interno de su competencia institucional, informar de ello al Ministro, titular subordinado y proponer las medidas correctivas que sean pertinentes.
+c) Verificar que la administración activa tome las medidas de control interno señaladas en la Ley General de Control Interno Nº 8292, en los casos de desconcentración de competencias, o bien la contratación de servicios de apoyo con terceros; asimismo, examinar regularmente la operación efectiva de los controles críticos, en esas unidades desconcentradas o en la prestación de tales servicios.
+d) Asesorar, en materia de su competencia, al Ministro, Junta Administrativa, Jerarca y sus subordinados; además, advertir a los órganos pasivos a los que les brinda los diferentes servicios de auditoría interna, las posibles consecuencias de determinadas conductas o decisiones, cuando sean de su conocimiento.
+e) Autorizar, mediante razón de apertura, los libros de contabilidad y de actas (impresos y/o digitales) que deban llevar los órganos sujetos a su competencia institucional y los otros libros que, a criterio del Auditor Interno sean necesarios para el fortalecimiento del sistema de control interno.
+f) Preparar los planes de trabajo en conjunto con su equipo, de conformidad con los lineamientos que establece la Contraloría General de la República.
+g) Elaborar un informe anual de la ejecución del plan de trabajo y del estado de las recomendaciones de la Auditoría Interna, de la Contraloría General de la República y de los despachos de los contadores públicos; en los últimos dos casos, cuando sean de su conocimiento y conforme a las directrices emitidas al respecto, sin perjuicio de que se elaboren informes periódicos accesorios y se presenten al Ministro o titulares subordinados cuando las circunstancias lo ameriten.
+h) Mantener debidamente actualizado el Reglamento de Organización y Funcionamiento de la Auditoría Interna.
+i) Presentar al Ministro, el plan de trabajo anual y sus modificaciones.
+j) Atender y canalizar las denuncias recibidas sobre presuntos hechos irregulares cometidos.
+k) Comunicar mediante informe de relación de hechos, los incumplimientos injustificados que documente con su labor de seguimiento o que determine con las verificaciones que realiza, que podrían derivar en posibles responsabilidades administrativas o de otro tipo.
+l) Las demás competencias que contemplen la normativa legal, reglamentaria y técnica aplicable, con las limitaciones establecidas en el artículo 34 de la Ley General de Control Interno Nº 8292.

@@ -1,0 +1,2 @@
+Sección V - De la planificación y supervisión
+Artículo 28 º- Planificación estratégica. El Auditor Interno gestionará cada cuatro años junto al personal de auditoría, el desarrollo de la planificación estratégica de la Auditoría Interna, tal cual es requerido por las normas vigentes de la Contraloría General de la República. En dicha sesión se deberá establecer la visión y la orientación de la Auditoría Interna. Adicionalmente, cada año se desarrollará el plan anual operativo.

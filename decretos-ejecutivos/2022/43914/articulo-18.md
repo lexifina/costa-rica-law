@@ -1,0 +1,1 @@
+Artículo 18º - Pericia y debido cuidado profesional. El Auditor Interno, el Sub-Auditor y demás miembros de la Auditoría Interna, deberán cumplir con pericia y debido cuidado profesional sus funciones, haciendo valer sus competencias con independencia funcional y de criterio.

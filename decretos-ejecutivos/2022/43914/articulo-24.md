@@ -1,0 +1,5 @@
+Artículo 24° - Impedimentos del personal de la Auditoría Interna. Con el propósito de preservar su independencia de criterio, objetividad y ética profesional, el personal de la Auditoría Interna tendrá los siguientes impedimentos:
+a) Utilizar su cargo con propósitos de carácter privado.
+b) En caso de existir alguna limitan te de un funcionario de la Auditoría Interna para realizar un trabajo de Auditoría, debido a una relación de amistad o sentimental con algún funcionario de la Imprenta Nacional, el funcionario de la Auditoría Interna debe comunicárselo inmediatamente al Auditor Interno, para que este pueda inhibirlo de continuar con el trámite de la investigación.
+c) Participar en Auditorías en lugares donde laboren funcionarios que tengan algún parentesco de hasta un tercer de consanguinidad, con el funcionario responsable de la Auditoría.
+d) Participar en la prestación de servicios de auditoría, para una actividad de la Administración Activa, donde el funcionario tomó decisiones y se relacionó con personas que puedan resultar incompatibles, durante un período de 5 años.
