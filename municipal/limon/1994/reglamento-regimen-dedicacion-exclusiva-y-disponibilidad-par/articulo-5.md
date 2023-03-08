@@ -1,1 +1,0 @@
-Artículo 5°—Se entenderá por porcentaje adicional sobre el salario base, la distribución que hará la Municipalidad a los trabajadores que son profesionales y que opten por acogerse al régimen de dedicación exclusiva o al de disponibilidad en la forma que fija este reglamento en los artículos siguientes.
