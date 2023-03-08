@@ -1,0 +1,1 @@
+Artículo 55. - Quedará libre de los compromisos adquiridos ante el otorgamiento de una beca, el funcionario que interrumpa sus estudios por prescripción médica. El funcionario tendrá que presentar al Departamento de Recursos Humanos, incapacidad, certificado médico o epicrisis extendido por el Institución de salud estatal.

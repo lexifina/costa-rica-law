@@ -1,0 +1,1 @@
+Artículo 178.- En todo aquello no previsto en este Reglamento sobre acoso u hostigamiento sexual, rige la Ley 7476 de 3 de febrero de 1995, "Ley contra Hostigamiento o Acoso Sexual en el Empleo y la Docencia"

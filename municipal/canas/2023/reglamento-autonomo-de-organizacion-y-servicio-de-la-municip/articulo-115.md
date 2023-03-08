@@ -1,0 +1,2 @@
+Artículo 115. - Cuando se presente en caso de emergencia o de urgencia en el trabajo y se considere que la solución del problema podría estar en el regreso inmediato del servidor (a) en vacaciones, podrá pedirse a éste (a) su regreso, sin que ello represente obligación para el servidor (a) o represalias en su contra. La notificación del requerimiento deberá de ser personalísima al servidor.
+Si está anuente, se interrumpirá el disfrute por todo el tiempo que sea necesario, y al término de la situación que la originó, continuará el servidor (a) el disfrute de su derecho.

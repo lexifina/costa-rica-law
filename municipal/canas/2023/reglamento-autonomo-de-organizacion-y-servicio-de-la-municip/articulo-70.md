@@ -1,0 +1,1 @@
+Artículo 70. - La compensación económica por concepto de prohibición del ejercicio liberal de la profesión y dedicación exclusiva, se regulará conforme con las disposiciones de la Ley N°9635 sus reformas y la normativa existente sobre la materia.

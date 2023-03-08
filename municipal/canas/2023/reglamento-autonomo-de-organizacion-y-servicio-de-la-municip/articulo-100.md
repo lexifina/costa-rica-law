@@ -1,0 +1,1 @@
+Artículo 100- Contra la resolución del Órgano Decisor, cabrá recurso de revocatoria con apelación en subsidio, pudiendo presentar ambos recursos o solo uno de ellos, dentro de los cinco días hábiles contados a partir del día siguiente de la notificación de la resolución.

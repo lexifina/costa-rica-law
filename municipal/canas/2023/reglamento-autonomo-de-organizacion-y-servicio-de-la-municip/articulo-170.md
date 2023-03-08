@@ -1,0 +1,1 @@
+Artículo 170: Toda cita para testigos de acuerdo al artículo anterior que se curse, deberá hacerse por escrito, mediando entre la fecha en que se entrega la cita y aquella en que debe comparecer, en un plazo de un día hábil.

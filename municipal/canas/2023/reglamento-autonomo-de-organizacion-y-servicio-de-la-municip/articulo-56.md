@@ -1,0 +1,1 @@
+Artículo 56. - El Departamento de Recursos Humanos, para otorgar una beca a un funcionario municipal, deberá preparar un estudio y presentarlo al Alcalde, según los parámetros establecidos dentro del reglamento de Becas.

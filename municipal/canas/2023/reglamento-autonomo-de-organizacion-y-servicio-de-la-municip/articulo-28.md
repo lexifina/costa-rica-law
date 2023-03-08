@@ -1,0 +1,1 @@
+Artículo 28- Los funcionarios contratados bajo la modalidad de occionales no tienen considerado en su pago el día de descanso obligatorio, dado que el cálculo se establece tomando como base las horas o días trabajados o la tarea realizada. La relación laboral de quienes se contratan en forma ocasional, no puede exceder de los plazos que determinan las leyes existentes.

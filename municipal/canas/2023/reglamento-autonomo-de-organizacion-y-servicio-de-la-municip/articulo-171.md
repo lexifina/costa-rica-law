@@ -1,0 +1,2 @@
+Artículo 171: La notificación por medio de la cual se le abre el procedimiento administrativo al funcionario, deberá ser entregado de manera personal en su lugar de trabajo o bien en su domicilio registrado en el expediente personal, que lleva el Departamento de Recursos
+Humanos, mientras que los testigos u otros funcionarios cuya presencia sea necesaria para la investigación de los hechos, se hará de forma personal, en su lugar de trabajo o en su domicilio conocido.

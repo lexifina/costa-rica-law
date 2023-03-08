@@ -1,0 +1,2 @@
+Artículo 33. - No podrán ser empleados de la Municipalidad quienes sean cónyuges o parientes, en línea directa o colateral hasta tercer grado inclusive, de alguno de los concejales, el Alcalde, el Auditor, los Directores o Jefe del Departamento de Recursos Humanos.
+La designación de alguno de los funcionarios (as) enunciados en el párrafo anterior, no afectará al empleado (a) de la municipalidad, cónyuge o pariente de alguno de ellos nombrados con anterioridad a la entrada en vigencia del presente reglamento.

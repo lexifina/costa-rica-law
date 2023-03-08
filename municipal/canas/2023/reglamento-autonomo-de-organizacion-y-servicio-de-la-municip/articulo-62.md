@@ -1,0 +1,1 @@
+Artículo 62. - La evaluación y calificación del desempeño de los funcionarios de la Municipalidad, deberá aplicarse a los servidores (as) nombrados (as) en propiedad, interinos y servicios especiales, que durante el año hayan trabajado continuamente.

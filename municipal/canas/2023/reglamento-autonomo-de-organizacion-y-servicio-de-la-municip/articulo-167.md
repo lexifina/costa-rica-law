@@ -1,0 +1,1 @@
+Artículo 167: El acto de notificación de traslado de cargos, dentro de un proceso de investigación al funcionario, interrumpe la prescripción de la acción disciplinaria. Todo dentro de lo establecido en el artículo 414 del Código de Trabajo.

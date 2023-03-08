@@ -1,0 +1,1 @@
+Artículo 65. - Cuando el resultado de la evaluación y calificación del desempeño anual del funcionario (a) sea regular o inferior por dos años consecutivos, el hecho se considerará falta grave y se actuará conforme a lo establecido en este reglamento.

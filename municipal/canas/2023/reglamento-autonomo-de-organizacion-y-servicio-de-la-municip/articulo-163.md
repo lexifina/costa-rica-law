@@ -1,0 +1,1 @@
+Artículo 163: En caso de integración del ordenamiento jurídico, por vacío dentro del presente capítulo, se aplicarán en forma supletoria las disposiciones del Código Municipal, Ley General de la Administración Pública, y demás normas del ordenamiento jurídico administrativo.

@@ -1,0 +1,1 @@
+Artículo 101- Agotados los procedimientos internos, se puede acudir a los tribunales laborales ordinarios, de conformidad con el artículo 18 de la Ley Contra el Hostigamiento Sexual en el Empleo y la Docencia, Ley Nº 7476.

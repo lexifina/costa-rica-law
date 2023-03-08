@@ -1,0 +1,1 @@
+Artículo 136. - Las ausencias por enfermedad deberán ser comprobadas mediante comprobante de asistencia emitido por la Caja Costarricense del Seguro Social, el Instituto Nacional de Seguros, según sea el caso.

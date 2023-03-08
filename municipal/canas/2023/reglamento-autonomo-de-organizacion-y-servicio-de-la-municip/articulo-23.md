@@ -1,0 +1,1 @@
+Artículo 23. - El uso de internet está permitido solo a los funcionarios autorizados para ello, quienes deberán ajustarse a los estándares definidos por la municipalidad. En caso de que se compruebe que un funcionario (a) incumpla con lo estipulado se procederá con la sanción establecida en el artículo 155 inciso 4) del presente reglamento.

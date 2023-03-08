@@ -1,0 +1,1 @@
+Artículo 77. - La Municipalidad tomará las medidas oportunas para proteger la vida, la salud y la integridad física de los funcionarios (as), proporcionando edificaciones, e instalaciones en estado óptimo, brindar equipo y materiales para la protección personal y colectiva a los funcionarios.

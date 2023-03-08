@@ -1,0 +1,1 @@
+Artículo 169: En el proceso de investigación preliminar (prevaloración) que se establece dentro de este capítulo, el Departamento de Recursos Humanos, podrá solicitar de otras dependencias, o de testigos, aportar documentos o cualquier acto necesario para el desenvolvimiento normal de la investigación preliminar y para su decisión final.

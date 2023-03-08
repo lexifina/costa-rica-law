@@ -1,0 +1,1 @@
+Artículo 57. - La municipalidad programará y presupuestará mediante el Departamento de Recursos Humanos, becas de capacitación o formación técnicas, o básicas, acordes con las necesidades detectadas y prioridades en las distintas unidades de la Institución, en coordinación con el Despacho del Alcalde, las Direcciones y jefaturas de Departamento.

@@ -1,0 +1,1 @@
+Artículo 98. - En el plazo de treinta días naturales después de la comparecencia y evacuación de la prueba, el órgano director rendirá resolución sobre las conclusiones del trámite administrativo y recomendará sobre las sanciones disciplinarias en caso de que considere probada la falta ante el órgano decisor.

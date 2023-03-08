@@ -1,0 +1,1 @@
+Artículo 130. - El registro de cada marca deberá ser personalmente, en caso de omisión del cumplimiento, se deberá reportar y justificar al jefe inmediato, de lo contrario se tendrán por incumplimiento en la asistencia, para efectos de sanción.

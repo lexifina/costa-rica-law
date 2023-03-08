@@ -1,0 +1,20 @@
+Artículo 108.- Los servidores (as) de la Municipalidad gozarán de las siguientes licencias, además de los dispuestos en otras leyes:
+a) Podrán disfrutar de licencia ocasional de excepción, con goce de salario o sin él, según las disposiciones del Código Municipal.
+b) Podrán gozar de licencia para asistir a cursos, siempre que sus ausencias no perjudiquen evidentemente el servicio público, de acuerdo con el reglamento de esta ley.
+c) Toda servidora embarazada o que adopte a un menor de edad, gozará de la licencia, los deberes y las atribuciones prescritas en el artículo 95 del Código de Trabajo. Durante el plazo de la licencia, la municipalidad le pagará el monto restante del subsidio que reciba de la Caja Costarricense de Seguro Social, hasta completar el cien por ciento (100%) de su salario.
+d) Revisar ley de paternidad
+e) La Municipalidad concederá licencia con goce de salario en los siguientes casos:
+i. Ocho días naturales por matrimonio.
+ii. Cinco días hábiles por el fallecimiento de la (el) cónyuge o compañera(o) hija(o), sus padres y hermanas(os), abuelas(os) y entenados.
+iii. Por muerte de cualquier otro pariente hasta el tercer grado de consanguinidad o afinidad un día natural para asistir al sepelio.
+iv. Cuatro días naturales con motivo de presentación de Trabajos Finales de Graduación.
+v. Dos días naturales para prepararse para las pruebas de Bachillerato del Ministerio de Educación Pública.
+vi. Medio día para efectuar diligencias personales debida mente justificadas y en los casos en que el servicio que se necesita coincida in eludiblemente con el horario del trabajo de la institución, todo a criterio de la jefatura inmediata. Estas licencias no podrán exceder de seis en cada año calendario, ni disfrutarse en forma consecutiva, ni agregarse a períodos inmediatamente anteriores o posteriores de vacaciones, asuetos y feriados.
+vii. En caso de calamidad doméstica por fenómenos naturales como inundación, terremoto, derrumbe, o incendio, que produzcan consecuencias graves que afecte la vivienda de la funcionaria(o), cinco días hábiles, prorrogables por un lapso igual dependiendo de la situación y a criterio de la jefatura inmediata.
+viii. necesario.
+ix. Cinco días hábiles en caso de enfermedad grave de los parientes hasta segundo grado de consanguinidad y afinidad, para lo cual deberá aportar la respectiva epicrisis con la valoración médica o dictamen médico. La licencia regirá desde el momento que se requiera y podrá ser prorrogable siempre y cuando así lo considere la alcaldía.
+Las(os) funcionarias(os) podrán acogerse a la Ley N° 7756, publicada en La Gaceta Nº 56 del 20 de marzo de 1998, "Beneficios para los responsables de pacientes en fase terminal" cumpliendo con el procedimiento establecido.
+f) El Alcalde (sa) podrá otorgar licencias que no excedan de tres meses, para que los funcionarios (as) acojan las invitaciones de gobiernos o de organismos internacionales, para viajes de representación o participación en seminarios, congresos o actividades similares.
+g) Hasta por quince días al servidor (a) que haya sido designado para representar al país, tanto en el interior como en el extranjero, en actividades culturales, académicas o deportivas; siempre y cuando se aporte certificación del Ministerio de Cultura, Juventud y Deportes de la oficialidad del evento y de la escogencia del funcionario para dicho evento.
+h) El alcalde podrá conceder permisos sin goce de salario hasta por seis meses, prorrogables por una sola vez por un plazo igual, previa consulta del solicitante y la verificación de que no se perjudicará el funcionamiento municipal. Quien haya disfrutado un permiso sin goce de salario no podrá obtener otro si no ha transcurrido un período igual al doble del tiempo del permiso anterior concedido. Para obtener un permiso de esta naturaleza, el servidor deberá tener, como mínimo, un año de laborar para la municipalidad.
+A excepción de lo antes señalado, si un funcionario municipal fuera nombrado en un puesto de elección popular o de confianza, podrá otorgársele un permiso sin goce de salario hasta por cuatro años, prorrogable hasta por un plazo igual.

@@ -1,0 +1,2 @@
+Artículo 112. - Las vacaciones se deberán gozar sin interrupciones salvo, cuando así lo convengan las partes, y siempre que se tratare de labores de índole especial, que no permitan la ausencia prolongada del funcionario (a) y su presencia se considere necesaria para la buena marcha del servicio.
+Las boletas de vacaciones serán tramitadas ante la jefatura inmediata para la correspondiente aprobación, posteriormente cada jefatura deberá trasladar ante el Departamento de Recursos Humanos dichas boletas, con el fin que este valide el trámite con alcaldía.

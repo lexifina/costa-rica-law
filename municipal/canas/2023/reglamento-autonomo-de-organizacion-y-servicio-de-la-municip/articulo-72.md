@@ -1,0 +1,1 @@
+Artículo 72. - Solo se retribuirá el recargo de funciones, cuando sea por períodos igual o mayor de un mes y se pagará con fundamento en la diferencia existente entre el salario base del puesto que ocupa el funcionario (a) y el salario base del puesto con recargo.

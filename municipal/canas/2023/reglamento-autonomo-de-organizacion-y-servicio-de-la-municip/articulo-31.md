@@ -1,0 +1,2 @@
+DE LA SELECCIÓN DE PERSONAL
+Artículo 31. - El personal de esta Municipalidad se seleccionará por medio de pruebas de idoneidad, a las cuales se admitirá únicamente a quienes satisfagan los requisitos mínimos prescritos en el manual descriptivo de puestos general. Las características de estas pruebas y los demás requisitos corresponderán a los criterios actualizados de los sistemas modernos de reclutamiento y selección y corresponderán a regulaciones específicas que aplicarán el Departamento de Recursos Humanos de la Municipalidad y la Convención Colectiva Vigente.

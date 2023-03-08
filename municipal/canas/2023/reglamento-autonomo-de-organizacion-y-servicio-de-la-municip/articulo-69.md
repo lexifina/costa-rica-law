@@ -1,0 +1,1 @@
+Artículo 69. - El pago de salario de todo el personal municipal se hará en forma quincenal, depositándose en la cuenta respectiva del funcionario (a) del sistema bancario nacional, así como considerando lo establecido en el Reglamento de la Ley 9635.

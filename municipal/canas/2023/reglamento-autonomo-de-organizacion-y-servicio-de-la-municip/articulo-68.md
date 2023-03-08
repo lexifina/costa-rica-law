@@ -1,0 +1,1 @@
+Artículo 68. - La municipalidad reconocerá anualmente sobre el salario base, un monto nominal por concepto de anualidad, por cada año de servicio, sin límite de tiempo, según lo establecido en la ley 9635 y su reglamento.

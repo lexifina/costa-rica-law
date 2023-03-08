@@ -1,0 +1,3 @@
+Artículo 128.- El pago del tiempo extraordinario incluido en el Departamento de Recursos Humanos, se realizará en el mes siguiente a la presentación del informe Mensual de tiempo extraordinario y de conformidad con el calendario de pagos de salarios establecidos.
+El tiempo extraordinario laborado en el mes de diciembre de cada año, serán canceladas con cargo al presupuesto ordinario del año siguiente, de tal manera que el Departamento de Recursos Humanos, tendrá como límite el mes de enero para realizar el trámite de dichos pagos, siempre y cuando cuente con los informes en tiempo y forma de cada funcionario.
+Se prohíbe la compensación de tiempo extraordinario por tiempo ordinario.

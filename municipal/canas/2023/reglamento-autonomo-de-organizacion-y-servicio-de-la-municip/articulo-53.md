@@ -1,0 +1,1 @@
+Artículo 53 - El funcionario becado deberá rendir, una vez concluida su participación, un informe al Departamento de Recursos Humanos, sobre la capacitación recibida por el otorgamiento de la beca y estar en disposición de trasmitir los conocimientos adquiridos cuando la institución lo requiera.

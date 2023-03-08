@@ -1,0 +1,1 @@
+Artículo 25. - Son servidores municipales los nombrados de acuerdo con Capitulo cuarto del Código Municipal y que satisfagan los requisitos que establece el Manual descriptivo de puestos general de la Municipalidad, el artículo 111 de la Ley General de la Administración Pública y lo estipulado en el artículo 127 del Código Municipal.

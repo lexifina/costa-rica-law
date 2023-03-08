@@ -1,0 +1,2 @@
+Artículo 10. - Será una responsabilidad compartida del Departamento de Recursos Humanos y el funcionario mantener actualizado el expediente personal.
+Los expedientes del personal deberán contener todos aquellos documentos y datos que sirvan para determinar el historial de la relación laboral tales como: las inasistencias, evaluaciones del desempeño, aspectos disciplinarios, capacitaciones recibidas, calidades del funcionario (a), entre otras.

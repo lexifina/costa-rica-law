@@ -1,0 +1,1 @@
+Artículo 47. - Una vez programadas las actividades de capacitación, notificadas las respectivas jefaturas designadas y notificados los funcionarios para la participación, no se concederán vacaciones o permisos con goce salarial que coincida con el período en que se desarrolle la actividad.

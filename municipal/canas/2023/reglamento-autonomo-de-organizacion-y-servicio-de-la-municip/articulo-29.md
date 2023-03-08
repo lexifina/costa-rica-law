@@ -1,0 +1,1 @@
+Artículo 29. - Corresponde al Alcalde o vice alcalde municipal debidamente autorizado, realizar nombramientos, promociones y remoción de empleados municipales, con excepción de empleados que dependan directamente del Concejo Municipal, así mismo, los empleados ocasionales contratados con cargo a las partidas presupuestarias de Servicios Especiales o Jornales Ocasionales.

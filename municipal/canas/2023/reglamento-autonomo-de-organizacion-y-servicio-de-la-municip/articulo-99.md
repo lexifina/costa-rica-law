@@ -1,0 +1,1 @@
+Artículo 99. La resolución final emitida por el Órgano Decisor, deberá dictarse dentro de un plazo de treinta días naturales, una vez recibida la resolución del órgano director establecida en el artículo anterior.

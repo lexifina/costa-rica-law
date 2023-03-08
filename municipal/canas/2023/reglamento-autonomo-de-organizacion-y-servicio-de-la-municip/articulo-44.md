@@ -1,0 +1,1 @@
+Artículo 44. - Todo programa de capacitación, en que organismos o instituciones públicas o privadas, ofrezcan becas o bien la municipalidad las otorgue, se canalizará a través del Departamento de Recursos Humanos.

@@ -1,0 +1,1 @@
+Artículo 133. - Las disposiciones contenidas en este reglamento sobre el procedimiento y remoción no serán aplicadas a los funcionarios que dependan directamente del Concejo a menos que el Concejo así lo disponga mediante acuerdo en firme.

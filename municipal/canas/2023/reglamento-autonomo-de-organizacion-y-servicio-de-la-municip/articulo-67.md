@@ -1,0 +1,1 @@
+Artículo 67. - La Municipalidad aplicara las sumas y porcentajes de ajustes de salarios a todos sus funcionarios, en las mismas condiciones y cantidades como mínimo, según los parámetros vigentes establecidos como el índice de precios al consumidor y la Convención Colectiva vigente.

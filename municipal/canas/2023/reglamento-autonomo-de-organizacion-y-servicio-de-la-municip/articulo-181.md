@@ -1,0 +1,1 @@
+Artículo 181. - Ante la falta de disposiciones en este reglamento aplicables a un caso determinado, deben tenerse como normas supletorias el Código Municipal, el Código de Trabajo, la Ley General de la Administración Pública, los Convenios Internacionales de la Organización Internacional del Trabajo, ratificados por la Asamblea Legislativa y las demás leyes y reglamentos conexos.

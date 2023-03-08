@@ -1,0 +1,1 @@
+Artículo 85. - Se considerará un acto de discriminación cuando los mecanismos empleados para el proceso de reclutamiento, exijan requisitos adicionales en razón de la discapacidad o cuando no se emplee a un trabajador (a) idóneo en razón de su discapacidad.
