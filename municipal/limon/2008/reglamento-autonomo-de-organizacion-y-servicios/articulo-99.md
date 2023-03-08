@@ -1,1 +1,0 @@
-Artículo 99.—El funcionario(a) afectado(a), una vez notificado(a) de lo resuelto podrá presentar los recursos que al respecto establece la Ley General de la Administración Pública. Si el funcionario(a) afectado no recurre lo resuelto se deberá aplicar la sanción recomendada en forma inmediata, indicando el motivo y objeto de la sanción.

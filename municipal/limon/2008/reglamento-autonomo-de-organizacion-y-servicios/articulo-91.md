@@ -1,1 +1,0 @@
-Artículo 91.—Los funcionarios calificados como administrativos laborarán de lunes a viernes de las 7:30 horas y hasta las 16:00 de manera continúa, con una interrupción de cuarenta y cinco minutos a la mitad para injerir alimentos.

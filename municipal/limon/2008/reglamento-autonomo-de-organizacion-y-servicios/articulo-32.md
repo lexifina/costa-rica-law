@@ -1,1 +1,0 @@
-Artículo 32.—La evaluación o calificará anual de servicios servirá como reconocimiento a los servidores (as) para estimular y lograr una mayor eficiencia así como factor a considerar en el proceso de reclutamiento y la selección, la capacitación, los ascensos, aumentos de sueldo, la concesión de permisos y las reducciones forzosas de personal.

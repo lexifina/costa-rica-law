@@ -1,1 +1,0 @@
-Artículo 92.—El horario para cada servicio será fijado por el Alcalde(sa) Municipal en atención a las necesidades del público y a los intereses de la Municipalidad. Podrán ser variados dentro de los límites señalados, cuando son causar perjuicio grave a los funcionarios (as) sea conveniente o necesario para mejorar el servicio público que brinda la Municipalidad.

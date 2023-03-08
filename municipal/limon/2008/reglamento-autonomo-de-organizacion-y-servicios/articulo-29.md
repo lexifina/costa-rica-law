@@ -1,1 +1,0 @@
-Artículo 29.—Todo funcionario(a) de la Municipalidad de Limón deberá pasar satisfactoriamente un período de prueba hasta de dos meses de servicio ininterrumpidos, contados a partir de la fecha de vigencia del acuerdo de su nombramiento.

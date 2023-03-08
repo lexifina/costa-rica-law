@@ -1,2 +1,0 @@
-Artículo 6º—El Alcalde Municipal, es el enlace entre el Concejo Municipal y los servidores de la comunidad. Es el funcionario de mayor jerarquía dentro de la Institución, por lo que toda información por parte de la administración que se dirigida al Concejo Municipal a de ser remitida por su despacho.
-A él corresponde la prestación ante el Concejo de toda iniciativa y de los informes que presente la administración ante dicha instancia.
