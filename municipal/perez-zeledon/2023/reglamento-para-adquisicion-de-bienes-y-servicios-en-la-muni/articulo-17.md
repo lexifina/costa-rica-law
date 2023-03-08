@@ -1,0 +1,1 @@
+Artículo 17.-Sobre obra pública. Adicionalmente, en las contrataciones de obra pública, la decisión inicial deberá de considerar lo contemplado en la Ley General de Contratación Pública, N.° 9986 y su reglamento.

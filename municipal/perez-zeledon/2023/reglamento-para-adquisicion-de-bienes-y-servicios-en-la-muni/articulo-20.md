@@ -1,0 +1,1 @@
+Artículo 20.-Funciones. La Comisión Especial de Licitaciones será dictaminar sobre la aprobación de pliego de condiciones, actos de adjudicaciones y resoluciones de los procesos licitatorios de su competencia.

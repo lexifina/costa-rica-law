@@ -1,0 +1,1 @@
+Artículo 22.-Directrices. El titular de la Alcaldía con el apoyo de las dependencias correspondientes podrá emitir las directrices y manuales de procedimientos que sean necesarias para regular las actividades y responsabilidades relacionadas a la aplicación del presente reglamento.

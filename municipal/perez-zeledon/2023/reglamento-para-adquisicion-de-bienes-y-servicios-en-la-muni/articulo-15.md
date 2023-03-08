@@ -1,0 +1,1 @@
+Artículo 15.-PyMEs. Con la finalidad de fortalecer la participación e inclusión de las empresas locales, se define como región para efectos de la aplicación de la Ley General de Contratación Pública y su Reglamento, la delimitación geográfica comprendida por los límites del territorio del cantón de Pérez Zeledón.
