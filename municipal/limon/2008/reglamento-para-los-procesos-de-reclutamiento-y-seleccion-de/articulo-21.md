@@ -1,2 +1,0 @@
-Artículo 21.—Registro de la Experiencia Profesional y Laboral de los Oferentes: La Oficina de Recursos Humanos incluirá dentro del expediente del concurso un registro donde consignará el resumen de la experiencia profesional y laboral de los oferentes declarados idóneos.
-Lo anterior servirá de insumo para la selección de la terna de oferentes establecida en el artículo veinticuatro del presente reglamento.

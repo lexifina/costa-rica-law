@@ -1,1 +1,0 @@
-Artículo 14.—Acta de inscripción: Vencido el plazo para la inscripción de oferentes, la Oficina de Recursos Humanos procederá a elaborar un Acta de Inscripción de los oferentes inscritos en el concurso.

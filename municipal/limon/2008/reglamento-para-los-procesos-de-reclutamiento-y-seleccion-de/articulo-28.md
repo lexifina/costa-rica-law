@@ -1,2 +1,0 @@
-Artículo 28.—Comunicación de Deficiencias en el Desempeño: El jefe de la oficina o departamento respectivo deberá notificar por escrito a la Oficina de Recursos Humanos cualquier deficiencia en el desempeño del servidor durante su periodo de prueba, a fin de que este último analice la situación y si es del caso, proponga al Alcalde Municipal su despido sin responsabilidad patronal y proceda a dar inicio a un nuevo concurso.
-La anterior obligación de informar a la Oficina de Recursos Humanos es extensiva a los casos de servidores interinos.
