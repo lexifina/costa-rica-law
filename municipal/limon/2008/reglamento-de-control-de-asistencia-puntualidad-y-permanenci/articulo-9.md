@@ -1,2 +1,0 @@
-Artículo 9º—El registro de asistencia se llevará por medio de reportes diarios e individuales que se realizará mediante la huella digital marcada en un reloj al inicio y término de la jornada.
-Las marcas deberán realizarse introduciendo la mano derecha y su código personal con el debido cuidado para que la huella digital realice la marca correspondiente que acredita la asistencia laboral. Los reportes defectuosos, manchados o confusos, que no se deban a fallas del reloj, se tendrán como no hechas.

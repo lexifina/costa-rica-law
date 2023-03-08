@@ -1,1 +1,0 @@
-Artículo 2º—El Reglamento se aplicará a todos los servidores de la Municipalidad de Limón ligados por una relación de empleo, con excepción del Alcalde Municipal, Vice Alcaldes Municipales, Directora General, Jefes de las Unidades Administrativas, Jefe de la Unidad Jurídica y Auditor Municipal.

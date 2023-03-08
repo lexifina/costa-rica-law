@@ -1,1 +1,0 @@
-Artículo 5º—Dentro de la jornada ordinaria de trabajo todo servidor tendrá derecho a un descanso máximo de 15 minutos en el período de la mañana y la tarde y otro de 45 minutos a mediodía para alimentación, sin que exista interrupción de las labores de las dependencias.
