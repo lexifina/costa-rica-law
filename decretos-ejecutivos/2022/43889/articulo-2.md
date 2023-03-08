@@ -1,0 +1,2 @@
+Artículo 2º-Plazos de nombramiento. Los miembros del Consejo citados en los incisos a), b), c) y g) del artículo anterior, ejercerán sus funciones mientras desempeñen el cargo público correspondiente.
+Los miembros citados en los incisos d), e) y f) del artículo anterior, serán nombrados por un período de dos años. En caso de renuncia o muerte, el sustituto será nombrado por el resto del período de nombramiento del miembro saliente.

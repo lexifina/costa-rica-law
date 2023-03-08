@@ -1,0 +1,2 @@
+Artículo 10.-Pérdida de credenciales. será causal de pérdida de credencial y, por ende, remoción del cargo, cuando el miembro designado incurra en tres o más ausencias injustificadas, consecutivas o alternas. La presidencia del Consejo enviará una notificación por escrito a la institución o sector que represente para que se proceda al nombramiento del suplente.
+De igual forma, si se incurriere en cinco ausencias justificadas, consecutivas o alternas, salvo en casos de enfermedad, será facultativo del Consejo adoptar la decisión respectiva para su sustitución.

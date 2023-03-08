@@ -1,0 +1,2 @@
+Artículo 11.-Naturaleza de las sesiones. Las sesiones del Consejo serán siempre privadas, pero, acordándolo así por unanimidad de sus miembros presentes y con aviso previo a la sesión respectiva, el Consejo podrá disponer que tenga acceso a ella el público o bien personas específicas, concediéndoles o no el derecho de participar en las deliberaciones con voz, pero sin voto.
+Quienes asistan a las sesiones del Consejo, guardarán confidencialidad sobre los asuntos conocidos durante la sesión hasta que el acta respectiva quede en firme.

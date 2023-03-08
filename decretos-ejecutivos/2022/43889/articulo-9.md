@@ -1,0 +1,1 @@
+Artículo 9º-Quórum. El quórum para que pueda sesionar válidamente el Consejo Nacional de la Lectura, el Libro y las Bibliotecas será de la mitad más uno de la totalidad de sus miembros. Este quórum deberá mantenerse durante las deliberaciones y al efectuarse las votaciones.
