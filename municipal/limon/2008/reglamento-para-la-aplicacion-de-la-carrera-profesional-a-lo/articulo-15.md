@@ -1,1 +1,0 @@
-Artículo 15.—La experiencia obtenida al servicio de las instituciones del Estado, se reconocerá para efectos de este beneficio, siempre que se cumplan las condiciones de los literales a, b, c del artículo anterior, y se haga constar en un documento avalado por la Oficina de Personal.

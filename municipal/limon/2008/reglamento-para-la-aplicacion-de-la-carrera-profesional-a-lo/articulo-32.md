@@ -1,1 +1,0 @@
-Artículo 32.—El beneficio por Carrera Profesional para efectos de pago, será proporcional a la jornada de trabajo.

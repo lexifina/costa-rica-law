@@ -1,1 +1,0 @@
-Artículo 25.—Para ser tomada en cuenta la calificación de servicios de los funcionarios de nivel profesional, deberá venir firmada por la Jefatura del funcionario y estar registrada en la Oficina de Personal antes del 30 de agosto de cada año. Si no estuviera registrada la calificación de servicios en la citada dependencia, se considerará como muy buena.

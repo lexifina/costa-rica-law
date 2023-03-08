@@ -1,1 +1,0 @@
-Artículo 8º—La Oficina de Personal no hará estudios de oficio, solo realizará aquellos solicitados por los interesados, salvo el estudio de experiencia profesional y del ajuste del valor del incentivo, de acuerdo a las resoluciones del Servicio Civil.

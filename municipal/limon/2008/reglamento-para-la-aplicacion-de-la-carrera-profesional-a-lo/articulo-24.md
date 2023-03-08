@@ -1,1 +1,0 @@
-Artículo 24.—El funcionario de nivel profesional podrá recuperar el incentivo de la Carrera Profesional que disfrutaba, si al año siguiente de la calificación de servicios que motiva la suspensión referida, obtuviera en la calificación de servicios una nota mínima de muy bueno.
