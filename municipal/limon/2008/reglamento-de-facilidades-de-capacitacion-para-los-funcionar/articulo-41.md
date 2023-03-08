@@ -1,1 +1,0 @@
-Artículo 41.—Deber de comunicación. Es obligación de la jefatura del becario reportar, de inmediato, a la Oficina de Recursos Humanos cualquier situación anómala en que hubiese incurrido el servidor durante el disfrute de la beca.

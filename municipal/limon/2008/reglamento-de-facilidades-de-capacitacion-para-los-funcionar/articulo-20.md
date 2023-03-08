@@ -1,6 +1,0 @@
-Artículo 20.—Presentación de la solicitud. Las solicitudes de becas deberán presentarlas los funcionarios interesados en la Oficina de Recursos Humanos.
-La solicitud de beca deberá acompañarse de los siguientes documentos:
-a) Anuencia escrita del jefe inmediato del servidor, en la que se valore el impacto que podría tener sobre el servicio la ausencia del funcionario solicitante.
-b) Justificación de la jefatura, en la que se refiera a la necesidad y conveniencia en virtud de las cuales el funcionario debe recibir la beca, cómo contribuirá la preparación del funcionario a aumentar la productividad y eficiencia de la sección u oficina a la que pertenece, así como las ventajas que obtendrá el Tribunal.
-c) En caso de permisos de estudio, la solicitud debe formularse quince días hábiles antes del inicio del respectivo ciclo lectivo (bimestre, trimestre, cuatrimestre, semestre, entre otros), presentando el número de materias a matricular, los horarios, el historial académico con indicación de los resultados obtenidos, y otros datos de interés.
-d) El conocimiento del idioma requerido para efectuar determinados estudios debe ser demostrado por el funcionario solicitante, rindiendo las pruebas de rigor en instituciones oficialmente reconocidas al efecto.

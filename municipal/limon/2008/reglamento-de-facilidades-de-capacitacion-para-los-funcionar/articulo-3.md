@@ -1,5 +1,0 @@
-Artículo 3º—Objetivos del Sistema de Capacitación y Formación. Mediante el sistema de capacitación y formación se pretende alcanzar, entre otros objetivos, los siguientes:
-a) Incentivar el mejoramiento de la condición profesional y técnica de los funcionarios y su identificación con la misión y visión de la Municipalidad de Limón.
-b) Ofrecer a los funcionarios oportunidades de adiestramiento, capacitación y formación con el fin de que la Municipalidad pueda contar con personal altamente profesionalizado para atender, con calidad y excelencia, los cometidos que le han sido encomendados por la Constitución y las leyes.
-c) Adaptar las actividades de los funcionarios de la Municipalidad a las condiciones que modifican el medio institucional, logrando su disposición para aceptar y propiciar los cambios que induce la dinámica de la Municipalidad.
-d) Fomentar la motivación y la creatividad de los funcionarios de la Municipalidad, mediante el estímulo del sentido de responsabilidad, la dedicación y la eficiencia en el desempeño de sus labores.

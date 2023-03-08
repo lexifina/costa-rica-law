@@ -1,1 +1,0 @@
-Artículo 40.—Acciones de capacitación simultánea. Ex-cepcionalmente, a criterio de la Oficina de Recursos Humanos, un funcionario podrá participar en dos acciones de capacitación simultáneamente, cuando la eficiencia del servicio publico así lo exija o aconseje.
