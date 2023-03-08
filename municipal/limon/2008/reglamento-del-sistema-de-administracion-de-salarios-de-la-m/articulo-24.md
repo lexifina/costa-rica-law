@@ -1,1 +1,0 @@
-Artículo 24.—Si un puesto fuere reasignado a una categoría inferior, el salario del funcionario administrativo propietario de la plaza se considerará con la condición de derechos adquiridos hasta que la plaza se encuentre con la condición de vacante se procederá con la reasignación con la categoría inferior de la categoría de la clase.

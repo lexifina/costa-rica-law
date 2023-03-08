@@ -1,1 +1,0 @@
-Artículo 16.—El Manual de Clasificación y Valoración de Clases podrá ser modificado por la Oficina de Recursos Humanos, previa resolución administrativa del Alcalde Municipal, para incluir dentro de él clases nuevas, para eliminar otras, o variar las actividades y las responsabilidades que corresponden a las establecidas.

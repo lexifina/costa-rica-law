@@ -1,1 +1,0 @@
-Artículo 26.—Si un puesto fuere reclasificado en una categoría de inferior, el salario del funcionario administrativo propietario de la plaza se considerará con la condición de derechos adquiridos hasta que la plaza se encuentre con la condición de vacante se procederá con la reclasificación con la categoría inferior de la categoría de la clase.

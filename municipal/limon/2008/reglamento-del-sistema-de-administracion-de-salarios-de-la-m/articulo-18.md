@@ -1,1 +1,0 @@
-Artículo 18.—La Oficina de Recursos Humanos, para efectos de reclutamiento y selección del personal, mantendrá actualizado un Manual Descriptivo de Puestos que contendrá las especificaciones de todos los puestos incluidos en el sistema.

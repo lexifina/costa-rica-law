@@ -1,4 +1,0 @@
-Artículo 27.—En el caso de ascensos o descenso voluntario, cualquiera que sea el salario base que corresponda al nuevo puesto, el servidor que pase a desempeñarlo en propiedad, tendrá derecho a continuar devengando las sumas que por anualidad haya acumulado a su favor en el o los puestos anteriores. Las nuevas anualidades a que adquiere derecho, se le calcularán con el monto que corresponde a la categoría del cargo que se encuentre desempeñando.
-En el caso de que un funcionario administrativo se acoja a la pensión y regrese posteriormente a trabajar en la Municipalidad, para efectos laborales, excepto el derecho de antigüedad, se considerará que es un nuevo contrato.
-Aprobado por la honorable Corporación Municipal, en su sesión ordinaria Nº 34, celebrada el lunes 22 de diciembre del 2008, bajo el artículo V, inciso a).
-Limón, enero del 2009
