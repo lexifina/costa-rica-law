@@ -14,3 +14,4 @@ Declaratoria de riesgo inminente sobre infraestructura pública en rutas naciona
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-11-18 | la propia norma |
+| 2 | 2023-03-09 | Reglamento 3 (2023-03-09) |

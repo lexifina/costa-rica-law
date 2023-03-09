@@ -474,3 +474,58 @@ San José | Goicoechea | Calle Blancos | Calle Blanco (Sector Jugo del Campo) | 
 SEXTO: Las instituciones públicas en general deberán, en cumplimiento a la presente resolución vinculante, establecer políticas de eficiencia máxima en los procedimientos necesarios para la ejecución de las obras de recuperación, reconstrucción y prevención que se requieran, estableciendo como prioritarios las solicitudes de aprobación o validación de trámites o permisos, y buscando siempre la coordinación entre entidades, el intercambio de información y evitando la repetición de requisitos o los atrasos innecesarios.
 SÉPTIMO: Se ordena la comunicación inmediata de la presente resolución a todas las instituciones indicadas y se instruye a la Administración para que se proceda además con su publicación integral en el Diario Oficial La Gaceta.
 ACUERDO APROBADO
+(Nota de Sinalevi: Mediante sesión N° 03-03-2023del 9 de marzo de 2023, se acordó actualizar y ampliar la presente norma en los siguiente términos:
+1º-Tener por atendidos los siguientes tramos de carretera ubicados en ruta nacional según lo ordenado en la Resolución Vinculante por parte del Ministerio de Obras Públicas y Transportes (MOPT) y el Consejo Nacional de Vialidad (CONAVI):
+[imagen]
+[imagen]
+[imagen]
+Las rutas señaladas quedan excluidas de la Resolución Vinculante. Se aclara que en los casos en que se ha unificado los reportes en uno solo o bien se ha recalificado dichos reportes en la categoría de puentes, las afectaciones reportadas se mantienen en dicha resolución.
+2º-Se tiene como priorizado por parte el Ministerio de Vivienda y Asentamientos Humanos un proyecto reportado en la Resolución Vinculante y se incorpora un proyecto nuevo según el siguiente detalle:
+[imagen]
+En este sentido se notifica al MIVAH, Ministerio de Hacienda, Ministerio de Planificación Nacional y Política Económica (MIDEPLAN), Ministerio de Ambiente y Energía (MINAE) y cualquier otro ente con competencias relacionadas a las obras a desarrollar; sobre la inclusión realizada a la Resolución Vinculante. Respecto de los restantes reportes realizados en Vivienda, deberán ser valorados para su eventual atención mediante los mecanismos propios del Sistema Financiero Nacional de la Vivienda.
+3º-Notificar al Ministerio de Obras Públicas y Transportes (MOPT), Consejo Nacional de Vialidad (CONAVI), Ministerio de Hacienda, Ministerio de Planificación Nacional y Política Económica (MIDEPLAN), Ministerio de Ambiente y Energía (MINAE) y cualquier otro ente con competencias relacionadas a las obras a desarrollar; que se ha ampliado la Resolución Vinculante y se declara, adicionalmente a los reportados, el peligro inminente en los siguientes TREINTA Y TRES puntos de rutas nacionales:
+Provincia | Cantón | Distrito | Número de Ruta o Descripción del Tramo | Km inicial | km final | Descripción del Riesgo Detectado | Condición | Cantidad personas beneficiarias
+Alajuela | San Carlos | Florencia | 141 | 53.6 | 53.6 | Falla inminente | Paso restringido | 65487
+Alajuela | San Carlos | Quesada | 140 | 3.9 | 3.9 | Falla inminente | Paso restrinaido | 35787
+Alajuela | San Ramón | Santiago | 1 | 56.2 | 75.2 | Riesgo inaceptable | Transitable | 945000
+Cartago | Paraíso | Orosi | 224 | 5.0 | 5.0 | Falla inminente | Paso restringido | 10000
+Guanacaste | Abangares | Sierra | 145 | O.O | 47.2 | Alarmante | Transitable | 25000
+Limón | Talamanca | Cahuita | 36 | 57.0 | 57.1 | Falla inminente | Transitable | 8215
+Puntarenas | Buenos Aires | Brunka | 2 | 228.9 | 229.0 | Alarmante | Paso restringido | 182000
+Puntarenas | Buenos Aires | Buenos Aires | 2 | 24.2 | 24.2 | Alarmante | Paso restrinaido | 182000
+Puntarenas | Buenos Aires | Potrero Grande | 2 | 209.2 | 209.2 | Alarmante | Paso restrinaido | 182000
+Puntarenas | Buenos Aires | Potrero Grande | 2 | 210.2 | 210.3 | Alarmante | Paso restringido | 182000
+Puntarenas | Buenos Aires | Potrero Grande | 2 | 211.1 | 211.2 | Alarmante | Paso restrinaido | 182000
+Puntarenas | Buenos Aires | Volcán | 2 | 188.9 | 188.9 | Falla inminente | Transitable | 136000
+Puntarenas | Corredores | Corredor | 6 | 608.3 | 608.4 | Deficiente | Paso restringido | 12000
+Puntarenas | Corredores | Corredor | 237 | 76.1 | 763 | Deficiente | Transitable | 12000
+Puntarenas | Golfito | Guaycará | 2 | 311.1 | 311.2 | Deficiente | Paso restrinaido | 25000
+Puntarenas | Golfito | Guaycará | 2 | 316.2 | 316.3 | Deficiente | Paso restrinaido | 25000
+Puntarenas | Golfito | Pavón | 611 | 16.4 | 16.7 | Deficiente | Transitable | 5350
+Puntarenas | Osa | Sierpe | 245 | 38.0 | 38.1 | Deficiente | Paso restringido | 25000
+Puntarenas | Puntarenas | Barranca | 17 | o.o | 0.1 | Riesgo inaceptable | Transitable | 145434
+San José | Acosta | San Ignacio | 301 | 8.4 | 34.8 | Alarmante | Cerrado | 10000
+San José | Aserri | Legua | 313 | 9.8 | 9.8 | Falla inminente | Paso restrinaido | 2000
+San José | Pérez Zeledón | Páramo | 2 | 128.7 | 128.7 | Falla inminente | Transitable | 136000
+San José | Pérez Zeledón | Páramo | 2 | 128.8 | 128.8 | Falla inminente | Transitable | 136000
+San José | Pérez Zeledón | Páramo | 2 | 105.0 | 105.2 | Alarmante | Transitable | 136000
+San José | Pérez Zeledón | Páramo | 2 | 121.1 | 121.2 | Deficiente | Cerrado | 136000
+San José | Pérez Zeledón | Páramo | 335 | 4.2 | 4.2 | Alarmante | Paso restringido | 4756
+San José | Pérez Zeledón | Río Nuevo | 328 | 7.6 | 7.6 | Alarmante | Transitable | 2559
+San José | Pérez Zeledón | Rivas | 2 | 122.0 | 101.7 | Deficiente | Cerrado | 136000
+San José | Pérez Zeledón | Rivas | 2 | 118.7 | 103.3 | Deficiente | Cerrado | 136000
+San José | Pérez Zeledón | Rivas | 2 | 103.5 | 103.5 | Deficiente | Cerrado | 136000
+San José | Pérez Zeledón | San Isidro de El General | 2 | 125.5 | 125.5 | Falla inminente | Transitable | 136000
+San José | Pérez Zeledón | San Isidro de El General | 2 | 132.7 | 132.7 | Falla inminente | Transitable | 136000
+San José | Vázquez de Coronado | Dulce Nombre de Jesús | 32 | 39.0 | 39.1 | Falla inminente | Transitable | 11255
+4º-Notificar al Ministerio de Obras Públicas y Transportes (MOPT), Consejo Nacional de Vialidad (CONAVI), Ministerio de Hacienda, Ministerio de Planificación Nacional y Política Económica (MIDEPLAN), Ministerio de Ambiente y Energía (MINAE) y cualquier otro ente con competencias relacionadas a las obras a desarrollar; que se ha ampliado la Resolución Vinculante y se declara, adicionalmente a los reportados, el peligro inminente en los siguientes SEIS puentes ubicados en ruta nacional:
+[imagen]
+5º-Notificar al Ministerio de Educación Pública, Ministerio de Hacienda, Ministerio de Planificación Nacional y Política Económica (MIDEPLAN), Ministerio de Ambiente y Energía (MINAE) y cualquier otro ente con competencias relacionadas que se ha ampliado la Resolución Vinculante y se declara, adicionalmente a los reportados, el peligro inminente en los siguientes NUEVE centros educativos:
+Provincia | Cantón | Distrito | Sección Férrea | Infraestructura afectada | Nombre de puente | Metros lineales afectados | Descripción del Riesgo Detectado | Condición | Cantidad de personas beneficiarias
+San José | San José | Pavas | San José- Pavas-San Antonio de Belén | Vía férrea | N/A | 980 | Deslizamientos | Riesgo inaceptable | 1750
+Limón | Limón | Matama | Limón-Valle de la Estrella | Puente | La Bomba | N/A | Daños Subestructura, Daños Supraestructura | Falla inminente | 250
+6º-Notificar al Instituto Costarricense de Ferrocarriles, Ministerio de Hacienda, Ministerio de Planificación Nacional y Política Económica (MIDEPLAN), Ministerio de Ambiente y Energía (MINAE) y cualquier otro ente con competencias relacionadas a las obras a desarrollar que se ha ampliado la Resolución Vinculante y se declara, adicionalmente a los reportados, el peligro inminente en los siguientes DOS tramos de vía y puentes ferroviarios:
+Provincia | Cantón | Distrito | Sección Férrea | Infraestructura afectada | Nombre de puente | Metros lineales afectados | Descripción del Riesgo Detectado | Condición | Cantidad de personas beneficiarias
+San José | San José | Pavas | San José- Pavas-San Antonio de Belén | Vía férrea | N/A | 980 | Deslizamientos | Riesgo inaceptable | 1750
+Limón | Limón | Matama | Limón-Valle de la Estrella | Puente | La Bomba | N/A | Daños Subestructura, Daños Supraestructura | Falla inminente | 250
+")
