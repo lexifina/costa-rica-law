@@ -1,1 +1,0 @@
-Artículo N° 17.-Deber de colaboración ante algún acto de hostigamiento: Todo colaborador de CONAPE, está en la obligación de rendir declaración y brindar la colaboración necesaria para arribar a la verdad real de los hechos denunciados. El entorpecimiento o falta al presente artículo será considerada falta grave.

@@ -1,2 +1,0 @@
-Artículo N° 28.-Denuncias Falsas: En caso de que cualquier funcionario realizare intencionalmente una acusación falsa de acoso laboral u hostigamiento sexual o intencionalmente suministrare información falsa durante el desarrollo de la investigación de una denuncia, dicha conducta será motivo para imponer una sanción conforme al debido proceso y de acuerdo con la gravedad de la falta.
-Cualquier denuncia realizada de buena fe, incluso si se determinare que es infundada, no se considerará acusación falsa.
