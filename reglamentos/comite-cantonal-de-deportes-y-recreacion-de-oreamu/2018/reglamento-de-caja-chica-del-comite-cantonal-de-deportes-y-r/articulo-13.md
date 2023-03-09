@@ -1,1 +1,2 @@
-Artículo 13.—Los reintegros al fondo de caja chica serán confeccionados por el encargado del mismo, cuando se hubiere desembolsado hasta el 70% del monto autorizado.
+Artículo 13.-Los reintegros al fondo de caja chica serán confeccionados por el encargado del mismo, cuando se hubiere desembolsado hasta el 70% del monto autorizado en efectivo y un 80% del monto en la cuenta bancaria. Para efectos de registros contables en las fechas que corresponden dichos reintegros deberán realizarse por separado si es por el monto en efectivo o si es por el monto en la cuenta bancaria. Por ende, se reintegrarán por aparte los fondos en efectivo (fondo de ¢300.000.00) o el depósito a la cuenta bancaria (fondo de ¢5.655.599.00).
+(Así reformado en sesión N° 230 del 9 de marzo de 2023)

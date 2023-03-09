@@ -1,4 +1,4 @@
 CAPÍTULO V
 Del fondo de caja chica
-Artículo 18.-El fondo de caja chica del comité cantonal para atender gastos menores de bienes y servicios, viáticos será de doscientos cincuenta mil colones. (¢250.000,00).
-(Así reformado mediante sesión ordinaria Nº 90-2021 del 08 de junio del 2021)
+Artículo 18.-El monto de caja chica será de ¢5.955.599.00 (cinco millones novecientos cincuenta y cinco mil quinientos noventa y nueve colones exactos), de este monto se mantendrán ¢300.000.00 (trescientos mil colones exactos) en efectivo y el resto se mantendrá en la cuenta corriente del CCDR de Oreamuno destinada para caja chica. El monto máximo por concepto de vales será de ¢100.000.00 y el monto máximo a pagar por transferencia bancaria o por tarjeta empresarial, es el establecido en el inciso g) del artículo 3° de la Ley General de Contratación Pública, cualquier pago que sobrepase el monto establecido para los vales, deberá ser aprobado por el Presidente(a) del CCDRO. Todos los pagos realizados por caja chica deberán cumplir con lo establecido en el artículo 12 del Reglamento a la Ley General de Contratación Pública.
+(Así reformado en sesión N° 230 del 9 de marzo de 2023)
