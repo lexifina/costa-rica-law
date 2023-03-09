@@ -14,3 +14,4 @@ Reglamento para la asignación y uso de espacios de estacionamiento por funciona
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-06-22 | la propia norma |
+| 2 | 2023-03-09 | Decreto Ejecutivo 44183 (2023-03-09) |
