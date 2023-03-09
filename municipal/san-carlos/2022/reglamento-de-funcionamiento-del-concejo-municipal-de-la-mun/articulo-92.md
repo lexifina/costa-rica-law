@@ -1,0 +1,1 @@
+Artículo 92.-La Secretaría del Concejo quedará obligada a gestionar lo que corresponda para cumplir lo dispuesto, y a dejar respaldo de audio, video y datos, así como para la elaboración del acta correspondiente.

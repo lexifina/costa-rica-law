@@ -1,0 +1,1 @@
+Artículo 30.-Cuando laAlcaldía Municipal deba presentar ante el Concejo algún tema puntual que por su complejidad o urgencia requiera una mayor amplitud de análisis durante la sesión, su presentación deberá ser coordinada previamente por parte de la Alcaldía Municipal ante la Presidencia del Concejo para su inclusión en el orden del día.

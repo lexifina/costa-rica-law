@@ -1,0 +1,1 @@
+Artículo 89.-A estas sesiones virtuales deberá tenerse garantía de que los centros educativos han sido debidamente notificados de la forma en que se llevará a cabo la sesión; siendo la Secretaría del Concejo el Departamento responsable de verificar con dichos centros de la correcta notificación de dicha información.

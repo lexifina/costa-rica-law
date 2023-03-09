@@ -1,0 +1,2 @@
+Artículo 3°-En caso de empate, la elección se resolverá en una segunda ronda en donde participarán únicamente los dos candidatos que hubiesen obtenido la mayor cantidad de votos y hubiesen empatado. En caso de persistir el empate en una segunda ronda, se procederá a través de la suerte con el lanzamiento de una moneda.
+Este mismo procedimiento aplicará en caso de darse un empate en la elección del Directorio de medio período.

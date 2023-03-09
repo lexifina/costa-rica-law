@@ -1,0 +1,1 @@
+Artículo 21.-Si en el transcurso de una sesión se rompiere el quórum, el (la) Presidente instará a los (as) señores (as) Regidores (as) que se hubieren retirado sin permiso para que ocupen sus curules. Transcurridos quince minutos sin que se pueda restablecerse el quórum, se levantará la sesión. Los (as) Regidores (as) remisos perderán el derecho a la dieta correspondiente.

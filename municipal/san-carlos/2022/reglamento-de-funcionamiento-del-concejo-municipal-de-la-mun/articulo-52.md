@@ -1,0 +1,1 @@
+Artículo 52.-No se permitirán entrevistas a los (as) Regidores (as), Síndicos (as), funcionarios (as) o público presente, dentro del recinto, durante el desarrollo de las sesiones del Concejo Municipal.

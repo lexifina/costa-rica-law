@@ -1,0 +1,1 @@
+Artículo 19.-El quórum de las sesiones será la mitad más uno de los miembros del Concejo Municipal. Los (as) Regidores (as) deberán encontrarse en el Salón de Sesiones ocupando sus respectivas curules al inicio de la sesión, durante las deliberaciones, votaciones y al efectuarse las justificaciones de los votos negativos.

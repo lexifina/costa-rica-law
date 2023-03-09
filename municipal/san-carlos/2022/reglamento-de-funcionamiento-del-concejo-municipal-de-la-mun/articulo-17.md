@@ -1,0 +1,1 @@
+Artículo 17.-La convocatoria a sesión extraordinaria se notificará personalmente por el medio disponible a los que no estén presentes en la sesión en la cual se tomó el acuerdo de convocatoria a sesión extraordinaria, debiéndose indicar los asuntos a tratar.

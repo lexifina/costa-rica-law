@@ -1,0 +1,1 @@
+Artículo 10.-Los (as) Regidores (as) Suplentes estarán sometidos a las mismas disposiciones que regulan a los (as) Regidores (as) Propietarios. Sustituirán a los (as) Propietarios (as) de su mismo partido político en los casos de ausencias temporales u ocasionales, y serán llamados por el (la) Presidente Municipal de entre los presentes según el orden de elección.

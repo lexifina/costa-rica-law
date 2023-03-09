@@ -1,0 +1,2 @@
+Artículo 31.-La Alcaldía Municipal, en el desarrollo del punto de Asuntos de la Alcaldía, contará con un tiempo máximo de cinco minutos para la presentación de los temas cuya documentación, de manera física o digital, haya presentado de previo a la sesión ante la Secretaría del Concejo Municipal.
+La documentación que requiera la dispensa de trámite, deberá ser presentada ante la Secretaría del Concejo Municipal con un mínimo de cinco horas previo al inicio de la sesión.

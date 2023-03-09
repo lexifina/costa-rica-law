@@ -1,0 +1,1 @@
+Artículo 63.-Una vez designadas las Comisiones por la Presidencia Municipal, sus miembros en la sesión de instalación que deberá celebrarse dentro de los quince días siguientes, nombrará de su seno a un Coordinador, un Secretario y fijarán las fechas y horas de sesiones ordinarias, brindando dicha información al Concejo mediante su primer informe de Comisión.

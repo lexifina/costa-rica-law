@@ -1,0 +1,1 @@
+Artículo 64.-Las Comisiones tramitarán los asuntos a su cargo en un plazo no mayor de quince días, salvo los casos especiales en que el (la) Presidente del Concejo Municipal, en forma expresa, fije un término.

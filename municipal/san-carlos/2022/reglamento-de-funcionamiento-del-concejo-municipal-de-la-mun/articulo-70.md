@@ -1,0 +1,1 @@
+Artículo 70.-Se deberá conformar un Comité Cantonal de la Persona Joven, el cual será considerado como una Comisión Permanente, y su integración y regulación se establecerá de acuerdo a lo determinado en la Ley Nº 8261, sus reformas y reglamentos.

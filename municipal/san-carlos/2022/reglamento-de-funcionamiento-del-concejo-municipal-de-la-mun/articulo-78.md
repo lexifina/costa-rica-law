@@ -1,0 +1,2 @@
+Artículo 78.-En sesiones remunerables donde asistan los (as) Síndicos (as) Propietarios (as), devengarán el cincuenta por ciento de la dieta que devenguen los (as) Regidores (as) Propietarios (as).
+Los (as) Síndicos (as) Suplentes devengarán la misma dieta que los (as) Propietarios (as) cuando sustituyan a estos (as). Los (as) Síndicos (as) Suplentes que no estén sustituyendo a un (a) Propietario (a) y se encuentren presentes durante toda la sesión, devengarán un veinticinco por ciento de la dieta de un (a) Regidor (a) Propietario (a).

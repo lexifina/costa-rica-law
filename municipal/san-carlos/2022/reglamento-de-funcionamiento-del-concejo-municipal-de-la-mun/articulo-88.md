@@ -1,0 +1,1 @@
+Artículo 88.-La Secretaría del Concejo comunicará a los directores vía correo electrónico, la fecha de la sesión municipal en la que les corresponderá concurrir virtualmente a fin de llevar a cabo la juramentación de los miembros de su Junta.

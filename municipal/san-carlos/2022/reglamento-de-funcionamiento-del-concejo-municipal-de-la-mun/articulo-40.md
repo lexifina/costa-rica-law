@@ -1,0 +1,1 @@
+Artículo 40.-Durante las sesiones del Concejo, los munícipes deberán guardar el orden, decoro y respeto que se merecen los integrantes del Concejo Municipal, así como el resto de las personas presentes.

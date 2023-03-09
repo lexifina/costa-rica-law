@@ -1,0 +1,1 @@
+Artículo 90.-De no contar el director o centro educativo con las condiciones y herramientas para asegurarse el acceso pleno a la sesión, deberá optar por el traslado físico de las personas por juramentar al recinto en el cual se realice la sesión a fin de llevar a cabo la misma de manera presencial.

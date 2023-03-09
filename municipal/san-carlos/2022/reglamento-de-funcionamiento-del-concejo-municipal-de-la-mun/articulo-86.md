@@ -1,0 +1,1 @@
+Artículo 86.-Cada centro educativo deberá contar también, de acuerdo a sus posibilidades, con los medios y condiciones requeridas para certificar por medios tecnológicos, su participación en las sesiones ordinarias del Concejo Municipal en las cuales se realicen las respectivas juramentaciones de los miembros de sus Juntas de Educación y Administrativas.

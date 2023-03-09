@@ -1,0 +1,1 @@
+Artículo 77.-En caso que los (as) Regidores (as) Suplentes no hayan sustituido a los (as) Propietarios (as) en una sesión remunerable, pero estén presentes durante toda la sesión, serán acreedores de un cincuenta por ciento de la dieta correspondiente del Regidor Propietario.

@@ -1,0 +1,1 @@
+Artículo 68.-Los (as) Regidores (as) y Síndicos (as) deberán participar en las Comisiones Permanentes o Especiales en las que se les nombre, el incumplimiento acarreará una sanción con una llamada de atención verbal.

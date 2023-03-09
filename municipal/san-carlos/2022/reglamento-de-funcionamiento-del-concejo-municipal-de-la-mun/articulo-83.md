@@ -1,0 +1,1 @@
+Artículo 83.-En cuanto al otorgamiento de los permisos y vacaciones, se designa para otorgarlos únicamente al Alcalde Municipal en cuanto a la Secretaria(o) del Concejo Municipal, y para el (la) Auditor (a) Interno (a) al Concejo Municipal.

@@ -1,0 +1,1 @@
+Artículo 43.-Será potestativo para quien ejerza la Presidencia Municipal el denunciar de conformidad con el artículo 389 del Código Penal, a quien interrumpiere el desarrollo normal de la sesión municipal.

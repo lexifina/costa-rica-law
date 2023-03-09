@@ -1,0 +1,2 @@
+Artículo 61.-Se mantendrán de manera permanente las Comisiones Especiales de Correspondencia, y de Asuntos Agropecuarios, estas últimas, deberán ser creadas por acuerdo municipal.
+Podrán existir todas las Comisiones Especiales que el Concejo Municipal considere necesarias para tratar temas específicos. En el caso de las Comisiones Especiales, su integración estará a cargo del (la) Presidente del Concejo previo acuerdo del Concejo.

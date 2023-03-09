@@ -1,0 +1,1 @@
+Artículo 91.-En las sesiones virtuales es indispensable que la telecomunicación que se utilice permita una comunicación integral, simultánea que comprenda video, audio y datos, que acceda a una interacción amplia y circulación de la información con posibilidad de que los miembros se comuniquen verbal y visualmente.

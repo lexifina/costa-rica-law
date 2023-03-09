@@ -1,0 +1,1 @@
+Artículo 73.-Las dietas se pagarán de acuerdo al presupuesto ordinario de la Municipalidad de San Carlos. Los aumentos anuales de las dietas serán acordes al porcentaje de aumento del presupuesto municipal.

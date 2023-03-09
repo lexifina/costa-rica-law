@@ -1,0 +1,1 @@
+Artículo 37.-En caso de que en la exposición se haya aludido a un miembro del Concejo Municipal o funcionario presente, éste contará con un tiempo máximo de cinco minutos para ejercer su derecho a la defensa.

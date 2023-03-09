@@ -1,0 +1,1 @@
+Artículo 93.-Los directores de los centros educativos son responsables de mantener un servicio de conectividad adecuado para lograr su participación en las sesiones, lo cual hará de conocimiento del Departamento de Secretaría del Concejo.

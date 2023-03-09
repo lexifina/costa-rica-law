@@ -1,0 +1,1 @@
+Artículo 50.-Los demás Regidores (as), Síndicos (as), miembros de la Administración Municipal y público en general, estarán atentos y en silencio, escuchando las exposiciones de sus compañeros y de las personas que hagan uso de la palabra en las sesiones.

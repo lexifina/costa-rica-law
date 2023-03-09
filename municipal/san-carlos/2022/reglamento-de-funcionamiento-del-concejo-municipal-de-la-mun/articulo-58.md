@@ -1,0 +1,1 @@
+Artículo 58.-Las actas deberán ser firmadas por quien ejerza la Presidencia y el (la) Secretario (a) en la sesión municipal posterior a la aprobación respectiva, además las actas podrán llevarse en hojas sueltas cuando fueren previamente foliadas y selladas por el Departamento de Auditoría Interna de esta Municipalidad.

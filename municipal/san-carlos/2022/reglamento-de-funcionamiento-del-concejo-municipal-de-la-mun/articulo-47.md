@@ -1,0 +1,1 @@
+Artículo 47.-En caso de que algún (a) Regidor (a) tuviere opinión contraria al criterio del (la) Presidente, podrá apelar ante el Concejo y éste decidirá sobre la moción de orden por simple mayoría de votos.
