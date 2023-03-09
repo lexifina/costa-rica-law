@@ -15,3 +15,4 @@ Reglamento para la Organización, Funcionamiento y Elección del Comité Cantona
 | --- | --- | --- |
 | 1 | 2013-12-09 | la propia norma |
 | 2 | 2015-08-20 | Reglamento municipal 0 (2015-08-20) |
+| 3 | 2023-03-09 | Reglamento municipal 17 (2023-03-09) |
