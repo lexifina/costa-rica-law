@@ -1,7 +1,2 @@
-ARTÍCULO 100.- Exonéranse del pago de los impuestos sobre
-espectáculos públicos vigentes en favor de las municipalidades u
-organismos o entidades gubernamentales, los espectáculos, las actividades
-o los torneos deportivos que organicen las Sociedades Anónimas Deportivas,
-las asociaciones y las federaciones deportivas, debidamente inscritas en
-el Registro de Asociaciones Deportivas y reconocidas como tales por el
-Consejo Nacional del Deporte y la Recreación.
+Artículo 100- Se exoneran del pago de los impuestos sobre espectáculos públicos vigente, en favor de las municipalidades u organismos o entidades gubernamentales, los espectáculos, las actividades o los torneos deportivos, sin fines de lucro, que organicen las sociedades anónimas deportivas, las asociaciones y las federaciones deportivas, debidamente inscritas en el Registro de Asociaciones Deportivas y reconocidas como tales por el Consejo Nacional del Deporte y la Recreación.
+(Así reformado por el artículo 53 de la Ley de Regímenes de exenciones del pago de tributos, su otorgamiento y control sobre uso y destino, N° 10286 del 18 de agosto del 2022)
