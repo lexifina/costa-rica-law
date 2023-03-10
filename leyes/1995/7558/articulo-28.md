@@ -1,5 +1,4 @@
-Arículo 28.- Atribuciones, competencias y deberes
-La Junta Directiva del Banco Central tendrá las siguientes atribuciones, competencias y deberes:
+Arículo 28.- Atribuciones, competencias y deberes. La Junta Directiva del Banco Central tendrá las siguientes atribuciones, competencias y deberes:
 a) En materia cambiaria:
 i) Establecer, con el voto favorable de por lo menos cinco de sus miembros, el régimen cambiario que considere apropiado, ajustándose a las disposiciones legales.
 ii) La Junta Directiva podrá establecer un régimen cambiario en el cual la determinación del tipo de cambio le corresponda efectuarla al Banco Central. En este caso, la fijación deberá hacerla la Junta Directiva con el voto favorable de, por lo menos, cinco de sus miembros. También podrá la Junta establecer un régimen cambiario, donde la determinación del tipo de cambio le corresponda hacerla al mercado. En este caso, podrá adoptar un sistema con intervención del Banco o sin ella.
@@ -24,6 +23,6 @@ p) (Derogado por el artículo 194 de la Ley Reguladora del Mercado de Valores No
 q) Otorgar y revocar poderes a los funcionarios que determine, con las facultades y las limitaciones que ella establezca.
 r) Acordar la realización de concursos públicos para promover la investigación sobre temas propios de la competencia del Banco Central, así como el otorgamiento de premios dentro de estos concursos, todo conforme a las disposiciones reglamentarias que dicte la Junta Directiva.
 s) (Derogado por el artículo 194 de la Ley Reguladora del Mercado de Valores No.7732 de 17 de diciembre de 1997)
-t) Dictar los presupuestos, ordinarios y extraordinarios, de los órganos desconcentrados encargados de la supervisión de las actividades financieras, así como el régimen de salarios y otras remuneraciones. Al establecer este régimen, se tendrán en cuenta las necesidades específicas de cada órgano y la remuneración total no podrá exceder el límite que establece la Ley N.° 2166, Ley de Salarios de la Administración Pública, de 9 de octubre de 1957.
-(Así reformado el inciso anterior por el artículo 3° del título III de la Ley de Fortalecimiento de las Finanzas Públicas, N° 9635 del 3 de diciembre de 2018, que adicionó el numeral 57 aparte c) a la Ley de Salarios de la Administración Publica, N° 2166 del 9 de octubre de 1957)
+t) Dictar los presupuestos, ordinarios y extraordinarios, de los órganos desconcentrados encargados de la supervisión de las actividades financieras.
+(Así reformado el inciso anterior por el artículo 49 sub inciso m) de la Ley Marco de Empleo Público, N° 10159 del 8 de marzo de 2022)
 u) Ejercer las demás funciones, facultades y deberes que le correspondan, de acuerdo con las leyes.
