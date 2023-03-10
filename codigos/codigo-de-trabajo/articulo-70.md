@@ -10,3 +10,5 @@ h. Omitir, en tratándose de fincas rurales, el plazo de que habla el artículo 
 i. Ejecutar cualquier acto que restrinja los derechos que el trabajador tiene conforme a la ley.
 j) Solicitar pruebas VIH para efectos de contratación laboral o permanencia en el trabajo. Cuando requiera pruebas de salud, podrá incluir exámenes hematológicos (pruebas de sangre) solamente en caso de que exista criterio médico que demuestre su necesidad y únicamente para efectos de protección de la salud de la persona trabajadora.
 (Así adicionado el inciso anterior por el artículo 49 de la Ley General de sobre el VIH Sida, N° 9797 del 2 de diciembre de 2019)
+k) Exigir una prueba médica de embarazo para el ingreso o la permanencia en el trabajo.
+(Así adicionado el inciso anterior por el artículo 2° de la Ley para combatir la discriminación laboral contra las mujeres en condición de maternidad, N° 10211 del 5 de mayo de 2022)
