@@ -1,1 +1,0 @@
-Artículo 10.-La Comisión tendrá un plazo no mayor de quince días hábiles para estudiar la contratación y emitir su criterio, si la recomendación no se brindare en ese período; el director deberá adjudicar con base en los estudios realizados.

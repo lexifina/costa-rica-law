@@ -1,1 +1,0 @@
-Artículo 8°-Formará quórum la presencia de cuatro de los miembros de la Comisión o sus delegados, de lo contrario no se podrá sesionar. Incurrirán en responsabilidad los miembros que no asistieren por causas no justificadas.
