@@ -1,4 +1,4 @@
-Artículo 15.—Responsabilidad del Profesional Contratado. El Agente de Seguros externo acreditado será responsable ante Popular Sociedad Agencia de Seguros S. A. de cualquier daño o perjuicio que le ocasione con motivo de la deficiente atención de los clientes a su cargo.
-Igualmente será responsable de todos los perjuicios que ocasione por el incumplimiento de las leyes, reglamentos u obligaciones derivadas de su gestión, así como del ejercicio de la actividad profesional por la cual ha sido contratado, excepto que demuestre que las causas no le son imputables.
-Popular Sociedad Agencia de Seguros S. A. puede instaurar las acciones o diligencias que estime convenientes ante los órganos jurisdiccionales o administrativos correspondientes, en demanda del resarcimiento, o de la actividad del profesional.
-Dichas acciones serán ejecutadas con instrucciones de la Gerencia General.
+Artículo 15.-Cancelación del Contrato. Cesará en sus funciones, sin que pueda ser contratado nuevamente para el ejercicio de las labores indicadas en el presente Reglamento, el corredor de seguros que:
+a- Incumpla con lo dispuesto en los reglamentos y disposiciones que regulan su labor, tales como Código de Ética, Ley de Seguros N° 8653 y en general toda la normativa que regula la materia.
+b- Suministre a Popular Seguros Correduría de Seguros S.A. información o documentación falsa, en cualquier acto de los indicados en el presente Reglamento.
+c- Sea en firme sancionado o suspendido en sus funciones de Corredor de Seguros por la Aseguradora o por parte de la Sugese.

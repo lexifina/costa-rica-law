@@ -1,4 +1,7 @@
-Artículo 16.—Cancelación del Contrato. Cesará en sus funciones, sin que pueda ser contratado nuevamente para el ejercicio de las labores indicadas en el presente Reglamento, el agente de seguros que:
-a- Incumpla con lo dispuesto en los reglamentos y disposiciones que regulan su labor, tales como Código de Ética, Ley de Seguros Nº 8653 y en general toda la normativa que regula la materia.
-b- Suministre a Popular Sociedad Agencia de Seguros S. A. información o documentación falsa, en cualquier acto de los indicados en el presente Reglamento.
-c- Sea en firme sancionado o suspendido en sus funciones de Agente de Seguros por la Aseguradora o por parte de la Sugese.
+Artículo 16.-Reconocimiento de comisiones. Popular Seguros les pagará al Corredor de Seguros Externo y a los Promotores únicamente lo relativo a comisiones por venta de seguros de acuerdo con lo establecido en el Esquema de Comisiones fijado por la Gerencia General, y bajo ningún concepto se puede considerar las mencionadas comisiones como salario, dada la naturaleza mercantil de la relación entre las partes.
+A los Corredores de Seguros con comisión fija y/o variable, se les reconocerá aparte del salario base, la comisión establecida en el Esquema de Comisiones fijado por la Gerencia General, por la asesoría y venta de los seguros producto de la emisión y renovación de los seguros que las Aseguradoras tengan debidamente registrados a Popular Seguros Correduría de Seguros S.A. Las Aseguradoras reconocerán comisiones a Popular Seguros Correduría de Seguros S.A., quien a su vez los redistribuirá entre sus Corredores de Seguros acreditados, de acuerdo con:
+a) Esquema de Comisiones fijado por la Gerencia General.
+b) La liquidación que hace la Aseguradora.
+Serán condiciones esenciales para el pago de las comisiones las siguientes:
+a) Queda entendido que el Corredor sólo recibirá comisiones sobre aquellos seguros donde figure como responsable de su emisión y venta.
+b) Por ser el Corredor representante de Popular Seguros Correduría de Seguros S.A., ante la Aseguradora, será responsable ante ella, ante cualquier reclamo civil, administrativo, fiscal o cualquier otro que pueda presentarse contra Popular Seguros, por causa de negligencia, omisión o desatención de su parte en sus actuaciones como Corredor de seguros acreditado.
