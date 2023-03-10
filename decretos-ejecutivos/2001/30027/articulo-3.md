@@ -1,1 +1,0 @@
-Artículo 3º—De los principios generales. Las distintas actuaciones de los procedimientos administrativos, así como funcionarios y órganos involucrados en los diversos actos administrativos que se lleguen a dictar, en materia de contratación administrativa y sus procedimientos, tendrán como fundamento los principios generales que se desarrollan en el Glosario de este Reglamento.

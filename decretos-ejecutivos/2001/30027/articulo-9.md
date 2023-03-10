@@ -1,3 +1,0 @@
-CAPÍTULO III
-Unidad de Adquisiciones
-Artículo 9º—Disposiciones generales. Esta Unidad, está a cargo de un Responsable especialmente designado para dirigir todo lo relacionado con la tramitación de la gestión de adquisiciones de bienes, servicios, arrendamientos o contratación de obras para el Consejo de Seguridad Vial y las Direcciones del MOPT que con el interactúen y será el encargado de planear, organizar, dirigir, coordinar, supervisar y evaluar todas las actividades que Adquisiciones realice a través de sus servidores, de acuerdo con las funciones y competencias asignadas por la Administración Superior, y el ordenamiento jurídico, en coordinación con el Encargado del Departamento de Suministros.

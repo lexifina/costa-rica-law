@@ -1,2 +1,0 @@
-Artículo 33.—Estudio legal. Corresponderá a la Asesoría Legal del Consejo efectuar el análisis de los aspectos formales y jurídicos de las ofertas. En dicho estudio, se señalarán los incumplimientos sustanciales que presenten las propuestas, así como cuales ofertas resultan inadmisibles en ese tanto. Asimismo se deberá advertir cualquier situación relevante que incida en la contratación de forma negativa y que se enmarque en el ámbito jurídico.
-Una vez concluido el informe legal deberá ser remitido a Adquisiciones.

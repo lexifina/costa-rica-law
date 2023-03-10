@@ -1,6 +1,0 @@
-CAPÍTULO VI
-Del procedimiento de contratación directa
-Artículo 44.—Consulta de precios.
-1. Cuando la contratación directa se encuentre fundamentada en razones que no impidan la competencia, el Departamento de Suministros a través de Adquisiciones, deberá efectuar consultas de precios y negociar en la forma más favorable a los intereses del Consejo. Se solicitarán para ello al menos, cinco cotizaciones.
-2. En cuanto a las formalidades inherentes a la presentación de ofertas o cotizaciones en procedimientos de contratación directa, se utilizará en lo pertinente, lo establecido al efecto en los artículos 44 al 57 del Reglamento General de Contratación Administrativa.
-Con base en lo anterior, se tramitarán contrataciones directas para la adquisición de bienes, suministros, equipo, arrendamiento, contrataciones de servicios y obras, cuando el monto de cada negocio no supere el máximo establecido por la Contraloría General de la República para esta modalidad de contratación, o cuando concurran algunos de los supuestos contenidos en el artículo 2º de la Ley de Contratación Administrativa por lo dispuesto entre los artículos 75 a 83, ambos inclusive del Reglamento General de Contratación Administrativa.

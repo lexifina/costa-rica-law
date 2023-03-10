@@ -1,1 +1,0 @@
-Artículo 66.—Formalización del contrato. Una vez corregido el contrato el funcionario encargado de su trámite iniciará en el menor tiempo posible la formalización del mismo hasta su refrendo. Para el logro de lo anterior solicitará la firma de las partes contratantes y el recibo de las especies fiscales que correspondan, adhiriéndolas al documento contractual.

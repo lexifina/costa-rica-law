@@ -1,1 +1,0 @@
-Artículo 84.—Objetivo general. Brindar un servicio eficiente en la administración de los materiales adquiridos por el Consejo de Seguridad Vial, desde la recepción de estos hasta su despacho a las unidades solicitantes, aprovechando las economías a escala y otras ventajas de la administración del inventario.

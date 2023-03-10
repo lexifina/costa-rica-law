@@ -1,5 +1,0 @@
-Artículo 102.—Definición de bienes muebles. Para los anteriores efectos se entenderán como bienes muebles los destinados al uso y consumo para la realización de los objetivos de la Institución, y los que se clasificaron así:
-1. Equipo y mobiliario: Los bienes que no constituyan parte permanente de edificaciones y que puedan ser trasladados sin alterar su integridad física y aquellos que posean una conformación física que permita su adecuada identificación, sea por medio de una placa metálica, por grabación en su superficie, mediante la aplicación de sellos, adhesivos o cualquier otro medio que permita su identificación patrimonial.
-2. Materiales y suministros: Aquellos de empleo usual en las labores de la Institución, que se agotan con su utilización.
-3. Herramientas: Los instrumentos empleados manualmente o por medio de máquinas.
-Todo movimiento de bienes, sea por traslado a otras bodegas o almacenes, por entrega a las Unidades solicitantes, por asignación a éstas en caso de bienes muebles; deberá estar debidamente documentado, en los formularios existentes para ésos efectos.

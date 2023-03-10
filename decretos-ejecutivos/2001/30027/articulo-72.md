@@ -1,2 +1,0 @@
-Artículo 73.—Egresos por compras al exterior. El funcionario designado para el trámite de Compras al Exterior, solicitará los egresos necesarios que justifican las compras al exterior, conforme a los términos de la contratación administrativa y la oferta presentada por el adjudicatario.
-Una vez efectuada la transacción, deberá de presentar la liquidación del egreso correspondiente, ante la Dirección Financiera, aportando los comprobantes que evidencian la aplicación de gastos con respecto a la compra al exterior.

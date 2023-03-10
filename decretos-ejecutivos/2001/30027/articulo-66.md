@@ -1,2 +1,0 @@
-Artículo 67.—Documentos que integran el contrato administrativo para la solicitud de refrendo. Formarán parte integrante del contrato administrativo los requisitos establecidos en el artículo 5º del reglamento en materia de refrendo emitido por el Órgano Contralor.
-El encargado de la Unidad de Trámite y Control remitirá a la Dirección Ejecutiva el instrumento contractual y documentos anexos, para que ésta emita la nota remisión con los requisitos estipulados por el Órgano Contralor.
