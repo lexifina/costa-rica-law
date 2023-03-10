@@ -1,6 +1,6 @@
 # Ley General de la Administración Pública
 
-Ley N° 6227 del 1978-05-02. SINALEVI, ficha 13231: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=13231&param2=127653&param3=1>.
+Ley N° 6227 del 1978-05-02. SINALEVI, ficha 13231: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=13231&param2=135123&param3=1>.
 
 Publicada en La Gaceta N° 102 del 1978-05-30.
 
@@ -24,3 +24,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 14 de 22 | 2017-07-26 | Ley 9343 | 2016-01-25 |
 | 15 de 22 | 2021-05-28 | Ley 9971 | 2021-05-11 |
 | 16 de 22 | 2021-11-10 | Ley 10053 | 2021-10-25 |
+| 17 de 22 | 2023-03-10 | Ley 10159 | 2022-03-08 |
