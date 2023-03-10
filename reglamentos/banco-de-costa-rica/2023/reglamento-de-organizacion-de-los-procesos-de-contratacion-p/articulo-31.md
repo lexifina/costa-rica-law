@@ -1,0 +1,1 @@
+Artículo 31.-Cesión. El Fiduciario será la responsable de preparar el expediente de la cesión contractual prevista en el artículo 102 de la Ley General de Contratación Pública y elaborar la resolución. Según sea el monto del contrato a ceder, se aplicarán las mismas competencias establecidas en el presente reglamento para dictar el acto final.

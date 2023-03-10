@@ -1,0 +1,2 @@
+Artículo 22.-Acto final del procedimiento de Licitación Menor y Licitación Reducida. El Fiduciario realizará la recomendación para el dictado del acto final, sustentado en los correspondientes estudios de respaldo y será remitida a la Jefatura de Fideicomisos Comerciales para el dictado del acto final correspondiente.
+El Fiduciario remitirá recomendación al Comité Director para que valore si otorga la no objeción, posteriormente, la Jefatura de Fideicomisos Comerciales dictará el acto final.

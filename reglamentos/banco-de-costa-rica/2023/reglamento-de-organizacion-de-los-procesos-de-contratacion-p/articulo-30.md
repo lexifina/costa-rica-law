@@ -1,0 +1,2 @@
+Artículo 30.-Modificación unilateral del contrato. Para la aplicación de la modificación contractual prevista en el artículo 101 de la Ley General de Contratación Pública, la Unidad Ejecutora levantará un expediente con los estudios que justifiquen la procedencia de la modificación y hará una solicitud del cambio contractual al Fiduciario.
+Según sea la cuantía de la modificación contractual se aplicarán las mismas competencias previstas en este reglamento para el dictado del acto final.

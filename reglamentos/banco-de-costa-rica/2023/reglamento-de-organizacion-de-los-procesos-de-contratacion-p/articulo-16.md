@@ -1,0 +1,1 @@
+Artículo 16.-Prohibición de fragmentar. Corresponde al Fiduciario velar porque durante el respectivo año presupuestario no se incurra en una fragmentación irregular, según dispone el artículo 33 de la Ley General de Contratación Pública. Para ello pondrá especial atención a la planificación anual, el presupuesto anual aprobado y el momento de surgimiento de las necesidades.

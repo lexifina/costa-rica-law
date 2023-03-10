@@ -1,0 +1,3 @@
+Artículo 29.-Recursos ante el Fideicomiso. Cuando corresponda al Fideicomiso resolver un recurso de objeción al cartel o de revocatoria contra el acto final el Fiduciario será la encargada de la instrucción del procedimiento y atenderá las audiencias y la resolución final.
+Las audiencias de mero trámite, así como la resolución final del recurso de objeción serán suscritas por la Jefatura de Fideicomisos Comerciales o quien lo sustituya en caso de ausencia, mientras que la resolución final del recurso de revocatoria será resuelta por el mismo que dictó el acto de adjudicación.
+Cuando quien dictó el acto de adjudicación no sea el jerarca de la Administración, el recurrente podrá solicitar que su gestión sea conocida y resuelta por el Gerente General.

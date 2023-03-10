@@ -1,0 +1,1 @@
+Artículo 26.-Convenios marco. La Unidad Ejecutora podrá recomendar unirse o crear convenios marco, lo cual será aprobado por la Jefatura de Fideicomisos Comerciales o quien lo sustituya en caso de ausencia, respetando los lineamientos indicados en el artículo 84 de la Ley General de Contratación Pública.

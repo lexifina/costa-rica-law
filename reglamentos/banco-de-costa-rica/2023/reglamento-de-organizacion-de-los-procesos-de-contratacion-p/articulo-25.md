@@ -1,0 +1,1 @@
+Artículo 25.-Participación del Comité Director. De acuerdo con el artículo 82 de la Ley General de Contratación Pública la participación de del Comité Director está enmarcada en aquellas definidas en el contrato de Fideicomiso y en el presente reglamento.
