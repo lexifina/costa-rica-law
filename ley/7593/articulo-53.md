@@ -14,8 +14,8 @@ k) Presentar, a la Asamblea Legislativa, a más tardar el último día del mes d
 I) Aprobar la organización interna de la Autoridad Reguladora y el estatuto interno de trabajo.
 m) Mantener estrecha comunicación y coordinación con el Ministerio de Economía, Industria y Comercio, en cuanto a la política de precios que debe seguir el Gobierno.
 n) Dictar los reglamentos técnicos que se requieran para la correcta aplicación del marco regulatorio de los servicios públicos establecidos en esta Ley y las modificaciones de estos
-ñ) Dictar las normas y políticas que regulen las condiciones laborales, la creación de plazas, las obligaciones y los derechos de los funcionarios y trabajadores de la Autoridad Reguladora y de la Sutel.
-.(Así reformado el inciso anterior por el artículo 49 sub inciso L) de la Ley Marco de Empleo Público, N° 10159 del 8 de marzo de 2022)
+ñ) Dictar las normas políticas que regulen las condiciones laborales, las obligaciones y los derechos de los funcionarios y trabajadores de la Autoridad Reguladora y de la Sutel.
+(Así reformado el inciso anterior por el artículo 1° de la ley N° 10145 del 4 de abril de 2022)
 o) Resolver los recursos que se presenten contra las resoluciones que dicte la Sutel en materia de fijación de tarifas, cánones, tasas y contribuciones de telecomunicaciones.
 p) Los demás deberes y atribuciones que se le confieren, de conformidad con las leyes o los reglamentos de servicio de cada actividad regulada.
 (Así reformado por el artículo 41 aparte i) de la Ley N° 8660 del 8 de agosto de 2008)
