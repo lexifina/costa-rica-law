@@ -1,0 +1,3 @@
+Artículo 2°. El pago de estos recargos se efectuará de la siguiente forma:
+a) Para el personal contratado por jornada laboral, el recargo será proporcional a la jornada de trabajo sobre la que se ejecuta el recargo, tomando para ello el salario global definitivo de la clase y grupo profesional (cuando así corresponda) del puesto sobre el cual se está ejecutando en condición de recargo.
+b) Para el personal contratado en la modalidad de lecciones, el recargo corresponderá a la cantidad lecciones sobre las que se ejecuta el recargo, tomando para ello el salario global definitivo por lección, de la clase y grupo profesional (cuando así corresponda) del puesto sobre el cual se está ejecutando en condición de recargo.

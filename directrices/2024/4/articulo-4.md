@@ -1,0 +1,1 @@
+Artículo 4º. La autorización y regulación puntual de cada uno de los recargos, para funcionarios que devenguen su salario bajo la modalidad de salario global, conforme al artículo 2 de la presente directriz, se emitirá mediante resolución de la Dirección General de Servicio Civil.
