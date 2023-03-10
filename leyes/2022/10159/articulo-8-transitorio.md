@@ -1,0 +1,1 @@
+TRANSITORIO VIII- Las personas servidoras públicas que, previo a la entrada en vigencia de la presente ley, posean derecho a vacaciones superior al tope establecido en el artículo 38, conservarán tal condición pero esta no podrá aumentarse.

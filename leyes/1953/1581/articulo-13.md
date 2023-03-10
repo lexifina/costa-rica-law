@@ -13,3 +13,5 @@ i) Dar el visto bueno a todos los reglamentos interiores de trabajo de las depen
 j) Presentar en la primera quincena del mes de febrero de cada año un informe al Presidente de la República sobre las labores desarrolladas por la Dirección General en el ejercicio anterior y de sus proyectos para el siguiente.
 Este informe deberá ser publicado en el Diario Oficial.
 k) Cualesquiera otras que le correspondan en su carácter de Director del Servicio Civil.
+l) Agotar la vía administrativa de los asuntos sometidos a la competencia de la Dirección General de Servicio Civil.
+(Así adicionado el inciso anterior por el artículo 49 sub inciso b) de la Ley Marco de Empleo Público, N° 10159 del 8 de marzo de 2022)

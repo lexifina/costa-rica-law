@@ -1,2 +1,1 @@
-Artículo 157.-Enterado el servidor de su evaluación y calificación de servicios por el jefe inmediato, si hubiere disconformidad, podrá dejar constancia de ello en el acto de firmar el documento, o manifestarlo por escrito, en el término del día hábil siguiente. En tal caso, el jefe concederá entrevista al servidor dentro del tercero día; con base en ésta, hará la ratificación o enmienda que estimare procedente, y la consignará en el mismo documento.
-El superior del jefe inmediato confirmará la calificación o hará las modificaciones que estime pertinentes, dentro del término indicado en el artículo 153 anterior.
+Artículo 157.- (Derogado por el artículo 50 de la Ley Marco de Empleo Público, N° 10159 del 8 de marzo de 2022)

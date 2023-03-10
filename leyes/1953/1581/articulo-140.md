@@ -1,1 +1,1 @@
-Artículo 140.-Son profesores de Enseñanza Normal, quienes sirven en funciones docentes administrativas o impartan lecciones en instituciones formadoras de profesores para la Enseñanza Primaria, sobre asignaturas comprendidas en el plan de estudios correspondientes, excepto las que se han ubicado en el campo "técnico-profesional".
+Artículo 140.- (Derogado por el artículo 50 de la Ley Marco de Empleo Público, N° 10159 del 8 de marzo de 2022)

@@ -1,0 +1,2 @@
+TRANSITORIO XIV- Los miembros del Tribunal Administrativo de Servicio Civil se mantendrán en la misma condición durante dos años después de la entrada en vigencia de la presente ley, a efectos de que los casos que se encuentren en trámite se gestionen con base en la normativa vigente anteriormente.
+Una vez concluido dicho plazo, y en pleno respeto a sus derechos laborales, pasarán a formar parte del Tribunal de Servicio Civil.

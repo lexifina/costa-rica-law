@@ -1,0 +1,2 @@
+ARTÍCULO 35- Régimen salarial unificado para todo el servicio público. Todas las instituciones del sector público se incluirán en este régimen salarial unificado basado en la columna salarial global. Todas las personas servidoras públicas serán remuneradas de acuerdo con esta ley, incluidos los servidores actuales.
+Se publicará la columna salarial global y los puestos de todas las calificaciones asignadas a la columna salarial.

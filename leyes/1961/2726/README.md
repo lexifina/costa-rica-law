@@ -1,6 +1,6 @@
 # Ley Constitutiva Instituto Costarricense Acueductos y Alcantarillados
 
-Ley N° 2726 del 1961-04-14. SINALEVI, ficha 37097: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=37097&param2=39114&param3=1>.
+Ley N° 2726 del 1961-04-14. SINALEVI, ficha 37097: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=37097&param2=135128&param3=1>.
 
 Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit, fechada el día en que entró en vigor):
 
@@ -13,3 +13,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 5 de 10 | 1995-06-08 | Ley 6806 | 1982-08-26 |
 | 6 de 10 | 1995-06-08 | Ley 6890 | 1983-09-14 |
 | 7 de 10 | 2004-05-18 | SINALEVI | 2004-05-18 |
+| 8 de 10 | 2023-03-10 | Ley 10159 | 2022-03-08 |

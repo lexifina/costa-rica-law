@@ -1,1 +1,1 @@
-Artículo 152.-La evaluación deberá tomarse en cuenta en toda "Acción de Personal" que beneficie al servidor y como factor que se considerará para los traslados aumentos de sueldos, licencias y, en general, para los restantes efectos consignados en la presente ley y otras disposiciones legales y reglamentos aplicables.
+Artículo 152.- (Derogado por el artículo 50 de la Ley Marco de Empleo Público, N° 10159 del 8 de marzo de 2022)

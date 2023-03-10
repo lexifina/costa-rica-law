@@ -1,0 +1,1 @@
+ARTICULO 48- Presupuesto anual. El Estado, por medio del presupuesto nacional, asignará los recursos necesarios para el financiamiento del presupuesto anual de la Dirección General del Servicio Civil.

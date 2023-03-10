@@ -1,1 +1,1 @@
-Artículo 163.-Si se presentare la situación comprendida en el artículo anterior, sin que el servidor haya usado del recurso que le confiere el artículo 94 de esta ley, o declarado sin lugar dicho recurso, al Director del Departamento de Personal del Ministerio de Educación Pública deberá promover las diligencias tendientes al despido del servidor.
+Artículo 163.- (Derogado por el artículo 50 de la Ley Marco de Empleo Público, N° 10159 del 8 de marzo de 2022)

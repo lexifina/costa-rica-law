@@ -1,2 +1,1 @@
-Artículo 86.-Los candidatos que proponga la Dirección General de Servicio Civil podrán ser objetados por el Ministerio de Educación Pública, sólo con base en razones muy justificadas.
-Si la Dirección General considerare atendibles las objeciones, excluirá del Registro de Elegibles el nombre del candidato, mediante resolución que notificará al interesado.
+Artículo 86.- (Derogado por el artículo 50 de la Ley Marco de Empleo Público, N° 10159 del 8 de marzo de 2022)

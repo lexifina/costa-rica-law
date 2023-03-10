@@ -1,0 +1,2 @@
+ARTÍCULO 10- Reglamentos autónomos de servicio. Toda dependencia pública deberá contar con su reglamento autónomo de servicio, o su equivalente normativo, para regular las condiciones de trabajo que le son propias. Dicho instrumento, así como sus condiciones de acceso e implementación.
+En el caso de las dependencias y los órganos del Poder Ejecutivo, previo a la publicación del reglamentos autónomo de servicio o de sus reformas, se deberá contar con el aval del Ministerio de Planificación Nacional y Política Económica (Mideplán).

@@ -1,0 +1,1 @@
+TRANSITORIO VII- Planificación de empleo público. Las entidades y los órganos, incluidos en el artículo 2 de la presente ley, deberán elaborar sus planes de empleo público y su oferta de empleo público en un plazo máximo de doce meses posteriores a la entrada en vigencia de la presente ley.

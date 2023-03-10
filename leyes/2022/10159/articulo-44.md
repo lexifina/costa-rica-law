@@ -1,0 +1,3 @@
+ARTÍCULO 44- Responsabilidad del Ministerio de Trabajo y Seguridad Social. El Ministerio de Trabajo y Seguridad Social, previo a la homologación de una convención colectiva en el sector público deberá:
+a) Publicar integralmente, en la página web, el acta de cierre del proceso de negociación colectiva.
+b) Verificar que reúnan y respeten, además de los requisitos de forma y fondo contenidos en el ordinal 57 del Código de Trabajo, las resoluciones de la jurisdicción constitucional que regulan lo relativo al empleo público y el correcto uso de fondos públicos, con el fin de determinar si el convenio se ajusta o no a las disposiciones normativas vigentes del ordenamiento jurídico estatal y garantizar así la coherencia con este.

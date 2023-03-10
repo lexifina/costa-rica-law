@@ -1,0 +1,1 @@
+TRANSITORIO XII- Las personas serviciaras públicas que sean remuneradas bajo el esquema de salario global estarán excluidas de incrementos salariales por concepto de costo de vida, siempre y cuando se mantengan las condiciones indicadas en el inciso d) del artículo 11 de la Ley 9635, Fortalecimiento de las Finanzas Públicas, de 3 de diciembre de 2018.
