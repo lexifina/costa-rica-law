@@ -1,13 +1,5 @@
-ARTÍCULO 101.- Exonéranse del pago de cualquier tributo o gravamen la
-importación, venta o producción de letreros, pantallas, marcadores o
-vallas electrónicas, así como los sistemas de transmisión de sonido o
-señales permanentes que se construyan e instalen en estadios, gimnasios y
-demás recintos dedicados a prácticas de deporte y recreación, que sean
-propiedad del Estado, sus instituciones, las municipalidades o sociedades
-anónimas deportivas, asociaciones o federaciones deportivas y recreativas,
-debidamente inscritas en el Registro de Asociaciones Deportivas.
-El Ministerio de Hacienda no otorgará la exoneración referida en el
-párrafo anterior, sin la recomendación previa acordada por el Consejo
-Nacional del Deporte y la Recreación, el cual velará por el uso correcto
-y destino de la exoneración, sin perjuicio de las funciones de
-fiscalización que le competen al Ministerio de Hacienda.
+Artículo 101- Federaciones y asociaciones deportivas y recreativas
+Las federaciones y las asociaciones deportivas y recreativas debidamente inscritas en el Registro de Asociaciones Deportivas, que para tales efectos deberá llevar el Instituto Costarricense del Deporte-y que gocen de declaratoria de utilidad pública, podrán gozar de exoneración en el pago de tasas e impuestos de cualquier naturaleza que recaiga sobre los bienes inmuebles de su propiedad, que sean utilizados para llevar a cabo los fines para los cuales han sido creados.
+La exoneración del pago de los impuestos aplicables a la importación, salvo el impuesto sobre el valor agregado de implementos deportivos, equipo y materiales necesarios para el cumplimiento de sus fines, incluyendo letreros, pantallas, marcadores o vallas electrónicas, sistemas de transmisión de sonido o señales permanentes que se construyan e instalen en estadios, gimnasios y demás recintos dedicados a prácticas de deporte y recreación, deberán cumplir con los mismos requisitos establecidos en el párrafo anterior.
+Corresponde, al Consejo Nacional del Deporte y la Recreación, recomendar al Ministerio de Hacienda las solicitudes de exención que procedan según este artículo. Dicho Consejo velará por el uso correcto y destino de la exoneración, sin perjuicio de las funciones de fiscalización que le competen al Ministerio de Hacienda.
+(Así reformado por el artículo 51 de la Ley de Regímenes de exenciones del pago de tributos, su otorgamiento y control sobre uso y destino, N° 10286 del 18 de agosto del 2022)
