@@ -1,0 +1,3 @@
+TRANSITORIO V- Procedimiento de reclutamiento y selección. El procedimiento de reclutamiento y selección, derivado de los artículos 13 y 14, se aplicará a las personas servidoras públicas de nuevo ingreso, que ingresen a laborar por primera vez en los doce meses después de la entrada en vigencia de la presente ley.
+Las personas servidoras públicas que, antes de la entrada en vigencia de la presente ley, formen parte de registros de elegibles con nombramientos de forma interina, no serán sujetas a los procedimientos de reclutamiento y selección derivados de la presente ley.
+La Dirección General de Servicio Civil realizará las gestiones necesarias para integrar un solo registro de elegibles una vez transcurridos seis meses de la entrada en vigencia de la presente ley.

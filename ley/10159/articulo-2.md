@@ -1,0 +1,4 @@
+ARTÍCULO 2- Ámbito de cobertura. Esta ley es aplicable a las personas servidoras públicas de las siguientes entidades y órganos bajo el principio de Estado como patrono único:
+a) Los Poderes de la República (Ejecutivo, Legislativo y Judicial), sus órganos auxiliares y adscritos, y el Tribunal Supremo de Elecciones (TSE), sin perjuicio del principio de separación de Poderes establecido en la Constitución Política.
+b) El sector público descentralizado institucional conformado por: las instituciones autónomas y sus órganos adscritos, incluyendo universidades estatales, la Caja Costarricense de Seguro Social (CCSS), instituciones semiautónomas y sus órganos adscritos, y las empresas públicas estatales.
+c) El sector público descentralizado territorial conformado por las municipalidades, las ligas de municipalidades, los concejos municipales de distrito y sus empresas.

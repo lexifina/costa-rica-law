@@ -4,7 +4,8 @@ b) Coordinar la ejecución del Plan nacional que regirá el deporte y la recreac
 c) Fiscalizar que las asociaciones deportivas, recreativas y sociedades anónimas deportivas se adecuen a lo prescrito en esta ley y según los lineamientos de la Contraloría General de la República en lo relativo a la utilización de fondos públicos.
 d) Aprobar cuando el Instituto sea parte, los actos, contratos y convenios conducentes a obtener financiamiento; y, en particular, aprobar los términos de las negociaciones financieras y autorizar las garantías y compromisos que deban adquirirse para concretarlas.
 e) Nombrar a los representantes del Instituto en los comités cantonales de deporte y recreación y tener por acreditados a los demás.
-f) Nombrar al Director Nacional del Instituto y fijar su remuneración de conformidad con el presupuesto aprobado por el Comité financiero y administrativo.
+f) Nombrar al director nacional del Instituto.
+(Así reformado el inciso anterior por el artículo 49 sub inciso h) de la Ley Marco de Empleo Público, N° 10159 del 8 de marzo de 2022)
 g) Otorgar la representación nacional de un deporte a las federaciones deportivas que cumplan con las condiciones señaladas en la presente ley.
 h) Dar asistencia técnica, administrativa y financiera a las federaciones y asociaciones deportivas y recreativas, tanto convencionales como de deporte adaptado a personas con discapacidad, al Comité Olímpico Nacional de Costa Rica y al Comité Paralímpico Nacional de Costa Rica y a las Olimpiadas Especiales Costa Rica, según lo determina el Plan.
 (Así reformado el inciso anterior por el artículo 5° de la ley N° 9739 del 5 de noviembre del 2019, “Reformas para la inclusión al deporte y la recreación de las personas con discapacidad”)

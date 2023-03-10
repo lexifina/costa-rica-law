@@ -1,4 +1,5 @@
-(Nota de Sinalevi: Mediante resolución de la Sala Constitucional N° 008201 del 17 de marzo del 2025, se declara con ligar la acción respecto a este numeral, en su versión reformada por la Ley de Fortalecimiento de las Finanzas Públicas, N° 9635 del 3 de diciembre de 2018 y durante el plazo en que estuvo vigente. Lo anterior por la irrazonabilidad del reconocimiento por el incentivo de la anualidad en el mes de junio de cada año y por romper la continuidad laboral)
-Artículo 12- El incentivo por anualidad se reconocerá en la primera quincena del mes de junio de cada año.
-Si el servidor fuera ascendido, comenzará a percibir el mínimo de la nueva categoría; bajo ningún supuesto se revalorizarán los incentivos ya reconocidos.
-(Así reformado por el artículo 3° del título III de la Ley de Fortalecimiento de las Finanzas Públicas, N° 9635 del 3 de diciembre de 2018, que adicionó el numeral 57 aparte l) a la Ley de Salarios de la Administración Publica, N° 2166 del 9 de octubre de 1957)
+Artículo 12- El incentivo por anualidad se reconocerá el mes inmediato siguiente al aniversario del ingreso o reingreso de la persona servidora pública que labore bajo el esquema de salario compuesto y de acuerdo con las siguientes normas:
+a) Si el servidor es trasladado a un puesto de igual o inferior categoría a la del puesto que esté ocupando, no habrá interrupción alguna en cuanto al cómputo del tiempo para el aumento de salario.
+b) Si el servidor es ascendido, comenzará a percibir el mínimo de anualidades de la nueva categoría; bajo ningún supuesto se revalorizarán los incentivos ya reconocidos.
+c) A las personas servidoras públicas, en propiedad o interinos, se les computará, para efectos de reconocimiento del incentivo por anualidad, el tiempo de servicio prestado en otras entidades del sector público.
+(Así reformado por el artículo 49 sub inciso a) de la Ley Marco de Empleo Público, N° 10159 del 8 de marzo de 2022)

@@ -1,1 +1,1 @@
-Artículo 144.-El profesor titulado de Enseñanza Normal, o el autorizado del grupo NAU-2, que imparta lecciones de una especialidad ajena a la suya, será ubicado, para los efectos de esta ley y hasta por tres años, en el grupo inmediato inferior que, por sus estudios y experiencia, le correspondiere; cuando hubiere cumplido tres años de labores en esa otra especialidad, será reubicado en su grupo original.
+Artículo 144.- (Derogado por el artículo 50 de la Ley Marco de Empleo Público, N° 10159 del 8 de marzo de 2022)

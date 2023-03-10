@@ -1,0 +1,1 @@
+ARTÍCULO 41- Permiso de paternidad. Los padres que tengan un hijo biológico o en adopción podrán gozar de un permiso de paternidad, con goce de salario, por un mes calendario, posterior al día de nacimiento o al momento de concretarse la adopción de la persona menor de edad.
