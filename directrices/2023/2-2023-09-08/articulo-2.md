@@ -1,0 +1,2 @@
+Artículo 2°. - Las columnas salariales globales que establece una distribución de clases y salarios de ingreso según las familias contempladas en el artículo 13 de la Ley Marco de Empleo Público y realizadas conforme al artículo 34 de la Ley mencionada está disponible en la dirección electrónica del Ministerio de Planificación Nacional y Política Económica (https://www.empleopublico.mideplan.go.cr/).
+(Nota de Sinalevi: La familia de puestos y su escala salarial completa puede ser consultada en el siguiente Link)

@@ -1,0 +1,1 @@
+Artículo 3°. - Las instituciones, bajo el ámbito de cobertura de la Ley Marco de Empleo Público y la Rectoría del Sistema General de Empleo Público, que ya disponen de salario único o global aplicaran las presentes escalas de salarios globales definitiva que se indican en el artículo 2 de esta Directriz.
