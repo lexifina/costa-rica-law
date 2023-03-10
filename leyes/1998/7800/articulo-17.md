@@ -1,5 +1,2 @@
-ARTÍCULO 17.- De conformidad con la legislación vigente, la enseñanza
-de la educación física tendrá carácter obligatorio en los centros docentes
-públicos y privados, en los niveles de educación preescolar, educación
-general básica, educación diversificada, educación especial y de adultos,
-según corresponda.
+Artículo 17- De conformidad con la legislación vigente, la enseñanza de la educación física tendrá carácter obligatorio en los centros docentes públicos y privados, en los niveles de educación preescolar, educación general básica, educación diversificada, educación especial y de adultos, según corresponda. Igualmente, se incluirá y se promoverá la enseñanza del ajedrez como actividad deportiva y herramienta pedagógica para promover el desarrollo integral de las personas estudiantes.
+(Así reformado por el artículo 6° de la ley N° 10187 del 4 de mayo del 2022, “Declaratoria de interés público y promoción de la enseñanza del ajedrez en el Sistema Educativo Costarricense”)
