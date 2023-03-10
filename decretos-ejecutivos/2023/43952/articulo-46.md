@@ -1,0 +1,1 @@
+Artículo 46.- Modificación a la programación de vacaciones. Solo procederán las modificaciones a la programación de vacaciones establecida, cuando así lo ameriten las necesidades del servicio o situaciones extraordinarias de las personas servidoras públicas, de las instituciones cubiertas bajo la rectoría de MIDEPLAN.

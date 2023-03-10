@@ -1,0 +1,1 @@
+Transitorio II.- Distribución de puestos según familias. Las instituciones en el ámbito de cobertura de la Ley Marco de Empleo Público tendrán un plazo de hasta un mes calendario, contado a partir de la vigencia del presente reglamento, para la definición de la distribución por familias de clases de puestos y cargos de conformidad con el artículo 14 del presente reglamento.

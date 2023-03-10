@@ -1,0 +1,1 @@
+Artículo 47.- Obligación de Jefaturas. Es responsabilidad de las jefaturas inmediatas hacer cumplir los descansos vacacionales debidamente fijados, con las salvedades que se establecen en este Reglamento, en cuanto a las necesidades del servicio o situaciones extraordinarias de las personas servidoras públicas de las instituciones cubiertas bajo la rectoría de MIDEPLAN.

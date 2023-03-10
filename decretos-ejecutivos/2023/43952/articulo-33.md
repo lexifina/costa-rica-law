@@ -1,0 +1,6 @@
+CAPÍTULO VIII
+SUBSISTEMA GESTIÓN DE LA COMPENSACIÓN
+Artículo 33.- Sistema Salario Global. Las relaciones de empleo estatutario, público y mixto en el ámbito de la Ley Marco de Empleo Público son remuneradas, únicamente, mediante el sistema o esquema de salario global, tanto para las instituciones dentro del ámbito de rectoría de MIDEPLAN, como para aquellas que están fuera de este.
+El establecimiento del sistema remunerativo de salario global debe aplicarse en las instituciones públicas a través de la fijación de columnas salariales globales para puestos con la misma naturaleza de funciones agrupados por familias, las cuales son las siguientes:
+a) Familias de puestos definidas por MIDEPLAN conforme al artículo 13 de la Ley Marco de Empleo Público y que se regulan de conformidad con los artículos 13 y 14 del presente reglamento.
+b) Familias correspondientes al Poder Legislativo, el Poder Judicial, el Tribunal Supremo de Elecciones (TSE) y los entes públicos con autonomía de gobierno u organizativa, las cuales serán definidas por cada uno de estos y estarán conformadas por las personas servidoras públicas con funciones administrativas, profesionales o técnicas, que sean exclusivas y excluyentes para el ejercicio de las competencias constitucionalmente asignadas a dichos entes.

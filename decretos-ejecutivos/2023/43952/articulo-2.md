@@ -1,0 +1,1 @@
+Artículo 2.- Implementación de la Ley Marco de Empleo Público. Todas las instituciones, entes, órganos y empresas públicas, en el ámbito de cobertura definido en el artículo 2 de la Ley Marco de Empleo Público, Ley N°10159, deberán implementar dicha ley, de acuerdo con criterios técnicos, metodológicos, financieros y de recursos humanos, a partir de su entrada en vigor.

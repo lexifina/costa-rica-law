@@ -1,0 +1,1 @@
+Artículo 51.- Permisos y licencias de excepción. Podrán disfrutar de permisos y licencias ocasionales de excepción, las personas funcionarias públicas cubiertas por la rectoría de MIDEPLAN, de conformidad con los requisitos y formalidades que en cada dependencia establezca su normativa interna.

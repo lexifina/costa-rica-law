@@ -1,0 +1,1 @@
+Artículo 55.- Licencias infundadas. Se considerará falta grave plantear un hecho falso o inexistente para solicitar una licencia ocasional con el fin de obtenerla. En tal caso, se procederá a la apertura del órgano director del procedimiento en cumplimiento del debido proceso, en los términos establecidos en la Ley Marco de Empleo Público, N° 10.159.

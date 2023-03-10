@@ -1,0 +1,1 @@
+Transitorio IV. - Ajustes a la normativa interna. Las instituciones contempladas en el ámbito de aplicación de la Ley Marco de Empleo Público, deberán ajustar su normativa interna de conformidad con las disposiciones de dicha Ley y este Reglamento en un plazo de tres meses posteriores a la vigencia del presente Reglamento

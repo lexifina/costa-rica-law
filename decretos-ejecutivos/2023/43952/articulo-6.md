@@ -1,0 +1,14 @@
+CAPÍTULO II
+GOBERNANZA DEL EMPLEO PÚBLICO
+Artículo 6.- Rectoría y Composición del Sistema General de Empleo Público. El Sistema tendrá los siguientes componentes:
+a) El Ministerio de Planificación Nacional y Política Económica (MIDEPLAN), ejercerá el direccionamiento y coordinación del sistema respecto al ámbito de aplicación de la rectoría. Asimismo, deberá entablar las relaciones de cooperación, asesoría y capacitación con los Poderes Legislativo, Judicial y Tribunal Supremo de Elecciones, así como con la Administración descentralizada funcional y territorial, para el cabal cumplimiento de la Ley Marco de Empleo Público, N°10.159.
+b) Las unidades administrativas encargadas de la gestión de recursos humanos de las entidades y los órganos bajo el ámbito de aplicación de la Ley Marco de Empleo Público, todo de acuerdo con lo dispuesto en el inciso a) del artículo 9 de la Ley Marco de Empleo Público, N°10.159.
+c) La Dirección General de Servicio Civil, como órgano desconcentrado del Ministerio de Planificación Nacional y Política Económica especializado en materia de empleo público, la cual prestará la asesoría técnica requerida por las entidades y órganos que se encuentran bajo el ámbito de aplicación de Ley Marco de Empleo Público.
+d) Mecanismos de coordinación y asesoría tales como Consejos, Comités o Comisiones.
+e) El conjunto de normas administrativas, políticas públicas, disposiciones de alcance general, reglamentos, circulares, y manuales emitidos para la planificación, estandarización, simplificación, coherencia, óptima administración y evaluación del empleo público, aplicable a los órganos y entidades cobijados por el ámbito de la rectoría del MIDEPLAN, el cual podrá constituir un referente para aquellos órganos y entidades excluidos de esta rectoría.
+f) Las directrices que dicte MIDEPLAN para las relaciones de empleo de las personas servidoras públicas pertenecientes a los órganos y entidades cubiertos por el ámbito de la rectoría del MIDEPLAN.
+g) Las resoluciones que dicten los Poderes Legislativo, Judicial, el Tribunal Supremo de Elecciones (TSE) y a los entes públicos con autonomía de gobierno u organizativa, en materia de empleo público.
+h) Los lineamientos y disposiciones técnicas que emita la Dirección General del Servicio Civil en el ámbito de su competencia.
+i) Los decretos y acuerdos ejecutivos que dicte el Poder Ejecutivo, de conformidad con sus competencias, en materias relacionadas con empleo público.
+j) Los reglamentos autónomos de servicio, o sus equivalentes normativos, para regular las condiciones de trabajo que le son propias a cada institución en el ámbito de cobertura de la Ley Marco de Empleo Público.
+k) Los dictámenes vinculantes emitidos por la Procuraduría General de la República y la Contraloría General de la República.

@@ -1,0 +1,1 @@
+Artículo 52.- Trámite de licencias. Las personas servidoras públicas- de las instituciones cubiertas bajo la rectoría de MIDEPLAN- que requieran de una licencia, tramitarán la solicitud por medio de su superior inmediato, ante las oficinas de recursos humanos.

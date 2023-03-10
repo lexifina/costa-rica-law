@@ -1,0 +1,3 @@
+CAPÍTULO X
+DISPOSICIONES FINALES
+Artículo 58.- Reglamentos autónomos de servicio. En el caso de las dependencias y los órganos del Poder Ejecutivo, los reglamentos autónomos de servicio deberán contar con el aval del Ministerio de Planificación Nacional y Política Económica, previa emisión del criterio técnico y jurídico de la Dirección General de Servicio Civil. Adicionalmente, los reglamentos autónomos de servicio de las instituciones que están bajo el ámbito de competencia de la Autoridad Presupuestaría, deberán contar con el visto bueno de la Secretaría Técnica de la Autoridad Presupuestaria, en lo correspondiente a su conformidad con las directrices y los lineamientos generales y específicos de política presupuestaria formulados por la Autoridad Presupuestaria.
