@@ -1,0 +1,1 @@
+Artículo 21º-- El detrimento a los bienes públicos (infraestructura, rotulación, señalización y otros) provocado por los usuarios, es un daño a la propiedad pública, regulado por el Código penal en su artículo Nº 229 inciso 1. Por lo que la administración podrá tomar las medidas pertinentes ante acciones vandálicas.

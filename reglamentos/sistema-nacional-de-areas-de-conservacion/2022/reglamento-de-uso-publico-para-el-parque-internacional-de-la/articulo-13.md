@@ -1,0 +1,1 @@
+Artículo 13º-- La administración de las reservaciones, entrega y venta de tiquetes para el ingreso de visitantes serán realizadas por la administración del PILA. No obstante, en caso de que la Administración lo requiera, el proceso de reservación podrá ser otorgado a un tercero, a través de un procedimiento de contratación de servicios.

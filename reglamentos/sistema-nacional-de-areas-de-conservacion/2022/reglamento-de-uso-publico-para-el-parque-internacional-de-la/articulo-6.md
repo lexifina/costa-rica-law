@@ -1,0 +1,1 @@
+Artículo 6º-- Mediante el uso público y actividades de educación ambiental, se promoverá el conocimiento, la conservación y la valoración de los Elementos Focales de Manejo (EFM) del PILA que incluye el sistema hídrico, los grandes mamíferos, los sitios de importancia arqueológica y cultural, bosques y humedales de altura.

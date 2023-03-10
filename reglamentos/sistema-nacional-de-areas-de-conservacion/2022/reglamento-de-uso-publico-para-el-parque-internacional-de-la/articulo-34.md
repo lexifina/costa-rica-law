@@ -1,0 +1,1 @@
+Artículo 34º-- La filmación dentro del PILA estará regulada por los correspondientes reglamentos y decretos tarifarios, se deberán acatar las disposiciones que la administración del Parque considere pertinentes debidamente comunicados mediante circulares.

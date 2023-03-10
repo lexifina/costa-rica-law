@@ -1,0 +1,19 @@
+Artículo 30º-- Senderos proyectados al 2029. Los grupos organizados de la ZA del PILA solicitan habilitar nuevos senderos. Dicha habilitación dependerá de la existencia de una propuesta que incluya la justificación de la apertura, la descripción general del sendero y la propuesta de manejo de la visitación; a esto se suma el visto bueno por parte del SINAC (Administración del PILA, Dirección de ASP y Dirección del ACLA-P) y el visto bueno de la Secretaría Técnica Nacional Ambiental (SETENA), todo lo cual deberá ser tramitado por los grupos organizados interesados. Los senderos solicitados por las comunidades de la ZA y proyectados para ser habilitados antes del 2029 (cumpliendo con los requisitos anteriores) son los siguientes:
+- Santa María de Brunka - Cerro Ena - Cerro Deri
+- Santa María de Brunka - Cerro Bitsy
+- Santa María de Brunka - Cerro Brunka
+- Tres Colinas - Cerro Ceno (circular)
+- Tres Colinas - Sabanas Esperanza
+- Kamuk - Cerro Pirámide
+- La Luchita - Cerro Amuo - Tres Colinas
+- Sabanas Esperanza -Valle del Silencio
+- Valle del Silencio - La Laguna
+- Valle del Silencio - Los Robledales (circular detrás del albergue)
+- El Jardín-Cerros Tararia (Valle del Silencio)
+- El Jardín-Cerros Asidbeta (Valle del Silencio)
+- Valle del Silencio - Los Esfagnum
+- Pittier - Casa Coca
+- Santa María Pittier - Casa de Piedra
+- Los Gigantes del Bosque (circular)
+- Cascada de Pittier (circular)
+- Altamira - La Toma del Agua - El Tajo

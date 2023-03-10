@@ -1,0 +1,1 @@
+Artículo 43º-- Los vehículos particulares que lleguen a la Estación Biológica Altamira o de Pittier, así como a los puestos de Tres Colinas o Potrero Grande deberán ser estacionados en posición de salida en el sitio indicado por la Administración, y deberán apagar el motor mientras estén estacionados.

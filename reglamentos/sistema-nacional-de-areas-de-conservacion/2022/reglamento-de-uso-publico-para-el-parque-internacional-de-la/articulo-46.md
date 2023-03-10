@@ -1,0 +1,3 @@
+CAPÍTULO SEXTO
+SANCIONES ADMINISTRATIVAS
+Artículo 46º-- El guía, acompañante, arriero, porteador o colaborador reconocido por la organización comunal autorizada a ofrecer dichos servicios que incumpla con lo indicado en este reglamento, así como en la normativa conexa como resoluciones administrativas vigentes, como resoluciones administrativas, decretos ejecutivos, entre otros se estará inhabilitando de trabajar en el PILA por un periodo de seis meses. Para lo anterior, la Administración estará aplicando la medida administrativa en la cual se debe indicar el periodo en el cual no podrá ejercer el ejercicio dentro del PILA y notificar a la organización comunal a la cual corresponda.

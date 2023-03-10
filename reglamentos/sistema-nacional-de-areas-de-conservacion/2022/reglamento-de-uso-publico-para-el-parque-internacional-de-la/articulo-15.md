@@ -1,0 +1,5 @@
+Artículo 15º--El ingreso de todos los visitantes del PILA se podrá realizar únicamente caminando. A través de los Permisos de Uso u otros mecanismos administrativos, el visitante podrá acceder al servicio de porteo o traslado del equipaje producto de la visita al Área Protegida. El transporte terrestre de equipos y materiales mediante el uso de caballos se podrá realizar en los siguientes casos:
+a) Personas con alguna discapacidad que demuestren con una certificación médica su condición particular, de acuerdo con lo establecido en la Ley 7600 o en la normativa vigente vinculante.
+b) Funcionarios del SINAC, que, en el cumplimiento de sus funciones, deban ingresar a diferentes sectores del área protegida.
+c) Miembros de organizaciones o instituciones que apoyan específicamente la gestión del PILA, que requieran como parte de sus funciones, ingresar al área protegida a gestionar procesos o proyectos en desarrollo.
+d) Personas lesionadas o enfermas que deban ser evacuadas del ASP, mediante el uso de caballos, en razón de su condición de salud.

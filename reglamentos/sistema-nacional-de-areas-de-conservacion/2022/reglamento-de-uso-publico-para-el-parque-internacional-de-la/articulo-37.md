@@ -1,0 +1,1 @@
+Artículo 37º-- Toda actividad que involucre el uso consuetudinario indígena por parte de las personas legalmente reconocidas como indígenas dentro de las áreas de traslape sin resolución legal al 2021: Tsókë-Namöwöki (Cabeza de Tigre)- conocido como "La Isla" y TI Telire. Estas limitaciones se revisarán una vez resuelto el traslape y consolidado el PNE.

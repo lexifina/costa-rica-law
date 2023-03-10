@@ -1,0 +1,1 @@
+Artículo 39º-- Recreación, educación ambiental, investigación, grabación, filmación y fotografía. Toda investigación o filmación dentro del PILA estará regulada por los correspondientes reglamentos, tarifas y decretos establecidos por el SINAC.

@@ -1,0 +1,1 @@
+Artículo 11º-- Las tarifas correspondientes a los servicios complementarios a la visitación (acompañamiento o guiado y porteo) que se brinden en el PILA serán definidas y reguladas mediante los estudios de costos elaborados para este fin, en común acuerdo entre los grupos organizados permisionarios y el SINAC-PILA.
