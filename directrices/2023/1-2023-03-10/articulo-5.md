@@ -1,0 +1,1 @@
+Artículo 5°. - Los montos establecidos en la columna salarial global transitoria, no se tendrán como referentes para efectos de aplicación de lo dispuesto en el Transitorio XI de la Ley Marco de Empleo Público y demás reglas de transición establecidas vía reglamento.

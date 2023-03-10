@@ -1,0 +1,1 @@
+Artículo 2°. - La columna salarial global transitoria que establece una distribución de clases y salarios de ingreso según las familias contempladas en el artículo 13 de la Ley Marco de Empleo Público, está disponible en la dirección electrónica del Ministerio de Planificación Nacional y Política Económica (http://www.mideplan.go.cr).

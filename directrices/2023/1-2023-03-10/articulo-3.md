@@ -1,0 +1,1 @@
+Artículo 3°. - Las instituciones, bajo el ámbito de cobertura de la Ley Marco de Empleo Público y la Rectoría del Sistema General de Empleo Público, que ya disponen de salario único o global, podrán continuar aplicando dicho esquema y los montos salariales globales que tienen, hasta tanto se defina la escala de salarios globales definitiva.
