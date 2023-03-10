@@ -1,0 +1,1 @@
+Artículo 2º-Cada una de las instancias indicadas en el artículo anterior según su competencia será la autorizada para firmar las órdenes de compra u documento equivalente producto de las contrataciones adjudicadas. Así mismo, cada una de esas instancias será la responsable de efectuar la aprobación respectiva de los actos que le han sido asignados en este reglamento.

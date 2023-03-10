@@ -1,0 +1,1 @@
+Artículo 4º-Excepciones. Se exceptúan de este reglamento las compras realizadas con fondos de caja chica que sean indispensables e impostergables, siempre y cuando no excedan el diez por ciento (10%) del monto fijado para la licitación reducida y conforme lo dispone el artículo 12 del Reglamento a la Ley General de Contratación Pública.

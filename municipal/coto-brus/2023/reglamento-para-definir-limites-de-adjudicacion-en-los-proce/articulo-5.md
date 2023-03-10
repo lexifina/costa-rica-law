@@ -1,0 +1,1 @@
+Artículo 5º-El Alcalde (sa) Municipal presentará cada tres meses un informe al Concejo Municipal relativo a los procedimientos de contratación tanto en bienes y servicios como en obra pública que hayan adjudicado.
