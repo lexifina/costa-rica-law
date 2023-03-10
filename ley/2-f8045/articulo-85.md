@@ -7,14 +7,16 @@ e. Cuando el trabajador se acoja a los beneficios de jubilación, pensión de ve
 (Así adicionado el inciso anterior por el artículo 2° de la ley N° 5173 de 10 de mayo de 1973)
 Las prestaciones a que se refiere el aparte a) de este artículo, podrán ser reclamadas por cualquiera de los parientes con interés que se indican posteriormente, ante la autoridad judicial de trabajo que corresponda. Esas prestaciones serán entregadas por aquella autoridad a quienes tuvieren derecho a ello, sin que haya necesidad de tramitar juicio sucesorio para ese efecto y sin pago de impuestos.
 (Así adicionado el párrafo anterior por el artículo 1° de la ley N° 2710 del 12 de diciembre de 1960)
-(*)Esas prestaciones corresponderán a los parientes del trabajador, en el siguiente orden:
-El consorte y los hijos menores de edad o inhábiles;
-Los hijos mayores de edad y los padres; y
-Las demás personas que conforme a la ley civil tienen el carácter de herederos.
+(*)Esas prestaciones corresponderán a los parientes del trabajador y la trabajadora, en el siguiente orden:
+(Así reformado el párrafo anterior por el artículo 5° de la ley N° 10166 del 30 de marzo de 2022, "Reforma varias leyes para el reconocimiento de derechos a madres y padres de crianza")
+1. El consorte y los hijos menores de edad o inhábiles;
+2. Los hijos e hijas mayores de edad y los padres y madres, incluidos e incluidas los y las de crianza; y
+(Así reformado el inciso anterior por el artículo 5° de la ley N° 10166 del 30 de marzo de 2022, "Reforma varias leyes para el reconocimiento de derechos a madres y padres de crianza")
+3. Las demás personas que conforme a la ley civil tienen el carácter de herederos.
 (*)(Así adicionado el párrafo anterior por el artículo 1° de la ley N° 2710 del 12 de diciembre de 1960)
 Las personas comprendidas en los incisos anteriores tienen el mismo derecho individual, y sólo en falta de las que indica el inciso anterior entran las que señala el inciso siguiente.
 (Así adicionado el párrafo anterior por el artículo 1° de la ley N° 2710 del 12 de diciembre de 1960)
 Para el pago de las prestaciones indicadas se estará al procedimiento en el título décimo de este mismo Código.
 (Así adicionado el párrafo anterior por el artículo 1° de la ley N° 3056 de 7 de noviembre 1962)
-(Así reformado el párrafo anterior por el artículo 3° aparte a) de la ley N° 9343 del 25 de enero de 2016, “Reforma Procesal Laboral”.)
+(Así reformado el párrafo anterior por el artículo 3° aparte a) de la ley N° 9343 del 25 de enero de 2016, "Reforma Procesal Laboral".)
 (Nota: Mediante Resolución N° 3340- 96 de la Sala Constitucional de las 9:00 horas del 5 de julio de 1996, se dispuso lo siguiente: " ... Se evacua la consulta en el sentido de que el inciso 1), párrafo segundo del artículo 85 del Código de Trabajo no es contrario a los artículos 33, 51 y 52 de la Constitución Política...")
