@@ -1,0 +1,1 @@
+TRANSITORIO X- Los órganos y entes públicos, contemplados en el artículo 2 de la presente ley, deberán iniciar, en un plazo no mayor a dos meses contado a partir de la publicación de esta ley en el diario oficial La Gaceta, los trámites necesarios para modificar la nomenclatura de sus instancias de nivel directivo, para que estas se uniformen bajo la denominación de "Dirección".

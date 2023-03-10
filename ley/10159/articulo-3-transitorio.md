@@ -1,0 +1,1 @@
+TRANSITORIO III- Procedimientos administrativos. Los procedimientos administrativos y las gestiones de despido iniciados, con anterioridad a la entrada en vigencia de la presente ley, continuarán su trámite de conformidad con las reglas que se encontraban vigentes.

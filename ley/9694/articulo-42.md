@@ -9,5 +9,6 @@ g) Nombrar al gerente y subgerente. Podrá revocar anticipadamente sus nombramie
 h) Aceptar las renuncias de los anteriores funcionarios y nombrar sus sustitutos por el resto del período.
 i) Nombrar al auditor interno.
 j) Emitir las normas mínimas de periodicidad y calidad de la divulgación de la información estadística particular que se establecerá previa consulta a las instituciones del SEN.
-k) Dictar las normas generales de organización, contratación del personal, funcionamiento de su propia auditoría interna y las demás normas para desarrollar las labores del Instituto, incluidas las políticas para la clasificación y valoración de puestos, el régimen de salarios y otras remuneraciones del personal del Instituto.
+k) Dictar las normas generales de organización, contratación del personal, funcionamiento de su propia auditoría interna y las demás normas para desarrollar las labores del Instituto, incluidas las políticas para la clasificación y valoración de puestos.
+(Así reformado el inciso anterior por el artículo 49 sub inciso l) de la Ley Marco de Empleo Público, N° 10159 del 8 de marzo de 2022)
 l) Las demás que se deriven de esta ley y su reglamento ejecutivo.

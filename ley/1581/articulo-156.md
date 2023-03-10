@@ -1,1 +1,1 @@
-Artículo 156.- El resultado de la calificación se dará en orden de mérito conforme a los siguientes conceptos: Excelente, Muy Bueno, Bueno, Insuficiente e Inaceptable.
+Artículo 156.- (Derogado por el artículo 50 de la Ley Marco de Empleo Público, N° 10159 del 8 de marzo de 2022)

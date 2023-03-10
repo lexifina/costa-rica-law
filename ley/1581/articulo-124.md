@@ -1,1 +1,1 @@
-Artículo 124.-Podrán concursar para puestos en propiedad y una vez escogidos de la nómina respectiva, gozarán de los derechos que la presente ley confiere a los servidores regulares, los profesores autorizados de enseñanza primaria que tengan cinco años o más, de experiencia específica, calificada con notas no inferiores a Bueno.
+Artículo 124.- (Derogado por el artículo 50 de la Ley Marco de Empleo Público, N° 10159 del 8 de marzo de 2022)

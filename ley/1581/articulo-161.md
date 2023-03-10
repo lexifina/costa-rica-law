@@ -1,3 +1,1 @@
-Artículo 161.-Sólo tendrán derecho a los aumentos anuales de sueldo de acuerdo con la escala correspondiente de la Ley de Salarios de la Administración Pública, los servidores que hayan obtenido calificación de Excelente, Muy Bueno, o Bueno.
-Para concesión de becas o facilidades, conforme a la Ley de Adiestramiento para Servidores Públicos, será indispensable que el beneficiario haya obtenido calificación de Excelente, durante tres períodos anuales en los últimos cinco años inmediatos anteriores al otorgamiento de la beca.
-Transitorio.- Para los servidores que, al entrar en vigencia la presente ley, no hubiesen recibido, calificación de servicios, el párrafo primero del artículo 161 se aplicará, transcurrido el primer año; y el párrafo 2º, transcurridos tres años a partir de su vigencia.
+Artículo 161.- (Derogado por el artículo 50 de la Ley Marco de Empleo Público, N° 10159 del 8 de marzo de 2022)

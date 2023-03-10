@@ -1,0 +1,1 @@
+TRANSITORIO IV- Sistema lntegrado de Empleo Público. El Ministerio de Planificación Nacional y Política Económica (Mideplán) deberá poner a disposición de las entidades y los órganos, incluidos en el artículo 2 de la presente ley, el uso de la plataforma integrada de empleo público en el plazo máximo de seis meses, a partir de la entrada en vigencia de la presente ley.

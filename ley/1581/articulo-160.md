@@ -1,1 +1,1 @@
-Artículo 160.-Las calificaciones de Insuficiente o Inaceptable deben llevar, adjunta, una explicación de las causas que la motivaron y las advertencias y observaciones formuladas al servidor, tendientes a la superación del mismo.
+Artículo 160.- (Derogado por el artículo 50 de la Ley Marco de Empleo Público, N° 10159 del 8 de marzo de 2022)

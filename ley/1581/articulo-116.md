@@ -1,1 +1,1 @@
-Artículo 116.-Los puestos en escuelas primarias para adultos, escuelas laboratorio o de aplicación, serán cubiertos con los profesionales comprendidos en los grupos determinados para la enseñanza primaria, sin perjuicio de los sueldos que para aquellos puestos se establezcan.
+Artículo 116.- (Derogado por el artículo 50 de la Ley Marco de Empleo Público, N° 10159 del 8 de marzo de 2022)
