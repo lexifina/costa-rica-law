@@ -1,0 +1,9 @@
+CIRCULAR N° 60-2023
+Asunto: Obligatoriedad de habilitar la opción de "Pago automático" en el indicador de tipo de pago del SDJ.
+A LOS DESPACHOS JUDICIALES QUE TRAMITAN
+PROCESOS COBRATORIOS
+SE LES HACE SABER QUE:
+El Consejo Superior del Poder Judicial en sesión N° 15- 2023 celebrada el 23 de febrero de 2023, artículo LII, aprobó, a solicitud de la Comisión de la Jurisdicción Civil, girar la instrucción a todos los despachos judiciales que tramitan el giro de retenciones en los procesos cobratorios a través del Sistema de Depósitos Judiciales (SDJ) que, en adelante, salvo excepciones previstas en la ley, y propiamente por los requerimientos tecnológicos, se debe habilitar para todos los expedientes la opción de "Pago automático" en el indicador de tipo de pago del SDJ. En concordancia con lo anterior, se ordena a los despachos que tramitan cobro de obligaciones dinerarias, que se aseguren de corregir los errores que se presentan cuando se reciben montos diferentes, ya que es un requisito para la aplicación del pago automático que la suma de los montos de los obligados, autorizado y el expediente, coincidan.
+De conformidad con la Circular N° 67-09 emitida por la Secretaría de la Corte el 22 de junio de 2009, se le comunica que en virtud del principio de gratuidad que rige esta materia, la publicación está exenta de todo pago de derechos.
+Publíquese una sola vez en el Boletín Judicial.
+San José, 13 de marzo de 2023.
