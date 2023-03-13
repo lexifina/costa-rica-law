@@ -1,1 +1,0 @@
-Artículo 21.—La solicitud de cambio de línea comercial y/o traslado de puestos, deberá ser tramitada con la actualización de los documentos pertinentes y su debida justificación.

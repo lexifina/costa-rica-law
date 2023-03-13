@@ -1,1 +1,0 @@
-Artículo 24.—El Departamento de Licencias y Patentes se reservará el derecho de reubicar los puestos cuando las condiciones de tránsito o de los peatones lo ameriten, la construcción de obras nuevas lo requieran por cualquier otra causa.

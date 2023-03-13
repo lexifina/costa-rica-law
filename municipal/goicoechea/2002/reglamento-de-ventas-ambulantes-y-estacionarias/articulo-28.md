@@ -1,1 +1,0 @@
-Artículo 28.—Las resoluciones de la Municipalidad que ordenen la caducidad de la licencia por falta de pago, no tendrán recurso alguno y su tramitación admitirá prueba en contrario salvo la excepción de pago.

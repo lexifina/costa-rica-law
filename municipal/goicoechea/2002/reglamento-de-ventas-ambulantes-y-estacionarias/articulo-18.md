@@ -1,1 +1,0 @@
-Artículo 18.—Los inspectores municipales deberán hacer una revisión periódica a los puestos autorizados, para comprobar si las patentes se pueden mantener en vigencia y revisar el cumplimiento de este Reglamento.

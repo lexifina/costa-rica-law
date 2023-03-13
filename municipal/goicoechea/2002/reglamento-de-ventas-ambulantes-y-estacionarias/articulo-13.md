@@ -1,1 +1,0 @@
-Artículo 13.—El diseño de los puestos será el que el Instituto Costarricense de Turismo determine y será de carácter obligatorio. El área que ocupa un puesto no podrá ampliarse en ninguna forma, salvo mejor criterio del Departamento de Licencias y Patentes.
