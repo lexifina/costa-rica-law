@@ -17,3 +17,4 @@ Reglamento para el Funcionamiento de las Proveedurías Institucionales de los Mi
 | 2 | 2003-08-19 | Decreto Ejecutivo 31483 (2003-08-19) |
 | 3 | 2013-09-17 | Decreto Ejecutivo 37943 (2013-09-17) |
 | 4 | 2015-04-06 | Decreto Ejecutivo 39065 (2015-04-06) |
+| 5 | 2023-03-14 | Decreto Ejecutivo 44027 (2023-03-14) |
