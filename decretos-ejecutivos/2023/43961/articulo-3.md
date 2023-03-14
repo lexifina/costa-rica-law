@@ -1,0 +1,1 @@
+Artículo 3º -Refórmese el Anexo C, en el título del apartado REQUISITOS ECOTOXICOLOGICOS Y DE DESTINO AMBIENTAL del Decreto Ejecutivo N° 43838-MAGS-MINAE del 14 de diciembre del 2022, para que en lo sucesivo se lea así: "REQUISITOS ECOTOXICOLOGICOS"

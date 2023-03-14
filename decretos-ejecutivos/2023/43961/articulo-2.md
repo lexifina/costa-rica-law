@@ -1,0 +1,3 @@
+Artículo 2º-Refórmese el Anexo B, inciso C) LEGAJO CONFIDENCIAL, numeral 2 del Decreto Ejecutivo N° 43838-MAG-S-MINAE del 14 de diciembre del 2022, para que en lo sucesivo se lea así:
+"C) LEGAJO CONFIDENCIAL
+2. Estudio de cinco lotes realizado con el IAGT que se quiere registrar. Típicamente la fracción no identificada y no contabilizada del ingrediente activo grado técnico TC/TK no debe exceder de veinte gramos por kilogramo. Se deben anexar los cromatogramas (con su área respectiva) correspondientes a cada lote muestreado y deberá cumplir con lo indicado en el numeral 8.1.7 en cuanto a la forma de presentación del estudio. Los resultados obtenidos en el estudio de cinco lotes deben cumplir con los límites establecidos en el certificado de composición."
