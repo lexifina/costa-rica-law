@@ -14,3 +14,4 @@ Reglamento municipal para el cobro de tarifas por servicios brindados u obras ej
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-03-14 | la propia norma |
+| 2 | 2023-03-14 | Reglamento municipal 133 (2012-11-22) |
