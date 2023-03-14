@@ -1,0 +1,1 @@
+Artículo 29.-Para efectos del artículo anterior, el Departamento Técnico de Gestión Vial Municipal, previa información de la comunidad representada notificará al vecino(a) respectivo en forma escrita, para que ubique la cerca donde corresponde y permitiendo que se cumpla con el derecho de vía respectivo, en un plazo de 8 días.

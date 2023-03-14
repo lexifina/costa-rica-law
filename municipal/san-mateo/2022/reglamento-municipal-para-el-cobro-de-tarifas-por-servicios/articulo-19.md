@@ -1,0 +1,1 @@
+Artículo19.-Ejecución municipal de las obras. La Municipalidad en caso de que el comité de caminos o las Asociaciones no asuman la responsabilidad de ejecutar las actividades contratará cuadrillas de las mismas comunidades para que realicen el mantenimiento manual según corresponda. Todo mediante la fiscalización de obras.

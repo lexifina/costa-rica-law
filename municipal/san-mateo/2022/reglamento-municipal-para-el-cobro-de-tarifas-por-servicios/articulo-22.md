@@ -1,0 +1,1 @@
+Artículo 22.-Constitución gravamen a propiedad: En caso de que los propietarios no cancelen la deuda por los trabajos realizados a la Municipalidad se procederá conforme señala el artículo 70 del Código Municipal.

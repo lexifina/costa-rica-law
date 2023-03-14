@@ -1,0 +1,1 @@
+Artículo 28.-Derechos de vías. Los vecinos deberán disponer de los derechos de vía según lo que indica la Ley General de Caminos. Para este efecto los comités de caminos respaldados por las asociaciones de desarrollo están autorizados a informar a la Municipalidad el nombre con apellidos completos de las personas que estrechen los caminos.

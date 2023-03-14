@@ -1,0 +1,1 @@
+Artículo 25.-Funciones del Departamento Técnico de Gestión Vial Municipal. La Promotora Social, será responsable de dar seguimiento a las denuncias planteadas por los vecinos en actividades de mantenimiento manual.

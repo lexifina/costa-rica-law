@@ -1,0 +1,1 @@
+Artículo 30.-En caso de que el vecino haga caso omiso a la notificación, el Departamento Técnico de Gestión Vial Municipal, realizará la ampliación del derecho de vía, con las cuadrillas municipales, siempre y cuando haya notificación previa al involucrado.

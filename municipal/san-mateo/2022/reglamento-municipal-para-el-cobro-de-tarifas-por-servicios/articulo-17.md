@@ -1,0 +1,1 @@
+Artículo 17.-Procedimiento de pago. Los cobros de los montos correspondientes por trabajos realizados deberán realizarse únicamente en las cajas recaudadoras de la Tesorería Municipal. Dichos montos podrán ser cobrados en el mismo recibo de impuestos municipales.

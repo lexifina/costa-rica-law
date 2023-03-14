@@ -1,0 +1,1 @@
+Artículo 20.-Ejecución de obras las Asociaciones de Desarrollo y los Comités de Caminos autorizados, podrán ejecutar cualquier actividad de mantenimiento manual cuando obedezca al incumplimiento de los vecinos previa nota escrita por el Promotor Social y/o Coordinador del Departamento Técnico de Gestión Vial Municipal

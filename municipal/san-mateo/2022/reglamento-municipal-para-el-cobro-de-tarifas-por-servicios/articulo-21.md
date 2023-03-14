@@ -1,0 +1,2 @@
+Artículo 21.-Ingresos municipales. Los ingresos que se perciban por ejecución de trabajos por el incumplimiento de los munícipes serán utilizados por la Municipalidad al abastecimiento financiero de una partida presupuestaria específica que deberá usarse en el pago de las cuadrillas que realicen los trabajos, en capacitación, divulgación y
+en programas de educación a las comunidades acerca de los programas de mantenimiento y la aplicación de este Reglamento.

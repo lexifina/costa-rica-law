@@ -1,0 +1,1 @@
+Artículo 18.-Cobro administrativo y judicial. El propietario que haga caso omiso del pago de los trabajos ejecutados, será sujeto de los procedimientos de cobro administrativo y judicial que establece el Reglamento respectivo de la Municipalidad de San Mateo. Dichos montos podrán ser incluidos en los recibos de impuestos municipales.
