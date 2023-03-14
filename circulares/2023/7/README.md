@@ -13,3 +13,4 @@ Imposibilidad de otorgar permisos sin goce de salario para el ejercicio de la ab
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-01-16 | la propia norma |
+| 2 | 2023-03-14 | Circular 57 (2023-03-14) |
