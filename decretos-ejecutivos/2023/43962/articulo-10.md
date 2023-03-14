@@ -1,0 +1,1 @@
+Artículo 10.- Comunicación oficial. La Dirección Ejecutiva del INFOCOOP remitirá, a más tardar el 15 de abril del año impar a la celebración de la asamblea, la clasificación oficial de cooperativas al CONACOOP para que proceda con su publicación y convocatoria a elecciones.

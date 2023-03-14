@@ -1,0 +1,1 @@
+Artículo 9.- Comunicación a las cooperativas. La Dirección Ejecutiva del INFOCOOP comunicará a cada cooperativa, a más tardar el 15 de marzo del año impar a la celebración de la asamblea o el día hábil siguiente, si está o no debidamente acreditada en la clasificación oficial de cooperativas en el sector que le corresponda.

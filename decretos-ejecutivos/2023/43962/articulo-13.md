@@ -1,0 +1,1 @@
+Artículo 13- Derogatoria. Se deroga el Decreto Ejecutivo N° 41720-MTSS-MEP del veintinueve de abril de dos mil diecinueve, "Reglamento para la inscripción de cooperativas y la emisión de la clasificación oficial para las elecciones bianuales del CONACOOP".

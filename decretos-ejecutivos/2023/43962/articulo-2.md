@@ -1,0 +1,2 @@
+Artículo 2.- Acreditación de cooperativas. Las cooperativas deberán acreditarse en el Departamento de Supervisión del INFOCOOP entre el 1 de febrero y el 28 de febrero o el día hábil posterior del año impar correspondiente. El representante legal de cada cooperativa deberá solicitar la incorporación de la cooperativa en la clasificación oficial que le corresponde realizar al INFOCOOP, dicha solicitud deberá señalar un correo electrónico para atender notificaciones.
+En caso de no señalar un correo electrónico, se tendrá por no presentada la solicitud.
