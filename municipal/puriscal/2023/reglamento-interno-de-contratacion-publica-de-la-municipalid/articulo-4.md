@@ -1,0 +1,2 @@
+Artículo 4-. Deber de planificar.
+Las áreas de la Municipalidad de Puriscal deben realizar las acciones necesarias para planificar sus procedimientos de compras de bienes y servicios en concordancia con los objetivos institucionales y los planes estratégicos y operativos, con sujeción a la disponibilidad presupuestaria de cada partida para el año que corresponda y cumpliendo con los requisitos previos establecidos en la LGCP y el RLGCP para garantizar la provisión oportuna de lo que se requiere.

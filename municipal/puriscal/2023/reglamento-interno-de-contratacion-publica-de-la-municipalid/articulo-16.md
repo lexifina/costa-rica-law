@@ -1,0 +1,5 @@
+Artículo 16-. Contrataciones en medios de comunicación
+a) Diario oficial la Gaceta
+La Unidad de Proveeduría, será la encargada de tramitar la contratación con la Imprenta Nacional, al ser la única autorizada por parte de la Municipalidad de Puriscal, a colocar los documentos que se requieren publicar en el sistema que dicho ente posee para estos trámites, para ello se cuenta con el procedimiento interno respectivo donde se detallan todas las actividades a realizar con respecto a este tema.
+b) Periódicos y emisoras de radio
+Todas las áreas de la Municipalidad de Puriscal, que requieran publicar o difundir mensajes institucionales en periódicos o en emisoras de radio, deben programarlas mediante un solo plan de medios y posteriormente contratar los medios de comunicación indicados en dicho plan mediante una sola licitación. Para lo anterior la alcaldia nombrará en los primeros dos meses de cada año según corresponda en cada caso, a una de las áreas participantes en el plan de medios como encargada de solicitar y tramitar la licitación respectiva ante la Unidad de Proveeduría.

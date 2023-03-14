@@ -1,0 +1,3 @@
+Artículo 5-. Vinculación con la Estrategia Institucional.
+Las áreas solicitantes deben indicar de manera expresa, en la decisión inicial y en el pliego de condiciones el objetivo estratégico, el código, la partida presupuestaria y cualquier otra información que sea importante y que esté relacionada con lo que requieren contratar, además de establecer el plan al cual corresponde (PAO- PEM O POI) y numero de instrumento presupuestario (ordinario, extraordinario, modificación, y demás), a través del correspondiente número de meta.
+En relación con Obra Pública, el plan de comunicación deberá de estar vinculado al plan quinquenal vial de conservación y desarrollo conforme lo establece el artículo 178 del RLGCP.
