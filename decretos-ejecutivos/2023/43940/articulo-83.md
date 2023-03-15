@@ -1,0 +1,3 @@
+CAPÍTULO XII
+Publicación en el Diario Oficial La Gaceta
+Artículo 83. Trámite de publicación en el Diario Oficial La Gaceta. La Imprenta Nacional publicará el Acuerdo Ejecutivo de otorgamiento del Régimen de Zonas Francas, así como todos aquellos otros trámites que son gestionados por medio de la VUI y que requieran su divulgación en el Diario Oficial La Gaceta, en un plazo máximo de un día hábil, contado a partir de la fecha de recepción del documento mediante el Sistema VUI para In publicación respectiva, previa cancelación de los costos ele publicación por parte del usuario utilizando la plataforma VUI.

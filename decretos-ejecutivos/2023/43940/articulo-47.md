@@ -1,0 +1,2 @@
+Artículo 47. Tramitación electrónica del certificado de uso de suelo. Los usuarios podrán gestionar el certificado de uso de suelo mediante VUl para las municipalidades que facultativamente se incorporen en el sistema; para ello emplearán el formulario electrónico disponible en VUI. Para tales efectos, en la plataforma se indicará cuales municipalidades están participando en la VUI.
+Las municipalidades participantes en VUI tendrán un plazo facultativo ele 5 el días hábiles para otorgar el certificado de uso de suelo electrónico.

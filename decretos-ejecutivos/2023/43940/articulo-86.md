@@ -1,0 +1,4 @@
+CAPÍTULO XIV
+Proceso de publicación y actualización de la información territorial georreferenciable
+Artículo 86. Deber de publicar y actualizar de la información territorial georreferenciable. De conformidad con lo establecido en el artículo 15 bis de la Ley de Régimen de Zonas Francas, Ley Nº 7210 del 23 de noviembre de 1990, los órganos del Poder Ejecutivo, las instituciones autónomas y semiautónomas, las municipalidades, las empresas públicas y las demás instituciones públicas que participen en la VUI, deberán publicar en el Sistema Nacional de Información Territorial, toda la información territorial georreferenciable estandarizada que generen, administren, gestionen y construyan sobre los cantones del país.
+La generación de información territorial georreferenciada es un proceso continuo, por lo que es responsabilidad de las instituciones públicas su actualización en el Sistema Nacional ele Información Territorial.

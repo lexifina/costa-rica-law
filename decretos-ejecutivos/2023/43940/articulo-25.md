@@ -1,0 +1,1 @@
+Artículo 25. Acuse de recibo. Cada vez que una institución usuaria o usuario registrado envíen un documento o comunicación por medio de VUI, el Sistema emitirá un acuse de recibo electrónico que permitirá acreditar la fecha y la hora de la recepción.

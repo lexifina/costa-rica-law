@@ -1,0 +1,3 @@
+Artículo 20. Validación de los usuarios sin firma digital. Una vez efectuada la inscripción presencial del usuario, el Administrador de VUI dispondrá de los mecanismos para que pueda validar su identidad y hacer uso del Sistema.
+El solicitante será responsable por la capacidad, disponibilidad y seguridad de credenciales, señales o claves definidas para el uso del Sistema, lo anterior por tratarse de un mecanismo cuya validez será reconocida por PROCOMER y las instituciones cuyos trámites se encuentren en VUI.
+Cada institución deberá definir y dar publicidad de las guías o manuales a utilizar para llevar

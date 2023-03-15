@@ -1,0 +1,1 @@
+Artículo 92. Conformación de equipos para el seguimiento de los compromisos VUI. Las instituciones participantes en VUI conformarán equipos encargados de darle seguimiento a los compromisos de excelencia y asegurar la mejora continua en los procesos y trámites de la VUI de su competencia, de conformidad con la normativa interna de cada institución.

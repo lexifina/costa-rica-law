@@ -1,0 +1,2 @@
+Artículo 10. Pagos realizados mediante VUI. El usuario debe cancelar los costos económicos que generen los trámites efectuados en VUI, tales como el cobro de los servicios indicados en el artículo anterior, así como aquellos asociados a tributos y/o tarifas definidas por la legislación especial aplicable a cada trámite, mediante formulario de entero de gobierno y/o por los medios de pago electrónico habilitados en el sistema.
+La información del costo de cada trámite se visualizará en la plataforma, de previo a la realización de cada gestión.

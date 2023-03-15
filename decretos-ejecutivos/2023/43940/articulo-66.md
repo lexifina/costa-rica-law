@@ -1,0 +1,1 @@
+Artículo 66. Tramitación electrónica de solicitud de criterio de concesiones de cauce de dominio público. Los usuarios podrán gestionar electrónicamente dentro de la plataforma VUI el trámite de solicitud de criterio de concesiones de cauce de dominio público, otorgado por la Dirección de Geología y Minas del MINAE.

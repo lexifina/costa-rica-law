@@ -1,0 +1,1 @@
+Artículo 99. Metas del plan Nacional de Desarrollo. Los organismos públicos que integran y participen en el Sistema VUI, deberán incorporar en sus metas del Plan Nacional de Desarrollo vigente, la reducción gradual de los plazos de tramitación de los trámites de su competencia y generar el plan de mejora continua que les permita identificar y eliminar requisitos innecesarios.

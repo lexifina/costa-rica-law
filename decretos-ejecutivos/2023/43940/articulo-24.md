@@ -1,0 +1,1 @@
+Artículo 24. Normativa aplicable en materia de notificaciones. En materia de notificaciones, adicional a lo regulado en el presente capítulo, se deberá acatar lo dispuesto en la Ley de Notificaciones Judiciales, Ley Nº 8687 del 4 de diciembre de 2008, en lo que resulte aplicable.

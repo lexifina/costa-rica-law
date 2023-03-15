@@ -1,0 +1,4 @@
+CAPÍTULO VI
+Sanciones
+Artículo 42. Régimen de sanciones aplicables. Los funcionarios de las instituciones usuarias del Sistema que incumplan los deberes y obligaciones previstos en el presente Reglamento serán sancionados de conformidad con lo establecido en la Ley General de la Administración Pública, Ley Nº 6227 del 2 de mayo de 1978; el régimen de responsabilidad establecido en la Ley General de Control Interno, Ley Nº 8292 del 31 de julio de 2002; la Ley contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública, Ley Nº 8422 del 6 de octubre de 2004; el Código de Trabajo, Ley Nº 2 del 27 de agosto ele 1943, según su ámbito de aplicación y los respectivos Reglamentos Autónomos de Servicios.
+Lo anterior, sin perjuicio del régimen penal aplicable por conductas en que incurran los funcionarios públicos o los particulares, y de la posibilidad de exigir responsabilidad por daños y perjuicios ocasionados a las instituciones usuarias o a VUI.

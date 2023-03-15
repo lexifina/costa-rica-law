@@ -1,0 +1,1 @@
+Artículo 67. Tramitación electrónica de autorización de cortas de árboles. Los usuarios podrán gestionar electrónicamente dentro de la plataforma VUl el trámite ele autorización de cortas de árboles, ante la Sistema Nacional de Áreas de Conservación.

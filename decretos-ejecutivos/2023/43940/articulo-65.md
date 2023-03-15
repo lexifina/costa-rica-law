@@ -1,0 +1,1 @@
+Artículo 65. Tramitación electrónica de autorización de tanques de autoconsumo. Los usuarios podrán gestionar electrónicamente dentro de la plataforma VUl el trárnite de autorización de tanques de autoconsumo, otorgado por la Dirección ele Hidrocarburos, Transporte y Comercialización de Combustibles del MINAE.

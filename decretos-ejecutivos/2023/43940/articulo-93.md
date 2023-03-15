@@ -1,0 +1,2 @@
+Artículo 93. Mejora de procesos con enfoque en los usuarios. Los clientes son los beneficiarios finales del valor aportado por todos los trámites, productos y servicios de la VUI.
+Los funcionarios de las instituciones participantes en el Sistema VUI, enfocarán los esfuerzos de mejora regulatoria para una mayor satisfacción de los servicios públicos que ofrecen. La VUI contará con herramientas para medir la satisfacción de tales clientes y generar planes de mejora.

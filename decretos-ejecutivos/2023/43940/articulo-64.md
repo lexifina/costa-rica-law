@@ -1,0 +1,1 @@
+Artículo 64. Tramitación electrónica de concesión y perforación de aprovechamiento de aguas superficiales. Los usuarios podrán gestionar electrónicamente dentro ele la plataforma VUI el trámite de concesión y perforación de aprovechamiento de aguas superficiales otorgada por la Dirección de Aguas del MINAE.

@@ -1,0 +1,1 @@
+Artículo 69. Tramitación electrónica de la solicitud de concesiones de geología y minas. Los usuarios podrán gestionar electrónicamente dentro de la plataforma VUI el trámite de solicitud de concesiones ante la Dirección de Geología y Minas del MINA E.

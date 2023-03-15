@@ -1,0 +1,2 @@
+Artículo 55.- Establecimientos autorizados por el Ministerio de Salud. Corresponderá al Ministerio de Salud autorizar en la plataforma VUI únicamente el funcionamiento de los establecimientos enunciados en los incisos b) y d) del artículo 53 del presente reglamento.
+Dicha autorización administrativa se hará por medio del Permiso Sanitario de Funcionamiento, el cual será reconocido como equivalente al Certificado Veterinario de Operación de SENASA.

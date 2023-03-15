@@ -1,0 +1,3 @@
+CAPÍTULO III
+Trámites ambientales
+Artículo 61. Tramitación electrónica del Documento de Evaluación Ambiental. Los usuarios podrán gestionar la evaluación ambiental para la categoría de bajo riesgo, como el D2 o su equivalente, así como el resto de los trámites de viabilidad ambiental de mayor riesgo, corno Dl o su equivalente, mediante el Sistema VUI, para ello emplearán el formulario electrónico disponible en el Sistema, lo anterior de conformidad con lo previsto en el Reglamento General sobre los Procedimientos de Evaluación de Impacto Ambiental (EIA), Decreto Ejecutivo N º 31849-MINAE-S-MOPT-MAG-MEIC del 24 de mayo del 2004 y sus reformas, o la normativa vigente aplicable.

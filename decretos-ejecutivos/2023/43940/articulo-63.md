@@ -1,0 +1,1 @@
+Artículo 63. Tramitación electrónica de concesión de aguas superficiales. Los usuarios podrán gestionar electrónicamente dentro de la plataforma VUl el trámite de Concesión de aguas superficiales otorgada por la Dirección de Aguas del MINAE.

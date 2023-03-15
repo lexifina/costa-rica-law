@@ -1,0 +1,1 @@
+Artículo 68. Tramitación electrónica de criterio técnico de humedales. Los usuarios podrán gestionar electrónicamente dentro de la plataforma VUI el trámite de criterio técnico de humedales, ante la Sistema Nacional de Áreas de Conservación.
