@@ -1,0 +1,1 @@
+Artículo 3º-Correr la numeración de los artículos 14, 15 y 16 del Decreto Ejecutivo Nº 35535-1-1. Córrase la numeración de los actuales artículos 14, 15 y 16 del Decreto Ejecutivo Nº 35535-H de fecha 7 de agosto de 2009, publicado en La Gaceta Nº 201 del 16 de octubre de 2009, para que en adelante se lean como artículos 15, 16 y 17 respectivamente.
