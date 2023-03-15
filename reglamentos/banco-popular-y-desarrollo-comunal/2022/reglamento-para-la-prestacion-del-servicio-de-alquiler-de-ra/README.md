@@ -14,3 +14,4 @@ Reglamento para la prestación del servicio de alquiler de racks del Data Center
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-07-08 | la propia norma |
+| 2 | 2023-03-15 | Reglamento 5986 (2023-03-15) |
