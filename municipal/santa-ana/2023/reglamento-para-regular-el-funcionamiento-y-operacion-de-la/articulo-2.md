@@ -1,0 +1,1 @@
+Artículo 2º-Alcance. Las disposiciones de este reglamento son aplicables a la Municipalidad del cantón de Santa Ana, en cumplimiento de la Ley de Creación de la Oficina de la Persona Adulta Mayor y de Personas en situación de Discapacidad en las Municipalidades 10046.
