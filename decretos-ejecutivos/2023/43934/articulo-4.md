@@ -1,0 +1,2 @@
+Artículo 4.- En virtud de la adición del nuevo Capítulo XXVI del Reglamento a la Ley del Régimen de Zonas Francas, Decreto Ejecutivo Nº34739-COMEX-H del 29 de agosto de 2008, publicado en el Alcance Nº35 al Diario Oficial La Gaceta Nº 181 del 19 de setiembre de 2008, córrase la numeración del artículo subsiguiente referente a la vigencia:
+''Artículo 157.- Vigencia. Rige a partir de su publicación en el Diario Oficial La Gaceta."
