@@ -1,0 +1,1 @@
+Artículo 3°—Tramitación electrónica. Las solicitudes de otorgamiento del Régimen de Zonas Francas bajo categoría establecida en el inciso g) del artículo 17 de la Ley N° 7210, deben ser presentadas por medio del formulario único electrónico, el cual estará disponible en formato digital en la plataforma de la Ventanilla Única de Inversión (VUI - http:// www.vui.cr).
