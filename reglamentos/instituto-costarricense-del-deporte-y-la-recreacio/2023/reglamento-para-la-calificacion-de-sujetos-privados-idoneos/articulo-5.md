@@ -1,0 +1,1 @@
+Artículo 5º-Expediente digital. El sujeto privado enviará la solicitud y requerimientos establecidos en el presente reglamento, mediante expediente digital, que contenga un índice de los requisitos generales y específicos presentados conforme lo establecido en el presente reglamento.
