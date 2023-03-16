@@ -1,0 +1,1 @@
+Artículo 2º-Ámbito de aplicación: Las disposiciones del presente reglamento, serán aplicables únicamente a aquellas empresas nuevas acogidas al Régimen de Zonas Francas, que se ubiquen en regiones fuera de la Gran Área Metropolitana, exceptuando los cantones de Palmares, Sarchí, Grecia, San Ramón y Naranjo.
