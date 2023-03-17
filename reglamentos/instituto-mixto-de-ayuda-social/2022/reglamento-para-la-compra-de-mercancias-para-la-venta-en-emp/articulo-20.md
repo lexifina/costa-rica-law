@@ -1,0 +1,1 @@
+Artículo 20- De las mercancías almacenadas: Las mercancías ingresadas al Régimen Aduanero Especial de Tiendas Libres, estarán en la bodega general o en las bodegas auxiliares del IMAS, habilitadas por la autoridad aduanera competente y adecuada para la seguridad fiscal, con los requisitos exigidos conforme a la normativa existente.

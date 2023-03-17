@@ -1,0 +1,8 @@
+Artículo 39- De las competencias de la Comisión de Recomendación de Compras de Mercancías de Empresas Comerciales: Serán competencias de la Comisión:
+a. Verificar la existencia de contenido presupuestario de previo a conocer y recomendar cada compra de mercancías.
+b. Conocer y resolver las solicitudes de compra de mercancías para recomendar su aprobación por parte de la Gerencia General.
+c. Verificar que las ofertas de las casas proveedoras para la compra de mercancías para la venta en las tiendas libres de impuestos, se encuentren acompañadas de la información necesaria para una adecuada y oportuna toma de decisiones.
+d. Cumplir las recomendaciones que con respecto a su funcionamiento emita la Auditoría Interna, la Contraloría General de la República, u otras instancias competentes de Contratación Pública, o de control y fiscalización.
+e. Verificar que quede debidamente documentado en un expediente administrativo todas las recomendaciones que emita, en donde deberá constar todos los términos y condiciones de cada compra, las ofertas recibidas de casas proveedoras, así como aquella documentación en la que se sustenta el desarrollo de cada sesión de esta Comisión.
+f. Analizar la conveniencia de adquirir cada producto, la cantidad y los precios de éstos, en términos de salvaguardar los principios de valor por el dinero, eficacia, eficiencia, vigencia tecnológica y demás principios generales de contratación pública que sean aplicables en procura que prevalezca siempre la mejor opción para la Institución y el interés público en la operación de las tiendas libres del IMAS.
+g. Dejar constancia en el expediente correspondiente a cada recomendación de compras, de que se cumple con los aspectos incluidos en este Reglamento.

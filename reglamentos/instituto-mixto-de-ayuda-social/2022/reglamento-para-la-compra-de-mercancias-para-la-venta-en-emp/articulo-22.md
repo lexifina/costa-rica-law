@@ -1,0 +1,1 @@
+Artículo 22- De la ausencia temporal del Gerente General: En caso de ausencia temporal del titular de la Gerencia General, corresponderá a la persona titular de la Subgerencia de Soporte Administrativo o, en su ausencia, a la persona titular Subgerencia de Gestión de Recursos ejercer la competencia establecida en el artículo anterior.

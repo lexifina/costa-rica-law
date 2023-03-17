@@ -1,0 +1,1 @@
+Artículo 13- De la Orden de Compra: La Orden de Compra debe ser emitida con fecha posterior a la aprobación por parte de la Gerencia General de la correspondiente acta de recomendación de compra de mercancías.

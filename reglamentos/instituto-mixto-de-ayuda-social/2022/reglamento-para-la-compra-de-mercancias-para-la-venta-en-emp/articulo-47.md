@@ -1,0 +1,1 @@
+Artículo 47- De la renovación de documentos: Las casas proveedoras inscritas en el Registro objeto del presente Reglamento, no están obligados a solicitar nuevamente su incorporación en caso de tener su registro desactualizado, sino que será suficiente renovar aquellos documentos legales que están vencidos y notifiquen cualquier cambio en su condición.

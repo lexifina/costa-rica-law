@@ -1,0 +1,2 @@
+Artículo 3- Personas a cargo de la aplicación de este Reglamento
+Están a cargo de la aplicación de este reglamento las personas que, en las unidades administrativas del Área de Empresas Comerciales, en el Área de Proveeduría Institucional, en la Unidad de Presupuesto, en la Subgerencia de Gestión de Recursos, en la Gerencia General y en la Comisión de Recomendación de Compras de Mercancías de Empresas Comerciales, intervienen en el proceso de compra de mercancías para la venta en Empresas Comerciales del IMAS.
