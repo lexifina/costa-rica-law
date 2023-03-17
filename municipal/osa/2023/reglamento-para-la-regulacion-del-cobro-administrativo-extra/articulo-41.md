@@ -1,0 +1,1 @@
+Artículo 41.-Ámbito de aplicación: Será de aplicación obligatoria para la oficina de Gestión de Cobro, Administración Tributaria, Dirección Financiera, Departamento de Zona Marítimo Terrestre, Contabilidad, Alcaldía y el Consejo Municipal.

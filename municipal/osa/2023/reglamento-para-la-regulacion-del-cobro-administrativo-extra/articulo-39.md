@@ -1,0 +1,4 @@
+SECCIÓN IV
+Resolución de la Contratación de Abogados Externos
+Artículo 39.-Resolución de la contratación. Los abogados externos que, por alguna razón personal o profesional, quieran dejar de servir a la Municipalidad, deberán de comunicar esa decisión expresamente y por escrito a la Alcaldía Municipal, con treinta días de antelación, nota de la cual remitirán una copia a la Oficina de Cobro.
+Al finalizar por cualquier motivo la contratación de servicios profesionales, el abogado externo respectivo, deberá remitir la totalidad de los expedientes judiciales a la Oficina de Cobro, con un informe del estado actual y los honorarios generados por cada uno de los procesos, así como el documento respectivo de renuncia de la dirección del proceso, para que sea presentado por el nuevo abogado externo que continuará con la dirección de este. La Oficina de Cobro, deberá haber remitido el expediente al nuevo director del proceso a la mayor brevedad posible.

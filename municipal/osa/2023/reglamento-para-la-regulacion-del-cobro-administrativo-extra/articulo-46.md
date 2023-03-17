@@ -1,0 +1,1 @@
+Artículo 46.-Seguimiento de cuentas incobrables o en no seguimiento: Es potestad de la Administración Tributaria, asignar o llevar la revisión y seguimiento de forma anual de los procesos asignados como incobrables o en no seguimiento, esto según lo estipulado en el Procedimiento de cuentas incobrables de la Municipalidad de Osa.

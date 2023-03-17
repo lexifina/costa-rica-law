@@ -1,0 +1,5 @@
+SECCIÓN II
+Sobre el cobro de honorarios profesionales
+Artículo 33.-Cobro de honorarios profesionales. El Departamento Cobro, gestionará los honorarios de los profesionales en Derecho en la vía extrajudicial, debiendo los obligados, proceder a su depósito en la cuenta de este Municipio.
+Cuando se trate de los honorarios de sede judicial, la Municipalidad pagará a los profesionales de acuerdo con cada tracto estipulado en el arancel del Colegio de Abogados, cual es, una tercera parte con la presentación de la demanda, la segunda parte con la sentencia y el tracto final cuando finaliza el juicio, montos que serán recuperados por la Municipalidad, una vez que el contribuyente realice la cancelación ordenada en la vía judicial.
+Asimismo, no se solicitará dar por terminado el proceso judicial respectivo, hasta tanto el Departamento de Cobro, le indique por escrito mediante oficio al abogado externo director del proceso, que se ha recibido de conformidad en las cajas municipales, la totalidad de la obligación vencida adeudada por el sujeto pasivo, sus intereses y multas o formalizado arreglo de pago, así como los honorarios respectivos.

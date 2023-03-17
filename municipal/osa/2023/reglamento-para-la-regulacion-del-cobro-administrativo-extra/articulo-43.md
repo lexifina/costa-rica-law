@@ -1,0 +1,1 @@
+Artículo 43.-Gestión de declaratoria de tributos incobrables: El Departamento de Cobros como dependencia encargada de gestionar la declaratoria de incobrabilidad de una deuda deberá realizar un análisis y emitir un informe dirigido a la Administración Tributaria y la Dirección Financiera de si el proceso cumple o no con los supuestos de incobrabilidad.

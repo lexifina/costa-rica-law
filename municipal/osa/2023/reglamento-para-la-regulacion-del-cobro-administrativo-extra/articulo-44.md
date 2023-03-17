@@ -1,0 +1,1 @@
+Artículo 44.-Resolución administrativa de incobrabilidad. Les corresponderá de forma conjunta a la Administración Tributaria y a la Dirección Financiera emitir la resolución de incobrabilidad, la cual enviará a la Alcaldía para conocimiento y ésta a su vez remitirá la misma al Consejo Municipal quien tomará la decisión de la declaratoria o no de incobrable.

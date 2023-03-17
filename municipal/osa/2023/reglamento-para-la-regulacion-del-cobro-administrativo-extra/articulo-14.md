@@ -1,0 +1,8 @@
+Artículo 14.-Formalización del arreglo de pago. La formalización del arreglo de pago deberá realizarla la persona contribuyente, el albacea en caso de fallecimiento del primero, la persona representante legal en caso de sociedades, o la persona interesada en caso de que su cónyuge se encuentre como deudor o deudora y no quiera apersonarse poniendo en riesgo el patrimonio familiar. Se realizará ante la Oficina de Cobro, única competente para realizar esta gestión, mediante la suscripción del documento idóneo que tendrá dicha Oficina para tales efectos, siempre y cuando el sujeto pasivo haya cumplido con los requisitos que esta Oficina exija para tal gestión. Dicho documento, en conjunto con la certificación de la deuda, serán válidos para reclamar en la vía judicial el incumplimiento de pago. El sujeto pasivo deberá presentar la siguiente documentación:
+a. Solicitud de arreglo de pago. (Formulario municipal)
+b. Cédula de identidad de la persona interesada en hacer el arreglo de pago.
+c. En caso de sociedades, deberán aportar personería jurídica original y actualizada, así como el último estado de resultados debidamente firmado por un Contador Autorizado.
+d. En el caso de las sociedades inactivas bastará con la solicitud de la personería jurídica respectiva.
+e. En caso de estar en cobro judicial, presentar el comprobante de pago de los honorarios.
+f. Presentar autorización extendida por parte del sujeto pasivo poseedor de la deuda municipal, en favor de un tercero, para que a su nombre y presentación efectué el arreglo de pago respectivo.
+(Así reformado en sesión N°6 del 12 de marzo de 2019).
