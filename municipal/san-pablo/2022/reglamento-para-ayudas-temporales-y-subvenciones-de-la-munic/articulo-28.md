@@ -1,0 +1,1 @@
+Artículo 28.-Aprobación del Reglamento. El presente Reglamento regirá 60 días naturales después de su publicación en el Diario Oficial La Gaceta, plazo dentro del cual la Administración Municipal, deberá diseñar los procedimientos necesarios para su aplicación.

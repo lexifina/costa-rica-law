@@ -1,0 +1,2 @@
+Artículo 23.-Documentos a presentar por parte de los Centros Educativos Públicos del cantón y Organizaciones de Beneficencia o Servicio Social.
+Los Centros Educativos y las organizaciones de beneficencia social, que hayan sido objeto de ayuda Municipal, quedarán obligados a presentar, los libros contables y realizar una presentación de rendición de cuentas a finalizar el primer semestre de haberse otorgado la ayuda, con el fin de fiscalizar que los fondos o recursos transferidos se apliquen a los fines propuestos.

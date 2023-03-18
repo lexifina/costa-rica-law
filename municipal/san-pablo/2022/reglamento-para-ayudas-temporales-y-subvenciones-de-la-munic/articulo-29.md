@@ -1,0 +1,1 @@
+Artículo 29.-Control de ayudas. La Administración Municipal deberá llevar un registro formal de las personas y/o organizaciones sociales, que se han favorecido con el tipo de ayudas. Para cada caso deberá llevarse un expediente foliado, así como un expediente electrónico, a efecto de llevar del debido control sobre los recursos dispuestos.

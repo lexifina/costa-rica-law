@@ -1,0 +1,1 @@
+Artículo 7º-Alcance de la ayuda. Estas ayudas serán recomendadas con base en el estudio técnico realizado por el profesional en Trabajo Social, y avalada por la Dirección de Servicios Municipales por un monto máximo de doscientos mil colones.

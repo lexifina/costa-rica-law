@@ -1,0 +1,2 @@
+Artículo 9º-Tiempo de respuesta. El profesional en Trabajo Social contará con cinco días hábiles, a partir de la realización del estudio técnico, para emitir recomendación dirigida a la Dirección de Servicios Municipales.
+La Dirección de Servicios Municipales, resolverá en el plazo máximo de cinco días hábiles acerca del otorgamiento de la ayuda pretendida y procederá con el trámite para la compra respectiva.

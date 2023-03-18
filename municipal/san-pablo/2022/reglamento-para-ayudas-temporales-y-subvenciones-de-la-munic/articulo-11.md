@@ -1,0 +1,1 @@
+Artículo 11.-Tipos de ayudas. Las ayudas que concederá la Municipalidad de San Pablo podrán ser, en especies, en materiales o en víveres, según la recomendación que emita el profesional en Trabajo Social.

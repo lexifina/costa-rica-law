@@ -1,0 +1,3 @@
+Artículo 22.-Alcance de las ayudas. En el caso de subvenciones en materiales y suministros, el titular de la Dirección de Servicios Municipales, recomendará el monto de la subvención correspondiente, a la Alcaldía Municipal.
+En la solicitud se debe presentar un perfil de proyecto donde se debe explicar, en forma clara y precisa, el objeto y fines para los que se requiere la subvención, indicando detalladamente el presupuesto del gasto y plan de trabajo y el aporte que hará la entidad solicitante. Dicha solicitud se le trasladará a la Dirección de Servicios Municipales.
+El solicitante de este tipo de subvenciones no debe haber recibido ayuda de parte de la Municipalidad, por la misma situación, durante los últimos doce meses.

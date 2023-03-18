@@ -1,0 +1,1 @@
+Artículo 6º-Destinos de las ayudas temporales. Las ayudas que brinde la Municipalidad serán destinadas, única y exclusivamente, a solventar las necesidades socioeconómicas, alimentarias, de vivienda, salud, o cualquier otra calamidad que afronten los vecinos del cantón, según la situación de desgracia o infortunio a que se refiere el artículo 4° anterior.
