@@ -1,0 +1,1 @@
+Artículo 5. En consideración del artículo 38 de la Ley 9986 se delega en el Director General la autorización excepcionalmente a promover el concurso sin contar con contenido presupuestario, contando para ello de un estudio de parte del Sub Proceso Financiero de la factibilidad de aprobación de dicho contenido.

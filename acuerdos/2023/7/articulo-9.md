@@ -1,0 +1,1 @@
+Artículo 9. Se delega en la Jefatura del Sub-Proceso de Adquisición de Bienes y Servicios, la firma de la resolución de los recursos de objeción al cartel a los diferentes carteles de concursos o procedimientos de contratación, cuando por Ley le corresponda resolver a la Administración del IAFA.
