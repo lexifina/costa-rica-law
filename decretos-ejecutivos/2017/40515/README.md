@@ -14,3 +14,4 @@ Declara de interés público y nacional la actividades relacionadas con la celeb
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-08-16 | la propia norma |
+| 2 | 2023-03-20 | Decreto Ejecutivo 44001 (2023-03-20) |
