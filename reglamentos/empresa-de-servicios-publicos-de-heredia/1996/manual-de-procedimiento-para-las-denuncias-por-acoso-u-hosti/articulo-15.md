@@ -1,1 +1,1 @@
-Artículo 15.—Transitorio único: Instruir a las Áreas de comunicación Interna y Recursos Humanos para que en conjunto se realice una difusión de este Reglamento entre los servidores de la Institución.
+Artículo 15.-Las denuncias por acoso sexual callejero, se tramitarán de la misma forma que las denuncias de acoso y hostigamiento sexual, según lo indicado en los artículos del 4° al 13° del presente reglamento.

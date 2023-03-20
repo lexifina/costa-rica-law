@@ -1,0 +1,1 @@
+Artículo 17.-Transitorio único: instruir a los Procesos de Comunicación Interna y Gestión y Desarrollo Humano para que en conjunto se realice una difusión de este Reglamento a todo el personal de la Institución.

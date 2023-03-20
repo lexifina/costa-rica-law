@@ -15,3 +15,4 @@ Manual de Procedimiento para las Denuncias por Acoso u Hostigamiento Sexual
 | --- | --- | --- |
 | 1 | 1996-05-09 | la propia norma |
 | 2 | 2015-08-10 | Reglamento 3569 (2015-08-10) |
+| 3 | 2023-03-20 | Reglamento 0 (2023-03-20) |
