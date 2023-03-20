@@ -1,0 +1,1 @@
+Artículo 3°-El Gobierno de la República de Costa Rica manifiesta sentidas condolencias a los miembros de la Casa Real Británica, al Pueblo y a los Gobiernos del Reino Unido de Gran Bretaña e Irlanda del Norte y a los miembros de la Mancomunidad de Naciones.
