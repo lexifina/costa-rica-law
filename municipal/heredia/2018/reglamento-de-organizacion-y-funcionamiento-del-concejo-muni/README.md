@@ -17,3 +17,4 @@ Reglamento de organización y funcionamiento del Concejo Municipal de la Municip
 | 2 | 2020-02-24 | Reglamento municipal 304 (2020-02-24) |
 | 3 | 2020-10-12 | Reglamento municipal 41 (2020-10-12) |
 | 4 | 2022-12-06 | Reglamento municipal 221 (2022-12-06) |
+| 5 | 2023-03-20 | Reglamento municipal 246 (2023-03-20) |
