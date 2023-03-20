@@ -1,0 +1,1 @@
+Artículo 64.-Modificaciones del Plan. Siempre que se funden en la necesidad de adaptar el Plan a las necesidades socioeconómicas de las personas jóvenes del Cantón o al aumento de la ambición, podrán realizarse modificaciones, las cuales deberán ser estructuradas y diseñadas por el Comité, ser aprobadas por este y por el Concejo Municipal.

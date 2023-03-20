@@ -1,0 +1,2 @@
+Artículo 44.-Tipos de Sesiones. El Comité tendrá tres tipos de sesiones, solemnes, ordinarias y extraordinarias. Las sesiones ordinarias se realizarán al menos, dos veces por mes. Se podrá realizar cuantas Sesiones Extraordinarias requiera para el correcto funcionamiento del Comité.
+La fecha y hora de las sesiones ordinarias se fijará por acuerdo del Comité. La Presidencia podrá convocar las sesiones extraordinarias que sean necesarias para el buen funcionamiento del Comité, previa coordinación de tiempo y espacio conveniente para la mayoría de personas integrantes.

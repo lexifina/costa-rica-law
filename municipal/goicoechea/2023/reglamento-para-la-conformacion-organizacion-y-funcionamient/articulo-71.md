@@ -1,0 +1,1 @@
+Artículo 71.-Fondos de sujetos de derecho privado. Los sujetos de derecho privado, sean personas físicas o jurídicas, pueden realizar donaciones en dinero y especie al Comité, para que cumpla con sus objetivos. Para lo anterior, la traslación deberá realizarse por los procedimientos legales correspondientes.

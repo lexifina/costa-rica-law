@@ -1,0 +1,10 @@
+Artículo 55.-Requisitos para llevar las actas de una forma adecuada: Las actas deberán contener lo siguiente:
+a) En la introducción, deberá constar el lugar y fecha donde se realiza el acta, consignar a solicitud de quién procede, o bien, el objetivo de la intervención.
+b) Luego, se indicarán el nombre y los apellidos de los comparecientes, la clase de documento de identificación que porten.
+c) En el desarrollo o contenido del acta, se relatarán objetiva y concretamente todas las circunstancias necesarias para los fines de las diligencias y los detalles o condiciones solicitados.
+d) El acta debe incorporar a las personas integrantes que han concurrido con su voto en la toma de la decisión de que se trate y señalar expresamente quiénes votaron en contrario y expuesto los motivos de su oposición.
+e) El acta no debe presentar borrones, tachones o manchas. Cualquier corrección que se deba hacer, se realizará al final del acta, mediante una nota en la que se indique el folio y el número de línea donde se encuentra el error, mencionando la corrección de este. Esta nota deberá hacerse antes de las firmas.
+f) El acta debe iniciarse en la línea uno. Sólo deberá escribirse en las treinta líneas dispuestas para ello. No deben dejarse espacios en blanco, debe escribirse seguido. En caso de papel continuo, que no tiene líneas o renglones, debe utilizarse también sólo treinta líneas. Lo que se escriba fuera de esos márgenes no tiene validez.
+g) Al inicio de cada acta debe indicarse el nombre de la persona que preside la sesión y de la persona que funge como secretaría y al finalizar el acta, una vez leída y aprobada, deberá ser firmada por esas personas y por cualquier otra que haga salvar su voto, dado que la mayoría de las firmas son ilegibles, debe registrarse bajo la firma, el nombre de la persona a quien corresponde la misma.
+h) En el acta no se pueden utilizar números ni abreviaturas.
+i) Al final de cada acta, se colocarán las firmas respectivas, y luego de estas se dejará un renglón de espacio, comenzando la próxima acta en el renglón siguiente.

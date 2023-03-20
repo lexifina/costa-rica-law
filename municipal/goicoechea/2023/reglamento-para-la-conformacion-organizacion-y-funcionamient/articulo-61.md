@@ -1,0 +1,1 @@
+Artículo 61.-Fundamentos del Plan. La fundamentación del Plan debe encontrarse íntimamente ligada con el Régimen Jurídico y la Política Pública de la Persona Joven vigente. Asimismo, deberá adecuarse a los indicadores del Cantón y al estado real de la situación de los derechos de las personas jóvenes, su calidad de vida y las oportunidades.

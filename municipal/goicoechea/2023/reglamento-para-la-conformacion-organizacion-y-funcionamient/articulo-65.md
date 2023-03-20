@@ -1,0 +1,1 @@
+Artículo 65.-Denegatoria de aprobación por el Concejo. El Concejo Municipal podrá denegar la aprobación del Plan y de sus modificaciones, únicamente cuando estos sean contrarios al Régimen Jurídico aplicable.

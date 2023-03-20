@@ -1,0 +1,1 @@
+Artículo 46.-Tipos de votación. En las sesiones del Comité se tendrán dos tipos de votaciones, a saber: ordinaria y nominal. La votación ordinaria se realizará por medio de mano alzada y la votación nominal se realizará cuando la presidencia lo solicite a cada persona integrante, misma que expresará su voluntad en forma verbal votando positivo o negativo.

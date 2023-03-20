@@ -1,0 +1,2 @@
+Artículo 68.-Fondos del Comité. Los fondos mínimos del Comité serán los provenientes de la Municipalidad y del Concejo Nacional de la Persona Joven. Sin embargo, otras instituciones públicas, organismos internacionales, sector privado, movimiento comunal, organizaciones no gubernamentales y personas físicas podrán realizar donaciones en dinero o especie, para colaborar con los objetivos del Comité, los cuales pasarán a ser parte de los fondos de éste.
+Los fondos del Comité no podrán ser variados en su destino por parte de la Municipalidad.

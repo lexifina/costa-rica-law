@@ -1,0 +1,1 @@
+Artículo 66.-Proyectos aislados en relación con el Plan. El Comité podrá aprobar proyectos independientes del Plan aprobado. Sin embargo, deberán estar fundamentados en los objetivos del Plan Cantonal vigente o en ampliar el alcance espacial, temporal, económico y de población beneficiaria del Plan.

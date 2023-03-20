@@ -1,0 +1,1 @@
+Artículo 78.-Finalidad de los Fondos. El Comité deberán ejecutar los fondos exclusivamente para la finalidad descrita en el proyecto aprobado. La Municipalidad no podrá variar el destino de los fondos, omitir su presupuestación en el presupuesto ordinario, o retener de forma alguna su ejecución.

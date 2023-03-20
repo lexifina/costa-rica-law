@@ -1,0 +1,1 @@
+Artículo 34.-De la instalación del Comité. El Comité se instalará en sesión convocada dentro de los tres días hábiles siguientes a la fecha en que se juramente el último miembro que lo integre. En dicha sesión, el comité deberá elegir por mayoría simple de votos, a las personas que asumirán la Presidencia, Vicepresidencia, Secretaría, Tesorería, Vocalía 1, Vocalía 2 y Vocalía 3.

@@ -1,0 +1,1 @@
+Artículo 9º-De la Integración. El Comité lo integran siete personas con edades comprendidas entre los 12 y 35 años inclusive, en representación de los distintos sectores de juventud del cantón de conformidad con lo estipulado en el Artículo 24 de la Ley General de la Persona Joven N° 0 8261: deportivo, estudiantil, comunal, religioso y que reside en el cantón.

@@ -1,0 +1,1 @@
+Artículo 22.-De la organización y logística de la convocatoria. La organización y logística de la convocatoria y realización de las asambleas de sectores estará a cargo de la Presidencia del Concejo Municipal y la Secretaría del Concejo Municipal con la colaboración y el financiamiento de la Administración Municipal.

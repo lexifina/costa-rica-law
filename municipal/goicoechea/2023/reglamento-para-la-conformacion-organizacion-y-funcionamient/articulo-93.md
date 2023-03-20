@@ -1,0 +1,1 @@
+Artículo 93.-Integrarán la Asamblea Cantonal para la elección de la representación del Comité ante el CCDRG las organizaciones juveniles del cantón y personas atletas activas del Programa de Juegos Deportivos Nacionales del cantón.

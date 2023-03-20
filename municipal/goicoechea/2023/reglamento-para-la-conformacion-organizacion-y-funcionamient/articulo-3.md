@@ -1,0 +1,1 @@
+Artículo 3º-Para su aplicación, el presente reglamento establecerá criterios y formas de participación de las personas jóvenes ante la Municipalidad, así como de las organizaciones juveniles creadas para el desarrollo humano sustentable y el progreso general de las personas jóvenes del cantón.

@@ -1,0 +1,4 @@
+CAPÍTULO 2:
+Del Patrimonio del Comité
+Artículo 67.-Patrimonio del Comité. El patrimonio del Comité se constituirá en los bienes muebles e inmuebles y dinero que provengan de institución pública, entidad privada, organismos Internacionales, otros Estados y sus embajadas o de cualquier otra persona física o jurídica. Estarán bajo la propiedad de la Municipalidad, para uso exclusivo del Comité, para el cumplimiento de sus objetivos.
+La Presidencia del Comité será quien autorice el uso o préstamo de los activos del Comité, para lo cual deberá coordinar con la persona funcionaria municipal competente. La autorización supra citada será con base en una solicitud escrita suscrita por la persona petente del uso o préstamo del activo, así como fundamentación de la solicitud y asunción total de responsabilidades económicas, civiles, penales, administrativas y/o disciplinarias.

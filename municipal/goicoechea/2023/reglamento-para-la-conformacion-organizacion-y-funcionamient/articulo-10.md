@@ -1,0 +1,1 @@
+Artículo 10.-Del periodo de vigencia en el cargo. El Comité será electo cada dos años, en año par y sus integrantes podrán ser reelectos sucesivamente de forma indefinida, en el tanto cumplan con el requisito de edad y pertenencia al sector. El ejercicio en el cargo iniciará el 1 0 de enero de los años impares y finalizará el 31 de diciembre de los años pares.

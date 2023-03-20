@@ -1,0 +1,1 @@
+Artículo 63.-De la aprobación del Plan. El Plan deberá ser aprobado por el Comité y luego por el Concejo Municipal, y sus estipulaciones serán de acatamiento obligatorio tanto para el Comité como para la Municipalidad. La aprobación por parte del Concejo, le dará al Plan efectos de Política Cantonal.

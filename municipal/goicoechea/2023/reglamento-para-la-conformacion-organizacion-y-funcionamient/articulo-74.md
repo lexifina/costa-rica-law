@@ -1,0 +1,1 @@
+Artículo 74.-De las personas beneficiarias. Los proyectos deben beneficiar a las personas jóvenes de la comunidad y no podrán buscar el lucro de las personas integrantes del Comité, parientes por consanguinidad o afinidad hasta el tercer grado, personas integrantes del Concejo Municipal o sus parientes por consanguinidad o afinidad hasta el tercer grado.

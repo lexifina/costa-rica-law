@@ -1,0 +1,1 @@
+Artículo 42.-De las comisiones del Comité. El Comité podrá crear Comisiones las cuales tendrán las funciones que se le encomienden en el acuerdo que las cree. La Presidencia nombrará a quiénes integrarán las Comisiones.

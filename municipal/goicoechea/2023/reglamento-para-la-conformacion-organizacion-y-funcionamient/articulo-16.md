@@ -1,0 +1,1 @@
+Artículo 16.-De las organizaciones deportivas. El CCDRG designará una persona joven representante de las organizaciones deportivas cantonales. Esta persona joven deberá ser integrante de las organizaciones deportivas inscritas ante el CCDRG.

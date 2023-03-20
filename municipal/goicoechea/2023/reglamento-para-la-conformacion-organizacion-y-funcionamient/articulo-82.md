@@ -1,0 +1,2 @@
+Artículo 82.-Es responsabilidad de la municipalidad velar por una adecuada gestión de los recursos de las transferencias efectuadas por el CPJ al Comité a través de la municipalidad.
+La Municipalidad dará apoyo técnico-operativo al Comité, para la ejecución del proyecto ejecutado con la transferencia de recursos por parte del CPJ, y brindará el informe correspondiente al CPJ sobre el gasto presupuestario realizado.

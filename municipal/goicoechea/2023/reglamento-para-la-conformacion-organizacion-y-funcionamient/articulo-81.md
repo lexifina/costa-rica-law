@@ -1,0 +1,1 @@
+Artículo 81.-La Municipalidad incorporará en el presupuesto ordinario el presupuesto estimado que le corresponde al Comité para la ejecución de los proyectos del Comité del año siguiente, de acuerdo con la comunicación que al efecto el CPJ remita a la municipalidad.

@@ -1,0 +1,1 @@
+Transitorio ll.-De la entrada en funciones del Comité. El Comité que resulte electo en el proceso realizado a partir de la entrada en vigencia del presente reglamento, asumirá su cargo a partir de su elección y hasta el 31 de diciembre del año 2024.

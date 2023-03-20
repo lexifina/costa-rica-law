@@ -1,0 +1,1 @@
+Artículo 29.-De la comunicación al CPJ. Dentro de los tres días hábiles siguientes a que se complete la integración del Comité, la Secretaría del Concejo Municipal lo comunicará de oficio a la Junta Directiva del Consejo de la Persona Joven. Esta comunicación se trasladará por medio de certificación e incluirá la información personal y de contacto que sea solicitada por el CPJ.

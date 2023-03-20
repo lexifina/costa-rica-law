@@ -1,0 +1,1 @@
+Artículo 83.-Durante el mes de diciembre de cada año, el Comité deberá presentar un informe de resultados de los proyectos financiados por el CPJ, que permita visualizar los alcances, y cumplimiento de objetivos, que son producto de su gestión y de los diferentes proyectos y actividades planteadas y ejecutadas, con sus respectivos medios de verificación.

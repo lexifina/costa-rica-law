@@ -1,0 +1,2 @@
+Artículo 51.-Al inicio de cada libro de actas, se colocará una leyenda que indique la fecha de apertura del libro, el nombre del Comité, y se hará constar el número de folios del libro y su buen estado, dándose la apertura en ese momento con la firma de la auditoría interna de la Municipalidad.
+De conformidad con el Artículo 22 de la Ley General de Control Interno, corresponderá a la auditoría interna de la Municipalidad otorgar su razón de apertura del libro de actas que utilizará el Comité.
