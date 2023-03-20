@@ -1,2 +1,3 @@
-ARTÍCULO 69° — Este Reglamento rige a partir de su publicación en el Diario Oficial La Gaceta.
-Aprobado por Junta Directiva en el artículo IX de la Sesión Ordinaria N°188, celebrada el 06 de julio de 2020. Acuerdo firme
+Artículo 69°—Requisitos esenciales que deben reunir las denuncias que se presenten a la Auditoría Interna
+Los hechos denunciados deben ser expuestos en forma clara, precisa y circunstanciada, brindando la evidencia suficiente que permita orientar la investigación para determinar el momento y lugar en que ocurrieron tales hechos y el sujeto que presuntamente los realizó. Además, indicar el lugar o medio para recibir notificaciones.
+La Auditoría Interna dará trámite únicamente a aquellas denuncias en el ejercicio de las competencias conferidas por ley para el análisis de presuntos hechos irregulares que puedan ser generadores de responsabilidad, a cargo de los sujetos incluidos en su ámbito de acción.

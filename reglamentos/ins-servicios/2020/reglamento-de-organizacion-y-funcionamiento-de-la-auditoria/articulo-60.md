@@ -1,3 +1,2 @@
-ARTÍCULO 60°— Programa de seguimiento de la Auditoría Interna
-La Auditoría Interna dispondrá de un programa de seguimiento de las recomendaciones aceptadas por la Administración Activa, que hayan sido rendidas en sus memorandos, oficios e informes de auditoría o estudios especiales de auditoría; así como de las recomendaciones y disposiciones puestas en su conocimiento, formuladas por las firmas independientes de contadores públicos autorizados, la Contraloría General de la República y de otros órganos de control, con la finalidad de verificar si las recomendaciones han sido implementadas.
-Asimismo, la Auditoría Interna evaluará la efectividad del programa de seguimiento establecido por la Administración Activa, para controlar el avance de la implantación de las recomendaciones y el cumplimiento de los plazos dispuestos.
+ARTÍCULO 60°— Seguimiento de Advertencias
+La Auditoría Interna verificará lo actuado por la Administración Activa respecto de las advertencias que le haya formulado, sin perjuicio de que según corresponda, como resultado del seguimiento, emita informes de control interno o de responsabilidades (Relaciones de Hechos), u otros pertinentes.

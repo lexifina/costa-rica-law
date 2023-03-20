@@ -1,2 +1,3 @@
-ARTÍCULO 54°— Informes sobre servicios preventivos
-El Auditor Interno definirá el contenido y la forma de los informes, notas, oficios u otros medios de comunicación sobre los resultados de los servicios preventivos, conforme a la naturaleza del servicio y los criterios pertinentes.
+ARTÍCULO 54°— Plazos para ordenar la implementación de las recomendaciones
+Los informes de control interno, parciales y finales, y los de servicios preventivos están sujetos al trámite y a los plazos improrrogables previstos en los artículos N°36, 37 y 38 de la Ley General de Control Interno.
+Se exceptúan aquellos casos en que la Contraloría General de la República determine que éstos no están sujetos al trámite de conflicto por su naturaleza especial.

@@ -1,4 +1,3 @@
-Sección VII
-Sistema Específico de Valoración de Riesgo Institucional (SEVRI)
-ARTÍCULO 65°— Valoración de Riesgo Institucional
-La Auditoría Interna debe fiscalizar la efectividad del Sistema Específico de Valoración de Riesgo Institucional de INS Servicios S.A., así como promover, conforme a sus competencias, la mejora en la valoración del riesgo de los procesos de dirección, de las operaciones y de los sistemas de información de la Empresa, en relación con los objetivos estipulados en el artículo N°8 de la Ley General de Control Interno.
+Artículo 65°—Registro de los hechos conocidos
+La Auditoría Interna mantendrá un registro de las denuncias y otros hechos presuntamente irregulares conocidos para efecto de controlar la asignación de cada una de ellas, así como custodiar y proteger la confidencialidad del denunciante de conformidad con el marco regulatorio establecido por la Contraloría General de la República. La asignación de las actividades específicas para la atención de estas investigaciones deberá incorporarse en el plan de trabajo de la Auditoría.
+Los hechos conocidos serán analizados considerando la priorización de las actividades que se deben realizar por cumplimiento normativo, de acuerdo con los recursos humanos disponibles, el orden en que se presentan, los estudios que se estén ejecutando, el análisis de los riesgos que puedan materializarse y otras variables que a criterio del Auditor Interno tengan prioridad.

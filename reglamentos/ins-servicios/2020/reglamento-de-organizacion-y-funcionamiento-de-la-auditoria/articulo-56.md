@@ -1,3 +1,2 @@
-ARTÍCULO 56°— Plazos para ordenar la implementación de las recomendaciones
-Los informes de control interno, parciales y finales, y los de servicios preventivos están sujetos al trámite y a los plazos improrrogables previstos en los artículos N°36, 37 y 38 de la Ley General de Control Interno.
-Se exceptúan aquellos casos en que la Contraloría General de la República determine que éstos no están sujetos al trámite de conflicto por su naturaleza especial.
+ARTÍCULO 56°— Implementación de recomendaciones
+La Junta Directiva o el titular subordinado, una vez recibidas las recomendaciones de la Auditoría Interna, debe ordenar la implementación de las recomendaciones al responsable designado, con copia a la Auditoría Interna, disponiendo las fechas de inicio y de finalización probable de la misma; o en su defecto, manifestarse en contra, observando lo que al respecto dictan los artículos N°36, 37 y 38 de la Ley General de Control Interno.

@@ -1,0 +1,3 @@
+Artículo 70° —Solicitud de aclaración o información adicional
+Ante requerimiento de la Auditoría Interna, el denunciante deberá prestar colaboración para aclarar o brindar información complementaria que permita sustentar los hechos denunciados.
+En caso de que la Auditoría Interna determine que existe imprecisión de los hechos, se otorgará a la parte un plazo no mayor de 10 días hábiles para que el denunciante complete su información, de lo contrario se archivará o desestimará la gestión sin perjuicio de que sea presentada con mayores elementos posteriormente, como una nueva gestión, o bien, que la Auditoría Interna pueda continuar con la tramitación de ésta de oficio en atención a la relevancia de los hechos denunciados.

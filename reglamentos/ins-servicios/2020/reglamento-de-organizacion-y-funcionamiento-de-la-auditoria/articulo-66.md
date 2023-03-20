@@ -1,4 +1,2 @@
-CAPÍTULO V
-Responsabilidad Administrativa y Sanciones
-ARTÍCULO 66° — Causal de Responsabilidad Administrativa
-El Auditor Interno y los colaboradores de la Auditoría Interna incurrirán en responsabilidad administrativa cuando, por dolo o culpa grave, incumplan sus deberes y funciones, infrinjan la normativa técnica aplicable o el régimen de prohibiciones referido en la Ley General de Control Interno N°8292; todo sin perjuicio de las responsabilidades que les puedan ser imputadas civil y penalmente.
+Artículo 66° —Conformación del Expediente
+La Auditoría Interna deberá documentar un expediente individual que respalde las acciones realizadas para la atención de cada caso, velando por la integridad e integralidad de la documentación que lo conforme que garanticen la trazabilidad y cumplir con la confidencialidad establecidas en este reglamento y la Contraloría General de la República.

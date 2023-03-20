@@ -1,2 +1,2 @@
-ARTÍCULO 24° — Relaciones y coordinaciones externas
+ARTÍCULO 24° — Relaciones y Coordinaciones Externas
 Con el propósito de asegurar una cobertura adecuada y minimizar la duplicación de esfuerzos, el Auditor Interno podrá proveer e intercambiar información, así como coordinar actividades con la Contraloría General de la República, además, de otros entes y órganos de control y fiscalización externa que conforme a la ley correspondan en el ámbito de sus competencias, sin perjuicio de la coordinación interna que al respecto debe darse y sin que ello conlleve una limitación para la efectiva actuación de la Auditoría Interna.

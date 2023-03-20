@@ -1,2 +1,3 @@
-ARTÍCULO 67° — Sanciones
-Según la gravedad, las faltas se sancionarán conforme lo que establece el Artículo N°41 de la Ley General de Control Interno N°8292.
+Artículo 67° —Confidencialidad
+La identidad del denunciante, la información, la documentación y otras evidencias de las investigaciones de presuntos hechos irregulares que se efectúen serán confidenciales de conformidad con lo establecido en el artículo N°6 de la Ley General de Control Interno y artículo N° 8 de la Ley Contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública.
+La confidencialidad de la identidad del denunciante debe resguardarse aún concluida la investigación. Asimismo, deben resguardarse la confidencialidad de todos aquellos datos que por disposición específica del ordenamiento jurídico deben considerarse como tales, y de aquellos que así hayan sido declarados por un sujeto público con competencia.

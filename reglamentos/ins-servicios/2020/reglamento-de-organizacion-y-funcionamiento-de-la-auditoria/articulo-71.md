@@ -1,0 +1,2 @@
+Artículo 71°— Denuncias anónimas
+Las denuncias anónimas serán atendidas en el tanto aporten elementos de convicción suficientes y se encuentren soportadas en medios probatorios idóneos que permitan iniciar la investigación, cuando falten tales elementos, la Auditoría debe realizar indagaciones según la información proporcionada, en caso de no encontrar indicios de hechos irregulares la denuncia se archivará.
