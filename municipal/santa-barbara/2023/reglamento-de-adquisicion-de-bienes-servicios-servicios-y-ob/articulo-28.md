@@ -1,0 +1,1 @@
+Artículo 28.-Solicitud. La Proveeduría tendrá a su cargo la recepción y apertura de ofertas, todo de conformidad con la legislación vigente. De igual forma será el encargado de solicitar los estudios técnicos, legales, financieros y los que se consideren oportunos según el tipo de proceso de contratación.

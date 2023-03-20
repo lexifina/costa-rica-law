@@ -1,0 +1,1 @@
+Artículo 41.-Obligada colaboración. Para el eficiente y eficaz cumplimiento de las funciones de la proveeduría institucional, todas las unidades administrativas de la municipalidad de tipo técnico, jurídico, contable, financiero, presupuestario, informático y de cualquier otro orden, están obligadas a brindarle colaboración y asesoría en el cumplimiento de sus cometidos.

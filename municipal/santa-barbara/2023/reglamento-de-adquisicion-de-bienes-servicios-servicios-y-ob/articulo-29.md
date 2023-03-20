@@ -1,0 +1,2 @@
+Artículo 29.-Elaboración. Todo estudio técnico, legal, financiero deberá ser suscrito por el funcionario competente para este efecto.
+La Asesoría Legal y las Unidades Usuarias a las que se les solicite la preparación de estudios, están en la obligación de elaborarlos de acuerdo con los plazos que se fijen, aun cuando el bien o servicio a adquirir no sea para su uso. Todos estos estudios serán la base para la determinación de recomendación de adjudicación del proceso de contratación administrativa.

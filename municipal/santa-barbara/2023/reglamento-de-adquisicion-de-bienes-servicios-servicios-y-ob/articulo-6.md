@@ -1,0 +1,3 @@
+II. Programa de adquisiciones
+Artículo 6º-Elaboración de programa. A más tardar los primeros quince días de diciembre de cada año la Unidad de Presupuesto remitirá el Plan Anual Operativo y la información sobre el presupuesto anual aprobado o en fase de aprobación por parte de la Contraloría General de la República a todas las unidades solicitantes.
+Cada unidad solicitante coordinará con la Unidad de Planificación, Unidad de Presupuesto y la Alcaldía la elaboración del programa de adquisiciones. La Alcaldía deberá aprobar el programa de adquisiciones, una vez aprobado se remitirá a la Unidad de Proveeduría para que se dé a conocer a través del sistema digital unificado antes del 31 de enero.

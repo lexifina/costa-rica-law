@@ -1,0 +1,2 @@
+Transitorio I. Los procedimientos iniciados antes de la vigencia de la Ley General de Contratación Pública número 9986, serán tramitados y se concluirán conforme a las disposiciones vigentes al momento de adoptarse la decisión inicial, debiendo observarse el Reglamento para la adquisición de bienes, materiales, obras y servicios de la Municipalidad de Santa Bárbara para tales efectos. Publíquese.
+Santa Bárbara, 01 de marzo del 2023.

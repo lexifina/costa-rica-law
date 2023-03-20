@@ -1,0 +1,15 @@
+Artículo 3º-Definiciones. Para los efectos del presente Reglamento se entiende por:
+Bien: todo objeto mueble o inmueble, material o inmaterial, susceptible de satisfacer las necesidades del interés público.
+Servicio: conjunto de actividades y servicios ofrecidos, que por su naturaleza son intangibles y prestados por personas físicas o jurídicas a la institución, para el desarrollo de las actividades municipales.
+Obra pública: se denomina obra pública a todos los trabajos de construcción, ya sean infraestructuras o edificación, promovidos por la Municipalidad de Santa Bárbara, teniendo como objetivo el beneficio de la comunidad.
+Autoridades superiores: comprende el Concejo Municipal y la Alcaldía Municipal
+Unidades Usuarias: unidad administrativa que solicita el bien o servicio y facilita las especificaciones técnicas de lo requerido; esta dependencia tiene un código presupuestario asignado y por lo tanto está autorizado para tramitar bienes, materiales y servicios.
+Unidad de Proveeduría: unidad encargada de tramitar, en estricto apego de la norma, las contrataciones de Bienes, servicios y obras que soliciten las unidades usuarias.
+Unidad de Tesorería: unidad encargada de avalar el contenido presupuestario que tienen las unidades usuarias para la adquisición de Bienes, servicios y obras.
+Sistema digital unificado: según lo establece la Ley General de Contratación Pública vigente, toda actividad de contratación pública deberá realizarse por medio del sistema digital unificado, será único y centralizará todos los procedimientos de contratación de todas las entidades, y su administración estará a cargo de la Dirección de Contratación Pública.
+Contenido Presupuestario: es la certificación que emite el Tesorero Municipal por medio del cual da fe que la contratación cuenta con recursos económicos, para la utilización de esta certificación en los procesos de contratación debe ser en formato PDF y firmado digitalmente.
+Especificaciones Técnicas: documento donde se plasma detalladamente todos los detalles del concurso, requisitos de admisibilidad, detalles técnicos, evaluaciones, entregas, vigencia, entro otros detalles importantes para la elaboración de acto final.
+Umbrales para determinar el procedimiento de contratación: es el monto económico establecido para determinar el tipo de contratación que debe seguirse, conforme Ley General de Contratación Pública vigente.
+Ley General de Contratación Pública vigente: se definirá con las siglas LGCP, es la ley que rige la materia de contratación pública, sin dejar de lado la Constitución Política, la Ley General de la Administración Pública y/o cualquier otra ley o reglamento que tenga injerencia en el tema.
+Reglamento de la Ley General de Contratación Pública: se definirá con las siglas RLGCP, es el reglamento específico hecho para la LGCP, deberá actualizarse constantemente, por lo tanto, es de revisión continua.
+Actividad Ordinaria: es aquella que la administración por su constante tráfico y relación inmediata con los usuarios resulta claramente incompatible con los procedimientos concursales de contratación.
