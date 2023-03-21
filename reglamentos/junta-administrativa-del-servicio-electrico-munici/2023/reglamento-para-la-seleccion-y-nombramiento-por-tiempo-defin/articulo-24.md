@@ -1,0 +1,1 @@
+Artículo 24. Una vez notificado el acuerdo de Junta Directiva sobre el nombramiento por tiempo definido en los puestos Gerente General y Subgerente General de JASEC, el Departamento Talento Humano procederá a realizar las gestiones respectivas para concretar el nombramiento de la persona postulante seleccionada conforme a los procedimientos internos establecidos.

@@ -1,0 +1,2 @@
+Artículo 25. En el caso de que se presente un nuevo requerimiento para ocupar por tiempo definido los puestos Gerente General y Subgerente General de JASEC, se consultará el registro de elegibles generado con el concurso público original siempre y cuando no haya transcurrido un plazo mayor a ocho meses, a partir de la fecha del acuerdo de Junta Directiva sobre la resolución del concurso original, a efectos de que el proceso de reclutamiento y selección sea lo más ágil, eficiente y económico posible.
+El presente Reglamento rige a partir de su publicación.

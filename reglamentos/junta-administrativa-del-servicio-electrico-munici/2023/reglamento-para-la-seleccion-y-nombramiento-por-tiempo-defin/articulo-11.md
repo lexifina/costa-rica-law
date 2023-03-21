@@ -1,0 +1,1 @@
+Artículo 11. El Departamento Talento Humano realizará la revisión de los atestados de los postulantes a efectos de determinar quienes cumplen con los requisitos mínimos y legales establecidos para ocupar los puestos Gerente General y Subgerente General de JASEC.

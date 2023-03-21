@@ -1,0 +1,1 @@
+Artículo 17. El Departamento Talento Humano ordenará en forma descendente el registro de postulantes elegibles a efectos de determinar a los postulantes que obtuvieron los resultados finales más altos entre todos los postulantes elegibles.

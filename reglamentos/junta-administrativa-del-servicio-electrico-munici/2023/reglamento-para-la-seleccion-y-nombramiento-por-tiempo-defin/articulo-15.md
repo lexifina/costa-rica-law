@@ -1,0 +1,1 @@
+Artículo 15. Los postulantes cuya sumatoria de los diferentes aspectos que conforman la tabla de calificación obtengan un resultado igual o mayor al porcentaje establecido por acuerdo de Junta Directiva, serán considerados en el registro de postulantes elegibles para los puestos Gerente General y Subgerente General de JASEC

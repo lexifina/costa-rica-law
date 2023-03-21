@@ -1,0 +1,2 @@
+Artículo 20. El Departamento Talento Humano elaborará el respectivo informe técnico del concurso en el que se brindará el detalle suficiente para evidenciar las gestiones administrativas realizadas durante el proceso del concurso público para el nombramiento por tiempo definido en los puestos Gerente General y Subgerente General de JASEC.
+La Junta Directiva conocerá y analizará el informe técnico elaborado por Talento Humano a efectos de que se apruebe la conformación del registro de postulantes elegibles conforme a los resultados obtenidos por los postulantes.

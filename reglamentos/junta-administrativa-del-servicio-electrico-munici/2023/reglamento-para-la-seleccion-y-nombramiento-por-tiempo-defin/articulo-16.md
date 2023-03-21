@@ -1,0 +1,1 @@
+Artículo 16. El Departamento Talento Humano someterá a valoración y análisis de la Junta Directiva de JASEC el detalle consignado en las tablas de calificación que han sido debidamente completadas con las calificaciones obtenidas por los postulantes.

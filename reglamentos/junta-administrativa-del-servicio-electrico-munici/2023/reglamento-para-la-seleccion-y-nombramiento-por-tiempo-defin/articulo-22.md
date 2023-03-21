@@ -1,0 +1,2 @@
+Artículo 22. Los postulantes que conformen el registro de elegibles serán convocados a realizar una entrevista con la Junta Directiva de JASEC. La entrevista será según el criterio del Órgano Colegiado. La entrevista tendrá una asignación porcentual que se detallará en el documento en donde se definen las bases del concurso.
+La Junta Directiva establecerá los mecanismos y criterios necesarios y más adecuados para realizar el proceso de entrevistas de forma ordenada y en igualdad de condiciones para los postulantes que conformen el registro de elegibles.

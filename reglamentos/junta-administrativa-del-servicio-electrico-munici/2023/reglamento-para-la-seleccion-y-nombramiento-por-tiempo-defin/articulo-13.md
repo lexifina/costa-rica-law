@@ -1,0 +1,1 @@
+Artículo 13. Para cada postulante se elaborará un resumen de atestados en donde se realizarán las anotaciones más relevantes sobre el análisis y valoraciones realizadas a los documentos aportados por la persona postulante.

@@ -1,0 +1,3 @@
+Artículo 19. Las solicitudes de aclaración, consultas, impugnaciones o recursos de revocatoria interpuestos por los postulantes deberán ser presentados en el plazo de tres días hábiles a partir del día hábil siguiente a la notificación recibida y se revolverán de la siguiente manera:.
+a) Sobre el proceso de evaluación: al Departamento Talento Humano le corresponderá resolver en el término de diez días hábiles lo correspondiente a las solicitudes recibidas y relacionadas específicamente con los resultados de los factores de evaluación aplicados.
+b) Sobre el nombramiento: a la Junta Directiva le corresponderá resolver en el término de diez días hábiles las solicitudes recibidas y relacionadas con la resolución del concurso público.

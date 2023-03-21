@@ -1,0 +1,1 @@
+Artículo 14. El Departamento Talento Humano realizará la calificación de los atestados de los postulantes, por lo que deberá llenar la tabla de calificación para cada uno y consignar el respectivo puntaje obtenido según la rúbrica previamente establecida.
