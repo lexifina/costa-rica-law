@@ -1,0 +1,6 @@
+Artículo 11.-Acciones preventivas a cargo de la Alcaldía. Corresponde a la Alcaldía impulsar las siguientes acciones:
+a) Elaborar y aprobar un protocolo dirigido a las diferentes instancias municipales para facilitar la aplicación y los alcances de este reglamento, detallando los procedimientos disciplinarios, principios, derechos y responsabilidades, con el objetivo de impulsar su efectivo cumplimiento por medio de la Unidad de Talento Humano.
+b) Asumir la responsabilidad de difundir información relacionada con los alcances de la ley 10.235, la Política Cantonal de Género y de este reglamento.
+c) Diseñar y ejecutar capacitaciones y procesos de formación permanentes y periódicas sobre igualdad de género y prevención de la violencia contra las mujeres en la política, dirigidas a todo el personal administrativo y profesional incluido al funcionariado municipal de nuevo ingreso por medio de la Oficina Social y Familia y la Unidad de Talento Humano.
+d) Impulsar otras acciones afirmativas para garantizar la efectiva igualdad entre mujeres y hombres que prevenga toda forma de violencia y discriminación basada en la condición del género.
+e) Incluir en el informe anual de rendición de cuentas la ejecución y cumplimiento de las obligaciones presentes en la Política 10.325 y la Política Cantonal de Género
