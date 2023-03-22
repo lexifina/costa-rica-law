@@ -1,0 +1,1 @@
+Artículo 28.-Del libro de actas: El Comité de la Persona Joven, deberá llevar un libro de actas donde asentará los acuerdos tomados en cada una de las sesiones ordinarias y extraordinarias, el mismo deberá ser presentado a la Auditoria Interna para la apertura y cierre correspondiente del libro.

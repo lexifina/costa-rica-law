@@ -1,0 +1,1 @@
+Artículo 10.-Sobre la Publicidad del Acuerdo de Convocatoria: La convocatoria del Concejo Municipal debe ser publicitada por los medios de comunicación masiva y redes sociales donde sea posible para el Gobierno Local de Desamparados. Esto se indicará en el acuerdo respectivo de aprobación de la convocatoria.

@@ -1,0 +1,4 @@
+CAPÍTULO II
+De la convocatoria para la elección de los miembros
+y la presentación de las candidaturas
+Artículo 5º-De la convocatoria inicial en la primera quincena del mes de octubre de cada año par: Cada dos años, a partir del año 2022, durante la primera quincena del mes de octubre de cada año par, el Concejo Municipal deberá tomar un acuerdo para aprobar la convocatoria para el proceso de elección del Comité Cantonal de la Persona Joven, para lo cual delegará la logística y fiscalización de los procesos de Asambleas en una Comisión Especial que será integrada por un representante de cada una de las fracciones del Concejo Municipal que recibirá apoyo de la dependencia municipal competente de la Administración Activa, proceso que debe realizarse y finalizarse en los meses de octubre y noviembre acorde con las reglas estipuladas en el presente reglamento.

@@ -1,0 +1,1 @@
+Artículo 29.-Administración de los fondos: La Municipalidad, por medio de sus órganos administrativos, custodiará y controlará la ejecución de los recursos con destino específico girados por el Concejo Nacional de la Persona Joven para el financiamiento de los Comités Cantonales.

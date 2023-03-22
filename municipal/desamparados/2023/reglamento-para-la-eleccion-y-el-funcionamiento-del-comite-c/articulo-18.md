@@ -1,0 +1,1 @@
+Artículo 18.-Convocatoria de oficio ante rompimiento de quórum: Si el quórum se rompiera antes de ratificar acuerdos o cumplir con los cometidos de la misma, la Asamblea quedará convocada de oficio para el mismo día, treinta minutos luego de que se confirmara la ruptura del quórum estructural.

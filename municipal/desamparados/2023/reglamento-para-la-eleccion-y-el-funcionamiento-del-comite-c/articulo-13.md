@@ -1,0 +1,1 @@
+Artículo 13.-Sobre los delegados: Cada organización deberá nombrar dos delegados que tendrá derecho a voz y voto en la respectiva asamblea, los cuales deberán ser presentados ante la Secretaría del Concejo Municipal, el plazo para presentar delegados se cerrará al finalizar la segunda quincena de octubre.
