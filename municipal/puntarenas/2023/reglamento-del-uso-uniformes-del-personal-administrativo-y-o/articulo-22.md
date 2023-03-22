@@ -1,0 +1,1 @@
+Artículo N° 22.-El período de duración de estas prendas de vestir, debe ser como mínimo de 1 año, respaldada por garantía del proveedor externo, después de iniciar su uso, convirtiéndolo en obligatoriedad su uso dentro de la jornada laboral, dichas disposiciones se le comunicarán al Departamento de Proveeduría y a las jefaturas de cada área, por parte de la Comisión de Uniformes.

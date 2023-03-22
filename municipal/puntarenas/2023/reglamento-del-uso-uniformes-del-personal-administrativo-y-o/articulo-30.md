@@ -1,0 +1,1 @@
+Artículo N° 30.-Se recomienda que el cartel de licitación para la compra de los uniformes sea en modalidad abierta o por demanda, para compras fuera de periodo estipulado por la convención colectiva, siempre manteniendo las mismas calidades de uniformes que se definieron en la Comisión de Uniformes.

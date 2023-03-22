@@ -1,0 +1,1 @@
+Artículo N° 42.-El servidor municipal que incumpla o contravenga sus obligaciones o las disposiciones de este ley o sus reglamentos, incurrirá en responsabilidad administrativa que será sancionada disciplinariamente, sin perjuicio de la responsabilidad civil o penal que el mismo hecho pueda originar.

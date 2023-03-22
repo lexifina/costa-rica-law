@@ -1,0 +1,1 @@
+Artículo Nº 3º-El alcalde o alcaldesa deberá nombrar a los integrantes para la Comisión de Uniformes, en las primeras 2 semanas del mes de Enero, según lo establece el Artículo N° 41, inciso K de la Convención Colectiva de la Municipalidad de Puntarenas.

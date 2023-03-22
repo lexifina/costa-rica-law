@@ -1,0 +1,1 @@
+Artículo Nº 9º-El personal operativo masculino o femenino se le entregarán 3 camisas, 3 pantalones y una gorra para el sol, al personal administrativo 3 camisas y 3 pantalones en el caso de los hombres y para las mujeres 3 camisas y 3 piezas inferiores a escoger, ya sea enaguas, pantalones o en combinación de ambas opciones, siempre manteniendo un máximo de 3 piezas inferiores.

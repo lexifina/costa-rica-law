@@ -1,0 +1,1 @@
+Artículo N° 20.-En caso de que un funcionario deba realizar una gira fuera de su lugar de trabajo, deberá usar el uniforme respectivo, excepto que por el tipo de gira se recomiende otro tipo de vestimenta en coordinación con la jefatura y salud ocupacional,(aportar justificación por escrito, a la jefatura inmediata).

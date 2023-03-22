@@ -1,0 +1,1 @@
+Artículo N° 31.-La fiscalización sobre el uso adecuado y correcto del uniforme, según las disposiciones de este Reglamento, corresponde a los jefes de cada departamento , quienes notificarán al Departamento de Recursos Humanos en un plazo de 1 día hábil ,en caso de incurrir en alguna de las faltas descritas en el Capítulo N° 2, Faltas y Sanciones.

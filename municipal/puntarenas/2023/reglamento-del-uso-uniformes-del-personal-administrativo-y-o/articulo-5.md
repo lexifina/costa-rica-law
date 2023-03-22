@@ -1,0 +1,1 @@
+Artículo Nº 5º-El departamento de Recursos Humanos será el encargado de realizar la solicitud en Decsis y SICOP, o el mecanismo que se determine por la administración en su momento, para solicitar la compra de los uniformes, con la información técnica que la Comisión de Uniformes y la oficina de Salud Ocupacional le entregue.

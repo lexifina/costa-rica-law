@@ -1,0 +1,1 @@
+Artículo N° 23.-Los uniformes se entregarán respetando el Artículo N° 41º, inciso J de la convención colectiva de los trabajadores de la Municipalidad de Puntarenas, donde se indique que se entregarán en los primeros 4 meses de cada año.

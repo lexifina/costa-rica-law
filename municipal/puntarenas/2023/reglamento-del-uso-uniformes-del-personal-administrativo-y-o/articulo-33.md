@@ -1,0 +1,2 @@
+Artículo N° 33.-En caso de que, por cualquier circunstancia un funcionario deje de laborar para la institución, a excepción de los funcionarios que se acojan a su pensión, el jefe superior inmediato deberá solicitarle la devolución de los uniformes que estén en su poder.
+Para la destrucción de los uniformes entregados, Recursos Humanos coordinará con el Ingeniero Ambiental para la correcta disposición de estos residuos.

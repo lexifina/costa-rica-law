@@ -1,0 +1,1 @@
+Artículo N° 32.-Si un funcionario sufre el robo de cualquiera de las partes del uniforme, deberá reportarlo a su jefatura correspondiente y aportar como evidencia la denuncia ante los entes policiales correspondientes, en un plazo máximo de 5 días hábiles.

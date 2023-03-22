@@ -1,0 +1,1 @@
+Artículo N° 29.-Para los funcionarios que se encuentren incapacitados al momento de la solicitud de uniformes, y cuyo periodo de incapacidad supere los 3 meses, no se le solicitará uniforme, pudiendo el jefe hacer la orden de compra luego de la incorporación del funcionario.

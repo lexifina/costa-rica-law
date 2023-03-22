@@ -1,0 +1,1 @@
+Artículo Nº 37.-Será responsabilidad de la oficina de Salud Ocupacional, brindar las características de los materiales de los uniformes a utilizar por los funcionarios municipales, tomando en cuenta la seguridad y comodidad según el perfil de riesgo de cada puesto.

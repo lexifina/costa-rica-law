@@ -1,0 +1,1 @@
+Artículo N° 28.-Tendrán derecho a uniforme, los funcionarios en cualquier modalidad de contrato, aún y cuando no estén cubiertos por la convención colectiva vigente, siempre que sean nombrados en un periodo mayor a 3 meses de forma continua.

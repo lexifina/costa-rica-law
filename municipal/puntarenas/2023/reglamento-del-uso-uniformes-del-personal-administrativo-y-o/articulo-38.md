@@ -1,0 +1,1 @@
+Artículo N° 38.-Será responsabilidad de los jefes o encargados el cumplimiento de este reglamento, notificando a recursos humanos , quien coordinará con la alcaldía la sanción a imponer a los funcionarios.

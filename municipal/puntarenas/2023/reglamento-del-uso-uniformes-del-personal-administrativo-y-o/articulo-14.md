@@ -1,0 +1,1 @@
+Artículo Nº 14.-Los funcionarios que no puedan utilizar por criterio médico, alguna de las partes del uniforme, deben presentar dictamen médico de la Caja del Seguro Social o el INS, a su jefatura, y esta se encargará de analizar el caso junto con Salud Ocupacional.

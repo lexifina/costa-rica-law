@@ -1,0 +1,1 @@
+Artículo N° 34.-Todo funcionario tendrá 3 días hábiles para justificar el incumplimiento en el uso del uniforme, y le corresponderá a la respectiva jefatura en conjunto con Recursos Humanos, resolver en un plazo máximo de 5 días hábiles dicha justificación.

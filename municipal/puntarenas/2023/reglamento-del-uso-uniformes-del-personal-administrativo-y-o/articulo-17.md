@@ -1,0 +1,1 @@
+Artículo N° 17.-El uniforme del personal administrativo debe estar siempre bien limpio, ordenado, planchado y con todos los botones colocados, pudiendo no abrocharse los primeros 2 botones de la camisa, con faldas por dentro en el caso de los hombres y mujeres, a excepción de las camisas tipo polo.
