@@ -1,0 +1,1 @@
+Artículo 8º-Renuncia de personas representantes. Las personas representantes del Foro o personas participantes de grupos o mesas de trabajo, podrán solicitar su salida o renuncia ante la persona que ocupe la secretaría del Comité Ejecutivo, mediante nota formal firmada por el Representante Legal.

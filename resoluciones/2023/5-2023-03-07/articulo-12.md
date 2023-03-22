@@ -1,0 +1,2 @@
+Artículo 12.-Periodicidad de las sesiones. El Foro, tendrá la flexibilidad de organizar sesiones plenarias periódicas como mínimo una vez al año e invitar, a mesas de trabajo de acuerdo con los temas específicos a tratar por sector.
+La Dirección de Grandes Contribuyentes Nacionales será responsable del funcionamiento general del Foro, incluida la organización de su calendarización, el desarrollo de las agendas, comunicación con al menos quince días de anticipación de los temas a tratar y el seguimiento de los resultados de cualquier sesión.

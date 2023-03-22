@@ -1,0 +1,3 @@
+Artículo 6º-Notificación como persona representante. Conforme a los parámetros indicados en el artículo 5° anterior, aquellos contribuyentes clasificados como Grandes Contribuyentes Nacionales y otros seleccionados para formar parte del foro, se les comunicará formalmente mediante el oficio respectivo.
+La participación en el Foro no es obligatoria y se requiere que el representante legal acepte su interés o no en formar parte.
+Una vez notificada y aceptada la inclusión del obligado tributario en el Foro, la misma se mantendrá por un plazo mínimo de tres periodos fiscales del Impuesto sobre la Renta (utilidades). En caso que, no cumpla lo que se dispone en el artículo 5° de la presente resolución, se notificará su exclusión.

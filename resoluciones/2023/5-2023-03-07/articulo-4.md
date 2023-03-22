@@ -1,0 +1,1 @@
+Artículo 4º-Alcance del Foro de Diálogo con Grandes Contribuyentes Nacionales. En el Foro se podrá discutir cualquier tema tributario de interés común para sus integrantes a propuesta de cualquiera de ellos, previa aprobación del Comité Ejecutivo, en donde participará al menos un representante de los contribuyentes.

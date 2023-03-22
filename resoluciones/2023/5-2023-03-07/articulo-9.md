@@ -1,0 +1,2 @@
+Artículo 9º-Admisión o renovación personas representantes. En caso de renuncia de alguna persona representante, la sustitución se realizará atendiendo lo dispuesto en el artículo cinco de la presente resolución, tomando en consideración, que la nueva persona representante equilibre la relación de sectores económicos dispuestos.
+También procede la renovación o inclusión de alguna persona, por su grado de involucramiento, temas de interés de todos sus representantes, sector económico relacionado, o bien por necesidad según el tema a discutir en el Foro.

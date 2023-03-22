@@ -1,0 +1,1 @@
+Artículo 11.-Modificaciones al Foro. Cualquier propuesta de modificación de las normas de composición o funcionamiento, deberá ser presentada a la persona que ocupe la secretaría y esta iniciativa se someterá a estudio, debate y aprobación por mayoría absoluta de todos sus representantes.

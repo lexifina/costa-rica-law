@@ -1,0 +1,3 @@
+Artículo 7º-De otras personas participantes del Foro. Podrán participar otros contribuyentes clasificados como Grandes Contribuyentes Nacionales, así como otros grupos de interés económico o contribuyentes, según su actividad comercial o sector (comercio, industria, servicios, y gobierno) y/o su relevancia tributaria, de acuerdo con temas de interés a tratar en el Foro, los cuales deberán ser convocados formalmente y por un plazo definido.
+Además, se podrá contar con la participación de los representantes de colegios profesionales, cámaras, unión de cámaras, asociaciones, entidades gubernamentales, entre otros.
+En todos los casos, los participantes pueden ser acompañados por su personal de confianza y/o asesores.
