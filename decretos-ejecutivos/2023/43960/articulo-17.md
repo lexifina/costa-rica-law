@@ -1,0 +1,12 @@
+Artículo 17°-Novación de la deuda. En el caso de novaciones el deudor que asuma el crédito deberá cancelar principal e intereses corrientes y moratorias, generados al momento en el que se constituye como tal.
+Los requisitos para tramitar la novación de la deuda son:
+a) La operación de crédito debe quedar al día en el pago de crédito.
+b) Solicitud escrita firmada por el nuevo deudor. La firma de la solicitud debe ser igual a la de la cédula de identidad vigente.
+c) Copia legible de la cédula de identidad vigente del deudor.
+d) Copia legible de la orden patronal vigente de deudor.
+e) Constancia de salario extendida por el patrono del solicitante, que indique el monto del salario bruto, salario neto, tiempo de servicio y si existen o no gravámenes judiciales. Para el caso de ingresos propios (actividades propias o por ejercicio libre de la profesión) deberá presentar certificación de ingresos extendida por un contador público autorizado.
+f) Podrá ser respaldado por garantía fiduciaria conforme a las condiciones establecidas para este efecto en el artículo 7 ° de este reglamento. En el caso de que el nuevo deudor sea un fiador actual de la operación, este deberá ser sustituido con el fin de no dejar al descubierto la garantía del crédito y este fiador deberá cumplir con lo establecido en el artículo 7 ° este Reglamento.
+g) Para el caso de sustitución de garantía hipotecaria, deberá considerar las condiciones establecidas en el artículo 8 º de este reglamento.
+h) Actualización de direcciones, números de teléfonos de residencia, trabajo, número de celular, correo electrónico tanto del deudor como de los fiadores en el caso de garantía fiduciaria. Para las garantías hipotecarias se deberán actualizar los datos anteriores tanto del deudor como de l(os) dueño(s) de la propiedad.
+La novación de deuda deberá ser formalizada mediante adenda al contrato con el respectivo pagaré en el caso de garantía fiduciaria. En caso de garantía hipotecaria, el deudor y dueño o dueños de la propiedad, adicionalmente deberán firmar una ampliación o modificación a los términos de la hipoteca.
+La Unidad de Cobro remitirá la novación de deuda en primera instancia al Departamento Técnico de Planificación y Desarrollo para su análisis y recomendación a la Junta Directiva. La novación de deuda con montos inferiores al monto estipulado por la Junta Directiva de JUDESUR se enviará a aprobación del Comité de Financiamiento.

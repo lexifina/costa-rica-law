@@ -1,0 +1,1 @@
+Artículo 21 º-Plazo. El plazo de otorgamiento de readecuaciones de deuda, prórrogas de pago se fijará teniendo en cuenta las posibilidades y características del ente deudor, proyecciones financieras, y la capacidad de pago actual, a criterio del Departamento Técnico de Planificación y Desarrollo Institucional

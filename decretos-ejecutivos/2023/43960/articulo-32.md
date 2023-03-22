@@ -1,0 +1,9 @@
+Capítulo V
+De los financiamientos incobrables
+Sección I: De los financiamientos incobrables
+Artículo 32º-Financiamiento incobrable. El financiamiento incobrable, será aquella operación que no se haya podido recuperar, ya sea parcial o totalmente según los siguientes casos:
+a) Cuando se haya dictado sentencia en el juicio de cobro respectivo y ninguno de los demandados tenga bienes muebles o inmuebles, o salarios, cuentas bancarias o cualquier otro bien embargable en el patrimonio del deudor y fiadores, sobre los cuales pueda recaer embargo que haga factible la recuperación del crédito o cuando durante el proceso se determine por parte de los abogados que no existe posibilidad de recuperación.
+b) Cuando se hayan rematado los bienes que garantizaban la obligación y se haga imposible recuperar un eventual saldo en descubierto, por no existir bienes que perseguir.
+c) Cuando el nombramiento de un curador ante la autoridad judicial haría incurrir en gastos judiciales que serían de difícil recuperación.
+d) Cuando por resolución judicial se declare prescrita una obligación y sea imposible para JUDESUR la recuperación del saldo adeudado.
+e) En aquellos casos en que previo informe de asesoría legal de JUDESUR se determine que el eventual proceso de cobro es de imposible recuperación, sea porque ha operado prescripción, no existe bienes que perseguir, o por criterio de legalidad u oportunidad no resulte conveniente trasladar a cobro judicial la operación. La Unidad de Cobro analizará el informe de asesoría legal de JUDESUR de costo - beneficio de la gestión de cobro judicial y posteriormente en estos casos, deberá remitirse a la Junta Directiva de JUDESUR informe con recomendación para su análisis y declaratoria de incobrabilidad. La Junta Directiva de JUDESUR mediante acuerdo realizará la declaratoria de financiamiento incobrable. Tal condición no será entendida como una condonación de la obligación.

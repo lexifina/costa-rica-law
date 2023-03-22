@@ -1,0 +1,1 @@
+Artículo 36º- Derogatorias. Deróguese el Decreto Ejecutivo N º 32574-MP, Reglamento para el Cobro de Financiamientos para Estudios Superiores de la Junta de Desarrollo Regional de la Zona Sur de la Provincia de Puntarenas del 10 de agosto de 2005, publicado en el Diario Oficial La Gaceta Nº 180 del 20 de setiembre del 2005.

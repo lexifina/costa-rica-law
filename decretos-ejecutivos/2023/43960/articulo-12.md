@@ -1,0 +1,3 @@
+Artículo 12º-Requisitos para el Arreglo de Pago. Para solicitar un arreglo de pago, se deberá cumplir con los siguientes requisitos y documentos:
+i) Solicitud escrita firmada por el deudor, fiadores o un tercero donde justifique las causas de la dificultad para el pago de la cuota ordinaria. Esta firma debe ser firma física o firma digital. En el caso de firma física, ésta debe ser igual a la de la cédula de identidad.
+a) Remitir direcciones, números de teléfonos de residencial, trabajo, número de celular, correo electrónico tanto del deudor como de los fiadores en el caso de garantía fiduciaria. Para las garantías hipotecarias se deberán actualizar los datos anteriores tanto del deudor como de (los) dueño(s) de la propiedad.
