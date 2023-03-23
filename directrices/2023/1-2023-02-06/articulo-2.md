@@ -1,0 +1,1 @@
+Artículo 2º-De la autorización de condonación de conceptos emitida por el Ministerio de Trabajo y Seguridad Social, mediante Resolución MTSS-DMT-RRAPE-208-2022, el Ministro de Trabajo autoriza la condonación únicamente para multas, recargos e intereses al FODESAF, correspondientes a las planillas ordinarias y adicionales con fecha de facturación a febrero 2015 y anteriores.

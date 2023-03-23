@@ -1,0 +1,1 @@
+Artículo 3º-Objetivo de la Directriz. Regular las condiciones, requisitos y trámites que regirán la condonación autorizada por la Ley N 10.232 denominada "Autorización de condonación para la formalización y recaudación de las cargas sociales para la Desaf".
