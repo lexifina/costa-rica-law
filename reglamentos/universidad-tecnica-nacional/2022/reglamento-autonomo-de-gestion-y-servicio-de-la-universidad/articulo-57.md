@@ -1,3 +1,12 @@
-Artículo 57. Permisos para asistir a citas médicas: permiso para acudir a las citas médicas en la CCSS o el INS; dicho permiso contempla el tiempo que requiere en dirigirse al centro médico, el tiempo de la consulta y tiempo regreso para reintegrarse a sus labores, por tanto, el permiso para que la persona trabajadora se ausente de sus funciones cbre únicamente ese espacio.
-Lo anterior, para citas de la persona servidora, hijos e hijas menores de edad o mayores con alguna discapacidad y en caso de padres adultos mayores dependientes de la persona servidora.
-Para la aplicación del permiso, la persona funcionaria debe presentar, sin excepción, los documentos o comprobantes correspondientes ante la jefatura inmediata para justificar la ausencia de las horas no laboradas, a más tardar, un día después de haber asistido a dicha consulta médica.
+Artículo 57. Permisos para asistir a citas médicas: Permiso para que una persona servidora se ausente de sus funciones con el fin de acudir a las citas médicas en la CCSS, el INS y centros médicos privados.
+El permiso contempla únicamente el espacio de tiempo que requiere la persona funcionaria en trasladarse al lugar en el cual se efectuará la cita médica, la atención médica en la cita médica y el regreso al lugar de trabajo para reintegrarse a sus labores.
+Lo anterior, para citas médicas en los siguientes casos:
+a. Propias de la persona funcionaria.
+b. Hijos o hijas menores de edad de la persona funcionaria.
+c. Hijos o hijas mayores de edad de la persona funcionaria en condición de estudiantes que de forma comprobada dependan económicamente de la persona funcionaria, de 18 años en adelante, hasta los 25 años, que requieran acompañamiento recomendado documentalmente en la atención médica.
+d. Hijos o hijas de la persona funcionaria con alguna discapacidad comprobada documentalmente, que requieran acompañamiento en la atención médica.
+e. Padre o madre adultos mayores de la persona funcionaria, que requieran acompañamiento recomendado documentalmente en la atención médica.
+f. Cónyuge o personas convivientes en unión de hecho comprobada de la persona funcionaria, que requieran acompañamiento recomendado documentalmente en la atención médica.
+g. Cónyuge o convivientes en unión de hecho comprobada de la persona funcionaria con alguna discapacidad demostrada documentalmente, que requieran acompañamiento en la atención médica.
+Para la aplicación del permiso, la persona funcionaria debe presentar, sin excepción, los documentos o comprobantes correspondientes ante el Área o Dirección de Gestión de Desarrollo Humano; además de informar a la jefatura inmediata sobre la gestión, para justificar la ausencia de las horas no laboradas, a más tardar, UN DÍA HABIL después de haber asistido a la cita o procedimiento médico.
+(Así reformado mediante Sesión Ordinaria N° 7-2023 del 23 de marzo de 2023)
