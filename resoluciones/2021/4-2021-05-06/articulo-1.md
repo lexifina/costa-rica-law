@@ -10,4 +10,5 @@ IV.-DG-019-2021: Modifica la Resolución DG-339-2010 del 09 de diciembre de 2020
 V.-DG-020-2021: Deroga el artículo 4 de la resolución DG-131-2010, del 21 de abril del año 2010, en cuanto al Grupo de Especialidad dada a la clase Secretario (a) de Servicio Civil 2, eliminando el término "(G. de E.)" de su nomenclatura.
 Modifica el Manual de Clases Anchas, contenido en la Resolución DG-055-97, del 5 de junio de 1997 y sus reformas.
 VI.-DG-021-2021: Excluir del mecanismo de revaloración especial que se aplicó en la resolución DG-075-2020, el puesto N° 058703 clasificado como Profesional de Servicio Civil 3, código presupuestario 211-631-01-15-0001.
+(*)(Nota de Sinalevi: Mediante resolución DG-RES-17-2023 se emitió la norma N° DG-019-2021 del 20 la cual establece que se supriman del Manual Institucional de Clases del Instituto Costarricense de Investigación y Enseñanza en Nutrición y Salud (INCIENSA), clases de puestos que se encuentran en desuso)
 Publíquese.
