@@ -15,3 +15,4 @@ Reglamento General de Procesos Electorales de la Universidad Técnica Nacional
 | --- | --- | --- |
 | 1 | 2011-03-21 | la propia norma |
 | 2 | 2016-01-28 | Reglamento 2 (2016-01-28) |
+| 3 | 2023-03-23 | Reglamento 7 (2023-03-23) |
