@@ -1,1 +1,0 @@
-Artículo 2º—Ámbito de aplicación. Las disposiciones de este Reglamento son de aplicación y acatamiento obligatorio para todos los funcionarios de la Institución, que, por jerarquía, ejecuten funciones decisorias, resolutorias, directivas u operativas en los procesos que ejecuta la administración activa.

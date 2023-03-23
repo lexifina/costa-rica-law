@@ -1,2 +1,0 @@
-Artículo 30.—Resultados de la autoevaluación. La UTCI elaborará un informe sobre los resultados obtenidos en la autoevaluación del SCII a nivel institucional y el SEVRI, el que deberá incluir un análisis de los principales hallazgos, sus conclusiones y las recomendaciones que se consideren pertinentes.
-Dicho documento deberá ser remitido a la CANCI para su análisis y aprobación. Una vez aprobado por la CANCI, el Gerente General o Subgerente General deberá remitir este informe para su aprobación por la Junta Directiva.

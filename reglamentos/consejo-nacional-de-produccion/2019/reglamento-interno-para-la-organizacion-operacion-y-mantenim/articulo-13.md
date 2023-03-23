@@ -1,1 +1,0 @@
-Artículo 13.—Los miembros de la CANCI deberán designar oficialmente un (a) suplente, para que los sustituya cuando por razones de fuerza mayor no puedan asistir a las reuniones convocadas; el cual tendrá voz, voto y quórum, no obstante, las responsabilidades de las decisiones tomadas serán siempre del titular. El suplente no podrá participar más de dos sesiones consecutivas.
