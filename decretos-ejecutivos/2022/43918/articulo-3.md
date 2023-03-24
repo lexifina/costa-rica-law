@@ -1,0 +1,1 @@
+Artículo 3.- Deróguese el Decreto Ejecutivo Nº 41506-MAG-COMEX de fecha 09 de noviembre de 2018, que publicó la Resolución Nº 404-2018 (COMIECO-LXXXTII) de fecha 28 de junio de 2018, de conformidad con lo dispuesto en el numeral 2 de la parte dispositiva de la Resolución Nº 460-2022 (COMIECO-C) de fecha 29 de junio de 2022.

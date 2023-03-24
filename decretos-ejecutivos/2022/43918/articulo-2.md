@@ -1,0 +1,1 @@
+Artículo 2.- Modifíquese el Decreto Ejecutivo Nº 38415-COMEX-MAG de fecha 28 de febrero de 2014, que publicó la Resolución Nº 338-2014 (COMIECO-EX) del l 7 de enero de 2014, de conformidad con lo dispuesto en el numeral 1 de la parte dispositiva de la Resolución Nº 460-2022 (COMIECO-C) de fecha 29 de junio de 2022.
