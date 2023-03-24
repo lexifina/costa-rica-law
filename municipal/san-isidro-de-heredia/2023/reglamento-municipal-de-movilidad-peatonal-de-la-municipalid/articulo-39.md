@@ -1,0 +1,1 @@
+Artículo 39.-Exclusión para el cálculo. En el cálculo de esta tasa no deberá incluirse el monto invertido por la institución en construcción de obra nueva de acera cuando resulte viable el cobro del costo efectivo de la obra a los propietarios o poseedores de bienes inmuebles de conformidad con el artículo 83 bis del Código Municipal.

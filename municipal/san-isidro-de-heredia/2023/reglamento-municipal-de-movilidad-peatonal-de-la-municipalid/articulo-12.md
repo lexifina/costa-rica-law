@@ -1,0 +1,3 @@
+Sección II
+Planificación de la intervención municipal
+Artículo 12.-Plan cantonal de movilidad sostenible. La corporación municipal, por medio de la Junta Vial Cantonal y con apoyo de la Unidad Técnica de Gestión Vial Municipal, deberá diseñar y aprobar el plan de movilidad sostenible del cantón incorporándolo al Plan Vial Quinquenal de Conservación y Desarrollo. Durante el periodo que se diseña o actualiza el instrumento de planificación de movilidad sostenible, la Junta Vial Cantonal realizará la priorización con base en la tabla de la norma INTE W85 y el artículo 9 de la Ley de Movilidad N° 9976.

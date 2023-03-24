@@ -1,0 +1,1 @@
+Artículo 41.-Vigencia de la tarifa. La tarifa derivada de la prestación de este servicio entrará en vigencia treinta días después de la publicación en el Diario Oficial La Gaceta, una vez superado el trámite de audiencia dispuesto por la Municipalidad para el resto de tasas municipales.

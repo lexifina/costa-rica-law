@@ -1,0 +1,1 @@
+Artículo 44.-Compromisos entre terceros. No podrá invocarse contra la Administración ninguna cláusula suscrita entre privados que exima a la persona propietaria o poseedora del pago de las obras previstas. No obstante, cualquier persona tercera podrá pagar por la persona deudora mediante la figura de la subrogación.
