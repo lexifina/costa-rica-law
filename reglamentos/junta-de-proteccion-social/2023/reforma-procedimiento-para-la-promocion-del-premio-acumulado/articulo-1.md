@@ -1,0 +1,6 @@
+JUNTA DE PROTECCIÓN SOCIAL
+La Junta de Protección Social informa la ampliación de los siguientes artículos correspondientes al "Procedimiento para la Promoción del "Premio Acumulado" y de "Premios Extras" con los sorteos de Lotería Nacional y Lotería Popular para el año 2021", leyéndose de la siguiente forma:
+Artículo 2: Definiciones
+Premio Acumulado: Consiste en dinero en efectivo que como premio acumulado se sorteará en cada sorteo de Lotería Nacional y Lotería Popular. Ese premio iniciará con un monto inicial de ¢100.000.000,00 (cien millones de colones con cero céntimos) y que acumula inicialmente un monto de ¢20.000.000,00 (veinte millones de colones con cero céntimos) por cada sorteo de Lotería Popular y Lotería Nacional en que este premio no sea acertado. La Junta Directiva se reserva la facultad de aprobar aumentos extraordinarios al monto del Premio Acumulado.
+Artículo 4: Detalle de los premios
+La Junta Directiva se reserva la facultad de aprobar aumentos extraordinarios al monto del Premio Acumulado, con el objetivo de incentivar las ventas en momentos estratégicos, siempre y cuando se cuente con los criterios técnicos y financieros que fundamenten tal decisión. Dichos aumentos y su fecha de vigencia, serán comunicados al público a través de publicación en el Diario Oficial La Gaceta.
