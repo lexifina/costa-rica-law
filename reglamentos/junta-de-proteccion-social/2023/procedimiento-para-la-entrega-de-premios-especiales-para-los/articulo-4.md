@@ -1,0 +1,2 @@
+Artículo 4°- Detalle de los premios
+Entre todas las personas mayores de 18 años, sea nacional o extranjero, que completen al menos un coleccionable y hasta un máximo de 15 coleccionables para cada sorteo de esta promoción a partir del viernes 24 de marzo del 2023, se otorgarán en total (entre todos los sorteos de la promoción) 300 premios de ¢1.000.000,00 (un millón de colones con cero céntimos), 300 premios de ¢750.000,00 (setecientos cincuenta mil colones con cero céntimos) y 300 premios de ¢500.000,00 (quinientos mil colones con cero céntimos)
