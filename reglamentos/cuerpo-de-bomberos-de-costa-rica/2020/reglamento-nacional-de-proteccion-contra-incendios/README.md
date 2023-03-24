@@ -14,3 +14,4 @@ Reglamento nacional de protección contra incendios
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-11-20 | la propia norma |
+| 2 | 2023-03-24 | Reglamento 214 (2023-03-24) |
