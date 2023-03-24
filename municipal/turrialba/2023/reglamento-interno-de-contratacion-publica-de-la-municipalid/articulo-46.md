@@ -1,0 +1,1 @@
+Artículo 46. Asignación de roles del sistema digital unificado de compras. El titular de la Alcaldía instruirá a la Proveeduría Institucional sobre la forma en que se realizará la asignación de roles del sistema unificado de compras.

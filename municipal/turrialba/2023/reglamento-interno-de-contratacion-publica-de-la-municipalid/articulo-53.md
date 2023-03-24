@@ -1,0 +1,1 @@
+Artículo 53. Plazo máximo para iniciar de procedimientos de contratación. La fecha límite para iniciar los procedimientos de contratación de bienes, servicios y obra pública por parte de las unidades solicitantes es el quince de noviembre de cada año, excepto los casos fortuitos o por desastres naturales.

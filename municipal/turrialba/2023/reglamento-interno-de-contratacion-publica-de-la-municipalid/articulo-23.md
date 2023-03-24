@@ -1,0 +1,2 @@
+Capítulo VII. Comisión de Recomendación.
+Artículo 23. Conformación. La comisión de recomendación de la Municipalidad de Turrialba estará conformada por el encargado de Proveeduría, el encargado del Área Legal, el encargado de Planificación, el coordinador de Hacienda Municipal, el encargado de la unidad solicitante o el titular subordinado competente o debidamente facultado mediante delegación formal y por el Regidor Municipal, quien tendrá voz, pero no voto dentro de ésta comisión.

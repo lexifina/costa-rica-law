@@ -1,0 +1,1 @@
+Artículo 52. Plazo máximo para comprometer recursos presupuestarios. La fecha límite para asumir compromisos presupuestarios derivados de contrataciones con entrega según demanda por parte de las unidades solicitantes es el quince de diciembre de cada año, excepto los casos fortuitos o por desastres naturales.

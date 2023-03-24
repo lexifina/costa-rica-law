@@ -1,0 +1,1 @@
+Artículo 45. Directrices. El titular de la Alcaldía podrá emitir las directrices administrativas que sean necesarias para establecer, así como detallar, de manera ordenada, sistemática, integral y procedimental las actividades y responsabilidades relacionadas a la aplicación del presente reglamento.

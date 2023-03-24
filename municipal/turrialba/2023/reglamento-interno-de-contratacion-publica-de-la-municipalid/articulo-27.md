@@ -1,0 +1,1 @@
+Artículo 27. Actas y presidencia. La comisión será presidida por el encargado de la Proveeduría, quien será la responsable de la elaboración de las actas y la notificación de los acuerdos. La apertura de actas se gestionará con la Auditoría Interna. La custodia de las actas será responsabilidad de la Proveeduría institucional.
