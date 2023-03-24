@@ -1,4 +1,4 @@
-Artículo 6º—Además de las atribuciones que la Ley Nº 9036 le confiere al Presidente, éste tendrá las siguientes obligaciones:
+Artículo 6º-Además de las atribuciones que la Ley Nº 9036 le confiere al Presidente, éste tendrá las siguientes obligaciones:
 a) Presidir, abrir, suspender y cerrar las sesiones de la Junta Directiva.
 b) Velar porque la Junta cumpla las leyes y reglamentos relativos a su función.
 c) Fijar directrices generales e impartir instrucciones en cuanto a los aspectos de forma de las labores de la Junta.
@@ -15,5 +15,6 @@ m)Conceder licencia a los Directores para dejar de asistir a las sesiones, sin q
 n) Llamar al orden al Director que, al usar la palabra, no se concrete al tema que es objeto de discusión o haga alusiones injuriosas contra un compañero, contra cualquier otro funcionario público, o persona privada, y en general que de cualquier otro modo falte al respeto a la Junta Directiva. Si el Director insiste en su actitud irregular, se le suspenderá el uso de la palabra.
 o) Sin perjuicio de que la Junta Directiva tome acuerdo en sentido diferente, determinar donde y cuando se llevarán a cabo las sesiones extraordinarias, fijando los procedimientos que considere necesarios para tal efecto, sin que estos se le antepongan o sean contrarios a las disposiciones de este Reglamento.
 p) Determinar si existen causa de inhibición o recusación de los Directores para determinado asunto.
-q) Firmar, en conjunto con el Secretario, las actas de cada sesión.
+q) Firmar las actas de cada sesión.
+(Así reformado el inciso anterior y publicado en La Gaceta N° 55 del 24 de marzo de 2023)
 r) Las demás que le asignen las leyes.

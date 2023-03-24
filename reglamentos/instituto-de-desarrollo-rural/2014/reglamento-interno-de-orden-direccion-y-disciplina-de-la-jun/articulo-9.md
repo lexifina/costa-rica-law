@@ -1,7 +1,8 @@
-Artículo 9º—Son deberes y atribuciones del Secretario:
+Artículo 9º-Son deberes y atribuciones del Secretario:
 a) Preparar el borrador del orden del día de las sesiones, según las disposiciones de este Reglamento, transcribir las actas de la Junta Directiva y tomar nota de las observaciones, si hay acuerdo en este sentido. Verificar que en el texto aprobado se incluyan las correcciones antes de ser transcritas al libro respectivo y que las mismas sean fieles y exactas a lo aprobado.
 b) Custodiar y mantener debidamente actualizado el Libro de Actas.
-c) Levantar el acta de cada sesión, de tal forma que la correspondiente a la última de ellas, deberá ser puesta en conocimiento de cada Director, antes de la sesión siguiente d) Firmar conjuntamente con el Presidente las actas aprobadas y transcritas en el correspondiente Libro, dando fe que esa trascripción contiene todas las correcciones realizadas por los Directores al momento de aprobarla
+c) Levantar el acta de cada sesión, de tal forma que la correspondiente a la última de ellas, deberá ser puesta en conocimiento de cada Director, antes de la sesión siguiente
+d) (Derogado y publicado en La Gaceta N° 55 del 24 de marzo de 2023)
 e) Informar a la Junta de la correspondencia oficial, de las peticiones y proposiciones dirigidas a ésta.
 f) Hacer numerar por orden de presentación, todos los asuntos que se sometan a consideración de la Junta Directiva y tramitar cada uno de ellos en expediente separado.
 g) Asistir puntualmente a las sesiones ordinarias y extraordinarias de la Junta Directiva
