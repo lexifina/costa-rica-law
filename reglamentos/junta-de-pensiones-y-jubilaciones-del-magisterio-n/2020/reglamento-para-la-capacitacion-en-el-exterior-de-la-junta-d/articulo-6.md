@@ -1,1 +1,2 @@
-Artículo 6º—Gestión de otras invitaciones. Las invitaciones que se reciban con carácter no académico se someten a conocimiento de la Junta Directiva por parte de la Presidencia o la Dirección Ejecutiva, a fin de que se brinde la resolución final respectiva.
+Artículo 6 Gestión de otras invitaciones
+Las invitaciones que se reciban con carácter social político y no académico se someten a conocimiento de la Junta Directiva por parte de la Presidencia o la Dirección Ejecutiva, a fin de que se brinde la resolución final respectiva.

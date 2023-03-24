@@ -14,3 +14,4 @@ Reglamento para la capacitación en el exterior de la Junta de Pensiones y Jubil
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-01-18 | la propia norma |
+| 2 | 2023-03-24 | Reglamento 25 (2023-03-24) |
