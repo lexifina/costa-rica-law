@@ -1,0 +1,11 @@
+Artículo 19. En el ejercicio de sus funciones y atribuciones, los Consejos deberán ajustarse a los objetivos, principios y propósitos establecidos en los Protocolos de Tegucigalpa y de Guatemala y, en especial, a los siguientes principios básicos, los cuales deberán entenderse así:
+a. Legalidad: El proceso de Integración Económica deberá fundamentarse estrictamente en su ordenamiento jurídico.
+b. Consenso: Las decisiones del avance del proceso de Integración Económica deben adoptarse, por regla general, con la concurrencia de los miembros de los órganos respectivos, para que sean democráticas; ello no impide que dos o más países puedan acelerar sus compromisos de integración. Estas decisiones sólo obligan a quienes las aprueben, ya sea expresa o tácitamente.
+c. Gradualidad: Por gradualidad se entiende la facultad que tienen los Estados Miembros de avanzar en el proceso de integración económica de acuerdo a su propia dinámica y condiciones internas.
+d. Flexibilidad: Los compromisos que se asuman deben ser aplicables a todos los Estados Miembros, sin perjuicio de excepciones calificadas por consenso.
+e. Transparencia: Todos los sectores vinculados con la toma de decisiones en materia de integración económica deben estar plenamente informados, y las decisiones deben ser ampliamente divulgadas.
+f. Reciprocidad: Todos los Estados Miembros participan en igualdad de condiciones en los costos y beneficios del proceso de integración. Sin perjuicio de ello, los países e instituciones regionales deben apoyar a los menos desarrollados con el objeto de cerrar, o al menos atenuar, las brechas de desarrollo existentes entre los mismos.
+g. Solidaridad: Los países deben apoyarse entre sí para atenuar las brechas de desarrollo existentes en la región.
+h. Globalidad: La integración incluirá todas las áreas y sectores relacionados con el desarrollo económico de los Estados Miembros.
+i. Simultaneidad: Es la factibilidad de que en el proceso de integración puedan realizarse acciones diferentes al mismo tiempo y no necesariamente en forma secuencial.
+j. Complementariedad: Es transitar por los diferentes estadios de la integración tomando en cuenta las diferentes características y niveles de desarrollo socioeconómico de los países.

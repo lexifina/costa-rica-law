@@ -1,0 +1,3 @@
+Artículo 57. las actas preliminares de las reuniones de los Consejos, se circularán a la brevedad posible a los Estados Parte para que sean revisadas por ellos y emitan las observaciones que consideren pertinentes durante un plazo de treinta (30) días. Al final del plazo adquirirán el carácter de definitivas, con la consecuente certificación del (de la) Secretario (a) General de la SIECA.
+Asimismo, se podrán certificar otros documentos qt:1e consten en sus registros.
+Durante la reunión, la SIECA deberá elaborar la propuesta de acuerdos, los que serán leídos y aprobados por el Consejo antes que finalice la reunión.

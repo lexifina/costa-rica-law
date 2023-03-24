@@ -1,0 +1,3 @@
+Artículo 3. El COMIECO está conformado por el (la) Ministro (a) que en cada Estado Parte tenga bajo su competencia los asuntos de la integración económica y tendrá a su cargo la coordinación, armonización, convergencia o unificación de las políticas económicas de los países.
+El COMIECO, constituido de conformidad con el párrafo anterior, subroga en sus funciones al Consejo Arancelario y Aduanero Centroamericano y a todos los demás órganos creados en los instrumentos precedentes al Protocolo de Guatemala, en materia de integración económica de conformidad con el artículo 38, numeral 2 del Protocolo de Guatemala.
+Se podrá acreditar, en lugar de un (una) Ministro(a), a un (una) Viceministro(a) del mismo ramo.

@@ -1,0 +1,1 @@
+Artículo 13. La Reunión de Directores de Integración Económica será el foro técnico de asesoría y propuesta en materia de comercio intrarregional. Para el efecto, celebrará, por lo menos, seis reuniones al año.

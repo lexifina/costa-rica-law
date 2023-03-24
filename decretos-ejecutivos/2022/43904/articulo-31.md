@@ -1,0 +1,7 @@
+Artículo 31. La agenda de cada reunión del Consejo, así como cualquier tema suplementario que se proponga, será sometido a consideración del mismo al inicio de cada reunión, para su aprobación y/o modificación.
+En el transcurso de la reunión, el Consejo podrá modificar, incorporar o eliminar los ternas de la agenda aprobada, excepto aquellos que esté obligado a conocer por disposición de los instrumentos de la Integración Económica. Solo podrán incorporarse nuevos temas si el Consejo decide que puede discutirlos sin tener que analizar documentos de justificación que debió recibir con la anticipación indicada en el artículo anterior o cuando se trate de un asunto informativo, que no implique la adopción de una decisión durante la reunión.
+La agenda de las reuniones debería comprender, entre otros:
+a. La evaluación del estado de los acuerdos suscritos en las reuniones anteriores, pendientes de cumplimiento.
+b. Los temas fundamentales y estratégicos de la integración económica centroamericana.
+c. Los temas ordinarios tales como aprobación de actos administrativos, solicitudes de otros órganos o instituciones del Subsistema, cortesías de sala, etc.
+En relación con las cortesías de sala, para incluirlas en la agenda, deben haber sido solicitadas con tres semanas de anticipación, en la medida de lo posible, e incluir los temas que se abordarán en la reunión. Las cortesías de sala tendrán una duración máxima de treinta (30) minutos.

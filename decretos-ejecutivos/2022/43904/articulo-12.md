@@ -1,0 +1,1 @@
+Artículo 12. Los asuntos conocidos por cualquier foro del Subsistema Económico, que no haya sido resuelto en varias reuniones consecutivas, deberán elevarse para conocimiento del foro superior inmediato. En cualquier momento, el foro superior podrá solicitar conocer el asunto que no ha alcanzado consenso en el foro inferior.

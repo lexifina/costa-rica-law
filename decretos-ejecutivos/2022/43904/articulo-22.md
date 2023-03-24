@@ -1,0 +1,1 @@
+Artículo 22. Para efectos de su funcionamiento, la Reunión de Viceministros de Integración Económica podrá conformarse por representantes suplentes que deleguen y acrediten formalmente los Estados Parte, a través de la SIECA, de forma previa a cada reunión.

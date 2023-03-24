@@ -1,0 +1,3 @@
+Artículo 59. La SIECA llevará un registro oficial de las actas y decisiones de los Consejos del Subsistema de Integración Económica, el cual estará a disposición de los miembros de este y será archivado en la SIECA bajo la custodia y responsabilidad del (de la) Secretario (a) General.
+En la página web de la SIECA debe abrirse un espacio en donde se encuentren los actos administrativos y Fe de Erratas, adoptados por los órganos del Subsistema Económico.
+Las actas, informes, ayudas de memoria o cualquier documento para el registro de reuniones de los órganos y foros del Subsistema Económico, serán de conocimiento y uso exclusivo de sus miembros, salvo disposición en contrario.

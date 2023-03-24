@@ -1,0 +1,1 @@
+Artículo 34. Las reuniones del Consejo serán abiertas en cuanto a la presencia de todas las delegaciones acreditadas, salvo cuando por la naturaleza de los temas a tratar el mismo Consejo decida celebrarlas de manera restringida.

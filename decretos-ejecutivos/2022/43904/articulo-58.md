@@ -1,0 +1,1 @@
+Artículo 58. Cualquier Estado Parte podrá pedir revisión de las decisiones del Consejo, la cual se discutirá y decidirá en la reunión siguiente en la que se hubieren adoptado. De ser declarada con lugar la revisión, la decisión de que se trate quedará modificada como corresponda, sin embargo, los efectos que hubiere producido quedarán totalmente firmes y convalidados.

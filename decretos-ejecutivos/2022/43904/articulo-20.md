@@ -1,0 +1,4 @@
+Artículo 20. El COMIECO elevará a conocimiento de la Reunión de Presidentes, las propuestas de políticas y estrategias sobre las materias de su competencia que requieran de decisión del órgano supremo del SICA.
+Para efecto del plazo, formulación y presentación de las propuestas de mandatos a la Reunión de Presidentes, así como la elaboración de la ficha técnica para la elaboración de los mandatos de la Reunión de Presidentes, deberá sujetarse a la normativa aplicable.
+Las propuestas de los mandatos a la Reunión de Presidentes, deberán ser presentadas con al menos treinta (30) días de anticipación a la celebración de la misma.
+Los Consejos, a través de la SIECA, informarán semestralmente de sus actividades a la Reunión de Presidentes, a cuyo efecto la SIECA deberá mantener estrecha relación de coordinación con la SGSICA y con las demás secretarías específicas del Subsistema Económico.

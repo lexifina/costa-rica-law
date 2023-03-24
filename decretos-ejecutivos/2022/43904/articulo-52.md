@@ -1,0 +1,1 @@
+Artículo 52. Todos los miembros asesores de las respectivas delegaciones podrán asistir a las sesiones del Consejo, pero no tendrán derecho a voz y a voto en las mismas, a menos que a petición expresa del (la) Jefe (a) de Delegación correspondiente sean autorizados para ello por el (la) Presidente (a).

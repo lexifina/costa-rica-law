@@ -1,0 +1,2 @@
+Artículo 29. Las reuniones de los Consejos lntersectorial y Sectorial de Ministros de Integración Económica y de las entidades a que se refiere el artículo 7 de este Reglamento se celebrarán en cualquier tiempo, para cumplir con los objetivos y propósitos del Subsistema de Integración Económica.
+Las reuniones del Consejo lntersectorial y de las entidades que se mencionan en este artículo, procurarán realizarse por lo menos una vez al año, con el propósito de alcanzar los objetivos previstos en el Subsistema Económico.

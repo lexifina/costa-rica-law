@@ -1,0 +1,2 @@
+Artículo 10. El presente Reglamento se aplicará e interpretará de conformidad con los propósitos, objetivos, principios y enunciados básicos del Tratado Genera I de Integración Económica Centroamericana y su Protocolo de Guatemala, el Protocolo de Tegucigalpa y los que apruebe el COMIECO.
+Las disposiciones interpretativas que apruebe la Corte Centroamericana de Justicia serán consideradas como precedentes y podrán invocarse como fuente de Derecho.

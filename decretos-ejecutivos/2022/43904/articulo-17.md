@@ -1,0 +1,1 @@
+Artículo 17. Corresponde a cada Consejo Sectorial de Ministros dar tratamiento a los ternas específicos que les atañe, de conformidad a su competencia, con el objeto de coordinar y armonizar sectorialmente su accionar nacional y tornarlo compatible y convergente con los propósitos, decisiones, objetivos y políticas del proceso de Integración Económica.

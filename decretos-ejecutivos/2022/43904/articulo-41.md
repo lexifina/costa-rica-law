@@ -1,0 +1,1 @@
+Artículo 41. El (La) Secretario(a) General de la SIECA o quien haga sus veces, deberá certificar los actos administrativos adoptados por el Consejo. En los casos que la decisión se haya adoptado en una reunión virtual, se deberá certificar la decisión, haciendo constar que la misma se adoptó bajo esa modalidad.

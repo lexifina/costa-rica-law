@@ -1,0 +1,1 @@
+Artículo 53. El (La) Secretario (a) General de la SIECA, o la persona que haga sus veces, deberá estar presente en todas las reuniones del Consejo y solo tendrá derecho a voz,. pero no a voto, así como a capacidad de propuesta sobre los asuntos sometidos a conocimiento del Consejo.

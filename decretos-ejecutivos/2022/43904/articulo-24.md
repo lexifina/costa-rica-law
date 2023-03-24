@@ -1,0 +1,1 @@
+Artículo 24. Los (Las) Viceministros(as) de Integración Económica realizarán, por lo menos, cuatro reuniones ordinarias al año. Las reuniones serán posteriores a las reuniones de Directores de Integración Económica.

@@ -1,0 +1,1 @@
+Artículo 38. En las reuniones del Consejo y en las reuniones de entidades a que se refiere el artículo 7 de este Reglamento, la posición de cada Estado Parte será expresada por el respectivo jefe de delegación o la persona que él designe.

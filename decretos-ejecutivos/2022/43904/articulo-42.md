@@ -1,0 +1,1 @@
+Artículo 42. Por consenso de los Estados Parte, la SIECA podrá emitir una Fe de Erratas para los actos administrativos que lo requieran, cuando se deban corregir errores materiales, tales como: errores de impresión o imagen, ortográficos, gramaticales, mecanográficos o similares.

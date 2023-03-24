@@ -1,0 +1,1 @@
+Artículo 46. Ningún miembro del Consejo podrá hacer uso de la palabra sin previa autorización del (la) Presidente (a), quien la otorgará en la forma prevista en la literal e) del artículo 37 de este Reglamento.

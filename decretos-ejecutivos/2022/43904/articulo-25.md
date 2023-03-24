@@ -1,0 +1,1 @@
+Artículo 25. Con respecto al quórum, toma decisiones y registro de la Reunión de Vice ministros de Integración Económica, será aplicable lo establecido en los artículos 43, 44, 45, 56, 57, 58 y 59 del presente Reglamento.

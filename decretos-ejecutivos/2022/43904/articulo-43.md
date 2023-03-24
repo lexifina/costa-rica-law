@@ -1,0 +1,3 @@
+Artículo 43. El quórum de las reuniones del Consejo se constituye con la presencia de la mayoría de representantes de todos los países miembros.
+Si la reunión del Consejo no pudiera celebrarse en la fecha señalada en la primera convocatoria, por falta de quórum, podrá tener lugar en la fecha que determine una segunda convocatoria con la presencia de la mayoría de sus miembros, cuya agenda debe incluir los puntos de la agenda anterior.
+Si en la agenda figurara un asunto que atañe única y exclusivamente a un Estado determinado, tal tema no podrá ser tratado sin la presencia del Estado Parte interesado, sin perjuicio de que se conozcan los demás temas de la agenda.

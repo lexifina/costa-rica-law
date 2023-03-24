@@ -1,0 +1,2 @@
+Artículo 28. Son reuniones presenciales, las que se llevan a cabo en una sede, con la presencia física de los {las) Ministros{as) que integran el Consejo o del {de la) Viceministro{a) en su caso, debidamente facultado(a).
+Son reuniones virtuales las que se realicen sin la presencia física de uno o más miembros del Consejo, mediante el uso de medios tecnológicos de comunicación, tales como, sistema de videoconferencia, tefeconferencias, o cualquier otro medio o dispositivo tecnológico que permita la comunicación entre los participantes.

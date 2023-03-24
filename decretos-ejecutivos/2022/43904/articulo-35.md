@@ -1,0 +1,1 @@
+Artículo 35. En las reuniones del Consejo podrán participar como observadores los Estados Parte del SICA que no son parte del Subsistema Económico. La participación de los observadores será por invitación del Consejo o cuando habiendo solicitado su participación, a través de la SIECA, haya sido aceptada su solicitud por el Consejo. El observador, únicamente tendrá derecho a voz.

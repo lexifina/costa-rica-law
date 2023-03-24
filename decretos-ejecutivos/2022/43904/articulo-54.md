@@ -1,0 +1,1 @@
+Artículo 54. Ninguna sesión del Consejo tendrá validez si no es presidida por quien corresponda, y si a ella no asiste el (la) Secretario (a) General de la SIECA o quien éste delegue, a quien compete dar fe de lo actuado mediante el faccionamiento, certificación y firma de las actas del Consejo.

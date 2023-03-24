@@ -1,0 +1,1 @@
+Artículo 51. Cerrada la discusión y mientras la decisión no haya sido adoptada, no se podrá otorgar la palabra, a no ser que sea para plantear una moción de orden acerca de la forma en que se está resolviendo el asunto, o para pedir que la decisión sea adoptada en reunión restringida.
