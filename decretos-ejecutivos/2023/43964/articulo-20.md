@@ -1,0 +1,1 @@
+Artículo 20.- Deber de informar a terceros interesados en repatriar a un costarricense. La Unidad de Repatriaciones, será responsable de informar en forma presencial o por medio de la página web del Ministerio de Justicia a terceros, sobre el procedimiento para repatriar a un costarricense cumpliendo condena en un país extranjero.

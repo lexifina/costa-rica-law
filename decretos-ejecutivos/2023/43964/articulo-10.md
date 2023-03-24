@@ -1,0 +1,1 @@
+Artículo 10.- Principio de Inserción y Atención de Calidad. La Unidad de Repatriaciones de la Dirección General de Adaptación Social tomará las medidas necesarias para promover la aplicación de los convenios suscritos por nuestra nación de manera que se facilite a la persona privada de libertad su integración a su país de origen, familia, educación y trabajo.

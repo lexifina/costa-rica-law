@@ -1,0 +1,1 @@
+Artículo 9.- Principio de Irretroactividad de las Normas. La modificación de las normas en esta materia no podrá ser aplicada retroactivamente, salvo en lo que resulte más favorable para la persona privada de libertad.

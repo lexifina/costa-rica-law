@@ -1,0 +1,2 @@
+Artículo 11.- Principio de Potestad Exclusiva de la Administración Penitenciaria. Es potestad exclusiva de la administración penitenciaria la valoración, análisis, resolución y ejecución de todo lo concerniente a la aplicación de convenios internacionales suscritos por Costa Rica para el traslado de personas condenadas.
+Lo anterior, sin perjuicio de la tutela jurisdiccional correspondiente, supervisión externa que realizan instituciones como la Defensoría de los Habitantes de la República o el Mecanismo Nacional de Prevención de la Tortura.

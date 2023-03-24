@@ -1,0 +1,3 @@
+CAPITULO II
+Resolución Inicial y Final
+Artículo 25.- Resolución preliminar de la Dirección General. Cuando se cuente con la información requerida, la Dirección General de Adaptación Social por medio de la Unidad de Repatriaciones, dictará una resolución preliminar, acordando o denegando la solicitud y la comunicará al interesado y a la Representación Diplomática o Consular del Estado Administrante. Cuando la resolución preliminar apruebe el traslado, se deberá enviar vía consular el expediente con los estudios criminológicos, la sentencia debidamente legalizada y apostillada, así como la manifestación de voluntad de traslado del interesado.

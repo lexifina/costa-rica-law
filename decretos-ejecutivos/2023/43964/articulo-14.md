@@ -1,0 +1,2 @@
+Artículo 14.- Principio de Idoneidad del Personal Penitenciario. La administración penitenciaria por medio de la Unidad de Repatriaciones de la Dirección General de Adaptación Social, bajo criterios rigurosos de idoneidad, escogerá al personal profesional, técnico y de la Policía Penitenciaria que deba participar en los procesos de repatriación de las personas privadas de libertad.
+Será la Unidad de Repatriaciones, la encargada de brindar la inducción a estos sobre los procesos de traslados y los procedimientos para la tramitación de las solicitudes de repatriación.

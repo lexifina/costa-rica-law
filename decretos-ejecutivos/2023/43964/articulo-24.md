@@ -1,0 +1,6 @@
+Artículo 24.- Información adicional. Luego de completados los requisitos de la petición señalados en el artículo 22 de este Reglamento, la Unidad de Repatriaciones deberá recolectar información adicional, para lo cual efectuarán diversas solicitudes a las siguientes autoridades:
+a) A la autoridad sentenciadora, el auto de liquidación o modificación de la pena y copia de la sentencia impuesta.
+b) A la Dirección General de Migración y Extranjería sobre el estatus migratorio de la persona condenada y sobre si existen impedimentos de salida del país.
+c) A la Unidad Administrativa del Ministerio Público, certificación sobre la existencia de otros procesos penales activos en contra de la persona solicitante, si los hubiere.
+d) A la Dirección del centro penitenciario u oficina que brinda seguimiento donde se encuentre ubicado el solicitante, un informe criminológico que contenga: estudio social, médico, psicológico, jurídico, laboral, educativo y de comportamiento durante el lapso que ha permanecido recluido a las órdenes de la Dirección General de Adaptación Social en razón del proceso en el que fue condenado.
+e) A la representación diplomática del Estado Administrante constancia ele nacionalidad del solicitante.

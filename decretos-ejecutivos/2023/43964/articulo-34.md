@@ -1,0 +1,1 @@
+Artículo 34.- Informe de ingreso y ubicación por parte de Estado Administrante. Las autoridades competentes del Estado Administrante deberán informar al Estado Sentenciante, del ingreso y ubicación del repatriado en el establecimiento carcelario asignado, una vez ejecutada la repatriación.

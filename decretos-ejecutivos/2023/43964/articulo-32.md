@@ -1,0 +1,1 @@
+Artículo 32.- Formas diferentes de asumir gastos. Sin perjuicio de lo dispuesto en los artículos 30 y 31 anteriores, el país administrante y el país sentenciante, de mutuo acuerdo podrán establecer formas diferentes de asumir los gastos de repatriación de la persona condenada.

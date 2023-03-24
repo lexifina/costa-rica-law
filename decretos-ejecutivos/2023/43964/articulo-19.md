@@ -1,0 +1,1 @@
+Artículo 19.- Deber de informar del derecho de traslado. Los abogados que trabajan para el sistema penitenciario, deberán informar por escrito a las personas extranjeras que descuentan una condena impuesta en Costa Rica, sobre el derecho a ser trasladadas hacia su país de origen.
