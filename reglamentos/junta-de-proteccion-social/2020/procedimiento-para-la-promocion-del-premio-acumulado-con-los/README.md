@@ -15,3 +15,4 @@ Procedimiento para la promoción del “Premio Acumulado” con los sorteos de L
 | --- | --- | --- |
 | 1 | 2020-10-07 | la propia norma |
 | 2 | 2021-11-03 | Reglamento 0 (2021-11-03) |
+| 3 | 2023-03-24 | Reglamento 0 (2023-03-24) |

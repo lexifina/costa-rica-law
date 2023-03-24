@@ -1,3 +1,2 @@
-Artículo 4: Detalle de los premios
-La promoción iniciará con un premio acumulado de ¢100.000.000,00 (cien millones de colones con cero céntimos). Si no es acertado, este premio acumulará, en los primeros 10 sorteos, ¢20.000.000,00 (veinte millones de colones con cero céntimos) en cada sorteo de Lotería Popular y Lotería Nacional que se realice.
-En caso de que el premio continué sin ser acertado, a partir del sorteo número 11, contado desde el inicio de la promoción, los sorteos acumularán ¢30.000.000,00 (treinta millones de colones con cero céntimos) por sorteo.
+Artículo 4: La Junta Directiva se reserva la facultad de aprobar aumentos extraordinarios al monto del Premio Acumulado, con el objetivo de incentivar las ventas en momentos estratégicos, siempre y cuando se cuente con los criterios técnicos y financieros que fundamenten tal decisión. Dichos aumentos y su fecha de vigencia, serán comunicados al público a través de publicación en el Diario Oficial La Gaceta.
+(Así reformado y publicado en el Alcance Digital N° 52 a La Gaceta N° 55 del 24 de marzo del 2023)
