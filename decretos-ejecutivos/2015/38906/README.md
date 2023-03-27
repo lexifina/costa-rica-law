@@ -15,3 +15,4 @@ Reglamento a la Ley Nº 9274, “Reforma Integral de la Ley Nº 8634, Ley del Si
 | --- | --- | --- |
 | 1 | 2015-03-09 | la propia norma |
 | 2 | 2021-08-03 | Decreto Ejecutivo 43156 (2021-08-03) |
+| 3 | 2023-03-27 | Decreto Ejecutivo 43980 (2023-03-27) |
