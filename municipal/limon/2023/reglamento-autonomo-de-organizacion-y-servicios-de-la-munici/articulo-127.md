@@ -1,0 +1,1 @@
+Artículo 127.- Cuando el servidor(a) desempeñe labores técnicas o profesionales que dificulten su reemplazo, podrá la Municipalidad acumularle las vacaciones por un período. Es obligación de todo (a) responsable de dependencias de la Municipalidad, el no permitir que se acumulen más de dos períodos de vacaciones.

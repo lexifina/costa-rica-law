@@ -1,0 +1,6 @@
+Artículo 100.- La Comisión de Asuntos Académicos tendrá las siguientes funciones:
+a) Recomendarle a la Alcaldía Municipal las políticas y directrices que deben adoptarse en materia de capacitación, para que éste, una vez aprobadas, las presente al Concejo Municipal.
+b) Analizar y aprobar el "Plan Anual de Capacitación y Formación".
+c) Analizar y recomendar mediante resolución razonada, la aprobación de los informes que rinda la Unidad de Talento Humano referentes a las solicitudes que presenten los servidores para programas de capacitación.
+d) Procurará la obtención de becas en instituciones de educación superior para funcionarios (as); en el Instituto Nacional de Aprendizaje, en las Universidades, en los Colegios y Escuelas del Ministerio de Educación y en aquellos centros de educación privados, así como en la Oficina de Becas del Ministerio de Relaciones Exteriores.
+e) Recomendará a la Dirección Administrativa, si la beca puede ser financiada por la municipalidad en forma parcial o total; y que tipo de gastos cubre, así como el monto total de la inversión realizada por el municipio e indefectiblemente incluirá, la suscripción del "Contrato de Beca" que dispone, entre otras cosas el triple del plazo de servicio invertido por el municipio, en el funcionario (a) a disposición de la Municipalidad.

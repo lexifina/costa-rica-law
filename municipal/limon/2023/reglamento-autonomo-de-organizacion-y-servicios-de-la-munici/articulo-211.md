@@ -1,0 +1,1 @@
+Artículo 211.- En caso de integración del ordenamiento jurídico por laguna del presente capítulo se aplicaran en forma supletoria las disposiciones de la Ley General de la Administración Pública, del Código de Trabajo, del Código Procesal Civil y demás normas del ordenamiento jurídico administrativo.

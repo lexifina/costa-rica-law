@@ -1,0 +1,1 @@
+Artículo 196.- Las Comisiones de Salud Ocupacional, en coordinación con las Direcciones, Gestores y Encargados (a) de Unidad de cada dependencia de la Municipalidad, podrán realizar acciones de formación humanística, intelectual, estética, deportiva y recreativa que permiten el desarrollo de los servidores municipales.

@@ -1,0 +1,4 @@
+Artículo 133.- Los funcionarios administrativos disfrutarán sin interrupciones del período de vacaciones a que tienen derecho, las que podrán ser fraccionadas con tal propósito mediante acuerdo expreso con el Encargado (a) de la Unidad respectivo, de lo cual se informará a la Unidad de Talento Humano. Cuando el fraccionamiento sume cinco días, así se comunicará mediante los procedimientos correspondientes a dicha Unidad y se copiará de dicho oficio a la Alcaldía Municipal.
+Procede también fraccionamiento en los recesos acordados oficialmente hasta tres oportunidades (Semana Santa, vacaciones de medio período y fin y principio de año), y solo podrá acumularse un período cuando, por la naturaleza de
+las funciones se dificulte el reemplazo del servidor debe realizar una solicitud expresa de acumulación, con el visto bueno
+del jefe inmediato, ante la Unidad de Talento Humano.

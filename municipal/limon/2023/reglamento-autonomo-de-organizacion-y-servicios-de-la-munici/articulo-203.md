@@ -1,0 +1,1 @@
+Artículo 203.- La marca de control de asistencia, sea cual sea el mecanismo que se utilice, debe hacerse personalmente. Cada funcionario y funcionaria es responsable de su marca, por lo que deberá hacerla con cuidado, de manera que quede establecida con claridad su asistencia.

@@ -1,0 +1,1 @@
+Artículo 12.- Corresponde al Alcalde Municipal realizar nombramientos y remoción de los empleados municipales, así mismo, los empleados ocasionales contratados con cargo a las partidas presupuestarias de Servicios Especiales o Jornales Ocasionales, con excepción de los empleados que dependan directamente del Concejo Municipal.

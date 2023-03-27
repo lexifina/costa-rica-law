@@ -1,0 +1,1 @@
+Artículo 148.- Si un puesto fuere reasignado a un categoría inferior, el salario del funcionario (a) administrativo propietario de la plaza se considerará con la condición de derechos adquiridos. Hasta que la plaza se encuentre con la condición de vacante se procederá con la reasignación con la categoría inferior de la categoría de la clase.

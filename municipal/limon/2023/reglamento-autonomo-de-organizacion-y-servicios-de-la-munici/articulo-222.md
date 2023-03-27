@@ -1,0 +1,1 @@
+Artículo 222.- Se reconoce que mientras los asuntos se encuentran en conocimiento de la Junta de Relaciones Laborales; los plazos de prescripción que disponen el ordenamiento jurídico laboral se tendrán por suspendidos.

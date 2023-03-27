@@ -1,0 +1,1 @@
+Artículo 229.- Las ausencias al trabajo por enfermedad deberán ser justificadas dentro del tercer día por la persona interesada. La justificación se debe hacer mediante certificado médico extendido o validado por la Caja Costarricense de Seguro Social (CCSS) o por el Instituto Nacional de Seguros (INS).

@@ -1,0 +1,1 @@
+Artículo 103.- En cualquier caso, los permisos deberán concederse sin que se afecte el buen servicio público y siempre que las condiciones, tanto de la dependencia a la que pertenece el servidor como las de la Municipalidad, lo permitan.

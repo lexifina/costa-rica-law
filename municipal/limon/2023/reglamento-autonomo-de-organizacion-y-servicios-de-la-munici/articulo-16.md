@@ -1,0 +1,1 @@
+Artículo 16.- La Unidad de Talento Humano de la Municipalidad será responsable de elaborar y custodiar el expediente personal de cada uno de los funcionarios (as), y de mantener al día los archivos de los documentos pertinentes que estos y estas aportan, así como de preservar su confidencialidad.

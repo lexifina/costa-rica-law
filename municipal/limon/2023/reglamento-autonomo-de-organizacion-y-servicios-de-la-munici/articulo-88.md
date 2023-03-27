@@ -1,0 +1,1 @@
+Artículo 88.- La Municipalidad en el marco de sus competencias emitirá Políticas Públicas Locales de inserción de las personas con capacidades diferentes, en el mercado laboral, de conformidad con lo preceptuado en la Ley Nº. 7600.

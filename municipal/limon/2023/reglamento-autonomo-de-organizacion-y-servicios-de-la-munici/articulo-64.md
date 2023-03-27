@@ -1,0 +1,4 @@
+Artículo 64.- El cuidado del uniforme, es responsabilidad absoluta del funcionario (a), siendo que su desgaste debe ser el normal producto del uso.
+La dependencia encargada de la adquisición y entrega de los uniformes es la Unidad de Bienes y Servicios en conjunto con la Unidad de Talento Humano.
+Para los efectos pertinentes, se entiende que los uniformes y prendas, constituyen herramientas de trabajo y no perderán la condición de propiedad de la Municipalidad, siendo que lo que se entrega es el derecho al uso y posesión, por lo que el funcionario es el responsable de su debido uso y conservación.
+En consecuencia, con lo anterior se prohíbe a los funcionarios (as), causar daño intencional, cambiar, vender o regalar los implementos que integren las prendas de indumentaria personal que les provee la Municipalidad.

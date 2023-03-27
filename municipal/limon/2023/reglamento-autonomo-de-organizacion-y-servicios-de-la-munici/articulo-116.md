@@ -1,0 +1,2 @@
+Artículo 116.- En casos excepcionales las labores que estén relacionadas procesos sustantivos que incidan en la salud pública, como el caso de la recolección y disposición final de residuos pueden ser organizados en turnos de jornada diaria, mixta y nocturna, con las restricciones que prevee la ley para cada jornada.52
+52 La jornada no podrá exceder de las doce horas, pero además deberá contemplarse lo previsto en el horario.

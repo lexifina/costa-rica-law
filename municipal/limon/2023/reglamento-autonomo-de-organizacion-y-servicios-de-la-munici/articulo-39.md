@@ -1,0 +1,1 @@
+Artículo 39.- Previo informe y consulta de permutas y traslados horizontales de los servidores con sus Jefes inmediatos; el Alcalde podrá autorizar estos movimientos, siempre que no les causen evidente perjuicio a los trabajadores y sus dependencias y cuando satisfaga una necesidad real de la Municipalidad.

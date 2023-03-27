@@ -1,0 +1,5 @@
+Artículo 46.- En caso de accidente cuya causa sea imputable al chofer del vehículo y/o maquinaria deberá pagar al municipio el monto del deducible, de conformidad con lo establecido en la póliza del mismo, sin perjuicio de las sanciones disciplinarias, a que se haga acreedor.
+Para estos efectos deberá mediar la resolución de la autoridad judicial de tránsito que establezca la responsabilidad del servidor (a).
+El funcionario que, bajo los efectos del alcohol y/o drogas ocasione un accidente de tránsito, previo debido proceso será despedido sin responsabilidad patronal.
+El colaborador (a) que deba ingerir medicamentos que causen efectos secundarios o que impidan la conducción de vehículos y/o maquinaria, deberán presentar la receta médica al superior inmediato, a los fines de que se tomen las precauciones del caso, por parte de este último.
+El servidor (a) que, conozca de un daño ocasionado por otros funcionarios (as) a un vehículo y/o maquinaria, y lo oculte a su superior, será acreedor de falta grave y previo cumplimiento del debido proceso podrá ser despedido sin responsabilidad patronal.

@@ -1,0 +1,1 @@
+Artículo 106.- La suscripción del contrato será requisito para todos los programas de formación, así como para las acciones de capacitación, cuando el monto de la beca sea igual o superior a quinientos mil colones.

@@ -1,0 +1,2 @@
+Artículo 130.- Los días hábiles son los días regulares de trabajo que no corresponden al descanso semanal obligatorio, a los días feriados establecidos en el artículo 147 del Código de Trabajo60.
+60 El artículo 147 del Código de Trabajo indica: "ARTI?CULO 147.- Son hábiles para el trabajo, todos los días del año, excepto los feriados y los días de descanso semanal existentes por disposición legal o convenio entre las partes. (Así modificado por el artículo 1, de la Ley No.7619 del 24 de julio de 1996.) "

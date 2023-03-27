@@ -1,0 +1,4 @@
+Artículo 75.- Existirá un "Plan de Contingencia" cuyo propósito es preparar los equipos, el hardware y el software de la municipalidad, para que en caso de desastre o de riesgo, pueda recuperarse y garantizarse la seguridad de la información municipal buscando mitigar los efectos e la institución.
+Para el cumplimiento del anterior objetivo, GTI deberá tener siempre en caso de fallas un "Plan de Contingencia" que permita recuperar en corto tiempo todas las informaciones contenidas en la Red.
+Se deberá programar, una vez al año un simulacro, con la finalidad de examinar la efectividad del "Plan de Contingencia" establecido, proceso en el que todos los funcionarios involucrados se encuentran en la obligación de participar.
+Los funcionarios municipales deberán respetar los lineamientos establecidos en el "Plan de Contingencia" y abocarse a colocar con el mismo; y ante la advertencia de un desastre apoyar a la Unidad en la protección de los equipos.

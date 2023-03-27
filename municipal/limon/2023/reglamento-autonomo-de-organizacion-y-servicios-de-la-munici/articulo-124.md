@@ -1,0 +1,1 @@
+Artículo 124.- El pago de las vacaciones se hará con base en el salario que está percibiendo al momento de disfrute de las vacaciones, incluyendo los salarios ordinarios y extraordinarios devengados por el servidor(a).

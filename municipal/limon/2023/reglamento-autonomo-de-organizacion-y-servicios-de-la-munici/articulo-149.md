@@ -1,0 +1,1 @@
+Artículo 149.- Si un puesto fuere reclasificado a un categoría superior, el funcionario (a) administrativo que lo ocupa en propiedad devengarán, a partir de las fechas dispuestas en el presente reglamento, el salario base de la nueva categoría y con el mismo número de anualidades que tenía, ahora valorados sobre la nueva categoría.

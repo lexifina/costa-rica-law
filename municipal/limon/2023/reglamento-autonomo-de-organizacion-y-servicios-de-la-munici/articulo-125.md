@@ -1,0 +1,1 @@
+Artículo 125.- Si durante el disfrute de sus vacaciones el servidor(a) se enferma o accidenta y es incapacitado(a) para trabajar por la Caja Costarricense del Seguro Social o el Instituto Nacional de Seguros, el período se interrumpe. Los días que falten de disfrutar se concederán al término de la incapacidad.

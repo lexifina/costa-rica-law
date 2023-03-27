@@ -1,0 +1,2 @@
+Artículo 204.- Salvo los casos previstos en este Reglamento, la omisión de una marca cualquiera de las horas de entrada y salida hará presumir la inasistencia a la correspondiente fracción de jornada, siempre y cuando el trabajador no la justifique a más tardar 3 días después que sucedió el hecho.
+Lo anterior salvo en aquellos casos en que el aparato de registros de marca no funcione, y sea puesto en inmediato conocimiento el Jefe de Recursos Humanos.

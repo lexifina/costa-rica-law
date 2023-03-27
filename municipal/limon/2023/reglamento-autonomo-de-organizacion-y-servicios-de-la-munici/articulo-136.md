@@ -1,0 +1,5 @@
+Artículo 136.- En los siguientes casos, procede la licencia de conformidad con lo dispuesto en el artículo 34 de la Convención Colectiva de Trabajo vigente:
+a) Actividades sindicales: La Municipalidad podrá otorgar licencias, que no podrán exceder de los términos, ni violentar las formas, previstos en la Convención Colectiva de Trabajo vigente, a los (las) afiliados (as) y dirigentes del sindicato Para estos efectos, deberá presentarse a la Unidad de Talento Humano los documentos justificantes correspondientes. En el caso de los dirigentes sindicales, deberá presentarse la correspondiente documentación.
+b) Para reuniones ordinarias de la junta directiva del sindicato, la Municipalidad concederá a todos los miembros directivos, permiso de 2 horas hábiles por quincena.
+c) La Municipalidad velará por el otorgamiento de las respectivas licencias sindicales al tenor de lo establecido en el Código de Trabajo.
+d) Para reuniones de la Junta de Relaciones Laborales, medio día a la semana por jornada.

@@ -1,0 +1,1 @@
+Artículo 150.- Si un puesto fuere reclasificado a un categoría inferior, el salario del funcionario (a) administrativo propietario de la plaza se considerará con la condición de derechos adquiridos hasta que la plaza se encuentre con la condición de vacante se procederá con la reclasificación con la categoría inferior de la categoría de la clase.

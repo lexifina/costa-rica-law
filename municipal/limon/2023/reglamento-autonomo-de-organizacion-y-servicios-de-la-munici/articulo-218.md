@@ -1,0 +1,1 @@
+Artículo 218.- Se apercibirá por escrito al funcionario que por primera vez no atienda un citatorio o no realice o remita a información que le sea solicitada para la resolución de un asunto disciplinario laboral y se le suspenderá por cinco días en caso de reincidencia.

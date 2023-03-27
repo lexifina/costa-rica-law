@@ -1,0 +1,2 @@
+Artículo 24.- Es deber de las unidades administrativas de las dependencias de la Municipalidad, enviar copia al expediente personal de los funcionarios (as), de aquellas gestiones que dentro de su ámbito de competencia, pueden generar actas jurídico administrativo.
+La información contenida en el prontuario, así como en el expediente personal, es de carácter confidencial y solo tendrá acceso a ella el servidor, los funcionarios de la Auditoría Interna debidamente acreditado y con solicitud previa y su representante legal debidamente autorizado(a) del servidor municipal.

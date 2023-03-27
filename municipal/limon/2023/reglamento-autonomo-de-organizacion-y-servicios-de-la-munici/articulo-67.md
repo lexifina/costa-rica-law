@@ -1,0 +1,4 @@
+SECCION IX
+DE LA UTILIZACION DEL SOFTWARE Y EQUIPO DE CO?MPUTO
+Artículo 67.- La Municipalidad contará con la Unidad de Gestión de Tecnologías de Información como área de soporte informático y se encargará, como tarea esencial de resguardar, velar por el uso y funcionamiento de la plataforma tecnológicas de la institución y asegurar permanente asistencias a los funcionarios de a institución, constituyéndose además en el asistente de asesoría técnica permanente, para delimitar o definir los equipos y programas existente y los que estén por adquirirse que conforman los activos informáticos adecuados, para el funcionamiento institucional.
+El software por utilizar en cada equipo de cómputo, es propiedad de la Municipalidad y deberá? contar con las respectivas licencias; en caso de que un funcionario incluya software ilegal o prohibido, éste será borrado de forma inmediata y el funcionario sancionado.

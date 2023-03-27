@@ -1,0 +1,3 @@
+Artículo 77.- Es obligación de los servidores municipales en tema de protección de sus "usuario" resguardar bajo absoluta confidencialidad, sus credenciales para acceder a los diferentes sistemas, de caso contrario, puede ser sancionado acorde a las disposiciones de la Unidad y/o Dirección a cargo. Ningún funcionario podrá solicitar directamente a GTI, la creación de acceso a la Red de la Institución o a sistemas.
+Todo funcionario municipal deberá asegurarse del cierre de manera correcta de la sesión de usuario al momento de finalizar sus labores.
+No se permitirá a persona ajena a la Institución el acceso al equipo informático asignado a los servidores municipales.

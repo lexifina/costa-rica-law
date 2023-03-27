@@ -1,0 +1,1 @@
+Artículo 242.-Ante la falta de disposiciones de este reglamento aplicables a un caso determinado, deben tenerse como normas supletorias el Código Municipal, el Código de Trabajo, la Ley General de Administración Pública y las demás leyes y reglamentos conexos.

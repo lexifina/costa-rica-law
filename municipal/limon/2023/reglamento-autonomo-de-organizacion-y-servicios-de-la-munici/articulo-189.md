@@ -1,0 +1,3 @@
+Artículo 189.- Los funcionarios (as) que deseen acogerse a los beneficios de carrera profesional, deberán solicitarlo a la Dirección Administrativa y/o Alcaldía Municipal, y aportar conjuntamente los documentos originales y copia o bien copia certificada para probar y fundamentar sus atestados.
+La Unidad de Talento Humano estudiará la solicitud y si se aprueba, determinará el monto de acuerdo con el puntaje obtenido, y lo comunicará al servidor (a), mediante resolución razonada. Para resolver la solicitud dicha Unidad dispondrá de diez días hábiles.
+Sí la solicitud es denegada, el interesado (a) podrá presentar recurso de revocatoria ante el (a) Alcalde (sa) Municipal, en un plazo de cinco días; quién resolverá en definitiva y agotará la vía administrativa.

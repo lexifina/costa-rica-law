@@ -1,0 +1,1 @@
+Artículo 167.- No será posible el pago del régimen de prohibición con el pago de la remuneración por concepto de dedicación exclusiva y su cálculo se realizará únicamente sobre el salario base al puesto que ocupe el funcionario (a).

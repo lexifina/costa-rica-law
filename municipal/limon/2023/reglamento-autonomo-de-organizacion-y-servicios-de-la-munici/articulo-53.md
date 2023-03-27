@@ -1,0 +1,1 @@
+Artículo 53.- Las armerías de las diferentes policías municipales tendrán que someterse a las medidas de seguridad que la Dirección General de Armamento del Ministerio de Seguridad Pública establezca.

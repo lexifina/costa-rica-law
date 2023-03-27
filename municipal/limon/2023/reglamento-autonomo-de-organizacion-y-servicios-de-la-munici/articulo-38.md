@@ -1,0 +1,1 @@
+Artículo 38.- El servidor(a) que concurse por oposición y cumpla con lo estipulado en el Código Municipal, quedara? elegible si obtiene una nota mayor o igual a 70 y mantendrá esta condición por el término de un año, contado a partir del momento en que se le comunique.

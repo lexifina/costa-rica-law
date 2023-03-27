@@ -1,0 +1,2 @@
+Artículo 146.- Los salarios básicos establecidos en la escala de salarios comprenderán el pago de la prestación de los servicios al ingresar al desempeño de un cargo, y se entiende por jornada ordinaria de trabajo para un mes calendario.
+Cuando en un contrato de trabajo, se estipule una jornada inferior a la ordinaria, se pagará un salario proporcional en relación con la valoración acordada en la clase a la cual el puesto esté asignado.

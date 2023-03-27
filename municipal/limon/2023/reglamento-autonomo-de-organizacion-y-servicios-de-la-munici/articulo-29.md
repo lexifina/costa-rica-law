@@ -1,0 +1,1 @@
+Artículo 29.- Los servidores interinos de la Municipalidad y el persona de confianza NO están amparados por los derechos y beneficios de la Carrera Administrativa Municipal. Aunque desempeñen puestos comprendidos en ella.

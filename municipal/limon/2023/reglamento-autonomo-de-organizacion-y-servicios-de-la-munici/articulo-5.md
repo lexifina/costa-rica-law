@@ -1,0 +1,1 @@
+Artículo 5º.- La Municipalidad de Limón mantendrá actualizado un Manual Descriptivo de Organización y Funcionamiento; así como la Escala Salarial y el Mapa Organizacional, cuya aplicación será responsabilidad del Alcalde Municipal y la Unidad de Talento Humano.

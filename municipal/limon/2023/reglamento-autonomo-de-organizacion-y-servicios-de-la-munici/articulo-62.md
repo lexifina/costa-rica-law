@@ -1,0 +1,4 @@
+Artículo 62.- Para los efectos anteriores la Municipalidad proporcionará, en la medida de sus posibilidades presupuestarias, los uniformes según la naturaleza de las funciones que realizan los colaboradores.
+El diseño y color de los uniformes, la Administración lo podrá variar, ocasionalmente, con el fin de lograr mayor decoro, en los funcionarios y la imagen de la Municipalidad, así como seguridad, en el personal operativo.
+No obstante, lo anterior, la idea es que el funcionario municipal pueda ser plenamente reconocido por los usuarios de las institución, los contribuyentes y el público en general.
+Las funcionarias embarazadas, podrán realizar los ajustes necesarios, en las prendas y en el caso, en que no pueda usarlo, se le excusará de su obligación, por el tiempo que dure su estado de gravidez.
