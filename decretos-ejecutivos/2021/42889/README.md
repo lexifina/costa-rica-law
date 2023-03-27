@@ -16,3 +16,4 @@ Reforma Reglamento a la Ley Nacional de Vacunación
 | 1 | 2021-03-11 | la propia norma |
 | 2 | 2021-10-07 | Decreto Ejecutivo 43249 (2021-10-07) |
 | 3 | 2021-12-13 | Decreto Ejecutivo 43364 (2021-12-13) |
+| 4 | 2023-03-27 | Decreto Ejecutivo 43971 (2023-03-27) |
