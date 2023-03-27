@@ -1,0 +1,26 @@
+CIRCULAR N° 73-2023
+ASUNTO: Centros autorizados de Resolución Alterna de Conflictos.
+A TODAS LAS AUTORIDADES DEL PAÍS
+SE LES HACE SABER QUE:
+El Consejo Superior del Poder Judicial en sesión No. 23-2023 celebrada el 21 de marzo del 2023, artículo XLVIII, dispuso informar, a solicitud de la Comisión de Resolución Alterna de Conflictos del Poder Judicial (RAC), que la mediación extrajudicial de acuerdo con la Ley N° 7727 "Ley de Resolución Alterna de Conflictos y Promoción de la Paz Social RAC", no exige que el mediador o conciliador sea un profesional en derecho.
+Las Casas de Justicia, Centros RAC privados y Centros RAC Gubernamentales autorizados por la Dirección Nacional de Resolución Alterna de Conflictos, (DINARAC) podrán ser consultados en el siguiente link:
+h t t p s : / / w w w. m j p . g o . c r / v i c e m i n i s t e r i o p a z / DepenDinarac?nom=casas-justicia
+(Nota de Sinalevi: Las Casas de Justicia, Centros RAC privados y Centros RAC Gubernamentales autorizados por la Dirección Nacional de Resolución Alterna de Conflictos, se extrajeron del sitio Web del Ministerio de Justicia y Paz, y se transcribe a continuación:)
+Casas de Justicia
+El programa de Casas de Justicia se inauguró en el año 2000, con la finalidad de descongestionar los procesos judiciales y a la vez brindarle a la población la posibilidad de resolver los conflictos de una forma muy pacífica, es decir a través del diálogo y con un enfoque basado en los intereses de las partes que llevan a cabo un proceso de mediación, en donde con ayuda de una tercera persona imparcial logran plantear soluciones a sus conflictos mejorando de esta forma la convivencia.
+Las Casas de Justicia son Centros de Resolución Alterna de Conflictos vecinales, donde puede asistir la población para buscar una solución a sus problemas, con la ayuda de un mediador. A través del dialogo abierto pueden alcanzar un acuerdo legal y resolver sus diferencias sin necesidad de plantear demandas en los Tribunales de Justicia. En las Casas de Justicia el servicio es gratuito, los usuarios no tienen que pagar abogado ni incurrir en otros gastos.
+Trabajan y funcionan gracias a un "socio contraparte" quien da soporte a las actividades de las Casas pues cumplen con aspectos como: infraestructura, pago de director o directora de la Casa, así como los servicios básicos, por lo que son un eje de sostenibilidad del programa.
+El objetivo primordial del Programa Casas de Justicia es acercar a las personas a la justicia, además, de permitirles resolver sus conflictos autogestionariamente, es decir, devolverles la responsabilidad de la solución de sus conflictos, es así como las Casas de Justicia tienen los siguientes objetivos específicos:
+Acercar la justicia a las comunidades en las cuales se brindan integralmente apoyo para la solución de conflictos, principalmente orientación, referencia, mediación y en algunos casos atención legal gratuita.
+Divulgar una cultura de Resolución Alterna de Conflictos sin saturación de los servicios judiciales tradicionales y sin violencia, por medio de la negociación y mediación, ya que estos tienen como fin paralelo ser procesos modeladores para que la sociedad aprenda formas pacíficas y satisfactorias de resolver los conflictos que contribuyan al mejoramiento de la convivencia familiar, vecinal y nacional.
+Mejorar el acceso a la justicia de la población, para que sus habitantes cuenten con una nueva opción para construir soluciones justas y duraderas a los problemas que cotidianamente deben enfrentar.
+Algunos tipos de conflictos que resuelve:
+1- Vecinales-Comunales -Linderos, colindancias, servidumbre -Ruidos excesivos -Problemas con animales -Estacionamiento en lugares inadecuados -Daños menores a la propiedad -Problemas con basura, contaminación | 2- Familia: -Cuotas alimentarias -Régimen de visitas -Acuerdos socio-económicos de ayuda -Acuerdo de cuido de un o una familiar
+3- Consumidor -Reconocimiento de la garantía de un producto adquirido -Cambio de producto por defecto de fábrica -Incumplimiento de contrato por servicios médicos privados -Arreglos de pago por productos adquiridos | 4-Prestamos-deudas -Arreglos de pago por automóviles, casas, dinero, alquileres, depósitos, entre otras
+h t t p s : / / w w w. m j p . g o . c r / v i c e m i n i s t e r i o p a z / DepenDinarac?nom=centros
+Nota de Sinalevi: Los centros RAC Gubernamentales autorizados por la Dirección Nacional de Resolución Alterna de Conflictos, se extrajeron del sitio Web del Ministerio de Justicia y Paz, y se transcribe a continuación:)
+Centros Rac
+Entidades creadas exclusivamente para la administración institucional de métodos alternos para la solución de conflictos, o bien, la dependencia u oficina perteneciente a una entidad, por medio de la cual, ésta administra institucionalmente los citados métodos. Estos Centros deben estar autorizados por la Dirección Nacional de Resolución Alterna de Conflictos.
+De conformidad con la circular N° 67-09 emitida por la Secretaría de la Corte el 22 de junio de 2009, se le comunica que en virtud del principio de gratuidad que rige esta materia, la publicación está exenta de todo pago de derechos.
+Publíquese una sola vez en el Boletín Judicial.
+San José, 27 de marzo de 2023.
