@@ -1,2 +1,0 @@
-TRANSITORIO ÚNICO. - En tanto se deshabilita la desinscripción en el Registro Único Tributario en el portal de ATV para las personas jurídicas, según indica el artículo 5 de esta resolución, la presentación de dicho formulario no surtirá efectos de desinscripción sino únicamente para indicar la fecha de fin de las actividades lucrativas previamente registradas, sin necesidad de notificación alguna al interesado.
-(Así adicionado por el artículo 4° de la resolución N° DGT-R-38-2020 del 5 de noviembre del 2020)
