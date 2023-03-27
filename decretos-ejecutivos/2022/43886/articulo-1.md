@@ -1,0 +1,16 @@
+N° 43886
+EL PRESIDENTE DE LA REPÚBLICA
+EL MINISTRO DE OBRAS PÚBLICAS Y TRANSPORTES
+En el ejercicio de las facultades que les confieren los artículos 140, incisos 3) y 18), 146 de la Constitución Política; y con fundamento en lo establecido por la Ley de Creación del Ministerio de Obras Públicas y Transportes, N° 3155 del 5 de agosto de 1963, reformada por la Ley N° 4786 del 5 de julio de 1971; los artículos 25 inciso 1), 27 inciso 1), y 28, inciso 2), acápites a) y b) de la Ley General de la Administración Pública, Ley N° 6227, y la Ley General de Control Interno, N° 8292 del 31 de julio del 2002.
+Considerando:
+1º-Que mediante el Decreto Ejecutivo N° 39603-MOPT del 2 de marzo del 2016, se emitió el "Reglamento para la autorización, reconocimiento y pago del tiempo extraordinario a los funcionarios policiales de la Dirección General de la Policía de Tránsito", publicado en el Diario Oficial La Gaceta N° 125 del 29 de junio del 2016, Alcance N° 108.
+2º-Que la Procuraduría General de la República en el Dictamen N° C-025-2019 del 30 de enero del 2019, emitió un criterio sobre el pago de tiempo extraordinario a los Oficiales de la Dirección General de la Policía de Tránsito, considerando que el reconocimiento económico por labores en jornada extraordinaria debe estar ajustado a lo dispuesto por el artículo 143 del Código de Trabajo y no como se ha venido realizando aplicando el contenido del Reglamento para la autorización, reconocimiento y pago del tiempo extraordinario a los funcionarios policiales de la Dirección General de la Policía de Tránsito.
+3º-Que la Auditoría General emitió la Advertencia N° DAG-ADV-2019-0253 del 01 de febrero del 2019, donde señala irregularidades que presenta el Decreto Ejecutivo N° 39603-MOPT, denominado: "Reglamento para la autorización, reconocimiento y pago de tiempo extraordinario a los funcionarios policiales de la Dirección General de la Policía de Tránsito", en lo que respecta a la jornada ordinaria laboral de los Oficiales de la Policía de Tránsito.
+4º-Que el Decreto Ejecutivo N° 39603-MOPT, denominado: "Reglamento para la autorización, reconocimiento y pago de tiempo extraordinario a los funcionarios policiales de la Dirección General de la Policía de Tránsito", estableció la jornada ordinaria de trabajo a los Oficiales de Tránsito, de ocho horas diarias.
+5º-Que es necesario modificar el Decreto Ejecutivo N° 39603-MOPT, denominado: "Reglamento para la autorización, reconocimiento y pago de tiempo extraordinario a los funcionarios policiales de la Dirección General de la Policía de Tránsito", a fin de que sus disposiciones se ajusten a lo dispuesto por el artículo 143 del Código de Trabajo. Por tanto,
+Decretan:
+REFORMA DECRETO EJECUTIVO N° 39603- MOPT "REGLAMENTO PARA LA AUTORIZACIÓN,
+RECONOCIMIENTO Y PAGO DEL TIEMPO EXTRAORDINARIA A LOS
+FUNCIONARIOS POLICIALES DE LA DIRECCIÓN GENERAL DE LA POLICÍA DE TRÁNSITO"
+Artículo 1º-Refórmese el artículo 2° del Reglamento para la autorización, reconocimiento y pago de tiempo extraordinario a los funcionarios policiales de la Dirección General de la Policía de Tránsito, Decreto Ejecutivo N° 39603- MOPT del 2 de marzo del 2016, para que diga así:
+"Artículo 2º-Jornada Ordinaria: Trabajo efectivo de un servidor policial con un máximo de hasta doce horas."

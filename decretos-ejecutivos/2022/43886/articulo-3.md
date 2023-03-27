@@ -1,0 +1,1 @@
+Artículo 3º-Deróguese los artículos 13 y 14 del Decreto Ejecutivo N° 39603-MOPT del 2 de marzo del 2016, "Reglamento para la autorización, reconocimiento y pago del tiempo extraordinario a los funcionarios policiales de la Dirección General de la Policía de Tránsito".

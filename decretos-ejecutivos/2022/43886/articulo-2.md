@@ -1,0 +1,2 @@
+Artículo 2º-Refórmese el artículo 12 del Reglamento para la autorización, reconocimiento y pago de tiempo extraordinario a los funcionarios policiales de la Dirección General de la Policía de Tránsito, Decreto Ejecutivo N° 39603- MOPT del 2 de marzo del 2016, para que diga así:
+"Artículo 12.-Límite de la jornada laboral. La jornada ordinaria de los oficiales de tránsito no podrá exceder de doce horas diarias.
