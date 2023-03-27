@@ -1,2 +1,0 @@
-Artículo 4°—Adiciónese un Transitorio a la resolución N° DGT-R-075-2019, del 12 de diciembre de 2019, que diga:
-“TRANSITORIO ÚNICO. - En tanto se deshabilita la desinscripción en el Registro Único Tributario en el portal de ATV para las personas jurídicas, según indica el artículo 5 de esta resolución, la presentación de dicho formulario no surtirá efectos de desinscripción sino únicamente para indicar la fecha de fin de las actividades lucrativas previamente registradas, sin necesidad de notificación alguna al interesado”.
