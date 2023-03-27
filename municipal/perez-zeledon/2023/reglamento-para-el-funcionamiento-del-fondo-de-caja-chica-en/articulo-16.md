@@ -1,0 +1,1 @@
+Artículo 16.-Limitaciones en el uso de caja chica. Las limitaciones previstas en dicho reglamento deberán ser acordes con la Política Contable de este Gobierno Local, es por ello que podrán adquirirse únicamente activos que sean autorizados por la Política supra citada.

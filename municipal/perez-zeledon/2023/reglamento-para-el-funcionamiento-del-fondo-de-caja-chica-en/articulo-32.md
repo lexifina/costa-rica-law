@@ -1,0 +1,1 @@
+Artículo 32.-Reintegros. El reintegro se tramitará a través del correspondiente sistema de nómina de pago, el cual será revisado y autorizado por el tesorero, se autoriza el reintegro cuando se haya consumido al menos el 60% del fondo fijo.

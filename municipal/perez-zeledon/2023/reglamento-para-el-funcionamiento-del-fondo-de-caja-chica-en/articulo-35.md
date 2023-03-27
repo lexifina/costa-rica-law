@@ -1,0 +1,1 @@
+Artículo 35.-En caso de extravío, robo o pérdida de la tarjeta empresarial el funcionario responsable deberá reportar la situación ante la entidad bancaria y al Jefe inmediato, mediante acto razonado, en caso de proceder deberá interponer la denuncia formal ante las autoridades judiciales. La tesorería deberá realizar el procedimiento de reposición.

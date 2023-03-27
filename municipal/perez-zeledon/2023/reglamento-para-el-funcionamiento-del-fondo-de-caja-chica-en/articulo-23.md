@@ -1,0 +1,1 @@
+Artículo 23.-La Tesorería deberá realizar las anotaciones respectivas y luego de aprobada la liquidación, informará al interesado, para que este formalice la liquidación, realizando la devolución del monto remanente, si así fuera el caso.

@@ -1,0 +1,1 @@
+Artículo 24.-De la presentación de liquidaciones fuera de término. Si el retraso se debiere a situaciones extraordinarias: fuerza mayor o caso fortuito, que impidan al funcionario presentar la liquidación dentro de los plazos establecidos, deberá realizar las justificaciones pertinentes y comunicarla de manera oficial.

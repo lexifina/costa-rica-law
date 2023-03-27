@@ -1,0 +1,1 @@
+Artículo 14.-Corresponderá a la Tesorería Municipal mediante procedimiento interno regular la entrega y devolución de las tarjetas por parte de los funcionarios municipales, una vez realizada la liquidación correspondiente, de la misma manera deberá la Tesorería Municipal informar a la Alcaldía, cualquier uso irregular que se les dé a dichas tarjetas.

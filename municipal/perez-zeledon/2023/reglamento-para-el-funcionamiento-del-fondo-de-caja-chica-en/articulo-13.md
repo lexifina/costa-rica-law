@@ -1,0 +1,1 @@
+Artículo 13.-Del uso de la tarjeta de débito empresarial. Las tarjetas de débito empresarial serán custodiadas por la Tesorería Municipal, para uso exclusivo de compra y adquisición de bienes y servicios que se deban realizar mediante el procedimiento de caja chica.
