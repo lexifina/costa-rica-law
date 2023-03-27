@@ -1,0 +1,5 @@
+Artículo 32. Requisitos de transparencia y divulgación de información Las Entidades de Registros Centralizados deben hacer de acceso público y divulgarse de forma fácilmente accesible en el sitio web de la entidad, los siguientes elementos:
+a) Reglamento vigente que establezca los procedimientos para el registro de las letras de cambio y pagarés electrónicos y los movimientos que los afecte.
+b) Los precios y comisiones vigentes correspondientes a los servicios prestados en el marco del presente Reglamento, de cada servicio por separado, incluidos los descuentos y las condiciones para acogerse a esas reducciones.
+c) Información de la entidad, según lo requerido en el Reglamento de Información Financiera, Acuerdo CONASSIF 6-18, y el Reglamento sobre Gobierno Corporativo, Acuerdo CONASSIF 4-16.
+d) La demás información que se establezca mediante acuerdo del Superintendente General de Valores, con el objetivo de que los usuarios del sistema y demás partes interesadas, obtengan información oportuna y completa sobre la continuidad y el correcto funcionamiento de la prestación de los servicios y la realización de las actividades de la Entidad.

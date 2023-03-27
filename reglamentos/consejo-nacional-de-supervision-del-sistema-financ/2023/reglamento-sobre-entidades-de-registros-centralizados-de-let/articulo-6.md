@@ -1,0 +1,1 @@
+Artículo 6. Requisitos para solicitar actos sujetos a autorización Para las solicitudes de los actos sujetos a autorización previa establecidos en este reglamento, el solicitante debe suministrar a la SUGEVAL, la información y documentos que se detallan en el presente reglamento y sus anexos, y que son parte integral relacionados con el acto sujeto de autorización.

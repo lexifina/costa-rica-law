@@ -1,0 +1,4 @@
+Artículo 27. Requisitos para la fiabilidad operativa Las Entidades de Registros Centralizados deben cumplir con los siguientes requisitos para la fiabilidad operativa:
+a) Detectar las fuentes de riesgo operativo y reducirlas al mínimo mediante el desarrollo de sistemas, controles y procedimientos adecuados. Dichos sistemas deben ser fiables y seguros y tener la capacidad adecuada para tratar la información recibida.
+b) Establecer, aplicar y mantener una estrategia adecuada de continuidad de la actividad y de recuperación en caso de catástrofe destinada a garantizar el mantenimiento de sus funciones, la oportuna recuperación de las operaciones y el cumplimiento de las obligaciones de los registros centralizados.
+c) La Entidad de Registros Centralizados cuya autorización haya sido revocada debe garantizar una sustitución ordenada, incluida la transferencia de datos y la reorientación de los flujos de información a otras Entidades de Registros Centralizados.

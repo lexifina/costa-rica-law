@@ -1,0 +1,2 @@
+Artículo 36. Constitución de derechos reales, gravámenes u otros actos cambiarios. La constitución de derechos reales, gravámenes u otros cambiarios sobre letras de cambio o pagarés electrónicos representados por medio de anotaciones en cuenta debe inscribirse en la cuenta correspondiente.
+La constitución del acto cambiario es oponible a terceros desde el momento en que se haya practicado la correspondiente inscripción.

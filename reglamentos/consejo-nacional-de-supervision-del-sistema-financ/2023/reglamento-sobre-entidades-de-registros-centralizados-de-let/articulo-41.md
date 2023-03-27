@@ -1,0 +1,3 @@
+CAPÍTULO VI. DISPOSICIONES FINALES
+Artículo 41. Requerimientos de información El Superintendente General de Valores puede establecer mediante acuerdo, el requerimiento de la información periódica o continua necesaria, en las condiciones, con las herramientas y la periodicidad que determine, para cumplir adecuadamente con sus funciones de supervisión de conformidad con la Ley sobre Letra de Cambio y Pagaré Electrónicos, Ley 10069.
+El Superintendente podrá otorgar prórrogas a la entrega de información periódica siempre que estas se soliciten en forma justificada con anterioridad al vencimiento del plazo fijado.

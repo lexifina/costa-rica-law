@@ -1,0 +1,1 @@
+Artículo 2. Alcance Las disposiciones incluidas en este Reglamento son aplicables a las entidades que brinden el servicio de registro centralizado de letras de cambio y pagarés electrónicos, sujetas a la supervisión de la Superintendencia General de Valores (SUGEVAL), en adelante Entidades de Registros Centralizados.

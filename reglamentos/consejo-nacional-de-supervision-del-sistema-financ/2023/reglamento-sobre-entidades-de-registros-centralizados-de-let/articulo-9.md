@@ -1,0 +1,5 @@
+Artículo 9. Resolución del trámite El plazo máximo para el análisis y la resolución de cualquiera de los actos sujetos a autorización estipulados en el presente reglamento es de 30 días naturales a partir de la fecha de notificación del cumplimiento de que el solicitante presentó la totalidad de la documentación y requisitos.
+La SUGEVAL debe prevenir como un todo y por única vez al solicitante que aclare o subsane la información, según lo establecido en el presente reglamento, para lo cual le otorgará un plazo de 10 días hábiles para aclarar o subsanar lo prevenido, contados a partir del día siguiente de su transmisión.
+El plazo otorgado al solicitante para contestar la prevención puede ser ampliado por la SUGEVAL a petición del solicitante, hasta por un periodo igual, cuando proceda su otorgamiento, siempre que la solicitud se realice antes del vencimiento del plazo otorgado y debidamente justificada.
+Las prevenciones suspenderán el plazo de resolución.
+Si una vez transcurrido el plazo arriba mencionado se mantiene pendiente la aclaración o subsanación de requisitos y documentos; será causa del rechazo de la solicitud y su archivo.

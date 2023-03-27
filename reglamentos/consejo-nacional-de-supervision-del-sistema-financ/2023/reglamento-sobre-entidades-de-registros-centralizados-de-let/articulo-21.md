@@ -1,0 +1,4 @@
+Artículo 21. Criterios para valorar los reglamentos sobre la prestación de servicios a los usuarios. En el caso de solicitudes de autorización o modificación de los reglamentos para la prestación de sus servicios a los usuarios de una Entidad de Registros Centralizados, se debe observar al menos:
+a) Cumplimiento del marco normativo vigente: el contenido del reglamento se encuentra alineado con el marco legal y normativo vigente.
+b) Claridad de disposiciones: La regulación propuesta es completa, estructurada por temas en forma clara y de fácil referencia. El texto propuesto es claro, preciso y suficiente.
+c) Consulta a las partes interesadas: En su elaboración se involucró a todos los usuarios y demás partes interesadas pertinentes, mediante un proceso de consulta abierto, al menos por diez días hábiles, para procurar maximizar la calidad y efectividad de la regulación que se propone.

@@ -1,0 +1,22 @@
+SECCIÓN 5. TRANSMISIÓN DE DATOS
+Artículo 40. Esquema de comunicación Las Entidades de Registros Centralizados deben llevar a cabo la transmisión de datos de la anotación en cuenta entre ellas de acuerdo con un esquema estandarizado mutuamente acordado.
+El esquema debe contener una descripción de los controles necesarios establecidos para garantizar la transferencia de datos oportuna, completa y precisa, para lo cual debe contener como mínimo:
+a) Contenido de la transferencia de datos.
+b) Funciones y responsabilidades detallados de las entidades implicadas.
+c) Hitos relevantes para la transferencia.
+d) Controles necesarios para garantizar la confidencialidad de los datos transmitidos (por ejemplo, el tipo de cifrado utilizado).
+e) Controles necesarios para garantizar la integridad y precisión de los datos transmitidos (por ejemplo, sumas de verificación criptográficas).
+f) Controles necesarios para garantizar la continuidad de las operaciones y el estado de conciliación entre entidades de los títulos valores objeto de transferencia.
+g) Tiempo límite y disponibilidad de datos.
+h) Cualquier otra información que facilite y asegure una transmisión sin problemas de datos.
+Las Entidades de Registros Centralizados deben utilizar protocolos seguros de máquina a máquina, para transferir datos entre ellas. Para cada archivo generado y transferido, la entidad que remite los registros de anotación en cuenta debe generar e incluir en la transferencia de datos una suma de comprobación criptográfica de acuerdo con el esquema mutuamente acordado.
+Tan pronto la transferencia de los registros de anotación en cuenta sea confirmada por la entidad que los recibe, la entidad que los remite no debe aceptar nuevos actos de inscripción relacionados con los títulos valores trasmitidos a la nueva entidad.
+Hasta que se complete la transferencia de todos los archivos de datos sujetos a la transferencia, la entidad que los recibe no debe aceptar nuevos actos de inscripción relacionados con los títulos valores sujetos a transmisión.
+La Entidad de Registros Centralizados anterior, debe aislar y mantener seguros los datos transferidos, aplicando las mismas políticas, procedimientos y salvaguardas de mantenimiento y protección de la información que aplica para las demás anotaciones en cuenta.
+En el caso de la transmisión de letras de cambio y pagarés electrónicos, tan pronto como las anotaciones en cuenta se transfieran a la nueva Entidad de Registros Centralizados, esta debe confirmarlo al legítimo tenedor, al emisor u obligado y a la entidad que los remite.
+Ninguno de las Entidades de Registros Centralizados debe cobrar comisiones o tasas por la transferencia de datos, tanto en el caso de transmisión solicitada por el legítimo tenedor o en caso de desinscripción de una entidad.
+En caso de procesos de desinscripción de una Entidad de Registros Centralizados, esta debe aislar y mantener seguros los datos transferidos a nuevas entidades, aplicando las mismas políticas, procedimientos y salvaguardas de mantenimiento y protección de la información que tenga aprobadas, hasta la fecha que se le señale en la resolución condicionada. En la fecha señalada, la entidad debe destruir de manera segura, de acuerdo con las mejores prácticas y las técnicas más fiables disponibles, los datos de respaldo de anotación en cuenta que conserve a esa fecha.
+Para registros de anotaciones en cuenta que provengan de un proceso de desmaterialización o electrificación de una letra de cambio o pagaré, la Entidad de Registros Centralizados que los remite, debe realizar la entrega de los soportes físicos que correspondan, durante el mes siguiente a la fecha en que nueva Entidad de Registros Centralizados confirma su recepción.
+Las Entidades de Registros Centralizados autorizadas deben remitir una copia a la SUGEVAL del convenio con el esquema acordado, firmado por los representantes legales.
+Este acuerdo debe ser revisado y actualizado en lo que corresponda, al menos una vez al año y cada vez que se autorice una nueva entidad.
+El convenio firmado por los representantes legales de las Entidades debe ser remitido a la SUGEVAL en un plazo no mayor de tres días hábiles de haberse suscrito. La SUGEVAL puede solicitar ajustes al convenio, si fuere necesario para proteger a los usuarios. En este caso se debe procurar que la medida adoptada sea necesaria o la más adecuada para lograr tales fines.
