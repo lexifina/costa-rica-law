@@ -31,3 +31,4 @@ Reglamento de Oferta Pública de Valores
 | 16 | 2021-11-30 | Reglamento 1702 (2021-11-30) |
 | 17 | 2022-04-04 | Reglamento 1724 (2022-04-04) |
 | 18 | 2022-07-04 | Reglamento 1742 (2022-07-04) |
+| 19 | 2023-03-27 | Reglamento 1792 (2023-03-27) |
