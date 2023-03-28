@@ -1,1 +1,0 @@
-Artículo 6. Ámbito de aplicación. El presente Reglamento será de acatamiento obligatorio para las dependencias, funcionarios y las autoridades superiores de la Municipalidad de Esparza, salvo norma de rango superior que se le llegue a contraponer.

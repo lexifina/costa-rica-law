@@ -1,1 +1,0 @@
-Artículo 5. Mecanismo para gestionar el acto. Todos los trámites que gestione la Proveeduría Institucional deberán efectuarse mediante el sistema integrado de compras públicas, SICOP, o el que define a futuro el Gobierno Central, excepto en aquellos casos autorizados por Ley.
