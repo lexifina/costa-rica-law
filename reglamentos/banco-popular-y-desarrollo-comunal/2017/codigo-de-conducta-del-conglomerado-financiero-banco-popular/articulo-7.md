@@ -7,3 +7,4 @@ Innovación | Impulsamos nuevas formas de hacer las cosas, mediante el uso de la
 Compromiso económico, social y ambiental | Nos comprometemos con el desarrollo económico, social y ambiental de la sociedad costarricense, con accesibilidad, solidaridad, inclusión y equidad de género.
 Liderazgo | Trabajamos con pasión y responsabilidad para el logro de los objetivos, por medio del empoderamiento, la comunicación eficiente y el trabajo colaborativo de quienes laboramos en el Conglomerado Financiero.
 Evolución constante | Transformamos nuestros conocimientos, competencias y habilidades humanas para habilitar una organización dinámica y flexible; capaz de adaptarse a los cambios.
+Transparencia | Asumimos el deber legal, ético y moral de actuar comprometidamente con los Principios y Valores y rendir cuenta oportuna de forma honesta, veraz y transparente.

@@ -1,4 +1,4 @@
 Artículo 25º. Conductas inapropiadas asociadas con conflictos de interés.
-Queda estrictamente prohibido, a las personas sujetas a este Código, incurrir en conductas calificadas como “conflicto de interés”, según lo dispuesto por la normativa legal correspondiente, lo descrito en el presente Código y demás disposiciones aplicables.
+Queda estrictamente prohibido, a las personas sujetas a este Código, incurrir en conductas calificadas como "conflicto de interés", según lo dispuesto por la normativa legal correspondiente, lo descrito en el presente Código y demás disposiciones aplicables.
 Las personas sujetas a este Código deben informar sobre cualquier asunto que pudiera interferir en su independencia y objetividad con respecto a sus obligaciones con el Conglomerado Financiero. Asimismo, deben abstenerse de atribuirse funciones o investiduras más allá de aquellas asignadas.
 El Conglomerado Financiero cuenta con la Política de Conflicto de Interés la cual establece los procedimientos a seguir en materia de identificación, prevención y gestión de conflictos de interés.
