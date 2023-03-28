@@ -13,3 +13,4 @@ Versión actualizada del DGH-004: LS-CS-009. "Lineamiento general para propietar
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-04-29 | la propia norma |
+| 2 | 2023-03-28 | Circular 66 (2023-03-28) |
