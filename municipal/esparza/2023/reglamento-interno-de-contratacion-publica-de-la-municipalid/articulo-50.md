@@ -1,0 +1,5 @@
+CAPÍTULO XI
+De la recepción de bienes
+Artículo 50. De la recepción, almacenamiento y distribución de bienes. Para la recepción de los bienes, la PI debe utilizar los sistemas informáticos de que disponga la Administración con el propósito de mantener un registro actualizado de las existencias con que cuenta la ME.
+La PI será la responsable de establecer y llevar a cabo los procedimientos y controles para la adecuada recepción, almacenamiento y distribución de bienes en el Almacén de materiales para asegurar un servicio eficiente a la ME y tendrá la obligación de garantizar que los trámites de pago y plaqueo se realizarán previa verificación del cumplimiento de las condiciones de adjudicación. Esa verificación deberá efectuarla la PI conjuntamente con el AC.
+En el caso de los servicios y/o construcción de obras, el AC será el responsable de la supervisión y trámite de pago del mismo, así como de la custodia y administración de toda la documentación que se genere. Una vez finalizada la recepción del bien obra o servicio, deberá remitir de manera electrónica (ordenada cronológicamente), toda la información generada en el proceso de ejecución contractual.

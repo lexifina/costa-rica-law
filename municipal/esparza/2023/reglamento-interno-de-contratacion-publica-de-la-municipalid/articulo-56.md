@@ -1,0 +1,1 @@
+Artículo 56. Transitorio. Los procedimientos de contratación y contratos iniciados, antes de la vigencia de la LGCP No. 9986 y su Reglamento concluirán conforme a las disposiciones vigentes en el momento de adoptarse la decisión inicial del concurso.

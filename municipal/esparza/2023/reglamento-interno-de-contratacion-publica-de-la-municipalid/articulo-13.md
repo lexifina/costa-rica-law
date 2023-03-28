@@ -1,0 +1,1 @@
+Artículo 13. Contenido Presupuestario. Previo a solicitar el trámite de una compra ante la PI, la US debe demostrar que cuenta con el presupuesto para lo requerido, para ello debe adjuntar la SBS debidamente aprobada por la UP y en lo referente al CCDRE según lo tenga establecido dicho Comité.

@@ -1,0 +1,7 @@
+CAPÍTULO III
+De los niveles de competencia para autorizar desembolsos, adjudicar declarar desierto
+o infructuoso los procedimientos de contratación administrativa.
+Artículo 21. De la autorización para el inicio de los procesos de contrataciones de emergencia, excepción, licitación menor, licitación reducida u otros procedimientos especiales y la resolución de adjudicación-desierta o infructuosa.
+a) La AM y la Junta Directiva del CCDRE, mediante aprobación de la solicitud generada en el SDU, dará su autorización para el inicio de procedimientos de contrataciones de emergencia, por excepción, licitación menor, licitación reducida u otros procedimientos especiales según los umbrales emitidos año a año por la CGR, a partir de los cuales se determina el procedimiento de contratación aplicable.
+b) La AM y la Junta Directiva del CCDRE, aprobará la resolución de adjudicación, declaratoria de infructuosa o desierta, que se emitan contrataciones de emergencia, por excepción, licitación menor, licitación reducida u otros procedimientos especiales según los umbrales emitidos año a año por la CGR a partir de los cuales se determina el procedimiento de contratación aplicable.
+c) El Alcalde Municipal podrá comprometer los fondos o bienes de la Municipalidad, determinar gastos fijos, autorizar egresos y en general adquirir bienes y servicios sin necesidad de previa autorización del Concejo Municipal, cuando tales actos no excedan el umbral de la actividad ordinaria de la LICITACION MENOR de la Ley N° 9986 y su respectivo reglamento.

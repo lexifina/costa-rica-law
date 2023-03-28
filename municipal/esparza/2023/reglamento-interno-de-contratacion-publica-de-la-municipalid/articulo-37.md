@@ -1,0 +1,5 @@
+CAPÍTULO VIII
+De las causas de terminación anticipada:
+La Resolución Contractual o la Resolución de Controversia
+Artículo 37. De la resolución contractual. La resolución contractual operará cuando el órgano competente mediante resolución motivada decida resolver o dar por terminado un contrato ante el incumplimiento atribuible o imputable al contratista, en dicho procedimiento, habrá ejecución de garantía de cumplimiento, se aplicarán sanciones si resultan pertinentes y se podrá, si el cartel así lo dispuso, aplicar montos por daños y perjuicios, todo bajo la observancia previa de un debido proceso de conformidad a la Ley General de la Administración Pública.
+La ME podrá resolver unilateralmente sus contratos por motivo de incumplimiento grave imputable al contratista. Para ello, el AC deberá documentar preliminarmente el incumplimiento y coordinar con la PI la orden de suspensión del contrato. Una vez suspendido el contrato, el AC solicitará a la AM tramite el procedimiento de resolución contractual de conformidad con lo dispuesto en el artículo 114 de la LGCP.

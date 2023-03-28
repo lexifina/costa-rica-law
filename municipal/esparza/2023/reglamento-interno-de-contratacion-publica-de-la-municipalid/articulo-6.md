@@ -1,0 +1,1 @@
+Artículo 6. Mecanismo para gestionar el acto. Todos los trámites que gestione la PI deberán efectuarse mediante el SDU o el que defina a futuro la DCPMH, excepto en aquellos casos autorizados por Ley.

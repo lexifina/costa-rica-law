@@ -1,0 +1,1 @@
+Artículo 39. De la rescisión por mutuo acuerdo. La ME podrá rescindir sus contratos por mutuo acuerdo cuando existan razones de interés público y no se presenten causas de resolución contractual imputables al contratista. Para ello, el AC en coordinación con la PI y la GJ motivarán mediante resolución administrativa las razones que fundamentan tal determinación.

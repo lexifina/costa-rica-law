@@ -1,0 +1,1 @@
+Artículo 27. De la solicitud de contratación. Una vez tramitada y aprobada la solicitud de bienes y servicios, los encargados de los US deberán confeccionar la respectiva solicitud de contratación en el SDU, la cual debe contener toda la información necesaria para que la PI pueda gestionar el respectivo procedimiento de contratación.
