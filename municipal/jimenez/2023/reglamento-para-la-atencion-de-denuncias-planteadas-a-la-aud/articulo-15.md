@@ -1,0 +1,1 @@
+Artículo 15.-Del traslado de la denuncia a la Administración Activa, específicamente al Jerarca: La Auditoría Interna, luego de analizar el contenido de las denuncias presentadas ante esta Unidad, podrá trasladar al Jerarca Institucional para su atención, conforme al análisis realizado, mediante formulario F-053-" Traslado de gestión".

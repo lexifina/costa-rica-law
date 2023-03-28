@@ -1,0 +1,4 @@
+Artículo 20.-Vigencia: El presente Reglamento rige a partir de su publicación en el Diario Oficial La Gaceta N° de del año 2021.
+Con base en lo estipulado por el artículo 43 del Código Municipal, el presente Proyecto de Reglamento para la Atención de Denuncias Planteadas a la Auditoría Interna de la Municipalidad de Jiménez, se somete a consulta pública no vinculante por un plazo de doce días hábiles a partir de su publicación, transcurridos los cuales el Concejo se pronunciará sobre el fondo de la propuesta.
+Los interesados podrán hacer sus observaciones por escrito ante la Secretaría del Concejo Municipal de Jiménez, sita en el edificio municipal o al correo: secretariaconcejo@ munijimenez.go.cr
+Publíquese en el Diario Oficial La Gaceta. Comuníquese a la Alcaldía Municipal, con copia a la Auditoría Interna.
