@@ -16,3 +16,4 @@ Reglamento general de los comités de apoyo a la Junta Directiva General y Admin
 | 1 | 2021-03-18 | la propia norma |
 | 2 | 2022-05-24 | Reglamento 20 (2022-05-24) |
 | 3 | 2022-12-06 | Reglamento 43 (2022-12-06) |
+| 4 | 2023-03-28 | Reglamento 15 (2023-03-28) |
