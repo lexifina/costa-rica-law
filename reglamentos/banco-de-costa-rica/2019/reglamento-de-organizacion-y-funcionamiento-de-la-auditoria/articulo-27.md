@@ -1,2 +1,0 @@
-Artículo 27
-La Auditoría Interna incorpora entre sus recursos, el uso de profesionales o técnicos de diferentes disciplinas servidores o no de la institución- para que lleven a cabo labores de su especialidad, en apoyo a las labores de auditoría interna que requieran de conocimientos, técnicas u otras competencias adicionales, lo cual podrá realizar por medio de contratación de servicios a terceros, por medio de procedimientos de contratación administrativa.

@@ -1,2 +1,0 @@
-Artículo 49
-Los servidores de la Auditoría Interna que lleven a cabo las investigaciones preliminares y confección del informe de relación de hecho u otro informe, pueden comparecer en las audiencias del Órgano Director en su carácter exclusivo de expertos calificados, y únicamente serán cuestionados, sobre las eventuales dudas que del informe surjan en el curso del procedimiento administrativo en el ámbito de la materia en investigación.

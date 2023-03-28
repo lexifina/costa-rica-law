@@ -1,3 +1,0 @@
-Artículo 16
-El auditor interno es el único autorizado para dirigir, según su criterio, las labores de la Auditoría Interna, a cuyo efecto es el jefe del personal de la Auditoría Interna y organiza dicha oficina según la técnica en la materia y en la forma que considere más apropiada para el desempeño de su cometido, conforme a las disposiciones legales y reglamentarias vigentes.
-De conformidad con lo dispuesto en el artículo 24 de la Ley general de control interno, para el nombramiento, remoción y demás movimiento del personal a su cargo, el gerente general requiere de la autorización del auditor interno.

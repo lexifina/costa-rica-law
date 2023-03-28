@@ -1,2 +1,0 @@
-Artículo 18
-Los requisitos para el nombramiento del auditor interno y subauditor interno deben establecerse en los respectivos perfiles de puestos en concordancia con lo establecido en el punto 2.1.2 Requisitos Mínimos y se solicita en el punto 2.4.2 Observancia de los requisitos de los cargos de auditor y subauditor internos de los Lineamientos sobre gestiones que involucran a la Auditoría Interna presentadas ante la Contraloría General de la República, emitidos por la Contraloría General de la República.
