@@ -1,0 +1,1 @@
+Artículo 39º De la información. La información reflejada de manera digital por parte del contrato de geolocalización puede ser consultada por la jefatura que tenga a cargo el personal que haga uso de los vehículos oficiales. La jefatura puede solicitar al Área de Servicios Institucionales el acceso a datos específicos de giras y funcionarios relacionados.

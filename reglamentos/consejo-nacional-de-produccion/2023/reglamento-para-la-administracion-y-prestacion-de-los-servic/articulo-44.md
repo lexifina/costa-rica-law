@@ -1,0 +1,1 @@
+Artículo 44° Vigencia. Este Reglamento regirá a partir de su publicación en el Diario Oficial La Gaceta y deroga cualquier otra disposición interna que se le oponga. Este reglamento fue aprobado por la Junta Directiva del Consejo Nacional de Producción, mediante Acuerdo Nº 40117, tomado en el Artículo 10° de la Sesión Ordinaria Nº 3120, celebrada el día 02 de febrero del 2023.

@@ -1,0 +1,1 @@
+Artículo 10º Uso de motocicletas. Las motocicletas asignadas a las Direcciones Regionales y Sede Central serán utilizadas cumpliendo todos los requerimientos técnicos y legales que correspondan según su naturaleza.

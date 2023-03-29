@@ -1,0 +1,5 @@
+Artículo 2° Asignación de vehículos administrativos: Los vehículos de uso administrativo estarán asignados al Área de Servicios Institucionales de la Sede Central del CNP, Área Administrativa FANAL o aquellas dependencias que por sus funciones tengan vehículos a su cargo, salvo las siguientes excepciones debidamente justificadas:
+a. Por la naturaleza de sus funciones y para el cumplimiento de sus fines a la Gerencia General, a la Subgerencia General y Sub-Gerencias específicas.
+b. Por la lejanía de la sede central respecto de las oficinas de transporte regional a las Direcciones Regionales.
+La Gerencia General o Subgerencia General, mediante oficio y debidamente justificado, podrá autorizar la asignación de vehículos de uso administrativo de una dependencia a otra, por necesidad institucional.
+Todos los vehículos estarán sujetos a lo dispuesto en la Ley de Tránsito en su título VIII y sus capítulos; además de lo establecido en el presente reglamento referente a los vehículos de uso administrativo.

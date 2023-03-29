@@ -1,0 +1,1 @@
+Artículo 43 ° Divulgación del Reglamento. Una vez publicado el Reglamento, corresponderá al Área de Servicios Institucionales en coordinación con el Área de Tecnología y Sistemas de Información velar por la debida divulgación del mismo mediante el uso de las tecnologías de la información y comunicación institucionales.

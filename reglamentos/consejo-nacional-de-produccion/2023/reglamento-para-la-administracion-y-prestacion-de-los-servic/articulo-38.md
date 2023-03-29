@@ -1,0 +1,1 @@
+Artículo 38º De las prohibiciones. Se prohíbe a los y las usuarias de los vehículos, que manipulen, revisen o muevan el dispositivo y sus dispositivos adicionales que brindan información a este geolocalizador instalado en los vehículos.
