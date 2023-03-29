@@ -1,1 +1,0 @@
-Artículo 21. Expedientes administrativos. - La documentación original que se refiera a expedientes administrativos tipificados estará bajo la custodia y administración del Archivo Central del Departamento de Gestión Documental o bien según la clasificación que a continuación se indicará.

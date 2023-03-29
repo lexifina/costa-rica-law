@@ -1,1 +1,0 @@
-Artículo 35. Ingreso de documentación externa. -El Departamento de Gestión Documental es la única dependencia responsable en la Institución del ingreso de la correspondencia externa, independientemente de su origen, forma y soporte.

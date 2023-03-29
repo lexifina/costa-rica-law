@@ -1,1 +1,0 @@
-Artículo 23. Apertura de Expedientes Tarifarios. - Para el trámite relacionado con Estudios Tarifarios, el DEGD conformará el expediente correspondiente. Lo anterior, sin perjuicio que el Departamento de Gestión Documental pueda confirmar con las dependencias la información requerida para la apertura de estos.

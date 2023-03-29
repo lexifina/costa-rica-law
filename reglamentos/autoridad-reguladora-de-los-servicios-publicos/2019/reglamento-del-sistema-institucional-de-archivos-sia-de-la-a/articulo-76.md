@@ -1,1 +1,0 @@
-Artículo 76. Eliminación de los documentos electrónicos. - La eliminación de los documentos electrónicos se realizará de acuerdo con los plazos establecidos en las Tablas de Plazos de Conservación Documental de cada unidad productora.

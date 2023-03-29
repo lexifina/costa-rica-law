@@ -1,1 +1,0 @@
-Artículo 51. Condiciones de preservación de documentos. - Se deberán observar las medidas de preservación y seguridad de los documentos e instalaciones establecidas en el procedimiento “GD-DI-22 Especificación de requerimientos para la correcta preservación y control de los documentos en la gestión del Archivo Central del Departamento de Gestión Documental”.

@@ -1,1 +1,0 @@
-Artículo 55. Inventario Documental. -Todos los Archivos de gestión deben contar con el registro de la documentación descrita en un inventario para lo cual deben seguir lo estipulado en el AG-PO-02: Procedimiento de Control de Registros del Sistema de Gestión de la Calidad.

@@ -1,1 +1,0 @@
-Artículo 72. Firma digital. - Con respecto a la firma digital se aplicarán los lineamientos aprobados en conjunto por el Departamento de Gestión Documental y la Dirección de Tecnologías de Información.

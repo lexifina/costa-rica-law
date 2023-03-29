@@ -1,2 +1,0 @@
-Artículo 16. Funciones de las jefaturas de las dependencias con Archivos de Gestión.
-- Las jefaturas de las dependencias serán las responsables de la adquisición de los materiales, equipo, mobiliario, recursos y suministros en general, requeridos para la adecuada administración y control de la documentación de los Archivos de Gestión. Debe solicitar la asesoría previa al Departamento de Gestión Documental, con el objetivo de adquirir el material, equipos y mobiliario adecuado para provisionar adecuadamente su Archivo de Gestión.

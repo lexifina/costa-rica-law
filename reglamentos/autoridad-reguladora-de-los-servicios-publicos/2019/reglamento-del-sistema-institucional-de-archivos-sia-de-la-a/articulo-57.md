@@ -1,1 +1,0 @@
-Artículo 57. Reproducciones. - El Centro de Fotocopiado del Departamento de Servicios Generales estará facultado para reproducir documentos, tanto para funcionarios de la Institución como para usuarios externos. La reproducción documental podrá ser limitada por motivos de conservación, protección de datos sensibles, entre otros.

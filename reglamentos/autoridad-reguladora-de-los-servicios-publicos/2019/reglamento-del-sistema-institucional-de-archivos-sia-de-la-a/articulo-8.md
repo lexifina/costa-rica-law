@@ -1,3 +1,0 @@
-Artículo 8. Documentos confidenciales. - Serán declarados documentos confidenciales, aquellos documentos producidos en la Institución, que sean definidos como tales por la Jefatura de la dependencia coordinadora emisora mediante resolución motivada, de conformidad con lo estipulado en el artículo 273 de la Ley General de Administración Pública.
-Los prestadores de los servicios públicos regulados por Aresep podrán solicitar la confidencialidad de los documentos que presenten ante la Institución, siguiendo para ello el Procedimiento para la declaratoria de confidencialidad.
-Una vez declarados los documentos como confidenciales se rigen por el instructivo referido al trámite de documentos confidenciales, establecido por el Departamento de Gestión Documental.

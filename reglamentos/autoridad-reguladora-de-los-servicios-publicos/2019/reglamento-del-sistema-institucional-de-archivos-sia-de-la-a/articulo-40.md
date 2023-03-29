@@ -1,1 +1,0 @@
-Artículo 40. Ingreso de correspondencia vía apartado postal. - La correspondencia vía apartado postal ingresará al Departamento de Gestión Documental a través del registro de control de correspondencia que entregará el mensajero externo de la Institución al funcionario encargado de la ventanilla única.

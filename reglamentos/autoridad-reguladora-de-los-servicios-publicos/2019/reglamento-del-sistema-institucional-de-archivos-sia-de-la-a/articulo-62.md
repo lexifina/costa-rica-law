@@ -1,1 +1,0 @@
-Artículo 62. Consulta de documentos. - Los documentos consultados por los usuarios serán devueltos al funcionario del Departamento de Gestión Documental, quién los revisará antes de dar el recibido conforme, procederá a su posterior reubicación y realizará el registro de devolución en el Sistema de Información correspondiente.

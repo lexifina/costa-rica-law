@@ -1,1 +1,0 @@
-Artículo 44. Directrices para la recepción y envío de correspondencia. - El Regulador General dictará las directrices o lineamientos de acatamiento obligatorio para la recepción y envío de correspondencia a través del fax, correo electrónico y el apartado postal.

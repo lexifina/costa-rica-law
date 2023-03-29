@@ -1,1 +1,0 @@
-Artículo 47. Colaboración inmediata. - Todas las dependencias están en la obligación de atender de inmediato las consultas del Departamento de Gestión Documental, en caso de que ingresen documentos externos que por su naturaleza requiera un mayor análisis para determinar la dependencia coordinadora de dar trámite.

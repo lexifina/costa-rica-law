@@ -1,1 +1,0 @@
-Artículo 61. Salida de documentos. - La documentación física y electrónica ya sea original o copia custodiada en el Departamento de Gestión Documental no podrá salir de la Institución, salvo en casos que haya sido requerida por mandato judicial, por la Contraloría General de la República u otros órganos o instituciones autorizadas por Ley para tal efecto.
