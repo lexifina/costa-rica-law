@@ -1,0 +1,3 @@
+CAPÍTULO III:
+Prevención del Hostigamiento Sexual
+Artículo 9°-Las obligaciones en relación con la tutela de derechos en materia de hostigamiento sexual y personas responsables. La Alcaldía, por medio de Talento Humano, dará a conocer a los y las servidores y servidoras municipales y demás personas usuarias, la existencia de este procedimiento; además, instruirá el proceso de capacitación para todas las personas de la Municipalidad, sobre la normativa en materia de hostigamiento sexual, su divulgación, interpretación, aplicación y promoverá actividades que fomenten valores y principios de respeto a la dignidad humana y la no discriminación, conforme con las estrategias que ésta defina.

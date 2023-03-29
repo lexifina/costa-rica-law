@@ -1,0 +1,1 @@
+Artículo 20.-Información a la Defensoría de los Habitantes. La jefatura competente deberá informar a la Defensoría de los Habitantes sobre la denuncia recibida, con el objeto de que tenga conocimiento formal de ésta, acceso al expediente e intervención en el procedimiento, para efectos de que pueda ejercer la función asesora y contralora de legalidad.

@@ -1,0 +1,1 @@
+Artículo 38.-Dictado de acto final del procedimiento. Una vez conocido y valorado el pronunciamiento de la Junta de Relaciones Laborales, el órgano decisor deberá emitir el acto final dentro del plazo de un mes, después de recibido el expediente administrativo, momento a partir del cual empieza a correr el plazo de prescripción que legalmente corresponda.

@@ -1,0 +1,1 @@
+Artículo 13.-Obligación de los y las servidores y servidoras municipales de denunciar. Los y las servidores y/o servidoras municipales que noten cualquier conducta que pudiera inducir a un caso de hostigamiento sexual, en los lugares de trabajo y en las instalaciones del mismo deberá denunciarlo.

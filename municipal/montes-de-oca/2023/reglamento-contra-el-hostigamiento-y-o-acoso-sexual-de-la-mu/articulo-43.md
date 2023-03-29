@@ -1,0 +1,1 @@
+Artículo 43.-La comunicación del acto final a la Defensoría de los Habitantes. Cuando el acto final adquiera firmeza, éste debe ser comunicado a la Defensoría de los Habitantes, por parte de Talento Humano.

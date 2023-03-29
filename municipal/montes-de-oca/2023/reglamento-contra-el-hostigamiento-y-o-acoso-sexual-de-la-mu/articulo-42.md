@@ -1,0 +1,1 @@
+Artículo 42.-Sobre la Queja. La interposición de una queja contra los órganos del procedimiento administrativo deberá presentarse ante el superior de la autoridad o servidor o servidora municipal que se presuma responsable de la falta que se reclama, de conformidad con lo dispuesto en los artículos 358, 359 y 360 de la Ley General de Administración Pública.

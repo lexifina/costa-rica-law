@@ -1,0 +1,8 @@
+Artículo 7°-Definiciones
+Hostigamiento sexual: se entiende por hostigamiento sexual o acoso sexual toda conducta sexual escrita, verbal, no verbal, física o simbólica, indeseada por quien la recibe, que puede ser reiterada o aislada, que provoque una interferencia en las condiciones, desempeño laboral en la prestación de servicio, así como en el estado general de bienestar personal.
+Víctima: es la persona que sufre el hostigamiento sexual. La víctima puede estar en una relación vertical descendente, quienes ocupan puestos de jerarquía respecto de la víctima; vertical ascendente, quienes ocupan puestos subalternos respecto del jefe victimizado; horizontal, quienes ocupan un nivel similar en la jerarquía, en virtud de un vínculo causado por la prestación de servicios.
+Persona denunciada: la persona trabajador y/o trabajadora a quien se le atribuye una presunta conducta de hostigamiento sexual.
+Denunciante: toda aquella persona física o jurídica que, de acuerdo con este procedimiento, ostenta la legitimación para presentar una denuncia.
+Órgano Decisor: El Alcalde o la Alcaldesa que ostenta la competencia a nivel administrativo de resolver cualquier aspecto de fondo y dictar el acto final.
+Concejo Municipal que ostenta la competencia respecto a los funcionarios que dependen del concejo, de resolver cualquier aspecto de fondo y dictar el acto final.
+Órgano Director: Órgano Colegiado interno o externo, nombrado por El o la Alcalde o Alcaldesa o el Concejo Municipal según corresponda, encargados de instruir el procedimiento según lo establece la Ley General de Administración Pública.

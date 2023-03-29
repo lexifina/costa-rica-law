@@ -1,0 +1,1 @@
+Artículo 39.-La ejecución del acto final. Una vez que el acto final del procedimiento administrativo se declare firme se ejecutará, de lo cual se dejará constancia en el expediente personal del o la investigado y/o investigada y se comunicará a Talento Humano y consecuentemente a la Defensoría de los Habitantes.

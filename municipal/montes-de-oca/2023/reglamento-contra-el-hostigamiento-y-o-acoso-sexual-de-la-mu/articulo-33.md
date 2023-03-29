@@ -1,0 +1,3 @@
+Artículo 33.-De la oposición a la gestión disciplinaria. La persona denunciada tendrá un plazo de tres (3) días hábiles posterior a la notificación para oponerse a la propuesta de sanción disciplinaria.
+Vencido el plazo sin que se oponga a la propuesta de sanción, el o la Alcalde o Alcaldesa, dictará el acto final que corresponda, sin perjuicio de los recursos ordinarios.
+Si el o la denunciante se opusiere a la propuesta de sanción disciplinaria, lo hará constar mediante escrito razonado ante el o la Alcalde o Alcaldesa que hace la sanción, la que remitirá directamente y de manera inmediata, la oposición presentada a la Junta de Relaciones Laborales.

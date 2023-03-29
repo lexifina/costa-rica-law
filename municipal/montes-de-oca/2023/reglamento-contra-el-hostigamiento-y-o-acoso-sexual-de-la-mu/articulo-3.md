@@ -1,0 +1,1 @@
+Artículo 3°-Deber de los proveedores de servicio. En los contratos de proveedores de servicio que celebre la Municipalidad con un tercero, se establecerá una disposición de prevención y sanción por hostigamiento sexual.

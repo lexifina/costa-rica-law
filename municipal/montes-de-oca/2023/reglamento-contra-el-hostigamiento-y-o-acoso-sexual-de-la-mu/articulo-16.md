@@ -1,0 +1,1 @@
+Artículo 16.-Participación de técnicos y/o profesionales en diferentes disciplinas. Siempre y cuando resulte pertinente para el buen desarrollo del procedimiento, el órgano director solicitará la participación de técnicos y/o profesionales en calidad de peritos, en la rama respectiva que se requiera valorar.
