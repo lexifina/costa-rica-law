@@ -1,0 +1,2 @@
+Artículo 8º- Derogatorias.
+Se dejan sin efecto las resoluciones n°DGT-R-075-2019 de las 08:05 horas del 12 de diciembre de 2019, denominada "Resolución sobre el deber de inscripción y declaración de sociedades inactivas y adición a la resolución nºDGT-R-012-2018 sobre comprobantes electrónicos"; n°DGT-R-38-2020 de las 08:05 horas del 5 de noviembre del 2020; n°DGT-R-02-2021 de las 08:05 horas del 12 de enero del 2021; n°DGT-R-03-2021 de las 08:05 horas del 15 de enero del 2021 y n°DGT-R-21-2022 de las 08:15 horas del 4 de agosto del 2022.
