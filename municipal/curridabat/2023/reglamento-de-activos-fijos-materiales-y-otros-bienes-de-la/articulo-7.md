@@ -1,0 +1,1 @@
+Artículo 7º-Cada departamento contará con un talonario de solicitudes de bienes y servicios que será registrado por el Departamento de Proveeduría, con el fin de determinar a qué departamento corresponde según numeración.

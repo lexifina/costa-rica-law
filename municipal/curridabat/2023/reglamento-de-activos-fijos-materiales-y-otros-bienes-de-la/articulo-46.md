@@ -1,0 +1,3 @@
+CAPÍTULO VIII
+Activos para miembros del Concejo Municipal
+Artículo 46.-Para poder llevar a cabo las funciones y tareas los miembros del Concejo Municipal en forma adecuada y acorde a las tecnologías de información actuales, así como de conformidad con las políticas públicas de Acceso Universal a Internet cada miembro podrá contar con una computadora portátil, según lo disponga el Concejo mediante acuerdo, y además una computadora se colocará en el sitio que mejor garantice el acceso a los integrantes del Concejo. Lo anterior a fin de realizar sesiones en forma virtual, según lo disponga en reglamento de orden, Dirección y debates del Concejo Municipal.

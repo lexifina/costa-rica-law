@@ -1,0 +1,1 @@
+Artículo 62.-El Departamento de Tecnologías de Información será el responsable de desarrollar y ejecutar en caso de ser necesario un Plan de contingencia y continuidad de los sistemas y la información de la Municipalidad. El Departamento debe mantenerlo actualizado y con revisiones anuales.

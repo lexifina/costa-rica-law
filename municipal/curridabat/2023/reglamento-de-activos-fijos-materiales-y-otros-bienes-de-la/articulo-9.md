@@ -1,0 +1,1 @@
+Artículo 9º-La Proveeduría Municipal contará con un plazo de cinco días hábiles, después de la fecha de recibido para hacer la devolución de la solicitud si esta no estuviese conforme a lo establecido o faltasen detalles que no permitan iniciar el proceso de compra.

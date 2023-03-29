@@ -1,0 +1,1 @@
+Artículo 57.-El Departamento de Recursos Humanos y la Secretaría Municipal coordinarán la devolución de activos al Departamento de Contabilidad, y la Unidad de Bienes Municipales, asignados a funcionarios que cesan en sus funciones y/o miembros del Concejo Municipal.

@@ -1,0 +1,1 @@
+Artículo 31.-Es obligación del Departamento de Contabilidad verificar la existencia de los bienes inventariados a cargo de las distintas dependencias de la Administración Municipal y velará por la aplicación de este reglamento en los casos que le proceda.

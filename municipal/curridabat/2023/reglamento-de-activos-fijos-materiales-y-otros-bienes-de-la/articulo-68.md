@@ -1,0 +1,1 @@
+Artículo 68.-El Departamento de Tecnologías de Información debe llevar un control de copias de seguridad con sus respectivos etiquetados y bitácora, las cuales puedan dar trazabilidad y registro de todas las copias realizadas o sus respectivas destrucciones una vez que cumplan su vida útil.

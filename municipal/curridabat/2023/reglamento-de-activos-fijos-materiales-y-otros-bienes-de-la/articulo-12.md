@@ -1,0 +1,1 @@
+Artículo 12.-El ingreso de activos a la Municipalidad se dará por compras, traspasos o donaciones. En otros términos, el ingreso está perfeccionado cuando se reciben los bienes y se firma la factura de traspaso, remisión o la nota de traspaso.
