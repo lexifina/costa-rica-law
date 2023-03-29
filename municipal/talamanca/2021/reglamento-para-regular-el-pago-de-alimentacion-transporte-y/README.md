@@ -14,3 +14,4 @@ Reglamento para regular el pago de alimentación, transporte y hospedaje, dentro
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-06-11 | la propia norma |
+| 2 | 2023-03-29 | Reglamento municipal 149 (2023-03-29) |
