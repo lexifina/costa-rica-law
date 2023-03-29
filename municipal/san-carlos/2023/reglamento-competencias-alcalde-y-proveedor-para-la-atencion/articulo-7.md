@@ -1,0 +1,1 @@
+Artículo 7°-Actos celebrados por el alcalde. Todos los actos contemplados dentro del presente reglamento deberán ajustarse a las normas y principios establecidos en la Ley General de Contratación Pública N° 9986 y su Reglamento.

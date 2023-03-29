@@ -1,0 +1,1 @@
+Artículo 3°-Orden de Pedido. Corresponderá al Proveedor Municipal la gestión de aprobación de la orden de pedido en todos los procesos de contratación, indistintamente del monto de la cuantía del proceso.

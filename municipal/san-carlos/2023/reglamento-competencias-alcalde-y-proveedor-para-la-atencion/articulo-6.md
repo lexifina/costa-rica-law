@@ -1,0 +1,1 @@
+Artículo 6°-Autorización de pago. La autorización del documento de pago en todos los procesos de licitación indistintamente del monto de la cuantía del proceso, se firmará conforme el artículo 14° del Reglamento para la autorización y el pago de egresos de la Municipalidad de San Carlos.

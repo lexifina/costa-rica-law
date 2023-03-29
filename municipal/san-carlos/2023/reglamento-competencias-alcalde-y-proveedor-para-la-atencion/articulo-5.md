@@ -1,0 +1,1 @@
+Artículo 5°-Aprobación de la nómina. Corresponderá al director general la gestión de aprobación de la nómina de pago en todos los procesos de contratación, indistintamente del monto de la cuantía del proceso.
