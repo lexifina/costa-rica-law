@@ -1,0 +1,1 @@
+Artículo 2º-El presente reglamento deberá ser acatado por las autoridades del Concejo Municipal, el personal administrativo municipal y por los sectores que postulen representantes para la conformación del Comité Cantonal de la Persona Joven de la localidad.

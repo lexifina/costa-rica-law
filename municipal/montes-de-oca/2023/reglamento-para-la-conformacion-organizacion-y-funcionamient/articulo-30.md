@@ -1,0 +1,4 @@
+TÍTULO III
+CAPÍTULO ÚNICO
+De los Libros de Actas
+Artículo 30.-El Comité Cantonal de la Persona Joven deberá contar con un libro de actas donde se transcribirán los acuerdos tomados por el Comité, las cuales estarán firmados por quien ocupe la presidencia y la secretaría.
