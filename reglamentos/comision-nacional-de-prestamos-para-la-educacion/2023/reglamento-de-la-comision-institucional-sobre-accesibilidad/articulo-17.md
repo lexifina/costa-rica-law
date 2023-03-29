@@ -1,0 +1,1 @@
+Artículo 17.-Normativa supletoria. Para lo no contemplado en el presente Reglamento, la CIAD se regirá supletoriamente por lo dispuesto en la Ley Nº 7600, Igualdad de Oportunidades para las Personas con Discapacidad, su Reglamento (Decreto 26831 MP, publicado en La Gaceta del 20 de abril de 1998) y la Directriz Presidencial Nº 27 para las instituciones públicas.

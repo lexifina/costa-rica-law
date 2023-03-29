@@ -1,0 +1,1 @@
+Artículo 14.-Disponibilidad de tiempo. Los miembros de la CIAD deberán asistir a las sesiones y atender diligencias o actividades propias de la comisión; para ello la Institución garantiza la disposición del tiempo necesario, sin perjuicio del cumplimiento de las funciones propias del cargo que el funcionario desempeñe en la institución.

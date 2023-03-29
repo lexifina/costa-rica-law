@@ -1,0 +1,3 @@
+Artículo 12.-Recursos. La CIAD centralizará su documentación, recepción y remisión de su correspondencia y su gestión institucional, en la Sección Administrativa. Además, podrá gestionar los recursos humanos y materiales
+indispensables para el logro de su cometido; para ello, se ajustará a la "Ley Nº 7600, Igualdad de Oportunidades para las Personas con Discapacidad, la Ley de Control Interno y las Políticas Institucionales en materia de Auditoría, Fiscalización y Control".
+La CIAD formulará el plan anual operativo y presupuesto anuales mediante los mecanismos establecidos internamente. La Sección de Planificación y Evaluación deberá verificar que el respectivo contenido presupuestario se establezca en el presupuesto del año correspondiente.

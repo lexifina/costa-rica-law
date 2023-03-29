@@ -1,0 +1,12 @@
+Artículo 11.-Funciones. Para cumplir su cometido, de acuerdo con la "Ley Nº 7600 Igualdad de Oportunidades para las personas con Discapacidad y las políticas Institucionales en materia de Discapacidad", la CIAD cumplirá las siguientes funciones:
+a) Organizar su funcionamiento administrativo a lo interno del CIAD.
+b) Promover y fiscalizar el proceso de formulación, ejecución y evaluación de la política institucional en materia de discapacidad.
+c) Recomendar a la administración de CONAPE, la eliminación de acciones o disposiciones que promuevan la discriminación, dificulten la accesibilidad o impidan la participación ciudadana de personas con discapacidad en los programas o servicios que brinde la institución.
+d) Consultar a miembros de la población con discapacidad, tanto interna como externa, acerca de las políticas y directrices en dicha materia que podrían implementarse en la institución; mediante los mecanismos técnicos pertinentes.
+e) Promover y fiscalizar que las unidades administrativas de CONAPE tomen las medidas necesarias, a fin de brindar el apoyo que los funcionarios con discapacidad requieran para el desempeño de sus funciones; asimismo, las facilidades necesarias para el acceso de personas con discapacidad a los servicios institucionales.
+f) Velar porque la información que se brinda tanto a los funcionarios como a los administrados sea accesible y comprensible para la población con discapacidad.
+g) Procurar un manejo adecuado de la imagen de la población con discapacidad, en el lenguaje empleado en cualquier tipo de información que se difunda.
+h) Colaborar con todos los departamentos, secciones y dependencias institucionales para que el tema de la discapacidad sea considerado en los asuntos propios de la unidad administrativa de que se trate.
+i) Consultar a personas con discapacidad y a organizaciones no gubernamentales que trabajan en la materia, acerca de las políticas en discapacidad que se piense implementar en CONAPE, así como sobre las iniciativas de ley que las afecten directa o indirectamente.
+j) Revisar y evaluar anualmente las políticas institucionales en materia de accesibilidad y discapacidad las políticas de CONAPE, e informar de ellas tanto a la Secretaria Ejecutiva como al Consejo Nacional de Personas con Discapacidad (CONAPDIS) como ente rector en el ramo.
+k) Atender la generación de informes, rendición de cuentas, solicitudes y demandas de información de entes internos como externos en materia de accesibilidad y discapacidad.
