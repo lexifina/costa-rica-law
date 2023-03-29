@@ -14,3 +14,4 @@ Reglamento de acueducto municipal
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-11-21 | la propia norma |
+| 2 | 2023-03-29 | Reglamento municipal 0 (2023-03-29) |
