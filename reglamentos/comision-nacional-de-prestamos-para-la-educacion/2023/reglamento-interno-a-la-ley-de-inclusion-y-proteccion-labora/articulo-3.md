@@ -1,0 +1,1 @@
+Artículo 3º-Objeto del Reglamento. El presente Reglamento tiene como objeto regular los mecanismos para la efectiva aplicación y seguimiento de la Ley Nº 8862 "Ley de Inclusión y Protección Laboral de las Personas con Discapacidad en el Sector Público", a fin de alcanzar la más plena inclusión de las personas con discapacidad en el ámbito laboral del sector público.

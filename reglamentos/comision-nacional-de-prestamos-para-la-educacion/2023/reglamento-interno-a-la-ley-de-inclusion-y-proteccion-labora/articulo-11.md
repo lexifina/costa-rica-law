@@ -1,0 +1,1 @@
+Artículo 11.-Obligación de contratar. La Sección de Recursos Humanos deberá escoger de manera obligatoria a la persona con discapacidad que haya superado las pruebas selectivas y de idoneidad correspondientes y que acepte el puesto, aunque la nómina o la designación haya sido conformada por un(a) solo(a) candidato(a) o solo una persona se hubiese presentado a la entrevista.
