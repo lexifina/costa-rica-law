@@ -14,3 +14,4 @@ Distribución de competencias en contratación administrativa para el Instituto 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-03-20 | la propia norma |
+| 2 | 2023-03-29 | Acuerdo 0 (2023-03-29) |
