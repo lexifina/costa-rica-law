@@ -14,3 +14,4 @@ Normativa para la autorización del servicios social obligatorio como médicos y
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-03-24 | la propia norma |
+| 2 | 2023-03-29 | Reglamento 0 (2023-03-29) |
