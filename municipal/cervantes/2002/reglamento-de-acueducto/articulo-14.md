@@ -1,3 +1,0 @@
-Artículo 14.—La petición de nuevos servicios presentada ante la Municipalidad debe hacerse mediante solicitud escrita, fechada, con la anotación de su número de cédula, teléfono si lo tuviese, lugar específico para escuchar notificaciones y firmada por el interesado, de ser acogida la misma, se debe comunicar por escrito al solicitante para que proceda a cancelar el derecho por nueva conexión, así como el costo por conexión o prevista.
-Las solicitudes se tramitarán ante la administración municipal la cual aprobará o denegará el servicio si las mismas no se ajustan al presente reglamento.
-Dichas solicitudes serán registradas y conferidas en forma cronológica cuando ello proceda.

@@ -1,1 +1,0 @@
-Artículo 41.—Las aguas potables de los ríos y vertientes, en cualquier parte del territorio nacional donde se encuentren estarán afectas al servicio de un sistema de agua potable para las poblaciones, según lo disponga el Poder Ejecutivo (artículo 30 de la Ley de Aguas Nº 276 del 27 de agosto 1942).
