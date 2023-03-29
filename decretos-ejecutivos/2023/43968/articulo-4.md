@@ -1,0 +1,1 @@
+Artículo 4°-Se autoriza igualmente a las dependencias y entidades de la Administración Pública para que dispongan de recursos que consideren necesarios para auxiliar al SENASA, en la atención de la presente emergencia sanitaria nacional.
