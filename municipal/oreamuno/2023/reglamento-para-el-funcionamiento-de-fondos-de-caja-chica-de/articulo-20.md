@@ -1,0 +1,1 @@
+Artículo 20.-Se confeccionarán reintegros de caja chica, cuando se haya gastado por lo menos un 10% y no más del 90% del fondo fijo, con el propósito de darle la rotación óptima a los recursos y mantener la liquidez del fondo. La realización de los reintegros no podrá ser mayor a un mes, en caso de no haber alcanzado el porcentaje definido.

@@ -1,0 +1,3 @@
+Artículo 11.-Las facturas de las adquisiciones efectuadas con fondos de la Caja Chica, que servirán como comprobante del egreso, deberán cumplir con los siguientes requisitos:
+a. Facturas impresas, solamente las pertenecientes al régimen simplificado, éstas deben ser timbradas, en caso de no ser timbradas deberán tener el sello con los datos de la persona perteneciente régimen simplificado. En caso de que, mediante una reforma a la ley, este régimen deba comenzar a utilizar factura electrónica, ningún tipo de factura impresa podrá ser utilizada como comprobante de gasto.
+b. La factura electrónica debe ser recibida en el correo electrónico asignado por la administración para tal fin, debe contener la factura en PDF, el XML y el aprobado del Ministerio de Hacienda.

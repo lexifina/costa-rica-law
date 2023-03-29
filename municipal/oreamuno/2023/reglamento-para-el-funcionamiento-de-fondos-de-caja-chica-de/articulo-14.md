@@ -1,0 +1,1 @@
+Artículo 14.-No se entregará un segundo vale de caja chica a funcionarios que tengan pendiente la liquidación del primero, si en una semana calendario el funcionario no ha realizado la liquidación ni presentado una justificación razonable por el retraso, se pasará la información a Recursos Humanos para el correspondiente rebajo en la planilla.
