@@ -1,1 +1,0 @@
-Artículo 4º.-Se invita al Poder Legislativo, Poder Judicial, Tribunal Supremo de Elecciones, universidades, municipalidades y al sector privado, a aplicar las disposiciones contempladas en la presente directriz como parte de las medidas sanitarias para la atención de 􀁄a alerta sanitaria por COVID-19.

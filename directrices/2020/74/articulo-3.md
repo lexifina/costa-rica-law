@@ -1,1 +1,0 @@
-Artículo 3º.- Las disposiciones emitidas en la presente Directriz son de carácter temporal. Estas serán revisadas y actualizadas, en este último caso de ser necesario, por el Ministerio de Salud, de conformidad con el comportamiento epidemiológico del COVID-19 en el territorio nacional.
