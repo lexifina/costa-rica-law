@@ -1,0 +1,1 @@
+Artículo 12.-Obligatoriedad. La presente directriz es de acatamiento obligatorio para la actividad contractual de los sujetos privados, cubiertos por el ámbito de aplicación del artículo 1 de la ley N°9986 y de la presente Directriz y prevalecerá sobre aquellas otras disposiciones de igual o inferior rango, emitidas por la Administración en lo que se le opongan.
