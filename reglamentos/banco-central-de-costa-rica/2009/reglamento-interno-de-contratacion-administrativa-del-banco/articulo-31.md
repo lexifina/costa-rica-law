@@ -1,1 +1,0 @@
-Artículo 31.—De las contrataciones infructuosas de escasa cuantía. La Proveeduría Institucional tendrá la facultad de tramitar, en forma directa, con un potencial oferente aquellas compras cuyo objeto se hubiere concursado anteriormente en dos ocasiones y no se hayan recibido ofertas.

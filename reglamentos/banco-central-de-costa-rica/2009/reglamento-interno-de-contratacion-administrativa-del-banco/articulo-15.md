@@ -1,4 +1,0 @@
-SECCIÓN II
-Normalización de carteles
-Artículo 15.—De la normalización de carteles tipo. La Proveeduría Institucional tendrá a su cargo el estudio técnico y legal para conformar una base de datos con varios “carteles tipo”, que sirvan de formato o guía en la contratación de bienes, servicios u obras. En la elaboración de algunos casos particulares de compras se realizarán investigaciones dentro y fuera de la Institución, para llegar a conformar un pliego de condiciones que se adecue a las necesidades específicas de los usuarios directos.
-Estos carteles deberán contar con la aprobación de los funcionarios de los Centros de Costo involucrados y del Asesor Jurídico de la Proveeduría Institucional, para que posteriormente sean de uso obligatorio. Se procederá regularmente a revisarlos y actualizarlos y estarán disponibles en los medios electrónicos oficiales utilizados por el BCCR.

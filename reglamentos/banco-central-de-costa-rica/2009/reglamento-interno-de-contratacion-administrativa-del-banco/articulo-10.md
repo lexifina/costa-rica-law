@@ -1,1 +1,0 @@
-Artículo 10.—De la comunicación con los proveedores. Se considera oficial la información generada en el proceso de gestión de compras disponible en la página web, así como cualquier mensaje que se transmita en forma electrónica o telemática.

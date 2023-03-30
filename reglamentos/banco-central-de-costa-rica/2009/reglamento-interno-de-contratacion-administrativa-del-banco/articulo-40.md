@@ -1,3 +1,0 @@
-SECCIÓN III
-La rescisión o resolución contractual
-Artículo 40.—De la rescisión y resolución contractual. De conformidad con lo dispuesto en la LCA y su reglamento, el BCCR y los ODM podrán poner fin a un contrato en forma unilateral o bilateral, ya sea por el incumplimiento del contratista, por causas de fuerza mayor o caso fortuito o por razones de interés público. En tal sentido, la Proveeduría Institucional, en coordinación con el Encargado General de la Contratación, de previo a tomar las acciones pertinentes, motivará mediante resolución administrativa las razones que fundamentan tal determinación.

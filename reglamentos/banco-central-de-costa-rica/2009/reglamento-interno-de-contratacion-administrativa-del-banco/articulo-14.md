@@ -1,1 +1,0 @@
-Artículo 14.—Del control y seguimiento. Todo trámite de contratación administrativa que lleve a cabo la Proveeduría Institucional se regirá de conformidad con los plazos establecidos en el Sistema de Visibilidad de la Actividad Contractual o cualquier otro sistema que se implemente.

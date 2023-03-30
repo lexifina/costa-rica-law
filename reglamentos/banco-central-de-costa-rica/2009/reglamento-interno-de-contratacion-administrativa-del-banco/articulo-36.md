@@ -1,1 +1,0 @@
-Artículo 36.—Del equilibrio económico de los contratos. La Proveeduría Institucional es responsable de atender las gestiones de reajustes y revisión de precios que presenten los contratistas, relativos al mantenimiento del equilibrio económico de las contrataciones administrativas celebradas por la Institución.
