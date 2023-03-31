@@ -198,6 +198,8 @@ L) ANTISÉPTICOS Y PRODUCTOS PARA EL CUIDADO DE LA PIEL:
 1.3.4) Crotamitón al 10% en loción y crema.
 1.3.5) Extracto de flores de manzanilla al 2% p/p crema.
 1.3.6) Lubricantes: Aceite mineral, jalea de dietiltoluamida y aceites esenciales.
+L.3.7) Dexpantenol al 5% p/p en crema.
+(Así adicionado el inciso anterior por el artículo 1° del decreto ejecutivo N° 43995 del 31 de marzo de 2023)
 1.4) Antifúngicos tópicos:
 1.4.1) Ácido undecilénico con Triclosán hasta 1%.
 1.4.2) Bifonazol hasta 1%.

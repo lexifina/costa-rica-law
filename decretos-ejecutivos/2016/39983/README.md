@@ -17,3 +17,4 @@ Declara Medicamentos de Venta Libre al Consumidor
 | 2 | 2018-10-23 | Decreto Ejecutivo 41462 (2018-10-23) |
 | 3 | 2019-03-12 | Decreto Ejecutivo 41646 (2019-03-12) |
 | 4 | 2020-03-12 | Decreto Ejecutivo 42261 (2020-03-12) |
+| 5 | 2023-03-31 | Decreto Ejecutivo 43995 (2023-03-31) |
