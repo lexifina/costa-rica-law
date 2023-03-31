@@ -1,0 +1,1 @@
+Artículo 31. Plazo para presentación de requisitos. El plazo para presentar ante la Auditoría Universitaria los requisitos solicitados para la reposición de libros, es de diez días hábiles contados a partir de la fecha de la última publicación de los edictos.

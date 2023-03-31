@@ -1,0 +1,1 @@
+Artículo 39. Derogaciones. Con la entrada en vigencia del presente Reglamento se deroga el Instructivo para la Autorización de Libros de la Dirección de Auditoría Universitaria de la Universidad Técnica Nacional (AU-SP-01-INS), aprobado el 16 de junio de 2011.

@@ -1,0 +1,1 @@
+Artículo 36. Control general de libros. La Auditoría Universitaria lleva un control general en el que se registra, de forma consecutiva y cronológica, los libros que se reciben y legalizan. El registro incluye al menos la siguiente información: número de asiento, nombre del libro, Sede, Centro o entidad, dependencia u órgano solicitante, tipo de trámite y observaciones.

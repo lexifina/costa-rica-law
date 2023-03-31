@@ -1,0 +1,5 @@
+CAPÍTULO II
+De la legalización de libros
+Artículo 4. Proceso de legalización de libros. En el proceso de legalización de libros, la Auditoría Universitaria verifica en la fase de apertura que el libro u hojas sueltas estén debidamente foliadas, que los folios no hayan sido iniciados, entre otros elementos los cuales determine la Auditoría Universitaria.
+En la fase de cierre verifica que el libro haya sido utilizado para el fin que se autoriza, que los folios estén completos y en orden consecutivo, que no contengan alteraciones físicas, las cuales hagan dudar de la autenticidad de la información, que estén debidamente empastados, que los documentos estén firmados por quien legalmente corresponda y que sean los originales, entre otros elementos.
+Adicionalmente, en el caso de los libros de actas de los órganos colegiados y de las comisiones institucionales, la Auditoría Universitaria puede realizar revisiones adicionales, con el fin de determinar que las actas cumplen con la normativa aplicable a éstas.

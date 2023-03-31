@@ -1,0 +1,6 @@
+CAPÍTULO VI
+DISPOSICIONES FINALES
+Artículo 32. Consultas relacionadas con el trámite y uso de los libros. Las consultas relacionadas con el trámite y uso de libros autorizados deben ser presentadas por escrito ante la Auditoría Universitaria.
+Las consultas relacionadas con asuntos, que puedan afectar la legalidad del libro y sus registros, deben ser realizadas ante la Dirección General de Asuntos Jurídicos con el fin de obtener un criterio jurídico, que respalde las acciones que debe llevar a cabo la administración activa para subsanar la situación que, eventualmente, puede afectar la legalidad del libro.
+Así mismo, las consultas relacionadas con el formato de las actas tienen que ser realizadas a Archivo Institucional, con el fin de obtener el criterio técnico que respalde las acciones que debe llevar a cabo la administración activa para subsanar una situación que, eventualmente, puede afectar el cumplimiento de la normativa en materia de archivística.
+La dependencia u órgano colegiado debe remitir, conjuntamente con el formulario de solicitud de cierre de libros, copia de los criterios jurídicos o técnicos que haya obtenido en el proceso de subsanación o revisión de libros autorizados, si corresponde a documentos físicos con firma manuscrita, o bien remitir vía correo electrónico el documento con certificado de firma digital.

@@ -1,0 +1,1 @@
+Artículo 27. Retiro del libro con razón de cierre. Una vez finalizada la fase de cierre se informa a la persona solicitante, vía correo electrónico institucional, para que retire el libro, por lo que una vez remitida la comunicación, la dependencia u órgano solicitante debe coordinar su retiro.

@@ -1,0 +1,1 @@
+Artículo 35. Controles de la Auditoría Universitaria. La Auditoría Universitaria cuenta con un control de los libros autorizados, en el que se incorpora y registra la información de cada libro autorizado, tanto a nivel general como a nivel individual.

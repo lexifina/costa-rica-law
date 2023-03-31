@@ -1,0 +1,1 @@
+Artículo 40. Vigencia. El presente Reglamento empieza a regir dos meses después de su publicación íntegra en la Gaceta Universitaria de la UTN, además, debe publicarse en La Gaceta del Estado el aviso de publicación y su disponibilidad en la web institucional.

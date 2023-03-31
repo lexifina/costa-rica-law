@@ -1,0 +1,1 @@
+Artículo 18. Retiro del libro con razón de apertura. Los libros autorizados deben ser retirados en la oficina de la Auditoría Universitaria, por una persona funcionaria de la dependencia u órgano colegiado solicitante o quien éste designe.

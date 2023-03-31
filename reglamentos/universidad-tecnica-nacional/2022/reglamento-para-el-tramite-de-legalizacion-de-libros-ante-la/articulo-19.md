@@ -1,0 +1,2 @@
+Artículo 19. Devolución del libro con razón de apertura y destrucción de libros. Una vez que se autoriza la apertura de un libro, la Auditoría Universitaria resguarda el libro hasta su entrega. Si pasados tres meses desde la fecha en que se comunica su apertura, la dependencia u órgano colegiado solicitante no ha retirado el libro, se procede con su destrucción.
+Cuando por decisión de la administración y, de manera justificada, se proceda a la devolución de un libro legalizado o autorizado sin utilizar, la Auditoría Universitaria debe proceder con su destrucción.

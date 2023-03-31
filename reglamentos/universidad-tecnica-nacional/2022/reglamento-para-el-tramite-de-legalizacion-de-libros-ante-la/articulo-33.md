@@ -1,0 +1,2 @@
+Artículo 33. Escritura y forma de las actas. Para el caso de los órganos colegiados de la Universidad, en la elaboración de las actas se debe acatar lo dispuesto en la normativa interna emitida por Archivo Institucional y cualquier otra normativa aplicable.
+Adicionalmente, se debe cumplir lo dispuesto en el Estatuto Orgánico de la Universidad Técnica Nacional, el Reglamento Orgánico de la Universidad Técnica Nacional y Ley General de la Administración Pública (N° 6227), así como cualquier otra normativa aplicable a los órganos colegiados.

@@ -1,0 +1,1 @@
+Artículo 13. Requerimientos de información. Durante el trámite de apertura de libros, la Auditoría Universitaria puede requerir información adicional que estime necesaria para el cumplimiento de la gestión. Dicha información, es solicitada en forma escrita y puede establecer plazos de acatamiento obligatorio para brindar la información requerida.
