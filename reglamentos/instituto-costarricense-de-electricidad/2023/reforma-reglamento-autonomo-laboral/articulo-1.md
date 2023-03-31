@@ -1,0 +1,4 @@
+INSTITUTO COSTARRICENSE DE ELECTRICIDAD
+El Consejo Directivo del Instituto Costarricense de Electricidad aprobó en el artículo 3 del acta firme de la Sesión 6566 del 16 de marzo del 2023, la siguiente reforma al artículo 21 del Reglamento Autónomo Laboral, el cual se leerá de la siguiente forma:
+Artículo 21. Vacaciones anuales remuneradas. La empresa concede a las trabajadoras y los trabajadores quince días hábiles de vacaciones anuales remuneradas por cada cincuenta semanas de trabajo continuo independientemente de la modalidad de contratación, y de conformidad con el plan de vacaciones de cada centro de trabajo. En todos los casos es indispensable la coordinación previa con la jefatura respectiva. En caso de finalización de contrato de previo al cumplimiento de las cincuenta semanas, la trabajadora o el trabajador tiene derecho como mínimo a un día de vacaciones por cada mes trabajado, que se cancelará en el momento de su retiro.
+San José, 24 de marzo 2023
