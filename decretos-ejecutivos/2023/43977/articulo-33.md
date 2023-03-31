@@ -1,0 +1,1 @@
+Artículo 33.- La Dirección de Crédito Público, en adelante DCP, deberá comunicar a la AP, si la Política de Endeudamiento público requiere de ajustes o actualización. En caso de generarse un ajuste o actualización, se procederá de conformidad con el artículo 83 de la Ley N.0 8131.

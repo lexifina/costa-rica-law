@@ -1,0 +1,1 @@
+Artículo 9°-Los ministerios, las entidades públicas y sus órganos desconcentrados deberán considerar lo dispuesto en materia de género, que se contempla en los Lineamientos técnicos y metodológicos para la planificación, programación presupuestaria, seguimiento y la evaluación estratégica del Sector Público vigentes.

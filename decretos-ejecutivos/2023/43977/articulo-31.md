@@ -1,0 +1,1 @@
+Artículo 31.- La TN será la encargada de dar seguimiento y verificará que todas las entidades públicas bajo el ámbito de la AP cumplan con lo ordenado en los artículos 26, 27 y 30 de este capítulo, asimismo en caso de incumplimiento, deberá informar al MH, a la ST AP, al Ministro Rector de la entidad y a la CGR.

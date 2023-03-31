@@ -1,0 +1,1 @@
+Artículo 19.- Los misterios, las entidades públicas y sus órganos desconcentrados, que tienen capacidad legal para cobrar por los servicios que prestan, cuando el marco legal lo permita, deberán establecer precios y tarifas que contribuyan a su financiamiento, asimismo, deberán velar porque los mismos se mantengan actualizados.

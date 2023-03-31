@@ -1,0 +1,3 @@
+Artículo 16.- Los ministerios, las entidades públicas y sus órganos desconcentrados, para la formulación de sus anteproyectos de presupuesto o de sus presupuestos, según corresponda, deberán considerar además de las disposiciones contenidas en las presentes Directrices, las intervenciones estratégicas y metas del PNDIP y su vinculación con el presupuesto, de manera que se refleje en el cumplimiento de las metas programadas.
+También deberán incluir los recursos necesarios para realizar las evaluaciones establecidas en la Agenda Nacional de Evaluaciones (ANE) del PNDIP, cuando corresponda, y para atender el desarrollo del plan ele acción derivado ele las
+recomendaciones de los informes de evaluación.

@@ -1,0 +1,2 @@
+Artículo 14- Para las entidades públicas financieras no bancarias que ingresen al ámbito de la AP y que por primera vez formulen sus presupuestos, el gasto presupuestario máximo se definirá una vez que se cuente con el presupuesto del siguiente ejercicio económico.
+Para aquellas entidades públicas financieras no bancarias que ingresen al ámbito de la AP y que desde años anteriores hayan iniciado sus actividades, el gasto presupuestario máximo se definirá aplicando la metodología indicada en el artículo 11 de estas directrices.
