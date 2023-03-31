@@ -1,0 +1,1 @@
+Transitorio I. El ICE y sus empresas se regirán por esta normativa a partir de su publicación y cuentan con un plazo de 6 meses, para realizar la planificación y ajustes de la normativa interna relacionada, en alineamiento a lo indicado al Marco Corporativo.
