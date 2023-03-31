@@ -1,0 +1,2 @@
+Artículo 23. Elaboración del Pliego de Condiciones. El pliego de condiciones de cada contratación será elaborado por el Departamento de Proveeduría, con base en los términos de referencia aprobados con la decisión inicial.
+El área de Proveeduría podrá solicitar la colaboración y asesoría de instancias técnicas, legales o administrativas, que tengan conocimiento especializado o que tendrán participación en la ejecución, supervisión, o verificación de la contratación.

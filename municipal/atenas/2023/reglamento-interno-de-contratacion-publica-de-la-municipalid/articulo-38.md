@@ -1,0 +1,1 @@
+Artículo 38 Anticipos o Vale de Caja Chica: debe emitirse debidamente numerado en forma consecutiva. Será suministrado a las jefaturas de las dependencias municipales, por el Departamento de Tesorería de la Municipalidad.

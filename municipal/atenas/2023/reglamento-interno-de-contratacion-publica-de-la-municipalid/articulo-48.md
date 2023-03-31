@@ -1,0 +1,1 @@
+Artículo 48. Responsable del manejo del Fondo de Caja Chica. El departamento de Tesorería será el responsable del manejo del fondo de caja chica, este deberá actuar de conformidad con lo que disponga este reglamento, el Código Municipal, la Ley de Administración Financiera, LGCP, su Reglamento y demás normativa vigente y aplicable a la materia.

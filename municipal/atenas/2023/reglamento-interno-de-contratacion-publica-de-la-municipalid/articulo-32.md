@@ -1,0 +1,1 @@
+Artículo 32. Decisión de Contratar Directamente. La determinación de los supuestos de prescindencia de los procedimientos ordinarios de contratación será responsabilidad exclusiva del alcalde o el Concejo Municipal según corresponda de acuerdo con la cuantía.

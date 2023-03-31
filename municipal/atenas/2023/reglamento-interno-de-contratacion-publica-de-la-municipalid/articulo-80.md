@@ -1,0 +1,2 @@
+Artículo 80. Recurso de Apelación. En el caso de recursos de apelación interpuestos contra el acto de adjudicación, dentro del plazo que señale la CGR, la Proveeduría remitirá el expediente de la contratación.
+Para efectos de contestación de las audiencias que otorgue la CGR o resolución de los recursos competencia de la Municipalidad, la Proveeduría podrá solicitar a la unidad solicitante, técnica o legal, toda la información que se requiera y dentro del plazo que esta determine.

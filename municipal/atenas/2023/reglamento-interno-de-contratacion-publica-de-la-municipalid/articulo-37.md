@@ -1,0 +1,1 @@
+Artículo 37. El alcalde o alcaldesa será el funcionario encargado de autorizar las erogaciones del Fondo de Caja Chica que se realicen con base en el formulario de Requisición de Bienes y Servicios. Mediante resolución fundada, el alcalde podrá delegar esta función de forma temporal o permanente en un funcionario subordinado.

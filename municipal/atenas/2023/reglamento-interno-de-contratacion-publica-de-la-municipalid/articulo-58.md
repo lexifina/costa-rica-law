@@ -1,0 +1,1 @@
+Artículo 58: Ningún funcionario de la Municipalidad, con excepción de la Tesorera Municipal, quien tendrá en custodia los fondos de Caja Chica, podrá mantener en su poder fondos de Caja Chica por más de 5 días.

@@ -1,0 +1,16 @@
+Artículo 4: Definiciones
+. Acto final: acto administrativo de adjudicación, re-adjudicación, declaración de desierto o infructuoso con el cual se pone fin a un procedimiento de contratación administrativa.
+. Contratación Electrónica: Proceso de contratación que se realiza, todas sus etapas, a través del Sistema Digital Unificado de Compras Públicas.
+. Contratación por excepción: contrataciones que por su propia naturaleza se encuentran excluidas de los procedimientos ordinarios de concurso.
+. Contratista: persona física o jurídica que una vez presentada su oferta es seleccionada como adjudicataria para proveer un determinado bien o servicio.
+. Decisión Inicial: acto administrativo que marca el inicio del procedimiento derivado de la presentación del formulario denominado "Solicitud de Contratación" en el cual se definen los requisitos y especificaciones técnicas del bien o servicio requerido, emitido por el Jerarca de cada Unidad Técnica o Solicitante, según sea el caso o por el titular subordinado y aprobado por el alcalde o Concejo Municipal según sea el caso.
+. Encargado/a de Presupuesto: funcionario/a designado a lo interno como encargado de emitir las certificaciones de fondos y la realización de las reservas presupuestarias.
+. Encargado General del Contrato. Funcionario dentro de la estructura organizacional de la Municipalidad de Atenas que por su experiencia y grado académico cuenta con la capacidad para verificar el fiel cumplimiento de las condiciones técnicas en los diferentes contratos que suscriba la Administración Municipal.
+. Fragmentación ilícita: Acto mediante el cual, la institución y sus órganos desconcentrados, fragmentan las adquisiciones de los bienes, las obras y los servicios que requiera, con el propósito de variar el procedimiento de contratación.
+. Indispensables: Adquisición de bienes, servicios u obras, de los que no se puede prescindir y que son necesarios para el alcance de los fines institucionales.
+. Impostergables: Adquisición de bienes, servicios u obras, que no puede diferirse o demorarse, de necesidad inmediata.
+. Proveedor Institucional: funcionario/a de la Municipalidad encargado de instruir y tramitar los procedimientos licitatorios que se generen
+. Reserva Presupuestaria: Documento de carácter presupuestario, creado por el encargado/a de presupuesto, mediante el cual se separan los recursos presupuestarios correspondientes para la adquisición de bienes, servicios u obras.
+. Pliego de condiciones: Documento mediante el cual se establecen los requisitos que determine la LGCP y su Reglamento, entre ellos los aspectos de admisibilidad, las especificaciones técnicas, los parámetros para verificar la calidad y el sistema de calificación de ofertas.
+. Unidad Solicitante: Unidad dentro de la estructura organizacional de la Municipalidad de Atenas que gestiona ante la Unidad Técnica o la Proveeduría, según corresponda, la adquisición de un determinado bien o servicio.
+. Unidad Técnica: Unidad dentro de la estructura organizacional de la Municipalidad de Atenas que, de acuerdo con el objeto a contratar, cuenta con la experiencia necesaria para emitir criterio técnico en las diferentes etapas de los procedimientos de contratación administrativa. En ciertos casos la Unidad Técnica es al mismo tiempo Unidad Solicitante.

@@ -1,0 +1,9 @@
+Artículo 18. Razonabilidad de Precios. El Administrador del contrato será el responsable de confeccionar y presentar el análisis de la razonabilidad del precio ofertado, en el informe técnico de las ofertas presentadas para recomendar la adjudicación.
+La razonabilidad del precio se debe desarrollar de forma amplia en el informe técnico. Se deberá cumplir al menos con la revisión, análisis e indicación de los siguientes aspectos:
+a) Que se cuenta con el contenido presupuestario suficiente para hacerle frente a la erogación.
+b) Que los precios ofertados cumplen con las tasas, tributos e impuestos locales, entre otros, según corresponda.
+c) Que los precios ofertados en el caso de servicios profesionales se ajusten a las tarifas de los Colegios Profesionales cuando esto aplique, o bien que la mano de obra estipulada por el oferente cumple con la Ley de salarios mínimos vigentes al momento de la recepción de ofertas.
+d) Presentación de la revisión de la estructura de costos del precio ofertado, en los casos que proceda, según lo dispuesto en el pliego de condiciones.
+e) Presentación de una comparación porcentual de precios, donde se logre determinar que el precio es razonable, en relación con el banco de precios del sistema digital unificado, el estudio de mercado, los históricos de contrataciones anteriores y/o similares del objeto contractual, las contrataciones iguales o similares de otras instituciones públicas realizadas en el sistema digital unificado o bien en el sistema Observatorio de Compras Públicas del Ministerio de Hacienda.
+f) En los casos de que el objeto contractual se encuentre conformado por líneas independientes, se deberá razonar el precio de cada una.
+g) Justificación de los precios que resulten muy inferiores o superiores a lo indagado en el estudio previo del mercado y estimación presupuestaria, esto para determinar si es precio ruinoso y/o excesivo.

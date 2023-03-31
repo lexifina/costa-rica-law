@@ -1,0 +1,2 @@
+Artículo 24. Clausulas penales o multas. Debe preverse en el pliego de condiciones de las contrataciones las cláusulas penales por concepto de atraso en la entrega de los bienes o servicios contratados o multas por concepto de defectos en la ejecución de los contratos.
+Corresponde a la Unidad solicitante o técnica realizar el estudio técnico necesario para el cálculo del porcentaje a aplicar, este estudio deberá estar basado en criterios tales como las repercusiones de un eventual incumplimiento, los riesgos, plazo de entrega o ejecución y monto del contrato.

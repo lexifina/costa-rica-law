@@ -1,0 +1,1 @@
+Artículo 41: Los recursos del Fondo de Caja Chica no serán utilizados para cambiar cheques personales o para operaciones distintas a los que señala la normativa vigente. Cualquier violación en este sentido implicará responsabilidad disciplinaria funcionario responsable.

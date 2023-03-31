@@ -1,0 +1,3 @@
+Artículo 65: Los funcionarios o empleados infractores de las disposiciones contenidas en el presente Capitulo, se harán acreedores a las sanciones quecorrespondan de conformidad con las leyes y reglamentos vigentes en la materia.
+Todo funcionario que haga uso del Fondo de Caja Chica tiene por obligación conocer y cumplir el presente Reglamento. En caso en que el funcionario haga mal uso de los fondos regulados en el presente capítulo, deberá responder administrativa, civil y penalmente por los daños que esto origine a la Administración Pública.
+Estarán sujetos a la misma clase de sanciones que se especifican en el párrafo anterior, los funcionarios o jefaturas según corresponda, que soliciten o autoricen anticipos de efectivo sin justificación.
