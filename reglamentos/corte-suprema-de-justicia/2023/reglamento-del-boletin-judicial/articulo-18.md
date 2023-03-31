@@ -1,0 +1,3 @@
+Artículo 18. - De la comunicación de las solicitudes de publicación. Las solicitudes de publicación podrán comunicarse a la Dirección Ejecutiva por los medios físicos y electrónicos que este designe, siempre y cuando se garantice la autenticidad de la firma de la persona que realiza la petición correspondiente.
+A cada solicitud de publicación se le asignará un número de consecutivo que la distinguirá y que deberá ser consignado para efectos de todo trámite, así como en la publicación que finalmente se realice.
+Dichas solicitudes podrán ser dejadas sin efecto por los requirentes por los mismos medios, máximo con 24 horas de antelación.

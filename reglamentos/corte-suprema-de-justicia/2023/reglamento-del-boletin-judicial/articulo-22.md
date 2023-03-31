@@ -1,0 +1,2 @@
+Artículo 22.- De los efectos de la publicación. Las publicaciones en el Boletín Judicial le darán eficacia a los actos administrativos y procesales que sean comunicados por dicho medio, conforme las regulaciones que establece la Ley General de la Administración Pública y otras normas aplicables a la materia.
+Las publicaciones en el Boletín Judicial no presuponen una valoración sobre la validez de los actos administrativos o procesales que los originan, sino que corresponden a meros actos ejecutorios de los mismos, para efectos de publicidad y eficacia.

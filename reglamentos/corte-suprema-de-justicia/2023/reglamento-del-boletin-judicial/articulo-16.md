@@ -1,0 +1,1 @@
+Artículo 16.- De las situaciones de caso fortuito o fuerza mayor. En situaciones de caso fortuito o fuerza mayor, la Dirección Ejecutiva podrá determinar no realizar las publicaciones que correspondan a uno o varios días determinados, posponiendo dicho acto para el día inmediato siguiente a que haya fenecido el motivo de caso fortuito o fuerza mayor impediente.

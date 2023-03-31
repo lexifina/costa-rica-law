@@ -1,0 +1,1 @@
+Articulo 21.- Del acceso al sitio web. El sitio web deberá garantizar un acceso directo, eficiente, claro y amigable a la persona usuaria, con buscadores adecuados para todo tipo de población usuaria del Poder Judicial, tanto de la publicación del respectivo día como de publicaciones anteriores realizado en el Boletín Judicial.

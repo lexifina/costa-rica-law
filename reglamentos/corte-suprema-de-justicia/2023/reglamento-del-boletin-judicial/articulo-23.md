@@ -1,0 +1,3 @@
+Artículo 23.- De la Accesibilidad. La Administración tomará las medidas necesarias para que el Boletín Judicial sea accesible a todas las personas.
+Los interesados podrán consultar el Boletín Judicial en los Despachos Judiciales, Administraciones Regionales, Biblioteca Judicial, pantallas de consulta ubicadas en los vestíbulos de los edificios del Poder Judicial o ingresando al sitio Web.
+Además, para las personas con alguna condición de discapacidad se ofrecerá el Boletín Judicial en imágenes con descripciones, lectores de pantalla y alto contraste. Igualmente, la Dirección Ejecutiva promoverá otras formas de acceso a la información, de manera tal que se logre la mayor accesibilidad y divulgación del Boletín Judicial.

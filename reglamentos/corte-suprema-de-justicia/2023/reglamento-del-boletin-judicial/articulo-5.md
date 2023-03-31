@@ -1,0 +1,8 @@
+Artículo 5°. De los Principios del Boletín Judicial. Las publicaciones en el Boletín Judicial se rigen, entre otros, por los siguientes principios:
+5.1 Principio de celeridad: las publicaciones en el Boletín Judicial deberán realizarse de manera eficaz y eficiente, con la mayor celeridad posible garantizando su acceso en el menor tiempo posible y de una manera amigable a la persona usuaria.
+5.2 Principio de Coordinación: las publicaciones en el Boletín Judicial se realizarán de manera coordinada entre diversos órganos con competencias variables y diferentes.
+5.3 Principio de objetividad: todas las publicaciones que se realicen en el Boletín Judicial deben ser orientadas a la satisfacción del interés general, manteniendo una actitud imparcial y libre de todo sesgo y actitud discriminatoria, velando por la igualdad de trato a las personas usuarias y servidoras.
+5.4 Principio de legalidad: las publicaciones en el Poder Judicial deben ser un medio para el cumplimiento de la publicidad que exige en el ordenamiento jurídico en determinados procesales o administrativos, para su eficacia.
+5.5 Principio de veracidad: la información contenida en el Boletín Judicial se encuentra debidamente certificada digitalmente, por lo que se garantizará la integridad, autenticidad y no alteración en general del mismo.
+5.6 Principio de seguridad: las publicaciones en el Boletín Judicial garantizarán su inalterabilidad, su acceso o consulta posterior y además, la información relativa a su origen y otras características básicas.
+5.7 Principio de rendición de cuentas: se deberá rendir cuentas acerca de la forma, motivación y contenido de los acuerdos se publiquen por medio del Boletín Judicial.

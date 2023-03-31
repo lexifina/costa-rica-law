@@ -1,0 +1,1 @@
+Artículo 26º-Satisfacción de los requisitos fiscales. Cuando la emisión de un acto o la celebración de un negocio jurídico a publicar conlleve el pago de requisitos fiscales, el obligado al pago deberá conservar el comprobante respectivo y exhibirlo cuando los órganos responsables del Poder Judicial así lo requieran.

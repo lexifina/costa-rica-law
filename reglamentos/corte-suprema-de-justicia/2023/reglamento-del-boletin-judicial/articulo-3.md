@@ -1,0 +1,2 @@
+Artículo 3°- De la naturaleza del Boletín Judicial: El Boletín Judicial es un documento público, por lo que deberá contar con un certificado digital conforme lo establece la Ley de Certificados, Firmas Digitales y Documentos Electrónicos, número Nº 8454.
+En razón de lo anterior, el Boletín Judicial, se entenderá jurídicamente equivalente a la existencia de un Boletín Judicial emitido por medios físicos, teniendo un mismo valor y la eficacia probatoria.

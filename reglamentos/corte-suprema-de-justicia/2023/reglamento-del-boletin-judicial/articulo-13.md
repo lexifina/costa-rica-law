@@ -1,0 +1,1 @@
+Artículo 13.- De la responsabilidad por el contenido de los requerimientos de publicación. Los entes, órganos y personas que generen las solicitudes de publicación en el Boletín Judicial, serán responsables del contenido, efectos y oportunidad de sus requerimientos.

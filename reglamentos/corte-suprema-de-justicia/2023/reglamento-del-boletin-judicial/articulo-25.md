@@ -1,0 +1,1 @@
+Artículo 25.- De la definición de la estructura del Boletín Judicial. La definición de la estructura y formato propio del Boletín Judicial será realizada por la Dirección Ejecutiva a recomendación del Departamento de Artes Gráficas.

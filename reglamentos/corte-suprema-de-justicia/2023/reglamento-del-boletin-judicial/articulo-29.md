@@ -1,0 +1,1 @@
+Artículo 29- De los efectos de la fe de erratas y nota aclaratoria. La fe de erratas y la nota aclaratoria que corrijan algún error, tendrán el valor, la eficacia y los alcances legales que tiene la publicación original corregida.

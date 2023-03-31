@@ -1,0 +1,2 @@
+Artículo 7°- Del órgano responsable de la publicación del Boletín Judicial. El órgano responsable de la publicación del Boletín Judicial será el Departamento de Artes Gráficas del Poder Judicial, conforme las disposiciones, circulares, manuales y lineamientos que disponga la Dirección Ejecutiva, asegurando el cumplimiento de los fines del presente reglamento.
+Asimismo, corresponderá a dicho Departamento realizar las acciones necesarias para gestionar y mantener vigente el certificado digital que respalde la integridad, autenticidad y no alteración del indicado Boletín.

@@ -1,0 +1,7 @@
+CAPÍTULO III
+DE LAS PUBLICACIONES EN EL BOLETÍN JUDICIAL
+Artículo 10°- Del Contenido de las publicaciones en el Boletín Judicial. Sin perjuicio de otros supuestos a criterio de la Dirección Ejecutiva, se publicará en el Boletín Judicial:
+10.1 En el Ámbito Administrativo: Cuando se requiera, se publicarán reglamentos de organización y funcionamiento del Poder Judicial, resoluciones administrativas, avisos, circulares aprobadas por diferentes órganos de gobierno, administración y de Dirección, criterios técnicos debidamente despersonalizados por parte de la oficina emisora, así como aquellas publicaciones que ordena la Ley de Protección al ciudadano del exceso de requisitos y trámites administrativos, Ley N° 8220 para el Poder Judicial.
+10.2 En el Ámbito Jurisdiccional: se publicarán edictos, las resoluciones que requieran tal acto de publicidad conforme el ordenamiento jurídico, así como diversos comunicados provenientes de los tribunales, como remates, adopciones, sucesorios, los actos de comunicación de la apertura del proceso concursal a los eventuales acreedores, matrimonios, divorcios, entre otros, a criterio de la persona Juzgadora que disponga la respectiva publicación.
+10.3 En Documentos Notariales: se publicarán los requerimientos que remitan los notarios públicos.
+10.4 En documentos externos: se publicarán los requerimientos de entes y órganos externos al Poder Judicial, que requieran dicha forma de publicidad de sus conductas administrativas.

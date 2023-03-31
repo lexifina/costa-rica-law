@@ -1,0 +1,1 @@
+Artículo 9.- De los órganos responsables de la generación de requerimientos de publicación en el Boletín Judicial. Los Despachos Judiciales, órganos administrativos, Notarios Públicos y entes externos son los responsables de generar los requerimientos de publicación en el Boletín Judicial.

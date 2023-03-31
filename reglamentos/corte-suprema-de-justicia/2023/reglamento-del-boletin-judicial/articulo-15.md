@@ -1,0 +1,4 @@
+Artículo 15°- Plazo de publicación. El Departamento de Artes Gráficas realizará la publicación de los requerimientos respectivos, en un plazo máximo de 5 días hábiles, a partir del siguiente de que se determine en la respectiva solicitud, el cumplimiento efectivo de los requisitos establecidos por la Dirección Ejecutiva.
+Las publicaciones se realizarán en estricto orden de presentación, una vez verificado el cumplimiento de los requisitos establecidos o de subsanación, dando prioridad a aquellos que no hayan requerido subsanar una prevención.
+No obstante, siempre tendrán carácter prioritario las publicaciones que se requieran por parte de la Secretaría de la Corte Suprema de Justicia.
+Por razones de urgencia o interés público, la Dirección Ejecutiva o quien esta designe podrá dar prioridad a una publicación determinada.

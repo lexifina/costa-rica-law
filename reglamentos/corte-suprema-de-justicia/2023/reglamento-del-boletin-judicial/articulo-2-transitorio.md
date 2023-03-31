@@ -1,0 +1,1 @@
+Transitorio II.- Una vez publicado el presente reglamento, la Dirección Ejecutiva contará con un mes para publicar una circular en donde defina los requisitos necesarios para los gestores de solicitudes de publicación en el Boletín Judicial.
