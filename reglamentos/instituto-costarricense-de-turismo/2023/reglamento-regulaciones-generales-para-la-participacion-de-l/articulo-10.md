@@ -1,0 +1,1 @@
+Artículo 10.-La información aportada por los participantes en el proceso de inscripción, se mantendrá en custodia del Departamento de Promoción de forma digital por el tiempo que se defina por la Dirección General del Archivo Nacional, de conformidad con la normativa vigente en la materia.

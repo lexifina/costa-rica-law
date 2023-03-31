@@ -1,0 +1,1 @@
+Artículo 5º-Corresponderá al Director (a) de Mercadeo, la aprobación del Plan de Ferias Internacionales que incluirá -entre otros aspectos- las ferias internacionales en que se participará, los objetivos, las metas y los indicadores, de acuerdo con el Plan Operativo Institucional, el Plan de Mercadeo y el Plan Estratégico Institucional.

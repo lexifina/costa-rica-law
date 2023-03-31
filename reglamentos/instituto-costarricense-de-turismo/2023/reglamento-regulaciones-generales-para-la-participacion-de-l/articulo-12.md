@@ -1,0 +1,1 @@
+Artículo 12.-Para la inscripción en las ferias, se tomarán en cuenta las empresas u organizaciones que presenten el formulario completo ante el Departamento de Promoción, antes de las fechas límite comunicadas previamente.

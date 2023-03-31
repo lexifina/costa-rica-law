@@ -1,0 +1,1 @@
+Artículo 7º-El Proceso de Promoción definirá los objetivos específicos, indicadores y metas para cada uno de los eventos, a nivel interno y para conocimiento de cada uno de los ejecutivos que participen en la feria. Lo anterior a fin de que obtengan informes de participación congruentes con los objetivos planteados.
