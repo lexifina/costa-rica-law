@@ -1,0 +1,1 @@
+Artículo 4°--Este Reglamento deroga cualquier Reglamento de adquisición de Gastos fijos del Intendente Municipal y cualquier otra disposición que se oponga, para definir niveles de aprobación y adjudicación y contratos de los procedimientos de contratación pública del Concejo Municipal de Distrito de Peñas Blancas.
