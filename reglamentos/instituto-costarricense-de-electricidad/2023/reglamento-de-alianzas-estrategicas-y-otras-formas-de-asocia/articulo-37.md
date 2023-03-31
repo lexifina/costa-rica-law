@@ -1,0 +1,1 @@
+Artículo 37°. Seguimiento a la implementación del Negocio. La Unidad Implementadora debe rendir informes de avance a la Unidad de Seguimiento y Control sobre la implementación en los casos en que corresponda.

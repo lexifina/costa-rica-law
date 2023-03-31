@@ -1,0 +1,1 @@
+Artículo 44°. Derogatorias. Se deroga el Reglamento de Alianzas Estratégicas y Otras Formas de Asociación y Colaboración Empresarial, versión 4 aprobado por el Consejo Directivo en el artículo 2, de la Sesión 6513 del 31 de marzo de 2022, así como cualquier otra normativa, directriz, lineamiento o circular que se le oponga.

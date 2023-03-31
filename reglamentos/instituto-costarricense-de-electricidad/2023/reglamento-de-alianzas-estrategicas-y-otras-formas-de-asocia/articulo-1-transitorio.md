@@ -1,0 +1,1 @@
+Transitorio I. Todos los Acuerdos de Asociación Empresarial vigentes al momento de entrada en vigor del presente reglamento, deben aplicar la normativa vigente al momento de la formalización, salvo en lo indicado en el Capítulo X de Seguimiento y Control de la presente reforma al reglamento.
