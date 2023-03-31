@@ -1,1 +1,0 @@
-Artículo 21.—Cuando el ICT cancele la participación en una feria, ya sea en defensa del interés público o bien por motivos ajenos a su control como la cancelación del evento por parte de los organizadores, se realizará el reintegro del 100% de la cuota cancelada por las empresas.

@@ -1,1 +1,0 @@
-Artículo 36.—Las empresas participantes que incurran en faltas graves, no podrán participar en el siguiente período de ferias, lo que se les comunicará mediante oficio. El ICT podrá valorar la aplicación de otras sanciones, dependiendo de la gravedad de la falta de conformidad con las reglamentaciones vigentes.

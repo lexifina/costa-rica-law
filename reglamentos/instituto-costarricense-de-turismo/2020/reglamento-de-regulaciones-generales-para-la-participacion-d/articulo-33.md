@@ -1,1 +1,0 @@
-Artículo 33.—El Departamento de Promoción presentará a la Junta Directiva, una vez al año, los resultados de la evaluación del Plan de Ferias Internacionales, de acuerdo con los requerimientos establecidos en el artículo 5 de este reglamento.

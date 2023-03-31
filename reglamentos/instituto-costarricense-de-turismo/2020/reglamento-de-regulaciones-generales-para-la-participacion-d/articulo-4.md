@@ -1,1 +1,0 @@
-Artículo 4º—Cada empresa u organización participante, deberá someterse a un proceso de inscripción previo a las ferias, que incluye la presentación del formulario de pre inscripción ante el Área de Ferias Internacionales del Departamento de Promoción.
