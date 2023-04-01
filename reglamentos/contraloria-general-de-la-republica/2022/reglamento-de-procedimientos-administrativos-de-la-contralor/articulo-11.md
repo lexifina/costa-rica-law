@@ -1,0 +1,6 @@
+Artículo 11. Conformación de órganos decisores.
+La conformación unipersonal o colegiada del órgano decisor se efectuará siempre mediante asignación del nivel gerencial de la División Jurídica a través del sistema electrónico establecido para el efecto o cualquier medio que se disponga para ese fin. No obstante, los siguientes asuntos serán tramitados y resueltos únicamente por órganos unipersonales cuando su resultado pueda ser:
+a) Faltas por desobediencia regulada en los artículos 69 y 70 de la Ley Orgánica de la Contraloría General de la República.
+b) Faltas vinculadas con el deber de declarar la situación patrimonial, conforme a las causales reguladas en los incisos i), j) y k) del artículo 38 de la Ley contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública.
+c) La imposición de prohibición de ingreso o reingreso regulada en el artículo 72 de la Ley Orgánica de la Contraloría General de la República, a quien previamente haya sido sido declarado responsable por la comisión de un delito o falta grave en contra de los deberes de la función pública o de las normas integrantes del Sistema de Fiscalización de la Hacienda Pública.
+d) Los demás procedimientos administrativos que determine la Gerencia de la División.

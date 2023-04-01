@@ -1,0 +1,4 @@
+Artículo 63. Gestión de revisión.
+El jerarca del sujeto pasivo, de conformidad con lo dispuesto en el artículo 68 de la Ley Orgánica de la Contraloría General de la República, podrá, dentro del término de ocho días hábiles contados a partir de la comunicación del acto para la ejecución de la sanción, interponer una gestión de revisión debidamente motivada y razonada ante el órgano decisor, la cual deberá ser trasladada al superior para su conocimiento en el plazo máximo de tres días.
+Una vez ingresada la gestión al Despacho Contralor, deberá ser resuelta en el plazo máximo de veinte días hábiles.
+Dicha gestión suspenderá la ejecución de lo ordenado únicamente en relación con la parte o partes en favor de quien se interpone la gestión y una vez resuelta se procederá sin dilación de acuerdo con lo que se disponga.

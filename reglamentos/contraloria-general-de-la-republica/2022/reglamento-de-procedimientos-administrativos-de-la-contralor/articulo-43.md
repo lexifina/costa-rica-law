@@ -1,0 +1,2 @@
+Artículo 43.- Cese de la responsabilidad por pago.
+En los supuestos donde únicamente se busque determinar la existencia de responsabilidad civil, una vez efectuado el traslado de cargos y en cualquier etapa del procedimiento y hasta antes del dictado del acto final, éste se dejará sin efecto sin ulterior trámite o consecuencia en cuanto a la responsabilidad civil, si se demuestra que se ha cancelado la totalidad de la suma correspondiente a los daños y/o perjuicios establecidos en el acto de apertura.

@@ -1,0 +1,2 @@
+Artículo 42. Separación de causas.
+Si en un procedimiento administrativo iniciado en común con varios investigados, llegase a existir una ausencia justificada que le impida a una o varias partes ejercer su derecho de defensa o cuando ello se estime pertinente para la buena marcha del procedimiento, el órgano decisor podrá tramitar en expediente aparte la determinación de su responsabilidad, salvo cuando su concurrencia junto con las demás partes se considere imprescindible.

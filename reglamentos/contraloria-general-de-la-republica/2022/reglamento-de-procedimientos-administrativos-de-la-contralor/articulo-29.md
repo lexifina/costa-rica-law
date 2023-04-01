@@ -1,0 +1,3 @@
+Artículo 29. Presentación de documentos.
+Toda gestión de parte dentro del procedimiento administrativo se presentará en formato digital. Esta puede ser realizada mediante el sistema electrónico que la Contraloría General disponga al efecto o bien, remitiendo los documentos al correo electrónico institucional del Órgano Contralor, en ambos casos sin necesidad de presentación física.
+En caso de que la parte o sus abogados presenten documentos físicos en la sede de la Contraloría General de la República, serán escaneados y sus originales deberán ser conservados por la parte bajo su responsabilidad.

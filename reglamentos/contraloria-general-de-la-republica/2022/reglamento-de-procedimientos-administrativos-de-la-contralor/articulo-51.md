@@ -1,0 +1,3 @@
+Artículo 51. Facultades del órgano decisor.
+El órgano decisor dirigirá la comparecencia bajo las reglas de la oralidad, hará las advertencias legales, realizará las juramentaciones y recibirá las declaraciones. Asimismo, regulará la evacuación de la prueba, ejercerá el orden y moderará la discusión, para lo cual podrá asignar un tiempo razonable a las partes para hacer sus intervenciones quienes estarán obligados a conducirse de manera respetuosa impidiendo intervenciones impertinentes, prolongadas en exceso y rechazará las solicitudes notoriamente improcedentes o dilatorias, respetando el derecho de defensa de las partes.
+Además, el órgano decisor de oficio podrá sanear el procedimiento en cualquier momento.

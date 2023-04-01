@@ -1,0 +1,2 @@
+Artículo 81. Consulta del sistema.
+De previo al nombramiento en un cargo de la Hacienda Pública, los sujetos pasivos de fiscalización de la Contraloría General de la República, deberán consultar el Registro a fin de verificar la existencia de prohibiciones que le impidan al postulante ocupar el puesto, que de no hacerlo y llegar a nombrarse una persona que tiene prohibición generará responsabilidad.

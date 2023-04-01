@@ -1,0 +1,3 @@
+Artículo 58. Acto final.
+El órgano decisor dictará en forma escrita u oral el acto final, una vez finalizada la comparecencia, en el plazo máximo de treinta días hábiles. Atendiendo a las circunstancias del caso y a solicitud del órgano decisor, dicho plazo podrá prorrogarse un máximo de dos veces por un lapso igual, por parte del Gerente de la División Jurídica.
+En todos los casos que el órgano decisor estime que hay responsabilidad deberá dictar la sanción que corresponda al mérito de los autos, aunque el investigado ya no labore para la institución donde cometió la falta. Toda sanción en firme deberá registrarse en el Sistema de Registro de Sanciones de la Hacienda Pública.

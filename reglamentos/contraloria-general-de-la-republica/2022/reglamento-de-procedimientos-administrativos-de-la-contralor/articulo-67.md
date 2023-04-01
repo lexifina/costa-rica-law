@@ -1,0 +1,5 @@
+Artículo 67. Arreglos de pago.
+Una vez firme el acto final, la parte podrá gestionar ante el órgano decisor un arreglo de pago a fin de satisfacer en forma fraccionada, en un plazo razonable y hasta su cancelación total, el monto adeudado. En estos casos la Contraloría General tendrá amplias facultades para negociar los términos del arreglo de frente al caso concreto considerando las posibilidades reales de pago, el monto involucrado y el interés público.
+Dicho arreglo deberá ser firmado por la parte deudora y homologado por alguna Gerencia Asociada de la División Jurídica, el cual deberá indicar los tractos, la forma de pago y el plazo para la cancelación total de la deuda.
+En aquellos casos en que el título ejecutivo se traslade al sujeto pasivo acreedor para su respectivo cobro, la solicitud de un arreglo de pago deberá ser gestionada directamente ante la Administración y firmada por el Jerarca respectivo.
+En caso de acreditarse el incumplimiento del arreglo generará la interrupción del correspondiente plazo de prescripción y dará lugar a la interposición de procesos judiciales.
