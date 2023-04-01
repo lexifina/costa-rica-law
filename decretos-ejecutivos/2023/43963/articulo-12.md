@@ -1,0 +1,4 @@
+Artículo 12. Auditoría. La Unidad de Auditoría Interna de la SIECA será la dependencia responsable de verificar el cumplimiento de las acciones de control interno necesarias para evaluar la gestión de la institución conforme a lo establecido en el presente instrumento, asimismo, presentará informes trimestrales al Secretario(a) General.
+Los ingresos y gastos generados por la administración de las plataformas informáticas ya sean de carácter técnico o administrativo, serán debidamente auditados anualmente por una firma de Auditoría Externa con reconocimiento internacional. Los costos de la auditoría deberán ser incluidos en el presupuesto de ejecución de los recursos.
+A solicitud del COMIECO, se podrán realizar auditorías extraordinarias en cualquier momento del año.
+Sin perjuicio de lo anterior, los recursos también serán auditados por el Consejo Fiscalizador Regional del SICA, como órgano garante de la transparencia en la institucionalidad del SICA.

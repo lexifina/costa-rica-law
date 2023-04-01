@@ -1,0 +1,1 @@
+Artículo 13. Confidencialidad. La SIECA mantendrá la confidencialidad de la información de los recursos y únicamente podrá hacerla del conocimiento público previa autorización del COMIECO, salvo cuando ello sea necesario para dar cumplimiento a una disposición legal o judicial de autoridad competente.

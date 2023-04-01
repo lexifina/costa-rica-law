@@ -1,0 +1,3 @@
+Artículo·8. Superávit o Déficit. Para asegurar un adecuado rendimiento de los recursos, en caso de existir superávit, previa valoración de los gastos mencionados en el artículo 4 de estos Lineamientos, la SIECA presentará al COMIECO para su aprobación, un plan de inversiones, que podrá incluir inversiones en instrumentos financieros, ampliación de capacidades informáticas, venta de servicios informáticos, entre otros.
+Las utilidades y rendimientos obtenidos del plan de inversiones de capital serán destinados únicamente para financiar las-actividades establecidas dentro de los objetivos de estos Lineamientos.
+Cuando se presente superávit o déficit en función de la tarifa autorizada por el COMIECO y el volumen de transmisiones, el COMIECO podrá revisarla.

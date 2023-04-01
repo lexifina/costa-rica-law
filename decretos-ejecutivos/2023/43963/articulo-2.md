@@ -1,0 +1,1 @@
+Artículo. 2, Objeto. El presente documento-tiene por objeto establecer el mecanismo· de administración, rendición de cuenta y fiscalización de los recursos financieros, que perciba la SIECA, para el sostenimiento de las plataformas informáticas, provenientes de los servicios de transmisión electrónica de cada DUCA-F.

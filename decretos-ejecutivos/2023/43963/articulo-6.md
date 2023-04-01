@@ -1,0 +1,1 @@
+Artículo 6. Normativa administrativa y financiera. Para la administración de los recursos financieros generados por la prestación del servicio al que se refiere el artículo 2 de estos Lineamientos, la SIECA aplicará su normativa administrativa y financiera vigente.
