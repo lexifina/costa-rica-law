@@ -1,0 +1,1 @@
+Artículo 2-Deróguese el Decreto Ejecutivo número 43850-H del 08 ele diciembre de 2022, publicado en el Alcance número 282 a La Gaceta número 245 del 23 de diciembre ele 2022, a partir de la vigencia del presente decreto.
