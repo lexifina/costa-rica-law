@@ -1,0 +1,1 @@
+Artículo 2º-Al entrar en vigencia la presente resolución, se deja sin efecto la actualización efectuada mediante resolución número RES-DGH-013-2022 de las nueve horas cero minutos del 9 de marzo de 2022, publicada en La Gaceta N° 51 del 16 de marzo de 2022.
