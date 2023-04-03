@@ -1,0 +1,2 @@
+Articulo N° 41bis: Las zonas previamente delimitadas para parqueo de clientes del Mercado Municipal serán de uso única y exclusivamente para estos efectos, por lo cual queda prohibido que los inquilinos o arrendatarios del Mercado o sus trabajadores hagan un uso indebido del área de parqueo, entendiéndose como indebido que dejen sus vehículos por tiempo indefinido durante el día, ya que esto genera un perjuicio al servicio en sí y a la colectividad de inquilinos.
+(Así adicionado mediante sesión N° 153-2023 del 3 de abril de 2023)

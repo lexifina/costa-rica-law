@@ -6,3 +6,5 @@ B) Por remate de las mercancías o artículos que expenda en el puesto que tenga
 C) Por venta de artículos o mercaderías en mal estado, que pongan en peligro la salud pública.
 D) Por realizar un cambio de línea en contra de lo aquí estipulado.
 E) Por la morosidad con este Municipio en sus arrendamientos, patentes por el lapso de dos periodos o más.
+F) De constatarse un incumplimiento al artículo No 41 bis del presente reglamento y existiendo dos amonestaciones escritas previas, la Municipalidad podrá proceder a rescindir el contrato unilateralmente por incumplimiento reglamentario dado el perjuicio del servicio y los inquilinos del mismo.
+(Así reformado mediante sesión N° 153-2023 del 3 de abril de 2023)
