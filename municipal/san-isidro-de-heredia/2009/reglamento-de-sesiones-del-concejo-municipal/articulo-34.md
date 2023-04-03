@@ -1,1 +1,3 @@
-Artículo 34.—El Presidente, tomando en cuenta las modificaciones hechas al acuerdo, someterá el mismo a votación, diciendo en voz alta la forma definitiva en la que quedará redactado el acuerdo, acto seguido se procederá a la votación.
+CAPÍTULO VIII
+Comisiones Municipales
+Artículo 34.-De la función de las comisiones. Todas las Comisiones Municipales son por excelencia asesoras especialistas del Concejo en la materia correspondiente o en el asunto asignado; por ello reciben solicitudes expresas para dar recomendaciones, dictámenes o informes; insumos esenciales para la toma de decisiones. Por esa misma razón se requiere de un informe de labores y autoevaluación trimestralmente. Las Comisiones deben estar conformadas con equidad y armonía, procurando nombrar miembros conocedores del tema de todos los partidos políticos representados en el Gobierno Local, logrando la paridad y equidad de género, la participación de la sociedad civil y los vecinos.

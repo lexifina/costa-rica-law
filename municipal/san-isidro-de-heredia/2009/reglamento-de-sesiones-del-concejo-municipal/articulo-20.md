@@ -1,3 +1,1 @@
-CAPÍTULO III
-Aprobación y firmas de actas anteriores
-Artículo 20.—En cada sesión ordinaria se procederá a la firma de las actas aprobadas en sesión anterior.
+Artículo 20.-En la lectura de correspondencia, la Secretaria dará lectura a las Boletas de Recepción de Correspondencia. Los miembros del Concejo podrán participar para opinar sobre el asunto para lo cual dispondrán como máximo de dos minutos conforme hayan solicitado la palabra al Presidente (pudiendo los miembros que así lo deseen ceder su espacio). El Concejo decidirá en cada caso como se amerite.

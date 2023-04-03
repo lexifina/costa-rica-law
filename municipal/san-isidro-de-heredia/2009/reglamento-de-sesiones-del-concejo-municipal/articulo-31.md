@@ -1,1 +1,1 @@
-Artículo 31.—En cada sesión se recibirá un informe breve del Alcalde (sa) con respecto al plan semanal y a cualquier otro tema que considere pertinente.
+Artículo 31.-El Presidente, tomando en cuenta las modificaciones hechas al acuerdo, someterá el mismo a votación, diciendo en voz alta la forma definitiva en la que quedará redactado el acuerdo, acto seguido se procederá a la votación.

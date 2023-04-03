@@ -1,1 +1,1 @@
-Artículo 8º—Cada tres meses ante el Concejo la Auditora junto con la Comisión de Gobierno y Administración y la Comisión de Hacienda y Presupuesto, presentarán un informe con el objetivo de analizar el seguimiento al Plan Anual Operativo y el Control de Presupuesto.
+Artículo 8º-Cada tres meses ante el Concejo la Auditora junto con la Comisión de Gobierno y Administración y la Comisión de Hacienda y Presupuesto, presentarán un informe con el objetivo de analizar el seguimiento al Plan Anual Operativo y el Control de Presupuesto.

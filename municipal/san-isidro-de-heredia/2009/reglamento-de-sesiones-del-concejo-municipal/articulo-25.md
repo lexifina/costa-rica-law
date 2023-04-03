@@ -1,3 +1,1 @@
-CAPÍTULO V
-Informes
-Artículo 25.—Una vez cada dos meses la Auditora presentará un informe del cumplimiento de sus actividades ante el Concejo.
+Artículo 25.-Los acuerdos de las Comisiones se tomarán con el carácter de firmes y se decidirán por simple mayoría.

@@ -1,1 +1,1 @@
-Artículo 27.—El Concejo podrá trasladar los dictámenes de Comisión a conocimiento de otra Comisión o alguna designada especialmente por el Presidente para que se pronuncie sobre un caso concreto.
+Artículo 27.-Siempre que sea carácter del Concejo, el Alcalde (sa), los Regidores y los Síndicos, podrán presentar asuntos, según hayan hecho solicitud de palabra al Presidente y teniendo para la exposición del tema hasta cinco minutos, según lo estime el Presidente. Estos asuntos podrán ser elevados a discusión y votación.

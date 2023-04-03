@@ -1,1 +1,1 @@
-Artículo 11.—Toda persona particular que tenga interés en los asuntos de la municipalidad, podrá ser escuchada por el Concejo Municipal, para tal efecto deberá solicitar en forma escrita la audiencia,
+Artículo 11.-Planteamientos al Concejo. Todo planteamiento realizado al Concejo Municipal deberá presentarse por escrito y contener, nombre, firma, número de cédula, número telefónico y lugar para notificaciones de preferencia forma digital.

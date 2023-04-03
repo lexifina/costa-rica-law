@@ -1,1 +1,1 @@
-Artículo 24.—Será responsabilidad de la Secretaria el trámite y envío de la correspondencia, una vez tomado el acuerdo por parte del Concejo.
+Artículo 24.-El Concejo podrá trasladar los dictámenes de Comisión a conocimiento de otra Comisión o alguna designada especialmente por el Presidente para que se pronuncie sobre un caso concreto.

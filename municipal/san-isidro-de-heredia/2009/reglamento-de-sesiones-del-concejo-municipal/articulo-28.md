@@ -1,1 +1,1 @@
-Artículo 28.—Los acuerdos de las Comisiones se tomarán con el carácter de firmes y se decidirán por simple mayoría.
+Artículo 28.-En cada sesión se recibirá un informe breve del Alcalde (sa) con respecto al plan semanal y a cualquier otro tema que considere pertinente.

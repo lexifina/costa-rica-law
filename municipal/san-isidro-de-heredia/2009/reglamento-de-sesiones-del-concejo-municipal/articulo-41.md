@@ -1,2 +1,1 @@
-Artículo 41.—Por su naturaleza, este Reglamento de conformidad con lo establecido en el numeral 43 del Código Municipal, se somete a consulta pública no vinculante por un plazo de diez días hábiles, contados a partir de su publicación en el Diario Oficial La Gaceta, debiendo cualquier interesado hacer sus oposiciones en memorial razonado, ante el Concejo Municipal.
-San Isidro de Heredia, 12 de marzo del 2009.
+Artículo 41.-Actas de las Comisiones. Cada Comisión deberá llevar actas que recojan de manera sucinta lo acontecido en sus reuniones, las cuales contendrán los siguientes elementos: encabezado, fecha, número de la reunión, asistentes, firmas, asuntos tratados y sus respectivos acuerdos.

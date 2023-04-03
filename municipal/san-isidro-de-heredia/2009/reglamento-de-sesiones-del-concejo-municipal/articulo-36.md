@@ -1,1 +1,1 @@
-Artículo 36.—El Regidor que desee justificar su voto podrá hacerlo de forma escrita siendo labor de la Secretaria transcribir fielmente esta justificación en el acta.
+Artículo 36.-Comisiones Especiales. Estas comisiones se establecen por decisión del Concejo, la Presidencia determina sus miembros de entre los candidatos presentados por los participantes permanentes; procurando representatividad de los partidos políticos electos dentro del Concejo Municipal y asegurándose la equidad y armonía.

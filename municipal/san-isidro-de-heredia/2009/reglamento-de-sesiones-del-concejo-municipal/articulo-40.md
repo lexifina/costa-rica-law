@@ -1,1 +1,1 @@
-Artículo 40.—Este reglamento deja sin efecto todos los acuerdos municipales vigentes a la fecha y que tiendan a regular el proceso parlamentario del Concejo Municipal de San Isidro de Heredia.
+Artículo 40.-Integración y Directorio de Comisiones. Toda Comisión estará integrada al menos por tres participantes permanentes, uno de los cuales asumirá la coordinación de la Comisión, persona que será designada por la Presidencia Municipal, de preferencia regidor propietario. Una vez conformadas las comisiones nombrarán una Secretaría.

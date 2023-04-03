@@ -1,1 +1,4 @@
-Artículo 26.—Las Comisiones deberán presentar informe de sus labores o de asuntos específicos cuando así le sea solicitado por el Concejo Municipal, en el plazo que éste establezca. Los dictámenes de las comisiones deberán presentarse por escrito y firmados por todos los miembros de la Comisión que lo emite. Cuando no existiere un acuerdo unánime sobre un dictamen, el Regidor podrá rendir dictamen por separado si lo estima conveniente.
+CAPÍTULO VI
+Asuntos del presidente municipal, alcalde (sa)
+municipal, regidores y síndicos
+Artículo 26.-El Presidente Municipal, podrá disponer de hasta diez minutos para presentar ante el Concejo asuntos que el considere que sean competencia del mismo, pudiendo extenderse cuando el caso lo amerite, previa votación de mayoría simple. Estos asuntos podrán ser elevados a discusión y votación.

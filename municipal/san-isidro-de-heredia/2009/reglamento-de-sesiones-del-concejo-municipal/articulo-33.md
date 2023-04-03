@@ -1,1 +1,1 @@
-Artículo 33.—El Presidente someterá a discusión el acuerdo que resulte del análisis del asunto, proponiendo en voz alta la redacción del mismo. Posteriormente, dará dos minutos para el Regidor que desee sugerir cualquier modificación en la redacción. Después de lo cual se tendrá como suficientemente discutido el asunto.
+Artículo 33.-El Regidor que desee justificar su voto podrá hacerlo de forma escrita siendo labor de la Secretaria transcribir fielmente esta justificación en el acta.

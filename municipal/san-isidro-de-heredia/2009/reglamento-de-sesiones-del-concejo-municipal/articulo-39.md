@@ -1,1 +1,1 @@
-Artículo 39.—Cada Comisión nombrará a lo interno de su seno un presidente y un secretario, por acuerdo mutuo de sus miembros. Las Comisiones acordarán el día y la hora de su reunión, así como elaborarán al inicio de sus labores un pequeño plan de trabajo que será presentado al Concejo para su aprobación y conocimiento.
+Artículo 39.-Obligación de formar parte de las comisiones. Los participantes permanentes están en la obligación de formar parte activa y propositiva de las Comisiones que se crean en la Municipalidad.

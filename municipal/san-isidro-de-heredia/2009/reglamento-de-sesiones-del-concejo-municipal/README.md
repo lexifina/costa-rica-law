@@ -14,3 +14,4 @@ Reglamento de Sesiones del Concejo Municipal
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-05-07 | la propia norma |
+| 2 | 2023-04-03 | Reglamento municipal 20 (2023-04-03) |

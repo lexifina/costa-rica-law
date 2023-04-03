@@ -1,1 +1,4 @@
-Artículo 19.—Finalizadas las exposiciones de los particulares, el Presidente concederá la palabra a los regidores que lo soliciten con el fin de intercambiar brevemente opiniones con los visitantes sobre los asuntos que se traten.
+CAPÍTULO IV
+Correspondencia
+Artículo 19.-Será competencia de la Secretaría del Concejo, recibir y analizar junto con el Presidente del Concejo la correspondencia que se le envía al Concejo. Para cada documento enviado, la Secretaria llenará la "Boleta de Recepción de Correspondencia" que contendrá como mínimo la siguiente información:
+[imagen]

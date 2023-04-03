@@ -1,1 +1,1 @@
-Artículo 5º—Como mínimo se celebrará una sesión extraordinaria cada tres meses en diferentes lugares del Cantón, tratando de rotar por los diferentes distritos para tratar temas específicos de esa localidad y así acercar la labor del Concejo a los habitantes.
+Artículo 5º-Como mínimo se celebrará una sesión extraordinaria cada tres meses en diferentes lugares del Cantón, tratando de rotar por los diferentes distritos para tratar temas específicos de esa localidad y así acercar la labor del Concejo a los habitantes.
