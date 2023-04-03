@@ -1,1 +1,0 @@
-Artículo 33.—El Tesorero Municipal debe procurar tramitar con la diligencia y frecuencia debida los reintegros de las sumas pagadas, para que se mantenga una adecuada rotación y el fondo no llegue a agotarse. El monto mínimo que debe mantener el fondo para la solicitud del reintegro, debe ser del cincuenta por ciento (50%) del monto total autorizado a la fecha.

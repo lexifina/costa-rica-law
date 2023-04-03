@@ -1,1 +1,0 @@
-Artículo 48.—Se aplicará supletoriamente a las normas de este Reglamento, las siguientes disposiciones legales: El Código Municipal, la Ley de la Contratación Administrativa y su Reglamento, la Ley de la Administración Publica y demás normativas vigentes de la materia.

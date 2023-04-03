@@ -1,1 +1,0 @@
-Artículo 38.—No podrán hacer uso del fondo de caja chica las personas que no presten servicio regular en la Municipalidad. En el caso de regidores y síndicos podrán hacer uso del fondo cuando se trate de gastos de viaje y de transporte.
