@@ -1,43 +1,59 @@
 ENTE COSTARRICENSE DE ACREDITACIÓN
-N° 2020-013.—El Ente Costarricense de Acreditación (ECA), en cumplimiento de la Ley 8279 Ley del Sistema Nacional de la Calidad, da a conocer la modificación de los siguientes documentos: ECA-MC-P13 Ejecución de la evaluación, pasa de versión 12 a versión 13. ECA-MCP13-I01 Instructivo de Muestreo, pasa de versión 10 a versión 11, ECAMP-P01 Manual de Procedimientos para la evaluación y acreditación: Generalidades, pasa de versión 05 aversión 06. ECA-MP-P02 Manual de Procedimientos para la evaluación y acreditación: Requisitos para la acreditación, pasa de versión 08 a versión 09 ECA-MP-P02-I02 Documentos aplicables en los diferentes procesos de evaluación, pasa de versión 04 aversión 05, ECA-MP-P04 Manual de Procedimientos para la evaluación y acreditación: Solicitud de acreditación y análisis de recursos, pasa de versión 05 a versión 06, no tiene transitorio. ECAMP-P05 Manual de Procedimientos para la evaluación y acreditación: Admisibilidad de la acreditación, pasa de versión 04 a versión 05, no tiene transitorio. ECA-MP-P06 Manual de Procedimientos para la evaluación y acreditación: Evaluación, pasa de versión 04 a versión 05, ECA-MP-P07 Manual de Procedimientos para la evaluación y acreditación: Actividades posteriores a la evaluación, pasa de versión 06 aversión 07 ECA-MP-P08 Manual de Procedimientos para la evaluación y acreditación: Toma de Decisión, pasa de versión 07 aversión 08 ECA-MP-P09 Manual de Procedimientos para la evaluación y acreditación: Emisión del certificado de acreditación, pasa de versión 05 a versión 06 ECA-MP-P10 Manual de Procedimientos para la evaluación y acreditación: Seguimiento y reevaluación, pasa de versión 06 a versión 07. Los documentos descritos anteriormente no poseen transitorios y se encuentran a disposición de los interesados en la página electrónica http://www.eca.or.cr/docs.php; así mismo puede solicitar el envío de manera electrónica o solicitar gratuitamente una copia no contralada en la Gestoría de Calidad en las oficinas centrales del ECA ubicadas en San Jose, Barrio Don Bosco, Avenida 02 y Calle 32, contiguo a la Embajada de España, en horario de lunes a viernes de 8:00 horas a 16:00 horas.
+N° 2020-013.-El Ente Costarricense de Acreditación (ECA), en cumplimiento de la Ley 8279 Ley del Sistema Nacional de la Calidad, da a conocer la modificación de los siguientes documentos: ECA-MC-P13 Ejecución de la evaluación, pasa de versión 12 a versión 13. ECA-MCP13-I01 Instructivo de Muestreo, pasa de versión 10 a versión 11, ECAMP-P01 Manual de Procedimientos para la evaluación y acreditación: Generalidades, pasa de versión 05 aversión 06. ECA-MP-P02 Manual de Procedimientos para la evaluación y acreditación: Requisitos para la acreditación, pasa de versión 08 a versión 09 ECA-MP-P02-I02 Documentos aplicables en los diferentes procesos de evaluación, pasa de versión 04 aversión 05, ECA-MP-P04 Manual de Procedimientos para la evaluación y acreditación: Solicitud de acreditación y análisis de recursos, pasa de versión 05 a versión 06, no tiene transitorio. ECAMP-P05 Manual de Procedimientos para la evaluación y acreditación: Admisibilidad de la acreditación, pasa de versión 04 a versión 05, no tiene transitorio. ECA-MP-P06 Manual de Procedimientos para la evaluación y acreditación: Evaluación, pasa de versión 04 a versión 05, ECA-MP-P07 Manual de Procedimientos para la evaluación y acreditación: Actividades posteriores a la evaluación, pasa de versión 06 aversión 07 ECA-MP-P08 Manual de Procedimientos para la evaluación y acreditación: Toma de Decisión, pasa de versión 07 aversión 08 ECA-MP-P09 Manual de Procedimientos para la evaluación y acreditación: Emisión del certificado de acreditación, pasa de versión 05 a versión 06 ECA-MP-P10 Manual de Procedimientos para la evaluación y acreditación: Seguimiento y reevaluación, pasa de versión 06 a versión 07. Los documentos descritos anteriormente no poseen transitorios y se encuentran a disposición de los interesados en la página electrónica http://www.eca.or.cr/docs.php; así mismo puede solicitar el envío de manera electrónica o solicitar gratuitamente una copia no contralada en la Gestoría de Calidad en las oficinas centrales del ECA ubicadas en San Jose, Barrio Don Bosco, Avenida 02 y Calle 32, contiguo a la Embajada de España, en horario de lunes a viernes de 8:00 horas a 16:00 horas.
 San José, 09 de diciembre del 2020.
 (Nota de Sinalevi: El presente procedimiento ECA-MP-P09 Manual de Procedimientos para la evaluación y acreditación: Emisión del certificado de acreditación, se extrajo del sitio web del Ente Costarricense de Acreditación, y se transcribe a continuación:)
-[imagen]
+(Nota de Sinalevi: El presente procedimiento fue reformado parcialmente y reproducido su texto de forma íntegra mediante publicación en La Gaceta N° 167 del 12 de setiembre del 2023, donde se actualiza la versión N° 07 y se publica la versión 08, y se transcribe a continuación:)
+MANUAL DE PROCEDIMIENTOS PARA LA EVALUACIÓN Y ACREDITACIÓN | [imagen] Código N : ECA-MP-P09 | Páginas: 1 de 4
+EMISIÓN DEL CERTIFICADO DE ACREDITACIÓN | Fecha de entrada en vigencia: 2023.09.12 | Versión: 07
 TABLA DE CONTENIDO
-1 EMISIÓN DE REFERENCIAS OEC .......................................................................................... 1
-2 EMISIÓN DEL CERTIFICADO DE ACREDITACIÓN ................................................................. 1
-3 TRANSITORIO .......................................................................................................................... 3
-4 IDENTIFICACIÓN DE CAMBIOS .............................................................................................. 3
-1 EMISIÓN DE REFERENCIAS OEC
-1.1 Todo OEC acreditado o en proceso debe contar en su expediente con los siguientes registros firmados:
-1.2 Estos documentos son firmados de manera digital, siempre que sea posible y entregados con la solicitud de acreditación inicial para OEC en proceso y enviados al ECA mediante correo electrónico para los OEC acreditados.
-1.3 Finalizado y notificado el proceso de toma de decisión para las evaluaciones iniciales y ampliaciones, el ECA debe realizar la documentación que respalda la acreditación. Este documento, consiste en:
-a) ECA-MP-P09-F02: Compromiso de acreditación y se debe mantener en la versión vigente publicada por el ECA.
+1. EMISIÓN DE REFERENCIAS OEC 1
+2. EMISIÓN DEL CERTIFICADO DE ACREDITACIÓN 1
+3. PUBLICACIÓN EN DIARIO OFICIAL LA GACETA 3
+4. TRANSITORIO 3
+5. IDENTIFICACIÓN DE CAMBIOS 3
+EMISIÓN DE REFERENCIAS OEC
+1.1. Todo OEC acreditado o en proceso debe contar en su expediente con los siguientes registros firmados:
+a) ECA-MP-P09-F02: Compromiso de acreditación y se debe mantener en la versión vigente publicada por el ECA
 b) ECA-MP-P09-F05: Contrato para la prestación de servicios de acreditación por parte del Ente Costarricense de Acreditación al OEC.
-Nota: En caso de que algún representante Legal del OEC no cuente con firma digital debe solicitar al ECA la remisión de los formatos para que se gestione la firma y su envío al ECA.
-2 EMISIÓN DEL CERTIFICADO DE ACREDITACIÓN
+1.2. Estos documentos son firmados de manera digital, siempre que sea posible y entregados con la solicitud de acreditación inicial para OEC en proceso y enviados al ECA mediante correo electrónico para los OEC acreditados.
+Nota 1: En caso de que algún representante Legal del OEC no cuente con firma digital debe solicitar al ECA la remisión de los formatos para que se gestione la firma de manera rúbrica y su envío al ECA.
+EMISIÓN DEL CERTIFICADO DE ACREDITACIÓN
+2.1. Finalizado y notificado el proceso de toma de decisión para las evaluaciones iniciales y ampliaciones, el ECA debe realizar la documentación que respalda la acreditación. Esto consiste en:
 a) ECA-MP-P09-F01: Certificado y alcance de Acreditación.
 b) ECA-MP-P09-F03: Directorio de OEC.
 c) ECA-MP-P09-F04: Certificado y Alcance de Calibración
-1.4 La documentación solo puede ser entregada al OEC, cuando se hayan cancelado las tarifas establecidas de las etapas anteriores. No se emitirá ninguna certificación sobre el estado de acreditación si el OEC tiene deudas pendientes con el ECA.
-1.5 Para la elaboración de la documentación antes citada la Gestoría de Calidad, asigna el Código al Certificado de Acreditación o al Adendum, de la siguiente forma:
-Nota: la fecha efectiva del otorgamiento es la indicada en la notificación enviada al OEC.
-a. Código de Certificado de acreditación:
-- LE-001 (las dos primeras letras varían según corresponda: LE: Laboratorio de Ensayo, LC: Laboratorio de Calibración, LM: Laboratorio Clínico, PEA: Proveedor de Ensayo de Aptitud OCSG: Organismo de Certificación de Sistemas de Gestión, OCP: Organismo de Certificación de Producto; OI: Organismo de Inspección: OVV: Organismo Validador Verificador, PMR: Productores de Materiales de Referencia y el número corresponde al consecutivo del Certificado de acreditación de cada área).
-b. Código del Adendum:
-- LE-001-A01 (A01: Corresponde a la Ampliación del alcance de acreditación 01 otorgada al Laboratorio de Ensayos 001). 1.6 La Secretaría de Acreditación respectiva, es quien elabora el alcance de acreditación respectivo y lo entrega a la Gestoría de Calidad para su publicación.
-1.7 La Gestoría de Calidad, con la información entregada por parte de la Secretaría de Acreditación, prepara el ECA-MP-P09-F01 certificado y alcance de la acreditación, o el ECA-MP-P09-F04 Alcance de Calibración según corresponda; para otorgamientos iniciales o ampliaciones y solicita al AFC confirme la recepción del pago por otorgamiento.
-1.8 Después de confirmado el pago, la Gestoría de Calidad traslada los documentos respectivos a la Gerencia para su firma de manera digital.
-Nota 1: El contenido que se publica es responsabilidad de la Secretaría correspondiente, para cualquier emisión o modificación del alcance.
-Nota 2: Todos los OEC acreditados deben mantener los registros ECA-MP-P09-F01: Certificado y alcance de Acreditación y ECA-MP-P09-F02: Compromiso de acreditación, en la última versión vigente publicada por el ECA.
-1.9 La Gestoría de Calidad envía por correo electrónico al representante oficial del OEC el certificado y el alcance de acreditación firmados digitalmente y confirma la recepción por parte del OEC.
-1.10 En el caso del compromiso de acreditación para otorgamientos iniciales o cuando el compromiso sea modificado, la Gestoría de Calidad entrega dos originales al OEC, quien debe remitir uno de los compromisos firmados por el representante legal del OEC.
-1.11 La Gestoría de Calidad registra la información del OEC en el ECA-MP-P09-F03 Directorio de OEC y realiza la publicación en la página web del ECA (www.eca.or.cr)
-1.12 La Gestoría de Calidad, traslada a la Unidad de Logística el alcance y certificado para el archivo en el expediente del OEC.
-1.13 La Gestoría de Calidad elabora y entrega a Recepción - proveeduría del ECA, el texto a publicar con la información del OEC en el Diario Oficial La Gaceta.
-Nota: La información para publicar en el diario oficial incluye: el área de acreditación, número de acreditación, nombre del OEC, referencia al alcance acreditado, el estatus de acreditación, dirección, teléfonos, fax, correo electrónico de contactos.
-3 TRANSITORIO
-Se brinda la excepción de firma del compromiso en versión 08 a todos los OEC que cuenten con el compromiso firmado en versión 07 (no aplica para organismos de certificación).
-4 IDENTIFICACIÓN DE CAMBIOS Motivo: | Modificación del procedimiento ECA-MP-P09
-Refiérase a la solicitud de elaboración o modificación del documento 2020-199
-Observaciones: Cambios se subrayan en el documento
+Nota 2: La fecha efectiva del otorgamiento es la indicada en la notificación enviada al OEC.
+2.2. La documentación solo puede ser entregada al OEC, cuando se hayan cancelado las tarifas establecidas para el otorgamiento de la acreditación o ampliación. De igual manera, la publicación en el sitio web del ECA de otorgamientos iniciales o ampliaciones de alcance se realiza hasta que el OEC haya cancelado las facturas correspondientes. No se emitirá ninguna certificación sobre el estado de acreditación, ni se realizará la publicación del otorgamiento inicial o ampliación en el Diario Oficial la Gaceta y en el sitio web del ECA si el OEC tiene deudas pendientes con el ECA.
+2.3. Para la elaboración de la documentación citada en el punto 2.1, la Gestoría de Calidad, asigna el Código al Certificado de Acreditación se utiliza el código XX-YYY, donde:
+XX: corresponde al tipo de OEC. Se utilizan los siguientes acrónimos:
+. LE: Laboratorio de Ensayo, LC: Laboratorio de Calibración
+. LM: Laboratorio Clínico
+. PEA: Proveedor de Ensayo de Aptitud
+. OCSG: Organismo de Certificación de Sistemas de Gestión
+. OCH: Organismo de Certificación de Personas
+. OCP: Organismo de Certificación de Producto
+. OI: Organismo de Inspecció
+. OVV: Organismo Validador Verificador
+. PMR: Productores de Materiales de Referencia
+Y el número corresponde al consecutivo del Certificado de acreditación de cada área.
+YYY: número consecutivo, iniciando en 001.
+Por ejemplo: LC-001 corresponde al laboratorio de calibración número 001.
+Nota 3: El contenido que se publica es responsabilidad de la Secretaría correspondiente, para cualquier emisión o modificación del alcance.
+Nota 4: Todos los OEC acreditados deben mantener los registros ECA-MP-P09-F01: Certificado y alcance de Acreditación y ECA-MP-P09-F02: Compromiso de acreditación, en la última versión vigente publicada por el ECA.
+2.4. Para otorgamiento iniciales o cuando exista un cambio en la versión de los documentos ECAMP-P09-F01 y ECAMP-P09-F04 (según corresponda), la Gestoría de Calidad prepara el ECAMP-P09-F01 certificado y alcance de la acreditación, o el ECA-MP-P09-F04 Alcance de Calibración según corresponda siguiendo lo establecido en el ECA-MP-P09-I01 Instructivo del proceso de llenado, revisión y gestión de los alcances e información de los OEC.
+2.5. La Gestoría de Calidad envía por correo electrónico al representante del OEC ante ECA el certificado y el alcance de acreditación firmados digitalmente y solicita la confirmación de la recepción por parte del OEC.
+2.6. En el caso del compromiso de acreditación para otorgamientos iniciales o cuando el compromiso sea modificado, la Gestoría de Calidad solicita al OEC la firma del mismo y le indica que debe mantener el documento firmado disponible ya que será solicitado en cada evaluación.
+2.7. La Gestoría de Calidad mantiene actualizada la información del OEC en el ECA-MP-P09-F03 Directorio de OEC y realiza la publicación en la página web del ECA (www.eca.or.cr)
+2.8. La Gestoría de Calidad mantiene los registros de todos los alcances emitidos para cada OEC.
+2.9. El Departamento Legal realiza el trámite para la publicación en el Diario oficial La Gaceta, según los lineamientos de la sección 3.
+PUBLICACIÓN EN DIARIO OFICIAL LA GACETA
+3.1. Una vez que concluyen las sesiones mensuales de la Comisión de Acreditación, el Asistente de la Comisión de Acreditación redacta en un documento en Word, el detalle de cada acuerdo que fue tomado por la Comisión de Acreditación y que deba ser publicado. Se debe indicar: número de acreditación, nombre del OEC, decisión final, número telefónico, correo electrónico y dirección del OEC y norma relacionada.
+3.2. El Asistente de la Comisión de Acreditación envía el documento que contiene los acuerdos redactados al Departamento Legal.
+3.3. El Departamento Legal solicita a la Gerencia la firma del documento que contiene los acuerdos, solicita la cotización en la Gaceta y realiza la solicitud de pago para la publicación al Departamento Contable. Finalmente realiza la solicitud de publicación en el diario oficial.
+3.4. El Departamento Legal es el encargado de dar seguimiento a cada caso, hasta que se publique en el diario oficial.
+TRANSITORIO
+No Aplica
+IDENTIFICACIÓN DE CAMBIOS
+Motivo: | Actualización por cambios en proceso de emisión de certificado y alcance y responsabilidades asociadas
+Refiérase a la solicitud de elaboración o modificación del documento 2023-19
+Observaciones: Cambios se subrayan en el documento. Se realiza aclaración sobre el proceso para emisión del certificado y alcance de acreditación, así como la publicación en el sitio web y entrega de documentos relacionados con la acreditación y el pago correspondiente. Se realizan modificaciones de forma y en redacción.
