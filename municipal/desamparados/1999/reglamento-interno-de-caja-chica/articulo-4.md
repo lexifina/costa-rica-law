@@ -1,1 +1,0 @@
-Artículo 4°-El funcionario que retire el dinero al término de 24 horas naturales deberá presentar la factura original debidamente cancelada o reintegrar el dinero solicitado. En caso de no cumplir con esta disposición en el plazo antes citado, el Tesorero rendirá informe al alcalde o al Director Financiero para que se tomen las acciones pertinentes.
