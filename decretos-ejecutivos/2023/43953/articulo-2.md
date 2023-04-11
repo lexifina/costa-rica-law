@@ -1,0 +1,12 @@
+Artículo 2º-Definiciones y abreviaciones. Para efectos del presente Reglamento, se adoptan las siguientes definiciones:
+a) Certificación para la Sostenibilidad Turística (CST): Certificación otorgada por la Comisión Técnica de Verificación del CST (CTV-CST) adscrita al ICT y dirigida a empresas u organizaciones turísticas que cumplan con los requisitos del Reglamento del Programa de Sostenibilidad Turística, Decreto Ejecutivo N° 41415-MINAE-MCJ-MEIC-TUR del 17 de setiembre del 2018, publicado en el Alcance N° 203 al Diario Oficial La Gaceta N° 228 del 7 de diciembre del 2018 y del Estándar CST, cuya estructura se detalla en el Anexo I de dicho reglamento.
+b) Criterio de viabilidad de las actividades de parques sostenibles de aventura: Se entiende como el criterio técnico que emite el Instituto Costarricense de Turismo, mediante el cual se acredita la viabilidad de las actividades propuestas por las empresas que solicitan el otorgamiento del Régimen de Zonas Francas bajo la categoría establecida en el inciso i) del artículo 17 de la Ley N° 7210.
+c) Empresa beneficiaria: Empresa beneficiaria del Régimen de Zonas Francas al amparo de la Ley del Régimen de Zonas Francas, Ley N° 7210 y sus reformas.
+d) Estándar CST: Herramienta técnica de la Certificación para la Sostenibilidad Turística (CST), que tiene un eje central conformado por criterios e indicadores, clasificados como: de carácter obligatorio, mejora continua e impacto externo y bajo las características referenciadas en el Anexo 1 del Reglamento del Programa de Sostenibilidad Turística. Corresponde al Estándar CST 2.0 publicado en el Alcance N° 84 al Diario Oficial La Gaceta N° 72 del 25 de abril del 2018 y sus actualizaciones.
+e) ICT: Instituto Costarricense de Turismo.
+f) Ley N° 7210: Ley del Régimen de Zonas Francas, Ley N° 7210 del 23 de noviembre de 1990 y sus reformas.
+g) Ley N° 10234: Ley de Fortalecimiento de la Competitividad Territorial para Promover la Atracción de Inversiones Fuera de la Gran Área Metropolitana (GAM), Ley N° 10234 del 4 de mayo del 2022.
+h) Operaciones productivas: Son las actividades del proceso productivo y/o prestación de servicios al amparo del Régimen.
+i) PROCOMER: Promotora del Comercio Exterior de Costa Rica.
+j) Trámite: Cada una de las diligencias, actuaciones o gestiones consideradas previamente por las instituciones públicas usuarias del sistema de Ventanilla Única de Inversión para el curso y resolución de una solicitud realizada por las empresas mediante dicho sistema.
+k) VUI: Sistema de Ventanilla Única de Inversión.

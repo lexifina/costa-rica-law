@@ -1,0 +1,1 @@
+Transitorio único.-La Presidencia de la República, el Ministerio de Comercio Exterior y PROCOMER cuentan con un plazo de seis meses, a partir de la entrada en vigencia de este Reglamento, para coordinar e implementar los ajustes necesarios en los sistemas informáticos a fin de lograr que los procesos regulados en el presente reglamento se ejecuten en conectividad con la VUI.
