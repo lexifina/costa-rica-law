@@ -2111,6 +2111,11 @@ a. Del destino de los recursos.
 Deberán ser utilizados para financiar programas sin fines de lucro que beneficien a la población costarricense, los recursos que se giren a:
 - Asociación Cruz Roja Costarricense.
 - Asociación Costarricense para el Tamizaje y la Prevención de Discapacidades en el Niño para programas destinados al tamizaje neonatal.
+(*)Se autoriza para que la Asociación Costarricense para el Tamizaje y la Prevención de Discapacidades en el Niño para programas destinados al tamizaje neonatal utilice fondos girados por la JPS mediante la modalidad de giros directos, para el pago de servicios públicos (agua, luz, teléfono) así como mantenimiento y seguridad del inmueble adquirido para el desarrollo de los servicios que ofrecen a los beneficiarios conforme el siguiente detalle:
+Servicios públicos. Pago de recibos de agua, luz, teléfono (llamadas nacionales hasta un máximo del equivalente a $750 setecientos cincuenta dólares mensuales según el tipo de cambio de referencia del Banco Central de Costa Rica), no se autoriza el pago de teléfonos móviles, servicios municipales, impuestos territoriales.
+Mantenimiento de planta física: en inmuebles inscritos a nombre de la organización en los cuales se desarrollen actividades dirigidas a los beneficiarios, un total de ¢6.000.000,00 (seis millones de colones) anuales.
+Seguridad del inmueble: instalación de dispositivos de seguridad, pólizas de incendio, robo y desastres naturales.
+(*) (Así adicionado el párrafo anterior en sesión N° 19 del 11 de abril de 2023)
 - Hogares Crea para los programas de atención de farmacodependencia.
 1) Las personas que se beneficien de los servicios que brinden las organizaciones financiadas con los recursos aportados por la Junta, no deben pagar por el disfrute de estos.
 2) En cuanto al pago de salarios o servicios profesionales, se puede incluir únicamente el del recurso humano necesario para brindar el servicio de atención directa a los beneficiarios y no se pueden incluir salarios del personal administrativo.
