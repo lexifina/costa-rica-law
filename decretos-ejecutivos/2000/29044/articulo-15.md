@@ -1,3 +1,0 @@
-Artículo 15.Los proyectos de Obra Comunal e Ideas Productivas serán financiados por un máximo de seis meses, sin embargo podrá prorrogarse la ayuda dependiendo de la naturaleza del proyecto, siempre y cuando exista criterio técnico de una Institución u Organización reconocida, así como el respectivo contenido presupuestario.
-En proyectos de capacitación y formación ocupacional, el financiamiento se otorgará por el mismo tiempo de duración del Programa de Formación, siempre y cuando exista el contenido presupuestario para cubrirlo.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 41494 del 18 de diciembre de 2018)

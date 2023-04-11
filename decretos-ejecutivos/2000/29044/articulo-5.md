@@ -1,2 +1,0 @@
-Artículo 5.- El Ministerio de Trabajo y Seguridad Social suscribirá cartas de entendimiento y convenios de cooperación y coordinación con el Instituto Nacional de Aprendizaje y con cualquier otra institución pública o privada que participe en la labor de capacitación y formación de las personas, especialmente para el cumplimiento de lo dispuesto en el artículo 21 inciso a) de la Ley N° 7210 del 23 de noviembre de 1990 “Ley de Régimen de Zonas Francas.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 41494 del 18 de diciembre de 2018)

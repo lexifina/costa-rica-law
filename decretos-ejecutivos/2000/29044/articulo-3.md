@@ -1,1 +1,0 @@
-Artículo 3º—El PRONAE, se financiará con recursos provenientes del Presupuesto Ordinario y Extraordinario de la República de cada año fiscal y de cualquier otra fuente, pública o privada, nacional o internacional, que se llegue a establecer.

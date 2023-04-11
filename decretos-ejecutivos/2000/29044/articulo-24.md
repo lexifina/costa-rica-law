@@ -1,5 +1,0 @@
-CAPÍTULO V
-SUBSIDIO TEMPORAL DE EMPLEO EN
-CASOS DE EMERGENCIA NACIONAL
-Artículo 24.-Una vez declarado por decreto ejecutivo el estado de emergencia en cualquier parte del territorio nacional, el Programa Nacional de Empleo podrá otorgar el subsidio temporal de empleo, a aquellas personas que, como consecuencia de la emergencia, enfrenten la imposibilidad material de continuar ejecutando los objetivos de los proyectos en los que participen bajo las distintas modalidades del PRONAE, que al momento de la declaratoria se estuviesen realizando; o bien cuando dicha imposibilidad venga derivada de la aplicación de medidas inmediatas de prevención y atención que tengan como objeto evitar daños graves o irreparables a la salud de las personas. Tal subsidio podrá otorgarse también a las personas que sufran la pérdida de su empleo o de la fuente habitual de sus ingresos, vean sus ingresos reducidos por cambio en su jornada laboral o estuvieren en condición de desempleados, con motivo de la emergencia.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 42272 del 30 de marzo del 2020)

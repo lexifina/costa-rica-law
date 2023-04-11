@@ -1,2 +1,0 @@
-Artículo 11.- No podrán ser beneficiarias del programa aquellas personas que posean ingresos económicos estables iguales o superiores al salario mínimo de su categoría ocupacional, ni aquellas personas que estén incorporados a un régimen de pago de carácter gubernamental, salvo que se beneficien de la modalidad de capacitación y formación para el empleo.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 41494 del 18 de diciembre de 2018)
