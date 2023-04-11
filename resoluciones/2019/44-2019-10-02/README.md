@@ -14,3 +14,4 @@ Establece como medida sanitaria obligatoria el contar con supervisión profesion
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-04-21 | la propia norma |
+| 2 | 2023-04-11 | Resolución 22 (2023-04-11) |
