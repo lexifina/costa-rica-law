@@ -300,6 +300,7 @@ articulo-299.md
 articulo-300.md
 articulo-301.md
 articulo-302.md
+articulo-302-bis.md
 articulo-303.md
 articulo-304.md
 articulo-305.md

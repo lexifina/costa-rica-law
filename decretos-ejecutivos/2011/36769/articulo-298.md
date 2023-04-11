@@ -1,1 +1,2 @@
-Artículo 298.—El pasaporte ordinario tiene una vigencia de seis años.
+Artículo 298- La vigencia del pasaporte ordinario será determinada por la Dirección General de Migración y Extranjería, vía resolución administrativa debidamente fundamentada, conforme a las recomendaciones que al respecto emita la Organización Internacional de Aviación Civil (O.A.C.l). Dicha resolución deberá ser debidamente publicada en el Diario Oficial La Gaceta.
+(Así reformado por inciso 1) del artículo 2° del decreto ejecutivo N° 44312 del 11 de abril de 2023)
