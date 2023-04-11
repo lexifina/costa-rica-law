@@ -1,6 +1,6 @@
 Artículo 18.-Requisitos para la inscripción de emisiones en el Registro Nacional de Valores e Intermediarios. Salvo los casos especiales previstos en este Reglamento, la inscripción de emisiones para oferta pública en el RNVI estará sujeta al cumplimiento de los siguientes requisitos:
-a. Solicitud firmada por el representante legal de la entidad. Asimismo, para uso exclusivo y reservado en el trámite de autorización, los intermediarios financieros deben indicar el resultado del indicador de la suficiencia patrimonial de la entidad, con corte al último mes disponible de acuerdo con los plazos de presentación y condiciones dispuestos en la normativa establecida por la SUGEF.
-(Así reformado el inciso anterior en sesión N° 1658 del 26 de abril del 2021)
+a. Solicitud firmada por el representante legal de la entidad.
+(Así reformado el inciso anterior mediante sesión N° 1794-2023 del 11 de abril del 2023)
 b. Prospecto, de conformidad con lo establecido en los artículos 19 al 21.
 c. Calificación de riesgo, de conformidad con lo establecido en el artículo 22.
 d. Información financiera de conformidad con lo dispuesto en el artículo 23.
