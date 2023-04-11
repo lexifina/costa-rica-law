@@ -14,3 +14,4 @@ Deroga Reglamento del Sistema de Suministros de la Municipalidad de Liberia y ap
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-03-31 | la propia norma |
+| 2 | 2023-04-11 | Reglamento municipal 238 (2023-04-11) |
