@@ -65,10 +65,7 @@ REQUISITOS PARA EL PERMISO DE KARAOKES Y MÚSICA EN VIVO (Así adicionado el req
 |
 Licencias comerciales (Así adicionado el trámite anterior mediante sesión N° 157 del 9 de abril de 2012) (Derogado este apartado por el artículo 69 del Reglamento de procedimientos tributarios de la Municipalidad de Heredia, y publicado en el Alcance Digital N° 51 a La Gaceta N° 49 del 11 de marzo de 2021)
 Licencias de licores (Así adicionado el trámite anterior mediante sesión N° 157 del 9 de abril de 2012) (Derogado este apartado por el artículo 69 del Reglamento de procedimientos tributarios de la Municipalidad de Heredia, y publicado en el Alcance Digital N° 51 a La Gaceta N° 49 del 11 de marzo de 2021)
-SECRETARÍA
-Certificaciones A. Becas Estudiantiles B. Acuerdos Municipales C. Informes D. Actas | Llenar el formulario Aprotar los timbres de ley.
-Audiencias con el concejo Municipal | Llenar formulario en la secretaría del concejo Municipal, indicando: nombre completo, asunto y número de teléfono.
-Actividades A. Espectáculos públicos. B. Ferias C. Turnos D. Bailes | Se regirá según el reglamento correspondiente de cada uno.
+SECRETARÍA (Derogado el trámite anterior por Requisitos para el trámite de solicitud de Certificaciones y publicados en La Gaceta N° 74 del 28 de abril de 2023)
 |
 DIRECCIÓN JURÍDICA |
 Traspaso de patente de licores | Gestión escrita del concesionario de la patente dirigida a La Dirección Jurídica en la cual solicita la aprobación de la cesión de patente. Constancia del Departamento de Rentas y Cobranzas donde se especifique que se está al día con el pago de impuesto que grava la patente, el nombre del concesionario de la patente, y el distrito en el cual se explota la misma. Fotocopia de la cédulas de cedente y cesionario, autenticadas por un abogado, en caso de tratarse de personas jurídicas, copa de cédula jurídica y una personería jurídica con no más de 30 días de otorgada. Contrato de cesión de derechos de patente constante en escritura pública, debidamente impresa en papel de seguridad, debe indicarse en dicho negocio un valor discal de la cesión, sobre el cual se cancelarán timbres fiscales a razón de cinco punto veinticinco colones por cada mil, lo anterior en apego a los dispuesto por el Código Fiscal. Aprobación del Concejo Municipal (Artículo N° 82 Código Municipal)
