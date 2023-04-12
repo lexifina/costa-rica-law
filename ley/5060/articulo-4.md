@@ -1,4 +1,2 @@
-Artículo 4º.- El ancho de las carreteras y de los caminos vecinales
-será el que indique los Departamentos Técnicos del Ministerio de Obras
-Públicas y Transportes, sin que pueda ser menor de veinte metro para las
-primeras y de catorce metros para los segundos.
+Artículo 4- El ancho de las carreteras y de los caminos públicos será el que indiquen los departamentos técnicos del Ministerio de Obras Públicas y Transportes (MOPT), sin que pueda ser menor de veinte metros (20 m) para las primeras y de catorce metros (14 m) para los segundos, salvo para aquellas rutas y calles públicas, reconocidas, debidamente inventariadas, codificadas y georreferenciadas en rutas nacionales y cantonales, que consten en los registros oficiales del Ministerio de Obras Públicas y Transportes y de los gobiernos locales, así tengan menos de veinte metros (20 m) o catorce metros (14 m) de ancho, según corresponda, para su debida intervención, conservación, mejoramiento y rehabilitación, aplicando esta excepción únicamente para los caminos públicos actuales y debidamente registrados.
+(Así reformado por el artículo 1° de la ley N° 10343 del 29 de marzo del 2023)
