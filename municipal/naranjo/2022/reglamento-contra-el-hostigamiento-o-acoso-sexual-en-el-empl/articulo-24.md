@@ -1,0 +1,2 @@
+Artículo 24.-Valoración de la prueba. La prueba deberá valorarse conforme a las reglas de la sana crítica, la lógica y la experiencia. Ante la ausencia de prueba directa, deberá valorarse la prueba indiciaria y todas las fuentes del derecho común, en atención a los principios especiales que rigen la materia del hostigamiento sexual.
+En caso de duda, se interpretará con base en el principio pro-víctima; en ningún caso se podrán considerar los antecedentes de la persona denunciante, particularmente en lo relativo al ejercicio de su sexualidad y relaciones de pareja.

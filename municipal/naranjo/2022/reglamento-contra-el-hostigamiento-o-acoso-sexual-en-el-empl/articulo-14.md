@@ -1,0 +1,1 @@
+Artículo 14.-Principio de protección. En todo momento, la persona denunciante tiene derecho a que se le garantice su estabilidad e integridad física, psicológica, emocional y sexual. Es deber de la CCHS evitar cualquier forma de re-victimización.

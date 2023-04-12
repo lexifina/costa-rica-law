@@ -1,0 +1,6 @@
+Artículo 17.-Presentación de la denuncia. Las denuncias por hostigamiento sexual se interpondrán, en forma verbal o escrita, ante la Comisión Permanente Contra el Hostigamiento Sexual (CCHS), de manera presencial o por los medios tecnológicos que disponga la Comisión, lo cual deberá comunicar debidamente a todo el personal municipal y a las personas con relación municipal.
+La denuncia puede ser presentada ante cualquiera de los integrantes de la CCHS, verbalmente; en ese supuesto la persona integrante de la Comisión deberá:
+a) Levantar un acta en la cual se consigne lo expresado por la persona denunciante, quien, una vez leído lo manifestado, deberá firmarla, en conjunto con la persona que recibió la denuncia.
+b) Informarle a la persona que comparezca a interponer una denuncia sobre sus derechos y obligaciones.
+c) Trasladar la denuncia recibida a la persona que coordinadora de la CCHS, en un plazo de un día hábil.
+La supuesta víctima de hostigamiento sexual, conforme la "Ley contra el Hostigamiento Sexual en el Empleo y la Docencia", ley N° 7476 y sus reformas, cuenta con el plazo de 8 años para interponer denuncia por conductas de hostigamiento sexual en su contra; dicho plazo se computará a partir del último hecho consecuencia del hostigamiento sexual o a partir de que cesó la causa justificada que impidió denunciar.

@@ -1,0 +1,1 @@
+Artículo 7º-Procedimiento para personas contratadas mediante servicios profesionales. Cuando las denuncias sean planteadas contra personas contratadas bajo la modalidad de servicios profesionales, se seguirá el procedimiento contemplado en este reglamento.

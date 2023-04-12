@@ -1,0 +1,4 @@
+Artículo 32.-Aplicación de sanciones. Las sanciones que impliquen una suspensión no podrán coincidir con periodos de vacaciones individuales o colectivas o incapacidad de ninguna naturaleza, emitida por la instancia estatal competente.
+Las sanciones se establecerán sin perjuicio de que se acuda a la vía correspondiente, cuando las conductas también constituyan hechos sancionables, según el ordenamiento jurídico aplicable.
+La información relativa a las sanciones en firme, impuestas en la Municipalidad de Naranjo por conductas comprobadas de hostigamiento sexual, será de acceso público. El acceso deberá ajustarse a lo establecido en el inciso 4) del artículo 5 de la "Ley contra el Hostigamiento Sexual en el Empleo y la Docencia", ley N° 7476.
+La Alcaldía deberá informar a la Oficina de Recursos Humanos, las sanciones aplicadas al personal municipal, para que se incorpore en el expediente laboral del funcionario o funcionaria.

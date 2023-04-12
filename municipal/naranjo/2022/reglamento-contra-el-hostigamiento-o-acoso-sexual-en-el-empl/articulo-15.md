@@ -1,0 +1,4 @@
+CAPÍTULO VI
+Procedimientos
+Artículo 15.-Obligación de aplicación del presente reglamento. La instrucción del procedimiento administrativo disciplinario en materia de hostigamiento sexual deberá regirse por lo establecido en el presente Reglamento. Su inaplicación por parte de persona funcionaria municipal se considerará incumplimiento de deberes, se tipificará como falta grave y se aplicará el procedimiento disciplinario correspondiente, conforme las disposiciones de la Ley General de la Administración Pública.
+El procedimiento administrativo disciplinario en materia de hostigamiento sexual, según el caso en concreto, deberá ser tramitado de conformidad con las reglas de celeridad procesal, eficacia y eficiencia en la función pública; así como en respecto y aplicación del debido proceso y derecho de defensa.

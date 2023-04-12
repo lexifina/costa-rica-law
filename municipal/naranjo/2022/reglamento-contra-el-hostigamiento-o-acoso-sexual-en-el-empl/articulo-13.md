@@ -1,0 +1,1 @@
+Artículo 13.-Garantías para personas con discapacidad. En caso de que alguna de las partes sea persona con discapacidad, se tomarán las medidas necesarias para garantizar el cumplimiento de sus derechos, en igualdad de condiciones con los demás, de conformidad con la Convención sobre los Derechos de las Personas con Discapacidad, ley N° 8661 y demás normativa atinente.

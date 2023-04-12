@@ -1,0 +1,2 @@
+Artículo 33.-Denuncias falsas. Quien denuncie falsamente hostigamiento sexual podrá incurrir, cuando así se determine, en denuncia calumniosa, la cual se encuentra tipificada y sancionada por el Código Penal vigente.
+El presente Reglamento, de conformidad con el artículo 13, inciso C) del Código Municipal, fue debidamente aprobado por el Concejo Municipal de la Municipalidad de Naranjo, por medio de acuerdo SO-45-1064-2022, adoptado en la sesión ordinaria N° 45, celebrada el 07 de noviembre, 2022.
