@@ -1,0 +1,1 @@
+ARTÍCULO 3- El terreno donado se destinará, exclusivamente, a construir la iglesia católica de barrio Esquipulas. Si el inmueble donado deja de cumplir o no continúa con el fin que motivó la donación, deberá retornar a la entidad donante.

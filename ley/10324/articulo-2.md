@@ -1,0 +1,1 @@
+ARTÍCULO 2- Se autoriza a la Municipalidad de Santa Cruz para que done y traspase el terreno descrito en el artículo primero a las Temporalidades de la Iglesia Católica de la Diócesis de Tilarán, cédula jurídica número tres-cero uno cero-cero cuatro cinco tres cero cuatro (3- 010-045304).
