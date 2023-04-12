@@ -1,1 +1,0 @@
-Artículo 2°-Al entrar en vigencia la presente resolución, se deja sin efecto la actualización efectuada mediante la resolución número RES-DGH-043-2022, del 07 de octubre de 2022, publicada en La Gaceta número 203 del 25 de octubre de 2022.
