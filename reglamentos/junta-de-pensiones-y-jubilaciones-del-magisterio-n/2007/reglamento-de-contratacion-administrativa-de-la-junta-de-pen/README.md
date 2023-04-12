@@ -27,3 +27,4 @@ Reglamento de Contratación Administrativa de la Junta de Pensiones y Jubilacion
 | 12 | 2021-06-18 | Reglamento 69 (2021-06-18) |
 | 13 | 2022-02-04 | Reglamento 16 (2022-02-04) |
 | 14 | 2022-02-24 | Reglamento 23 (2022-02-24) |
+| 15 | 2023-04-12 | Reglamento 37 (2023-04-12) |
