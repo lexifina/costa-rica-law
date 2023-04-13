@@ -1,0 +1,3 @@
+Artículo 77.-De las infracciones. La suma que resulte y deba ser pagada por concepto de sanción, debe ser depositada en la cuenta de recaudación que al efecto se abra a nombre del Conis, dentro del plazo de quince días hábiles, contados a partir de la notificación de la sanción.
+En el supuesto de que el infractor incumpla con la obligación del pago de la sanción pecuniaria impuesta, el Conis emitirá el certificado de adeudo, el que para tales efectos se constituye en título ejecutivo, que se hará ejecutorio en la vía jurisdiccional correspondiente.
+(Así modificada su numeración por el artículo 2° del decreto ejecutivo N° 44033 del 13 de abril del 2023 que lo traspasó del antiguo artículo 75 al artículo 77)

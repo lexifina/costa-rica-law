@@ -1,24 +1,28 @@
-Artículo 47.—Del contenido del protocolo de investigación biomédica observacional o epidemiológica. El protocolo del estudio debe contener los siguientes puntos:
-a) Título del estudio.
-b) Nombre y dirección del patrocinador.
-c) Resumen del estudio.
-d) Justificación del estudio.
-e) Objetivos, hipótesis y preguntas que deben responderse.
-f) Resumen de los resultados de todos los estudios anteriores sobre el tema, publicados o no.
-g) Descripción detallada del diseño del estudio.
-h) Cantidad de participantes necesaria para lograr los objetivos y determinación estadística.
-i) Criterios de inclusión y exclusión.
-j) Análisis de laboratorio, imágenes, pruebas psicológicas y otros.
-k) Planes para el análisis estadístico de los datos.
-l) Beneficios para el participante individual.
-m) Beneficios para la población.
-n) Tiempo necesario para desarrollar el estudio total y por participante.
-o) Previsiones para resguardar la privacidad, confidencialidad y almacenamiento de los datos, detalle de la anonimización de los datos de los participantes.
-p) Determinar el uso futuro de las muestras biológicas y los datos del participante.
-q) Derechos de publicación de los resultados.
-r) Lista de referencias bibliográficas.
+Artículo 47.- Del contenido del protocolo de investigación biomédica observacional o epidemiológica. El protocolo del estudio debe contener los siguientes puntos:
+a)Título del estudio.
+b)Nombre y dirección del patrocinador.
+c)Resumen del estudio.
+d)Justificación del estudio.
+e)Objetivos, hipótesis y preguntas que deben responderse.
+f)Resumen de los resultados de todos los estudios anteriores sobre el tema, publicados o no.
+g)Descripción detallada del diseño del estudio.
+h)Cantidad de participantes necesaria para lograr los objetivos y determinación estadística.
+i)Criterios de inclusión y exclusión.
+j)Análisis de laboratorio, imágenes, pruebas psicológicas.
+k)Planes para el análisis estadístico de los datos.
+l)Beneficios para el participante individual.
+m)Beneficios para la población.
+n)Tiempo necesario para desarrollar el estudio total y por participante.
+o)Previsiones para resguardar la privacidad, confidencialidad y almacenamiento de los datos, detalle de la anonimización de los datos de los participantes.
+p)Determinar el uso futuro de las muestras biológicas y los datos del participante.
+q)Derechos de publicación de los resultados.
+r)Lista de referencias bibliográficas.
 Adicionalmente, se debe explicar cómo se hará lo siguiente (qué, quién, cómo, cuándo se hará):
 i. Reclutamiento de los participantes.
 ii. Obtención del consentimiento informado, si aplica.
 iii. Asentimiento, si aplica.
 iv. Comunicación a los participantes de información de interés sobre los resultados del estudio.
+El CEC podrá de manera justificada eximir de uno o más de los requisitos señalados en este artículo a las investigaciones observacionales realizadas por estudiantes o investigaciones que sólo comprendan la revisión de expedientes de los participantes siempre y cuando no se vean afectados, en ningún caso, los derechos o la seguridad de los participantes.
+a)Indicación de los medios que se utilizarán para el reclutamiento de participantes. Los CEC podrán autorizar el uso de espacios y medios informativos para el reclutamiento de participantes, sea medios de prensa televisiva, escrita, redes sociales o cualquier otro que el investigador, o el CEC considere pertinente, de acuerdo con el diseño del plan de reclutamiento propuesto en el paquete de sometimiento.
+b)Indicar si el procedimiento de reclutamiento de participantes incluye la solicitud a instituciones públicas o privadas, médicos tratantes, cualquier otro profesional de la salud, para la referencia o inclusión de pacientes, en cuyo caso, el CEC debe aprobar previamente la propuesta de reclutamiento específica para estos casos. Para aquellos casos en que los médicos tratantes sean parte del equipo investigador de algún estudio, se permitirá la referencia del médico tratante al estudio siempre y cuando sea un tercero quien aplique el proceso de consentimiento informado.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 44033 del 13 de abril del 2023 )
