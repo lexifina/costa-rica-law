@@ -14,3 +14,4 @@ Metodología tarifaria para la remuneración de los servicios auxiliares en el S
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-09-02 | la propia norma |
+| 2 | 2023-04-13 | Resolución 65 (2023-04-13) |
