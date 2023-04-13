@@ -1,0 +1,2 @@
+Artículo 6º-La solicitud de no afectación, no afectación histórica y exoneración puede ser presentada por cualquier ciudadano, siempre y cuando presente copia de la cédula del propietario y la solicitud firmada por el sujeto pasivo dueño registral o por el representante generalísimo o padre de familia en el caso de menor de edad, en el caso de los dueños que se encuentran en el extranjero debe de ser apostillada.
+Rige a partir de su publicación.

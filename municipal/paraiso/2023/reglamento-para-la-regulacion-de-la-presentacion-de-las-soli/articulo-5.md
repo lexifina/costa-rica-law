@@ -1,0 +1,2 @@
+Disposiciones finales
+Artículo 5º-Legislación Supletoria. Para lo no previsto en el presente reglamento se aplicará, supletoriamente, el Código de Normas y Procedimientos Tributarios, el Código Municipal y la Ley de Notificaciones, Citaciones y otras Comunicaciones Oficiales, en cuanto sea compatible con éste.
