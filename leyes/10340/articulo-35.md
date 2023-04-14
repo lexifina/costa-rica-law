@@ -1,0 +1,2 @@
+ARTÍCULO 35- Multa por declaración tardía o por no declaración
+Los sujetos pasivos que no presenten la declaración jurada del impuesto dentro del término establecido por esta ley, incluida la documentación complementaria, o bien, aquellos que del todo no cumplan con la obligación de presentación, se harán acreedores a una multa equivalente a un veinte por ciento (20%) calculado sobre el monto anual del impuesto de patente registrado en el período tributario inmediato anterior. Dicha multa deberá pagarse conjuntamente con el impuesto del trimestre siguiente.
