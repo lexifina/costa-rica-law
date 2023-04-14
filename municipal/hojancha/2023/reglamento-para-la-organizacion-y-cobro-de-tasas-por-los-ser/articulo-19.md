@@ -1,0 +1,1 @@
+Artículo 19.-Sobre el factor de ponderación de la categoría 1. Dada la poca cantidad de residuos que genera esta categoría (menos de 50 kg al mes), el factor de ponderación de esta categoría será de 1, siendo equivalente a la categoría residencial e institucional.

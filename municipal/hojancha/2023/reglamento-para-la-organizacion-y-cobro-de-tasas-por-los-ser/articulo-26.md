@@ -1,0 +1,1 @@
+Artículo 26.-Sobre los eventos de asistencia masiva. Para los eventos de asistencia masiva que se realicen en el Cantón, como plazas públicas, conciertos, ferias y similares, se cobrará al responsable físico o jurídico de la actividad el equivalente a nave comercial.

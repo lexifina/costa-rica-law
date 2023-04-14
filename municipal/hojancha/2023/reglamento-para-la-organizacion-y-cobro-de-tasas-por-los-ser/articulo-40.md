@@ -1,0 +1,4 @@
+CAPÍTULO IX
+Inconformidad del contribuyente
+Artículo 40.-Inconformidad del contribuyente de la tasa asignada. Todo generador registrado como contribuyente, podrá presentar su respectivo reclamo si considera que la categoría asignada no está acorde con su promedio de generación mensual de residuos sólidos ordinarios o si el cobro por las tasas de mantenimiento de parques y obras de ornato o aseo de vías y sitios públicos no se adecua a la realidad de su propiedad. Para la presentación de un reclamo de este tipo, el interesado deberá presentarlo por medio del correo electrónico del departamento de gestión ambiental gestionambiental@munihojancha.com.
+La Administración Municipal a petición de parte establecerá si corresponde el cobro el servicio de mantenimiento de parques y obras de ornato de acuerdo a un estudio previo, para la cual podrá recurrir a los medios de prueba necesarios que conllevan a una justa y correcta aplicación del no cobro del servicio.

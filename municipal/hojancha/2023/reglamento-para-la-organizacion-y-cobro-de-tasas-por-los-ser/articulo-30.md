@@ -1,0 +1,1 @@
+Artículo 30.-Tasa por el servicio de mantenimiento de parques y obras de ornato. El servicio de mantenimiento de parques y obras de ornato se cobra a cada parcela localizada en el distrito que se brinde el servicio, se factura al propietario, poseedor y/o copropietario del bien inmueble proporcionalmente al factor de cobro por el valor de la propiedad.

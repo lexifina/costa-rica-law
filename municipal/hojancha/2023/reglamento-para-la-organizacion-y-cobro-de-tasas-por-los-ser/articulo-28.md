@@ -1,0 +1,1 @@
+Artículo 28.-Cálculo de la tarifa. Obtenido el monto anual a recuperar por la suma de los elementos anteriores, se dividirá entre el total de unidades ponderadas servidas para así determinar el costo anual del servicio. Este dato se divide entre cuatro, para obtener el monto trimestral a pagar por unidad servida.

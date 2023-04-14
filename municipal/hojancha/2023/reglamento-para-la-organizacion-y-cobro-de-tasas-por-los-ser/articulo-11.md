@@ -1,0 +1,1 @@
+Artículo 11.-Unidad de cobro. El cobro se realizará al sujeto pasivo, de acuerdo a la cantidad de unidades habitacionales, actividad comercial, metros lineales de frente de propiedad, valor de la propiedad y cantidad de bóvedas, o según lo indique el cálculo tarifario de cada servicio y/o aquellas que determine la municipalidad.

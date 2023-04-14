@@ -1,0 +1,1 @@
+Artículo 17.-Categoría de las instituciones públicas, religiosas y de bien social. Las instituciones públicas, religiosas y de bien social se ubicarán dentro de la tarifa residencial e institucional, por ser de utilidad pública.

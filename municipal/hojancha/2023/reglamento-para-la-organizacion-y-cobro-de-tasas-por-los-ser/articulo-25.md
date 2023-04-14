@@ -1,0 +1,1 @@
+Artículo 25.-Solicitud de cobro de la tasa de manejo de residuos sólidos al propietario del inmueble comercial. Los patentados o profesionales liberales pueden solicitar que el cobro se realice al dueño o propietario del local comercial por medio de expresa solicitud escrita y acuerdo verificable entre las partes (contrato de arrendamiento).

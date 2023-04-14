@@ -1,0 +1,1 @@
+Artículo 12º-Ampliación de la cobertura de los servicios municipales. La Municipalidad decidirá de acuerdo a criterios establecidos, a cuáles sectores se ampliará la cobertura de los respectivos servicios y en qué momento. Se considerarán los recursos disponibles entre otros factores para realizar dicha ampliación.

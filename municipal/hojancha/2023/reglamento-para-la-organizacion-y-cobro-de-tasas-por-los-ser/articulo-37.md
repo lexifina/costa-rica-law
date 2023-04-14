@@ -1,0 +1,1 @@
+Artículo 37.-Tasa por el servicio de Cementerio. El servicio de cementerio se cobra a usuarios que adquieren el servicio, tanto de arrendamiento como por mantenimiento del espacio en el cementerio central ubicado en el distrito primero, se factura al propietario, poseedor y/o copropietario del derecho.
