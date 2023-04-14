@@ -1,0 +1,2 @@
+ARTÍCULO 25- Mínimo del impuesto
+En ningún caso el impuesto de patente comercial anual podrá ser inferior a un veinte por ciento (20%) del salario mínimo establecido en el artículo 2 de la Ley 7337, de 5 de mayo de 1993. De lo anterior quedan exceptuadas las actividades lucrativas autorizadas bajo la modalidad del régimen simplificado, de permiso ocasional y las que operan bajo algún esquema de incentivos, según lo dispuesto por esta ley.

@@ -1,0 +1,2 @@
+ARTÍCULO 9- Certificado de licencia o etiqueta de identificación
+Una vez autorizada la licencia, la Municipalidad entregará a cada patentado un certificado físico o digital que cuente con las medidas de seguridad que se consideren necesarias para evitar su falsificación, debiendo el titular colocarlo en un lugar visible dentro del establecimiento; además de una calcomanía que deberá colocarse en el exterior del local, de forma visible.

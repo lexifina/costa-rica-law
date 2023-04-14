@@ -1,0 +1,2 @@
+ARTÍCULO 18- Tarifa proyectada en el régimen tradicional
+Cuando los nuevos contribuyentes del régimen tradicional no hubieran operado por la totalidad del período fiscal inmediato anterior, la Municipalidad de Atenas establecerá un promedio mensual de ingreso, considerando la renta bruta reportada en la declaración presentada ante la Dirección General de Tributación y la fecha de inicio de actividad que conste en las bases de datos de esa dependencia. El resultado se proyectará para estimar el cargo anual.
