@@ -1,0 +1,1 @@
+Artículo 45.-Procedimientos aplicables. Para el procedimiento administrativo disciplinario y medidas cautelares por hechos que configuren violencia contra las mujeres en la política, en caso de personas electas popularmente, se observarán las reglas contenidas en las disposiciones de los capítulos l, ll y IV de este reglamento en lo que fueren compatibles.

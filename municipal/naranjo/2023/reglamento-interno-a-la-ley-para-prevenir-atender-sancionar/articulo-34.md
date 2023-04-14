@@ -1,0 +1,1 @@
+Artículo 34.-Recursos contra lo resuelto por el órgano decisor. Contra lo resuelto por el Alcalde o Alcaldesa, en calidad de órgano decisor, sobre sanciones disciplinarias, procederán los recursos dispuestos por el Código Municipal.

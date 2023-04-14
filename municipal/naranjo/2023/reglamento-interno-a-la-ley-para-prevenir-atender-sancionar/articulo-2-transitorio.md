@@ -1,0 +1,2 @@
+Transitorio Il.-Para cumplir con lo dispuesto en los artículos 1 1 sobre las acciones preventivas a cargo de la Alcaldía y artículo 12, sobre las acciones preventivas a cargo del Concejo Municipal, se establece un plazo de hasta seis meses a partir de la entrada en vigor del presente reglamento.
+De acuerdo con el artículo 13, inciso c) del Código Municipal, el presente Reglamento es autorizado por el Concejo Municipal de la Municipalidad de Naranjo, mediante Acuerdo SE-01-0058-2023, adoptado en la sesión extraordinaria n001 celebrada el 26 de enero de 2023.
