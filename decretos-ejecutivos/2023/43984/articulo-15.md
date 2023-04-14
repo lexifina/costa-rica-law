@@ -1,0 +1,2 @@
+Artículo 15. Del impedimento por doble beneficio. No podrán ser sujetas de las TMC ni de los servicios provenientes de contrataciones públicas, aquellas personas que ya cuenten con otro beneficio del Estado igual.
+El otorgamiento de una TMC o de beneficios provenientes de contrataciones, que complemente el proceso de formación de una persona inscrita en los servicios del Ministerio de Educación Pública ( en adelante MEP), del INA o dentro de la misma modalidad de EMPLEA TE no constituye doble beneficio.

@@ -1,0 +1,1 @@
+Artículo 73. Sobre los fondos de FODESAF. Además de los recursos presupuestados para este programa que provienen del FODESAF, la DESAF podrá aumentar los fondos vía modificación presupuestaria, con la finalidad de ampliar cobertura, financiar evaluaciones del programa y aquellos otros aspectos que en el marco de las competencias y viabilidad económica y jurídicas lo permitan.

@@ -1,0 +1,1 @@
+Artículo 31. Del Ministerio de Trabajo y Seguridad Social (MTSS). El MTSS podrá suscribir convenios generales o específicos con instituciones, para garantizar la coordinación, el desarrollo de actividades y consecución de objetivos en el marco de la modalidad EMPLEA TE y de este marco normativo.

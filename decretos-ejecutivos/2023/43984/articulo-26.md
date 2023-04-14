@@ -1,0 +1,10 @@
+CAPÍTULO V
+DE LOS DERECHOS Y DEBERES DE LAS PERSONAS USUARIAS
+Artículo 26. De los derechos de las personas usuarias. Las personas usuarias ele los servicios de formación para el empleo que establece esta modalidad tendrán los siguientes derechos:
+a) Recibir un trato respetuoso de los derechos y dignidad humana sin ninguna clase de discriminación de género, étnica, credo, orientación sexual, condición socioeconómica ni hostigamiento de ningún tipo, en apego a la normativa vigente y aplicable.
+b) Recibir información sobre lineamientos y condiciones asociadas con el proyecto de formación para el empleo, por parte del centro de formación, del MTSS y de otras instituciones involucradas en el proyecto. Así como del tratamiento que se le dará a la información personal que brinda, ello de acuerdo con la Ley No. 8968 del 7 de julio del 2011, Protección de la Persona frente al tratamiento de sus datos personales. La persona debe manifestar su consentimiento para el uso de sus datos personales.
+c) Solicitar y recibir información necesaria respecto a las TMC.
+d) Interponer su disconformidad ante el Centro de Formación y de no estar conforme con la respuesta de este, podrá acudir a la unidad ejecutora para que revise su caso. Las personas menores de edad deberán contar con un representante legal para tales fines. Para el caso de las personas con discapacidad, podrán contar con el apoyo de una persona garante, si fuera necesario.
+e) Solicitar al centro de formación y/o a la unidad ejecutora del MTSS cualquier apoyo complementario en procura de su ingreso, permanencia y egreso exitoso del proceso de formación para el empleo.
+f) Presentar las justificaciones correspondientes ante el incumplimiento o falta de las pautas y códigos establecidos dentro del proyecto de formación para el empleo o ele los términos de matrícula con determinado centro de formación.
+Para el caso específico de los contratos bajo el esquema de Pago por Resultados, los derechos de las personas usuarias se determinarán de acuerdo con las pautas que se consignen dentro del contrato que suscriba el MISS con determinado proveedor.

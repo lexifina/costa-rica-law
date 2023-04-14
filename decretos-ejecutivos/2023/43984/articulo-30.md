@@ -1,0 +1,4 @@
+Artículo 30. De la Unidad de Servicio al Usuario (en adelante USU) del lNA. El MTSS o la Unidad Ejecutora podrá coordinar con la USU, lo siguiente de acuerdo con las posibilidades institucionales;
+a) Facilitar información a la unidad ejecutora del MTSS sobre los montos actualizados y oficialmente aprobados por el INA en materia de ayudas económicas, becas y otros rubros similares.
+b) Cualquier otra función atinente en el marco de las disposiciones del presente reglamento, trámites asociados y que se encuentre dentro de las posibilidades y competencias institucionales.
+En el marco de la autonomía del INA, se podrán suscribir convenios interinstitucionales generales o específicos con el MTSS u otras instituciones, que garanticen la coordinación, el desarrollo de actividades y consecución de objetivos en el marco de la modalidad EMPLEA TE y de este marco normativo.

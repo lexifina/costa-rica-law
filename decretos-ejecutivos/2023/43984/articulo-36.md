@@ -1,0 +1,3 @@
+Artículo 36. De la suspensión de la TMC. La TMC puede ser suspendida en los casos en que, por aplicación del régimen disciplinario establecido por el centro de formación, se haya suspendido la condición de estudiante de una persona usuaria. La aplicación de la suspensión de la TMC corresponderá al período que dure la sanción.
+En caso de suspenderse el proceso de formación para el empleo, por razones ajenas a la persona usuaria, no se suspenderá el pago de la TMC, siempre y cuando la situación no sea mayor a un plazo de cinco días hábiles y que la persona usuaria siga manteniendo su condición de estudiante activo.
+Para casos calificados en donde la suspensión del servicio sea de un plazo mayor, la unidad ejecutora del MTSS tomará las medidas necesarias correspondientes.

@@ -1,0 +1,2 @@
+Artículo 34. Del mecanismo para el desembolso de la TMC Contractual. El MTSS determinará el esquema de pagos y desembolsos dentro de cada contrato que este suscriba con determinado proveedor. Para ello, el MTSS deberá establecer criterios e indicadores de gestión, éxito, impacto y resultados verificables tanto en los pliegos de condiciones como en los contratos correspondientes.
+Lo anterior en apego a la normativa vigente en materia de contratación pública y uso de fondos públicos, entre ella la Ley General de Contratación Pública.

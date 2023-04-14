@@ -1,0 +1,3 @@
+Artículo 54. De la activación y vigencia de la modalidad de BAE. Una vez efectuada la resolución por parte de la persona funcionaria de la unidad ejecutora, la persona postulante tendrá un plazo máximo de 5 días hábiles para concretar su trámite de inscripción en el servicio de intermediación de empleo elegido y con la Unidad de Empleo seleccionada.
+La TMC que la modalidad de BAE ofrece para la persona usuaria, estará sujeta a la duración del proyecto en particular y demás deberes de la persona usuaria.
+La cantidad de proyectos y de personas usuarias estará determinada por la disponibilidad de recursos financieros institucionales, debidamente presupuestados para estos fines.

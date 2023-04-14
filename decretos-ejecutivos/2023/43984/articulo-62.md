@@ -1,0 +1,1 @@
+Artículo 62. De la programación y periodicidad del desembolso de la TMC. EL MTSS mediante el Departamento Financiero, procederá a realizar los pagos de las TMC correspondientes a las personas usuarias, de acuerdo con los proyectos específicos y gestiones generadas con la unidad ejecutora de esta modalidad. Se utilizará el cronograma institucional de pagos correspondiente.

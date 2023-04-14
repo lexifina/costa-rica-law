@@ -1,0 +1,1 @@
+Artículo 75. De los recursos. Las instituciones involucradas, para la ejecución del presente decreto dispondrán los recursos humanos, financieros y de cualquier otra índole; que sean necesarios y que estén dentro de sus competencias.

@@ -1,0 +1,7 @@
+Artículo 6. De las poblaciones objetivo. El PRONAE opera bajo diferentes modalidades, las cuales presentan propósitos y criterios de selección específicos. En términos generales, el programa establece las siguientes poblaciones objetivo:
+a) Personas en búsqueda de empleo, dentro de la fuerza de trabajo que se encuentran en situación de desempleo.
+b) Personas fuera de la fuerza de trabajo que se encuentran disponibles.
+c) Estudiantes avanzados y activos de los Colegios Técnicos Profesionales del Ministerio de Educación Pública, que cursan carreras intensivas en empleo y que requieren desarrollar competencias específicas para el empleo o incorporarse en procesos de intermediación de empleo.
+d) Estudiantes activos del Instituto Nacional de Aprendizaje, que reciben servicios de capacitación y formación profesional y que requieren desarrollar competencias específicas para el empleo o incorporarse en procesos de intermediación de empleo.
+e) Personas egresadas de los servicios de capacitación y formación profesional en el marco el SNE.
+Dado que cada uno de los proyectos específicos del PRONAE pueden presentar objetivos y condiciones específicas en torno a los requerimientos del mercado laboral, para la selección de las personas usuarias se deberá considerar los criterios de priorización que establece el SNE, los requisitos específicos de admisión que se establecen en cada uno de los procesos de formación para el empleo, y los requisitos que se establecen dentro de los perfiles ocupacionales y las vacantes que formula el sector productivo.

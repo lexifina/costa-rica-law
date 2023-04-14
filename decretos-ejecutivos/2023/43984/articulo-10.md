@@ -1,0 +1,8 @@
+TITULO III
+MODALIDAD EMPLEATE
+CAPÍTULO I
+ALCANCE Y FINES DE LA MODALIDAD EMPLEATE
+Artículo 10. De la modalidad EMPLEATE en general. EMPLEATE consiste en una modalidad o subprograma, que funciona mediante el otorgamiento de TMC dirigidas a las personas usuarias, para que estas puedan cubrir procesos de formación para el empleo impartidos por centros de formación públicos o privados autorizados por la unidad ejecutora del programa. Las personas usuarias deben cumplir con las disposiciones que establece el programa para poder obtener el beneficio.
+El subprograma EMPLEATE tiene dos esquemas de funcionamiento, de acuerdo con la modalidad de TMC que se utilice, lo cuales son los siguientes:
+a) Esquema de pago directo: Mediante este esquema, las personas que cumplan con los requisitos definidos por el MTSS participan en servicios de capacitación y formación profesional, en centros de formación público o privados en el marco de PRONAE, con el objetivo de mejorar su nivel de empleabilidad, recibirán la TMC personal.
+b) Esquema de pago por contratación: En este esquema, los centros de formación, contratados mediante los diversos mecanismos de contratación pública que se disponen en la Ley General de Contratación Pública, atenderán a la población objetivo seleccionada por el MTSS y será a estos a quien se les cancele la TMC contractual. Para este caso, los objetivos específicos, indicadores. Adicionalmente, para este esquema, la persona participante podrá recibir una TMC personal complementaria para los fines que se definen en el inciso b) del artículo 12 del presente Decreto Ejecutivo.

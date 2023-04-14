@@ -1,0 +1,9 @@
+Artículo 19. De los derechos de los centros de formación y organizaciones competentes prestatarios de servicios. Los centros de formación y organizaciones competentes prestatarios de servicios, que participen en proyectos de esta modalidad tendrán los siguientes derechos:
+a) Recibir los lineamientos y normas técnico-metodológicas del MTSS relacionadas con los procedimientos de esta modalidad.
+b) Recibir colaboración por parte de otros centros de formación, organismos, instituciones y actores competentes, para promover los servicios de formación para el empleo, así como en la búsqueda activa de personas que puedan ser beneficiarias y usuarias de los servicios de esta modalidad, lo anterior según la delimitación de la población objetivo y criterios de priorización. La plataforma informática del SNE, la ANE y la RUE podrán generar el apoyo correspondiente para estos fines.
+c) Recibir retroalimentación en torno a las estrategias y prioridades institucionales relacionadas con la modalidad EMPLEATE.
+d) Recibir montos económicos por parte de las personas usuarias seleccionadas en cada proyecto particular de acuerdo con esta modalidad. Lo anterior bajo los parámetros de razonabilidad y calendario financiero del Ministerio de Hacienda.
+e) Desarrollar de forma independiente su actividad central.
+f) Establecer procesos internos en las áreas operativas, de bienestar estudiantil y en materia de conducta de las personas estudiantes.
+g) Proponer al MTSS oportunidades de mejora atinentes con los objetivos y operación de la modalidad EMPLEA TE.
+Para el caso específico de las contrataciones públicas que se realicen, las pautas y especificaciones alrededor de cada proyecto, estarán definidas por cada contrato que suscriba el MTSS con determinado proveedor, conf01me a lo dispuesto en Ley General de Contratación Pública y la modalidad respectiva.

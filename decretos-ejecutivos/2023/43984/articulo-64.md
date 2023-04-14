@@ -1,0 +1,6 @@
+Artículo 64. De cancelación automática TMC. La TMC que ya esté aprobada para una persona usuaria inscrita dentro de un proyecto de intermediación de empleo, podrá ser cancelada de forma automática de acuerdo con las siguientes causales:
+a) Cuando la persona usuaria no cumpla con las actividades dentro del pacto de servicios de empleo personalizado y las actividades que se enmarquen en cada proyecto de esta modalidad sin que medie una justificación razonada y valorada por la unidad ejecutora del MTSS.
+b) Cuando una persona usuaria abandone definitivamente el servicio de intermediación de empleo en que se encuentra inscrita.
+c) Cuando una persona usuaria incumpla con los deberes establecidos dentro de este marco no1mativo y demás aspectos aplicados por la Unidad de Empleo en que se encuentre inscrito su plan de servicio de empleo personalizado.
+d) Cuando la persona postulante no formaliza y ni se inscribe en el pacto de servicios de empleo personalizado con determinada Unidad de Empleo.
+e) Cuando la persona usuaria varíe su situación de empleo de desocupada a ocupada. No se podrá desembolsar una nueva TMC por concepto de las actividades planificadas posteriores a la variación de la situación de empleo.

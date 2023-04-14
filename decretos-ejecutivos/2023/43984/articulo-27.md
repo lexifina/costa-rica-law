@@ -1,0 +1,13 @@
+Artículo 27. De los deberes de las personas usuarias. Las personas usuarias ele la modalidad EMPLEA TE tendrán los siguientes deberes:
+a) Proporcionar la información y documentación veraz que le solicite el personal de la unidad ejecutora para fines de la ejecución de un determinado proyecto de formación para el empleo.
+b) Proporcionar una cuenta bancaria IBAN, a efectos de realizar los depósitos provenientes de las TMC en el marco del proyecto de formación para el empleo.
+c) Lograr el cumplimiento de objetivos de aprendizaje, criterios de evaluación y requisitos establecidos dentro del programa de formación para el empleo en donde la persona usuaria se encuentre matriculada.
+d) Utilizar el beneficio proporcionado mediante la TMC para fines exclusivos indicados dentro del proyecto de formación para el empleo en el marco de la modalidad EMPLEA TE.
+e) Reportar al centro de formación o personal de la unidad ejecutora del MTSS cualquier situación que pueda poner en riesgo la continuidad dentro del proyecto de formación para el empleo.
+f) Facilitar la información de manera veraz que el personal de unidad ejecutora del MTSS requiera para verificar y/o fiscalizar el cumplimiento de lo dispuesto por el proyecto de formación para el empleo.
+g) Presentar las justificaciones ante el centro de formación y la unidad ejecutora del MTSS, cuando se requiera atender una situación especial, para que de esta manera la unidad ejecutora valore los apoyos correspondientes dentro del marco normativo y lineamientos de la modalidad.
+h) Realizar los pagos correspondientes y con la periodicidad requerida, correspondientes al servicio de formación para el empleo para el cual se aprobó su incorporación en calidad de estudiante en determinado proyecto, en el centro de formación seleccionado por la persona y de conformidad con las disposiciones del presente marco normativo.
+i) Reintegrar a la unidad financiera del MTSS, en un plazo máximo de cinco días hábiles el dinero otorgado por concepto de TMC, cuando por razones debidamente justificadas se lo solicite el personal de la unidad ejecutora del MTSS.
+j) Acatar los lineamientos o instrucciones indicadas por el personal de la unidad ejecutora del MTSS, en apego a las disposiciones de esta norma.
+k) Cualquier otra que, en apego a las disposiciones de este marco normativo, términos de matrícula, códigos de conducta o lineamientos, puedan emitirse para la adecuada gestión del proyecto de formación para el empleo.
+Para el caso específico de los contratos, los deberes de las personas usuarias se determinarán de acuerdo con las pautas que se consignen dentro del contrato, que suscriba el MTSS con determinado proveedor.

@@ -1,0 +1,1 @@
+Artículo 60. Del Ministerio de Trabajo y Seguridad Social (MTSS). El MTSS podrá suscribir convenios generales o específicos con otras instituciones, para garantizar la coordinación, el desarrollo de actividades y consecución de objetivos en el marco de la modalidad ele BAE y de este marco normativo.

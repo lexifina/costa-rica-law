@@ -1,0 +1,1 @@
+Artículo 52. De la solicitud de la modalidad de BAE. La persona postulante deberá presentar la solicitud por escrito ante la unidad ejecutora, según lo establecido en el artículo 4 de la ley 9097, Ley de Regulación del Derecho de Petición, para lo cual, además, el MTSS podrá habilitar el formulario correspondiente para guía de la persona usuaria interesada en postularse

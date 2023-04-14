@@ -1,0 +1,4 @@
+Artículo 59. De la USU. De la Unidad de Servicio al Usuario (en adelante USU) del INA. El MTSS o la Unidad ejecutora podrá coordinar lo siguiente, de acuerdo con las posibilidades institucionales:
+a) Facilitar información a la unidad ejecutora del MTSS, sobre los montos actualizados y oficialmente aprobados por el INA en materia de ayudas económicas, becas y otros rubros similares.
+b) Cualquier otra función atinente en el marco de las disposiciones del presente decreto, trámites asociados siempre y cuando, previo análisis se encuentre dentro de las posibilidades y competencias institucionales.
+En el marco de la autonomía del Instituto Nacional de Aprendizaje, se podrán suscribir convenios interinstitucionales generales o específicos con el MTSS u otras instituciones, que garanticen la coordinación, el desarrollo de actividades y consecución de objetivos en el marco ele la modalidad de BAE y de este marco normativo.

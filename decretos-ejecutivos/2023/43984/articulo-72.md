@@ -1,0 +1,1 @@
+Artículo 72. Sobre los procedimientos y herramientas para la gestión del PRONAE. El MTSS deberá elaborar y mantener actualizados los procesos necesarios para la adecuada gestión y control de los fondos públicos y demás recursos asignados al PRONAE.
