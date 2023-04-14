@@ -1,0 +1,10 @@
+ARTÍCULO 15
+ACUERDOS DE COOPERACIÓN COMERCIAL
+1. Para la explotación de los servicios convenidos, la(s) línea(s) aérea(s) designada(s) de cada Parte Contratante podrá(n) concluir acuerdos de cooperación comercial, tales como acuerdos de reserva de capacidad, códigos compartidos o cualquier otro acuerdo de empresa conjunta, con:
+(a) una o varias líneas aéreas de cualquiera de las Partes Contratantes; y
+(b) una o varias líneas aéreas de un tercer país.
+2. Las líneas aéreas de hecho que sean partes en estos acuerdos de cooperación comercial deberán contar con las autorizaciones adecuadas y con todos los derechos de tráfico correspondientes, incluyendo aquellos relativos a las rutas y a la capacidad, y cumplir con los criterios que normalmente se aplican a este tipo de acuerdos.
+3. Todas las líneas aéreas contractuales que sean partes en estos acuerdos de cooperación comercial deberán contar con las autorizaciones adecuadas y con todos los derechos relativos a las rutas correspondientes y cumplir con los requisitos que normalmente se aplican a este tipo de acuerdos.
+4. La capacidad total explotada por los servicios aéreos realizados en el marco de estos acuerdos de cooperación comercial sólo se descontará del límite de capacidad de la Parte Contratante que haya designado la(s) línea(s) aérea(s) de hecho. La capacidad ofrecida por estos servicios por la(s) línea(s) aérea(s) contractual(es) no se descontará del límite de capacidad de la Parte Contratante que haya designado a dicha línea aérea.
+5. Las Autoridades Aeronáuticas de cada Parte Contratante podrán exigir no solo a la(s) línea(s) aérea(s) de hecho sino a la(s) línea(s) aérea(s) contractual(es) que presenten sus programas para su autorización.
+6. Cuando se vendan servicios en el marco de estos acuerdos de cooperación comercial, la línea aérea en cuestión o su agente deberán informar al comprador, en el momento de la venta, de la identidad de la línea aérea de hecho en cada tramo del servicio y de la identidad de la(s) línea(s) aérea(s) con la(s) que concluye un contrato el comprador.

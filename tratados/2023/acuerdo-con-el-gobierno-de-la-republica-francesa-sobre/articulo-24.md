@@ -1,0 +1,3 @@
+ARTÍCULO 24
+ACUERDOS MULTILATERALES
+Si, después de la entrada en vigor del presente Acuerdo, ambas Partes Contratantes quedan vinculadas por un acuerdo multilateral que abarque cuestiones reguladas por el presente Acuerdo, prevalecerán las disposiciones del acuerdo multilateral. Ambas Partes Contratantes podrán celebrar consultas de conformidad con el artículo 22 del presente Acuerdo con el fin de determinar en qué medida el presente Acuerdo se ve afectado por las disposiciones de dicho acuerdo multilateral y si es conveniente revisar el presente Acuerdo para tener en cuenta dicho acuerdo multilateral.

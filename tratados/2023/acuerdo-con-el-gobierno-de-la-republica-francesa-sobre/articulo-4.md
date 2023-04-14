@@ -1,0 +1,14 @@
+ARTÍCULO 4
+REVOCACIÓN O SUSPENSIÓN DE UNA AUTORIZACIÓN DE OPERACIÓN
+1. Cada Parte Contratante tendrá el derecho de revocar una autorización de explotación, de suspender el ejercicio de los derechos otorgados en el presente Acuerdo a una línea aérea designada por la otra Parte Contratante o de imponer las condiciones que estime necesarias para el ejercicio de estos derechos cuando:
+(a) en el caso de una línea aérea designada por la República Francesa:
+i. la línea aérea no esté establecida en el territorio de la República Francesa según lo dispuesto en el Tratado de la Unión Europea y en el Tratado de Funcionamiento de la Unión Europea o no tenga una licencia de explotación válida de conformidad con la legislación de la Unión Europea; o
+ii. el control reglamentario efectivo de la línea aérea no sea ejercido ni mantenido por el Estado miembro de la Unión Europea responsable de la expedición del certificado de operador aéreo o las Autoridades Aeronáuticas competentes no estén claramente identificadas en la designación; o
+iii. la línea aérea no sea propiedad, ya sea directamente o ya sea mediante participación mayoritaria, de Estados miembros de la Unión Europea o de la Asociación Europea de Libre Comercio y/o de nacionales de esos Estados, o el control efectivo de la línea aérea no recaiga en dichos Estados y/o en nacionales de dichos Estados.
+Al ejercer el derecho mencionado en el presente apartado, la República de Costa Rica no hará ninguna discriminación por motivos de nacionalidad entre líneas aéreas de la Unión Europea;
+(b) en el caso de una línea aérea designada por la República de Costa Rica:
+i. la línea aérea no esté establecida en el territorio de la República de Costa Rica o no tenga una licencia de explotación válida de conformidad con la legislación de la República de Costa Rica; o
+ii. la República de Costa Rica no ejerza y no mantenga un control reglamentario efectivo sobre la línea aérea.
+(c) cuando dicha línea aérea no cumpla con las leyes o los reglamentos normal y uniformemente aplicados a la explotación del transporte aéreo internacional por la Parte Contratante que otorga estos derechos;
+(d) en todos los casos en los que no se apliquen o implementen las normas mencionadas en el presente Acuerdo, especialmente en los artículos 10 y 11.
+2. Salvo en el caso de que sean necesarias, de forma inmediata, la revocación, la suspensión o la imposición de las condiciones mencionadas en el apartado 1 del presente artículo para impedir nuevas infracciones de las leyes y de los reglamentos o de las disposiciones del presente Acuerdo, este derecho se ejercerá solamente después de consultar con la otra Parte Contratante. Dichas consultas se celebrarán en un plazo de treinta (30) días a partir de la recepción de la solicitud de una Parte Contratante de mantener dichas consultas, salvo pacto en contrario entre ambas Partes Contratantes.

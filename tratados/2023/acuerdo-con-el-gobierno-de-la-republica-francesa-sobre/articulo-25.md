@@ -1,0 +1,3 @@
+ARTÍCULO 25
+DENUNCIA
+Cada una de las Partes Contratantes podrá notificar en todo momento por escrito y por conducto diplomático su intención de denunciar el presente Acuerdo. La notificación se enviará simultáneamente a la Organización de Aviación Civil Internacional. En tal caso, el presente Acuerdo dejará de tener efecto doce (12) meses después de la fecha de recepción de la notificación por la otra Parte Contratante, salvo si se retira la denuncia por decisión de común acuerdo antes de la expiración de dicho plazo. Si la otra Parte Contratante no acusa recibo, la notificación se considerará recibida quince (15) días después de la fecha en que acuse recibo de la misma la Organización de Aviación Civil Internacional.
