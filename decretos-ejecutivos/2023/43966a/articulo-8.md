@@ -1,0 +1,5 @@
+Artículo 8.-Equipaje
+Las mercancías ingresadas por las personas responsables de la realización del PIA, que constituyan equipaje acompañado o no acompañado, gozarán de la exención del pago de tributos a que se refiere el artículo 113 del Código Aduanero Uniforme Centroamericano (CAUCA), Ley Nº 7485 del 6 ele abril de 1995, siempre y cuando las mercancías que lo componen correspondan a las señaladas por el artículo 578 del Reglamento al Código Aduanero Uniforme Centroamericano (RECAUCA), Decreto Ejecutivo Nº 42876 del 28 de enero del 2021.
+Además, de lo señalado en el artículo 578 del RECAUCA, se considerará equipaje los útiles, vestuario, maquillaje, escenografía y material técnico que se requieran para la realización del proyecto fílmico. Asimismo, a las personas encargadas de ingresar materiales, equipo o vestuario del proyecto se les facilitará el ingreso del equipaje correspondiente.
+En ningún caso se cobrará impuesto, gravamen, tasa o contribución, ni otros cargos de mercancías asociadas a la Ley Nº 10071 y este Reglamento, independientemente de su valor o fin comercial.
+Lo anterior no impedirá las actuaciones de control de las autoridades competentes.

@@ -1,0 +1,2 @@
+Artículo 12.-Promoción de los Encadenamientos productivos
+Para efectos de promover los encadenamientos productivos, PROCOMER levantará y actualizará un inventario permanente de proveedores de bienes y servicios que puedan ser requeridos por los beneficiarios de la Ley. Dicho inventario estará disponible en la página web de PROCOMER wWvv.procomer.com y de la Comisión Fílmica www.costaricafilmcommission.org.

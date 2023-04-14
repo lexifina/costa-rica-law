@@ -1,0 +1,1 @@
+Artículo 24.-Transitorio único. A partir de la entrada en vigor de este Reglamento, PROCOMER en coordinación con las instituciones participantes, cuentan con un plazo de seis meses para coordinar e implementar los ajustes indicados en el aitícuJo 23 del presente reglamento.

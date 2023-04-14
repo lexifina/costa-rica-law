@@ -1,0 +1,2 @@
+Artículo 21.-Confidencialidad de la información
+Toda la información tramitada ante PROCOMER, el Ministerio de Hacienda, DOME, así corno cualquier otra dependencia del sector público; será tratada acorde con las disposiciones de la Ley de Protección de la Persona Frente al Tratamiento de sus Datos Personales, Ley N º 8968 de 7 de julio de 2011 y su Reglamento, Decretó Ejecutivo N º 37554-JP del 30 octubre del 2012, así como el artículo 117 del Código de Normas y Procedimientos Tributarios y el artículo 16 ele la Ley Nº 8881 (CAUCA IV).

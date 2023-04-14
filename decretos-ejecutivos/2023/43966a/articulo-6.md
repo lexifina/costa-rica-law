@@ -1,0 +1,2 @@
+Artículo 6.-Exoneración del impuesto sobre la renta del traba.jo personal dependiente
+Cada PIA estará exento del impuesto sobre la renta del trabajo personal dependiente o independiente y de las retenciones por remesas al exterior de personal extranjero por los pagos a los actores, actrices, directores, productores, personal técnico y todo aquel personal necesario para el desarrollo del proyecto, siempre que dichos pagos no sean realizados con fondos de fuente costarricense.
