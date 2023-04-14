@@ -1,0 +1,1 @@
+Artículo 25.- Aval de la Jefatura del Departamento de Servicios Generales. Toda modificación o restructuración que sufra el "Sistema de Verificación del estado mecánico de los vehículos institucionales" deberá contar con el aval de la jefatura del Departamento de Servicios Generales.

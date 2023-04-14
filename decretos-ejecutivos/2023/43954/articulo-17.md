@@ -1,0 +1,1 @@
+Artículo 17.- Suspensión del carné para operar vehículos oficiales de Cosevi. La Unidad de Transportes acordará la suspensión del carné para operar vehículos oficiales del Cosevi, a cualquier funcionario conductor que contravenga lo dispuesto en la regulación legal vigente o procedimientos aquí establecidos, una vez que ello se haya comprobado previa investigación.

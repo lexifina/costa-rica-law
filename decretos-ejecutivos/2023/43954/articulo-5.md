@@ -1,0 +1,1 @@
+Artículo 5.- Asignación de vehículos. La asignación de los vehículos es únicamente para facilitar el desarrollo de las actividades del Cosevi; por ningún motivo será considerada como salario en especie, plus, mejora salarial o beneficio, ni da lugar a derechos laborales adquiridos en favor del funcionario.

@@ -1,0 +1,1 @@
+Artículo 14:- Funcionamiento del odómetro y/o horómetro en los vehículos oficiales de Cosevi. Todos los vehículos oficiales del Cosevi deben tener en buen estado ele funcionamiento el odómetro y/o el horómetro.

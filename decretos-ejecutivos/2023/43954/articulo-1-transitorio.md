@@ -1,0 +1,1 @@
+Transitorio Único. Se otorga a la Unidad de Transportes del Departamento de Servicios Generales del Cosevi, un plazo de seis meses contados a partir de la publicación del presente Reglamento para la implementación y reglamentación de los procedimientos y programas indicados en los artículos 9 inciso b) subinciso v); artículo 22 incisos d) y e); y artículo 24.

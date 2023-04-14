@@ -1,0 +1,1 @@
+Artículo 35.- Vehículos de uso policial y de los destacados en las direcciones generales. Para los vehículos de uso policial y los destacados en otras Direcciones Generales, deberán de respetarse igualmente las reglas precedentes mediante una estricta coordinación con la Unidad de Transportes.

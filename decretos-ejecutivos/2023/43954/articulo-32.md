@@ -1,0 +1,1 @@
+Artículo 32.- Deber de Informar. La persona funcionaria autorizada a conducir vehículos institucionales, deberá informar a la brevedad posible a la Unidad de Transportes sobre los pormenores del accidente.

@@ -1,0 +1,1 @@
+Artículo 13.- Vehículos oficiales en gira. Cuando un vehículo oficial· se encuentre en gira, al finalizar la jornada deberá permanecer en instalaciones públicas o estacionamientos de vehículos que cuenten con las medidas de seguridad adecuadas para el resguardo del activo.

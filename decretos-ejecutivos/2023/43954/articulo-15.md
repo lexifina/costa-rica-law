@@ -1,0 +1,1 @@
+Artículo 15.- Circulación de vehículos oficiales de Cosevi fuera territorio nacional. Ningún vehículo oficial del Cosevi podrá circular fuera del territorio nacional sin la autorización debidamente extendida por la Junta Directiva del Cosevi, la cual deberá ser tramitada ante el Registro Público de la Propiedad· con la debida antelación.
