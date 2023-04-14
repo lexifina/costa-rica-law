@@ -1,0 +1,1 @@
+TRANSITORIO I- El Poder Ejecutivo deberá reformar el reglamento de la Ley 8261, Ley General de la Persona Joven, de 2 de mayo de 2002, para incluir las modificaciones de la presente ley, a más tardar tres meses después de su publicación
