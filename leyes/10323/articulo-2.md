@@ -1,0 +1,1 @@
+ARTÍCULO 2- La Municipalidad de Cartago normalizará, mediante esta donación, la situación jurídica de las personas que habitan dicho inmueble, asentamiento humano denominado caserío "El Progreso". A los fines anteriores, se gestionarán los respectivos planos catastrados y la posterior segregación y titulación al beneficiario designado.
