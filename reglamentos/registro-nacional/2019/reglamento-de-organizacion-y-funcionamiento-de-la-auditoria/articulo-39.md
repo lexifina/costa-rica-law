@@ -1,1 +1,0 @@
-Artículo 39°. —Es deber de la persona Auditora Interna definir y mantener actualizado en el Manual de Auditoría Interna del Registro Nacional, los órganos y entes sujetos al ámbito de acción de la Auditoría Interna, de conformidad con lo estipulado en la Ley General de Control Interno, Ley N° 8292.

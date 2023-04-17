@@ -1,1 +1,0 @@
-Artículo 60°. —La comunicación de los servicios preventivos se hará a criterio de la persona Auditora Interna o Subauditora Interna, quien definirá el contenido y la forma de los informes, oficios u otros medios de comunicación, conforme a la naturaleza de los asuntos a que se refiera y su criterio profesional.

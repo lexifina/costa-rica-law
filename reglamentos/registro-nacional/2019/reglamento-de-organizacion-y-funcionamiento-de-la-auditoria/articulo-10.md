@@ -1,1 +1,0 @@
-Artículo 10°. —Las personas Auditora Interna, Subauditora Interna y funcionarias de la Auditoría Interna deben velar porque no se presenten conflictos de interés al prestar servicios contenidos en este Reglamento y que dichos servicios no incluyan responsabilidades ni facultades de gestión, propias de la Administración Activa.
