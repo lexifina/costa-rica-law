@@ -1,1 +1,0 @@
-Artículo 3°—Cuando el monto asignado provenga del superávit acumulado del INA, el Ministerio de Hacienda efectuará directamente las transferencias a cada Junta Administrativa, según .los montos que le notifique la Comisión a que hace referencia el artículo 3 de la ley N° 7372, y que en lo sucesivo se identificará como la Comisión.

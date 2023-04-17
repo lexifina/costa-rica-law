@@ -1,1 +1,0 @@
-Artículo 4°—Cuando el monto asignado se tome de tos ingresos anuales del INA, corresponderá a este ultimo efectuar directamente las transferencias a cada Junta Administrativa, según los montos que le notifique la Comisión.

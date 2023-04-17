@@ -1,1 +1,0 @@
-Artículo 19.—El resultado de los auditorajes que lleve a cabo el Ministerio de Educación Pública, así como las evaluaciones que sobre la conveniencia de los programas desarrollados por las Juntas Administrativas, lleven a cabo aquel y el INA, serán puestos en conocimiento de la Comisión , sin perjuicio de las potestades de los demás órganos y entidades competentes.
