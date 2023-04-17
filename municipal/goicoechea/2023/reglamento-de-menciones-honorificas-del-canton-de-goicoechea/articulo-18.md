@@ -1,0 +1,1 @@
+Artículo 18.-Del otorgamiento de Reconocimientos Menores. Los Reconocimientos Menores se otorgarán en la sesión del Concejo Municipal convocada al efecto, de acuerdo con lo Indicado para cada uno en el presente Reglamento o en la fecha en que se acuerde.

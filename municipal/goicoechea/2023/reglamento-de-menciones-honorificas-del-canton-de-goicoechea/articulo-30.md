@@ -1,0 +1,1 @@
+Artículo 30.-De la derogatoria a disposiciones anteriores. Se deroga el Reglamento de distinciones honoríficas de la Municipalidad de Goicoechea, publicado en el Diario Oficial La Gaceta N° 104, del 5 de junio de 2019.

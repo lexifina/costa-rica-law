@@ -1,0 +1,1 @@
+Artículo 19.-De la postulación para Reconocimientos Menores. Toda persona mayor de edad con domicilio en el cantón o persona integrante del Concejo Municipal, podrá postular una candidatura para los Reconocimientos Menores, misma que será recibida por la Secretaría del Concejo.

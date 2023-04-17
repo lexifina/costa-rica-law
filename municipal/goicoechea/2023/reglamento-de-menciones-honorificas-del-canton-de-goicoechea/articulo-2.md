@@ -1,0 +1,1 @@
+Artículo 2°-Del carácter de los reconocimientos. Los reconocimientos regulados en el presente reglamento tienen carácter exclusivamente honorífico, no derivándose de su otorgamiento ningún derecho administrativo o económico.

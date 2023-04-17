@@ -1,0 +1,1 @@
+Artículo 3°-De la clasificación de los reconocimientos. Los reconocimientos serán Mayores, Menores, Declaratoria de Interés Cultural o Cantonal y Otros (Efemérides, Nomenclatura, Placas y Monumentos).

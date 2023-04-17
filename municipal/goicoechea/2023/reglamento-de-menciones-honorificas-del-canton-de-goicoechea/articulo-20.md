@@ -1,0 +1,1 @@
+Artículo 20.-Del plazo para la postulación a Reconocimientos Menores. Las postulaciones para Reconocimientos Menores podrán ser recibidas en cualquier momento, pero su consideración dependerá de la calendarización que el Concejo Municipal acuerde para su otorgamiento.
