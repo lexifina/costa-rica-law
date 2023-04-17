@@ -1,1 +1,1 @@
-Artículo 43.- De la regulación de uso de letrinas y pozos sépticos o negros. El Poder Ejecutivo contará con un plazo de tres años a partir de la publicación de este Reglamento, para emitir la reglamentación sobre la construcción y uso de letrinas y pozos sépticos o negros en el país.
+Artículo 43.- De la regulación de uso de letrinas y pozos sépticos o negros. (Derogado por el artículo 3° del decreto ejecutivo N° 44041 del 17 de abril del 2023)

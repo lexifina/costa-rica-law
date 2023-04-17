@@ -11,6 +11,7 @@ articulo-10.md
 articulo-11.md
 articulo-12.md
 articulo-13.md
+articulo-13-bis.md
 articulo-14.md
 articulo-15.md
 articulo-16.md
@@ -49,3 +50,4 @@ articulo-2-anexo.md
 articulo-3-anexo.md
 articulo-4-anexo.md
 articulo-5-anexo.md
+articulo-6-anexo.md
