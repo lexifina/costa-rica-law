@@ -1,0 +1,2 @@
+Artículo 9°-Comunicación del desarrollo de la audiencia. La Administración Municipal deberá comunicar a las personas participantes cómo se llevará a cabo la actividad, indicando las etapas que la componen y el momento en el cual se abrirá un espacio para que presenten sus observaciones.
+Todas las consultas u observaciones serán en apego estricto a la presentación del proyecto de Reformas de los Reglamentos de Desarrollo Urbano, y las que no cumplan con esa condición no serán atendidas.

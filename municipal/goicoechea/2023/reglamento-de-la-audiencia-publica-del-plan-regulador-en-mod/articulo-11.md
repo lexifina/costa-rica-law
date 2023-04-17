@@ -1,0 +1,1 @@
+Artículo 11.-Reglas de respeto. Las personas participantes de forma presencial o virtual deberán resguardar las reglas de respeto y decoro, bajo apercibimiento de ser removidas de la audiencia si no cesan dicha conducta. Asimismo, deberán respetar el orden de la palabra y el tiempo establecido para su uso.

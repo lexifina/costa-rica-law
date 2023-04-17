@@ -1,0 +1,1 @@
+Artículo 12.-Acta. Corresponderá a la Administración Municipal, documentar en un acta lo que acontezca durante la audiencia pública. En el acta deberá quedar constancia de las observaciones o consultas realizadas por las personas munícipes, junto con su nombre y número de cédula.
