@@ -1,0 +1,1 @@
+Artículo 43.-Las prevenciones prescribirán a los seis meses, mientras que las sanciones prescribirán al año, los plazos correrán a partir del día siguiente a la notificación que deja en firme el acto administrativo.

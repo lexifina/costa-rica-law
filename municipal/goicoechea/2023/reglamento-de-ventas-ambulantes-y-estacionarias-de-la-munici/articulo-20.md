@@ -1,0 +1,1 @@
+Artículo 20.-Las personas vendedoras de lotería, chances y periódicos podrán hacer uso de mobiliario para ejercer la actividad en las vías públicas según las dimensiones autorizadas por ventas ambulantes en especial aquellas personas que debido a leyes especiales así lo requieran; para ello deberán solicitar de previo la respectiva licencia y autorizaciones.

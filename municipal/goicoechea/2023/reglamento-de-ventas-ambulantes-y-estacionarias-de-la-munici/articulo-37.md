@@ -1,0 +1,1 @@
+Artículo 37.-En caso de revocación o renuncia a la licencia por cualquier motivo, el Departamento de Cobro, Licencias y Patentes Municipales procederá a la adjudicación de esta licencia a otra persona solicitante por medio del orden en que hayan ingresado las solicitudes.

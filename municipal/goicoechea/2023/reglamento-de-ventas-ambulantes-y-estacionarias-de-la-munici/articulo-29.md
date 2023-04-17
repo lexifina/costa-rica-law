@@ -1,0 +1,1 @@
+Artículo 29.-Las personas vendedoras ambulantes no podrán permanecer estacionadas en un solo lugar, salvo el tiempo necesario que requieran sus clientes para efectuar la compra del producto, el cual no podrá ser superior a 20 minutos.

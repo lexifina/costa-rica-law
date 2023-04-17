@@ -1,0 +1,1 @@
+Artículo 44.-El no pago del impuesto de patentes generará el cobro de intereses que se calculará de conformidad a lo establecido en el Código de Normas y Procedimientos Tributarios y según los porcentajes establecidos para esos efectos por acuerdo firme del Concejo Municipal.

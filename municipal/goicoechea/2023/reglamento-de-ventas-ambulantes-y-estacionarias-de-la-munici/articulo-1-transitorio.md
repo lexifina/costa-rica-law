@@ -1,0 +1,2 @@
+CAPÍTULO XII
+Transitorio l.-Las personas que a la fecha de aprobación del presente reglamento cuenten con una licencia de ventas ambulante o estacionaria, deberán ajustarse a lo dispuesto en el presente reglamento a partir del 1° de enero del año 2023. Para tal efecto, el Departamento Cobro, Licencias y Patentes Municipales comunicará lo dispuesto en el presente Reglamento a todas las personas licenciatarias en los treinta días naturales posteriores a su entrada en vigencia.

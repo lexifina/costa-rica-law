@@ -1,0 +1,12 @@
+Artículo 8°-Para obtener la licencia se requiere:
+a) Ser persona física mayor de edad, por lo cual debe presentar copia de cédula de identidad vigente por ambos lados o Documento de Identidad Migratorio para Extranjeros (DIMEX) vigente por ambos lados.
+b) Residir en el cantón de Goicoechea.
+c) En el caso de las personas extranjeras deben contar con la acreditación migratoria correspondiente que le permita trabajar de acuerdo con lo estipulado por el Reglamento de Extranjería, Decreto Ejecutivo N° 37112-GOB.
+d) Encontrarse al día en el pago de tributos municipales, permisos o cualquier otra obligación ante la Municipalidad de Goicoechea, o en su defecto en los casos que se permita, contar con un arreglo de pago al día debidamente formalizado según lo estipulado en el Reglamento para el Procedimiento de Cobro de Tributos Municipales del Cantón de Goicoechea.
+e) Formulario de declaración jurada donde se indique la totalidad de ingresos y gastos familiares.
+f) Prueba de inscripción como sujeto pasivo ante la Dirección General de Tributación Directa de conformidad con lo estipulado en el artículo 131 del Código de Normas y Procedimientos Tributarios. En caso de que por el tipo de actividad no requiera la inscripción ante la Dirección General de Tributación Directa debe aportar el documento emitido por esta donde indique la aplicación de la exención.
+g) Hoja de delincuencia vigente.
+h) En el caso de ventas estacionarias, deberá indicar cuál prototipo constructivo utilizará, de entre los diseñados por la Dirección de Ingeniería y Operaciones de la Municipalidad, acordes a la Ley N° 7600 y demás normativa aplicable.
+i) En caso de ventas ambulantes, deberá indicar cuál vehículo rodante (carreta, carretón o carrito) utilizará para dicha actividad.
+j) En caso de ventas ambulantes mediante vehículo automotor deberá presentar copia del Derecho de Circulación vigente, copia de la Tarjeta de Revisión Técnica Vehicular y la licencia de conducir al día de la persona que conducirá el vehículo.
+Para el otorgamiento de la licencia se dará preferencia a las personas con discapacidad, personas adultas mayores, personas en condición de pobreza o pobreza extrema; asimismo tendrán preferencia aquellas personas que con anterioridad al presente reglamento hubiesen trabajado en la actividad en forma personal, continua e ininterrumpida, siempre y cuando así sea demostrado y reconocido por la Municipalidad mediante los censos y registros que se llevan al respecto por el Departamento de Cobro, Licencias y Patentes Municipales.

@@ -1,0 +1,1 @@
+Artículo 18.-El área que ocupa un puesto no podrá ampliarse en ninguna forma, salvo mejor criterio de la Dirección de Ingeniería y Operaciones, debiendo informar al Departamento de Cobro, Licencias y Patentes Municipales de esta aprobación.

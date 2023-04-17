@@ -1,0 +1,1 @@
+Artículo 11.-Siguiendo los parámetros de razonabilidad y proporcionalidad, el Departamento de Cobro, Licencias y Patentes Municipales podrá solicitar a la persona interesada cualquier otra información adicional necesaria para comprobar su idoneidad en el otorgamiento de la patente.

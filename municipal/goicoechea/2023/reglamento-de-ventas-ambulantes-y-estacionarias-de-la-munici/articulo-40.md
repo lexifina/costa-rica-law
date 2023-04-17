@@ -1,0 +1,1 @@
+Artículo 40.-El Departamento de Cobro, Licencias y Patentes Municipales se reservará el derecho de reubicar los puestos cuando las condiciones de tránsito o peatonales lo ameriten, la construcción de obras nuevas lo requieran por cualquier otra causa; llevando a cabo el trámite estipulado en el artículo 34 de este Reglamento.

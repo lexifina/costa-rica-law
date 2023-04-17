@@ -1,0 +1,2 @@
+Artículo 34.-Cuando las circunstancias ameriten un cambio de ubicación de un puesto estacionario, el Departamento de Cobro, Licencias y Patentes Municipales elaborará un informe técnico en el que se justifique el cambio además deberá contar con un informe técnico de la Dirección de Ingeniería y Operaciones de la Municipalidad.
+Ambos informes serán trasladados a la Alcaldía Municipal para su respectiva aprobación y posteriormente se comunicará a la persona interesada.
