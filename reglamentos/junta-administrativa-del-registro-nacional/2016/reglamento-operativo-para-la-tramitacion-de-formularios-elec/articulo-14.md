@@ -1,1 +1,0 @@
-Artículo 14.—Disposiciones complementarias. Corresponde a la Junta Administrativa del Registro Nacional emitir las disposiciones complementarias para la correcta y eficaz aplicación de este Reglamento.

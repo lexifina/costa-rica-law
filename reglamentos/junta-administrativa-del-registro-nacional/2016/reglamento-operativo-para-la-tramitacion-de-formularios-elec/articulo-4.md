@@ -1,1 +1,0 @@
-Artículo 4º—Principios rectores. Toda la actividad relacionada con la presentación de formularios electrónicos y documentos adjuntos, se regirá por los principios de eficiencia, publicidad, transparencia, libre acceso, integridad, seguridad, consistencia de la información registral y no repudio en cuanto a la autoría del documento presentado.

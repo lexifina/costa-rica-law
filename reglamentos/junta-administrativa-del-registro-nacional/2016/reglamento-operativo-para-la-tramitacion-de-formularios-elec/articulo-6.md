@@ -1,1 +1,0 @@
-Artículo 6º—Formato de los formularios electrónicos. El formato de los formularios electrónicos será predefinido según cada acto o contrato y oportunamente publicado por el Registro Nacional en coordinación con la Dirección Nacional de Notariado.

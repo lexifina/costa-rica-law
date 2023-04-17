@@ -1,1 +1,0 @@
-Artículo 12.—Responsabilidad del notario público o funcionario autorizado. Es responsabilidad del notario público o funcionario autorizado por ley, verificar que los documentos adjuntos se ajusten en un todo al contenido de la matriz. El notario debe dar fe que los datos extractados por él de la matriz e incorporados al formulario electrónico son fieles y exactos al original.

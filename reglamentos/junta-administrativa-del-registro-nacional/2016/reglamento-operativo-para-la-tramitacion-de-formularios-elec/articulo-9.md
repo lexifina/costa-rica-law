@@ -1,1 +1,0 @@
-Artículo 9º—Verificación del documento adjunto. Con respecto al documento adjunto los registradores verificarán que la información contenida concuerde con el engrose. De existir discrepancias entre la información contenida en el formulario electrónico y el documento adjunto, se procederá a consignar el defecto respectivo.

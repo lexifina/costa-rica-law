@@ -1,1 +1,0 @@
-Artículo 11.—Medidas de seguridad. La autoría y la integridad de la información del formulario electrónico y del documento adjunto será garantizada con el uso obligatorio de la firma digital, por lo que los documentos adjuntos no requieren boleta de seguridad como los documentos físicos.
