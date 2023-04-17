@@ -1,0 +1,1 @@
+Artículo 3°- La Junta Directiva de la PROMOTORA, deberá aprobar los alcances de las convocatorias, así como el presupuesto y fuentes de financiamiento asignado para ellas de acuerdo a lo que establece este reglamento.

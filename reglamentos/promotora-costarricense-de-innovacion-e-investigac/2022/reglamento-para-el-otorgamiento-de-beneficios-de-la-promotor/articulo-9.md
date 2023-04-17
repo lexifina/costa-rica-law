@@ -1,0 +1,1 @@
+Artículo 9°- La Dirección de Programas de Innovación e Investigación será la encargada de diseñar los perfiles de convocatorias durante la formulación del POI-Presupuesto de la PROMOTORA, asignándole el presupuesto, su respectiva planificación física y gestionando los recursos humanos necesarios para tal fin. Estos perfiles deberán considerar los insumos que emane el ente rector.

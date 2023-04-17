@@ -1,0 +1,1 @@
+Artículo 12°- Dirección de Programas de Innovación e Investigación, será la encargada, del diseño de la convocatoria, posterior a la aprobación de la Junta Directiva. El detalle del diseño de la convocatoria se establecerá en el procedimiento de "Planificación, diseño, evaluación y seguimiento de convocatorias".

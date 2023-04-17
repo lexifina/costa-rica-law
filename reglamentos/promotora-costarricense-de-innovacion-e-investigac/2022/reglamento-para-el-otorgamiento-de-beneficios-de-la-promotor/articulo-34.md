@@ -1,0 +1,1 @@
+Artículo 34°- La Dirección de Programas de Innovación e Investigación, deberá coordinar acciones para realizar evaluaciones de impacto junto con la unidad de Planificación Institucional en los programas que administra la PROMOTORA.

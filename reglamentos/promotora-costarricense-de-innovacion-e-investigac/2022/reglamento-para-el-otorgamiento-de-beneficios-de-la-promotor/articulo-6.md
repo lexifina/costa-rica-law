@@ -1,0 +1,1 @@
+Artículo 6°- La Dirección Administrativo Financiero, deberá remitir a la Gerencia General, información sobre el estado del presupuesto aprobado y el presupuesto previsto del año siguiente, y cualquier otra información sobre disponibilidad de recursos. Esta solicitud deberá ser remitida durante la formulación del presupuesto de la PROMOTORA.

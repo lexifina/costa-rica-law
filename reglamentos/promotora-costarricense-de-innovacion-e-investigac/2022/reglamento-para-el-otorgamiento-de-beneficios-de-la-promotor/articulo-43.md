@@ -1,0 +1,1 @@
+Artículo 43°- La PROMOTORA podrá definir en las convocatorias y los contratos de formalización, las garantías necesarias, y formas de retribución al Estado, a quienes hayan recibido una beca de estudio u otro beneficio de acuerdo con la normativa vigente.

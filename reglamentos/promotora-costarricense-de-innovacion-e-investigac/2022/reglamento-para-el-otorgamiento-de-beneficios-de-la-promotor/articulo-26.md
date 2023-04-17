@@ -1,0 +1,4 @@
+TÍTULO IV:
+FORMALIZACIÓN DEL OTORGAMIENTO A LOS BENEFICIARIOS
+Artículo 26°- La unidad de Asesoría Legal será la encargada de realizar y formalizar el contrato, según los términos de la convocatoria, del presente reglamento y del artículo 33 del reglamento a la ley 9971, y remitirlo a la Dirección de Programas de Innovación e Investigación. Si el otorgamiento del beneficio es mediante fideicomiso, la unidad de Asesoría Legal, enviará también el contrato firmado a la Dirección de Programas de Innovación e Investigación, para que remita la solicitud a la entidad bancaria para el respectivo desembolso y administración.
+Para tramitar la formalización, la Dirección de Programas de Innovación e Investigación deberá remitir el expediente completo (físico o electrónico según sea el caso) conformado para el beneficiario, a la unidad de Asesoría Legal.

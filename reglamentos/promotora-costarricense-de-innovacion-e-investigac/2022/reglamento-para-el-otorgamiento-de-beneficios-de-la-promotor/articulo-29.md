@@ -1,0 +1,1 @@
+Artículo 29°- La unidad de Asesoría Legal confeccionará el contrato de otorgamiento de beneficios (físico o electrónico), y sus garantías según sea el caso, hará firmar a las partes el mismo y lo remitirá a las áreas organizacionales correspondientes para su archivo y conservación.

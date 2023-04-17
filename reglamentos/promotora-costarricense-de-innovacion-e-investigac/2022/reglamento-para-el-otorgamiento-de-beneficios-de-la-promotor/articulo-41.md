@@ -1,0 +1,1 @@
+Artículo 41°- La PROMOTORA establecerá un sistema de gestión de calidad, de valoración de riesgos y normas para asegurar la transparencia en el otorgamiento de beneficios, de conformidad con la Ley 9971, su reglamento y la Ley 7169.

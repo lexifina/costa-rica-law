@@ -1,0 +1,1 @@
+Artículo 42°- Los beneficios otorgados con anterioridad a la entrada en vigor del presente Reglamento, se regirán por las normas reglamentarias vigentes al momento del otorgamiento, sin perjuicio de que puedan ajustarse a las nuevas disposiciones, en respeto de los derechos e intereses de los beneficiarios.

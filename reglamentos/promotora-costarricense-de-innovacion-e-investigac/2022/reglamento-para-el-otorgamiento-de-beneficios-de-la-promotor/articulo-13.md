@@ -1,0 +1,1 @@
+Artículo 13°- La Comisión de Selección de Beneficiarios seleccionará a los beneficiarios con base en las recomendaciones emitidas por la Dirección de Programas de Innovación e Investigación, a través de los dictámenes provenientes de las evaluaciones internas o externas. Para esto la Comisión de Selección de Beneficiarios hará uso del procedimiento definido para tal fin.
