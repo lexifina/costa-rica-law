@@ -1,10 +1,12 @@
 CAPÍTULO V
 Deberes y obligaciones
-Artículo 13.—Serán deberes y obligaciones generales de los funcionarios de la Unidad de Seguridad:
+Artículo 13.-Serán deberes y obligaciones generales de los funcionarios del Área de Seguridad:
+(Así reformado el párrafo anterior mediante sesión ordinaria Nº 045-2023 del 18 de abril del 2023)
 a) Ejecutar las labores con la intensidad, el cuidado y el esmero apropiados y en la forma, el tiempo y el lugar convenidos.
 b) Prohibir el ingreso de vendedores ambulantes a cualquiera de los edificios de la Institución.
 c) Reportar a la jefatura de la Unidad el nombre de los funcionarios que no porten correctamente el carné institucional.
-d) Cumplir adecuadamente las instrucciones con ocasión de las funciones que desempeñan y acatar todas las circulares que emitan la jefatura y la subjefatura.
+d) Reportar a la jefatura del Área, el nombre del personal legislativo que no porte el carné institucional
+(Así reformado el inciso anterior mediante sesión ordinaria Nº 045-2023 del 18 de abril del 2023)
 e) Conservar en buen estado físico y de funcionamiento los instrumentos, útiles, uniformes, equipos de seguridad, radios de comunicación y alarmas, que se les faciliten para el exclusivo desempeño del trabajo de seguridad.
 f) Observar buenas costumbres, porte adecuado y presentación personal correcta.
 g) Someterse al reconocimiento médico durante el trabajo, cuando se requiera comprobar que se encuentran en condiciones físicas y mentales aptas para el desempeño de su labor en seguridad.

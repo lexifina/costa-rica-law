@@ -14,3 +14,4 @@ Reglamento de Potestades, Deberes y Responsabilidades del Área de Seguridad de 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-07-01 | la propia norma |
+| 2 | 2023-04-18 | Reglamento 45 (2023-04-18) |
