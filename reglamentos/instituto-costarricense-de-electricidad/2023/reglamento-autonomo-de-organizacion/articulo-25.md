@@ -1,0 +1,2 @@
+Artículo 25 - Gerencia de Finanzas.
+Es la gerencia encargada de propiciar, en coordinación con las gerencias, la sostenibilidad y mejora continua en la gestión financiera del ICE, por medio de mecanismos de planificación, control y seguimiento financiero, para ello será responsable de la gestión de los activos y pasivos, la propuesta de fijación de precios de los productos y la gestión de los portafolios de inversión, flujo de caja y deuda en el marco de los indicadores de rentabilidad y gestión definidos en la Estrategia Corporativa y Empresarial.

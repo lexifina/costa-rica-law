@@ -1,0 +1,2 @@
+Artículo 27 - Gerencia Tecnología y Soluciones Digitales.
+Es la gerencia encargada de habilitar, facilitar y desarrollar la entrega ágil de servicios de tecnologías de información y soluciones digitales que generen valor a través de la disrupción, influyendo en la rentabilidad, promoviendo la eficiencia operativa y satisfacción de las necesidades de los negocios y para el cumplimiento de la Estrategia Empresarial vigente en los procesos de los negocios, para lograr la mejor experiencia de los clientes.
