@@ -40,15 +40,18 @@ Ley 8968 | Ley de Protección de la Persona frente al Tratamiento de sus Datos P
 4.1 Consejo Directivo
 4.1.1 Aprobar y acatar la presente Política Corporativa de Confidencialidad de la Información.
 4.1.2 Declarar la confidencialidad de la información del ICE y sus empresas.
-4.1.3 Resolver de forma oportuna las solicitudes de declaratoria de confidencialidad de los informes y otros productos de la Auditoría Interna que hayan sido remitidas por parte de la Presidencia Ejecutiva.
+4.1.3 Resolver de forma oportuna las solicitudes de declaratoria de confidencialidad de los informes y otros productos de la Auditoría Interna que hayan sido remitidas por parte de la Presidencia Ejecutiva o la Gerencia General del ICE, según corresponda.
+(Así reformado el punto anterior mediante sesión N° 6569 del 18 de abril de 2023)
 4.1.4 Ordenar a las Gerencias del ICE implementar las medidas para proteger la información declarada confidencial y aquella información que ostente dicha condición otorgada por normas constitucionales y legales.
 4.1.5 Promover la cultura de protección de la información confidencial, mediante la aplicación de los controles de seguridad.
 4.1.6 Instruir a las Juntas Directivas de las empresas tomar las acciones necesarias para implementar las medidas para proteger la información confidencial.
 4.1.7 A partir de la comunicación previa de resultados de los informes u otros productos dirigidos al Consejo Directivo por parte de la Auditoría Interna, gestionar de forma oportuna, las actuaciones materiales necesarias para resguardar aquella información contenida en los informes de auditoría que, trascienda directa o indirectamente, datos confidenciales en los hallazgos, conclusiones y/o recomendaciones que, por motivos estratégicos, comerciales y de competencia no resulte conveniente divulgar, lo que implica cuando corresponda, coordinar con la Gerencia o empresa dueña de la información respectiva, a través de la Secretaría, a fin de fundamentar técnica y jurídicamente la declaratoria de confidencialidad de la información al amparo del artículo 35 de la Ley 8660. Lo anterior con el objeto de que la declaratoria de confidencialidad sobre los informes u otros productos de auditoría se emita a la mayor brevedad, para no afectar el plazo de implementación de las recomendaciones formuladas por la Auditoría Interna.
 4.2 Secretaría del Consejo Directivo
 4.2.1 Acatar y aplicar la Política Corporativa de Confidencialidad de la Información.
-4.2.2 Recibir y tramitar las solicitudes que presente la Presidencia Ejecutiva, para que el Consejo Directivo resuelva la solicitud de declaratoria de confidencialidad de la información.
-4.2.3 Recibir y tramitar de forma oportuna las solicitudes de declaratorias de confidencialidad, de informes y otros productos de la Auditoría Interna que presente la Presidencia Ejecutiva para resolución, vía acto administrativo del Consejo Directivo.
+4.2.2 Recibir y tramitar las solicitudes que presente la Presidencia Ejecutiva o Gerencia General del ICE, para que el Consejo Directivo resuelva la solicitud de declaratoria de confidencialidad de la información.
+(Así reformado el punto anterior mediante sesión N° 6569 del 18 de abril de 2023)
+4.2.3 Recibir y tramitar de forma oportuna las solicitudes de declaratorias de confidencialidad, de informes y otros productos de la Auditoría Interna que presente la Presidencia Ejecutiva o la Gerencia General del ICE para resolución, vía acto administrativo del Consejo Directivo.
+(Así reformado el punto anterior mediante sesión N° 6569 del 18 de abril de 2023)
 4.2.4 Coordinar con la Gerencia o empresa respectiva, a fin de determinar si en la comunicación previa de resultados de un informe de auditoría dirigido al Consejo Directivo, se visualiza que éste contenga información confidencial al amparo del artículo 35 de la Ley 8660, para lo cual solicitará a la respectiva Gerencia o empresa el cumplimiento de los requisitos establecidos en la presente política, para el trámite de la solicitud de declaratoria de confidencialidad.
 4.2.5 Comunicar a la Presidencia Ejecutiva, a las Juntas Directivas de las empresas del ICE, al Gerente General del ICE o Gerentes del ICE, a la Auditoría Interna cuando corresponda y al gestor o gestores respectivos el acuerdo del Consejo Directivo, mediante el cual se aprueba o rechaza la solicitud de la declaratoria de confidencialidad de la información.
 4.2.6 Identificar si el tipo de información que solicita un tercero es de naturaleza confidencial conforme lo prevé el artículo 35 de la Ley 8660 u otras disposiciones constitucionales o legales, y en caso de ser así, tomar las precauciones necesarias y cumplir con el procedimiento que corresponda para garantizar su protección.
@@ -63,9 +66,11 @@ Ley 8968 | Ley de Protección de la Persona frente al Tratamiento de sus Datos P
 4.3.7. Informar por medio de la Secretaría de Actas, mediante carta formal a la Auditoría Interna y en un plazo máximo de tres (3) días hábiles, a partir de la comunicación previa de resultados de los informes de auditoría u otros productos dirigidos al jerarca, la intención de gestionar la solicitud de declaratoria de confidencialidad de la información.
 4.4 Presidencia Ejecutiva
 4.4.1. Acatar y aplicar la Política Corporativa de Confidencialidad de la Información.
-4.4.2. Someter de forma oportuna a aprobación del Consejo Directivo, las solicitudes de declaratoria de confidencialidad de la información.
+4.4.2 Someter de forma oportuna a aprobación del Consejo Directivo, las solicitudes de declaratoria de confidencialidad de la información gestionadas por las empresas del ICE o bien que contengan datos o información corporativa.
+(Así reformado el punto anterior mediante sesión N° 6569 del 18 de abril de 2023)
 4.4.3. Valorar la solicitud de declaratoria de confidencialidad de la información, que le remiten las dependencias a su cargo y, elevar de forma oportuna, cuando así lo considere procedente, al Consejo Directivo.
-4.4.4. Recibir y tramitar de forma oportuna las solicitudes de declaratorias de confidencialidad, de informes y otros productos de la Auditoría Interna que se presenten por las Gerencias Generales del ICE y sus empresas para resolución, ante el Consejo Directivo.
+4.4.4 Recibir y tramitar de forma oportuna, cuando así corresponda, las solicitudes de declaratorias de confidencialidad, de informes y otros productos de la Auditoría Interna que presenten las Gerencias Generales del ICE y sus empresas para resolución, ante el Consejo Directivo.
+(Así reformado el punto anterior mediante sesión N° 6569 del 18 de abril de 2023)
 4.4.5. Promover y aplicar todas las acciones necesarias para implementar las medidas para proteger la información confidencial.
 4.4.6. Promover la cultura de protección de la información confidencial, mediante la aplicación de los controles de seguridad.
 4.4.7. Identificar y clasificar la información producto de su gestión y realizar de forma oportuna, cuando corresponda, el trámite de la solicitud de declaratoria de confidencialidad de la información.
@@ -93,8 +98,10 @@ Ley 8968 | Ley de Protección de la Persona frente al Tratamiento de sus Datos P
 4.5.15 Garantizar, para el caso de los documentos o información declarados confidenciales, el cumplimiento de lo establecido en la Ley 7202, Ley del Sistema Nacional de Archivos y su Reglamento Ejecutivo, así como en la normativa interna aplicable.
 4.6 Gerencia General del ICE
 4.6.1. Acatar y aplicar la Política Corporativa de Confidencialidad de la Información.
-4.6.2. Valorar la solicitud de declaratoria de confidencialidad de la información, que le remiten las Gerencias ICE o las dependencias directamente a su cargo y, elevar de forma oportuna, cuando así lo considere procedente, a la Presidencia Ejecutiva.
-4.6.3. Valorar de forma oportuna, las solicitudes de declaratorias de confidencialidad, de informes y otros productos de la Auditoría Interna que se presenten por las Gerencias ICE y elevarlas a la Presidencia Ejecutiva.
+4.6.2. Valorar la solicitud de declaratoria de confidencialidad de la información, que le remiten las Gerencias ICE o las dependencias directamente a su cargo y, elevar de forma oportuna, cuando así lo considere procedente, a la Presidencia Ejecutiva o al Consejo Directivo, según corresponda.
+(Así reformado el punto anterior mediante sesión N° 6569 del 18 de abril de 2023)
+4.6.3. Valorar de forma oportuna, las solicitudes de declaratorias de confidencialidad, de informes y otros productos de la Auditoría Interna que se presenten por las Gerencias ICE y elevarlas a la Presidencia Ejecutiva o al Consejo Directivo, según corresponda.
+(Así reformado el punto anterior mediante sesión N° 6569 del 18 de abril de 2023)
 4.6.4. Promover y aplicar todas las acciones necesarias para implementar las medidas para proteger la información confidencial.
 4.6.5. Promover la cultura de protección de la información confidencial, mediante la aplicación de los controles de seguridad.
 4.6.6. Identificar y clasificar la información producto de su gestión y realizar de forma oportuna, cuando corresponda, el trámite de la solicitud de declaratoria de confidencialidad de la información.
