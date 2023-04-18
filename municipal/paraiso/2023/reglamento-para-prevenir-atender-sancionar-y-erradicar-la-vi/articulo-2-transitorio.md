@@ -1,0 +1,2 @@
+Transitorio II.-Para cumplir con lo dispuesto en los artículos 11 sobre las acciones preventivas a cargo de la Alcaldía y artículo 12, sobre las acciones preventivas a cargo del Concejo Municipal, se establece un plazo de hasta seis meses a partir de la entrada en vigor del presente reglamento.
+Se extiende la presente a solicitud del interesado, al ser las nueve horas con cuarenta y cinco minutos del día 17 del mes de marzo del año 2023, de conformidad con el artículo 53, inciso c) del Código Municipal Vigente. Es todo.
