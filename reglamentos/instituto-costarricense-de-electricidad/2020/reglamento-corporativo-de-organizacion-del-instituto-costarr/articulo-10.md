@@ -31,6 +31,7 @@ Artículo 10.-Competencias. Las competencias serán las siguientes:
 30. Coordinar la implementación de las acciones para el fortalecimiento de innovación y desarrollo de negocios, sostenibilidad y responsabilidad social del ICE y sus empresas.
 31. Emitir directrices e instrucciones corporativas.
 32. Elevar y recomendar al Consejo Directivo casos de negocios corporativos, según el tope de inversión definido por el Consejo Directivo.
-33. Elevar a Consejo Directivo las declaratorias de confidencialidad de la información del ICE y sus empresas.
+33. Elevar al Consejo Directivo las declaratorias de confidencialidad de la información de las empresas del ICE o bien aquellas que contengan información corporativa.
+(Así reformada la definición anterior mediante sesión N° 6569 del 18 de abril de 2023. Del análisis se deduce que la reforma es a este artículo y no en el 11 como se indicó)
 34. Elevar para aprobación al Consejo Directivo el Informe Anual de Gobierno Corporativo del Grupo ICE.
 35. Cualquier otra función que indique el Ordenamiento Jurídico, así como aquellas que se le otorguen por autorregulación.

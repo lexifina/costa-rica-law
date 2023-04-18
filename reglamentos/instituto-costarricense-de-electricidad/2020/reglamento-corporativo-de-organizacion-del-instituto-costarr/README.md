@@ -15,3 +15,4 @@ Reglamento corporativo de organización del Instituto Costarricense de Electrici
 | --- | --- | --- |
 | 1 | 2020-05-12 | la propia norma |
 | 2 | 2021-03-22 | Reglamento 0 (2021-03-22) |
+| 3 | 2023-04-18 | Reglamento 6569 (2023-04-18) |
