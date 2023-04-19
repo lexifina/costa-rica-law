@@ -1,0 +1,3 @@
+TRANSITORIO II.- Se procede con la ampliación de manera temporal por el plazo de dos años únicamente, de la vida útil de las unidades autorizadas en permisos, especiales modalidad turismo, para que las mismas pasen de 15 años a 20 años. Las unidades en el rango de vida útil de 16 años a 20 años, tendrán que realizar tres revisiones técnicas al año, cada cuatro meses.
+Los alcances del presente transitorio no aplican para unidades que se pretendan inscribir en permisos especiales de turismo por primera vez, únicamente aplica para las unidades actualmente autorizadas en permisos especiales de turismo.
+(Así adicionado por el artículo 2° del decreto ejecutivo N° 44002 del 19 de abril del 2023)
