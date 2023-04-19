@@ -92,7 +92,8 @@ a. Aprobación de un programa de estudios de posgrado (residencia médica) de do
 b. Aprobación de un programa de estudios de posgrado (residencia médica) de tres (3) años en la Especialidad de Geriatría y Gerontología, en un Hospital de Tercer Nivel, Regional o Periférico perteneciente o adscrito a una Universidad.
 14.20 Especialidad Médica en Ginecología y Obstetricia.
 Se reconocen como sinónimos de esta Especialidad, los siguientes términos:
-Tocoginecología; Tocología.
+Obstetricia y Ginecología, Tocoginecología; Tocología.
+(Así reformado el párrafo anterior en sesión ordinaria 2023-04- 19, celebrada el 19 de abril de 2023)
 Requisitos específicos:
 Aprobación de un programa de estudios de posgrado (residencia médica) de cuatro (4) años en la Especialidad de Ginecología y Obstetricia, en un Hospital de Tercer Nivel, Regional o Periférico perteneciente o adscrito a una Universidad.
 14.21 Especialidad Médica en Hematología.
