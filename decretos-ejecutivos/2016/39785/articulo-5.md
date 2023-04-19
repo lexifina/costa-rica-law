@@ -12,7 +12,8 @@ Artículo 5º- El Consejo Directivo como jerarquía política del PIMA tiene las
 (Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 40513 del 9 de junio del 2017)
 11. Autorizar la venta, enajenación o gravamen de los bienes de la Institución y la inversión de los fondos disponibles, de acuerdo con la normativa vigente;
 12. Autorizar las transacciones, conciliaciones y compromisos arbitrales en los litigios del PIMA;
-13. Aprobar los carteles y adjudicar las Licitaciones Públicas, conforme a lo establecido por la Ley de Contratación Administrativa y su respectivo Reglamento;
+13. Aprobar los carteles y adjudicar los procesos de Licitación Mayor, conforme a lo establecido por la Ley General de la Contratación Pública y su respectivo Reglamento.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 44008 del 19 de abril del 2023)
 14. Conocer los informes que presente la Gerencia General, sobre las contrataciones realizadas mediante los mecanismos de licitaciones abreviadas y, contrataciones directas;
 15. Aprobar la ejecución y desembolsos financieros de todos los proyectos de desarrollo debidamente incorporados en el plan anual operativo;
 16. Autorizar al Gerente General la celebración de convenios de cooperación entre el PIMA y cualquier otro ente de derecho público o persona privada, salvo aquellos originados de la actividad ordinaria o la contratación administrativa. El respectivo convenio deberá hacer constar el acuerdo que autoriza su suscripción;

@@ -19,7 +19,8 @@ Artículo 37º- El Gerente General tiene entre otras las siguientes funciones y 
 17. Ejecutar o hacer ejecutar las recomendaciones de la Auditoría Interna, una vez aprobadas, de conformidad con lo establecido en la Ley General de Control Interno sobre este tema.
 18. Ejercer la representación judicial y extrajudicial del PIMA con el carácter de apoderado generalísimo sin límite de suma y con las facultades que determina el Artículo 1253 del Código Civil; sin embargo, para las actuaciones de los incisos 8, 1 1, 12, 13, 14 y 15 del Artículo cinco de este reglamento necesitará aprobación del Consejo Directivo;
 19. Velar por la formación y capacitación del personal;
-20. Aprobar las contrataciones directas y las licitaciones abreviadas, de conformidad con lo establecido en la Ley de Contratación Administrativa y su respectivo Reglamento;
+20. Aprobar los carteles y adjudicar las contrataciones de los procesos de Licitación menor y Licitación reducida, de conformidad con lo establecido en la Ley General de la Contratación Pública y su respectivo Reglamento;
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 44008 del 19 de abril del 2023)
 21. Presentar al Consejo Directivo informes trimestrales sobre las contrataciones realizadas mediante el mecanismo de licitaciones abreviadas y, las contrataciones directas;
 22. Asistir a las sesiones del Consejo Directivo con voz, pero sin voto. Cuando lo considere oportuno, podrá pedir que expresamente se haga constar en las actas respectivas sus opiniones sobre los asuntos que se debaten;
 23. Proponer al Consejo Directivo normas generales de las políticas que podrían llevar a cabo y que considere oportunas;
