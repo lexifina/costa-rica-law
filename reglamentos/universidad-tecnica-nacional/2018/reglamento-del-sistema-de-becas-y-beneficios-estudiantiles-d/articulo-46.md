@@ -1,2 +1,3 @@
 Artículo 46 -Recuperación de la categoría de beca o beneficios estudiantiles. Los estudiantes pueden recuperar la beca que les fue otorgada originalmente en el momento en que aprueben la totalidad de los créditos que hayan matriculado en el cuatrimestre tras anterior a su matrícula, siempre que sean como mínimo 9 créditos, o 6 créditos para el caso de los planes dosificados de diplomado en franja horaria nocturna.
 Para recuperar los beneficios estudiantiles, el estudiante deberá realizar la solicitud de reactivación de beneficios mediante los procedimientos y periodos calendarizados por la Vicerrectoría de Vida Estudiantil.
+(Así reformado mediante sesión N° 8-2023 del 19 de abril de 2023)
