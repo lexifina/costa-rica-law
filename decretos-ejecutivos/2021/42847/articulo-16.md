@@ -66,7 +66,7 @@ b. Aprobación de un programa de estudios de posgrado (residencia médica) de do
 c. Certificación del ente de haber realizado durante su periodo de formación como subespecialista en Medicina Intensiva en Cardiología las siguientes técnicas o procedimientos de máxima complejidad: Angioplastia primaria, cateterismo cardiaco derecho, vía venosa central, balón de aire intraaórtico, hemodiafiltración, ventilación no invasiva, intubación endotraqueal, ventilación mecánica, pericardiocentesis, implantación temporal de marcapasos, RCP y dispositivos de asistencia ventricular.
 (*)(Así adicionada la subespecialidad anterior mediante sesión ordinaria N° 2022-10- 05 del 05 de octubre del 2022)
 16.3.2(*). Electrofisiología Cardiaca.
-(*) (Corregido mediante Fe de Erratas y publicada en La Gaceta N° 190 del 6 de octubre de 2022, página N° 3. Anteriormente se indicaba: “16.3.20”)
+(*) (Corregido mediante Fe de Erratas y publicada en La Gaceta N° 190 del 6 de octubre de 2022, página N° 3. Anteriormente se indicaba: "16.3.20")
 Se reconoce como sinónimo de esta Subespecialidad, los siguientes términos: Electrofisiología y Estimulación Cardiaca; Electrofisiología Cardiaca del Adulto; Electro Fisiología Cardiaca; Electrofisiología Clínica Invasiva; Ritmología y Estimulación Cardiaca; Electrofisiología Cardiovascular.
 Requisitos específicos:
 a. Estar debidamente inscrito como Especialista en Cardiología, en el Colegio de Médicos y Cirujanos.
@@ -284,12 +284,12 @@ b. Aprobación de un programa de estudios de posgrado (residencia médica) de un
 Requisitos específicos:
 a. Estar debidamente inscrito como Especialista en Oftalmología, en el Colegio de Médicos y Cirujanos.
 b. Aprobación de un programa de estudios de posgrado (residencia médica) de un (1) año en la Subespecialidad en Oftalmología Pediátrica, en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad.
-(*)16.17.4 Retina y Vítreo
+(*) 16.17.4 Retina y Vítreo
 Requisitos específicos:
 a. Estar debidamente inscrito como Especialista en Oftalmología, en el Colegio de Médicos y Cirujanos de Costa Rica.
-b. Aprobación de un programa de estudios posgrado (residencia médica) de un (1) año en la Subespecialidad en Retina y Vítreo, en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad.
-c. Récord quirúrgico que incluya al menos 300 cirugías de vitrectomía, de las cuales al menos 200 cirugías como cirujano asistente y al menos 100 como cirujano principal, realizados durante el programa de estudios de posgrado (residencia médica)
-(*)(Así reformada la subespecialidad anterior mediante sesión N° 2021-10-13 del 13 de octubre del 2021)
+b. Aprobación de un programa de estudios posgrado (residencia médica) de dos (2) años en la Subespecialidad en Retina y Vítreo, en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad.
+c. Aprobación de un récord quirúrgico del programa de estudios posgrado (residencia médica) de al menos 300 cirugías de vitrectomía, de las cuales 200 cirugías como cirujano asistente y 100 como cirujano principal.
+(*)(Así reformada la subespecialidad anterior sesión ordinaria 2023.04.19, celebrada el 19 de abril de 2023)
 16.17.5. Uveítis.
 Requisitos específicos:
 a. Estar debidamente inscrito como Especialista en Oftalmología, en el Colegio de Médicos y Cirujanos.
