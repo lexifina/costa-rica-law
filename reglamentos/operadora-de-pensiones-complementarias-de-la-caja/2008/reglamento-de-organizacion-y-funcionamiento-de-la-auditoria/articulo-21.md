@@ -1,1 +1,3 @@
-Artículo 21.—La Administración activa de la Operadora es responsable de establecer, mantener y perfeccionar el sistema de control interno, y la imputación de esa responsabilidad, en lo personal, corresponde a los respectivos jerarcas, según cada estructura organizativa.
+Artículo No 21_ Seguimiento de recomendaciones
+La Auditoría Interna debe realizar un seguimiento de las recomendaciones emitidas y la respectiva implementación por parte de la administración, al respecto deben presentarse informes semestrales al Comité de Auditoría y a la Junta Directiva.
+Por otra parte, debe realizar un seguimiento anual sobre las recomendaciones y disposiciones emitidas por la Auditoría Externa y órganos externos de fiscalización y control.

@@ -1,14 +1,8 @@
-Artículo 8º—El Auditor Interno debe mantenerse alerta para detectar los impedimentos personales de los auditores a su cargo. Los auditores son responsables de informar cualquier impedimento personal que puedan tener.
-Conforme a lo dispuesto en la Ley General de Control Interno en su artículo 34, así como con los lineamientos y disposiciones de la Contraloría General, los impedimentos y prohibiciones personales del personal de la Auditoría Interna serán los siguientes:
-a) Relaciones comerciales, intereses personales o financieros.
-b) Responsabilidad previa en las decisiones o en la administración de una Entidad u Organismo que puedan afectar las operaciones actuales o el programa que sea objeto de la auditoría.
-c) Para garantizar su independencia, el auditor no debe participar, ni en forma ocasional en labores de control previo o en actos de administración directa de la Entidad u Organismo; tampoco debe firmar ni aprobar documentos que se relacionen con las operaciones que sean objeto de su examen.
-d) La auditoría la realiza en forma posterior la misma persona que tuvo a su cargo los registros de contabilidad y/o la autorización de egresos relacionada con la entidad o programas a auditar.
-e) Interés económico directo o indirecto en la Entidad u Organismo objeto de la auditoría.
-f) Tener prejuicios respecto a la entidad auditada o sus ejecutivos, incluyendo los derivados de convicciones políticas, religiosas, étnicas o sociales.
-g) Realizar funciones y actuaciones de administración activa, salvo las necesarias para cumplir su competencia.
-h) Formar parte de un órgano director de un procedimiento administrativo.
-i) Ejercer profesiones liberales fuera del cargo, salvo en asuntos estrictamente personales, en los de su cónyuge, sus ascendientes, descendientes y colaterales por consanguinidad y afinidad hasta tercer grado, o bien, cuando la jornada no sea de tiempo completo, excepto que exista impedimento por la existencia de un interés directo o indirecto del propio ente u órgano. De esta prohibición se exceptúa la docencia, siempre que sea fuera de la jornada laboral.
-j) Participar en actividades político-electorales, salvo la emisión del voto en las elecciones nacionales y municipales.
-k) Revelar información sobre las auditorías o los estudios especiales de auditoría que se estén realizando y sobre aquello que determine una posible responsabilidad civil, administrativa o eventualmente penal de los funcionarios de los entes y órganos sujetos a esta Ley.
-l) Accesar información de estudios que estén realizando otros compañeros y cuyo tema no se le haya asignado.
+Artículo No 8_ Independencia y objetividad
+Los colaboradores de la Auditoría Interna de la Operadora ejercen sus funciones con independencia funcional y de criterio respecto del Jerarca y de los demás órganos de la Administración, desde su planificación hasta la comunicación de los resultados, según lo establecido en el artículo 25 de la Ley General de Control Interno.
+Para ello los colaboradores de la Auditoría Interna deben atender lo siguiente:
+a) Tener una actitud imparcial y evitar conflictos de interés asociados con relaciones de parentesco y de negocios, así como abstenerse de recibir algún tipo de beneficio o regalía.
+b) Cumplir con lo establecido en el artículo 34 de la Ley General de Control Interno Noº8292 respecto a las prohibiciones.
+c) Establecer medidas formales para controlar y administrar situaciones de impedimento, que pudieran presentarse, sobre hechos o actuaciones, los cuales pongan en duda o peligro, la objetividad e independencia de los colaboradores del área, según lo establecido por las Normas Generales de Auditoría para el Sector Público.
+d) Los colaboradores de la Auditoría Interna de la OPC CCSS deberán considerar si existen impedimentos que limiten la capacidad para desempeñar su trabajo con imparcialidad, para ello deben mantenerse alerta ante posibles impedimentos, en el caso que exista algún impedimento el colaborador no deberá de llevar a cabo la auditoría y manifestarlo de forma escrita al Auditor Interno y si fuese estrictamente necesario a la Contraloría General de la República.
+e) Participar en sesiones o reuniones de Junta Directiva, Comités de Apoyo o de la administración si así se considera pertinente en calidad de asesor con respecto a asuntos de su competencia, con voz, pero sin voto con el propósito de no afectar su independencia, con base en la normativa y criterios establecidos por la Contraloría General de la República.

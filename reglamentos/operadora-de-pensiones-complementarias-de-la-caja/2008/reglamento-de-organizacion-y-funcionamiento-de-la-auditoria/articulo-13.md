@@ -1,1 +1,2 @@
-Artículo 13.—La Auditoría Interna de la OPCCCSS S.A. no debe asumir responsabilidades sobre las operaciones de la Entidad.
+Artículo No 13_ Potestades
+El Auditor Interno y sus asistentes cuentas con las atribuciones otorgadas por el artículo 33 de la Ley General de Control Interno para el cumplimiento de su misión, deberes y funciones, mismas que fueron señaladas en el artículo 3 de este reglamento como parte de la definición de autoridad de la Auditoría Interna.

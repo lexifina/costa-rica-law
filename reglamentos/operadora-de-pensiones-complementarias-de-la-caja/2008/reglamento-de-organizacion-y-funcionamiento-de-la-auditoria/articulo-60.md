@@ -1,3 +1,0 @@
-CAPITULO VII
-Disposiciones finales
-Artículo 60.—La Auditoría interna señalará en cada caso el plazo en el cual debe suministrarse lo solicitado por ella. Este plazo será establecido considerando la complejidad del asunto en cuestión, así como la importancia y urgencia que representa para la oportuna ejecución de sus funciones. Cuando la solicitud no pueda ser atendida dentro del plazo establecido, el responsable deberá comunicarle a la Auditoría interna dentro de los dos primeros días hábiles siguientes al recibo de la petición para justificar debidamente las razones por las cuales no puede cumplir con lo solicitado en el plazo establecido.

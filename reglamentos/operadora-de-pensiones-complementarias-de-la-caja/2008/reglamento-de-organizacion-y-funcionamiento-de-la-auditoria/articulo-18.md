@@ -1,5 +1,2 @@
-CAPÍTULO II
-Ubicación y estructura organizativa
-Artículo 18.—La Auditoría interna depende orgánicamente de la Junta Directiva, pero su trabajo técnico se desarrollará con total independencia funcional y de criterio respecto de ella. El nombramiento del Auditor es indefinido, tal como lo establece la Ley General de Control Interno en su artículo 31.
-Debe prestar un servicio de asesoría constructiva y de protección al patrimonio institucional, con miras al logro de las metas y objetivos de la administración.
-La jornada laboral es a tiempo completo.
+Artículo No 18_ Informes dirigidos al Jerarca
+Según lo dispuesto en los artículos 37 y 38 de la Ley General de Control Interno cuando el informe de auditoría esté dirigido a la Junta Directiva, Comités de apoyo o la Gerencia, la Junta Directiva deberá ordenar a quien corresponda, en un plazo improrrogable de treinta días hábiles contados a partir de la fecha de recibido el informe, la implantación de las recomendaciones. Si se discrepa de tales recomendaciones, dentro del plazo indicado deberá ordenar las soluciones alternas que motivadamente disponga; todo ello tendrá que comunicarlo debidamente a la Auditoría interna y a quien iban dirigidas las recomendaciones.

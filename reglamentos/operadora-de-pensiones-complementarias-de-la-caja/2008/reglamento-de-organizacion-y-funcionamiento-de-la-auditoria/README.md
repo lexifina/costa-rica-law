@@ -14,3 +14,4 @@ Reglamento de organización y funcionamiento de la auditoría interna de la Oper
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-04-29 | la propia norma |
+| 2 | 2023-04-19 | Reglamento 1330 (2023-04-19) |

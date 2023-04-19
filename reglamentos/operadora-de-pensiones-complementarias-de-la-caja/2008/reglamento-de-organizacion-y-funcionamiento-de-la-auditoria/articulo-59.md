@@ -1,1 +1,0 @@
-Artículo 59.—La exhibición de informes a entidades legitimadas, en forma parcial o total, será atribución de la Junta Directiva o del Gerente General, según sea el caso. La Auditoría interna lo podrá hacer en función de sus actividades o por requerimiento de la Contraloría General de la República o por mandato judicial.

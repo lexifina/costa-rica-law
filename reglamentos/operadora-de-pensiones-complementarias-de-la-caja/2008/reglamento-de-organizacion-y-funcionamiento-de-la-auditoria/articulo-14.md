@@ -1,1 +1,2 @@
-Artículo 14.—La objetividad del auditor no se afecta cuando recomienda acciones correctivas o el establecimiento de normas adicionales de control para los sistemas o revisa los procedimientos antes de su implantación.
+Artículo No 14_ Presupuesto de la Auditoría Interna
+Conforme al artículo 27 de la Ley General de Control Interno se le concederá a la Auditoría Interna para efectos presupuestarios una categoría programática; para la asignación y disposición de sus recursos, tomando en cuenta el criterio del Auditor Interno y las instrucciones que emita al respecto la Contraloría General de la República, por lo que la Auditoría Interna ejecutará su presupuesto, conforme lo determinen sus necesidades en procura del cumplimiento de su plan de trabajo.

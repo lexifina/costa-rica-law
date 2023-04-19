@@ -1,7 +1,0 @@
-Potestades de la auditoría interna
-Artículo 40.—Para lograr el propósito del artículo anterior, la Auditoría interna, en concordancia a lo dispuesto por el artículo 33 de la Ley General de Control Interno, tiene las siguientes potestades:
-a) Libre acceso, en cualquier momento, a todos los registros, informes, libros, archivos, datos, valores, documentos, medios computarizados o magnéticos de las unidades administrativas y operativas, plantas físicas u otras instalaciones de la Operadora, así como cualesquiera otras fuentes de datos y de información requeridas.
-b) Solicitar, a cualquier funcionario y sujeto privado que administre o custodie fondos públicos de los entes y órganos de su competencia institucional, en la forma, las condiciones y el plazo razonables, los informes, datos y documentos para el cabal cumplimiento de su competencia. En el caso de sujetos privados, la solicitud será en lo que respecta a la administración o custodia de fondos públicos de los entes y órganos de su competencia institucional.
-c) Solicitar, a funcionarios de cualquier nivel jerárquico, la colaboración, el asesoramiento y las facilidades que demande el ejercicio de la auditoría interna.
-d) Cualesquiera otras potestades necesarias para el cumplimiento de su competencia, de acuerdo con el ordenamiento jurídico y técnico aplicable, como contratar profesionales externos para complementar sus estudios y sustentar sus recomendaciones.
-e) Las demás previstas en el artículo 64 de la Ley Orgánica de la Contraloría General de la República.

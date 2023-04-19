@@ -1,2 +1,2 @@
-Ámbito de acción
-Artículo 30.—La Auditoría Interna ejercerá fiscalización en todas y cada una de las actividades de la Operadora de Pensiones Complementarias y de Capitalización Laboral de la Caja Costarricense de Seguro Social S.A. También tendrá facultad para auditar los aportes patronales de cesantía que la Operadora traslada a la Asociación Solidarista de Empleados de la Caja Costarricense de Seguro Social.
+Artículo No 30_ Implementación de recomendaciones
+Es responsabilidad de la Administración la adopción de las acciones que aseguren y permitan la efectiva, eficiente y oportuna implantación de las recomendaciones emitidas por la Auditoría Interna, Externa, SUPEN y la Contraloría General de la República con base en lo dispuesto en el artículo 12 de la Ley General de Control Interno, en el cual se plasman otros deberes del jerarca y de la administración.

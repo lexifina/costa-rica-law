@@ -1,1 +1,0 @@
-Artículo 48.—El Auditor Interno ejercerá una adecuada supervisión del trabajo que llevan a cabo sus subalternos. Todo trabajo deberá estar debidamente respaldado con los papeles de trabajo y el respectivo Programa o Guía para ejecutar el trabajo.

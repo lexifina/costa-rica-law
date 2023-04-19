@@ -1,1 +1,6 @@
-Artículo 3º—Los auditores deberán considerar no solamente si son independientes y si sus actitudes y actividades les permiten proceder como tales, sino también si existe algo que pudiera dar lugar a que otros cuestionaran su independencia.
+Artículo No 3_Autoridad
+Para un adecuado desempeño de sus funciones los colaboradores de la Auditoría Interna tendrán las siguientes potestades, conforme lo establecido en el artículo 33 de la Ley General de Control Interno:
+a) Tener libre acceso, en cualquier momento, a todos los registros, informes, libros, archivos, datos, valores, documentos, medios computarizados o magnéticos de las unidades administrativas y operativas de la Operadora, así como otras fuentes de datos y de información requeridas.
+b) La Auditoría Interna ejercerá fiscalización sobre las gestiones realizadas por la Operadora de Pensiones Complementarias y de Capitalización Laboral de la Caja Costarricense de Seguro Social S.A, así como sobre el manejo de los Fondos administrados, por lo que podrá solicitar a cualquier colaborador de la Operadora en la forma, las condiciones y el plazo razonables, los informes, datos y documentos para el cabal cumplimiento de su competencia.
+c) Solicitar, a colaboradores de cualquier nivel jerárquico, la colaboración, el asesoramiento y las facilidades que demande el ejercicio de la Auditoría Interna.
+d) Contratar profesionales externos para complementar sus estudios y sustentar sus recomendaciones, para cumplir con sus competencias de acuerdo con el ordenamiento jurídico y técnico aplicable.
