@@ -1,1 +1,0 @@
-Artículo 27: Prevenciones: La Proveeduría es el responsable de prevenir las subsanaciones a los oferentes, dentro del plazo de hasta 5 días hábiles a partir de la notificación. Si la prevención de subsanar o aclarar no es atendida en tiempo, la Administración procederá a descalificar al oferente.

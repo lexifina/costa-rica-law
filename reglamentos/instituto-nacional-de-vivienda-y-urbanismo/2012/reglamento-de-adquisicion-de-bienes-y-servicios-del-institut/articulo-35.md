@@ -1,1 +1,0 @@
-Artículo 35: El recibo de la obra, bienes y /o servicios: Se regirá por lo estipulado en el artículo 194, si se tratara de recepción provisional, o artículo 195 para recepción definitiva, ambos del Reglamento de Contratación Administrativa.

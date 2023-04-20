@@ -1,1 +1,0 @@
-Artículo 21: Devolución de Garantías: Las garantías de participación y cumplimiento se devolverán a petición de los interesados y con una autorización previa de la Proveeduría o del fiscalizador del contrato (obra, entre otros), respectivamente, de conformidad con el artículo 45 del Reglamento.

@@ -1,2 +1,0 @@
-Artículo 30: Firmeza: Cuando el acto de adjudicación adquiera firmeza, la Proveeduría deberá de solicitar al adjudicatario la presentación de la garantía de cumplimiento dentro del plazo improrrogable de 10 días hábiles de conformidad con el artículo 40 del reglamento.
-En caso de que hubiese cesado la vigencia de la garantía de participación o la oferta, deberá de prevenírsele al oferente para que se ponga a derecho en el plazo improrrogable de 3 días hábiles.

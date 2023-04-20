@@ -1,1 +1,0 @@
-Artículo 41: La forma de pago: Se deberá de determinar en el cartel, contrato o en la orden de compra. Las solicitudes de pagos se harán en la Proveeduría con el encargado de tramitar las facturas, quien deberá analizar el tiempo, así como la posibilidad de cobrarle multas o cláusulas penales, según lo que se estableció en el contrato.

@@ -1,2 +1,0 @@
-Artículo 28: Acto de adjudicación: Se dictará dentro del plazo establecido en el cartel. Ese plazo se podrá prorrogar sólo por una única vez mediante acto motivado por razones de interés público.
-Para efectos de declaratoria de desierto, readjudicación o que se declare infructuoso un concurso, derivados del acuerdo de adjudicación, el INVU mediante resolución razonada por razones de oportunidad o legalidad dispondrá de un plazo de un mes adicional para prorrogar.
