@@ -1,0 +1,1 @@
+Artículo 4. Resoluciones motivadas Dentro de las potestades otorgadas al INS en la legislación vigente y aplicable para este seguro, el INS dispondrá de discrecionalidad para resolver casos especiales.
