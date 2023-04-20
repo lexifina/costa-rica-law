@@ -1,0 +1,2 @@
+Artículo 22: Uso de la excepción de Caja Chica:
+La Caja Chica es el medio establecido para efectuar compras de bienes, servicios u obras, para gastos indispensables e impostergables, siempre y cuando no excedan el diez por ciento (10%) del monto fijado para la licitación reducida, de acuerdo con la LGCP y el RLGCP. Al ser una excepción regulada en la LGCP, esta deberá contar con todos los elementos o insumos que exija la LGCP y su Reglamento.

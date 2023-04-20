@@ -1,0 +1,3 @@
+Artículo 11: Obligación de atención y cumplimiento.
+Toda gestión que formule el contratista, que sea necesaria para la continuidad de la ejecución del contrato, deberá ser resuelta y comunicada por el Administrador del contrato dentro de un plazo máximo de diez días hábiles contados a partir del recibo de la solicitud, salvo plazo distinto debidamente justificado y contemplado en el pliego de condiciones o en el contrato. Las restantes peticiones que formule el contratista serán resueltas y comunicadas en un plazo máximo de treinta días hábiles.
+La inobservancia de los plazos anteriores originará responsabilidad administrativa del funcionario incumpliente.

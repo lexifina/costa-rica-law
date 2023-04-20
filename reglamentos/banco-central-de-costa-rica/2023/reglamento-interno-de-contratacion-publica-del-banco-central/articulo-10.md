@@ -1,0 +1,4 @@
+Artículo 10: Utilización del sistema unificado de compras públicas.
+Toda actividad de contratación pública deberá realizarse por medio del sistema digital unificado. La utilización de cualquier otro medio para la promoción de procedimientos de contratación acarreará su nulidad absoluta.
+Ante situaciones de caso fortuito o fuerza mayor, la Proveeduría Institucional acreditará esas circunstancias ante la Dirección de Contratación Pública para obtener la autorización respectiva y proceder con la contratación pública sin que medie el sistema.
+La formalización de contratos que deban plasmarse en escritura pública queda exceptuada del uso del sistema digital unificado y, en tal caso, el contrato celebrado deberá constar en el sistema.

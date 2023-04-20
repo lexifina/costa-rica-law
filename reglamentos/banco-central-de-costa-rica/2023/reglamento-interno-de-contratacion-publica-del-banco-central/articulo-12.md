@@ -1,0 +1,6 @@
+Artículo 12: Figuras en la contratación pública.
+a) Proveedor: Brinda bienes, servicios y obras al BCCR u ODM.
+b) Oferente: Participante de un trámite de Contratación Pública, por medio de la presentación de una oferta, donde ofrece un bien, servicio u obra a solicitud del BCCR u ODM.
+c) Adjudicatario: Ganador de un trámite de contratación pública, una vez que el acto de adjudicación haya quedado en firme y debidamente notificado. En los casos que proceda, al adjudicatario se le solicitan timbres fiscales y garantía de cumplimiento, para la confección del contrato.
+d) Contratista: Responsable de brindar un bien, servicio u obra al BCCR u ODM. Con el contrato u orden de pedido notificado, el contratista deberá de coordinar la entrega de lo adjudicado con el Administrador del contrato.
+e) Administrador del contrato: Funcionario (s) expresamente designado(s) por el responsable del centro de costo, para fungir como contraparte técnica en los contratos realizados por el BCCR o los ODM, quien(es) asumirá(n) la responsabilidad de velar por la correcta ejecución del contrato. Cuando esta función sea desempeñada por varios funcionarios, se deberá establecer la responsabilidad particular de cada uno y de no hacerse, se entenderá para todos los casos que la responsabilidad es compartida solidariamente.

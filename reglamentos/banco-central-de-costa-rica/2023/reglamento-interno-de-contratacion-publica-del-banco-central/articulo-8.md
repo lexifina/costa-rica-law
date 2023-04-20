@@ -1,0 +1,4 @@
+Artículo 8: Contenido presupuestario.
+Previo a promover el concurso, los responsables de los centros de costo deben acreditar la existencia de contenido presupuestario.
+Si el procedimiento se iniciara sin disponer de recursos presupuestarios, la Gerencia, el Director de División o superior inmediato respectivo podrá autorizarlo, sin embargo, esto deberá advertirse en el pliego de condiciones. En tal supuesto, no podrá emitirse el acto de adjudicación hasta que se cuente con el presupuesto suficiente, disponible y aprobado por quien corresponda.
+En caso de que la ejecución de un contrato se prolongue en diversos ejercicios económicos, se deberán incorporar únicamente los recursos necesarios para garantizar el pago de las obligaciones anuales en cada ejercicio, mientras que el valor total de la contratación deberá estar contemplado en el marco de presupuestación plurianual.
