@@ -18,3 +18,4 @@ Reorganiza Dependencias del Ministerio de Hacienda
 | 4 | 2013-06-06 | Decreto Ejecutivo 37859 (2013-06-06) |
 | 5 | 2014-01-15 | Decreto Ejecutivo 38148 (2014-01-15) |
 | 6 | 2021-04-12 | Decreto Ejecutivo 43057 (2021-04-12) |
+| 7 | 2023-04-20 | Decreto Ejecutivo 44029 (2023-04-20) |
