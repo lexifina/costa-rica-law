@@ -1,1 +1,0 @@
-Artículo 206.- Aquel funcionario al que se le compruebe una o más denuncias por aceptación de dinero, regalías o dádivas será inmediatamente trasladado a otras dependencias que no tengan relación con la aplicación de este Reglamento sin perjuicio de las responsabilidades penales, civiles o administrativas en que pueda haber incurrido el funcionario.

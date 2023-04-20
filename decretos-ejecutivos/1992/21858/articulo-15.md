@@ -1,2 +1,0 @@
-Artículo 15.— Registro de establecimientos aprobados
-El Ministerio de Agricultura y Ganadería remitirá anualmente a las autoridades competentes de cada país el listado de nombres de los establecimientos aprobados por Costa Rica, debiendo incluirse la ubicación exacta y el tipo de productos para el cual está autorizado para exportar. De igual forma notificará todo cambio o modificaciones al listado remitido.

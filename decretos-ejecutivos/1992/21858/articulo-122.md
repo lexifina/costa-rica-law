@@ -1,4 +1,0 @@
-Artículo 122.—El importador deberá solicitar la inspección de los productos de importación; información que se requiere.
-a) Cada importador solicitará la inspección de todo producto de importación al funcionario encargado, si lo hubiere, en el puerto donde dicho producto se vaya a ofrecer para ser importado. En otro caso. la solicitud de inspección se presentará al Departamento Cuarentena Animal.
-b) La solicitud deberá presentarse con la mayor antelación posible a la llegada prevista de cada envío (Mínimo tres días).
-c) En cada solicitud se indicará la fecha aproximada en que deba llegar el envío en el puerto de que se trate en Costa Rica, el nombre del buque u otro transportista que lo transporte, el nombre del país desde el cual se envió o se va a enviar el producto el lugar en el que se desea que se efectúe la inspección, la cantidad y tipo del producto y si se trata de un producto fresco curado, enlatado o preparado de alguna otra manera.

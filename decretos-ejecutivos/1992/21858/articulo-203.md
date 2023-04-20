@@ -1,1 +1,0 @@
-Artículo 203.—Ningún funcionario de la Dirección, de la Comisión, del Departamento de Cuarentena Animal o del Departamento de Inspección de Productos de Origen Animal podrá aceptar dinero, o regalías por el cumplimiento de sus funciones.

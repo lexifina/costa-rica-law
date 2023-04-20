@@ -1,1 +1,0 @@
-Artículo 209.—El Recurso de apelación cabrá contra los actos administrativos dictados por la Comisión de Evaluación o los Jefes de los Departamentos de Cuarentena Animal o de Inspección de productos de origen animal. Este recurso será interpuesto ante el Director de Salud Animal dentro de los cinco días posteriores a la notificación del acto.

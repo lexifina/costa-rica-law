@@ -1,2 +1,0 @@
-Artículo 219 bis.—Las disposiciones de este Reglamento y las del Reglamento de Defensa Sanitaria, decreto ejecutivo No 14584-A, no serán aplicables a la importación de leche modificadas (maternizada) enlatadas o envasadas considerados como medicamentos por el Ministerio de Salud, siempre y cuando provengan de países libres de fiebre aftosa.
-(Artículo adicionado por el Decreto Ejecutivo N° 27200 de 29/07/1998 publicado en la Gaceta N° 153 de 07/08/1998, Alcance 49-A)

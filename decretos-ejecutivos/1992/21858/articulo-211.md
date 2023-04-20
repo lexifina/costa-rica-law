@@ -1,1 +1,0 @@
-Artículo 211 .—En la audiencia administrativa estará presente la Comisión de Evaluación de Equivalencias, el Director de Salud Animal, el administrado (interesado) y sus abogados si lo estima necesario.

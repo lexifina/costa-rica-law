@@ -1,1 +1,0 @@
-Artículo 198.—Se faculta a la Comisión de Evaluación de Equivalencias, el Departamento de Cuarentena Animal y el Departamento de Inspección para que dicten los procedimientos administrativos necesarios para la debida ejecución de las normas de este Reglamento.

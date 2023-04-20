@@ -1,2 +1,0 @@
-Artículo 2°— Informe de evaluación
-El Ministerio de Agricultura y Ganadería de Costa Rica comunicara a las autoridades competentes del país exportador, mediante un informe escrito los resultados de la evaluación, indicando en forma expresa si se aprueba o no el sistema de inspección. En aquellos casos en que no se apruebe un sistema de inspección deberá indicar cuales aspectos administrativos, técnicos o jurídicos no aprueba.

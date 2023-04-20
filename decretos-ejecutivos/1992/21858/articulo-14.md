@@ -1,3 +1,0 @@
-Artículo 14.- Validez de la aprobación
-Toda aprobación de un establecimiento será valida hasta por tres años contados a partir de la notificación oficial del informe de inspección del resultado de este. No obstante lo anterior, dentro del plazo de autorización otorgado se podrá verificar en cualquier momento el mantenimiento de las condiciones que dieron origen a la autorización. Con base en ello el Ministerio de Agricultura y Ganadería, mediante resolución razonada, previa garantía del debido proceso, podrá de acuerdo a las circunstancias suspender temporalmente o cancelar definitivamente una aprobación otorgada a un establecimiento.
-(Así reformado por el Decreto Ejecutivo N° 31809 de 1° de abril de 2004).

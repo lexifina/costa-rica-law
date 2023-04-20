@@ -1,2 +1,0 @@
-Artículo 24.- Resolución alternativa a la habilitación
-Una vez que el Ministro de Agricultura y Ganadería haya resuelto favorablemente en cuanto a las normas reglamentaras, el sistema de inspección nacional del país y las operaciones de la planta, se procederá a agregar el nombre del país al registro que enumera los países habilitados para exportar productos y/o subproductos de origen animal a Costa Rica.

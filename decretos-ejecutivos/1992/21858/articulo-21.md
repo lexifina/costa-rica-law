@@ -1,2 +1,0 @@
-Artículo 21 —Solicitud oficial
-El funcionario de mayor categoría del Programa de Inspección de Carnes del país solicitante deberá preparar una solicitud oficial, reunir un conjunto de disposiciones reglamentarias sobre la inspección de carnes y presentar todo ello a través de cauces oficiales a la siguiente dirección: Ministerio de Agricultura y Ganadería, Dirección de Salud y Producción Pecuaria, Comisión de Evaluación.

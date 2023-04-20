@@ -1,1 +1,0 @@
-Artículo 191.—La Comisión de Evaluación de Equivalencias además de las funciones asignadas, en el capítulo IV de este Reglamento es el órgano ante el cual se presentará las solicitudes de evaluación y aprobación de sistemas de inspección Veterinaria y de preparar los cuestionarios para la evaluación del estado sanitario de los países exportadores.

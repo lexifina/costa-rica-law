@@ -1,1 +1,0 @@
-Artículo 220.—Las autoridades del Ministerio de Agricultura y Ganadería, salvo norma expresa que así lo autorice, no gozan de facultades discrecionales en la aplicación y ejecución de las disposiciones de este Reglamento.

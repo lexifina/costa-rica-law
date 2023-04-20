@@ -1,2 +1,0 @@
-Artículo 115.—Historial de cumplimiento
-Se establece un historial de cumplimiento cuando los resultados de por lo menos las tres últimas muestras consecutivas de distintos envíos del mismo producto indican cumplimiento en los últimos seis meses. A menos que se establezca un historial de cumplimiento no se debe autorizar la distribución de los productos importados antes de conocerse los resultados de los análisis de las muestras en el laboratorio.

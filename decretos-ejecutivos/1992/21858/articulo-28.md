@@ -1,2 +1,0 @@
-Artículo 28—Mantenimiento de la equivalencia
-Para asegurarse de que las plantas certificadas de los países habilitados mantienen normas de inspección y sanidad que sean por lo menos equivalentes a las que se aplican en las plantas de Costa Rica sometidas a inspección oficial, expertos veterinarios reexaminarán periódicamente el funcionamiento de las plantas habilitadas y discutirán con los funcionarios de inspección de carnes del país problema u otro asunto relacionado con los controles de inspección y las exportaciones.

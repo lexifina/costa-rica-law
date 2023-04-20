@@ -1,2 +1,0 @@
-Artículo 23.—Verificación en el país
-Una vez recibida, analizada y evaluada la información y documentación, se efectúa una verificación en el país exportador del sistema de inspección del país para ver como funciona en las plantas que vayan a ser habilitadas para exportar a Costa Rica. El examinador observa las prácticas que se sigan en las operaciones y demás aspectos que considere de interés para los efectos de la verificación.

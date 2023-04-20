@@ -1,1 +1,0 @@
-Artículo 143.—Los productos importados deberán provenir únicamente de países cuyos sistemas de inspección hayan sido evaluados y reconocidos por nuestro país. Además, deberán ser procesados y empacados en establecimientos o plantas expresados aprobados por Costa Rica.

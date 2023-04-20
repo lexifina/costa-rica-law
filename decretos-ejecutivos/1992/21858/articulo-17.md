@@ -1,2 +1,0 @@
-Artículo 17.- Coordinación y notificaciones
-Toda persona física o jurídica con interés en exportar o importar productos de origen animal a Costa Rica debe presentar la solicitud a la Comisión de Evaluación y de igual manera debe notificar a las autoridades competentes del país de origen (de los productos o subproductos) con las cuales se coordinará toda lo concerniente a la evaluación y aprobación. Toda la tramitación deberá hacerlo por medio de las autoridades del Gobierno.

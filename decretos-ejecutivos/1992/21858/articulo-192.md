@@ -1,1 +1,0 @@
-Artículo 192.- El Departamento de Cuarentena Animal sin perjuicio de las funciones que se le asigna en el Reglamento a la Ley Orgánica del Ministerio de Agricultura y Ganadería será el órgano de la Dirección que se encargará de la ejecución de lo dispuesto en los capítulos XIII del título II, y los capítulos XIV, XV y XVI del título III de este Reglamento.

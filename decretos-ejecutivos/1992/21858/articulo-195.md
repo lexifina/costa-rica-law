@@ -1,4 +1,0 @@
-Artículo 195.—La Dirección de Salud Animal y Producción Pecuaria dotará de todos los recursos humanos, financieros y administrativos a las dependencias encargadas de la ejecución del Reglamento.
-Para esos efectos creará un fondo que permita atender las obligaciones derivadas de la aplicación y ejecución de este Reglamento, dicho fondo será administrado en una cuenta especial de la Dirección de Salud y Producción Pecuaria. La administración y fiscalización de fondos estará sujeto a las regulaciones que al respecto gire la Contraloría General de la República.
-El importador o interesado deberá asumir los gastos por concepto de transporte viáticos del personal del Ministerio de Agricultura y Ganadería designado para la inspección del establecimiento del país exportador.
-Dicho fondo podrá recibir los aportes que el sector privado haga para el mejor cumplimiento de las disposiciones de este Reglamento.

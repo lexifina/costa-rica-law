@@ -1,2 +1,0 @@
-Artículo 125.—Productos de importación; el equipo y medios de transporte que se utilicen en la manipulación deberán mantenerse en condiciones sanitarias.
-Los compartimientos de los medios de transporte que acarreen productos a Costa Rica y todos los camiones, conductos plataformas, rejillas, mesas, instrumentos utensilios y demás dispositivos usados para mover y manipular cualquier producto que se ofrezca para ser importado a Costa Rica, se mantendrán en condiciones sanitarias.

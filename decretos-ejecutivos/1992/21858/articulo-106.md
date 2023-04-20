@@ -1,2 +1,0 @@
-Artículo 106.—Subproductos para uso industrial farmacéutico y otros que no sean para consumo humano.
-Podrán ser importados subproductos de origen animal que sean destinados a unos distintos al consumo humano de establecimientos habilitados y no habilitados para exportar a Costa Rica, sin embargo en el último caso deberán de provenir de países cuyo sistema de inspección haya sido aprobado y que ese país se encuentre dentro del registro de países aprobados.

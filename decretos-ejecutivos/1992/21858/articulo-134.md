@@ -1,4 +1,0 @@
-Artículo 134.—Los productos importados se manipularán y transportarán igual que los de origen nacional, entrada en los establecimientos autorizados; excepción.
-a ) Después de haber entrado en Costa Rica se considerarán y tratarán todos los productos importados como si fueran productos de origen nacional y estarán sujetos a las disposiciones pertinentes de la ley.
-b) Los productos importados que hayan sido inspeccionados, aprobados y marcados conforme a esta Parte podrán, llevarse a establecimientos autorizados y mezclarse con cualquier producto, o añadirse a cualquier producto, que haya sido inspeccionado y aprobado en dichos establecimientos.
-c) Los productos importados que hayan sido inspeccionados, aprobados y marcados conforme a esta Parte podrán ser transportados durante la importación o ulteriormente para ser objeto de comercio.

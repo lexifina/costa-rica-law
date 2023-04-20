@@ -1,3 +1,0 @@
-Artículo 145—Entrada y aviso de muestreo
-Es la responsabilidad del importador hacer los arreglos para el examen o evaluación y liberación de alimentos importados. Dentro del período de cinco días después de la llegada de un embarque a un puerto de entrada de Costa Rica, se deben registrar los documentos de entrada en la localización señalada por la Aduana. Una vez que el Departamento de Cuarentena Animal recibe los documentos, determinará si desea tomar muestras del embarque o no.
-Si el Departamento de Cuarentena Animal decide que quiere un muestreo del embarque, se enviará un aviso de muestreo de proseguir con la importación.

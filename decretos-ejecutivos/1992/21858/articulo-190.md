@@ -1,1 +1,0 @@
-Artículo 190.—La Comisión de Evaluación de Equivalencias, el Departamento de Cuarentena Animal y el Departamento de Inspección de Productos de Origen Animal serán las dependencias de la Dirección de Salud y Producción Pecuaria que se encargarán directamente de ejecutar lo dispuesto en este Reglamento, sin perjuicio de otras dependencias que determine la Dirección.

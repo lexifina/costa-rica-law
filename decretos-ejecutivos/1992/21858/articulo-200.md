@@ -1,1 +1,0 @@
-Artículo 200.—la revisión de los procedimientos administrativos y del Manual de Normas deberá realizarse por lo menos una vez al año: debiendo notificarse con un mes de anticipación los cambios que se introduzcan.

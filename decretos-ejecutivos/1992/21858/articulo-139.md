@@ -1,1 +1,0 @@
-Artículo 139.—Recibida la solicitud, el Departamento de Cuarentena Animal, revisará y en caso de no existir restricciones extenderá en un plazo máximo de 48 horas hábiles contadas a partir de la presentación de la solicitud, una autorización de importación; dicha autorización será válida por treinta días naturales a partir de su fecha de emisión.

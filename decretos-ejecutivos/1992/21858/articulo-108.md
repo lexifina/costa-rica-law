@@ -1,2 +1,0 @@
-Artículo 108.—Inspección previa.
-De previo a toda importación de animales vivos las autoridades del Departamento de Cuarentena Animal del Ministerio de Agricultura y Ganadería de Costa Rica determinarán los casos en que se debe inspeccionar previamente los sitios, fincas, granjas o establecimientos donde se crían y desarrollan los animales objetos de importación; utilizando para ello criterios basados en la cantidad, origen, uso o destino de los animales a importar.

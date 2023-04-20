@@ -1,2 +1,0 @@
-Artículo 147.—Memorándum de entendimiento (ME).
-Costa Rica podrá suscribir memorándum de entendimiento con las autoridades competentes del país exportador con la finalidad de elaborar una lista de productos susceptibles de contaminación. A través del ME Costa Rica reconoce a las autoridades competentes del país exportador como responsable de garantizar la Sanidad y calidad de los productos, de modo que al ingresar a nuestro país no son muestreados ni retenidos.

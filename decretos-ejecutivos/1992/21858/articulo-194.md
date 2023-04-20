@@ -1,1 +1,0 @@
-Artículo 194.—Será obligación de los Jefes de los Departamentos citados en los artículos anteriores y del Coordinador de la Comisión velar por la correcta y debida aplicación de las normas de este Reglamento.

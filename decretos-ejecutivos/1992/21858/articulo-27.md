@@ -1,2 +1,0 @@
-Artículo 27.—Verificación continua de la equivalencia de las reglamentaciones
-A fin de mantener al día la equivalencia entre la reglamentación del país de que se trate y la de Costa Rica, el funcionario de inspección de carnes de mayor categoría de un país habilitado deberá informar a la Dirección de Salud Animal y producción Pecuaria de cualquier cambio importante y modificaciones que se introduzcan en el Reglamento de Inspección de Carnes del país.
