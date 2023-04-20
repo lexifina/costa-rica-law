@@ -1,1 +1,0 @@
-Artículo 2°- Deróguese el Decreto Ejecutivo número 43531-H de fecha 07 de abril de 2022, / publicado en el Alcance número 93 a La Gaceta número 86 de fecha 11 de mayo 2022, a partir de la vigencia del presente decreto.
