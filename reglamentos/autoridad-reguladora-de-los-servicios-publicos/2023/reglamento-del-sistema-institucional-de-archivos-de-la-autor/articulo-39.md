@@ -1,0 +1,1 @@
+Artículo 39. Entrega personal. - Los funcionarios del DEGD tienen la responsabilidad de registrar en los sistemas o mecanismos previstos para estos efectos, la información básica de la persona que entrega físicamente el documento, características asociadas a la información suministrada, así como la información temporal relacionada con la recepción de este.

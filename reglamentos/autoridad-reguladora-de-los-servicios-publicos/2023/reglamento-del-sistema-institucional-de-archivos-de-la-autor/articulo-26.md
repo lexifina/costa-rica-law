@@ -1,0 +1,3 @@
+Artículo 26. Digitalización. - Todos los documentos externos que ingresan en soporte físico, deben ser digitalizados por el Departamento de Gestión Documental.
+El Departamento de Gestión Documental notifica a las dependencias el ingreso del documento externo en el formato producto de la digitalización, para su respectivo trámite mediante el Sistema de Gestión Documental y los documentos físicos son remitidos a las respectivas dependencias para su custodia.
+Las dependencias de la Autoridad Reguladora una vez cumplida la vigencia administrativa legal establecida en las Tablas de Plazo de Conservación Documental, remiten la documentación; siguiendo los lineamientos de remisión de documentos; quedan exentos de este proceder los expedientes de convenios.

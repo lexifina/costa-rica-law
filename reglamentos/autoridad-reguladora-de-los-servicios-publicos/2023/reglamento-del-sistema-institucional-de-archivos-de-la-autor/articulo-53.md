@@ -1,0 +1,1 @@
+Artículo 53. Método de ordenación. - La ordenación de los documentos tanto en el archivo central como en los archivos de gestión se basa en los métodos: alfabético, cronológico y numérico, dependiendo de la serie documental y de los lineamientos internos.

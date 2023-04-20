@@ -1,0 +1,1 @@
+Artículo 44. Directrices para la recepción y envío de documentación. - Las directrices o lineamientos de acatamiento obligatorio, que se determine que son necesarios para la recepción y envío de documentación, son propuestas por el Departamento de Gestión Documental y dictadas por la persona que ostenta el cargo de Regulador General.

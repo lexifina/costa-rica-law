@@ -1,0 +1,2 @@
+Artículo 58. Eliminación del original. - Por ningún motivo una reproducción (digital, fotocopia, entre otras) de un documento sustituye el original, de manera que, no se puede eliminar el documento original hasta tanto sea sometido al proceso de selección, valoración y eliminación de documentos.
+En esa línea, la digitalización de documentos declarados con valor científico cultural nunca es un motivo para eliminar los documentos originales.

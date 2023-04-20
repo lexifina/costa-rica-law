@@ -1,0 +1,1 @@
+Artículo 67. Expediente personal. - Los expedientes de las personas funcionarias inactivas que estén en custodia en el Departamento de Gestión Documental, sólo pueden ser consultados por la persona a quien se refiere el expediente, la Dirección de Recursos Humanos y la Auditoría Interna, en el ejercicio de sus funciones y previa solicitud formal escrita.

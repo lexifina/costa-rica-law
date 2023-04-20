@@ -1,0 +1,3 @@
+Artículo 49. Registro de documentación interna. - Toda la documentación oficial interna que generen las dependencias de la Institución debe ser registrada por el funcionario que la dependencia asigne para tal función, en la plataforma electrónica institucional que se utilice.
+En caso de que la documentación se encuentre relacionada a un expediente administrativo, ésta debe ser remitida por la dependencia al Departamento de Gestión Documental, de acuerdo con los lineamientos que se definan a lo interno de la institución, caso contrario se devolverá.
+Los documentos físicos relacionados a expedientes abiertos a partir del año 2020 se devolverán a las dependencias para su custodia en los repositorios físicos.

@@ -1,0 +1,1 @@
+Artículo 55. Inventario Documental. - Todos los archivos de gestión deben contar con el registro de la documentación descrita en un inventario para lo cual deben seguir lo estipulado en el procedimiento correspondiente.

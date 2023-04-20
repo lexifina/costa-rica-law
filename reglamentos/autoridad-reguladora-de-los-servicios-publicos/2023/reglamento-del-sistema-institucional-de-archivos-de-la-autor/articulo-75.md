@@ -1,0 +1,1 @@
+Artículo 75. Almacenamiento en el Repositorio. - Los documentos con firma digital producidos por las dependencias de la institución y los documentos electrónicos que se reciban en la institución, son almacenados en el repositorio del Sistema de Gestión de Documentos.

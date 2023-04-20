@@ -1,0 +1,1 @@
+Transitorio III.-En un plazo máximo de 6 meses a partir de la publicación de este reglamento, se deben actualizar los procedimientos internos que apliquen para el trámite de documentación externa y los mecanismos de validación respectivos,a fin de que se ajusten a lo dispuesto en este reglamento, según corresponda.

@@ -1,0 +1,2 @@
+Artículo 94. Derogaciones. - Se deroga el Reglamento del Sistema Institucional de archivos (SIA) de la Autoridad Reguladora de los Servicios Públicos, aprobado mediante acuerdo 06-35-2019, del acta de la sesión 35-2019, celebrada el 6 de agosto de 2019, cuya acta fue ratificada el 13 de agosto del mismo año, por la Junta Directiva de la Aresep, y sus reformas.
+Además, se deroga toda normativa, que se oponga a lo dispuesto en el presente reglamento.

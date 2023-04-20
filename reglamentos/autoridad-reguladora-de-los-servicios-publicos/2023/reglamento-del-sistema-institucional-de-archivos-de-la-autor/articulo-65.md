@@ -1,0 +1,1 @@
+Artículo 65. Requisito de consulta física. - La consulta física de los expedientes administrativos originales solo se realiza cuando se requiera corroborar la veracidad de la información y debe realizarse en la sala de consulta provista paraello o dentro de las instalaciones del Departamento de Gestión Documental.

@@ -1,0 +1,1 @@
+Artículo 87. Selección y eliminación de documentos electrónicos - Las dependencias que produzcan documentos electrónicos deben realizar la selección de los documentos electrónicos para determinar cuáles se van a conservar de acuerdo con los plazos establecidos en las Tablas de Plazos de Conservación Documental.

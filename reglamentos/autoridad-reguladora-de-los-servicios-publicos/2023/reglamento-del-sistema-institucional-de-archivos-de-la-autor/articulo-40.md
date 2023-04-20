@@ -1,0 +1,1 @@
+Artículo 40. Ingreso de documentación vía apartado postal. - La documentación vía apartado postal ingresa al Departamento de Gestión Documental a través del registro de control de documentación que entrega el mensajero externo de la Institución al funcionario encargado del DEGD.

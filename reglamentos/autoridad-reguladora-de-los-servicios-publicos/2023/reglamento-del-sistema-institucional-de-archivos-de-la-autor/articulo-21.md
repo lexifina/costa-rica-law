@@ -1,0 +1,3 @@
+Artículo 21. Custodia y Administración de la documentación electrónica de Expedientes administrativos. - La documentación electrónica (digital y digitalizada) que consten en los expedientes administrativos indicados en el artículo 24 está bajo la custodia del Departamento de Gestión Documental.
+Y la administración del contenido de los expedientes es responsabilidad de las dependencias.
+Cuando los expedientes estén debidamente cerrados, se realiza la transferencia hacia el Departamento de Gestión Documental para su administración y custodia, según los plazos establecidos en la Tabla de Plazos de Conservación de Documentos.

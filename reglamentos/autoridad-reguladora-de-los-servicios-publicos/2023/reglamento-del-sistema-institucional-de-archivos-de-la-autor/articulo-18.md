@@ -1,0 +1,14 @@
+Artículo 18. Funciones del encargado en materia de archivo de gestión. - Son funciones del encargado en lo atinente al archivo de gestión las siguientes:
+a) Producir, reunir, clasificar, ordenar, registrar, describir, seleccionar, facilitar, custodiar y conservar todos los documentos recibidos o producidos por su dependencia, según lo establecido en los lineamientos institucionales emitidos al efecto y la Tabla de Plazos de Conservación de Documentos vigente.
+b) Elaborar y valorar con las jefaturas de su dependencia la Tabla de Plazos de Conservación de Documentos y entregarla dentro del plazo establecido por el Departamento de Gestión Documental.
+c) Realizar las transferencias documentales al Departamento de Gestión Documental de acuerdo con la vigencia legal y administrativa establecida en la Tabla de Plazos de Conservación de Documentos.
+d) Solicitar asesoría en materia archivística al Departamento de Gestión Documental.
+e) Aplicar los procedimientos, instructivos y documentos de apoyo de la Institución, que le permitan cumplir con lo dispuesto en este reglamento.
+f) Elaborar cada tipo documental en el formato y soporte correspondiente, de acuerdo con la normativa institucional vigente.
+g) Llevar un control estricto del número consecutivo que le corresponde a cada tipo documental.
+h) Aplicar el sistema de clasificación para la organización de los documentos, según los lineamientos vigentes.
+i) Trasladar la documentación para su custodia o eliminación, mediante las listas de remisión en las cajas especiales de archivo, respetando la clasificación y orden de cada dependencia.
+j) Proteger la documentación de factores químicos, biológicos, físicos, materiales y ambientales, que puedan afectar su conservación.
+k) Controlar el préstamo de documentos del archivo de gestión.
+l) Asegurar que todos los documentos en soporte físico que ingresen a la dependencia sean controlados con los mecanismos adecuados que garanticen el registro de la fecha, hora y la firma de recibido del funcionario encargado. Además, debe revisar los documentos que ingresen a la bandeja de entrada de la dependencia vía Sistema de Gestión Documental con la finalidad de devolver o no la documentación al remitente en caso de que se presente alguno de los siguientes supuestos: 1- El documento interno no esté debidamente firmado, 2- No sea la dependencia coordinadora en caso de los documentos externos, 3- Los documentos internos incompletos por falta de anexos, 4- Que los metadatos del documento no coincida con el remitente, destinatario y mensaje del documento, 5- Destinatario incorrecto, o bien el supuesto que considere la dependencia.
+m) Remitir al Departamento de Gestión Documental la documentación original que debe ser incluida en los expedientes administrativos, acorde con las actividades y lineamientos establecidos en la documentación del Sistema de Gestión de Calidad de la Institución, lo que incluye el sello de trazabilidad.

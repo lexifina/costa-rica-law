@@ -1,0 +1,2 @@
+Artículo 56. Base de datos. - El Departamento de Gestión Documental debe administrar una base de datos de la documentación que compone el archivo central, que contenga al menos la siguiente información: indicación de la unidad productora, fecha, contenido sustantivo, soporte y cualquier otro criterio que facilite la búsqueda de documentos. Esta base de datos sirve de herramienta de consulta.
+Las Bases de datos institucionales deben estar acorde a los lineamientos internos que se defina al efecto.

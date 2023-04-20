@@ -1,0 +1,1 @@
+Artículo 52. Sistema de clasificación. - Se realiza de acuerdo con lo establecido en la normativa que se establezca al efecto. El cuadro de clasificación es de aplicación normalizada y obligatoria en todos los archivos de gestión de la Institución.

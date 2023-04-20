@@ -1,0 +1,1 @@
+Artículo 42. Ingreso de documentación vía fax. - La documentación que ingrese por medio del fax, debe ser registrada por los funcionarios del DEGD en los sistemas o mecanismos institucionales destinados para tal fin y se remite a las dependencias coordinadoras para su validación, conforme las disposiciones internas dispuestas y para el trámite respectivo.

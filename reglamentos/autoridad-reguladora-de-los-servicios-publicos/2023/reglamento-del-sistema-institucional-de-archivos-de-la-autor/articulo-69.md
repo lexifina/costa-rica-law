@@ -1,0 +1,1 @@
+Artículo 69. Selección de documentos. - La selección documental se lleva a cabo pieza por pieza y en caso de eliminación se hace por unidades documentales (expedientes o legajos), serie documental o bien grupos documentales. La selección se realiza de acuerdo con los lineamientos vigentes relacionados al cuadro de clasificación.

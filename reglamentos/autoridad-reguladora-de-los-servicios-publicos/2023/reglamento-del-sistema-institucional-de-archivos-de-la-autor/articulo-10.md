@@ -1,0 +1,2 @@
+Artículo 10. Solicitud de confidencialidad. - Los prestadores de los servicios públicos regulados por la Autoridad Reguladora que requieran presentar una solicitud de confidencialidad, para documentos que entreguen a la institución deben seguir lo establecido por el procedimiento para el trámite de solicitudes de declaratoria de confidencialidad de documentos e información que al efecto emita la Aresep.
+El archivo de gestión de la dependencia encargada del trámite custodiará el ejemplar original de los documentos declarados como confidenciales.

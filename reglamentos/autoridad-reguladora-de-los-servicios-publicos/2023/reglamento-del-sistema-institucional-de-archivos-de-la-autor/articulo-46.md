@@ -1,0 +1,1 @@
+Artículo 46. Asignación de dependencias y tipo de trámite. - El Departamento de Gestión Documental a través de la Unidad de Gestión, según la materia de la documentación que ingresa a la Institución determina la dependencia coordinadora (DC) encargada de tramitar y coordinar los asuntos que le sean asignados, mediante los métodos que se definan a nivel institucional.

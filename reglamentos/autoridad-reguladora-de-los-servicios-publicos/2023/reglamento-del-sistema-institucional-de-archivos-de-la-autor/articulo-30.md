@@ -1,0 +1,2 @@
+Artículo 30. Documentos con valor científico cultural. - Los documentos que se consideren de valor científico-cultural deben ser custodiados en los diversos archivos administrativos de la Institución. Una vez cumplidos los plazos de remisión, son transferidos a la Dirección General del Archivo Nacional.
+Las dependencias que producen documentos considerados de valor científico-cultural deben cumplir con los lineamientos que emita la Dirección General del Archivo Nacional.

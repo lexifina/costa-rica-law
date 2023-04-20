@@ -1,0 +1,2 @@
+Artículo 36. Priorización de los mecanismos de ingreso de documentación y gestiones asociadas - La ventanilla única institucional debe ser el sistema por medio del cual se reciba la documentación externa.
+La institución dispondrá de los recursos que se requieran para unificar y centralizar los diversos trámites que ingresen por los medios oficiales, de modo que los mismos se gestionen desde la ventanilla única como plataforma centralizada de atención.
