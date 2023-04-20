@@ -1,0 +1,13 @@
+Artículo 13 bis. El Departamento de Salud Ocupacional tiene las siguientes funciones:
+1. Gestionar la salud ocupacional de las personas en el Ministerio, a partir de un abordaje de prevención y promoción de la salud ocupacional, con gestión integral de los riesgos higiénicos, de seguridad y los riesgos psicosociales y los emergentes y reemergentes, según la naturaleza propia de la empresa.
+2. Intervenir sobre los factores de riesgo propios o agregados de la actividad laboral, incluyendo la forma y contenido de la organización del trabajo, por medio de un diagnóstico para abordarlos a través de una estrategia de intervención. Este diagnóstico debe actualizarse, al menos, cada dos años y debe estar a disposición de las Dependencias que lo requieran, de la Comisión y de las autoridades competentes, cuando éstas lo requieran, de
+conformidad con los artículos 282 y 298, ambos del Código de Trabajo.
+3. Mantener informadas a las personas trabajadoras, a los proveedores y empresas subcontratadas que brindan servicios a la empresa o institución, por medio de la Proveeduría Institucional, sobre las medidas preventivas o de protección. vigentes, así como la información de los riesgos que ellos pueden generar y la forma de prevenirlos.
+4. Llevar un registro estadístico de los accidentes y enfermedades por consecuencia del trabajo.
+5. Presentar al Consejo de Salud Ocupacional un informe sobre los casos de accidentes o enfermedades del trabajo con resultado de muerte, dentro de un plazo de diez días hábiles posteriores al acaecimiento del hecho.
+6. Realizar estudios o participar en el diseño sobre las condiciones de nuevas
+instalaciones, acondicionamiento y remodelación e incorporación de equipos y tecnologías en el Ministerio, así como participar en el diseño y ejecución de los nuevos procesos de trabajo. 7. Realizar actividades de prevención y promoción de la salud ocupacional que contemple la capacitación y sensibilización de las personas trabajadoras.
+8. Coordinar acciones preventivas de preparación y respuesta ante situaciones de emergencia o desastres provocados por la naturaleza o por las personas.
+9. Asesorar sobre la planificación y organización del trabajo, incluido en los puestos de trabajo, sobre la selección y mantenimiento de los equipos y sobre las sustancias y materiales utilizados en el proceso de trabajo.
+10. Participar en el diseño y desarrollo de programas de buenas prácticas laborales, así como en las pruebas y evaluación de nuevos equipos en relación con la protección a la salud.
+(Así adicionado por el artículo 7° del decreto ejecutivo N° 44029 del 20 de abril de 2023)

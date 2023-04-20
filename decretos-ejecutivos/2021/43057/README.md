@@ -14,3 +14,4 @@ Reglamento de organización y funciones de la Oficialía Mayor y Dirección Admi
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-09-08 | la propia norma |
+| 2 | 2023-04-20 | Decreto Ejecutivo 44029 (2023-04-20) |

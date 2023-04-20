@@ -10,6 +10,9 @@ Está conformada además por los siguientes Departamentos:
 7. Gestoría de la Administración Superior y Área de Egresos
 8. Gestoría del Servicio Nacional de Aduanas y Policía de Control Fiscal
 9. Gestoría de la Dirección General de Tributación y Dirección General de Hacienda
-10. Gestoría de la Dirección de Tecnologías de Información y Comunicación, Centro de Investigación y Formación Hacendaria, Tribunales Fiscal Administrativo y Tribunal Aduanero Nacional.
+10.Gestoría de la Dirección de Tecnologías de Información y Comunicación, Tribunal Fiscal Administrativo y Tribunal Aduanero Nacional.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 44029 del 20 de abril de 2023)
+11. Departamento de Salud Ocupacional.
+(Así adicionado el inciso anterior por el artículo 1° del decreto ejecutivo N° 44029 del 20 de abril de 2023)
 La Asesoría Legal, la Unidad de Gestión Ambiental y los Departamentos están a cargo de una Jefatura que funge como responsable directa y con dependencia funcional del (de la) Director (a).
 Las Gestorías son Departamentos operativos y están sujetos a las disposiciones técnicas de la Asesoría Legal y de los otros Departamentos que conforman la Dirección, cada uno en materia de su competencia. Están a cargo de una Jefatura que funge como responsable directo y con dependencia funcional del (de la) Director (a).

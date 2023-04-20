@@ -2,7 +2,8 @@ Artículo 10. Las Gestorías Administrativas y Financieras señaladas en el art�
 1. Unidad de Gestión del Potencial Humano
 2. Unidad de Asesoría Legal
 3. Unidad Financiera y Contratación Administrativa
-4. Unidad de Servicios
+4. Unidad de Servicios, Almacenamiento y Control de Bienes
+(Así reformado el inciso anterior por el artículo 4° del decreto ejecutivo N° 44029 del 20 de abril de 2023)
 5. Unidad de Almacenamiento y Control de Bienes
 Las Unidades tienen asignadas funciones operativas y obedecen a procedimientos y lineamientos técnicos de los otros Departamentos que integran la Oficialía Mayor y Dirección Administrativa y Financiera y la Asesoría Legal, en cumplimiento de la normativa vigente.
 Únicamente la Gestoría de la Dirección de Tecnologías de Información y Comunicación, Centro de Investigación y Formación Hacendaria, Tribunales Fiscal Administrativo y Tribunal Aduanero Nacional no cuenta con Unidad de Asesoría Legal, pero si con personal de apoyo para atender esta labor.
@@ -81,10 +82,9 @@ La Unidad Financiera y Contratación Administrativa tiene las siguientes funcion
 31. Presentar ante el Departamento Financiero las solicitudes de redistribución de cuota de las diferentes partidas y subpartidas presupuestarias sin es necesario, una vez firmadas por el Director de Dependencia.
 32. Proyectar los gastos de materiales y suministros para el año siguiente, a efectos de que sean incluidos en el anteproyecto de presupuesto.
 33. Realizar los trámites necesarios para reparación de los bienes asignados a las Dependencias a su cargo.
-34. Determinar las proyecciones de consumo de bienes y suministros de convenio marco, autorizados por la Dirección General de Administración de Bienes y Contratación Administrativa para un período determinado y remitirlo a la Proveeduría
-Institucional.
+34. Determinar las proyecciones de consumo de bienes y suministros de convenio marco, autorizados por la Dirección General de Administración de Bienes y Contratación Administrativa para un período determinado y remitirlo a la Proveeduría Institucional.
 35. Cualquier otra función que determine el Departamento Financiero y la Proveeduría Institucional.
-La Unidad de Servicios tiene las siguientes funciones:
+(*)La Unidad de Servicios, Almacenamiento y Control de Bienes tiene las siguientes funciones:
 1. Llevar el control de los números de teléfono, medidores de agua, luz y servicios públicos de las Dependencias a su cargo.
 2. Tramitar la autorización para el uso de vehículos oficiales (zarpes) y tarjetas de circulación en horario no hábil.
 3. Controlar la salida y llegada de vehículos oficiales en el sistema de información correspondiente.
@@ -99,7 +99,7 @@ La Unidad de Servicios tiene las siguientes funciones:
 12. Proponer requerimientos y necesidades para la dotación de los servicios de seguridad y vigilancia privada, en coordinación con el Departamento de Servicios Generales.
 13. Realizar el monitoreo de los circuitos cerrados de televisión en caso de que estos existan en las Dependencias a su cargo, a través de los funcionarios enlace en cada Dependencia.
 14. Velar por la sana administración de los servicios internos y privados de la limpieza, higiene y misceláneos en las instalaciones, dando seguimiento a la ejecución de contratos de servicio.
-15. Proponer requerimientos y necesidades para la dotación de los servicios de limpieza e higiene.
+15. Proponer requerimientos y necesidades para la .dotación de los servicios de limpieza e higiene.
 16. Brindar el servicio de notificación de documentos, cuando se requiera.
 17. Coordinar con el Departamento de Servicios Generales la dotación de servicios públicos y privados como telefonía, electricidad, agua, que sean requeridos por las Dependencias a su cargo.
 18. Brindar servicios de información, atención y orientación del usuario externo e interno.
@@ -107,26 +107,25 @@ La Unidad de Servicios tiene las siguientes funciones:
 20. Coordinar con el área de seguridad lo pertinente al ingreso a las instalaciones.
 21. Mantener registros actualizados de visitantes a las instalaciones.
 22. Coordinar con el Departamento de Servicios Generales aspectos a mejorar relativos a los servicios de información.
-23. Coordinar con el Departamento de Servicios Generales y órganos competentes aspectos relevantes en materia de comunicación, radio operación, centrales telefónicas.
+23. Coordinar con el Departamento dé Servicios Generales y órganos competentes aspectos relevantes en materia de comunicación, radio operación, centrales telefónicas.
 24. Preparar informes al Departamento de Servicios Generales en materia vehicular, y a las distintas Dependencias, a cargo de la Gestoría.
 25. Llevar el control presupuestario del gasto del combustible y las proyecciones respectivas.
 26. Revisar y remitir al Departamento Financiero la factura de combustible especial mensualmente.
 27. Realizar las gestiones correspondientes para solicitar al Departamento de Servicios Generales los requerimientos necesarios para compra de combustible y pago de servicios revisiones técnicas de los vehículos asignados a las Dependencias a su cargo.
 28. Llevar el control y autorización del tiempo extraordinario de choferes destacados en la Gestoría respectiva.
 29. Programar la asignación de los vehículos de conformidad con la disponibilidad de conductores, de vehículos, restricción vehicular, según el servicio solicitado.
-30. Gestionar los permisos para conducir vehículos ante el Departamento de Servicios Generales.
+30. Gestionar los permisos para conducir vehículos ante el Departamento de. Servicios Generales.
 31. Tramitar los permisos de funcionamiento y/o sanitarios que requieran las dependencias, ante las distintas instituciones públicas.
-32. Cualquier otra función que determine el Departamento de Servicios Generales.
-La Unidad de Almacenamiento y Control de Bienes tiene las siguientes funciones:
-1. Trámite y aprobación de requisiciones mediante el sistema de información correspondiente que solicitan las diferentes Dependencias del Ministerio, a fin de entregarles los suministros y bienes que se encuentren almacenados de acuerdo a sus necesidades.
-2. Realizar y actualizar anualmente el inventario físico de los bienes asignados a las Dependencias a cargo de la Gestoría.
-3. Participar, junto con el personal de la Proveeduría Institucional, en las destrucciones de suministros que han expirado su vida útil cuando se les solicite.
-4. Registrar en el sistema de información correspondiente todos los movimientos de bienes generados por traslado, préstamo, asignación, devolución o reasignación en las Dependencias a cargo.
-5. Reportar a la Proveeduría Institucional, de conformidad con los lineamientos emitidos por ésta, con la firma del Director de Dependencia, el listado de bienes en desuso solicitando la baja de los mismos.
-6. Coordinar la logística para traslados, custodia, clasificación, avalúos, de bienes en desuso y participar en la destrucción de bienes y donaciones de la Dependencia a su cargo.
-7. Llevar el control y seguimiento actualizado, a través de un inventario permanente, de todos los bienes de la Dependencia a su cargo.
-8. Velar porque todos los bienes de las Dependencias a su cargo, estén debidamente registrados como activos del Ministerio, de acuerdo con su identificación y asignación.
-9. Enviar a la Proveeduría Institucional la documentación completa que demuestre el cumplimiento de los requisitos para la baja de bienes, de conformidad con el Reglamento para el Registro y Control de Bienes de la Administración Central.
-10. Coordinar con dependencias externas u otros Ministerios, para la recepción, asignación y control de bienes donados o trasladados por esas entidades al Ministerio.
-11. Informar sobre la existencia de bienes y suministros para ser utilizados, trasladados o donados a otras Dependencias del Ministerio.
-12. Cualquier otra función que determine la Proveeduría Institucional.
+32. Trámite y aprobación de requisiciones mediante el sistema de información correspondiente que solicitan las diferentes Dependencias del Ministerio, a fin de entregarles los suministros y bienes que se encuentren almacenados de acuerdo a sus necesidades.
+33. Realizar y actualizar anualmente el inventario físico de los bienes asignados a las Dependencias a cargo de la Gestoría:
+34. Participar, junto con el personal de la Proveeduría Institucional, en las destrucciones de suministros que han expirado su vida útil cuando se les solicite.
+35. Registrar en el sistema de información correspondiente todos los movimientos de bienes generados por traslado, préstamo, asignación, devolución o reasignación en las Dependencias a cargo.
+36. Reportar a la Proveeduría Institucional, de conformidad con los lineamientos emitidos por ésta, con la firma del Director de Dependencia, el listado de bienes en desuso solicitando la baja de los mismos.
+3 7. Coordinar la logística para traslados, custodia, clasificación, avalúas, de bienes en desuso y participar en la destrucción de bienes y donaciones de la Dependencia a su cargo.
+38. Llevar el control y seguimiento actualizado, a través de un inventario permanente, de todos los bienes de la Dependencia a su cargo.
+39. Velar porque todos los bienes de las Dependencias a su cargo, estén debidamente registrados como activos del Ministerio, de acuerdo con su identificación y asignación.
+40. Enviar a la Proveeduría Institucional la documentación completa que demuestre el cumplimiento de los requisitos para la baja de bienes, de conformidad con el Reglamento para el Registro y Control de Bienes de la Administración Central.
+41. Coordinar con dependencias externas u otros Ministerios, para la recepción, asignación y control de bienes donados o trasladados por esas entidades al Ministerio.
+42. Informar sobre la existencia de bienes y suministros para ser utilizados, trasladados o donados a otras Dependencias del Ministerio.
+43. Cualquier otra función que determine el Departamento de Servicios Generales y la Proveeduría Institucional.
+(Así reformado por el artículo 4° del decreto ejecutivo N° 44029 del 20 de abril de 2023)

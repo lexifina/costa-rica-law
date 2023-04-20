@@ -8,7 +8,7 @@ La Unidad de Seguimiento y Control tiene las siguientes funciones:
 3. Realizar las acciones necesarias para que los Directores de Dependencia tomen en cuenta en los anteproyectos de presupuesto las obras a ejecutar durante el período presupuestario, generando el plan de necesidades.
 4. Realizar informes de control de los materiales utilizados, facturas tramitadas y tiempos de ejecución presupuestaria de cada proyecto.
 5. Elaborar y recopilar la documentación requerida por las Oficinas de Cooperación Internacional para la obtención de cooperación en proyectos de infraestructura.
-6. Participar en la elaboración del plan de compras de la Dirección y dar seguimiento en la Proveeduría Institucional.
+6. (Eliminada por el artículo 3° del decreto ejecutivo N° 44029 del 20 de abril de 2023).
 7. Diseñar las estrategias para reconocer, disminuir o eliminar los riesgos de los proyectos que se atienden, en todas sus etapas.
 8. Coordinar los proyectos conjuntos con Municipalidades y otras organizaciones que justifican la construcción de las edificaciones del Ministerio e informar de los resultados de las gestiones a los Directores de Dependencia respectivos.
 9. Realizar estudios de mercado y costos de proyectos de infraestructura.
