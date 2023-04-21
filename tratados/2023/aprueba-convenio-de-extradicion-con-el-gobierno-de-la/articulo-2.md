@@ -1,0 +1,1 @@
+ARTÍCULO 2- Cláusula interpretativa. La República de Costa Rica interpreta que en lo dispuesto en los incisos 1 y 2 del artículo 9 "Detención Provisional" del presente Convenio, se entenderá que "la orden de captura o detención provisional" deberá ser dictada previamente por la autoridad jurisdiccional correspondiente a la parte que la solicita.
