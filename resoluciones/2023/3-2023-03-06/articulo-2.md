@@ -1,0 +1,1 @@
+Artículo 2º-Efecto legal. En todo lo demás se mantiene incólume la resolución DGT-R-65-2018, denominada: "Determinación de Residencia Fiscal y Certificados de Residencia Fiscal", para todo efecto legal.

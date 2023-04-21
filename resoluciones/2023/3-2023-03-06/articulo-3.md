@@ -1,0 +1,3 @@
+Artículo 3º-Vigencia. Rige a partir de su publicación en el Diario Oficial La Gaceta.
+[imagen]
+[imagen]
