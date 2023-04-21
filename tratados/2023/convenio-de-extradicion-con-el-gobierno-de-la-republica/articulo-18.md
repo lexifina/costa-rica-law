@@ -1,0 +1,5 @@
+Artículo 18
+Tránsito
+1. El tránsito de una persona extraditada por un tercer Estado hacia una de las Partes a través del territorio de la otra Parte se permitirá, de acuerdo a su legislación interna, previa solicitud escrita presentada por vía diplomática. La solicitud deberá contener los datos de la persona en tránsito, incluyendo su nacionalidad, y un breve relato de los hechos.
+2. Ninguna autorización de tránsito será necesaria cuando se utilice la vía aérea y no ha sido previsto ningún aterrizaje en el territorio de la Parte de tránsito. En caso de aterrizaje fortuito sobre el territorio de esta Parte, esta puede solicitar a la otra Parte presentar la solicitud de tránsito prevista en el párrafo uno del presente Artículo. La Parte de tránsito mantendrá en detención a la persona hasta que se haya cumplido el tránsito, siempre y cuando la solicitud se reciba en las noventa y seis (96) horas siguientes al aterrizaje fortuito.
+3. La custodia de la persona estará a cargo de las autoridades de la Parte de tránsito mientras ésta se encuentre en su territorio.

@@ -1,0 +1,5 @@
+Artículo 2
+Hechos que dan lugar a la extradición
+1. Darán lugar a la extradición los delitos sancionados, conforme a la legislación de ambas Partes, al momento de emitir la solicitud de extradición, con una pena privativa de libertad cuya duración máxima no sea menor de dos (2) años. Independientemente de que las leyes de ambas Partes clasifiquen, o no, al delito en la misma categoría o usen la misma o distinta terminología para designarlo en sus respectivas legislaciones .
+2. Cuando la solicitud de extradición se realice para el cumplimiento de una sentencia dictada por la autoridad judicial competente de la Parte requirente, el período de tiempo de la pena privativa de libertad que falte por cumplir, deberá ser por lo menos de seis (6) meses.
+3. Si la solicitud de extradición se refiere a varios delitos sancionados por la legislación de ambas Partes con penas privativas de libertad, pero uno o varios de los cuales no cumplen con los requisitos previstos en los incisos anteriores, la Parte requerida podrá conceder también la extradición para éstos últimos, si al menos uno de los delitos cumple la condición relativa al límite de la pena.

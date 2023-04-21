@@ -1,0 +1,5 @@
+Artículo 17
+Entrega de objetos
+1. En la medida en que lo permita la legislación de la Parte requerida, y sin perjuicio de los derechos de terceros, que serán debidamente respetados, todos los objetos que hayan sido encontrados en el territorio de la Parte requerida y que hayan sido adquiridos como resultado del delito o que pudieran ser requeridos como prueba, podrán si la Parte requirente así lo solicita, ser entregados, si la extradición es concedida.
+2. De conformidad con el párrafo 1 de este Artículo, los objetos mencionados anteriormente podrán, si la Parte requirente así lo solicita, ser entregados a la Parte requirente, incluso si la extradición no pudiera ser llevada a cabo, por motivos de muerte, desaparición o fuga de la persona solicitada.
+3. La Parte requerida podrá posponer, temporalmente, la entrega de los objetos mencionados en el párrafo 1 de este Artículo, si así se requiere por la existencia de procesos por otros delitos en la Parte requerida, hasta que esos procesos concluyan.

@@ -1,0 +1,13 @@
+Artículo 3
+Motivos obligatorios para denegar la extradición
+La extradición se denegará cuando:
+a) la Parte requerida posea motivos fundados para creer que la solicitud de extradición se ha formulado con el propósito de procesar o sancionar a una persona por razón de su raza, sexo, religión, nacionalidad, origen étnico, pertenencia a un grupo social determinado, ideología, u opiniones políticas, o que la situación de esa persona pueda resultar perjudicada por cualquiera de esas razones;
+b) la solicitud de extradición se refiera a delitos considerados por la Parte requerida como delitos políticos o hechos conexos con delitos de esta naturaleza;
+c) la solicitud de extradición se refiera a delitos militares, que no estén contemplados en la legislación penal de derecho común;
+d) la Parte requerida haya pronunciado una sentencia firme sobre la persona por la comisión del delito por el que se solicita la extradición;
+e) la posibilidad de perseguir penalmente el delito o de sancionarlo haya prescrito, conforme a la legislación de cualquiera de las Partes;
+f) 1. la extradición no se concederá si los hechos que la motivan fueren punibles con la pena de muerte, la cadena perpetua o cualquier pena superior a la pena máxima existente en la legislación de la Parte requerida;
+2. la Parte requerida podrá conceder la extradición si la Parte requirente ofrece garantías suficientes, de reexaminar las condenas a perpetuidad o superiores a la pena máxima existente en la legislación de la Parte requerida, a fin de no aplicarlas o de no ejecutarlas;
+3. a los fines de la aplicación del presente inciso, la expresión "pena máxima existente en la legislación de la parte requerida", designa la duración máxima de la pena de cárcel prevista por el derecho del Estado requerido por los delitos más severamente reprimidos o el límite superior más allá del cual las penas impuestas no se pueden acumular.
+g) la persona requerida vaya a ser juzgada en la Parte requirente por un Tribunal de excepción o cuando la extradición fuera solicitada para la ejecución de una pena impuesta por ese Tribunal.
+(Nota de Sinalevi: Mediante el artículo 2° de la ley N° 10318 del 6 de marzo de 2023, que aprobó el Convenio de extradición con el Gobierno de la República Francesa, N° 10318 del 6 de marzo de 2023, se interpretó este numeral en el sentido de que: “…para el caso de la denegación de la extradición establecida en el inciso f), debe entenderse que Costa Rica concederá la extradición siempre que, previo a la entrega de la persona, se tenga la seguridad jurídica absoluta de que las penas señaladas en dicha norma no serán impuestas o aplicadas.”)
