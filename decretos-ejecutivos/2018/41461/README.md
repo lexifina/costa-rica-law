@@ -14,3 +14,4 @@ Norma nacional de distribución y asignación renal proveniente de donante cadav
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-01-11 | la propia norma |
+| 2 | 2023-04-21 | Decreto Ejecutivo 44032 (2023-04-21) |

@@ -1,0 +1,2 @@
+Artículo 26 bis.- En cada operativo de distribución deben de ser excluídos los receptores potenciales en lista que tengan anticuerpos prohibitivos (anti HLA contra los antígenos HLA del donante). Los anticuerpos prohibitivos clínicamente relevantes serán determinados según la capacidad técnica del laboratorio. Por lo tanto, se requiere disponer del perfil completo HLA del donador y de los receptores, así como los anticuerpos con que cuente el receptor.
+(Así adicionado por el artículo 2° del decreto ejecutivo N° 44032 del 21 de abril de 2023)

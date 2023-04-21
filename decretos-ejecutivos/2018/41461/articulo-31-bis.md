@@ -1,0 +1,8 @@
+Artículo 31bis. - Compatibilidad de antígenos HLA. Los antígenos que se utilizarán para analizar la compatibilidad entre el donante y el receptor serán HLA clase II: DR beta 1 y DQ beta 1.
+El puntaje de acuerdo con la compatibilidad de antígenos HLA con el donador se establecerá de la siguiente forma:
+a) El puntaje se brindará por cada antígeno HLA que el potencial receptor comparta con el donante, se asignarán 2 puntos por cada antígeno HLA DR beta 1 y 1 punto por cada antígeno HLA DQ beta 1 para un máximo posible de 6 puntos.
+b) En caso de que no se haya logrado tipificar ambos Antígenos HLA (DR beta 1 y DQ beta 1) en el donante, se utilizará el que esté disponible, como sustrato para la asignación de puntos a los receptores.
+c)En el caso de no contar con la tipificación del donante se realizará el proceso de distribución sin considerar el criterio de puntaje por compatibilidad HLA.
+d) En el caso de que un paciente no cuente con puntaje por compatibilidad HLA participará igualmente en el proceso de distribución, es decir que no se establece un puntaje mínimo de compatibilidad para participación.
+La asignación de puntos podrá ser modificada a la luz de evidencia técnica y científica a nivel nacional e internacional según la relevancia de todos los antígenos de HLA y otras moléculas, para lo cual se debe modificar el presente Decreto Ejecutivo.
+(Así adicionado por el artículo 2° del decreto ejecutivo N° 44032 del 21 de abril de 2023)

@@ -31,24 +31,28 @@ El resultado del PRA deberá actualizarse de acuerdo al estado inmunológico de 
 b.1 Paciente sensibilizado: A estos pacientes se les efectuará un PRA cada seis meses y se debe actualizar la muestra de sangre de la seroteca cada tres meses. En periodos de tiempo menor, se realizará según criterio médico.
 b.2 Se considera al paciente hipersensibilizado: aquel que tenga un PRA, mayor o igual al 70%, en su histórico.
 b.3 Se considera al paciente moderadamente sensibilizado: aquel que tenga un PRA, de 30 a 69%, en su histórico.
+c)Perfil de Antígeno Leucocitario Humano (HLA) del receptor.
+(Así adicionado el inciso anterior por el artículo 3° del decreto ejecutivo N° 44032 del 21 de abril de 2023)
+d) Listado de anticuerpos anti HLA del receptor, el cual debe de ser actualizado con cada actualización del PRA.
+(Así adicionado el inciso anterior por el artículo 3° del decreto ejecutivo N° 44032 del 21 de abril de 2023)
 - A estos pacientes o a los pacientes sensibilizados se les debe realizar un PRA en un período no menor a dos semanas ni mayor a cuatro semanas, luego de producido un evento con riesgo de sensibilización ( embarazos, transfusiones, trasplantes).
 3. Estudios gabinete: se realizarán según las siguientes condiciones clínicas:
 a. Riesgo Cardiovascular.
 Los datos obligatorios son:
 Obligatorios: Deberán efectuarse de manera mandataria los siguientes exámenes:
-• Radiografía de Tórax.
-• Ecocardiograma.
-• Electrocardiograma.
+. Radiografía de Tórax.
+. Ecocardiograma.
+. Electrocardiograma.
 Los estudios de riesgo cardiovascular deberán actualizarse según criterio del médico tratante. Los anteriores estudios no son obligatorios para pacientes pediátricos.
 b. Riesgo Oncológico:
 Obligatorios: Deberán efectuarse de manera obligatorios según las normas nacionales, los siguientes exámenes complementarios:
-• Antígeno prostático específico (Ag. PSA).
-• Gastroscopia.
-• Papanicolaou.
-• Mamografia.
-• Ultrasonido de Mama.
+. Antígeno prostático específico (Ag. PSA).
+. Gastroscopia.
+. Papanicolaou.
+. Mamografia.
+. Ultrasonido de Mama.
 Los estudios de riesgo oncológico deberán actualizarse según al criterio del médico tratante.
 c. Los estudios de gabinetes según criterio médico serán:
-• Cistografía
-• Ultrasonido de abdomen
-• Estudios de vasos iliacos
+. Cistografía
+. Ultrasonido de abdomen
+. Estudios de vasos iliacos
