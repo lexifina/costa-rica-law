@@ -1,0 +1,1 @@
+Transitorio I. Para efectos de garantizar el debido trámite de las denuncias, la Alcaldía capacitará a la persona encargada de la Unidad de Recursos Humanos sobre la Ley N° 10235 y este reglamento de manera prioritaria, en un plazo no mayor a tres meses contados a partir de la entrada en vigencia de este reglamento.
