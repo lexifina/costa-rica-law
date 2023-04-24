@@ -13,3 +13,4 @@ Entrega de clave a los usuarios para consulta de gestión en línea
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-09-27 | la propia norma |
+| 2 | 2023-04-24 | Circular 90 (2023-04-24) |
