@@ -1,0 +1,1 @@
+Artículo 5°-Procedimiento para la atención de denuncias. La Auditoría Interna de la Municipalidad de Santo Domingo para analizar presuntos hechos irregulares lo hará de conformidad con este Reglamento y el ROF.

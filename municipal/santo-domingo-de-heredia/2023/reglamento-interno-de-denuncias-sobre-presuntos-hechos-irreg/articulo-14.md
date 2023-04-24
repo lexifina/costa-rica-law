@@ -1,0 +1,1 @@
+Artículo 14.-Fundamentación del acto. En caso de la desestimación de los asuntos denunciados, la situación deberá quedar debidamente acreditada en los papeles de trabajo del Estudio Especial y se deberá elaborar la Resolución Administrativa.

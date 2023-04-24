@@ -1,0 +1,1 @@
+Artículo 2°-Objetivo. El presente Reglamento Interno tiene como fin informar los requisitos que deben cumplir las denuncias sobre presuntos hechos irregulares presentadas ante la Auditoría Interna de la Municipalidad de Santo Domingo, así como el procedimiento que en términos generales se seguirá para valorar las mismas.

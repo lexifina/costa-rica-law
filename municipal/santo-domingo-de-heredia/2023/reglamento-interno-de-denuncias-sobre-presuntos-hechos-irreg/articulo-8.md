@@ -1,0 +1,1 @@
+Artículo 8°-Expediente de la investigación. Para efectos de una investigación la Auditoría Interna debe elaborar el expediente respectivo, debidamente foliado, ordenado y organizado, conforme el procedimiento y elaborar el informe respectivo.
