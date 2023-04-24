@@ -1,3 +1,0 @@
-Artículo 16.—Obligaciones de las unidades con vehículos asignados.
-Es obligación de las unidades con vehículos asignados, investigar los accidentes de tránsito en que participe un vehículo a su cargo y preparar un informe para la autoridad superior de la respectiva unidad, con copia a la Dirección Regional y Asesoría de Transportes.
-En caso que el criterio de la jefatura de la unidad a que pertenece el vehículo no sea compartido por el chofer, éste puede apelar ante el Director Regional, quien someterá el caso a conocimiento de la comisión institucional de accidentes de tránsito establecida en el instructivo de transportes.

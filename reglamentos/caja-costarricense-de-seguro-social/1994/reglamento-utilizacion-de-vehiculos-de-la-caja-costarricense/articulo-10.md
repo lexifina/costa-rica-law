@@ -1,1 +1,0 @@
-Artículo 10.—Para la autorización y utilización de los vehículos deberá formularse la solicitud con anticipación, a la oficina de transportes respectiva, en la estructura desconcentrada. En la solicitud deberá incluirse el nombre del funcionario, horario de utilización y lugares por visitar.

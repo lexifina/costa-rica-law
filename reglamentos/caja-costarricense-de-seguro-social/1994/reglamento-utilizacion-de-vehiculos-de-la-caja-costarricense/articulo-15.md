@@ -1,2 +1,0 @@
-Artículo 15.—Responsabilidades por condenatoria.
-El conductor que fuese declarado responsable por los Tribunales de Justicia, con motivo de un accidente en que hubiese participado con vehículo oficial de la Caja , deberá pagar el monto correspondiente al deducible que eventualmente tendría que girarse al Instituto Nacional de Seguros o las indemnizaciones que deban hacerse a terceros afectados, cuando el costo del daño sea inferior al monto del deducible.

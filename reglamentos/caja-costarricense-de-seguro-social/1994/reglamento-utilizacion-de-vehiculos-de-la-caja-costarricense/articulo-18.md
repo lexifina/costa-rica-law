@@ -1,3 +1,0 @@
-Artículo 18.—El conductor o funcionario que incumpla las anteriores disposiciones en el uso de los vehículos regulados por este reglamento, se hará acreedor a las sanciones establecidas por la Ley de Administración Pública, Código de Trabajo y las normas laborales vigentes en la Institución.
-Este reglamento fue aprobado por la Junta Directiva de la Caja Costarricense de Seguro Social, en el artículo 28, sesión número 6847, de fecha 28 de julio de 1994.
-De acuerdo con lo dispuesto por la Junta Directiva en el artículo 33 de la sesión número 6889, celebrada el 16 de diciembre de 1994, este Reglamento rige a partir del 1° de enero de 1995.
