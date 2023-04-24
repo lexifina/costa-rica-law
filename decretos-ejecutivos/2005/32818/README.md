@@ -14,3 +14,4 @@ Declara Refugio Vida Silvestre Privado Nogal
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-01-16 | la propia norma |
+| 2 | 2023-04-24 | Decreto Ejecutivo 44023 (2023-04-24) |
