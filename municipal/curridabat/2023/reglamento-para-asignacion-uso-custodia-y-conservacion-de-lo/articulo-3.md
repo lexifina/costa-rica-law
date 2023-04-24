@@ -1,0 +1,1 @@
+Artículo 3º-El presente Reglamento se aplicará a todo el personal administrativo y Junta Directiva del Comité Cantonal de Deportes y Recreación de Curridabat, que se les asigne un teléfono celular o un dispositivo para comunicación propiedad del Comité Cantonal de Deportes y Recreación de Curridabat con su respectiva línea y acceso a internet.
