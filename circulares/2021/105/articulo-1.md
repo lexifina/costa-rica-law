@@ -1,4 +1,6 @@
+(Derogado)
 CIRCULAR Nº 105-2021
+(La presente circular fue derogada mediante sesión N° 20-2023 del 14 de marzo de 2023, publicada en el Boletín Judicial N° 84 del 15 de mayo del 2023 mediante circular N° 88-2023 del 24 de abril del 2023)
 ASUNTO: Modificación de las circulares 127-2019 y 67-2021, sobre "Información contenida en los dictámenes periciales
 A TODAS LAS AUTORIDADES JUDICIALES Y PERITOS DEL PAÍS
 SE LES HACE SABER QUE:
