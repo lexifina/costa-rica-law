@@ -13,3 +13,4 @@ Comunicación al Departamento disciplinario del Ministerio de Seguridad Pública
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-02-02 | la propia norma |
+| 2 | 2023-04-24 | Circular 89 (2023-04-24) |
