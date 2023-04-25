@@ -1,0 +1,3 @@
+Artículo 25. Prórroga del curso de Práctica Profesional. En aquellos casos en que, por motivos de fuerza mayor, la persona estudiante no pueda cumplir su proceso de Práctica Profesional en el periodo establecido, este puede solicitar ante la Dirección de Carrera la prórroga de hasta por dos cuatrimestres consecutivos.
+En estos casos, el curso se debe consignar a nivel del sistema en condición de pendiente en el cuatrimestre matriculado originalmente, de conformidad con el Reglamento de Evaluación de los Aprendizajes de la Universidad Técnica Nacional.
+Mientras el curso se encuentre en condición de pendiente, la persona estudiante debe cancelar los costos fijos de matrícula durante los cuatrimestres de prórroga, siguiendo el procedimiento establecido para dicho fin.

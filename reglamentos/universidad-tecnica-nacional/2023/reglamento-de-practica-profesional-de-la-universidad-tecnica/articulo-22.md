@@ -1,0 +1,1 @@
+Artículo 22. Sistema de Intermediación de Empleo. Las organizaciones vinculadas con la Universidad, también tienen la posibilidad de formar parte del Sistema de Intermediación de Empleo (SIE) a cargo de la Vicerrectoría de Vida Estudiantil.

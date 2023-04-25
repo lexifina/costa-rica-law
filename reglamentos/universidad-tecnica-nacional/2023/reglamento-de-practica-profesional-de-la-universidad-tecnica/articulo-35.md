@@ -1,0 +1,1 @@
+Artículo 35. Seguridad en la organización. Previo a la propuesta del instrumento de cooperación, la Coordinación General de Carrera o Consejo Asesor de Carrera según corresponda, debe procurar que la organización con la que desee establecer un convenio se encuentre ubicada en un lugar seguro para las personas estudiantes, dentro de los términos de la racionalidad.

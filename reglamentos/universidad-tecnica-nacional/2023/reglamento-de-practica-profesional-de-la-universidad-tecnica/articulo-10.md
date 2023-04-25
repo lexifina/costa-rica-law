@@ -1,0 +1,1 @@
+Artículo 10. Supervisión. En todos los casos, la Práctica Profesional requiere la supervisión de la persona académica de la UTN que imparte dicho curso, y de una contraparte definida por la organización. En los casos de la persona académica estos tiempos de supervisión estarán regulados en el Plan de Trabajo Académico.

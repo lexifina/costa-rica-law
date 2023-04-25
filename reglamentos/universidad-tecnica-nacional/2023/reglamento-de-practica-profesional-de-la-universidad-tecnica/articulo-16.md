@@ -1,0 +1,4 @@
+Artículo 16. Procesos. El ejercicio de las modalidades de Práctica Profesional está sujeto a los siguientes procesos:
+a) Asignación: Aprobación de la solicitud de organización presentada por la persona estudiante. Coordinado desde la Dirección de Carrera con la organización. La persona estudiante no puede realizar su Práctica Profesional en una organización en la que exista grado de consanguinidad con la persona encargada del proceso en dicha organización.
+b) Supervisión: Actividad permanente de verificación en el cumplimiento de metas y actividades propuestas entre la organización y la Universidad.
+c) Evaluación: Valoración de las competencias desarrolladas por la persona estudiante, de común acuerdo entre la organización y la persona académica de la Universidad, de conformidad con las estrategias de evaluación definidas por la Coordinación General de Carrera (CGC) o Consejo Asesor de Carrera (CAC), según corresponda.

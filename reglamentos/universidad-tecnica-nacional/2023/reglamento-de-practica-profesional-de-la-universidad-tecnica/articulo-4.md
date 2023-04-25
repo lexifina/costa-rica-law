@@ -1,0 +1,1 @@
+Artículo 4. Propósito. El propósito principal de la Práctica Profesional es fortalecer la formación integral inclusiva y accesible de la persona estudiante, mediante la vinculación y la apropiación de nuevos conocimientos, habilidades y actitudes, promoviendo la empleabilidad y la innovación, en un proceso respetuoso de los derechos, la diversidad e identidad de las personas.

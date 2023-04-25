@@ -1,0 +1,1 @@
+Artículo 2. Alcance. El reglamento de Prácticas Profesionales establece los lineamientos generales para la realización de las prácticas profesionales que desarrollen las personas estudiantes en sus distintas modalidades, tanto a nivel nacional como internacional y en concordancia con las políticas institucionales.

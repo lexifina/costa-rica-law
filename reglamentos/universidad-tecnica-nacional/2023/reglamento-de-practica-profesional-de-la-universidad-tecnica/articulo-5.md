@@ -1,0 +1,5 @@
+Artículo 5. Objetivos de la Práctica Profesional. Son objetivos específicos de la Práctica Profesional:
+a) Propiciar acciones y estrategias inclusivas y accesibles en conjunto con organizaciones de índole pública y privada, que permitan el fortalecimiento de los procesos de vinculación entre la academia y el sector productivo.
+b) Fortalecer las destrezas, habilidades transdisciplinares y humanistas de la persona estudiante, mediante las experiencias reales en el mercado laboral, que permitan el desarrollo integral del futuro profesional.
+c) Enriquecer el perfil profesional y ocupacional de los planes y programas de estudio, mediante el análisis de las necesidades detectadas durante el proceso de práctica profesional.
+d) Generar beneficios recíprocos entre la academia y el sector productivo, a través del establecimiento de alianzas estratégicas inclusivas y accesibles que permitan satisfacer las demandas de la sociedad, robustecer los perfiles profesionales de las personas estudiantes de la Universidad y contribuir al desarrollo de los sectores productivos.
