@@ -1,0 +1,1 @@
+Artículo 14.-Únicamente en casos de calificada excepción un vehículo institucional podrá ser guardado en la casa de habitación de personas funcionarias. Estos casos deberán ser comunicados por el encargado de transportes a la jefatura del DGMIS a fin de que esta instancia lo autorice.

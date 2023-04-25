@@ -1,0 +1,1 @@
+Artículo 6°-Toda boleta de servicio deberá ser autorizada por el jefe inmediato de la persona que lo solicite. En el caso de la Dirección de OPES las solicitudes serán autorizadas por la Dirección Administrativa y tendrán prioridad.

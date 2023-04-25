@@ -1,0 +1,1 @@
+Artículo 32.-Los vehículos no deberán dejarse estacionados en lugares donde se ponga en peligro la seguridad de estos, sus accesorios, materiales o equipos que transporte. Tampoco en lugares que comprometan la imagen de la institución.

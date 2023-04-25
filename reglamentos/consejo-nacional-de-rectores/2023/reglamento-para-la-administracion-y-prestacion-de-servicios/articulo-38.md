@@ -1,0 +1,1 @@
+Artículo 38.-Corresponderá a la Dirección Administrativa la imposición de las sanciones que correspondan con motivo de las responsabilidades demostradas según los artículos precedentes. La sanción impuesta será apelable ante la Dirección de OPES dentro de los diez días siguientes a su notificación.

@@ -1,0 +1,1 @@
+Artículo 44.-El encargado de transporte deberá analizar todo accidente de tránsito o multa impuesta a los choferes a fin de rendir informe y recomendaciones a la jefatura del DGMIS, que será responsable de emitir las instrucciones y directrices que considere necesarias para la disminución de cualquier riesgo que sea detectado.

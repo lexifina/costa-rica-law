@@ -1,0 +1,1 @@
+Artículo 27.-A solicitud del DGMIS la Dirección Administrativa podrá suspender temporal o permanentemente la autorización a una persona funcionaria para conducir vehículos institucionales, basado en razones legítimas previo debido proceso.

@@ -1,0 +1,1 @@
+Artículo 42.-Todo chofer deberá conducirse de manera respetuosa ante las autoridades de tránsito, debiendo únicamente informar sobre los pormenores del accidente. Cualquier disconformidad deberá ser expuesta por medio de los medios de impugnación ordinarios contra los partes de tránsito o las boletas de citación.

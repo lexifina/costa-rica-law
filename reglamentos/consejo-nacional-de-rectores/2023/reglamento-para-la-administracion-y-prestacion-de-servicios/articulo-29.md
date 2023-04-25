@@ -1,0 +1,1 @@
+Artículo 29.-Bajo condiciones difíciles de conducción por motivo de lluvia, neblina, derrumbes y otras condiciones que dificulten el manejo, todo conductor deberá actuar con la prudencia debida y de manera diligente. Deberá siempre evitarse la temeridad y la exposición a riesgos de pérdidas humanas o materiales.

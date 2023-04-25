@@ -1,0 +1,1 @@
+Artículo 41.-Ningún chofer está autorizado a efectuar arreglos extrajudiciales en caso de accidentes con los vehículos institucionales. Todo arreglo extrajudicial deberá ser autorizado por la Dirección Administrativa previo dictamen favorable de la Asesoría Legal.

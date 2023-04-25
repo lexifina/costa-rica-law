@@ -1,0 +1,1 @@
+Artículo 26.-DGMIS no tramitará la autorización para conducir los vehículos institucionales que no presenten justificación, no describan la necesidad real por atender o cuando tenga evidencia de que la persona funcionaria propuesta para conducir no cumpla con los requisitos definidos en el presente reglamento.

@@ -1,0 +1,1 @@
+Artículo 31.-Los choferes no podrán permitir que personas no autorizadas en el formulario de transporte viajen en los vehículos institucionales, salvo casos de emergencia comprobada o situaciones especiales, comunicadas por la Dirección Administrativa. En tales casos el chofer deberá anotar en el formulario a los usuarios adicionados e informarlo a su jefatura.

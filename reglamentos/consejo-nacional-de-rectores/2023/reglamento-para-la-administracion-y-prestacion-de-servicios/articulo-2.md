@@ -1,0 +1,1 @@
+Artículo 2°-La aplicación de este reglamento cubrirá a todos los funcionarios del CONARE y otras personas que sean autorizadas para utilizar los vehículos institucionales por la instancia competente. Todo vehículo institucional estará sometido a las normas del presente Reglamento.

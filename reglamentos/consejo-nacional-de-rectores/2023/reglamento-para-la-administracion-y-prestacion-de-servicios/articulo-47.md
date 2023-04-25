@@ -1,0 +1,1 @@
+Artículo 47.-Los vehículos institucionales deben permanecer en la zona de parqueo institucional durante las horas y días en que no estén en servicio. La asignación, el orden y control de esta zona será responsabilidad del encargado de transportes. No se permitirá el estacionamiento ni la permanencia de vehículos no institucionales en estas áreas.

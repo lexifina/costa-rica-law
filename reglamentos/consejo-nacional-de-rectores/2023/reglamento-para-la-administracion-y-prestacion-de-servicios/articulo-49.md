@@ -1,0 +1,1 @@
+Artículo 49.-Al iniciar una gira el chofer deberá solicitar el adelanto de combustible que corresponda. El tope máximo de adelanto de combustible lo definirá el Departamento de Gestión Financiera. El chofer tendrá siete días hábiles para liquidar las facturas respectivas, contados a partir del día siguiente al de finalización de la gira.

@@ -1,0 +1,1 @@
+Artículo 9°-Toda prestación de servicio de transporte deberá estar respaldada por una boleta de solicitud autorizada por la instancia competente, por el encargado de transportes y un formulario del estado del vehículo levantado de previo a su salida de las instalaciones institucionales.

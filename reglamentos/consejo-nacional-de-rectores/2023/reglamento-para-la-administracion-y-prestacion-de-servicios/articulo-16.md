@@ -1,0 +1,1 @@
+Artículo 16.-Ningún vehículo institucional podrá salir sin autorización de las instalaciones del CONARE y deberá ser revisado por el encargado de transportes o por el personal designado por la empresa de seguridad contratada. En ambos casos, se procederá a llenar el formulario del estado del vehículo.

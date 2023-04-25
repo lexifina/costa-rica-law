@@ -1,0 +1,1 @@
+Artículo 10.-La boleta "solicitud de vehículo institucional" deberá ser completada de acuerdo a lo establecido en el instructivo OPES.I.76 Solicitud de transporte y mensajería V01 que se encuentra en intranet en la sección de Manuales de procedimientos.

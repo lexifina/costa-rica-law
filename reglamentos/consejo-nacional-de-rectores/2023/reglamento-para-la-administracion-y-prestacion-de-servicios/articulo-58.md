@@ -1,0 +1,2 @@
+Artículo 58.-En caso de que por reorganización administrativa llegara a cambiar el nombre del DGMIS, las funciones, organización y competencias aquí estipuladas para dicho Departamento se mantendrán inalterables debiendo entenderse que las conservará el departamento institucional que asuma sus competencias, independientemente de su denominación o nomenclatura estructural.
+Pavas, 03 de mayo de 2023.

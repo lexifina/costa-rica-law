@@ -1,0 +1,1 @@
+Artículo 23.-Todo vehículo deberá ser utilizado en días y horas hábiles. El uso fuera de este rango deberá de ser autorizado en forma expresa y por escrito por la Dirección Administrativa o por la instancia que esta designe al efecto.

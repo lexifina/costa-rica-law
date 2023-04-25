@@ -1,0 +1,1 @@
+Artículo 51.-Al regreso de cada gira el chofer deberá levantar inventario de accesorios del vehículo en el formulario o por los medios que el DGMIS determine al efecto y reportar cualquier diferencia al encargado de transporte.

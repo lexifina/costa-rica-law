@@ -1,0 +1,1 @@
+Artículo 52.-En el caso de sustracciones o pérdida de objetos de valor, le corresponde al chofer realizar un informe a la jefatura del DGMIS, con copia al encargado de transportes, indicando lo acontecido para lo que corresponda de acuerdo con la normativa institucional.

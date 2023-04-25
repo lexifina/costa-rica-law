@@ -1,0 +1,3 @@
+CAPÍTULO XVI
+Del uso y control del combustible
+Artículo 48.-El DGMIS será la unidad encargada de controlar el gasto de combustible de cada uno de los vehículos institucionales. Para lo anterior podrá adoptar el uso de formularios, registros, bitácoras y cualquier otro medio físico o digital que resulte apropiado para dicho fin. Los choferes estarán en la obligación de completarlos y seguir los lineamientos que el DGMIS adopte sobre este tema. Las falsedades cometidas en el uso de los instrumentos de control de gasto de combustible se considerarán falta grave a las obligaciones del trabajo para efectos disciplinarios.

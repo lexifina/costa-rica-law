@@ -1,0 +1,1 @@
+Artículo 56.-El transporte de funcionarios desde o hacia centros de teletrabajo podrá darse por razones justificadas y de interés institucional a criterio exclusivo del CONARE o de la Dirección de OPES, únicas instancias autorizadas para aprobar dicha modalidad de servicios.

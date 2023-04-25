@@ -1,0 +1,1 @@
+Artículo 20.-El Encargado de transportes será el responsable de ejecutar el cronograma de trabajos de mantenimiento preventivo y correctivo requeridos de tal forma que cada vehículo se mantenga en óptimo estado mecánico y cumpla con todos los requisitos de circulación y apruebe la revisión técnica vehicular en su oportunidad.

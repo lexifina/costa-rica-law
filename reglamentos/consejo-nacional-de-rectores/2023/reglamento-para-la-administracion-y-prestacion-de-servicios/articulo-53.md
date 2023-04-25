@@ -1,0 +1,1 @@
+Artículo 53.-La jefatura del DGMIS deberá valorar lo acontecido a fin de determinar la procedencia de una denuncia ante las autoridades judiciales o la apertura de un proceso de investigación interna, para determinar la causa de la sustracción y adoptar las medidas correctivas que considere pertinentes.
