@@ -1,0 +1,4 @@
+ARTÍCULO 4- Se deroga el artículo 2 de la Ley 10259, Modificación del Artículo 3 de la Ley N° 9988, "Aprobación de los Contratos de Préstamo Suscritos entre la República de Costa Rica y el Banco Internacional de Reconstrucción y Fomento y el Banco Centroamericano de Integración Económica, para Financiar el Programa de Gestión Fiscal y Descarbonización" y Modificación del Artículo 2 de la Ley Nº 10105 "Aprobación del Contrato de Préstamos N.º 5263/OC-CR y N.º 5264/OC-CR para Financiar el Programa de Apoyo a la Sostenibilidad Fiscal 11 y el Programa de Emergencia para el Fortalecimiento Fiscal y Restaurar el Crecimiento, entre la República de Costa Rica y el Banco Interamericano de Desarrollo (BID)", de 6 de mayo de 2022.
+Rige a partir de su publicación.
+Dado en la Presidencia de la República, San José, a los 03 días del mes de marzo del año dos mil veintitrés.
+EJECÚTESE Y PUBLÍQUESE .
