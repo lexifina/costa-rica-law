@@ -1,6 +1,6 @@
 (Derogado)
 INSTITUTO COSTARRICENSE DE PESCA Y ACUICULTURA
-(Esta norma se dejó sin efecto por acuerdo N° AJDIP/071-2022 del 23 de marzo de 2022, "Aprueba veda de pesca que va desde el 01 de mayo hasta el 31 de julio del 2022")
+(Esta norma se dejó sin efecto por acuerdo N° AJDIP/071-2022 del 23 de marzo de 2022, "Aprueba veda de pesca que va desde el 01 de mayo hasta el 31 de julio del 2022". Posteriormente por el inciso 10) del acuerdo N° AJDIP/086-2023 del 25 de abril de 2023, "Establece veda total para la pesca deportiva y pesca comercial en pequeña escala, excepto para la pesca turística comercial de pequeña escala, en el periodo que va desde el 01 de mayo hasta el 31 de julio del 2023, ambas fechas incluidas", se acordó dejar sin efecto el presente acuerdo)
 (Nota de Sinalevi: Mediante acuerdo N° AJDIP/100-2020 del 22 de mayo del 2020, se indica bajo el lema, "Cuidándome, te cuido" se aprueba como único trabajo comunal realizable y autorizado para esta veda 2020, la aplicación y cumplimiento del protocolo que desarrollará el INCOPESCA ajustado a la implementación de Directrices y Lineamientos Sanitarios para COVID-19. Asimismo en el numeral 4 de la norma antes mencionado, se indica dejar sin efecto durante este año 2020 lo establecido en el presente acuerdo en lo que expresamente se oponga o resulte incompatible con el contenido del presente acuerdo)
 AJDIP/166-2017.-Puntarenas, a los veintiún días del mes de abril de dos mil diecisiete.
 Considerando:

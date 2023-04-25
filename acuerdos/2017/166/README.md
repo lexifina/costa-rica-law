@@ -16,3 +16,4 @@ Regulación para el cumplimiento del servicio de trabajo comunal por parte del p
 | 1 | 2017-05-09 | la propia norma |
 | 2 | 2020-05-22 | Acuerdo 100 (2020-05-22) |
 | 3 | 2022-03-23 | Acuerdo 71 (2022-03-23) |
+| 4 | 2023-04-25 | Acuerdo 86 (2023-04-25) |
