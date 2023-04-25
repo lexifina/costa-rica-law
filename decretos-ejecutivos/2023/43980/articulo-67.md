@@ -1,0 +1,2 @@
+Artículo 67.-De la asignación de recursos. Los recursos del FONADE se asignarán entre los Operadores Financieros, según las disposiciones que el Consejo Rector defina para estos propósitos.
+Periódicamente, la Secretaría Técnica del SBD propondrá al Consejo Rector, para su aprobación, la asignación de recursos del fondo, según la demanda de estos, el monto disponible de acuerdo con la distribución establecida por el Consejo Rector y siempre que atienda a un adecuado manejo de riesgos y la observancia de aspectos como la sostenibilidad del FONADE en su conjunto.

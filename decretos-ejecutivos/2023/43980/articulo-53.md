@@ -1,0 +1,1 @@
+Artículo 53.-De la organización. Para la adecuada administración de estos recursos y en procura de lograr eficiencia, eficacia e impacto, el INA establecerá dentro de su estructura organizacional, una unidad especializada en Sistema de Banca para el Desarrollo, de conformidad con el artículo 41 de la Ley N° 8634.

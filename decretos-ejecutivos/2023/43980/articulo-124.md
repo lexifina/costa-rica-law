@@ -1,0 +1,1 @@
+Artículo 124.-Del cobro de multas. Para las multas indicadas en el presente Capítulo, la intimación del pago lo realizará la SUGEF de acuerdo con lo que establece la Ley General de la Administración Pública. El eventual cobro judicial lo realizará el FONADE, a quien se le enviará copia de las intimaciones respectivas y certificación del saldo.

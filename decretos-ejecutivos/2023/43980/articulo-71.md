@@ -1,0 +1,2 @@
+Artículo 71.-Del acceso de las personas beneficiarias al fondo de avales y garantías. Los avales serán otorgados dentro de un programa aprobado por el Consejo Rector. El operador financiero solicitará al FONADE la aprobación de la garantía o aval, para lo cual deberá presentar toda la información que para tal fin sea requerida. Una vez completa la información, se contará con un plazo máximo de diez días hábiles para resolver la solicitud.
+Para la tramitación de las solicitudes se podrán establecer mecanismos electrónicos, y podrán emitirse digitalmente.

@@ -1,0 +1,3 @@
+Artículo 84.-De los servicios de desarrollo empresarial contratados por el FONADE. Corresponde al FONADE contratar los bienes y los servicios que se requieran e indicados en el artículo anterior, de acuerdo con la estrategia de uso definida por el Consejo Rector.
+La Secretaría Técnica debe velar porque los programas garanticen una tendencia positiva en materia de inclusión económica o de apoyo a la innovación y emprendimiento y su costo sea razonable en función del beneficio perseguido.
+El límite de recursos por año, destinados a una sola empresa, ente no público u otro, que brinde servicios de desarrollo empresarial será definido mediante resolución por el Consejo Rector.

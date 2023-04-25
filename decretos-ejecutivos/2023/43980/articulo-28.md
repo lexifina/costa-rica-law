@@ -1,0 +1,3 @@
+CAPÍTULO II
+Secretaría Técnica del Consejo Rector
+Artículo 28.-De la creación de la Secretaría Técnica del Consejo Rector. La Secretaría Técnica del Consejo Rector, es un órgano público con personalidad jurídica instrumental y patrimonio propio, el cual funciona bajo la dirección del Consejo Rector, en su condición de máximo jerarca. Está a cargo de un director ejecutivo, quien será el responsable ante el Consejo Rector del eficiente y correcto funcionamiento administrativo de la Secretaría. Para efectos legales, el director ejecutivo tendrá la representación judicial y extrajudicial de la Secretaría Técnica del SBD, con facultades de apoderado generalísimo, conforme las disposiciones del artículo 1253 del Código Civil.

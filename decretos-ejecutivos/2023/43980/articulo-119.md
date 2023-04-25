@@ -1,0 +1,1 @@
+Artículo 119.- De la Disponibilidad de Información. El Sistema de Banca para el Desarrollo, mediante su Secretaría Técnica, contará con una plataforma tecnológica en la cual pondrá a disposición de todos los interesados la información de las políticas, lineamientos, formularios y otros instrumentos aplicables por los operadores para el correcto funcionamiento del Sistema.

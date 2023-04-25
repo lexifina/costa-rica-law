@@ -1,0 +1,1 @@
+Artículo 27. De los asesores técnicos del Consejo Rector. La Secretaría Técnica, a instancia del Consejo Rector, podrá contratar asesores profesionales para este cuerpo colegiado que apoyen con su criterio técnico el proceso de toma de decisiones de ese órgano decisor.

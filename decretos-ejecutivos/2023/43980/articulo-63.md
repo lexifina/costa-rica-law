@@ -1,0 +1,1 @@
+Artículo 63.-De las líneas de crédito con recursos del FCD al FONADE. Los bancos administradores del FCD facilitarán líneas de crédito al costo al FONADE con recursos del FCD, para que este los canalice bajo condiciones que establezca el Consejo Rector y en los términos señalados en la Ley.

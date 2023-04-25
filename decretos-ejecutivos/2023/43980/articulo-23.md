@@ -1,0 +1,1 @@
+Artículo 23.-De la votación del Consejo Rector. Los acuerdos se adoptarán por mayoría absoluta (la mitad más uno de los presentes), salvo que se requiera una mayoría calificada. Los miembros que voten de forma negativa deberán razonar su voto y hacerlo constar en la propia acta. En caso de empate, el presidente del Consejo Rector tendrá doble voto.

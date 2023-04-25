@@ -1,0 +1,14 @@
+TÍTULO VI CAPÍTULO ÚNICO
+Servicios de Desarrollo Empresarial
+Artículo 59.-De la operatividad de los servicios no financieros. El MEIC, como rector responsable de las políticas dirigidas a las MIPYMES y MAG, como rector responsable de las políticas del sector agropecuario, establecerán mecanismos de acreditación de los oferentes de servicios de desarrollo empresarial, al considerar áreas de desarrollo como las siguientes: comercialización, capacitación, asistencia técnica, asesoría y acompañamiento, financiamiento, información, desarrollo sostenible, encadenamientos productivos, exportación, innovación tecnológica y gestión empresarial.
+El perfil de estos oferentes de servicios deberá tomar en cuenta al menos los siguientes aspectos:
+a) Atestados que certifiquen los trabajos y los resultados logrados en procesos de acompañamiento y fortalecimiento de empresas clasificadas como MIPYMES y Emprendimientos.
+b) El oferente de servicios demostrará que cuenta con el conocimiento técnico o profesional en el campo específico y experiencia en las áreas de apoyo requeridas para el fortalecimiento que demande la MIPYME y los Emprendimientos objetivo.
+c) La modalidad de consultoría deberá ajustarse a las necesidades de las personas beneficiarias y podrá ser presencial, virtual o una combinación de ambas.
+d) Determinación de los indicadores de impacto y resultados esperados; de igual forma, debe ser entregado a satisfacción del beneficiario apoyado.
+e) Debe ser realizada por los técnicos o los profesionales ofertados en la respuesta de los carteles de licitación.
+El mecanismo incluirá un registro único de oferentes. Dicho registro deberá estar disponible en medios electrónicos para consulta tanto de los Emprendimientos, MIPYMES o productores, como de las instituciones públicas o privadas que atienden este sector.
+Para efectos de brindar los servicios de desarrollo empresarial que acompañen a las personas beneficiarias en las diferentes etapas de desarrollo de los proyectos productivos, la Secretaría Técnica del Sistema de Banca para el Desarrollo, hará uso del registro único en sus contrataciones y tomará en consideración las necesidades que el Ministerio rector haya determinado, de acuerdo con el ciclo de desarrollo en donde se encuentre la persona beneficiaria.
+Serán colaboradores de estos servicios las organizaciones que trabajen mediante modelos asociativos empresariales y productivos.
+Los entes públicos deben brindar la mayor colaboración al SBD en materia de servicios de desarrollo empresarial, especialmente en lo que se refiere a microempresas, incluyendo sus etapas previas.
+Mientras no exista registro para los oferentes de servicios de desarrollo empresarial, estos podrán ser contratados según lo determine el Consejo Rector, para lo cual tomará en cuenta otros registros existentes en la Administración Pública.
