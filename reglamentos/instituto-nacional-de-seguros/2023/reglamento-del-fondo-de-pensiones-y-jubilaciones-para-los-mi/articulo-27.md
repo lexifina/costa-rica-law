@@ -1,0 +1,2 @@
+Artículo 27. Exámenes, tratamientos, controles, procesos de rehabilitación y readaptación.
+Todo pensionado por discapacidad, de acuerdo con lo dispuesto en el presente reglamento, (en su condición de afiliado al Fondo o de derechohabiente en caso de muerte del bombero), deberá someterse a los exámenes, tratamientos, controles, procesos de rehabilitación y readaptación que la Gerencia General considere pertinentes.
