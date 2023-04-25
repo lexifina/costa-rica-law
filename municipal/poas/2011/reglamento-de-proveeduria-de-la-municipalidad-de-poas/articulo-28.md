@@ -1,1 +1,0 @@
-Artículo 28.-Orden de compra o Contrato generado en el Sistema Integrado de Compras Públicas. La Proveeduría Institucional emitirá la orden de compra o contrato generado en el Sistema Integrado de Compras Públicas para las firmas respectivas, mediante los cuales se ordena la ejecución de la prestación de bienes y servicios, misma que deberá ser comunicada al adjudicado.

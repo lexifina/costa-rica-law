@@ -1,1 +1,0 @@
-Artículo 19.-Emisión de la Orden de Compra. La Orden de Compra o contrato generado en el Sistema Integrado de Compras Públicas será emitida una vez que se dé la adjudicación definitiva o la firma del contrato de formalización.

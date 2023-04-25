@@ -1,1 +1,0 @@
-Artículo 25.-Notificación de la adjudicación. La Proveeduría Institucional notificará de la adjudicación, por el mismo medio empleado que se cursó la invitación, todo ello de conformidad con las reglas establecidas en el artículo 88 del RLCA.

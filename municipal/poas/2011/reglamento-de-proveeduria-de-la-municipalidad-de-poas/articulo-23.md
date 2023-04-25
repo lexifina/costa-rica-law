@@ -1,1 +1,0 @@
-Artículo 23.-Valoración de las ofertas. Corresponde a la Proveeduría Institucional la responsabilidad final de valorar las ofertas previa revisión y criterio técnico y legal de estas, del área que realizó la solicitud del procedimiento y de la Asesoría Legal según corresponda.
