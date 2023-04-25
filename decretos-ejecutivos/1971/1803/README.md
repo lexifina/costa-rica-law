@@ -15,3 +15,4 @@ Declara el 19 de abril de cada año día de la persona indígena costarricense
 | --- | --- | --- |
 | 1 | 1971-07-02 | la propia norma |
 | 2 | 1973-03-22 | Decreto Ejecutivo 2900 (1973-03-22) |
+| 3 | 2023-04-25 | Decreto Ejecutivo 43991 (2023-04-25) |
