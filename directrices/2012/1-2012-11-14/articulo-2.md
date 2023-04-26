@@ -1,1 +1,0 @@
-Artículo 2: Los instrumentos públicos con pluralidad de actos o contratos, concatenados o no, podrán ser autorizados por el notario institucional únicamente si en la totalidad de ellos es parte la Administración Pública para la cual labora.
