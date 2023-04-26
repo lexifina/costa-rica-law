@@ -1,1 +1,0 @@
-Artículo 14.—Ventas sujetas a condición negativa. Para efectos del inciso g) del artículo 54 de la Ley Nº 8642 se configura esta práctica con la venta, la transacción o el otorgamiento de descuentos o beneficios sujetos a la condición de no usar, adquirir, vender ni proporcionar los bienes o servicios disponibles y normalmente ofrecidos a terceros.

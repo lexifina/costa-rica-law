@@ -1,2 +1,0 @@
-Artículo 2º—Ámbito de aplicación. El Capítulo II del Título III de la Ley Nº 8642 se aplicará a los operadores y proveedores, sean estos personas físicas o jurídicas, públicas o privadas, nacionales o extranjeras, que operen redes o presten servicios de telecomunicaciones que se originen, terminen o transiten por el territorio nacional.
-De conformidad con lo dispuesto en el artículo 29 de la Ley Nº 8642, las redes que sirvan de soporte a los servicios de radiodifusión y televisión, quedan sujetas al régimen sectorial de competencia previsto en este reglamento.

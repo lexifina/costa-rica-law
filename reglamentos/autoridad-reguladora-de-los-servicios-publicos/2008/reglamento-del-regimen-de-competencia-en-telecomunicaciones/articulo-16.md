@@ -1,5 +1,0 @@
-Artículo 16.—Precios o condiciones predatorias. Para efectos del inciso i) del artículo 54 de la Ley Nº 8642, se configura esta práctica con la prestación de servicios a precios o en condiciones predatorias, así como todo acto deliberado que tenga como único fin procurar la salida de operadores o proveedores del mercado, o implique un obstáculo para su entrada.
-La Sutel podrá considerar como indicios de existencia de una práctica predatoria, entre otros, los siguientes:
-a) Si el operador o proveedor vende un servicio de telecomunicaciones a un precio inferior a los Costos Incrementales Promedio de Largo Plazo (CIPLP).
-b) Si la venta del servicio ha provocado o podría provocar la salida del mercado de otros operadores o proveedores o impedir el ingreso al mercado de otros operadores o proveedores.
-c) Si las barreras de entrada son significativas, de manera que el operador o proveedor que incurre en la conducta podría, después de provocar la salida o impedir la entrada de otros al mercado, imponer un aumento en los precios suficiente para recuperar el monto total de la pérdida incurrida durante el periodo de los precios predatorios.

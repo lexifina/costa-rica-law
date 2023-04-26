@@ -1,1 +1,0 @@
-Artículo 12.—Imposición de precio o condiciones. Para efectos del inciso e) del artículo 54 de la Ley Nº 8642, se configura esta práctica con la imposición de precio o las demás condiciones que debe observar un operador o proveedor, al vender, distribuir o prestar servicios, de manera tal que resulte o pueda resultar en una restricción injustificada a la competencia.

@@ -1,9 +1,0 @@
-Artículo 6º—Indicios de las prácticas monopolísticas absolutas. La Sutel podrá considerar como indicios de la existencia de prácticas monopolísticas absolutas, entre otros, los siguientes:
-a) Que los precios de venta de los servicios ofrecidos por dos o más competidores, en el territorio nacional, sean sensiblemente superiores o inferiores a su precio de referencia internacional.
-b) Que dos o más competidores establezcan los mismos precios máximos o mínimos para un servicio, o se adhieran a los precios de venta o compra que emita una asociación o cámara empresarial o cualquier competidor.
-c) Que exista una correlación positiva, importante y continuada en los precios de dos o más competidores, durante un período significativo de tiempo, y que no pueda ser atribuida a variaciones en los precios de los factores de producción.
-d) Que uno o varios operadores o proveedores actúen con negligencia evidente en la presentación de ofertas en licitaciones u otros procedimientos de concurso, presenten ofertas inusualmente similares o sin fundamento económico, o que de las circunstancias del caso se deduzca la existencia de un patrón atípico de precios, de ofertas ganadoras, asignación geográfica o de clientela entre las ofertas presentadas.
-e) La presencia de un solo operador o proveedor en una zona geográfica determinada, sin una justificación razonable.
-f) Las instrucciones o recomendaciones emitidas por cámaras o asociaciones a sus asociados, con el objeto de realizar conductas que podrían considerarse como prácticas monopolísticas absolutas.
-g) Que los operadores o proveedores hayan acordado mecanismos de fiscalización o control de la conducta de otros competidores.
-h) Que los presuntos infractores hayan sostenido reuniones u otras formas de comunicación, con el objeto de realizar conductas que podrían considerarse como prácticas monopolísticas.

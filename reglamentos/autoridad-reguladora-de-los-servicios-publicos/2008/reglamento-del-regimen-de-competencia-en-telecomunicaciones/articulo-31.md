@@ -1,1 +1,0 @@
-Artículo 31.—Medidas cautelares. De conformidad con el artículo 66 de la Ley Nº 8642, durante el procedimiento la Sutel podrá imponer las medidas cautelares necesarias para asegurar el resultado de un procedimiento sancionatorio o evitar que se pueda comprometer la actividad prestada.

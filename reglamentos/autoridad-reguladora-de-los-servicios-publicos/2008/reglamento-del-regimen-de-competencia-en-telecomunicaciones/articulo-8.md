@@ -1,2 +1,0 @@
-Artículo 8º—Precios o condiciones discriminatorios. Para efectos del inciso a) del artículo 54 de la Ley Nº 8642, se configura esta práctica con el establecimiento injustificado de precios o condiciones diferentes a operadores y proveedores situados en condiciones similares.
-Se configura esta práctica cuando un operador o proveedor provee infraestructura, servicios, sistemas o información a una o más empresas de su grupo económico o a sus clientes a precios o en términos y condiciones más favorables que los otorgados a empresas que no pertenecen a su grupo económico.

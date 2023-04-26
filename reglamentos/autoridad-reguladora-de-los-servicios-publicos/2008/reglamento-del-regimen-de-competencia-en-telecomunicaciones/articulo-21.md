@@ -1,2 +1,0 @@
-Artículo 21.—Determinación del poder sustancial. En la investigación de una práctica monopolística relativa, la Sutel determinará si el operador o proveedor investigado tiene poder sustancial en el mercado relevante con base en los criterios que se describen en el artículo 15 de la Ley Nº 7472.
-El operador o proveedor que tenga poder sustancial en el mercado relevante se considerará un Operador o Proveedor Importante para efectos de la Ley Nº 8642.

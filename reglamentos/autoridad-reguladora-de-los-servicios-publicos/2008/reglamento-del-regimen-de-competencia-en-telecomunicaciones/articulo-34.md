@@ -1,1 +1,0 @@
-Artículo 34.—Resolución final. En la resolución final de un procedimiento, la Sutel se pronunciará sobre la existencia o no de las prácticas monopolísticas investigadas y, en su caso, impondrá las medidas correctivas y sanciones que correspondan conforme a los artículos 58, 67, 68 y concordantes de la Ley Nº 8642.
