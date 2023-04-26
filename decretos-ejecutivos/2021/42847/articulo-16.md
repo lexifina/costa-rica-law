@@ -44,7 +44,9 @@ b. Aprobación mínima de 1 año en un programa de estudios posgrado (residencia
 (*)(Así adicionada la subespecialidad anterior mediante sesión ordinaria N° 2021-07-14 del 14 de julio del 2021)
 16.3. Subespecialidades Médicas de Cardiología
 (*)16.3.1. Cardiología Intervencionista y Hemodinamia.
-Se reconoce como sinónimo de esta Subespecialidad, el siguiente término: Hemodinámica y Cardiología Intervencionista.
+(*) Se reconoce como sinónimo de esta Subespecialidad, el siguiente término: Hemodinámica y Cardiología Intervencionista; Cardiología Intervencionista.
+I. 1.
+(*) (Así reformado el párrafo anterior en sesión ordinaria 2023-04-26, celebrada el 26 de abril de 2023)
 Requisitos específicos:
 a. Estar debidamente inscrito como Especialista en Cardiología, en el Colegio de Médicos y Cirujanos.
 b. Aprobación de un programa de estudios de posgrado (residencia médica) de dos (2) años en la Subespecialidad en Cardiología Intervencionista y Hemodinamia, en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad.
