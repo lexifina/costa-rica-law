@@ -16,3 +16,4 @@ Reglamento para el Trámite y Pago de Horas Extras
 | 1 | 2002-07-04 | la propia norma |
 | 2 | 2003-09-29 | Reglamento 3316 (2003-09-29) |
 | 3 | 2015-04-15 | Reglamento 4345 (2015-04-15) |
+| 4 | 2023-04-26 | Reglamento 15 (2023-04-26) |
