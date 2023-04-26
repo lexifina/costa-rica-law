@@ -16,3 +16,4 @@ Normativa para la autorización temporal del ejercicio profesional para médicos
 | 1 | 2020-04-26 | la propia norma |
 | 2 | 2021-04-07 | Reglamento 0 (2021-04-07) |
 | 3 | 2022-07-06 | Reglamento 7 (2022-07-06) |
+| 4 | 2023-04-26 | Reglamento 4 (2023-04-26) |
