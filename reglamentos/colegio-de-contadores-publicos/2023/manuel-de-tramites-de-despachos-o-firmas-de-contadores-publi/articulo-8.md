@@ -1,0 +1,1 @@
+|Apartado 8º—Cambios en la información: Todo cambio a la información presentada deberá ser comunicado de forma inmediata al Colegio, mediante oficio firmado por el representante legal. Queda entendido, que la dirección electrónica aportada será la vía para que el solicitante reciba cualquier comunicación o notificación por parte del Colegio.

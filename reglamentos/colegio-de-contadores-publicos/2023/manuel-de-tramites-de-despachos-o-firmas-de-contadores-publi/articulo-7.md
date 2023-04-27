@@ -1,0 +1,1 @@
+Apartado 7º—Expediente: Toda la documentación presentada de manera presencial debe ser entregada en un expediente según el orden indicado en el Apartado 15 de este Manual, para efectos de la revisión del Departamento de Admisión y la Junta Directiva. La documentación presentada vía virtual será organizada en un expediente por el Departamento de Admisión.

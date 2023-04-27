@@ -1,0 +1,1 @@
+Apartado 18.—Solicitud de Desinscripción: La solicitud se realizará por medio del formulario de solicitud de trámites de Despachos o Firmas de Contadores Públicos disponible en la página web del Colegio (www.ccpa.or.cr), sin alterar su formato.

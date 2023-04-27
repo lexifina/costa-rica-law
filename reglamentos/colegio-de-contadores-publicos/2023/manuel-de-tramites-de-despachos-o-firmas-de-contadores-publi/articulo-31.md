@@ -1,0 +1,1 @@
+Apartado 31.—Atrasos en los pagos: Dependiendo del tipo de pago elegido, al atraso en el pago de la cuota de la licencia le será aplicado lo que señala el artículo 76 del Reglamento a la Ley N° 1038 del Colegio de Contadores Públicos de Costa Rica.

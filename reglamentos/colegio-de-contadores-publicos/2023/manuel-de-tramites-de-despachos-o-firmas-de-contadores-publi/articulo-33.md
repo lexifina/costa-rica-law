@@ -1,0 +1,2 @@
+Apartado 33.—Declaratoria anual de Control de Calidad: Todos los Despachos o Firmas de Contadores Públicos están en la obligación de realizar la Declaratoria anual de Control de Calidad, y al mismo tiempo actualizar los datos mediante el formulario de solicitud de trámites de Despachos o Firmas de Contadores Públicos.
+La no presentación de esta Declaración y de la actualización de datos dará origen a un apercibimiento por parte de la Unidad de Control de Calidad, indicando una próxima visita al Despacho o Firma de Contadores Públicos.

@@ -1,0 +1,9 @@
+Apartado 23.—Documentación por entregar con la solicitud: El representante legal deberá presentar la siguiente documentación:
+Tipo de Documento | Observaciones
+1. Solicitud de Reinscripción | a) Complete cada punto requerido en la solicitud, llenando de manera digital. b) No deje espacios en blanco. En caso necesario complete con No Aplica (N/A). c) Firme la solicitud de la misma manera que en su cédula de identidad vigente o utilice firma digital, teniendo en cuenta lo indicado en los apartados 5 y 6. d) No altere el formato de la solicitud
+2. Declaración Jurada Gestión de Calidad | a) Utilice el formato del Anexo N° 1.
+3. Copia de la Cédula de Identidad vigente del Representante legal y los socios | a) Presentar documento original para confrontación en caso de entrega presencial. b) Entregar fotocopia clara y legible del documento en caso de entrega presencial. c) Firmar digitalmente el archivo de la cédula en caso de envío digital
+4. Certificación literal del Registro Nacional o Certificación notarial de la participación de cuotas o acciones | a) Con la información acerca de los socios, representación legal y su participación en cuotas o acciones. b) La certificación del Registro Nacional no debe tener más de cinco días hábiles de emitido. c) La certificación notarial se debe realizar con vista en el libro de registro de accionistas o cuotistas y no tener más de un mes de expedida.
+5. Representación legal de firmas extranjeras | En el caso de Despachos que representan a firmas nacionales o extranjeras se debe presentar: a) Documentación de respaldo donde se otorgue la representación legal, certificada por notario público
+Tipo de Documento | Observaciones
+6. Comprobante de pago de los derechos de Reinscripción | a) Entregar el recibo de pago en la Caja del Colegio o envío de comprobante del depósito bancario

@@ -1,0 +1,1 @@
+Apartado 15.—Tipo de Persona Jurídica: El Despacho o Firma de Contadores Públicos debe estar amparado por una persona jurídica que puede ser Sociedad Anónima, Sociedad de Responsabilidad Limitada o Sociedad de Actividades Profesionales.

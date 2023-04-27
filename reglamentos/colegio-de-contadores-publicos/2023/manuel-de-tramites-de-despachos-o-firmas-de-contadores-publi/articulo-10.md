@@ -1,0 +1,1 @@
+Apartado 10.—Propiedad de los documentos: Los documentos que entregue el solicitante al Colegio, pasarán a ser propiedad del Colegio, por lo tanto, en caso de que la solicitud fuera denegada, no se harán devoluciones de ningún tipo, salvo que siendo originales puedan sustituirse por una copia certificada en cuyo caso se devolvería el original.

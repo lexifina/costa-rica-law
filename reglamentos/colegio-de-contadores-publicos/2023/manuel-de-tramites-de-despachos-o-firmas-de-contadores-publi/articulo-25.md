@@ -1,0 +1,5 @@
+Apartado 25.—Documentación por entregar con la solicitud:
+Tipo de Documento | Observaciones
+1. Oficio de solicitud de cambio | a) El representante deberá presentar carta membretada del Despacho o Firma de Contadores Públicos, firmada por el representante legal, solicitando el cambio respectivo y explicando los motivos del mismo. b) En caso de firma manual (rúbrica) debe ser entregado en las oficinas del Colegio. c) En caso de firma digital debe ser enviado mediante correo electrónico o plataforma establecida por el Colegio.
+2. Certificación literal del Registro Nacional o Certificación notarial de la participación de cuotas o acciones | a) Con la información acerca de los socios, representación legal y su participación en cuotas o acciones. b) La certificación del Registro Nacional no debe tener más de cinco días hábiles de emitido. c) La certificación notarial se debe realizar con vista en el libro de registro de accionistas o cuotistas y no tener más de un mes de expedida.
+3. Copia de la escritura de constitución de la sociedad | a) Copia certificada por un notario público, en el caso de cambio de persona jurídica

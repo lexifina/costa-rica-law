@@ -1,0 +1,1 @@
+Apartado 36.—Uso de la información: La información contenida en la Declaración Anual y/o en la Actualización de Datos estarán a disposición del Departamento de Fiscalía, Departamento de Admisión y Departamento Financiero Administrativo del Colegio para el desempeño de sus funciones.

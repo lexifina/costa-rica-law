@@ -1,0 +1,10 @@
+Apartado 16.—Documentación por entregar con la solicitud:
+Tipo de Documento | Observaciones
+1. Solicitud de Inscripción | a) Complete cada punto requerido en la solicitud, llenando de manera digital. b) No deje espacios en blanco. En caso necesario complete con No Aplica (N/A). c) Firme la solicitud de la misma manera que en su cédula de identidad vigente o utilice firma digital, teniendo en cuenta lo indicado en los apartados 5 y 6. d) No altere el formato de la solicitud.
+2. Declaración Jurada Gestión de Calidad | a) Utilice el formato del Anexo N° 1.
+3. Copia de la Cédula de Identidad vigente del Representante legal y los socios | a) Presentar documento original para confrontación en caso de entrega presencial. b) Entregar fotocopia clara y legible del documento en caso de entrega presencial. c) Firmar digitalmente el archivo de la cédula en caso de envío digital
+4. Copia de la escritura de constitución de la sociedad | a) Copia certificada por un notario público o por el Registro Nacional
+5. Certificación literal del Registro Nacional o Certificación notarial de la participación de cuotas o acciones | a) Con la información acerca de los socios, representación legal y su participación en cuotas o acciones. b) La certificación del Registro Nacional no debe tener más de cinco días hábiles de emitido. c) La certificación notarial se debe realizar con vista en el libro de registro de accionistas o cuotistas y no tener más de un mes de expedida.
+Tipo de Documento | Observaciones
+6. Representación legal de firmas nacionales o extranjeras | En el caso de Despachos o Firmas de Contadores Públicos que representan a firmas nacionales o extranjeras se debe presentar: a) Copia del contrato en el que se otorgue la representación legal. b) Certificación de la firma representada con no más de un mes de emitida o evidencia de carácter público que lo respalde (como información en internet de la firma representada)
+7. Comprobante de pago de los derechos de Inscripción | a) Envío por correo electrónico de comprobante del depósito bancario o impresión del comprobante

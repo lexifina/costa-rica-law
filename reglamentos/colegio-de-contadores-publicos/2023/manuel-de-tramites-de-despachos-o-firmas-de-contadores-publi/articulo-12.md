@@ -1,0 +1,1 @@
+Apartado 12.—Estado de los Colegiados: Los Colegiados socios del Despacho o Firma de Contadores Públicos deben encontrarse activos y al día con sus obligaciones con el Colegio, incluyendo el pago de su póliza de fidelidad.

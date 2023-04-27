@@ -1,0 +1,1 @@
+Apartado 27.—Desinscripción por Morosidad: La resolución de desinscripción por morosidad será dictada por la Junta Directiva y será comunicada al Despacho o Firma de Contadores Públicos, quienes tendrán 5 días hábiles para arreglar su situación de morosidad, pasado este lapso de tiempo, se procederá con la desinscripción definitiva.

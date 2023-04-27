@@ -1,0 +1,2 @@
+Apartado 30.—Pago fraccionado: El Despacho o Firma de Contadores Públicos podrá optar por pagar la cuota de la licencia de forma mensual al inicio de cada mes, con opciones de pago en 4 meses, 6 meses o 12 meses, con un recargo del 1% sobre el monto a pagar. El plazo de pago escogido no podrá en ningún caso sobrepasar el año calendario.
+La solicitud debe hacerse por escrito ante del Departamento Financiero Administrativo del Colegio y será aprobado con el visto bueno de la Dirección Ejecutiva.

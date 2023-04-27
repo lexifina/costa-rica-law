@@ -1,0 +1,1 @@
+Apartado 38.—Socios Firmantes: En el caso que un Despacho o Firma cuente con el apoyo de Contadores Públicos Autorizados que no son socios de capital o de representación legal del Despacho, pero que sean parte del Despacho, deben incluirlos en la sección correspondiente del formulario de solicitud de trámites de Despachos o Firmas de Contadores Públicos.

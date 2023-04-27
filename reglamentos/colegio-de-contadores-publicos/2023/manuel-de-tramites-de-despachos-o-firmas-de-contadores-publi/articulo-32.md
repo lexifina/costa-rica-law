@@ -1,0 +1,3 @@
+SECCIÓN IX
+Disposiciones Finales
+Apartado 32.—Fiscalización: Los Despachos o Firmas de Contadores Públicos estarán sujetos a la fiscalización de la Unidad de Control de Calidad del Colegio, área que tendrá la potestad de solicitar la información que se considere necesaria para verificar el buen cumplimiento del sistema de Gestión de Calidad. Con las revisiones que realice la Unidad de Control de Calidad se podrá modificar la categoría que tiene el Despacho o Firma de Contadores Públicos en contraste con lo reportado en el formulario de solicitud de trámites de Despachos o Firmas de Contadores Públicos.

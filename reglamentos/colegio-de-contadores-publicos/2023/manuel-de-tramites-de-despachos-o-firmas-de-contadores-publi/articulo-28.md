@@ -1,0 +1,1 @@
+Apartado 28.—Reinscripción por pagos atrasados: En caso que el Despacho o Firma de Contadores Públicos desinscrito por morosidad, cancele los montos adeudados, el Despacho será reactivado por la administración del Colegio, si así lo solicita el representante legal, sin tener que cancelar ningún monto adicional por el trámite administrativo de la reinscripción.

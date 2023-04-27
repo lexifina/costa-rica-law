@@ -1,0 +1,1 @@
+Apartado 19.—Pago de Obligaciones: Para realizar este trámite tanto el Despacho o Firma como los socios que son Contadores Públicos Autorizados, deben estar al día con sus obligaciones con el Colegio.

@@ -1,0 +1,13 @@
+SECCIÓN II
+Definiciones
+Apartado 2º—Definiciones: Para una mejor comprensión de este Manual se realizan las siguientes definiciones.
+a) Colegio: Colegio de Contadores Públicos de Costa Rica.
+b) Despacho o Firma: Entidad legalmente constituida según las leyes costarricenses que pueden ser utilizadas para el ejercicio profesional colectivo de los Contadores Públicos Autorizados entre ellos mismos o con miembros de otras profesiones, con el fin de brindar mejores servicios.
+c) Expediente: Se refiere a toda la documentación necesaria para el respectivo estudio de inscripción, reinscripción, actualización o desinscripción de los Despachos o Firmas de Contadores Públicos, y que se considera necesaria para el análisis apropiado del caso.
+d) Fiscalización: Proceso realizado por parte del Colegio de Contadores Públicos de Costa Rica con el fin de garantizar la aplicación adecuada de las normas que regulan la profesión de los Contadores Públicos Autorizados.
+e) Inscripción: Acción de inscribir formalmente a una entidad jurídica como parte de los Despachos o Firmas registrados en el Colegio de Contadores Públicos de Costa Rica con sus respectivos derechos y deberes.
+f) PFCP (Pequeña Firma de Contaduría Pública): Este nombre es una adaptación del nombre PYMFA (Pequeñas y Medianas Firmas de Auditoría), que utiliza la Guía para el uso de las Normas Internacionales de Auditoría en auditorías de pequeñas y medianas entidades de la Federación Internacional de Contadores (IFAC). Se refiere a aquellas pequeñas entidades que brindan servicios de Contaduría Pública a pequeñas y medianas empresas y que se dividen en PFCP-1 Y PFCP-2.
+g) Servicios Profesionales: Personas que prestan sus servicios bajo un contrato verbal o escrito, sin horario, por proyectos o trabajos específicos, y a cambio reciben una retribución económica previamente pactada.
+h) Sistema de Gestión de Calidad: Conjunto de componentes evaluados sistemática y periódicamente por cada Despacho o Firma de Contadores Públicos con base en los estándares internacionales establecidos por la Federación Internacional de Contadores (IFAC) y los estándares nacionales establecidos por el Colegio de Contadores Públicos de Costa Rica.
+i) Solicitante: Es el Colegiado que solicite un trámite de Despachos o Firmas ante el Colegio de Contadores Públicos de Costa Rica.
+j) Trabajador: Es toda persona física que presta a otra u otras sus servicios materiales, intelectuales o de ambos géneros en virtud de un contrato de trabajo expreso o implícito, verbal o escrito, individual o colectivo, conforme lo establece el Código de Trabajo de Costa Rica.

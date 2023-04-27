@@ -1,0 +1,1 @@
+Apartado 13.—Rechazo de la solicitud: En caso de rechazo de la solicitud de inscripción por parte de la Junta Directiva, el Colegiado solicitante podrá presentar recurso de revocatoria ante la misma Junta Directiva y apelación en subsidio ante la Asamblea General, en el plazo de cinco días hábiles a partir de la notificación en el correo electrónico señalado.
