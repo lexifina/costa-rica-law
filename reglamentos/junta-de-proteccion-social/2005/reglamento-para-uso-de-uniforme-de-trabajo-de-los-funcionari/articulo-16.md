@@ -1,1 +1,5 @@
-Artículo 16.—Toda solicitud de presupuesto para adquisición de uniformes deberá contar con un informe técnico de la Unidad de Salud Ocupacional del Departamento de Recursos Humanos, que establecerá, evaluando el resultado de las correspondientes inspecciones, en coordinación con el jefe o encargado de la unidad respectiva, la necesidad de reposición u otorgamiento de los uniformes o prendas solicitadas.
+Artículo 16.-Los funcionarios de la Junta que incumplan las disposiciones que establece este Reglamento, podrán hacerse acreedores de las sanciones disciplinarias correspondientes, de acuerdo con la normativa que rige la relación de servicios de la Junta de Protección Social. Según la gravedad de la falta, podrán clasificarse de la siguiente forma:
+a) Amonestación verbal.
+b) Amonestación escrita.
+c) Suspensión hasta por ocho días.
+d) Despido sin responsabilidad patronal.

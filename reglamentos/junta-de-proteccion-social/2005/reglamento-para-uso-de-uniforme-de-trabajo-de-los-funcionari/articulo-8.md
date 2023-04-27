@@ -1,1 +1,1 @@
-Artículo 8º—La entrega de uniformes se hará, en el período comprendido entre enero y noviembre, según la necesidad de reposición u otorgamiento, basándose en los principios de racionalidad y sana administración de los fondos públicos.
+Artículo 8°-Los requerimientos para la confección de uniformes serán definidos de acuerdo al criterio que brindará cada jefatura al Departamento de Recursos Materiales acorde a su ámbito de operación, con el visto bueno de la Gerencia de Área y cuando corresponda el aval técnico por parte de las unidades asesoras.

@@ -20,3 +20,4 @@ Reglamento para Uso de Uniforme de Trabajo de los Funcionarios de la Junta de Pr
 | 5 | 2016-02-29 | Reglamento 7 (2016-02-29) |
 | 6 | 2021-03-04 | Reglamento 14 (2021-03-04) |
 | 7 | 2021-06-17 | Reglamento 37 (2021-06-17) |
+| 8 | 2023-04-27 | Reglamento 48 (2023-04-27) |

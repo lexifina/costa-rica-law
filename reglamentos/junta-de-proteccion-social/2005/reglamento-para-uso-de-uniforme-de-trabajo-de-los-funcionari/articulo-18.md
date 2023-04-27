@@ -1,4 +1,1 @@
-Artículo 18.—Rige a partir de su publicación en el Diario Oficial La Gaceta.
-Este Reglamento fue aprobado por la Junta Directiva de la (*) Junta de Protección Social, por acuerdo JD-201 correspondiente al artículo III, inciso 9), de la sesión 16-2005, celebrada el 3 de mayo del 2005.
-(*)(Así modificada su denominación mediante el artículo 1° de la ley N° 8718 del 16 de febrero de 2009, Ley de autorización para el cambio de nombre de la Junta de Protección Social y establecimiento de las rentas de las loterías nacionales).
-San José, 23 de mayo del 2005
+Artículo 18.-Toda solicitud de presupuesto para adquisición de uniformes deberá contar con un informe técnico de la Unidad de Salud Ocupacional, que establecerá, evaluando el resultado de las correspondientes inspecciones, en coordinación con el jefe o encargado de la unidad respectiva, la necesidad de reposición u otorgamiento de los uniformes o prendas solicitadas.
