@@ -33,12 +33,14 @@ v) Dirección de Niñez, Adolescencia y Juventud
 vi) Dirección de Estudios Económicos y Desarrollo
 vii) Dirección de Asuntos Laborales
 g) Instituto de Educación en Derechos Humanos de la Defensoría de los Habitantes
-h) Dirección de Oficinas Regionales
-i) Oficina Regional Atlántica
+(*)h) Dirección de Oficinas Regionales
+a) Dirección de Admisión y Defensa Sumaria
+i) Oficina Regional Huetar Caribe
 ii) Oficina Regional Brunca
-iii) Oficina Regional Central - Periférica
-iv) Oficina Regional Chorotega
-v) Oficina Regional Norte
-vi) Oficina Regional Pacífico Central
+iii) Oficina Regional Central
+iv)Oficina Regional Chorotega
+v) Oficina Regional Huetar Norte
+vi)Oficina Regional Pacífico Central
+(*)(Así reformado el inciso h) anterior por acuerdo N° DH-A-2604-2023 del 27 de abril de 2023, "Crea la Dirección de Admisión y Defensa Sumaria")
 I) Mecanismo Nacional de Prevención de la Tortura (creado como órgano con desconcentración máxima de la Defensoría de los Habitantes mediante Ley N° 9204 del 12 de diciembre de 2013).
 (Así reformado por acuerdo N° 2470 del 26 de julio de 2022)
