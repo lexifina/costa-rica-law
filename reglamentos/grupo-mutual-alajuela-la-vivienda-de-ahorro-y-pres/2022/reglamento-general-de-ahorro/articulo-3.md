@@ -1,0 +1,1 @@
+Artículo 3°-Del principio de la libre elección del servicio de cuenta de ahorro. El Ahorrante seleccionará, de las modalidades de ahorro que la administración de Grupo Mutual ponga a su disposición, aquella de su preferencia, para lo cual firmará el Contrato de Ahorro correspondiente.

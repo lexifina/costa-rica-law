@@ -1,0 +1,4 @@
+Artículo 20.-Vigencia y derogatoria. Este reglamento podrá ser modificado total o parcialmente en cualquier momento y conforme a la Ley y Reglamentos del Sistema Financiero Nacional para la Vivienda.
+Al momento de la apertura de la cuenta de ahorro y sus modalidades de uso, se pone en conocimiento al Ahorrante del presente Reglamento, según las disposiciones establecidas por Grupo Mutual. El Ahorrante podrá consultar este Reglamento por medio del sitio web de Grupo Mutual www.grupomutual.fi.cr
+Las presentes normas rigen a partir de su publicación en el Diario Oficial y derogan cualquier otro reglamento o disposición aprobado anteriormente por el Grupo Mutual.
+Aprobado por la Junta Directiva de Grupo Mutual, Alajuela-La Vivienda de Ahorro y Préstamo, en la Sesión Ordinaria N° 39-22, artículo III, del día 16 de agosto de dos mil veintidós.
