@@ -1,1 +1,0 @@
-Artículo 15.—La sesión ordinaria estará precedida por la formalidad de su convocatoria por parte del presidente del Comité de Auditoría, quien podrá delegar en el otro miembro de la Junta u otro funcionario del comité dicha labor.
