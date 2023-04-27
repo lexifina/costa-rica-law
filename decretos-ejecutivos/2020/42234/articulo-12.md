@@ -1,1 +1,0 @@
-Artículo 12.—Solicitud de Certificación de Contenido Económico. Previo a la confección de la resolución final, la Asesoría Jurídica en el plazo de cinco días solicitará a la Dirección Financiera, ambas del Ministerio de Gobernación y Policía, extender dentro del término de ocho días certificación de contenido económico.

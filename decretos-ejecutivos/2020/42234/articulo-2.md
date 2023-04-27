@@ -1,2 +1,0 @@
-CAPÍTULO SEGUNDO
-Artículo 2º—Población Cubierta. Todos aquellos funcionarios que antes de la entrada en vigencia de la Ley de Correos N° 7768 del 24 de abril de 1998, que se encontraban cotizando para el Régimen de Pensiones de Comunicaciones, creado por la Ley N° 4 de Jubilaciones y Pensiones de Comunicaciones del 23 de setiembre de 1940 y sus reformas, quedarán incluidos en el Seguro de Invalidez, Vejez y Muerte que administra la Caja Costarricense de Seguro Social

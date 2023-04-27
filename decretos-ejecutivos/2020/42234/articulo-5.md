@@ -1,1 +1,0 @@
-Artículo 5º—Liquidación actuarial. La Contabilidad Nacional del Ministerio de Hacienda, será el ente responsable de confeccionar la liquidación actuarial, que determinará el monto a traspasar al Seguro de Invalidez, Vejez y Muerte de la Caja Costarricense de Seguro Social y la diferencia por cotización obrera que deberá devolverse al reclamante.

@@ -1,1 +1,0 @@
-Artículo 9º—Verificación de la liquidación. En caso de detectarse errores en las liquidaciones actuariales, la Asesoría Jurídica del Ministerio de Gobernación y Policía, devolverá las mismas a la Contabilidad Nacional de Ministerio de Hacienda, indicándole los problemas encontrados, a efectos de que se corrijan los errores respectivos.

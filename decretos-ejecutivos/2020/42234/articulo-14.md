@@ -1,1 +1,0 @@
-Artículo 14.—Sobre los Recursos. La resolución de pago mediante la cual se reconocerán las diferencias en la cuota obrera a favor de los reclamantes y el traspaso a favor de la Caja Costarricense de Seguro Social, tendrá recurso de reposición en el plazo de tres días posteriores a la notificación.
