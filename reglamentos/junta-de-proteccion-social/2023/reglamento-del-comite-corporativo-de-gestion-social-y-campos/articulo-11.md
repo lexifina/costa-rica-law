@@ -1,0 +1,1 @@
+Artículo 11.-Del quórum para la reunión. Para que las reuniones del CCGSyCS se consideren legalmente constituidas, será necesaria la presencia de al menos dos de sus miembros dentro de los cuales obligatoriamente deberá encontrarse su presidente o en su ausencia el otro miembro de Junta Directiva.

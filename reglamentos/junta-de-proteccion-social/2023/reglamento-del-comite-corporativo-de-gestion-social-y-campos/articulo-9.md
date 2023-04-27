@@ -1,0 +1,5 @@
+Artículo 9º-De las reuniones del Comité. El CCGSyCS se reunirá de forma ordinaria al menos una vez al mes, y en forma extraordinaria podrá hacerlo con la frecuencia que sea necesario, por razones de oportunidad y a solicitud del presidente de Comité.
+En las reuniones podrán participar, cuando así expresamente lo disponga el presidente o los miembros del Comité, cualquier otro funcionario que considere el Comité, o bien, cualquier persona que en el seno del Comité se considere de importancia su participación. Las personas invitadas no tendrán derecho a voto.
+En el caso de los colaboradores de la Junta de Protección Social, será obligatorio atender dicha invitación.
+Cada sesión se llevará a cabo siguiendo el orden del día y se levantará un acta de esta, la cual estará a cargo del (a) secretario (a) del Comité.
+Las reuniones podrán realizarse en forma presencial o virtual, dependiendo de la solicitud que realice el (a) presidente (a) del comité o al menos tres de los miembros del Comité. El Comité podrá aplicar, en lo que sea procedente, el mecanismo de consulta formal y el mecanismo de reuniones virtuales utilizado por la Junta Directiva.

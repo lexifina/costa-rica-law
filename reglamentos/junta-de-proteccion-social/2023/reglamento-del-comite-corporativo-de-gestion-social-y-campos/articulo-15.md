@@ -1,0 +1,2 @@
+Artículo 15.-De los informes. El CCGSyCS debe informar en forma ordinaria una vez al mes al Comité de Estrategia, sobre las actividades desarrolladas.
+El CCGSyCS, a solicitud de la Junta Directiva de la Junta de Protección Social, rendirá los informes y criterios que se le requieran, para lo cual el órgano colegiado deberá otorgar un plazo proporcional y razonable de acuerdo con la complejidad del requerimiento.

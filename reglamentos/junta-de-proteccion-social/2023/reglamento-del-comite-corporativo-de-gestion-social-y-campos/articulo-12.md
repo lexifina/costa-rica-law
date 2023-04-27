@@ -1,0 +1,2 @@
+Artículo 12.-De los acuerdos tomados. Los acuerdos se tomarán por mayoría simple de votos y corresponde a la administración su ejecución y al presidente el seguimiento respectivo.
+Cuando alguno (s) de los miembros del CCGSyCS, discrepen del criterio de la mayoría sobre determinada propuesta, deberán dejar constancia de su voto disidente en el acta correspondiente, indicando las razones en las que fundamenta su desacuerdo.
