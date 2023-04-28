@@ -1,0 +1,1 @@
+Artículo 44.-Una misma regiduría podrá formar parte de más de una comisión permanente, podrá ejercer la presidencia o vicepresidencia, en las comisiones en que se le nombre. Las presidencias y vicepresidencias de las comisiones podrán ser reelectas en esos cargos.

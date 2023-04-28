@@ -1,0 +1,1 @@
+Artículo 47.-Los informes o dictámenes de las comisiones serán entregados, una vez que se hayan declarado en firme, a la Presidencia Municipal, quien los pondrá en conocimiento del Concejo Municipal de Alajuela.

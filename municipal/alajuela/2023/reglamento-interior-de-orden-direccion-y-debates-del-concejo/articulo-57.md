@@ -1,0 +1,1 @@
+Artículo 57.-Al inicio de cada trimestre, la persona que ocupe la secretaria de comisiones enviará los documentos resueltos a la Secretaría Municipal la cual, una vez recibidos y revisados, los enviará al Archivo Municipal, en acatamiento de las disposiciones de la Ley de Archivos Nacionales de la República.
