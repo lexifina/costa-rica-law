@@ -1,0 +1,3 @@
+Artículo 2º-En el caso de actividad de Obra Pública, el Alcalde Municipal podrá celebrar convenios, comprometer los fondos o bienes de la Municipalidad, determinar gastos fijos, autorizar egresos y en general adquirir bienes y servicios sin necesidad de previa autorización del Concejo Municipal, cuando tales actos no excedan el umbral de la LICITACIÓN REDUCIDA de la Ley No 9986 y su respectivo reglamento.
+Dichos montos serán determinados y ajustados automáticamente cada año, cuando la Contraloría General de la República actualice los umbrales de contratación pública.
+Los actos que el Alcalde celebre al amparo de este reglamento deberán regirse por las normas y principios establecidos en la Ley General de Contratación Pública No 9986 y sus reformas.
