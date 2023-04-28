@@ -1,0 +1,1 @@
+Artículo 7º-Plazo de resolución de la solicitud del PSF para comercio sobre ruedas. Las Direcciones de Áreas Rectoras de Salud, deben resolver las solicitudes del permiso sanitario de funcionamiento al momento de la presentación de dicha solicitud.

@@ -1,0 +1,1 @@
+Artículo 23.-Lavado. Las hortalizas, verduras y frutas sin procesar, deberán necesariamente lavarse bajo chorro de agua potable, a fin de eliminar cualquier impureza que venga adherida a su superficie.

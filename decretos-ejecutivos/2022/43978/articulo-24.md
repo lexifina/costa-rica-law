@@ -1,0 +1,1 @@
+Artículo 24.-Conservación de alimentos. Los insumos y las comidas que han sido cocinadas deben mantenerse tapadas y en refrigeración, hasta el momento de ser servidas para su consumo. Si estos alimentos preparados no son consumidos en el propio día, no podrán ser almacenados para su venta al día siguiente.

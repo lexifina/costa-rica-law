@@ -1,0 +1,6 @@
+Artículo 4º-Condiciones previas para el trámite del PSF para el comercio sobre ruedas. Las personas interesadas en desarrollar una actividad comercial sobre ruedas pueden iniciar el trámite de solicitud del permiso sanitario cuando cumpla con las siguientes condiciones previas:
+a. Estar al día en el pago de las multas por infracción a la Ley N° 9028 del 22 de marzo del 2012 "Ley General de Control del Tabaco y sus efectos nocivos en la salud".
+b. No estar moroso con la Caja Costarricense de Seguro Social (CCSS), según lo dispuesto por la Ley N° 17 del 22 de octubre de 1943 "Ley Constitutiva de la Caja Costarricense de Seguro Social CCSS".
+c. No estar moroso con el Fondo de Desarrollo Social y Asignaciones Familiares (FODESAF), según lo establecido en el artículo 22 de la Ley N° 5662 del 23 de diciembre de 1974 "Ley de Desarrollo Social y Asignaciones Familiares".
+d. No estar moroso con el pago de sus obligaciones tributarias conforme al art. 18 bis de la Ley N° 4755 del 3 de mayo de 1971 "Código de Normas y Procedimientos Tributarios (Código Tributario)".
+Las condiciones previas se deben declarar en el formato de la Declaración Jurada que aparece en el Anexo 2 del presente Reglamento; sin perjuicio de la verificación que pueda realizar el funcionario del Ministerio por medio de las bases de datos públicas en línea al momento de presentar la solicitud.

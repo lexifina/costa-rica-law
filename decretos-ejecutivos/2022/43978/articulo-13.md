@@ -1,0 +1,1 @@
+Artículo 13.-Modificaciones. En el caso que se requiera cambiar las condiciones originales bajo las cuales se otorgó el PSF por parte del Ministerio de Salud, se debe aplicar lo indicado en el artículo 5° del presente Reglamento. La vigencia del nuevo PSF emitido en virtud de las modificaciones, debe ser por el tiempo indicado por la Municipalidad.

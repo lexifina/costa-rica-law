@@ -1,0 +1,1 @@
+Artículo 11.-Traslado del comercio sobre ruedas. Si un comercio sobre ruedas, antes del vencimiento del PSF se traslada a otro espacio físico dentro del mismo cantón y en la misma zona de jurisdicción de una Área Rectora de Salud, debe notificar al Ministerio de Salud aportando la autorización municipal respectiva.

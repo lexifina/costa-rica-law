@@ -1,0 +1,1 @@
+Artículo 9º-Emisión del PSF para el comercio sobre ruedas. Una vez revisada la información suministrada en la solicitud del permiso sanitario de funcionamiento y en caso de cumplir con los requisitos señalados en el artículo 4° del presente Reglamento; la DARS respectiva, debe emitir el PSF de forma inmediata utilizando el apartado E del formulario de la solicitud.
