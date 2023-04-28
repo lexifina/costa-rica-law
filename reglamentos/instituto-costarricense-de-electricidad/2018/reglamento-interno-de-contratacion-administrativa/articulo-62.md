@@ -1,2 +1,0 @@
-Artículo 62.—Todos los contratos adicionales (modificaciones a contratos ejecutados) cuyo monto alcance el tope máximo establecido para contrataciones directas de escasa cuantía, incluyendo el 30% que establece el Artículo 21 del Reglamento a la Ley 8660 serán aprobados por el Director respectivo y no requerirán criterio legal.
-Para el caso de los contratos adicionales cuyo monto supere el tope indicado en el párrafo anterior, serán aprobados por el órgano competente de acuerdo al monto del contrato adicional.
