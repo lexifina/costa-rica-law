@@ -1,1 +1,2 @@
-Artículo 8º—Debida colaboración al Consejo. Para la consecución de sus cometidos, el Consejo podrá solicitar la colaboración de cualquier oficina o funcionario, los que deberán prestar su diligente colaboración al respecto. Asimismo podrá integrar comités técnicos que brinden informes en las materias que el Consejo requiera.
+Artículo 8.- Debida colaboración al Consejo. Para la consecución de sus cometidos, el Consejo podrá solicitar la colaboración de cualquier oficina, funcionaria o funcionario, quienes deberán prestar su diligente colaboración al respecto. Asimismo, podrá integrar comités técnicos que brinden informes en las materias que el Consejo requiera.
+(Así reformado por el artículo 7° del decreto del Tribunal Supremo de Elecciones, N° 3 del 28 de abril de 2023)

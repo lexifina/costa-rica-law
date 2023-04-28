@@ -14,3 +14,4 @@ Reglamento del Consejo de Directores del Tribunal Supremo de Elecciones
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-05-20 | la propia norma |
+| 2 | 2023-04-28 | Decreto TSE 3 (2023-04-28) |
