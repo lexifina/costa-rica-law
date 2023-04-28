@@ -16,3 +16,4 @@ Reglamento interno de contratación administrativa
 | 1 | 2018-07-13 | la propia norma |
 | 2 | 2019-06-07 | Reglamento 0 (2019-06-07) |
 | 3 | 2020-06-11 | Reglamento 0 (2020-06-11) |
+| 4 | 2023-04-28 | SINALEVI (sin norma nombrada) |

@@ -1,13 +1,13 @@
 (Derogado)
 INSTITUTO COSTARRICENSE DE ELECTRICIDAD
-(Esa norma fue dejada sin efecto por el artículo 117 del Reglamento Interno de Contratación Administrativa, publicado en el Alcance Digital N° 146 a La Gaceta N° 144 del 14 de junio del 2020)
+(Esa norma fue derogada por el artículo 117 del Reglamento Interno de Contratación Administrativa, publicado en el Alcance Digital N° 146 a La Gaceta N° 144 del 14 de junio del 2020. Posteriormente mediante resolución N° 028-2023-VI del Tribunal Contencioso Administrativo y Civil de Hacienda, Sección Sexta, se declaró la nulidad absoluta parcial de la presente norma, a pesar de que ya había sido derogada anteriormente)
 REGLAMENTO INTERNO DE CONTRATACIÓN ADMINISTRATIVA1
 1 Se adiciona código en mayo 2018 por parte de la DCE a esta versión actualizada de documento normativo.
 TÍTULO I
 Generalidades
 CAPÍTULO I
 Definiciones
-Artículo 1.—Para efectos de la aplicación de este Reglamento, se definen los siguientes términos:
+Artículo 1.-Para efectos de la aplicación de este Reglamento, se definen los siguientes términos:
 Administrador de contrato (AC): Es el funcionario encargado de especificar el requerimiento de la contratación, participar en los estudios de análisis y evaluación técnica de las ofertas y administrar los contratos de suministro de bienes y servicios que suscriba el ICE con particulares o terceros, con el fin de asegurar el fiel cumplimento de las condiciones contractuales pactadas objeto de la contratación, tanto cualitativa como cuantitativamente. Dependiendo de la complejidad de la contratación el Administrador del Contrato podrá contar con la colaboración técnica de un equipo de trabajo.
 Administración Superior: Estará constituida, según sea el caso, por cualquiera de los siguientes Órganos: Consejo Directivo, Presidencia Ejecutiva, Direcciones Corporativas y la Gerencia Servicios Corporativos.
 Acta de recepción o aceptación definitiva: Acto formal y por escrito a través del cual se deja de manifiesto, que el contratista ha cumplido a satisfacción del Administrador del Contrato, con la prestación contratada (ya sea bienes, obras o servicios). El acta en mención es documento requerido para tramitar el pago donde consta la fecha de recepción o aceptación a satisfacción de los bienes o servicios de una contratación y deber ir acompañando la orden de pago correspondiente.
