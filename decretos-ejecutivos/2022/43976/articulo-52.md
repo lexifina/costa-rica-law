@@ -1,0 +1,1 @@
+Artículo 52.- Recurso de apelación para ante la Junta Directiva del Colegio de Cirujanos Dentistas. En lo aplicable, el recurso de apelación se rige por las mismas normas que el de revocatoria, pero será conocido por la Junta Directiva del Colegio de Cirujanos Dentistas, cuya resolución agotará la vía administrativa.

@@ -1,0 +1,1 @@
+Artículo 66.- Dictado del acto final. Terminada la comparecencia, el asunto quedará listo para dictar el acto final, el cual deberá emitir el Tribunal de Honor que se nombrará de acuerdo con la Ley N°5784 de 19 de agosto de 1975 "Ley Orgánica del Colegio de Cirujanos Dentistas de Costa Rica"dentro del plazo de diez días hábiles, contados a partir de la fecha de la comparecencia.

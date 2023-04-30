@@ -1,0 +1,2 @@
+Artículo 69.- Trámite de los recursos. El Tribunal de Honor resolverá el recurso de revocatoria, si el resultado de este fuera negativo, se remitirá en alzada ante la Junta Directiva con el expediente correspondiente.
+El trámite y resolución de los recursos se ajustará a lo dispuesto en la Ley General de la Administración Pública, con la salvedad de que deben añadirse los plazos que estipula la Ley Orgánica del Colegio.

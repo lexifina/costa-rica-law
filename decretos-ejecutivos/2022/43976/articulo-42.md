@@ -1,0 +1,1 @@
+Artículo 42. Carga de la prueba. La carga de la prueba incumbe a la Administración Tributaria del Colegio respecto de los hechos constitutivos de la obligación tributaria material, mientras que incumbe al contribuyente respecto de los hechos impeditivos, modificativos o extintivos de la obligación tributaria.

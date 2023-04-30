@@ -1,0 +1,1 @@
+Artículo 68.- Recursos contra el acto final. La resolución a que se refiere el artículo anterior tendrá los recursos de revocatoria con apelación en subsidio el cual podrá ser presentado ante el Tribunal de Honor. Para ambos recursos se contará para su presentación con tres días hábiles contados a partir de la notificación.

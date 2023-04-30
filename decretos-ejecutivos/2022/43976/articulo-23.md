@@ -1,0 +1,4 @@
+Artículo 23.- De las personas físicas. Las personas físicas están obligadas a comunicar su domicilio fiscal al momento de la inscripción ante la Administración Tributaria.
+Para la fijación y comunicación del domicilio fiscal, se deben acatar las siguientes disposiciones:
+a) Las personas físicas que desarrollen actividades económicas que realicen el hecho generador del timbre odontológico deben señalar como su domicilio fiscal, el lugar donde estén centralizadas esas actividades económicas o se ubique la dirección de las actividades que desarrollan. En su defecto, el lugar donde tengan su residencia habitual.
+b) En el caso de que la persona física ejerza actividades económicas y se encuentre residiendo temporalmente en Costa Rica, se considera como el domicilio fiscal el lugar donde esté ejerciendo sus actividades económicas.
