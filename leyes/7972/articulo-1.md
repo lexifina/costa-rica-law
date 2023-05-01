@@ -8,10 +8,10 @@ SECCIÓN I
 IMPUESTO ESPECÍFICO SOBRE LAS BEBIDAS ALCOHÓLICAS
 Artículo 1º-Créase un impuesto específico por cada mililitro de alcohol absoluto contenido en cualquier bebida alcohólica de producción nacional o importada, indistintamente de su presentación, según la concentración de alcohol por volumen, de acuerdo con la siguiente tabla:
 Porcentaje de alcohol por volumen | Impuesto (colones por mililitro de alcohol absoluto)
-Hasta 15% | 3,75
-Más de 15% y hasta 30% | 4,51
-Más de 30% | 5,25
-(Los montos del impuesto anterior fueron actualizados por el artículo 1º de la resolución N° RES-DGH-001-2023 del 9 de enero de 2023, mediante un ajuste de menos cero coma cuarenta y nueve por ciento (-0,49%))
+Hasta 15% | 3,72
+Más de 15% y hasta 30% | 4,47
+Más de 30% | 5,20
+(Los montos del impuesto anterior fueron actualizados por el artículo 1º de la resolución N° MH-DGH-RES-0017-2023 del 12 de abril de 2023, mediante un ajuste de menos cero coma noventa y dos por ciento (-0,92%))
 Este impuesto no se aplicará a las bebidas de producción nacional destinadas a la exportación
 (Así reformado por el artículo 1° de la Ley N° 8399 de 19 de diciembre de 2003).
 NOTA DE SINALEVI: Mediante el artículo N° 3 de la Ley 8399 de 19 de diciembre de 2003, se exonera del pago de este impuesto el vino utilizado para el ritual de la consagración de la Iglesia Católica. Asimismo, sobre la actualización de este impuesto véase el Transitorio Único de la ley referida)
