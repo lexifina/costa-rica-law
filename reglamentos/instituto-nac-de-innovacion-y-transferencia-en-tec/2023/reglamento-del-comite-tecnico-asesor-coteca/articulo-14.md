@@ -1,0 +1,4 @@
+CAPITULO IV
+Expedientes
+Artículo 14.-Los expedientes estarán conformados por el formato aprobado por COTECA, los informes semestrales con el visto bueno de la jefatura, informe final aprobado por COTECA, y cualquiera otro documento relacionado con la actividad. Todos los documentos deberán estar debidamente foliados, fijados al expediente de manera que no tengan documentos sueltos y los mismos deben ser integrados al expediente y ordenados en orden cronológico.
+El presente Reglamento fue Aprobado por la Junta Directiva del Instituto Nacional de Innovación y Transferencia en Tecnología Agropecuaria mediante acuerdo 03, artículo 05, Sesión Ordinaria N°534, de fecha 06 de febrero de 2023, adicionado mediante acuerdo 06, artículo 04, Sesión Ordinaria N°537, de fecha 20 de marzo de 2023; se deroga el Reglamento de Gestión de la Información Técnica del INTA, publicado en La Gaceta número 100 del 29 de mayo de 2017.

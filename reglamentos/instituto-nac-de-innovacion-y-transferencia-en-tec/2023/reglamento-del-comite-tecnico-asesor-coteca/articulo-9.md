@@ -1,0 +1,1 @@
+Artículo 9º-Cada Comité Técnico Auxiliar estará integrado por la jefatura respectiva, quien actuará como coordinador del comité, más tres miembros de la unidad correspondiente. La Dirección Ejecutiva, definirá los Comités Técnicos y sus integrantes.
