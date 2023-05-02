@@ -14,3 +14,4 @@ Manual de Reglamentos Administrativos (Título V otorgamiento de patrocinios y T
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-06-16 | la propia norma |
+| 2 | 2023-05-02 | Acuerdo 9780 (2023-05-02) |
