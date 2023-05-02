@@ -14,3 +14,4 @@ Reglamento de Regulación y Comercialización de Bebidas con Contenido Alcohóli
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-09-04 | la propia norma |
+| 2 | 2023-05-02 | Reglamento municipal 157 (2023-05-02) |
