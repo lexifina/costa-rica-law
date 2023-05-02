@@ -14,3 +14,4 @@ Establece veda total para la pesca deportiva y pesca comercial en pequeña escal
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-04-28 | la propia norma |
+| 2 | 2023-05-02 | Acuerdo 92 (2023-05-02) |
