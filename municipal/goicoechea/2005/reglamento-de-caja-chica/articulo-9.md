@@ -1,1 +1,0 @@
-Artículo 9º—No se permitirá el cambio de cheques personales a funcionarios y contribuyentes con fondos de caja chica. Asimismo, es absolutamente prohibido realizar préstamos, como pueden ser vales a favor de un funcionario municipal, con cargo a la planilla municipal, ni de otra índole, así como, a personas que no laboren para la Municipalidad.

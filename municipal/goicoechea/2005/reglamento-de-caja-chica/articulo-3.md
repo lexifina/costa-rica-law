@@ -1,1 +1,0 @@
-Artículo 3º—Se establece un fondo fijo de Caja Chica para el servicio de esta Municipalidad, por la suma de dos millones quinientos mil colones 00/100 (¢2.500.000,00). El fondo de caja chica, sus aumentos o disminuciones, deben ser autorizados por el Concejo Municipal, previo estudio de los titulares de la Dirección Administrativa Financiera y Departamento Tesorería.
