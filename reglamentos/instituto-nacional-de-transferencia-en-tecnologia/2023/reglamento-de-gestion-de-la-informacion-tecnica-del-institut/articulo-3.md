@@ -1,0 +1,1 @@
+Artículo 3º-El Archivo Técnico Oficial almacenará durante su vigencia administrativa, los expedientes de los proyectos o actividades en proceso terminados, descartados y perdidos. Estará ubicado en la sede central del Instituto y será de acceso regulado.

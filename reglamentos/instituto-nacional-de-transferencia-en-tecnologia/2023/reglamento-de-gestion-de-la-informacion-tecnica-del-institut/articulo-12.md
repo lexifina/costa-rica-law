@@ -1,0 +1,1 @@
+Artículo 12.-El investigador que desee acogerse a los beneficios que otorga la ley N° 7169 "Ley de Promoción del Desarrollo Científico y Tecnológico", del 26 de junio de 1990, deberá cumplir a cabalidad lo dispuesto en este Reglamento.
