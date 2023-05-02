@@ -1,0 +1,10 @@
+Artículo 2º-Definiciones. Para efectos de la interpretación y aplicación del presente reglamento, se tendrán las siguientes definiciones.
+a. Autorización de comercio al aire libre: licencia para la utilización de espacios públicos tales como aceras, parques, plazas y vías cantonales que implica el cobro de una patente.
+b. Comercio al aire libre: actividad lucrativa destinada al comercio en espacios públicos de alimentos y bebidas.
+c. Condición en precario: situación jurídica que se relaciona con el uso de propiedad ajena sin contar con el respectivo título inmobiliario o contrato de alquiler.
+d. Espacio Público: espacio que está abierto a toda la sociedad civil, de propiedad estatal y dominio y uso de la población en general. Está integrado por las calles, caminos, vías de circulación, plazas, paseos, avenidas, parques, jardines y demás espacios verdes, puentes, fuentes y demás espacios destinados al uso público o general de la ciudadanía, ya sean de titularidad pública municipal o de otras administraciones públicas.
+e. Licencia Municipal: autorización que otorga la Municipalidad a personas físicas o jurídicas que las habilita a la explotación de actividades lucrativas dentro del cantón de Río Cuarto. Se incluye la Licencia municipal para comercialización de bebidas con contenido alcohólico.
+f. Mobiliario: bienes muebles de tipo liviano utilizados para el ejercicio de la actividad lucrativa al aire libre. Dentro de los que se encuentran bancas, asientos, sillas, mesas, mostradores, estantes, repisas o sus similares.
+g. Municipalidad: Municipalidad de Río Cuarto.
+h. Patentada: toda persona física o jurídica que cuente con una licencia comercial o para la comercialización de bebidas con contenido alcohólico emitida por la Municipalidad.
+i. Uso de espacios públicos: autorización de uso que otorga la Municipalidad sobre el espacio común cuando se cumpla con todas las obligaciones correspondientes establecidas en este reglamento o leyes especiales vigentes. Dicho permiso es otorgado por la Oficina de Patentes, o su similar, previo estudio técnico

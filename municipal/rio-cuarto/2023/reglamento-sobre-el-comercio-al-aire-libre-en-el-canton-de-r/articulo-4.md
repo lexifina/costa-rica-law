@@ -1,0 +1,1 @@
+Artículo 4º-Naturaleza de la autorización. Los permisos para el comercio al aire libre no generan derechos al patentado sobre el espacio público, ya que corresponde a actos de mera tolerancia por parte de la Municipalidad.

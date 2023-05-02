@@ -1,0 +1,2 @@
+Artículo 7º-Tramitación de las solicitudes. Las solicitudes de autorización de comercio al aire libre serán tramitadas por la Oficina de Patentes o su similar. Dicha solicitud deberá ser resuelta en un plazo de diez (10) días hábiles, contados a partir de la fecha de presentación de la documentación completa.
+En caso de requerirlo, la Oficina de Patentes -o su similar- podrá solicitar a la Asesoría Legal, Control urbano o a la Unidad Técnica de Gestión Vehicular los criterios técnicos que considere necesarios para la resolución de la solicitud.

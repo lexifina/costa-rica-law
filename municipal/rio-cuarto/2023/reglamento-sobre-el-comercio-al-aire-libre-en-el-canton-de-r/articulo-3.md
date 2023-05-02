@@ -1,0 +1,2 @@
+Artículo 3º-Alcance. Este Reglamento será aplicable a la comercialización al aire libre de alimentos y bebidas que desee realizar una persona patentada dentro del cantón de Río Cuarto.
+No requerirá licencia para ejercer el comercio al aire libre la persona patentada que se encuentre al día y desee ejercer el comercio en los en los retiros de propiedad privada determinada por la licencia comercial.

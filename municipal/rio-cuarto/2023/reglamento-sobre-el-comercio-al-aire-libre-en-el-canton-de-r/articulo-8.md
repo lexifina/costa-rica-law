@@ -1,0 +1,1 @@
+Artículo 8º-Recursos. Contra la denegatoria de la autorización de comercio al aire, la persona solicitante contará con cinco (5) días hábiles para la presentación del recurso ordinario que considere pertinente, según lo dispuesto por él se procederá de conformidad el artículo 171 del Código Municipal.
