@@ -1,0 +1,3 @@
+SECCIÓN C
+Desestimación de la Denuncia
+Artículo 12.-Solicitud de información adicional al denunciante. En caso de imprecisión de los hechos, se otorgará al denunciante diez días hábiles para que complete la información que fundamenta la denuncia. Lo anterior bajo apercibimiento de que el incumplimiento de esa prevención facultará a la Auditoría Interna para el archivo inmediato de la gestión, sin perjuicio de que posteriormente sea presentada con mayores elementos, como una nueva denuncia.

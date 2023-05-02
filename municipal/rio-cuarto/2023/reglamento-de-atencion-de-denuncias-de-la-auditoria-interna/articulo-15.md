@@ -1,0 +1,6 @@
+SECCIÓN D
+De la Gestión de la Denuncia
+Artículo 15.-Traslado de la denuncia a la Administración. Si el asunto planteado en la denuncia es propio de la competencia de la Administración, el Auditor Interno o Auditor Encargado si lo estima pertinente, lo trasladará para conocimiento de la instancia interna respectiva. El traslado se dará con indicación de que en su trámite se debe tener presente, en materia de confidencialidad, lo estipulado en la Ley N° 8292 y en la Ley N° 8422. Asimismo, la Auditoría guardará en todo momento, la confidencialidad del denunciante.
+Si la Auditoría por medio de la valoración considera que no es una denuncia, pero es un acto administrativo para que este lo resuelva, lo trasladará para la resolución del ente administrativo y se comunique tanto a la Auditoría como al denunciante los hallazgos encontrados.
+La dependencia de la Administración Activa de la Municipalidad que reciba una denuncia trasladada para su atención por parte de la Auditoría Interna será responsable de su debido estudio y resolución.
+La Auditoría Interna dará seguimiento a las denuncias que remita a las diferentes dependencias de la Administración Municipal, con el fin de que cumpla la obligación de atenderlas.

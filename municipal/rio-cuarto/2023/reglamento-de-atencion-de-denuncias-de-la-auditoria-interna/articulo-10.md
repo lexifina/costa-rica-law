@@ -1,0 +1,4 @@
+Artículo 10.-Presentación y trámite. Las denuncias presentadas deberán ser registradas de tal manera que puedan identificarse y darles seguimiento con facilidad y oportunidad. Observando la legislación vigente que protege la confidencialidad del denunciante.
+Toda denuncia recibida sea de forma escrita, o mediante cualquier medio electrónico, será registrada en orden de recepción, en un formulario dispuesto para tal fin, en cuyo caso de resultar admisible se levantará además el expediente individual.
+El Titular de la Auditoría Interna comunicará al denunciante en un plazo de diez días hábiles el recibido de la misma y luego en un plazo de treinta días hábiles lo analizará y a la vez le comunicará al denunciante su admisibilidad o desestimación.
+Declarada la admisibilidad de la denuncia, se procederá a realizar la investigación preliminar.
