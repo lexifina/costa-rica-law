@@ -1,13 +1,11 @@
-Artículo 112.—De la integración de la Comisión Técnica Nacional de Bioseguridad. La Comisión está integrada por:
-a) Un representante del Ministerio de Ciencia, Tecnología y Telecomunicaciones(*).
-b) Dos representantes del Ministerio de Salud.
-c) Un representante del Servicio Fitosanitario del Estado.
-d) Un representante del Servicio Nacional de Salud Animal.
-e) Dos representantes del Ministerio de Ambiente y Energía(*)
-f) Un representante de la Oficina Nacional de Semillas.
-g) Dos representantes designados por la Academia Nacional de Ciencias.
-h) Un representante de la Federación para la Conservación del Ambiente.
-i) Un representante de la Red de Coordinación en Biodiversidad(*) .
-(*)(Modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
-(*)(Corregido mediante Fe de Erratas publicada en La Gaceta N° 160 del 22 de agosto del 2013 página 136, anteriormente indicaba "i) Un representante de la Red para la Conservación de la Naturaleza.”)
-(Así reformado por el artículo 1° del decreto ejecutivo N° 37588 del 14 de noviembre de 2012)
+Artículo 112.-De la integración de la Comisión Técnica Nacional de Bioseguridad. La Comisión estará integrada por nueve miembros propietarios con derecho a voz y voto. Cada entidad representada nombrará un miembro suplente para que sustituya al propietario en su ausencia. Se permitirá la presencia del suplente cuando esté presente el miembro propietario, en cuyo caso únicamente se le concede derecho a voz. La Comisión estará integrada por:
+a) El Ministerio de Agricultura y Ganadería
+b) El Servicio Fitosanitario del Estado.
+c) El Servicio Nacional de Salud Animal.
+d) La Oficina Nacional de Semillas.
+e) El Ministerio de Ambiente y Energía.
+f) El Ministerio de Salud
+g) La Academia Nacional de Ciencias.
+h) La Federación para la Conservación de la Naturaleza.
+i) La Cámara Nacional de Agricultura y Agroindustria.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 44020 del 3 de mayo del 2023)

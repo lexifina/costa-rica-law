@@ -1,1 +1,2 @@
-Artículo 116.—De las invitaciones a sesiones. A las sesiones de la Comisión podrá ser invitada, con derecho a voz pero no a voto, a cualquier persona, a quien la Comisión considere conveniente convocar.
+Artículo 116.-De las invitaciones a las sesiones de la Comisión Técnica Nacional de Bioseguridad. A las sesiones podrá ser invitada, con derecho a voz, pero no a voto, cualquier persona, a quien la Comisión Técnica Nacional de Bioseguridad mediante acuerdo considere conveniente convocar o autorizar su participación.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 44020 del 3 de mayo del 2023)
