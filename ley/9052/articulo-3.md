@@ -1,4 +1,2 @@
-ARTÍCULO 3.-
-Se autoriza a la Notaría del Estado para que confeccione las escrituras de traspaso, las cuales estarán exentas de todo tipo de impuestos, tasas o contribuciones, tanto registrales como de cualquier otra índole. Asimismo, se autoriza a la Procuraduría General de la República para que corrija los defectos que señale el Registro Nacional.
-Rige a partir de su publicación.
-Dado en la Presidencia de la República, San José, a los nueve días del mes de julio del año dos mil doce.
+Artículo 3- La Municipalidad de Alajuela queda autorizada para construir, en dicha propiedad, las instalaciones necesarias para la operación de la terminal de transporte, así como otras construcciones que estime conveniente para dar servicios a los usuarios, tales como locales comerciales y estacionamientos de vehículos; estos últimos podrán ser arrendados a terceros, tanto para su uso particular como para el subarriendo al público, en los precios que determine anualmente el Concejo Municipal.
+De igual manera, la Municipalidad queda autorizada para realizar, por sí o mediante convenio con otras instituciones públicas, otras obras de uso institucional que estime pertinentes.
