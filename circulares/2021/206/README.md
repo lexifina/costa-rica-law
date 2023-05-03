@@ -13,3 +13,4 @@ Reiteración de la circular N° 50-2021 sobre la "Guía práctica de comunicacio
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-09-29 | la propia norma |
+| 2 | 2023-05-03 | Circular 100 (2023-05-03) |

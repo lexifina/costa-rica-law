@@ -1,4 +1,5 @@
 CIRCULAR N° 206-2021
+(Nota de Sinalevi: Esta norma fue reiterada mediante circular N° 57-2024 del 18 de marzo de 2024, y publicada en el Boletín Judicial N° 63 del 10 de abril de 2024)
 ASUNTO: Reiteración de la circular N° 50-2021 sobre la "Guía práctica de comunicaciones judiciales, la cual lleva adjunta las "Reglas generales que contemplan la Ley de Notificaciones Judiciales.-
 A LOS DESPACHOS JUDICIALES DEL PAÍS
 SE LES HACE SABER QUE:
@@ -94,7 +95,8 @@ Ante ello se recomienda actuar con la mayor prudencia y celeridad para no causar
 2.10.2 Reforma Agraria: En cuanto a la materia agraria se debe de considerar el artículo 72 en donde se establece la forma en que se realizará la notificación asì como plazos para ejecutar la misma cuando es casos especiales que el despacho lo solicite, es por ello, que se recomienda estar en coordinación verbal con la oficina judicial que solicite la diligencia en caso de ser alguna comisión para evitar nulidades.
 En cuanto a las pruebas anticipadas, el artículo 168 establece que se puede señalar medio y lugar para recibir notificaciones.
 2.10.3 Reforma Procesal Civil: Se mantiene las mismas reglas establecidas en la Ley de Notificaciones Judiciales, conforme lo establece el artículo 29.2 "Comunicación de los actos procesales".
-Es importante mencionar que en las tres reformas antes citadas no se obliga aportar las copias de la documentación que aporte la parte actora, por ello se debe de tener cuidado de no ejecutar alguna notificación por ausencia de copias en estas materias.
+Es importante mencionar que conforme los artículos 27.2 del Código Procesal Civil y 19 de la Ley de Notificaciones Judiciales, la parte interesada debe aportar las copias respectivas para la realización de la notificación personal, principalmente, la resolución inicial de cada proceso. Se exceptúan aquellos casos en que el órgano judicial indique que se puede practicar la notificación sin copias. Por ejemplo, cuando se ordena la notificación personal de resoluciones de mero trámite.
+(Así reformado el párrafo anterior mediante circular N° 100 del 3 de mayo de 2023)
 CAPITULO III:
 Reglas generales que complementan
 la ley de notificaciones
