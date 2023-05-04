@@ -14,3 +14,4 @@ Metodología Fijación de tarifa de acceso a las redes de distribución por part
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-02-23 | la propia norma |
+| 2 | 2023-05-04 | Resolución 76 (2023-05-04) |
