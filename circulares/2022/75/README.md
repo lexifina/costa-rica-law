@@ -14,3 +14,4 @@ Actualización de la "Lista de colaboradores del Instituto Nacional de Seguros (
 | --- | --- | --- |
 | 1 | 2022-05-03 | la propia norma |
 | 2 | 2022-07-13 | Circular 125 (2022-07-13) |
+| 3 | 2023-05-04 | Circular 103 (2023-05-04) |

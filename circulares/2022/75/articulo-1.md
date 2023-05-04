@@ -32,7 +32,7 @@ Jazmín Calvo Ardón | 1-1202-0790
 Hermann De la Fuente Ortiz | 1-1035-0396
 Isabel Solano Cerdas | 3-0266-0080
 Mónica Mora Cascante | 1-1111-0633
-Juan Carlos Ortiz Chaves | 1-0829-0331
+(Excluido mediante circular N° 103-2023 del 4 de mayo de 2023) | (Excluido mediante circular N° 103-2023 del 4 de mayo de 2023)
 Sehidy Tatiana Reyes Galeano | 2-0655-0366
 Jonathan Madrigal Mata | 6-0370-0434
 Yaritza María Ulate Alfaro | 2-0733-0903
