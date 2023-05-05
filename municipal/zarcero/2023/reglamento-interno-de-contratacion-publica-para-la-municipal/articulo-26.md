@@ -1,0 +1,1 @@
+Artículo 26.-Recepción de bienes y servicios. La unidad solicitante, acompañada de la respectiva asesoría por parte de la Proveeduría Municipal cuando sea necesario, realizará la recepción provisional y definitiva de las obras, bienes o servicios según corresponda y de acuerdo a lo señalado en la Ley General de Contratación Pública y su Reglamento.

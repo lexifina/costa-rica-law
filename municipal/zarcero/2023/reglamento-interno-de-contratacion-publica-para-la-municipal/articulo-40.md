@@ -1,0 +1,1 @@
+Artículo 40.-Comité de expertos. En la decisión inicial de las licitaciones mayores de obra pública, se establecerá la conformación y demás aspectos relacionados con el comité de expertos de acuerdo a lo establecido en la Ley General de Contratación Pública y su Reglamento.

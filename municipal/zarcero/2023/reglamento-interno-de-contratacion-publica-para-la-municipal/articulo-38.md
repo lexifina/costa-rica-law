@@ -1,0 +1,1 @@
+Artículo 38.-Aplicación de multas y cláusulas penales. Las multas y clausulas penales se aplicarán, según lo que indica la Ley General de Contratación Pública y su Reglamento, con base en la tabla establecida en el documento denominado "otras condiciones generales de contratación" y de acuerdo con la ponderación establecida por las unidades solicitantes en la decisión inicial.

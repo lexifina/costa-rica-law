@@ -1,0 +1,2 @@
+Artículo 32.-Forma de pago. En el pliego de condiciones, conforme a lo que disponga podrán contemplar formas de pago conformes con el alcance de los objetivos acordados, con apego a los principios de eficiencia, eficacia y valor por dinero, así como las disposiciones del Reglamento a la Ley de Contratación Pública, Decreto Ejecutivo N° 43808-H.
+La Municipalidad de Zarcero, utilizará de forma prioritaria los medios de pago electrónico a través de convenios con instituciones bancarias estatales, que le garanticen el control y seguridad de las transacciones realizadas.

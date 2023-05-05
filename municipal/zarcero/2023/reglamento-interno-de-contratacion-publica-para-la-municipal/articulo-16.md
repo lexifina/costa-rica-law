@@ -1,0 +1,3 @@
+CAPÍTULO V
+Decisión inicial
+Artículo 16.-Decisión Inicial. La decisión de iniciar del procedimiento de contratación pública será elaborada por la unidad solicitante y deberá de contemplar todas las disposiciones de la Ley General de Contratación Pública, N°9986 y sus reglamentaciones. Esa solicitud de contratación se realizará por medio del Sistema Digital Unificado, previa revisión con el Departamento de Proveeduría quien brindará la asesoría necesaria y debe además, se le debe adjuntar la certificación de disponibilidad presupuestaria y el estudio de mercado. Adicional en caso de requerirse, se revisará en conjunto con el Departamento de Asesoría Jurídica.

@@ -1,0 +1,1 @@
+Artículo 27.-Modificación unilateral. Cuando sea requerida una modificación unilateral del contrato, la unidad solicitante deberá de acreditar todo lo dispuesto en el artículo 101 de la Ley General de Contratación Pública, N° 9986 y el artículo 276 del Reglamento a la Ley de Contratación Pública, Decreto Ejecutivo N° 43808-H.

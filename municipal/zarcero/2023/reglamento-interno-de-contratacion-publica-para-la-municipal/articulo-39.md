@@ -1,0 +1,1 @@
+Artículo 39.-Convenios Marcos. Cuando la municipalidad de Zarcero genere una orden de pedido a través de un convenio marco y esta supere el monto máximo de una licitación menor, deberá ser aprobada por el Concejo Municipal. En todas las demás la aprobación, corresponderá a la Alcaldía Municipal.

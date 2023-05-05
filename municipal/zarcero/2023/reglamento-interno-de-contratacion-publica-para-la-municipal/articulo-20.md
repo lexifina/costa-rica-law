@@ -1,0 +1,2 @@
+Artículo 20.-Del Expediente Administrativo. Toda contratación pública y su respectivo expediente se realizará y se mantendrá en el Sistema Digital Unificado, el mismo será de consulta pública, salvo la información confidencial debidamente declarada por la Municipalidad.
+Así mismo, el Departamento de Tecnologías de Información gestionará un respaldo trimestral de la información ante el Sistema Digital Unificado.
