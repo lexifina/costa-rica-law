@@ -1,0 +1,1 @@
+ARTÍCULO 3.- Deróguense los artículos 4, 5, 6, 7, 8, 9, 10, 11, 14, 20 y 21 del "Reglamento a la Ley del Servicio Nacional de Guardacostas", Decreto Ejecutivo Nº29144-MSP del 04 de diciembre del 2000, publicado en la Gaceta N º 239 del 13 de diciembre del 2000.
