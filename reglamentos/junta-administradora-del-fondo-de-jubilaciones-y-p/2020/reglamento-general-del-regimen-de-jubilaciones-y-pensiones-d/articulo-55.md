@@ -1,1 +1,0 @@
-Artículo 55. – Inversión de recursos. Los recursos del Fondo de Jubilaciones y Pensiones y los de la comisión del “cinco por mil” se invertirán conforme la Política específica de Inversiones aprobada por la Junta Administradora para cada uno.

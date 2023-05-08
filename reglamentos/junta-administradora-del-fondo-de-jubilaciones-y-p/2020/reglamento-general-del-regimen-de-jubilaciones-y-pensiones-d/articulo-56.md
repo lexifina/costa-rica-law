@@ -1,1 +1,0 @@
-Artículo 56. – Fundamento de la Junta en la toma de decisiones. Las decisiones tomadas por la Junta Administradora se realizarán bajo los parámetros establecidos por el ordenamiento jurídico en aplicación al Principio Pro-Fondo.

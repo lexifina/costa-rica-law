@@ -1,1 +1,0 @@
-Artículo 35. – Documentación. En cualquier momento, la Junta Administradora podrá solicitar a las partes interesadas la información que considere pertinente, con la finalidad de evacuar cualquier duda al momento de estudiar las solicitudes presentadas por las personas beneficiarias.
