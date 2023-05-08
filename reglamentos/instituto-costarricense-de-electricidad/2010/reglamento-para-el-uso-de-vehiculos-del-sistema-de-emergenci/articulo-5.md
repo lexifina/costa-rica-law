@@ -1,1 +1,0 @@
-Artículo 5º—Los gastos propios del vehículo, mientras se utilice en la forma definida en el artículo anterior, correrán a cargo del Sistema de Emergencias 9-1-1, a excepción del pago de parqueos o vigilancia, que correrá a cargo de las instituciones que generaron la solicitud.

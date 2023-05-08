@@ -1,8 +1,0 @@
-Artículo 11.—El préstamo se hará bajo las siguientes condiciones:
-a) Permanecerán bajo la responsabilidad del funcionario indicado por la institución solicitante, a la cual se les delegará el control y supervisión de las acciones en que los vehículos participen, el cual deberá suscribir un acta de entrega, en la cual constaran las condiciones del vehículo.
-b) La responsabilidad de la custodia, uso y resguardo del vehículo corresponde exclusivamente a la institución beneficiaria.
-c) Deberán ser objeto de recorridos debidamente planificados, en el espacio y en el tiempo, según las condiciones y las posibilidades del vehículo respectivo.
-d) Deberá llevarse una bitácora sobre la operación del automotor.
-e) El funcionario de la institución beneficiaria que realice la conducción del vehículo, deberá contar con la licencia y capacitación necesaria, según el caso.
-f) Deberá elaborarse un informe al final del evento, por parte del funcionario responsable de la institución solicitante, en que, además de la bitácora, se recopile toda la información de interés para dejar documentada la participación del vehículo, además de las condiciones en que se entrega el vehículo y deberá contener el aval del jerarca o representante ante la Comisión Coordinadora de la institución responsable de la solicitud del vehículo.
-g) En caso de pérdida parcial o total, por accidente o robo, o el mantenimiento correctivo por mal uso, los costos que no ampare la póliza respectiva le corresponden a la institución solicitante. De las situaciones descritas se deberá de hacer reporte inmediato al encargado del 9-1-1.

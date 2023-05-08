@@ -1,6 +1,0 @@
-Artículo 2º—Definiciones:
-a. Vehículos del Sistema de Emergencias 9-1-1: Aquéllos vehículos automotores que registralmente pertenezcan al patrimonio del Sistema de Emergencias 9-1-1, y estén tutelados bajo su responsabilidad.
-b. Asignación de vehículos: Acción mediante la cual un vehículo automotor del Sistema de Emergencias 9-1-1 puede participar en acciones de emergencias, en forma coordinada.
-c. Operadores de vehículos: Son aquellos funcionarios del Sistema que reúnen los requisitos formales y de experiencia para operar los diferentes vehículos que integran la flotilla del Sistema de Emergencias 9-1-1.
-d. Funcionarios competentes: Son aquellos funcionarios, tanto de las instituciones adscritas al Sistema, como de su estructura jerárquica, que tienen la potestad de solicitar o autorizar, respectivamente según sea el caso, la participación de vehículos del Sistema en actividades interinstitucionales.
-e. Acciones de emergencias: Son aquéllas actividades que se relacionan, tanto a las diferentes fases críticas de una emergencia, tales como la fase de choque y la de mitigación inicial, como a los ejercicios derivados de actividades de prevención, tales como divulgación, simulacros o simulaciones.
