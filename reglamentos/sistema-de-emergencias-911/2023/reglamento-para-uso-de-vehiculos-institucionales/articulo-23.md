@@ -1,0 +1,1 @@
+Artículo 23.-Venta de vehículos. El Proceso de Servicios Generales podrá recomendar a la Dirección la venta o canje de unidades que por alguna circunstancia han dejado de ser útiles para la Institución, debidamente documentada su conveniencia y factibilidad. Para lo anterior aplicará lo dispuesto en la Ley de Contratación Administrativa y su Reglamento.

@@ -1,0 +1,1 @@
+Artículo 27.-Debido proceso. Servicios Generales analizará las circunstancias de todo accidente de tránsito en que participe un vehículo de la institución y rendirá un informe con la recomendación respectiva a la Unidad competente, cuyo Superior Jerárquico valorará la pertinencia de un proceso ordinario disciplinario conforme las normas y reglamento interno de trabajo.

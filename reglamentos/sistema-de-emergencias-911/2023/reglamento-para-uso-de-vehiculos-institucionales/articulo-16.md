@@ -1,0 +1,1 @@
+Artículo 16.-Prioridad de parqueo. Los vehículos propiedad del Sistema, alquilados o prestados tendrán prioridad de estacionamiento en los parqueos de la Institución. Dicha prioridad será definida mediante la rotulación de parqueos para vehículos institucionales. Será responsabilidad de Servicios Generales velar por el cumplimiento de lo aquí dispuesto.

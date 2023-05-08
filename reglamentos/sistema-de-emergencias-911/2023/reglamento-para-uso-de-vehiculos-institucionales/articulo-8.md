@@ -1,0 +1,4 @@
+Artículo 8°-Responsabilidades del Superior Jerárquico.
+a. Tramitar la autorización para conducir vehículos institucionales, ante Servicios Generales mediante el formulario "F-SG- 002, Solicitud para autorizar conductor de vehículos".
+b. Autorizar previamente las solicitudes de transporte del personal a su cargo, para atender las funciones propias de la unidad . En caso de que el superior jerárquico se encuentre en teletrabajo, podrá autorizar las solicitudes que realicen sus colaboradores por medio de correo electrónico y una vez que se presente a las instalaciones, deberá firmar físicamente el formulario "F-SG-001 Movimiento Diario de Vehículo".
+c. Controlar y vigilar que el vehículo sea utilizado para el fin que fue solicitado, y tomar las medidas administrativas que correspondan en caso de incumplimientos.

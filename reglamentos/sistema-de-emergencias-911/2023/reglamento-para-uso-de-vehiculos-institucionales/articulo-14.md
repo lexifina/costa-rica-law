@@ -1,0 +1,1 @@
+Artículo 14.-Condiciones de la devolución de vehículo. Una vez finalizado el servicio, el vehículo deberá quedar completamente descargado afín de poder atender la demanda diaria. En caso de gira donde su regreso sea igual o posterior de la hora de salida, se permitirá descargarlo a más tardar el día siguiente hábil y deberá entregarse con el tanque lleno de combustible.

@@ -1,0 +1,1 @@
+Artículo 17.-Condiciones de uso de vehículos en casos de emergencia nacional. Cuando se declare estado de emergencia nacional, se dará prioridad en la asignación de vehículos institucionales a los representantes ante el COE, reconociendo que las convocatorias se realizan tanto dentro como fuera de la jornada laboral ordinaria.
