@@ -1,0 +1,5 @@
+ARTÍCULO 2- Plazo de prescripción
+La acción de la Caja Costarricense de Seguro Social (CCSS) para determinar la obligación contributiva de los trabajadores independientes, imponer sanciones y/o para cobrar la obligación principal y sus sanciones prescribirá en un plazo de cuatro años; igual término rige para exigir el pago de dichas cuotas .
+En el caso de los trabajadores independientes que no se inscriban ante la Caja Costarricense de Seguro Social, incumplan sus deberes formales de declaración debidamente regulados o los que estén registrados, pero hayan presentado declaraciones calificadas como fraudulentas, el plazo de prescripción será de diez años.
+La prescripción deberá ser declarada en sede administrativa a petición del trabajador independiente, sin perjuicio de que pueda ser alegada también en sede judicial.
+Las obligaciones que no se paguen, por declararse la prescripción de los periodos que correspondan, no generan derechos al contribuyente para efectos de las cuotas del Régimen de Invalidez, Vejez y Muerte (IVM).
