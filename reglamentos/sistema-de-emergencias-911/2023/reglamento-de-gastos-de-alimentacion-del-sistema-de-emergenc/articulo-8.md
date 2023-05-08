@@ -1,0 +1,1 @@
+Artículo 8°-Solicitud y autorización. Las solicitudes de alimentación serán realizadas justificadas y presentadas por los funcionarios a cargo de la actividad y autorizadas por el respectivo Superior inmediato en forma previa, hasta por un monto de doscientos mil colones y por una única vez. Solicitudes de montos superiores serán además avaladas por la Dirección.

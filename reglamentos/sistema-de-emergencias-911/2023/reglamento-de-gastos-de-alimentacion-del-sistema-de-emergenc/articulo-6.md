@@ -1,0 +1,1 @@
+Artículo 6°-Monto máximo del gasto. El monto máximo a pagar será el establecido en el Reglamento de Gastos de Viaje y de Transporte para Funcionarios Públicos, emitido por la Contraloría General de la República.

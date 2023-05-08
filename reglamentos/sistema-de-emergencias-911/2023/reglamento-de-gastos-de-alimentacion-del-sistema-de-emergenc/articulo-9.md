@@ -1,0 +1,1 @@
+Artículo 9°-Verificación de requisitos. La verificación de la procedencia del gasto corresponde al coordinador que lo autoriza, en los términos establecidos en este Reglamento y deberá quedar debidamente justificado dentro de los documentos de liquidación que correspondan.
