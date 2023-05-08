@@ -1,0 +1,1 @@
+Artículo 23.-Aprobación. La fecha de aprobación de la jubilación por incapacidad absoluta y permanente regirá a partir de la fecha que indique el informe de Dirección de la JUNAFO, en el cual se establezca las condiciones en las que la persona declarada inválida se jubilará y se ratificará con el acuerdo adoptado por la Junta Administradora.

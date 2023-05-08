@@ -1,0 +1,5 @@
+CAPÍTULO V
+Reconocimiento de tiempo para efectos jubilatorios
+Artículo 40.-Solicitud del reconocimiento de tiempo servido en el Estado y sus instituciones. El reconocimiento de tiempo servido en el Estado y sus instituciones para efectos de jubilación se tramitará a solicitud de la persona servidora judicial activa. Estos deberán presentar ante la Dirección de Gestión Humana o la dependencia o personal que designe la Junta Administradora para la realización de tales estudios la solicitud de reconocimiento de tiempo servido. En estos casos, la persona servidora judicial, podrá presentar su gestión en cualquier momento de su relación de servicio, independientemente del tiempo transcurrido.
+El reconocimiento de tiempo servido rige a partir del día en que la persona interesada complete la documentación requerida para el estudio correspondiente, con el fin de realizar el trámite de la gestión, cuando sea su obligación presentarla. Si en el plazo de tres meses no la completa, se procederá al archivo de la solicitud.
+El cobro del monto correspondiente se inicia desde el momento que el acuerdo adoptado por la JUNAFO aprobando el reconocimiento, se encuentre en firme.

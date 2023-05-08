@@ -1,0 +1,1 @@
+Artículo 22.-Conocimiento. La Junta Administradora conocerá en sesión, de forma prioritaria la información aportada dentro del plazo establecido, después de recibida la información recabada por las oficinas tramitadoras, conocerá la gestión de jubilación por invalidez, para su aprobación.

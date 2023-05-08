@@ -1,0 +1,4 @@
+Artículo 53.-Sumas giradas de más. Cuando se detecte que se generó una suma girada de más a una persona beneficiaria de una jubilación o pensión se procederá por parte de la Dirección de la JUNAFO o la asesoría que designe esta, a realizar lo siguiente:
+a)- Se procederá a dialogar con la persona que se le realizó una suma girada de más, con la finalidad de acordar un arreglo de pago.
+b)- En caso de no consensuar un arreglo de pago, se procederá con la apertura del procedimiento administrativo ordinario establecido en la Ley General de la Administración Pública y el reglamento que para ese tipo de actuaciones administrativas pueda dictar la Junta, lo anterior a efecto de proceder a la recuperación de los dineros girados de más.
+La Dirección de la JUNAFO o la asesoría que esta designe, según corresponda, informará semestralmente a la Junta Administradora los procesos de recuperación de sumas pagadas de más a una persona beneficiaria.

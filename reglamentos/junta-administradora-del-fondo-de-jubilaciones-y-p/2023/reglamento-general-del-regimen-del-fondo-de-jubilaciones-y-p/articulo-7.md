@@ -1,0 +1,2 @@
+Artículo 7º-Remisión de la información. Una vez verificados por la Dirección de la JUNAFO los requisitos y al determinar que se cumple con cada uno de ellos, deberá remitir el informe de la gestión con el cálculo del monto de jubilación respectivo a la Junta Administradora, con la finalidad de agendarse para la sesión que corresponda, para la valoración por parte de la JUNAFO.
+Todo lo anterior en los plazos de calificación establecidos en el artículo 5 de este reglamento.

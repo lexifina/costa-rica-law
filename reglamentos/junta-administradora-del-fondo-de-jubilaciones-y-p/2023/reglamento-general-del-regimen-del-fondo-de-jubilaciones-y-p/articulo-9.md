@@ -1,0 +1,1 @@
+Artículo 9º-Solicitud de información. La Junta Administradora y la Dirección de la JUNAFO, puede solicitar la información que estime pertinente para la correcta ejecución de las atribuciones que la ley le confiere

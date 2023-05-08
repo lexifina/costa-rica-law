@@ -1,0 +1,2 @@
+Artículo 34.-Servicios profesionales. En caso de requerirse, la Junta Administradora podrá contratar servicios profesionales de trabajo social externos al Poder Judicial para la elaboración de estudios socioeconómicos.
+El tiempo de entrega de los informes se estipulará en el momento que se contrate el servicio profesional, en el entendido de que se deberá respetar el plazo establecido para cada uno de ellos.

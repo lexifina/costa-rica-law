@@ -1,0 +1,1 @@
+Artículo 42.-Prohibición de doble cómputo. En caso de que una persona haya trabajado simultáneamente en diferentes entes del Estado y sus instituciones, el tiempo servido no se podrá computar doble; "Prevalecerá la de mayor tiempo servido".

@@ -1,0 +1,4 @@
+Artículo 27.-Pensión por sobrevivencia. Tienen derecho a pensión por sobrevivencia las personas que se encuentren dentro de los siguientes supuestos:
+a) Persona cónyuge sobreviviente de la persona servidora judicial fallecida o jubilada fallecida que dependa económicamente de la persona causante, al momento del fallecimiento.
+b) Compañero o compañera sentimental económicamente dependiente al momento del fallecimiento de la persona servidora activa o jubilada, que haya convivido por lo menos dos años previos al deceso y tuvieran ambas aptitudes legales para contraer nupcias, conforme la legislación civil.
+c) Persona cónyuge divorciada, separada judicialmente, separada de hecho o excompañera sentimental, que disfruta a la fecha del deceso de la persona causante de una pensión alimentaria, declarada por sentencia judicial firme o que demuestre que recibía una ayuda económica por parte de la causante.
