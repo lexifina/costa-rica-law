@@ -1,0 +1,1 @@
+Artículo 2.- Declaratoria de interés público. Se declara de interés público el Sistema Nacional de Combustibles a cargo de la Refinadora Costarricense de Petróleo S.A. (RECOPE), por tratarse de bienes estratégicos para la nación, que permiten garantizar el servicio público del suministro de combustibles derivados del petróleo y sus mezclas.

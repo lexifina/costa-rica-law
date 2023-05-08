@@ -1,0 +1,2 @@
+Artículo 19.- Traslado de vehículos decomisados. Para asegurar la integridad de los medios utilizados para la consecución del delito, los cuerpos policiales darán acompañamiento al personal de RECOPE u otras autoridades autorizadas para transportar vehículos decomisados, hasta la llegada a la Terminal de RECOPE más cercana, para la disposición del combustible decomisado.
+Una vez que RECOPE disponga del producto dentro de su Terminal, los cuerpos policiales deberán retirar y asegurar los medios de transporte o almacenamiento utilizados para la consecución del delito.

@@ -1,0 +1,1 @@
+Artículo 12.- Determinación de marcadores y mecanismos de trazabilidad. Para la determinación de los marcadores o los mecanismos de trazabilidad, RECOPE valorará las propiedades físico-químicas de sus productos y del impacto económico que pueda tener en la tarifa de los combustibles.

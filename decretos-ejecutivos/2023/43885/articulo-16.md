@@ -1,0 +1,1 @@
+Artículo 16.- Disposición de los combustibles decomisados. RECOPE únicamente dispondrá de los combustibles decomisados, y esto no lo constituye necesariamente en depositario judicial; no así los otros medios utilizados para la consecución del delito, los cuales quedan a la orden de los órganos jurisdiccionales o el Ministerio Público.

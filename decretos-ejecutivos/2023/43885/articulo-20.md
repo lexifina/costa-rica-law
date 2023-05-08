@@ -1,0 +1,1 @@
+Artículo 20.- Pruebas. Cuando el combustible decomisado ingresa a alguna de las Terminales de abastecimiento de RECOPE, se realizarán las pruebas de calidad y medición volumétrica que determinen los protocolos internos de la RECOPE, y posteriormente, podrá disponer el combustible para el reingreso al SNC.

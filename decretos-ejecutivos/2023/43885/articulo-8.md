@@ -1,0 +1,1 @@
+Artículo 8.- Distribución ilegal de combustible. Se considera distribución ilegal de combustibles, la distribución y venta que se realiza sin contar con la concesión de servicio público otorgado por el MINAE

@@ -1,0 +1,1 @@
+Artículo 14.- Solicitud de Asistencia Los cuerpos policiales podrán remitir la solicitud de asistencia a RECOPE de manera escrita, mediante oficio suscrito al superior jerárquico en cada caso, esta solicitud podrá ser tramitada por los medios electrónicos oficiales.

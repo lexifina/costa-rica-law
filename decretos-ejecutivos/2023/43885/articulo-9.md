@@ -1,0 +1,1 @@
+Artículo 9.- Introducción ilegal de combustibles. Se entiende por introducción ilegal de combustibles derivados de petróleo, el ingreso por vía marítima, aérea o terrestre, al territorio nacional, sin la debida autorización de RECOPE y MINAE, ni en apego a los controles aduaneros o los distintos tratados internacionales suscritos por el país.
