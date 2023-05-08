@@ -1,1 +1,0 @@
-Artículo 7º-De las represalias. Se asegura al denunciante que no se tomarán represalias de ninguna índole y en caso de presentarse alguna, será revertido contra la persona que las emprenda, mediante la aplicación de las sanciones pertinentes.
