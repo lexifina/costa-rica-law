@@ -1,2 +1,0 @@
-Artículo 20.—La circulación de vehículos propiedad del Sistema, prestados o alquilados en horas y días no hábiles esta restringida estrictamente a la atención de averías o a la realización de labores que no se puedan postergar. Para este efecto el Área de Servicios Generales emitirá un permiso según sea el caso.
-Para labores técnicas la vigencia del permiso será por un período máximo de UN MES. Para los vehículos de uso administrativo se requiere de un permiso diario; en caso de giras el permiso será por un máximo de seis días.

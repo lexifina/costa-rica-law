@@ -1,1 +1,0 @@
-Artículo 16.—Siempre que las circunstancias lo permitan y para lograr el mayor aprovechamiento de las unidades disponibles, se dispondrán en un solo viaje las solicitudes de transporte que se generen hacia un mismo sitio o ruta, dando aviso oportuno a los interesados para lograr una adecuada coordinación del viaje.

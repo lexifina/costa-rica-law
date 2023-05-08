@@ -1,1 +1,0 @@
-Artículo 21.—Para la circulación diaria en días hábiles de los vehículos de uso administrativo, se debe portar en todo momento, la fórmula AUTORIZACIÓN MOVIMIENTO DIARIO DEL VEHÍCULO. Se entiende que dichos vehículos están autorizados a circular de lunes a jueves de las 07 a las 17 horas y los viernes de las 07 a las 15 horas.

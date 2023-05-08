@@ -1,1 +1,0 @@
-Artículo 34.—Los vehículos no deben dejarse estacionados en lugares prohibidos por la ley o donde se ponga en peligro la seguridad de los mismos, sus accesorios, materiales o equipos que transporta. En cumplimiento de lo anterior se deberá actuar de conformidad con el artículo 12 de este Reglamento.

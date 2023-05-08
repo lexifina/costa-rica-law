@@ -1,1 +1,0 @@
-Artículo 17.—El Área de Servicios Generales no asignará vehículos institucionales para que los funcionarios asistan a citas médicas salvo casos justificados en donde medie una situación de verdadera emergencia y facilitará vehículos para la asistencia a cursos de capacitación siempre que las posibilidades lo permitan y se cuente con los respectivos recursos.

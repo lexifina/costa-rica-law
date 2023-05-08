@@ -1,1 +1,0 @@
-Artículo 39.—Ningún conductor de la Institución está autorizado para efectuar arreglos extrajudiciales o conciliaciones en nombre de la Institución en caso de accidentes con vehículos del Sistema, prestados o alquilados.

@@ -1,3 +1,0 @@
-CAPÍTULO IV
-De la utilización de los servicios
-Artículo 11.—Todo vehículo propiedad del Sistema, prestado o alquilado deberá ser utilizado únicamente por funcionarios autorizados para ello, exclusivamente en el desempeño de labores propias de la Institución y las características de dicho vehículo deben ajustarse a las condiciones de operación a que es sometido. Ningún funcionario de otra institución ni persona privada, podrá conducir los vehículos del Sistema, salvo autorización expresa del Área de Servicios Generales previa justificación del caso. Corresponde tanto a los conductores, las dependencias solicitantes y al Área de Servicios Generales velar por el acatamiento de esta disposición.

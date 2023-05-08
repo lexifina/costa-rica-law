@@ -1,3 +1,0 @@
-CAPÍTULO III
-De la prestación de los servicios
-Artículo 9º—Todo requerimiento de transporte deberá ser solicitado por la persona debidamente acreditada y planteado mediante un correo electrónico al Área de Servicios Generales con al menos un día de anticipación, justificando claramente la necesidad del servicio. Esta dependencia analizará la misma y de acuerdo con las políticas dictadas sobre el particular y a los intereses institucionales, procederá a la prestación del servicio. Solo en casos calificados se asignará vehículo sin que medie el tiempo establecido en este artículo y supeditado a la disponibilidad de recursos.

@@ -1,1 +1,0 @@
-Artículo 51.—Se excluye del artículo anterior el Director del Sistema, Auditor, los Coordinadores de Proceso y Subproceso así como el personal técnico que por la naturaleza de su trabajo, deban permanecer dentro de las instalaciones en horarios no hábiles.

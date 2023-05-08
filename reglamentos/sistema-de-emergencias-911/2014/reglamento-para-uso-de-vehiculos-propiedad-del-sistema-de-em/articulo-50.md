@@ -1,1 +1,0 @@
-Artículo 50.—Los funcionarios del Sistema de Emergencias 9-1-1, podrán utilizar las áreas de parqueo, únicamente dentro de los horarios establecidos para cada jornada laboral, salvo autorización expresa del Área de Servicios Generales y a solicitud del coordinador del proceso o subproceso correspondiente.
