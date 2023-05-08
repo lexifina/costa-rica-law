@@ -1,0 +1,5 @@
+Artículo 12- De los días de sorteos.
+Los sorteos de esta promoción se realizarán en conjunto con los sorteos de Nuevos Tiempos, de conformidad con lo establecido en el artículo 10 del Reglamento del Juego Nuevos Tiempos vigente.
+El día, la hora o el lugar de realización de estos sorteos podrán ser modificados por la Junta Directiva de la Junta, previa comunicación al público general por los medios correspondientes según la Ley. Así mismo, la Junta se reserva el derecho de eliminar o suprimir sorteos, siempre y cuando existan razones de fuerza mayor o caso fortuito que impidan su realización.
+En caso de anticipar o suprimir algún sorteo, la comunicación deberá hacerse conforme se establece en el Reglamento del Juego Nuevos Tiempos vigente.
+Los sorteos serán realizados y fiscalizados de acuerdo con lo establecido en el Reglamento a la Ley de Loterías, en el Reglamento interno para regular las actividades relacionadas con la realización y la asistencia a la celebración de los sorteos de lotería y a la recepción de excedentes de loterías, así como cualquier otra normativa que se emita al efecto.

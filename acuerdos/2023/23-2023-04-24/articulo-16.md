@@ -1,0 +1,3 @@
+Artículo 16- Caducidad.
+El plazo para hacer efectivos los premios, es de sesenta días naturales contados a partir del día hábil siguiente a la realización del sorteo, de conformidad con lo establecido en el artículo 18 de la Ley No. 8718.
+En el caso de que en un mismo comprobante de transacción existan apuestas para sorteos en distintas fechas, el plazo para hacer efectivos los premios, es de sesenta días naturales contados a partir del día hábil siguiente a la realización del sorteo correspondiente. Es decir, cada apuesta registrada en ese comprobante de transacción tendría distintos plazos de caducidad para hacer efectivos los premios. Si el plazo se computa en un día inhábil el premio se hará efectivo el día hábil inmediato siguiente.
