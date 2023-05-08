@@ -1,0 +1,1 @@
+Artículo 24.-De las recomendaciones finales. La CEAL podrá recomendar a la Secretaría Ejecutiva la recomendación final entorno a la investigación la cual podrá considerar la adopción de medidas complementarias o un plan de acción de carácter preventivo debidamente fundamentado, esto con el fin de garantizar un clima laboral de respeto a las personas que laboran en la institución.

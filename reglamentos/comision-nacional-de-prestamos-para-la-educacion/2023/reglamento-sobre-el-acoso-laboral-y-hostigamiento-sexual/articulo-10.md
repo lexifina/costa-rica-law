@@ -1,0 +1,1 @@
+Artículo 10.-Prohibición de discriminación. Queda prohibido a todo funcionario de Conape o trabajador que desarrolle actividades bajo la supervisión o subordinación de Conape, cualquier conducta tendiente a la discriminación en perjuicio de la persona denunciante por acoso laboral u hostigamiento sexual.

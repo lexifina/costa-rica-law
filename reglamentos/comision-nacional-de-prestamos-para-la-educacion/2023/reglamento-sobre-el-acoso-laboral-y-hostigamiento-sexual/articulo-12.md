@@ -1,0 +1,1 @@
+Artículo 12.-Plazo de prescripción para interponer la denuncia. El plazo para denunciar un hecho de hostigamiento sexual o acoso laboral es de dos años, computado a partir del último hecho constitutivo de la supuesta conducta o a partir del cese del puesto del supuesto acosador.
