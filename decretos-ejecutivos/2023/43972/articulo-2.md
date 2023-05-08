@@ -1,0 +1,2 @@
+Artículo 2º.- Deróguese la nota introductoria de la Sección Tercera del artículo 1 del Decreto Ejecutivo N°35757-RE del 4 de enero de 2010, Arancel Consular, publicado en el Diario Oficial La Gaceta N° 36 del 22 de enero de 2010, la cual señala lo siguiente:
+"NOTA: A los montos estipulados en la presente Sección, se cobrará un monto adicional de $1.00 para nacionales y de $2.00 para extranjeros, que serán destinados a cubrir el servicio de mantenimiento de las máquinas franqueadoras".
