@@ -1,0 +1,1 @@
+Artículo 2°-Derogatoria. Deróguese el Decreto Ejecutivo N° 38106-SP "Política Institucional de Igualdad y Equidad de Género (PIEG-MSP), actualizada y armonizada con los avances que en el país se han dado", del 18 de noviembre de 2013, publicado en La Gaceta N° 247 del 23 de diciembre de 2013.
