@@ -1,0 +1,1 @@
+ARTÍCULO 2- La República de Costa Rica entiende que la obligación de conceder asistencia judicial se brindará de conformidad con lo dispuesto por la Ley 7425, Ley sobre Registro, Secuestro y Examen de Documentos Privados e intervención de las Comunicaciones, de 9 de agosto de 1994.

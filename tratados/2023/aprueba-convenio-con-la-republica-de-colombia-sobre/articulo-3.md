@@ -1,0 +1,1 @@
+ARTICULO 3- La República de Costa Rica entiende que la autorización para el traslado provisional de personas detenidas (incluyendo la que está cumpliendo la condena en forma de privación de libertad) será transmitida y gestionada por la autoridad central de la parte requerida ante las autoridades judiciales correspondientes, según lo dispuesto por el derecho interno.
