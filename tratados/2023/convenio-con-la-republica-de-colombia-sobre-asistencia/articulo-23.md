@@ -1,0 +1,22 @@
+ARTÍCULO 23
+EQUIPOS INVESTIGATIVOS COMUNES
+1. Las autoridades competentes podrán, de común acuerdo, constituir equipos investigativos conjuntos para desarrollar investigaciones penales en el territorio de una Parte, o de las dos Partes, y podrá incluir adicionalmente a personal de policía judicial u otros miembros de la autoridad judicial.
+2. El equipo operará dentro de los límites de su competencia según el derecho interno de la Parte en cuyo territorio interviene, y de conformidad con lo establecido en el acuerdo de investigación
+3. El equipo investigativo común operará en el territorio de las Partes según las siguientes condiciones generales:
+a) El encargado del equipo es la autoridad competente que participa en las investigaciones penales y las dirige, en cuyo territorio interviene el equipo.
+b) El equipo ejercerá su propia actividad dentro del respeto a las leyes de la Parte en cuyo territorio interviene. En desarrollo de sus funciones, los miembros del equipo responderán ante la persona a que se refiere el punto a, teniendo en cuenta las condiciones establecidas por las correspondientes autoridades en el acuerdo sobre la constitución del equipo;
+c) La parte en cuyo territorio interviene el equipo preparará las condiciones organizativas necesarias para permitirle operar.
+4. De conformidad con el presente artículo, los miembros del equipo común procedentes de la Parte en cuyo territorio interviene el equipo se llaman "miembros", en tanto los miembros que proceden de la otra Parte se llamarán "miembros destacados".
+5. Los miembros destacados del equipo investigativo común serán autorizados para hacerse presentes en el territorio de la Parte de la intervención cuando se hayan adoptado medidas investigativas. Sin embargo, por especiales razones el director del equipo podrá disponer de manera diferente de conformidad con la legislación de la Parte Requerida.
+6. Los miembros destacados del equipo investigativo pueden, de conformidad con la legislación de la Parte Requerida, presenciar la ejecución de algunas medidas investigativas por el director del equipo, sólo si ha sido aprobado por las autoridades competentes de la Parte Requirente.
+7. Si el equipo investigativo común ve la necesidad de que en el territorio de la Parte Requirente se adopten medidas investigativas, las personas destacadas de la Parte Requirente podrán pedirlas directamente a sus propias autoridades competentes. Las medidas en cuestión serán examinadas en la Parte Requirente en las condiciones en que se aplicarán cuando fueran solicitadas dentro de una investigación adelantada a nivel nacional.
+8. Si el equipo investigativo común tiene la necesidad de la asistencia de un tercer Estado, las autoridades competentes de la Parte Requerida podrán solicitarla a las autoridades competentes del tercer Estado, de conformidad con los instrumentos o disposiciones pertinentes.
+9. En orden a una investigación penal adelantada por el equipo investigativo común un miembro destacado del equipo podrá, conforme a su derecho nacional y dentro de los límites de su competencia, suministrar al equipo informaciones disponibles en la Parte que lo ha destacado.
+10. Las informaciones obtenidas, judicialmente por un miembro o por un miembro destacado durante su participación en un equipo investigativo común, que de otra manera no serían obtenibles por las autoridades competentes de las Partes interesadas, podrán ser utilizadas:
+a) Para los fines previstos en el acto de constitución del equipo;
+b) Para la identificación, la investigación y la persecución de otros delitos, previa autorización de la Parte en la cual fue obtenida la información. Dicho consentimiento solamente podrá ser negado cuando su uso ponga en peligro las investigaciones penales de la Parte interesada o cuando esta última pueda negar la asistencia judicial
+c) Para impedir una amenaza inmediata y grave contra la seguridad pública, sin perjuicio de las disposiciones del punto b, en caso de posterior adelantamiento de una investigación penal.
+Las actas y documentos obtenidos en desarrollo de este artículo podrán ser utilizados de conformidad con la legislación interna de cada Parte .
+11. Para los efectos del presente artículo, se entenderá como autoridad competente las siguientes:
+a) Para la República de Costa Rica es la Oficina de Asesoría Técnica y Relaciones Internacionales de la Fiscalía General de la República.
+b) Para la República de Colombia es la Fiscalía General de la Nación.

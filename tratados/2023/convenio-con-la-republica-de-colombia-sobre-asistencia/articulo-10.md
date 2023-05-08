@@ -1,0 +1,10 @@
+ARTÍCULO 10
+RECOLECCIÓN DE EVIDENCIAS FÍSICAS Y ELEMENTOS MATERIALES
+PROBATORIOS EN EL ESTADO REQUERIDO
+1. La Parte Requerida recibirá en su territorio, entre otros, testimonios de testigos, víctimas y personas investigadas o procesadas, peritajes, documentos, objetos y demás pruebas señaladas en la solicitud, de acuerdo con su legislación y los transmitirá a la Parte Requirente.
+2. A solicitud especial de la Parte Requirente, la Parte Requerida señalará la fecha y lugar de cumplimiento de la solicitud. Los funcionarios representantes de órganos competentes podrán presenciar el cumplimiento de la solicitud y además podrán trasladar la prueba directamente sólo si la parte Requirente lo autoriza.
+3. A los representantes de las autoridades competentes de la Parte Requirente presentes en la ejecución de la solicitud se les permitirá formular preguntas que puedan ser planteadas a la persona correspondiente, a través del representante de la autoridad competente de la Parte Requerida, si ésta lo considera pertinente.
+4. La Parte Requirente cumplirá toda condición acordada con la Parte Requerida relativa a los documentos y objetos que le entregue, incluyendo la protección de derechos de terceros sobre tales documentos u objetos.
+5. A petición de la Parte Requerida, la Parte Requirente devolverá a la brevedad posible los originales de los documentos y objetos que le hayan sido entregados, de acuerdo con el numeral 1 º del presente artículo. La entrega y devolución de los objetos en el marco de la asistencia judicial, se realizará libre de impuestos.
+6. La persona citada a declarar tendrá la facultad de negarse a prestar declaraciones cuando la legislación del Estado Requerido o del Estado Requirente lo permita; para tal efecto, el Estado Requirente deberá hacer mención expresa de ello en la solicitud de asistencia .
+7. La Parte Requerida admitirá la presencia del defensor de la persona citada a declarar cuando ello sea previsto por la legislación del Estado Requirente y no esté en conflicto con la de la Parte Requerida.

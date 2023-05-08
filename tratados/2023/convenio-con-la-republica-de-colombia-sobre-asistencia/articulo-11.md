@@ -1,0 +1,11 @@
+ARTÍCULO 11
+AUDIENCIA POR VIDEOCONFERENCIA
+1. El interrogatorio de testigos, investigados o procesados, peritos o víctimas que deban comparecer ante la Parte Requirente, se tramitará, preferentemente, por medio de videoconferencia.
+2. La Parte Requerida consentirá la audiencia por videoconferencia en la medida en que dicho método no resulte contrario a su legislación y procedimientos internos.
+Si la Parte Requerida no dispone de los medios técnicos que permitan una videoconferencia, la Parte Requirente podrá ponerlos a su disposición.
+3. Las reglas siguientes se aplicarán a la audiencia por videoconferencia:
+a) La audiencia será realizada en presencia de una autoridad competente de la Parte Requerida. Esta autoridad también es responsable de la identificación de la persona a la que se toma declaración y del respeto de la legislación interna de la Parte Requerida. En el caso de que la autoridad de la Parte Requerida estime que no se respetan los principios fundamentales de su derecho durante la audiencia, adoptará inmediatamente las medidas necesarias para velar porque dicha audiencia prosiga conforme a dichos principios;
+b) las autoridades competentes de las Partes convendrán, de ser necesario, las medidas relativas a la protección de la persona que comparezca;
+c) la audiencia se efectuará directamente por la Parte Requirente, o bajo su dirección, de conformidad con su legislación interna; y al término de la audiencia, la autoridad competente de la Parte Requerida levantará un acta, indicando la fecha, hora y lugar de la misma, la identidad de la persona que compareció, su contenido, así como las identidades y calidades de las demás personas que hayan participado en la audiencia. Este documento será transmitido a la Parte Requirente.
+4. Las Partes convendrán, a través de sus autoridades centrales, proveer de un intérprete y/o defensor a la persona. En este caso, deberá permitirse al defensor de la persona que comparece, estar presente en el lugar en que ésta se encuentre en la Parte Requerida o bien ante la Autoridad judicial de la Parte Requirente, permitiéndose al defensor poder comunicarse reservadamente a distancia con su asistido;
+5. La Parte Requerida podrá permitir el empleo de tecnologías de conexión en videoconferencia para cualquier otra finalidad prevista en el presente Convenio.

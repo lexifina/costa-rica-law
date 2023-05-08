@@ -1,0 +1,5 @@
+ARTÍCULO 20
+MEDIDAS SOBRE BIENES
+1. Las Partes cooperarán en los ámbitos de localización de bienes, instrumentos o productos directo e indirecto del delito, y aplicarán las medidas adecuadas con respecto a ellos, de acuerdo a su legislación interna.
+Tal cooperación se basará en las disposiciones del presente Convenio, así como en las disposiciones correspondientes en la Convención de las Naciones Unidas contra la Delincuencia Organizada Trasnacional del 15 de noviembre de 2000, en particular en sus artículos 2, 12, 13 y 14, y se extenderá no solo a los delitos previstos en esta Convención sino a cualquier otro hecho delictivo, observando el punto 2 del Artículo 1 del presente Convenio.
+2. Las Partes podrán repartir o restituir los bienes o activos una vez que exista sentencia firme y se haya resuelto su destino. Para lo anterior, las Partes podrán celebrar para cada caso los acuerdos complementarios o arreglos específicos en los que se determine, entre otras circunstancias, los bienes a ser compartidos, la cuantía o porción de los mismos que le corresponderá a cada Parte, y las condiciones particulares pertinentes.
