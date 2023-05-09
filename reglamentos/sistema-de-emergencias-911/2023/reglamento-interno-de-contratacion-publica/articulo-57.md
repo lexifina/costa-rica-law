@@ -1,0 +1,1 @@
+Artículo 57. Si el recurso es declarado con lugar, la Proveeduría, en coordinación con el Administrador de Contrato, se encargará de efectuar las modificaciones y comunicarlas o publicarlas en el Sistema Digital Unificado de Compras Públicas.

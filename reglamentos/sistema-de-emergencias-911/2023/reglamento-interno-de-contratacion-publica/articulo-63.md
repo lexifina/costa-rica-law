@@ -1,0 +1,1 @@
+Artículo 63. Una vez que sean remitidos los respectivos pronunciamientos o cuando el mismo sea conjunto, la Proveeduría deberá enviar la respuesta debidamente firmada por el Jerarca al Órgano Contralor antes de que se cumpla el plazo concedido por éste.

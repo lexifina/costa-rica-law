@@ -1,0 +1,1 @@
+Artículo 16. Si en el momento de iniciar un procedimiento concursal, se determina que el monto estimado y publicado en el Programa de Adquisiciones es significativamente distinto (superior o inferior), se requerirá realizar el ajuste respectivo, realizando de previo la debida modificación y publicación en el Programa de Adquisiciones.

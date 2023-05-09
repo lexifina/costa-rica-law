@@ -1,0 +1,1 @@
+Artículo 23. El pliego de condiciones lo confeccionará el Administrador de Contrato siguiendo los lineamientos en materia de contratación pública que establezca la Proveeduría. Una vez revisado y aprobado por la Proveeduría, la Asesoría Legal y el Administrador operativo, deberá ser publicado, cumpliendo especialmente lo que se refiere a autorizaciones y requisitos previos.

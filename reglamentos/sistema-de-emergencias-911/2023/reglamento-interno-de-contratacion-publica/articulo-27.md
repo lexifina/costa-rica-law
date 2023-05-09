@@ -1,0 +1,1 @@
+Artículo 27. En el caso de las licitaciones menores, el plazo para presentar ofertas no podrá ser inferior a cinco ni mayor a quince días hábiles, con una prórroga por un tanto igual al previsto inicialmente, según lo dispuesto en la Ley General de Contratación Pública.

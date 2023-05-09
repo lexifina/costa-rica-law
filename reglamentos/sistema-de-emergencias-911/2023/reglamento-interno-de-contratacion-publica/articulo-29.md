@@ -1,0 +1,1 @@
+Artículo 29. La Licitación Reducida es el procedimiento que permite al 9-1-1 adquirir bienes y/o servicios por montos iguales o menores al límite establecido por la legislación nacional para este tipo de trámite.

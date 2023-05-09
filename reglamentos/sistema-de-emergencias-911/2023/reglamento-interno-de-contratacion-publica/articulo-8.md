@@ -1,0 +1,21 @@
+Artículo 8. El Administrador de Contrato ejercerá las siguientes funciones:
+a) Preparar el pliego de condiciones de la contratación con base en los insumos compilados, responder los recursos de objeción, modificaciones, prórrogas y aclaraciones, recursos de revocatoria o apelación presentados y brindar la información necesaria y oportuna con el fin de resolver en tiempo.
+b) Realizar el análisis y valoración de ofertas (no técnica, ni legal), tales como condiciones generales, vigencia de la oferta, algunos aspectos de admisibilidad entre otras condiciones del pliego atinentes al Administrador del Contrato y emitir la respectiva recomendación de adjudicación, con estricto apego a los requerimientos del pliego.
+c) Facilitar a la Asesoría Jurídica la información para la elaboración de acuerdos, convenios y cualquier otro que sea necesario.
+d) Preparar la recomendación de adjudicación de las contrataciones a su cargo.
+e) Gestionar la prórroga al plazo de adjudicación en forma oportuna y debidamente documentada conforme a la normativa vigente
+f) Administrar la ejecución de los contratos velando y gestionando la entrega y recibo de los bienes y de los servicios que suscriba el 9-1-1 con particulares o terceros.
+g) Velar por la correcta ejecución de los contratos que se le asigne, asimismo, será responsable en conjunto con el administrador operativo de la recepción y aceptación de los bienes y servicios.
+h) De manera particular autorizar los trámites de recepción y de pagos, la solicitud de ejecución de las multas y cláusulas penales, así como solicitar la ejecución o devolución de las garantías, según lo establecido en la normativa vigente.
+i) Tramitar el proceso de rescisión o resolución contractual según corresponda, así como ejecutar la garantía cuando proceda, según lo establecido en la Ley General de Contratación Pública, su reglamento y el pliego de condiciones. En la solicitud deberá indicar expresamente los motivos que amparan el requerimiento solicitado.
+j) Realizar la investigación preliminar (relación de hechos) ante cualquier incumplimiento contractual, así como de coordinar y preparar junto con Finanzas y el administrador operativo lo necesario para la estimación de los daños y perjuicios que se deben calcular, la cláusula penal, las multas y en caso de ser necesario para la ejecución de la garantía de cumplimiento y remitírselo al Proveedor para el trámite que corresponda.
+k) Realizar el trámite para la gestión de cobros y reclamos administrativos, prórrogas y sanciones a los contratistas.
+l) Preparar en coordinación con cualquier otra unidad que se requiera, el informe final del cumplimiento de los objetivos de la contratación, con el fin de asegurar el fiel cumplimento de las condiciones contractuales pactadas objeto de la contratación, tanto cualitativa como cuantitativamente, cuando proceda gestionar la instrucción del finiquito del contrato e incorporarlo en el expediente de la contratación.
+m) Incorporar en el expediente todos los documentos oficiales que se generen o los que reciba del contratista en torno a una contratación específica.
+n) Levantar minutas de las reuniones sostenidas con el contratista o con el administrador operativo y proceder a su incorporación al expediente.
+o) Verificar para la autorización del pago de las facturas correspondientes y las solicitudes de reajuste de precios durante la fase de ejecución contractual, que el contratista se encuentra al día con el pago de las cuotas obrero-patronales de la Caja Costarricense de Seguro Social.
+p) Coordinar la obtención de autorizaciones para iniciar los procedimientos de contratación que se requieran.
+q) Responder en tiempo y forma las consultas que planteen los oferentes y contratistas.
+r) Canalizar las consultas que genere el equipo técnico hacia los oferentes, en caso de subsanaciones o aclaraciones en el transcurso del estudio técnico de ofertas.
+s) Emitir constancias sobre trabajos realizados para la Institución por parte de los contratistas, para acreditar su experiencia y calidad en otros procesos de contratación pública.
+t) Recibir, validar el contenido y respaldo documental de la solicitud de reajuste de Precios, de previo a trasladar a Finanzas para su aval.

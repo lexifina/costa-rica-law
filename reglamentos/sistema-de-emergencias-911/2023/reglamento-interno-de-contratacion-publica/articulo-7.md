@@ -1,0 +1,1 @@
+Artículo 7. Cuando se requiera cubrir la ausencia del Administrador de Contrato, el Coordinador de Proveeduría en un plazo no mayor a tres días hábiles del conocimiento del hecho que motiva la ausencia, definirá el nombre del nuevo administrador sustituto.

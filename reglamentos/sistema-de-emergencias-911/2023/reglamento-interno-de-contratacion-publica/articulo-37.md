@@ -1,0 +1,1 @@
+Artículo 37. En los contratos continuados con posibilidad de prórrogas contractuales, el Administrador del Contrato informará con dos meses de antelación al Administrador Operativo, para que valore la viabilidad de su prórroga.

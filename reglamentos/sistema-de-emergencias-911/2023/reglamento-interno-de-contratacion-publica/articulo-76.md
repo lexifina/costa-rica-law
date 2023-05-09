@@ -1,0 +1,1 @@
+Artículo 76. La Dirección nombrará al Órgano Director para que dé inicio al debido proceso sumario para la posible aplicación de sanciones al contratista con fundamento en los motivos acreditados por el Administrador de Contrato.

@@ -1,0 +1,1 @@
+Artículo 17. Al finalizar cada período presupuestario la Proveeduría hará una evaluación de la gestión de adquisición de bienes y servicios por proceso relacionándola con el Programa de Adquisiciones e informará sobre el particular a la Dirección. Dicha evaluación incluirá las recomendaciones que la Proveeduría considere pertinentes.

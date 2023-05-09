@@ -1,0 +1,3 @@
+Sección II
+Sanciones a las personas funcionarias
+Artículo 77. Las personas funcionarias del 9-1-1, que realizan una labor de Administrador de Contrato, serán responsables por las consecuencias provocadas a la Institución en razón de los incumplimientos de los contratistas, si pudiendo prever o denunciar a tiempo las transgresiones contractuales, no lo hicieron o no solicitaron las sanciones, ejecuciones, multas, rescisión o resolución respectiva, o cualquier otra que indique la norma o que no se atienda dentro de los plazos de ley las gestiones formuladas por los contratistas o por la Proveeduría, además de la responsabilidad administrativa podrán ser responsables laboral, penal y civilmente, según corresponda.

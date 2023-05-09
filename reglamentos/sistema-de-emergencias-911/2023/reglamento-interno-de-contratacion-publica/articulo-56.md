@@ -1,0 +1,1 @@
+Artículo 56. La respuesta a un recurso interpuesto en una licitación menor será coordinada por la Proveeduría quien en conjunto con la Dirección emitirán la resolución final. En caso de inadmisibilidad del recurso, la Proveeduría podrá rechazarlo de plano.
