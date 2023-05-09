@@ -1,0 +1,1 @@
+Artículo 17. La Comisión Coordinadora sesionará en forma ordinaria una vez al mes, el día que esta defina por medio de acuerdo firme y a partir de las ocho horas; y en forma extraordinaria, cuando se requiera y sea debidamente convocada por su Presidente o por la mitad más uno de sus miembros.

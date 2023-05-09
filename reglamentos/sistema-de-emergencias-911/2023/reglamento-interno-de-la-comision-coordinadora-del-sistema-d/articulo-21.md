@@ -1,0 +1,1 @@
+Artículo 21. Las sesiones de la Comisión Coordinadora se podrán realizar de manera virtual cuando se presenten situaciones de emergencia nacional o cualquier situación que imposibilite la realización de la sesión presencial.
