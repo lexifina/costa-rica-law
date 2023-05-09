@@ -29,3 +29,4 @@ Manual descriptivo de clases de puestos de la Asamblea Legislativa
 | 14 | 2020-11-05 | Acuerdo 2 (2020-11-05) |
 | 15 | 2021-08-10 | Reglamento 170 (2021-08-10) |
 | 16 | 2022-08-09 | Reglamento 13 (2022-08-09) |
+| 17 | 2023-05-09 | Reglamento 49 (2023-05-09) |

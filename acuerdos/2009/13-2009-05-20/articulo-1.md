@@ -327,11 +327,11 @@ Aptitud para evocar con facilidad sonidos e imágenes de forma habitual o instan
 Guardar discreción sobre asuntos que se le encomiendan o de los que tiene conocimiento; solvencia moral, buenas relaciones interpersonales, no poseer antecedentes penales o problemas psicológicos que lo inhabiliten para el ejercicio del cargo y buena condición física. Asertivo en el trato con colaboradores, jefaturas, jerarcas y el público. Adecuada presentación personal.
 CONOCIMIENTOS BÁSICOS
 Cursos de capacitación en el campo de la actividad, las relaciones interpersonales y la normativa institucional.
-CONOCIMIENTOS Y EXPERIENCIA REQUERIDA:
+(*)CONOCIMIENTOS Y EXPERIENCIA REQUERIDA:
 Conclusión de estudios de Enseñanza General Básica.
 Experiencia mínima de dos años en la ejecución de labores relacionadas con el cargo.
-Licencia vigente para conducir vehículo tipo B1.
-Licencia vigente para conducir motocicleta.
+Licencia vigente para conducir vehículo tipo B1."
+(*) (Así reformado el punto anterior en sesión N° 049 del 9 de mayo de 2023)
 ESTRATO CALIFICADO
 Este estrato abarca clases que se encuentran en la base de la estructura ocupacional. Estas ocupaciones se caracterizan por incluir procesos de trabajo cuya ejecución necesita una mayor cualificación ocupacional.
 La formación académica requerida puede ser satisfecha al poseer un diploma de Educación Media y un diploma que le califique para el oficio específico, obtenido tanto en un colegio técnico profesional como en otras instituciones de naturaleza similar. En ocasiones la formación académica puede ser menor a las exigencias indicadas, siempre que el trabajador posea pericia en el desempeño del trabajo.
