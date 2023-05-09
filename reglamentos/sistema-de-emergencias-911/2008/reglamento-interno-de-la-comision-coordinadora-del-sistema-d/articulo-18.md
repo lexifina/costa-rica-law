@@ -1,1 +1,0 @@
-Artículo 18.—No obstante lo establecido anteriormente, la Comisión Coordinadora sesionará válidamente, sin cumplir los requisitos referentes a la convocatoria o a la agenda, cuando estén presentes todos sus miembros y así lo acuerden por unanimidad.

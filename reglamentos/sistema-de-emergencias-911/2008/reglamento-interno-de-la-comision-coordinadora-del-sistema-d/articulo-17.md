@@ -1,1 +1,0 @@
-Artículo 17.—Únicamente para las sesiones extraordinarias deberá existir una convocatoria especial por escrito, con una antelación mínima de dos días hábiles , salvo casos comprobados de urgencia. Dicha convocatoria deberá acompañarse de una copia de la agenda con los asuntos respectivos, que serán los únicos que se podrán conocer.

@@ -1,1 +1,0 @@
-Artículo 10.—En caso de ausencia del Representante elegido como Secretario a las sesiones, será sustituido por el suplente correspondiente , el cual asumirá los deberes inherentes al cargo por el tiempo de su ausencia.
