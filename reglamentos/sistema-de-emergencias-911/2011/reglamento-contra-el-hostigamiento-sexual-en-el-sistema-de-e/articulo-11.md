@@ -1,2 +1,0 @@
-Artículo 11.—Trámite de la denuncia: El conocimiento de las denuncias y la investigación respectiva será realizado por medio de la Comisión Investigadora. Además, esta Comisión Investigadora podrá recomendar al Director del Sistema la imposición de medidas cautelares.
-Una vez finalizada la investigación, esta Comisión deberá emitir su recomendación, no vinculante, ante la Dirección del Sistema 9-1-1, quien en definitiva decidirá la apertura de un procedimiento administrativo disciplinario.

@@ -1,1 +1,0 @@
-Artículo 9º—Evaluación. El Área de Capital Humano evaluará anualmente la eficacia de las acciones preventivas desarrolladas; asimismo, anualmente deberá rendir informe, en torno a la evaluación de la política institucional en esta temática, para lo cual deberá incluirse tanto el enfoque de la víctima de acoso, como el de la víctima de falsas denuncias.

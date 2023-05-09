@@ -1,7 +1,0 @@
-CAPÍTULO NOVENO
-Denuncias en contra de terceras personas
-en las instalaciones del Sistema de Emergencias 9-1-1
-Artículo 21.—Denuncias por hostigamiento sexual en contra de terceras personas por actos presentados en las instalaciones del Sistema. Cuando se presente una conducta de acoso u hostigamiento sexual desplegada dentro de las instalaciones del Sistema por una persona que no ostente relación laboral con el 9-1-1, en virtud de prestar servicios como proveedor o por tratarse de estudiantes que realicen pasantías o prácticas académicas, conducta que se dirija contra un servidor, de personal de empresas que brindan servicios o estudiantes que realicen pasantías o prácticas académicas, la persona ofendida deberá plantear la queja o denuncia ante la Comisión Investigadora, para que ésta la formule a su vez ante el patrono o superior del presunto hostigador, cuando se trate de empresas que proveedoras de servicios al Sistema, para que aplique el procedimiento interno de sanción.
-Dicha Comisión, podrá solicitar al patrono o superior del presunto hostigador, previa recomendación, que sustituya a esa persona para que deje de brindar los servicios al Sistema.
-Si el presunto hostigado es un profesional independiente no ligado a relación laboral privada, la denuncia se hará ante el respectivo colegio profesional para que se instaure el procedimiento sancionatorio que corresponda.
-Si el presunto hostigador es un estudiante, la denuncia se hará ante el respectivo centro educativo, pudiéndose solicitar la remoción de dicha persona.

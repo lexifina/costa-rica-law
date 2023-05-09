@@ -1,1 +1,0 @@
-Artículo 2º—Ámbito de aplicación. El presente reglamento regirá para todos/as los/as funcionarios/as del Sistema de Emergencias 9-1-1, tanto en las relaciones entre compañeros/as de trabajo, como en aquellas relaciones que se generen entre el personal ordinario y los que laboran en la Institución bajo modalidades de contratación distintas al nombramiento usual.

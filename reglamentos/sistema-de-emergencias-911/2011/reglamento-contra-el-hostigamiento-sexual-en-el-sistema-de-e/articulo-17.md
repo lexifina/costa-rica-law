@@ -1,4 +1,0 @@
-CAPÍTULO OCTAVO
-Sanciones
-Artículo 17.—Tipos de Sanciones. Las sanciones por hostigamiento sexual se aplicarán según la gravedad del hecho y serán las siguientes: la amonestación escrita, la suspensión sin goce de salario y el despido sin responsabilidad patronal, en estricta concordancia con las sanciones previstas en el Reglamento Autónomo de Servicio. Lo anterior sin perjuicio de que se acuda a la vía correspondiente, cuando las conductas también constituyan hechos punibles, según se establece en el Código Penal.
-Para determinar la gravedad de la falta a efecto de recomendar la sanción, deberán tomarse en cuenta los efectos perjudiciales producidos o susceptibles de producirse, como consecuencia de la acción acosadora, en las condiciones materiales de empleo, cumplimiento laboral y estado general de bienestar personal

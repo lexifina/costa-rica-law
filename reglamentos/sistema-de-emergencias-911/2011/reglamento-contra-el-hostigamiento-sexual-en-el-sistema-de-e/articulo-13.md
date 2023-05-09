@@ -1,1 +1,0 @@
-Artículo 13.—Asesoramiento jurídico y apoyo emocional: Las partes podrán hacerse representar por patrocinio letrado o bien, hacerse acompañar del apoyo emocional o psicológico de su confianza en las diversas fases del procedimiento.
