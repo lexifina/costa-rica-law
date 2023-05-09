@@ -1,0 +1,1 @@
+Artículo 90. Prohibiciones: En aquellos locales comerciales cuya actividad secundaria es la venta de licores no se permitirán actividades como pasarelas, desfiles de modelos, torneos deportivos o de juegos y otros, que considere la administración municipal que puedan afectar el giro comercial autorizado.

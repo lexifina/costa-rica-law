@@ -1,0 +1,18 @@
+Artículo 72. Sanción y plazos para clausura preventiva de la actividad comercial: se procederá de la siguiente manera para estos casos:
+a. Por atraso de más de dos trimestres en el pago del impuesto de patente comercial:
+Previo a la suspensión de la licencia, se deberá apercibir en dos ocasiones al patentado, de manera que en la primera y segunda prevención se otorgará un plazo de cinco días hábiles para que se haga efectivo el pago. Vencidos los términos antes indicados y no habiéndose pagado la deuda total, se procederá a la suspensión de la licencia y al cierre del local, colocándose sellos oficiales en los accesos del negocio.
+En caso de clausura por morosidad, una vez cancelada la totalidad de la deuda, el patentado informará al Departamento de Licencias Comerciales, quién procederá a coordinar con el Departamento de Inspecciones y Notificaciones la reapertura del establecimiento comercial y este último remitirá copia del acta de levantamiento de sellos efectuada.
+En caso de que sean violados los sellos o desobediencia a la autoridad, se realizarán las gestiones administrativas y judiciales por parte del Departamento de Inspecciones, para trasladar el caso y al responsable al Ministerio Público, con la intervención del departamento de Asesoría Legal de la Municipalidad de San Pablo de Heredia.
+b. Cuando esté ejerciendo una actividad sin contar con autorización municipal:
+Se procederá a realizar notificación preventiva al interesado y al propietario del inmueble otorgando un plazo de 5 días para normalizar la situación. En el caso de omisión se procederá a la clausura como medida cautelar, hasta tanto cuente con la licencia respectiva. Se cobrará una multa equivalente de 3 salarios base mensual del Auxiliar 1 definido en el artículo 2 de la Ley 7337.
+c. Cuando el local comercial produzca escándalo, alteración al orden o la tranquilidad pública:
+Se procederá con la clausura como medida cautelar, de la siguiente manera: Primera vez: clausura preventiva por uno a cinco días hábiles. Se cobrará una multa equivalente al monto de medio salario base menor del Poder Judicial.
+Segunda vez: clausura preventiva de seis a diez días hábiles. Se cobrará una multa equivalente al monto del salario base menor del Poder Judicial.
+En caso de reincidencia de la misma falta, se procederá con el debido proceso, establecido en el Código Municipal y la Ley General de Administración Pública para el cierre definitivo y cancelación de la licencia.
+d. Por incumplimiento de los requisitos ordenados en las leyes para el desarrollo de la actividad:
+Primera vez: Se procederá con la prevención por escrito. Se cobrará una multa equivalente al monto de medio salario base menor del Poder Judicial.
+Segunda vez: clausura preventiva por tres a cinco días hábiles. Se cobrará una multa equivalente al monto del salario base menor del Poder Judicial.
+Tercera vez: clausura preventiva de seis a diez días hábiles. Se cobrará una multa equivalente al monto del salario base menor del Poder Judicial.
+En caso de reincidencia de la misma falta, se procederá con el debido proceso, establecido en el Código Municipal, para el cierre definitivo y cancelación de la licencia.
+e. Por no presentación de la declaración del impuesto de patente municipal.
+Los contribuyentes que no presenten la respectiva declaración jurada del impuesto municipal, dentro del término establecido en esta ley, serán sancionados con una multa del diez por ciento (10%) del impuesto anual de patentes pagado durante el período anterior. Esta multa deberá pagarse en un solo tracto con el pago del segundo trimestre de cada año y se aplicará de oficio. Adicionalmente se incluirá dentro de los casos de fiscalización de oficio.

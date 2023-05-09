@@ -1,0 +1,1 @@
+Artículo 9. La actividad que el licenciatario o patentado desarrollará será la que la municipalidad le haya autorizado mediante la licencia otorgada. Cualquier variación será causal de sanción de acuerdo al contenido del Capítulo VIII. Sanciones, del presente reglamento.

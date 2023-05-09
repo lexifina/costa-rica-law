@@ -1,0 +1,1 @@
+Artículo 86. De la hora límite: Los establecimientos comerciales podrán desarrollar las actividades de Karaoke, eventos, Animación, Música en Vivo, DJ u similares, estas no podrá extenderse más allá de las doce media noche.

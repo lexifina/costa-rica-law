@@ -1,0 +1,1 @@
+Artículo 42. Licencias de Licores: El impuesto de patente para la comercialización de licores al menudeo, se regularán por una ley especial salvo aquellas disposiciones de tipo administrativo que sean aplicables.

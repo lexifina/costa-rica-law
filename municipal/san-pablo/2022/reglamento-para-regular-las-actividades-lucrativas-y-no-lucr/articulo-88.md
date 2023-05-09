@@ -1,0 +1,1 @@
+Artículo 88. De la contaminación sónica: La actividad con Karaoke, Animación, Música en Vivo, DJ o artista, deberá respetar en todo momento los niveles autorizados de sonido conforme lo disponen los artículos 293 y 294 de la Ley General de Salud y su reglamento

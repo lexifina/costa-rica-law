@@ -1,0 +1,1 @@
+Artículo 81. Cuando no se cumpla con lo dispuesto en el artículo anterior, a saber, el pago del impuesto se procederá en forma inmediata y sin más trámite a la cancelación de la licencia de espectáculo público.

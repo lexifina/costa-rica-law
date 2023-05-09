@@ -1,0 +1,1 @@
+Artículo 32. Requisitos para retiro de licencia comercial. Para el retiro de licencia se deberá llenar el formulario existente al efecto y adjuntar el certificado físico de la licencia. Debe encontrarse al día en el pago de sus obligaciones municipales.

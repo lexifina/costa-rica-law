@@ -1,0 +1,2 @@
+Artículo 92. Uso de suelo Conforme: Previo al trámite de aprobación de la Licencia comercial de la actividad lucrativa, los interesados deberán tramitar el certificado de Uso de Suelo Conforme, que señale claramente la finca o fincas donde se podrá desarrollar la actividad.
+En caso que posteriormente varíen las condiciones de la propiedad o actividad a la cual se le otorga un uso de suelo, se deberá gestionar nuevamente un nuevo uso de suelo.

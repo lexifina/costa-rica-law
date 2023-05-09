@@ -1,0 +1,2 @@
+Artículo 53. Recalificación: Cuando el Departamento de Licencias considere que el impuesto que debe pagar el Patentado es diferente al establecido, iniciará el proceso de recalificación del valor del impuesto o cuando sea solicitado por el patentado.
+También podrá darse la recalificación cuando por medio de inspecciones oculares se verifique el cambio de actividad comercial autorizada por la municipalidad.

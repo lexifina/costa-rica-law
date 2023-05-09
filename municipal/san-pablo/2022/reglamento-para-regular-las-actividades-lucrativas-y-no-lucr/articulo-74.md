@@ -1,0 +1,1 @@
+Artículo 74. Del Decomiso: La Municipalidad de San Pablo de Heredia dentro de las funciones de control y fiscalización, en ejercicio de las funciones de la Policía Municipal podrá realizar decomisos de todo tipo de mercancías. Para este propósito se deberá reglamentar las disposiciones correspondientes.

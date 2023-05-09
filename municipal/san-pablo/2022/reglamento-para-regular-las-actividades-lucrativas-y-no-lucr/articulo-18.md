@@ -1,0 +1,9 @@
+Artículo 18. Cancelación de licencia: La licencia será cancelada en los siguientes casos:
+a) Cuando el dueño de la licencia presente la solicitud de cierre en forma escrita con todos los requisitos ante el Departamento de Servicios Licencias Comerciales.
+b) Por abandono comprobado de la actividad económica aun cuando el interesado no lo haya comunicado a la Municipalidad de San Pablo de Heredia. Corresponderá al Inspector municipal levantar un acta y registro fotográfico, con un testigo en la cual hará constar que el establecimiento se encuentra cerrado y que no tiene actividad alguna.
+c) Ante la muerte del dueño de la licencia. En ese caso de previo a iniciar el proceso de cancelación de la licencia, se procederá conforme lo señalado en el art. 11 inciso a) del presente reglamento.
+d) Cuando se comprobare que el establecimiento comercial respectivo ha violentado en la explotación de su actividad, la ley o el orden público o no cumpla con los requisitos para su operación.
+e) Cuando se hubiere suspendido por dos veces la licencia comercial otorgada.
+f) El incumplimiento de cualquier requisito urbanístico, constructivo o sanitario por parte del propietario del inmueble donde se autorizó la patente, cuando éste ha sido advertido y no lo haya subsanado ni corregido dentro del plazo establecido para esos efectos por el Departamento encargado de emitir la orden de incumplimiento.
+Para la cancelación de la licencia por los motivos enumerados en los incisos anteriores excepto el a) se deberá seguir el debido proceso, dando el plazo correspondiente al interesado para que manifieste su oposición de acuerdo a lo establecido en el capítulo II del Código Municipal.
+Transcurrido el plazo, se emitirá resolución administrativa debidamente motivada suscrita por el jefe del Departamento de Licencias Comerciales.

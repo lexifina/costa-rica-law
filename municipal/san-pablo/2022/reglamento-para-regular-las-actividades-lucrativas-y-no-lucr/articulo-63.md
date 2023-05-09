@@ -1,0 +1,1 @@
+Artículo 63. De los Recursos: Los actos administrativos de los Inspectores municipales tendrán los recursos de revocatoria y apelación para ante la jefatura inmediata y en alzada ante el Alcalde Municipal de conformidad con el numeral 171 del Código Municipal.

@@ -1,0 +1,1 @@
+Artículo 12. Trámites autorizados sobre una Licencia comercial: Para cualquier trámite relacionado con una licencia comercial será obligatorio que tanto el solicitante como el dueño o los dueños del inmueble, donde se ejecutará o desarrollará la actividad, se encuentren totalmente al día con todas las obligaciones municipales del que sean sujetos pasivos.

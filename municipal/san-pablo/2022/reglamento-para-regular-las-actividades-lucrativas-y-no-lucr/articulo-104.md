@@ -1,0 +1,1 @@
+Artículo 104. Aplicación transversal de la Ley 7600: En toda actividad comercial dirigida a la atención del público, deberán respetarse e implementarse, las políticas de accesibilidad reconocidas en el ordenamiento jurídico costarricense. La desatención de esta normativa, acarreará el cierre del negocio, previo debido proceso.

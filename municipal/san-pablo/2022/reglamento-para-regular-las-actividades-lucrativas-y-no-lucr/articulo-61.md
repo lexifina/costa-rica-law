@@ -1,0 +1,1 @@
+Artículo 61. Los Licenciatarios o sus colaboradores, están en la obligación de brindar toda la colaboración a estos inspectores - notificadores y mostrar todos los documentos requeridos por ellos, así como brindar acceso a sus instalaciones.

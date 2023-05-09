@@ -1,0 +1,2 @@
+CAPÍTULO IX. Disposiciones Finales
+Artículo 102. Bajo ninguna circunstancia un tercero no autorizado podrá explotar la licencia comercial ni la de comercialización de bebidas con contenido alcohólico, únicamente la persona a la que se le otorgó la licencia. En caso de comprobarse tal situación, se procederá a notificar por una única vez y otorgar un plazo improrrogable de 30 días calendario para que se solvente la situación, so pena de suspender la licencia e iniciar el proceso administrativo tendiente a la cancelación de la licencia.

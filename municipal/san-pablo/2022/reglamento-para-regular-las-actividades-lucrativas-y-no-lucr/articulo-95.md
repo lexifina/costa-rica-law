@@ -1,0 +1,4 @@
+Artículo 95. Uso de suelo condicional. El certificado de uso del suelo condicional únicamente será otorgado en las siguientes condiciones y al amparo de lo indicado en la siguiente normativa:
+? Cuando se admita un uso distinto al residencial en urbanizaciones. Cambio de uso en urbanizaciones de conformidad con el artículo 145 y 146 del Reglamento de Construcciones.
+? Cuando en la Zona Industrial se admita un uso que pueda ser considerado como uso condicional para zonas industriales tipo dos de conformidad con el anexo del Reglamento para la Zonificación Parcial de Zonas Industriales en la Gran Área Metropolitana.
+Cuando en una actividad que cuente con un certificado de uso del suelo condicional se compruebe que las molestias no han sido confinadas dentro de la propiedad, se procederá con la clausura de conformidad con lo indicado en el artículo 29 de la Ley de Planificación Urbana y el artículo 146 del Reglamento de Construcciones.
