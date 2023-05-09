@@ -1,5 +1,0 @@
-Artículo 3°-Tipos de viaje. Los viajes que realicen los funcionarios del 9-1-1 al exterior del país, deberán clasificarse de la siguiente manera:
-a) Viajes amparados en una Contratación Administrativa: Los generados por una contratación administrativa, que contenga dentro de los requisitos a cumplir por parte del oferente, el proveer entrenamiento o capacitación a los funcionarios ligados directamente con el bien o servicio objeto de la contratación, o aquellos que se realicen para verificar equipo o soluciones en funcionamiento.
-b) Viajes en representación de la institución: Son aquellos que se realizan para participar en reuniones, seminarios, congresos, invitaciones de organizaciones públicas y en donde el funcionario representa a la Institución y/o al país.
-c) Viajes para capacitación en general: Son aquellos que se realizan en atención de una beca, especialización o pasantías, debidamente aprobadas según la normativa vigente.
-d) Otros viajes de interés institucional: Son los viajes que no se contemplan dentro de la clasificación anterior y que de acuerdo con el criterio del Jerarca resultan de relevancia para la institución.

@@ -1,1 +1,0 @@
-Artículo 14.-Gastos no reconocidos. No se reconocerán como gastos: exceso de equipaje, gastos de representación, pago por concepto de visa o pasaporte, alquiler de vehículo y combustible, salvo que sea para movilizar a funcionarios entre dos ciudades y haya sido contemplado en el acuerdo de viaje.

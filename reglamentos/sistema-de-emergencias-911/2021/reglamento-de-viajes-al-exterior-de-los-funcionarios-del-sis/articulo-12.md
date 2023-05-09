@@ -1,1 +1,0 @@
-Artículo 12.-No presentación de la liquidación de gastos. El incumplimiento en la presentación de la liquidación de gastos dentro del plazo establecido obligará al Jerarca a tomar medidas disciplinarias, así como cualquier otra acción que pueda corresponder, a efecto de cumplir con el control interno.
