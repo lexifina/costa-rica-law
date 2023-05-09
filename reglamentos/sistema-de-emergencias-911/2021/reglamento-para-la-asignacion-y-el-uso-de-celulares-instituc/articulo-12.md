@@ -1,1 +1,0 @@
-Artículo 12.-Derogaciones. A partir de la entrada en vigencia del presente Reglamento queda derogado el Reglamento anterior del Sistema de Emergencias 9-1-1, publicado en el Diario Oficial La Gaceta N° 92 y toda normativa vigente interna igual o inferior rango que se le oponga.

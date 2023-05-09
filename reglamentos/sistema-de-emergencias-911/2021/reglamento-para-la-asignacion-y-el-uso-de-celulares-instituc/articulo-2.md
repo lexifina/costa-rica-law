@@ -1,1 +1,0 @@
-Artículo 2º-Alcance. Las disposiciones de este Reglamento son de aplicación vinculante y obligatoria para todos los funcionarios de la Institución a quienes, por la naturaleza de su puesto, amerite la asignación de teléfonos celulares y líneas telefónicas.
