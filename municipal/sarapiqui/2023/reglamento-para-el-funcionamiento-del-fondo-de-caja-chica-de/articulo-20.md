@@ -1,0 +1,2 @@
+Artículo 20.-Exoneración de impuestos al valor agregado. Cuando sea necesario, el funcionario responsable de la compra de bienes y servicios, deberá solicitar ante la tesorería municipal, un comprobante de exoneración del pago de impuestos.
+Solo con el visto bueno de la Alcaldía se reconocerá el importe por concepto de impuesto de ventas, ya que de conformidad con lo establecido en el artículo 8, del Código Municipal, está la municipalidad exenta del pago de toda clase de tributos.

@@ -1,0 +1,1 @@
+Artículo 21.-Liquidación del vale de caja chica. La liquidación del vale queda formalizada cuando el responsable de la caja chica revisa todos los requisitos y estampa firma de recibido conforme en el documento de vale de caja chica. Será responsabilidad de la jefatura que firma el vale, constatar el ingreso de los bienes y servicios adquiridos con dichos recursos económicos.

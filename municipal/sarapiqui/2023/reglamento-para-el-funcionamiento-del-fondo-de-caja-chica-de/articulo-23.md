@@ -1,0 +1,3 @@
+CAPÍTULO III
+De los arqueos
+Artículo 23.-Sobre los arqueos de los fondos. Se procederá a realizar arqueos, con el propósito de verificar, supervisar y controlar la aplicación de las normas y principios de auditoría vigentes y las sanas prácticas de administración. Todo arqueo del fondo fijo de caja chica se realizará por el director financiero en presencia del encargado de la caja chica, en forma sorpresiva por lo menos una vez al mes o del funcionario que se designe para tal efecto, el arqueo deberá contar con el nombre, firma y sello de la dependencia correspondiente, con el propósito de verificar, supervisar y controlar la aplicación de las normas y principios de auditoría vigentes y de las sanas prácticas de administración.

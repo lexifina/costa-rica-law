@@ -1,0 +1,3 @@
+Artículo 18.-Adelantos de caja chica no utilizados. Cuando por algún motivo la compra no se lleve a cabo, el funcionario que ha recibido el dinero del vale de caja chica, deberá hacer el reintegro inmediato del dinero entregado para esos efectos a más tardar el día hábil siguiente al de su recibo.
+Para tal efecto, ese funcionario deberá aportar una justificación escrita, avalada con la firma de la jefatura superior inmediata.
+En caso de que no se produzca la gira que originó el adelanto para efectos del pago de viáticos, el dinero deberá ser devuelto al fondo respectivo justificando expresamente las razones que impidieron su utilización.

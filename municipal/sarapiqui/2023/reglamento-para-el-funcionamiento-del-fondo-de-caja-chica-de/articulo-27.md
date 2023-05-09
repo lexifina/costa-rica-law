@@ -1,0 +1,3 @@
+Artículo 27º-Los reintegros de la caja chica.
+Se confeccionarán reintegros de caja chica, cuando se haya gastado no más del 80 % del fondo fijo, con el propósito de darle la rotación óptima a los recursos y mantener la liquidez del fondo.
+Es responsabilidad del tesorero municipal, en su condición de encargado de la caja chica, diseñar y mantener un adecuado sistema de control de los fondos autorizado en éstas, en concordancia con las prácticas sanas de control interno, el Manual de Normas Técnicas de Control Interno de la Contraloría General de la República y demás órganos sujetos a su fiscalización y el Código Municipal.

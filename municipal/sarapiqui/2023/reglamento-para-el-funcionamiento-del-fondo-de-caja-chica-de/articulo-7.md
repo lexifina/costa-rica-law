@@ -1,0 +1,2 @@
+Artículo 7º-Fondo de caja chica en efectivo. Se autoriza la creación de un fondo de caja chica en efectivo equivalente a un monto de ?2.000.000 (dos millones de colones netos) para cubrir las compras de bienes, servicios u obras autorizados en que incurra la municipalidad, siempre que el monto de la compra no exceda el veinticinco por ciento (25%) del total del fondo.
+El monto total previsto para caja chica podrá ser ajustado anualmente como máximo en un 10% previo acuerdo del Concejo Municipal.

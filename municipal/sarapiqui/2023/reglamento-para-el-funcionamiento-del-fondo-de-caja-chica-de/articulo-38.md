@@ -1,0 +1,1 @@
+Artículo 38.-El funcionario que pretenda justificar los egresos de caja chica con comprobantes que no cumplan con los requisitos indicados en el artículo 5 de este reglamento, incumpliendo con ello su deber de verificar los requisitos de comprobante, deberá pagar de su peculio el costo del bien o servicio adquirido.

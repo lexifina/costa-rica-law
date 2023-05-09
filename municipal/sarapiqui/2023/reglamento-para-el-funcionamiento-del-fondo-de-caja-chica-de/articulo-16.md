@@ -1,0 +1,3 @@
+Artículo 16.-Desembolsos. Los adelantos de caja chica serán entregados al funcionario autorizado antes de la compra de los bienes y servicios y no podrán utilizarse para un fin distinto del solicitado. En caso de quedar un remanente, éste deberá ser reintegrado al fondo de caja chica y no podrá emplearse para otros fines.
+En lo que corresponde al pago de viáticos, éste no podrá girarse si el funcionario tiene un adelanto de viáticos que no estén debidamente liquidado.
+Los adelantos para gastos de traslado, alimentación y permanencia se podrán entregar hasta dos días hábiles antes del viaje y deberán ser liquidados hasta tres días hábiles después del viaje.
