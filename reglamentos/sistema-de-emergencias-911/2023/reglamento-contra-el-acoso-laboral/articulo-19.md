@@ -1,0 +1,1 @@
+Artículo 19.-Del procedimiento administrativo. En caso de que la Dirección determine la apertura del procedimiento, conformará el órgano director el cual seguirá lo establecido en la normativa interna.

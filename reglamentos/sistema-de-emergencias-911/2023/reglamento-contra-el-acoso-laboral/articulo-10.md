@@ -1,0 +1,1 @@
+Artículo 10.-De la abstención y recusación. Cuando de conformidad con lo dispuesto en la Ley General de la Administración Pública N° 6227, un miembro tenga que separarse de un caso determinado, por abstención o recusación, se sustituirá con el respectivo suplente, de acuerdo con la especialidad profesional requerida.

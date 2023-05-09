@@ -1,0 +1,1 @@
+Artículo 24.-Evaluación de riesgos. Capital Humano deberá realizar evaluaciones del ambiente laboral en forma anual y de los factores de riesgos psicosociales, con el fin de determinar su naturaleza y frecuencia en relación con el trabajo, para detectar posibles situaciones de riesgo que pudieran generar conflicto.

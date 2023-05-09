@@ -1,0 +1,1 @@
+Artículo 14.-Plazo para interponer la denuncia. El plazo para interponer la denuncia será de dos años y se contará a partir del último hecho consecuencia del acoso laboral o a partir de que cesó la causa justificada que le impidió denunciar a la persona afectada.
