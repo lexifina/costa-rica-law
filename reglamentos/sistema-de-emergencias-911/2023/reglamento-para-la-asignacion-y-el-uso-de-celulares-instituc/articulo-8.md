@@ -1,0 +1,5 @@
+Artículo 8º-De los excedentes en el servicio.
+a. En caso de que se supere el monto de la tarifa asignada, el funcionario deberá justificar el excedente ante el Superior Jerárquico correspondiente y la Administración se reserva el derecho de verificar el registro de llamadas para constatar que corresponda a asuntos propios de sus funciones para proceder con la cancelación, caso contrario, deberá ser asumido por el funcionario.
+b. En caso de que el funcionario manifieste su disconformidad de asumir el excedente, el Superior Jerárquico valorará los argumentos esgrimidos y mediante resolución razonada resolverá lo correspondiente.
+c. En contra de lo resuelto, procederá el recurso de revocatoria ante el Superior Jerárquico con apelación ante la Dirección.
+d. Una vez firme la respectiva resolución o en caso de que el funcionario no impugnare el cobro, ni asuma el exceso, el Superior Jerárquico procederá a solicitar a Capital Humano que realice la deducción respectiva de conformidad con lo que establece el Código de Trabajo.
