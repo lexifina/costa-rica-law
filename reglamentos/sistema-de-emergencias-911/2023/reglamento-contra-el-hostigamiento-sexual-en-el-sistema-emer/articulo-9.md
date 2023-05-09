@@ -1,0 +1,2 @@
+Artículo 9°-Trámite de la denuncia. El conocimiento de las denuncias y la investigación respectiva será realizado por medio de la Comisión de Hostigamiento Sexual.
+Una vez finalizada la investigación, esta Comisión deberá emitir su recomendación, no vinculante, ante la Dirección del Sistema 9-1-1. En caso de considerarlo, dicha Comisión podrá recomendar a la Dirección del Sistema la imposición de medidas cautelares.
