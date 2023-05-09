@@ -1,0 +1,1 @@
+Artículo 19. Para la adecuada ejecución de este Reglamento, Finanzas elaborará y actualizará en coordinación con Planificación y Control los documentos normativos necesarios para su correcta aplicación y velará por su oficialización.

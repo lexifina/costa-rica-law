@@ -1,0 +1,1 @@
+Artículo 5. El incumplimiento en la presentación de la liquidación de gastos dentro de los plazos establecidos en el presente reglamento podría generar la aplicación de acciones disciplinarias conforme lo establezcan las leyes, reglamentos u otras disposiciones internas.

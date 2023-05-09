@@ -1,0 +1,1 @@
+Artículo 3. La asignación de la tarjeta institucional se realizará única y exclusivamente con la autorización del Coordinador de Macroproceso al que pertenece el funcionario, el cual deberá ser presentado mediante oficio con la debida justificación. En ausencia del Coordinador, la autorización podrá ser emitida por la Dirección.
