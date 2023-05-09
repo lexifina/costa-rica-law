@@ -1,0 +1,1 @@
+Artículo 32. Las personas funcionarias tienen derecho a disfrutar de al menos un día de descanso semanal dependiendo del número de días en que cumpla su jornada laboral, cuya remuneración está regulada por lo que dispone el Código de Trabajo.

@@ -1,0 +1,1 @@
+Artículo 18. Se considerarán modificaciones al contrato de trabajo, los cambios de condiciones laborales de la persona funcionaria formalmente acordados y autorizados por la Dirección. En todo caso se considerará que las acciones realizadas por medio de acción de personal son modificaciones a las condiciones laborales de la persona funcionaria.

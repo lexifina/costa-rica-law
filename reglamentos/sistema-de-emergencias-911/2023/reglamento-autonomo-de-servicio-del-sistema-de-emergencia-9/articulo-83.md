@@ -1,0 +1,1 @@
+Artículo 83. Todas las sanciones disciplinarias deberán imponerse dentro del mes posterior al día en que el expediente administrativo correspondiente al procedimiento disciplinario llevado a cabo haya quedado en firme salvo que no se haya podido notificar el acto final.

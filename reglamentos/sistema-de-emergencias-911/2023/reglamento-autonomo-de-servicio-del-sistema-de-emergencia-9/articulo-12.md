@@ -1,0 +1,1 @@
+Artículo 12. El expediente de personal será confidencial y sólo tendrán acceso a éste: el titular del expediente, la Dirección, Capital Humano, la Auditoría Interna, el Coordinador directo de la persona funcionaria y cualquier otra instancia que permita la normativa.

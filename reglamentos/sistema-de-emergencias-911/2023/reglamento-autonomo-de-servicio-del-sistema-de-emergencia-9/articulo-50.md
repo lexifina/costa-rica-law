@@ -1,0 +1,1 @@
+Artículo 50. El recargo de funciones es un pago que percibe la persona que asume temporalmente parte de las funciones de un puesto de superior categoría, donde el propósito sea mantener la continuidad del servicio por tratarse de labores que no admiten posposición. El pago de este recargo estará regulado por medio de las normas institucionales que se definan para tal fin.

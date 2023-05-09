@@ -1,0 +1,1 @@
+Artículo 89. Los permisos con goce de salario detallados en los artículos anteriores serán aprobados por el Superior Jerárquico inmediato previa justificación que debe entregar la persona funcionaria por escrito, así como adjuntar los documentos que sustenten el derecho a tomar dicho permiso.

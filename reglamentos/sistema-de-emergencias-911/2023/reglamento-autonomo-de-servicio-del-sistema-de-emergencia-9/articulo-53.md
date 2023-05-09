@@ -1,0 +1,1 @@
+Artículo 53. Cuando por razones de interés institucional debidamente justificado, a través de un estudio técnico de Capital Humano, se considere la necesidad de un traslado y no se afecten los intereses de la persona funcionaria, este se podrá realizar con todo y plaza.

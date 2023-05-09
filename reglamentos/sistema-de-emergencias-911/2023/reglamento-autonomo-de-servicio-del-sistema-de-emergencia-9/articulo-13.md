@@ -1,0 +1,1 @@
+Artículo 13. Todo documento que se requiera agregar al expediente personal deberá ser notificado de previo y de forma inmediata a la persona funcionaria por la instancia que corresponda, careciendo de valor aquel que se agregue en contravención de esta disposición.

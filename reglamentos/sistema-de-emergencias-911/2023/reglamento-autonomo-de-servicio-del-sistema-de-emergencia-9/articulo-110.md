@@ -1,0 +1,4 @@
+Artículo 110.La persona funcionaria a la que se dé por terminado su contrato de trabajo con reconocimiento de prestaciones legales, tendrá derecho al pago de auxilio de cesantía de acuerdo con su antigüedad, en la siguiente forma:
+a. A las personas que a la entrada en vigencia de la Ley 9635 contaban con 12 o más años de laborar continuamente para la institución, recibirán hasta 12 años de auxilio de cesantía.
+b. A las personas que a la entrada en vigencia de la Ley 9635 contaban con menos de 12 años de laborar continuamente para la institución, recibirán hasta 8 años de pago de auxilio de cesantía.
+La persona funcionaria que se haya acogido a la liquidación de sus prestaciones con base en el presente artículo no podrá volver a trabajar en el 9-1-1, conforme la normativa vigente. La Dirección podrá hacer la excepción en caso de inopia previo estudio de la Unidad de Capital Humano.
