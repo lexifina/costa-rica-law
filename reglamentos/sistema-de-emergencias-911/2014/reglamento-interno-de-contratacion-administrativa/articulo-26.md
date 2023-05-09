@@ -1,1 +1,0 @@
-Artículo 26.— En el caso de las licitaciones abreviadas, el plazo para presentar ofertas no podrá ser inferior a cinco ni mayor a veinte días hábiles, con una prórroga por un tanto igual al previsto inicialmente, según lo dispuesto en el Reglamento de la Ley de Contratación Administrativa.

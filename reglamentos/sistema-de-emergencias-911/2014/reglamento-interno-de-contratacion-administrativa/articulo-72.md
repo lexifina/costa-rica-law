@@ -1,1 +1,0 @@
-Artículo 72—La Dirección nombrará al Órgano Director para que dé inicio al procedimiento de resolución de contrato, con fundamento en los motivos de incumplimiento acreditados por el Administrador de Contrato.

@@ -1,2 +1,0 @@
-Artículo 11.—Cuando surja una necesidad no prevista, el Programa de Adquisiciones podrá ser modificado, adjuntando las justificaciones pertinentes por parte de la dependencia usuaria con la aprobación de la Dirección o el Coordinador de Proceso según corresponda. La Proveeduría Institucional es la encargada de realizar la modificación.
-Las contrataciones ordinarias que no estén amparadas al Programa de Adquisiciones original o modificado, no serán tramitadas por la Proveeduría Institucional.

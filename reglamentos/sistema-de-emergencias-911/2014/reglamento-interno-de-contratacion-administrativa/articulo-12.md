@@ -1,1 +1,0 @@
-Artículo 12.—Si en el momento de iniciar un procedimiento concursal, se determina que el monto estimado y publicado en el Programa de Adquisiciones requiere un ajuste, éste podrá realizarse con la debida aprobación de la Administración Superior, realizando de previo la debida modificación al Programa de Adquisiciones.

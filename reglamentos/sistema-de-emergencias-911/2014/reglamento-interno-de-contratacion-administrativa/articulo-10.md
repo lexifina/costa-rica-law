@@ -1,2 +1,0 @@
-Artículo 10.—Los encargados de las diferentes áreas, prepararán el Plan de Necesidades en setiembre de cada año con base en lo establecido en el Plan Anual Operativo.
-La publicación del Programa de Adquisiciones se realizará mediante un aviso en el Diario Oficial La Gaceta y de manera completa en el Sitio Web del 9-1-1. El Programa de Adquisiciones estará compuesto por todas las potenciales gestiones ordinarias de contratación previstas.

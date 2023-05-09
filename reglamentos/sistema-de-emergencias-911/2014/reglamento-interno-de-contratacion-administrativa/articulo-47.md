@@ -1,1 +1,0 @@
-Artículo 47.—Será responsabilidad del Administrador de Contrato, mantener a derecho las garantías, en lo referente a la vigencia, monto, así como ordenar la devolución o ejecución en los casos que procedan.

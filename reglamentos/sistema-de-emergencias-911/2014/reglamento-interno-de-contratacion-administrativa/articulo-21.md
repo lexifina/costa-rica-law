@@ -1,1 +1,0 @@
-Artículo 21.—La decisión administrativa que da inicio al procedimiento de contratación será emitida por el Administrador de Contrato, debiendo cumplir con lo que señala el Reglamento de la Ley de Contratación Administrativa.

@@ -1,1 +1,0 @@
-Artículo 77.—La Proveeduría, será la encargada de comunicar y gestionar el cobro ante el contratista, así como de trasladar al Administrador de Contrato cualquier oposición que se presente ante la misma. Una vez dictada la resolución final ésta será oportunamente comunicada al contratista.

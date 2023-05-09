@@ -1,1 +1,0 @@
-Artículo 13.—Al finalizar cada período presupuestario la Proveeduría hará una evaluación de la gestión de adquisición de bienes y servicios por Dependencia relacionándola con el Programa de Adquisiciones e informará sobre el particular a la Administración Superior. Dicha evaluación incluirá las recomendaciones que la Proveeduría considere pertinentes.

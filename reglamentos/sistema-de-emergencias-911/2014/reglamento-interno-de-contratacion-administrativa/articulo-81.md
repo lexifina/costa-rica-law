@@ -1,3 +1,0 @@
-SECCIÓN II
-Sanciones a los funcionarios
-Artículo 81.—Los funcionarios del 9-1-1, que realizan una labor de Administrador de Contrato, serán responsables por las consecuencias provocadas a la Institución en razón de los incumplimientos de los contratistas, si pudiendo prever o denunciar a tiempo las transgresiones contractuales, no lo hicieron o no solicitaron las sanciones, ejecuciones, multas o rescisión o resolución respectiva, o cualquier otra que indique la Ley de Contratación Administrativa y su Reglamento o que no se atienda dentro de los plazos de ley las gestiones formuladas por los contratistas o por la Proveeduría, además de la responsabilidad administrativa podrán ser responsables laboral, penal y civilmente, según corresponda.

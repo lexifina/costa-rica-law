@@ -1,1 +1,0 @@
-Artículo 62.—Corresponde a la Proveeduría notificar la resolución del recurso de revocatoria, dentro de los tres días hábiles siguientes al dictado del acto final. De acogerse el recurso se procederá a readjudicar según corresponda.

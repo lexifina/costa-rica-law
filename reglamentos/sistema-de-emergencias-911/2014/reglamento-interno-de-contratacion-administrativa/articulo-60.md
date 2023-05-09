@@ -1,1 +1,0 @@
-Artículo 60.—Recibidos los criterios del Administrador de Contrato y de Soporte Jurídico del 9-1-1, la Proveeduría en un plazo máximo de un día hábil deberá remitirla a la Administración Superior para que en un plazo máximo de tres días hábiles siguientes a la recepción de la documentación emita el acto final del recurso.

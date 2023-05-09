@@ -1,1 +1,0 @@
-Artículo 16.—Todo proveedor inscrito está obligado a verificar y actualizar la información aportada al registro en el momento de darse un cambio en su situación jurídica o de los bienes y servicios que ofrecen, al menos el primer mes de cada año, para lo cual debe realizar la actualización por medio de la Plataforma Mer-Link.

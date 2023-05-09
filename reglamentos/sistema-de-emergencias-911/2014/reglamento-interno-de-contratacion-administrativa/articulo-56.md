@@ -1,1 +1,0 @@
-Artículo 56.—Si el recurso es declarado con lugar, la Proveeduría, en coordinación con el Administrador de Contrato, se encargará de efectuar las modificaciones y comunicarlas o publicarlas en la Plataforma Mer-Link.
