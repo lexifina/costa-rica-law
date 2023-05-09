@@ -1,1 +1,0 @@
-Artículo 6º—Sanciones. En caso de que el obligado u obligada no rinda la caución dentro del plazo establecido, se hará acreedor de las sanciones conforme al debido proceso que establece la Ley Contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública Nº 8422 y el ordenamiento jurídico Costarricense.

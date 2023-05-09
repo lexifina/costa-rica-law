@@ -1,1 +1,0 @@
-Artículo 10.—Cumplimiento. El o la caucionante estará obligado(a) a entregar en la Dirección de Finanzas la garantía a favor del AyA. La Dirección de Finanzas será la encargada del registro, custodia y devolución de las mismas, conforme al procedimiento establecido en el AyA para las garantías de terceros.
