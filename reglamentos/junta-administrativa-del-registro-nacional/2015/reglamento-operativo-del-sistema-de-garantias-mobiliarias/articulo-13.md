@@ -1,1 +1,0 @@
-Artículo 13.—Servicios de publicidad: Para utilizar los servicios de publicidad que brinda el Sistema, el usuario solicitante, como persona física en condición personal o en representación de una persona jurídica, ingresará la información únicamente por medio de la firma digital certificada o los medios digitales que la ley determine en el caso de personas jurídicas.

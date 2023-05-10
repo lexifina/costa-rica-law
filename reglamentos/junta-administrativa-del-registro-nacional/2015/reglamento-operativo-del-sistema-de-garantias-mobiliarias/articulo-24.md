@@ -1,1 +1,0 @@
-Artículo 24.—Formato y contenido de los formularios: El formato estándar y el contenido de los formularios se regularán de acuerdo con los requisitos establecidos en la ley y los lineamientos que por medio de directrices administrativas establezca la Dirección del Registro de Bienes Muebles.

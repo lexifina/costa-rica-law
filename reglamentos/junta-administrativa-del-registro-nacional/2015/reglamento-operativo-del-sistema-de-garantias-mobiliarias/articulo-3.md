@@ -1,1 +1,0 @@
-Artículo 3º—Bienes excluidos de ser objeto de garantía mobiliaria: Se encuentran excluidos de la inclusión en el Sistema los bienes contemplados en el artículo 4 de la ley, con sus respectivas excepciones.

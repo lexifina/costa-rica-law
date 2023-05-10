@@ -1,2 +1,0 @@
-Artículo 14.—Servicios de consulta: Los servicios de consulta son gratuitos y solo se llevarán a cabo por medios digitales.
-Como parámetros de búsqueda, se utilizarán el nombre del deudor, número de identificación del deudor, consecutivo asignado al formulario de publicidad inicial de garantía, identificación o registro del derecho, y en los automotores que permite la ley el número de identificación vehicular, matrícula o motor.
