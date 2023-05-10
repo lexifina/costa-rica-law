@@ -1,0 +1,1 @@
+Artículo 45.-Comunicación de los resultados en materia confidencial. Cuando se trate de estudios de naturaleza confidencial o aquellos que revelen presunción de responsabilidad, civil o penal, la comunicación de los resultados quedará a criterio del Auditor Interno, sin perjuicio de lo estipulado en el marco normativo, legal y técnico aplicable.

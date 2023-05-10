@@ -1,0 +1,1 @@
+Artículo 14.-Relaciones externas. Es facultad del Auditor Interno o en quién él delegue conforme a las reglas de la Ley General de Administración Pública, solicitar, proveer e intercambiar información con entes externos que conforme a la ley corresponda, sin perjuicio de la coordinación que se requiera con el jerarca institucional de CONAPE.

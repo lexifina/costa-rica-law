@@ -1,0 +1,1 @@
+Artículo 13.-Relaciones internas. El Auditor Interno establece y regula a lo interno de su Unidad, las pautas principales sobre las relaciones y coordinaciones de los funcionarios de su dependencia con la administración activa.

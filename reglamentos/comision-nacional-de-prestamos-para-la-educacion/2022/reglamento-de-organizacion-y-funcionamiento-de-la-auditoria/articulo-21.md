@@ -1,0 +1,1 @@
+Artículo 21.-Informe de fin de gestión. Una vez concluida la relación laboral, sin importar la causa, el Auditor Interno deberá presentar un informe de fin de gestión conforme lo establece la normativa vigente y demás directrices emitidas por el Órgano Contralor al respecto.

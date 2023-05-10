@@ -1,0 +1,15 @@
+Artículo 19.-Competencias del Auditor Interno. Sus funciones tienen características de orden sustantivo y estratégico, en el diseño, implementación, dirección, evaluación y mejora constante de la calidad de los procesos, procedimientos, productos y servicios que corresponden a la unidad a su cargo.
+a) La dirección superior y administración de la Auditoría Interna; para ello podrá dictar los lineamientos, directrices, políticas e instrucciones pertinentes, según la normativa jurídica y técnica, con criterios uniformes en el ejercicio de las competencias y en las relaciones con la Administración.
+b) Definir, establecer y mantener actualizadas las políticas, procedimientos y prácticas requeridas por la Auditoría Interna, para cumplir con sus competencias, considerando en cada caso lo relativo a los procesos propios de esta Unidad y observando la normativa legal y técnica vigente a tal efecto.
+c) Formular, gestionar y mantener vigente el Reglamento de Organización y Funcionamiento de la Auditoría Interna, así como tomar las medidas correspondientes para que se dé cumplimiento del mismo.
+d) Responder directamente por su gestión ante el Jerarca y, ante la Contraloría General de la República
+e) Presentar el Plan Anual de Trabajo de la Auditoría Interna, que debe constituirse en su marco de acción, de acuerdo con los lineamientos que al respecto emita la Contraloría General de la República.
+f) Proponer al jerarca oportuna y debidamente justificados, los requerimientos de recursos para llevar adelante su plan, incluidas las necesidades administrativas de la unidad.
+g) Presentar ante el jerarca el informe de labores previsto en la normativa aplicable.
+h) Establecer y mantener actualizado un programa de aseguramiento de la calidad para la auditoría interna.
+i) Definir, establecer y mantener actualizadas las políticas, procedimientos y prácticas de administración, acceso y custodia de la documentación de la auditoría interna, en especial de la información relativa a los asuntos de carácter confidencial, que estipulan los artículos 6 de la Ley General de Control Interno y 8 de la Ley Contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública.
+j) Implantar una adecuada gestión de supervisión, asegurando la calidad de los procesos, servicios y productos de la auditoría.
+k) Cumplir con pericia y debido cuidado profesional sus funciones, haciendo valer sus competencias con independencia funcional y de criterio, siendo vigilante de que su personal responda de igual manera.
+l) Supervisar el cumplimiento de los objetivos de la Auditoría Interna, de cada proceso y de cada estudio en particular, así como de las normas, procedimientos y prácticas prescritas, del mejoramiento de su calidad y de la generación del valor agregado tanto de los procesos como de los productos y servicios finales del trabajo de la Auditoría Interna.
+m) Promover en el personal de la auditoría una gestión basada en los principios éticos y valores institucionales, así como los establecidos por la CGR.
+n) Observar además de las anteriores funciones, las establecidas en el Manual Institucional de Cargos de CONAPE.

@@ -1,0 +1,1 @@
+Artículo 20.-De la delegación de tareas y actividades. El Auditor Interno podrá delegar las tareas y actividades en el personal a su cargo, en aquellos casos que a su criterio la situación lo amerite, amparado a la idoneidad del funcionario de auditoría tales como: conocimientos técnicos y competencias requeridas según se establece en el Manual Institucional de Cargos.

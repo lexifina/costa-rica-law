@@ -1,0 +1,1 @@
+Artículo 41.-Informe parcial y final. La Auditoría Interna de acuerdo con su criterio, complejidad y oportunidad requerida, podrá emitir informes parciales durante la etapa de examen de sus auditorías para que la Administración Activa atienda lo correspondiente. Toda auditoría siempre dará lugar a un informe final.

@@ -1,0 +1,1 @@
+Artículo 17.-Apoyo Técnico. La Auditoría Interna podrá solicitar la asesoría de funcionarios de CONAPE, así también de profesionales y/o técnicos externos en diferentes disciplinas, conforme a las posibilidades presupuestarias, para que realicen labores de su especialidad en apoyo a la actividad de la auditoría.
