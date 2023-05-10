@@ -1,1 +1,1 @@
-Artículo 12.—El precio de venta estimado al consumidor final para los vehículos nuevos y usados, se establecerá adicionando a la base imponible en importaciones, conforme lo dispuesto en el artículo 13 de la Ley del Impuesto General sobre las Ventas, un margen de valor agregado del veinticinco por ciento (25%), estimado para la etapa de comercialización entre el importador y el consumidor final.
+Artículo 12.- (Derogado por el artículo 1° del decreto ejecutivo N° 44070 del 10 de mayo de 2023)

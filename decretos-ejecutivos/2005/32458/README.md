@@ -18,3 +18,4 @@ Cobro del Impuesto General sobre las Ventas en el caso de la comercialización d
 | 3 | 2009-07-20 | Resolución 11 (2009-07-20) |
 | 4 | 2016-08-10 | Decreto Ejecutivo 39941 (2016-08-10) |
 | 5 | 2021-01-20 | SINALEVI (sin norma nombrada) |
+| 6 | 2023-05-10 | Decreto Ejecutivo 44070 (2023-05-10) |
