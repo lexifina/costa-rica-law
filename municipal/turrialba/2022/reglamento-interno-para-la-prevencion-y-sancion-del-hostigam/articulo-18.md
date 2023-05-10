@@ -1,0 +1,4 @@
+Artículo 18.-Acciones administrativas y sus tipos. Las acciones administrativas deberán resolverse de manera prevalente y con carácter de urgencia y deberán guardar proporcionalidad y razonabilidad. Su vigencia será determinada por su instrumentalidad para el proceso. A efectos de desarrollar el procedimiento de manera diligente y transparente, serán procedentes las siguientes acciones:
+a) Separación temporal de la persona denunciada/ denunciante de su puesto de trabajo con goce de salario.
+b) Traslado temporal de la persona denunciante a un lugar diferente del sitio donde normalmente desempeña sus funciones o solicitar el traslado de la persona denunciada.
+c) Ordenar al presunto acosador que se abstenga de acercarse, comunicarse o perturbar de modo alguno con la persona denunciante y ofendida, ni a los testigos del denunciante.

@@ -1,0 +1,1 @@
+Artículo 8°-Cuando una persona trabajadora lo estime conveniente, podrá solicitar, con completa independencia de los procedimientos disciplinarios que puedan corresponder, el apoyo institucional para la atención de los problemas emocionales y físicos derivados del acoso laboral.

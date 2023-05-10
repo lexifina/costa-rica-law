@@ -1,0 +1,1 @@
+Artículo 33.-Reincidencia. En caso que la persona funcionaria previamente sancionada con suspensión reincida en una nueva conducta de acoso laboral, debidamente comprobada a través de un procedimiento administrativo, dentro del período de un mes siguientes a la firmeza de la primera sanción, se aplicará el despido sin responsabilidad patronal.

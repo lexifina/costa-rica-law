@@ -1,0 +1,2 @@
+Artículo 27.-Resolución final del asunto: Concluido el procedimiento, quien se encuentre en el cargo de Alcalde Municipal, dictará la resolución final en un plazo máximo de un mes.
+Esta resolución deberá ser notificada a las partes, en la forma y por cualquiera de los medios permitidos por la Ley de Notificaciones y Citaciones Judiciales dentro del mes siguiente a la fecha en que concluya formalmente el procedimiento disciplinario respectivo.

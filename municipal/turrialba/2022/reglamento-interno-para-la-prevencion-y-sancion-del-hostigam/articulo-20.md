@@ -1,0 +1,1 @@
+Artículo 20.-Las partes. Se considerarán partes en el proceso la presunta víctima y la persona denunciada. Las partes tendrán el derecho de hacerse acompañar por patrocinio letrado. La presunta víctima tendrá la posibilidad de acompañarse del apoyo emocional o psicológico que estime pertinente.

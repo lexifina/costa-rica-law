@@ -1,0 +1,1 @@
+Artículo 34.-Denuncias falsas. Quien denuncie por acoso laboral de forma falsa o abusiva, podrá ser sujeto de sanción disciplinaria, previa apertura de causa y observando el debido proceso, conforme a las disposiciones aplicables, sin perjuicio de la responsabilidad civil o penal que pudiera corresponderle de igual manera.

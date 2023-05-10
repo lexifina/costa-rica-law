@@ -1,0 +1,1 @@
+Artículo 35.-Normativa complementaria. En todo aquello no previsto en el presente reglamento se aplicará lo establecido en la Ley General de la Administración Pública, el Código de Trabajo, Convenciones Colectivas, Ley 7794 y demás disposiciones conexas y concordantes.
