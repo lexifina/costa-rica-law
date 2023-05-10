@@ -1,1 +1,1 @@
-Artículo 11.—En caso de que la persona extranjera ingrese al país por medio de transporte particular o propio, deberá de efectuar el depósito del 75% de un tiquete de viaje según el medio utilizado para su ingreso (terrestre, marítimo o aéreo).
+Artículo 11.-(Derogado por el artículo 3° del decreto ejecutivo N° 44088 del 10 de mayo de 2023)

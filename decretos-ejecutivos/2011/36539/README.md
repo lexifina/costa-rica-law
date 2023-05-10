@@ -14,3 +14,4 @@ Reglamento del Fondo de Depósito de Garantía de la Ley General de Migración y
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-04-27 | la propia norma |
+| 2 | 2023-05-10 | Decreto Ejecutivo 44088 (2023-05-10) |
