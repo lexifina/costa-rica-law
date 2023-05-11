@@ -14,3 +14,4 @@ Reglamento de operación de la Red Frigorífica Nacional (REFRINA)
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-11-11 | la propia norma |
+| 2 | 2023-05-11 | Reglamento 0 (2023-05-11) |
