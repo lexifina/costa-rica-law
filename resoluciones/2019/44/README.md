@@ -14,3 +14,4 @@ Metodología tarifaria para los servicios de acueducto, alcantarillado e hidrant
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-03-18 | la propia norma |
+| 2 | 2023-05-11 | Resolución 77 (2023-05-11) |
