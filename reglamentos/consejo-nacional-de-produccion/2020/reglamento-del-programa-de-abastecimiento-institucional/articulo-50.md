@@ -1,2 +1,0 @@
-Artículo 50.-En el supuesto de detectarse alguno de los incumplimientos señalados en la presente normativa, el Director Regional gestionará la denuncia ante la Subgerencia General quien tramitará el proceso que corresponda garantizando la aplicación de los principios del debido proceso para lo cual contará con el apoyo de la Dirección de Asuntos Jurídicos.
-(Así reformado en sesión N° 3111 del 24 de agosto de 2022)

@@ -1,2 +1,0 @@
-Artículo 29.-La inscripción y registro del suplidor categorizado como grande alternativo será aprobada por la Junta Directiva del CNP por recomendación fundamentada de la Comisión Técnica. La suplencia que brinde este proveedor estará condicionada a que los suplidores prioritarios o de interés institucional registrados ante PAI, no dispongan del producto o las condiciones del servicio demandado.
-(Así reformado en sesión N° 3111 del 24 de agosto de 2022)

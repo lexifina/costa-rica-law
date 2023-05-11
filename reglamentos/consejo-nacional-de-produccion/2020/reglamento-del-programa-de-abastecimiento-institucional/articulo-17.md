@@ -1,2 +1,0 @@
-Artículo 17º.-La Junta Administrativa elevará cada semestre a la Junta Directiva del CNP, para su aprobación, un informe elaborado por la DPE sobre la compra de productos a suplidores categorizados como grandes alternativos con resolución motivada que justifique tales compras por desabastecimiento local o por carecer de oferta de esos productos desde los suplidores prioritarios que define la Ley 8700.
-Este infome se rendirá en la primera sesión de la Junta Directiva de los meses de febrero y agosto de cada año.

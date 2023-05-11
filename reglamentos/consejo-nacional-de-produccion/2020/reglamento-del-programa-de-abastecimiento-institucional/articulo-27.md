@@ -1,1 +1,0 @@
-Artículo 27º.-Corresponderá a los niveles gerenciales de la Institución revisar semestralmente los informes relativos a evaluaciones del servicio brindado, resultados contables, verificación de ejecución y adecuada liquidación de inventarios, elevados por la Comisión Técnica y la Dirección Financiera según corresponda.

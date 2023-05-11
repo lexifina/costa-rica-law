@@ -1,3 +1,0 @@
-SECCIÓN SEGUNDA
-Disposiciones generales para compras y adjudicación de mercado.
-Artículo 14°.-Los micro, pequeños y medianos productores agropecuarios y agroindustriales, pesqueros y acuícolas o sus agro empresas, serán los suplidores prioritarios de interés institucional para el PAI y los beneficiarios directos del servicio técnico - especializado institucional. Podrán participar además otro tipo de proveedores no considerados como pequeños o medianos, de conformidad con la condición de excepción dispuesta en el artículo 9 de la Ley Orgánica del CNP, Nº 2035 y sus reformas y según se detalla en este reglamento.

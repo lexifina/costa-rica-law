@@ -1,1 +1,0 @@
-Artículo 32.º-La Comisión Técnica avalará la metodología a ser empleada por la Dirección de Mercadeo y Agroindustria del CNP, para sustentar la razonabilidad y estabilidad de los precios de compra y venta PAI y presentarla para su aprobación ante la Junta Directiva.
