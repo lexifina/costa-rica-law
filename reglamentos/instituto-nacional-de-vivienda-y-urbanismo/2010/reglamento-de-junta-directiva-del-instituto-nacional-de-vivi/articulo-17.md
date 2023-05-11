@@ -1,9 +1,12 @@
-Artículo 17.—La lista de asuntos a considerar estará distribuida de la siguiente forma:
-0 Aprobación de las Actas de Sesiones Anteriores.
-0 Temas específicos a tratar.
-0 Correspondencia.
-0 Asuntos de la Presidencia Ejecutiva.
-0 Asuntos de los Directivos.
-0 Asuntos presentados por la Administración.
-0 Asuntos presentados por la Auditoría Interna.
-0 Informe de Comisiones.
+Artículo 17.-La lista de asuntos a considerar estará distribuida de la siguiente forma:
+I. Aprobación del orden del día.
+II. Aprobación de las actas de sesiones anteriores.
+III. Temas prioritarios.
+IV. Correspondencia.
+V. Asuntos de la presidencia ejecutiva.
+VI. Asuntos de los directivos.
+VII. Asuntos presentados por la administración.
+VIII. Asuntos presentados por la auditoría interna.
+IX. Asuntos de comisiones.
+Los Temas Prioritarios pueden provenir de cualquiera de las siguientes instancias: miembros de la Junta Directiva, Presidencia Ejecutiva, Gerencia General y/o Administración.
+(Así reformado en sesión N° 6579 del 11 de mayo de 2023)
