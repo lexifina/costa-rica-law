@@ -1,0 +1,1 @@
+Artículo 19: El presupuesto disponible para el mantenimiento de la infraestructura peatonal aceras y cumplimiento del artículo 84 del código municipal se distribuirá según lo determine el diagnóstico del plan de movilidad peatonal, ajustándose a la necesidad real del cantón.

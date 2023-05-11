@@ -1,0 +1,1 @@
+Artículo 8: La Municipalidad de Montes de Oro se encuentra facultada para colocar, en las aceras, cualquier dispositivo de seguridad que pueda garantizar la seguridad de las personas ciudadanas y proteger la infraestructura pública conforme al artículo 11 de la Ley de Movilidad Peatonal N°9976.

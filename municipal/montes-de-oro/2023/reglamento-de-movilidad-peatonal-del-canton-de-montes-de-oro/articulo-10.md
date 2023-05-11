@@ -1,0 +1,1 @@
+Artículo 10: La Municipalidad de Montes de Oro podrá eliminar cualquier obstáculo existente en la vía pública peatonal que dificulte o interrumpa de alguna forma la movilidad peatonal, Conforme al artículo 17 de la Ley de Movilidad Peatonal N°9976.
