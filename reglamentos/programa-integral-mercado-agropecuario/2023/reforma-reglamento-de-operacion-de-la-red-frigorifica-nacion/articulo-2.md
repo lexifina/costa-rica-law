@@ -1,0 +1,1 @@
+Artículo 2º-Incorpórese un inciso i) al artículo 8° al Reglamento de Operación de la Red Frigorífica Nacional (REFRINA), publicado a La Gaceta N° 214 de 11 de noviembre del 2019, que exprese: "i) Establecer los horarios de prestación de servicios de REFRINA".
