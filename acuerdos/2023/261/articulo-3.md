@@ -1,0 +1,1 @@
+Artículo 3°-La presente convocatoria será para el período comprendido entre las cero horas del once de mayo del año dos mil veintitrés y hasta las veinticuatro horas del diez de mayo del año dos mil veinticuatro.
