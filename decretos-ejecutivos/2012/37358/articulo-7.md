@@ -1,2 +1,0 @@
-Artículo 7º- DE LAS MEDIDAS SANITARIAS
-El SENASA podrá dictar cualesquiera medidas sanitarias de protección en aras de resguardar la salud de las personas y el bienestar animal, dentro de la propiedad privada o pública según corresponda, pudiendo éstas ir desde el cierre temporal o cuarentena de establecimientos, el decomiso, la retención, la destrucción, desinsectación de plantas o productos de origen animal o vegetal y cualquier otra debidamente justificada que se considere pertinente aplicar.
