@@ -1,0 +1,1 @@
+Artículo 10.-Vigencia del Trámite La vigencia dependerá de la gestión solicitada por el organizador. La autorización tendrá una vigencia hasta el día hábil posterior de finalizada la fecha en que se realizará el evento.
