@@ -1,0 +1,1 @@
+Artículo N° 15. Todos los vehículos Institucionales deberán contar con un dispositivo de monitoreo GPS o similar, que permita determinar su ubicación y trazabilidad, en concordancia con las disposiciones que genere la Gerencia Administrativa a través de la unidad técnica en transportes.

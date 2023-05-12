@@ -1,0 +1,1 @@
+Artículo N° 26. En caso de accidente relacionado con el vehículo institucional, el conductor debe informar a su jefatura inmediata para que se ejecuten los procedimientos establecidos para tales efectos. Ningún conductor se encuentra facultado para efectuar arreglos extrajudiciales o conciliaciones en nombre de la Institución.

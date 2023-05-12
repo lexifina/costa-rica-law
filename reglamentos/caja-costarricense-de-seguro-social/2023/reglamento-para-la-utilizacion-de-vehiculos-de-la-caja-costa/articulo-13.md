@@ -1,0 +1,1 @@
+Artículo N° 13. Todas las unidades con vehículo asignado deben mantener un expediente vehicular el cual contenga el historial cronológico de las operaciones de la unidad de acuerdo con la normativa interna.

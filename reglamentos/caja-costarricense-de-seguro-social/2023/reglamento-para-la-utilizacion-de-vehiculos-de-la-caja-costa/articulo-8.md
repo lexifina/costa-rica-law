@@ -1,0 +1,2 @@
+Artículo N° 8. Para la utilización de los vehículos institucionales, debe existir una autorización expresa, física o digital, del titular subordinado de la unidad administradora del vehículo o de quien este delegue -debidamente facultado-, para las personas trabajadoras que harán uso del bien. Lo anterior con excepción del vehículo discrecional de la Presidencia Ejecutiva.
+La información correspondiente a la autorización deberá incluir el nombre de las personas que utilizarán el vehículo, los horarios de uso y los lugares por visitar y otros (vale de transporte).

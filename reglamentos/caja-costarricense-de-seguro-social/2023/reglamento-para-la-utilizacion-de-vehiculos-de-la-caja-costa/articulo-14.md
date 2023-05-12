@@ -1,0 +1,2 @@
+Artículo N° 14. Para la prestación del servicio de traslado, el conductor debe portar durante todo el recorrido, el respectivo vale de transporte. Se debe hacer constar en este documento la verificación de los lugares visitados, según la normativa en transportes.
+El titular subordinado debe garantizar que se cumpla la ruta establecida, no obstante, en caso de requerir desvíos, debe quedar debidamente justificado en dicho documento.

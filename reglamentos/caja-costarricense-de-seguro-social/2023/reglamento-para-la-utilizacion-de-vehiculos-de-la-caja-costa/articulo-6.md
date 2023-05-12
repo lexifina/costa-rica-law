@@ -1,0 +1,2 @@
+Artículo N° 6. La asignación y utilización de vehículos de la Institución por parte de las personas trabajadoras, responde a un criterio de eminente necesidad para el cumplimiento de sus labores.
+Bajo ninguna circunstancia, e independientemente del carácter del uso del vehículo, será considerado como beneficio, mejoría salarial o salario en especie, y no dará lugar a derechos adquiridos en su favor.

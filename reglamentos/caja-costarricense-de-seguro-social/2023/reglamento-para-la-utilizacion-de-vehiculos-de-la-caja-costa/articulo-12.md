@@ -1,0 +1,2 @@
+CAPITULO III ACCIONES DE CONTROL
+Artículo N° 12. La Gerencia Administrativa, a través de la unidad técnica de transporte, promulgará y promoverá el conjunto de controles necesarios para la gestión y uso racional de los vehículos institucionales mediante normativa interna de transportes, orientados a responsabilidades y competencias, registros de operación, custodia, mantenimiento, gestión de accidentes, entre otros.

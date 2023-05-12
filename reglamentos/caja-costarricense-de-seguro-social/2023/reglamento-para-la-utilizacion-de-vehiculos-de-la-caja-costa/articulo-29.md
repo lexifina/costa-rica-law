@@ -1,0 +1,1 @@
+Artículo N° 29. Toda unidad responsable de vehículos debe ejecutar de manera oportuna y eficiente las actividades de mantenimiento preventivo y correctivo, así como, cualquier otra disposición que la unidad técnica de transporte determine en la normativa vigente en esta materia.

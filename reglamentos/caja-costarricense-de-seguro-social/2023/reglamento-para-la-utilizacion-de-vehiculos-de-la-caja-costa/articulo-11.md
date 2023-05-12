@@ -1,0 +1,1 @@
+Artículo N° 11. Se tomará como punto de partida y conclusión de un servicio de transporte, la ubicación de la unidad institucional a cargo del vehículo y se podrán recoger o dejar personas trabajadoras dentro de la ruta establecida.

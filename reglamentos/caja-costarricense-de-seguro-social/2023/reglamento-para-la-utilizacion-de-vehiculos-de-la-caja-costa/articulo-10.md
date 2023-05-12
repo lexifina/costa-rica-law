@@ -1,0 +1,3 @@
+Artículo N° 10. La autorización para que vehículos de uso administrativo general circulen en horas y días fuera del horario normal de la unidad a la que están asignados, deberá hacerla el titular subordinado a cargo del vehículo; todo ello en circunstancias debidamente justificadas por la actividad ordinaria, o por causas de fuerza mayor, para desarrollar funciones propias del cargo o específicas.
+Las unidades que presten servicios 24 horas, fines de semana y feriados, deberán establecer las medidas de control interno para autorizar el uso de los vehículos.
+No se permitirá la circulación sin el respectivo vale de transporte; únicamente se obviará el requisito en emergencia plenamente calificada.

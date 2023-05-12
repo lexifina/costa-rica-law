@@ -1,0 +1,1 @@
+Artículo N° 5. Los vehículos de la Caja deberán portar una placa con numeración oficial y el logotipo de la Institución con indicación del nombre de la unidad a que pertenecen. Se exceptúa de esta condición el vehículo asignado a la Presidencia Ejecutiva por ser de uso discrecional.
