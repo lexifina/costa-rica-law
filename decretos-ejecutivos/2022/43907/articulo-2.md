@@ -1,0 +1,3 @@
+Artículo 2. Ámbito de aplicación
+1. Este Reglamento regula la aplicación de las disposiciones a que se refieren los Artículos 4.19 al 4.24, de conformidad con lo establecido en el Artículo 4.25 del Tratado, así como la operación del CIRI.
+2. Treinta días después de la entrada en vigor de este Reglamento, las Partes notificarán los nombres y datos de contacto de las personas que fungirán como representantes del CIRI por parte del sector público, así como por parte del sector privado, en este último caso se especificará el sector productivo al que representan (papel, textil o eléctrico). Cuando se registren cambios posteriores en los representantes se notificarán a la brevedad posible.

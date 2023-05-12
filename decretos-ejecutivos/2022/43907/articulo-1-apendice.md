@@ -1,0 +1,18 @@
+APÉNDICE 1
+MATERIALES DEL SECTOR DEL PAPEL (PARTIDA 48.10, 48.11, 48.19, 48.21, SUBPARTIDA 4823.20-4823.40, 4823.70-4823.90) SOLICITADOS PARA
+PAÍS QUE REALIZA LA SOLICITUD:
+EMPRESA(S):
+TIPO DE DISPENSA:
+[imagen]
+MATERIALES DEL SECTOR TEXTIL (CAPITULO 50-63) SOLICITADOS PARA DISPENSA
+PAIS QUE REALIZA LA SOLICITUD:
+EMPRESA(S):
+TIPO DE DISPENSA:
+[imagen]
+MATERIALES DEL SECTOR ELÉCTRICO (SUBPARTIDA 8544.30 y 8544.49) SOLICITADOS PARA DISPENSA
+PAIS QUE REALIZA LA SOLICITUD:
+EMPRESA(S):
+TIPO DE DISPENSA:
+[imagen]
+Artículo 2.- La entrada en vigor del presente Decreto Ejecutivo surtirá efecto treinta (30) días hábiles después de su publicación en el Diario Oficial La Gaceta.
+Dado en la Presidencia de la República, a los catorce días del mes de noviembre del año dos mil veintidós.

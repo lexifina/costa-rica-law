@@ -1,0 +1,2 @@
+Artículo 16. Confidencialidad de la información
+El CIRI, el Coordinador del CIRI, los asesores técnicos, la Comisión Administradora del Tratado (la Comisión) y cualquier otra persona que intervenga en el procedimiento de investigación mantendrán, en todo momento, la confidencialidad de la información que les sea presentada. Cualquier incumplimiento a esta obligación será sancionado de conformidad con la legislación de cada Parte.

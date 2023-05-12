@@ -1,0 +1,3 @@
+Artículo 6. Reglas para la operación del CIRI
+1. El CIRI estará facultado para tomar decisiones administrativas y procedimentales tales como la determinación del lugar y fecha de sus reuniones. También se encargará de diseñar el formato de sus dictámenes, informes o delegar funciones específicas a alguno de sus integrantes, siempre. que esas decisiones no sean incompatibles con este Reglamento ni con el Tratado.
+2. El CIRI podrá desempeñar sus funciones a través de cualquier medio de comunicación, incluyendo el teléfono, correo electrónico, videoconferencia o cualquier otro medio de transmisión electrónica, siempre que se confirme su recepción. Asimismo, podrá reunirse alternativamente en el territorio de cada Parte o según lo acuerde.
