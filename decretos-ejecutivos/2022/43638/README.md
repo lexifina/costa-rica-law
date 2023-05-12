@@ -14,3 +14,4 @@ Reforma Reglamento al inciso c) del artículo 14 bis de la Ley Orgánica del Ban
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-07-28 | la propia norma |
+| 2 | 2023-05-12 | Decreto Ejecutivo 44019 (2023-05-12) |
