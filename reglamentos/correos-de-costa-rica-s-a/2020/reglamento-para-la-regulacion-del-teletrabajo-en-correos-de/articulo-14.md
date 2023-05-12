@@ -1,1 +1,2 @@
-Artículo 14.—Integración de la comisión Institucional de teletrabajo: La comisión de teletrabajo estará integrada por quien desempeñe los puestos de Director(a) Jurídico, Director de Infraestructura de TI, el Ingeniero de Salud y Seguridad Organizacional y Gerente de Recursos Humanos y quien coordinará la comisión.
+Artículo 14.-Integración de la comisión Institucional de teletrabajo. La comisión de teletrabajo estará integrada por quien desempeñe los puestos de Director (a) Jurídico, un representante de la Gerencia de Tecnologías de la Información, el Ingeniero de Salud y Seguridad Ocupacional y Gerente de Recursos Humanos y quien coordinará la Comisión.
+(Así reformado en sesión N° 1782 del 12 de mayo de 2023)

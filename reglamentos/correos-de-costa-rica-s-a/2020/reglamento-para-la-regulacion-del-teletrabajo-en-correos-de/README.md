@@ -14,3 +14,4 @@ Reglamento para la regulación del teletrabajo en Correos de Costa Rica
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-03-02 | la propia norma |
+| 2 | 2023-05-12 | Reglamento 1782 (2023-05-12) |
