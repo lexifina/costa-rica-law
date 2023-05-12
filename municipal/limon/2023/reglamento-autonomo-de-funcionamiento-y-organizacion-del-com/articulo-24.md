@@ -1,0 +1,3 @@
+CAPÍTULO V
+De las sesiones de la Junta Directiva Comité Cantonal
+Artículo 24. -El Comité Cantonal, sesionará en forma ordinaria cuatro veces al mes, en día, fecha y hora que fijará en forma permanente, mediante acuerdo, el mismo Comité en su sesión inaugural y en forma extraordinaria, cuando lo convoque el mismo Comité, el presidente o tres de sus miembros. La convocatoria a sesión extraordinaria se debe hacer personalmente o al medio que cada miembro fije, con por lo menos veinticuatro horas de anticipación. En dicha convocatoria se debe señalar el orden del día de la sesión. En las sesiones ordinarias el orden del día será el siguiente: a) Lectura y aprobación del acta; b) audiencias; c) informes de Presidencia, Tesorería

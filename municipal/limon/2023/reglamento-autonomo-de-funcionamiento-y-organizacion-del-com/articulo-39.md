@@ -1,0 +1,4 @@
+CAPÍTULO VIII
+DE LA ORGANIZACIÓN Y FUNCIONAMIENTO
+DEL COMITÉ CANTONAL DE DEPORTES Y RECREACIÓN DE LIMON
+Artículo 39. - El superior jerárquico de la administración es la Junta Directiva del Comité Cantonal. El puesto de Director Administrativo, será nombrado bajo las reglas de la idoneidad comprobada, para ello, deberá incluirse dicho puesto en el manual descriptivo de puestos del propio Comité avalado por la Talento Humano de la Municipalidad del Limón, el cual tiene la obligación de contar con uno que detalle las funciones y requisitos de cada uno de los miembros del personal del Comité o en su defecto usar supletoriamente el de la Municipalidad, para las plazas de similar nomenclatura de puestos y funciones. Dicho puesto deberá ser llenado bajo las reglas de concurso reguladas en el Código Municipal.

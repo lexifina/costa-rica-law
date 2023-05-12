@@ -1,0 +1,2 @@
+Artículo 7.-La Junta Directiva del Comité Cantonal, es la máxima autoridad de este organismo y es la encargada de su gobierno y dirección, estando integrada por siete miembros nombrados en de conformidad a lo exigido en el Código Municipal.
+Estará conformada por un presidente, un vicepresidente, un secretario, un Tesorero y un Vocal, de nombramiento de la conformidad con la sección tercera de este capítulo y dos representantes juveniles.

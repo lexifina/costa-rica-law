@@ -1,0 +1,1 @@
+Artículo 10. -No podrán formar parte de la Junta Directiva del Comité Cantonal los regidores y síndicos, el alcalde, los alcaldes suplentes, el auditor (a) el tesorero (a), el contador (a), sus cónyuges o parientes en línea directa o colateral hasta el tercer grado de consanguinidad inclusive.

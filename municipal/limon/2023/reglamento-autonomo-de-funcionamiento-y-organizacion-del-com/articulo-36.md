@@ -1,0 +1,3 @@
+CAPÍTULO VI
+De las sesiones de los Comités Comunales y Juntas Administradoras
+Artículo 36.-Todos los Comités Comunales y Juntas Administradoras del Comité Cantonal, llevarán un libro de actas, en donde harán constar en forma clara y sucinta, los acuerdos que se adopten en cada sesión y las incidencias que uno o varios directores soliciten que se haga constar en el acta. Estos libros de actas serán autorizados por la Auditoria Municipal. En todos los casos, las hojas de los libros deben ser selladas y foliadas por la oficina autorizante. Las actas una vez, aprobadas por el Comité y/o Junta y serán firmadas por el presidente y el secretario.

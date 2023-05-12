@@ -1,0 +1,1 @@
+Artículo 67 -En el uso de las instalaciones deportivas existentes, el Comité Cantonal, los comités Comunales y las Juntas Administradoras, deberán darles participación a todos los grupos deportivos organizados de la comunidad, debiendo tener a todos los grupos deportivos de la comunidad debidamente registrados.
