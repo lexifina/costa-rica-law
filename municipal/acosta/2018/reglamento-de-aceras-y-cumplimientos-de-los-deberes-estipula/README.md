@@ -14,3 +14,4 @@ Reglamento de aceras y cumplimientos de los deberes estipulados en el artículo 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-04-10 | la propia norma |
+| 2 | 2023-05-12 | Reglamento municipal 19 (2023-05-12) |
