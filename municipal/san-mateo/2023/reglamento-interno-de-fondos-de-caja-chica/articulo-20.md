@@ -1,0 +1,1 @@
+Artículo 20.-Sobre los faltantes de dinero. Si realizado el arqueo se determinará un faltante de dinero, éste deberá reponerse de inmediato al fondo fijo y si fuera un sobrante de dinero, deberá depositarse a la cuenta general de la municipalidad, una vez concluido el arqueo.

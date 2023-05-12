@@ -1,0 +1,1 @@
+Artículo 5°-Limitación territorial del gasto de viaje. No podrán cubrirse gastos de viaje a los funcionarios de la administración, dentro de un radio inferior a los 12 kilómetros de distancia de esta municipalidad.

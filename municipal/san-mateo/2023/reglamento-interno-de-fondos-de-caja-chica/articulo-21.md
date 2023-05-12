@@ -1,0 +1,1 @@
+Artículo 21.-Uso del Fondo de Caja Chica en ausencia del responsable del Fondo. Si por caso fortuito o fuerza mayor la Tesorería se ausente de su puesto y siendo necesario la utilización del fondo, se realizará un arqueo en presencia del Contador Municipal y su jefatura inmediata.

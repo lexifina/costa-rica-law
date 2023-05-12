@@ -1,0 +1,1 @@
+Artículo 7°-Reintegro: El reintegro de las sumas erogadas se hará mensualmente (a fin de mes) o una vez que este se agote, de acuerdo con la necesidad de reponer los adelantos y cancelaciones girados.

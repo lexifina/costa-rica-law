@@ -1,0 +1,1 @@
+Artículo 9°-Póliza de Fidelidad. Deberá ser rendida por el Tesorero ante entidades autorizadas a brindar ese servicio, para cumplir con lo que indica el artículo 13 de la Ley de Administración Financiera de la República y Presupuesto Público N° 8131, y el monto de la póliza se regirá de acuerdo a lo que indica el reglamento interno de pólizas u causaciones.

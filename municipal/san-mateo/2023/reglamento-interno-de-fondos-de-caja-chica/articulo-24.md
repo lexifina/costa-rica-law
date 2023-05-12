@@ -1,0 +1,2 @@
+Artículo 24.-Vigencia y derogatoria. Este reglamento entrará en vigencia una vez cumplido el procedimiento establecido en el Código Municipal 43. Asimismo, deroga toda normativa interna anterior a la promulgación de este, relacionada con los procedimientos de contratación pública. Concejo Municipal, en acuerdo N° 4 de la sesión ordinaria N° 155 del 17 de abril de 2023.
+San Mateo, 21 de abril del 2023.
