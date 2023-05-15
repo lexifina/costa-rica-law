@@ -24,6 +24,8 @@ X. Que la Ley Orgánica del INA, Ley No. 6868 y sus reformas, dispone en su art�
 XI. Que, en virtud de lo anterior, se hace necesario emitir un nuevo "REGLAMENTO DE ACREDITACIÓN Y AVAL TÉCNICO DE SERVICIOS DE CAPACITACIÓN Y FORMACIÓN PROFESIONAL DEL INSTITUTO NACIONAL DE APRENDIZAJE"
 POR TANTO:
 La Junta Directiva del Instituto Nacional de Aprendizaje, mediante Acuerdo firme JD-AC- 235-2021, tomado en la Sesión Extraordinaria N° 25-2021 del día 21 de julio del 2021, acordó aprobar el siguiente "REGLAMENTO DE ACREDITACIÓN Y AVAL TÉCNICO DE SERVICIOS DE CAPACITACIÓN Y FORMACIÓN PROFESIONAL DEL INSTITUTO NACIONAL DE APRENDIZAJE", el cual dispone:
+(Nota de Sinalevi: El presente reglamento fue reformado parcialmente y reproducido su texto de forma íntegra mediante sesión ordinaria N° 19-2023 del 15 de mayo del 2023, publicada en el Alcance Digital N° 100 a La Gaceta N° 97 del 1° de junio del 2023, y se transcribe a continuación:)
 CAPITULO I:
 DISPOSICIONES GENERALES
-ARTÍCULO 1: OBJETO DEL REGLAMENTO: El presente Reglamento tiene por objeto regular el proceso de acreditación y/o aval técnico, que garantice la calidad de los Servicios de Capacitación y Formación Profesional, así como de la Educación y Formación Técnica Dual, impartida en cualquier forma de entrega por entidades públicas o privadas, físicas o jurídicas a título oneroso o gratuito, para dar respuesta a las necesidades del mercado laboral.
+ARTÍCULO 1: OBJETO DEL REGLAMENTO.
+El presente Reglamento tiene por objeto regular el proceso de acreditación y/o aval técnico, que garantice la calidad de los Servicios de Capacitación y Formación Profesional, así como de la Educación y Formación Técnica Dual, impartida en cualquier forma de entrega por entidades públicas o privadas, físicas o jurídicas a título oneroso o gratuito, para dar respuesta a las necesidades del mercado laboral.

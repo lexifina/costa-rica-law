@@ -1,4 +1,5 @@
-ARTÍCULO 22. PROHIBICIONES Durante la vigencia del contrato de acreditación, se encuentra absolutamente prohibido para las personas físicas o jurídicas beneficiarias:
+ARTÍCULO 22. PROHIBICIONES
+Durante la vigencia del contrato de acreditación, se encuentra absolutamente prohibido para las personas físicas o jurídicas beneficiarias:
 a) Utilizar diseños curriculares no autorizados.
 b) Utilizar indebidamente los logos institucionales autorizados por el INA.
 c) Generar y utilizar publicidad engañosa (panfletos, perifoneo, prensa escrita, televisión, medios electrónicos y otros).

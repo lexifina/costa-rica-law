@@ -1,1 +1,2 @@
-ARTÍCULO 33. DEROGATORIA: Se deroga el Reglamento de Acreditación de Servicios de Capacitación y Formación Profesional publicado en el Alcance Nº 124 de La Gaceta Nº104, del 05 de junio de 2019.
+ARTÍCULO 33. REFORMAS
+Se reforman parcialmente los considerandos I, II, III, y X, así como los artículos 3, 6, 7, 8, 9,10,11,13,15,17,18,19 y 33, y el Transitorio II todos del Reglamento para la Acreditación de Servicios y Aval Técnico del Instituto Nacional de Aprendizaje, publicado en el Alcance Nº 151 de La Gaceta Nº149, del 05 de agosto de 2021. Quedando los restantes artículos del Reglamento indicado sin modificación alguna.

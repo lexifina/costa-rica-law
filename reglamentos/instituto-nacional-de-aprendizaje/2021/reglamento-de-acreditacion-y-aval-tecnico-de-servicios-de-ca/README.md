@@ -14,3 +14,4 @@ Reglamento de acreditación y aval técnico de servicios de capacitación y form
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-08-05 | la propia norma |
+| 2 | 2023-05-15 | Reglamento 19 (2023-05-15) |

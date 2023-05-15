@@ -1,8 +1,11 @@
-ARTÍCULO 23. SANCIONES: Cuando una persona física o jurídica solicitante o beneficiaria con servicios acreditados, genere incumplimiento de los deberes administrativos, de manejo o respeto a las disposiciones de este reglamento, acarreará una sanción de conformidad con la siguiente clasificación:
+ARTÍCULO 23. SANCIONES
+Cuando una persona física o jurídica solicitante o beneficiaria con servicios acreditados, genere incumplimiento de los deberes administrativos, de manejo o respeto a las disposiciones de este reglamento, acarreará una sanción de conformidad con la siguiente clasificación:
 Faltas Leves: Se consideran faltas leves el incumplimiento de los siguientes artículos:
-1. Artículo 21, numeral 1, incisos: c) y d), siendo su sanción una amonestación por escrito. En caso de que las mismas sean reiterativas se clasificarán como Falta Grave.
+1. Artículo 21, numeral 1, incisos: c) y d), siendo su sanción una amonestación por escrito.
+En caso de que las mismas sean reiterativas se clasificarán como Falta Grave.
 2. Artículo 21, numeral 2, incisos: a), b), c), e), g), h), j), k) l), y n). En caso de que las mismas sean reiterativas se clasificarán como Falta Grave.
 3. Artículo 21, numeral 2, inciso: o), se procederá con una amonestación por escrito y en caso de que las faltas sean reiterativas se clasificarán como Falta Gravísima y procederá la revocatoria del Aval Técnico.
-4. Artículo 22, inciso: l). Siendo, de igual forma su sanción una amonestación por escrito. En caso de que las mismas sean reiterativas se clasificarán como Falta Gravísima.
+4. Artículo 22, inciso: l). Siendo, de igual forma su sanción una amonestación por escrito.
+En caso de que las mismas sean reiterativas se clasificarán como Falta Gravísima.
 Falta Grave: Se considera falta grave el incumplimiento de lo dispuesto en el Artículo 21, numeral 1, incisos: a) y b), las cuales se sancionarán con la suspensión del proceso de evaluación hasta por un máximo de seis meses, debidamente justificado.
 Faltas Gravísimas: Se considerarán faltas gravísimas el incumplimiento de lo dispuesto en el Artículo 21.2 incisos: d), f), i), m) y en el Articulo 22, incisos: a), b), c), d), e), f), g), h), i), j), k), m) y n) las cuales serán sancionadas con la revocatoria de la acreditación y/o aval técnico, según corresponda, así como con la ejecución de la garantía de cumplimiento (si la hubiese), no pudiendo presentar una nueva solicitud por un periodo de un año, a partir del momento de su firmeza.
