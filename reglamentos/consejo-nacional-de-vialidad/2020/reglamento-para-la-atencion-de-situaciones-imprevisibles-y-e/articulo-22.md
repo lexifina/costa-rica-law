@@ -1,2 +1,0 @@
-Artículo 22.-Modificaciones contractuales. Una vez adjudicado el contrato, aun antes de iniciar su ejecución y durante esta, la unidad ejecutora lo podrá modificar ante cualquier variación de sus elementos esenciales. Esta modificación se efectuará conforme con los parámetros establecidos en el artículo 12 de la Ley de Contratación Administrativa y en el artículo 208 de su Reglamento.
-(Así reformado mediante oficio N° ACA 1-21-504 del 9 de noviembre de 2021)

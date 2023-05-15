@@ -1,1 +1,0 @@
-Artículo 24. Finiquito. Para los contratos de obra se deberá formalizar el respectivo finiquito, el cual deberá ser firmado en forma mancomunada por el Gerente de Conservación de Vías y Puentes, el Director Regional, el ingeniero de zona y el contratista. Este finiquito se hará conforme con lo dispuesto en la Ley de Contratación Administrativa y en su Reglamento.

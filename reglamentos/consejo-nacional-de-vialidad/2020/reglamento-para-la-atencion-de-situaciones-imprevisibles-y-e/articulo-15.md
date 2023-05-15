@@ -1,1 +1,0 @@
-Artículo 15. Revisión y Recomendación. La unidad ejecutora revisará, en el plazo máximo de dos días hábiles, el cumplimiento de todos los documentos establecidos en el artículo 14 del presente reglamento, y elaborará una recomendación de adjudicación al Gerente de Conservación de Vías y Puentes. Lo anterior puede ser en forma escrita mediante un oficio o por correo electrónico.

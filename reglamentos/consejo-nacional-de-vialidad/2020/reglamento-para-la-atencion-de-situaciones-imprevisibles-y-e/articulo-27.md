@@ -1,1 +1,0 @@
-Artículo 27. Normativa Supletoria. En lo no previsto en el presente reglamento, se aplicará supletoriamente, las disposiciones de la Ley de Contratación Administrativa, su Reglamento, y los principios que rigen la materia.
