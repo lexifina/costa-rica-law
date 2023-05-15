@@ -1,0 +1,1 @@
+Artículo 10.-Umbrales para determinar el procedimiento de contratación. El INVU se encuentra en el Régimen Diferenciado, por lo que le corresponderá el umbral para dicho Régimen, de conformidad con las disposiciones de la Contraloría General de la República.

@@ -1,0 +1,1 @@
+Artículo 18.-Presentación de la oferta. La oferta deberá presentarse en el sistema digital unificado, firmada digitalmente por quien tenga poder suficiente para ello, dentro del plazo previsto para tal efecto en el pliego de condiciones. Si hubiera alguna inconsistencia, el INVU hará la prevención durante la fase de subsanación de las ofertas.

@@ -1,0 +1,1 @@
+Artículo 30.-El recibo de la obra, bienes y /o servicios. Se regirá por lo estipulado en el artículo 108 de la Ley General de Contratación Pública si se tratara de recepción de obras públicas, o artículo 109 de la misma Ley para recepción de bienes o servicios.

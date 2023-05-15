@@ -1,0 +1,4 @@
+Artículo 9°-Procedimientos de contratación pública. La UAYC tiene plena competencia para conducir los trámites de los procedimientos de contratación pública, basándose en lo establecido en la Ley General de Contratación Pública y su Reglamento:
+a) Procedimientos ordinarios: Licitación Mayor, Licitación Menor y Licitación Reducida.
+b) Procedimientos extraordinarios: Remate y Subasta inversa electrónica.
+c) Procedimientos especiales: Contratación de urgencia, compra y arrendamiento de bienes inmuebles y servicios en competencia. Los procesos de urgencia que amenacen la continuidad del servicio que brinda el INVU, podrán realizarse en forma previa fuera del sistema digital unificado y posteriormente registrar la información en el sistema, para cual debe contarse con autorización suscrita por de la Gerencia General.

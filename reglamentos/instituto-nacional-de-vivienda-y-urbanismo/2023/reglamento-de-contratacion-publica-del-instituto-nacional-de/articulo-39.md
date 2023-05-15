@@ -1,0 +1,1 @@
+Artículo 39.-Caducidad. La caducidad del contrato será emitida por la persona u órgano que haya emitido el Acto Final del procedimiento, la cual será declarada de oficio o a petición de parte, mediante resolución motivada cumpliéndose con la normativa.

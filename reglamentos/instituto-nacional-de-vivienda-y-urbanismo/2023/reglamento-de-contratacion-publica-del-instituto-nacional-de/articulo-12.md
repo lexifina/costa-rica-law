@@ -1,0 +1,1 @@
+Artículo 12.-Multas y cláusula penal. Deberá establecerse en el pliego de condiciones el pago de las multas con los supuestos, montos y el detalle de los incumplimientos que originan el cobro de la multa. La cláusula penal procede por ejecución tardía o prematura de las obligaciones contractuales.

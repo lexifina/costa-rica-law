@@ -1,0 +1,4 @@
+Artículo 24.-Órganos competentes para el dictado del acto final. Los Órganos competentes para adjudicar, readjudicar, declarar desierto o infructuoso, revocar un procedimiento o emitir una nueva adjudicación son:
+a) En las Licitaciones Reducidas como los procesos especiales, extraordinarios y de excepción cuyo monto estimado esté dentro del umbral definido para las Licitaciones Reducidas, la responsabilidad será del Encargado de la Unidad Adquisiciones y Contrataciones.
+b) En las Licitaciones Menores y las Licitaciones Mayores que no sean de objeto contractual de obra pública, y las contrataciones especiales, extraordinarios y de excepción cuyo monto estimado esté dentro del umbral definido para las Licitaciones Mayores, le corresponderá dictar el Acto Final a la Junta de Adquisiciones.
+c) En las Licitaciones Mayores de Obra pública, le corresponderá a la Junta Directiva.

@@ -1,0 +1,1 @@
+Artículo 2°-Alcance. El presente Reglamento será de aplicación obligatoria para la gestión de compras públicas que realice el Instituto Nacional de Vivienda y Urbanismo al amparo de la Ley General de Contratación Pública y su Reglamento.

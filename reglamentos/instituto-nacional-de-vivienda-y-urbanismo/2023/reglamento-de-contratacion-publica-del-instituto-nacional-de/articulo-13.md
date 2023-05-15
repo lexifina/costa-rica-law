@@ -1,0 +1,1 @@
+Artículo 13.-Garantía de cumplimiento. La UAYC solicitará dentro del pliego de condiciones garantía de cumplimiento que el adjudicatario deberá presentar para asegurar la correcta ejecución del objeto contractual, de conformidad con el artículo 44 de la Ley General de Contratación Pública.

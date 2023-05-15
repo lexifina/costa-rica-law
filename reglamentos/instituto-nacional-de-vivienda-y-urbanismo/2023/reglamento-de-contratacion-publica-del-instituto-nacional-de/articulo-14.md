@@ -1,0 +1,1 @@
+Artículo 14.-Control y vigencia de las garantías. La vigencia de las garantías de cumplimiento se regirá por lo estipulado en el artículo 110 del Reglamento a la Ley General de Contratación Pública. Corresponderá al Contratista y al Administrador del Contrato mantener vigente la garantía de cumplimiento.

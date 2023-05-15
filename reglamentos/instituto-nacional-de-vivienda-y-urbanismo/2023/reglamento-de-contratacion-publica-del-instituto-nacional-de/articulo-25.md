@@ -1,0 +1,1 @@
+Artículo 25.-Firmeza. Cuando el acto de adjudicación o readjudicación adquiera firmeza, la UAYC deberá solicitar al adjudicatario la presentación de la garantía de cumplimiento dentro del plazo máximo improrrogable de 10 días hábiles.

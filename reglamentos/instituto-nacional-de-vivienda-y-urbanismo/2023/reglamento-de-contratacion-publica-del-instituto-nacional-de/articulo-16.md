@@ -1,0 +1,1 @@
+Artículo 16.-Devolución de Garantías. Las garantías cumplimiento se devolverán a petición de los interesados y con una autorización previa del Administrador del Contrato, de conformidad con el Reglamento a la Ley General de Contratación Pública.

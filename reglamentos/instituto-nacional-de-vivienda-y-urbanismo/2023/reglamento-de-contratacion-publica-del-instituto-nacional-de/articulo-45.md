@@ -1,0 +1,1 @@
+Artículo 45.-Actualizaciones. La UAYC velará por la actualización del presente Reglamento y se encargará de realizar las gestiones correspondientes para ello. Cualquier reforma a este Reglamento requiere de la aprobación de la Junta Directiva.
