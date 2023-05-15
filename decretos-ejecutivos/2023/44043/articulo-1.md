@@ -1,0 +1,15 @@
+Nº 44043-MEP
+EL PRESIDENTE DE LA REPÚBLICA
+Y LA MINISTRA DE EDUCACIÓN PÚBLICA
+En ejercicio de las atribuciones conferidas en los artículos, 140 inciso 3) y 146 de la Constitución Política; los artículos 27 inciso 1 ), 28 inciso 2) acá pite b ), de la Ley General de la Administración Pública, Nº 6227 del 02 de mayo de 1978; y, los artículos 496 y 505 del Código de Educación, Ley Nº 181 del 18 de agosto de 1944;
+CONSIDERANDO:
+I. Que la Sociedad de Seguros de Vida del Magisterio Nacional, es un órgano social dedicado desde su fundación a la administración de un seguro de vida para los y las trabajadores de la educación costarricense pública y privada.
+II. Que el artículo 505 del Código de Educación, establece la integración de la Junta Directiva de la Sociedad de Seguros de Vida del Magisterio Nacional, señalando en el inciso e) que, entre otros miembros, estará integrado por un representante de los educadores reincorporados o de quienes no están afiliados a ninguna asociación, nombrado directamente por el Ministerio de Educación Pública (MEP).
+III. Que por Decreto Ejecutivo Nº 43817-MEP, de fecha vein6uno del mes de noviembre del dos mil veintidós, publicado en el diario oficial La Gaceta Nº 6 del 16 de enero de 2023, se nombró como miembro de la Junta Directiva de la Sociedad de Seguros de Vida del Magisterio Nacional a la señora Fabiola Quiroz Condori, cédula de residencia 160400071536, en representación de los educadores reincorporados o de quienes no están afiliados a ninguna asociación.
+IV. Que por medio del oficio DMS-0094-05-2023 de fecha 11 de mayo de 2023, suscrito por la señora Fabiola Quiroz Condori se informa a la Junta Directiva de la Sociedad de Seguros de Vida del Magisterio Nacional su renuncia como representante de los educadores reincorporados o de quienes no están afiliados a ninguna asociación ante la Junta Directiva de la Sociedad de Seguros de Vida del Magisterio Nacional a partir de 11 de mayo de 2023.
+V. Que mediante oficio DM-0626-05-2023 de fecha 12 de mayo de 2023, suscrito por la señora Ministra de Educación Pública Anna Katharina Müller Castro, se infonna que el nuevo integrante de la Junta Directiva de la Sociedad de Seguros de Vida del Magisterio Nacional, en su calidad de representante de los educadores reincorporados o de quienes no están afiliados a ninguna asociación, es el señor José Leonardo Sánchez Hernández, cédula de identidad número 2-0577-0949, Viceministro de Planificación Institucional y Coordinación Regional del Ministerio Educación Pública.
+Por tanto,
+DECRETAN:
+NOMBRAMIENTO DE REPRESENTANTE EN LA JUNTA DIRECTIVA DE LA
+SOCIEDAD DE SEGUROS DE VIDA DEL MAGISTERIO NACIONAL
+Artículo 1 °- Nombrar al señor José Leonardo Sánchez Hernández, cédula de identidad número 2-0577-0949, Viceministro de Planificación Institucional y Coordinación Regional del Ministerio Educación Pública como miembro de la Junta Directiva de la Sociedad de Seguros de Vida del Magisterio Nacional, en representación de los educadores reincorporados o de quienes no están afiliados a ninguna asociación.
