@@ -24,3 +24,5 @@ ACUERDA
 12. Téngase como parte integral del presente Acuerdo, el mapa que se anexa.
 [imagen]
 13. Acuerdo firme.
+Se autoriza la posibilidad de realizar Torneos de Pesca Deportiva Turística, en la modalidad de pesca y liberación dentro del área de veda, siempre que se cuente con la aprobación del INCOPESCA y se cumpla con todos los requisitos establecidos para la realización de este tipo de eventos.
+(Así adicionado el párrafo anterior por acuerdo N° AJDIP/108-2023 del 16 de mayo de 2023)
