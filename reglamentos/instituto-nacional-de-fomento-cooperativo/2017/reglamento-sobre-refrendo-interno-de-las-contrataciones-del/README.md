@@ -14,3 +14,4 @@ Reglamento sobre refrendo interno de las contrataciones del Instituto Nacional d
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-07-12 | la propia norma |
+| 2 | 2023-05-16 | Resolución 0 (2023-05-16) |
