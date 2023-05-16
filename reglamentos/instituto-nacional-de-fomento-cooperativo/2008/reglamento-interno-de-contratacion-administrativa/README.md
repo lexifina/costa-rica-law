@@ -15,3 +15,4 @@ Reglamento Interno de Contratación Administrativa
 | --- | --- | --- |
 | 1 | 2008-11-24 | la propia norma |
 | 2 | 2011-04-12 | Reglamento 3824 (2011-04-12) |
+| 3 | 2023-05-16 | Resolución 0 (2023-05-16) |
