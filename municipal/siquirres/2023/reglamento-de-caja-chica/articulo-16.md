@@ -1,0 +1,2 @@
+Artículo 16.-Adelantos de caja chica no utilizados. Cuando por algún motivo la compra no se lleve a cabo, el funcionario que ha recibido el dinero del vale deberá hacer de inmediato el reintegro respectivo al responsable del fondo de caja chica.
+Para tal efecto, deberá ese funcionario aportar una justificación escrita avalada con la firma de la jefatura superior inmediata. La violación de lo anterior se considerará falta grave.

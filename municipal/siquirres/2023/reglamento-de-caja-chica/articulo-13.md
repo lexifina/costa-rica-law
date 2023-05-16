@@ -1,0 +1,2 @@
+Artículo 13.-Utilización de los fondos de viáticos. La suma máxima a autorizar por concepto de viáticos en el país, será el equivalente de una semana hábil de viáticos totales con base en la tarifa diaria más alta establecida en el Reglamento de Gastos de Viaje y Transporte para Funcionarios Públicos emitido por la Contraloría General de la República. De necesitarse un monto mayor deberá contar con la aprobación de la Alcaldía.
+El pago de viáticos debe sujetarse a lo dispuesto por el Reglamento de Gastos de Viaje y de Transporte para Funcionarios Públicos dictado por la CGR.

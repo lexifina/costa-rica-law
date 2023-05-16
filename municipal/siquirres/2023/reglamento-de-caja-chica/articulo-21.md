@@ -1,0 +1,5 @@
+CAPÍTULO - IV
+De los arqueos
+Artículo 21.-Los arqueos del Fondo de Caja Chica de la Tesorería. La Coordinación Financiera realizará los arqueos a los fondos de Caja Chica en efectivo, con el propósito de verificar, supervisar y controlar la aplicación de las normas y principios de auditoría vigentes y de las sanas prácticas de administración.
+Todo arqueo de caja chica se realizará en presencia del Tesorero Municipal, quién es el funcionario responsable del fondo, según lo dispuesto en el numeral 109 del Código Municipal o en presencia del funcionario que él designe para tales efectos. Este funcionario tendrá el derecho de solicitar una segunda verificación, si mantiene dudas sobre el resultado obtenido.
+La Unidad de Auditoría Interna al amparo de sus competencias realizará los arqueos de forma sorpresivos y en el momento que se considere oportuno o a solicitud del Alcalde Municipal, al fondo fijo de caja chica con el propósito de verificar, supervisar y controlar la aplicación de las normas y principios de auditoria vigentes y de las sanas prácticas de administración.

@@ -1,0 +1,1 @@
+Artículo 32.-Funciones del Departamento de Presupuesto. El Departamento de Presupuesto será el responsable de acreditar para cada compra de caja chica, que esta cuenta con los recursos presupuestarios suficientes y disponibles para la ejecución de las compras.

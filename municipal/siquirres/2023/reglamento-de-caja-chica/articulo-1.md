@@ -1,0 +1,6 @@
+MUNICIPALIDAD DE SIQUIRRES
+REGLAMENTO DE CAJA CHICA
+Artículo 1º-Ámbito de aplicación. El presente Reglamento regula la creación, organización, funcionamiento y control de los fondos de Caja Chica de la Municipalidad de Siquirres. Así como la compra de bienes, servicios y obras por medio de esta que requiera la Municipalidad de Siquirres de conformidad con este reglamento.
+Además, regula lo relacionado con el pago de viáticos para los colaboradores de la Municipalidad, considerando que en esta materia rigen complementariamente las disposiciones establecidas en el "Reglamento de Gastos de Viaje y de Transporte para Funcionarios Públicos dictado por la Contraloría General de la República".
+Esta materia está excluida del ámbito de aplicación de la Ley General de Contratación Pública, de conformidad con el artículo 3°, inciso g) y el artículo 12 del Reglamento de ese mismo cuerpo legal.
+Este Reglamento y los funcionarios que involucra quedan sujetos a las disposiciones dadas por la Ley de la Administración Financiera de la República y Presupuestos Públicos (N° 8131), Ley Orgánica de la Contraloría General de la República (N° º7428), Ley General de la Administración Pública (N° 6227), Ley General de Contratación Pública y su Reglamento, Código Municipal, y cualquier otra normativa conexa con la materia.

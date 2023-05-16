@@ -1,0 +1,3 @@
+Artículo 18.-El monto de la liquidación del Vale. El monto de lo gastado no podrá exceder el monto autorizado en el vale de caja chica. De presentarse esta situación el funcionario a nombre de quien se giró el vale debe solicitar el visto bueno de la Alcaldía.
+Para el trámite de compra por el fondo de caja chica, el funcionario que lo gestione para la adquisición de bienes y servicios, deberá solicitar ante el encargado del fondo, un comprobante de exoneración de pago del impuesto al valor agregado.
+Solo con el visto bueno de la Alcaldía se reconocerá el importe por concepto de impuesto al valor agregado, ya que de conformidad con lo establecido en el artículo 8°, del Código Municipal, está exenta del pago de toda clase de tributos.

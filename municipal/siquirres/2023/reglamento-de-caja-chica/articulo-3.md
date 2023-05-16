@@ -1,0 +1,7 @@
+Artículo 3º-Utilización de los fondos de Caja Chica. El Fondo de Caja Chica de la Tesorería se utilizará para realizar adelantos de dinero en efectivo o transferencias electrónicas para cubrir los gastos de operación autorizados en el Presupuesto de la Municipalidad, tales como:
+Gastos para el traslado, alimentación y hospedaje en el territorio nacional.
+Gastos por la compra de materiales, suministros, mobiliario, equipo, herramientas, servicios y obras, necesarias para la buena marcha de las dependencias institucionales.
+Cualquier otro pago que por conveniencia, eficiencia y oportunidad se considere como la mejor forma de realizarlo.
+La Caja Chica de la Tesorería será la única que se podrá utilizar para realizar adelantos de dinero efectivo y pagos de viáticos requeridos por los colaboradores de la institución. La suma máxima a autorizar por concepto de viáticos en el país, será el equivalente de una semana hábil de viáticos totales con base en la tarifa diaria más alta establecida en el Reglamento de Gastos de Viaje y Transporte para Funcionarios Públicos emitido por la Contraloría General de la República. De necesitarse un monto mayor deberá contar con la aprobación de la Alcaldía.
+El pago de viáticos debe sujetarse a lo dispuesto por el Reglamento de Gastos de Viaje y de Transporte para Funcionarios Públicos dictado por la CGR.
+Los fondos de caja chica operarán mediante el uso de una o más cuentas corrientes en algún Banco del Sistema Bancario Nacional.
