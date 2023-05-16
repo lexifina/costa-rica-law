@@ -1,0 +1,17 @@
+Nº 43896-S
+EL PRESIDENTE DE LA REPÚBLICA
+Y LA MINISTRA DE SALUD
+Con fundamento en las atribuciones que les confieren los artículos 50, 140 incisos 3) y 18) y 146 de la Constitución Política; 25, 27 inciso 1) y 28 inciso 2) acápite b) de la Ley N° 6227 del 2 de mayo de 1978 "Ley General de la Administración Pública"; 355, 356 y 362 de la Ley N° 5395 del 30 de octubre de 1973 "Ley General de Salud" y 1, 2 y 6 de la Ley N° 5412 del 8 de noviembre de 1973 "Ley Orgánica del Ministerio de Salud".
+Considerando:
+1º-Que es función esencial del Estado, velar por la protección de la salud de la población.
+2º-Que el Estado tiene también la responsabilidad de garantizar el bienestar de los ciudadanos, sin que por ello se obstaculicen innecesariamente las condiciones de competitividad para el desenvolvimiento de la actividad económica del país.
+3º-Que por razones sanitarias, puede ser necesario el retiro del mercado de aquellos productos de interés sanitario que representen un riesgo para la salud, ya sea como medida definitiva o como medida precautoria, cuando alguna relación de causa y efecto aún no se haya establecido de manera científica en su totalidad.
+4º-Que es necesario establecer el mecanismo para que se lleve a cabo el retiro del mercado de productos de interés sanitario y establecer las responsabilidades de quienes estén involucrados en el proceso.
+5º-Que los artículos 355, 356 y 362 de la Ley Nº 5395 del 30 de octubre de 1973 "Ley General de Salud", facultan al Ministerio de Salud para ordenar el retiro del comercio o de la circulación de productos de interés sanitario, cuando lo considere necesario, de acuerdo a la información disponible obtenida a través de alertas nacionales e internacionales emitidas por parte de otras entidades reguladoras, de denuncias, de inspecciones u otros medios, como resultado de un análisis de riesgo en donde se determine que puede existir un impacto negativo para la salud de la población.
+6º-Que de conformidad con el artículo 12 bis del Decreto Ejecutivo Nº 37045 del 22 de febrero de 2012 y su reforma "Reglamento a la Ley de Protección al Ciudadano del Exceso de Requisitos y Trámites Administrativos", la persona encargada de la Oficialía de Simplificación de Trámites del Ministerio de Salud ha completado como primer paso la Sección I denominada Control Previo de Mejora Regulatoria, que conforma el formulario de Evaluación Costo Beneficio. Las respuestas brindadas en esa Sección han sido todas negativas, toda vez que la propuesta no contiene trámites ni requisitos.
+7º-Que el presente Decreto Ejecutivo fue sometido a consulta pública por diez días hábiles mediante la página web del Ministerio de Salud, esto en atención del artículo 361 de la Ley Nº 6227 del 2 de mayo de 1978 "Ley General de la Administración Pública", lo que conllevó a que se le realizaran modificaciones de fondo en atención a las observaciones recibidas durante este plazo, según oficio MS-DRPIS-UNC-456-2022 de la Unidad de Normalización y Control de la Dirección de Regulación de Productos de Interés Sanitario. Por tanto,
+Decretan:
+REGLAMENTO PARA EL RETIRO DEL COMERCIO
+O DE LA CIRCULACIÓN DE PRODUCTOS
+DE INTERÉS SANITARIO
+Artículo 1º-Objeto y ámbito de aplicación. Establecer los lineamientos generales para el retiro del comercio o de la circulación de productos de interés sanitario disponibles en el territorio nacional, cuando estos presenten problemas de inocuidad, calidad, eficacia, seguridad o incumplimientos a la regulación sanitaria que justifiquen tal medida.
