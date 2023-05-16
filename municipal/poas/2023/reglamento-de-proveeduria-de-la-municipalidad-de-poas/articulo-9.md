@@ -1,0 +1,4 @@
+Artículo 9º-Competencia de la Comisión de Recomendación de Adjudicaciones. La Comisión de Recomendación de Adjudicaciones tendrá las siguientes funciones:
+a) Recomendar al Concejo Municipal los actos de adjudicación de todas las contrataciones dentro de sus rangos de acción, donaciones y subasta.
+b) Revisión y aprobación de los pliegos de condiciones de todas las licitaciones mayores y menores. c) Convocar a cualquier funcionario de la Municipalidad de Poás con carácter de invitado y con el fin de obtener su criterio técnico en asuntos de su competencia.
+c) Recomendar en el caso que así lo requieran las diferentes instancias adjudicatarias las modificaciones y adiciones contractuales conforme con el derecho de modificación unilateral que le otorga la LGCP y el RLGCP, de las contrataciones amparadas a procedimientos de contratación. e) Conocer cualquier otro asunto que se considere afín con sus funciones.

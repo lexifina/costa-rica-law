@@ -1,0 +1,1 @@
+Artículo 25.-Contrato generado en el Sistema Digital Unificado. La Proveeduría Institucional emitirá el contrato generado en el SDU para las firmas respectivas, mediante los cuales se ordena la ejecución de la prestación de bienes y servicios, misma que deberá ser comunicada al adjudicado.

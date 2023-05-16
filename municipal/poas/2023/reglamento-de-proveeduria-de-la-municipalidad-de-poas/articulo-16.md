@@ -1,0 +1,1 @@
+Artículo 16.-Bienes en existencia. Las Unidades Técnicas antes de enviar la solicitud de inicio de contratación deberá verificar en las bodegas municipales la existe del bien que requiere, en caso de existencias coordinará con el Encargado de Bodega su retiro.

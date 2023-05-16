@@ -1,0 +1,1 @@
+Artículo 21.-Comparación y evaluación de las ofertas. En el caso de la adquisición de bienes y servicios y obra pública la comparación y evaluación de ofertas, se hará de acuerdo a los factores de calificación estipulados en el pliego de condiciones.

@@ -1,0 +1,1 @@
+Artículo 22.-Notificación del acto final. La Proveeduría Institucional notificará el acto final, por medio del SDU de conformidad con las reglas establecidas en los artículos Nº 139, 140 y 141 del RLGCP.

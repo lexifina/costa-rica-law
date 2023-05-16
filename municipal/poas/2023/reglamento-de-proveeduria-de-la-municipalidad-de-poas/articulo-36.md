@@ -1,0 +1,1 @@
+Artículo 36.-Adjudicaciones. La Junta Directiva del CCDR mediante el acuerdo en firme de decisión inicial designará la responsabilidad de adjudicación de los procedimientos de contratación previa la recomendación de adjudicación subyacente del análisis técnico y legal de las ofertas recibidas; en el Presidente como Representante Legal de la Junta Directiva.
