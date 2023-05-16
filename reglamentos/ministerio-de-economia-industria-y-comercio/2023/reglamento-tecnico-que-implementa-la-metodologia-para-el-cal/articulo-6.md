@@ -1,0 +1,1 @@
+Artículo 6°-Actualización de la tasa. La COPROCOM actualizará anualmente el valor de la tasa por el trámite de control de concentraciones económicas. La actualización se realizará a partir del principio de servicio al costo en cada fase del procedimiento.
