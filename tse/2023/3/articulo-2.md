@@ -1,0 +1,2 @@
+Artículo 2º-Se reforma el artículo 2 del reglamento, para que se lea de la siguiente manera:
+"Artículo 2.- Asistencia y sustituciones. La asistencia a las reuniones del Consejo será obligatoria, salvo en situaciones excepcionales debidamente justificadas ante este, de lo cual se informará al Tribunal. Cuando así corresponda, la ausencia será suplida por alguna de las Prosecretarías Generales del Tribunal o por la Secretaría General de la respectiva Dirección, según proceda."

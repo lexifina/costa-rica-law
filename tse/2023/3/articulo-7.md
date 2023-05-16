@@ -1,0 +1,2 @@
+Artículo 7º-Se reforma el artículo 8 del reglamento, para que se lea de la siguiente manera:
+"Artículo 8.- Debida colaboración al Consejo. Para la consecución de sus cometidos, el Consejo podrá solicitar la colaboración de cualquier oficina, funcionaria o funcionario, quienes deberán prestar su diligente colaboración al respecto. Asimismo, podrá integrar comités técnicos que brinden informes en las materias que el Consejo requiera."
