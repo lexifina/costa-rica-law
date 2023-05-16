@@ -1,4 +1,0 @@
-CAPÍTULO V
-De los Reintegros.
-Artículo 27º- Solicitud de Reintegro. El Tesorero debe presentarse a la Contabilidad Municipal o al Departamento que se defina por la Dirección Financiera la “Solicitud de Reintegro de Caja Chica” debidamente detallada y acompañada de los justificantes del caso, estos serán justificados, revisados por la Contabilidad Municipal y aprobados por la jefatura de la Dirección Financiera; para que éste inicie el procedimiento de reembolso; procedimiento que se deberá efectuar cuando se haya liquidado el cincuenta por ciento (50%) del monto de la caja chica. Todos los Departamentos involucrados en el proceso de liquidación del fondo de Caja Chica, disponen en su conjunto, de un plazo.
-Los egresos que se realicen por caja chica se tramitarán a través del correspondiente reintegro de caja chica, que preparara el Tesorero Municipal como encargado del fondo fijo, en original y copia.
