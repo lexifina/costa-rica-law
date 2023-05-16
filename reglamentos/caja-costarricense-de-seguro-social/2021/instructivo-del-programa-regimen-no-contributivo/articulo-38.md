@@ -3,7 +3,7 @@ La Comisión Calificadora del Estado de Invalidez RNC emitirá criterio técnico
 La Comisión Calificadora del Estado de la Invalidez, revisará lo expuesto por el solicitante de pensión en el recurso planteado, y mediante criterio técnico-médico confirma o modifica el criterio emitido según la instancia correspondiente. En caso de requerirse una nueva valoración médica para resolver el recurso, se procederá a la devolución a la Sucursal, para que a su vez sea trasladado al Área de Salud de adscripción, para que se realice dicha valoración médica por un profesional distinto al que valoró al usuario en primera instancia, remitiéndose de nuevo a la Comisión Calificadora del Estado de Invalidez para su respectivo análisis; o bien, se podrá realizar la valoración por parte de un médico de la Dirección de Calificación del Estado de la Invalidez.
 Una vez emitido el criterio por parte de la Comisión Calificadora del Estado de Invalidez, se trasladará el expediente a la Unidad Administrativa que denegó el beneficio, en el caso de revocatoria o a la Comisión Nacional de Apelaciones del RIVM-RNC lo que respecta a la apelación, que son las competentes para emitir la resolución correspondiente y llevar a cabo la notificación respectiva.
 Los recursos que sean presentados de manera extemporánea deberán ser resueltos administrativamente por el área que denegó la solicitud, cuando corresponde al recurso de revocatoria, o por la Comisión Nacional de Apelaciones IVM-RNC y no remitirse a la Comisión Calificadora del Estado de la Invalidez RNC.
-Este Instructivo deberá ser aprobado por parte de la Direccion Administracion de Pensiones y rige a partir de su comunicación formal a las Unidades Administrativas de la Institución. Asimismo, deroga el “Instructivo del Programa Régimen No Contributivo”, publicado en el Diario Oficial La Gaceta el 7 de noviembre del 2017, las circulares DAP 052-2018, DAP-428-2018 y DAP-514-2018 y cualquier otra normativa que se le oponga.
+Este Instructivo deberá ser aprobado por parte de la Direccion Administracion de Pensiones y rige a partir de su comunicación formal a las Unidades Administrativas de la Institución. Asimismo, deroga el "Instructivo del Programa Régimen No Contributivo", publicado en el Diario Oficial La Gaceta el 7 de noviembre del 2017, las circulares DAP 052-2018, DAP-428-2018 y DAP-514-2018 y cualquier otra normativa que se le oponga.
 GLOSARIO
 Asalariado: Persona que depende económicamente de un salario producto del trabajo que realiza.
 Ayuda: Apoyo, auxilio, cooperación o socorro que se presta a personas o grupos para satisfacer necesidades básicas y especiales.
@@ -19,9 +19,10 @@ Dictamen de la valoración médica del Área de Salud: valoraciones médicas que
 Endoso: Figura de pago por medio de la cual, el pensionado del Programa Régimen No Contributivo, de forma expresa, voluntaria y en el uso de sus facultades, autoriza a la Caja, para que el retiro del monto de pensión lo realice un tercero; o bien cuando así lo determina un informe de trabajo social.
 Expediente físico: Es aquel cuya documentación se encuentra totalmente física (papel).
 Expediente digital: Se refiere a un expediente que puede ser de alguno de los siguientes tipos:
-• Un expediente que ha sido escaneado y posteriormente firmado de forma digital.
-• Un expediente que surge cuando se recibe una solicitud de pensión a través de los módulos automatizados que dispone el SIP, sea por medio de la página web de la CCSS o bien a través de las plataformas de servicio de la Gerencia de Pensiones y las sucursales administrativas.
-• Una combinación de ambos.
+· Un expediente que ha sido escaneado y posteriormente firmado de forma digital.
+· Un expediente que surge cuando se recibe una solicitud de pensión a través de los módulos automatizados que dispone el SIP, sea por medio de la página web de la CCSS o bien a
+través de las plataformas de servicio de la Gerencia de Pensiones y las sucursales administrativas.
+· Una combinación de ambos.
 Guías para La Evaluación de Invalidez Y Discapacidad: baremo de aplicación institucional y nacional, para la evaluación objetiva y estandarizada de la condición de invalidez y discapacidad. Aprobadas por la Junta Directiva en Acuerdo Primero artículo 13°, sesión N° 9031, celebrada el 09 de mayo del 2019.
 Huérfano: Persona que carece de padre y madre, o de uno de ellos.
 Invalidez: Estado de incapacidad física o mental de una persona, que le impide desempeñar sus actividades normales o laborales.
@@ -39,3 +40,16 @@ Trabajador Independiente: Trabajador que desarrolla por cuenta propia algún tip
 Unión de hecho: Forma de convivencia pública, notoria, única y estable, por más de tres años, entre un hombre y una mujer que posean aptitud legal para contraer matrimonio. Esta surtirá todos los efectos patrimoniales propios del matrimonio al finalizar por cualquier causa.
 Vivienda: Todo sitio donde mora habitualmente una persona, grupo de personas o una unidad familiar.
 Viudez: Estado civil o condición en que se encuentra una persona ante el fallecimiento de su cónyuge o compañero (a).
+ANEXOS
+1. Solicitud de Pensión con carácter de Declaración Jurada (pensión ordinaria)
+2. Solicitud de Pensión con carácter de Declaración Jurada (pensión por la Ley 7125, reformada por la Ley 8769)
+3. Declaración Jurada para viudez (matrimonio o unión de hecho)
+4. Procedimiento para la recuperación de pagos de pensión improcedentes, realizados con posterioridad a la fecha de fallecimiento de pensionados del seguro de IVM y RNC".
+5. Declaración Jurada de Actualización Datos y supervivencia.
+6. Declaración Jurada de Domicilio
+7. Comunicación para presentación de cesantía, personas asalariadas
+8. Consentimiento Informado, trabajadores independientes
+9. Programa Inserción a las Comunidades
+10. Manual de Normas y Procedimientos para la suscripción de Convenios Caja Hogares
+11. Declaración Jurada Endoso
+12. Formulario de Eliminación de Documentos Digitales.

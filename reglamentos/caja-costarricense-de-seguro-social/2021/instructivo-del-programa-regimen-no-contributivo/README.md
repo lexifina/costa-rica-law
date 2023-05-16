@@ -15,3 +15,4 @@ Instructivo del Programa Régimen No Contributivo
 | --- | --- | --- |
 | 1 | 2021-07-12 | la propia norma |
 | 2 | 2021-11-16 | Reglamento 0 (2021-11-16) |
+| 3 | 2023-05-16 | Reglamento 0 (2023-05-16) |

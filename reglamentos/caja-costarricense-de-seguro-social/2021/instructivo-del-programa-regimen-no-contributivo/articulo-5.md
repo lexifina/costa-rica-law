@@ -1,4 +1,5 @@
-ARTICULO 5. – Solicitantes extranjeros Los solicitantes extranjeros que podrán optar por una pensión del RNC son aquellos residentes legales en Costa Rica, así como las personas menores de edad sin importar su condición migratoria.
+ARTICULO 5. - Solicitantes extranjeros
+Los solicitantes extranjeros que podrán optar por una pensión del RNC son aquellos residentes legales en Costa Rica, así como las personas menores de edad sin importar su condición migratoria.
 Se entiende por residente legal (para personas mayores de edad), el que se encuentre en alguna de las categorías establecidas en la Ley General de Migración y Extranjería, artículos del 77 al 86 relativo a los residentes permanentes.
 Es claro que, cualquiera que sea la categoría, el solicitante debe encontrarse en condición de pobreza o pobreza extrema y cumplir con todos los requisitos y condiciones establecidas en el Reglamento.
 Información que deberá presentar el interesado: documento de identidad original vigente, donde se demuestre su condición de residente legal. Cuando éste se encuentre vencido se entenderá que el solicitante no se encuentra en condición migratoria regular, por lo que será motivo para denegar el beneficio, de acuerdo con lo establecido en el artículo 2 de la Ley de DESAF.
