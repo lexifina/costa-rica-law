@@ -1,8 +1,0 @@
-Artículo 4º—Frecuencia y lugar de las sesiones, convocatoria y quórum necesario para sesionar
-1.—La Junta sesionará ordinariamente, una vez por semana, el día y a la hora que la Junta acuerde y, extraordinariamente, cada vez que sea convocada por el (la) Presidente (a) o, cuando lo soliciten por lo menos dos miembros de la Junta.
-2.—La comunicación de la convocatoria a sesiones la hará el (la) Secretario(a) de la Junta, a solicitud del (de la) Presidente.
-3.—Las sesiones se celebrarán en las oficinas de la Autoridad Reguladora, salvo que el (la) Presidente (a) disponga otra cosa, por razones debidamente justificadas.
-4.—La convocatoria a sesiones extraordinarias deberá hacerse por escrito, con una antelación mínima de veinticuatro horas, salvo los casos de urgencia. A la convocatoria se acompañará copia del orden del día, salvo casos de urgencia.
-5.—Para que la Junta sesione válidamente, se requiere que asistan a la sesión, al menos tres de sus miembros, incluyendo a los que asistan de manera no presencial.
-6.—La sesión se iniciará en el momento en que haya quórum, a partir de la hora señalada. Si transcurridos treinta minutos después de la hora señalada para sesionar ordinaria o extraordinariamente, no hubiere el quórum para ello, no se celebrará la sesión; salvo cuando se tenga conocimiento de situaciones especiales que han atrasado la presencia del director o directores necesarios para el quórum, en cuyo caso cuando se integre(n), podrá iniciarse la sesión, luego de aquellos treinta minutos.
-7.—Cuando algún miembro titular haya comunicado, con la antelación suficiente, que no podrá asistir a la sesión, el (la) Presidente de la Junta, convocará al miembro suplente respectivo para llenar la ausencia mencionada.

@@ -1,3 +1,0 @@
-Artículo 12.—Dietas por participar en sesiones
-Las dietas de los (las) miembros de la Junta, salvo el (la) Regulador General y el (la) Regulador General Adjunto, cuando sustituye al (a la) Regulador (a) General; serán remuneradas de conformidad con lo establecido en el artículo 54 de la Ley 7593.
-El pago de la dieta se hará cuando el miembro de la Junta haya participado en la totalidad de la sesión correspondiente, salvo que existan razones legales que le impidan conocer y votar alguno de los puntos del orden del día. Se entenderá que en toda sesión de Junta Directiva existe un periodo de tolerancia de 15 minutos posteriores al inicio de la misma, para que los miembros puedan incorporarse a la sesión y su asistencia sea remunerada con el pago de dieta.

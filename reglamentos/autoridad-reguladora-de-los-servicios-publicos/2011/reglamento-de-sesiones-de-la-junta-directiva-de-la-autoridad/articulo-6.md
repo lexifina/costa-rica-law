@@ -1,4 +1,0 @@
-Artículo 6º—Conducción de las sesiones de Junta
-1.—El Presidente de la Junta dirigirá las sesiones.
-2.—El orden del día de cada sesión se aprobará por mayoría simple de los miembros presentes, al inicio de la respectiva sesión.
-3.—El (la) Presidente (a) podrá establecer límites de tiempos para la discusión de cada tema, incluyendo el tiempo suficiente y razonable para la presentación del tema, la intervención de los directores y las aclaraciones que se soliciten a los asesores; en cuyo caso la distribución del tiempo correspondiente a la intervención de los directores, se hará de manera equitativa entre todos los miembros. Al finalizar el tiempo asignado, el Presidente pondrá a votación el asunto de que se trate, a menos que, por mayoría simple de los miembros presentes, se decida una prórroga o posposición para continuar su análisis y discusión en la próxima sesión.
