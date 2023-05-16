@@ -1,2 +1,0 @@
-Artículo 29.—Conforme se realicen los estudios actuariales obligatorios por la regulación vigente, el régimen debe modificar o mantener los porcentajes señalados en los artículos 27 y 28 a efecto de actualizarlos, para garantizar que el porcentaje de reducción pueda ocasionar permanentemente una situación actuarialmente equivalente a la situación de pensionarse a la edad mínima ordinaria vigente.
-(Así adicionado mediante sesión N° 6067 del 18 de noviembre del 2013)

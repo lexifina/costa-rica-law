@@ -1,2 +1,0 @@
-Artículo 31.—Por ser este régimen complementario, en todos los casos, el otorgamiento de esta pensión adelantada depende de una solicitud voluntaria del trabajador con derecho a ello y no corresponde al Régimen responsabilizarse ante los trabajadores por los derechos que les corresponda o les podría corresponder en algún otro régimen básico de pensiones como el que pueda otorgar la Caja Costarricense de Seguro Social.
-(Así adicionado mediante sesión N° 6067 del 18 de noviembre del 2013)
