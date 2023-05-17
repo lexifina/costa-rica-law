@@ -41,6 +41,8 @@ Artículo 3°-De las tecnologías autorizadas. El Colegio de Médicos y Cirujano
 (Así reformado el inciso anterior mediante sesión N° 2021-06.09 del 9° de junio del 2021)
 3.20. Tecnocardiología y Hemodinamia.
 (Así reformado el inciso anterior mediante sesión N° 2021-06.09 del 9° de junio del 2021)
+3.21) Ortoprótesis y Ortopedia.
+(Así adicionado el inciso anterior mediante sesión ordinaria 2023-05- 17 del 17 de mayo de 2023)
 Cualquier otra que a futuro aprueba la Junta de Gobierno del Colegio de Médicos y Cirujanos en adelante (Junta de Gobierno).
 En las Tecnologías que se señalan a continuación, no se aceptarán la autorización de nuevos solicitantes. Sin embargo, aquellas personas que ya se encuentran autorizadas previo a la vigencia de esta normativa, mantendrán sus derechos como tales, incluyendo la posibilidad del ejercicio de dicha Tecnología. Lo anterior, mientras se mantenga al menos un tecnólogo autorizado y activo en dicha tecnología, ésta se mantendrá vigente, caso contrario ésta desaparecerá automáticamente de la lista de Tecnologías en Ciencias Médicas reconocidas.
 1)Anestesiología.
