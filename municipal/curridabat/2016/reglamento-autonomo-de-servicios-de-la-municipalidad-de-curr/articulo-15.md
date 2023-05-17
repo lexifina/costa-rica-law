@@ -1,1 +1,2 @@
-Artículo 15.- El horario de trabajo para los funcionarios (as) será establecido de conformidad con las necesidades del servicio público a prestar.
+Artículo 15.- La jornada de trabajo para todo el personal administrativo y profesional será de lunes a viernes, bajo el horario de las 7:30 a las 16:00 horas, y de conformidad con lo establecido expresamente en la Convención Colectiva.
+Se exceptúa de lo anterior, las dependencias que brinda servicios directos a la comunidad como académicos, deportivos, musicales, culturales y recreativos, los cuales se definirán por parte de la Alcaldía conforme a lo estipulado en el artículo anterior.

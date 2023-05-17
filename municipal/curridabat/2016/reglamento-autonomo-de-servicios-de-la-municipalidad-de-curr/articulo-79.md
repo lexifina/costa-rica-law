@@ -1,4 +1,4 @@
-Artículo 79.—Las llegadas tardías injustificadas computadas dentro de un mismo mes calendario, se sancionarán en la siguiente forma:
+Artículo 79.-Las llegadas tardías injustificadas computadas dentro de un mismo mes calendario, se sancionarán en la siguiente forma:
 a) Por dos, amonestación verbal;
 b) Por tres, amonestación escrita;
 c) Por cuatro, suspensión sin goce de salario, de un día hábil;

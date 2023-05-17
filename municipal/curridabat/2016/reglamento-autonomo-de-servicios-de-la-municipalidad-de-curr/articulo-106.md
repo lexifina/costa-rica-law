@@ -1,6 +1,5 @@
-CAPÍTULO XXIII
 DE LA REPRESENTACIÓN SINDICAL
-Artículo 106.- La Municipalidad, reconoce el derecho de protección sindical en beneficio de los dirigentes sindicales, en los siguientes términos:
+Artículo 106.- LaMunicipalidad, reconoce el derecho de protección sindical en beneficio de los dirigentes sindicales, en los siguientes términos:
 a) No se despedirá a ningún trabajador, por el simple hecho de desarrollar actividades sindicales.
 b) Ningún miembro de la Junta Directiva del Sindicato podrá ser destituido por el simple hecho de ser dirigente de los trabajadores.
 c) La inamovilidad del dirigente opera desde el momento en que es electo miembro de la Junta directiva del Sindicato y se mantiene durante el tiempo que dure el cargo y hasta un año después de haber dejado de ejercerlo.

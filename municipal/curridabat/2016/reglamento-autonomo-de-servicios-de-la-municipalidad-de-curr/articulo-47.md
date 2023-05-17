@@ -1,9 +1,8 @@
 CAPÍTULO IX
 OBLIGACIONES DE LOS FUNCIONARIOS
 Artículo 47.- Conforme a lo dispuesto en el Código de Trabajo, Municipal, leyes conexas y en otros artículos del presente Reglamento, son obligaciones de los funcionarios (as):
-a) Prestar los servicios personalmente, en forma regular y continua cumpliendo con la jornada de trabajo correspondiente;
-b) Ejecutar las labores de conformidad con el horario estipulado a la hora señalada, no abandonar ni suspender la jornada laboral sin causa justificada antes de haberla cumplido;
-c) Realizar el trabajo con la capacidad, dedicación y diligencia que el cargo lo requiera, aplicando todo su esfuerzo para el mejor desempeño de sus funciones;
+a) Prestar los servicios personalmente, en forma regular y continúa cumpliendo con la jornada de trabajo correspondiente;
+b) Ejecutar las labores de conformidad con el horario estipulado a la hora señalada, no abandonar ni suspender la jornada laboral sin causa justificada antes de haberla cumplido; c) Realizar el trabajo con la capacidad, dedicación y diligencia que el cargo lo requiera, aplicando todo su esfuerzo para el mejor desempeño de sus funciones;
 d) Cumplir con la mayor diligencia y buena voluntad las órdenes e instrucciones de sus jefes, relativos al servicio y a los deberes del puesto que desempeñan.
 e) Atender con diligencia, afán de servicio, en forma correcta y cortesía al público que acuda a las oficinas e instalaciones municipales o por medio telefónico y correos electrónicos, así como guardar al público, sus jefes, subalternos y compañeros de trabajo en las relaciones surgidas del ejercicio de su cargo toda la consideración debida, de modo que no se originen quejas justificadas por mal servicio, desatención, maltrato e irrespeto.
 f) Durante las horas de trabajo vestir conforme a las funciones que desempeña, en forma discreta y sin aditamentos llamativos, de conformidad con el cargo que desempeñan y los lugares en donde presten sus servicios;

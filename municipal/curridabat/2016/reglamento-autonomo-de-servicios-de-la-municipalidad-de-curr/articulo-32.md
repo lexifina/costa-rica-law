@@ -1,2 +1,2 @@
 Artículo 32.- El pago de las vacaciones se hará con base en el promedio de los salarios ordinarios y extraordinarios devengados durante las cincuenta semanas de trabajo o durante plazo menor que le diera derecho al pago proporcional a las mismas.
-La negativa injustificada por parte del funcionario o funcionara para firmar la constancia de haber recibido sus vacaciones anuales será tenida como falta grave a la relación de servicio, para efectos de la sanción.
+La negativa injustificada por parte del funcionario o funcionará para firmar la constancia de haber recibido sus vacaciones anuales será tenida como falta grave a la relación de servicio, para efectos de la sanción.

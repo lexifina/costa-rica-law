@@ -1,4 +1,2 @@
-CAPÍTULO XI
-REGISTRO DE ASISTENCIA
 Artículo 54.-El registro de asistencia y puntualidad al trabajo, tanto a la entrada como en la salida de la jornada laboral, es una obligación laboral para todos los funcionarios (as) de la Municipalidad, y deberá ser efectuado en el reloj marcador que se encuentra instalado a la entrada del respectivo centro de labores, o en cualquier medio idóneo que conforme con el avance de la tecnología, defina la Municipalidad para ese fin.
 (Así reformado mediante sesión N° 165-2019 del 25 de junio de 2019)

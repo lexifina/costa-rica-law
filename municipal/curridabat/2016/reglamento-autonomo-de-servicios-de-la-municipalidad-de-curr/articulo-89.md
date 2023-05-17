@@ -1,3 +1,5 @@
+CAPÍTULO XIX
+CONDICIONES DE SEGURIDAD E HIGIENE EN EL TRABAJO
 Artículo 89.- Las prohibiciones de los funcionarios(as) en materia de Salud Ocupacional serán las siguientes:
 a) Impedir o entorpecer el cumplimiento de las medidas de salud ocupacional;
 b) Remover, sin autorización, los resguardos y protecciones de las máquinas, útiles de trabajo e instalaciones;

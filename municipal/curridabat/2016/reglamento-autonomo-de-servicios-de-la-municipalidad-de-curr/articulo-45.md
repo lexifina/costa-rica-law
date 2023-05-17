@@ -4,8 +4,7 @@ Y LOS DERECHOS DE LOS FUNCIONARIOS
 Artículo 45.- La Municipalidad deberá ofrecer a los funcionarios (as):
 a) Los medios necesarios y facilidades, para que puedan efectuar las funciones a su cargo con el alto grado de efectividad que se les pide.
 b) La información necesaria para comprender las actividades que se realizan y los objetivos que se buscan, a través de la orientación y capacitación.
-c) Las oportunidades para mejorar y ascender de categoría, lo que se hará con base en lo
-estipulado en la ley.
+c) Las oportunidades para mejorar y ascender de categoría, lo que se hará con base en lo estipulado en la ley.
 d) Atender y considerar aquellas sugerencias fundamentales que formulen sus funcionarios, que contribuyan al mejoramiento de la Municipalidad.
 e) La instauración de la Carrera Administrativa de conformidad con el Código Municipal.
 f) La consideración a sus problemas personales.

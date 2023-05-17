@@ -18,3 +18,4 @@ Reglamento Autónomo de Servicios de la Municipalidad de Curridabat
 | 3 | 2016-09-20 | Reglamento municipal 21 (2016-09-20) |
 | 4 | 2017-10-10 | Reglamento municipal 76 (2017-10-10) |
 | 5 | 2019-06-25 | Reglamento municipal 165 (2019-06-25) |
+| 6 | 2023-05-17 | Reglamento municipal 159 (2023-05-17) |

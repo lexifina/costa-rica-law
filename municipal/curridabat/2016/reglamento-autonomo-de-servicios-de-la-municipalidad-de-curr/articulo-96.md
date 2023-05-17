@@ -1,1 +1,1 @@
-Artículo 96.- El servidor(a) que sin causa justificada hiciere abandono de la asistencia médicosanitaria, o de rehabilitación o prescripción médica que se le ofrece por parte de la póliza de Riesgos de Trabajo, incurrirá en falta grave.
+Artículo 96.- El servidor(a) que sin causa justificada hiciere abandono de la asistencia médico-sanitaria, o de rehabilitación o prescripción médica que se le ofrece por parte de la póliza de Riesgos de Trabajo, incurrirá en falta grave.

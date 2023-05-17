@@ -8,4 +8,4 @@ IV) Despido sin responsabilidad patronal que lo impondrá el Alcalde Municipal.
 Artículo 59.- La amonestación verbal se aplicará en los siguientes casos:
 I) Cuando el servidor cometa alguna falta leve a las obligaciones expresas o tácitas que le imponen su relación de servicio y este reglamento.
 II) En los demás casos expresamente contemplados en este Reglamento.
-(Nota de Sinalevi: EN la publicación de este reglamento aparece dos veces el artículo N° 59)
+(Nota de Sinalevi: EN la publicación de este reglamento aparece dos veces el artículo N°59)
