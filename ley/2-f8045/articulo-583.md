@@ -8,9 +8,10 @@ Artículo 583.- Además de los pronunciamientos expresamente señalados por este
 7) Le pongan término al proceso mediante solución normal o anormal, excepto cuando la ley le acuerde eficacia de cosa juzgada material al pronunciamiento.
 8) Emitan el pronunciamiento final en la ejecución de la sentencia.
 9) Aprueben el remate y ordenen su ejecución.
-10) Denieguen, revoquen o dispongan la cancelación de medidas cautelares o anticipadas.
+10)Denieguen, revoquen o dispongan la cancelación u otorgamiento de medidas cautelares o anticipadas.
+(Así reformado el inciso anterior mediante resolución de la Sala Constitucional N° 11481 del 17 de mayo de 2023)
 11) Ordenen la suspensión, inadmisibilidad, improcedencia y archivo del proceso.
 12) Denieguen el procedimiento elegido por la parte.
 13) Resuelvan de forma no contenciosa sobre la adjudicación de las prestaciones de personas fallecidas.
 14) En los procesos de menor cuantía, las sentencias y demás resoluciones que le pongan término al proceso.
-(Así reformado por el artículo 2° de la ley N° 9343 del 25 de enero de 2016, “Reforma Procesal Laboral”.)
+(Así reformado por el artículo 2° de la ley N° 9343 del 25 de enero de 2016, "Reforma Procesal Laboral".)
