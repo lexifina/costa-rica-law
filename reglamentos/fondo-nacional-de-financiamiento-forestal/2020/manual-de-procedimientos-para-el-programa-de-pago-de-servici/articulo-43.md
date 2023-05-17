@@ -1,3 +1,3 @@
-Artículo 43.-Distribución de los montos de pago.
-43.1. La distribución del monto de PSA será en un tracto del 100% que se entregará por adelantado a la organización, siempre y cuando el beneficiario haya consentido mediante documento formal. Para el Proyecto Piloto se autorizará el pago por adelantado siempre y cuando se otorgue una garantía, que cubra el monto total del adelanto, a satisfacción del Fonafifo.
+Artículo 43.-Distribución de los montos de pago. La distribución del monto de PSA será en 6 tractos anuales en los siguientes porcentajes: 11 %, 16%, 17%, 18%, 19% y 19%, que se entregará siempre y cuando el beneficiario haya consentido mediante documento formal que conste en el expediente. Con los recursos Fonafifo cancelara el interés anual generado por los proyectos del piloto y de quedar algún saldo del PSA en la transacción, que este se utilice para amortizar la deuda del principal.
 (Así adicionado en sesiones N° 07-2020 y 08-2020 del 12 de agosto de 2020 y 9 de setiembre de 2020)
+(Así reformado en sesión ordinaria de la Junta Directiva del Fondo Nacional de Financiamiento Forestal celebrada el día 17 de mayo de 2023, acuerdo tercero.)

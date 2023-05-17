@@ -15,3 +15,4 @@ Manual de procedimientos para el programa de pago de servicios ambientales
 | --- | --- | --- |
 | 1 | 2020-04-14 | la propia norma |
 | 2 | 2020-08-12 | Reglamento 7 (2020-08-12) |
+| 3 | 2023-05-17 | Reglamento 0 (2023-05-17) |
