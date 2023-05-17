@@ -7,9 +7,10 @@ d) Velar porque los cursos universitarios presten siempre especial cuidado a la 
 e) Hacer los nombramientos de los Coordinadores de Área y todos aquellos que otros reglamentos le encarguen20.
 20 Ver Transitorio 16.
 f) Actuar como superior jerárquico inmediato de los Coordinadores de Área.
-g) Atender por medio de los Coordinadores de Área, la actividad interdisciplinaria en el campo docente.
+g) Atender por medio de los coordinadores y de las coordinadoras de Área, la actividad interdisciplinaria y transdisciplinaria en el campo docente.
+(Así reformado el inciso anterior en sesión N° 151 del 17 de mayo de 2023)
 h) Pronunciarse sobre las peticiones que los profesores le presenten para la concesión del año sabático.
-i)21 Conceder a los Decanos licencias, con o sin goce de salario, por períodos que no excedan de diez días hábiles. Las licencias por períodos mayores que no excedan de seis meses deberán ser recomendadas por los Consejos Asesores de Facultad.
+i)21Conceder a los Decanos licencias, con o sin goce de salario, por períodos que no excedan de diez días hábiles. Las licencias por períodos mayores que no excedan de seis meses deberán ser recomendadas por los Consejos Asesores de Facultad.
 21 Incisos i) y j): Modificación aprobada en la Asamblea Colegida Representativa No. 114 del 31 de octubre de 2001 y 12 de noviembre de 2001 y publicada en la Gaceta Oficial No. 17 del 24 de enero de 2002.
 j) Conceder licencia a profesores de la Universidad por más de diez días hábiles, con o sin goce de salario, a solicitud de los Decanos de conformidad con el reglamento correspondiente.
 k) Aprobar los planes de estudio propuestos por las Sedes Regionales, previa consulta con las unidades académicas correspondientes de la Sede Central. Estas tendrán un plazo de quince días para atender la consulta del Vicerrector.
