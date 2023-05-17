@@ -9,6 +9,8 @@ Se reconoce como sinónimo de esta disciplina el siguiente término: Salud Ocupa
 (Así reformado el inciso e) anterior en sesión ordinaria 2022-10-05, celebrada el 05 de octubre del 2022)
 f) Salud Ambiental.
 (*) (Así reformado el punto anterior en sesión N° 2021-08-18 del 18 de agosto de 2021)
+g) Orto prótesis y Ortopedia
+(Así adicionado el inciso anterior mediante sesión ordinaria 2023-05-17 del 17 de mayo de 2023)
 ● Maestrías:
 a) Imagenología Diagnóstica y Terapéutica.
 b) Recreación Física y Mental.
