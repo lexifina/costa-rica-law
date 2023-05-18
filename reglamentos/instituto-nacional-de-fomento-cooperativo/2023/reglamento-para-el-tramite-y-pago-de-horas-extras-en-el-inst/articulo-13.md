@@ -1,0 +1,1 @@
+Artículo 13.-La Dirección Ejecutiva o la Subdirección Ejecutiva, comunicará a Desarrollo Humano, las solicitudes aprobadas para laborar en jornada extraordinaria el mes siguiente, dentro de los cinco días hábiles posteriores al comunicado del Proceso, especificando la cantidad de horas autorizadas.

@@ -1,0 +1,1 @@
+Artículo 9º-Toda solicitud para laborar en tiempo extraordinario, será autorizada por la Dirección Ejecutiva o la Subdirección Ejecutiva y tramitada por medio de Desarrollo Humano con quince días naturales de antelación previa a la realización de los trabajos, salvo casos de urgencia a juicio de la Dirección Ejecutiva o la Subdirección Ejecutiva.

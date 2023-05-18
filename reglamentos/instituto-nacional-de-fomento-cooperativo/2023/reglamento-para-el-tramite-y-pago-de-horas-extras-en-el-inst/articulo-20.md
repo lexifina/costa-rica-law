@@ -1,0 +1,1 @@
+Artículo 20.-Toda solicitud para el pago de tiempo extraordinario la presentará el funcionario (a) autorizado para laborar las horas extras, ante Desarrollo Humano, dentro de los cuatro días hábiles posteriores al mes en que se trabajó el tiempo extraordinario. Después de ese plazo no se tramitará ningún pago por horas extras.
