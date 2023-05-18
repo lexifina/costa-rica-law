@@ -19,3 +19,4 @@ Reglamento para la inscripción de candidaturas y sorteo de la posición de los 
 | 4 | 2018-11-27 | Decreto TSE 15 (2018-11-27) |
 | 5 | 2021-09-21 | Decreto TSE 11 (2021-09-21) |
 | 6 | 2022-11-30 | Decreto TSE 12 (2022-11-30) |
+| 7 | 2023-05-18 | Decreto TSE 4 (2023-05-18) |
