@@ -18,12 +18,12 @@ x.Servicios relacionados con preparación de la carga para exportar(aplicación 
 xi.Servicios de logística integral para la exportación y reexportación.
 xii.El avituallamiento de naves, incluyendo el agua, víveres y medicinas.
 Lo anterior sin perjuicio del poder emitir una resolución general para ampliar dicho listado de servicios, conforme al numeral 1) del artículo 8 de la Ley.
-(Nota de Sinalevi: Mediante resolución N° DGT-R-035-2019 del 27 de junio del 2019 se establece lo siguiente: “ se entenderán exoneradas del Impuesto al Valor Agregado las siguientes operaciones relacionadas con las exportaciones:
+(Nota de Sinalevi: Mediante resolución N° DGT-R-035-2019 del 27 de junio del 2019 se establece lo siguiente: " se entenderán exoneradas del Impuesto al Valor Agregado las siguientes operaciones relacionadas con las exportaciones:
 1. Servicios portuarios o aeroportuarios en general.
 2. Servicios de transporte de bienes destinados a la exportación, hacia los puertos, aeropuertos y fronteras terrestres, siempre que el transportista esté debidamente inscrito ante la Dirección General de Tributación y emita el comprobante electrónico correspondiente, aún en aquellos supuestos en que no se encuentre registrado como auxiliar de la función pública, en el tanto dichos servicios sean respaldados por un Documento Único Aduanero (DUA), para lo cual deberán el número de DUA en el comprobante electrónico, en el campo establecido para tales efectos, requisito para poder facturar exento el servicio.
-(Nota de Sinalevi: Mediante resolución N° DGT-R-038-2019 del 5 de julio del 2019 se establece lo siguiente: “se entenderán exoneradas del Impuesto al Valor Agregado las siguientes operaciones:
-- Los servicios de atención a la nave, entre los que se incluyen entre otros, las ayudas a la navegación para la operación, servicios de remolcaje, pilotaje, lancha, amarre, desamarre de la nave, estadía de naves, movimiento de tapas de los barcos, manejo de bloqueos de giro o “twistlocks”, limpieza de muelle, tiempo adicional en muelle y tiempos de espera de la cuadrilla.
-- Servicios brindados para la atención de contenedores vacíos de exportación o importación acogidos al régimen de importación temporal. Estos servicios incluyen entre otros, la carga y descarga de los contenedores, así como los servicios de transporte terrestre de los contenedores vacíos, incluyendo el trayecto de puerto al domicilio donde se encuentre ubicada la carga y viceversa.”)
+(Nota de Sinalevi: Mediante resolución N° DGT-R-038-2019 del 5 de julio del 2019 se establece lo siguiente: "se entenderán exoneradas del Impuesto al Valor Agregado las siguientes operaciones:
+- Los servicios de atención a la nave, entre los que se incluyen entre otros, las ayudas a la navegación para la operación, servicios de remolcaje, pilotaje, lancha, amarre, desamarre de la nave, estadía de naves, movimiento de tapas de los barcos, manejo de bloqueos de giro o "twistlocks", limpieza de muelle, tiempo adicional en muelle y tiempos de espera de la cuadrilla.
+- Servicios brindados para la atención de contenedores vacíos de exportación o importación acogidos al régimen de importación temporal. Estos servicios incluyen entre otros, la carga y descarga de los contenedores, así como los servicios de transporte terrestre de los contenedores vacíos, incluyendo el trayecto de puerto al domicilio donde se encuentre ubicada la carga y viceversa.")
 d.La compra de bienes y servicios por parte de contribuyentes registrados comoexportadores según lo dispuesto en el artículo 66 del presente Reglamento.
 e.La introducción de bienes en depósitos aduaneros.
 f.Los bienes que se acojan a regímenes aduaneros siempre y cuando esténdestinados a la exportación. En ningún caso se considerarán como tales losdestinados al régimen definitivo de importación y al régimen devolutivo dederechos.
@@ -37,7 +37,7 @@ j.La importación de bienes cuya adquisición se encuentra exenta, de conformida
 k.La adquisición de servicios prestados desde el exterior, cuya adquisición seencuentra exenta de conformidad con lo dispuesto en la Ley.
 l.La importación de autobuses y las embarcaciones utilizadas para la prestación deestos servicios de transporte colectivo de personas, siempre y cuando cuenten conel permiso o concesión otorgada por el Estado y cuya tarifa sea regulada por laAutoridad Reguladora de los Servicios Públicos (ARESEP).
 2) Exenciones referidas a operadoras de pensiones.
-Las comisiones pagadas a las operadoras de pensiones, conforme lo establece la Ley Nº 7983 del 16 de febrero de 2000 y sus reformas, denominada “Ley de Protección al Trabajador”.
+Las comisiones pagadas a las operadoras de pensiones, conforme lo establece la Ley Nº 7983 del 16 de febrero de 2000 y sus reformas, denominada "Ley de Protección al Trabajador".
 La exención no se extiende a las gestiones de carteras por parte de las administradoras de fondos de inversión o de capital de riesgo o de fondos inmobiliarios.
 3) Exenciones referidas a entidades públicas, organismos internacionales yorganizaciones sin fines de lucro.
 a.Los bienes y los servicios que venda, preste o adquiera la Cruz RojaCostarricense, siempre y cuando sean necesarios para el cumplimiento de susfunciones.
@@ -55,13 +55,15 @@ f.Los productos de azar que venda comercialice o distribuya la Junta de Protecci
 i.Las loterías nacionales.
 ii.Las rifas.
 iii.Los demás productos de azar que la ley autorice.
-g.La compra de bienes y servicios que realicen las asociaciones de desarrollocomunal, conforme a la Ley Nº 3859 del 7 de abril de 1967 y sus reformas,denominada “Ley sobre el Desarrollo de la Comunidad”, siempre y cuando seannecesarios para el cumplimiento de sus fines.
+g.La compra de bienes y servicios que realicen las asociaciones de desarrollocomunal, conforme a la Ley Nº 3859 del 7 de abril de 1967 y sus reformas,denominada "Ley sobre el Desarrollo de la Comunidad", siempre y cuando seannecesarios para el cumplimiento de sus fines.
 h.La adquisición y la venta de bienes y servicios que realicen las juntas deeducación y administrativas de las instituciones públicas de enseñanza delMinisterio de Educación Pública (MEP), siempre y cuando sean necesarios para larealización de sus fines y en beneficio de los centros educativos públicos que les corresponda atender. Esta exención no se extiende al servicio de transporte de estudiantes contratado por las Juntas de Educación.
 i.Los servicios y los bienes comprados o adquiridos por las asociacionesadministradoras de los sistemas de acueductos y alcantarillados comunales enCosta Rica (Asadas), siempre y cuando sean necesarios para la realización de susfines y en beneficio de las comunidades o zonas que les corresponda atender.
 j.Las cuotas de afiliación y las mensualidades pagadas a los colegios profesionales,a las organizaciones sindicales y cámaras empresariales, debidamenteconformadas.
+k. Los bienes y servicios que adquieran las redes de cuido y los centros de atención para adultos mayores, tales como los hogares, centros diurnos, albergues u otras modalidades de atención integral de las personas adultas mayores que presten sus servicios sin fines de lucro y se encuentren debidamente acreditados de conformidad con la Ley Nº 7935, Ley Integral para la Persona Adulta Mayor, de 25 de octubre de 1999.
+(Así adicionado el inciso anterior por el artículo 1° del decreto ejecutivo N° 44073 del 18 de mayo del 2023)
 Para efectos de la adquisición de los bienes y servicios citados, el pago deberá realizarse por los medios bancarios y corroborarse que proviene de cuentas registradas a nombre de la entidad que está aplicando la exención.
 4) Exenciones referidas a otros bienes, derechos y servicios.
-(*)a. Está exenta la venta local o la importación de los siguientes bienes y la prestación de servicios destinados a mejorar la funcionalidad y garantizar la autonomía de las personas con discapacidad, conforme lo dispuesto en el artículo 2 de la Ley No. 7600 del 02 de mayo de 1996, denominada “Igualdad de Oportunidades para las Personas con Discapacidad”:
+(*)a. Está exenta la venta local o la importación de los siguientes bienes y la prestación de servicios destinados a mejorar la funcionalidad y garantizar la autonomía de las personas con discapacidad, conforme lo dispuesto en el artículo 2 de la Ley No. 7600 del 02 de mayo de 1996, denominada "Igualdad de Oportunidades para las Personas con Discapacidad":
 i. Las sillas de ruedas y similares.
 ii. El equipo ortopédico.
 iii. Las prótesis en general.
@@ -82,16 +84,14 @@ c.Los arrendamientos de las micro y pequeñas empresas, debidamente inscritas en
 Ambos casos están exentos siempre y cuando el arrendamiento o alquiler mensualsea inferior o igual a uno coma cinco (1,5) salarios base. Cuando el monto delalquiler o renta mensual exceda de dicho monto, el impuesto se aplicará al total dela renta.
 d.El arrendamiento y el leasing de autobuses y embarcaciones utilizadas para laprestación de servicios de transporte colectivo de personas, el alquiler de losplanteles y terminales utilizados para su operación, siempre y cuando losarrendatarios cuenten con el permiso o concesión otorgada por el Estado, y cuyatarifa sea regulada por la Autoridad Reguladora de los Servicios Públicos (ARESEP).
 6)Exenciones referidas a la prestación de servicios.
-a.Los servicios prestados por las emisoras de radio culturales, así calificadas por laLey Nº 8642 de 4 de junio de 2008, denominada “Ley General deTelecomunicaciones”.
+a.Los servicios prestados por las emisoras de radio culturales, así calificadas por laLey Nº 8642 de 4 de junio de 2008, denominada "Ley General deTelecomunicaciones".
 b.Los servicios de transporte terrestre de pasajeros y los servicios de cabotaje depersonas, siempre y cuando cuenten con permiso o concesión otorgada por elEstado, y cuya tarifa sea regulada por la Autoridad Reguladora de los ServiciosPúblicos (ARESEP).
 c.Las comisiones por el servicio de subasta ganadera y agrícola, siempre y cuando la subasta esté autorizada por el ente público competente.
 d.El servicio de matanza de animales (semovientes) la misma deberá realizarse enlos mataderos autorizados por el Ministerio de Agricultura y Ganadería (MAG).
 (*)e) Los servicios que brinden las redes de cuido y los centros de atención de la siguiente manera:
 i. Los servicios que presten las redes de cuido para menores de edad, siempre y cuando cuenten con la debida habilitación del Centro de Atención Integral (CAI) del Ministerio de Salud y que pertenezcan a la Red Nacional de Cuido y Desarrollo Infantil (REDCUDI), sea el acceso a estos servicios subsidiados o no por una institución estatal, de conformidad con los registros de la Secretaría Técnica de la RECUDI.
 Mediante resolución general dictada por la Administración Tributaria se establecerá la información que deberán suministrar las entidades mencionadas, a fin de disponer del listado de las Alternativas de Atención Integral que forman parte de la RECUDI.
-ii. Los servicios que presten las redes de cuido de personas adultas mayores, así como los centros de cuidado y atención para personas adultas mayores, siempre y cuando cuenten con la debida autorización del Ministerio de Salud y sean certificados por la Dirección Ejecutiva del Consejo Nacional de la Persona Adulta Mayor (CONAPAM).
-Mediante resolución general dictada por la Administración Tributaria se establecerá la información que deberán suministrar las entidades mencionadas, a fin de disponer del listado de los prestadores del servicio de las redes de cuido, así como de los centros de atención para adultos mayores.
-(*)(Así reformado el inciso e) anterior por el artículo 2° del decreto ejecutivo N° 42706 del 14 de octubre del 2020)
+ii. (Derogado por el artículo 2° del decreto ejecutivo N° 44073 del 18 de mayo del 2023)
 f.Los servicios de educación prestados por centros docentes privados sujetos a inspección por parte del Ministerio de Educación Pública, desde la educación preescolar hasta la universitaria, en todas las modalidades del sistema educativo aprobadas por el Consejo Superior de Educación Pública según lo dispone el artículo 8 inciso b) de la Ley N° 1362, y el artículo 81 de la Constitución Política, así como cualquier otra autoridad oficial competente en materia educativa y conforme al listado que se indica a continuación:
 i.Educación preescolar.
 ii.Educación primaria.
@@ -147,5 +147,7 @@ j. Los contribuyentes que presten el servicio de transporte de las personas con 
 (Así adicionado el anterior por el artículo 1° del decreto ejecutivo N° 42706 del 14 de octubre del 2020)
 k. Los contribuyentes registrados como exportadores, según lo dispuesto en el artículo 66 del presente Reglamento, para la adquisición de bienes y servicios relacionados con sus operaciones de exportaciones.
 (Así modificada la numeración del inciso anterior por el artículo 1° del decreto ejecutivo N° 42706 del 14 de octubre del 2020 que lo traspasó del inciso j) al k))
+l Las redes de cuido y los centros de atención para adultos mayores, tales como los hogares, centros diurnos, albergues u otras modalidades de atención integral de las personas adultas mayores que presten sus servicios sin fines de lucro y se encuentren debidamente acreditados ante la Secretaría Técnica de la Red Nacional de Cuido y Desarrollo Infantil y el Consejo Nacional de la Persona Adulta Mayor.
+(Así adicionado el inciso anterior por el artículo 1° del decreto ejecutivo N° 44073 del 18 de mayo del 2023)
 La anterior lista no limita las facultades de la Administración Tributaria para incluir mediante resolución general cualquier otra persona física o jurídica o entidades o colectividades sin personalidad jurídica, públicas o privadas, que requieran solicitar la autorización para gozar de los beneficios aludidos.
 Las exenciones indicadas en el artículo 8 de la Ley y no contempladas en este apartado no requerirán de autorización para su aplicación, debiendo respaldar sus operaciones mediante los comprobantes electrónicos autorizados por la Administración Tributaria, así como en sus registros contables.
