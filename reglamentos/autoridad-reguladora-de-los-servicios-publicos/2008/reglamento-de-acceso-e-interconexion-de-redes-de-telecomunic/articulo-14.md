@@ -1,9 +1,0 @@
-Artículo 14.—Obligaciones del operador o proveedor que brinda el acceso y la interconexión. Salvo lo dispuesto en el artículo 51 de la Ley Nº 8642, los operadores o proveedores que brinden servicios de acceso e interconexión, se encuentran obligados a:
-a) Proporcionar en forma no discriminatoria al operador o proveedor solicitante, la facilidad complementaria de tasación, facturación y cobranza. En este sentido, los costos asociados al servicio de tasación, facturación y cobranza deberán estar orientados a costos y ser cubiertos por el operador solicitante, conforme se establezca en los acuerdos de acceso e interconexión.
-b) Asegurar que la calidad del acceso y la interconexión, incluyendo todos los elementos de red, capacidad, infraestructura y servicios asociados, sea igual a la que se presta a sí misma o a cualquier filial, subsidiaria, asociado u otro operador o proveedor con el cual están interconectados.
-c) Concertar el acceso y la interconexión en términos de precios, plazos y condiciones equitativas, razonables y no discriminatorias.
-d) Permitir la coubicación física o virtual de sus equipos de redes de telecomunicaciones.
-e) Proporcionar a cualquier operador o proveedor que le haya solicitado un servicio de acceso, la información técnica necesaria y suficiente sobre sus facilidades y equipos, para que el operador o proveedor solicitante pueda completar la interconexión.
-f) Otorgar la misma prioridad a los tráficos directo y de tránsito.
-g) En cuanto a servicios de conmutación de paquetes, será necesario la disposición de equipos de gestión para la medición del uso y calidad de enlace.
-h) En caso de ser designado como operador o proveedor importante o cuando lo solicite la Sutel, brindar a sus solicitantes una OIR que contenga las condiciones técnicas, económicas y jurídicas fijadas por la Sutel.

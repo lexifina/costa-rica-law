@@ -1,1 +1,0 @@
-Artículo 17.—Planes fundamentales. Los operadores o proveedores que intervengan en cualquier proceso de interconexión, deberán asegurar que sus redes se ajustan a los planes fundamentales de numeración, encadenamiento, transmisión y sincronización, establecidos en el artículo 77 de la Ley Nº 8642.

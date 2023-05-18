@@ -1,1 +1,0 @@
-Artículo 74.—Sanciones. Serán aplicables las sanciones previstas en la Ley Nº 8642, respetando lo previsto en la Ley general de la administración pública o cualquier otra sanción que por incumplimiento o infracción a los contratos de acceso e interconexión sean acordadas por los operadores o proveedores de servicios de telecomunicaciones.

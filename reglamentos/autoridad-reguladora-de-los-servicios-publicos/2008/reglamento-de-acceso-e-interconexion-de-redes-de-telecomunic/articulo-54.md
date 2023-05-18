@@ -1,1 +1,0 @@
-Artículo 54.—Alcance de la resolución Inicial. La orden que dicte la Sutel fijará las condiciones del acceso y la interconexión que a su juicio, sean estrictamente necesarias para garantizar el cumplimiento de los fines establecidos en la Ley Nº 8642.

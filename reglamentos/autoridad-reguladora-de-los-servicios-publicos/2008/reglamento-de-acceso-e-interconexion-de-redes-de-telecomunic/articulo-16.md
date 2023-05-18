@@ -1,1 +1,0 @@
-Artículo 16.—Compatibilidad. Las redes públicas deberán ser diseñadas de conformidad con condiciones técnicas, jurídicas y económicas que permitan su interoperabilidad, con sistemas de tasación independientes que permitan el proceso de liquidación de tráfico entre redes; en concordancia con los planes fundamentales de telecomunicaciones y las demás normativas aplicables.

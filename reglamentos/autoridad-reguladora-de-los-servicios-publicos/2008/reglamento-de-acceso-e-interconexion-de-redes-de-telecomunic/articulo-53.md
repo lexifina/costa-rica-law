@@ -1,2 +1,0 @@
-Artículo 53.—Resolución provisional. Solicitada la actuación a la que se refiere el artículo anterior del presente Reglamento o habiéndose vencido el plazo que tienen los operadores o proveedores para suscribir el contrato de acceso e interconexión, la Sutel dispondrá de un plazo no mayor a dos (2) meses para dictar la decisión correspondiente.
-Las decisiones que deba dictar la Sutel con ocasión del acceso y la interconexión, serán competencia del Consejo de la Sutel, de conformidad con el inciso f) del artículo 73 de la Ley Nº 7593.

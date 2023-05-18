@@ -1,2 +1,0 @@
-Artículo 35.—Formato de presentación de costos. Los operadores o proveedores deberán presentar a la Sutel conforme al formato que ésta establezca, sus costos a fin de que se facilite la determinación de los cargos por acceso o interconexión.
-Las resoluciones emitidas por la Sutel, relacionadas con las modificaciones de los formatos de presentación de costos, serán de carácter obligatorio para los operadores o proveedores.

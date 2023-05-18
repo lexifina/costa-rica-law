@@ -1,1 +1,0 @@
-Artículo 31.—Homologación de equipos. Conforme a lo que establezca el Consejo de la Sutel por resolución razonada todo equipo a ser instalado con ocasión del acceso o la interconexión deberá ser homologado y certificado conforme al procedimiento establecido.

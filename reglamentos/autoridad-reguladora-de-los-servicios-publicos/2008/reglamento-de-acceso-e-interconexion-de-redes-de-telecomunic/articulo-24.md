@@ -1,1 +1,0 @@
-Artículo 24.—Tramitación de tráfico o uso de la red. Cuando un operador o proveedor brinde servicios de tramitación de tráfico o uso de la red a otro operador o proveedor, deberá hacerlo en condiciones de calidad no inferiores a las brindadas a los clientes de su propia red.

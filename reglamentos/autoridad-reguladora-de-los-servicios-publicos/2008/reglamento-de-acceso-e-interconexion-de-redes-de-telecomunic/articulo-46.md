@@ -1,1 +1,0 @@
-Artículo 46.—Notificación a la Sutil. El operador o proveedor que solicite el acceso o la interconexión deberá notificar a la Sutel copia de la solicitud debidamente recibida por el operador con el cual desea interconectarse, dentro de los cinco (5) días hábiles siguientes contados a partir de la recepción de dicha solicitud.

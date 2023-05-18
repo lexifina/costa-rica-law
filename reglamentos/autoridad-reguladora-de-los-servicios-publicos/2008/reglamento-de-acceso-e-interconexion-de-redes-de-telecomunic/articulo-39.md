@@ -1,3 +1,0 @@
-Artículo 39.—Plazos para la inclusión de cargos facturados y pendientes por facturar. Todas las comunicaciones entre redes deberán ser facturadas a los clientes en un plazo que no exceda los sesenta (60) días naturales contados a partir de la realización de la comunicación.
-Transcurrido el plazo anterior sin que se hubieren facturado, el operador o proveedor deberá abstenerse de incluirlas en futuras facturaciones y para su cobro, corresponderá acudir a otras vías (cobro administrativo o judicial).
-Toda comunicación facturada dentro de los sesenta (60) días naturales posteriores a la realización de la misma, prescribirá a los cuatro (4) años.

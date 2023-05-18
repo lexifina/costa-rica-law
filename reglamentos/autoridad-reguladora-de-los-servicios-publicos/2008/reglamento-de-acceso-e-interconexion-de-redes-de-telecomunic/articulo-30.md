@@ -1,2 +1,0 @@
-Artículo 30.—Interrupción del acceso o la interconexión. Salvo lo establecido en el artículo 67 del presente Reglamento, no serán causales justificables de interrupción, el incumplimiento de cualesquiera de las condiciones, técnicas, económicas, jurídicas o procedimentales establecidas en la presente reglamentación.
-Para que proceda la interrupción del acceso o la interconexión se requerirá que el operador o proveedor cuente con la aprobación de la Sutel, quién mediante resolución motivada sustentará su decisión.

@@ -1,2 +1,0 @@
-Artículo 40.—Impuestos. Cada uno de los operadores o proveedores interconectados facturará y cobrará a sus clientes y usuarios los correspondientes impuestos de ley que se apliquen por los servicios que ofrecen.
-Cada operador o proveedor interconectado será responsable ante las autoridades tributarias, del pago de los impuestos que la ley pone a su cargo; sea en calidad de contribuyente, agente de retención o agente responsable.

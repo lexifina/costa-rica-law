@@ -1,3 +1,0 @@
-Artículo 22.—Averías en la red. Los operadores o proveedores deberán contar con un sistema de monitoreo y prueba permanente de los medios y facilidades del acceso y la interconexión, que permita detectar y registrar las averías que se produzcan en ellos.
-En la eventualidad que se produzcan averías en los medios o facilidades de acceso e interconexión, estas serán notificadas a los operadores o proveedores involucrados tan pronto sean detectadas.
-Los operadores o proveedores establecerán en los contratos de acceso e interconexión, los procedimientos que consideren necesarios para minimizar el tiempo fuera de servicio de los medios y condiciones de acceso e interconexión, así como los criterios para la estimación de las respectivas indemnizaciones.
