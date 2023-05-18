@@ -1,2 +1,1 @@
-Artículo 250.—Pago de la obligación tributaría aduanera
-El pago de la obligación tributaria aduanera se efectuará en las entidades financieras autorizadas para recibir anticipos de rentas aduaneras.
+Artículo 250.-Pago de la obligación tributaría aduanera (Derogado por el artículo 597 del Reglamento a la Ley General de Aduanas, aprobado mediante decreto ejecutivo N° 44051 del 18 de mayo del 2023)

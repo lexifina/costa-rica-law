@@ -1,2 +1,1 @@
-Artículo 277.—Comunicación de los vehículos y unidades de transporte recibidas. Cada auxiliar receptor de tránsito aduanero deberá transmitir inmediatamente a la aduana de control, el ingreso de los vehículos y unidades de transporte que reciba, así como el resultado de la recepción de la unidad de transporte, indicando el número y fecha de la respectiva declaración de tránsito que ampara el ingreso.
-(Así reformado por el artículo 2° del decreto ejecutivo N° 32935 del 8 de febrero del 2006)
+Artículo 277.-Comunicación de los vehículos y unidades de transporte recibidas. (Derogado por el artículo 597 del Reglamento a la Ley General de Aduanas, aprobado mediante decreto ejecutivo N° 44051 del 18 de mayo del 2023)

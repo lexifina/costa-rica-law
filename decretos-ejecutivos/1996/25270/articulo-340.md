@@ -1,2 +1,1 @@
-Artículo 340.—Autorización de la solicitud. Previo a la autorización, la Gerencia de la aduana podrá ordenar las pruebas o inspecciones que considere pertinentes, a costa del interesado. En la autorización respectiva, la Gerencia de la Aduana ordenará dejar sin efecto la primera declaración y ordenará a la oficina competente que aplique el monto de los tributos cancelados a la declaración que ampare la mercancía sustituida.
-(Así reformado por el artículo 2° del decreto ejecutivo N° 34475 de 4 de abril de 2008)
+Artículo 340.-Autorización de la solicitud. (Derogado por el artículo 597 del Reglamento a la Ley General de Aduanas, aprobado mediante decreto ejecutivo N° 44051 del 18 de mayo del 2023)

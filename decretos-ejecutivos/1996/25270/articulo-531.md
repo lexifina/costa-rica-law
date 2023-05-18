@@ -1,2 +1,1 @@
-Artículo 531.—Procedimiento de la audiencia
-Concluida la fase de evacuación de pruebas, cuando proceda, o vencido el plazo de presentación de pruebas, el interesado podrá solicitar, dentro del día hábil siguiente, la audiencia prevista en el artículo 196 literal c. de la Ley. El órgano comunicará la hora y fecha de realización de la audiencia solicitada, la cual deberá efectuarse dentro de los ocho días siguientes a la solicitud respectiva.
+Artículo 531.-Procedimiento de la audiencia (Derogado por el artículo 597 del Reglamento a la Ley General de Aduanas, aprobado mediante decreto ejecutivo N° 44051 del 18 de mayo del 2023)

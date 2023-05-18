@@ -1,5 +1,1 @@
-Artículo 235.—Inicio del traslado o tránsito de las unidades de transporte y mercancías. En el tráfico marítimo, el transportista aduanero solicitará el traslado de las mercancías, luego de su descarga a un estacionamiento transitorio ubicado en la jurisdicción de la aduana de ingreso o a un depósito aduanero, u otra zona de operación aduanera autorizada.
-En el tráfico aéreo, el transportista aduanero trasladará las mercancías, luego de su descarga, a un depósito aduanero u otra zona de operación aduanera autorizada.
-Si se hubiere autorizado el régimen de tránsito o la modalidad de transporte multimodal internacional, el transportista aduanero iniciará el tránsito de las mercancías inmediatamente a su descarga.
-La zona de operación autorizada será la designada por el consignatario. Si se tratare de mercancías enviadas bajo el sistema de consolidación, el consignatario de las mercancías de mayor volumen, designara la zona de operación aduanera autorizada.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 39267 del 19 de octubre de 2015)
+Artículo 235.-Inicio del traslado o tránsito de las unidades de transporte y mercancías. (Derogado por el artículo 597 del Reglamento a la Ley General de Aduanas, aprobado mediante decreto ejecutivo N° 44051 del 18 de mayo del 2023)

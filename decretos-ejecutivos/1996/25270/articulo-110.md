@@ -1,4 +1,3 @@
 SECCION III
 Otras obligaciones específicas
-Artículo 110.—Exclusividad de representación
-El agente aduanero, persona física, debidamente autorizado por el Ministerio, ejercerá la correduría aduanera en forma independiente o representando a un sólo agente aduanero, persona jurídica.
+Artículo 110.-Exclusividad de representación (Derogado por el artículo 597 del Reglamento a la Ley General de Aduanas, aprobado mediante decreto ejecutivo N° 44051 del 18 de mayo del 2023)

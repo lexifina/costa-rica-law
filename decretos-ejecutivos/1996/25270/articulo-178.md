@@ -1,2 +1,1 @@
-Artículo 178.—Verificación y control de las mercancías
-La autoridad aduanera verificará y ejercerá funciones de control y fiscalización sobre las mercancías ingresadas bajo la modalidad de Tiendas Libres e iniciará, en su caso. los procedimientos tendentes a determinar la responsabilidad fiscal de las empresas y su personal.
+Artículo 178.-Verificación y control de las mercancías (Derogado por el artículo 597 del Reglamento a la Ley General de Aduanas, aprobado mediante decreto ejecutivo N° 44051 del 18 de mayo del 2023)

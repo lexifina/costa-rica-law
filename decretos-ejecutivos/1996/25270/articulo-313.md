@@ -2,5 +2,4 @@ CAPITULO V
 Régimen de importación definitiva
 SECCIÓN I
 Disposiciones generales
-Artículo 313.—Metodología para la realización de la declaración
-La declaración aduanera podrá incluir las mercancías amparadas a uno o varios conocimiento de embarque, destinadas al mismo consignatario, siempre que las mercancías se encuentren en el mismo depósito fiscal o lugar autorizado. Las mercancías amparadas al conocimiento de embarque pueden incluirse en varias declaraciones, siempre que correspondan a bultos completos.
+Artículo 313.-Metodología para la realización de la declaración (Derogado por el artículo 597 del Reglamento a la Ley General de Aduanas, aprobado mediante decreto ejecutivo N° 44051 del 18 de mayo del 2023)

@@ -1,2 +1,1 @@
-Artículo 328.—Devolución de las muestras
-Finalizado el análisis a que hubieren sido sometidas las muestras. éstas serán devueltas inmediatamente a la aduana respectiva con indicación de su estado, para los efectos del artículo 97 de la Ley.
+Artículo 328.-Devolución de las muestras (Derogado por el artículo 597 del Reglamento a la Ley General de Aduanas, aprobado mediante decreto ejecutivo N° 44051 del 18 de mayo del 2023)

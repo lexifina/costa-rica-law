@@ -1,2 +1,1 @@
-Artículo 416.—Declaración Aduanera Simplificada Anticipada. La declaración simplificada podrá ser presentada en forma anticipada al arribo del vehículo al puerto, una vez que esté presentado el manifiesto de carga general y el manifiesto de entrega rápida.
-(Así reformado por el artículo 3° del decreto ejecutivo N° 32935 del 8 de febrero del 2006)
+Artículo 416.-Declaración Aduanera Simplificada Anticipada. (Derogado por el artículo 597 del Reglamento a la Ley General de Aduanas, aprobado mediante decreto ejecutivo N° 44051 del 18 de mayo del 2023)

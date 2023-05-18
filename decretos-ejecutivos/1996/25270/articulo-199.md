@@ -1,2 +1,1 @@
-Artículo 199.-Medidas para asegurar el cumplimiento de la normativa. La autoridad aduanera tomará las medidas necesarias para garantizar que la concurrencia de los oferentes en el remate electrónico se efectúe conforme la normativa y los procedimientos administrativos vigentes, sin detrimento de las sanciones que resulten aplicables.
-(Así reformado por artículo 1° del decreto ejecutivo N° 42818 del 19 de enero del 2021)
+Artículo 199.-Medidas para asegurar el cumplimiento de la normativa. (Derogado por el artículo 597 del Reglamento a la Ley General de Aduanas, aprobado mediante decreto ejecutivo N° 44051 del 18 de mayo del 2023)

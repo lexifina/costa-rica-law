@@ -1,3 +1,1 @@
-Artículo 368.—Declaración aduanera
-Cuando los viajeros ingresen a los puertos o lugares habilitados deberán presentarse ante la aduana con una declaración aduanera escrita, llenada y firmada de previo a la presentación de las mercancías, en la cual deberán consignarse las mercancías distintas del equipaje.
-Cuando se trate de un grupo familiar, la declaración podrá ser firmada y llenada por el responsable del grupo familiar, quien también se hará responsable de las consecuencias tributarias aduaneras de ese acto. Se entiende por grupo familiar aquellas personas ligadas por afinidad y consanguinidad en primer grado.
+Artículo 368.-Declaración aduanera (Derogado por el artículo 597 del Reglamento a la Ley General de Aduanas, aprobado mediante decreto ejecutivo N° 44051 del 18 de mayo del 2023)

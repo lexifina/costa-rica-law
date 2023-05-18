@@ -1,3 +1,1 @@
-Artículo 350.—Autorización del levante de las mercancías
-Se autorizará el levante de las mercancías cuando habiéndose efectuado un acto inmediato de verificación, no se determinaren diferencias entre la información declarada y la comprobada.
-También procederá la autorización del levante cuando, habiendo surgido diferencias, éstas se hubieren subsanado.
+Artículo 350.-Autorización del levante de las mercancías (Derogado por el artículo 597 del Reglamento a la Ley General de Aduanas, aprobado mediante decreto ejecutivo N° 44051 del 18 de mayo del 2023)

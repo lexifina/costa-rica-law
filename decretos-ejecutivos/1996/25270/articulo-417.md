@@ -1,4 +1,1 @@
-Artículo 417.—Despacho de documentos. Para el caso de bultos que contengan documentos, como los indicados en el inciso a) del artículo 410 de este Reglamento, la Empresa de Entrega Rápida transmitirá en el manifiesto de entrega rápida, un único conocimiento de embarque (guía hija) que amparará todos los documentos, con indicación de la cantidad de bultos, peso bruto expresado en kilos y demás información detallada en el artículo 414 de este reglamento.
-La empresa de entrega rápida podrá realizar el despacho de estas mercancías, una vez que ingresen a las instalaciones autorizadas, y se transmita el mensaje requerido para tal efecto.
-Si el manifiesto de entrega rápida no indica que se trata de esa clase de mercancías, éstas deberán ser trasladadas al régimen de depósito fiscal.
-(Así reformado por el artículo 2° del decreto ejecutivo N° 32935 del 8 de febrero del 2006)
+Artículo 417.-Despacho de documentos. (Derogado por el artículo 597 del Reglamento a la Ley General de Aduanas, aprobado mediante decreto ejecutivo N° 44051 del 18 de mayo del 2023)

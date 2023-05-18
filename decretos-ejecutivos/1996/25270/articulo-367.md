@@ -1,3 +1,1 @@
-Artículo 367.—Equipaje y mercancías en tránsito internacional y de tripulantes
-El equipaje de viajeros y demás mercancías en tránsito internacional, quedarán sometidos a control aduanero.
-Los tripulantes y el equipaje de las tripulaciones de naves aéreas, terrestres y acuáticas deberá someterse a los procedimientos y controles establecidos en el presente capítulo y a aquellos que dicte la Dirección General. Para este fin el tripulante presentará ante la aduana competente su equipaje, el pasaporte o la identificación acompañada por la tarjeta migratoria, según sea el caso y la declaración aduanera.
+Artículo 367.-Equipaje y mercancías en tránsito internacional y de tripulantes (Derogado por el artículo 597 del Reglamento a la Ley General de Aduanas, aprobado mediante decreto ejecutivo N° 44051 del 18 de mayo del 2023)

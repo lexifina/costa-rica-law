@@ -1,2 +1,1 @@
-Artículo 107.—Convocatoria a examen
-La Dirección General efectuará el examen de competencia anualmente en el mes de agosto. Las solicitudes que fueren presentadas en ese mes aplicarán para la convocatoria posterior.
+Artículo 107.-Convocatoria a examen (Derogado por el artículo 597 del Reglamento a la Ley General de Aduanas, aprobado mediante decreto ejecutivo N° 44051 del 18 de mayo del 2023)

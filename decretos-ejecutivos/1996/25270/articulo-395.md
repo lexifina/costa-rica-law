@@ -1,2 +1,1 @@
-Artículo 395.—Declaración provisional
-Una vez que las mercancías lleguen al puerto aduanero, la empresa o agente aduanero deberá presentar la declaración aduanera de importación ante la aduana de control y demostrar el pago de los tributos.
+Artículo 395.-Declaración provisional (Derogado por el artículo 597 del Reglamento a la Ley General de Aduanas, aprobado mediante decreto ejecutivo N° 44051 del 18 de mayo del 2023)

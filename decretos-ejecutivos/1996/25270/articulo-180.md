@@ -1,4 +1,1 @@
-Artículo 180.—Solicitud de autorización
-Las entidades públicas que soliciten autorización para realizar despachos de mercancías en nombre propio o de otra entidad pública deberán presentar solicitud que contenga la siguiente información:
-Indicar el nombre y demás calidades del funcionario (s) que actuará (n) ante el Servicio.
-Indicar las aduanas en las que operará.
+Artículo 180.-Solicitud de autorización (Derogado por el artículo 597 del Reglamento a la Ley General de Aduanas, aprobado mediante decreto ejecutivo N° 44051 del 18 de mayo del 2023)

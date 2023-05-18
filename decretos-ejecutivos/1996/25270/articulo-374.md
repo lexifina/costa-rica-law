@@ -1,3 +1,1 @@
-Artículo 374.—Lugar de reconocimiento y despacho
-El reconocimiento físico de las mercancías y el despacho tendrá lugar en los locales aduaneros habilitados a tal efecto.
-La conducción de los bultos hasta estos locales corresponderá a los propios viajeros o a las compañías transportistas. No obstante, para facilitar el tráfico turístico las autoridades aduaneras podrán autorizar que los reconocimientos se efectúen en los vehículos utilizados para el transporte.
+Artículo 374.-Lugar de reconocimiento y despacho (Derogado por el artículo 597 del Reglamento a la Ley General de Aduanas, aprobado mediante decreto ejecutivo N° 44051 del 18 de mayo del 2023)

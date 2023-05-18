@@ -1,2 +1,1 @@
-Artículo 517.—Reimportación de mercancías. La reimportación de mercancías que se hubiesen exportado bajo el régimen de exportación temporal para perfeccionamiento pasivo, que se realice después del vencimiento del plazo de permanencia en el exterior establecido para dicho régimen, causará el pago de los derechos e impuestos respectivos, como si dichas mercancías se importaran por primera vez al territorio aduanero.
-(Así reformado por el artículo 2° del decreto ejecutivo N° 31667 de 5 de marzo de 2004)
+Artículo 517.-Reimportación de mercancías. (Derogado por el artículo 597 del Reglamento a la Ley General de Aduanas, aprobado mediante decreto ejecutivo N° 44051 del 18 de mayo del 2023)

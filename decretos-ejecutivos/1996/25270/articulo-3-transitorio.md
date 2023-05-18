@@ -1,2 +1,1 @@
-Transitorio III.—Presentación de documentos en caso de transmisión electrónica.
-Hasta el 31 de diciembre de 1996, la Dirección General podrá exigir que, para determinados regímenes aduaneros, cuando la declaración aduanera se realice mediante transmisión electrónica, se deban adjuntar el formulario y demás documentos exigibles, según el caso.
+Transitorio III.-Presentación de documentos en caso de transmisión electrónica. (Derogado por el artículo 597 del Reglamento a la Ley General de Aduanas, aprobado mediante decreto ejecutivo N° 44051 del 18 de mayo del 2023)

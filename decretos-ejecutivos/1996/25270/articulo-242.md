@@ -1,2 +1,1 @@
-Artículo 242.—Aceptación. La declaración aduanera se entenderá aceptada cuando se registre en el sistema informático del Servicio u otro sistema autorizado.
-(Así reformado por el artículo 2° del decreto ejecutivo N° 31667 de 5 de marzo de 2004)
+Artículo 242.-Aceptación. (Derogado por el artículo 597 del Reglamento a la Ley General de Aduanas, aprobado mediante decreto ejecutivo N° 44051 del 18 de mayo del 2023)

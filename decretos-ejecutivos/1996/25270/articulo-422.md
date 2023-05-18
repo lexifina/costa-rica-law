@@ -1,2 +1,1 @@
-Artículo 422.—Declaración anticipada. El despacho de mercancías consistentes en envíos urgentes de conformidad con los artículos 202 del RECAUCA y el artículo 130 de la Ley, podrá solicitarse anticipadamente en los términos de los artículos 55 del CAUCA, 87 del RECAUCA, y 112 de la Ley, siempre y cuando se presente con la solicitud anticipada el dictamen médico que demuestre el carácter de uso inmediato o indispensable de las mercancías.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 31667 de 5 de marzo de 2004)
+Artículo 422.-Declaración anticipada. (Derogado por el artículo 597 del Reglamento a la Ley General de Aduanas, aprobado mediante decreto ejecutivo N° 44051 del 18 de mayo del 2023)

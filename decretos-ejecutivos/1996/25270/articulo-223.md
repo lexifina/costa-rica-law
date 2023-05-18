@@ -1,2 +1,1 @@
-Artículo 223.—Visita de inspección
-Una vez que la aduana haya recibido la transmisión del manifiesto de carga, comunicará al transportista si realizara la visita de inspección a los vehículos que ingresen al territorio nacional, de conformidad con los criterios selectivos y aleatorios de control y fiscalización.
+Artículo 223.-Visita de inspección (Derogado por el artículo 597 del Reglamento a la Ley General de Aduanas, aprobado mediante decreto ejecutivo N° 44051 del 18 de mayo del 2023)

@@ -1,2 +1,1 @@
-Artículo 425.—Traslado del envío postal.
-Una vez clasificados los envíos, serán trasladados por la autoridad postal, en sus unidades de transpone, a la aduana de destino que corresponda u oficina postal autorizada para recibirlos, según estén o no sujetos a control aduanero, de acuerdo con la dirección anotada por el destinatario.
+Artículo 425.-Traslado del envío postal. (Derogado por el artículo 597 del Reglamento a la Ley General de Aduanas, aprobado mediante decreto ejecutivo N° 44051 del 18 de mayo del 2023)

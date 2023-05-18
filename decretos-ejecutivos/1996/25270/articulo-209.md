@@ -1,2 +1,2 @@
-Artículo 209.-Formalidades para retirar las mercancías restringidas. En la subasta de mercancías cuya importación esté restringida, limitada o que requiera de un permiso o autorización especial, sólo podrán ser retiradas por el adjudicatario, quien deberá presentar los documentos, permisos, licencias, autorizaciones respectivas o dictámenes específicos de las autoridades competentes y demás formalidades que establezca la Dirección General de Aduanas.
+Artículo 209.-Formalidades para retirar las mercancías restringidas. (Derogado por el artículo 597 del Reglamento a la Ley General de Aduanas, aprobado mediante decreto ejecutivo N° 44051 del 18 de mayo del 2023)
 (Así adicionado por el artículo 2° del decreto ejecutivo N° 42818 del 19 de enero del 2021)

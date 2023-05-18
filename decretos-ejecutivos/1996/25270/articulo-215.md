@@ -1,2 +1,1 @@
-Artículo 215.—Prohibición de venta u obsequio de mercancías
-La venta u obsequio de cualquier clase de mercancías que se encuentren a bordo de los vehículos que ingresen al territorio aduanero nacional. a personas particulares o a funcionarios públicos, será sancionado de acuerdo con las disposiciones establecidas en la Ley. Lo anterior sin perjuicio de las mercancías que constituyen provisiones de a bordo a las cuales se dará el tratamiento aduanero previsto en la Ley y este Reglamento.
+Artículo 215.-Prohibición de venta u obsequio de mercancías (Derogado por el artículo 597 del Reglamento a la Ley General de Aduanas, aprobado mediante decreto ejecutivo N° 44051 del 18 de mayo del 2023)

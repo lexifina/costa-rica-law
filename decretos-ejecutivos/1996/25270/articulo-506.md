@@ -1,2 +1,1 @@
-Artículo 506.—Finalización de la operación
-La aduana de salida comunicará a la aduana de control la salida del país de la unidad de transporte.
+Artículo 506.-Finalización de la operación (Derogado por el artículo 597 del Reglamento a la Ley General de Aduanas, aprobado mediante decreto ejecutivo N° 44051 del 18 de mayo del 2023)

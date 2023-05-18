@@ -1,4 +1,3 @@
 SECCION II
 Pruebas
-Artículo 523.—Pruebas admisibles
-Además de los medios probatorios establecidos en los artículos 27 y 106 de la Ley, constituyen medios de prueba admisibles las contempladas en el derecho público y civil. Las pruebas serán apreciadas de conformidad con las reglas de la sana crítica.
+Artículo 523.-Pruebas admisibles (Derogado por el artículo 597 del Reglamento a la Ley General de Aduanas, aprobado mediante decreto ejecutivo N° 44051 del 18 de mayo del 2023)

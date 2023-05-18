@@ -1,2 +1,2 @@
-Transitorio VIII.—A partir de la entrada en vigencia del Título X denominado “Otras Regulaciones Aduaneras”, el Ministerio de Hacienda a través de la Dirección General de Aduanas y la Dirección de Tecnologías de Información y Comunicación, tendrá un plazo de tres meses para realizar los ajustes en el Sistema Informático Tecnología de Información para el Control Aduanero (TICA), que permitan la operación y funcionamiento del Transporte Multimodal Internacional Marítimo-Terrestre.
+Transitorio VIII.- (Derogado por el artículo 597 del Reglamento a la Ley General de Aduanas, aprobado mediante decreto ejecutivo N° 44051 del 18 de mayo del 2023)
 (Así adicionado por el artículo 2° del decreto ejecutivo N° 39267 del 19 de octubre de 2015)

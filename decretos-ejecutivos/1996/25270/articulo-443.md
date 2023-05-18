@@ -1,2 +1,1 @@
-Artículo 443.—Normativa internacional
-La presente reglamentación es complementaria al "Acuerdo Regional para la Importación Temporal de Vehículos por Carretera", pudiendo los beneficiarios de este Acuerdo escoger el régimen que más les favorezca.
+Artículo 443.-Normativa internacional (Derogado por el artículo 597 del Reglamento a la Ley General de Aduanas, aprobado mediante decreto ejecutivo N° 44051 del 18 de mayo del 2023)

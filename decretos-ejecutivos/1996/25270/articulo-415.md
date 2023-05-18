@@ -1,4 +1,1 @@
-Artículo 415.—Procedimiento para la transmisión del manifiesto de entrega rápida. El transportista aduanero deberá presentar el manifiesto de carga general en el plazo establecido en el inciso b) del artículo 220 de este Reglamento.
-El transportista aduanero deberá presentar el manifiesto de carga general, con la información detallada en el artículo 218 de este reglamento, incluyendo además un código de identificación en el (los) conocimiento (s) de embarque matriz que identifiquen la modalidad de entrega rápida.
-Una vez que el transportista aduanero presente el manifiesto de carga general incluyendo el conocimiento de embarque matriz, la empresa de entrega rápida presentará el detalle del manifiesto de entrega rápida.
-(Así reformado por el artículo 3° del decreto ejecutivo N° 32935 del 8 de febrero del 2006)
+Artículo 415.-Procedimiento para la transmisión del manifiesto de entrega rápida. (Derogado por el artículo 597 del Reglamento a la Ley General de Aduanas, aprobado mediante decreto ejecutivo N° 44051 del 18 de mayo del 2023)

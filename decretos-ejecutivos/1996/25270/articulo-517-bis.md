@@ -1,10 +1,2 @@
-Artículo 517 bis.—Requisitos para gozar de la liberación. Para gozar de los beneficios de este régimen al reimportarse las mercancías, el declarante deberá cumplir los requisitos siguientes:
-a. Si se trata de mercancías reparadas sin costo alguno o sustituidas, por encontrarse dentro del período de la garantía de funcionamiento:
-i) Que la declaración de reimportación sea debidamente presentada y aceptada dentro del plazo de permanencia de la exportación temporal.
-ii) Que establezca plenamente la identidad de las mercancías, en el caso de su reparación. Si se trata de sustitución por otras idénticas o similares se estará a lo dispuesto por el párrafo tercero del artículo 80 del CAUCA.
-b. En los demás casos de perfeccionamiento pasivo:
-i) Que la declaración de reimportación sea debidamente presentada y aceptada dentro del plazo de permanencia de la exportación temporal.
-ii) Que se establezca plenamente la identidad de las mercancías o que pueda determinarse la incorporación de las mercancías exportadas temporalmente en los productos compensadores que se reimportan.
-La reimportación de las mercancías a que se refiere el literal a), se efectuará con exención total de derechos e impuestos, excepto en el caso de sustitución, cuando las mercancías sustitutas tengan un valor mayor, en el que deberán cancelarse dichos tributos únicamente sobre la diferencia resultante.
-Para los casos previstos en el literal b), deberá pagarse los correspondientes derechos e impuestos a la importación, únicamente sobre el valor agregado a las mercancías exportadas y los gastos en que se incurra con motivo de la reimportación. Si el perfeccionamiento pasivo se efectuó en el territorio aduanero de alguno de los países suscriptores del Tratado General de Integración Económica Centroamericana y si los elementos, partes o componentes agregados fueren originarios de dichos países, la reimportación no estará afecta al pago de derechos arancelarios.
+Artículo 517 bis.-Requisitos para gozar de la liberación. (Derogado por el artículo 597 del Reglamento a la Ley General de Aduanas, aprobado mediante decreto ejecutivo N° 44051 del 18 de mayo del 2023)
 (Así adicionado por el artículo 4° del decreto ejecutivo N° 31667 de 5 de marzo de 2004)

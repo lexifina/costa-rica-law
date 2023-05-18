@@ -1,2 +1,1 @@
-Artículo 386.—Trámite prioritario
-Previa verificación de la documentación aportada por la empresa transportista y autorización de la autoridad competente del Ministerio de Salud Pública la aduana, sin ulterior procedimiento, autorizará la entrega de los restos humanos a la empresa funeraria correspondiente
+Artículo 386.-Trámite prioritario (Derogado por el artículo 597 del Reglamento a la Ley General de Aduanas, aprobado mediante decreto ejecutivo N° 44051 del 18 de mayo del 2023)

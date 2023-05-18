@@ -1,2 +1,1 @@
-Artículo 269.—Inicio de Tránsito. El inicio del tránsito se contabilizará a partir de la salida efectiva del vehículo y la unidad de transporte del lugar de ubicación donde se encuentren las mercancías. Para tales efectos el responsable de la ubicación registrará la hora y fecha de salida efectiva y comunicará inmediatamente a la Aduana de jurisdicción y a la Aduana de destino haciendo referencia a la numeración de la declaración de tránsito.
-(Así reformado por el artículo 3 del decreto ejecutivo N° 33359 del 14 de setiembre de 2006)
+Artículo 269.-Inicio de Tránsito. (Derogado por el artículo 597 del Reglamento a la Ley General de Aduanas, aprobado mediante decreto ejecutivo N° 44051 del 18 de mayo del 2023)

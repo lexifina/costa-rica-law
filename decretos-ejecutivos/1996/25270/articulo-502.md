@@ -1,4 +1,3 @@
 SECCIÓN III
 Despacho de mercancías hacia el extranjero
-Artículo 502.—Aceptación de la declaración y aplicación del control de verificación
-Aceptada la declaración aduanera se procederá a ordenar la realización del reconocimiento físico o se autorizará el levante de las mercancías. La declaración deberá indicar el lugar en donde las mercancías se cargaran a una unidad de transporte o se embalarán para su transpone.
+Artículo 502.-Aceptación de la declaración y aplicación del control de verificación (Derogado por el artículo 597 del Reglamento a la Ley General de Aduanas, aprobado mediante decreto ejecutivo N° 44051 del 18 de mayo del 2023)

@@ -1,4 +1,1 @@
-Artículo 229.—Correcciones del manifiesto de carga después de finalizada la descarga. Inmediatamente después de finalizada la descarga, el transportista aduanero deberá solicitar a la autoridad aduanera la rectificación de la información del manifiesto de carga o documento equivalente cuando corresponda.
-(Así reformado el párrafo anterior por el artículo 2 del decreto ejecutivo N° 33359 del 14 de setiembre de 2006)
-En caso que la rectificación de la información se refiera a faltantes y sobrantes se aplicará lo dispuesto en la nueva sección III de este capítulo.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 31667 de 5 de marzo de 2004)
+Artículo 229.-Correcciones del manifiesto de carga después de finalizada la descarga. (Derogado por el artículo 597 del Reglamento a la Ley General de Aduanas, aprobado mediante decreto ejecutivo N° 44051 del 18 de mayo del 2023)

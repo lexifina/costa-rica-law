@@ -1,8 +1,3 @@
 SECCIÓN II
 Vehículos automotores terrestres, marítimos y aéreos para fines no lucrativos
-Artículo 444.— Sujetos autorizados. Se autorizará la importación temporal de vehículos automotores terrestres, aéreos y marítimos con fines no lucrativos, a los turistas extranjeros, así como a los costarricenses residentes en el exterior que comprueben su residencia ininterrumpida en el extranjero, durante los doce meses anteriores a la solicitud. La autorización de la importación temporal y sus prórrogas puede ser otorgada en cualquier aduana.
-(Así reformado el párrafo anterior por el artículo 1° del decreto ejecutivo N° 33915 del 30 de enero de 2007)
-Para que estos vehículos puedan circular en el territorio nacional, es imprescindible portar visiblemente tal autorización. Cuando la importación temporal vaya a ser tramitada en una aduana distinta a la de ingreso, la movilización deberá realizarse bajo el régimen de tránsito interno
-Cuando el vehículo ingrese amparado a un manifiesto de carga, el beneficiario del régimen de importación temporal deberá coincidir con el titular del conocimiento de embarque, por lo que no se autorizará su endoso a efecto de que otra persona disfrute del régimen de importación temporal, salvo que ese endoso se efectúe a favor de otra persona física que cumpla las mismas condiciones para disfrutar de la importación temporal en esta categoría.
-(Así adicionado el párrafo anterior por el artículo 34 del decreto ejecutivo N° 32456 del 29 de junio de 2005, “Implementan nuevo Sistema de Información para el Control Aduanero TIC@, en el Servicio Nacional de Aduanas”)
-(Así reformado por el artículo 1° del decreto ejecutivo N° 31667 del 5 de marzo de 2004)
+Artículo 444.- Sujetos autorizados. (Derogado por el artículo 597 del Reglamento a la Ley General de Aduanas, aprobado mediante decreto ejecutivo N° 44051 del 18 de mayo del 2023)

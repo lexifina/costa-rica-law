@@ -1,5 +1,1 @@
-Artículo 247.—Resultado de la verificación y levante de las mercancías. Estando conforme el proceso de verificación con la declaración, se autorizará la destinación del régimen o modalidad solicitados, permitiéndole al declarante disponer de las mercancías objeto del despacho aduanero.
-Si se detectaren diferencias entre lo declarado y la información que debió declararse, la aduana efectuará las correcciones y ajustes correspondientes y notificará esta circunstancia al declarante o su representante.
-En este caso la aduana deberá iniciar, por medio de la oficina competente, el procedimiento sancionatorio o presentar las denuncias que correspondan.
-Lo anterior sin perjuicio de que la autoridad aduanera pueda autorizar el levante de las mercancías a solicitud del declarante, previa rendición de la garantía, de acuerdo con las reglas estipuladas en el artículo 100 de la Ley. También procederá el levante con garantía en los demás supuestos del citado artículo 100 de la Ley.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 31667 de 5 de marzo de 2004)
+Artículo 247.-Resultado de la verificación y levante de las mercancías. (Derogado por el artículo 597 del Reglamento a la Ley General de Aduanas, aprobado mediante decreto ejecutivo N° 44051 del 18 de mayo del 2023)

@@ -1,2 +1,1 @@
-Artículo 84.—Asignación del Código de Usuario y de la Palabra de Paso. Los Auxiliares inscritos que requieran integrar sus equipos con alguna de las redes del Servicio, deben solicitar al Departamento de Estadística y Registros de la Dirección de Gestión Técnica, la asignación del Código de Usuario y la Palabra de Paso correspondiente.
-(Así reformado por el artículo 2° del Decreto Ejecutivo N° 34475 de 4 de abril de 2008).
+Artículo 84.-Asignación del Código de Usuario y de la Palabra de Paso. (Derogado por el artículo 597 del Reglamento a la Ley General de Aduanas, aprobado mediante decreto ejecutivo N° 44051 del 18 de mayo del 2023)

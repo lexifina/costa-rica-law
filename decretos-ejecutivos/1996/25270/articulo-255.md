@@ -1,2 +1,1 @@
-Artículo 255.—Valor jurídico de los dictámenes técnicos
-Los dictámenes técnicos emitidos por el Director General son vinculantes para casos idénticos y similares.
+Artículo 255.-Valor jurídico de los dictámenes técnicos (Derogado por el artículo 597 del Reglamento a la Ley General de Aduanas, aprobado mediante decreto ejecutivo N° 44051 del 18 de mayo del 2023)

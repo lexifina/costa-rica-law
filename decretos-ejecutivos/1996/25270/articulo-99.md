@@ -1,2 +1,1 @@
-Artículo 99.—Facturación de gastos y honorarios
-Los Auxiliares están obligados a extender factura a sus comitentes o mandantes en forma detallada y con justificación de los gastos ocasionados y honorarios, de acuerdo con las disposiciones emitidas por la Administración Tributaria competente.
+Artículo 99.-Facturación de gastos y honorarios (Derogado por el artículo 597 del Reglamento a la Ley General de Aduanas, aprobado mediante decreto ejecutivo N° 44051 del 18 de mayo del 2023)

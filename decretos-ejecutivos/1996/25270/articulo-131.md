@@ -1,4 +1,3 @@
 CAPITULO IV
 Consolidador de Carga Internacional
-Artículo 131.—Requisito adicional
-El consolidador de carga internacional, además de cumplir con los requisitos establecidos en la Ley y este Reglamento, deberá rendir una garantía de veinte mil pesos centroamericanos en su equivalente en moneda nacional.
+Artículo 131.-Requisito adicional (Derogado por el artículo 597 del Reglamento a la Ley General de Aduanas, aprobado mediante decreto ejecutivo N° 44051 del 18 de mayo del 2023)

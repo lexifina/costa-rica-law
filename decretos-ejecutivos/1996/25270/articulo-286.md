@@ -1,2 +1,1 @@
-Artículo 286.—Verificación del transbordo
-La inspección de mercancías en las operaciones de transbordo se efectuara sobre la base de la información que contiene la declaración aduanera. En ella se dejará constancia de las actuaciones del funcionario que realizó la verificación.
+Artículo 286.-Verificación del transbordo (Derogado por el artículo 597 del Reglamento a la Ley General de Aduanas, aprobado mediante decreto ejecutivo N° 44051 del 18 de mayo del 2023)

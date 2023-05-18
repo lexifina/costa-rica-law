@@ -1,2 +1,1 @@
-Artículo 512.—Disposiciones comunes
-En todo lo no previsto en el presente capítulo, se aplicarán las disposiciones comunes al régimen de importación y exportación definitiva.
+Artículo 512.-Disposiciones comunes (Derogado por el artículo 597 del Reglamento a la Ley General de Aduanas, aprobado mediante decreto ejecutivo N° 44051 del 18 de mayo del 2023)

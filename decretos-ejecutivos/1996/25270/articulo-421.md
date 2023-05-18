@@ -1,2 +1,1 @@
-Artículo 421.—Trámite prioritario
-El despacho de mercancías bajo la presente modalidad tendrá prioridad respecto de los demás despachos. El Gerente de la aduana de ingreso de las mercancías tomara las previsiones necesarias para asignar el personal requerido para tramitar el despacho aún ¿n hura-» no hábiles.
+Artículo 421.-Trámite prioritario (Derogado por el artículo 597 del Reglamento a la Ley General de Aduanas, aprobado mediante decreto ejecutivo N° 44051 del 18 de mayo del 2023)

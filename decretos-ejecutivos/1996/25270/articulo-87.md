@@ -1,2 +1,1 @@
-Artículo 87.—Anotación de procesos pendientes
-El órgano competente deberá anotar en el Registro de auxiliares, cualquier proceso pendiente en vía judicial y administrativa de que tenga conocimiento, que se siga contra el Auxiliar y demás personal acreditado.
+Artículo 87.-Anotación de procesos pendientes (Derogado por el artículo 597 del Reglamento a la Ley General de Aduanas, aprobado mediante decreto ejecutivo N° 44051 del 18 de mayo del 2023)

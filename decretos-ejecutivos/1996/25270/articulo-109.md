@@ -1,2 +1,1 @@
-Artículo 109.—Dictamen de la Dirección General
-Cumplido el procedimiento indicado en el 79 de este Reglamento y habiendo aprobado el examen de competencia, cuando corresponda, la Dirección General remitirá el expediente y rendirá dictamen al Ministro, a fin de que se acuerde lo procedente. En ningún caso se autorizará la solicitud, si el dictamen de la Dirección General fuere desfavorable. Una vez autorizado, la oficina competente del Ministerio remitirá el expediente original a la oficina respectiva de la Dirección General para los efectos de registro correspondiente.
+Artículo 109.-Dictamen de la Dirección General (Derogado por el artículo 597 del Reglamento a la Ley General de Aduanas, aprobado mediante decreto ejecutivo N° 44051 del 18 de mayo del 2023)

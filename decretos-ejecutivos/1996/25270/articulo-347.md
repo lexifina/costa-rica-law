@@ -1,6 +1,1 @@
-Artículo 347.—Documentos de transporte, factura comercial y respaldo de información que debe conservar el declarante. La declaración aduanera de exportación deberá estar fundamentada en el conocimiento de embarque y la factura comercial que amparen las mercancías. El declarante deberá conservar bajo su responsabilidad y custodia directa o por medio de terceros, por el plazo de Ley, un respaldo del archivo digital y documental de las declaraciones aduaneras transmitidas electrónicamente, y copia de los siguientes documentos:
-a) Autorizaciones, licencias, permisos y otros documentos exigibles en las regulaciones no arancelarias, salvo que las entidades que los emitan los hayan transmitido electrónicamente, en cuyo caso la empresa conservará su respaldo como parte de la declaración aduanera.
-b) Factura comercial.
-c) Conocimiento de embarque.
-El exportador que tramite sus declaraciones sin intervención de agente aduanero deberá indicar a Promotora de Comercio Exterior de Costa Rica bajo declaración jurada, el lugar donde se custodiará la declaración y los documentos obligatorios de ésta. La declaración jurada se archivará como parte del expediente que esa entidad lleva del exportador.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 34564 del 14 de mayo del 2008)
+Artículo 347.-Documentos de transporte, factura comercial y respaldo de información que debe conservar el declarante. (Derogado por el artículo 597 del Reglamento a la Ley General de Aduanas, aprobado mediante decreto ejecutivo N° 44051 del 18 de mayo del 2023)

@@ -1,2 +1,1 @@
-Artículo 305.—Independencia de la actividad
-Las actividades propias del servicio de reempaque y distribución en el depósito aduanero, son independientes de las actividades propias e inherentes al depósito fiscal, por lo que los controles aduaneros e internos del auxiliar, que se ejerzan sobre las mercancías deberán estar separados.
+Artículo 305.-Independencia de la actividad (Derogado por el artículo 597 del Reglamento a la Ley General de Aduanas, aprobado mediante decreto ejecutivo N° 44051 del 18 de mayo del 2023)

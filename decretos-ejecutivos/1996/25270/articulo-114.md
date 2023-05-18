@@ -1,2 +1,1 @@
-Artículo 114.—Registro de asistentes
-Los agentes aduaneros, personas físicas o jurídicas, deberán registrar los asistentes. Además del agente, los asistentes acreditados serán los únicos autorizados para actuar ante el Servicio, en representación del agente aduanero, dentro de los límites establecidos en el artículo 122 de este Reglamento.
+Artículo 114.-Registro de asistentes (Derogado por el artículo 597 del Reglamento a la Ley General de Aduanas, aprobado mediante decreto ejecutivo N° 44051 del 18 de mayo del 2023)

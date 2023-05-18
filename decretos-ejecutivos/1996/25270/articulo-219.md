@@ -1,2 +1,1 @@
-Artículo 219.—Datos adicionales del manifiesto de carga en tráfico marítimo y terrestre. El manifiesto de carga en el tráfico marítimo, terrestre o multimodal contendrá el código de identificación de los contenedores que transporte, compuesto por un prefijo alfabético de cuatro letras, una parte numérica de seis dígitos y un dígito verificador. Además, se indicará la identificación de los medios de transporte comercial de carga.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 39267 del 19 de octubre de 2015)
+Artículo 219.- (Derogado por el artículo 597 del Reglamento a la Ley General de Aduanas, aprobado mediante decreto ejecutivo N° 44051 del 18 de mayo del 2023)

@@ -1,2 +1,1 @@
-Artículo 377.—Traslado a depósito
-Las mercancías del viajero se depositaran en bodegas de la aduana o se remitirán de oficio o a su solicitud a depósito fiscal cuando no de despachen inmediatamente. Las normas que regulan el depósito en aduana y el depósito fiscal serán aplicables en estos casos y las mercancías deberán ser destinadas a un régimen aduanero según el procedimiento correspondiente, causando abandono a favor del Fisco, en caso contrario.
+Artículo 377.-Traslado a depósito (Derogado por el artículo 597 del Reglamento a la Ley General de Aduanas, aprobado mediante decreto ejecutivo N° 44051 del 18 de mayo del 2023)

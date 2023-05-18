@@ -1,4 +1,3 @@
 SECCIÓN VI
 Mercancías a granel
-Artículo 333.—Ámbito de aplicación de la sección
-La importación definitiva de mercancías a granel, entendida como tal granos, líquidos y otras mercancías que tienen en común la ausencia de cuantificación determinada, se someterá al procedimiento y condiciones que se estipulan en la presente Sección.
+Artículo 333.-Ámbito de aplicación de la sección (Derogado por el artículo 597 del Reglamento a la Ley General de Aduanas, aprobado mediante decreto ejecutivo N° 44051 del 18 de mayo del 2023)

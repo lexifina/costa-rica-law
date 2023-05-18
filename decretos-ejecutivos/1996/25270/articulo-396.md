@@ -1,2 +1,1 @@
-Artículo 396.—Declaración definitiva. La declaración definitiva deberá realizarse dentro del plazo que establece el artículo 125 de la Ley, cumpliendo con todos los requisitos del régimen al cual se destinaran las mercancías. Para esos efectos podrá efectuarse el examen previo de las mercancías.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 31667 de 5 de marzo de 2004)
+Artículo 396.-Declaración definitiva. (Derogado por el artículo 597 del Reglamento a la Ley General de Aduanas, aprobado mediante decreto ejecutivo N° 44051 del 18 de mayo del 2023)

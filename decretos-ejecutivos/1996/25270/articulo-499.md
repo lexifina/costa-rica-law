@@ -1,3 +1,1 @@
-Artículo 499.—Despacho de las mercancías sin reconocimiento físico
-En caso de que no proceda realizar el acto de reconocimiento físico se comunicará al declarante la autorización del levante de las mercancías.
-El declarante será responsable de supervisar la operación de descarga de la unidad de transporte y de comunicar inmediatamente a la aduana de control cualquier diferencia con la información declarada a la aduana.
+Artículo 499.-Despacho de las mercancías sin reconocimiento físico (Derogado por el artículo 597 del Reglamento a la Ley General de Aduanas, aprobado mediante decreto ejecutivo N° 44051 del 18 de mayo del 2023)

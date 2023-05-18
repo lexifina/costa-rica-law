@@ -1,2 +1,1 @@
-Artículo 489.—Reimportación de mercancías fuera del plazo
-Cuando la mercancía retomare al país fuera de los plazos establecidos se considerará para todos los efectos como mercancía extranjera y como tal. estará sujeta al pago de los tributos correspondientes.
+Artículo 489.-Reimportación de mercancías fuera del plazo (Derogado por el artículo 597 del Reglamento a la Ley General de Aduanas, aprobado mediante decreto ejecutivo N° 44051 del 18 de mayo del 2023)

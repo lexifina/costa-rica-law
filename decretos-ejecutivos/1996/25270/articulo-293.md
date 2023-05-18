@@ -1,5 +1,1 @@
-Artículo 293.—Descarga con intervención de funcionario aduanero. Cuando corresponda efectuar la descarga con intervención de funcionario aduanero, éste deberá trasladarse al depósito en que se ubique la unidad de transporte y la mercancía, a efecto de inspeccionar la descarga.
-Si a la hora programada para la descarga el funcionario no se apersona al lugar, el depositario procederá a efectuar la descarga y dejará constancia de tal situación en el documento de ingreso a sus instalaciones.
-La aduana velará por el cumplimiento de lo anterior y tomará las medidas correspondientes a efecto de establecer la responsabilidad del servidor y del auxiliar de la función pública.
-Cuando hubieren razones justificadas, la aduana podrá reprogramar por una única vez, la fecha y hora de la descarga previamente comunicadas
-(Así reformado por el artículo 32 del decreto ejecutivo N° 32456 del 29 de junio del 2005, “Implementan nuevo Sistema de Información para el Control Aduanero TIC@, en el Servicio Nacional de Aduanas”)
+Artículo 293.-Descarga con intervención de funcionario aduanero. (Derogado por el artículo 597 del Reglamento a la Ley General de Aduanas, aprobado mediante decreto ejecutivo N° 44051 del 18 de mayo del 2023)

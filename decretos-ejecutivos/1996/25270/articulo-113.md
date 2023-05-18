@@ -1,3 +1,1 @@
-Artículo 113.—Oficinas. Todo agente aduanero, persona física o jurídica, deberá tener oficina establecida en la jurisdicción de cada aduana en donde esté autorizado y haber caucionado para operar, además funcionará conforme con los horarios de trabajo de la misma aduana. Esta deberá identificarse con un rótulo comercial visible, que contenga la condición de agente aduanero y el número de registro otorgado por la Dirección General. Deberá además ser independiente y exclusiva para cada agente aduanero.
-La aduana de control inspeccionará periódicamente esas oficinas, a efecto de verificar que cumpla con los requerimientos establecidos y remitirá el informe respectivo a la autoridad competente cuando proceda
-(Así reformado por artículo 1° del decreto ejecutivo N° 34564 del 14 de mayo de 2008)
+Artículo 113.-Oficinas. (Derogado por el artículo 597 del Reglamento a la Ley General de Aduanas, aprobado mediante decreto ejecutivo N° 44051 del 18 de mayo del 2023)

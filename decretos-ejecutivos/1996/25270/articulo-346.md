@@ -1,2 +1,1 @@
-Artículo 346.—Declaración acumulada
-Las mercancías exportadas de envío reiterado realizadas por empresas del Estado, podrán acumularse en una sola declaración aduanera, que incluirá las operaciones de exportación realizadas en el mes calendario anterior. La declaración deberá presentarse ante la aduana de salida dentro de los cinco días hábiles del mes calendario siguiente, adjuntándole la documentación correspondiente a cada transacción realizada.
+Artículo 346.-Declaración acumulada (Derogado por el artículo 597 del Reglamento a la Ley General de Aduanas, aprobado mediante decreto ejecutivo N° 44051 del 18 de mayo del 2023)

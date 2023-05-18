@@ -1,2 +1,1 @@
-Artículo 284.—Lugar autorizado para la consolidación. La consolidación de carga deberá realizarse en las terminales de carga, depósitos fiscales autorizados u otra zona de operación que autorice la Dirección General, en donde además, se impondrán los marchamos aduaneros para su posterior embarque.
-(Así reformado por el artículo 3° del decreto ejecutivo N° 31667 de 5 de marzo de 2004)
+Artículo 284.-Lugar autorizado para la consolidación. (Derogado por el artículo 597 del Reglamento a la Ley General de Aduanas, aprobado mediante decreto ejecutivo N° 44051 del 18 de mayo del 2023)

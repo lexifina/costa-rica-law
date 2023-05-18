@@ -1,2 +1,1 @@
-Artículo 511.—Formato de la declaración de salida y reingreso
-El formato de la declaración de salida y de reingreso será el determinado por la Dirección General.
+Artículo 511.-Formato de la declaración de salida y reingreso (Derogado por el artículo 597 del Reglamento a la Ley General de Aduanas, aprobado mediante decreto ejecutivo N° 44051 del 18 de mayo del 2023)

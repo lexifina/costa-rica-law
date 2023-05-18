@@ -1,8 +1,2 @@
-Artículo 245 bis.—Momento para comunicar si corresponde la verificación inmediata. Por regla general, la comunicación de si procede ordenar el acto inmediato de verificación o autorizar el levante de las mercancías se efectuará inmediatamente después de la aceptación de la declaración aduanera.
-No obstante, la Dirección General podrá, tomando en cuenta las necesidades de los auxiliares y de los usuarios del Sistema, establecer un momento posterior en los siguientes casos:
-a. Cuando una declaración aduanera se transmite de previo al arribo de las mercancías al territorio aduanero nacional.
-b. Cuando una declaración aduanera se transmite de previo a que las mercancías estén dispuestas para un eventual reconocimiento físico, tratándose de la exportación.
-c. Cuando una declaración aduanera se transmite de previo a su asociación con el inventario.
-d. Cuando se justifique por razones de operatividad administrativa.
-La Dirección General establecerá el procedimiento a seguir cuando con base en criterios de fiscalización previamente establecidos, funcionarios fiscalizadores intervengan durante la verificación inmediata de la declaración aduanera en ejecución de sus competencias administrativas. Con fundamento en esos criterios de fiscalización, el funcionario fiscalizador podrá disponer la verificación documental de la declaración aduanera o el reconocimiento físico de las mercancías o ambos
-(Así adicionado por el artículo 34 del decreto ejecutivo N° 32456 del 29 de junio del 2005, “Implementan nuevo Sistema de Información para el Control Aduanero TIC@, en el Servicio Nacional de Aduanas”)
+Artículo 245 bis.-Momento para comunicar si corresponde la verificación inmediata. (Derogado por el artículo 597 del Reglamento a la Ley General de Aduanas, aprobado mediante decreto ejecutivo N° 44051 del 18 de mayo del 2023)
+(Así adicionado por el artículo 34 del decreto ejecutivo N° 32456 del 29 de junio del 2005, "Implementan nuevo Sistema de Información para el Control Aduanero TIC@, en el Servicio Nacional de Aduanas")

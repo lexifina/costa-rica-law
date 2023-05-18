@@ -1,4 +1,3 @@
 SECCIÓN III
 Procedimiento para la extracción de muestras de mercancías
-Artículo 325.—Casos en que procede la extracción de muestras
-La aduana bajo cuyo control se encuentren las mercancías podrá, de oficio o a solicitud de parte interesada, extraer muestras de mercancías cuando en el proceso de verificación se determine que es necesario realizar un análisis.
+Artículo 325.-Casos en que procede la extracción de muestras (Derogado por el artículo 597 del Reglamento a la Ley General de Aduanas, aprobado mediante decreto ejecutivo N° 44051 del 18 de mayo del 2023)

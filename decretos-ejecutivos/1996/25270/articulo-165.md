@@ -1,2 +1,1 @@
-Artículo 165.—Documentos que debe conservar la empresa
-La empresa de zona franca deberá conservar copias de los formularios autorizados para el ingreso y salida de las mercancías, copia de la resolución de autorización al régimen, copia de los convenios de subcontratación de servicios con otras empresas y copia de los repones rendidos al órgano administrador del régimen.
+Artículo 165.-Documentos que debe conservar la empresa (Derogado por el artículo 597 del Reglamento a la Ley General de Aduanas, aprobado mediante decreto ejecutivo N° 44051 del 18 de mayo del 2023)

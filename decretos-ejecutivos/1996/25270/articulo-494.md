@@ -1,2 +1,1 @@
-Artículo 494.—Reexportación de mercancías prohibidas
-En ningún caso se autorizará la reexportación de mercancías prohibidas; en tal caso. las mercancías serán decomisadas y puesta a disposición de las autoridades competentes.
+Artículo 494.-Reexportación de mercancías prohibidas (Derogado por el artículo 597 del Reglamento a la Ley General de Aduanas, aprobado mediante decreto ejecutivo N° 44051 del 18 de mayo del 2023)

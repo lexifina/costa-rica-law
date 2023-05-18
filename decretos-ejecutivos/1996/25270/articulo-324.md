@@ -1,6 +1,1 @@
-Artículo 324.—Devolución de documentos. Los documentos originales que hubieren sido solicitados para los efectos de la verificación inmediata, se devolverán al agente aduanero y a los demás auxiliares autorizados a transmitir electrónicamente bajo su responsabilidad declaraciones aduaneras. Para casos concretos esos documentos podrán ser conservados por el Servicio en caso de requerirse para efectos de verificación a posteriori de la declaración aduanera
-(Así reformado el párrafo anterior por el artículo 32 del decreto ejecutivo N° 32456 del 29 de junio del 2005, “Implementan nuevo Sistema de Información para el Control Aduanero TIC@, en el Servicio Nacional de Aduanas”)
-Esos auxiliares serán responsables para todos los efectos legales por la debida custodia y conservación de los documentos. Esa documentación deberá ser puesta a la orden de la autoridad aduanera cuando ésta lo solicite.
-Los documentos que sustentaron las declaraciones aduaneras tramitadas de oficio serán conservados por la aduana
-(Así reformado el párrafo anterior por el artículo 32 del decreto ejecutivo N° 32456 del 29 de junio del 2005, “Implementan nuevo Sistema de Información para el Control Aduanero TIC@, en el Servicio Nacional de Aduanas”)
-(Así reformado por el artículo 1° del decreto ejecutivo N° 31667 del 5 de marzo de 2004)
+Artículo 324.-Devolución de documentos. (Derogado por el artículo 597 del Reglamento a la Ley General de Aduanas, aprobado mediante decreto ejecutivo N° 44051 del 18 de mayo del 2023)

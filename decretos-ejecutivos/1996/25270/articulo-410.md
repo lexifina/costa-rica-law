@@ -1,9 +1,1 @@
-Artículo 410.—Clasificación de los envíos. Los envíos bajo la presente modalidad se clasificarán en alguna de las siguientes categorías:
-a. Envíos de documentos: incluye cualquier mensaje, información o datos enviados a través de papeles, cartas, fotografías o a través de medios magnéticos o electromagnéticos de índole bancaria, comercial, judicial, de seguros, de prensa, catálogos entre otros, excepto software.
-(Así reformado el inciso anterior por el artículo 2° del decreto ejecutivo N° 32935 del 8 de febrero del 2006)
-b. Muestras sin valor comercial: Incluye mercancías que por su forma de presentación cumplen con lo establecido en la normativa vigente. El despacho de este tipo de mercancías podrá ser efectuado por el propio consignatario o por medio de un agente aduanero. Estas mercancías no son objeto de ser despachadas como documentos o mediante la declaración simplificada.
-(Así reformado el inciso anterior por el artículo 2° del decreto ejecutivo N° 32935 del 8 de febrero del 2006)
-c. Envíos de mercancías sujetas al pago de tributos: incluye mercancías con un valor aduanero no superior a mil pesos centroamericanos, que no estén sujetas a restricciones o prohibiciones, las que podrán ser despachadas mediante una declaración aduanera simplificada individual o global. El trámite de despacho también lo puede efectuar el consignatario mediante el módulo de oficio, una vez ingresada las mercancías al régimen de depósito fiscal.
-(Así reformado el inciso anterior por el artículo 2° del decreto ejecutivo N° 32935 del 8 de febrero del 2006)
-d. Envíos generales: incluye los demás envíos de mercancías no incluidas en las categorías anteriores y aquellas destinadas a un régimen distinto al de importación definitiva, y las mercancías importadas bajo la modalidad de pequeños envíos sin carácter comercial regulada por los artículos 93 del CAUCA y 214 y siguientes del RECAUCA.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 31667 de 5 de marzo de 2004)
+Artículo 410.-Clasificación de los envíos. (Derogado por el artículo 597 del Reglamento a la Ley General de Aduanas, aprobado mediante decreto ejecutivo N° 44051 del 18 de mayo del 2023)

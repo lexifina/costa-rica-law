@@ -1,4 +1,1 @@
-Artículo 192.—Mercancías en mal estado, inservibles o prohibidas
-Si del reconocimiento de las mercancías que realice el funcionario aduanero o del reporte transmitido por el depositario a la aduana, se encontraren mercancías en mal estado o inservibles, que carezcan de valor comercial o cuya importación fuere prohibida se ordenará su destrucción o la entrega a la autoridad competente.
-La destrucción se efectuará en presencia de funcionario aduanero y de la persona que designe el depositario aduanero.
-Cuando proceda la destrucción de materias inflamables, tóxicas, corrosivas o sustancias similares, ésta se efectuará de forma que no cause daño a la naturaleza o medio ambiente y en los lugares autorizados para el manejo técnico de tales mercancías, en coordinación con las entidades públicas competentes.
+Artículo 192.-Mercancías en mal estado, inservibles o prohibidas (Derogado por el artículo 597 del Reglamento a la Ley General de Aduanas, aprobado mediante decreto ejecutivo N° 44051 del 18 de mayo del 2023)

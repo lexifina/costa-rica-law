@@ -1,2 +1,1 @@
-Artículo 194.—Adjudicación de mercancías restringidas o limitadas
-En la subasta de mercancías cuya importación esté restringida o limitada, sólo podrán ser adjudicatarios las personas que legalmente puedan efectuar la importación de tales mercancías, para lo cual deberán presentar, previo al retiro de las mercancías, los documentos, permisos, licencias o autorizaciones respectivos.
+Artículo 194.-Adjudicación de mercancías restringidas o limitadas (Derogado por el artículo 597 del Reglamento a la Ley General de Aduanas, aprobado mediante decreto ejecutivo N° 44051 del 18 de mayo del 2023)

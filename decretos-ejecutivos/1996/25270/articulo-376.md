@@ -1,2 +1,1 @@
-Artículo 376.—Pago de tributos
-El viajero podrá pagar en forma inmediata los tributos correspondientes sobre las mercancías que los adeuden, salvo que se requiera de la intervención de un agente aduanero. La aduana determinara la obligación tributaria aduanera y tramitará de oficio la declaración aduanera.
+Artículo 376.-Pago de tributos (Derogado por el artículo 597 del Reglamento a la Ley General de Aduanas, aprobado mediante decreto ejecutivo N° 44051 del 18 de mayo del 2023)

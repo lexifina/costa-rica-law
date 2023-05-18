@@ -1,3 +1,2 @@
-Artículo 296 bis.—Ámbito de aplicación.
-Las disposiciones de la presente Sección, serán igualmente aplicables para la recepción de bultos por parte de los demás auxiliares de la función pública aduanera que reciben mercancías en sus instalaciones, tales como empresas de Zona Franca, Perfeccionamiento Activo, Despacho Domiciliario Comercial e Industrial.
+Artículo 296 bis.-Ámbito de aplicación. (Derogado por el artículo 597 del Reglamento a la Ley General de Aduanas, aprobado mediante decreto ejecutivo N° 44051 del 18 de mayo del 2023)
 (Así adicionado por el artículo 22 del decreto ejecutivo N° 28976 de 27 de setiembre del 2000)

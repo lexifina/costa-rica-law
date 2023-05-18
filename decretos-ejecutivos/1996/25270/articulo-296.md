@@ -1,5 +1,1 @@
-Artículo 296.—Descarga y recepción de bultos. La recepción de bultos se realizará con base en la información que contiene la declaración de tránsito o documento de ingreso al depósito.
-El depositario, el transportista aduanero y el funcionario aduanero en caso de que éste último intervenga, dejarán constancia del resultado de la descarga, de sus actuaciones y registros, incluyendo la hora y fecha de tal acto, la que se tendrá para todos los efectos legales, como la fecha de iniciación del régimen de depósito fiscal.
-En caso de encontrarse alguna discrepancia el transportista será el responsable de justificarla ante la aduana de control, sin perjuicio de las sanciones que resultaran procedentes.
-En caso de que el transportista, pese a que está obligado, no se presente a observar la descarga, el depositario procederá con ésta y dejará constancia de tal situación
-(Así reformado por el artículo 33 del decreto ejecutivo N° 32456 del 29 de junio del 2005, “Implementan nuevo Sistema de Información para el Control Aduanero TIC@, en el Servicio Nacional de Aduanas”)
+Artículo 296.-Descarga y recepción de bultos. (Derogado por el artículo 597 del Reglamento a la Ley General de Aduanas, aprobado mediante decreto ejecutivo N° 44051 del 18 de mayo del 2023)

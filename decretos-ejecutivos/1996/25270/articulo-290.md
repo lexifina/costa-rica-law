@@ -1,2 +1,1 @@
-Artículo 290.—Remisión de oficio a un depósito
-Por razones de control o de seguridad fiscal, la autoridad aduanera podrá ordenar de oficio el traslado de mercancías a determinado depósito fiscal. Para esos efectos, la aduana competente establecerá un plan de distribución rotativa a los distintos depósitos fiscales, tomando en consideración el tipo de depósito y las características de las mercancías.
+Artículo 290.-Remisión de oficio a un depósito (Derogado por el artículo 597 del Reglamento a la Ley General de Aduanas, aprobado mediante decreto ejecutivo N° 44051 del 18 de mayo del 2023)

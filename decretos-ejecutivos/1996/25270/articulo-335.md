@@ -1,3 +1,1 @@
-Artículo 335.—Descarga y traslado de las mercancías
-Una vez que arribe el vehículo de transpone a puerto y cumplidas todas las formalidades y requerimientos no aduaneros, se procederá a autorizar la descarga y traslado de las mercancías por los medios ordinarios, bajo control aduanero.
-Las mercancías serán trasladadas a las bodegas, silos o tanques y se procederá a determinar las cantidades según los sistemas de medida vigentes.
+Artículo 335.-Descarga y traslado de las mercancías (Derogado por el artículo 597 del Reglamento a la Ley General de Aduanas, aprobado mediante decreto ejecutivo N° 44051 del 18 de mayo del 2023)

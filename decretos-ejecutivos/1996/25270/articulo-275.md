@@ -1,2 +1,1 @@
-Artículo 275.—Llegada a las instalaciones del auxiliar receptor. A la llegada del vehículo y la unidad de transporte a las instalaciones habilitadas, el transportista presentará al auxiliar, la declaración de tránsito o comprobante de salida y sus anexos. El auxiliar receptor registrará la fecha y hora efectiva de llegada de la unidad de transporte de conformidad con lo regulado por la Dirección General de Aduanas.
-(Así reformado por el artículo 2 del decreto ejecutivo N° 33359 del 14 de setiembre de 2006)
+Artículo 275.-Llegada a las instalaciones del auxiliar receptor. (Derogado por el artículo 597 del Reglamento a la Ley General de Aduanas, aprobado mediante decreto ejecutivo N° 44051 del 18 de mayo del 2023)

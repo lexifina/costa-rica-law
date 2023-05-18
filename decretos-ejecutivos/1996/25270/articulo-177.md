@@ -1,2 +1,1 @@
-Artículo 177.—Actualización del registro de mercancías
-La aduana de control no autorizará el ingreso de mercancías bajo esta modalidad de aquellas empresas no registradas previamente ante la Dirección General. Para efectos de su registro deberá actualizar la información indicada en los literales a y d del artículo 175 de este Reglamento.
+Artículo 177.-Actualización del registro de mercancías (Derogado por el artículo 597 del Reglamento a la Ley General de Aduanas, aprobado mediante decreto ejecutivo N° 44051 del 18 de mayo del 2023)

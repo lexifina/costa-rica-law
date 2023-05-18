@@ -1,4 +1,3 @@
 SECCIÓN II
 Despacho de mercancías provenientes del extranjero
-Artículo 476.—Aceptación de la declaración y aplicación del control de verificación
-Aceptada la declaración aduanera, la aduana de control indicará si procede ordenar la verificación de la declaración mediante el reconocimiento físico de las mercancías.
+Artículo 476.-Aceptación de la declaración y aplicación del control de verificación (Derogado por el artículo 597 del Reglamento a la Ley General de Aduanas, aprobado mediante decreto ejecutivo N° 44051 del 18 de mayo del 2023)

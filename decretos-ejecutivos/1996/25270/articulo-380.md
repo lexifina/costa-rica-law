@@ -1,2 +1,1 @@
-Artículo 380.—Ingreso de envíos de socorro. La aduana de ingreso tramitará de oficio el despacho de los envíos de socorro. La entidad solicitante deberá presentar ante la aduana la lista detallada de los envíos de socorro, emitido por la autoridad solicitante o por las autoridades aduaneras del país de exportación.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 31667 de 5 de marzo de 2004)
+Artículo 380.-Ingreso de envíos de socorro. (Derogado por el artículo 597 del Reglamento a la Ley General de Aduanas, aprobado mediante decreto ejecutivo N° 44051 del 18 de mayo del 2023)

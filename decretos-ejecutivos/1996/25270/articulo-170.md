@@ -1,2 +1,1 @@
-Artículo 170.—Autorización de instalaciones para recibir vehículos, unidades de transporte y mercancías
-La Dirección General podrá habilitar como zona de operación aduanera permanente, una o varias instalaciones del solicitante, atendiendo a las necesidades del consignatario y el número de importaciones que se realizan en cada instalación. Además considerará las condiciones d seguridad, infraestructura y los recursos humanos y logísticos con que cuente la aduana para realizar el control aduanero de las operaciones.
+Artículo 170.-Autorización de instalaciones para recibir vehículos, unidades de transporte y mercancías (Derogado por el artículo 597 del Reglamento a la Ley General de Aduanas, aprobado mediante decreto ejecutivo N° 44051 del 18 de mayo del 2023)

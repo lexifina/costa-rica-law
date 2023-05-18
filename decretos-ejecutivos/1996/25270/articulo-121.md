@@ -1,2 +1,1 @@
-Artículo 121.—Exclusividad de la representación
-Los asistentes de agentes de aduana sólo podrán trabajar para un único agente aduanero, persona física o jurídica, quien los acreditará ante las aduanas respectivas.
+Artículo 121.-Exclusividad de la representación (Derogado por el artículo 597 del Reglamento a la Ley General de Aduanas, aprobado mediante decreto ejecutivo N° 44051 del 18 de mayo del 2023)

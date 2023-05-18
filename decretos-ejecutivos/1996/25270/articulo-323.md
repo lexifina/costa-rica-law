@@ -1,2 +1,1 @@
-Artículo 323.—Prueba de la autorización del levante
-La autorización de la aduana del levante de las mercancías se hará constar en un reporte que contendrá los datos de la declaración del despacho tramitado, en una copia de la declaración aduanera u otro medio que establezca la Dirección General.
+Artículo 323.-Prueba de la autorización del levante (Derogado por el artículo 597 del Reglamento a la Ley General de Aduanas, aprobado mediante decreto ejecutivo N° 44051 del 18 de mayo del 2023)

@@ -1,4 +1,3 @@
 SECCIÓN II
 Reconocimiento de mercancías en instalaciones autorizadas
-Artículo 348.—Ámbito de aplicación
-El procedimiento que establece la presente Sección será aplicable en aquellos casos en que las mercancías destinadas a la exportación puedan ser cargadas en unidades de transporte para su traslado o tránsito aduanero hacia el extranjero en las instalaciones de exportadores habituales., terminales de carga de exportación y depositarios aduaneros autorizados a esos efectos.
+Artículo 348.-Ámbito de aplicación (Derogado por el artículo 597 del Reglamento a la Ley General de Aduanas, aprobado mediante decreto ejecutivo N° 44051 del 18 de mayo del 2023)

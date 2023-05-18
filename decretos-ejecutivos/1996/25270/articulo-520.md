@@ -4,5 +4,4 @@ CAPITULO I
 Principios y normas generales del procedimiento
 SECCION I
 Formalidades del procedimiento
-Artículo 520.—Normas aplicables
-Las disposiciones de la Ley General de la Administración Pública sobre el procedimiento administrativo serán de aplicación obligatoria, en caso de ausencia de norma expresa de la Ley y este Reglamento.
+Artículo 520.-Normas aplicables (Derogado por el artículo 597 del Reglamento a la Ley General de Aduanas, aprobado mediante decreto ejecutivo N° 44051 del 18 de mayo del 2023)

@@ -1,2 +1,1 @@
-Artículo 397-Aceptación y verificación de la declaración
-Aceptada la declaración aduanera y comprobado el pago de la obligación tributaria aduanera, la aduana indicará si procede ordenar la verificación de la declaración mediante el reconocimiento físico de las mercancías.
+Artículo 397-Aceptación y verificación de la declaración (Derogado por el artículo 597 del Reglamento a la Ley General de Aduanas, aprobado mediante decreto ejecutivo N° 44051 del 18 de mayo del 2023)

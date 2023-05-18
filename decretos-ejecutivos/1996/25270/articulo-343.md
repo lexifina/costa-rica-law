@@ -1,2 +1,1 @@
-Artículo 343.—Declaración aduanera de exportación. Para la aceptación, la declaración aduanera de mercancías de exportación deberá transmitirse electrónicamente al sistema informático por el agente aduanero o directamente por el exportador, estableciendo la cuantía de la obligación tributaria aduanera y comprobando su pago cuando corresponda
-(Así reformado por el artículo 32 del decreto ejecutivo N° 32456 del 29 de junio del 2005, “Implementan nuevo Sistema de Información para el Control Aduanero TIC@, en el Servicio Nacional de Aduanas”)
+Artículo 343.-Declaración aduanera de exportación. (Derogado por el artículo 597 del Reglamento a la Ley General de Aduanas, aprobado mediante decreto ejecutivo N° 44051 del 18 de mayo del 2023)

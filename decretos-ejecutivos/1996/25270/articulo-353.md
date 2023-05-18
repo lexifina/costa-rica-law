@@ -1,2 +1,1 @@
-Artículo 353.—Despacho sin reconocimiento físico
-En caso de no requerirse reconocimiento físico, el exportador, el depositario aduanero autorizado al efecto o la terminal de carga de exportación, según el caso. serán responsables de supervisar las operaciones de embalaje y carga de las mercancías en la unidad de transporte y de transmitir a la aduana de control la cantidad de bultos o mercancías cargadas, la fecha y hora de salida del vehículo y de la unidad de transporte y la identificación de los marchamos o precintos colocados.
+Artículo 353.-Despacho sin reconocimiento físico (Derogado por el artículo 597 del Reglamento a la Ley General de Aduanas, aprobado mediante decreto ejecutivo N° 44051 del 18 de mayo del 2023)

@@ -1,2 +1,1 @@
-Artículo 497.—Autorización de otras autoridades no aduaneras
-Las disposiciones de este Reglamento no podrán interpretarse en perjuicio de la competencia de otras autoridades no aduaneras que deban autorizar o intervenir en las operaciones efectuadas por las empresas beneficiarías del régimen.
+Artículo 497.-Autorización de otras autoridades no aduaneras (Derogado por el artículo 597 del Reglamento a la Ley General de Aduanas, aprobado mediante decreto ejecutivo N° 44051 del 18 de mayo del 2023)

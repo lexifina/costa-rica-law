@@ -1,2 +1,1 @@
-Artículo 464.—Faltantes al momento de la reexportación
-Salvo destrucción o daño de mercancías por caso fortuito o fuerza mayor, debidamente demostrado a satisfacción de la aduana, por cualquier mercancía que faltare al tiempo de efectuarse la reexportación, el interesado deberá pagar los tributos respectivos, para lo cual la autoridad aduanera ejecutará la garantía o, en su caso, iniciara los procedimientos administrativos correspondientes.
+Artículo 464.-Faltantes al momento de la reexportación (Derogado por el artículo 597 del Reglamento a la Ley General de Aduanas, aprobado mediante decreto ejecutivo N° 44051 del 18 de mayo del 2023)

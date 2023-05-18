@@ -1,2 +1,1 @@
-Artículo 360.—Autorización de instalaciones
-La Dirección General podrá habilitar como zona de operación aduanera una o varias instalaciones del solicitante, atendiendo a las necesidades del exportador y las condiciones de seguridad, infraestructura y los recursos humanos y logísticos con que cuente la aduana para realizar el control aduanero en esas instalaciones.
+Artículo 360.-Autorización de instalaciones (Derogado por el artículo 597 del Reglamento a la Ley General de Aduanas, aprobado mediante decreto ejecutivo N° 44051 del 18 de mayo del 2023)

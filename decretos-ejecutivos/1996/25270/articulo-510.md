@@ -2,6 +2,4 @@ CAPITULO XIV
 Régimen de perfeccionamiento pasivo
 SECCION I
 Disposiciones generales
-Artículo 510.—Ambito de aplicación
-Las disposiciones que conforman el presente reglamento establecen las reglas de aplicación para la exportación temporal para perfeccionamiento pasivo de aquellas mercancías previamente autorizadas por la autoridad aduanera.
-No podrán acogerse al régimen de perfeccionamiento pasivo aquellas mercancías cuya exportación de lugar a un reembolso o a una devolución de los derechos de importación.
+Artículo 510.-Ambito de aplicación (Derogado por el artículo 597 del Reglamento a la Ley General de Aduanas, aprobado mediante decreto ejecutivo N° 44051 del 18 de mayo del 2023)

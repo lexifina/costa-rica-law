@@ -1,2 +1,1 @@
-Artículo 349.—Aceptación y verificación de la declaración aduanera
-Aceptada la declaración aduanera, la aduana indicara si procede ordenar algún acto inmediato de verificación o autorizar el levante de las mercancías, previa comprobación del pago de la obligación tributaria.
+Artículo 349.-Aceptación y verificación de la declaración aduanera (Derogado por el artículo 597 del Reglamento a la Ley General de Aduanas, aprobado mediante decreto ejecutivo N° 44051 del 18 de mayo del 2023)

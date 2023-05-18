@@ -1,2 +1,1 @@
-Artículo 424.—Recepción y clasificación en el Centro de clasificación de Correspondencia.
-Recibidas las sacas postales, en el Centro de Clasificación de Correspondencia, se procederá a su apertura y clasificación con la intervención de funcionario aduanero, quien determinará si el bulto constituye un envío postal sujeto al cumplimiento de las medidas arancelarias y no arancelarias.
+Artículo 424.-Recepción y clasificación en el Centro de clasificación de Correspondencia. (Derogado por el artículo 597 del Reglamento a la Ley General de Aduanas, aprobado mediante decreto ejecutivo N° 44051 del 18 de mayo del 2023)

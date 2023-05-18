@@ -1,3 +1,1 @@
-Artículo 354.—Comunicación de la aduana de control a la aduana de salida
-En caso de destinarse las mercancías a una aduana diferente a la de control, ésta le comunicará a la aduana de salida la autorización de la exportación con los datos de hora de salida del vehículo y de la unidad de transporte y de los marchamos o precintos colocados.
-Sin perjuicio del ejercicio de sus facultades de control y fiscalización, la autoridad aduanera, por medio de la aduana de salida, se limitará a verificar los datos del vehículo, de la unidad de transporte y la identificación de marchamos o precintos colocados.
+Artículo 354.-Comunicación de la aduana de control a la aduana de salida (Derogado por el artículo 597 del Reglamento a la Ley General de Aduanas, aprobado mediante decreto ejecutivo N° 44051 del 18 de mayo del 2023)

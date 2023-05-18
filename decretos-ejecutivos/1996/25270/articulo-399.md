@@ -1,2 +1,1 @@
-Artículo 399.—Realización del reconocimiento físico
-De requerirse el reconocimiento físico de las mercancías, la aduana lo comunicará inmediatamente a la empresa y designara al funcionario encargado de realizarlo. Estando conforme el resultado del reconocimiento físico con la información declarada a la aduana, el funcionario autorizará inmediatamente el ley ante de las mercancías.
+Artículo 399.-Realización del reconocimiento físico (Derogado por el artículo 597 del Reglamento a la Ley General de Aduanas, aprobado mediante decreto ejecutivo N° 44051 del 18 de mayo del 2023)

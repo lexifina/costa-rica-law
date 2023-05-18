@@ -1,2 +1,1 @@
-Artículo 202.-Mercancías objeto de subasta en lotes. Podrán ser subastadas en lotes, mercancías tales como las que sirven para comodidad y adorno del hogar, maquinaria y equipo usado, menaje de casa, equipo de oficina y librería, prendas de vestir y accesorios y otras que establezca la Dirección General de Aduanas mediante resolución de alcance general. La aduana procurará que los lotes combinen mercancías de interés para el público con aquéllas de bajo interés.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 42818 del 19 de enero del 2021)
+Artículo 202.-Mercancías objeto de subasta en lotes. (Derogado por el artículo 597 del Reglamento a la Ley General de Aduanas, aprobado mediante decreto ejecutivo N° 44051 del 18 de mayo del 2023)

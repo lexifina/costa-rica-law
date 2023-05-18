@@ -1,2 +1,1 @@
-Artículo 239.—Representación mediante agente aduanero
-La declaración aduanera presentada por un agente aduanero se presumirá efectuada con consentimiento del consignatario, en el caso de una importación o. del consignante, en caso de una exportación.
+Artículo 239.-Representación mediante agente aduanero (Derogado por el artículo 597 del Reglamento a la Ley General de Aduanas, aprobado mediante decreto ejecutivo N° 44051 del 18 de mayo del 2023)

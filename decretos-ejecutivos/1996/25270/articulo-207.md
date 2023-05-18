@@ -1,5 +1,1 @@
-Artículo 207.-Adjudicación de las mercancías. Se adjudicarán oficialmente las mercancías al primer mejor oferente, es decir, quien haya propuesto la oferta económica más alta y cumplido con todos los requisitos arancelarios y no arancelarios, así como los deberes tributarios y patronales.
-Todo oferente que desee participar en el remate electrónico de las mercancías, deberá cancelar de forma previa una suma equivalente al veinticinco por ciento (25%) del precio base de éstas, en la cuenta que la Administración disponga al efecto.
-En caso que el primer mejor oferente incumpla alguna de sus obligaciones, se seleccionará al segundo o tercer mejor oferente, según cumpla con lo señalado en los párrafos anteriores.
-Una vez concluido el remate se revelará la identidad de los oferentes y adjudicatario.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 42818 del 19 de enero del 2021)
+Artículo 207.-Adjudicación de las mercancías. (Derogado por el artículo 597 del Reglamento a la Ley General de Aduanas, aprobado mediante decreto ejecutivo N° 44051 del 18 de mayo del 2023)

@@ -1,4 +1,2 @@
-Artículo 517 ter.—Cancelación del régimen. El régimen se cancelará por las causas siguientes:
-a. Reimportación o cambio al régimen de exportación definitiva, dentro del plazo establecido.
-b. Pérdida o destrucción de las mercancías por caso fortuito o fuerza mayor, debidamente comprobados ante la autoridad aduanera.
+Artículo 517 ter.-Cancelación del régimen. (Derogado por el artículo 597 del Reglamento a la Ley General de Aduanas, aprobado mediante decreto ejecutivo N° 44051 del 18 de mayo del 2023)
 (Así adicionado por el artículo 4° del decreto ejecutivo N° 31667 de 5 de marzo de 2004)

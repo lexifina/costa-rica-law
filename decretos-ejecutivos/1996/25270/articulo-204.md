@@ -1,2 +1,1 @@
-Artículo 204.-Ofertas en el remate electrónico. Todos los oferentes podrán formular un número ilimitado de ofertas en tiempo real, las cuales serán consideradas válidas y comprometen al oferente a su correspondiente pago cuando resulte ser adjudicatario. El medio electrónico publicará en tiempo real el monto de la última oferta recibida y el monto mínimo de aumento para ofertar. Únicamente se adjudicarán las mercancías si el monto de la oferta final es igual o superior al precio base.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 42818 del 19 de enero del 2021)
+Artículo 204.-Ofertas en el remate electrónico. (Derogado por el artículo 597 del Reglamento a la Ley General de Aduanas, aprobado mediante decreto ejecutivo N° 44051 del 18 de mayo del 2023)

@@ -1,4 +1,2 @@
-Artículo 540.—Retiro de las Mercancías mediante garantía. El supuesto para el levante de las mercancías mediante la rendición de una garantía establecido en los artículos 13 del Acuerdo relativo a la aplicación del artículo VII del Acuerdo General sobre Aranceles Aduaneros y Comercio de 1994 y 260 de la Ley General de Aduanas, se regulará por la normativa aplicable a las garantías contenida en la Ley General de Aduanas y su Reglamento.
-La garantía se deberá rendir sobre el monto provisional, que determine la Aduana con base en datos objetivos y cuantificables por ella registrados.
-En caso de que exista más de un supuesto para el levante de la mercancía, se deberá rendir una sola garantía suficiente para cubrir la parte de la obligación tributaria en discusión, debiendo cancelarse el monto correspondiente a la parte no discutida.
+Artículo 540.-Retiro de las Mercancías mediante garantía. (Derogado por el artículo 597 del Reglamento a la Ley General de Aduanas, aprobado mediante decreto ejecutivo N° 44051 del 18 de mayo del 2023)
 (Así adicionado por el artículo 28 del decreto ejecutivo N° 28976 de 27 de setiembre del 2000)

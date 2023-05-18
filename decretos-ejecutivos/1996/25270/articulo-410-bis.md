@@ -1,4 +1,2 @@
-Artículo 410 bis.—Trámite simplificado. Las mercancías clasificadas en la categoría c) podrán ser despachadas mediante un DUA simplificado o por el consignatario de las mismas mediante el trámite de oficio.
-No podrán ser tramitadas mediante el DUA simplificado, las mercancías clasificadas en las categorías b) y d) y mercancías identificadas como pequeños envíos sin carácter comercial y las mercancías sujetas a regulaciones no arancelarias, como permisos, certificados, autorizaciones, exoneraciones u otros, o bien por restricciones arancelarias, como aplicación de tratados preferenciales, contingentes, salvaguardas, derechos compensatorios u otros.
+Artículo 410 bis.-Trámite simplificado. (Derogado por el artículo 597 del Reglamento a la Ley General de Aduanas, aprobado mediante decreto ejecutivo N° 44051 del 18 de mayo del 2023)
 (Así adicionado por el artículo 4° del decreto ejecutivo N° 31667 de 5 de marzo de 2004)
-(Así reformado por el artículo 3° del decreto ejecutivo N° 32935 del 8 de febrero del 2006)

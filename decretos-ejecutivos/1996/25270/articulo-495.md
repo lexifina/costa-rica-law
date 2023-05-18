@@ -1,3 +1,1 @@
-Artículo 495.—Reconocimiento de las mercancías
-Aceptada la declaración, la aduana realizará el reconocimiento de las mercancías en las condiciones establecidas para el régimen de exportación definitiva. El reconocimiento se podrá efectuar en la planta procesadora o industrial donde se efectúe la carga y embalaje de las mercancías o el lugar designado por la aduana de salida de las mercancías.
-Encontrándose conforme la declaración con las mercancías presentadas a despacho, se autorizará su salida y se procederá al registro de la operación para los efectos correspondientes.
+Artículo 495.-Reconocimiento de las mercancías (Derogado por el artículo 597 del Reglamento a la Ley General de Aduanas, aprobado mediante decreto ejecutivo N° 44051 del 18 de mayo del 2023)

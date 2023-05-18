@@ -1,2 +1,1 @@
-Artículo 452.—Importación temporal de naves o aeronaves de transporte colectivo.
-Las naves o aeronaves dedicadas al transporte colectivo de turismo recreativo podrán permanecer bajo el régimen de importación temporal, hasta por el plazo de seis meses el cual podrá ser prorrogado siempre que no exceda del plazo de un año.
+Artículo 452.-Importación temporal de naves o aeronaves de transporte colectivo. (Derogado por el artículo 597 del Reglamento a la Ley General de Aduanas, aprobado mediante decreto ejecutivo N° 44051 del 18 de mayo del 2023)

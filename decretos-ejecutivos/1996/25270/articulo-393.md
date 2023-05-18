@@ -1,4 +1,3 @@
 SECCIÓN V
 Despacho domiciliario industrial
-Artículo 393.—Objeto de la modalidad
-Las empresas autorizadas bajo la modalidad de despacho domiciliario industrial recibirán en sus instalaciones habilitadas, los vehículos y unidades de transporte que contengan mercancías consignadas a estas empresas.
+Artículo 393.-Objeto de la modalidad (Derogado por el artículo 597 del Reglamento a la Ley General de Aduanas, aprobado mediante decreto ejecutivo N° 44051 del 18 de mayo del 2023)

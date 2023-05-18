@@ -1,2 +1,1 @@
-Artículo 379.—Cumplimiento de requisitos a la importación. La presentación de los permisos correspondientes de importación podrá efectuarse con posterioridad al ingreso de las mercancías. Sin embargo, tratándose de alimentos o medicamentos y de todas aquellas mercancías sujetas a condiciones sanitarias. El Servicio coordinará con las autoridades competentes para que de forma más expeditas se realicen los controles pertinentes previo a autorizar la salida de las mercancías.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 31667 de 5 de marzo de 2004)
+Artículo 379.-Cumplimiento de requisitos a la importación. (Derogado por el artículo 597 del Reglamento a la Ley General de Aduanas, aprobado mediante decreto ejecutivo N° 44051 del 18 de mayo del 2023)

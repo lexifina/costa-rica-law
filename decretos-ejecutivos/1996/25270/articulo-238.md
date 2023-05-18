@@ -1,3 +1,1 @@
-Artículo 238.—Tramitación de la declaración aduanera y otras solicitudes y gestiones. Tendrán prioridad, los despachos de mercancías perecederas o de fácil descomposición, los envíos urgentes en razón de su naturaleza o por responder a una necesidad debidamente justificada, los envíos de socorro y aquellos que expresamente autorice la Dirección General, mediante disposiciones de alcance general.
-La autoridad aduanera deberá instar el inicio de los procedimientos disciplinarios correspondientes cuando se produjeren atrasos injustificados en la tramitación de las declaraciones aduaneras, solicitudes y gestiones.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 31667 de 5 de marzo de 2004)
+Artículo 238.-Tramitación de la declaración aduanera y otras solicitudes y gestiones. (Derogado por el artículo 597 del Reglamento a la Ley General de Aduanas, aprobado mediante decreto ejecutivo N° 44051 del 18 de mayo del 2023)

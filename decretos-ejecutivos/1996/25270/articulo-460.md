@@ -1,5 +1,1 @@
-Artículo 460.—Categoría estatal. La aduana autorizará la permanencia temporal de las mercancías de la categoría estatal hasta por un periodo de seis meses, prorrogable por un período igual hasta completar un año.
-Las importaciones temporales contempladas en leyes especiales o contratos administrativos, se autorizarán en las condiciones y por el plazo en ellas establecidas.
-Se considerará incluida en esta categoría la importación temporal de máquinas, equipos, aparatos, herramientas e instrumentos que serán utilizados en la ejecución de obras o prestación de servicios públicos que sean introducidas directamente por los contratistas. Las importaciones de las mercancías a las que se refiere este párrafo, se autorizarán en las condiciones y por el plazo establecido en el contrato.
-Se considerará también en esta categoría la importación temporal de mercancías para atender situaciones originadas por catástrofes o fenómenos naturales, incluyendo equipo y material médico quirúrgico y de laboratorio para actividades sin fines de lucro.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 31667 de 5 de marzo de 2004)
+Artículo 460.-Categoría estatal. (Derogado por el artículo 597 del Reglamento a la Ley General de Aduanas, aprobado mediante decreto ejecutivo N° 44051 del 18 de mayo del 2023)

@@ -1,2 +1,1 @@
-Artículo 136.—Recepción de mercancías, vehículos y unidades de transporte
-El depositario aduanero deberá tomar las medidas necesarias para que las mercancías, vehículos y unidades de transporte puedan permanecer en las áreas habilitadas hasta que la aduana autorice su descarga.
+Artículo 136.-Recepción de mercancías, vehículos y unidades de transporte (Derogado por el artículo 597 del Reglamento a la Ley General de Aduanas, aprobado mediante decreto ejecutivo N° 44051 del 18 de mayo del 2023)

@@ -1,2 +1,1 @@
-Artículo 500.—Realización del reconocimiento físico
-De requerirse el reconocimiento físico de las mercancías, la aduana lo comunicará inmediatamente a la empresa y designará al funcionario encargado de realizar el reconocimiento. El funcionario competente se presentará a la empresa y procederá a ordenar la descarga de las mercancías de la unidad de transporte y a su reconocimiento físico. De existir conformidad entre resultado del reconocimiento físico y la información declarada a la aduana, el funcionario autorizará inmediatamente el levante de las mercancías.
+Artículo 500.-Realización del reconocimiento físico (Derogado por el artículo 597 del Reglamento a la Ley General de Aduanas, aprobado mediante decreto ejecutivo N° 44051 del 18 de mayo del 2023)

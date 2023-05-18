@@ -1,4 +1,1 @@
-Artículo 261.—Plazo para que la autoridad aduanera rectifique el manifiesto de carga. Presentadas y aceptadas las justificaciones de los faltantes y sobrantes, la autoridad aduanera a más tardar dentro del día hábil siguiente hará las rectificaciones en el respectivo manifiesto de carga u otro medio que haga sus veces. Justificado fehacientemente el faltante o sobrante de bultos, la autoridad aduanera rectificará en el manifiesto lo siguiente:
-a. Rebajará del correspondiente conocimiento o guía aérea los bultos cuya falta se haya justificado.
-b. Agregará, al manifiesto del medio de transporte en que llegaron al país, una nueva partida de orden comprensivo de los bultos sobrantes, debidamente justificados.
-(Así reformado por el artículo 2° del decreto ejecutivo N° 31667 de 5 de marzo de 2004)
+Artículo 261.-Plazo para que la autoridad aduanera rectifique el manifiesto de carga. (Derogado por el artículo 597 del Reglamento a la Ley General de Aduanas, aprobado mediante decreto ejecutivo N° 44051 del 18 de mayo del 2023)

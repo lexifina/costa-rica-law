@@ -1,2 +1,1 @@
-Artículo 288.—Garantía
-La operación de transbordo podrá estar sujeta a rendición de garantía, según determine el gerente de la aduana, tomando en consideración la naturaleza y la carga tributaria de las mercancías.
+Artículo 288.-Garantía (Derogado por el artículo 597 del Reglamento a la Ley General de Aduanas, aprobado mediante decreto ejecutivo N° 44051 del 18 de mayo del 2023)

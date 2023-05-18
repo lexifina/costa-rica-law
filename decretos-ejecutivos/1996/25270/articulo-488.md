@@ -1,3 +1,1 @@
-Artículo 488.—Procedimiento ante la aduana
-El procedimiento de despacho de las mercancías reimportadas se efectuará de acuerdo con los procedimientos establecidos para el régimen de importación definitiva.
-(Así reformado por el artículo 3° del decreto ejecutivo N° 33915 del 30 de enero de 2007)
+Artículo 488.-Procedimiento ante la aduana (Derogado por el artículo 597 del Reglamento a la Ley General de Aduanas, aprobado mediante decreto ejecutivo N° 44051 del 18 de mayo del 2023)

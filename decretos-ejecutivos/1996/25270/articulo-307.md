@@ -1,2 +1,1 @@
-Artículo 307.—Ingreso de mercancías en libre circulación
-Las materias y productos en libre circulación, que se utilizaren en el régimen de reempaque y distribución, deberán ser declarados a su ingreso, mediante los formatos establecidos por la Dirección General.
+Artículo 307.-Ingreso de mercancías en libre circulación (Derogado por el artículo 597 del Reglamento a la Ley General de Aduanas, aprobado mediante decreto ejecutivo N° 44051 del 18 de mayo del 2023)

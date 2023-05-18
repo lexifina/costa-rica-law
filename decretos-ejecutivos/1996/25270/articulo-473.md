@@ -1,3 +1,1 @@
-Artículo 473.—Garantía
-La garantía que establece el inciso h) del artículo 172 de la Ley será igual al monto promedio mensual del valor de las mercancías que hubieren sido depositadas en las bodegas o locales autorizados durante el año calendario anterior. Si la empresa responsable de la bodega o local no hubiere funcionado como tal durante los últimos seis meses del año calendario anterior la garantía se calculará con base en el valor promedio mensual proyectado para el año en que regirá la garantía.
-La garantía deberá cubrir el plazo comprendido entre el primero de enero al treinta y uno de diciembre.
+Artículo 473.-Garantía (Derogado por el artículo 597 del Reglamento a la Ley General de Aduanas, aprobado mediante decreto ejecutivo N° 44051 del 18 de mayo del 2023)

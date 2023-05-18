@@ -1,3 +1,1 @@
-Artículo 341.—Declaración aduanera y documentos adjuntos. La declaración aduanera que ampare las mercancías sustituidas se tramitará de conformidad con los procedimientos establecidos para el régimen de importación definitiva, debiendo sustentarse en el acto administrativo que autorizó la sustitución y copia certificada o medio autorizado por la Dirección General de la declaración de exportación respectiva.
-En todos los casos las mercancías deberán ser objeto del reconocimiento físico por parte de la aduana.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 31667 de 5 de marzo de 2004)
+Artículo 341.-Declaración aduanera y documentos adjuntos. (Derogado por el artículo 597 del Reglamento a la Ley General de Aduanas, aprobado mediante decreto ejecutivo N° 44051 del 18 de mayo del 2023)

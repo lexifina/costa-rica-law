@@ -1,2 +1,1 @@
-Artículo 459.—Categorías educativa y cultural y científica
-La aduana autorizará la permanencia temporal de las mercancías de las categorías educativa y cultural, y científica hasta por un periodo de tres meses, prorrogables en tres períodos iguales hasta completar un año.
+Artículo 459.-Categorías educativa y cultural y científica (Derogado por el artículo 597 del Reglamento a la Ley General de Aduanas, aprobado mediante decreto ejecutivo N° 44051 del 18 de mayo del 2023)

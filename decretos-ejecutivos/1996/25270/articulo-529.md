@@ -1,2 +1,1 @@
-Artículo 529.—Prueba testimonial
-La prueba testimonial y la evacuación de prueba pericial, se realizará de conformidad con las reglas de citación establecidos en la Ley General de la Administración Pública
+Artículo 529.-Prueba testimonial (Derogado por el artículo 597 del Reglamento a la Ley General de Aduanas, aprobado mediante decreto ejecutivo N° 44051 del 18 de mayo del 2023)

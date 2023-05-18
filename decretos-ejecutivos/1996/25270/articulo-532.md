@@ -1,2 +1,1 @@
-Artículo 532.—Plazo para dictar el acto final
-Terminada la audiencia regulada en el artículo anterior, el asunto quedará listo para dictar el acto final, lo cual deberá hacer el órgano competente dentro del plazo de 10 días hábiles.
+Artículo 532.-Plazo para dictar el acto final (Derogado por el artículo 597 del Reglamento a la Ley General de Aduanas, aprobado mediante decreto ejecutivo N° 44051 del 18 de mayo del 2023)

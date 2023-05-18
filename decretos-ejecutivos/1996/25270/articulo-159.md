@@ -1,10 +1,1 @@
-Artículo 159.—Requisitos adicionales
-Para iniciar operaciones, el responsable del estacionamiento transitorio deberá cumplir, además, con los siguientes requisitos:
-a. Las instalaciones deben encontrarse ubicadas en un radio de quince kilómetros de la Aduana de ingreso.
-(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 33915 del 30 de enero de 2007)
-b. Contar con los sistemas informáticos necesarios para el registro de los movimientos y la transmisión electrónica a la aduana de control.
-c. Contar con los mecanismos de seguridad que determine la Dirección General, para la permanencia de las unidades de transporte y contenedores.
-d. El área de estacionamiento debe estar rodeada con una malla de por lo menos 2.44 metros de altura.
-e. Rendir una garantía por el monto que determine la Dirección General, sobre el volumen de sus operaciones, la cual no podrá superar la suma de veinticinco mil pesos centroamericanos.
-f. Aquellos estacionamientos transitorios que mantengan unidades de transporte vacías o con mercancías de exportación, las deberán ubicar en áreas destinadas a cada uno de esos propósitos. Estas áreas deberán estar debidamente identificadas o rotuladas.
-(Así adicionado el inciso anterior por el artículo 4° del decreto ejecutivo N° 31667 de 5 de marzo de 2004)
+Artículo 159.-Requisitos adicionales (Derogado por el artículo 597 del Reglamento a la Ley General de Aduanas, aprobado mediante decreto ejecutivo N° 44051 del 18 de mayo del 2023)

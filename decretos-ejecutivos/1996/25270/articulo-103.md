@@ -1,2 +1,1 @@
-Artículo 103.—Actualización de la situación tributaria. Los Auxiliares deberán presentar en el mes de enero de cada año y ante el Departamento de Estadística y Registros de la Dirección de Gestión Técnica, certificación extendida por las autoridades competentes de que se encuentra al día en el pago de sus obligaciones tributarias.
-(Así reformado por el artículo 2° del Decreto Ejecutivo N° 34475 de 4 de abril de 2008).
+Artículo 103.-Actualización de la situación tributaria. (Derogado por el artículo 597 del Reglamento a la Ley General de Aduanas, aprobado mediante decreto ejecutivo N° 44051 del 18 de mayo del 2023)

@@ -1,4 +1,1 @@
-Artículo 321.—Control de pago. En ningún caso la aduana ordenará el levante de las mercancías sin haber cumplido con el proceso de control de pago.
-Control de pago, es el procedimiento mediante el cual se comprueba que el monto de la obligación tributaria aduanera ha sido efectivamente cancelado mediante depósito efectivo en las instituciones bancarias correspondientes o, habiéndose autorizado la rendición de garantía, que ésta haya sido efectivamente otorgada y depositada por el monto correspondiente.
-La Aduana verificará los depósitos por concepto de cancelación de tributos contra la transmisión electrónica de la institución financiera recaudadora. La Dirección General podrá suscribir convenios con esas instituciones respecto a los procedimientos y responsabilidad sobre la información transmitida, de conformidad con la normativa especial que rige la materia.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 31667 de 5 de marzo de 2004)
+Artículo 321.-Control de pago. (Derogado por el artículo 597 del Reglamento a la Ley General de Aduanas, aprobado mediante decreto ejecutivo N° 44051 del 18 de mayo del 2023)

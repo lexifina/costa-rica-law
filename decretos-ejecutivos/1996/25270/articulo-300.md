@@ -1,2 +1,1 @@
-Artículo 300.—Finalización del Régimen de Depósito
-El régimen de depósito fiscal finaliza con la aceptación de una destinación a un nuevo régimen, con la caída en abandono de las mercancías o con su destrucción o pérdida.
+Artículo 300.-Finalización del Régimen de Depósito (Derogado por el artículo 597 del Reglamento a la Ley General de Aduanas, aprobado mediante decreto ejecutivo N° 44051 del 18 de mayo del 2023)

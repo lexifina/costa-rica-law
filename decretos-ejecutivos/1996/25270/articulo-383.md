@@ -1,2 +1,1 @@
-Artículo 383.—Control aduanero. El Servicio Aduanero velará por el cumplimiento de las obligaciones aduaneras para el ingreso, tránsito y la salida de mercancías, bajo esta modalidad con el fin de evitar que al amparo de ella se eludan los controles aduaneros y de comercio exterior.
-(Así reformado por el artículo 2° del decreto ejecutivo N° 31667 de 5 de marzo de 2004)
+Artículo 383.-Control aduanero. (Derogado por el artículo 597 del Reglamento a la Ley General de Aduanas, aprobado mediante decreto ejecutivo N° 44051 del 18 de mayo del 2023)

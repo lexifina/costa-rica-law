@@ -1,2 +1,1 @@
-Artículo 419.—Despacho de envíos generales
-Las mercancías que constituyan envíos generales, en los términos de este Reglamento, se trasladarán a los depósitos fiscales o zonas de operación aduanera autorizadas. No obstante, podrán ser despachadas inmediatamente si se hubiere tramitado su despacho mediante los procedimientos generales de conformidad con el régimen respectivo.
+Artículo 419.-Despacho de envíos generales (Derogado por el artículo 597 del Reglamento a la Ley General de Aduanas, aprobado mediante decreto ejecutivo N° 44051 del 18 de mayo del 2023)
