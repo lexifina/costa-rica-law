@@ -1,0 +1,1 @@
+Artículo 32.-Utilización de medios electrónicos. Queda facultado el Instituto para que una vez se parametrice el sistema electrónico de compras públicas SICOP, el procedimiento sustitutivo de "Compras por Requerimiento", se realice por ese medio electrónico.
