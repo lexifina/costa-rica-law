@@ -1,2 +1,0 @@
-Artículo 28.-Multas: En caso de atraso en la entrega de alguna de las líneas o grupo o parte de ellas, se deberá pagar al Instituto el 2.5% por cada día natural de atraso, del monto total adjudicado en cada línea o grupo o parte de ellas, hasta completar un máximo del 25% del total adjudicado en la línea o el grupo de ellas.
-La suma que corresponda por concepto de aplicación de esta cláusula será rebajada del pago que se le haga al Adjudicatario.
