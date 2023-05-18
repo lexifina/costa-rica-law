@@ -1,0 +1,8 @@
+Artículo 5º-Para que un sujeto privado pueda optar por una subvención, deberá contar con una declaratoria previa de idoneidad para administrar fondos públicos, misma que será emitida por la Alcaldía Municipal y para lo cual deberá aportar:
+a. Solicitud firmada por el representante legal indicando el nombre de la organización y número de cédula jurídica, fines y proyectos que ejecuta la organización, nombre y número de cédula del representante legal, domicilio legal de la organización, domicilio del representante legal, ubicación de las oficinas (en caso de no coincidir con el domicilio legal), teléfono y correo electrónico para atender notificaciones.
+b. La organización deberá estar debidamente inscrita en el registro respectivo, para tal fin se debe aportar la certificación correspondiente, con no más de un mes de emitida, junto con la personería jurídica.
+c. Tener más de dos años de inscrita como persona jurídica.
+d. Los estados financieros del último período contable (balance general, estado de resultados, estado de cambios en el patrimonio y estado de flujo de efectivo), firmados por el contador que los preparó y por el representante legal de la entidad.
+La información aportada será analizada por la Gestión Financiera para emitir una recomendación técnica para el otorgamiento de la precalificación de idoneidad para administrar fondos públicos a la Alcaldía Municipal.
+La Alcaldía procederá a estudiar dicha recomendación y, según su criterio, otorgará la calificación de idoneidad para administrar fondos públicos en favor del sujeto privado que la solicita.
+En caso de que se otorgue la calificación de idoneidad a un sujeto privado esta tendrá una vigencia de tres años naturales a partir de su declaratoria.

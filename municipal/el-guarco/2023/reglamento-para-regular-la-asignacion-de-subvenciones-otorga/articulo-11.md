@@ -1,0 +1,11 @@
+Artículo 11.-El sujeto beneficiario deberá presentar a la Dirección Financiera el informe de liquidación de los recursos otorgados, el cual deberá estar apegado a las metas y objetivos del convenio respectivo, mismo que deberá constar en el expediente respectivo.
+Dicho informe deberá contener al menos lo siguiente:
+1- El detalle de la ejecución del presupuesto del programa o proyecto.
+2- Un detalle de los logros según el cumplimiento de los objetivos planteados en el respectivo plan de trabajo.
+3- Las facturas originales donde se reflejen cada una de las erogaciones.
+4- De presentarse algún evento importante de revelar durante la ejecución del programa o proyecto, se deberá emitir un documento u oficio formal con las aclaraciones u observaciones debidas.
+La Gestión a cargo de la subvención, la Alcaldía y el Concejo Municipal podrán requerir toda la información y documentación que sea necesaria para aclarar o ampliar el informe de liquidación presentado.
+Dicho informe deberá ser presentado dentro del mes calendario siguiente a la finalización del plazo del convenio.
+De no presentarse el informe de liquidación dentro del plazo anterior, la Gestión respectiva hará la advertencia para que el informe sea remitido en el plazo de tres días hábiles. En caso de que aun con la advertencia anterior no se presenta el informe implicará que el funcionario a cargo emita un informe y de conformidad con ello la Alcaldía estará autorizada para que, mediante procedimiento sumario, determine excluir al sujeto beneficiario de la posibilidad de recibir subvenciones o ayudas temporales durante los siguientes cinco años. Sin perjuicio de lo anterior, y en caso de comprobarse la desviación de los recursos a fines distintos a los aprobados en el convenio de subvención, se procederá de conformidad con lo dispuesto en el artículo 7 de la Ley Orgánica de la Contraloría General de la República, sin perjuicio de presentar la denuncia respectiva ante la Fiscalía por la presunta comisión de un hecho delictivo.
+Para solicitar una nueva transferencia, la liquidación financiera deberá estar conforme a derecho.
+La Gestión a cargo del control y seguimiento de la subvención, analizará dicho informe y si está conforme deberá realizar un acta de finalización que deberá consignar en el expediente respectivo para proceder a su archivo.

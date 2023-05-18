@@ -1,0 +1,3 @@
+Artículo 10.-Serán obligaciones del sujeto a quien se otorgue una subvención por parte de la Municipalidad las siguientes:
+. Emplear los recursos para el fin que le fueron concedidos. Para tales efectos la Alcaldía, dependiendo del tipo de ayuda, podrá solicitar la realización de inspecciones y verificaciones del uso de los recursos dados por la Municipalidad, dejando constancia mediante un acta que será incluida en el expediente respectivo.
+. Presentar los informes correspondientes, así como toda la información y documentación sin restricción alguna, para la verificación física y financiera del programa o proyecto, incluyendo a la Contraloría General de la República.

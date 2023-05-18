@@ -1,0 +1,1 @@
+Artículo 7º-Para otorgar la declaratoria de idoneidad, así como la subvención, la Municipalidad se reserva el derecho de aplicar las pruebas que permitan determinar la necesidad real del solicitante, así como su capacidad administrativa y formal para administrar recursos, por lo que queda facultada para solicitar la información que se considere oportuna.

@@ -1,0 +1,1 @@
+Artículo 12.-En caso de existir remanentes una vez finalizado el proyecto para el que se autorizó la subvención, el sujeto beneficiario deberá proceder a la devolución de los montos respectivos, para lo cual la Gestión Financiera indicará al sujeto beneficiario las vías para el reintegro de los montos que forman parte del remanente.
