@@ -1,0 +1,17 @@
+Capítulo IX. Adquisiciones Imprevisibles por Razones Apremiantes o de Emergencia,
+para Atención de Necesidades de Bienes y Servicios de la Red de Servicios de Salud
+(RSS).
+Las adquisiciones reguladas en este Capítulo responden a la categoría de situaciones imprevisibles según lo dispuesto en el artículo 139 inciso k) del Reglamento a la Ley de Contratación Administrativa, que a su vez se dividen en las subcategorías de adquisiciones apremiantes y adquisiciones de emergencia.
+Artículo 41. Parámetros de adquisición.
+Únicamente podrán ser gestionados por esta vía, los trámites para adquisición de medicamentos, instrumental médico quirúrgico, implementos médicos, servicios profesionales o profesionales en el área de la salud; la contratación de exámenes médicos especializados; así como la contratación para la confección y/o compra, revisión y reparación de prótesis, órtesis y similares, equipo ortopédico y artículos especializados para el tratamiento de pacientes, que se deriven de recetas específicas cuyas condiciones y particularidades técnicas sean diferentes en cada ocasión, cuando no sea posible contar con stock o no se pueda programar su compra, y su adquisición sea apremiante o de emergencia, o responda a situaciones imprevisibles de conformidad con lo que indica el Reglamento a la Ley de Contratación Administrativa, y se enmarquen dentro de los siguientes parámetros:
+. Necesidad de abastecimiento inmediato en caso de retraso por causas diversas en los procesos contractuales ordinarios o autorizados por la Contraloría General de la República (Compras por requerimiento).
+. Incumplimiento o cumplimiento defectuoso del contratista antes de iniciar o durante la ejecución de un contrato.
+. En este caso puede ser incumplimiento en los plazos pactados de entrega.
+. Rechazo de mercadería por defectos en control de calidad, con imposibilidad de reponer en forma inmediata.
+. Razones administrativas, epidemiológicas o sanitarias en general, que aumentan de forma transitoria y extraordinaria el consumo proyectado afectando el inventario y su punto de reorden:oicma . www.grupoins.com
+- Inclusión de productos al Código Institucional de Suministros, de conformidad con los protocolos que establecen los servicios de salud, con requerimiento de compra inmediata.
+- Cambios en cuadros de tratamiento que incluyen la necesidad de nuevos insumos (medicamentos o implementos) con requerimiento de suministro en forma expedita en beneficio de los usuarios.
+. Declaratorias de desierto o infructuoso en los procedimientos ordinarios de compra y en aquellos derivados del "Reglamento para la adquisición de medicamentos, implementos médicos para el Instituto Nacional de Seguros denominado "compras por requerimiento".
+. Procedimientos de compra cuya discusión trasciende estrados judiciales cuando se impone una medida cautelar o responden a mandatos dictados por la Sala Constitucional.
+. Flujo atípico en etapa concursal previa a la fase de recepción y apertura de ofertas de un proceso de compra, sea por la interposición de recursos o gestiones que no permitan contar con los insumos médicos necesarios en los plazos requeridos por la Administración.
+. Contratación de profesionales en el área de salud y servicios médicos o la contratación de exámenes médicos especializados, que se requieran cuando la necesidad corresponda a un caso fortuito o fuerza mayor y se deba salvaguardar el derecho a la salud del usuario.

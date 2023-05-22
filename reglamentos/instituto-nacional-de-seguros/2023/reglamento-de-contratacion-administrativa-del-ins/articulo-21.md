@@ -1,0 +1,3 @@
+Artículo 21. Adjudicación compra o venta de un inmueble.
+Para que un órgano inferior a Junta Directiva adjudique la compra o venta de un inmueble, es necesario que esa instancia lo instruya expresamente y haya fijado previamente en cada caso las condiciones de la negociación y que la competencia no sea indelegable.
+Lo anterior de conformidad con los artículos 89, 90, 9l y 92 de la Ley General de la Administración Pública. No obstante lo anterior la Junta Directiva se reserva el derecho de conocer y adjudicar las licitaciones por monto inferior al señalado en este artículo, cuando así lo crea conveniente para los intereses de la Institución.

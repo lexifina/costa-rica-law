@@ -1,0 +1,2 @@
+Artículo 4. Responsabilidad de la Unidad Usuaria.
+Será responsabilidad exclusiva de cada Jefatura de la Unidad Usuaria establecer los mecanismos de control necesarios a efecto de que en cada procedimiento de contratación que solicite, se observen los principios de igualdad de trato y oportunidad y libre competencia para las personas que deseen contratar con la administración, así como el de eficiencia, eficacia, conservación e informalismo que vinculan igualmente a la Administración.

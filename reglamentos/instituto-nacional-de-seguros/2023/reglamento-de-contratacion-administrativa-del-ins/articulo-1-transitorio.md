@@ -1,0 +1,3 @@
+Capítulo XIII. Transitorios
+TRANSITORIO I- Todas las gestiones institucionales correspondientes a los procedimientos de contratación y contratos con orden de inicio y solicitud de contratación aprobada en SICOP al 30 de noviembre del 2022, se gestionarán internamente de conformidad con el Reglamento Interno de Contratación Administrativa del INS, el Reglamento de Contrataciones Exceptuadas del INS contenido en el Manual de Reglamentos Administrativos, así como las Disposiciones Administrativas de las Contrataciones Exceptuadas contenidas en el Manual de Disposiciones Administrativas.
+<span lang=es-419 style='font-size:10.0pt;font-family:"Arial",sans-serif; </body>

@@ -1,0 +1,2 @@
+Artículo 5. Competencia para resolver.
+El Departamento Proveeduría, en lo no previsto en el presente Título y en las disposiciones que la Alta Gerencia emita en el futuro, salvo que la competencia o función sea asignada por norma expresa a otra instancia, como órgano especializado en contratación pública que es, tendrá plena competencia para resolver y tramitar los diferentes asuntos conforme a la Ley de Contratación Administrativa y su Reglamento.

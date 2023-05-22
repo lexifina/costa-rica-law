@@ -1,0 +1,2 @@
+Artículo 25. De los límites por proyecto.
+Cuando se requiera autorización de la Contraloría General de la República para realizar una modificación contractual, el Departamento Proveeduría será el encargado de gestionarla ante ese ente contralor. El acto de modificación no se adoptará hasta contar con el aval respectivo del órgano contralor.
