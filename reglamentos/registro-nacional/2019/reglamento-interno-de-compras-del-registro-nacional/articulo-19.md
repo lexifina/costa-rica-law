@@ -1,1 +1,0 @@
-Artículo 19°-De la orden de inicio de la ejecución contractual. Una vez realizada la formalización contractual, corresponde en forma exclusiva al órgano fiscalizador o administrador del contrato, comunicar formalmente al contratista y al Departamento de Proveeduría, la fecha de inicio de la ejecución contractual, salvo que en el cartel se hubiese establecido dicha fecha.
