@@ -1,0 +1,8 @@
+CIRCULAR N° 98-2023
+ASUNTO: Equiparación de cargas de trabajo del personal del Juzgado de Tránsito de Cartago y Juzgado Contravencional de La Unión.
+A LOS DESPACHOS JUDICIALES DEL PAÍS,
+ABOGADOS, ABOGADAS Y PÚBLICO EN GENERAL
+SE LES HACE SABER QUE:
+Que la Corte Plena en sesión N° 14-2023, celebrada el 27 de marzo de 2023, artículo XXII, aprobó lo siguiente: a) Traslado de competencia territorial de materia de tránsito del cantón de La Unión, al Juzgado Contravencional de La Unión. La Unidad Médico Legal y el Juzgado Penal de La Unión, atenderán lo que corresponda de la materia de tránsito una vez entrada en funcionamiento esta disposición. b) Traslado de competencia territorial del distrito de Río Azul de la materia de faltas, contravenciones y tránsito, al Juzgado Contravencional y al Juzgado de Tránsito de Desamparados según la materia, por un tema de accesibilidad para la persona usuaria de la localidad. c) Ampliar la competencia territorial de la persona juzgadora del Juzgado Contravencional de Cartago, con el fin de que también pueda conocer asuntos del Juzgado Contravencional de La Unión, en caso de que, eventualmente se propongan planes de trabajo para apoyar a ese despacho, ya que su carga de trabajo actual lo permite.
+Lo anterior rige a partir de su publicación en el Boletín Judicial. De conformidad con la circular N° 67-09 emitida por la Secretaría General de la Corte el 22 de junio de 2009, se comunica que en virtud del principio de gratuidad que rige esta materia, la publicación está exenta de todo pago de derechos. Publíquese una sola vez en el Boletín Judicial.
+San José, 27 de abril de 2023.
