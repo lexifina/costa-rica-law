@@ -15,3 +15,4 @@ Reglamento de becas de la Municipalidad de Esparza
 | --- | --- | --- |
 | 1 | 2018-07-24 | la propia norma |
 | 2 | 2021-12-24 | Reglamento municipal 0 (2021-12-24) |
+| 3 | 2023-05-22 | Reglamento municipal 0 (2023-05-22) |
