@@ -1,1 +1,0 @@
-Artículo 4°-Mecanismo para gestionar el acto. Todos los trámites que gestione el Departamento de Proveeduría deberán realizarse a través del sistema de compras autorizado por el Estado para la Administración Central, excepto en aquellos casos así señalados por la Dirección General de Administración de Bienes y Contratación Administrativa del Ministerio de Hacienda.

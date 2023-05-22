@@ -1,1 +1,0 @@
-Artículo 5°-Ámbito de aplicación. El presente Reglamento será de acatamiento obligatorio para las dependencias, funcionarios y Miembros de la Junta Administrativa del Registro Nacional, salvo norma de rango superior que se le llegara a contraponer.
