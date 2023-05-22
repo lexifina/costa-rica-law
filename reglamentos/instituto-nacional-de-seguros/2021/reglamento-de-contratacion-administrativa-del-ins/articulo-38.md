@@ -1,1 +1,0 @@
-Artículo 38.-Comprobación de especificaciones técnicas y calidad del equipo especializado. Es responsabilidad de las unidades usuarias realizar la comprobación de que el equipo recibido se ajusta a las especificaciones técnicas del cartel respectivo, así como realizar las pruebas de calidad sobre el funcionamiento del equipo.

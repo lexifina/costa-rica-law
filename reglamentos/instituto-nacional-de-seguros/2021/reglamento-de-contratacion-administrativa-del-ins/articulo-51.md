@@ -1,7 +1,0 @@
-CAPÍTULO X
-De los procedimientos administrativos
-contra los contratistas
-Artículo 51.-Órgano Director de Proceso. La conducción de los procedimientos administrativos contra los contratistas a fin de aplicar el régimen de sanciones, según establece la Ley de Contratación Administrativa y su Reglamento, corresponderá a un Órgano Director del Proceso integrado por uno o más funcionarios del Departamento de Proveeduría; así como la integración de al menos una persona de la Dirección Jurídica, si la complejidad del caso lo amerita, todos nombrados por la Alta Gerencia.
-La resolución final estará a cargo de la Alta Gerencia.
-Se exceptúan los procesos de ejecución de garantías, aplicación de multas (de así requerirse) y resolución contractual, en los cuales el Departamento de Proveeduría, con base en los elementos probatorios que le sean enviados por la Dependencia ejecutora del contrato, procederá a desarrollar el procedimiento previsto por la Ley de Contratación Administrativa y su Reglamento para esos casos o en su defecto, los que aplique legalmente; emitiendo la resolución final correspondiente.
-Cuando se determine que la sola ejecución de la garantía no cubre el monto total de los daños y perjuicios causados por un contratista, la Dependencia usuaria del bien o servicio procederá a certificar la deuda y remitirla al Departamento de Cobros para que este inicie las gestiones cobratorias administrativas y/o judiciales que correspondan.
