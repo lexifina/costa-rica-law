@@ -1,1 +1,0 @@
-Artículo 99.—Análisis y evaluación. Los funcionarios (as) de la Auditoría Interna deberán basar sus hallazgos, conclusiones, recomendaciones y demás resultados del trabajo en el adecuado análisis y evaluaciones.

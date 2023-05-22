@@ -1,1 +1,0 @@
-Artículo 74.—Suficiencia del alcance. Al valorar la realización de una asesoría o advertencia que requiera de revisión, deberá asegurase que el alcance del trabajo sea suficiente para cumplir con el objetivo que se pretende.

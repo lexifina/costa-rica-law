@@ -1,1 +1,0 @@
-Artículo 58.—Tiempo para plan de mejoras. El Auditor (a) Interno (a) podrá disponer de una sesión semanal de reunión con el personal de la Auditoría para discutir y ejecutar las mejoras que son necesarias, o plantear otra estrategia de seguimiento de acuerdo a la disposición de recursos, a la complejidad del trabajo o a la carga de trabajo.

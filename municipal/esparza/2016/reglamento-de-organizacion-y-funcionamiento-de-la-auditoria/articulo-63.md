@@ -1,3 +1,0 @@
-Artículo 63.—Informe anual de labores. El Auditor (a) Interno (a) deberá informar, al menos, anualmente, al Concejo Municipal sobre la actividad desplegada por la Auditoría Interna en lo referido a propósito y desempeño del Plan de Trabajo. El informe de labores de la Auditoría Interna deberá ser presentado a más tardar el 31 de marzo.
-El informe anual podrá contener asuntos relevantes sobre exposición al riesgo, cuestiones de control, de los procesos de dirección y otros necesarios o requeridos para el buen funcionamiento de la organización.
-A consideración del Auditor (a) Interno (a) podrá incluirse un apartado con el criterio respecto al estado general institucional.

@@ -1,1 +1,0 @@
-Artículo 97.—Procesamiento de información. Los funcionarios (as) de la Auditoría Interna deberán identificar, evaluar y registrar suficiente información de manera que les permita cumplir con los objetivos del trabajo. Esto no implica que deberán revisar el 100% de las operaciones, sino utilizar la razonabilidad.

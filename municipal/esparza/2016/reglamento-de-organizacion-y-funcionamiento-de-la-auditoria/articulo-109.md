@@ -1,1 +1,0 @@
-Artículo 109.—Comunicación verbal. Cuando sea posible, el Auditor (a) Interno (a) deberá disponer la discusión verbal de los resultados con las partes correspondientes (de acuerdo con su criterio) de previo a la comunicación oficial, excepto de los resultados relativos a las relaciones de hechos y otros que la normativa contemple.

@@ -1,1 +1,0 @@
-Artículo 104.—Comunicación sobre los resultados de los servicios preventivos. El Auditor (a) Interno (a) definirá el contenido y la forma de los oficios u otros medios de comunicación sobre los resultados preventivos conforme su naturaleza y criterios pertinentes.

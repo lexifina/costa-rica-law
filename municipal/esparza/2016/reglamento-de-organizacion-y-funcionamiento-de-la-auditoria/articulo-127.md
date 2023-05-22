@@ -1,4 +1,0 @@
-CAPÍTULO DECIMOCUARTO
-Disposiciones finales
-Artículo 127.—Actualización del reglamento. Corresponde al Auditor (a), mantener actualizado el presente Reglamento. Para la debida actualización, el Auditor (a) y el Concejo podrán proponer las modificaciones que estimen necesarias. Esas modificaciones deben ser aprobadas por el Concejo y la Contraloría, según sus competencias. El trámite de elaboración y aprobación de esas modificaciones, se ajustará en forma estricta a lo dispuesto por la Contraloría, en las directrices emitidas, relativas al reglamento de organización y funcionamiento de las auditorías internas.
-El Auditor y la Administración, deben divulgar el Reglamento y sus modificaciones, cumplirlo en lo que les corresponda y velar porque se cumpla en la Municipalidad. El cumplimiento de este Reglamento es obligatorio para el personal de la Auditoría y para el resto de la Administración activa, en lo que les concierna.

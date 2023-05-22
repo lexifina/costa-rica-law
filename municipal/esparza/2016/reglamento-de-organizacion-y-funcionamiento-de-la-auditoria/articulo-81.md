@@ -1,1 +1,0 @@
-Artículo 81.—Asignación de recursos para el trabajo. El funcionario (a) de la Auditoría encargado (a) de un estudio deberá determinar los recursos adecuados para lograr los objetivos del estudio. Los recursos para cada trabajo se deberán asignar con base en la naturaleza y complejidad de cada tarea, así como de las restricciones de tiempo.

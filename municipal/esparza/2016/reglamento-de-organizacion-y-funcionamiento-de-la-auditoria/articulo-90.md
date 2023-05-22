@@ -1,1 +1,0 @@
-Artículo 90.—Fiscalización de objetivos, metas y programas. Los funcionarios (as) de la Auditoría Interna deberán fiscalizar la efectividad de los objetivos, metas, programas y presupuestos de los niveles operativos y de que éstos sean consistentes con la Municipalidad, medibles y de impacto.

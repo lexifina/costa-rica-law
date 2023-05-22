@@ -1,1 +1,0 @@
-Artículo 12.—Objetividad. Los funcionarios (as) de la Auditoría deben tener una actitud imparcial, neutral y evitar conflictos de intereses, que afecten la objetividad individual. En caso que existan éstos últimos, deberán resolverlo de conformidad con los lineamientos establecidos por la Contraloría General de la República.

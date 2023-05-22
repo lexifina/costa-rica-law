@@ -1,1 +1,0 @@
-Artículo 87.—Incorporación del conocimiento sobre riesgo. Los funcionarios (as) de la Auditoría Interna colaborarán con el SEVRI mediante la fiscalización, donde se incluirá el conocimiento del riesgo obtenido en los estudios.

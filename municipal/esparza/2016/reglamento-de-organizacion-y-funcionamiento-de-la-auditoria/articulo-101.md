@@ -1,1 +1,0 @@
-Artículo 101.—Supervisión del trabajo. Los trabajos deben ser adecuadamente supervisados por el Auditor (a) Interno (a), para asegurar el logro de sus objetivos, la calidad del trabajo y el desarrollo profesional del personal.

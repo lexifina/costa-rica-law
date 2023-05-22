@@ -1,1 +1,0 @@
-Artículo 27.—Recursos Humanos de la Auditoría Interna. La Auditoría Interna debe contar con un número determinado de funcionarios que les permita ejercer su actividad con la debida oportunidad, cobertura y disponibilidad.

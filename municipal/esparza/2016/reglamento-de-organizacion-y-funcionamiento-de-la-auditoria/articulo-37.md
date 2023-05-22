@@ -1,1 +1,0 @@
-Artículo 37.—Capacitaciones. En el caso de capacitaciones, seminarios o congresos a que deba asistir el Auditor (a) Interno (a) deberá informarse de previo para el visto bueno al Concejo Municipal. Se exceptúan de cualquier trámite, aquellas capacitaciones seminarios o congresos menores a un día hábil o aquellos que sean convocados por la Contraloría General de la República.

@@ -1,1 +1,0 @@
-Artículo 94.—Incorporación del conocimiento sobre controles. Los funcionarios (as) de la Auditoría Interna coadyuvarán con el SEVRI mediante la incorporación de los conocimientos de los controles obtenidos en los estudios, mediante los productos de los servicios de Auditoría.

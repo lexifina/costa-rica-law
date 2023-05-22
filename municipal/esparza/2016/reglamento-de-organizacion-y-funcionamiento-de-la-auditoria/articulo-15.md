@@ -1,1 +1,0 @@
-Artículo 15.—Educación profesional continúa. Todo el personal de Auditoría debe mantener y perfeccionar sus capacidades y competencias profesionales mediante la participación en programas de educación y capacitación profesional continua.

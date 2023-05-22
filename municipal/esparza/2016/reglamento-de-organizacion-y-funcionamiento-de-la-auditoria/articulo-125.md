@@ -1,1 +1,0 @@
-Artículo 125.—Acto de desestimación o archivo de la denuncia. Una vez aceptada la denuncia y realizada la valoración del caso, esta se podrá desestimar o archivar mediante un acto debidamente motivado donde se acrediten los argumentos valorados para tomar esa decisión.
