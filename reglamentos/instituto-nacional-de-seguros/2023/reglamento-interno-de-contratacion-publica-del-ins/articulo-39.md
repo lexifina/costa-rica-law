@@ -1,0 +1,3 @@
+Artículo 39. Recepción del equipo especializado.
+El Centro Distribución y Logística deberá recibir el equipo en las condiciones que lo entrega el contratista y garantizar su conservación hasta tanto la unidad usuaria no realice las pruebas técnicas de funcionamiento, así como la verificación de que el equipo se ajusta a las condiciones del pliego de condiciones respectivo.
+Por su parte, cuando por razones técnicas o por especificaciones propias del contrato, los activos sean entregados directamente en sitio, de previo la unidad usuaria, deberá solicitar el visto bueno al Centro Distribución y Logística; para que este realice el ingreso en el sistema y el plaqueo correspondiente.
