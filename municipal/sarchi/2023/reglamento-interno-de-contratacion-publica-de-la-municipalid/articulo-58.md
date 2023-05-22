@@ -1,0 +1,2 @@
+Artículo 58.—Emisión de directrices. En lo no contemplado en el presente reglamento o en caso de duda sobre la aplicación del presente reglamento, la Alcaldía podrá emitir las directrices que sean necesarias para regular el sistema de adquisiciones de bienes, servicios y obra pública relacionadas al proceso que es competencia del Comité, directrices que pondrá en conocimiento del Concejo Municipal y de la Junta Directiva del Comité.
+(Así adicionado mediante sesión N° 160 del 22 de mayo del 2023)

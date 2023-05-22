@@ -14,3 +14,4 @@ Reglamento interno de contratación pública de la Municipalidad de Sarchi
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-01-31 | la propia norma |
+| 2 | 2023-05-22 | Reglamento municipal 160 (2023-05-22) |
