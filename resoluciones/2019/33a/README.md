@@ -15,3 +15,4 @@ Resolución general sobre las disposiciones técnicas de los comprobantes electr
 | --- | --- | --- |
 | 1 | 2019-07-01 | la propia norma |
 | 2 | 2019-07-01 | Resolución 37 (2019-07-01) |
+| 3 | 2023-05-22 | Resolución 13 (2023-05-22) |
