@@ -14,3 +14,4 @@ Reglamento de la policía municipal, agente de seguridad y auxiliar de vigilanci
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-07-01 | la propia norma |
+| 2 | 2023-05-22 | Reglamento municipal 21 (2023-05-22) |
