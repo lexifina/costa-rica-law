@@ -1,0 +1,4 @@
+Artículo 6.- Conformación del Comité Licitaciones. El CDL estará integrado por tres miembros propietarios y dos suplentes nombrados por el Gerente General. En el acto de nombramiento deberá indicar quién fungirá como presidente y quién como suplente en el caso de ausencia del presidente.
+La Analista Administrativa fungirá como secretario del CDL y deberá participar en las sesiones de estos comités con voz, pero sin voto.
+El CDL podrá contar con la asesoría de un abogado de la Dirección Jurídica del Banco Nacional de Costa Rica, quien tendrá voz, pero no voto.
+Con el fin de asesorarse, el CDL podrá solicitar los estudios y análisis técnicos y financieros que estimen necesarios; asimismo, podrá solicitar la participación en las sesiones del personal técnico y administrativo que se requiera, quienes tendrán la obligación de emitir sus criterios en forma razonada y responsable como sustento de la decisión correspondiente.
