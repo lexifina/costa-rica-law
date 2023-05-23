@@ -1,2 +1,2 @@
-Artículo 3º—Funciones de las unidades administrativas.
-En línea con las áreas de acción antes mencionadas, la Institución se ha organizado según la estructura organizativa que se muestra en el Anexo de este acuerdo. Dicha estructura está conformada por las siguientes unidades administrativas: Supervisión de Mercados e Intermediarios, Supervisión de Fondos y Emisores, Oferta Pública, Asesoría Jurídica, Gestión Institucional. Las funciones de cada una de estas áreas se encuentran definidas en el Manual general de organización y funciones de la Sugeval.
+Artículo 3. Competencias de cada unidad administrativa de la Sugeval.
+En el ejercicio de sus funciones, se otorga al Departamento de Oferta Pública, la División de Supervisión y el Departamento de Gestión Institucional las competencias para conocer, resolver y emitir los oficios sobre los asuntos que se detallan seguidamente.
