@@ -1,4 +1,5 @@
-Artículo 3º-Naturaleza de la información periódica, divulgación y registro. La información requerida en este acuerdo es de carácter público y se incorpora al Registro Nacional de Valores e Intermediarios, con excepción de los siguientes reportes que son considerados confidenciales:
+Artículo 3º-Naturaleza de la información periódica, divulgación y registro. La información requerida en este acuerdo es de carácter público y se incorpora al Registro Nacional de Valores e Intermediarios para los supervisados de conformidad con la Ley Reguladora del Mercado de Valores y para los demás participantes supervisados se incorporará en la página web de la SUGEVAL, con excepción de los siguientes reportes que son considerados confidenciales:
+(Así reformado el párrafo anterior por el artículo 2° del acuerdo N° SGV-A-278 del 23 de mayo de 2023)
 a. Cuadro resumen operaciones únicas y múltiples. Anexo 4.
 b. Informe anual del Auditor Externo sobre prevención y control de legitimación de capitales y financiamiento al terrorismo.
 c. Reporte de clasificación de riesgo de los clientes Normativa Ley 8204, Anexo 49.
