@@ -1,0 +1,2 @@
+Artículo 30.—Silencio positivo. Corresponderá al Departamento de Licencias y Patentes Municipales resolver sobre el silencio positivo, acudiendo a las reglas del artículo 7 de la Ley Nº 8220, Protección al Ciudadano del Exceso de Requisitos y Trámites Administrativos, de 4 de marzo de 2002, reformada por la Ley Nº 10072 del 18 de noviembre del 2021.
+(Así adicionado mediante sesión N° 160-2023 del 23 de mayo del 2023)
