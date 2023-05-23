@@ -14,3 +14,4 @@ Reglamento de parques y zonas verdes públicos del Cantón de Santa Ana
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-08-19 | la propia norma |
+| 2 | 2023-05-23 | Reglamento municipal 160 (2023-05-23) |

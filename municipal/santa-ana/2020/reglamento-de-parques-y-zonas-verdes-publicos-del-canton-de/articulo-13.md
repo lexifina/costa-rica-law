@@ -1,1 +1,5 @@
-Artículo 13.—Sobre la presencia de mascotas. Las mascotas deben estar provistas de correa y ser conducidas en todo momento por sus responsables. Estos últimos deben evitar que sus mascotas causen molestias a otras personas usuarias y demás animales presentes.
+Artículo 13.-Sobre la presencia de mascotas. Las mascotas únicamente serán permitidas en áreas públicas destinadas a ese uso específico e identificadas como "parques para mascotas" o término similar.
+En todo momento las mascotas deberán ser conducidas por sus responsables y solo podrán mantenerse sueltos en los lugares públicos perfectamente delimitados o dentro del tiempo estipulado para tales efectos cuando se realice alguna actividad específica en los términos previstos en el artículo 47 del Reglamento para la Reproducción y Tenencia Responsable de Animales de Compañía.
+De igual forma, los responsables deben evitar en todo momento que sus mascotas causen molestias a otras personas usuarias y demás animales presentes tomando las medidas necesarias para tales efectos tales como el uso de correa, el uso de bozales o el retiro del animal de dichos espacios.
+Lo anterior sin detrimento de la responsabilidad civil y penal del propietario o encargado, de los daños que pudiera causar el animal, ya sea a las personas o propiedades, muebles e inmuebles.
+(Así reformado en sesión N° 160 del 23 de mayo de 2023)
