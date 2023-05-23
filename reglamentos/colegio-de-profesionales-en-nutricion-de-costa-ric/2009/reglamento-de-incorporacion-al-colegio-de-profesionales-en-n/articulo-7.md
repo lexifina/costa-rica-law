@@ -1,1 +1,0 @@
-Artículo 7º—Fechas de recepción de documentos y de actos de incorporación. La fecha límite de recepción de documentos será hasta treinta días naturales antes de la siguiente incorporación. La Junta Directiva aprobará las fechas de incorporación a celebrarse, según el calendario establecido anualmente.

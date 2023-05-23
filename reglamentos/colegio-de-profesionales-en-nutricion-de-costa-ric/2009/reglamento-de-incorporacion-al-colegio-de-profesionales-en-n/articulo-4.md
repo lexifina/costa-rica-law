@@ -1,1 +1,0 @@
-Artículo 4º—Incorporación ordinaria. Es aquella ceremonia que se realiza dentro de los periodos establecidos y acordados por la Junta Directiva. La Ceremonia se llevará a cabo única y exclusivamente cuando el acuerdo de incorporación del profesional en nutrición conste en firme en las actas de Junta Directiva.
