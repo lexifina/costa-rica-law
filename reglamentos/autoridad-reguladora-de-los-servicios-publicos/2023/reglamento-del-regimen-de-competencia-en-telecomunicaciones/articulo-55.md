@@ -1,0 +1,1 @@
+Artículo 55.- Devolución de la garantía económica. La devolución de la garantía económica para el cumplimiento operará a solicitud del interesado, dentro de los veinte días hábiles siguientes a la fecha en que el Consejo de la SUTEL haya corroborado, de forma definitiva y a satisfacción, el cumplimiento de los compromisos y las condiciones en las que fueron asumidos.

@@ -1,0 +1,1 @@
+Artículo 31.- Potestad discrecional. La decisión de emitir una opinión o recomendación es discrecional del Consejo de la SUTEL. La SUTEL solo estará obligada a emitir una opinión cuando una norma imperativa así lo disponga.

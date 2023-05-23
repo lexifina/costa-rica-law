@@ -1,0 +1,5 @@
+Artículo 64.- Principios y garantías de la función de inspección. En el cumplimiento de la función de inspección, los funcionarios de la SUTEL que participen, así como quienes los asistan, deberán ajustar su conducta, al menos, a los principios y garantías constitucionales siguientes:
+a) Principio de legalidad e interdicción de la arbitrariedad, según los cuales debe la SUTEL actuar dentro del marco normativo que establece sus competencias y que le impide actuar de forma abusiva y antojadiza.
+b) Principio de proporcionalidad en su triple dimensión de necesidad, adecuación y razonabilidad, en la valoración de la relación entre medios y fines en el despliegue del aparato inspector.
+c) Principio de imparcialidad y objetividad, que obliga a la SUTEL a actuar sin ningún sesgo o valoración subjetiva y a actuar de manera equitativa y sin discriminación alguna.
+d) Principio de conducta procedimental, según el cual la SUTEL, los agentes económicos, sus representantes y, en general, todos los partícipes de la inspección realizan sus actuaciones y/o declaraciones guiadas por la colaboración y la buena fe.

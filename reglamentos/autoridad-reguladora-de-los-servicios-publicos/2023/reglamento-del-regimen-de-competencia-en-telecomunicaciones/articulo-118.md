@@ -1,0 +1,10 @@
+Artículo 118.- Ajuste en función de la capacidad de pago del infractor. Luego de determinada la multa aplicable de conformidad con el artículo 105 de este Reglamento Técnico y de haber aplicado el beneficio de reducción de la sanción, en caso de que corresponda, el Consejo de la SUTEL podrá reducir la multa en función de la capacidad de pago del infractor.
+La capacidad de pago del infractor se refiere a la posibilidad de satisfacer la multa a ser impuesta. Esta reducción deberá realizarse de forma excepcional y sobre la base de pruebas objetivas analizadas caso por caso. Así, la multa a imponer podrá ajustarse a un valor que el infractor tenga capacidad de pagar, reduciéndola lo menos posible, únicamente en lo indispensable para evitar comprometer gravemente su estabilidad económica.
+La SUTEL podrá considerar los siguientes factores para determinar la necesidad de aplicar la reducción por capacidad de pago del infractor y, de ser el caso, la magnitud de la multa:
+a) Razón de endeudamiento (Pasivo total/Activo total), que mide el nivel de endeudamiento de una empresa, o de su grupo económico, en relación con sus activos.
+b) Capacidad de endeudamiento del agente económico respecto de su grupo económico, a efectos de afrontar la multa a la que se encontraría obligado a pagar.
+c) Margen neto de ingresos negativos, que mide si el infractor sufrió pérdidas en el año anterior o los años anteriores a la fijación de la multa.
+d) Situación de quiebra o insolvencia declarada por una autoridad competente.
+e) Potencial viabilidad económica del agente económico infractor luego de aplicada la multa a la que se encontraría obligado a pagar.
+Sin perjuicio de los factores antes señalados, la SUTEL podrá tomar en consideración otros elementos objetivos para basar su decisión. Cuando un infractor alegue incapacidad para el pago de la multa, tendrá la carga de la prueba de tal alegación.
+La SUTEL podrá descartar algún ajuste a la multa a ser impuesta cuando evidencie indicios de mala fe del infractor para evadir el pago de la multa.

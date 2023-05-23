@@ -1,0 +1,2 @@
+Artículo 74.- Explicación de la diligencia de inspección. El o los Encargados de la inspección explicarán al colaborador de mayor rango de la Propiedad o establecimiento presente en ese momento o, en su defecto, a la persona encargada del acceso o recepción de dicha propiedad o establecimiento, la naturaleza y el objetivo de esa diligencia, señalando la base legal para dicha potestad de la SUTEL.
+Asimismo, le explicarán las acciones a realizar durante la diligencia de inspección y solicitarán la colaboración de todos los trabajadores y colaboradores presentes.

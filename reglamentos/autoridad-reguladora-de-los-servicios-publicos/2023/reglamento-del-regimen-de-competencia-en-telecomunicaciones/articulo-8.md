@@ -1,0 +1,2 @@
+SECCIÓN II. PRÁCTICASMONOPOLÍSTICAS RELATIVAS
+Artículo 8.- Prácticas monopolísticas relativas. Se considerarán prácticas monopolísticas relativas las establecidas en el artículo 54 de la Ley N.º 8642. Las prácticas monopolísticas relativas serán prohibidas y estarán sujetas a la comprobación de su objeto y sus efectos en el mercado; serán investigadas y sancionadas conforme a lo dispuesto al efecto en las Leyes N.º 8642 y N.º 9736.

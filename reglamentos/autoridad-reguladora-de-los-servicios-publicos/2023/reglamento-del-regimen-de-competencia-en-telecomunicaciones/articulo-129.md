@@ -1,0 +1,4 @@
+Artículo 129.- Asignación de marcador. La DGCO es la encargada de otorgar los marcadores y tendrá en cuenta el orden de prelación en relación con los marcadores ya otorgados al momento de recibir nuevas
+solicitudes y otorgar nuevos marcadores.
+El orden de recepción de las solicitudes de exoneración o reducción de la multa se fijará conforme a su fecha y hora de entrada en el registro interno de la SUTEL, registro en el que constará la recepción de las solicitudes, la expedición de los marcadores y el estado de evaluación de cada solicitud y que se mantendrá confidencial.
+Para respetar el orden cronológico de interesados que hayan presentado solicitudes anteriores, la DGCO no someterá a valoración una nueva solicitud por parte del Consejo de la SUTEL, sin que antes dicho órgano se haya pronunciado sobre una anterior que trate sobre el mismo mercado y/o bienes o servicios objeto de la solicitud.

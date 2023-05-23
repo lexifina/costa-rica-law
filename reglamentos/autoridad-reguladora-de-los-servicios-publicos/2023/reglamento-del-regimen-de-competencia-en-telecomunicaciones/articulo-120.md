@@ -1,0 +1,2 @@
+Artículo 120.- Cobro judicial. Serán cobradas judicialmente las multas impuestas por el Consejo de la SUTEL, conforme a lo regulado en la Ley N° 9736 y Ley N° 8642, que no hayan sido canceladas en sede administrativa, luego de que adquiera firmeza la resolución que impone la multa y de que haya transcurrido el plazo legal para su pago.
+A tales efectos, la SUTEL emitirá el certificado de deuda pendiente, el mismo que constituirá título ejecutivo. La SUTEL planteará el proceso monitorio conforme al Código Procesal Civil, Ley N° 9342 del 03 de febrero de 2016.

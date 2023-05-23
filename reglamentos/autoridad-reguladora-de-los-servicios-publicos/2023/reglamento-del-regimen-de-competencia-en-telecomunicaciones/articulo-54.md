@@ -1,0 +1,2 @@
+Artículo 54.- Sustitución de la garantía económica. La garantía económica de cumplimiento podrá ser sustituida en cualquier momento, a solicitud del agente económico y previa aceptación del Consejo de la SUTEL, siempre que con ello no desmejore los términos de la garantía original.
+El Consejo de la SUTEL, podrá ordenar la sustitución de garantías que presenten riesgos financieros de no pago, como, por ejemplo, cuando su emisor está intervenido.

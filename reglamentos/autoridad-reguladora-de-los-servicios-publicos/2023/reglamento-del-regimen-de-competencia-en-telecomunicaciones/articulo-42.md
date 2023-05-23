@@ -1,0 +1,3 @@
+Artículo 42.- Publicación y difusión. La SUTEL mantendrá un repositorio público con las versiones no confidenciales de todas las actividades de abogacía realizadas, el cual estará disponible en su sitio web u otra plataforma de libre acceso.
+En el caso de las opiniones y recomendaciones emitidas, se deberá publicar también la respuesta de la entidad pública, en caso de que se aparte del criterio de la SUTEL.
+Asimismo, la SUTEL difundirá a través de su sitio web u otra plataforma de libre acceso toda la información pública en su posesión, como las resoluciones firmes y las que eventualmente se emitan en sede judicial, notas de prensa, comunicados y cualquier material educativo que ayude a promover la competencia.

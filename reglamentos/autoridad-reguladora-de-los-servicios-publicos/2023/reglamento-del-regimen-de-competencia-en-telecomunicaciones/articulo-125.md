@@ -1,0 +1,3 @@
+Artículo 125.- Condiciones para la obtención de la reducción de la multa.. Sin perjuicio de los requisitos que debe cumplir todo solicitante, el Consejo de la SUTEL podrá otorgar una reducción de la multa a aquellos agentes económicos o personas físicas que:
+a) Presenten una solicitud para acogerse al programa después del primer solicitante que haya cumplido los requisitos para la exoneración total; y,
+b) Aporten elementos de prueba veraz y desconocidos por la SUTEL y que, ya sea por su naturaleza o por su nivel de detalle, le permitan aumentar su capacidad para fundamentar la solicitud de una inspección o comprobar una infracción en relación con la comisión de una práctica monopolística absoluta.

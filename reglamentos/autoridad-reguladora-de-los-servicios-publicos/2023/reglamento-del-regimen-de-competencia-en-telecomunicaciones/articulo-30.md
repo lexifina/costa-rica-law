@@ -1,0 +1,18 @@
+SECCIÓN II. ACTIVIDADES DE ABOGACÍA DE LA COMPETENCIA
+Artículo 30.- Contenido de la opinión o recomendación. El Jefe de Instrucción y Promoción y Abogacía de la DGCO elaborará el proyecto de opinión o recomendación, el cual será sometido a evaluación y aprobación por parte del Consejo de la SUTEL.
+Dependiendo de los términos de la opinión, de ser el caso, de la información disponible y los recursos de la SUTEL, el proyecto de opinión o recomendación podrá tener el siguiente contenido:
+a) Antecedentes: La situación que motiva el proceso decisorio y el estado actual de dicho proceso, identificando de ser el caso, a las entidades públicas y las normas o proyectos normativos, carteles de licitación y demás actos administrativos involucrados en el proceso decisorio.
+b) Objetivo: La identificación de cuál es el interés público que motivaría el proceso decisorio. Normalmente este objetivo se encuentra declarado por la propia entidad pública que inicia el proceso decisorio y solicita la emisión de una opinión o recomendación.
+c) Mercado: Una descripción del mercado o mercados afectados con base en la información que posea la SUTEL o a la que haya podido tener acceso.
+d) Efectos: Un análisis de los posibles efectos sobre la competencia que tendría la norma o acto objeto de análisis, así como su implementación, pudiendo tomar en cuenta en particular las siguientes consideraciones:
+i) Si puede tener por efecto limitar el número o variedad de competidores en los mercados, tomando en cuenta la posible imposición de nuevos requisitos, licencias, autorizaciones o exclusividades para competir en el mercado.
+ii) Si permitiría el ingreso de nuevos competidores al mercado, por la eliminación o reducción de exclusividades, requisitos, licencias o autorizaciones para competir en el mercado.
+iii) Si puede tener por efecto afectar la capacidad o incentivos de las empresas para competir, tomando en cuenta posibles nuevos costos de entrada, salida o mantenimiento en el mercado, o nuevas reglas sobre la producción y configuración de su oferta comercial, canales comerciales o de publicidad o la dimensión de sus precios, ingresos y rentas.
+iv) Si puede tener por efecto favorecer, permitir o estimular la adopción de conductas anticompetitivas de los competidores en el mercado o facilitarlas.
+v) Si puede tener por efecto excluir o desplazar la aplicación de las normas de libre competencia a un determinado mercado, situación o conducta.
+vi) Si la norma o acto puede tener por efecto afectar las potestades de la SUTEL.
+vii) Si la norma o acto puede tener por efecto limitar la capacidad de elección de los consumidores entre las ofertas existentes o potenciales en el mercado
+viii) Si la norma puede tener por efecto limitar la información disponible para los consumidores en los mercados.
+e) Precedentes: Una presentación resumida de las actividades de abogacía de la competencia o de aplicación de las normas de competencia en el marco de un procedimiento especial por parte de la SUTEL, que resulten relevantes por involucrar el mismo o similares mercados, actores o circunstancias análogas, en caso de resultar aplicable.
+f) Alternativas: Una presentación de soluciones alternativas a aquellas incluidas en el proceso decisorio que permitan la consecución del mismo objetivo, con efectos más positivos o menos nocivos para la competencia en los mercados involucrados, de resultar procedente.
+g) Conclusiones y recomendaciones: La posición final de la SUTEL, indicando si esta es favorable, desfavorable, total o parcialmente, cuando la opinión verse sobre una iniciativa, acto, contrato o proyecto concretos.

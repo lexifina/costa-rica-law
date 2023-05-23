@@ -1,0 +1,3 @@
+Artículo 59.- Monitoreo de la implementación de los compromisos. La SUTEL deberá monitorear periódicamente la observación e implementación de los compromisos aceptados en la resolución de terminación anticipada del procedimiento especial. A efectos de realizar este monitoreo, se podrá requerir reportes periódicos de cumplimiento a los agentes económicos solicitantes, así como información a terceros interesados y entidades públicas.
+La SUTEL también podrá hacer visitas de constatación u otras diligencias de verificación material del cumplimiento de los compromisos aceptados.
+El monitoreo se mantendrá hasta que se dé cumplimiento efectivo a todos los compromisos dispuestos en la resolución de terminación anticipada emitida por el Consejo de la SUTEL.

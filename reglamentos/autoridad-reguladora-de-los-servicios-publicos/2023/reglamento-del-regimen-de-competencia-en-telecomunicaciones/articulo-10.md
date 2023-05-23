@@ -1,0 +1,6 @@
+Artículo 10.- Negativa de trato. Para efectos del inciso b) del artículo 54 de la Ley N.º 8642, se configura esta práctica con la acción unilateral de rehusarse a vender, comercializar o proporcionar a operadores o proveedores, servicios de telecomunicaciones disponibles, normalmente ofrecidos o adquiridos de terceros, sin que exista una justificación técnica o económica razonable; o bien, con la obstaculización del acceso mediante el ofrecimiento de precios o condiciones no razonables y la dilación de los procesos de acceso como un mecanismo para impedir el ingreso o la expansión de un competidor en el mercado.
+La SUTEL considerará que el control de estas prácticas es prioritario cuando concurran todas las siguientes circunstancias acumulativas:
+a) La denegación se refiera a un producto o servicio objetivamente necesario para poder competir con eficacia en un mercado descendente.
+b) Sea probable que la denegación dé lugar a la eliminación de la competencia efectiva en el mercado descendente.
+c) Sea probable que la denegación redunde en perjuicio de los consumidores.
+Para las situaciones que se presenten respecto de la interconexión y el acceso, se estará a lo dispuesto al respecto en la Ley N.º 8642 y el reglamento sobre esa materia, sin perjuicio de que dichas situaciones concurrentemente puedan configurar la práctica prevista en este artículo.

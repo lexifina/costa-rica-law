@@ -1,0 +1,1 @@
+Artículo 75.- Asesoría legal. Los sujetos de una diligencia de inspección podrán contar con la asesoría de un abogado; sin embargo, su presencia no es indispensable para el inicio ni desarrollo de la diligencia, ni es motivo para retrasar el inicio de la diligencia.

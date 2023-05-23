@@ -1,0 +1,8 @@
+Artículo 157.- Entrada en vigor. Este reglamento entrará en vigor a partir del día de su publicación en el Diario Oficial, La Gaceta. Dado en San José, a los 26 días de abril de dos mil veintitrés. Publíquese.
+III. Derogar el "Reglamento del Régimen de Competencia en Telecomunicaciones", publicado en el Alcance N° 40 a La Gaceta N° 201 del 17 de octubre de 2008.
+IV. Instruir al Consejo de la Superintendencia de Telecomunicaciones para que, proceda a responder a las posiciones planteadas en la audiencia pública celebrada el 24 de noviembre de 2022 al ser las 17:15 horas por el señor Luis Diego Abarca Fernández, en representación del Instituto Costarricense de Electricidad (ICE), según lo señalado en el oficio 10746- SUTEL-OTC-2022 del 07 de diciembre del 2022 de la Dirección General de Competencia de la SUTEL, y agradecer la valiosa participación en este proceso.
+V. Instruir al Consejo de la Superintendencia de Telecomunicaciones, para que proceda a notificar a los participantes de la audiencia señalados en el por tanto anterior las respuestas a las posiciones planteadas según el informe elaborado por la Dirección General de Competencia de la SUTEL mediante el oficio 10746-SUTEL-OTC-2022, así como la presente resolución.
+VI. Instruir al Consejo de la Superintendencia de Telecomunicaciones para que proceda a realizar la respectiva publicación en el diario oficial La Gaceta del "Reglamento del Régimen de Competencia en Telecomunicaciones".
+VII. Comunicar al Consejo de la Sutel la presente resolución para lo que corresponda.
+PUBLÍQUESE, NOTIFÍQUESE Y COMUNÍQUESE
+<span style='font-size: </body>

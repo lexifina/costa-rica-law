@@ -1,0 +1,1 @@
+Artículo 68.- Preparación de la solicitud de inspección. El Encargado de la inspección, elaborará la propuesta de solicitud de inspección, en los términos del artículo 83 de la Ley N° 9736, la cual será remitirá al Consejo de la SUTEL por el Director General de Competencia, el cual, de aceptarla, la presentará ante el Juzgado Contencioso Administrativo y Civil de Hacienda.

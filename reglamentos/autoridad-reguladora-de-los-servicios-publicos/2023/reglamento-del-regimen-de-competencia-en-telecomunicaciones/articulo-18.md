@@ -1,0 +1,4 @@
+Artículo 18.- Estrechamiento de márgenes. Para efectos del inciso j) del artículo 54 de la Ley N.º 8642, se configura esta práctica cuando se produce un diferencia negativa o insuficiente entre el precio que un proveedor integrado verticalmente cobra a sus competidores por un insumo y el precio al que vende a sus clientes un bien o servicio para el cual dicho insumo sea esencial, de forma tal que impida a un competidor igualmente eficiente subsistir en el mercado o competir de forma efectiva.
+La SUTEL podrá considerar como indicios de existencia de una práctica de estrechamiento de márgenes, entre otros, los siguientes:
+a) El producto o servicio carece de sustitutos razonables para quien lo requiere aguas abajo.
+b) El precio al que se vende el producto en el mercado aguas abajo debe ser tan bajo que impida a un competidor tan eficiente como el investigado operar con un margen de beneficio razonable.

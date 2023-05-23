@@ -1,0 +1,3 @@
+Artículo 150.- Información de terceros. Cualquier tercero podrá advertir a la SUTEL el incumplimiento de los compromisos, condiciones, resoluciones y/o acuerdos impuestos a los agentes económicos o personas físicas.
+La comunicación de eventuales incumplimientos sobre esta materia será trasladada sin mayor trámite en un plazo máximo de 3 días hábiles por quien la recibiera a lo interno de la SUTEL al Jefe de Investigación y Concentraciones de la DGCO.
+La SUTEL podrá incluir la información reportada por terceros en el expediente del procedimiento sumario o procedimiento especial a los que hace referencia este Reglamento Técnico.

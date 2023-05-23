@@ -1,0 +1,2 @@
+Artículo 70.- Confidencialidad de las gestiones previas a la inspección. La existencia y el contenido de todas las actuaciones, documentación e indagaciones que anteceden o sirven de sustento a la diligencia de inspección, así como de los acuerdos que se tomen en relación con la diligencia de inspección serán confidenciales.
+Todos los funcionarios de la SUTEL deberán resguardar la confidencialidad sobre toda información que conozcan antes, durante y después de la diligencia, de conformidad con el artículo 84 de la Ley N° 9736.

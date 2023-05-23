@@ -1,0 +1,1 @@
+Artículo 88.- Notificación tardía. Se entiende como notificación tardía a aquella operación de concentración que, debiendo ser notificada por cumplir los presupuestos de los artículos 89 de la Ley N° 9736 y 56 de la Ley N° 8642, respectivamente, fuera presentada para evaluación de autorización ante la SUTEL de manera posterior a su ejecución.

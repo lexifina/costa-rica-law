@@ -1,0 +1,27 @@
+SECCIÓN II. PROCEDIMIENTO DE NOTIFICACIÓN PREVIA DE UNA
+OPERACIÓN DE CONCENTRACIÓN
+Artículo 91.- Contenido de la notificación previa de concentraciones. La notificación previa de concentración deberá cumplir con los requisitos establecidos en el artículo 92 de la Ley N° 9736, conteniendo como mínimo:
+a) Descripción detallada de la concentración: resumen de la concentración, especificando al menos los agentes económicos involucrados, el tipo de transacción, los sectores de actividad de las partes y sus empresas relacionadas, los mercados en los que la concentración tendrá efectos, identificación expresa de los mercados en los que las actividades de las partes se superponen o se relacionan verticalmente, la forma y los plazos proyectados para ejecutar la transacción y los motivos estratégicos y económicos de la concentración, para lo cual se deberá:
+i) Indicar la denominación social o el nombre de persona física de los agentes económicos involucrados.
+ii) Detallar el tipo de transacción y exponer la forma y los plazos proyectados para ejecutar la transacción, mediante una descripción de esta. Se debe aportar copia del proyecto de acto jurídico o acuerdos de asamblea que lo respalden.
+iii)Indicar la denominación social o el nombre de persona física de las empresas relacionadas de los agentes económicos involucrados y describir el tipo de relación que media entre las empresas relacionadas y los agentes económicos involucrados.
+iv)Desarrollar los sectores de actividad para cada uno de los agentes económicos involucrados, así como de sus empresas relacionadas.
+v) Indicar los mercados en los que la concentración tendrá efectos, así como los mercados en los que las actividades de los agentes económicos involucrados o de sus empresas relacionadas se superponen o se relacionan verticalmente.
+vi)Exteriorizar los motivos estratégicos y económicos de la concentración mediante una justificación que contenga los objetivos de negocios que se pretenden
+alcanzar con la concentración.
+b) Identificación de los agentes económicos involucrados: individualización completa de los agentes económicos que participan en la concentración, así como de las personas físicas o jurídicas que pertenezcan a su mismo grupo económico y que realicen actividades comerciales o que tengan efectos en Costa Rica, para lo cual deberá:
+i) En el caso de personas jurídicas, aportar la personería jurídica.
+ii) En el caso de personas físicas, señalar el nombre completo y calidades legales (estado civil, profesión u oficio, actividad comercial, lugar de domicilio, número de documento de identificación) y aportar copia de la cédula de identidad.
+c) Estructura del capital social: descripción de la estructura del capital social de las empresas involucradas y aquellas que pertenezcan a su mismo grupo económico, identificando las personas que tienen y tendrán el control directo e indirecto, antes y después de la concentración, para lo cual deberá:
+i) Detallar la estructura del capital social antes y después de la transacción, detallando la participación social hasta el nivel de persona física de las empresas involucradas y aquellas que pertenezcan a su mismo grupo económico.
+ii) Identificar las personas que tienen y tendrán el control directo e indirecto, antes y después de la concentración de las empresas involucradas y aquellas que pertenezcan a su mismo grupo económico.
+d) Actividades de los agentes económicos involucrados: naturaleza y descripción de las actividades que realizan los agentes económicos involucrados en la concentración y las demás personas físicas o jurídicas mencionadas en el inciso c) de este artículo, para lo cual deberá:
+i) Describir los productos o servicios ofrecidos por los agentes económicos involucrados en la concentración, con el detalle de sus características, usos y cobertura geográfica.
+ii) Describir los bienes o servicios sustitutos a los que brindan los agentes económicos involucrados en la concentración; indicándose la razón en la que se fundamenta la sustituibilidad en función de sus características, usos, precios y cobertura geográfica.
+iii)Indicar el nombre de las empresas que producen, distribuyen o comercializan los productos o servicios sustitutos en el territorio nacional, junto con sus marcas comerciales.
+e) Mercados afectados: descripción de los mercados afectados por la transacción, sus barreras de entrada, sus principales participantes y sus participaciones de mercado, incluyendo las participaciones de mercado de las partes de la concentración, para lo cual deberá:
+i) Describir los mercados que el notificante considera afectados por la transacción.
+ii) Detallar las barreras de entrada de cada uno de los mercados afectados.
+iii) Indicar razón social o nombre comercial de los participantes en dichos mercados y aportar la estimación de sus participaciones de mercado y la fuente de información para dicha estimación.
+f) Efectos de la concentración: los solicitantes podrán incluir un análisis de los posibles efectos anticompetitivos y procompetitivos de la concentración, si los hubiera. En este último caso, se podrá incluir una propuesta de compromisos para contrarrestarlos.
+g) Solicitudes en otras jurisdicciones: los solicitantes informarán si la operación de concentración se encuentra sujeta a revisión por otras autoridades de competencia extranjera y, de ser el caso, el sentido del pronunciamiento de dichas autoridades y una copia de tales decisiones, si estas ya se hubieran producido.

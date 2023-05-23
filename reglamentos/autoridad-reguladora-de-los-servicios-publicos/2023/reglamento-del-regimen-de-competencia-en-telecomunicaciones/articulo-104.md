@@ -1,0 +1,2 @@
+SECCIÓN II.METODOLOGÍA PARA EL CÁLCULO DE LAMULTA
+Artículo 104.- Determinación de la multa. El Consejo de la SUTEL determinará la multa en el ejercicio de su potestad discrecional atribuida por la Ley N° 9736 y la Ley N° 8642, procurando garantizar el fin disuasorio de la sanción, de manera tal que los administrados cuenten con los incentivos adecuados para cumplir con la ley y aplicando los criterios de ponderación previstos en el artículo 120 de la Ley N° 9736 según resulten aplicables y respetando los topes máximos establecidos en el artículo 119 de la Ley N° 9736.

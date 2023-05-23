@@ -1,0 +1,4 @@
+Artículo 41.- Entrevistas y requerimientos de información. La SUTEL, a través del Jefe de Instrucción y Promoción y Abogacía de la DGCO, podrá hacer uso de sus potestades de requerimiento de información y solicitud de entrevistas para efectos de llevar a cabo sus actividades de abogacía y promoción de la competencia.
+La SUTEL priorizará la colaboración voluntaria de las personas que hayan sido convocadas para aportar información o dar una entrevista en el marco de una actividad de abogacía, otorgándoles un plazo razonable, no menor a quince días hábiles, para atender a estos requerimientos.
+La información recopilada en el marco de una actividad de abogacía solo podrá ser utilizada para dichos fines.
+La SUTEL deberá resguardar la confidencialidad de la información recolectada en el marco de una actividad de abogacía, cuando corresponda, según las normas aplicables.
