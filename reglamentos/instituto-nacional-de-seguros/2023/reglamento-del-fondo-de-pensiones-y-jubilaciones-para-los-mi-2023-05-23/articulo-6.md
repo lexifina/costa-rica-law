@@ -1,0 +1,2 @@
+Artículo 6º-Fiscalización y Gobierno Corporativo. La Auditoría Interna del INS, fiscalizará la operación del Fondo y la gestión realizada por la dependencia del Fondo.
+El Fondo aplicará la regulación sobre Gobierno Corporativo que corresponda según su naturaleza jurídica, ya sean normas de alcance general o normas o autorizaciones concretas emitidas por SUPEN o cualquier otro ente de control y supervisión.

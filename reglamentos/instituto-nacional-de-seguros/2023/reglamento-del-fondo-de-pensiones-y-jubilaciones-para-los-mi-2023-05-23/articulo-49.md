@@ -1,0 +1,5 @@
+CAPÍTULO IX
+Otros beneficios
+Artículo 49.-Monto de subsidio. Al ocurrir la defunción del bombero que se hallase disfrutando de la pensión al amparo del presente reglamento, el Fondo otorgará un subsidio hasta por cuatrocientos sesenta y dos mil quinientos colones (¢462.500,00) para sufragar sus gastos funerarios, el cual contará con revisiones cada dos años, en el mes de mayo. También concederá beneficio hasta igual monto y concepto, al morir la cónyuge o compañera del bombero pensionado.
+Este subsidio se reconocerá a quien demuestre haber incurrido en dichos gastos, para ello deberá presentar ante la Dependencia del Fondo, la factura autorizada por la Dirección General de Tributación Directa, debidamente cancelada, original y copia del acta de defunción, original y copia de las cédulas de identidad del difunto y del solicitante, número de cuenta cliente o cuenta IBAN de un banco para hacer el depósito correspondiente.
+El pago se hará efectivo en un plazo máximo de quince días hábiles después de haber sido conocida y aprobada la solicitud por parte de la Gerencia General.
