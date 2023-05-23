@@ -3,11 +3,11 @@ Objetivo: Proveer a las entidades una guía para el cálculo de la suficiencia p
 CÁLCULO DEL CAPITAL BASE PARA ENTIDADES FINANCIERAS [2]
 EXCEPTO ASOCIACIONES MUTUALISTAS
 DE AHORRO Y PRÉSTAMO
-CAPITAL BASE (I + II – III) | Referencia SUGEF 3-06
+CAPITAL BASE (I + II - III) | Referencia SUGEF 3-06
 I. Capital Primario | Artículo 6
-C(311.01) – C(315.01) | Capital pagado ordinario, neto de acciones adquiridas por la propia entidad. | Inciso a)
-C(311.05)*(100 – D(20115)) | Para el caso de las cooperativas de ahorro y crédito: Aportaciones de capital cooperativo multiplicado por [100 – porcentaje máximo para cubrir el retiro de aportes según el estatuto]. | Inciso a)
-C(311.02.1.02) – C(315.02.1.02) | Capital pagado preferente de carácter perpetuo o redimible a opción de la entidad emisora con cláusula de dividendo no acumulativo y neto de acciones adquiridas por la propia entidad. | Inciso b)
+C(311.01) - C(315.01) | Capital pagado ordinario, neto de acciones adquiridas por la propia entidad. | Inciso a)
+C(311.05)*(100 - D(20115)) | Para el caso de las cooperativas de ahorro y crédito: Aportaciones de capital cooperativo multiplicado por [100 - porcentaje máximo para cubrir el retiro de aportes según el estatuto]. | Inciso a)
+C(311.02.1.02) - C(315.02.1.02) | Capital pagado preferente de carácter perpetuo o redimible a opción de la entidad emisora con cláusula de dividendo no acumulativo y neto de acciones adquiridas por la propia entidad. | Inciso b)
 C(312) | Capital donado | Inciso c)
 C(321) | Capital pagado adicional (Primas en la colocación de acciones netas de descuentos) | Inciso d)
 C(341) | Reserva legal | Inciso e)
@@ -32,7 +32,7 @@ C(360) | Resultado de periodo (importe determinado del cierre contable semestral
 [C(500)-C(400)]*[1- deducciones al resultado del periodo] | Resultado del periodo menos las deducciones que por ley correspondan, según la sección IV de Los lineamientos Generales del Acuerdo SUGEF 3-06 (no incluye la cuenta 452 Participaciones legales sobre la utilidad). | Inciso i)
 D(20180) | Capital pagado preferente aceptado para capital secundario. | Inciso j)
 D(20181) (Así reforma el código anterior por acuerdo N° 009 del 6 de junio de 2011) | Instrumentos de deuda subordinada. (Así reforma el párrafo anterior por acuerdo N° 009 del 6 de junio de 2011) | Inciso k)
-C(380) | El patrimonio del Fondo de Financiamiento para el Desarrollo constituido por cada banco público, de conformidad con lo dispuesto en el artículo 32 de la Ley 8634 “Ley del Sistema de Banca para el Desarrollo”. | Inciso l)
+C(380) | El patrimonio del Fondo de Financiamiento para el Desarrollo constituido por cada banco público, de conformidad con lo dispuesto en el artículo 32 de la Ley 8634 "Ley del Sistema de Banca para el Desarrollo". | Inciso l)
 III. Deducciones | Artículo 8
 C(160) | Las participaciones en el capital de otras empresas, netas de estimaciones | Inciso a)
 D(20092) | Créditos otorgados a la sociedad controladora del mismo grupo o conglomerado financiero, netos de estimaciones | Inciso b)
@@ -64,7 +64,7 @@ PONDERACIONES ÚNICAS Ponderador de 0% | Referencia SUGEF 3-06
 C(111) | Efectivo | Artículo 12 (a)
 C(115 ) | Documentos de cobro inmediato | Artículo 12 (a)
 C(116) | Disponibilidades Restringidas | Artículo 12 (a)
-C(122.14.1.01) | Contraparte B.C.C.R. con o sin garantía | Artículo 12 (e)
+CC 12214101 MÁS CC 12314101 (Así reformado el párrafo anterior mediante resolución N° 1286 del 23 de mayo de 2023) | Contraparte B.C.C.R. con o sin garantía + Inversiones en Contraparte B.C.C.R con o sin garantía a costo amortizado (Así reformado el párrafo anterior mediante resolución N° 1286 del 23 de mayo de 2023) | Artículo 40 (e) (Así reformado el párrafo anterior mediante resolución N° 1286 del 23 de mayo de 2023)
 C(160) | Participaciones en el capital de otras empresas | Articulo 10
 C(186.02) | Plusvalía comprada | Artículo 10
 C(611.01.M.01 + 611.02.M.01 + 611.03.M.01 + 611.04.M.01) | Garantías y avales valor en depósito previo | Artículo 12 (d)
@@ -73,8 +73,11 @@ C(613.01.M.01) | Cartas de crédito confirmadas no negociadas valor depósito pr
 C(614) | Documentos descontados (Los instrumentos financieros de contraparte no se dan de baja del balance de la entidad, pues retiene los riesgos inherentes a estos) | Artículo 12 (d)
 C(615.02) | Líneas de crédito para tarjetas de crédito | Artículo 12 (d)
 C(617.02) | Otras contingencias no crediticias | Artículo 12 (d)
-Ponderador de 75% | | Artículo 16
-C(122.12 + (122.14 - 122.14.1.01) + 122.51 + 125.04) | Inversiones en reportos y reportos tripartitos | Inciso b)
+Ponderador de 75% | | Artículo 44 (Así reformado el párrafo anterior mediante resolución N° 1286 del 23 de mayo de 2023)
+C(122.12 + (122.14 + 123.14 - (122.14.1.01 + 123.14.1.01)) + 123.12 + 125.04) (Así reformado el párrafo anterior por resolución N° SGF-1286-2023 del 23 de mayo de 2023) | Inversiones en reportos y reportos tripartitos y operaciones diferidas de liquidez cuando la contraparte no es el BCCR. (Así reformado el párrafo anterior por resolución N° SGF-1286-2023 del 23 de mayo de 2023) | Inciso b)
+(CC 12212000 (Así adicionado el párrafo anterior mediante resolución N° 1286 del 23 de mayo de 2023) | Reporto y reporto tripartito posición vendedor a plazo Recursos propios (Así adicionado el párrafo anterior mediante resolución N° 1286 del 23 de mayo de 2023) |
+MÁS (CC 12214000 MENOS (CC 12214101 MÁS 12314101)) MÁS 12312 (Así adicionado la celda anterior mediante resolución N° 1286 del 23 de mayo de 2023) | Operaciones Diferidas de liquidez - Recursos propios Contraparte B.C.C.R. con o sin garantía Inversiones en Contraparte B.C.C.R. con o sin garantía a costo amortizado (Ponderación 0%) reportos y reportos tripartitos registrados a costo amortizado (Ponderación 75%) (Así adicionado la celda anterior mediante resolución N° 1286 del 23 de mayo de 2023) | Inciso b) (Así adicionado la celda anterior mediante resolución N° 1286 del 23 de mayo de 2023)
+MÁS CC 12504000) (Así adicionado el párrafo anterior mediante resolución N° 1286 del 23 de mayo de 2023) | Reporto y reporto tripartito posición vendedor a plazo (Así adicionado la celda anterior mediante resolución N° 1286 del 23 de mayo de 2023) |
 Ponderador de 100% | | Artículo 18
 C(140 - 142.01 - 145) | Cuentas y productos por cobrar no asociadas (Cuentas y productos por cobrar excepto de disponibilidades, inversiones y créditos, netos de estimaciones) | Inciso a)
 C(150 - 151.01) | Bienes realizables excepto instrumentos financieros adquiridos en recuperación de créditos Inciso b)
