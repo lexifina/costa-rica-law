@@ -1,4 +1,0 @@
-CAPÍTULO III
-Del traslado de la cartera
-de cobro judicial
-Artículo 21.-Una vez autorizada por la Dirección Ejecutiva el inicio del proceso de cobro judicial, el Área de Financiamiento, deberá trasladar a cartera de cobro judicial las operaciones correspondientes. Igual clasificación tendrán aquellas operaciones garantizadas con un fideicomiso de garantía y que se haya iniciado el proceso de ejecución del contrato respectivo con el oficio de la Dirección Ejecutiva que autoriza el inicio del proceso.
