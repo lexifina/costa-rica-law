@@ -1,0 +1,4 @@
+Artículo 11°- De la autorización para el inicio de procedimientos de contratación.
+a. El Director o Subdirector General, mediante aprobación de la solicitud generada en el sistema digital unificado, serán los únicos facultados para autorizar el inicio de procedimientos de contratación con montos equivalentes al de licitación reducida y a través de convenios marco.
+b. La Junta Administrativa mediante acuerdo motivado, será la única instancia facultada para aprobar el inicio de procedimientos de contratación cuyos montos sean equivalentes al de licitación menor o mayor.
+c. La Junta Administrativa podrá autorizar a los encargados de la Secretaría de dicho órgano colegiado, la parte operativa correspondiente a la aprobación en el sistema digital unificado, de los inicios de contratación, incorporando como documento de respaldo el acuerdo emitido por la misma Junta.

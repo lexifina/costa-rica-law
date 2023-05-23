@@ -1,0 +1,2 @@
+Artículo 15°-De la verificación de requisitos para la adopción de la decisión inicial del procedimiento de contratación pública. Será responsabilidad de la unidad solicitante acreditar cada uno de los requisitos previos a la adopción de la decisión inicial, conforme a los lineamientos y formatos establecidos por el Departamento de Proveeduría.
+Por su parte el Departamento de Proveeduría será responsable de verificar el cumplimiento de estos requisitos, conforme lo establecido en el artículo 37 de la Ley General de Contratación Púbica y ordinal 86 de su Reglamento.

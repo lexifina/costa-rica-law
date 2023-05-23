@@ -1,0 +1,7 @@
+CAPÍTULO IV
+De la formalización de la relación contractual y de la orden de inicio.
+Artículo 31°-Del procedimiento para la formalización de la relación contractual.
+a. Corresponde al Analista del Departamento de Proveeduría a cargo de la contratación, solicitar al adjudicatario el aporte de los requisitos necesarios y dispuestos desde los inicios, para la formalización contractual y generar en el sistema digital unificado el contrato electrónico, el cual deberá remitir a refrendo interno según los responsables señalados infra en el presente Reglamento.
+b. Todos los contratos deberán generarse y aprobarse de forma electrónica en el sistema digital unificado, excepto aquellos que deban remitirse a refrendo ante la Contraloría General de la República o requieran ser formalizados en escritura pública.
+En los casos descritos anteriormente en que se requiera formalización en escritura pública, dicha labor de coordinación ante la Procuraduría General de la República corresponderá a la Asesoría Jurídica de la Dirección General con el apoyo de las instancias internas correspondientes según la naturaleza del objeto contractual y una vez formalizados, deberán acreditarse en el expediente electrónico por parte del Analista del Departamento de Proveeduría.
+Todo lo anterior en cumplimiento de las disposiciones recogidas en los numerales 274 y 275 del Reglamento a la Ley General de Contratación Pública.

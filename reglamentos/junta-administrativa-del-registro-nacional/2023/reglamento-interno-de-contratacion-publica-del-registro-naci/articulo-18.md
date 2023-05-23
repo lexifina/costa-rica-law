@@ -1,0 +1,7 @@
+CAPÍTULO III
+De la gestión y responsabilidades de las instancias internas
+en los procedimientos de contratación, conforme a la naturaleza del acto que se trate en la etapa
+correspondiente.
+Atendiendo las gestiones conforme a cada etapa del proceso de contratación, se procederá según las siguientes disposiciones:
+Artículo 18°-De la confección del pliego de condiciones. En la confección del pliego de condiciones se acatarán los requisitos mínimos establecidos en la Ley General de Contratación Pública y su Reglamento, correspondiendo a la unidad usuaria y el administrador del contrato, en apoyo de otras unidades internas pertinentes conforme a la naturaleza del objeto contractual y su complejidad en la materia sustantiva necesaria (cada una dentro de su área de gestión y competencia), velar siempre que, las características técnicas establecidas no resulten restrictivas ante la eventual participación de potenciales oferentes dentro del mercado, determinando que exista justificación de la razonabilidad y proporcionalidad de dichas características y de su puntuación o ponderación, en relación con la naturaleza del objeto a contratar.
+Los requerimientos establecidos en los pliegos de condiciones deben promover el uso eficiente y eficaz de los recursos públicos y el principio del valor por el dinero, regulado en el artículo 8 de la Ley General de Contratación Pública, en fortalecimiento de los pilares que rigen los procedimientos de contratación pública.

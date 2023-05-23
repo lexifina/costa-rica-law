@@ -1,0 +1,4 @@
+Artículo 12°- De la emisión del acto final en los procedimientos de contratación.
+a. La Junta Administrativa mediante acuerdo motivado, será la única instancia facultada para emitir el acto final (adjudicación -declaratoria de infructuosa o desierta) en contrataciones cuyos montos sean equivalentes al de licitación menor o mayor.
+b. La Junta Administrativa podrá autorizar a los encargados de la Secretaría de dicho órgano colegiado, la parte operativa correspondiente a la aprobación del acto final en el sistema digital unificado, incorporando como documento de respaldo el acuerdo correspondiente emitido por dicha Junta.
+c. El Director o Subdirector General serán los únicos facultados para emitir el acto final (adjudicación -declaratoria de infructuosa o desierta) en contrataciones con monto equivalente al de licitación reducida.

@@ -1,0 +1,1 @@
+Artículo 29°-De la firmeza de los actos finales. Una vez en firme el acto final, procederá el Analista del Departamento de Proveeduría dentro del plazo establecido en el cronograma de la contratación, a, registrarlo en el sistema digital unificado.

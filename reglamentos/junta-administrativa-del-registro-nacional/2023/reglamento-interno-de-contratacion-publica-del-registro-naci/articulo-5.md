@@ -1,0 +1,1 @@
+Artículo 5°- Del ámbito de aplicación. El presente Reglamento será de acatamiento obligatorio para todas las unidades usuarias, personas funcionarias y Miembros de la Junta Administrativa del Registro Nacional, salvo norma de rango superior que se anteponga.

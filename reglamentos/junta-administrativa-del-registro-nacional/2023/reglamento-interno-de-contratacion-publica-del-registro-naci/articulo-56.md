@@ -1,0 +1,2 @@
+Artículo 56°-De la derogatoria del Reglamento anterior. Se deroga el Reglamento Interno de Compras del Registro Nacional, publicado en el Alcance Digital N° 94 de fecha jueves 09 de junio del año 2016 y sus reformas.
+Este Reglamento comenzará a regir a partir de su publicación en el Diario Oficial La Gaceta, previa aprobación de la Junta Administrativa del Registro Nacional. San José, a las diecisiete horas con cincuenta y seis minutos del 22 de mayo de 2023. Gerald Valverde Campos, Ministro de Justicia y Paz y Presidente de la Junta Administrativa del Registro Nacional.
