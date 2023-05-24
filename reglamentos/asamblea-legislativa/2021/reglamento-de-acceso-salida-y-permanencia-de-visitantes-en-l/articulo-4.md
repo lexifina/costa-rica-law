@@ -1,15 +1,17 @@
 CAPÍTULO II
 Obligaciones de los agentes de seguridad
-Artículo 4-Obligaciones. Los agentes de seguridad deberán cumplir las siguientes
-obligaciones:
+Artículo 4º-Obligaciones de los agentes de seguridad: Los agentes de seguridad deberán cumplir las siguientes obligaciones:
+(Así reformado el párrafo anterior mediante publicación en La Gaceta N° 91 del 24 de mayo del 2023)
 a) Velar por la seguridad y tranquilidad de los funcionarios de la Asamblea Legislativa y de las demás personas que se encuentren dentro de las instalaciones y el perímetro legislativo.
 b) Dar un trato respetuoso y cortés a los funcionarios legislativos y visitantes que ingresen a la institución.
 c) Recibir a los visitantes en general, orientarlos y brindarles información referente a la ubicación de los edificios, los servicios que se prestan, la ubicación de las oficinas o de otras instalaciones, así como las actividades que ahí se realizan.
 d) Solicitar la cédula de identidad y en caso de ser extranjero pasaporte o cédula de residencia, para realizar el respectivo registro en el sistema digital de control de visitantes o, de forma excepcional, en las hojas para control de ingreso.
-e) Verificar vía telefónica, con el departamento o despacho, la respectiva autorización de ingreso del visitante; para ello se debe consignar, en los controles de ingreso, el nombre de la persona que autoriza.
+e) Entregar un carné o "sticker" de colores vivos. Cada color dependerá del lugar a donde se dirija el visitante y hora de ingreso y salida. Se exceptúa de la entrega del "sticker" a los miembros de los Supremos Poderes, cuerpo diplomático y dignatarios internacionales
+(Así reformado el inciso anterior mediante publicación en La Gaceta N° 91 del 24 de mayo del 2023)
 f) Entregar un badge o sticker al visitante, e informarle que debe utilizarlo en un lugar visible durante la visita.
 g) Llamar la atención al visitante cuando no se encuentre en el lugar al cual tiene permiso para ingresar o cuando no esté utilizando el badge o sticker en un lugar visible.
-h) Realizar un registro de ingreso de visitantes, así como revisar maletines, bolsas, bolsos, valijas, cartucheras, etc., en el momento de entrar y salir de la institución.
+h) Realizar un registro de ingreso de visitantes, así como revisar maletines, bolsas, bolsos, valijas, cartucheras, etc., en el momento de entrar y salir de la institución. Se exceptúa de esta revisión a los miembros de los Supremos Poderes, cuerpo diplomático y dignatarios internacionales
+(Así reformado el inciso anterior mediante publicación en La Gaceta N° 91 del 24 de mayo del 2023)
 i) Impedir el ingreso de personas con armas de fuego, punzocortantes, contusocortantes, substancias explosivas, inflamables, volátiles, armas eléctricas o con cualquier objeto que pueda ser utilizado para atentar contra la integridad de una persona.
 En caso de que el visitante porte alguna de esas armas, el agente la retendrá (la deja en su custodia) y la devolverá a la persona en el momento de la salida; para ello, es necesario que el visitante haya dejado algún documento de identificación.
 Cuando se trate de un arma de fuego se deberá solicitar al visitante el debido permiso de portación de armas y si no lo tuviera deberá informársele a la autoridad competente.

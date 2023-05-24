@@ -14,3 +14,4 @@ Reglamento de acceso, salida y permanencia de visitantes en la Asamblea Legislat
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-02-15 | la propia norma |
+| 2 | 2023-05-24 | Reglamento 0 (2023-05-24) |
