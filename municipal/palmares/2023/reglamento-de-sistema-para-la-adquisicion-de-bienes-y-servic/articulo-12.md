@@ -1,0 +1,3 @@
+Artículo 12º- Adjudicación, Desierto e Infructuoso. La Alcaldía y el Concejo Municipal adjudicarán los trámites de contratación según los límites generales y específicos de contratación administrativa establecidos en la Ley General de Contratación Pública, con los siguientes rangos de acción:
+Alcaldía: Le corresponde dictar el acto de adjudicación, desierto o infructuoso, en los procesos de licitación reducida.
+Concejo Municipal: Le corresponde dictar el acto de adjudicación, desierto o infructuoso, en los procesos de licitación menor y mayor, según los umbrales establecidos por la Contraloría General de la República.
