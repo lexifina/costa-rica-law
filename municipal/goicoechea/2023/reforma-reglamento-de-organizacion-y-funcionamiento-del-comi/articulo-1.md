@@ -1,0 +1,14 @@
+MUNICIPALIDAD DE GOICOECHEA
+REGLAMENTO DE ORGANIZACIÓN Y FUNCIONAMIENTO
+DEL COMITÉ CANTONAL DE DEPORTES
+Y RECREACIÓN DE GOICOECHEA
+El Concejo Municipal del Cantón de Goicoechea, en Sesión Ordinaria N°16-2023, celebrada el día 17 de abril de 2023, Artículo IV.I acordó:
+"Se autoriza publicar en el Diario Oficial La Gaceta el siguiente texto: "La Municipalidad del Cantón de Goicoechea comunica que el "Reglamento De Organización Y Funcionamiento Del Comité Cantonal De Deportes Y Recreación De Goicoechea", se aprueba con el texto publicado en La Gaceta N° 51, fechada 20 de marzo de 2023, donde se modifica el artículo 2° de dicho Reglamento."
+MUNICIPALIDAD DE GOICOECHEA
+CONCEJO MUNICIPAL
+El Concejo Municipal del Cantón de Goicoechea en Sesión Ordinaria Nº 09-2023, celebrada el día 27 de febrero de 2023, Artículo IX.IX por mayoría de votos y la firmeza por mayoría de votos aprobó la siguiente modificación al Reglamento de Organización y Funcionamiento del Comité Cantonal de Deportes y Recreación del Cantón de Goicoechea y los Comités Comunales de Deportes.
+La Municipalidad de Goicoechea, de conformidad con el artículo 43° del Código Municipal, hace de conocimiento a los interesados el presente proyecto, sometiéndolo a consulta pública no vinculante por un plazo mínimo de diez días hábiles a partir de su publicación, las observaciones deberán presentarse por escrito ante la Secretaría Municipal, dentro del plazo referido.
+Para que los artículos 2 del Reglamento de Organización y Funcionamiento del Comité Cantonal de Deportes y Recreación del Cantón de Goicoechea y los Comités Comunales de Deporte que dice:
+"El Comité Cantonal de Deportes y Recreación de Goicoechea es el organismo superior y rector del deporte y la recreación en el cantón, encargado del planeamiento, promoción y fiscalización de la actividad deportiva en todos sus aspectos incluyendo la construcción, administración y mantenimiento de las instalaciones deportivas; procurando el acceso a la competición y recreación saludable y el deporte para todas las personas. El Comité se regirá por la Ley y las disposiciones del presente Reglamento."
+Artículo 2º-Se leerá de la siguiente manera:
+"El Comité Cantonal de Deportes y Recreación de Goicoechea es el organismo superior y rector del deporte y la recreación en el cantón, encargado del planeamiento, promoción y fiscalización de la actividad deportiva en todos sus aspectos incluyendo la construcción, administración y mantenimiento de las instalaciones deportivas que sean de su propiedad o las que le sean dadas en administración por parte de la Municipalidad de Goicoechea u otras Instituciones; procurando el acceso a la competición y recreación saludable y el deporte para todas las personas. El Comité se regirá por la Ley y las disposiciones del presente Reglamento".
