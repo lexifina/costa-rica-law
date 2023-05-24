@@ -1,0 +1,1 @@
+Artículo 35. Seguimiento al cumplimiento del arreglo de pago. Aprobado el arreglo de pago en beneficio del contribuyente, el Departamento de Gestión de Cobro deberá dar el seguimiento necesario para su debido cumplimiento.

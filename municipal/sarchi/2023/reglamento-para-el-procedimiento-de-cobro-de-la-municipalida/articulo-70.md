@@ -1,0 +1,1 @@
+Artículo 70. Cancelación de las costas por terminación anticipada del proceso judicial. La prosecución de las costas generadas en el proceso de cobro extrajudicial y judicial estará a cargo del Departamento de Gestión de Cobro, en caso de que el obligado pretenda cancelar su obligación con la Municipalidad previo a la terminación del proceso judicial respectivo.

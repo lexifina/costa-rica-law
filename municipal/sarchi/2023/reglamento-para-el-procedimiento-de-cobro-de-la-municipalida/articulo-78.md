@@ -1,0 +1,2 @@
+CAPÍTULO DÉCIMO PRIMERO: DISPOSICIONES FINALES
+Artículo 78. Facultad de la Administración Tributaria. Se faculta a la Administración Tributaria Municipal para que en las condiciones que permita la ley, se establezcan convenios y contratos con entidades financieras y empresas dedicadas a identificación y localización de personas, para la referenciación de los contribuyentes morosos en las bases de datos, con la finalidad de utilizar dicha información como uno más de los elementos para hacer más eficientes las gestiones cobratorias.

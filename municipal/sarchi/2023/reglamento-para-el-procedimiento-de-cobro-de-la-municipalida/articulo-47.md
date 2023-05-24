@@ -1,0 +1,1 @@
+Artículo 47. Obligaciones del abogado. El abogado director no podrá suspender o dar por terminado en forma definitiva el proceso judicial hasta que la alcaldía no se haya manifestado por escrito sobre la incobrabilidad.

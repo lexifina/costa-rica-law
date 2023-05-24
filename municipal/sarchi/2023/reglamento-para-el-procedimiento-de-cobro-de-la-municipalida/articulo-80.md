@@ -1,0 +1,1 @@
+Artículo 80. Derogaciones. Derogase el Reglamento para el Procedimiento de Cobro Administrativo, Extrajudicial y Judicial de la Municipalidad de Valverde Vega, publicado en la Gaceta N°166 del miércoles 25 de agosto de 2004 y sus modificaciones.

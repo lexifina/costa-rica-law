@@ -1,0 +1,1 @@
+Artículo 76. Obligación de cotejar la publicación de Edictos. Será responsable el abogado de cotejar el edicto antes y después de su publicación, con los documentos que fundamentan la demanda, y será responsable ante la Municipalidad de cualquier perjuicio que por negligencia o impericia pudiera causar su omisión.

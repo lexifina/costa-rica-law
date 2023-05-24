@@ -1,0 +1,1 @@
+Artículo 63. Asesoría a la Municipalidad. Es obligación y responsabilidad de los abogados asesorar en la toma de decisiones que requiera la municipalidad y que tiendan a la efectiva recuperación de lo que le es adeudado.

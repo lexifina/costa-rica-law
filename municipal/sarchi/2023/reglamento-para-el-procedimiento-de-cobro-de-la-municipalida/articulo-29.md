@@ -1,0 +1,1 @@
+Artículo 29. Derecho al arreglo de pago. Todo contribuyente que se encuentre en estado de morosidad está legitimado para solicitar el beneficio del arreglo de pago, como medida excepcional a la forma de pago ordinario de las obligaciones con la municipalidad.

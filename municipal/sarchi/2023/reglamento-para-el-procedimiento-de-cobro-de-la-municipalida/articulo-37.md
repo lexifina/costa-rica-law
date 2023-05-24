@@ -1,0 +1,1 @@
+Artículo 37. Efectos del incumplimiento de pago. Si el contribuyente no realizare el primer pago en los plazos establecidos, o cuando incumpla el pago puntual de alguna de las cuotas, el Departamento de Gestión de Cobro sin más trámite trasladará el expediente al abogado designado, para que este gestione el proceso de cobro extrajudicial y eventualmente judicial.

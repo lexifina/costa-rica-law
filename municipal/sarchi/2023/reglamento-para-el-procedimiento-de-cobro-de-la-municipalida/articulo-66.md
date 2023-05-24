@@ -1,0 +1,1 @@
+Artículo 66. Otras sanciones. La Municipalidad respetando el debido proceso, podrá realizar los trámites administrativos y judiciales respectivos contra los abogados cuando se demuestre que por negligencia o impericia en la tramitación de los procesos judiciales de cobro en favor de la Municipalidad s. Sanciones que podrán ser administrativas, disciplinarias o indemnizatorias.

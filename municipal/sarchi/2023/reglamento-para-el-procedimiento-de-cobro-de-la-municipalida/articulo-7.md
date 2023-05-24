@@ -1,0 +1,1 @@
+Artículo 7. Actualización de datos. Los contribuyentes están obligados a comunicar toda modificación de sus datos de trascendencia tributaria, en la forma y por los medios que determine la Administración Tributaria Municipal, dentro del plazo máximo de diez días hábiles contados a partir de la modificación.

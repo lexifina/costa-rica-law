@@ -1,0 +1,1 @@
+Artículo 26. Del proceso sucesorio para recuperación de obligaciones vencidas. Se autoriza al jefe del Departamento de Gestión de Cobros, a solicitar la apertura y gestionar la participación de la Municipalidad en procesos sucesorios en sede notarial o judicial, para la recuperación de obligaciones vencidas de contribuyentes fallecidos.

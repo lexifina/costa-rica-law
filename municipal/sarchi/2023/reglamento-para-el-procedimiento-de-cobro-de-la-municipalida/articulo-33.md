@@ -1,0 +1,1 @@
+Artículo 33. Efectos de la denegatoria. El cómputo de los intereses generados por las obligaciones vencidas, no se interrumpirá en el caso de denegarse el otorgamiento del arreglo de pago presentado por el contribuyente. La comunicación de la denegatoria de la solicitud deberá ser debidamente razonada y tendrá los derechos contemplados en el artículo 171 del Código Municipal.

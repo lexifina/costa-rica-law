@@ -1,0 +1,1 @@
+Artículo 72. Condonación de honorarios de abogado. Procederá únicamente la condonación de honorarios profesionales cuando así lo determine el abogado director del proceso en coordinación con el Departamento de Gestión de Cobro.

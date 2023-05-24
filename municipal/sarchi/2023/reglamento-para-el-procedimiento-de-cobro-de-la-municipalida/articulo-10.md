@@ -1,0 +1,1 @@
+Artículo 10. Publicación de lista de morosos. Se faculta a la Administración Tributaria Municipal a publicar un edicto en La Gaceta y cualquier periódico de circulación nacional la lista de morosos por concepto de tributos municipales, por los medios que la ley permita, que podrá contener el nombre del contribuyente, su identificación, monto total adeudado y períodos vencidos.

@@ -1,0 +1,6 @@
+Artículo 12. De la función de recaudación. La función de recaudación de la Administración Tributaria tiene como objeto:
+1. Realizar el conjunto de acciones destinadas a percibir efectivamente el pago de todas las obligaciones tributarias municipales de los contribuyentes.
+2. La función recaudadora que se realizará en tres etapas sucesivas: la voluntaria, la administrativa y la judicial.
+a. En la etapa voluntaria, el sujeto pasivo de la obligación tributaria municipal cancelará sus obligaciones sin necesidad de actuación alguna por parte de la Municipalidad, excepto la de facilitar a los contribuyentes todos los medios de pago que tenga a disposición.
+b. En la etapa de cobro administrativo, la Administración Tributaria Municipal por medio del Departamento de Gestión de Cobro efectuará un requerimiento persuasivo de pago a los sujetos pasivos morosos mediante una notificación de aviso de cobro. En caso de renuencia, se realizará además una única notificación de cobro extrajudicial.
+a. En etapa judicial, la recaudación se efectuará coercitivamente, utilizando los medios legales establecidos y recurriendo a los órganos jurisdiccionales competentes. Esta etapa será ejecutada por los Abogados que para tal efecto hayan sido designados por la Municipalidad, conforme a los plazos de ejecución establecidos en el presente reglamento.

@@ -1,0 +1,1 @@
+Artículo 57. De la contratación de abogados externos. Los oferentes elegidos suscribirán un contrato con la Municipalidad, así como cualquier otro documento necesario a la prestación eficiente de los servicios, y con las normas que regulan este tipo de contratación.

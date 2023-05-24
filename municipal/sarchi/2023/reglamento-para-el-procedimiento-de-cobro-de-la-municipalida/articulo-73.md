@@ -1,0 +1,2 @@
+Artículo 73. Deber de pagar honorarios de abogado por terminación anticipada del contrato. Cuando un abogado deje de prestar sus servicios profesionales a la Municipalidad, por cualquier motivo que sea, excepto por el incumplimiento de sus obligaciones, tendrá derecho a que se le paguen sus honorarios al amparo de lo estipulado en el Arancel de Honorarios por Servicios Profesionales de Abogacía y Notariado, y dicho profesional deberá
+gestionar el cobro de sus honorarios ante la Municipalidad.

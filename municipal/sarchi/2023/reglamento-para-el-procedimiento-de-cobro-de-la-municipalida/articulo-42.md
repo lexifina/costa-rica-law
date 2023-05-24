@@ -1,0 +1,1 @@
+Artículo 42. Confusión. Siempre que el sujeto activo como consecuencia de la transmisión de los bienes o derechos afectos al tributo quede colocado en la situación del deudor, procederá la extinción de la obligación vencida por confusión.

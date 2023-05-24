@@ -1,0 +1,1 @@
+Artículo 39. Custodia del arreglo de pago. Toda documentación en relación con el arreglo de pago será custodiada por el Departamento de Gestión de Cobro, la cual, de ser necesario, será remitida al abogado designado para realizar el cobro extrajudicial o cobro judicial.

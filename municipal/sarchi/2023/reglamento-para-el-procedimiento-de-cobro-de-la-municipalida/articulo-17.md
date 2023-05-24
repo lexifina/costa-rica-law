@@ -1,0 +1,1 @@
+Artículo 17. Ejecución de la gestión de cobro. Consiste en el requerimiento de cobro efectuado a los sujetos pasivos que presenten morosidad por obligaciones con la Municipalidad, según lo disponga este reglamento.

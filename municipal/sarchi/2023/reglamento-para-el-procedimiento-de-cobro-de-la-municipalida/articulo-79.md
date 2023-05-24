@@ -1,0 +1,1 @@
+Artículo 79. Legislación supletoria. A las materias que son objeto del presente Reglamento, resultan aplicables las disposiciones contenidas sobre las mismas en el Código Municipal, Código Procesal Civil, el Código de Normas y Procedimientos Tributarios, Ley de Notificaciones Judiciales; y cualquier otra normativa relacionada con este reglamento.

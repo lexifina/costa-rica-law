@@ -1,0 +1,1 @@
+Artículo 16. De la supervisión y control de la gestión cobratoria. La supervisión y el control de las acciones cobratorias en vía administrativa, extrajudicial y judicial estarán a cargo del jefe del Departamento de Gestión de Cobro.

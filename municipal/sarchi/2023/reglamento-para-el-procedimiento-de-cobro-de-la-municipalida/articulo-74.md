@@ -1,0 +1,1 @@
+Artículo 74. Deber de la Municipalidad de correr con las costas en el Proceso Judicial antes de la terminación y archivo del procedimiento. Deberá la Municipalidad en primera instancia, correr con las costas del proceso judicial para la recuperación de obligaciones dinerarias vencidas, líquidas y exigibles, las cuales serán trasladadas al condenado en costas.
