@@ -1,0 +1,1 @@
+Artículo 3°.-Que la empresa Code Development Group Sociedad Anónima, con cédula jurídica 3-101-689524, deberá cumplir con los requerimientos de la Secretaria Técnica Nacional Ambiental, así como con las obligaciones contraídas en el Estudio de Impacto Ambiental, la Declaración Jurada de Compromisos Ambientales y las medidas ambientales de mitigación y compensación aprobadas.
