@@ -1,2 +1,0 @@
-ARTÍCULO 2°.-Reforma al título del Decreto Ejecutivo número 42421-S del 26 de junio de 2020. Refórmese el título del Decreto Ejecutivo número 42421-S del 26 de junio de 2020, denominado Medida especial sobre el uso obligatorio de mascarilla o careta como equipo de protección personal debido al estado de emergencia nacional por el COVID-19, para que en adelante se lea de la siguiente manera:
-“Medida especial sobre el uso obligatorio de mascarilla como equipo de protección personal para todas las personas debido al estado de emergencia nacional por el COVID-19”.
