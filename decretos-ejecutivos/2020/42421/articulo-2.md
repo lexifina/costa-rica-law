@@ -1,1 +1,0 @@
-ARTÍCULO 2°.- Alcance. El presente Decreto Ejecutivo es de aplicación obligatoria para todas las personas físicas y jurídicas, respectivamente, en el territorio nacional y en los términos establecidos en el artículo 3° de este Decreto Ejecutivo.

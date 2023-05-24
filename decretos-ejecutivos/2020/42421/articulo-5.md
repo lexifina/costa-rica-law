@@ -1,1 +1,0 @@
-ARTÍCULO 5°.-Coordinación con otras autoridades públicas. Para el cumplimiento de lo dispuesto en este Decreto Ejecutivo, el Ministerio de Salud coordinará el apoyo correspondiente con los cuerpos policiales, el Sistema de Emergencias 9-1-1 y otras autoridades públicas según se requiera, a efectos de asegurar el objetivo de la presente medida.
