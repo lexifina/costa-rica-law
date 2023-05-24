@@ -1,0 +1,2 @@
+Artículo 6. De las suplencias de los miembros del Comité de Deportes.
+El Concejo Municipal podrá nombrar interinamente a los representantes establecidos en el artículo 174 del Código Municipal, entre tanto se realizan las convocatorias correspondientes para rellenar las respectivas faltantes a efectos de no generar acefalías en el Comité de Deportes, para lo cual velará para que cada titular interino esté adscrito al sector que representa.

@@ -1,0 +1,2 @@
+Artículo 23. De las concesiones deportivas.
+Las organizaciones deportivas aprobadas en el Instituto Costarricense del Deporte que se encuentren inscritas en el Registro de Asociaciones con domicilio legal en el Cantón de Atenas también podrán administrar y mantener instalaciones o cualquier otro inmueble municipal; sean estas instalaciones deportivas o administrativas como oficinas y bodegas; a juicio de la Junta Directiva de Comité de Deportes, previo convenio aprobado por el Concejo Municipal.

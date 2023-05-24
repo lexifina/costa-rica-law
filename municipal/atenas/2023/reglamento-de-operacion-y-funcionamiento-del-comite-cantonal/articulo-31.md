@@ -1,0 +1,2 @@
+Artículo 31. De las modificaciones
+Cualquier reforma que se proponga a este Reglamento, deberá seguir el proceso establecido para todo reglamento municipal y ser fiel reflejo de las políticas institucionales de la Municipalidad de Atenas, estas variaciones propuestas al Reglamento tendrán que ponerse en conocimiento a la Junta Directiva del Comité de Deportes para su análisis y recomendación técnica, el que deberá brindar informe al Concejo en un plazo de 60 días hábiles para la respectiva aprobación del Concejo Municipal.

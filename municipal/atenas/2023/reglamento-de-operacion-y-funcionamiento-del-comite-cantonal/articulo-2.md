@@ -1,0 +1,2 @@
+Artículo 2. De la Jerarquía del Comité de Deportes.
+El Concejo Municipal de Atenas, en adelante Concejo Municipal, es jerarca superior del Comité de Deportes y quien aprobará y autorizará la planificación de desarrollo en materia deportiva y recreativa, así como también los respectivos convenios, los planes anuales operativos, estratégicos y sus modificaciones propuestas por la Junta Directiva del Comité Cantonal.
