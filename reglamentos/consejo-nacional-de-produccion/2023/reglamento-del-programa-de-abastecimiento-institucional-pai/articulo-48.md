@@ -1,0 +1,3 @@
+Artículo N º 48. La sanción no se extingue por la fusión, transformación o cambio de razón o denominación social del suplidor o la agroindustria, cualquiera que sea su forma de constitución.
+a) En caso de que la fusión dé origen a una nueva denominación social o la empresa sancionada sea absorbida por otra, los efectos de la sanción recaerán sobre la sociedad prevaleciente.
+b) Constituirá fraude de ley la constitución de una nueva sociedad o acudir a una persona física con la finalidad de evadir los efectos de una sanción en firme, en cuyo caso sus efectos recaerán en iguales condiciones sobre la sociedad así constituida o la persona física.

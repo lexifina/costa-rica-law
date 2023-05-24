@@ -1,0 +1,1 @@
+Artículo N º 42. Queda facultado el CNP para que, en caso de incumplimiento a las obligaciones contraídas por el productor, suplidor o agroindustria, se le reduzca o suspenda la asignación de mercado o compra de producto. En caso de reincidencia en los incumplimientos debidamente comprobados, el productor, el suplidor o la agroindustria podrá ser sujeto de exclusión del programa.

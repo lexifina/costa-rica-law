@@ -1,0 +1,2 @@
+Artículo N º 40. Referente a los reajustes de precios de los contratos regionales suscritos con instituciones clientes, corresponderá a los Directores Regionales la administración del contrato, con el fin de que recomiende y fundamente las solicitudes de reajuste de precios, para ser trasladados a la Sub gerencia General.
+En aquellos contratos con impacto o alcance nacional la administración del contrato recaerá en la figura del Subgerente General.

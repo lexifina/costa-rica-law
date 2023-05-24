@@ -1,0 +1,1 @@
+Artículo N º 37. El margen de sostenibilidad del PAI deberá ser parte integral del precio de venta, e incorporado en la metodología de fijación de precios, mismo que tendrá una revisión anual para su actualización de manera que permita cubrir los gastos del Programa.

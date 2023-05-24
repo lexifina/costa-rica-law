@@ -1,0 +1,2 @@
+Artículo N º 20. Los suplidores de acopio y procesamiento y agroindustria, deberán adquirir de manera obligatoria, los productos alimenticios de los productores primarios de la región registrados ante el CNP.
+La Institución pondrá en conocimiento del suplidor la lista de productores de la región, en caso de que el producto requerido no se pueda adquirir a un productor de la zona, el Director Regional podrá autorizar que se compre a productores registrados en el CNP de otras regiones.

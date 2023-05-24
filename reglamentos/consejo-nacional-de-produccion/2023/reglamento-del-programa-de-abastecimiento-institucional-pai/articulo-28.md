@@ -1,0 +1,1 @@
+Artículo N º 28. Se deberán clasificar según correspondan los suplidores de acopio y procesamiento, así como el productor primario dentro de las líneas productivas del tráfico ordinario del CNP de conformidad al artículo 18 del presente reglamento.

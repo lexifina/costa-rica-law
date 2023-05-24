@@ -1,0 +1,1 @@
+Artículo N º 30. La asignación de mercado a la agroindustria grande por excepción, la realizará la Subgerencia General, amparados en el instrumento denominado: "Tabla de valoración de factores para la determinación de cuota de suplidores considerados agroindustria grande por excepción".

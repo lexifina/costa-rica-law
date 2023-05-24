@@ -1,0 +1,1 @@
+Artículo N º 2. El CNP fungirá como facilitador en el acceso al mercado institucional prioritariamente para los micro, pequeños y medianos productores primarios, en el abastecimiento y la distribución de suministros genéricos propios de su tráfico ordinario, que sean requeridos por las entidades del sector público, asegurando el pago de un precio justo al productor primario.

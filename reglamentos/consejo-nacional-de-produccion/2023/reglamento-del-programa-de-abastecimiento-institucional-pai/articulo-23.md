@@ -1,0 +1,1 @@
+Artículo N º 23. Cuando los suplidores y productores a quienes se les asigne compras, mercado, y se mantengan activos en el programa, la institución podrá previo estudio y por medio de una resolución debidamente motivada, iniciar un proceso de disminución progresiva del mercado o compras para incluir nuevos suplidores al PAI.

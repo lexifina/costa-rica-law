@@ -1,0 +1,1 @@
+Artículo N º 39. La Dirección de Mercadeo y Agroindustria en caso de los productos que por su naturaleza no les sea aplicable la metodología de formación de precios citada en los artículos 37° y 38° del presente reglamento, deberá recomendar una metodología especial, que será autorizada por la Junta Administrativa.

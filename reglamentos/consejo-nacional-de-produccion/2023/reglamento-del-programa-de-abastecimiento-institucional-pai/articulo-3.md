@@ -1,0 +1,1 @@
+Artículo N º 3. El presente Reglamento establecerá lineamientos básicos que regirán los procedimientos del PAI para las compras a productores primarios y a suplidores de acopio y procesamiento y operadores logísticos, así como a las agroindustrias alimentarias que aseguren producto de origen nacional, y las ventas a los entes públicos.

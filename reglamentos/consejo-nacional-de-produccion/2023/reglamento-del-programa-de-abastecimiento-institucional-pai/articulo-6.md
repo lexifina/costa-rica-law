@@ -1,0 +1,1 @@
+Artículo N º 6. La dinámica del P Al es una transacción comercial, diferenciada, establecida por ley y dispuesta para que los clientes reciban el abastecimiento por parte del CNP y los productores primarios, así como agro empresas suplidoras del P Al, operen con precio de mercado justo, razonable, estable y competitivo.

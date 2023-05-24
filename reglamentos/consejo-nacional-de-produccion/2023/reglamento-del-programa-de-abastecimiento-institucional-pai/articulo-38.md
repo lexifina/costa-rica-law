@@ -1,0 +1,1 @@
+Artículo N º 38. Corresponde a las Direcciones Regionales, recolectar la información y realizar una valoración de la razonabilidad del monitoreo de precios, bien sea de los precios recolectados en los establecimientos comerciales o de las cotizaciones de los suplidores, de igual forma dar apoyo técnico al proceso.

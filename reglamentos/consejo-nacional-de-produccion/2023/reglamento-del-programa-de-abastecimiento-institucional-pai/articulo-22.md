@@ -1,0 +1,1 @@
+Artículo N º 22. Las Direcciones Regionales con el apoyo de la Dirección de Mercadeo y Agro industria, deberán monitorear en forma periódica, el efecto de fortalecimiento en los productores primarios y suplidores, producto de la incorporación comercial en el mercado institucional, registrándolo en el expediente de cada agro empresa.

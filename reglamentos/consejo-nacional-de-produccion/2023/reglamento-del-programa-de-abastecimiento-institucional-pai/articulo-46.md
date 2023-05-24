@@ -1,0 +1,1 @@
+Artículo N º 46. En caso de que los incumplimientos de las obligaciones de abastecimiento conduzcan a la aplicación de multas por parte de un cliente institucional al CNP, dicha multa será trasladada al suplidor asignado, previo otorgamiento del debido proceso.
