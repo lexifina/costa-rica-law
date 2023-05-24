@@ -110,6 +110,7 @@ articulo-105.md
 articulo-106.md
 articulo-107.md
 articulo-108.md
+articulo-108-bis.md
 articulo-109.md
 articulo-109-bis.md
 articulo-109-ter.md

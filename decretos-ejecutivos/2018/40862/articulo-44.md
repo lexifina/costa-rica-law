@@ -4,10 +4,10 @@ b) El estudiantado de I y II Ciclos de la Educación General Básica que apruebe
 c) Los estudiantes de sexto año de la Educación General Básica, que hayan cumplido con:
 . Haber realizado la Prueba Nacional Estandarizada, según los requisitos señalados en el capítulo V de este reglamento.
 . La aprobación de todas las asignaturas del respectivo plan de estudios.
-. Obtener el puntaje mínimo de 65, correspondiente a la ponderación de las asignaturas objeto de medición y porcentaje de la Prueba Nacional Estandarizada, según las disposiciones presentes en el artículo 103 inciso c) de este reglamento.
-. Se considerarán promovidos del II Ciclo de la Educación General Básica y serán acreedores del certificado de Conclusión de la Educación General Básica del I y II Ciclo conforme a lo señalado en los artículos 80, 101, 102, 103 y 104 del presente reglamento.
-En el Plan de Estudio de Educación de Adultos, la condición de egresado del respectivo nivel la obtendrá el estudiante al aprobar la totalidad de los módulos y créditos del IV período del II nivel y al haber realizado la Prueba Nacional Estandarizada según corresponda.
-(Así adicionado el inciso c) anterior por el artículo 2° del decreto ejecutivo N° 43942 del 2 de febrero del 2023)
+. Obtener el puntaje mínimo de 65, correspondiente a la ponderación de las asignaturas objeto de medición y porcentaje de la Prueba Nacional Estandarizada, según las disposiciones presentes en el artículo 101 inciso c) de este reglamento.
+. Se considerarán promovidos del II Ciclo de la Educación General Básica y serán acreedores del certificado de Conclusión de la Educación General Básica del I y II Ciclo conforme a lo señalado en los artículos 80, 99, 100 y 101 del presente reglamento.
+En el Plan de Estudio de Educación de Adultos, la condición de egresado del respectivo nivel la obtendrá el estudiante al aprobar la totalidad de los módulos y créditos del VI período del I nivel y al haber realizado la Prueba Nacional Estandarizada según corresponda. (...)"
+(Así reformado el inciso c) anterior por el artículo 1° del decreto ejecutivo N° 44103 del 24 de mayo del 2023)
 d) A partir del sétimo año de la Educación General Básica y en los módulos equivalentes al sétimo año del segundo Nivel del Plan de Estudios de Educación de Adultos, el estudiantado que apruebe todas las asignaturas, subáreas, períodos o módulos, siempre y cuando sean requisitos para avanzar, tendrá derecho a ubicarse en el año escolar, período, semestre o nivel inmediato superior respectivo, o bien, tendrá derecho a ostentar la condición de egresado del respectivo año escolar, período o nivel, según corresponda.
 (Así adicionado el inciso anterior por el artículo 2° del decreto ejecutivo N° 43942 del 2 de febrero del 2023)
 e) Los estudiantes de último año de la Educación Diversificada, que hayan cumplido con:
