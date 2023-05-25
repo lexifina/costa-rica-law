@@ -17,3 +17,4 @@ Manual de atinencias y especialidades del sector administrativo de la Universida
 | 2 | 2021-09-09 | Reglamento 21 (2021-09-09) |
 | 3 | 2022-09-29 | Reglamento 26 (2022-09-29) |
 | 4 | 2023-03-23 | Reglamento 11 (2023-03-23) |
+| 5 | 2023-05-25 | Reglamento 12 (2023-05-25) |
