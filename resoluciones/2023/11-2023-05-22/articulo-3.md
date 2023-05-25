@@ -1,0 +1,1 @@
+Artículo 3. - Cuando en el curso del procedimiento sancionatorio cambie la Administración Tributaria competente, por variación del domicilio fiscal o de la clasificación del obligado tributario, deberá continuar con el procedimiento la anterior Administración Tributaria hasta la resolución y firmeza del mismo.
