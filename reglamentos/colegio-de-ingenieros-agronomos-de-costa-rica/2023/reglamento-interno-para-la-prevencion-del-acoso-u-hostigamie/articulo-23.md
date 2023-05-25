@@ -1,0 +1,4 @@
+Art. 23.-Tipos de Sanciones. Con base en el artículo 34 de la Ley N° 7476 y su reforma, Ley N° 8805, las sanciones por acoso sexual se aplicarán según la gravedad de los hechos y serán las siguientes: la amonestación escrita, la suspensión y el despido, sin perjuicio de que se acuda a la vía correspondiente, cuando las conductas también constituyan hechos punibles, según lo establecido en el Código Penal.
+La información relativa a estas sanciones, incluyendo la identidad de las personas sancionadas, será de acceso público, después de la firmeza de estas.
+Si se trata del patrono o alguna de sus jefaturas, éstos serán responsables personalmente por sus actuaciones, respecto de las cuales deberán responder en la vía judicial, una vez que la gestión se haya presentado ante esa sede.
+Si la persona denunciante no está satisfecha con el resultado al que se llegue, podrá interponer la denuncia correspondiente ante los tribunales de trabajo de la República de Costa Rica.

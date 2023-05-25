@@ -1,0 +1,1 @@
+Art. 26.-Plazo para Realizar la Investigación y su Ampliación. Los plazos señalados para tramitar y resolver las denuncias que se presenten se podrán ampliar, siempre y cuando, con ello no se supere el término de tres meses, contados desde el momento de interposición de la denuncia.

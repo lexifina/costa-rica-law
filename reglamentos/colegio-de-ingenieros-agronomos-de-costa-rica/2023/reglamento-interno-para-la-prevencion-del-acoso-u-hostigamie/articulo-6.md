@@ -1,0 +1,1 @@
+Art. 6º-Faltas en contra de la Política. El incumplimiento del procedimiento descrito en este Reglamento, por parte de cualquier trabajador (a), podrá ser una falta grave, que ameritará un despido sin responsabilidad patronal.

@@ -1,0 +1,1 @@
+Art. 13.-Comunicación al Ministerio de Trabajo. Una vez presentada la denuncia, la Comisión Investigadora comunicará a la Inspección de Trabajo del Ministerio de Trabajo y Seguridad Social sobre la existencia de la denuncia, con el objetivo de que esta instancia ejerza sus competencias y vele por el cumplimiento de la ley.

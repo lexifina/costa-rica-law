@@ -1,0 +1,1 @@
+Art. 29.-Disposiciones supletorias. Para todo lo no regulado expresamente en este Reglamento, se aplicarán, supletoriamente, las disposiciones de la Ley contra el Hostigamiento Sexual en el Empleo y la Docencia y Código de Trabajo.

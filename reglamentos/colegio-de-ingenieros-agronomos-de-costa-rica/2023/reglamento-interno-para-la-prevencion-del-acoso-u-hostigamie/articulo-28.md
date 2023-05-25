@@ -1,0 +1,2 @@
+Art. 28.-Registro de Sanciones en Firme: El CIAGRO mantendrá un registro actualizado de las sanciones en firme, impuestas por conductas de acoso sexual. Este registro podrá ser consultado por cualquier persona interesada, resguardando la identidad, los datos personales y cualquier otra información sensible de las víctimas. La información se mantendrá en el registro por un plazo de diez años, a partir de la firmeza de la respectiva sanción.
+Se exceptúan de la aplicación de este artículo las personas menores de edad.
