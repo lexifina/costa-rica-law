@@ -14,3 +14,4 @@ Reforma Regulaciones Política Monetaria del Banco Central de Costa Rica
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1997-11-04 | la propia norma |
+| 2 | 2023-05-25 | Reglamento 6121 (2023-05-25) |
