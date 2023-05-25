@@ -1,0 +1,3 @@
+ARTÍCULO SEGUNDO. VIGENCIA Y EFECTOS: Las cláusulas de las Directrices que no han sido modificadas, ampliadas o suprimidas mediante esta adenda, se mantienen vigentes, incólumes y son de acatamiento obligatorio para usuarios en general, Agentes de Migración en el Exterior, Direcciones, Gestiones, Unidades, Departamentos, Delegaciones y Oficinas Regionales de la Dirección General de Migración y Extranjería.
+Esta adenda forma parte integral de las DIRECTRICES GENERALES DE VISAS DE INGRESO Y PERMANENCIA PARA NO RESIDENTES CIRCULAR DG-55-03-2023 y empezará a regir a partir de su publicación en el Diario Oficial La Gaceta.
+ES TODO.
