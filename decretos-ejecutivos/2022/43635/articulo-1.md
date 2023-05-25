@@ -18,4 +18,5 @@ d) Esteban José Ramírez Bioley, portador de la cédula de identidad N° 1-0767
 e) Gilbert Ureña Fonseca, portador de la cédula de identidad N° 3-0208-0649, representante del Sector de Transporte Remunerado de Personas en Vehículos Automotores en la Modalidad de Taxi.
 f) Dennia Yaslyn Morales Grajal, portador de la cédula de identidad N° 7-0179-0177, como representante de la Unión Nacional de Gobiernos Locales.
 (Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 43873 del 17 de enero del 2023. De acuerdo con el artículo 3° del decreto ejecutivo antes mencionado, dicha modificación empieza a regir a partir de la aceptación del cargo)
-g) Erick Gerardo Ulate Quesada, portador de la cédula de identidad N° 1-0902- 0837, representante de los Usuarios.
+g) Esteban Hernández Núñez, portador de la cédula de identidad N° 1-0897-0709, como representante de los usuarios.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 44174 del 25 de mayo de 2023)
