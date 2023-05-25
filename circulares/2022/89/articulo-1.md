@@ -1,4 +1,6 @@
+(Derogado)
 CIRCULAR N° 89-2022
+(Esta norma se dejó sin efecto mediante circular N° 110-2023 del 25 de mayo del 2023 y publicada en el Boletín Judicial N° 105 del 13 de junio del 2023)
 ASUNTO: Actualización de la Circular 91-2010 y el formulario F-441 denominado "Préstamo de expedientes.
 A LOS DESPACHOS JUDICIALES DEL PAÍS
 SE LES HACE SABER QUE:

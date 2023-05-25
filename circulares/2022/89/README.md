@@ -13,3 +13,4 @@ Actualización de la Circular 91-2010 y el formulario F-441 denominado "Préstam
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-05-16 | la propia norma |
+| 2 | 2023-05-25 | Circular 110 (2023-05-25) |
