@@ -1,0 +1,1 @@
+Artículo 7°-Forma de Pago. Toda compra que se realice mediante el Fondo Especial, deberá ser hecha estrictamente al contado, contra la presentación de la respectiva factura comercial o comprobantes autorizados.
