@@ -17,3 +17,4 @@ Manual de atinencias y especialidades docentes
 | 2 | 2022-11-10 | Reglamento 29 (2022-11-10) |
 | 3 | 2022-12-08 | Reglamento 31 (2022-12-08) |
 | 4 | 2023-01-26 | Reglamento 2 (2023-01-26) |
+| 5 | 2023-05-25 | Reglamento 12 (2023-05-25) |
