@@ -13,3 +13,4 @@ Reiteración de la circular N° 91-2010 “Acceso a los expedientes judiciales�
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-01-12 | la propia norma |
+| 2 | 2023-05-25 | Circular 110 (2023-05-25) |
