@@ -1,0 +1,1 @@
+Artículo 7º-Recibida la propuesta de mención honorífica por parte del Concejo Municipal, se analizará por la Comisión de Asuntos Culturales, la cual se encargará de estudiar y valorar cada uno de los legajos de las personas propuestas y emitirá la recomendación respectiva en un plazo máximo de quince días hábiles.

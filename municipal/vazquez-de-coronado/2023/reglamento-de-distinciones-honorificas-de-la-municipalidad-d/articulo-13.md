@@ -1,0 +1,1 @@
+Artículo 13.-Homenaje póstumo. Se podrán nominar a personajes distinguidos del cantón, que han destacado en los ámbitos anteriormente indicados, como reconocimiento por sus logros, gestiones y aportes para el cantón, como muestra de respeto ante sus familiares cercanos y agradecimiento por los esfuerzos de la persona nominada para tal fin.

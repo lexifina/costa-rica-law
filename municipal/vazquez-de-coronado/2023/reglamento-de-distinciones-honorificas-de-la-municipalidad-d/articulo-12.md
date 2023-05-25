@@ -1,0 +1,1 @@
+Artículo 12.-Declaratoria de interés cultural o cantonal. Podrá otorgarse declaratoria de interés cultural o cantonal, como una distinción honorífica, a aquellas actividades o proyectos que impliquen un aporte al desarrollo de la cultura, el arte, la ciencia, el ambiente, la salud, la tecnología o la economía del cantón de Vázquez de Coronado.

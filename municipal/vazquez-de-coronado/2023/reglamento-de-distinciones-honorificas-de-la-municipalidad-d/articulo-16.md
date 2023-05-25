@@ -1,0 +1,1 @@
+Artículo 16.-Toda entidad o persona que obtenga una distinción honorífica, deberá tener y mantener una conducta ciudadana intachable, honorable, buena reputación y prestigio, de tal forma que dignifique al cantón y al Gobierno Local.

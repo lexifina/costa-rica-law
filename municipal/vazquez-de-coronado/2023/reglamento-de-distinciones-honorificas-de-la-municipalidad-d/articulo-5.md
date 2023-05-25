@@ -1,0 +1,1 @@
+Artículo 5º-Del presupuesto. La administración activa establecerá en el presupuesto anual ordinario municipal una partida específica que sufragará todos los gastos que se deriven del acto solemne de reconocimiento de distinciones honoríficas, denominación de bienes inmuebles y reconocimientos especiales.
