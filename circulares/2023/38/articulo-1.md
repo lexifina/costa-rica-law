@@ -1,4 +1,6 @@
+(Derogado)
 CIRCULAR N° 38-2023
+(Esta norma se dejó sin efecto mediante circular N° 110-2023 del 25 de mayo del 2023 y publicada en el Boletín Judicial N° 105 del 13 de junio del 2023)
 ASUNTO: Uso del Formulario "Compromiso de Confidencialidad y Privacidad de la Información del Expediente Judicial (para las personas estudiantes de Derecho).
 A LAS INSTITUCIONES EDUCATIVAS, COLEGIO
 DE ABOGADAS Y ABOGADOS, SERVIDORAS,
@@ -19,7 +21,7 @@ Yo, (nombre y apellidos de la persona estudiante) ______________, cédula ______
 5. A adoptar medidas de prevención de uso, custodia y trasiego de la información recopilada en los dispositivos de almacenamiento y equipos tecnológicos en donde la misma sea guardada, para evitar que la misma sea modificada o destinada otros usos distintos a los fines académicos señalados.
 6. A que cualquier tratamiento de los datos personales de partes y testigos sea realizado de manera responsable, aplicando el deber de confidencialidad, absteniéndose de emitir sesgos subjetivos, descalificantes, discriminatorios, contrarios a la dignidad humana o falsos de tener la necesidad de ser empleados en sus actividades académicas.
 Todo lo anterior en cumplimiento de las normativas institucionales, nacionales e internacionales que regulan la protección de los datos.
-De acuerdo con lo establecido en la Ley N.º 8968 “Ley de Protección de la Persona Frente al Tratamiento de sus Datos Personales”, las personas que forman parte de los procesos judiciales tienen derecho a que se les garantice el respeto a sus derechos fundamentales, concretamente, el derecho a la autodeterminación informativa en relación con su vida o actividad privada, al derecho a la intimidad, así como a la confidencialidad de toda la información sensible que pudiera existir en los expedientes judiciales que se tramiten bajo la custodia del Poder Judicial, y que nadie pueda acceder a ella sin previa autorización.
+De acuerdo con lo establecido en la Ley N.º 8968 "Ley de Protección de la Persona Frente al Tratamiento de sus Datos Personales", las personas que forman parte de los procesos judiciales tienen derecho a que se les garantice el respeto a sus derechos fundamentales, concretamente, el derecho a la autodeterminación informativa en relación con su vida o actividad privada, al derecho a la intimidad, así como a la confidencialidad de toda la información sensible que pudiera existir en los expedientes judiciales que se tramiten bajo la custodia del Poder Judicial, y que nadie pueda acceder a ella sin previa autorización.
 La persona estudiante de derecho suscribiente del presente documento acepta y es conocedora de lo siguiente:
 1. Que las partes y testigos y cualquier persona que sea mencionada en un expediente judicial son los titulares de la información personal que conste de ellos.
 2. Que el presente compromiso no implica que la persona estudiante tenga acceso a aquellos expedientes en que por existir normativa especial y por la materia respectiva, exista ley que impida acceso a terceros no autorizados por las partes a todo o parte de los mismos.
