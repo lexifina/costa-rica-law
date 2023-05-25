@@ -14,3 +14,4 @@ Directrices Generales de Visas de Ingreso y Permanencia para No Residentes
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-03-28 | la propia norma |
+| 2 | 2023-05-25 | Resolución 95 (2023-05-25) |

@@ -237,7 +237,7 @@ MADAGASCAR
 MALAUI
 MALI
 MARRUECOS
-MAURITANIA
+(Mediante la adenda N° 1 de la Dirección General de Migración y Extranjería y publicada en el Alcance Digital N° 95 a La Gaceta N° 92 del 25 de mayo de 2023, se acordó excluir a: “ MAURITANIA”)
 MOLDOVA (MOLDAVIA)
 MONGOLIA
 MOZAMBIQUE
@@ -247,7 +247,7 @@ NICARAGUA*
 NÍGER
 NIGERIA
 OMÁN
-PAKISTÁN
+(Mediante la adenda N° 1 de la Dirección General de Migración y Extranjería y publicada en el Alcance Digital N° 95 a La Gaceta N° 92 del 25 de mayo de 2023, se acordó excluir a: “ PAKISTÁN”)
 PAPÚA NUEVA GUINEA
 REPÚBLICA ÁRABE SAHARAHUI DEMOCRÁTICA (SAHARA OCCIDENTAL)
 REPÚBLICA CENTROAFRICANA
@@ -295,7 +295,11 @@ IRÁN
 IRAK
 JAMAICA
 MYANMAR (BIRMANIA)
+MAURITANIA
+MAURITANIA
+(Así adicionado el país anterior mediante la adenda N° 1 de la Dirección General de Migración y Extranjería y publicada en el Alcance Digital N° 95 a La Gaceta N° 92 del 25 de mayo de 2023)
 PALESTINA
+(Así adicionado el país anterior mediante la adenda N° 1 de la Dirección General de Migración y Extranjería y publicada en el Alcance Digital N° 95 a La Gaceta N° 92 del 25 de mayo de 2023)
 REPÚBLICA ÁRABE SIRIA
 REPÚBLICA POPULAR DEMOCRÁTICA DE COREA (COREA DEL NORTE)
 SOMALIA
@@ -353,7 +357,8 @@ Cuando la norma exija certificado del Registro Civil para la demostración del v
 Para efectos de solicitudes de visas le serán aplicables en todos sus extremos los alcances de las medidas excepcionales relativas a los pasaportes, antecedentes penales y certificados de nacimiento de personas venezolanas publicadas en la resolución AJ-117-10-2019-JM de las 14 horas 55 minutos del 07 de octubre 2019, publicada en la Gaceta N° 199 del 21 de octubre del 2019 y resolución AJ-060-04-2019-JM de las 14h 55 minutos del 29 de abril 2019, publicada en La Gaceta N° 109 del 12 de junio de 2019. Los certificados de nacimiento apostillados, tendrán vigencia indefinida.
 Para efectos de control migratorio tanto de ingreso como egreso a Costa Rica, se aceptará el pasaporte y/o la prórroga que conste dentro del pasaporte, ya sea estampada o adherida al mismo, por medio de adhesivo y que cumpla con las regulaciones emitidas por medio de la OACI, hasta con un día de vigencia, o bien la prórroga automática regulada en la resolución AJ-117-10-2019-JM de las 14 horas 55 minutos del 07 de octubre 2019, publicada en la Gaceta N° 199 del 21 de octubre del 2019.
 CUARTO: VISAS PARA TRÁNSITO AEROPORTUARIO.
-Toda persona nacional de Azerbaiyán, Camerún, Cuba, Haití, India, Kazajistán, Kirguistán, Nicaragua, Tayikistán, Turkmenistán, Uzbekistán y Venezuela que pretenda ingresar al país vía aérea bajo la categoría migratoria de No Residente, subcategoría Persona Extranjera en Tránsito, para efectuar el cambio de aeronave, deberá presentar obligatoriamente los requisitos y respetar los procedimientos, que al efecto establezca esta Dirección General.
+Toda persona nacional de los países del cuarto grupo, además de los nacionales de Angola, Benín, Burkina Faso, Cabo Verde, Camerún, Gambia, Georgia, Ghana, Guinea, Guinea-Bisáu (Guinea Bissau), Guinea Ecuatorial, India, Kenia, Mali, Marruecos, Mozambique, Nicaragua, Nigeria, República del Congo, Senegal, Togo, Yibuti, Yemen y Venezuela que pretendan ingresar al país vía aérea bajo la categoría migratoria de No Residente, subcategoría Persona Extranjera en Tránsito, para efectuar el cambio de aeronave, deberá presentar obligatoriamente los requisitos y respetar los procedimientos, que al efecto establezca esta Dirección General.
+(Así reformado el párrafo anterior por la adenda N° 1 de la Dirección General de Migración y Extranjería y publicada en el Alcance Digital N° 95 a La Gaceta N° 92 del 25 de mayo de 2023)
 Requisitos para la visa aeroportuaria:
 Los requisitos que se debe presentar por la persona interesada ante el Consulado de Costa Rica en su país de origen o un tercer Consulado autorizado en el exterior para la visa de tránsito aeroportuario son los siguientes:
 1. Solicitud dirigida al Cónsul de Costa Rica en la que se incluya la siguiente información del solicitante:
