@@ -2,8 +2,8 @@
 Disposiciones sobre encaje mínimo legal
 (*) CAPITULO I
 Requisito de encaje mínimo legal
-A. Entidades sujetas al requisito de encaje
-Estarán sujetas al requisito de encaje mínimo legal las siguientes entidades:
+A. Entidades sujetas al requerimiento de encaje mínimo legal estarán sujetas al requerimiento de encaje mínimo legal las entidades financieras supervisadas por la Sugef.
+(Así reformado el párrafo anterior en sesión N° 6121 del 25 de mayo de 2023)
 (*) 1. Las instituciones financieras supervisadas por la Superintendencia General de Entidades Financieras, salvo las que expresamente exima la Junta Directiva del Banco Central de Costa Rica. Particularmente deben cumplir con este requisito:
 i. Los bancos comerciales del Sistema Bancario Nacional.
 ii. Las empresas financieras no bancarias.
@@ -14,6 +14,11 @@ vi. Las Cooperativas de Ahorro y Crédito que realizan operaciones financieras c
 vii. Cualquier otra entidad sujeta a la supervisión de la Superintendencia General de Entidades Financieras y que no haya sido expresamente eximida del encaje por la Junta Directiva del Banco Central.
 (*) (Así reformado el numeral anterior en sesión N° 5067 del 21 de febrero de 2001)
 2- Los puestos de bolsa que utilicen mecanismos de administración de carteras de títulos, tales como los denominados OPAB, CAV, OMED o similares.
+(*)Transitorio: Referente al Literal A del Capítulo I, del Título III.
+Las cooperativas de ahorro y crédito supervisadas por la Sugef estarán obligadas a cumplir con el requerimiento del encaje mínimo legal, para operaciones en moneda nacional y moneda extranjera, a partir del 1° de abril del 2024, con la siguiente gradualidad:
+[imagen]
+Durante este período y hasta el 30 de setiembre del 2028, estas entidades deberán cumplir el requerimiento de encaje legal por el porcentaje indicado y el requerimiento de reserva de liquidez por el complemento para alcanzar el 15%.
+(*) (Así adicionado el transitorio anterior en sesión N° 6121 del 25 de mayo de 2023)
 B. Operaciones sujetas al requisito de encaje
 (*) Estarán sujetas al requisito de encaje mínimo legal el saldo de todos aquellos depósitos y obligaciones, en moneda nacional, en unidades de desarrollo y en moneda extranjera, que constituyan las entidades mencionadas en el literal A de este Capítulo. Lo anterior comprende los siguientes instrumentos o similares:
 (*) (Así reformado el párrafo anterior en sesión N° 5276 del 26 de abril de 2006)
@@ -29,25 +34,16 @@ iii. Los mecanismos de administración de carteras de títulos que mantienen los
 5.- Cualquier otra operación cuya realidad económica sea semejante a las operaciones indicadas en los numerales anteriores.
 En este caso, si la Superintendencia General de Entidades Financieras o el Banco Central de Costa Rica determinaran que una figura financiera cumple con las características indicadas y debe ser sujeta a control monetario, informarán al medio financiero. Los intermediarios sujetos a este requerimiento tendrán, a partir de la fecha de notificación, dos quincenas naturales para incorporar dicha figura en el cálculo de los pasivos sujetos a encaje legal.
 (Así adicionado el numeral 5) anterior por el punto 2) de la sesión N° 5686 del 6 de mayo de 2015)
-Transitorio:
-El saldo de las operaciones de endeudamiento externo de mediano y largo plazo contratadas y formalizadas mediante pagaré, confirmación de compromiso vía Swift o cualquier otro medio de formalización ocurrido antes del 1° de julio del 2015 y no sujetas al encaje mínimo legal según la regulación vigente en el momento de su formalización, mantendrá esa condición hasta su vencimiento.
+Transitorio: (Eliminado en sesión N° 6121 del 25 de mayo de 2023)
 (Así adicionado el transitorio anterior por el punto 2) de la sesión N° 5686 del 6 de mayo de 2015)
 (*)C. Tasas de encaje
 Las tasas de encaje mínimo legal que aplicarán sobre las operaciones indicadas en el literal anterior son las siguientes:
 El 15,0% sobre los depósitos y obligaciones en moneda nacional y en unidades de desarrollo, sobre las operaciones de captación de recursos en moneda nacional y en unidades de desarrollo realizadas mediante fideicomisos o contratos de administración, así como sobre las operaciones de endeudamiento externo en moneda nacional.
 (*) (Así reformado el literal c) anterior en sesión N° 6066-2022 del 15 de junio del 2022)
-Transitorio:
-El saldo de las operaciones de endeudamiento externo de mediano y largo plazo formalizadas a partir del 1° de julio del 2015, mediante pagaré, confirmación de compromiso vía Swift o cualquier otro medio de formalización, estará sujeto al encaje mínimo legal, según la siguiente gradualidad:
-A partir del: 1° de julio del 2015 | Tasa de encaje legal 5%
-1° de agosto del 2015 | 10%
-1° de setiembre del 2015 | 15%
+Transitorio: (Eliminado en sesión N° 6121 del 25 de mayo de 2023)
 (*) (Así reformado el literal c) anterior por el punto 3) de la sesión N° 5686 del 6 de mayo de 2015)
-Transitorio referente al Literal C del Capítulo I, del Título III.
-El aumento en la tasa de encaje mínimo legal en moneda nacional será de aplicación gradual, según se detalla seguidamente:
-A partir de | Tasa EML
-1era quincena de julio, 2022 | 13,5%
-2da quincena de julio, 2022 | 15,0%
-(*) (Así adicionado el transitorio anterior en sesión N° 6066-2022 del 15 de junio del 2022)
+Transitorio referente al Literal C del Capítulo I, del Título III. (Eliminado en sesión N° 6121 del 25 de mayo de 2023)
+(Así adicionado el transitorio anterior en sesión N° 6066-2022 del 15 de junio del 2022)
 D. Excepciones y deducciones
 (*)1. Se exceptúan del requerimiento de encaje mínimo legal las operaciones cuyo origen esté relacionado con:
 a. Los préstamos otorgados por el Banco Central de Costa Rica.
