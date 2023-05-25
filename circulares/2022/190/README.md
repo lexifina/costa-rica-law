@@ -13,3 +13,4 @@ Protocolo de seguridad para la verificación de solicitudes de retiro de depósi
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-10-05 | la propia norma |
+| 2 | 2023-05-25 | Circular 118 (2023-05-25) |
