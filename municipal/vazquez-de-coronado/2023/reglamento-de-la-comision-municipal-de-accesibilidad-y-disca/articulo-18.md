@@ -1,0 +1,1 @@
+Artículo 18.-Régimen sancionatorio. Cualquier infracción contra la presente normativa será sancionada, de acuerdo con lo establecido la Ley 7600, y cualquier otra norma en materia de discapacidad, el Estatuto del Servicio Civil y su Reglamento, la Ley General de la Administración Pública y demás normativa aplicable o accesoria a la materia.

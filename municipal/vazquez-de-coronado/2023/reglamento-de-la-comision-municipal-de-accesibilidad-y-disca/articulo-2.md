@@ -1,0 +1,1 @@
+Artículo 2°-Ámbito de aplicación. Las disposiciones de este Reglamento son de acatamiento obligatorio para todas las personas físicas o jurídicas, públicas o privadas dentro del territorio del Cantón de Vázquez de Coronado y la Municipalidad de ese Cantón y la COMAD deben velar por su cumplimiento.

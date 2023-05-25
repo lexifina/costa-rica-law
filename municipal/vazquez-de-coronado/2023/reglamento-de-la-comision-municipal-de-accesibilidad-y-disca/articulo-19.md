@@ -1,0 +1,1 @@
+Artículo 19.-Normativa supletoria. Para lo no contenido en el presente reglamento, la COMAD se regirá supletoriamente por lo dispuesto en la Convención sobre los Derechos de las Personas con Discapacidad, Ley 7600 y su Reglamento, Ley 8822 y cualquier otra norma en materia de discapacidad.

@@ -1,0 +1,3 @@
+Artículo 7°-Plazo de nombramientos. Las personas integrantes de la COMAD desempeñarán sus cargos por un período de dos años y podrán ser reelectos por tres períodos consecutivos.
+El integrante de la Comisión que, sin justa causa, se ausente de tres sesiones consecutivas, será sustituido en forma definitiva, por otra persona designada por la Presidencia Municipal.
+Las personas asesoras de la sociedad civil de la COMAD podrán ser nombradas por el mismo periodo que las personas integrantes de la COMAD y su elección y nombramiento se realizará en el seno de la COMAD. Los funcionarios municipales que brinden asesoría a la COMAD serán elegidos y nombrados directamente por la Alcaldía Municipal.
