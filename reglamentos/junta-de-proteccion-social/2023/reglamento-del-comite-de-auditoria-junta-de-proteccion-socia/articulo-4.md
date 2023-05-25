@@ -1,0 +1,2 @@
+Artículo 4º-El Comité podrá asesorarse con las personas que estime pertinente, ya sean personas externas o servidores y colaboradores internos de la Junta de Protección Social, siendo que en este último caso la colaboración o asesoría requerida será obligatoria. Estos asesores no tendrán voto, únicamente su condición de asesores del Comité.
+Modificado según acuerdo JD-032 correspondiente al Capítulo IV), artículo 10) de la Sesión Ordinaria 05-2021 celebrada el 25 de enero de 2021.

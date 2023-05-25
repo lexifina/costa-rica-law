@@ -1,0 +1,1 @@
+Artículo 14.-Los puntos principales de las deliberaciones, la forma y resultado de las votaciones, los acuerdos que se tomen en las reuniones y los votos disidentes, constarán en las actas o minutas electrónicas, así como las grabaciones correspondientes.

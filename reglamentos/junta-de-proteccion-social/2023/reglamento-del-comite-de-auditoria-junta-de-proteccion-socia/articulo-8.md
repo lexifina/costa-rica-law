@@ -1,0 +1,1 @@
+Artículo 8º-En las sesiones ordinarias o extraordinarias podrán participar, el auditor, el subauditor interno, así como cualquier otro funcionario, u otra persona que en el seno del Comité se considere necesario. Ninguna de las personas invitadas tendrá voto.
