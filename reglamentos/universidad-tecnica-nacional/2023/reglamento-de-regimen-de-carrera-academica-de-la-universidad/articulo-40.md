@@ -1,0 +1,1 @@
+Artículo 40. Puntaje aplicable para obras didácticas y artísticas. Por la complejidad y especialización técnica o profesional requerida, el puntaje aplicable para el factor de obras didácticas y artísticas, se regula por la norma que emita la CCA para este fin.

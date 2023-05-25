@@ -1,0 +1,1 @@
+Artículo 2. Alcance. El ámbito de aplicación del presente reglamento es para las personas académicas, coordinaciones, direcciones y jefaturas de áreas, proyectos y programas académicos de la Universidad Técnica Nacional, independientemente de la condición de su nombramiento.

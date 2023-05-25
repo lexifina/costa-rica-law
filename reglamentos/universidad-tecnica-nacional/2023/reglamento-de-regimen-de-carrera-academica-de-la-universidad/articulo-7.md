@@ -1,0 +1,1 @@
+Artículo 7. integración. Está conformada por una persona representante de la Vicerrectoría de Docencia, una persona representante de la Dirección de Gestión de Desarrollo Humano y tres personas académicas. Los miembros de la CCA deben ser nombrados por el Rector.

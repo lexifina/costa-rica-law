@@ -1,0 +1,1 @@
+Artículo. 27. Servicios profesionales. Se suman puntos por servicio profesional u honorarios profesionales, por el ejercicio académico contratado en universidades públicas. Mediante certificación emitida por la institución de origen o declaración jurada para tales efectos.

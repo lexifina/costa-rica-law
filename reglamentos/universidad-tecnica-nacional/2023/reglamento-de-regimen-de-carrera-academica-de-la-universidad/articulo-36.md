@@ -1,0 +1,9 @@
+Sección VI: Proyección Universitaria
+Artículo 36. Proyección Universitaria considerada para el cómputo. Se entiende por proyección universitaria la realización de actividades de interés institucional y en representación oficial de la Universidad, la cual debe ser debidamente acreditada por la autoridad universitaria competente, asimismo sean dirigidas a comunidades, instituciones, organismos nacionales e internacionales u otras personas jurídicas y no sean parte de las labores propias del cargo. En este sentido las actividades de Proyección Universitaria que se consideran como tal son las siguientes:
+1. Representación en Consejos Editoriales, entendida ésta como la pertenencia ad-honorem a un Consejo Editorial o en Juntas.
+2. Participación o representación en Comisiones, Consejos o Juntas directivas de instituciones públicas ad honorem u organismos externos a la Universidad, ya sea nacional e internacional, debidamente constituidos.
+3. Jurado en premios nacionales e internacionales
+4. Realización de proyectos de interés institucional en investigación, extensión, acción social universitaria y vida estudiantil.
+5. Ponencia académica.
+6. Miembro u integrante de los equipos de gestión curricular de creación de nuevas carreras o rediseños tipo o nivel 3 de planes de estudios en los que participe. Se consigna su participación cuando aparece como integrante en los documentos aprobados u oficiales finales de las carreras o planes de estudios con al menos dos años de estarse ejecutando.
+7. Miembro u integrante de los equipos de gestión de calidad académica para procesos de acreditación o reacreditación de carreras o programas en los que participe. Se consigna su participación cuando aparece su participación en los documentos aprobados u oficiales finales de los programas acreditados o reacreditados de las carreras o planes de estudios.

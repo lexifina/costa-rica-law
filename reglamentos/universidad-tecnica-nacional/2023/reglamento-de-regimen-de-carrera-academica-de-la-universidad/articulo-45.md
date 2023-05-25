@@ -1,0 +1,1 @@
+Artículo 45. Reconocimientos. Suman puntaje los reconocimientos que se refieren a menciones al mérito académico como Cum Laude, Magna Cum Laude, Summa Cum Laude, o menciones honoríficas en el desempeño académico o profesional.

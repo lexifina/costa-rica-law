@@ -1,0 +1,1 @@
+Artículo 46. Puntaje por premios nacionales e internacionales. Se suman 5 puntos por premios o reconocimientos de carácter nacional e internacional. Si se recibe premio o reconocimiento nacional y premio o reconocimiento internacional debe reconocerse el puntaje por ambos reconocimientos.

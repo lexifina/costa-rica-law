@@ -1,0 +1,1 @@
+Artículo 52. Puntaje por aplicaciones y desarrollos tecnológicos. Se otorga un puntaje de entre uno y tres puntos a las aplicaciones y desarrollos tecnológicos presentados a la CCA para lo cual ésta establece la valoración según el criterio de personas expertas, el uso social y valor público de conformidad con la normativa que emita la CCA para su regulación.

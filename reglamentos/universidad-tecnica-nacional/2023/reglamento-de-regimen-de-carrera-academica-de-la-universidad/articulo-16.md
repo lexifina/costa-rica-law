@@ -1,0 +1,1 @@
+Artículo 16. Actualización en el Régimen. Cualquier actualización en el Régimen de carrera académica, debe realizarse a solicitud de la persona interesada y no de oficio por la CCA, para lo cual rige los mismos términos del ingreso.

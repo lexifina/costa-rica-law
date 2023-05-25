@@ -1,0 +1,1 @@
+Artículo 50. Certificar lenguas y lenguajes. La CCA reconoce certificaciones, exámenes, títulos y reconocimientos otorgados por instituciones competentes nacionales, internacionales, públicas o privadas para su respectiva valoración según el nivel alcanzado.

@@ -1,0 +1,1 @@
+Artículo 28. Experiencia profesional en otras instituciones del Estado. La experiencia profesional acumulada en otras instituciones del Estado, suma puntos con base en la certificación emitida por la dependencia que se encargue de los procesos de recursos humanos, siempre y cuando se cumplan los requisitos establecidos.

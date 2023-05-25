@@ -1,0 +1,1 @@
+Artículo 9. Periodo de nombramiento. Las personas miembros de la CCA se nombran por un periodo de dos años, teniendo la posibilidad de ser reelectas, de manera continua o diferida, por un periodo igual al original.

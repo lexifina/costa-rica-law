@@ -1,0 +1,1 @@
+Artículo 29. Incapacidades y licencias. Las incapacidades de cualquier tipo y licencias con goce de sueldo, para realizar estudios relacionados con la actividad del puesto desempeñado, no interrumpen el período de un año requerido para el cómputo de la experiencia.

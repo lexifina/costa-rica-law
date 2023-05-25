@@ -1,0 +1,1 @@
+Artículo 47. Puntaje por mérito académico o reconocimientos. Se suman 2 puntos por los reconocimientos que se refieren a menciones al mérito académico como Cum Laude, Magna Cum Laude, Summa Cum Laude, o menciones honoríficas en el desempeño académico o profesional, hasta un máximo de 10 puntos. Sección IX. Lenguas y lenguajes computacionales

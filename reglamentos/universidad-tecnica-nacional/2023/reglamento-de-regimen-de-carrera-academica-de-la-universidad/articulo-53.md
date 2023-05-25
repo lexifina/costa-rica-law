@@ -1,0 +1,21 @@
+CAPÍTULO V. ASCENSO EN RÉGIMEN DE CARRERA ACADÉMICA
+Artículo 53. Categorías y requisitos de ascenso. Para optar por el ascenso en el Régimen de Carrera Académica existen las siguientes categorías de puestos:
+1. Profesor 3: Constituye la primera categoría de ingreso al Régimen. Son requisitos:
+1. Poseer el grado de licenciatura en la especialidad requerida por la universidad en un área afín a la actividad laboral; o el grado de bachillerato en la especialidad requerida por la universidad en un área afín a la actividad laboral y un posgrado de Maestría en un área afín al bachillerato.
+2. Profesor Especialista 1 o Profesor 4: Corresponde el primer nivel de ascenso dentro del régimen académico de la UTN. Son requisitos:
+1. Poseer el grado de licenciatura en la especialidad requerida por la universidad y un posgrado de Maestría en un área afín a la actividad laboral, a la formación profesional o a las orientaciones, intereses y necesidades estratégicas de la UTN. En aquellos casos que el académico no ostenta el grado de Licenciatura, pero posee grados académicos superiores a éste, tales como, posgrado de Maestría y Doctorado, dos Maestrías o dos Doctorados, se definirá considerando que uno de los posgrados sea afín con el bachillerato y el otro sea afín a la actividad laboral, a la formación profesional o a las orientaciones, intereses y necesidades estratégicas de la UTN.
+2. Se requiere que la persona tenga una experiencia mínima de tres años en labores académicas a nivel universitario o en labores profesionales en el sector socio-productivo, en actividades vinculadas con el área de interés de la universidad; el requisito se considera cumplido con una combinación de ambas áreas de experiencia. 3. El requerimiento de experiencia mínima no se aplica a las personas becadas de posgrado de la UTN que hayan firmado un contrato de beca con la institución.
+3. Profesor Especialista 2: Corresponde al segundo nivel de ascenso dentro del régimen académico de la UTN. Son requisitos:
+1. Experiencia mínima de cinco años como persona académica en la Universidad Técnica Nacional u otra universidad.
+2. Un puntaje mínimo de 23 puntos en los factores de carrera académica.
+3. Al menos cinco puntos en publicaciones, obras didácticas, artísticas, ponencias o producción universitaria técnica y miembro de equipo de Universidad Técnica Nacional 15 gestión curricular y equipo de gestión de calidad académica según lo determinado por la CCA y su procedimiento.
+4. Profesor Asociado: La categoría de Asociado se refiere a la persona académica con amplia experiencia en la disciplina profesional, con vínculos a nivel nacional e internacional y excelencia en su desempeño académico. Corresponde al segundo nivel de ascenso dentro de la carrera académica de la UTN. Debe poseer:
+1. Experiencia académica mínima de siete años en la UTN u otra universidad.
+2. Al menos 5 puntos en el rubro de lenguas distintas al requerido para el ejercicio de la especialidad.
+3. Un puntaje mínimo de 37 puntos en los factores de carrera académica.
+4. Al menos 10 puntos en publicaciones, obras didácticas, artísticas, ponencias o producción universitaria técnica según lo determinado en este Reglamento y miembro de equipo de gestión curricular y equipo de gestión de calidad académica.
+5. Las personas académicas que se encuentran en la categoría de profesor (a) asociado(a) puede solicitar una licencia con descarga de tiempo docente de hasta un 50 % para cursar estudios doctorales.
+4. Profesor Catedrático: La categoría de Catedrático se refiere a la máxima categoría para personas académicas que hayan demostrado excelencia en su desempeño, producción académica, científico-tecnológica y proyección profesional y académica, a nivel nacional e internacional. Corresponde a la máxima categoría académica de la UTN. Son requisitos:
+1. La experiencia mínima de diez años como académico en la Universidad Técnica Nacional u otra universidad.
+2. Un puntaje mínimo de 77 puntos en los factores de carrera académica.
+3. Al menos 20 puntos en publicaciones, obras didácticas, artísticas, ponencias producción universitaria técnica según lo determinado en este Reglamento y miembro de equipo de gestión curricular y equipo de gestión de calidad académica.

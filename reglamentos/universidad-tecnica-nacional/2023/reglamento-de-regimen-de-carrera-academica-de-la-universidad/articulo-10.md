@@ -1,0 +1,1 @@
+Artículo 10. Presidencia y secretaría. La presidencia y la secretaría de la CCA son electas de entre sus miembros, por el término establecido en este reglamento, por mayoría simple de las personas miembros de la CCA.

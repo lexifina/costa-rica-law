@@ -1,0 +1,1 @@
+Artículo 37. Puntaje para proyección universitaria. Se otorga por concepto de proyección universitaria, un punto por cada año que haya ejercido en el cargo, hasta un máximo de 10 puntos. Debe presentar ante la CCA una certificación o el nombramiento oficial respectivo.
