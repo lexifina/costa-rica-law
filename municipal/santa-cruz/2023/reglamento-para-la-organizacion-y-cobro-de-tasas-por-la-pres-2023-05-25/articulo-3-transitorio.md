@@ -1,0 +1,2 @@
+Transitorio III. Se establece un plazo de seis meses para que el Departamento de Gestión Ambiental de la Municipalidad de Santa Cruz, elabore una propuesta de reglamento para la Gestión Integral de Residuos, donde se incluya un protocolo que contemple como mínimo los requisitos, mecanismos de verificación y fiscalización para el otorgamiento de incentivos a los generadores que realicen gestión integral de residuos en el cantón de Santa Cruz.
+Rige a partir de su publicación en el Diario Oficial La Gaceta.

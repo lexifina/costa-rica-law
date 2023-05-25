@@ -1,0 +1,1 @@
+Artículo 9° - Términos de prescripción de la deuda tributaria El periodo de prescripción de deudas registradas en la base de datos municipal (por servicios municipales) se regirá acorde a lo estipulado en el artículo 82 del Código Municipal.

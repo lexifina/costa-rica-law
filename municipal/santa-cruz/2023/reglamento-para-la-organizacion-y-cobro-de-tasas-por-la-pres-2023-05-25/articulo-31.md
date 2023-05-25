@@ -1,0 +1,1 @@
+Artículo 31° - Hecho generador. Ocupación, tenencia o posesión de un bien inmueble ubicado en el Cantón de Santa Cruz, donde existan estructuras superficiales de conducción pluvial como cordón de caño, zanjas o canales a cielo abierto y se brinde el servicio.

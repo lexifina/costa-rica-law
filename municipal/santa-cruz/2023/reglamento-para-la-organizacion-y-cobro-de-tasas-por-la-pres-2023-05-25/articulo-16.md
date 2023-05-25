@@ -1,0 +1,1 @@
+Artículo 16° - Hecho generador. Ocupación, tenencia o posesión de un predio en el cantón de Santa Cruz, donde se realice la prestación efectiva o potencial del servicio de Recolección de Residuos Ordinarios sobre al menos una unidad servida (ocupada o desocupada).

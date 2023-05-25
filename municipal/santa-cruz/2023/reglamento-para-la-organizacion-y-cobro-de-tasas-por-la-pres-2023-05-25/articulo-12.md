@@ -1,0 +1,1 @@
+Artículo 12º- Intereses a cargo del sujeto pasivo. En caso de que el pago se realice fuera del término establecido, generará multas e intereses moratorios, que se calcularán y regirán según lo establece el Código de Normas y Procedimientos Tributarios en sus artículos 57 y 58.

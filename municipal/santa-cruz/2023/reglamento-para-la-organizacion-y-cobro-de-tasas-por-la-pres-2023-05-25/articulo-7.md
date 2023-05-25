@@ -1,0 +1,1 @@
+Artículo 7° - Cobro del Servicio. La Municipalidad realizará el cobro de los servicios de Recolección de Residuos Ordinarios, Limpieza de Vías Públicas, Mantenimiento de Parques y Zonas Verdes y Disposición de Residuos Ordinarios según lo normado en el presente reglamento.
