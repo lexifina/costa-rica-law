@@ -1,0 +1,1 @@
+Artículo 12.-Presentación de solicitudes. Los Concejos de Distrito deberán presentar las solicitudes de intervención según lo establecido en el artículo anterior, ante la UTGVM, durante el trascurso del año, y serán analizadas de acuerdo a lo establecido en el artículo 9 del presente reglamento.
