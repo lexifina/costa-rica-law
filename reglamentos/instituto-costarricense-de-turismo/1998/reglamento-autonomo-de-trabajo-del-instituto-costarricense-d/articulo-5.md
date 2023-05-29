@@ -1,2 +1,0 @@
-Artículo 5°—Todo funcionario podrá ser requerido por sus superiores para efectuar cualquier trabajo, compatible con sus aptitudes, estado o condición, siempre que sea del mismo género de aquellos para cuya ejecución fue contratado y no perjudique los derechos adquiridos.
-Para tal caso deberá contar con la aprobación de la jefatura inmediata y la anuencia de la Gerencia.

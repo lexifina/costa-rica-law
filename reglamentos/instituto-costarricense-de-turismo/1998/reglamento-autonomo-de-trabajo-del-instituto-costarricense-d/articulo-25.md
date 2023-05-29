@@ -1,6 +1,0 @@
-CAPITULO IV
-Salarios
-Artículo 25.—Todo funcionario del Instituto recibirá su salario de acuerdo con lo consignado en la orden de personal correspondiente a su nombramiento o las emitidas posteriormente que señalen modificaciones, salario éste que, por su relación con el inciso f) del artículo 32 de la Ley Orgánica del ICT, nunca será inferior a lo que señala la Ley de Salarios de la Administración Pública (N° 2166). Los sueldos se pagarán en dinero efectivo, o por medio de cheques emitidos por el Instituto con cargo a una de sus cuentas bancarias, o por medio de transferencia electrónica a la diferentes cuentas corrientes de los empleados.
-El salario del servidor se cancelará los días trece y veintiocho de cada mes, o en su defecto, el día hábil anterior. En casos calificados ajuicio de la Gerencia, el pago podrá hacerse en fecha anterior a la indicada; éste se efectuará durante la jornada de servicio en los lagares donde se realizan las labores. En caso de coincidir el día de pago con un día feriado, se efectuará el día hábil inmediato anterior.
-Las categorías y los sueldos base correspondientes a los puestos del Instituto, son los que aparecen en el presupuesto de la Institución y que se consignan en la orden de personal.
-El salario correspondiente al mes de diciembre se liquidará el día trece de dicho mes.

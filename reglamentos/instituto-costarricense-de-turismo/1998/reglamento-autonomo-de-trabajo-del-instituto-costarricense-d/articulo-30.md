@@ -1,1 +1,0 @@
-Artículo 30.—Las vacaciones deberán concederse dentro de las quince semanas posteriores al día en que se cumplan las cincuenta semanas de servicio continuo, salvo que corresponda la acumulación, por causa justificada.

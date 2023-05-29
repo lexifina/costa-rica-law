@@ -1,1 +1,0 @@
-Artículo 33.—La compensación económica de vacaciones sólo procederá si existe normativa aplicable al efecto en el Sector Público, en ausencia de norma expresa se aplicará lo dispuesto por el artículo 156 del Código de Trabajo.

@@ -1,1 +1,0 @@
-Articulo 36.—Sin perjuicio de lo que dispone el artículo 18, los servidores de las oficinas regionales tendrán, para efecto de vacaciones la misma jornada ordinaria de trabajo que el personal de las oficinas centrales, o sea, de lunes a viernes.

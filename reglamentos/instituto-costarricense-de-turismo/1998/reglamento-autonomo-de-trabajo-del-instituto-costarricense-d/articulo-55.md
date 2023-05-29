@@ -1,2 +1,0 @@
-Artículo 55.- Además de las contenidas en otros artículos del presente reglamento se considerarán faltas graves las infracciones a las disposiciones de los artículos 21, 43, incisos: d), e), f), j), k), o) , q), r), s), t), u), v), w) , x), y), z) ; artículo 44, incisos: c), i), j), l); m) y n); artículo 45, incisos a), c), d), e), f), l), n), o), r), s), t), u), v) y artículos 58 y 61.
-(Así reformado mediante sesión N° 5953 del 30 de mayo del 2016)

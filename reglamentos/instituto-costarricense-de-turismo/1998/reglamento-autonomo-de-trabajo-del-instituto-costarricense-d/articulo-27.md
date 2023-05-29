@@ -1,2 +1,0 @@
-Artículo 27.—Para obtener derecho a vacaciones anuales, es necesario que el servidor haya prestado sus servicios durante cincuenta semanas continuas, efectivamente laboradas. El mismo derecho se adquiere cuando la orden de personal no le exija servir todas las horas de la jornada ordinaria, ni todos los días de la semana.
-No interrumpirán la continuidad del servicio las licencias sin goce de sueldo, la ausencia por enfermedad justificada, ni ninguna otra causa de suspensión legal de la relación servicio que no termine con la misma.

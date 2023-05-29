@@ -1,1 +1,0 @@
-Artículo 11.—El servidor interino que tenga más de tres meses de ocupar un puesto puede optar a un nombramiento en propiedad o a otro cargo, participando en el concurso interno que se promueva para llenar la plaza, siempre y cuando cumpla con el requisito indicado en el artículo 12, inciso b) de este Reglamento.

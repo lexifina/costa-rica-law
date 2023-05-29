@@ -1,1 +1,0 @@
-Artículo 20.—La Gerencia de común acuerdo con la jefatura inmediata, podrá fijar un horario diferente al establecido para la generalidad de los empleados del Instituto, en casos de labores desempeñadas por servidores que cumplan funciones especiales o que por la naturaleza del puesto así lo requiera.

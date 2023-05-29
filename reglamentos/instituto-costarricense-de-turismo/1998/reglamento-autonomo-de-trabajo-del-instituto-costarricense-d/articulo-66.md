@@ -1,1 +1,0 @@
-Artículo 66.—Las ausencias que excedan de dos días, deben ser justificadas mediante presentación del respectivo comprobante de incapacidad, si ese es el motivo, extendido por la Caja Costarricense de Seguro Social.

@@ -1,1 +1,0 @@
-Artículo 96.—Para garantizar el mejor servicio a la Institución, la jefatura respectiva podrá aplicar el período de prueba en todos los casos de ascenso y traslado, pero el servidor que sea trasladado, permutado o ascendido y deba pasar por el período de prueba, gozará de licencia de su cargo anterior, por el tiempo que dure dicho período de prueba, hasta un máximo de tres meses.

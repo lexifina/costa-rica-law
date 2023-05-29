@@ -1,1 +1,0 @@
-Artículo 90.—Durante la vigencia de cualquier incapacidad decretada por alguna de las Instituciones aseguradoras del Estado, el Instituto podrá comprobar cuántas veces lo estime conveniente, la subsistencia de la enfermedad o el buen uso del permiso, incluso podrá pedir que el certificado de la enfermedad, sea hecho por un médico ' escogido y remunerado por el propio ICT.

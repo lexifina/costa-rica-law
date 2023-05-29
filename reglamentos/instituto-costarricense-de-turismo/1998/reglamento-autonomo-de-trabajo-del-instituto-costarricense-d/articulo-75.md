@@ -1,3 +1,0 @@
-Artículo 75.—El Área de Personal, adoptará las medidas necesarias para proteger eficazmente la salud ocupacional de sus funcionarios, conforme a los términos del Código de Trabajo, Leyes Conexas, Reglamentos de Salud Ocupacional que se promulguen y a las recomendaciones que en esta materia formulen, tanto el Consejo de Salud Ocupacional, como las autoridades de inspección del Ministerio de Trabajo y Seguridad Social, Ministerio de Salud e Instituto Nacional de Seguros que garanticen:
-La protección de la salud y la preservación de la integridad psíquica, física, moral y social de los funcionarios y,
-La prevención y control de los riesgos del trabajo.

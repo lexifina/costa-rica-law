@@ -1,1 +1,0 @@
-Artículo 62.—El sistema de sanciones establecido en éste capítulo no será aplicable a las faltas cometidas por motivos de ausencias, llegadas tardías o abandono del servicio, que se regulan en los capítulos subsiguientes, para las cuales se establecerá el propio sistema de sanciones.

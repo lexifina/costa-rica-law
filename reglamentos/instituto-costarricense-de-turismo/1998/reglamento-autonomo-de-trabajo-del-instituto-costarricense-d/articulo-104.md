@@ -1,4 +1,0 @@
-Artículo 104.—Cuando un funcionario no hubiera cumplido un año de prestación de servicios, al momento de hacerse la calificación, o hubiera trabajado a las órdenes de diferentes jefaturas en el año anterior, se observarán las siguientes reglas:
-Si el funcionario no hubiera cumplido su período de prueba, su calificación de servicios estará sujeta a lo dispuesto por el artículo 13 de este Reglamento. Si hubiera trabajado más de tres meses, su calificación será por el tiempo de servicios prestados.
-Si el funcionario hubiera trabajado menos de un año, pero más de seis meses a las órdenes de una misma jefatura, corresponderá a ésta hacer su calificación.
-Si el funcionario hubiere estado a las órdenes de varias jefaturas durante el año, pero con ninguna más de seis meses, la calificación lo hará la jefatura con quien hubiera trabajado tres o más meses, debiendo tomar en cuenta los informes que en este caso, deberán rendir las otras jefaturas.

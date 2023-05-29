@@ -1,8 +1,0 @@
-Artículo 10.—Para ingresar al Instituto como funcionario regular, se establecen los siguientes requisitos:
-a) Poseer las condiciones morales y físicas, instrucción y experiencia necesarias para el buen desempeño del cargo, lo que deberá comprobar la Institución ya sea mediante concurso de oposición o investigaciones que emprenda, o por medio de certificaciones y recomendaciones que exija.
-b) Conocer y aceptar las condiciones del presente Reglamento, así como las disposiciones específicas que ,se puedan dictar para el desempeño de su cargo.
-c) Suministrar todos los datos y referencias necesarias que se le soliciten para establecer o completar su expediente personal, tratándose de copias, las mismas deben ser certificadas por un notario público o por el funcionario del Área de Personal, quien las confrontará con los documentos originales.
-d) No tener parentesco de consanguinidad o de afinidad hasta el tercer grado, inclusive, con personas que desempeñan algún cargo remunerado o por dieta en la Institución.
-(Así reformado el inciso anterior mediante sesión N° 5533 del 29 de julio de 2008)
-e) Satisfacer los requisitos mínimos especiales que establezca el Manual Descriptivo de Puestos para la clase de que se trate.
-f) Pasar el período de prueba. En caso de nombramientos para ocupar puestos de confianza según clasificación del cargo, los mismos se harán sin recurrir al sistema de concurso, dentro del límite máximo autorizado, según el nivel gerencial determinado por la Autoridad Presupuestaria. En lo demás, deberá sujetarse a lo que indica el artículo 4, inciso a) de este Reglamento.

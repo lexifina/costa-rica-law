@@ -1,1 +1,0 @@
-Artículo 59.—Se considerará como falta grave para efecto de su sanción, la circunstancia de que un empleado a quien se le haya concedido licencia para ausentarse temporalmente de su trabajo, se le compruebe que ha abusado de la licencia dada.

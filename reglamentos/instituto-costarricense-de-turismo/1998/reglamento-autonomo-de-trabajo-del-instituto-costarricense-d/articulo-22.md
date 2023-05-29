@@ -1,4 +1,0 @@
-Artículo 22.—Se considerará tiempo extraordinario el que exceda de la jornada ordinaria establecida. La jornada extraordinaria, por su propia naturaleza, solamente procede una vez concluida la jornada ordinaria, la cual puede ser modificada temporalmente por motivos y justificantes debidamente autorizados por la jefatura inmediata si la modificación no es mayor a un mes. Para modificaciones de jornadas ordinarias mayores a un mes, se debe tener también la autorización de la Gerencia General.
-La jornada ordinaria sumada a la extraordinaria no podrá ser mayor de doce horas. Para efecto de pago se hará conforme al artículo 139 del Código de Trabajo.
-Solamente se autorizará el tiempo extraordinario a funcionarios que laboren como mínimo una hora extra después de su jornada ordinaria.
-(Así reformado en sesión N° 5593 del 28 de julio de 2009)

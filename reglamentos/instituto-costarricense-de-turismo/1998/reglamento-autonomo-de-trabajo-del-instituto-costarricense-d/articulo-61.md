@@ -1,1 +1,0 @@
-Artículo 61.—Son causas que facultan al Instituto para dar por terminada la relación de servicio sin responsabilidad patronal, además de las consignadas en otros artículos de este Reglamento, todas las que estípula el artículo 81 del Código de Trabajo, las que correspondan de la Ley de la Administración Financiera de la República y demás leyes conexas.

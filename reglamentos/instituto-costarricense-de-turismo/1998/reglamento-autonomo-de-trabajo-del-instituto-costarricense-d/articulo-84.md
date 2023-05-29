@@ -1,1 +1,0 @@
-Artículo 84.—La responsabilidad del Instituto, en cuanto a asegurar' contra riesgos del trabajo, subsiste aún en el caso de que el servidor esté bajo la dirección de intermediarios, de quienes el Instituto se valga para la ejecución o realización del servicio.

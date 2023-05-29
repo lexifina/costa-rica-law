@@ -1,2 +1,0 @@
-Artículo 106.—Quedan prohibidas las prácticas que se consideren como hostigamiento o acoso sexual contra los trabajadores, de acuerdo con la Ley N° 7476,las denuncias y sanciones que regulan esta materia se regirán por el presente capítulo. Para ello la Comisión de Hostigamiento y Acoso Sexual designada por la Gerencia, deberá establecer un programa anual de información y capacitación relacionada al tema.
-(Así reformado en sesión N° 6005 del 6 de noviembre de 2017)

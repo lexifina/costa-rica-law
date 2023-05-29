@@ -1,1 +1,0 @@
-Artículo 91.—Todas las solicitudes de los funcionarios referentes a peticiones, quejas, reclamos y licencias, que se refieran la relación de servicio en todos sus aspectos, deberán ser hechos por escrito, ante el Área de Personal y las mismas serán resueltas por dicha Unidad en igual forma y de inmediato, cuando así lo exija la urgencia del asunto.

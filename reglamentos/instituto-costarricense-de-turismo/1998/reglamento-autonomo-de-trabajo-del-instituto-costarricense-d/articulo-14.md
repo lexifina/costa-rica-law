@@ -1,2 +1,0 @@
-Artículo 14.—El cargo a desempeñar por el funcionario será aquel que se indique bajo la codificación interna en la orden de personal respectiva, la cual estará sujeta a lo indicado en el Manual Descriptivo de Puestos. Dicho Manual deberá ser actualizado periódicamente, de acuerdo a las necesidades de la Institución, sin perjuicio de los derechos adquiridos.
-Previo a la aprobación de la modificación, se dará audiencia a los representantes de los servidores, para lo que a bien tengan sugerir al efecto.
