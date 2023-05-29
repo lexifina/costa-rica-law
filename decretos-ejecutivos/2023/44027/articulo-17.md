@@ -1,0 +1,2 @@
+Artículo 17.- Quórum y carácter no vinculante de las decisiones de la Junta de Adquisiciones. El -quórum para sesionar será con la totalidad de los miembros de la Junta de Adquisiciones y sus decisiones se tomarán por mayoría simple y el voto preferente en caso de empate será de quién preside la Junta
+El Proveedor Institucional de la Institución respectiva, o quién le represente durante sus ausencias, será quien presida las reuniones.

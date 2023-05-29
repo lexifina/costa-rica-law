@@ -1,0 +1,1 @@
+Artículo 21.-De las Derogatorias. Se deroga el Decreto Ejecutivo número 30640-H del 27 de junio de 2002, publicado en La Gaceta número 166 del 30 de agosto de 2002 y cualquier otra disposición reglamentaria que se le oponga.
