@@ -1,0 +1,1 @@
+Artículo 8°-La Dirección Gestión de Capital Humano, mediante un informe elaborado al efecto, establecerá los sujetos determinados en el inciso d) del artículo anterior, así como los montos a caucionar para estos.

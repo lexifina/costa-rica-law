@@ -1,0 +1,6 @@
+Artículo 13.-Cálculo de la caución. Según el nivel de responsabilidad el cálculo de los montos de las cauciones se hará de la siguiente manera:
+a) Nivel Superior: Quienes desempeñen puestos ubicados dentro de este nivel deberán rendir una caución que cubra el equivalente a cinco salarios base, de acuerdo con lo establecido en el artículo 12 del presente reglamento.
+b) Nivel Gerencial: Aquellos funcionarios que desempeñen puestos ubicados dentro de este nivel, deberán rendir una caución que cubra el equivalente a cuatro salarios base, de acuerdo con lo establecido en el artículo 12 del presente reglamento.
+c) Nivel Jefatura: Quienes desempeñen puestos ubicados dentro de este nivel deberán rendir una caución que cubra el equivalente a tres salarios base, de acuerdo con lo establecido en el artículo 12 del presente reglamento.
+Otros cargos o funciones sujetas a caución deberán rendir una caución que cubra el equivalente entre dos y cinco salarios base de acuerdo a lo establecido en los artículos 7 y 12.
+En el caso de los órganos fiscalizadores (o Administradores de Contratos) dependerá de los montos de los procedimientos de contratación administrativa a que se refiera el informe de la Dirección Gestión de Capital Humano, dispuesto en el artículo 8.

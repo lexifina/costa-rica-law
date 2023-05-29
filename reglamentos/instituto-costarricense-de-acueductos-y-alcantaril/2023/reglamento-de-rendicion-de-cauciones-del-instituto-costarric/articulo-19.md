@@ -1,0 +1,1 @@
+Artículo 19.-Al caucionante se le concederá un plazo establecido de dos meses, para que pueda ponerse al día con los pagos correspondientes, según lo señalado en este Reglamento, mismo que regirá a partir de la publicación de este Reglamento.

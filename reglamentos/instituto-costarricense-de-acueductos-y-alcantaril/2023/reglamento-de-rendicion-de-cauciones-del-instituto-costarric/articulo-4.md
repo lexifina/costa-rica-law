@@ -1,0 +1,1 @@
+Artículo 4°-Forma de rendir la caución. La caución a favor del AyA, se rendirá mediante depósito en la Dirección de Finanzas, por título valor, póliza de fidelidad personal o carta de garantía suscrita con cargo al peculio del funcionario o miembro de la Junta Directiva del AyA obligado a rendir caución, ante las entidades o empresas aseguradoras autorizadas para tal fin.

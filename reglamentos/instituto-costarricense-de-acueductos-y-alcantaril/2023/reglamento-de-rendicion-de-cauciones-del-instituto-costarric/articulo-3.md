@@ -1,0 +1,1 @@
+Artículo 3°-Finalidad. La caución tiene como finalidad garantizar el resarcimiento de eventuales daños y perjuicios que el funcionario o los miembros de la Junta Directiva del AyA, causen en el ejercicio de sus funciones al patrimonio del AyA, sin que ello limite la posible responsabilidad civil, penal y administrativa, que ello produzca.

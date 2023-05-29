@@ -1,0 +1,1 @@
+Artículo 18.-Es responsabilidad de cada dependencia justificar por escrito a la Dirección Gestión de Capital Humano cualquier cambio en las condiciones que dieron origen al pago de la caución con el fin de determinar si procede o no el cambio. La omisión en la respectiva y oportuna comunicación podrá dar lugar a la apertura de un procedimiento administrativo.
