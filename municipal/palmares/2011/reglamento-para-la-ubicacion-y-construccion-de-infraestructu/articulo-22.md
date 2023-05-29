@@ -1,2 +1,0 @@
-Artículo 22.—Se podrá construir en inmuebles públicos inscritos que no sean vías públicas como aceras, calles, espaldones, siempre y cuando no se perjudique su destino publico final, sujeto ello, al pago del canon correspondiente y siempre y cuando se cumplan las disposiciones del presente reglamento. Lo anterior con el propósito de contribuir con el plan de desarrollo regional y local de telecomunicaciones.
-(Así corrida su numeración mediante sesión N° 117 del 24 de julio del 2012, que lo traspasó del antiguo artículo 21 al 22)

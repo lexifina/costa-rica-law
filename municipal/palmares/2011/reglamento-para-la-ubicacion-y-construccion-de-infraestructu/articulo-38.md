@@ -1,2 +1,0 @@
-Artículo 38.—Toda infracción al presente Reglamento que se cometa por parte del profesional responsable de un proyecto, del propietario del inmueble, del contratista de sus representantes legales, o por cualquier administrado en general, será sancionado conforme lo estipula la Ley
-(Así corrida su numeración mediante sesión N° 117 del 24 de julio del 2012, que lo traspasó del antiguo artículo 36 al 38)

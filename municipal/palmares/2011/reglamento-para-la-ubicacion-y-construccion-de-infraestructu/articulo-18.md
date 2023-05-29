@@ -1,2 +1,0 @@
-Artículo 18.—En lo referente a altura máxima y señalización de la instalación de infraestructuras de telecomunicaciones, la Municipalidad aplicará lo señalado por el artículo XIX. Bis 3, Capítulo XIX sobre Instalaciones de Telecomunicaciones del Reglamento de Construcciones, para lo cual, la Municipalidad solicitará a la Dirección General de Aviación Civil el criterio técnico y las especificaciones.
-(Así reformado y corrida su numeración mediante sesión N° 117 del 24 de julio del 2012, que lo traspasó del antiguo artículo 17 al 18)

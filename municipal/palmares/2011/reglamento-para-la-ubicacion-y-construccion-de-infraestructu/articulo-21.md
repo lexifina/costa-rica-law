@@ -1,2 +1,0 @@
-Artículo 21.—En zonas sensibles, declaradas por el Ministerio de Salud, previo a la aprobación de la Ubicación e Instalación de la Infraestructura , la Municipalidad aplicará los retiros y condiciones establecidas por el Ministerio de Salud. (Reformado así por el artículo XIX. 2 Bis, Capítulo XIX Bis “Instalaciones de Telecomunicaciones”, Reglamento de Construcciones)
-(Así reformado y corrida su numeración mediante sesión N° 117 del 24 de julio del 2012, que lo trasapasó del antiguo artículo 20 al 21)

@@ -1,2 +1,0 @@
-Transitorio Tercero: La exigencia de georreferencia se aplicará paulatinamente. Mientras no se cuente con la información necesaria para realizar el enlace de los levantamientos para la ubicación de las torres a la Red Oficial de Coordenadas Nacionales, la ubicación se obtendrá con los datos del levantamiento topográfico convencional del inmueble.
-(Así reformado mediante sesión N° 117 del 24 de julio del 2012)
