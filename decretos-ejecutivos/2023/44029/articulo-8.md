@@ -1,0 +1,1 @@
+Artículo 8. Derogase el Decreto No.35305 denominado "Reglamento de Creación, Organización y Funcionamiento de la Dirección del Centro de Investigación y Formación Hacendaría del Ministerio de Hacienda" de fecha 29 de mayo de 2009, publicado en la Gaceta No.121 del 24 de junio de 2009.

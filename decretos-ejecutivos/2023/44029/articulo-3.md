@@ -1,0 +1,1 @@
+Artículo 3. Modifíquese el artículo 8 del Decreto Nº 43057-H de fecha 12 de abril ele 2021, eliminándose la función número 6 de la Unidad de Seguimiento y Control del Departamento de Ingeniería y Arquitectura respecto a participar en la elaboración del plan de compras de la Dirección y dar seguimiento en la Proveeduría Institucional.
