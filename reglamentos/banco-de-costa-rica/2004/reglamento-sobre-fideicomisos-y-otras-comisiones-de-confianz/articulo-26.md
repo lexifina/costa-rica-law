@@ -1,1 +1,1 @@
-Artículo 26.—Administración de los riesgos. La administración de riesgos se debe realizar durante la vigencia del fideicomiso y hasta su extinción. Lo anterior, en atención a mejores prácticas en materia de administración fiduciaria, conforme a la normativa de riesgo vigente en el BCR.
+Artículo 26. Administración de los riesgos. La administración de riesgos se debe realizar durante la vigencia del fideicomiso y hasta su extinción. Lo anterior, en atención a mejores prácticas en materia de administración fiduciaria, conforme a la normativa de riesgo vigente en el BCR.

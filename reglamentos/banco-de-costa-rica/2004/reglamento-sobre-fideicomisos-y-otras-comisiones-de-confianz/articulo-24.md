@@ -1,1 +1,1 @@
-Artículo 24.—Responsabilidades en la administración. El Banco, en calidad de fiduciario/comisionista, debe asumir la responsabilidad por los errores en que incurriere en la ejecución del servicio prestado, cuando el error sea imputable estrictamente a la Institución o a sus servidores.
+Artículo 24. Responsabilidades en la administración. El Banco, en calidad de fiduciario/comisionista, debe asumir la responsabilidad por los errores en que incurriere en la ejecución del servicio prestado, cuando el error sea imputable estrictamente a la Institución o a sus servidores.

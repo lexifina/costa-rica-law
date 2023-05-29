@@ -1,1 +1,15 @@
-[imagen]
+Anexo 1
+Cuadro de atribuciones para aprobación de Fideicomisos y Comisiones de Confianza
+NIVEL DE APROBACIÓN | Responsables | Condiciones | NOTAS
+I | Comité Corporativo Ejecutivo | Todos los negocios que se constituyan en la Gerencia de Negocios Esfera cuyo patrimonio inicial sea superior al 15% sobre el capital ajustado del Banco. | (1)(2)(3) (4)
+II | Comité de Negocios Esfera | · Aquellos negocios cuya naturaleza y patrimonio inicial supere los límites establecidos en el nivel III y hasta un máximo del 15 % del capital ajustado del Banco. · Para el caso de Fideicomisos de Obra Pública deberán ser aprobados todos los negocios por el Comité de Negocios Esfera, hasta un patrimonio inicial máximo del 15 % del capital ajustado del Banco. | (3) (4)
+III | Jefaturas de Fideicomisos, Gerente de Negocios Esfera, Subgerencia Banca Corporativa | · Fideicomisos y comisiones de confianza cuyo patrimonio u aporte inicial no exceda los ¢2.500.000.000,00 o su equivalente en otras monedas, a excepción de los fideicomisos de obra pública que se regirán por el nivel de aprobación II. | (3) (4) (5)
+IV | Supervisores de Fideicomisos, Jefaturas de Fideicomisos, Gerente de Negocios Esfera | · Fideicomisos y comisiones de confianza cuyo patrimonio u aporte inicial no exceda los ¢1.500.000.000,00 o su equivalente en otras monedas. · Comisiones de confianza que cuenten con la aprobación previa del Comité de Crédito BCR, sin límite de suma. · Fideicomisos de garantía cuyo patrimonio se encuentre constituido únicamente por bienes inmuebles, independientemente de la cuantía del patrimonio inicial. | (3) (4) (6)
+Notas:
+1. Los negocios que sean aprobados por el Comité Corporativo Ejecutivo deben ser de conocimiento de la Junta Directiva General en la sesión inmediata posterior a la presentación del proyecto y su aprobación.
+2. Los negocios que sean presentados para aprobación por parte del Comité Corporativo Ejecutivo deberán contar con análisis y recomendación de parte del Comité de Negocios Esfera.
+3. La suscripción de todo nuevo contrato y sus reformas se ejecutará por parte del apoderado con facultades suficientes de conformidad con los poderes otorgados por la Junta Directiva para tal fin, mismos que deberán estar debidamente inscritos y vigentes en el Registro de Personas Jurídicas.
+4. Las reformas contractuales que deban aplicarse a contratos suscritos deberán contar con la aprobación del mismo nivel resolutor que aprobó su constitución o superior.
+5. Toda aprobación de nivel III deberá realizarse dos mancomunadamente. Tanto la subgerencia de Banca Corporativa y la Gerencia de negocios Esfera podrán aprobar entre sí o con alguna de las Jefaturas de fideicomisos, mas no podrán aprobar dos jefaturas de fideicomisos juntas.
+6. Toda aprobación de nivel IV deberá realizarse dos mancomunadamente. Tanto la Gerencia de Negocios Esfera como las jefaturas de fideicomisos podrán aprobar entre sí o con alguno de los supervisores de fideicomisos, mas no podrán aprobar dos supervisores de fideicomisos juntos.
+San José, 8 de junio del 2023.
