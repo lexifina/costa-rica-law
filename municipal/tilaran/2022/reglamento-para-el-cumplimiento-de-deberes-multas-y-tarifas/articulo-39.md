@@ -1,0 +1,1 @@
+Artículo 39.-Del cobro judicial: La municipalidad, sin necesidad de aviso previo, podrá proceder de inmediato al cobro judicial, para lo cual se aplicará lo dictado en el Reglamento para el procedimiento de cobro administrativo y judicial de la municipalidad de Tilarán, publicado en La Gaceta 14 y sus reformas del 21 de enero del 2004.

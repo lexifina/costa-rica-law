@@ -1,0 +1,1 @@
+Artículo 20.-Prohibición de gradas para salvar el desnivel en las aceras. No se permitirán gradas para salvar el desnivel en las aceras. Para resolver los desniveles topográficos se construirá? una rampa longitudinal, cuya pendiente máxima no deberá? ser mayor al 10%, salvo casos excepcionales debido a desniveles topográficos del derecho de vía.

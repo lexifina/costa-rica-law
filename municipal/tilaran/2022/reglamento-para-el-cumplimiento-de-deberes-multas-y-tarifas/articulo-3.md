@@ -1,0 +1,7 @@
+CAPI?TULO II
+De las obligaciones en materia de aceras
+Artículo 3º-Deberes en las vías públicas colindantes con inmuebles: Son deberes de los propietarios o poseedores de los bienes inmuebles ubicados dentro de la jurisdicción del cantón de Tilarán, respecto de la(s) vía(s) pública(s) que lindan con sus terrenos, las siguientes:
+a. Construcción y conservación de aceras, cercas, mallas, muros, tapias o cualquiera otra obra que brinde seguridad, limpieza y mantenimiento a las vías públicas.
+b. Abstenerse de obstaculizar el paso por las aceras con gradas de acceso a viviendas, retenes, cadenas, rótulos o artefactos de seguridad en entradas de garajes. Cuando por urgencia o imposibilidad de espacio físico deban colocarse materiales de construcción en las aceras, deberá utilizarse equipos adecuados de depósito, previa autorización expresa del Departamento Servicios de Infraestructura. La municipalidad podrá adquirir dichos equipos para, a través de una reglamentación especial, arrendarlos a los munícipes.
+c. Remoción de objetos, construcciones, retenes, cadenas, rótulos, materiales, maleza, basura, escombros o cosas que obstaculicen el paso o ensucien o degraden las aceras o vías públicas frente a la propiedad, indistintamente de las circunstancias o personas que las hayan colocado en el lugar.
+d. Autorización de recibir y discurrir las aguas provenientes de las vías públicas, cuando así lo determine el desnivel del terreno y las propiedades estén inmediatas a los desagües de dichas vías, previo estudio técnico del Departamento de Infraestructura Pública.

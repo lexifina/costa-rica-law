@@ -1,0 +1,1 @@
+Artículo 13.-Altura de la acera: Las aceras deberán tener una altura de 15 cm, medidos desde el nivel de can~o. En todo caso la altura dependerá? de la altura general de la acera en los predios próximos y de la altura de la calzada.

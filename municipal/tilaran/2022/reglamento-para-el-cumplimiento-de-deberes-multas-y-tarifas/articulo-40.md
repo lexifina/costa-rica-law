@@ -1,0 +1,1 @@
+Artículo 40.-Prohibición de excepción o exoneración de pagos: La municipalidad, en ninguna circunstancia ejecutará las obras o suministrará los servicios enunciados de forma gratuita, ni exonerará total o parcialmente el pago de cualquier precio, multa, costo, interés o cuenta, a no ser que exista disposición legal o en el presente reglamento que autorice ello.

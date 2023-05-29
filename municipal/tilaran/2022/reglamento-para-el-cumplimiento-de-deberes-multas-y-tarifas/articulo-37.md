@@ -1,0 +1,1 @@
+Artículo 37.-Del atraso en el pago: El atraso en el pago de los precios y costos efectivos que se cobrarán por los servicios u obras enunciados en el presente reglamento, se generará intereses moratorios de conformidad con el código de normas y procedimientos tributarios.

@@ -1,0 +1,1 @@
+Artículo 45.-De la modificación automática de las multas: Las multas indicadas en los artículos anteriores se modificarán automáticamente con la aprobación de la ley correspondiente o mediante disposición expresa que esta municipalidad tenga por parte del ente que el ordenamiento jurídico dicte al efecto.

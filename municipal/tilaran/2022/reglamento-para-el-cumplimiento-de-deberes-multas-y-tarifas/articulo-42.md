@@ -1,0 +1,1 @@
+Artículo 42.-De otras formas de recaudación: Para efectos de facilitar la gestión de cobro y recaudación, la municipalidad podrá hacerlo directamente, o mediante la suscripción de convenios o contratos con personas físicas o jurídicas, públicas y privadas, lo anterior siempre y cuando esto último no implique el ejercicio de potestades de imperio.

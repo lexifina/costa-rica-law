@@ -1,0 +1,1 @@
+Artículo 47.-Uso de los recursos obtenidos con base en este reglamento: Los recursos obtenidos producto de las multas reguladas en este capítulo, serán utilizados preferentemente en obras relacionadas con la conservación, mantenimiento y mejoramiento de la Red Vial Cantonal y la movilidad peatonal.

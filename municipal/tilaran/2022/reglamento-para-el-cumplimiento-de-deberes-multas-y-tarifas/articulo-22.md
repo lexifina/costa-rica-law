@@ -1,0 +1,1 @@
+Artículo 22.-Franjas verdes: Las franjas verdes solo se permitirán en aceras con un ancho igual o superior a 1.20 metros; para el diseño y dimensiones deberá? consultarse al Departamento Servicios de Infraestructura y tramitar para tal fin el respectivo alineamiento.

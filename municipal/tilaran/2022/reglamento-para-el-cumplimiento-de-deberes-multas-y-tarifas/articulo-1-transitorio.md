@@ -1,0 +1,1 @@
+Transitorio I: el presente reglamento regirá 6 meses después de su publicación en el diario oficial La Gaceta una vez que sus regulaciones sean ampliamente divulgadas por la municipalidad por los medios que fueren posibles.

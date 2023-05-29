@@ -1,0 +1,1 @@
+Transitorio II: con relación a los deberes urbanos establecidos en el presente reglamento, el Departamento de Servicios de Infraestructura podrá adecuar el cumplimiento de aquellas que muestren un incumplimiento total o parcial a las circunstancias propias del momento durante un plazo de un año a partir de la entrada en vigor del presente reglamento.

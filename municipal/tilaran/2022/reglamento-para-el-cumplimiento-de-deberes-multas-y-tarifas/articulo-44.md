@@ -1,0 +1,10 @@
+CAPÍTULO VII
+De las multas
+Artículo 44.-Montos de las multas. Cuando se incumplan las obligaciones dispuestas en el presente reglamento, la municipalidad cobrará trimestralmente al (a la) obligado(a) omiso(a), con carácter de multa, los siguientes montos:
+[imagen]
+Nota: Los montos anteriores, salvo los incisos a y b, fueron actualizados con base en porcentaje que aumento el salario base establecido en el artículo 2 de la Ley No. 7337, de 5 de mayo de 1993, desde el año 1999 en que se adiciono? el numeral 85 ter al Código Municipal a la fecha, y se actualizarán anualmente de forma automática, en el mismo porcentaje que aumente el salario base establecido.
+Para los incisos a y b, la multa se calcula según el artículo 84 del Código Municipal reformado por el artículo 19 de la Ley N° 9976 de Movilidad Peatonal.
+De previo a aplicar las multas, la municipalidad deberá notificar al (a la) propietario(a) o poseedor(a) del inmueble, su deber de cumplir con tales obligaciones, otorgándoles un plazo de ocho días hábiles para cumplir con lo prevenido. Una vez vencido tal plazo se procederá a imponer la multa que corresponda.
+Una vez impuesta la multa dentro del cobro de servicios urbanos e impuestos municipales, si el incumplimiento persiste la municipalidad queda facultada para imponerla de nuevo por el mismo concepto en el siguiente trimestre, independientemente de si esta fue cancelada o no con posterioridad a su imposición. Se aclara que el monto de la multa no es acumulativo o creciente, sigue siendo el mismo en el tanto el incumplimiento se mantenga. La imposición de la multa en cada trimestre requiere del procedimiento establecido en este reglamento.
+Las multas en firme o incluidas dentro de los tributos municipales no serán sujetos a eliminación o exoneración si los trabajos son realizados posterior a su imposición.
+Si se trata de instituciones públicas la suma adeudada por concepto de multa se disminuirá un veinticinco por ciento (25%); para las actividades agrícolas, ganaderas, industriales, comerciales y turísticas se aumentará un cincuenta por ciento (50%).

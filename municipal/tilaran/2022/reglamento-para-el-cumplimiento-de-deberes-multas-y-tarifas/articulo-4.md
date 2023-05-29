@@ -1,0 +1,5 @@
+CAPI?TULO III
+Sobre otras obligaciones urbanísticas
+Artículo 4º-Canoas y bajantes. Toda edificación deberá? instalar canoas y bajantes para evacuar las aguas pluviales. Los bajantes deberán evacuar las aguas pluviales directamente al can~o o cuneta al frente de la propiedad y entubarse bajo el nivel de acera. En ningún caso los bajantes podrán desaguar sobre el nivel de acera.
+En los casos que se presente esta situación o cuando los mismos presenten discontinuidades y daños deberán ser reconstruidos y reubicados bajo el nivel de la acera. No se permite caídas libres sobre la acera. Los bajantes sobre la fachada, en construcción sin antejardín, no podrán salir de la pared más de 10 cm.
+Para los aleros la altura mínima será de 2.50 metros. El alero terminado con los accesorios incluidos no sobrepasará el borde final de la acera. Todo alero deberá contener su respectiva canoa y bajante. Las canoas se deberán colocar a una altura no inferior a 2.50 metros, con hierro galvanizado, pudiendo colocarse en material PVC. Los bajantes deberán desaguar en una tubería empotrada horizontalmente dentro de la acera.
