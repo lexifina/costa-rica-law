@@ -1,0 +1,1 @@
+Artículo 2º-Cuando la UTGVM disponga de los desechos dentro del mismo derecho de vía de los caminos, en las zonas bajas, socavaciones o depresiones que aprueben los ingenieros de proyectos; se deberá llenar el registro de botadero con los mismos requisitos mencionados en el artículo primero, con la excepción de la autorización del propietario descrita en el punto a).

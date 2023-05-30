@@ -1,0 +1,1 @@
+Artículo 3º-La UTGVM mantendrá en custodia todos los Botaderos aprobados con su respectiva documentación indicada previamente y un registro de control con la información básica como: la ubicación del botadero, nombre del propietario del predio, la actividad y el ente (brigada de maquinaria municipal, cuadrilla manual, contratista, entre otros) que generó los desechos.
