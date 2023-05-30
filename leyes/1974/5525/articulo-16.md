@@ -1,8 +1,8 @@
 CAPITULO V
 De la Eficiencia de la Administración Pública
-Artículo 16.- Los ministerios e instituciones autónomas y
-semiautónomas llevarán a cabo una labor sistemática de modernización de
-su organización y procedimientos, a fin de aumentar la eficiencia y
-productividad de sus actividades y con el propósito de lograr el mejor
-cumplimiento de los objetivos que persigue el Sistema Nacional de
-Planificación.
+Artículo 16- El Ministerio de Planificación Nacional y Política Económica (Mideplán) será el rector en materia de modernización y reforma de la Administración Pública central y descentralizada.
+Su ámbito de acción comprende los ministerios y sus órganos desconcentrados, las instituciones autónomas y semiautónomas, las empresas públicas estatales y no estatales, a estas últimas sin perjuicio de la autonomía que les confiere la normativa vigente. Estas instituciones llevarán a cabo una labor de mejora continua y sistemática, para modernizar su organización, procesos y procedimientos, con el fin de aumentar la eficiencia, eficacia, pertinencia, calidad, sostenibilidad y productividad de sus actividades y con el propósito de lograr el mejor cumplimiento de los objetivos que persigue el Sistema Nacional de Planificación.
+Se exceptúan de estas disposiciones aquellas instituciones que gocen de autonomía constitucional, se encuentren excluidas de la aplicación de esta ley o que realicen sus actividades bajo régimen de libre competencia.
+Todo proyecto de ley que implique la creación, fusión o supresión de las instituciones comprendidas en este ámbito deberá ser consultado al Mideplán, por parte de la Asamblea Legislativa, para que rinda un criterio técnico y jurídico no vinculante de la iniciativa de que se trate.
+Asimismo, el Poder Ejecutivo deberá consultar, previamente y en forma obligatoria a Mideplán, cuando se pretenda crear, fusionar o suprimir órganos mediante decreto ejecutivo.
+(Así reformado por el artículo único de la ley N° 10358 del 17 de mayo del 2023)
