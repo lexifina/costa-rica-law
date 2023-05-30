@@ -1,0 +1,1 @@
+Artículo 4º-La Política Nacional para la integración de información aduanera, la instalación de los equipos y los sistemas de la tecnología de inspección no intrusiva estará disponible permanentemente en el sitio web del Ministerio de Hacienda, en la dirección electrónica: https://www.hacienda. go.cr/DocumentosInteres.html
