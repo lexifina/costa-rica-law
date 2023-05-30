@@ -1,7 +1,9 @@
-ARTICULO 100.- Los Tribunales Colegiados Agrarios conocerán:
-1.- En grado, de las resoluciones dictadas por los Juzgados Agrarios.
-2.- De los recursos que se interpongan contra las resoluciones del Instituto de Desarrollo Agrario, dictadas en materia de su competencia.
-3.- De los impedimentos, excusas y recusaciones de sus Jueces Colegiados propietarios y suplentes.
-4.- De los conflictos de competencia en materia agraria.
-5.- De los demás asuntos que determine la ley.
-( Así reformado por el numeral 10 de la Ley de Reorganización Judicial Nº 7728 de 15 de diciembre de 1997)
+Artículo 100- El Tribunal Agrario
+El Tribunal Agrario conocerá:
+1) El recurso de apelación interpuesto contra los autos y contra las sentencias emitidas por los juzgados agrarios, cuando proceda.
+2) Las inconformidades y los conflictos de competencia que se susciten entre los juzgados agrarios.
+3) Los conflictos entre juzgados agrarios generados por la acumulación de procesos.
+4) En grado y de forma definitiva, los recursos que se interpongan contra las resoluciones del Instituto de Desarrollo Rural (Inder) y demás entes que la ley disponga, cuando se vinculen con las actividades agrarias y de desarrollo rural.
+5) Los impedimentos y las recusaciones de sus integrantes y de los conflictos que se susciten por dichos motivos entre las personas juzgadoras de los juzgados agrarios.
+6) Los demás asuntos que determine el ordenamiento jurídico.
+(Así reformado por el artículo 341 inciso 5) del Código Procesal Agrario, N° 9609 del 27 de setiembre de 2018)
