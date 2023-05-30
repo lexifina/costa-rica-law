@@ -1,0 +1,1 @@
+Artículo 20.- El sistema de control de la administración del fondo de caja chica debe garantizar la custodia y el buen uso de esos recursos, el registro de datos necesarios para disponer de información confiable y oportuna quedará respaldado en el sistema informático vigente de la Municipalidad.

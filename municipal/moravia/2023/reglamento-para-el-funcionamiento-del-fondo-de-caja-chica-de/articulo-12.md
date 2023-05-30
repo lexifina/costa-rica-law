@@ -1,0 +1,1 @@
+Artículo 12.- Para el trámite de compra por el fondo de caja chica, la Tesorería Municipal entregará siempre al funcionario que lo gestione, un comprobante de exoneración del pago del impuesto de ventas.

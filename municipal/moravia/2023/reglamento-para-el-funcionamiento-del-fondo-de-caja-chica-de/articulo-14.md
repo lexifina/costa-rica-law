@@ -1,0 +1,3 @@
+CAPÍTULO III
+DE LA LIQUIDACIÓN
+Artículo 14.- Los vales de caja chica deberán ser liquidados dentro de los dos días hábiles siguientes a la entrega del dinero en efectivo, salvo aquellos casos en donde por razones de caso fortuito o fuerza mayor no pueden liquidarse en ese plazo, en cuyo caso podrá hacerse con posterioridad, debiendo el funcionario municipal justificar el retraso mediante nota que deberá contener el visto bueno de su Jefe Inmediato. Cuando por algún motivo la compra por caja chica no se lleve a cabo, el funcionario que recibió el dinero deberá hacer el reintegro del monto entregado dentro del plazo antes indicado.
