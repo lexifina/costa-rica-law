@@ -1,0 +1,1 @@
+ARTÍCULO 3-Acción pública. La acción penal para perseguir los delitos cometidos por miembros pertenecientes a un grupo de delincuencia organizada, según lo dispuesto en esta ley, es pública y no podrá convertirse en acción privada.

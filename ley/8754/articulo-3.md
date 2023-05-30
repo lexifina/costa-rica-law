@@ -1,4 +1,3 @@
 CAPÍTULO II
 ACCIÓN PENAL
-ARTÍCULO 3.- Acción pública
-La acción penal para perseguir los delitos cometidos por miembros de las organizaciones criminales o por encargo de estos, según lo dispuesto en esta Ley, es pública y no podrá convertirse en acción privada.
+ARTÍCULO 3.- Acción pública. (Derogado por el artículo 19 de la Ley Creación de la Jurisdicción Especializada en Delincuencia Organizada en Costa Rica, N° 9481 del 13 de setiembre de 2017)
