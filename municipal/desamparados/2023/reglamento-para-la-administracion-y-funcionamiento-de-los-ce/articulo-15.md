@@ -1,0 +1,1 @@
+ARTÍCULO 15: En caso de que se venza el plazo de la concesión y la misma no fuese prorrogada, la Municipalidad quedará facultada para exhumar y trasladar los restos humanos que se hallen en el nicho al osario común. Asimismo, quedará facultada la Municipalidad para dar en concesión la parcela fúnebre a un nuevo interesado.

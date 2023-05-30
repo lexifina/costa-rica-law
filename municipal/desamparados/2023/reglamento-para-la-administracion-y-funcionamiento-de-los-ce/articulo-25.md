@@ -1,0 +1,1 @@
+ARTÍCULO 25: Cualquier daño o deterioro en una bóveda debe ser reparado por el concesionario en el plazo de un mes, haciéndose un aviso por parte de la Municipalidad al medio señalado por el concesionario. En caso de que éste no realice la reparación prevenida, la Municipalidad realizará la reparación y el costo respectivo será trasladado al concesionario.

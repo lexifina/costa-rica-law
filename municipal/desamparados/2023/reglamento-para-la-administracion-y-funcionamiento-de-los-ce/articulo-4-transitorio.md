@@ -1,0 +1,1 @@
+TRANSITORIO IV. Solo se permitirán otros colores distintos al blanco en los materiales no sujetos a ser pintados como piedras o mosaicos que estuvieren colocados en las bóvedas construidas en el Cementerio Municipal con anterioridad a la entrada en vigencia del presente Reglamento.

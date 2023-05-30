@@ -1,0 +1,2 @@
+ARTÍCULO 21: La Alcaldía Municipal, con el criterio técnico de la Administración del Cementerio, presentará ante el Concejo Municipal la propuesta del monto por concepto de precio público para el servicio de inhumaciones y exhumaciones, y entrará en vigencia a partir de la publicación en el Diario Oficial La Gaceta.
+El precio público por concepto de inhumaciones y exhumaciones se ajustará cada año mediante acuerdo del Concejo Municipal, previo estudio que lo sustente; y entrará en vigencia a partir de la publicación en el Diario Oficial La Gaceta.

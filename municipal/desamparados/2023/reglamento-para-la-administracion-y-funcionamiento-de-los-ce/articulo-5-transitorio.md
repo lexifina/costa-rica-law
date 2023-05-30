@@ -1,0 +1,1 @@
+TRANSITORIO V. En el plazo de seis meses posteriores a la entrada en vigencia del presente reglamento, el Departamento de la Administración del Cementerio confeccionará el Diseño de Sitio del Cementerio Municipal, y confeccionará los registros indicados en el numeral 31 mediante libros debidamente legalizados por la Auditoría Interna.

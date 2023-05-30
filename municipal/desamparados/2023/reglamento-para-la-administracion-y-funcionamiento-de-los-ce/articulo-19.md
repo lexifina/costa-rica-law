@@ -1,0 +1,1 @@
+ARTÍCULO 19: Las exhumaciones se realizarán entre las 8:00 a.m. y las 4:00 p.m. de lunes a domingo, salvo en caso de exhumaciones extraordinarias que podrán realizarse fuera del horario referido o en un día no hábil por orden administrativa o judicial competente, previa coordinación con la Administración del Cementerio.

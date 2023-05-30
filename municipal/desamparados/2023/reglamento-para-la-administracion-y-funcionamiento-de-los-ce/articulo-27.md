@@ -1,0 +1,1 @@
+ARTÍCULO 27: Extinguida una concesión sobre una parcela fúnebre, la bóveda construida que hubiere sobre la parcela quedará en favor de la Municipalidad, sin que ésta deba reconocer suma alguna por aquellas. La Municipalidad queda facultada a adjudicar a un nuevo concesionario de la parcela fúnebre
