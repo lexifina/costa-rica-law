@@ -1,0 +1,2 @@
+Artículo 5: Plazo de otorgamiento de la autorización de comercio al aire libre
+La autorización de comercio al aire libre se da para el desarrollo temporal de la actividad comercial en los espacios públicos, que corresponderá por un plazo de hasta doce meses, la autorización podrá ser prorrogable por el mismo plazo de otorgación previa solitud del licenciatario con treinta (30) días naturales antes del vencimiento, sujeto a estudio del departamento de patentes de la Municipalidad de San Carlos, y a que no se hayan detectado anomalías durante ese periodo de tiempo.

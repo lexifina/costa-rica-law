@@ -1,0 +1,5 @@
+Capítulo IV
+Roles y Responsabilidades
+Artículo 8: Responsabilidad de La Corporación Municipal a través del Departamento de Patentes
+La Corporación Municipal a través del Departamento de Patentes al otorgar la autorización de comercio al aire libre, deberá asegurar que la utilización de dichos espacios no contraviene el derecho de libre tránsito, el acceso y la movilidad de peatones, el cumplimiento de la Ley 7600, Ley de Igualdad de Oportunidades para las Personas con Discapacidad, de 2 de mayo de 1996, la Ley 9078, Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial, de 4 de octubre de 2012, y que se controle adecuadamente la contaminación visual y sonora al entorno en que se desarrolla la actividad comercial mediante la oficina, dependencia o proceso vinculado al tema de las licencias comerciales.
+Así mismo, La Corporación Municipal a través del Departamento de Patentes deberá asegurar que esta autorización no contraviene su Plan de Movilidad Activa Sostenible ni su Plan Vial Quinquenal de Conservación y Desarrollo, así como lo establecido en el Reglamento de Movilidad Peatonal.
