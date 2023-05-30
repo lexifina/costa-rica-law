@@ -1,0 +1,1 @@
+Artículos 33.-Apertura de las ofertas. El cierre y apertura de ofertas, se realizará por medio del sistema electrónico de compras públicas vigente en el país y según la metodología del reglamento de uso del sistema.

@@ -1,0 +1,2 @@
+Artículo 30.-Selección del procedimiento de contratación.
+La selección del procedimiento de contratación se realiza como resultado de la consolidación de las solicitudes de compra de bienes y / o servicios de manera semanal o de acuerdo a la programación de compras para ciertos artículos en específico. Para esta tarea la PI valorará los criterios de agrupación de artículos y / o servicios para una mejor utilización de los recursos institucionales en la formulación de la programación y control de compras institucionales.

@@ -1,0 +1,1 @@
+Artículo 6°-Prohibición de contratar.En toda contratación que realice el CONARE se deberá indicar en el expediente y en el Registro de Proveedores la declaración al régimen de prohibición previsto en la LGCP y su reglamento; o bien debe realizar cuando corresponda el levantamiento de prohibición de conformidad con dicha normativa

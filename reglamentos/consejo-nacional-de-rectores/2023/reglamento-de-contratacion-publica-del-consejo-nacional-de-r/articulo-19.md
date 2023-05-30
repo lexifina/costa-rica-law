@@ -1,0 +1,4 @@
+Artículo 19. -Estructura del programa de adquisiciones. El programa de adquisiciones será definido al inicio de cada año el cual tendrá las siguientes características:
+· Calendarización de los procesos de licitación mayor, licitación menor y licitación reducida, así como la programación de cortes de solicitudes de bienes y servicios de manera semanal o quincenal
+· Criterios de agrupación: los criterios aplicados de tiempo, la fragmentación lícita, la planificación de bienes en almacén, activos, servicios profesionales y técnicos y tipos de bienes en común o sea las familias de acuerdo a sus semejanzas en las características del objeto contractual y la disponibilidad de proveedores similares en el mercado para suplir dichos bienes y servicios.
+· Fechas límites establecidas para la presentación de solicitudes de bienes y servicios, facturas y cierre del almacén, y cierre de recepción de facturas.

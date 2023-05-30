@@ -1,0 +1,2 @@
+Artículo 21.-Prevalencia de economía a escala
+Todas las contrataciones que promueva la PI para la prestación de servicios de aprovisionamiento y que sean de uso común serán de alcance institucional. Las dependencias consolidarán sus requerimientos de consumo de bienes y servicios de uso común que servirá de información a la PI para la configuración de los servicios de aprovisionamiento institucional. En tales casos habrá un único procedimiento cuyo objetivo es aprovechar las economías a escala generadas y fomentar el ahorro en recursos.

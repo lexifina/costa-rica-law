@@ -1,0 +1,1 @@
+Artículos 32.-Plazos para la recepción de ofertas. Los plazos para la recepción de ofertas serán establecidos por la PI dependiendo del tipo de bien y/o servicio respetando lo dispuesto en la LGCP y su reglamento.
