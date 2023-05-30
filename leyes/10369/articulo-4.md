@@ -1,0 +1,2 @@
+ARTÍCULO 4- Se reforma el artículo 7 de la Ley 9481, Creación de la Jurisdicción Especializada en Delincuencia Organizada en Costa Rica, de 13 de setiembre de 2017. El texto es el siguiente:
+Artículo 7- Firmeza. Determinada la competencia mediante resolución firme por los tribunales de la Jurisdicción Especializada en Delincuencia Organizada, esta no podrá ser objetada por las partes o por los tribunales de la jurisdicción ordinaria, ni declinada de oficio posteriormente.
