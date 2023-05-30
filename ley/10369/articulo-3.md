@@ -1,0 +1,2 @@
+ARTÍCULO 3- Se reforma el artículo 3 de la Ley 9481, Creación de la Jurisdicción Especializada en Delincuencia Organizada en Costa Rica, de 13 de setiembre de 2017. El texto es el siguiente:
+Artículo 3- Acción pública. La acción penal para perseguir los delitos cometidos por miembros pertenecientes a un grupo de delincuencia organizada, sea que se tramite en vía ordinaria o especializada, es pública y no podrá convertirse en acción privada.

@@ -1,4 +1,11 @@
-ARTÍCULO 10-Plazos. En caso de que la Jurisdicción Especializada en Delincuencia Organizada se arrogue la competencia de un asunto, tendrán aplicación, sin necesidad de resolución judicial adicional, las normas especiales previstas en el Código Procesal Penal relacionadas con los plazos para asuntos de tramitación compleja, salvo lo dispuesto en el párrafo siguiente.
-En caso de que se dicte sentencia condenatoria que imponga pena privativa de libertad, el plazo de prisión preventiva podrá ser prorrogado mediante resolución fundada, hasta por doce meses más.
-El Tribunal de Apelación de Sentencia Especializado en Delincuencia Organizada, excepcionalmente y de oficio, podrá autorizar una prórroga de la prisión preventiva hasta por seis meses adicionales a los plazos de prisión preventiva previstos en el Código Procesal Penal, cuando se disponga el reenvío a un nuevo juicio.
-La Sala Tercera de la Corte Suprema de Justicia, excepcionalmente y de oficio, podrá autorizar en los asuntos de su conocimiento, una prórroga de la prisión preventiva hasta por doce meses más, cuando dispongan el reenvío a un nuevo juicio.
+Artículo 10- Plazos
+1) En los procesos de delincuencia organizada en la jurisdicción ordinaria, sin necesidad de resolución judicial adicional, se aplicarán las normas previstas en el Código Procesal Penal, relacionadas con los plazos para asuntos de tramitación compleja
+2) En los procesos de delincuencia organizada en la jurisdicción especializada se aplicarán las siguientes reglas:
+a) El Ministerio Público deberá concluir la investigación en un plazo razonable.
+Una vez que exista fijación de plazo acordado por el Tribunal, se deberá concluir la investigación preparatoria en un plazo de veinticuatro meses.
+b) Se duplicarán los plazos establecidos para la etapa intermedia.
+c) Se duplicará el plazo ordinario de prisión preventiva, así como los previstos en el artículo 258 del Código Procesal Penal.
+d) Se duplicarán los plazos previstos para la continuidad y suspensión del debate.
+e) El plazo de deliberación será hasta de diez días hábiles y el tiempo para dictar la sentencia será hasta de veinte días hábiles.
+f) Se duplicarán los plazos para interponer y tramitar los recursos de apelación de sentencia y de casación, así como las adhesiones.
+(Así reformado por el artículo 5° de la ley N° 10369 del 30 de mayo de 2023)
