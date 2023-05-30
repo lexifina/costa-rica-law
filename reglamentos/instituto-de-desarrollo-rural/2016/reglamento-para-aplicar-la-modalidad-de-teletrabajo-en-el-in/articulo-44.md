@@ -1,2 +1,0 @@
-Artículo 44°- Actualización tecnológica.
-Durante la ejecución del acuerdo de teletrabajo, la persona teletrabajadora mantendrá su derecho para participar en las diversas capacitaciones que imparte la Institución. Será su responsabilidad mantenerse actualizada en cuanto al uso de las herramientas tecnológicas que demanda la ejecución de sus actividades, de acuerdo con la capacitación que imparte el Inder.
