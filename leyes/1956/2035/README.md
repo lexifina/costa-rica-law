@@ -1,6 +1,6 @@
 # Ley Orgánica del Consejo Nacional de Producción
 
-Ley N° 2035 del 1956-07-17. SINALEVI, ficha 3607: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=3607&param2=145985&param3=1>.
+Ley N° 2035 del 1956-07-17. SINALEVI, ficha 3607: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=3607&param2=145987&param3=1>.
 
 Publicada en La Gaceta N° 13 del 1956-07-21.
 
@@ -46,3 +46,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 36 de 41 | 2009-09-23 | Ley 8763 | 2009-08-21 |
 | 37 de 41 | 2012-11-30 | Ley 9036 | 2012-05-11 |
 | 38 de 41 | 2019-03-11 | Ley 9661 | 2019-02-07 |
+| 39 de 41 | 2023-05-30 | Ley 10317 | 2023-05-12 |
