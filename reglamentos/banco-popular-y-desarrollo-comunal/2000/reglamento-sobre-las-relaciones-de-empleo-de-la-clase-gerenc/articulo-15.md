@@ -1,1 +1,0 @@
-Artículo 15.—La decisión de cesar la relación contractual la tomará la Gerencia General y podrá ser apelada ante la Junta Directiva Nacional. Para el caso de la remoción del personal adscrito a las Subgerencias, deberá mediar solicitud expresa del Subgerente respectivo.

@@ -1,2 +1,0 @@
-De la remuneración salarial
-Artículo 2°—Se crea el Sistema de Remuneración Salarial para la clase gerencial, Auditor y Subauditor del Banco, que incorpora los puestos citados en el artículo anterior y cuya remuneración estará definida por un salario único que incluye dedicación exclusiva y prohibición en el caso del Auditor y Subauditor, determinado por la Junta Directiva Nacional, de conformidad con los criterios que se definen en el artículo 3 de este Reglamento.

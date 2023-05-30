@@ -1,1 +1,0 @@
-Artículo 3°—Es política institucional procurar salarios competitivos, en la medida que su situación financiera lo permita. Para tal efecto el salario se definirá tomando como referencia los salarios vigentes para los puestos de la misma naturaleza en los otros bancos públicos y los niveles saláriales vigentes para ejecutivos de empresas financieras de naturaleza pública.

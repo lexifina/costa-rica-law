@@ -1,1 +1,0 @@
-Artículo 8°—Los derechos, obligaciones y responsabilidades laborales del personal cubierto por este sistema de remuneración, estarán reguladas por la normativa que expresamente apruebe la Junta Directiva Nacional.

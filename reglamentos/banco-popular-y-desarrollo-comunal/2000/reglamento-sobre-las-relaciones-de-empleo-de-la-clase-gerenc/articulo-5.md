@@ -1,1 +1,0 @@
-Artículo 5°—En el documento que se suscriba entre el Banco y cada empleado que asuma un puesto cubierto por este nuevo régimen, deberá mencionarse claramente que al puesto que ocupara ese empleado no le son aplicables ningún otro tipo de pluses salariales, distintos de los expresamente mencionados en esta reglamentación.
