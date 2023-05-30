@@ -1,0 +1,3 @@
+ARTÍCULO 14-Validez de las actuaciones. Cuando el Juzgado Especializado en Delincuencia Organizada se arrogue el conocimiento de un asunto, los actos procesales practicados en la jurisdicción común conservarán su validez y eficacia.
+Asimismo, cuando el asunto regrese a conocimiento de la jurisdicción común al quedar en firme la competencia, las actuaciones procesales practicadas en la Jurisdicción Especializada en Delincuencia Organizada conservarán su validez y eficacia.
+Serán válidas, igualmente, las actuaciones llevadas a cabo en los procesos que se tramiten ante la jurisdicción común, aun cuando el asunto se pudo haber tramitado ante la Jurisdicción Especializada en Delincuencia Organizada, según las disposiciones de la presente ley.

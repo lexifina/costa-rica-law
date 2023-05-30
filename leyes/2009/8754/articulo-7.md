@@ -1,2 +1,1 @@
-ARTÍCULO 7.- Plazo de la prisión preventiva
-Sin perjuicio de lo dispuesto en los incisos a) y b) del artículo 257 del Código Procesal Penal, Ley N.° 7594, el plazo originario de la prisión preventiva será hasta de veinticuatro meses.
+ARTÍCULO 7.- Plazo de la prisión preventiva. (Derogado por el artículo 19 de la Ley Creación de la Jurisdicción Especializada en Delincuencia Organizada en Costa Rica, N° 9481 del 13 de setiembre de 2017)
