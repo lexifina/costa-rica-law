@@ -9,6 +9,9 @@ articulo-8.md
 articulo-9.md
 articulo-10.md
 articulo-11.md
+articulo-11-bis.md
+articulo-11-ter.md
+articulo-11-quater.md
 articulo-12.md
 articulo-13.md
 articulo-14.md

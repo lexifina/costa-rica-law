@@ -1,0 +1,1 @@
+ARTÍCULO 7-Firmeza. Declarada la competencia mediante resolución firme en la Jurisdicción Especializada en Delincuencia Organizada, esta no podrá ser objetada por las partes o declinada de oficio posteriormente.

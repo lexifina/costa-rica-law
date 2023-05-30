@@ -1,0 +1,1 @@
+ARTÍCULO 19- Derogatoria de varios artículos de la Ley N.° 8754, Ley contra la Delincuencia Organizada. Se derogan los artículos 2, 3 y 6, a excepción del inciso d), y los artículos 7 y 9 de la Ley N.° 8754, Ley contra la Delincuencia Organizada, de 22 de julio de 2009.
