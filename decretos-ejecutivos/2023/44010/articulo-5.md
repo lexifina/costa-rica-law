@@ -1,0 +1,2 @@
+Artículo 5. Valores de tolerancia de frecuencias y de atenuación de emisiones no esenciales.
+En cuanto a los valores de tolerancia de frecuencias para las distintas bandas de frecuencias aplicarán aquellos que se establecen en el Volumen II, Apéndice 2 del "Reglamento de Radiocomunicaciones" de la UIT. Respecto a los valores de atenuación de emisiones no esenciales para las distintas bandas de frecuencias aplicarán aquellos que se establecen en el Volumen II, Apéndice 3 del "Reglamento de Radiocomunicaciones" de la UIT.
