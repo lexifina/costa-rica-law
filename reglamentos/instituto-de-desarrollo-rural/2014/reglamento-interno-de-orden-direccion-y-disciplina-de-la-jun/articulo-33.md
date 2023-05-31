@@ -1,1 +1,2 @@
-Artículo 33.—Las actas se aprobarán en la siguiente sesión ordinaria y serán firmadas por el Presidente y el Secretario (a) de la Junta Directiva. Antes de esa aprobación, carecerán de fuerza los acuerdos tomados en la respectiva sesión, salvo que se dispongan como acuerdo firme al ser tomados.
+Artículo 33.-Las actas se aprobarán en la siguiente sesión ordinaria. Antes de esa aprobación carecerán de firmeza los acuerdos tornados en la respectiva sesión, a menos que los miembros presentes acuerden su firmeza por votación de dos tercios de la totalidad de los miembros del Colegio. Las actas serán firmadas por el presidente y por aquellos miembros que hubieran hecho constar su voto disidente.
+(Así reformado mediante publicación en La Gaceta N° 96 del 31 de mayo del 2023)
