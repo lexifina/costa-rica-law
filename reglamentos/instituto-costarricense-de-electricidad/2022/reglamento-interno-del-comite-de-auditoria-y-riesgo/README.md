@@ -14,3 +14,4 @@ Reglamento interno del Comité de auditoría y riesgo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-01-12 | la propia norma |
+| 2 | 2023-05-31 | Reglamento 6576 (2023-05-31) |
