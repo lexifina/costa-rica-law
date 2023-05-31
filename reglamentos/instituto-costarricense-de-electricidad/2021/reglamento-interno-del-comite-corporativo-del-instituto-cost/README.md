@@ -14,3 +14,4 @@ Reglamento interno del Comité Corporativo del Instituto Costarricense de Electr
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-04-07 | la propia norma |
+| 2 | 2023-05-31 | Reglamento 6576 (2023-05-31) |

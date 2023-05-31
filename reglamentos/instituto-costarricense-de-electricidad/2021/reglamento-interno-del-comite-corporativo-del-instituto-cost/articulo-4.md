@@ -9,5 +9,6 @@ Grupo ICE: Conglomerado de empresas conformado por el ICE y sus empresas. Incluy
 Plan Financiero Grupo ICE: Planteamiento que cuantifica las metas y objetivos financieros que se pretenden alcanzar durante el ejercicio anual, tanto a nivel ICE como de sus empresas.
 Dicho plan deriva de los objetivos y metas de la Estrategia Corporativa vigente, toda vez que los niveles de rentabilidad proyectados y las acciones propuestas buscan la salud financiera y también cumplir con la visión estratégica acordada por el Consejo Directivo.
 Portafolio Corporativo: Estudios, proyectos, programas y portafolios, que se agrupan con el fin de lograr los objetivos corporativos.
-Presidencia Ejecutiva: Es el órgano unipersonal de mayor jerarquía a nivel corporativo, el cual preside el Centro Corporativo. Su titular es el Presidente Ejecutivo.
+Presidencia Ejecutiva: Es el órgano unipersonal de mayor jerarquía a nivel corporativo, el cual preside el Comité Corporativo. Su titular es el Presidente Ejecutivo.
+(Así reformada la definición anterior en sesión N° 6576 del 31 de mayo de 2023).
 Reglamento Corporativo de Organización: Norma que emana del máximo jerarca del ICE. Su objeto es plasmar la distribución interna de las competencias corporativas del ICE y sus empresas.
