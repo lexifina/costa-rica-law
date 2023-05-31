@@ -1,0 +1,13 @@
+CIRCULAR Nº 127-2023
+ASUNTO: Implementación de la forma de pago de incapacidades a las personas servidoras judiciales.
+A TODOS LOS SERVIDORES, SERVIDORA
+Y DESPACHOS JUDICIALES DEL PAÍS
+SE LES HACE SABER QUE:
+La Corte Plena en sesión N° 19-2023, celebrada el 08 de mayo de 2023, artículo XXXVI, con base en los informes jurídicos N° DJ-C-19-2021 y N° DJ-C-332-2022, en el informe N° 3116-DE-2022 de la Dirección Ejecutiva y en el informe N° PJ-DGH-SAS-2845-2022 de la Dirección de Gestión Humana, dispuso acoger el escenario No. 2 expuesto, respecto a la implementación de la forma de pago de incapacidades a las personas servidoras judiciales en los siguientes términos: "Por tanto;
+Recibida la votación nominal correspondiente, por mayoría de diecisiete votos, con base en los informes jurídicos N° DJ-C-19-2021 y N° DJ-C-332-2022, en el informe N° 3116- DE-2022 de la Dirección Ejecutiva y en el informe N° PJ-DGH-SAS-2845-2022 de la Dirección de Gestión Humana, se acordó: Acoger el escenario N° 2 expuesto por las Direcciones de Gestión Humana, Ejecutiva y Jurídica, respecto a la implementación de la forma de pago de incapacidades a las personas servidoras judiciales en los siguientes términos:
+El Poder Judicial calcula, según parámetros de la Caja Costarricense de Seguro Social, en adelante CCSS, el monto a retener y cancela lo proporcional al salario que le corresponde a la persona servidora judicial, según el tipo de incapacidad. Este monto se cancelaría por adelantado, es decir no es necesario que se haya realizado el pago del subsidio de la CCSS; entendiendo por adelanto, lo establecido en el artículo 42 de la Ley Orgánica del Poder Judicial que cita:
+Artículo 42.-Cuando un servidor judicial sea incapacitado por enfermedad, la Dirección Ejecutiva tramitará la licencia con goce de sueldo. Cuando se trate de un Magistrado, esa función le compete al presidente de la Corte. El servidor recibirá lo necesario hasta completar su salario a partir del monto que reciba de la Caja Costarricense del Seguro Social y, en materia de riesgos profesionales, lo que indique la ley respectiva. (lo señalado en negrita no es parte del original)
+Cuando la CCSS cancela el subsidio a la persona servidora judicial, el Poder Judicial verifica si sobre este monto cancelado, hay diferencias mayores a ¢1,000.00 y cancela hasta completar el 100% del salario correspondiente al periodo de incapacidad, según el procedimiento que se defina.
+[imagen]
+De conformidad con la circular N° 67-09 emitida por la Secretaría de la Corte el 22 de junio de 2009, se comunica que en virtud del principio de gratuidad que rige esta materia, la publicación está exenta de todo pago de derechos. Publíquese una sola vez en el Boletín Judicial.
+San José, 31 de mayo de 2023.
