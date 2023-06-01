@@ -1,0 +1,2 @@
+Artículo 10. Inversiones.
+La Subdirección Inversiones y Tesorería mantendrá invertidos los recursos del Fondo de la forma cuidadosa, rentable y segura que exige su naturaleza, en aplicación de la normativa interna y externa emitida sobre el tema, siendo responsable por la gestión. La dependencia del Fondo estará obligada a suministrar la información requerida por la SUPEN.
