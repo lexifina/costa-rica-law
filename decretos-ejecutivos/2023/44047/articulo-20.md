@@ -1,0 +1,1 @@
+Artículo 20°- Conformación y funciones del Departamento de Diarios Oficiales. El Departamento de Diarios Oficiales de la Imprenta Nacional, está conformado por la Unidad Central y las Oficinas Desconcentradas.

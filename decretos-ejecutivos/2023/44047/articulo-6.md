@@ -1,0 +1,1 @@
+Artículo 6° - Cierre a la edición de los Diarios Oficiales. El cierre de la edición de los diarios oficiales será a las doce horas del día anterior a la publicación. El cierre no aplica a los Alcances.

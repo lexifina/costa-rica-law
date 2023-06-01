@@ -1,0 +1,25 @@
+Artículo 2° - Definiciones. Para efectos del presente Reglamento se entiende por:
+a) Actos públicos: Es la manifestación de la voluntad, conocimiento o juicio emitidos por la Administración Pública, en el ejercicio de una potestad administrativa.
+b) Administrado: Es el ciudadano o entidad que tiene relación directa con la Administración Pública en el marco de actuaciones administrativas.
+c) Alcance: Es la adición o adiciones que se realicen a "La Gaceta", autorizadas por el Director General de la Imprenta Nacional, cuando el cierre de la edición se haya producido, o cuando por razones de extensión o complejidad del documento se haga necesari:1 la publicación en un formato diferente al utilizado para "La Gaceta". Se considera al Alcance parte integral de "La Gaceta".
+d) "Boletín .Judicial" o "Boletín": Diario Oficial donde se publican los asuntos que gestionan las autoridades judiciales costarricenses, así como avisos relacionados con acciones ;ldministrativas propias de este Poder de la República, así como todos aquellos actos que el ordenamiento jurídico establezca.
+e) Caso fortuito: Es un hecho humano que no puede preverse, y, en consecuencia, no puede evitarse. Si el acto es previsible y pudo haberse evitado, y se materializa, genera "culpa" del responsable y en consecuencia no es un eximente del cumplimiento de una obligación.
+f) Diagramación: Proceso de organización de contenidos escritos y visuales en medios impresos y electrónicos, como libros, diarios y revistas.
+g) Diarios Oficiales: Término que se refiere a La Gaceta y al Boletín Judicial.
+h) Dirección: Dirección General de la Imprenta Nacional.
+i) Dirección de Comercialización y Divulgación de la Imprenta Nacional: Es la Dirección responsable de la recepción y tramitación de los diarios oficiales.
+j) Dirección que contenga los Diarios Oficiales de la Imprenta Nacional: Dirección responsable de la edición de los diarios oficiales.
+k) Documentos electrónicos o digitales: Cualquier manifestación con carácter representativo o declarativo, expresada o transmitida por un medio electrónico o informático.
+l) Documentos urgentes: Se refiere a todos aquellos actos, que, a solicitud de la entidad gubernamental, requieren ser publicados con carácter de urgencia o prioridad, en resguardo del interés público.
+m) Edición: Preparación o dirección de textos en forma y contenido en revistas, periódicos o libros, como al ejemplar o publicación de los medios a través de un soporte físico o digital.
+n) Fe de erratas: Es un método usual de edición posterior a la producción de un documento, en el que los errores que se han detectado son identificados y corregidos en una publicación posterior.
+o) Firma digital: Conjunto de datos adjunto o lógicamente asociado a un documento electrónico, que permite verificar su integridad, así como identificar, en forma unívoca, y vincular jurídicamente al autor con el documento.
+p) Firma digital certificada: Una firma digital que haya sido emitida al amparo de un certificado digital válido y vigente, expedido por un certificador registrado.
+q) Fuerza mayor: Acontecimiento o hecho de la naturaleza, previsible, pero inevitable.
+r) Imprenta: Imprenta Nacional, institución pública adscrita al Ministerio de Gobernación y Policía, consolidada históricamente, como la responsable de la publicación de los Diarios Oficiales, y por tanto, pilar fundamental del estado social de derecho costarricense, al constituirse en garante del principio fundamental de publicidad de las leyes, y demás actos y acuerdos que así lo requieran.
+s) Junta: Junta Administrativa de la Imprenta Nacional, órgano de desconcentración máxima del Ministerio de Gobernación y Policía, creada mediante la Ley N°5394 de 05 de noviembre de 1973, reformada por Ley Nº 8305 de 19 de setiembre del 2002, con personalidad jurídica instrumental para contratar y adquirir bienes y servicios para el cumplimiento de sus fines.
+t) "La Gaceta" o "Diario Oficial": Diario Oficial del Estado costarricense, donde se publican las leyes, decretos; resoluciones y otras normas y actuaciones emitidos por las Instituciones Públicás que conforman el Sector Público costarricense; así como todos aquellos documentos que el ordenamiento jurídico establezca.
+u) Ministerios: Son órganos del Poder Ejecutivo, conformados según las carteras ministeriales contenidas en el artículo 23 de la Ley General de la Administración Pública.
+v) Publicación oficial: Es aquel acto publicado en La Gaceta o el Boletín Judicial, para otorgar publicidad, autenticidad (identidad, formalidad y oficialidad), y accesibilidad (la posibilidad abierta a todos de su consulta durante todo el período de vigencia) al texto de la norma o acto que se reproduce.
+w) Servidor autorizado: Funcionario público, designado para firmar todos los documentos que se remitan a la Imprenta para su publicación.
+x) Sitio Web Transaccional: Es un conjunto de páginas web que guardan una correlación entre sí, pertenecientes dentro de un dominio específico (World Wide Web, sus siglas www) y a través del cual se pueden realizar pagos por el servicio de publicaciones.

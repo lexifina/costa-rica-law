@@ -1,0 +1,1 @@
+Artículo 10°-Servidor autorizado para la publicación de actos públicos. Las dependencias del Estado podrán designar a un servidor público para firmar todos los documentos que se remitan a la Imprenta para su publicación.

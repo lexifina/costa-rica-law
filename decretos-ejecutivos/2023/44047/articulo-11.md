@@ -1,0 +1,4 @@
+Artículo 11 º-Publicación de actos públicos. Las publicaciones de actos públicos serán formalmente ordenadas por quien suscriba los respectivos actos, o por el servidor autorizado para ese efecto.
+Quien ordene la publicación dará autenticidad de los documentos, escribiendo al final del texto a publicar el nombre, firma y sello de la institución y/o el departamento que emite el documento.
+Se exceptúa del sello a las publicaciones de carácter personal, que deben venir con el nombre, firma y el número de cédula del responsable.
+En el caso de los documentos digitales la autenticidad será otorgada por medio de la firma digital certificada, de conformidad con lo que establece la Ley de Certificados, Firmas Digitales y Documentos Electrónicos Nº 8454 del 30 de agosto del 2005 publicada en la Gaceta 197 del 13 de octubre de 2005.

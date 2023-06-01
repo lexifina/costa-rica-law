@@ -1,0 +1,1 @@
+Artículo 27°- Responsabilidad del contenido de los documentos a publicar. Los documentos que se reciben para publicar, en su contenido e implicaciones, son responsabilidad absoluta del solicitante de la publicación.

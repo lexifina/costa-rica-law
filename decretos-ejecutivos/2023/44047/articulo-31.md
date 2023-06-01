@@ -1,0 +1,1 @@
+Artículo 31 º- Tramitación de documentos urgentes provenientes de las Instituciones Públicas que conforman el Sector Público cos4trricense. La Dirección será responsable de autorizar aquellos documentos que, a solicitud de una entidad gubernamental, requieren ser publicados con carácter de urgencia o prioridad, en resguardo del interés público.

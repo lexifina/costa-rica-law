@@ -1,0 +1,1 @@
+Artículo 4° -Fecha de publicación de los Diarios Oficiales. La fecha de publicación de los diarios oficiales físicos o impresos, debe ser la misma fecha que se menciona en la edición subida en el sitio web. Las ediciones impresas se depositarán en los lugares señalados en el artículo 8 del presente reglamento.

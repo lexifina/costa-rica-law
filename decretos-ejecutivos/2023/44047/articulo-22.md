@@ -1,0 +1,2 @@
+Artículo 22º-Pago de las publicaciones. El administrado deberá cancelar el monto correspondiente por concepto de publicación, según las tarifas fijadas por la Junta.
+Las instituciones del Estado podrían hacer el pago siguiendo los procedimientos establecidos en el Reglamento General de Políticas de Crédito y Cobro de la Imprenta Nacional, publicado en el Diario Oficial La Gaceta Nº 222 del 16 de noviembre del 2010.

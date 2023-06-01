@@ -1,0 +1,1 @@
+Artículo 5º - Validez legal de la publicación de los Diarios Oficiales. La publicación digital de los Diarios Oficiales contará con validez legal y carácter oficial de documento público, a través de la firma digital certificada, de conformidad con lo que establece la Ley de Certificados, Firmas Digitales y Documentos Electrónicos N° 8454 del 30 de agosto del 2005.

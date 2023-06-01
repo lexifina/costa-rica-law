@@ -1,0 +1,3 @@
+Artículo 3°- Publicación digital de los Diarios Oficiales. Los Diarios Oficiales se publicarán electrónicamente, todos los días hábiles, en el sitio web de la Imprenta (www.imprentanacional.go.cr). Las publicaciones se harán siguiendo el orden de solicitud y aparecerán según la programación que establezca la Dirección.
+Todos los documentos digitales que se presenten o envíen para su publicación, deben ser firmados digitalmente, conforme los artículos 8 y 9 de la Ley de Certificados, Firmas Digitales y Documentos Electrónicos Nº 8454, de 30 de agosto del 2005 publicada en la Gaceta Nº 197 del 13 de octubre de 2005.
+La publicación impresa de los Diarios Oficiales debe ser reproducción exacta de la publicación electrónica.

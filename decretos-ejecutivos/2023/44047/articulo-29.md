@@ -1,0 +1,1 @@
+Artículo 29º- Plazo máximo para realizar las publicaciones. La Imprenta tendrá un plazo máximo de diez días hábiles, a partir de la recepción del documento físico o digital, para realizar las publicaciones.

@@ -1,0 +1,1 @@
+Artículo 13°-Consulta. La Imprenta garantizará la facilidad de consulta y búsqueda de la información publicada en los Diarios Oficiales por medio de su sitio web. Para este efecto pondrá a disposición de los administrados, ejemplares digitales y mecanismos de búsqueda en línea.
