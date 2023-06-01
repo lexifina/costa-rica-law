@@ -1,0 +1,1 @@
+Artículo 174. Informes de control de saldos por parte del Departamento de Tesorería. El Departamento de Tesorería deberá remitir al Departamento de Recursos Humanos con copia a la Alcaldía Municipal, un informe mensual de disponibilidad por Partida Presupuestaria, correspondiente a la partida de Tiempo Extraordinario, con el disponible presupuestario.

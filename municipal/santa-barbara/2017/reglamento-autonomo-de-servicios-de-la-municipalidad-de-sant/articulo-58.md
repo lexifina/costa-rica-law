@@ -1,1 +1,1 @@
-Artículo 58. —La Municipalidad brindará el tiempo necesario, transporte y si fuere el caso, con autorización de la Alcaldía Municipal, viáticos a sus funcionarios para la participación en actividades de capacitación o formación de acuerdo a la tabla de viáticos vigente.
+Artículo 58. -Todo programa de capacitación, en que organismos o instituciones públicas o privados, ofrezcan becas o extiendan invitaciones de capacitación, cursos, seminarios, talleres u otros, se canalizará a través del Departamento de Talento Humano, previo visto bueno del o la Alcalde (sa).

@@ -1,1 +1,1 @@
-Artículo 88. —Los (as) servidores (as) que fumen deberán hacerlo durante su tiempo matutino de descanso, o durante el período de almuerzo, fuera del lugar de trabajo.
+Artículo 88. -El pago de salario de todo el personal municipal se hará de forma mensual con adelanto quincenal, depositándose en la cuenta respectiva del (o la) funcionario (a) en alguno de los bancos del Estado.

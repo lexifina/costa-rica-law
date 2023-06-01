@@ -1,3 +1,1 @@
-CAPÍTULO XXIII
-De las vacaciones
-Artículo 104. —Los (as) servidores (as) de la Municipalidad, incluyendo al (el) Alcalde (sa) Municipal, disfrutarán de vacaciones anuales remuneradas de acuerdo con lo establecido en el artículo anterior, inciso e); dado que el disfrute del período de vacaciones es un derecho fundamental para todos los (as) trabajadores (as), indistintamente de la modalidad de la relación de servicio pre existente (jornada, puesto, categoría, entre otros).
+Artículo 104. -Por el incumplimiento de lo dispuesto en la Ley General del Control del Tabaco y sus Efectos Nocivos Sobre la Salud y en este reglamento se impondrá una multa del diez por ciento (10%) de un salario base, a las personas físicas que fumen en los sitios prohibidos, sin perjuicio del Régimen Disciplinario Interno.

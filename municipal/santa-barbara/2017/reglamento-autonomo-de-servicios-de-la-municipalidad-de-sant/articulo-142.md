@@ -1,1 +1,3 @@
-Artículo 142. — El uniforme será de uso obligatorio para todos(as) los(as) colaboradores(as) municipales durante todos los días de la semana.
+Artículo 142. -Las vacaciones se deberán gozar sin interrupciones salvo, cuando así lo convengan el (la) funcionario(a) municipal y siempre que se tratare de labores de índole especial, que no permitan la ausencia prolongada del (la) funcionario (a) y su presencia se considere necesaria para la buena marcha del servicio.
+Para todos (as) los (as) funcionarios (as), las boletas de vacaciones serán tramitadas por el Departamento de Recursos Humanos, autorizadas por la jefatura inmediata y el Alcalde Municipal, quedando registradas en los expedientes personales administrativos.
+En el caso de la Alcaldía, ésta deberá informar al Concejo Municipal, de los días que se ausentará por vacaciones. Lo anterior para efectos de que conozca su suplencia.

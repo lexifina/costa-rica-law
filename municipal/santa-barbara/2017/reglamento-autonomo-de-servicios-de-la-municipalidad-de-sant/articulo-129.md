@@ -1,3 +1,12 @@
-CAPITULO XXVIII
-De las ausencias
-Artículo 129. — Se considera ausencia la inasistencia a un día completo de trabajo. Para efectos de pago se le rebajará esa ausencia en la planilla.
+Artículo 129-. De la tipificación de las faltas por acoso u hostigamiento laboral, psicológico y moral. Para efectos de calificar la gravedad de las manifestaciones o conductas del acoso u hostigamiento laboral, psicológico y moral, sean éstas escritas, impresas, verbales, gestuales, o de cualquier otra índole que tenga dicha connotación, las mismas se tipifican de la siguiente manera:
+1. Faltas leves: Se reputan como faltas leves, el uso de palabras, chistes, gestos, fotos, y cualquier otro material o envío de mensajes de carácter indeseables y ofensivos para quienes los tienen a su vista o los reciban (afiches, calendarios, correos electrónicos, protectores de pantalla y otros) que, resulten hostiles, humillantes, degradantes y ofensivos para la persona que los recibe, o los vea en las oficinas de esta Municipalidad y que ofendan la dignidad de las funcionarias o funcionarios de la misma así como a los usuarios o usuarias de sus servicios.
+2. Faltas graves: Se reputan como faltas graves la discriminación de cualquier tipo.
+También incurrirá en falta grave:
+a. El funcionario o funcionaria que entorpezca o atrase una investigación o se negare a declarar o brindar información sobre los hechos denunciados o bien omitiere dar trámite a la denuncia dentro del plazo indicado en este Reglamento.
+b. Que incumpla con los deberes de confidencialidad y colaboración.
+c. Que en su carácter de denunciado(a) incurra en conductas coercitivas que entorpezcan el debido proceso a juicio del órgano director.
+d. La jefatura que incumpla su deber de ejecutar la sanción disciplinaria ordenada.
+3. Faltas gravísimas: Se reputa como falta gravísima, todo comportamiento que implique:
+e. Promesa implícita o expresa, de un trato preferencial respecto de la situación actual o futura de empleo de quien las reciba con el fin de entorpecer la investigación.
+f. Amenazas implícitas o expresas físicas, o morales de daños o castigos, referidos a la situación actual o futura de empleo o de ascenso de quien las reciba.
+g. Exigencia de una conducta cuya sujeción o rechazo sea, en forma implícita o explícita, condición para el empleo, ascensos, o estudios de capacitación.

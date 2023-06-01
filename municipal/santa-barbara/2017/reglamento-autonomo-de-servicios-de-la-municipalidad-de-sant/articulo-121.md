@@ -1,1 +1,5 @@
-Artículo 121. —Cuando necesidades imperiosas de la Municipalidad lo exijan, todo (a) trabajador (a) podrá ser requerido por sus superiores para realizar temporalmente cualquier otra labor adicional o diferente, compatible con sus fuerzas, aptitudes, o condición, y nivel ocupacional, siempre que la misma no exceda de un mes.
+Artículo 121: Tipos de acoso: Según la posición dentro de la estructura organizativa las manifestaciones de acoso laboral se pueden presentar de los siguientes tipos de acoso laboral:
+. Acoso vertical ascendente: la persona acosadora ocupa un puesto de inferior nivel jerárquico o de poder que el de la persona acosada.
+. Acoso vertical descendente: es aquel en el que la persona acosadora ocupa un cargo superior jerárquicamente respecto de la persona acosada.
+. Acoso horizontal: se produce entre personas trabajadoras de igual nivel jerárquico.
+. Acoso mixto: Se da cuando personas trabajadoras a cargo y jefaturas acosan a una o varias personas del lugar de trabajo.

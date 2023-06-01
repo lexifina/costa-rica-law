@@ -1,4 +1,1 @@
-Artículo 131. — Las ausencias injustificadas computables al final de un mismo mes calendario, se sancionarán de la siguiente forma:
-• Por una ausencia, amonestación verbal.
-• Por dos ausencias, alternas al mes amonestación escrita.
-• Por dos ausencias consecutivas o tres ausencias alternas o más, durante el mismo mes calendario, despido sin responsabilidad patronal municipal.
+Artículo 131.- Cuando a partir de la investigación preliminar que realice la oficina receptora de la denuncia, al tenor de lo establecido en la Ley o el presente Reglamento, se determine que el hecho fue cometido por un alcalde o una alcaldesa, intendentes y suplentes, regidoras (es) propietarios o suplentes, o síndicas (os), se procederá de inmediato, por intermedio del alcalde o alcaldesa, a elevar el asunto al Concejo Municipal, para que de conformidad con lo establecido en el párrafo final del artículo 11 del presente reglamento, proceda a sancionar al responsable de conformidad con las sanciones indicadas.

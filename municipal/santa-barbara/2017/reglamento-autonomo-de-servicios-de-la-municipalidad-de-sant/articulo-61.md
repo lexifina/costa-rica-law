@@ -1,1 +1,1 @@
-Artículo 61. —La Municipalidad programará y presupuestará mediante el Departamento de Recursos Humanos capacitación o formación acordes con las necesidades detectadas y prioridades en las distintas unidades de la Institución, en coordinación con el Despacho del o la Alcalde(sa), las direcciones y jefaturas de departamento.
+Artículo 61. -Una vez programadas las actividades de capacitación y notificadas las respectivas jefaturas y los funcionarios participantes, no se concederá licencia con o sin goce de salario que coincida con el período que se desarrolle la actividad.

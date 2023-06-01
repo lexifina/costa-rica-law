@@ -1,1 +1,1 @@
-Artículo 13. —El Departamento de Recursos Humanos llevará el registro expedito de todos aquellos datos y registros derivados de la relación de servicio de sus funcionarios en asuntos tales como: evaluación del desempeño y aspectos disciplinarios.
+Artículo 13. -El Departamento de Talento Humano llevará el registro expedito de todos aquellos datos y registros derivados de la relación de servicio de sus funcionarios en asuntos tales como: evaluación del desempeño y aspectos disciplinarios.

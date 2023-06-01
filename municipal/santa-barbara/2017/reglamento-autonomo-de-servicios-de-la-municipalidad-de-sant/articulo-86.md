@@ -1,3 +1,1 @@
-CAPÍTULO XX
-De la regulación del fumado
-Artículo 86. —De conformidad con lo dispuesto en el inciso b) del artículo 5 de la Ley Nº 9026 del 26 de marzo de 2012, Ley General del Control del Tabaco y sus Efectos Nocivos Sobre la Salud, se prohíbe a todos (as) servidor(a) sin excepción, el fumar en las instalaciones municipales.
+Artículo 86. -En adelante la Municipalidad seguirá aplicando las sumas y porcentajes de aumento de salarios a todos (as) sus colaboradores (as) en las mismas condiciones y cantidades según el artículo 100 del Código Municipal (costo de vida).

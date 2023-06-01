@@ -1,1 +1,1 @@
-Artículo 28. —Para efectos de protectores, fondos y refrescadores de pantalla, podrán utilizarse únicamente los definidos por la Municipalidad, en concordancia con la normativa interna o gubernamental que exista para ello.
+Artículo 28. -Para efectos de protectores, fondos y refrescadores de pantalla, podrán utilizarse únicamente los definidos por la Municipalidad, en concordancia con la normativa interna o gubernamental que exista para ello.

@@ -1,0 +1,1 @@
+Artículo 221. -Para los procedimientos administrativos se aplicará el artículo 159 del Código Municipal, la Ley General de la Administración Pública y el presente reglamento en lo que corresponda.

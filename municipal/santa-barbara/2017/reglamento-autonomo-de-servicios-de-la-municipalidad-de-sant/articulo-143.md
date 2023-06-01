@@ -1,2 +1,1 @@
-Artículo 143. —Es obligación de cada funcionario cumplir el horario establecido para el uso del uniforme, el no uso del uniforme por primera vez sin la justificación debida se considerará falta leve sancionable con amonestación verbal.
-Todo trabajador Municipal que ingrese a la Empresa tendrá derecho a solicitar el uniforme después de superar el periodo de prueba de tres meses. Sin embargo, si dicho periodo finaliza en fecha posterior al mes de noviembre, deberá esperarse hasta que la Proveeduría Municipal le señale.
+Artículo 143. -Del total que le corresponde, el o la servidor (a) deberá tomar las previsiones para cubrir las vacaciones que se toman a nivel de todo el personal Municipal, en los periodos de semana Santa y de fin de año.

@@ -1,3 +1,1 @@
-CAPÍTULO XIX
-De la salud ocupacional y el equipo de trabajo
-Artículo 79. —Es deber de la Municipalidad, procurar el bienestar físico, mental y social de los (as) funcionarios (as), para lo cual deberá mostrar especial atención e interés en todo lo relacionado con la salud ocupacional.
+Artículo 79. -Para evaluar y calificar al servidor (a) en su desempeño general, se utilizarán las categorías de Insuficiente, Bueno, Muy Bueno, Excelente y Sobresaliente. La evaluación y calificación de servicios se hará efectiva en la primera quincena del mes de febrero de cada año y será responsabilidad de la Oficina de Talento Humano supervisar que cada coordinador, jefatura o encargado haga entrega del formulario en el plazo que corresponde.

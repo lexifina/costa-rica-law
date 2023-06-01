@@ -1,1 +1,1 @@
-Artículo 16. —La información contenida en el expediente personal es de carácter confidencial y sólo tendrán acceso a ella el Alcalde Municipal, además del servidor (a) o su representante legal, debidamente acreditado como apoderado y el Auditor Municipal en caso que así se requiera.
+Artículo 16. -La información contenida en el expediente personal es de carácter confidencial y sólo tendrán acceso a ella el Alcalde Municipal, además del servidor (a) o su representante legal, debidamente acreditado como apoderado y el Auditor Municipal en caso que así se requiera.

@@ -1,1 +1,3 @@
-Artículo 101. — Las sanciones por hostigamiento sexual se aplicarán según la gravedad del hecho y serán las siguientes: la amonestación escrita, la suspensión y el despido, sin perjuicio de que se acuda a las vías correspondientes, cuando las conductas también constituyan hechos punibles, según lo establecido en el Código Penal.
+CAPÍTULO XX
+De la regulación del fumado
+Artículo 101. -De conformidad con lo dispuesto en el inciso b) del artículo 5 de la Ley Nº 9026 del 26 de marzo de 2012, Ley General del Control del Tabaco y sus Efectos Nocivos Sobre la Salud, se prohíbe a todos (as) servidor(a) sin excepción, el fumar en las instalaciones municipales.

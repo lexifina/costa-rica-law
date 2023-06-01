@@ -1,0 +1,1 @@
+Artículo 225. -El presente reglamento entrará en vigencia en la fecha de su publicación en el Diario Oficial La Gaceta. Se procederá a reproducir y entregar un ejemplar a cada uno de los (as) servidores (as) municipales, incluyendo al Alcalde (sa) Municipal.

@@ -1,9 +1,9 @@
 CAPÍTULO X
 Prohibiciones de los o las funcionarios (as)
-Artículo 24. —Está prohibido a los servidores (as) de la Municipalidad:
+Artículo 24. -Está prohibido a los servidores (as) de la Municipalidad:
 1. Lo indicado en el artículo 72 del Código de Trabajo.
 2. Actuar en el desempeño de sus cargos, con fines distintos de los encomendados.
-3. Tener obligaciones laborales con otras entidades, públicas o privadas, o adquirir compromisos con evidente superposición horaria a su relación laboral con la Municipalidad.
+3.Tener obligaciones laborales con otras entidades, públicas o privadas, o adquirir compromisos con evidente superposición horaria a su relación laboral con la Municipalidad.
 4. Participar en actividades vinculadas con empresas o intereses privados que puedan causar evidente perjuicio a los municipales o competir con ellos.
 5. Utilizar o distraer los bienes y recursos municipales en labores, actividades y asignaciones privadas distintas del interés público.
 6. Durante los procesos electorales, ejercer actividad política partidaria en el desempeño de sus funciones y durante la jornada laboral; así como violar las normas de neutralidad que estatuye el Código Electoral.
@@ -23,11 +23,11 @@ Artículo 24. —Está prohibido a los servidores (as) de la Municipalidad:
 20. Solicitar servicios o recursos especiales para la institución, cuando dicha aportación comprometa o condicione en alguna medida la toma de decisiones.
 21. Hacer abandono o dejar de hacer las labores encomendadas sin causa justificada, o sin permiso expreso de la jefatura inmediata y el Alcalde Municipal.
 22. Sin perjuicio de otros supuestos calificados como abandono de trabajo se constituye como tales:
-a. Distraer tiempo de sus horas de trabajo para asuntos ajenos a las labores correspondientes del cargo que desempeña.
-b. Atender, en horas de trabajo, visitas personales y hacer llamadas telefónicas de igual naturaleza, a menos que estas sean de gravedad o de urgencia, en cuyo caso deberán ser lo más breves posibles.
-c. Atender negocios de carácter personal, o ejecutar algún trabajo de cualquier naturaleza, ajeno a los fines de su función o de la Municipalidad.
-d. Visitar otras oficinas que no sean aquellas donde prestan sus servicios, a no ser que lo exija la naturaleza del trabajo; así como mantener conversaciones innecesarias con compañeros (as) de labores o con extraños, en perjuicio o con demora del trabajo que se está ejecutando.
-e. Distraer con cualquier clase de juegos o bromas a los o las compañeros (as) de trabajo o quebrantar la cordialidad y el mutuo respeto que deben ser normas en las relaciones del personal de la Municipalidad.
+a) Distraer tiempo de sus horas de trabajo para asuntos ajenos a las labores correspondientes del cargo que desempeña.
+b) Atender, en horas de trabajo, visitas personales y hacer llamadas telefónicas de igual naturaleza, a menos que estas sean de gravedad o de urgencia, en cuyo caso deberán ser lo más breves posibles.
+c) Atender negocios de carácter personal, o ejecutar algún trabajo de cualquier naturaleza, ajeno a los fines de su función o de la Municipalidad.
+d) Visitar otras oficinas que no sean aquellas donde prestan sus servicios, a no ser que lo exija la naturaleza del trabajo; así como mantener conversaciones innecesarias con compañeros (as) de labores o con extraños, en perjuicio o con demora del trabajo que se está ejecutando.
+e) Distraer con cualquier clase de juegos o bromas a los las compañeros (as) de trabajo o quebrantar la cordialidad y el mutuo respeto que deben ser normas en las relaciones del personal de la Municipalidad.
 23. Incumplir las órdenes de los superiores jerárquicos, cuando sean propias de su competencia, salvo excepciones establecidas por Ley.
 24. Divulgar el contenido de informes o documentos confidenciales, así como hacer público cualquier asunto de orden interno o privado de la oficina, sin la autorización correspondiente.
 25. Ingerir licor o presentarse en estado de embriaguez, drogadicción, o cualquier otra condición análoga, en las distintas dependencias de la Municipalidad.

@@ -1,3 +1,1 @@
-CAPÍTULO XXXIII
-Riesgos del trabajo
-Artículo 144. —De acuerdo con lo que disponen los artículos 193 y siguientes del Código de Trabajo esta Municipalidad tendrá asegurados a sus trabajadores(as) contra riesgos del trabajo por medio del Instituto Nacional de Seguros.
+Artículo 144. -Si durante el disfrute de las vacaciones, el o la servidor (a) se enferma o accidenta y es incapacitado(a) para trabajar por la Caja Costarricense del Seguro Social o el Instituto Nacional de Seguros, el periodo se interrumpe y los días que falten de disfrutar se concederán al término de la incapacidad.

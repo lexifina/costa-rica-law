@@ -1,3 +1,2 @@
-CAPITULO XXIX
-De las llegadas tardías
-Artículo 132. — Se considera llegada tardía el ingreso al trabajo después de cinco minutos de la hora exacta para el comienzo de las labores. Sin embargo, en casos muy calificados a juicio del Alcalde (sa) o jefe inmediato se podrá justificar la llegada tardía a efecto de no aplicar la sanción correspondiente.
+Procedimiento de Investigación y Sanción
+Artículo 132: Quien formule una denuncia por acoso laboral, psicológico y moral, sólo podrá ser despedido por causa justificada originada en falta grave a los deberes derivados del contrato laboral, según lo establecido en el artículo 81 del Código de Trabajo. De presentarse una de estas causales, LA MUNICIPALIDAD tramitará el despido de conformidad con lo dispuesto en este Reglamento y en el artículo 159 del Código Municipal.

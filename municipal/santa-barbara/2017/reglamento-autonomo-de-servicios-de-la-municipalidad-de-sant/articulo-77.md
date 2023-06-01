@@ -1,1 +1,11 @@
-Artículo 77. —El recargo de funciones se pagará con fundamento en la diferencia existente entre el salario base del puesto que ocupa el o la funcionario (a) y el salario base del puesto con recargo. La persona que realice el recargo debe cumplir con los requisitos académicos profesionales, de experiencia y legales además de cualquier otro que solicite el perfil de puesto a realizar, según circular de la Contraloría General de la República número 8060.
+Artículo 77. Principios Rectores. Son principios rectores de la evaluación del desempeño de las personas servidoras públicas:
+a) Principio de legalidad.
+b) Principio de excelencia en el servicio.
+c) Principio de mérito, capacidad y competencias.
+d) Principio de Prevalencia del interés general.
+e) Principio de participación.
+f) Principio de transparencia.
+g) Principio de objetividad e imparcialidad.
+h) Principio de igualdad de oportunidad, trato y no discriminación.
+i) Principio de eficacia.
+j) Principio de eficiencia.

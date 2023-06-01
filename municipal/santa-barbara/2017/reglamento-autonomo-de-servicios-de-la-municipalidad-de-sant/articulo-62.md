@@ -1,1 +1,1 @@
-Artículo 62. —El Departamento de Recursos Humanos analizará si la actividad propuesta responde al diagnóstico de necesidades de capacitación detectadas para las diferentes áreas municipales.
+Artículo 62. -La Municipalidad brindará el tiempo necesario, transporte y si fuere el caso, con autorización de la Alcaldía Municipal, viáticos a sus funcionarios para la participación en actividades de capacitación o formación de acuerdo a la tabla de viáticos vigente.

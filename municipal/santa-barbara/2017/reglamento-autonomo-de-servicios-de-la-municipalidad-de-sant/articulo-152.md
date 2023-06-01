@@ -1,11 +1,7 @@
-CAPÍTULO XXXIV
-De la terminación de la relación de servicio
-Artículo 152. —Los(as) funcionarios(as) regulares terminarán su relación de servicios con la Municipalidad cuando se dé uno de los siguientes supuestos:
-a. Renuncia del o (la) funcionario (a), debidamente aceptada.
-b. Despido del o (la) funcionario (a).
-c. Traslado del o (la) funcionario (a) a otra institución del Estado.
-d. Fallecimiento del o (la) funcionario(a).
-e. Jubilación del o (la) servidor (a).
-f. Invalidez total o permanente del o (la) servidor (a) debidamente declarada.
-g. Nulidad del nombramiento.
-h. Cuando él o (la) servidor (a) se acoja a un programa de movilidad laboral voluntario u obligatorio.
+CAPÍTULO XXVI
+De la jornada de trabajo
+Artículo 152. -La jornada de trabajo para todo el personal municipal será de lunes a viernes, bajo el siguiente horario:
+De 7:00 a.m. a 3:00 p.m., jornada continua, con 45 minutos de almuerzo y 15 minutos de descanso (café) solamente en la mañana.
+a. Secretaría del Concejo: la cual laborará los días que sesione el Concejo de 2 p.m. a 9 p.m. y el resto de los días de 8 a.m. a 3 p.m., horario que obedece a que la misma debe presentarse a todas las sesiones (ordinarias y extraordinarias) del Concejo Municipal. los horarios que esta sesione. Es su deber publicar el horario de atención al público, el cual estará basado en el indicado.
+b. Cualquier puesto operativo, tendrán un horario con dos días libres por semana, el horario laboral podrá contemplar los fines de semana, feriados y roles de trabajo (6 a.m. a 2 p.m. ó 11 a.m. a 7 p.m.), en caso de laborar feriados se estaría reconociendo el pago correspondiente. Los días libres por semana para este tipo de cargos serán establecidos por la jefatura inmediata de los puestos descritos, lo que comunicarán al trabajador con una semana de antelación, con copia a la Unidad de Talento Humano. (rige a partir de su publicación) Esta disposición será aplicable a los funcionarios que ingresen a la institución, posterior a su publicación.
+(Nota de Sinalevi: Los textos que están en color rojo fueron así suministrados por la Municipalidad de Santa Bárbara.)

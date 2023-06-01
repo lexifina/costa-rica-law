@@ -1,9 +1,1 @@
-Artículo 114. —El o la Alcalde (sa) podrá prorrogar los permisos autorizados mediante resolución interna y con apego estricto a las siguientes disposiciones:
-a) Hasta seis meses para asuntos personales, la cual podrá ser prorrogada por seis meses más en casos muy especiales.
-b) Hasta un año para:
-1- Asuntos graves de familia, tales como enfermedad, convalecencia o tratamiento médico, cuando así lo requiera la salud del (la) funcionario (a).
-2- Realización de estudios académicos en materias, especialidades o campos de indudable interés para la Municipalidad, a nivel superior de pregrado, grado o postgrado, o a nivel técnico que requiera de la dedicación exclusiva del o la funcionario (a) durante la jornada de trabajo.
-3- Para la ejecución de proyectos experimentales dentro de un traspaso de actividades del sector municipal hacia el privado, que haya sido aprobado por el o la Alcalde (sa) y que implique el desligamiento del o la funcionario (a) de la municipalidad.
-c) Toda solicitud de licencia sin goce de salario o prórroga de la misma, requerirá la presentación de los documentos en que se fundamenta, la cual, para su trámite debe de hacerse con un mes de antelación ante las instancias indicadas.
-Transcurrido el mes sin que exista resolución por parte de la administración, se entenderá autorizada la licencia o prórroga.
-d) El Permiso sin Goce Salarial quedará en firme hasta que el funcionario aporte y entregue a la Alcaldía Municipal, un informe de labores, informe de pendientes e informe de activos municipales o herramientas y materiales de trabajo bajo su responsabilidad. Posteriormente el funcionario deberá firmar la acción de personal correspondiente en el Departamento de Recursos Humanos.
+Artículo 114. - El procedimiento deberá ser llevado a cabo resguardando la imagen, confidencialidad y los principios que rigen la actividad administrativa, so pena de incurrir en falta grave.

@@ -1,22 +1,20 @@
 CAPÍTULO VI
 Deberes éticos del (la) servidor(a) municipal
-Artículo 20. —Todo (a) servidor (a) debe acatar los siguientes deberes, sin perjuicio de todos los demás establecidos por la ley y este Reglamento:
+Artículo 20. -Todo (a) servidor (a) debe acatar los siguientes deberes, sin perjuicio de todos los demás establecidos por la ley y este Reglamento:
 a) Deber de Lealtad: Todo (a) servidor (a) debe ser fiel a los principios éticos del servicio público, le debe lealtad a la institución.
 b) Deber de Eficiencia: Todo (a) servidor (a) debe cumplir personal y eficientemente la función que le corresponde en la institución en las condiciones de tiempo, forma, y lugar que determinen las normas correspondientes y de acuerdo con las siguientes reglas:
 1. Usar el tiempo laboral realizando siempre su mejor esfuerzo, en la forma más productiva posible y en el desarrollo de las tareas que corresponden al cargo con el esmero, la intensidad y el cuidado apropiado.
 2. Esforzarse por encontrar y utilizar la forma más eficiente y económica de realizar sus tareas, así como para mejorar los sistemas administrativos y de atención al usuario en los cuales participa. Esto lo puede realizar mediante sugerencias e iniciativas explícitas a sus superiores.
-3. Velar por la conservación de los útiles, objetos y demás bienes que integran el patrimonio de la
-Municipalidad y el de los terceros que se pongan bajo su custodia, y entregarlos cuando corresponda.
-4. Hacer uso razonable de los útiles y materiales que se le proporcionen para realizar sus tareas, procurando dar a cada uno de ellos el máximo rendimiento y menor
-desperdicio posible.
+3. Velar por la conservación de los útiles, objetos y demás bienes que integran el patrimonio de la Municipalidad y el de los terceros que se pongan bajo su custodia, y entregarlos cuando corresponda.
+4. Hacer uso razonable de los útiles y materiales que se le proporcionen para realizar sus tareas, procurando dar a cada uno de ellos el máximo rendimiento y menor desperdicio posible.
 c) Deber de Probidad: Todo (a) servidor (a) debe de actuar con honradez, en especial cuando haga uso de recursos públicos que le son confiados para el cumplimiento de los fines municipales, o cuando participe en actividades o negocios de la administración que comprometan esos recursos.
-d) Deber de Responsabilidad: Todo (a) servidor (a) actuará con claro sentido del deber que le corresponde para el cumplimiento del fin público que compete a la Municipalidad y de las consecuencias que el cumplimiento o incumplimiento de ese deber conlleva en relación con ese cometido institucional.
+d) Deber de Responsabilidad: Todo (a) servidor (a) actuará con claro sentido del deber que le corresponde para el cumplimiento del fin público que compete a la Municipalidad y de las consecuencias que el cumplimiento o incumplimiento de ese deber conlleva en relación con
+ese cometido institucional.
 e) Deber de Confidencialidad: El o la servidor (a) debe guardar discreción con respecto a todos los hechos e informaciones de los cuales tenga conocimiento en el ejercicio o con motivo del ejercicio de sus funciones, independientemente de que el asunto haya sido calificado o no como confidencial por el superior, salvo en el caso de que sea autorizado para dar informaciones y sin perjuicio del derecho de información del administrado (a), conforme al ordenamiento jurídico vigente.
 f) Deber de Imparcialidad: El o la servidor (a) debe ejercer el cargo sin discriminar en cuanto a las formas y condiciones del servicio a ninguna persona por razón de raza, género, religión, nacionalidad, situaciones económicas, ideología o afiliación política.
-g) Deber de Conducirse Apropiadamente Frente al Público:
-Todo (a) servidor (a) debe observar frente al público, en el servicio y fuera de él, una conducta correcta, digna y decorosa, evitando actitudes que puedan socavar la confianza del público y la integridad del o el funcionario (a) y la Municipalidad.
+g) Deber de Conducirse Apropiadamente Frente al Público: Todo (a) servidor (a) debe observar frente al público, en el servicio y fuera de él, una conducta correcta, digna y decorosa, evitando actitudes que puedan socavar la confianza del público y la integridad del o el funcionario (a) y la Municipalidad.
 h) Deber de conocer prohibiciones y regímenes especiales que puedan ser aplicables: Todo(a) servidor(a) debe conocer las disposiciones legales y reglamentarias sobre incompatibilidad de acumulación de cargos, prohibiciones por razón de parentesco y cualquier otro régimen especial que le sea aplicable y asegurarse de cumplir con las acciones necesarias para determinar si está o no comprendido en algunas de las prohibiciones establecidas en ellos.
-i) Deber de Objetividad: El o la servidor (a) siempre debe emitir juicios objetivos sin influencia de criterios personales o de terceros no autorizados por la administración y se abstendrá de participar en cualquier decisión cuando exista violencia moral sobre él o ella que pueda hacerle incumplir su deber de objetividad.
-Queda a salvo su deber de obediencia al superior en los términos previstos en la Ley General de la Administración Pública.
+i) Deber de Objetividad: El o la servidor (a) siempre debe emitir juicios objetivos sin influencia de criterios personales o de terceros no autorizados por la administración y se abstendrá de participar en cualquier decisión cuando exista violencia moral sobre él o ella que pueda hacerle incumplir su deber de objetividad. Queda a salvo su deber de obediencia al superior en los
+términos previstos en la Ley General de la Administración Pública.
 j) Deber de comportarse con decoro y respeto: Todo (a) servidor (a) debe ser justo, cuidadoso, respetuoso y cortés en el trato con los o las usuarios (as) del servicio, sus jefes, colaboradores (as) y compañeros (as).
 k) Deber de Denuncia: Es obligación de todo (a) servidor (a) formular la denuncia correspondiente ante la autoridad competente, cuando en el ejercicio de su cargo tenga conocimiento de cualquier irregularidad en perjuicio de los o las funcionarios (as) y de la Municipalidad.

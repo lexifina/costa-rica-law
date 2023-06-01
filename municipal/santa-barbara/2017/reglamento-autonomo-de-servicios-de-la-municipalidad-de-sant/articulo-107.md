@@ -1,3 +1,6 @@
-Artículo 107. —Las vacaciones se deberán gozar sin interrupciones salvo, cuando así lo convengan el (la) funcionario(a) municipal y siempre que se tratare de labores de índole especial, que no permitan la ausencia prolongada del (la) funcionario (a) y su presencia se considere necesaria para la buena marcha del servicio.
-Para todos (as) los (as) funcionarios (as), las boletas de vacaciones serán tramitadas por el Departamento de Recursos Humanos, autorizadas por la jefatura inmediata y el Alcalde Municipal, quedando registradas en los expedientes personales administrativos.
-En el caso de la Alcaldía, ésta deberá informar al Concejo Municipal, de los días que se ausentará por vacaciones. Lo anterior para efectos de que conozca su suplencia.
+Artículo 107. - Serán tipificadas como manifestaciones del acoso sexual las siguientes:
+a) Promesa implícita o explícita, de un trato preferencial respecto de la situación actual o futura, de empleo o de estudio, de quien la reciba.
+b) Amenazas explícitas o implícitas, físicas o morales, de daños o castigos referidos a la situación, actuales o futuras, de empleo o de estudio de quien las reciba.
+c) Exigencia de una conducta cuya sujeción o rechazo sea, en forma explícita, condición para el empleo o de estudio de quien las reciba.
+d) Uso de palabras de naturaleza sexual, escritas u orales, que resulten hostiles, humillantes y ofensivas para quien las reciba.
+e) Acercamientos corporales y otras conductas físicas de naturalezas sexuales, indeseadas y ofensivas para quien los reciba.

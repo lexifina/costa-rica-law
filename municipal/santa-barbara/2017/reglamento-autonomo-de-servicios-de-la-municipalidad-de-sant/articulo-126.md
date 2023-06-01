@@ -1,3 +1,8 @@
-Artículo 126. — La suspensión del trabajo se aplicará hasta por quince días hábiles y sin goce de salario, salvo excepción de la responsabilidad del funcionario contenida en el artículo 73 del Código Municipal, una vez que se haya agotado el procedimiento prescrito en los artículos 150 y siguientes del Código Municipal, en los siguientes casos:
-• Cuando el funcionario después de haber sido reprimido por escrito incurra de nuevo en la falta que motivó la amonestación.
-• Cuando el servidor cometa alguna falta de cierta gravedad que no de mérito para el despido, excepto si estuviera sancionada de manera especial por otra disposición de este Reglamento.
+Artículo 126. - La persona afectada por acoso u hostigamiento laboral, psicológico y moral en el trabajo podrá plantear la denuncia, sea en forma escrita ante la Alcaldía Municipal. Esta denuncia debe incluir:
+a) Nombre de la o del denunciante, número de cédula, puesto y lugar de trabajo.
+b) Nombre de la o del denunciado, puesto y lugar de trabajo.
+c) Indicación del tipo de acoso que está sufriendo.
+d) Fecha a partir de la cual ha sido sujeto o sujeta del acoso u hostigamiento laboral, psicológico y moral.
+e) Nombre de la o las personas que puedan atestiguar sobre los hechos denunciados.
+f) Cualquier otra prueba que sirva para la comprobación del acoso y hostigamiento.
+g) Firma de la denuncia.

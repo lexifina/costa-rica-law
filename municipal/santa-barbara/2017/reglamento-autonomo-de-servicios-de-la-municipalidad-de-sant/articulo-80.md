@@ -1,1 +1,1 @@
-Artículo 80. —La Comisión de Salud Ocupacional, elaborará e implementará el programa de salud ocupacional que cubra a todas las dependencias de la Municipalidad, de conformidad con el artículo 288 de la Ley sobre Riesgos de Trabajo, número 6727 de 24 de marzo de 1982 y sus reformas.
+Artículo 80. -La evaluación y calificación de servicios en la Municipalidad, deberá darse a los (as) servidores (as) nombrados (as) en propiedad.

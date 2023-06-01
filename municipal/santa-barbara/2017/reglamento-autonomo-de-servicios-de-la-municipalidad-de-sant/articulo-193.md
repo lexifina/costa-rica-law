@@ -1,0 +1,1 @@
+Artículo 193. - Las ausencias al trabajo deberán ser comprobadas mediante documento expedido por la Caja Costarricense de Seguro Social en los casos protegidos por éste régimen o por el Instituto Nacional de Seguros si se trata de un riesgo del trabajo.

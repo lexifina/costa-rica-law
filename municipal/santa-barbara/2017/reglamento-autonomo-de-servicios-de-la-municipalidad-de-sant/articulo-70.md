@@ -1,6 +1,2 @@
-CAPÍTULO XVIII
-De los sueldos y salarios.
-Artículo 70. —Los sueldos y salarios de los (as) servidores (as) de la Municipalidad se regirán de la siguiente forma:
-a) Ningún (a) servidor (a) devengará un sueldo inferior al mínimo o correspondiente al desempeño del cargo que ocupa.
-b) Los sueldos y salarios de los (as) servidores (as) de la Municipalidad de Santa Bárbara de Heredia, serán determinados por una escala de sueldos, que se fijará con sumas mínimas y máximas correspondientes a cada categoría de puestos.
-c) Para determinar los sueldos y salarios, se tomarán en cuenta las condiciones presupuestarias de la Municipalidad, el costo de vida en las distintas regiones, los salarios que prevalezcan en el mercado para puestos iguales y cualesquiera otras disposiciones legales en materia salarial.
+Artículo 70. Fundamento metodológico de la evaluación del desempeño. La evaluación del desempeño de las personas funcionarias municipales, se fundamentará en indicadores cuantitativos de cumplimiento de metas individuales de productos y servicios prestados, vinculados a los procesos y los proyectos que realice la dependencia a la que pertenece, y la del cuerpo de los niveles directivos en todos sus niveles para el cumplimiento de las metas y los objetivos institucionales.
+Será responsabilidad de cada superior definir los procesos y los proyectos de la dependencia, así como los productos y los servicios prestados, de conformidad con la normativa vigente y los planes estratégicos gubernamentales institucionales.

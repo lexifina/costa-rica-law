@@ -1,6 +1,1 @@
-Artículo 125. —La amonestación por escrito se aplicará:
-• Cuando como lo señala el artículo 149 del Código Municipal, el o la servidor (a) haya merecido dos o más advertencias orales durante el mismo mes calendario.
-• Cuando las leyes del trabajo exijan que se le aperciba por escrito antes del despido.
-• Cuando incumpla alguna de las obligaciones establecidas en los artículos 23 y 24 de este reglamento, si la falta no diere mérito para una sanción mayor.
-En los casos especialmente previstos en este reglamento.
-Cuando las leyes de trabajo exijan la reprensión escrito antes del despido.
+Artículo 125: Es responsabilidad de LA MUNICIPALIDAD mantener en los centros de trabajo, las condiciones de respeto para quienes laboran en ella. Por tal motivo es su obligación prevenir, desalentar, evitar y sancionar las conductas de acoso laboral, psicológico y moral en el trabajo.

@@ -1,7 +1,1 @@
-Artículo 150. — Además de otras que establece este reglamento está terminantemente prohibido a todo(a) trabajador(a):
-a) Impedir o entorpecer el cumplimiento de las medidas de salud ocupacional.
-b) Remover, sin autorización, los resguardos y protecciones de las máquinas, útiles de trabajo e instalaciones.
-c) Alterar, dañar, destruirlos equipos y elementos de protección personal, de seguridad en el trabajo o negarse a usarlos sin motivo justificado.
-d) Alterar, dañar o destruir los avisos y advertencias sobre condiciones, sustancias, productos y lugares peligrosos.
-e) Hacer juegos o dar bromas que pongan en peligro la vida, salud e integridad personal de los(as) compañeros(as) de trabajo o de terceros.
-f) Manejar, operar o hacer uso de equipo y herramientas de trabajo para las cuales no cuenta con autorización y conocimientos.
+Artículo 150. -Las licencias para impartir lecciones a nivel superior, se tramitarán conforme a lo establecido en el artículo 49 de la Ley de la Administración Financiera de la República y en la Ley Nº 8422 Ley contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública.

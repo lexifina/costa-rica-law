@@ -1,3 +1,5 @@
-Artículo 106. —La Municipalidad señalarán únicamente para los (as) funcionarios (as), la programación de sus vacaciones, tratando de que no se altere la buena marcha de las funciones encomendadas, ni que sufra menoscabo la efectividad del descanso. La fijación deberá hacerla dentro de las quince semanas siguientes al día en que se cumpla el derecho de disfrutar sus vacaciones.
-Si transcurridas las quince semanas no se ha fijado la fecha correspondiente, el (la) funcionario (a), podrá solicitarlas por escrito ante el Departamento respectivo. En tal caso, se deberá conceder el disfrute de vacaciones a más tardar dentro del mes posterior a la solicitud.
-Si no se otorgaran en los ocho días siguientes, podrá el o la servidor (a) reportar esta situación a la Oficina de Recursos Humanos, quien previa consulta al o la Alcalde (sa) procederá a otorgar las vacaciones.
+Artículo 106. -Se entenderá por acoso u hostigamiento sexual, toda conducta sexual indeseada por quien la recibe, reiterada y que provoca efectos perjudiciales en los siguientes casos:
+a) Condiciones materiales de empleo.
+b) Desempeño y cumplimiento en la prestación de servicio.
+c) Estado general de bienestar personal
+También se considera acoso sexual la conducta grave que, habiendo ocurrido una sola vez, perjudique a la víctima en cualquiera de los aspectos indicados.

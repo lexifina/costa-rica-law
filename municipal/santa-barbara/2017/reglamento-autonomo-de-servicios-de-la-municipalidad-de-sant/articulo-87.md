@@ -1,1 +1,1 @@
-Artículo 87. —La Municipalidad deberá indicar de la prohibición de fumar por medio de rótulos en lugares visibles.
+Artículo 87. - La Municipalidad reconocerá el monto nominal fijo invariable calculado en enero 2019, por concepto de anualidad para las categorías salariales globales y/o compuestas existentes, a los funcionarios que cumplan con lo estipulado en el artículo 70 de este Reglamento y lo que establezca la Ley Marco de Empleo Público y su Reglamento.

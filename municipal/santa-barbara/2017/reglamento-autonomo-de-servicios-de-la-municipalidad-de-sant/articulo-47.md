@@ -1,3 +1,1 @@
-CAPÍTULO XV
-De la Carrera Administrativa
-Artículo 47. —De acuerdo con lo establecido en el Código Municipal, la carrera administrativa se regirá por las normas establecidas en el Código Municipal, en los artículos 115 al 145.
+Artículo 47. -La Unidad de Talento Humano, confeccionará para todos los puestos Municipales, una prueba de conocimiento escrita, la cual mantendrá actualizada de conformidad con los requerimientos del Manual de Clases de Puestos, según lo estipulado en el Manual de Reclutamiento y Selección de la Institución.

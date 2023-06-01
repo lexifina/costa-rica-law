@@ -1,3 +1,2 @@
-CAPÍTULO XVII
-De la Evaluación del Desempeño
-Artículo 63. —Los (as) servidores (as) de la Municipalidad, tendrán de acuerdo con el Código Municipal, una evaluación y calificación objetiva de sus servicios. Para tales efectos el Departamento de Recursos Humanos confeccionará los formularios y los modificará si fuera el caso, previa consulta y autorización del o la Alcalde (sa).
+Artículo 63. -La inasistencia injustificada de un (a) funcionario (a) a un evento de capacitación o a la obtención de una evaluación deficiente por ausencias, le imposibilitará para asistir a próximas actividades de capacitación como incentivo, por espacio de 6 meses.
+Además, una vez firmado el formulario de inscripción y asistencia a la capacitación, así como cancelado el costo respectivo por parte de la Municipalidad, si el funcionario decide no asistir sin tener una causa de justificación, deberá en todos los casos, reintegrar la respectiva erogación. Toda justificación de ausencia deberá presentarse al Departamento de Talento Humano en el plazo improrrogable de 5 días hábiles, caso contrario se procederá a rebajar del salario el monto indicado.

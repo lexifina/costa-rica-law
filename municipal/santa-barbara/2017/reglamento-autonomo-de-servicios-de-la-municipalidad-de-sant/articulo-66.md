@@ -1,1 +1,1 @@
-Artículo 66. —La evaluación y calificación de servicios en la Municipalidad, deberá darse a los (as) servidores (as) nombrados (as) en propiedad.
+Artículo 66. -El Departamento de Talento Humano analizará si la actividad propuesta responde al diagnóstico de necesidades de capacitación detectadas para las diferentes áreas municipales.

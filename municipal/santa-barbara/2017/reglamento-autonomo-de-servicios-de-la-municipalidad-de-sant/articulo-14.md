@@ -1,1 +1,1 @@
-Artículo 14. —Los expedientes de personal deberán contener todos aquellos documentos y datos que sirvan para determinar el historial de la relación de servicio y será responsabilidad de cada funcionario (a) actualizar el suyo.
+Artículo 14. -Los expedientes de personal deberán contener todos aquellos documentos y datos que sirvan para determinar el historial de la relación de servicio y será responsabilidad de cada funcionario (a) actualizar el suyo.

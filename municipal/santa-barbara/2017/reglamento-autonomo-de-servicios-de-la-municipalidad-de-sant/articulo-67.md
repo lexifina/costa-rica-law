@@ -1,3 +1,1 @@
-Artículo 67. —Cuando él (la) servidor (a) no haya completado un año de prestar servicios en el momento de la evaluación, se observarán las siguientes reglas:
-a) Si él o (la) servidor (a) ha estado menos de un año, pero más de seis meses a las órdenes de la misma jefatura, a él o ella corresponderá evaluarlo (a).
-b) Si él o (la) servidor (a) ha estado a las órdenes de varias jefaturas durante el año, pero con ninguno por más de seis meses, lo evaluará y calificará la última jefatura con quien trabajó tres meses o más.
+Artículo 67. Los servidores públicos podrán informar a la Administración, por medio de una declaración jurada, sobre su derecho a la objeción de conciencia, cuando se vulneren sus convicciones religiosas, éticas y morales, para efectos de los programas de formación y capacitación que se determine sean obligatorios para todas las personas servidoras, según lo estipula la Ley Marco de Empleo Público y su Reglamento.

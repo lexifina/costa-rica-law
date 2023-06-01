@@ -1,1 +1,1 @@
-Artículo 39. —El personal de esta Municipalidad se seleccionará únicamente a quienes satisfagan los requisitos mínimos prescritos en el Manual de Puestos, las mismas corresponderán a reglamentaciones que aplicará el Departamento de Recursos Humanos de la Municipalidad.
+Artículo 39. -El personal de esta Municipalidad se seleccionará únicamente a quienes satisfagan los requisitos mínimos prescritos en el Manual de Puestos, las mismas corresponderán a reglamentaciones que aplicará el Departamento de Talento Humano de la Municipalidad.

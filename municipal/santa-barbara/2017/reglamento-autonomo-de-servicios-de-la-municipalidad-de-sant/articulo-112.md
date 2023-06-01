@@ -1,6 +1,5 @@
-Artículo 112. —A efecto de determinar las cincuenta semanas de servicios continuos para tener derecho a vacaciones, no se computará los periodos de suspensión de la relación de servicio, salvo las siguientes excepciones:
-a) Incapacidad por maternidad
-b) Incapacidad por enfermedad y por riesgos de trabajo
-c) Licencia por adopción de hijos (as) menores de tres años en los términos de la Ley de Protección Social de la Mujer.
-d) Permisos con goce de salario
-Asimismo, no se reconocerán aquellos periodos de vacaciones que los funcionarios no hayan disfrutado en otras Instituciones, debiendo ser disfrutadas o canceladas por estas, lo anterior para no afectar de manera negativa el presupuesto Institucional.
+Artículo 112.- De las sanciones. Según sea la gravedad de la falta, se impondrán las siguientes sanciones:
+La falta leve será sancionada con una amonestación por escrito que será tomada en cuenta al efectuar la calificación anual del funcionario o funcionaria.
+La falta grave será sancionada con una suspensión sin goce de salario, hasta por quince días hábiles y la pérdida del paso anual por motivo de baja calificación anual.
+La falta gravísima será sancionada con despido sin responsabilidad patronal y sin perjuicio de que se acuda a la vía correspondiente, cuando las conductas también constituyan hechos punibles, según lo establecido en el Código Penal.
+Al funcionario o funcionaria que en la Municipalidad de Santa Bárbara de Heredia que hubiere sido sancionado o sancionada anteriormente por conductas caracterizadas como leves o graves y que reincida en su comportamiento, le será aplicada la sanción inmediata siguiente.

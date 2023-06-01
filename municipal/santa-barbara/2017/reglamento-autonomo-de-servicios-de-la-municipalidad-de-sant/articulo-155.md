@@ -1,3 +1,1 @@
-CAPÍTULO XXXV
-Procedimiento administrativo
-Artículo 155. —El o la Alcalde (sa) Municipal y el Concejo, resolverán en instancia administrativa final, según corresponda, agotando la vía administrativa el Concejo Municipal.
+Artículo 155. -Cuando necesidades imperiosas de la Municipalidad lo requieran, los(as) trabajadores(as) tienen la ineludible obligación de laborar en horas extraordinarias, salvo impedimento grave, hasta por el máximo de horas permitido por la Ley; sea que la jornada ordinaria sumada a la extraordinaria no podrá exceder de doce horas diarias. En cada caso concreto el patrono comunicará a los (as) trabajadores (as), como mínimo con un día de anticipación, la jornada extraordinaria que deben laborar.

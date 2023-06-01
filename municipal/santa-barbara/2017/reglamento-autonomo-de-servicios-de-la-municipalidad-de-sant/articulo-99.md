@@ -1,1 +1,1 @@
-Artículo 99. — El procedimiento deberá ser llevado a cabo resguardando la imagen, confidencialidad y los principios que rigen la actividad administrativa, so pena de incurrir en falta grave.
+Artículo 99. -La Comisión de Salud Ocupacional, en coordinación con las autoridades superiores de cada dependencia de la Municipalidad, podrán realizar acciones de formación humanística, intelectual, estética, deportiva y recreativa que permiten el desarrollo de actitudes.

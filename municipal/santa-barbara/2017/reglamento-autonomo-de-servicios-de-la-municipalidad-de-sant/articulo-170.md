@@ -1,0 +1,2 @@
+Artículo 170-Sistema de Control de Saldos. El control presupuestario de la Partida de Tiempo Extraordinario, deberá llevarlo el jefe inmediato en conjunto con Tesorería, de lo cual deberá rendir informe de manera mensual a la Alcaldía Municipal.
+Además, cada Jefe de Departamento deberá tener un sistema de control interno de saldos de tiempo extraordinario de su dependencia; lo anterior en estricta coordinación con el Ejecutor de Programa respectivo, quien llevará el control de todas las áreas y actividades que correspondan a su Programa Presupuestario.

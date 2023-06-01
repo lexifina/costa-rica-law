@@ -1,1 +1,1 @@
-Artículo 102. — Todo testigo de un acoso sexual tiene la garantía de que no sufrirá perjuicio alguno por sus declaraciones, sin perjuicio de las responsabilidades que le derive la falta a la verdad.
+Artículo 102. -La Municipalidad deberá indicar de la prohibición de fumar por medio de rótulos en lugares visibles.

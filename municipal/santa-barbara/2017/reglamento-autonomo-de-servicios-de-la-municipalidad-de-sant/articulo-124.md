@@ -1,3 +1,2 @@
-Artículo 124. —La amonestación verbal se aplicará en los siguientes casos:
-Cuando el trabajador en forma expresa o tácita, cometa alguna falta leve a las obligaciones expresas o tácitas que le impone su contrato o relación de servicio.
-En los casos expresamente previstos en éste Reglamento.
+Obligaciones de las partes
+Artículo 124: Es obligación del funcionario (a), superiores u otros dentro de la Organización Municipal mantener las mejores relaciones de respeto y honestidad con sus compañeros (as), contribuyentes y proveedores.
