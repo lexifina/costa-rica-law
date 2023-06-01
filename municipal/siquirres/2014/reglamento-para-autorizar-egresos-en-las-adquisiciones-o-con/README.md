@@ -16,3 +16,4 @@ Reglamento para autorizar egresos en las adquisiciones o contratación de bienes
 | 1 | 2014-11-06 | la propia norma |
 | 2 | 2016-06-27 | Reglamento municipal 9 (2016-06-27) |
 | 3 | 2020-08-11 | Reglamento municipal 0 (2020-08-11) |
+| 4 | 2023-06-01 | Reglamento municipal 0 (2023-06-01) |
