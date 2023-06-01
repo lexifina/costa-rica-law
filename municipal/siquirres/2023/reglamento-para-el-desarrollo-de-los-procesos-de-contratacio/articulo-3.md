@@ -1,0 +1,25 @@
+Artículo 3.- Definiciones. Para efectos del uso de este Reglamento, se utilizará la siguiente terminología:
+. Acto final: acto administrativo dictado en el ejercicio de sus funciones por un funcionario u órgano colegiado competente que lo lleva a adjudicar -total o parcialmente- el objeto del procedimiento, declarar desierto el procedimiento cuando median razones fundamentadas de interés público o a declarar infructuoso el procedimiento de contratación promovido, ya sea cuando no se reciben ofertas al concurso o cuando ninguna de las ofertas recibidas cumple con los requisitos de admisibilidad fijados en el pliego de condiciones.
+. Adjudicatario: persona física o jurídica que ha sido seleccionado por la Administración como la oferta ganadora en un procedimiento de contratación.
+. Administradores de los contratos: funcionarios o unidades responsables de la recepción de los bienes, servicios u obras contratadas y del control en la ejecución de los contratos, producto de los procesos de compra que se realizan en la Municipalidad.
+. Alertas tempranas: comunicados de la Administración que advierten de la intención de efectuar un procedimiento de compra.
+. Bien: cualquier insumo necesario para satisfacer las necesidades de la Municipalidad.
+Caducidad: forma anormal de terminación del procedimiento de selección del contratista o del contrato por inactividad de la Administración o del contratista por un período que supere un período de seis meses, en forma continua, o ante la sumatoria de suspensiones parciales que, en conjunto con los períodos de inactividad, supere dicho plazo, todo conforme a lo que establece la Ley General de Contratación Pública, Nº 9986 y su Reglamento.
+. Ciclo de vida de un bien o servicio: conjunto de etapas que atraviesan los productos o servicios que se comercializan en el mercado desde su lanzamiento hasta su retirada.
+. Comité de expertos: instancia unipersonal o colegiada, prevista en los pliegos de condiciones, preceptivamente en las licitaciones mayores de obra pública y facultativamente en los demás tipos de procedimientos de contratación, ante quien se someten las controversias no susceptibles de solución por negociación directa entre las partes.
+. Contratista: persona física o jurídica responsable del suministro de un servicio, un bien o una obra al amparo de un contrato generado a partir de un proceso de contratación.
+. Criterio Técnico: estudio especializado que analiza y determina el cumplimiento o no de las especificaciones técnicas, financieras, jurídicas o de cualquier otra naturaleza definidas en el pliego de condiciones, para cada oferta recibida en el procedimiento.
+. Estudio de mercado: análisis, observación y comparación del comportamiento de un sector en concreto de un mercado de bienes, servicios u obra que debe realizarse previo a la estimación de la contratación conforme a las reglas de los artículos 17 y 34 de la Ley General de Contratación Pública, Nº 9986.
+. Finiquito: acuerdo que firman las partes del contrato que da fe de la finalización de su ejecución y que las exonera de responsabilidad a partir de su firma.
+. Instancia adjudicadora: funcionario u órgano colegiado competente para adjudicar, declarar desierto, infructuoso un procedimiento de contratación de bienes, servicios u obras.
+. Notificación: acto mediante el cual se comunica a las partes un acto administrativo con el propósito de que produzca efectos jurídicos.
+. Oferente: toda persona física o jurídica que presenta una oferta para un concurso de contratación pública.
+. Plan de adquisiciones: plan de compras proyectado de forma anual que contiene las necesidades de bienes, servicios y obras de las unidades institucionales para un periodo presupuestario.
+. Pliego de condiciones: conjunto de condiciones y requisitos que establece la Administración de forma obligatoria, para contratar un servicio, bien o una obra. Incluye requisitos de admisibilidad, parámetros para verificar la calidad y un sistema de calificación de ofertas.
+. Presupuesto: instrumento en el cual se detalla la estimación de los recursos financieros necesarios la realizar una compra.
+. Reajuste de precios: Mecanismo jurídico empleado regulado para mantener el equilibrio económico del contrato.
+. Responsable de la adjudicación: Persona u órgano colegiado responsable de dictar el acto final en una contratación.
+. Servicios: Conjunto de actividades y servicios ofrecidos, que por su naturaleza son intangibles, prestados por personas físicas o jurídicas a la Municipalidad.
+. Unidad solicitante: Aquellas dependencias o áreas que son parte de un programa presupuestario y que tienen un presupuesto asignado, a las que les corresponde gestionar la contratación de bienes, obras y servicios presupuestados previamente.
+. Unidad técnica: Áreas que realizan estudios técnicos específicos para acreditar la idoneidad de los bienes, obras y servicios ofertados en un proceso de compra o recibidos en la Municipalidad producto de una compra.
+. Umbrales de adjudicación: rangos económicos que determinan la competencia de cada una de las instancias adjudicadoras definidas en este reglamento.

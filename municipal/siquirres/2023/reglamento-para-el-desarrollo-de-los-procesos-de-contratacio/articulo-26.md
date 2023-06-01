@@ -1,0 +1,2 @@
+Artículo 26. Finiquito de los contratos. La Alcaldía será el encargado de formalizar el finiquito de los contratos bajo su responsabilidad, aplicable en los contratos de obra pública o en los contratos de bienes y servicios que se deriven de procedimiento de licitación mayor y menor.
+La firma del finiquito deberá ajustarse a los plazos previstos en la Ley General de Contratación Pública, Nº 9986 según el tipo de contrato del que se trate.

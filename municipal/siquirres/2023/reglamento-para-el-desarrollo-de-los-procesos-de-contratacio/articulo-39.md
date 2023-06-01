@@ -1,0 +1,7 @@
+Artículo 39. Coordinación de Gestión Financiera. La Coordinación de la Gestión Financiera, tendrá a su cargo las siguientes funciones relacionadas con procesos de contratación:
+1. Garantizar el adecuado registro y control de los bienes donados o recibidos como donación.
+2. Emitir el criterio técnico respecto del tipo de arrendamiento de bienes muebles, como equipo, maquinaria, con opción de compra o sin ella, cuando la Administración requiera optar por este tipo de contratos. Para ello deberá seguir los lineamientos en materia de registros contables o financieros que emita la Dirección General de Contabilidad Nacional o el Consejo Nacional de Supervisión del Sistema Financiero (CONASSIFF) según el marco jurídico aplicable.
+3. Justificar la conveniencia y oportunidad de emplear el arrendamiento financiero, frente a otras posibles opciones para satisfacer una determinada necesidad.
+4. Realizar la estructuración del arrendamiento y presentar para su aval a la Dirección de Crédito Público del Ministerio de Hacienda, cuando corresponda.
+5. En el caso de procedimientos de contratación que tenga de por medio un contrato de arrendamiento operativo o financiero deberá elaborar un esquema de valoración del costo por medio de flujos de las cuotas del arrendamiento más la opción de compra traídos a valor presente a una tasa de descuento razonada para cada procedimiento de compra.
+6. Cualquier otra derivada de la Ley General de Contratación Pública, Nº 9986, su Reglamento y cualquier otra normativa aplicable.

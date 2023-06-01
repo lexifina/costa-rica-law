@@ -1,0 +1,1 @@
+Artículo 5. Requisitos previos. La Unidad Solicitante deberá coordinar y acreditar la existencia y cumplimiento de todos los requisitos previos previstos en la Ley General de Contratación Pública, Nº 9986 y su Reglamento para dar inicio a cualquier procedimiento de contratación según corresponda.

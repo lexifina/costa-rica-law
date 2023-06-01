@@ -1,0 +1,3 @@
+Artículo 41. Departamento de Valoración y Catastro. El Departamento de Valoración y Catastro, tendrá a su cargo las siguientes funciones relacionadas con procesos de contratación: Elaborar el avalúo especializado para los procedimientos de remate y para el arrendamiento o compra de bienes inmuebles; para efectos del contrato de donación de bienes muebles e inmuebles y para ofrecer como parte del pago bienes muebles de su propiedad.
+1. Declarar en desuso o en mal estado, los bienes propiedad de la Institución a requerimiento de cualquier Unidad o Dependencia interna
+2. Cualquier otra derivada de la Ley General de Contratación Pública, Nº 9986, su Reglamento y cualquier otra normativa aplicable.

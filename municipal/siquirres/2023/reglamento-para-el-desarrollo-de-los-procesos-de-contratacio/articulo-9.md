@@ -1,0 +1,1 @@
+Artículo 9. Inicio del procedimiento. Una vez que se cuente con la decisión inicial debidamente confeccionada, con las especificaciones técnicas o términos de referencia aprobados y el contenido presupuestario correspondiente, la Proveeduría Institucional dará inicio al procedimiento de contratación respectivo dentro del Sistema Digital Unificado.

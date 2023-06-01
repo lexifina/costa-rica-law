@@ -1,0 +1,11 @@
+Capítulo III
+De las Responsabilidades de los Involucrados en los Procesos de Contratación
+Artículo 27.- Responsabilidades generales de los participantes en los procesos de contratación. En el cumplimiento de sus funciones, todos los funcionarios, sin excepción, durante el proceso de contratación deberán:
+1. Actuar de forma íntegra, proba, procurando el correcto uso de los fondos públicos y denunciando ante la autoridad competente cualquier actividad o situación contraria al correcto manejo de los recursos públicos.
+2. Hacer uso del Sistema Digital Unificado para todas las comunicaciones relacionadas con los procesos de contratación tanto interno como externo y cumplir con los plazos legales y reglamentarios dispuestos para incluir y dar acceso a la información en dicha plataforma de manera que el expediente de la contratación se encuentre debidamente actualizado.
+3. Digitalizar e incluir como archivo en formato PDF o según lo disponga el pliego de condiciones de la contratación respectiva, en el módulo que corresponda, cualquier documento que no esté disponible en formato electrónico y que sea parte del procedimiento de una contratación.
+4. Mantener actualizado el expediente de los Convenios Marco incorporando todos los antecedentes de su decisión de compra, para su revisión y control posterior, como institución usuaria de un Convenio Marco.
+5. Actuar en el ejercicio de sus funciones, con estricto apego al bloque de legalidad, al deber de probidad y mantener un actuar apegado a los más altos principios éticos como funcionario público.
+6. Velar por la adecuada aplicación e interpretación del ordenamiento jurídico aplicable para cada caso en particular.
+7. Informar a la Comisión para Promover la Competencia, cuando se tenga indicios de actuaciones ligadas a posibles acuerdos colusorios y a cualquier otro tipo de práctica monopolística o anti-competitiva en procedimientos de contratación pública.
+8. Cualquier Unidad de la Institución de tipo técnico, jurídico, contable, financiero, presupuestario, informático y de cualquier otro orden deberá brindar la colaboración y asesoría que requiera la proveeduría institucional, para el debido cumplimiento de las obligaciones y atribuciones.

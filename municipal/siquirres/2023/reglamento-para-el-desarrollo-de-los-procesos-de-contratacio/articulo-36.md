@@ -1,0 +1,3 @@
+Artículo 36. Tesorería Municipal. La Tesorería Municipal, tendrá a su cargo las siguientes funciones relacionadas con procesos de contratación:
+1. Realizar la devolución de las garantías de cumplimiento o de cualquier otra índole una vez que el Administrador del Contrato ha formalizado el acta de recepción definitiva de los bienes, servicios u obras y ha tramitado la cancelación respectiva. Todo de conformidad con lo establecido en el artículo 119 del Código Municipal.
+2. Cualquier otra derivada de la Ley General de Contratación Pública, Nº 9986, su Reglamento y cualquier otra normativa aplicable.

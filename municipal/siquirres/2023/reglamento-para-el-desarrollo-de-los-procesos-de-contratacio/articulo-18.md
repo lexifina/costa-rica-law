@@ -1,0 +1,2 @@
+Artículo 18. Formalización del contrato. La Proveeduría será la responsable de gestionar la formalización contractual para lo cual será necesario la firma digital de las partes en el Sistema Digital Unificado.
+En el sistema digital unificado, de igual forma la Proveeduría deberá emitir el documento de ejecución denominado pedido, orden de compra u otro similar, el cual deberá incluir la descripción del bien o servicio, nombre del contratista, plazo de entrega y monto del contrato.

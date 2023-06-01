@@ -1,0 +1,2 @@
+Artículo 28. Proveeduría. Como dependencia encargada de los procedimientos de contratación pública de la Municipalidad de Siquirres es competente para tramitar los procedimientos de adquisición de bienes, obras y servicios que interesen a la municipalidad.
+La Proveeduría es responsable de evaluar, actualizar, automatizar, estandarizar y difundir los procedimientos necesarios para el óptimo aprovisionamiento de bienes, obras y servicios que requieran las diversas dependencias internas de la Municipalidad.

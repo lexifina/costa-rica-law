@@ -1,0 +1,4 @@
+Artículo 42. Departamento de Talento Humano. El Departamento de Talento Humano, tendrá a su cargo las siguientes funciones relacionadas con procesos de contratación:
+1. Gestionar, en lo que le corresponda la capacitación del personal relacionado con los procedimientos de contratación pública, su profesionalización y la acreditación de la unidad de compras de la Municipalidad conforme a la Ley General de Contratación Pública, Nº 9986 y su Reglamento.
+2. Gestionar los procedimientos para establecer la responsabilidad administrativa y civil de los funcionarios municipales por faltas conforme al régimen sancionatorio previsto en la Ley General de Contratación Pública, Nº 9986 y en cualquier otra normativa aplicable.
+3. Cualquier otra derivada de la Ley General de Contratación Pública, Nº 9986, su Reglamento y cualquier otra normativa aplicable

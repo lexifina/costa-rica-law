@@ -1,0 +1,2 @@
+Artículo 12. Sobre la apertura las ofertas. Es responsabilidad de la Proveeduría realizar la apertura de las ofertas de todos los procedimientos de contratación siguiendo las disposiciones legales y reglamentarias aplicables.
+Por otra parte, y en caso de ser necesario, la Proveeduría comunicará si algún concurso queda sin efecto antes de recibir ofertas cuando existan razones justificadas debidamente acreditadas en resolución motivada que conste en el expediente de la contratación la cual deberá estar aprobada por la Alcaldía.

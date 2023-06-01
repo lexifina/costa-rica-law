@@ -1,0 +1,1 @@
+Artículo 14. Recomendación de la adjudicación. La Proveeduría deberá elaborar la recomendación sobre el acto final del procedimiento que servirá de base para la decisión que deba adoptar el funcionario competente, a partir de los insumos generados por unidades responsables del estudio de las ofertas y de sus propios informes.

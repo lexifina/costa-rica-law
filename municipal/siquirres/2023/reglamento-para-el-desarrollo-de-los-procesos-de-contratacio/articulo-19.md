@@ -1,0 +1,1 @@
+Artículo 19. Orden de Inicio. El Administrador del Contrato será el responsable de emitir y notificar la orden de inicio de la ejecución por medio del Sistema Digital Unificado respetando los plazos previstos en la Ley General de Contratación Pública, Nº 9986, su Reglamento o en el pliego de condiciones.
