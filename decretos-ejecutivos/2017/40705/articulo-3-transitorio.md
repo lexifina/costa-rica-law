@@ -1,0 +1,2 @@
+Transitorio III. Los productos registrados o notificados de enero del 2012 a la fecha de entrada en vigor del Decreto Ejecutivo N° 40705-S del 17 de agosto del 2017, "RTCR 478:2015 Productos Químicos. Productos Químicos Peligrosos, Registro, Importación y Control", publicado en el Alcance N° 263 a La Gaceta N° 207 del 02 de noviembre de 2017, contarán con un plazo de 66 meses para su renovación.
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 44079 del 1° de junio del 2023)
