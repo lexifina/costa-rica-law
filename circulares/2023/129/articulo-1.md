@@ -1,0 +1,7 @@
+CIRCULAR Nº 129-2023
+Asunto: Atención de recomendaciones giradas por las Administraciones Regionales, producto de la aplicación del procedimiento para la evaluación, seguimiento y presentación de informes del Sistema Automatizado de Depósitos y Pagos Judiciales (SDJ).
+A LAS JEFATURAS DE LOS DESPACHOS
+JUDICIALES DEL PAÍS
+SE LES HACE SABER QUE:
+El Consejo Superior del Poder Judicial en sesión N° 42-2023 celebrada el 18 de mayo de 2023, artículo XXIX, dispuso aprobar las recomendaciones emitidas por la Dirección Ejecutiva en oficio N° 1158-DE-2023 del 4 de mayo de 2023, en que remitió el informe sobre la I etapa del proceso de evaluación y presentación de informes del Sistema Automatizado de Depósitos y Pagos Judiciales (SDJ) y en consecuencia, girar instrucciones a los Despachos Judiciales a nivel nacional que utilizan el Sistema Automatizado de Depósitos y Pagos Judiciales (SDJ) para que acaten las recomendaciones de las Administraciones Regionales con el fin de maximizar el Control Interno de cada oficina y el adecuado manejo de los recursos de terceros. Asimismo, advertir que en aquellos casos en que, de forma reiterativa se desatiendan las recomendaciones, se procederá a la apertura del régimen disciplinario. De conformidad con la circular N° 67-09 emitida por la Secretaría de la Corte el 22 de junio de 2009, se le comunica que en virtud del principio de gratuidad que rige esta materia, la publicación está exenta de todo pago de derechos. Publíquese una sola vez en el Boletín Judicial.
+San José, 01 de junio de 2023.
