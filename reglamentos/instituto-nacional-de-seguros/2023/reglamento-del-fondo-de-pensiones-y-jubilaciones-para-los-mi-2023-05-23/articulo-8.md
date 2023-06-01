@@ -1,4 +1,0 @@
-Artículo 8º-Estados Financieros. La dependencia del Fondo será responsable de coordinar ante el Departamento Gestión Contable la confección de los Estados Financieros del Régimen, de acuerdo con el Plan de Cuentas dictado por la SUPEN y deberá:
-a) Remitir a la SUPEN de conformidad con la periodicidad y plazos establecidos por el Ente Supervisor.
-b) Gestionar oportunamente el refrendo por parte del Auditor Interno del Instituto (con corte al cierre de cada trimestre) y dictaminados por Auditores Externos (con corte al cierre fiscal de cada año).
-c) Velar porque dichos Estados, estén disponibles para su consulta por parte de los interesados y publicarse en un medio de comunicación interno.
