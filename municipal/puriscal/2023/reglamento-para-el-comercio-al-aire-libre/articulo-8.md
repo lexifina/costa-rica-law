@@ -1,0 +1,8 @@
+Artículo 8. - Requisitos de otorgamiento. La persona solicitante de la autorización de comercio al aire libre debe cumplir los siguientes requisitos para su otorgamiento:
+a. Tener licencia municipal comercial de la actividad lucrativa al día emitida por la municipalidad según el reglamento. (esta puede ser virtual o no domiciliada).
+b. Hacer la respectiva solicitud mediante formulario preparado y facilitado por el subproceso de licencias municipales. Para estos efectos, el patentado deberá aportar un croquis detallado en el cual especifique la cantidad de metros cuadrados de espacio público a utilizar, el cual estará sujeto a verificación de la Municipalidad.
+c. Que la persona solicitante se encuentre al día con las obligaciones tanto formales como materiales con la Municipalidad de Puriscal.
+Dicho trámite podrá ser realizado en la plataforma de servicios municipales de manera presencial o bien de manera virtual por medio del correo licenciasmunicipales@puriscal.go.cr
+Las personas que cuenten con licencia municipal comercial al día no requieren de autorización de comercio al aire libre para desarrollar su actividad comercial en los retiros de la propiedad privada determinada por la licencia comercial.
+Previa valoración de los términos y las condiciones de este reglamento por parte del subproceso de licencias municipales, aprobará la solicitud del licenciatario en un plazo no mayor de 10 días hábiles a la misma y otorgará el permiso para la utilización de los espacios públicos por medio de la Alcaldía Municipal, esto con una resolución administrativa con la aprobación de Licencias Municipales y el permiso de la Alcaldía.
+La entrega de los requisitos necesarios para que la ocupación pueda ser autorizada no otorga derecho alguno a su aprobación.

@@ -1,0 +1,3 @@
+Capítulo III - Otorgamiento de la Autorización
+Artículo 4. - Autorización. La corporación municipal podrá emitir en el otorgamiento de una licencia de actividad comercial de alimentos y bebidas, que se encuentren en propiedad privada o en concesión, una "autorización de comercio al aire libre", para la utilización de espacios públicos tales como aceras, parques, plazas, vía pública, calles u otros lugares públicos, siempre y cuandola persona solicitante haya cumplido con todas sus obligaciones establecidas en la Ley de Comercio al Aire Libre Ley No. 10.126, Ley No. 9015 y en este reglamento.
+No se podrá emitir autorización de comercio al aire libre en casos de las licencias ambulantes o estacionarias.

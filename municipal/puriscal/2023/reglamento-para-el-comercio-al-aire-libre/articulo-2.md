@@ -1,0 +1,1 @@
+Artículo 2. - Alcance. El presente reglamento tiene como alcance el ámbito territorial bajo tutela de la Municipalidad de Puriscal. Las disposiciones de este son aplicables a las personas licenciatarias de actividad comercial en Puriscal que cumpla con los requisitos establecidos en la Ley de Comercio al Aire Libre, Ley No. 10.126, leyes conexas y de este reglamento.

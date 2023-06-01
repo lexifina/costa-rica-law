@@ -1,0 +1,2 @@
+Capítulo VI - Pago del Derecho de Comercio al Aire Libre
+Artículo 15. - Pago anticipado del derecho de comercio al aire libre. La persona licenciataria, que obtengan la autorización de comercio al aire libre, deberá realizar a la municipalidad el pago anticipado de este derecho cada trimestre, el cual tendrá las mismas fechas de vencimiento que indican las Leyes No.9015 y 9047, respecto a Patentes y Licencias Comerciales.

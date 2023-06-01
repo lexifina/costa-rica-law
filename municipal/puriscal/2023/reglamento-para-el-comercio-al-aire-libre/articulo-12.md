@@ -1,0 +1,4 @@
+Artículo 12. - Atribuciones de las personas licenciatarias. Las personas licenciatarias que cuenten con autorización de comercio al aire libre tendrán las siguientes atribuciones:
+a. Utilizar los espacios públicos para desarrollar la actividad comercial para la cual se otorgó la autorización, en los términos y las condiciones establecidos, sin que se perturbe su ocupación sin un acto administrativo que fundamenta el cese de la actividad.
+b. Utilizar el mobiliario y decoración pertinente para el desarrollo de la actividad comercial, en los espacios autorizados, en las condiciones definidas por la municipalidad.
+c. Realizar obras de mejoramiento del espacio como incorporación de iluminación de batería o reparación de huecos en la capa de la acera, entre otras. Siempre que exista previa autorización, con fundamento técnico por parte del departamento encargado.
