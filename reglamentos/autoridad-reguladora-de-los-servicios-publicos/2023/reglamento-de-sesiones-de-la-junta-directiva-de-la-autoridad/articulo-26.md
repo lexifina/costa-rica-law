@@ -1,0 +1,6 @@
+CAPÍTULO SÉTIMO: DIETAS
+Artículo 26. Dietas de las personas miembros de la Junta Directiva por participar en las sesiones.
+1. - Las dietas de las personas miembros de la Junta Directiva, salvo la persona reguladora general y la persona reguladora general adjunta, cuando sustituye a la persona del regulador general; serán remuneradas de conformidad con lo establecido en el artículo 54 de la Ley N° 7593 y demás normativa vigente.
+2. - El pago de la dieta se hará cuando la persona miembro de la Junta Directiva haya participado en la totalidad de la sesión correspondiente, excepto que existan razones legales que le impidan conocer y votar alguno de los puntos del orden del día.
+3. - Se entenderá que en toda sesión de la Junta Directiva existe un periodo de tolerancia de 15 minutos posteriores al inicio de esta, para que las personas miembros de la Junta Directiva puedan incorporarse a la sesión y su asistencia sea remunerada con el pago de dieta.
+4. - La dieta será la única remuneración que podrán recibir por sus servicios en el desempeño de sus funciones. Lo anterior sin perjuicio del pago de viáticos al exterior o interior, según corresponda, de acuerdo con las disposiciones aprobadas por la Contraloría General de la República.
