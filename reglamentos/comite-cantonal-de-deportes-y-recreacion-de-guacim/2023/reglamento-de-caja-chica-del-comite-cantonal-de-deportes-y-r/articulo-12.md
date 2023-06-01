@@ -1,0 +1,1 @@
+Artículo 12.-Gastos de mantenimiento, reparación de instalaciones y otros. En tales casos, el reconocimiento de las cuentas solamente podrá hacerse contra la presentación de las respectivas facturas o comprobantes correspondientes y el formulario respectivo.
