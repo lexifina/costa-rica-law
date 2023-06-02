@@ -1,0 +1,2 @@
+Artículo 2º-Refórmese el artículo 2 del Decreto Ejecutivo Nº 1803-C del 14 de junio de 1971, publicado en el Diario Oficial La Gaceta 135 del 2 de julio de 1971, para que en lo sucesivo se lea de la siguiente forma:
+"Artículo 2º-Los Ministerios de Educación Pública y de Cultura y Juventud se encargarán de generar acciones y proyectos que permitan conmemorar esta fecha, y elaborarán cada año programas especiales de homenaje a la persona indígena costarricense, en cooperación con la Comisión Nacional de Asuntos Indígenas.
