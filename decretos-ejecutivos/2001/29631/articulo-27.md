@@ -1,5 +1,0 @@
-Artículo 27.—El Rector, Vicerrector, Secretario General, los Decanos y los Directores de unidades académicas o sus equivalentes, deberán cumplir con los siguientes requisitos mínimos:
-i. Ostentar al menos el grado académico de licenciatura.
-ii. Contar con una experiencia académica certificada en docencia, investigación o extensión universitarias, no menor de diez años para ser Rector, no menor de ocho años para ser Vicerrector o Secretario General y no menor de cuatro años para los cargos de Decano, Director de Unidad Académica o equivalentes.
-Para los Directores o Coordinadores de sede regional y toda otra autoridad académica universitaria autorizada, se exigirá el grado académico mínimo de licenciatura y una experiencia académica universitaria no menor de cuatro años.
-Quienes sustituyan en su cargo a los Rectores, Vicerrectores, Secretario General, Decanos o Directores de unidades académicas y otras autoridades universitarias, deberán reunir los mismos requisitos mínimos previstos para cada uno de éstos.

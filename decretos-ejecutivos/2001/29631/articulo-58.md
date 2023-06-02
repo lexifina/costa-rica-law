@@ -1,2 +1,0 @@
-Artículo 58.—El procedimiento que se seguirá a los efectos de determinar la verdad real, será el procedimiento ordinario establecido por la Ley General de la Administración Pública, con las particularidades contenidas en los artículos 17, 18 y 19 de la Ley Nº 6693 del 27 de noviembre de 1981.
-(Así corrida su numeración por el artículo 3° del decreto ejecutivo N° 35810 del 20 de enero de 2010, que lo traspasó del antiguo artículo 48 al 58 actual)

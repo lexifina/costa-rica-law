@@ -1,6 +1,0 @@
-(*)SECCIÓN DÉCIMA
-De la Educación Universitaria Virtual
-(*)(Así adicionada esta sección por el artículo 4° del decreto ejecutivo N° 35810 del 20 de enero de 2010)
-Artículo 40.—Entiéndase por Educación Universitaria Virtual la modalidad educativa no presencial o semi presencial, que propone formas específicas de mediación de la relación educativa entre los actores del proceso de enseñanza y aprendizaje, con referencia al modelo pedagógico de la universidad. Dicha mediación se realiza con la utilización de las tecnologías de la información y redes de comunicación, junto con la producción de materiales de estudio con énfasis en el desarrollo de estrategias de interacción.
-La Educación Universitaria Virtual involucra asimismo las propuestas frecuentemente identificadas como educación o enseñanza semi-presencial, no presencial, abierta, educación en línea, aprendizaje electrónico (e-learning), aprendizaje combinado (b-learning), aprendizaje en red (network learning), aprendizaje o comunicación mediada por computadora (CMC), cibereducación, teleformación y otras que respondan a las características mencionadas, de acuerdo con la aplicación de las tecnologías de la información y la comunicación.
-(Así adicionado por el artículo 4° del decreto ejecutivo N° 35810 del 20 de enero de 2010)

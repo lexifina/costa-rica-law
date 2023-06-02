@@ -1,2 +1,0 @@
-Artículo 63.—Contra las decisiones de la Secretaría Técnica cabrá recursos de revocatoria y de apelación subsidiaria ante el CONESUP, el que deberá presentarse por escrito y en forma razonada ante la propia Secretaría, dentro del plazo de tres días hábiles contados a partir de la comunicación del acto.
-(Así corrida su numeración por el artículo 3° del decreto ejecutivo N° 35810 del 20 de enero de 2010, que lo traspasó del antiguo artículo 53 al 63 actual)

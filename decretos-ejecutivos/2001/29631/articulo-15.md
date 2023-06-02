@@ -1,1 +1,0 @@
-Artículo 15.—El plan de estudios de una carrera que haya sido aprobado por el CONESUP deberá mantenerse en vigencia y sin modificaciones al menos durante el período correspondiente a una promoción completa, de forma tal que la universidad pueda tener criterios académicos suficientes para evaluarlo y realizar los ajustes que considere pertinentes.

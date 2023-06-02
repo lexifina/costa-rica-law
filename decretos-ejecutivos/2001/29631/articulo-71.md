@@ -1,2 +1,0 @@
-Artículo 71.—Cuando el CONESUP requiera aplicar encuestas a la población estudiantil o al profesorado, su ejecución deberá ser coordinada con las autoridades universitarias. En todo caso, entre la comunicación y la aplicación deberá mediar ocho días naturales como mínimo.
-(Así corrida su numeración por el artículo 3° del decreto ejecutivo N° 35810 del 20 de enero de 2010, que lo traspasó del antiguo artículo 61 al 71 actual)

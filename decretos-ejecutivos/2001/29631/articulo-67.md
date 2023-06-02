@@ -1,2 +1,0 @@
-Artículo 67.—Para el mejor ejercicio de la labor de inspección, el CONESUP podrá solicitar al Ministro de Educación Pública los servicios de los funcionarios, órganos o dependencias académicas, técnicas y administrativas de este Ministerio. Igualmente el CONESUP podrá establecer convenios con los Colegios Profesionales Universitarios y otras instituciones públicas para los mismos fines.
-(Así corrida su numeración por el artículo 3° del decreto ejecutivo N° 35810 del 20 de enero de 2010, que lo traspasó del antiguo artículo 57 al 67 actual)
