@@ -1,0 +1,4 @@
+CAPÍTULO 5
+Del control interno de uso de las tarjetas electrónicas
+de compra de combustible e inclusión presupuestaria
+Artículo 12.-La alcaldía será el órgano responsable del control interno de las compras de combustible que se realicen con cargo a las tarjetas electrónicas de compra de combustible. Además, deberá llevar un control individualizado por vehículo y equipo a fin de que la institución cuente con sistemas de información actualizada y detallada sobre el consumo individual de cada tarjetahabiente, lo cual realizará a través del sistema de tarjetas electrónicas para compra de combustible. Para ese cometido deberá revisar y conciliar el estado de cuenta de cada tarjeta que remite mes a mes el banco con los comprobantes de compra realizados por el tarjetahabiente. El tarjetahabiente podrá consultar el estado de cuenta de su tarjeta a través de la secretaria de la alcaldía.

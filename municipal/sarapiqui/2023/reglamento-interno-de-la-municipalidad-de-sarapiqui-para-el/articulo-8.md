@@ -1,0 +1,1 @@
+Artículo 8º-De la solicitud de reposición de tarjeta la tarjeta electrónica de compra de combustible. La solicitud de reposición o renovación de las tarjetas deberá tramitarse ante la alcaldía por parte del tarjetahabiente de forma escrita, la que realizará el trámite administrativo correspondiente ante el banco.
