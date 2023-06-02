@@ -1,0 +1,1 @@
+Artículo 27.-Formalización de la liquidación del vale. La liquidación del vale queda formalizada cuando el Encargado de custodiar y administrar el fondo de Caja Chica revisa todos los requisitos y será responsabilidad de la jefatura que firma el vale, constatar el ingreso de los bienes y servicios adquiridos.

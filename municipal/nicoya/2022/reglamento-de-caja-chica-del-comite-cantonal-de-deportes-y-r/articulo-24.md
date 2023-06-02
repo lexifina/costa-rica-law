@@ -1,0 +1,1 @@
+Artículo 24.-Liquidación de vales. Los vales se liquidarán; adjuntando los comprobantes del gasto y el efectivo sobrante, ante el encargado de custodiar y administrar el fondo de la Caja Chica, dentro de los tres días hábiles siguientes del día del retiro del efectivo.

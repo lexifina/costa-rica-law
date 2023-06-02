@@ -1,0 +1,1 @@
+Artículo 39.-Del control de los reintegros. Todo reintegro de caja chica deberá respaldarse con documentos originales que serán revisados en cuanto a su integridad y autenticidad y sellados por el Encargado de custodiar y administrar el fondo de Caja Chica, a efecto de que no puedan ser utilizados posteriormente.

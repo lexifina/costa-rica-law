@@ -1,0 +1,5 @@
+CAPÍTULO V
+De las prohibiciones y responsabilidades de la persona
+designada para custodiar y administrar el fondo
+de Caja Chica
+Artículo 12.-Prohibición de fragmentar compras. Fragmentar adquisiciones se considerará una falta grave para los efectos disciplinarios correspondientes. El Tesorero informará a la Junta Directiva, cuando se detecten vales que induzcan sospecha de que se ha fragmentado una adquisición para evadir los procedimientos de contratación administrativa.

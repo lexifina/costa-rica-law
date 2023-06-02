@@ -1,0 +1,1 @@
+Artículo 18.-Responsabilidad por pagos improcedentes. Si por negligencia, la persona designada para la custodia y administración del Fondo de Caja Chica incurre en pagos improcedentes, deberá reintegrar el monto erogado.

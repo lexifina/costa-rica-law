@@ -1,0 +1,1 @@
+Artículo 7º-Actualización de los montos. El monto del fondo fijo y el monto del vale serán modificados anualmente en el mes de enero por la Junta Directiva del Comité, en relación con el índice de precios al consumidor vigente para diciembre del año anterior y serán redondeados al millar superior inmediato.
