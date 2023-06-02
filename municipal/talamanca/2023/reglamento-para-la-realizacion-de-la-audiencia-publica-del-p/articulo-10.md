@@ -1,0 +1,1 @@
+Artículo 10.-Protocolos de salud. Las personas que asistan a la audiencia pública deberán respetar y aplicar las normas, lineamientos y protocolos en torno a la salud pública, incluyendo, pero no limitándose al lavado de manos, distanciamiento, saludo, estornudo y tos.

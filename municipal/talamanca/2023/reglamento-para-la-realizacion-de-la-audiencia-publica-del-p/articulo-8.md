@@ -1,0 +1,1 @@
+Artículo 8º-Duración de la audiencia. La audiencia se realizará de conformidad con los lineamientos emitidos por el Ministerio de Salud para la realización de audiencias públicas, ajustándose a la duración máxima establecida y ajustándose, en caso de ser necesario, el aforo máximo permitido, así como acorde a los requerimientos de seguridad y protección pasiva.

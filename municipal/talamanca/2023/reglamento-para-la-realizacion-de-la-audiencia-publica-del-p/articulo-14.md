@@ -1,0 +1,1 @@
+Artículo 14.-Acta. Corresponderá a la Secretaría del Concejo Municipal, documentar en un acta lo que acontezca durante la audiencia pública. En el acta deberá quedar constancia de las observaciones o consultas realizadas por los vecinos, etc. junto con su nombre y número de cédula.

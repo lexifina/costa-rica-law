@@ -1,0 +1,1 @@
+Artículo 19.-Comunicado SETENA. La Municipalidad deberá? comunicar a la SETENA los ajustes que se hayan realizado, una vez finalizado el proceso de audiencia y aprobación definitiva, solo en el caso que se modifique la documentación que respalda la viabilidad ambiental otorgada al Plan Regulador.
