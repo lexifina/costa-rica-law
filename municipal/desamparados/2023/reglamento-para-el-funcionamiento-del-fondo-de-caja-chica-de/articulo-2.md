@@ -1,0 +1,2 @@
+Artículo 2º-El funcionamiento del Fondo de Caja Chica se circunscribe para las compras que sean indispensables e impostergables, conforme lo dispone la Ley General de Contratación Pública y su reglamento.
+Las compras realizadas a través del Fondo de Caja Chica, deberán quedar debidamente registradas en el sistema digital unificado, dejando constancia de la totalidad de la documentación, generada en relación con la compra realizada, en los términos esgrimidos en el Reglamento a la Ley General de Contratación Pública.

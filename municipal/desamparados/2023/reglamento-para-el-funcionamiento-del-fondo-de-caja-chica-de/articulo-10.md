@@ -1,0 +1,1 @@
+Artículo 10.-Cuando por algún motivo la compra no se lleve a cabo, la persona funcionaria que ha recibido el dinero del vale, deberá hacer el reintegro inmediato del dinero entregado para esos efectos.

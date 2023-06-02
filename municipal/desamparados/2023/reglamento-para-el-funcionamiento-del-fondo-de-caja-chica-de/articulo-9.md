@@ -1,0 +1,1 @@
+Artículo 9º-Cuando algún funcionario realiza un vale y éste no retira el dinero el mismo día, el vale se anulará, de tal forma que si se requiere hacer la compra por el interesado, tendrá que volver a efectuar el trámite.

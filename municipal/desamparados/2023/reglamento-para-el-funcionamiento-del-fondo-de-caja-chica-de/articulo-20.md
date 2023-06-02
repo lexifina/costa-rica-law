@@ -1,0 +1,1 @@
+Artículo 20.-En caso de ausencia temporal del titular del Proceso de Ingresos y Gastos, el manejo del Fondo de la Caja Chica recaerá sobre el titular del Área de Gestión Financiera, quien realizará un arqueo al momento de asumir el manejo del Fondo de la Caja Chica.
