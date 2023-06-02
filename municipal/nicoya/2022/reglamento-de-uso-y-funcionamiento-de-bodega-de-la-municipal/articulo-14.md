@@ -1,0 +1,1 @@
+Artículo 14.-Para evitar la inmovilización de materiales y su posterior deterioro, se procederá conforme al sistema PEPS (métodos contables diseñados para valorar inventarios y asuntos financieros), el material que se compra primero se debe utilizar primero.

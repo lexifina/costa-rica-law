@@ -1,0 +1,1 @@
+Artículo 9°-Las secciones de la bodega tendrá un encargado, el cual será responsable directo de la custodia, y administración de todos los bienes o materiales existentes. Y actualizará el registro en el "Sistema de Registro de Existencias".

@@ -1,0 +1,1 @@
+Artículo 6°-Los diferentes departamentos o unidades municipales que se sirvan de la bodega municipal, deberán acatar las indicaciones internas de la bodega, de orden administrativo y seguridad, así como lo dispuesto en el presente Reglamento.

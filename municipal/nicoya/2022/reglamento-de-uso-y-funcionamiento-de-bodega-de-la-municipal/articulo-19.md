@@ -1,0 +1,1 @@
+Artículo 19 Los materiales, insumos, bienes, o elementos que sean requeridos por las distintas unidades o departamentos del municipio, deberán ser solicitados por medio de un formulario de "Solicitud de Materiales" y únicamente podrán ser retirados por funcionarios firmantes.

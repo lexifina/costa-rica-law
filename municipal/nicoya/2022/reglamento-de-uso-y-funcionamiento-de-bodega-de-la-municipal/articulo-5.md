@@ -1,0 +1,1 @@
+Artículo 5°-Queda estrictamente prohibido, a todos los funcionarios municipales sin importar su condición administrativa, el uso o aprovechamiento indebido de los bienes custodiados en la bodega del municipio, el incumplimiento a este artículo será considerado como una falta gravísima a los deberes, aplicándose las sanciones que correspondan.

@@ -1,0 +1,1 @@
+Artículo 17.-Todos los bienes, materiales, insumos, activos o elementos que ingresen a bodega deberán ir acompañados de la documentación que acredite su procedencia tales como órdenes de compra, facturas, guías de despacho y boletas.

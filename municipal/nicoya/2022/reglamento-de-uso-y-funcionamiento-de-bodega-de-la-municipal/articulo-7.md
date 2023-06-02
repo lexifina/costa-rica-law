@@ -1,0 +1,1 @@
+Artículo 7°-Para uniformar el manejo de todas las bodegas de la municipalidad la proveeduría municipal elaborará un manual de procedimientos, para efectos de estandarizar la administración de las bodegas.

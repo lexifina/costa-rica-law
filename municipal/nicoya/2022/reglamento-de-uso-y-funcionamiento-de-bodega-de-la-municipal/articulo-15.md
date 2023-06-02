@@ -1,0 +1,1 @@
+Artículo 15.-Queda facultado el encargado de bodega para solicitar la asesoría técnica de un profesional competente del municipio y o proveedor, cuando estime necesario a fin de verificar la calidad de lo recibido, los métodos de manipulación, almacenamiento o cualquier otra información pertinente sobre los bienes o materiales adquiridos.

@@ -1,0 +1,1 @@
+Artículo 12.-El registro y control de las existencias almacenadas en la bodega del municipio se realizarán de manera centralizada, por medio de un sistema informático, el cual estará bajo la responsabilidad del encargado de bodega, además deberá contar con un respaldo en físico, manteniendo la continuidad de los movimientos saldos y existencias.

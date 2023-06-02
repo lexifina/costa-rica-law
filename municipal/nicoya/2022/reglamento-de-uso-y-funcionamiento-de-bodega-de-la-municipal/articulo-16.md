@@ -1,0 +1,1 @@
+Artículo 16.-Se realizará una toma de inventario o arqueo de existencias por el Proveedor municipal designado, quien podrá designar a un funcionario que lo represente, este junto al encargado de bodega, coordinará las acciones pertinentes para tal efecto.
