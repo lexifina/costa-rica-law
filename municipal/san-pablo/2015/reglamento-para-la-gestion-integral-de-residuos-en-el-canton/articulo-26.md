@@ -1,1 +1,0 @@
-Artículo 26.—Campañas de recolección de residuos. La Municipalidad y las instituciones públicas o privadas en conjunto o de manera separada, podrán realizar campañas no lucrativas de fines sociales en el cantón para la recolección de residuos no tradicionales o de residuos reciclables, para lo cual, informarán oportunamente a la Municipalidad.

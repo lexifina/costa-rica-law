@@ -1,1 +1,0 @@
-Artículo 43.—Inspecciones. Los funcionarios designados por el municipio, realizarán las inspecciones de verificación, seguimiento o cumplimiento de este reglamento y del Plan Municipal de Gestión Integral de Residuos.

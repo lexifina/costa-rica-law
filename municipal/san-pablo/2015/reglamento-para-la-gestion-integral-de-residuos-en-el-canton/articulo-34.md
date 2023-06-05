@@ -1,1 +1,0 @@
-Artículo 34.—Pago de servicios. Será responsabilidad directa del propietario registral o poseedor del inmueble, el pago de los servicios previstos en este Reglamento y no podrá invocarse contra la administración ninguna cláusula suscrita entre privados que exima al propietario del pago de las tarifas aquí previstas.

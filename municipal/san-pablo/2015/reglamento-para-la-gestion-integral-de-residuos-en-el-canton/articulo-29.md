@@ -1,1 +1,0 @@
-Artículo 29.—Disposición final de residuos reciclables. Los residuos reciclables serán depositados de preferencia en Centros de Recuperación en el cantón y de no existir éstos afuera del mismo, para su procesamiento de acuerdo con los convenios o contratos que se establezca entre el gestor y la Municipalidad.

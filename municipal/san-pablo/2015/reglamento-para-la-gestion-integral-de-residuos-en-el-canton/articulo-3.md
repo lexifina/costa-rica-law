@@ -1,1 +1,0 @@
-Artículo 3º—Alcance. Este Reglamento es de acatamiento obligatorio para todos los usuarios, personas físicas o jurídicas públicas o privadas residentes o transeúntes del cantón de San Pablo de Heredia que generen residuos de sus actividades. Se exceptúa los residuos que por su condición de peligrosos son regulados de manera particular.

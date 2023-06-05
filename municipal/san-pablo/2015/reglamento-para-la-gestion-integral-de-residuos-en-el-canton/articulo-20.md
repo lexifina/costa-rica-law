@@ -1,1 +1,0 @@
-Artículo 20.—Ubicación de residuos. Para la recolección de los residuos ordinarios y los reciclables según los días que corresponde a cada uno, el usuario los colocará en recipientes cerrados, sea bolsas plásticas o contenedores similares y los depositará frente a su propiedad o en contenedores colectivos sin obstruir la acera, caños o vía pública.

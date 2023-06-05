@@ -1,1 +1,0 @@
-Artículo 10.—Prevención. La Municipalidad debe prevenir y eliminar los vertederos clandestinos o botaderos de desechos como también el establecimiento de centros de recuperación de materiales reciclables no autorizados por el Ministerio de Salud.

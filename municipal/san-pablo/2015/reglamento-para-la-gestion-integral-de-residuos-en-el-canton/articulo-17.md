@@ -1,2 +1,0 @@
-Artículo 17.—Frecuencia de recolección de residuos reciclables. La frecuencia para la recolección de residuos reciclables será como mínimo una vez al mes en todas las rutas establecidas en los respectivos contratos para recolección de residuos reciclables. La recolección la podrá realizar la Municipalidad o gestor contratado para este propósito.
-Esta frecuencia puede ser modificada total o parcialmente cuando se considere necesario mejorar el servicio de recolección de residuos reciclables.

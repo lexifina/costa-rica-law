@@ -1,1 +1,0 @@
-Artículo 8º—Convenios de cooperación. De conformidad con el artículo 8º inciso k) de la Ley Nº 8839 y artículo 4º inciso f) del Código Municipal, la Municipalidad podrá establecer convenios con microempresas, cooperativas, organizaciones de mujeres y otras organizaciones y/o empresas locales, para que participen en el proceso de gestión de los residuos.

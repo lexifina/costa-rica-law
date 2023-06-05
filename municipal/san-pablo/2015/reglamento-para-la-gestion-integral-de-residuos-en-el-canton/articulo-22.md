@@ -1,1 +1,0 @@
-Artículo 22.—Limpieza. En caso de que los residuos sean esparcidos en aceras o la vía pública por cualquier circunstancia antes de ser recolectados, el generador aunque no medie responsabilidad directa, está en la obligación de recogerlos y depositarlos nuevamente en un recipiente adecuado.

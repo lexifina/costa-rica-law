@@ -1,1 +1,0 @@
-Artículo 31.—Categorías de usuarios. La Municipalidad establecerá las categorías de los usuarios de acuerdo con la cantidad estimada de desechos que generen con base en estudios técnicos que las justifiquen.

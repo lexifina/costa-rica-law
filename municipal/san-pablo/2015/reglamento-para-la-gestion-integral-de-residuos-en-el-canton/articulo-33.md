@@ -1,1 +1,0 @@
-Artículo 33.—Sobre el hecho generador. El cobro de la tarifa establecida por usuario surge en la medida en que se dé la prestación efectiva del servicio, independientemente de si el usuario quiere o no que se le dé el servicio o si las Unidades Habitacionales se encuentren habitadas o deshabitadas.

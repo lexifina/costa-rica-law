@@ -1,1 +1,0 @@
-Artículo 32.—Reclasificación de categoría de usuarios. La Municipalidad de oficio o a solicitud del contribuyente, podrá modificar la ubicación original del usuario en la clasificación de tarifas, previo estudio que justifique el cambio.

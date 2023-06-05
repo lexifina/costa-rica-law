@@ -1,3 +1,0 @@
-CAPÍTULO VIII
-Sanciones y multas
-Artículo 40.—Multas. En caso de detectarse incumplimiento de las obligaciones establecidas en este reglamento en cuanto al adecuado manejo, separación, recolección y disposición final de los residuos provenientes de las actividades personales, familiares, operaciones agrícolas, ganaderas, industriales, comerciales y turísticas, la Municipalidad aplicará y cobrará trimestralmente las multas establecidas de acuerdo con la descripción de la infracción contenida en el Reglamento para el Procedimiento y Tarifas a Cobrar por Omisiones de los Deberes de los Propietarios de Bienes Inmuebles del cantón de San Pablo de Heredia vigente.

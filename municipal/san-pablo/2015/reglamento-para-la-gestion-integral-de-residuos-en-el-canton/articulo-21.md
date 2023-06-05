@@ -1,1 +1,0 @@
-Artículo 21.—Contenedores. Se permitirá la colocación de contenedores de residuos tipo canastas individuales o colectivas en condominios siempre y cuando no obstruyan la acera o vías públicas. La limpieza de los contenedores será responsabilidad de los usuarios.
