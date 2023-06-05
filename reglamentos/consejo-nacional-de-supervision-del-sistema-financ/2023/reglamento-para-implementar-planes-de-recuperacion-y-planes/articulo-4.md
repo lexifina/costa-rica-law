@@ -1,0 +1,1 @@
+Artículo 4. Sanciones. La no remisión por parte de la entidad del plan de recuperación o del informe descriptivo, cuando corresponda según los términos de este Reglamento, será causa para que la Sugef inicie un proceso sancionatorio, de conformidad al numeral iii) del inciso b) del artículo 155 "Sanciones" de la Ley Orgánica del Banco Central de Costa Rica, Ley 7558.

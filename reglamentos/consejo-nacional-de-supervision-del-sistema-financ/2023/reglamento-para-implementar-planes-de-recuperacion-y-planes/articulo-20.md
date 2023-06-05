@@ -1,0 +1,1 @@
+Artículo 20. Medidas preparatorias. La entidad debe identificar y describir los obstáculos para la ejecución eficaz y oportuna de la (s) medida (s) de recuperación, estableciendo estrategias de mitigación para abordarlos.

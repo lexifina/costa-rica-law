@@ -1,0 +1,2 @@
+Artículo 28. Operaciones realizadas en el extranjero. Se deben mencionar las operaciones de la entidad celebradas en el extranjero, describiendo su naturaleza, fuentes de financiamiento, principales riesgos y autoridades de supervisión de dichas operaciones, junto con el alcance de esa supervisión.
+Asimismo, se debe incluir la descripción de acuerdos transfronterizos, memorandos de entendimiento y protocolos de comunicación.

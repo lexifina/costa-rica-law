@@ -1,0 +1,3 @@
+Artículo 9. Duración y restricciones. Cuando la entidad financiera active el plan de recuperación, deberá ejecutarlo dentro del plazo acordado y no objetado por la Sugef.
+La entidad no podrá realizar actividades u operaciones que atenten contra su seguridad, estabilidad o solvencia, cuando se encuentre ejecutando un plan de recuperación en cualquier condición, ya sea en normalidad o en irregularidad. Si la entidad no ha tomado las acciones pertinentes al respecto, la Sugef se lo ordenará en concordancia con las facultades que por ley le fueron otorgadas.
+Las restricciones adoptadas deberán mantenerse en tanto no se subsanen las deficiencias que hayan dado lugar a la activación del plan de recuperación.

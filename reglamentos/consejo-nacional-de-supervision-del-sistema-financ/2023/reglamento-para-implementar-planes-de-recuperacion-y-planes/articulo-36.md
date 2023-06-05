@@ -1,0 +1,1 @@
+Artículo 36. Lineamientos o acuerdos del Superintendente. El Superintendente podrá emitir, mediante resolución razonada, los lineamientos o acuerdos que considere pertinentes para la aplicación de las disposiciones contenidas en este Reglamento.
