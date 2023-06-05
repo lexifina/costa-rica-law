@@ -1,0 +1,1 @@
+Transitorio III.-Los servicios de cuidados paliativos cuentan con un máximo de tres años a partir de la publicación de esta norma para cumplir con los estándares del subapartado 1. Recursos Humanos del apartado V. Especificaciones, del anexo al presente Decreto Ejecutivo.

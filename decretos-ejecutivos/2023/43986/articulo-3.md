@@ -1,0 +1,1 @@
+Artículo 3º-Deróguese el Decreto Ejecutivo Nº 34560-S del 16 de mayo de 2007 "Oficialización del Manual de Normas para la Habilitación de establecimientos que brindan atención en cuidados paliativos, modalidad ambulatoria", publicado en La Gaceta Nº 124 del 27 de junio de 2008.
