@@ -29,6 +29,7 @@ articulo-28.md
 articulo-29.md
 articulo-30.md
 articulo-31.md
+articulo-31-bis.md
 articulo-32.md
 articulo-33.md
 articulo-34.md
@@ -130,6 +131,8 @@ articulo-129.md
 articulo-130.md
 articulo-131.md
 articulo-132.md
+articulo-132-bis.md
+articulo-132-ter.md
 articulo-133.md
 articulo-134.md
 articulo-135.md
@@ -172,6 +175,7 @@ articulo-171.md
 articulo-172.md
 articulo-173.md
 articulo-174.md
+articulo-174-bis.md
 articulo-175.md
 articulo-176.md
 articulo-177.md

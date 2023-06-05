@@ -1,6 +1,6 @@
 CAPÍTULO X
 Prohibiciones de los o las funcionarios(as)
-Artículo 24.—Está prohibido a los servidores (as) de la Municipalidad
+Artículo 24.-Está prohibido a los servidores (as) de la Municipalidad
 1) Lo indicado en el artículo 72 del Código de Trabajo.
 2) Actuar en el desempeño de sus cargos, con fines distintos de los encomendados en sus cargos.
 3) Tener obligaciones laborales con otras entidades, públicas o privadas, o adquirir compromisos con evidente superposición horaria a su relación laboral con la Municipalidad.
@@ -47,3 +47,5 @@ e. Distraer con cualquier clase de juegos o bromas a los o las compañeros(as) d
 39) Nombrar a funcionarios(as) con parentesco de consanguinidad o afinidad en línea directa o colateral hasta tercer grado inclusive con el jefe inmediato o con los superiores de este en el respectivo Departamento o Oficina.
 40) Realizar actos de acoso laboral, entendiendo como tales aquellas acciones u omisiones tendientes a obstaculizar el normal desempeño de las labores a cualquier funcionario(a) de la Municipalidad.
 41) Aquellas otras que se estipulen por medios administrativos y jurídicos, y las demás incluidas en la legislación existente al respecto y que no se hayan considerado en este artículo.
+42) Ejercer actos de violencia contra las mujeres en la política respecto de las mujeres cubiertas por el ámbito de aplicación descrito en el artículo 3 de la Ley de para prevenir, atender, sancionar y erradicar la violencia contra las mujeres en la política, N° 10235.
+(Así adicionado el inciso anterior en sesión N° 0035 del 5 de junio de 2023)

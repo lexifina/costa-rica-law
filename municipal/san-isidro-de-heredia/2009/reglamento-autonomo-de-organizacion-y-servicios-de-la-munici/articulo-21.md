@@ -1,6 +1,6 @@
 CAPÍTULO VII
 Obligaciones de los o las funcionarios(as)
-Artículo 21.—Además de las que expresamente regula el Código de Trabajo, son obligaciones de los o las trabajadores(as):
+Artículo 21.-Además de las que expresamente regula el Código de Trabajo, son obligaciones de los o las trabajadores(as):
 a) Prestar los servicios personalmente, en forma regular y continua, de acuerdo con el respectivo contrato o relación laboral, dentro de la jornada de trabajo, bajo la dirección del patrono o de sus representantes, a cuya autoridad están sujetos en todo lo concerniente al trabajo.
 b) Ejecutar las labores que se les encomienden, siempre que sean compatibles con sus aptitudes, estado y condición, con la intensidad, cuidado, dedicación y esmero apropiados, en forma, tiempo y lugar convenidos, concentrando la atención en la labor que está realizando, a fin de que la misma resulte de la mejor calidad posible.
 c) Observar durante el trabajo buenas costumbres y disciplina, así como vestir en forma correcta y acorde con las labores que desempeña.
@@ -14,3 +14,5 @@ j) Rendir los informes que se les soliciten en los plazos establecidos para tal 
 k) Tomar pedidos o mensajes en forma clara y completa.
 l) Cuidar, resguardar, preservar y emplear debidamente los recursos públicos municipales.
 m) Además de lo anteriormente dispuesto, lo señalado en los artículos 107, 171, y 192 de este reglamento.
+n) Abstenerse de ejercer actos de violencia contra las mujeres en la política respecto de aquellas mujeres cubiertas por el ámbito de aplicación descrito en el artículo 3 de la Ley de para prevenir, atender, sancionar y erradicar la violencia contra las mujeres en la política, N° 10235.
+(Así adicionado el inciso anterior en sesión N° 0035 del 5 de junio de 2023)

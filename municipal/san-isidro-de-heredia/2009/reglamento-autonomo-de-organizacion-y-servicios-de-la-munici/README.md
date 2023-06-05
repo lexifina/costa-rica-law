@@ -15,3 +15,4 @@ Reglamento autónomo de organización y servicios de la Municipalidad de San Isi
 | --- | --- | --- |
 | 1 | 2009-03-26 | la propia norma |
 | 2 | 2022-12-26 | Reglamento municipal 84 (2022-12-26) |
+| 3 | 2023-06-05 | Reglamento municipal 35 (2023-06-05) |

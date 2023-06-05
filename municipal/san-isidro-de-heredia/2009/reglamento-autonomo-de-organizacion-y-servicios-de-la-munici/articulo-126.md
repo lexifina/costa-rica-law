@@ -1,2 +1,4 @@
-Artículo 126.—En un plazo no mayor a cinco días naturales, después de interpuesta la denuncia, deberá nombrarse Órgano Director del Proceso.
-El Órgano Director estará integrado por tres personas de escogencia del o la Alcalde(sa), dentro del cual estará un(a) abogado(a) y el o la Jefe (a) del Departamento de Recursos Humanos. En todo caso, se buscará en la escogencia de los(as) miembros del Órgano Director, seleccionar personas de reconocida solvencia moral.
+Artículo 126.-En un plazo no mayor a cinco días naturales, después de interpuesta la denuncia, deberá nombrarse el Órgano Director del Proceso.
+El Órgano Director estará integrado por tres personas de escogencia del alcalde o alcaldesa, dentro del cual estará una persona profesional en derecho y el o la Jefatura del Departamento de Recursos Humanos. La conformación del Órgano deberá contemplar en todo momento el principio de paridad y la solvencia moral de sus miembros.
+Se buscará en la escogencia de las personas integrantes del órgano director seleccionar aquellas con conocimiento en materia de género, derechos humanos, derechos políticos y violencia contra las mujeres. Esta norma resultará aplicable a los procedimientos donde se investiguen supuestos actos de violencia contra mujeres en la política.
+(Así reformado en sesión N° 0035 del 5 de junio de 2023)

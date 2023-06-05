@@ -22,3 +22,5 @@ q) Brindar especial atención a los o las servidores(as) en los aspectos propios
 r) (Derogado mediante sesión ordinaria N° 84-2022 del 26 de diciembre de 2022)
 s) Elevar a decisión del o la Alcalde(sa) en el plazo improrrogable de tres días a partir del mismo día en que tuvo conocimiento, las faltas graves en que incurrieron los o las servidores(as) a su cargo.
 t) Cumplir con todas las demás obligaciones propias de su cargo.
+u) Respecto a sus subordinados o las autoridades políticas de la organización, abstenerse de ejercer actos de violencia contra las mujeres en la política respecto de aquellas mujeres cubiertas por el ámbito de aplicación descrito en el artículo 3 de la Ley de para prevenir, atender, sancionar y erradicar la violencia contra las mujeres en la política, N° 10235.
+(Así adicionado el inciso anterior en sesión N° 0035 del 5 de junio de 2023)
