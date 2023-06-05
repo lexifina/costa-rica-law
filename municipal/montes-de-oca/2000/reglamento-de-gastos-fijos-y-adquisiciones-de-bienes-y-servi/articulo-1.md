@@ -1,5 +1,0 @@
-MUNICIPALIDAD DE MONTES DE OCA
-Acuerda dictar el Reglamento de Gastos Fijos y Adquisiciones de Bienes, y Servicios de Competencia del Alcalde Municipal,
-Articulo único.- El Alcalde Municipal podrá celebrar convenios, comprometer los fondos o bienes de la Municipalidad , determinar gastos fijos y autorizar egresos y en general adquirir bienes y servicios sin necesidad de previa autorización del Concejo Municipal, cuando tales actos no excedan la suma de cero punto diez por ciento (0.10%)* del presupuesto ordinario aprobado por la Contraloría General de la República al primero de enero del período en ejercicio. La administración deberá de tener en consideración las disposiciones contempladas en la Ley de Contratación Administrativa y sus reformas y su respectivo reglamento en lo concerniente al fraccionamiento.
-Los actos que el Alcalde celebre al amparo de este reglamento deberán regirse por las normas y principios, establecidos en la Ley de Contratación Administrativa y sus reformas, Ley 7494 del 2 de mayo de 1995 y su respectivo reglamento. Publíquese.
-*(Así corregido mediante FE DE ERRATAS publicada en La Gaceta No. 84 ded 03 de mayo de 2000)
