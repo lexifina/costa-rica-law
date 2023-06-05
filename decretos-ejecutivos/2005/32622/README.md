@@ -14,3 +14,4 @@ Regulación del Embalaje de Madera utilizado en el Comercio Internacional
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-09-19 | la propia norma |
+| 2 | 2023-06-05 | Decreto Ejecutivo 44084 (2023-06-05) |
