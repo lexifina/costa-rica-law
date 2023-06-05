@@ -15,3 +15,4 @@ Reglamento de Administración, Uso y Funcionamiento de los Inmuebles e Instalaci
 | --- | --- | --- |
 | 1 | 2015-09-14 | la propia norma |
 | 2 | 2022-08-16 | Reglamento municipal 33 (2022-08-16) |
+| 3 | 2023-06-05 | Reglamento municipal 23 (2023-06-05) |
