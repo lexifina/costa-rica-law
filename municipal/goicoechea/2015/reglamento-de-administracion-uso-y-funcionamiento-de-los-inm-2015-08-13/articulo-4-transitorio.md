@@ -1,1 +1,0 @@
-Transitorio 4. Por única vez no se exigirá convocatoria a asamblea para solicitar la administración de un bien inmueble municipal; las juntas directivas podrán realizar el correspondiente trámite pero en la siguiente asamblea ordinaria o extraordinaria deberán rendir el informe correspondiente.

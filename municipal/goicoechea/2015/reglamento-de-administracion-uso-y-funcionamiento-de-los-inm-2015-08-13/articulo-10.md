@@ -1,2 +1,0 @@
-Artículo 10.—Informe de gestión: Las organizaciones indicadas en el artículo 4º anterior que administren inmuebles propiedad de la Municipalidad, deberán rendir semestralmente en los meses de Mayo y Noviembre respectivo, un informe contable y de administración sobre su gestión. Dichos informes se presentaran ante la Auditoría Municipal, la que dentro del término de dos meses contado a partir del recibo de dicho documento, rendirá un informe de resultados al Concejo.
-El incumplimiento injustificado de esta obligación, será causal de resolución del convenio de administración.
