@@ -17,3 +17,4 @@ Reglamento para el seguimiento, control y vigilancia de embarcaciones pesqueras 
 | 2 | 2022-11-09 | Acuerdo 247 (2022-11-09) |
 | 3 | 2023-02-07 | Acuerdo 30 (2023-02-07) |
 | 4 | 2023-02-21 | Acuerdo 31 (2023-02-21) |
+| 5 | 2023-06-06 | Acuerdo 116 (2023-06-06) |
