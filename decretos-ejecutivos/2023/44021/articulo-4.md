@@ -1,0 +1,2 @@
+Artículo 4º- MANEJO DE DESECHOS O RESIDUOS DE ORIGEN ANIMAL O VEGETAL
+El manejo de rastrojos, subproductos, desechos o residuos de origen animal o vegetal, debe realizarse conforme la autoridad sanitaria y fitosanitaria lo establezca en los manuales o documentos técnicos referentes a las Buenas Prácticas Agrícolas y Buenas Prácticas Pecuarias, publicados el sitio oficial del Ministerio de Agricultura y Ganadería.

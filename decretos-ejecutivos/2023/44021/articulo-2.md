@@ -1,0 +1,2 @@
+Artículo 2º- OBJETO
+El presente Reglamento tiene por objeto prevenir y controlar la plaga de la Mosca del Establo (Stomoxys calcitrans (L.)), por medio de la concientización, la capacitación de buenas prácticas agrícolas y el manejo de los rastrojos, subproductos, desechos o residuos de origen vegetal provenientes de procesos agrícolas, así como de los subproductos, desechos o residuos de origen animal, que se generan como parte del proceso productivo de la actividad pecuaria, para atenuar el impacto negativo en la salud animal, la salud pública y el medio ambiente.

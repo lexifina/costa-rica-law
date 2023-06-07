@@ -1,0 +1,3 @@
+Artículo 8º- DE LAS SANCIONES ADMINISTRATIVAS
+Los incumplimientos de medidas u órdenes sanitarias dictadas, infracciones, alteraciones u omisiones a las disposiciones del presente Reglamento, serán conocidos por el Servicio Nacional de Salud Animal a los efectos de establecer las correcciones y/o sanciones administrativas que corresponda según la gravedad de la falta, con respeto al debido proceso y derecho de defensa, de conformidad con lo establecido en el Capítulo IX y X de la Ley Nº 8495.
+Igualmente, dichas sanciones podrán aplicarse con independencia de las acciones civiles o penales que puedan establecerse contra quién o quienes hayan incurrido en la falta por acción u omisión.

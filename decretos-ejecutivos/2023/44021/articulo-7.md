@@ -1,0 +1,3 @@
+Artículo 7º- DE LAS MEDIDAS SANITARIAS Y FITOSANITARIAS
+El Servicio Fitosanitario del Estado podrá dictar medidas fitosanitarias a los productores que incumplan con este reglamento en cumplimiento con lo establecido en el artículo 20 de la Ley Nº-7664, Ley de Protección Fitosanitaria.
+El Servicio Nacional de Salud Animal podrá dictar cualesquiera medidas sanitarias de protección en aras de resguardar el bienestar y la salud animal, dentro de la propiedad privada o pública según corresponda, pudiendo éstas ir desde el cierre temporal o cuarentena de establecimientos, el decomiso, la retención, la destrucción, desinsectación de material vegetal o productos de origen animal y cualquier otra debidamente justificada que se considere pertinente aplicar.
