@@ -1,2 +1,0 @@
-Transitorio II
-Se acoge adoptar el Transitorio XVII y VI emitido por Consejo Nacional de Supervisión del Sistema Financiero por el período estipulado, que permite exceptuar la presentación de la información requerida para efectos de análisis de capacidad de pago, con el fin único de asegurar el otorgamiento expedito de prórrogas, restructuraciones o refinanciamientos, o una combinación de éstas y mantenerse sin cambio la última calificación de capacidad de pago del deudor.

@@ -1,3 +1,4 @@
-Artículo 10. Negociaciones de pago en operaciones con cobro judicial activo
-Aquellas operaciones que se encuentren con estado de cobro judicial y castigada administrativa pueden ser sujetas de negociaciones de pago en los términos de este Reglamento.
-Si como parte de un refinanciamiento al amparo de este reglamento, el cliente desea cancelar una operación en cobro judicial o castigada administrativa, se cobrará el saldo, gastos, honorarios, pólizas, otros gastos, así como los intereses corrientes y moratorias pendientes, como mínimo de 3 años.
+Artículo 10.-Negociaciones de pago en operaciones con cobro judicial activo. Aquellas operaciones que se encuentren con estado de cobro judicial y castigada administrativa pueden ser sujetas de negociaciones de pago en los términos de este Reglamento.
+Si como parte de un refinanciamiento al amparo de este reglamento, el cliente desea cancelar una operación en cobro judicial o castigada administrativa, se cobrará el saldo, intereses corrientes y moratorios pendientes, como mínimo de 1 año.
+Se podrá aprobar un arreglo extrajudicial cobrando como mínimo la suma del saldo, gastos, honorarios, pólizas y un año de intereses corrientes y moratorios. Este pago se puede realizar bajo la modalidad del plan de pagos normado en el artículo 6 de este Reglamento.
+Esta negociación se otorga a aquellos deudores que no califican para refinanciamiento y el monto acordado de pago debe ser mayor al posible embargo salarial por la vía judicial.

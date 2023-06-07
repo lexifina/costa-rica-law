@@ -1,5 +1,4 @@
-Artículo 14.
-Se podrán trasladar a cobro judicial las operaciones de crédito que tengan una morosidad superior a los 180 días, sin demérito de que se puedan trasladar antes de dicho plazo las que así lo determine la normativa interna creada para tales efectos.
+***Artículo 14.-Traslado de operación morosa a cobro judicial. Se podrán trasladar a cobro judicial las operaciones de crédito que tengan una morosidad superior a los 180 días, sin demérito de que se puedan trasladar antes de dicho plazo las que así lo determine la normativa interna creada para tales efectos.
 De existir la motivación para que no se traslade una operación a cobro judicial, luego del análisis del costo beneficio, y estar acreditado que se efectuaron todas las gestiones administrativas necesarias para la recuperación de la deuda, se podrá dictaminar la incobrabilidad de la operación sin el traslado a cobro judicial. La respectiva resolución deberá archivarse digitalmente en el archivo que para efectos de control llevará el Área Administrativa encargada del cobro judicial.
 Una operación que se ha dictaminado como incobrable, se podrá trasladar a cobro judicial en cualquier momento antes de que transcurran los plazos de prescripción, siempre que existan cambios en las justificantes de dicha declaratoria que permitan gestionar la recuperación de la suma adeudada en sede judicial.
-(Así reformado mediante sesión N° 5828 del 19 de mayo del 2021)
+*** Modificado en sesión ordinaria 5828 celebrada el miércoles 19 de mayo del 2021, acuerdo JDN-5828-Acd-427- 2021-Art-10.
