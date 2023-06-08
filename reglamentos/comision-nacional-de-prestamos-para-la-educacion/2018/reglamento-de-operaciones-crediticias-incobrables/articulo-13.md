@@ -1,0 +1,1 @@
+Artículo 13.-Competencia sobre la interpretación de los artículos: Toda interpretación de los artículos de este Reglamento le corresponde al Comité de Cobro. conforme a las naturalezas y funciones encomendadas.

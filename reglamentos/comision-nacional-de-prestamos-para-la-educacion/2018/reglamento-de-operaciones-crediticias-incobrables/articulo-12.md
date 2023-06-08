@@ -1,1 +1,1 @@
-Artículo 12.—Vigencia del Reglamento: El presente Reglamento de Incobrables entrará en vigencia una vez que se realice la publicación correspondiente en el Diario Oficial.
+Artículo 12.-Restricciones para prestatarios y fiadores de operaciones crediticias que sean declaradas incobrables: El prestatario y los fiadores de una operación crediticia declarada incobrable no podrán optar en un futuro a un nuevo crédito o fianza ante CONAPE, para lo cual los sistemas automatizados deberán disponer de los mecanismos de identificación necesarios.
