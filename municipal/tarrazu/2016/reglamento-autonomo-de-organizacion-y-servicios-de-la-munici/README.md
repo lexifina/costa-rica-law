@@ -14,3 +14,4 @@ Reglamento Autónomo de Organización y Servicios de la Municipalidad de Tarraz�
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-06-02 | la propia norma |
+| 2 | 2023-06-08 | Reglamento municipal 162 (2023-06-08) |
