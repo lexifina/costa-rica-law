@@ -15,3 +15,4 @@ Reglamentación de lista de bienes que conforman la canasta básica tributaria p
 | --- | --- | --- |
 | 1 | 2023-02-01 | la propia norma |
 | 2 | 2023-02-08 | Decreto Ejecutivo 43899 (2023-02-08) |
+| 3 | 2023-06-08 | Decreto Ejecutivo 44067 (2023-06-08) |

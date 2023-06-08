@@ -9,7 +9,7 @@ l. PANES, TORTILLAS, REPOSTERIA Y GALLETAS.
 7. Galletas saladas (no incluye las galletas de arroz, avena, integrales, extra fibra y rellenas).
 8. Pan blanco, manita o piña, pan francés.
 9. Pan cuadrado blanco.
-1 O. Pan cuadrado integral.
+10. Pan cuadrado integral.
 11. Pan integral de panadería.
 12. Pan pita o árabe.
 13. Pan salado sin gluten.
@@ -55,6 +55,9 @@ Leche en polvo, en las siguientes presentaciones:
 16. Semidescremada.
 Otras leches:
 17. Leche de cabra (fluida).
+18. Leche Fórmula maternizada en polvo en cualquier presentación para lactantes, según el código de la ENIGH. No(*) se incluye formulas nutritivas o suplementos.”
+(*) (Corregido mediante Fe de Erratas y publicada en La Gaceta N° 128 del 14 de julio de 2023, página N° 2. Anteriormente se indicaba: “ N°”)
+(Así adicionado el subinciso anterior por el artículo 1° del decreto ejecutivo N° 44067 del 8 de junio del 2023)
 IV. HUEVOS Y CARNE DE POLLO (FRESCOS O CONGELADOS, NO SE INCLUYEN SASONADAS, MARINADAS, ADOB ADAS, CONDIMENTADAS, EMPANIZADAS Y/O PREPARADAS).
 1. Alas de pollo.
 2. Gallina entera o gallo entero.
