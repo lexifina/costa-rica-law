@@ -14,3 +14,4 @@ Procedimiento para la determinación de riesgos fiscales y de contingencias fisc
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-05-07 | la propia norma |
+| 2 | 2023-06-08 | Decreto Ejecutivo 44221 (2023-06-08) |
