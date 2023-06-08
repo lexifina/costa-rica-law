@@ -14,3 +14,4 @@ Reglamento de publicaciones del Diario Oficial La Gaceta y el Boletín Judicial
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-06-01 | la propia norma |
+| 2 | 2023-06-08 | Acuerdo 0 (2023-06-08) |
