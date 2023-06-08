@@ -69,3 +69,4 @@ Comunica emisión de resoluciones de la Dirección General del Servicio Civil:(D
 | 54 | 2022-11-18 | Resolución 11 (2022-11-18) |
 | 55 | 2023-02-10 | Resolución 2 (2023-02-10) |
 | 56 | 2023-03-31 | Resolución 4 (2023-03-31) |
+| 57 | 2023-06-08 | Resolución 6 (2023-06-08) |
