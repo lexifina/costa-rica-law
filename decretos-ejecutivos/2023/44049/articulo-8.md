@@ -1,0 +1,1 @@
+Artículo 8 º -Se excepcionan de la aplicación del decreto los funcionarios del Ministerio de Salud que estén en actividades de control e inspección sanitaria en control de vectores, festejos populares o acciones relacionadas con la pandemia de COVID 19 y en la atención directa de los niños y niñas de los programas de los CEN-CINAI.
