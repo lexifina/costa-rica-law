@@ -1,0 +1,8 @@
+Capítulo VI
+De la liquidación del Fondo por disolución
+Artículo 25°. Liquidación de aportes por disolución del Fondo. En caso de que una Ley de la República instruya la disolución del FPC, para la liquidación de los aportes personales e institucionales, los trabajadores activos tendrán derecho a escoger entre las siguientes dos opciones:
+Opción 1: Aporte Personal: Que le sea devuelto directamente el saldo acumulado de su cuenta de aporte personal debidamente capitalizado al momento del cierre del Fondo, menos las erogaciones que correspondan derivadas de lo que la Ley establezca.
+Aporte Institucional: Que le sea devuelto directamente el saldo acumulado de su cuenta de aporte Institucional debidamente capitalizado al momento del cierre del Fondo, menos las erogaciones que correspondan derivadas de lo que la Ley establezca.
+Opción 2: Aporte Personal: Que le sea devuelto directamente el saldo acumulado de su cuenta de aporte personal debidamente capitalizado al momento del cierre del Fondo, menos las erogaciones que correspondan derivadas de lo que la Ley establezca.
+Aporte Institucional: Que le sea devuelto al trabajador activo directamente el 50% del saldo acumulado de su cuenta de aporte Institucional debidamente capitalizado al momento del cierre del Fondo, menos las erogaciones que correspondan derivadas de lo que la Ley establezca. El restante 50% se les trasladará al Régimen Obligatorio de Pensiones Complementarias
+El restante 50% se les trasladará al Régimen Obligatorio de Pensiones Complementarias debidamente capitalizado al momento de cierre del Fondo, menos las erogaciones que correspondan derivadas de lo que la Ley establezca. Las particularidades del presente tema serán reguladas en el procedimiento que se emitiría para estos efectos.

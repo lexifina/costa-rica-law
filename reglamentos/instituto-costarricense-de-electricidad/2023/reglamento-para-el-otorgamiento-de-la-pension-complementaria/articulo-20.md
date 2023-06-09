@@ -1,0 +1,2 @@
+Artículo 20°. Población usada. La población que debe usarse para el escenario base o de planificación financiera es la cerrada, la cual supone que la evaluación actuarial del FPC no recibe más afiliados siendo conocida la población involucrada a una fecha cierta.
+Se podrán elaborar escenarios de proyección actuarial adicionales con población abierta y otros, según lo requiera la normativa emitida por la SUPEN o para efectos de planificación financiera del FPC.

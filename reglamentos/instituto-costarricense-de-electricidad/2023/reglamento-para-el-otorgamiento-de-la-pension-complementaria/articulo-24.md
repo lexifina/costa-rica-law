@@ -1,0 +1,1 @@
+Artículo 24°. Deber de informar. La Administración del FPC deberá informar al pensionado sobre la conmutación de la pensión, de manera que quede informado del cambio de la forma de pago de la pensión a la que tiene derecho.

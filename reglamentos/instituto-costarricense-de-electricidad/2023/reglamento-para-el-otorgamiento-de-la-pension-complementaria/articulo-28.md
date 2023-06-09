@@ -1,0 +1,1 @@
+Artículo 28°. Derogatorias. El presente Reglamento deroga el Reglamento de Pensión Complementaria aprobado por el Consejo Directivo, de la Sesión 5555 del 30 de setiembre del 2003, así como cualquier normativa o disposición vigente que se contraponga a lo aquí dispuesto.
