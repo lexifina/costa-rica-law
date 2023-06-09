@@ -1,1 +1,0 @@
-Artículo 2º-Aplicación del nivel mínimo de tributación. En consideración a que la categoría más vendida en el año 2020 corresponde al precio de ¢2.000.00 colones por cajetilla, se debe modificar el nivel mínimo de tributación vigente, según se detalla en el artículo siguiente.
