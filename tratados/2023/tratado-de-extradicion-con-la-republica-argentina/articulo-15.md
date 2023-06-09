@@ -1,0 +1,5 @@
+Artículo 15
+Principio de Especialidad
+La persona que hubiera sido entregada en extradición conforme al presente Tratado no será perseguida, detenida, sentenciada ni sometida a ninguna otra restricción de su libertad personal por la Parte Requirente, por hechos distintos de aquellos por los cuales se concedió la extradición y cometidos con anterioridad a la entrega de la persona, excepto en los casos siguientes:
+a) Cuando la Parte Requerida autorice la ampliación de la extradición por hechos diferentes a los contenidos en la solicitud que dio origen a la misma. A este efecto, la Parte Requirente deberá remitir a la Parte Requerida una solicitud formal de conformidad con los requisitos enumerados en el artículo 7.
+b) Cuando la persona extraditada, habiendo tenido la posibilidad de abandonar el territorio de la Parte a la que fue entregada, haya permanecido voluntariamente en él por más de cuarenta y cinco (45) días después de su liberación definitiva, o regresare a él después de haberlo abandonado.
