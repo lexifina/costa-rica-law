@@ -1,0 +1,7 @@
+Artículo 22°. Incumplimiento de pago.
+En caso de no aplicarse la deducción mensual por cualquier circunstancia con respecto al préstamo otorgado, o lo correspondiente a la póliza de seguro según el período de la prima, es obligación del cliente realizar el depósito de la cuota y los intereses moratorios correspondiente
+por los medios establecidos por la Administración del FGA, en el primer caso, o en la aseguradora correspondiente, en el segundo, dentro de los 5 (cinco) primeros días hábiles del mes siguiente.
+En el caso contrario, respecto al préstamo, la Administración del FGA aplicará de oficio la deducción del monto pendiente, acorde a lo definido en el procedimiento de Gestión de Cobro vigente, respetando la reserva del salario mínimo intangible e inembargable.
+En caso de mora se cobrará la tasa de interés vigente del crédito y se aplicará sobre la amortización pendiente de pago.
+Cuando no se pueda aplicar lo indicado en los párrafos anteriores, de manera excepcional, el deudor podrá autorizar al FGA que se realice el pago del monto atrasado y/o la cancelación del saldo total de la deuda, con los ahorros no comprometidos como respaldo de garantía de otros préstamos, acorde y en cumplimiento a lo que establece el Reglamento de Operación del Fondo en el Capítulo III, Sección III, que regula la Compensación de Préstamos con Ahorros y sobre el cual no se realizarán excepciones.
+Las demás condiciones para realizar la gestión de cobro están establecidas en los procedimientos correspondientes.

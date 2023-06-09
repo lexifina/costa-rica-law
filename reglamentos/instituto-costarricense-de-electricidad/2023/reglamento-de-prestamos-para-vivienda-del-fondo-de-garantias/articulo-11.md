@@ -1,0 +1,3 @@
+Artículo 11°. Presentación de solicitudes.
+Para su consideración y resolución los clientes deben presentar la solicitud por los mecanismos que para tales efectos el FGA ponga a su disposición y acompañar los documentos que justifiquen y comprueben la inversión del préstamo, acorde a lo definido en el procedimiento correspondiente.
+Las solicitudes de crédito para vivienda que presenten los funcionarios se resolverán atendiendo la disponibilidad de recursos del FGA de acuerdo con la fecha de presentación y el tipo de plan de inversión, dando prioridad a la solución de vivienda por primera vez. En aquellas solicitudes que correspondan a una misma fecha, se dará prioridad a las presentadas por funcionarios con mayor antigüedad de laborar para el ICE y cotizar para el FGA.

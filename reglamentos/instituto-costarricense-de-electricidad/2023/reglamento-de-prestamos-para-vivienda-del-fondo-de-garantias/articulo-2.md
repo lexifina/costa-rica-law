@@ -1,0 +1,3 @@
+Artículo 2°. Alcance y cobertura.
+La Administración del FGA tiene la facultad para conceder a los funcionarios y empleados del ICE, que pertenezcan al FGA, préstamos para vivienda para los fines que el solicitante considere conveniente, según los planes de inversión indicados en este Reglamento y que cumpla estrictamente con la normativa del Fondo. Este Reglamento es de acatamiento obligatorio para la Junta Administrativa, la Administración y todos los miembros del FGA.
+Asimismo, la Administración del FGA deberá periódicamente informar a la Junta Administrativa sobre las aprobaciones de estos financiamientos.

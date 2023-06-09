@@ -1,0 +1,3 @@
+Artículo 14°. Garantía de préstamos.
+El FGA se garantizará el pago de los préstamos directos que conceda mediante garantía hipotecaria de primer grado sobre la propiedad en que se hará la inversión, la cual debe quedar inscrita a nombre del deudor, siempre que se trate de planes de inversión para compra de lote o vivienda. Para los planes de inversión de cancelación de hipoteca, construcción de vivienda en lote propio o ampliación y/o mejoras a la propiedad podrá estar inscrita a nombre del cónyuge del solicitante.
+El FGA podrá otorgar préstamos de vivienda sin límite de grado hipotecario siempre y cuando los grados anteriores pertenezcan al FGA y que la suma del saldo de las hipotecas no supere el monto actualizado del avalúo.

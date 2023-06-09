@@ -1,0 +1,2 @@
+Artículo 10°. Personal ocasional.
+Para acceder a los beneficios de este Reglamento al personal que hubiese estado nombrado como ocasional, se le reconocerá hasta un año de servicio, a condición de que hubiese existido continuidad en su contrato de trabajo sin que medie liquidación, para lo cual deberá depositar hasta un máximo de 12 (doce) cotizaciones reglamentarias correspondientes. Este pago se efectuará únicamente para efectos de lo indicado en este Reglamento y no será reconocido en otros beneficios que otorgue el FGA.

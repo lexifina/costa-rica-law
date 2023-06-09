@@ -1,0 +1,2 @@
+Artículo 18°. Casos de remate del bien.
+La solicitud del remate del bien inmueble dado en garantía en virtud del derecho de un tercero, el embargo practicado, demandas ordinarias, traspaso de la propiedad a nombre de un tercero, entre otras operaciones que afecten y expongan a riesgo la propiedad dada en garantía, facultará al FGA para tener sin previo requerimiento por vencido el plazo de cancelación del préstamo y exigible ejecutivamente el pago del saldo de la deuda, intereses, costas procesales y otros costos administrativos.

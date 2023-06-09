@@ -1,0 +1,3 @@
+Artículo 25°. Readecuación de cuota.
+El deudor podrá realizar abonos extraordinarios a las operaciones crediticias para cancelar sus préstamos antes de la fecha de vencimiento o bien, solicitar al FGA la readecuación de la cuota del préstamo, lo cual se realizará dentro de las condiciones de plazo restante y tasa de interés vigente. El monto mínimo requerido de abono extraordinario para la aplicación de ajustes en la cuota, lo aprobará la Junta Administrativa a solicitud de la Administración del FGA según el informe técnico que lo sustente y será establecido en el procedimiento correspondiente.
+El deudor deberá indicar a la Administración del FGA si el objetivo del abono extraordinario es readecuar la cuota o si mantiene la vigente.
