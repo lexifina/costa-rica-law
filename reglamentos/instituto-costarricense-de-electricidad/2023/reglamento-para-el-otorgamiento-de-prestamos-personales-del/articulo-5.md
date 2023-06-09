@@ -1,0 +1,27 @@
+Artículo 5°. Definiciones.
+Para los efectos de aplicación del presente Reglamento los términos que se mencionan tienen el siguiente significado:
+Administración del Fondo de Garantías y Ahorros: Corresponde a la organización administrativa, incluida su Dirección Ejecutiva con sus diferentes áreas. Es el grupo de funcionarios administrativos del Fondo.
+Ahorro disponible: Es el ahorro personal y/o institucional que no está comprometido como garantía de respaldo en créditos y al que el trabajador tenga derecho acorde a lo establecido en la normativa del Fondo.
+Ahorro Institucional del FGA: Sumatoria de los aportes institucionales y de los rendimientos (intereses) capitalizados, menos las deducciones definidas en la normativa aplicable, acorde al Reglamento de Operación del Fondo.
+Ahorro Personal del FGA: Sumatoria de los aportes personales que realizan mensualmente los trabajadores permanentes y de los rendimientos (intereses) capitalizados, menos las retenciones definidas en la normativa aplicable, acorde al Reglamento de Operación del Fondo.
+Aporte: Contribución obligatoria efectuada por el patrono y el trabajador, corresponde a un porcentaje del salario devengado del trabajador, según lo establecido en el Reglamento de Operación del Fondo. Entiéndase para efectos del presente documento como sinónimo la palabra cotización.
+Aportes Institucionales al FGA: Suma equivalente al 5% (cinco por ciento) mensual de las planillas de salarios devengados de los trabajadores permanentes, que aportará regularmente en dinero efectivo el Instituto, acorde al Reglamento de Operación del Fondo y a lo establecido en la Ley 3625.
+Aportes Personales al FGA: Suma equivalente al 5% (cinco por ciento) del salario devengado que los trabajadores permanentes deberán aportar y que el Instituto deducirá del salario mensual acorde al Reglamento de Operación del Fondo y a lo establecido en la Ley 3625.
+Cartera: Clasificación de conjunto de créditos con un destino y garantías de respaldo específicas a saber: hipotecaria, prendaria, personal u otra.
+Crédito: Operación financiera en la que una persona recibe un préstamo de dinero con recursos del FGA.
+División Servicios Generales: Dirección rectora en la ejecución de la gestión inmobiliaria y documental; así como de servicios de seguridad institucional y de gestión al personal.
+Fondo: Dependencia adscrita al Consejo Directivo del ICE, compuesta por el Fondo de Garantías y Ahorro (FGA) y por el Fondo de Pensiones Complementarias (FPC).
+Fondo Mutualista: Es un Fondo adscrito al FGA para la cancelación de saldos deudores de operaciones de crédito en caso de fallecimiento del deudor, acorde con lo establecido en la normativa correspondiente.
+Garantía por ahorro: Es el respaldo del crédito para el acreedor mediante el uso de los ahorros personales y/o institucionales disponibles administrados por el FGA.
+Garantía fiduciaria: Es el respaldo del crédito para el acreedor mediante un fiador.
+Garantía hipotecaria: Es el respaldo del crédito para el acreedor por medio de un bien inmueble.
+Garantía prendaria: Es el respaldo del crédito para el acreedor por medio de un bien mueble.
+Junta Administrativa: Es un órgano colegiado de conformación bipartita y paritaria con representantes del ICE y de los Trabajadores. Es la máxima autoridad dentro del FGA y del FPC.
+Líneas de crédito: Tipos de financiamiento diferenciados por tasa de interés, plazo de cancelación, garantía de respaldo y destino o finalidad de los recursos.
+Personal Permanente: Corresponde para efectos exclusivos del otorgamiento de beneficios de este Reglamento, al personal que tiene un contrato de trabajo por tiempo indefinido (acorde con lo regulado en el Estatuto de Personal del ICE o el Reglamento Autónomo Laboral), así como, el personal ocasional cuya modalidad de contrato es por obra o tiempo determinado (definidos en el Estatuto de Personal del ICE), que habiendo cumplido un año en esa condición adquiera los derechos del personal permanente y aquellos otros cotizantes que así los califique el Consejo Directivo. Entiéndase para efectos del presente documento sinónimos de la palabra personal permanente: trabajador, funcionario, empleado, afiliado o cliente.
+Salario bruto: Suma de salario base más antigüedades, según la jornada que se labore, definido como salario ordinario en el Estatuto de Personal del ICE.
+Salario devengado: Es la sumatoria del salario total, más ajustes que provengan de tiempo extraordinario, guardias, reasignaciones y cualquier otro concepto que afecte el cálculo de la liquidación de las prestaciones laborales, conforme a lo establecido en el Estatuto de Personal del ICE.
+Salario neto: salario que recibe el trabajador después de aplicadas las deducciones de ley, así como las demás obligaciones y compromisos adquiridos.
+Salario de derecho a crédito: Es el salario de referencia para cálculo de otorgamiento de crédito, que incluye salario base, antigüedades y sobresueldos que constituyen pagos mensuales regulares reconocidos como patrimonio del trabajador, según criterio técnico de la DSG. La composición del salario de derecho será aprobada por la Junta Administrativa para su aplicación.
+Salario mínimo intangible e inembargable: Es la reserva de salario neto definida en el artículo 172 del Código de Trabajo, que no puede ser utilizada para pago de cuotas de crédito.
+Tracto de Operación: Corresponde a la parte de un crédito personal que es respaldado con los ahorros del trabajador o con garantía fiduciaria.

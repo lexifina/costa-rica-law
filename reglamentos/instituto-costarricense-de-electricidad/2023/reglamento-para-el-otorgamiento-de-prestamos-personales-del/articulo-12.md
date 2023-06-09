@@ -1,0 +1,3 @@
+Artículo 12°. Derechos del ICE como acreedor.
+El ICE, en representación del FGA, podrá ejercer todos los derechos que el ordenamiento jurídico le brinda como acreedor, con relación a los préstamos otorgados con fundamento en este Reglamento, incluyendo todo lo relacionado con la ejecución de las garantías de los créditos otorgadas a favor del ICE.
+Este Reglamento y el Reglamento para el Otorgamiento Préstamos para Vivienda, en lo que corresponda, forman parte integral de las condiciones del préstamo, las cuales son aceptadas por el deudor desde la suscripción de la respectiva garantía (pagaré y/o escritura), todo esto debidamente consignado en éstas según corresponda, tal y como si estuvieran literalmente transcritos allí.

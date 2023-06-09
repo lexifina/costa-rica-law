@@ -1,0 +1,4 @@
+Artículo 16°. Cobro judicial
+La falta de pago de dos cuotas consecutivas, una vez agotado el cobro por la vía administrativa, dará derecho a la Administración del FGA para dar por vencido el plazo para la cancelación de la deuda y otros gastos que estuvieren asociados a la gestión y exigir su pago por la vía ejecutiva sin previo requerimiento, según el Procedimiento correspondiente.
+Si la deuda se encuentra en cobro administrativo, arreglo de pago o cobro judicial al deudor se le restringirá los derechos a crédito y otros servicios que ofrece el FGA hasta que la operación se encuentre al día. El deudor o fiador podrá poner al día la operación según los mecanismos que se ofrezcan para estos fines, establecidos en este Reglamento y la normativa aplicable.
+Los casos que sean remitidos a cobro judicial serán reportados a la (s) protectora (s) de crédito.

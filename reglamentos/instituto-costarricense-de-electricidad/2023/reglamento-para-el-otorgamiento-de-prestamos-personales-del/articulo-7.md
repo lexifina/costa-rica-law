@@ -1,0 +1,3 @@
+Artículo 7°. Presentación de solicitudes.
+Los clientes deberán presentar la solicitud por los mecanismos que para tales efectos el FGA ponga a su disposición y adjuntar los documentos que justifiquen y comprueben la inversión del préstamo, acorde a lo definido en el procedimiento correspondiente.
+La Administración del FGA analizará y considerará tales solicitudes de acuerdo con su fecha de presentación, reservándose, sin embargo, el derecho de dar prioridad con base en los tipos de crédito aprobados por la Junta Administrativa y tratando en todo momento de cumplir con la finalidad para la cual ha sido creado el FGA.

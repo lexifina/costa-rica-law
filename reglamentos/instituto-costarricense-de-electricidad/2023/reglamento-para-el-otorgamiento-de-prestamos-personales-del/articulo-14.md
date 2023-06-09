@@ -1,0 +1,2 @@
+Artículo 14°. Forma de pago y deducción de planilla.
+Los préstamos se amortizarán por medio de cuotas mensuales consecutivas que cubran la amortización y los intereses correspondientes, sobre los saldos mensuales de acuerdo con lo establecido en este Reglamento. La forma de pago será vía deducción de planillas que será realizada en forma quincenal, para lo cual el trabajador autoriza al ICE que de su salario le deduzca la cuota convenida. No se autorizarán créditos cuyas deducciones superen el salario mínimo intangible e inembargable.

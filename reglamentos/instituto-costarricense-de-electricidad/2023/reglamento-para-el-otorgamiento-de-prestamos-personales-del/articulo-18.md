@@ -1,0 +1,2 @@
+Artículo 18°. Aumento de la cuota pactada.
+El deudor podrá solicitar al FGA que se le aumente la cuota de rebajo en planillas, la cual no podrá ser superior al nivel de endeudamiento establecido en este Reglamento. El deudor podrá solicitar un aumento de cuota y la reversión de este ajuste por una única vez. No se autorizarán aumentos de cuotas cuyo monto afecte el salario mínimo intangible e inembargable.
