@@ -1,0 +1,1 @@
+Artículo 16.-Derogatoria. Deróguese el Reglamento de Incorporación al Colegio de Profesionales en Nutrición de Costa Rica aprobado mediante acuerdo N° 01-2009 tomado en sesión ordinaria Nº 18 de Junta Directiva del Colegio de Profesionales en Nutrición de Costa Rica celebrada el 23 de setiembre del 2009 y publicado en La Gaceta Nº 193 del 05 de octubre del 2009.

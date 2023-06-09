@@ -1,0 +1,1 @@
+Artículo 6º-Solicitudes de incorporación. Los solicitantes deben presentar los requisitos que establece este Reglamento ante la Junta Directiva del Colegio. La Junta Directiva contará con un mes calendario para el análisis de las solicitudes presentadas y emitir la resolución.
