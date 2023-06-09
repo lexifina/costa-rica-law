@@ -1,0 +1,1 @@
+Artículo 20°. Derogatorias. El presente Reglamento deroga el aprobado por el Consejo Directivo en el artículo 2 del Capítulo I de la Sesión 6235 del 18 de setiembre de 2017, así como cualquier normativa o disposición vigente que se contraponga a lo aquí dispuesto.
