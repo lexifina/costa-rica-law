@@ -1,0 +1,2 @@
+Artículo 8°- Presupuesto de los premios
+El presupuesto para el otorgamiento de estos premios especiales, se tomará del Fondo para Premios Extra de la Junta de Protección Social. En caso que algún ganador no reclame el premio o el mismo no pueda ser entregado por el incumplimiento de algún requisito, transcurrido el período de caducidad indicado en el artículo N°7 los enteros del Sorteo Extraordinario Gordito de Medio Año N°4754 que no hayan sido reclamados por los ganadores se procederán a destruir.

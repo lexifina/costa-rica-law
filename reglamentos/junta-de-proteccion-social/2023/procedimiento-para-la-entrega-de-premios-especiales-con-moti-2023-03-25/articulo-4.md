@@ -1,0 +1,2 @@
+Artículo 4°- Detalle de los premios
+Entre todos los participantes mayores de 18 años, sea nacional o extranjero, que activen al menos 2 fracciones de los sorteos de Lotería Nacional y Lotería Popular participantes de esta promoción (4751-4752-6767-6768-6769-6770) se otorgarán, en cada sorteo de la promoción, 300 enteros del Sorteo Extraordinario Gordito de Medio Año 2023, número 4754. En total, esta promoción entregará 900 enteros de dicho sorteo.

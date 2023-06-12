@@ -1,0 +1,13 @@
+Artículo 5°- Mecánicas para los sorteos
+Se realizarán en total tres sorteos a razón de un sorteo por fecha de realización, entre todos los participantes mayores de 18 años, nacionales y extranjeros, que activen al menos 2 fracciones de los sorteos de Lotería Nacional y Lotería Popular participantes de esta promoción (4751-4752-6767-6768-6769-6770), hasta un máximo por sorteo participante de 200 fracciones. Estos sorteos se realizarán viernes 16 de junio, martes 20 de junio y viernes 23 de junio del 2023, a través de una tómbola electrónica.
+En el siguiente cuadro el participante podrá observar las fechas de activaciones, las fechas de sorteos y la cantidad de enteros de lotería del Sorteo Extraordinario Gordito de Medio Año N°4754 que se otorgarán en cada sorteo de esta promoción, que como se indicó, esta promoción consta de 3 sorteos.
+Sorteo | Fecha de Activaciones | Fecha de Sorteo | Cantidad Ganadores | Detalle Premio
+1 | Del 12 al 15 de junio 2023 | 16 de junio del 2023 | 100 | 3 Enteros del Sorteo Extraordinario Gordito de Medio Año N°4754
+2 | Del 15 al 19 de junio 2023 | 20 de junio del 2023 | 100 | 3 Enteros del Sorteo Extraordinario Gordito de Medio Año N°4754
+3 | Del 19 al 22 de junio 2023 | 23 de junio del 2023 | 100 | 3 Enteros del Sorteo Extraordinario Gordito de Medio Año N°4754
+Se aclara que, la persona favorecida no podrá escoger las series y números al momento de reclamar el premio correspondiente a tres enteros del Sorteo Extraordinario de Gordito de Medio Año N°4754.
+Una misma persona no podrá salir favorecida más de una vez en cada sorteo de esta promoción. Es decir, una misma persona solo podrá obtener un premio en cada sorteo.
+Si es permitido que una persona que resulte ganador en este sorteo pueda salir favorecido en el siguiente sorteo de esta promoción.
+Se aclara que para participar en cada uno de los sorteos de esta promoción los participantes debe realizar activaciones nuevas. Por ejemplo, las fracciones que haya activado para el primer sorteo de esta promoción no podrán activarse para el segundo sorteo de esta promoción, y así sucesivamente para cada uno de los sorteos de esta promoción.
+Los ganadores de este sorteo se darán a conocer en el sitio oficial de la Junta de Protección Social en la red social de Facebook "Junta de Protección Social (oficial)" y en la página web www.jps.go.cr
+Cada uno de los sorteos de esta promoción serán debidamente fiscalizado de acuerdo con lo establecido en el Reglamento a la Ley de Loterías, en el Reglamento interno para regular las actividades relacionadas con la realización y la asistencia a la celebración de los sorteos de lotería y a la recepción de excedentes de loterías, así como cualquier otra normativa que se emita al efecto.
