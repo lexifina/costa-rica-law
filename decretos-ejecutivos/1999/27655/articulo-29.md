@@ -1,1 +1,0 @@
-Artículo 29.—Cualquier discrepancia o diferencia que pueda surgir en la aplicación del presente reglamento, se resolverá mediante un proceso en que participarán activamente el Director o Subdirector General, el Encargado de la Asesoría Legal y el encargado de la Unidad de Recursos Materiales.

@@ -1,1 +1,0 @@
-Artículo 2°—Uso de la Placa Oficial: Los vehículos oficiales llevarán permanentemente en su carrocería con fondo blanco el logotipo de la Dirección General de Aviación Civil en ambas puertas delanteras y en la posterior debe también identificarse con un número de registro interno (número de equipo).

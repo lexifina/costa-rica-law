@@ -1,1 +1,0 @@
-Artículo 15.—Mejor aprovechamiento de los vehículos: El GTABS reunirá las solicitudes de transporte que se generen a un mismo sitio o ruta con la finalidad de que el servicio se brinde siguiendo los criterios de razonabilidad, oportunidad y economía de los recursos institucionales.

@@ -1,1 +1,0 @@
-Artículo 26.—Prohibición de Arreglos Extrajudiciales: Se prohíbe a los conductores de la institución efectuar arreglos extrajudiciales en caso de accidente con vehículos de la Institución, únicamente deberá indicarle a la contraparte, que se apersone o comunique con el GTABS.
