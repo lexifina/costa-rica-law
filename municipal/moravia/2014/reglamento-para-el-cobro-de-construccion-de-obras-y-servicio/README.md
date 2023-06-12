@@ -17,3 +17,4 @@ Reglamento para el cobro de construcción de obras y servicios realizados por la
 | 2 | 2015-12-28 | Reglamento municipal 296 (2015-12-28) |
 | 3 | 2018-10-08 | Reglamento municipal 128 (2018-10-08) |
 | 4 | 2018-10-22 | Reglamento municipal 130 (2018-10-22) |
+| 5 | 2023-06-12 | Reglamento municipal 0 (2023-06-12) |
