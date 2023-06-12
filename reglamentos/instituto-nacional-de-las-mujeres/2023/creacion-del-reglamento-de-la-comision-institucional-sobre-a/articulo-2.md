@@ -1,0 +1,1 @@
+Artículo 2º-Objeto. CIAD - INAMU será la encargada de coordinar e impulsar el cumplimiento de la normativa vigente sobre accesibilidad para personas con condición de discapacidad en el Instituto Nacional de las Mujeres, y de elaborar y ejecutar una política integral en materia de discapacidad.

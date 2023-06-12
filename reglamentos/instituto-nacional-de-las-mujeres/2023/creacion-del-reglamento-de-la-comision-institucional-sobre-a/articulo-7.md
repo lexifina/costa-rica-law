@@ -1,0 +1,1 @@
+Artículo 7º-Subcomisiones. La CIAD-INAMU podrá conformar las subcomisiones que considere necesarias, las cuales serán presididas por una de las personas integrantes de la Comisión en conjunto con otras personas funcionarias del Instituto Nacional de las Mujeres, en calidad de personas invitadas, que colaborarán como asesores.

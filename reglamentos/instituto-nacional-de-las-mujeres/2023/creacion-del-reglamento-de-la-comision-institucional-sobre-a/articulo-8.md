@@ -1,0 +1,1 @@
+Artículo 8º-Disponibilidad de tiempo. Los miembros de la CIAD-INAMU deberán asistir a las sesiones, atender las diligencias o actividades propias de la Comisión, así como las tareas o responsabilidades que se le asignen o se acuerden a lo interno de la Comisión. Las ausencias deben ser debidamente justificadas.
