@@ -1,0 +1,9 @@
+INSTITUTO COSTARRICENSE DE TURISMO
+El Instituto Costarricense de Turismo, de conformidad con la competencia conferida en el Artículo 27 de la Ley de la Zona Marítimo Terrestre N° 6043, y al Acuerdo de Sesión Ordinaria Presencial N° 6254 de la Junta Directiva del Instituto Costarricense de Turismo, en el Apartado 1 "Generalidades", Artículo 5, inciso I, celebrada el lunes 22 de mayo de 2023 comunica lo siguiente:
+Se Acuerda:
+A) Acoger la recomendación dada en los oficios DPD-P-048-2023 y DPD-P-041-2023 y declarar de aptitud turística la zona marítimo terrestre que define el artículo 75 de la Ley de la Zona Marítimo Terrestre, para los sectores aledaños al canal principal que une los puertos de Moín con Barra del Colorado, que se encuentran bajo jurisdicción de los cantones de Guácimo, Siquirres, Matina y los distritos de Limón y Río Blanco pertenecientes al cantón de Limón.
+B) Las coordenadas extremas del sector declarado se definen entre el límite del Parque Nacional Tortuguero en la coordenada 1143920 N - 566061 E en el cantón de Guácimo y la desembocadura del Río Moín en la coordenada 1105976 N - 600853 E en el distrito Limón, cantón Limón en la proyección CRTM05.
+C) Quedan excluidos de este declaratoria por no ser zona marítimo terrestre, los sectores clasificados como Áreas Silvestres Protegidas de conformidad con el artículo 73 de la Ley de la Zona Marítimo Terrestre, las áreas que se hayan clasificado o que se clasifiquen a futuro como Patrimonio Natural del Estado, las áreas declaradas ciudades o terrenos de propiedad privada de conformidad con el artículo 6 de la Ley de la Zona Marítimo Terrestre.
+D) Esta aprobación sustituye y deroga las declaratorias practicadas en años anteriores para los cantones y distritos indicados en el punto 1.
+E) Se instruye a la Administración, realizar las gestiones para la publicación en el diario oficial La Gaceta para la oficialización de la presente declaratoria.
+Acuerdo Firme.
