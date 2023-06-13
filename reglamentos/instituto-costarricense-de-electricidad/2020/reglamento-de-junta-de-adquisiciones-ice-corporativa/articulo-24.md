@@ -1,5 +1,0 @@
-Artículo 24.—Este reglamento deja sin efecto cualquier otra normativa, directriz, lineamiento o circular de rango igual o inferior que se le oponga y deja sin efecto la versión de este reglamento anteriormente aprobada. Únicamente podrá modificarse lo aquí dispuesto a través de una reforma a este reglamento, que deberá ser aprobada por el Consejo Directivo. La presente modificación regirá a partir de su publicación en el Diario Oficial La Gaceta.
-2. Encargar a la Dirección Proveeduría Institucional, para que realice la publicación del presente acuerdo en el Diario Oficial La Gaceta.
-3. Instruir a la Dirección de Proveeduría Institucional para que proceda a comunicar a todas las dependencias de la Institución el contenido de la reforma integral al Reglamento de junta de Adquisiciones ICE/Corporativa aprobada en la presente sesión.
-4. Comunicar el presente acuerdo a la Dirección Gestión de Políticas de la División de Estrategia para que proceda a actualizar en el sitio oficial de normativa, el Reglamento de junta de Adquisiciones ICE/Corporativa aprobado en esta sesión. Acuerdo firme.
-San José 11 de junio de 2020.—

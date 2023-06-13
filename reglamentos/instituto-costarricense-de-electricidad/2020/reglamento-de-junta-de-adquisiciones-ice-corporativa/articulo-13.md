@@ -1,3 +1,0 @@
-SECCIÓN II
-Del acta
-Artículo 13.—El secretario(a) levantará un borrador de acta de cada sesión, el cual contendrá el nombre de las personas asistentes, el lugar, fecha y hora de inicio y finalización, los puntos principales de discusión, la forma y resultado de las votaciones y el contenido de los acuerdos. Cuando algún miembro de la junta quiera razonar su voto o hacer algún comentario y así lo quiera hacer constar en el acta respectiva, señalará al secretario(a) en el momento de su intervención, que así lo consigne, debiendo éste transcribir literalmente de la grabación que se esté realizando.
