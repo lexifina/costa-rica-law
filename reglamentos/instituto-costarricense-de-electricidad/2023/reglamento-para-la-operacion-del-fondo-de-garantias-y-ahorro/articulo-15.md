@@ -1,0 +1,3 @@
+Artículo 15°. Elección de los representantes de los trabajadores.
+El proceso de elección de los representantes de los trabajadores será responsabilidad de la Junta Administrativa, la cual dictará el reglamento de elecciones correspondiente y nombrará un tribunal electoral independiente, conformado por personas de un reconocido prestigio moral. Dicho proceso se llevará a cabo al menos 45 días hábiles antes de la fecha de vencimiento del período respectivo, el cual será regulado en el Reglamento antes indicado, pudiendo ampliarse el plazo.
+El nombramiento de los representantes de los trabajadores será por un periodo de cuatro años, iniciando un 1°de enero y finalizando el 31 de diciembre.

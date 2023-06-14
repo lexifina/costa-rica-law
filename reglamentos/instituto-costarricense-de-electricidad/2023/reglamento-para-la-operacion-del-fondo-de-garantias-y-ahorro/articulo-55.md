@@ -1,0 +1,3 @@
+Artículo 55°. Contabilidad.
+El FPC llevará su propia Contabilidad, la cual se apegará a los requerimientos establecidos porla Dirección de Contabilidad Nacional del Ministerio de Hacienda y lo dispuesto porCONASSIF y SUPEN. Para esto, la Administración deberá elaborar los manuales y códigoscontables que se requieran. El sistema contable deberá incluir cuentas separadas para lasreservas indicadas en el artículo 46, incisos 1 y 2 de este Reglamento.
+La Contabilidad deberá llevarse de acuerdo con las prescripciones legales del país en la formaque determine la técnica y consistirá en los libros, registros y archivos que sean necesarios paraobtener mensualmente la situación financiera del FPC y el estado individual de las cuentas decada uno de los afiliados de éste.

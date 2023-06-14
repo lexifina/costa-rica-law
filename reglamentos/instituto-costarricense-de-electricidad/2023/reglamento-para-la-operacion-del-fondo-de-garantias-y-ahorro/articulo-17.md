@@ -1,0 +1,2 @@
+Artículo 17°. Responsabilidades de la Dirección.
+La Dirección Ejecutiva del Fondo será el administrador general, responsable ante la Junta Administrativa del proceso de planeamiento, organización, dirección, control de los recursos, de la correcta administración y de la óptima prestación de los servicios, así como de ejecutar los acuerdos y de cualquier otra responsabilidad afín que se desprenda de las anteriores para el logro de los objetivos que le sean establecidos.

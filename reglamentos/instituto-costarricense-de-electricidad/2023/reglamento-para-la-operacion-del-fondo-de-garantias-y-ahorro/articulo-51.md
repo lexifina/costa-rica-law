@@ -1,0 +1,2 @@
+Artículo 51°. Préstamos con recursos del FPC.
+El Fondo de Pensiones Complementarias podrá otorgar créditos al personal permanente. El Consejo Directivo aprobará la cantidad máxima (expresada como un porcentaje del portafolio) a destinar para préstamos, con base en las facultades otorgadas por la Ley 8660. Para el otorgamiento de préstamos se debe cumplir con toda la normativa establecida en el Reglamento de Gestión de Activos emitido por CONASSIF y las disposiciones que dicte el Consejo Directivo.

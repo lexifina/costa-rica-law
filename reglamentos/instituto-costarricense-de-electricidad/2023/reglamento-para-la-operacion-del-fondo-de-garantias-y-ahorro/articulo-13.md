@@ -1,0 +1,2 @@
+Artículo 13°. Del quórum.
+El quórum se constituye con la participación de dos miembros de cada representación. Los suplentes, tanto de la representación de la Administración como de los trabajadores, solamente podrán participar de las sesiones en el momento en que se trate el tema exclusivo que ha sido conocido en los comités de apoyo para los cuales han sido nombrados. Esta participación será con voz y estará definida en los lineamientos internos de la Junta Administrativa. Podrán participar con voz y voto cuando participen como titulares.

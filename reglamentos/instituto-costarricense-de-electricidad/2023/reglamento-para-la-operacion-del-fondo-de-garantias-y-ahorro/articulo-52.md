@@ -1,0 +1,6 @@
+Sección III
+Administración de activos y Contabilidad del FPC
+Artículo 52°. Gestión de activos.
+Los recursos del FPC deben invertirse de conformidad con lo establecido en la Ley 7983 de Protección al Trabajador, Ley 8660 de Fortalecimiento y Modernización de las Entidades Públicas del Sector Telecomunicaciones, las regulaciones emitidas por el CONASSIF en lo que corresponda, así como por los reglamentos, políticas y acuerdos tomados por el Consejo Directivo, además de los acuerdos aprobados por la Junta Administrativa y los Comités Técnicos del FPC.
+La administración de los activos del FPC incluyen: las inversiones en valores, el otorgamiento de créditos, el efectivo en las cuentas bancarias y equivalentes de efectivo para el manejo de la liquidez.
+Los recursos del FPC serán invertidos en beneficio de los afiliados y pensionados, con el objetivo de obtener una adecuada rentabilidad, seguridad y liquidez, acorde a los niveles de riesgo establecidos, con criterios técnicos y plazos adecuados según sus finalidades. Lo anterior, en función de la legislación vigente. Se atenderá al principio de diversificación, a fin de contar con una cartera ágil, donde no se mantengan fondos ociosos. La gestión de las inversiones buscará alcanzar la máxima rentabilidad dentro de una adecuada distribución y compensación de los riesgos.

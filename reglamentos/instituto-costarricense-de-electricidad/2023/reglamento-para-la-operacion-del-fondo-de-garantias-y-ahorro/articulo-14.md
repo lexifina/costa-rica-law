@@ -1,0 +1,3 @@
+Artículo 14°. Informes y Plan Anual.
+La Junta Administrativa presentará al Consejo Directivo un informe en el mes de marzo de cada año, sobre los resultados de su gestión, correspondiente al período anterior (del 1° de enero al 31 de diciembre respectivo); además, en el mes de abril de cada año presentará a los trabajadores un informe por escrito de los logros correspondientes al período anterior, el cual se publicará por los medios que el Fondo defina para estos efectos.
+De igual forma, en el mes de octubre someterá a aprobación del Consejo Directivo el Plan Anual de Proyectos para el año siguiente.

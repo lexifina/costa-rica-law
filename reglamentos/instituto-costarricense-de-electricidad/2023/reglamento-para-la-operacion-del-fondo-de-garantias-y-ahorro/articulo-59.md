@@ -1,0 +1,2 @@
+Artículo 59°. Cancelación de Créditos con ahorros administrados por el FGA.
+Los créditos financiados con los recursos del FPC y que estén respaldados con los ahorros administrados por el FGA, deberán cancelarse cuando se apliquen en este último los procesos de liquidación de ahorros de 20 años y más, compensaciones y por exclusión al finalizar el contrato del trabajador en el ICE. Lo anterior, de conformidad con la normativa vigente y con lo establecido en el capítulo III del presente Reglamento.

@@ -1,0 +1,1 @@
+Artículo 48°. Supervisión. La supervisión del FPC estará a cargo de la Superintendencia de Pensiones, la Auditoría Interna del ICE, la Auditoría Externa, el Contralor de Cumplimiento Normativo y cualquier otro fiscalizador que designe el ordenamiento jurídico, para garantizar la adecuada administración de los recursos y su correcto funcionamiento.

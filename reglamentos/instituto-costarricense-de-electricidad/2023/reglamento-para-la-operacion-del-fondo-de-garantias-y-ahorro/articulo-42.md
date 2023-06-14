@@ -1,0 +1,1 @@
+Artículo 42°. Financiamiento para créditos en el FGA. El FGA podrá utilizar para sus operaciones de crédito parte del FPL, manteniendo una reserva del 10% (diez por ciento) del total acumulado, para atender adecuadamente las obligaciones que deba cubrir por prestaciones.

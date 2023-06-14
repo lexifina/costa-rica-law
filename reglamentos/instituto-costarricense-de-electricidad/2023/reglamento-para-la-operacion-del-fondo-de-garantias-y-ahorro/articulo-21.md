@@ -1,0 +1,2 @@
+Artículo 21°. Comités Técnicos.
+Para lograr eficiencia en el análisis de los temas de su competencia, la Junta Administrativa podrá establecer comités técnicos, los cuales contaran con sus lineamientos específicos. Estos comités serán responsables de asesorar a la Junta Administrativa en todo lo relacionado a la gestión de inversiones, riesgos y cualquier otro tema de análisis que requiera conocer y aprobar este Órgano.

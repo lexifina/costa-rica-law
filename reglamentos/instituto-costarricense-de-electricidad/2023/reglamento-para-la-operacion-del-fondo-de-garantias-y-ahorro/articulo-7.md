@@ -1,0 +1,1 @@
+Artículo 7°. Constitución. El Fondo de Garantías y Ahorro de los servidores permanentes del Instituto Costarricense de Electricidad, se constituye por el Fondo de Garantías y Ahorro y el Fondo de Pensiones Complementarias. Son miembros del Fondo el personal permanente que se ajuste a la definición incluida en las disposiciones del presente Reglamento.

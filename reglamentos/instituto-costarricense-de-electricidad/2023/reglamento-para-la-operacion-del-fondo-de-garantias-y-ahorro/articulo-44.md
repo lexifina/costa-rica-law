@@ -1,0 +1,1 @@
+Artículo 44°. Aportes adicionales. En caso de que el saldo acumulado en el FPL resultare insuficiente para cubrir las erogaciones que deba asumir, la Institución hará los aportes adicionales que sean necesarios.

@@ -1,0 +1,7 @@
+Artículo 9°. De la designación de los cargos de la Junta Administrativa.
+La Junta Administrativa estará integrada por: Presidente, Vicepresidente, Secretario y Tesorero.
+El cargo de Presidente y Vicepresidente será designado por el Consejo Directivo, entre los miembros representantes de la Administración del ICE y el periodo de nombramiento será de 4 años.
+Para el nombramiento del Presidente, el Consejo Directivo deberá verificar que éste posea conocimientos, habilidades y experiencia en el manejo y comprensión de información financiera, económica, así como en temas de contabilidad, con los atestados académicos debidamente acreditados afines a la responsabilidad. Deberá ser el miembro representante de la Administración que ocupe el puesto de mayor jerarquía dentro del ICE.
+Asimismo, en el caso del Vicepresidente, se deberá verificar que posea conocimientos, habilidades y experiencia en el manejo y comprensión de información financiera, económica, así como en temas de contabilidad, con los atestados académicos debidamente acreditados afines a la responsabilidad.
+El cargo de Secretario y Tesorero serán designados en el seno de la Junta Administrativa y el periodo de nombramiento será de 4 años, contando preferiblemente con estudios y experiencia en materia económica y financiera. El acuerdo de estos nombramientos deberá ser comunicado al Consejo Directivo.
+El Presidente de la Junta Administrativa será el enlace directo con el Consejo Directivo.
