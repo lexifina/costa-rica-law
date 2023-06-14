@@ -1,0 +1,1 @@
+Artículo 9º-Las personas trabajadoras municipales que se ausenten a una cita deben enviar un correo a la Oficina de Salud Ocupacional en un plazo máximo de 24 horas justificando el motivo de la ausencia.

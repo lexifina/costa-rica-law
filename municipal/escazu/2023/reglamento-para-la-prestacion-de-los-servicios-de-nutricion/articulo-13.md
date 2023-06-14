@@ -1,0 +1,1 @@
+Artículo 13.-Las citas se otorgarán en el orden en que son solicitadas y estarán sujetas a la disponibilidad en la agenda de acuerdo con el contrato establecido con la persona proveedora del servicio de nutrición.

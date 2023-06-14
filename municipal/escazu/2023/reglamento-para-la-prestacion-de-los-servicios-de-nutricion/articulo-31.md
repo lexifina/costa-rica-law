@@ -1,0 +1,1 @@
+Artículo 31.-El horario de atención será de lunes a viernes, entre las 8:00 y las 16 horas; sin embargo, aquellas personas que, por privacidad o comodidad, deseen la cita de forma virtual, podrán coordinar la hora que mejor se ajuste a sus necesidades según el horario establecido para esta atención.

@@ -1,0 +1,1 @@
+Artículo 29.-A Las personas funcionarias de la Municipalidad de Escazú que se ausenten a una cita, o realicen la cancelación de la cita incumpliendo con lo indicado en el Artículo 26 de este reglamento, se les realizará el rebajo en planilla del costo de la cita que se paga al servicio de psicología.

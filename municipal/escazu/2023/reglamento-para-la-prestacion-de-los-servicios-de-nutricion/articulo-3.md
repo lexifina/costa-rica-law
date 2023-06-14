@@ -1,0 +1,1 @@
+Artículo 3º-Este reglamento será aplicable a todo el personal municipal (regulares, jornales ocasionales, personal de confianza, interinos y suplentes de la Municipalidad) que soliciten atención en el servicio de nutrición, medicina de empresa y psicología.

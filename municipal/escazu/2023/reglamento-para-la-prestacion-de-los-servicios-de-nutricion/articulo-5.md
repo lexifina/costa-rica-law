@@ -1,0 +1,1 @@
+Artículo 5. No se podrán recibir los servicios durante una incapacidad. De presentarse dicha situación, la persona trabajadora municipal deberá solicitar inmediatamente el cambio de la cita en la Gerencia de Recursos Humanos y Materiales.

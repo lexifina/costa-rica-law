@@ -1,0 +1,1 @@
+Artículo 8º-Las cancelaciones de las citas se deben realizar al menos con una hora de antelación. Para dicho caso, la coordinación deberá hacerse de manera exclusiva a través de la Gerencia de Recursos Humanos y Materiales.

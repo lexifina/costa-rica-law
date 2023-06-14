@@ -1,0 +1,1 @@
+Artículo 20.-Las personas trabajadoras de la Municipalidad de Escazú que se ausenten a una cita, o realicen la cancelación de la cita incumpliendo con lo indicado en los Artículos 17 y 18 de este Reglamento, se les aplicará el rebajo en planilla del costo de la cita que se paga al servicio de Nutrición.

@@ -1,0 +1,1 @@
+Artículo 6º-La persona trabajadora municipal con cita programada debe presentarse puntualmente en el consultorio donde se brinda el servicio. Después de 5 minutos de retraso no se atenderá y se tomará como una ausencia injustificada.
