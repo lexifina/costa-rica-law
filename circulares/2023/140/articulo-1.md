@@ -1,0 +1,9 @@
+CIRCULAR N° 140-2023
+ASUNTO: Reiteración de Circular Nº 30-2010: Deber de la Jefatura de velar porque la administración de datos procesados a través de tecnologías de información, se efectúe mediante sistemas debidamente aprobados por la Administración Superior y en concordancia con las normas que al efecto ha dictado la Contraloría General de la Republica.
+A LOS JEFES DE LAS OFICINAS DEL PODER JUDICIAL
+SE LES COMUNICA QUE:
+El Consejo Superior del Poder Judicial en sesión N° 48- 2023 celebrada el 8 de junio de 2023, artículo LXXI, dispuso, a solicitud de la Comisión de la Jurisdicción Penal, reiterar la circular Nº 30-2010 sobre el deber de la Jefatura de velar porque la administración de datos procesados a través de tecnologías de información, se efectúe mediante sistemas debidamente aprobados por la Administración Superior y en concordancia con las normas que al efecto ha dictado la Contraloría General de la República, que dice:
+"Que el Consejo Superior, en sesión N° 007-10, celebrada el 26 de enero del año en curso, artículo LIV, en cumplimiento de las normas técnicas para la gestión y control de las tecnologías de la información emitidas por la Contraloría General de la República, dispuso que en la administración de datos procesados por medio de tecnologías de información, están obligados a utilizar los sistemas establecidos y aprobados por el Departamento de Tecnología de la Información. Asimismo, deben asegurarse de que los datos sean procesados en forma completa, exacta y oportuna; y que sean transmitidos, almacenados y desechados en forma íntegra y segura, mediante transacciones válidas y debidamente autorizadas".
+De conformidad con la circular N° 67-09 emitida por la Secretaría de la Corte el 22 de junio de 2009, se le comunica que en virtud del principio de gratuidad que rige esta materia, la publicación está exenta de todo pago de derechos.
+Publíquese una sola vez en el Boletín Judicial."
+San José, 14 de junio de 2023.
