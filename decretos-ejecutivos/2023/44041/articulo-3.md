@@ -1,0 +1,1 @@
+Artículo 3.- Deróguese el artículo 43 del Decreto Ejecutivo No. 42075-S-MINAE del 12 de noviembre del 2019 "Reglamento para la disposición al subsuelo de aguas residuales ordinarias tratadas", publicado en el Alcance No. 87 a La Gaceta No. 80 del 14 de abril del 2020.
