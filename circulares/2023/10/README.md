@@ -13,3 +13,4 @@ Deber de los despachos y oficinas judiciales de realizar las comunicaciones a la
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-01-16 | la propia norma |
+| 2 | 2023-06-14 | Circular 135 (2023-06-14) |
