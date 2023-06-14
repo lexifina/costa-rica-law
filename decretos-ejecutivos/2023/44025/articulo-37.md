@@ -1,0 +1,1 @@
+Artículo 37.- Derogatoria. Deróguese el Decreto Ejecutivo No. 25068-8 del 21 de marzo de 1996, publicado en el Diario Oficial La Gaceta No. 78 del 24 de abril de 1996 y sus reformas "Reglamento del Servicio Social Obligatorio para los Profesionales en Ciencias de la Salud".

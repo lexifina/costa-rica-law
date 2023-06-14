@@ -1,0 +1,2 @@
+Artículo 19.- Prioridad de los costarricenses. Cuando no existan suficientes plazas para todos los aspirantes, los participantes costarricenses tendrán prioridad de sortear con respecto a los participantes extranjeros, aunque estos sean graduados o egresados de las facultades o escuelas de las universidades del país.
+Sin embargo, cuando se trate del sorteo de Servicio Social Obligatorio para médicos especialistas y subespecialistas, las plazas se distribuirán entre todos los aspirantes sin que exista prioridad entre nacionales y extranjeros.

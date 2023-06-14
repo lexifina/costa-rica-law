@@ -1,0 +1,1 @@
+Artículo 16.- Lista de Participantes. Solamente los profesionales interesados, que presenten su solicitud con los requisitos completos dentro del plazo estipulado que se indica en este reglamento y que hayan cumplido con los requisitos del Colegio Profesional respectivo, podrán ser incluidos en la lista de participantes al sorteo.

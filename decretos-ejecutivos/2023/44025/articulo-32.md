@@ -1,0 +1,1 @@
+Artículo 32.- Conflictos laborales. En caso de conflictos, en la parte laboral, durante la realización del Servicio Social Obligatorio, el profesional deberá acudir a la Dirección del Centro donde labora y con quien suscribió el contrato laboral, respetando los plazos establecidos por ley, para la resolución de este.

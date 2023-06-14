@@ -1,0 +1,3 @@
+CAPITULO VII
+DE LA PRESTACIÓN EFECTIVA DEL SERVICIO SOCIAL OBLIGATORIO
+Artículo 27.- Contratos laborales. Las instituciones deberán establecer contratos de trabajo con el profesional para las plazas de Servicio Social por el lapso de un año y la jornada laboral ordinaria no podrá ser menor de 8 horas diarias. El contrato de trabajo estará amparado a toda la normativa laboral de la institución que contrate al profesional en ciencias de la salud que realiza el servicio social obligatorio. Al finalizar el plazo del contrato, la relación laboral se tendrá por concluida, y se procederá a cancelar los extremos que en derecho correspondan.

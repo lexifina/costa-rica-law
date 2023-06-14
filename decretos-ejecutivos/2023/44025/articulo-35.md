@@ -1,0 +1,1 @@
+Artículo 35.- Constancia de conclusión. El director del establecimiento donde se ubica la plaza debe confeccionar de manera individual la constancia de conclusión del año de Servicio Social Obligatorio; según formulario "Constancia y Cumplimiento de Requisitos de Conclusión Servicio Social Obligatorio", contenido en el Anexo 1 de este reglamento.

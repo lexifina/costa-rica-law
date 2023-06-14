@@ -1,0 +1,1 @@
+Artículo 20.- Prioridad de plazas. Si el número de participantes fuere menor al número de plazas disponibles, la Comisión dará prioridad a las plazas de mayor necesidad, previa justificación de la institución oferente, siendo que el mismo número de plazas debe ser igual al número de participantes.

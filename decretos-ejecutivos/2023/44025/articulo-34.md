@@ -1,0 +1,1 @@
+Artículo 34.- No aprobación. En caso de que la entidad empleadora no apruebe el servicio social, debe enviar el caso a la comisión junto con toda la documentación que respalda su decisión. La comisión analizará la documentación junto con la prueba que pueda aportar la parte afectada y tomará la decisión de aprobar o improbar el cumplimiento de servicio social.

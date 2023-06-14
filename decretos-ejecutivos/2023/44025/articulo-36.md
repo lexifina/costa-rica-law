@@ -1,0 +1,1 @@
+Artículo 36.- Certificación de conclusión. El Ministerio de Salud, para cada caso, emitirá la certificación de conclusión del Servicio Social Obligatorio, la cual debe ser enviada al respectivo Colegio Profesional.

@@ -1,0 +1,1 @@
+Artículo 7.- Resoluciones. Las resoluciones de la Comisión se tomarán por mayoría simple de votos de los miembros presentes, en caso de empate la Presidencia tendrá doble voto. Las resoluciones de la Comisión serán apelables ante el Ministro de Salud, dentro de los cinco días hábiles posteriores a su notificación.

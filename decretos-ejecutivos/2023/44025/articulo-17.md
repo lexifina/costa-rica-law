@@ -1,0 +1,3 @@
+CAPITULO V
+DE LA REALIZACION DEL SORTEO
+Artículo 17.-Sorteo. El sorteo se realizará en el lugar, día y hora indicados, con la presencia de los miembros de la subcomisión respectiva, establecido en este Reglamento y los representantes de las Instituciones Públicas que aportan las respectivas plazas y, excepcionalmente, otras personas autorizadas de previo por la Comisión en calidad de observadores (sin voz ni voto). El sorteo deberá ser fiscalizado por el director de Asuntos Jurídicos del Ministerio de Salud, o por quien este delegue, en calidad de Asesor Legal de la Comisión, quien levantará acta del resultado.

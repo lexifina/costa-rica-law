@@ -1,0 +1,6 @@
+CAPITULO IV
+DE LOS TRÁMITES ADMINISTRATIVOS PREVIOS
+AL SORTEO DE PLAZAS
+Artículo 12.- Solicitud de Plazas. El Ministerio de Salud, por medio de la
+Dirección General de Salud, solicitará la lista de plazas de Servicio Social a las instituciones públicas que brindan servicios asistenciales en salud a la población, con cuarenta y cinco
+días naturales de anticipación a los sorteos ordinarios. Dichas instituciones tendrán diez días hábiles para enviar el listado de plazas para el sorteo indicando por escrito el número de código, el nombre de la sede, su ubicación y jornada. La Comisión verificará que las plazas de Servicio Social Obligatorio correspondan con lo establecido en este reglamento, caso contrario solicitará una justificación detallada a la institución respectiva. En el caso de que existan plazas disponibles para el sorteo, el Ministerio de Salud publicará un aviso, en la página web del Ministerio de Salud, con un mínimo de treinta días naturales de antelación al sorteo correspondiente. El aviso contendrá el anuncio del próximo sorteo, fecha, hora, lugar en que se efectuará, modalidad (presencial o virtual) y la fecha en que vence el plazo para que los aspirantes a la realización del Servicio Social Obligatorio, soliciten su inclusión en el sorteo.

@@ -1,0 +1,1 @@
+Transitorio II.- Los miembros de la Comisión de Servicio Social Obligatorio, que estén fungiendo como tales con anterioridad a la publicación del presente reglamento, continuarán en sus cargos hasta por tres meses más contados a partir de la entrada en vigencia del presente reglamento, mientras se tramitan las nuevas designaciones.
