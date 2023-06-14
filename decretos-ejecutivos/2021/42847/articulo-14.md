@@ -38,11 +38,13 @@ Requisitos específicos:
 a. Estar debidamente inscrito como Especialista en Cirugía General o Cirugía Pediátrica, ante el Colegio de Médicos y Cirujanos.
 b. Aprobación de un programa de estudios de posgrado (residencia médica) de dos (2) años en la Especialidad de Cirugía Cráneo maxilofacial, en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad.
 14.8. Especialidad Médica en Cirugía de Tórax y Cardiovascular.
-Se reconoce como sinónimo de esta Especialidad, el siguiente término: Cirugía
-Cardiovascular Torácica.
+Se reconoce como sinónimo de esta Especialidad, el siguiente término: Cirugía Cardiovascular Torácica.
 Requisitos específicos:
-a. Estar debidamente inscrito como Especialista en Cirugía General o Especialista en Cirugía Pediátrica, ante el Colegio de Médicos y Cirujanos.
-b. Aprobación de un programa de estudios de posgrado (residencia médica) de tres (3) años en la Especialidad de Cirugía de Tórax y Cardiovascular, en un Hospital de Tercer Nivel, perteneciente o adscrito a una Universidad. Este programa de estudios debe contemplar y garantizar rotaciones en adultos y niños.
+a. Estar debidamente inscrito como Médico y Cirujano en el Colegio de Médicos y Cirujanos.
+b. Aprobación de un programa de estudios de posgrado (residencia médica) de seis (6) años en la Especialidad de Cirugía de Tórax y Cardiovascular, en un Hospital de Tercer Nivel, perteneciente o adscrito a una Universidad.
+Este programa de estudios debe contemplar y garantizar rotaciones en adultos y niños.
+Podrán también solicitar la inscripción en esta Especialidad, aquellos Médicos Especialistas en Cirugía General, Cirugía Pediátrica, Cirugía Vascular o en Cirugía de Tórax General, ante el Colegio de Médicos y Cirujanos y que cumplan cola aprobación de un programa de estudios de posgrado (residencia médica) de tres (3) años en la Especialidad de Cirugía de Tórax y Cardiovascular, en un Hospital de Tercer Nivel, perteneciente o adscrito a una Universidad. Este programa de estudios debe contemplar y garantizar rotaciones en adultos y niños.
+(Así reformado el punto 14.8) anterior en sesión ordinaria 2023-06-14, celebrada el 14 de junio de 2023)
 14.9. Especialidad Médica en Cirugía General.
 Requisitos específicos:
 Aprobación de un programa de estudios de posgrado (residencia médica) de cuatro (4) años en la Especialidad de Cirugía General, en un Hospital de Tercer Nivel, Regional o Periférico perteneciente o adscrito a una Universidad.
