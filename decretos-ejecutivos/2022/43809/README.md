@@ -14,3 +14,4 @@ Categoría especial temporal para personas nacionales de Cuba, Nicaragua y Venez
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-03-01 | la propia norma |
+| 2 | 2023-06-15 | Decreto Ejecutivo 44133 (2023-06-15) |
