@@ -9,3 +9,11 @@ g) Imposibilidad Sobrevenida: Supuesto de extinción de las obligaciones que se 
 h) Jefe Inmediato: La persona funcionaria, ya sea por estructura organizacional o designación que funge como la jefatura directa e inmediata de la Tesorería Municipal, con las implicaciones, funciones, responsabilidades y deberes que representa.
 i) Reintegro: Es el reembolso al fondo de Caja Chica de los dineros erogados y utilizados en la compra de bienes, servicios y adelanto de viáticos, amparados en comprobantes.
 j) Saldo Operativo: Es aquel que está determinado por el saldo real, que se refleja en el sistema presupuestario institucional.
+Gasto menor: Por gasto menor se entenderá aquellos gastos como por ejemplo viáticos y gastos de representación o los que no superen el monto establecido en este reglamento para el mecanismo de vale de caja chica.
+(Así adicionado la definición anterior mediante publicación en La Gaceta N° 107 del 15 de junio del 2023)
+Indispensable: Que es necesario que se dé para cumplir con un objetivo, una meta, atender una emergencia o mantener algún servicio municipal.
+(Así adicionado la definición anterior mediante publicación en La Gaceta N° 107 del 15 de junio del 2023)
+Impostergable: Ante la necesidad de lo que se contrata o pretende no se puede aplazar en el tiempo ya que puede incurrir en daños mayores a la administración.
+(Así adicionado la definición anterior mediante publicación en La Gaceta N° 107 del 15 de junio del 2023)
+Costo beneficio: Es un análisis de las decisiones que debe tomar la administración para cumplir con sus objetivos en el cual puede decir si una inversión vale la pena o no, tomando en cuenta el costo administrativo del proceso ordinario como tal.
+(Así adicionado la definición anterior mediante publicación en La Gaceta N° 107 del 15 de junio del 2023)

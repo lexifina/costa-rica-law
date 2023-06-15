@@ -1,8 +1,8 @@
-Artículo 8º-La compra de bienes y/o servicios se tramitará por el fondo de caja chica, se podrá adquirir bienes y servicios, además de los viáticos y gastos de representación, solamente cuando se den las siguientes condiciones:
-a) Si en la bodega municipal no hay existencia del bien que se solicita.
-b) Si ninguna dependencia o funcionario de la Municipalidad, según sus funciones está en la posibilidad de prestar el servicio o bien de que se trate.
-c) Si el bien o servicio son tan indispensables y de urgencia que se justifique su pago fuera de los trámites ordinarios de contratación administrativa.
-Se comprenderá que median razones de urgencia cuando la necesidad del bien o servicio surgió como resultado de una situación imprevisible, que aún con un adecuado sistema de planificación era imposible de prever.
-Será la jefatura que autoriza el uso del procedimiento de caja chica la responsable de verificar que se está en una situación de urgencia.
-En casos excepcionales, cuando medie discrepancia entre la jefatura que autorizó el uso del procedimiento y la tesorería municipal en cuanto a las razones de urgencia, la tesorería podrá requerir una justificación escrita; de persistir la discrepancia, la misma deberá elevarse ante él la Alcaldía Municipal, quien resolverá, en definitiva, siempre con ajuste a lo dispuesto por este reglamento y legislación aplicable.
-d) De conformidad con la Ley General de Contratación Pública y su Reglamento, se exceptúan de los procedimientos ordinarios las compras que sean consideradas gastos menores, indispensables e impostergables, siempre que estos no excedan el monto previsto para ley aplicable. Se entenderá que esta excepción resulta aplicable únicamente para la contratación de bienes, obras y servicios, cuya solución sea impostergable y que no corresponda a gastos que sean susceptibles de ser planificados.
+Artículo 8°-La compra de bienes y/o servicios se tramitará por el fondo de caja chica, se podrá adquirir bienes, obras y servicios, además de los viáticos y gastos de representación, solamente cuando se den las siguientes condiciones:
+a) La solución sea indispensable e impostergable.
+b) La adquisición no resulte más onerosa que el procedimiento ordinario de contratación.
+c) Se acredite el costo beneficio para la Administración.
+d) No haya fragmentación.
+De no cumplir con los supuestos indicados en los incisos anteriores, se deberán aplicar los procedimientos ordinarios previstos en la Ley General de Contratación Pública.
+Las compras a través de Caja Chica deberán quedar debidamente registradas en el sistema digital unificado, dejando constancia de la totalidad de la documentación generada en relación con la compra realizada, facilitando que dicha actuación pueda ser conocida por cualquier interesado; asimismo, éstas se realizarán respetando toda regulación institucional y general vigente al momento de efectuarse la compra.
+(Así reformado mediante publicación en La Gaceta N° 107 del 16 de junio del 2023)

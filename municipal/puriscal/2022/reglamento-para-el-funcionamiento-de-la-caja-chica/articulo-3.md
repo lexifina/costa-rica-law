@@ -1,2 +1,3 @@
-Artículo 3º-Se establece un fondo fijo de Caja Chica de ¢2,000,000.00 (Dos millones de colones) cuyo monto aumentará el primer trimestre de cada año mediante resolución administrativa motivada y emitida por la Tesorería Municipal, y se hará de conocimiento a la Alcaldía y al Concejo Municipal.
-Dicho monto no podrá exceder el 0.06% de los ingresos reales corrientes del año anterior. Excepcionalmente podrá aumentarse el fondo de caja chica por encima del porcentaje antes indicado, previa aprobación del Concejo Municipal.
+Artículo 3°-Se establece un fondo fijo de Caja Chica de ¢13.350.000,00 (trece millones trescientos cincuenta mil colones) cuyo monto se ajustará el primer trimestre de cada año mediante resolución administrativa motivada y emitida por la Tesorería Municipal, y se hará de conocimiento a la Alcaldía y al Concejo Municipal.
+Dicho monto no podrá exceder el 0.7% de los ingresos reales corrientes del año anterior. Excepcionalmente podrá aumentarse el fondo de caja chica por encima del porcentaje antes indicado, previa aprobación del Concejo Municipal.133
+(Así reformado mediante publicación en La Gaceta N° 107 del 15 de junio del 2023)
