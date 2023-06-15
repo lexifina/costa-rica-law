@@ -1,0 +1,3 @@
+Artículo 21.-Sobre daños o pérdidas de un instrumento musical en préstamo.
+En caso de daño, pérdida, robo o hurto del instrumento musical en préstamo, el padre de familia o representante legal a cargo del/la estudiante, asumirá la responsabilidad del caso, cancelando el monto establecido en la letra de cambio firmada o reponiendo el instrumento musical por otro de las mismas características, condiciones y valor para lo cual de previo deberá contar con el visto bueno y por escrito de la Administración. En caso de robo o hurto del instrumento, deberá presentar una copia de la denuncia realizada a las autoridades pertinentes.
+"Los instrumentos musicales deberán ser asegurados por la Escuela de Música, en forma previa a otorgarlos en préstamos."

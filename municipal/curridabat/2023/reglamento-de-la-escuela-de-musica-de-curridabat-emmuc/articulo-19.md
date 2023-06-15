@@ -1,0 +1,3 @@
+Artículo 19.-Sobre la exoneración del pago.
+Se podrá valorar la exoneración del pago de la mensualidad para aquellas personas que realicen una solicitud formal escrita y firmada, dirigida a la Administración de la EMMUC indicando toda la información pertinente que justifique el análisis del caso y donde se adjunte la evidencia correspondiente.
+Durante el proceso de análisis de los casos laAdministración podrá solicitar epicrisis, estudios socioeconómicos, dictámenes médicos y/o cualquier otro documento adicional que fundamente el beneficio. Los trámites y costos que puedan requerirse para cumplir con estos requisitos no son responsabilidad de la Administración y correrán por cuenta del interesado.

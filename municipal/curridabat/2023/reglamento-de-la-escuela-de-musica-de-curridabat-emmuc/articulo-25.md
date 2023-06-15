@@ -1,0 +1,2 @@
+Artículo 25.-Ausencias por daños a instrumentos musicales.
+En caso de que el instrumento musical de un estudiante sufra un daño que no le permita continuar con sus lecciones, deberá informar a la Administración quien evaluará la situación, revisando el instrumento y determinando un plazo máximo para que el estudiante pueda repararlo y continuar con su proceso de formación sin verse afectado su espacio. En caso de que no se subsane la situación en el período indicado, las lecciones a las que se ausente contarán como ausencias injustificadas.

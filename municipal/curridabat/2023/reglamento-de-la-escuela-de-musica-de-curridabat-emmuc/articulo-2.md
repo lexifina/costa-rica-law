@@ -1,0 +1,3 @@
+Artículo 2º-Alcance y Objeto.
+El ámbito de aplicación del presente documento es para la EMMUC y la comunidad de Curridabat, tanto en su sede central, como en cualquier filial, centro, inmueble u otro espacio que se ejecute bajo su gestión, sea de manera presencial, virtual o híbrida. El objeto del reglamento es regular los derechos y deberes del estudiantado con el fin de promover la sana convivencia en un ambiente de respeto para todas las partes: la población estudiantil, el personal docente, la administración y los responsables del estudiantado que participen en los procesos de enseñanza-aprendizaje.
+El ingreso a la EMMUC o a cualquiera de sus programas en otras filiales o sedes, supone la aceptación de esta normativa de Régimen Interno.

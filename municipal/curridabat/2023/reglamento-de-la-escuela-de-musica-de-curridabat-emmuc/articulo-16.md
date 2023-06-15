@@ -1,0 +1,2 @@
+Artículo 16.-Sobre el lugar para impartir los cursos.
+La EMMUC tendrá su sede principal en el Centro Cultural en Curridabat, sin embargo, se podrá contar con otras filiales en cualquiera de los demás inmuebles administrados por la Municipalidad; o bien, se podrán ofrecer talleres, clases u otras actividades en cualquier otro espacio público del cantón de acuerdo con la agenda establecida por la administración. A su vez la EMMUC trabajará en las modalidades virtuales, presenciales o híbridas según sea el caso.

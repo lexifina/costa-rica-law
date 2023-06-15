@@ -1,0 +1,2 @@
+Artículo 27.-Primer abordaje.
+En congruencia con la visión del proceso de enseñanza y aprendizaje, la primera medida de abordaje de la EMMUC ante situaciones, conductas y comportamientos inadecuados siempre será El diálogo y la comunicación asertiva en primera instancia entre el personal Administrativo y la persona estudiante, quien en caso de ser menor de edad deberá ser acompañada de sus padres de familia o representante legal. Si la situación persiste se aplicará lo estipulado en el artículo 29.
