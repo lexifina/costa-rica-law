@@ -1,1 +1,0 @@
-Artículo 16.—Obligación: Una vez establecida la necesidad de contar con la disponibilidad en un puesto y suscrito el contrato correspondiente entre la Municipalidad y el servidor, éste queda obligado a prestar el servicio en el momento en que sea requerido, en el lugar o jurisdicción que se especifique.

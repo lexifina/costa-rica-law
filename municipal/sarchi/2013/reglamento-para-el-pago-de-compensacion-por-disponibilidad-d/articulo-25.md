@@ -1,1 +1,0 @@
-Artículo 25.—Posibilidad de asignación de turnos: La Municipalidad podrá establecer roles o turnos que garanticen que no se afectará el servicio público en caso de necesidad o urgencia y a la vez considerar la posibilidad de que los servidores que ocupan puestos que requieren de disponibilidad puedan disfrutar de días feriados o asuetos.

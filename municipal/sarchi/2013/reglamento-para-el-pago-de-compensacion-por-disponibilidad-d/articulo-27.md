@@ -1,1 +1,0 @@
-Artículo 27. —Las compensaciones salariales que se otorgan con el contrato de dedicación exclusiva o disponibilidad deberán ser incluidas en la disposición presupuestaria más cercana y empezará a regir desde el momento en que la erogación esté debidamente aprobada.

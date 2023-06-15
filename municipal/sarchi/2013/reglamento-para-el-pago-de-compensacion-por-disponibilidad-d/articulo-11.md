@@ -1,1 +1,0 @@
-Artículo 11.—Horas extraordinarias. Al servidor municipal, que se encuentre sometido al régimen de disponibilidad y sea requerido para presentarse a realizar alguna actuación propia de sus funciones fuera del horario municipal, no se le pagarán horas extras por encontrarse incluido dentro de la compensación de la disponibilidad.
