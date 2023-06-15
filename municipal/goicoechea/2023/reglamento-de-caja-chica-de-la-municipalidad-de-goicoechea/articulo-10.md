@@ -1,0 +1,1 @@
+Artículo 10.-Bajo casos de excepción, valoradas y autorizadas únicamente por la persona titular de la Acaldía Municipal o a quien esta designe formalmente, puede tramitarse comprobante de Caja Chica, en fecha posterior a la factura, donde valorará los hechos y la justificación que se emita para tal fin previo a rubricar la autorización.
