@@ -1,1 +1,0 @@
-Artículo 81.—Cuando el resultado de la evaluación y calificación de servicios anual del servidor(a) sea de Regular dos veces consecutivas, el hecho se considerará falta grave y se actuará conforme a lo establecido en este reglamento.

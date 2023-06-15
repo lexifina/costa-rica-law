@@ -1,1 +1,0 @@
-Artículo 13.—Los expedientes del personal deberán contener todos aquellos documentos y datos que sirvan para determinar el historial de la relación de servicio y será responsabilidad del funcionario actualizar el suyo.

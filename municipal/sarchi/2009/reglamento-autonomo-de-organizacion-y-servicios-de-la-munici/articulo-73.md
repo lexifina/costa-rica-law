@@ -1,1 +1,0 @@
-Artículo 73.—Cualquier procedimiento no contemplado en el presente capítulo se regulara según corresponda, por las normas establecidas en los reglamentos internos o externos con excepción de la materia sancionadora.

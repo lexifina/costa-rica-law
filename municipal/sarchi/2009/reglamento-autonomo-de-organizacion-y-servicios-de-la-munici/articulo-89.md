@@ -1,1 +1,0 @@
-Artículo 89.—Solo se retribuirá el recargo de funciones cuando sea por períodos mayores de un mes y se pagará con fundamento en la diferencia existente entre el salario base del puesto que ocupa el funcionario(a) y el salario base del puesto con recargo.

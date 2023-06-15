@@ -1,1 +1,0 @@
-Artículo 57.—La funcionaria que esté en periodo de incapacidad por maternidad no podrá ser elegida para participar en actividades de capacitación o formación durante el lapso de la incapacidad por maternidad.

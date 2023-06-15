@@ -1,1 +1,0 @@
-Artículo 70.—El departamento de Recursos Humanos analizará si la actividad propuesta responde a la programación establecida, y si el funcionario seleccionado reúne los requisitos que este departamento establezca para la aceptación de su participación.

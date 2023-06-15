@@ -1,1 +1,0 @@
-Artículo 126.—En las actividades de trabajo donde la prestación de servicios debe comprender las veinticuatro horas del día, los servidores (as) estarán en la obligación de rotar en los distintos turnos en que se dividan las veinticuatro horas, de acuerdo con los horarios que se establezcan.

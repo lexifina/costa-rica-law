@@ -1,1 +1,0 @@
-Artículo 48.—Quedan protegidos por el Código Municipal y este Reglamento todos los trabajadores de la Municipalidad nombrados con base en el sistema de selección por mérito, garantes de las responsabilidades derivadas de tal acto y renumerados por el presupuesto de la Municipalidad.

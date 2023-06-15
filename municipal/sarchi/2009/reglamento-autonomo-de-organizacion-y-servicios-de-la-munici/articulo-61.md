@@ -1,1 +1,0 @@
-Artículo 61.—La Municipalidad podrá otorgar becas a sus funcionarios para la participación en actividades de capacitación o formación según la programación establecida como incentivo y por la disponibilidad presupuestaria.

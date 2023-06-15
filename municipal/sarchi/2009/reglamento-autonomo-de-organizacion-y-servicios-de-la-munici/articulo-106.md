@@ -1,1 +1,0 @@
-Artículo 106.—La Municipalidad debe propiciar las facilidades necesarias con el fin de que todos los servidores(as), sin discriminación alguna, puedan capacitarse y superarse en el desempeño de sus puestos.

@@ -1,1 +1,0 @@
-Artículo 134.—Salvo los casos previstos en este Reglamento, la omisión de una marca en la tarjeta a la hora de entrada o de salida, hará presumir la inasistencia a la correspondiente fracción de jornada, salvo justificación del trabajador a más tardar el día siguiente al hecho, que deberá ser autorizada por el superior inmediato.

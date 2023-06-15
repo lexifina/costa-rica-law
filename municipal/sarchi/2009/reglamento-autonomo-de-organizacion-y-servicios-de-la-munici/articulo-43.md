@@ -1,1 +1,0 @@
-Artículo 43.—Todo funcionario(a) de la Municipalidad deberá pasar satisfactoriamente un periodo de prueba de hasta tres meses de servicio, contados a partir de la fecha de vigencia del acuerdo de su nombramiento.

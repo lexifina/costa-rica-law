@@ -1,1 +1,0 @@
-Artículo 29.—Al funcionario(a) que se demuestre haber estado utilizando su tiempo en actividades fuera de las encomendadas se le sancionará con una llamada de atención verbal cuando sea por primera vez, y si reincide se procederá conforme lo establecido en el artículo 159 inciso 4) de este reglamento.

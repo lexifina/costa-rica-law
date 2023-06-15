@@ -1,1 +1,0 @@
-Artículo 60.—Aquellos empleados contratados interinamente, podrán recibir capacitación para mejorar su trabajo, previa solicitud escrita de la jefatura respectiva y la autorización del Departamento de Recursos Humanos

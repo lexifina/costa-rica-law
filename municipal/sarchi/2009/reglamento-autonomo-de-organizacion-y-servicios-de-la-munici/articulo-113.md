@@ -1,2 +1,0 @@
-Artículo 113.—Del total que le corresponde, el servidor(a) deberá disfrutar al menos de quince días hábiles cada año, período que es incompensable.
-Cuando el servidor(a) lo solicite, la Municipalidad lo acepta por razones de conveniencia institucional y exista disponibilidad presupuestaria, se podrá compensar económicamente el resto de las vacaciones a que tiene derecho el servidor(a) en forma total o parcial.

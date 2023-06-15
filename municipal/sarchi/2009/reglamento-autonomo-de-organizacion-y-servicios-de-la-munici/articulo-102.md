@@ -1,1 +1,0 @@
-Artículo 102.—Los servidores que fumen deberán hacerlo durante sus tiempos de descanso, o durante el período de almuerzo. Queda bajo la supervisión del jefe inmediato el hecho de que los funcionarios no tomen más tiempo para el fumado, que el establecido.
