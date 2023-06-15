@@ -1,0 +1,2 @@
+Artículo 502. Procedimiento ante la aduana. El exportador, además de cumplir con los requisitos establecidos en el artículo 106 del CAUCA IV, deberá presentar gestión ante la aduana de control, indicando las causas que motivan la devolución de las mercancías.
+Una vez autorizada, el procedimiento de despacho de las mercancías reimportadas, se efectuará de acuerdo con los procedimientos establecidos para el régimen de importación definitiva. No obstante, en todos los casos las mercancías serán objeto de reconocimiento físico.

@@ -1,0 +1,2 @@
+Artículo 392. Separación y liberación de las mercancías de entrega rápida. La autoridad aduanera autorizará a las empresas de entrega rápida las operaciones de separación y liberación de los envíos en áreas ubicadas en zonas bajo control aduanero, debiendo para tal efecto mantener equipo de cómputo con las interconexiones necesarias al sistema informático del Servicio Aduanero.
+La autoridad aduanera según criterios de riesgo podrá asignar funcionarios aduaneros en forma permanente o acudir cuando sea necesario a dichos lugares.

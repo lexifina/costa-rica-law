@@ -1,0 +1,1 @@
+Artículo 407. Declaración aduanera. La declaración aduanera de oficio se realizará en los formatos que establezca la Dirección General, con indicación de la descripción de las mercancías, sus cantidades, precio y la finalidad u objeto de su importación.

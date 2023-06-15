@@ -1,0 +1,1 @@
+Artículo 258. Factura para diferentes embarques o despachos parciales. Cuando la factura comercial ampare dos o más embarques y que ingresen en diferentes fechas, a las subsiguientes declaraciones de mercancías deberá consignarse el número de la primera declaración aduanera.

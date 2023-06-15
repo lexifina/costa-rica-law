@@ -1,0 +1,3 @@
+Artículo 398. Plazo para despachar envíos de cuantía de minimis y envíos sujetos al pago de tributos. La empresa de entrega rápida o courier contará con un plazo de seis horas, posteriores a la recepción de la unidad de transporte en las instalaciones habilitadas para la separación de los envíos y presentar la declaración de mercancías simplificada.
+De no presentar dicha declaración en el plazo indicado, la empresa de entrega rápida o courier deberá trasladar las mercancías al depósito temporal o al régimen de depósito aduanero.
+En los casos en que las mercancías no fueron entregadas al depositario aduanero o temporal, la empresa de entrega rápida deberá responder por las obligaciones tributarias y las sanciones respectivas.

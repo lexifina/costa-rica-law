@@ -1,0 +1,2 @@
+Artículo 541. Ejecución de la garantía. Una vez agotada la vía administrativa o incumplida la condición a la que se sujeta el régimen correspondiente, se procederá, a ejecutar la garantía rendida ante el Servicio Aduanero en la forma y plazos de acuerdo al tipo de garantía de que se trate.
+Cuando la emisión del acto resolutivo fuera de los plazos establecidos haya suspendido el cómputo de los intereses, en la ejecución de dicha garantía deberá deducirse el monto de intereses que corresponda al plazo excedido.

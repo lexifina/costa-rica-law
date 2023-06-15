@@ -1,0 +1,7 @@
+Artículo 60. Dispositivos de seguridad de las unidades de transporte. Las unidades de transporte que se movilicen dentro del territorio nacional con mercancías bajo control aduanero, deberán utilizar dispositivos de seguridad, de acuerdo con los criterios de riesgo, que garanticen condiciones de seguridad de las mercancías y el cumplimiento de las normas reguladoras de esas movilizaciones.
+Cuando se utilicen dispositivos de seguridad, éstos deberán contar con las siguientes características:
+a) Permitir la localización y monitoreo de las unidades que transportan mercancías por las rutas autorizadas, en todo momento que se requiera.
+b) Contar con medios de comunicación inalámbrica que permitan enlazarse al sistema de monitoreo del Servicio Nacional de Aduanas, para intercambiar información sobre la salida, movilización y llegada de las unidades ele transporte a las ubicaciones autorizadas por medio de dispositivos de seguridad.
+c) Contar con capacidad de procesamiento y almacenamiento de in formación para identificar la unidad de transpo1te movilizada y registrar los datos asociados a esa movilización y manejar adecuadamente los eventos que se presenten.
+d) Contar con sensores que permitan la detección de eventos como la apertura del cerrojo y el movimiento del dispositivo.
+e) Contar con alimentación de energía propia que permita controlar una unidad de transporte por un plazo de 20 días hábiles.

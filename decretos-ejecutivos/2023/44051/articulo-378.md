@@ -1,0 +1,1 @@
+Artículo 378. Exclusión. En ningún caso se comprenderá a los vehículos corno parte del menaje de casa, ni la maquinaria, equipos, herramientas, o accesorios para oficinas, laboratorios, consultorios, fábricas, talleres o establecimientos similares.

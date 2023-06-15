@@ -1,0 +1,1 @@
+Artículo 109. Del ingreso y salida de mercancías. Para el ingreso de las mercancías en las tiendas libres, se presentará la declaración de mercancías que en su caso corresponda conforme a los artículos 246 y 247 de este Reglamento; y para la salida de las mercancías de dichos locales se comprobará con las facturas expedidas a las personas a quienes se vendan.

@@ -1,0 +1,4 @@
+Artículo 399. Despacho de correspondencia y documentos. El despacho de los envíos de correspondencia y documentos, se realizará con la información consignada en el manifiesto de entrega rápida, una vez que se haya realizado la separación de manifiesto y aplicado los criterios de riesgo.
+Para ello, la empresa de entrega rápida transmitirá en el manifiesto de entrega rápida, un único conocimiento de embarque (guía hija) que amparará todos los documentos y correspondencia, con indicación de la cantidad de bultos, peso bruto expresado en kilogramos y demás información detallada en el artículo 394 de este Reglamento.
+La empresa de entrega rápida podrá realizar el despacho de estas mercancías, una vez que ingresen a las instalaciones autorizadas, y se transmita el mensaje requerido para tal efecto.
+Si el manifiesto de entrega rápida no indica que se trata de esa clase de mercancías, éstas deberán ser trasladadas al régimen de depósito fiscal.

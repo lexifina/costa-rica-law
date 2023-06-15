@@ -1,0 +1,1 @@
+Artículo 50. Exclusividad de la representación. Los asistentes de agentes de aduana sólo podrán trabajar para un único agente aduanero, persona física o jurídica, quien los acreditará ante el Servicio Nacional de Aduanas.

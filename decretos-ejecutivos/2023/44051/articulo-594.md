@@ -1,0 +1,1 @@
+Artículo 594. Disposiciones administrativas. La Dirección General desarrollará y publicará los procedimientos relativos a las normas establecidas en este Reglamento, para las gestiones, los trámites, operaciones, regímenes y actividades a que se someterán las mercancías, personas, vehículos y unidades de transporte ante el Servicio Nacional de Aduanas.

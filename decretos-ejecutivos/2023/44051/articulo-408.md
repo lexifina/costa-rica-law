@@ -1,0 +1,4 @@
+SECCIÓN VII
+MUESTRAS SIN VALOR COMERCIAL
+Artículo 408. Despacho y procedimiento ante la aduana. Si las mercancías son declaradas como muestras sin valor comercial a su ingreso, una vez que la aduana las reciba, determinará si procede considerarlas como muestras sin valor comercial y tramitará de oficio la declaración aduanera, donde consignará la partida arancelaria y el código estadístico correspondiente.
+Cuando la aduana determine dentro del plazo de veinticuatro horas siguientes a la presentación de los documentos señalados en el artículo 409 de este Reglamento que las mercancías presentadas a despacho, no constituyen muestras sin valor comercial, las pondrá bajo su control y notificará al interesado a efecto de que solicite, dentro del plazo establecido en el artículo 543 inciso b) de este Reglamento, otra destinación para las mercancías, sin perjuicio de las sanciones aplicables.

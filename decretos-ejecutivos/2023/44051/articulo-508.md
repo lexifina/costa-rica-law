@@ -1,0 +1,3 @@
+Artículo 508. Verificación inmediata de las mercancías. La declaración de mercancías de reexportación quedará sujeta a la verificación inmediata. La autoridad aduanera que realice dicha verificación comprobará el cumplimiento de los requisitos establecidos para los regímenes aduaneros suspensivos y lo que al efecto establece este capítulo.
+La verificación física, se podrá efectuar en la planta procesadora o industrial donde se efectúe la carga y embalaje de las mercancías o el lugar designado por la aduana de partida de las mercancías.
+Encontrándose conforme la declaración con las mercancías presentadas a despacho. Se autorizará su salida y se procederá al registro de la operación para los efectos correspondientes.

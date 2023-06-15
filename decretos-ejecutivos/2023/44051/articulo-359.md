@@ -1,0 +1,1 @@
+Artículo 359. Reconocimiento físico en instalaciones del exportador habitual. El Servicio Aduanero podrá autorizar, previa solicitud del exportador habitual, que el reconocimiento físico se efectúe en las instalaciones de éste, o en la planta procesadora o industrial donde se realice el embalaje y carga de las mercancías.

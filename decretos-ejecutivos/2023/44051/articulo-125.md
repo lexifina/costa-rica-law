@@ -1,0 +1,3 @@
+Artículo 125. Revocación de la autorización. Cuando termine la relación laboral con el poderdante o éste revoque el poder otorgado, el poderdante deberá gestionar ante la Dirección General de Aduanas la revocación de la autorización del apoderado especial aduanero.
+Para tales efectos, el poderdante debe tramitar la gestión ante la Dirección General, la cual debe contener los datos relativos a la revocación y desinscripción del poder, para su verificación en el Registro Nacional por pa1te de la autoridad aduanera.
+Realizada la verificación anterior, la Dirección General resolverá la gestión dentro del plazo de diez días hábiles, y procederá a la inhabilitación del código de acceso del apoderado especial aduanero al sistema informático del Servicio Aduanero.

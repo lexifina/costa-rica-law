@@ -1,0 +1,1 @@
+Artículo 584. Remisión del expediente de la actuación fiscalizadora. Una vez notificada la resolución de inicio del procedimiento administrativo ordinario y concluida la fose de instrucción, y listo el expediente para su decisión final, conforme lo establecido en la ley, el órgano fiscalizador remitirá el expediente a la Dirección Normativa dentro del plazo de diez días hábiles.

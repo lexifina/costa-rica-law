@@ -1,0 +1,1 @@
+Artículo 229. Desistimiento expreso. El interesado podrá desistir en cualquier momento de su gestión, comunicándolo oportunamente a la Dirección General. Sin embargo, si ésta última lo considera necesario, podrá emitir una resolución general que aclare el tema objeto de la gestión de consulta desistida.

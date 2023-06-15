@@ -1,0 +1,1 @@
+Artículo 313. Solicitud para actividades permitidas. La solicitud para realizar actividades permitidas dentro del depósito aduanero, deberá ser transmitida electrónicamente por el consignatario o su representante ante la aduana de control.

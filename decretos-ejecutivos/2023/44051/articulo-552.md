@@ -1,0 +1,1 @@
+Artículo 552. Medidas para asegurar el cumplimiento de la normativa. La autoridad aduanera tomará las medidas necesarias para garantizar que la concurrencia de los oferentes en el remate electrónico, se efectúe conforme la normativa y los procedimientos administrativos vigentes.

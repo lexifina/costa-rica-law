@@ -1,0 +1,1 @@
+Artículo 270. Mercancías peligrosas y perecederas. Tendrán prioridad los despachos de mercancías peligrosas, tales como: explosivas, inflamables, corrosivas, contaminantes y radiactivas; así como, perecederas o de fácil descomposición; y otras que a juicio de la autoridad aduanera lo ameriten.

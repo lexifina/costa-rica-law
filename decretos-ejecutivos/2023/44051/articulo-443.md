@@ -1,0 +1,2 @@
+Artículo 443. Identificación de mercancías. El Servicio Aduanero podrá autorizar la importación temporal cuando sea posible identificar las mercancías, mediante marcas, números,· sellos, medidas u otras características especiales.
+Si las mercancías no son plenamente ·identificables, la autoridad aduanera ordenará al declarante la adopción de las medidas que estime necesarias para asegurar su identificación y el control de su utilización.

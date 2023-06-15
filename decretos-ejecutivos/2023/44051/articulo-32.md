@@ -1,0 +1,1 @@
+Artículo 32. Coadyuvancia con la autoridad aduanera. Los auxiliares están en la obligación de coadyuvar con la autoridad aduanera para el esclarecimiento de cualquier infracción o delito cometido en perjuicio del fisco y comunicar a la autoridad aduanera, por los medios que se dispongan para tal fin, cualquier sospecha de infracción o cielito del que tengan conocimiento.

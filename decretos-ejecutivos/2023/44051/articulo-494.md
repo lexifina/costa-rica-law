@@ -1,0 +1,1 @@
+Artículo 494. Habilitación de bodegas o locales. Las empresas responsables de los vehículos que habitualmente ingresen al territorio aduanero mercancías como provisiones de a bordo, podrán mantener bodegas, o locales destinados al depósito de esas mercancías, para lo cual deberán estar en todo momento bajo control aduanero, previa habilitación por parte del Servicio Aduanero.

@@ -1,0 +1,1 @@
+Artículo 391. Transporte de mercancías de entrega rápida en aeronaves propias. En el caso de empresas de entrega rápida o courier que transporten envíos de entrega rápida, así como carga general, en aeronaves de su propiedad, dada la doble función que cumplen, deberán presentar el manifiesto de carga además del manifiesto de entrega rápida.

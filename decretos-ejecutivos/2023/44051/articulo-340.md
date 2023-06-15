@@ -1,0 +1,1 @@
+Artículo 340. Conservación de documentos. De conformidad con el artículo 87 del CAUCA IV y 355 de su Reglamento, la declaración y los documentos que la sustentan, deberán ser conservados durante el plazo de cinco años a partir de la fecha de aceptación de la declaración de mercancías, según lo dispuesto en este Reglamento.

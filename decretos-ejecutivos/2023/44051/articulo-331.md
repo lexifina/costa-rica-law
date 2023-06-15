@@ -1,0 +1,1 @@
+Artículo 331. Devolución de muestras. La muestra será devuelta al interesado sin menoscabo de ella, salvo que producto del análisis a que fuere sometida resultare consumida o destruida totalmente. La Autoridad Aduanera mantendrá la muestra en su poder por el plazo necesario para realizar su análisis.

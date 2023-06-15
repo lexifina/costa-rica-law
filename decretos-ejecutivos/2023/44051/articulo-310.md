@@ -1,0 +1,2 @@
+Artículo 310. Remisión de oficio a un depósito. Por razones de control aduanero o de seguridad fiscal, la autoridad aduanera podrá ordenar de oficio el traslado de mercancías a determinado depósito aduanero.
+Para esos efectos, la aduana correspondiente, en coordinación con los depositarios aduaneros, establecerá un plan de distribución rotativa y porcentual a los distintos depósitos aduaneros, tomando en consideración el tipo de depósito y las características de las mercancías, asumiendo los costos el titular de las mercancías o quien demuestre mejor derecho.

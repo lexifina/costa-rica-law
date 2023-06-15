@@ -1,0 +1,1 @@
+Artículo 405. Trámite prioritario. Previa verificación de la documentación aportada por la empresa transportista y autorización del Ministerio de Salud Pública u otra autoridad competente, la autoridad aduanera sin ulterior procedimiento, autorizará la entrega de los restos humanos a la empresa funeraria correspondiente.

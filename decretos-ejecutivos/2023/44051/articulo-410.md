@@ -1,0 +1,2 @@
+Artículo 410. Documento de transporte. Cuando en un mismo documento de transporte se consignen muestras sin valor comercial junto con otras mercancías con carácter
+Artículo 410. Documento de transporte. Cuando en un mismo documento de transporte se consignen muestras sin valor comercial junto con otras mercancías con carácter comercial, el importador podrá separar las muestras sin valor comercial para someterlas al proceso de despacho a que se refiere la presente Sección.

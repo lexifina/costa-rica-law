@@ -1,0 +1,4 @@
+Artículo 562. Adjudicación de las mercancías. Se adjudicarán oficialmente las mercancías al primer mejor oferente, es decir, quien haya propuesto la oferta económica más alta y cumplido con todos los requisitos arancelarios y no arancelarios, así como los deberes tributarios y patronales.
+Todo oferente que desee participar en el remate electrónico de las mercancías, deberá cancelar de forma previa una suma equivalente al veinticinco por ciento (25%) del precio base de éstas, en la cuenta que la Administración disponga al efecto.
+En caso que el primer mejor oferente incumpla alguna de sus obligaciones, se seleccionará al segundo o tercer mejor oferente, según cumpla con lo señalado en los párrafos anteriores.
+Una vez concluido el remate se revelará la identidad de los oferentes y adjudicatario.

@@ -1,0 +1,1 @@
+Artículo 397. Declaración aduanera simplificada anticipada. La declaración simplificada podrá ser presentada en forma anticipada al arribo del vehículo al puerto, una vez que esté presentado el manifiesto de carga general y el manifiesto de entrega rápida.

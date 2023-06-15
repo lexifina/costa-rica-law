@@ -1,0 +1,1 @@
+Artículo 177. Inspección y registro. Una vez que la aduana haya recibido la transmisión del manifiesto de carga, comunicará al transportista si realizara la inspección a los vehículos que ingresen al territorio nacional, de conformidad con los criterios de riesgo y control y fiscalización.

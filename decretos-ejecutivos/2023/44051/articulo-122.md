@@ -1,0 +1,2 @@
+Artículo 122. Garantía. Ninguna persona será autorizada, reconocida, ni podrá ejercer la actividad aduanera ante el Servicio Aduanero como apoderado especial aduanero, si la persona jurídica que la propuso no ha garantizado su responsabilidad, conforme al Iiteral g) del artículo 21 del CAUCA IV. La garantía a constituir será de veinte mil pesos centroamericanos o su equivalente en moneda nacional.
+A los empleados de las instituciones públicas, municipalidades, misiones diplomáticas, consulares u organismos internacionales, no les será aplicable el requisito de la garantía.

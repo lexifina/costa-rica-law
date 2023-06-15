@@ -1,0 +1,1 @@
+Artículo 590. Plazo para dictar el acto final. Concluida la fase de evacuación de pruebas, cuando proceda, o vencido el plazo de cinco días sin haberse presentado ninguna alegación o prueba, el órgano competente dictará el acto dentro del plazo de 10 días hábiles.

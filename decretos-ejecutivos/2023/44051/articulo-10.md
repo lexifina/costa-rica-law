@@ -1,0 +1,1 @@
+Artículo 10. Responsabilidad. Además de las responsabilidades que se establecen en el artículo 13 del CAUCA IV, se desprenderán las acciones administrativas, civiles y penales en contra del funcionario aduanero y se interpondrán las acciones señaladas en el ordenamiento jurídico, en contra de quienes hayan sido presuntamente beneficiados.

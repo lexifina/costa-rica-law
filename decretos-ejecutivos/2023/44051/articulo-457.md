@@ -1,0 +1,1 @@
+Artículo 457. Ejecución de la garantía. En el caso contemplado en el inciso e. del artículo 455 de este Reglamento, cuando corresponda, se procederá con la ejecución de la garantía de acuerdo al procedimiento descrito en este Reglamento.

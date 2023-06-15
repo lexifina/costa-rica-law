@@ -1,0 +1,1 @@
+Artículo 428. Envíos postales no comerciales. Se consideran envíos postales no comerciales, las mercancías que son remitidas para uso o consumo personal o familiar del destinatario y que no serán destinadas a actividades lucrativas.

@@ -1,0 +1,3 @@
+SECCIÓN VI
+EMPRESAS DEL RÉGIMEN DE PERFECCIONAMIENTO ACTIVO
+Artículo 92. Autorización. Para el otorgamiento de la condición de auxiliar con suspensión de los derechos arancelarios e impuestos indirectos, toda persona que introduzca al territorio aduanero mercancías con suspensión de los derechos arancelarios e impuestos indirectos, para ser destinadas a procesos de transformación, elaboración, reparación u otros legalmente autorizados, deberá acreditar ante el órgano administrador del régimen, el cumplimiento los requisitos generales y específicos que la Ley y este Reglamento establecen para esta categoría de auxiliar.

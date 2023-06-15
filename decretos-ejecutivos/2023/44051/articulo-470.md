@@ -1,0 +1,1 @@
+Artículo 470. Condición para nueva importación temporal de embarcaciones con fines turísticos. No podrá autorizarse una nueva declaración de importación temporal de una embarcación al amparo de esta categoría, hasta que transcurra un plazo de noventa días desde su salida de aguas nacionales, sin que se haya operado la suspensión del plazo o ele su depósito bajo control aduanero.

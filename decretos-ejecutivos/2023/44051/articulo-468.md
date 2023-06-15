@@ -1,0 +1,6 @@
+SECCIÓN III
+IMPORTACIÓN TEMPORAL DE EMBARCACIONES CON FINES TURÍSTICOS
+YCHARTEO
+Artículo 468. Objeto de Importación temporal de embarcaciones con fines turísticos. Se podrá autorizar la importación temporal de las embarcaciones de bandera extranjera, sus partes, piezas y equipos destinados para su reparación, ingresadas a aguas y territorios nacionales para fines turísticos, establecidas en el artículo 27, párrafo primero, de la Ley de Concesión y Operación de Marinas y Atracaderos Turísticos.
+Al amparo de esta categoría, las embarcaciones podrán incluir, todos aquellos vehículos, equipos y artículos que ésta porte consigo a bordo, tales como pero no limitado a: motos de agua, tablas de surf, botes inflables con motor fuera de borda, lanchas neumáticas, tablas con remos para surfear y otros similares, para la realización de las actividades autorizadas recreativas y deportivas acuáticas, todo lo cual deberá constar de forma individualizada en la declaración aduanera.
+Previo al vencimiento del plazo establecido en el artículo 445 de este Reglamento, las mercancías deberán ser sometidas a otro régimen aduanero o tratamiento legalmente autorizado, caso contrario, caen en abandono de conformidad con el artículo 543 ele Este Reglamento.

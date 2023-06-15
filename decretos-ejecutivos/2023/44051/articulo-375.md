@@ -1,0 +1,2 @@
+Artículo 375. Lugar de reconocimiento y despacho. El reconocimiento físico de las mercancías y el despacho tendrá lugar en los locales aduaneros habilitados a tal efecto.
+La conducción de los bultos hasta estos locales corresponderá a los propios viajeros o a las compañías transportistas. No obstante, para facilitar el tráfico turístico las autoridades aduaneras podrán autorizar que los reconocimientos se efectúen en los vehículos utilizados para el transporte.

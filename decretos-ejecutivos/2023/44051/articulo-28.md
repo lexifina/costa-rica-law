@@ -1,0 +1,1 @@
+Artículo 28. Carné de identificación. Los auxiliares y el personal subalterno, que realicen gestiones directamente ante el Servicio, deberán portar carné que los acredite como tales. El carné será confeccionado por los auxiliares de acuerdo con la información, parámetros y formato uniforme que, en cada caso, determine la Dirección General.

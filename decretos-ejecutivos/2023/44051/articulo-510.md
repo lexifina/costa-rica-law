@@ -1,0 +1,2 @@
+Artículo 510. Plazo del régimen. El plazo de permanencia de las mercancías introducidas para su perfeccionamiento al amparo del régimen de admisión temporal para perfeccionamiento activo, será de hasta doce meses improrrogables, contado a partir del día de aceptación de la declaración de mercancías correspondiente.
+Para la aplicación de este régimen se requerirá la constitución de garantía, de conformidad con lo establecido en la Ley General de Aduanas y este Reglamento.

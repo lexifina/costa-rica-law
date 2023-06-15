@@ -1,0 +1,4 @@
+Artículo 337. Presentación de la declaración aduanera. La declaración aduanera deberá presentarse en forma provisional antes del inicio de la descarga.
+La declaración deberá contener la información disponible a ese momento; pero siempre contendrá la descripción genérica de las mercancías y su valor estimado, esto únicamente para efectos de calcular el monto de los tributos a pagar.
+El Servicio permitirá que la declaración se rectifique posteriormente, haciendo los ajustes al monto de los tributos correspondientes, en caso de que la información sobre las mercancías descargadas, varíe de la incluida en la declaración.
+Dentro de un plazo no mayor de diez días hábiles, se deberá presentar la información definitiva sobre el peso o volumen efectivamente descargado, efectuándose los ajustes y pago de los tributos que correspondan. Tratándose de empresas del Estado, el plazo será de 30 días naturales.

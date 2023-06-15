@@ -1,0 +1,1 @@
+Artículo 203. Transbordos permitidos. El Servicio Aduanero podrá permitir el transbordo de las mercancías de un medio de transporte a otro, debiendo comprender la totalidad del documento de transporte incluido en el manifiesto de carga.

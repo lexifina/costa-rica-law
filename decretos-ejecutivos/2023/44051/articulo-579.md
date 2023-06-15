@@ -1,0 +1,1 @@
+Artículo 579. Costos para la obtención de las pruebas. En los casos en que, a petición del interesado, sean ofrecidas pruebas cuya realización implica gastos que no deba soportar la administración, éste deberá suplir los costos o medios respectivos para traerlas al procedimiento. De lo contrario la prueba se declarará inevaluable.

@@ -1,0 +1,1 @@
+Artículo 330. No exigencia de muestra. Para efectos de determinar el valor aduanero de la mercancía, no será necesaria la extracción de muestras cuando la misma sea plenamente identificable a través de marca, modelo, serie o catálogo de fabricante, fichas técnicas u otros documentos que provean criterios para el establecimiento de su valoración.

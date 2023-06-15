@@ -1,0 +1,3 @@
+Artículo 211. Plazo para efectuar el reembarque. Para conceder la autorización de reembarque, no se exigirá ninguna garantía y éste deberá realizarse dentro de un plazo de diez días hábiles, contado a partir de la autorización.
+Si por causa justificada el interesado necesitara un plazo mayor para realizar el reembarque, deberá solicitarlo por escrito ante la aduana de control. Esta última, previo análisis, autorizará la ampliación del plazo, cuando proceda.
+De no efectuarse el reembarque dentro ese plazo, las mercancías se considerarán en abandono, sin perjuicio de otras responsabilidades que puedan deducirse.

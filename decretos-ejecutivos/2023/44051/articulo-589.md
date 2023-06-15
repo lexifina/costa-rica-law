@@ -1,0 +1,2 @@
+Artículo 589. Ampliación del plazo para la presentación de pruebas. El órgano instructor del procedimiento para aplicar multas, podrá ampliar el plazo para la presentación de las pruebas hasta por 5 días hábiles en caso de pruebas habidas dentro del territorio nacional y hasta por 30 días hábiles para las pruebas que se encuentran en el extranjero.
+La solicitud de ampliación del plazo deberá hacerse antes del vencimiento de éste, con expresión de motivos y de prueba que lo demuestre.

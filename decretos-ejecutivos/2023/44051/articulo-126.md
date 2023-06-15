@@ -1,0 +1,4 @@
+Artículo 126. Otros empleados. El apoderado especial aduanero y el poderdante deberán comunicar a la Dirección General de Aduanas, las personas que los representarán en su gestión aduanera. Para tal efecto, deberá presentar el contrato laboral existente entre el poderdante y estos otros empleados.
+La Dirección deberá resolver la presente gestión, dentro del plazo de diez días hábiles a partir de su presentación, siempre y cuando se cumplan los requisitos establecidos en el presente artículo.
+El apoderado especial aduanero y el poderdante deberán informar a la Dirección General, inmediatamente del cese de Ia relación laboral de las personas acreditadas, para la actualización de esta información en el sistema informático.
+A los empleados a que se refiere este artículo, les será aplicable las disposiciones atinentes a asistentes de agentes de aduanas, incluida la inhabilitación establecida en el artículo 35 de este Reglamento.

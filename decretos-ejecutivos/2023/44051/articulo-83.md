@@ -1,0 +1,3 @@
+Artículo 83. Grupos Industriales con vinculación financiera. Se autorizará el ingreso a la modalidad de despacho domiciliario, a las empresas integradas en grupos industriales con vinculación financiera suficiente, entendida ésta cuando la participación, directa o indirecta, de una empresa en otra del grupo, sea al menos del 25% en el capital social, siempre que cumplan además con los siguientes requisitos:
+a) Indicar los nombres de las empresas que conforman el grupo financieramente vinculado y los cambios en los integrantes del grupo.
+b) El conjunto de las importaciones de las empresas, considerado globalmente, debe cubrir los parámetros y condiciones exigidas para las empresas individuales.

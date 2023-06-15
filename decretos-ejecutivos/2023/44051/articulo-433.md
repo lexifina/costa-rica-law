@@ -1,0 +1,3 @@
+Artículo 433. Devolución de envíos postales comerciales y no comerciales. Transcurridos seis meses, contados a partir de la fecha de recibido el aviso por el destinatario sin que éste se haya presentado a solicitar el despacho de los envíos postales, la autoridad aduanera procederá a autorizar a la autoridad postal para la devolución al remitente .
+Los envíos postales que no sean retirados dentro del plazo indicado en el párrafo anterior no causarán abandono, quedando sujetos al procedimiento establecido en el mismo.
+En los casos de retorno al extranjero, la autoridad postal remitirá a la autoridad aduanera la información relativa a dichos retornos, mediante medios electrónicos bajo las condiciones establecidas por el Servicio Aduanero.

@@ -1,0 +1,1 @@
+Artículo 236. Vigencia. Las resoluciones anticipadas regirán a partir de la fecha de su notificación o a partir de una fecha posterior que se especifique en la misma resolución, siempre que permanezcan los hechos y circunstancias allí evaluadas.

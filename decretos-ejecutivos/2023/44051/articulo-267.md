@@ -1,0 +1,5 @@
+Artículo 267. Autorización del levante. Se autorizará el levante de las mercancías cuando:
+a) No corresponda efectuar la verificación inmediata.
+b) Efectuada la verificación inmediata, no se determinan diferencias con la declaración de mercancías o incumplimiento de formalidades necesarias para la autorización del régimen solicitado.
+c) Cuando efectuada la verificación inmediata y habiéndose determinado diferencias con la declaración de mercancías, la aduana efectuará las correcciones y ajustes correspondientes de la declaración de mercancías y notificará esta circunstancia al declarante o su representante, dentro del plazo señalado en el artículo 261 de este Reglamento, y si éstas se subsanan, se pagan los ajustes y multas, o en los casos en que proceda, cuando así se exija por la autoridad aduanera, se rinda la garantía correspondiente.
+El levante no se autorizará en el caso previsto en el literal c. del párrafo anterior, cuando la mercancía deba ser objeto de decomiso administrativo o judicial.

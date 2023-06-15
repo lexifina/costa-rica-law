@@ -1,0 +1,3 @@
+Artículo 178. Objeto de la inspección. La inspección, cuando proceda, tendrá por objeto verificar que los pasajeros y tripulantes del vehículo se ajusten a las disposiciones legales y reglamentarias en materia aduanera y adoptar las medidas de vigilancia y seguridad fiscal que fueren necesarias sobre las mercancías.
+Entre otras medidas de vigilancia y seguridad, la autoridad aduanera podrá ordenar la colocación de los precintos en los bultos o el cierre de bodegas o compa11imientos mediante sellos, cerraduras o marchamos. La violación de estos mecanismos de seguridad estará sujeta a las sanciones previstas en la Ley.
+El resultado de la inspección se consignará en un acta.

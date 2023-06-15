@@ -1,0 +1,2 @@
+Artículo 519. Devoluciones. Los productos terminados que se hayan exportado o reexportado una vez sometidas a procesos de · perfeccionamiento activo en el territorio aduanero y que sean devueltos al mismo para su reparación, podrán ingresar bajo el régimen de admisión temporal para el perfeccionamiento activo, previa constitución de la garantía correspondiente.
+En caso de utilizarse nuevas piezas, repuestos u otros que sean necesarios para la reparación de las mercancías, estos estarán afectos al pago de los tributos correspondientes.

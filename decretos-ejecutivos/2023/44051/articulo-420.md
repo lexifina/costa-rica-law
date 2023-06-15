@@ -1,0 +1,1 @@
+Artículo 420. Supletoriedad. Para la aceptación y verificación de la declaración, el despacho de las mercancías con y sin reconocimiento físico, así como las discrepancias surgidas, será aplicable lo dispuesto en la Sección VIII de este Capítulo.

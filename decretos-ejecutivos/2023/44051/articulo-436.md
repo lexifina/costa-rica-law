@@ -1,0 +1,1 @@
+Artículo 436. Pequeños envíos familiares sin carácter comercial ingresados por la vía postal. Cuando se trate de pequeños envíos familiares sin carácter comercial remitidos por la vía postal, para su despacho se procederá conforme lo establece el artículo 595 del RECAUCA IV y 440 de este Reglamento.

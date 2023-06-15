@@ -1,0 +1,2 @@
+Artículo 128. Confidencialidad. Toda información suministrada por el gestionante a la Dirección General de Aduanas, dentro del proceso de certificación como Operador Económico Autorizado, será confidencial y solo podrá ser utilizada para dicho fin.
+Únicamente los datos relativos al nombre completo, cédula jurídica y tipo de actividad comercial, dirección, previo consentimiento del OEA, podrán ser utilizados, con el fin de recibir potenciales beneficios asociados a un Acuerdo o Arreglo de Reconocimiento Mutuo y para la promoción de la certificación.

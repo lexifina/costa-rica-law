@@ -1,0 +1,3 @@
+Artículo 282. Inicio de Tránsito. El cómputo del plazo para el tránsito iniciará a partir de la salida efectiva del vehículo y la unidad de transpo1te del lugar de ubicación donde se encuentren las mercancías.
+Para tales efectos el responsable de la ubicación registrará la hora y fecha de salida efectiva en el sistema informático del Servicio Aduanero, haciendo referencia a la numeración de la declaración de tránsito. Cuando los auxiliares involucrados, cuenten con equipos o medios que faciliten el control no intrusivo, el inicio del tránsito se efectuará en el sistema informático a través de éstos.
+Una vez autorizado el inicio del tránsito, el transportista deberá retirar el medio de transporte del recinto aduanero de forma inmediata.

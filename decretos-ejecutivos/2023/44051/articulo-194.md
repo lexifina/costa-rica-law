@@ -1,0 +1,1 @@
+Artículo 194. Caso especial de diferencias. En el caso de carga a granel, no se requerirá la justificación de las diferencias, siempre que éstas no sean mayores al cinco por ciento del peso o volumen, en su caso, respecto de lo manifestado.

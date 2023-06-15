@@ -1,0 +1,1 @@
+Artículo 195. Cargas parciales por operativa aérea. Para la atención excepcional de las cargas parciales, el transportista aéreo será responsable de incluir en el manifiesto de carga, todas las cargas parciales hasta completar la totalidad de los bultos señalados en la guía aérea, de conformidad con los procedimientos que al efecto desarrolle la Dirección General.

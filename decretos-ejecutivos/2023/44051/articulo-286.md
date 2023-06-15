@@ -1,0 +1,3 @@
+SECCIÓN III
+RECEPCIÓN DE VEHÍCULOS Y UNIDADES DE TRANSPORTE
+Artículo 286. Ámbito de aplicación. Las disposiciones de la presente Sección son aplicables en lo procedente a los depósitos aduaneros temporales, operadores económicos autorizados, a las empresas de despacho domiciliario industrial, a los consignatarios de la modalidad de despacho domiciliario comercial, las empresas de zonas francas, las de perfeccionamiento activo, Depósito Libre de Golfito, terminales de carga de exportación y cualquier otro receptor cuya ubicación se encuentre autorizada para recibir vehículos y unidades de transporte.

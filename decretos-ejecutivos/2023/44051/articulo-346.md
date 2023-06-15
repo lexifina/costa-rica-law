@@ -1,0 +1,2 @@
+Artículo 346. Declaración aduanera y documentos adjuntos. La declaración aduanera que ampare las mercancías sustituidas se tramitará de conformidad con los procedimientos establecidos para el régimen de importación definitiva, debiendo sustentarse en el acto administrativo que autorizó la sustitución y copia certificada o medio autorizado por la Dirección General de la declaración de exportación respectiva.
+En todos los casos las mercancías deberán ser objeto del reconocimiento físico por parte de la aduana.

@@ -1,0 +1,1 @@
+Artículo 568. Improcedencia. No procederá el trámite de regularización en aquellos casos en que se determine la interposición de denuncia penal por las acciones u omisiones de los sujetos pasivos, sean o no auxiliares de la función pública. Además, contra las actuaciones en la regularización no cabrá recurso.

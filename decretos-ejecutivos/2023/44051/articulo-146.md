@@ -1,0 +1,1 @@
+Artículo 146. Cancelación. Verificado alguno de los supuestos estipulados en el artículo 269 bis de la Ley General de Aduanas, mediante acto resolutivo, la Dirección General ordenará la cancelación de la certificación OEA.

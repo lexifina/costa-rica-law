@@ -1,0 +1,2 @@
+Artículo 227. Documentos obligatorios. El formulario regulado en el artículo anterior, debe acompañarse de los documentos requeridos de acuerdo a la clase de resolución que se solicite expedir, según lo dispuesto por resolución de alcance general.
+Toda la información o documentación que conste en bases de datos públicas, deberá ser indicada por el interesado en el formulario, en cuyo caso la Dirección General deberá realizar la verificación correspondiente.

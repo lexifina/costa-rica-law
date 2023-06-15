@@ -1,0 +1,4 @@
+Artículo 193. Rectificación del manifiesto de carga. Presentadas y aceptadas las justificaciones de los faltantes y sobrantes, o cuando la resolución es favorable al administrado por aplicación del silencio positivo, la autoridad aduanera a más tardar dentro del día hábil siguiente, resolverá y ordenará de forma automática a través del sistema informático, practicar las rectificaciones en el respectivo manifiesto de carga, en la forma siguiente:
+a) Rebajando del correspondiente manifiesto de carga, los faltantes debidamente justificados.
+b) Agregando, al manifiesto de carga, los sobrantes debidamente justificados.
+Los sobrantes justificados podrán ser despachados a cualquiera de los regímenes u operaciones aduaneras. En este caso, el plazo del depósito temporal, se computará a partir de la fecha en que se ordene la rectificación para la adición de los sobrantes .

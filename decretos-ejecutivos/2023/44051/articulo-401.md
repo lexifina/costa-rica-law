@@ -1,0 +1,1 @@
+Artículo 401. Documentos obligatorios. Para el despacho de los envíos sujetos al pago de tributos mediante la declaración simplificada, serán obligatorias la factura comercial y la guía aérea individualizada.

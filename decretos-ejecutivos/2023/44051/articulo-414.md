@@ -1,0 +1,1 @@
+Artículo 414. Declaración definitiva. La declaración definitiva deberá realizarse dentro del plazo que establece el artículo 125 de la Ley, cumpliendo con todos los requisitos del régimen al cual se destinaran las mercancías. Para esos efectos podrá efectuarse el examen previo de las mercancías.

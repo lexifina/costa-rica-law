@@ -1,0 +1,3 @@
+Artículo 21. Obligación de reportar información para actualizar el registro de auxiliares. Los auxiliares están obligados a comunicar a la Dirección General, cualquier cambio que incida en la veracidad de la información que contiene el registro de auxiliares, incluyendo el de su personal acreditado.
+La comunicación deberá realizase en un plazo de tres días hábiles, contados a partir de la fecha en que se produjo el cambio.
+Los funcionarios del Servicio Nacional de Aduanas que, en razón de su cargo, tuvieren conocimiento de cualquier dato o información que deba contener el registro, deberán comunicarlo en forma inmediata a la Dirección General.

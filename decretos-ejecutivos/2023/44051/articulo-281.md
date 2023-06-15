@@ -1,0 +1,2 @@
+Artículo 281. Plazos y rutas. El Servicio Aduanero en coordinación con el órgano competente, establecerá los plazos y fijará las rutas para la operación de tránsito en el territorio aduanero.
+Los plazos y las rutas para la operación de tránsito en el territorio aduanero, se establecerán de acuerdo con lo establecido en la normativa vigente y su control se incorporará en los sistemas informáticos aduaneros.

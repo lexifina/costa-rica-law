@@ -1,0 +1,2 @@
+Artículo 385. Procedimiento simplificado. En el caso de las mercancías comprendidas en el artículo anterior, el Servicio Aduanero someterá la declaración de mercancías a los trámites mínimos indispensables para asegurar el interés fiscal.
+El despacho de mercancías bajo la presente modalidad tendrá prioridad respecto de los demás despachos. El gerente de la aduana de ingreso de las mercancías tomara las previsiones necesarias para asignar el personal requerido para tramitar el despacho aún en horas no hábiles.

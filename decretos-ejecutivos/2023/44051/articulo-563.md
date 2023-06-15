@@ -1,0 +1,1 @@
+Artículo 563. Adjudicación de mercancías restringidas o limitadas. En la subasta de mercancías cuya importación esté restringida o limitada, sólo podrán ser adjudicatarios las personas que legalmente puedan efectuar la importación de tales mercancías, para lo cual deberán presentar, los documentos, permisos, licencias o autorizaciones respectivos.

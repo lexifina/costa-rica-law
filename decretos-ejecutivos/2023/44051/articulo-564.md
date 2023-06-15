@@ -1,0 +1,2 @@
+Artículo 564. Retiro de mercancías adjudicadas. Una vez adjudicada las mercancías, el adjudicatario deberá retirar las mismas del recinto donde se encuentren, cumpliendo con las obligaciones no tributarias correspondientes a la importación de las mercancías y asumiendo los costos que se deriven del almacenaje.
+La entrega de las mercancías se efectuará al titular mediante el comprobante de adjudicación de la mercancía subastada, que la autoridad aduanera emita al efecto.

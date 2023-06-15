@@ -1,0 +1,1 @@
+Artículo 583. Audiencia para la evacuación de las pruebas. De conformidad con el artículo 196 literal c) de la Ley, el órgano instructor del procedimiento convocará a la audiencia solicitada para evacuar la prueba dentro de los quince días hábiles siguientes a la fecha de finalización del período de presentación de pruebas.

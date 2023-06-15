@@ -1,0 +1,1 @@
+Artículo 437. Informes de la autoridad postal. La autoridad postal deberá reportar a la autoridad aduanera, cualquier daño o destrucción de mercancías bajo su custodia. Igualmente reportará las mercancías caídas en abandono o aquellas sujetas a control aduanero, que hayan sido efectivamente reexportadas.

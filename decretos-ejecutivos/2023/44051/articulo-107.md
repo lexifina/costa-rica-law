@@ -1,0 +1,11 @@
+Artículo 107. Obligaciones. Las entidades inscritas ante el registro de auxiliares como operadores de tiendas libres deberán cumplir con las obligaciones siguientes:
+a) Que las mercancías lleguen a la tienda libre consignadas a nombre del operador de esta.
+b) Que las mercancías ingresadas a las tiendas libres se vendan exclusivamente a pasajeros en tránsito y a los que salgan del territorio aduanero, o ingresen en su caso, previa comprobación de la calidad de pasajeros, acreditada con pasaporte u otro documento de viaje autorizado y pasajes respectivamente, debiendo consignarse en la factura que expida el número de pasaporte u otro documento autorizado y el código del vuelo indicado en el pase de abordaje o del pasaje, cuando proceda.
+c) Desarrollar un sistema especial de control por tipo y clase de mercancías a través de medios electrónicos a disposición de la aduana correspondiente, que permita establecer la cantidad de mercancías ingresadas a sus depósitos y las vendidas a pasajeros, que permitan su fácil descargo, según los requerimientos establecidos por la Dirección General.
+d) Mantener y enviar a la aduana correspondiente, registros de mercancías admitidas, depositadas, vendidas u objeto de otros movimientos, según los formatos y las condiciones que establezca la Dirección General.
+e) Presentar ante la aduana correspondiente, una declaración de mercancías en la forma que la Dirección General le indique, para comprobar las ventas y descargos de las
+mercancías llegadas a sus depósitos.
+t) Permitir y facilitar las labores de fiscalización de la autoridad aduanera.
+g) Contar con medios de vigilancia suficientes y adecuados que aseguren la efectiva custodia y conservación de las mercancías, de acuerdo con las condiciones de ubicación o infraestructura del depósito y la naturaleza de las mercancías, conforme con lo que disponga la Dirección General en el acto de autorización.
+h) Presentar a la aduana de control en el mes siguiente a la finalización del año fiscal, los resultados de los inventarios efectuados, los cuales incluirán un reporte de mercancías ingresadas en ese periodo bajo la modalidad, inventario de existencias e inventario de ventas.
+i) Las demás que establezca la Dirección General.

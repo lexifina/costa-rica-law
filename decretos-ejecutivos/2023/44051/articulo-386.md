@@ -1,0 +1,1 @@
+Artículo 386. Declaración anticipada. El despacho de mercancías de esta sección podrá gestionarse anticipadamente, siempre y cuando se presente con la solicitud anticipada el dictamen médico que demuestre el carácter de uso inmediato o indispensable de las mercancías.

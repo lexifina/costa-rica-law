@@ -1,0 +1,3 @@
+Artículo 285. Finalización y cancelación del tránsito. La operación de tránsito aduanero se tendrá por finalizada con la entrega por parte del transportista aduanero de las mercancías efectivamente recibidas por el depositario aduanero o el auxiliar autorizado para recibir mercancías en sus instalaciones, conforme al registro de la hora y fecha en el sistema informático por parte del responsable de la ubicación y finalizado el control de viaje generado.
+Con este acto, en el sistema informático del Servicio Aduanero a su vez, se tendrá por cancelado el régimen de tránsito aduanero.
+El fin del tránsito, también se podrá dar de manera automática, si los auxiliares involucrados, cuentan con equipos o medios que faciliten el control no intrusivo.

@@ -1,0 +1,2 @@
+Artículo 338. Autorización definitiva de la importación. La importación se tendrá por definitiva, una vez presentados los documentos aduaneros y cancelados los tributos a gue diere lugar.
+De no presentarse los documentos aduaneros en el plazo supra indicado, se procederá a dejar sin efecto la autorización concedida a la empresa interesada para utilizar el presente procedimiento en futuros despachos. Lo anterior con excepción de empresas del Estado.

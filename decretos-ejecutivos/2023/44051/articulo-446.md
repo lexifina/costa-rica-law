@@ -1,0 +1,7 @@
+Artículo 446. Garantía. Para las categorías indicadas en los literales l. m. y o. del artículo 442 de este Reglamento y para las muestras y muestrarios sin fines comerciales, el Servicio Aduanero exigirá que se rinda garantía, la que podrá ser de carácter global, para responder por el monto de la totalidad de los tributos eventualmente aplicables según los términos y condiciones establecidos en el artículo 65 de la Ley General de Aduanas.
+Para las categorías indicadas en los literales a., d., e., f., g., i., j., k., n., p., r., el Servicio Aduanero no requerirá garantía alguna.
+En el caso de eventos, únicamente se requerirá garantía, cuando se trate de los incisos a. y d. del artículo 448 de este Reglamento.
+Las mercancías del inciso h. e i. del artículo 442 de este Reglamento, se regirán por lo dispuesto en el contrato administrativo, según el artículo 450 del Reglamento.
+En el caso de la categoría q. del artículo 442 citado, se regirá por lo dispuesto por la normativa específica, convenio internacional o lo dispuesto por el Servicio Aduanero este Reglamento o disposiciones de alcance general.
+Cuando se haya rendido garantía, ésta se hará efectiva si el régimen no es cancelado dentro del plazo establecido o se desnaturalizan los fines que originaron su autorización, sin perjuicio de otras acciones procedentes.
+La garantía que se rinda al efecto, deberá ser cualquiera de las establecidas en el artículo 65 de la Ley, a favor de la aduana competente y presentarse con la declaración aduanera de importación temporal.

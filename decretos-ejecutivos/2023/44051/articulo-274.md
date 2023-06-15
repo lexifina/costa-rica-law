@@ -1,0 +1,1 @@
+Artículo 274. Declaración de mercancías de origen centroamericano. Las mercancías originarias de los Estados Parte se consignarán en la Declaración Única Centroamericana (DUCA F), mediante transmisión electrónica, en las condiciones que establecen las normas regionales que lo regulan.

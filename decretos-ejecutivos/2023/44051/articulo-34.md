@@ -1,0 +1,4 @@
+Artículo 34. Reinicio de operaciones de un cese temporal. El auxiliar que haya cesado voluntariamente el ejercicio de sus funciones temporalmente podrá ser habilitado nuevamente al vencimiento del plazo de cese solicitado.
+Para tales efectos la autoridad aduanera debe verificar el cumplimiento de los requisitos y obligaciones establecidos para cada auxiliar de la función pública aduanera.
+En caso de cumplimiento, la Dirección General autorizará el reinicio de operaciones mediante el sistema informático. Caso contrario, no podrá operar como auxiliar hasta que demuestre haber subsanado el incumplimiento, de conformidad con el artículo 29 de la Ley.
+En ningún caso procederá el reinicio de operaciones cuando el auxiliar haya solicitado el cese definitivo, para lo cual deberá presentarse una nueva solicitud.

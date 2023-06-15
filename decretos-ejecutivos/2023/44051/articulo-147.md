@@ -1,0 +1,1 @@
+Artículo 147. Recursos. Contra el acto final que deniegue la autorización como OEA, el acto de suspensión y el acto de cancelación de la certificación OEA, podrá interponerse el recurso de apelación ante el Tribunal Aduanero Nacional.

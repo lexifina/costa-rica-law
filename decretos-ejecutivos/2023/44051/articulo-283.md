@@ -1,0 +1,2 @@
+Artículo 283. Actuaciones de la autoridad aduanera. Siempre que se cumplan las condiciones establecidas en el régimen de tránsito aduanero, las autoridades aduaneras controlarán el estado de los dispositivos de seguridad y otras medidas de control en los puntos de inicio del tránsito.
+También vigilará el ·cumplimiento de las disposiciones relativas a seguridad pública, control de drogas; moralidad o sanidad pública y las demás que tengan la obligación de hacer cumplir.

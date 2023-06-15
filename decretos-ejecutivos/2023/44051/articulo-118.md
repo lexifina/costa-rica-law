@@ -1,0 +1,1 @@
+Artículo 118. Supletoriedad. Las condiciones, requisitos, obligaciones y procedimientos de autorización y de operación de depósito aduanero temporal y demás disposiciones, se regirán por lo dispuesto para el depositario aduanero, salvo lo dispuesto en los artículos 107, inciso m) del 115 y 116 del RECAUCA IV.

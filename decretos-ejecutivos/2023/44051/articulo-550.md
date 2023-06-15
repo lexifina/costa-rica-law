@@ -1,0 +1,1 @@
+Artículo 550. Participación. La participación del público en general y la realización de la subasta por medios electrónicos, se sujetará a las normas establecidas en este reglamento y demás disposiciones emitidas por la Dirección General de Aduanas. De todo lo actuado en relación con el remate electrónico, deberá dejarse constancia en un expediente digital del medio electrónico.

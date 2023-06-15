@@ -1,0 +1,1 @@
+Artículo 260. Disposición de las mercancías. El declarante deberá poner a disposición del funcionario aduanero designado, las mercancías para que realice el reconocimiento físico, a partir del registro de la declaración aduanera, quedando bajo la responsabilidad del declarante las operaciones necesarias para facilitar su reconocimiento.

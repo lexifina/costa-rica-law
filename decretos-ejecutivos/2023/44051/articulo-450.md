@@ -1,0 +1,1 @@
+Artículo 450. Categorías estatal y ejecución de obras públicas. Las importaciones temporales contempladas en contratos administrativos celebrados con el Estado o en Leyes especiales, contempladas en ambas categorías, se regirán por lo que en ellos se disponga.

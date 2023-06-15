@@ -1,0 +1,3 @@
+Artículo 449. Categorías educativas, religiosas y culturales, y científicas. Podrán importarse bajo estas categorías, las mercancías utilizadas para ser exhibidas y cualquier equipo y material que sirva de apoyo a la enseñanza, formación profesional, investigación, difusión científica o cualquier otra actividad religiosa o cultural.
+Se autorizará su importación, siempre que sean importados por centros o instituciones públicas o aquellas autorizadas por el Estado, bajo el control de la autoridad competente y se destinen para uso exclusivo del beneficiario del régimen y bajo su responsabilidad.
+En el caso de las actividades religiosas la autoridad competente corresponderá a la autoridad superior de la respectiva entidad religiosa a nivel nacional.

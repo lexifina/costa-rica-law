@@ -1,0 +1,5 @@
+Artículo 515. Traslados permitidos. Se permitirán los traslados siguientes:
+a) Entre beneficiarios del régimen: Podrán trasladarse definitivamente mercancías introducidas bajo el régimen de admisión temporal para perfeccionamiento activo.
+b) Entre beneficiarios del régimen y subcontratados: Cualquier beneficiario del régimen podrá trasladar a terceras personas subcontratadas por él, mercancías ingresadas temporalmente, con el objeto que elaboren productos para reexpo1tación, siendo en este caso dicho beneficiario responsable por el pago de los derechos e impuestos correspondientes, si tales bienes no son reexportados del territorio aduanero dentro del plazo de permanencia.
+c) Entre beneficiarios del régimen y usuarios de zonas francas: También podrán trasladarse mercancías entre beneficiarios del régimen y empresas ubicadas dentro de zonas francas, previo cumplimiento de las obligaciones legales que corresponda.
+Los traslados mencionados en los literales anteriores se efectuarán utilizando los formatos y en las condiciones que al efecto establezca la Dirección General de Aduanas.

@@ -1,0 +1,3 @@
+Artículo 206. Plazo para efectuar el transbordo. El transbordo deberá efectuarse bajo control y condiciones que la autoridad aduanera determine, dentro de un plazo máximo de veinticuatro horas hábiles, contado a partir de su autorización.
+Si por causa justificada mediante declaración jurada, el interesado necesitara un plazo mayor para realizar el transbordo, deberá indicarlo en solicitud por escrito y la autoridad aduanera, previo análisis, autorizará dentro de un plazo no mayor a veinticuatro horas a partir de su solicitud, la ampliación del plazo, cuando proceda.
+De no efectuar el transbordo dentro del plazo señalado o el plazo mayor concedido, en su caso, la mercancía causará abandono.

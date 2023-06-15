@@ -1,0 +1,1 @@
+Artículo 289. Comunicación de los vehículos y unidades de transporte recibidas. Cada receptor de tránsito aduanero deberá transmitir a la aduana de control, el ingreso de los vehículos y unidades de transporte que reciba, así como el resultado ele la recepción de la unidad de transpo1te, indicando el número y fecha de la respectiva declaración de tránsito que ampara el ingreso.

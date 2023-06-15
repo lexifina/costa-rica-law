@@ -1,0 +1,2 @@
+Artículo 539. Cancelación de la prenda. El pago efectivo de los tributos, los intereses, las multas y los demás cargos por los que responden las mercancías, cancela la prenda aduanera decretada.
+El sujeto pasivo cuenta con treinta días hábiles para el pago de las sumas adeudadas, contados a partir de la firmeza de la resolución que constituyó la prenda aduanera sobre las mercancías, caso contrario, causará abandono y será sometida al proceso de subasta pública o de destrucción, según corresponda.

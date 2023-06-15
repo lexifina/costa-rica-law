@@ -1,0 +1,1 @@
+Artículo 503. Reimportación de mercancías fuera del plazo. Cuando la mercancía retornare al territorio aduanero fuera del plazo establecido en el literal a) del artículo 177 de la Ley, se considerará para todos los efectos como mercancía extranjera y como tal estará sujeta al pago de los tributos y demás restricciones y regulaciones no arancelarias correspondientes.

@@ -1,0 +1,1 @@
+Artículo 140. Aceptación o denegatoria. Cumplidos todos los requisitos de manera satisfactoria, la Dirección General de Aduanas procederá a emitir la resolución para otorgar la certificación OEA por un plazo de cuatro años; caso contrario emitirá resolución motivada indicando el rechazo de la solicitud y se archivará el expediente relacionado con la gestión.

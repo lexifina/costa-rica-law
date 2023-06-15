@@ -1,0 +1,1 @@
+Artículo 44. Oficinas. Todo agente aduanero, persona física o jurídica, deberá poseer al menos una oficina abierta cuya dirección se encuentre actualizada ante la Dirección General de Aduanas, la cual debe ser coincidente con la registrada ante la administración tributaria.

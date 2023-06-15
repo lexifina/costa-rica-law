@@ -1,0 +1,4 @@
+Artículo 374. Reconocimiento físico de las mercancías. Cuando corresponda efectuar el reconocimiento físico de las mercancías, la autoridad aduanera, deberá:
+a) Revisar el pasaporte o identificación del viajero y constatar procedencia, tiempo de permanencia fuera del territorio aduanero y fecha de la última ocasión en que disfrutó del beneficio de no pago de tributos, en su caso. Asimismo, se podrá confrontar los datos del pasaporte con la declaración y demás información migratoria.
+b) Cotejar las mercancías declaradas con las presentadas, determinar su naturaleza, y cantidades. Si detectare mercancías no declaradas se procederá a su decomiso y se seguirá el procedimiento correspondiente.
+c) Verificar que las mercancías de importación restringida cuenten con los permisos correspondientes y cumplan con las demás condiciones descritas en esta Sección.

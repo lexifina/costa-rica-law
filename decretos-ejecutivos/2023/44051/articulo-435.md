@@ -1,0 +1,2 @@
+Artículo 435. Traslado de mercancías. Cuando se realicen traslados de envíos postales desde las aduanas de entrada hacia los depósitos aduaneros, por haber ingresado consolidados con mercancías no postales, se realizarán bajo control aduanero, mediante la utilización de la declaración de mercancías correspondiente.
+La movilización de los envíos postales desde la aduana de ingreso y depósitos aduaneros hacia la autoridad postal, o entre éstas, se realizará bajo control aduanero, por la autoridad postal y utilizando los formatos establecidos.

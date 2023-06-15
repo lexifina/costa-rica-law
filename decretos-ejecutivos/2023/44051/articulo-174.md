@@ -1,0 +1,1 @@
+Artículo 174. Lugar autorizado para la consolidación. La consolidación de carga deberá realizarse en las terminales de carga, depositarios aduaneros autorizados u otra zona ele operación que autorice la Dirección General. En dichas instalaciones se colocarán los marchamos aduaneros y otros dispositivos de seguridad autorizados para su posterior embarque.

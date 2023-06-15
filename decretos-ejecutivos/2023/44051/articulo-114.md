@@ -1,0 +1,1 @@
+Artículo 114. Jurisdicción. Las tiendas libres, para el efecto del ingreso y salida de mercancías funcionarán bajo la jurisdicción de la aduana más cercana al lugar de su operación, sin perjuicio de la fiscalización a posteriori que pueda efectúa el órgano fiscalizador.

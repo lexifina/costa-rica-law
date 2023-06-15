@@ -1,0 +1,1 @@
+Artículo 413. Declaración provisional. Una vez que las mercancías lleguen al puerto aduanero, la empresa, el agente aduanero o el apoderado especial aduanero, deberá presentar la declaración aduanera de importación ante la aduana de control y demostrar el pago de los tributos.

@@ -1,0 +1,1 @@
+Artículo 27. Equipo y medios tecnológicos de inspección no intrusiva. Los auxiliares de la función pública aduanera deberán cumplir con la adquisición, instalación y uso de los equipos y medios tecnológicos de inspección no intrusiva según su categoría, conforme lo que se establezca mediante resolución de alcance general.

@@ -1,0 +1,4 @@
+Artículo 265. Concurrencia del declarante o su representante en el reconocimiento físico. El declarante o su representante tienen derecho a presenciar el reconocimiento físico de las mercancías.
+Si no concurriere el declarante o su representante, se procederá conforme lo establece el artículo 263 de este Reglamento.
+Sin perjuicio de lo establecido en el párrafo anterior, la autoridad aduanera podrá requerir la presencia obligatoria del declarante o su representante al momento del reconocimiento físico, para que éste aporte la información necesaria en la ejecución del acto.
+Iniciada la verificación inmediata, el funcionario aduanero designado, es responsable de su finalización. En caso de que el relacionado funcionario no pueda finalizar la verificación inmediata por caso fortuito o fuerza mayor, la autoridad aduanera respectiva deberá designar a otro funcionario para que realice dicha operación, ele forma motivada mediante oficio.

@@ -1,0 +1,1 @@
+Artículo 427. Mercancías prohibidas. Cuando por la vía postal se introduzcan al territorio aduanero o se extraigan del mismo las mercancías cuya importación o expo1tación esté prohibida, la autoridad postal informará de dicha circunstancia a la autoridad aduanera cuando corresponda, para que proceda conforme a las disposiciones legales aplicables.

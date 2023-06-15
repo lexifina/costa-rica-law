@@ -1,0 +1,1 @@
+Artículo 294. Prueba del contrato de transporte. El documento que prueba la existencia del contrato de transporte multimodal puede ser obtenido por el Servicio Aduanero, a su requerimiento, por medio de transmisión electrónica de datos.

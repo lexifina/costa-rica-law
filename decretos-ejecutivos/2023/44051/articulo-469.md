@@ -1,0 +1,1 @@
+Artículo 469. Sujeto autorizado para la importación temporal de embarcaciones con fines turísticos. Se autorizará la importación temporal de embarcaciones con fines turísticos al turista, propietario de la embarcación de bandera extranjera, o quien demuestre tener derecho al uso de ésta.

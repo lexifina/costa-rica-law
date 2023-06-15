@@ -1,0 +1,2 @@
+Artículo 234. Responsabilidad administrativa. El vencimiento del plazo para la expedición de la resolución anticipada establecido por la Ley General de Aduanas, no exime a los funcionarios de la obligación de resolver la solicitud, siempre y cuando la operación de importación a que ésta se refiere no se hubiera efectuado.
+La inobservancia o el incumplimiento injustificado de lo dispuesto en la presente sección, será sancionable conforme al régimen disciplinario.

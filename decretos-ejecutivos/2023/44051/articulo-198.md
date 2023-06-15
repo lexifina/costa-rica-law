@@ -1,0 +1,2 @@
+Artículo 198. Depósito en bodegas y zonas administradas por autoridades portuarias o en depósito temporal. Las mercancías y vehículos enviados a bodegas, zonas portuarias o deposito temporal deberán ser descargadas, almacenadas, custodiadas e incluidas en el inventario por parte del responsable de esas instalaciones, igual procedimiento aplicará para mercancías que permanezcan en el régimen de depósito de aduana.
+Esas mercancías y vehículos podrán permanecer en esos recintos hasta por el plazo de veinte días hábiles, conforme con el artículo 543 inciso b. de este Reglamento.

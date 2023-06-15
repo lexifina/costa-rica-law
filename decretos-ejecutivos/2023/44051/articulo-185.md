@@ -1,0 +1,2 @@
+Artículo 185. Lugar y momento de detección. Los sobrantes y faltantes de unidades de transporte o bultos se detectarán al finalizar la descarga del medio de transporte, en los puertos aduaneros habilitados para el ingreso al territorio aduanero.
+Además, se detectarán los sobrantes y faltantes de mercancías, en los depositarios aduaneros u otros lugares habilitados para la recepción de mercancías, al momento de finalizar la descarga de la mercancía en sus instalaciones.

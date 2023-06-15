@@ -1,0 +1,3 @@
+Artículo 533. Hecho generador en importaciones fraccionadas. En las importaciones de mercancías que para efectos arancelarios constituyan una unidad, pero que se introduzcan desmontados o sin montar, en embarques fraccionados para su ingreso en diferentes fechas, el hecho generador de la obligación tributaria aduanera será aplicable al conjunto de la unidad, según la fecha de aceptación de la declaración correspondiente a la importación de la primera fracción, con arreglo a las condiciones siguientes:
+a) Que los importadores lo soliciten expresamente al Servicio Aduanero, antes de realizar la importación de la primera fracción.
+b) Que todos los embarques parciales se importen dentro del plazo señalado por la Autoridad Aduanera en la autorización que se emita.

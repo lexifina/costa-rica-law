@@ -1,0 +1,1 @@
+Artículo 302. Aplicación a empresas de servicios de logística. Las disposiciones sobre recepción y descarga de mercancías, transmisión electrónica del inventario y discrepancias en la recepción de las mercancías, serán igualmente aplicables a las empresas de servicios de logística que reciben mercancías sujetas a control aduanero en sus instalaciones.

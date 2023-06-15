@@ -1,0 +1,1 @@
+Artículo 166. Defectos en la información transmitida del manifiesto de carga. El Servicio Aduanero no dará el trámite correspondiente a la transmisión de la información del manifiesto de carga o declaración de tránsito internacional terrestre, que contenga defectos u omisiones en la información requerida por éste o no cumpla con los requerimientos técnicos de transmisión.

@@ -1,0 +1,2 @@
+Artículo 297. Sobre la intervención de funcionario aduanero en la descarga, Una vez recibidos los vehículos y unidades de transporte, el depositario aduanero por medio de consulta en el sistema informático, verificará si la descarga de los bultos se efectuará con o sin intervención de funcionario aduanero.
+La Aduana de control comunicará al depositario las condiciones en las que se efectuará la descarga, en aplicación de los criterios de riesgo.

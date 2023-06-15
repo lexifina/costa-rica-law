@@ -1,0 +1,3 @@
+Artículo 453. Envases y elementos de transporte. Se entenderá por envases, al material especial, los elementos de transporte o envases reutilizables que sirvan para la manipulación y protección de mercancías.
+Los elementos de transporte admitidos en esta categoría son todos aquellos que son reutilizables e importados por el beneficiario para su uso exclusivo, tales como envolturas, empaques, paletas y otros dispositivos protectores de las mercancías, que previenen daños posibles durante la manipulación y el transporte de las mismas.
+En ambos casos, los envases y elementos de transporte no podrán ser utilizados en tráfico interno, excepto para la exportación de mercancías.

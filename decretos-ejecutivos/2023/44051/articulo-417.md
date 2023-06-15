@@ -1,0 +1,2 @@
+Artículo 417. Realización del reconocimiento físico. De requerirse el reconocimiento físico de las mercancías, la autoridad aduanera lo comunicará inmediatamente a la empresa y designará al funcionario encargado de realizarlo. Estando conforme el resultado del reconocimiento físico con la información declarada a la aduana, el funcionario autorizará inmediatamente el levante de las mercancías.
+Si se detectaren diferencias entre lo declarado y la información que debió declararse, se procederá conforme lo establecido en el artículo 267 inciso c. de este Reglamento.

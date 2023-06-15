@@ -1,0 +1,2 @@
+Artículo 215. Desconsolidación y desembalaje en el lugar de entrada. La Dirección General señalará las mercancías que pudiesen, eventualmente, ser objeto de desconsolidación y despaletización en el lugar de entrada.
+La autoridad po11uaria vigilará que los transportistas internacionales no despaleticen, paleticen, consoliden, desconsoliden o abran bultos en zonas dentro del puerto no habilitadas para ese efecto, salvo cuando corresponda, por haberse descargado bultos sueltos, o por razones de peso y balance y en los demás casos establecidos en la normativa vigente.

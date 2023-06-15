@@ -1,0 +1,3 @@
+Artículo 303. Permanencia a bordo de mercancías en la unidad de transporte. En forma excepcional, el depositario podrá solicitar a la autoridad aduanera, la autorización para no descargar de la unidad de transporte las mercancías ingresadas al depósito aduanero que, por sus características, sean de "difícil movilización o almacenamiento", de conformidad con los lineamientos que al efecto defina la Dirección General.
+Se permitirá, además, la no descarga de mercancías peligrosas para la salud y el medio ambiente, cuando el depósito aduanero ha sido previamente autorizado por la autoridad aduanera para ubicar o depositar este tipo de mercancías.
+En los casos de mercancías contenerizadas, deberán ser inspeccionadas en el puerto de ingreso con equipo de escaneo.

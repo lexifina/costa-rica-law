@@ -1,0 +1,2 @@
+Artículo 53. Garantía de operaciones. Únicamente los transportistas aduaneros indicados en el artículo 41 inciso c) de la Ley deberán garantizar sus operaciones en los términos regulados en el mismo artículo.
+En el caso de los transportistas internacionales terrestres que hagan circular mercancías al amparo del Reglamento Centroamericano sobre el Régimen de Tránsito Aduanero Internacional, se regirán por lo que este disponga.

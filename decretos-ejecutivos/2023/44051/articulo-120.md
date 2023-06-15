@@ -1,0 +1,5 @@
+Artículo 120. Autorización. La Dirección General admitirá la gestión para que una persona física designada por una persona jurídica, pueda actuar en su nombre y representación como apoderado especial aduanero, si la persona jurídica interesada cumple con los requisitos estipulados en el artículo 13 y 14 de este Reglamento, señalando, además, una breve descripción de las mercancías y capítulos arancelarios que constituyan el giro normal de su actividad, y se comprueben para la persona física a favor de la que se requiere autorización, los requisitos siguientes:
+a) Ser nacional de cualquiera de los países signatarios del Sistema de Integración Económica Centroamericana.
+b) Datos de inscripción del poder a fin de su verificación en el Registro Nacional por parte de la autoridad aduanera.
+c) La autoridad aduanera deberá verificar que la persona física designada no tiene vínculo laboral con el Estado o sus instituciones, excepto en el caso en que el poderdante sea una institución pública.
+d) Otros que establezca la Dirección General.

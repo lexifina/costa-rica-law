@@ -1,0 +1,11 @@
+Artículo 100. Requisitos adicionales. Para iniciar operaciones, el responsable de una terminal de carga deberá cumplir, además, con los siguientes requisitos:
+a) Contar con instalaciones separadas de acuerdo con la naturaleza de las mercancías y adecuadas para realizar operaciones de recepción, inspección, manejo de carga y salida de mercancías, de acuerdo con lo que disponga la Dirección General. De igual forma deberá separar el área donde se encuentren mercancías que aún no han cumplido con los procedimientos aduaneros respectivos para su exportación, del área donde se encuentren mercancías cuya exportación ha sido autorizada por la autoridad aduanera y que se disponen para la salida efectiva del territorio aduanero.
+b) Regular el acceso a las instalaciones de forma que se garantice la seguridad de las mercancías.
+c) Contar con equipo y herramientas en condiciones óptimas para la prestación del servicio.
+d) Notificar en forma inmediata a la autoridad aduanera sobre la ocurrencia de pérdidas, hurtos, robos, daños u otra circunstancia que afecte las mercancías bajo su custodia.
+e) Contar con oficinas y el equipo necesario, destinados al uso de las autoridades administrativas que tuvieren que ejercer controles sobre las operaciones de exportación.
+f) Acreditar y registrar ante la Dirección General el personal encargado de la manipulación de las mercancías y de la administración de la terminal de carga.
+g) Llevar registros de ingreso y salida de las mercancías a través de sistemas informáticos u otros medios autorizados, de acuerdo con los requerimientos de información que establezca la Dirección General.
+h) Comunicar a la aduana de control la hora de salida efectiva de las mercancías hacia la aduana de partida.
+i) Acreditar la propiedad o el derecho de uso de las instalaciones sobre las cuales se encuentren o pretendan construir las instalaciones, acompañando la documentación respectiva, si fuere arrendado deberá demostrarlo con el respectivo contrato.
+En el caso de que la empresa solicitante sea propietaria del bien inmueble, bastará con la indicación de los datos de inscripción del mismo, a fin ele la verificación por parte de la autoridad aduanera en el Registro Nacional de la Propiedad.

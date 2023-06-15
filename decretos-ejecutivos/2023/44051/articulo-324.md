@@ -1,0 +1,1 @@
+Artículo 324. Regímenes especiales tributarios. No procede el pago diferido de la obligación tributaria aduanera de las importaciones cuya mercancía o consignatario goce de un beneficio fiscal aduanero, tales como, pero no limitado a: impo1iación definitiva con destino a Golfito, con exención parcial o total, perfeccionamiento activo, tiendas libres, devolutivo de derechos.

@@ -1,0 +1,7 @@
+SECCIÓN III
+AMPLIACIONES Y TRASLADOS
+Artículo 72. Ampliación y traslado. Por ampliación se entenderá el incremento del área de construcción, de los patios o de ambos, en terrenos contiguos al área habilitada, destinada a la recepción, depósito, inspección y despacho de mercancías, así como a la prestación de servicios complementarios.
+Igualmente se autorizará la ampliación en terrenos colindantes, separados en común, por una servidumbre, una vía pública, vía férrea, o por calle de uso privado.
+Las mercancías ubicadas en las instalaciones de los depositarios no podrán trasladarse hacia el área ampliada ni viceversa, debiéndose utilizar cada área únicamente para el fin que fueron autorizadas, especializándose según el tipo de servicios prestados.
+Se podrán reubicar mercancías entre ambas instalaciones, con autorización de la aduana, previa solicitud y justificación del caso, para las actividades autorizadas conforme al artículo 116 del RECAUCA IV, conforme al procedimiento y requisitos establecidos por resolución de alcance general. La Dirección deberá resolver las gestiones reguladas en el presente artículo, dentro del plazo de diez días hábiles a partir de su presentación, siempre y cuando se cumplan los requisitos establecidos en el presente artículo.
+Se entenderá por traslado de instalaciones el cambio de ubicación del depósito a un nuevo asiento territorial. No se autorizará ninguna ampliación o traslado de instalaciones, cuando el interesado no se encuentre al día en el pago de las obligaciones tributarias.

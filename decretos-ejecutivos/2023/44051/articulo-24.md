@@ -1,0 +1,1 @@
+Artículo 24. Ejecución de la garantía. Determinada la responsabilidad patrimonial del auxiliar para con el Fisco, se procederá a la ejecución de la garantía, cuando corresponda, de conformidad con los artículos 65 y 66 de la Ley.

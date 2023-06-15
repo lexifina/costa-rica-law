@@ -1,0 +1,1 @@
+Artículo 432. Envíos postales en tránsito. Las formalidades aduaneras se concretarán a las mínimas necesarias a efecto de facilitar el ingreso y la salida de las mercancías contenidas en los envíos postales, según lo que establezca la Dirección General.

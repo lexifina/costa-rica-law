@@ -1,0 +1,1 @@
+Artículo 547. Órgano competente para realizar la subasta pública. La venta de mercancías en subasta pública se efectuará por los medios electrónicos disponibles y corresponderá a la aduana en cuya jurisdicción se encuentra la mercancía.

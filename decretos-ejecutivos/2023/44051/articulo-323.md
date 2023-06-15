@@ -1,0 +1,4 @@
+Artículo 323. Requisitos para el pago diferido. La autoridad aduanera autorizará el pago diferido de la obligación tributaria aduanera obligación tributaria aduanera de las importaciones de materias primas, bienes de consumo final y bienes de capital, deberá cumplir con los siguientes requisitos:
+a. Tener un mínimo de un año de inscripción como obligado tributario.
+b. Estar al día en el pago de sus obligaciones tributarias, aduaneras y obrero patronales.
+c. Rendir una garantía global, conforme a alguno de los instrumentos definidos en el artículo 65 de la Ley General de Aduanas, sobre el veinte por ciento (20%) del monto total de las obligaciones tributarias aduaneras de las mercancías importadas en el año precedente; excepto para los operadores económicos autorizados de conformidad con el artículo 267 de la Ley.

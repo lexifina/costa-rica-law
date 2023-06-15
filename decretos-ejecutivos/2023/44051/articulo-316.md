@@ -1,0 +1,1 @@
+Artículo 316. De los procedimientos. El Servicio Aduanero establecerá y publicará los procedimientos obligatorios para el trámite, operación y control de las actividades permitidas a que se someterán las mercancías dentro del depósito aduanero.

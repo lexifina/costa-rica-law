@@ -1,0 +1,2 @@
+Artículo 262. Extracción de muestras en la verificación de las mercancías. La autoridad aduanera, en el proceso de verificación inmediata, podrá extraer muestras de acuerdo con las condiciones y procedimientos establecidos en este Reglamento. La muestra extraída constituirá muestra certificada para todos los efectos legales.
+Será aplicable lo establecido en la Sección IV del Capítulo IV del Título VI de este Reglamento.

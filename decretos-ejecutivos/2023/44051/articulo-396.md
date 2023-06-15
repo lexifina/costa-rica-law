@@ -1,0 +1,1 @@
+Artículo 396. Información de la guía de entrega rápida. Cada guía de entrega rápida que ampara un envío deberá contener la información proporcionada por el remitente en cuanto al nombre del consignatario, la descripción de la mercancía, precio según factura y el flete.

@@ -1,0 +1,4 @@
+SECCIÓN VIII
+DECLARACIÓN ACU MULADA
+Artículo 347. Declaración provisional de mercancías. Las personas físicas o jurídicas que cuenten con un año de inscripción como obligado tributario y los operadores económicos autorizados, podrán transmitir ante la misma aduana de jurisdicción, las declaraciones de mercancías provisionales regulada en el artículo 112 bis de la Ley, incluso de forma anticipada, la cual contendrá la información que establece los incisos a., b., d., h.,i. del artículo 246 de este Reglamento, así como una descripción general de las mercancías y la obligación tributaria aduanera determinada con base en el valor aduanero de las mercancías.
+La información consignada en las declaraciones provisionales será perfeccionada o ajustada en la declaración aduanera acumulada transmitida ante la misma aduana, la cual deberá contener los requisitos y documentos establecidos para el régimen de importación definitivo.

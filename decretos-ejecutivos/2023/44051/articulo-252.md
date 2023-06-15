@@ -1,0 +1,1 @@
+Artículo 252. Autorectificación y fiscalización. Cuando sea notificado el inicio de un procedimiento fiscalizador, el sujeto fiscalizado podrá autorectificar la declaración de mercancías, únicamente después de comunicada la conclusión de la actuación fiscalizadora o hasta que la resolución que determine la obligación tributaria aduanera, quede en firme.
