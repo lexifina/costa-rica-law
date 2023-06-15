@@ -1,0 +1,1 @@
+Artículo 10.-Del uso administrativo del vehículo de la Acaldía: Es aquel vehículo destinado al cumplimiento de las funciones propias del Acalde/ o la Vice Alcaldesa de la municipalidad, con la finalidad de facilitar y mejorar el desempeño de sus funciones.

@@ -1,0 +1,1 @@
+Artículo 2º-Los vehículos de la Municipalidad de Limón portarán permanentemente, en el sitio reglamentario y de manera totalmente visible, una o dos placas especiales, con numeración oficial y un distintivo en sus costados, en el cual se indique claramente el nombre de la identidad.
