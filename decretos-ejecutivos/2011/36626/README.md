@@ -15,3 +15,4 @@ Reglamento para el Otorgamiento de Visas de Ingreso a Costa Rica
 | --- | --- | --- |
 | 1 | 2011-06-20 | la propia norma |
 | 2 | 2015-01-27 | Decreto Ejecutivo 38844 (2015-01-27) |
+| 3 | 2023-06-15 | Decreto Ejecutivo 44187 (2023-06-15) |
