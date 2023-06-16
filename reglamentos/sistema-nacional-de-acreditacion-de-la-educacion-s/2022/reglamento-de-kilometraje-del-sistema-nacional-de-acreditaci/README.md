@@ -14,3 +14,4 @@ Reglamento de kilometraje del Sistema Nacional de Acreditación de la Educación
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-01-25 | la propia norma |
+| 2 | 2023-06-16 | Reglamento 0 (2023-06-16) |
