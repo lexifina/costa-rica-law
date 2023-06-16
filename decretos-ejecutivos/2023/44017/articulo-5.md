@@ -1,0 +1,1 @@
+Artículo 5º-Daño a equipo o instalaciones del parqueo por parte de usuarios. En la utilización de los estacionamientos del AIJS, los usuarios deberán comportarse con prudencia; el usuario que ocasione daños dentro del estacionamiento sea a la infraestructura, o propiedad de terceros, será responsable ante el afectado por cualquier reclamo civil o penal que se origine.

@@ -1,0 +1,5 @@
+Artículo 15.-Reclamaciones por cobros en estacionamientos públicos del AIJS. Si un usuario de los estacionamientos públicos identifica un cobro incorrecto por los servicios de estacionamiento, registrado este por medio de cualquier dispositivo inalámbrico de pago, el usuario deberá presentar el reclamo formal ante la administración del parqueo dentro de los dos (2) meses siguientes al registro del cargo en disputa, so pena de rechazo. El reclamo deberá presentarse de la siguiente forma:
+a. Completar el formulario de cobro erróneo brindado por la administración del parqueo, y presentarlo a la administración del parqueo.
+b. Aportar copia de documento de identificación del interesado (cédula de identidad, carné de residente, pasaporte).
+c. Adjuntar estado de cuenta, o documento idóneo que refleje la deducción del monto en disputa.
+La administración del parqueo comunicará la resolución del caso dentro de los siguientes quince (15) días naturales posteriores a la presentación del reclamo. En caso de ser rechazada la reclamación. el usuario podrá acudir a las instancias que considere pertinentes.

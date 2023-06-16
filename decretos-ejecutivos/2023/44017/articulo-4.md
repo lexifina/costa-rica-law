@@ -1,0 +1,3 @@
+CAPÍTULO II
+Disposiciones Generales
+Artículo 4º-Vehículo robado o hurtado dentro del parqueo. En el supuesto de que un vehículo sea robado o hurtado dentro del parqueo del Aeropuerto Internacional Juan Santamaría, el usuario deberá reportarlo de inmediato al personal de seguridad del parqueo. Adicionalmente el usuario del parqueo debe de interponer la denuncia ante la Policía Aeroportuaria y el Organismo de Investigación Judicial OIJ. Por su parte el Gestor del aeropuerto facilitará al usuario el acceso de cualquier personal de la compañía de seguros del afectado en caso de que corresponda hacer una inspección en el sitio para levantar el reporte.

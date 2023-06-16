@@ -1,0 +1,17 @@
+CAPÍTULO V
+Uso del Parqueo
+Artículo 19.-Del estacionamiento público. Sobre el uso general del estacionamiento.
+a. El horario de operación de este estacionamiento es de veinticuatro (24) horas, los siete (7) días de la semana.
+b. Se autoriza el ingreso a ese estacionamiento al público en general mediante la toma del respectivo tiquete, o bien con dispositivos inalámbricos de pago autorizados.
+c. Asimismo, podrán hacer uso de estos estacionamientos funcionarios del AIJS debidamente acreditados y autorizados para ello, según habilitación de una tarjeta o dispositivo de proximidad.
+d. En cualquier caso, el usuario será responsable de no dejar en el vehículo el tiquete, tarjeta o dispositivo de proximidad; a la vez de tomar las previsiones respectivas en caso de utilizar un dispositivo inalámbrico de pago que necesariamente deba estar adosado al vehículo.
+e. Es responsabilidad del usuario estacionar correctamente su vehículo, cerrarlo o bloquearlo según corresponda, y retirar del vehículo las llaves.
+f. Si el usuario pierde el tiquete, deberá presentarse a la oficina de administración de estacionamientos del AIJS, ubicada en el estacionamiento principal zona inferior a un costado de las barreras de entrada, portando documentación idónea que acredite que es propietario del vehículo, o cuenta con legítimo derecho de uso.
+g. Una vez validada la información se procederá con la reimpresión del tiquete para que pueda pagar la tarifa horaria y salir del parqueo, según registro de estancia que conste en los sistemas del estacionamiento.
+h. En caso de que la pérdida del tiquete se produzca, mediante los sistemas de control de accesos la administración del parqueo determinará la estancia del vehículo para el cálculo del cobro respectivo. Una vez cancelado el mismo, y así consta en los sistemas del estacionamiento, se emitirá al interesado un tiquete de validación para la salida.
+i. Los usuarios de los estacionamientos se obligan a respetar la demarcación, señalización, y las instrucciones que el personal de seguridad y personal de la administración del parqueo le giren en relación con la utilización del servicio de estacionamiento. Se prohíbe estacionar en cualquier área no demarcada para esos efectos, como bordes de aceras con línea amarilla, gabinetes de hidrantes, espacios de uso exclusivo, espacios para busetas.
+j. Este estacionamiento puede ser utilizado por cualquier usuario que realice el pago de la tarifa del estacionamiento público del AIJS, tour operadores o alquiler de vehículos ambos en convenio con la administración del parqueo, empleados del AIJS previamente aprobados por la administración del parqueo, y personas que conduzcan motocicletas las cuales, están exentas de la tarifa del estacionamiento público.
+k. La velocidad máxima autorizada para circular dentro del estacionamiento es de 10 kilómetros por hora, y se permite el ingreso con una altura máxima de 2.95 metros.
+l. Los espacios preferenciales reservados podrán ser utilizados por usuarios para estacionar: vehículos autorizados con placa especial dada por las autoridades competentes, vehículos que transporten adultos mayores, mujeres embarazadas, personas con capacidades reducidas físicas o que porten una acreditación médica de su condición.
+m. La señalización vial, tanto horizontal como vertical, deberá ser respetada.
+n. Los espacios reservados con rótulo para tour operadores o alquiler de vehículos, podrán ser utilizados únicamente por las empresas a las cuales fueron asignados.
