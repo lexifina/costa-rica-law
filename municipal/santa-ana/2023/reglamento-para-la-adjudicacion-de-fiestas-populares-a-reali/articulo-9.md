@@ -1,0 +1,1 @@
+Artículo 9º-Desempate. En caso de que dos o más solicitudes resulten aprobadas, el Concejo Municipal decidirá por medio de la suerte, utilizando una moneda cuando sean dos empates y un papelito marcado sacado de un copón, en caso de tres o más empates.

@@ -1,0 +1,12 @@
+MUNICIPALIDAD DE SANTA ANA
+Que, en el Diario Oficial La Gaceta N° 59, del 30 de marzo del 2023, se publicó para consulta pública no vinculante el "Reglamento para la Adjudicación de Fiestas Populares a Realizarse en Espacio Público Municipal del Cantón de Santa Ana" y, vencido el plazo, no se recibieron observaciones; por lo que, mediante Acuerdo N° 12 adoptado por el Concejo Municipal de Santa Ana en Sesión Ordinaria N° 160-2023, celebrada el 23 de mayo del 2023, se aprobó de forma definitiva el Reglamento precitado, ordenándose la segunda publicación para su entrada en vigor, conforme al artículo 43 del Código Municipal, Ley N° 7794, con el siguiente texto:
+"Reglamento para la Adjudicación de Fiestas
+Populares a Realizarse en espacio público
+Municipal del Cantón de Santa Ana.
+MUNICIPALIDAD DEL CANTÓN DE SANTA ANA
+Con fundamento en las disposiciones de los artículos 11, 169 y 170 de la Constitución Política; 4, 11, 13 y 16 de la Ley General de la Administración Pública número 6227; 4 inciso a), 13 inciso c) y d), 43, 88 y 92 del Código Municipal número y la Ley de Regulación y Comercialización de Bebidas con Contenido Alcohólico número 9047.
+Considerando:
+I.-Que el artículo 2 del Decreto Ejecutivo 36777, dispone que "Las ferias, festivales, exposiciones de diversa índole, carnavales, topes y otros eventos similares que sean organizados por iniciativa y financiamiento de personas de derecho privado, tanto físicas, jurídicas, asociaciones y/o comunidades organizadas, deberán contar con la autorización expresa por parte de la respectiva Municipalidad. Asimismo, deberán cumplir con todos los permisos que exija el ordenamiento jurídico, en salvaguarda de los intereses locales y derechos fundamentales de sus vecinos, así como con el pago de las patentes respectivas, ."
+II.-Que resulta necesario establecer parámetros objetivos para autorizar la organización de actividades ocasionales como ferias, festivales, exposiciones de diversa índole, carnavales, topes y afines, en espacios públicos.
+Por tanto, se promulga el siguiente reglamento:
+Artículo 1º-Objeto. El objeto del presente Reglamento es regular las condiciones que debe cumplir una organización de vecinos o legalmente constituida para resultar autorizada para la realización de actividades ocasionales como ferias, festivales, exposiciones de diversa índole, carnavales, topes y afines en espacios públicos del cantón de Santa Ana.

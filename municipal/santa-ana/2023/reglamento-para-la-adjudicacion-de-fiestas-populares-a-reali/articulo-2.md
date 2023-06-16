@@ -1,0 +1,1 @@
+Artículo 2º-Ámbito de aplicación. Este reglamento será aplicado a toda solicitud para realizar ferias, festivales, exposiciones de diversa índole, carnavales, topes y afines en espacio público municipal, con fines benéficos u orientado al desarrollo de la comunidad o a un servicio social.

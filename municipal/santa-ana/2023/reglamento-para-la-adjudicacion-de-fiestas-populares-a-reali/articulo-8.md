@@ -1,0 +1,1 @@
+Artículo 8º-Múltiples solicitudes. En caso de recibir más de una solicitud, una vez transcurrido el plazo para la recomendación del Concejo de Distrito, el Concejo discutirá cada una, en orden cronológico empezando por la más antigua.

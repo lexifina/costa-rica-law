@@ -1,0 +1,1 @@
+Artículo 11.-Licencias. Una vez obtenido el acuerdo de autorización, el solicitante deberá cumplir con el trámite para obtener las licencias comerciales y de expendio de bebidas con contenido alcohólico ante el Proceso de Patentes y Licencias Municipales.

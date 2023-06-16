@@ -1,0 +1,2 @@
+Artículo 10.-Acuerdo. El acuerdo municipal que apruebe una solicitud tendrá indicación expresa de la información de los puntos 2, 3, 4 y 5 del artículo 5 anterior.
+En caso de que la actividad se desarrolle sobre una vía pública cantonal, el acuerdo describirá el tramo exacto de la vía a ocupar, la fecha del evento, si se autoriza el cierre total o parcial y en qué horario aplicará el cierre. Y que en todo momento debe respetarse el ancho mínimo libre para circulación peatonal.
