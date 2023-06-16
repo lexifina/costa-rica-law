@@ -1,0 +1,2 @@
+Artículo 29.- Apertura de las ofertas La Proveeduría será la responsable de llevar a cabo la apertura de las ofertas de todos los procedimientos que se promuevan, una vez hayan concluido los plazos para la recepción de ofertas establecidos dependiendo del tipo de procedimiento promovido.
+Por otra parte, y en caso de ser necesario, la Proveeduría será la responsable de dejar sin efecto un concurso antes de recibir ofertas cuando existan razones justificadas debidamente acreditadas en resolución motivada que conste en el expediente de la contratación.

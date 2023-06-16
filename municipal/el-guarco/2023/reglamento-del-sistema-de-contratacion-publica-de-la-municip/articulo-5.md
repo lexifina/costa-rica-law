@@ -1,0 +1,1 @@
+Artículo 5.- Responsabilidad administrativa. En materia de responsabilidad administrativa y de sanciones se aplicarán las disposiciones establecidas en la Ley General de Contratación Administrativa (Ley No.9986) y su Reglamento.

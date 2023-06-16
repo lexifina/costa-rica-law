@@ -1,0 +1,6 @@
+Artículo 9.- Responsabilidades de los participantes en los procesos de contratación. En el cumplimiento de sus funciones, todos los funcionarios durante una o varias etapas del proceso de contratación deberán:
+a. Procurar el correcto uso de los fondos públicos y denunciando ante la autoridad competente cualquier actividad o situación contraria al correcto manejo de los recursos públicos.
+b. Hacer uso del Sistema Digital Unificado para todas las comunicaciones relacionadas con los procesos de contratación tanto internas como externas, con el objetivo de mantener actualizado el expediente respectivo.
+c. Digitalizar e incluir como archivo en formato PDF o según lo disponga el pliego de condiciones de la contratación respectiva, en el módulo que corresponda, cualquier documento que no esté disponible en formato electrónico y que sea parte del procedimiento de una contratación.
+d. Mantener actualizado el expediente de los Convenios Marco incorporando todos los antecedentes de su decisión de compra, para su revisión y control posterior, como institución usuaria de un Convenio Marco.
+e. Actuar en el ejercicio de sus funciones, con estricto apego al bloque de legalidad, al deber de probidad y mantener un actuar apegado a los más altos principios éticos como funcionario público.

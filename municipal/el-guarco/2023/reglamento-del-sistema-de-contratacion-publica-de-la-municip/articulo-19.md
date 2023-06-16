@@ -1,0 +1,32 @@
+Artículo 19.- Funciones de Alcaldía. La Alcaldía como máxima dependencia administrativa tendrá a su cargo las siguientes funciones relacionadas con procesos de contratación:
+a) Aprobar las decisiones iniciales de los procedimientos de contratación de bienes, servicios y obras que de conformidad con la Ley y el Reglamento le corresponde, como el caso de las contrataciones de obra pública que se promueven por medio de una licitación mayor.
+b) Solicitar ante la Dirección de Contratación Pública la autorización respectiva para la exclusión total o parcial del uso del sistema digital unificado, en aquellas situaciones de caso fortuito o fuerza mayor en las que no sea posible el uso de esta plataforma, a efecto de evitar la nulidad absoluta.
+c) Procurar que todos los funcionarios de la institución que tengan relación directa o indirecta con los procesos de contratación de bienes, servicios y obras tengan acceso a la capacitación, acompañamiento y asesoría en materia de contratación pública.
+d) Garantizar que los funcionarios de la proveeduría cumplan con los perfiles profesionales requeridos acordes al puesto y a las labores que desempeñan.
+e) Autorizar el inicio de un procedimiento, sin disponer de recursos presupuestarios
+f) Solicitar el desarrollo de investigaciones preliminares o los procedimientos disciplinarios correspondiente a efectos de determinar la existencia de una eventual responsabilidad por parte de los funcionarios a cargo de una o varias etapas de los procedimientos de contratación.
+g) Revocar el Acto Final originalmente dictado bajo su competencia, por medio de una resolución debidamente motivada que haga referencia a las razones de oportunidad o legalidad.
+h) Gestionar el otorgamiento de la escritura pública, cuando se trate de bienes sujetos a inscripción en el Registro Nacional .
+i) Aprobar el estudio técnico que se realice para demostrar que la opción seleccionada para la compra o arrendar es la más rentable y viable
+j) Aprobar las modificaciones a los contratos que previamente adjudicó a solicitud del Administrador del Contrato, así como resolver motivadamente las gestiones de cambio en los bienes o servicios adjudicados.
+k) Aprobar las modificaciones excepcionales a los contratos que no sean de obra pública.
+l) Garantizar para los proyectos de obra pública que se dispone del recurso humano calificado, propio o contratado, para asegurar la calidad del diseño y la obra, la correcta ejecución del objeto contractual y la observancia de buenas prácticas en gestión de proyectos.
+m) Declarar de oficio o a petición de parte, mediante resolución motivada la caducidad de un procedimiento cuya adjudicación esté bajo su responsabilidad, para lo cual podrá solicitar los informes o estudios que se consideren necesarios.
+n) Solicitar y revisar los informes semanales de fiscalización o supervisión, en aquellas obras en las cuales se contrate personal para tal efecto, así como dar seguimiento a las medidas correctivas y preventivas que deberán adoptarse oportunamente para el cumplimiento de los objetivos propuestos.
+o) Emitir un acto motivado en el caso de donación de bienes patrimoniales entre instituciones públicas, y garantizar el adecuado registro y control según corresponda. Para lo cual se apoyará de los criterios técnicos, jurídicos, financieros y de conveniencia por parte de la Dirección Administrativa Financiera, la Gestión Jurídica y las Unidades Administrativas que considere necesario.
+p) Aprobar las donaciones de bienes muebles cuando la institución sea donante, mediante un acto motivado en el cual quede plasmado la satisfacción del interés público que se persigue con la donación.
+q) Aprobar las donaciones de bienes muebles cuando la institución sea la donataria o la que recibe la donación, mediante un acto motivado de aceptación en el cual quede plasmado interés institucional que se persigue con los bienes recibidos.
+r) Emitir o suscribir en tiempo el acto que rechaza o acoge un recurso de revocatoria interpuesto, para aquellos actos finales bajo su responsabilidad.
+s) Notificar al recurrente la respectiva resolución bajo su responsabilidad.
+t) Declarar la nulidad absoluta cuando en el conocimiento de un recurso se considere que se encuentran en presencia de un vicio causante de nulidad absoluta, evidente y manifiesta, de conformidad con lo dispuesto en el artículo 173 de la Ley General de la Administración Pública
+u) Aprobar mediante acto debidamente motivado, las cesiones de los contratos de bienes, servicios y Obras que previamente adjudicó, ante la solicitud formulada por el cedente y la aceptación del cesionario.
+v) Autorizar las suspensiones del plazo del contrato en las licitaciones adjudicadas por la Alcaldía o el Concejo Municipal conforme a derecho.
+w) Decretar el rescate de un servicio subcontratado para ser explotado directamente por la Administración, cuando existan fundados motivos sobrevinientes de interés público para proceder a asumir directamente la prestación del servicio, le corresponde al Concejo aquellos contratos que adjudicó previamente y a la alcaldía todos los demás.
+x) Aprobar mediante acto motivado la supresión de un servicio subcontratado, cuando existan fundados motivos sobrevinientes de interés público, le corresponde al Concejo aquellos contratos que adjudicó previamente y a la alcaldía todos los demás.
+y) Gestionar la formalización de los finiquitos de los contratos de bienes, servicios u obras.
+z) Emitir la resolución final del procedimiento sancionatorio contra sujetos particulares en aquellas contrataciones en las que la adopción del acto final es de su competencia.
+aa) Resolver los recursos de apelación en contrato del acto que emita la Proveeduría para la aplicación de multas o cláusulas penales.
+bb) Resolver los recursos de apelación en contrato del acto que emita la Proveeduría para la ejecución de garantías de cumplimiento.
+cc) Resolver los recursos de revocatoria en contrato del acto que emita la Proveeduría para la aplicación de multas por recursos temerarios.
+dd) Emitir la resolución final del procedimiento sancionatorio contra sujetos particulares en aquellas contrataciones en las que la adopción del acto final es de su competencia y resolver los recursos de revocatoria en contrato del acto que emita la Proveeduría.
+ee) Cualquier otra derivada de la Ley General de Contratación Pública, Nº 9986, su Reglamento y cualquier otra normativa aplicable.

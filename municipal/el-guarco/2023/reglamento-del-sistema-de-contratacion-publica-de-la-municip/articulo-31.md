@@ -1,0 +1,2 @@
+Artículo 31.- Recomendación de la adjudicación. La recomendación de adjudicación, de declaratoria de desierto o infructuoso del concurso, o de adjudicación parcial, será redactada por la Proveeduría tomando en cuenta el resultado del análisis de las ofertas según el estudio correspondiente.
+La recomendación sobre el acto final será remitida por la Proveeduría al Alcalde o al Concejo Municipal, como corresponda, para que sea dictada la adjudicación.

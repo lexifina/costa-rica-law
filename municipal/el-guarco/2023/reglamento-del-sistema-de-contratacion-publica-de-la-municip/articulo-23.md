@@ -1,0 +1,1 @@
+Artículo 23.- Publicación del Plan de Adquisiciones. Será responsabilidad de la Proveeduría, divulgar el respectivo Plan de adquisiciones y sus eventuales modificaciones a través del sistema digital unificado.

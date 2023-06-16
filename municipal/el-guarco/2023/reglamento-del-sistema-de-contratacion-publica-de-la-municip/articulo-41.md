@@ -1,0 +1,2 @@
+Artículo 41. El Finiquito. El Administrador del Contrato será el responsable de gestionar en tiempo la formalización de los finiquitos de los contratos de obra pública, bajo su responsabilidad. En los casos de contratos de bienes y servicios, la gestión del finiquito se realizará si el pliego de condiciones así lo estableció.
+La firma del finiquito deberá ajustarse a los plazos previstos en la Ley General de Contratación Pública, Nº 9986.
