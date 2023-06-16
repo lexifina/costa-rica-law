@@ -1,0 +1,5 @@
+Artículo 37. Facultades de la Auditoría Interna para ejercer vigilancia sobre el control interno
+La Auditoría Interna, sin perjuicio de lo establecido en las normas antes citadas, sobre la función que debe desarrollar, ésta tiene la facultad de:
+a) Proporcionar un criterio independiente a la Junta Directiva General y la Alta Administración de la calidad y la eficacia del control interno de la entidad, la gobernanza de riesgos y de los procesos de Gobierno Corporativo.
+b) Contribuir al logro de los objetivos y metas institucionales, mediante la formulación de un plan anual de labores, que cumpla con los lineamientos que establece la Contraloría General de la República; direccionado a evaluar los procesos y proyectos de mayor riesgo e impacto estratégico, a efectos de señalar las debilidades de control interno y proponer las recomendaciones que estime pertinentes.
+c) Cerciorarse de que la Administración activa tome las medidas de control interno que señala la Ley General de Control Interno, en los casos de desconcentración de competencias o en la tercerización de servicios y revisar en forma continua la operación efectiva de los controles críticos.

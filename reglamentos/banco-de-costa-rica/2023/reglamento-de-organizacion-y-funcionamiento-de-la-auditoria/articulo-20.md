@@ -1,0 +1,4 @@
+Artículo 20. Pericia y cuidado profesional
+El auditor interno debe ejercer sus funciones en relación con todas las gerencias y demás dependencias de la Institución, mediante la asignación de funciones a cualquier persona trabajadora idónea bajo su dirección.
+Tanto el auditor o subauditor internos como las personas trabajadoras de la Auditoría Interna deben cumplir con los requisitos de pericia y cuidado profesional establecidos en las Normas generales de la auditoría interna en el sector público; de manera que hagan valer su competencia con independencia funcional y de criterio.
+El auditor interno, el subauditor interno y las personas trabajadoras de la Auditoría Interna deben ejecutar sus funciones de conformidad con el Manual de la Auditoría Interna del Banco de Costa Rica y en apego al marco jurídico y técnico establecido para ejercicio de la función de auditoría.

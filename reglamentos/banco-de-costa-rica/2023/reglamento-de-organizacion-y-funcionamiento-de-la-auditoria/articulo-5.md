@@ -1,0 +1,3 @@
+Artículo 5. Independencia de criterio y objetividad
+El auditor interno debe asegurar que las personas trabajadoras a su cargo mantengan y muestren una actitud de criterio independiente en el desarrollo de su trabajo y actúen de manera objetiva, profesional e imparcial, en los hechos y en la apariencia, tal y como lo establecen las normas 101 y 102 Normas generales de auditoría para el sector público.
+También se deben comportar y desempeñar de acuerdo con las Directrices generales sobre principios y enunciados éticos a observar por parte de los jerarcas, titulares subordinados, funcionarios de la Contraloría General de la República, auditoría interna y funcionarios públicos en general.

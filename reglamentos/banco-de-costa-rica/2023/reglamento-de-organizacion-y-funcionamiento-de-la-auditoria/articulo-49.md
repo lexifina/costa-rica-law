@@ -1,0 +1,4 @@
+Artículo 49. De los informes dirigidos a los titulares subordinados
+De conformidad con lo dispuesto en el artículo 36 de la Ley General de Control Interno, los informes remitidos por la Auditoría Interna a los titulares subordinados, en los cuales se recomiende efectuar alguna acción correctiva, dispone de un plazo máximo e improrrogable de diez días hábiles, contados a partir de la fecha en que se reciba la comunicación, para ordenar la implementación de las recomendaciones.
+El titular subordinado debe comunicar a la Auditoría Interna, en ese mismo plazo de diez días hábiles, el nombre de los responsables y el plazo estimado para poner en ejecución la implantación de las recomendaciones cuando proceda.
+En caso de que el titular subordinado discrepe de las recomendaciones de la Auditoría Interna dentro del mismo plazo debe seguir el procedimiento indicado en el artículo 36 de la Ley General de Control Interno.

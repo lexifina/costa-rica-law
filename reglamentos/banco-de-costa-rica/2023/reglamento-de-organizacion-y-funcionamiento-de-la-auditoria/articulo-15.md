@@ -1,0 +1,2 @@
+Artículo 15. Requisitos para el nombramiento del auditor y del subauditor internos
+Los requisitos y otras condiciones para ocupar los puestos de auditor y subauditor internos se deben establecer en los respectivos perfiles de puestos aprobados por la Junta Directiva General, conforme las propuestas técnicas del perfil que le presente la Administración, los cuales deben estar en concordancia con los Lineamientos sobre gestiones que involucran a la auditoría interna presentadas ante la Contraloría General de la República.

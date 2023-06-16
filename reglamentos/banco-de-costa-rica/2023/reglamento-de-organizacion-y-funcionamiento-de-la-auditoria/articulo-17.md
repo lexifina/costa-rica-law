@@ -1,0 +1,6 @@
+Artículo 17. Condiciones laborales para el auditor y subauditor interno
+La Junta Directiva General debe definir las regulaciones administrativas, el régimen de empleo y remuneraciones aplicables al auditor y subauditor internos en donde se norme, entre otros, temas tales como: control de tiempo, evaluación del desempeño, régimen de remuneración, revisión de salarios, pago de incapacidades médicas, permisos y vacaciones.
+El cuerpo normativo puede ser independiente o de modo integrado a los ya existentes en la organización; sin embargo, se excluye la aplicación de las convenciones colectivas que lleguen a negociarse, las cuales no aplican a quienes funjan como auditor o subauditor. Esta normativa interna debe considerar en todo momento, al menos lo siguiente:
+a. Que garantice la igualdad de trato en relación con las que rigen en la Institución para los niveles dependientes del jerarca o del mismo rango del auditor y subauditor internos.
+b. Que no afecte negativamente el funcionamiento y la independencia funcional de criterio de la actividad de Auditoría Interna, ni la objetividad del auditor o subauditor internos.
+c. Que no interfiera en la independencia de criterio del auditor o del subauditor internos, para lo que deben ser congruentes con la naturaleza de dicha actividad.

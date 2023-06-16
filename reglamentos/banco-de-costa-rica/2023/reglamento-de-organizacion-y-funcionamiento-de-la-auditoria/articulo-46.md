@@ -1,0 +1,5 @@
+Artículo 46. De los lineamientos para la supervisión de servicios de Auditoría Interna
+La Auditoría Interna debe establecer lineamientos y herramientas que faciliten la supervisión, la identificación oportuna de situaciones que se deben de atender y establecer los cursos de corrección que sean necesarios.
+El auditor interno y el resto del personal de la Auditoría Interna se deben asegurar de que las comunicaciones del trabajo sean precisas, objetivas, claras, concisas, constructivas y oportunas.
+Los análisis efectuados deben estar respaldados debidamente en papeles de trabajo que en su estructuración y contenido deben cumplir con los lineamientos establecidos en el Manual de la Auditoría Interna del Banco de Costa Rica, como soporte principal de los hallazgos de auditoría y recomendaciones que se efectúen.
+Los hallazgos, las conclusiones y las recomendaciones de la Auditoría Interna, se deben respaldar con información suficiente, útil y competente. Las recomendaciones se deben alinear con los principios de eficacia, eficiencia y economía, sobre la gestión del control, para la contribución al fortalecimiento de la gestión evaluada.

@@ -1,0 +1,3 @@
+Artículo 16. Remoción del auditor y subauditor internos
+El auditor y el subauditor internos son inamovibles, solo pueden ser suspendidos o destituidos de su cargo por causa justa y por decisión emanada del jerarca, previa conformación del expediente, con oportunidad suficiente de audiencia y defensa en su favor, así como dictamen previo favorable de la Contraloría General de la República.
+Para lo cual, se debe cumplir con lo establecido en el artículo 46 de la Ley orgánica del sistema bancario nacional, el artículo 15 de la Ley orgánica de la Contraloría General de la República; y siguiendo los Lineamientos sobre gestiones que involucran a la Auditoría Interna presentadas ante la Contraloría General de la República.
