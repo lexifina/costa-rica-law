@@ -1,1 +1,0 @@
-Artículo 5º-Se deja sin vigencia la resolución DGH-026-2022/DGA-187-2022 de la Dirección General de Hacienda y de la Dirección General de Aduanas del Ministerio de Hacienda, San José, de las ocho horas y cincuenta y cinco minutos del día dieciséis de junio de dos mil veintidós, publicada en La Gaceta Nº 118 del viernes 24 de junio del 2022.
