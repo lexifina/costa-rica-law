@@ -1,0 +1,1 @@
+Artículo 46°- Registro presupuestario separado. Compete a la Administración Activa llevar un registro separado del monto del presupuesto asignado y aprobado por el Concejo para la Auditoría Interna, detallado por objeto del gasto y de facilitar su ejecución.

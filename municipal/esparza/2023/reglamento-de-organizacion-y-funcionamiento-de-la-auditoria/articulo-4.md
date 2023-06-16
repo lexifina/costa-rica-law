@@ -1,0 +1,1 @@
+Artículo 4°- Ámbito de aplicación del Reglamento. El presente Reglamento es de acatamiento obligatorio para todos los funcionarios que laboran en la Auditoría Interna y, en lo que resulte aplicable, a los demás funcionarios de la Administración Activa.

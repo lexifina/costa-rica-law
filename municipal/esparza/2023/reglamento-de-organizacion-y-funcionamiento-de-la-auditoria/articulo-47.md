@@ -1,0 +1,1 @@
+Artículo 47°- Administración y disposición de recursos asignados. La Auditoría Interna debe tener libertad para ejecutar sus recursos presupuestarios, de personal y de otra naturaleza para cumplir su plan de trabajo.

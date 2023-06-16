@@ -1,0 +1,2 @@
+Artículo 43°- Ámbito de acción. El ámbito de acción de la Auditoría, está conformado por la Municipalidad (incluido el Comité Cantonal de Deportes y Recreación), por los sujetos privados que reciban recursos trasferidos por la Municipalidad y por cualquier otro sujeto y órgano que corresponda a la competencia de la Auditoría, de acuerdo con lo previsto en la LGCI.
+Es obligación del Auditor Interno, definir y mantener actualizado el universo auditable, en el instrumento que corresponda.

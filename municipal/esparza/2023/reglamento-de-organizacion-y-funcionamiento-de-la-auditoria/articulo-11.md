@@ -1,0 +1,1 @@
+Artículo 11°- Competencia y pericia del personal. El personal que se contrate en la Auditoría Interna debe tener formación, conocimientos, destrezas, experiencia, credenciales, aptitudes y otras cualidades y competencias propias del tipo específico de auditoría a realizar y que lo faculten para el ejercicio de sus funciones.

@@ -1,0 +1,3 @@
+CAPÍTULO SÉTIMO
+Otros aspectos relativos al funcionamiento de la Auditoría Interna
+Artículo 44°- Asignación de recursos. Corresponderá al jerarca promulgar las disposiciones institucionales para regular el procedimiento, los plazos y el trámite interno de las solicitudes de dotación de recursos de la Auditoría Interna. El Estudio Técnico para Solicitud de Recursos se elaborará conforme a lo establecido en los Lineamientos de previa cita para su posterior presentación ante el jerarca, quien analizará la solicitud y dotará a la Auditoría Interna de los recursos necesarios. En caso de que la dotación de recursos sea menor a la solicitada, el jerarca deberá justificar debidamente las razones.

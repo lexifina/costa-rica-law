@@ -1,0 +1,1 @@
+Artículo 48°- Recursos Humanos de la Auditoría Interna. La Auditoría Interna debe contar con un número determinado de funcionarios que le permita ejercer su actividad con la debida oportunidad, cobertura y disponibilidad.

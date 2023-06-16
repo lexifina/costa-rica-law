@@ -1,0 +1,1 @@
+Artículo 22°- Jefe del Personal. El personal de Auditoría Interna estará sujeto a las disposiciones administrativas aplicables al resto del personal de la institución. El Auditor Interno actuará como jefe del personal a su cargo y en esa condición ejercerá todas las funciones que le son propias en la Administración del Personal.

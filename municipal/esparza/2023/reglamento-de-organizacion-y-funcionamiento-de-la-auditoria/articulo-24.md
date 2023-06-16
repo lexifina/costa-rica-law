@@ -1,0 +1,4 @@
+CAPÍTULO CUARTO
+Auditor Interno y personal de la Auditoría
+Artículo 24°- Nombramiento del Auditor (a) Interno (a). El nombramiento del Auditor Interno será por tiempo indefinido y lo realizará el Concejo Municipal, de acuerdo con lo establecido en el Código Municipal, en respuesta a lo dispuesto en la Ley General de Control Interno, y lo señalado sobre los nombramientos en los cargos de auditor y subauditor internos, de los Lineamientos sobre gestiones que involucran a la Auditoría Interna presentadas ante la CGR (R-DC-83-2018).
+Además, la Administración Activa en relación con el cargo y las funciones del Auditor Interno, debe hacer los ajustes en el Manual Descriptivo de Puestos de la Municipalidad de Esparza, para que los mismos contemplen y cumplan con la normativa definida en la Ley General de Control Interno, así como, lo establecido en los Lineamientos sobre gestiones que involucran a la Auditoría Interna presentadas ante la CGR (R-DC-83-2018).

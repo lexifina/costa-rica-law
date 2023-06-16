@@ -1,0 +1,3 @@
+CAPÍTULO SEGUNDO
+Ética, valores y compromiso
+Artículo 9°- Ética Profesional. El Auditor (a) deberá establecer formalmente los valores éticos que deben ser cumplidos por sus funcionarios, además deberán observar las normas éticas en el ejercicio de sus cargos y en sus distintas relaciones internas y externas que rigen su profesión, que se caracterizan por valores de: integridad, probidad, objetividad, confidencialidad, imparcialidad, justicia, respeto, transparencia y excelencia. Así mismo, deberán observarse las Normas Éticas establecidas por el colegio profesional al que se encuentran agremiados los funcionarios y cualquier otra normativa que dicte la Contraloría General de la República.
