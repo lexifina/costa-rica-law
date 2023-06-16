@@ -1,0 +1,1 @@
+Artículo 36.- Clasificación de la información. La jefatura inmediata deberá determinar si la información a la cual tiene acceso la persona teletrabajadora es de carácter confidencial y sensible a los intereses de la Municipalidad y proceder de acuerdo con el cumplimiento de las disposiciones legales y reglamentarias establecidas.

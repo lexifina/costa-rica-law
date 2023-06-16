@@ -1,0 +1,1 @@
+Artículo 35.- Deber de informar irregularidades. Cuando el rendimiento de las personas teletrabajadores no cumpla con lo programado, la jefatura inmediata debe realizar un análisis de las causas y junto con las evaluaciones anteriores, remitirlo a la CMT, la que debe formular las recomendaciones que correspondan para mejorar el desempeño del teletrabajador.

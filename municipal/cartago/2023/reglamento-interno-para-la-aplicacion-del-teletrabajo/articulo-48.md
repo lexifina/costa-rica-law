@@ -1,0 +1,1 @@
+Artículo 48.- Resolución de situaciones labores. El Departamento de Recursos Humanos, en asocio con la Alcaldía, resolverá las situaciones de orden laboral que presenten las personas teletrabajadoras y las jefaturas de acuerdo con la normativa vigente.

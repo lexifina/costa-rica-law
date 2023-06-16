@@ -1,0 +1,1 @@
+Artículo 39.- Responsabilidad de la persona teletrabajadora ante la falla de los recursos informáticos. La persona teletrabajadora notificará de forma inmediata a su superior jerárquico y TIC, dentro de las condiciones propias de esta modalidad, cualquier tipo de falla que se presente en el equipo informático, en especial si imposibilita el cumplimiento de sus funciones.

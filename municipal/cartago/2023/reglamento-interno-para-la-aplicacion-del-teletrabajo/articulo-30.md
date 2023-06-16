@@ -1,0 +1,1 @@
+Artículo 30.- Protección de activos. El teletrabajador es responsable de los activos institucionales que utilice y traslade hacia el lugar donde efectuará el teletrabajo. En caso de extravío, robo o destrucción, debe proceder de acuerdo con lo que establece la normativa vigente.

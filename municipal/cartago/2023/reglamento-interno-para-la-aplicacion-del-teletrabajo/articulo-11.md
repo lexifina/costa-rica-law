@@ -1,0 +1,2 @@
+Artículo 11.- Terminación por incumplimientos de la persona teletrabajadora.
+Cuando se demuestre que la persona teletrabajadora incumple con las disposiciones establecidas en este reglamento, demás normativa aplicable a esta modalidad de trabajo y en general, a sus obligaciones ordinarias, se dará por finalizada su participación en este programa, sin menoscabo de aplicar, por parte de la Administración, las medidas disciplinarias correspondientes de acuerdo con lo señalado en la normativa vigente y en el contrato de teletrabajo suscrito entre las partes.

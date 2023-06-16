@@ -1,0 +1,7 @@
+Artículo 41.- Responsabilidad de la persona teletrabajadora por el mal uso de los recursos informáticos. La persona teletrabajadora es responsable de darle a los recursos informáticos que utilice para su labor, el uso y cuido adecuados para su buen funcionamiento, y deberá asumir la responsabilidad disciplinaria y/o civil, que provoque el mal uso de los recursos informáticos por:
+1) Saturación de disco duro por descargas, reproducciones, visualizaciones o copias de música, videos, paquetes de software, fotos o cualquier elemento ajeno a las actividades teletrabajables.
+2) Detrimento del rendimiento de la PC por descarga, reproducción, visualización o copia de música, videos, paquetes de software, fotos y cualquier elemento ajeno a las funciones propias del teletrabajador.
+3) Falla de las herramientas de trabajo por la descarga, reproducción, visualización o copia de música, videos, paquetes de software o por la instalación no autorizada de aplicaciones no necesarias para el teletrabajo.
+4) Falla de las herramientas de trabajo por ingreso o visita a sitios web ajenos y/o no necesarios para el teletrabajo.
+5) En caso de que el equipo municipal sufra maltrato físico que produzca su deterioro.
+Comprobada la responsabilidad, previo cumplimiento del debido proceso, la persona trabajadora asumirá las sanciones que señalen las normas legales y reglamentarias que correspondan. Cuando la conducta de la persona funcionaria obligue a TIC a brindar asistencia técnica, la falta será considerada de mayor gravedad.

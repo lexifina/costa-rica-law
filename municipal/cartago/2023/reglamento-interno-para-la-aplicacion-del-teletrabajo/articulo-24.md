@@ -1,0 +1,3 @@
+Artículo 24.- Gastos adicionales de la persona teletrabajadora. Los gastos que amerite el desempeño de tareas con la modalidad del teletrabajo, tales como luz, agua, acondicionamiento del espacio físico, entre otros, serán cubiertos en su totalidad por la persona teletrabajadora. También correrán por su cuenta los medios de interconexión que sean necesarios.
+La Institución facilitará el escaneo de documentos, así como el uso de otros medios, que no generen erogación alguna.
+El uso de fotocopias será restringido dada la naturaleza del teletrabajo, y requerirá de autorización previa y justificada de la jefatura inmediata.

@@ -1,0 +1,1 @@
+Artículo 7.- Reserva de admisión. La Municipalidad se reserva la potestad de aprobar el ingreso a esta modalidad, en función de la conectividad disponible y otros aspectos que estime pertinentes. Sin embargo, la negativa de la Municipalidad no podrá ser arbitraria y/o violentar el trato igualitario de las personas funcionarias.

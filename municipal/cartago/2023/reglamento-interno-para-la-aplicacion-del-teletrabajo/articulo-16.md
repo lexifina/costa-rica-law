@@ -1,0 +1,1 @@
+Artículo 16.- Visto bueno de la jefatura. El servidor o servidora municipal debe contar con el visto bueno previo de su superior(a) jerárquico. En el caso de los Directores y Subdirectores de Área, deberán contar previamente con la autorización del Alcalde o Alcaldesa.

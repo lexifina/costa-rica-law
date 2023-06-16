@@ -1,0 +1,3 @@
+Artículo 10.- Potestad municipal de dejar sin efecto el contrato de teletrabajo.
+La Municipalidad puede dejar sin efecto la aplicación del teletrabajo en aquellos puestos que lo estime necesario, por razones de conveniencia institucional debidamente, en cuyo caso las personas que estén teletrabajando, deberán reintegrarse a su centro de trabajo ordinario.
+La resolución respectiva será adoptada por la Alcaldía, como resultado del análisis realizado por parte de la Jefatura. En el caso de los Directores y Subdirectores de Área, su situación se analizará primero en el seno de la CMT y luego de emitido su criterio, este deberá ser aceptado o rechazado por parte de la Alcaldía.

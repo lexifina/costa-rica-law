@@ -1,0 +1,1 @@
+Artículo 27.- Actualización tecnológica. Durante la ejecución del contrato, la persona teletrabajadora, mantendrá su derecho de participar en las diversas capacitaciones que imparte la Institución. Asimismo, será su responsabilidad mantenerse actualizada en cuanto al uso de las herramientas tecnológicas que demanda la ejecución de sus actividades.

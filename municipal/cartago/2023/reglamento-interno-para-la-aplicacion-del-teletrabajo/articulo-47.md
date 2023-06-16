@@ -1,0 +1,1 @@
+Artículo 47.- Apoyo a la inclusión al programa de teletrabajo. El Departamento de Recursos Humanos, en asocio con la Alcaldía, debe apoyar en el proceso de inclusión al programa y seguimiento de los teletrabajadores. Asimismo, debe brindar los informes que la CMT solicite en dicha materia.

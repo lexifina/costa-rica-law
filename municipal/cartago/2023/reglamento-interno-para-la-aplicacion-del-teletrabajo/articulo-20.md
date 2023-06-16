@@ -1,0 +1,1 @@
+Artículo 20.- Evaluación del desempeño, medición de resultados. Tanto la persona teletrabajadora como su superior inmediato, estarán sujetos a los controles ordinarios establecidos por TIC. Sin embargo, la persona teletrabajadora ha de brindar la información verídica y oportuna en todos los procesos de investigación, evaluación de desempeño y medición a los que deba someterse.

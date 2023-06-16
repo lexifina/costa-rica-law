@@ -1,0 +1,1 @@
+Artículo 5.- Ingreso y efectos del teletrabajo: se trata de una modalidad de trabajo voluntaria para las partes, que no genera ningún derecho adquirido, por lo que se mantienen todos los derechos y obligaciones establecidos en la normativa laboral vigente y en los contratos de trabajo establecidos.

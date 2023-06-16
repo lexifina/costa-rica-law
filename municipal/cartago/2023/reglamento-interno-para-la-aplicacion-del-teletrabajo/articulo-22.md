@@ -1,0 +1,1 @@
+Artículo 22.- Sobre los puestos vacantes teletrabajables. Cuando un puesto teletrabajable quede vacante, se procederá a valorar llenar la plaza correspondiente por parte de la Alcaldía, considerando las necesidades institucionales y el perfil teletrabajable del eventual sustituto.
