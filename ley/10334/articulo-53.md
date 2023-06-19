@@ -1,0 +1,2 @@
+ARTICULO 53- Tasación de oficio del impuesto en eventos deportivos y actividades de exhibición
+Cuando se hubiera desarrollado sin licencia una actividad de las enumeradas en los artículos 49 y 50 de esta ley y el obligado tributario fuera prevenido para que aporte información y documentación necesaria para fijar el importe del tributo no pagado, pero este no atendiera la prevención, la Municipalidad procederá a tasar de oficio el impuesto, previa audiencia al contribuyente. Dicha fijación deberá hacerse con ajuste a parámetros objetivos.

@@ -1,0 +1,2 @@
+ARTÍCULO 11- Actualización de datos y medio para notificaciones
+Será obligación formal del contribuyente mantener actualizados, ante la Municipalidad, sus datos de identificación y notificación, preferiblemente mediante un correo electrónico para recibir comunicaciones. En caso de que no fuera posible efectuar notificación al medio señalado, por razones atribuibles al propio administrado, cualquier comunicación quedará notificada con el transcurso de veinticuatro horas después de dictada.

@@ -1,4 +1,6 @@
+(Derogado)
 Nº 8658
+(Esta norma fue derogada por el artículo 56 de la Ley reguladora de licencias comerciales del Cantón de Moravia, N° 10334 del 3 de marzo de 2023)
 LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA
 DECRETA:
 PATENTES MUNICIPALES COMERCIALES

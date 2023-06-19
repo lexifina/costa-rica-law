@@ -1,0 +1,2 @@
+ARTÍCULO 47- Deber de fiscalización
+Será obligación del patentado de publicidad exterior mantener en buen estado las estructuras utilizadas para la ubicación de esta y quedará la Municipalidad autorizada para ordenar la remoción de aquella publicidad y/o estructuras que, en razón de su falta de mantenimiento, defectos constructivos y de instalación, pongan en riesgo la propiedad de terceros, incluidos los bienes públicos, o bien, que representen peligro para las personas.

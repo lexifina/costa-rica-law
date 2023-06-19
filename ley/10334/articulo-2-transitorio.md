@@ -1,0 +1,1 @@
+TRANSITORIO II- Se establece un plazo de seis meses, contado a partir de la entrada en vigencia de esta ley, para que la obligación formal establecida en el artículo 11, referente a actualización de datos de identificación y notificación, sea plenamente oponible a los contribuyentes.
