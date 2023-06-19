@@ -1,0 +1,5 @@
+CAPÍTULO VII
+DISPOSICIONES FINALES
+ARTÍCULO 55- Ingresos generados anualmente por el impuesto de licencias comerciales
+La Municipalidad de Moravia destinará, a favor del Comité Auxiliar de la Cruz Roja del cantón, un uno coma cinco por ciento (1,5%), para que este lo utilice estrictamente en el financiamiento de sus gastos ordinarios y/o mejoramiento del servicio, por lo cual estará obligado a entregar a la Tesorería Municipal, en el mes de febrero del año inmediato posterior a cada período presupuestario, un informe de liquidación realizado por un contador público autorizado.
+Asimismo, se destinará un cero coma setenta y cinco por ciento (0,75%) a favor del Comité Cantonal de Deportes y Recreación de Moravia para desarrollar planes, proyectos y programas deportivos y recreativos cantonales, así como para construir, administrar y mantener las instalaciones deportivas de su propiedad o las otorgadas en administración. Este porcentaje no podrá ser utilizado para cubrir gastos administrativos.

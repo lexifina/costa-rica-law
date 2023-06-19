@@ -1,0 +1,2 @@
+ARTÍCULO 15- Método de fijación de la tasa de interés
+Mediante resolución administrativa, emitida con una regularidad de al menos cada seis meses, el Departamento de Cobros fijará la tasa de interés moratorio, la cual deberá ser equivalente al promedio simple de las tasas activas de los bancos estatales para créditos del sector comercial, la que no podrá exceder, en ningún caso, en más de diez puntos la tasa básica pasiva fijada por el Banco Central de Costa Rica.

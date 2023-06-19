@@ -1,0 +1,2 @@
+ARTÍCULO 48- Multa por incumplimiento
+Cuando un patentado incumpliera con su obligación de mantener en buen estado las estructuras utilizadas para la ubicación de publicidad exterior, se le impondrá una multa equivalente a un diez por ciento (10%) del salario base fijado por el artículo 2 de la Ley 7337, de 5 de mayo de 1993. Dicha multa se cargará al patentado y su imposición se regulará conforme se disponga en el reglamento de esta ley.
