@@ -1,0 +1,3 @@
+Transitorio V.
+Los pensionados que a la entrada en vigencia del artículo 9 bis de este Reglamento, hayan suscrito algún documento donde se indique que la modalidad de renta temporal por plazo de aportación no se encuentra sujeta a recálculos, podrán decidir si se mantienen con esta condición o si suscriben un nuevo documento en el que harán constar que se acogen a lo dispuesto en la normativa para esta modalidad. Si el pensionado decide no acogerse al recalculo, la operadora deberá documentar su decisión, así como la asesoría brindada para que el pensionado pueda comprender los riesgos que asume."
+(Así adicionado mediante sesión N° 1802-2023 del 19 de junio del 2023)

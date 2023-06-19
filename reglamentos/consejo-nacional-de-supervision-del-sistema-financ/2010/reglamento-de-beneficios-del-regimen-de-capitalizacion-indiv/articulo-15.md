@@ -1,10 +1,9 @@
-Artículo 15.Certificación a emitir por el Régimen Básico. El Régimen Básico deberá hacer una certificación o constancia de la condición de pensionado, la cual deberá contener:
-a. El nombre completo, número de identificación del pensionado y la fecha de emisión de la certificación.
+Artículo 15. Certificación a emitir por el Régimen Básico
+El Régimen Básico deberá emitir una certificación que acredite la condición de pensionado del afiliado, la cual deberá indicar:
+a. El nombre completo y el número de identificación del pensionado.
 b. La declaratoria en firme del derecho a la pensión o jubilación.
 c. La fecha exacta a partir de la cual el trabajador inicia el disfrute de la pensión.
-(Así reformado el inciso anterior en sesión N° 1696 del 25 de octubre de 2021)
 d. Indicación, si fuere del caso, de la existencia de algún trámite de otorgamiento de beneficiarios pendiente en el régimen.
-e. Contar con la firma del funcionario autorizado por el Régimen Básico para este tipo de trámite, la cual puede ser de puño y letra o firma digital, si así estuviera establecido por el Régimen que la expide.
-La certificación o constancia debe ser clara, legible y no contener alteraciones de ninguna naturaleza.
-En caso de que existan trámites de otorgamiento de beneficiarios pendientes, la operadora no podrá entregar los recursos a ningún beneficiario, hasta tanto dicho trámite no se resuelva.
-(Así reformado en sesión N° 1157 del 6 de abril de 2015)
+La certificación donde se acredite la condición de pensionado del afiliado por el correspondiente régimen básico deberá ser emitida por este último, exclusivamente a solicitud de la operadora que se encuentre tramitando la solicitud del afiliado para acceder a la pensión del Régimen Obligatorio de Pensiones Complementarias. La certificación únicamente podrá emitirse en formato digital, deberá ser suscrita mediante el uso de un certificado de firma digital, y remitirse electrónicamente a la operadora que la solicitó, por los canales oficiales expresamente declarados por el régimen básico.
+La Superintendencia de Pensiones podrá emitir, mediante acuerdo, las disposiciones operativas necesarias para que las operadoras de pensiones complementarias, previa suscripción de un acuerdo de servicios, puedan acceder a la información de las cuotas; fecha proyectada de la pensión; la declaratoria en firme del beneficio del pensionado y los beneficiarios declarados que conste en los sistemas de información de los regímenes básicos. Lo anterior, con el exclusivo propósito de que los afiliados a las operadoras puedan ser oportunamente informados de los requisitos que deben cumplir para acceder a los beneficios del régimen complementario; los productos de pensión que pueden adquirir, su funcionamiento y riesgos; la declaratoria de derechos que pueda sustituir la certificación a que se refiere este artículo; así como cualquiera otra información que sea requerida dentro del trámite que los deban realizar para acceder a la pensión del régimen complementario obligatorio o que se considere relevante para la correcta e informada toma de decisiones que deban realizar. La información a la que podrán acceder las operadoras será, única y exclusivamente, la correspondiente a sus afiliados.
+(Así reformado mediante sesión N° 1802-2023 del 19 de junio del 2023)

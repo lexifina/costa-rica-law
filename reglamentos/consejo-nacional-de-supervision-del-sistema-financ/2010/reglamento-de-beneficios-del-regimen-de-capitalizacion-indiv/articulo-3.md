@@ -1,7 +1,7 @@
 CAPÍTULO II
 Modalidades de pensión
-Artículo 3º—Parámetros Técnicos
+Artículo 3. Parámetros Técnicos
 Para el cálculo de las rentas contingentes que recibirán los pensionados se deberán utilizar, en todos los casos, las tablas de mortalidad aprobadas por el Consejo Nacional de Supervisión del Sistema Financiero.
-El Superintendente dictará, mediante acuerdo general, los parámetros relacionados con tasa de interés técnica y otros requisitos necesarios para calcular y administrar las rentas periódicas de la renta permanente, retiro programado y renta temporal, definidas en este Capítulo. Para el caso del cálculo de la renta vitalicia previsional, las compañías de seguros se regirán por la normativa específica que emita el CONASSIF para la inscripción de productos y notas técnicas.
+El Superintendente dictará, mediante acuerdo general, los parámetros relacionados con tasa de interés técnica y otros requisitos necesarios para calcular y administrar las rentas periódicas de los productos de beneficio indicados en el artículo 5 de este Reglamento. Para el caso del cálculo de la renta vitalicia previsional, las compañías de seguros se regirán por la normativa específica que emita el CONASSIF para la inscripción de productos y notas técnicas.
 Las rentas periódicas para el ROP serán mensuales, sin que sea posible el pago de rentas adicionales durante el año. Se exceptúa a las rentas vitalicias previsionales, en las cuales se permite el otorgamiento de beneficios adicionales, solamente cuando se encuentren ligados a los rendimientos de la inversión de las provisiones, participación de beneficios o cualquier otro plus variable que ofrezca la entidad aseguradora, siempre y cuando estén contractualmente previstos y se especifique claramente la forma en que el asegurado pueda constatar que tales situaciones se han producido y que, por tanto, tiene derecho a exigir el beneficio que se trate.
-(Así reformado mediante sesión N° 999-2012 del 25 de setiembre del 2012)
+(Así reformado mediante sesión N° 1802-2023 del 19 de junio del 2023)

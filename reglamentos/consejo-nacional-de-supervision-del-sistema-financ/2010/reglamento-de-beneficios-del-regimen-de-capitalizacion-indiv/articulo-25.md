@@ -1,6 +1,7 @@
-Artículo 25.—Comunicación de Futuros Pensionados del ROP.
-La OPC deberá enviar a cada afiliado, siempre que cuente con la información atinente y en un plazo máximo de diez días hábiles después de recibida esa información, una carta explicativa, por el medio de comunicación mediante el cual le remite su estado de cuenta, que contenga al menos la siguiente información:
-a. La indicación de que cuando alcance la condición de pensionado en el Régimen Básico que corresponde, debe realizar el trámite de pensión complementaria del ROP.
+Artículo 25.-Comunicación de Futuros Pensionados del ROP. La OPC deberá enviar a cada afiliado, siempre que cuente con la información atinente y en un plazo máximo de diez días hábiles después de acceder a esa información, una nota explicativa, por el medio de comunicación mediante el cual le remite su estado de cuenta, que contenga al menos la siguiente información:
+(Así reformado el párrafo anterior mediante sesión N° 1802-2023 del 19 de junio del 2023)
+a. La indicación de que cuando alcance la condición de pensionado en el Régimen Básico que corresponde, podrá realizar el trámite de pensión complementaria del ROP.
+(Así reformado el inciso anterior mediante sesión N° 1802-2023 del 19 de junio del 2023)
 b. Un estado de cuenta histórico, como mínimo de la operadora que está enviando la información, con los movimientos de la cuenta individual, a fin de que pueda iniciar los trámites correspondientes para aclarar cualquier situación que pueda estar afectando el saldo de su cuenta individual.
 c. Información del trámite a realizar con la OPC, la cual deberá contener un detalle de los tiempos involucrados y todas las etapas del proceso de modo que el solicitante tenga claridad respecto de todas las acciones que debe efectuar hasta obtener el beneficio, incluida la asignación de una modalidad de pensión complementaria si no inicia o finaliza el trámite de su pensión.
 d. Una explicación completa, clara y llana de las modalidades de pensión, los riesgos asociados, las comisiones de administración que a la fecha cobran las operadoras de pensiones y las responsabilidades del afiliado sobre la elección.

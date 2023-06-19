@@ -1,7 +1,6 @@
 CAPÍTULO III
 Requisitos para adquirir el derecho
 a percibir la pensión complementaria
-Artículo 14. Disfrute de la pensión complementaria en el ROP. Todo afiliado al ROP deberá iniciar, ante la OPC a la que se encuentre afiliado, el trámite para acceder a los recursos de la pensión complementaria. El afiliado deberá iniciar el trámite antes referido dentro de un plazo máximo de veinte días hábiles, contado a partir de la fecha de emisión de la certificación o constancia brindada por el régimen básico en donde se indique su condición de pensionado.
-En caso de que el afiliado no realice el trámite dentro del plazo indicado en el párrafo anterior, la entidad dispondrá de dos días hábiles contados a partir de que disponga de información de que aquel se encuentra pensionado por el régimen básico, para informarle que sus recursos serán trasladados a la modalidad de renta permanente a menos que, dentro de los siguientes dos días hábiles a esta comunicación, elija otra modalidad de pensión.
-En caso de que el afiliado no responda a la comunicación anterior, una vez transcurrido el plazo para el traslado de los recursos definido en el Artículo 4, la entidad procederá a trasladar los recursos a la modalidad de renta permanente. En el momento en que el afiliado se presente a la entidad, podrá solicitar cualquier modalidad de pensión, incluyendo el retiro total, de conformidad con lo dispuesto en el Artículo 6.
-(Así reformado en sesión N° 1157 del 6 de abril de 2015)
+Artículo 14. Disfrute de la pensión complementaria en el ROP
+Todo afiliado al ROP podrá iniciar ante la OPC a la que se encuentre afiliado, el trámite para acceder a los recursos de la pensión complementaria, una vez alcance la condición de pensionado en el régimen básico al cual se encuentra adscrito.
+(Así reformado mediante sesión N° 1802-2023 del 19 de junio del 2023)

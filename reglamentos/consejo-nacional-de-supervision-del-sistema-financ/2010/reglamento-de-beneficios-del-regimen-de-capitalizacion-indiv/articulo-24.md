@@ -1,2 +1,3 @@
-Artículo 24.—Información a suministrar por el régimen básico.
-El Régimen Básico por el cual se pensione el afiliado deberá suministrar la información que le requiera la Superintendencia de Pensiones a efectos de que las OPC puedan informar al futuro pensionado de los derechos y obligaciones que le asisten para obtener la pensión complementaria.
+Artículo 24.-Información a suministrar por el régimen básico
+Salvo el Régimen de Invalidez, Vejez y Muerte administrado por la CCSS, para el cual esta obligación es de acatamiento no vinculante, el régimen básico por el cual se pensione el afiliado deberá suministrarle a las OPC la información que le requiera la Superintendencia de Pensiones a efectos de que puedan informar al futuro pensionado de los derechos que le asisten para obtener la pensión complementaria. Lo anterior podrá ser suplido por los regímenes básicos a través de los sistemas de información a que se refiere el último párrafo del artículo 15 de este Reglamento.
+(Así reformado mediante sesión N° 1802-2023 del 19 de junio del 2023)
