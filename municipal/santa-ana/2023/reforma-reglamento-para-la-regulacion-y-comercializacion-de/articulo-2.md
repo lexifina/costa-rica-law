@@ -1,0 +1,3 @@
+Artículo 2º-Adiciónese el artículo 29 y el artículo 30 dentro del Capítulo V denominado "Sanciones y Recursos" para que se lea de la siguiente forma:
+.Artículo 29.-Fiscalización. Las autoridades municipales velarán por el adecuado cumplimiento de la Ley y del presente reglamento.
+.Artículo 30.-Silencio positivo. Corresponderá al Departamento de Licencias y Patentes Municipales resolver sobre el silencio positivo, acudiendo a las reglas del artículo 7 de la Ley Nº 8220, Protección al Ciudadano del Exceso de Requisitos y Trámites Administrativos, de 4 de marzo de 2002, reformada por la Ley Nº 10072 del 18 de noviembre del 2021.
