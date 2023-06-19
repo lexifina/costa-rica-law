@@ -1,2 +1,0 @@
-Artículo 9°—Sobre la cantidad de becas por hogar.
-Dada la alta demanda del Programa de Becas Municipal, se entregará un formulario por núcleo familiar. No obstante, se podrá otorgar dos formularios en aquellos casos de pobreza extrema en donde el Síndico y el Concejo de Distrito encargados de la recomendación de una beca, considere indispensable dicha recomendación, misma que deberá ser aprobada por la Comisión Especial de Becas y posteriormente por el Concejo Municipal.
