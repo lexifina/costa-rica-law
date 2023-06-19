@@ -5,6 +5,7 @@ c) No haber sido sancionados por los supervisores nacionales o extranjeros a los
 d) No haber incumplido, durante la elaboración de valuaciones actuariales a los regímenes, con el procedimiento de comunicación de sustitución establecido en este Reglamento durante los cuatro años anteriores al estudio para el cual es contratado.
 Es responsabilidad del régimen determinar y documentar la idoneidad e independencia del profesional o firma contratada, así como el cumplimiento de los requisitos legales correspondientes. Para lo anterior, tratándose de documentación emitida en el exterior, debe cumplirse con las formalidades de autenticación, traducción oficial, si estuviere escrita en idioma diferente al español y legalización consular o apostilla, según se trate.
 El actuario o la firma a cargo de la elaboración de cualquier tipo de valuación actuarial o auditoría actuarial para los regímenes de pensiones de beneficio definido, debe cumplir los siguientes principios básicos:
-a) Rigurosidad científica en la metodología utilizada y los cálculos realizados.
+a) Rigurosidad científica en la metodología utilizada y los cálculos realizados para revelar oportunamente los riesgos actuariales y las medidas correctivas que sean requeridas para su sostenibilidad.
+(Así reformado el inciso anterior mediante sesión N° 1802-2023 del 19 de junio del 2023)
 b) Razonabilidad en la determinación de supuestos y bases actuariales.
 c) Transparencia, claridad, simplicidad y consistencia de la información suministrada en el informe.

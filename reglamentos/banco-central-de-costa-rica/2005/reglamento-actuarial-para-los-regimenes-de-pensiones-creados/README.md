@@ -16,3 +16,4 @@ Reglamento Actuarial para los Regímenes de Pensiones creados por Leyes especial
 | 1 | 2006-01-13 | la propia norma |
 | 2 | 2016-08-30 | Reglamento 1275 (2016-08-30) |
 | 3 | 2021-10-25 | Reglamento 1696 (2021-10-25) |
+| 4 | 2023-06-19 | Reglamento 1802 (2023-06-19) |

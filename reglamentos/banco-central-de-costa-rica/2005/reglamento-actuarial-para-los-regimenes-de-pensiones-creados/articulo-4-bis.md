@@ -1,0 +1,3 @@
+Artículo 4 bis. Política de Revalorización de las Pensiones
+El órgano de dirección debe aprobar y revelar una política de revalorización de pensiones que contenga el apetito de riesgo para la pérdida de poder adquisitivo acumulada desde el otorgamiento del beneficio, así como la tolerancia y capacidad, además de las acciones a tomar en caso de que no se alcance el apetito o se alcance la capacidad de conformidad con la Declaración de Apetito de Riesgo, sin perjuicio de lo que dispongan las normas de rango legal que regulen el régimen de que se trate.
+(Así adicionado mediante sesión N° 1802-2023 del 19 de junio del 2023)

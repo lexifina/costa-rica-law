@@ -12,6 +12,8 @@ f) Metodología. Método de valuación y procedimientos utilizados.
 g) Bases de Datos y supuestos: Comentarios sobre la calidad y la fuente de la información, así como los supuestos utilizados y su justificación.
 h) Resultados. Esta sección debe contener, al menos, los siguientes componentes:
 i. Resultados del escenario base de acuerdo con lo establecido en el artículo siete.
+En caso de que el supuesto de revalorización de pensiones en el escenario base de la valuación actuarial anual sea distinto a la inflación, se debe presentar un escenario adicional con los mismos supuestos, pero con una revalorización igual a inflación.
+(Así reformado el inciso anterior mediante sesión N° 1802-2023 del 19 de junio del 2023)
 ii. Comparación de los resultados obtenidos en el escenario base con los obtenidos en el escenario base del informe actuarial anterior, incluyendo el análisis de pérdidas y ganancias y un comparativo de las poblaciones esperadas y efectivas.
 iii. Análisis de sensibilidad (variaciones en los resultados obtenidos a partir de la modificación de algunos parámetros críticos).
 iv. Valoración con reformas propuestas (resultados de la proyección base, incorporando modificaciones legales propuestas en caso de que las hubiere).
