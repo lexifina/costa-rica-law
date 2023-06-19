@@ -13,3 +13,4 @@ Informe sobre personas detenidas por más de seis meses
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-03-21 | la propia norma |
+| 2 | 2023-06-19 | Acuerdo 6 (2023-06-19) |
