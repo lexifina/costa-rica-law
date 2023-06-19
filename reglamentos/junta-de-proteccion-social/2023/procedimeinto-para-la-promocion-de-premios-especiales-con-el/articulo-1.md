@@ -1,0 +1,5 @@
+JUNTA DE PROTECCIÓN SOCIAL
+Procedimiento para la promoción de premios especiales,
+con el "Sorteo Extraordinario Gordito de Medio Año 4754" para el año 2023
+que será realizada a través de eventos promocionales
+Artículo 1° - Objeto. El objeto del presente procedimiento es regular los aspectos relacionados con la promoción establecida para el otorgamiento de premios adicionales, con motivo de la realización del " Sorteo Extraordinario Gordito de Medio Año 4754" del año 2023, aprobada por la Junta Directiva de la Junta de Protección Social según acuerdo JD-252 correspondiente al Capítulo V), artículo 7) de la sesión extraordinaria 29-2023, celebrada el 25 de mayo de 2023, como parte de la estrategia de comercialización para este producto, mediante eventos promocionales.
