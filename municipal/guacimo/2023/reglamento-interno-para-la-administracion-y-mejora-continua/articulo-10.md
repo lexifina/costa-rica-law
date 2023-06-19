@@ -1,0 +1,1 @@
+Artículo 10.-Responsables. Se definen como responsables directos de la operación y fortalecimiento del SCI y SEVRI establecido en la Municipalidad de Guácimo: el Alcalde Municipal, el Concejo Municipal, la persona encargada de Control Interno y Riesgo Institucional, la Comisión de Control Interno y Riesgo, los Coordinadores y los Titulares Subordinados en general.

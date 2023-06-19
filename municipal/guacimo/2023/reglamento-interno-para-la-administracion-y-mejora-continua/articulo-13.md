@@ -1,0 +1,1 @@
+Artículo 13.-Acciones sobre el SCI y SEVRI. La Comisión de Control Interno y Riesgo analizará las acciones de Control Interno y Valoración de Riesgos, para que sean revisadas y avaladas por la Alcaldía, la cual, a su vez entregará informes ejecutivos, que deben ser enviados al Concejo Municipal para su conocimiento y los fines que se estimen correspondientes.

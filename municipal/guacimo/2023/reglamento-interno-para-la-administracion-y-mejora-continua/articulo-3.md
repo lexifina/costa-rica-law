@@ -1,0 +1,1 @@
+Artículo 3°-Objetivo del Sistema específico de valoración de riesgos institucional: El SEVRI en la Municipalidad de Guácimo, tiene como objetivo producir información que apoye la toma de decisiones orientada a ubicar a la institución en un nivel de riesgo aceptable y así promover, de manera razonable, el logro de los objetivos institucionales.

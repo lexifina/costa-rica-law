@@ -1,0 +1,1 @@
+Artículo 22.-Cantidad de miembros para sesionar. Para que haya quórum en las sesiones de la CCIR se establece el requerimiento de la presencia y votación de al menos 3 integrantes. El Presidente es el responsable de verificar el quórum.

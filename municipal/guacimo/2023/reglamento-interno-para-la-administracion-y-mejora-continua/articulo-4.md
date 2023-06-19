@@ -1,0 +1,1 @@
+Artículo 4°-Ámbito de aplicación: Las disposiciones de este Reglamento son de aplicación y acatamiento obligatorio para todas las y los funcionarios, incluido el Concejo Municipal y Comisiones de la Municipalidad de Guácimo, que por jerarquía o delegación ejecuten funciones decisorias, resolutorias, directivas como parte de la administración activa.
