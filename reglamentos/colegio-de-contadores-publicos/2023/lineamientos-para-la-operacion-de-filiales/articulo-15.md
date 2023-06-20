@@ -1,0 +1,1 @@
+Artículo N°15: El quórum de la Junta Directiva de la Filial se formará con tres de sus miembros. Los acuerdos se tomarán con un mínimo de tres votos. En caso de empates, el presidente tendrá voto de calidad.

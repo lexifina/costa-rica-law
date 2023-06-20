@@ -1,0 +1,1 @@
+Artículo N°20: Al inicio de cada sesión, los miembros de la Junta Directiva de la Filial aprobarán por simple mayoría, el orden del día, el cual deberá ser respetado durante el desarrollo de la sesión; salvo que se apruebe moción para alterar la agenda del día.
