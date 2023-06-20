@@ -1,0 +1,2 @@
+Artículo 55.-Decisión inicial. Una vez presentada ante la Junta Directiva, por parte del funcionario del CCDRT competente, será ésta quien mediante acuerdo en firme tomará la decisión que da inicio a cada procedimiento de contratación, definiendo el tipo de procedimiento según se indique en la constancia del contenido presupuestario. El funcionario solicitante fungirá como Administrador del Procedimiento.
+(Así adicionado mediante sesión N° 083-2023 del 20 de junio del 2023)

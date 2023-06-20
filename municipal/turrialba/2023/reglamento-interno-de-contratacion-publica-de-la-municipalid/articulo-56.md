@@ -1,0 +1,2 @@
+Artículo 56.-Adjudicaciones. La Junta Directiva del CCDRT mediante el acuerdo en firme de decisión inicial designará la responsabilidad de adjudicación de los procedimientos de contratación previa la recomendación de adjudicación subyacente del análisis técnico y legal de las ofertas recibidas; en el presidente como Representante Legal de la Junta Directiva.
+(Así adicionado mediante sesión N° 083-2023 del 20 de junio del 2023)

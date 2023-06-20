@@ -14,3 +14,4 @@ Reglamento interno de contratación pública de la Municipalidad de Turrialba
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-03-24 | la propia norma |
+| 2 | 2023-06-20 | Reglamento municipal 83 (2023-06-20) |
