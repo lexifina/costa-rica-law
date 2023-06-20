@@ -1,0 +1,1 @@
+Artículo 14.-El plazo de la investigación. El procedimiento tendrá un trámite prioritario y expedito según lo dispuesto en la Ley 10235 y deberá resolverse en un plazo de tres meses, incluyendo la resolución final.
