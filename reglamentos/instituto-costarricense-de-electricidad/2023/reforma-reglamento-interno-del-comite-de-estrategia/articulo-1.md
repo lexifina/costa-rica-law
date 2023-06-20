@@ -1,0 +1,5 @@
+INSTITUTO COSTARRICENSE DE ELECTRICIDAD
+CONSEJO DIRECTIVO
+El Consejo Directivo del Instituto Costarricense de Electricidad, acordó en el artículo 2 del Capítulo I del acta firme de la sesión 6576 del 31 de mayo del 2023, la reforma parcial del artículo 1 Reglamento Interno del Comité de Estrategia para que se lea de la siguiente forma:
+"Artículo 1º.-Objeto. Regular el funcionamiento del Comité de Estrategia como órgano asesor del Consejo Directivo del Instituto Costarricense de Electricidad, con la finalidad de que este Comité coadyuve al Consejo Directivo, en la toma de decisiones para el ejercicio de sus funciones institucionales y corporativas, en todo lo relacionado a temas estratégicos y planificación. Este reglamento regula, asimismo, el ámbito de acción del Comité y los deberes que asisten a sus miembros.
+Este Comité no tiene funciones ejecutivas, ostenta facultades de supervisión y asesoramiento dentro de su ámbito de competencia, siendo propositivo en el ejercicio de sus funciones." La citada reforma entrará a regir a partir de su publicación en el Diario Oficial La Gaceta.
