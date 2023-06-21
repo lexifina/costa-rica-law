@@ -1,0 +1,2 @@
+Artículo 21.-Montos. Se debe determinar la cantidad de metros cuadrados del área de atención al público del establecimiento ya autorizado y el impuesto que paga, para determinar el monto por metro cuadrado. La mitad de dicho monto equivalente al metro cuadrado, se multiplicará por los metros cuadrados de área a utilizar del espacio público, para determinar el impuesto.
+No se podrá realizar cobro alguno por las zonas al aire libre que se encuentren dentro del perímetro privado según las disposiciones de la Ley 10126, Ley de Comercio al Aire Libre, de 09 de febrero de 2022.
