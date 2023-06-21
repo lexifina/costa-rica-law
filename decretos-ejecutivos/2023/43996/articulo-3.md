@@ -1,0 +1,1 @@
+Artículo 3. Deróguese el Decreto Ejecutivo No. 41725-MOPT del 12 de abril del 2019 publicado en el Alcance No. 119 de La Gaceta No. 99 del 29 de mayo 2019, denominado: "Oficializa la Guía para la elaboración de planos de diseños para proyectos de accesos a rutas nacionales".
