@@ -1,1 +1,0 @@
-Artículo 37.—Otros Profesionales o Técnicos. La Auditoría Interna podrá incorporar profesionales o técnicos de diferentes disciplinas, sean funcionarios municipales o terceros, para que lleven a cabo labores de su especialidad en apoyo a los distintos estudios y análisis que realice dicha Auditoría.

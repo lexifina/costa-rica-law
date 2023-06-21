@@ -1,1 +1,0 @@
-Artículo 29.—Horario. La jornada y horario será el indicado en el Reglamento Autónomo de Organización y Servicios de la Municipalidad de Talamanca, sin embargo podrá ingresar y dejar las instalaciones de la Municipalidad en horas distintas al horario anterior en el cumplimiento de sus funciones y competencias.

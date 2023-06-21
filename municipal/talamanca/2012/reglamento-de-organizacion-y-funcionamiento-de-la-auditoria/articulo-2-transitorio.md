@@ -1,1 +1,0 @@
-Transitorio II.—Aprobación por parte de Contraloría General de la República. Una vez aprobado el proyecto del presente reglamento por el Concejo Municipal, el auditor interno contará con un plazo de quince días hábiles para presentar a la Contraloría General de la República esa normativa para su aprobación.

@@ -1,1 +1,0 @@
-Artículo 35.—Espacio. La Auditoría Interna actuará sin interferencia de las unidades administrativas y operativas de la Municipalidad, en el cumplimiento de sus deberes, para lo cual, la Administración acondicionará oficina apropiada e independiente.

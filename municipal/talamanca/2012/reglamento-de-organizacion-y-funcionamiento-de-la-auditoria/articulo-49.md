@@ -1,1 +1,0 @@
-Artículo 49.—Hallazgos. Los hallazgos deben estar lo suficientemente sustentados a efectos de las decisiones que le corresponderá tomar al Concejo y/o titular subordinado, respecto del trámite de las recomendaciones contenidas en el informe. Las recomendaciones deben ser efectivas, pertinentes, oportunas, atinentes y conformes con los hallazgos documentados en el informe.
