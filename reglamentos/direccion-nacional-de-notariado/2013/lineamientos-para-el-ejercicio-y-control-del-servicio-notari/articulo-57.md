@@ -1,1 +1,2 @@
-Artículo 57. Ámbito territorial. El notario sólo podrá tramitar asuntos en actividad judicial no contenciosa cuando las actuaciones se produzcan en Costa Rica.
+Artículo 57. Ámbito territorial. El notario sólo podrá tramitar asuntos en actividad judicial no contenciosa que tengan efectos en Costa Rica. Podrá desplegar sus actuaciones fuera de la oficina notarial, e inclusive en el extranjero, cuando ello resulte necesario para la oportuna tramitación del asunto sometido a su conocimiento, no obstante, el expediente notarial deberá permanecer resguardado en su oficina en todo momento, y solo deberá salir de su custodia en los casos que expresamente contempla la Ley.
+(Así reformado mediante sesión N° 12 del 21 de junio del 2023)
