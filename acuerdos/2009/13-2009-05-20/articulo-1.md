@@ -1377,6 +1377,16 @@ Experiencia mínima de TRES AÑOS en el manejo y supervisión de personal.
 Requisito legal:
 Incorporación al colegio profesional correspondiente en el grado académico respectivo de la clase.
 (*) (Así reformado el punto "Subdirector de departamento en sesión N° 158 del 14 de marzo de 2017)
+Subdirector Departamento de Proveeduría
+Todos los requisitos dispuestos para la clase de Subdirector de Departamento y, adicionalmente: Licenciatura o título superior en Derecho, en Ciencias Económicas, o en una rama afín.
+Requisito legal:
+Incorporación al colegio profesional correspondiente en el grado académico respectivo de la clase.
+(Así adicionada la clase de puesto anterior mediante sesión ordinaria Nº 053-2023 del 21 de junio del 2023)
+Director de Departamento
+Director Departamento de Proveeduría
+Todos los requisitos dispuestos para la clase de Director de Departamento y, adicionalmente: Licenciatura o título superior en Derecho, en Ciencias Económicas, o en una rama afín.
+Requisito legal: Incorporación al colegio profesional correspondiente en el grado académico respectivo de la clase.
+(Así adicionada la clase de puesto anterior mediante sesión ordinaria Nº 053-2023 del 21 de junio del 2023)
 (*)SUBDIRECTOR DEPARTAMENTO
 DE SERVICIOS DE SALUD
 · Licenciado en Medicina y Cirugía
