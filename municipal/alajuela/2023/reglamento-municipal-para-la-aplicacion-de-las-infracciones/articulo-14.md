@@ -1,0 +1,3 @@
+Artículo 14.-Responsabilidad por daños y perjuicios ambientales.
+Según se desprende del artículo 62 de la Ley N° 8839, sin perjuicio de las responsabilidades penales y administrativas, los infractores a las disposiciones contenidas en el presente
+Reglamento sean personas físicas o jurídicas, serán civil y solidariamente responsables por los daños y perjuicios causados contra el ambiente y la salud de las personas, y deberán restaurar el daño, y, en la medida de lo posible, dejar las cosas en el estado que se encontraban antes de la acción ilícita. Los titulares de las empresas o las actividades donde se causan los daños responderán solidariamente.

@@ -1,0 +1,2 @@
+Artículo 4º-Órgano competente.
+Tal y como lo indica el artículo 4 del Reglamento Municipal para la Gestión Integral de Residuos Sólidos en el cantón Alajuela (Gaceta 252, 31 diciembre de 2014), "La Actividad Gestión Integral de Residuos Sólidos (AGIRS) es la entidad responsable de la gestión de los residuos sólidos en el cantón Alajuela" y, por ende, de aplicar las sanciones por las infracciones a los artículos 54, 55 y coordinar las acciones necesarias para la implementación del artículo 59, todos de la Ley N° 8839.

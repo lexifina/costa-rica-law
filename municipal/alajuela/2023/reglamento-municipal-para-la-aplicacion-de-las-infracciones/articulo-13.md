@@ -1,0 +1,2 @@
+Artículo 13.-Deber de denuncia ante el Tribunal Ambiental Administrativo.
+Cuando se presuma daño ambiental o ante las infracciones descritas en el artículo 53 de la Ley N° 8839, la municipalidad presentará la denuncia ante el Tribunal Ambiental Administrativo, el cual deberá conceder audiencia al interesado, de conformidad con lo establecido en la Ley 7554, Ley Orgánica del Ambiente y el reglamento de procedimientos de dicho Tribunal.
