@@ -1,0 +1,6 @@
+CAPÍTULO II
+Estructura y competencias
+Artículo 5º-Monto autorizado. Las instancias competentes para aprobar y adjudicar los procedimientos de contratación se definen mediante umbrales de contratación definidos de conformidad con el artículo 36 de la Ley General de Contratación Pública, a saber:
+Alcaldía: Hasta por un monto de ¢60.000.000,00 (sesenta millones de colones netos) bajo los procedimientos de la Licitación Reducida, contemplando tanto las contrataciones de bienes y servicios como las de obra pública hasta por ese monto incluyendo los pagos que se den por los servicios de adquisición de combustible.
+Concejo Municipal: A partir de los ¢60.000.001,00 (sesenta millones un mil colones netos) en los procedimientos de Licitación Reducida ya sea de bienes y servicios u obra pública, así como en todos los procedimientos de Licitación Menor, Licitación Mayor, Procedimientos de contratación Extraordinarios y Procedimientos especiales, exceptuando los procedimientos por urgencia según el artículo 66 de la Ley General de Contratación Pública.
+Dichos montos serán determinados y ajustados automáticamente cada año, cuando la Contraloría General de la República actualice los umbrales de contratación pública.

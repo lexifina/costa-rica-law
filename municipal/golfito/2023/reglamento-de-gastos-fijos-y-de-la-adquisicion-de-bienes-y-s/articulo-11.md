@@ -1,0 +1,1 @@
+Artículo 11.-El Tesorero Municipal no hará pago alguno sin la nómina de pago respectiva. La nómina de pago será confeccionada por la jefatura de cada Centro de Costo, so pena de que se le apliquen las sanciones consignadas en el artículo 112 del Código Municipal.

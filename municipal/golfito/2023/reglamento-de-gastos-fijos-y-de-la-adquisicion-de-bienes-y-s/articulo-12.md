@@ -1,0 +1,1 @@
+Artículo 12.-Serán responsables solidariamente los funcionarios que autoricen los egresos contemplados en este Reglamento, cuando por omisión, culpa o dolo comprometan en perjuicio de la municipalidad los fondos de esta sin verificar el cumplimiento de lo señalado en este reglamento, en el Código Municipal y leyes conexas.

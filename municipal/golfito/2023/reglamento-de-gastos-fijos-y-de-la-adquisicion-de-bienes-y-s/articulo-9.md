@@ -1,0 +1,1 @@
+Artículo 9º-El alcalde y tesorero municipal deberán verificar que se cumpla con lo indicado en el artículo 8° antes de hacer efectivo el pago; según lo establecido en los artículos 118 y 119 del Código Municipal.

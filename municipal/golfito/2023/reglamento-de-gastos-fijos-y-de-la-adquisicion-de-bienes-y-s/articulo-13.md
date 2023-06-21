@@ -1,0 +1,1 @@
+Artículo 13.-Cada jefatura es responsable de tramitar en tiempo y forma los servicios públicos que tengan a cargo según el centro de costos, por lo que deberá llevar el control de las fechas de vencimiento de cada servicio público y tramitar el pago respectivo mínimo 3 días hábiles antes de su vencimiento.

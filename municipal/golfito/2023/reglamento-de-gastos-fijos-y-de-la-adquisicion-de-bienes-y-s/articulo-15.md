@@ -1,0 +1,1 @@
+Artículo 15.-Con relación a los contratos de bienes/ servicios y obra pública el centro de costo a cargo del trámite de pago deberá realizarlo conforme a lo establecido en el pliego cartelario en cumplimiento al plazo establecido en la Ley General de Contratación Pública.

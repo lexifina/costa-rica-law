@@ -1,0 +1,1 @@
+Artículo 18.-Las transferencias bancarias serán realizadas por la Tesorería y alcaldía Municipal, una vez remitida la Nómina de Pago y verificado por las partes involucradas el cumplimiento de lo indicado en este reglamento.
