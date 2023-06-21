@@ -1,0 +1,1 @@
+Artículo 5º-Cualquier acto que en el cumplimiento de sus funciones realice la Policía de Tránsito Municipal, lo pondrá en conocimiento de su superior jerárquico y, en caso de ser materia no concerniente al tránsito comunicarlo a la autoridad respectiva obligatorio por ley o pertinente según directrices del superior, de la autoridad judicial o administrativa.

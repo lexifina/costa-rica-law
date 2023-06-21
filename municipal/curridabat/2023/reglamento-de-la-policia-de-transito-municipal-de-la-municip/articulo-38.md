@@ -1,0 +1,1 @@
+Artículo 38.-Todas las personas funcionarias de la Policía de Tránsito Municipal estarán en obligación de presentar un informe diario de las labores realizadas para poner en conocimiento de sus superiores cualquier incidencia del servicio que se presente.

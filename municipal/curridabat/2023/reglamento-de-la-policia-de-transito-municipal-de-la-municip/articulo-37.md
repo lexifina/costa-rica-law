@@ -1,0 +1,1 @@
+Artículo 37.-Los Policías Municipales están obligados a cumplir íntegramente su jornada de trabajo y en casos de emergencia extrema u órdenes superiores no abandonarán el servicio hasta que sea debidamente relevado, siguiendo los horarios o roles de trabajo establecidos por sus superiores.

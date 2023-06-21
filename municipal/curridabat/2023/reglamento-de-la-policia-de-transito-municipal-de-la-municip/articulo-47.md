@@ -1,0 +1,2 @@
+Artículo 47.-En todo aquello no previsto en este reglamento, se aplicará, supletoriamente, el Código Municipal, la Convención Colectiva de los Trabajadores de la Municipalidad de Curridabat, la Ley General de la Administración Pública, Reglamento Autónomo de Servicios de la Municipalidad de Curridabat, Código de Trabajo, Ley de Fortalecimiento a las Policías Municipales y demás normativa conexa.
+Rige a partir de su publicación.-Curridabat, 31 de mayo de 2023.

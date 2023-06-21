@@ -1,0 +1,2 @@
+Artículo 13.-El personal masculino en caso de la barba y el cabello deberá darle el mantenimiento y recorte diario necesario según la investidura de la autoridad que representa y las normas de urbanidad.
+En el caso de oficiales de sexo femenino, si el cabello es largo, el mismo deberá mantenerse recogido en moño o trenza francesa, o peinado de una forma tal que no permita ser usado en contra de su persona, el uso de aretes deberá estar condicionado a que los mismos no sean de tipo argolla, ni de una longitud mayor a medio centímetro.

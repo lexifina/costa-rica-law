@@ -1,0 +1,1 @@
+Artículo 31.-En los casos de emergencia y desastres, los Policías de Tránsito Municipal deberán presentarse en el menor tiempo posible a su respectiva base y prestar sus funciones de servicio y estarán, por tanto, obligados a intervenir en todos aquellos sucesos que reclamen su presencia, cumpliendo con los deberes que le impone el presente reglamento.

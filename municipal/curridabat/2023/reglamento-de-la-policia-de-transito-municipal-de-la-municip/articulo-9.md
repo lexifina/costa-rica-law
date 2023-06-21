@@ -1,0 +1,1 @@
+Artículo 9º-Se prohíbe la utilización del uniforme de modo incompleto o incorrecto, así como la colocación descuidada de las prendas que lo componen y la debida presentación personal la cual debe ser de una manera intachable.

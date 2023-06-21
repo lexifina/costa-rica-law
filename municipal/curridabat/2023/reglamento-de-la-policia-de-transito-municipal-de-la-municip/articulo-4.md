@@ -1,0 +1,22 @@
+Artículo 4º-La Policía de Tránsito Municipal tiene las siguientes funciones:
+a) Desarrollar acciones preventivas, orientadas a generar conciencia en la población sobre temáticas de educación vial, convivencia, medidas de seguridad y prevención de la violencia a través de iniciativas como: promover iniciativas de movilidad segura en el ámbito de competencias, entender y fomentar la seguridad ciudadana como un aspecto básico de la mejora de la calidad de vida de las personas que habitan el cantón, favorecer la difusión de la cultura de paz entre las personas que habitan el cantón, fomentar el desarrollo de espacios de educación y prevención de la violencia que permitan generar conciencia y respeto en el cumplimiento de las normas.
+b) Velar por el cumplimiento de la Constitución Política, leyes y reglamentos respectivos.
+c) Garantizar el cumplimiento de las leyes y demás disposiciones jurídicas vigentes, así como acuerdos municipales, actos administrativos y demás acciones vinculantes de la gestión municipal.
+d) Contribuir en la planificación y garantizar el ordenamiento vial, velando por el cumplimiento de la normativa vigente orientado a mejorar la calidad de vida de las personas que habitan en el cantón a través de la priorización del derecho de vía, la visualización de los peatones como eje prioritario de la movilidad vial, y las nuevas formas de movilidad sostenibles y su papel en las vías.
+e) Colaborar con las organizaciones comunales en programas tendientes a la educación vial y a la mejora de las condiciones de las comunidades.
+f) Brindar acompañamiento comunitario, en atención de la demanda ciudadana y acompañamiento en procesos o actividades municipales. Algunas de las acciones se orientan a brindar procesos de capacitación y sensibilización en comunidades, brindar orientación/ guía a las comunidades sobre manejo de situaciones de riesgo y violencia, concientizar a las personas de las comunidades sobre el respeto en materia de prevención y convivencia y en materia de derecho de vía.
+g) Velar por la seguridad vial de los ciudadanos y el orden público en coordinación con los otros cuerpos de seguridad pública del país.
+h) Colaborar con las instituciones y organizaciones sociales que realicen sus actividades en los ámbitos de la -seguridad ciudadana, la salud pública, la cultura, el deporte, la ecología, etc. Siempre y cuando cuenten con los permisos y requisitos establecidos por las instituciones públicas que así lo requieran.
+i) Colaborar con la Comisión Nacional de Emergencia, así como con la Comisión Municipal de Emergencias en los casos de catástrofe y en las calamidades públicas.
+j) Reeducar y orientar las organizaciones de comerciantes y empresarios en la seguridad vial de negocios y empresas orientados a generar mejoras en el ordenamiento vial evitando el congestionamiento.
+k) Colaborar con las autoridades judiciales y con los organismos de investigación en el ámbito de intervención para el cual es facultado en materia vial.
+l) Colaborar en el mantenimiento de la seguridad vial y el orden de los actos públicos que realice la Municipalidad de Curridabat.
+m) Colaborar en la vigilancia vial y la conservación de los bienes que constituyen el patrimonio municipal.
+n) Velar por que las aceras se encuentren libres para el libre tránsito de peatones, con el objetivo de que las personas no pongan en riesgo su vida.
+o) Velar por el cumplimiento de la Ley de Tránsito por vías Públicas Terrestres y Seguridad Vial, así como la colaboración a las autoridades de Tránsito que realizan actividades en las vías nacionales y cantonales, dentro de la jurisdicción del cantón.
+Regular el Tránsito por vías Públicas Terrestres y aceras municipales, así como coadyuvar en el control de tránsito vehicular.
+p) Realizar labores de prevención en materia vial, sensibilización sobre la violencia en carretera, controlar y regular el flujo vehicular, dónde se puedan presentar situaciones de congestionamiento vial en las carreteras del cantón
+q) Velar porque se garantice el ejercicio de los derechos y garantías de los ciudadanos en materia vial cantonal.
+r) Velar por que se garantice la tranquilidad y el orden público en materia vial cantonal.
+s) Realizar funciones de seguridad preventiva, de protección a los ciudadanos y actuación inmediata respecto de "Delitos In Fraganti".
+t) Las demás funciones que asigne el Concejo Municipal por medio de la Alcaldía.

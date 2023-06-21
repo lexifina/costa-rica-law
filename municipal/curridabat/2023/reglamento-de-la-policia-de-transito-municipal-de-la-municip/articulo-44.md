@@ -1,0 +1,1 @@
+Artículo 44.-Los Policías de Tránsito Municipales tendrán derecho a suscribir una póliza de riesgo policial que cubra los riesgos de invalidez permanente y muerte, la cual será cubierta por la Administración. Estos derechos serán transmitidos a los causahabientes en litigio sucesorio.

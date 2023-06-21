@@ -1,0 +1,1 @@
+Artículo 12.-En caso de renuncia, despido, permiso con o sin goce de salario, e incapacidades mayores a 90 días, el titular deberá devolver al superior jerárquico, el carné y la placa con su respectivo uniforme y los demás implementos y equipo policial que se le hayan entregado debido a su puesto.

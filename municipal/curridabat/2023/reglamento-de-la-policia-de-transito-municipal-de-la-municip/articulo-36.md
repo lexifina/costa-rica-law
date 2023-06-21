@@ -1,0 +1,1 @@
+Artículo 36.-Las personas funcionarias de la Policía de Tránsito Municipal estarán obligados a guardar discreción o reserva de los asuntos que conozcan por razón de su profesión y por lo delicado de sus funciones.

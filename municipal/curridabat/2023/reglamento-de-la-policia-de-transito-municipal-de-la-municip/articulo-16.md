@@ -1,0 +1,1 @@
+Artículo 16.-Los funcionarios trabajaran la jornada ordinaría, ante una emergencia se podrá contar con sus servicios adecuando sus actividades a los límites establecidos en el artículo 143 del Código de Trabajo.

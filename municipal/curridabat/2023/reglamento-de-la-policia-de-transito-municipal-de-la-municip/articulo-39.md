@@ -1,0 +1,1 @@
+Artículo 39.-Los Policías de Tránsito Municipal deberán prestar auxilio y el máximo respeto a todos los miembros de la Corporación Municipal, así como a sus signos externos, lo que deberá ser recíproco dada la autoridad que representa en este cantón.

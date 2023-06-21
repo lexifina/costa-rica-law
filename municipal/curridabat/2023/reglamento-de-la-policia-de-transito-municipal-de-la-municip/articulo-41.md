@@ -1,0 +1,1 @@
+Artículo 41.-Las vacaciones, permisos, licencias y excedencias se regularán por la legislación vigente. Estos días deberán solicitarse con un plazo mínimo de cuatro días de antelación y se concederán siempre que no exista escasez de recurso humano o se encuentre en una situación delicada, de emergencia o especial, por riguroso orden de petición.

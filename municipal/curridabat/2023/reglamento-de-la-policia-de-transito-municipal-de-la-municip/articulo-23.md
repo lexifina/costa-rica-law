@@ -1,0 +1,1 @@
+Artículo 23.-Los ascensos de los miembros de la Policía de Tránsito Municipal se realizarán de acuerdo con lo establecido en el Código Municipal, en este Reglamento y en el Reglamento Autónomo de Servicios de la Municipalidad de Curridabat.

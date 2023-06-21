@@ -1,0 +1,1 @@
+Artículo 42.-Con respecto al horario estos se regirán por lo establecido por el Reglamento Autónomo de Servicios, la Convección Colectiva y el Código de Trabajo, sobre las jornadas diurna, mixta y nocturna.

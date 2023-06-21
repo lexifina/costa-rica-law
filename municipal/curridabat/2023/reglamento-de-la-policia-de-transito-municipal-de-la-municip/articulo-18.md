@@ -1,0 +1,1 @@
+Artículo 18.-No obstante se respetarán los grados otorgados mediante acuerdo ejecutivo demostrando éste mediante documentos sin excepción, las cuales no alterarán la estructura jerárquica ya establecida.

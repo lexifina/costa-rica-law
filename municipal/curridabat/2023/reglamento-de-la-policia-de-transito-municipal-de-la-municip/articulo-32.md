@@ -1,0 +1,1 @@
+Artículo 32.-Se entenderá que todos los miembros de la Policía de Tránsito Municipal que circulen por la vía pública vistiendo el uniforme, están en funciones de servicio y estarán, por tanto, obligados a intervenir en todos aquellos sucesos que reclamen su presencia, cumpliendo con los deberes que le impone el presente reglamento.

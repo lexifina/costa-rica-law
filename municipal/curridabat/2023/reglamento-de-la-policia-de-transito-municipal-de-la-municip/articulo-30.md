@@ -1,0 +1,1 @@
+Artículo 30.-Las personas funcionarias de la Policía de Tránsito Municipal deberán, en todo momento, presentarse en perfecto estado y aseo personal, manteniendo en buen estado de conservación, tanto el vestuario como los equipos que le fueran entregados o encomendados para su uso y/o custodia; procurando siempre una imagen decorosa.

@@ -1,0 +1,1 @@
+Artículo 43.-Los miembros de la Policía de Tránsito Municipal tendrán derecho a la jubilación de acuerdo con lo establecido en la legislación vigente y así mismo gozarán de los derechos sociales que les pudieran corresponder.
