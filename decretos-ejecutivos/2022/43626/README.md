@@ -14,3 +14,4 @@ Declaratoria de emergencia nacional por elos efectos generados por la acumulaci√
 | Versi√≥n | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-07-08 | la propia norma |
+| 2 | 2023-06-21 | Decreto Ejecutivo 44072 (2023-06-21) |
