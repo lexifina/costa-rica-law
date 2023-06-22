@@ -1,0 +1,1 @@
+Artículo 6º- Trámites a realizar. Para gozar del beneficio de la tarifa reducida de los insumos indicados en la presente resolución no se requerirá llevar a cabo ningún trámite por parte de los beneficiarios.
