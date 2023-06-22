@@ -13,3 +13,4 @@ Tabla de Plazos de Conservación de Documentos de la Escuela Judicial
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-06-23 | la propia norma |
+| 2 | 2023-06-22 | Circular 157 (2023-06-22) |
