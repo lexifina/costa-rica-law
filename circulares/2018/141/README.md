@@ -13,3 +13,4 @@ Actualización de la Tabla de Plazos de Conservación del Archivo Criminal
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-10-24 | la propia norma |
+| 2 | 2023-06-23 | Circular 154 (2023-06-23) |
