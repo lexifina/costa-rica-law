@@ -1,6 +1,6 @@
 SECCIÓN II
 Unidades de Apoyo de la Dirección
-Artículo 9º—Unidades de Apoyo. Funciones:
+Artículo 9º-Unidades de Apoyo. Funciones:
 1. Unidad de Planificación, Gestión de la Calidad y Control Interno.
 a) Elaborar el plan operativo institucional (POI), plan anual operativo (PAO) y los informes de labores respectivos con la asistencia técnica de los jefes de departamento y unidades, en atención a las disposiciones técnicas emanadas de la Contraloría General de la República y de los Ministerios de Hacienda y Planificación Nacional y Política Económica, para efectos presupuestarios.
 b) Preparar la información que en materia fitosanitaria soliciten las autoridades del Ministerio de Agricultura y Ganadería; sector privado y organismos internacionales con respecto a los objetivos, metas y estrategias establecidas para maximizar los recursos empleados y alcanzar los resultados deseados.
@@ -32,19 +32,19 @@ i) Recomendar a la Dirección la adopción de medidas tendientes a lograr un may
 j) Servir de enlace y coordinación con otras instituciones, instancias privadas y la sociedad civil, en materia de la calidad, eficiencia y eficacia de los servicios que brinda el SFE.
 k) Promover procesos de modernización e implementación de ideas innovadoras, en la prestación de servicios.
 3. Unidad de Asuntos Jurídicos.
-a) Estudiar y analizar expedientes de carácter técnico legal.
-b) Revisar y avalar anteproyectos de dispositivos legales, directrices y otros documentos, concordándolos con la normativa vigente.
-c) Conducir las actividades jurídicas legales del SFE con terceros.
-d) Atender consultas y orientar a los funcionarios del SFE en aspectos jurídico legales.
-e) Interpretar dispositivos legales de carácter general.
-f) Estudiar y emitir opinión legal en proyectos de convenios, contratos y similares.
-g) Participar en la elaboración de normativa de carácter técnico legal.
-h) Participar en comisiones de coordinación para la solución de problemas y elaboración de políticas.
-i) Coordinar con la Procuraduría General de la República las acciones judiciales en que intervenga el SFE en los procedimientos judiciales y administrativos.
-j) Efectuar el seguimiento de las acciones judiciales que se tramitan en los juzgados.
-k) Organizar programas de capacitación y adiestramiento a los funcionarios en materia legal de competencia del SFE.
-l) Rendir los dictámenes jurídicos que le solicite la Dirección del SFE.
-m) Realizar las aprobaciones internas, en materia de contratación administrativa.
+a) (Derogado por el artículo 2° del decreto ejecutivo N° 44115 del 24 de junio del 2023)
+b) (Derogado por el artículo 2° del decreto ejecutivo N° 44115 del 24 de junio del 2023)
+c) (Derogado por el artículo 2° del decreto ejecutivo N° 44115 del 24 de junio del 2023)
+d) (Derogado por el artículo 2° del decreto ejecutivo N° 44115 del 24 de junio del 2023)
+e) (Derogado por el artículo 2° del decreto ejecutivo N° 44115 del 24 de junio del 2023)
+f) (Derogado por el artículo 2° del decreto ejecutivo N° 44115 del 24 de junio del 2023)
+g) (Derogado por el artículo 2° del decreto ejecutivo N° 44115 del 24 de junio del 2023)
+h) (Derogado por el artículo 2° del decreto ejecutivo N° 44115 del 24 de junio del 2023)
+i) (Derogado por el artículo 2° del decreto ejecutivo N° 44115 del 24 de junio del 2023)
+j) (Derogado por el artículo 2° del decreto ejecutivo N° 44115 del 24 de junio del 2023)
+k) (Derogado por el artículo 2° del decreto ejecutivo N° 44115 del 24 de junio del 2023)
+l) (Derogado por el artículo 2° del decreto ejecutivo N° 44115 del 24 de junio del 2023)
+m) (Derogado por el artículo 2° del decreto ejecutivo N° 44115 del 24 de junio del 2023)
 4. Unidad de Tecnología de la Información (Unidad Operativa).
 a) Planificar, controlar y evaluar las actividades relacionadas con la informática en el SFE. Administrar los recursos de informática y velar por el cumplimiento de las normas y procedimientos de informática.
 b) Velar por la correcta aplicación de las normas, disposiciones y reglamentos que regulan o tengan relación con la materia informática.

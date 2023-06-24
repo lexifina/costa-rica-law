@@ -16,3 +16,4 @@ Reglamento de la Estructura Organizativa del Servicio Fitosanitario del Estado
 | 1 | 2011-10-14 | la propia norma |
 | 2 | 2012-07-06 | Decreto Ejecutivo 37351 (2012-07-06) |
 | 3 | 2022-01-24 | Decreto Ejecutivo 43399 (2022-01-24) |
+| 4 | 2023-06-24 | Decreto Ejecutivo 44115 (2023-06-24) |
