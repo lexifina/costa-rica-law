@@ -15,3 +15,4 @@ Reglamento de la Estructura Organizativa del Servicio Nacional de Salud Animal
 | --- | --- | --- |
 | 1 | 2013-09-16 | la propia norma |
 | 2 | 2013-09-17 | Decreto Ejecutivo 37943 (2013-09-17) |
+| 3 | 2023-06-24 | Decreto Ejecutivo 44115 (2023-06-24) |
