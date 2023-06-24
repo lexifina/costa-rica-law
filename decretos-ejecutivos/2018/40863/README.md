@@ -14,3 +14,4 @@ Reglamento orgánico del Ministerio de Agricultura y Ganadería
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-01-16 | la propia norma |
+| 2 | 2023-06-24 | Decreto Ejecutivo 44115 (2023-06-24) |

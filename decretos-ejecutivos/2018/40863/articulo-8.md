@@ -1,22 +1,32 @@
-Artículo 8. De la Dirección Administrativa Financiera.
-a. Objetivo
-Coordinar y tomar decisiones en temas administrativos propios del MAG, así como fungir de enlace con otras instituciones y entidades, tanto dentro como fuera del Sector Agropecuario; tales como planeación y ejecución de presupuesto, gestión de recursos, aprovisionamiento de bienes y servicios, tecnologías de información y comunicación, planeación y desarrollo de programas y proyectos.
-b. Funciones
-a- Coordinar la formulación de los presupuestos y financiamiento público a proyectos específicos.
-b- Participar en la definición de la política del Ministerio y sugerir respuestas a las necesidades del sector.
-c- Coordinar la ejecución de las políticas y directrices emanadas del Despacho Ministerial con los entes correspondientes.
-d- Administrar los recursos humanos, físicos, financieros de acuerdo a las políticas y directrices del Despacho Ministerial.
-e- Garantizar y controlar la utilización óptima de los recursos financieros del Ministerio, en términos de eficiencia técnica y eficacia jurídica y administrativa.
-f- Garantizar y controlar la eficiencia y eficacia de la función de aprovisionamiento y distribución de bienes que se ejecutan a través del presupuesto ordinario, cuentas especiales, fideicomiso, recursos externos y otras modalidades de manejo financiero.
-g- Garantizar la eficiencia y eficacia en las funciones de vigilancia y custodia de los bienes y servicios generales que requiere la Institución.
-h- Asegurar la debida documentación, mantenimiento y actualización de los archivos y procesos administrativos.
-i- Asegurar el buen funcionamiento de la institución mediante el cumplimiento y mejora continua del sistema de gestión institucional y control Interno.
-j- Coordinar y asesorar a los diferentes Directores de Programas, así como a los Directores Regionales y Agentes de Servicios Agropecuarios sobre la administración de los recursos físicos, humanos y financieros que les corresponda administrar.
-k- Responder, ante el Ministerio de Hacienda, todo lo relacionado con la tramitación de los presupuestos ministeriales ordinarios y extraordinarios de la República.
-l- Fungir como enlace legislativo, en la defensa de los presupuestos para el MAG y sus órganos de desconcentración máxima y mínima.
-m- Proponer, coordinar y ejecutar acciones que tiendan al adecuado desenvolvimiento administrativo y técnico de la Institución.
-n- Dirigir la administración inmobiliaria, mediante el mantenimiento de edificaciones existentes y la gestión de proyectos de obra pública nueva.
-o- Dirigir la administración de servicios de apoyo, mediante la gestión de los servicios operativos y misceláneos, de la flotilla vehicular, así como de la logística para actividades institucionales.
+Artículo 8. Oficialía Mayor y Dirección Administrativa Financiera.
+(Así reformado el párrafo anterior por el artículo 1° del decreto ejecutivo N° 44115 del 24 de junio del 2023)
+(*)a. Objetivo
+Ser la instancia especializada en la coordinación, ejecución y toma de decisiones en temas administrativos propios del MA. G y sus órganos desconcentrados, tales como planeación y ejecución de presupuesto, gestión de recursos financieros, administrativos y humanos, aprovisionamiento de bienes y servicios, comunicación, planeación y desarrollo de programas y proyectos, procurando una administración eficaz y eficiente.
+(Así reformado el punto a) anterior por el artículo 1° del decreto ejecutivo N° 44115 del 24 de junio del 2023)
+Tendrá a su cargo las siguientes funciones:
+(*)b. Funciones
+a- Fungir como enlace administrativo de la Institución a lo interno, así como con otras instituciones y entidades, tanto dentro como juera del Sector Agropecuario
+b- Coordinar la formulación del presupuesto institucional y financiamiento público a proyectos específicos de interés para el Sector Agropecuario.
+e- Participar en la definición de la política del Ministerio y dar el seguimiento respectivo, así como sugerir respuestas a las necesidades del sector.
+d- Coordinar la ejecución de las políticas y directrices emanadas del Despacho Ministerial con los entes correspondientes.
+e- Administrar los recursos humanos, físicos, financieros de acuerdo a las políticas y directrices del Despacho Ministerial.
+f- Garantizar y controlar la utilización óptima de los recursos financieros del Ministerio y sus órganos de desconcentración máxima y mínima, en términos de eficiencia técnica y eficacia jurídica y administrativa.
+g- Garantizar y controlar la eficiencia y eficacia de la función de aprovisionamiento y distribución de bienes que se ejecutan a través del presupuesto ordinario, cuentas especiales, fideicomiso, recursos externos y otras modalidades de manejo financiero.
+h- Garantizar la eficiencia y eficacia en las funciones de vigilancia y custodia de los bienes y servicios generales que requiere la Institución.
+i- Asegurar la debida documentación, mantenimiento y actualización de los archivos y procesos administrativos.
+j- Asegurar el buen funcionamiento de la institución mediante el cumplimiento y mejora continua del sistema de gestión institucional y control Interno.
+k- Coordinar y asesorar a los diferentes Directores de Programas y subprogramas, así como a los Directores Regionales y Agentes de Extensión Agropecuaria sobre la administración de los recursos físicos, humanos y financieros que les corresponda administrar.
+l- Coordinar el proceso de formulación del Presupuesto Ordinario y Extraordinario y velar por su efectiva ejecución.
+m- Responder, ante el Ministerio de Hacienda, todo lo relacionado con la tramitación de los presupuestos ministeriales ordinarios y extraordinarios de la República
+n- Fungir como enlace legislativo, en la defensa de los presupuestos para el MAG y sus órganos de desconcentración máxima y mínima.
+o- Impulsar y dar seguimiento a proyectos de ley de interés del Sector Agropecuario.
+p- Colaborar y participar en los procesos de rendición de cuentas del Ministerio y sus órganos de desconcentración.
+q- Proponer, coordinar y ejecutar acciones que tiendan al adecuado desenvolvimiento administrativo y técnico del Ministerio y sus órganos de desconcentración.
+r- Implementar las recomendaciones en materia administrativa y financiera, planteadas por la Contrataría General de la República, el Ministerio de Hacienda, el Ministerio de Planificación Nacional y Política Económica (MIDEPLAN), la Dirección General del Servicio Civil, la Auditoría Interna y otras instancias institucionales.
+s- Dirigir la administración inmobiliaria, mediante el mantenimiento de edificaciones existentes y la gestión de proyectos de obra pública nueva.
+t- Dirigir la administración de servicios de apoyo, mediante la gestión de los servicios operativos y misceláneos, de la flotilla vehicular, así como de la logística para actividades institucionales.
+u- Atender cualquier otra función que le sea asignada por el Jerarca atinente a sus competencias.
+(Así reformado el punto b) anterior por el artículo 1° del decreto ejecutivo N° 44115 del 24 de junio del 2023)
 Para el cumplimiento de sus funciones la Dirección Administrativa Financiera está organizada de la siguiente forma:
 1. Archivo institucional
 a. Objetivo

@@ -1,29 +1,37 @@
 Artículo 7. De las Instancias Asesoras
-1- Asesoría Jurídica
+(*)1-Asesoría Jurídica
 a. Objetivo
-Asesorar y emitir criterios de manera eficaz y eficiente, los asuntos jurídicos sometidos a su conocimiento, conforme a la normativa nacional e internacional vigente a todo el Sector Agropecuario.
+Asesorar, orientar, gestionar y emitir criterios de manera eficaz y eficiente, en los asuntos jurídicos sometidos a su conocimiento dentro de la competencia del Ministerio a sus órganos internos y externos y del Sector Agropecuario, conforme a la normativa nacional e internacional vigente. Tendrá a su cargo las siguientes funciones:
 b. Funciones
-a- Asesorar y orientar al Jerarca del Sector Agropecuario, en su quehacer para mejorar el aporte jurídico dentro del proceso de toma de decisiones.
-b- Garantizar la objetividad, imparcialidad y uniformidad de los criterios emitidos para el Jerarca del Sector Agropecuario y el Ministerio de Agricultura y Ganadería.
+a- Asesorar y orientar al Ministro o Ministra y Jerarca del Sector Agropecuario, así como a los Viceministros(a) del Ministerio, sus órganos internos y externos y del Sector Agropecuario en su quehacer para mejorar el aporte jurídico dentro del proceso de toma de decisiones.
+b- Garantizar la objetividad, imparcialidad y uniformidad de los criterios emitidos para el Jerarca del Sector Agropecuario, el Ministerio de Agricultura y Ganadería, así como a sus órganos internos y externos y del Sector Agropecuario.
 c- Contribuir con los procesos de rendición de cuentas y evaluación de la gestión.
-d- Defender los intereses institucionales y del Sector Agropecuario.
-e- Procurar soluciones alternativas a los conflictos que se originen en las relaciones laborales inter orgánicas.
-f- Facilitar el acceso a la información jurídica confiable mediante los recursos tecnológicos para la toma de decisiones institucionales.
-g- Capacitar al personal institucional y a los actores del Sector Agropecuario en la confección y aplicación de la normativa nacional e internacional en materia jurídica agroalimentaria.
-h- Coordinar y dirigir el foro conformado por las asesorías jurídicas del Sector Agropecuario.
-i- Atender, investigar, analizar, resolver, proponer y redactar consultas y/o disposiciones de carácter jurídico.
-j- Elaborar y revisar las resoluciones, convenios, contratos, acuerdos, decretos, leyes, procedimientos y cualquier otro documento jurídico que deba suscribir el Ministro de Agricultura y Ganadería.
-k- Brindar asesoría legal a las autoridades superiores y demás unidades organizativas que lo requieran, en el ejercicio de las funciones bajo su responsabilidad.
-l- Atender cualquier otra función que le sea asignada.
-2- Prensa
+d- Defender los intereses institucionales en la vía administrativa o judicial del Ministerio, sus órganos internos y externos y del Sector Agropecuario según se requiera.
+e- Procurar soluciones alternativas a los conflictos que se originen en las relaciones laborales interorgánicas.
+f Facilitar el acceso a la información jurídica confiable mediante los recursos tecnológicos para la toma de decisiones institucionales.
+g- Capacitar al personal institucional y a los actores del Sector Agropecuario en la confección y aplicación de la normativa nacional e internacional agropecuaria.
+h- Atender, investigar, analizar, resolver, proponer y redactar consultas o disposiciones de carácter jurídico.
+i- Elaborar y revisar las resoluciones, convenios, contratos, acuerdos, decretos, leyes, procedimientos y cualquier otro documento jurídico que deba suscribir el Ministro o Ministra de Agricultura y Ganadería, sus órganos internos y externos y del Sector Agropecuario.
+j- Brindar asesoría legal a las autoridades superiores y demás unidades organizativas que lo requieran, en el ejercicio de las funciones bajo su responsabilidad.
+k- Atender cualquier otra función que 'le sea asignada por el Jerarca atinente a sus competencias.
+Para el cumplimiento de sus funciones la Asesoría Jurídica está organizada de la siguiente forma:
+- Unidad de Gestión Jurídica y Contratación Pública: desarrollará las funciones y procesos relacionados a procedimientos administrativos, contratación pública, procesos judiciales y administrativos, así como la realización de resoluciones administrativas.
+- Unidad de Asesoría Técnica Jurídica y Normativa: desarrollará las funciones y procesos relacionados a consultas y asesoría jurídica, elaboración y tramite de 'normativa; confección de acuerdos, procesos registra/es y notariales, acompañamiento en actividades técnicas, gestiones administrativas y capacitaciones.
+Esto sin menoscabo de las demás funciones que la jefatura pueda asignar a cada unidad.
+(*)(Así reformado el apartado 1) anterior por el artículo 1° del decreto ejecutivo N° 44115 del 24 de junio del 2023)
+(*)2- Comunicación Institucional
 a. Objetivo
-Facilitar a públicos internos y externos la información institucional, mediante el uso de las herramientas disponibles, para apoyar la transferencia de conocimientos, de tecnologías y de información estratégica para la toma de decisiones y el fortalecimiento de la rendición de cuentas institucional hacia la ciudadanía.
+Mantener un vínculo sistemático y permanente con las diferentes unidades administrativas del A1AG, sus órganos internos y externos y del Sector Agropecuario, en procura de velar por el desarrollo de actividades de difusión, por medio de las cuales se pueda lograr la proyección y comunicación de los avances y resultados de las actividades respectivas, tanto ;en el ámbito institucional, como el ámbito externo; así como atender y canalizar adecuadamente los requerimientos de información que realicen los diversos medios de comunicación. Tendrá a su cargo las siguientes funciones:
 b. Funciones
-a- Establecer y mantener canales de comunicación efectivos, mediante los que se transmite información veraz y oportuna a los públicos de interés del MAG.
-b- Construir los mensajes institucionales que el MAG desea divulgar entre sus públicos de interés, mediante los canales establecidos.
+a- Establecer y mantener canales de comunicación efectivos entre la ciudadanía, el MAG, sus órganos internos y externos y del Sector Agropecuario, mediante los que se transmite información veraz y oportuna
+b- Construir los mensajes institucionales que el MAG, sus órganos internos y externos y del Sector Agropecuario desean divulgar mediante los canales establecidos al público en general.
 c- Desarrollar y ejecutar estrategias institucionales e interinstitucionales, que promuevan una imagen estandarizada y acorde con los planes y políticas institucionales que establecen las distintas administraciones.
-d- Brindar asesoría a jerarcas y funcionarios en el manejo de la comunicación y las relaciones con los distintos medios, en los temas de importancia estratégica y política para el Ministerio.
-e- Fortalecer los procesos de rendición de cuentas y transparencia institucionales.
+d- Brindar asesoría a los jerarcas y funcionarios en el manejo de la comunicación y las relaciones con los distintos medios, en los ternas de importancia estratégica y política para el j'vfinisterio sus órganos internos y externos y del Sector Agropecuario.
+e- Promover y participar en los procesos de rendición de cuentas y transparencia institucionales, así como en su difusión.
+f Realizar todas las actividades relacionadas con el manejo de la prensa, relaciones públicas, publicidad, manejo de redes y plataformas sociales del Ministerio, sus órganos internos y externos y del Sector Agropecuario.
+g- Apoyar también las actividades de transferencia de conocimientos, de tecnologías y de información estratégica para la toma de decisiones
+h- Atender cualquier otra función que le sea asignada por el Jerarca atinente a sus competencias.
+(*)(Así reformado el apartado 2) anterior por el artículo 1° del decreto ejecutivo N° 44115 del 24 de junio del 2023)
 3- Planificación Institucional
 a. Objetivo
 Orientar el proceso de planificación estratégico y operativo del Ministerio de Agricultura y Ganadería en función de las necesidades del Sector Agropecuario y en consonancia con los planes sectoriales y nacionales de desarrollo, de tal manera que se logre un incremento sustantivo de los niveles de bienestar de la población agropecuaria y una mayor eficiencia en el empleo de los recursos institucionales mediante el impulso de procesos de control interno.
