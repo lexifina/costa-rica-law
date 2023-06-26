@@ -1,5 +1,4 @@
 CAPÍTULO V
 De los acuerdos y las actas
-Artículo 24.- Acuerdos firmes.
-Podrá declararse firme un acuerdo con el voto favorable de los dos tercios del total de las personas que integran la Junta Directiva. Los acuerdos firmes no están sometidos al recurso de revisión que regula el presente Reglamento, aunque sí podrán ser anulados o revocados, o impugnados, de conformidad con la Ley General de la Administración Pública.
+Artículo 24.-Acuerdos firmes. Podrá declararse firme un acuerdo con el voto favorable de los dos tercios del total de las personas que integran la Junta Directiva. Los acuerdos firmes no están sometidos al recurso de revisión que regula el presente Reglamento, aunque sí podrán ser anulados o revocados, o impugnados, de conformidad con la Ley General de la Administración Pública.
 Los acuerdos en firme adoptados por la Junta Directiva serán comunicados por quien desempeñe la Secretaría Técnica o en su ausencia por la Presidencia Ejecutiva, a la mayor brevedad posible, a quien corresponda para su debida ejecución. Así mismo se le comunicará a quien interese, a la Administración Superior, Asesoría Legal y Auditoría Interna, para lo que corresponda, salvo el caso de confidencialidad así votada por las personas integrantes de la Junta Directiva.

@@ -1,2 +1,1 @@
-Artículo 8. -Gastos de representación.
-Los gastos de representación al exterior, de quien ejerza la Presidencia Ejecutiva así como de quienes integran la Junta Directiva, deberán corresponder a misiones oficiales en las que actúen como Jefes de Delegación y requerirán autorización mediante acuerdo de la Junta Directiva.
+Artículo 8º-Gastos de representación. Los gastos de representación al exterior, de quien ejerza la Presidencia Ejecutiva así como de quienes integran la Junta Directiva, deberán corresponder a misiones oficiales en las que actúen como Jefes de Delegación y requerirán autorización mediante acuerdo de la Junta Directiva.
