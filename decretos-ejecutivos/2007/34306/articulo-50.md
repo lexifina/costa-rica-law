@@ -1,2 +1,2 @@
-Artículo 50.-Rige a partir de su publicación.
-Dado en la Presidencia de la República, a los cinco días del mes de diciembre del dos mil siete.
+Artículo 50.-En lo no previsto en este Reglamento, se aplicará supletoriamente la Ley del Sistema Nacional de Archivos, la Ley General de la Administración Pública, el Estatuto de Servicio Civil y el Reglamento Autónomo de Servicio de Trabajo, la Ley de Control Interno.
+(Así modificada su numeración por el artículo 1° del decreto ejecutivo N° 44182 del 26 de junio del 2023, que lo traspasó del antiguo artículo 49 al artículo 50)

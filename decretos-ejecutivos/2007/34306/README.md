@@ -14,3 +14,4 @@ Reglamento del Sistema Institucional de Archivos del Ministerio de Trabajo y Seg
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-02-13 | la propia norma |
+| 2 | 2023-06-26 | Decreto Ejecutivo 44182 (2023-06-26) |
