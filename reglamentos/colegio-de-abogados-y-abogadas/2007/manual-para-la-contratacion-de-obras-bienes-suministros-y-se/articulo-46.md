@@ -1,4 +1,4 @@
-46.—Modificación unilateral del contrato. La Administración podrá modificar unilateralmente sus contratos, cuanto existan los recursos económicos necesarios, siempre que concurran las siguientes circunstancias:
+46.-Modificación unilateral del contrato. La Administración podrá modificar unilateralmente sus contratos, cuanto existan los recursos económicos necesarios, siempre que concurran las siguientes circunstancias:
 - Que la modificación, de aumento o disminución del objeto, no le cambie su naturaleza, ni tampoco le impida cumplir con su funcionalidad o fin inicialmente propuesto.
 - En caso de aumento se trate de bienes o servicios similares.
 - Que no exceda el 50% del monto del contrato original, incluyendo reajustes o revisiones, según corresponda.

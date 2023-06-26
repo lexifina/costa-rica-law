@@ -1,4 +1,3 @@
 Anexo 1
 Límites de Contratación
-Los limites vigentes para contrato directo, licitación abreviada y licitación pública serán los aplicables de acuerdo al estrato (E) de ubicación del Colegio en la actualización que realiza la Contraloría General de la República cada año, conforme los artículos 27 de la Ley de Contratación Administrativa y 84 del Reglamento a la Ley de Contratación Administrativa.
-(Así reformado en sesión N° 03-18 del 22 de enero de 2018)
+Los límites vigentes para Licitación Mayor, Licitación Menor y Licitación Reducida serán los aplicables de acuerdo al estrato (E) de ubicación del Colegio en la actualización que realiza la Contraloría General de la República cada año, conforme los artículos de la Ley de General de Contratación Pública y del Reglamento a la Ley General de Contratación Pública.

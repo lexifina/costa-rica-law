@@ -1,22 +1,23 @@
-34.—De la contratación simplificada.
-- La contratación simplificada es un procedimiento ágil que se efectuará para llevar a cabo la contratación de obras menores, bienes, suministros o servicios, al cual se invitará a participar a un máximo de tres oferentes registrados.
-- La invitación a participar se cursará a través de facsímile, correo electrónico, o cualquier otro medio idóneo para tal efecto, que conste en el registro de proveedores. Se procurará invitar en cada ocasión, a quienes no hayan sido invitados antes.
+34.-De la contratación simplificada.
+- La contratación simplificada es un procedimiento ágil que se efectuará para llevar a cabo la contratación de obras menores, bienes, suministros o servicios, al cual se invitará a participar a un máximo de tres oferentes registrados o bien oferentes resultantes de otras bases de datos o cámaras de comercio, colegios profesionales y afines.
+- La invitación a participar se cursará a través de correo electrónico, o cualquier otro medio idóneo para tal efecto, que conste en el registro de proveedores. Se procurará invitar en cada ocasión, a quienes no hayan sido invitados antes.
 - El plazo para recibir ofertas no será menor a dos días hábiles.
-- Cualquier comunicación que sea necesaria realizar, sea prorrogando el plazo para recibir ofertas, modificando o aclarando alguna condición del concurso e incluyendo el acto de adjudicación, se hará a los interesados mediante facsímile, al mismo número al que se dirigió la invitación a participar.
+- Cualquier comunicación que sea necesaria realizar, sea prorrogando el plazo para recibir ofertas, modificando o aclarando alguna condición del concurso e incluyendo el acto de adjudicación, se hará a los interesados mediante correo electrónico, o cualquier otro medio idóneo para tal efecto en el cual se dirigió la invitación a participar o medio señalado por el oferente para tales fines.
 - En casos excepcionales, en los que razones de urgencia debidamente acreditadas hagan indispensable contar con el bien, suministro, obra o servicio lo antes posible, se podrá realizar la contratación simplificada.
 - Adicionalmente, podrá acudirse a la contratación simplificada en los siguientes casos:
 - Oferente único: Con la comprobación concreta y comprobada de la existencia de ese único proveedor del servicio que se pretende adquirir.
 - Bienes o servicios artísticos o intelectuales.
 - Medios de comunicación social.
 - Suscripciones y compra de material bibliográfico.
-- Servicios de capacitación
+- Servicios de capacitación.
 - Atención urgente de gestiones judiciales.
-- Objetos que requieren seguridades calificadas
-- Interés manifiesto de colaborar con la Administración
-- Arrendamiento o compra de bienes únicos
-- Arrendamiento de vehículos de los funcionarios
-- Servicios de Arbitraje o Conciliación
-- Combustible
-- Patrocinios
-- Asesoría a Auditoría Interna
-Para la aplicación de las anteriores circunstancias y su debida interpretación, véase el artículo 131 del Reglamento de Contratación Administrativa.
+- Objetos que requieren seguridades calificadas.
+- Interés manifiesto de colaborar con la Administración.
+- Arrendamiento o compra de bienes únicos.
+- Arrendamiento de vehículos de los funcionarios.
+- Servicios de Arbitraje o Conciliación.
+- Combustible.
+- Patrocinios.
+- Asesoría a Auditoría Interna.
+Para la aplicación de las anteriores circunstancias y su debida interpretación, deberá interpretarse según lo dispuesto en el artículo 2 de la Ley General de Contratación Pública y el artículo 7 de su reglamento.
+(Así reformado en sesión N° 24-23 del 26 de junio de 2023)

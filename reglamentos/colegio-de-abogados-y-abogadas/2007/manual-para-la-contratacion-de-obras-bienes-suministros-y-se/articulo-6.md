@@ -1,4 +1,4 @@
-6º—Trámite por parte de la proveeduría: Una vez dispuesto el inicio del procedimiento por parte del funcionario competente, se trasladará la documentación completa a la Proveeduría Institucional, quien será la única unidad encargada de realizar las compras institucionales, debiendo conducirse de la siguiente manera:
+6º-Trámite por parte de la proveeduría: Una vez dispuesto el inicio del procedimiento por parte del funcionario competente, se trasladará la documentación completa a la Proveeduría Institucional, quien será la única unidad encargada de realizar las compras institucionales, debiendo conducirse de la siguiente manera:
 - Verificará que se cuenta con el contenido presupuestario disponible para atender la erogación y que la solicitud cumpla con los requisitos indicados en la cláusula quinta. De no ser así devolverá la solicitud, para que la corrección correspondiente.
 - Determinará el procedimiento de contratación administrativa a seguir conforme al presente manual.
 - Establecerá los controles necesarios para cumplir con el cronograma estándar de las actividades y plazos máximos previamente definidos por ésta.

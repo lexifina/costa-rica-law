@@ -1,1 +1,1 @@
-37.—Contrataciones con fondos caja chica. Las compras para gastos menores e indispensables, cuya ejecución es de carácter excepcional que se efectúen con cargo a los fondos de caja chica, se regirán por las disposiciones reglamentarias que al efecto posee el Colegio.
+37.-Contrataciones con fondos caja chica. Las compras para gastos menores e indispensables, cuya ejecución es de carácter excepcional que se efectúen con cargo a los fondos de caja chica, se regirán por las disposiciones reglamentarias que al efecto posee el Colegio.

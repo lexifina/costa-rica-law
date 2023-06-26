@@ -1,4 +1,4 @@
-5º—Contenido de la solicitud: La solicitud de lo requerido se hará en el formulario denominado “Solicitud de bienes y servicios varios”, cumpliendo con los siguientes requisitos:
+5º-Contenido de la solicitud: La solicitud de lo requerido se hará en el formulario denominado "Solicitud de bienes y servicios varios", cumpliendo con los siguientes requisitos:
 - Escrita a mano o máquina, sin borrones, ni tachaduras.
 - Nombre del departamento o unidad solicitante y de la persona que hace la solicitud.
 - Fecha

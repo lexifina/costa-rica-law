@@ -1,2 +1,2 @@
-Transitorio II.—Los contratos que se encuentren en ejecución al momento de entrar en vigencia el presente Manual, continuarán su ejecución en los términos bajo los cuales se promovieron, hasta su finalización.
-El presente Manual fue aprobado por la junta directiva en la sesión Nº 16-05 del 25 de abril del año 2007, y ratificado en sesión Nº 17-07 del 2 de mayo de 2007, mediante Acuerdo Nº 2007-07-011
+Transitorio II.-Los contratos que se encuentren en ejecución al momento de entrar en vigencia el presente Manual, continuarán su ejecución en los términos bajo los cuales se promovieron, hasta su finalización.
+El presente Manual fue aprobado por la junta directiva en la sesión Nº 16-05 del 25 de abril del año 2007, y ratificado en sesión Nº 17-07 del 2 de mayo de 2007, mediante Acuerdo Nº 2007-07-011. Reformado en sesión N° 24-23 del 26 de junio de 2023.

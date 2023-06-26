@@ -1,5 +1,5 @@
-32.—De la contratación abierta. La Contratación abierta es un procedimiento en que puede participar y presentar oferta cualquier eventual interesado.
+32.-De la contratación abierta. La Contratación abierta es un procedimiento en que puede participar y presentar oferta cualquier eventual interesado.
 - La invitación a participar se podrá realizar mediante publicación que se hará en un diario de circulación nacional, sin perjuicio de que se pueda invitar directamente a potenciales oferentes que se encuentren acreditados ante el registro de proveedores de la Institución.
 - El plazo para recibir ofertas se indicará en el respectivo pliego de condiciones, pero en ningún caso será menor a quince días naturales a partir de la fecha en que se publique o se curse la respectiva invitación.
 - Cualquier prórroga al plazo para recibir ofertas o modificaciones que se haga a las bases del concurso, se comunicará a los interesados mediante facsímile, al número que se consigne al comprar el pliego de condiciones. Igual procedimiento se seguirá con cualquier aclaración que se disponga.
-- La comunicación de la adjudicación se hará a todos los participantes mediante facsímile.
+- La comunicación de la adjudicación se hará a todos los participantes mediante cualquier medio de comunicación tecnológico que se haya señalado al efecto.

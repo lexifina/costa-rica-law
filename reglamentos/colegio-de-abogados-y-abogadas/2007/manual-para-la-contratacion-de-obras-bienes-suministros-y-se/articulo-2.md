@@ -1,4 +1,4 @@
-2º—Excepciones. Se excluyen de la aplicación del presente Manual las siguientes actividades, las cuales se contratarán por las vías que establece la legislación vigente o en la forma que mejor se satisfagan los intereses del Colegio:
+2º-Excepciones. Se excluyen de la aplicación del presente Manual las siguientes actividades, las cuales se contratarán por las vías que establece la legislación vigente o en la forma que mejor se satisfagan los intereses del Colegio:
 1 La contratación del personal de planta
 2 La contratación de instructores para los distintos eventos de capacitación y académicos organizados o patrocinados por el Colegio.
 3 La contratación de los servicios necesarios para atender las actividades sociales, culturales y deportivas que organice el Colegio.

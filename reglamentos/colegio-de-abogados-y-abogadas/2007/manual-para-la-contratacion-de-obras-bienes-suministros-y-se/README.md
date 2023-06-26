@@ -16,3 +16,4 @@ Manual para la Contratación de Obras, Bienes, Suministros y Servicios del Coleg
 | 1 | 2007-05-21 | la propia norma |
 | 2 | 2014-06-30 | Reglamento 24 (2014-06-30) |
 | 3 | 2018-01-22 | Reglamento 3 (2018-01-22) |
+| 4 | 2023-06-26 | Reglamento 24 (2023-06-26) |
