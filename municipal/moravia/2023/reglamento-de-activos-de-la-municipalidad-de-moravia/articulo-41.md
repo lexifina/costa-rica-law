@@ -1,0 +1,1 @@
+Artículo 41.-Los bienes puestos a disposición de la Municipalidad para donación serán sometidos a inspección para determinar su estado y aceptación. Dicha inspección estará a cargo de la unidad técnica competente, la cual deberá levantar un informe indicando el estado y recomendando si se acepta la donación.

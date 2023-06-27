@@ -1,0 +1,1 @@
+Artículo 9º-Formularios electrónicos. El módulo de activos del sistema informático vigente contará con los formularios electrónicos correspondientes para tramitar los ingresos de bienes, asignación, reasignación y baja de bienes.

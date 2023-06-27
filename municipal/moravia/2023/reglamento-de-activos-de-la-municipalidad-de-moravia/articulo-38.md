@@ -1,0 +1,1 @@
+Artículo 38.-La depreciación que se calcula a los activos fijos puestos al servicio de la Municipalidad, cuya depreciación no deba calcularse por horas o por días, si no por meses o años, deberá calcularse por el método de línea recta, método de depreciación aceptado por la Contabilidad Nacional, según directriz vigente a la fecha (Directriz CN001- 2009 del 29 noviembre 2009).

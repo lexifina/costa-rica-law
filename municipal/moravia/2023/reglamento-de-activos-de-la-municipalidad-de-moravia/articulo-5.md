@@ -1,0 +1,11 @@
+Artículo 5º-Funciones del encargado. El Encargado del Control y Registro de los Activos Fijos será el responsable de coordinar todas las actividades, implementadas para el control de los activos de la institución; para lo cual todas las dependencias municipales quedan obligadas a prestar la colaboración debida. Tendrá a cargo la identificación y registro del bien; actividades que, deberán de realizarse en el momento que sea requerido, a efecto de garantizar que el registro se mantenga actualizado en todo momento.
+Para un adecuado registro y control de los activos, el encargado tendrá las siguientes funciones:
+1. Registrar en el sistema informático, módulo de activos fijos, el movimiento de los activos fijos.
+2. Aprobar los movimientos de los activos fijos, en el sistema informático creado al efecto.
+3. Realizar la verificación en el campo de los movimientos de activos, registrados y aprobados en el sistema informático.
+4. Programar y realizar las tomas físicas de la totalidad de los activos fijos de la Municipalidad, una vez cada año, en el mes de junio.
+5. Emitir los reportes establecidos que soliciten las jefaturas o encargados(as) de las dependencias Municipales, en función de los activos asignados bajo su custodia.
+6. Recibir, revisar y registrar el ingreso de todos los activos muebles, asignar y colocar su número o placa de identificación. En lo referente a equipo informático y tecnológico le corresponderá al Departamento de Tecnologías de la Información el plaqueo de este y deberá informar y coordinar con el encargado de control de activos los ajustes correspondientes.
+7. Comunicar mensualmente al Departamento de Contabilidad sobre cualquier donación, venta, retiro o adquisición de activos, mediante los documentos correspondientes.
+8. Informar a las dependencias institucionales sobre políticas y procedimientos que se refieran a adquisición, traslado, venta o reparación de los activos.
+9. Prever contenido presupuestario, realizar el estudio de mercado, establecer las especificaciones técnicas, requerir la solicitud de compra en el sistema de compras públicas, de los controles de identificaciones (placas metálicas, etiquetas, grabado, entre otros) para el plaqueo de los activos.

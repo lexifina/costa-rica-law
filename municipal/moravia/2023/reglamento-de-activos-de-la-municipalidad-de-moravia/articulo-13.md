@@ -1,0 +1,1 @@
+Artículo 13.-Equipo de transporte. Cada equipo deberá tener en su carrocería el número de activo, para lo cual, en los pliegos de condiciones de cada procedimiento de contratación, se solicitará al adjudicado que se incluya el número de activo asignado, conforme a los detalles referentes a tamaño, material, colores, ubicación, entre otros definidos en cada pliego.

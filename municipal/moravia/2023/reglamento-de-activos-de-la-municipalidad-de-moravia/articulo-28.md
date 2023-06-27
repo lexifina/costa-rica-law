@@ -1,0 +1,1 @@
+Artículo 28.-Reportes. La persona que labora para la Municipalidad está en la obligación de reportar a la jefatura inmediata y al Encargado de Control de Activos cuando advierta la desaparición de algún bien o cuando se trasladen, se deterioren o se desprenda la identificación numérica.

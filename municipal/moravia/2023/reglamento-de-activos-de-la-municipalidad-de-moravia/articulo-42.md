@@ -1,0 +1,1 @@
+Artículo 42.-El ingreso de los bienes se realizará mediante la emisión de un documento en el que se debe detallar al menos lo siguiente: Descripción del activo, cantidad, valor del bien y estado en general.

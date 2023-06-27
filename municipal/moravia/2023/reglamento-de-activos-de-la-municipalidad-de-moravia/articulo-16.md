@@ -1,0 +1,1 @@
+Artículo 16.-Bienes intangibles. Los activos intangibles tales como licencias informáticas, patentes, licencias de invención deberán ser incluidas en los registros de activos institucionales; siendo responsabilidad del Departamento de Tecnologías de la Información comunicar al Encargado de Control de Activos sobre la existencia y asignación de estos bienes.

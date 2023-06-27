@@ -1,0 +1,1 @@
+Artículo 15.-Bienes inmuebles. La información de los activos fijos correspondiente a bienes inmuebles deberá ser suministrada al Encargado del Control y Registro de Activos Fijos por parte el Departamento de Administración Territorial y Valoraciones, así como la Dirección de Gestión Técnica Operativa, según corresponda.

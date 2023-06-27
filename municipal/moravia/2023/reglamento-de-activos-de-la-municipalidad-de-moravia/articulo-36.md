@@ -1,0 +1,1 @@
+Artículo 36.-Informe y firma de inventarios. Luego de levantado el inventario y ajustadas las diferencias encontradas, el Encargado de Control de Activos deberá enviar informe con el resultado del inventario a las dependencias para verificación de este y eventuales consultas. Dicho informe deberá contar con la aceptación por medio de firma del funcionario responsable.

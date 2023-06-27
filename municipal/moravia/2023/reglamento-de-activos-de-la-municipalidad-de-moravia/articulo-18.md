@@ -1,0 +1,1 @@
+Artículo 18.-Desinscripción de bienes ante el Registro Público. El Encargado de Control de Activos, en coordinación con las dependencias administrativas que por competencia sustancial tienen a cargo el proceso, serán responsable de realizar las gestiones para la desinscripción de bienes ante el Registro Público de la Propiedad.

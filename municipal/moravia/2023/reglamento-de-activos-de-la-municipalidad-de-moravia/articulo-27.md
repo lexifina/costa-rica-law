@@ -1,0 +1,1 @@
+Artículo 27.-Activo dañado. Cuando una persona ingrese a un puesto de trabajo en la Municipalidad y encuentre un activo dañado, tendrá que comunicarlo a la jefatura inmediata para que realice las acciones necesarias para su reparación o sustitución.

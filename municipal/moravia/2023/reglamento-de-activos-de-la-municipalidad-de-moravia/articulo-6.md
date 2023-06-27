@@ -1,0 +1,1 @@
+Artículo 6º-Naturaleza de los activos fijos. Se consideran activos fijos aquellos bienes adquiridos, ya sea mediante procesos de compra, construcción, hallazgo, permuta, donaciones. Se les asignará una placa de identificación y serán depreciados o amortizados, según corresponda, por el método de línea recta.

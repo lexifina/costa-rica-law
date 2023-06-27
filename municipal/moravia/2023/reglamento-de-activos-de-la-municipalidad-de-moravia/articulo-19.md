@@ -1,0 +1,1 @@
+Artículo 19.-Uso y custodia. Todo funcionario es responsable por el buen uso y custodia de los activos que le han sido asignados para el desempeño de sus funciones. No podrá variar su uso ni destino, sin ajustarse al procedimiento señalado en este Reglamento.

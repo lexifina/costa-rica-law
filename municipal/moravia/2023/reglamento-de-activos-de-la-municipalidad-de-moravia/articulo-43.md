@@ -1,0 +1,1 @@
+Artículo 43.-Será responsabilidad del Encargado de Control de Activos, levantar y firmar el acta de ingreso de la donación, para su identificación, además deberá realizar el plaqueo y registro correspondiente en el sistema informático.

@@ -1,0 +1,1 @@
+Artículo 32.-De los activos propiedad de los funcionarios. En el caso de que los funcionarios ingresen activos de su propiedad a la institución, deberán notificar por escrito a la jefatura respectiva. Esta notificación deberá indicar al menos el tipo de bien, marca y número de serie.

@@ -1,0 +1,1 @@
+Artículo 2º-Objetivo. El objetivo del presente reglamento es establecer las normas y los procedimientos para controlar y supervisar las operaciones de registro y control de activos; además de facilitar y mantener registros que permitan identificar plenamente el bien y establecer las responsabilidades por su administración y uso.

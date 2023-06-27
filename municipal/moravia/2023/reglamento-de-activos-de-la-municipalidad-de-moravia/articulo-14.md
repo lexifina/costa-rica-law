@@ -1,0 +1,1 @@
+Artículo 14.-Registro activos de transporte. Los activos de transportes se incluirán en el sistema informático vigente con su número de placa de matrícula, el número de motor, de chasis, de serie, marca y modelo.

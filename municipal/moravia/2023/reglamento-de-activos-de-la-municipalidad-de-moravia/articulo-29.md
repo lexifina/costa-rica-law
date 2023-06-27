@@ -1,0 +1,1 @@
+Artículo 29.-Reposición del activo. En caso de que se compruebe que el funcionario es el responsable de la desaparición de un bien, o de un daño al activo, deberá asumir la responsabilidad patrimonial por la pérdida o daño, sin perjuicio de la aplicación del régimen disciplinario que corresponda u otras responsabilidades penales y civiles en las que pueda incurrir.
