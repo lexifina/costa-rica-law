@@ -1,0 +1,1 @@
+Artículo 82. Cuando el punto de descarga del concreto no sea visible para el operador del equipo de transporte o la bomba de concreto, debe utilizarse un sistema de señalización sonoro o visual por una persona competente

@@ -1,0 +1,1 @@
+Artículo 23. La municipalidad se obligará a mantener los vehículos de su propiedad en condiciones de funcionamiento seguras y eficientes por medio de mantenimientos preventivos e inspecciones periódicas.

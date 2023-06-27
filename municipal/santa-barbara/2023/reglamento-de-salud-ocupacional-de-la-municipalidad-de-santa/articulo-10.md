@@ -1,0 +1,1 @@
+Artículo 10.Cuando hubiese un incidente/ accidente o enfermedad de trabajo, los colaboradores deben brindar la información veraz, completa y clara referente a lo acontecido a la unidad de Salud Ocupacional, para que esta lleve a cabo la investigación correspondiente al caso.

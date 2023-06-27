@@ -1,0 +1,1 @@
+Artículo 34. Si en la revisión previa del vehículo se determina que el vehículo no se encuentra en condiciones óptimas para uso, el mismo se debe reportar, de igual forma el vehículo no debe transitar.

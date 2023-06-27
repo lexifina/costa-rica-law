@@ -1,0 +1,1 @@
+Artículo 27. La Municipalidad, mantendrá las instalaciones en que se desarrollen sus labores, con las condiciones físicas y ambientales requeridas para preservar la salud de la comunidad y visitantes según lo establecido en la legislación vigente en materia de Salud Ocupacional.

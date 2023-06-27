@@ -1,0 +1,1 @@
+Artículo 51. Se deben instalar calzas de madera en las bases de apoyo que sobresalgan al menos 5 centímetros de cada lado de la base. Los materiales de las bases de apoyo no deben ser huecas o de materiales quebradizos. (Como por ejemplo bloques de concreto).

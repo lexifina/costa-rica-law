@@ -1,0 +1,1 @@
+Artículo 30. La municipalidad mantendrá a disponibilidad los insumos y equipos que, por necesidad del trabajador, o requerimientos según el tipo de actividad sean necesarios, para el garante de la protección y seguridad de los colaboradores.

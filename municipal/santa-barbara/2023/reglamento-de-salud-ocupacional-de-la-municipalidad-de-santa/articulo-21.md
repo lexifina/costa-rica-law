@@ -1,0 +1,1 @@
+Artículo 21. Toda infracción a lo descrito en el presente reglamento en relación a la oficina de salud ocupacional, así como de la comisión de salud ocupacional, dará lugar a la imposición de las sanciones establecidas en el numeral 614 del Código de Trabajo vigente.

@@ -1,0 +1,3 @@
+SECCIÓN II
+PRODUCTOS QUIMICOS
+Artículo 142. Los productos peligrosos utilizados, de conformidad con el Decreto 40705-S RTCR 478:2015 Productos químicos. Productos químicos peligrosos. Registro, importación y control publicado en el Alcance N.263 a La Gaceta N.207 del 02 de noviembre del 2017 vigente, deben estar etiquetados en idioma español, almacenados y manipulados conforme a los requerimientos técnicos establecidos en las Fichas de Datos de Seguridad (FDS).

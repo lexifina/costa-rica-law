@@ -1,0 +1,1 @@
+Artículo 145.Siempre que se adquiera un nuevo producto químico o material peligroso, se debe informar a la Unidad de Salud Ocupacional, asi mismo deben ser entregados los documentos: hoja de seguridad, ficha técnica, registro sanitario del producto.

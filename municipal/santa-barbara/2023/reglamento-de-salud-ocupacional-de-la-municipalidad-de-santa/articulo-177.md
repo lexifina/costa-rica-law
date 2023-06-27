@@ -1,0 +1,1 @@
+Artículo 177 La administración del cementerio será la encargada con su personal, de realizar las inhumaciones en casos de muertes masivas, desastres naturales u otra emergencia sanitaria; así como suministrar el equipo de protección personal requerido. Además, deberán velar por el correcto uso del equipo dentro del cementerio.

@@ -1,0 +1,1 @@
+Artículo 35. El usuario del vehículo es responsable de mantenerlo limpio, y entregarlo de la misma forma, el vehículo debe permanecer en buenas condiciones, si el vehículo falla al uso, es responsabilidad del usuario reportar la anomalía para su inmediata corrección, así como ver que el automotor reciba los mantenimientos preventivos en tiempo y forma.

@@ -1,0 +1,1 @@
+Artículo 144.Es responsabilidad del encargado de la bodega, mantener actualizadas las hojas técnicas de cada producto impresas y al alcance de todos los colaboradores que requieran utilizar algún producto químico.

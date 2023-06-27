@@ -1,0 +1,1 @@
+Artículo 46. Si por caso de omisión algún punto no fuese contemplado dentro de este reglamento para la realización de labores de corte y soldadura de cualquier tipo, debe aplicarse lo establecido en la norma INTE 31-09-21:2016, según lo establezca el encargado de la unidad de Salud Ocupacional de la institución.

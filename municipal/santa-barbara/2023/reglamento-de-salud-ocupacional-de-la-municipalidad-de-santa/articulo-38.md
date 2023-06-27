@@ -1,0 +1,1 @@
+Artículo 38. Acorde a lo establecido en el Decreto N° 39147 S TSS Reglamento para la Prevención Protección de las Personas Trabajadoras Expuestas a Estrés Térmico por calor, siempre que el personal requiera realizar labores en exteriores, debe utilizar protector solar, gorra, camisa manga larga o mangas, del mismo modo debe hidratarse al menos cada 30 minutos.

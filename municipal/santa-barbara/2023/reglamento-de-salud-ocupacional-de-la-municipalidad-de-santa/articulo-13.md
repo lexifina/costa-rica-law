@@ -1,0 +1,1 @@
+Artículo 13. Las actividades de las comisiones, subcomisiones y comités se regirán por los reglamentos respectivos y, en su defecto, por las disposiciones que dicte el Consejo de Salud Ocupacional, del mismo modo la comisión debe trabajar de la mano con la oficina de Salud Ocupacional con total transparencia y colaboración.

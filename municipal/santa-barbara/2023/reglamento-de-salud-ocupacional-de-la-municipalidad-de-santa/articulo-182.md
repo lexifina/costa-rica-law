@@ -1,0 +1,1 @@
+ARTÍCULO 182. Las disposiciones de medidas y equipos de protección a considerar ante una eventual pandemia, que establezca el Ministerio de Salud, deberán ser acatadas de manera inmediata por la institución.

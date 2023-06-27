@@ -1,0 +1,1 @@
+Artículo 25. La municipalidad de Santa Barbara, en coordinación con la unidad de Salud Ocupacional proporcionará los equipos y protecciones necesarias a cada colaborador para la realización de las tareas diarias o específicas y proporcionará los medios para asesorar a todos los colaboradores para su correcto uso.

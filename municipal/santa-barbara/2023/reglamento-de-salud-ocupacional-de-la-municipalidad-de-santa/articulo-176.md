@@ -1,0 +1,1 @@
+Artículo 176. Se debe disponer de un lugar exclusivo, para la ingesta de alimentos, con su respectivo lavamanos habilitado y jabón, asimismo se aclara que esta prohibido consumir cualquier tipo de alimento en un área distinta a la designada para tal fin.

@@ -1,0 +1,1 @@
+Artículo 9.En situaciones de emergencia, todo miembro de la municipalidad y sus visitantes deberán acatar las instrucciones y recomendaciones de la Brigada para la atención de emergencias. Así mismo cuando la acción de sus funciones o condiciones del puesto de trabajo ofrezcan algún riesgo para su integridad física o la de sus compañeros e instalaciones.

@@ -1,0 +1,1 @@
+Artículo 174. La administración de los cementerios debe mantener los botiquines de primeros auxilios limpios y en un lugar apropiado dentro de las instalaciones; para ser utilizado en caso de emergencia ocasionada por un accidente de algún trabajador.

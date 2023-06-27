@@ -1,0 +1,1 @@
+Artículo 26. La municipalidad de Santa Bárbara, por medio de las jefaturas de cada área, establecerá estrictas medidas de control de máquinas, equipos y materiales peligrosos; del buen funcionamiento de los instrumentos de trabajo utilizados en su manejo, así como del equipo y útiles de protección personal requerido por los trabajadores.

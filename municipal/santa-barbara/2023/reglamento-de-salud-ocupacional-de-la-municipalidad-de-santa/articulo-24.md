@@ -1,0 +1,1 @@
+Artículo 24. La unidad de Salud Ocupacional dará a conocer a los trabajadores sus obligaciones en materia de prevención de riesgos del trabajo y proporcionará los medios para asesorar a todas las dependencias en esta materia.
