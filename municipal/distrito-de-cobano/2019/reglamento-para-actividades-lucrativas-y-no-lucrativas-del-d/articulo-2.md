@@ -38,3 +38,5 @@ hh) Oficina Virtual: Actividades comerciales licitas que se realiza por medio de
 ii) Local u oficina con ubicación física: se define como aquella actividad que requiere un espacio físico para desarrollar la actividad comercial.
 jj) Actividades bailables: Sitio donde se permite a los presentes el acto de realizar una danza, en la cual una persona o varias utilizan su cuerpo para realizar movimientos al compás o al ritmo de una música.
 kk) Hecho Generador del Impuesto: Es el ejercicio de cualquier tipo de actividad efectuada por los sujetos pasivos a título oneroso y con carácter lucrativo, sea que se desarrollen en un establecimiento o no, y cualquiera que sea el resultado económico obtenido.
+II) Informe de Inspección: Documento emitido por inspecciones cuando se va otorgar una licencia nueva, en la cual se indique a este departamento de Patentes, que se ha satisfecho el cumplimiento de una serie condiciones mínimas de operación, las cuales se aplicarán en función de las características y la naturaleza de la actividad a desarrollar.
+(Así adicionado el inciso anterior mediante sesión ordinaria N° 165-2023 del 27 de junio del 2023)

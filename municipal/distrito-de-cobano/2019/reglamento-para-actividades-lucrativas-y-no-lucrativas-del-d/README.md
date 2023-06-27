@@ -14,3 +14,4 @@ Reglamento para actividades lucrativas y no lucrativas del Distrito de Cóbano
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-12-19 | la propia norma |
+| 2 | 2023-06-27 | Reglamento municipal 165 (2023-06-27) |

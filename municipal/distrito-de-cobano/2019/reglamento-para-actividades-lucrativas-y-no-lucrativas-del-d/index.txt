@@ -7,6 +7,7 @@ articulo-6.md
 articulo-7.md
 articulo-8.md
 articulo-9.md
+articulo-9-bis.md
 articulo-10.md
 articulo-11.md
 articulo-12.md
@@ -47,6 +48,7 @@ articulo-46.md
 articulo-47.md
 articulo-48.md
 articulo-49.md
+articulo-49-bis.md
 articulo-50.md
 articulo-51.md
 articulo-52.md
