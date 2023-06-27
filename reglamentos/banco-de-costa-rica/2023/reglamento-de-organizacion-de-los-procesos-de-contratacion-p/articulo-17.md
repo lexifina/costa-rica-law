@@ -1,1 +1,0 @@
-Artículo 17.-Decisión inicial. La Unidad Ejecutora preparará y tramitará la decisión inicial de cada concurso, según dispone el artículo 37 de la Ley General de Contratación Pública, en el sistema digital unificado, la cual será aprobada en dicho sistema por La Jefatura de Fideicomisos Comerciales o quien lo sustituya en caso de ausencia.

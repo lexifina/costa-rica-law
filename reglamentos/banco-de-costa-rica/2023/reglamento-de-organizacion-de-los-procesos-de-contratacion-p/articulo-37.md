@@ -1,1 +1,0 @@
-Artículo 37.-Finiquito. Cuando proceda suscribir un finiquito, de acuerdo con el artículo 111 de la Ley General de Contratación Pública, el Fiduciario preparará toda la documentación de respaldo, y elaborará el finiquito, que será firmado por La Jefatura de Fideicomisos Comerciales o quien lo sustituya en caso de ausencia y el contratista.

@@ -1,1 +1,0 @@
-Artículo 15.-Estimación. Corresponde a la Unidad Ejecutora con apoyo del Fiduciario realizar la estimación de cada contratación particular, atendiendo a los parámetros indicados en el numeral 35 de la Ley General de Contratación Administrativa.

@@ -1,1 +1,0 @@
-Artículo 24.-Responsable de verificar cumplimiento de etapas. De conformidad con los artículos 72 y 74 de la Ley General de Contratación Pública, el Fiduciario será la responsable de verificar el cumplimiento de cada una de las etapas definidas en la decisión inicial y deberá emitir la aprobación o improbación de la etapa, a fin de decidir continuar o no con la siguiente.

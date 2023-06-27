@@ -1,1 +1,0 @@
-Artículo 2º-Distribución de Competencias. Las competencias de cada uno de los participantes en la gestión del trámite de contratación serán las que se indiquen en el contrato de fideicomiso, en el presente Reglamento y en los acuerdos que adopten el Comité Director y el Fiduciario, dentro de los límites del ordenamiento jurídico.
