@@ -1,0 +1,1 @@
+ARTÍCULO 22- Derogatorias. Deróguese el Decreto Ejecutivo Nº 42148-C-MElC-MIClTT, Creación de la Estrategia Nacional "Costa Rica Creativa y Cultural 2030", del 05 de diciembre del 2019, publicado en el Alcance Nº. 13 a la Gaceta Nº. 23 del 05 de febrero del 2020.

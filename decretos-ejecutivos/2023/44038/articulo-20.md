@@ -1,0 +1,1 @@
+ARTÍCULO 20.- Normativa supletoria. En lo no dispuesto por la Ley No. 10.044 y el presente reglamento, se aplicará de forma supletoria la Ley No. 6227, Ley General de la Administración Pública y cualquier otra norma de igual o superior rango que regule el accionar de los entes estatales.

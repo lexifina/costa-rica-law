@@ -1,0 +1,22 @@
+ARTÍCULO 17.- De las funciones de la UCE. La Unidad de Cultura y Economía (UCE) tendrá las siguientes funciones:
+1. Generar información estratégica de los sectores culturales, para lo cual deberá:
+a) Fortalecer el Sistema de Información Cultural Costarricense (SICULTURA), como registro principal en la producción de todas las actividades creativas y culturales gestionadas desde el MCJ, el cual está integrado por el Directorio Cultural, el Directorio de Capacitación, Financiamiento y Apoyo, la Agenda de Eventos, el Mapa Cultural y las Estadísticas Culturales. Todos los registros institucionales relacionados con los emprendimientos culturales deben considerar como plataforma el SI CULTURA.
+b) Mantener actualizado las herramientas denominadas Directorio Cultural y Mapa Cultural que registran y geo-localizan los "recursos culturales" del país, entendidos como aquellas personas y agrupaciones relacionadas con el sector artístico - cultural de nuestro país, espacios físicos a los que se les dan usos culturales y elementos del patrimonio material e inmaterial, coordinando para articular las demás fuentes de información institucional del Ministerio de Cultura y Juventud.
+c) Articular el trabajo de la Cuenta Satélite de Cultura y demás fuentes de información institucional del Ministerio de Cultura y Juventud.
+d) Coordinar la sistematización de la información derivada de la Política Nacional de Economía Creativa y Cultural para ser incorporada en el Sistema de Registros Administrativos de Cultura y Juventud (SlRACUJ).
+e) Desarrollar un Sistema Prospectivo que guíe la ruta de desarrollo hacia el largo plazo en ternas de investigación, desarrollo de insumos estadísticos para la torna de decisiones, acompañamiento en la coordinación de temas de cultura con las instituciones encargadas de promoción del emprendimiento, visión de desarrollo hacia la vanguardia en ternas culturales que promuevan el desarrollo e impulso de las industrias de economía creativa y cultural.
+f) Visibilizar el aporte de la cultura a la economía, como motor de desarrollo, mediante los indicadores monetarios y no monetarios generados anualmente por la Cuenta Satélite de Cultura de Costa Rica.
+g) Coordinar e incentivar la investigación de ternas relacionados con el sector cultura, especialmente del área cultura y economía, acercando a la academia e instituciones especialistas en la materia.
+h) Procurar el desarrollo de un registro de las iniciativas culturales en el Directorio Cultural, como parte del proceso de identificación y formalización de las iniciativas de la población objetivo.
+2. Sistematizar la información sectorial, para lo cual deberá:
+a) Sistematizar, analizar y actualizar la caracterización de las cadenas de valor sectoriales.
+b) Sistematizar los informes presentados por los Coordinadores de las Mesas Sectoriales en función de los resultados de la implementación de los programas definidos, el cumplimiento de sus objetivos y metas
+c) Elaborar los informes sobre el estado de situación de los sectores poblacionales.
+d) Llevar las actas y los acuerdos del Consejo Nacional de Economía Creativa y Cultural.
+3. Monitorear el impacto y resultados de la implementación de la Política Nacional de Economía Creativa y Cultural, para lo cual deberá:
+a) Dar seguimiento a los resultados de procesos de atención y acompañamiento a partir de las orientaciones metodológicas definidas por el Consejo Nacional de Economía Creativa y Cultural.
+b) Elaborar anualmente un informe sobre el monitoreo, impacto y resultados en la implementación de la Política Nacional de Economía Creativa y Cultural y sus programas.
+4. Apoyar y asesorar técnicamente al despacho ministerial, en el pro, ceso de torna de decisiones al amparo de lo dispuesto en la Política Nacional de Economía Creativa y Cultural, para lo cual deberá:
+a) Coordinar acciones con el Departamento de Cooperación Internacional del Ministerio de Cultura y Juventud orientadas a la captación de cooperación internacional técnica y financiera, para la implementación de aquellos programas y acciones derivados de la Política Nacional de Economía Creativa y Cultural.
+b) Asesorar y emitir recomendaciones al Consejo Nacional de Economía Creativa y Cultural a partir de la información generada con el propósito de fortalecer la política pública y los programas que se derivan de ella.
+Cualquier otra que le sea asignada por el Despacho Ministerial, en consonancia con el valor público descrito en anteriores funciones.
