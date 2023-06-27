@@ -1,0 +1,1 @@
+Artículo 14.-Cuando sea menester ocupar equipo de cualquier índole que tenga que salir de los lugares o planteles de custodia, para cumplir con la labor asignada en tiempo extraordinario, debe el Intendente y Coordinadores departamentales girar orden escrita del equipo que se empleará y la hora que este debe regresar al plantel o edificio Municipal.
