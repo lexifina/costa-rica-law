@@ -1,0 +1,2 @@
+Artículo 7.
+Para el caso del presupuesto del Banco, será responsabilidad de los centros gestores presentar la solicitud de variación presupuestaria mediante el formulario que al efecto sea establecido por el área competente, justificando el motivo de los cambios propuestos ya sea sobre el incremento o disminución y detallando el impacto que tendrá en el Plan Operativo Institucional - Presupuesto, asignado a dichos centros.

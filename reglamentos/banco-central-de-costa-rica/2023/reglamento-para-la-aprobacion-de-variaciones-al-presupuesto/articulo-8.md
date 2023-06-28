@@ -1,0 +1,4 @@
+Artículo 8.
+Corresponderá al Consejo Nacional de Supervisión del Sistema Financiero aprobar o improbar las Modificaciones presupuestarias de los Órganos de Desconcentración Máxima que le son presentadas de conformidad con los límites establecidos en este Reglamento. Para las variaciones presupuestarias que son elevadas al Consejo, deberán adjuntar el criterio del Comité Permanente de Presupuesto y Evaluación Institucional del Conassif.
+Las funciones desempeñadas por el Comité Permanente de Presupuesto y Evaluación Institucional del Conassif no eximen a la Administración de la responsabilidad en la verificación del cumplimiento de la normativa técnica y del bloque de legalidad que regula la materia.
+Para el caso de variaciones al presupuesto en la cuenta de Remuneraciones, se procederá considerando lo establecido en este Reglamento.
