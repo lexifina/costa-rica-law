@@ -1,0 +1,1 @@
+Artículo 16.-La construcción de los nichos debe respetar las regulaciones de construcción dispuestas en el Código Sísmico, por lo que se exigirá que toda la construcción se realice con varilla número tres colocada cada 25 centímetros, las paredes y losas deben ser Chorreadas en concreto pues no se permitirán las paredes de mampostería, esto según normas del Código Sísmico.

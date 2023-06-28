@@ -1,0 +1,1 @@
+Artículo 26.-Los cadáveres serán inmediatamente inhumados en presencia de las personas que integran el séquito mortuorio y de los funcionarios municipales que la administración del cementerio designe.

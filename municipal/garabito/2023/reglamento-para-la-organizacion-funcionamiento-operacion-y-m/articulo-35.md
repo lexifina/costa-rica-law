@@ -1,0 +1,1 @@
+Artículo 35.-Las exhumaciones se harán siempre en presencia de un integrante de la administración del cementerio o persona que este asigne, funcionarios municipales y dos testigos de la parte interesada.

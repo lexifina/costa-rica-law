@@ -1,0 +1,1 @@
+Artículo 15.-Las dimensiones para un derecho sencillo, se establece en 2.6 metros de largo, por 0.9 metros de ancho y 0.7 metros de alto. Se podrá realizar bóvedas con un máximo de tres nichos en vertical. Estas dimensiones no incluyen aceras y podrán ser variadas en caso muy calificado a criterio de los responsables del cementerio.

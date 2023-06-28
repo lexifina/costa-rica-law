@@ -1,0 +1,1 @@
+Artículo 13.-La administración municipal velará por que se mantenga una base de datos digital actualizada, en la cual existirá información referente a cada nicho y sus arrendatarios. Además, esta información estará respaldada en un archivo análogo por carpetas para cada nicho.

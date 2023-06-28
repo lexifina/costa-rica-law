@@ -1,0 +1,1 @@
+Artículo 24.-Para efectuar en un nicho la inhumación de personas que no sean los arrendatarios de esta, se requerirá por escrito la conformidad del actual arrendatario, del beneficiario que se haya designado o del propietario.

@@ -1,0 +1,1 @@
+Artículo 32.-Las exhumaciones deberán realizarse exclusivamente en días hábiles de labores (lunes-viernes) de las ocho horas a las dieciséis horas. Cuando por fuerza mayor se requiera hacer una exhumación en un día no hábil se realizará a criterio de la Administración del Cementerio.

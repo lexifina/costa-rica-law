@@ -1,0 +1,1 @@
+Artículo 49.-La bóveda será declarada en ruina y/o abandono por la administración del cementerio, cuando hayan transcurrido tres años sin renovar la pintura y sin hacer reparaciones necesarias. Para esto se realizará un informe por escrito con fotografías de las condiciones en que se encuentra.
