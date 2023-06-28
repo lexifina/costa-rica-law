@@ -1,0 +1,3 @@
+Artículo 22: Materiales y texturas en la infraestructura peatonal y aceras En la construcción, rehabilitación, mejoramiento de las aceras y la infraestructura peatonal deberá considerarse lo siguiente:
+a) Las aceras y la infraestructura peatonal deben garantizar que son superficies antideslizantes, las cuales deben ser probadas en condiciones de humedad máxima. En caso de aceras construidas, aún en buen estado, que no cumplan con esta condición, deben de realizarse las mejoras pertinentes para que la superficie resulte antiderrapante.
+b) Infraestructura peatonal nueva deberá contar con un diseño constructivo técnico que resuelva las necesidades estructurales.

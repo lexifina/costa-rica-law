@@ -1,0 +1,8 @@
+Artículo 23: Rampas de acceso
+Para las rampas de acceso se establecen las siguientes exigencias técnicas:
+a) Para salvar la diferencia de nivel sobre la infraestructura peatonal entre la acera y la calle, se deberá hacer una rampa con gradiente máxima de 10%. Las rampas deberán construirse en los dos sentidos de las esquinas propiciando el flujo peatonal constante.
+Deberá tener un ancho mínimo de 1,50 metros,
+b) En los casos donde los predios requieran de acceso vehicular y/o peatonal, el desnivel entre la acera y calzada debe salvarse con vados o rampas construidos desde el cordón del caño hacia el predio ocupando el ancho de la franja de mobiliario o franja verde, Los cortes para la entrada de vehículos a las fincas o lotes deben respetar la franja de circulación, cordón de caño o cunetas, no deberán entorpecer ni hacer molesto el tránsito para las personas peatonas o que utilicen algún accesorio para movilizarse, como silla de ruedas, andadera o bastón.
+c) Para la construcción de rampas de acceso vehicular que requieran modificar los sistemas de drenaje se debe mantener su capacidad hidráulica y por ningún motivo se deben obstruir o eliminar el cordón de caño, cunetas, espaldón, entre otros.
+d) Donde exista desnivel entre la acera y la senda para el cruce de la calzada, debe implementarse infraestructura que garantice el cruce directo y fluido.
+e) Las rampas peatonales deben ser construidas con materiales antiderrapantes y contar con barandas de protección según establece la Ley 7600, de forma tal que se proteja la integridad de las personas peatonas y que ayuden a facilitar el acceso y tránsito de personas con discapacidad.

@@ -1,0 +1,4 @@
+Artículo 19: Priorización
+La municipalidad deberá diseñar, aprobar y ejecutar el Plan de Movilidad Activa Sostenible del cantón de acuerdo con lo que se incorpore y priorice en el Plan de Desarrollo Municipal correspondiente. Para lo cual deberá realizar la programación anual de los proyectos con base en los recursos presupuestarios del año correspondiente.
+Para la determinación y priorización en la intervención municipal se visualizarán en perspectiva criterios y necesidades como: nodos institucionales, centros educativos, en especial de atención primaria, espacios para garantizar la accesibilidad, el ocio, el desarrollo de actividades económicas, culturales, educativas, laborales, y aquellos espacios necesarios para la socialización y su disfrute.
+Durante el período que se diseña o actualiza el instrumento de planificación de movilidad activa sostenible, la municipalidad realizará la priorización de acuerdo con lo establecido en la Ley No. 9976.
