@@ -32,3 +32,4 @@ de formación y capacitación.
 (Modificado por el artículo 1° del decreto ejecutivo N° 43994 del 18 de abril del 2023)
 (Modificado por el artículo 2° del decreto ejecutivo N° 43989 del 19 de abril del 2023)
 (Modificado por el artículo 1° del decreto ejecutivo N° 44028 del 15 de mayo de 2023)
+(Modificado por el artículo 1° del decreto ejecutivo N° 44071 del 26 de mayo de 2023)
