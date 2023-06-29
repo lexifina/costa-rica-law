@@ -1,0 +1,31 @@
+MUNICIPALIDAD DE OREAMUNO
+Informa que el Concejo Municipal en Sesión Ordinaria N° 250-2023, celebrada el 06 de junio del 2023, en su Artículo IV, aprobó por unanimidad y en firme, el siguiente acuerdo:
+Inciso 3°: Acuerdo N° 1961-2023: Asunto: acuerdo de aprobación, adopción y trámite de publicación, para su entrada en vigencia del nuevo "Reglamento de la Audiencia Pública Presencial y Virtual del proyecto de Modificación del Plan Regulador del cantón de Oreamuno" esto de conformidad con lo dispuesto en el artículo 43 del Código Municipal.
+Considerandos:
+1. Que el artículo 4 del Código Municipal, establece que la Municipalidad posee, la autonomía política, administrativa y financiera; que dentro de sus atribuciones incluye según lo indicado en el inciso a) la de Dictar los reglamentos autónomos de organización y de servicio, así como cualquier otra disposición que autorice el ordenamiento jurídico.
+2. Que el artículo 13 inciso c) del Código Municipal, establece que es atribución del Concejo Municipal dictar los reglamentos de la Corporación, conforme a esta ley. Así como de los entes adscritos a ella, como lo es el Comité Cantonal de Deportes y Recreación.
+3. Que con respecto procedimiento y el trámite para aprobar disposiciones reglamentarias, existe la jurisprudencia emanada por parte del Tribunal Contencioso Administrativo Sección Tercera, (Resolución N° 27-2009 de las once horas y cuarenta y cinco minutos del 12 de enero del 2009 Tribunal Contencioso Administrativo y Civil de Hacienda Sección Tercera)"
+4. Que tal y como consta en el acta de la Sesión Ordinaria número 215-2022, del Concejo Municipal de fecha 27 de diciembre del 2022, Acuerdo N 1708-2022, el Concejo Municipal de conformidad con el artículo 43 del Código Municipal; se acordó proceder a publicar y someter a consulta pública no vinculante, por un plazo de diez días hábiles, contados a partir de la publicación en el Diario Oficial La Gaceta, el proyecto de cita.
+5. Que dicha publicación fue realizada tal y como consta en el Diario Oficial La Gaceta N° 27 de fecha 14 de febrero del 2023.
+6. Que consta que durante el periodo de consulta del Proyecto Reglamento, no se presentaron dentro del plazo de ley otorgado, objeciones u observaciones al texto propuesto y publicado.
+7. Que la Comisión de Asuntos Jurídicos en el Dictamen 006-2023 de fecha 31 de mayo de 2023, Artículo 2, recomienda al Concejo Municipal se apruebe y adopte para su aplicación y entrada en vigencia dicho reglamento.
+8. Que este Concejo Municipal, debe tomar el Acuerdo Municipal de adopción del Reglamento, para proceder a publicar en el Diario Oficial La Gaceta, el comunicado de adopción del reglamento y su fecha de entrada en vigencia. Por tanto:
+En apego a las competencias y atribuciones que establecen los artículos 169 y 170 de la Constitución Política; artículos 4 inciso a), 13 inciso c, 43 y 174 del Código Municipal y los fundamentos de hecho y derecho expuestos; proceda este Concejo Municipal a la aprobación de lo siguiente;
+1. Se aprueba y adopta para su aplicación, publicación y entrada en vigencia el nuevo Reglamento de la Audiencia Publica Presencial y Virtual del Proyecto de Modificación del Plan Regulador del Cantón de Oreamuno. Texto final que se trascribe seguidamente a este acuerdo de aprobación para que conste en forma literal en el acta respectiva.
+2. Se acuerda que el nuevo Reglamento de cita; para efectos de su entrada en vigencia, de conformidad con lo indicado en el artículo 43 del Código Municipal, entrará a regir un día después de la respectiva publicación en el Diario Oficial La Gaceta del aviso correspondiente.
+3. Que el presente acuerdo de aprobación y adopción del nuevo reglamento de cita, deroga tácitamente cualquier Reglamento anterior y actual que se encuentre vigente. Por lo cual una vez realizada la respectiva publicación y entrada en vigencia de este nuevo reglamento, se deberá acatar obligatoriamente lo indicado en esta nueva reglamentación en forma exclusiva.
+4. Para los efectos de materializar el trámite de la respectiva publicación en el Diario Oficial La Gaceta y entrada en vigencia del citado reglamento, se procede a delegar a la Secretaria del Concejo Municipal, para que en conjunto con la Alcaldía Municipal procedan conforme a derecho al aviso de dicha publicación en el Diario Oficial La Gaceta.
+Con dispensa de trámite de Comisión que establece el artículo 44 y aplicación del artículo 45 del Código Municipal, procédase a declarar el presente acuerdo como definitivamente aprobado y en firme. Notifíquese.
+REGLAMENTO DE LA AUDIENCIA PÚBLICA
+PRESENCIAL Y VIRTUAL DEL PROYECTO
+DE MODIFICACIÓN DEL PLAN REGULADOR
+DEL CANTÓN DE OREAMUNO
+Considerando:
+I.-Que la Municipalidad de Oreamuno, en aplicación del precepto del artículo 169 constitucional, es la encargada de administrar los intereses y servicios locales.
+II.-Que el Código Municipal establece en el artículo 5 que las municipalidades fomentarán la participación activa, consciente y democrática del pueblo en las decisiones del gobierno local.
+III.-Que el inciso 1 del artículo 17 de la Ley de Planificación Urbana dispone que previo a implantar un plan regulador o alguna de sus partes, la municipalidad debe convocar a una audiencia pública para dar a conocer el proyecto y recibir observaciones verbales o escritas que tengan a bien formular las personas interesadas.
+IV.-Que el artículo 37 bis del Código Municipal; faculta a las municipalidades para realizar, en caso de que así se requiera, sesiones municipales virtuales a través del uso de medios tecnológicos por estado de necesidad y urgencia.
+V.-Que la Municipalidad de Oreamuno, debe considerar la mejor forma de propiciar la participación de la ciudadanía para la toma de decisiones en beneficio del cantón.
+CAPÍTULO I
+Lineamientos generales
+Artículo 1º-Objetivo. El objeto del presente reglamento es establecer el procedimiento para la realización de la audiencia pública presencial y virtual del Proyecto de Modificación del Plan Regulador en el Cantón de Oreamuno. Las reglas establecidas en esta norma podrán ser utilizadas por la Municipalidad, previo acuerdo del Concejo Municipal, para cualquier otra audiencia o mecanismo de participación ciudadana.

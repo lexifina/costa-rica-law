@@ -1,0 +1,1 @@
+Artículo 16.-Exposición del proyecto. El equipo técnico municipal, expondrá el proyecto de modificación del Plan Regulador, compartiendo la pantalla de su computadora, la cual será proyectada para que los asistentes puedan observarla. En la modalidad virtual y en las redes sociales, en el video se mostrará la pantalla compartida.

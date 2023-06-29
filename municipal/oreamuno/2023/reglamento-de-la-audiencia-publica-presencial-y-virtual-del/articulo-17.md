@@ -1,0 +1,1 @@
+Artículo 17.-Periodo de preguntas. AI finalizar la exposición del equipo técnico, se abrirá el periodo de preguntas, respetando el orden de los asientos y los lineamientos en cuanto al uso de la palabra, determinado por la Presidencia del Concejo Municipal. Previo a formular la pregunta, cada persona debe indicar el nombre completo y número de cédula.

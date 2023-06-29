@@ -1,0 +1,1 @@
+Artículo 2º-Principios. La audiencia pública se rige por el principio de publicidad y de participación ciudadana, procurando que los munícipes puedan conocer del proyecto de instrumento de ordenamiento territorial que regirá en el cantón que habitan, y realizar las observaciones escritas u orales que consideren pertinentes.

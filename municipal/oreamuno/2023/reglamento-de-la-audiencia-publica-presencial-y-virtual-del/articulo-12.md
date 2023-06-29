@@ -1,0 +1,3 @@
+CAPÍTULO III
+Modalidad presencial
+Artículo 12.-Inscripción. Para efectos de participar de forma presencial, las personas deberán enviar un correo a la dirección que oportunamente se habilitará y publicará en medios oficiales de la Municipalidad de Oreamuno, indicando su nombre, número de identificación e información de contacto. En caso de imposibilidad de acceso a medios tecnológicos, las personas podrán remitir carta a la Dependencia de Gestión de Desarrollo Urbano de la Municipalidad con los mismos datos indicados en el párrafo anterior, señalando medio para recibir notificaciones. Mediante un correo desde el dominio, o por notificación al medio señalado se le contestará asignando un número de asiento para su asistencia bajo la modalidad presencial.

@@ -1,0 +1,1 @@
+Artículo 15.-Comunicación de reglas. La Presidencia del Concejo expondrá las reglas de cómo se llevará a cabo la actividad, indicando las etapas que la componen y el momento en el cual se abrirá el periodo de preguntas.

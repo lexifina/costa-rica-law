@@ -1,0 +1,1 @@
+Artículo 3°-Brecha tecnológica. Para asegurar que la virtualidad no sea un obstáculo para la participación ciudadana, se dispone que la audiencia se realice simultáneamente de forma virtual y presencial para exponer el Proyecto de Modificación del Plan Regulador.
