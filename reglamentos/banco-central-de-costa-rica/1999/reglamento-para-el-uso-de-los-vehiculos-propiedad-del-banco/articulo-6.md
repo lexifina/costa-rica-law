@@ -1,1 +1,0 @@
-Art 6°.- El régimen de los vehículos de uso administrativo general.- Según lo prescrito por el Artículo 234 de la Ley, los vehículos de uso administrativo no podrán destinarse a un uso diferente al que se establece en el artículo quinto de este Reglamento. Asimismo, se ajustará su utilización a los controles, informes y a la rutina de que se habla en el presente Reglamento.

@@ -1,5 +1,0 @@
-Artículo 5°. - Vehículos de uso administrativo. De acuerdo con lo dispuesto en el Artículo 226 de la Ley, todos los demás vehículos del Banco y sus Órganos, son de uso administrativo general y están destinados a cumplir misiones oficiales del Banco y atender las necesidades que surjan con ocasión de las labores que a su cargo tienen las distintas unidades administrativas del Banco y los Órganos.
-a) Personas que laboren en el Banco, o aquellas que presten al servicio al Banco y dentro de los términos de contratación se haya acordado brindar el transporte, para lo cual el Banco debe facilitar un chofer.
-b) Equipos, mobiliario y materiales que sean del Banco, o que hayan sido dados en préstamo o donados por los particulares, o alguna de las instituciones del Estado, o adquiridos por estos organismos a sus proveedores.
-c) Cualesquiera otras necesidades que surjan con ocasión del giro que les propio al Banco.
-En todo caso, el uso de los vehículos de que se trata en este artículo será regulado por este Reglamento, así como por las disposiciones que llegare a establecer la Junta Directiva del Banco.

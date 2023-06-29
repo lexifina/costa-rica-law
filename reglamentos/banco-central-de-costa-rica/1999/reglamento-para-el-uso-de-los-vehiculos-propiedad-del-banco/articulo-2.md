@@ -1,1 +1,0 @@
-Artículo 2° Ámbito de Aplicación. El presente Reglamento regula el uso de los vehículos propiedad del Banco y de sus Órganos, así como todo lo relativo al transporte de personas, materiales y equipos.
