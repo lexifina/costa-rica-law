@@ -1,0 +1,1 @@
+Artículo 7°-Aval del órgano rector. Una vez que el jurado seleccionador haya escogido a la persona beneficiaria, remitirá sus resultados al Consejo Nacional de Cinematografia para que, en su calidad de órgano rector del CCPC, avale los resultados y autorice la compra del tiquete aéreo correspondiente.

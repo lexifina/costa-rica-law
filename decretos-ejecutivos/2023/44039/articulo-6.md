@@ -1,0 +1,1 @@
+Artículo 6°-Deliberación. El jurado seleccionador, tomando en cuenta los factores descritos en el artículo anterior, deliberará analizando las solicitudes presentadas y tomará una decisión fundamentada, documentando esta deliberación en un acta, que será comunicada a todos las personas postulantes. La decisión del jurado será inapelable.

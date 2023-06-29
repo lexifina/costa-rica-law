@@ -1,0 +1,1 @@
+Artículo 8°-Recursos y administración. Los recursos económicos para cubrir las ayudas para capacitación del sector audiovisual costarricense derivadas del presente Reglamento, provendrán de la disponibilidad del presupuesto ordinario del CCPC.
