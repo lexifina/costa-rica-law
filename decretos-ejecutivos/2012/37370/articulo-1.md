@@ -1,4 +1,5 @@
 No. 37370-MOPT
+(Nota de Sinalevi: Mediante resolución N° 2023-000858 del 29 de junio del 2023, se acordó desaplicar temporalmente el presente decreto ejecutivo, desde el 3 de julio del 2023 al 14 de julio del año 2023)
 (Nota de Sinalevi: Mediante resolución N° 2022-001704 del ocho de diciembre del 2022, se acordó desaplicar temporalmente el presente decreto ejecutivo, desde el 26 de diciembre del 2022 al 6 de enero del año 2023)
 (Nota de Sinalevi: Mediante el artículo 2°y 3° del decreto ejecutivo N° 43434 del 3 de marzo del 2022, se acordó reestablecer la aplicación del presente decreto ejecutivo )
 LA PRESIDENTA DE LA REPUBLICA

@@ -19,3 +19,4 @@ Restricción Vehicular mediante el Esquema Hora/Placa en el Centro de San José
 | 4 | 2021-02-05 | Decreto Ejecutivo 42839 (2021-02-05) |
 | 5 | 2022-03-03 | Decreto Ejecutivo 43434 (2022-03-03) |
 | 6 | 2022-12-08 | SINALEVI (sin norma nombrada) |
+| 7 | 2023-06-29 | SINALEVI (sin norma nombrada) |
