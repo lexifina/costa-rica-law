@@ -1,0 +1,1 @@
+Artículo 6 °- En todos los demás aspectos no considerados en esta modificación, se mantiene invariable el Manual de Procedimientos para el Pago de los Servicios Ambientales vigente, publicado en La Ga a. número 80 alcance 87 publicada el 14 de abril del del 2020 y sus modificaciones.

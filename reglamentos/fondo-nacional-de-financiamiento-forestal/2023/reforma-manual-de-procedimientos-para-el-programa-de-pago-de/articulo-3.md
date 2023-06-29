@@ -1,0 +1,2 @@
+Artículo 3º· Para que se modifique el artículo 43 y en lo sucesivo se lea de la siguiente forma:
+43. Distribución de los montos de pago. La distribución del monto de PSA será en 6 tractos anuales en los siguientes porcentajes: 11 %, 16%, 17%, 18%, 19% y 19%, que se entregará siempre y cuando el beneficiario haya consentido mediante documento formal que conste en el expediente. Con los recursos Fonafifo cancelara el interés anual generado por los proyectos del piloto y de quedar algún saldo del PSA en la transacción, que este se utilice para amortizar la deuda del principal.
