@@ -1,1 +1,0 @@
-Artículo 50.—Al segundo día hábil siguiente del remate el encargado de la Unidad de Gestión de Cobros deberá informar por escrito a la Alcaldía el resultado del remate, si pasado un lapso de ocho (5) días no cumpliera con lo anterior el Administrador Tributario le enviara una nota solicitando el informe, con copia a la Alcaldía para que se proceda de conformidad.

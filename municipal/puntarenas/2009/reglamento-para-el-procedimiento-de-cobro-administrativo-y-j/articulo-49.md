@@ -1,1 +1,0 @@
-Artículo 49.—El Administrador Tributario está obligado a cotejar los edictos antes y después de su publicación en el Diario Oficial La Gaceta, con los documentos que fundamentan la demanda y será responsable, ante la Municipalidad de cualquier perjuicio que por error al respecto pudiera causar su omisión.
