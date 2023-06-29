@@ -9,5 +9,5 @@ Considerando:
 DECRETAN:
 El siguiente,
 Reglamento de tarifas para análisis químicos
-Artículo 1º-Ámbito de aplicación. Este Reglamento en materia de tarifas es de referencia y de uso discrecional para el cobro de servicios prestados por los miembros activos del Colegio de Químicos de Costa Rica, así como para el cálculo de servicios prestados por instituciones estatales o privadas.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 43701 del 14 de setiembre de 2022)
+Artículo 1º-Ámbito de aplicación. Este Reglamento es de aplicación obligatoria en el cobro de servicios prestados por los miembros activos del Colegio de Químicos de Costa Rica y es de referencia para el cálculo de servicios prestados por instituciones estatales o privadas.
+(Mediante el artículo 1° del decreto ejecutivo 43701 del 14 de setiembre de 2022, se reformó el presente numeral. Posteriormente mediante resolución N° 348-2023 del 29 de junio de 2023, del Tribunal Contencioso Administrativo y Civil de Hacienda, se suspendió el decreto ejecutivo N° 43701 del 14 de setiembre de 2022, por acogerse una medida cautelar ante causam. Asimismo, dicha sentencia indica que el Colegio de Químicos de Costa Rica, se mantendrá utilizando los Decretos Ejecutivos y Reglamentos anteriores a la reforma aquí cuestionada, hasta tanto no se disponga lo contrario. Por lo tanto, este artículo recobra su texto antes de la modificación realizada por el artículo 1° del decreto ejecutivo N° 43701 del 14 de setiembre de 2022)

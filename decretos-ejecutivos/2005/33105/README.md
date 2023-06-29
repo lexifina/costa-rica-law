@@ -19,3 +19,4 @@ Reglamento de Tarifas para Análisis Químicos
 | 4 | 2021-09-22 | Reglamento 22 (2021-09-22) |
 | 5 | 2022-05-10 | Acuerdo 8 (2022-05-10) |
 | 6 | 2022-09-14 | Decreto Ejecutivo 43701 (2022-09-14) |
+| 7 | 2023-06-29 | SINALEVI (sin norma nombrada) |

@@ -1,5 +1,4 @@
-Artículo 10.-Tablas. Las tarifa(s) de referencia y uso discrecional(*) para determinaciones analíticas, técnicas analíticas, análisis de gases de emisión, inmisión y ambientes laborales, y para análisis de hidrocarburos según normas internacionales, son las siguientes:
-(*) (Así modificada su denominación por el artículo 2° del decreto ejecutivo N° 43701 del 14 de setiembre de 2022. Anteriormente se denominaba: "tarifas")
+Artículo 10.-Tablas. Las tarifas para determinaciones analíticas, técnicas analíticas, análisis de gases de emisión, inmisión y ambientes laborales, y para análisis de hidrocarburos según normas internacionales, son las siguientes:
 TABLA I. DETERMINACIONES ANALÍTICAS
 Determinación | Tarifa con incremento Sustrato Acuoso | Tarifa con incremento Sustrato no-acuoso
 Aceites y grasas | ¢5 100,66 | ¢6 557,99
@@ -226,6 +225,6 @@ Viscosidad Saybolt 50 °C | ¢7 286,66
 Agua disuelta Karl Fisher | ¢21 859,98
 Hidrocarburos aromáticos / poliaromáticos | ¢58 293,28
 BTX en Bunker | ¢36 433,30
-Las tarifa(s) de referencia y uso discrecional(*) no asignadas en los campos correspondientes se podrán asignar en cada caso de común acuerdo entre el laboratorio y el cliente.
-(*) (Así modificada su denominación por el artículo 2° del decreto ejecutivo N° 43701 del 14 de setiembre de 2022. Anteriormente se denominaba: "tarifas")
+Las tarifas no asignadas en los campos correspondientes se podrán asignar en cada caso de común acuerdo entre el laboratorio y el cliente.
 (Así reformada las tarifas anteriores en sesión JD-22-2021 del 22 de setiembre de 2021)
+(Mediante el artículo 2° del decreto ejecutivo 43701 del 14 de setiembre de 2022, se acordó modificar las palabras "tarifa(s) mínima(s)", "tarifa(s)" o "tasa mínima", se sustituyan en adelante por: "tarifa(s) de referencia y uso discrecional", contenidas en el presente numeral. Posteriormente mediante resolución N° 348-2023 del 29 de junio de 2023, del Tribunal Contencioso Administrativo y Civil de Hacienda, se suspendió el decreto ejecutivo N° 43701 del 14 de setiembre de 2022, por acogerse una medida cautelar ante causam. Asimismo, dicha sentencia indica que el Colegio de Químicos de Costa Rica, se mantendrá utilizando los Decretos Ejecutivos y Reglamentos anteriores a la reforma aquí cuestionada, hasta tanto no se disponga lo contrario. Por lo tanto, este artículo recobra su texto antes de la modificación realizada por el artículo 2° del decreto ejecutivo N° 43701 del 14 de setiembre de 2022)
