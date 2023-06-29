@@ -1,0 +1,1 @@
+Artículo 14°.- Documentos emitidos en el extranjero. Los documentos emitidos en el extranjero deberán entregarse debidamente legalizados y consularizados oficialmente y, en aquellos casos que sea necesario, oficialmente traducidos al español, todo de conformidad con el ordenamiento jurídico costarricense.

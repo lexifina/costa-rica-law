@@ -1,0 +1,1 @@
+Artículo 8°.- Modificación de las condiciones. En el caso de que cualquiera de las condiciones de la obra detalladas en la solicitud sea modificada, la persona solicitante deberá informarlo de inmediato al CCPC para que se registren las modificaciones correspondientes. El incumplimiento de esta obligación facultará al CCPC a revocar cualquier Certificado de Nacionalidad.

@@ -1,0 +1,1 @@
+Artículo 9°.- Abandono de la obra. La persona solicitante deberá informar al CCPC en caso de que abandone el proyecto de una obra en proceso. En dicho caso, el CCPC revocará el Certificado de Nacionalidad.
