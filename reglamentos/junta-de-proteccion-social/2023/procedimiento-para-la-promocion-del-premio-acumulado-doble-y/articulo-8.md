@@ -1,0 +1,2 @@
+Artículo 8°- Presupuesto de los premios
+El presupuesto para el otorgamiento de los premios de esta promoción, se tomará del Fondo para Premios Extra de la Junta de Protección Social, en caso que algún ganador no reclame el premio o el mismo no pueda ser entregado por el incumplimiento de algún requisito, transcurrido el período de caducidad indicado en el artículo No. 7, el monto del premio pasará a formar nuevamente parte del Fondo para Premios Extra para fortalecer una futura campaña promocional.

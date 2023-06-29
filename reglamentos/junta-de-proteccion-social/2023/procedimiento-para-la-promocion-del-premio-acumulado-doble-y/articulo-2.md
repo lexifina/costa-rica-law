@@ -1,0 +1,10 @@
+Artículo 2°- Definiciones
+Para efectos del presente procedimiento, se utilizarán los siguientes conceptos:
+Junta: Junta de Protección Social.
+Premio Acumulado: Consiste en dinero en efectivo que como premio acumulado se sorteará en cada sorteo de Lotería Nacional y Lotería Popular. Ese premio iniciará con un monto inicial de ¢100.000.000,00 (cien millones de colones con cero céntimos) y que acumula un montode ¢25.000.000,00 (veinticinco millones de colones con cero céntimos) por cada sorteo de Lotería Popular y Lotería Nacional en que este premio no sea acertado.
+La Junta Directiva se reserva la facultad de aprobar aumentos extraordinarios al monto del Premio Acumulado.
+Premio Acumulado Doble: A partir del sorteo 21 inicia un segundo Acumulado en ¢100.000.000,00 (cien millones de colones con cero céntimos) el cual, también acumulará ¢25.000.000,00 (veinticinco millones de colones con cero céntimos) por cada sorteo de Lotería Popular y Lotería Nacional en que este premio no sea acertado y se jugará con una bolita distinta al Acumulado Principal.
+Participantes: Toda persona física mayor de 18 años, nacional o extranjero que posea al menos una fracción de los sorteos de Lotería Nacional o de los sorteos de Lotería Popular, en los cuales rige la promoción.
+Sorteo: Proceso de selección al azar que determina la combinación ganadora de un premio, realizado y fiscalizado de acuerdo con lo establecido en el Reglamento a la Ley de Loterías, en el Reglamento interno para regular las actividades relacionadas con la realización y la asistencia a la celebración de los sorteos de lotería y a la recepción de excedentes de loterías, así como cualquier otra normativa que se emita al efecto.
+Tómbola: Para realizar el sorteo se contará con 1 tómbola de Premio Acumulado, compuesta por 60 bolitas (59 bolitas de premios extra y la bolita del acumulado).
+Premios Extras: Son 59 bolitas de premios extras que forman parte de la tómbola del Premio Acumulado, en el artículo No. 4 del presente procedimiento se incorpora el detalle de estos premios.
