@@ -1,4 +1,6 @@
+(Suspendida)
 N° 43701-MS-MINAE-MEIC
+(Este decreto ejecutivo fue suspendido mediante resolución N° 348-2023 del 29 de junio de 2023, del Tribunal Contencioso Administrativo y Civil de Hacienda, por acogerse una medida cautelar ante causam)
 EL PRESIDENTE DE LA REPÚBLICA,
 LA MINISTRA DE SALUD,
 Y LOS MINISTROS DE AMBIENTE Y ENERGÍA,

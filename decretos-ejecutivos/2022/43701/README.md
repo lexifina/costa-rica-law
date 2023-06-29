@@ -14,3 +14,4 @@ Reforma Reglamento de Tarifas para Análisis Químicos y Reglamento Título II L
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-11-08 | la propia norma |
+| 2 | 2023-06-29 | SINALEVI (sin norma nombrada) |
