@@ -1,0 +1,1 @@
+Artículo 34.-El día hábil siguiente al remate, el abogado deberá de informar por escrito al departamento legal el resultado del remate, si pasado un lapso de ocho días no cumpliera con lo anterior, el Departamento enviará una nota solicitando el informe con copia al Alcalde Municipal para que proceda de conformidad.

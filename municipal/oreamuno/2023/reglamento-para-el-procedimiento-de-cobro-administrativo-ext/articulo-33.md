@@ -1,0 +1,1 @@
+Artículo 33.-El abogado está obligado a cotejar el edicto antes y después de su publicación en el boletín judicial, con los documentos que fundamentan la demanda, y será responsable ante la Municipalidad de cualquier perjuicio que por error al respecto pudiera causar su omisión.

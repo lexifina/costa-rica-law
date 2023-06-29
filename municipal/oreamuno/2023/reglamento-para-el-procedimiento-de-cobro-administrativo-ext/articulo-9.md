@@ -1,0 +1,1 @@
+Artículo 9º-La oficina de gestión de cobro de la Unidad Tributaria deberá rendir informes al alcalde municipal, sobre las gestiones realizadas de cobro de las cuentas morosas y el estado en que se encuentren las acciones de cada gestión.

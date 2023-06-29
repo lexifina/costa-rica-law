@@ -1,0 +1,1 @@
+Artículo 12.-Está prohibido para los abogados autorizar cualquier tipo de arreglo con el deudor, recibir pagos de abonos a la deuda, estos serán realizados en la oficina de gestión de cobro de la Unidad Tributaria y caja municipal respectivamente, en cuanto a los honorarios profesionales los cobrará el abogado en su oficina.

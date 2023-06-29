@@ -1,0 +1,1 @@
+Artículo 13.-Los abogados nombrados no podrán aceptar casos de litigios en contra de la institución, el incumplimiento de esta disposición hará que su nombramiento quede revocado automáticamente sin responsabilidad alguna para la Municipalidad.

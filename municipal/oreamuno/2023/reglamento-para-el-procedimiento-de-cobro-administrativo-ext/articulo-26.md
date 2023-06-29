@@ -1,0 +1,2 @@
+Artículo 26.-El arreglo de pago se formalizará mediante la firma de un documento por parte del abonado del servicio. En caso de que el arreglo sea realizado por una tercera persona, deberá presentar una carta de autorización de parte del abonado, así como copia de la cédula de identidad de este.
+En caso de que el abonado se encuentre fallecido, podrá el albacea realizar el arreglo respectivo, aportando copia de la resolución judicial que lo faculte como tal.

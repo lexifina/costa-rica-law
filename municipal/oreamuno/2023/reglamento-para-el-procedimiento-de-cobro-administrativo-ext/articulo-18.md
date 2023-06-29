@@ -1,0 +1,1 @@
+Artículo 18.-Los abogados que, por alguna razón personal, quieren dejar de servir a la institución, deberán comunicar esa decisión a la Alcaldía Municipal con 30 días de antelación y enviar la totalidad de los expedientes judiciales que ellos manejan la oficina de gestión de cobro de la Unidad Tributaria.

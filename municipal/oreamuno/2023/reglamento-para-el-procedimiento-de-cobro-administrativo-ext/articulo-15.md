@@ -1,0 +1,1 @@
+Artículo 15.-Cuando un abogado tenga que retirarse de su bufete por un plazo mayor de ocho días hábiles deberá comunicarlo al Departamento de Cobros previamente y por escrito, e indicar el profesional en derecho que queda a cargo de los casos que le fueron asignados, a fin de atender cualquier duda o consulta que se presente por parte de la institución.

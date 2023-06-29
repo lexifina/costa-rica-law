@@ -1,0 +1,1 @@
+Artículo 7º-Agotadas las gestiones administrativas en la recuperación de cuentas morosas, la administración realizará el procedimiento de contratación respectivo para contratar a los abogados que realizarán el trámite de cobro extrajudicial y judicial, de acuerdo con la legislación existente y vigente.

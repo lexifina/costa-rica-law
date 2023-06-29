@@ -1,0 +1,1 @@
+Artículo 27.-En el caso de que el contribuyente moroso incumpliere el compromiso adquirido del arreglo de pago, la Municipalidad procederá de inmediato, a pasar esta cuenta a Cobro Judicial, una vez en Cobro Judicial no se podrán realizar arreglos de pago, debe cancelarse la totalidad de lo adeudado; debido a que ya se dio por agotada la vía administrativa.

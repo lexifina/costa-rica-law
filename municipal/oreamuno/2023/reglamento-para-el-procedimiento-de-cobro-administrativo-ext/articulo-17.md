@@ -1,0 +1,1 @@
+Artículo 17.-Para efectos de determinar si los juicios se encuentran al día, la oficina de gestión de cobro de la Unidad Tributaria revisará periódicamente, con el Abogado Municipal, el número de expedientes y registros que consideren necesarios, de las operaciones entregadas a cada abogado tomado como base la documentación en poder del Departamento de cobros.

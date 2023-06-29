@@ -1,0 +1,3 @@
+Artículo 5º-Para el cumplimiento de sus objetivos, la oficina de gestión de cobro de la Unidad Tributaria o en su defecto la Alcaldía Municipal se encargará de:
+Realizar las gestiones de cobro administrativo de las cuentas atrasadas, para lo cual deberá enviarse un aviso de cobro con una copia dando un plazo de cinco días hábiles para la cancelación de lo adeudado, el mismo será entregado por un funcionario municipal debidamente autorizado para tal gestión.
+Una vez agotada la gestión de cobro administrativo, se levantará un expediente de cada caso con la documentación necesaria de las cuentas en estado de morosidad, para ser entregado a los abogados designados por la Alcaldía Municipal para que procedan a su cobro vía extrajudicial y judicial.
