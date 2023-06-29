@@ -1,4 +1,0 @@
-4º—Indicarle a los operadores y proveedores miembros del CTPN que al no existir consenso en el citado Comité a entrar a valorar la eventual inclusión del formulario de portación en los trámites de solicitud de portabilidad numérica, el Consejo de la SUTEL se abstendrá de pronunciarse sobre el fondo de este tema.
-En cumplimiento de lo que ordena el artículo 343 de la Ley General de la Administración Pública, se indica que contra esta resolución cabe el recurso ordinario de revocatoria ante el Consejo de la Superintendencia de Telecomunicaciones, a quien corresponde resolverlo y deberá interponerse en el plazo de tres días hábiles, contados a partir del día siguiente de la notificación de la presente resolución.
-Publíquese.
-La anterior transcripción se realiza a efectos de comunicar el acuerdo citado adoptado por el Consejo de la Superintendencia de Telecomunicaciones.
