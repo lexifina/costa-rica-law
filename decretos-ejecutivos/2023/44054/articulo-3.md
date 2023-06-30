@@ -1,0 +1,1 @@
+Artículo 3º-El PND se elaborará considerando el Plan Estratégico Nacional, compromisos internacionales para el desarrollo del país y otros instrumentos de planificación; así como, procesos de consulta de participación ciudadana.

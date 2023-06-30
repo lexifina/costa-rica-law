@@ -1,0 +1,1 @@
+Artículo 10.-Las modificaciones al PND serán incorporadas mediante anexos al documento publicado originalmente y serán difundidas a la ciudadanía en la dirección electrónica del Ministerio de Planificación Nacional y Política Económica (http://www.mideplan.go.cr). Una versión física del PND y de sus modificaciones será custodiada por el Centro de Documentación de Mideplan.
