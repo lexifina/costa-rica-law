@@ -14,3 +14,4 @@ Lineamientos sobre gestiones que involucran a la auditoría interna presentadas 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-08-13 | la propia norma |
+| 2 | 2023-06-30 | Resolución 55 (2023-06-30) |
