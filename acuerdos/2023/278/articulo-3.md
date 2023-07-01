@@ -1,0 +1,12 @@
+Artículo 3°—Modificaciones a la captura de información periódica
+a) Se incorpora el anexo 64 y se modifica el medio de envío en el cuadro de información periódica de la remisión de la suficiencia patrimonial de las empresas y grupos financieros supervisados por Sugeval:
+INFORME O REPORTE | Formato o normas sobre Contenido | Medio de Envío vigente | Medio de envío propuesto | Notas aclaratorias
+Reporte del superávit o déficit patrimonial de grupos financieros, y opinión sobre si el superávit individual transferible de cada empresa puede ser movilizado y utilizado libremente dentro del grupo o conglomerado | Anexo 64 | MENDOCEL SGV-A-188 | Sistema Ingresador | De acuerdo con la normativa de Grupos y Conglomerados Financieros; el representante legal de la controladora, deberá remitir trimestralmente una opinión fundamentada en estudios técnicos, debidamente sustentados sobre la existencia o no de situaciones de algún tipo que puedan limitar la capacidad de cada empresa del grupo o conglomerado financiero, para que los fondos equivalentes al superávit individual transferible de dicha empresa puedan ser movilizados y utilizados libremente dentro del grupo o conglomerado en caso de ser requerido. Sin restringirse a la valoración de los siguientes aspectos, entre las situaciones que pueden limitar la capacidad de la empresa se encuentran la imposibilidad de cumplir con parámetros regulatorios sobre liquidez, solvencia, calce de plazos o Saldo Abierto Ajustado por Riesgo (SAAR) en el caso de Puestos de Bolsa, o de apegarse a parámetros internos de gestión sobre estos mismos aspectos, así como el deterioro en forma significativa de la situación financiera de la entidad, que pueda poner en riesgo la estabilidad de sus operaciones. La información correspondiente a los estudios técnicos se incorporará como notas a los catálogos de suficiencia patrimonial.
+Anexo 64. Suficiencia Patrimonial para Grupos Financieros o Conglomerados.xlsx.
+b) Se modifica el medio de envío de los estados financieros auditados, cuando corresponda a Estados financieros del garante y/o fideicomisos de garantía de emisiones de oferta pública.
+INFORME O REPORTE | Medio de Envío Vigente | Medio de Envío Propuesto
+6.a Estados financieros auditados | Sistema Ingresador | MENDOCEL SGV-A-188
+Cuadro de Información Periódica.xlsx.
+c) Se reforman los anexos 50 y 60 de las Bolsas de Valores y Centrales de Valores, acuerdo con el siguiente detalle:
+Anexo 50. Estados Financieros de Bolsa de Valores.xlsx.
+Anexo 60. Estados Financieros de Centrales de Valores.xlsx.
