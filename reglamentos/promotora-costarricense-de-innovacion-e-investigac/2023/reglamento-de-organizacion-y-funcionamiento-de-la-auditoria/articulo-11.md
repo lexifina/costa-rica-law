@@ -1,0 +1,4 @@
+CAPÍTULO III: DEL AUDITOR INTERNO
+Artículo 11.- Nombramiento del Auditor interno
+El nombramiento del auditor interno se realizará por concurso público promovido por la Promotora, asegurándose la selección de los candidatos idóneos para ocupar el puesto, debiendo constar todo lo actuado en el expediente respectivo.
+El expediente y la terna seleccionada deberán ser comunicados en forma previa al nombramiento, a la Contraloría General de la República, todo de conformidad con lo previsto en el artículo 31 de la Ley General de Control Interno, el artículo 62 de la Ley Orgánica de la Contraloría General de la República, así como lo establecido en los "Lineamientos sobre gestiones que involucran a la auditoría interna presentadas ante la Contraloría General de la República, aprobados mediante resolución R-DC-83-2018 del 09 de julio de 2018 , emitidos por la CONTRALORIA GENERAL DE LA REPÚBLICA.

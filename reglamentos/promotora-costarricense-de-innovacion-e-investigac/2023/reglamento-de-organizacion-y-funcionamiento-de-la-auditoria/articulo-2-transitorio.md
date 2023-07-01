@@ -1,0 +1,2 @@
+Transitorio 2°-Los servicios de la Auditoria Interna iniciados con anterioridad a la entrada en vigencia del presente Reglamento, se regirán por el Reglamento de Organización y Funcionamiento de la Auditoría Interna del Consejo Nacional para Investigaciones Científicas y Tecnológicas que se deroga en el artículo 60 de la presente reglamentación.
+<span style='font-size:10.0pt;font-family:"Arial",sans-serif; </body>

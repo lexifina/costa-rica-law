@@ -1,0 +1,2 @@
+Artículo 59.- Modificaciones al Reglamento
+El jerarca debe aprobar las modificaciones al reglamento que proponga y promueva el auditor interno. Al respecto, se debe considerar lo establecido en el artículo 23 de la Ley General de Control Interno y la norma 4.3 de los Lineamientos sobre gestiones que involucran a la auditoría interna presentadas ante la Contraloría General de la República, aprobados mediante resolución R-DC-83-2018 del 09 de julio de 2018.

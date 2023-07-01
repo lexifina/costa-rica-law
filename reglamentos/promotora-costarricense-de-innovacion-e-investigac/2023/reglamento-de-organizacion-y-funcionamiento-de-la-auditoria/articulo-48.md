@@ -1,0 +1,4 @@
+CAPITULO IX: ATENCIÓN DE DENUNCIAS
+Artículo 48.- Trámite para las denuncias
+La Auditoría Interna recibirá aquellas denuncias que le sean dirigidas por parte de personas físicas o jurídicas, públicas o privadas y funcionarios (as) de la Institución, que serán canalizadas con base en las directrices y procedimiento que la propia Auditoría Interna establezca, de conformidad con los "Lineamientos para el Análisis de Denuncias de Presuntos Hechos Irregulares presentadas a la Auditoría Interna" acorde con la resolución R-DC-102-2019 emitida por la Contraloría General de la República del catorce de octubre de dos mil diecinueve.-
+Aquellas denuncias que luego del análisis correspondiente resulten, de carácter general y carentes de información adecuada y concreta, insuficiente o sin importancia para fundamentar la posible comisión de un hecho irregular, o sean anónimas, se archivarán, dejando constancia de lo actuado en relación con ellas.

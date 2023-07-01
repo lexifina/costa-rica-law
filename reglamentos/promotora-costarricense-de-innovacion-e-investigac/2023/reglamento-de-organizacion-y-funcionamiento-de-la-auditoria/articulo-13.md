@@ -1,0 +1,2 @@
+Artículo 13.- Funciones y requisitos
+El cargo de auditor interno deberá atender las respectivas funciones establecidas en el Manual Institucional Descriptivo de Puestos de la Promotora o en su defecto, en el perfil del puesto que conste en la institución. Asimismo, deberá observar los requisitos establecidos en los "Lineamientos sobre gestiones que involucran a la auditoría interna presentadas ante la Contraloría General de la República, aprobados mediante resolución R-DC-83-2018 del 09 de julio de 2018, emitidos por la CONTRALORIA GENERAL DE LA REPÚBLICA.
