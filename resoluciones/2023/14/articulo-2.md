@@ -1,0 +1,1 @@
+Artículo 2-Aplicación del nivel mínimo de tributación. En consideración a que la CMV en el año 2022 corresponde al precio de ¢2.100,00 (dos mil cien colones exactos) por cajetilla, se debe modificar el nivel mínimo de tributación vigente, según se detalla en el artículo siguiente.
