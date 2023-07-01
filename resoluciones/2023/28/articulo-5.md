@@ -1,0 +1,1 @@
+Artículo 5º-Se deja sin vigencia la resolución RES-DGH-054-2022/RES-DGA-419-2022, de la Dirección General de Hacienda y de la Dirección General de Aduanas del Ministerio de Hacienda, San José, de las diez horas con treinta minutos del día catorce de diciembre de dos mil veintidós, publicada en La Gaceta Nº 244 del veintidós de diciembre de dos mil veintidós.
