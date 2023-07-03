@@ -14,3 +14,4 @@ Requisitos para trámites de embarcaciones, derogatoria Circular DRBM-DIR-05-201
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-08-20 | la propia norma |
+| 2 | 2023-07-03 | Directriz 0 (2023-07-03) |
