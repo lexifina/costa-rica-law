@@ -1,0 +1,1 @@
+Artículo 12.-El Colegio de Terapeutas publicará los datos de los profesionales incorporados que cumplan con los requisitos señalados en la presente Reglamentación e indicará cuando exista alguna razón que limite el ejercicio de estos profesionales en cuanto a las técnicas referidas en esta norma.

@@ -1,0 +1,1 @@
+Artículo 3º-Población meta y patologías a tratar. La Electroestimulación y aplicación de Agentes Electrofísicos como herramientas terapéuticas en Terapia del Lenguaje, podrá ser utilizada en la intervención o tratamiento de trastornos en motricidad orofacial y/o en tejidos blandos del sistema estomatognático.
