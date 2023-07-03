@@ -1,1 +1,0 @@
-Artículo 12.—El presente reglamento será revisado por la Junta Directiva del Colegio de Terapeutas de Costa Rica, cada tres años y deberá ser actualizado de conformidad con el avance de las investigaciones nacionales e internacionales, basadas en la evidencia científica y que se encuentren directamente relacionadas con la Terapia del Lenguaje.
