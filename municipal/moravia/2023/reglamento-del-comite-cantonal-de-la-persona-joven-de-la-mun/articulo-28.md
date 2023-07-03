@@ -1,0 +1,1 @@
+ARTÍCULO 28.- Representación ante la ANPJ. Es competencia de la Junta Directiva del CCPJ designar su representante ante la ANPJ de manera anual, quien podrá ser una persona miembro de la propia Junta Directiva o bien, una persona joven residente del cantón con edad entre 12 y 35 años. Se requerirá mayoría simple para esta elección.

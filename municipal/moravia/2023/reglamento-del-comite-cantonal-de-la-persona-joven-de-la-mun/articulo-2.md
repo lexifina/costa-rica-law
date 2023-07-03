@@ -1,0 +1,1 @@
+ARTÍCULO 2.- Del alcance. El presente reglamento es de acatamiento obligatorio para todos los funcionarios de la Municipalidad de Moravia, los miembros del CCPJ y para los sectores que postulen representantes para la conformación del mismo.

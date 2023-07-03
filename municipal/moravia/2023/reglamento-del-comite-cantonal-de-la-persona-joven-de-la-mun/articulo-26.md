@@ -1,0 +1,1 @@
+ARTÍCULO 26.- De las propuestas locales. Le corresponderá al Comité realizar propuestas de trabajo local y nacional en beneficio de la juventud, procurando una coordinación efectiva con los sectores y agrupaciones juveniles del cantón y directamente con las instituciones encargadas de la gestión de sus recursos financieros, en relación con la Política Pública de la Persona Joven.

@@ -1,0 +1,1 @@
+ARTÍCULO 67.- La Municipalidad de Moravia dispondrá de un espacio físico adecuado a las necesidades del CCPJ, para la realización de sus reuniones, eventos y actividades. Su administración, custodia, conservación y protección corresponderá al CCPJ.

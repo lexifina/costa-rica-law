@@ -1,0 +1,1 @@
+ARTÍCULO 15.- De la asesoría del Consejo de la Persona Joven. El Concejo Municipal o el propio CCPJ podrán acudir, en el momento que estimen conveniente, ante el CPJ para asesorarse en los procesos electivos.

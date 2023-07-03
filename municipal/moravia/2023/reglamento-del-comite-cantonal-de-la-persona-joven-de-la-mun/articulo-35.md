@@ -1,0 +1,1 @@
+ARTÍCULO 35.- El acta no debe presentar borrones, tachones o manchas. Cualquier corrección que se deba hacer, se realizará al final del acta, mediante una nota en la que se indique el folio y el número de línea donde se encuentra el error, mencionando la corrección de este. Esta nota deberá hacerse antes de las firmas.

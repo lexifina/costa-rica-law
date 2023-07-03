@@ -1,0 +1,1 @@
+ARTÍCULO 3.- Enlace municipal. A efectos de la aplicación de la presente normativa, la instancia municipal encargada que fungirá como enlace entre el CCPJ y las unidades administrativas municipales, será la Oficina de Niñez y Adolescencia.

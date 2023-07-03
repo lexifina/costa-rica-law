@@ -1,0 +1,1 @@
+ARTÍCULO 12. Juramentación. La juramentación de todas las personas miembros del CCPJ que resulten electas, será realizada en el salón de sesiones del Concejo Municipal o vía videoconferencia en caso de que sea la forma en que se encuentre sesionando el Concejo. Esta deberá producirse a más tardar la última semana del mes de noviembre de cada año que corresponda.

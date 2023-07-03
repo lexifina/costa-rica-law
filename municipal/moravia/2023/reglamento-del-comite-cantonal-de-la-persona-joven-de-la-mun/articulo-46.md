@@ -1,0 +1,3 @@
+ARTÍCULO 46.- De la etapa de ejecución de los proyectos. La Proveeduría Institucional y la Oficina de Niñez y Adolescencia deberán proporcionar en todo momento al CCPJ su colaboración para la ejecución de sus proyectos cuando requieran procesos de contratación pública por medio del Sistema de Compras Públicas.
+Para los efectos anteriores, quien ejerza la Presidencia del CCPJ (en caso de ser una persona mayor de edad) contará con un certificado de firma digital proporcionado por la Municipalidad de Moravia. En caso de que se trate de una persona menor de edad, el proceso será conducido por la Oficina de Niñez y Adolescencia en todas sus etapas contractuales.
+El CCPJ seguirá los lineamientos que, en materia de contrataciones municipales con recursos del CPJ se realicen.

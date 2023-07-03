@@ -1,0 +1,1 @@
+ARTÍCULO 41.- Integración de comisiones permanentes. Las comisiones permanentes estarán integradas por la Presidencia con, al menos, tres miembros del CCPJ, dentro de las cuales se definirá una coordinación por parte de sus miembros.

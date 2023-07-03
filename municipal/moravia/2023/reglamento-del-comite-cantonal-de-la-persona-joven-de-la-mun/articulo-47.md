@@ -1,0 +1,1 @@
+ARTÍCULO 47.- Principios. Los proyectos deben responder a los principios de eficacia, eficiencia, racionalidad, transparencia y proporcionalidad y, además, elaborarse bajo la modalidad participativa en la medida de lo posible.

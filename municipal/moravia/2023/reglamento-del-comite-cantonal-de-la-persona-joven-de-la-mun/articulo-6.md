@@ -1,0 +1,6 @@
+ARTÍCULO 6.- De la Integración. El Comité Cantonal lo integran siete personas con edades comprendidas entre los 12 y 35 años, en representación de los distintos sectores de juventud del cantón de conformidad con lo estipulado en el artículo 24 de la Ley General de la Persona Joven, a saber:
+a) Una persona representante municipal, designada por el concejo municipal.
+b) Dos personas representantes de los colegios del cantón, electas en una asamblea de este sector. Cada gobierno estudiantil tendrá la posibilidad de postular un candidato y una candidata para integrar el comité cantonal de la persona joven.
+c) Dos personas representantes de las organizaciones juveniles cantonales debidamente registradas en la municipalidad respectiva, electas en una asamblea de este sector. Cada organización tendrá la posibilidad de postular un candidato y una candidata para integrar el comité cantonal de la persona joven.
+d) Una persona representante de las organizaciones deportivas cantonales, escogida por el comité cantonal de deportes.
+e) Una persona representante de las organizaciones religiosas que se registren para el efecto en la municipalidad del cantón, electa en una asamblea de este sector. Cada organización tendrá la posibilidad de postular un candidato y una candidata para integrar el comité cantonal de la persona joven.

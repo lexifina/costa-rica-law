@@ -1,0 +1,1 @@
+ARTÍCULO 64.- Será competencia de la Junta Directiva del CCPJ la designación de las dos personas miembros de la Junta Directiva del CCDR. El proceso de elección será definido por el CCPJ de manera autónoma mediante acuerdo.

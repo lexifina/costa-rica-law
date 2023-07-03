@@ -1,0 +1,1 @@
+ARTÍCULO 38.- Publicidad de las sesiones. Las sesiones del CCPJ serán siempre públicas, con el objetivo de que las personas jóvenes del cantón de Moravia puedan asistir. El Departamento de Tecnologías de la Información deberá adecuar las condiciones necesarias para la transmisión virtual de dichas sesiones.

@@ -1,0 +1,1 @@
+ARTÍCULO 37.- Al finalizar cada libro de actas y, posterior a su razón de cierre, o bien, al finalizar el periodo para el cual fue electo el respectivo CCPJ, la Secretaría del CCPJ entregará ante la Secretaría del Concejo Municipal el libro original para su custodia y archivo.

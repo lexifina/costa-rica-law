@@ -1,0 +1,1 @@
+ARTÍCULO 76.- De los activos del CCPJ. Los activos del CCPJ serán plaqueados y considerados como cualquier otro activo propiedad de la Municipalidad de Moravia, sin embargo, tendrán como destino y uso específico los proyectos y actividades propias del CCPJ. No podrá la Administración Municipal disponer de los activos asignados al CCPJ sin su previa autorización.
