@@ -1,0 +1,1 @@
+Artículo 10.-Permiso de Estacionamiento. Para el uso de las áreas de estacionamiento, la Dirección General, de acuerdo a lo dispuesto en el presente Reglamento y de conformidad con las necesidades de uso, expedirá el permiso de estacionamiento.

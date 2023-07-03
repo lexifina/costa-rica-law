@@ -1,0 +1,1 @@
+Artículo 13.-Renovación genérica. La Dirección General o el ente administrador, que la primera delegue, según sea el caso, durante la primera quincena de diciembre de cada año, podrá renovar genéricamente el plazo de los permisos concedidos.

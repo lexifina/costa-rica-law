@@ -1,0 +1,1 @@
+Artículo 7°-No ampliación del área utilizada para estacionamiento. No se podrá en ningún caso utilizar para estacionamiento, las áreas destinadas a áreas verdes del Ministerio, salvo que en caso de fuerza mayor o caso fortuito la Dirección General así lo autorice.
