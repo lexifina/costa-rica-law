@@ -1,0 +1,2 @@
+Artículo 30 Bis.-Norma complementaria. En lo no contemplado en este reglamento deberá observarse de forma complementaria el Reglamento para el funcionamiento de los fondos de caja chica de la Municipalidad de El Guarco, acordado por el Concejo Municipal de El Guarco en la Sesión Extraordinaria N 230 -2023 celebrada el 26 de abril de 2023, mediante acuerdo N 1003 y ratificado en Sesión Ordinaria 231- 2023 celebrada el 02 de mayo de 2023, publicado en el Diario Oficial La Gaceta N°91 el 24 de mayo de 2023.
+(Así adicionado en sesión N° 244 del 3 de julio de 2023)

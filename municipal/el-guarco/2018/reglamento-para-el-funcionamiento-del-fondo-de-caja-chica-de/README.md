@@ -14,3 +14,4 @@ Reglamento para el funcionamiento del fondo de caja chica del Comité Cantonal d
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-10-25 | la propia norma |
+| 2 | 2023-07-03 | Reglamento municipal 244 (2023-07-03) |
