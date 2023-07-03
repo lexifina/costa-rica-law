@@ -1,11 +1,23 @@
-Artículo 6º—Contenido mínimo de contratos; certificados y documentos provisionales de cobertura. El contenido del contrato póliza se ajustará a lo que señala el artículo 20 de la Ley Reguladora del Contrato de Seguros y demás normativa aplicable, así como a los siguientes puntos:
-a) Comisión por la recaudación de la prima a favor del tomador o de terceros, en los casos en que se pacte dicha comisión.
-b) Participación al tomador en la utilidad o en cualquier otro beneficio patrimonial de la póliza, en los casos en que proceda y se pacte dicha participación; en caso afirmativo, indicar en qué consiste y en cuáles supuestos aplica dicha participación. Tratándose de pólizas colectivas en modalidad contributiva, la participación en los beneficios de la póliza, deberá repercutir en los asegurados en la misma proporción en que contribuyan al pago de la prima e igualmente, deberá indicarse en qué consiste y en cuáles supuestos aplica dicha participación. La aseguradora será responsable frente a los asegurados por la distribución o aplicación entre estos, de esa participación en los beneficios de la póliza, en los términos pactados en el contrato.
-c) Forma y periodicidad en la que el tomador reporte al asegurador las solicitudes de inclusión así como las exclusiones en la póliza respectiva.
-d) La obligación de la aseguradora de entregar al tomador previo a la fecha de vencimiento de la póliza, según el plazo razonable que se acuerde entre las partes, el reporte completo de los datos de los asegurados que conforman el grupo asegurado; información que deberá ser validada por el tomador.
-e) En caso de que tomador y aseguradora decidan modificar o terminar el contrato, deberán establecer los mecanismos de comunicación al asegurado de tal decisión, con al menos un mes de previo a la fecha de vencimiento del contrato, a efectos de que sus intereses no se vean afectados. La colaboración del tomador en este proceso, no libera a la aseguradora de su responsabilidad por las eventuales omisiones que afecten al asegurado de buena fe.
-f) Causales de terminación del contrato.
-Por su parte, el certificado de seguro deberá contener, como mínimo:
+Artículo 6º-Contenido mínimo de contratos; certificados y documentos provisionales de cobertura.
+Las entidades aseguradoras serán responsables de que sus pólizas de seguro colectivo cumplan lo siguiente.
+I) El contenido del contrato póliza se ajustará a lo que señala el artículo 20 de la Ley Reguladora del Contrato de Seguros y demás normativa aplicable, así deberá indicar lo siguiente:
+a) la comisión, pago, o beneficio de cualquier naturaleza que la aseguradora reconozca al intermediario y al tomador del seguro. En este último caso se dispondrá expresamente que dicho estipendio contempla el reconocimiento de todos los costos incurridos por el tomador en virtud de la gestión de la póliza, aún los indirectos como los costos que puedan generarse por los casos de personas que decidan optar por otro seguro.
+b) la participación al tomador en la utilidad o en cualquier otro beneficio patrimonial de la póliza, en los casos en que proceda y se pacte dicha participación; en caso afirmativo, indicar en qué consiste y en cuáles supuestos aplica dicha participación. Tratándose de pólizas colectivas en modalidad contributiva, la participación en los beneficios de la póliza deberá repercutir en los asegurados en la misma proporción en que contribuyan al pago de la prima e igualmente, deberá indicarse en qué consiste y en cuáles supuestos aplica dicha participación. La aseguradora será responsable frente a los asegurados por la distribución o aplicación entre estos, de esa participación en los beneficios de la póliza, en los términos pactados en el contrato.
+c) la forma y periodicidad en la que el tomador reporte al asegurador las solicitudes de inclusión, así como las exclusiones en la póliza respectiva.
+d) la obligación de la aseguradora de entregar al tomador previo a la fecha de vencimiento de la póliza, según el plazo razonable que se acuerde entre las partes, el reporte completo de los datos de los asegurados que conforman el grupo asegurado; información que deberá ser validada por el tomador.
+e) la obligación y los mecanismos de implementación para que, en caso de modificación o terminación del contrato, se comunique al asegurado tal decisión dentro de los plazos previstos en el artículo 8 Bis de este reglamento, a efectos de que sus intereses no se vean afectados. Cuando corresponda, la comunicación recordará el privilegio de conversión referido en el inciso i.i) de este artículo y la forma de ejercerlo. La colaboración del tomador en este proceso, no libera a la aseguradora de su responsabilidad por las eventuales omisiones que afecten al asegurado de buena fe.
+f) las causales de terminación del contrato.
+g) la prima o la forma de determinarla junto con los procedimientos de ajuste de la misma si corresponden. En el caso de pólizas colectivas de seguros personales deberá indicarse las variables a considerar, cómo se verificarán y el impacto de las mismas, para posibles futuros ajustes en la prima.
+h) los medios por los cuales, los asegurados y miembros del grupo asegurable, podrán obtener información y asesoría respecto a la póliza colectiva, debiendo incluirse al menos un número telefónico, un correo electrónico y un sitio web en el que se pueda revisar toda la documentación contractual y plantear consultas. Cuando además participe un intermediario de seguros, debe incluirse la obligación del tomador de informar a los asegurados sobre ello y, en el caso de las sociedades corredoras de seguros, aclarar si actúan como asesores con contraprestación de honorarios asumida por el tomador, y el detalle de sus obligaciones y responsabilidades.
+i) en el caso de pólizas colectivas de seguros personales en los que el tomador sea acreedor de los miembros del grupo asegurable, la aseguradora podrá establecer un privilegio de conversión para quienes tengan la condición de asegurados. Dicho privilegio operará con los siguientes requisitos mínimos:
+i.i) Los asegurados podrán comunicar a la aseguradora su interés por ejercer el privilegio de conversión, una vez que se les haya informado la próxima terminación de su aseguramiento y hasta un mes después de que tenga lugar la misma.
+i.ii) Posterior a dicha comunicación por parte del asegurado, la aseguradora contará con un plazo de quince días naturales para hacerle llegar, al menos, una opción de aseguramiento con la documentación contractual y demás información, otorgando un plazo razonable de, al menos, quince días naturales para que el asegurado gestione lo que corresponda.
+i.iii) La nueva póliza ofrecida por la aseguradora deberá dar continuidad o mejorar la cobertura previa del riesgo principal amparado, sin introducir nuevos periodos de carencia o de disputabilidad, ni considerar preexistencias posteriores al aseguramiento previo, o exclusiones u otras cláusulas delimitadoras del riesgo o limitativas de los derechos del asegurado relacionadas con esas posibles preexistencias. Cualquier incremento en la prima de la nueva póliza, deberá ser consistente con la información de la nota técnica respectiva registrada ante la Superintendencia.
+i.iv) Si debidamente notificado, el asegurado no gestiona lo correspondiente en los términos indicados, caducará el ejercicio del privilegio de conversión.
+j) que en los casos de la inclusión en una póliza colectiva cuando ocurre con ocasión del consumo de un bien o servicio principal diferente al aseguramiento, el tomador está obligado a indicar, de forma expresa y clara, si la contratación de la cobertura es obligatoria o si resulta opcional para el asegurado.
+k) si los aseguramientos individuales cuentan con derecho de retracto para el asegurado, que en caso de ejercerse en el plazo que se pacte, le permitirá recuperar la totalidad de lo pagado.
+l) cualquier otra condición que se pacte entre el tomador y la aseguradora incluyendo las que puedan corresponder de conformidad con el artículo 11 del presente reglamento.
+II) Por su parte, el certificado de seguro deberá contener, como mínimo:
 a) Razón Social, domicilio, teléfono, correo electrónico y fax de la entidad aseguradora;
 b) Número de la póliza colectiva;
 c) Número de registro del producto en la Superintendencia;
@@ -13,17 +25,22 @@ d) Nombre del asegurado, documento y número de identificación, teléfono; y pa
 e) Clase de Seguro;
 f) Vigencia del aseguramiento;
 g) Descripción del objeto a asegurar en caso de que corresponda;
-h) Descripción de las coberturas adquiridas;
-i) Montos de coberturas adquiridas o modo de precisarlos;
-j) Beneficiarios de la póliza en caso que corresponda y porcentaje de participación para cada uno;
-k) En los seguros colectivos de saldos deudores, los requisitos dispuestos por el Reglamento sobre Registro de Productos de Seguros.
-(Así reformado el inciso anterior en sesión N° 1131 del 27 de octubre de 2014)
+h) Descripción de las coberturas adquiridas, exclusiones, plazos de disputabilidad, carencias, límites, sublímites y cualquier otra delimitación del riesgo cubierto cuando ello esté sujeto a elección por parte del Tomador y/o Asegurado;
+i) Montos de coberturas adquiridas o modo de precisarlos.
+j) Beneficiarios de la póliza en caso de que corresponda y porcentaje de participación para cada uno;
+k) En los seguros colectivos de saldos deudores, los requisitos dispuestos por el Reglamento sobre Registro de Productos de Seguros;
 l) Lugares o dirección de página web en donde estarán a disposición del asegurado, las condiciones generales, sus modificaciones y adiciones;
-m) La siguiente leyenda: “Como asegurado, usted tiene derecho a exigir en cualquier momento a la aseguradora, copia de las condiciones generales de esta póliza colectiva, sus modificaciones y adiciones”;
-n) Cualquier otra información que el asegurador considere incluir.
+m) La siguiente leyenda: "Como asegurado, usted tiene derecho a exigir en cualquier momento a la aseguradora, copia de las condiciones generales de esta póliza colectiva, sus modificaciones y adiciones";
+n) En los casos de pólizas con contribución de prima por parte del asegurado, se debe indicar la prima correspondiente al aseguramiento individual o la forma de determinarla, en esos casos, si se trata de pólizas colectivas de seguros personales también deberá indicarse si se contemplan futuros ajustes al monto de las primas, las variables a considerar, cómo se verificarán y el impacto de estas en el ajuste.
+o) En el caso de los seguros de vida y gastos médicos se debe incluir la siguiente leyenda "De conformidad con el artículo 14 de la Ley Reguladora del Contrato de Seguros, la prórroga del contrato es obligatoria para el asegurador en tanto se cancele la prima determinada técnicamente, según las condiciones pactadas en dicha póliza. Por tal motivo, en la prórroga de plazo del contrato, los términos y condiciones de la póliza, salvo las que se negocien para los nuevos asegurados, no sufrirán modificación distinta de los ajustes automáticos contemplados en la misma."
+(Así reformado el inciso anterior en sesión N° 1840 del 11 de diciembre de 2023)
+p) Los medios por los cuales, los asegurados podrán obtener información y asesoría respecto a la póliza colectiva, debiendo incluirse al menos un número telefónico, un correo electrónico y un sitio web en el que se pueda revisar toda la documentación contractual y plantear consultas.
+Cualquier otra información que el asegurador considere incluir.
 A su vez, el documento provisional de cobertura deberá contener como mínimo:
 a) Razón Social, domicilio, teléfono, correo electrónico y fax de la entidad aseguradora;
 b) Número de la póliza colectiva;
 c) Número de registro del producto en la Superintendencia;
-d) Nombre del asegurado, documento y número de identificación,
+d) Nombre del asegurado, documento y número de identificación.
 La entidad aseguradora tendrá la obligación de velar por que el asegurado reciba toda la información correspondiente a la póliza de seguro de conformidad con la normativa vigente.
+Lo dispuesto en este artículo, será considerado para efectos del proceso de registro y actualización de productos colectivos normado por el Reglamento sobre el Registro de Productos.
+(Así reformado mediante sesión N°1805-2023 del 3 de julio del 2023 )

@@ -15,3 +15,4 @@ Reglamento sobre seguros colectivos del Concejo Nacional de Supervisión del Sis
 | --- | --- | --- |
 | 1 | 2013-06-17 | la propia norma |
 | 2 | 2014-10-27 | Reglamento 1131 (2014-10-27) |
+| 3 | 2023-07-03 | Reglamento 1805 (2023-07-03) |
