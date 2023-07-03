@@ -1,0 +1,4 @@
+Artículo 16.-Sanciones
+a) Los funcionarios de la Municipalidad de Buenos Aires que tienen relación directa o indirecta con el proceso de inversiones, tienen el deber y la obligación de conocer este reglamento. El incumplimiento de lo señalado, será sancionado conforme a lo dispuesto en la Ley General de Control Interno y demás normativa que le pueda ser aplicable.
+b) Las sanciones que correspondan, según lo indicado en el artículo anterior, serán aplicadas por el Despacho del Alcalde Municipal, a través del Área de Recursos Humanos, conforme lo establece el Código Municipal, el Código de Trabajo y el Reglamento Autónomo de Organización y Servicios de esta Municipalidad.
+c) En lo no dispuesto en este Reglamento aplicará supletoriamente la legislación vigente, así como demás disposiciones reglamentarias establecidas por la Contraloría General de la República, pronunciamientos vinculantes de Procuraduría General de la República y demás entidades competentes.
