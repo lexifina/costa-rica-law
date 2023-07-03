@@ -1,0 +1,2 @@
+Artículo 10°. - Fecha en que se tienen por recibidas las solicitudes presentadas a través de TRAVI. Las solitudes que se presenten por medio de la plataforma TRAVI en días y horas hábiles, se tendrán por recibidas en esa misma fecha. Aquellas que se remitan en horas o días inhábiles se tendrán por recibidas el día hábil siguiente al de la transmisión.
+Lo anteriormente señalado también aplica en el caso de cumplimiento de un requerimiento o prevención efectuado por la Administración Tributaria.

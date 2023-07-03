@@ -1,0 +1,2 @@
+Artículo 3°. - Creación del Usuario para utilización de la Plataforma de Trámite Virtual TRAVI. Los usuarios indicados en el artículo 2 de esta resolución, deben crear el usuario para el ingreso a la plataforma TRAVI y registrar una dirección de correo electrónico, que se utilizará para remitir la contraseña generada por TRAVI.
+Solamente se debe registrar un correo electrónico por usuario. En caso de que exista una misma cuenta de correo electrónico asociado a varios usuarios, y requiera autogestionar la recuperación de contraseña, la cuenta en TRAVI será bloqueada.

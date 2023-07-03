@@ -1,0 +1,1 @@
+Artículo 17°. - Contingencia ante suspensión de la plataforma TRAVI. En caso de que se presente cualquier situación que provoque una suspensión temporal de la plataforma TRAVI, atribuible a la Administración Tributaria, el usuario y/o contribuyente podrá presentar sus gestiones en forma presencial o por el medio que la Dirección General de Tributación comunique oportunamente.
