@@ -1,0 +1,1 @@
+Artículo 5º-De la hora límite: Sin excepción ninguna actividad con música en vivo podrá extenderse más allá de las veintitrés horas (11:00 p.m.) los días Viernes y sábado. Para los demás días la hora límite será las veintidós horas.

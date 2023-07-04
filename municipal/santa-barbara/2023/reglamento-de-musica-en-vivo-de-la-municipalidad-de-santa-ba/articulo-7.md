@@ -1,0 +1,1 @@
+Artículo 7º-De las sanciones: La violación a lo dispuesto en este reglamento originará las sanciones previstas en el Código Municipal, Ley y Reglamento de Patentes de la Municipalidad de Santa Bárbara de Heredia y Código Penal en lo referente a la realización de actividades comerciales sin Permiso Municipal.

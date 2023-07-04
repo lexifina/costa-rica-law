@@ -1,0 +1,1 @@
+Artículo 3º-Del Permiso Municipal: Toda actividad social y comercial que se programe, dónde se pretenda desarrollar música en vivo, deberá contar con el correspondiente Permiso Municipal para su realización.

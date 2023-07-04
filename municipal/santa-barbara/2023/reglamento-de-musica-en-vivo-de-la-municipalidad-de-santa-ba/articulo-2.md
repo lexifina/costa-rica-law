@@ -1,0 +1,1 @@
+Artículo 2º-Definición: Denominase música en vivo de la puesta en escena de una función musical (con diversas composiciones sueltas) en directo. Esto quiere decir que el concierto requiere de la presencia de los músicos tocando sus instrumentos y ejecutando diversas canciones.
