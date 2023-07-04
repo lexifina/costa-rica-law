@@ -1,0 +1,1 @@
+Artículo 2°-Una vez publicado el presente decreto no se podrá reconocer nuevos beneficios por desarraigo a los funcionarios, ni prorrogar los ya reconocidos, dejando efectivos únicamente los existentes, hasta tanto se finalice el periodo de compensación otorgado.
