@@ -1,0 +1,1 @@
+Artículo 4º-La administración del Refugio le compete al dueño de la propiedad, pero el MINAE, a través del SINAC supervisará las actividades desarrolladas en el mismo, dictando las políticas en cuanto al manejo y uso de los recursos naturales y medio ambiente, de conformidad con los principios de desarrollo sostenible planteados en el plan de manejo.
