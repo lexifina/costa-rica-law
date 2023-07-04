@@ -1,6 +1,7 @@
-Artículo 146.— Son funciones del Departamento de Planificación y Evaluación de Impacto:
+Artículo 146.- Son funciones del Departamento de Planificación y Evaluación de Impacto:
 a) Coordinar con los Departamentos de la Dirección la implementación de la estrategia para la elaboración del Plan Operativo Anual y Presupuesto de cada Departamento y de la Dirección, así como de otros documentos de planificación requeridos por agentes internos y externos del MEP, siguiendo los lineamientos establecidos para tal efecto por la Dirección de Programas de Equidad.
-b) Coordinar con los Departamentos la emisión periódica de los informes sobre el avance en el cumplimiento del Plan Operativo Anual y Presupuesto y remitirlos a la Dirección para su aprobación y entrega a las instancias competentes.
+b) Coordinar con los Departamentos la emisión periódica de los informes sobre el avance en el cumplimiento del Plan Operativo Anual y Presupuesto, así como de otros informes de planificación requeridos por agentes internos o externos al MEP, y remitirlos a la Dirección para su aprobación y entrega a las instancias competentes.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 44193 del 4 de julio de 2023)
 c) Brindar apoyo técnico a los Departamentos y a la Dirección, en temas relacionados con formulación, ejecución, monitoreo y evaluación de los planes y estrategias de los distintos programas.
 d) A partir de los lineamientos de la Dirección, diseñar e implementar los instrumentos para la evaluación de los servicios y rendir los informes con las recomendaciones pertinentes.
 e) Coordinar la elaboración de los manuales de procedimientos de las instancias de la Dirección, así como el mantenimiento y actualización oportuna de éstos.

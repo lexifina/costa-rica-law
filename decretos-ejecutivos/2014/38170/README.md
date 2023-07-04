@@ -23,3 +23,4 @@ Organizaci√≥n administrativa de la oficinas centrales del Ministerio de Educaci√
 | 8 | 2020-07-14 | Decreto Ejecutivo 42488 (2020-07-14) |
 | 9 | 2020-09-04 | Decreto Ejecutivo 42616 (2020-09-04) |
 | 10 | 2022-04-04 | Decreto Ejecutivo 43481 (2022-04-04) |
+| 11 | 2023-07-04 | Decreto Ejecutivo 44193 (2023-07-04) |
