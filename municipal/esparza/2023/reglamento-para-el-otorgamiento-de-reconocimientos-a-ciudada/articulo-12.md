@@ -1,0 +1,4 @@
+Artículo 12.-Este reconocimiento podrá conferirse:
+a) A residentes actuales o pasados del cantón de Esparza que hayan tenido un desempeño sobresaliente en deporte, expresiones artísticas, aportes culturales, investigativos o intelectuales, acción climática, desarrollo profesional, científico, académico entre otras áreas en donde el desempeño demostrado sobresalga del común y permita el realce del nombre de Esparza.
+b) Residentes actuales o pasados que por sus obras y acciones desinteresadas y altruistas hayan beneficiado la calidad de vida de los residentes del cantón de Esparza en la medida de sus posibilidades, pudiendo ser en áreas tales como desarrollo comunal, educación, arte, cultura, deporte, religión y credo, desarrollo económico, entre otras.
+c) Demás actores cuyas acciones sean meritorias para reconocérsele como un Ciudadano Destacado.

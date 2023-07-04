@@ -1,0 +1,1 @@
+Artículo 4º-El Concejo Municipal podrá, por medio de Acuerdo tomado por mayoría calificada de sus integrantes, otorgar excepcionalmente más de una (1) Declaratoria de Hijo(a) Predilecto(a) por motivos que así lo ameriten, para lo cual requerirá el dictamen afirmativo de la Comisión Permanente de Asuntos Culturales de acuerdo a lo indicado en el presente reglamento.
