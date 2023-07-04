@@ -1,0 +1,1 @@
+Artículo 2º-Alcance. Se insta a la Administración Central y Descentralizada para que, dentro del marco de sus competencias y en estricto apego al ordenamiento jurídico, brinden todas las facilidades y cooperación requeridas para la correcta, exitosa, eficaz y eficiente realización de los aspectos descritos en el artículo anterior.
