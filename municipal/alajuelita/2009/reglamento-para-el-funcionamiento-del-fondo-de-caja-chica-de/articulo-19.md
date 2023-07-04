@@ -1,1 +1,0 @@
-Artículo 19.—Cuando el monto de la factura sea superior al vale, el cajero repondrá la diferencia, siempre y cuando no sobrepase el límite autorizado en el artículo 6º. De presentarse esta situación el funcionario a nombre de quien se giró el vale debe asumir el gasto diferencial resultante sin que la Municipalidad quede obligada a reintegrarle esa suma.
