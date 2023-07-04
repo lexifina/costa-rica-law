@@ -14,3 +14,4 @@ Reglamento para el otorgamiento de permisos de uso en la zona marítimo terrestr
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-06-21 | la propia norma |
+| 2 | 2023-07-04 | Reglamento municipal 166 (2023-07-04) |
