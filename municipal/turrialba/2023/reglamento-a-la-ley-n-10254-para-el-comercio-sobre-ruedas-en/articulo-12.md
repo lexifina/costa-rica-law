@@ -1,0 +1,1 @@
+Artículo 12.-Una vez autorizado por el Departamento de Patentes supra citado el permiso temporal para desarrollar la actividad de comercio sobre ruedas, dicho Departamento emitirá la licencia comercial temporal especial para desarrollar la actividad de comercio sobre ruedas en un plazo perentorio de 15 días hábiles.

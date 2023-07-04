@@ -1,0 +1,1 @@
+Artículo 17.-Sanciones relativas al uso de la licencia. Será sancionado con una multa de cinco salarios base quien realice un uso no permitido de la Licencia otorgada o que opere sin las respectivas autorizaciones.

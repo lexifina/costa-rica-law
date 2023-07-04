@@ -1,0 +1,4 @@
+TRANSITORIO:
+Transitorio I: Mientras entra en vigencia dicho Reglamento, la Municipalidad de Turrialba, a través del Concejo Municipal con Asesoría del Departamento de Patentes, posee la discrecionalidad para otorgar el permiso temporal de uso del espacio físico habilitado para desarrollar la actividad de comercio sobre ruedas, conforme a lo dispuesto en el artículo 218 bis de la Ley General de Salud, Ley Nº 5395, de 30 de octubre de 1973. Así mismo, para otorgar la licencia comercial temporal especial para el comercio sobre rueda al amparo de la Ley N° 10254. Dichos permisos se otorgarán por un plazo de seis meses prorrogable hasta la publicación de dicho Reglamento.
+Aprobado en la Sesión Ordinaria Nº 157-2023, celebrada por el Concejo Municipal de Turrialba, el día viernes 05 de mayo del 2023, Artículo Tercero, Inciso a, punto 9. 2 Vez.
+Turrialba 23 de mayo del 2023.
