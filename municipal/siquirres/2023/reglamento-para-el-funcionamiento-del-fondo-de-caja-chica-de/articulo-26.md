@@ -1,0 +1,1 @@
+Artículo 26.-Sobre los faltantes de dinero. Si realizado el arqueo, se determinara un faltante de dinero, éste deberá reponerse de inmediato al fondo fijo y si fuera un sobrante de dinero deberá depositarse a la cuenta general del Comité, una vez concluido el arqueo.

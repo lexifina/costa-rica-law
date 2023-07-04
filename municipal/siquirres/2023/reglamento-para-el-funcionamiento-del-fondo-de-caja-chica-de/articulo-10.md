@@ -1,0 +1,1 @@
+Artículo 10.-Variación del monto establecido al fondo de caja chica. El monto a que asciende el fondo de caja chica, podrá ser revisado una vez al año por la Junta Directiva del CCDRS, a efecto de determinar la procedencia del ajuste.

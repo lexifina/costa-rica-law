@@ -1,0 +1,2 @@
+Artículo 12.-De la retención del impuesto sobre la renta. En aquellos casos donde aplique la retención del impuesto sobre la renta, será necesario elaborar una Orden de Compra con el objetivo de retener las sumas correspondientes y deberá quedar debidamente registrada en la liquidación que respalda la liquidación del fondo.
+El administrador de CCDRS o a la persona funcionaria será responsable de verificar la correcta aplicación del inciso anterior y realizar los reportes correspondientes cada mes ante el Ministerio de Hacienda.
