@@ -1,0 +1,1 @@
+Artículo 2º-Ámbito de aplicación del Reglamento. Las disposiciones contenidas en el presente Reglamento son aplicables a todos aquellos funcionarios del Comité Cantonal de Deportes y Recreación de Corredores (en adelante CCDRC) que administren, recauden y custodien fondos o valores públicos o que por la naturaleza de sus funciones y responsabilidades deban caucionar.

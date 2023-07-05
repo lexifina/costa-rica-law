@@ -1,0 +1,1 @@
+Artículo 9º-Caucionantes del nivel A. En este nivel deben rendir caución para el ejercicio de sus cargos el presidente, vicepresidente y tesorero de la Junta Directiva del Comité Cantonal de Deportes y Recreación de Corredores.

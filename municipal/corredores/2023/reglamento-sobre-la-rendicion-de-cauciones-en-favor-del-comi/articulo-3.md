@@ -1,0 +1,1 @@
+Artículo 3º-Finalidad de la caución. La caución tiene como finalidad garantizar el resarcimiento de eventuales daños y perjuicios que el caucionante responsable pueda producir al patrimonio del Comité Cantonal de Deportes y Recreación de Corredores, sin que ello limite la eventual responsabilidad civil y administrativa que se derive de su actuar.
