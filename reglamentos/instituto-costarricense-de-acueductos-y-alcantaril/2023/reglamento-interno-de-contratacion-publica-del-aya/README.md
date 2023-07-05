@@ -14,3 +14,4 @@ Reglamento interno de contratación pública del AyA
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-07-05 | la propia norma |
+| 2 | 2023-07-05 | Reglamento 22 (2023-05-30) |

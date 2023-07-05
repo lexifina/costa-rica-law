@@ -1,0 +1,2 @@
+Transitorio II: La Gerencia General a través de la Dirección de Capital Humano adoptará las medidas administrativas necesarias para que el personal que a la fecha de aprobación de este Reglamento conforma las Unidades de Compra Desconcentradas (UCD) pase a depender de la Dirección de Proveeduría bajo un programa planificado de concentración de las compras públicas institucionales.
+(Así reformado mediante sesión ordinaria N° 022-2023 30 de mayo del 2023. Anteriormente este artículo era el numeral artículo 90. No obstante; el ente emisor lo sustituye por el transitorio II)
