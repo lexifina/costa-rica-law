@@ -1,0 +1,1 @@
+Artículo 15.-Prohibición de utilizar el fondo para otros fines. Se prohíbe al funcionario responsable de la custodia y administración del fondo de la Caja Chica el cambio de cheques y de toda clase de tipos valores, a empleados o particulares.

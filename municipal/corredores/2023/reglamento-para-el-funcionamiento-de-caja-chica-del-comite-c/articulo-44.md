@@ -1,0 +1,1 @@
+Artículo 44.-Debido Proceso. Las sanciones correspondientes serán aplicadas respetando el Debido Proceso, y se accionarán por el órgano o funcionario que tenga la respectiva competencia de superior jerárquico.

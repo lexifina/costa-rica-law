@@ -1,0 +1,1 @@
+Artículo 35.-Faltantes de dinero. El faltante de dinero encontrado en un arqueo, será cubierto de inmediato por el Encargado de custodiar y administrar el fondo de Caja Chica, dejando constancia de ello en la hoja del arqueo.

@@ -1,0 +1,1 @@
+Artículo 32.-Arqueo extraordinario. Ante sustituciones del Tesorero del CCDRC, el Presidente de la Junta Directiva realizará un arqueo antes de entregar el manejo del fondo a la persona que lo sustituirá. Igual procedimiento se realizará cuando el Encargado de custodiar y administrar el fondo de Caja Chica ingrese a laborar.

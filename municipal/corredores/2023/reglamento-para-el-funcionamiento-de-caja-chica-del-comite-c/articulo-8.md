@@ -1,0 +1,1 @@
+Artículo 8º-Actualización de los viáticos. El monto de los viáticos se actualizará por parte de la del CCDRC, de conformidad con los valores establecidos por la Contraloría General de la República para este rubro.

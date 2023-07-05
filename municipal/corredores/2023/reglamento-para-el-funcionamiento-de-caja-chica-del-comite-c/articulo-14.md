@@ -1,0 +1,1 @@
+Artículo 14.-Prohibición de mezclar el fondo. La persona designada para custodiar y administrar los fondos de Caja Chica no podrá guardar documentos, efectivo o cheques que sean de propiedad particular o de otra persona en los lugares destinados para guardar ese fondo.

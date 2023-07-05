@@ -1,0 +1,2 @@
+Artículo 33.-Hoja de arqueo. Para la elaboración del arqueo se deberá utilizar el formulario respectivo el cual contendrá la firma del Encargado de custodiar y administrar el fondo de Caja Chica y del Presidente de la Junta del CCDRC.
+Este arqueo deberá entregarse en original a la Junta Directiva en la sesión ordinaria siguiente de realizado, para que se constituya un expediente con las hojas de todos los arqueos realizados en el año.

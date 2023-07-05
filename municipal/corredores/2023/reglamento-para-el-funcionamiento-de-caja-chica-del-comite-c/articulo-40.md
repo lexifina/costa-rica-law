@@ -1,0 +1,1 @@
+Artículo 40.-Medio para trámite del reintegro. Todo reintegro al fondo de Caja Chica a solicitud del Encargado de custodiar y administrar el fondo de Caja Chica, deberá tramitarse mediante el documento denominado "Reintegro", con el detalle de las subpartidas presupuestarias y los respectivos montos, a la cual se deberá adjuntar los justificantes de los gastos.

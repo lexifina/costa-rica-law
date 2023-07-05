@@ -1,0 +1,1 @@
+Artículo 38.-Control de Auditoría. La Auditoría Interna de la Municipalidad de Corredores está facultada para efectuar las verificaciones o arqueos sorpresivos totales en cualquiera de los fondos vigentes.

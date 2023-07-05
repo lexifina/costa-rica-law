@@ -1,0 +1,1 @@
+Artículo 7º-Actualización de los montos. El monto del fondo fijo y el monto del vale podrán ser modificados en relación con el índice de precios al consumidor vigente para diciembre del año anterior. Para tal efecto, la Junta Directiva del CCDRC deberá presentar la propuesta al Concejo Municipal de Corredores, quien resolverá, en definitiva.

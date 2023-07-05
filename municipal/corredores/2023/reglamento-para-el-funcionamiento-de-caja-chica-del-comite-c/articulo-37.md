@@ -1,0 +1,1 @@
+Artículo 37.-Registro contable. Es responsabilidad del encargado de la Caja Chica coordinar con el contador respectivo, para mantener actualizados los registros contables de la operación de los fondos.
