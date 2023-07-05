@@ -1,0 +1,1 @@
+Artículo 7°-Presupuesto. Cada año, en el proceso de formulación presupuestaria, la Secretaria del Concejo Municipal, requerirá en tiempo y forma ante la Dirección Financiera una previsión presupuestaria razonable para el cumplimiento de este reglamento.

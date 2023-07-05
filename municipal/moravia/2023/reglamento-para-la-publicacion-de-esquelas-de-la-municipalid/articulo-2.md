@@ -1,0 +1,2 @@
+Artículo 2°-De la forma de comunicación o publicación. La publicación de esquelas se realizará en las redes sociales de la Municipalidad, salvo en el caso de los funcionarios municipales de elección popular, con respecto a los cuales se realizará una publicación en un medio de prensa escrito de circulación nacional o regional, con recuadro de luto.
+El Departamento de Comunicación Institucional se encargará de circular la esquela en el correo electrónico institucional de las personas funcionarias de la Municipalidad de Moravia.

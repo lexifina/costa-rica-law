@@ -1,0 +1,5 @@
+MUNICIPALIDAD DE MORAVIA
+El Concejo de la Municipalidad de Moravia conforme acuerdo 2087-2023, tomado en sesión ordinaria 164 de fecha diecinueve de junio del 2023, dispuso aprobar el siguiente reglamento:
+REGLAMENTO PARA LA PUBLICACIÓN DE ESQUELAS
+DE LA MUNICIPALIDAD DE MORAVIA
+Artículo 1°-Ámbito de Aplicación. El presente reglamento tiene por objeto regular los comunicados y publicaciones que realiza la Municipalidad de Moravia para informar de la muerte de personas vinculadas con el Gobierno Local, sea por una relación estatutaria de empleo público, por elección popular, por elección en las juntas directivas del Comité Cantonal de Deportes y Recreación, del Comité Cantonal de la Persona Joven y de los Concejos de Distrito. Asimismo, quedan incluidos dentro del ámbito de aplicación de este reglamento los familiares por consanguinidad o afinidad de primer grado, de los funcionarios, elegidos por votación popular o vinculados por relación estatutaria. Para efecto de este artículo, debe comprenderse que el vínculo prestacional, de las personas incluidas en el ámbito de aplicación del mismo, deberá estar vigente al momento del fallecimiento.
