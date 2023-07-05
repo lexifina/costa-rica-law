@@ -1,0 +1,1 @@
+Artículo 2º-Ámbito de aplicación. La presente resolución será de cumplimiento obligatorio para toda persona física o jurídica que presente solicitud de prescripción ante el Departamento de Cobro Judicial de la División de Adeudos Estatales de la Dirección General de Hacienda.

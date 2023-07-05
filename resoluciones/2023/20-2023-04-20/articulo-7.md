@@ -1,0 +1,4 @@
+Artículo 7º-Plazo y trámite para resolver. Por tratarse de una petición, el Departamento de Cobro Judicial de la Dirección General de Hacienda debe resolver expresamente la solicitud, mediante resolución razonada dentro del plazo de dos meses, conforme con lo establecido en el artículo 102 del Código de Normas y Procedimientos Tributarios en concordancia con el artículo 261, inciso 1) de la Ley General de la Administración Pública.
+Cuando se requiera completar la información aportada, el plazo de los dos meses será suspendido por el tiempo otorgado en la prevención, a fin de que se cumpla con lo requerido.
+Si el deudor no cumple lo requerido dentro del plazo otorgado de diez días hábiles se procederá al archivo del expediente, debiendo en este caso el interesado presentar una nueva solicitud.
+Si la solicitud cumple con todos los requisitos aquí establecidos, la misma se resolverá y notificará al correo electrónico señalado para notificaciones.

@@ -1,0 +1,16 @@
+DIRECCIÓN GENERAL DE HACIENDA
+MH-DGH-RES-0020-2023.-Dirección General de Hacienda.-Ministerio de Hacienda.-San José, a las diez horas con cincuenta y nueve minutos del veinte de abril de dos mil veintitrés.
+Considerando:
+I.-Que el artículo 99 de la Ley N° 4755 de fecha 29 de abril de 1971 y sus reformas, denominada "Código de Normas y Procedimientos Tributarios", establece que la Administración Tributaria, puede dictar normas generales para los efectos de la aplicación correcta de las leyes tributarias, dentro de los límites fijados por las disposiciones legales y reglamentarias pertinentes.
+II.-Que el artículo 6 del Decreto Ejecutivo N° 35366-H del 15 de julio del 2009, denominado "Reglamento de Organización y Funciones de la Dirección General de Hacienda", el Director General de Hacienda, puede emitir las resoluciones, instrucciones o directrices para el logro de los objetivos de la Dirección.
+III.-Que el artículo 22 del Decreto Ejecutivo N° 35366-H de fecha 15 de julio del 2009 y sus reformas, denominado "Reglamento de Organización y Funciones de la Dirección General de Hacienda", faculta a la División de Adeudos Estatales para que establezca el marco legal y los procedimientos que regulen las actuaciones de la División y del Departamento de Cobro Judicial.
+IV.-Que mediante Ley N° 2393 de fecha 11 de julio de 1959, denominada "Crea Oficina de Cobros de la Dirección General de Hacienda", reformada por Ley N° 3493 de fecha 29 de enero de 1965, se crea la Oficina de Cobro Judicial como una dependencia de la Dirección General de Hacienda, lo cual se ratifica mediante Decreto Ejecutivo N° 33384-H, publicado en La Gaceta N° 204 del 25 de octubre del 2006, en el cual se traslada la misma a la Dirección General de Hacienda.
+V.-Que el artículo 191 de la Ley N° 4755 de fecha 29 de abril de 1971 y sus reformas, denominada "Código de Normas y Procedimientos Tributarios" establece que la Oficina de Cobro puede disponer a petición de parte la cancelación de los créditos cuando los términos de prescripción correspondientes estén vencidos.
+VI.-Que el artículo 4° de la Ley de Protección al Ciudadano del Exceso de Requisitos y Trámites Administrativos, N° 8220 de 4 de marzo de 2002, publicada en el Alcance N° 22 a La Gaceta N° 49 del 11 de marzo del 2002, establece que todo trámite o requisito con independencia de su fuente normativa, deberá publicarse en el Diario Oficial La Gaceta.
+VII.-Que de conformidad con lo que se establece en el artículo 12 bis del Decreto ejecutivo N° 374045-MP-MEIC de fecha 22 de febrero de 2012, denominado "Reglamento a la Ley de Protección al Ciudadano del exceso de Requisitos y Trámites Administrativos", la presente resolución no contiene trámites, requisitos ni procedimientos nuevos para los administrados; por ende, se puede prescindir de la consulta pública. Por tanto,
+LA DIRECCIÓN GENERAL DE HACIENDA,
+RESUELVE:
+REQUISITOS PARA EL TRÁMITE DE LAS SOLICITUDES
+DE PRESCRIPCIÓN ANTE EL DEPARTAMENTO
+DE COBRO JUDICIAL
+Artículo 1º-Objeto. Establecer de forma clara y precisa los requisitos que deben cumplir los deudores para el trámite de las solicitudes de prescripción que se presenten ante el Departamento de Cobro Judicial de la Dirección General de Hacienda.
