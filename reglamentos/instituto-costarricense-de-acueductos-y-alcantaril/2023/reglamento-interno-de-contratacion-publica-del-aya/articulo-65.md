@@ -1,0 +1,3 @@
+Título VIII: Contratos
+Artículo 65: Los contratos elaborados en SICOP sin firma del contratista, las ordenes de pedido o pedidos, según corresponda, que resulten de cualquier procedimiento de contratación cuyo monto adjudicado o el presupuesto estimado en caso de las según demanda no supere el umbral mayor de la licitación menor deberán ser elaborados por el analista de contratación que tiene a cargo el trámite de la misma.
+Deberá ser revisado y aprobado por un funcionario distinto al que lo elaboró, lo revisará el funcionario designado para esta tarea y lo aprobará la jefatura de la Dirección de Adquisiciones de la Proveeduría. En caso de ausencia prolongada estas responsabilidades recaen en los funcionarios que formalmente hayan sido designado.

@@ -1,0 +1,2 @@
+Capítulo III: Prórrogas al plazo para acto final y correcciones de errores materiales.
+Artículo 63: De conformidad con el artículo 157 de la Ley General de la Administración Pública, le corresponderá a quien adjudicó la corrección de los errores materiales o de hecho y aritméticos del acto de adjudicación la cual deberá realizarse mediante resolución debidamente motivada. Esta facultad solamente se refiere a la corrección de aspectos de orden menor y que no varíen en lo sustancial el acto administrativo tomado.

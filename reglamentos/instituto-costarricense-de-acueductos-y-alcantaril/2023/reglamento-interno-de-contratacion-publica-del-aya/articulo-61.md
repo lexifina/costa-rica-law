@@ -1,0 +1,2 @@
+Sección III: Recomendaciones para dictar el acto final
+Artículo 61: Las recomendaciones para dictar el acto final de las licitaciones menores y mayores, así como cualquier otro procedimiento que haya sido conocido en la Comisión Asesora para la Contratación Pública del AyA, presidida por la Proveeduría, serán aprobadas por la jefatura de la Dirección de la Proveeduría, tomando como base el respectivo acuerdo de la Comisión.

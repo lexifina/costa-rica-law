@@ -1,0 +1,3 @@
+Título VI: Comisión asesora para la Contratación Pública
+Capítulo I: De la Comisión Asesora para la Contratación Pública
+Artículo 44: La Comisión Asesora para la Contratación Pública tiene competencia para, de forma colegiada y bajo la responsabilidad de cada una de las áreas especializadas que participan en las sesiones de la Comisión, conocer y aprobar los pliegos de condiciones y las recomendaciones para la adopción de los actos finales y nuevas adjudicaciones de todas aquellas contrataciones públicas que deben ser adjudicadas por la Gerencia General o la Junta Directiva, así como cualquier otra a criterio de la Dirección de la Proveeduría por su importancia estratégica para la Institución.

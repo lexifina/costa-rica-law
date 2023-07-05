@@ -1,0 +1,1 @@
+Artículo 3: Durante todo el proceso de las contrataciones públicas los funcionarios responsables de cada una de las fases deben actuar en apego al Deber de Probidad, cumpliendo con los plazos establecidos en la legislación y en el cronograma de la contratación.

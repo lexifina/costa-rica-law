@@ -1,0 +1,1 @@
+Artículo 4: Los procedimientos de Contratación Pública ordinarios, extraordinarios y especiales, así como las excepciones que se requieran tramitar en el AyA, serán gestionados por la Dirección de Proveeduría y a través de caja chica por el funcionario competente según se regulará más adelante.

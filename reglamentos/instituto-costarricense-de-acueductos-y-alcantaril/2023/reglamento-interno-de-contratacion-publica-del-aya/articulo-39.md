@@ -1,0 +1,1 @@
+Artículo 39: Para la selección del proveedor se deberá, utilizar los proveedores precalificados institucionalmente y aplicar la respectiva rotación de estos, en caso de que ello no sea posible se deberá justificar debidamente.

@@ -1,0 +1,1 @@
+Artículo 81: La Dirección de Proveeduría es la única con competencia para emitir procedimientos, directrices, circulares e instrucciones de trabajo y la Dirección Jurídica es la única con competencia para emitir circulares e instrucciones de asuntos jurídicos, en materia de Contratación Pública.

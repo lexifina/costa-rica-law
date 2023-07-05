@@ -1,0 +1,2 @@
+Capítulo V: El Comité de Compras Institucionales:
+Artículo 17: Estará integrado por el Gerente o Subgerente General, quién lo presidirá, por los Subgerentes de Área, el Director Jurídico, el Director de la Proveeduría y el Director de Planificación, o quien los sustituya formalmente en caso de ausencias prolongadas. Deberán reunirse ordinariamente al menos una vez cada tres meses y extraordinariamente cuando así se requiera. La convocatoria será mediante comunicación formal con tres días de anticipación, salvo situaciones de urgencia.

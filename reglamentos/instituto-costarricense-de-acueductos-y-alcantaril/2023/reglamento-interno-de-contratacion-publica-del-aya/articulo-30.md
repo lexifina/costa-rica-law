@@ -1,0 +1,1 @@
+Artículo 30: Si el trámite de la contratación debe realizarse fuera de la plataforma SICOP, en el caso de financiamiento externo que así lo disponga, la solicitud de la misma debe ser aprobada por el superior jerárquico de la Unidad Solicitante o en caso de ausencia su superior. Quien apruebe será el único responsable del contenido u omisiones de esta.

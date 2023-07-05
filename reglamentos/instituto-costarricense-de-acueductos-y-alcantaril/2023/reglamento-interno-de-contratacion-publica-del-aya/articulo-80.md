@@ -1,0 +1,1 @@
+Artículo 80: La Dirección de Proveeduría tendrá la responsabilidad de ajustar los Procedimientos del proceso de Contratación Pública, que definirán los mecanismos de aplicación de lo dispuesto en este Reglamento y otra normativa relativa a la Contratación Pública mismos que deben ser aprobados por la Gerencia General, .

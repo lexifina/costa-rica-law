@@ -1,0 +1,2 @@
+Título III: De la Unidad solicitante
+Artículo 19: La Unidad Solicitante es la dependencia responsable de satisfacer la necesidad pública a través de la adquisición del bien, servicio u obra mediante los procedimientos establecidos en materia de Contratación Pública, por lo que debe de justificar, fundamentar y cumplir con los requerimientos técnicos, legales e institucionales para solicitar el inicio de una Contratación Pública.

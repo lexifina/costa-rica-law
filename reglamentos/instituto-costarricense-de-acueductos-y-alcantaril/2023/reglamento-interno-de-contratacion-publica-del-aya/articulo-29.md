@@ -1,0 +1,1 @@
+Artículo 29: El superior jerárquico de la Unidad Solicitante o en caso de ausencia su superior, será el aprobador de la Solicitud de Contratación en la plataforma SICOP por lo que será el responsable del contenido u omisiones de esta.

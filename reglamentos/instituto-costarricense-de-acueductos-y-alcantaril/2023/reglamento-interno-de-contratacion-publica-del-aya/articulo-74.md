@@ -1,0 +1,1 @@
+Artículo 74: El Administrador del Contrato y el Fiscalizador, según corresponda, serán los representantes directos institucionales ante el contratista y les corresponderá la supervisión de la ejecución contractual.

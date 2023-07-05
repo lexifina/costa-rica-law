@@ -1,0 +1,3 @@
+Título IX: Ejecución contractual
+Artículo 70: El Director de la Unidad Solicitante debe nombrar en todos los casos a un Administrador de Contrato, el cual deberá ser un funcionario público, que fungirá como tal desde la decisión inicial hasta el finiquito del contrato. Además, en el caso de obra pública deberá nombrar un Fiscalizador, ambos con las responsabilidades y funciones establecidas en la normativa vigente en la materia.
+El Director de la Unidad Solicitante será responsable de la idoneidad con respecto al objeto contractual de los funcionarios designados, así como del correcto desempeño del mismo en el ejercicio de esta función.

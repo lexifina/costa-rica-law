@@ -1,0 +1,1 @@
+Artículo 43: Es responsabilidad de cada funcionario participante en la Contratación Pública, remitir al analista de la misma dentro del plazo establecido en la normativa, toda la documentación que deba integrarse al expediente.

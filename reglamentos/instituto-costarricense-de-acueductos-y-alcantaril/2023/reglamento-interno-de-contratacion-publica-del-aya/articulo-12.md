@@ -1,0 +1,1 @@
+Artículo 12: En caso de ausencia de la jefatura de la Dirección de Adquisiciones, le corresponderá a la jefatura de la Dirección de Proveeduría o quien esta delegue asumir las responsabilidades asignadas a la primera.

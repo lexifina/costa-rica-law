@@ -1,0 +1,1 @@
+Artículo 8: A la Dirección de Proveeduría le corresponderá por medio de la Dirección de Control de Gestión evaluar la tramitación de las contrataciones públicas realizadas, con el objetivo de verificar que, durante la tramitación, se cumpla con lo dispuesto en la legislación vigente para la adquisición de bienes, servicios y obras y comunicar a la Gerencia General los hallazgos.

@@ -1,0 +1,1 @@
+Artículo 84: La Dirección de Proveeduría tendrá un plazo de seis meses contados a partir de la aprobación de la entrada en vigencia de este Reglamento para elaborar y actualizar los respectivos procedimientos e instructivos de trabajo, que definirán el mecanismo de aplicación de lo dispuesto en este Reglamento y toda la normativa vigente en la materia.

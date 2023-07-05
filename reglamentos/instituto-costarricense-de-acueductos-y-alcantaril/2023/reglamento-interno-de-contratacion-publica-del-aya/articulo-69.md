@@ -1,0 +1,2 @@
+Sección II: Refrendo Interno
+Artículo 69: Los contratos a los cuales corresponda refrendo interno de conformidad con el Reglamento sobre el Refrendo de las Contrataciones de la Administración Pública vigente, serán aprobados por el Director de la Dirección Jurídica y el Jefe de la Asesoría Legal de Contratación Administrativa de la Dirección Jurídica o quienes estos designen formalmente en caso de ausencia.

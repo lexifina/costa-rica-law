@@ -1,0 +1,1 @@
+Artículo 87: Los respectivos procedimientos e instructivos de trabajo solamente se publicarán en los medios electrónicos disponibles por el Instituto para hacerlo de conocimiento de todos sus funcionarios. La divulgación de este Reglamento, los procedimientos y los instructivos de trabajo será responsabilidad de la Dirección de Proveeduría.

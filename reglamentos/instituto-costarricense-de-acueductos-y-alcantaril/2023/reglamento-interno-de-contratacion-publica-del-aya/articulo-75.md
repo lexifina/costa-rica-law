@@ -1,0 +1,1 @@
+Artículo 75: Por ningún motivo al Administrador de Contrato o al Fiscalizador, según corresponda, les está permitido dispensar, por su propia cuenta, al contratista del cumplimiento de alguno de los requisitos u obligaciones contractuales.

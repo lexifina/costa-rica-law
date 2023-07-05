@@ -1,0 +1,1 @@
+Artículo 52: Una vez analizados todos los estudios de las ofertas de cada Contratación Pública, la jefatura de la Dirección de Proveeduría o de la Dirección de Adquisiciones de Proveeduría a nombre de la Comisión suscribirá una recomendación a la Administración Superior para que tome la decisión que corresponda.

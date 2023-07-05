@@ -1,0 +1,1 @@
+Artículo 67: Cuando se requiera elaborar el contrato fuera de SICOP, será elaborado por el Asesor Legal designado, firmado por el contratista y por la Gerencia General, Sub Gerencia General o Presidencia Ejecutiva.

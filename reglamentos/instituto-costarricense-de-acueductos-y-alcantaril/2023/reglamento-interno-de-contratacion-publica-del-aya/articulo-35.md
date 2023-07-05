@@ -1,0 +1,2 @@
+Título IV: De las compras por caja chica
+Artículo 35: Las adquisiciones que se realicen por medio de la excepción al procedimiento ordinario de Contratación Pública a través del fondo de caja chica procederán hasta por el 10% del monto fijado para la licitación reducida correspondiente al régimen ordinario, para la adquisición de bienes y servicios, dispuesto por la Contraloría General de la República, en los ajustes de cada año.

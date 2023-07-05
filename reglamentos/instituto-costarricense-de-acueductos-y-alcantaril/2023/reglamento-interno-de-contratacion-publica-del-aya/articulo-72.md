@@ -1,0 +1,1 @@
+Artículo 72: Salvo el caso de las consultorías expresamente dispuestas para ello por la Gerencia o que así lo dispongan los contratos de préstamo, no puede fungir como fiscalizador o supervisor de un contrato quien no sea funcionario del AyA.

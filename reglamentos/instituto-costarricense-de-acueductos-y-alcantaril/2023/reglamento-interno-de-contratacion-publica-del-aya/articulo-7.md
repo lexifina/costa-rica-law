@@ -1,0 +1,1 @@
+Artículo 7: A la Dirección de Proveeduría le corresponderá por medio del área encargada de administración SICOP la distribución de las contrataciones públicas a los analistas de contratación, previa revisión de requisitos formales establecidos según la normativa.

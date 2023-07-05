@@ -1,0 +1,2 @@
+Artículo 28: Le corresponderá al funcionario designado como Elaborador en el formulario Solicitud de Contratación de la plataforma SICOP, quien debe estar autorizado formalmente por el superior jerárquico de la Unidad Solicitante, en el Sistema de trámites de la Proveeduría, la elaboración de la Solicitud de Contratación en SICOP.
+El Elaborador es responsable de incorporar en la Solicitud de Contratación todo lo indicado por el Solicitante.

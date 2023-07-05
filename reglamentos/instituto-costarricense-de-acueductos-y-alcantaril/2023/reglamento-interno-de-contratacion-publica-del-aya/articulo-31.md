@@ -1,0 +1,1 @@
+Artículo 31: En el caso de que una Contratación Pública de urgencia se realice fuera de la plataforma SICOP, deberá darse una autorización, con la respectiva justificación, suscrita conjuntamente por el Superior Jerárquico de la unidad solicitante y la Sub Gerencia de área.

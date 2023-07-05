@@ -1,0 +1,1 @@
+Artículo 34: El Solicitante y los elaboradores de los distintos estudios deberán brindar la información necesaria, según los plazos definidos en los cronogramas publicados por la Dirección de Proveeduría en Intranet, con el objeto de responder en tiempo y forma los recursos de objeción, revocatoria y apelación en contra el acto de adjudicación.

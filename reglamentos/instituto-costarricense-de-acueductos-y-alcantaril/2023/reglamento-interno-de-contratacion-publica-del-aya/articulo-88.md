@@ -1,0 +1,1 @@
+Artículo 88La Gerencia General a través de la Dirección de Capital Humano adoptará las medidas administrativas necesarias para que el personal que a la fecha de aprobación de este Reglamento conforma las Unidades de Compra Desconcentradas (UCD) pase a depender de la Dirección de Proveeduría

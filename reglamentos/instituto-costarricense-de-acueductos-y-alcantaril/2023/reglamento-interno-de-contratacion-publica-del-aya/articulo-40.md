@@ -1,0 +1,1 @@
+Artículo 40: Será responsabilidad de quien tramite la liquidación por gastos de caja chica verificar el cumplimiento de los requisitos establecidos en este Reglamento y la legislación vigente en la materia de Contratación Pública.

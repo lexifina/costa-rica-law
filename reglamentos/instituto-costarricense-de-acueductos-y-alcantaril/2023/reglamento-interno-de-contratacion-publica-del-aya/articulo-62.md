@@ -1,0 +1,1 @@
+Artículo 62: Las recomendaciones para dictar el acto final de las licitaciones reducidas, así como cualquier otro procedimiento que haya sido tramitado en la Dirección de Adquisiciones de la Proveeduría y que no supere el umbral de la licitación reducida, deberán ser aprobadas por el funcionario formalmente designado para tal efecto.

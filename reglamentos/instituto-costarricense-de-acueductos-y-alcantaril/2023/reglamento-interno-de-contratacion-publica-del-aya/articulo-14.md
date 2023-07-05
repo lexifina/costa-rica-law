@@ -1,0 +1,1 @@
+Artículo 14: A la jefatura de la Dirección Jurídica, o quien le sustituya formalmente en caso de ausencia, le corresponde, como mínimo en materia de Contratación Pública, lo siguiente: la coordinación, planificación, supervisión y evaluación de las actividades legales referidas a los procesos de Contratación Administrativa, junto con el Director del área legal correspondiente.
