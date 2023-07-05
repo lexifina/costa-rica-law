@@ -1,0 +1,1 @@
+Artículo 4°-Función del Departamento de Servicios Sociales. Se designa al Programa Juventud del Departamento de Servicios Sociales del municipio, para dar acompañamiento y asesoría al CCPJSJO, el cual será asimismo la instancia municipal encargada de velar por la correcta aplicación de este reglamento.

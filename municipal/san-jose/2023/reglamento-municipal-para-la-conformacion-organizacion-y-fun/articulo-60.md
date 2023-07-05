@@ -1,0 +1,1 @@
+Artículo 60.-Rendición de cuentas ante el CPJ. El CCPJSJO será el responsable de presentar un informe de rendición de cuentas de las acciones, actividades o subproyectos ejecutados, ante las instancias designadas por el Consejo de la Persona Joven. Este debe elaborarse en el mes de noviembre de cada año.

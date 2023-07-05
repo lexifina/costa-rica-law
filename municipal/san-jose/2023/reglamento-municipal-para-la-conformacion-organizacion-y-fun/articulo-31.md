@@ -1,0 +1,1 @@
+Artículo 31.-Asistencia de los miembros. El acta debe incorporar a los miembros que han concurrido con su voto en la toma de la decisión de que se trate y señalar expresamente quienes hayan votado en contrario y expuesto los motivos de su oposición.

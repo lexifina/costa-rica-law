@@ -1,0 +1,1 @@
+Artículo 15.-De las organizaciones juveniles cantonales. La oficina del Programa Juventud, convocará por los medios disponibles a la elección de los representantes del sector de organizaciones juveniles del cantón. La organización deberá tener al menos seis meses de constituida al momento de la inscripción, lo cual deberá ser verificado con documento idóneo.

@@ -1,0 +1,1 @@
+Artículo 3°-Criterios de participación. El presente Reglamento establecerá criterios y formas de participación de las personas jóvenes ante la Municipalidad de San José, así como de las organizaciones juveniles creadas para el desarrollo humano sustentable y el progreso general de las personas jóvenes del cantón.

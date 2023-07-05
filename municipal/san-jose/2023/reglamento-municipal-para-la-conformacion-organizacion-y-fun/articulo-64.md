@@ -1,0 +1,1 @@
+Artículo 64.-Comunicación de los Cambios. En los casos referidos por el artículo anterior, se deberá comunicar para los efectos de sustitución de sus miembros: al CPJ, al Concejo Municipal y a la Comisión Institucional.

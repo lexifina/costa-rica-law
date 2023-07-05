@@ -1,0 +1,1 @@
+Artículo 17.-De las organizaciones deportivas. La oficina del Programa Juventud, convocará por los medios disponibles, a la elección con base al padrón facilitado por el Comité Cantonal de Deportes y Recreación de San José. Lo anterior según lo expuesto en el artículo 12 de este reglamento.

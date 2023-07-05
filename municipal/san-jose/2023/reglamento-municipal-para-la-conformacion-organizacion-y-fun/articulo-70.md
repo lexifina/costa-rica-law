@@ -1,0 +1,1 @@
+Artículo 70.-Normativa Supletoria. Para lo no estipulado en este reglamento se tomará supletoriamente lo que establezca el Reglamento de Debates del Concejo Municipal de San José, el Código Municipal, la Ley General de la Persona Joven y demás normativa que por aplicación analógica de la norma corresponda.

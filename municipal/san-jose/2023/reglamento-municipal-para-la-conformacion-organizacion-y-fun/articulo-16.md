@@ -1,0 +1,1 @@
+Artículo 16.-De las organizaciones juveniles religiosas. La oficina del Programa Juventud, convocará por los medios disponibles, a la elección del representante de los sectores religiosos del cantón, según lo establecido en el artículo 12 de este reglamento.

@@ -1,0 +1,1 @@
+Artículo 69.-Archivo de documentación. El CCPJSJO deberá acogerse al proceso municipal de archivo y resguardo de documentos. Según el Manual de Instrucciones de Gestión de Documentación de la Sección de Gestión de Información y Documentación.

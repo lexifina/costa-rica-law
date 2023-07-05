@@ -1,0 +1,1 @@
+Artículo 13.-Del representante municipal. El Concejo Municipal elegirá a su representante ante el Comité Cantonal de la Persona Joven de San José, quien deberá tener su domicilio electoral en el Cantón de San José. Su designación será democrática, considerando los principios y derechos establecidos en la legislación vigente.

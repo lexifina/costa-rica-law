@@ -1,0 +1,4 @@
+CAPÍTULO XI
+De los Activos
+Artículo 62.-De los activos del CCPJSJO. Todo activo que se adquiera con recursos transferidos a la MSJ para el CCPJSJO de conformidad al artículo 26 de la Ley 8261 Ley de la Persona Joven, deberá ser registrado por el Programa de Juventud de la Municipalidad mediante un auxiliar de los bienes adquiridos y que sean trasladados al CCPJSJO.
+Dicho traslado se hará formalmente en un documento que establezca las responsabilidades de dichos miembros ante estos bienes adquiridos con fondos públicos y a su vez se informará al CNPJ que los mismos fueron entregados, aportando la evidencia de tal acto. Dichos activos deberán tener un plaqueado especial, coordinado por el Programa de Juventud. Cada inicio de periodo de las autoridades del CCPJSJO se debe hacer entrega oficial de los activos y de la misma forma al finalizar su periodo legal se debe entregar los mismos al Programa de Juventud del municipio.

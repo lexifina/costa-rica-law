@@ -1,0 +1,1 @@
+Artículo 7°-De la Integración. El Comité Cantonal lo integran siete miembros con edades comprendidas entre los 12 y 35 años, en representación de los distintos sectores de juventud del cantón de conformidad con lo estipulado en el artículo 24 de la Ley General de la Persona Joven N° 8261, que residan en el cantón de San José.

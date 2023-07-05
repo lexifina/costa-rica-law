@@ -1,0 +1,1 @@
+Artículo 49.-Del oficio del ente contralor. El Consejo de la Persona Joven requerirá para hacer efectiva la transferencia a la municipalidad copia del oficio de la Contraloría donde se aprueban los presupuestos del gobierno local con la transferencia del Consejo de la Persona Joven incluida.

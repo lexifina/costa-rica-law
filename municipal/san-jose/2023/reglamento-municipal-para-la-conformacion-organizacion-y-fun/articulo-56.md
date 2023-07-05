@@ -1,0 +1,1 @@
+Artículo 56.-Informe final de ejecución. El Comité Cantonal de la Persona Joven deberá presentar un informe de ejecución del proyecto financiados por el Consejo de la Persona Joven, en el mes de febrero del año siguiente.

@@ -1,0 +1,1 @@
+Artículo 67.-Apoyo para la ejecución de proyectos . La municipalidad dará apoyo técnico-operativo al CCPJSJO, para la ejecución de los proyectos que se ejecuten con las transferencias, como insumo para el informe correspondiente al CPJ sobre el gasto presupuestario realizado.

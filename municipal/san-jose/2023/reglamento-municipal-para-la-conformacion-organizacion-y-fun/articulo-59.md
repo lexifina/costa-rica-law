@@ -1,0 +1,1 @@
+Artículo 59.-Adecuada gestión de los recursos. Es responsabilidad del CCPJSJO y de la Comisión Institucional que les apoyen en la gestión de su proyecto, particularmente con la erogación de los recursos asignados, velar por una adecuada gestión de los fondos públicos transferidos al CCPJSJO.
