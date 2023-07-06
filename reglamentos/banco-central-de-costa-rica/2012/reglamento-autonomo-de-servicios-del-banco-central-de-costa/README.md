@@ -22,3 +22,4 @@ Reglamento Autónomo de Servicios del Banco Central de Costa Rica y sus Órganos
 | 7 | 2021-12-22 | Reglamento 6040 (2021-12-22) |
 | 8 | 2022-01-12 | Reglamento 6043 (2022-01-12) |
 | 9 | 2022-10-27 | Reglamento 6089 (2022-10-27) |
+| 10 | 2023-07-06 | Reglamento 6128 (2023-07-06) |
