@@ -1,26 +1,31 @@
-Artículo 9º—Los nombramientos de los miembros de Junta Directiva los hará la Junta de Protección Social(*), en los primeros ocho días del mes previo a aquél en que venza el plazo respectivo, de la siguiente forma:
-(*)(Así modificada su denominación mediante sesión extraordinaria N° 12-2017 del 20 de julio del 2017. Anteriormente indicaba “Junta de Protección Social de San José”)
-a) Nombramientos de los representantes de la JPS: mediante acuerdo de la Junta Directiva de la JPS.
-(*)b) Nombramiento del representante de las cooperativas de vendedores:
-b.1) El Consejo de Administración de cada cooperativa, mediante el sistema de su escogencia, designará un representante y lo comunicará a la JPS de conformidad con el punto siguiente.
-b.2) El acuerdo del Consejo de Administración en el que conste la escogencia del representante, lo remitirá la cooperativa a la JPS, protocolizado, y acompañado del currículum vitae del candidato.
-b.3) Una vez recibidas las comunicaciones de las cooperativas, la JPS entrevistará a los candidatos y examinará sus currículum vitae, después de lo cual designará al representante del sector cooperativo ante la Junta Directiva de FOMUVEL por el período de ley.
-(*)(Así reformado el inciso b) anterior mediante sesión extraordinaria N° 12-2017 del 20 de julio del 2017)
-(*)c) Nombramiento del representante de las organizaciones sociales de vendedores:
-c.1) La Junta Directiva de cada organización, mediante el sistema de su escogencia, designará un representante y lo comunicará a la JPS de conformidad con el punto siguiente.
-c.2) El acuerdo de la Junta Directiva en el que conste la escogencia del representante, lo remitirá la organización social a la JPS, protocolizado, y acompañado del currículum vitae del candidato.
-c.3) Una vez recibidas las comunicaciones de las organizaciones sociales, la JPS entrevistará a los candidatos y examinará sus currículum vitae, después de lo cual designará al representante de las organizaciones sociales ante la Junta Directiva de FOMUVEL por el período de ley.
-(*)(Así reformado el inciso c) anterior mediante sesión extraordinaria N° 12-2017 del 20 de julio del 2017)
-d) Nombramiento del representante de los vendedores independientes:
-d.1) Cinco meses antes del vencimiento de los nombramientos de los miembros de Junta Directiva de FOMUVEL, la JPS declarará abierto el proceso de elección mediante la publicación de una convocatoria en al menos un diario de circulación nacional.
-d.2) Durante los primeros tres meses de dicha convocatoria, los interesados podrán promocionar la candidatura propia o de un tercero, lo cual formalizarán con un oficio que enviarán a la JPS indicando tal propósito, y que acompañarán del respectivo curriculum vitae. La firma que calce tal documento deberá ser autenticada.
-d.3) De las candidaturas propuestas, la JPS elaborará una lista o papeleta y fijará un día y hora para la elección.
-d.4) La JPS elaborará un padrón de los vendedores independientes, que estará conformado por todos los vendedores que no pertenezcan a una cooperativa ni a una organización social.
-d.5) Para verificar la transparencia del proceso, la JPS nombrará un tribunal electoral, cuyos miembros serán funcionarios de dicha institución.
-d.6) El día fijado, se dispondrán las papeletas en las instalaciones de la JPS, y se recibirán los votos de todos los interesados cuyo nombre conste en el padrón.
-d.7) Los funcionarios designados procederán a la revisión de los votos, cuyo resultado consignarán en un acta. Las tres personas con mayor cantidad de votos integrarán la terna de candidatos.
-d.8) Una vez determinada la terna, la JPS entrevistará a los candidatos y examinará sus currículum vitae, después de lo cual designará al representante de los vendedores independientes ante la Junta Directiva de FOMUVEL por el periodo de ley.
-e) Los vendedores de loterías que se postulen para un puesto en la Junta Directiva de FOMUVEL, deberán estar al momento de la elección, al día en sus pagos con esa entidad.
-(Así adicionado el inciso anterior en sesión N° 18 del 16 de mayo de 2006)
-f) En caso de que en el sector de cooperativas de vendedores y en el sector de organizaciones sociales se postule solo un representante, la JPS solamente ratificará la designación realizada.
-(*)(Así adicionado el inciso anterior mediante sesión extraordinaria N° 12-2017 del 20 de julio del 2017)
+Artículo 9º-Los nombramientos de las personas miembros de Junta Directiva de FOMUVEL, los hará la Junta Directiva de la JPS, en los primeros ocho días del mes previo a aquél en que venza el plazo de nombramiento respectivo.
+Las personas que se postulen, el proceso de elección y los nombramientos que se realicen deben cumplir con las "Políticas de Idoneidad aplicables a todos los miembros que conforman la Junta Directiva de FOMUVEL" aprobadas por la Junta Directiva de la JPS.
+La JPS nombrará un tribunal electoral, cuyos miembros serán personas funcionarias de dicha institución. Este Tribunal será encargado de tramitar el proceso de elección de acuerdo con lo establecido en este artículo y en las "Políticas de Idoneidad aplicables a todos los miembros que conforman la Junta Directiva de FOMUVEL" y también velará por la transparencia del proceso.
+El procedimiento de postulación y nombramiento para cada cargo representado en la Junta Directiva de FOMUVEL se realizará de la siguiente forma:
+a) Nombramientos de las personas funcionarias representantes de la JPS: mediante acuerdo de la Junta Directiva de la JPS, previa recomendación de la Gerencia General de la JPS y verificación del cumplimiento de lo establecido en las "Políticas de Idoneidad aplicables a todos los miembros que conforman la Junta Directiva de FOMUVEL"
+La recomendación de la Gerencia General no es de carácter vinculante, por lo que la Junta Directiva de la JPS podrá rechazar tal recomendación y proceder con el nombramiento de otra persona funcionaria, siempre y cuando se cumpla con lo preceptuado en la política referida.
+En el procedimiento de nombramiento de estos representantes no participa el Tribunal Electoral.
+b) Nombramiento de la persona representante de las cooperativas de vendedores:
+b.1) El Consejo de Administración de cada cooperativa, mediante el sistema de su escogencia, designará una persona representante y lo comunicará al Tribunal Electoral de conformidad con el punto siguiente.
+b.2) El acuerdo del Consejo de Administración en el que conste la escogencia del representante, lo remitirá la cooperativa al Tribunal Electoral, protocolizado y acompañado del currículum vitae del candidato.
+b.3) Una vez recibidas las comunicaciones de las cooperativas, el Tribunal Electoral entrevistará a las personas candidatas y examinará sus currículums vitae, después de lo cual recomendará a la Junta Directiva de la JPS una persona como representante del sector cooperativo ante la Junta Directiva de FOMUVEL.
+Las personas candidatas deben cumplir con lo establecido en las "Políticas de Idoneidad aplicables a todos los miembros que conforman la Junta Directiva de FOMUVEL"
+c) Nombramiento de una persona representante de las organizaciones sociales de vendedores:
+c.1) La Junta Directiva de cada organización, mediante el sistema de su escogencia, designará una persona representante y lo comunicará al Tribunal Electoral de conformidad con el punto siguiente.
+c.2) El acuerdo de la Junta Directiva en el que conste la escogencia del representante, lo remitirá la organización social al Tribunal Electoral, protocolizado y acompañado del currículum vitae del candidato.
+c.3) Una vez recibidas las comunicaciones de las organizaciones sociales, el Tribunal Electoral entrevistará a las personas candidatas y examinará sus currículums vitae, después de lo cual recomendará a la Junta Directiva de la JPS una persona representante de las organizaciones sociales ante la Junta Directiva de FOMUVEL.
+Las personas candidatas deben cumplir con lo establecido en las "Políticas de Idoneidad aplicables a todos los miembros que conforman la Junta Directiva de FOMUVEL"
+d) Nombramiento de una persona representante de los vendedores independientes:
+d.1) Cinco meses antes del vencimiento de los nombramientos de los miembros de Junta Directiva de FOMUVEL, el Tribunal Electoral declarará abierto el proceso de elección mediante la publicación de una convocatoria en al menos un diario de circulación nacional.
+d.2) Durante los primeros tres meses de dicha convocatoria, las personas interesadas podrán promocionar la candidatura propia o de un tercero, lo cual formalizarán con un oficio que enviarán al Tribunal Electoral indicando tal propósito y que acompañarán del respectivo currículum vitae. Este documento debe contar con firma autógrafa o bien con estampado de firma digital por medio de certificado digital debidamente autorizado.
+En caso de duda respecto de la identidad de la persona firmante de este documento el Tribunal Electoral podrá adoptar las medidas que considere necesarias para verificar lo que corresponda.
+Las personas candidatas deben cumplir con lo establecido en las "Políticas de Idoneidad aplicables a todos los miembros que conforman la Junta Directiva de FOMUVEL"
+d.3) De las candidaturas propuestas, el Tribunal Electoral elaborará una lista o papeleta y fijará un día y hora para la elección.
+d.4) El Tribunal Electoral elaborará un padrón de las personas vendedoras independientes, que estará conformado por todas las personas que ostenten la condición de activos y que no pertenezcan a una cooperativa ni a una organización social.
+d.5) El día fijado, se dispondrán las papeletas en las instalaciones de la JPS y se recibirán los votos de todas las personas vendedoras activas que estén inscritas en el padrón.
+d.6) El Tribunal Electoral procederá a la revisión y conteo de los votos, cuyo resultado consignarán en un acta. Las tres personas con mayor cantidad de votos integrarán la terna de candidatos.
+d.7) Una vez determinada la terna, el Tribunal Electoral entrevistará a las personas candidatas y examinará sus currículums vitae, después de lo cual recomendará a la Junta Directiva de la JPS una persona representante de los vendedores independientes ante la Junta Directiva de FOMUVEL.
+e) Las personas vendedoras de loterías que se postulen para un puesto en la Junta Directiva de FOMUVEL, deberán estar al momento de la elección en condición de activas en la JPS y al día en sus pagos y obligaciones con FOMUVEL.
+f) En caso de que en el sector de cooperativas de vendedores y en el sector de organizaciones sociales se postule solo una persona representante, el Tribunal Electoral verificará el cumplimiento de lo establecido en las "Políticas de Idoneidad aplicables a todos los miembros que conforman la Junta Directiva de FOMUVEL" y remitirá el expediente ante la Junta Directiva de la JPS.
+La recomendación del Tribunal Electoral no es de carácter vinculante, por lo que la Junta Directiva de la JPS en acto motivado podrá apartarse de tal recomendación y nombrar a otra persona candidata, siempre y cuando cumpla con lo establecido en las "Políticas de Idoneidad aplicables a todos los miembros que conforman la Junta Directiva de FOMUVEL".
+(Así reformado en sesión N° 38 del 6 de julio de 2023)
