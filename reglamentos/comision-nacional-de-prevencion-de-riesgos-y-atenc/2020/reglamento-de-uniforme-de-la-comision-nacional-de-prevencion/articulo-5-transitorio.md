@@ -1,1 +1,1 @@
-Transitorio V.—De los días del uso de los uniformes. Hasta tanto no se entregue la totalidad de los uniformes, será obligatorio el uso del uniforme de Oficina (camisa azul y pantalón beige, los días Lunes y miércoles, así como en aquellas actividades que el funcionario represente a la CNE (reuniones, talleres, cursos, foros, seminarios entre otros. Y queda opcional para el funcionario que quiera utilizarlo todos los días restantes.
+Transitorio V.-De los días del uso de los uniformes. (Derogado en sesión N° 10 del 6 de julio de 2023)
