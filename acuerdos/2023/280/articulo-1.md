@@ -1,0 +1,22 @@
+SUPERINTENDENCIA GENERAL DE VALORES
+SGV-A-280. Modificación al Acuerdo SGV-A-273 uso de sello electrónico por la Superintendencia General de Valores.
+Considerando que:
+1º-Que de conformidad con el artículo 8 inciso a) de la Ley Reguladora del Mercado de Valores, Ley N°7732, corresponde al Superintendente:
+"Ejercer, en nombre y por cuenta del Banco Central de Costa Rica, la representación judicial y extrajudicial de dicho Banco para las funciones propias de su cargo, con atribuciones de apoderado generalísimo sin límite de suma. Podrá delegar poderes en los intendentes u otros funcionarios de la Superintendencia, conforme a las normas dictadas por el Consejo Nacional."
+2º-El artículo 180 de la Ley Reguladora del Mercado de Valores, dispone que la Superintendencia General de Valores podrá utilizar medios electrónicos o magnéticos de transmisión y almacenamiento de datos, para solicitar información a las entidades fiscalizadas y para mantener sus archivos, actas y demás documentos. La información así mantenida tendrá valor probatorio equivalente al de los documentos para todos los efectos legales.
+3º-Que para efectos del ejercicio de sus competencias y en representación del Banco Central, se entiende que el Superintendente General de Valores cuenta con la capacidad de gestionar su propio sello electrónico suministrado por el Banco Central de Costa Rica como autoridad certificadora., todo de conformidad con los artículos 1.3.3 y siguientes de la Política de Certificados para la Jerarquía Nacional de Certificadores Registrados, emitida por el Ministerio de Ciencia, Tecnología y Telecomunicaciones y la Dirección Certificadores de Firma Digital establece que dispone:
+"Se define como suscriptor a todos los usuarios finales a quienes se les ha emitido un certificado por una CA , dentro de la jerarquía nacional de certificadores registrados. El suscriptor puede ser una persona física o una persona jurídica."
+De conformidad con la definición anterior, la SUGEVAL puede constituirse como usuario final al manipular su propio Sello Electrónico previamente suministrado por el Banco Central de Costa Rica en su calidad de Autoridad Certificadora.
+4º-La Ley de Certificados, Firma Digitales y Documentos Electrónicos, N° 8454, confirió el fundamento jurídico para la emisión de certificados de firma Digital en el país, otorgándoles a esta y a los documentos electrónicos la equivalencia jurídica y la misma fuerza probatoria que la firma manuscrita y los documentos físicos.
+5º-El Banco Central de Costa Rica se encuentra constituido como Autoridad Certificadora para la emisión de certificados de firma digital para personas físicas y jurídicas, para lo cual se encuentra debidamente inscrita y autorizada para su operación según la Dirección de Gobernanza del Ministerio de Ciencia, Tecnología y Telecomunicaciones, ente responsable de la administración y supervisión del Sistema Nacional de Certificación Digital. Y, en dicha calidad, posee las competencias legales para suscribir acuerdos con los representantes legales de las personas jurídicas que soliciten la emisión de certificados de tipo Sello Electrónico
+6º-En el artículo 6 del acta de la sesión 5702-2015, celebrada el 30 setiembre del 2015, la Junta Directiva del Banco Central de Costa Rica aprobó la Regulación de los Certificados de Persona Jurídica en el Reglamento de Sistema de Pagos. Asimismo, mediante el artículo 6 del acta de la sesión 5825-2018, fue aprobado el servicio de Custodia del Certificado de Sello Electrónico de Persona Jurídica y descrito en el artículo 408 del Reglamento del Sistema de Pagos.
+En virtud de lo anterior, dispone el presente acuerdo:
+Artículo 1º-Alcance.
+Autorizar a la División de Servicios Tecnológicos, para que, por medio del Sello Electrónico de la Superintendencia General de Valores, en su condición de administrador de los procesos de sellado electr.-ónico de la Superintendencia, se suscriban los siguientes actos:
+1. Generación de acuses de recibo de correspondencia tramitada por MENDOCEL.
+2. Generación de acuses de recibo de información periódica recibida por la Ventanilla Virtual de la SUGEVAL.
+3. Generación de certificaciones digitales de información contenida en el RNVI
+4. Firma del reporte consolidado de operaciones en efectivo (ICD).
+5. Generación de certificaciones digitales sobre el contenido de expedientes electrónicos.
+6. Generación de la constancia de cualquier paso del expediente (Registro de Roles).
+7. Descarga de la declaración jurada (Registro de Roles).
