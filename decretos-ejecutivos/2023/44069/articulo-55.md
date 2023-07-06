@@ -1,0 +1,1 @@
+Artículo 55. Al matricular por primera vez a los estudiantes, las universidades deben suscribir el contrato institucional de servicios educativos que, entre otros elementos, estipulará montos de las tarifas y demás aranceles de su plan de estudios, así como los criterios y procedimientos para sus ajustes.

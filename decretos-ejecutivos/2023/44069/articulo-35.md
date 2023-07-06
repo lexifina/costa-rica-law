@@ -1,0 +1,2 @@
+Artículo 35. La institución que utilice medios tecnológicos en su oferta educativa deberá tener una organización académica de gestión, seguimiento y evaluación específica, que permita implementar la enseñanza y aprendizaje de los estudiantes, evaluar el proceso y los resultados acordes con esta modalidad.
+En el proceso de diseño y ejecución de la propuesta, la universidad debe disponer de un programa de capacitación en la tecnología dirigido al cuerpo docente y estudiantado, en particular para apropiarse de la tecnología y las metodologías pertinentes a esta modalidad.

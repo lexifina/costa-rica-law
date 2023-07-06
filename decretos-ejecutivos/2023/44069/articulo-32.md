@@ -1,0 +1,1 @@
+Artículo 32. Al CONESUP solo le corresponderá autorizar las carreras universitarias conducentes a un pregrado, grado o posgrado en cualquiera de sus niveles, de conformidad con la nomenclatura de grados títulos vigente, sin que ello implique que las universidades privadas no puedan otorgar títulos propios, siempre y cuando sean diferentes a la nomenclatura oficial.

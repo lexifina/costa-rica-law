@@ -1,0 +1,1 @@
+Artículo 78. El presente Reglamento rige a partir de su publicación y deroga el Decreto Ejecutivo No. 29631-MEP del 18 de junio de 2001, publicado en La Gaceta No. 133 del 11 de julio de 2001 y sus reformas.

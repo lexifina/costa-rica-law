@@ -1,0 +1,5 @@
+Artículo 28.- El plan de estudios de una carrera que haya sido aprobado por el CONESUP de forma presencial podrá impartirse en cualquiera de las siguientes modalidades:
+a. Modalidad mixta (con presencialidad obligatoria): combina actividades en presencialidad remota con algunas sesiones presenciales en laboratorios; giras; estaciones experimentales; canchas deportivas; piscinas; fincas; y estudios y salones de danza, teatro y música.
+b. Modalidad mixta (híbrido-flexible): combina sesiones presenciales y en presencialidad remota, pero llevando a cabo las sesiones planeadas como presenciales con la posibilidad de que el estudiantado pueda estar presencial cara a cara o conectarse de forma virtual sincrónica, siendo así, habrá estudiantes de forma presencial y estudiantes en línea recibiendo la clase simultáneamente.
+Esta modalidad requiere que los espacios físicos donde ocurren las actividades presenciales tengan las condiciones tecnológicas para integrar estudiantes de manera presencial y remota.
+Esta modalidad no estará sujeta a ninguna restricción de capacidad locativa.

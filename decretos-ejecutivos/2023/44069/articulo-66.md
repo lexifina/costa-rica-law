@@ -1,0 +1,1 @@
+Artículo 66. Si el análisis de la solicitud demuestra que se cumplen los requisitos, la Secretaría Técnica declarará su admisibilidad, lo comunicará por escrito a la entidad gestionante e iniciará de inmediato el proceso de estudio académico del expediente.

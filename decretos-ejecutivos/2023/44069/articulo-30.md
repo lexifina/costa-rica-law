@@ -1,0 +1,1 @@
+Artículo 30. El plan de estudios de una carrera que haya sido autorizada por el CONESUP deberá mantenerse en vigencia y sin modificaciones al menos durante el período correspondiente a una cohorte académica, de forma tal que la universidad pueda tener criterios académicos suficientes para evaluarlo y realizar los ajustes que considere pertinentes.

@@ -1,0 +1,1 @@
+Artículo 51. El CONESUP podrá dictar recomendaciones sobre el espacio físico que esté destinado a la enseñanza universitaria privada, una vez iniciado el funcionamiento de la universidad, en atención a razones de mantenimiento, remodelación o ampliación de la infraestructura.

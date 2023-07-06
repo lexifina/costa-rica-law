@@ -1,0 +1,3 @@
+Artículo 31. La matrícula de estudiantes y la ejecución de una modificación de carrera o programa solamente podrán realizarse y tener vigencia real a partir de la fecha en la que quede firme el acuerdo del CONESUP que autorice su implementación.
+Se excluirán de lo anterior aquellas modificaciones del plan de estudios que sean resultado de la implementación del "Plan de Mejoramiento de la Calidad" o su homólogo aprobado por la agencia de acreditación para carreras o programas de posgrado que hayan sido oficialmente acreditados.
+En tal caso, la universidad cuya carrera de grado o programa de posgrado haya sido oficialmente acreditada, deberá comunicarlo al Consejo del Conesup dentro del mes siguiente el acuerdo correspondiente, para tomar nota.

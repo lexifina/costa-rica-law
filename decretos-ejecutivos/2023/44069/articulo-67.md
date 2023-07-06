@@ -1,0 +1,5 @@
+Artículo 67. El estudio del expediente de solicitud comprende la comprobación del cumplimiento de los requerimientos de ley, así como los reglamentos y estatutos de la universidad.
+En cumplimiento con lo que al respecto establece la ley, cuando se trate de la apertura de escuelas y carreras, modificaciones de carreras o lo indicado en el artículo 29 inciso b ), la Secretaría Técnica consultará a la Oficina de Planificación de la Educación Superior (OPES).
+La OPES analizará la documentación correspondiente y presentará su dictamen al CONESUP dentro del plazo máximo de dos meses, a partir de su notificación por parte del CONESUP.
+Vencido este plazo, sin que se pronuncie, se prescindirá del dictamen para la resolución final.
+Según la naturaleza o complejidad del caso, la Secretaría Técnica podrá solicitar criterios académicos a los colegios profesionales u otras entidades que considere oportunos o convenientes en resguardo del interés público y de la calidad académica de la educación superior universitaria privada.

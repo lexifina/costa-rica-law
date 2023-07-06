@@ -1,0 +1,1 @@
+Artículo 11. Para la elaboración del orden del día no se podrán tomar en cuenta los documentos presentados con posterioridad a la comunicación de esta, a menos que la urgencia del caso lo amerite a juicio del ministro, así notificado al resto del Consejo. El orden del día deberá presentarlo el ministro ante el Consejo.

@@ -1,0 +1,1 @@
+Artículo 4. El Consejo del CONESUP elegirá entre sus miembros un vicepresidente, quien lo presidirá en ausencia del ministro. El vicepresidente durará en su cargo un año y podrá ser reelegido sucesivamente.

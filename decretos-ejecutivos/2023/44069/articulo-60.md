@@ -1,0 +1,1 @@
+Artículo 60. Para los efectos de lo dispuesto en el artículo anterior, solo podrán fungir como responsables de la inspección, quienes no estuvieren vinculados con la universidad por inspeccionar, dentro de los seis meses inmediatos anteriores al acto de designación .

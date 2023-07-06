@@ -1,0 +1,1 @@
+Artículo 48. El personal docente no puede sobrepasar una carga en docencia directa mayor a un tiempo completo por semana, para asegurar un adecuado nivel de interacción entre estos y los estudiantes. Lo anterior tiene como fin fortalecer la calidad académica y que cuenten con tiempo para participar en actividades curriculares, de investigación y desarrollo profesional.

@@ -1,0 +1,1 @@
+Artículo 53. La infraestructura física debe ser suficiente para el número de personas que las utilizan y contar con espacios de labores docentes (aulas, talleres, laboratorios, biblioteca y salas) y estar disponibles de acuerdo con las necesidades de horario de los usuarios.

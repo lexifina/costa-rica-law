@@ -1,0 +1,1 @@
+Artículo 72. El procedimiento que se seguirá a efectos de determinar la verdad real será el procedimiento ordinario establecido por la Ley General de la Administración Pública, con las particularidades contenidas en los artículos 17, 18 y 19 de la Ley No. 6693 del 27 de noviembre de 1981.

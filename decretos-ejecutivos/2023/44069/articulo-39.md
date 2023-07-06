@@ -1,0 +1,2 @@
+Artículo 39. Las universidades deberán facilitar la colaboración requerida por la Secretaría Técnica, con el fin de que pueda verificar, en todos sus extremos, el cumplimiento de la normativa vigente de la oferta académica virtual que le haya sido autorizada por parte del CONESUP.
+Además, la universidad privada deberá resguardar la información del contenido y desarrollo completo de los cursos bajo esta modalidad, al menos de un ciclo lectivo.

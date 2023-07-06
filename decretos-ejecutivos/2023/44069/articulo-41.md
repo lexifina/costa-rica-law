@@ -1,0 +1,1 @@
+Artículo 41. Las universidades privadas pueden ofrecer sus planes de estudio en la modalidad dual, de conformidad con las disposiciones pertinentes establecidas en la Ley No. 9728 del 12 de setiembre del 2019, Ley de Educación y Formación Técnica Dual y sus Reglamentos.
