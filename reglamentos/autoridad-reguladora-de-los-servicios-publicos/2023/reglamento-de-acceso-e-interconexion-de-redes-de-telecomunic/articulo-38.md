@@ -1,0 +1,2 @@
+Artículo 38°- Negativa de negociar.
+En caso de que exista negativa de un operador o proveedor de negociar u obstaculice las negociaciones injustificadamente o el acuerdo no se concrete dentro de los tres meses siguientes al inicio de las negociaciones, la Sutel, de oficio o a petición de parte, intervendrá con el fin de determinar la forma, los términos y las condiciones bajo las cuales se llevará a cabo el acceso o la interconexión, lo anterior sin perjuicio de las sanciones previstas en la Ley General de Telecomunicaciones.

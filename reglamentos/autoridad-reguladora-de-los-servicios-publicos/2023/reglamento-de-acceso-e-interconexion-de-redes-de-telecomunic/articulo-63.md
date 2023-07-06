@@ -1,0 +1,4 @@
+Artículo 63°-Limitaciones.
+Con excepción de las limitaciones expresadas en los acuerdos de acceso o interconexión, no existirá ninguna otra limitación o responsabilidad directa o indirecta que pudiese afectar la prestación de los servicios o las relaciones contractuales entre los operadores o proveedores involucrados.
+El acceso o la interconexión que es objeto de un acuerdo determinado se hará sin perjuicio de otros acuerdos de objeto similar que cada operador o proveedor haya suscrito o suscriba con operadores o proveedores distintos, con la finalidad de mantener los principios de equidad e igualdad.
+Cada operador o proveedor se obligará a conceder a su contraparte en el acuerdo a ser suscrito, cualquier término o condición más favorable que haya acordado o acuerde con otro operador o proveedor equivalente en condiciones semejantes.

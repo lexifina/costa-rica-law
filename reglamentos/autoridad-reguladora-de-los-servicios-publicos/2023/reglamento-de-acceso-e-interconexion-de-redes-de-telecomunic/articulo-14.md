@@ -1,0 +1,5 @@
+Artículo 14°-Puntos y niveles de jerarquía del acceso o la interconexión.
+Los servicios de acceso o interconexión deberán proporcionarse en cualquier punto donde sea técnica y económicamente factible proveerlos. La Sutel podrá solicitar a los operadores o proveedores, el diagrama de puntos de acceso o interconexión disponibles.
+Los operadores o proveedores importantes deberán indicar para cada uno de los puntos de acceso o interconexión las zonas geográficas o áreas de cobertura de servicios, así como la capacidad, los servicios y demás condiciones disponibles en cada punto, para que, en caso de que le sea solicitado el acceso o la interconexión, éstos sean brindados en condiciones de transparencia, no discriminación e igualdad a todos los operadores o proveedores.
+Las tarifas que cobren por estos servicios no podrán incluir servicios no requeridos por el operador o proveedor solicitante independientemente de la jerarquía en donde hayan sido conectados.
+Cualquier punto de acceso o interconexión debe ajustarse a las normas técnicas de la Sutel.

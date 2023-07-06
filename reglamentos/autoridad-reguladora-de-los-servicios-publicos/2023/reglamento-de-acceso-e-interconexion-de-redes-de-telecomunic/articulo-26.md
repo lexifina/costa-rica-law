@@ -1,0 +1,5 @@
+Artículo 26°-Contabilidad de Costos Separada.
+De conformidad con el artículo 75, inciso b), aparte ii) de la Ley 7593, los operadores o proveedores importantes que participen del acceso o la interconexión de redes deberán elaborar, mantener y presentar a la Sutel la contabilidad de costos separada para sus actividades relacionadas con el acceso o la interconexión, así como de los distintos servicios o redes en que brindan servicios.
+Las cuentas incluirán los servicios de acceso o interconexión que el operador o proveedor se preste a sí mismo, a sus entidades filiales o asociadas y a otros operadores o proveedores, así como los demás servicios de telecomunicaciones y relacionados.
+La contabilidad de costos separada deberá presentarse a la Sutel acompañada por un informe de Auditoría Externa, en el que se ponga de manifiesto la coherencia de dicha información con la contabilidad financiera, respetando los principios, criterios y guías definidos por la Sutel.
+La Contabilidad de Costos Separada deberá presentarse anualmente ante la Sutel dentro de los primeros cinco (5) meses siguientes al cierre del año fiscal correspondiente.

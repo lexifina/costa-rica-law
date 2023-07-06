@@ -1,0 +1,9 @@
+Artículo 71°-Derogatoria.
+Una vez entrado en vigor el presente reglamento, se deroga el Reglamento de Acceso e Interconexión de Redes de Telecomunicaciones, aprobado por la Junta Directiva de la Autoridad Reguladora de los Servicios, mediante acuerdo 002-061-2008, de la sesión ordinaria No 061-2008, celebrada el 6 de octubre de 2008, y publicado en el Alcance 40 a La Gaceta N°201 del 17 de octubre del 2008.
+(…)"
+III. Derogar el "Reglamento de Acceso e Interconexión de Redes de Telecomunicaciones", publicado en el Alcance N° 40 a La Gaceta N° 201 del 17 de octubre de 2008.
+IV. Instruir al Consejo de la Superintendencia de Telecomunicaciones para que, proceda a responder a las posiciones planteadas en la audiencia pública celebrada el 30 de noviembre de 2022 al ser las 17:15 horas por Ufinet de Costa Rica, S.A., Radiográfica Costarricense, S.A, Liberty Telecomunicaciones de Costa Rica LY, S.A., Millicom Cable Costa Rica, S.A. CallMyWay NY, S.A., Claro CR Telecomunicaciones, S.A., Instituto Costarricense de Electricidad y la Asociación Cámara de Infocomunicación y Tecnología, según el oficio 00907-SUTEL-DGM-2023 del 03 de febrero del 2023 de la Dirección General de Mercados de la Sutel, y agradecer la valiosa participación en este proceso.
+V. Instruir al Consejo de la Superintendencia de Telecomunicaciones, para que proceda a notificar a los participantes de la audiencia señalados en el Por Tanto anterior, la presente resolución.
+VI. Instruir al Consejo de la Superintendencia de Telecomunicaciones para que proceda a realizar la respectiva publicación en el diario oficial La Gaceta del "Reglamento de Acceso e interconexión de Redes de Telecomunicaciones"
+VII. Comunicar al Consejo de la Superintendencia de Telecomunicaciones, la presente resolución para lo que corresponda.
+PUBLÍQUESE, NOTIFÍQUESE Y COMUNÍQUESE

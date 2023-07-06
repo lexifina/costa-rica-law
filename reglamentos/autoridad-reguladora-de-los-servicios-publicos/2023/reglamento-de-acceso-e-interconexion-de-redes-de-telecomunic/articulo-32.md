@@ -1,0 +1,3 @@
+Artículo 32°-Tratamiento de la información.
+Los operadores o proveedores deberán acordar previamente el tratamiento que cada parte le dará a la información recibida de la otra, con ocasión de la negociación del acuerdo de acceso o interconexión. Asimismo, el acuerdo de acceso o interconexión deberá establecer el tipo de información que será intercambiada entre las partes durante la vigencia del mismo.
+Los operadores o proveedores que obtengan información de otras empresas con anterioridad, durante o con posterioridad al proceso de negociación de los acuerdos de acceso o interconexión, podrán utilizar dicha información exclusivamente para los fines que les fue facilitada.

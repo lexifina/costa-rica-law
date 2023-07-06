@@ -1,0 +1,4 @@
+Artículo 18°-Instalación.
+Los operadores o proveedores que soliciten el acceso o la interconexión asumirán el costo de la instalación de estos servicios con la red del operador o proveedor solicitado. Sin embargo, los operadores o proveedores podrán acordar procedimientos para compartir los costos en las inversiones antes señaladas.
+Los puntos de acceso o interconexión deberán estar provistos de condiciones de seguridad, ambiente controlado, suministro y protección eléctrica, así como la capacidad para la realización de corte y pruebas de configuración y monitoreo que aseguran la interoperabilidad entre redes.
+La Sutel podrá ampliar la lista de elementos a considerar para la instalación del acceso o interconexión, de acuerdo con reglamentos específicos o cuando así lo considere necesario, teniendo en cuenta principios y prácticas generalmente aceptados a nivel internacional.

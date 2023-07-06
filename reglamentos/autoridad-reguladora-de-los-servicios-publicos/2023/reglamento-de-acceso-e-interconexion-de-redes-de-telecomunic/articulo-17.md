@@ -1,0 +1,4 @@
+Artículo 17°-Averías en la red.
+Los operadores o proveedores deberán contar con un sistema de monitoreo y pruebas permanente, de los medios y facilidades que se utilizan para el acceso o la interconexión, de tal forma que se permita detectar y registrar las averías que se produzcan.
+En la eventualidad que se produzcan averías en los medios o facilidades de acceso o interconexión, estas serán notificadas inmediatamente a los operadores o proveedores involucrados.
+Los operadores o proveedores establecerán en los acuerdos de acceso o interconexión, tiempos máximos de respuesta ante averías, los procedimientos que consideren necesarios para minimizar el tiempo fuera de servicio de los medios y condiciones de acceso o interconexión, así como los criterios para la estimación de las respectivas indemnizaciones.
