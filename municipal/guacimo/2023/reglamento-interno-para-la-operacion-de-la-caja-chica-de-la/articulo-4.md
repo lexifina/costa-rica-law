@@ -1,0 +1,1 @@
+Artículo 4º-Naturaleza: La ejecución del gasto mediante el fondo Fijo de Caja Chica, es un procedimiento de excepción y por consiguiente limitado a la atención de gastos indispensables, impostergables, menores, ocasionales y urgentes.

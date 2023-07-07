@@ -1,0 +1,1 @@
+Artículo 24.-De la solicitud del adelanto de viáticos: Las solicitudes de Adelanto de viáticos, así como su monto, se girarán bajo la responsabilidad de los respectivos jefes que autoricen los trámites, quienes deberán exigir la liquidación del gasto mediante aplicación del sistema que para tal efecto se encuentra habilitado.

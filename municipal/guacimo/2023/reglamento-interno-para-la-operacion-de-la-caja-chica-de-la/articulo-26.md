@@ -1,0 +1,7 @@
+Artículo 26.-Disposiciones generales para la solicitud de Viáticos:
+a) Llenar y presentar la solicitud de adelanto de viáticos, la cual deberá ser debidamente justificada, autorizada y firmada por la jefatura respectiva.
+b) El Encargado del Fondo de Caja Chica, deberá verificar que la gira se realizó de acuerdo con lo solicitado y que los viáticos correspondan con la hora de salida y la hora de llegada de la gira, de acuerdo con las tarifas establecidas en el Reglamento de Gastos de Viaje y de Transporte para Funcionarios Públicos emitido por la Contraloría General de la República.
+c) El funcionario que ha realizado una gira, deberá presentar al Encargado de la Caja Chica la liquidación correspondiente dentro de los tres días hábiles posteriores al regreso de la gira.
+d) El sobrante que resulte de una liquidación de viáticos, será inmediatamente reintegrado por el funcionario a quien se le giró el adelanto, al responsable del Fondo Fijo de Caja Chica.
+e) El funcionario autorizado del Fondo Fijo de Caja Chica le pagará de acuerdo con la liquidación y de los respectivos comprobantes, y le reintegrará el exceso en los gastos de la gira realizada.
+f) El funcionario encargado de revisar las liquidaciones de viáticos, deberá verificar que dentro del formulario correspondiente no se incluyan facturas por otros servicios o bienes, tales como lavado de vehículo, cambios de aceite, arreglos de llantas, entre otros, salvo en el caso de los imprevistos otorgados en adelantos de viáticos.
