@@ -1,0 +1,9 @@
+Artículo 3°- Fonafifo dispondrá de un área de 154 hectáreas para la implementación de un proyecto Piloto en fincas con planes de manejo autorizados por el SINAC donde se ejecuten tratamientos silviculturales en las áreas de bosques. Las fincas deberán estar ubicadas en la Zona Norte del país y gestionados a través de FUNDECOR y/o CODEFORSA organizaciones de base con experiencia en el manejo de bosque.
+El proyecto operaría bajo las siguientes condiciones especiales, sin perjuicios de las aplicaciones de las disposiciones generales que rigen el Programa de Pago por Servicios Ambientales:
+a)Las solicitudes deben de cumplir con los requisitos y requerimientos dispuesto por Fonafifo para acceder al PSA en la actividad de manejo de bosque.
+b)El piloto consideraría para el primer año un proyecto por organización.
+c)En el área de bosque sometida a manejo se reconocerá la aplicación de los siguientes tratamientos silviculturales: -aprovechamiento maderable, -corta de lianas; -liberación de líderes deseables; -eliminación de árboles y troncos defectuosos; -refinamiento. Pudiendo ser todos o al menos 3 de los indicados.
+d)Todas las solicitudes que apliquen del proyecto piloto deberán presentar los documentos de autorización emitidos por el SINAC para la aplicación de los tratamientos silviculturales.
+e)FUNDECOR y CODEFORSA deberán proponer un plan de seguimiento para el monitoreo de los resultados de la aplicación de los tratamientos silviculturales a la masa forestal, a satisfacción de Fonafifo y el SINAC.
+f)En caso de no recibir aplicaciones de posibles interesados, o si estas no completan los recursos destinados para el Proyecto Piloto, serán distribuidos entre la actividad de Manejo de Bosque tradicional.
+g)Si durante el primer año de ejecución del Proyecto Piloto no se reciben aplicaciones o no se logre formalizar un contrato de PSA, el mismo quedará sin efecto y se procederá a su cancelación.
