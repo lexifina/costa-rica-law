@@ -1,0 +1,1 @@
+Artículo 2º-Derogatoria: Deróguese el inciso e)-ii del Apartado 6) del artículo 11denominado "Exenciones", ubicado en el Capítulo IV del Reglamento de la Ley de Impuesto sobre el Valor Agregado, Decreto Ejecutivo Nº41779-H del 7 de junio de 2019.
