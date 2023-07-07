@@ -1,1 +1,0 @@
-Artículo 2°-Al entrar en vigencia la presente resolución, se deja sin efecto la actualización efectuada mediante la resolución número RES-DGH-001-2023, del 09 de enero de 2023, publicada en La Gaceta número 16 del 30 de enero de 2023.
