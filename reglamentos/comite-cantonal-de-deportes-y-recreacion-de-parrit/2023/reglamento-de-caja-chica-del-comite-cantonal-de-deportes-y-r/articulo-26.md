@@ -1,0 +1,1 @@
+Artículo 26.-Los Reintegros de la Caja Chica. Se confeccionarán reintegros de caja chica, cuando se haya gastado no más del 80 % del fondo fijo, con el propósito de darle la rotación óptima a los recursos y mantener la liquidez del fondo.

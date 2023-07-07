@@ -1,0 +1,1 @@
+Artículo 12.-Uso de cuentas corrientes para el manejo de los fondos. Los fondos de Caja Chica funcionarán con una cuenta corriente, para la adquisición de bienes, servicios u obras, las compras se efectuarán mediante transferencia electrónica.

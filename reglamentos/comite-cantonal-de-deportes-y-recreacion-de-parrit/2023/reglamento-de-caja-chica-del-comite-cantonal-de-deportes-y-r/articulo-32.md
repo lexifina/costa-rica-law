@@ -1,0 +1,4 @@
+Artículo 32.-Funciones del responsable del Presidente de la Junta Directiva. El Presidente de la Junta Directiva tendrá bajo su responsabilidad de velar por el adecuado uso del Fondo de Caja Chica y tendrá a su cargo las siguientes funciones relacionadas con los procesos de compra de bienes, servicios y obras por medio de la caja chica:
+a-Verificar la aplicar de los procedimientos de compra de caja chica de conformidad con lo establecido por el presente Reglamento
+b-Aprobar la decisión inicial de las compras de bienes, servicios y obras que se lleven a cabo.
+c-Dar seguimiento a la ejecución de las compras por medio del Fondo de Caja Chica y adoptar las medidas de control con el fin de garantizar una correcta ejecución de lo pactado en las compras de caja chica, adoptando las medidas necesarias por incumplimientos por parte del contratista.
