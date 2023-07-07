@@ -1,0 +1,1 @@
+Artículo 2°-Ámbito de aplicación. Las disposiciones de este reglamento son de aplicación y acatamiento obligatorio para los propietarios o acompañantes de los perros que hagan uso de las instalaciones de los parques caninos municipales ubicados en el cantón de Moravia.

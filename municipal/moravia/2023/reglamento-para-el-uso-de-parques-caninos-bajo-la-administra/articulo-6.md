@@ -1,0 +1,1 @@
+Artículo 6°-Mantenimiento. La Municipalidad de Moravia dará el mantenimiento adecuado de los parques mediante la realización de las obras y labores de mantenimiento necesarias, que garanticen su mejor y más adecuado uso.
