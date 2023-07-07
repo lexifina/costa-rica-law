@@ -1,0 +1,2 @@
+Artículo 74°- La Administración implementará un mecanismo de control apoyado en el uso de la tecnología que permita determinar la hora de entrada y salida de cada miembro del Concejo Municipal, mediante el cual se cotejará el registro de asistencia en caso de existir dudas u omisiones respecto al informe de la secretaría del Concejo.
+Para tales efectos, todos los miembros del Concejo Municipal de Santa Bárbara deberán registrar su ingreso y salida en reloj marcador Institucional, ubicado en el primer piso del edificio mediante la huella digital o reconocimiento facial.

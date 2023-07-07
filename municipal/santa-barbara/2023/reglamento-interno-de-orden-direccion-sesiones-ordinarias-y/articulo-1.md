@@ -1,0 +1,6 @@
+MUNICIPALIDAD DE SANTA BÁRBARA
+El Concejo Municipal de la Municipalidad de Santa Bárbara, en sesión extraordinaria No. 64-2023, celebrada el jueves 1 de junio del 2023, mediante el acuerdo No. 10-2023, acordó por mayoría absoluta y definitivamente aprobado en firme: Aprobar el Reglamento Interno de Orden, Dirección, Sesiones Ordinarias y Extraordinarias, Pago de Dietas, toma de los Acuerdos Municipales, Comisiones Municipales y funcionamiento en general del Concejo Municipal de Santa Bárbara, ara que se lea:
+Reglamento Interno de Orden, Dirección, Sesiones Ordinarias y Extraordinarias, Pago de
+Dietas, toma de los Acuerdos Municipales, Comisiones Municipales y funcionamiento en
+general del Concejo Municipal de Santa Bárbara.
+Artículo 1º-El Concejo Municipal de Santa Bárbara, en uso de las atribuciones que le confiere los artículos 169 y 170 de la Constitución Política, en relación con los numerales 4, inciso a), 12, 13, incisos c) y d), 43 y 50 del Código Municipal, aprueba el siguiente Reglamento Interno de Orden, Dirección, Sesiones Ordinarias y Extraordinarias, Pago de Dietas, toma de los Acuerdos Municipales, Comisiones Municipales y funcionamiento en general del Concejo Municipal de Santa Bárbara, el cual se regirá por las siguientes disposiciones.

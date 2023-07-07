@@ -1,0 +1,1 @@
+Artículo 82°- Ante cualquier aumento debe verificarse previamente el contenido presupuestario correspondiente, y además debe ser autorizado por la Contraloría General de la República a través del correspondiente documento presupuestario.

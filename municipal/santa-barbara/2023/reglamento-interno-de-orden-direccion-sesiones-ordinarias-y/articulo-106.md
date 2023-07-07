@@ -1,0 +1,2 @@
+Capítulo IX. Disposiciones finales.
+Artículo 106°-. El presente Reglamento Interno de Orden, Dirección, Sesiones Ordinarias y Extraordinarias, Pago de Dietas, toma de los Acuerdos Municipales, Comisiones Municipales y funcionamiento en general del Concejo Municipal de Santa Bárbara, reforma toda disposición reglamentaria sobre esta materia que se hayan aprobado con anterioridad o acuerdo municipal que se le oponga.

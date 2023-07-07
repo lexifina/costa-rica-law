@@ -1,0 +1,1 @@
+Artículo 12°-De la Secretaría del Concejo. La Secretaría del Concejo Municipal depende de éste, y ejercerá sobre la Secretaría las potestades de dirección, control y fiscalización conforme al ordenamiento jurídico. La Secretaría asistirá a las sesiones ordinarias, extraordinarias y solemnes, así como a las Comisiones de Trabajo cuando se requiera.

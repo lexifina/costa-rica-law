@@ -1,0 +1,1 @@
+Artículo 7°- Los Regidores y Regidoras suplentes deberán asistir con derecho a voz a todas las sesiones del Concejo Municipal, y tendrán derecho a voto solamente cuando asuman en propiedad. Se someterán a las mismas disposiciones que regulan a los regidores y regidoras propietarias, y serán llamados por la Presidencia Municipal de entre los presentes, según el orden de elección.

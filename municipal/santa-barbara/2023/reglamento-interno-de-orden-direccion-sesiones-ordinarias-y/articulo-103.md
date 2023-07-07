@@ -1,0 +1,2 @@
+Capítulo VIII. Del cumplimiento de acuerdos
+Artículo 103°- Con el fin de facilitar la verificación de los acuerdos ejecutados, el Alcalde Municipal y los funcionarios, deberán indicar expresamente en los oficios que se remitan a la Secretaría, el número de acuerdo u oficio del Concejo Municipal que se responde; en caso contrario la Secretaria queda autorizada a prevenir de oficio que se aclare esa referencia necesaria para la conformación de expediente, bajo el apercibimiento de devolver al funcionario responsable la documentación.

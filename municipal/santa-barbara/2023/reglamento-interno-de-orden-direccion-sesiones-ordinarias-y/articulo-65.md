@@ -1,0 +1,1 @@
+Artículo 65°- Cuando el síndico suplente no esté sustituyendo a un síndico propietario durante toda la sesión, y se encuentren presente durante toda la sesión remunerable, devengarán un 25% de la dieta de un regidor propietario.

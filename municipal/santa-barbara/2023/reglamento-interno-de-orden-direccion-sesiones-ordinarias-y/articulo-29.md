@@ -1,0 +1,1 @@
+Artículo 29°- Acuerdo por mayoría simple, son los que se aprueban con la mitad más uno de la totalidad de los miembros que votan o también denominada mayoría absoluta de los presentes. (Artículo 42 del Código Municipal) (Según conformación del Concejo Municipal de Santa Barbara, la mitad más uno corresponde a 3 votos).

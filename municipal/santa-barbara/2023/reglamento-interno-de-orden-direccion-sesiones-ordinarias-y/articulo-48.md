@@ -1,0 +1,2 @@
+Capítulo IV. Sesiones Virtuales.
+Artículo 48°- De conformidad con lo establecido por el Código Municipal artículo 37bis, el Concejo Municipal queda facultado para realizar, sesiones municipales virtuales a través del uso de medios tecnológicos, cuando por estado de necesidad y urgencia, ocasionado por circunstancias sanitarias, de guerra, conmoción interna y calamidad pública exista una declaración de estado de emergencia nacional o cantonal. Tales sesiones se podrán celebrar en dichas condiciones a través de esos medios, en el tanto concurra el cuórum de ley.

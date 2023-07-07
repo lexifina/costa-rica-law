@@ -1,0 +1,1 @@
+Artículo 94°- Cada miembro de comisión es responsable de darle seguimiento a la documentación por analizar en comisión, es deber del miembro de comisión apersonarse por la información para el análisis de los expedientes que custodia la Secretaría.

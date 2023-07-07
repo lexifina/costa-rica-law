@@ -1,0 +1,1 @@
+Artículo 30°- Acuerdo por mayoría calificada, cuando el acuerdo requiere ser aprobado por las dos terceras partes de la totalidad de los miembros que votan. (Según conformación del Concejo Municipal de Santa Barbara, la mayoría calificada corresponde a 4 votos).

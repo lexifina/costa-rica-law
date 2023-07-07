@@ -1,0 +1,1 @@
+Artículo 97°- Libro de Actas de las Comisiones. La Secretaría Municipal remitirá un libro de actas para cada Comisión. Será válida la elaboración del Acta digital, siempre que se encuentre debidamente firmada por el Presidente de Comisión y el Secretario (a).

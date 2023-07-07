@@ -1,0 +1,1 @@
+Artículo 96°- Actas de las Comisiones. La persona designada como secretaria de Comisión deberá levantar las actas que recojan de manera sucinta lo acontecido en sus reuniones, las cuales contendrán los siguientes elementos: encabezado, fecha, número de la reunión, asistentes, firmas, asuntos tratados y sus respectivos acuerdos.

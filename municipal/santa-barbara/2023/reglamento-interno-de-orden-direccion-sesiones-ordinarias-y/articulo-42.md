@@ -1,0 +1,2 @@
+Artículo 42°- Mociones. Las mociones deberán presentarse por escrito y firmadas; previo a la sesión correspondiente ante la Secretaría del Concejo. En caso de que no venga debidamente firmada por el miembro proponente, no será conocida en esa sesión, quedando pendiente de su lectura y conocimiento en la sesión inmediata posterior, una vez firmada.
+Los regidores suplentes o síndicos, deberán contar con el respaldo de un Regidor propietario o del Alcalde, el cual firmará la remisión del documento escrito, para poder exponer la moción.

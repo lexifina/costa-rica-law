@@ -1,0 +1,1 @@
+Artículo 19°-Inicio de las sesiones. Las sesiones del Concejo deberán iniciarse dentro de los quince minutos siguientes a la hora señalada y publicada al efecto, conforme con el reloj del local donde se lleve a cabo la sesión, a falta de este, la hora del reloj de la presidencia el Concejo.

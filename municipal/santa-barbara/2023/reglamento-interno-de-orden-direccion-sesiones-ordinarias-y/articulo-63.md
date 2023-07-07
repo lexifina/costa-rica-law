@@ -1,0 +1,2 @@
+Artículo 63°- En caso de que el regidor suplente no sustituya al propietario en una sesión remunerable, o sustituya al propietario después de transcurridos 15 minutos de iniciada la sesión, y este presente durante toda la sesión, devengará el 50% de la dieta correspondiente al regidor propietario.
+Sin embargo, cuando un Regidor Propietario solicite autorización para retirarse de la Sesión y sea autorizado por la Presidencia este perderá la dieta y , el Regidor llamado a la suplencia recibirá la dieta del propietario ausente.

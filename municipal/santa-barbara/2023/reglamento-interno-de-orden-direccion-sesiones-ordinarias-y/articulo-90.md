@@ -1,0 +1,1 @@
+Artículo 90°-Comisiones Especiales. Estas comisiones se establecen por acuerdo del Concejo, con un fin especifico, la Presidencia determina sus miembros de entre los candidatos presentados por los participantes permanentes; procurando representatividad de los partidos políticos electos dentro del Concejo Municipal y asegurándose la equidad y armonía.

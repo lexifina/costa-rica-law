@@ -1,0 +1,1 @@
+Artículo 43°- Participación fuera de orden. La Presidencia Municipal no dará curso y declarará fuera de orden las participaciones que evidentemente resulten improcedentes o que simplemente vayan a dilatar u obstaculizar el curso normal del debate o la resolución de un asunto. Para ello la Presidencia razonará su decisión la cual será consignada en el acta.

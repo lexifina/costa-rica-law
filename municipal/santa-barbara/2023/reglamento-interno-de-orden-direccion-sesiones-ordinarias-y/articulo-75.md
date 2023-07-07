@@ -1,0 +1,1 @@
+Artículo 75°- .-El regidor sustituido no podrá permanecer en el recinto y perderá su dieta, y sobre esta designación no cabrá apelación o moción alguna, dado que es facultad del Presidente del Concejo realizar la sustitución correspondiente en su función de dirección y coordinación del debate, en concordancia con la normativa legal aplicable.

@@ -1,0 +1,3 @@
+Artículo 37°- Las actas de las sesiones deberán ser aprobadas en la Sesión Ordinaria inmediata posterior, salvo circunstancias de fuerza mayor lo impidan. El Presidente Municipal someterá aprobación el acta indicando el número de sesión y fecha de su celebración, sin necesidad de dar lectura.
+La aprobación de cada acta se realiza con la finalidad - entre otras- de que los funcionarios que estuvieron presentes en la sesión respectiva, den fe de la exactitud del documento y de los datos que en él quedaron insertos.
+Las actas del Concejo Municipal estarán disponibles en la página Web de la Municipalidad y solo deben aparecer las actas definitivas, o sea, posterior a su aprobación y con las firmas del presidente y la secretaria del Concejo.

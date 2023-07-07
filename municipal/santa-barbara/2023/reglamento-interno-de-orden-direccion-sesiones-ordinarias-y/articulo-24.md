@@ -1,0 +1,1 @@
+Artículo 24°- Dos sesiones en el mismo día. El Concejo Municipal podrá celebrar en un mismo día la sesión ordinaria semanal y una sesión extraordinaria. En todo caso procederá el pago de la dieta correspondiente sólo para una de ellas, las que se dejaren de remunerar no se acumularán para tal efecto.

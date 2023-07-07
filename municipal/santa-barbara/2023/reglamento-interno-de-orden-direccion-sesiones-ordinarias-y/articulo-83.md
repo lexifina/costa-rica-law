@@ -1,0 +1,2 @@
+Capítulo VI Recuperación de pagos indebidos, erróneos o en exceso
+Artículo 83°-La Municipalidad está obligada a recuperar los pagos de dietas efectuados en exceso o por error, realizados a favor de los regidores propietarios del Concejo Municipal del Cantón de Santa Bárbara, así como a los regidores suplentes, síndicos propietarios y síndicos suplentes; lo indicado de manera oportuna y en resguardo de los fondos públicos.

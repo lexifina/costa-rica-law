@@ -1,0 +1,1 @@
+Artículo 50°- En todo momento se debe garantizar la transparencia de las sesiones y sus acuerdos por lo que la plataforma virtual debe contemplar la facilidad de poder transmitirse en vivo o por medio de grabación por medios digitales de fácil acceso para los ciudadanos del cantón.

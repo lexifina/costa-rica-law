@@ -1,0 +1,1 @@
+Artículo 28°- Acuerdo Firme. Salvo el caso de los acuerdos definitivamente aprobados; los acuerdos tomados por el Concejo, quedarán en firme al aprobarse el acta respectiva. Los acuerdos que sean declarados firmes adquieren plena validez jurídica a partir de ese acto.
