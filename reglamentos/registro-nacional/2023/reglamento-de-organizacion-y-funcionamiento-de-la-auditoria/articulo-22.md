@@ -1,0 +1,1 @@
+Artículo 22°. -La persona Auditora Interna o quien le sustituya deberá administrar los recursos materiales, tecnológicos y de otra naturaleza asignados a su dependencia, por lo que le corresponde garantizar la utilización de tales recursos en forma legal, económica, eficiente, eficaz, y transparente para la consecución de las metas y objetivos de la Auditoría Interna.

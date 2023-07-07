@@ -1,0 +1,1 @@
+Artículo 2º. -Este reglamento es de acatamiento obligatorio para todos los funcionarios de la Auditoría Interna del Registro Nacional, y para el resto de los funcionarios de la Administración Activa en la materia que les resulte aplicable.

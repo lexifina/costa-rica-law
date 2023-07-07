@@ -1,0 +1,1 @@
+Artículo 24°. -Las personas Auditora y Subauditora Internas deberán ser profesionales altamente capacitados en materia de auditoría, que reúnan los conocimientos, experiencia, actitudes, aptitudes y habilidades para administrar la Auditoría Interna.

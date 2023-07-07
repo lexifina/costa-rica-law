@@ -1,0 +1,1 @@
+Artículo 68°. -Deróguese el "Reglamento de Organización y Funcionamiento de la Auditoría Interna del Registro Nacional", aprobado por la JARN, mediante Acuerdo Firme J246-2019 tomado en Sesión Ordinaria N° 18-2019, celebrada el 9 de mayo de 2019.

@@ -1,0 +1,1 @@
+Artículo 58°. -Los informes producto de los servicios de auditoría, se tramitarán de conformidad con lo dispuesto en la Ley General de Control Interno, N° 8292, con aplicación de las regulaciones establecidas en el Registro Nacional y con observancia de la normativa emitida por la CGR.

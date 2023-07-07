@@ -1,0 +1,1 @@
+Artículo 12°. -Con las excepciones de Ley, el personal de la Auditoría Interna debe mantener confidencialidad respecto de la información que se les haya suministrado para el ejercicio de su trabajo o conocido con ocasión de este.

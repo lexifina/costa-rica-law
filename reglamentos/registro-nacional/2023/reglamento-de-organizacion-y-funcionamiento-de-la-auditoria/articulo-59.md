@@ -1,0 +1,1 @@
+Artículo 59°. -La comunicación de los servicios preventivos se hará a criterio de la persona Auditora Interna o quien la sustituya, quien definirá el contenido y la forma de los informes, oficios u otros medios de comunicación, conforme a la naturaleza de los asuntos a que se refiera y su criterio profesional.
