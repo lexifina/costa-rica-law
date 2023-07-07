@@ -1,0 +1,2 @@
+Artículo 8º-De las actas de sesiones del Equipo de Control Interno. De cada sesión se levantará un acta; en ella se harán constar los acuerdos tomados. Una vez que el Equipo haya aprobado las actas, deberán ser firmadas por el Presidente.
+Las actas deberán ser aprobadas en la sesión ordinaria inmediata posterior; salvo que lo impidan razones de fuerza mayor, en cuyo caso la aprobación se pospondrá para la siguiente sesión ordinaria.

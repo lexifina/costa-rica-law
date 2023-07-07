@@ -1,0 +1,3 @@
+Artículo 6º-Nombramiento del Presidente del Equipo de Control Interno y Secretario.
+1. El presidente del Equipo de Control Interno será el encargado de la Oficina de Control Interno, quien deberá convocar y presidir las reuniones que al efecto el Equipo considere necesarias y oportunas.
+2. Del resto del personal que conforma el Equipo de Control Interno, se deberá nombrar a un secretario, con el objetivo de documentar y grabar las sesiones ordinarias y extraordinarias. Este nombramiento será electo cada dos años, mediante votación directa, utilizando para tal efecto mayoría simple de los funcionarios presentes el día de la votación. En caso de empate el presidente tiene doble voto.

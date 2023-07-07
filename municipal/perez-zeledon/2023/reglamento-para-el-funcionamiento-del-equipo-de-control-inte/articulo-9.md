@@ -1,0 +1,1 @@
+Artículo 9º-Responsabilidad por incumplimiento. De conformidad con lo dispuesto en el artículo 19 de la Ley General de Control Interno, el Jerarca y los Titulares Subordinados de los entes sujetos a dicha Ley son los responsables de mantener, dirigir y perfeccionar el sistema de Control Interno.

@@ -1,0 +1,1 @@
+Artículo 10.-Formato de actas del Equipo de Control Interno. El Equipo de Control Interno deberá contar con un formato de actas de uso obligatorio para cada sesión autorizada por el Proceso de Archivo Central.
