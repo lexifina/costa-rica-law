@@ -1,1 +1,0 @@
-Artículo 2°- Deróguese el Decreto Ejecutivo número 43888-H de fecha 09 de enero de 2023, publicado en el Alcance -número 17 a La Gaceta número 18 de fecha 01 de febrero· 2023, a partir de la vigencia del presente decreto.
