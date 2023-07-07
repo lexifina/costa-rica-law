@@ -1,0 +1,41 @@
+N° 44077-PLAN-RE-MINAE-MDHIS
+EL PRESIDENTE DE LA REPÚBLICA,
+LA MINISTRA DE PLANIFICACIÓN NACIONAL
+Y POLÍTICA ECONÓMICA, LOS MINISTROS
+DE RELACIONES EXTERIORES Y CULTO,
+EL DE AMBIENTE Y ENERGÍA, Y LA
+MINISTRA DE DESARROLLO
+HUMANO E INCLUSIÓN
+SOCIAL
+Con fundamento en las atribuciones que les confieren los artículos 140 incisos 3), 8), 18) y 20) y 146 de la Constitución Política; los artículos 1°, 5° y 17 de la Ley Orgánica del Ministerio de Relaciones Exteriores y Culto, N° 3008 de 18 de julio de 1962; los artículos 25 inciso 1), 27 inciso 1), artículo 28 párrafo segundo inciso b) y 113 de la Ley General de la Administración Pública, N° 6227 de 2 de mayo de 1978; la Ley de Planificación Nacional, N° 5525 de 2 de mayo de 1974; el artículo 2° de la Ley Orgánica del Ministerio del Ambiente y Energía, N° 7152 del 5 de junio de 1990; la Ley del Sistema de Estadística Nacional, N° 9694 de 4 de junio de 2019; el Reglamento General del Sistema Nacional de Planificación, Decreto Ejecutivo N° 37735-PLAN de 6 de mayo de 2013 y los artículos 1°, 3°, 4° y 7° del Reglamento Orgánico del Poder Ejecutivo, Decreto Ejecutivo N° 43580-MP-PLAN de 01 de junio de 2022.
+Considerando:
+I.-Que mediante resolución número A/RES/70/1 del 25 de setiembre de 2015, la Asamblea General de las Naciones Unidas aprobó la "Agenda 2030 para el Desarrollo Sostenible", en la cual se establecen 17 Objetivos de Desarrollo Sostenible y 169 metas enfocadas a lograr el desarrollo sostenible en sus tres dimensiones económica, social y ambiental, de forma equilibrada e integrada.
+II.-Que el Gobierno de Costa Rica suscribió la Agenda 2030 para el Desarrollo Sostenible cuyos compromisos son coherentes con los pilares de desarrollo priorizados en los instrumentos de planificación del Sistema Nacional de Planificación (SNP).
+III.- Que el 9 de setiembre del 2016, los Presidentes de los tres Poderes del Estado y del Tribunal Supremo de Elecciones, junto a representantes de gobiernos locales, del sector privado, de universidades estatales y de la sociedad civil, firmaron el "Pacto Nacional por el Avance de los ODS en el marco de la Agenda 2030 para el Desarrollo Sostenible en Costa Rica" y sus derivados, asumiendo un compromiso público para la consecución de los ODS.
+IV.-Que es necesaria una estrategia nacional para la implementación de los ODS en Costa Rica que reúna a las instituciones públicas, el sector privado, la academia, la sociedad civil y los gobiernos locales entre otras instancias, de manera que se faciliten espacios de diálogo y coordinación para el cumplimiento de esos objetivos, con sus respectivas metas.
+V.-Que en virtud de la estrecha relación que guarda la Agenda 2030-ODS con el Consenso de Montevideo sobre Población y Desarrollo (CdM), enfoque de derechos humanos, se considera necesario que la estrategia nacional de los ODS esté vinculada al trabajo de implementación del CdM en Costa Rica, de manera que se faciliten espacios de diálogo y coordinación para el cumplimiento de los objetivos y metas de ODS con los capítulos y medidas prioritarias del CdM.
+VI.-Que de conformidad con el artículo 12 bis del Reglamento a la Ley de Protección al Ciudadano del Exceso de Requisitos y Trámites Administrativos (Decreto Ejecutivo N° 37045-MP-MEIC del 22 de febrero de 2012) se procedió a tramitar el Formulario de Evaluación Costo Beneficio en la Sección 1 denominada Control Previo de Mejora Regulatoria, siendo que el mismo dio resultado negativo y que la propuesta no contiene trámites ni requerimientos. Por tanto,
+Decretan:
+REFORMA AL DECRETO EJECUTIVO N° 40203-PLANRE-
+MINAE DE 15 DE FEBRERO DE 2017 DENOMINADO:
+"LA GOBERNANZA E IMPLEMENTACIÓN DE LOS
+OBJETIVOS DE DESARROLLO SOSTENIBLE
+EN COSTA RICA"
+Artículo 1º-Refórmense los artículos 4 inciso a), 5, 6 inciso a), 7, 9 incisos b), c), k), 12 y 15, y adiciónense los incisos m) y n) al artículo 9° del Decreto Ejecutivo N° 40203-PLAN-REMINAE de 15 de febrero de 2017, denominado: "La Gobernanza e Implementación de Los Objetivos de Desarrollo Sostenible en Costa Rica", para que se lean de la siguiente manera:
+"Artículo 4º-Integración del Consejo. El Consejo estará integrado por:
+a) la o el Presidente de la República o la o el Vicepresidente de la República en que se delegue, quien presidirá;
+"Artículo 5º-Funcionamiento del Consejo. El Consejo se reunirá ordinariamente tres veces al año, previa convocatoria del Presidente de la República o de la o el Vicepresidente de la República en que se delegue, por medio de la Secretaría Técnica, y extraordinariamente a solicitud del Presidente de la República o de la o el Vicepresidente de la República en que se delegue, cuando lo considere necesario. En cada sesión se levantarán actas de los asuntos tratados y de los acuerdos tomados, función que atenderá la o el coordinador de la Secretaría Técnica."
+"Artículo 6º-Funciones del Consejo. El Consejo tendrá las siguientes funciones:
+a) Avalar una estrategia nacional de planificación, implementación y seguimiento de los ODS con enfoque prospectivo, integrando las dimensiones económica, social y ambiental de conformidad con las normas de Derechos Humanos, el Consenso de Montevideo sobre Población y Desarrollo, del Derecho Nacional e Internacional y en concordancia con los distintos instrumentos de planificación nacional a corto, mediano y largo plazo."
+"Artículo 7º-Comité Consultivo del Consejo de Alto Nivel de los Objetivos de Desarrollo Sostenible. Habrá un Comité Consultivo del Consejo de Alto Nivel de los Objetivos de Desarrollo Sostenible, en adelante denominado "el Comité Consultivo", como espacio de concertación y diálogo para asesorar al Consejo en la implementación de los ODS en el país. El Comité Consultivo será convocado y dirigido por la o el Ministro de Planificación Nacional y Política Económica en su rol de Secretaría Técnica de los ODS y estará integrado por los representantes titulares o los suplentes designados de cada una de las instituciones que suscribieron el "Pacto Nacional por el Avance de los ODS en el marco de la Agenda 2030 para el Desarrollo Sostenible en Costa Rica" el 9 de setiembre del 2016 y sus derivados."
+"Artículo 9º-Competencias de la Secretaría Técnica. La Secretaría Técnica tendrá las siguientes competencias:
+(...)
+b) Convocar las reuniones del Consejo y del Comité, así como elaborar las actas correspondientes.
+c) Formular, promover y dar seguimiento a las metas nacionales de los ODS al 2030 comprometidas por las administraciones que estén incorporadas en los diferentes instrumentos de planificación, como políticas, planes, programas, proyectos, así como en la presupuestación nacional, institucional, sectorial y regional.
+(…)
+k) Dar seguimiento a los acuerdos del Consejo y del Comité Consultivo.
+(...)
+m) Elaborar una estrategia nacional de planificación, implementación y seguimiento de los ODS con enfoque prospectivo, integrando las dimensiones económica, social y ambiental de conformidad con las normas de Derechos Humanos, el Consenso de Montevideo sobre Población y Desarrollo, del Derecho Nacional e Internacional y en concordancia con los distintos instrumentos de planificación nacional a corto, mediano y largo plazo.
+n) Fortalecer el enfoque de Desarrollo Sostenible de los ODS- Agenda 2030 con el enfoque de Derechos Humanos a través de la implementación del Consenso de Montevideo sobre Población y Desarrollo, y otros instrumentos atinentes."
+"Artículo 12.-Financiación de la Agenda 2030. La Agenda 2030 se financiará con los recursos ordinarios de las instituciones públicas. De manera complementaria, el Ministerio de Relaciones Exteriores y Culto, en conjunto con el Ministerio de Planificación Nacional y Política Económica, prestará el apoyo técnico necesario en materia de cooperación para el desarrollo para el cumplimiento de los ODS en Costa Rica. Este financiamiento debe de vincularse con los ODS y su Agenda 2030."
+"Artículo 15.-Interés Público. Los objetivos y acciones contenidas en el presente decreto son de interés público. Se determina de interés público también la promoción e implementación de los ODS y su Agenda 2030 en los ámbitos locales, municipales y regionales. De manera que se insta a la institucionalidad regional y local a desarrollar acciones para la localización y cumplimiento de los ODS en los territorios y comunidades del país".
