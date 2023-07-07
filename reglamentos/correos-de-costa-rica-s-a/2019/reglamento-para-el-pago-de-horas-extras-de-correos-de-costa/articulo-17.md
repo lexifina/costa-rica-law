@@ -1,7 +1,0 @@
-Artículo 17º— Requisitos. La solicitud para el pago de jornada extraordinaria laborada, debe contener los siguientes datos, sin excepción:
-a) Identificación del trabajador: Nombre y apellidos del trabajador, número de empleado, cédula de identidad, puesto desempeñado, gerencia, Gerencia, lugar de trabajo, tipo de jornada, horarios de trabajo
-b) Especificación de las horas extras: Mes en el cual se ejecutó el tiempo extraordinario; justificación del tiempo extra laborado; las fechas de los días laborados, así como la hora de entrada y salida; la totalidad de horas de tiempo extraordinario laborado durante el mes
-c) Autorizaciones: firma del trabajador; firma del superior inmediato, y Director o Gerente de Área que autorizó el tiempo extraordinario y sello.
-d) Observaciones.
-Toda la información que conste en la referida solicitud, será exclusiva responsabilidad del trabajador y del superior inmediato que lo aprueba. Lo anterior sin perjuicio de la potestad del Departamento Gestión de Personal para verificar la veracidad de todos los puntos que consten en la petición.
-La información incorrecta que por dolo o culpa grave se haga constar en la solicitud y propicie un pago irregular, implicará falta grave del Jefe y Gerente de área responsables de su verificación y aprobación. De así considerarse por parte de Departamento Gestión de Personal u otras instancias administrativas de la empresa, lo comunicarán a la gerencia que corresponda para lo que proceda.

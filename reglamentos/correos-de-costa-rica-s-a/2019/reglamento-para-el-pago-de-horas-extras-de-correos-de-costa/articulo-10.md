@@ -1,1 +1,0 @@
-Artículo 10º— Para efectos del presente Reglamento, el mes se cuenta a partir del día 01 de cada mes hasta el día final del mismo, sea de 30 o 31 días, así como la excepción en el caso del mes de febrero. Por ello a partir del 01 del mes siguiente inicia el plazo de los diez días naturales para enviar los reportes al Departamento de Gestión de Personal.

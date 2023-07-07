@@ -1,1 +1,0 @@
-Artículo 23º— El Departamento de Gestión de Personal no tramitará ninguna solicitud de horas extraordinarias no autorizadas por la jefatura y Gerencia que corresponda, que no cuente con el respectivo contenido presupuestario, y/o los requisitos establecidos en el artículo 15 del presente reglamento

@@ -1,2 +1,0 @@
-Artículo 6º— La jornada extraordinaria no podrá exigirse permanentemente. Los jefes sólo podrán requerir a sus subalternos en labores después de la jornada ordinaria cuando la labor a realizar constituya una necesidad imprevista, imperiosa o urgente de la empresa y se le avisare al trabajador con al menos 48 horas de anticipación.
-El colaborador no podrá negarse a prestar sus servicios dentro de la jornada extraordinaria, salvo causas objetivas y debidamente justificadas.
