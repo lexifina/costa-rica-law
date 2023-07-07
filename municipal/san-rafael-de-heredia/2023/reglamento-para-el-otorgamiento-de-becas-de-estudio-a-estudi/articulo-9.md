@@ -1,0 +1,1 @@
+Artículo 9º-Destino de las becas. Las becas para estudiar se otorgarán como ayudas complementarias para ser utilizadas en alimentación, la compra de uniformes, materiales didácticos, transporte, o cualquier otro gasto relacionado con las actividades educativas de la persona estudiante.

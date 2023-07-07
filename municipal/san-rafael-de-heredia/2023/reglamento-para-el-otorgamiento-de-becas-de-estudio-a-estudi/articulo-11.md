@@ -1,0 +1,1 @@
+Artículo 11.-Período de duración de la beca. Período de duración de la beca: La beca se concederá a la persona estudiante durante el plazo durante el periodo de 10 meses, siempre y cuando cumpla con lo que establece este Reglamento para mantener el beneficio.

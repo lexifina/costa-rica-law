@@ -1,0 +1,1 @@
+Artículo 29.-Derrogaciones. Este documento deroga el Reglamento vigente de Becas San Rafael de Heredia, 08 de enero de 2018 y todas las disposiciones municipales anteriores sobre la materia que aquí se Reglamenta.

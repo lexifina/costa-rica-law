@@ -1,0 +1,3 @@
+CAPÍTULO VI
+Procedimiento de evaluación
+Artículo 26.-Del órgano encargado de adjudicar becas municipales. La adjudicación de becas a estudiantes habitantes del Cantón, corresponderá al Concejo Municipal del cantón de San Rafael de Heredia, que se basará para tales efectos en el Dictamen de la Comisión Especial de Becas que contendrá la listado final de los estudiantes con número de cedula de estudiante a quienes se recomienda aprobar la beca, justificado en los antecedentes del (la) interesado(a) y en la recomendación emitida por el Concejo de Distrito encargado del Proceso de recomendar las Becas.

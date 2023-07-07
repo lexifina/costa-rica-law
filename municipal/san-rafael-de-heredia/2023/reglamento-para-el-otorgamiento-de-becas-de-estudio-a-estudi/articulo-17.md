@@ -1,0 +1,1 @@
+Artículo 17.-Divulgación del proceso de solicitud de becas. El Síndico junto al Concejo de Distrito realizará una campaña de divulgación previa acerca del Programa de Becas Municipal durante todo el mes de enero de cada año, para dar a conocer la información general del programa, requisitos y contacto para solicitar un formulario de beca.

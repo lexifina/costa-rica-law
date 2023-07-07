@@ -1,0 +1,1 @@
+Artículo 30.-Sustitución. En caso de incumplimiento de requisitos, se procederá a ver resultados según análisis de documentación, para determinar en orden de resultados cual es el estudiante que continúa enlistado según resultados de ponderación.

@@ -1,0 +1,1 @@
+Artículo 2º-Objetivo general. Regular el otorgamiento de becas en beneficio de toda aquella persona de escasos recursos, residente del Cantón de San Rafael de Heredia, que desee iniciar o se encuentre cursando estudios de primaria y secundaria en instituciones públicas de horario diurno.
