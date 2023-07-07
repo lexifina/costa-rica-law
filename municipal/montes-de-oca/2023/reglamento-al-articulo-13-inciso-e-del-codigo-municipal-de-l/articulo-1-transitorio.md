@@ -1,0 +1,2 @@
+Transitorio Único. Deróguese el "Reglamento de Gastos Fijos y Adquisiciones de Bienes y Servicios de Competencia del Señor Alcalde Municipal" del acuerdo municipal tomado en la Sesión Ordinaria número Ciento Veinticuatro / dos mil, del día trece de marzo del año dos mil. Publicado en La Gaceta 84 del 03-052000.
+Acuerdo definitivamente aprobado por el Concejo Municipal de Montes de Oca, en la Sesión Ordinaria Nro 162/2023, Articulo N° 10, del día 05 de junio 2023.

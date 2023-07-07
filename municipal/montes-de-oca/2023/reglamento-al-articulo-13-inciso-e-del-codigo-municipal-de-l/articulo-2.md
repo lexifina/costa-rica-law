@@ -1,0 +1,5 @@
+Artículo 2º-Para las Licitaciones que superen el 50% del umbral máximo para Licitaciones Reducidas; pero que no superen el 50% del umbral máximo establecido en la Ley N°9986 para las Licitaciones Menores -tanto para bienes y servicios como para obras- La alcaldía, será responsable de adoptar el acto final, la revocación del acto final no firme, la insubsistencia, la re-adjudicación, así como la nueva adjudicación y la terminación del contrato; previo informe de una Comisión interna de la administración municipal, conformada por:
+-La persona que ocupe el cargo de Gestor o Gestora de Gestión Jurídica,
+-La persona que ocupe el cargo de Gestor o Gestora de Proveeduría y.
+-La persona que ocupe el cargo de director o directora del departamento que solicita la contratación;
+En el caso de Direccionamiento Municipal será la persona que ocupe el cargo de Gestor o Gestora de Estrategia Institucional.
