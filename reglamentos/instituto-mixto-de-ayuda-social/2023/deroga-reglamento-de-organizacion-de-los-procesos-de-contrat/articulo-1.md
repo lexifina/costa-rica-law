@@ -1,0 +1,2 @@
+INSTITUTO MIXTO DE AYUDA SOCIAL
+Que mediante sesión ordinaria 012-2023 del 27 de junio de 2023 del Comité Director del Fideicomiso Banco de Costa Rica - IMAS - BANACIO 073-2002, se adoptó mediante acuerdo N° 119 se adoptó derogar el Reglamento de Organización de los Procesos de Contratación Pública del Fideicomiso Banco de Costa Rica-IMAS-BANACIO 073- 2002, aprobado en sesión ordinaria 003-2023 de fecha 08 de febrero del año 2023.
