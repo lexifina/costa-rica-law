@@ -16,3 +16,4 @@ Reglamento de operación de Caja Chica
 | 1 | 2014-10-06 | la propia norma |
 | 2 | 2016-05-10 | Reglamento 3 (2016-05-10) |
 | 3 | 2023-06-26 | Reglamento 40 (2023-06-26) |
+| 4 | 2023-07-10 | Reglamento municipal 42 (2023-07-10) |
