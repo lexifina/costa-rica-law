@@ -1,6 +1,10 @@
-Artículo 23. Obligaciones para entidades financieras. Las entidades financieras no podrán prestar el servicio, o continuar prestando el servicio, a los clientes que realicen actividades descritas en los artículos 15 y 15 bis de la Ley 7786, mientras estos no se encuentren inscritos, o se encuentren en estado de “suspendido” o “revocado”, según lo establecido en este Reglamento.
+Artículo 23. Obligaciones para entidades financieras
+Las entidades financieras podrán establecer relaciones comerciales con clientes que realicen actividades descritas en los artículos 15 y 15 bis de la Ley 7786, no obstante, no podrán habilitar el servicio mientras no se encuentren inscritos. Tampoco podrán continuar prestando el servicio a los clientes que realicen actividades descritas en los artículos 15 y 15 bis de la Ley 7786, cuando su inscripción se encuentre en estado "cancelada" o "revocada".
+Asimismo, las entidades financieras no podrán prestar el servicio o continuar prestando el servicio cuando se identifique que las cuentas declaradas como de uso exclusivo no se utilizan de forma exclusiva para la actividad declarada o se utilizan para las actividades inscritas cuentas que no han sido declaradas como de uso exclusivo ante la entidad financiera y ante la Sugef.
 Las entidades financieras deben implementar políticas, procedimientos y controles, con base en riesgo de LC/FT/FPADM, para:
-a) Verificar que el sujeto obligado (cliente) se encuentra inscrito ante la SUGEF.
-b) Verificar si el sujeto obligado (cliente) se encuentra en estado “suspendido” o “revocado”, ante la SUGEF.
+a) Verificar que la inscripción del sujeto obligado (cliente) se encuentre en estado "inscrita" ante la Sugef y definir las medidas para cuando la inscripción del sujeto obligado se encuentra en estado "suspendida" o "se niegue a inscribirse".
+b) Verificar que la inscripción del sujeto obligado (cliente) no se encuentre en estado "cancelada" o "revocada", ante la Sugef.
 c) La devolución, en caso de ser requerido, de los fondos de las cuentas, productos o servicios que utiliza el cliente en forma exclusiva para el desarrollo de las actividades sujetas a inscripción.
 d) El cierre de las cuentas, productos o servicios que sean susceptibles de finiquitarse de forma unilateral.
+e) El tratamiento de los clientes con estado de la inscripción "suspendida", "cancelada" o "revocada" ante la Sugef y la continuación de las relaciones comerciales, en atención de lo dispuesto en el ordenamiento jurídico y su exposición al riesgo de LC/FT/FPADM.
+(Así reformado mediante sesión N° 1807-2023 del 10 de julio del 2023)

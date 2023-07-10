@@ -1,12 +1,11 @@
-Artículo 10. Requisitos para la desinscripción. Para el trámite de desinscripción del sujeto obligado por los artículos 15 y 15 bis de la Ley 7786, se debe presentar, a través de los medios dispuestos y autorizados por la SUGEF, los siguientes requisitos, según corresponda:
-a) Solicitud firmada por el interesado o representante legal, según corresponda, en el que se indique:
-i. Nombre completo de la persona física o la razón o denominación social de la persona jurídica.
-ii. Número de cédula de identidad o del documento de identificación.
-b) Para las personas jurídicas, aportar la certificación emitida por el Registro Nacional, o certificación notarial en la que conste que la persona que firma la solicitud, ejerce la representación legal de la sociedad. Las certificaciones físicas deben tener una fecha de emisión no mayor a un mes. En el caso de que las certificaciones del Registro Nacional sean emitidas en forma digital, la vigencia es de 15 días naturales.
-c) Declaración jurada, en la que el solicitante o el(los) representante(s) legal(es) del solicitante, caso de personas jurídicas, indique:
-i. Los motivos por los cuales solicita la desinscripción.
-ii. Manifestación expresa de su compromiso de que no realiza ni realizará las actividades a las que refieren los artículos 15 o 15 bis de la Ley 7786 por la(s) que fue inscrito.
-iii. Manifestación expresa sobre su compromiso de que el sujeto inscrito conservará, una vez se desinscriba, durante el plazo mínimo dispuesto en la Ley 7786, los registros de la identidad de los clientes, los archivos de cuentas, la correspondencia comercial y las operaciones financieras que permitan reconstruir o concluir la transacción.
-iv. La manifestación expresa de que libera de responsabilidad a la SUGEF por la ejecución de las actividades de los artículos 15 y 15 bis de la Ley 7786, una vez se desinscriba.
-v. Que finiquitó todos los contratos que tenía vigentes, por medio de los cuales se obligaba con terceros a administrar los recursos y que devolvió todos los fondos.
-d) Encontrarse al día en sus obligaciones respecto a la contribución definida en el artículo 174 de la Ley Reguladora del Mercado de Valores, Ley 7732.
+Artículo 10. Requisitos para la desinscripción
+Para efectos del trámite de desinscripción del sujeto obligado por las actividades dispuestas en los artículos 15 y 15 bis de la Ley 7786, se debe presentar la solicitud de desinscripción firmada por el solicitante o por su representante legal, por medio de la herramienta tecnológica dispuesta y autorizada por la Sugef. La solicitud presentada por el sujeto obligado tendrá carácter de declaración jurada y debe contener la siguiente información y documentación:
+a. Nombre completo de la persona física o la razón o denominación social de la persona jurídica.
+b. Número de cédula de identidad o del documento de identificación.
+c. Manifestación expresa sobre su compromiso de que el sujeto inscrito conservará, una vez se desinscriba, durante el plazo mínimo dispuesto en la Ley 7786, los registros de la identidad de los clientes, los archivos de cuentas, la correspondencia comercial y las operaciones financieras que permitan reconstruir o concluir la transacción.
+d. Manifestación expresa de que finiquitó las relaciones comerciales que tenía vigentes, por las cuales se obligaba a estar inscrito ante la Sugef.
+e. Encontrarse al día con todo tipo de requerimiento realizado por la Sugef. La Superintendencia verificará internamente que el sujeto obligado haya atendido este requerimiento.
+f. Encontrarse al día con el suministro de la información requerida para la categorización por tipo de sujeto inscrito en el sistema Sugef Directo, en el menú Plataforma de Supervisión, según lo dispuesto en el Reglamento de Prevención del Riesgo de LC/FT/FPADM, Acuerdo Sugef 13-19 y haber asignado la cuenta IBAN para el débito del canon por supervisión. La Superintendencia verificará internamente que el sujeto obligado haya atendido este requerimiento.
+g. Los sujetos obligados inscritos por el artículo 15 que soliciten la desinscripción, deberán modificar su objeto único en el Registro Nacional y presentar la documentación que evidencie el cambio.
+En el caso de los sujetos inscritos por la actividad de facilidades crediticias, que soliciten la desinscripción por cuanto su transaccionalidad promedio mensual en las cuentas declaradas como de uso exclusivo para la actividad inscrita, de los últimos doce meses sea igual o inferior a los EUA$ 5.000,00 (dólares en moneda de los Estados Unidos de América), la Superintendencia verificará, que cumpla con el monto del umbral establecido."
+(Así reformado mediante sesión N° 1807-2023 del 10 de julio del 2023 )

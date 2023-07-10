@@ -34,4 +34,6 @@ AUTORIZADO, ACTIVIDADES CONEXAS, LEGITIMACIÓN DE CAPITALES Y
 FINANCIAMIENTO AL TERRORISMO, LEY 7786
 CAPITULO I
 DISPOSICIONES GENERALES
-Artículo 1. Objeto. Este Reglamento tiene por objeto regular, los trámites, los plazos y las obligaciones relacionados con la inscripción y desinscripción ante la SUGEF, de los sujetos obligados que realicen alguna o algunas de las actividades descritas en los artículos 15 y 15 bis de la Ley 7786.
+Artículo 1. Objeto
+Este Reglamento tiene por objeto regular los trámites, los plazos y las obligaciones relacionados con la inscripción y desinscripción ante la Sugef, de los sujetos obligados que realicen alguna o algunas de las actividades descritas en los artículos 15 y 15 bis de la Ley 7786, conocidas como Actividades y Profesiones No Financieras Designadas (APNFD)."
+(Asi reformado mediante sesión N° 1807-2023 del 10 de julio del 2023)

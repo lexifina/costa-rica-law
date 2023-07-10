@@ -17,3 +17,4 @@ Reglamento para la inscripción y desinscripción ante la SUGEF de los sujetos o
 | 2 | 2019-05-28 | Reglamento 1503 (2019-05-28) |
 | 3 | 2019-11-25 | Reglamento 1545 (2019-11-25) |
 | 4 | 2021-01-18 | Reglamento 1637 (2021-01-18) |
+| 5 | 2023-07-10 | Reglamento 1807 (2023-07-10) |
