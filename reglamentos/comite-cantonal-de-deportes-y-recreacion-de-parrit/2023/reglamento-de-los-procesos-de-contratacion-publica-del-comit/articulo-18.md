@@ -1,0 +1,1 @@
+Artículo 18.- Elaboración del Plan de Adquisiciones. Será responsabilidad del Asistente de Operaciones deberá la elaboración y publicar del Plan de Adquisiciones Anual que deberá estar listo a más tardar el 15 de enero de cada año.

@@ -1,0 +1,1 @@
+Artículo 37. Finiquito de los contratos. El Fiscalizador del Contrato será el encargado de formalizar el finiquito de los contratos adjudicados por este y gestionar la firma del Presidente para los que este adjudicó y los que adjudicó la Junta Directiva.

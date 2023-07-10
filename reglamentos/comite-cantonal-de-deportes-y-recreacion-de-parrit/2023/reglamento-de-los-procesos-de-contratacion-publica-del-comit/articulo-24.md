@@ -1,0 +1,1 @@
+Artículo 24.- Invitación. El Asistente de Operaciones deberá será el responsable de realizar la invitación para cada procedimiento que se promueva, utilizando el Sistema Digital Unificado, y de conformidad con lo establecido por la Ley General de Contratación Pública y su Reglamento.

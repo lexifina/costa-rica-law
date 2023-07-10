@@ -1,0 +1,1 @@
+Artículo 2.- Ámbito de aplicación. Este reglamento será aplicable, a todos los procedimientos de contratación pública que promueva el CCDR de Parrita. Las contrataciones que se hagan mediante el procedimiento de Caja Chica serán realizadas según lo definido en el correspondiente reglamento.
