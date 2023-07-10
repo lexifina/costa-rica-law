@@ -1,0 +1,4 @@
+Artículo 12. Evaluación de rendimientos La evaluación de rendimientos se efectuará por medio de la relación entre la utilidad acumulada trimestral sobre el patrimonio contable promedio trimestral.
+La evaluación del indicador de rentabilidad se realizará respecto de los siguientes parámetros:
+Indicador | Nivel 1 | Nivel 2 | Nivel 3 | Nivel 4
+Utilidad o Pérdida Acumulad a Trimestral /Patrimoni o contable promedio | Utilidades acumulada s trimestrales iguales o mayores al 2% del patrimonio promedio trimestral | Utilidades acumuladas trimestrales menores al 2% pero iguales o mayores al 0% del patrimonio promedio trimestral | Pérdidas acumuladas trimestrales mayores al 0% pero iguales o menores al 15% del patrimonio promedio trimestral | Pérdidas acumuladas trimestrales mayores al 15% del patrimonio promedio trimestral

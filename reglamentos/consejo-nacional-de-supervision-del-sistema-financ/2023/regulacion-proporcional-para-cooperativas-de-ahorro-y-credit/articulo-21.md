@@ -1,0 +1,1 @@
+Artículo 21. Vigencia de la situación de Irregularidad El grado de irregularidad asignado a una entidad rige a partir de la fecha en que sea comunicado por el Superintendente y hasta la fecha en que el Superintendente comunique alguna modificación al grado de irregularidad asignado previamente.

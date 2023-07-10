@@ -1,0 +1,1 @@
+Transitorio II. Planes de acción o saneamiento Los planes de acción o saneamiento originados según el Reglamento para Juzgar la Situación Económica-Financiera de las Entidades Fiscalizadas, Acuerdo SUGEF 24-00, o el Reglamento para calificar a las entidades supervisadas, Acuerdo SUGEF 24-22, quedarán sin efecto a partir de la entrada en vigencia de este Reglamento.
