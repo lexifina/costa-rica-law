@@ -14,3 +14,4 @@ Reglamento para el Registro de Empresas ante la Dirección General de Migración
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-05-20 | la propia norma |
+| 2 | 2023-07-11 | Decreto Ejecutivo 44179 (2023-07-11) |
