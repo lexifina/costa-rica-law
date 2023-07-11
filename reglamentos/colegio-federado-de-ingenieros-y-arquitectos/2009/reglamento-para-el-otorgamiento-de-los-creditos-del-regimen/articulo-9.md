@@ -1,1 +1,3 @@
-Artículo 9º—Tendrá derecho a las diferentes líneas de crédito todo aquel miembro que se encuentre al día en las obligaciones adquiridas con el C.F.I.A., y que fehacientemente demuestre el cumplimiento de las normas establecidas en este Reglamento y el acatamiento de las regulaciones que sobre el asunto apruebe la Junta Administradora.
+CAPÍTULO IV
+Comité de Crédito
+Artículo 9º-El Régimen de Mutualidad contará con un Comité de Crédito, el cual será nombrado por la Junta Administradora.

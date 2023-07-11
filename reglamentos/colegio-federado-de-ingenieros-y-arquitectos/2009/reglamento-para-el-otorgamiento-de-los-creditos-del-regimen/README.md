@@ -18,3 +18,4 @@ Reglamento para el otorgamiento de los créditos del Régimen de Mutualidad
 | 3 | 2010-03-16 | Reglamento 23 (2010-03-16) |
 | 4 | 2012-09-11 | Reglamento 41 (2012-09-11) |
 | 5 | 2015-10-13 | Reglamento 35 (2015-10-13) |
+| 6 | 2023-07-11 | Reglamento 27 (2023-07-11) |

@@ -1,9 +1,3 @@
-CAPÍTULO XII
-Clasificación de deudores
-Artículo 26.—
-TIPO A: Deudores que no presentaron problemas en el manejo de sus créditos anteriores con el Régimen de Mutualidad y otros entes financieros, califican también los nuevos solicitantes. Entrarán en esta clasificación aquellos deudores cuyos pagos están al día o presentan un atraso de igual o menor a treinta días.
-TIPO B: Son los que tuvieron atrasos constantes en sus créditos anteriores con el Régimen de Mutualidad y otros entes financieros e hicieron arreglos de pago y los cumplieron. A estos solicitantes se les pedirá al menos un fiador asalariado. En esta clasificación se encuentran aquellos deudores que estén o estuvieron en mora de igual o menor a 60 días. Se incluirán dentro de este grupo a los que por una única vez se les haya aplicado una gestión de cobro extrajudicial.
-TIPO C: Deudores con problemas de pago anteriores con el Régimen de Mutualidad y otros entes financieros y que se les ha aplicado repetidamente gestiones de cobro extrajudicial. Únicamente podrán optar por un crédito ofreciendo garantía
-hipotecaria. En esta clasificación se encuentran aquellos deudores que estén o estuvieron en mora de igual o menor a 90 días.
-TIPO D: Son los deudores de cualquier entidad nacional, que llevados a cobro judicial hayan sido ejecutados mediante sentencia firme a pagar las sumas adeudadas. En estos casos, los interesados tendrán oportunidad de optar por un nuevo crédito, únicamente cuando haya transcurrido un plazo de 5 años desde la fecha en que se encuentre debidamente acreditada la cancelación de las deudas, quedando sujetos a lo establecido para deudores TIPO C. En esta clasificación se encuentran aquellos deudores que estén o estuvieron en mora de igual o menor a 120 días.
-(Así reformado mediante sesión ordinaria N° 35-14/15 del 13 de octubre del 2015)
+CAPÍTULO X
+Aprobación de Créditos y Desembolsos
+Artículo 26.-Una vez cumplidos los trámites correspondientes, los préstamos se aprobarán por tipo de crédito, de conformidad con la disponibilidad financiera del Fondo, y según el presupuesto asignado en el Plan Anual Operativo a nivel global y por la línea de crédito.

@@ -1,0 +1,1 @@
+Artículo 27.-Del desembolso inicial de cada crédito aprobado serán deducidos los gastos de formalización correspondientes, así como los intereses por adelantado al treinta de cada mes según el día formalizado. El otorgamiento de los créditos caducará treinta días después de la fecha en que el Régimen de Mutualidad asigne su formalización.

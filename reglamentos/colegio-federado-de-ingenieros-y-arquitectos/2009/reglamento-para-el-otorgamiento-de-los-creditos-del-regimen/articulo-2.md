@@ -1,4 +1,2 @@
-CAPÍTULO II
-Fuentes de recursos
-Artículo 2º—Para cumplir con el artículo anterior, el Régimen contará con los fondos asignados mediante presupuesto, por la Asamblea de Representantes del Colegio Federado de Ingenieros y de Arquitectos de Costa Rica (C.F.I.A.); y será administrado de acuerdo con el Plan Anual Operativo aprobado, conforme lo establece el artículo 13 de este reglamento.
-(Así reformado mediante sesión ordinaria N° 35-14/15 del 13 de octubre del 2015)
+Artículo 2º-El establecimiento de las condiciones, requisitos, fijación de tasas de interés, plazos, tipos de líneas de crédito y cualquier otro que se requiera para la operatividad de los créditos que brindará el Régimen de Mutualidad, así como el procedimiento y condiciones de cobro, serán acordados por la Junta Administradora del Régimen de Mutualidad (para los fines de este reglamento en adelante denominado Junta Administradora), previa recomendación técnica del Comité de Crédito, la Gerencia y el área de Crédito y Cobro del Régimen de Mutualidad, para finalmente someter a la Junta Directiva General del Colegio Federado de Ingenieros y de Arquitectos de Costa Rica su aprobación definitiva.
+Las políticas, manuales y otros instrumentos que se generen de lo anterior, serán comunicados a los agremiados, por los medios que al efecto determine la Junta Administradora.

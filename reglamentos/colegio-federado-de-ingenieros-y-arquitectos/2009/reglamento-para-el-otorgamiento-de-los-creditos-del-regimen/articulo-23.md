@@ -1,14 +1,7 @@
-CAPÍTULO IX
-Cumplimiento de pago
-Artículo 23.—El cumplimiento de pago debe ajustarse a lo siguiente:
-a) A todas y cada una de las disposiciones establecidas en los documentos legales de garantía firmados al efecto.
-b) Las amortizaciones a los créditos y sus intereses se harán mensualmente en cuotas iguales y consecutivas, los intereses se cobrarán por adelantado en cada cuota mensual.
-Los créditos podrán ser cancelados en forma adelantada por el saldo del préstamo, siempre que los intereses se encuentren al día. La forma de cálculo para los intereses será de 360 días
-(Así reformado el inciso anterior mediante sesión ordinaria N° 35-14/15 del 13 de octubre del 2015)
-Los créditos podrán ser cancelados en forma adelantada por el saldo del préstamo, siempre que los intereses se encuentren al día.
-c) El Régimen podrá exigir la cancelación inmediata de la deuda por:
-c.1. Falta de pago oportuno de una cuota,
-c.2. Por comprobación de que el crédito otorgado hubiese sido destinado a fines distintos para lo que ha sido aprobado
-c.3. Porque se desmejore la garantía ofrecida.
-(Así reformado el inciso c) anterior mediante sesión ordinaria N° 35-14/15 del 13 de octubre del 2015)
-d) Los gastos en que incurra el Régimen en cualquier acción por cobranza, serán pagados en su totalidad por el deudor o garantes intervenidos.
+CAPÍTULO VIII
+Pólizas y Coberturas
+Artículo 23.-Toda operación crediticia tendrá cobertura de la póliza de saldos deudores durante todo el plazo del crédito, para en caso de fallecimiento del deudor, el saldo de la operación crediticia se cancele en su totalidad, esta se podrá tomar con cualquier entidad aseguradora supervisada por SUGESE que disponga el Régimen de Mutualidad, la cuota mensual de la póliza se sumará a la cuota del monto correspondiente al crédito.
+a) Los créditos sobre inmuebles, vehículos u otro bien mueble, tendrán que estar cubiertos con las pólizas asignadas por el Régimen de Mutualidad, que garanticen la protección del bien en caso de desastres naturales, incendio, choques o pérdidas totales, aplicándola según la política de pólizas. La cuota mensual de la póliza se sumará a la cuota del monto correspondiente al crédito.
+b) En caso de que el deudor se encuentre moroso en alguna de sus operaciones crediticias al momento de su muerte, se utilizará el beneficio de mutualidad para saldar la deuda correspondiente, entregándose el saldo, si lo hubiere, a sus beneficiarios o a quien en derecho corresponda.
+c) De darse el caso de que un profesional no sea objeto de cobertura en la Póliza de Saldos Deudores vigente a favor del Colegio Federado de Ingenieros y de Arquitectos de Costa Rica, pero que sin embargo tiene capacidad de pago según las disposiciones vigentes, podrá tener acceso a un crédito brindando alguna garantía según los requerimientos estipulados, y cualquier otro que considere pertinente el Comité de Crédito, que cubra suficientemente el riesgo cuando se presente.
+d) En cualquiera de los casos y a criterio del Régimen de Mutualidad, al rubro que se traslade a la cuota de cada operación de crédito se podrá imputar un recargo por gestión de este riesgo, sin que supere un porcentaje mayor a cien puntos base del costo, y será responsabilidad de la administración mantenerla cubierta en todo momento, aún y cuando exista mora del miembro.

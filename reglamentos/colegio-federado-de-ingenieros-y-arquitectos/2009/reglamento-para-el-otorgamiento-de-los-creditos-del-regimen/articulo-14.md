@@ -1,13 +1,8 @@
 CAPÍTULO V
-Garantías
-Artículo 14.—En ningún caso la mutualidad puede ser ofrecida como garantía. Las garantías sobre cualquier crédito otorgado, hasta su cancelación total, serán:
-a) Las fiduciarias, hipotecarias, prendarias, títulos valor, garantías combinadas necesarias de acuerdo con las regulaciones que se establezcan.
-a.1. El solicitante puede agregar codeudores siempre que sean agremiados al CFIA o que posea relación de primer grado de consanguinidad y cónyuge, además que cumpla con los requisitos propios del deudor y las garantías estipuladas en el artículo 14 inciso a) de este Reglamento.
-(Así reformado el inciso anterior mediante sesión ordianria N° 35-14/15 del 13 de octubre del 2015)
-b) La póliza o sistema que para caso de fallecimiento se establezca. En caso de que el deudor se encuentre moroso en alguna de sus operaciones crediticias al momento de su muerte, se utilizará el beneficio de mutualidad para saldar la deuda correspondiente, entregándose el saldo, si lo hubiere, a sus beneficiarios o a quien en derecho corresponda.
-Para los créditos de vivienda o compra de condominio no se cobrará la garantía de vida y el Régimen cobrará dentro de la cuota mensual una póliza de saldos deudores o la que aplique será adquirida por medio de una institución aseguradora supervisada por la SUGESE.
-(Así reformado el inciso anterior mediante sesión ordianria N° 35-14/15 del 13 de octubre del 2015)
-c) Una póliza de vida con cualquier institución aseguradora supervisada por la SUGESE cuyo beneficiario sea el Colegio Federado de Ingenieros y de Arquitectos de Costa Rica.
-(Así reformado el inciso anterior mediante sesión ordianria N° 35-14/15 del 13 de octubre del 2015)
-d) En caso de que el profesional mayor de 65 años no cuente con una póliza de vida, una vez cumplido lo establecido en el inciso a) de este artículo, podrá tener acceso a un crédito que no supere el 50% del monto del beneficio de la mutualidad vigente al momento de la solicitud del mismo, siempre y cuando firme un documento de cesión de derechos del beneficio en el cual indique que el mismo se utilizará para cancelar el crédito en caso de que requiera solicitar un adelanto o fallezca, el remanente se repartirá dentro de sus beneficiarios según lo estipulado en la boleta vigente a la fecha del deceso. (Así reformado mediante Asamblea de Representantes Nº 0202/03-AER de fecha 13 de marzo de 2003, publicada en el Diario Oficial La Gaceta N º 116 del 18 de junio del 2003).
-e) Aval para la línea de crédito personal sin fiador, sustentado en el récord crediticio y el perfil aprobado por la Junta Administradora del Régimen con los requisitos que establezca la Administración del Régimen y en concordancia con el inciso d) del artículo 8º de este reglamento.
+Uso y destino de los créditos
+Artículo 14.-Para el cumplimiento de las funciones legalmente establecidas del Régimen de Mutualidad, se dispone de recursos provenientes del manejo patrimonial del Fondo de Mutualidad, que dan sostenibilidad al crecimiento de la reserva actuarial que debe garantizar el pago de la promesa del beneficio de Mutualidad.
+El Régimen de Mutualidad dispondrá de al menos las siguientes categorías de líneas generales de crédito para uso de sus miembros:
+a) Vivienda: Soluciones de vivienda y afines que contribuyen al desarrollo de los miembros.
+b) Personales: Utilizado en diferentes necesidades personales.
+c) Desarrollo Profesional: Para ser utilizado en los siguientes casos: actualización profesional, compra de vehículo, maquinaria o equipo de trabajo, remodelación y desarrollo de oficina, y otras actividades profesionales que requieran capital de trabajo que generen ingresos adicionales al colegiado.
+d) Gastos Médicos: Para ser utilizado en necesidades de tratamientos, operaciones y equipo médico.

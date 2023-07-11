@@ -1,27 +1,6 @@
-Artículo 18.—Cuando se trate de garantía mediante títulos valores se establece lo siguiente:
-a) CDP (Certificados de Depósito a Plazo):
-a.1. Solamente se aceptarán certificados de Entidades del Sistema Bancario Nacional, Mutuales y Banco Popular y de Desarrollo Comunal.
-a.2. Dichos Certificados pueden ser en Dólares Estadounidenses y Colones y otra moneda autorizada por el Sistema Bancario Nacional. En caso de ser en dólares estadounidenses se tomará como precio de compra vigente definido por el Banco Central de Costa Rica.
-(Así reformado el inciso anterior mediante sesión ordinaria N° 35-14/15 del 13 de octubre del 2015)
-a.3. Se excluye de esta garantía los Títulos Desmaterializados.
-a.4. El CDP que se acepte como garantía será pignorado en primer grado durante toda la vigencia del crédito, y éste se otorgará sobre un máximo del 80% del valor facial.
-(Así reformado el inciso anterior mediante sesión ordinaria N° 35-14/15 del 13 de octubre del 2015)
-a.5. En elmomento de otorgar el crédito el solicitante debe endosar el CDP a favor delCFIA y el mismo quedará en custodia del Régimen.
-(Así reformado el inciso anterior mediante sesión ordinaria N° 35-14/15 del 13 de octubre del 2015)
-a.6. El plazo del préstamo no puede ser mayor a la fecha de vencimiento del CDP.
-a.7. Junto con la solicitud de crédito se presentarán los siguientes documentos cuando corresponda:
-· Copia del CDP.
-· Si el CDP a pignorar pertenece a otra persona, física o jurídica, se requerirá una autorización firmada por el dueño o el representante legal. Deberán presentarse la personería jurídica según corresponda si es de una sociedad. Con un acta protocolizada de la misma.
-· Presentar una copia de la cédula del dueño del CDP.
-b) Títulos Valores de la Bolsa Nacional de Valores:
-b.1. Solamente se aceptarán títulos valores emitidos por el Banco Central de Costa Rica, Ministerio de Hacienda o Instituciones del Estado.
-b.2. Dichos Títulos pueden ser en Dólares Estadounidenses y Colones. En caso de ser en dólares estadounidenses se tomará como precio de compra vigente, definido por el Banco Central de Costa Rica.
-(Así reformado el inciso anterior mediante sesión ordinaria N° 35-14/15 del 13 de octubre del 2015)
-b.3. Los Títulos Valores que se acepten como garantía serán pignorados en primer grado durante toda la vigencia del crédito, y éste se otorgará sobre un máximo del 80% del valor facial.
-(Así reformado el inciso anterior mediante sesión ordinaria N° 35-14/15 del 13 de octubre del 2015)
-b.4. Junto con la solicitud de crédito se presentarán los siguientes documentos cuando corresponda:
-· Si el Título Valor a pignorar pertenece a otra persona, física o jurídica, se requerirá una autorización firmada por el dueño o el representante legal. Deberán presentarse la personería jurídica según corresponda si es de una sociedad. Con un acta protocolizada de la misma.
-· Presentar una copia de la cédula del dueño del Título Valor.
-· Certificación del Título Valor, emitido por el Puesto de Bolsa.
-· Presentar la solicitud de autorización, ante el Puesto de Bolsa en el que se encuentre el Título Valor, que será firmado por solicitante y el Régimen de Mutualidad del CFIA. Este es un formulario emitido por el Puesto de Bolsa.
-b.5. Una vez finalizado el crédito el solicitante es quien debe tramitar la liberación del Título ante el Puesto de Bolsa respectivo. Para lo cual el Régimen le facilitará los documentos necesarios para realizarlo.
+Artículo 18.-En lo que se refiere a garantía fiduciaria se establece lo siguiente:
+a) No podrán ser fiadores las personas pensionadas o jubiladas, a menos que demuestren por medio de una certificación de contador público autorizado que tienen ingresos adicionales demostrables, para lo cual solo se tomará en cuenta el ingreso adicional al monto percibido de pensión.
+b) Se admite un fiador extranjero, siempre que el mismo cuente con cédula vigente de residencia permanente costarricense de libre condición, esto en el caso de que se requieran dos fiadores, para lo cual el segundo fiador debe ser asalariado y costarricense. Para el caso en el que se requiera un solo fiador, el mismo no puede ser extranjero.
+c) Se admitirán los fiadores necesarios cuando así se requiera, de los cuales al menos uno debe ser asalariado. La suma de los ingresos netos mensuales de los fiadores deberá cubrir el porcentaje del monto del préstamo que estipule el Comité de Crédito, con base en la recomendación técnica de la administración del Régimen de Mutualidad, en apego a las condiciones económicas del país que rijan en el ejercicio económico respectivo.
+d) Los fiadores en conjunto deberán presentar un endeudamiento tal que sus salarios netos cubran la cuota del crédito.
+e) Los miembros del CFIA podrán otorgar como máximo dos fianzas, para esto se requiere que cumplan los requisitos establecidos en las políticas y los perfiles de crédito.

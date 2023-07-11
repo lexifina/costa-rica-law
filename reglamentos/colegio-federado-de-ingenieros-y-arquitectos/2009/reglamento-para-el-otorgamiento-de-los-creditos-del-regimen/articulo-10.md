@@ -1,2 +1,9 @@
-Artículo 10.—Los miembros de la Junta Directiva General y de la Junta Administradora podrán ser sujetos de crédito en las mismas condiciones que los demás miembros del C.F.I.A., pero deberán abstenerse de participar como integrante del Comité de Crédito, Junta Administradora o Junta Directiva General, en cualquier etapa de tramitación de su solicitud.
-(Así reformado mediante sesión ordinaria N° 35-14/15 del 13 de octubre del 2015)
+Artículo 10.-Estará constituido por un coordinador, un secretario, un vocal y un suplente, quienes serán electos en su seno.
+Será convocado por la Gerencia o en su defecto por quien tenga dicha función. Sus resoluciones se tomarán por mayoría simple, en caso de empate la coordinación o el miembro del Comité de Crédito que presida tendrá voto de calidad. Para sus sesiones se tendrá quórum con la presencia de dos miembros, en ausencia de la parte coordinadora, el cargo será ocupado temporalmente por el miembro de mayor edad. Cesará de su cargo como miembro aquel que incurra en dos ausencias consecutivas sin justificación, o seis ausencias justificadas en 1 año.
+El Comité de Crédito sesionará al menos una vez por semana, se manera presencial o virtual. Para este último supuesto, se podrá celebrar con la participación virtual de alguno o la totalidad de sus miembros, siempre y cuando se cumplan los siguientes requisitos obligatorios:
+a) El miembro del Comité asume la responsabilidad de contar con internet, el equipo y las condiciones tecnológicas que le permitan tener acceso y cumplir con las funciones encomendadas.
+b) Que se mantenga la simultaneidad en la deliberación y la certeza en la votación. Lo anterior implica, al menos, que pueda participar en la discusión a viva voz con los otros miembros de la Comisión y se tenga acceso a documentos que se analizan durante la deliberación.
+c) Que se garantice y asegure la identidad de las personas, miembros del Comité, que participan en la sesión en modalidad virtual.
+d) Que garantice y asegure la integridad y autenticidad de la voluntad que expresa, tanto durante las deliberaciones, como la certeza de su manifestación al momento de cada votación.
+e) Que se garantice la conservación de lo actuado, grabación de la sesión, hasta la aprobación del acta.
+f) Que garantice la confidencialidad de la sesión.

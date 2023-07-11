@@ -1,4 +1,5 @@
-CAPÍTULO VI
-Plazo para cancelación
-Artículo 19.—En el Plan Anual Operativo se deberá establecer el plazo máximo de cancelación para cada línea de crédito, para los créditos nuevos y entrará en vigencia en el nuevo periodo presupuestario.
-(Así reformado mediante sesión ordinaria N° 35-14/15 del 13 de octubre del 2015)
+Artículo 19.-En cuanto a la garantía prendaria se establece lo siguiente:
+a) El bien mueble que se acepte como garantía prendaria deberá cumplir con el procedimiento de valoración de bienes muebles e inmuebles, aprobado por la Junta Administradora. Se admitirán vehículos automotores como garantía prendaria en primer grado. El crédito se otorga sobre el porcentaje de financiamiento determinado en la política del crédito.
+b) El perito que al efecto se nombre para valorar el bien será nombrado por el Régimen de Mutualidad. En el caso que la garantía sea nueva de fábrica no requiere avalúo, caso en el cual, para hacer el cálculo de la cobertura, se tomará en cuenta el precio de venta de la factura proforma de la entidad que vende el bien.
+c) Si el vehículo a grabar es usado, el mismo debe atender a la política y al Procedimiento de Valoración de Garantías de Bienes Muebles e Inmuebles.
+d) Una vez aprobado el crédito, el Régimen de Mutualidad asignará un notario para la formalización del préstamo con garantía prendaria, quien se encargará además de los trámites de inscripción de la respectiva escritura.

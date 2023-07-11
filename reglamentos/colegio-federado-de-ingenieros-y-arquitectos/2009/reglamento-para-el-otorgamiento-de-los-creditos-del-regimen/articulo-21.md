@@ -1,7 +1,9 @@
-CAPÍTULO VIII
-Aprobación de créditos y desembolsos
-Artículo 21.—Una vez cumplidos los trámites correspondientes, los préstamos se aprobarán por tipo de crédito de conformidad con los siguientes parámetros:
-a) La disponibilidad financiera del Régimen, presupuestado en el Plan Anual Operativo
-(Así reformado el inciso anterior mediante sesión ordinaria N° 35-14/15 del 13 de octubre del 2015)
-b) El orden numérico en que fueron presentadas las solicitudes.
-c) Siempre se le dará prioridad a los préstamos de auxilio.
+Artículo 21.-Cuando se trate de garantía mediante títulos valores se establece lo siguiente:
+I. CDP (Certificados de Depósito a Plazo):
+a. Solamente se aceptarán certificados de Entidades del Sistema Financiero Nacional.
+b. Dichos certificados pueden ser en moneda nacional o extranjera autorizada por el Sistema Financiero Nacional. El tipo de cambio de referencia para la moneda extranjera será el definido por el Banco Central de Costa Rica.
+c. Se excluye de esta garantía los títulos desmaterializados o que tengan restricciones para ser ejecutados.
+II. Títulos Valores de la Bolsa Nacional de Valores:
+a. Solamente se aceptarán títulos valores emitidos por el Banco Central de Costa Rica, Ministerio de Hacienda o Instituciones del Estado.
+b. Dichos títulos valores pueden ser en moneda nacional o extranjera autorizada por el Sistema Financiero Nacional. El tipo de cambio de referencia para la moneda extranjera será el definido por el Banco Central de Costa Rica.
+c. En todos los casos se deberán endosar a favor del Colegio Federado de Ingenieros y de Arquitectos de Costa Rica.

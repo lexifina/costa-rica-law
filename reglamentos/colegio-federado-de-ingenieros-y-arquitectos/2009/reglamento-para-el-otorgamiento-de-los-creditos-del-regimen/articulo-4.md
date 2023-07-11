@@ -1,4 +1,4 @@
-Artículo 4º—El Comité de Crédito tendrá las siguientes funciones:
-a. Conocer y aprobar en conjunto con la Gerencia del Régimen de Mutualidad las solicitudes de crédito que reúnan los requisitos y condiciones que estipula el Reglamento de Crédito.
-b. Recomendar los cambios al Reglamento de Crédito, a efecto de ajustarlo a las necesidades e intereses del Régimen de Mutualidad.
-c. Informar a la Junta Administradora del Régimen de Mutualidad de los créditos aprobados y rechazados.
+CAPÍTULO II
+Fuente de Recursos
+Artículo 4º-Para cumplir con el artículo anterior, el Régimen de Mutualidad contará con los fondos asignados mediante presupuesto por la Asamblea de Representantes del Colegio Federado de Ingenieros y de Arquitectos de Costa Rica (C.F.I.A.), establecido así en el artículo Nº84 inciso b) del Reglamento Interior General; y será administrado de acuerdo con el Plan Anual Operativo aprobado, conforme lo establece este reglamento.
+Asimismo, el Régimen de Mutualidad, con el fin de beneficiar a sus miembros con un mayor acceso a crédito, podrá obtener recursos a través de los medios de financiamiento que ofrece el sistema bancario nacional o cualquier otro organismo nacional o internacional, previa aprobación de los instrumentos respectivos por parte de la Junta Directiva General del C.F.I.A., de acuerdo con las limitaciones de Ley y los reglamentos respectivos.

@@ -1,13 +1,12 @@
-Artículo 16.—En cuanto a la garantía prendaria se establece lo siguiente:
-a) Se admitirán vehículos como garantía prendaria en primer grado. El crédito se otorga sobre el 70% del valor determinado por el avalúo que un perito designado por el Régimen le practique al bien, costo que será cubierto por el mismo asociado y deberá ser cancelado antes de la formalización del crédito. En el caso que la garantía sea nueva, cero kilómetros, del año, no requiere avalúo, se tomará en cuenta el precio de venta de la factura proforma para hacer el cálculo de la cobertura.
-b) El vehículo a pignorar no podrá ser de un modelo de más de seis años de fabricación. Asimismo, la Administración verificará que la garantía cubra los saldos del crédito en todo el plazo, y el solicitante deberá cancelar una póliza de seguro con una empresa de seguros supervisada por la SUGESE, durante la vigencia del crédito, con la cobertura total (colisión, vuelco por colisión, responsabilidad civil por lesiones o muerte a terceras personas, daño a la propiedad privada, incendio, robo y riesgos adicionales, este costo lo cubrirá el asociado).
-El Régimen queda facultado para iniciar el trámite de cobro judicial correspondiente, reservándose el derecho de pagar el monto de la póliza y cargarlo a la cuenta. En las pólizas que se suscriban al amparo de este requisito, deberá aparecer el Colegio Federado de Ingenieros y de Arquitectos de Costa Rica como acreedor prendario.
-(Así reformado el inciso anterior mediante sesión ordianria N° 35-14/15 del 13 de octubre del 2015)
-c) Junto con la solicitud de crédito, deberán adjuntarse los siguientes documentos:
-c.1. Certificación literal del Registro Público (en donde conste que el vehículo está libre de anotaciones, gravámenes, infracciones y prendas, con no más de treinta días de emitida).
-c.2. Copia del derecho de circulación al día.
-c.3. Opción de compraventa en el caso de que se tramite conjuntamente con la prenda, el traspaso del bien.
-c.4. Si el bien dado en garantía pertenece a una tercera persona, deberá presentar autorización escrita firmada por el propietario donde da su consentimiento para la imposición del gravamen prendario a favor del Colegio Federado de Ingenieros y de Arquitectos de Costa Rica, además una copia de la cédula del dueño.
-(Así reformado el inciso anterior mediante sesión ordianria N° 35-14/15 del 13 de octubre del 2015)
-c.5. (Derogado este inciso mediante sesión ordianria N° 35-14/15 del 13 de octubre del 2015)
-d) Una vez aprobado el crédito, el Régimen asignará un notario para la formalización del préstamo con garantía prendaria, quien se encargará además de los trámites de inscripción. Los honorarios legales y los timbres serán cubiertos por el solicitante y rebajados del primer desembolso del crédito otorgado.
+Artículo 16.-La Coordinación de Crédito y Cobro es responsable de elaborar y actualizar el manual de productos de crédito, en el que debe determinarse para cada producto los siguientes aspectos:
+a) Documentación que debe aportar el solicitante.
+b) Fuente de los recursos y monto a colocar.
+c) Uso final del producto.
+d) Plan de Inversión, si lo requiere.
+e) Tasa de interés o disposiciones bajo las cuales se establecen, en caso de que estén referenciadas o varíen a lo largo del plazo.
+f) El monto máximo y mínimo para las líneas de crédito (fondeo).
+g) Los plazos, los cuales pueden ser varios para un mismo producto.
+h) Condiciones para determinar la capacidad de pago.
+i) Tipo de garantía requeridas.
+j) Porcentajes de Financiamiento.
+k) Cualquier otra condición que el Comité de Crédito apruebe.

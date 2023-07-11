@@ -1,4 +1,3 @@
-CAPÍTULO X
-Igualdad de derechos
-Artículo 24.—Tendrán los mismos derechos para usar los servicios y disfrutar de los beneficios del Régimen de Mutualidad de acuerdo a lo establecido en este reglamento, aquellos que sean miembros, o miembros ausentes al CFIA, siempre que estén al día con las cuotas del Régimen de Mutualidad.
-(Así reformado mediante sesión ordinaria N° 35-14/15 del 13 de octubre del 2015)
+CAPÍTULO IX
+Plazo para cancelación
+Artículo 24.-En el Plan Anual Operativo se deberá establecer el plazo máximo de cancelación para cada línea de crédito, y entrará en vigor en el nuevo período presupuestario. La Junta Administradora con recomendación técnica del Comité de Crédito, podrá someter a la aprobación de la Junta Directiva General del CFIA la variación de las líneas, plazos, tasas de interés y condiciones generales que se formalicen durante el año económico posterior a la aprobación del Plan Anual Operativo.

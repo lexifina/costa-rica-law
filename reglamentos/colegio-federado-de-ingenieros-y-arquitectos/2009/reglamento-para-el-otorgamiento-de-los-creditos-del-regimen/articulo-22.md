@@ -1,2 +1,1 @@
-Artículo 22.—Del desembolso inicial de cada crédito aprobado serán deducidos los gastos de formalización correspondientes, así como la primera cuota.
-(Así reformado mediante sesión ordinaria N° 35-14/15 del 13 de octubre del 2015)
+Artículo 22.-El Auto Aval para la línea de crédito sin fiador, se sustentará en el récord crediticio y la política aprobada por la Junta Administradora, y otras disposiciones que así establezca el Comité de Crédito en conjunto con la Administración del Régimen de Mutualidad.

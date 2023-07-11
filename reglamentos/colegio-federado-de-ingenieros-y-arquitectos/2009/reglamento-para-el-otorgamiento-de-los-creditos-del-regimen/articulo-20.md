@@ -1,3 +1,6 @@
-CAPÍTULO VII
-Intereses moratorios
-Artículo 20.—En caso de atraso o incumplimiento de pago se cobrarán intereses moratorios sobre el monto atrasado, que como mínimo estarán dos puntos por encima de la tasa de interés corriente.
+Artículo 20.-Cuando se trate de garantía hipotecaria se establece lo siguiente:
+a) El bien inmueble que se acepte como garantía hipotecaria según el Procedimiento de Valoración de Garantías de Bienes Muebles e Inmuebles aprobado por la Junta Administradora, será gravado en primer grado durante todo el plazo del crédito, y éste se otorgará sobre un porcentaje máximo establecido por la política de crédito.
+b) El perito que al efecto se nombre para valorar el bien será nombrado por el Régimen de Mutualidad.
+c) Una vez aprobado el crédito, el Régimen de Mutualidad asignará un notario para la formalización del préstamo con garantía hipotecaria, quien se encargará además de los trámites de inscripción de la respectiva escritura.
+d) En el caso de que un deudor mantenga un préstamo con garantía hipotecaria figurando el Régimen de Mutualidad como acreedor en primer grado, y desee solicitar otro préstamo sobre esa misma propiedad, puede realizarlo mediante la solicitud de una ampliación de este a través de hipoteca de segundo grado, siempre que cumpla con los lineamientos y regulaciones internas aprobadas por la Junta Administradora.
+e) El Régimen de Mutualidad podrá otorgar créditos bajo hipoteca común, hipoteca abierta, y/o cédulas hipotecarias.
