@@ -1,0 +1,1 @@
+Artículo 2°-Cooperación institucional. Las dependencias del Sector Público y del Sector Privado, dentro del marco legal respectivo de sus competencias, podrán colaborar en la medida de sus posibilidades y sin perjuicio del cumplimiento de sus propios objetivos, para la exitosa realización del evento indicado.
