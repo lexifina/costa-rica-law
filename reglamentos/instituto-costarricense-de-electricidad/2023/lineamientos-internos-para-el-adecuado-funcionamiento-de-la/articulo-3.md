@@ -1,0 +1,1 @@
+Artículo 3º-Período de nombramiento. Los miembros de la Junta Directiva serán nombrados por un periodo de dos años y podrán ser reelegidos. El fiscal es nombrado por todo el plazo social, salvo remoción por parte de la Asamblea de Accionistas o renuncia.
