@@ -1,0 +1,4 @@
+Artículo 14-Exclusiones de adquisiciones de servicios utilizando el sistema: No será necesario que la Unidad de Proveeduría Institucional tramite en el sistema digital unificado la contratación de los siguientes servicios:
+1) Los servicios públicos o de telecomunicaciones con que cuente el CETAC, según el siguiente detalle: agua, electricidad, líneas telefónicas. impuestos municipales, servicio de casillero con Correo de Costa Rica, servicio de quick pass, pago de marchamos, pagos de revisión técnica vehicular.
+2) Compras de combustible.
+3) Compras autorizadas por la Dirección de Contratación Pública del Ministerio de Hacienda, para el servicio de capacitación en el exterior, con proveedores que a pesar de que se les insistió en que se inscribieran como proveedores de SICOP, no fue posible su inscripción.

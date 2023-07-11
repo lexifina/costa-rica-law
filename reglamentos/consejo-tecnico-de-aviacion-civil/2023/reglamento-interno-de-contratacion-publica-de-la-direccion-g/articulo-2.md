@@ -1,0 +1,1 @@
+Artículo 2- Alcance. Este reglamento es de carácter obligatorio para todos los funcionarios del Consejo Técnico de Aviación Civil, así como para quienes integren su órgano colegiado, en materia de contratación pública.

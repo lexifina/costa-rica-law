@@ -1,0 +1,10 @@
+Artículo 23- Unidad de Recursos Financieros. Corresponde a la Unidad de Recursos Financieros realizar las actividades siguientes:
+1. Emitir por requerimiento del área solicitante, los documentos necesarios que respaldan y reservan la existencia suficiente del contenido presupuestario disponible para tramitar la compra pública respectiva.
+2. Elaborar, cuando sea viable y procedente, según la normativa institucional vigente, los análisis financieros de aquellos proyectos e inversiones no asociadas a planes que se encuentran en etapa de factibilidad, que deben ser conocidos por el CETAC.
+3. Realizar el análisis económico de las ofertas, mediante dictámenes técnicos en este ámbito y determinando el riesgo financiero.
+4. Custodiar los recibos de garantías de cumplimiento y colaterales correspondientes que son generados por el sistema interno del CETAC, los cuales cuentan con la información que ingresa la Unidad de Proveeduría Institucional que es igual a la del sistema digital unificado.
+5. Tramitar a solicitud del proveedor y por medio de la Unidad de Proveeduría Institucional, la devolución de las garantías, lo cual incluye la aprobación en el sistema digital unificado por parte de la jefatura del Proceso de Tesorería de la Unidad de Recursos Financieros.
+6. Gestionar a solicitud del administrador del contrato y por medio de la Unidad de Proveeduría Institucional, la aplicación de multas o cláusulas penales en las facturas de pago.
+7. Realizar los pagos de las facturas de los bienes, obras y servicios provistos a la Institución, para ello, el CETAC cuenta con el plazo establecido en los artículos 11 de la LGCP y 19 del RLGCP.
+8. Analizar y resolver junto con el administrador del contrato y la Unidad de Proveeduría Institucional, lo relacionado a las solicitudes de revisión y reajustes de precios que presenten los contratistas.
+9. Revisar y validar que las características indicadas en los pliegos de condiciones correspondientes a un contrato de arrendamiento, cumplan a cabalidad con la normativa contable y presupuestaria vigente a la Institución.

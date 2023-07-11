@@ -1,0 +1,1 @@
+Artículo 8-Programa de adquisiciones. En el primer mes de cada período presupuestario, la Unidad de Proveeduría Institucional dará a conocer el programa de adquisiciones proyectado, el cual no implicará compromiso alguno de contratar. Tal publicación deberá realizarse en el sistema digital unificado y en la página web de la Institución.
