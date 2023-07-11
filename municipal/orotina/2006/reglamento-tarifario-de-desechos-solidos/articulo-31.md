@@ -1,2 +1,0 @@
-Artículo 31.—Dentro de la tarifa comercial 3, se incluyen todos los abastecedores, heladerías, imprentas, tiendas de ropa nueva, verdulerías, floristería, sodas, viveros, librerías, pastelerías y fabricas artesanales, que se ubiquen dentro del área de cobertura de los servicios de recolección. En esta tarifa el factor de ponderación es 8.
-(Así reformado mediante sesión N° 290 del 29 de octubre del 2009)

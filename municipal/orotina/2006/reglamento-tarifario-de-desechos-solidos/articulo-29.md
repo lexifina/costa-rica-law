@@ -1,2 +1,0 @@
-Artículo 29.—Dentro de la comercial I, se incluyen todos los bazares cerrajerías, ciclos, estudios fotográficos, ventas de discos, gimnasios, academias de baile, joyerías, oficinas profesionales, ópticas, ventas de lotería, vídeo de clubes, juegos electrónicos y pooles, que se ubiquen dentro del área de cobertura del servicio de recolección. E, esta tarifa el factor ponderación 5.
-(Así reformado mediante sesión N° 290 del 29 de octubre del 2009)
