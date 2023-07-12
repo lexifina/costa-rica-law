@@ -1,4 +1,2 @@
-CAPÍTULO VIII
-DE LA APROBACIÓN POR JUNTA DIRECTIVA DEL INAMU, DESEMBOLSO DE LOS FONDOS
-Y SEGUIMIENTO DE LOS PROYECTOS GANADORES
-Artículo 41.- Aval de la Junta Directiva INAMU: La Junta Directiva aprobará si lo considera pertinente, la recomendación de proyectos a financiar emitida por los órganos seleccionadores, acordando el giro de los recursos para cada proyecto seleccionado.
+Artículo 41. - Aceptación de recursos y firma de contratos. En el contrato se especificarán los derechos y obligaciones de cada una de las partes, según el proyecto seleccionado. Asimismo, en el contrato se definirá como se realizarán los desembolsos, puede ser en un solo desembolso o en desembolsos parciales, así como los mecanismos de control del INAMU para dar seguimiento al proyecto.
+La usuaria del Fondo deberá suscribir (firmar) el contrato y título ejecutivo (garantía) a favor del INAMU, por el monto de los recursos asignados para el proyecto, lo que garantizará la correcta ejecución del proyecto, en el plazo establecido y de conformidad con la normativa vigente.

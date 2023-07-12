@@ -1,1 +1,0 @@
-Artículo 51.- Protocolo de Incumplimiento: La Unidad Ejecutora de FOMUJERES mantendrá actualizado un Protocolo de Incumplimiento para establecer el proceder cuando las organizaciones de mujeres o mujer ganadora postulada en forma individual incurran en incumplimientos de acuerdo con este reglamento y al contrato. Este protocolo será aprobado por la Junta Directiva del INAMU.

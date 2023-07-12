@@ -1,3 +1,1 @@
-CAPITULO III
-PROCESO DE SELECCIÓN
-Artículo 12.- Convocatoria pública: Los proyectos serán seleccionados mediante procesos concursados de convocatoria pública que se regirán por principios de libre participación, igualdad de oportunidades, justicia y transparencia, según bases de participación previamente definidas.
+Artículo 12.- Monto de financiamiento por proyecto. El INAMU tiene la potestad de definir los límites de financiamiento por proyecto según las áreas y categorías en que se postulen. El presupuesto institucional y la información histórica referido a los concursos anteriores constituirá una base de referencia para estos límites de financiamiento.

@@ -1,1 +1,1 @@
-Artículo 31.- De la Unidad Asesoría Legal de INAMU: Será la instancia responsable de llevar a cabo la gestión de cobro judicial, según lo establecido en la ley. La Unidad de Asesoría Legal recibirá de la Unidad Ejecutora de FOMUJERES después de llevar a cabo la gestión de cobro administrativo, el expediente para proceder con la gestión.
+Artículo 31. - De la Unidad Asesoría Legal de INAMU. Será la responsable de llevar a cabo la gestión de cobro judicial, una vez agotado el procedimiento administrativo, según lo establecido por ley.

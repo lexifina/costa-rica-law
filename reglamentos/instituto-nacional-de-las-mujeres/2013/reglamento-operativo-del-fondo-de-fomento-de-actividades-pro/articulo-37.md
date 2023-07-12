@@ -1,3 +1,2 @@
-CAPÍTULO VII
-DE LOS ÓRGANOS SELECCIONADORES Y SELECCIÓN DE PROYECTOS
-Artículo 37.- Órganos seleccionadores: La Presidencia Ejecutiva del INAMU designará los órganos seleccionadores de proyectos, de acuerdo con cada categoría del concurso y con el número de expedientes a analizar por actividad productiva.
+Artículo 37. - Verificación de datos. Este subproceso debe comprobar, mediante una visita in situ, la veracidad de todos los datos aportados por la postulante, haciendo énfasis en los siguientes aspectos: corroborar que cuenta con una propuesta en gestación avalada por alguna institución relacionada con la misma o con una actividad en marcha, confirmar la ubicación del domicilio, del lugar donde mantiene su actividad y la dirección de correo electrónico, además de la participación de la postulante en la toma de decisiones de su actividad, entre otros.
+Quedarán excluidos de la siguiente etapa aquellos en los que se evidencie que aportaron datos falsos o diferentes a la realidad actual de la actividad.

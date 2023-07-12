@@ -1,10 +1,1 @@
-Artículo 9.- Distribución de los fondos asignados a FOMUJERES según las áreas y categorías concursables: Después de recibidos los proyectos, para definir la cantidad de recursos financieros por área y posteriormente por categoría, se realiza anualmente una estimación según la demanda total efectiva (cantidad de proyectos recibidos según las áreas/categorías y montos solicitados). De acuerdo con la siguiente fórmula:
-DTE= QPCR * ¢M
-DTE= Demanda total efectiva
-QPCR= Cantidad de proyectos recibidos por categoría y región
-¢M= Montos solicitados para cada proyecto por categoría y región
-Estimando con ello los montos a distribuir:
-MD= DTE / BP=¢C y ¢R
-MD= Montos a distribuir anualmente
-BP= La base presupuestaria real que es el monto asignado anualmente al FOMUJERES.
-Resultado: ¢C=montos por categorías y ¢R= Montos por regiones.
+Artículo 9.- Financiamiento y asignación de recursos. El Fondo se podrá financiar con al menos el 4% del presupuesto anual, ordinarios y superávit del INAMU y de aquellas donaciones que ingresen y formen parte del presupuesto institucional. La Junta Directiva del INAMU conocerá y aprobará la propuesta del presupuesto que se dirigirá al Fondo.

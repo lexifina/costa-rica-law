@@ -1,3 +1,2 @@
-CAPITULO II
-DEL FONDO
-Artículo 2.- Creación del Fondo: FOMUJERES es creado con fondos del presupuesto del INAMU, autorizado de conformidad con el Artículo 4 inciso j) y Artículo 24 inciso d) de la Ley de Creación del INAMU sobre la inembargabilidad de los Fondos; así mismo se regirá por lo establecido en el Decreto Ejecutivo N° 37783 sobre la creación del Fondo de Fomento de Actividades Productivas y de Organización de las Mujeres, publicado en La Gaceta N° 138 del 18 de julio de 2013 y este Reglamento. Este Fondo se dividirá en dos Áreas Concursables: Proyectos Productivos y Proyectos para la Organización de las Mujeres en Defensa de sus Derechos.
+CAPITULO II DEL FONDO
+Artículo 2.- Creación del Fondo. FOMUJERES es creado con fondos del presupuesto del INAMU, autorizado de conformidad con el Artículo 4 inciso j) Decreto Ejecutivo 37783-MP y sus reformas.
