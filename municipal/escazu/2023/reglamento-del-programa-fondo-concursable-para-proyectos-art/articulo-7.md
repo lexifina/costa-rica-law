@@ -1,0 +1,2 @@
+Artículo 7: De la Política de no discriminación
+La Municipalidad de Escazú velará porque toda aquella organización, grupo o persona que desee acceder a los beneficios del programa, no tenga dentro de sus líneas de trabajo y objetivos acciones que inciten al desorden público, odio y/o discriminación por razones de etnia, edad, religión, afiliación política, ideología, nacionalidad, género, orientación sexual, identidad de género o cualquier otra condición social o personal.

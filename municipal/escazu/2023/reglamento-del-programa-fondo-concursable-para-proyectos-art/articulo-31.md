@@ -1,0 +1,2 @@
+Artículo 31: De la Responsabilidad
+Si durante la ejecución de las acciones del proyecto beneficiario bajo este fondo, por negligencia, dolo o culpa grave de la persona y/u organización beneficiaria se ocasionara un daño a sí mismo(as), a terceras personas o a la propiedad propia o ajena, estos deberán asumir las consecuencias derivadas de estas conductas, eximiendo a la Municipalidad de Escazú de toda responsabilidad."

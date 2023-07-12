@@ -1,0 +1,6 @@
+Artículo 3: Definición y conceptos generales
+Derechos culturales: Son aquellos derechos humanos que hacen referencia a la diversidad cultural, y a la necesidad de asegurar el disfrute y participación de la cultura y de sus componentes en condiciones de igualdad, dignidad humana y no discriminación.
+Son derechos relacionados con el arte y la cultura, entendidos en una amplia dimensión.
+Sobre estos el artículo 27 de la Declaración Universal de Derechos Humanos afirma: "Toda persona tiene derecho a tomar parte libremente en la vida cultural de la comunidad, a gozar de las artes y a participar en el progreso científico y en los beneficios que de él resulten".
+Fondo Concursable: El fondo concursable pretende favorecer proyectos artísticos y socioculturales de la sociedad civil que impacten de manera positiva el ejercicio de los derechos culturales en el cantón de Escazú.
+Comisión evaluadora: La Comisión estará integrada por representación civil y de otras instancias estatales vinculadas al trabajo artístico y cultural a nivel local y nacional. Esta comisión trabajará Ad honorem y será constituida anualmente para evaluar las propuestas recibidas y recomendar los proyectos ganadores sujetos al giro de los recursos presupuestarios.

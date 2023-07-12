@@ -1,0 +1,2 @@
+Artículo 2: Naturaleza
+El Fondo Concursable para proyectos culturales del cantón de Escazú es un programa orientado a fortalecer los grupos comunitarios, iniciativas colectivas, la participación ciudadana, así como los espacios socioculturales vinculados con la promoción de la diversidad cultural, la salvaguarda del patrimonio cultural tangible e intangible, la economía social solidaria y el fortalecimiento y promoción artística.

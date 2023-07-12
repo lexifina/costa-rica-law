@@ -1,0 +1,3 @@
+Artículo 19: De la recepción de los proyectos
+La recepción de los proyectos se hará mediante la entrega física de la documentación en las oficinas del Proceso de Desarrollo Cultural de la Municipalidad de Escazú, en el horario regular de dicho servicio (7:30 am a 4:00 pm).
+Se deberá entregar la documentación en sobres sellados identificados con un pseudónimo impreso. La persona u organización deberá asegurarse de que al presentar la propuesta se le emita una boleta de recibido por parte de la persona funcionaria municipal a nombre del pseudónimo, la cual no será indicativo de la aprobación del proyecto.

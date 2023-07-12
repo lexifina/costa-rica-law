@@ -1,0 +1,3 @@
+Artículo 25: De la Evaluación y Fiscalización de los proyectos
+Las personas y/u organizaciones beneficiarias estarán en la obligación de brindar las facilidades necesarias para que su proyecto pueda ser evaluado por el Proceso de Desarrollo Cultural y la Gestión Hacendaria de la Municipalidad.
+Durante la ejecución de los proyectos, los beneficiarios deberán presentar un informe trimestral durante la ejecución de este y hasta la finalización del convenio. Estos informes deberán presentarse ante el Proceso de Desarrollo Cultural de la Municipalidad de Escazú mediante el formulario asignado para el mismo. El Proceso de Desarrollo Cultural podrá realizar llamadas, visitas y sesiones de análisis en seguimiento a los avances de los proyectos.
