@@ -15,3 +15,4 @@ Crea Comisión de Coordinación para la Instalación o Ampliación de Infraestru
 | --- | --- | --- |
 | 1 | 2011-06-13 | la propia norma |
 | 2 | 2014-03-26 | Decreto Ejecutivo 38366 (2014-03-26) |
+| 3 | 2023-07-12 | Decreto Ejecutivo 44122 (2023-07-12) |
