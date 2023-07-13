@@ -1,4 +1,0 @@
-CAPITULO IX
-Contrataciones celebradas al amparo del Artículo 2 inciso f) de la Ley de Contratación Administrativa y 134 del Reglamento
-a la Ley de Contratación Administrativa
-Artículo 36.—Contrataciones en el extranjero. El presente Capítulo regula todas las contrataciones que el ICT realice dentro de su actividad administrativa, al amparo de lo dispuesto en el Artículo 2 inciso f) de la Ley de Contratación y el artículo 134 del Reglamento a la Ley de Contratación Administrativa, que se refieren a las contrataciones que tienen por objeto la construcción, la instalación o la provisión de oficinas y servicios en el exterior, las que estarán sujetas también a los principios generales de la Contratación Administrativa, así como lo dispuesto en los Reglamentos y Manuales de carácter vinculante que emitiere la Contraloría General de la República.

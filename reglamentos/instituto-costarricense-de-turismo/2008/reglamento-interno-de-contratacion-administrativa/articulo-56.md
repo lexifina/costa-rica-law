@@ -1,1 +1,0 @@
-Artículo 56.—Obligación de Informar a la Proveeduría. Las unidades solicitantes quedan obligadas de informar a la Proveeduría sobre el recibo a satisfacción del bien, conclusión del servicio o finiquito de obras, según sea el caso, con el fin de que esta pueda dar seguimiento a las contrataciones.

@@ -1,3 +1,0 @@
-Artículo 17.—Contenido Presupuestario. Deberá indicarse el programa, la unidad y el código que se afectará.
-Cuando lo que se pretende contratar supere el tope establecido por la Contraloría para contrataciones directas, la SMS podrá acompañarse de una certificación del Departamento Financiero, sobre el contenido presupuestario. En caso de que la unidad no la aporte, corresponderá a la Proveeduría solicitarla. En los demás casos, bastará la sola indicación de la unidad solicitante en la SMS.
-En las contrataciones de servicios que trasciendan el año en que son tramitadas, deberá indicarse que se han realizado las previsiones para asignar el presupuesto al año en que se prestarán los servicios.

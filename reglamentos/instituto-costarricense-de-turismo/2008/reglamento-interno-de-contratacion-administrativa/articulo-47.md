@@ -1,1 +1,0 @@
-Artículo 47.—Recursos. Contra el acto de adjudicación, o contra el que declare infructuoso o desierto el concurso de las contrataciones amparadas al artículo 2 inciso f) de la Ley de Contratación Administrativa y artículo 134 del Reglamento a la Ley de Contratación Administrativa, únicamente cabrá recurso de revocatoria.

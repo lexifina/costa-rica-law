@@ -1,2 +1,0 @@
-Artículo 42.—Calificación de ofertas. La Proveeduría dentro de los dos (2) días hábiles siguientes a la recepción de ofertas, realizará una revisión preliminar de los requisitos formales de las ofertas. Remitirá el expediente a la Asesoría Legal y a la unidad solicitante, quienes contarán con tres (3) días hábiles para verificar el cumplimiento de los requisitos legales y técnicos.
-Este plazo puede ser modificado por el Proveedor, previa consulta a la unidad solicitante, atendiendo la naturaleza y complejidad de la contratación.

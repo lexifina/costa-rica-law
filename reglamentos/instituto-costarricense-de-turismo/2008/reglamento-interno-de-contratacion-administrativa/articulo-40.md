@@ -1,2 +1,0 @@
-Artículo 40.—Requisitos de la oferta. Los oferentes deberán indicar: Nombre o razón social; descripción del bien o servicio ofertado; precio unitario y precio total; información de garantías ofrecidas; plazo o fecha de entrega y un lugar o medio donde recibir notificaciones.
-Las cotizaciones u ofertas deberán presentarse como máximo el día y hora fijados para la apertura y bajo las condiciones señaladas en el documento de invitación.

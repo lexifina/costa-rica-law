@@ -1,1 +1,0 @@
-Artículo 26.—De las ofertas. Las cotizaciones u ofertas deberán presentarse como máximo, el día y hora fijados para la apertura y bajo las condiciones señaladas en el documento de invitación (proforma o cartel).

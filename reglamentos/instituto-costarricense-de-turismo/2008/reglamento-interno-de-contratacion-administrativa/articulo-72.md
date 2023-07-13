@@ -1,1 +1,0 @@
-Artículo 72.—Derogatorias. El presente Reglamento deja sin efecto el Reglamento Interno de Contratación Administrativa del ICT, publicado en La Gaceta Nº 8 del 11 de enero del 2006 y cualquier norma o procedimiento que se le oponga.

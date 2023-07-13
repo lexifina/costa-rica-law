@@ -1,1 +1,0 @@
-Artículo 52.—Verificación de la vigencia de las garantías de participación y cumplimiento. Corresponderá a la Proveeduría verificar la vigencia de la garantía de participación y el responsable de la contratación designado por la unidad solicitante del bien o del servicio, será quien verifique la vigencia de la garantía de cumplimiento.

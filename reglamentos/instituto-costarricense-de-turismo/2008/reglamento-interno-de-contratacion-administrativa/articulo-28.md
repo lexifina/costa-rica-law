@@ -1,1 +1,0 @@
-Artículo 28.—De la subsanación. Los defectos que presenten las ofertas y que, según la normativa vigente y disposiciones de la Contraloría sean subsanables, deberán ser subsanados por los oferentes dentro de un plazo de hasta cinco días hábiles posteriores al apercibimiento por parte de la Proveeduría.

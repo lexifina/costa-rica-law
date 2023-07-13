@@ -1,1 +1,0 @@
-Artículo 11.—Requisitos previos de la contratación. El procedimiento de contratación se inicia con la decisión emitida por la jefatura de la unidad solicitante, cumpliendo con los requisitos del artículo 8 del RLCA.

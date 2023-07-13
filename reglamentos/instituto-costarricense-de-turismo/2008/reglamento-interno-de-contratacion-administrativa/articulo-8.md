@@ -1,2 +1,0 @@
-Artículo 8º—Competencia de la Proveeduría. La Proveeduría es la unidad competente para la ejecución de todas las etapas del proceso de contratación administrativa del ICT, dentro y fuera del país, que se inicia con el documento SMS presentado por las Unidades solicitantes.
-Quedan excluidas aquellas contrataciones que por su naturaleza, el trámite de compra debe ser realizado por un funcionario del Instituto, cuando se encuentre en el exterior, siempre y cuando dicho gasto haya sido previamente autorizado por acuerdo de Junta Directiva o resolución de Gerencia.

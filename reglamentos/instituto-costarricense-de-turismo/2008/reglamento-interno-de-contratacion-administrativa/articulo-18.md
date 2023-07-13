@@ -1,1 +1,0 @@
-Artículo 18.—Recurso Humano y Capacidad Operativa. Debe hacerse una indicación expresa de los recursos humanos y materiales de que se dispone o llegará a disponerse para verificar la correcta ejecución del objeto del contrato.

@@ -1,1 +1,0 @@
-Artículo 54.—Orden de compra. Cuando no resulte necesario la elaboración de un contrato, la formalización del negocio se hará mediante “Orden de Compra”, formulario mediante el cual la Proveeduría Institucional formaliza las contrataciones que tramita, salvo lo indicado en el inciso b) de los artículos 3 y 4 de este Reglamento.

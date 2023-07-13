@@ -1,2 +1,0 @@
-Artículo 27.—Criterio técnico. Las ofertas recibidas dentro esta modalidad, cuyo objeto sea muy especializado, deberán remitirse, luego de determinada su admisibilidad, junto con el expediente, a la unidad solicitante o la unidad especializada, para su criterio técnico, el cual deberá ser devuelto a la Proveeduría, en un plazo no mayor a tres días hábiles.
-El plazo antes indicado puede ser modificado por el Proveedor Institucional, atendiendo la naturaleza y complejidad de la contratación.

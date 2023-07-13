@@ -1,1 +1,0 @@
-Artículo 44.—Remisión del expediente para adjudicar. Una vez que se ha cumplido con todo el proceso de revisión y calificación de las ofertas, el expediente será remitido a la Junta Directiva, a la Gerencia General, con la finalidad de que se realice la adjudicación.

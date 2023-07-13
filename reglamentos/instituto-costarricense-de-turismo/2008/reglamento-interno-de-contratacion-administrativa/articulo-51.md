@@ -1,2 +1,0 @@
-Artículo 51.—Garantía de Cumplimiento. La Proveeduría solicitará siempre en las licitaciones públicas y en la abreviadas y facultativamente en los restantes procedimientos, una garantía de cumplimiento de entre un cinco por ciento (5%) y un diez por ciento (10%) del monto de la contratación. El porcentaje se asignará según la complejidad del contrato y para asegurar el resarcimiento de cualquier daño eventual o perjuicio ocasionado por el adjudicatario.
-En caso que el negocio sea de cuantía inestimable, la Proveeduría podrá establecer un monto fijo.

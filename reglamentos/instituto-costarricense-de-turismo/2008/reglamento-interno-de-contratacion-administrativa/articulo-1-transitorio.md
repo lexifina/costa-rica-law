@@ -1,2 +1,0 @@
-Disposiciones transitorias
-Transitorio I.—Las disposiciones del artículo 23 del presente Reglamento, se aplicarán obligatoriamente después del 31 de diciembre del 2008, toda vez que antes de esta fecha, la Administración está obligada a admitir las ofertas que presenten en tiempo los proveedores no invitados al concurso, para lo cual estos deberán lograr su inscripción en el registro antes de la apertura de ofertas, en caso de que no se encuentren previamente inscritos.

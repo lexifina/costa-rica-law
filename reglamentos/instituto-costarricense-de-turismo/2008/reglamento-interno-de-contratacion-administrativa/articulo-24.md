@@ -1,2 +1,0 @@
-Artículo 24.—De los invitados. Se invitará a no menos de tres potenciales oferentes del Registro de Proveedores, considerando únicamente las ofertas de proveedores a quienes se haya cursado invitación.
-En caso de que el número de proveedores inscritos sea menor a tres, o no exista ninguno inscrito, se podrá invitar a otros que no lo estén, considerando únicamente las ofertas de proveedores a los que se haya cursado invitación, sin embargo la Administración tendrá la facultad de aceptar ofertas de proveedores no invitados.

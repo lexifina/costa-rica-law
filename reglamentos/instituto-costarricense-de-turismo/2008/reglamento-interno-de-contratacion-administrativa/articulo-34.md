@@ -1,1 +1,0 @@
-Artículo 34.—Del Cuadro Comparativo. El funcionario responsable de la Proveeduría o de la unidad solicitante según corresponda, preparará el cuadro comparativo de las ofertas elegibles, con base en las calificaciones técnica y legal, señalando cuando corresponda, las que fueron rechazadas y la justificación correspondiente.

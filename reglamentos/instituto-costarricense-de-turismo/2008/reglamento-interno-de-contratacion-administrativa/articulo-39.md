@@ -1,5 +1,0 @@
-Artículo 39.—Invitación a participar. Se invitará a cotizar a un mínimo de tres proveedores idóneos, salvo que exista un proveedor único o exclusivo y así conste en el expediente, o bien que el número de oferentes sea insuficiente.
-La invitación a participar se formulará de acuerdo con las especificaciones contempladas en la SMS y podrá realizarse mediante las siguientes modalidades:
-a) Proforma: Procederá cuando lo que se pretenda contratar requiera poco detalle en cuanto a su identificación.
-b) Cartel: Procederá cuando lo que se pretenda contratar, requiera una descripción detallada de especificaciones y requisitos.
-En ambos casos la invitación contendrá como mínimo la siguiente información: Descripción de lo que se pretende contratar; fecha máxima para la recepción de ofertas; plazo o fecha y lugar de entrega; plazo para adjudicar; condiciones de pago; otras condiciones; solicitud de garantías de participación o cumplimiento según se determine necesario; parámetros de ponderación de ofertas; cláusulas penales cuando se determine necesario.

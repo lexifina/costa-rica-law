@@ -1,1 +1,0 @@
-Artículo 33.—Análisis Técnico de las ofertas. En el caso de contrataciones de bienes y servicios especializados, la Proveeduría remitirá a la unidad solicitante, el expediente para que en un plazo de tres días hábiles, efectué la evaluación técnica de las ofertas elegibles. Cuando se trate de bienes y servicios genéricos, la evaluación la hará la Proveeduría.

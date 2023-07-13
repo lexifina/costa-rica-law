@@ -1,6 +1,0 @@
-CAPÍTULO XI
-Formalización Contractual
-Artículo 53.—Pasos y plazos de formalización del contrato. Una vez firme la adjudicación, la Administración cuenta con cinco (5) días hábiles para comunicar al adjudicatario el día que deberá presentarse a firmar el contrato.
-Dentro de estos cinco (5) días hábiles la Asesoría Legal del ICT el día uno remitirá el borrador de contrato al adjudicatario, a la unidad solicitante y a la Proveeduría, dándoles un plazo de tres (3) días hábiles para que le hagan observaciones, aporten las especies fiscales y la garantía de cumplimiento según corresponda.
-También dentro de estos cinco (5) días hábiles la Asesoría Legal del ICT, solicitará al adjudicatario que indique la fecha en que podrá apersonarse a firmar el contrato, la cual no podrá ser superior a los diez (10) días hábiles posteriores a la comunicación, salvo que el cartel disponga justificadamente un plazo mayor o exija la constitución de una sociedad en cuyo caso el plazo será de hasta tres meses.
-Dentro del plazo de los diez (10) días hábiles del párrafo anterior, la Gerencia General del ICT firmará también el contrato, para lo cual se le remitirá formal oficio, indicándole el plazo para firmar.

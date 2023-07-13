@@ -1,2 +1,0 @@
-Artículo 25.—Del Plazo para recibir ofertas. El plazo para la recepción de ofertas no podrá ser inferior a un (1) día hábil ni mayor de cinco (5) días hábiles, ambos contados a partir del día siguiente de extendida la invitación y hasta la fecha de apertura. El mismo lo determinará el Proveedor, de acuerdo con los requisitos y especificaciones establecidas en la invitación.
-Los plazos antes indicados pueden ser modificados por el Proveedor Institucional, atendiendo la naturaleza y complejidad de la contratación.
