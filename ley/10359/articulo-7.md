@@ -1,0 +1,1 @@
+ARTÍCULO 7- Igualdad del beneficio. La implementación de la presente ley rige de forma igualitaria para las personas contribuyentes clasificadas en condición de pobreza o pobreza extrema. No podrán establecerse condonaciones ni exenciones diferenciadas, ni aplicar diferenciación de porcentajes entre los contribuyentes.
