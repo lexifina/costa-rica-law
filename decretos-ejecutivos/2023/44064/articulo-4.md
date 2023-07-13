@@ -1,0 +1,1 @@
+Artículo 4º-En la eventualidad de que la corta del recurso forestal existente sea aprovechable, se deberá coordinar con el Ministerio de Ambiente y Energía (MINAE), la entrega de dicho recurso, de conformidad con el inciso q) artículo y numeral 65 de la Ley Forestal N° 7575, reformado por la Ley N° 9927 del 18 de diciembre de 2020.
