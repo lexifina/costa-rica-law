@@ -1,0 +1,8 @@
+Artículo 5º-Vehículos de uso administrativo. De acuerdo con lo dispuesto en el artículo 239 de la Ley, todos los demás vehículos del Banco y sus ODM, que no sean de uso discrecional, son de uso administrativo y están destinados únicamente a cumplir misiones oficiales del Banco y atender las necesidades que surjan con ocasión de las labores que a su cargo tienen las distintas unidades administrativas del Banco y los ODM.
+Dichos vehículos serán utilizados única y exclusivamente para prestar servicio de transporte de:
+a) Personas que laboren en el Banco u ODM
+b) Personas que presten algún servicio al Banco u ODM y dentro de los términos de contratación se haya acordado brindar el transporte, para lo cual el Banco debe facilitar un chofer.
+c) Equipos, mobiliario y materiales que sean propiedad del Banco, o que hayan sido dados en préstamo o donados por particulares, o alguna de las instituciones del Estado.
+d) Cualesquiera otras necesidades que surjan con ocasión del giro que le es propio al Banco u ODM, tales como traslados de visitantes internacionales, supervisión, notificaciones, traslado de documentos, entre otros.
+Los vehículos de uso administrativo no podrán ser utilizados para transportar a los funcionarios desde o hacia su domicilio. Todo traslado para el ejercicio de las actividades administrativas indicadas en este artículo tendrá como punto de salida o destino final el edificio institucional respectivo.
+Toda persona que requiera el servicio de vehículo de uso administrativo e incumpla con esta prohibición incurrirá en falta grave, la cual será sancionada de conformidad con las reglas dispuestas en el Reglamento Autónomo de Servicios.

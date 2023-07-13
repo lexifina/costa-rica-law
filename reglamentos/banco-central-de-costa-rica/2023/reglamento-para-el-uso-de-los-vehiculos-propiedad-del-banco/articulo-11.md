@@ -1,0 +1,1 @@
+Artículo 11.-Del resguardo a que deben someterse los vehículos. Los vehículos del Banco y de los ODM se guardarán bajo las condiciones de seguridad suficientes. Cuando el vehículo se encuentre en gira debe ser guardado en un estacionamiento público del lugar, y si no hubiere se podrá solicitar la colaboración de la Fuerza Pública para brindar adecuada protección al vehículo.
