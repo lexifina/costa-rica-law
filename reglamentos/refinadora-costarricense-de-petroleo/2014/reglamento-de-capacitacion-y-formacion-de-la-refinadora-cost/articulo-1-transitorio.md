@@ -1,1 +1,0 @@
-Transitorio. Los contratos de beca que fueron celebrados durante la vigencia del Reglamento anterior y que actualmente se encuentran activos, se regirán bajo los criterios definidos en dicho Reglamento.

@@ -1,4 +1,0 @@
-Artículo 7º—Acceso a las acciones de capacitación y formación: Sólo podrán tener acceso a las acciones de capacitación y formación los trabajadores nombrados en propiedad y que estén prestando sus servicios en la Empresa.
-En acciones de capacitación estrictamente relacionadas con necesidades específicas del puesto, excepcionalmente se podrá incluir a trabajadores nombrados interinamente o por tiempo definido.
-La definición de las becas de formación se hará acatando la necesidad dictada por el interés de la Empresa, la concordancia del perfil ocupacional del funcionario con la formación requerida, el Plan Anual de Capacitación y Formación de RECOPE, la asociación clara con una meta del Plan Operativo Institucional y la disponibilidad presupuestaria.
-La escogencia de los participantes, se realizará en todos los casos, según lo indicado en el artículo 21° inciso b. y artículo 23° inciso a.

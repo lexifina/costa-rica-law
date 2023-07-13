@@ -1,1 +1,0 @@
-Artículo 26.—Acciones de capacitación simultáneas: Excepcionalmente a criterio del Presidente de la Junta Directiva, Gerente General, Gerentes de Área, Auditor General, en el caso de las dependencias adscritas a éstas, un trabajador podrá participar en dos acciones de capacitación en el mismo período.

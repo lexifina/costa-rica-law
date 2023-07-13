@@ -1,1 +1,0 @@
-Artículo 3º—Del régimen legal. El Sistema de Capacitación y Formación de los trabajadores de RECOPE estará regulado por el presente Reglamento, los Procedimientos del Sistema de Capacitación y Formación de RECOPE, las disposiciones legales correspondientes contenidas en la Convención Colectiva de Trabajo de RECOPE y demás disposiciones normativas que se emitan sobre la materia.
