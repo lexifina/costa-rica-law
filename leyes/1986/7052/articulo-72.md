@@ -12,4 +12,6 @@ ch) Las fundaciones constituidas con fondos donados en el extranjero, que exceda
 d) Otros organismos públicos especializados en el financiamiento de viviendas.
 e) Las asociaciones solidaristas, conforme a las limitaciones que establezca el Banhvi.
 (Así adicionado el inciso anterior por el artículo único de la ley N° 8936 del 21 de junio de 2011)
+f) La Caja de Ahorro y Préstamos de la Asociación Nacional de Educadores, respetando su naturaleza jurídica.
+(Así adicionado el inciso anterior por el artículo único de la Ley para adicionar a la Caja de Ahorro y Préstamos de la Asociación Nacional de Educadores (Caja de Ande) como entidad autorizada del Sistema Financiero Nacional para la Vivienda, N° 10364 del 29 de junio de 2023)
 (Así modificada su numeración por el artículo único de la ley N° 9779 del 12 de noviembre del 2019, que la traspasó del antiguo artículo 66 al 72)

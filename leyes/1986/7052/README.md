@@ -1,6 +1,6 @@
 # Ley del Sistema Financiero Nacional para la Vivienda y Creación del BANHVI (Banco Hipotecario de la Vivienda)
 
-Ley N° 7052 del 1986-11-13. SINALEVI, ficha 12391: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=12391&param2=131149&param3=1>.
+Ley N° 7052 del 1986-11-13. SINALEVI, ficha 12391: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=12391&param2=136793&param3=1>.
 
 Publicada en La Gaceta N° 226 del 1986-11-27.
 
@@ -30,3 +30,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 20 de 31 | 2020-03-24 | Ley 9821 | 2020-03-03 |
 | 21 de 31 | 2022-06-28 | Ley 10214 | 2022-05-05 |
 | 22 de 31 | 2022-06-28 | Ley 10260 | 2022-05-06 |
+| 23 de 31 | 2023-07-13 | Ley 10364 | 2023-06-29 |
