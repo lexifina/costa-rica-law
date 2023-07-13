@@ -1,1 +1,0 @@
-Artículo 19.—Se confeccionarán reintegros de caja chica, cuando se haya gastado no menos del 50% del fondo fijo, con el propósito de darle la rotación óptima a los recursos y mantener la liquidez del fondo.

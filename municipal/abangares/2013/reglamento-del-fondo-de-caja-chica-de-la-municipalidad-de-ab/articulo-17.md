@@ -1,1 +1,0 @@
-Artículo 17.—Si realizado el arqueo, se determinara un faltante de dinero, éste deberá reponerse de inmediato al fondo fijo y si fuera un sobrante de dinero deberá depositarse el día hábil inmediato posterior a la fecha del arqueo, en la cuenta corriente 100-01-025-000050-6 del Banco Nacional de Costa Rica, una vez concluido el arqueo.

@@ -1,3 +1,0 @@
-CAPÍTULO III
-De la liquidación
-Artículo 8°—Los vales de caja chica, deberán ser liquidados dentro de los dos días hábiles siguientes a su entrega, salvo aquellos casos en donde por razones de caso fortuito o fuerza mayor, el funcionario que lo retira no pueda hacerlo en el plazo establecido, cuando esto suceda se deberá justificar y documentar la razón del mismo. El Tesorero Municipal encargado de la caja chica informará al Jefe de Recursos Humanos en un plazo máximo de cinco (5) días hábiles sobre las liquidaciones que se presenten de manera extemporánea, para que dicha unidad levante el procedimiento disciplinario correspondiente.

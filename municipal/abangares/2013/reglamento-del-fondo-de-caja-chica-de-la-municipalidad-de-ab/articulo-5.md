@@ -1,1 +1,0 @@
-Artículo 5°—La Caja Chica recibirá devoluciones de dinero, únicamente en efectivo, sin excepción de ninguna clase, asimismo deberá ser en moneda nacional de curso. No podrán recibirse por este fondo notas de crédito.
