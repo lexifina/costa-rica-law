@@ -1,0 +1,1 @@
+ARTÍCULO 6- Determinación de la condición de pobreza y pobreza extrema . La condición de pobreza y pobreza extrema se determinará de conformidad con el sistema y los estudios del Instituto Mixto de Ayuda Social (IMAS), como institución rectora en la materia.
