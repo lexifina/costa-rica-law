@@ -1,0 +1,1 @@
+Artículo 39.-Pago anticipado. Podrán convenirse pagos por anticipado, en cuyo caso el Instituto, de conformidad con su disponibilidad financiera y lo establecido en este, podrá otorgar pagos anticipados entre un veinte por ciento (20%) y un cuarenta por ciento (40%) del monto total de la contratación, porcentaje que deberá definirse en el pliego de condiciones.

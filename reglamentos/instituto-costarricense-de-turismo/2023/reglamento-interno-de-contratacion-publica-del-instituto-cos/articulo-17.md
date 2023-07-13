@@ -1,0 +1,1 @@
+Artículo 17.-Calificación legal: La Asesoría Legal emitirá para las licitaciones mayores y menores, la calificación de las ofertas en un plazo máximo de tres días hábiles, previa solicitud de la Proveeduría.

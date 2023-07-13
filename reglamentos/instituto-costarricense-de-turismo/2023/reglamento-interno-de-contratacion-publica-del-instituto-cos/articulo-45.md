@@ -1,0 +1,1 @@
+Artículo 45.-Derogatorias. Este Reglamento deja sin efecto el Reglamento Interno de Contratación Administrativa, publicado en el Diario Oficial La Gaceta N° 152, del 07 de agosto del 2008 y cualquier norma o procedimiento que se le oponga.
