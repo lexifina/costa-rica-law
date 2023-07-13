@@ -1,0 +1,2 @@
+ARTÍCULO 3- Exención. Se autoriza a las municipalidades del país, previo a estudio técnico financiero, para que concedan a sus contribuyentes personas mayores de sesenta y cinco años, en condición de pobreza o pobreza extrema, la exención del pago de tasas y servicios municipales a partir de la entrada en vigencia de la presente ley. Para que las personas contribuyentes gocen de dicha exención deberán cumplir con lo dispuesto en los artículos 9 y 10 de la presente ley.
+Los servicios municipales son los indicados en el artículo 2 de la presente ley.

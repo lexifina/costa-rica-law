@@ -1,0 +1,6 @@
+ARTÍCULO 9- Procedimiento . A fin de conceder los beneficios tributarios, se debe seguir el siguiente procedimiento:
+a) La persona contribuyente deberá presentar la solicitud de condonación o exención ante la administración tributaria de la municipalidad.
+b) La municipalidad podrá consultar, en el Sistema Nacional de Información y Registro Único de Beneficiarios del Estado (Sinirube), la calificación de pobreza del contribuyente que hace la solicitud.
+Las municipalidades podrán reglamentar lo respectivo sobre la solicitud de exención, su trámite, plazo, Impugnación, estandarización y formato en un plazo máximo de dos meses a partir de la entrada en vigencia de la presente ley.
+Se faculta a las municipalidades para que suscriban un convenio de cooperación con el Sistema Nacional de Información y Registro Único de Beneficiarios del Estado (Sinirube), a fin de acceder a la información y clasificación socioeconómica de los hogares de las personas adultas mayores que requieran ser consultados.
+En caso de que las personas solicitantes no estén registradas en el Sistema Nacional de Información y Registro Único de Beneficiarios del Estado (Sinirube), las municipalidades podrán articular con este órgano para que las personas solicitantes sean analizadas y registradas en dicho sistema, para acreditar oficialmente su calificación.

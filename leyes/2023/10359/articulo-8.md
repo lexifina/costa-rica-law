@@ -1,0 +1,1 @@
+ARTÍCULO 8- Divulgación . Para lograr la mayor recaudación posible, las municipalidades que se acojan a la presente ley procurarán realizar una adecuada campaña de divulgación, de tal forma que los contribuyentes se enteren de los alcances y los procedimientos de este beneficio.
