@@ -14,3 +14,4 @@ Reglamento de tesorería de la Municipalidad de Matina
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-03-07 | la propia norma |
+| 2 | 2023-07-14 | Reglamento municipal 261 (2023-07-14) |
