@@ -1,0 +1,11 @@
+MUNICIPALIDAD DE MATINA
+CONCEJO MUNICIPAL
+El Concejo Municipal de Matina mediante acuerdo N° 6 de la sesión Ordinaria N° 261 acordó por unanimidad y definitivamente aprobado en firme: Aprobar la modificación del artículo 11 del Reglamento de Tesorería de la Municipalidad de Matina, para que se lea de la siguiente manera:
+CAPÍTULO III
+De los ingresos
+Artículo 11.-Los ingresos los recibirá únicamente el Departamento de Tesorería por medio de la Caja General y transferencias bancarias. Los ingresos provenientes de las operaciones ordinarias de la Municipalidad deberán emitirse un recibo de facturación en cajas, por medio del sistema integrado, el cual tendrá una numeración consecutiva para tal efecto; se exceptúan de la confección de recibos las transferencias y aportes de instituciones del Poder ejecutivo, Órganos Desconcentrados, Instituciones descentralizadas no empresariales, Gobiernos Locales, Empresas Públicas No Financieras, Instituciones Públicas Financieras, Instituciones Públicas No Financieras, Instituciones Públicas Financieras de Rectoría y Supervisión, Entidades Estatales y entidades privadas.
+Los intereses, notas de débitos, enteros por concepto de trámites en el registro de la propiedad, deberán ser registrados mediante una Nota de Crédito, afectando Contabilidad y Presupuesto según sea el caso.
+En el caso de los dineros recibidos por concepto de Créditos Bancarios con cualquier entidad, deberán ser registrados en el módulo de Deuda Municipal, en el sistema integrado, este deberá afectar presupuesto y contabilidad, generando una orden de depósito el cual deberá ser aplicado por este departamento para el registro en libros de tesorería.
+Para el caso de los depósitos realizados, a beneficio del Gobierno Local, por concepto de demandas Judiciales, cuando el actor sea la Municipalidad de Matina, deberán ser registrados como una NOTA DE CRÉDITO, afectando contabilidad y presupuesto según sea el caso.
+Para los ingresos de las Inversiones, deberán ser registrados en el módulo de inversiones municipales, originando mediante el sistema un depósito en libro de tesorería.
+Publíquese en el Diario Oficial La Gaceta.
