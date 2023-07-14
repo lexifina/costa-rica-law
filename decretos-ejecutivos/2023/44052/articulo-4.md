@@ -1,0 +1,2 @@
+Artículo 4º-Oficina de Control de Garantías Mobiliarias. Es la oficina encargada de coordinar el funcionamiento de la base de datos y ofrecer soporte a los usuarios por medio de consultas presenciales, electrónicas o por cualquier otro medio.
+La Dirección del Registro de Bienes Muebles tiene a cargo la oficina y dispondrá de los recursos humanos y técnicos necesarios para el funcionamiento efectivo y eficaz del sistema.

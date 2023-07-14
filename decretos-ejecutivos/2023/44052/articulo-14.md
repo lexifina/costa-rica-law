@@ -1,0 +1,1 @@
+Artículo 14.-Servicios de ingreso de la información. Para utilizar los servicios de inclusión de la información en condición personal o en representación de una persona jurídica, se ingresará la información únicamente por medio de la firma digital certificada.

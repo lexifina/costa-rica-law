@@ -1,0 +1,1 @@
+Artículo 17.-Limitaciones a los servicios de consulta y certificación. Los datos considerados sensibles por parte de la Ley N° 8968 de Protección de la Persona frente al Tratamiento de sus Datos Personales, así como las demás normas vigentes relacionadas con el tema, no se encontrarán disponibles al público en caso de consultas o certificaciones.

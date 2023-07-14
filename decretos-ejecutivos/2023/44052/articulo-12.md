@@ -1,0 +1,1 @@
+Artículo 12.-Usuario administrador. Previo a la presentación de la solicitud de creación de cuenta, ya sea de persona física o jurídica, el usuario administrador deberá constar registrado en el Sistema.

@@ -1,0 +1,2 @@
+Artículo 23.-Formulario de cancelación total. En los casos en que la inscripción original o vigente se extinga por acuerdo de las partes o por cumplimiento de la obligación u obligaciones garantizadas, se publicitará la cancelación de la garantía por medio del formulario respectivo.
+Este documento contendrá el número de folio electrónico del formulario de publicidad inicial y una breve descripción de la causa que motiva la cancelación.

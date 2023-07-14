@@ -1,0 +1,1 @@
+Artículo 16.-Servicios de certificaciones. Las certificaciones que se emitan dan fe únicamente de la existencia de la publicidad del documento en el Sistema, no de la información en él contenida de la cual el Registro Nacional no tiene responsabilidad, conforme lo establece el artículo 42 párrafo final de la Ley N° 9246 "Ley de Garantías Mobiliarias".

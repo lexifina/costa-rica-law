@@ -1,0 +1,1 @@
+Artículo 22.-Formulario de cancelación parcial. De cancelarse una parte de la obligación garantizada debe suscribirse el formulario de cancelación parcial, el cual permitirá modificar la publicidad de la garantía excluyendo bienes o modificando el monto del contrato.

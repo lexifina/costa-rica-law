@@ -1,0 +1,1 @@
+Artículo 18.-Pago por los servicios. La Junta Administrativa establecerá la tarifa que regirá para la prestación de los servicios del Sistema. Todos los formularios pagarán conforme al modelo de costos de la Junta Administrativa y en atención a lo indicado en el artículo 47 de la Ley.
