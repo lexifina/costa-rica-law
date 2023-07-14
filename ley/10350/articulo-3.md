@@ -1,0 +1,1 @@
+ARTÍCULO 3- La Municipalidad de Siquirres podrá utilizar las áreas descritas en los artículos anteriores para los fines que considere convenientes y así brindar a sus niños, jóvenes y adultos las comodidades que provean un ambiente más seguro y de mayor calidad de vida.
