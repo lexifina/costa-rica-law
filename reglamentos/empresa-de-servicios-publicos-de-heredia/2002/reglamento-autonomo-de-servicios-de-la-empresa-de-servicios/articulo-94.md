@@ -1,1 +1,3 @@
-ARTICULO 94.- Toda solicitud de permiso, con o sin goce de salario, superior a un día hábil, deberá gestionarla el interesado, por escrito ante su superior jerárquico, quien deberá enviarla a Gestión Desarrollo Humano, dentro de los tres días hábiles siguientes a su presentación. La Junta Directiva, la Gerencia, Gestión Desarrollo Humano, según sea el caso, deberá resolver dicha solicitud dentro de los ocho días hábiles siguientes a su recibo.
+CAPITULO XII
+DE LA EVALUACIÓN Y CALIFICACIÓN DE SERVICIOS
+Artículo 94.- El desempeño de los trabajadores nombrados en propiedad será evaluado y calificado, como mínimo, una vez al año, utilizando las metodologías y procedimientos aprobados para tal fin. Es responsabilidad del superior en grado realizar una calificación objetiva de la prestación efectiva de servicios.

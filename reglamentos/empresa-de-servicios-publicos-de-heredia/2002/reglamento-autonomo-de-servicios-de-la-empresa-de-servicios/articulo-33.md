@@ -1,1 +1,1 @@
-ARTICULO 33.- Los directores de Negocio y Líderes de procesos de la ESPH S.A., podrán recomendar el nombramiento del personal que requieran, de las nóminas de elegibles que les envíe Gestión Desarrollo Humano.
+Artículo 33.- Los directores de Negocio y Líderes de procesos de la ESPH, S.A., podrán recomendar el nombramiento del personal que requieran, de las nóminas de elegibles que les envíe Gestión Desarrollo Humano.

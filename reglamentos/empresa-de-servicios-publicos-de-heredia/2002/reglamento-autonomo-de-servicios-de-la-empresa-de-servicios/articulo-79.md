@@ -1,1 +1,1 @@
-ARTICULO 79.- La concesión de un descanso colectivo es potestad de la Gerencia de ESPH S.A. De ahí que éste no constituye en modo alguno, un derecho que los s trabajadores puedan reclamar como adquirido.
+Artículo 79.- Los trabajadores gozarán de los asuetos festivos decretados por el Poder Ejecutivo, en los cantones que constituyen su sede permanente de trabajo.

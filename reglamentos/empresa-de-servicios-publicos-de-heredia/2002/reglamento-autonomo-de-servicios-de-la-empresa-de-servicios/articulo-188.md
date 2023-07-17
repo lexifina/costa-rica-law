@@ -1,1 +1,0 @@
-ARTICULO 188.- El funcionario que se encuentre en la condición de disponible, podrá disfrutar simultáneamente de la retribución por concepto de horas extras, durante el lapso en que devengue dicha disponibilidad.

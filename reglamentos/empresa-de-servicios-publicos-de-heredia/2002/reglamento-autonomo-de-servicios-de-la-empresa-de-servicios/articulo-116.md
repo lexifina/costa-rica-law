@@ -1,1 +1,2 @@
-ARTICULO 116.- Salud y Seguridad Laboral llevará un control de las existencias, entrega y la reposición de los uniformes operativos y ropa de trabajo con el propósito de que las entregas se realicen en el momento oportuno. Así mismo, avaluará periódicamente la calidad, diseños y cualquier otro aspecto importante relacionados con la referida indumentaria.
+Artículo 116.- El trabajador deberá devolver equipos de seguridad, uniformes, o ropa de trabajo deteriorada; para sustitución.
+En caso de que el trabajador se retire de la Empresa deberá devolver el o los uniformes y los equipos suministrados por la empresa.

@@ -1,1 +1,1 @@
-ARTICULO 97.- Gestión Desarrollo Humano deberá enviar la herramienta de evaluación del desempeño, incluyendo la lista con los nombres de los servidores trabajadores a evaluar, al Gerente General, Subgerente, Director, Líder, coordinador o supervisor de cuadrilla, en su caso.
+Artículo 97.- Corresponderá al Gerente General, Subgerente, Directores, Líderes y Supervisores, completar la evaluación del desempeño para cada trabajador a cargo, con la asesoría de Gestión Desarrollo Humano, de ser necesario.

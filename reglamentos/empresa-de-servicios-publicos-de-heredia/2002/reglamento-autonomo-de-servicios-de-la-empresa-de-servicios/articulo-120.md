@@ -1,1 +1,8 @@
-ARTICULO 120.- El encargado de Salud y Seguridad Laboral, y los empleados en general, deberán velar porque todos los trabajadores que tengan la obligación de portar equipo de seguridad, lo utilicen en forma adecuada; y que éste sea de óptima calidad.
+Artículo 120.- El trabajador que reincidiere en presentarse sin usar el uniforme o ropa de trabajo; o no utilizare los equipos de seguridad, será sancionado de la siguiente forma:
+a. Primera vez: amonestación por escrito.
+b. Segunda vez: Dos días de suspensión sin goce de salario.
+c. Tercera vez: cuatro días de suspensión sin goce de salario.
+d. Cuarta vez: ocho días de suspensión sin goce de salario.
+e. Quinta vez: despido sin responsabilidad patronal.
+Estas sanciones procederán de igual forma, cuando el trabajador haga uso de los uniformes, ropa de trabajo o equipo de seguridad para su propio beneficio, en horas o días que no correspondan a la jornada diaria laboral establecida por la ESPH, S.A., Para efectos de reincidencia se computará un período de seis meses.
+El deterioro excesivo o el extravío de cualquiera de estas prendas o equipo de trabajo, deberán ser reportados de inmediato a la jefatura correspondiente y a Salud y Seguridad Laboral para su debida reposición.

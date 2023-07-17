@@ -1,1 +1,1 @@
-ARTICULO 22.- Los Coordinadores también podrán solicitar de oficio a Gestión Desarrollo Humano la reasignación de cualquier puesto, de conformidad con los procedimientos establecidos para tal efecto y con base en el artículo 21 de este Reglamento.
+Artículo 22.- Las Jefaturas también podrán solicitar de oficio a Gestión Desarrollo Humano la reasignación de cualquier puesto, de conformidad con los procedimientos establecidos para tal efecto y con base en el artículo 21 de este Reglamento.

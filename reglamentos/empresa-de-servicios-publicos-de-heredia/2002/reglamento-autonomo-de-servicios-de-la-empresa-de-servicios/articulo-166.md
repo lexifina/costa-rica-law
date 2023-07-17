@@ -1,3 +1,1 @@
-ARTICULO 166.- La resolución se notificará al interesado personalmente o en su casa de habitación. Como prueba de la notificación servirá la copia de ésta, firmada por quien la reciba y por el notificador.
-Si aquél rehusare firmar, bastará la firma del notificador, quien deberá dejar constancia de lo ocurrido.
-En todos los casos se indicará con precisión la hora y fecha en que se practicó dicha diligencia.
+Artículo 166.- Contra la resolución final, el servidor afectado podrá interponer los recursos ordinarios de revocatoria con apelación en subsidio para ante la Junta Directiva o la Contraloría Empresarial en su caso y de reposición o reconsideración ante la Junta Directiva, cuando la resolución haya sido dictada por el Órgano Director.

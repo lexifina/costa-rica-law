@@ -1,1 +1,1 @@
-ARTICULO 15.- Las relaciones de Trabajo indicadas en los puntos b y c del artículo anterior, una vez fenecido el plazo u objeto por el cual el trabajador fue contratado concluirán sin responsabilidad patronal.
+Artículo 15.- Las relaciones de Trabajo indicadas en los puntos b y c del artículo anterior, una vez fenecido el plazo u objeto por el cual el trabajador fue contratado concluirán sin responsabilidad patronal.

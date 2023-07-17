@@ -1,1 +1,4 @@
-ARTICULO 146.- Cuando se requiera integración normativa por omisión del presente Reglamento, se aplicarán los principios, escritos o no escritos, del ordenamiento jurídico laboral administrativo. Si no hubiera norma laboral aplicable, escrita o no escrita, se aplicarán las normas de derecho administrativo compatibles con la naturaleza de la relación laboral y con los principios generales que la rigen
+Artículo 146.- La acción disciplinaria prescribe:
+a. Si dentro del mes siguiente a la fecha en que el superior jerárquico tuvo conocimiento de los hechos, éstos no se denunciaren por escrito ante Gestión Desarrollo Humano.
+b. Si la instrucción del procedimiento disciplinario se paralizare totalmente por un mes, sin justa causa, salvo que se encuentre en el trámite de apelación ante Junta Directiva. En todo caso la ampliación del término no podrá exceder de la mitad del plazo original.
+c. Si dentro del mes siguiente a la fecha en que la Gerencia o la Contraloría Empresarial en su caso, recibiere la recomendación final del Órgano director, no dicta la resolución definitiva.

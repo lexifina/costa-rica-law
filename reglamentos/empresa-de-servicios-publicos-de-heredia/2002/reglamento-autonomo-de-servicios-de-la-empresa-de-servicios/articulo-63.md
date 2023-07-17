@@ -1,1 +1,1 @@
-ARTICULO 63.- La ausencia de registro, al inicio o término del horario establecido, hará presumir la inasistencia del trabajador durante ésta, a menos que justifique la omisión como máximo, dentro de los tres días hábiles siguientes a aquél en que se produjo la irregularidad.
+Artículo 63.- Es responsabilidad de los coordinadores, establecer los sistemas de control necesarios para verificar la permanencia de los trabajadores durante la jornada laboral, sin perjuicio de la fiscalización a cargo de Gestión Desarrollo Humano.

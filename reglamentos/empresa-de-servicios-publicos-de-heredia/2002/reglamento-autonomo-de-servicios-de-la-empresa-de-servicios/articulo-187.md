@@ -1,5 +1,0 @@
-ARTICULO 187.- La Retribución por disponibilidad, se calculará sobre el salario base mensual del trabajador, de acuerdo al siguiente detalle:
-− Un 25% para los puestos de nivel profesional y/o, jefaturas técnicas. Se entenderá por Jefatura Técnica, tanto a los supervisores de cuadrilla, como a los profesionales, ingenieros encargados de la operación de los servicios de la ESPH S.A.
-− Un 20% para los puestos operativos, que por el trabajo que realicen, deban vivir en las instalaciones de la Empresa para prestar servicios en forma permanente y continúa.
-− Un 15% para los puestos de nivel técnico que presten sus servicios durante una semana por mes. Se excluye del reconocimiento de este incentivo, a los Directores de Negocio.
-− En todos los casos anteriores se podrá fraccionar la disponibilidad por semana entre varios trabajadores correspondiendo a cada uno de ellos la fracción del porcentaje semanal que le corresponda; todo lo anterior de acuerdo a la necesidad del Negocio y a discreción de la Gerencia General.

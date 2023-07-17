@@ -1,8 +1,1 @@
-ARTICULO 122.- El trabajador que reincidiere en presentarse sin usar el uniforme o ropa de trabajo; o no utilizare los equipos de seguridad, será sancionado de la siguiente forma:
-a. Primera vez: amonestación por escrito.
-b. Segunda vez: Dos días de suspensión sin goce de salario.
-c. Tercera vez: cuatro días de suspensión sin goce de salario.
-d. Cuarta vez: ocho días de suspensión sin goce de salario.
-e. Quinta vez: despido sin responsabilidad patronal.
-Estas sanciones procederán de igual forma, cuando el trabajador haga uso de los uniformes, ropa de trabajo o equipo de seguridad para su propio beneficio, en horas o días que no correspondan a la jornada diaria laboral establecida por la ESPH S.A., Para efectos de reincidencia se computará un período de seis meses.
-El deterioro excesivo o el extravío de cualquiera de estas prendas o equipo de trabajo, deberán ser reportados de inmediato a la jefatura correspondiente y a Salud y Seguridad Laboral para su debida reposición.
+Artículo 122.- Los uniformes y la ropa de trabajo son identificación exclusiva de la ESPH, S.A., y de sus trabajadores. Por tal razón una vez concluido su contrato de trabajo con ésta, el trabajador deberá devolver las insignias o distintivos que la ESPH S.A., le hubiere entregado con motivo del puesto que estuvo desempeñando, cualquiera que sea el estado de uso o deterioro de éstos.

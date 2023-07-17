@@ -1,1 +1,4 @@
-ARTICULO 75.- La ESPH S.A., no reconocerá los gastos señalados en el artículo anterior, cuando por tener instalaciones propias o contratos con particulares, pueda proporcionarle a sus servidores el alojamiento o la alimentación; o cuando éstos acepten esos mismos servicios proporcionados por otra Institución.
+CAPITULO X
+DEL DESCANSO SEMANAL, LOS DÍAS FERIADOS Y
+LAS VACACIONES ANUALES
+Artículo 75.- Todo trabajador tiene derecho a disfrutar de un día de descanso absoluto, después de cada semana o de cada seis días de trabajo continuo.

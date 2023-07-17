@@ -1,1 +1,1 @@
-ARTICULO 9.- La ESPH S.A, está regida por una Junta Directiva nombrada e integrada de conformidad con los términos de la Ley #7789 de 30 de abril de 1998 y sus reformas; y que cuenta con las atribuciones, funciones y potestades que le otorga dicho cuerpo legal.
+Artículo 9.- La ESPH, S.A, está regida por una Junta Directiva nombrada e integrada de conformidad con los términos de la Ley #7789 de 30 de abril de 1998 y sus reformas; y que cuenta con las atribuciones, funciones y potestades que le otorga dicho cuerpo legal.

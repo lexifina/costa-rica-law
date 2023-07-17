@@ -1,1 +1,4 @@
-ARTICULO 126.- De conformidad con lo dispuesto en los artículos 95 del Código de Trabajo y 43 del Reglamento del Seguro de Enfermedad y Maternidad, toda trabajadora en estado de gravidez gozará, obligatoriamente, de un descanso remunerado por cuatro meses, uno antes del parto y tres después de éste. Durante este período la, ESPH S.A. pagará a la trabajadora el monto restante del subsidio que ésta reciba de la Caja Costarricense de Seguro Social, hasta completar el cien por ciento del salario total que devengue.
+Artículo 126.- A fin de garantizar la probidad, la corrección, la eficacia y la eficiencia en la prestación de los servicios públicos encomendados a la ESPH, S.A. se establecen las siguientes clases de sanciones disciplinarias:
+a. Amonestación escrita.
+b. Suspensión sin goce de salario, hasta por ocho días naturales.
+c. Despido sin responsabilidad patronal.

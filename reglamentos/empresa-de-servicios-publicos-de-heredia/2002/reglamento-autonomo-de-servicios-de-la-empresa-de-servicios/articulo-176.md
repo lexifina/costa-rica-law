@@ -1,1 +1,1 @@
-ARTICULO 176.- Asimismo, regulará la atención de daños o averías en horas fuera de la jornada y que deban ser atendidas por técnicos, operarios y profesionales de la Empresa, en cada una de las áreas en que ésta presta servicios.
+Artículo 176.- El presente reglamento modifica integralmente el Reglamento Autónomo de la ESPH S.A., publicado en el Alcance del Diario Oficial La Gaceta Nº 172 del miércoles 19 de setiembre del 2018, aprobado en acuerdo JD-128 del indicado año 2018 y sus reformas; y deroga cualquier otra disposición reglamentaria anterior que se le oponga.

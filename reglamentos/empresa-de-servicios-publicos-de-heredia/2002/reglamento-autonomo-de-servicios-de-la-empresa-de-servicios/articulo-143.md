@@ -1,1 +1,1 @@
-ARTICULO 143.- En el procedimiento disciplinario, se deberán verificar los hechos que sirven de motivo al acto final en la forma más fiel y completa posible, para lo cual el Órgano Director deberá adoptar todas las medidas probatorias pertinentes o necesarias, aún si no hubieren sido propuestas por las partes.
+Artículo 143.- Las pruebas serán apreciadas de conformidad con las reglas de la sana crítica racional; esto es, de acuerdo a la lógica, la ciencia y la experiencia.

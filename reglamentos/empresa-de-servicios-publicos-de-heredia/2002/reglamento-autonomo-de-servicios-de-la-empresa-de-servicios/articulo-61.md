@@ -1,1 +1,1 @@
-ARTICULO 61.- La asistencia al trabajo será fiscalizada mediante el registro de asistencia que la Empresa establezca; y en el que todo trabajador deberá registrarse, al comienzo y conclusión del horario o bien a la hora que se retire de su centro de trabajo.
+Artículo 61.- El trabajador debe registrar personalmente su asistencia, utilizando el procedimiento establecido por la Empresa. Cuando dicho control se realice mediante reloj marcador, deberá cuidar que su marca quede registrada.

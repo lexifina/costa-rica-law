@@ -1,1 +1,3 @@
-ARTICULO 173.- El recurso de revocatoria deberá resolverse dentro de los ocho días hábiles posteriores a su presentación y el de apelación, igualmente, dentro de los quince días hábiles posteriores al conocimiento del recurso por parte del Órgano competente.
+CAPÍTULO XVIII
+DEL AUXILIO DE CESANTÍA
+Artículo 173.- El pago del auxilio de cesantía se hará conforme a lo dispuesto en la Ley de Protección al Trabajador (Nº 7983 de 16 de febrero del año 2000).

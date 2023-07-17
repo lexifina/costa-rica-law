@@ -1,5 +1,1 @@
-CAPITULO XIII
-DE LA SALUD LABORAL
-ARTICULO 107.- La ESPH S.A., se ajustará a las disposiciones que sobre esta materia contiene el Código de Trabajo y demás normativa vigente aplicable a la materia, lo anterior para garantizar:
-a. La protección de la salud y la preservación de la integridad física, moral y social de sus trabajadores.
-b. La prevención y control de los riesgos del trabajo.
+Artículo 107.- La labor de la Comisión de Salud Ocupacional será desarrollada dentro de la jornada de trabajo, sin perjuicio o menoscabo de ninguno de los derechos laborales de los servidores que la conforman y de las funciones laborales a ellos asignadas.

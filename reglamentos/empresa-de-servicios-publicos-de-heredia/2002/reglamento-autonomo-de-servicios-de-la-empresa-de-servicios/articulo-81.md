@@ -1,6 +1,5 @@
-ARTICULO 81.- Todo trabajador disfrutará anualmente de un período de vacaciones, después de cincuenta semanas continuas de labores, conforme a la siguiente escala:
-a. Quince días hábiles durante los primeros cinco años de servicio.
-b. Veintidós días hábiles, desde el sexto, hasta el décimo año de servicio.
-c. Treinta días hábiles, a partir del undécimo año de servicio.
-Para todos los efectos, el período de trabajo y el de vacaciones sumarán un año natural en total.
-Cada período de trabajo, comenzará en la misma fecha en que se cumple el aniversario del ingreso del trabajador a la ESPH S.A.
+Artículo 81.- Las vacaciones son absolutamente incompensables, salvo por las siguientes excepciones:
+a. Cuando el trabajador cese en su trabajo por cualquier causa, tendrá derecho a recibir el importe correspondiente por las vacaciones no disfrutadas, cuyo pago se considera una indemnización.
+b. Cuando el trabajo sea ocasional o a destajo.
+c. Cuando por alguna circunstancia justificada el trabajador no haya disfrutado de sus vacaciones, podrá convenir con la Empresa el pago del exceso del mínimo de dos semanas de vacaciones por cada cincuenta semanas, siempre que no supere el equivalente a tres períodos acumulados y no podrá otorgarse, si el trabajador ha recibido este beneficio en los dos años anteriores. Por la continuidad de la relación contractual el pago por compensación de vacaciones debe catalogarse como salario. Esto quedará sujeto a presupuesto disponible.
+d. La compensación de vacaciones se realizará proporcionalmente al salario total devengado en las cincuenta semanas a que corresponda dicho descanso; salvo en el caso de liquidación parcial de prestaciones, en cuyo caso se compensarán de acuerdo al nuevo salario asignado al trabajador.
