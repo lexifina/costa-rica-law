@@ -14,3 +14,4 @@ Procedimiento para el despacho de mercancías contenerizadas a través de Puerto
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-11-17 | la propia norma |
+| 2 | 2023-07-17 | Resolución 1298 (2023-07-17) |

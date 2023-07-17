@@ -43,6 +43,11 @@ Número | Descripción | Responsable |
 1.16 | Levantar un acta e instalar un nuevo precinto con la indicación de las causas del deterioro y la numeración del nuevo precinto instalado. | Funcionario Aduanero |
 Fin del Procedimiento |
 | | | |
+(Nota de Sinalevi: Mediante resolución N° RES-DGA-1298-2023 del 17 de julio del 2023, se ordenó ajustar la presente norma, a través de Puerto Caldera para la carga sobredimensionada. No obstante; al no coincidir la misma se transcribe a continuación: "Ajustar la resolución RES-DGA-353-2022 Del Procedimiento para el despacho de mercancías contenerizadas a través de Puerto Caldera para la carga sobredimensionada:
+[imagen]
+[imagen]
+[imagen]
+[imagen] ")
 II. En todo lo demás, resulta aplicable los procedimientos ordinarios de ingreso y salida de mercancías y medios de transporte.
 III. La presente resolución rige a partir de su publicación.
 IV. Comuníquese y publíquese en el Diario Oficial La Gaceta.
