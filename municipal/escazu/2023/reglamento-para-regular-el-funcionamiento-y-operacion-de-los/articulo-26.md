@@ -1,0 +1,4 @@
+Artículo 26.-Deberes de la Municipalidad de Escazú: Son deberes de la Municipalidad de Escazú, los siguientes:
+a) Realizar la fiscalización de cada una de las etapas y procesos de funcionamiento del Centro de Cuido y Desarrollo Infantil, así como realizar la transferencia de dinero a la persona operadora cada mes, previo el correspondiente traslado de fondos según la fuente de financiamiento; en concordancia con lo establecido en los artículos 16 y 17 de este reglamento.
+b) Brindar el apoyo a la persona operadora en la medida de las posibilidades profesionales en los diferentes proyectos o talleres, con el fin de que el Centro sea un éxito en todos sus aspectos, en pro del bienestar de la niñez y la comunidad.
+c) Realizar una evaluación anual que permita obtener información sobre los resultados de la contribución del Centro de Cuido y Desarrollo Infantil a las personas usuarias y sus familias.

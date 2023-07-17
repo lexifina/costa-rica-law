@@ -1,0 +1,1 @@
+Artículo 22.-Del programa de Atención: El programa de atención que se desarrolla en el Centro debe estar de conformidad con el Plan de Estudio del Ciclo Materno Infantil del Ministerio de Educación Pública de Costa Rica y el Modelo de Atención referido por la Secretaría Técnica de la Red Nacional de Cuido y Desarrollo Infantil.

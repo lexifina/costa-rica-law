@@ -1,0 +1,1 @@
+Artículo 34.-Ausencia: En casos de ausencia, es obligación de la persona trabajadora hacer la comunicación vía telefónica de su condición y presentar dentro de los tres días siguientes a su reincorporación laboral, la justificación a la Coordinación del Centro.
