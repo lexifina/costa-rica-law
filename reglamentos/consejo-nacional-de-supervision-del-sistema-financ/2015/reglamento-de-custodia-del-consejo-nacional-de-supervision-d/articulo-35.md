@@ -1,2 +1,1 @@
-Artículo 35.—Incumplimiento de operaciones de reporto tripartito. Las entidades de custodia serán responsables del cumplimiento de las operaciones que hayan confirmado y de que se ajusten estrictamente a las presentes disposiciones, así como a las demás que les resulten aplicables.
-En caso de incumplimiento por parte del titular, la entidad de custodia podrá aplicar los mecanismos y procedimientos de cobro previstos expresamente en el contrato suscrito con este.
+Artículo 35.-Incumplimiento de operaciones de reporto tripartito. (Derogado mediante sesión N° 1808-2023 del 17 de julio del 2023)
