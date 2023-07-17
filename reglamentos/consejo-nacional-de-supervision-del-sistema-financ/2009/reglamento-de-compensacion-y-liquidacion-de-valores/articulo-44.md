@@ -1,3 +1,3 @@
 TÍTULO V
 Disposiciones para los miembros liquidadores bancos
-Artículo 44.—Condición de miembro liquidador. Conforme lo establecido en el presente Reglamento, pueden ser miembros liquidadores los puestos de bolsa, los bancos y las instituciones públicas que cumplan con los requisitos especiales que establezca la Superintendencia. Los bancos que deseen actuar como miembros liquidadores deberán estar inscritos como entidades de custodia autorizadas en el Registro Nacional de Valores e Intermediarios; y además, deberán cumplir con las disposiciones establecidas en el presente Reglamento, así como en el reglamento operativo que emitan las entidades de compensación y liquidación para acceder y mantener su condición de miembro liquidador.
+Artículo 44.-Condición de miembro liquidador. (Derogado mediante sesión N° 1808-2023 del 17 de julio del 2023)
