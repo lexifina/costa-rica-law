@@ -1,0 +1,1 @@
+Artículo 20.-Formalización del arreglo de pago. La formalización del arreglo de pago se realizará ante la Unidad de Gestión de Cobros, única competente para realizar esta comisión, mediante la suscripción del documento idóneo que tendrá dicha sección para tales efectos, siempre y cuando el sujeto pasivo haya cumplido con los requisitos que se exijan al efecto.

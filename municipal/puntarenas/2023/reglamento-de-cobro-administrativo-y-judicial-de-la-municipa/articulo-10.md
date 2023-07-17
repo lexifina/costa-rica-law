@@ -1,0 +1,1 @@
+Artículo 10.-Labores en el local o sede del contribuyente. Los funcionarios de la Unidad de Gestión de Cobros cuando ejecuten sus labores en el local del contribuyente o propiedad de responsable, declarante o de terceros relacionados con estos, deberán practicar sus actuaciones procurando no perturbar el desarrollo normal de las actividades que allí se cumplan.

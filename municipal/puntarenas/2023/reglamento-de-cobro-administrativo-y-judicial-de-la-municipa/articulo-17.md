@@ -1,0 +1,13 @@
+SECCIÓN III
+De la Unidad de Gestión de Cobros
+SUBSECCIÓN I
+Del cobro de las obligaciones tributarias municipales
+en la etapa administrativa
+Artículo 17.-Obligaciones de la Unidad de Gestión de Cobros. La Unidad de Gestión de Cobros, en cumplimiento de su función de recaudación tendrá las siguientes obligaciones:
+a) Realizar las gestiones de cobro administrativo de forma interna y externa cuando así se considere necesario, de las cuentas atrasadas. Este se iniciará ocho días después de haberse vencido el plazo para el pago de la obligación vencida respectiva, y las acciones consistirán en avisos, llamadas telefónicas, publicaciones generales u otros.
+b) Las obligaciones tributarias municipales que tengan un atraso de dos trimestres, serán notificadas dos veces administrativamente, otorga dándosele al contribuyente quince días hábiles en la primera ocasión y cinco días hábiles en la segunda, para que se efectúe el pago respectivo; si vencido dicho plazo después de la última notificación no se hiciere presente el sujeto pasivo a cancelar, se remitirá dejando copia en el expediente administrativo, los originales de las notificaciones de cobro realizadas a e éste que consten en el expediente, junto con la documentación adicional que corresponda para efectos de proceder a remitir a los abogados externos o Internos para la interposición del cobro judicial, de conformidad con lo que se indica en este Reglamento. Las notificaciones indicadas se realizarán por los medios legales correspondientes, establecidos en el presente Reglamento.
+c) Emitir y enviar dos avisos de cobro escritos o electrónicos/ digitales a los sujetos pasivos que no cancelaron las cuentas vencidas o no, otorgando un plazo máximo de 10 días hábiles contados a partir del recibo efectivo de los avisos para que los sujetos pasivos procedan a realizar el pago respectivo o bien un arreglo de pago.
+d) Ejercer las funciones de control y fiscalización sobre la actuación que ejerzan los abogados externos o Internos en la etapa ejecutiva.
+e) Rendir informes trimestrales sobre el estado de las obligaciones vencidas que se encuentran en la etapa administrativa.
+f) La Municipalidad por intermedio de la instancia autorizada y previo estudio técnico por parte de la Comisión de Aprobación de Arreglos de Pago formada por la administración y un miembro representado al concejo municipal podrá ampliar por una única vez el plazo original del arreglo. De ser necesario se suscribe un título adicional (ej. letra de cambio) que garantice a la Institución la recuperación de las deudas no pagadas.
+Cualquier otra ampliación deberá ser conocida y aprobada por el Concejo Municipal.

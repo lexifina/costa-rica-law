@@ -1,0 +1,1 @@
+Artículo 11.-Colaboración a los funcionarios de la Unidad de Gestión de Cobros. Los contribuyentes, responsables, declarantes y terceros deben atender a los funcionarios de la Unidad de Gestión de Cobros y prestarles la mayor colaboración en el desarrollo de su función.

@@ -1,0 +1,1 @@
+Artículo 26.-Compensación. La Unidad de Gestión de Cobros compensara de oficio o a petición de parte, los créditos tributarios firmes, líquidos y exigibles que tenga en su favor con los de igual naturaleza del sujeto pasivo, empezando por los más antiguos, sin importar que provengan de distintos conceptos, y siempre que se trata de obligaciones tributarias municipales.

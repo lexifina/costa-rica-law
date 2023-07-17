@@ -1,0 +1,1 @@
+Artículo 51.-Sobre la solicitud de remate. Junto con la solicitud de remate, el Abogado director del proceso debe presentar certificación vigente del Registro respectivo, en la que consten los gravámenes, los embargos y las anotaciones que pesen sobre los bienes.

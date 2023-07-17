@@ -1,0 +1,2 @@
+Artículo 37.-No sujeción a plazo. La contratación no estará sujeta a cumplir con un plazo determinado, sino que dependerá del plazo que dure la tramitación del proceso judicial respectivo.
+Sin embargo, corresponderá a la Unidad de Gestión de Cobros, verificar mediante los informes, que los procesos judiciales estén activos, de lo contrario, se aplicarán las sanciones que regula este Reglamento contra el abogado externo que incumpla con esta obligación.

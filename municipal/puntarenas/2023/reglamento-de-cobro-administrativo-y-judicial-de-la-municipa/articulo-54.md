@@ -1,0 +1,1 @@
+Artículo 54.-Previa aceptación de la Alcaldía Municipal. El Abogado director del proceso podrá solicitar la suspensión del remate solamente cuando cualquier interesado deposite, a la orden del tribunal, una suma que cubra la totalidad de los extremos reclamados, incluidas las costas, caso contrario no se suspenderá el remate.

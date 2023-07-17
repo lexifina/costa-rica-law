@@ -1,0 +1,1 @@
+Artículo 36.-Formalización de la contratación. Los oferentes elegidos firmaran un contrato con la Municipalidad, así como cualquier otro documento que considere la Institución necesario para la prestación legítima y eficiente de estos servicios, y para cumplir con las normas que regulan este tipo de contratación.

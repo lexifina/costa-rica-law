@@ -1,0 +1,17 @@
+SUBSECCIÓN IV
+Del cobro de las obligaciones tributarias
+municipales en la etapa ejecutiva
+Artículo 34.-Deberes de la Unidad de Gestión de Cobros de la Municipalidad en la etapa ejecutiva. La Unidad de Gestión de Cobros deberá cumplir con lo siguiente, en la etapa ejecutiva:
+a) Determinar las obligaciones vencidas que se le adeuden a la Municipalidad. Las cuáles serán trasladadas a los abogados externos o internos para cumplir con la etapa ejecutiva. En consecuencia, las obligaciones cuyo monto no exceda del aquí establecido, su cobro continuará siendo responsabilidad de la Unidad de Gestión de Cobros de la Municipalidad.
+b) Se trasladará el expediente respectivo para efectos de iniciar la etapa ejecutiva a los abogados externos o internos (según corresponda), este expediente comprenderá:
+1. Original de las dos notificaciones de cobro administrativo realizadas al sujeto pasivo, quedando copia de todo el expediente en la oficina de Gestión Cobro.
+2. Certificación del contador o auditor municipal que haga constar la obligación vencida que vaya a ser remitida a cobro judicial, la cual incluirá los intereses, y constituirá título ejecutivo para el proceso judicial respectivo, de conformidad con lo que establece el artículo 71 del Código Municipal.
+3. Informe registral del bien inmueble que constituya la garantía de la obligación tributaria debida a la Municipalidad, de conformidad con lo que establece el artículo 70 del Código Municipal, en el caso de las obligaciones provenientes del impuesto sobre bienes inmuebles, se aplicará lo establecido en los artículos 166 y concordantes del Código de Normas y Procedimientos Tributarios.
+4. Calidades del sujeto pasivo y domicilio, si se trata de una persona jurídica, indicación de las citas de la constitución de la sociedad, correspondiendo al abogado externo respectivo aportar al proceso judicial la personería jurídica correspondiente.
+5. Personería jurídica del Alcalde(sa).
+c) Asignar los casos de cobro judicial de conformidad con el volumen de casos previamente trasladados y además de acuerdo al rendimiento demostrado según las sentencias dictadas a favor de la Municipalidad.
+d) Fiscalizar la labor de los abogados externos y/o internos, para ello, compete a esta Unidad recibir los informes trimestrales que realicen los abogados externos de conformidad con este Reglamento, analizarlos, y emitir una minuta en la que reporte el estado actual de los mismos a la Alcaldía Municipal trimestralmente.
+e) Solicitar a la Alcaldía, la aplicación de las sanciones que este Reglamento establece, a los abogados externos que eventualmente incumplan con sus obligaciones.
+f) Solicitar a la Alcaldía el nombramiento de nuevos abogados o la resolución de la contratación de abogados externos o internos; de conformidad con la demanda que requiera la Municipalidad de esta gestión.
+g) Llevar un expediente de cada uno de los abogados externos, en el cual se hará constar toda la documentación relacionada con su contratación, los procesos asignados, los informes que esté presente, y demás documentos relacionados con su actuar, los cuales serán agregados al expediente en forma cronológica y estarán debidamente foliados.
+h) Solicitar al Encargado de la Oficina de Valoraciones de la Municipalidad, el avalúo de los bienes inmuebles que garanticen las obligaciones vencidas, a efectos de determinar si en la fase de remate, la Municipalidad estaría interesada en solicitar la adjudicación del bien.
