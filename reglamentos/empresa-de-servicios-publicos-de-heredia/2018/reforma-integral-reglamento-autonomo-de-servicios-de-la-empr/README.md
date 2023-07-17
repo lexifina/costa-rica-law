@@ -14,3 +14,4 @@ Reforma integral Reglamento Autónomo de Servicios de la Empresa de Servicios P�
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-09-19 | la propia norma |
+| 2 | 2023-07-17 | Reglamento 4264 (2023-07-17) |
