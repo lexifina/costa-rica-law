@@ -1,0 +1,1 @@
+Artículo 15. Criterio para la selección de aspirantes de nuevo ingreso. El mérito académico, medido por el promedio de notas de Educación Diversificada o su equivalente, es el principal criterio para la selección de aspirantes en su ingreso a una carrera de la UTN, sin demérito del acceso de poblaciones previamente definidas en la Política de Admisión.

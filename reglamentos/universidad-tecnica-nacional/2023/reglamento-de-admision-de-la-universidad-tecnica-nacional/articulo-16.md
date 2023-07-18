@@ -1,0 +1,1 @@
+Artículo 16. Componentes del criterio de admisión para la selección de aspirantes de nuevo ingreso. El criterio de admisión lo constituyen dos componentes: el promedio de las notas de Educación Diversificada o su equivalente, y la aplicación de acciones afirmativas, cuando corresponda.

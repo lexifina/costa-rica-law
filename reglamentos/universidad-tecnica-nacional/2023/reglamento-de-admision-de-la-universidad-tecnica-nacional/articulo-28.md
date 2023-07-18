@@ -1,0 +1,5 @@
+Artículo 28. Condiciones de ingreso. Para ingresar al nivel de Bachillerato en la misma carrera, cuando ésta cuenta con dicho nivel, se requiere cumplir con alguna de las siguientes condiciones:
+a) Haber concluido el nivel de diplomado de la UTN o, en su defecto, deber doce o menos créditos del nivel de diplomado de la UTN; ninguno de estos cursos pendientes de diplomado debe ser requisito para cursos del nivel de bachillerato.
+b) Tener reconocido y equiparado el título de pregrado con la carrera atinente de la UTN, según la normativa vigente.
+Para la condición a), el ingreso al nivel de bachillerato no conlleva realizar la solicitud específica de ingreso ya que el sistema informático de matrícula valida el cumplimiento de lo establecido.
+En el caso de la condición b), el documento a aportar con la solicitud de ingreso es el dictamen final emitido por la Comisión de Reconocimientos y Equiparaciones de la UTN. El criterio de selección se realiza según el promedio ponderado obtenido por la persona estudiante en la totalidad de las materias de su plan de estudios, en orden de mayor a menor.

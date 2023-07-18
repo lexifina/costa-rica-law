@@ -1,0 +1,1 @@
+Artículo 25. Resultado de admisión: El resultado de admisión se determina con base en la nota de admisión obtenida en cada carrera y en orden de mayor a menor. Cada persona aspirante puede consultar el resultado de admisión en la plataforma tecnológica institucional o por el medio oficial que disponga la UTN.

@@ -1,0 +1,1 @@
+Artículo 42. Ingreso para estudiantes visitantes o de intercambio. La dependencia correspondiente define las condiciones y criterios de ingreso para estudiantes visitantes o de intercambio, que ingresan de manera temporal a una unidad académica de la UTN o en algún programa académico, de acuerdo con convenios previamente establecidos para tal propósito.

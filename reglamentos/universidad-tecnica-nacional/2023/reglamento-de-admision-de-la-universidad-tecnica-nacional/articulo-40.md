@@ -1,0 +1,1 @@
+Artículo 40. Resoluciones de la DRU. Cualquier situación no contemplada o divergencia que resulte de la aplicación de este Reglamento debe ser resuelta y debidamente justificada por la DRU, en su función de administradora del proceso de admisión, salvo aquellas que por su naturaleza le corresponda resolver directamente al CU.

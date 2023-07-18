@@ -1,0 +1,1 @@
+Artículo 4. Competencias de la DRU. Le corresponde a la DRU coordinar, dirigir, ejecutar, supervisar, administrar, registrar, controlar y evaluar los diversos procesos de admisión que realiza la UTN, así como, proponer la normativa relacionada para estos procesos.

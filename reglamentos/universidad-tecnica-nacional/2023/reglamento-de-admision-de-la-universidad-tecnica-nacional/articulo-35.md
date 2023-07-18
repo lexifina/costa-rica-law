@@ -1,0 +1,1 @@
+Artículo 35. Poblaciones y criterios de selección. Las poblaciones estudiantiles que se consideran para la admisión diferida, así como los criterios de selección, se rigen por lo estipulado en la Política de Admisión Diferida, aprobada por el CU y el Protocolo de Admisión Diferida.

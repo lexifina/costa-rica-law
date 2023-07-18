@@ -1,0 +1,1 @@
+Artículo 24. Cambios en la solicitud de admisión. En caso que la persona aspirante requiera realizar algún cambio en la solicitud de admisión, puede efectuarlo de acuerdo con lo establecido en el Protocolo de Admisión vigente.

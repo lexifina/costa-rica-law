@@ -1,0 +1,1 @@
+Artículo 6. Cupos por sede, carrera y franja horaria. Compete a la VDOC remitir a la DRU la cantidad de cupos para los procesos de admisión por sede, carrera y franja horaria, correspondientes a los niveles de pregrado y grado, mismos que son previamente establecidos por la Rectoría, según lo normado en el Estatuto Orgánico de la UTN.

@@ -1,0 +1,1 @@
+Artículo 2. Alcance. Este reglamento aplica para las personas que deseen ingresar a una carrera de la Universidad Técnica Nacional mediante los procesos de admisión, para los niveles de pregrado y grado.

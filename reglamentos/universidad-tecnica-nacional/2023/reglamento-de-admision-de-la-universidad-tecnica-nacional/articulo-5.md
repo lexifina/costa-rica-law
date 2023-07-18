@@ -1,0 +1,1 @@
+Artículo 5. Responsable del proceso de admisión. El proceso de admisión es responsabilidad de la DRU, en coordinación con el Área de Admisión y Matrícula y el personal de Registro Universitario de cada sede. La normativa aplicable en este tema se establece de acuerdo con lo normado en las políticas emitidas por el CU, el Protocolo de Admisión y el presente reglamento.

@@ -1,0 +1,1 @@
+Artículo 13. Oferta académica. La oferta académica es un conjunto estructurado de elementos, que contiene los cursos de una carrera, denominado plan de estudios y que el estudiantado tiene a su disposición para matricular en un periodo determinado.

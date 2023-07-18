@@ -1,0 +1,1 @@
+Artículo 23. Admisión a sedes y carreras. Cada persona aspirante puede solicitar admisión hasta en dos carreras, en la misma sede o en sedes diferentes. En caso de seleccionar dos sedes, debe elegir una carrera en cada sede. Puede escoger la misma carrera o carreras diferentes.

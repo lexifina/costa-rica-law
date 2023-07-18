@@ -1,0 +1,1 @@
+Artículo 19. Aplicación de puntos por acciones afirmativas. Para aplicar los puntos por acciones afirmativas, la persona aspirante debe aportar los documentos probatorios, según sea el caso, de acuerdo con lo indicado en el Protocolo de Admisión vigente.

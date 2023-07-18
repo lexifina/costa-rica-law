@@ -1,0 +1,1 @@
+Artículo 11. Vigencia de la solicitud. La solicitud de admisión aplica para el período en el cual se realiza. No efectuar la matrícula en las fechas establecidas se considera una renuncia tácita a la solicitud de admisión a la carrera de la UTN.

@@ -1,0 +1,1 @@
+Artículo 29. Solicitud de ingreso. Es el proceso que debe realizar la persona interesada en continuar estudios a nivel de bachillerato, mediante el uso de la plataforma tecnológica institucional o el medio oficial que disponga la UTN.

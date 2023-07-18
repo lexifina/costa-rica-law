@@ -1,0 +1,1 @@
+Artículo 30. Criterio de selección para el ingreso al Bachillerato en la Enseñanza de la Especialidad Técnica. Éste se determina según el promedio general obtenido por la persona estudiante en la totalidad de las materias de su plan de estudios atinente con la especialidad, en orden de mayor a menor en función de los cupos ofertados en la carrera.

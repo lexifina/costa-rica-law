@@ -1,0 +1,1 @@
+Artículo 7. Comunicación de los procesos estudiantiles. Los procesos estudiantiles se rigen según las actividades y fechas establecidas en el calendario institucional aprobado por el CU, el cual se da a conocer a toda la comunidad universitaria y al público en general, a través de los medios oficiales, para su fiel observancia y debido cumplimiento.

@@ -1,0 +1,1 @@
+Artículo 20. Nota de admisión. La nota de admisión está constituida por el promedio de notas de Educación Diversificada o su equivalente, y el puntaje derivado de la aplicación de las acciones afirmativas, cuando corresponda.

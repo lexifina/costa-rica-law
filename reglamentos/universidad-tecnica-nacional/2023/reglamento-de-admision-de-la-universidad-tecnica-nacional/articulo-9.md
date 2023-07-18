@@ -1,0 +1,4 @@
+Artículo 9. Categorías de personas aspirantes. La persona aspirante se define como aquella que solicita formalmente admisión para ingresar a una carrera de la UTN y se puede categorizar de la siguiente forma:
+a) Aspirante externo: La persona aspirante que solicita formalmente admisión para ingresar por primera vez a la UTN a alguna de las carreras ofertadas.
+b) Aspirante interno: Persona estudiante de la UTN que solicita formalmente admisión para ingresar a su misma carrera, en caso de no aplicar para un reingreso; a otra carrera o a otro nivel de su misma carrera.
+c) Aspirante visitante o de intercambio: Persona estudiante regular de otras universidades o instituciones, nacionales o internacionales, que ingresa de manera temporal a una unidad académica de la UTN o en algún programa académico, de acuerdo con convenios previamente establecidos para tal propósito.

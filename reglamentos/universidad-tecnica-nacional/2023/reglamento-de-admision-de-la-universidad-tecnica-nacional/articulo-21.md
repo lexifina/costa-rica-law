@@ -1,0 +1,1 @@
+Artículo 21. Cálculo de la nota de admisión. El cálculo de la nota de admisión se realiza mediante la aplicación de una fórmula establecida para este fin, la cual se detalla en el Protocolo de Admisión vigente.

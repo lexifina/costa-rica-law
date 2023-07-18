@@ -1,0 +1,1 @@
+Artículo 18. Acciones afirmativas. Las acciones afirmativas son puntos adicionales que se otorgan para el cálculo de la nota de admisión a la UTN, cuando corresponda, a poblaciones que la institución ha definido como prioritarias y que se encuentran debidamente establecidas en la Política de Admisión aprobada por el CU.

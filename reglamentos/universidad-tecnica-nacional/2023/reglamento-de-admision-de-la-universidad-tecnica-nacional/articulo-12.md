@@ -1,0 +1,1 @@
+Artículo 12. Responsabilidad de la persona aspirante. Es responsabilidad de la persona aspirante suministrar la información requerida de forma veraz, oportuna y confiable. La persona aspirante es responsable por los errores y omisiones en que incurra durante el proceso de admisión.

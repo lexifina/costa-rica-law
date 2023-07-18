@@ -1,0 +1,2 @@
+CAPÍTULO VII COMISIÓN INSTITUCIONAL DE ADMISIÓN
+Artículo 37. Comisión Institucional de Admisión. La conformación de la Comisión Institucional la determina la Rectoría, con la representación de las siguientes áreas: Decanaturas, Vicerrectoría de Docencia, Vicerrectoría de Vida Estudiantil, representantes estudiantiles y docentes titulares del Consejo Universitario, Dirección de Planificación Universitaria y otras áreas con las que se estime pertinente ampliar esta comisión.
