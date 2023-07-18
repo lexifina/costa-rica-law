@@ -1,0 +1,1 @@
+Artículo 18.-Abstención o recusación del Órgano Director del Procedimiento. En caso de que se den motivos de abstención o recusación, se procederá conforme las disposiciones establecidas en los artículos 230 y siguientes de la Ley General de la Administración Pública y, supletoriamente, 1 2 del Código Procesal Civil.

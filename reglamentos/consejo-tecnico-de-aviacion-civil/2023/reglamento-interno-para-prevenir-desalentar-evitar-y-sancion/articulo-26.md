@@ -1,0 +1,1 @@
+Artículo 26.-Plazo del procedimiento administrativo. El plazo ordenatorio del procedimiento administrativo no podrá exceder de dos meses, contados a partir de la notificación de la imputación e intimación de cargos a la persona denunciada. El incumplimiento de las disposiciones anteriores constituye una falta que se sancionará, según su gravedad.

@@ -1,0 +1,1 @@
+Artículo 27.-De los recursos. Con respecto a los recursos, su naturaleza, playo para interponerlos y para resolver los actos administrativos recurribles, así como los demás aspectos vinculados con la materia administrativa, aplicará las reglas de la Ley General de la Administración Pública, Ley número 6227 del 2 de mayo de 1978.

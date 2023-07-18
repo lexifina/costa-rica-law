@@ -1,0 +1,1 @@
+Artículo 33.-Falta de la debida divulgación. Las y los funcionarios y dependencias administrativas a quienes se les asignen funciones en materia de asesoría y divulgación establecidas en el presente reglamento, que retardaren u omitieren su cumplimiento, incurrirán en responsabilidad que se computarán como falta leve.

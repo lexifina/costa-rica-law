@@ -1,0 +1,5 @@
+Artículo 23.-Comparecencia oral y privada. En concordancia con lo dispuesto en el artículo 21 anterior, el procedimiento ordinario se tramitará mediante una comparecencia oral y privada, en la cual se citará al denunciado. El plazo ordenatorio para la citación, es con quince días de anticipación. En este acto se admitirá la contestación de la denuncia y todas las pruebas. serán valoradas de conformidad con las reglas de la sana critica, la lógica y la experiencia. El denunciado tendrá la oportunidad en ese mismo acto de presentar sus conclusiones o alegatos.
+La falta de contestación de la persona denunciada permitirá tener por acreditados los hechos, en cuanto no resultan refutados por la prueba que conste en el expediente.
+La persona denunciada podrá comparecer en cualquier momento, pero tomará el proceso en el estado en que se encuentre. La Comisión contra el acoso sexual, podrá pasar a la elaboración del informe final de forma anticipada; es decir, sin más trámite, cuando:
+a) la persona denunciada acepta los hechos planteados en la denuncia.
+b) la persona denunciada no se presente a la comparecencia oral y privada en el plazo otorgado.

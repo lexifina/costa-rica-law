@@ -1,0 +1,1 @@
+Artículo 25.-Resolución final. Corresponderá al CETAC resolver, como órgano decisor, emitir el acto final respectivo, el cual deberá notificarse a las partes por el medio señalado para tal efecto; asimismo, deberá ser comunicado tanto a la Unidad de Gestión de Recursos Humanos, como a la Defensoría de los Habitantes, para lo que en derecho corresponda.

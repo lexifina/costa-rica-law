@@ -1,0 +1,1 @@
+Artículo 29.-Procedimiento judicial para sancionar el hostigamiento sexual. La denuncia de hostigamiento sexual, vía judicial, les compete a los tribunales de jurisdicción Laboral, tal y como lo establece el capítulo VI de la Ley contra hostigamiento o acoso sexual en el empleo y la docencia.

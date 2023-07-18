@@ -1,0 +1,1 @@
+Artículo 32.-Violación a la confidencialidad. Cualquier incidencia de quien sea integrante del órgano director. de los testigos, o cualquier otro que por la naturaleza de su puesto conozca o tenga información de la denuncia y que violare la confidencialidad y el secreto del proceso. se considerará como falta grave y se tomaran las medidas respectivas.

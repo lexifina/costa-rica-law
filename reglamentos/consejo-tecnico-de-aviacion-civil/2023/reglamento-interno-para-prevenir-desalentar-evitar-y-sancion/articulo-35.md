@@ -1,0 +1,4 @@
+Artículo 35.-lnstancia encargada de la aplicación, seguimiento y comunicación de las medidas de tratamiento individual a la persona sancionada. El Proceso de Salud Ocupacional (psicólogo)es el órgano encargado de determinar y coordinar con las instancias competentes, las acciones relacionadas con las medidas de tratamiento voluntario, entre las cuales se podrán contemplar:
+a) Tratamiento psicológico individual, cuyo tiempo será de conformidad con la evaluación realizada por el profesional. Sin embargo, no podrá ser menor de 4 sesiones.
+b) Capacitación para el desarrollo de habilidades directivas e interpersonales.
+c) Cualquier otra que brinde una alternativa sana de abordaje a la situación que se presenta. Al finalizar la (s) medida (s) de tratamiento, el Proceso de Salud Ocupacional, comunicará al órgano decisor de la (s) medida (s) ejecutada (s) y el cumplimiento o no de esta (s).
