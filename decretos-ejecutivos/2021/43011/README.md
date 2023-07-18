@@ -14,3 +14,4 @@ Reglamento para la adquisición asignación, uso, custodia y reposición de los 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-09-14 | la propia norma |
+| 2 | 2023-07-18 | Decreto Ejecutivo 44189 (2023-07-18) |

@@ -1,4 +1,11 @@
-Artículo 3°-Funcionarios a quienes se les asigna servicio de telefonía móvil. Se encuentran facultados para utilizar teléfonos celulares y servicios complementarios, en virtud de sus cargos, el Ministro, Viceministros, Director General de Salud y sus respectivos asesores; además los Directores de Nivel Central y Directores de Nivel Regional; los choferes del Ministro, Viceministros y Director General de Salud, así como al Coordinador de Gestión de Riesgo, los encargados del manejo de trasplantes de órganos humanos y tejidos, y el encargado o coordinador del Centro Nacional de Enlace del Reglamento Sanitario Internacional.
-También se asignarán líneas celulares al Director de la Secretaría Técnica de Salud Mental; al Jefe de la Unidad de Relaciones Internacionales, además las requeridas para los puestos de recepción de datos, para las estaciones de monitoreo de la calidad del aire a cargo de la Dirección de Protección Radiológica y Salud Ambiental. Igualmente, las requeridas para los contenedores móviles que operan en apoyo a las actividades de salud, en diferentes sitos del país, así como las utilizadas en las inspecciones y operativos de la Dirección de Regulación de Productos de Interés Sanitario, de las cuales serán responsables las jefaturas de las unidades organizativas que tengan a cargo las actividades señaladas.
-La asignación de los servicios telefónicos celulares y complementarios contemplados en este Reglamento, se debe sujetar a los principios de razonabilidad, racionalidad y, a las prácticas generales de una sana administración de los recursos públicos.
-Si por motivo de sus funciones, algún otro funcionario requiere contar con los servicios de telefonía celular y sus complementos, deberá ser autorizado expresamente por el Ministro y/o la Dirección General de Salud, indicando las razones de necesidad ministerial que sustentan la asignación del activo.
+Artículo 3º-Usuarios del servicio: Se encuentran facultados de pleno derecho para utilizar teléfonos celulares propiedad del Ministerio de Salud, en virtud de sus cargos, los siguientes funcionarios:
+a. Ministro
+b. Viceministros
+c. Director General de Salud
+d. Jefe del Despacho Ministerial
+e. Secretaría Ejecutiva de Donación y Trasplante de órganos y tejidos humanos
+f. Choferes del Ministro, Viceministro y de la Dirección General de Salud
+g. Directores Regionales
+h. Directores de Áreas Rectoras de Salud
+i. Cualquier otro funcionario que requiera contar con un teléfono celular y su respectiva línea, por motivo de sus funciones, deberá ser autorizado expresamente por el Ministro y/o Director General de Salud, fundamentando las razones de necesidad que sustenten la asignación del citado activo.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 44189 del 18 de julio del 2023)
