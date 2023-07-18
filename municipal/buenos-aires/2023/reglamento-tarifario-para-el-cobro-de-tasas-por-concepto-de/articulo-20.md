@@ -1,0 +1,1 @@
+Artículo 20.-Nueva clase de patentado. Cualquier clase nueva de patentado, sea ente de carácter estatal y otro tipo de organización privada, que surgiera luego de publicado este reglamento, se clasificará de acuerdo a sus patrones de generación de residuos sólidos y actividades similares.

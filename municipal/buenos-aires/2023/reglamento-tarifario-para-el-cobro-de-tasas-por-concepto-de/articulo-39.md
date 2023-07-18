@@ -1,0 +1,1 @@
+Artículo 39.-Sobre el servicio de mantenimiento. Al suscribir el contrato de arrendamiento, el arrendatario se compromete, al pago de una cuota de mantenimiento anual, que podrá ser cancelada en forma trimestral.

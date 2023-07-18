@@ -1,0 +1,1 @@
+Artículo 37.-Sujeto pasivo. Es sujeto pasivo para los efectos de esta tasa, toda aquella persona física o jurídica que sea dueño o poseedor de un bien inmueble, dentro del cantón de Buenos Aires, siendo que dicha condición lo obliga al pago de la tasa que cobra la municipalidad por el servicio de aseo de vías y sitios públicos.

@@ -1,0 +1,4 @@
+Capítulo VII
+Tasa y/o precio por el Servicio de Cementerio
+Artículo 38.-Cobro de servicios de cementerio. La Municipalidad queda facultada para cobrar tasas y/o precios por los servicios de inhumación, exhumación, mantenimiento, permiso de uso funerario, y permisos de construcción de bóvedas, así como cualquier otro servicio que en el futuro se brinde, de acuerdo con las tarifas que fije el Concejo Municipal mediante acuerdo debidamente aprobado y publicado en el diario Oficial La Gaceta.
+Estas tarifas serán debidamente actualizadas anualmente y aprobadas por el Concejo Municipal mediante acuerdo, siguiendo el procedimiento establecido en el ordinal 46 del presente reglamento, y serán ajustadas según varíen los componentes que las determinen, así mismo, una vez aprobadas y publicadas, deberán estar exhibidas en las urnas u oficinas de la administración o de los cementerios.

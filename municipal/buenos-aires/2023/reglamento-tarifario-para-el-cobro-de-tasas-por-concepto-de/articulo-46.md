@@ -1,0 +1,1 @@
+Artículo 46.-Tarifa por permiso de construcción de bóveda. Las construcciones de bóvedas quedan sujetas al pago de licencias de construcción, cuyo monto será objeto de determinación por parte de la administración en relación con el valor total de la obra en un 1%.

@@ -1,0 +1,1 @@
+Artículo 25.-Sujeto pasivo con local comercial sin actividad: Los propietarios de inmuebles con locales comerciales desocupados pagaran una tasa correspondiente a la Categoría Comercial 1 hasta tanto vuelvan a contar con una patente comercial, se les actualizara según su categoría.

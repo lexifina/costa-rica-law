@@ -1,0 +1,1 @@
+Artículo 17.-Categoría de Residencial y religiosas. Toda unidad habitacional y templos religiosos, que se encuentren dentro del área de cobertura del servicio. Se ubicarán dentro de la tarifa Residencial.

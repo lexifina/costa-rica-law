@@ -1,0 +1,1 @@
+Artículo 9°-Fijación de las tasas. La Municipalidad fijará las tasas y/o precios públicos por los servicios citados en el artículo anterior, que incluyan los costos para realizar una gestión integral de los mismos, asegurando el fortalecimiento de la infraestructura necesaria para brindarlos y garantizar su sostenibilidad.

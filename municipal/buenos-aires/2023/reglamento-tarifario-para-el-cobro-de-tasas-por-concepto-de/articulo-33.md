@@ -1,0 +1,1 @@
+Artículo 33.-Mejoras o adiciones de infraestructura. La Municipalidad coordinará en conjunto con la comunidad donde se ubique el parque, juegos infantiles o zonas comunales para realizar mejoras o adiciones de infraestructura de acuerdo a las necesidades y los recursos con que se cuente.
