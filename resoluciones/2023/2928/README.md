@@ -14,3 +14,4 @@ Expiración del plazo conferido por el Tribunal Supremo de Elecciones para fijar
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-05-16 | la propia norma |
+| 2 | 2023-07-19 | Resolución 6018 (2023-07-19) |
