@@ -1,0 +1,1 @@
+Artículo 6.- Sobre la titularidad y uso de los datos producto de los controles no intrusivos. Los derechos de propiedad y uso de los datos e imágenes provenientes de los componentes de control no intrusivo pasarán a la titularidad del Estado costarricense para el uso exclusivo y análisis por parte de las instituciones públicas con competencias afines.
