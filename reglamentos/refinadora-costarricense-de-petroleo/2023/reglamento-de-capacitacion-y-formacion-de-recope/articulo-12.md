@@ -1,0 +1,2 @@
+Artículo 12.-Acciones de capacitación al exterior. Tratándose de actividades de capacitación al exterior, la persona participante de la actividad de capacitación debe de rendir el correspondiente informe al titular subordinado inmediato, y al Departamento de Desarrollo del Capital Humano, incluyendo copia del material que le haya sido entregado y que se considere de interés para ella.
+En caso del Presidente, Auditor General y Subauditor, este informe deberá ser presentado ante la Junta Directiva.

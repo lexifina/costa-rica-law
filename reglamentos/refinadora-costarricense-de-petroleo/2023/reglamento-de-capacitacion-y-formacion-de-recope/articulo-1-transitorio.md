@@ -1,0 +1,1 @@
+Transitorio. Los contratos de beca y retribución de tiempo, que fueron celebrados durante la vigencia del Reglamento anterior y que actualmente se encuentran activos, se regirán bajo los criterios definidos en dicho reglamento.
