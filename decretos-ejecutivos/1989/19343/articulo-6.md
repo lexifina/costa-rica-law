@@ -1,1 +1,0 @@
-Artículo 6°-Los miembros del Comité, excepto el titular de la Cartera o su representante, durarán en sus cargos dos años y se renovarán por mitades cada año. No podrán ser reelectos en forma sucesiva, excepto en casos calificados de inopia

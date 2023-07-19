@@ -1,3 +1,0 @@
-ARTÍCULO 16.-Las instituciones del Sector Público de Salud, deberán confeccionar su formulario básico de medicamentos con normas administrativas y de información terapéutica, concordantes con el Formulario Terapéutico Nacional.
-Para tales efectos y para velar correctamente por la aplicación del presente Reglamento, cada institución tendrá en su seno un Comité de Farmacoterapia, que ser quien tendrá también la responsabilidad de aprobar la compra de productos farmacéuticos que no están incluidos en el Formulario Terapéutico Nacional en casos de excepcional urgencia y necesidad.
-En todo caso, esta determinación deber ser puesta en conocimiento del Comité con la información y datos que sean necesarios para justificar esa medida.

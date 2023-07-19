@@ -1,2 +1,0 @@
-Artículo 2°-Declárase oficial el formulario Terapéutico Nacional, que se incluye como anexo del presente Decreto. Este formulario podrá ser modificado en el futuro, de acuerdo con las normas y procedimientos previstos en este mismo Reglamento.
-Asimismo, el Ministerio queda autorizado para emitir los instructivos técnicos necesarios con la información terapéutica correspondiente a cada producto, Tales instructivos formarán parte del Formulario Terapéutico Nacional.

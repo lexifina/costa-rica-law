@@ -1,1 +1,0 @@
-ARTÍCULO 15.-La exclusión de un medicamento ser efectiva a partir del agotamiento de sus existencias en las instituciones públicas de salud, a menos que se tome una determinación distinta por parte del Ministerio, conforme con la ley.
