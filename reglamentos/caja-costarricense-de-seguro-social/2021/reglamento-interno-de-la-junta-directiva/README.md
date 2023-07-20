@@ -14,3 +14,4 @@ Reglamento interno de la Junta Directiva
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-09-24 | la propia norma |
+| 2 | 2023-07-20 | Reglamento 9355 (2023-07-20) |
