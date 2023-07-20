@@ -1,0 +1,1 @@
+Transitorio II: Se autoriza la extensión del teletrabajo excepcional durante los siguientes 3 meses posteriores a la publicación de esta reforma, por lo que, las personas funcionarias que a esa fecha no cuenten con una adenda de teletrabajo, deberán reincorporarse a ejecutar sus funciones de forma presencial.

@@ -1,0 +1,4 @@
+CAPÍTULO II
+El perfil
+Artículo 8º-De la solicitud para laborar bajo la modalidad de teletrabajo. Cuando una persona funcionaria desee acogerse a la prestación de servicios bajo la modalidad de teletrabajo debe solicitarlo mediante la documentación respectiva a la Jefatura de Unidad.
+Una vez recibida la solicitud, la Jefatura en conjunto con el superior inmediato, considerarán la idoneidad de la persona solicitante para laborar bajo esta modalidad de conformidad con los procedimientos institucionales establecidos para tales efectos, y de proceder, elevarán la solicitud a la URH quien verificará el cumplimiento de los requisitos de conformidad con este reglamento y los procedimientos que regulan la incorporación a la modalidad de Teletrabajo. En los casos donde la solicitud de teletrabajo sea rechazada, la Jefatura de la Unidad en conjunto con su superior jerárquico inmediato, deberán motivar dicha decisión.

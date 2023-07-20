@@ -1,0 +1,3 @@
+Transitorio I: Las personas funcionarias que a la entrada en vigencia de este reglamento cuenten con una adenda al contrato de trabajo vigente, continuarán con las condiciones ahí estipuladas, salvo que realicen una nueva solicitud ajustándose a las nuevas condiciones aquí estipuladas.
+En cuanto los derechos otorgados con esta nueva reglamentación aplicarán la norma más favorable, por lo que no será necesario suscribir una nueva adenda para que se le sean reconocidos estos.
+En caso de las solicitudes que se encuentren en trámite deberá concluir de conformidad con las disposiciones contempladas en la presente reglamentación.
