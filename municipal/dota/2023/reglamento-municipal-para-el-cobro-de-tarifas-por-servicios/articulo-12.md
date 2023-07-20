@@ -1,0 +1,1 @@
+Artículo 12.-En materia de la omisión de pagos por trabajos realizados por parte de la Municipalidad o de las organizaciones no gubernamentales autorizadas con ese fin por la institución municipal serán sancionados conforme lo establecido en los artículos 77, 77 bis, 78, 79 y 80 del Código Municipal.

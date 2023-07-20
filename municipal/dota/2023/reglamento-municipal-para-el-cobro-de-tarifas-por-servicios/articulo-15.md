@@ -1,0 +1,1 @@
+Artículo 15.-De las personas obligadas al pago: Será responsabilidad directa del propietario o nudo propietario registral del inmueble el pago de los servicios previstos en este reglamento y no podrá invocarse contra la Administración ninguna cláusula suscrita entre privados que exima al propietario del pago de las tarifas aquí previstas.

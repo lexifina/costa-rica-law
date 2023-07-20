@@ -1,0 +1,3 @@
+CAPÍTULO CUARTO
+De la fijación de costos y tarifas
+Artículo 13.-Fijación de costos. El Concejo Municipal fijará los costos que se deberán cobrar por los servicios que preste o las obras que realice la Municipalidad y el acuerdo que los establezca deberá ser publicado en el Diario Oficial La Gaceta y los mismos estarán sujetos a una actualización cuya periodicidad será anual, a través de un estudio técnico debidamente justificado, mediante un criterio técnico emitido por la Oficina de Unidad Técnica de Gestión Vial de Dota, este Informe Técnico será elevado a conocimiento del Concejo Municipal a más tardar en la primera quincena del mes de febrero de cada año. Una vez aprobados regirán para ser aplicados a partir de su firmeza.

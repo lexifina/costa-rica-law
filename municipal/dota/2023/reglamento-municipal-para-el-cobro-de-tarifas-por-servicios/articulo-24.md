@@ -1,0 +1,1 @@
+Artículo 24.-Pagos a las organizaciones. Los pagos por omisión de deberes, cuyas obras sean realizadas por las mismas organizaciones, serán tramitados a través de la Asociación de Desarrollo y canalizados hacia los comités de caminos involucrados y ejecutores directos de las actividades de mantenimiento manual. Esto aplica si hay cumplimiento del artículo 12.

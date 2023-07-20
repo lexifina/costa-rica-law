@@ -1,0 +1,9 @@
+CAPÍTULO SEGUNDO
+De los deberes y obligaciones
+Artículo 6º-Dentro de los bienes inmuebles: Son deberes de los propietarios dentro de los bienes inmuebles ubicados dentro de la jurisdicción del cantón de Dota:
+a. Construir cercas y limpiar los lotes sin construir.
+b. Instalar adecuadamente y darles el debido mantenimiento a los bajantes y canoas que recolectan las aguas pluviales de las edificaciones y las dirigen hacia los alcantarillados o vía pública.
+c. Separar, recolectar o acumular, para el transporte y la disposición final de los desechos sólidos provenientes de las actividades personales, familiares, públicas o comunales, o provenientes de operaciones agrícolas, ganaderas, industriales, comerciales o turísticas, sólo mediante los sistemas de disposición final aprobados por la Dirección de Protección al Ambiente Humano del Ministerio de Salud.
+d. Contar con un sistema de separación, recolección, acumulación y disposición final de desechos sólidos aprobados por la Dirección de Protección al Ambiente Humano del Ministerio de Salud, en las empresas agrícolas, ganaderas, industriales, comerciales y turísticas, cuando el servicio público de disposición de desechos sólidos es insuficiente o inexistente, o si por la naturaleza o el volumen de desechos este no es aceptable sanitariamente.
+e. Ejecutar las obras de conservación de las fachadas de casas o edificios visibles desde la vía pública cuando, por motivos de interés turístico, arqueológico o histórico la Municipalidad así lo exija.
+f. Ejecutar las obras de demolición de todas aquellas edificaciones, que estén declaradas como inhabitables y que deben ser demolidas, de acuerdo con el pronunciamiento oficial del Ministerio de Salud, con la potestad que le confiere la Ley General de Salud. Dichas edificaciones serán todas aquellas que arriesguen la vida, patrimonio o la integridad física de terceros, o cuyo estado de abandono favorezca la comisión de actos delictivos.

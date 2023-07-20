@@ -1,0 +1,1 @@
+Artículo 21.-Notificación de cobro. Habiendo ejecutado los trabajos, la Municipalidad desde el departamento de Promoción Social en coordinación con la Fuerza Pública procederá con la notificación de cobro al respectivo propietario.

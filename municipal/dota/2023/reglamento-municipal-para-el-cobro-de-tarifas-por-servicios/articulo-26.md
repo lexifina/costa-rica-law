@@ -1,0 +1,1 @@
+Artículo 26.-Ejecución de obras por organizaciones. Las organizaciones autorizadas podrán ejecutar cualquier actividad de mantenimiento manual, cuando obedezca al incumplimiento de los vecinos, previo convenio firmado por la Municipalidad y la Organización y avalado por el Consejo Municipal.

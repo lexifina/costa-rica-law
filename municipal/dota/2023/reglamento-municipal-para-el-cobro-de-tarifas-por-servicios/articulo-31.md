@@ -1,0 +1,1 @@
+Artículo 31.-Canalización de aguas. De conformidad con el artículo 20 de la Ley General de Caminos, los Comités de Caminos, las Asociaciones de Desarrollo y las demás organizaciones, coordinarán con los vecinos, la canalización de aguas provenientes de los caminos de acuerdo con las recomendaciones técnicas emitidas por la Unidad Técnica de Gestión Vial Municipal.
