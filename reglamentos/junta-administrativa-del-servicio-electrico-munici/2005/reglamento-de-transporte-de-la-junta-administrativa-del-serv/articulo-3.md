@@ -1,1 +1,0 @@
-Artículo 3°—Objeto. Este Reglamento tiene como objeto fundamental crear, regular y controlar un sistema de administración del proceso de transportes, debidamente planificado, que cumpla con el ordenamiento y el servicio al cliente, de manera eficiente, eficaz y al menor costo.
