@@ -1,1 +1,0 @@
-Artículo 41.- Contenido del Plan Anual de Trabajo de Auditoría Interna: El Plan incluirá los estudios de auditoría a realizar durante un año calendario, según lo detalla el instructivo I-PLA-02-03 “Plan Anual de Trabajo” e incluirá la información establecida en su Formulario F-PLA-045 “Plan Anual de trabajo”.

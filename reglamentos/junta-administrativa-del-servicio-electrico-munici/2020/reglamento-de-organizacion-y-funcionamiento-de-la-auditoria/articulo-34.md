@@ -1,3 +1,0 @@
-CAPÍTULO V: RELACIONES Y COORDINACIONES
-Artículo 34.- Relaciones con los auditados: Con la aplicación de las actividades determinadas en los programas generales para servicios de auditoria se establecen aspectos de relaciones y coordinaciones de la auditoria con los auditados. Lo anterior mediante el proceso de estudios de Control Interno, metodologías de revisiones de estados financieros, revisiones de presupuesto y seguimientos.
-Asimismo, la Auditoría Interna podrá dar acompañamiento a procesos específicos y viables de la Administración Activa, según los roles y facultades atribuibles a dicha Unidad por la Ley N°8292 y demás normativa aplicable.
