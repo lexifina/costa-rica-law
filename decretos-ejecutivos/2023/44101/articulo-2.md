@@ -1,0 +1,1 @@
+Artículo 2º-Las instituciones públicas deberán destinar los recursos necesarios que permitan implementar las nuevas "Normas y Criterios Operativos para la utilización de los Clasificadores Presupuestarios del Sector Público."

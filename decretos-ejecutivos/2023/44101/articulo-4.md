@@ -1,0 +1,1 @@
+Artículo 4º-Derogase el Decreto Ejecutivo N° 41264-H, publicado en el Alcance N° 152 a La Gaceta N° 159 del 31 de agosto del 2018, denominado "Normas y Criterios Operativos para la utilización de los Clasificadores Presupuestarios del Sector Público".
