@@ -21,3 +21,4 @@ Reglamento que Regula la Formalización de Acuerdos de Pago por deudas de Patron
 | 6 | 2022-03-03 | Reglamento 9243 (2022-03-03) |
 | 7 | 2022-05-05 | Reglamento 9257 (2022-05-05) |
 | 8 | 2022-12-01 | Reglamento 9298 (2022-12-01) |
+| 9 | 2023-07-20 | Reglamento 9355 (2023-07-20) |

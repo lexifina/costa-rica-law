@@ -2,4 +2,4 @@ Transitorio I.- En caso de patronos que tienen arreglos y convenios de pago form
 (Reformado en el artículo 309°, de la sesión N° 8986, celebrada el 30 de agosto del año 2018 y publicado en el Diario La Gaceta N° 194 del 22 de octubre del 2018).
 (Así adicionado mediante sesión N° 8986 del 30 de agosto de 2018)
 (Así reformado mediante sesión N° 9145 del 10 de diciembre del 2020)
-(Nota de Sinalevi: Mediante sesión N° 9243 del 3 de marzo de 2022, la Junta Directiva de la CCSS, acuerda mantener la aplicación hasta el 30 de junio del 2023, del presente transitorio)
+(Nota de Sinalevi: Mediante sesión N° 9355 del 20 de julio del 2023, la Junta Directiva de la CCSS, acuerda mantener la aplicación hasta el 31 de diciembre de 2023, del presente transitorio)

@@ -23,4 +23,4 @@ Para las readecuaciones de convenios de pago, el plazo máximo es de 60 meses se
 Las demás condiciones establecidas en los artículos 13 y 17 de este reglamento se mantendrán incólumes.
 (Así adicionado mediante sesión N° 9043 del 19 de julio del 2019)
 (Así reformado en sesión N° 9145 del 10 de diciembre del 2020)
-(Nota de Sinalevi: Mediante sesión N° 9243 del 3 de marzo de 2022, la Junta Directiva de la CCSS, acuerda mantener la aplicación hasta el 30 de junio del 2023, del presente transitorio)
+(Nota de Sinalevi: Mediante sesión N° 9355 del 20 de julio del 2023, la Junta Directiva de la CCSS, acuerda mantener la aplicación hasta el 31 de diciembre de 2023, del presente transitorio)
