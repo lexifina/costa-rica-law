@@ -13,3 +13,4 @@ Modificación de la circular N° 158-2017, sobre las oficinas autorizadas a para
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-04-24 | la propia norma |
+| 2 | 2023-07-20 | Circular 171 (2023-07-20) |
