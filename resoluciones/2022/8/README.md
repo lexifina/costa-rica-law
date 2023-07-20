@@ -14,3 +14,4 @@ Comprobantes electrónicos que emiten y entregan las compañías aéreas y agenc
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-04-01 | la propia norma |
+| 2 | 2023-07-20 | Resolución 15 (2023-07-20) |
