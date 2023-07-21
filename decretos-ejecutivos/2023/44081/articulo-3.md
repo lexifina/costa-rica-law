@@ -1,0 +1,1 @@
+Artículo 3°-Esta declaratoria prohíbe su demolición, o remodelación parcial o total; sin autorización previa del Centro de Investigación y Conservación del Patrimonio Cultural de esta Cartera Ministerial.
