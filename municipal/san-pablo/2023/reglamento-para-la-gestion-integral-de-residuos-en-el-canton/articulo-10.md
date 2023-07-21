@@ -1,0 +1,1 @@
+Artículo 10º-Acceso a Información de Patentados. Para el cumplimiento de estas acciones, la Municipalidad garantizará que el Departamento de Gestión Ambiental cuente con acceso a una base de datos de contribuyentes completa, actualizada y sistematizada para una eficaz labor de identificación y categorización de generadores.

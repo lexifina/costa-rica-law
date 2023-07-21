@@ -1,0 +1,1 @@
+Artículo 119º-Nueva Clase de Patentado. Cualquier actividad comercial o industrial nueva, de carácter estatal u otro tipo de organización privada, que apareciera y no este clasificado luego de publicado este reglamento, se clasificará de acuerdo a las características del mismo.

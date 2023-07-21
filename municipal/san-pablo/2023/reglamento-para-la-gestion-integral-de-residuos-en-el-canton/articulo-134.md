@@ -1,0 +1,1 @@
+Artículo 134º-Otras actividades. Se podrán coordinar otro tipo de actividades educativas y de sensibilización que no estén contempladas en los artículos 131º, 132º, 133º de este reglamento. Estas actividades adicionales tendrán el objetivo de fomentar la gestión integral de los residuos sólidos.

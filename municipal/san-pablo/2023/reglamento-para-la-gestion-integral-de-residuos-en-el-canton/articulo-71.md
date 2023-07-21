@@ -1,0 +1,1 @@
+Artículo 71º-Plan de Gestión de Residuos. Previamente y como requisito de aprobación de la licencia de construcción y/o demolición, el interesado deberá presentar a la Municipalidad el Plan de Gestión Integral de los Residuos generados, o en su defecto el contrato con la empresa que va a realizar la recolección y gestión de este tipo de residuos.

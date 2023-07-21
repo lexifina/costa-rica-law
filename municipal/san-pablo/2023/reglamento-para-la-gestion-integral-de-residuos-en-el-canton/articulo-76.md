@@ -1,0 +1,3 @@
+CAPÍTULO DÉCIMO
+Centros de Recuperación y Almacenamiento Temporal de Residuos
+Artículo 76º-Centros de Recuperación y Almacenamiento Temporal. La Municipalidad tiene la facultad de instalar, operar y/o habilitar centros de recuperación de materiales valorizables para la acumulación, clasificación, preparación y comercialización de los residuos. La Municipalidad promoverá la construcción, manejo y sostenibilidad de este tipo de centros de recuperación en el Cantón. Los centros de recuperación adoptarán la figura legal que más convenga a la Municipalidad, pudiendo ser de administración municipal, dados en concesión a terceros previamente calificados, manejados bajo una figura de alianza público-privada, entre otros modelos de administración.

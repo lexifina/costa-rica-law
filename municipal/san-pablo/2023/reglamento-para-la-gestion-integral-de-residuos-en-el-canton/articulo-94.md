@@ -1,0 +1,3 @@
+CAPÍTULO DÉCIMO SEGUNDO
+Disposición Final de los Residuos
+Artículo 94º-Sitios de Disposición Final. Los residuos no valorizables solamente pueden ser depositados en rellenos sanitarios que cumplan con lo dispuesto en el Reglamento sobre Rellenos Sanitarios, Decreto Ejecutivo N° 38928-S, publicado el 14 de noviembre de 2014, y que estén debidamente autorizados por el Ministerio de Salud. La Municipalidad podrá evaluar otras alternativas tecnológicas para la disposición de los residuos ordinarios no valorizables que se consideren factibles técnica y económicamente y que vayan de acuerdo con los objetivos del Plan Municipal de Gestión Integral de Residuos y con los valores de la Municipalidad.

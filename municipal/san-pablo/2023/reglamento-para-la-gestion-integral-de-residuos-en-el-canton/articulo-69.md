@@ -1,0 +1,3 @@
+CAPÍTULO NOVENO
+Gestión de los Residuos de Construcción y/o Demolición
+Artículo 69º-Responsable de la Gestión de los Residuos. La responsabilidad por la gestión de los residuos provenientes de la construcción o demolición, corresponde al dueño de la propiedad, el cual deberá garantizar su disposición final en un sitio adecuado o mediante un gestor autorizado.
