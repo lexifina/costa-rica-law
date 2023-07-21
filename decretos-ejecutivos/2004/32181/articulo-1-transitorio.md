@@ -1,2 +1,0 @@
-Transitorio único.—Las personas físicas o jurídicas administradoras o dueñas de establecimientos o centros de tatuajes y perforaciones corporales tendrán un plazo de tres meses contados a partir de la publicación del presente reglamento para cumplir con los requisitos aquí establecidos.
-Dado en la Presidencia de la República.—San José, a los veinticinco días del mes de noviembre del dos mil cuatro.
