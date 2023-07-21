@@ -14,3 +14,4 @@ Implementación de la contabilidad regulatoria y requerimientos de información 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-07-21 | la propia norma |
+| 2 | 2023-07-21 | Resolución 12 (2023-07-18) |
