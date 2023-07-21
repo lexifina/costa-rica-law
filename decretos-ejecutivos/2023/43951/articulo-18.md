@@ -1,0 +1,1 @@
+Artículo 18.- Presentación de proyectos. Las instituciones interesadas presentarán sus programas, proyectos y acciones al Área de Cooperación Internacional de MIDEPLAN para que sean evaluadas y aprobadas por este Ministerio.

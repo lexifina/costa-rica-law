@@ -1,0 +1,12 @@
+CAPÍTULO II
+Rectoría y Órganos de la Cooperación Internacional No Reembolsable
+SECCIÓN I
+Funciones de MIDEPLAN y de MRREE
+Artículo 3º-Funciones de Mideplan. Le corresponde a Mideplan la rectoría interna en materia de Cooperación Internacional, teniendo la competencia exclusiva en la gestión y la negociación técnica de esta con las entidades, organismos e instituciones nacionales, de manera que sea coherente con el Plan Nacional de Desarrollo. Sus funciones en materia de Cooperación Internacional son:
+a) Elaborar periódicamente la Política Pública de Cooperación Internacional, su Plan de Acción, y otros ejercicios que se consideren necesarios, con base en la información que proveerá el Sistema de Enlaces de la Cooperación Internacional sobre sus necesidades, y mediante la elaboración de otros estudios que permitan la toma de decisiones efectivas en la materia.
+b) Participar activamente en el proceso de negociación a nivel nacional e internacional, en estrecha coordinación con el MRREE, institución encargada de la negociación en el ámbito internacional.
+c) Coordinar el proceso de gestión de la Cooperación Internacional Financiera No Reembolsable y Técnica concertando los medios y esfuerzos necesarios para la consecución de los recursos, según las prioridades definidas en el Plan Nacional de Desarrollo y otros instrumentos estratégicos de planificación existentes. Para realizar esta labor contará con la colaboración del MRREE y del Sistema de Enlaces de la Cooperación Internacional.
+d) Asesorar a las entidades públicas en la formulación de las propuestas de Cooperación Internacional y en todo el proceso de gestión.
+e) Capacitar al Sistema de Enlaces de Cooperación y a otros actores interesados en materia de gestión de la cooperación internacional y temas relacionados.
+f) Evaluar la gestión de la cooperación internacional en el país, desde enfoques temáticos específicos, según se considere oportuno y pertinente, tomando como punto de referencia el Plan Nacional de Desarrollo vigente, el Plan Estratégico Nacional (PEN), la Política Pública sobre cooperación existente y cualquier otro instrumento de planificación relevante, así como los instrumentos internacionales sobre la temática vigentes, a fin de valorar la contribución de la misma al desarrollo del país.
+g) Proponer a la DCI del MRREE, mejoras en el contenido de los instrumentos internacionales que se negocian que respondan a la visión de gestión dual país, a las nuevas condiciones de procedimientos y de administración de recursos en materia de cooperación internacional.

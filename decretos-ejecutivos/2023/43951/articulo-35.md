@@ -1,0 +1,1 @@
+Artículo 35.- Contraparte Nacional en la Triangulación. El MRREE, con base en las recomendaciones del Comité Técnico Nacional de la Cooperación Internacional, fungirá como contraparte oficial nacional ante los gobiernos, agencias, organismos internacionales y ONG's, de cada uno de los Programas de Triangulación que se negocie, coordine y concrete.

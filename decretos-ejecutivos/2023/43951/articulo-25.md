@@ -1,0 +1,1 @@
+Artículo 25.- Acuerdos. Los acuerdos que se celebren serán recogidos en una minuta o acta de acuerdos y compromisos, que será firmada, en representación de Costa Rica, por el MRREE y MIDEPLAN y en representación del otro país u organismo multilateral, por los órganos correspondientes así designados.

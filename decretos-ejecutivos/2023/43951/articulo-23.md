@@ -1,0 +1,1 @@
+Artículo 23.- Coordinación de reuniones o Misiones de Seguimiento y Evaluación. Cuando lleguen al país Misiones de Seguimiento y Evaluación de Proyectos o Programas de un cooperante internacional, el MRREE coordinará la visita previamente con MIDEPLAN.

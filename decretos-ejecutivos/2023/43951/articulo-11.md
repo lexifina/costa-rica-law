@@ -1,0 +1,11 @@
+Artículo 11.- Funciones de los enlaces. Las funciones de las oficinas de Cooperación Internacional, o sus similares, en las instituciones que integran el Sistema de Enlaces de Cooperación Internacional, son las siguientes:
+a) Dirigir y fortalecer las relaciones con la Cooperación Internacional de la instancia de la que forma parte, por los canales oficiales definidos en la legislación nacional y en el presente Reglamento.
+b) Promover a nivel institucional y sectorial la gestión de las relaciones internacionales y de Cooperación Internacional con el fin de mejorar el impacto a favor de los objetivos institucionales y sectoriales.
+c) Fortalecer la participación institucional y sectorial en el ámbito internacional.
+d) Llevar un registro actualizado de todos los programas, proyectos y acciones puntuales de cooperación internacional gestionados por la institución.
+e) Informar al ACI-MIDEPLAN de cualquier cambio que se realice en el proyecto después de haberlo aprobado y durante su ejecución.
+f) Remitir al ACI-MIDEPLAN la valoración final de la ejecución del proyecto, acompañado de la información que se considere relevante para comprobar los resultados del mismo, incluyendo los informes de evaluación que se realicen.
+g) Remitir al ACI-MIDEPLAN, por medio del Jerarca institucional o del enlace de cooperación internacional (con copia al Jerarca), todas las solicitudes de programas, proyectos y acciones puntuales de cooperación internacional técnica y financiera no reembolsable, a fin de que sean analizados, dictaminados, aprobados, y registrados en el Sigeci, de acuerdo con lo establecido en la legislación nacional y en el presente reglamento.
+h) Facilitar la obtención de recursos para el cumplimiento de las prioridades institucionales definidas en el Plan Nacional de Desarrollo, la Política de Cooperación Internacional y su Plan de Acción y los instrumentos institucionales de planificación.
+i) Proveer a MIDEPLAN la información necesaria para la elaboración de la Política de Cooperación Internacional No Reembolsable y su Plan de Acción, u otros documentos similares.
+j) Dar seguimiento a los programas, proyectos y acciones puntuales de cooperación a fin de procurar su óptima ejecución, potenciar la rendición de cuentas y la transparencia.

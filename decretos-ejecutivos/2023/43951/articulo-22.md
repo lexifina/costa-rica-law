@@ -1,0 +1,1 @@
+Artículo 22.- Documentación y registro. La copia electrónica e impresa del programa, proyecto o acción se registrará, documentará y archivará en forma impresa y en digital en el Sigeci, ambos custodiados por el Área de Cooperación Internacional de MIDEPLAN.

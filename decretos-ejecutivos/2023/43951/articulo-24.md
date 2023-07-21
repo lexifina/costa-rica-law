@@ -1,0 +1,1 @@
+Artículo 24.- Celebración de Reuniones y Misiones de Seguimiento y Evaluación Binacionales y con organismos internacionales. Estas reuniones y Misiones de Seguimiento y Evaluación serán dirigidas por el MRREE. En todas estas reuniones participarán MIDEPLAN y los enlaces del Sistema de Enlaces de la Cooperación Internacional que correspondan.
