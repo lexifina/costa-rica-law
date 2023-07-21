@@ -1,0 +1,6 @@
+Artículo 7. Expediente y trámite de servicios y recursos institucionales
+7.1. Para cada servicio institucional autorizado se debe elaborar el expediente en los sistemas corporativos o medios definidos. Para tal fin, la información e historial a incluir son: los datos de la dependencia, ubicación geográfica (caso de los servicios con ubicación fija), nombre y cédula del personal responsable, número de servicio, centro funcional, centro de costo o elemento pep, categoría asignada, orden estadística y correo electrónico.
+7.2. Los trámites de los servicios y recursos institucionales se deben gestionar tal y como se indica a continuación:
+a. La activación de los servicios post pago para las categorías Y5, Y7, Y8 y Y9, deben ser gestionadas directamente por el personal en el punto de venta de su elección y canales digitales disponibles.
+b. La activación y cambios de los servicios para las categorías Y4, X2 y PR, deben ser tramitadas por el GSRI. La nota de aprobación debe especificar el plan celular, así como el tiempo que se mantendrá activa la línea. En los casos donde sea requerido el terminal móvil (activo DEMO), se debe indicar en la solicitud.
+c. La activación de las categorías Y4, Y5, Y7, Y8, Y9, PR, RO y X2, deben ser activadas en el integrador.

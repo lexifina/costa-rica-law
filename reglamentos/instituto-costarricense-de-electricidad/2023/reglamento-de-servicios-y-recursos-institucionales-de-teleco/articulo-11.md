@@ -1,0 +1,9 @@
+Artículo 11. Gestor de Servicios y Recursos Institucionales de la Gerencia de Telecomunicaciones
+11.1. Velar por el cumplimiento del presente Reglamento.
+11.2. Analizar y gestionar las solicitudes de las categorías Y4, Y5, Y7, Y8, Y9, PR, RO o X2, de acuerdo con el presente Reglamento.
+11.3. Controlar las acciones relacionadas a la gestión, mejora y control de los servicios y recursos institucionales.
+11.4. Notificar al Titular Subordinado y al Titular Subordinado de nivel inmediato inferior de la Gerencia, con copia a las áreas de Control Interno, en caso de encontrarse un uso irregular o cualquier anomalía en el manejo de los servicios y recursos institucionales, para que estos activen los mecanismos pertinentes para establecer la verdad real de los hechos.
+11.5. Coordinar la atención de las solicitudes de cobro de los montos identificados en el proceso de análisis por uso irregular de los servicios de comunicación institucionales.
+11.6. Recibir el informe semestral de parte de los Titulares Subordinados de nivel inmediato inferior de la Gerencia y activar los mecanismos para realizar los ajustes pertinentes en las categorías asignadas.
+11.7. Asesorar al personal para asignar, desasignar o modificar los servicios o recursos institucionales de acuerdo con la necesidad de cada dependencia y las disposiciones contenidas en el presente Reglamento.
+11.8. Ejecutar la inhabilitación de los servicios fijos o de las categorías Y4, Y5, Y7, Y8, Y9, X2, PR o RO y, en los casos en que se haya provisto terminal, solicitar la devolución del activo ante el Centro de Custodia correspondiente. Esta acción debe realizarla en forma inmediata al recibir instrucción del Titular Subordinado, o Titular Subordinado de nivel inmediato inferior de la Gerencia, o Administración Superior, ante casos de uso irregular o cualquier anomalía en el manejo de los recursos o servicios institucionales

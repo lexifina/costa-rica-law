@@ -1,0 +1,12 @@
+Artículo 26: Servicios fijos institucionales
+26.1. Los servicios fijos institucionales son autorizados para: servicios temporales para instalaciones dentro y fuera del ICE, explotación, centrales, puntos de venta e interconexión de equipos e instalaciones realizadas en instituciones de gobierno previo acuerdo con el ICE, los cuales deben ser creados en los Sistemas Corporativos en el plan de menor costo para el ICE, de acuerdo con el requerimiento de la dependencia.
+26.2. Los servicios fijos institucionales no deben contar con accesos para realizar llamadas internacionales y servicios 900. En caso de requerirse la habilitación de los accesos debe ser justificado mediante nota al Titular Subordinado del nivel inmediato inferior de la Gerencia para su autorización. En caso de existir facturas de servicios institucionales con cargos por llamadas internacionales, servicios 900 u otros no autorizados, el personal asignado debe pagar los montos facturados de acuerdo con lo establecido en el artículo 27 de este Reglamento y sus incisos.
+26.3. Las solicitudes de servicios nuevos fijos de video, voz, 800 y datos (empresariales, masivos, temporales), el aprovisionamiento de cuentas/equipos en los gestores o peticiones para modificar los servicios y que impliquen un costo para el ICE, deben aprobarse por parte de la Presidencia Ejecutiva, Gerencia General o el Titular Subordinado de nivel inmediato inferior de la Gerencia según corresponda. Estas aprobaciones deben remitirse mediante nota al GSRI para el trámite respectivo.
+26.4. La solicitud para la aprobación de servicios fijos debe incluir la siguiente información:
+. Indicar el nombre y cédula del responsable que va a hacer uso del servicio.
+. Indicar Centro de Costos o elemento PEP, Orden Estadística y Centro Funcional del
+funcionario en donde se debe cargar el gasto.
+. La fecha de inicio y fin que se mantendrá activa la categoría.
+. Dirección exacta donde va a estar instalado el servicio.
+. Justificación del evento a cubrir y costo mensual proyectado para el ICE.
+26.5. Las solicitudes de retiro definitivo o remplazo por nuevas tecnologías de los servicios fijos instalados en los edificios, armarios, centrales u otros, cuando no sean necesarios para la operación institucional debe ser aprobada por parte de la Presidencia Ejecutiva, Gerencia General o el Titular Subordinado de nivel inmediato inferior de la Gerencia según corresponda. Estas aprobaciones deben remitirse mediante nota al GSRI para el trámite respectivo.

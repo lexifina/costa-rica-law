@@ -1,0 +1,1 @@
+Transitorio I: Una vez aprobado el presente Reglamento, la Gerencia de Telecomunicaciones, debe remitir a las dependencias la correspondiente lista de servicios para que sea realizada la revisión de cada una de ellas y se apliquen los cambios que correspondan, dichos cambios deben ser aplicados en un plazo no mayor a 6 meses a partir de la entrada en vigencia de este Reglamento.

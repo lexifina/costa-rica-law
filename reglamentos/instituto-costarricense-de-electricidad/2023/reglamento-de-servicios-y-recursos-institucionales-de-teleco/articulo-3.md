@@ -1,0 +1,2 @@
+Artículo 3. DOCUMENTOS APLICABLES
+[imagen]
