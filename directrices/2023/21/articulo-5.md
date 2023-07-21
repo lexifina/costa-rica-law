@@ -1,0 +1,1 @@
+Artículo 5°-Continúen publicando, de manera inmediata en el Catálogo, todos los trámites, y sus instructivos, manuales, formularios, y anexos, o sus modificaciones, que se establezcan o modifiquen a partir de esta fecha. Así como eliminar los que dejen de prestarse.
