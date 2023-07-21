@@ -1,1 +1,0 @@
-Artículo 2.- Ámbito de aplicación. El presente reglamento se aplicará a los procedimientos de contratación de obras, bienes y servicios que, en el cumplimiento de sus funciones, deba realizar el Consejo Nacional de la Persona Adulta Mayor (CONAPAM).

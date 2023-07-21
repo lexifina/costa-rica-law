@@ -1,8 +1,0 @@
-Artículo 13. De la Comisión de Recomendación de Adjudicaciones. Según lo establecido por el Reglamento para el Funcionamiento de las Proveedurías Institucionales de los Ministerios de Gobierno, en el CONAPAM existirá una Comisión de Recomendación de Adjudicaciones cuya creación, integración, funciones, actividad y quórum estarán reguladas en ese Reglamento.
-Las recomendaciones que emita dicha Comisión se fundamentarán en el informe técnico escrito que debe rendir la Unidad Administrativa solicitante, así como el informe que rinda el analista del procedimiento, sobre el objeto a contratar y las ofertas presentadas.
-Las recomendaciones que emita la Comisión no serán vinculantes por su naturaleza asesora, pero el órgano competente que se aparte de ellas deberá fundamentar ampliamente las razones que mediaron para no aceptar la recomendación, asumiéndose así total y plena responsabilidad de ese acto.
-Capítulo VI
-De la aprobación interna de la actividad contractual y comunicación al ejecutor del contrato
-Artículo 13.- Unidad competente. La aprobación interna de la actividad contractual estará a cargo de la Asesoría Jurídica del CONAPAM.
-De conformidad con lo establecido en el Reglamento Sobre el Refrendo de la Contrataciones de la Administración Pública, emitido por la Contraloría General de la República y con las salvedades ahí contempladas, esa función no impedirá que la Asesoría Jurídica brinde la asesoría requerida durante las etapas del procedimiento de contratación previas al trámite de aprobación interna.
-(Nota de Sinalevi: En la publicación de este reglamento se consignó dos veces el artículo N° 13)
