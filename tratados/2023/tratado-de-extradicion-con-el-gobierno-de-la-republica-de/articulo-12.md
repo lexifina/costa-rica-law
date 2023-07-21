@@ -1,0 +1,9 @@
+Artículo 12
+Principio de especialidad
+1. La persona extraditada de conformidad con el presente Tratado no podrá ser sometida a un procedimiento penal, juzgada, detenida para los fines de la ejecución de una condena, ni sometida a cualquier otra medida restrictiva de la libertad personal, en el Estado Requirente, por cualquier delito cometido anteriormente a la entrega y distinto del que haya dado lugar a la extradición, salvo que:
+a) la persona extraditada, tras haber abandonado el territorio del Estado Requirente, haya regresado al mismo voluntariamente;
+b) la persona extraditada no haya abandonado el territorio del Estado Requirente dentro de cuarenta y cinco días desde cuando haya tenido la posibilidad de hacerlo. Sin embargo, ese período no comprenderá el tiempo durante el cual dicha persona no haya abandonado el Estado Requirente por causas de fuerza mayor;
+c) el Estado Requerido consienta en ello. En tal caso, el Estado Requerido, previa petición específica del Estado Requirente, podrá prestar su consentimiento a la persecución de la persona extraditada o a la ejecución de una condena respecto de la misma, por hechos distintos de los que hayan motivado la solicitud de extradición, de conformidad con las condiciones y en los limites establecidos en el presente Tratado.
+A tal respecto:
+i) el Estado Requerido podrá solicitar al Estado Requirente la transmisión de los documentos y de la información, indicados en el artículo 7; ii) en espera de la decisión sobre la petición presentada, la persona extraditada podrá ser nuevamente detenida por el Estado desde la recepción de la petición misma por parte del Estado Requerido, siempre que ello sea autorizado por este último Estado;
+2. Sin perjuicio de lo dispuesto en el punto c) del numeral anterior, el Estado Requirente podrá adoptar las medidas necesarias, según su propia legislación, para interrumpir la prescripción.

@@ -1,0 +1,18 @@
+Artículo 3
+Motivos de denegación obligatorios
+1. La extradición se denegará cuando:
+a) el Estado Requerido posea motivos fundados para creer que la solicitud de extradición se ha formulado con el propósito de procesar o sancionar a una persona por razón de su raza, sexo, religión, nacionalidad, origen étnico, pertenencia a un grupo social determinado, ideologia u opiniones polificas, o que la situación de esa persona pueda resultar perjudicada por cualquiera de esas razones;
+b) la solicitud de extradición se refiere a delitos considerados por el Estado requerido como delitos políticos o hechos conexos con delitos de esta naturaleza. Para tal efecto, no serán considerados como delitos políticos:
+i. el homicidio u otro delito contra la vida, la integridad física o la libertad de un Jefe de Estado o de Gobierno o de un miembro de su familia;
+ii. los delitos de terrorismo, ni cualquier otro delito que no sea considerado como delito político a tenor de cualquier Tratado, convenio o acuerdo internacional del cual ambos Estados sean partes.
+c) el Estado Requerido considere que la concesión de la extradición pueda tener consecuencias que están en conflicto con el orden público y con los principios fundamentales de su legislación nacional;
+d) el Estado Requerido haya concedido asilo político ala persona reclamada;
+e) el Estado Requerido haya concedido refugio a la persona reclamada;
+f) el Estado Requerido haya pronunciado una sentencia definitiva sobre la persona por la comisión del delito por el que se solicita la extradición;
+g) por el delito por el cual se solicita la extradición, haya operado la prescripción de la acción penal o de la pena u otra causa de extinción del delito o de la pena en el Estado Requirente o en el Estado Requerido;
+h) la persona requerida vaya a ser juzgada o haya sido condenada en el Estado Requirente por un Tribunal de excepción;
+i) la persona requerida vaya a ser juzgada o haya sido condenada en el Estado Requirente por un Tribunal Militar;
+j) el delit por el cual se solicita la extradición pueda ser castigado por el Estado Requirente con una pena prohibida por la ley del Estado Requerido.
+2. Si la solicitud de extradición para dar curso a un procedimiento penal se refiere a un delito sancionado con la pena de muerte o prisión perpetua, el Estado Requirente, en caso de condena, deberá dar garantías que, impondrá una pena privativa de libertad permitida según la legislación del Estado Requerido.
+3. Si la solicitud de extradición para cumplir una sentencia condenatoria se refiere a un delito que ha sido sancionado con la pena de muerte o prisión perpetua, el Estado Requirente, antes de la extradición, conmutará la pena aplicando una pena privativa de libertad permitida según la legislación del Estado Requerido.
+(Nota de Sinalevi: Mediante el artículo 2° del Tratado Internacional que aprobó el Tratado de Extradición con el Gobierno de la República de Ecuador, N° 10348 del 29 de junio de 2023, se indicó que el Estado costarricense interpretará y aplicará las disposiciones contenidas en los párrafos segundo y tercero del artículo 3 “Motivos de denegación obligatorios”, en el sentido de que: a) nuestro país concederá la extradición siempre que, de previo a la entrega, se tenga la seguridad jurídica absoluta que las penas ahí señaladas no serán impuestas o aplicadas y, en su lugar, en caso de condena, se impondrá una pena privativa de libertad que esté aceptada por nuestro ordenamiento; b) en caso de ya haberse dictado sentencia, Costa Rica deberá tener seguridad jurídica absoluta -de forma previa- de que dicha clase de pena será sustituida o conmutada por una pena privativa de libertad que esté aceptada por nuestro ordenamiento.)
