@@ -14,3 +14,4 @@ Reglamento del "Certamen Señorita San José"
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-11-15 | la propia norma |
+| 2 | 2023-07-25 | Reglamento municipal 168 (2023-07-25) |

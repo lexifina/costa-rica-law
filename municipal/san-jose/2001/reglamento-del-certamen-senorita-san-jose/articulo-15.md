@@ -1,1 +1,1 @@
-Artículo 15.—En cada eliminatoria se nombrarán tres suplentes de las finalistas, mismas que las sustituirán en caso de enfermedad o incumplimiento de deberes conforme el orden de puntaje que hayan obtenido.
+Artículo 15.-Si la Señorita San José contrajera matrimonio o quedase en estado de embarazo durante su período de reinado será sustituida inmediatamente.

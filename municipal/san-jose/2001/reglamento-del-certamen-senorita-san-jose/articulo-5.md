@@ -1,2 +1,1 @@
-Artículo 5°—No podrán participar en el Certamen Tica Linda candidatas con vínculos de consanguinidad en tercer grado de los miembros de la Comisión de Festejos Populares, el personal de la Municipalidad de San José, patrocinadores, canales de televisión y equipo
-de producción.
+Artículo 5º-La inscripción de candidatas se realizará del 2 al 9 de octubre del 2023 en las plataformas digitales que para tal efecto desarrolle la subcomisión o en los lugares autorizados por la misma. Dicha boleta de inscripción tiene un costo de ¢15,000.00 (quince mil colones exactos) por señorita. Dichos fondos serán debidamente trasladados a la cuenta de la Municipalidad de San José y formarán parte de los ingresos de la Comisión.

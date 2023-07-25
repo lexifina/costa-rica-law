@@ -1,1 +1,1 @@
-Artículo 23.—Los premios obtenidos por las ganadoras serán entregados oficialmente en la primera quincena de enero del año siguiente a la fecha del Certamen.
+Artículo 23.-La subcomisión se compromete a brindar protección y seguridad a las concursantes durante las actividades a las que sean convocadas y durante el período de reinado y que sean organizadas por la subcomisión del certamen y la Municipalidad de San José.

@@ -1,1 +1,1 @@
-Artículo 3°—Las participantes deben ser costarricenses por nacimiento y residentes en nuestro país.
+Artículo 3º-Todos los comprobantes de depósito de inscripción deberán indicar el nombre completo de la participante y la leyenda "Concurso Señorita San José".

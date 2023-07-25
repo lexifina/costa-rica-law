@@ -1,1 +1,1 @@
-Artículo 11.—Las candidatas no podrán asistir con sus novios, familiares y amigos a ninguno de los eventos programados a excepción de la primera y segunda eliminatoria así como a la Elección Final.
+Artículo 11.-Las candidatas deberán prepararse en temas relacionados con la ciudad de San José y sus distritos, para tal efecto, contarán con la instrucción de un grupo de la subcomisión.

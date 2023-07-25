@@ -1,1 +1,1 @@
-Artículo 6°—La candidata que haya aportado datos falsos en la boleta de inscripción o documentación anexa será descalificada automáticamente por la Subcomisión de Reinado en el momento que sea demostrada la anomalía.
+Artículo 6º-No podrán participar en el Certamen Señorita San José candidatas con vínculos de consanguinidad hasta tercer grado con los miembros de la Comisión de Fiestas de San José, el personal de la Municipalidad de San José, Concejo Municipal, patrocinadores y equipo de producción del certamen.

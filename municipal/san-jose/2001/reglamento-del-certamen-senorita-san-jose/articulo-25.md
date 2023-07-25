@@ -1,1 +1,1 @@
-Artículo 25.—La Subcomisión de Reinado deberá hacer del conocimiento de las participantes el presente Reglamento para cuyo efecto se les entregará conjuntamente con la boleta de inscripción.
+Artículo 25.-El presente reglamento es de acatamiento obligatorio y su incumplimiento descalifica automáticamente a cualquier participante. Ninguna concursante podrá aducir desconocimiento de éste.

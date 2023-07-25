@@ -1,1 +1,1 @@
-Artículo 2°—Todas las participantes deben de aportar su cédula de identidad al momento de inscribirse y adjuntar la fotocopia por ambos lados de la misma o el certificado de nacimiento, así como el permiso firmado por sus padres o responsables legales, cuando sean menores de edad, siendo así debidamente verificado por la Subcomisión.
+Artículo 2º-Todas las participantes deben aportar su cédula de identidad al momento de inscribirse.

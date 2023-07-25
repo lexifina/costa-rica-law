@@ -1,1 +1,1 @@
-Artículo 16.—Queda terminantemente prohibida la participación de las candidatas en cualquier tipo de publicidad, evento público o privado sin importar el medio.
+Artículo 16.-La Señorita San José no deberá exponer su imagen por medio de comportamientos que comprometan la moral y las buenas costumbres, durante el año de su reinado. En caso de hacerlo perderá su condición y la segunda finalista asumirá el cargo por el período restante.

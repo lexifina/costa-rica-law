@@ -1,1 +1,1 @@
-Artículo 14.—Las finalistas de la Primera y Segunda Eliminatoria serán trasladadas a los eventos oficiales únicamente en los vehículos autorizados por la Subcomisión del Reinado. La violación a este Artículo producirá la inmediata descalificación de la finalista infractora.
+Artículo 14.-Las candidatas deben demostrar una conducta respetuosa y cordial en todo momento.

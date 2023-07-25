@@ -1,1 +1,1 @@
-Artículo 10.—Las sesiones de ensayo serán totalmente privadas; no se admitirá bajo ningún concepto el ingreso de acompañantes de las participantes u otros al recinto donde éstos se efectúen.
+Artículo 10.-Las candidatas deberán presentarse puntualmente a todos los eventos programados por la subcomisión de Señorita San José a los cuales sean formalmente convocadas. En caso de demostrarse impuntualidad y falta de interés serán eliminadas automáticamente del certamen.

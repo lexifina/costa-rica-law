@@ -1,1 +1,1 @@
-Artículo 4°—La inscripción de candidatas se realizará del 01 al 31 de octubre de 2001 en los sitios en los que oportunamente se dará a conocer, llenando la boleta de inscripción que tiene un costo de 08,000.00 (Ocho mil colones exactos) por unidad.
+Artículo 4º-Las participantes deben ser costarricenses por nacimiento o naturalizadas y ser residentes del cantón central de San José. Para tal efecto se deberá indicar el domicilio, el cual la subcomisión se reserva el derecho de comprobarlo por los medios que estime convenientes.

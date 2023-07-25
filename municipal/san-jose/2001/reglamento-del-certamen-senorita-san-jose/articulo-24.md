@@ -1,1 +1,1 @@
-Artículo 24.—El presente reglamento es de acatamiento obligatorio y su incumplimiento descalifica automáticamente a cualquier participante.
+Artículo 24.-En caso de que la Señorita San José incumpla con sus compromisos oficiales durante el período para el que fue electa, la Comisión de Fiestas de San José podrá retirar los premios otorgados, sin ninguna responsabilidad civil, ni penal.

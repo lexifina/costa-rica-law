@@ -1,1 +1,1 @@
-Artículo 17.—Queda igualmente prohibido para las finalistas promocionar en forma individual, pública o privadamente productos, casas comerciales, aun cuando fuesen patrocinadores del evento hasta que éste finalice.
+Artículo 17.-La Señorita San José deberá asistir a todas las actividades a las que la Comisión de Fiestas de San José las convoque y en el caso de ser actividades externas a la Municipalidad de San José, se debe solicitar la autorización de dicha Comisión.

@@ -1,2 +1,1 @@
-CAPÍTULO II
-Artículo 8°—Las candidatas deberán presentarse puntualmente a todos los eventos programados por la Subcomisión de Reinado a los cuales sean formalmente convocadas, ensayos, convivios y demás actividades oficiales. En caso de demostrarse impuntualidad y falta de interés serán eliminadas automáticamente del Certamen.
+Artículo 8º-La candidata que haya aportado datos falsos en la boleta de inscripción o en la documentación anexa será descalificada automáticamente por la subcomisión del certamen en el momento que sea demostrada la anomalía.

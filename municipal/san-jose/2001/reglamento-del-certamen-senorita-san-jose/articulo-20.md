@@ -1,1 +1,1 @@
-Artículo 20.—La señorita Tica Linda que contrajera matrimonio o quede en estado de gravidez (embarazo) durante su periodo de reinado será sustituida inmediatamente.
+Artículo 20.-La subcomisión de Señorita San José se compromete a entregar los premios ofrecidos en un tiempo determinado y acordado con la señorita electa, quedando exenta la subcomisión y la Municipalidad de San José del uso que se le dé a los premios otorgados.
