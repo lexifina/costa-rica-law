@@ -1,0 +1,1 @@
+Artículo 4°-Las oficinas de recursos humanos en coordinación con las y los respectivos jerarcas serán las responsables de efectuar el control y seguimiento para acreditar que todo el personal institucional cuente con el Certificado de la capacitación en materia de acoso laboral o mobbing en el lugar de trabajo.
