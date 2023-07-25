@@ -1,0 +1,3 @@
+Artículo 19.-Cobertura de necesidades tecnológicas. La Dirección Ejecutiva será la encargada de cubrir las necesidades tecnológicas (plataforma para la videoconferencia y la asistencia técnica que se requiera) que puedan requerirse para los casos en donde se celebren audiencias en modalidad mixta y se deba hacer uso de la Sala de reuniones del Tribunal de Honor, tanto para los miembros del Tribunal de Honor como para las partes intervinientes.
+(Reformado por acuerdo de Junta Directiva N° 212- 7-2023 SO7-2023 de fecha 25 de julio del 2023)
+(Así adicionado mediante sesión N° 7-2023 del 25 de julio del 2023)

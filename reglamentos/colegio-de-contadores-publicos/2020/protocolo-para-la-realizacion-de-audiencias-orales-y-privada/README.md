@@ -14,3 +14,4 @@ Protocolo para la realización de audiencias orales y privadas por medios tecnol
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-09-17 | la propia norma |
+| 2 | 2023-07-25 | Reglamento 7 (2023-07-25) |
