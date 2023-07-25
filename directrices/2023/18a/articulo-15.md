@@ -1,0 +1,2 @@
+Artículo 15. Presentación de la denuncia de acoso laboral: La persona denunciante hace la denuncia de acoso laboral ya sea verbal o escrita a la persona empleadora o a quien se designe para tal efecto, con su respectiva evidencia probatoria. En caso de ser una denuncia verbal la persona empleadora o a quien se designe para tal efecto, deberá levantar el acta escrita de la denuncia. (Anexo. 5. Ejemplo de acta de denuncia escrita)
+[imagen]

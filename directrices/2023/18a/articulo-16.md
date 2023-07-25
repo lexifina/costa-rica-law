@@ -1,0 +1,5 @@
+Artículo 16. Atención de la denuncia para investigación: la comisión recolectará la información del caso, realizará entrevistas a las partes involucradas, elaborará y custodiará el expediente. La aceptación o no de la denuncia por acoso laboral, se debe realizar en un plazo de dos meses desde el momento que se recibió la denuncia. Esta valoración podrá determinar cualquiera de las siguientes situaciones:
+a. Admitir la denuncia por acoso laboral
+b. No admitir la denuncia, por no cumplir con las condiciones exigidas o que no cumplen con los criterios para ser considerado un caso de acoso laboral.
+c. Si del análisis del caso se dedujera la ejecución de alguna otra falta, distinta al acoso laboral o mobbing (denuncia errónea) y tipificada en la reglamentación interna del lugar de trabajo y el código de trabajo, se referirá el caso a la persona empleadora.
+d. En los casos en que la denuncia sea falsa, se trasladará el caso a la persona empleadora para que se mejoren las situaciones conflictivas y se apliquen las sanciones disciplinarias correspondientes.

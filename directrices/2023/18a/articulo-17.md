@@ -1,0 +1,1 @@
+Artículo 17. Denuncias falsas: quien denuncie acoso laboral de forma falsa o abusiva, en donde sea evidente y manifiesta la mala fe, es decir cuando los datos proporcionados o testimonios sean falsos, se realizarán las gestiones que correspondan en el ámbito interno o a nivel judicial.

@@ -1,0 +1,1 @@
+Artículo 5. Frecuencia y duración de la exposición: los actos de acoso laboral serán aquellos que se produzcan de forma sistemática, repetitiva y con prolongación en el tiempo en contra de una persona trabajadora. Un solo evento no será considerado como acoso laboral, aunque sí puede ser un acto de violencia laboral.
