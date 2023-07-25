@@ -1,0 +1,6 @@
+Transitorio V
+A partir del primero de enero de 2023 y hasta el 31 de diciembre de 2023, cada entidad debe registrar de forma mensual el gasto por componente contracíclico equivalente a un mínimo del 7% del resultado positivo de la diferencia entre el saldo de las cuentas 500 "Ingresos" menos 400 "Gastos" más 450 "Impuestos y participaciones sobre la utilidad" de cada mes, hasta que el saldo de la cuenta analítica "139.02.M.02 (Componente contracíclico)" alcance el monto correspondiente a Pccit, según el artículo 4 de este reglamento.
+Con fecha de corte al 31 de agosto de 2023 la entidad deberá reclasificar el saldo de la cuenta 139.02.M.04 (Componente Genérico para Cartera de Créditos - Transitorio) hacia la cuenta 139.02.M.02 (Componente contracíclico). Dicho movimiento contable será por el saldo total de la cuenta 139.02.M.04, o hasta por el monto necesario para completar el monto de Pccit.
+La entidad que complete el monto de Pccit continuará registrando la estimación contracíclica según lo establecido en el Artículo 5 de este Reglamento.
+El saldo que permanezca en la cuenta 139.02.M.04 después de efectuar los movimientos anteriores debe usarse únicamente para cubrir futuros requerimientos de estimaciones contracíclicas.
+(Así adicionado mediante sesión N° 1810-2023 del 25 de julio del 2023)
