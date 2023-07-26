@@ -1,0 +1,2 @@
+Artículo 3. - Del ámbito de aplicación.
+Este decreto aplica a toda persona, física o jurídica, que fabrique o trate embalaje de madera a ser utilizado en el comercio internacional, la cual deberá estar inscrita en el Registro de fabricantes y tratantes de embalaje de madera utilizado en el comercio internacional del Servicio Fitosanitario del Estado (en adelante SFE), a cargo del Departamento de Certificación Fitosanitaria, cumpliendo con la documentación y requisitos establecidos en el presente decreto.

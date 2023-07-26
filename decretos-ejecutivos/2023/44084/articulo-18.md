@@ -1,0 +1,2 @@
+Artículo 18. - Del órgano responsable de la suspensión y cancelación en el registro de fabricantes y tratantes de embalaje de madera utilizado en el comercio internacional.
+Para los procedimientos sancionatorios descritos en este decreto, el Departamento de Certificación Fitosanitaria en materia de administración del registro, será el órgano responsable de llevar a cabo el procedimiento para la suspensión o cancelación en el registro, debiendo notificar previamente al Registrante y emitiendo las resoluciones respectivas.

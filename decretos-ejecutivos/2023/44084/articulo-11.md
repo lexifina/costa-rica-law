@@ -1,0 +1,2 @@
+Artículo 11. - De la vigencia del registro de fabricantes y tratantes de embalaje de madera utilizado en el comercio internacional.
+La vigencia en el registro de fabricantes y tratantes de embalaje de madera utilizado en el comercio internacional será de cinco años, contados a partir de la fecha de su inscripción, y en un período de un mes calendario previo a su vencimiento, podrá renovarse por un periodo igual de cinco años.

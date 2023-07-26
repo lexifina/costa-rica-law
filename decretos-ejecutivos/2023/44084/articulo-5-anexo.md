@@ -1,0 +1,13 @@
+ANEXO 5. DECLARACIÓN JURADA PARA RENOVACIÓN EN EL REGISTRO
+DE TRATANTES Y FABRICANTES DE EMBALAJE DE MADERA UTILIZADO
+EN EL COMERCIO INTERNACIONAL
+En caso de Persona Jurídica:
+[imagen]
+1. Que las condiciones iniciales indicadas en mi registro, entre las cuales se incluye estar al día con la Caja Costarricense de Seguro Social y con la anualidad correspondiente al registro, se mantienen, y que todas las modificaciones que ha habido desde el registro hasta la fecha indicada en esta declaración jurada, se han tramitado ante el Departamento de Certificación Fitosanitaria del SFE. En vista de lo anterior, solicito la renovación de mi registro.
+2. Quedo apercibido de las consecuencias legales y judiciales, con que la legislación castiga el delito de perjurio. Asimismo, exonero de toda responsabilidad a las autoridades del Servicio Fitosanitario del Estado por el otorgamiento de esta renovación de registro con base en la presente declaración jurada. Además: conocedor de las consecuencias legales y administrativas de la presente declaración jurada, manifiesto y autorizo en forma expresa para que el Servicio Fitosanitario del Estado, proceda a suspender o cancelar mi registro de fabricante o tratante de embalaje de madera utilizado en el comercio internacional, según corresponda, si se llegase a corroborar alguna falsedad, errores u omisiones en la presente declaración. ES TODO
+Firma:
+En caso de Persona Física
+[imagen]
+1. Que las condiciones iniciales indicadas en mi registro, entre las cuales se incluye estar al día con la Caja Costarricense de Seguro Social y con la anualidad correspondiente al registro, se mantienen, y que todas las modificaciones que ha habido desde el registro hasta la fecha indicada en esta declaración jurada, se han tramitado ante el Departamento de Certificación Fitosanitaria del SFE. En vista de lo anterior, solicito la renovación de mi registro.
+2. Quedo apercibido de las consecuencias legales y judiciales, con que la legislación castiga el delito de perjurio. Asimismo, exonero de toda responsabilidad a las autoridades del Servicio Fitosanitario del Estado por el otorgamiento de esta renovación de registro con base en la presente declaración jurada. Además: conocedor de las consecuencias legales y administrativas de la presente declaración jurada, manifiesto y autorizo en forma expresa para que el Servicio Fitosanitario del Estado, proceda a suspender o cancelar mi registro de fabricante o tratante de embalaje de madera utilizado en el comercio internacional, según corresponda, si se llegase a corroborar alguna falsedad, errores u omisiones en la presente declaración. ES TODO
+Firma:

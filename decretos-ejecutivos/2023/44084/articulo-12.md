@@ -1,0 +1,6 @@
+Artículo 12. - De la renovación en el registro de fabricantes y tratantes de embalaje de madera utilizado en el comercio internacional.
+Para realizar la renovación en el registro de fabricantes y tratantes de embalaje de madera, el Registrante deberá presentar:
+1. Declaración jurada, de conformidad con el Anexo 5 de este decreto, en la que indique que desea realizar la renovación de su registro, y que sus condiciones iniciales con las que se registró se mantienen o se han mejorado. En caso de que alguna de estas condiciones haya variado, se deberá realizar la modificación al registro, de previo a la solicitud, de acuerdo a lo indicado en el artículo 10 de este decreto.
+2. Documento de identidad vigente (para personas físicas) o copia de personería jurídica vigente y documento de identidad del representante legal (para personas jurídicas).
+3. Comprobante de pago o factura electrónica correspondiente a la anualidad.
+El Departamento de Certificación Fitosanitaria dispondrá de un plazo máximo de nueve días naturales contados a partir del día en que se recibe la documentación mencionada anteriormente, para emitir la resolución de renovación y el Certificado Fitosanitario de Operación. Se notificará al Registrante de la resolución de su trámite a través del medio de comunicación señalado en el expediente administrativo.
