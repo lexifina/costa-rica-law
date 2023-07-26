@@ -1,0 +1,1 @@
+Artículo 72. Se prohíbe la eliminación de residuos en los cuerpos de agua, áreas oficiales de conservación de la vida silvestre, áreas privadas debidamente autorizadas y cualquier otro sitio no autorizado.

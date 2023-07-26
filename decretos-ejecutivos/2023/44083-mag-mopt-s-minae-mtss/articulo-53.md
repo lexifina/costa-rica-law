@@ -1,0 +1,1 @@
+Artículo 53. El mantenimiento, la reparación y modificación de aeronaves destinadas a las actividades agrícolas solo podrá ser llevada a cabo por personal que cuente con las licencias respectivas de conformidad con el RAC-LPTA Regulaciones Aeronáuticas Costarricenses Licencias al Personal Técnico Aeronáutico, Decreto Ejecutivo N°43061-MOPT, del 28 de abril del 2021 .

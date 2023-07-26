@@ -1,0 +1,1 @@
+Artículo 25. La empresa con certificado operativo debe ejecutar un programa de capacitación anual para el piloto y el personal auxiliar de tierra, que incluya todos los procedimientos para efectuar una operación segura.

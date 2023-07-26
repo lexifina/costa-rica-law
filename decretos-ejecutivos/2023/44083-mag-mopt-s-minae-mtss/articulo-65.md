@@ -1,0 +1,1 @@
+Artículo 65. Se prohíbe la aplicación aérea de agroquímicos y aspersión de semillas tratadas con plaguicidas, en la zona de amortiguamiento aledaña a los centros educativos en el momento en que se imparten lecciones.

@@ -1,0 +1,19 @@
+CAPÍTULO X
+REQUISITOS DE CUMPLIMIENTO EN LAS APLICACIONES AÉREAS DE
+AGROQUÍMICOS
+Artículo 60. Para minimizar una posible deriva se debe cumplir con la altura de vuelo, tamaño de las gotas de la mezcla, calibración sistemática de equipo de aplicación, aprovechamiento de la longitud de la barra de aspersión (boom), las condiciones meteorológicas y las distancias de aplicación de la siguiente forma:
+1. Las aplicaciones aéreas de agroquímicos pueden llevarse a cabo si entre el campo a tratar y cualquier vía pública, centros de población, casas de habitación, edificios donde permanezca personal laborando, sistemas de abastecimiento de agua potable para la población, cuerpos de agua, potreros, abrevaderos y cultivos aledaños o fincas vecinas susceptibles a efectos negativos derivados del agroquímico aplicado, se deja una franja de no aplicación aérea de 100 metros, si no se tiene zona de amortiguamiento.
+2. La franja de no aplicación aérea podrá reducirse si se dispone de una zona de amortiguamiento que sirve como barrera para reducir la deriva de las aplicaciones aéreas, deben tener un ancho mínimo de acuerdo con los equipos a utilizar, estar sembrada con especies vegetales preferiblemente nativas, de rápido crecimiento y compactas tanto en su parte media como baja, si se detectan espacios vacíos se deben resembrar con especies vegetales a fin de mantener su conformación y funcionabilidad. Las especies vegetales que conforman la zona de amortiguamiento deberán tener follaje todo el año, así como tener una altura de 2 metros superior al cultivo, en aquellos cultivos de porte bajo (menos de 1 metro de altura) deben tener una altura mínima de 3 metros sobre el nivel del suelo. La zona de amortiguamiento debe ser:
+a. De 30 metros si la aplicación se realiza con aeronaves de ala fija (avión) o rotativa (helicóptero).
+b. Puede ser al menos de 15 metros si se usan ultraligeros tipo autogiros de ala rotativa .
+c. Puede ser al menos de 5 metros si la aplicación se realiza con aeronaves no tripuladas (RPAS) multi rotor con una capacidad de 20 litros.
+3. Si la aplicación con aeronaves de ala fija (avión ) o rotativa (helicóptero) se lleva a cabo perpendicular a la línea de cultivo, adicionalmente a la zona de amortiguamiento, se debe dejar una franja de 40 metros dentro del cultivo en la que no se debe aplicar, para reducir el efecto del arrastre.
+4. En coordinación el Ministerio de Agricultura y Ganadería, el Ministerio de Salud y Ministerio de Ambiente y Energía, podrán aumentar esta distancia mediante un estudio técnico de deriva de acuerdo con las normas internacionales, cuando en el área por aplicar existan situaciones particulares y objetivas que requieran una mayor distancia a pesar de la existencia de la zona de amortiguamiento, la realización de dicho estudio puede ser delegado a la Comisión.
+5. La franja de no aplicación de agroquímicos podrá omitirse en caso de vías o caminos internos de uso exclusivo para el cultivo y cuando no existan edificaciones.
+6. La altura de vuelo no debe ser mayor de 5 metros sobre el dosel de la plantación, para que la concentración de partículas que pueden ser arrastradas por la influencia del viento, se reduzcan para minimizar la deriva y evaporación del agroquímico aplicado.
+7. Se debe trabajar con un tamaño de gota promedio entre 200 y 300 micras (?m) para minimizar la deriva con una aplicación más lenta en su velocidad de caída libre y de más fácil evaporación.
+8. La longitud efectiva de la barra de aspersión (boom) no debe exceder el 80% de la longitud de cada ala del avión o del ancho de las aspas del helicóptero.
+9. Las condiciones meteorológicas para realizar una aplicación de agroquímicos deben ser:
+a. La velocidad del viento no puede ser mayor a 10 kilómetros por hora, cuando se realicen aplicaciones aéreas.
+b. Las aplicaciones no se pueden realizar si la temperatura es superior a los 29 ºC.
+c. La Humedad relativa debe ser superior al 70%.

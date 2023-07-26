@@ -1,0 +1,1 @@
+TRANSITORIO ÚNICO: Las empresas con certificado de operación vigente tendrán un año a partir de la publicación de este Decreto en el Diario Oficial La Gaceta para presentar el Manual de Operaciones a la Dirección General de Aviación Civil para su aprobación.

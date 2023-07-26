@@ -1,0 +1,1 @@
+Artículo 21. La empresa con certificado operativo debe conservar por un mínimo de tres años, los registros digitales originales generados por el sistema de señalamiento satelital y deben estar a disposición de las autoridades competentes o usuarios.

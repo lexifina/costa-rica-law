@@ -1,0 +1,1 @@
+Artículo 66. Se prohíbe utilizar campos de aviación agrícola no autorizados por la DGAC . Exceptuando una emergencia Fitosanitaria, establecida en el artículo 13 de la Ley de Protección Fitosanitaria N° 7664 del 08 de abril de 1997.

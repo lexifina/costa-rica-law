@@ -1,0 +1,1 @@
+Artículo 24. La empresa con CO debe presentar un programa de instrucción teórico y práctico dirigido a los pilotos, para ser aprobado por la autoridad respectiva de la DGAC y debe establecer anualmente las recurrencias de este.

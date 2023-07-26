@@ -1,0 +1,3 @@
+CAPÍTULO VII
+REQUISITOS DE LAS AERONAVES AGRICOLAS
+Artículo 47. Todas las aeronaves agrícolas de las Empresas con Certificado Operativo que brinden el servicio de aplicación de agroquímicos o siembra de semillas vía aérea, deben estar registrados ante el Servicio Fitosanitario del Estado del Ministerio de Agricultura y Ganadería como empresas dedicadas a la aviación agrícola y tener el número de registro otorgado por el Servicio Fitosanitario del Estado para el equipo de aplicación, de conformidad con lo que establece la Norma RTCR 321:1998 Registro y Examinación de Equipos de Aplicación de Sustancias Químicas, Biológicas, Bioquímicas o Afines de uso agrícola. Decreto Ejecutivo N° 27037-MAG-MEIC, 5 de enero de 1998 y sus reformas:

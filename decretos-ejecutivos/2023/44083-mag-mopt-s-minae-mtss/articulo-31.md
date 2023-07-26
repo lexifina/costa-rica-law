@@ -1,0 +1,14 @@
+Artículo 31. En la sección de operaciones terrestres, se debe incluir:
+1. Sustancias Químicas, que contenga lo siguiente:
+a. Listado de los agroquímicos autorizados por el Servicio Fitosanitario del Estado del Ministerio de Agricultura y Ganadería para ser aplicados vía aérea.
+b. Procedimientos de salud ocupacional en el manejo y uso de agroquímicos que deben cumplir los pilotos, los técnicos y el personal auxiliar, de conformidad con el Reglamento de Salud Ocupacional en el Manejo y Uso de Agroquímicos. Decreto Ejecutivo N°41931- MTSS, del 5 de agosto del 2019 .
+c. Capacitación en los riesgos al ambiente, a la salud y seguridad asociados a los agroquímicos; medidas de salud ocupacional en el manejo y uso de agroquímicos, primeros auxilios y atención de emergencias; lectura de etiquetas, panfletos y Fichas de Datos de Seguridad (FDS), de conformidad con el Reglamento de Salud Ocupacional en el Manejo y Uso de Agroquímicos. Decreto Ejecutivo N°41931-MTSS, del 5 de agosto del 2019 y sus reformas
+d. Botiquín de primeros auxilios que debe existir en la base principal de operaciones y en las diferentes estaciones y debe cumplir con lo que se establece en la Reforma Reglamento General de los Riesgos del Trabajo y Reglamento General de Seguridad e Higiene de Trabajo Decreto Ejecutivo N° 39611-MTSS, del 3 de marzo del 2016 .
+e. Número de teléfono del Centro Nacional de Intoxicaciones y el 911, estos números se deben mantener en un lugar visible en la base principal de operaciones y en las diferentes estaciones.
+f. Procedimiento para velar por el cumplimiento de la prohibición que los pilotos y cualquier otro miembro del personal de vuelo participen en las operaciones de mezcla o carga de sustancias químicas.
+g. Procedimiento para el tratamiento de aguas resultantes del lavado de aeronaves, equipos de aplicación, envases, utensilios, indumentaria y equipos de protección personal.
+2. Carga y mezcla de agroquímicos: Procedimientos que se deben cumplir desde el momento en que la empresa recibe los agroquímicos hasta que se cargan en la aeronave.
+a. Este apartado debe subdividirse de acuerdo con las clases de equipo para la carga, incluyendo el número mínimo de personas según los principios de la compañía para llevar a cabo una determinada operación de carga o para hacer funcionar cualquier pieza del equipo.
+b. Se debe incluir detalladamente todo lo relacionado con las medidas de seguridad, la indumentaria, el equipo de protección personal que deben utilizar, la forma de descontaminarlo y almacenarlo, el equipo de mantenimiento y limpieza.
+3. Señalización: se deben indicar en detalle los procedimientos para dirigir con señales a las aeronaves y el equipo.
+4. Datos importantes: corresponden a otras operaciones de tierra que no estén descritas en otras secciones del manual.

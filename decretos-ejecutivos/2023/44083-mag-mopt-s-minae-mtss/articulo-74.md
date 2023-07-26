@@ -1,0 +1,1 @@
+Artículo 74. Se prohíbe al piloto volar más de ocho horas consecutivas en un periodo de veinticuatro horas, no más de treinta horas semanales, no más de cien horas al mes, ni más de mil doscientas horas al año y volar más de seis días consecutivos.

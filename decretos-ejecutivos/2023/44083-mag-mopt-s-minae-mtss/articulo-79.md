@@ -1,0 +1,1 @@
+Artículo 79. Se prohíbe realizar operaciones en aeropuertos con espacio aéreo controlado. Exceptuando si la aeronave cuenta con los instrumentos y los equipos especificados en los artículos 48 y 49 del presente reglamento, y en buen estado de funcionamiento.

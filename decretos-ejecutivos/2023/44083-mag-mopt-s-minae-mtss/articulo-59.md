@@ -1,0 +1,1 @@
+Artículo 59. Es obligación del dueño del cultivo o contratante que tenga apiarios a su alrededor, de su propiedad o de los vecinos, cumplir con los requisitos que se establecen en el Reglamento para la Protección de la Industria Apícola Nacional, Decreto Ejecutivo N° 15563-MAG-S, del 5 de julio de 1984 .

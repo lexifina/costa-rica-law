@@ -1,0 +1,1 @@
+Artículo 27. La empresa con CO debe implementar las medidas de salud ocupacional de conformidad con lo que se establece en el Reglamento Salud Ocupacional en el Manejo y Uso de Agroquímicos. Decreto Ejecutivo N°41931-MTSS, de fecha 5 de agosto del 2019.

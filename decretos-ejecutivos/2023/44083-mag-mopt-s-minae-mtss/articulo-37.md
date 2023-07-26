@@ -1,0 +1,7 @@
+Artículo 37. En la sección de mantenimiento y equipo, si el mantenimiento de la aeronave corre a cargo de la empresa con certificado operativo, se debe incluir en un apartado lo siguiente:
+1. Métodos de mantenimiento programado y no programado, mantenimiento preventivo y modificaciones.
+2. Indicación de qué elementos que son objetos del mantenimiento o de modificaciones deben inspeccionarse antes de ponerlos de nuevo en servicio, incluyendo aquellos que podrían poner en peligro la operación segura de la aeronave si no funcionaran debidamente o si se utilizaran piezas o materiales inadecuados.
+3. Métodos para llevar a cabo la inspección e indicación de las personas autorizadas por razón de su trabajo para efectuar cada parte de la inspección.
+4. Procedimientos para asegurarse de que se han llevado a cabo todas las inspecciones. Declaración de que el trabajo debe revisarlo un inspector idóneo y una persona distinta de la que realizó el trabajo.
+5. Procedimientos, normas y límites para aceptar o rechazar elementos que se deben inspeccionar y para la calibración periódica de instrumentos de precisión, dispositivos de medición y equipos de ensayo.
+6. Mantenimiento. En esta sección deben especificarse los intervalos, criterios y procedimientos para lavar y limpiar la aeronave, el equipo, los depósitos y sistemas de aplicación de los agroquímicos de la aeronave. Se debe purgar por completo los sistemas antes de cambiar las clases de productos químicos.

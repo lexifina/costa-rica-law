@@ -1,0 +1,1 @@
+Artículo 77. Se prohíbe el uso de toda aeronave agrícola que haya sido reparada o sufrido modificaciones en su estructura para brindar el servicio en actividades de aviación agrícola, si no cuenta con la autorización del Departamento de Aeronavegabilidad de la DGAC .

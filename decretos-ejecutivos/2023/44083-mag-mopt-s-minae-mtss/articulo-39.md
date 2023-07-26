@@ -1,0 +1,1 @@
+Artículo 39. En la Sección de Suplementos del Manual de Operaciones de la Empresa con Certificado Operativo, se debe incluir: Programas de instrucción, Procedimientos de operación de aeronaves, Programa de control y drogas e Información adicional concerniente a la operación.

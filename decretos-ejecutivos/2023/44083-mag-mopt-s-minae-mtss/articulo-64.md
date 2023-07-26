@@ -1,0 +1,1 @@
+Artículo 64. Se prohíbe al piloto realizar aplicaciones aéreas de agroquímicos y aspersión de semillas, si no cuenta con la respectiva receta profesional previamente extendida por un profesional en Ciencias Agropecuarias autorizado por el Colegio de Ingenieros Agrónomos.

@@ -1,0 +1,1 @@
+Artículo 57. La receta profesional debe emitirse para una finca, lote o área determinada por día. Si por condiciones climáticas adversas u otra eventualidad justificada no se puede usar ese día, se puede utilizar durante la semana para la cual fue emitida, en el mismo cultivo, finca, lote o área determinada y con la misma aeronave.

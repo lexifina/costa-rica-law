@@ -1,0 +1,1 @@
+Artículo 75. Se prohíbe volar aviones de categoría restringida o normal que no tengan Certificado de Aeronavegabilidad, matrícula y los seguros que garanticen el pago de las indemnizaciones correspondientes a los daños que las aeronaves en vuelo puedan causar a terceros o a bienes, según los artículos 102 y 271 de la Ley General de Aviación Civil, Nº 5150 del 14 de mayo de 1973 .

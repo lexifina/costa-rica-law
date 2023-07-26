@@ -1,0 +1,1 @@
+Artículo 44. El piloto tiene la obligación de negarse a realizar o de suspender una aplicación aérea de agroquímicos si la condición de la operación no brinda protección a la vida y la seguridad de las personas, el ambiente; así como la de los animales y que genere un peligro para la propiedad, o si incumple las condiciones establecidas en el presente reglamento.
