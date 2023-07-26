@@ -1,2 +1,0 @@
-“Artículo 9°—Los miembros representantes designados por las Partes Contratantes permanecerán en sus cargos durante la vigencia de sus nombramientos. La designación se comunicará al Secretario del Consejo Directivo y deberán depositarse, ante dicho Secretario, las cartas credenciales expedidas por el Ministerio de Relaciones Exteriores de cada una de las Partes Contratantes.
-Toda sustitución deberá ser notificada con antelación a la celebración de las reuniones”.

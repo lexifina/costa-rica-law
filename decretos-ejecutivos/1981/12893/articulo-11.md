@@ -1,1 +1,0 @@
-“Artículo 11.—Los miembros representantes de las Partes Contratantes podrán contar con el asesoramiento de personal calificado de sus respectivos Estados. Los asesores, designados por los miembros representantes, podrán asistir a las reuniones con voz, pero sin voto”.

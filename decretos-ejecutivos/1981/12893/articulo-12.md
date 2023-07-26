@@ -1,1 +1,0 @@
-“Artículo 12.—Anualmente el Consejo Directivo elegirá un Presidente y un Vicepresidente de tal forma que haya rotación entre las Partes Contratantes. En ausencia del Presidente, el Consejo Directivo será presidido por el Vicepresidente, y en ausencia de éste último, se elegirá de entre los miembros representantes titulares quien presida la reunión”.

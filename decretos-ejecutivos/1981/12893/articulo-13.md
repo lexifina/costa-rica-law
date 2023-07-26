@@ -1,1 +1,0 @@
-“Artículo 13.—El Consejo Directivo celebrará anualmente cuatro reuniones ordinarias. La convocatoria la realizará el Secretario del Consejo Directivo, mediante comunicación escrita con treinta días de anticipación a la celebración”.
