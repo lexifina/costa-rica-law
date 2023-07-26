@@ -1,0 +1,2 @@
+Artículo 3: Modifícanse los artículos 2 y 6 de la Ley de Presupuesto Ordinario y Extraordinario de la República para el Ejercicio Económico de 2023, Ley No. 10.331, publicada en el Alcance número 267 a La Gaceta No. 235 del 09 de diciembre de 2022, y sus reformas de la forma que se indica a continuación:
+(Nota de Sinalevi: Por lo extenso de su contenido y tipo consultar Alcance Digital N° 141 a La Gaceta N° 135 del 26 de julio de 2023)
