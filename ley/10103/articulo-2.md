@@ -40,3 +40,4 @@ Artículo 2° : Apruébense los siguientes Egresos Ordinarios y Extraordinarios 
 (Reformado por el artículo 2° de la ley N° 10339 del 21 de diciembre de 2022)
 (Reformado por el artículo 3° de la ley N° 10339 del 21 de diciembre de 2022)
 (Reformado por el artículo 4° de la ley N° 10339 del 21 de diciembre de 2022)
+(Nota de Sinalevi: Mediante resolución de la Sala Constitucional N° 18253 del 26 de julio de 2023, se anulan del presente artículo por inconstitucionales del Título Presupuestario 203-049 Ministerio de Gobernación y Policía - Dirección Nacional de Desarrollo de la Comunidad, las siguientes partidas presupuestarias: 60104 Transferencias corrientes a gobiernos locales; 60402 Transferencias corrientes a fundaciones y 70104 Transferencias de capital a gobiernos locales. Esta sentencia tiene efectos declarativos y retroactivos a la fecha de vigencia de las disposiciones anuladas, sin perjuicio de derechos adquiridos de buena fe.)
