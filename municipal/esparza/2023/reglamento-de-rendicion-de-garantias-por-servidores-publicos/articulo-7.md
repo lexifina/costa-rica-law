@@ -1,0 +1,1 @@
+Artículo 7º-Vigencia de la garantía. La póliza de fidelidad deberá tener una vigencia no menor a un año y ésta deberá prorrogarse por períodos iguales durante el tiempo en que el funcionario se desempeñe en el puesto que lo obliga a rendir dicha garantía, ya sea su nombramiento interino o en propiedad.

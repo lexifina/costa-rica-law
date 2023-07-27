@@ -1,0 +1,1 @@
+Artículo 13.-Deberes de los servidores públicos. El servidor obligado a rendir garantía, que en el ejercicio de sus funciones detecte la pérdida, defraudación, malversación o cualquier situación ocurrida que afecte a la hacienda municipal, deberá comunicarlo inmediatamente a su superior.

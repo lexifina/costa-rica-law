@@ -1,0 +1,2 @@
+Artículo 11.-Reajuste de la garantía. La Administración Municipal podrá solicitar al ente asegurador ajustar los montos establecidos en las cauciones cuando medien criterios técnicos
+para hacerlo, por lo que los funcionarios municipales deberán ajustar el monto de la póliza de garantía según corresponda. Una vez determinados los montos deberá la gestión de talento humano notificar al funcionario obligado.

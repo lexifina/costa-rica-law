@@ -1,0 +1,1 @@
+Artículo 14.-Finalidad de la garantía: La rendición de la garantía tiene como objetivo asegurar el resarcimiento de eventuales daños y perjuicios que el garante responsable pueda producir a la hacienda municipal, sin que ello limite otras eventuales acciones que la Municipalidad pueda ejercer
