@@ -1,0 +1,1 @@
+ARTÍCULO 36. COSTOS ADMINISTRATIVOS ASOCIADOS AL MANEJO DEL FONDO DE SOSTENIBILIDAD. El Fondo de Sostenibilidad pagará los porcentajes de administración correspondiente a FUNDAUTN, según el porcentaje anual que para este efecto apruebe el Consejo Universitario, en apego a los porcentajes máximos de administración en este Reglamento establecidos.

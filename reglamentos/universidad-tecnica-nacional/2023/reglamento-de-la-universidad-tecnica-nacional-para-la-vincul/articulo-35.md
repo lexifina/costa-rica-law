@@ -1,0 +1,1 @@
+ARTÍCULO 35. CONTROL. El Delegado Ejecutivo de FUNDAUTN deberá presentar mensualmente a la Junta Administrativa de la Fundación, para su aprobación, un detalle sobre las acciones de vinculación exoneradas del pago del porcentaje de administración; así como, de los usos del Fondo de Sostenibilidad. Una vez aprobado, este informe deberá ser remitido al Rector de la UTN.

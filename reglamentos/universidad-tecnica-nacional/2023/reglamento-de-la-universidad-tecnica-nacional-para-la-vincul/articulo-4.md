@@ -1,0 +1,1 @@
+ARTÍCULO 4. UNIDADES EJECUTORAS U OPERATIVAS. Las sedes regionales, las Vicerrectorías, los centros, las carreras, los programas institucionales y los programas de posgrado son las unidades ejecutoras u operativas que ejecutan y generan las actividades de la vinculación remunerada con el sector externo.

@@ -1,0 +1,1 @@
+ARTÍCULO 34. TRÁMITE PARA EL USO DE RECURSOS. Corresponderá al Coordinador de cada unidad ejecutora u operativa, presentar la solicitud correspondiente ante la Delegación Ejecutiva de la FUNDAUTN a la que deberá adjuntar todos los documentos y justificaciones necesarios.

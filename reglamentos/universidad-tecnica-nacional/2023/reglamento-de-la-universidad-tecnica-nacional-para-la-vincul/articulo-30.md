@@ -1,0 +1,4 @@
+ARTÍCULO 30. GESTIÓN Y RESERVAS CON CARGO A LOS EXCEDENTES BRUTOS Durante la vigencia del programa, proyecto o actividad de vinculación, se estimarán los excedentes derivados de la ejecución de dichos proyectos o actividades, mismos que se calcularán una vez deducidos de los ingresos brutos todos los gastos y costos involucrados en la gestión del proyecto o acción (Salarios, cargas sociales, honorarios, materiales, gastos administrativos generales, gastos de diversa índole, porcentaje del costo administrativo de la fundación, entre otros).
+Además, se crearán las siguientes reservas con cargo a los excedentes brutos:
+a. Se creará una RESERVA PARA LA UNIDAD OPERATIVA O ACADÉMICA (RUA) del proyecto equivalente a un 20% de los excedentes brutos.
+b. De la misma manera, de los excedentes brutos, también se asignará un 20% para una RESERVA DEL FONDO DE DESARROLLO INSTITUCIONAL (RFDI) de la UTN.

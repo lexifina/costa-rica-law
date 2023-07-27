@@ -1,0 +1,1 @@
+ARTÍCULO 24. PUBLICACIÓN DE INFORMACIÓN EN MEDIOS DE COMUNICACIÓN. Las publicaciones en los medios de comunicación colectiva de acciones que realiza el UTN con la coadyuvancia de la FUNDAUTN deben regirse por el Manual de Identidad de la FUNDAUTN diseñado en concordancia con el Manual de Identidad de la UTN.

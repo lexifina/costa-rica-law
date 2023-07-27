@@ -1,0 +1,1 @@
+ARTÍCULO 48. CIERRE OPERATIVO Y FINANCIERO DE LAS ACCIONES DE VINCULACIÓN EXTERNA En un período máximo de tres meses, posterior a la conclusión de una actividad de vinculación externa, la unidad ejecutora u operativa responsable de su ejecución deberá realizar, en conjunto con la FUNDAUTN, el cierre operativo y financiero del proyecto.

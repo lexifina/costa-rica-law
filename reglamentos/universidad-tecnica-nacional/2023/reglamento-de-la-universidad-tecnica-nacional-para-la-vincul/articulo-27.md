@@ -1,0 +1,1 @@
+ARTÍCULO 27. CONTROL DEL PRESUPUESTO. Es responsabilidad del Coordinador Académico del proyecto, controlar la correcta formulación y ejecución presupuestaria de la actividad. Para tales efectos mantendrá una estrecha coordinación con la contraparte administrativa financiera de la FUNDAUTN quien mantendrá el registro, control, supervisión y reportes presupuestarios actualizados.

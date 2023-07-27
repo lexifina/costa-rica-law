@@ -1,0 +1,1 @@
+ARTÍCULO 25. RESPONSABILIDAD POR EL CONTENIDO DE LAS PUBLICACIONES. La unidad ejecutora u operativa solicitante de la publicación será responsable del contenido de la información divulgada y la FUNDAUTN de la gestión administrativa.

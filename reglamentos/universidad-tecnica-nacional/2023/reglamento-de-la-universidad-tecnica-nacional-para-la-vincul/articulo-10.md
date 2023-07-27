@@ -1,0 +1,3 @@
+CAPÍTULO 4
+Requisitos para la aprobación
+ARTÍCULO 10. REQUISITO DE CONVENIO PREVIO. Para las acciones de vinculación externa que involucren, además de la UTN y de la FUNDAUTN, la participación de una o más organizaciones externas, públicas o privadas, nacionales o extranjeras, se sustentará con un documento formal tal como: convenios marco de cooperación, contrato de prestación de servicios de vínculo remunerado, acuerdos, cartas de entendimiento y cualquier otro instrumento legal que legitime la relación, debiéndose establecer los derechos y obligaciones de cada una de las partes, así como las responsabilidades derivadas de éste los cuales deberán seguir las normas y los procedimientos establecidas por las instituciones.

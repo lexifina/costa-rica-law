@@ -1,0 +1,3 @@
+CAPÍTULO 13
+Elementos de control
+ARTÍCULO 44. ORDEN JERÁRQUICO. Los superiores jerárquicos de las unidades ejecutoras u operativas y los coordinadores de los proyectos serán los responsables de velar por la aplicación de este reglamento, en materia técnica académica. Los aspectos administrativo-financieros serán responsabilidad de la FUNDAUTN, de acuerdo con su propia estructura jerárquica. A solicitud de la Junta Administrativa de la FUNDAUTN, los superiores jerárquicos de acuerdo con la normativa de la UTN, podrán intervenir las acciones de las unidades ejecutoras u operativas y tomar las decisiones correctivas.
