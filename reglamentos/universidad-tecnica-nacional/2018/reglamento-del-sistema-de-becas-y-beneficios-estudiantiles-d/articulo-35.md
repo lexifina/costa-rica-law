@@ -1,5 +1,6 @@
 TÍTULO II
-REGULACIÓN DE LOS DIFERENTES TIPOS DE BECA Y BENEFICIOS ESTUDIANTILES
+REGULACIÓN DE LOS DIFERENTES TIPOS DE BECA Y BENEFICIOS
+ESTUDIANTILES
 CAPÍTULO I
 REQUISITOS DE BECAS Y BENEFICIOS ESTUDIANTILES
 Artículo 35 -Carga académica para gozar de una beca y de los beneficios estudiantiles. Para gozar de cualquier tipo beca el estudiante deberá matricular al menos nueve créditos del plan de estudios de la carrera en la que goza la beca el primer cuatrimestre que recibe el beneficio y aprobar al menos nueve créditos en el cuatrimestre tras anterior a su matrícula para continuar disfrutando de alguna categoría de beca.

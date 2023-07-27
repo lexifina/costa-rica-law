@@ -7,7 +7,9 @@ UNIVERSIDAD TÉCNICA NACIONAL
 TÍTULO I ASPECTOS GENERALES
 CAPÍTULO I
 ALCANCES DEL REGLAMENTO
-(Nota de Sinalevi: Este reglamento fue reformado parcialmente y reproducido su texto de forma íntegra mediante sesión ordinaria Nº 16-2022 del 28 de julio de 2022, publicado en La Gaceta N° 164 del 30 de Agosto del 2022, y se transcribe a continuación:)
-TÍTULO I ASPECTOS GENERALES
-CAPÍTULO I ALCANCES DEL REGLAMENTO
+(Nota de Sinalevi: Este reglamento fue reformado parcialmente y reproducido su texto de forma íntegra mediante sesión ordinaria N° 19-2023 del 27 de julio de 2023, publicado en La Gaceta N° 150 del 18 de Agosto del 2023, y se transcribe a continuación:)
+TÍTULO I
+ASPECTOS GENERALES
+CAPÍTULO I
+ALCANCES DEL REGLAMENTO
 Artículo 1- Alcance del Reglamento del Sistema de Becas y Beneficios Estudiantiles. El presente Reglamento, regula el sistema de becas y de beneficios estudiantiles de la Universidad Técnica Nacional.

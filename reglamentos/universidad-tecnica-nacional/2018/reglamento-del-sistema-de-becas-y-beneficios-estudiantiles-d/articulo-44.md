@@ -3,4 +3,3 @@ a) Los estudiantes regulares que aprueben el 100 % de los créditos matriculados
 b) Los estudiantes regulares que aprueben entre 75 % y 99 % de los créditos matriculados en el cuatrimestre tras anterior a su matrícula, pierden una categoría de beca
 c) Los estudiantes que aprueben entre 60 % y 74 % de los créditos matriculados en el cuatrimestre tras anterior a su matrícula pierden dos categorías de porcentaje de exoneración de beca
 d) Los estudiantes que aprueben menos del 59 % de los créditos matriculados en el cuatrimestre tras anterior a su matrícula pierden tres categorías de porcentaje de exoneración de beca
-Para la aplicación de los puntos anteriores, el estudiante debe cumplir con aprobar el mínimo de créditos establecidos, según el artículo 35 y considerar el artículo 39 de este reglamento.
