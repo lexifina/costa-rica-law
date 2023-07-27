@@ -1,0 +1,1 @@
+Artículo 3º-Deróguese el artículo 11 del Decreto Ejecutivo N° 36539-G del 25 de febrero de 2011, publicado en el Alcance número 25 del Diario Oficial La Gaceta 80 del 27 de abril de 2011, denominado Reglamento del Fondo de Depósito de Garantía de la Ley General de Migración y Extranjería.
