@@ -1,0 +1,1 @@
+Artículo 14.-De la convocatoria formal: La convocatoria formal plebiscito o referendo, deberá ser publicada en un mínimo de dos diarios de circulación nacional. Dicha convocatoria contendrá una explicación del asunto que se someterá a consulta, la formulación de la pregunta que ha de ser contestada y la eficacia de la decisión ciudadana.

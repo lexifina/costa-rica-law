@@ -1,0 +1,1 @@
+Artículo 3º-Referendo: es la consulta popular que tiene como objeto la aprobación, modificación o derogación de un reglamento o disposición municipal de carácter normativo, en los casos en que el Concejo lo considere pertinente.

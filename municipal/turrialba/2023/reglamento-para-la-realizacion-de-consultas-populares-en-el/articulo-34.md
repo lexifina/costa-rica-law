@@ -1,0 +1,1 @@
+Artículo 34.-De propuestas escritas: Si el Concejo Municipal lo considera pertinente, podrá establecer un término no menor a un mes natural a partir de la difusión de dicha convocatoria, para recibir propuestas escritas de los ciudadanos, relacionadas con el tema a discutir.

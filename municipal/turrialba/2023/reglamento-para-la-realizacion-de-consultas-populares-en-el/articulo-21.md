@@ -1,0 +1,1 @@
+Artículo 21.-De la votación: El proceso de votación se llevará a cabo según lo establecido en el Código Electoral, y los mecanismos que al efecto ha establecido el Tribunal Supremo de Elecciones para los comicios nacionales.

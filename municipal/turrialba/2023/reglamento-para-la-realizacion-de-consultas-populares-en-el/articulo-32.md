@@ -1,0 +1,1 @@
+Artículo 32.-De la convocatoria: El Concejo Municipal hará la convocatoria a cabildo abierto por medios de circulación nacional o cantonal, que garanticen su conocimiento por parte de la población, en tiempo que no será menor a un mes de su celebración.

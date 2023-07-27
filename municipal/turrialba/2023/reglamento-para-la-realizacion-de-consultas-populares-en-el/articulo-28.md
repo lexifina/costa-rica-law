@@ -1,0 +1,1 @@
+Artículo 28.-De la reposición del Alcalde Propietario: Si el resultado de la consulta fuere la destitución del funcionario, el Concejo Municipal lo comunicará al Tribunal Supremo de Elecciones, el cual repondrá al Alcalde por el resto del periodo, de acuerdo al artículo 14 del Código Municipal.

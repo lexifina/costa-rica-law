@@ -1,0 +1,1 @@
+Artículo 15.-De la divulgación de la consulta: sin perjuicio de lo anterior, el Concejo Municipal tomará las medidas necesarias a fin de dar amplia divulgación a la consulta en todo el cantón de TURRIALBA, y promover la efectiva participación ciudadana.
