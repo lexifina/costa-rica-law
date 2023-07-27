@@ -1,1 +1,1 @@
-Artículo 24. Para las faltas contenidas en el artículo 20 de este Reglamento y consideradas como leves, la sanción será desde la amonestación escrita hasta la suspensión por un período menor a quince días naturales
+Artículo 24. Para las faltas contenidas en el artículo 20 de este Reglamento y consideradas como leves, la sanción será desde la amonestación escrita hasta la suspensión por un período menor a quince días naturales.

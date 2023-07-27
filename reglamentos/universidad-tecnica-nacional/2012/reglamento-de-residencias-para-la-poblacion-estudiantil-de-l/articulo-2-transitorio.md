@@ -1,8 +1,3 @@
-TRANSITORIO II. A partir del año 2022 y hasta el año 2024, lo estipulado en el artículo 15 de esta normativa, se regirá bajo las siguientes disposiciones:
-1. Para optar por la asignación de las Residencias Estudiantiles, las personas estudiantes deben cumplir con los siguientes requisitos:
-a. Estar al día con las obligaciones financieras de la Universidad.
-b. Presentar la solicitud de Residencias de forma cuatrimestral según las fechas calendarizadas.
-c. Tener matriculado cursos o al menos un curso bajo la modalidad presencial, para el cuatrimestre en que solicita la Residencia Estudiantil.
-d. No tener una sanción disciplinaria que involucre la pérdida o suspensión de este beneficio.
-e. Firmar el contrato de Residencias Estudiantiles en caso de que le sea asignado el beneficio de Residencias Estudiantiles.
-(Así adicionado en sesión N° 26 del 25 de noviembre de 2021)
+TRANSITORIO II. Derogado.
+(Adicionado mediante Acuerdo 4-26-2021, tomado por el Consejo Universitario en la Sesión Ordinaria No. 26-2021, celebrada el jueves 25 de noviembre de 2021 a las nueve horas, según el Artículo 13 del Capítulo VII. Vicerrectoría de Vida Estudiantil. Publicado en el diario oficial La Gaceta No. 242 del 16 de diciembre del año 2021, sección de Instituciones Descentralizadas).
+(Derogado mediante Acuerdo 6 tomado por el Consejo Universitario en la Sesión Ordinaria No. 19-2023, celebrada el jueves 27 de julio de 2023, a las ocho horas, según el Artículo 8 del Capítulo VI. Vicerrectoría de Vida Estudiantil. Publicado en el diario oficial La Gaceta No. 150 del 18 de agosto del año 2023, sección de Reglamentos

@@ -1,3 +1,3 @@
 TRANSITORIO III. A partir del año 2022 y hasta el año 2024, lo estipulado en el artículo 5 de esta normativa, se regirá bajo la siguiente disposición:
 1. El plazo para la entrega y desalojo de las Residencias Estudiantiles, será definida por la Coordinación del Área de Vida Estudiantil según corresponda.
-(Así adicionado en sesión N° 26 del 25 de noviembre de 2021)
+(Adicionado mediante Acuerdo 4-26-2021, tomado por el Consejo Universitario en la Sesión Ordinaria No. 26-2021, celebrada el jueves 25 de noviembre de 2021 a las nueve horas, según el Artículo 13 del Capítulo VII. Vicerrectoría de Vida Estudiantil. Publicado en el diario oficial La Gaceta No. 242 del 16 de diciembre del año 2021, sección de Instituciones Descentralizadas).

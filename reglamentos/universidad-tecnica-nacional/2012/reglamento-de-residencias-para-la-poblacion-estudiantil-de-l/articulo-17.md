@@ -1,7 +1,6 @@
 CAPÍTULO CUARTO
 DERECHOS Y DEBERES DE LA POBLACIÓN RESIDENTE
-Artículo 17. Son derechos de la población estudiantil del Programa de Residencias los
-siguientes:
+Artículo 17. Son derechos de la población estudiantil del Programa de Residencias los siguientes:
 a) Que las residencias sean lugares de alojamiento seguros que les posibiliten realizar sus actividades académicas y de descanso.
 b) Manifestar sus preferencias y credos bajo un marco de respeto con los compañeros.
 c) Disfrutar de un ámbito de respeto a sus pertenencias y a su privacidad.

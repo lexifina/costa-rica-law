@@ -1,7 +1,4 @@
-Artículo 10. Cada sede universitaria contará con un encargado de residencias, quien será
-un funcionario de la Dirección de Vida Estudiantil, encomendado para esta función por el
-Director de Vida Estudiantil, de acuerdo con los perfiles establecidos para este puesto.
-Entre sus funciones estarán:
+Artículo 10. Cada sede universitaria contará con un encargado de residencias, quien será un funcionario de la Dirección de Vida Estudiantil, encomendado para esta función por el Director de Vida Estudiantil, de acuerdo con los perfiles establecidos para este puesto. Entre sus funciones estarán:
 a) Elaborar, presentar y ejecutar el plan anual de trabajo para su aprobación a la Dirección de Vida Estudiantil.
 b) Divulgar y promover el cumplimiento de las normas del presente reglamento.
 c) Velar por el uso adecuado de los recursos institucionales en cada una de las residencias.
@@ -13,8 +10,7 @@ h) Revisar los requisitos de permanencia en el programa de residencias al inicio
 i) Reportar a la Dirección de Vida Estudiantil y a la Comisión de Residencias las faltas disciplinarias en las cuales incurran los estudiantes residentes.
 j) Dar seguimiento efectivo a la ejecución de medidas disciplinarias.
 k) Supervisar las labores de mantenimiento y aseo de cada residencia.
-l) Administrar y velar por el cumplimiento del contrato de alojamiento
-ll) Revisar periódicamente el buen mantenimiento de las residencias y reportar cualquier irregularidad a la Dirección de Vida Estudiantil.
+l) Administrar y velar por el cumplimiento del contrato de alojamiento ll) Revisar periódicamente el buen mantenimiento de las residencias y reportar cualquier irregularidad a la Dirección de Vida Estudiantil.
 m) Reunirse periódicamente con la población del programa para ejecutar acciones de crecimiento integral.
 n) Suministrar información sobre el manejo de residencia cuando se le solicite.
 o) Realizar los trámites correspondientes para la adquisición y distribución de implementos de aseo para cada una de las residencias.

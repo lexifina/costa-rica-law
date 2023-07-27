@@ -6,4 +6,4 @@ b.1) En inmuebles propios de la UTN.
 b.2) En inmuebles particulares arrendados por la UTN.
 En ambos casos se aplicará el presente reglamento
 c) Contrato de alojamiento: Documento que debe de firmar el o la estudiante una vez aceptado en el programa de residencias estudiantiles, en el cual se compromete a cumplir lo estipulado en el presente reglamento.
-d) Encargado de Residencias: Funcionario/a perteneciente a la Dirección de Vida Estudiantil de cada Sede encargado de administrar las residencias
+d) Encargado de Residencias: Funcionario/a perteneciente a la Dirección de Vida Estudiantil de cada Sede encargado de administrar las residencias.
