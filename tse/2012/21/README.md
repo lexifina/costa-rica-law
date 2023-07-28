@@ -15,3 +15,4 @@ Reglamento del Cuerpo Nacional de Delegados
 | --- | --- | --- |
 | 1 | 2013-01-21 | la propia norma |
 | 2 | 2018-11-27 | Decreto TSE 14 (2018-11-27) |
+| 3 | 2023-07-28 | Decreto TSE 7 (2023-07-28) |
