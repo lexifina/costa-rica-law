@@ -1,0 +1,2 @@
+Artículo 25.- Propiedad. Toda persona que aspire a un puesto en propiedad como técnica jurídica, de investigación, puestos administrativos, profesionales en administración u otras especialidades, deberá participar del concurso que al efecto publique la Dirección de Gestión Humana y cumplir con todos los requisitos establecidos en el respectivo cartel.
+Posteriormente, la Defensa Pública realizará las respectivas propuestas de nombramiento, con base en la información que le proporcione la Dirección de Gestión Humana, de acuerdo con la normativa vigente.

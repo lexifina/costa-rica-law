@@ -1,0 +1,1 @@
+Artículo 10.- Procedimiento de reclutamiento y selección. El procedimiento de reclutamiento y selección estará determinado por la Dirección de Gestión Humana en coordinación con la Defensa Pública en cada cartel de concurso, convocatoria o aviso, según corresponda.

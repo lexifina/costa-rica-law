@@ -1,0 +1,2 @@
+Sección I: Proceso de Reclutamiento y Selección de las Personas Defensoras Públicas
+Artículo 8.- Ingreso de personas defensoras públicas. A fin de garantizar la optimización, permanencia, promoción y excelencia del talento humano en la función pública, quien aspire a formar parte de la Defensa Pública de manera interina o en propiedad en un puesto profesional, deberá ingresar de previo al sistema de carrera de la Defensa Pública en las materias de su interés para encontrarse elegible.

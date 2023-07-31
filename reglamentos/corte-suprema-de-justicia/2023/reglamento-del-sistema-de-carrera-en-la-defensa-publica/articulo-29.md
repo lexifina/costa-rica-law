@@ -1,0 +1,2 @@
+Artículo 29.- Vacaciones. El derecho al disfrute de las vacaciones se regirá de conformidad con lo que describe la Ley Orgánica del Poder Judicial, la Ley Marco de Empleo Público y lo dispuesto en el plan anual de vacaciones emitido por las autoridades administrativas del Poder Judicial.
+Los lineamientos internos para la solicitud de vacaciones se regularán mediante circular de la jefatura de la Defensa Pública.

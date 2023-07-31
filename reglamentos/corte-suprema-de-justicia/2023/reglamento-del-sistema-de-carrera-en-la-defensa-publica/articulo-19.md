@@ -1,0 +1,3 @@
+Artículo 19.- Recalificación de la nota de carrera en la Defensa Pública. Las personas interesadas en mejorar su promedio de elegibilidad deberán sujetarse a las siguientes disposiciones:
+Pruebas técnicas de conocimiento: Deberá necesariamente inscribirse y participar en el momento en que se publique un concurso para la materia en la que ostenta esa condición.
+Experiencia y los estudios universitarios adicionales y capacitación: La persona interesada deberá presentar la información correspondiente a la Dirección de Gestión Humana, a fin de que se realice el análisis y ajuste correspondiente en la nota.

@@ -1,0 +1,3 @@
+Disposiciones transitorias
+TRANSITORIO I.- Las personas que se encuentren nombradas en propiedad al entrar en vigencia el presente reglamento, ingresarán de forma automática al Sistema de Carrera de la Defensa Pública con la nota máxima de las pruebas técnicas de conocimiento en que haya obtenido la condición de persona propietaria, la que será válida en esos términos en caso de participar en concursos de la materia en que fue dado el nombramiento en propiedad.
+En caso de que la persona propietaria, hubiere participado en un proceso de reclutamiento y selección en una materia diferente a la que se encuentra en propiedad, aplicará lo dispuesto en el transitorio II de este reglamento.

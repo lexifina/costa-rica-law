@@ -1,0 +1,1 @@
+Artículo 27.- Permutas. - Serán acordadas por la jefatura de la Defensa Pública las permutas, cuando dos personas servidoras propietarias, se encuentren ocupando sus respectivos cargos, ostenten la misma clase de puesto, estén en condiciones similares de escalafón y además, conozcan a cabalidad las condiciones particulares de ambos puestos y las acepten.

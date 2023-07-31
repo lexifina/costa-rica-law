@@ -1,0 +1,1 @@
+Artículo 24.- Meritoriaje. Toda persona que tenga interés en realizar una práctica meritoria, debe cumplir con los requisitos del puesto y además estar inscrita como persona meritoria en los registros que al efecto lleva el Poder Judicial.

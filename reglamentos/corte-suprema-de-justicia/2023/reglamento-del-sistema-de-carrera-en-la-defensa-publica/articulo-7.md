@@ -1,0 +1,2 @@
+CAPÍTULO II: Sistema de Carrera de la persona defensora pública.
+Artículo 7.- Sistema de Carrera de la persona defensora pública. Sistema que permite acceder a un puesto profesional como persona Defensora Pública y que establece los criterios para regular movimientos de personal en esa categoría, dentro de la Defensa Pública de acuerdo con parámetros objetivos, en un marco de transparencia e igualdad.

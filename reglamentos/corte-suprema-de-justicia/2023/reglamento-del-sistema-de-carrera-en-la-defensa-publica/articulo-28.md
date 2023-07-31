@@ -1,0 +1,1 @@
+Artículo 28.- Permisos o licencias. Los permisos y licencias en la Defensa Pública, se tramitarán de conformidad con lo regulado en la Ley Orgánica del Poder Judicial, los planes de vacaciones o cualquier otra norma, circular, plan o proyecto que emitan las autoridades administrativas competentes del Poder Judicial.

@@ -1,0 +1,1 @@
+Artículo 9.- Convocatorias y concursos. La Dirección de Gestión Humana promoverá los procesos selectivos para nombramientos interinos o en propiedad, conforme se requiera de manera oficiosa o por solicitud de la Defensa Pública, de acuerdo con la normativa y las políticas institucionales vigentes de no discriminación.

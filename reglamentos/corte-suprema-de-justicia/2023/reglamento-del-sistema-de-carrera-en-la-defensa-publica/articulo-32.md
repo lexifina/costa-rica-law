@@ -1,0 +1,1 @@
+Artículo 32.- Incompatibilidades. Si conforme a la normativa vigente, existe incompatibilidad o conflicto de interés, la persona decisora funcionaria de la Defensa Pública en dicha situación, no podrá intervenir en las diferentes etapas del Sistema de Carrera

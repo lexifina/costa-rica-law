@@ -1,0 +1,1 @@
+Artículo 17.- Efectos de la aprobación del proceso. El aprobar la totalidad del proceso de ingreso al sistema de carrera de la Defensa Pública, otorga el derecho a estar elegible para nombramientos interinos y en propiedad, según la necesidad institucional.

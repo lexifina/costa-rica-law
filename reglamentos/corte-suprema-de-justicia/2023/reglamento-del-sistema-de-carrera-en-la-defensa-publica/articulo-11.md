@@ -1,0 +1,2 @@
+Artículo 11.- Pruebas de conocimiento técnico. La confección de las pruebas de conocimiento técnico necesarias para el ingreso al sistema de carrera estará a cargo de la Defensa Pública previa coordinación con la Dirección de Gestión Humana.
+La nota mínima de aprobación de cada una de estas pruebas es de 70.00 (setenta) sobre 100 (cien), de conformidad con el Estatuto de Servicio Judicial. Estas pruebas tendrán un carácter excluyente, de manera que, en caso de no aprobar la que se aplique, según el orden que se disponga, la persona será excluida del proceso.

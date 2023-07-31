@@ -1,0 +1,1 @@
+Artículo 3.- Valores institucionales. Los valores institucionales que constituyen los pilares del sistema de carrera son: los valores compartidos del Poder Judicial y los establecidos en la Carta Ideológica de la Defensa Pública, en concordancia con la visión y misión institucional.
