@@ -14,3 +14,4 @@ Reglamento autónomo para la organización y funcionamiento del Comité Cantonal
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-03-18 | la propia norma |
+| 2 | 2023-07-31 | Reglamento municipal 0 (2023-07-31) |
