@@ -15,3 +15,4 @@ Reglamento para el otorgamiento de becas de estudio de la Municipalidad de Morav
 | --- | --- | --- |
 | 1 | 2021-11-09 | la propia norma |
 | 2 | 2022-09-05 | Reglamento municipal 123 (2022-09-05) |
+| 3 | 2023-07-31 | Reglamento municipal 170 (2023-07-31) |
