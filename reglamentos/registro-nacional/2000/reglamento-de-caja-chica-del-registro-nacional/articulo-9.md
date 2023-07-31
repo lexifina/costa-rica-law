@@ -1,3 +1,0 @@
-Artículo 9º—Los únicos pagos en efectivo que se pueden hacer, son los que se efectúan a través del Fondo de Caja Chica.
-La suma máxima que se puede cubrir con este fondo, por adquisición de bienes y servicios es por ¢500.000,00 (quinientos mil colones) cuya variación podrá ser modificada únicamente por la Junta Administrativa del Registro Nacional. Cuando se requiera hacer erogaciones por un monto mayor a ¢500.000,00 (quinientos mil colones), solicitado por una misma unidad y la misma finalidad, es preciso seguir los pasos señalados en el artículo 30 del presente Reglamento.
-(Así reformado mediante sesión N° 49-2006 del 21 de diciembre del 2006).

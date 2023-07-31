@@ -1,2 +1,0 @@
-ARTÍCULO 35
-Llevar un registro actualizado donde se anoten todos los movimientos efectuados en razón de los gastos originados por esta caja. Dicho detalle debe de presentarse al Departamento Financiero una vez a! mes y contendrá la siguiente información: número de documentos (facturas, liquidaciones, entre otros), departamento que solicito el gasto, fecha, monto, concepto, así como cualquier otro detalle que permita la fácil identificación de las operaciones efectuadas. A su vez el Departamento Financiero remitirá ese informe a la Junta Administrativa del Registro Nacional

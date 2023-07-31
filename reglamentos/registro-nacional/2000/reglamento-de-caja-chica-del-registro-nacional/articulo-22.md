@@ -1,2 +1,0 @@
-Artículo 22.—El funcionario que tenga pendiente una liquidación de un anticipo de dinero, para la adquisición de bienes y servicios, no le será entregado otro anticipo hasta tanto no liquide el que tiene pendiente. El incumplimiento de esta disposición hará incurrir en lo dispuesto en el artículo 37 del Reglamento General de Cajas Chicas D. E.32874 de 10-11-2005
-(Así reformado mediante sesión N° 49-2006 del 21 de diciembre del 2006).

@@ -1,2 +1,0 @@
-ARTÍCULO 6
-El monto autorizado para caja chica estará sujeto a revisión al inicio de cada año, de acuerdo al crecimiento en el índice de precios al consumidor al mes de diciembre del año anterior, emitido por la Sección de Estadísticas Básicas del Departamento de Contabilidad Social del Banco Central de Costa Rica. Dicho análisis, revisión y procedimiento ha seguir, para solicitar ampliación en el monto del Fondo Fijo, será realizado conforme lo establece el artículo 5 del presente Reglamento.

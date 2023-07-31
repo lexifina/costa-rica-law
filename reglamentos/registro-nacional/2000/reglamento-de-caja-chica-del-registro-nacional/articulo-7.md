@@ -1,2 +1,0 @@
-ARTÍCULO 7
-Se podrán solicitar ampliaciones temporales para la Caja Chica con el fin de atender situaciones especiales que hagan imprescindible la utilización de este mecanismo. Dicha solicitud deberá indicar los justificantes que sustentan la necesidad, la fecha en que se liquidara y deberá ser firmada por el solicitante con el visto bueno del jefe del Departamento Financiero y el Director Administrativo.

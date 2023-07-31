@@ -1,3 +1,0 @@
-Artículo 17.—Para el trámite de pago mediante estos fondos, se establece el siguiente procedimiento: podrán solicitarse sumas como adelanto utilizando el formulario denominado “Vale” el cual cuenta con la misma numeración que la asignada por el sistema automatizado al documento “Solicitud de bienes y servicios por adelantado”. Al “Vale” se le consignará la fecha, monto, el nombre, concepto y deber ser firmado por el funcionario que recibe el efectivo y por el cajero
-Además se debe indicar el bien o servicio por adquirir. Dicho “Vale” se conservará en caja.
-(Así reformado mediante sesión N° 49-2006 del 21 de diciembre del 2006).

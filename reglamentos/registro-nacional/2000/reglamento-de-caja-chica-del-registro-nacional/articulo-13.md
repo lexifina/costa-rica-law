@@ -1,2 +1,0 @@
-ARTÍCULO 13
-La caja chica central del Registro Nacional, podrá sub-dividirse en cajas chicas auxiliares, que operarán por medio del sistema de fondo fijo. La Junta Administrativa determinará el número y el monto de las cajas chicas auxiliares, con base en el estudio de necesidades que deberá realizar el funcionario responsable en cada oficina regional, basado en lo señalado en el artículo 5 del presente Reglamento.

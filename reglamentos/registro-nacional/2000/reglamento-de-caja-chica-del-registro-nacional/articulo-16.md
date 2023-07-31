@@ -1,8 +1,0 @@
-CAPITULO III
-DEL PROCEDIMIENTO
-Artículo 16.—Las erogaciones por caja chica se efectuarán mediante el siguiente procedimiento:
-Solicitud por escrito del jefe de la unidad solicitante ante la Coordinación de Tesorería, con una justificación detallada del desembolso a realizar, cantidad y descripción del artículo que se va a adquirir. La solicitud debe adjuntar los siguientes documentos factura pro forma, certificación de contenido económico emitida por el Equipo de Presupuesto, tratándose de la adquisición de bienes debe adjuntarse además un reporte del Departamento de Pro veeduría que haga constar que de tales bienes no hay en existencia en la Bodega General. En el caso de la reparación a un activo, debe adjuntarse el reporte del Departamento de Proveeduría que haga constar que dicho activo no forma parte de un contrato de mantenimiento y que se encuentre fuera del período de garantía.
-El Departamento solicitante deberá presentar como mínimo tres cotizaciones cuando el monto sea superior a cien mil colones (cien mil colones).
-El Equipo de Tesorería envía la solicitud al Jefe del Departamento Financiero para su aprobación. Luego de aprobada la solicitud es devuelta al Equipo de Tesorería para la confección del Vale. El Coordinador de Tesorería remite el Vale al Coordinador de Presupuesto, para la afectación de la partida presupuestaría correspondiente. Una vez afectada la partida presupuestaría, el Equipo de Presupuesto devuelve los documentos de nuevo al Equipo de Tesorería para la entrega del dinero al interesado.
-Si la solicitud no es autorizada, la Jefatura de Financiero enviará los documentos al Equipo de Tesorería para que este informe al interesado.
-(Así reformado mediante sesión N° 49-2006 del 21 de diciembre del 2006).
