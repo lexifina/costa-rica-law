@@ -1,1 +1,0 @@
-Artículo 16.- Solicitud de contratación. Las solicitudes de contratación deberán estar acompañadas de la Decisión Inicial, debidamente autorizada por el Director de Área que corresponda, considerando lo dispuesto por la LCA Administrativa y su reglamento utilizando el formulario que para estos efectos tiene SICOP.

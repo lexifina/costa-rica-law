@@ -1,1 +1,0 @@
-Artículo 3.- Régimen jurídico. La adquisición de bienes, obras y servicios que realice la Junta, se regularán por la Constitución Política, la Ley de Contratación Administrativa y su Reglamento, leyes conexas por razón de la materia, normas contenidas en este reglamento interno y por las disposiciones contenidas en los respectivos carteles o pliegos de condiciones.

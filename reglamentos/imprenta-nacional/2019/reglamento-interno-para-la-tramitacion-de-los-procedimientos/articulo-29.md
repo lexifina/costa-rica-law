@@ -1,4 +1,0 @@
-Artículo 29.-Formalización contractual. Corresponderá al Asesor(a) legal de la Proveeduría generar todos los contratos correspondientes a los procesos de contratación.
-Los contratos de las licitaciones públicas y abreviadas, así como los de servicios deberán ser generados en el sistema SICOP en un plazo, no mayor a cinco días hábiles, y trasladados al Proveedor Institucional para que este en el plazo, no mayor de dos días hábiles, otorgue su correspondiente visto bueno para la firma del Director General y del contratista.
-La firma del contrato deberá ser solicitada por el asesor (a) legal, al contratista y al Director General.
-En el caso de contrataciones de bienes de escasa cuantía, el Asesor(a) legal de la Proveeduría, contara con un plazo de tres días hábiles para generar el contrato, y el plazo para la aprobación y firma del Proveedor Institucional, será de dos días hábiles.

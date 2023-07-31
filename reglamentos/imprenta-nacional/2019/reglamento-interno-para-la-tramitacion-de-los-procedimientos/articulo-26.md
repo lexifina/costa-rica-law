@@ -1,3 +1,0 @@
-Artículo 26.- Del análisis de ofertas y la recomendación del acto final. La Proveeduría Institucional, será la encargada de solicitar los análisis técnicos y/o legales a las unidades competentes.
-El análisis de admisibilidad de las ofertas, debe realizarse conforme lo establecido en el artículo 83 del RLCA, comprobando la congruencia de las ofertas con las condiciones y especificaciones fijadas en el cartel y con las normas reguladoras en la materia.
-Una vez realizado el estudio de admisibilidad, el Asesor(a) legal de la Proveeduría procederá a realizar el análisis legal de las ofertas, y las unidades solicitantes el análisis técnico; en los plazos señalados en los artículos 9 inciso i) y 11 inciso c) del presente reglamento.

@@ -1,1 +1,0 @@
-Artículo 18.-Aprobaciones de la solicitud de contratación. Una vez que la Proveeduría da su aprobación, se trasladará al Encargado de Presupuesto para que valide el contenido presupuestario, y por último al Director de Área respectivo, quien será el responsable de aprobar todas las condiciones ahí contempladas.

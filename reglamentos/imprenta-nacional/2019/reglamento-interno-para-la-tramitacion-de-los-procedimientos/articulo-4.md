@@ -1,1 +1,0 @@
-Artículo 4.- Ámbito de aplicación. Este reglamento se aplicará para la adquisición de bienes y servicios que se tramiten según los procedimientos ordinarios de contratación, así como lo de excepción que se lleven a cabo en la Imprenta Nacional.
