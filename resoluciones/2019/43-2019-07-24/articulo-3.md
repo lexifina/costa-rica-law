@@ -1,1 +1,1 @@
-Artículo 3º-(Este numeral se dejó sin efecto por el artículo 2° de la resolución N° DGT-R-36-2021 del 14 de diciembre de 2021)
+Artículo 3º-(Este numeral se dejó sin efecto por el artículo 2° de la resolución N° DGT-R-36-2021 del 14 de diciembre de 2021. Posteriormente por el artículo 2° de la resolución N° MH-DGT-RES-0017-2023 del 31 de julio del 2023, "Operaciones exentas relacionadas con las exportaciones establecidas en el artículo 11 del Reglamento de la Ley del Impuesto sobre el Valor Agregado", se dejó sin efecto este numeral)
