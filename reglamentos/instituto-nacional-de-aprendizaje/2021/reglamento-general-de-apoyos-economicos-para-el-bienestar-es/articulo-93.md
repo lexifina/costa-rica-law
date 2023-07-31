@@ -1,3 +1,3 @@
 Artículo 93. Deberes de las personas encargadas del Proceso Financiero Contable en las Unidades Regionales con relación a la gestión de pago de las Becas del INA. Las personas encargadas del Proceso Financiero Contable en las Unidades Regionales, con relación a la gestión de pagos atinentes a las becas del INA, tendrán los siguientes deberes:
-a) Realizar el trámite de aprobación, en el SIAE, de los compromisos presupuestarios de las becas del INA y ayudas económicas en las fechas establecidas, según cronograma institucional
-b) Ejecutar otras funciones asignadas por Ley, Reglamento o normativa institucional vigente y aplicable.
+a. Realizar el trámite de aprobación, en el SIAE, de los compromisos presupuestarios de las becas del INA y ayudas económicas en las fechas establecidas, según cronograma institucional
+b. Ejecutar otras funciones asignadas por Ley, Reglamento o normativa institucional vigente y aplicable.

@@ -1,0 +1,1 @@
+Artículo 133. Transitorio. La Administración tendrá máximo seis meses a partir de la entrada en vigencia de este Reglamento para realizar los ajustes requeridos en los sistemas o en la documentación respectiva que se establezca en el mismo.

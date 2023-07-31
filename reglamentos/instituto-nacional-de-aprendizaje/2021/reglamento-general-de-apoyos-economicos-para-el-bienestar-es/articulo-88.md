@@ -1,5 +1,7 @@
-CAPÍTULO VI
-DE LAS UNIDADES INSTITUCIONALES INTERVENTORAS EN EL SERVICIO DE
-BECAS DEL INA
-Artículo 88. De la Gerencia General. La Gerencia General deberá definir anualmente los SCFP prioritarios de conformidad con la demanda del mercado laboral en atención al inciso e) del artículo 21 bis de la Ley N.º 6868 y sus reformas.
-Asimismo, en virtud de la dinámica del mercado laboral, podrá actualizarse la lista de SCFP prioritarios cuando se considere pertinente, lo cual deberá ser informado a las unidades interventoras en el servicio de becas del INA y a la Unidad de Acreditación.
+CAPÍTULO VI: DE LAS UNIDADES INSTITUCIONALES INTERVENTORAS
+EN EL SERVICIO DE BECAS DEL INA
+Artículo 88. De la Gerencia General y de la De la Unidad de Planificación y Evaluación
+En atención al inciso e) del artículo 21 bis de la Ley 6868 y sus reformas, la Unidad de Planificación y Evaluación (UPE) recomendará las áreas prioritarias y los servicios asociados a estas, con el acompañamiento de las Gestiones técnicas, enfatizando áreas de alta demanda del mercado laboral.
+Las áreas prioritarias se actualizarán según lo requiera la Administración Superior, las cuales serán validadas y aprobadas por el equipo Gerencial de la Institución.
+La definición de áreas prioritarias podrá considerar, sin limitarse a estas, las siguientes fuentes de información: Resultados de investigaciones realizadas en el Sistema de Información para la Investigación (SII), bases de datos de la ANE, fuentes secundarias como pueden ser estudios de demanda ocupacional de la Coalición Costarricense de Iniciativas de Desarrollo (CINDE), Banco Central de Costa Rica, Instituto Nacional de Estadística y Censos (INEC), estudios con potencialidades socioeconómicas de las regiones y otros disponibles, además, de fuentes primarias de información como la demanda ocupacional de empresas captada a través de “Fichas de Demanda Ocupacional” y cualquier otro insumo que se considere relevante.
+La Gerencia General se encargará de comunicar las áreas prioritarias vigentes a las instancias internas correspondientes y la UPE las pondrá a disposición de la comunidad INA para consulta.

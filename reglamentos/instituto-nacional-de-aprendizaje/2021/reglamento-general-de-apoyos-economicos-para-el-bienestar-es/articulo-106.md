@@ -1,11 +1,11 @@
 CAPÍTULO III
 DE LOS REQUISITOS Y TRÁMITES PARA LAS BECAS DE EFTP DUAL
 Artículo 106. Requisitos de las personas beneficiarias. Podrán aspirar a los beneficios regulados mediante el presente servicio, las personas estudiantes que cumplan con los siguientes requisitos:
-a) Suscripción del convenio de matrícula y del convenio para la EFTP dual, según lo indicado en los artículos 15 y 16 de la Ley N.º 9728, Ley para la Educación y Formación Técnica Dual. Para el caso de las personas menores de edad, el convenio de matrícula podrá ser suscrito por su representante legal, en los alcances que establece el artículo 39 del Código Civil y en concordancia con el numeral 26 del Reglamento a la Ley N.º 9728, Ley para la Educación y Formación Técnica Dual.
-b) Presentar documento de identificación al día, debidamente reconocido por el marco jurídico vigente. Para el caso de las personas menores de edad, se atenderá a lo dispuesto en la Convención de los Derechos del Niño y al necesario resguardo de su derecho a la Educación.
-c) Tener matrícula activa, como persona estudiante de la EFTP dual en los respectivos Centros Educativos. La verificación de este requisito será realizada por el INA de acuerdo con los procedimientos establecidos para ello.
-d) Presentar solicitud formal de los beneficios aquí reglamentados, mediante el sistema establecido para ello.
-e) Proporcionar el número de cuenta IBAN solicitada por el INA.
-Para cada persona estudiante externa al INA, el Proceso de Servicio al Usuario de cada Unidad Regional, custodiará un expediente digital y/o físico con la información aquí indicada y para aquellas personas estudiantes pertenecientes al INA, el expediente será custodiado por el Centro Ejecutor del INA correspondiente.
-Además, con el fin de que el INA pueda corroborar la información suministrada, la persona estudiante aportará una declaración jurada donde de conformidad con el artículo 318 del Código Penal, manifieste la veracidad de los datos proporcionados.
-Para el caso de las personas menores de edad y de conformidad con el artículo 39 del Código Civil, esta declaración jurada podrá ser suscrita por su representante legal.
+a. Contar con un convenio de matrícula, según lo estipula el artículo 15 de la Ley N.º 9728 “Ley para la Educación y Formación Técnica Dual”, el cual será referido al INA por parte del respectivo centro educativo. Para el caso de las personas menores de edad este convenio podrá ser suscrito por su representante legal, en los alcances que establece el artículo 39 del Código Civil y en concordancia con el numeral 26 del Reglamento a la Ley N.º 9728, Ley para la Educación y Formación Técnica Dual.
+b. Presentar documento de identificación al día, debidamente reconocido por el marco jurídico vigente.
+Para el caso de las personas menores de edad, se atenderá a lo dispuesto en la Convención de los Derechos del Niño y al necesario resguardo de su derecho a la Educación.
+c. Contar con matrícula vigente, como persona estudiante de la EFTP Dual en los respectivos Centros Educativos acreditados. La verificación de este requisito será realizada por el INA de acuerdo con los procedimientos establecidos para ello.
+d. Presentar el formulario “Solicitud de ayuda económica, Beca EFTP Dual con registro de información social”, anexo a este Reglamento, mediante el sistema SISAE, o de forma excepcional en físico.
+e. Proporcionar el número de cuenta IBAN solicitada por el INA.
+En cumplimento del artículo 16 de la Ley N.º 9728 “Ley para la Educación y Formación Técnica Dual”, el convenio para la EFTP Dual será remitido al INA por los centros educativos para la respectiva verificación, de conformidad con lo establecido en el artículo 109, inciso b).
+Para cada persona estudiante la persona encargada de Trabajo Social de cada Unidad Regional, conformará y custodiará un expediente digital y/o físico con la información aquí indicada.

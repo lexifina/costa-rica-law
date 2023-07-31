@@ -1,4 +1,4 @@
 Artículo 2. Del ámbito de aplicación. Este reglamento es de aplicación obligatoria para todas las personas estudiantes, personas funcionarias del Instituto Nacional de Aprendizaje (en adelante INA), centros públicos o privados prestatarios de servicios de capacitación y formación profesional y empresas que operen, utilicen, se relacionen o beneficien de los siguientes servicios institucionales para el bienestar estudiantil:
-a) Servicio de Ayudas Económicas para las personas estudiantes de los servicios de capacitación y formación profesional del INA, de conformidad con el artículo 21 de la Ley Orgánica del INA, Ley No. 6868 y sus reformas.
-b) Servicio de Becas del INA, de conformidad con el artículo 21 bis de la Ley Orgánica del INA, Ley No. 6868 y sus reformas.
-c) Servicio de Becas para la Educación y Formación Técnica Dual y Fondo Especial de Becas para la EFTP Dual, de conformidad con el artículo 25 de la Ley de Educación y Formación Técnica Dual, Ley No. 9728.
+a. Servicio de Ayudas Económicas para las personas estudiantes de los servicios de capacitación y formación profesional del INA, de conformidad con el artículo 21 de la Ley Orgánica del INA, Ley No. 6868 y sus reformas.
+b. Servicio de Becas del INA, de conformidad con el artículo 21 bis de la Ley Orgánica del INA, Ley No. 6868 y sus reformas.
+c. Servicio de Becas para la Educación y Formación Técnica Dual y Fondo Especial de Becas para la EF TP Dual, de conformidad con el artículo 25 de la Ley de Educación y Formación Técnica Dual, Ley No. 9728.

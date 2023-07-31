@@ -1,0 +1,3 @@
+Artículo 73 bis. Determinación de las personas a priorizar.
+Los criterios de priorización de extrema pobreza, pobreza y de vulnerabilidad social se identificarán con la información que brinda el SINIRUBE.
+En el grupo de vulnerabilidad social, se priorizarán en primer orden a las mujeres, grupos minoritarios, jóvenes de 15 a 34 años y de 35 años en adelante. Además de pasar por el proceso de priorización aquí establecido, deberá cumplir con los requisitos técnicos que tiene el perfil de ingreso del SCFP que el INA haya indicado a través de la instancia técnica competente acorde a las necesidades del mercado laboral.

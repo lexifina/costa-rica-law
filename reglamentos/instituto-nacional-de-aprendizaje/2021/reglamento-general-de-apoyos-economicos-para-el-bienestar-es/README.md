@@ -14,3 +14,4 @@ Reglamento general de apoyos económicos para el bienestar estudiantil del Insti
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-08-09 | la propia norma |
+| 2 | 2023-07-31 | Reglamento 30 (2023-07-31) |
