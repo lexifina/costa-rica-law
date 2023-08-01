@@ -1,0 +1,1 @@
+Artículo 4°- Sistema especial de bienes usados. El presente decreto no implica la desaplicación del sistema especial de bienes usados, dispuesto en el Capítulo VI ele la Ley del Impuesto al Valor Agregado.
