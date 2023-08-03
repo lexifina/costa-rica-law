@@ -1,1 +1,2 @@
-Artículo 13.—Ajuste de la caución. El caucionante que por algún motivo sea trasladado de un puesto a otro, que implique una nueva ubicación en la clasificación por niveles de responsabilidad, deberá ajustar la caución conforme a la nueva situación, para lo cual contará con un plazo máximo de veinte días hábiles.
+Artículo 13.-Ajuste de la caución. La persona caucionante que por algún motivo sea trasladada de un puesto a otro, que implique una nueva ubicación en la clasificación por niveles de responsabilidad, deberá ajustar la caución conforme a la nueva situación, para lo cual contará con un plazo máximo de veinte días hábiles.
+(Así reformado por el artículo 1° del decreto del Tribunal Supremo de Elecciones N° 8-2023 del 3 de agosto del 2023)
