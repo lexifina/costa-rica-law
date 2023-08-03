@@ -1,1 +1,0 @@
-Artículo 14.—Los montos autorizados por la Tesorería Nacional en los fondos de cajas chicas se harán llegar vía transferencia de recursos, del fondo general del Estado a la cuenta bancaria indicada en la solicitud de los recursos, y contra la cual sólo podrán girar las personas debidamente autorizadas.

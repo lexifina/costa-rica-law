@@ -1,1 +1,0 @@
-Artículo 10.—En atención a la solicitud del máximo jerarca del organismo interesado, el Tesorero Nacional autorizará la asignación de los recursos para caja chica a los Ministerios y Poderes, considerando las necesidades de cada institución y la disponibilidad de recursos del Tesoro Público.

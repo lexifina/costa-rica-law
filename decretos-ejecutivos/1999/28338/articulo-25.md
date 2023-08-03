@@ -1,1 +1,0 @@
-Artículo 25.—En el caso de los adelantos y liquidaciones por concepto de viáticos, se tramitarán en el formulario para tal fin, debidamente aprobados por el jefe del departamento. Estos conceptos se regirán de conformidad con el Reglamento de Gastos de Viaje y sus modificaciones.
