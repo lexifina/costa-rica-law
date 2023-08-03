@@ -1,0 +1,1 @@
+Artículo 10.-Cualquier obra menor que se realice, deberá de considerar la protección de la propiedad, la salud pública, la vida humana y animal que lo utilizarán, y el respeto a todas las regulaciones legales que se considere en función del desarrollo integral que garantice el derecho a un ambiente sano y equilibrado, individual y colectivo.

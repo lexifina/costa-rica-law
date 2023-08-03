@@ -1,0 +1,1 @@
+Artículo 5º-Toda obra menor deberá de contar con una licencia de construcción expedida por la Dirección de Gestión de Control Urbano y Rural o de unidad municipal designada al efecto, la cual tendrá la obligación de vigilar y fiscalizar las obras para las que haya extendido la misma.

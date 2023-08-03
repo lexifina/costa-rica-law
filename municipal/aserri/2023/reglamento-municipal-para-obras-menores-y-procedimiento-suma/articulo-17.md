@@ -1,0 +1,1 @@
+Artículo 17.-El procedimiento sumario aquí establecido deberá ser concluido por medio de un acto final que -previo informe de la Dirección Jurídica y traslado del expediente-será emitido por el Titular de la Alcaldía Municipal, en el plazo de dos meses, a partir de su iniciación, de oficio o a instancia de parte.

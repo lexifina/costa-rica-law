@@ -1,0 +1,1 @@
+Artículo 15.-En el presente procedimiento sumario la Dirección Jurídica Institucional ordenará y tramitará las pruebas en la forma que crea más oportuna, determinará el orden, términos y plazos de los actos a realizar, así como la naturaleza de éstos, sujeto únicamente a las limitaciones que señala el ordenamiento jurídico.

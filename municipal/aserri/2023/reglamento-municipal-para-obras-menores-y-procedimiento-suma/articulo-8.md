@@ -1,0 +1,1 @@
+Artículo 8º-Las licencias municipales para la construcción de obras menores serán otorgadas con fundamento en el criterio técnico especializado del Director de Gestión Urbano y Rural, o el funcionario municipal competente de acuerdo con el artículo 83 de la Ley N° 9482, quien emitirá la resolución aprobatoria respectiva.

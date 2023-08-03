@@ -1,0 +1,1 @@
+Artículo 3º-Este Reglamento no sustituye la Ley de Construcciones N° 833 ni cualquier otra ley que verse sobre las construcciones, más bien, se nutre de ellas para lograr dos objetivos fundamentales: a) acercar al munícipe a obtener la Licencia Municipal de construcción por obras menores; b) incrementar el control y fiscalización municipal sobre este tipo de obras civiles.
