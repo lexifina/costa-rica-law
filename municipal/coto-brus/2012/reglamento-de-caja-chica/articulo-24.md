@@ -1,1 +1,0 @@
-Artículo 24.—Arqueos sorpresivos. Para asegurar el uso adecuado de los recursos del fondo, el departamento de Auditoria Municipal o el Alcalde Municipal, realizará arqueos de forma periódica y sorpresiva de los valores entregados al administrador del fondo de caja chica.

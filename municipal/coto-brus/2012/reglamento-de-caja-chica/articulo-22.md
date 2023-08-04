@@ -1,1 +1,0 @@
-Artículo 22.—De los documentos de respaldo. La reposición o liquidación del fondo de caja chica, deberá estar respaldada con la documentación original de cada una de las compras o pagos efectuados. No tendrán validez los comprobantes que evidencien alteraciones en los datos, firmas o sellos.

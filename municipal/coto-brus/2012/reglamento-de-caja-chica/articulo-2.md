@@ -1,1 +1,0 @@
-Artículo 2°—Alcance. El fondo de caja chica servirá única y exclusivamente para facilitar el buen funcionamiento de la administración municipal, permitiendo la compra en bienes y servicios, así como pagar viáticos y gastos de viajes, y cuyo costo no exceda de lo establecido en este reglamento.

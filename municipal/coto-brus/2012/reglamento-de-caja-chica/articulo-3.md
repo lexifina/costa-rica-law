@@ -1,1 +1,0 @@
-Artículo 3°—Ámbito de aplicación. Se sujetarán a las disposiciones establecidas en este Reglamento, las diferentes dependencias administrativas, autoridades de la municipalidad y el empleado responsable de su administración y manejo.

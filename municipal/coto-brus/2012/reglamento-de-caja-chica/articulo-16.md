@@ -1,1 +1,0 @@
-Artículo 16.—De la creación del fondo. El fondo de caja chica, se creará con cheque, y será entregado a nombre del empleado municipal nombrado como responsable del manejo y administración del mismo, este deberá cambiar el cheque y mantener el efectivo con las seguridades apropiadas bajo su custodia, e ir utilizando el fondo de caja chica conforme las necesidades lo requieran.
