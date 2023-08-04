@@ -1,0 +1,4 @@
+Artículo 8. Definición y constitución de la Comisión Ad Hoc. La comisión Ad Hoc se define como el grupo de personas profesionales que eligirá el CU, y tendrán como responsabilidad analizar, evaluar, clasificar y valorar las propuestas llevadas por las personas candidatas a el Doctor Honoris Causa, y será constituida de la siguiente manera:
+a. El CU analiza la propuesta y determina con sus integrantes los perfiles de las personas que conforman la comisión ad hoc. Es importante dejar claro en este reglamento que la comisión no es definitiva, esta puede variar a partir del perfil que se analice.
+b. La comisión debe estar conformada por personas expertas en el campo profesional de la persona candidata, para tener criterios específicos y técnicos que permitan emitir juicios a favor o en contra de la propuesta.
+c. En caso de no contar con los especialistas en el área, se debe articular con instituciones externas para solicitar expertos en el área que corresponda.

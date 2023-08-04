@@ -1,0 +1,1 @@
+Artículo 13. Acreditación. El CU toma un acuerdo con el veredicto definitivo y posteriormente se expide un diploma de honor como documento que acredita la concesión del nombramiento de doctor honoris causa UTN.

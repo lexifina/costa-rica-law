@@ -1,0 +1,1 @@
+Artículo 10. Otorgamiento. El otorgamiento del doctor honoris causa se basa en criterios científicos, académicos y culturales, sustentados en las acreditaciones presentadas por las personas candidatas, y de las cuales se cuantifica su población beneficiaria.

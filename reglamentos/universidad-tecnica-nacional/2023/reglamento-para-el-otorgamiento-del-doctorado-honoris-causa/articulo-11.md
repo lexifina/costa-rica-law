@@ -1,0 +1,1 @@
+Artículo 11. Limitaciones. Una vez otorgado el distintivo a la persona candidata, no se puede solicitar nuevamente su postulación hasta transcurrir tres años, salvo casos excepcionales que deben ser analizados nuevamente ante una solicitud al CU, en caso de ser aprobada, el CU informa a la persona candidata la resolución final.
