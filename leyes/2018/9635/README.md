@@ -1,6 +1,6 @@
 # Fortalecimiento de las finanzas públicas
 
-Ley N° 9635 del 2018-12-03. SINALEVI, ficha 87720: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=87720&param2=135054&param3=1>.
+Ley N° 9635 del 2018-12-03. SINALEVI, ficha 87720: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=87720&param2=137025&param3=1>.
 
 Publicada en La Gaceta N° 225 del 2018-12-04.
 
@@ -25,3 +25,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 15 de 28 | 2022-06-10 | Ley 10253 | 2022-05-06 |
 | 16 de 28 | 2023-03-03 | Ley 10258 | 2022-05-17 |
 | 17 de 28 | 2023-03-03 | Ley 10307 | 2022-09-26 |
+| 18 de 28 | 2023-08-04 | Resolución 17 (2023-07-31) | 2023-07-31 |
