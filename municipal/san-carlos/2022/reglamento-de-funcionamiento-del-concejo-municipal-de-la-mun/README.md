@@ -14,3 +14,4 @@ Reglamento de funcionamiento del Concejo Municipal de la Municipalidad de San Ca
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-03-09 | la propia norma |
+| 2 | 2023-08-07 | Reglamento municipal 0 (2023-08-07) |
