@@ -1,0 +1,1 @@
+Transitorio VI: Las remuneraciones que conforme al Transitorio I de la Ley Concursal deben regirse por la normativa anterior a la entrada en vigor de esa legislación. Así mismo tampoco aplicará para honorarios determinados antes de la vigencia del presente Reglamento.

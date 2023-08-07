@@ -1,0 +1,2 @@
+Artículo 42. Al hacer la designación en los cargos, el tribunal determinará bajo una resolución fundada una fijación provisional de honorarios, si fuere posible con la información que se encuentre en el expediente y siempre atendiendo a los parámetros de este arancel.
+La fijación provisional podrá ser modificada por la persona Juzgadora por razones sobrevenidas justificadas, según la información que se llegue a recabar, o lo que se apruebe por un acuerdo concursal válido y ejecutorio.

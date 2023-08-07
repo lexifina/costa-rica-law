@@ -1,0 +1,1 @@
+Artículo 53. Cuando el liquidador le ha correspondido atender todas las etapas del proceso concursal, incluida la formulación del informe inicial del estado del concurso, activo y pasivo, a que se refiere la Ley Concursal, sin administrar actividad productiva, sus honorarios totales serán aumentados en un veinticinco por ciento (25%).

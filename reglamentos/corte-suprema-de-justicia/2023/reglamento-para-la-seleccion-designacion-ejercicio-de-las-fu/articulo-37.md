@@ -1,0 +1,2 @@
+Artículo 37. - Firme la resolución que imponga una sanción disciplinaria, se ejecutará de manera inmediata; de existir un motivo justificado que impida la ejecución de la sanción, se contará con un plazo de un año a partir de la firmeza la resolución que impuso la sanción para ejecutarla.
+La sanción impuesta deberá anotarse en el registro correspondiente y se comunicará al despacho judicial en caso de encontrarse nombrado.

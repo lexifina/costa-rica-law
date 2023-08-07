@@ -1,0 +1,2 @@
+Artículo 18. - La Dirección Ejecutiva confeccionará un carné de identificación para las personas interventoras, administradoras o liquidadoras concursales, los respectivos suplentes o auxiliares de estos órganos debidamente inscritos.
+Dicho carné deberá ser portado por la respectiva persona cuando cumpla diligencias propias de su función y presentarlo cuando así se requiera. Deberá devolver el carné a la Dirección Ejecutiva cuando no formen parte de la Lista Oficial.

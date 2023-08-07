@@ -1,0 +1,1 @@
+Artículo 21.- Las personas interventoras, administradores o liquidadores concursales, sus suplentes o auxiliares de este órgano deberán observar las incompatibilidades y prohibiciones que establece la Ley Concursal y otras normas conexas.

@@ -1,0 +1,1 @@
+Artículo 38.- La sanción que llegue ser adoptada, será aplicada a las personas en su condición de órganos auxiliares de justicia, independientemente de las listas de Órganos Concursales, en que se encuentren.

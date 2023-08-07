@@ -1,0 +1,9 @@
+SECCIÓN II
+GESTIÓN DE LOS LISTADOS
+Artículo 13: Corresponderá a la Dirección Ejecutiva la gestión de los listados de las personas inscritas como oferentes como interventores, administradores y liquidadores concursales, o como auxiliares de estos órganos concursales, conforme al artículo 26.11 de la Ley Concursal, para lo cual deberá:
+a) Inscribir en los registros respectivos a las personas aprobadas por el Consejo Superior como oferentes elegibles para integrar los listados como interventoras, administradoras y liquidadoras concursales; o como, auxiliares de estos órganos concursales, y proceder a su respectiva juramentación. El registro de cada una de estas personas elegibles deberá contener al menos la información referida en el artículo 26.11 de la Ley Concursal.
+b) Publicar periódicamente en la página web de la Dirección Ejecutiva los listados de las personas inscritas como oferentes elegibles para integrar los listados como interventores, administradoras y liquidadoras concursales, o auxiliares de estos órganos concursales.
+c) Llevar de forma actualizada y ordenada los listados e información de las personas inscritas como oferentes elegibles para integrar los listados de los diferentes órganos concursales.
+d) Solicitar a la Dirección de Gestión Humana la publicación de los correspondientes concursos para integrar los listados como interventores, administradores y liquidadores concursales, o auxiliares de estos órganos concursales, conforme a las necesidades que se evidencien por parte de los despachos judiciales y/o estudio previo realizado de los registros de listados.
+e) Excluir de las listas a las personas que pierdan alguna de las condiciones establecidas por la ley.
+f) Definir las normas y acciones administrativas de control que estime necesarias para la debida gestión de los listados.

@@ -1,0 +1,1 @@
+Artículo 58. En el caso de los interventores, administradores y liquidadores concursales suplentes devengarán honorarios en forma proporcional a las labores que hayan realizado, según fijación prudencial tomando en consideración lo dispuesto en el artículo 26.5 de la Ley Concursal y este Reglamento.

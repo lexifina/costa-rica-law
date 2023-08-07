@@ -1,0 +1,1 @@
+Artículo 56. A solicitud del órgano concursal interesado, este percibirá por honorarios un adicional de un cinco por ciento (5%) sobre el valor de los activos que se integren al patrimonio, con ocasión de haber interpuesto exitosamente una acción judicial o extrajudicial cuando corresponda.

@@ -1,0 +1,1 @@
+Artículo 22. -En caso de que un interventor, administrador o liquidador concursal, los respectivos suplentes o auxiliares de estos órganos, tengan interés directo o indirecto en el proceso, debe excusarse de realizar la diligencia para la cual fue designado o designada.

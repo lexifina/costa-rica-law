@@ -1,0 +1,1 @@
+Transitorio IV: Los procedimientos administrativos disciplinarios activos antes de la vigencia de este reglamento continuarán rigiéndose por la normativa anterior y seguirán su trámite e investigación hasta su conclusión en la Dirección Ejecutiva; los iniciados a partir de la vigencia de esta normativa serán tramitados conforme lo estipulado en el presente reglamento.

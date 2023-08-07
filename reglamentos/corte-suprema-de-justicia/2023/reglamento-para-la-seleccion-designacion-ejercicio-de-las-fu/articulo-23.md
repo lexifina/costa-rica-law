@@ -1,0 +1,1 @@
+Artículo 23. - Los motivos de impedimento y recusación de las personas los interventoras, administradoras o liquidadoras concursales, los respectivos suplentes o auxiliares de estos órganos serán previstos en la Ley Orgánica del Poder Judicial, Ley Concursal, Código Procesal Civil y normativas conexas.

@@ -1,0 +1,1 @@
+Artículo 6.- Las convocatorias y bases de los concursos para cada uno de estos órganos se efectuarán mediante publicación por una vez en el Boletín Judicial, en al menos en un periódico de amplia circulación nacional, y a través de los medios electrónicos de que se dispongan.

@@ -1,0 +1,1 @@
+Artículo 52. Cuando el liquidador esté a cargo de la administración de actividades productivas cuya continuidad se haya ordenado, percibirá los honorarios mensuales dispuestos en este arancel para los concursos que continúen con actividades económicas de acuerdo a la función de administración y además lo que se perciba por la liquidación concursal, según el artículo anterior.

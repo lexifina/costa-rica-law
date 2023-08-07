@@ -1,0 +1,1 @@
+Transitorio II: Hasta tanto no se realice el respectivo concurso al amparo del presente reglamento, se mantendrán las listas vigentes y los cargos de interventores, Notarios Inventariadores y Curadores Concursales los cuales, se dividen en Curadores Propietarios y Curadores Suplentes.

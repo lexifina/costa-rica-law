@@ -1,0 +1,1 @@
+Artículo 29. - A la información de los expedientes electrónicos, tendrá acceso el interesado, Dirección Ejecutiva, la Dirección Jurídica, la autoridad judicial cuando lo requiera, o las partes del proceso donde fue asignado con autorización de la persona juzgadora a cargo del expediente.

@@ -1,0 +1,1 @@
+Artículo 27.-Corresponderá a la Dirección Ejecutiva, incorporar a cada expediente la información relacionada con lo dispuesto en los artículos 26.11, 23, 24, 25 de la Ley Concursal y este Reglamento. Además, deberá mantenerlos actualizados incorporando oportunamente, de oficio o a gestión de parte, cualquier dato o información que resulte pertinente.

@@ -1,0 +1,1 @@
+Artículo 19. -El carné se expedirá con una vigencia de dos años, renovable por períodos iguales y consecutivos, siempre y cuando la persona Auxiliar de la Administración de Justicia no tenga impedimento para seguir fungiendo como tal y tenga actualizado la información conforme lo dispuesto en el artículo 15 de este reglamento.

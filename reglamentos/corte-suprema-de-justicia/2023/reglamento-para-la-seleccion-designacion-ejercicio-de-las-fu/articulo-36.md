@@ -1,0 +1,2 @@
+Artículo 36. - La persona Directora Ejecutiva será el órgano competente para dictar el acto final del procedimiento disciplinario contra quienes se desempeñen como órganos Concursales en el ejercicio de su función como auxiliares de la justicia.
+Contra lo resuelto caben los recursos ordinarios de revocatoria ante la Dirección Ejecutiva y de apelación ante el Consejo Superior. Ambos recursos deben interponerse dentro de un plazo de tres días hábiles, contados a partir del día siguiente a la notificación del acto final.

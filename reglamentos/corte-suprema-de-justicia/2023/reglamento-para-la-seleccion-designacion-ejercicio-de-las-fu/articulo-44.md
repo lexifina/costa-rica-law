@@ -1,0 +1,1 @@
+Artículo 44. En el caso de la remuneración general por intervención de actividades productivas, la persona o patrimonio concursado, en lugar de administración, los honorarios mensuales base del interventor serán del cincuenta por ciento (50%) de los que corresponderían por la administración concursal.
