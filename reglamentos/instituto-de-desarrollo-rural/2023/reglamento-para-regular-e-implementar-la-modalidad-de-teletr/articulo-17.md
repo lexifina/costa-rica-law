@@ -1,0 +1,1 @@
+Artículo 17.-De los controles. La persona funcionaria teletrabajadora estará sujeta a los controles ordinarios de evaluación establecidos por el Inder. Además, deberá brindar la información verídica y oportuna en todos los procesos de investigación.

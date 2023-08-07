@@ -1,0 +1,1 @@
+Artículo 30.-Disposiciones supletorias. Lo no regulado expresamente en este reglamento se aplicará lo dispuesto por la Ley N.° 9738, de 18 de setiembre de 2019, su respectiva reglamentación, así como, la normativa nacional e interna vigente en materia de registro, control y uso de activos del Inder; salud ocupacional, seguridad informática y otros temas relacionados.

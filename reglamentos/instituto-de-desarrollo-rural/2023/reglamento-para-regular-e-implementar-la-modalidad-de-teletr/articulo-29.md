@@ -1,0 +1,1 @@
+Artículo 29.-De los puestos que se excluyen de la presente normativa. Se excluyen de la aplicación y asignación de la modalidad de teletrabajo, aquellos puestos exceptuados por ley o por decreto ejecutivo y los que la administración superior del Inder, así los decrete por conveniencia institucional.
