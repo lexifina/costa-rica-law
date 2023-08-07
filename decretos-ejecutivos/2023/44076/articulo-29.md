@@ -1,0 +1,3 @@
+Artículo 29.-La Junta Directiva estará compuesta por siete miembros: presidente, vicepresidente, tesorero, secretario, vocal uno, vocal dos y vocal tres. En ausencia temporal o definitiva del presidente, quien ejerza la vicepresidencia asumirá dicho cargo con iguales atribuciones y responsabilidades.
+Los vocales sustituirán por su orden las ausencias temporales o definitivas de cualquiera de los otros miembros de la Junta Directiva, excepto del presidente.
+Así mismo, existirán dos suplentes de Junta Directiva, quienes serán designados como primer y segundo suplente, para sustituir por su orden a los vocales en sus ausencias temporales o definitivas.

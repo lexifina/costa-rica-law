@@ -1,0 +1,1 @@
+Artículo 13.-Únicamente los profesionales inscritos en el Colegio y que se encuentren a derecho en sus obligaciones, podrán ejercer la profesión en las áreas de actividades propias de las Ciencias Económicas. Cuando se incurra en el incumplimiento de esta disposición, se aplicará lo establecido en el artículo 15 de la Ley Orgánica.

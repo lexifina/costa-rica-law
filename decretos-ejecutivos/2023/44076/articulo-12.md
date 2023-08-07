@@ -1,0 +1,1 @@
+Artículo 12.-Los agremiados podrán renunciar definitivamente a su condición de miembros del Colegio de modo voluntario, mediante solicitud a la Junta Directiva. Para que esa renuncia sea aprobada, quienes la soliciten deberán acreditar mediante declaración jurada, que no están ejerciendo ninguna actividad profesional de las ciencias económicas.

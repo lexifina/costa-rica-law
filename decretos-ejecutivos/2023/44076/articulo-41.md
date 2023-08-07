@@ -1,0 +1,4 @@
+Artículo 41.-Son atribuciones de la Oficina de Fiscalía:
+a) Coadyuvar con el Fiscal para garantizar el cumplimiento de los mandatos contenidos en la Ley Orgánica, y demás reglamentos que rigen el Colegio, por parte de las instituciones públicas y empresas privadas. Así mismo, velar por el cumplimento de los reglamentos internos aprobados por la Asamblea General dentro de las distintas actividades del Colegio, así como de los acuerdos y resoluciones de la Asamblea General y Junta Directiva.
+b) Coadyuvar con el Fiscal en la preparación de las denuncias, y procedimientos administrativos y acusaciones que se gestionen por el ejercicio ilegal de la profesión y el ejercicio de la actividad profesional por parte de los colegiados y empresas entidades consultoras. Asistir a otros órganos del Colegio en el cumplimiento de los objetivos señalados en la Ley Orgánica y sus reglamentos, compatibles con las funciones de la Fiscalía.
+c) Rendir los informes que solicite el Fiscal.

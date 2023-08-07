@@ -1,0 +1,1 @@
+Artículo 6º-El escudo y logo del Colegio serán los que determine la Junta Directiva. Su uso será exclusivo para fines institucionales. En el caso que se requiera su utilización en eventos externos al Colegio, deberá contarse con la autorización de la Dirección Ejecutiva.

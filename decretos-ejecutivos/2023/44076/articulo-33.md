@@ -1,0 +1,2 @@
+Artículo 33.-Los miembros electos para el periodo sucesivo serán juramentados por quien presida el Tribunal de Elecciones al finalizar la sesión en que se nombraron.
+La nueva integración de la Junta Directiva y Fiscalía se publicará en la página electrónica del Colegio, así como por los medios electrónicos que la Junta Directiva determine, o bien, a juicio de este último órgano, se publicará también en un diario de circulación nacional.

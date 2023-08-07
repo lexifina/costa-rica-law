@@ -1,0 +1,1 @@
+Artículo 26.-Las sesiones de las Asambleas Generales Ordinarias y Extraordinarias serán privadas; no obstante, se permitirá la presencia del personal administrativo de apoyo, seguridad y asesores legales de la Junta Directiva: En el caso de personas no agremiadas, la Asamblea podrá autorizar expresamente su presencia.

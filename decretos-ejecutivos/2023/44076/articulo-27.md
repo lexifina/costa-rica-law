@@ -1,0 +1,3 @@
+Artículo 27.-Las actas de las sesiones de la Asamblea General serán firmadas por quien ejerza la presidencia y la secretaría de la Junta Directiva, a más tardar un mes después de haberse celebrado la sesión.
+Salvo que la misma Asamblea disponga otra cosa, todo acuerdo de Asamblea General será firme e inmediatamente ejecutable.
+Los acuerdos de Asamblea serán aprobados al menos por la mitad más uno de los miembros presentes. Los votos contabilizados como abstenciones se sumarán a la votación mayoritaria. En caso de empate, se repetirá la votación. De persistir el empate, el presidente ejercerá doble voto.

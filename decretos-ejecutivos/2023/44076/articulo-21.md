@@ -1,0 +1,1 @@
+Artículo 21.-Para gestionar su inscripción, la empresa consultora en Ciencias Económicas deberá presentar los requisitos establecidos en el Reglamento de Admisión, el cual puede ser consultado en la página web del Colegio www. colegiocienciaseconomicas.cr.

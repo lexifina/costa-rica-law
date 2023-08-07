@@ -1,0 +1,1 @@
+Artículo 25.-Las Asambleas Generales Ordinarias o Extraordinarias serán dirigidas por la Presidencia de la Junta Directiva y, en ausencia suya, por quien ejerza la vicepresidencia. En ausencia de ambos, presidirá el miembro de Junta Directiva de más edad entre los presentes.

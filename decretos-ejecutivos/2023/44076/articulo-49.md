@@ -1,0 +1,1 @@
+Artículo 49.-Las denuncias por violaciones a la Ley Orgánica, a sus reglamentos, disposiciones de la Asamblea General y de la Junta Directiva estarán protegidas bajo la reserva total y confidencialidad, únicamente se perderá la condición de confidencialidad cuando lo solicite la autoridad judicial o el afectado y la Junta Directiva lo acepte, previo informe de la Fiscalía.

@@ -1,0 +1,1 @@
+Artículo 31.-Salvo que exista prohibición legal, o causales de impedimento o recusación conforme al Código Procesal Civil vigente, ningún miembro de Junta Directiva podrá excusarse de votar cualquier asunto.

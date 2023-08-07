@@ -1,0 +1,1 @@
+Artículo 45.-Una vez finalizada la investigación preliminar, en los casos que corresponda, la Fiscalía presentará ante la Junta Directiva el informe con la recomendación para gestionar ante los Tribunales de Justicia correspondientes, las denuncias penales respectivas.

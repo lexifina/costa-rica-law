@@ -1,0 +1,5 @@
+Artículo 8º-Para efectos del artículo 4, incisos a) y b) de la Ley N° 7105, para ser incorporado como Miembro Activo del Colegio se requiere cumplir alguna de las siguientes condiciones:
+a) Haber obtenido el grado de Diplomado o Bachiller, que otorgan las instituciones de educación superior universitaria de Costa Rica, en el área de las ciencias económicas
+b) Haber obtenido el grado de bachiller en el área de las ciencias económicas y posteriormente Licenciatura, Maestría o Doctorado en la misma área.
+No podrá ser miembro del Colegio quien cuente con un posgrado de Maestría, Doctorado o especialidad en el área de las ciencias económicas si su título de grado no corresponde a tal área.
+Los actuales colegiados mantendrán sus derechos. Las personas con grado académico distinto a las ciencias económicas, que se hubieren matriculado antes del 14 de octubre de 1992, en un programa de Maestría y Posgrado Superior en el área de las ciencias económicas, podrán incorporarse al Colegio una vez obtenido su título.
