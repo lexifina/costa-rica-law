@@ -14,3 +14,4 @@ Reglamento Municipal de Participación Ciudadana del Cantón de Sarapiquí
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-11-01 | la propia norma |
+| 2 | 2023-08-07 | Reglamento municipal 171 (2023-08-07) |

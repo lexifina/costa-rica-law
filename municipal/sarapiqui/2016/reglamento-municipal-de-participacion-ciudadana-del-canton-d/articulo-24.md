@@ -1,3 +1,5 @@
 CAPÍTULO III
-De la Oficina Municipal de Iniciativa Popular
-Artículo 24—Se establece como función de la Contraloría de Servicios adscrita a la Alcaldía o la oficina que ésta última designe, la atención de la iniciativa popular, donde se le brinde atención ciudadana tanto en los proyectos de inversión, reglamentos o similares que desee plantear cualquier vecino o vecina del Cantón, para atender necesidades comunales o servicios públicos de la entidad, todo sin dejar de lado la atención de quejas y de recepción de denuncias.
+De la Atención de la Iniciativa Popular
+(Así adicionado el capítulo anterior en sesión N° 171 del 7 de agosto de 2023)
+Artículo 24.-Oficina municipal de iniciativa popular. La Unidad de Desarrollo Social y Económico fungirá como oficina municipal de iniciativa popular y será la encargada de atender, asesorar y capacitar a los ciudadanos promoventes de proyectos de donación de bienes, de suministro de servicios y de realización de obra civil de interés y utilidad general para la población del cantón de Sarapiquí; asimismo, se encargará de la recepción y tramitación de las peticiones ante la comisión municipal especial resolutora y de transmitir las decisiones relacionadas que dicte ese último órgano.
+(Así adicionado en sesión N° 171 del 7 de agosto de 2023)
