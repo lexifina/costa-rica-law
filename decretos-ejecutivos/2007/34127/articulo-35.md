@@ -1,1 +1,0 @@
-Artículo 35.—El Auditor Interno podrá periódicamente proponer, debidamente justificada al Jerarca, la creación de plazas y servicios, que considere indispensable para el cumplimiento de su “Plan Anual de Trabajo”, conforme a la capacidad y disponibilidad presupuestaria del Ministerio.

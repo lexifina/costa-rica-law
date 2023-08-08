@@ -1,1 +1,0 @@
-Artículo 8º—El Auditor Interno podrá participar en sesiones o reuniones del Jerarca cuando se requiera, pero esta participación no debe ser la regla, salvo que la Ley así lo establezca, y su actuación ha de ser conforme a su responsabilidad de Asesor, según la normativa y criterios establecidos por la Contraloría General al respecto.

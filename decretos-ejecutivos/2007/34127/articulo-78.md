@@ -1,4 +1,0 @@
-SECCIÓN VI
-Del seguimiento de recomendaciones y disposiciones
-Artículo 78. —La Auditoría General, de conformidad con sus competencias, realizará en forma continua, el seguimiento sobre la implementación de las recomendaciones contenidas en sus informes y de las disposiciones que emita el Jerarca con respecto a los informes de auditoría, del Órgano Contralor y de otras instancias de fiscalización externas, relacionadas con su ámbito de competencia, así como de las recomendaciones que emitan los despachos de contadores públicos cuando sean de su conocimiento y vinculantes a su fiscalización, de conformidad con lo dispuesto en el artículo 22, inciso g) de la “Ley General de Control Interno” y el punto, Nº 2.11.1 de las “Normas para el Ejercicio de la Auditoría Interna en el Sector Público”.
-(Así reformado por el artículo 3° del decreto ejecutivo N° 37176 del 30 de enero del 2012)

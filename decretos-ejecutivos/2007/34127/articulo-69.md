@@ -1,3 +1,0 @@
-SECCIÓN IV
-De la admisibilidad de denuncias
-Artículo 69.—La Auditoría General atenderá las denuncias que presenten funcionarios o particulares, de conformidad con lo establecido en el artículo Nº 6 de la “Ley General de Control Interno” Nº 8292, el artículo Nº 8 de la “Ley contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública” Nº 8422 y su Reglamento, el “Manual de Normas Generales para la recepción de denuncias presentadas contra funcionarios del Ministerio de Seguridad Pública”, así como cualquier otra reglamentación que de manera interna emita el Ministerio de Seguridad Pública.

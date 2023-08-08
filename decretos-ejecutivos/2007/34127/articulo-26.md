@@ -1,1 +1,0 @@
-Artículo 26.—El Auditor interno podrá delegar en su personal algunas de sus funciones, utilizando criterios de idoneidad y racionalidad, conforme lo establece la “Ley General de Administración Pública” y otras normas complementarias.

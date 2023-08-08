@@ -1,1 +1,0 @@
-Artículo 81.—Sobre los resultados obtenidos del seguimiento de recomendaciones y disposiciones que realice la Auditoría General, se podrán derivar diferentes productos, sean estos informes de control interno, informes de relaciones de hechos y documentos de asesoría o de advertencia.

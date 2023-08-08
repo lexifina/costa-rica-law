@@ -1,3 +1,0 @@
-SECCIÓN VII
-De las responsabilidades y sanciones
-Artículo 83.—El incumplimiento a lo dispuesto en el presente Reglamento será causal de responsabilidad administrativa para el Auditor Interno, Subauditor Interno y para los funcionarios de la Auditoría General, el Ministro, titulares subordinados y demás funcionarios del Ministerio de Seguridad Pública. La determinación de responsabilidades y aplicación de las sanciones administrativas corresponde al órgano competente, según lo dispuesto en el Capítulo V de la “Ley General de Control Interno” y el Capítulo IV de la “Ley Contra la Corrupción y el Enriquecimiento Ilícito” Nº 8422 y otra normativa interna que resulte aplicable.

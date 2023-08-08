@@ -1,1 +1,0 @@
-Artículo 60.—En la ejecución de las auditorías o estudios especiales de auditoría, será obligatorio por parte de los auditores y demás personal que participa, contemplar para el área auditada, la valoración del riesgo, el cumplimiento de los programas de mejora de la autoevaluación del control interno y la verificación del cumplimiento de los objetivos y metas institucionales.

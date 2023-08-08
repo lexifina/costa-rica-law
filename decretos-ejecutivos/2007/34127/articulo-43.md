@@ -1,1 +1,0 @@
-Artículo 43.—El Auditor Interno deberá de definir y mantener actualizado, en el “Universo Auditable” los órganos y entes sujetos al ámbito de acción de la Auditoría Interna, con fundamento en lo estipulado en el artículo 22, inciso a) de la “Ley General de Control Interno”.

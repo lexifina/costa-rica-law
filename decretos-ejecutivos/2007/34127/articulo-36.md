@@ -1,2 +1,0 @@
-Artículo 36. —Los funcionarios de la Auditoría General deberán cumplir y acatar las disposiciones e instrucciones que les imparten los jefes respectivos, relativas a su cargo, de conformidad con lo dispuesto en las “Normas para el Ejercicio de la Auditoría Interna en el Sector Público” y el “Manual de Normas Generales de Auditoría para el Sector Público” y demás manuales y disposiciones que resulten aplicables.
-(Así reformado por el artículo 3° del decreto ejecutivo N° 37176 del 30 de enero del 2012)
