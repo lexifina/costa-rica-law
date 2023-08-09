@@ -14,3 +14,4 @@ Actualización de las Tarifas de Honorarios de Peritos y Peritas, Ejecutores, Ho
 | --- | --- | --- |
 | 1 | 2022-01-01 | la propia norma |
 | 2 | 2022-09-28 | Circular 136 (2022-09-28) |
+| 3 | 2023-08-09 | Circular 116 (2023-08-09) |

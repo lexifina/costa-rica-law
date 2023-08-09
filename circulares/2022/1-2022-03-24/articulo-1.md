@@ -24,7 +24,6 @@ Sobre exceso | ?136 400 000,00 | ?34 100 000,00 | 0,1963% | ?660 000,00 | 0,2028
 Adicionales, por cada | ?5 000 000,00 | | 0,1339% | ?7 000,00 | 0,1383% | ?7 009,68 | ?7 100,00
 Nota: 1. La variación interanual del IPC a diciembre de 2021 es de 3.30%. El INEC actualizó la base del IPC en enero del 2021. Para evitar la ruptura en la continuidad de las series, el nivel de este indicador se "enlazó", de enero 2021 hacia atrás, con las variaciones registradas por el nivel general del IPC con las bases anteriores.
 2. Los honorarios establecidos para los Actuarios Matemáticos, cuando corresponda al Poder Judicial asumir el pago en las materias reguladas por el "Principio de Gratuidad", donde corresponde a las Administraciones Regionales, Administración del Ministerio Público o Administración de la Defensa Pública realizar la autorización de gastos, se fijarán en apego a lo señalado en la "Tarifa de Honorarios para Actuarios Matemáticos, Traductores en idiomas e Intérpretes de lenguaje de señas Costarricenses" en el Cuadro No 7. 3. En los casos que no aplica este principio y la parte del proceso judicial deba cubrir el pago de los honorarios, la Autoridad Judicial debe utilizar el cálculo de los honorarios según lo señalado en el Cuadro No 1. (referencia circular de la Dirección Ejecutiva No. 147-2019 del 16-12-219). Además, debe aplicarse lo dispuesto en la circular N 86-2019 del 28 de junio del 2019, emitida por esta Dirección Ejecutiva, donde se establece que cuando el pago de los honorarios corresponda a las partes dentro del proceso, la Autoridad Judicial deberá indicar en la resolución el monto que corresponde depositar contemplando los honorarios más el 13% del IVA. Además, debe solicitar a la parte señalar una dirección de correo electrónico, al cual el profesional que brinde el servicio debe remitir la factura electrónica. También, deben considerarse las aclaraciones contempladas en la Circular 246-2021 Secretaría General de la Corte, denominada "Reiteración de la circular número 256-2014, denominada Lineamientos para el seguimiento de los nombramientos y pago de honorarios, de las personas auxiliares de la justicia".
-| | | | | | | | | | | | | |
 CUADRO No. 2
 Tarifas de Honorarios para Ejecutores (Variación IPC: 3,30%)
 Rige a partir del 01 de enero de 2022
@@ -40,6 +39,7 @@ Los embargos que excedan de ese capital máximo más el porcentaje de Ley, cualq
 Nota: 1. La variación interanual del IPC a diciembre de 2022 es de 3,30%. El INEC actualizó la base del IPC en enero del 2021. Para evitar la ruptura en la continuidad de las series, el nivel de este indicador se "enlazó", de enero 2021 hacia atrás, con las variaciones registradas por el nivel general del IPC con las bases anteriores. 2. Debe considerarse lo dispuesto en la circular N 86-2019 del 28 de junio del 2019, emitida por esta Dirección Ejecutiva, donde se establece que cuando el pago de los honorarios corresponda a las partes dentro del proceso, la Autoridad Judicial deberá indicar en la resolución el monto que corresponde depositar contemplando los honorarios más el 13% del IVA. Además, debe solicitar a la parte señalar una dirección de correo electrónico, al cual el profesional que brinde el servicio debe remitir la factura electrónica.
 CUADRO No. 3
 Actualización de Tarifas de Honorarios de Peritos y Peritas en Trabajo Social y Psicología, para Valoraciones Psicosociales
+Familia
 Pericia | Tarifa actualizada
 Adopción individual | ¢120 832,50
 Adopción conjunta | ¢144 999,00
@@ -47,11 +47,18 @@ Utilidad y Necesidad | ¢120 832,50
 Suspensión Patria Potestad | ¢144 999,00
 Guarda Crianza y Educación | ¢144 999,00
 Régimen de Visitas | ¢120 832,50
-Divorcio judicial | ¢120 832,50
+Divorcio | ¢120 832,50
 Salvaguardia (Insania) Trabajo Social | ¢144 999,00
 Salvaguardia (Insania) Psicología | ¢84 582,75
 Depósito Judicial | ¢120 832,50
 Proceso especial de protección | ¢120 832,50
+Tutela individual | ¢120 832,50
+Tutela conjunta | ¢144 999,00
+Violencia doméstica |
+Pericia | Tarifa actualizada |
+Dictamen en violencia doméstica | ¢120 832,50 |
+| | |
+(Así reformado el cuadro anterior mediante circular N° 116 del 9 de agosto de 2023)
 [imagen]
 (Así reformada la table 3) anterior mediante circular N° 136-2022 del 28 de setiembre de 2022)
 CUADRO No. 4 |
@@ -145,3 +152,4 @@ Alojamiento * | ¢ 19 500,00 | ¢ 20 143,50 | ¢ 20 200,00
 Notas:
 1. La variación interanual del IPC a diciembre de 2021 es de 3,30%. El INEC actualizó la base del IPC en enero del 2021. Para evitar la ruptura en la continuidad de las series, el nivel de este indicador se "enlazó", de enero 2021 hacia atrás, con las variaciones registradas por el nivel general del IPC con las bases anteriores.
 2. * Monto máximo por alojamiento: La tarifa para alojamiento varía según la zona, por lo que se debe revisar con la tarifa vigente y aprobada por la Contraloría General de la República, si corresponde a una tarifa más baja, debe ser esa la que se brinde de ayuda y en los casos que supere los ¢20.200,00, este será el tope máximo a brindar como ayuda económica.
+| | | | | | | | | | | | | | |
