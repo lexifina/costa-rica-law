@@ -21,3 +21,4 @@ Manual de Políticas y Procedimientos del Departamento Administrativo y Financie
 | 6 | 2018-10-15 | Acuerdo 0 (2018-10-15) |
 | 7 | 2019-02-14 | Acuerdo 0 (2019-02-14) |
 | 8 | 2021-07-01 | Acuerdo 0 (2021-07-01) |
+| 9 | 2023-08-09 | Reglamento 78 (2023-08-09) |
