@@ -1,0 +1,1 @@
+Artículo 27º. Al llevar a cabo el traspaso se realizará una resolución administrativa u oficio, donde quede en evidencia el traspaso correspondiente, de este documento se le brindará una copia a la persona que se traspasó el derecho y otra copia se guardará en el archivo municipal.

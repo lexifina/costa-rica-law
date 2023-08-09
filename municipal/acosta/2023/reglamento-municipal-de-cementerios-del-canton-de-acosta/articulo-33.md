@@ -1,0 +1,1 @@
+Artículo 33º. Para que opere la pérdida del derecho funerario por la declaratoria de ruina o abandono de la bóveda, el dueño del derecho deberá ser notificado en una ocasión, para lo cual se deberá registrar en el titulo funerario el correo electrónico y teléfonos o medio para notificaciones.

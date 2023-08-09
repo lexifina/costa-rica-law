@@ -1,0 +1,1 @@
+Artículo 42º. Cualquier daño durante la construcción, reparación, enchape o aplicación de pintura que se cause a las bóvedas adyacentes, el dueño del derecho correspondiente indemnizará o reparará a satisfacción del dueño de la bóveda afectada.

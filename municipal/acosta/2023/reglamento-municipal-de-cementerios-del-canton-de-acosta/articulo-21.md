@@ -1,0 +1,1 @@
+Artículo 21º. El titular del derecho funerario sobre una bóveda o parcela, podrá en cualquier momento revocar la designación del beneficiario actual y nombrar a otra persona, siempre y cuando dichos beneficiarios hayan sido designados por él mismo.

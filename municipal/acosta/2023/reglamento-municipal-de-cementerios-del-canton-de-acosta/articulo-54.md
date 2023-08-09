@@ -1,0 +1,1 @@
+Artículo 54º. Las inhumaciones se llevarán a cabo entre las siete horas y las diecisiete horas y únicamente serán realizadas por el panteonero del cementerio o funcionarios del Poder Judicial, para inhumaciones fuera de este horario se requerirá autorización previa de la Administración del cementerio.

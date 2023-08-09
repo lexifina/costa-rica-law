@@ -1,0 +1,1 @@
+Artículo 11º. La administración de cementerios deberá mantener una base de datos digital actualizada, en la cual existirá información referente a cada bóveda y sus titulares. Además, esta información estará respaldada en un archivo analógico por carpetas para cada bóveda.

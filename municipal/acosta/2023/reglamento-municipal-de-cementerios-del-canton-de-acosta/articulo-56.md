@@ -1,0 +1,1 @@
+Artículo 56º. Las inhumaciones en días inhábiles (sábado-domingo), la administración del cementerio deberá garantizar la efectiva prestación del servicio. Se deberá cancelar el servicio de inhumación mediante medios electrónicos de pago que la administración habilite.

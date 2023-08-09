@@ -1,0 +1,1 @@
+Artículo 13º. La adquisición de un derecho funerario se realizará cuando existe una necesidad inmediata de personas residentes en el cantón de Acosta para dar sepultura a un familiar recién fallecido o bien disponer de sus restos óseos en un osario luego de efectuada la exhumación.

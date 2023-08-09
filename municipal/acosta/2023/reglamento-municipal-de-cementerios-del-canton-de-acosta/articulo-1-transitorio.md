@@ -1,0 +1,1 @@
+TRANSITORIO I. Las personas acreedoras de derecho funerario, una vez entrada en vigencia los presentes del cementerio para la firma reglamentos tendrán el plazo de un año para presentarse ante el departamento respectiva del Título de Derecho Funerario. De no formalizar el derecho en el plazo establecido, la Municipalidad dispondrá de los derechos, bóvedas o nichos respectivos.

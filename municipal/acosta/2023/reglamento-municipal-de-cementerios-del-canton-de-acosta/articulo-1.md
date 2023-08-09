@@ -1,0 +1,15 @@
+MUNICIPALIDAD ACOSTA
+REGLAMENTO MUNICIPAL DE CEMENTERIOS
+DEL CANTÓN DE ACOSTA
+Informa que el Concejo de la Municipalidad de Acosta, en acta de la Sesión ordinaria 17-2023 celebrada el día 28 de abril del 2023 mediante cuerdo número 15.
+Visto el dictamen de la comisión de asuntos jurídicos. Este concejo municipal acoge y acuerda aprobar el reglamento de cementerios y que una vez publicado en La Gaceta se realice la familiarización del mismo. El Reglamento Municipal de cementerios del cantón de Acosta lo puede accesar en el link: https://www.acosta.go.cr/index.php/component/ phocadownload/category/47-reglamentos?download=626:reg lamento-de-cementerios-del-canton-de-acosta.
+(Nota de Sinalevi: El presente reglamento se extrajo del sitio del web de la Municipalidad de Acosta y se transcribe a continuación:)
+REGLAMENTO MUNICIPAL DE CEMENTERIOS DEL CANTÓN DE ACOSTA
+Considerando:
+I- El artículo 169 de la Constitución Política y el literal 3 del Código Municipal, establecen que compete a la Administración Municipal velar por los intereses y servicios locales.
+II- Que este servicio público se encuentra regulado en primer término por la Ley General de Salud, Ley N° 5395 del 30 de octubre de 1973, la Ley Orgánica del Ministerio de Salud, Ley N° 5412 de 8 de noviembre de 1973 y el Reglamento General de Cementerios, Decreto Ejecutivo N° 32833-S, publicado en La Gaceta N° 244 del diecinueve de diciembre de 2005, sin embargo es obligación de los gobiernos locales de conformidad con a la potestad reglamentaria local, normar dicha actividad con el fin de ordenar la asignación de los derechos sepulcrales y las obligaciones atinentes al pago y manutención de dicho servicio.
+III- Que de conformidad al artículo 261 del Código Civil y al artículo 55 del Reglamento General de Cementerios todos los cementerios nacionales se considerarán patrimonio público, sujeto a sus leyes y reglamentos.
+IV- Así, las cosas el uso que le hagan los administrados a este bien de dominio público, como lo es de una parcela, nicho o tumba en alguno de los cementerios municipales lo que confiere a su titular es un derecho real administrativo de goce y no un derecho personalísimo.
+CAPÍTULO I
+DISPOSICIONES GENERALES.
+Artículo 1º Finalidad. El presente reglamento tiene como fin el establecimiento de las normas que regularán la administración, funcionamiento y organización de los cementerios municipales existentes y los que la Municipalidad pueda construir en un futuro en el cantón de Acosta. Sus normas serán de acatamiento obligatorio para los titulares de derechos funerarios, funcionarios, servidores municipales y para personas pertenecientes a la Junta Administradora de cada uno de los cementerios Municipales. De igual manera regulará las relaciones entre la Administración Municipal en lo que atañe al uso de los mismos. Los cementerios particulares que se quisieran construir, tendrán que apegarse al Reglamento General de Cementerios N° 32833, los requisitos del Ministerio de Salud y cualesquiera otras instituciones involucradas.

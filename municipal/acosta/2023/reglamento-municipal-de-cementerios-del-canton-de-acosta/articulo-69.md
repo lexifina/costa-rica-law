@@ -1,0 +1,1 @@
+Artículo 69º. Solo se autorizará la exhumación y traslado de un cadáver de una bóveda a otra, cuando la bóveda donde están inhumados no pertenezca al difunto o a su familia y la bóveda a trasladar sea de un cónyuge, hijos, tíos u otro familiar.

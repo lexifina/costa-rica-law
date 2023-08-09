@@ -1,0 +1,1 @@
+Artículo 14º. La adquisición de un derecho funerario implica la obligatoriedad de construir la bóveda, en un plazo no mayor de dos años de haber adquirido el derecho, en caso contrario, automáticamente el departamento de cementerio procederá a revocar el derecho funerario.

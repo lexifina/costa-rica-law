@@ -1,0 +1,1 @@
+Artículo 70º. Las exhumaciones se realizarán en los meses de enero, febrero, marzo y abril de cada año, solamente por fuerza mayor se realizarán exhumaciones en otros meses, esto debido a la acumulación de humedad en los nichos en época lluviosa.

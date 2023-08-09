@@ -1,0 +1,1 @@
+Artículo 32º. La bóveda será declarada en ruina y/o abandono por el departamento de cementerios, cuando haya transcurrido un trimestre después de la notificación al dueño del derecho o a su familiar directo (en caso de que el dueño se encuentre fallecido) y no se hayan realizado las reparaciones necesarias.

@@ -1,0 +1,1 @@
+Artículo 61º. La administración del cementerio deberá tener un libro de actas sellado en el cual se llevará registro de las inhumaciones, con fecha, hora, nombre del difunto, número de bóveda y nombre del propietario de la bóveda, en éste debe quedar consignadas la firma de al menos un testigo del acto.

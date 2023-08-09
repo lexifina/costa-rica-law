@@ -1,0 +1,1 @@
+Artículo 22º. La administración de cementerios únicamente recibirá aquellos traspasos que consten en escritura pública de donación. Los costos que demande el traspaso correrán por parte del interesado.

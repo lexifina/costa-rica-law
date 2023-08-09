@@ -1,0 +1,1 @@
+Artículo 5º. Los bienes existentes que se adquieran y los recursos económicos que ingresen a la Municipalidad de Acosta por concepto de derechos o cuotas de mantenimiento de los cementerios, serán destinados exclusivamente a su mantenimiento, mejoramiento e inversión en este servicio.

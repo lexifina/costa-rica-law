@@ -1,0 +1,1 @@
+Artículo 29º. En caso de deterioro, sustracción o pérdida de un título de derecho funerario, se expedirá un duplicado a favor de su mismo titular de conformidad con los registros de Administración de Cementerio Municipal de Acosta.

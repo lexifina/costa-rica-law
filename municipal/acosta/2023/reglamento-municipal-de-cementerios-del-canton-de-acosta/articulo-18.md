@@ -1,0 +1,1 @@
+Artículo 18º. Vencido el plazo de gracia de un trimestre sin operarse la prórroga, se procederá a la exhumación de los restos que contenga la bóveda y su traslado al osario. Durante el término de gracia, no se autorizará ninguna inhumación sin previo pago de la tasa pendiente.

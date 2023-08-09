@@ -1,0 +1,1 @@
+Artículo 16º. El derecho funerario tendrá una duración de cinco años prorrogables indefinidamente, más un trimestre de gracia. Esta prórroga operará automáticamente con el pago del monto por mantenimiento para el primer trimestre del año del nuevo plazo.

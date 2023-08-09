@@ -1,0 +1,1 @@
+Artículo 46º. En los derechos sencillos o dobles, el propietario podrá realizar inhumaciones directamente en tierra, pudiendo después de tres años construir bóvedas sobre ese derecho las cuales deben apegarse a las normas estipuladas en este reglamento.
