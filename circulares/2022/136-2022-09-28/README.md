@@ -13,3 +13,4 @@ Modificación de la circular Nº 1-2022, sobre la Actualización de las tarifas 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-09-28 | la propia norma |
+| 2 | 2023-08-09 | Circular 116 (2023-08-09) |
