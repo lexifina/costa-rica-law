@@ -1,1 +1,0 @@
-Artículo 24.—La Sección de Contabilidad y Finanzas es la encargada de realizar la clasificación y registro de los bienes según el departamento al que se le asigne y la clasificación existente, conforme con las Normas de Contabilidad para el Sector Público.

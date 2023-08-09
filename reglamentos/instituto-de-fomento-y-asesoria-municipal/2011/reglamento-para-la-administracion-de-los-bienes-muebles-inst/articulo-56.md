@@ -1,1 +1,0 @@
-Artículo 56.—De considerarse que el activo dañado no puede ser reparado, la Sección de Proveeduría enviará nota a la Unidad solicitante, con copia a las Secciones de Servicios Generales y Contabilidad y Finanzas, para los respectivos ajustes.

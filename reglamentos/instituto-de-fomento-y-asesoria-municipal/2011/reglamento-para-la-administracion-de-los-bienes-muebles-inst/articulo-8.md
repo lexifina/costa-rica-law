@@ -1,1 +1,0 @@
-Artículo 8º—La Dirección de Administración Interna, confeccionará un formulario de salida de activos institucionales, el cual deberá ser tramitado ante la Dirección de Administración Interna, con la autorización de la jefatura inmediata.

@@ -1,1 +1,0 @@
-Artículo 5º—Todo funcionario tiene derecho a que se le suministre por tiempo indefinido, en buenas condiciones de funcionamiento y conservación, los activos necesarios para el cumplimiento de sus labores. El empleado asume la responsabilidad de hacer un uso adecuado de esos bienes y velar porque se mantengan en buen estado.

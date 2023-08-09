@@ -1,1 +1,0 @@
-Artículo 39.—Para proceder al traslado de un activo de una dependencia a otra se hará mediante el formulario “Traslado de Activo”, enviando el original a la Sección de Servicios Generales y copia a la Sección de Proveeduría y a la Sección de Contabilidad y Finanzas.

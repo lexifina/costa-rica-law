@@ -1,1 +1,0 @@
-Artículo 44.—Cuando alguna Unidad Administrativa traslada un activo a otro usuario o, en su caso a la bodega en desuso por estar descompuesto y no tener reparación o cuando ya no lo requiera, debe obtener la firma de quien lo recibe.

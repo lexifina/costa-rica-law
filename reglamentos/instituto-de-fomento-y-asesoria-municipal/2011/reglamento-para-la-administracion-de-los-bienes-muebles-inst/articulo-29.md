@@ -1,1 +1,0 @@
-Artículo 29.—En caso de robo la persona a quien está asignado el activo, será la encargada de presentar la denuncia ante los órganos externos y presentar los documentos correspondientes para que la Sección de Servicios Generales se encargue de darle seguimiento

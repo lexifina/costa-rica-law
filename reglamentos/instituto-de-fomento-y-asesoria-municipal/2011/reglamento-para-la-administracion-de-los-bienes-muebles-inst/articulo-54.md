@@ -1,1 +1,0 @@
-Artículo 54.—Cuando los bienes deban salir temporalmente de las instalaciones del IFAM para ser objeto de reparación, la Sección de Proveeduría coordinará la respectiva salida, para lo cual deberá llenar el formulario “Salida de Activo para reparación”.

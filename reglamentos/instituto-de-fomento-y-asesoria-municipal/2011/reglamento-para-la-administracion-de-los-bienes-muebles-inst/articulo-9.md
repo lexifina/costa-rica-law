@@ -1,1 +1,0 @@
-Artículo 9º—En los casos en que la Jefatura y la Dirección Ejecutiva, autoricen la salida de un equipo y el funcionario fue incapacitado, durante el período en que se autorizó la salida del equipo, deberá de manera expedita hacer llegar el equipo a su superior inmediato.

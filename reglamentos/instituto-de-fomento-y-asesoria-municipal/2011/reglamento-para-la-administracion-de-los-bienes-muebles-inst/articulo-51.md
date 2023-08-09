@@ -1,1 +1,0 @@
-Artículo 51.—Sanciones aplicables. Las jefaturas, usuarios, funcionarios de la Proveeduría y servidores en general, que incumplan las obligaciones y deberes contenidos en este reglamento, serán sancionados de acuerdo con las disposiciones disciplinarias aplicables, sin perjuicio de la responsabilidad civil o penal que pueda derivarse.

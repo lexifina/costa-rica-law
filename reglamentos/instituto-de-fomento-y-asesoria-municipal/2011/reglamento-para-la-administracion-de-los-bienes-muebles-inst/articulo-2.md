@@ -1,1 +1,0 @@
-Artículo 2: Alcance. Las disposiciones de este Reglamento son de acatamiento obligatorio para todos los funcionarios del Instituto de Fomento y Asesoría Municipal-IFAM, así como para aquellos que se encuentren comprendidos en los supuestos de este Reglamento.
