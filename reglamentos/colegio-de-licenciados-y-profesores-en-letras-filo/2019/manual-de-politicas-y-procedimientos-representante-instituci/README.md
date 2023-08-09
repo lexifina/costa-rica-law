@@ -15,3 +15,4 @@ Manual de Políticas y Procedimientos (Representante Institucional de Colypro)
 | --- | --- | --- |
 | 1 | 2019-08-29 | la propia norma |
 | 2 | 2020-10-03 | Reglamento 0 (2020-10-03) |
+| 3 | 2023-08-09 | Reglamento 78 (2023-08-09) |
