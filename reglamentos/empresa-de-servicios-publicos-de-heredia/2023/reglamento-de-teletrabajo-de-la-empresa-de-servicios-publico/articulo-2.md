@@ -1,0 +1,2 @@
+Artículo 2°-Alcance. El presente reglamento es de acatamiento obligatorio para todos los trabajadores que realicen sus labores en esta modalidad, de común acuerdo con la ESPH. El presente reglamento se fundamenta en la Ley para Regular el Teletrabajo, Ley 9738 y su reglamento Decreto Ejecutivo N° 42083-MP-MTSS-MIDEPLAN-MICITT.
+Para efectos de este reglamento, cuando se hace alusión a puesto, condición de un trabajador, director, superior inmediato, debe entenderse que se hace sin distinción o discriminación de género.

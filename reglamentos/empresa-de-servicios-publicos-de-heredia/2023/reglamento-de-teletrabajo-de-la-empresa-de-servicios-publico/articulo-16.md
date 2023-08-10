@@ -1,0 +1,3 @@
+Artículo 16.-Obligaciones de los Directores, Líderes (Superior Inmediato). Los Directores, Líderes o superior inmediato de la persona-teletrabajadora tendrá las siguientes obligaciones:
+a. En todos los procesos y subprocesos donde exista un trabajador con el perfil de persona-teletrabajadora y puesto-teletrabajable, este incentivará para que se lleve a cabo el teletrabajo, en su negocio o proceso en aquellos casos en que ello no afecte el rendimiento del trabajador y las condiciones del servicio brindado.
+b. Asumir las atribuciones y obligaciones del superior inmediato en caso de ausencia de esta, las obligaciones y atribuciones para con la persona-teletrabajadora.
