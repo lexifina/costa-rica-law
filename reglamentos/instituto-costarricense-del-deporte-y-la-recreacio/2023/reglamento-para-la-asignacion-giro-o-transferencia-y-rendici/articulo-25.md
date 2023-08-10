@@ -1,0 +1,2 @@
+Artículo 25° -Recategorización de los Sujetos privados.
+El cumplimiento o no cumplimiento de los objetivos asociados a la finalidad del Presupuesto aprobado, facultará a la Autoridad Competente a la recategorización del sujeto privado, asignándole una nueva categoría o sub-fase según el avance en el cumplimiento en la evaluación por parte de la Autoridad Competente. Para la categorización del sujeto privado se utilizarán los instrumentos y metodología previamente diseñados por el ICODER y publicados en el Manual de procedimientos del presente reglamento

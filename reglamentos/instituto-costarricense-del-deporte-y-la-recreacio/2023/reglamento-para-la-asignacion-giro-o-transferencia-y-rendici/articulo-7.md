@@ -1,0 +1,3 @@
+Artículo 7º-Proporcionalidad y programación financiera.
+En la formulación del flujo de efectivo proyectado para la preparación del Presupuesto, el sujeto privado deberá ser consistente con la planificación de las actividades y la organización de los recursos para cumplir sus metas y objetivos conforme a la finalidad que da origen al presentado.
+El giro de las transferencias de los beneficios patrimoniales sin contraprestación o gratuitos, asignados a los sujetos privados, tomará en cuenta el flujo de efectivo proyectado para análisis del ICODER y sujeto a la disponibilidad de ingresos efectivos del ICODER.
