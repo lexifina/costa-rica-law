@@ -1,0 +1,1 @@
+ARTÍCULO 24- La Municipalidad de Matina garantizará que la inscripción de las donaciones de las propiedades se realice en un plazo máximo de tres años, contado a partir de la entrada en vigencia de esta ley. Sin embargo, el vencimiento de este plazo no imposibilita a la Municipalidad de Matina a ejecutar lo establecido en esta ley.

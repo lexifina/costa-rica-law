@@ -1,0 +1,1 @@
+ARTÍCULO 18- Cada persona beneficiaria deberá contar con un estudio técnico realizado por un profesional en trabajo social de la Municipalidad de Matina. Dicho estudio no podrá superar los dos años de emitido y deberá acreditar que conforma un núcleo familiar residente en el lote a donar.
