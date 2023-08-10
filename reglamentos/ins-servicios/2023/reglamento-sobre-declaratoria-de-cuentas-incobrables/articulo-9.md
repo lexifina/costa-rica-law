@@ -1,0 +1,12 @@
+Artículo 9°- Expediente: Todo proceso de cobro, previo a declarar una cuenta incobrable, debe contar con un expediente de cobro físico o digital, confeccionado por el responsable gestión de cobro, el cual, además debe estar ordenado de manera cronológica, actualizado y foliado, deberá contener de forma clara y legible, toda la documentación de respaldo.
+De todo lo actuado se dejará constancia en el expediente, se incluirá lo siguiente cuando proceda:
+Las gestiones de cobro, y cuando proceda la justificación de que por la escasa cuantía o por criterio legal de reconsideración resultara más oneroso para la institución acudir a la vía judicial para la recuperación del monto adeudado.
+Estudios de que el obligado moroso no cuenta con sueldo o el mismo es inembargable de conformidad con el artículo 172 del Código de Trabajo, no cuenta con ingresos adicionales, cuentas bancarias, valores de ningún tipo, derechos patrimoniales ni bienes muebles o inmuebles inscritos susceptibles de embargo, o se demuestre la quiebra o insolvencia de éste.
+El fallecimiento del obligado, cuando la sucesión, se encuentre en los supuestos del inciso anterior, o no posea bienes o valores de ningún tipo susceptibles de embargo. Si ocurre que la persona jurídica obligada sea liquidada o disuelta judicialmente y no existieran más bienes a los cuales dirigirse.
+Intentos de comunicación a los medios de localización, documentando la imposibilidad comprobada para localizar y notificar al obligado, codeudores, al fiador o el avalista y se haya realizado al menos dos intentos de localización.
+Aquellas obligaciones que hayan sido declaradas prescritas, improcedentes o caducas en vía judicial.
+Aquellas obligaciones en que exista criterio técnico del asesor legal se encuentren prescritas.
+El valor fiscal de los bienes muebles o inmuebles inscritos susceptibles de embargo, sean inferiores al gasto que produciría a la Administración la gestión de cobro judicial; o bien, que cuando los bienes muebles o inmuebles posean gravámenes o condiciones previas que por sus características y condición no resulta favorable para la administración la recuperación de las sumas adeudadas.
+El visto bueno otorgado por la gerencia general.
+La resolución de declaratoria de incobrabilidad.
+Para la obtención de dicha información el responsable de la gestión de cobro deberá apoyarse en las Gerencias de las unidades involucradas, el área legal o cualquier otro colaborador de INS Servicios.
