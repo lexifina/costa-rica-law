@@ -1,0 +1,2 @@
+Artículo 33.- Derogatorias. El presente reglamento interno deroga el “Reglamento Interno para la Tramitación de los Procedimientos de Contratación Administrativa de la Junta Administrativa de la Imprenta Nacional”, y sus reformas, aprobado por la Junta Administrativa de la Imprenta Nacional mediante Acuerdo Firme 7315-03-2019, adoptado en la Sesión Ordinaria N° 07 del 19 de marzo del 2019, y publicado en el Alcance N° 77 a La Gaceta N° 65 del martes 02 de abril del 2019.
+(Corregido mediante Fe de Erratas y publicada en La Gaceta N° 197 del 25 de octubre de 2023, página N° 2)

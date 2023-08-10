@@ -1,0 +1,3 @@
+CAPÍTULO III
+De los Procesos de Contratación pública
+Artículo 14.-De la decisión inicial. La decisión administrativa que da inicio al procedimiento de contratación será emitida por la jefatura de la unidad solicitante, que funge como jefatura de programa. Las decisiones iniciales que emitan las unidades solicitantes deberán ajustarse a los requerimientos del artículo 37 de la LGCP y el artículo 86 del RLGCP. La Dirección General, el Auditor Interno, los directores de Producción, Comercialización y Administrativo-Financiero, según donde se ubique la unidad solicitante, serán los responsables de autorizar la decisión inicial.

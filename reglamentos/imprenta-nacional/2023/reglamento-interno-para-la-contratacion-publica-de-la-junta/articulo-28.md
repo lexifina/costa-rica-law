@@ -1,0 +1,2 @@
+Artículo 28.- Causales de sanción a funcionarios públicos y prescripción. Las causales objetos de sanción serán aquellas conductas estipuladas en el artículo 125 de la LGCP, sin eximir de la aplicación de otras sanciones producto de su conducta que pudieran ser conexas con el Reglamento Autónomo de Organización y Servicios de la Imprenta Nacional, el Código de Trabajo, y cualquier otra normativa vigente que le resulte aplicable del ordenamiento jurídico.
+La responsabilidad de los funcionarios prescribirá en un plazo de cinco años, contado a partir del acaecimiento del hecho.

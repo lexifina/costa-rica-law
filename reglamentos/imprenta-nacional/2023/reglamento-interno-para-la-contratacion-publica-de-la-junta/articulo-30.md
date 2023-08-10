@@ -1,0 +1,4 @@
+Artículo 30.- Procedimiento para imponer sanciones a funcionarios. Las sanciones administrativas podrán ser impuestas por la entidad que promovió el procedimiento de contratación pública o por la Contraloría General de la República, que requerirá, de forma vinculante, a la entidad respectiva, la aplicación de la sanción que determine por acto firme.
+Entendiendo que la entidad que promovió el procedimiento, para efectos sancionatorios es el Ministerio de Gobernación y Policía.
+Las faltas en que incurran los funcionarios se tramitarán conforme al procedimiento administrativo ordinario señalado en el Libro Segundo de la Ley General de la Administración Pública, y conforme Reglamentos Internos de la Institución.
+En caso de que el procedimiento lo tramite la Contraloría General de la República, aplicará su propia normativa.

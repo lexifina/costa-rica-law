@@ -1,0 +1,1 @@
+Artículo 19.-Aprobaciones de la solicitud de contratación. Una vez que la Proveeduría Institucional da su aprobación, se trasladará al Encargado de Presupuesto para que valide el contenido presupuestario, y por último al Director del Área respectiva, quien será el responsable de aprobar todas las condiciones ahí contempladas.

@@ -1,0 +1,1 @@
+Artículo 17.- Solicitud de contratación. Las solicitudes de contratación (disponibles en SICOP) deberán estar acompañadas de la Decisión Inicial, debidamente autorizada por el director de área que corresponda, considerando lo dispuesto por el presente reglamento, la LGCP y el RLGCP, utilizando el formulario que para estos efectos tiene el sistema digital unificado.

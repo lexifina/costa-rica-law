@@ -1,0 +1,1 @@
+Artículo 20.-Distribución de trámites dentro de la Proveeduría Institucional. Completadas todas las aprobaciones, el elaborador de la solicitud de contratación, será el responsable de trasladar la solicitud a "Distribución de Trámites" para que el encargado asigne el trámite a una analista quién iniciará el proceso de contratación.
