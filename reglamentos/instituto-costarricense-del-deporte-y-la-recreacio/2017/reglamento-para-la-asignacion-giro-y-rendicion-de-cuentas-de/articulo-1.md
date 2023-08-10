@@ -1,5 +1,7 @@
 INSTITUTO COSTARRICENSE DEL DEPORTE Y LA RECREACIÓN
 Consejo Nacional del Deporte y la Recreación
+(Nota de Sinalevi: Mediante el artículo 33 del Reglamento para la asignación, giro o transferencia y rendición de cuentas de los beneficios patrimoniales gratuitos o sin contraprestación otorgados a sujetos privados consignados en el presupuesto del Instituto Costarricense del Deporte y la Recreación, publicado en el Alcance Digital N° 150 a La Gaceta N° 145 del 10 de agosto del 2023, se acordó lo siguiente: "Deróguese toda referencia a sujetos privados del Reglamento aprobado por el Consejo Nacional del Deporte y la Recreación y publicado en el Gaceta el 29 de junio 2017, para los beneficios patrimoniales gratuitos y sin contraprestación a Sujetos Públicos y Privados consignados en el presupuesto del ICODER, por cuanto este nuevo reglamento va a suplir a dicha norma en todo lo correspondiente a este tema.
+En lo que respecta a los Sujetos Públicos los seguirá cobijando dicha normativa hasta tanto no se cuente con una que regule a dichos entes")
 Sesión Ordinaria 1017-2017
 15 de junio del 2017
 Acuerdo N°1. El Consejo Nacional del Deporte y la Recreación acuerda aprobar el Reglamento para la asignación, giro y rendición de cuentas de las Transferencias de Recursos Financieros otorgados a Sujetos Públicos y Privados consignados en el Presupuesto del Instituto Costarricense del Deporte y la Recreación. Asimismo, autoriza al Departamento Financiero Contable a realizar su publicación en el Diario Oficial La Gaceta.

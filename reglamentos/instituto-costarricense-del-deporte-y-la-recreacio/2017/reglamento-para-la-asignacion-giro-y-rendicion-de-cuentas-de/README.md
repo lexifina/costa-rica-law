@@ -15,3 +15,4 @@ Reglamento para la asignación, giro y rendición de cuentas de las transferenci
 | --- | --- | --- |
 | 1 | 2017-06-29 | la propia norma |
 | 2 | 2021-04-23 | Reglamento 1138 (2021-04-23) |
+| 3 | 2023-08-10 | Reglamento 0 (2023-08-10) |
