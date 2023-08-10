@@ -14,3 +14,4 @@ Reglamento de funcionamiento del Centro Nacional de Control de Electricidad (CEN
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-06-01 | la propia norma |
+| 2 | 2023-08-10 | Reglamento 0 (2023-08-10) |

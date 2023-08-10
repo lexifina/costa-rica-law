@@ -1,8 +1,8 @@
-CAPI?TULO II
-De la organización
+CAPÍTULO II
+Jerarquía, Roles y Responsabilidades
 Artículo 6º-Consejo Directivo. El Consejo Directivo es el órgano colegiado de máxima jerarquía del ICE, sus competencias para efectos del presente reglamento serán las siguientes:
-a) Designar la unidad administrativa del ICE que ejercerá las funciones de operador del SEN.
-b) Ratificar el nombramiento del Director de la unidad administrativa designada como operador del SEN.
-c) Velar porque la unidad administrativa designada como operador del SEN, ejecute sus funciones en cumplimiento de los principios de eficiencia económica, independencia técnica, imparcialidad, transparencia, sostenibilidad, eficacia y calidad.
-d) Solicitar a la Gerencia General informes trimestrales relacionados con la operación del SEN que realiza el CENCE como unidad administrativa designada para realizar la operación del SEN, que incluyan indicadores sobre la optimización del despacho del SEN y la participación de Costa Rica en las transacciones regionales.
-e) Cualquier otra función que indique el Ordenamiento Jurídico, así como aquellas que se determinen por autorregulación.
+1) Designar la dependencia técnica administrativa del ICE que ejercerá las funciones de Operador del Sistema y Operador del Mercado del SEN de acuerdo con la normativa nacional y regional.
+2) Ratificar el nombramiento del titular responsable de la dependencia técnicaadministrativa designada como Operador del Sistema y Operador del Mercado del SEN, en alineamiento al RAO.
+3) Solicitar a la Gerencia General los informes trimestrales relacionados con la operación del SEN que realiza la DOCSE como dependencia técnica administrativa designada para realizar la Operación del Sistema y Operación del Mercado.
+4) Aprobar el presente Reglamento y sus futuras modificaciones.
+5) Cualquier otra función que indique el Ordenamiento Jurídico, así como aquellas que se determinen por autorregulación.

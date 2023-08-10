@@ -1,3 +1,2 @@
-CAPI?TULO IX
-Resolución de conflictos
-Artículo 28.-Gestión y resolución de conflictos de interés. El CENCE deberá aplicar la Política sobre conflictos de interés Grupo ICE y cualquier otra normativa interna vigente en la materia, para la gestión y resolución de aquellos conflictos de interés de los funcionarios y trabajadores en el desempeño de sus funciones.
+Artículo 28º Revisión y Actualización: La División Operación y Control del Sistema Eléctrico coordinará la revisión y actualización del presente Reglamento, con una periodicidad anual y planteará las modificaciones que estime pertinentes.
+Este documento actualiza el Reglamento de funcionamiento del Centro Nacional de Control de Electricidad (CENCE) como operador del Sistema Eléctrico Nacional, aprobado por este Consejo Directivo en el Artículo 1, Capítulo V de la Sesión 6447 celebrada el 18 de mayo de 2021, código del documento SE.6447.1.5.2021, versión 1.

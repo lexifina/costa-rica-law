@@ -1,1 +1,0 @@
-Artículo 31.-Disposiciones no limitativas. Las disposiciones de este reglamento no excluyen la aplicación de la regulación regional y nacional que no ha sido expresamente desarrollada, las que deben ser acatadas y aplicadas de conformidad con la buena práctica regulatoria y de Operación de Mercado y Sistema.

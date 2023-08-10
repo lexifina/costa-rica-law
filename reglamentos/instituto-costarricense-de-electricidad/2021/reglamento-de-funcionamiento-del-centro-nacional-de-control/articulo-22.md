@@ -1,2 +1,2 @@
-Artículo 22.-Obligación de suministro de información. El CENCE en su función de operador del SEN será el responsable de suministrar toda la información técnica y comercial que es requerida por el RMER y la regulación nacional a los entes establecidos y a los agentes interesados.
-La información que suministre deberá ser completa, clara y veraz.
+Artículo 22º-Conservación de registros y documentos: La DOCSE deberá conservar los registros de información y documentos independientemente del formato en que se encuentre considerando la Ley 7202 del Sistema Nacional de Archivos.
+La DOCSE es responsable de solicitar a los participantes del SEN y agentes del MER la información necesaria para mantener actualizada la Base de Datos Nacional, Regional, Comercial y Operativa según lo establecido en la regulación nacional y regional.

@@ -1,1 +1,1 @@
-Artículo 2º-Principios rectores. Los principios rectores que rigen al CENCE son: eficiencia económica, independencia técnica, imparcialidad, transparencia, sostenibilidad, eficacia y calidad.
+Artículo 2º-Principios rectores. Los principios rectores que rigen la DOCSE son: independencia técnica, imparcialidad, transparencia, según lo indicado en el Artículo 10, del Reglamento de Armonización Regulatoria entre el Mercado Eléctrico Nacional y el Mercado Eléctrico de América Central.

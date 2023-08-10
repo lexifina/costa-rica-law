@@ -1,4 +1,3 @@
-CAPI?TULO VI
-De los trabajadores
-Artículo 12.-Deberes: Los funcionarios y trabajadores del CENCE deberán desempeñar sus funciones en apego a la ley, políticas, normas y procedimientos propios de la Operación del Sistema Eléctrico Nacional y del Mercado Eléctrico Regional, de manera técnica, independiente, imparcial, objetiva y transparente. Los funcionarios y trabajadores del CENCE deberán evitar toda clase de relaciones y actos inconvenientes con personas que puedan influir o amenazar la capacidad real o potencial de su actuar; y, por ende, deberán actuar de forma objetiva, imparcial y transparente con independencia técnica. Deberán abstenerse de participar en cualquier actividad pública, familiar o privada en general, de la que pueda derivar un eventual conflicto de intereses, por comprometer su criterio o generar dudas sobre su imparcialidad.
-Los funcionarios y trabajadores del CENCE en su función de operador del SEN no deberán involucrarse en la definición de la estrategia de los Negocios de Electricidad del ICE, ni de ningún participante del SEN o agente del MER.
+CAPÍTULO III
+De la organización y las funciones de la DOCSE
+Artículo 12º-Estructura organizativa. La estructura organizacional de la DOCSE se encuentra definida de acuerdo con la normativa interna en materia de organización y alineada con las funciones y responsabilidades determinadas en la normativa nacional y regional.

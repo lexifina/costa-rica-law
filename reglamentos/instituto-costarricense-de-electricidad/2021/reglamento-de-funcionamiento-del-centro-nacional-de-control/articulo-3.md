@@ -1,1 +1,1 @@
-Artículo 3º-Alcance. El presente reglamento resulta de acatamiento obligatorio para la Gerencia General, la Gerencia de Electricidad, y el CENCE.
+Artículo 3º-Alcance. El presente reglamento resulta de acatamiento obligatorio para la Gerencia General, la Gerencia de Electricidad y sus dependencias incluida la DOCSE y su relación con las partes interesadas en la operación del SEN.

@@ -1,2 +1,2 @@
-Artículo 29.-Resolución de conflictos en la aplicación de normativa. En caso de presentarse conflictos entre el CENCE y los participantes del SEN, estos pueden acudir en sede administrativa ante el ICE de conformidad con la Ley General de la Administración Pública, y de no solucionarse, pueden plantear el conflicto ante la ARESEP en los términos de la Ley 7593.
-La Gerencia de Electricidad deberá abstenerse de resolver en alzada cualquier asunto relacionado con la ejecución de las funciones del CENCE como operador del SEN, que pueda generar un conflicto de interés que afecte en mayor o menor medida la imparcialidad y la independencia técnica que debe tener en su condición de decisor. En este caso corresponderá su resolución al Gerente General del ICE.
+Artículo 29° Vigencia: Este documento rige a partir de su publicación.
+San José, 10 de agosto del 2023

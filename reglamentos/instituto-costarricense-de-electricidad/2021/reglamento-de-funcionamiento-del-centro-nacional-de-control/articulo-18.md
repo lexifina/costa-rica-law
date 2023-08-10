@@ -1,1 +1,5 @@
-Artículo 18.-Interconexión y libre acceso al Sistema Eléctrico Nacional (SEN). El CENCE como operador del SEN debe cumplir con sus obligaciones en materia de acceso e interconexión al SEN, según lo que establezcan la regulación nacional y regional; resguardando siempre la integridad, capacidades y seguridad operativa de la red de transmisión nacional y regional. Todo nuevo acceso e interconexión al SEN o al SER deberá cumplir con la normativa específica para tal fin.
+CAPÍTULO V
+Transparencia, rendición de cuentas y publicidad de la información
+Artículo 18º-Transparencia. La DOCSE deberá dar acceso a los distintos participantes del SEN debidamente habilitados y a los agentes del MER a información completa, clara y oficial, relacionada con la Operación del Sistema y Operación del Mercado del SEN por medio de su página Web según lo dicta la normativa nacional y regional.
+Velará porque la información se publique de manera que no otorgue ninguna ventaja o desventaja competitiva real o potencial, a ninguna parte, teniendo en cuenta sus obligaciones con respecto a la confidencialidad de la información.
+Toda la información deberá ser publicada en español y en la versión más reciente.
