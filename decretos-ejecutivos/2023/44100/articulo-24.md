@@ -1,0 +1,1 @@
+Artículo 24.- Funcionamiento. El funcionamiento del Consejo Director de la CIZUL estará sujeto a las disposiciones y normativa establecida en la Ley General de la Administración Pública para los órganos colegiados.

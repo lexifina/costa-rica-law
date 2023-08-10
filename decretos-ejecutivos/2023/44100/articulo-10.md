@@ -1,0 +1,1 @@
+Artículo 10.- Recurso de reposición. Contra la resolución que conozca el escrito de oposición cabrá recurso de reposición, el cual deberá interponerse dentro de los tres días siguientes a la notificación de la resolución recurrida.

@@ -1,0 +1,1 @@
+Artículo 12.- Informe Técnico. Vencido el plazo para presentar oposiciones o resueltas las oposiciones, la CIZUL elaborará el informe técnico y lo remitirá al Ministerio de Gobernación y Policía en el plazo de 30 días hábiles.

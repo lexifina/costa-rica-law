@@ -1,0 +1,1 @@
+Artículo 5.- Competencia. Es competencia del Ministerio de Gobernación y Policía, efectuar mediante decreto ejecutivo, las declaratorias de zonas urbanas litorales, de conformidad con lo dispuesto en la Ley N° 9221 y previo dictamen técnico favorable de la CIZUL.

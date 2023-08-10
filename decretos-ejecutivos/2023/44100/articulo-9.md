@@ -1,0 +1,1 @@
+Artículo 9.- Oposiciones. Si se presentaran oposiciones dentro del trámite de solicitud de declaratoria de zona urbana litoral, el Consejo Director de la CIZUL analizará los argumentos y evacuará la prueba que se ofrezca en el escrito de oposición, en el plazo de un mes calendario contados a partir de la presentación de la oposición.

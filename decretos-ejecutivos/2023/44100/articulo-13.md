@@ -1,0 +1,1 @@
+Artículo 13.- Remisión del informe técnico a la municipalidad. Luego de recibido el informe técnico elaborado por la CIZUL, el Ministerio de Gobernación y Policía lo remitirá a la municipalidad respectiva en el plazo de 10 días hábiles.

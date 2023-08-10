@@ -1,0 +1,3 @@
+Artículo 23.- Frecuencia y lugar de las sesiones. Se sesionará ordinariamente cuando lo convoque la Presidencia, indicando el día y hora de la sesión. Se sesionará extraordinariamente cuando fuera necesario, para lo cual la Presidencia realizará la convocatoria según lo establecido en la Ley General de la Administración Pública.
+Las sesiones se celebrarán en el Ministerio de Gobernación y Policía, salvo que el Presidente disponga otra cosa, por razones debidamente justificadas.
+Debe entenderse que se podrá sesionar de forma virtual en situaciones excepcionales y de evidente urgencia administrativa o en estados de emergencia.

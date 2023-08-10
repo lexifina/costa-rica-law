@@ -1,0 +1,1 @@
+Artículo 11.- Modificación de linderos. En caso de que a partir de la oposición planteada se realicen modificaciones en los linderos de la eventual zona urbana litoral, deberá realizarse nuevamente el procedimiento dispuesto en los párrafos anteriores, realizándose las variables pertinentes dentro de los requisitos.

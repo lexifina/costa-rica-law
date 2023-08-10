@@ -1,0 +1,8 @@
+Artículo 6.- Requisitos necesarios para el trámite de solicitud para la Declaración de Zona Urbano Litoral. Para la declaratoria de zona urbana litoral, la municipalidad respectiva remitirá el acuerdo del concejo municipal al Consejo Director de la CIZUL.
+Los requisitos que deben acompañar la solicitud de declaratoria de zona urbana litoral por parte de la municipalidad interesada son los siguientes de conformidad con lo estipulado en el artículo N°5 de la Ley N°9221 a saber:
+a) Solicitud fundamentada de la municipalidad interesada, acordada por el Concejo Municipal respectivo.
+b) Plan regulador costero publicado en el Diario Oficial La Gaceta, vigente y cuya gestión recae en la municipalidad respectiva, que haya excluido todas las áreas clasificadas como Patrimonio Natural del Estado.
+c) Dictamen favorable del ICT, de acuerdo con el procedimiento técnico definido y aprobado por la Junta Directiva de esta institución.
+d) Dictamen favorable sobre la existencia de un área urbana emitido por el INVU, de acuerdo con el procedimiento técnico definido por esta institución.
+e) Delimitación georreferenciada de linderos, de toda el área que se pretende declarar zona urbana litoral conforme a las normas técnicas de información geográfica oficiales del IGN en materia de tolerancias relativas y absolutas, empleando métodos topográficos y tolerancias absolutas, utilizando información cartográfica oficial para garantizar la homologación, estandarización e interoperabilidad de los datos, así como su publicación en el geoportal del SNIT.
+f) Evaluación de impacto ambiental estratégica del área que se pretende declarar zona urbana litoral, aprobada por la SETENA, la cual se realizará de conformidad con la legislación y reglamentación vigente.
