@@ -1,0 +1,1 @@
+Artículo 11.-Derogatoria y Modificaciones. Deróguese el Decreto Ejecutivo N° 32181-S del 25 de noviembre del 2004 "Reglamento para el funcionamiento de establecimientos o centros de tatuajes y perforaciones corporales".

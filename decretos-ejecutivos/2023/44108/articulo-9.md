@@ -1,0 +1,1 @@
+Artículo 9º-Procedimientos en personas menores de edad. Tratándose de menores de edad, sólo puede realizarse los procedimientos acá regulados con autorización escrita y en presencia de alguno de sus padres o su representante legal o encargado. El cual debe presentar su cédula o documento de identidad y firmar la autorización escrita en el registro del procedimiento.

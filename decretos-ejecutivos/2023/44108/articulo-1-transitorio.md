@@ -1,0 +1,1 @@
+Transitorio único. - Los establecimientos que obtuvieron un permiso sanitario de funcionamiento para tatuado, branding y perforaciones corporales antes de la entrada en vigor del presente decreto pueden mantener dicho permiso por el tiempo que les fue extendido, debiendo adaptar sus condiciones de trabajo a las disposiciones de este reglamento previo a renovar el permiso.
