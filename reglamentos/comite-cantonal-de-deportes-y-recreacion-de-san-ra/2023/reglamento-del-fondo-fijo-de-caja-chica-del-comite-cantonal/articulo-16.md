@@ -1,0 +1,1 @@
+Artículo 16.-No presentación de cuentas. Al funcionario/a que tenga pendiente una liquidación de un vale no se le podrá girar otro dinero como vale hasta tanto no presente la liquidación del gasto anterior.

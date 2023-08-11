@@ -1,0 +1,1 @@
+Artículo 9°-Los registros deben ser aprobados por el presidente de la Junta Directiva del Comité Cantonal de Deportes y Recreación de San Rafael de Heredia. Queda prohibido cancelar con dinero de Caja Chica los siguientes conceptos: salarios, planillas de la CCSS, electricidad, agua, teléfono e internet, adelantos de dinero y trámites personales.

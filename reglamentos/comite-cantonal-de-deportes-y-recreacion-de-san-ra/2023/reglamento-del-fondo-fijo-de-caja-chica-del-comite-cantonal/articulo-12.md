@@ -1,0 +1,1 @@
+Artículo 12.-Contenido presupuestario. Los Vales que se realicen con el Fondo deberán de contar con el correspondiente contenido presupuestario y se respaldarán con el justificante o comprobante original. Para dicha compra, la existencia del contenido presupuestario debe ser verificada por el encargado de contabilidad del Comité.

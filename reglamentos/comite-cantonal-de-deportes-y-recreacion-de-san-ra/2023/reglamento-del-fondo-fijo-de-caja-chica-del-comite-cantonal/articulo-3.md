@@ -1,0 +1,1 @@
+Artículo 3°-Responsable del Fondo de Caja Chica. La caja chica estará a cargo del directivo/a o funcionario/a que designe el Comité Cantonal de Deportes y Recreación de San Rafael de Heredia. Será un solo custodio de la caja chica.

@@ -1,0 +1,1 @@
+Artículo 10.-Si el funcionario o directivo asignado como responsable de la Caja Chica cesa en sus funciones, deberán rendir cuenta sobre la caja chica ante la Junta Directiva antes de la finalización de sus funciones.

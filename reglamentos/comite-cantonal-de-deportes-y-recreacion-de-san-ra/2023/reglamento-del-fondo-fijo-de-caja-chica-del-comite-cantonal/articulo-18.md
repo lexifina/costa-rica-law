@@ -1,0 +1,1 @@
+Artículo 18.-Responsable de efectuar los reintegros. Los reintegros de Fondo Fijo de Caja Chica deberán ser realizados por el encargado/a del manejo de este cuando se tenga gastado un sesenta por ciento (60%) del Fondo Fijo autorizado, con el propósito de que le permita cumplir adecuadamente con la operación de este.

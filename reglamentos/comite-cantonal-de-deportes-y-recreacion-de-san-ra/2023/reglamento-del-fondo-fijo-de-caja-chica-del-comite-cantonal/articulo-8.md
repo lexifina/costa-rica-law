@@ -1,0 +1,1 @@
+Artículo 8°-Sobrantes de dinero. Los sobrantes de dinero resultado de los arqueos o reintegros se depositarán en la cuenta bancaria del Comité Cantonal de Deportes y Recreación de San Rafael de Heredia.
