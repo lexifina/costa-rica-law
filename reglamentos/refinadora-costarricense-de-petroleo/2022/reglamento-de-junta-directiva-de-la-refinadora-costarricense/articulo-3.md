@@ -30,16 +30,31 @@ Asimismo, vigilar que la empresa mantenga unos indicadores financieros saludable
 23. Aprobar los estados financieros anuales y exigir una revisión independiente periódica de los mismos, cuyos resultados deberán hacerse públicos.
 24. Identificar los asuntos que requieran atención inmediata, así como emitir las políticas específicas para la solución de los problemas que impacten la gestión empresarial.
 25. Aprobar los planes anuales operativos, presupuestos y modificaciones presupuestarias de la empresa. Los proyectos de presupuesto que se eleven a Junta Directiva deberán contar con el visto bueno de la Presidencia.
-26. Conocer los informes periódicos de ejecución y la liquidación presupuestaria del ejercicio económico, así como tomar las acciones que juzgue convenientes al respecto.
-27. Aprobar la modificación total o parcial de la estructura orgánica de la empresa, así como autorizar su envío a los entes externos para su correspondiente aprobación. Esta estructura deberá permitir una toma de decisiones eficaz y el cumplimiento de las responsabilidades empresariales, tomando en cuenta los intereses legítimos de las personas usuarias y de otras partes interesadas. Lo anterior, con el fin de asegurar una prestación de servicios continua, eficiente, de calidad y adaptada a los cambios sociales, financieros y tecnológicos.
-28. Recibir los informes de Auditoría Interna y de auditorías externas, del Comité de Auditoría y de otros comités de apoyo, para ordenar las acciones correctivas que se consideren pertinentes. Lo anterior, cumpliendo con la buena práctica de rotación de los auditores externos.
-29. Autorizar los reglamentos internos y sus modificaciones.
-30. Conocer y resolver los recursos que le correspondan, con facultades de agotar la vía administrativa en los casos en que proceda, de acuerdo con el ordenamiento jurídico.
-31. Aprobar o improbar los viajes fuera del país de los funcionarios que corresponda, según lo dispone el Reglamento de Gastos de Viaje y de Transporte para Funcionarios Públicos, Resolución de la Contraloría General de la República N° 4-DI-AA-2001 de las 15:00 horas de 10 de mayo de 2001, o el que lo sustituya.
-32. Aprobar o improbar los diferentes asuntos que constituyan el orden del día de la sesión sometida a su consideración, siempre que sean de su competencia.
-33. Autorizar a la Administración a gestionar financiamientos para proyectos de inversión, incluyendo las autorizaciones que correspondan y el vehículo seleccionado.
-34. Rendir los informes que le sean requeridos por el Consejo de Gobierno, actuando como Asamblea de Accionistas de la empresa.
-35. Vigilar el apego de todas las acciones de la institución al marco legal vigente, asegurando la existencia de políticas y procedimientos para la prevención, detección y combate contra todo tipo de corrupción, fraude e irregularidad.
-36. Mantenerse informada de cambios significativos en el mercado o en la población que recibe los servicios que presta, actuando de forma oportuna para adaptarse a las modificaciones en el entorno, con el fin de proteger los intereses a largo plazo de la empresa y de la población costarricense como su beneficiario final.
-37. Impulsar proyectos de ley propios del campo de actividad de la empresa, así como propiciar las reformas normativas que consideren necesarias para el mejoramiento de sus servicios.
-38. Ejercer las demás funciones que le correspondan, de conformidad con el ordenamiento jurídico.
+26. Aprobar un plan de trabajo anual del Órgano Colegiado.
+(Así adicionado el inciso anterior mediante sesión N° 5370-68 del 15 de agosto del 2023)
+27. Conocer los informes periódicos de ejecución y la liquidación presupuestaria del ejercicio económico, así como tomar las acciones que juzgue convenientes al respecto.
+(Así modificada la numeración del inciso anterior mediante sesión N° 5370-68 del 15 de agosto del 2023, que lo traspaso del antiguo inciso 26) al inciso 27))
+28. Aprobar la modificación total o parcial de la estructura orgánica de la empresa, así como autorizar su envío a los entes externos para su correspondiente aprobación. Esta estructura deberá permitir una toma de decisiones eficaz y el cumplimiento de las responsabilidades empresariales, tomando en cuenta los intereses legítimos de las personas usuarias y de otras partes interesadas. Lo anterior, con el fin de asegurar una prestación de servicios continua, eficiente, de calidad y adaptada a los cambios sociales, financieros y tecnológicos.
+(Así modificada la numeración del inciso anterior mediante sesión N° 5370-68 del 15 de agosto del 2023, que lo traspaso del antiguo inciso 27) al inciso 28)
+29. Recibir los informes de Auditoría Interna y de auditorías externas, del Comité de Auditoría y de otros comités de apoyo, para ordenar las acciones correctivas que se consideren pertinentes. Lo anterior, cumpliendo con la buena práctica de rotación de los auditores externos.
+(Así modificada la numeración del inciso anterior mediante sesión N° 5370-68 del 15 de agosto del 2023, que lo traspaso del antiguo inciso 28) al inciso 29).
+30. Autorizar los reglamentos internos y sus modificaciones.
+(Así modificada la numeración del inciso anterior mediante sesión N° 5370-68 del 15 de agosto del 2023, que lo traspaso del antiguo inciso 29) al inciso 30)
+31. Conocer y resolver los recursos que le correspondan, con facultades de agotar la vía administrativa en los casos en que proceda, de acuerdo con el ordenamiento jurídico.
+(Así modificada la numeración del inciso anterior mediante sesión N° 5370-68 del 15 de agosto del 2023, que lo traspaso del antiguo inciso 30) al inciso 31))
+32. Aprobar o improbar los viajes fuera del país de los funcionarios que corresponda, según lo dispone el Reglamento de Gastos de Viaje y de Transporte para Funcionarios Públicos, Resolución de la Contraloría General de la República N° 4-DI-AA-2001 de las 15:00 horas de 10 de mayo de 2001, o el que lo sustituya.
+(Así modificada la numeración del inciso anterior mediante sesión N° 5370-68 del 15 de agosto del 2023, que lo traspaso del antiguo inciso 31) al inciso 32).)
+33. Aprobar o improbar los diferentes asuntos que constituyan el orden del día de la sesión sometida a su consideración, siempre que sean de su competencia.
+(Así modificada la numeración del inciso anterior mediante sesión N° 5370-68 del 15 de agosto del 2023, que lo traspaso del antiguo inciso 32) al inciso 33))
+34. Autorizar a la Administración a gestionar financiamientos para proyectos de inversión, incluyendo las autorizaciones que correspondan y el vehículo seleccionado.
+(Así modificada la numeración del inciso anterior mediante sesión N° 5370-68 del 15 de agosto del 2023, que lo traspaso del antiguo inciso 33) al inciso 34))
+35. Rendir los informes que le sean requeridos por el Consejo de Gobierno, actuando como Asamblea de Accionistas de la empresa.
+(Así modificada la numeración del inciso anterior mediante sesión N° 5370-68 del 15 de agosto del 2023, que lo traspaso del antiguo inciso 34) al inciso 35).)
+36. Vigilar el apego de todas las acciones de la institución al marco legal vigente, asegurando la existencia de políticas y procedimientos para la prevención, detección y combate contra todo tipo de corrupción, fraude e irregularidad.
+(Así modificada la numeración del inciso anterior mediante sesión N° 5370-68 del 15 de agosto del 2023, que lo traspaso del antiguo inciso 35) al inciso 36))
+37. Mantenerse informada de cambios significativos en el mercado o en la población que recibe los servicios que presta, actuando de forma oportuna para adaptarse a las modificaciones en el entorno, con el fin de proteger los intereses a largo plazo de la empresa y de la población costarricense como su beneficiario final.
+(Así modificada la numeración del inciso anterior mediante sesión N° 5370-68 del 15 de agosto del 2023, que lo traspaso del antiguo inciso 36) al inciso 37))
+38. Impulsar proyectos de ley propios del campo de actividad de la empresa, así como propiciar las reformas normativas que consideren necesarias para el mejoramiento de sus servicios.
+(Así modificada la numeración del inciso anterior mediante sesión N° 5370-68 del 15 de agosto del 2023, que lo traspaso del antiguo inciso 37) al inciso 38)
+39. Ejercer las demás funciones que le correspondan, de conformidad con el ordenamiento jurídico.
+(Así modificada la numeración del inciso anterior mediante sesión N° 5370-68 del 15 de agosto del 2023, que lo traspaso del antiguo inciso 38) al inciso 39))

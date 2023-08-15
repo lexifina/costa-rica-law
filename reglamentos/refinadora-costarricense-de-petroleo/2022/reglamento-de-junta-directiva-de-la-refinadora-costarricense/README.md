@@ -14,3 +14,4 @@ Reglamento de junta directiva de la Refinadora Costarricense de Petróleo S.A.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-05-13 | la propia norma |
+| 2 | 2023-08-15 | Reglamento 5370 (2023-08-15) |

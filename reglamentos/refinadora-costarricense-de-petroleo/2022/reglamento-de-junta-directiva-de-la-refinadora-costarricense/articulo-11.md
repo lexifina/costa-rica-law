@@ -13,6 +13,13 @@ Artículo 11.-Deberes. Son deberes de la Secretaría de Actas:
 12. Dar seguimiento al cumplimiento de acuerdos dictados por la Junta Directiva e informar mensualmente al respecto.
 13. Verificar que los documentos conocidos, tramitados o producidos en cada sesión de Junta, sean debidamente archivados mediante un expediente físico o digital creado al efecto.
 14. Extender las certificaciones referentes a actos administrativos o actuaciones materiales de la Junta Directiva, que de oficio o a petición de parte deban extenderse.
-15. Ejecutar las tareas y funciones que específicamente le encargue la Junta Directiva, o la Presidencia.
-16. Colaborar con el personal de apoyo del Comité de Auditoría en la preparación de la agenda, en la elaboración de las actas y en las comunicaciones que resulten atinentes.
-17. Las otras funciones asignadas por el ordenamiento jurídico.
+15. Implementar un mecanismo de control en el que se identifique el intercambio de información entre la Administración y los Miembros de la Junta Directiva.
+(Así adicionado el inciso anterior mediante sesión N° 5370-68 del 15 de agosto del 2023)
+16. Elaborar y presentar una propuesta de plan de trabajo anual de la Junta Directiva, dentro de los primeros quince días del mes de diciembre, que incorpore el asunto, responsable, periodicidad y fecha de presentación.
+(Así adicionado el inciso anterior mediante sesión N° 5370-68 del 15 de agosto del 2023)
+17. Ejecutar las tareas y funciones que específicamente le encargue la Junta Directiva, o la Presidencia.
+(Así modificada la numeración del inciso anterior mediante sesión N° 5370-68 del 15 de agosto del 2023, que lo traspaso del antiguo inciso 15 al inciso 17.)
+18. Colaborar con el personal de apoyo del Comité de Auditoría en la preparación de la agenda, en la elaboración de las actas y en las comunicaciones que resulten atinentes.
+(Así modificada la numeración del inciso anterior mediante sesión N° 5370-68 del 15 de agosto del 2023, que lo traspaso del antiguo inciso 16) al inciso 18))
+19. Las otras funciones asignadas por el ordenamiento jurídico.
+(Así modificada la numeración del inciso anterior mediante sesión N° 5370-68 del 15 de agosto del 2023, que lo traspaso del antiguo inciso 17) al inciso 19))
