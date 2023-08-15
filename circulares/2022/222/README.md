@@ -13,3 +13,4 @@ Procedimiento PCDT-DPLA-0110-0115-01-Seguimiento por parte de los Centros de Res
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-11-29 | la propia norma |
+| 2 | 2023-08-15 | Circular 190 (2023-08-15) |

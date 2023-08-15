@@ -30,3 +30,4 @@ N° Versión | Detalle de actualización | Fecha de Actualización | Elaborado p
 | | | | | | |
 | | | | | | |
 | | | | | | | | | | | |
+(Nota de Sinalevi: Mediante circular N° 190 del 15 de agosto de 2023, se acordó actualizar el Procedimiento PCDT-DPLA-0110-011501-Seguimiento por parte de los Centros de Responsabilidad sobre los Planes Anuales Operativos de las oficinas y despachos judiciales. Misma que puede ser consultada en el siguiente enlace del Poder Judicial: https://secretariacorte.poder-judicial.go.cr/index.php/documentos?download=5333:plan-de-proyecto")
