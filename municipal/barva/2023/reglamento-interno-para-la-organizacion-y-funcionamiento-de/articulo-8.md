@@ -1,0 +1,14 @@
+CAPÍTULO III
+De las Funciones
+Artículo 8º-Funciones del Coordinador de la Policía Municipal: En caso de habilitarse la figura del Coordinador de la Policía Municipal, éste deberá regirse bajo las siguientes funciones:
+i. Planear, dirigir y controlar la actividad cotidiana de la Policía Municipal.
+ii. Formular el Plan Anual Operativo de la Policía Municipal y su respectivo presupuesto y someterlo a conocimiento de las autoridades superiores correspondientes, sea al Alcalde o Alcaldesa Municipal y al Departamento de Administración Tributaria y Financiera, los cuales harán de conocimiento estos elementos al Concejo Municipal para su posterior valoración y votación aprobando o improbando el respectivo Plan Anual Operativo propuesto.
+iii. Elaborar y remitir trimestralmente o cuando sea requerido a la Alcaldía Municipal de Barva un informe de la actividad de la Policía Municipal.
+iv. Establecer y mantener actualizados los procedimientos, sistemas y métodos de trabajo.
+v. En caso de emergencias acontecidas en la circunscripción cantonal de Barva tomar las medidas necesarias e informar inmediatamente a sus superiores y a otros cuerpos de la Policía Nacional a fin de articular acciones de colaboración.
+vi. Realizar cada año calendario en coordinación con la Unidad de Recursos Humanos una evaluación del desempeño de los miembros de la Policía Municipal.
+vii. Mantener el mayor nivel de conocimiento y preparación de los policías mediante capacitaciones constantes que la Municipalidad pudiere sufragar de acuerdo a la disponibilidad presupuestaria para estos fines o en colaboración con otras instituciones públicas o privadas.
+viii. Velar porque los policías municipales cumplan las funciones asignadas y las normas de puntualidad y disciplina. Así mismo, el Coordinador de la Policía Municipal deberá velar por el adecuado estado de los instrumentos de trabajo del cuerpo policial local, incluyendo, pero sin limitarse al armamento de fuego o de cualquier otro tipo permitido por la legislación vigente, vehículos automotores, motocicletas y/o bicicletas que funcionan como método de transporte de los oficiales municipales, así como el primer medio de detención de cualquier persona sospechosa de haber cometido un delito, contravención o actos contrarios a la ley, la moral y a las buenas costumbres. El estado de los uniformes, placas y demás medios de identificación de cada oficial de policía municipal.
+ix. Controlar todos los activos a disposición de la Policía Municipal y velar por su correcto uso y mantenimiento.
+x. Formar parte de la Comisión de Prevención de Riesgos y Atención de Emergencias Cantonal, así como cualquier otro organismo que a juicio de las Autoridades superiores sea necesaria su participación.
+xi. Cualquier otra función definida por sus superiores y que sea afín a su rol.

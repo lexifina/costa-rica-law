@@ -1,0 +1,1 @@
+Artículo 2º-Ámbito de Aplicación: Las disposiciones contenidas en este Reglamento serán aplicables de acatamiento obligatorio para todos aquellos funcionarios municipales en general y especialmente a los que se desempeñen como Policía Municipal de la Municipalidad del cantón de Barva en materia de seguridad y orden público.

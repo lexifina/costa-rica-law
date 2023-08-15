@@ -1,0 +1,2 @@
+Artículo 13.-Sobre la indumentaria y equipo: Deberán utilizarse únicamente los suministrados por la institución o los autorizados por las jefaturas, previa valoración técnica que permita comprobar su calidad, durabilidad, ergonomía y nivel de seguridad adecuados para la función policial.
+Esto no aplica para armas de fuego, municiones, ni agentes químicos. Los policías municipales deben asumir la responsabilidad del equipo y demás accesorios. Durante el tiempo que permanezcan bajo su custodia responderán por cualquier pérdida ocasionada por culpa grave, dolo o negligencia.
