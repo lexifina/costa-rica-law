@@ -1,2 +1,0 @@
-ARTICULO 18:
-En el caso eventual de un sobrante, deben efectuarse las revisiones pertinentes para determinar el origen y depositarlo en la cuenta a la que corresponda. En caso de no poder determinarlo la suma sobrante será liquidada al finalizar el ejercicio anual.

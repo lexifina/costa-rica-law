@@ -1,2 +1,0 @@
-ARTICULO 15:
-El encargado de la Caja Chica preparará el reembolso correspondiente en los formularios llamados "comprobantes de Pago de Caja chica", diseñados para tal efecto y numerados consecutivamente, indicando el número de factura, la fecha, el monto, el nombre de la persona o Departamento que efectuó el gasto, el detalle del servicio o el bien adquirido, la partida presupuestaria afectada, así como las firmas del Alcalde Municipal, el Tesorero y la persona interesada.

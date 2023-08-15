@@ -1,2 +1,0 @@
-ARTICULO 17:
-Si al realizar el arqueo resultara un faltante, el encargado de la Caja Chica deberá suplirlo con sus propios recursos en un lapso máximo de veinticuatro horas después de que haya sido detectado.

@@ -1,2 +1,0 @@
-ARTICULO 9:
-Los adelantos de dinero deben ser liquidados a más tardar dentro de las 24 horas siguientes a la fecha de entrega. Cuando se establezca atraso en la liquidación, el encargado del fondo deberá en primera instancia comunicarlo al Alcalde Municipal y si no hay respuesta, debe enviarse un oficio al Concejo Municipal, para que ellos como órgano superior, tomen las medidas pertinentes para con el funcionario.

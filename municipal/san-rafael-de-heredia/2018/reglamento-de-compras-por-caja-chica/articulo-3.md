@@ -1,2 +1,0 @@
-ARTICULO 3:
-En el caso que el encargado de la Caja Chica se ausente de la Municipalidad por vacaciones o permiso temporal, los recursos del fondo se traspasarán transitoriamente a quién funja como Asistente de Tesorería. Para dicho traspaso se hará el arqueo respectivo, cuyo resultado será firmado por ambos funcionarios; igual procedimiento se realizará cuando el titular del fondo de Caja Chica se reincorpore de nuevo a sus labores.
