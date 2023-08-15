@@ -1,1 +1,0 @@
-Artículo 26.—Mientras no se cancele la cuenta, la empresa tiene derecho a oponerse a que se saque del establecimiento el equipaje del huésped, de acuerdo con lo dispuesto en el artículo 1143 del Código Civil.

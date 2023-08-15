@@ -1,1 +1,0 @@
-Articulo 28.—Para que los reglamentos internos o normas particulares de cada empresa, sean válidos en relación con los huéspedes, deberán ser aprobados por el Instituto Costarricense de Turismo, y dados a conocer a éstos o forma individual o general, mediante circulares o rótulos colocados en lugares visibles del establecimiento.

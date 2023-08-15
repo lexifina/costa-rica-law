@@ -1,2 +1,0 @@
-Articulo 16.- En el caso de ser reservaciones individuales, la cancelación de las reservas podrá efectuarse sin que la empresa tenga derecho a la indemnización o a retención del pago anticipado, si se hace por escrito y al menos con cuarenta y ocho horas de anticipación a la fecha fijada para la llegada. De no realizarse la cancelación de la reservación en dicho plazo la empresa sólo tendrá derecho a retener como indemnización, el equivalente a una tarifa diaria de hospedaje.
-(Así reformado mediante articulo 5° del Decreto Ejecutivo N° 26842 del 2 de marzo de 1998.)

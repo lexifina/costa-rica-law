@@ -1,1 +1,0 @@
-Artículo 25.—El alojamiento de niños menores de dos años, en la mis habitación de sus padres o acompañantes será gratuito, siempre y cuando no se utilice cama adicional o cuna para el menor. El de los niños menores de doce años y mayores de dos, también en la misma habitación de sus padres o acompañantes, se cobrará a razón del 50% de la tarifa autorizada.
