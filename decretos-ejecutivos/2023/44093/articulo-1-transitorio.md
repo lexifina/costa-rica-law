@@ -1,0 +1,1 @@
+Transitorio I.-Se otorga un periodo de tres meses a partir de la entrada en vigencia de este Decreto Ejecutivo para que los servicios de salud públicos y privados cumplan con los derechos de la población meta estipulados en el Capítulo II del presente reglamento.

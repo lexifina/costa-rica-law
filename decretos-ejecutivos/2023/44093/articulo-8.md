@@ -1,0 +1,1 @@
+Artículo 8º-Divulgación. El Ministerio de Salud debe publicar y divulgar al público en general y cualquier entidad particular que considere pertinente los informes con los resultados de las evaluaciones mencionadas en el artículo anterior.

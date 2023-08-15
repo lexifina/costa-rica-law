@@ -1,0 +1,1 @@
+Artículo 22.-Asesoría. Cuando la complejidad o tecnicidad del caso así lo amerite, el órgano director puede hacerse asesorar por técnicos en la materia o por todo aquel profesional con competencia técnica para tales efectos,

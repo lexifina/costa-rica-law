@@ -1,0 +1,2 @@
+Artículo 25.-Intimación. La ejecución del acto final que imponga una sanción pecuniaria debe estar precedida de dos intimaciones consecutivas; para tal propósito el acto final debe contener la primera intimación.
+La segunda intimación debe ser notificada a los tres días hábiles posteriores a la primera notificación; en ambas intimaciones se debe apercibir a la persona infractora que debe proceder a la cancelación de lo dispuesto en el acto final dentro del plazo señalado.

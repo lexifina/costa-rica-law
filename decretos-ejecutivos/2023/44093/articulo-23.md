@@ -1,0 +1,1 @@
+Artículo 23.-Recomendación. El órgano director debe emitir una recomendación al órgano decisor, con sustento en la verificación de la verdad real de los hechos investigados. En cada caso recomendará las sanciones que correspondan o bien el archivo del expediente, cuando no haya mérito o pruebas suficientes para la aplicación de medidas sancionatorias.

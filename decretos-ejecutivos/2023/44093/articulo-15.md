@@ -1,0 +1,2 @@
+Artículo 15.-Sobre las sanciones. Para imponer sanciones deben respetarse los principios del debido proceso, el informalismo, la búsqueda de la verdad real, el impulso de oficio, la imparcialidad y la publicidad, los cuales informan el procedimiento administrativo estipulado en el libro segundo de la Ley N° 6227 del 2 de mayo de 1978 "Ley General de la Administración Pública".
+El acto final en firme resultado del procedimiento debe ser comunicado a la correspondiente Dirección Regional de Rectoría de Salud del Ministerio de Salud.

@@ -1,0 +1,1 @@
+Artículo 21.-Principios. El órgano director debe actuar sujeto a los principios del debido proceso y a la verificación exhaustiva de la verdad real de los hechos y a lo dispuesto en el Capítulo Primero "Del Procedimiento Ordinario", del Título Sexto, de la Ley N° 6227 del 2 de mayo de 1978 "Ley General de la Administración Pública".
