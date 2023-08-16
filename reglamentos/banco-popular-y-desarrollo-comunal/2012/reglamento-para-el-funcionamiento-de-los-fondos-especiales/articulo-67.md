@@ -1,6 +1,5 @@
-Artículo 67. Del traslado de cartera activa de los Fondos especiales al Banco Popular:
-Se podrá promover el traslado de la cartera activa de los Fondos Especiales, así como sus garantías, a la cartera del Banco Popular a cambio de recursos financieros, una vez cumplido el objetivo de los fondos de bancarizar, madurar operativa y financieramente a los beneficiarios finales, con el fin de dar oportunidad a otros sujetos de crédito de que aprovechen los beneficios que ofrecen los fondos.
-Los criterios o parámetros por cumplir para trasladar o ceder serán definidos por la Administración.
-El monto por el cual el Banco Popular realizará la contraprestación de los recursos financieros será la sumatoria del saldo vigente de la cartera que será trasladada.
-Los traslados de cartera y sus respectivas garantías se podrán realizar en cualquier fecha y cuantas veces se considere necesario para el logro de los objetivos de recapitalizar los Fondos Especiales.
-La Gerencia General Corporativa podrá definir otros criterios que considere apropiados según el apetito al riesgo del Banco, previo estudio de la Dirección Corporativa de Riesgo.
+Artículo 67. Cuando se compruebe que una persona solicitante u obligada, sin mediar dolo, ha suministrado información incorrecta, el Banco, considerando el interés institucional, respetando el principio de igualdad y de acuerdo con la gravedad de la falta podrá aplicar una de las siguientes opciones:
+a) Efectuar las correcciones del caso y mantener las condiciones del crédito.
+b) Variar la tasa de interés hasta la tasa activa más alta que en la respectiva moneda rija en ese momento en el Banco. Si la infracción se comete en un crédito que tiene la tasa activa más alta de todas, se podrá aumentar dicha tasa hasta en cinco puntos porcentuales o,
+c) Dar por vencida la obligación y exigir su cancelación inmediata.
+En caso de que el crédito haya sido otorgado por un órgano unipersonal, la sanción la fijará el órgano colegiado con atribuciones inmediatamente superiores.

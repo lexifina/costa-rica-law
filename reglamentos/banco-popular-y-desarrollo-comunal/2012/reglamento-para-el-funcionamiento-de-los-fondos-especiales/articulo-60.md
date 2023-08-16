@@ -1,2 +1,1 @@
-Artículo 60.
-Sin perjuicio de lo indicado en el artículo 54 de este Reglamento, ante incumplimiento por parte del cliente debidamente comprobado de alguna de las cláusulas del contrato, el Banco se reserva el derecho de suspender total o parcialmente los desembolsos del crédito.
+Artículo 60. Aprobación del crédito. El Órgano Resolutivo será el establecido en el Reglamento General de crédito del Banco Popular.

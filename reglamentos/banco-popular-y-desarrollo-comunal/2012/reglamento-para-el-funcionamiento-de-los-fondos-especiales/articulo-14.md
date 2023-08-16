@@ -1,2 +1,1 @@
-Artículo 14.
-Queda a facultad de la Gerencia General Corporativa la definición de los parámetros de cumplimiento para la determinación de los sujetos de crédito para optar por el Fondo Especial de Desarrollo (FEDE), los que serán definidos bajo las políticas y directrices Institucionales.
+Artículo 14. Queda a facultad de la Gerencia General Corporativa la definición de los parámetros de cumplimiento para la determinación de los sujetos de crédito para optar por el Fondo Especial de Desarrollo (FEDE), los que serán definidos bajo las políticas y directrices Institucionales.

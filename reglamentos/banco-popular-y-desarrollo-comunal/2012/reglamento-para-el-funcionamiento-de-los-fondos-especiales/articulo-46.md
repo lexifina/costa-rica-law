@@ -1,2 +1,1 @@
-Artículo 46. Modalidad del crédito:
-Este crédito se deberá formalizar únicamente en moneda nacional.
+Artículo 46. De los gastos de formalización. El Comité de Activos y Pasivos regulará mediante directriz las condiciones de pago de honorarios y avalúo, procurando favorecer la población meta de este programa.

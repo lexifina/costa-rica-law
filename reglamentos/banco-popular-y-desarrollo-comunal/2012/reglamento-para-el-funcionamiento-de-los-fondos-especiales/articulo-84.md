@@ -1,2 +1,2 @@
-Artículo 84.
-El monto máximo del aval por honrar para cada operación de crédito se calculará de acuerdo con las condiciones establecidas por la Dirección Banca de Desarrollo Social para cada programa.
+Artículo 84. La Dirección de Banca de Desarrollo Social y en función del ISP definido para los Fondos Especiales, determinará un sistema de comisiones sobre los avales otorgados y/o renovados, independientes de aquellas comisiones que cobre la entidad que otorgue el crédito por concepto del otorgamiento de los créditos, comisiones que podrá ser de 0% hasta 5% del monto avalado. Lo anterior de conformidad con los principios de sostenibilidad, racionalidad y solidaridad aplicables en la materia.
+Estas comisiones serán determinadas independientemente para cada programa de acuerdo con las condiciones establecidas por la Dirección Banca de Desarrollo Social para cada programa.

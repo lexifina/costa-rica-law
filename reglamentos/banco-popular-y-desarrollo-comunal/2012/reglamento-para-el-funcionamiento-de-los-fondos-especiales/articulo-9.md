@@ -1,2 +1,1 @@
-Artículo 9. Sostenibilidad de los Fondos:
-El Banco procurará la sostenibilidad de los Fondos Especiales, para lo cual tomará las medidas de control y de prevención de riesgo, que considere necesarias y pertinentes.
+Artículo 9. Sostenibilidad de los Fondos: El Banco procurará la sostenibilidad de los Fondos Especiales, para lo cual tomará las medidas de control y de prevención de riesgo, que considere necesarias y pertinentes.

@@ -1,2 +1,1 @@
-Artículo 33.
-Del acompañamiento a la persona jurídica, organizaciones y empresas de la economía social solidaria. Se podrá establecer convenios de cooperación con organizaciones públicas o privadas, a fin de brindarle el seguimiento y acompañamiento a quien suscriba el crédito o bien a sus beneficiarios.
+Artículo 33. En aquellos créditos que por su naturaleza sea necesario girar por partidas, los desembolsos se harán previo informe positivo del perito o funcionario designado por el Banco para ejecutar la supervisión. En casos técnicamente justificados se podrían utilizar otros esquemas de supervisión con aliados estratégicos.

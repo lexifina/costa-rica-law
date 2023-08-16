@@ -1,2 +1,1 @@
-Artículo 52. De los seguros de las garantías de bienes inmuebles:
-Cualquier bien objeto de hipoteca, cuando corresponda, debe estar debidamente asegurado y deberá constar en la póliza en la que el Banco es el acreedor. Las excepciones a este requisito se aplicarán cuando los bienes estén protegidos por otro mecanismo, técnica y legalmente viable.
+Artículo 52. De las garantías. Todos los créditos deberán ser respaldados con garantía suficiente.

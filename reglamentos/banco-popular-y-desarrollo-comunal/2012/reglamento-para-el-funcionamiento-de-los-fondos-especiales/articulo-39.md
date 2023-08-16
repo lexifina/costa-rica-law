@@ -1,2 +1,1 @@
-Artículo 39. De las garantías:
-Se recibirá en garantía solamente hipoteca en primer grado sobre la vivienda a financiar o que se vaya a construir.
+Artículo 39. Requisitos del expediente de crédito. Los expedientes de crédito deben contener los requisitos establecidos en el Reglamento General de Crédito del Banco Popular y de Desarrollo Comunal y mantener actualizada la Política Conozca a su Cliente.

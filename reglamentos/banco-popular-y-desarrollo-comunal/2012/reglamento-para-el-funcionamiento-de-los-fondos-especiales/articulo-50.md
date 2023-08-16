@@ -1,2 +1,1 @@
-Artículo 50. De las garantías:
-Todos los créditos deberán ser respaldados con garantía suficiente.
+Artículo 50. Sujetos de Crédito. Los sujetos de crédito son todas las personas asalariadas o con ingresos propios que tengan una condición de sobreendeudamiento, pero que han demostrado interés en cancelar sus obligaciones, independientemente de su calificación crediticia en la SUGEF.

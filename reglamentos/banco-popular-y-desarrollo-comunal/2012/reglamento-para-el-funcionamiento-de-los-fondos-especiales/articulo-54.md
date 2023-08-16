@@ -1,4 +1,1 @@
-Artículo 54. De las comisiones:
-Para la fijación de las comisiones de los créditos del Fondo BP Bienestar deberá considerarse lo siguiente:
-a. Se establecerá una única comisión de formalización que no podrá exceder el 3% sobre el principal de la operación, la cual puede ser financiada.
-b. La Gerencia General Corporativa, podrá ajustar las comisiones de formalización dentro del rango establecido en el punto anterior respetando el principio de igualdad. De conformidad con lo definido en la guía general de productos de crédito.
+Artículo 54. De los seguros de las garantías de bienes inmuebles. Cualquier bien objeto de hipoteca, cuando corresponda, debe estar debidamente asegurado y deberá constar en la póliza en la que el Banco es el acreedor. Las excepciones a este requisito se aplicarán cuando los bienes estén protegidos por otro mecanismo, técnica y legalmente viable.

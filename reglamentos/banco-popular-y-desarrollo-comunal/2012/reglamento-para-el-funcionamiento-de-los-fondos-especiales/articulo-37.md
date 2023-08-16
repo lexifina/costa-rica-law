@@ -1,2 +1,1 @@
-Artículo 37.
-Queda a facultad de la Gerencia General Corporativa la definición de los parámetros de cumplimiento para la determinación de los sujetos de crédito para optar por el Fondo Especial de Vivienda (FEVI). Los que serán definidos bajo las políticas y directrices institucionales.
+Artículo 37. Fuentes de los recursos. Las fuentes de recursos serán las estipuladas en el inciso b) del artículo 40 de la Ley Orgánica del Banco Popular y de Desarrollo Comunal y en el artículo 7 de este Reglamento.

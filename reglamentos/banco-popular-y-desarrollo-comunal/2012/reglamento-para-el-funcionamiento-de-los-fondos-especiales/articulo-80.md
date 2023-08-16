@@ -1,2 +1,3 @@
-Artículo 80.
-De manera periódica la entidad que otorga el crédito deberá revisar el saldo de las operaciones avaladas y podrá liberar el aval cuando posee suficiente garantía para respaldar el saldo de esas operaciones; ello con el propósito de beneficiar a otras personas y cumplir con el principio de solidaridad.
+Artículo 80. Para el honramiento de los avales y ante solicitud expresa de la entidad que otorga el crédito, el AFE lo tramitará en forma irrevocable e incondicional, después de la verificación del cumplimiento de requisitos definidos, de lo contrario se devuelve. Luego de transcurridos hasta noventa días naturales contados a partir del primer día de incumplimiento del deudor, según se defina para cada programa.
+En los expedientes de crédito de cada operación avalada y para una eventual revisión, deben quedar documentadas las acciones que demuestren que se ha cumplido con la debida diligencia de las gestiones cobratorias.
+Toda la gestión de· honramiento del aval, así como su eventual reintegro al Área de Fondos Especiales (AFE), corresponderá a la entidad que otorga el crédito.

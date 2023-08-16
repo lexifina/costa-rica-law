@@ -1,2 +1,1 @@
-Artículo 56. Plazos:
-El plazo del crédito será de hasta 360 meses.
+Artículo 56: Sobre la tasa interés total anual (TITA). Las tasas de interés definidas más todos los componentes de costos en que incurra el deudor durante la vida del crédito (Tasa TITA) no podrá ser mayor a la tasa de interés máxima (TAM) definida por el Banco Central vigente al momento del otorgamiento del crédito.

@@ -1,9 +1,5 @@
-Artículo 69.
-El FAE se rige por los siguientes principios:
-a) Acceso: Este principio se relaciona con las personas físicas o jurídicas que pueden acceder al FAE y deberán ser solo aquellas que cuenten con las premisas definidas en este reglamento.
-b) Adicionalidad: Es la cantidad de financiamiento adicional que se genera, ya que el FAE permite aumentar el monto máximo de crédito por otorgar y la posibilidad de una mayor cobertura de los beneficiarios finales.
-c) Beneficio de los usuarios: El FAE debe servir para brindar como valor agregado, mejoras en las condiciones de las operaciones de crédito, tales como: Plazos de repago mayores, menores requisitos
-de colateral, tasas de interés más bajas, menores comisiones.
-d) Equidad: El FAE deberá implementar mecanismos que procuren la participación del mayor número posible de beneficiarios.
-e) Sostenibilidad Patrimonial: Es el principio que permite que el FAE se desarrolle y mantenga en el tiempo.
-f) Supervisión y control: Debe contemplar una serie de elementos que permitan mantener la sostenibilidad del FAE, así como acatar todos los lineamientos establecidos para el buen manejo de los fondos públicos.
+Artículo 69. Cuando el Banco compruebe que una persona solicitante u obligada ha infringido cualquiera de las condiciones convenidas en la contratación del préstamo o en este Reglamento no indicadas en los dos artículos anteriores, salvo atraso de la operación, y considerando el interés institucional, respetando el principio de igualdad y de acuerdo con la gravedad de la falta, podrá aplicar una de las siguientes opciones:
+a) Efectuar las correcciones del caso y mantener las condiciones del crédito,
+b) Variar la tasa de interés hasta la tasa activa más alta que en la respectiva moneda rija en ese momento en el Banco. Si la infracción se comete en un crédito que tiene la tasa activa más alta de todas, se podrá aumentar dicha tasa hasta en cinco puntos porcentuales o,
+c) Dar por vencida la obligación y exigir su cancelación inmediata.
+En caso de que el crédito haya sido otorgado por un órgano unipersonal, la decisión deberá trasladarse al órgano colegiado con atribuciones inmediatamente superiores.

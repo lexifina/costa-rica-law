@@ -1,2 +1,1 @@
-Artículo 44. De los gastos de formalización:
-La Gerencia General Corporativa regulará mediante directriz las condiciones de pago de honorarios y avalúo, procurando favorecer la población meta de este programa.
+Artículo 44: Sobre la tasa interés total anual (TITA). Las tasas de interés definidas más todos los componentes de costos en que incurra el deudor durante la vida del crédito (Tasa TITA) no podrá ser mayor a la tasa de interés máxima (TAM) definida por el Banco Central vigente al momento del otorgamiento del crédito.

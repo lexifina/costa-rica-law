@@ -1,6 +1,4 @@
-Artículo 75.
-La entidad que otorga el crédito se compromete a:
-a) Mantener informada y actualizada al AFE sobre las condiciones y políticas vigentes para los programas o líneas de créditos de vivienda o refinanciamiento aprobados.
-b) Enviar mensualmente a AFE, dentro de los primeros diez días hábiles, un informe de los avales vigentes.
-c) Pagar mensualmente a favor del Área Fondos Especiales y dentro de los primeros diez días hábiles de cada mes, el monto correspondiente a las comisiones de formalización y administración que pagan los beneficiarios finales por otorgamiento y/o renovación de los avales según se haya aprobado para cada programa.
-d) Aplicar los criterios de selección de beneficiarios finales en cada programa.
+Artículo 75. Los beneficiarios del FAE podrán hacer uso de los siguientes tipos de avales:
+Avales Individuales y Avales de Cartera definidos en este Reglamento.
+Queda a facultad de la Gerencia General Corporativa la definición de los parámetros de cumplimiento para cada programa autorizado según la modalidad, y que serán definidos bajo las políticas y directrices Institucionales.
+Para todos los casos indicados el FAE solo podrá honrar avales y bajo ninguna premisa girar dinero.

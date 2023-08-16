@@ -4,7 +4,7 @@ AFE: Área de Fondos Especiales de la DBDS.
 APIS: Operación de vivienda refinanciada por el Banco que requirió de un aval del FAVI. (Arreglo de Pago con Impacto Social).
 Asada: Asociación administradora de los sistemas de acueductos y alcantarillados comunales que cumplan con las disposiciones legales aplicables al servicio.
 Banco: Banco Popular y de Desarrollo Comunal.
-La Junta Directiva Nacional en Sesión Ordinaria No. 5972 celebrara el 26 de enero del 2023, mediante acuerdo No. 081 inciso 2) acuerda modificar el Reglamento para el Funcionamiento de los Fondos Especiales, en los siguientes términos:
+Comité de Activos y Pasivos (ALCO): Órgano resolutivo creado por la Gerencia General Corporativa a efectos de analizar, tomar decisiones y establecer los planes de acción, sobre el comportamiento y tendencia de los activos, pasivos y cuentas contingentes de la Institución.
 Crédito al Sector Ambiente: Financiamiento a una persona jurídica, organización o empresa de la economía social solidaria, cuyo plan de inversión esté relacionado con la política del Banco en esta materia.
 Crédito para capacitación: Financiamiento a una persona jurídica, organización o empresa de la economía social solidaria que, como parte del desarrollo productivo por financiar, requiera fortalecer las habilidades del personal.
 Dicha capacitación debe estar estrechamente ligada al plan de inversión por financiar con los recursos del FEDE.
@@ -17,7 +17,7 @@ a) Primacía de las personas y del fin u objetivos sociales sobre el capital, da
 b) Los resultados obtenidos de la actividad económica en las EESS se aplican al logro de los objetivos sociales. Los excedentes por distribuir entre las personas que las integran se realizan principalmente en función del trabajo, por el uso de los servicios o por las actividades que estas hayan aportado. Las reservas y fondos creados para el cumplimiento de los fines sociales no son repartibles entre las personas integrantes, aun en caso de liquidación de la entidad.
 c) Promoción de la solidaridad interna y con el entorno social, a fin de fortalecer el compromiso con el desarrollo local, por la igualdad de oportunidades entre todas las personas que participan, por la cohesión y la inserción social, por la generación de empleos y puestos de trabajo estables y de calidad, por la sostenibilidad, así como por la conciliación entre la vida personal, familiar y laboral.
 d) Autonomía e independencia de los poderes públicos y de intereses externos.
-e) Que entre las diversas expresiones de la economía social solidaria se encuentran organizaciones tales como:
+e) Que entre las diversas expresiones de la economía social solidaria se encuentran organizaciones tales como
 e.1) Las asociaciones cooperativas reguladas por la Ley 4179, Ley de asociaciones cooperativas y de creación del Instituto Nacional de Fomento Cooperativo del 22 de agosto de 1968.
 e.2) Las asociaciones solidaritas reguladas por la Ley 6970, Ley de asociaciones solidaristas, del 7 de noviembre de 1984.
 e.3) Las asociaciones de productores, de trabajadores, gremiales, de artistas u otras que realicen actividad económica empresarial, organizadas al amparo de la Ley 218, Ley de Asociaciones, del 8 de agosto de 1939.
@@ -26,14 +26,14 @@ e.5) Las asociaciones administradoras de los sistemas de acueductos y alcantaril
 e.6) Las sociedades anónimas laborales reguladas por la Ley 7407, Ley de Sociedades Anónimas Laborales del 12 de mayo de 1994.
 e.7) Los sindicatos productivos: Organizaciones sindicales que de manera sostenida vienen realizando actividades empresariales en los territorios y que con ello impactan el empleo, salud, ambiente y economías de las familias.
 e.8) Las sociedades civiles con actividades productivas, constituidas al amparo del código civil.
-e.9) Cualquier otra categoría y otras entidades creadas por normas específicas o leyes especiales que realicen actividad económica o empresarial cuyo propósito sea el bienestar económico y social de algún segmento especifico de la población.
+e. 9) Cualquier otra categoría y otras entidades creadas por normas específicas o leyes especiales que realicen actividad económica o empresarial cuyo propósito sea el bienestar económico y social de algún segmento especifico de la población.
+(Corregido el inciso anterior mediante Fe de Erratas y publicada en La Gaceta N° 185 del 9 de octubre de 2023, página N° 2. Anteriormente se indicada: "e.8")
 Encadenamiento Productivo: Es la unión de dos o más personas físicas o jurídicas con actividades productivas, que promuevan alianzas estratégicas en una zona específica y generen un impacto social y económico.
 Emprendedor: Persona física o jurídica que identifica una oportunidad en el mercado que le permitan crear su propia empresa.
 Entes Rectores y Aliados Estratégicos: Instituciones públicas o privadas con las cuales se subscriben alianzas de cooperación para el seguimiento y acompañamiento de la persona jurídica, organización o empresa de la economía social solidaria.
 Estrato Salarial: Un estrato salarial es igual al salario mínimo definido para un trabajador no especializado de la industria de la construcción.
 FAE: Fondo de Avales Especiales
 FAVI: Fondo Avales para Vivienda para la clase media.
-Fondo BP-Bienestar: Fondo creado para otorgar financiamiento a personas físicas con sobreendeudamiento, para solucionar emergencias de carácter social.
 Fondo Especial de Desarrollo (FEDE): Fondo constituido para financiar las líneas de crédito indicadas en este Reglamento, siempre y cuando sean económicamente viables y técnicamente factibles.
 Fondo Especial de Vivienda (FEVI): Fondo constituido para financiar hasta el 100% de la compra, remodelación, ampliación o mejoras de la primera vivienda según los parámetros de dicho fondo.
 Fondos Especiales: Fondos creados por la Junta Directiva Nacional para fines específicos.
@@ -42,8 +42,8 @@ Ingreso familiar bruto: Suma de todos los salarios que percibe mensualmente el n
 ISP: Índice de Sostenibilidad Patrimonial.
 Jóvenes: Hombres y mujeres con una edad comprendida entre los 18 y los 35 años.
 Línea de crédito: Modalidad de crédito en la cual el FEDE puede formalizar diferentes operaciones derivadas de esta línea, y que generan disponibilidad independientemente del tipo de garantía.
-Menaje de casa: es el ajuar y utensilios de una casa que sirven exclusiva y propiamente para el uso diario de quienes la habitan. Se consideran, entre otros: cocina, lavadora, refrigeradora, muebles, televisor, microondas.
-Mercado meta FEDE: Las entidades pertenecientes a persona jurídicas, organización o empresas de la economía social solidaria, así como las poblaciones en esta normativa definidas para los usuarios de Banca de segundo piso.
+Menaje de casa: es el ajuar y utensilios de una casa que sirven exclusiva y propiamente para el uso diario de quienes la habitan.
+Se consideran, entre otros: cocina, lavadora, refrigeradora, muebles, televisor, microondas. Mercado meta FEDE: Las entidades pertenecientes a persona jurídicas, organización o empresas de la economía social solidaria, así como las poblaciones en esta normativa definidas para los usuarios de Banca de segundo piso.
 Mercado Meta Fondo BP Bienestar: Todas las personas asalariadas del sector público y del sector privado, o con ingresos propios como trabajadores independientes, que ostenten una condición de sobreendeudamiento.
 Núcleo familiar: Conjunto de personas que conviven y se han organizado para compartir las obligaciones derivadas del sustento y la protección mutua, y en el que al menos uno de ellos ostenta lazos de afinidad o consanguinidad hasta el tercer grado con los demás integrantes del núcleo. La unión de hecho según la define el artículo 242 del Código de Familia se tomará en cuenta para determinar lazos de afinidad.
 Pesca comercial pequeña escala: Pesca realizada en forma artesanal por personas físicas, sin mediar el uso de embarcación, en las aguas continentales o en la zona costera, o la practicada a bordo de una embarcación con una autonomía para faenar hasta un máximo de tres millas náuticas del mar territorial costarricense.
@@ -53,4 +53,10 @@ Riesgo de crédito: Condición a la que está expuesta la entidad de que el deud
 Seguimiento y acompañamiento: Son programas que desarrolla el Banco, a fin de brindarle seguimiento y acompañamiento a la persona jurídica, organización o empresa de la economía social solidaria que suscribe el crédito, en alianza con los entes rectores y aliados estratégicos.
 Sobreendeudamiento: Es la acumulación de deuda que impide que la persona reciba al menos un 25% de sus ingresos totales o ingresos líquidos mayor o igual al salario intangible e inembargable.
 Solución de Vivienda Clase Media (SVCM): Facilidad financiera que combina crédito y aval como medio para contribuir a resolver el problema de vivienda de la clase media según los parámetros definidos por la Gerencia General Corporativa con base en la actualización de los estudios de vivienda.
+Tasa anual máxima (TAM): Es la tasa calculada semestralmente por el Banco Central de Costa Rica para las operaciones financieras, comerciales y microcréditos, que como límite máximo podrán cobrar las personas físicas o jurídicas que otorguen financiamiento a un tercero, sin que se consideren desproporcionadas, según lo dispuesto en el artículo 36 bis de la Ley N°7472. Según lo define el artículo 3 del Reglamento de las operaciones financieras, comerciales y microcréditos que se ofrezca al consumidor.
+Tasa interés Total Anual (TITA): Corresponde a la tasa de interés nominal más el total de costos, gastos, multas, seguros y comisiones, así como cualquier otro cargo. La tasa de interés total anual contendrá:
+a. Componentes ordinarios: entiéndase todos los costos, gastos, multas, seguros, comisiones y otros cargos, se denominen o no tasa de interés, que se cobran de forma regular a los consumidores por el proveedor de servicio de crédito como parte de la operación de crédito.
+b. Componentes extraordinarios: entiéndase todos los costos, gastos, multas, comisiones, y otros cargos, se denominen o no tasa de interés, que se cobran de manera eventual a los consumidores por el proveedor de servicio de crédito como parte de la operación de crédito y que dependen de un hecho futuro.
+Según la define el artículo 3 del Reglamento de las operaciones financieras, comerciales y microcréditos que se ofrezca al consumidor.
+Tasa referencia interbancaria (TRI): Es la tasa bruta promedio ponderada por monto de las captaciones a plazo de colones y dólares, que se realizan en el sistema financiero costarricense.
 Tope de vivienda programas de Fondos Especiales: Aquel definido por la Gerencia General Corporativa con base en la actualización de los estudios de vivienda.

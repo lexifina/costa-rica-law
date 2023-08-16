@@ -1,5 +1,7 @@
-Artículo 72.
-Los beneficiarios del FAE podrán hacer uso de los siguientes tipos de avales:
-Avales Individuales y Avales de Cartera definidos en este Reglamento.
-Queda a facultad de la Gerencia General Corporativa la definición de los parámetros de cumplimiento para cada programa autorizado según la modalidad, y que serán definidos bajo las políticas y directrices Institucionales.
-Para todos los casos indicados el FAE solo podrá honrar avales y bajo ninguna premisa girar dinero.
+Artículo 72. El FAE se rige por los siguientes principios:
+a) Acceso: Este principio se relaciona con las personas físicas o jurídicas que pueden acceder al FAE y deberán ser solo aquellas que cuenten con las premisas definidas en este reglamento.
+b) Adicionalidad: Es la cantidad de financiamiento adicional que se genera, ya que el FAE permite aumentar el monto máximo de crédito por otorgar y la posibilidad de una mayor cobertura de los beneficiarios finales.
+c) Beneficio de los usuarios: El FAE debe servir para brindar como valor agregado, mejoras en las condiciones de las operaciones de crédito, tales como: Plazos de repago mayores, menores requisitos de colateral, tasas de interés más bajas, menores comisiones.
+d) Equidad: El FAE deberá implementar mecanismos que procuren la participación del mayor número posible de beneficiarios.
+e) Sostenibilidad Patrimonial: Es el principio que permite que el FAE se desarrolle y mantenga en el tiempo.
+f) Supervisión y control: Debe contemplar una serie de elementos que permitan mantener la sostenibilidad del FAE, así como acatar todos los lineamientos establecidos para el buen manejo de los fondos públicos.

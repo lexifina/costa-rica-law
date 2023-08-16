@@ -1,2 +1,1 @@
-Artículo 53. Tasas de interés:
-La Gerencia General Corporativa podrá definir la modalidad de tasa de interés que considere conveniente, tomando como referencia la Tasa Básica Pasiva sin que exceda 5 puntos porcentuales superior o inferior a la referencia; según las condiciones propias del producto definido; siempre que sean de conocimiento público. De conformidad con lo definido en la guía general de productos de crédito.
+Artículo 53. De las obligaciones en caso de garantía real. Toda persona deudora queda obligada a mantener en buen estado de uso y conservación los bienes dados en garantía, así como a cancelar los tributos, seguros y demás obligaciones que los afecten.

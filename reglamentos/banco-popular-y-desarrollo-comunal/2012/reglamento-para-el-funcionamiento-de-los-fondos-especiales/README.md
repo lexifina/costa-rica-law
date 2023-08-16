@@ -26,3 +26,4 @@ Reglamento para el Funcionamiento de los Fondos Especiales
 | 11 | 2021-09-20 | Reglamento 5858 (2021-09-20) |
 | 12 | 2022-04-04 | Reglamento 5908 (2022-04-04) |
 | 13 | 2023-01-26 | Reglamento 5972 (2023-01-26) |
+| 14 | 2023-08-16 | Reglamento 6031 (2023-08-16) |

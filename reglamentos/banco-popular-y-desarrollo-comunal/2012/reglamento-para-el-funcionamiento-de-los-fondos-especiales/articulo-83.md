@@ -1,3 +1,1 @@
-Artículo 83:
-La Dirección Banca Desarrollo Social podrá suspender total o parcialmente el otorgamiento de nuevos avales, según indicadores establecidos por la Dirección Corporativa de Riesgo.
-Estos escenarios deberán ser comunicados a la Subgerencia General de Negocios en los próximos 30 días hábiles posteriores a su detección, otorgando un plazo razonable para las correcciones del caso.
+Artículo 83. De manera periódica la entidad que otorga el crédito deberá revisar el saldo de las operaciones avaladas y podrá liberar el aval cuando posee suficiente garantía para respaldar el saldo de esas operaciones; ello con el propósito de beneficiar a otras personas y cumplir con el principio de solidaridad.

@@ -1,2 +1,1 @@
-Artículo 23.
-En el caso de créditos a personas jurídicas con garantía fiduciaria, la Gerencia General Corporativa, respetando el principio de igualdad, establecerá las condiciones en que se podrán recibir este tipo de garantías.
+Artículo 23. En el caso de créditos a personas jurídicas con garantía fiduciaria, la Gerencia General Corporativa, respetando el principio de igualdad, establecerá las condiciones en que se podrán recibir este tipo de garantías.

@@ -1,2 +1,1 @@
-Artículo 55. De los gastos de formalización:
-La Gerencia General Corporativa definirá la política aplicable a los gastos de honorarios de formalización y avalúos como parte de las condiciones establecidas para este producto.
+Artículo 55. Tasas de interés. El Comité de Activos y Pasivos podrá definir la modalidad de tasa de interés que considere conveniente, tomando como referencia la Tasa Básica Pasiva sin que exceda 5 puntos porcentuales superior o inferior a la referencia; según las condiciones propias del producto definido; siempre que sean de conocimiento público. De conformidad con lo definido en la guía general de productos de crédito.

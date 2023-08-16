@@ -1,9 +1,5 @@
-CAPÍTULO VI
-Del Fondo de Avales Especiales FAE
-El Fondo de Avales Especiales FAE, se podrá gestionar por medio de Programas de Avales Individuales o Programas de Avales de Cartera en sus diferentes modalidades.
-Artículo 68.
-Aval individual:
-Garantía otorgada a un sujeto de crédito por parte del FAE, con el fin de conceder avales parciales para los créditos de vivienda o refinanciamientos de vivienda que las personas de clase media tramiten ante el Banco y con ello facilitar el acceso a la vivienda o conservar la que ya poseen.
-Aval de cartera:
-Instrumento financiero creado para respaldar un conjunto de operaciones de crédito, garantías de participación, y/o cumplimiento mediante un tercero a favor de los beneficiarios cuyo perfil demuestre algún grado de vulnerabilidad.
-Siendo este tercero responsable de velar por las condiciones de elegibilidad que establecen los requisitos legales de este Reglamento, así como demás requerimientos que se definan en cada programa específico.
+Artículo 68. Cuando el Banco compruebe que un solicitante u obligado ha incumplido el plan de inversión, el Banco, considerando el interés institucional, respetando el principio de igualdad y de acuerdo con la gravedad de la falta podrá aplicar una de las siguientes opciones:
+a. Efectuar las correcciones del caso y mantener las condiciones del crédito,
+b. Variar la tasa de interés hasta la tasa activa más alta que en la respectiva moneda rija en ese momento en el Banco. Si la infracción se comete en un crédito que tiene la tasa activa más alta de todas, se podrá aumentar dicha tasa hasta en cinco puntos porcentuales, o,
+c. Dar por vencida la obligación y exigir su cancelación inmediata.
+En caso de que el crédito haya sido otorgado por un órgano unipersonal, la decisión deberá trasladarse al órgano colegiado con atribuciones inmediatamente superiores.

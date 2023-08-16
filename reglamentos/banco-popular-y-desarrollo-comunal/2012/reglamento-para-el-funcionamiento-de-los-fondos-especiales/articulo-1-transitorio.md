@@ -1,0 +1,1 @@
+Transitorio I: La disposición del artículo 19, tal como se establece en este reglamento, entrará en vigor a partir del 15 de noviembre del 2023. En virtud de lo anterior, lo establecido hasta la fecha de hoy se mantendrá vigente hasta dicha publicación.

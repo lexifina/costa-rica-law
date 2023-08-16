@@ -1,4 +1,5 @@
-Artículo 77.
-Para el honramiento de los avales y ante solicitud expresa de la entidad que otorga el crédito, el AFE lo tramitará en forma irrevocable e incondicional, después de la verificación del cumplimiento de requisitos definidos, de lo contrario se devuelve. Luego de transcurridos hasta noventa días naturales contados a partir del primer día de incumplimiento del deudor, según se defina para cada programa.
-En los expedientes de crédito de cada operación avalada y para una eventual revisión, deben quedar documentadas las acciones que demuestren que se ha cumplido con la debida diligencia de las gestiones cobratorias.
-Toda la gestión de honramiento del aval, así como su eventual reintegro al Área de Fondos Especiales (AFE), corresponderá a la entidad que otorga el crédito.
+Artículo 77. La formalización de cada crédito o refinanciamiento en combinación con el aval del FAE lo hará la entidad que otorga el crédito mediante el documento legal apropiado para dicho acto a utilizar en esa formalización.
+Estos documentos serán constituidos entre el beneficiario y la entidad que otorga el crédito; deben asegurar una correcta y pronta recuperación del aval.
+El FAE podrá utilizar mecanismos de contragarantías o reafianzamientos para generar mayor rentabilidad al patrimonio.
+El AFE puede hacer revisiones presenciales o virtuales de seguimiento en cualquier momento para verificar que se estén otorgando adecuadamente los avales y para hacer las recomendaciones operativas de mejora que sean necesarias, según lo normado a nivel de procedimiento.
+Estas revisiones deberán quedar evidenciadas y enviadas a la entidad que otorga el crédito.

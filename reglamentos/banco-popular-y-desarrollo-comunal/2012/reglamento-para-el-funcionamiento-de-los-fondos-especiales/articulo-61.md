@@ -1,2 +1,1 @@
-Artículo 61.
-Es potestad del Banco supervisar los créditos en todos sus aspectos, para lo cual las personas solicitantes u obligados deberán dar toda la información pertinente y colaboración que se les solicite.
+Artículo 61. Moneda del crédito. Esta modalidad de créditos se otorgará en colones.

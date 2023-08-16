@@ -1,2 +1,3 @@
-Artículo 45. Plazos:
-El plazo del crédito será de hasta 360 meses. La Gerencia General Corporativa podrá modificar ese plazo siempre que no sobrepase este límite.
+Artículo 45. De las comisiones. Para la fijación de las comisiones de los créditos deberá considerarse lo siguiente:
+a. Se establecerá una única comisión de formalización que no podrá exceder el 2% sobre el principal de la operación, la cual puede ser financiada.
+b. El Comité de Activos y Pasivos, podrá ajustar las comisiones de formalización dentro del rango establecido en el punto anterior respetando el principio de igualdad.

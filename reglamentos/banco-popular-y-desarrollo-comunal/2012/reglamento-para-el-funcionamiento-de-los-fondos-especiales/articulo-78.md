@@ -1,2 +1,5 @@
-Artículo 78.
-Una vez honrado el aval, le corresponderá a la entidad que otorga el crédito realizar todas las gestiones de cobro administrativas y judiciales con la debida diligencia hasta la resolución final según las normas vigentes en materia de Gestión Cobratoria e incluso el reintegro al Área de Fondos Especiales (AFE) del monto total o parcial del aval en caso de que se recupere. Todos los gastos que se generen por tales gestiones le serán a cargo de la entidad que otorga el crédito.
+Artículo 78. La entidad que otorga el crédito se compromete a:
+a) Mantener informada y actualizada al AFE sobre las condiciones y políticas vigentes para los programas o líneas de créditos de vivienda o refinanciamiento aprobados.
+b) Enviar mensualmente a AFE, dentro de los primeros diez días hábiles, un informe de los avales vigentes.
+c) Pagar mensualmente a favor del Área Fondos Especiales y dentro de los primeros diez días hábiles de cada mes, el monto correspondiente a las comisiones de formalización y administración que pagan los beneficiarios finales por otorgamiento y/o renovación de los avales según se haya aprobado para cada programa.
+d) Aplicar los criterios de selección de beneficiarios finales en cada programa.

@@ -1,2 +1,1 @@
-Artículo 48. Sujetos de Crédito
-Los sujetos de crédito son todas las personas asalariadas o con ingresos propios que tengan una condición de sobreendeudamiento, pero que han demostrado interés en cancelar sus obligaciones, independientemente de su calificación crediticia en la SUGEF.
+Artículo 48. Modalidad del crédito. Este crédito se deberá formalizar únicamente en moneda nacional.

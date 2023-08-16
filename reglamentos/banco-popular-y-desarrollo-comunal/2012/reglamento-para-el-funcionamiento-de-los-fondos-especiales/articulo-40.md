@@ -1,3 +1,1 @@
-Artículo 40. De las obligaciones:
-Toda persona deudora queda obligada a mantener en buen estado de uso y conservación los bienes dados en garantía, así como a cancelar los tributos, seguros y demás obligaciones que los afecten. En caso contrario, el Banco queda facultado para realizar todos los actos necesarios para la conservación del bien, así como a realizar los respectivos pagos que estos generen, los cuales se cargarán al monto pendiente de la deuda.
-Ni la persona deudora ni propietaria podrá gravar el bien dado en garantía, ni venderlo, traspasarlo, arrendarlo, trasladarlo o prestarlo sin autorización del nivel resolutivo correspondiente. En caso de incumplimiento de lo anterior, el Banco podrá dar por vencida y hacer exigible la obligación.
+Artículo 40. De las garantías. Se recibirá en garantía solamente hipoteca en primer grado sobre la vivienda a financiar o que se vaya a construir.

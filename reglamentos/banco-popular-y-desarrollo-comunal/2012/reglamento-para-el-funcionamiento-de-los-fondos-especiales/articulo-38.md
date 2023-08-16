@@ -1,2 +1,1 @@
-Artículo 38. Requisitos del expediente de crédito:
-Los expedientes de crédito deben contener los requisitos establecidos en el Reglamento General de Crédito del Banco Popular y de Desarrollo Comunal y mantener actualizada la Política Conozca a su Cliente.
+Artículo 38. Queda a facultad de la Gerencia General Corporativa la definición de los parámetros de cumplimiento para la determinación de los sujetos de crédito para optar por el Fondo Especial de Vivienda (FEVI). Los que serán definidos bajo las políticas y directrices institucionales.
