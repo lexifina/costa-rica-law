@@ -1,3 +1,1 @@
-Artículo 15.
-La Gerencia General Corporativa, respetando el principio de igualdad, podrá establecer tasas de interés diferenciadas dentro de los rangos indicados para distintas líneas de crédito y planes de inversión, considerando, para ello, entre otras cosas, el calce de plazos, el costo de los recursos, el fin social del crédito, el riesgo y otros negocios colaterales que puedan celebrarse con la clientela.
-Para ciertos productos la Administración podrá definir una tasa fija durante un periodo prudencial con base en estudios técnicos, sin exceder los límites fijados en este marco.
+Artículo 15° Las tasas de interés definidas más todos los componentes de costos en que incurra el deudor durante la vida del crédito (Tasa TITA) no podrá ser mayor a la tasa de interés máxima (TAM) definida por el Banco Central vigente al momento del otorgamiento del crédito.

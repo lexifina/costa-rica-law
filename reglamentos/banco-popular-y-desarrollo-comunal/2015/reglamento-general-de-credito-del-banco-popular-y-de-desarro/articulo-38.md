@@ -1,7 +1,5 @@
-*Artículo 38.
-Cuando el Banco compruebe que la persona solicitante u obligada ha infringido cualquiera de las condiciones convenidas en la contratación del préstamo o en este Reglamento no indicadas en los dos artículos anteriores, salvo atraso de la operación, y considerando el interés institucional, respetando el principio de igualdad y de acuerdo con la gravedad de la falta, podrá aplicar una de las siguientes opciones:
+Artículo 38° Cuando el Banco compruebe que la persona solicitante u obligada ha incumplido el plan de inversión, el Banco, considerando el interés institucional, respetando el principio de igualdad y de acuerdo con la gravedad de la falta podrá aplicar una de las siguientes opciones:
 a) efectuar las correcciones del caso y mantener las condiciones del crédito,
-b) variar la tasa de interés hasta la tasa activa más alta que en la respectiva moneda rija en ese momento en el Banco. Si la infracción se comete en un crédito que tiene la tasa activa más alta de todas, se podrá aumentar dicha tasa hasta en cinco puntos porcentuales o,
+b) variar la tasa de interés hasta la tasa activa más alta que en la respectiva moneda rija en ese momento en el Banco. Si la infracción se comete en un crédito que tiene la tasa activa más alta de todas, se podrá aumentar dicha tasa hasta en cinco puntos porcentuales, o,
 c) dar por vencida la obligación y exigir su cancelación inmediata.
 En caso de que el crédito haya sido otorgado por un órgano unipersonal, la decisión deberá trasladarse al órgano colegiado con atribuciones inmediatamente superiores.
-* Este artículo fue modificado por la Junta Directiva Nacional, en sesión 5205 del 28 de agosto de 2014. Publicado en el Alcance Digital N. 60 de la Gaceta No. 207 del 28 de octubre de 2014.

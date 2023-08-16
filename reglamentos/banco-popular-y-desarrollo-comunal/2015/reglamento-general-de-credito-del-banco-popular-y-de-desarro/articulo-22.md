@@ -1,6 +1,6 @@
-Capítulo VII.
-DE LOS NIVELES DE RESOLUCIÓN DE CRÉDITO
-Artículo 22.
-Los niveles de resolución de créditos se establecen en la Tabla N° 4 de este Reglamento.
-Cuando el respectivo nivel resolutivo no pueda conformarse por imposibilidad material para aprobar o improbar una negociación de pago, se podrá activar el nivel resolutivo subsiguiente superior para la decisión que corresponda.
-(Así reformado mediante sesión N° 5904 del 21 de marzo del 2022)
+Artículo 22° Para determinar la capacidad de pago para la parte deudora, personas físicas o jurídicas, sin actividad productiva, se determinará según el ingreso. En el caso de personas físicas se considerará, cuando corresponda, los ingresos del núcleo familiar.
+Para las personas jurídicas o físicas con actividad productiva, se determinará la capacidad de pago con base en supuestos técnicos de la actividad que genera el ingreso. Considerando siempre, en ambos casos, los escenarios de estrés con fundamento en la metodología aprobada por la Junta Directiva Nacional.
+El nivel de endeudamiento se determinará de la Relación Carga Financiera Total (Amortización, intereses y pólizas) / ingreso neto o flujo de caja libre y estarán diferenciados por segmentos de ingresos y perfil de riesgo.
+. Los niveles de endeudamiento máximos para personas físicas se establecen en: escenario normal hasta un 80%, escenario moderado y severo nivel 3 y 4 hasta un 100%; para personas jurídicas los niveles máximos serán hasta de un 90% en escenario normal, hasta un 85% en escenario moderado y severo nivel 3 y 4 hasta un 100%; aplicando las variaciones en las tasas de interés, tipo de cambio y por concentraciones de compradores y proveedores.
+. La Junta Directiva Nacional establecerá metodologías diferenciadas para medir la capacidad de pago.
+. Queda autorizada la Gerencia General Corporativa para establecer porcentajes de endeudamiento diferenciados según los segmentos y perfil de riesgos definidos siempre y cuando se mantenga el principio de igualdad en cada uno de los estratos definidos y no sobrepasen los topes establecidos en este Reglamento.

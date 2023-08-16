@@ -1,2 +1,3 @@
-Artículo 20.
-Queda autorizada la Gerencia General Corporativa para establecer plazos y montos máximos diferenciados para líneas de crédito, planes de inversión o por tipo de garantía, dentro de una misma línea de crédito, siempre y cuando se mantenga el principio de igualdad en cada uno de los estratos definidos y no se sobrepasen los topes establecidos por este Reglamento.
+Capítulo VI.
+DE LOS PLAZOS Y CAPACIDAD DE PAGO
+Artículo 20° Los préstamos que el Banco conceda se cancelarán conforme a lo previsto en el artículo 70 de la Ley Orgánica del Sistema Bancario Nacional.

@@ -1,2 +1,1 @@
-Artículo 17.
-La Gerencia General Corporativa definirá, dentro de un rango del 0% al 5% el porcentaje de las comisiones que se cobrarán sobre los préstamos, otras modalidades de créditos o sobre otras gestiones relacionadas con su concesión y recuperación, así como la frecuencia de su cobro y base de cálculo. Dichas comisiones, podrán ser financiadas.
+Artículo 17° El Comité de Activos y Pasivos podrá revisar y ajustar las tasas de interés vigentes para cada línea de crédito y plan de inversión, en función del comportamiento de mercado o de la tasa de referencia, respetando el principio de igualdad. Toda modificación que se realice en las tasas activas de interés deberá ser informada a la Junta Directiva Nacional en el mes calendario siguiente a la toma de decisión.

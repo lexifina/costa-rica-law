@@ -1,2 +1,1 @@
-Artículo 35.
-Cuando el Banco compruebe que la persona solicitante u obligada dolosamente ha suministrado información falsa, sin perjuicio de la obligación del Banco de presentar la denuncia correspondiente, se tendrá por vencida la obligación.
+Artículo 35° Cuando el Banco lo requiera, realizará el avalúo correspondiente para verificar el estado de los bienes recibidos en garantía y actualizar su valoración.

@@ -1,4 +1,2 @@
-Capítulo VI.
-DE LOS PLAZOS Y CAPACIDAD DE PAGO
-Artículo 19.
-Los préstamos que el Banco conceda se cancelarán conforme a lo previsto en el artículo 70 de la Ley Orgánica del Sistema Bancario Nacional.
+Artículo 19° En el caso de descuento de instrumentos financieros o comerciales, se cobrará una comisión de descuento que oscilará dentro de un rango del 0% al 5% mensual y por anticipado por el período de la recuperación efectiva de los respectivos instrumentos financieros o comerciales.
+De igual manera, el Comité de Activos y Pasivos, respetando el principio de igualdad, podrá establecer comisiones diferenciadas dentro de los rangos indicados para distintas líneas de crédito, planes de inversión o por tipo de garantía, considerando para ello, entre otras cosas, el calce de plazos, el riesgo, el costo de los recursos y otros negocios colaterales que el Banco realice con la persona cliente. Este párrafo también se aplicará a lo establecido en el artículo 18.

@@ -22,3 +22,4 @@ Reglamento General de Crédito del Banco Popular y de Desarrollo Comunal
 | 7 | 2021-12-06 | Reglamento 5878 (2021-12-06) |
 | 8 | 2022-03-21 | Reglamento 5904 (2022-03-21) |
 | 9 | 2023-01-26 | Reglamento 5972 (2023-01-26) |
+| 10 | 2023-08-16 | Reglamento 6031 (2023-08-16) |

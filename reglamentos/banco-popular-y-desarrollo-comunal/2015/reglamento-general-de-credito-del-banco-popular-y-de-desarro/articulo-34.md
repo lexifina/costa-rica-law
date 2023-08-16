@@ -1,2 +1,1 @@
-Artículo 34.
-Cuando el Banco lo requiera, realizará el avalúo correspondiente para verificar el estado de los bienes recibidos en garantía y actualizar su valoración.
+Artículo 34° En la etapa de seguimiento, el Banco clasificará a la parte deudora con el nivel de capacidad de pago correspondiente, de conformidad con lo establecido por la Instancias de fiscalización y según los parámetros aprobados por la Junta Directiva Nacional.

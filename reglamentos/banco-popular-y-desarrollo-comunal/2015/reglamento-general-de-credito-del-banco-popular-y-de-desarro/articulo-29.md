@@ -1,4 +1,3 @@
-Capítulo VIII.
-DE LA FORMALIZACIÓN Y DESEMBOLSO
-Artículo 29.
-Los desembolsos de los créditos aprobados están sujetos a la disponibilidad de recursos del Banco. En caso de los créditos formalizados en moneda extranjera, y cuando el Banco no tenga disponibilidad de ella, podrán girarse los recursos en moneda nacional si la clientela así lo consiente.
+Artículo 29° Contra lo resuelto por cualquier nivel resolutivo en relación con un crédito caben los recursos de revocatoria y apelación. Es potestativo usar uno o ambos recursos, pero será inadmisible el interponerlos fuera de los plazos que se señalan a continuación.
+Dichos recursos se interpondrán ante el órgano que dictó el acto impugnado, dentro del término de los tres días hábiles contados a partir de la notificación.
+La revocatoria la resolverá quien dictó el acto y la apelación, la Supervisión Jerárquica de la Dependencia Administrativa que atiende la revocatoria.
