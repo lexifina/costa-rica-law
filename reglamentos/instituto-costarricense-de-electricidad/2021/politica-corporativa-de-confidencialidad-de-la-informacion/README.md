@@ -15,3 +15,4 @@ Política corporativa de confidencialidad de la información
 | --- | --- | --- |
 | 1 | 2022-01-21 | la propia norma |
 | 2 | 2023-04-18 | Reglamento 6569 (2023-04-18) |
+| 3 | 2023-08-16 | Reglamento 6587 (2023-08-16) |
