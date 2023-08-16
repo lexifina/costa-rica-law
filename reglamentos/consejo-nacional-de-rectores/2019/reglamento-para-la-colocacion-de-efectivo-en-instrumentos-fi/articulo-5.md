@@ -1,0 +1,1 @@
+Artículo 5º-Del sector a invertir. La colocación de efectivo solo podrá realizarse a través de los bancos con respaldo estatal. Aquellos en que medie la Bolsa Nacional de Valores, deberán colocarse a través de un puesto de Bolsa autorizado y deberá invertirse en títulos emitidos por el sector público, exclusivamente.

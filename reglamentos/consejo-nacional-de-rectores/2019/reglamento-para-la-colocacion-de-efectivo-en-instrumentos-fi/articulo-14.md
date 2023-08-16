@@ -1,0 +1,1 @@
+Artículo 14.-Sobre la colocación. El Departamento de Gestión Financiera en conjunto con la Dirección administrativa serán los encargados de definir la situación financiera para el cometido, para lo cual tendrá en cuenta lo dispuesto en el artículo 5 de este reglamento.

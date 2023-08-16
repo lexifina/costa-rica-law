@@ -1,0 +1,1 @@
+Artículo 15.-Del encargado del control de inversiones. El Departamento de Gestión Financiera definirá el encargado de inversiones, para lo cual tomará en cuenta lo establecido por el manual de puestos, el encargado a su vez será el responsable de gestionar la adquisición o liquidación de inversiones.

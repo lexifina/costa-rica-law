@@ -1,0 +1,1 @@
+Artículo 21.-Arqueo de títulos físicos. En caso de que existan títulos valores físicos, el Departamento de Gestión Financiera deberá realizar un arqueo al menos cada 6 meses con el fin de garantizar el control de los mismos. Por ningún motivo el responsable del arqueo puede ser el mismo responsable del control de las inversiones.

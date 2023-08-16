@@ -1,0 +1,1 @@
+Artículo 13.-De la programación financiera. El DGF deberá realizar las proyecciones sustentadas técnicamente, de manera que no se perjudiquen los compromisos económicos de conformidad con lo dispuesto en el artículo 6 de este reglamento.

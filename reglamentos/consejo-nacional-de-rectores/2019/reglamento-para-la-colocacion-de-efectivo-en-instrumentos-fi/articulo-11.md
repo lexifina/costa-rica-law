@@ -1,0 +1,1 @@
+Artículo 11.-De la afectación presupuestaria. Las inversiones en instrumentos financieros se consideran flujos de efectivo o de tesorería, motivo por el cuál no representan afectación presupuestaria, salvo por lo dispuesto en el artículo 10 de este cuerpo normativo.

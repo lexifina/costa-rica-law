@@ -1,0 +1,1 @@
+Artículo 9º-De la responsabilidad. La responsabilidad de realizar o liquidar inversiones en instrumentos financieros corresponde al departamento de gestión financiera con el visto bueno de la dirección administrativa, el cual deberá llevar un flujo de efectivo con el fin de garantizar el efectivo que se invertirá.

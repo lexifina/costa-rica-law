@@ -1,0 +1,1 @@
+Artículo 22.-Del informe. El responsable del control de las inversiones en instrumentos financieros, debe estar en plena capacidad de emitir informes cuando se le sean solicitados, con fin de facilitar la toma de decisiones.

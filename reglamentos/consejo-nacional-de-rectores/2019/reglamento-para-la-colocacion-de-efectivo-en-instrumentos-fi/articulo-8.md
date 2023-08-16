@@ -1,0 +1,1 @@
+Artículo 8º-De recursos disponibles. En caso de excedentes temporales de efectivo o donaciones que así lo requieran, deberán destinarse a inversiones a plazo, siempre y cuando no afecte los compromisos financieros y operativos del CONARE.

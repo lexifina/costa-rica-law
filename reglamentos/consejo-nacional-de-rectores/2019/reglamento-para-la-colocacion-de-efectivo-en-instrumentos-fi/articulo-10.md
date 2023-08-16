@@ -1,0 +1,1 @@
+Artículo 10.-Del rendimiento por intereses. Los intereses que generan tales inversiones, deben incorporarse al presupuesto, de conformidad con las normas técnicas de presupuesto y demás directrices emitidas por la Contraloría General de la República.

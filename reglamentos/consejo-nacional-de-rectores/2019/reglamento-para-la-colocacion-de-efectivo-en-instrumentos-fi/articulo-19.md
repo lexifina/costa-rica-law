@@ -1,0 +1,1 @@
+Artículo 19.-Información de las inversiones. Se deberá llevar un expediente físico o digital que contenga la información suficiente que le permita a la administración ejercer un control estricto de las inversiones, para ello se tomará en cuenta lo establecido por las políticas contables, y las NICSP aplicables.

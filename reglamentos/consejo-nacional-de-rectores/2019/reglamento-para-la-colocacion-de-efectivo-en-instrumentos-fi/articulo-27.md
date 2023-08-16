@@ -1,0 +1,1 @@
+Artículo 27.-De la estructura organizacional. Si la estructura organizativa de la Institución es modificada, las funciones asignadas a las dependencias señaladas en este reglamento, serán asumidas por las nuevas dependencias que por su naturaleza tengan esta labor.

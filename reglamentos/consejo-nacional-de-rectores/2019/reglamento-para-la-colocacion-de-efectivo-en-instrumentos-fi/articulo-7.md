@@ -1,0 +1,1 @@
+Artículo 7º-Del control interno. La colocación, gestión y liquidación de las inversiones deberá apegarse en todos los casos, a lo dispuesto por la ley 8292, Ley General de Control Interno, y normas de control interno, con el fin de salvaguardar los recursos públicos.

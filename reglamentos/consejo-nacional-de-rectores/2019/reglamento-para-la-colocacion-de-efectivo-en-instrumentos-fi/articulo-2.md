@@ -1,0 +1,1 @@
+Artículo 2º-Objetivo. El presente Reglamento tiene como objetivo dotar al Consejo Nacional de Rectores, de un instrumento que le permita normar en materia administrativa y contable la administración de inversiones en instrumentos financieros y otros valores negociables.
