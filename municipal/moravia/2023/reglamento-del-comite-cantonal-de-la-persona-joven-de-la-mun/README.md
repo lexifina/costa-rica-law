@@ -14,3 +14,4 @@ Reglamento del Comité Cantonal de la Persona Joven de la Municipalidad de Morav
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-07-03 | la propia norma |
+| 2 | 2023-08-16 | Reglamento municipal 0 (2023-08-16) |
