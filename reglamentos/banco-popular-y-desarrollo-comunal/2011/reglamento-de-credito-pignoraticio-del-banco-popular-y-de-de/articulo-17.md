@@ -1,2 +1,1 @@
-Artículo 17.—De la publicación del remate:
-La fecha, hora y sitio donde se celebrará el remate se publicará una sola vez en el diario oficial La Gaceta. Entre la publicación y la fecha de remate debe de mediar un plazo no inferior a diez días hábiles, donde no se contará la fecha de la publicación y sí la del remate.
+Artículo 17.-De la publicación del remate: La fecha, hora y sitio donde se celebrará el remate se publicará una sola vez en el diario oficial La Gaceta. Entre la publicación y la fecha de remate debe de mediar un plazo no inferior a diez días hábiles, donde no se contará la fecha de la publicación y sí la del remate.

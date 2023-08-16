@@ -1,3 +1,2 @@
-Artículo 9º—De los niveles de resolución de crédito:
-Los niveles de resolución de créditos y los montos máximos que estos pueden aprobar se establecen en la tabla anexa a este Reglamento.
+Artículo 9º-De los niveles de resolución de crédito: Los niveles de resolución de créditos y los montos máximos que estos pueden aprobar se establecen en la tabla anexa a este Reglamento.
 El nivel resolutivo que corresponda deberá llevar una bitácora. La bitácora contendrá al menos la siguiente información: número de solicitud, línea de crédito, monto, nombre del deudor, tasa de interés, plazo, tipo de garantía y resolución, la cual deberá ser firmada por todos los miembros del nivel resolutivo participante, indicando a su vez, si cada integrante votó a favor o en contra.

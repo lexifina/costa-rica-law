@@ -1,1 +1,1 @@
-Artículo 10.—Derogado
+Artículo 10.-Derogado

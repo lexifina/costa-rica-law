@@ -1,3 +1,3 @@
-Artículo 27.—De la venta directa:
-Los bienes adjudicados por el Banco en remate se podrán vender en forma directa. El precio de venta directa de los bienes se establecerá según la metodología de valoración vigente, más un porcentaje adicional que se establecerá siguiendo lo normado en el procedimiento respectivo.
+Artículo 27.-De la venta directa: Los bienes adjudicados por el Banco en remate se podrán vender en forma directa.
+El precio de venta directa de los bienes se establecerá según la metodología de valoración vigente, más un porcentaje adicional que se establecerá siguiendo lo normado en el procedimiento respectivo.
 A discreción del Banco, se realizarán remates de esas existencias adjudicadas por el Banco, conjuntamente con los remates calendarizados. El remate de dichos bienes adjudicados se hará de conformidad con las disposiciones aplicables en materia de contratación administrativa.
