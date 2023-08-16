@@ -1,9 +1,0 @@
-II. Desinscripción por robo.
-Declarada la pérdida del vehículo por causa de robo el propietario registral; demostrando la propiedad del vehículo con los documentos que a continuación se indican, deberá solicitar la desinscripción del automotor:
-a) La solicitud deberá estar suscrita por el propietario del vehículo o por un apoderado de la entidad aseguradora que tenga facultades suficientes, con indicación de las citas de inscripción de la personería. No se exigirá la presentación de una certificación al respecto.
-b) La firma del representante de la aseguradora deberá venir autenticada por un notario público adjuntándose la respectiva boleta de seguridad.
-c) La solicitud deberá contener la identificación del vehículo respecto de sus características esenciales y número de placa, que corresponda a la codificación inscrita actualmente.
-d) Si la solicitud de desinscripción la realiza la entidad aseguradora, deberá su apoderado manifestar que dispone de autorización contenida en el expediente indemnizatorio del dueño del vehículo para gestionar la desinscripción o indicar que le ha sido traspasada su propiedad con indicación de las citas de la escritura pública donde se formalizó el negocio.
-e) Debe constar la cancelación de los derechos de circulación del año fiscal vigente. En los casos que conste la denuncia de robo en el sistema se aplicará lo estipulado en el artículo 19 de la Ley de Tránsito, debiendo aportar a la solicitud sello valor de Hacienda con el cálculo del artículo 9° de la Ley N° 7088 y demostrar el pago de este impuesto.
-f) Debe constar la anotación de la denuncia de robo del vehículo interpuesta ante el Organismo de Investigación Judicial, en los casos de que esta denuncia haya sido levantada; debe aportar el depósito de la placa o en su defecto declaración jurada y constancia del COSEVI que haga constar que las placas no están retenidas.
-g) Debe aportar entero de timbres correspondiente.
