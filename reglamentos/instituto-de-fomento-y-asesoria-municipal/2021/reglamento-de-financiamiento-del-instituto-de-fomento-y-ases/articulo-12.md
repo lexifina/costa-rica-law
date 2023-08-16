@@ -4,11 +4,13 @@ b. Perfil del Proyecto a financiar, el cual debe contemplar los requerimientos t
 c. Certificación única emitida por el sujeto de financiamiento, la cual deberá detallar la siguiente información:
 . Deudas vigentes del sujeto de financiamiento con otras entidades financieras.
 . Pendiente de cobro de las rentas municipales que están siendo ofrecidas como garantía de pago a la última fecha de corte.
-d. Estados financieros con corte a la fecha más próxima de cierre a la presentación de la solicitud de financiamiento y de los últimos 3 años, los cuales deberán aportar los siguientes:
-. Estado de situación financiera del sujeto de financiamiento.
+d. Estados financieros de los últimos 3 años con cierre al 31 de diciembre y un corte acumulado cuando aplique de al menos 4 meses antes de la presentación de los requisitos de financiamiento, los cuales deberán aportar los siguientes:
+. Balance General.
 . Estado de Resultados.
 . Estado de Flujo de Efectivo.
-. Proyección del Flujo de Caja.
+. Notas de los estados financieros.
+. Proyección del Flujo de Caja del proyecto.
+(Así reformado el inciso d) anterior mediante sesión N° 29-2023 del 16 de agosto del 2023)
 e. Presupuesto ordinario vigente y extraordinarios, en caso de que los hubiera.
 f. Informe histórico de recuperación de las rentas municipales ofrecidas como garantía de pago, de los últimos cinco años.
 g. Cualquier otro requisito que técnica y financieramente se considere procedente de acuerdo con la naturaleza del proyecto a financiar, para la cual se definirá un plazo para la entrega.
