@@ -15,3 +15,4 @@ Reglamento de activos de la Municipalidad de Moravia
 | --- | --- | --- |
 | 1 | 2023-06-27 | la propia norma |
 | 2 | 2023-08-16 | Reglamento municipal 0 (2023-08-16) |
+| 3 | 2023-08-16 | Reglamento municipal 0 (2023-08-16) |

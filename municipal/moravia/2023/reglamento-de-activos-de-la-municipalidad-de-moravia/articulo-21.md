@@ -4,3 +4,5 @@ b) Verificar la existencia física real de los activos incluidos en el listado q
 c) Velar porque los activos adscritos a su centro de trabajo tengan buen uso, mantenimiento, reparación y que estén bajo el cuidado de una persona responsable.
 d) Velar por que los activos asignados mantengan la placa de identificación, si por algún motivo desapareciera o sufriera daño, deberá informar al encargado de control de activos.
 e) Cumplir con cualquier otra disposición aplicable regulada por este Reglamento.
+f) No podrán utilizarlos en asuntos ajenos a sus tareas en la Municipalidad de Moravia.
+(Así adicionado el inciso anterior mediante acuerdo 2225- 2023 tomado en fecha dieciséis de agosto del 2023)
