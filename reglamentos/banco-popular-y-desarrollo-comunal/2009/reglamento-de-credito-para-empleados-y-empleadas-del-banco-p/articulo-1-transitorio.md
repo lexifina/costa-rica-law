@@ -1,1 +1,1 @@
-Transitorio I.—Los créditos otorgados a los empleados con anterioridad a la vigencia del presente reglamento se podrán adecuar a las disposiciones en cuanto a tasa de interés aquí reglamentada, sin necesidad de efectuar cambios en los títulos ejecutivos.
+Transitorio I. - Los créditos otorgados a los empleados con anterioridad a la vigencia del presente reglamento se podrán adecuar a las disposiciones en cuanto a tasa de interés aquí reglamentada, sin necesidad de efectuar cambios en los títulos ejecutivos.

@@ -1,1 +1,1 @@
-Artículo 18.—De los giros por partidas. En aquellos créditos donde por su naturaleza sea necesario girar por partidas, los desembolsos se harán previo informe del perito o funcionario designado por el Banco para ejecutar la supervisión.
+Artículo 18 º De los giros por partidas. En aquellos créditos donde por su naturaleza sea necesario girar por partidas, los desembolsos se harán previo informe del perito o funcionario designado por el Banco para ejecutar la supervisión.

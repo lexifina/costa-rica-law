@@ -1,2 +1,2 @@
-Disposiciones finales
-Artículo 22.—Falta grave. Se considerará falta grave del empleado, cuando el Banco compruebe que se ha suministrado información falsa, incumplido el plan de inversión o cualquiera de las condiciones convenidas en la contratación del préstamo o en este Reglamento, salvo mora, además de variar la tasa de interés hasta la tasa activa más alta que rija en ese momento en el Banco, podrá iniciar los procesos disciplinarios que estime pertinentes.
+Disposiciones Finales
+Artículo 22 º Falta grave. Se considerará falta grave del empleado, cuando el Banco compruebe que se ha suministrado información falsa, incumplido el plan de inversión o cualquiera de las condiciones convenidas en la contratación del préstamo o en este Reglamento, salvo mora, además de variar la tasa de interés hasta la tasa activa más alta que rija en ese momento en el Banco, podrá iniciar los procesos disciplinarios que estime pertinentes.

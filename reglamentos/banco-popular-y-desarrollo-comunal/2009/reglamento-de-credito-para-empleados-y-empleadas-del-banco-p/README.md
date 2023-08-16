@@ -14,3 +14,4 @@ Reglamento de Crédito para Empleados y Empleadas del Banco Popular y Desarrollo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-06-22 | la propia norma |
+| 2 | 2023-08-16 | Reglamento 6031 (2023-08-16) |

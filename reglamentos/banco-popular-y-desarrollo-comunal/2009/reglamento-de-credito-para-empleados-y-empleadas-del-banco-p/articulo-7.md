@@ -1,1 +1,1 @@
-Artículo 7º—De la referencia para fijar tasas de interés. Para la fijación de las tasas de interés de los créditos se tomará como referencia la tasa básica pasiva (TBP) calculada por el Banco Central de Costa Rica, y lo estipulado en el Reglamento General de Crédito para tal fin.
+Artículo 7 º De la referencia para fijar tasas de interés. Para la fijación de las tasas de interés de los créditos se tomará como referencia la tasa básica pasiva (TBP) calculada por el Banco Central de Costa Rica, y lo estipulado en el Reglamento General de Crédito para tal fin.

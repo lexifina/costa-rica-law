@@ -1,1 +1,1 @@
-Artículo 21.—Realización de avalúos. Cuando el Banco considere pertinente realizará el avalúo correspondiente para verificar el estado de los bienes dados en garantía y su valoración actualizada para lo cual deberá recibir toda la colaboración del deudor.
+Artículo 21 º Realización de avalúos. Cuando el Banco considere pertinente realizará el avalúo correspondiente para verificar el estado de los bienes dados en garantía y su valoración actualizada para lo cual deberá recibir toda la colaboración del deudor.

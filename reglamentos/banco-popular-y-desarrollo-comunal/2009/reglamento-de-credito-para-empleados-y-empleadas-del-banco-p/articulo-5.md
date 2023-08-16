@@ -1,1 +1,1 @@
-Artículo 5º—Garantías reales. Tratándose de garantía real, ésta deberá ser de primer grado sobre el bien inscrito cuando la inscripción proceda. En el caso de hipotecas de segundo grado, se aceptará únicamente lo estipulado en el Reglamento General de Crédito.
+Artículo 5 º Garantías reales. Tratándose de garantía real, ésta deberá ser de primer grado sobre el bien inscrito cuando la inscripción proceda. En el caso de hipotecas de segundo grado, se aceptará únicamente lo estipulado en el Reglamento General de Crédito.

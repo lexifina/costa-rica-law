@@ -1,1 +1,1 @@
-Artículo 20.—Obligación de brindar información. Es potestad del Banco supervisar los créditos en todos sus aspectos, para lo cual los solicitantes u obligados deberán dar toda la información y colaboración que se les solicite.
+Artículo 20 º Obligación de brindar información. Es potestad del Banco supervisar los créditos en todos sus aspectos, para lo cual los solicitantes u obligados deberán dar toda la información y colaboración que se les solicite.

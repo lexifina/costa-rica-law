@@ -1,1 +1,1 @@
-Artículo 10.—De los plazos. Los préstamos que el Banco conceda a los empleados se cancelarán conforme a lo estipulado en esta materia en el Reglamento General de Crédito y de conformidad a las diferentes líneas crediticias.
+Artículo 10 º De los plazos. Los préstamos que el Banco conceda a los empleados se cancelarán conforme a lo estipulado en esta materia en el Reglamento General de Crédito y de conformidad a las diferentes líneas crediticias.
