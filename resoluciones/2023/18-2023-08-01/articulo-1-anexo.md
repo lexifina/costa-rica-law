@@ -1,0 +1,19 @@
+ANEXO 1
+DECLARACIÓN JURADA PARA TRIBUTAR RENTAS DE CAPITAL INMOBILIARIAS
+Y/O MOBILIARIAS EN EL IMPUESTO SOBRE LAS UTILIDADES
+Yo _________________, portador de la cédula de identidad número _______, en mi condición de contribuyente / representante legal de ________________ (razón o denominación social), cédula jurídica número __________________ declaro bajo fe de juramento que:
+(Debe marcar solo la opción correspondiente) Régimen de Capital Inmobiliario
+( ) Declaro que una parte de mis rentas obtenidas por arrendamientos inmobiliarios se encuentran afectas a una actividad lucrativa sujeta al Impuesto sobre las Utilidades distinta de las establecidas en el artículo 5 del Reglamento de la Ley del Impuesto sobre la Renta, por lo que al encontrarse afectas a dicho impuesto, estas deben ser integradas a la declaración del Impuesto sobre las Utilidades.
+( ) Declaro que la totalidad de mis rentas obtenidas por arrendamientos inmobiliarios se encuentran afectas a una actividad lucrativa sujeta al impuesto sobre las utilidades, al ser rentas distintas a las establecidas el artículo 5 del Reglamento a la Ley del Impuesto sobre la Renta, por lo que las mismas deben estar integradas a la declaración del Impuesto sobre las Utilidades.
+( ) Opto por tributar en el Impuesto sobre las Utilidades las rentas obtenidas por arrendamientos inmobiliarios según los artículos 28 de la ley del Impuesto sobre la Renta y el artículo 5 de su Reglamento. Para lo cual cuento con un mínimo de un empleado para la generación de estas rentas, el cual se encuentra sometido al régimen de cotización de la Caja Costarricense de Seguro Social. Esta opción la tomo por un mínimo de cinco periodos fiscales anuales.
+Régimen de Capital Mobiliario
+( ) Declaro que una parte de mis rentas obtenidas por arrendamientos mobiliarios se encuentran afectas a una actividad lucrativa sujeta al Impuesto sobre las Utilidades distinta de las establecidas en el artículo 6 del Reglamento a la Ley del Impuesto sobre la Renta, por lo que al encontrarse afectas estas deben integrarse a la declaración del Impuesto sobre las Utilidades.
+( ) Declaro que las totalidad de mis rentas obtenidas por arrendamientos mobiliarios se encuentran afectas a una actividad lucrativa sujeta al impuesto sobre las utilidades, distinta de las establecidas en el artículo 6 del Reglamento a la Ley del Impuesto sobre la Renta, por lo que las mismas están integradas en la declaración del impuesto sobre las utilidades.
+( ) Opto por tributar en el Impuesto sobre las Utilidades las rentas obtenidas por arrendamientos mobiliarios, según el artículo 6 del Reglamento a la Ley del Impuesto sobre la Renta, para lo cual cuento con un mínimo de un empleado para la generación de estas rentas, el cual se encuentra sometido al régimen de cotización de la Caja Costarricense de Seguro Social.
+Nombre del empleado (a): __________________________________________________________
+N° identificación del empleado (a): ___________________________________________________
+Quedo entendido(a) que la presente declaración jurada, no implica que la Administración Tributaria pierda su facultad de ejercer los controles tributarios para verificar lo declarado y asumo las responsabilidades y consecuencias legales que correspondan en caso de falsedad u omisión de la información contenida en la misma.
+Firmo en la ciudad de __________________, el día ____ del mes de ____________ del año _____
+Firma del obligado tributario o representante legal
+Para realizar esta gestión el contribuyente debe tener actualizados los datos en el Registro Único Tributario.
+NOTA: La firma del obligado tributario o del representante legal, debe se autenticada por abogado o notario sólo si no se presentan personalmente a realizar el trámite. Igualmente, si la gestión se presenta digitalmente basta la firma digital.
