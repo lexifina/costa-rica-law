@@ -13,3 +13,4 @@ Tabla de Plazos de Conservación de Documentos de Proceso de Reclutamiento y Sel
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-05-23 | la propia norma |
+| 2 | 2023-08-17 | Circular 195 (2023-08-17) |
