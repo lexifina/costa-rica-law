@@ -14,3 +14,4 @@ Reglamento para el sistema de ahorro y préstamo del Instituto Nacional de Vivie
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-05-18 | la propia norma |
+| 2 | 2023-08-17 | Reglamento 6595 (2023-08-17) |

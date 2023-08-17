@@ -1,7 +1,13 @@
-Artículo 6.- La persona suscriptora queda comprometida a satisfacer puntualmente las cuotas mensuales de ahorro. Cualquier atraso en el pago de estas que exceda de tres meses; diferirá la concesión del crédito en un número de meses igual al número de cuotas mensuales no cubiertas en su oportunidad, menos tres meses de gracia.
-También la persona suscriptora podrá cancelar las cuotas y los intereses no percibidos por el Sistema, tomándose en cuenta igualmente para estos casos los tres meses de gracia.
-En este último caso, el cálculo de los intereses se hará considerando el mecanismo de interés compuesto, aplicando la tasa activa para vivienda del Banco Nacional.
-De lo anterior, en el caso de uso anticipado de contratos, se regirá por el Reglamento por Asignación de los contratos del Sistema de Ahorro y Préstamo No. 5476.
+Artículo 6.- La persona suscriptora queda comprometida a satisfacer puntualmente las cuotas mensuales de ahorro.
+Una vez que la persona suscriptora haya completado el ahorro y cumplido con el plazo establecido según el plan suscrito podrá hacer uso de su derecho al crédito siempre y cuando se haya cubierto como mínimo un 75% del monto total del ahorro al penúltimo año, contado a partir de la fecha en que presente la solicitud. Caso contrario, la persona suscriptora tendrá que cancelar los intereses dejados de percibir hasta por un 25% del monto del ahorro conforme al plan suscrito.
+Para los planes que han cumplido con el plazo de ahorro, más no así con el monto total del ahorro, se procederá con el cálculo de los intereses sobre el monto acumulado faltante para completar el ahorro del plan suscrito.
+El contrato debe haber cumplido con al menos el 75% del monto del ahorro al penúltimo año de la solicitud, esto significa que el monto que debe ser cancelado no puede exceder el 25% del monto total de ahorro establecido según el plan suscrito.
+Por lo anterior, la persona suscriptora podrá cancelar las cuotas faltantes más los intereses no percibidos por el Sistema, en caso de requerir el uso inmediato del contrato para solicitar un préstamo.
+El cálculo de los intereses se hará sobre el monto de cuotas atrasadas reflejadas en el sistema de acuerdo con lo indicado, y aplicando las siguientes tasas de interés:
+a) Para los contratos suscritos antes del 10 de agosto 2017, la tasa de interés que se aplicará será la tasa más alta del Sistema de Ahorro y Préstamo, más 1 punto porcentual;
+b) Para los contratos suscritos posterior a dicha fecha, la tasa de interés que se aplicará será la tasa más alta del Sistema de Ahorro y Préstamo más 2 puntos porcentuales.
+En el caso de uso anticipado de contratos, se regirá por el Reglamento por Asignación de los contratos del Sistema de Ahorro y Préstamo Nº 5476.
 Podrá hacer la persona suscriptora pagos adelantados o extraordinarios no sujetos a periodicidad, los cuales no relevan a la persona suscriptora de la obligación de continuar el pago regular y puntual de las cuotas ordinarias de ahorro; el importe de esos pagos nunca incrementará el monto del crédito, ni adelantará el período establecido de ahorro.
 La persona suscriptora deberá aportar número de cuenta bancaria IBAN para realizar el giro de dinero correspondiente al trámite que realice.
 En aquellos actos donde una persona actúe en representación de la persona suscriptora mediante un poder; deberá cumplir con lo que estable el Código Civil al respecto. Dicho poder deberá tener como máximo un mes de emitido.
+(Así reformado mediante sesión ordinaria N°6595 del 17 de agosto de 2023)
