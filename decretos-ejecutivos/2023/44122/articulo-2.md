@@ -1,0 +1,1 @@
+Artículo 2°-En lo no dispuesto en el presente Decreto Ejecutivo, permanece incólume lo dispuesto en el Decreto Ejecutivo N° 36577-MINAET, emitido en fecha 12 de mayo de 2011 y publicado en el Diario Oficial La Gaceta N° 113 de fecha 13 de junio de 2011.
