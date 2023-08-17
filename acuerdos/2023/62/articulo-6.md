@@ -1,0 +1,1 @@
+Artículo 6º-Comunicación de los actos de la Administración. La comunicación de los actos de la Administración se realizará por medio electrónico, de forma tal, que se le deberá prevenir a los participantes el requerimiento de una dirección de correo electrónico para recibir notificaciones.

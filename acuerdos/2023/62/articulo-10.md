@@ -1,0 +1,1 @@
+Artículo 10.-Invitación Directa. Una vez realizada la publicación internacional indicada en el artículo anterior, el Ministerio de Hacienda podrá invitar directamente a potenciales oferentes para que, en caso de estar interesados, presenten sus ofertas según lo establecido en los artículos 6 y 7 de la Ley N° 10.332.

@@ -1,0 +1,1 @@
+Artículo 4º-De las sesiones de la Comisión Ejecutiva de Calificación y Selección. Para efectos de las contrataciones que así lo requieran en el proceso de emisión de títulos valores en el mercado internacional, y la operación de gestión de pasivos, la comisión sesionará presencialmente.

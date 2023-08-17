@@ -1,0 +1,1 @@
+Articulo 8º-Bases de Selección y Contratación. Las bases serán el instrumento que detallará el procedimiento e incluirá los criterios de evaluación y ponderación considerados para la selección y contratación de los servicios, así como los requerimientos que debe contener tanto la oferta técnica como la económica.

@@ -1,0 +1,2 @@
+Artículo 16.-Otros servicios. Cualquier otro bien o servicio necesario, a excepción del asesor legal internacional, para llevar a cabo la colocación de títulos valores y/ gestión de pasivos autorizados en los artículos 2 y 3 se podrá realizar a través del Banco o Bancos Colocadores seleccionados, previa indicación del monto máximo a pagar según lo establecido en la Ley 10.332.
+El Ministerio de Hacienda podrá cancelar estos servicios al proveedor o a través del Banco o Bancos colocadores.
