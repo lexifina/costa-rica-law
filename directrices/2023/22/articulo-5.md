@@ -1,0 +1,19 @@
+Artículo 5º-Formación de las personas servidoras públicas en materia de deberes éticos. Cada entidad y órgano deberá adoptar las medidas necesarias para asegurar que todas las personas servidoras públicas tengan el conocimiento y la comprensión de los deberes éticos de la función pública, generales y particulares de la Institución y del cargo, aplicando al menos, las siguientes:
+a) Formación mínima uniforme: Durante el año 2024 todas las personas servidoras públicas deben aprobar el curso de autoaprendizaje denominado "Integridad en el ejercicio de la función pública: aspectos básicos del deber de probidad", elaborado por la Procuraduría de la Ética Pública. Este curso también se debe incorporar al procedimiento de inducción de las personas de nuevo ingreso en cada entidad y órgano.
+Además, todas las personas servidoras públicas deben recibir un programa de formación básica que, al menos, ponga en conocimiento el marco normativo general y la regulación interna sobre los deberes éticos de la función pública. Estos contenidos comprenden:
+i. Convención Interamericana contra la Corrupción, Ley Nº 7670 del 17 de abril de 1997,
+ii. Convención de Naciones Unidas contra la Corrupción, Ley Nº 8557 del 29 de noviembre de 2006,
+iii. Aprobación del Canje de Notas entre el Gobierno de la República de Costa Rica y la Organización para la Cooperación y Desarrollo Económicos (OCDE) Constitutivo para la Adhesión a la Convención para Combatir el Cohecho de Servidores Públicos Extranjeros en Transacciones Comerciales Internacionales, Ley Nº 9450 del 11 de mayo de 2017,
+iv. Ley contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública, Ley Nº 8422 del 6 de octubre de 2004,
+v. Responsabilidad de las personas jurídicas sobre cohechos domésticos, soborno transnacional y otros delitos, Ley Nº 9699 del 10 de junio del 2019,
+vi. Ley General de la Administración Pública, Ley Nº 6227 del 2 de mayo de 1978,
+vii. Ley General de Control Interno, Ley Nº 8292 del 31 de julio de 2002, viii. Código Penal, Ley Nº 4573 del 4 de mayo de 1970,
+ix. Reglamento de la Ley contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública, Decreto Ejecutivo Nº 32333-MP-J del 12 de abril de 2005,
+x. Reglamento al Título II de la Ley de Responsabilidad de las Personas Jurídicas sobre Cohechos Domésticos, Soborno Transnacional y otros Delitos, Ley N°9699 del 10 de junio del 2019, denominado "Modelo Facultativo de Organización, Prevención de Delitos, Gestión y Control", Decreto Ejecutivo 42399-MEIC-MJP del 4 de junio del 2020,
+xi. Principios Éticos de los Funcionarios Públicos, Decreto Ejecutivo Nº 33146-MP del 24 de mayo del 2006,
+xii. Directriz D-2-2004 emitida por la Contraloría General de la República, denominada "Directrices Generales sobre principios y enunciados éticos a observar por parte de los jerarcas, titulares subordinados, funcionarios de la Contraloría General de la República, Auditorías Internas y servidores públicos en general", del 12 de noviembre del 2004,
+xiii. El Código de Ética y Conducta Institucional interno de cada entidad u órgano.
+xiv. El Reglamento sobre prevención y manejo de conflictos de intereses interno de cada entidad u órgano.
+xv. Cualquier otra regulación interna en materia de Integridad Pública.
+Para garantizar uniformidad de contenidos, estructuras y requisitos, tanto los Códigos de Ética y Conducta Institucional, como los programas y actividades de capacitación en materia de integridad pública deberán someterse a la consideración de la Procuraduría de la Ética Pública.
+b) Formación continua: Cada entidad u órgano deberá incluir en sus Planes Institucionales de Capacitación o similares, actividades periódicas de formación en materia de Integridad Pública: ética y probidad, que le permita al personal contar con las competencias, habilidades y conocimientos necesarios para aplicar los valores, principios y normas de Integridad Pública.
