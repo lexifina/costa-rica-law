@@ -1,0 +1,4 @@
+Artículo 3º-Competencia. La competencia de la Junta será la establecida en la Convención Colectiva de trabajo y este Reglamento. En este sentido, serán funciones de la Junta de Relaciones Laborales:
+1. Emitir su criterio recomendativo respecto a los expedientes administrativos disciplinarios que se tramiten en la Empresa por supuestas faltas que puedan generar la imposición de sanción de suspensión sin goce de salario o despido sin responsabilidad patronal. Lo anterior se tendrá como parte del debido proceso.
+2. Emitir criterio recomendativo a la Gerencia de Recursos Humanos, sobre la realización de permutas, en los términos y condiciones previstas en el inciso 2) del artículo 14) de la Convención Colectiva de trabajo.
+La Junta emitirá sus recomendaciones de forma razonada; asimismo, actuará en su condición de órgano colegiado y, por ello, sus miembros no tendrán competencias que puedan ser ejercidas al margen de dicha condición.

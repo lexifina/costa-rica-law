@@ -1,0 +1,2 @@
+Artículo 7º-Causales generadoras de no cono-cimiento. A las personas integrantes de la Junta de Relaciones les aplicará las mismas causales de impedimento, inhibitoria, y recusación que establece el Código Procesal Civil, sin perjuicio de cualquier otra causal que pueda representar un conflicto de intereses.
+Dichas causales serán conocidas y resueltas por la Junta en pleno (propietarios); la persona de la que se trate será sustituida para efectos de resolver el asunto (por el suplente).

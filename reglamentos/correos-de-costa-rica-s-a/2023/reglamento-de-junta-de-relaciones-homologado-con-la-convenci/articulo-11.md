@@ -1,0 +1,20 @@
+Artículo 11.-Sesiones ordinarias y extraordinarias. La Junta sesionará de forma ordinaria una vez al mes y de forma extraordinaria de conformidad con sus necesidades. Dicho órgano deberá establecer un cronograma de sesiones ordinarias.
+Para efecto de las sesiones se atenderá? lo siguiente:
+1. Deberán realizarse de forma ordenada y sus miembros deberán comportarse de forma ética y respetuosa.
+2. Serán privadas y podrían ser realizadas de forma presencial, virtual o mixtas, a través del uso de las herramientas tecnológicas.
+Cuando las sesiones se realicen de forma presencial, la Junta se reunirá en las instalaciones de Correos de Costa Rica, en el lugar que la Empresa determine. Todas las sesiones de la Junta de Relaciones Laborales serán grabadas. Cuando las sesiones sean virtuales, se deberá? garantizar la clara identificación de las personas participantes, la seguridad y el desempeño idóneo para la realización de las diligencias.
+3. Las sesiones ordinarias se realizarán el miércoles de la tercera semana de cada mes.
+4. Habrá? quórum con la mitad más uno de las personas integrantes (en propiedad o suplentes que se encuentren sustituyendo a un miembro propietario). La persona que ocupe el cargo de presidente dará un tiempo de quince minutos con el propósito de completar el quórum; si transcurrido ese tiempo no se llegare a completar, se dejará consignada en el acta dicha circunstancia, se levantará la sesión y los casos deberán ser remitidos a la Gerencia General de Correos para ser resueltos.
+5. Se levantará un acta por sesión ordinaria o extraordinaria, la cual no será literal, misma que deberá ser aprobada por los miembros de la Junta y firmada por quien ocupe el cargo de presidente y vicepresidente.
+En las actas se hará constar:
+a) Número de la sesión con indicación expresa de si se trata de una sesión ordinaria o extraordinaria.
+b) Modalidad, lugar (en el caso de ser presencial), fecha y hora de conclusión de la sesión.
+c) Nombre completo de participantes y calidad.
+d) Los acuerdos recomendativos del órgano. Los acuerdos se tomarán por mayoría simple de los miembros presentes; en caso de no existir acuerdo, en el acta respectiva se consignarán las diferentes posiciones.
+e) Cualquier otro aspecto de interés.
+f) El acta será enviada, por la secretaria de Asuntos Administrativos de la Junta de Relaciones Laborales, a sus miembros y asesores legales para la revisión, previo a la sesión ordinaria del siguiente mes, la cual deberá ser devuelta con las observaciones o correcciones a incluir si las hubiese en un plazo máximo de 3 días hábiles.
+6. Sin perjuicio del cronograma al efecto, las sesiones ordinarias serán convocadas con al menos cinco días hábiles de anticipación junto con la agenda a tratar. Por decisión de mayoría simple, se podrían conocer solicitudes de criterio por permuta que no se encuentren indicados en la agenda.
+7. En las sesiones, la asistencia y participación de las personas suplentes se dará? únicamente ante la ausencia del titular, a quien sustituirán con las mismas facultades (voz, voto).
+8. Las sesiones extraordinarias serán convocadas por la secretaria de Asuntos Administrativos, junto con la agenda correspondiente, con tres días hábiles de anticipación. Dichas sesiones se convocarán cuando medie necesidad para la atención oportuna de los asuntos que compete conocer a la Junta.
+Las personas convocadas deberán comunicar de forma inmediata a su superior jerárquico de la hora y fecha de la sesión extraordinaria, con el fin de que éste tome las medidas pertinentes con respecto al trabajo de la respectiva dependencia.
+Las sesiones podrán ser suspendidas, interrumpidas solamente por caso fortuito, fuerza mayor o, excepcionalmente, por otras razones objetivas debidamente justificadas. En caso de que haya rompimiento del quórum por alguna particularidad, los casos serán remitidos a la Gerencia General sin la recomendación de la Junta para su respectiva resolución, por parte de la secretaria administrativa haciendo referencia al rompimiento de quorum.
