@@ -1,0 +1,1 @@
+Artículo 52.-Derogatorias. El presente Reglamento deroga el Reglamento de cobro administrativo, arreglos de pago, cobro judicial y ejecución de fideicomisos de garantía publicado en La Gaceta N° 218 del 11 de noviembre de 2021. Así como las normas de otros reglamentos en lo que se le opongan.

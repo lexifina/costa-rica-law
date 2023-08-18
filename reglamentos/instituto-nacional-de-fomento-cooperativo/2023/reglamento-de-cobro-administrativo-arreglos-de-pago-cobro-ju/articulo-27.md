@@ -1,0 +1,1 @@
+Artículo 27.-Designación de depositario judicial. Para realizar un embargo sobre bienes muebles o inmuebles, el abogado encargado del proceso de cobro judicial deberá coordinar con el área encargada del proceso de cobro judicial a fin de solicitar al juzgado el depósito judicial a favor del INFOCOOP, y designar el funcionario que fungirá como depositario judicial.

@@ -1,0 +1,1 @@
+Artículo 16.-Del cobro judicial. Le corresponde al área encargada del proceso de cobro judicial, ejercer el control y seguimiento a las gestiones de cobro judicial. En todo caso dicha Dependencia deberá informar y emitir recomendaciones a la Dirección Ejecutiva sobre situaciones anómalas que se presenten en estos procesos cobratorios.

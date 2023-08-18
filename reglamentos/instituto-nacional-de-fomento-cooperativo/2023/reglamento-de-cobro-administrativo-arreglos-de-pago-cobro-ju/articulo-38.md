@@ -1,0 +1,1 @@
+Artículo 38.-Adjudicación a INFOCOOP. Cuando el bien fuere adjudicado al INFOCOOP en remate, el abogado encargado del proceso de cobro judicial solicitará a la autoridad judicial competente la aprobación de este, y procederá a comunicar de inmediato, de forma escrita al Área de Financiamiento.

@@ -1,0 +1,1 @@
+Artículo 35.-Informe de resultado del remate. Al día siguiente del remate, el Abogado encargado del proceso de cobro judicial deberá informar los resultados al área encargada del proceso de cobro judicial y Financiamiento.

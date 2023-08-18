@@ -1,0 +1,1 @@
+Artículo 48.-De la asesoría profesional. El abogado encargado del proceso de cobro judicial deberá brindar asesoría oportuna al INFOCOOP con respecto a los asuntos bajo su dirección, sugerir alternativas mejores, o manifestar oportunamente y por escrito al área encargada del proceso de cobro judicial si considera inconveniente o riesgosa alguna instrucción que se le gire.

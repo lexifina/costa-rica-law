@@ -1,0 +1,1 @@
+Artículo 29.-Del embargo del salario. En los embargos de salario, corresponde al Abogado encargado del proceso de cobro judicial, velar porque se estén realizando las respectivas retenciones y tramitará su giro. Asimismo, para efectos del giro deberá verificarse la correcta aprobación de la liquidación presentada.

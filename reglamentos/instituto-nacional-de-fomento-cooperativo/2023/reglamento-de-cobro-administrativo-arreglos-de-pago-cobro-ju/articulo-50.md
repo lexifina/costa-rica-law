@@ -1,0 +1,1 @@
+Artículo 50.-Responsabilidad por daños. El abogado encargado del proceso de cobro judicial será totalmente responsable ante el INFOCOOP de cualquier daño o perjuicio que le ocasione por motivo de negligencia o mala praxis profesional, en los deberes que le son propios por la dirección del proceso de cobro judicial.
