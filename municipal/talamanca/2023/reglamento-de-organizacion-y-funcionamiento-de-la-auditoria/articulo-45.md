@@ -1,0 +1,1 @@
+Artículo 45.-Comunicación de los servicios preventivos. El titular de la Auditoría Interna comunicará los resultados o productos de los servicios preventivos mediante oficios u otros medios que considere pertinentes, conforme a la normativa aplicable.

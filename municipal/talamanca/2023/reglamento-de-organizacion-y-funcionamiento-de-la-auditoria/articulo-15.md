@@ -1,0 +1,3 @@
+Artículo 15.-Dotación de recursos. Corresponde a la Auditoría Interna formular su presupuesto y plan de adquisiciones acorde con el plan de trabajo y las disposiciones institucionales que regulan el procedimiento, plazos y el trámite interno de las solicitudes de dotación de recursos, la cual debe ser congruente con las competencias que ejerce.
+La asignación de presupuesto que finalmente haga el Concejo Municipal debe ser suficiente para que le permita cumplir su gestión acorde con su plan de trabajo anual.
+La Auditoría Interna deberá administrar, controlar y ejecutar los recursos asignados de acuerdo con los procedimientos institucionales establecidos para estos efectos.

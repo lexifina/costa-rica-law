@@ -1,0 +1,1 @@
+Artículo 3º-Definiciones. Para la interpretación y aplicación de este Reglamento, en la terminología aplicada se estará a lo dispuesto por los glosarios y definiciones contenidos en la normativa aplicable.

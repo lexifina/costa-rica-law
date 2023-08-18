@@ -1,0 +1,1 @@
+Artículo 67.-Admisión de denuncias anónimas. Las denuncias anónimas serán atendidas en el tanto aporten los elementos de presunción suficientes y se encuentren sustentadas en medios probatorios idóneos que permitan iniciar la investigación, de lo contrario se archivará la denuncia.

@@ -1,0 +1,2 @@
+Artículo 17.-Categoría programática. El responsable del control presupuestario de la Municipalidad de Talamanca dará una categoría programática y mantendrá un registro separado del monto del presupuesto asignado y ejecutado, detallado por objeto del gasto, de manera que se controle la ejecución y las modificaciones de los recursos presupuestados para la Auditoría Interna.
+La categoría que se le asigne debe ser de tal naturaleza que permita a la Auditoría Interna la gestión idónea de los recursos asignados.

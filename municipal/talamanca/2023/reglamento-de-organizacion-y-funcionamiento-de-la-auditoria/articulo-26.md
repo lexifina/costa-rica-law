@@ -1,0 +1,2 @@
+Artículo 26.-Regulaciones administrativas. El Concejo Municipal deberá establecer las disposiciones y regulaciones de tipo administrativo que le sean aplicables al titular de la Auditoría Interna. A los efectos, deberá someter a conocimiento del citado titular las propuestas relacionadas con las regulaciones administrativas, de previo a su aprobación, modificación o derogatoria.
+Estas regulaciones deberán ser similares a los puestos de similar jerarquía, de tal manera que no exista discriminación alguna.

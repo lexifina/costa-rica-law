@@ -1,0 +1,1 @@
+Artículo 19.-Ejecución del presupuesto y del plan de adquisiciones. Corresponderá al titular de la Auditoría Interna autorizar los documentos de ejecución presupuestaria que procedan y todo requerimiento de modificación a la asignación presupuestaria anual y al plan anual de adquisiciones de la Auditoría Interna.

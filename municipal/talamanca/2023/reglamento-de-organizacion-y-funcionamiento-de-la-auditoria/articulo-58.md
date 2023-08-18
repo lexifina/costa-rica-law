@@ -1,0 +1,3 @@
+Artículo 58.-Seguimiento a cargo de la Administración activa. El funcionario a quien se giran las recomendaciones deberá ejercer el control correspondiente para asegurar la adopción de las acciones suficientes y efectivas para la oportuna, eficiente y eficaz cumplimiento de las primeras.
+Las solicitudes realizadas por la Administración de ampliación del plazo para cumplir con las recomendaciones deben presentarse antes de vencer el plazo, las que serán valoradas por el titular de la Auditoría Interna y, según su criterio fundamentado, se concederá o no en los términos que correspondan.
+La Auditoría Interna hará el requerimiento a la Administración de un plan de cumplimiento de las recomendaciones giradas, el cual incluirá, al menos, las acciones, responsables y plazos.

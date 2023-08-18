@@ -1,0 +1,1 @@
+Artículo 69.-Fundamentación de la desestimación y archivo de denuncias. En los casos de desestimación y archivo de las denuncias, la Auditoría Interna debe emitir un acto fundamentado en el que expresamente se indique la causal correspondiente, así como el detalle del análisis para arribar a dicha conclusión.

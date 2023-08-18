@@ -1,0 +1,3 @@
+Artículo 31.-Relaciones, coordinaciones y suministro de información. El titular de la Auditoría Interna establecerá a lo interno de la unidad las disposiciones principales sobre las relaciones y coordinaciones de sus funcionarios con las partes interesadas.
+Es facultad del titular de la Auditoría Interna solicitar, proveer e intercambiar información, para el desarrollo de sus actividades, con entes externos que conforme a la ley correspondan.
+Lo anterior, sin perjuicio de la coordinación que podría mediar al respecto con las autoridades superiores de la Municipalidad, en tanto no se exponga el cumplimiento de la confidencialidad de los denunciantes y estudios que originan la apertura de procedimientos administrativos, según lo exige la normativa aplicable.

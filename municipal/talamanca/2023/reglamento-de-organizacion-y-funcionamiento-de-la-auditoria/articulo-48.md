@@ -1,0 +1,3 @@
+Artículo 48.-Ejecución. La Auditoría Interna incluirá en sus procedimientos internos lo correspondiente a la actividad de ejecución o examen del proceso de auditoría, para asegurar razonablemente que se cumplan sus objetivos con un uso eficiente y eficaz de los recursos.
+Para efectos del examen del objeto auditado los funcionarios de la Auditoría Interna deberán identificar, evaluar y registrar información suficiente, relevante y pertinente, de acuerdo con los objetivos del estudio.
+Si durante la realización de un estudio de auditoría se identifica la necesidad y oportunidad de realizar una asesoría o advertencia, el funcionario encargado lo deberá comunicar oportunamente al titular de la Auditoría Interna a efectos de determinar la procedencia de su emisión.

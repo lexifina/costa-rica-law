@@ -1,0 +1,5 @@
+Artículo 14.-Plan de trabajo anual. El Plan de Trabajo anual de la Auditoría Interna se basará en la planificación estratégica, comprenderá todos los proyectos y actividades por realizar durante el período, se mantendrá actualizado y se expresará en el presupuesto institucional.
+Se debe dar a conocer al Concejo Municipal por parte del Auditor Interno; asimismo, se deben valorar las solicitudes que plantee esa autoridad y tomar una decisión fundamentada que será comunicada a ese órgano colegiado.
+Las modificaciones que realice la Auditoría Interna al plan de trabajo anual durante su ejecución deben comunicarse oportunamente al Concejo Municipal.
+El plan de trabajo anual y sus modificaciones se deben incluir en el sistema establecido por la Contraloría General de la República, en la forma y términos que al efecto disponga ese Órgano Contralor.
+El Auditor Interno y los funcionarios de la Auditoría Interna, deben ejercer un control continuo de la ejecución del plan de trabajo anual, en procura de la debida medición de resultados, la atención oportuna de eventuales desviaciones y la adopción de las medidas correctivas pertinentes.

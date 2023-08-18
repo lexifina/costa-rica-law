@@ -1,0 +1,4 @@
+Artículo 49.-Comunicación de resultados. Las comunicaciones que realice la Auditoría Interna deberán ser precisas, objetivas, claras, concisas, constructivas y completas. Si una comunicación contuviera un error u omisión significativa, el titular de la Auditoría Interna deberá trasladar la información corregida a todos los destinatarios de la comunicación original.
+La Auditoría Interna comunicará los resultados de las auditorías mediante informes escritos, los cuales deberán incluir, al menos, los objetivos, el alcance, hallazgos, conclusiones y recomendaciones, según su naturaleza.
+Corresponde a la Auditoría Interna definir al funcionario competente de la administración activa, jerarca o titulares subordinados, al que dirigirá sus informes y consecuentes recomendaciones para su debido cumplimiento.
+Cuando se envíen resultados de una auditoría a partes ajenas a la Municipalidad, la comunicación deberá estar sustentada en las regulaciones atinentes.

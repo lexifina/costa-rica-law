@@ -1,0 +1,1 @@
+Artículo 32.-Asesoría interna. Cuando así lo requiera la Auditoría Interna, todas las unidades y demás órganos de la Municipalidad de Talamanca, tienen el deber de brindarle un oportuno y efectivo servicio de asesoría en sus ámbitos de actividad en la forma, las condiciones y el plazo razonables y acorde con sus posibilidades.

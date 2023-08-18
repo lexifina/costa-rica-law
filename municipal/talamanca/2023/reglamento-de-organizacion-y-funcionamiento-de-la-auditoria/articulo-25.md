@@ -1,0 +1,7 @@
+Artículo 25.-Competencias en cuanto al personal. Es competencia del titular de la Auditoría Interna en cuanto al personal de la unidad:
+a. Autorizar los movimientos del personal y la disminución de plazas de la Auditoría Interna de conformidad con lo que establecen las normas legales aplicables. Cuando se pretenda la disminución de plazas se debe contar con la autorización previa del titular de esa unidad.
+b. Vigilar que la creación de plazas para la Auditoría Interna considere sus necesidades y no perjudiquen el funcionamiento del sistema de control interno de la Municipalidad, además deberán guardar concordancia con el Manual descriptivo de puestos de la Municipalidad.
+c. Disponer, de conformidad con las regulaciones y políticas institucionales, la ocupación de las plazas vacantes así como el traslado o ascenso directo de cualquiera de sus colaboradores mediante concurso interno o externo.
+d. Vigilar y tomar las decisiones que correspondan para que los funcionarios de la Auditoría Interna cumplan en el ejercicio de sus competencias, con la normativa jurídica y técnica pertinente, así como con las políticas, procedimientos, prácticas y demás disposiciones administrativas (institucionales y de la Auditoría Interna) que les sean aplicables.
+e. Realizar las acciones pertinentes para el desarrollo profesional de los miembros de la Auditoría Interna.
+f. Ejercer la potestad disciplinaria respecto de los funcionarios de la Auditoría Interna, con apego a las regulaciones aplicables.

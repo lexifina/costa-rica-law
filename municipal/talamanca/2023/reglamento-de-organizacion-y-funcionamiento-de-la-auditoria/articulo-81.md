@@ -1,0 +1,1 @@
+Artículo 81.-Derogatoria. El presente Reglamento deroga el Reglamento de Organización y Funcionamiento de la Auditoría Interna de la Municipalidad del cantón de Talamanca, publicado en La Gaceta Nº 199 del 16 de octubre del 2012.

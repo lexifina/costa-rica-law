@@ -1,0 +1,4 @@
+SECCIÓN D
+Seguimiento de recomendaciones
+Artículo 55.-Planificación de los estudios de seguimiento. La Auditoría Interna incluirá en su plan anual de trabajo la actividad correspondiente al seguimiento de sus recomendaciones ya aceptadas por la Administración activa o de auditores externos cuando sean de su conocimiento, para asegurarse razonablemente de su oportuna, adecuada y eficaz implementación.
+La Auditoría Interna deberá establecer y apoyarse en un sistema de seguimiento a las recomendaciones, observaciones y demás resultados de los servicios, para asegurarse razonablemente su cumplimiento oportuno, eficiente y eficaz, por parte de la Administración activa. Este sistema incluirá las disposiciones de la Contraloría General de la República y demás recomendaciones de otros órganos de control, que sean puestas en su conocimiento.

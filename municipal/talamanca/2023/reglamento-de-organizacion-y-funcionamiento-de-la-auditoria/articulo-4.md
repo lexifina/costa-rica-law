@@ -1,0 +1,1 @@
+Artículo 4º-Divulgación y actualización del Reglamento. El titular de la Auditoría Interna velará por la divulgación y actualización de la presente normativa y propondrá al jerarca institucional las modificaciones que estime necesarias, observando las regulaciones aplicables.
