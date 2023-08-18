@@ -1,0 +1,2 @@
+Artículo 12.-Contratación por tiempo definido.
+Cuando un oferente se haya seleccionado para suplir con un contrato por tiempo definido o por obra determinada de acuerdo con la naturaleza de la actividad, deberá cumplir con el perfil e idoneidad del puesto. La Gerencia de Recursos Humanos emitirá una alerta 22 días naturales antes al vencimiento del plazo, para rescindir del contrato laboral en el término fijado o bien, realizar una prórroga del contrato, lo cual no deberá exceder un plazo mayor de un año.
