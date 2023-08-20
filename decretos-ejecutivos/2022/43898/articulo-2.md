@@ -1,0 +1,1 @@
+Artículo 2.- Viabilidad (Licencia) Ambiental (VLA). Todas las actividades, obras o proyectos nuevos, requieren una Viabilidad (Licencia) Ambiental (VLA), dicho otorgamiento estará sujeto al cumplimiento de la aprobación del proceso de Evaluación de Impacto Ambiental.

@@ -1,0 +1,1 @@
+TRANSITORIO II. Los registros de consultores y regentes ambientales, seguirán tramitándose bajo la regulación vigente, y se regirán para su aprobación por la normativa anterior, hasta el momento de entrada en vigencia del presente reglamento.

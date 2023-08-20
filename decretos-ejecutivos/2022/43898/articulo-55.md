@@ -1,0 +1,3 @@
+Artículo 55.- Informe de cierre técnico para proyectos en fase constructiva y operativa. Para el cierre técnico del proyecto, se requerirá un informe consolidado, al finalizar la fase constructiva y/u operativa, de acuerdo a lo establecido en la resolución de viabilidad ambiental.
+Para las actividades, obras o proyectos que la viabilidad ambiental contempla la fase operativa, se presentará un informe consolidado de los primeros 6 meses, una vez que la SETENA haya considerado que dicho cierre técnico sea factible. A partir de este momento el seguimiento les corresponderá a las instituciones competentes según el tipo de actividad que se trate.
+Una vez aprobado el cierre del proyecto, se archivará el expediente administrativo.

@@ -1,0 +1,3 @@
+CAPÍTULO XIV
+Tarifas del Proceso de Evaluación de Impacto Ambiental
+Artículo 91.- Tarifas del proceso de Evaluación de Impacto Ambiental. De conformidad con el artículo 18 de la Ley Orgánica del Ambiente, los costos del proceso de Evaluación de Impacto Ambiental, que incluyen: los estudios técnicos, el uso de instrumentos de Evaluación de Impacto Ambiental, aplicación de medidas ambientales (preventivas, correctivas, mitigadoras o de compensación), de control y seguimiento, implementación de los planes de gestión ambiental y demás procedimientos relacionados al proceso, deberán ser asumidos por el desarrollador de la actividad, obra o proyecto.

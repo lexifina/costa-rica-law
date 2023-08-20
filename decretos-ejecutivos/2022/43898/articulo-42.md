@@ -1,0 +1,6 @@
+Artículo 42.- Compromiso del desarrollador. El desarrollador se compromete a utilizar el D4 otorgado, única y exclusivamente para la actividad, obra o proyecto indicada en el formulario, so pena de las sanciones correspondientes.
+Así mismo, deberá cumplir con todas las regulaciones ambientales vigentes en el país, así como con los lineamientos ambientales establecidos por la SETENA en el Código de Buenas Prácticas Ambientales.
+Toda la información que el desarrollador y el consultor indiquen en la solicitud de D4 debe declararse bajo fe de juramento de que es actual y verdadera; en caso contrario podrán derivarse las consecuencias administrativas correspondientes.
+En caso de que las condiciones no se cumplan, la SETENA por medio de la resolución administrativa respectiva podrá suspender la viabilidad ambiental de la AOP por incumplimiento de las acciones establecidas para la conservación y protección del ambiente. Lo anterior sin responsabilidad alguna para la Administración Pública.
+Asimismo, deberá ser firmado digitalmente por el desarrollador de la actividad, obra o proyecto y no requiere ser autenticado por parte de un Notario Público.
+El D4 Forestal, puede ser sujeto a solicitud de información adicional si corresponde. Adicionalmente, puede ser sujeto a modificaciones.

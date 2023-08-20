@@ -1,0 +1,8 @@
+Artículo 38.- Trámite para el Formulario D4 Forestal. El desarrollador de una actividad, obra o proyecto deberá presentar el Formulario de D4 en la Plataforma Digital y su trámite será el siguiente:
+1. Ingresar los requisitos generales indicados en el Anexo 9.
+2.El sistema asignará el número de gestión.
+3.El plazo para resolver el D4-Forestal será como máximo de 7 días naturales. El departamento respectivo de la SETENA deberá realizar la verificación técnica del expediente D4-Forestal, en el plazo máximo de 2 días hábiles, y al final del cual deberá emitir el resultado de la revisión, ya sea informe técnico o solicitud de información faltante. Una vez emitido el informe técnico, la SETENA en un plazo máximo de 3 días hábiles emitirá la resolución administrativa. En el caso de que las condiciones no sean cumplidas, los departamentos técnicos comunicarán al desarrollador la situación y solicitarán mediante oficio y por una única vez, que la información faltante sea subsanada y se le otorgará un plazo que no podrá ser menor de 10 días hábiles y que podrá prorrogarse en caso necesario. Esta prevención suspende el plazo de revisión.
+4. Para la revisión de la información solicitada en el punto anterior, la SETENA dispondrá de un plazo de 2 días hábiles para enviar el informe técnico a la secretaría.
+5. En caso de que la información solicitada no se presente en el plazo establecido, el expediente será archivado.
+6. El proceso del D4-Forestal, si cumple con los requerimientos finalizará con emisión y notificación electrónica de la Resolución.
+7. En caso de no clasificar como un proyecto para D4-Forestal, se comunicará el rechazo con las razones que lo fundamenten.

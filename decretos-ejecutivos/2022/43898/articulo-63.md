@@ -1,0 +1,1 @@
+Artículo 63.- Participación ciudadana en territorios indígenas. En el caso de actividad, obra o proyecto ubicados en territorios indígenas, el desarrollador deberá cumplir con el Mecanismo General de Consulta a Pueblos Indígenas, previo a su ingreso y aportarlo al proceso de Evaluación de Impacto Ambiental en SETENA.

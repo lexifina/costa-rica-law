@@ -1,0 +1,6 @@
+CAPÍTULO XII
+Garantías de Cumplimiento y Funcionamiento
+Artículo 80.- Tipos de garantía ambiental. Las actividades, obras o proyectos con viabilidad ambiental aprobada, en los que así sea determinado en la resolución final, deberán depositar una garantía ambiental. Estas garantías ambientales serán de dos tipos:
+1. De cumplimiento: durante el diseño y la ejecución de la actividad, obra o proyecto.
+2. De funcionamiento: dependiendo del impacto de la actividad, obra o proyecto y del riesgo de la población de sus alrededores. No se establecerá garantías de funcionamiento, para las actividades que son supervisadas durante su operación por otras instituciones para las cuales la normativa ha establecido obligaciones. Para estos proyectos, la SETENA solamente fijará garantía para la etapa constructiva y cerrará el proyecto con un informe ambiental consolidado hasta los seis meses de haber iniciado la fase operativa y devolverá la garantía ambiental en caso de estar todo conforme. Lo anterior según lo indicado en la respectiva Resolución de viabilidad (licencia) ambiental.
+Las garantías de cumplimiento podrán rendirse para la totalidad de la actividad, obra o proyecto o determinarse por etapas.

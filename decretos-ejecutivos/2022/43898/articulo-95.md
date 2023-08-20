@@ -1,0 +1,1 @@
+Artículo 95.- Prórrogas y suspensiones. Las prórrogas y suspensiones de los plazos otorgados por esta Secretaría incluyendo los de vigencia de la Viabilidad (Licencia) Ambiental (VLA) se aplicarán en los términos de los artículos 258 y 259 de la LGAP.

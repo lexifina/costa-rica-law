@@ -1,0 +1,1 @@
+Artículo 83.- Incumplimiento en el rendimiento de la garantía ambiental. En el caso de que el desarrollador de la actividad, obra o proyecto no haya presentado la garantía ambiental correspondiente, la SETENA podrá proceder según el artículo 99 de la Ley Orgánica del Ambiente para determinar la sanción que corresponde.

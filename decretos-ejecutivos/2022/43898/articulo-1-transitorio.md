@@ -1,0 +1,1 @@
+TRANSITORIO I. Los expedientes ingresados a la SETENA y que no cuenten con Viabilidad Ambiental al momento de entrada en vigencia del presente reglamento, se regirán para su aprobación por la normativa anterior.

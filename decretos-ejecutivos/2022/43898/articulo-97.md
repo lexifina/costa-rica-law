@@ -1,0 +1,1 @@
+Artículo 97.- Manejo de los residuos para las actividades, obras o proyectos en la Evaluación de Impacto Ambiental. En lo que corresponda al manejo y disposición de residuos en el marco del proceso de Evaluación de Impacto Ambiental el desarrollador deberá aplicar las reglas dispuestas en la Ley de Gestión Integral de Residuos y su reglamento.

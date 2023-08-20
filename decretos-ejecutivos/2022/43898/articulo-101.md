@@ -1,0 +1,2 @@
+Artículo 101. - Derogaciones.
+I. Deróguese los Decretos Ejecutivos números 31849 -MINAE-S-MOPT-MAG-MEIC del 24 de mayo del 2004 "Reglamento General sobre los Procedimientos de Evaluación de Impacto Ambiental (EIA) y sus reformas", publicado en el Diario Oficial La Gaceta N°125 del 28 de junio de 2004 y 34536-MINAE del 25 de marzo de 2008, "Reglamento de fijación de tarifas de servicios brindados por la Secretaría Técnica Nacional Ambiental", publicado en el Diario Oficial La Gaceta Nº 108 del 5 de junio de 2008.

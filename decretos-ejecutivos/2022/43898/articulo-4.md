@@ -1,0 +1,1 @@
+Artículo 4.- Actividades, Obras o Proyectos dentro de áreas ambientalmente frágiles.Las Actividades, Obras o Proyectos que se encuentren dentro de áreas ambientalmente frágiles debidamente identificadas, deberán contemplar lo establecido en el artículo 98 del presente reglamento.

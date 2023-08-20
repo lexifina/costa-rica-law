@@ -1,0 +1,1 @@
+Artículo 54.- Inspecciones de cierre técnico. La SETENA podrá realizar inspecciones para los cierres técnicos que considere oportuno. La comprobación de cumplimiento de las medidas ambientales podrá realizarse mediante inspección a la actividad, obra o proyecto, en caso de requerirse, o en su defecto mediante el uso de herramientas tecnológicas disponibles.

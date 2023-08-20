@@ -1,0 +1,1 @@
+Artículo 73.- Actualización de Registro. El consultor ambiental deberá mantener actualizada la información consignada en el registro, cuya vigencia es de cinco años. Se mantendrá un único número de Registro por persona o Empresa Consultora.

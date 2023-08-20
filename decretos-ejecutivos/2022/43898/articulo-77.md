@@ -1,0 +1,1 @@
+Artículo 77.- Veracidad y responsabilidad de la información ambiental. El consultor ambiental o responsable ambiental de la actividad, obra o proyecto responderá por la veracidad de la información de los documentos que suscribe, así como de la idoneidad de los métodos y procedimientos que recomiende, con responsabilidad solidaria para el desarrollador del proyecto.

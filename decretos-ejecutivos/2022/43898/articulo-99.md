@@ -1,0 +1,1 @@
+Artículo 99. - Creación de las COMIMAS. Para las actividades, obras o proyectos que sean presentados mediante un Estudio de Impacto Ambiental (EsIA), categoría A y cuando la SETENA lo considere necesario, y así lo justifique, ésta podrá ordenar la conformación de una Comisión Mixta de Monitoreo y Control Ambiental (COMIMA).

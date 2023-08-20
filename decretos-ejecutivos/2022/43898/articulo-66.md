@@ -1,0 +1,1 @@
+Artículo 66.- Otros mecanismos de participación ciudadana. La SETENA adoptará cualquier otro mecanismo de participación ciudadana que surja como parte de las políticas de gobierno relacionadas con el desarrollo de las actividades, obras o proyectos.

@@ -1,0 +1,4 @@
+Artículo 13.- Verificación técnica del expediente. La verificación técnica del expediente que debe llevar a cabo el departamento respectivo seguirá los siguientes pasos:
+1. Verificación de la información presentada en el documento de evaluación ambiental, sobre la significancia de impacto ambiental, para lo cual se estará facultado a realizar una Inspección Ambiental al sitio según el procedimiento que defina SETENA para determinar en cuales casos se deberá realizar la inspección.
+2. Revisión del espacio geográfico en que se localizará la actividad, obra o proyecto, respecto a su localización en un área ambientalmente frágil o no, y en el contexto de su entorno del espacio territorial y de la planificación de uso del suelo de que se disponga.
+3. Verificación de la calificación final sobre la significancia del impacto ambiental (SIA) de la actividad, obra o proyecto.

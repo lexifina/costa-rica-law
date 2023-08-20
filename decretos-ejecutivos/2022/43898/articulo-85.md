@@ -1,0 +1,4 @@
+Artículo 85.- Devolución de la garantía ambiental. La SETENA, de conformidad con el cumplimiento de las obligaciones ambientales contraídas, con respecto a la actividad, obra o proyecto, podrá proceder con la devolución parcial, en caso de desarrollos por etapas, o total de la garantía de cumplimiento ambiental, previa solicitud del desarrollador.
+La SETENA adoptará la respectiva resolución de devolución del monto de la garantía rendida por etapas o para la totalidad del proyecto, una vez haya comprobado que se ha cumplido con los compromisos ambientales.
+De previo a iniciar la etapa siguiente, deberá rendirse la garantía correspondiente a la etapa a realizar.
+La comprobación de cumplimiento de las medidas ambientales podrá realizarse mediante inspección a la actividad, obra o proyecto, en caso de requerirse o en su defecto mediante el uso de herramientas tecnológicas disponibles.
