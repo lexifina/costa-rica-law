@@ -13,3 +13,4 @@ Actualización de la Tabla de Plazos de Conservación de Documentos de la Direcc
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-03-14 | la propia norma |
+| 2 | 2023-08-21 | Circular 197 (2023-08-21) |
