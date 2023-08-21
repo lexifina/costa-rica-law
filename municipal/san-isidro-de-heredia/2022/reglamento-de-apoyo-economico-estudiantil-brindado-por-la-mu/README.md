@@ -14,3 +14,4 @@ Reglamento de apoyo económico estudiantil brindado por la Municipalidad de San 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-06-15 | la propia norma |
+| 2 | 2023-08-21 | Reglamento municipal 52 (2023-08-21) |
