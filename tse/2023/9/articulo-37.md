@@ -1,0 +1,5 @@
+Artículo 37.-Prohibiciones: Dentro del local y el recinto de la votación está prohibido:
+a) Portar cualquier tipo de arma.
+b) Ingresar en estado de embriaguez evidente.
+c) Ingresar al local de votación con animales, excepto en el caso de aquellas personas electoras con discapacidad visual, que requieran ser acompañados por perros de servicio. Las personas integrantes de las JRV y del Cuerpo Nacional de Delegados, velarán por el acatamiento de esta disposición.
+d) El uso de cámaras de cualquier tipo, y cualquier dispositivo que permita el almacenamiento de imágenes, datos y archivos audiovisuales, como teléfonos celulares, tabletas, radios comunicadores, computadoras portátiles, entre otros, con el objeto de no poner en riesgo el secreto del voto, ni interrumpir el normal desarrollo de la actividad electoral que se lleva a cabo. En el momento en que la JRV advierta que alguien está violentando esa prohibición, quien preside deberá retirar las papeletas entregadas, anularlas previo a su depósito en las urnas e incluir esa incidencia con el detalle específico en el padrón registro.
