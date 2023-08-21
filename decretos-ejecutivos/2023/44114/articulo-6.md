@@ -1,0 +1,1 @@
+Artículo 6º: Derogatorias: Deróguense el inciso h) del artículo 20, así como los artículos 66 y 70 del decreto Nº 32988-H-MP-PLAN, Reglamento a la Ley de la Administración Financiera de la República y Presupuestos Públicos.

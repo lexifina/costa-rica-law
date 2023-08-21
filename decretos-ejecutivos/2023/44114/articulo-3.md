@@ -1,0 +1,1 @@
+Artículo 3 º- Modificase la denominación de la Sección VII del Capítulo II del Título I del Libro II del Reglamento a la Ley de la Administración Financiera de la República y Presupuestos Públicos para que en adelante se lea: "Evaluación Presupuestaria".

@@ -1,0 +1,1 @@
+Artículo 5° : Cambio en la numeración del Reglamento a la Ley de la Administración Financiera de la República y Presupuestos Públicos: De conformidad con lo dispuesto en el artículo anterior se modifica la numeración de manera tal que los artículos 153 y 154 pasan a ser los154 y155.
