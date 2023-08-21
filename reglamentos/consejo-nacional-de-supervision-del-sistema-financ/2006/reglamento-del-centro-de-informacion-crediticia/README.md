@@ -19,3 +19,4 @@ Reglamento del Centro de Información Crediticia
 | 4 | 2009-10-16 | Reglamento 813 (2009-10-16) |
 | 5 | 2013-08-19 | Reglamento 1058 (2013-08-19) |
 | 6 | 2015-04-20 | Reglamento 1162 (2015-04-20) |
+| 7 | 2023-08-21 | Reglamento 1815 (2023-08-21) |
