@@ -1,0 +1,1 @@
+Artículo 6º-Del acceso de las personas con necesidades especiales: Será obligación de la Municipalidad de Paraíso garantizar la accesibilidad general a las instalaciones, los bienes y servicios del Mercado Municipal de conformidad con la legislación especializada. Ello incluye el tránsito interno, los accesos y puntos de compra.

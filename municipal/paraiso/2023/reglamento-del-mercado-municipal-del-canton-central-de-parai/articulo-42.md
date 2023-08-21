@@ -1,0 +1,2 @@
+Artículo 42.-De la vigencia: El contenido del Reglamento será supletorio y no sustitutivo de cualquier norma legal de aplicación obligatoria y rige a partir de su publicación.
+Se extiende la presente a solicitud del interesado, al ser las ocho horas con veintisiete minutos del día 31 del mes de julio del año 2023, de conformidad con el artículo 53, inciso c) del Código Municipal Vigente. -Es todo.

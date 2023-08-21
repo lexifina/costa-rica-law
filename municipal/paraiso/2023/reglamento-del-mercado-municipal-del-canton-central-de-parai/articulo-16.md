@@ -1,0 +1,3 @@
+Artículo 16.-Del límite para evitar el oligopolio. El número máximo de locales en arrendamiento para un mismo arrendatario queda definido en cuatro en el total del Mercado, con independencia de que se ejerzan diferentes actividades unitariamente o en su conjunto.
+Estas condiciones de máximos se aplicarán cuando los arrendatarios sean de una misma unidad familiar. Así mismo se aplicarán estas condiciones en el caso de personas físicas con sociedades de la que sean accionistas mayoritarios por sí o como grupo familiar hasta el cuarto grado de consanguinidad o afinidad.
+Podrá denegarse la autorización para impedir situaciones de monopolio u oligopolio de venta.

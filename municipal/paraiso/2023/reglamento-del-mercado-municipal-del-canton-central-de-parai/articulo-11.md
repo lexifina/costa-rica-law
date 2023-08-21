@@ -1,0 +1,2 @@
+Artículo 11.-De la representación de arrendatarios: Los arrendatarios podrán asociarse para ser representados ante la Administración del Mercado, para ello la persona jurídica creada debe demostrar a la administración que representa un porcentaje mayor al 50% de los arrendatarios.
+Entre sus funciones tendrá la de presentar, entre los meses de junio y julio de cada año, las propuestas para el Plan Anual Operativo con su respectivo presupuesto.

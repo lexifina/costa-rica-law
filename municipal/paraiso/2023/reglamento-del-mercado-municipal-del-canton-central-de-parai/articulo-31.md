@@ -1,0 +1,2 @@
+Artículo 31.-De las actividades: Las actividades comerciales del Mercado Municipal deberán contar con la aprobación de la Concejo Municipal, mediante los procedimientos previamente establecidos.
+Las actividades extra comerciales como las de animación, promoción, nuevos servicios a los clientes, etc. estarán contempladas dentro del plan anual de acción comercial, formación y capacitación de los arrendatarios que será propuesto por la Asociación de Arrendatarios (Inquilinos) y aprobado por la Alcaldía Municipal

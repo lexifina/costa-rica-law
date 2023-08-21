@@ -1,0 +1,5 @@
+CAPÍTULO III
+De los arrendamientos
+Artículo 12.-De la forma de adquirir el arrendamiento: El mecanismo por el cual se adquiere el arrendamiento es mediante la figura del remate y cesión. Mismos que se realizarán el último día viernes de cada mes durante todo el año hasta que no queden locales ni espacios disponibles a arrendar dentro del inmueble. (Así se hará de conocimiento por publicación en el diario Oficial la Gaceta y en la página web de la Municipalidad de Paraíso). El Acto del remate se realizará en las instalaciones del Mercado municipal por el Administrador o encargado del Mercado Municipal, en la fecha y hora que indique la publicación y la base de los remates los fijará el Concejo municipal, previo estudio de la Dirección Financiera de la Municipalidad de Paraíso.
+Los contratos que acreditaran al adjudicado del remate serán confeccionados por el departamento legal de la Municipalidad de Paraíso o la persona que el alcalde designe y serán por 5 años.
+La Municipalidad no podrá alquilar, rematar o ceder un espacio que ocupe la institución.
