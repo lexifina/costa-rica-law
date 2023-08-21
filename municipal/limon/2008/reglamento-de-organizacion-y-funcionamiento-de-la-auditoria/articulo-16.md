@@ -1,1 +1,0 @@
-Artículo 16.—Los funcionarios de la Auditoría Municipal ejercerán sus atribuciones con total independencia funcional y de criterio respecto del jerarca y de los demás órganos de la administración activa.

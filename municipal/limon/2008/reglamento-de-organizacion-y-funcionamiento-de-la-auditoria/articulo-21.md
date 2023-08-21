@@ -1,1 +1,0 @@
-Artículo 21.—La Auditoría Interna de la Municipalidad de Limón estará integrado por un Auditor Interno, un Subauditor Interno, dos asistentes, un auxiliar y una secretaria, siendo el Subauditor Interno quién suplirá al Auditor Interno en sus vacaciones o ausencias temporales.

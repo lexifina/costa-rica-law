@@ -1,1 +1,0 @@
-Artículo 18.—La Participación del Auditor Interno en sesiones del jerarca, se puede dar para colaborar en asesoramiento de las disposiciones y recomendaciones dadas y alguna capacitación sobre las Leyes de Regulaciones que supervisan el Régimen Municipal, sin que ello sea regla.

@@ -1,1 +1,0 @@
-Artículo 41.—El Auditor Interno de la Municipalidad de Limón, estará en el deber de admitir y regular la tramitación de las denuncias presentadas en su despacho, y dar fiel cumplimiento con lo establecido en el artículo 6º de la Ley General de Control Interno.

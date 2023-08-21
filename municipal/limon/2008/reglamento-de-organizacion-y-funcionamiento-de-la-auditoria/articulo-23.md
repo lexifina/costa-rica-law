@@ -1,3 +1,0 @@
-CAPÍTULO IV
-Del Auditor y Subauditor Interno
-Artículo 23.—El nombramiento del Auditor Interno y Subauditor Interno será por tiempo completo indefinido y lo hará el Concejo Municipal, conforme lo establecido en el artículo 52 del Código Municipal, los artículos 24 y 31 de la Ley General de Control interno y en observancia con los Lineamientos sobre los requisitos de los cargos de auditor y subauditor internos, y las condiciones para las gestiones de nombramiento de en dichos cargos y su jornada laboral será de las siete y treinta horas a las dieciséis horas, en jornada continúa, de lunes a viernes.

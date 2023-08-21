@@ -1,1 +1,0 @@
-Artículo 25.—La Municipalidad de Limón nombrará un Auditor, quién ejercerá la función de vigilancia sobre la ejecución de los servicios o las obras de gobierno y de los presupuestos, así como las obras que le asigne el Concejo.
