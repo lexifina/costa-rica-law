@@ -1,0 +1,1 @@
+Artículo 4º-Las dependencias del sector público podrán, en la medida de sus posibilidades jurídicas y materiales, apoyar para lograr los objetivos de la Estrategia de Empleabilidad y Talento Humano, mediante el aporte de recursos, designación de presupuesto, designación de recurso humano, y la suscripción de convenios interinstitucionales.

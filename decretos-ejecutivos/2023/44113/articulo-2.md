@@ -1,0 +1,4 @@
+Artículo 2º-Colaboración para la ejecución de la Estrategia Nacional de Empleabilidad y Talento Humano de Costa Rica. Se instruye a todas las instancias ministeriales y órganos adscritos y se insta a la Administración descentralizada, para que en la medida de sus posibilidades y dentro del marco legal respectivo, colaboren con la ejecución de esta estrategia.
+Asimismo, se instruye a la Administración Centralizada y se insta a la Administración Descentralizada, la inclusión en sus planes estratégicos y operativos, de objetivos, metas e indicadores para el desarrollo, promoción, fortalecimiento y sostenibilidad de la Estrategia de Empleabilidad y Talento Humano.
+Se invita al Poder Legislativo y sus órganos auxiliares, municipalidades, organismos internacionales, al sector privado y al sector académico, colaborar con la ejecución de esta estrategia.
+Todas las acciones que se desarrollen para este fin serán consideradas de interés público.
