@@ -1,0 +1,4 @@
+Artículo 12.-El Banco no reconocerá pago de comisiones a los Ejecutivos de Ventas Comisionistas por las siguientes causas:
+a. Para aquellos Ejecutivos de Ventas Comisionistas que no hayan afiliado negocios, empresas o productos o servicios nuevos o renovaciones en cada período de un mes, o bien que no cumplan las condiciones establecidas en el esquema de comisiones.
+b. Respecto a ventas realizadas durante períodos de incapacidad, vacaciones o permisos sin goce de salario.
+c. Cuando la Gerencia General Corporativa o Subgerencia General de Negocios resuelva suspender o descontinuar un producto o servicio por razones técnicas o suspensión de los proyectos, el Ejecutivo de Ventas Comisionista no podrá alegar ni requerir compensación económica de ningún tipo a falta de la disponibilidad de dicho producto o servicio.

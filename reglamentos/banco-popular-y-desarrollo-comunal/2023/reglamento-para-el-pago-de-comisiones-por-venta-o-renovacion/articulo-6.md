@@ -1,0 +1,1 @@
+Artículo 6º-Las tarifas de las comisiones por la venta de cada producto o servicio bancario del Conglomerado Banco Popular se regirán por la Tabla de Tarifas de Comisiones por Venta o Renovación de Productos o Servicios Bancarios del Conglomerado Banco Popular, la cual formará parte del contrato.

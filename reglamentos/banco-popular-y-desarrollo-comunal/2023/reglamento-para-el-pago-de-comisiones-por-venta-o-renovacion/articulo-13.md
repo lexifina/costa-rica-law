@@ -1,0 +1,1 @@
+Artículo 13.-Cada dependencia que cuente con Ejecutivos de Ventas Comisionistas generará la información correspondiente a las ventas efectuadas por cada Ejecutivo de Ventas Comisionista, producto o servicio para obtener así los indicadores que permitan evaluar la gestión de ventas y tomar las acciones correctivas que correspondan.

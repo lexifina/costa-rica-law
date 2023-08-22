@@ -1,0 +1,1 @@
+Artículo 3º-Se entiende por pago de comisiones, aquellos pagos realizados a Ejecutivos de Ventas Comisionistas del Banco Popular por concepto de los productos o servicios bancarios vendidos o renovados del Conglomerado, además de los pagos dispuestos en el artículo 18° del presente reglamento para el personal ejecutivo del Banco.

@@ -1,0 +1,1 @@
+Artículo 14.-El monto de cada comisión en ningún caso podrá ser superior al estipulado en la Tabla de Tarifas de Comisiones por Venta o Renovación de Productos o Servicios Bancarios del Conglomerado Banco Popular, resultante según las reglas de cálculo definidas.

@@ -1,0 +1,1 @@
+Artículo 15.-El Ejecutivo de Ventas Comisionista requerirá de períodos de capacitación y trabajos de revisión de los planes y proyectos de ventas; la administración deberá velar por que estos procesos se lleven a cabo con la menor interrupción posible de las funciones de venta.
