@@ -1,1 +1,0 @@
-Artículo 128°. Revisiones y Actualizaciones. La Dirección Proveeduría de la Gerencia de Operaciones y Logística, coordinará la revisión y actualización del presente documento, con una periodicidad anual y planteará las modificaciones que estime pertinentes.

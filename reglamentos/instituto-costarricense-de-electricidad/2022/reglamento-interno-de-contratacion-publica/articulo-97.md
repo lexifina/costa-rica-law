@@ -1,1 +1,0 @@
-Artículo 97°. En caso de acogerse el recurso de revocatoria, en licitaciones reducidas, la Administración cuenta con un plazo de 3 días hábiles para readjudicar. En casos excepcionales este plazo podrá prorrogarse por un plazo igual a la inicial para recibir ofertas.

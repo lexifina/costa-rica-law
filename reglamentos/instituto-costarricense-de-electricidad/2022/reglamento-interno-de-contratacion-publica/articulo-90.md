@@ -1,1 +1,0 @@
-Artículo 90°. En caso de acogerse el recurso de apelación, la Administración cuenta con un plazo de 15 días hábiles para readjudicar. En casos excepcionales este plazo podrá prorrogarse por un plazo igual.

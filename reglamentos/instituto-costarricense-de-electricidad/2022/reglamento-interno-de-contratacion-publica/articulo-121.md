@@ -1,1 +1,0 @@
-Artículo 121°. La Dirección Proveeduría por medio del Órgano Director Administrativo dará inicio al procedimiento de inhabilitación, de conformidad con el procedimiento que establece el artículo 121 de la Ley General de Contratación Pública.

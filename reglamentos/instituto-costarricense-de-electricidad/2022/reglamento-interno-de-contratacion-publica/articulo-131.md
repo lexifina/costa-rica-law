@@ -1,6 +1,0 @@
-Artículo 131°. Aprobación
-2. Instruir a la Gerencia de Operaciones y Logística, presentar ante este Consejo Directivo en un plazo no mayor a los seis meses, la actualización de este Reglamento.
-3. En caso de que se presente algún vacío o ambigüedad durante el proceso de contratación, la Gerencia General deberá emitir los lineamientos respectivos que permitan la continuidad de los procedimientos, en resguardo total a la normativa vigente; todo en coordinación con Gerencia de Operaciones y Logística, la Dirección de Contratación Administrativa y la Dirección Proveeduría.
-4. Encargar a la Dirección Proveeduría, para que realice la publicación del presente acuerdo en el Diario Oficial La Gaceta.
-5. Instruir a la Dirección Proveeduría para que proceda a comunicar a todas las dependencias de la Institución el contenido del Reglamento Interno de Contratación Pública, el cual será aplicable a las contrataciones realizadas al amparo de la Ley 9986.
-6. Comunicar el presente acuerdo a la Dirección Gestión de Políticas de la División de Estrategia para que proceda a incluirlo en el sitio oficial de normativa. Acuerdo firme, mediante acuerdo emitido por el Consejo Directivo en el artículo 2, del Capítulo III de la Sesión 6554 del 06 de diciembre de 2022.

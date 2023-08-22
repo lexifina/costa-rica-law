@@ -1,1 +1,0 @@
-Artículo 103°. Cesión. Las cesiones de contrato establecidas en los artículos 102 de la Ley 9986, serán autorizadas por el órgano que adjudicó, salvo que hayan sido aprobadas por la Junta de Adquisiciones, en cuyo caso serán autorizadas por las Gerencias respectivas, las cuales requerirán contar con el criterio legal de la Dirección Contratación Administrativa.

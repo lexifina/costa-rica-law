@@ -1,1 +1,0 @@
-Artículo 87°. Una vez que sean remitidos los respectivos pronunciamientos o cuando el mismo sea conjunto, la Dirección Proveeduría deberá enviar la respuesta al Órgano Contralor antes de que se cumpla el plazo concedido por éste.

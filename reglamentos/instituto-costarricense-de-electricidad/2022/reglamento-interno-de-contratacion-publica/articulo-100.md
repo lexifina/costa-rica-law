@@ -1,8 +1,0 @@
-TÍTULO V EJECUCIÓN CONTRACTUAL
-Capítulo I Generalidades
-Artículo 100°. Modificación unilateral del contrato. Las modificaciones contractuales pueden ser tanto cualitativas como cuantitativas. Cualitativas en relación con el objeto, plazo de entrega o de inicio, así como otras condiciones originalmente pactadas. Cuantitativas cuando van referidas tanto a aumentos como disminuciones.
-Será responsabilidad de la dependencia técnica que promovió la contratación, acreditar el cumplimiento de los requisitos y condiciones que establecen el artículo 101 de la Ley General de Contratación Pública.
-Bajo ningún concepto, la modificación contractual podrá superar el veinte por ciento (20%) del monto y el plazo del contrato original. Cuando concurran circunstancias excepcionales, técnicamente acreditadas en el expediente, que no se hayan podido prever al momento de iniciar el procedimiento, el contrato podrá modificarse hasta un máximo del cincuenta por ciento (50%), en cuanto monto y plazo del contrato original.
-En ambos casos serán aprobadas por el órgano competente conforme al monto de la modificación y los topes definidos por la Gerencia General en la directriz de montos para adjudicar y resolver trámites de contratación pública.
-La Junta de Adquisiciones no aprobará modificaciones de ningún tipo; por lo que las modificaciones (aumentos o disminuciones) que por su monto alcancen el tope establecido para la Junta, serán aprobadas o rechazadas por la Gerencia respectiva.
-Solamente deberán contar con dictamen legal de la Dirección Contratación Administrativa, aquellas que deban resolver las Gerencias.
