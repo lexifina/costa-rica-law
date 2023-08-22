@@ -1,3 +1,0 @@
-CAPITULO IV. FORMULACIÓN DE PORTAFOLIO DE PROYECTO
-Artículo 19. De la convocatoria. Habrá dos convocatorias al año para la presentación de los proyectos destinados a formar parte del Portafolio. Cada convocatoria habilitará por seis semanas la recepción de nuevas propuestas de proyectos.
-La primera convocatoria de proyectos iniciará el tercer lunes de enero finalizando el último viernes de marzo y la segunda el cuarto lunes de julio y finalizará el primer viernes de septiembre; excepto que por acuerdo del Consejo de Administración de JAPDEVA los plazos de convocatoria sean variados para un determinado año.

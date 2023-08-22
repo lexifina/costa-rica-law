@@ -1,2 +1,0 @@
-Artículo 37. Financiamiento de actividades de pre-inversión. Para aquellos proyectos presentados que no cuenten con estudios de pre-inversión, el proponente podrá acordar con el MIDEPLAN el apoyo a dichas actividades a través del Fondo de Pre-inversión adscrito al Ministerio.
-Los proyectos de iniciativa privada, presentados al amparo del artículo 20 de la Ley General de Concesión de Obras Públicas con Servicios Públicos, deberán estar acompañados de los estudios de factibilidad, según lo señalado en dicha norma.

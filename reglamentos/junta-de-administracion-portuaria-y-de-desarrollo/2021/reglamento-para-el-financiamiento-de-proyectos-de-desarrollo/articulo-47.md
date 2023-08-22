@@ -1,1 +1,0 @@
-Artículo 47 Evaluaciones ex post. Las evaluaciones ex post se realizarán con base en las metas e indicadores señalados en la Metodología vigente, con el fin de determinar el impacto que genere cada uno de los proyectos ejecutados en el desarrollo regional.

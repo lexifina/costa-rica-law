@@ -1,1 +1,0 @@
-Artículo 46. Evaluaciones durante. Estas evaluaciones se realizarán en la etapa de inversión o ejecución con el propósito de asegurar el cumplimiento de los objetivos y productos principales del proyecto, para detectar y solucionar dificultades de programación, administración, calidad, control, entre otros aspectos del proyecto.

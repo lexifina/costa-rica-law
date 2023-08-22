@@ -1,1 +1,0 @@
-Artículo 42. Responsabilidades en cuanto a la Administración de fondos públicos. Para la debida administración de los fondos públicos, la responsabilidad se establecerá de conformidad con el Artículo 110 de la Ley N°. 8131 y demás normativa vinculante.

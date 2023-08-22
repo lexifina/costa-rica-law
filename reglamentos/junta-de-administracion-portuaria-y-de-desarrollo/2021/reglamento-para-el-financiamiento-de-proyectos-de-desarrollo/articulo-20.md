@@ -1,1 +1,0 @@
-Artículo 20. Publicidad de las convocatorias. Las convocatorias deberán ser publicitadas en los medios digitales de la Institución. Asimismo, JAPDEVA podrá realizar la divulgación de la convocatoria en otros medios de comunicación digitales o escritos.

@@ -1,1 +1,0 @@
-Artículo 40. Normas supletorias. Cualquier aspecto técnico relacionado a la formulación, presupuestación, ejecución, seguimiento y control de proyectos de inversión pública no contemplado en el presente reglamento, se estará a lo dispuesto en las normas emitidas por el MIDEPLAN en el marco del Sistema Nacional de Inversión Pública (SNIP) y demás normativa vinculante.

@@ -1,3 +1,0 @@
-Artículo 48. Mantenimiento de obras existentes. La institución procurará que las obras cuenten con mecanismos de autosuficiencia para su mantenimiento y preservación, siempre que la naturaleza y uso de dichos bienes así lo permitan.
-Para ello, JAPDEVA podrá establecer proyectos dentro del Portafolio tendientes al mantenimiento de obras existentes, a través de recursos provenientes del canon de explotación de la Terminal de Contenedores de Moín y de la contribución al desarrollo regional del concesionario.
-En caso de que JAPDEVA haya suscrito convenios de cooperación con instituciones públicas, según lo señalado en el artículo 33 del presente Reglamento, se deberá garantizar el adecuado mantenimiento de las obras por parte de las instituciones involucradas.
