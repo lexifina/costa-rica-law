@@ -1,0 +1,11 @@
+CIRCULAR N° 198-2023
+Asunto: Obligación de las Jefaturas y titulares subordinados, atender adecuadamente el "Proceso de Autoevaluación Interna (PAI) y Sistema Específico de Valoración del Riesgo Institucional (SEVRI)", así como su seguimiento, de conformidad con la LEY DE CONTROL INTERNO.
+A TODAS LAS OFICINAS Y DESPACHOS JUDICIALES QUE
+ATIENDEN LA MATERIA DE VIOLENCIA DOMÉSTICA
+SE LES HACE SABER QUE:
+El Consejo Superior del Poder Judicial en sesión N°67-2023 celebrada el 15 de agosto de 2023, artículo LII, a solicitud de la Comisión Permanente para el Seguimiento de la Atención y Prevención de la Violencia Intrafamiliar, acordó hacer un recordatorio a las Jefaturas y titulares subordinados de los despachos que conocen materia contra la Violencia doméstica, de la obligación de atender adecuadamente y controlar los PROCESOS DE AUTOEVALUACIÓN INTERNA (PAI) y el Sistema específico de Valoración de Riesgo Institucional (SEVRI), de conformidad con la Ley de Control Interno.
+Las funciones que competen a la AUTOEVALUACIÓN INSTITUCIONAL PAI, requieren que cada persona titular subordinada, en conjunto con su equipo de trabajo, realice una calificación del grado de cumplimiento de las normas de Control Interno en cada oficina o despacho judicial, así como el seguimiento respectivo.
+Con relación al Sistema específico de Valoración de Riesgo Institucional SEVRI, se les recuerda que conlleva las siguientes funciones: deben identificar, analizar, valorar y administrar los riesgos que enfrenta la institución y que pueda afectar el logro de los objetivos y hacer una adecuada gestión del riesgo.
+Durante el seguimiento, mediante el equipo de trabajo, se deberá levantar las respectivas minutas de las reuniones realizadas (cada 2 meses), documentar las evidencias tanto de los seguimientos como de los hallazgos detectados con el fin de verificar la atención de las acciones establecidas e identificar la necesidad de administrar nuevos riesgos; de ahí que se sugiere que las observaciones aquí emitidas, sean incorporadas a las respectivas matrices del SEVRI-PJ en proceso, durante las próximas reuniones de Seguimiento.
+Publíquese una sola vez en el Boletín Judicial.
+San José, 22 de agosto de 2023.
