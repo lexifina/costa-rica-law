@@ -1,0 +1,6 @@
+Artículo 43.- Obligaciones del SFE y SENASA. Serán obligaciones del Servicio Fitosanitario del Estado (SFE) y de Servicio Nacional de Salud Animal (SENASA):
+a) Tener pleno conocimiento de la correcta aplicación del artículo 35 de la Ley N° 8204 y del procedimiento establecido en el presente reglamento.
+b) Deberá informar al funcionario aduanero, coadyuvando en el proceso de cumplimiento de la "Declaración de dinero en efectivo y/o títulos valores", según lo que establece el presente reglamento, si en el ejercicio de sus funciones identifican que una persona con posterioridad al trámite migratorio lleva consigo el umbral establecido en el artículo 35 de la Ley 8204.
+c) En caso de identificarse el incumplimiento a la norma, deberá proceder de conformidad con el artículo 21 del presente reglamento.
+d) Levantar el acta denominada "Constancia de hechos" cuando corresponda y poner a disposición de la autoridad aduanera, el dinero y títulos valores identificados.
+e) Firmar con el funcionario de aduanas el "Acta de retención de dinero y/o títulos valores" cuando haya participado en el proceso de identificación del incumplimiento a la norma del artículo 35 de la Ley N°8204 y retención del dinero y/o títulos valores.

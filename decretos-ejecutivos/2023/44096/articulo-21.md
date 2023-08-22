@@ -1,0 +1,12 @@
+CAPÍTULO IV
+DETECCIÓN DE LA INFRACCIÓN Y CONSECUENCIAS LEGALES
+DEL INCUMPLIMIENTO DEL ARTÍCULO 35 LEY N° 8204
+DE APLICACIÓN EN LOS DIFERENTES PUESTOS FRONTERIZOS DEL PAÍS
+Artículo 21.-Detección y Retención del dinero y/o títulos valores. Cuando se detecte a una persona portando dinero en efectivo y/o títulos valores que no hayan sido declarados según lo establecido en el artículo 35 de la Ley N°8204, se procederá de la siguiente manera:
+a) La autoridad correspondiente que identifique el hallazgo después del puesto de migración en la entradas y salidas del país deberá levantar el acta denominada "Constancia de hechos", trasladará a la persona al puesto de Aduanas, para comunicar la situación identificada.
+b) La autoridad aduanera recibe la comunicación del incumplimiento de lo establecido en el artículo 35 de la Ley N°8204, de acuerdo con el acta denominada "Constancia de hechos" y lo expuesto por la autoridad que identificó el incumplimiento de la "Declaración de dinero en efectivo y/o títulos valores".
+c) La autoridad aduanera en presencia de la persona y del funcionario que identificó el hallazgo, procederá con el conteo del dinero en efectivo y/o títulos valores, en caso de que sean denominaciones distintas al dólar estadounidense, se procederá a la conversión de dichas cifras, conforme los tipos de cambio del Banco Central de Costa Rica, esto con la finalidad de verificar si la cifra que porta es igual o superior al umbral que establece el artículo 35 de la Ley N°8204.
+d) Si la autoridad aduanera constata el incumplimiento del artículo 35 de la Ley N°8204, se tomarán los datos de la persona, fotocopia del pasaporte, así como cualquier otro documento que sea de interés para la autoridad aduanera.
+e) Lo anterior, se consignará en el "Acta de Retención de dinero y/o títulos valores", y será firmada por las autoridades presentes y la persona que incumplió con lo establecido en el artículo 35 de la Ley N°8204 y se entregará una copia a esta última.
+Si la persona que incumplió con la declaración manifiesta su disconformidad en firmar el "Acta de Retención de dinero y/o títulos valores", las autoridades deben dejar constancia de esto en dicho documento y continuar con el procedimiento correspondiente.
+f) Finalizadas las diligencias anteriores, se continuará con el procedimiento normal de ingreso o salida del país de acuerdo con lo establecido para tales efectos.

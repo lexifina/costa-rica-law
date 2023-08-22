@@ -1,0 +1,7 @@
+Artículo 49.- Otras acciones de las autoridades Policiales. Si las autoridades policiales identifican durante el proceso de entrevistas, incumplimiento en la legislación nacional o cualquier indicio de un posible delito, deberán efectuar las acciones y coordinaciones de índole preventivo, según las competencias que les confiere la Legislación que los ampara.
+Asimismo, en caso de que se revise el equipaje del pasajero y se identifique dinero claramente o con algún método de ocultamiento, deberán:
+1. Documentar el hallazgo con fotografías, vídeos o croquis; la forma del embalaje o portación del dinero, así como dejar constancia de la argumentación expuesta por el pasajero durante el proceso migratorio y entrevistas realizadas.
+2. Coordinar con el Servicio Nacional de Aduanas, para el adecuado procedimiento que se debe seguir en estos casos, para el conteo del dinero.
+3. Coordinar con la Fiscalía correspondiente, para que ésta determine si se inicia un proceso judicial.
+4. Una vez finalizadas las diligencias policiales, al dinero en efectivo y/o títulos valores no declarados, se le dará el tratamiento establecido en los artículos 21 y 22 del presente reglamento.
+De igual manera si una persona declara de conformidad con el artículo 35, pero la autoridad policial encuentra indicios sobre algún delito tipificado en la Ley N°8204, dicha autoridad debe coordinar con la Fiscalía para lo que corresponda de acuerdo con su competencia

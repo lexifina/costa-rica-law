@@ -1,0 +1,1 @@
+Artículo 9. Acto de constatación por parte de la autoridad competente. La autoridad aduanera ubicada en el puesto fronterizo o aeropuertos internacionales será la competente para constatar el cumplimiento o incumpliendo de la obligación contenida en artículo 35 de la Ley N°8204.

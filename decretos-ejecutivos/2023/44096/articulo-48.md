@@ -1,0 +1,3 @@
+CAPÍTULO VII
+OTRAS ATRIBUCIONES DE LAS AUTORIDADES COMPETENTES
+Artículo 48.- Entrevistas de autoridades competentes. Las autoridades administrativas y policiales que estén ejerciendo controles, al ingreso o salida del país, podrán entrevistar y aplicar los procedimientos de acuerdo con sus competencias otorgadas por Ley, si en el ejercicio de sus funciones identifican algún incumplimiento del artículo 35 de la Ley N° 8204, deberán consignarlo en el acta denominada "Constancia de hechos", oficializada para tal efecto. Esta acta será el fundamento para resguardar su actuación desde el ámbito administrativo.

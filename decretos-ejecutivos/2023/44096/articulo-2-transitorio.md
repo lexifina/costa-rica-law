@@ -1,0 +1,1 @@
+TRANSITORIO II.- Dentro de un plazo de tres meses contados a partir de la publicación del presente reglamento, las autoridades públicas señaladas en éste deberán contar con los manuales de procedimientos y los manuales o lineamientos operativos necesarios para el debido cumplimiento del presente reglamento.

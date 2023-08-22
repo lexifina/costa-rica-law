@@ -1,0 +1,1 @@
+Artículo 33.-Retorno al puesto de Migración. Una vez que la persona haya completado el procedimiento establecido en los artículos 30, 31 y 32, procederá a continuar con el procedimiento normal de salidas del país, retornando al puesto de migración escoltado por los oficiales que participaron en el proceso de verificación, para que se concluya con los trámites respectivos.

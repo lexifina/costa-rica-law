@@ -1,0 +1,10 @@
+Artículo 4.- Obligación de declarar dinero en efectivo o títulos valores. Toda persona física, sea ésta nacional o extranjera que ingrese o egrese del país tiene la obligación de declarar la portación de dinero en efectivo y/o títulos valores, por una cantidad igual o superior a los diez mil dólares (moneda en curso legal de los Estados Unidos de América), o su equivalente en cualquier otra moneda.
+Para efectos de este reglamento, las personas deberán presentar ante la autoridad aduanera, debidamente completa y firmada la declaración.
+Para el cumplimiento de la declaración, la persona deberá proceder de la siguiente manera:
+a) Comunicar la portación de dinero y solicitar el formulario "Declaración de dinero en efectivo y títulos valores" en el puesto de Migración que se encuentra en el ingreso y salida del país.
+b) Completar correctamente la información solicitada en el formulario "Declaración de dinero en efectivo y títulos valores" cuando porte una cantidad igual o superior al umbral establecido en el artículo 35 de la Ley N°8204.
+c) Firmar la "Declaración de dinero en efectivo y títulos valores" previo a su entrega a la autoridad aduanera para la verificación correspondiente.
+d) Trasladarse a la oficina de Aduanas y entregar el original de la "Declaración de dinero en efectivo y títulos valores" a la autoridad aduanera.
+e) Poner a disposición el pasaporte o documento de viaje emitido por la autoridad migratoria de su país de origen, así como cualquier otro documento que tenga en su poder, que le permita a la autoridad aduanera confirmar la procedencia del dinero y/o títulos valores.
+f) Conservar una copia de la declaración, una vez verificada y constatada por la autoridad aduanera, debidamente firmada por ambas partes.
+g) Ante cualquier requerimiento de la autoridad que esté ejerciendo el control en los puestos de inspección de entrada y salida del territorio costarricense, deberá presentar la copia de la declaración que fue debidamente verificada y constatada por la autoridad aduanera.

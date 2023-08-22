@@ -1,0 +1,1 @@
+Artículo 52.- Manuales operativos. Todas las instituciones involucradas en el cumplimiento del artículo 35 de la Ley N°8204, deberán incorporar en sus manuales de procedimientos y/u operativos, los lineamientos necesarios para el cumplimiento efectivo del presente reglamento.

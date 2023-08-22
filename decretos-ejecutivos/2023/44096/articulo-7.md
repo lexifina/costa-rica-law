@@ -1,0 +1,2 @@
+Artículo 7.- Disposición de los formularios de declaración. En los puestos de Migración que se encuentran en el ingreso y salida del país, la autoridad aduanera pondrá a disposición los formularios de "Declaración de dinero en efectivo y títulos valores", tal y como lo establece el artículo 35 de la Ley N°. 8204".
+Asimismo, los formularios de declaración podrán entregarse en los lugares de chequeo previo al puesto de migración, que así disponga la autoridad aduanera de los puestos fronterizos y aeropuertos internacionales.

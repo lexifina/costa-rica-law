@@ -1,0 +1,5 @@
+Artículo 46.- Obligaciones de la Dirección General de Aviación Civil. Tendrá las siguientes obligaciones y responsabilidades:
+a) Tener pleno conocimiento de la aplicación correcta del artículo 35 de la Ley N° 8204 y del Procedimiento establecido en el presente Reglamento y el artículo 21 párrafo primero de la Ley General de Aduanas N°7557.
+b) Asegurarse que los contratos de las empresas concesionadas de terminales aéreas cumplan con lo regulado en el ordenamiento jurídico, en relación con lo señalado en el presente reglamento, así como las consecuencias por no acatarlo.
+c) Supervisar el pleno cumplimiento de lo regulado en el ordenamiento jurídico, en relación con el presente reglamento.
+d) Emitir anualmente un informe al ICD que contemple el funcionamiento de los mecanismos de información existentes, lugares donde se encuentran los avisos y demás acciones ejecutadas por las autoridades aeroportuarias en las diferentes terminales aéreas, en función del cumplimiento efectivo del artículo 35 de la Ley N°8204.

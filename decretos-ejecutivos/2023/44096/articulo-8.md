@@ -1,0 +1,1 @@
+Artículo 8.- Lugar para Declarar. La declaración debe presentarse ante la autoridad aduanera, la cual deberá realizarse en la oficina de Aduanas, de acuerdo con el procedimiento establecido en el presente reglamento.

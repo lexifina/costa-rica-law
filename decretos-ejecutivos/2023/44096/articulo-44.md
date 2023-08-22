@@ -1,0 +1,4 @@
+Artículo 44.- Obligaciones y responsabilidades de los concesionarios y administradores de las terminales aéreas y terrestres. Tendrán las siguientes obligaciones y responsabilidades:
+a) Deberán tener pleno conocimiento de la aplicación del artículo 35 de la Ley N° 8204 y del procedimiento establecido en el presente reglamento.
+b) Asegurarse que los contratos que emita con empresas de seguridad privada contemplen dentro de sus cláusulas de cumplimiento lo relativo a la actuación y responsabilidad que tienen en el cumplimiento del procedimiento establecido en el presente reglamento, así como las consecuencias por no acatarlas.
+c) Dar seguimiento a la aplicación efectiva de este procedimiento por parte de las empresas que brindan servicio de seguridad en estas terminales y aplicar las cláusulas penales del contrato.
