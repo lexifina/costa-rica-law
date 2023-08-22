@@ -1,0 +1,5 @@
+Artículo 11.-Funciones Unidad de Gestión del Desarrollo.
+a) Confeccionar, analizar y remitir a la Gerencia de Administración de Desarrollo los expedientes debidamente foliados correspondientes a los proyectos que por medio de convenios de cooperación o donación que se vayan a ejecutar en la Vertiente Atlántica y su inclusión en el Plan de Desarrollo Regional del período correspondiente, así como sus modificaciones, adendas y prorrogas.
+b) Gestionar que los proyectos para las transferencias de fondos públicos a ejecutar sean incluidos en el presupuesto institucional, sea en el presupuesto ordinario o en una modificación presupuestaria.
+c) Preparar e incorporar en el expediente, los requisitos que de acuerdo con el Departamento de Administración y Finanzas se requieran para que un sujeto privado sea declarado idóneo para administrar fondos públicos, de acuerdo con las leyes y directrices que para los efectos han sido establecidas.
+d) Cualquier otra que la Ley Orgánica de JAPDEVA, Ley 9764 y este reglamento así lo establezca.

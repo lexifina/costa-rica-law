@@ -1,0 +1,1 @@
+Artículo 2°-Alcance. Los lineamientos establecidos en este reglamento serán de aplicación general para todas las instancias de la Institución, relacionadas con la formulación, gestión, ejecución y supervisión de documentos jurídicos habilitadores que impliquen la transferencia de recursos económicos por parte de JAPDEVA y para el desarrollo de la Vertiente Atlántica.

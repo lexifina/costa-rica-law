@@ -1,0 +1,9 @@
+Artículo 8°-Funciones de la Unidad de Financiero Contable.
+a) Establecer los manuales para la trasferencia de fondos públicos a sujetos públicos y privados, según las leyes y normas establecidas en la materia, así como las correspondientes modificaciones a los mismos.
+b) Cumplir con los lineamientos para la efectiva ejecución de los procesos para realizar transferencias de fondos públicos a sujetos públicos o privados.
+c) Incluir las trasferencias de fondos públicos de los proyectos a ejecutar en el presupuesto institucional, sea en el presupuesto ordinario o extraordinario o en una modificación presupuestaria según corresponda.
+d) Emitir las certificaciones que hagan constar que los recursos presupuestarios se encuentran autorizados en el presupuesto institucional.
+e) Ejecutar, conforme el acuerdo de Consejo de Administración, así como el visto bueno de la Unidad de Supervisión de la TCM y APPs, los desembolsos o transferencias de los recursos financieros con los que la Junta de Administración Portuaria y de Desarrollo Económico de la Vertiente Atlántica (JAPDEVA) se compromete para cumplir lo establecido en el documento habilitador.
+f) Conformar un expediente administrativo digital (y físico de ser necesario) debidamente actualizado y foliado con todos los documentos que refieran al proceso de desembolso o transferencia de fondos públicos. Dicha documentación deberá archivarse por el plazo de 5 años.
+g) Remitir a la Unidad de Supervisión de la TCM y APPs copia del expediente administrativo digital (y físico de ser necesario) debidamente actualizado y foliado con todos los documentos que refieran al proceso de desembolso o transferencia de fondos públicos que han sido tramitados y que se vayan a ejecutar a favor de sujetos públicos o privados, así como sus modificaciones, adendas y prorrogas.
+h) Cualquier otra que la Ley Orgánica de JAPDEVA, Ley 9764 y este Reglamento así lo establezcan.
