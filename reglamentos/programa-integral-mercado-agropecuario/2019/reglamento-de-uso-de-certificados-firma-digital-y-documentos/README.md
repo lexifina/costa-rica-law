@@ -14,3 +14,4 @@ Reglamento de uso de certificados, firma digital y documentos electrónicos del 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-09-30 | la propia norma |
+| 2 | 2023-08-22 | Reglamento 0 (2023-08-22) |
