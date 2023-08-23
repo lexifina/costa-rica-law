@@ -1,0 +1,1 @@
+Artículo 16°-La atención de denuncias trasladadas por la Contraloría General de la República. La Auditoría Interna atenderá, de acuerdo con su plan de trabajo, las denuncias que le sean remitidas por el Ente Contralor.
