@@ -1,0 +1,1 @@
+Artículo 2º-Dicho Encuentro, Congreso y seminarios están dirigidos a instituciones públicas, municipalidades, universidades, organizaciones no gubernamentales, fundaciones, asociaciones, empresa privada, medios de comunicación masiva, que con su quehacer en educación ambiental contribuyen con el logro de un desarrollo ambientalmente sostenible del país.
