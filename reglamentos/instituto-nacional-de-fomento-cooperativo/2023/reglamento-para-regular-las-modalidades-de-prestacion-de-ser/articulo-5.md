@@ -1,0 +1,1 @@
+Artículo 5º-Número de personas. En cada oficina podrán desempeñarse hasta un máximo de dos meritorios, pasantes o estudiantes si las condiciones de trabajo, salubridad pública, espacio, equipo y materiales, entre otros, así lo permiten. Para ello se deberá contar con el visto bueno y justificación del Gerente de Departamento o Jefe de Dependencia.

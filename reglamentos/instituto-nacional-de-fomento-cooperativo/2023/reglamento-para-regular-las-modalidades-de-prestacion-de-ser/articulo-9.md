@@ -1,0 +1,5 @@
+Artículo 9º-Meritorios. Son requisitos para el ingreso al régimen de trabajo meritorio:
+a. La solicitud formal por parte del interesado/a o de la institución. En dicho documento deberá justificarse el objetivo personal o institucional de la solicitud, la disponibilidad de tiempo en cuanto al plazo, jornada y horario que estaría dispuesto a ofrecer y cualquier otra indicación o circunstancia particular que la institución deba considerar para su ingreso.
+b. La presentación del currículum vitae y de los documentos que respalden sus atestados personales, laborales, profesionales y académicos.
+c. La existencia de una necesidad objetiva y del interés institucional en que se preste esta colaboración, así como el visto bueno del director, directora o jefe de la oficina donde se pretende desempeñar la persona meritoria.
+d. La suscripción de un formulario de práctica profesional con el Director Ejecutivo en donde se describan las condiciones mediante las cuales se prestará la modalidad servicios o tareas a desempeñar y la aceptación de las partes a través de la firma del documento.
