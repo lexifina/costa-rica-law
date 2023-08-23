@@ -1,0 +1,1 @@
+Artículo 22.-De los actos administrativos de los procesos de aprovisionamiento. Corresponde al Proveedor Institucional la firma de los actos administrativos que competen a los procesos de aprovisionamiento como por ejemplo orden de compra y aprobación de contrato electrónico en SICOP.

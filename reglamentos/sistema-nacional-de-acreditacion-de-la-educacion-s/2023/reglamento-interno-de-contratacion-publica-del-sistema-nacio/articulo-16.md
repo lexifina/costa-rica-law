@@ -1,0 +1,1 @@
+Artículo 16.-De la decisión inicial en obra pública, compra o arrendamiento de bienes inmuebles. Corresponde al Consejo Nacional de Acreditación la motivación del acto de decisión de compra y arrendamiento de bienes inmuebles, la decisión inicial en obra pública cuando esta supere el umbral de la licitación mayor.

@@ -1,0 +1,1 @@
+Artículo 34.-Llamado a participar. La invitación a participar de los concursos que promueva el SINAES, se realizará conforme a la Ley General de Contratación Pública y su Reglamento, y procedimientos internos aprobados por SINAES.

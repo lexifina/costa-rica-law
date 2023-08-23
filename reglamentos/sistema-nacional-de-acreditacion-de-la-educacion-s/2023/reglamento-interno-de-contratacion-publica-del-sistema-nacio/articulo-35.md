@@ -1,0 +1,1 @@
+Artículos 35.-Plazos para la recepción de ofertas. Los plazos para la recepción de ofertas serán establecidos por la Proveeduría Institucional dependiendo del tipo de procedimiento respetando lo dispuesto en la Ley de General de Contratación Pública y su Reglamento

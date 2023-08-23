@@ -1,0 +1,1 @@
+Artículo 24.-De la disponibilidad presupuestaria. De conformidad con la Ley de Contratación Pública y su Reglamento la división solicitante deberá verificar el contenido presupuestario ante la dependencia responsable de la ejecución y control del presupuesto institucional, la División de Servicios de Apoyo a la Gestión, previo a la decisión inicial.

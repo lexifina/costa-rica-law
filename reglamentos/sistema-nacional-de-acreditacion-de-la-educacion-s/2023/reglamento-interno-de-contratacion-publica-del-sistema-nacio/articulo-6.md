@@ -1,0 +1,1 @@
+Artículo 6°-Régimen de Prohibiciones: Es obligación de todo proveedor registrar y mantener actualizada la declaración de prohibiciones, adjunta en el registro de proveedores que conformara la Dirección de Contratación Pública. El SINAES, solicitará como requisito de admisibilidad en sus procesos de contratación pública, la declaración jurada del régimen de prohibiciones.

@@ -1,0 +1,1 @@
+Artículo 17.-De las modificaciones unilaterales del contrato iguales o superiores al 20% del contrato. Corresponde al Consejo Nacional de Acreditación las modificaciones contractuales cuando sean de montos iguales o superiores al 20%. del contrato.

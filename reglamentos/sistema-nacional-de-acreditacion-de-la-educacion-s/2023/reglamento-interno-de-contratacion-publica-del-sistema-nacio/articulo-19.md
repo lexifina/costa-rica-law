@@ -1,0 +1,1 @@
+Artículo 19.-De las certificaciones de experiencia positiva de los contratistas. Corresponde al Proveedor Institucional la capacidad certificadora para el reconocimiento de experiencia positiva de los contratistas en relación con la ejecución de bienes o servicios contratados en SINAES.

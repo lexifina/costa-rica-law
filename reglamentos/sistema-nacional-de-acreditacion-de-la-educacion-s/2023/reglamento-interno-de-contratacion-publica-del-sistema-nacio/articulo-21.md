@@ -1,0 +1,1 @@
+Artículo 21.-Del acta de entrega de bienes patrimoniales. La firma del acta de entrega de los bienes muebles patrimoniales que son donados a otras instituciones de la Administración Pública, corresponderá según lo establecido en el artículo 47 del Reglamento de Gestión de Activos de Propiedad, Planta y Equipo del SINAES.

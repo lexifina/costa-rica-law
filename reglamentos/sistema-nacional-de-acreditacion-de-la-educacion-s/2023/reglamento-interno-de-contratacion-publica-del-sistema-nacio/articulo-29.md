@@ -1,0 +1,1 @@
+Artículo 29.-De los Procedimientos de extraordinarios. La Proveeduría Institucional podrá utilizar los siguientes procedimientos extraordinarios según lo dispuesto en la Ley de General de Contratación Pública y su Reglamento: Remate y Subasta Inversa Electrónica.

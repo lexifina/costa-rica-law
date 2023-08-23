@@ -1,0 +1,4 @@
+Artículo 27.-De los procedimientos ordinarios. Los Procedimientos ordinarios, según la LGCP son:
+a) Licitación Mayor: Es el procedimiento ordinario de carácter concursal que será establecido conforme a los umbrales establecidos de cuantía o de acuerdo con la tipología del contrato según los supuestos de la normativa vigente.
+b) Licitación Menor: Es un procedimiento ordinario de carácter concursal de menor rigurosidad que la Licitación Mayor que será establecido conforme a los umbrales establecidos de cuantía o de acuerdo con la tipología del contrato según los supuestos de la normativa vigente.
+c) Licitación reducida: Son las contrataciones que, por su limitado volumen y trascendencia económica de conformidad con los umbrales establecidos, se pueden tramitar según el procedimiento establecido en la Ley de General de Contratación Pública y su Reglamento.

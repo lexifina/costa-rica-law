@@ -1,0 +1,1 @@
+Artículos 36.-Apertura de las ofertas. Una vez concluido el plazo de recepción de ofertas la Proveeduría Institucional tendrá a su cargo la apertura de las ofertas que se realiza en línea por medio del sistema electrónico de compras públicas.

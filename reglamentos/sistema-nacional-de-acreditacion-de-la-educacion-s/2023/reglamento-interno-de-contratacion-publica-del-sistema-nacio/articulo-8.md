@@ -1,0 +1,2 @@
+Artículo 8°-Agotamiento de la vía administrativa. En el SINAES, corresponderá a cada instancia competente de la adjudicación según lo descrito en el artículo 30 de este Reglamento, resolver los recursos de revocatoria que se presenten en contra de los diversos actos de adjudicación.
+El jerarca conocerá y resolverá en alzada el recurso cuando el recurrente lo solicitará por escrito, todo lo anterior, según lo dispuesto el artículo 99 de la Ley General de Contratación Pública, agotando la vía administrativa.

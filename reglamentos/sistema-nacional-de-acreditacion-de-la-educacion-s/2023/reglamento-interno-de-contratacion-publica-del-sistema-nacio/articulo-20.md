@@ -1,0 +1,1 @@
+Artículo 20.-De los finiquitos contractuales. Corresponde al Proveedor Institucional la suscripción como contraparte de la Administración, de los finiquitos contractuales de las contrataciones que así lo dispongan en sus pliegos de condiciones.
