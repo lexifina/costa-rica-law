@@ -1,0 +1,3 @@
+Artículo 5º-Autorizaciones genéricas para la adquisición de combustible. Presentadas las solicitudes genéricas de exención para la adquisición de combustible, el Departamento de Gestión de Exenciones verificará el cumplimiento de los requisitos y en caso de ser procedente autorizará las exenciones genéricas, con una vigencia de un año.
+Las autorizaciones aplicarán para las compras que se realicen durante el plazo de vigencia de la autorización, sin perjuicio de que la devolución se realice incluso hasta un año después del vencimiento.
+En caso de que la solicitud no cumpla con los presupuestos o requisitos establecidos por la normativa, el Departamento de Gestión de Exenciones coordinaría la respectiva devolución o incluso denegatoria en caso de que fuera pertinente.

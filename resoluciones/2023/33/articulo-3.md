@@ -1,0 +1,3 @@
+Artículo 3º-Sobre la presentación de las solicitudes genéricas.
+Las misiones diplomáticas y organismos internacionales definidas en la presente resolución podrán tramitar ante el Sistema Exonet un máximo de una solicitud anual cada una, para la adquisición de combustible para los vehículos que actualmente utilizan en el ejercicio de sus funciones. En forma excepcional, con la previa autorización del Departamento de Gestión de Exenciones, los beneficiarios podrán tramitar una segunda solicitud genérica dentro del mismo periodo.
+Dichas solicitudes se tramitarán como nueva solicitud de Impuesto Local Genérica de Bienes y Servicios, anotando el fundamento legal correspondiente y los Códigos CABYS vigentes correspondientes a los respectivos combustibles.
