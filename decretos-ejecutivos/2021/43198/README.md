@@ -15,3 +15,4 @@ Reglamento de la Ley del Impuesto sobre la Renta
 | --- | --- | --- |
 | 1 | 2021-12-17 | la propia norma |
 | 2 | 2022-04-28 | Decreto Ejecutivo 43526 (2022-04-28) |
+| 3 | 2023-08-23 | Decreto Ejecutivo 44299 (2023-08-23) |
