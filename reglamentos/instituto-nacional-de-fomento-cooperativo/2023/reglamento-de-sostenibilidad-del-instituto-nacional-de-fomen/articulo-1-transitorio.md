@@ -1,0 +1,1 @@
+Transitorio I.-Los Organismos Cooperativos que con anterioridad a la vigencia del presente Reglamento se encuentren dentro del supuesto que regula el artículo 2, podrán presentar la solicitud de atención para ser analizada por el Área de Financiamiento de INFOCOOP.
