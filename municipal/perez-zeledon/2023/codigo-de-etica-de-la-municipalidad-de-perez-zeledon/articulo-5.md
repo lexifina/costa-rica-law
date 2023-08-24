@@ -1,0 +1,4 @@
+CAPÍTULO IV
+Generalidades
+Artículo 5º-El código promoverá una cultura organizacional basada en valores éticos, orientados a lograr una gestión municipal transparente, íntegra y responsable, todo de conformidad con el marco estratégico institucional y la normativa vigente.
+Este Código será utilizado para la toma de decisiones y acciones, en los procesos de reclutamiento, selección de personal, así como insumo para la inducción y formación permanente del personal, la elaboración de perfiles de competencias, la divulgación y la promoción continua de la ética.

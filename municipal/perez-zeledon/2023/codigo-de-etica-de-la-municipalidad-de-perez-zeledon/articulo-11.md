@@ -1,0 +1,1 @@
+Artículo 11.-La información que manipule el funcionario, se debe manejar de manera confidencial y será utilizada exclusivamente para atender asuntos internos. Con excepción de aquellos documentos que están tipificados como públicos.

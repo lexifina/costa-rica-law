@@ -1,0 +1,1 @@
+Artículo 7º-La actuación del personal de la Municipalidad de Pérez Zeledón es guiada por su marco estratégico institucional: misión, visión y valores institucionales compartidos. Además, la gestión institucional se dirigirá para que la cultura organizacional sea coherente con el marco estratégico institucional.

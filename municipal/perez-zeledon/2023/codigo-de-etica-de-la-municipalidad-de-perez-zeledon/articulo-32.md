@@ -1,0 +1,1 @@
+Artículo 32.-Promover, internamente en la institución y con la sociedad en general, procedimientos periódicos de rendición de cuentas (Informe de fin de gestión) con el fin de colaborar con el país en el esfuerzo por crear una cultura de la transparencia y rendición de cuentas.
