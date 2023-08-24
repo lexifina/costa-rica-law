@@ -1,0 +1,5 @@
+Artículo 16
+Salvoconducto
+1. La Parte Requirente no podrá investigar, enjuiciar, detener, condenar o de algún otro modo privar de su libertad a algún testigo o perito presente en el territorio de la Parte Requirente con motivo de algún acto u omisión que tenga lugar antes del ingreso de la persona en cuestión a su territorio. Asimismo, dicha persona no será obligada a prestar declaración o asistencia en investigaciones, juicios u otros procedimientos que no estén mencionados en la solicitud.
+2. El párrafo 1 del presente articulo no se aplicará si la persona mencionada en dicho párrafo hubiera permanecido en el territorio de la Parte Requirente quince (15) días después de haber sido notificada oficialmente de que su presencia ya no es necesaria, o si, habiendo salido, regresara voluntariamente. Sin embargo, este período no incluirá el tiempo durante el cual la persona no pueda abandonar el territorio de la Parte Requirente por razones que excedan su control.
+3. Las personas que se nieguen a prestar declaración o a asistir en alguna investigación no estarán sujetas a ninguna pena o restricción de su libertad personal en razón de dicha negativa.
