@@ -1,0 +1,1 @@
+Artículo 19.-De la comunicación para la ejecución del contrato. La Unidad de Proveeduría Institucional comunicará a la unidad solicitante y al administrador del contrato, del refrendo contractual, cuando corresponda, y emitirá la orden de inicio del proceso de ejecución contractual.

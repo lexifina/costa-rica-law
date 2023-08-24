@@ -1,0 +1,1 @@
+Artículo 16.-Aprobación interna. De conformidad con lo establecido en el artículo 20 de la Ley Orgánica de la Contraloría General de la República, estará sujeta a la aprobación interna del CONAPAM la actividad contractual establecida en el Reglamento Sobre el Refrendo de la Contrataciones de la Administración Pública, emitido por la Contraloría General de la República.
