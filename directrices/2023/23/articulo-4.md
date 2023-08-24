@@ -1,0 +1,1 @@
+Artículo 4º-Se instruye a Ministras y Ministros de Gobierno a reducir al máximo los gastos correspondientes a viajes al exterior, de manera que se realicen sólo aquellos que sean estrictamente necesarios y conlleven un beneficio de importancia para Costa Rica.

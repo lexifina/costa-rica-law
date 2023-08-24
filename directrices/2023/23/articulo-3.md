@@ -1,0 +1,1 @@
+Artículo 3º-La autorización emitida por el Presidente de la República será necesaria para tramitar el acuerdo de viaje ante el despacho del Presidente de la República, en los términos que establecen los artículos 7 y 31 del Reglamento de Gastos de Viaje y Transporte para Funcionarios Públicos.
