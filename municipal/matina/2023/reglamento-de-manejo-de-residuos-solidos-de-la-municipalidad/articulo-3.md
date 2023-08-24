@@ -1,0 +1,1 @@
+Artículo 3º-Alcance. Este reglamento es de acatamiento obligatorio para todas las personas, físicas y jurídicas, públicas y privadas, generadoras de residuos sólidos ordinarios de competencia municipal que se encuentran localizados dentro del ámbito territorial del Cantón de Matina.

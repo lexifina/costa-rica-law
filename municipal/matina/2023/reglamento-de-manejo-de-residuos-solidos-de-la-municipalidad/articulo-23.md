@@ -1,0 +1,3 @@
+CAPÍTULO V.
+Tasas por la Gestión de Residuos Sólidos
+Artículo 23.-Tasas Trimestrales. La Municipalidad brindará los servicios de recolección ordinaria, recolección selectiva, transporte, tratamiento y disposición final de residuos sólidos, cobrando trimestralmente las tasas integrando todos los costos asociados al servicio municipal en la gestión integral de residuos sólidos del cantón. Se podrá variar estas tasas anualmente, según lo establecido en el artículo 74 del Código Municipal, las tasas e impuestos serán publicados por el Gobierno Local a fin de garantizar la publicidad de los montos.

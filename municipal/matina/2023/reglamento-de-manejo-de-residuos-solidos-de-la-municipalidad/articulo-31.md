@@ -1,0 +1,1 @@
+Artículo 31.-Divulgación a la población. La Municipalidad utilizará los medios de comunicación que considere adecuados, con el fin de dar a conocer el presente Reglamento a la población del cantón. Sin embargo, el mismo será de acatamiento obligatorio y por tal motivo ningún habitante podrá aducir desconocimiento al respecto a partir de su vigencia.

@@ -1,0 +1,1 @@
+Artículo 13.-Rutas del servicio de recolección selectiva. La Municipalidad brindará el servicio de recolección selectiva, las rutas serán publicadas en la página web municipal, redes sociales, boletines y otros medios de comunicación pertinentes; estas rutas estarán sujetas a modificaciones, conforme se aumente la cobertura del mismo.
