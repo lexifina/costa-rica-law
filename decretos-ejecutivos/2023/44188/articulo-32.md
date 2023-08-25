@@ -1,0 +1,1 @@
+Artículo 32º. Del seguimiento a los reportes de eventos adversos y problemas inesperados. El CEC-MS realizará el seguimiento a los reportes de eventos adversos y de problemas inesperados de acuerdo con lo que dicta su procedimiento interno y lo que defina la legislación del CONIS.

@@ -1,0 +1,6 @@
+Artículo 6º. De la sede y dependencia funcional, administrativa y financiera del CEC-MS. El CEC-MS tendrá su sede en las instalaciones del Ministerio de Salud, Nivel Central.
+Como organización, el CEC-MS depende funcional y administrativamente en su totalidad del Ministerio de Salud.
+El CEC-MS se regirá con las tarifas que fije este decreto o el vigente que lo regule. El Ministerio de Salud asegurará los recursos que se requieran para su adecuado funcionamiento y el desempeño eficaz de sus responsabilidades.
+Los recursos que aporta el Ministerio de Salud deben incluir recursos financieros con el fin de proporcionar infraestructura, materiales, personal, capacitación permanente para la mejora de las competencias, consultorías externas, pólizas que apliquen y otros que sean requeridos y que permitan al CEC-MS desempeñar un trabajo de alta calidad, de esta forma cumplir con las funciones asignadas por la normativa.
+El CEC-MS establecerá en sus procedimientos la forma en que abordará efectivamente la protección de su independencia en casos de riesgos a la imparcialidad, funcionamiento o a la toma objetiva de sus criterios.
+El medio oficial de comunicación con el CEC-MS es el correo electrónico: ms.cec@misalud.go.cr

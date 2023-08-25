@@ -1,0 +1,1 @@
+Artículo 35º. De las consultas y oportunidades de mejora. Las consultas y oportunidades de mejora, relacionadas con las actividades del CEC-MS, pueden presentarse de forma verbal o escrita, mediante correo electrónico, vía telefónica o personalmente en las instalaciones del CECMS de acuerdo con lo establecido en los procedimientos del CEC-MS.

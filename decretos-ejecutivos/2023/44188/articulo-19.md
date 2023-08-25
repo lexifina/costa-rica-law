@@ -1,0 +1,2 @@
+Artículo 19º. De los acuerdos. Los acuerdos serán adoptados por mayoría absoluta de los miembros asistentes a cada sesión, de acuerdo a lo que indica el artículo 54 de la Ley No. 6227 del 02 de mayo de 1978 "Ley General de la Administración Pública".
+En el caso de que la votación sobre un tema tenga la misma cantidad de votos a favor y en contra (empate), el presidente o quien presida la sesión en su lugar, tendrá voto de calidad.

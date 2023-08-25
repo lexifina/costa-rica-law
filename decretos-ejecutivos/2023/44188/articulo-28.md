@@ -1,0 +1,1 @@
+Artículo 28º. Del archivo de los documentos de los protocolos de investigaciones biomédicas. El archivo de la documentación se gestionará de acuerdo con lo que dicta el procedimiento interno de gestión documental del CEC-MS que deberá ajustarse a lo establecido en el artículo 48, inciso m, de la Ley No. 9234 del 22 de abril del 2014 "Ley Reguladora de Investigación Biomédica".

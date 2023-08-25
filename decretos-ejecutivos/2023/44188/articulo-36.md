@@ -1,0 +1,4 @@
+Artículo 36º. Del seguimiento a las quejas, consultas y oportunidades de mejora. Es responsabilidad del CEC-MS recibir, evaluar, derivar y tomar decisiones acerca de las quejas, consultas y oportunidades de mejora recibidas, así como de recopilar y verificar toda la información para validarlas y realizar la investigación respectiva cuando aplique.
+El CEC-MS debe acusar de recibido y debe facilitar, a quien presenta la queja, la información del progreso y el resultado del tratamiento de esta.
+Cuando la investigación de una queja concluya que existe una posible infracción a la Ley No. 9234 del 22 de abril del 2014 "Ley Reguladora de Investigación Biomédica", su reglamento y reformas, es responsabilidad de los miembros del CEC-MS seguir lo establecido en los artículos 72 y 73 del
+Decreto Ejecutivo No. 39061-S del 08 de mayo del 2015 "Reglamento a la Ley Reguladora de Investigación Biomédica".

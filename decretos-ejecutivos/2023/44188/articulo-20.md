@@ -1,0 +1,1 @@
+Artículo 20º. De la confidencialidad de la información de los protocolos. El CEC-MS debe velar por la confidencialidad de la información del contenido de los protocolos que sean sometidos a su conocimiento o de la información de los participantes de las investigaciones biomédicas aprobadas por ellos, según lo establezca en sus procedimientos.

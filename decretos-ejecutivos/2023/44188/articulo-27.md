@@ -1,0 +1,8 @@
+Artículo 27º. Resultados de la evaluación de los protocolos sometidos al CEC-MS. Cada protocolo al ser evaluado puede ser aprobado, prevenido, o rechazado por los miembros del CECMS.
+Para la sesión de toma de decisiones con respecto a un protocolo, los miembros del CEC-MS deben considerar lo siguiente:
+a) Para la aprobación del protocolo se requiere un resultado conforme en la revisión de la documentación.
+b) Un protocolo se puede prevenir si no tiene motivos de fondo para ser rechazado, pero requiere la mejora o aclaración de algunos aspectos y/o completar información para su aprobación final. La prevención emitida tendrá respaldo legal vigente, así como un tiempo de 20 días hábiles para presentar la enmienda solicitada. Cuando así lo solicite el responsable de la investigación biomédica con la respectiva justificación o cuando así lo determine el CEC-MS, se podrá dar una prórroga de tiempo, que se ajuste a las circunstancias de la investigación y a sus limitaciones para presentar la enmienda solicitada.
+c) En el caso de rechazo, se debe fundamentar la justificación jurídica, técnica o ética, correspondiente en el acta y en el acuerdo.
+El Comité deberá dictar el pronunciamiento sobre la aprobación, improbación o renovación de los proyectos de investigación biomédica que se le presenten, según lo establecido en el Decreto
+Ejecutivo No. 39061-S del 08 de mayo del 2015 "Reglamento a la Ley Reguladora de Investigación Biomédica", qué especifica un plazo de un mes calendario, contado a partir del día hábil siguiente de la presentación de la solicitud.
+Un mismo protocolo de investigación biomédica podrá ser revisado un máximo de 3 veces. Se considera que es el mismo protocolo si tiene el mismo objetivo y utiliza la misma metodología.

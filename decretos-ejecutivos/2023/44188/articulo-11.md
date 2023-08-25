@@ -1,0 +1,2 @@
+Artículo 11º. De las subcomisiones o grupos de trabajo. El CEC-MS podrá crear las subcomisiones o grupos de trabajo que sean necesarios para apoyar el logro de sus objetivos y para el análisis técnico de proyectos o temas específicos. Esta decisión debe ser motivada y los participantes deben efectuar una declaración formal de conflicto de interés, actividades y confidencialidad previo a la prestación de sus servicios y presentar un informe final de actividades.
+La conformación y actividades de los grupos se regirán por lo establecido en los procedimientos del CEC-MS.
