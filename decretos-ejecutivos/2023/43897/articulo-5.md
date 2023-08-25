@@ -1,0 +1,1 @@
+Artículo 5º-Importación. El importador de GN deberá tramitar la autorización de importación correspondiente ante el Ministerio de Salud, cumpliendo lo establecido en el Decreto Ejecutivo N° 40705-S Reglamento Técnico RTCR 478:2015 Productos Químicos. Productos Químicos Peligrosos, Registro, Importación y Control, y sus reformas.

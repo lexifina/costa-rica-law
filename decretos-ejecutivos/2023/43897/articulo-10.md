@@ -1,0 +1,1 @@
+Artículo 10.-Derogaciones. Se deroga el Decreto Ejecutivo N° 42747-MINAE "Establecimiento de las condiciones técnicas para la importación, transporte, distribución y comercialización de gas natural licuado para sustituir bunker en uso industrial y comercial" publicado en La Gaceta número 8 del 13 de enero del 2021.
