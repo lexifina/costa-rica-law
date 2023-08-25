@@ -1,0 +1,17 @@
+N° 10-2023
+EL TRIBUNAL SUPREMO DE ELECCIONES
+I.-En virtud de lo dispuesto por la Constitución Política en sus artículos 9 párrafo tercero, 99 y 102, es competencia exclusiva del Tribunal Supremo de Elecciones organizar, dirigir y vigilar los actos relativos al sufragio.
+II.-Que, en materia electoral, el TSE goza de potestad reglamentaria de conformidad con el artículo 12 inciso a) del Código Electoral. Por tanto,
+DECRETA
+La siguiente
+REFORMA AL REGLAMENTO PARA AUTORIZAR
+ACTIVIDADES DE LOS PARTIDOS POLÍTICOS
+EN SITIOS PÚBLICOS
+Decreto Nº 7-2013 y sus reformas, publicado
+en La Gaceta N° 136 de 16 de julio de 2013
+Artículo 1º-Modifíquese el artículo 12 del Reglamento para Autorizar Actividades de los Partidos Políticos en Sitios Públicos, para que se lea:
+Artículo 12.-Del Trámite de Resolución de Solicitudes y del deber del Partido Político Gestionante de Realizar la Actividad que le fue Aprobada. Una vez recibida la solicitud, se valorará en primer lugar el cumplimiento de los requisitos de forma y, posteriormente, se procederá a analizar la viabilidad del lugar propuesto por la agrupación política gestionante para llevar a cabo la actividad solicitada, tomando en consideración las prohibiciones señaladas en el artículo 137 del Código Electoral, así como cualquier factor que pueda representar un riesgo para el orden, la integridad de las personas y la seguridad pública.
+Para tales efectos, de previo al otorgamiento de la autorización solicitada, se podrá pedir a la respectiva jefatura de región, un informe en el que se establezca si el lugar propuesto para celebrar la actividad pública resulta apto, de acuerdo con lo dispuesto en el artículo 137 del Código Electoral. Tal informe deberá rendirse dentro de las cuarenta y ocho horas posteriores al momento en que se haga el requerimiento formal.
+Cualquier actividad que haya sido autorizada deberá celebrarse en el día, hora y lugar fijados en la autorización. Si no se realiza o no comienza dentro de los quince minutos siguientes a la hora de inicio señalada en la autorización, en cualquiera de los supuestos, por causa imputable al partido político o coalición gestionante, se tendrá por verificada para los efectos de la limitación establecida en el párrafo primero del artículo 9 de este Reglamento, sin perjuicio de poder aplicar la sanción prevista en el inciso b) del artículo 291 del Código Electoral.
+Lo dispuesto en el párrafo anterior no se aplicará en el supuesto de excepción de que el partido político o coalición decida no realizar una actividad previamente autorizada, siempre y cuando comunique tal circunstancia a la Jefatura Nacional del Cuerpo Nacional de Delegados que la había autorizado, al menos cuarenta y ocho horas antes del día de realización de la actividad.
+Respecto de las actividades previamente autorizadas, solo se permitirán cambios por situaciones de fuerza mayor o caso fortuito, debidamente justificadas a criterio de la Jefatura Nacional del Cuerpo Nacional de Delegados, en lo que respecta a la hora y lugar dentro de la misma localidad o distrito electoral. Cualquier cambio tendrá que solicitarse con al menos cuarenta y ocho horas de antelación al día en que se llevará a cabo la actividad.
