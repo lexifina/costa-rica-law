@@ -1,0 +1,3 @@
+Artículo 4º-Objetivo. La Oficina de las Personas con Discapacidad tiene el objetivo de velar, desde el ámbito local, por una efectiva inclusión, promoción y cumplimiento de los derechos de las personas con discapacidad.
+Para cumplir con este objetivo, la Oficina de las Personas con Discapacidad podrá articular y conjugar los fines y las funciones con la Comisión Municipal de Accesibilidad (Comad) del Concejo Municipal, para cumplir las políticas que la municipalidad acuerde y para maximizar la ejecución de resultados, del presupuesto y del recurso humano asignado.
+Igualmente, podrá coordinar acciones cantonales en la materia con el Consejo Nacional de Personas con Discapacidad (Conapdis).

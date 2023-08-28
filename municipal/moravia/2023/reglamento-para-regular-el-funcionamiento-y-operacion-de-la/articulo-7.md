@@ -1,0 +1,4 @@
+CAPÍTULO IV
+Perfil del puesto para la Oficina Municipal de las Personas con Discapacidad
+Artículo 7º-Naturaleza del puesto. La Oficina de las Personas con Discapacidad será conformada al menos por una persona profesional en Ciencias Sociales, preferiblemente de las carreras de trabajo social, antropología, ciencias políticas, psicología, derecho o sociología, debidamente incorporado al colegio profesional respectivo.
+La persona profesional podrá hacer uso de la autonomía relativa disponible para el desempeño profesional, demanda ocupacional, como a la demanda social de las personas munícipes.
