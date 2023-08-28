@@ -1,6 +1,6 @@
 # Ley Orgánica de la Procuraduría General de la República
 
-Ley N° 6815 del 1982-09-27. SINALEVI, ficha 38915: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=38915&param2=114404&param3=1>.
+Ley N° 6815 del 1982-09-27. SINALEVI, ficha 38915: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=38915&param2=137219&param3=1>.
 
 Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit, fechada el día en que entró en vigor):
 
@@ -14,3 +14,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 7 de 11 | 2015-04-22 | Sala Constitucional, resolución 5613 (2015-04-22) | 2015-04-22 |
 | 8 de 11 | 2015-05-13 | Sala Constitucional, resolución 6839 (2015-05-13) | 2015-05-13 |
 | 9 de 11 | 2018-12-04 | Ley 9635 | 2018-12-03 |
+| 10 de 11 | 2023-08-28 | Ley 10362 | 2023-06-29 |

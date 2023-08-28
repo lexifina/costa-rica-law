@@ -1,7 +1,8 @@
-ARTÍCULO 10.—NOMBRAMIENTO DEL PROCURADOR GENERAL:
-El Procurador General será designado por el Consejo de Gobierno, pero su nombramiento deberá ser ratificado por la Asamblea Legislativa.
-Si la Asamblea, ante dos proposiciones sucesivas de personas diferentes, no ratificara la designación hecha por el Consejo de Gobierno, éste podrá nombrar libremente al Procurador General.
-Durará en su cargo seis años. En caso de remoción o renuncia, la designación del sustituto no podrá hacerse por un término mayor al que faltare para completar el período respectivo.
-Podrá ser reelecto mediante el procedimiento prescrito en el párrafo primero.
-La remoción del Procurador General, antes del vencimiento de su período, sólo podrá hacerse con base en causa justa, comprobada en el expediente secreto levantado al efecto por el Consejo de Gobierno; y requerirá, asimismo, la ratificación de la Asamblea Legislativa, si su nombramiento hubiese sido ratificado por ésta. En caso de que la Asamblea no ratificare la remoción, el Procurador General permanecerá en su puesto.
-Transitorio.- El actual Procurador General de la República durará en su cargo hasta el 8 de mayo de 1986.
+ARTÍCULO 10.-Nombramiento del procurador general. El procurador general será designado por el Consejo de Gobierno, después de abrir expediente personal y de antecedentes a cada persona que se postule o sea postulada ante este último. Dicha designación deberá ser ratificada por la Asamblea Legislativa.
+Determinada la designación del caso, el Consejo de Gobierno enviará el expediente a la Asamblea Legislativa para su ratificación, la cual dispondrá de un plazo de treinta días hábiles para objetarle. Si vencido el plazo, la Asamblea no se pronuncia, se deberá someter a votación el asunto en la sesión inmediata siguiente. En caso de objeción, el Consejo de Gobierno sustituirá a la persona designada siguiendo el mismo procedimiento.
+Mientras la Asamblea discuta la ratificación de la persona propuesta, el procurador general adjunto o en su ausencia el procurador con más años de servicio en la institución, conforme al artículo 12 de esta ley, ejercerá las funciones propias del titular de la entidad.
+El procurador general durará en su cargo seis años.
+Podrá ser reelegido mediante el procedimiento prescrito en este artículo.
+En caso de remoción o renuncia, la designación del sustituto no podrá hacerse por un término mayor al que faltará para completar el período respectivo.
+La remoción del procurador general, antes del vencimiento de su período, solo podrá hacerse con base en causa justa, comprobada en el expediente secreto levantado al efecto por el Consejo de Gobierno y requerirá, asimismo, la ratificación de la Asamblea Legislativa, si su nombramiento ha sido ratificado por esta. En caso de que la Asamblea no ratificara la remoción, el procurador general permanecerá en su puesto.
+(Así reformado por el artículo 1° de la ley N° 10362 del 29 de junio del 2023)
