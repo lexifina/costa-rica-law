@@ -1,0 +1,1 @@
+Artículo 32.-Para aplicar las respectivas sanciones se utilizará el procedimiento administrativo de la Ley Marco de Empleo Público o la Ley General de la Administración Pública según la familia asignada de la persona o personas investigadas. Lo mismo aplicará a la fase recursiva.

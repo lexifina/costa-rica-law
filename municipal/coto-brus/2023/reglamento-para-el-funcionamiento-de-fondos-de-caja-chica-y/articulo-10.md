@@ -1,0 +1,2 @@
+Artículo 10.-Desembolsos. Los adelantos de Caja Chica se otorgarán antes de la compra de los bienes y servicios y no podrán utilizarse para un fin distinto del solicitado y en caso de quedar un remanente deberá ser reintegrado y no podrá emplearse para otros fines.
+En lo que corresponde al pago de viáticos, éste no podrá girarse si el funcionario tiene un adelanto de viáticos que no está debidamente liquidado.

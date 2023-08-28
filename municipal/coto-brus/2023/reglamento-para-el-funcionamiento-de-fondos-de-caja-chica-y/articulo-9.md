@@ -1,0 +1,9 @@
+Artículo 9º-Requisitos de las compras por medio de la Caja Chica. Las compras por medio de los fondos de Caja Chica deben cumplir con los siguientes requisitos:
+a) Liquidarse por medio del uso de un formulario denominado "Comprobante de Pago por Caja Chica" y se prepara en el Departamento de Tesorería Municipal en original.
+El cual debe contar con las firmas y los nombres del funcionario que realizó la compra y de quien la autorizó.
+b) El formulario debe completarse a máquina o utilizando los medios electrónicos disponibles y excepcionalmente a mano, pero en ninguno de los casos deben presentar tachaduras, borrones, rupturas o alteraciones de cualquier naturaleza que hagan dudar de su legitimidad. Cualquier enmienda debe hacerse mediante justificación expresa al reverso del documento y debe ser suscrita por los funcionarios autorizados para aprobarlos.
+c) Los formularios no deben presentar agregados o modificaciones posteriores.
+d) El responsable del realizar la compra deberá verificar que se cumple con los requisitos establecidos en este Reglamento los procedimientos correspondientes, así como de que no hay fraccionamiento y que no se dispone del bien en la Bodega de la Municipalidad. Además, debe verificar que el precio es el normal del mercado y conveniente para la Institución.
+e) El responsable de realizar la compra deberá verificar que el proveedor cumpla con todas las obligaciones tanto de la Caja Costarricense del Seguro Social, Tributos Municipales, Fondo de desarrollo social y asignaciones familiares, impuestos Nacionales.
+Antes de hacerse efectivo, todo Vale de Caja Chica o solicitud de compra de bienes o servicios deberá tener el aval del contenido presupuestario. De no cumplirse con este requisito previo, el gasto que se origine no será cancelado.
+Los vales de Caja Chica deberán ser autorizados mediante firma del responsable de la Proveeduría, Tesorería y por la Alcaldía, y la verificación del contenido presupuestario.

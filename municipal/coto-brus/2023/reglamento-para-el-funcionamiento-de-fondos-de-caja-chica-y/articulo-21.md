@@ -1,0 +1,3 @@
+Artículo 21.-Sobrantes y Faltantes de dinero. Las diferencias resultantes del arqueo de caja chica serán tratadas de la siguiente manera:
+a) Sobrantes: Serán contabilizados a favor de la municipalidad, mediante una partida contable que afecte cada una de las cuentas involucradas.
+b) Faltantes: Serán deducidas al empleado responsable del manejo y administración del fondo. Se determinara como monto faltante relevante a partir de ¢1.000,00, en el cual sobrepasado este monto debe emitirse un informe a la Alcaldía Municipal indicando la diferencia, caso contrario deberá reponerse de forma inmediata.

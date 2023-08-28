@@ -1,0 +1,1 @@
+Artículo 30.-Todo funcionario que haga uso del Fondo de Caja Chica, tiene por obligación conocer y cumplir el presente Reglamento. En caso en que el funcionario haga mal uso de los fondos regulados en el presente reglamento, deberá responder administrativa, civil y penalmente por los daños que esto origine a la Administración Pública.

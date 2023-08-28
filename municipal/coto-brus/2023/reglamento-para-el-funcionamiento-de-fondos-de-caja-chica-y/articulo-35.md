@@ -1,0 +1,2 @@
+Artículo 35.-Vigencia y derogatoria. Este reglamento entrará en vigencia, una vez cumplido el procedimiento establecido en el artículo 43 del Código Municipal y su publicación final en el Diario Oficial La Gaceta. Asimismo, deroga el Reglamento de Caja Chica aprobado por el Concejo Municipal de Coto Brus, en sesión N° 134, celebrada el 20 de noviembre del 2012, artículo VIII, inciso 2-c y sus reformas.
+San Vito - Coto Brus, 04 de agosto de 2023.
