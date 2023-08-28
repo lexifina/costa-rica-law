@@ -1,4 +1,4 @@
-4.44.11.2AUTORIDAD REGULADORA DE LOS SERVICIOS PÚBLICOS
+AUTORIDAD REGULADORA DE LOS SERVICIOS PÚBLICOS
 RJD-035-2016
 San José, dieciséis horas del veinticinco de febrero del dos mil dieciséis
 METODOLOGÍA PARA FIJACIÓN ORDINARIA DE TARIFAS PARA EL SERVICIO REMUNERADO DE PERSONAS, MODALIDAD AUTOBÚS
@@ -246,14 +246,15 @@ r = Ruta de transporte remunerado de personas.
 La definición de cada variable que compone los costos fijos y la forma en que se calcula se presenta seguidamente.
 (Así reformado el punto 4.4 Costos fijos anterior mediante reolución N° RJD-060-2018 del 13 de abril de 2018)
 4.4.1 Costos por depreciación de activos fijos
-Los costos mensuales de depreciación de los activos fijos (CDAFr) están compuestos por la depreciación que sufren los vehículos automotores que conforman la flota utilizada, la depreciación de (.), la depreciación del sistema automatizado de conteo de pasajeros y la depreciación del equipo de validación requerido para el sistema de pago electrónico, según la siguiente ecuación:
-(Así reformado el párrafo anterior mediante resolución N° RE-0093-JD-2023 del 28 de agosto de 2023)
+Los costos mensuales de depreciación de los activos fijos (CDAFr) están compuestos por la depreciación que sufren los vehículos automotores que conforman la flota utilizada, la depreciación de las instalaciones, maquinaria, equipo y mobiliario, la depreciación del sistema automatizado de conteo de pasajeros y la depreciación del equipo del sistema automatizado de pago electrónico, según la siguiente ecuación::
+(Así reformado el párrafo anterior mediante resolución N° RE-0092-JD-2023 del 28 de agosto de 2023)
 𝑪𝑫𝑨𝑭𝒓 = 𝑪𝑫𝑭𝒓 + 𝑪𝑫𝑴𝑬𝑰𝒓 + 𝑪𝑫𝑺𝑪𝑷𝒓 + 𝑪𝑫𝑬𝑽𝒓 Ecuación 4
 (Así reformada la ecuación anterior mediante resolución N° RE-0093-JD-2023 del 28 de agosto de 2023)
 Donde:
 CDAFr = Costo mensual de depreciación de los activos fijos en la ruta "r".
 CDFr = Costo mensual de depreciación de la flota autorizada en la ruta "r". El procedimiento para obtener este costo se detalla en la sección 4.4.1.a
-CDMEIr = Costo mensual de depreciación de la maquinaria, el equipo y las instalaciones en la ruta "r". El procedimiento para obtener este costo se detalla en la sección 4.4.1.b
+CDMEIr = Costo mensual de depreciación de instalaciones, maquinaria, equipo y mobiliario en la ruta "r". El procedimiento para obtener este costo se detalla en la sección 4.4.1.b.
+(Así reformada la definición anterior anterior mediante resolución N° RE-0092-JD-2023 del 28 de agosto de 2023)
 CDEVr = Costo mensual de depreciación del equipo de validación requerido para el sistema de pago electrónico en la ruta "r". El procedimiento para obtener este costo se detalla en la sección 4.4.1.d.
 (Así adicionado el párrafo anterior mediante resolución N° RE-0093-JD-2023 del 28 de agosto de 2023)
 CDSCPr = Costo mensual de depreciación del sistema automatizado de conteo de pasajeros en la ruta "r". El procedimiento para obtener este costo se detalla en la sección 4.4.1.c.
@@ -331,24 +332,27 @@ r = Ruta de transporte remunerado de personas.
 α = Conjunto de vehículos con reglas de cálculo tarifario tipo 1.
 γ = Conjunto de vehículos con reglas de cálculo tarifario tipo 2.
 (Así reformado el punto 4.4.1.a.ii) anterior mediante resolución N° RJD-060-2018 del 13 de abril de 2018)
-b. Costo de depreciación de la maquinaria, el equipo y las instalaciones
-La depreciación mensual por la maquinaria, el equipo y las instalaciones (CDMEIr) se estima como una proporción de la suma de los valores tarifarios de las unidades de transporte remunerado de personas modalidad autobús con reglas de cálculo tarifario tipo 1 y tipo 2, que conforman la flota autorizada de la ruta. La estimación de este valor toma en cuenta la cantidad de unidades, los valores tarifarios según la edad obtenida a partir del año de fabricación y del tipo de vehículo utilizado en la ruta con las distintas reglas que aplican sobre la base tarifaria según se definió en el Cuadro 1.
-El costo mensual de depreciación de la maquinaria, el equipo y las instalaciones se estima finalmente al multiplicar los valores tarifarios de ambos grupos de vehículo con reglas de cálculo tarifario tipo 1 y tipo 2 por el coeficiente de depreciación mensual de maquinaria, equipo e instalaciones que se expresa conjuntamente según la ecuación siguiente:
+(*)b. Costo de depreciación de las instalaciones, maquinaria, equipo y mobiliario. La depreciación mensual de las instalaciones, la maquinaria, el equipo y el mobiliario (CDMEIr) se estima como una proporción de la suma de los valores tarifarios de las unidades de transporte remunerado de personas modalidad autobús con reglas de cálculo tarifario tipo 1 y tipo 2, que conforman la flota autorizada de la ruta. La estimación de este valor toma en cuenta la cantidad de unidades, los valores tarifarios según la edad obtenida a partir del año de fabricación y del tipo de vehículo utilizado en la ruta con las distintas reglas que aplican sobre la base tarifaria según se definió en el Cuadro 1.
+El costo mensual de depreciación de las instalaciones, la maquinaria, el equipo y el mobiliario se estima finalmente al multiplicar los valores tarifarios de ambos grupos de vehículo con reglas de cálculo tarifario tipo 1 y tipo 2 por el coeficiente de depreciación mensual de instalaciones, maquinaria, equipo y mobiliario que se expresa conjuntamente según la ecuación siguiente:
+𝑪𝑫𝑴𝑬𝑰𝒓 = 𝒄𝒅𝒎𝒆𝒊 ∗ (𝑽𝑻𝑨𝑭𝒓∝ + 𝑽𝑻𝑨𝑭𝒓𝜸) Ecuación 8
 Donde:
-CDMEIr = Costo mensual de depreciación de la maquinaria, el equipo y las instalaciones en la ruta "r". Este rubro estará expresado en colones.
-cdmei = Coeficiente de depreciación mensual de maquinaria, equipo e instalaciones. Este coeficiente es tomado de MOPT (1997) y se presenta en el Cuadro 4.
-Cuadro 4. Coeficiente de depreciación mensual maquinaria, equipo e instalaciones para cualquier tipo de ruta.
-Coeficiente de depreciación mensual maquinaria, equipo e instalaciones
-0,0001
-= Valor tarifario total de la flota para las unidades de transporte remunerado de personas modalidad autobús que se utiliza en la ruta "r", del conjunto de unidades "" (ver ecuación 84).
-= Valor tarifario de la flota para las unidades de transporte remunerado de personas modalidad autobús que se utiliza en la ruta "r", del conjunto de unidades "γ" (ver ecuación 89).  VTAr
+CDMEIr= Costo mensual de depreciación de instalaciones, maquinaria, equipo y mobiliario en la ruta "r". Este rubro estará expresado encolones.
+cdmei = Coeficiente de depreciación mensual de instalaciones, maquinaria, equipo y mobiliario. Los valores de estos coeficientes serán los que disponga la Aresep mediante resolución motivada basada en los informes técnicos correspondientes y se presentan en el siguiente Cuadro 4.
+Cuadro 4. Coeficiente de depreciación mensual de instalaciones, maquinaria, equipo y mobiliario según categoría del operador.
+Categoría del operador | Flota autorizada al operador (unidades) | Coeficiente de depreciación mensual de instalaciones, maquinaria, equipo y mobiliario
+Micro | De 1 a 5 | 0,0011
+Pequeño | De 6 a 15 | 0,0011
+Mediano | De 16 a 35 | 0,0006
+Grande | De 36 o más | 0,0004
+VTAFα r = Valor tarifario total de la flota para las unidades de transporte remunerado de personas modalidad autobús que se utiliza en la ruta "r", del conjunto de unidades "α" (ver ecuación 84).
+VTAFyr = Valor tarifario total de la flota para las unidades de transporte remunerado de personas modalidad autobús que se utiliza en la ruta "r", del conjunto de unidades "y" (ver ecuación 89).
 r = Ruta de transporte remunerado de personas.
- = Conjunto de vehículos con reglas de cálculo tarifario tipo 1.
- = Conjunto de vehículos con reglas de cálculo tarifario tipo 2.
-El valor del coeficiente incluido en el cuadro 4 anterior estará sujeto a variación de acuerdo con los estudios técnicos ejecutados, contratados o avalados por la Aresep. El valor del coeficiente se actualizará como mínimo una vez cada cinco años, a partir del 7 de marzo de 2016 (fecha de entrada en vigencia de la resolución RJD-035-2016). La actualización del valor del coeficiente deberá someterse previamente al trámite de consulta pública establecido en el artículo 361 de la Ley General de la Administración Pública.
-(Así reformado el párrafo anterior mediante resolución N° RJD-060-2018 del 13 de abril de 2018)
-El plazo establecido para la actualización del valor del coeficiente, permite la revisión periódica de la metodología de manera que se incorporen los cambios en el entorno financiero, así como los cambios tecnológicos y legales atinentes al servicio objeto de la presente metodología. Los casos de inclusión, eliminación de coeficientes y variación en las reglas contenidas en la metodología para definir coeficientes, deberán someterse previamente al proceso de audiencia pública previsto en el artículo 36 de la Ley N° 7593.
-(Así adicionado el párrafo anterior mediante resolución N° RJD-060-2018 del 13 de abril de 2018)
+α = Conjunto de vehículos con reglas de cálculo tarifario tipo 1.
+y = Conjunto de vehículos con reglas de cálculo tarifario tipo 2.
+Los valores de los coeficientes de depreciación mensual de las instalaciones, la maquinaria, el equipo y el mobiliario según categoría del operador incluidos en el Cuadro 4 anterior estarán sujetos a variación de acuerdo con los estudios técnicos ejecutados, contratados o avalados por la Aresep. Los valores de los coeficientes se actualizarán como mínimo una vez cada cinco años, a partir de la entrada en vigencia de la resolución que incorpora en la metodología los valores del cuadro citado. La actualización de los valores de los coeficientes deberá someterse previamente al trámite de consulta pública establecido en el artículo 361 de la Ley General de la Administración Pública.
+El plazo establecido para la actualización de los valores de los coeficientes permite la revisión periódica de la metodología de manera que se incorporen los cambios en el entorno financiero, así como los cambios tecnológicos y legales atinentes al servicio objeto de la presente metodología. Los casos de inclusión, eliminación de coeficientes y variación en las reglas contenidas en la metodología para definir coeficientes, deberán someterse previamente al proceso de audiencia pública previsto en el artículo 36 de la Ley N° 7593.
+La cantidad de autobuses autorizados por el CTP a cada operador para ruta regular puede ser diferente a la cantidad de autobuses autorizados para la ruta que está siendo objeto de la aplicación de esta metodología. Para determinar la categoría del operador, se considerará la cantidad total de autobuses que el prestador tenga autorizados según la información más reciente que se disponga en la Aresep al momento de la admisibilidad de la solicitud tarifaria o la apertura del expediente tarifario del estudio de oficio.
+(*) (Así reformada la sección b. Costo de depreciación de las instalaciones, maquinaria, equipo y mobiliario anterior mediante resolución N° RE-0092-JD-2023 del 28 de agosto de 2023)
 c. Costo de depreciación del sistema automatizado de conteo de pasajeros
 La depreciación del sistema automatizado de conteo de pasajeros (CDSCPr) se obtiene al estimar el monto total de depreciación de equipos necesarios para cada unidad de la flota en la prestación del servicio y conformarlo en una cuota mensual, que permita distribuir la depreciación a través de su vida útil, con el fin de permitir su reposición. El costo de depreciación reconoce al prestador del servicio, el desgaste del capital invertido como consecuencia de su utilización, envejecimiento u obsolescencia.
 El método de depreciación que se utiliza para este activo, en la metodología, es de línea recta, considerando que el activo sufre un desgaste igual y constante con el paso del tiempo, a lo largo de la vida útil de éste. Con el fin de determinar la depreciación del equipo necesario para cada unidad, se considera un equipo electrónico especializado, con un porcentaje de depreciación anual según lo establecido, en el artículo 8 de la Ley N° 7092 (Ley del Impuesto sobre la Renta) y sus reformas, y concretamente el artículo 12, inciso h) y Anexo 2 del Decreto N° 18455-H "Reglamento a la Ley de impuesto sobre la Renta" y sus reformas, que define una vida útil de cinco años y sin valor de rescate al cabo de dicho período (implícito al establecer el porcentaje de depreciación anual indicado en las tablas del anexo 2 mencionado). En el Cuadro 5 se muestra el factor de depreciación anual y la vida útil para el sistema automatizado de conteo de pasajeros para cada una de las unidades:
@@ -1015,20 +1019,20 @@ La actualización de la tasa de rentabilidad (tr?) se realizará una vez al año
 (Así reformado el párrafo anterior mediante resolución N° RE-0173-JD-2021 del 8 de junio de 2021)
 Una vez entrada en vigencia esta modificación metodológica, la Aresep tendrá un plazo de un mes para someter a consulta pública el primer cálculo de la tasa de rentabilidad. En caso de que la entrada en vigencia de esta modificación metodológica se dé anterior a la finalización del plazo para la entrega de estados financieros por parte de los operadores, el cálculo se realizará con base en la información de los estados financieros correspondientes al período fiscal anterior al recién concluido, el listado de título habilitante de la última fijación extraordinaria y la última base de flota autorizada remitida por el CTP a la Aresep. Entre tanto comienza a regir el primer cálculo, se aplicará las reglas vigentes con anterioridad a esta reforma.
 (*) (Así reformado el punto b) Tasa de rentabilidad para reglas de cálculo tarifario tipo 2 anterior mediante resolución N° RJD-060-2018 del 13 de abril del 2018)
-4.6.2 Rentabilidad del capital asociado a los activos fijos
+(*)4.6.2 Rentabilidad del capital asociado a los activos fijos
 La retribución por el capital invertido en activos fijos: refleja la rentabilidad que recibe el prestador del servicio por mantener sus recursos invertidos en los activos para la prestación del servicio (costo de oportunidad). La formulación general sería la siguiente:
-𝑹𝑨𝑭𝒓 = 𝑹𝑭𝒓 + 𝑹𝑴𝑬𝑰𝒓 + 𝑹𝑺𝑪𝑷𝒓 + 𝑹𝑬𝑽𝒓 Ecuación 55
+𝑹𝑨𝑭𝒓 = 𝑹𝑭𝒓 + 𝑹𝑴𝑬𝑰𝒓 + 𝑹𝑺𝑪𝑷𝒓 + 𝑹𝑻𝑰𝑬𝒓 Ecuación 46
 Donde:
-RAFr = Rentabilidad mensual del capital invertido en activos fijos en la ruta "r".
-RFr = Rentabilidad mensual del capital invertido en la flota en la ruta "r". El procedimiento para obtener este costo se detalla en la sección 4.6.2.a
-RMEIr = Rentabilidad mensual del capital invertido en maquinaria, equipo e instalaciones en la ruta "r". El procedimiento para obtener este costo se detalla en la sección 4.6.2.b
-REVr = Rentabilidad mensual del capital invertido en el equipo de validación requerido para el sistema de pago electrónico en la ruta "r". El procedimiento para obtener este costo se detalla en la sección 4.6.2.d.
-(Así adicionada la definición anterior mediante resolución N° RE-0093-JD-2023 del 28 de agosto de 2023)
-RSCPr = Rentabilidad mensual del capital invertido en el sistema automatizado de conteo de pasajeros en la ruta "r". El procedimiento para obtener este costo se detalla en la sección 4.6.2.c
+RAFr = Rentabilidad mensual del capital invertido en activos fijos en la ruta"r".
+RFr = Rentabilidad mensual del capital invertido en la flota en la ruta "r".
+El procedimiento para obtener este costo se detalla en la sección 4.6.2.a.
+RMEIr = Rentabilidad mensual del capital invertido en instalaciones, maquinaria, equipo y mobiliario en la ruta "r". El procedimiento para obtener este costo se detalla en la sección 4.6.2.b.
+RSCPr = Rentabilidad mensual del capital invertido en el sistema automatizado de conteo de pasajeros en la ruta "r". El procedimiento para obtener este costo se detalla en la sección 4.6.2.c.
+RTIEr = Rentabilidad mensual del capital invertido en los terrenos de las instalaciones y edificaciones en la ruta "r". El procedimiento para obtener este costo se detalla en la sección 4.6.2.d.
 r = Ruta de transporte remunerado de personas.
+(*) (Así reformada la sección 4.6.2 ) anterior mediante resolución N° RE-0092-JD-2023 del 28 de agosto de 2023)
 a. Rentabilidad del capital invertido en la flota
-La rentabilidad mensual del capital invertido en la flota (RFr), es la suma de la rentabilidad mensual de todos los vehículos autorizados, obtenido a través de los cálculos de la rentabilidad cuando se aplican las reglas de cálculo tarifario tipo 1 y cálculo tarifario tipo 2, descritas en el
-Cuadro 1. Considerando lo definido sobre el valor de las unidades de transporte en la sección 4.9 de esta metodología, se establecen los siguientes criterios en la determinación de la rentabilidad del capital invertido en la flota.
+La rentabilidad mensual del capital invertido en la flota (RFr), es la suma de la rentabilidad mensual de todos los vehículos autorizados, obtenido a través de los cálculos de la rentabilidad cuando se aplican las reglas de cálculo tarifario tipo 1 y cálculo tarifario tipo 2, descritas en el Cuadro 1. Considerando lo definido sobre el valor de las unidades de transporte en la sección 4.9 de esta metodología, se establecen los siguientes criterios en la determinación de la rentabilidad del capital invertido en la flota.
 i. Para los vehículos con reglas de cálculo tarifario tipo 1
 Para estas unidades se les continuará aplicando el método de depreciación de suma de los dígitos de los años (acelerado), considerando siete años de vida útil, sin valor de rescate al cabo de ese período. Los factores de depreciación acumulada y rentabilidad para cada edad de las unidades que conforman la flota autorizada se especifican en el Cuadro 21. El factor de rentabilidad se obtiene al deducir la depreciación acumulada de ese activo, para una edad determinada.
 Las unidades de más de 7 años de edad se encuentran completamente depreciadas, para lo cual corresponde un factor de depreciación anual acumulado de cero que deriva como resultado un factor de rentabilidad anual de cero.
@@ -1046,11 +1050,8 @@ Más de 7 | 1,00000 | 0,00000
 El factor de rentabilidad del cuadro anterior para el capital invertido en flota se obtiene al deducir la
 depreciación acumulada de ese activo y se calcula de acuerdo con la siguiente ecuación:
 Donde:
-= Factor de rentabilidad anual según la edad "b" de las unidades que conforman la
-flota en la ruta "r", del conjunto de unidades "a".
-= Factor de depreciación anual acumulada equivalente de las unidades que conforman
-la flota autorizada para la edad "b" obtenida del año de fabricación", del conjunto de
-unidades "a".
+= Factor de rentabilidad anual según la edad "b" de las unidades que conforman la flota en la ruta "r", del conjunto de unidades "a".
+= Factor de depreciación anual acumulada equivalente de las unidades que conforman la flota autorizada para la edad "b" obtenida del año de fabricación", del conjunto de unidades "a".
 a= Conjunto de vehículos con reglas de cálculo tarifario tipo 1.
 b = Edad de la unidad obtenida a partir del año de fabricación.
 La rentabilidad mensual asociada a estas unidades se calcula a partir de la siguiente ecuación:
@@ -1090,22 +1091,14 @@ Edad de la unidad de transporte público (años) | Factor de rentabilidad frfbg
 15 | 0,02222
 16 o más | 0,00000
 (Así reformado el cuadro anterior mediante resolución N° RJD-060-2018 del 13 de abril de 2018)
-El factor de rentabilidad del cuadro anterior para el capital invertido en flota se obtiene al deducir la
-depreciación acumulada de ese activo y se calcula de acuerdo a la siguiente
-El factor de rentabilidad del cuadro anterior para el capital invertido en flota se obtiene al deducir la
-depreciación acumulada de ese activo y se calcula de acuerdo a la siguiente ecuación:
+El factor de rentabilidad del cuadro anterior para el capital invertido en flota se obtiene al deducir la depreciación acumulada de ese activo y se calcula de acuerdo a la siguiente
+El factor de rentabilidad del cuadro anterior para el capital invertido en flota se obtiene al deducir la depreciación acumulada de ese activo y se calcula de acuerdo a la siguiente ecuación:
 Donde:
-= Factor de rentabilidad anual según la edad "b" de las unidades que conforman la
-flota en la ruta "r", del conjunto de unidades "γ".
-= Factor de depreciación anual acumulada equivalente de las unidades que conforman
-la flota autorizada para la edad "b" obtenida del año de fabricación", del conjunto de
-unidades "γ".
+= Factor de rentabilidad anual según la edad "b" de las unidades que conforman la flota en la ruta "r", del conjunto de unidades "γ".
+= Factor de depreciación anual acumulada equivalente de las unidades que conforman la flota autorizada para la edad "b" obtenida del año de fabricación", del conjunto de unidades "γ".
 γ = Conjunto de vehículos con reglas de cálculo tarifario tipo 2.
 b = Edad de la unidad obtenida a partir del año de fabricación.
-Por otra parte, para estas unidades se utilizará la tasa de rentabilidad asociada al promedio de la
-tasa de interés activa de bancos estatales para "otras actividades" y la tasa de interés básica
-pasiva, la cual se obtendrá tal como se expone en la sección 4.6.1. La estimación de la rentabilidad
-para estas unidades se obtiene a partir de la siguiente ecuación:
+Por otra parte, para estas unidades se utilizará la tasa de rentabilidad asociada al promedio de la tasa de interés activa de bancos estatales para "otras actividades" y la tasa de interés básica pasiva, la cual se obtendrá tal como se expone en la sección 4.6.1. La estimación de la rentabilidad para estas unidades se obtiene a partir de la siguiente ecuación:
 Ecuación 46
 Donde:
 = Rentabilidad mensual del capital invertido en la flota de vehículos con la regla de cálculo tarifario tipo 2 de la ruta "r". Este rubro estará expresado en colones.
@@ -1127,30 +1120,62 @@ Los valores de los factores de rentabilidad y la tasa de rentabilidad para el co
 (Así reformado el párrafo anterior mediante resolución N° RJD-060-2018 del 13 de abril de 2018)
 El plazo establecido para la actualización de los valores de los factores, permite la revisión periódica de la metodología de manera que se incorpore los cambios en el entorno financiero, así como los cambios tecnológicos y legales atinentes al servicio objeto de la presente metodología. Los casos de inclusión, eliminación de factores y variación en las reglas contenidas en la metodología para definir factores, los mismos deben someterse al proceso de audiencia pública previsto en el artículo 36 de la Ley N° 7593.
 (Así reformado el párrafo anterior mediante resolución N° RJD-060-2018 del 13 de abril de 2018)
-c. Rentabilidad del capital invertido en maquinaria, equipo e instalaciones
-(Así modificada su numeración mediante resolución N° RJD-060-2018 del 13 de abril de 2018, que lo traspaso del inciso b) al c))
-La rentabilidad mensual del capital invertido maquinaria, equipo e instalaciones (RMEIr), se estima como una proporción de la suma de los valores tarifarios de las unidades de transporte remunerado de personas modalidad autobús con reglas de cálculo tarifario tipo 1 y tipo 2 que conforman la flota autorizada de la ruta. El valor toma en cuenta la cantidad de unidades y los valores tarifarios según edad obtenida del año de fabricación y tipo de vehículo utilizado en la ruta, multiplicado por la tasa de rentabilidad.
-La rentabilidad mensual del capital invertido de la maquinaria, el equipo y las instalaciones se estima según la siguiente ecuación:
+(*) c. Rentabilidad del capital invertido en las instalaciones, maquinaria, equipo y mobiliario. La rentabilidad mensual del capital invertido las instalaciones, maquinaria, equipo y mobiliario (RMEIr), se estima como una proporción de la suma de los valores tarifarios de las unidades de transporte remunerado de personas modalidad autobús con reglas de cálculo tarifario tipo 1 y tipo 2 que conforman la flota autorizada de la ruta. El valor toma en cuenta la cantidad de unidades y los valores tarifarios según edad obtenida del año de fabricación y tipo de vehículo utilizado en la ruta, multiplicado por la tasa de rentabilidad correspondiente.
+La rentabilidad mensual del capital invertido en las instalaciones, maquinaria, equipo y mobiliario se estima según la siguiente ecuación:
+[imagen]
 Donde:
-RMEIr = Rentabilidad mensual del capital invertido en maquinaria, equipo e instalaciones en la ruta "r". Este rubro estará expresado en colones.
-crmei = Coeficiente de rentabilidad anual en la maquinaria, equipo e instalaciones para cualquier tipo de ruta. Este coeficiente es tomado de MOPT (1997) y se presenta en el siguiente Cuadro 23.
-Cuadro 23. Coeficiente de rentabilidad anual en la maquinaria, equipo e
-instalaciones para cualquier tipo de ruta
-Coeficiente de rentabilidad anual en la
-maquinaria, equipo e instalaciones
-= Valor tarifario total de la flota para las unidades de transporte remunerado de personas modalidad autobús que se utiliza en la ruta "r", del conjunto de unidades "a" (ver ecuación 84).
-= Tasa de rentabilidad anual para vehículos con reglas de cálculo tarifario tipo 1 para la ruta "r" del conjunto de unidades "". Este valor se obtiene según lo detallado en la sección 4.6.1
-= Valor tarifario total de la flota para las unidades de transporte remunerado de personas modalidad autobús que se utiliza en la ruta "r", del conjunto de unidades "γ" (ver ecuación 89).
-= Tasa de rentabilidad anual para vehículos con reglas de cálculo tarifario tipo 2 para la ruta "r" del conjunto de unidades " ". Este valor se obtiene según lo detallado en la sección 4.6.1
+RMEIr = Rentabilidad mensual del capital invertido en instalaciones, maquinaria, equipo y mobiliario en la ruta "r". Este rubro estará expresado en colones.
+crmei = Coeficiente de rentabilidad anual en instalaciones, maquinaria, equipo y mobiliario. Los valores de estos coeficientes serán los que disponga la Aresep mediante resolución motivada basada en los informes técnicos correspondientes y se presentan en el siguiente Cuadro 34.
+Cuadro 34. Coeficiente de rentabilidad anual en instalaciones, maquinaria, equipo y mobiliario según categoría del operador.
+Categoría del operador | Flota autorizada al operador (unidades) | Coeficiente de rentabilidad anual de instalaciones, maquinaria, equipo y mobiliario
+Micro | De 1 a 5 | 0,1311
+Pequeño | De 6 a 15 | 0,1311
+Mediano | De 16 a 35 | 0,0751
+Grande | De 36 o más | 0,0529
+VTAFαr = Valor tarifario total de la flota para las unidades de transporte remunerado de personas modalidad autobús que se utiliza en la ruta "r", del conjunto de unidades "α" (ver ecuación 84).
+Tra = Tasa de rentabilidad anual para vehículos con reglas de cálculo tarifario tipo 1 para la ruta "r" del conjunto de unidades "a". Este valor se obtiene según lo detallado en la sección 4.6.1.
+VTAFyr = Valor tarifario total de la flota para las unidades de transporte remunerado de personas modalidad autobús que se utiliza en la ruta "r", del conjunto de unidades "y" (ver ecuación 89).
+Try = Tasa de rentabilidad anual para vehículos con reglas de cálculo tarifario tipo 2 para la ruta "r" del conjunto de unidades "y". Este valor se obtiene según lo detallado en la sección 4.6.1.
 r = Ruta de transporte remunerado de personas.
-a = Conjunto de vehículos con reglas de cálculo tarifario tipo 1.
+α = Conjunto de vehículos con reglas de cálculo tarifario tipo 1.
 y = Conjunto de vehículos con reglas de cálculo tarifario tipo 2.
-El valor del coeficiente incluido en el cuadro 23 anterior estará sujeto a variación de acuerdo con los estudios técnicos ejecutados, contratados o avalados por la Aresep. El valor de coeficiente se actualizará como mínimo una vez cada cinco años, a partir del 7 de marzo de 2016 (fecha de entrada en vigencia de la resolución RJD-035-2016). La actualización del valor del coeficiente deberá someterse previamente al trámite de consulta pública
-(Así reformado el párrafo anterior mediante resolución N° RJD-060-2018 del 13 de abril de 2018)
-El plazo establecido para la actualización del valor del coeficiente, permite la revisión periódica de la metodología de manera que se incorpore los cambios en el entorno financiero, así como los cambios tecnológicos y legales atinentes al servicio objeto de la presente metodología. Los casos de inclusión, eliminación de coeficientes y variación en las reglas para definir coeficientes, deberán someterse previamente al proceso de audiencia pública previsto en el artículo 36 de la Ley N° 7593.
-(Así adicionado el párrafo anterior mediante resolución N° RJD-060-2018 del 13 de abril de 2018)
-d. Rentabilidad del capital invertido en el sistema automatizado de conteo de pasajeros
-(Así modificada su numeración mediante resolución N° RJD-060-2018 del 13 de abril de 2018, que lo traspaso del inciso c) al d))
+Los valores de los coeficientes de rentabilidad anual en instalaciones, maquinaria, equipo y mobiliario según categoría del operador incluidos en el Cuadro 34 anterior estarán sujetos a variación de acuerdo con los estudios técnicos ejecutados, contratados o avalados por la Aresep. Los valores de los coeficientes se actualizarán como mínimo una vez cada cinco años, a partir de la entrada en vigencia de la resolución que incorpora en la metodología los valores del cuadro citado. La actualización de los valores de los coeficientes deberá someterse previamente al trámite de consulta pública establecido en el artículo 361 de la Ley General de la Administración Pública.
+El plazo establecido para la actualización de los valores de los coeficientes permite la revisión periódica de la metodología de manera que se incorporen los cambios en el entorno financiero, así como los cambios tecnológicos y legales atinentes al servicio objeto de la presente metodología. Los casos de inclusión, eliminación de coeficientes y variación en las reglas contenidas en la metodología para definir coeficientes, deberán someterse previamente al proceso de audiencia pública previsto en el artículo 36 de la Ley N° 7593.
+La cantidad de autobuses autorizados por el CTP a cada operador para ruta regular puede ser diferente a la cantidad de autobuses autorizados para la ruta que está siendo objeto de la aplicación de esta metodología.
+Para determinar la categoría del operador, se considerará la cantidad total de autobuses que el prestador tenga autorizados según la información más reciente que se disponga en la Aresep al momento de la admisibilidad de la solicitud tarifaria o la apertura del expediente tarifario del estudio de oficio.
+(Así modificada su numeración mediante resolución N° RJD-060-2018 del 13 de abril de 2018, que lo traspaso del inciso b) al c))
+(*) (Así reformada la sección c. Rentabilidad del capital invertido en las instalaciones, maquinaria, equipo y mobiliario anterior mediante resolución N° RE-0092-JD-2023 del 28 de agosto de 2023. La presente reforma indica modificar la sección b). No obstante; del análisis se deduce que la sección a reformar es la sección c))
+(*) d. Rentabilidad del capital asociado a los terrenos de las instalaciones y edificaciones. La determinación del área de terrenos de las instalaciones y edificaciones se hará de acuerdo con la flota autorizada por el CTP. La misma se reconocerá a partir de los estudios revisados y avalados por la Aresep y se presenta en el siguiente cuadro:
+Cuadro 36. Relaciones para determinar el área de terreno de las instalaciones y Edificaciones
+Categoría del operador | Flota autorizada al operador (unidades) | Ecuación de cálculo para el área del terreno en instalaciones y edificaciones (ATIEr)
+Micro | De 1 a 5 | 426,05 + 95,17 x Fr
+Pequeño | De 6 a 15 | 1455,99 + 65,39 x Fr
+Mediano | De 16 a 35 | 1028,69 + 97,15 x Fr
+Grande | De 36 o más | 3508,40 + 77,12 x Fr
+Donde:
+Fr = Cantidad total de unidades de la flota autorizada de la ruta "r".
+Comprende la suma de vehículos con regla tarifaria tipo 1 y regla tarifaria tipo 2.
+La rentabilidad mensual del capital invertido en terrenos de las instalaciones y edificaciones (RTIEr) se calcula multiplicando el área de los terrenos de las instalaciones y edificaciones por su costo unitario y por la tasa de rentabilidad para reglas tipo 2.
+La cantidad de autobuses autorizados por el CTP a cada operador para ruta regular puede ser diferente a la cantidad de autobuses autorizados para la ruta que está siendo objeto de la aplicación de esta metodología. Para determinar la categoría del operador, se considerará la cantidad total de autobuses que el prestador tenga autorizados según la información más reciente que se disponga en la Aresep al momento de la admisibilidad de la solicitud tarifaria o la apertura del expediente tarifario del estudio de oficio.
+[imagen]
+Donde:
+RTIEr = Rentabilidad mensual al capital invertido en terrenos de las instalaciones y edificaciones en la ruta "r". Este rubro estará expresado en colones.
+ATIEr = Área máxima de terrenos de las instalaciones y edificaciones en metros cuadrados en la ruta "r". El área corresponderá a la aplicación de las ecuaciones contenidas en el Cuadro 36 según la categoría del operador según la flota autorizada por el CTP. En los casos que se acredite la utilización de un terreno para la prestación del servicio en la ruta "r", cuya área sea inferior a la máxima calculada según la categoría del operador, se utilizará el valor acreditado en metros cuadrados.
+VTIE = Precio del metro cuadrado del terreno de las instalaciones y edificaciones. El valor del metro cuadrado del área corresponderá al que se registra en la certificación de bienes inmuebles en la respectiva Municipalidad donde paga impuestos sobre dichos bienes. En aquellos casos que el operador mantenga más de un terreno para brindar el servicio, el valor del metro cuadro se calculará como promedio ponderado de los valores por metro cuadrado que registre en las respectivas municipalidades para los terrenos acreditados por el operador, utilizando como ponderador el área total del terreno indicada en cada certificación.
+Try = Tasa de rentabilidad anual para vehículos con reglas de cálculo tarifario tipo 2 para la ruta "r" del conjunto de unidades "y". Este valor se obtiene según lo detallado en la sección 4.6.1.
+r = Ruta de transporte remunerado de personas.
+Para el reconocimiento de la rentabilidad de terrenos de las instalaciones y edificaciones, el operador deberá:
+1 Suministrar el dato de folio real o matrícula de cada uno de los inmuebles que se utilizan en la prestación del servicio de la ruta "r"; a fin de que la Aresep pueda constatar los datos del propietario, la descripción del área y ubicación del terreno.
+2 Aportar la certificación de estar al día con el pago de impuestos de bienes inmuebles de la Municipalidad donde se ubica el (los) inmuebles empleados en la prestación del servicio, que especifique el valor por metro cuadrado de terreno.
+3 Cuando el terreno empleado en la operación del servicio de la ruta "r" no es propiedad del prestador del servicio de la ruta "r", además se requiere la presentación de una copia certificada por notario público de los contratos de arrendamiento, de leasing, de comodato del inmueble o de cualquier otro contrato regulado en los códigos Civil o Mercantil, con el fin de comprobar el uso del inmueble.
+A partir de la información indicada anteriormente, la IT podrá verificar en el trámite de fijación tarifaria que los bienes inmuebles consignados en dicha información son utilizados en la prestación del servicio de la ruta "r".
+En los casos donde el operador no sea el propietario de los terrenos utilizados para la prestación del servicio, se reconocerá como rentabilidad mensual al capital invertido en terrenos en la ruta "r", el valor en colones menor entre el valor mensual obtenido de la aplicación de la ecuación 52 y el valor mensual derivado del documento acreditado en el punto 3 anterior. En los casos que se requiere expresar algún valor en colones a partir de uno señalado en dólares, se aplicarán los criterios utilizados en la sección 4.12.2.c.
+Las relaciones para determinar el área de terreno de las instalaciones y edificaciones según categoría de operador (intercepto y coeficiente de cada ecuación de cálculo) incluidos en el Cuadro 34 anterior estarán sujetos a variación de acuerdo con los estudios técnicos ejecutados, contratados o avalados por la Aresep. Las relaciones se actualizarán como mínimo una vez cada cinco años, a partir de la entrada en vigencia de la resolución que incorpora en la metodología los valores del cuadro citado. La actualización de las relaciones deberá someterse previamente al trámite de consulta pública establecido en el artículo 361 de la Ley General de la Administración Pública.
+El plazo establecido para la actualización de las relaciones permite la revisión periódica de la metodología de manera que se incorporen los cambios en el entorno financiero, así como los cambios tecnológicos y legales atinentes al servicio objeto de la presente metodología. Los casos de inclusión, eliminación de relaciones y variación en las reglas contenidas en la metodología para definir relaciones, deberán someterse previamente al proceso de audiencia pública previsto en el artículo 36 de la Ley N° 7593.
+(*) (Así adcionada la sección d. Rentabilidad del capital asociado a los terrenos de las instalaciones y edificaciones anterior mediante resolución N° RE-0092-JD-2023 del 28 de agosto de 2023)
+e. Rentabilidad del capital invertido en el sistema automatizado de conteo de pasajeros
+(Así modificada su numeración del inciso anterior mediante resolución N° RJD-060-2018 del 13 de abril de 2018, que lo traspaso del inciso c) al d))
+(Así modificada la numeración del inciso anterior mediante resolución N° RE-0092-JD-2023 del 28 de agosto de 2023, que lo traspaso del antiguio inciso d) al e))
 La rentabilidad mensual del capital invertido en el sistema automatizado de conteo de pasajeros (RECPr), se calcula multiplicando el factor de rentabilidad del equipo por el valor de los equipos y por la tasa de rentabilidad.
 El factor de rentabilidad anual en el caso del capital invertido en el sistema automatizado de conteo de pasajeros, se obtiene al deducir el factor de la depreciación acumulada considerando que los equipos se deprecian de acuerdo con lo indicado en la sección 4.4.1.c, y se calcula con la siguiente ecuación:
 Donde:
@@ -1172,7 +1197,7 @@ El factor de rentabilidad anual estará sujeto a variación de acuerdo con los e
 (Así reformado el párrafo anterior mediante resolución N° RJD-060-2018 del 13 de abril de 2018)
 El plazo establecido para la actualización del valor del factor, permite la revisión periódica de la metodología de manera que se incorpore los cambios en el entorno financiero, así como los cambios tecnológicos y legales atinentes al servicio objeto de la presente metodología. Los casos de inclusión, eliminación de factores y variación en las reglas para definir factores, deberán someterse previamente al proceso de audiencia pública previsto en el artículo 36 de la Ley N° 7593.
 (Así reformado el párrafo anterior mediante resolución N° RJD-060-2018 del 13 de abril de 2018)
-(Nota de Sinalevi: mediante resolución N° 060-2018 del 13 de abril de 2018, se acordó las modificaciones de forma y aclaraciones relacionadas con los coeficientes. Al no ser clara la reforma se transcribe la misma: "Sección 4.6.2.a.i. Para los vehículos con reglas de cálculo tarifario tipo 1, eliminar de la definición de VTAN_br lo siguiente: "ni neumáticos".)
+(Nota de Sinalevi: Mediante resolución N° 060-2018 del 13 de abril de 2018, se acordó las modificaciones de forma y aclaraciones relacionadas con los coeficientes. Al no ser clara la reforma se transcribe la misma: "Sección 4.6.2.a.i. Para los vehículos con reglas de cálculo tarifario tipo 1, eliminar de la definición de VTAN_br lo siguiente: "ni neumáticos".)
 (Nota de Sinalevi: mediante resolución N° 060-2018 del 13 de abril de 2018, se acordó las modificaciones de forma y aclaraciones relacionadas con los coeficientes. Al no ser clara la reforma se transcribe la misma: Sección 4.6.2.a.ii. Para los vehículos con reglas de cálculo tarifario tipo 2, eliminar de la definición de lo siguiente: "ni neumáticos" )
 (*)d. Rentabilidad del capital invertido en el equipo de validación requerido para el sistema de pago electrónico. La rentabilidad mensual del capital invertido en el equipo de validación requerido para el sistema de pago electrónico (REVr), se calcula multiplicando el factor de rentabilidad del equipo de validación por el valor de los equipos y por la tasa de rentabilidad.
 El factor de rentabilidad anual en el caso del capital invertido en el equipo de validación requerido para el sistema de pago electrónico se obtiene al deducir el factor de la depreciación acumulada considerando que los equipos se deprecian de acuerdo con lo indicado en la sección 4.4.1.d, y se calcula con la siguiente ecuación:
