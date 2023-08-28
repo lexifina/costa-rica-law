@@ -1,13 +1,4 @@
-Artículo 8º—Información sobre incumplimientos en la liquidación de los contratos bursátiles
-Las entidades de compensación y liquidación deben comunicar a la Superintendencia, el mismo día, los incumplimientos en el proceso de liquidación de los contratos bursátiles. En dicho comunicado deben informar lo siguiente:
-a) Número de contrato
-b) Fecha del contrato
-c) Instrumento
-d) Emisor
-e) Valor facial
-f) Valor transado
-g) Tipo de operación
-h) Tipo de incumplimiento
-i) Miembro liquidador incumpliente
-j) Miembro liquidador cumpliente
-Adicionalmente, deben comunicar los atrasos en el proceso de liquidación, de conformidad con el horario establecido.
+Artículo 8. Comunicación de tarifas de las entidades de compensación y Liquidación
+Las entidades de compensación y liquidación deben comunicar la aplicación de tarifas y sus modificaciones, con al menos treinta días naturales previos a su entrada en vigor, por los siguientes medios:
+a. Notificación que incluya el detalle de las nuevas tarifas o de las tarifas actuales y las propuestas a los participantes, según sea el caso, y la fecha a partir de la cual entrarán en vigor.
+b. Publicación de las tarifas en el sitio web de la entidad.

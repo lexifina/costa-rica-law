@@ -1,5 +1,6 @@
-Artículo 7º—Comunicación de tarifas de las entidades de compensación y liquidación
-Las entidades de compensación y liquidación deben comunicar la aplicación de tarifas y sus modificaciones, con al menos treinta días naturales previos a su entrada en vigencia, por los siguientes medios:
-a) Notificación que incluya el detalle de las nuevas tarifas o de las tarifas actuales y las propuestas, según sea el caso, y la fecha a partir de la cual entrarán en vigencia.
-b) Comunicado de hecho relevante, que especifique la entrada en vigencia de las nuevas tarifas.
-c) Publicación de las tarifas en el sitio web de la entidad.
+Artículo 7. Determinación del monto del fondo de garantía para la solución de incumplimientos
+Las entidades de compensación y liquidación deben considerar para la determinación del monto del fondo que sirva como mecanismo para la solución de incumplimientos en el proceso de compensación y liquidación de los contratos bursátiles, los siguientes parámetros:
+a. Los contratos de compraventa de contado y a plazo efectuados en el mercado secundario organizado por las bolsas de valores. Considerar los saldos de los tres meses anteriores a la realización del cálculo
+b. El monto del fondo debe ser igual al monto de la posición neta compradora que ocupe como mínimo el percentil 95 de las posiciones diarias netas de compra para cada miembro liquidador perteneciente a la entidad de compensación y liquidación
+respectiva.
+c. El monto se actualizará en los primeros cinco días hábiles siguientes al corte de cada mes calendario.

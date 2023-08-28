@@ -1,5 +1,5 @@
 SUPERINTENDENCIA GENERAL DE VALORES
-SGV-A-161.—Superintendencia General de Valores.—Despacho del Superintendente. A las doce del trece del octubre del dos mil nueve.
+SGV-A-161.-Superintendencia General de Valores.-Despacho del Superintendente. A las doce del trece del octubre del dos mil nueve.
 Considerando que:
 I. Mediante Artículo 9, del Acta de la Sesión 786-2009, celebrada el 12 de junio de 2009, el Consejo Nacional de Supervisión del Sistema Financiero aprobó el Reglamento de compensación y liquidación de valores.
 II. En dicho Reglamento se otorga al Superintendente potestad para definir algunos requerimientos operativos y técnicos mínimos a la actividad de compensación y liquidación.
@@ -9,4 +9,6 @@ Por tanto dispone el presente acuerdo:
 SGV-A-161. ACUERDO PARA LA IMPLANTACIÓN
 DEL REGLAMENTO DE COMPENSACIÓN
 Y LIQUIDACIÓN DE VALORES
-Artículo 1º—Objeto. El presente Acuerdo tiene como propósito establecer las disposiciones técnicas, operativas y de control que le han sido encomendadas al Superintendente General de Valores en el Reglamento de compensación y liquidación de valores (en adelante Reglamento).
+(Nota de Sinalevi: La presente norma fue reformada parcialmente y reproducido su texto de forma íntegra mediante acuerdo N° SGV-A-281 del 28 de agosto del 2023,y publicado en el Alcance Digital N° 173 a La Gaceta N° 165 del 8 de setiembre del 2023, y se transcribe a continuación:)
+Artículo 1. Objeto
+El presente Acuerdo tiene como propósito establecer las disposiciones técnicas, operativas y de control que le han sido encomendadas al Superintendente General de Valores en el Reglamento de compensación y liquidación de valores (en adelante Reglamento).
