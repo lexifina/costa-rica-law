@@ -1,0 +1,10 @@
+CIRCULAR N° 210-2023
+Asunto: Reiteración de la circular No. 54-13, sobre "Uso del sistema de videoconferencia".-
+A LOS DESPACHOS JUDICIALES DEL
+PAÍS SE LES HACE SABER QUE:
+El Consejo Superior N° 61-2023 celebrada el 25 de julio de 2023, artículo LIII, acordó reiterarles la circular No. 54-13, sobre "Uso del sistema de videoconferencia", publicada en el Boletín Judicial No. 80 del 26 de abril de 2013, que indica:
+"El Consejo Superior en sesión N° 19-2013, celebrada el 28 de febrero de 2013, artículo LXXVIII, acordó instarlos para que sigan utilizando el Sistema de Videoconferencias en sus labores habituales, cuando tengan que coordinar actividades con otras oficinas fuera del circuito judicial, tales como sesiones de trabajo, talleres, reuniones, y especialmente con los Centros de Atención Institucional, a fin de incrementar los beneficios asociados al no tener que trasladar los privados de libertad a los despachos judiciales, por ende minimizar, tanto los riesgos que implican estos traslados así como los costos asociados a esta labor, lo cual impactará positivamente el presupuesto institucional.
+De igual forma, se les solicita hacer uso de esa herramienta tecnológica en la toma de declaraciones a los peritos judiciales, con la finalidad de reducir al máximo las citaciones que se hacen a esos servidores. Lo anterior, en virtud de que el desplazamiento de un perito a cualquier lugar del país, va en detrimento del servicio que debe brindarse al usuario, pues el traslado implica que se tenga que dejar de atender usuarios durante una audiencia o todo un día, con la consecuente erogación de recursos económicos por la utilización de un vehículo, pago de salarios y viáticos a un chofer y al perito judicial.
+De conformidad con lo anterior, se les instruye para que las citaciones que se realicen sean las estrictamente necesarias, en aras de no afectar el servicio público que presta ese departamento.
+Publíquese una sola vez en el Boletín Judicial.
+San José, 28 de agosto de 2023
