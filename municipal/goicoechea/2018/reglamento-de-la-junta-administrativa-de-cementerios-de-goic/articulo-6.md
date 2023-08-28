@@ -1,1 +1,0 @@
-Artículo 6—Una vez juramentados los miembros de la Junta, éstos procederán a la integración de su directorio, el cual estará formado por Presidente, Vicepresidente, Secretario, Vocal uno y Vocal dos.

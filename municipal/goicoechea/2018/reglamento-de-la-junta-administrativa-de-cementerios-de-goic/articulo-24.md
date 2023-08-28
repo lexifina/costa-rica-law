@@ -1,4 +1,0 @@
-CAPÍTULO SÉTIMO
-Del Fiscal
-Artículo 24—El cargo de fiscal será desempeñado por un(a) vecino(a) del cantón, mayor de edad(*). Habrá un fiscal, a cargo de la fiscalización y vigilancia del cumplimiento de los Acuerdos adoptados por la Junta Administrativa, del cumplimiento de las disposiciones del Reglamento General de Cementerios, o cualquier otra norma vinculante y del presente Reglamento. El fiscal podrá asistir a las sesiones de la Junta Administrativa, cuando lo estime conveniente, con voz pero sin voto. Cuando sus recomendaciones acordes con sus funciones de fiscalización y vigilancia, no sean atendidas por la Junta, deberá informarlo al Concejo Municipal, para lo que éste Órgano considere procedente o prudente disponer.
-(*)(Así adicionada la frase anterior mediante sesión ordinaria N° 03-19 del 21 de enero del 2019)

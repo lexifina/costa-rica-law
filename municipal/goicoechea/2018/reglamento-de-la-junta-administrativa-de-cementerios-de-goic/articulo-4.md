@@ -1,3 +1,0 @@
-Artículo 4—La Junta estará integrada por cinco miembros mayores de 18 años, todos ciudadanos del cantón de Goicoechea con al menos tres años de residir en el mismo.
-Dos de estos miembros deberán ser mujeres.
-Este nombramiento lo hará el Concejo Municipal en el mes de diciembre, dentro de los quince días siguientes a la publicación a que se refiere el artículo cinco de este Reglamento y serán juramentados de inmediato, tomando posesión de sus cargos a partir del primero de enero del año siguiente. Durarán en su cargo por un plazo de dos años y podrán ser reelectos en forma consecutiva por una sola ocasión. Desempeñarán sus cargos en forma ad honórem.

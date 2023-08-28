@@ -1,1 +1,0 @@
-Artículo 59—En los nichos de alquiler se permitirá solamente la colocación de una placa, que indique el nombre de la persona inhumada, su fecha de nacimiento y fecha de defunción y el uso de ganchos plásticos adheridos con cemento, máximo dos, para colgar flores.

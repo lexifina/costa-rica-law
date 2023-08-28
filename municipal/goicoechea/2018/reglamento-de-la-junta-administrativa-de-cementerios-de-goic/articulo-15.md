@@ -1,4 +1,0 @@
-CAPÍTULO SEXTO
-De los Permisos de Uso de Derechos (Bóvedas)
-Artículo 15—La Junta dará permisos de uso de derechos (bóvedas) de los Cementerios bajo su administración. Dicho permiso será por un plazo de cincuenta años(*). Una vez vencido dicho plazo podrá ser prorrogado por una única vez por un plazo igual de años, en donde la Junta Administrativa en su debido momento sea que establezca el monto a cancelar en el momento de expiración del contrato de Permiso de Uso. Si cumplido el plazo de Permiso de Uso y el Permisionario no desee prorrogar y si existiese una inhumación con menos de cinco años de antigüedad se prorrogará por el plazo restante para lo cual se cobrará solamente la cuota de mantenimiento, al finalizado el plazo la Junta Administrativa podrá disponer del mismo.
-(*)(Así reformada la frase anterior mediante sesión ordinaria N° 03-19 del 21 de enero del 2019)

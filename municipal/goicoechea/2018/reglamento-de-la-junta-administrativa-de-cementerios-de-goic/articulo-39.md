@@ -1,1 +1,0 @@
-Artículo 39—En el caso de que en el Permiso de Uso en donde se va a sepultar un cadáver existiese solamente un nicho y al hacer la inspección correspondiente, se encontrase en el un cadáver momificado, no se podrá llevar a cabo la inhumación en ese nicho.

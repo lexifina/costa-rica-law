@@ -1,2 +1,0 @@
-Artículo 19—Todo Permisionario de uso de un derecho deberá pagar semestralmente (*)a la Junta el importe por concepto de mantenimiento y otros que se disponga, los cuales serán fijados por ésta. En caso de mora la Junta establecerá y cobrará anualmente, un interés de Tasa Básica el cual puede ser ajustado cada año.
-(*)(Así reformada la frase anterior mediante sesión ordinaria N° 03-19 del 21 de enero del 2019)

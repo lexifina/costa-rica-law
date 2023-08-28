@@ -1,6 +1,0 @@
-Artículo 5—Para la designación de los miembros de la Junta se seguirá el siguiente procedimiento:
-a) El Concejo Municipal en la primera quincena del mes de noviembre convocará a la ciudadanía a concursar como miembro de la Junta Administrativa a través de una publicación en un medio de comunicación escrito. En la publicación se consignará en forma clara las funciones de la Junta y los requisitos de sus miembros. La fecha límite para la recepción de atestados será el 30 de noviembre.
-a) Los interesados deberán enviar su hoja de vida y atestados a la Secretaría Municipal dentro del plazo de la convocatoria, indicando su interés en conformar la Junta. En el caso de ser miembro de la Junta en ese momento se prescindirá del requisito de la Hoja de Vida.
-c) Los interesados aportarán además, junto con su hoja de vida y como parte de sus atestados, una declaración jurada en el sentido de que no les liga parentesco alguno, hasta el tercer grado por consanguinidad o hasta un segundo grado por afinidad, con los miembros del Concejo Municipal, el Alcalde o con los funcionarios de la Junta de Cementerios.
-(Así reformado el inciso anterior mediante sesión ordinaria N° 03-19 del 21 de enero del 2019)
-d) El nombramiento definitivo lo hará el Concejo Municipal antes del 31 del mes de diciembre previo dictamen favorable de la Comisión de Gobierno y Administración.

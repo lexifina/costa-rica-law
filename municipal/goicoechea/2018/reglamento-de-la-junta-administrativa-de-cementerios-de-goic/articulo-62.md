@@ -1,1 +1,0 @@
-Artículo 62—Quienes ingresen a la capilla y a sus alrededores están obligados a mantener el respeto y buen comportamiento. Queda prohibido el uso de bebidas alcohólicas y otras sustancias tóxicas, así como fumar dentro de las instalaciones del Cementerio, en caso de lo contrario se tomarán las medidas correspondientes.

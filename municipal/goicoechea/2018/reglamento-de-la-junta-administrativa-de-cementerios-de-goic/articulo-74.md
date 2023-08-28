@@ -1,1 +1,0 @@
-Artículo 74—No incurrirá en responsabilidad alguna la Junta, sus miembros o funcionarios, si mediante actuación dolosa de un particular, se efectuase traspaso de Permiso de Uso, inhumación o exhumación en contra de lo dispuesto por el Reglamento General de Cementerios y este Reglamento.

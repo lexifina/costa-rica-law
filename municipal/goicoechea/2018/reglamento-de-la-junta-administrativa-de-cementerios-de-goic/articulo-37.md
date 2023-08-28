@@ -1,1 +1,0 @@
-Artículo 37—Si un Permisionario fallece y no existe en los registros de la Junta persona autorizada para disponer del Permiso de Uso correspondiente, la autorización de inhumación se otorgará, previamente a quien la solicite, indicando que tiene interés legítimo, demostrado mediante declaración jurada, relevando de toda pena y responsabilidad a la Junta.
