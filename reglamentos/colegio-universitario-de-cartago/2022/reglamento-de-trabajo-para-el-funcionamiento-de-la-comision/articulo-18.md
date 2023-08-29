@@ -1,0 +1,2 @@
+Artículo 18.-Vigencia. El presente reglamento de funcionamiento entrará en vigencia a partir de la aprobación por acuerdo del Consejo Directivo y posterior a su publicación.
+Reglamento aprobado por el Consejo Directivo del Colegio Universitario de Cartago, mediante el ACUERDO CUC-CD-01-3810-2022, tomado en la Sesión Ordinaria tres mil ochocientos diez, del veintiocho de setiembre de dos mil veintidós.
