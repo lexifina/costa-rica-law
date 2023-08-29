@@ -1,13 +1,10 @@
-Artículo 126. Respecto del servidor que incurra en las causales tipificadas como faltas graves por el Código de Trabajo, sin perjuicio de cualquier otra prevista en las leyes y reglamentos de orden estatutario o laborales, podrá imponerse la sanción de despido sin responsabilidad patronal cuando:
-I. Se apodere, copie, destruya, inutilice, facilite, transfiera o retenga cualquier programa de computación y sus bases de datos, utilizados por la Municipalidad en asuntos propios del servicio debidamente comprobados.
-II. Dañe los componentes materiales, o aparatos, las máquinas o los accesorios que apoyen el funcionamiento de las gestiones Municipales, y/o sistemas informáticos diseñados para las operaciones de cualquiera de las dependencias de la Municipalidad, con cualquier propósito.
-III. Facilite el uso del Código y la clave de acceso asignados para ingresar en los sistemas informáticos de la Municipalidad, telefónicos u otros, para que otra persona lo use a cualquier título.
-IV. Colaborar o facilitar de manera directa o indirecta, por acción u omisión de cualquier forma, el incumplimiento de la obligación de cancelar los tributos Municipales por parte de los contribuyentes.
-V. Ocultar o destruir información, libros contables, bienes, documentos, registros, sistemas y programas computarizados, soportes magnéticos y otros medios de trascendencia para la Municipalidad, siempre y cuando los mismos no estén deshabilitados para su uso.
-VI. Divulgar en cualquier forma o por cualquier medio la cuantía u origen de los tributos, salvo que se esté emitiendo certificaciones a los sujetos pasivos del tributo, o cualquier otro dato que figure en las declaraciones, o permitir que estas o sus copias, libros o documentos que contengan extractos o referencia de ellas, sean vistas por personas ajenas a las que la Administración Municipal haya encargado el manejo de esa información.
-VII. Efectúe un registro de asistencia que no sea el suyo, consciente o solicite a otro que le registre su marca de asistencia.
-VIII. Cuando por dolo o culpa, permita o colabore en el descargo de multas, impuestos, tasas o contribuciones que deban ser canceladas por contribuyentes o empleados.
-IX. Cuando deliberadamente, por negligencia o descuido inexcusable, varíe los montos que deban ser cancelados por concepto de multas, impuestos o tasas Municipales.
-X. Viole la confidencialidad en el procedimiento por casos de hostigamiento o acoso sexual.
-XI. Suprima información veraz o dé información falsa a la Municipalidad de San Ramón al momento de ingresar a laborar en la Institución o de presentar la información y atestados requeridos para ello.
-XII. Cuando el funcionario incurra en cualquier otra falta grave a las obligaciones que le imponga el contrato o que se desprenda de la relación de empleo.
+Capítulo XIX
+De la terminación de la relación de servicio
+Artículo 126. La relación de servicio de un funcionario público ordinario podrá extinguirse en las siguientes circunstancias:
+1. Renuncia: El funcionario público puede dar por terminada voluntariamente su relación de servicio mediante la presentación de una renuncia por escrito.
+2. Despido con o sin responsabilidad del empleador: El funcionario puede ser despedido por el empleador por causas tales como falta grave, negligencia grave o insubordinación. El despido con responsabilidad patronal da derecho al funcionario a la indemnización por despido y otras prestaciones. El despido sin responsabilidad patronal no da derecho al funcionario a indemnización por despido u otros beneficios.
+3. Muerte: La relación de servicio del funcionario público terminará a su muerte.
+4. Invalidez total o permanente: La relación de servicio del funcionario se extinguirá si es declarado incapacitado total o permanentemente.
+5. Programa de movilidad laboral voluntaria: El funcionario público podrá terminar su relación de servicio para participar en un programa de movilidad laboral voluntaria.
+6. Régimen de pensiones: La relación de servicio de los funcionarios públicos terminará cuando tengan derecho a jubilarse bajo el régimen de pensiones.
+7. Las demás que establezca el ordenamiento jurídico: La relación de servicio de un funcionario público ordinario también podrá extinguirse en las demás circunstancias que establezca la ley.

@@ -1,2 +1,3 @@
-Artículo 118. La persona trabajadora afectada por acoso u hostigamiento laboral, podrá plantear la denuncia en forma escrita o verbal ante la comisión de investigación, indicando los hechos en que fundamenta la denuncia, aportando o señalando las pruebas documentales, testimoniales que tenga en su haber o el lugar donde se encuentren; asimismo habrá de señalar lugar para recibir notificaciones.
-Cuando la denuncia sea verbal, la comisión de investigación levantará un acta con la información.
+Capítulo XVIII
+Del régimen disciplinario
+Artículo 118. Los funcionarios públicos municipales que incumplan sus deberes éticos, obligaciones o violen prohibiciones en el ejercicio de sus funciones pueden ser sancionados. Las sanciones se impondrán de acuerdo con la gravedad de la infracción cometida y siguiendo el procedimiento administrativo de la Ley General de la Administración Pública. Las sanciones específicas que pueden imponerse por el incumplimiento de los deberes éticos por parte de los funcionarios públicos municipales varían según la gravedad de la falta.

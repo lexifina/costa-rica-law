@@ -1,3 +1,2 @@
-Capítulo XXIII
-Disposiciones finales.
-Artículo 150. Todas las quejas, peticiones, reclamos, sugerencias, entre otras intervenciones, surgidas en la relación de servicio, pero que no se circunscribe a aspectos disciplinarios, deberán ser dirigidas a las jefaturas inmediatas, en forma respetuosa objetiva y comedida.
+Artículo 150. Para los efectos del artículo 67 del Código del Trabajo, este Reglamento deberá exhibirse permanentemente en por lo menos dos de los lugares más visibles de la Municipalidad, de conformidad con lo dispuesto en el Reglamento de Información Pública de la Municipalidad.
+Quedan derogadas todas las disposiciones de igual o inferior rango que se opongan al presente Reglamento.

@@ -14,3 +14,4 @@ Reglamento Autónomo de Organización y Servicios de la Municipalidad de San Ram
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-04-27 | la propia norma |
+| 2 | 2023-08-29 | Reglamento municipal 260 (2023-08-29) |

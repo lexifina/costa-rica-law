@@ -1,3 +1,17 @@
-Capítulo XIV
-De las llegadas tardías.
-Artículo 103. Se considera como llegada tardía, el ingreso al trabajo después de la hora exacta señalada para el comienzo de labores, o tomar más tiempo del máximo estipulado para descanso en la mañana o tarde, o del almuerzo, lo cual se tipifica como abandono de labores.
+Artículo 103. Obligaciones de los funcionarios con personal a cargo.
+De conformidad con lo dispuesto en este Reglamento, los Códigos Municipales y del Trabajo, los funcionarios con personal a cargo tienen las siguientes obligaciones:
+1. Evaluar periódicamente el desempeño de todos sus subordinados en los aspectos técnicos, operativos, administrativos y disciplinarios. Esta evaluación debe ser objetiva y veraz, y debe utilizarse para proporcionar o gestionar la formación de los subordinados que la necesiten.
+2. Elaborar informes a su superior jerárquico sobre la marcha de su respectiva unidad o proyecto, o de forma inmediata cuando así lo solicite. Estos informes también deberán incluir aquellos hechos relevantes que requieran una pronta solución.
+3. Velar por que los funcionarios a su cargo cumplan con las normas de disciplina y asistencia al trabajo diario que tenga en aplicación el Municipio. Los funcionarios con personal a cargo deben informar cualquier irregularidad a su superior jerárquico.
+4. Planificar, orientar y supervisar a sus colaboradores para que las actividades y procesos asignados se desarrollen de acuerdo con los estándares de eficiencia y calidad deseados.
+5. Vigilar, planificar y autorizar las vacaciones de sus subordinados de tal forma que no se produzcan acumulaciones indebidas de las mismas.
+6. Cumplir sus funciones sin sujeción a los límites de jornada establecidos en este Reglamento, cuando sea necesario.
+7. Elevar ante el superior jerárquico, dentro de los tres días hábiles siguientes a su conocimiento, los informes correspondientes sobre las faltas graves en que incurran los funcionarios a su cargo.
+8. Velar por que los funcionarios bajo su coordinación y supervisión cumplan con las obligaciones señaladas en este Reglamento y leyes conexas, y no incurran en las conductas prohibitivas señaladas en el mismo.
+9. Tramitar, en el plazo de tres días hábiles, las solicitudes de justificación presentadas por sus subordinados por las llegadas tardías en que incurran al tratar asuntos de índole laboral, que les impidan realizar la marca respectiva en el horario oficial de ingreso. Los funcionarios con personal a cargo también deberán justificar la ausencia de una marca al salir del trabajo que se origine en situaciones de la misma naturaleza.
+10. Tomar las precauciones necesarias para prevenir posibles accidentes de trabajo. Esto incluye seguir los procedimientos de seguridad, usar equipo de protección personal e informar cualquier peligro a su supervisor.
+11. Devolver los materiales, herramientas y enseres que les hayan sido entregados para su trabajo en el momento en que dejen de funcionar. Esto asegura que la propiedad de la Municipalidad se mantenga y utilice adecuadamente.
+12. Vigilar y motivar el buen uso que sus subordinados hagan de los equipos, materiales, mobiliario de la Institución y equipo de protección personal. Esto ayuda a garantizar que la propiedad de la Municipalidad se utilice de manera eficiente y segura.
+13. Evaluar objetivamente a sus subordinados, de acuerdo a los lineamientos establecidos por la Administración y de acuerdo a los lineamientos emitidos por MIDEPLAN. Esto asegura que los subordinados sean evaluados de manera justa y consistente.
+14. Realizar la coordinación correspondiente entre los trabajadores de sus dependencias para que en ningún momento queden desatendidos. Esto ayuda a asegurar que los servicios de la Municipalidad se brinden de manera eficiente y efectiva.
+15. Cumplir con todas las demás obligaciones propias de su cargo. Esto incluye seguir las políticas y procedimientos de la Municipalidad y realizar todas las tareas asignadas lo mejor que pueda.

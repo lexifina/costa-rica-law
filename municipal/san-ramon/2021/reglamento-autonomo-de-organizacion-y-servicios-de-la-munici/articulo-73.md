@@ -1,1 +1,8 @@
-Artículo 73. Si una vez concluido el respectivo procedimiento administrativo contra el funcionario que realizó la evaluación, se estima que el mismo no la realizó de forma veraz y diligente, el servidor al que se le calificó de forma que no obtuvo la respectiva anualidad, deberá volver a ser evaluado por la dirección respectiva, si se determinara una calificación de Muy Bueno o Excelente que otorgue el derecho al pago de anualidad, esta se le reconocerá de forma retroactiva a la fecha en que debió acceder a ese derecho. Si por el contrario se determina que la calificación resultó complaciente, se tramitará la respectiva solicitud de anulación de dicha anualidad, mediante un Procedimiento Administrativo según el numeral 173 de la Ley General de la Administración Pública.
+Artículo 73. Ningún funcionario municipal podrá:
+1. Impedir o dificultar el cumplimiento de las medidas de salud ocupacional.
+2. Quitar, sin autorización, los resguardos y protecciones de las máquinas, herramientas de trabajo e instalaciones.
+3. Alterar, dañar o destruir equipos y elementos de protección personal, seguridad en el trabajo, o negarse a utilizarlos sin causa justificada.
+4. Realizar juegos o hacer bromas que pongan en peligro la vida, la salud y la integridad personal de los compañeros de trabajo o de terceros.
+5. Manejar, operar o hacer uso de equipos y herramientas de trabajo para los cuales no tenga autorización y conocimiento.
+6. Incurrir en cualquiera de estas prohibiciones constituirá una infracción grave que será sancionada de conformidad con las leyes vinculantes y el presente Reglamento. Las sanciones específicas que pueden imponerse por violar estas prohibiciones incluyen: acción disciplinaria, hasta e incluyendo el despido, multas, denuncia penal.
+El Municipio se reserva el derecho de imponer cualquier otra sanción que estime conveniente.

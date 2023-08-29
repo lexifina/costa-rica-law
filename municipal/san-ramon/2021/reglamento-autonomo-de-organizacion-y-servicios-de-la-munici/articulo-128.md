@@ -1,6 +1,4 @@
-Artículo 128. Criterios para determinar la gravedad de la falta. Son criterios que deberán ser usados como causas agravantes de la falta los siguientes:
-I. La intencionalidad en la acción u omisión.
-II. La reincidencia.
-III. El menoscabo del servicio.
-IV. El deterioro de la imagen del funcionario o de la Administración.
-V. La mala atención de los administrados o usuarios.
+Artículo 128. La relación de servicio de un funcionario interino podrá terminarse antes del vencimiento del plazo pactado o cuando el funcionario titular retorne a su cargo. En este caso, el funcionario interino solo tendrá derecho a lo siguiente:
+1. Indemnización por notificación sustitutiva: Si la Municipalidad no hubiere dado aviso previo al funcionario interino en los términos previstos en el artículo 28 del Código del Trabajo, éste tendrá derecho a una indemnización por notificación sustitutiva. Esta compensación es igual al salario que hubiera percibido el funcionario interino por el período de preaviso.
+2. Prestaciones por desempleo: Si el nombramiento del funcionario interino ha excedido el plazo de tres meses establecido por la jurisprudencia, podrá tener derecho a las prestaciones por desempleo. Los beneficios de desempleo son una forma de seguridad social que brinda asistencia financiera a las personas que han perdido su trabajo.
+Los funcionarios interinos que no superen el límite de tres meses establecido por la jurisprudencia no tendrán derecho a indemnización por preaviso sustitutorio ni a prestaciones por desempleo. Sin embargo, tienen derecho a vacaciones no disfrutadas y aguinaldo proporcional al tiempo cumplido. Estos derechos son irrenunciables.

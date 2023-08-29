@@ -1,1 +1,1 @@
-Artículo 116. La jefatura que habiendo sido puesta en conocimiento por quien se considere acosado u hostigado laboralmente, no realice esfuerzos para impedir la continuación de tales actos, incurrirá en incumplimiento de deberes.
+Artículo 116. Las sanciones disciplinarias por hostigamiento o acoso laboral se aplicarán de acuerdo a la gravedad de los hechos y el objetivo es disuadir futuros acosos y proteger a la víctima.

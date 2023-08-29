@@ -1,2 +1,6 @@
-Artículo 14. Deber de objetividad. El servidor público municipal debe emitir juicios veraces y objetivos sobre asuntos inherentes a sus funciones, evitando la influencia de criterios subjetivos o de terceros no autorizados por autoridad administrativa competente, debiendo abstenerse de tomar cualquier decisión cuando medie violencia moral que pueda afectar su deber de objetividad. Debe hacer caso omiso de rumores, anónimos y en general de toda fuente de desinformación que afecte la honra, al servicio o la toma de decisiones.
-Lo anterior sin perjuicio del deber de obediencia, en los términos previstos en la Ley General de Administración Pública.
+Artículo 14. Publicación Concurso Interno. La publicación de un concurso interno debe hacer constar lo siguiente:
+1. Los requisitos del puesto, incluidas las calificaciones, la experiencia y las habilidades necesarias.
+2. Las principales características del puesto, incluidas las funciones, responsabilidades y condiciones de trabajo.
+3. El salario correspondiente al puesto.
+4. La publicación deberá estar impresa en caracteres legibles y colocada en los lugares más visibles de todos los centros de trabajo de la Municipalidad. También podrá ser publicitado a través de medios electrónicos.
+5. La publicación deberá realizarse con una antelación mínima de 15 días a la fecha límite de presentación de solicitudes.

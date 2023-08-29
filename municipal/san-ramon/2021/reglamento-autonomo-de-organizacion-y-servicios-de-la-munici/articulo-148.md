@@ -1,1 +1,3 @@
-Artículo 148. La Municipalidad habilitará un lugar técnicamente adecuado destinado a la alimentación de sus colaboradores, debe reunir las condiciones de iluminación, ventilación, agua potable y ubicación, estar amueblado en forma conveniente y dotados de medios especiales para preservar alimentos, calentarlos (microondas) y lavar utensilios; además, deberá mantenerse en las mejores condiciones de limpieza, lo anterior conforme a las disposiciones del artículo 296 del Código de Trabajo.
+Capítulo XXI
+Disposiciones finales
+Artículo 148. Los empleados tienen derecho a formular quejas, solicitudes, reclamos, sugerencias y demás intervenciones derivadas de la relación de servicio, pero que no se limitan a los aspectos disciplinarios, a sus jefes inmediatos. Estas comunicaciones deben realizarse de manera respetuosa, objetiva y comedida, de conformidad con el Código del Trabajo de Costa Rica y la Ley contra el Hostigamiento y Acoso Sexual.

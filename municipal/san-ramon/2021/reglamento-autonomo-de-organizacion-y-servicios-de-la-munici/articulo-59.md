@@ -1,3 +1,4 @@
-Capítulo IX
-De la clasificación y valoración de puestos.
-Artículo 59. El Manual Descriptivo de Puestos contemplará el título, la naturaleza del trabajo, las responsabilidades y los requisitos, habilidades y otras exigencias de cada puesto existente en la Municipalidad y será la base para la selección de personal y la determinación de sus salarios en forma general.
+Artículo 59. La evaluación y calificación del desempeño en la Municipalidad debe realizarse a los funcionarios propietarios o internos que hayan trabajado de forma continua durante el año. Cuando el funcionario público municipal no haya completado un año de servicios al momento de la evaluación, se observarán las siguientes reglas:
+1. El funcionario que durante el respectivo periodo de evaluación y calificación de servicios anuales haya completado el periodo de prueba, pero no haya completado un semestre de servicios, será calificado provisionalmente y deberá ser calificado de forma definitiva durante la primera quincena del mes siguiente. Si la calificación provisional no se reforma en este período, se considerará definitiva.
+2. Si el funcionario ha estado bajo el mismo coordinador durante menos de un año, pero más de seis meses, es responsabilidad de este evaluarlo.
+3. Si el funcionario ha estado bajo varios coordinadores durante el año, pero con ninguno durante más de seis meses, se auto evaluará y calificará al último coordinador con el que trabajó tres meses o más.

@@ -1,1 +1,6 @@
-Artículo 42. El servicio contratado se prestará en cualesquiera de las instalaciones sobre las que la Municipalidad tenga posesión o disfrute, o en el lugar que señale la administración, y cada servidor público municipal lo ejecutará según hubiese sido contratado.
+Artículo 42. El Departamento de Recursos Humanos es el encargado de gestionar los trámites legales y administrativos relacionados con el personal. Estas actividades incluyen:
+1. Selección y formalización de contratos: es responsable de la selección y contratación de nuevos empleados, así como de la negociación y formalización de sus contratos.
+2. Procesamiento de nóminas y seguridad social: es responsable de procesar las nóminas y garantizar que los empleados estén debidamente afiliados a la seguridad social.
+3. Control de los derechos y deberes de los empleados: es responsable de velar porque se respeten los derechos y deberes de los empleados. Esto incluye el seguimiento de las solicitudes de permisos, vacaciones y movilidad de los empleados, así como la garantía de que los empleados estén debidamente protegidos contra los riesgos laborales.
+4. Control de asistencia: es responsable de realizar un seguimiento de la asistencia de los funcionarios municipales en conjunto con la jefatura inmediata y garantizar que los empleados cumplan con la política de asistencia de la institución.
+5. Aspectos relacionados con la disciplina del personal: es responsable de investigar y atender los problemas disciplinarios de los empleados.

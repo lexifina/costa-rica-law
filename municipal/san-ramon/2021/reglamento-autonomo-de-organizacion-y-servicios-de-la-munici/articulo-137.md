@@ -1,1 +1,7 @@
-Artículo 137. Cada Departamento en los primeros quince días del mes de diciembre de cada año, confeccionará y remitirá al Departamento de Recursos Humanos el rol de vacaciones del periodo siguiente, de los servidores públicos municipales a su cargo, el que se hará del conocimiento ellos, atenderá a fechas en que los servidores adquieran el derecho para el disfrute de las vacaciones. Este podrá ser variado por la jefatura en coordinación con el Departamento de Recursos Humanos atendiendo justificaciones debidamente sustentadas y a lo que manifiesta el artículo 155 del Código de Trabajo.
+Artículo 137. El Municipalidad de San Ramón se compromete a informar al personal municipal sobre los eventos de modificación salarial de la siguiente manera:
+La municipalidad enviará un correo electrónico a todo el personal municipal notificando cualquier cambio en su salario. El correo electrónico incluirá la siguiente información:
+1. El nombre del empleado.
+2. El salario actual del empleado.
+3. El nuevo salario
+4. El motivo del cambio de salario
+Los empleados que no estén de acuerdo con un cambio de salario pueden solicitar una revisión del cambio presentando una solicitud por escrito al Departamento de Recursos Humanos.

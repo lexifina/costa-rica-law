@@ -1,1 +1,7 @@
-Artículo 70. El desacuerdo entre el coordinador inmediato y el servidor público municipal en relación con el resultado de la evaluación y calificación de servicios, será resuelto por el Alcalde de la Municipalidad, previa audiencia a todas las partes interesadas.
+Artículo 70. De conformidad con el artículo 221 del Código de Trabajo, la Municipalidad debe notificar al Instituto Nacional de Seguros de cualquier riesgo profesional que ocurra a sus funcionarios sujetos a una póliza de riesgo, dentro de un plazo de ocho días hábiles a partir de sus ocurrencias, tiempo en el cual se debe realizar la investigación correspondiente de lo sucedido. Los requisitos de notificación deben cumplir con las disposiciones del artículo 222 del Código de Trabajo, la cual deberá contener la siguiente información:
+1. El nombre del funcionario público que resultó herido.
+2. La fecha y hora del accidente.
+3. La naturaleza de la lesión.
+4. El lugar donde ocurrió el accidente.
+5. Las circunstancias del accidente.
+El Municipio también está obligado a investigar el accidente y presentar un informe al Instituto Nacional de Seguros. El informe debe incluir los resultados de la investigación, así como cualquier recomendación para prevenir futuros accidentes.

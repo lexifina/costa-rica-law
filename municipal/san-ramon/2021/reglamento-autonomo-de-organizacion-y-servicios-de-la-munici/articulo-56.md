@@ -1,1 +1,12 @@
-Artículo 56. Es función del Departamento de Recursos Humanos establecer planes de carrera administrativa, evaluar el potencial del personal en coordinación con las direcciones, jefaturas o coordinadores y el Alcalde. Debe gestionar la motivación y crear planes de formación y realizarlos, de acuerdo a las posibilidades financieras y el contenido presupuestario de la municipalidad. Lo anterior con el fin de buscar eficiencia y eficacia de los servidores públicos municipales disponibles. La formación de los trabajadores se realiza de cara a promocionarlos para puestos de mayor responsabilidad.
+Capítulo IX
+De la evaluación del desempeño
+Artículo 56. La evaluación del desempeño será un mecanismo para la mejora continua de la gestión pública y el rendimiento y desarrollo integral de los funcionarios públicos. Los funcionarios públicos municipales tendrán, de conformidad con el Código Municipal, una evaluación y calificación de sus servicios. A tal efecto, dicha evaluación se definirá con las directrices generales determinadas por el Ministerio de Planificación Nacional y Política Económica (MIDEPLAN).
+La Ley de Fortalecimiento y Modernización del Sistema de Empleo Público establece que la evaluación del desempeño es un requisito obligatorio para todos los empleados públicos. El propósito de la evaluación del desempeño es mejorar el desempeño de los empleados públicos y garantizar que cumplan con las expectativas de sus empleadores. La evaluación del desempeño contempla como etapas básicas:
+1. Planificación.
+2. Sensibilización y formación.
+3. Ejecución de la evaluación del desempeño, que ameritará al menos:
+3.1 Un plan de evaluación a cada persona trabajadora.
+3.2 Evaluaciones parciales con el objetivo de revisar avances.
+3.3 Evaluación final.
+3.4 Realimentación o comunicación constante con la persona funcionaria.
+4. Análisis y entrega de resultados.

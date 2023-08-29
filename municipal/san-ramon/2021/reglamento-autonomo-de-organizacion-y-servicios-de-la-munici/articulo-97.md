@@ -1,3 +1,7 @@
-Artículo 97. La omisión de marca a cualquiera de las horas de entrada o salida, hará presumir la inasistencia a la correspondiente fracción de jornada, siempre y cuando el servidor público municipal no haga la justificación escrita ante su jefe inmediato a más tardar dentro del tercer día hábil siguiente.
-Vencido este plazo y en caso que se hubiere presentado la justificación mencionada, el superior inmediato durante el día hábil siguiente la remitirá al Departamento de Recursos Humanos con el correspondiente visto bueno.
-Posterior a ese plazo no se aceptarán, sin excepción, ningún tipo de justificaciones haciéndose acreedor el funcionario a las sanciones disciplinarias establecidas en este Reglamento para dichas faltas.
+Artículo 97. Conforme a la política institucional de llegada tardía, las llegadas tardías injustificadas computables dentro del mismo mes natural serán sancionadas de la siguiente manera:
+1. Tres llegadas tardías: amonestación verbal, salvo que el trabajador tenga un motivo válido para su llegada tardía.
+2. Cuatro llegadas tardías: amonestación por escrito, a menos que el empleado tenga una razón válida para su llegada tardía.
+3. Cinco llegadas tardías: suspensión por tres días, a menos que el empleado tenga una razón válida para su llegada tardía.
+4. Seis llegadas tardías: suspensión por quince días, a menos que el empleado tenga un motivo válido para su llegada tardía.
+5. Siete o más llegadas tardías: despido sin responsabilidad del empleador, a menos que el empleado tenga una razón válida para su llegada tardía.
+Los empleados que tengan un motivo válido para llegar tarde no estarán sujetos a medidas disciplinarias. Las razones válidas para llegar tarde incluyen enfermedad, retrasos en el tráfico y emergencias familiares.

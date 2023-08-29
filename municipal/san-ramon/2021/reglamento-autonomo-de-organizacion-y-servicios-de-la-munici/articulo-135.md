@@ -1,1 +1,1 @@
-Artículo 135. Son días feriados de pago obligatorio para los servidores públicos municipales todos aquellos que se encuentran regulados en el Código de Trabajo, así como los fijados en la Convención Colectiva. También lo serán los días de asueto que determine el Gobierno o las Autoridades Locales Gubernamentales.
+Artículo 135. Los funcionarios municipales que previo a la entrada en vigencia de la Ley Marco de Empleo Público N° 10159, posean derecho a vacaciones superior al tope de veinte días hábiles, conservarán tal condición, pero esta no podrá aumentarse.

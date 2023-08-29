@@ -1,6 +1,2 @@
-Artículo 130. En el caso de los funcionarios interinos y funcionarios nombrados a plazo fijo o por obra determinada su relación de servicio terminará:
-I. Cuando el titular del puesto se reintegre al mismo, ya sea por vencimiento de la causa que existía para alejarse del cargo o cualquier otro motivo.
-II. Despido con o sin responsabilidad patronal.
-III. Renuncia.
-IV. Fallecimiento o invalidez total o permanente debidamente declarada.
-V. Por vencimiento del plazo en que fue nombrado, o terminación de la obra para cuya realización fue contratado.
+Artículo 130. La Municipalidad está obligada a dotar al personal operativo de los uniformes y equipos de protección personal (EPP) necesarios para el desempeño de sus funciones. Los uniformes deben ser apropiados para el tipo de trabajo que se requiera realizar y el EPP debe ser adecuado a los peligros a los que está expuesto el personal.
+El Municipio deberá proporcionar los uniformes y el EPP a su personal operativo sin costo alguno. Los uniformes y el EPP deben estar en buenas condiciones y deben ser reemplazados si se desgastan o dañan.

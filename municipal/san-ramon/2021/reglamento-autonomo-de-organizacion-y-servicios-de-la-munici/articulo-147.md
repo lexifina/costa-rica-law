@@ -1,5 +1,5 @@
-Artículo 147. La concesión de permisos sin goce de salario se regirá por las siguientes disposiciones:
-I. Las solicitudes, en cualquiera de los casos, se presentarán con la debida motivación y antelación, que no podrá ser menor a quince días naturales, salvo situaciones de caso fortuito o fuerza mayor que serán valoradas por la autoridad competente.
-II. Cualquier eventual denegación de una solicitud de permiso, debe estar debidamente motivada y fundamentada por el Alcalde; la negación será susceptible de los recursos ordinarios del Código Municipal.
-III. En aquellos casos en que la solicitud de permiso se origine en un nombramiento en puesto de elección popular, una vez realizado el trámite pertinente, será aprobado por el Alcalde o Alcaldesa Municipal sin mayor trámite.
-IV. No podrán concederse licencias continuas argumentando motivos iguales o diferentes, excepto casos muy calificados a juicio de la Alcaldía o a quien ésta delegue, sin que perjudiquen los fines de la administración.
+Artículo 147. Además de los derechos establecidos en el Código de Trabajo y el Código Municipal, las Leyes Conexas y este Reglamento, los funcionarios municipales tendrán derecho a:
+1. Recibir de sus superiores instrucciones claras, precisas y comprobables sobre su trabajo, deberes y responsabilidades.
+2. Aportar ideas y sugerencias sobre temas relacionados con su trabajo.
+3. Disponer de los equipos e instrumentos necesarios para el desempeño de sus funciones, con la debida consideración a las condiciones físicas y ambientales en las que laboran.
+4. Ser escuchados y atendidos por las autoridades correspondientes si experimentan situaciones de molestia, acoso o acoso sexual por parte de sus superiores, compañeros u otros empleados municipales.

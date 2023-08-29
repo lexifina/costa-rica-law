@@ -1,3 +1,1 @@
-Capítulo XX
-Del régimen disciplinario.
-Artículo 121. La inobservancia de los deberes éticos del servidor público municipal, obligaciones, o la violación de las prohibiciones, por parte de los servidores públicos municipales en el desempeño de sus funciones debidamente señaladas en este Reglamento, en el Código Municipal, el Código de Trabajo o cualquier otra normativa aplicable, se sancionará de acuerdo con la gravedad de la falta cometida y siguiendo el procedimiento administrativo de la Ley General de la Administración Pública.
+Artículo 121. Se impondrá la sanción mínima de apercibimiento por escrito y hasta suspensión sin goce de sueldo hasta por 5 días, cuando el funcionario no liquide los comprobantes de caja chica dentro de los dos días hábiles siguientes después de la entrega del dinero en efectivo, de conformidad con lo establecido en el Reglamento para el Funcionamiento del Fondo de Caja Chica de la Municipalidad de San Ramón.

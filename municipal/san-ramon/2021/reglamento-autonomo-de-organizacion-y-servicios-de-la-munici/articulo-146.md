@@ -1,3 +1,8 @@
-Artículo 146. La Alcaldía podrá conceder permiso sin goce de salario a los servidores públicos municipales tomando en cuenta en todo momento que no sufra menoscabo la buena marcha de la prestación de los servicios a los contribuyentes en los siguientes casos:
-I. De un día en adelante y hasta por seis meses de manera consecutiva o acumulativa para que el trabajador solicitante atienda asuntos de interés personal. Este permiso podrá ser prorrogado hasta por un período igual (6 meses) y su concesión será competencia del Alcalde o Alcaldesa Municipal.
-II. Hasta dos años a solicitud del servidor público municipal cuando éste, a instancia de un gobierno extranjero u organismo internacional o regional debidamente acreditado en el país, o de fundaciones cuyos fines beneficien directamente al Estado así lo soliciten; de igual forma cuando se trate del cónyuge de un becario, que deba acompañarlo en su viaje al exterior. Estos permisos deberán ser aprobados por el Alcalde o Alcaldesa Municipal, quien según su criterio debidamente motivado podrá prorrogarse hasta por un período igual siempre y cuando prevalezcan las condiciones que originaron la licencia.
+Artículo 146. En cumplimiento a la legislación vigente, la Municipalidad establecerá un lugar técnicamente adecuado para la alimentación de sus colaboradores. Este lugar deberá reunir las siguientes condiciones:
+1. Iluminación: La iluminación deberá ser suficiente para permitir que los empleados vean claramente la comida.
+2. Ventilación: La ventilación deberá ser adecuada para evitar la acumulación de calor y humedad.
+3. Agua potable: Se dispondrá de suministro de agua potable.
+4. Ubicación: La ubicación deberá ser conveniente para el acceso de los empleados.
+5. Mobiliario: El lugar deberá estar amueblado con mesas y sillas que sean cómodas e higiénicas.
+6. Equipamiento: El lugar estará equipado con medios especiales para conservar los alimentos y lavar los utensilios.
+7. Limpieza: El lugar se mantendrá en las mejores condiciones de limpieza en todo momento.

@@ -1,3 +1,1 @@
-Capítulo XII
-De las bajas médicas para laborar.
-Artículo 85. Tratándose de baja médica para trabajar por riesgo profesional, se estará a lo dispuesto en la Ley sobre Riesgos de Trabajo, y sus reformas, garantizando en todo caso el pago del cien por ciento del salario del servidor municipal.
+Artículo 85. Cuando las necesidades imperiosas de la Municipalidad lo requieran, todo funcionario público municipal podrá ser requerido por sus superiores para realizar temporalmente cualquier otro trabajo adicional o diferente que sea compatible con su fuerza, aptitudes, estado o condición, y que sea del mismo género del objeto de las que forman el objeto de la relación laboral y para la que fue contratado. El trabajo compatible puede incluir, entre otras acciones, el trabajar en un departamento diferente, asumir nuevas responsabilidades o aprender nuevas habilidades.

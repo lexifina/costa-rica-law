@@ -1,1 +1,1 @@
-Artículo 5. Los Coordinadores y todos aquellos funcionarios que tengan bajo su responsabilidad, tareas de administración o supervisión de personal, son responsables ante el Alcalde o Vicealcaldesa designado, de velar por la correcta aplicación de todas las disposiciones de este reglamento.
+Artículo 5. Corresponde y es facultad del Alcalde o Alcaldesa Municipal interpretar y resolver las dudas que pudiesen surgir en relación con la aplicación de este reglamento, previa consulta al Departamento de Gestión Jurídica.

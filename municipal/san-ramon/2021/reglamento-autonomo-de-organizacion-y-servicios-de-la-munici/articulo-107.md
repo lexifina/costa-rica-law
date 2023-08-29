@@ -1,3 +1,1 @@
-Capítulo XV
-Omisión de marca.
-Artículo 107. Se entenderá por omisión de marca, la ausencia de esta en el respectivo registro, en la jornada laboral del día correspondiente.
+Artículo 107. Procedimientos de informes. Si un funcionario municipal siente que está siendo víctima de acoso, puede comunicarlo a su superior, a un representante del Departamento de Recursos Humanos o a alguien en quien confíe. Asimismo, puede presentar la denuncia ante el Ministerio del Trabajo de Costa Rica.

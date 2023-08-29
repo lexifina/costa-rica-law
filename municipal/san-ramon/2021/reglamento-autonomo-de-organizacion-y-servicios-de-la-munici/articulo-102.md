@@ -1,6 +1,7 @@
-Artículo 102. Las ausencias injustificadas computables al final de un mismo mes calendario, se sancionarán de la siguiente forma:
-I. Por media ausencia: amonestación escrita y el rebajo de media jornada.
-II. Por una completa o dos medias ausencias: suspensión hasta por dos días y rebajo correspondiente al tiempo no laborado.
-III. Por tres medias ausencias alternas: suspensión hasta por seis días y el rebajo correspondiente al tiempo no laborado.
-IV. Por una y media ausencia consecutiva, o dos alternas completas: suspensión hasta por ocho días y el rebajo correspondiente al tiempo no laborado.
-V. Por cinco o más medias ausencias, por dos ausencias consecutivas, o por más de dos ausencias alternas en un mismo mes calendario: despido sin responsabilidad patronal.
+Artículo 102. Obligaciones de los conductores de vehículos municipales.
+Además de lo dispuesto en el Reglamento de circulación de Vehículos Municipales, los conductores de vehículos municipales están obligados a:
+1. Mantener el vehículo asignado limpio, seguro y en buen estado de funcionamiento. Esto incluye asegurarse de que el vehículo tenga todos los permisos, herramientas y accesorios necesarios.
+2. Negarse a operar un vehículo que se encuentre en condiciones manifiestas de poner en peligro la integridad física del conductor o de terceros, o que no cuente con los permisos necesarios para circular. Los conductores deberán comunicar por escrito y de forma inmediata a su supervisor los motivos de su negativa.
+3. Reportar los accidentes que ocurran a la jefatura inmediata y al coordinador de transportes en el acto del accidente. Este informe deberá incluir los nombres y apellidos de los ocupantes del vehículo, las personas que resultaron afectadas, los daños sufridos por el vehículo, el lugar y circunstancias del accidente, y cualquier otra información relevante. El informe deberá presentarse lo antes posible después de ocurrido el hecho, si la salud del funcionario lo permite. Los conductores también deben enviar una copia del expediente judicial del accidente al Departamento de Gestión Jurídica tan pronto como puedan acceder a él, y acatar las decisiones de ese Departamento Jurídico con respecto al proceso de tránsito.
+4. Conocer y cumplir la Ley de Tránsito por las Vías Públicas Terrestres y Seguridad Vial, así como las disposiciones establecidas en este reglamento, el Reglamento Sobre el Uso de Vehículos Municipales, y demás normas conexas.
+5. Cumplir con cualquier otra obligación propia de su cargo en la conducción de vehículos.
