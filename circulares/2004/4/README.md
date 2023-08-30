@@ -13,3 +13,4 @@ Regulación de las visitas de abogados a los privados de libertad recluidos en l
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-01-27 | la propia norma |
+| 2 | 2023-08-30 | Circular 206 (2023-08-30) |
