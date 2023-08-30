@@ -1,0 +1,1 @@
+Artículo 25.-Del reajuste y revisión de precios. Todo reajuste o revisión de precios a los contratos suscritos por la Administración deberán contener la correspondiente validación del AC y la Dirección Administrativa Financiera, mismo que deberá ser autorizado por la AM.
