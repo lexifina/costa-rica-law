@@ -1,0 +1,1 @@
+Artículo 5º-El Concejo Municipal, es el primer obligado a dar ejemplo de transparencia, en la ejecución de los actos que tiendan al nombramiento, control y fiscalización de las Fiestas Cívicas y por ello debe de establecer un procedimiento altamente confiable en el nombramiento de las Comisiones.

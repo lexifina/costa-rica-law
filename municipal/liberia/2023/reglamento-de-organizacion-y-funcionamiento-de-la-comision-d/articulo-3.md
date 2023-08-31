@@ -1,0 +1,1 @@
+Artículo 3º-El Concejo Municipal, la Alcaldía y el Municipio de Liberia en general, tienen clara conciencia de que el objeto y fundamento de la gestión pública, es el servicio a la comunidad y que el mismo debe realizarse con absoluta transparencia, a efecto de que los ciudadanos, recobren confianza en la gestión pública.

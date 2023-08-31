@@ -1,0 +1,1 @@
+Artículo 16.-Cada Comisión de Fiestas Cívicas, de su seno elegirá un presidente, un tesorero, un secretario, dos vocales, mediante el mecanismo que considere más conveniente a más tardar el 1 de agosto de cada año.

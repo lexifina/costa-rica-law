@@ -1,0 +1,1 @@
+Artículo 2º-Las Fiestas Cívicas de Liberia son una actividad, que por su antigüedad y su arraigo en la población nacional y extranjera, se han convertido en una tradición, insertada ya en la cultura nacional.

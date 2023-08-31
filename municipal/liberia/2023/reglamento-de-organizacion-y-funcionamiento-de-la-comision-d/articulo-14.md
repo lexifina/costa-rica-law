@@ -1,0 +1,1 @@
+Artículo 14.-Todas las solicitudes deberán conocerse en el Concejo Municipal en pleno, en sesión ordinaria posterior al cierre de la fecha de recepción de solicitudes, para su nombramiento. El Concejo Municipal, deberá respetar la Equidad de Género, cuando tome el acuerdo de nombramiento.

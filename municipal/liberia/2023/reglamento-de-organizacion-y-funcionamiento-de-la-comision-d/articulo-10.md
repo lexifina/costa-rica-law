@@ -1,0 +1,1 @@
+Artículo 10.-La comisión de Fiestas Cívicas del cantón de Liberia se nombran con el propósito de planificar y organizar la realización de las Fiestas Cívicas que sirviendo de recreación y esparcimiento de la comunidad, logren la obtención de una utilidad destinada en la ejecución de obras comunales a definir por el Concejo Municipal respectivo.

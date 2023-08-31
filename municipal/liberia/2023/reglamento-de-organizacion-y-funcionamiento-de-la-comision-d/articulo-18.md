@@ -1,0 +1,11 @@
+CAPÍTULO III
+De las funciones
+Artículo 18.-Obligaciones de los miembros de las Comisiones de Fiestas Cívicas. Sin perjuicio de lo que establezca el respectivo Concejo Municipal, los miembros de las comisiones de Fiestas Cívicas tendrán las siguientes obligaciones:
+a) La correcta administración de los fondos que se recauden en la realización de las Fiestas Cívicas, por lo que serán responsables legales del cabal uso de los fondos administrados; además, de garantizar el adecuado funcionamiento de las actividades y eventos relativos a esas Fiestas Cívicas. Lo anterior con el propósito de obtener el mayor aprovechamiento de los recursos disponibles y alcanzar el máximo monto de utilidades que sea posible.
+b) Cumplir las normas establecidas en el presente Manual, las leyes que rigen la materia y cualquier otra normativa interna emitida por el Concejo que sea complementaria a dicho Manual, así como atender de manera pronta y cumplida los requerimientos de información que reciban del Concejo, la Auditoría Interna o la Contraloría General de la República, en el ejercicio de sus competencias.
+c) Rendir declaración jurada de su situación patrimonial al inicio y a la finalización de sus labores, ante la auditoría interna Municipal, de conformidad con el artículo 23 de la Ley contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública Nº 8422.
+d) Asegurar el debido resguardo de toda la documentación que maneje la Comisión en el ejercicio de sus funciones, tanto los documentos para ser entregados a la auditoría interna municipal, como de los activos adquiridos en el proceso.
+Serán los responsables de reintegrar a la municipalidad los egresos que el concejo municipal rechace por no tener la documentación completa y que no tengan relación con los festejos. Se exceptúan de esta sanción los miembros cuyo voto negativo para el gasto impugnado conste en el acta respectiva de la comisión.
+e) Los activos deberán ser rematados de forma pública y casi inmediata (plazo máximo 3 días) finalizada las fiestas cívicas.
+f) Dejar el Campo Ferial Plaza Camilo Reyes, en las mismas condiciones que lo encontraron.
+g) Trasladar los residuos sólidos, durante y después de las fiestas Cívicas de Liberia al Centro de Transferencias de la Municipalidad de Liberia para ser trasladados al Centro de Disposición y tratamiento de los residuos sólidos autorizado.

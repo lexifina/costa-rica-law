@@ -1,0 +1,1 @@
+Artículo 38.-Registro de operaciones. Para el registro de las operaciones, el Tesorero y el Contador de cada Comisión de Fiestas Cívicas, deberán elaborar el respectivo detalle de cuentas contables que identifique adecuadamente todos los ingresos y egresos que se originen durante los Fiestas Cívicas.

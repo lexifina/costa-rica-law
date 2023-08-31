@@ -1,0 +1,1 @@
+Artículo 12.-El Concejo Municipal nombrará una comisión Fiscalizadora de las Fiestas Cívicas del Concejo Municipal, esa comisión tendrá derecho a participar en las reuniones de la Comisión de Fiestas Cívicas y deberá informar en forma quincenal, al Concejo Municipal.
