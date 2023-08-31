@@ -1,0 +1,1 @@
+Artículo 16.- Asistencia a Sesiones de Junta Directiva: El titular de la Auditoria Interna, en calidad de asesor podrá asistir a las sesiones de Junta Directiva previamente planificadas y comunicadas, con derecho a voz, pero sin voto. Asimismo, este titular tiene la potestad de designar alguna persona colaboradora de la Auditoria Interna para que lo sustituya ante su ausencia.

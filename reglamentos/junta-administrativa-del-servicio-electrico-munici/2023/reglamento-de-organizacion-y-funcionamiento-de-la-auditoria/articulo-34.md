@@ -1,0 +1,3 @@
+CAPÍTULO IV
+DISPOSICIONES FINALES
+Artículo 34.-Responsabilidad y sanciones: El incumplimiento injustificado de lo dispuesto en el presente Reglamento será causal de responsabilidad administrativa para el titular de la Auditoria Interna y las demás personas funcionarias de la Auditoría Interna de conformidad con lo establecido en el artículo 40 del capítulo V de la Ley General de Control Interno y el régimen sancionatorio aplicable. La determinación de responsabilidades y aplicación de las sanciones administrativas corresponde al órgano competente, según las regulaciones internas, la normativa que resulte aplicable y el respeto al debido proceso.

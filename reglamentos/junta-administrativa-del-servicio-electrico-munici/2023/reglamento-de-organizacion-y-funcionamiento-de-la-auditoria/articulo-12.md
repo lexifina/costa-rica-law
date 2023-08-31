@@ -1,0 +1,1 @@
+Artículo 12.- Dependencia y ubicación orgánica: La Auditoría Interna es un órgano asesor de alto nivel de JASEC, que por su independencia funcional y de criterio con respecto a la actividad que ejerce, dependerá orgánicamente del Jerarca.

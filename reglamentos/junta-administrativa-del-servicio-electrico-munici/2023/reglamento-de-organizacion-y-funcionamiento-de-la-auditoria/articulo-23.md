@@ -1,0 +1,1 @@
+Artículo 23.- Archivo de la Auditoría Interna: La Auditoría Interna de JASEC deberá contar con un archivo físico y/o digital para el correcto desarrollo de su actividad, organizándolo de conformidad con la normativa técnica que lo regule.

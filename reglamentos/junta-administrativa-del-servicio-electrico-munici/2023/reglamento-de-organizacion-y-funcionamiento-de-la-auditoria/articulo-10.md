@@ -1,0 +1,3 @@
+Artículo 10.- Medidas de resguardo: Las personas funcionarias de la Auditoria Interna, en resguardo de su independencia de criterio y objetividad, no deberán:
+a. Ser parte de grupos de trabajo, comisiones o similares que ejerzan función propia de la administración activa. Cuando su participación sea solicitada por la Junta Directiva de JASEC al titular de la Auditoria Interna, ésta será exclusivamente en su función asesora, en asuntos de su competencia y no podrá ser con carácter permanente.
+b. Asesorar, advertir o auditar unidades, actividades o procesos específicos de las cuales hayan sido responsables o formado parte, en el año inmediato anterior.

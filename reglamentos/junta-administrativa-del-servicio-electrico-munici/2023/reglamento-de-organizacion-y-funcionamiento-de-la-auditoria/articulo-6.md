@@ -1,0 +1,1 @@
+Artículo 6.- Independencia funcional y de criterio: La actividad de auditoría interna siempre deberá ser ejercida con independencia funcional y de criterio, respecto del jerarca y de la administración activa.

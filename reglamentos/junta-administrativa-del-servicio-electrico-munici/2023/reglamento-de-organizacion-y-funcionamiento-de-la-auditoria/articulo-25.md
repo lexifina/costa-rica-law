@@ -1,0 +1,2 @@
+Artículo 25.- Presupuesto de la Auditoria Interna: La Auditoría Interna elaborará su presupuesto anual de manera independiente al de la Administración Activa, con apego a los lineamientos, directrices, normas y cualquier otra regulación aplicable y emitida por la Contraloría General de la República referente al tema.
+La asignación de los recursos presupuestarios de la Auditoria Interna se debe realizar en atención a lo dispuesto en la Ley General de Control Interno.

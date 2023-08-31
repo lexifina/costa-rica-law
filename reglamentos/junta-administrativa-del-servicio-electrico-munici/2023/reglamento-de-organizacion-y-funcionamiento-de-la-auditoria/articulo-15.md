@@ -1,0 +1,1 @@
+Artículo 15.- Ausencias temporales del titular de la Auditoría Interna: Las ausencias temporales del titular de la Auditoría Interna serán suplidas por una persona funcionaria de la Auditoría Interna, con apego a lo definido en la normativa interna de JASEC y las normas legales, lineamientos y políticas institucionales y nacionales que operan para tal efecto.

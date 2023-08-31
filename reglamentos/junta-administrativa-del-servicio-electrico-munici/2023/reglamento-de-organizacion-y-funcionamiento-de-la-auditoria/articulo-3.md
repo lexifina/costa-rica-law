@@ -1,0 +1,1 @@
+Artículo 3.- Actualización del Reglamento: El titular de la Auditoría Interna velará por la actualización de la presente normativa y propondrá al jerarca institucional las modificaciones que estime necesarias, observando las regulaciones aplicables.

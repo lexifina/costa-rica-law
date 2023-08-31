@@ -1,0 +1,10 @@
+Artículo 18.-Del personal de la Auditoria Interna: El Auditor Interno o la Auditora Interna es la máxima autoridad de la Auditoría Interna, por esta razón es el responsable directo de las actuaciones y debe ejercer supervisión directa sobre el funcionariado que se desempeñan en ésta, por tanto, le compete:
+a. Autorizar los movimientos de personal y la disminución de plazas de la Auditoría Interna de conformidad con lo que establecen los artículos 24 y 28 de la Ley General de Control Interno y demás normas aplicables.
+b. Definir en atención a las regulaciones y políticas de JASEC, la ocupación de las plazas vacantes, así como el traslado o ascenso directo de cualquiera de sus colaboradores mediante concurso interno o externo.
+c. La organización y funcionamiento de la Auditoría Interna, se ejecutará de conformidad con lo dispuesto por el auditor/a interno.
+d. Vigilar y tomar las decisiones que correspondan para que las personas funcionarias de la Auditoría Interna cumplan en el ejercicio de sus competencias, con la normativa jurídica y técnica pertinente, así como con las políticas, procedimientos, prácticas y demás disposiciones administrativas (institucionales y de la Auditoría Interna) que les sean aplicables.
+e. Realizar las acciones pertinentes para el desarrollo profesional de los miembros de la Auditoría Interna.
+f. Ejercer la potestad disciplinaria respecto al funcionariado de la Auditoría Interna, con apego a las regulaciones aplicables.
+g. Establecer y regular a lo interno, los lineamientos sobre las relaciones y coordinaciones de sus funcionarios y funcionarias con las partes interesadas de la Auditoría Interna.
+h. Aprobar los requerimientos de información de partes interesadas solicitado a sus colaboradores y colaboradoras.
+i. Asegurar que los recursos de auditoría interna sean apropiados y suficientes para que sus colaboradores y colaboradoras cumplan con el plan de trabajo; cuya asignación y disposición de recursos se realizará, según el criterio del auditor/a interno.

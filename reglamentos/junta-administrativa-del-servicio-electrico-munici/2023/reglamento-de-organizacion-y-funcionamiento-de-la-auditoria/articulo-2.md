@@ -1,0 +1,1 @@
+Artículo 2.- Ámbito de aplicación: Este Reglamento es de carácter obligatorio para todas las personas funcionarias de la Auditoría Interna y, en lo que les resulte aplicable, para los demás funcionarios y funcionarias de JASEC. Todo el funcionariado de JASEC tienen obligación de colaboración con la Auditoría.
