@@ -1,0 +1,1 @@
+Artículo 14º- Declaratoria de interés público. Se declara de interés público el establecimiento de medidas de ciberseguridad para garantizar la operación segura de redes de telecomunicaciones basados en la tecnología de quinta generación móvil (5G) y superiores y sus servicios.

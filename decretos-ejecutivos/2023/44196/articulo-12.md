@@ -1,0 +1,3 @@
+CAPÍTULO IV
+Disposiciones finales
+Artículo 12º- Confidencialidad de la información. Por tratarse de materia de seguridad nacional, y la protección a los derechos fundamentales de intimidad, la privacidad y el secreto de las comunicaciones, y la autodeterminación informativa de los usuarios finales, la información suministrada por los sujetos comprendidos en el ámbito de aplicación del artículo 2 de este Reglamento, sobre el análisis y gestión de riesgos de las redes, el análisis y gestión de riesgos de la cadena de suministro, el informe de auditoría de ciberseguridad y los parámetros de riesgo alto, deberán ser tratados con carácter confidencial, de forma que no podrán ser utilizadas para una finalidad distinta al cumplimiento del presente Reglamento.

@@ -1,0 +1,2 @@
+Transitorio Único. En un plazo de 15 meses, a partir de la publicación del presente Decreto Ejecutivo, el Ministerio de Ciencia, Innovación, Tecnología y Telecomunicaciones publicará los lineamientos de buenas prácticas en materia de Ciberseguridad para redes 4G y generaciones anteriores.
+Dado en la Presidencia de la República. - San José, a los 25 días del mes de agosto del año dos mil veintitrés.

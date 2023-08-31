@@ -1,0 +1,1 @@
+Artículo 13º- Sanciones e infracciones. El régimen sancionatorio administrativo aplicable por el incumplimiento de las disposiciones contenidas en este Decreto Ejecutivo se regirá por lo dispuesto en la Ley Nº 8642, Ley General de Telecomunicaciones.
