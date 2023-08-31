@@ -1,1 +1,0 @@
-Artículo 26.—Comunicación. La Proveeduría Municipal será la encargada de comunicar los acuerdos o resoluciones de adjudicación dentro de los plazos y parámetros previstos en el Reglamento a la Ley de Contratación Administrativa.

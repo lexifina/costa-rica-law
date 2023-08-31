@@ -1,5 +1,0 @@
-Artículo 22.—Comisión de Recomendación. La Comisión de Recomendación estará integrada por la Proveeduría, Jefe de la Unidad solicitando, secretaría del Concejo Municipal y Asistente de Ingeniería del Departamento de Gestión Vial Municipal.
-(Así reformado el párrafo anterior mediante sesión ordinaria N° 022-2020 del 1° de octubre del 2020)
-Como suplente el señor o señora Vice Alcalde (sa) Municipal, esto en caso de no encontrarse el Asistente de Ingeniería del Departamento de Gestión Vial Municipal o la Secretaría del Concejo Municipal.
-(Así reformado el párrafo anterior mediante sesión ordinaria N° 022-2020 del 1° de octubre del 2020)
-Para los efectos, tendrá las siguientes funciones: Recomendar a la Alcaldía y Concejo Municipal, según corresponda, la adjudicación de los procedimientos de contratación promovidos por la Municipalidad. Convocar a cualquier funcionario o funcionaria municipal, con carácter de invitado, para que emita criterio técnico en determinado procedimiento de contratación administrativa.

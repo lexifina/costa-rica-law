@@ -1,2 +1,0 @@
-Artículo 21 bis. Estudio Técnico. La parte solicitante se encargará de realizar el estudio de las ofertas, en caso de requerirlo solicitará la colaboración de profesionales en el área, el estudio debe contar con la verificación del cumplimiento de todos los aspectos técnicos del objeto contractual u objetos contractuales en el cartel, además recomendar de conformidad con lo dispuesto en el cartel las ofertas que pueden resultar ganadoras de la contratación promovida.
-(Así adicionado mediante sesión ordinaria N° 017-2020 del 23 de agosto del 2020)
