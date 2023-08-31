@@ -1,0 +1,1 @@
+Artículo 41° Responsabilidad del funcionario. En los casos que el funcionario sea reincidente, se analizará en conjunto con la Comisión Vehicular para establecer la responsabilidad y las condiciones que medien en esta situación, con la finalidad de que la jefatura respectiva proceda conforme corresponda.

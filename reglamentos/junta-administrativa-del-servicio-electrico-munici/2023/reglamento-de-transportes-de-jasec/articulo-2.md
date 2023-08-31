@@ -1,0 +1,3 @@
+CAPÍTULO II
+DISPOSICIONES GENERALES
+Artículo 2° - Ámbito de aplicación. Este Reglamento es de acatamiento obligatorio para todos los funcionarios de la Junta Administrativa del Servicio Eléctrico Municipal de Cartago.

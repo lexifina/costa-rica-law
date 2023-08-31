@@ -1,0 +1,1 @@
+Artículo 18º - Conclusión de labores. Una vez concluidas las labores diarias, todo vehículo, deberá ser guardado en un parqueo institucional o lugar que el Departamento de Administración de Activos, Mantenimiento de Edificios y Vehículos, de manera que cada vehículo no impida el paso y que se ubique adecuadamente en el espacio asignado en forma previa.

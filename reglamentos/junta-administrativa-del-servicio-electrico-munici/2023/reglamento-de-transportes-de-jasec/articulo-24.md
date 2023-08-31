@@ -1,0 +1,1 @@
+Artículo 24° - Prohibición para conducir u operar. Queda prohibido que un colaborador no autorizado y que, por ende, no cumpla con lo normado en este reglamento o un particular, conduzca vehículos u opere equipos de JASEC.

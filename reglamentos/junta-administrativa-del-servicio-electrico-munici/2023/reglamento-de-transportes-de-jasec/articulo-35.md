@@ -1,0 +1,1 @@
+Artículo 35° - Accesorios y otros. Se prohíbe colocar accesorios o cualquier otro elemento tanto en el interior como en el exterior de los vehículos propiedad de JASEC o mantener objetos en el panel de instrumentos. Tampoco podrá modificar o alterar aspectos básicos y esenciales tanto del motor como de la estructura interna del vehículo.
