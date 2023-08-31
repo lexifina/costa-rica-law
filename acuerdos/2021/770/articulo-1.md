@@ -1,0 +1,12 @@
+JUNTA DE PROTECCIÓN SOCIAL
+INSTITUCIÓN BENEMERITA
+INCENTIVO A VENDEDORES
+Incentivo a vendedores artículos de uso personal
+(capas) para la labor de venta de lotería
+De conformidad con el acuerdo de la Junta Directiva de la Junta de Protección Social, JD770 correspondiente al Capítulo III), artículo 6) de la sesión extraordinaria 65-2021, celebrada el 04 de noviembre 2021, mediante el cual se aprobó el Portafolio de Incentivos para vendedores autorizados para el periodo 2022 a 2024, se dispone y autoriza la entrega de capas impermeables a los vendedores de lotería (personas físicas), ya sean adjudicatarios, socios de cooperativa o vendedores por contrato, para la protección contra la lluvia durante su labor de venta. Aspectos y condiciones importantes para la entrega este incentivo:
+ü Beneficiarios: todos los vendedores autorizados de la junta de protección social que se encuentren activos en los sistemas institucionales y que realicen la venta de lotería de manera ambulante o bien, situados en una mesita al aire libre o similar, es decir, todo aquel que no tenga un local como punto de venta. El Departamento de Ventas, verificará la información respectiva a fin de determinar los vendedores reúnan tales condiciones para ser beneficiarios.
+ü Incentivo a otorgar: se otorgará una capa impermeable debidamente identificada con los colores, logos y slogan oficiales de la institución.
+ü Recepción del incentivo: la recepción deberá llevarse a cabo de forma personal por parte del vendedor autorizado, quien deberá firmar el recibido correspondiente. La entrega se realizará una vez que el funcionario encargado por parte de la JPS haya revisado el documento de identidad (cédula de identidad o carné de vendedor autorizado) mismo que deberá estar vigente al momento de la entrega.
+ü Entregas: las entregas podrán realizarse en las instalaciones de la junta de protección social, en las oficinas del departamento de ventas, en horario de atención de lunes a viernes de 7:30 a.m. A 3:30 p.m., en giras de campo o bien, en algún otro lugar que defina y comunique la junta.
+ü Presupuesto: el presupuesto para el otorgamiento de estos incentivos se tomará de la partida de incentivos a vendedores de la junta de protección social "6.02.99. Otros incentivos para adjudicatarios y concesionarios"
+ü Vigencia: la entrega de este incentivo a vendedores rige a partir de su publicación en el Diario Oficial La Gaceta y hasta agotar existencias.
