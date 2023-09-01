@@ -1,0 +1,4 @@
+Artículo 77°. -
+Toda solicitud de licencia sin goce de salario (o prórroga) deberá presentarse con los documentos en que se fundamentan y la respaldan, y su tramitación deberá hacerse con la antelación que la fecha de rige requiera.
+En el caso de que la persona servidora se ausentare del trabajo sin la debida aprobación de la licencia o prórroga, se considerará el hecho como abandono de trabajo, y, por lo tanto, podrá despedirse de conformidad con el ordenamiento vigente.
+Quedan a salvo las circunstancias comprobadas de extrema limitación de tiempo para estos trámites en que, por tal razón la persona servidora se vea obligada a ausentarse antes de completar debidamente el trámite; en cuyo caso quedará sujeto a las soluciones administrativas que más convengan a la Administración a fin de que esta pueda resarcirse de los gastos y pagos salariales en que haya incurrido por esta causa.

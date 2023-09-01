@@ -1,0 +1,2 @@
+Artículo 16°. -
+El período de prueba contemplado en el artículo 13 de este Reglamento, también se aplicará en los casos de ascensos y traslados, de tal manera que la persona servidora ascendida o trasladada permanentemente podrá ser reintegrado a su anterior ocupación, cuando la jefatura correspondiente estime que no reúne satisfactoriamente las condiciones requeridas para el buen desempeño del puesto, al que fue ascendido o trasladado.

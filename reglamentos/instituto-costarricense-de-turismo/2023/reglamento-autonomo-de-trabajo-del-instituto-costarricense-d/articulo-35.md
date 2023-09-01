@@ -1,0 +1,2 @@
+Artículo 35°. -
+Son días hábiles de servicio todos los del año, menos los feriados que establece el Código de Trabajo, los sábados, domingos y aquellos que por celebraciones especiales el Poder Ejecutivo declare de asueto, salvo las excepciones establecidas y convenidas para las personas servidoras de las Oficinas de Servicios Turísticos.

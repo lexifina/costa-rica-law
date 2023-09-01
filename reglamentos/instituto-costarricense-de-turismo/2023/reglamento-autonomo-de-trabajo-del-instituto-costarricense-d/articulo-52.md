@@ -1,0 +1,2 @@
+Artículo 52°. -
+En casos de faltas de extrema gravedad cometidas por personas servidoras o en circunstancias en que se haga necesario salvaguardar el decoro de la Institución, se podrá suspender a la persona servidora con goce de salario por el tiempo que se requiera, previa resolución motivada por el órgano competente; tanto en la investigación previa como en el procedimiento administrativo, o en ambos.

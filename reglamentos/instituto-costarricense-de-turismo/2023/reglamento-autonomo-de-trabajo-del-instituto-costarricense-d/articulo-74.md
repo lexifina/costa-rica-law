@@ -1,0 +1,3 @@
+Artículo 74°. -
+La Gerencia General podrá conceder licencia con goce de salario no deducible de su período de vacaciones, hasta por tres meses a los dirigentes y miembros de sindicatos que, formen parte de su Junta Directiva o tengan posibilidad legal para realizar la gestión, soliciten licencia para asistir a cursos de capacitación en el campo sindical o de estudios generales en el país o fuera de él, cuando las necesidades de la oficina donde presta sus servicios así lo permitan.
+Para estos efectos, el ministro de Trabajo y Seguridad Social enviará al jerarca que corresponda, un informe detallado sobre la importancia del curso o seminario, indicando además el cargo o función sindical que desempeña la persona servidora interesada.

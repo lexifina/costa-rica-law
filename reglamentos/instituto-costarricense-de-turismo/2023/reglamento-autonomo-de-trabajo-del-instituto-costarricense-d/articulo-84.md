@@ -1,0 +1,6 @@
+Artículo 84°. -
+Para efectos de concursos o procesos de selección internos se deben además cumplir con las siguientes disposiciones:
+a) No podrá acordarse ningún ascenso para la persona servidora que no haya cumplido su período de prueba.
+b) Sólo podrá acordarse un nuevo ascenso para la misma persona servidora después de transcurrido, a partir de la fecha del anterior ascenso, un plazo mínimo de seis meses, según lo estime la importancia del nuevo puesto y la idoneidad del candidato, a juicio de la Gerencia o de órgano competente. Queda a salvo el derecho de la persona servidora para ser nombrado en un puesto de categoría superior, en cualquiera de los casos citados, mediante concurso por oposición.
+c) En el caso de nombramientos de puestos de dirección y de alta administración pública, según lo contempla la Ley Marco de Empleo Público N°10159 y su Reglamento.
+d) En el caso de los puestos que por un cambio sustancial y permanente deban ser reasignados en la misma serie y hasta un máximo de dos categorías; se aplicará la reasignación al funcionario, tomando en cuenta su experiencia laboral, su eficiencia y otros factores que evidencien su idoneidad; siempre y cuando no contravenga con el requisito legal respectivo.

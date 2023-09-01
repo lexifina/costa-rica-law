@@ -1,0 +1,2 @@
+Artículo 32°. -
+Las labores de las personas servidoras que se encuentren gozando de vacaciones, así como de aquellos que no asistan a sus labores por enfermedad o licencia, serán encomendadas al resto del personal sin derecho a remuneración adicional, siempre que sean compatibles con sus aptitudes, estado o condición y no impliquen disminución notable de jerarquía y que sea compatible con su función ordinaria.

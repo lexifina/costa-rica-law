@@ -1,0 +1,2 @@
+Artículo 18°. -
+La jornada ordinaria de servicio para el personal destacado en las oficinas centrales, será de lunes a viernes con horario de las ocho a las dieciséis horas. La Gerencia General u órgano competente, de común acuerdo con la jefatura de la unidad y la persona servidora, podrá acordar horarios y jornadas diferentes. En las oficinas de servicios turísticos se laborará de acuerdo con el horario y jornada que la Gerencia, por medio de la acción de personal, determine en cada caso.

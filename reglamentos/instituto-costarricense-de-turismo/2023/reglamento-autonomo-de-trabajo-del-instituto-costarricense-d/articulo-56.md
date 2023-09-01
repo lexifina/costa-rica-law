@@ -1,0 +1,2 @@
+Artículo 56°. -
+En todos los casos, la persona servidora deberá notificar a su superior jerárquico lo antes posible, verbalmente o por escrito, las causas que le impiden asistir a su trabajo, a efecto de que se tomen las medidas correspondientes, incluyendo la posibilidad de realizar teletrabajo. Por ningún motivo, salvo el de fuerza mayor, podrá realizarse dicha comunicación en un plazo no mayor de cuarenta y ocho horas.

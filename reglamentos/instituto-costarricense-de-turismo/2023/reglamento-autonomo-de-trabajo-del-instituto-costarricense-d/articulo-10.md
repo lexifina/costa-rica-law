@@ -1,0 +1,2 @@
+Artículo 10°. -
+Podrá participar y ser seleccionado todo candidato que no se encuentre ligado por parentesco de consanguinidad o de afinidad en línea directa o colateral, hasta el tercer grado inclusive, con la jefatura inmediata ni con las personas superiores inmediatas de ésta en la respectiva dependencia. No podrá participar en el proceso de selección ninguna persona servidora que se encuentre ligado en esa línea de parentesco.

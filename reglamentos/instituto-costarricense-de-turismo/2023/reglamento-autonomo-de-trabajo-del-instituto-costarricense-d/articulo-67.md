@@ -1,0 +1,2 @@
+Artículo 67°. -
+De acuerdo a lo establecido en la Ley de Riesgos del Trabajo se constituirá la Comisión de Salud Ocupacional, que tendrá como finalidad específica investigar las causas de los riesgos del trabajo, determinar las medidas preventivas y vigilar para que se cumplan las disposiciones de salud ocupacional. Su cometido podrá ser desempeñado dentro del horario establecido, sin perjuicio o menoscabo de ninguno de los derechos que correspondan a la persona servidora.

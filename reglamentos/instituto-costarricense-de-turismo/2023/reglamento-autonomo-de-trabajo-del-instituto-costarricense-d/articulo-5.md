@@ -1,0 +1,3 @@
+Artículo 5°-
+El expediente personal de cada persona servidora, deberá mantenerse en estricto orden cronológico y se considerará confidencial. Sólo podrá ser examinado por el trabajador, los superiores jerárquicos, la Auditoría Interna en lo que compete a sus funciones, o por personas que cuenten con la autorización previa de la Gerencia General, órganos competentes o de la persona servidora. Sólo podrá ser autorizada la revisión de datos sensibles por la persona servidora.
+Será custodiado por el Departamento de Gestión de Talento Humano. El legajo podrá ser diseñado junto con anexos de acuerdo a procedimientos técnicos establecidos por el mismo departamento.

@@ -1,0 +1,2 @@
+Artículo 90°. -
+La evaluación del desempeño de las personas servidora públicas se fundamentará en indicadores cuantitativos de cumplimiento de metas individuales de productos y servicios prestados, vinculados a procesos y proyectos que realice la dependencia a la que pertenece, y la del cuerpo de los niveles directivos en todos sus niveles para el cumplimiento de las metas y los objetivos institucionales.

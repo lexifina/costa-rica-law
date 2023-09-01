@@ -1,0 +1,2 @@
+Artículo 7°-
+Todas las solicitudes de las personas servidoras referentes a peticiones, quejas, reclamos y licencias, que se refieran a la relación de servicio en todos sus aspectos, deberán ser realizados por escrito, ante el Departamento de Gestión del Talento Humano y las mismas serán resueltas por dicha Unidad en igual forma y de inmediato, cuando así lo exija la urgencia del asunto; sin perjuicio de los asuntos que sean facultativos de la Gerencia General o del órgano competente.

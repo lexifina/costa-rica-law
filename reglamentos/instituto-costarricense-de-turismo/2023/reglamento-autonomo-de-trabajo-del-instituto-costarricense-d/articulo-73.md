@@ -1,0 +1,2 @@
+Artículo 73°. -
+La Gerencia General podrá otorgar un permiso remunerado, hasta en un tercio la jornada laboral, durante un periodo máximo de un año calendario, para que la persona servidora pública pueda cuidar a un familiar por consanguinidad o afinidad hasta el segundo grado, con discapacidad o por razones de enfermedad terminal o accidente. La persona servidora solicitante deberá demostrar la causal por los medios autorizados por el ordenamiento.

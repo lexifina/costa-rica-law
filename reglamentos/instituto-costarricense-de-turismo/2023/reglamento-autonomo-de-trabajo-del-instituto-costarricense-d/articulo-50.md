@@ -1,0 +1,2 @@
+Artículo 50°. -
+Para aplicar cualquier sanción disciplinaria que implique sanciones de suspensión sin goce de salario, despido o inhabilitación para el ejercicio de la función pública, previamente deberá concederse audiencia y debido proceso a la persona servidora de acuerdo con los artículos 21 y 22 de la Ley Marco de Empleo Público N°10159. De forma supletoria será aplicable el libro segundo de la Ley General de la Administración Pública, sin detrimento de lo dispuesto en el artículo 229 del mismo cuerpo legal en caso de ausencia de norma habilitante.

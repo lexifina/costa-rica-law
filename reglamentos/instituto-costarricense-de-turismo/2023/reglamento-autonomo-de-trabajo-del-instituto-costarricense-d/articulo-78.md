@@ -1,0 +1,5 @@
+Artículo 78°. -
+La persona servidora que fuere declarada incapacitada para trabajar, por enfermedad o riesgo laboral gozará de un subsidio en proporción al tiempo servido, de acuerdo con las siguientes regulaciones:
+a) Durante los primeros tres meses hasta menos de tres años de servicio a la Institución, recibirán un subsidio completando el que sufraga la Caja Costarricense de Seguro Social. Dicho subsidio será el cuarenta por ciento del salario promedio de los últimos tres meses completos anteriores a la incapacidad, hasta por tres meses.
+b) A partir de tres años o más de servir en la Institución, recibirán un subsidio completando el que sufraga la Caja Costarricense de Seguro Social. Dicho subsidio será el cuarenta por ciento del salario promedio de los últimos tres meses completos anteriores a la incapacidad, hasta por doce meses.
+c) En los casos de incapacidad por Riesgos del Trabajo o enfermedades del trabajo, se cancelará el cien por ciento del salario de los últimos tres meses completos anteriores a la incapacidad. El Instituto Nacional de Seguros realizará la devolución de lo cancelado por los medios que considere oportunos.
