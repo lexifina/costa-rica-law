@@ -1,0 +1,2 @@
+Transitorio segundo. La modificación a los artículos 2, 19, 23, 26, 31, 33, 46 y la derogación del Título V "Disposiciones para los miembros Liquidadores Bancos" del Reglamento de Compensación y Liquidación de Valores, y la modificación al artículo 34 y la derogación del artículo 35 del Reglamento de Custodia se aplicarán a los contratos aceptados por el Sistema de Compensación y Liquidación a partir del 1° de setiembre del 2023.
+Rige a partir de su publicación en el Diario Oficial La Gaceta.
