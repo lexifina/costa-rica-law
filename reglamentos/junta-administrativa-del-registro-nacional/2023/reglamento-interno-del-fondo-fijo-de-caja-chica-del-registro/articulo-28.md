@@ -1,0 +1,3 @@
+CAPÍTULO V
+Disposiciones finales
+Artículo 28.-De la atención de asuntos relacionados. El Departamento Financiero como instancia especializada en la materia a lo interno de la estructura del Registro Nacional, tendrá plenas facultades para atender y tramitar los diferentes asuntos sometidos a su gestión y competencia conforme a las normas del ordenamiento que regulan dicha actividad, rindiendo informes y planteando soluciones ante la Junta Administrativa y la Dirección General cuando la situación lo requiera- en salvaguarda de los fondos públicos- promoviendo la colaboración necesaria en su gestión a través de las unidades técnicas correspondientes, incluso, actuando lo que pertinente ante las Autoridades externas afines a la materia.

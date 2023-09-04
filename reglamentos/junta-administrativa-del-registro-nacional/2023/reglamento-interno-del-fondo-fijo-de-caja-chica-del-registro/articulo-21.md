@@ -1,0 +1,1 @@
+Artículo 21.-Del monto mínimo en efectivo para efectuar reintegros al fondo fijo de caja chica. El responsable del fondo fijo de caja chica deberá efectuar los reintegros en efectivo, cada vez que el límite establecido a esos efectos haya consumido al menos un 50% del porcentaje dicho.

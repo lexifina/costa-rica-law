@@ -1,0 +1,1 @@
+Artículo 22.-Del reembolso a la cuenta bancaria del fondo fijo de caja chica. El reembolso a la cuenta bancaria autorizada para el uso del fondo fijo de caja chica debe ser girado sin excepción a nombre de la Junta Administrativa una vez recibida la liquidación correspondiente.

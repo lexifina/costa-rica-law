@@ -1,0 +1,1 @@
+Artículo 10.-De la prohibición de transacciones a través del fondo fijo de caja chica. Se prohíbe al Subproceso de Tesorería efectuar préstamos y cambio de cheques personales, con el dinero reservado al fondo fijo de caja chica.

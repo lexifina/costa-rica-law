@@ -1,0 +1,1 @@
+Artículo 9°-Del monto autorizado para cubrir pagos a través del fondo fijo de caja chica. El límite de gasto económico por transacción a cubrir a través del fondo fijo de caja chica- para la adquisición de bienes, obras y servicios-será determinado mediante acuerdo de la Junta Administrativa, el cual, no podrá exceder el monto señalado en el artículo 7 de este reglamento.

@@ -1,0 +1,1 @@
+Artículo 15.-De la rúbrica de cheques girados con cargo al fondo fijo de caja chica. Los cheques de la cuenta corriente correspondiente al fondo fijo de caja chica deberán ser firmados en forma mancomunada, por al menos dos de las personas autorizadas por la Junta Administrativa y registradas ante la entidad bancaria.

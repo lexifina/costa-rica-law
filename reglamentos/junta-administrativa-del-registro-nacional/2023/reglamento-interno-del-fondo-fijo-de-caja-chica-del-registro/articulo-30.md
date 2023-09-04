@@ -1,0 +1,1 @@
+Artículo 30.-Transitorio I. Durante el período 2023, el fondo fijo de caja chica corresponde al monto de ¢4.145.890,00 (cuatro millones ciento cuarenta y cinco mil ochocientos noventa colones sin céntimos). En lo que respecta a los años siguientes, se deberá observar lo indicado en el artículo 8 del presente Reglamento.

@@ -1,0 +1,2 @@
+Artículo 11.-De la prohibición de fragmentar operaciones. El Registro Nacional a través de las diferentes instancias que lo integran, se encuentra inhabilitado a fraccionar sus operaciones respecto a necesidades previsibles, proclive a recurrir a la modalidad de pago a través del fondo fijo de caja chica, cuya satisfacción, debe ser atendida a través del procedimiento de contratación pública correspondiente.
+Igualmente, será prohibido fraccionar o permitir el fraccionamiento de pagos para evadir los límites establecidos en el presente Reglamento.
