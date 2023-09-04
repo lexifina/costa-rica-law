@@ -1,0 +1,9 @@
+Artículo 25.-Franjas verdes y señalética
+a) La Municipalidad y el Ministerio de Obras Públicas y Transportes (MOPT) definirán los sectores que contarán con la franja de mobiliario.
+b) Las áreas verdes tendrán preferiblemente una dimensión mínima de 30cm de ancho.
+c) Las soluciones basadas en la naturaleza (como árboles o arbustos), deben ser autorizadas por la municipalidad antes de su colocación con el fin de asegurar que no afecten la transitabilidad, la seguridad ciudadana y seguridad vial y bajo ninguna circunstancia se permite instalar especies cuyas raíces destruyan la infraestructura peatonal.
+d) No se permiten especies con espinas o similar que puedan afectar la salud y seguridad del tránsito peatonal.
+e) Las áreas verdes no se utilizarán para otros fines distintos a los aquí establecidos. Es prohibido parquear automóviles en estas zonas conforme al artículo 110 de la Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial N° 9078.
+f) La Municipalidad y el Ministerio de Obras Públicas y Transportes (MOPT) se encuentran facultados para colocar en las aceras cualquier dispositivo necesario para garantizar la seguridad de los ciudadanos y proteger la infraestructura pública, conforme al artículo 11 de la Ley de Movilidad Peatonal N° 9976.
+g) La instalación de elementos o artículos de seguridad queda sujeto a la aprobación del municipio. El propietario o poseedor por cualquier título de bien inmueble debe abstenerse de obstaculizar el paso por la infraestructura peatonal con cualquier artefacto o "elemento de seguridad", aunque en teoría estos elementos no afecten el tránsito peatonal.
+La Municipalidad y el Ministerio de Obras Públicas y Transportes (MOPT) y sus consejos podrán colocar este tipo de elemento o mobiliario urbano u otorgar su aprobación de colocación a un privado.

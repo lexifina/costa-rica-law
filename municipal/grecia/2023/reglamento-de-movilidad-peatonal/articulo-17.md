@@ -1,0 +1,3 @@
+Artículo 17.-Participación y Gobernanza.
+La Municipalidad de Grecia, por medio de la Contraloría de Servicios, recibirá cualquier requerimiento y solicitud relacionada con la infraestructura peatonal o conflictos de movilidad, donde se exponga la seguridad o integridad de las personas peatonas. La atención debe ser priorizada para la población en condición de vulnerabilidad por su grupo de edad, género, situación de discapacidad, condición socioeconómica u otra que el contexto demande.
+La atención a estos requerimientos y solicitudes están sujetos al Plan Vial Quinquenal de Conservación y Desarrollo de la Municipalidad de Grecia.

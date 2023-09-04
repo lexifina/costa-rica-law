@@ -1,0 +1,3 @@
+Artículo 7º-Deberes de las personas propietarias o poseedoras.
+Son deberes de las personas propietarias o poseedoras de los inmuebles ubicados en el cantón Grecia, velar por el cuidado y resguardo de la infraestructura pública de las aceras.
+Por motivo de efectuar alteraciones o reparaciones de construcciones que afecten la seguridad de personas peatonas, la persona propietaria o poseedora debe solicitar a la municipalidad el permiso para el cierre temporal de aceras y establecer una ruta alterna que complete el espacio caminable y accesible como alternativa segura durante toda la intervención.
