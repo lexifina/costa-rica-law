@@ -22,3 +22,4 @@ Reglamento autónomo de la Municipalidad de Escazú
 | 7 | 2022-06-06 | Reglamento municipal 110 (2022-06-06) |
 | 8 | 2022-07-26 | Reglamento municipal 117 (2022-07-26) |
 | 9 | 2022-10-03 | Reglamento municipal 127 (2022-10-03) |
+| 10 | 2023-09-04 | Reglamento municipal 175 (2023-09-04) |
