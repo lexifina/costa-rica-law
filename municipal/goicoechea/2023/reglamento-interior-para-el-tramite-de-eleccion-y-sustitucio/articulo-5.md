@@ -1,0 +1,1 @@
+Artículo 5º-De la presentación de las ternas. Las ternas y su respectiva documentación serán recibidas al correo electrónico secretariamunicipal@munigoicoechea.go.cr o de manera presencial en la Secretaría del Concejo Municipal, ubicada en la Municipalidad de Goicoechea.

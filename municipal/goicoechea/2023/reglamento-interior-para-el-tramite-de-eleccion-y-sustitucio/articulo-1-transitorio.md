@@ -1,0 +1,2 @@
+Transitorio I.-A partir de la entrada en vigencia del presente reglamento y en un plazo máximo de treinta días, la Secretaría del Concejo Municipal deberá levantar un directorio con el nombre, número de cédula, información de contacto, y fecha de elección, de cada una de las personas integrantes de las Juntas de Educación y Juntas Administrativas de centros educativos del cantón de Goicoechea.
+Rige a partir de su publicación.

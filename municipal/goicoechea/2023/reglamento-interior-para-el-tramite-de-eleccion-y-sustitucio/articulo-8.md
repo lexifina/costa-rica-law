@@ -1,0 +1,1 @@
+Artículo 8º-De la notificación de nombramientos. La Secretaría del Concejo Municipal llevará un control de la integración de los cargos de la Junta, su información de contacto y fecha de designación, con el fin de llevar un control del periodo de nombramiento y su vencimiento. Esta información será publicada en la página oficial de la Municipalidad de Goicoechea.

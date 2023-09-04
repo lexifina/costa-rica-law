@@ -1,0 +1,1 @@
+Artículo 10.-De los cargos vacantes. Cuando la Secretaría del Concejo Municipal sea notificada por la Dirección del Centro Educativo de la existencia de cargos vacantes, por renuncia o destitución, dichos cargos deberán ser suplidos por el Concejo Municipal con el mismo proceso de recepción y trámite de ternas contemplado en el presente reglamento.

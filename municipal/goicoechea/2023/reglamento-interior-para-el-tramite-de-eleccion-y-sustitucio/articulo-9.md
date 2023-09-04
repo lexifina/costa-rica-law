@@ -1,0 +1,1 @@
+Artículo 9º-De la renovación de cargos. La Secretaría del Concejo Municipal notificará a la Dirección del Centro Educativo y a la Junta dos meses antes de su vencimiento, con el fin de iniciar el proceso de renovación de cargos.
