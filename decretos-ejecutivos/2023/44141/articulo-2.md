@@ -1,0 +1,1 @@
+Artículo 2°-Rigen para esta declaratoria, los mismos efectos jurídicos y especificaciones técnicas, que se emitieron en el Decreto Ejecutivo N° 36830-JP de 12 de setiembre de 2011, publicado en el periódico oficial La Gaceta N° 208 de lunes 31 de octubre 2011, artículos 2 al 6.
