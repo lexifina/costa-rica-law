@@ -1,0 +1,2 @@
+Artículo 22. Ampliación de información o Audiencias. El Equipo de la Unidad de Gestión del Desarrollo o el Equipo Multidisciplinario podrán solicitar a los proponentes una única vez la información suministrada, teniendo este último 10 días hábiles para resolver la misma.
+Además, podrán convocar a audiencia oral de ser necesario, la cual se comunicará mediante el medio señalado para notificaciones.

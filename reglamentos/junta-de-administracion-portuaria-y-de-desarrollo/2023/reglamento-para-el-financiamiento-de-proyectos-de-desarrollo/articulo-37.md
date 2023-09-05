@@ -1,0 +1,1 @@
+Artículo 37. Responsabilidades en cuanto a la Administración de fondos públicos. Para la debida administración de los fondos públicos, la responsabilidad se establecerá de conformidad con el artículo 110 de la Ley de la Administración Financiera de la República y Presupuestos Públicos N° 8131 y demás normativa vinculante.

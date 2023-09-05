@@ -1,0 +1,1 @@
+Artículo 42. Derogatorias. El presente Reglamento deroga el Reglamento para el financiamiento de proyectos de desarrollo con fondos del canon de explotación de la terminal de contenedores de Moín y de la contribución al desarrollo regional publicado en el alcance N°236 del diario La Gaceta N°224 del 19 de noviembre del 2021.

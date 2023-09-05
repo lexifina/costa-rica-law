@@ -1,0 +1,1 @@
+Artículo 16. Normas supletorias. El funcionamiento del Equipo Multidisciplinario estará sujeto a las reglas previstas en el Capítulo Tercero, del Título II denominado "De los Órganos Colegiados" de la Ley N° 6227, Ley General de la Administración Pública.

@@ -1,0 +1,1 @@
+Artículo 27. Notificación a proponentes. El acuerdo de aprobación será notificado por la Gerencia de Desarrollo a las partes interesadas dentro de ocho días hábiles una vez quede en firme el acuerdo del Consejo de Administración y la Presidencia Ejecutiva realice la respectiva comunicación.

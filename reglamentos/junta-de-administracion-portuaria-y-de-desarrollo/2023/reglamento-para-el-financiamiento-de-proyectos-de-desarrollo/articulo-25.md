@@ -1,0 +1,5 @@
+Artículo 25. Portafolio de Proyectos. El Equipo Multidisciplinario en primera instancia entregará al Consejo de Administración un documento que contenga el listado de los proyectos propuestos para la conformación del Portafolio, priorización y propuesta de inversión.
+Dicho documento deberá contener al menos la siguiente información:
+1. Un resumen de cada proyecto que describa datos generales tales como: nombre del proyecto, el proponente, localización, población meta, objetivo general, inversión, contrapartida y descripción breve de entregables del proyecto, así como la vinculación con instrumentos de planificación, el tiempo de su ejecución y su financiamiento.
+2. Un instrumento comparativo con todos los proyectos que contenga: puntaje global y puntaje desglosado obtenido por cada uno de los criterios de impacto, así como la etapa de preinversión en la que se encuentre cada uno de los proyectos presentados.
+3. Señalamiento de los proyectos que no cumplieron con todos los requisitos, razón por lo que se recomendó su rechazo.

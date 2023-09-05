@@ -1,0 +1,1 @@
+Artículo 35. Aprobación de financiamiento de proyectos. Los proyectos para financiar serán aprobados por parte del Consejo de Administración de JAPDEVA. Una vez aprobados pasarán a su etapa de formalización que consiste en la firma del convenio, su inclusión en el presupuesto, la aprobación por parte de la Contraloría General de la República y la ejecución de este.

@@ -1,0 +1,1 @@
+Artículo 41. Evaluación final. JAPDEVA a través del Proceso de Supervisión de APP´S de la "Unidad de Supervisión de la TCM y APPs" en conjunto con el rector del sector y en seguimiento a los lineamientos del Sistema Nacional de Inversión Pública (SNIP) Decreto N° 43251-PLAN, presentará al Consejo de Administración de JAPDEVA los informes de cierre correspondientes.

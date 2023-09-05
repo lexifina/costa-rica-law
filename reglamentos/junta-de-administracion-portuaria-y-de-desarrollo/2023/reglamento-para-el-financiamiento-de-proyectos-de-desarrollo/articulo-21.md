@@ -1,0 +1,2 @@
+Artículo 21. Expediente de proyecto. Para cada proyecto, se conformará un expediente debidamente actualizado y foliado con todos los documentos de referencia por un plazo de 5 años. La Unidad de Gestión del Desarrollo se encargará de ello.
+En el caso de proyectos que incorporen varios proyectos asociados se tomará cada uno de ellos por separado para la creación del expediente y su respectivo trámite.

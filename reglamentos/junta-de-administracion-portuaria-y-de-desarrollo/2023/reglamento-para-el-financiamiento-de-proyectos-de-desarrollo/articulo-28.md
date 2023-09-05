@@ -1,0 +1,1 @@
+Artículo 28. Recursos. Contra el acuerdo del Consejo de Administración que aprueba el Portafolio de proyectos y su respectiva priorización, cabrá el Recurso de Revocatoria dentro del quinto día hábil a partir del recibido de la notificación, ante el mismo Consejo.
