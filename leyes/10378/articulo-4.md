@@ -1,0 +1,3 @@
+ARTÍCULO 4- El traspaso e inscripción de los terrenos indicados en los artículos 1 y 2 se inscribirán en el Registro Inmobiliario del Registro Nacional y para tal efecto se autoriza a la Procuraduría General de la República para que realice los traspasos a través de la Notaría del Estado. La segregación y el traspaso estarán exentos del pago del impuesto de traspaso de bienes inmuebles, así como exentos del pago de todo tipo de derechos y timbres. Igual condición tendrá cualquier gestión ante cualquier entidad para el registro de los citados traspasos.
+Rige a partir de su publicación.
+Dado en la Presidencia de la República, San José, a los veintitrés días del mes de agosto del año dos mil veintitrés.
