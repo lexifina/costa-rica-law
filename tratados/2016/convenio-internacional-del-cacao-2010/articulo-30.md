@@ -1,0 +1,11 @@
+CAPÍTULO IX
+TRANSPARENCIA DE MERCADO
+ARTÍCULO 30
+INFORMACIÓN Y TRANSPARENCIA DE MERCADO
+1. La Organización actuará como centro mundial de información para la eficiente recolección, comparación, intercambio y difusión de información estadística y estudios sobre todas las cuestiones relacionadas con el cacao y los productos de cacao. En este sentido, la Organización:
+a) Mantendrá información estadística actualizada sobre la producción mundial, moliendas, consumo, exportaciones, reexportaciones, importaciones, precios y existencias del cacao y de los productos de cacao;
+b) Solicitará, según corresponda, información técnica sobre el cultivo, la comercialización, el transporte, la elaboración, la utilización y el consumo del cacao.
+2. El Consejo podrá solicitar a los Miembros que proporcionen la información relacionada con el cacao que considere importante para su funcionamiento, incluida información sobre políticas gubernamentales, impuestos, normas, reglamentos y legislación nacionales sobre el cacao.
+3. A fin de fomentar la transparencia de mercado, los Miembros facilitarán al Director Ejecutivo, en la medida de sus posibilidades y en plazos razonables, estadísticas pertinentes lo más detalladas y exactas posible.
+4. Si un Miembro no facilita, o encuentra dificultad en facilitar, en un plazo razonable las informaciones estadísticas requeridas por el Consejo para el funcionamiento adecuado de la Organización, el Consejo podrá pedir al Miembro en cuestión que explique los motivos del incumplimiento. Si resulta que se necesita asistencia en la materia, el Consejo podrá ofrecer las medidas necesarias de apoyo para superar las dificultades existentes.
+5. El Consejo publicará en una fecha apropiada, por lo menos dos veces en cada año cacaotero, proyecciones para la producción y las moliendas de cacao. El Consejo podrá emplear información pertinente procedente de otras fuentes con el fin de seguir la evolución del mercado y de evaluar los niveles actuales y potenciales de producción y consumo de cacao. Sin embargo, el Consejo no podrá publicar información que pueda revelar las operaciones de particulares o entidades comerciales que producen, elaboran o distribuyen el cacao.

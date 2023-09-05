@@ -1,0 +1,7 @@
+ARTÍCULO 24
+APROBACIÓN DEL PRESUPUESTO ADMINISTRATIVO
+Y DETERMINACIÓN DE LAS CONTRIBUCIONES
+1. Durante el segundo semestre de cada ejercicio presupuestario el Consejo aprobará el presupuesto administrativo de la Organización para el ejercicio siguiente y fijará el importe de la contribución de cada Miembro a ese presupuesto.
+2. La contribución de cada Miembro al presupuesto administrativo para cada ejercicio presupuestario equivaldrá a la relación proporcional que exista entre el número de sus votos y la totalidad de los votos de todos los Miembros en el momento de aprobarse el presupuesto administrativo correspondiente a ese ejercicio. A efecto de fijar el importe de las contribuciones, los votos de cada uno de los Miembros se calcularán sin tener en cuenta la suspensión del derecho de voto de alguno de los Miembros ni la redistribución de votos que resulte de ella.
+3. La contribución inicial de todo Miembro que ingrese en la Organización después de la entrada en vigor del presente Convenio será fijada por el Consejo atendiendo al número de votos que se asigne a ese Miembro y al período que reste del ejercicio presupuestario en curso, pero no se modificarán las contribuciones fijadas a los demás Miembros para el ejercicio presupuestario de que se trate.
+4. Si el presente Convenio entra en vigor antes del comienzo del primer ejercicio presupuestario completo., el Consejo aprobará en su primera reunión un presupuesto administrativo que abarque el período que falte hasta el comienzo del primer ejercicio presupuestario completo.

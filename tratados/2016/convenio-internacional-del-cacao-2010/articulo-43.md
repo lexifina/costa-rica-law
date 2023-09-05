@@ -1,0 +1,8 @@
+ARTÍCULO 43
+ECONOMÍA CACAOTERA SOSTENIBLE
+1. Los Miembros harán todo lo necesario por lograr una economía del cacao sostenible, teniendo en cuenta los principios y objetivos de desarrollo sostenible que figuran, entre otras cosas, en la Declaración de Río sobre el Medio Ambiente y el Desarrollo y el Programa 21 aprobado en Río de Janeiro en 1992, la Declaración del Milenio aprobada por las Naciones Unidas en Nueva York en 2000, el Informe de la Cumbre Mundial sobre el Desarrollo Sostenible, celebrada en Johannesburgo en 2002, el Consenso de Monterrey sobre la Financiación para el Desarrollo de 2002 y la Declaración Ministerial sobre el Programa de Doha para el Desarrollo de 2001 .
+2. A solicitud de los Miembros, la Organización les prestará asistencia para que alcancen sus objetivos en lo que hace al desarrollo de una economía cacaotera sostenible conforme al párrafo e) del artículo 1 y el párrafo 14 del artículo 2.
+3. La Organización servirá de coordinadora del diálogo permanente entre las partes interesadas, de forma tal de propiciar el desarrollo de una economía cacaotera sostenible.
+4. La Organización promoverá la cooperación entre los Miembros por medio de actividades que contribuyan al logro de una economía cacaotera sostenible.
+5. El Consejo aprobará y examinará periódicamente programas y proyectos relacionados con la economía cacaotera sostenible que estén conformes con el párrafo 1 de este artículo.
+6. La Organización procurará la asistencia y el apoyo de los donantes multilaterales y bilaterales para la ejecución de los programas, proyectos y actividades orientados a lograr una economía cacaotera sostenible.

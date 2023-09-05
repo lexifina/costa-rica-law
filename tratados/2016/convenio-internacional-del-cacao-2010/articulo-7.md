@@ -1,0 +1,7 @@
+ARTÍCULO 7
+ATRIBUTOS Y FUNCIONES DEL CONSEJO
+1. El Consejo ejercerá todas las atribuciones y desempeñará, o hará que se desempeñen, todas las funciones necesarias para dar cumplimiento a las disposiciones expresas del presente Convenio.
+2. El Consejo no tendrá atribuciones para contraer ninguna obligación ajena al ámbito del presente Convenio, y no se entenderá que ha sido autorizado a hacerlo por los Miembros; en particular, no estará facultado para obtener préstamos. Al ejercer su capacidad de contratar, el Consejo incluirá en sus contratos los términos de esta disposición y los del artículo 23 de forma que sean puestos en conocimiento de las demás partes que concierten contratos con el Consejo, pero el hecho de que no incluya esos términos no invalidará tal contrato ni lo sustraerá a la competencia del Consejo.
+3. El Consejo podrá aprobar las normas y reglamentos que sean necesarios para aplicar las disposiciones del presente Convenio y que sean compatibles con éste, tales como su propio reglamento y el de sus comités, y el reglamento financiero y el del personal de la Organización. El Consejo podrá prever en su reglamento interior un procedimiento que le permita decidir determinados asuntos sin reunirse.
+4. El Consejo tendrá al día la documentación necesaria para el desempeño de las funciones que le confiere el presente Convenio, así como cualquier otra documentación que considere apropiada.
+5. El Consejo podrá establecer el grupo o los grupos de trabajo que considere necesarios para que le ayuden a llevar a cabo su tarea.

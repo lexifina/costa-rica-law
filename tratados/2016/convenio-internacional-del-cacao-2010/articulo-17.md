@@ -1,0 +1,5 @@
+ARTÍCULO 17
+PROGRAMA DE TRABAJO
+1. En la primera reunión del Consejo tras la entrada en vigor del presente Convenio, el Director Ejecutivo presentará un plan estratégico quinquenal para su estudio y aprobación por parte del Consejo. Un año antes del vencimiento de dicho plan estratégico quinquenal, el Director Ejecutivo presentará al Consejo un nuevo proyecto de plan estratégico quinquenal.
+2. En su última reunión de cada año cacaotero, y por recomendación del Comité Económico, el Consejo aprobará un programa de trabajo de la Organización para el año entrante preparado por el Director Ejecutivo. El programa de trabajo comprenderá proyectos, iniciativas y actividades que ha de emprender la Organización. El Director Ejecutivo pondrá en ejecución el programa de trabajo.
+3. Durante su última sesión de cada año cacaotero, el Comité Económico evaluará la ejecución del programa de trabajo del año en curso basándose en un informe del Director Ejecutivo. El Comité Económico comunicará sus conclusiones al Consejo.

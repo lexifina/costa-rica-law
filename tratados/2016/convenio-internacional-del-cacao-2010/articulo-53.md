@@ -1,0 +1,3 @@
+ARTÍCULO 53
+FIRMA
+El presente Convenio estará abierto en la Sede de las Naciones Unidas desde el 1 ° de octubre de 2010 hasta el 30 de septiembre de 2012 inclusive, a 1~ firma de las partes en el Convenio Internacional del Cacao, 2001, y de los gobiernos invitados a la Conferencia de las Naciones Unidas sobre el Cacao 2010. El Consejo establecido en virtud del Convenio Internacional del Cacao' , 2001, o el Consejo establecido en virtud del presente Convenio podrán, no obstante, prorrogar una vez el plazo para la firma del presente Convenio. El Consejo notificará inmediatamente al Depositario tal prórroga.
