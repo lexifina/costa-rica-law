@@ -1,0 +1,1 @@
+Artículo 39.- Objetivo general. El objetivo general del Departamento de Suministros, es proveer a las dependencias institucionales que se les financian necesidades, de los bienes y servicios que éstas requieran para la ejecución de sus cometidos, la satisfacción de sus necesidades y principalmente las del servicio público a que está llamado a cumplir el Consejo.

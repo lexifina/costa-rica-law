@@ -1,0 +1,2 @@
+Artículo 102.- Listado de activos. El responsable de Administración de Materiales remitirá en forma mensual a la Unidad de Administración de Bienes los formularios de los activos recibidos y asignados, detallando su destinatario y el número de patrimonio de cada uno, a efectos de que se hagan los respectivos controles y registros.
+Cuando los bienes en tránsito sean vehículos automotores, el egreso o autorización de entrega a la Unidad Ejecutora, sólo procederá cuando junto con la solicitud de retiro, se presente la hoja de asignación.

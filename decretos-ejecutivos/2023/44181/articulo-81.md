@@ -1,0 +1,2 @@
+Artículo 81.- Egresos por compras al exterior. El funcionario designado para compras al exterior, solicitará los egresos necesarios para efectuar las compras al exterior, conforme a los términos de la contratación pública y la oferta presentada por el adjudicatario.
+Una vez efectuada la transacción, deberá de presentar la liquidación del egreso correspondiente ante la Dirección Financiera, aportando los comprobantes que evidencian la aplicación de gastos con sus ajustes, con respecto a la compra al exterior.

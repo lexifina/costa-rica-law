@@ -1,0 +1,1 @@
+Artículo 63.- Asistencia. Cuando por justa causa un miembro de la Comisión no pudiere asistir a una sesión, deberá comunicarlo al secretario de la misma con un plazo de antelación de un día hábil, lo cual deberá ser del conocimiento de los demás miembros de la Comisión.

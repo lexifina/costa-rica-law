@@ -1,0 +1,3 @@
+Artículo 86.- Trámite de pago por obras o servicios. El trámite de pago por obras o servicios se realizará de la siguiente forma:
+a) Cada unidad será la responsable de tramitar los pagos por obras y /o servicios directamente a la Dirección Financiera, para lo cual deberán seguir los lineamientos emitidos por la misma, y deberá enviar copia del documento de pago al Departamento de Suministros para que sea archivado en cada expediente digital de contratación, cuando corresponda.
+b) La Unidad de Trámite y Control tramitará los pagos que se deriven de carta de crédito, giro a la vista, cobranza bancaria.

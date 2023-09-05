@@ -1,0 +1,1 @@
+Artículo 57 .- Normativa aplicable. En el conocimiento, tramitación y recomendación de los asuntos propios de su competencia, la Comisión se basará en las disposiciones jurídicas que establecen la Ley General de Contratación Pública y su Reglamento, atendiendo previamente los estudios e informes que sean suministrados por los órganos o unidades técnicas y legales.

@@ -1,0 +1,21 @@
+Artículo 32.- Obligaciones de los funcionarios designados como Administradores del Contrato: Sin perjuicio de las responsabilidades derivadas de la Ley General de Contratación Pública, su Reglamento, la Ley General de Control Interno, la Ley de Administración Financiera de la República y Presupuestos Públicos, Ley contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública y su Reglamento y en la Ley Orgánica de la Contraloría General de la República, los funcionarios designados como administradores del contrato tendrán a su cargo las siguientes obligaciones:
+a) Emitir la orden de inicio en contratos de obra o servicios, cuando así lo establezca el contrato y formalización contractual.
+b) Verificar la realización de actos previos por parte del contratista que sean necesarios para garantizar la correcta ejecución del contrato como son: permisos y /o licencias.
+c) Realizar un control objetivo de la ejecución contractual, lo cual significa que el objeto contractual debe cumplirse en su totalidad.
+d) Revisar que el bien se adapte a la calidad y requerimiento establecido en la contratación.
+e) Aplicar las medidas de control de calidad, de forma eficiente en los procesos involucrados.
+f) Ejercer control técnico de la contratación y velar por que el contratista se ajuste a las condiciones y plazos establecidos en el contrato.
+g) Indicar contratista la necesidad de corregir cualquier desajuste o inobservancia al respecto del cumplimiento del objeto contractual.
+h) Comunicar en forma inmediata al contratista, cualquier ajuste en los tiempos del cronograma o incumplimiento de éste a fin de que se adopten las medidas pertinentes para su corrección.
+i) Verificar que las modificaciones que se presentan en la contratación se ajusten a las condiciones del contrato y a los criterios técnicos que valoren los mismos.
+j) Remitir al Departamento de Suministros todos los documentos que consignen todas las vicisitudes de la ejecución del contrato como son: orden de inicio, entregas, prórrogas, suspensiones.
+k) Recomendar la aplicación de cláusulas penales, multas, ejecución de garantías, rescisión o resolución del contrato cuando se advierta fundamento para ello, según la Ley General de Contratación Pública.
+l) Llevar el control de la vigencia de la garantía de cumplimiento, colaterales o de funcionamiento.
+m) Requerir que se haga efectiva la garantía de funcionamiento e informar inmediatamente al Departamento de Suministros, si se identifican defectos de fabricación, antes del vencimiento de aquella.
+n) Verificar que el bien contratado cuente con talleres de servicio autorizados cuando corresponda.
+o) Recibir o rechazar, mediante acta, los bienes, obras o servicios en las condiciones de calidad y plazo acordado en el contrato, para lo cual debe coordinar dicha recepción con las dependencias correspondientes, en el lugar y tiempo pactado.
+p) Establecer los mecanismos de comunicación necesarios y eficientes entre las partes que intervienen en la contratación.
+q) Solicitar criterios técnicos necesarios para una mejor fiscalización de los contratos, cuando se requiera por la naturaleza de la materia o especialidad, así como emitir el informe respectivo de todos los hechos relevantes de la ejecución del contrato a fin de incorporarlo en el finiquito contractual.
+r) Solicitar los criterios técnicos necesarios para una mejor fiscalización de los contratos, cuando se requiera por la naturaleza de la materia o especialidad. Así como emitir el informe respectivo de todos los hechos relevantes de la ejecución del contrato a fin de incorporarlo en el finiquito contractual.
+s) Verificar que tratándose de contratos en los que la empresa adjudicada requiera contratación de personal, para el cumplimiento del objeto contractual, se cumplan las directrices emitidas por las autoridades de gobierno, en relación a la observancia de derechos laborales relativos al pago de salarios mínimos, riesgo de trabajo y demás disposiciones relativas a la seguridad social y ocupacional de los trabajadores.
+t) El o los fiscalizadores designados por el Consejo de Seguridad Vial para fiscalizar obras, deberán de forma obligatoria, estar inscritos ante el Colegio Federado de Ingenieros y Arquitectos de Costa Rica, para los proyectos de obra pública contratados.

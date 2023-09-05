@@ -1,0 +1,5 @@
+Artículo 111.- Procedimiento para la ejecución de la garantía de cumplimiento. Una vez que la Unidad Ejecutora y /o fiscalizadora determine incumplimiento en los términos contractuales, solicitará al contratista que en el improrrogable plazo de cinco días hábiles presente las pruebas de descargo correspondientes.
+Una vez recibidas dichas pruebas, la Unidad Ejecutora y /o fiscalizadora valorará las mismas y determinará por escrito si se debe o no ejecutar la garantía de cumplimiento.
+Si determina que se debe ejecutar la garantía de cumplimiento, comunicará por escrito a la Unidad de Trámite y Control para que realice el procedimiento correspondiente en coordinación con la Asesoría jurídica.
+La resolución final se dictará por la Jefatura del Departamento de Suministros y podrá ser recurrida en alzada en el caso de las contrataciones directas, ante la Dirección de Logística y en el caso de las licitaciones, ante la Dirección Ejecutiva.
+El régimen recursivo se regirá por lo dispuesto en los artículos 342 y siguientes de la Ley General de la Administración Pública N º 6227.

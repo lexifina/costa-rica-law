@@ -1,0 +1,3 @@
+Artículo 15.- Plazo para recibir ofertas. La indicación de la fecha límite de recepción de ofertas, estará fijada (fecha y hora) en el pliego de condiciones cartelarias.
+En todo caso, el plazo no podrá ser menor a lo establecido por la Ley General de Contratación Pública para la correspondiente contratación, debiéndose considerar que, dentro de aquel, no se tomará en cuenta el día de la publicación o comunicación de la invitación, pero sí el de la apertura.
+Se exceptúan del procedimiento anterior, aquellas contrataciones donde medie autorización expresa de la Contraloría General de la República para reducir plazos, de modo que se estará sujeto a lo señalado por la misma.

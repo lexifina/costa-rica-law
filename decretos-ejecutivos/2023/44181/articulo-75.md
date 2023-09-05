@@ -1,0 +1,2 @@
+Artículo 75.- Documentos de la solicitud de refrendo. Formarán parte integrante del contrato administrativo, el expediente de la contratación pública, conforme los lineamientos de la Contraloría General de la República.
+El o la responsable de la Unidad de Trámite y Control o a quien este delegue, remitirá, a la Dirección Ejecutiva el instrumento contractual y los documentos definidos anteriormente preferiblemente en forma electrónica, para que ésta emita el oficio de solicitud de refrendo a la Contraloría General de la República.

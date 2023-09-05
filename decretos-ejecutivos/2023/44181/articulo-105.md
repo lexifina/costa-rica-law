@@ -1,0 +1,3 @@
+Artículo 105.- Bienes muebles. Para los anteriores efectos, se entenderán como bienes muebles, los destinados al uso y consumo para la realización de los objetivos de la institución y los que se clasifican así:
+a) Equipo y mobiliario: Los bienes que no constituyan parte permanente de edificaciones y que puedan ser trasladados sin alterar su integridad física y aquellos que posean una conformación física que permita su adecuada identificación, sea por medio de una placa metálica, por grabación en su superficie, mediante la aplicación de sellos, adhesivos o cualquier otro medio que permita su identificación patrimonial.
+b) Materiales y suministros: Aquellos de empleo usual en las labores de la institución, que se agotan con su utilización.
