@@ -1,1 +1,2 @@
-Artículo 127.—De la movilización de productos transgénicos. El interesado para la movilización dentro del país de un producto transgénico deberá contar con la autorización de la Dirección, anexando la respectiva solicitud en el formato BIO-01.
+Artículo 127. -De la movilización de organismos vivos modificados de uso agrícola. El interesado en realizar la movilización dentro del país de un OVM para uso agrícola, deberá informar a la UOGM con una anticipación de al menos 24 horas a realizarse la movilización, enviando por correo electrónico la respectiva notificación, en carácter de declaración jurada, mediante el Anexo 8 de este reglamento, formato BIO-01.
+(Así reformado por el artículo 2° del decreto ejecutivo N° 44244 del 6 de setiembre del 2023)

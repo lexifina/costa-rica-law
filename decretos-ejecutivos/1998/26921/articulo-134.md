@@ -1,2 +1,10 @@
-Artículo 134.—De la declaración de materiales u organismos genéticamente modificados. Toda persona física o jurídica que pretenda introducir al país, materiales genéticamente modificados de uso en la agricultura, está obligado a informar previamente al Programa de Biotecnología de la Dirección.
-So pena de la aplicación de los extremos del artículo 73 de la Ley de Protección Fitosanitaria.
+Artículo 134. -Del acuerdo fundamentado previo, la sospecha de peligro y el incumplimiento de disposiciones oficiales o el uso no autorizado de OVM de uso agrícola.
+a. Acuerdo fundamentado previo.
+Toda persona física o jurídica que pretenda introducir al país, usar en confinamiento, liberar al ambiente o comercializar un OVM de uso en la agricultura, está obligado a informar y obtener autorización previa del SFE, so pena de la aplicación de las sanciones previstas en los artículos 31 y 73 de la Ley de Protección Fitosanitaria.
+b. Sospecha o evidencia de peligro, situaciones imprevisibles o incumplimiento de disposiciones oficiales.
+Ante sospecha o evidencia de peligro, situaciones imprevisibles o incumplimiento de disposiciones oficiales, el SFE podrá retener, decomisar, destruir o reexpedir los OVM para uso agrícola. Además, podrá prohibir el traslado, la investigación, experimentación, liberación al ambiente, multiplicación y comercialización de estos, con el fin de proteger la agricultura, el ambiente y la salud tanto humana como animal.
+c. Incumplimiento de disposiciones oficiales o el uso no autorizado.
+Ante el incumplimiento de disposiciones oficiales o la utilización de los OVM para uso agrícola fuera de los proyectos autorizados oficialmente o en áreas no reguladas para tal fin, el SFE tomará en forma inmediata las medidas de mitigación que correspondan, así como las acciones pertinentes para el decomiso o destrucción de los mismos, so pena de la aplicación de las sanciones previstas en los artículos 31 y 73 de la Ley de Protección Fitosanitaria.
+d. Libertad de acceso a autoridades.
+Para el cumplimiento de las facultades que se señalan en este reglamento, las personas físicas o jurídicas permitirán el libre acceso, a sus inmuebles, a las autoridades fitosanitarias. De negárseles, solicitarán la orden de allanamiento a la autoridad judicial competente, de acuerdo con lo establecido en el artículo 84 de la Ley de Protección Fitosanitaria, Ley No 7664.
+(Así reformado por el artículo 2° del decreto ejecutivo N° 44244 del 6 de setiembre del 2023)

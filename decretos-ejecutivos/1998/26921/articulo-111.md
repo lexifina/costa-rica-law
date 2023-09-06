@@ -1,5 +1,7 @@
-TITULO VIII
-DE LA REGULACIÓN FITOSANITARIA DE ORGANISMOS O PRODUCTOS DE LA BIOTECNOLOGÍA VEGETAL
+TÍTULO VIII
+DE LA REGULACIÓN DE LOS ORGANISMOS PRODUCTO DE LA
+BIOTECNOLOGÍA MODERNA;
+(Así modificada su denominación por el artículo 2° del decreto ejecutivo N° 44244 del 6 de setiembre del 2023. Anteriormente indicaba TITULO VIII DE LA REGULACIÓN FITOSANITARIA DE ORGANISMOS O PRODUCTOS DE LA BIOTECNOLOGÍA VEGETAL")
 CAPITULO ÚNICO
 Artículo 111.-De las funciones de la Comisión Técnica Nacional de Bioseguridad. La Comisión tendrá las siguientes funciones:
 1. Asesorar a las instituciones del sector agropecuario en el establecimiento y ejecución de medidas y procedimientos técnicos, así como la elaboración de proyectos de decretos ejecutivos y reglamentos necesarios para regular organismos producto de la biotecnología moderna, incluidos los obtenidos por la edición del genoma, así como los organismos vivos modificados o sus productos, de uso agropecuario.

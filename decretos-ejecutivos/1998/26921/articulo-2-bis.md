@@ -1,0 +1,21 @@
+Artículo 2 bis- De las abreviaturas. Para los efectos del presente reglamento, se entenderá por:
+- ADN: Ácido desoxirribonucleico.
+- ARN: Ácido ribonucleico.
+- ARP: Análisis de Riesgo de Plagas.
+- CIISB: Centro de Intercambio de Información sobre Seguridad de la Biotecnología.
+- CITES: Convención Internacional para la Protección de Especies y Fauna en peligro de Extinción.
+- CLA: Certificado de liberación al ambiente, uso confinado y comercialización.
+- CTNBio: Comisión Técnica Nacional de Bioseguridad.
+- Ministerio: Ministerio de Agricultura y Ganadería.
+- Ministro: Ministro de Agricultura y Ganadería, máximo jerarca del Ministerio.
+- MIP: Manejo Integrado de Plagas.
+- OIRSA: Organismo Internacional Regional de la Sanidad Agropecuaria.
+- OMC: Organización Mundial de Comercio.
+- ONS: Oficina Nacional de Semillas.
+- OVM: Organismo vivo modificado.
+- SFE: Servicio Fitosanitario del Estado.
+- SIF: Ver SITC.
+- SITC: Servicio Internacional de Tratamientos Cuarentenarios.
+- TIE o SIT: Técnica del Insecto Estéril.
+- UOGM: Unidad de Organismos Genéticamente Modificados.
+(Así adicionado por el artículo 3° del decreto ejecutivo N° 44244 del 6 de setiembre del 2023)

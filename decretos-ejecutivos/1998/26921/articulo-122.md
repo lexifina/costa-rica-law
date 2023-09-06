@@ -1,1 +1,2 @@
-Artículo 122.—De la identificación de productos transgénicos. El producto transgénico a liberarse, movilizarse y/o importarse, debe identificarse con una etiqueta que contenga la información del formato BIO-04.
+Artículo 122. -De la identificación de organismos vivos modificados de uso agrícola. Todo OVM para uso agrícola a importarse, movilizarse, almacenarse o comercializarse debe identificarse con el Anexo 6 de este reglamento, Formato BIO-04. Boleta de identificación de OVM para movilización, almacenamiento o comercialización.
+(Así reformado por el artículo 2° del decreto ejecutivo N° 44244 del 6 de setiembre del 2023)
