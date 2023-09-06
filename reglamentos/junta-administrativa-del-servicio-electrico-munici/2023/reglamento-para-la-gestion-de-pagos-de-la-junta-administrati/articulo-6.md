@@ -1,0 +1,1 @@
+Artículo 6- Ámbito de seguridad. El área de Servicios Financieros en conjunto con el Departamento de Tesorería, ejercerá las medidas de control interno necesarias para proteger debidamente la integridad de los recursos, así como los valores bajo su custodia, de los riesgos normales previsibles sobre los procesos de las gestiones de pago.

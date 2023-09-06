@@ -1,0 +1,1 @@
+Artículo 11- Traspaso de Fondos. El Departamento de Tesorería realizará los traspasos de fondos de forma diaria, trasladando los recursos de las cuentas recaudadoras a las cuentas definidas para la administración del efectivo, autorizando los traspasos de forma mancomunada de acuerdo al esquema de firmas ya establecidos por la institución.

@@ -1,0 +1,31 @@
+CAPÍTULO II
+CONCEPTOS Y COMPETENCIAS
+Artículo 2- Definiciones
+Para los fines del presente Reglamento se definen los siguientes términos:
+1. JASEC: Junta Administrativa del Servicio Eléctrico Municipal de Cartago.
+2. Director de Negocio: Funcionario responsable de la planeación, organización, dirección, coordinación, control, evaluación y supervisión de los planes y programas de las Áreas a cargo, coadyuvando al logro de los objetivos de JASEC, procurando una mayor proyección de los servicios que presta la Empresa, así como los ingresos necesarios para la operación de la Dirección bajo conceptos de análisis de costo-beneficio, productividad y minimización de costos.
+3. Jefe de Área: Funcionario responsable de la planificación, organización, dirección, coordinación, control y evaluación de la gestión técnica, financiera y/o administrativa de la Empresa, según corresponda, así como la definición de políticas y estrategias relacionadas con el Área a cargo.
+4. Jefe(a) Departamento Tesorería: Funcionario responsable de la elaboración, planificación y administración del flujo de caja institucional y autorizar mediante la primera firma los egresos institucionales, asegurando con ello que la transacción
+realizada por cheque o medio de pago electrónico sea la correcta.
+5. Jefe de Departamento: Funcionario responsable de la planificación, organización, dirección, coordinación, control y evaluación de la gestión del departamento a cargo.
+6. Departamento de Tesorería: Departamento encargado de administrar el flujo de caja institucional y gestionar oportunamente las instrucciones de pago que cumplan con los requisitos previamente definidos dentro de la normativa interna y autorizadas por los fiscalizadores de contrato, encargados de caja chica o gestores de pago.
+7. Departamento Proveeduría: Departamento encargado de atender las diferentes actividades de los procedimientos de contratación administrativa.
+8. Proveedor: Es la persona física o jurídica a quien se le ha adjudicado un contrato en JASEC.
+9. Fiscalizador de contrato: Es el funcionario designado para velar por la correcta ejecución de los contratos que se les asigne, respetando para ello cada una de las etapas establecidas para los procedimientos de contratación. Asimismo, será responsable de la recepción y aceptación de los bienes y servicios dentro de los plazos y condiciones establecidas, firmando como aprobación para tal efecto el acta de recepción definitiva que certifica el cumplimiento contractual, así como gestionar y aprobar los pagos que se generen.
+10. Acta de Recepción de Bienes o Servicios: Formulario oficializado en el SGE, mediante el cual se certifica que el bien o servicio adjudicado se recibe a satisfacción de JASEC, por parte del fiscalizador del contrato.
+11. Orden de compra: Documento que emite la Proveeduría de JASEC, para generar la obligación de pago de los bienes y servicios adquiridos por la institución, en el cual se incluyen los siguientes datos: detalles de identificación del proveedor adjudicado, plazo de entrega del bien o servicio, lugar de entrega, forma de pago, número de proceso de contratación, descripción del bien o servicio adjudicado, cantidades, precio unitario, precio total, impuestos, fiscalizador responsable, firmas autorizadas del personal competente de Proveeduría, firma del refrendo por parte de la Asesoría Jurídica Institucional cuando el proceso de contratación así lo requiera.
+12. Firma Mancomunada: Autorización otorgada mediante dos firmas asociadas, para todas las gestiones interbancarias, una del grupo A y otra del grupo B según el esquema definido por la Gerencia General de JASEC, cuyos firmantes serán
+corresponsables, según se dispone en el artículo 10.
+Grupo A: firmantes autorizados para ejercer como primera firma para tramitar gestiones bancarias, en representación del Departamento Tesorería.
+Grupo B: firmantes autorizados para ejercer como segunda firma para tramitar gestiones bancarias en representación de la Institución.
+13. Apéndice Gestión de Pagos: Apéndice oficializado en el SGE, cuyo alcance incluye el trámite de pagos, desde su registro, revisión y aprobación para su respectivo giro en las diferentes entidades bancarias.
+14. Instrucción de Pago: Mandato emitido por el Fiscalizador del Contrato o funcionario competente, que instruye al Departamento de Tesorería, para proceder con el giro respectivo del bien o servicio que se haya recibido a satisfacción de JASEC.
+15. Pagos asociados a órdenes de compra: Son las instrucciones de pago por la adquisición de bienes o servicios, adjudicados mediante un proceso de contratación administrativa.
+16. Pagos no asociados a órdenes de compra: Son las instrucciones de pago que no son derivadas de un proceso de contratación administrativa.
+17. SGE: Sistema de Gestión Empresarial que contiene los procesos, procedimientos, instructivos, criterios y referencias para normalizar la operación de JASEC. El mismo se conforma de una serie de documentos y de un sistema informático que los administra y publica para su uso oficial.
+18. SIFAJ: Sistema Integrado Financiero Administrativo de JASEC.
+19. Traspaso de Fondos: Movimiento de efectivo realizado entre cuentas bancarias de JASEC una vez realizadas las programaciones del flujo de caja institucional.
+20. Medio de pago electrónico: Es un sistema de pago bancario por medio de transacciones en línea a través de Internet.
+21. Cuenta Bancaria: Una cuenta bancaria es un contrato financiero con una entidad bancaria en virtud del cual, se registra el balance y los subsiguientes movimientos de dinero del cliente, establece un código de dígitos IBAN asignados que identifica si corresponde a una cuenta de ahorros o corriente y su respectiva moneda dólares o colones.
+22. Responsabilidad administrativa: es el deber de responder por daños o perjuicios causados por una infracción en el cumplimiento de una norma.
+23. Control interno: Es el conjunto de actividades de control, ambiente de control, sistemas de información y valoración de riesgos, en cada entidad del Estado, que contribuyen a proteger y conservar el patrimonio público contra pérdida, despilfarro, uso indebido, irregularidad o acto ilegal, exigir oportunidad y confiabilidad de la información, garantizar eficiencia y eficacia de las operaciones y cumplir con el ordenamiento jurídico y técnico.
