@@ -1,0 +1,1 @@
+Artículo 29.-Derogatoria: Se deroga el Decreto Ejecutivo número 27655-MOPT del 28 de enero de 1999, denominado "Reglamento para el uso, control y mantenimiento de los vehículos de la Dirección General de Aviación Civil" y sus reformas.

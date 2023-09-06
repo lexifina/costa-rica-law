@@ -1,0 +1,1 @@
+Artículo 13.-Asignación especial de vehículos: Todos los vehículos institucionales de uso administrativo general permanecerán a la orden de la coordinación del Subproceso de Transporte y/o Coordinador del PSG.

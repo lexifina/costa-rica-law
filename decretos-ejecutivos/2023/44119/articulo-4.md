@@ -1,0 +1,7 @@
+CAPÍTULO II
+De la clasificación de los vehículos
+Artículo 4º-Clasificación: Para los efectos del presente reglamento, los vehículos propiedad de la Dirección General de Aviación Civil se clasifican en vehículos de uso administrativo, destinados a prestar servicios regulares de transporte en el desarrollo normal de funciones y actividades de la Dirección General de Aviación Civil, los cuales estarán sometidos a las siguientes regulaciones:
+- Deben estar identificados con el distintivo de la DGAC.
+- El consumo de combustible se limitará a una cuota mensual, según las necesidades del servicio, la cual podrá ser variada por el PSG, conforme el estudio efectuado sobre el kilometraje, consumo del vehículo y del perfil sobre las tareas explícitas del chofer, durante el servicio de transporte para tareas institucionales específicas, a través de la herramienta GPS instalado a la flotilla institucional, así como cualquier otra herramienta que disponga la DGAC
+- Deberán utilizarse exclusivamente en asuntos oficiales y queda absolutamente prohibido la utilización para asuntos particulares o distintos a los propios de la DGAC.
+La asignación o utilización de los vehículos institucionales para uso administrativo, será con la finalidad de brindar un mejor servicio y en ningún caso puede ser considerado como un beneficio, mejora salarial, salario en especie o en forma alguna parte del contrato de trabajo, ni dará lugar a derechos adquiridos en favor del funcionario.

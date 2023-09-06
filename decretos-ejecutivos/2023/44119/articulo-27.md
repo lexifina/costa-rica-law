@@ -1,0 +1,3 @@
+Artículo 27.-Obligación de abastecimiento de bienes y servicios: La coordinación del PSG y el coordinador del Subproceso de Transportes analizarán todos los accidentes de tránsito en que participe un vehículo de la DGAC en un plazo de 3 días hábiles siguientes a la fecha del percance.
+Como resultado del análisis, rendirá un informe con la recomendación respectiva, dirigido a la Asesoría Jurídica para que se inicie el debido proceso.
+En caso de los vehículos descentralizados en los aeropuertos internacionales, la Administración de estos deberá emitir el respectivo informe a la Asesoría Jurídica.

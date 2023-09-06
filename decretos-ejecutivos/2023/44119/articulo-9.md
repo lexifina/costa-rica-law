@@ -1,0 +1,1 @@
+Artículo 9º-Autorizaciones en horas y días no hábiles: Si por razones especiales no ha sido programado un servicio de transporte y este se requiere en horas y días no hábiles, este podrá ser autorizado por la Coordinación del PSG y por el director o subdirector General de Aviación Civil o, en su defecto, por la jefatura del Departamento Financiero Administrativo.

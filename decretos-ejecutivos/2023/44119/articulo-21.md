@@ -1,0 +1,1 @@
+Artículo 21.-Seguridad de los vehículos: Se prohíbe dejar estacionados o abandonados los vehículos oficiales en lugares donde se ponga en peligro su seguridad, sus accesorios, materiales o equipos que transportan.

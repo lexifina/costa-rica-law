@@ -1,0 +1,1 @@
+Artículo 28.-En caso de discrepancia: Cualquier discrepancia o diferencia que pueda surgir en la aplicación del presente reglamento, se resolverá mediante un proceso en que participarán activamente el Director o Subdirector General, el encargado de la Asesoría Jurídica y la jefatura del DFA, la coordinación del PSG.

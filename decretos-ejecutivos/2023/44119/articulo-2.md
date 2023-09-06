@@ -1,0 +1,1 @@
+Artículo 2º-Uso de logotipo institucional: Los vehículos oficiales llevarán permanentemente en su carrocería, con fondo blanco, el logotipo de la Dirección General de Aviación Civil, en ambas puertas delanteras.

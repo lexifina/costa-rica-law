@@ -1,0 +1,1 @@
+Artículo 25.-Prohibición de arreglos extrajudiciales: Se prohíbe a los funcionarios autorizados a la conducción de los vehículos institucionales, efectuar arreglos extrajudiciales en caso de accidente con vehículos de la DGAC.
