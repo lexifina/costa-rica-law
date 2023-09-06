@@ -15,3 +15,4 @@ Reglamento a la Ley Marco de Empleo Público
 | --- | --- | --- |
 | 1 | 2023-03-10 | la propia norma |
 | 2 | 2023-06-06 | Decreto Ejecutivo 44055 (2023-06-06) |
+| 3 | 2023-09-06 | Decreto Ejecutivo 44199 (2023-09-06) |
