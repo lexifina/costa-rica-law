@@ -1,0 +1,1 @@
+Transitorio I.-En un plazo máximo de tres meses, la Presidencia Ejecutiva procederá a conformar una comisión interna administrativa permanente para la prevención de la violencia contra las mujeres en la política; integrada por representante del Despacho de la Presidencia; del Departamento Legal y Departamento de Recursos Humanos.

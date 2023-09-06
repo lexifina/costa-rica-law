@@ -1,0 +1,1 @@
+Artículo 32.-De los recursos contra lo resuelto por la persona titular. Contra lo resuelto por la Presidencia Ejecutiva u Órgano decisor, sobre sanciones disciplinarias, procederán los recursos dispuestos por la Ley General de la Administración Pública.

@@ -1,0 +1,1 @@
+Artículo 39.-Prescripción. El cómputo del plazo de prescripción de las sanciones disciplinarias dispuestas en la Ley 10.235 y en este reglamento se rige por lo establecido en el artículo 414 del Código de Trabajo y normativa relacionada.

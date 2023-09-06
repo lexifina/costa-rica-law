@@ -1,0 +1,11 @@
+Artículo 11.-Acciones preventivas a cargo de la Presidencia Ejecutiva. Corresponde a la presidenta ejecutiva del INAMU, impulsar las siguientes acciones:
+a) Elaborar y someter a aprobación ante la Junta Directiva, la política de prevención, atención, sanción y erradicación de la violencia contra las mujeres en la política, que defina, al menos, las acciones, responsabilidades y competencias de las diferentes instancias del INAMU;
+b) Conformar una comisión interna administrativa permanente para la prevención de la violencia contra las mujeres en la política; integrada por representante del Despacho de la Presidencia; del Departamento de Ciudadanía Activa y Departamento de Recursos Humanos;
+c) Elaborar y aprobar un protocolo dirigido a las diferentes instancias para facilitar la aplicación y los alcances de este reglamento, detallando los procedimientos disciplinarios, principios, derechos y responsabilidades, con el objetivo de impulsar su efectivo cumplimiento.
+d) Asumir la responsabilidad de difundir información relacionada con los alcances de la ley 10.235 y de este reglamento.
+e) Diseñar y ejecutar capacitaciones y procesos de formación permanentes y periódicas sobre igualdad de género y prevención de la violencia contra las mujeres en la política, dirigidas a todo el personal administrativo y profesional incluido al funcionariado de nuevo ingreso.
+f) Impulsar otras acciones afirmativas para garantizar la efectiva igualdad entre mujeres y hombres que prevenga toda forma de violencia y discriminación basada en la condición del género.
+g) Incluir en el informe anual de rendición de cuentas la ejecución y cumplimiento de las obligaciones presentes en la Política.
+h) Implementar otras acciones idóneas, pertinentes y efectivas para el cumplimiento de los objetivos de la ley Nº 10.235 y de este reglamento.
+i) Conformar la Comisión Investigadora (Órgano Director) cuando se presenten las denuncias por violencia contra las mujeres en la política, designando al Departamento Legal para presidir el Órgano y la representación de dos funcionarias del área técnica según lo dispuesto en el artículo 25 del presente Reglamento.
+j) Establecer el sistema de registro de las sanciones derivadas de la aplicación de este reglamento, según lo establece el artículo 33 de la ley 10.235.
