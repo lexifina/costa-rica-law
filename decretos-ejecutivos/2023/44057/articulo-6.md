@@ -1,0 +1,5 @@
+Artículo 6º-De la Autorización por parte de la DINARAC. Del proceso para efectos de la Autorización:
+a) El Centro RAC solicitante deberá presentar todos los requisitos establecidos en los artículos 6 del Decreto Ejecutivo N° 32152-MJ citado y 3 de este Reglamento ante la DINARAC, quien realizará el estudio establecido en el artículo 7 del Decreto Ejecutivo N° 32152-MJ del 27 de octubre del 2004.
+b) Los funcionarios de la DINARAC podrán visitar las instalaciones ofrecidas por el Centro, o la Entidad a la que este pertenece, y verificar por todos los medios legales correspondientes, la veracidad de la información suministrada.
+c) La solicitud de autorización de funcionamiento como Centro RAC concursal deberá resolverse dentro del plazo de 30 días naturales establecido en el artículo 7 del Decreto Ejecutivo N° 32152-MJ del 27 de octubre del 2004, una vez que el solicitante cumpla con todos los requisitos.
+La autorización concedida a los Centros estará vigente por un plazo de 3 años, el cual se considerará prorrogado de oficio, salvo que la DINARAC en resolución razonada la revoque, de conformidad con las causales establecidas en el artículo 7 de este reglamento.
