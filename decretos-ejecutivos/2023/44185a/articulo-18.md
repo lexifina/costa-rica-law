@@ -1,0 +1,1 @@
+Artículo 18.-El Consejo Directivo podrá crear otros comités y/o comisiones que considere necesarios para el cumplimiento de los objetivos de la Corporación, debiendo para ello regular su conformación, funciones y funcionamiento.

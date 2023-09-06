@@ -1,0 +1,1 @@
+Artículo 22.-Las dependencias corporativas en el artículo precedente se detallarán en el Reglamento de Funcionamiento correspondiente. El Consejo Directivo podrá crear nuevas dependencias o eliminar las que estime necesarias, lo cual deberá ser modificado en el Reglamento respectivo.

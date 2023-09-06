@@ -1,0 +1,3 @@
+CAPÍTULO XI
+Presupuesto
+Artículo 26.-Corresponde al Consejo Directivo aprobar el presupuesto anual, modificaciones y/o presupuestos extraordinarios de la Corporación en la última reunión del ejercicio fiscal que corresponderá del primero de enero al treinta y uno de diciembre de cada año, para lo cual el Director Ejecutivo - CEO presentará el proyecto correspondiente al año subsiguiente. Si no fuese aprobado, continuará vigente el que se encuentre en ejecución. La nominación monetaria oficial es el peso centroamericano (CA$) de conformidad a lo establecido por el Consejo Monetario Centroamericano equivalente a un dólar de los Estados Unidos de América.

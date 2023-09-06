@@ -1,0 +1,3 @@
+CAPÍTULO II
+Constitución
+Artículo 2°-La Corporación Centroamericana de Servicios de Navegación Aérea (COCESNA) es un Organismo Internacional especializado que forma parte del Sistema de Integración Centroamericana. Fue creada mediante Convenio suscrito por los Plenipotenciarios de los Estados Centroamericanos en la Conferencia Diplomática reunida en Tegucigalpa el veintiséis de febrero de mil novecientos sesenta. Es un Organismo de servicio público, con personalidad jurídica y patrimonio propio. En esa calidad, goza de prerrogativas, inmunidades y exenciones, conforme al Derecho Internacional y Comunitario.

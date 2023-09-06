@@ -1,0 +1,1 @@
+Artículo 4°-Son Estados miembros de la Corporación: Belize, Costa Rica, El Salvador, Guatemala, Honduras y Nicaragua. Podrá adherirse al Convenio Constitutivo de la Corporación cualquier Estado no signatario, siempre y cuando, cumpla con los requisitos establecidos en el mismo.

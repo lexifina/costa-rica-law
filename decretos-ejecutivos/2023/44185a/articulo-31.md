@@ -1,0 +1,1 @@
+Artículo 31.-Cualquier estatuto de la Corporación Centroamericana de Servicios de Navegación Aérea, que haya estado vigente, haya sido aplicado o aprobado previo a la emisión del presente estatuto, queda derogado en su totalidad.

@@ -1,0 +1,1 @@
+Artículo 10.-El Consejo Directivo celebrará reuniones ordinarias una vez por mes y extraordinarias a solicitud del presidente del Consejo o al menos de dos de sus miembros Representantes o a solicitud del presidente ejecutivo para tratar asuntos de carácter urgente o prioritario.

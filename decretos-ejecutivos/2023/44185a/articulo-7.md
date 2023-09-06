@@ -1,0 +1,3 @@
+CAPÍTULO IV
+Patrimonio
+Artículo 7°-Constituye el patrimonio de la Corporación sus bienes muebles e inmuebles, fondos activos y de inversión, depósitos en garantía, Certificados de Depósito, Bonos u otro instrumento financiero de inversión, activos intangibles, software, registro de marcas y patentes, equipos técnicos y repuestos, cualquier otra contribución que reciba la Corporación y demás ingresos por servicios prestados, también serán parte del patrimonio todas las, instalaciones y equipos que las Partes Contratantes le confieran en uso y goce para su normal funcionamiento de conformidad con el Convenio Constitutivo.

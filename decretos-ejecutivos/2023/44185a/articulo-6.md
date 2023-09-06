@@ -1,0 +1,11 @@
+Artículo 6°-Para el cumplimiento de sus objetivos, la Corporación desarrollará todas las funciones necesarias, y en particular:
+a) Propiciar y apoyar la coordinación y cooperación entre sus Estados miembros, para el desarrollo seguro y la mejor utilización del transporte aéreo intra y extra regional;
+b) Elaborar estudios económicos y técnicos sobre navegación y transporte aéreo en la región;
+c) Promover un mayor intercambio de información técnica y económica entre los Estados miembros, mediante una oportuna notificación;
+d) Apoyar a los Estados miembros en el cumplimiento de las normas y métodos recomendados del convenio sobre aviación civil internacional, sus anexos y lo referente a transporte aéreo.
+e) Propiciar acuerdos entre sus Estados miembros, que contribuyan para la ejecución de los planes regionales y mundial de navegación aérea de la OACI.
+f) Apoyar a los Estados miembros para el establecimiento de instalaciones y servicios de navegación aérea, infraestructura y equipos, de conformidad con el plan estratégico aprobado;
+g) Proveer y propiciar la prestación de servicios intra y extra regionales, los cuales COCESNA tiene capacidad y competencia de conformidad con sus objetivos y funciones, así como la capacitación del personal aeronáutico, en las especialidades que la corporación tenga capacidad de prestar los cursos, capacitaciones y/o servicios deberán estar debidamente certificados por la autoridad competente, en los casos en que las regulaciones de cada Estado lo requieran; h) Suscribir acuerdos de cooperación y asistencia técnica en los diferentes campos de la aviación civil;
+i) Proporcionar opinión técnica y/o especializada, respecto de los asuntos que se sometan a su consideración;
+j) Contribuir con el desarrollo e integración del transporte aéreo regional y sus Estados miembros; y,
+k) Salvaguardar los intereses de sus Estados miembros en los diferentes foros mundiales o regionales, en materias de su competencia, incluyendo la defensa de sus intereses técnicos y su presencia ante el Consejo de la OACI. Cualquier Estado miembro de la corporación, tiene derecho a designar a un representante alterno ante la OACI y este deberá ser acreditado por el Estado que lo designe.

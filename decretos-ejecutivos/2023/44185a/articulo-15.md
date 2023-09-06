@@ -1,0 +1,1 @@
+Artículo 15.-El Comité Técnico estará conformado por los Directores de Aviación Civil de los Estados miembros y técnicos especialistas, quienes podrán delegar su participación en un funcionario de su administración con facultad decisoria y hacerse acompañar de los técnicos que estime conveniente.
