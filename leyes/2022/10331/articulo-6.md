@@ -6,3 +6,4 @@ Artículo 6°: Apruébense los siguientes Egresos Ordinarios y Extraordinarios d
 (Modificado por el artículo 1° del decreto ejecutivo N° 44071 del 26 de mayo de 2023)
 (Modificado por el artículo 1° del decreto ejecutivo N° 44085 del 21 de junio de 2023)
 (Así reformado por el artículo 3° de la ley N° 10370 del 21 de julio del 2023)
+(Modificado por el artículo 1° del decreto ejecutivo N° 44190 del 21 de agosto de 2023)
