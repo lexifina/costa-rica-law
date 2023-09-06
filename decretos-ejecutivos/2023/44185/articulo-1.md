@@ -1,0 +1,17 @@
+N° 44185-MOPT
+EL PRESIDENTE DE LA REPÚBLICA
+EL MINISTRO DE OBRAS PÚBLICAS Y TRANSPORTES
+En el ejercicio de las facultades y prerrogativas conferidas en los artículos 140, incisos 3) y 18), y 146 de la Constitución Política y con fundamento en lo establecido en la Ley de Creación del Ministerio de Obras Públicas y Transportes, Ley número 4786 del 05 de julio de 1971 y sus reformas; Ley General de la Administración Pública, Ley N° 6227 del 02 de mayo de 1978, artículos 25 inciso 1, 27 inciso 1 y 28 inciso 2, acápite b) y lo dispuesto en el artículo 26 del Convenio Constitutivo de la Corporación Centroamericana de Servicios de Navegación Aérea (COCESNA), Ley número 3240 del 20 de noviembre de 1963.
+Considerando:
+I.-Que mediante la Ley número 3240 del 20 de noviembre de 1963, denominada "Convenio constitutivo de la corporación centroamericana de servicios de navegación aérea", la Asamblea Legislativa aprobó dicho Convenio, el cual crea un organismo de servicio público denominado "Corporación Centroamericana de Servicios de Navegación Aérea", la cual elabora sus propios Estatutos y los somete a la aprobación de cada una de las Partes Contratantes.
+II.-Que la Corporación está dirigida a prestar servicios de tránsito aéreo, de telecomunicaciones aeronáuticas y de radio ayudas para la navegación aérea de las Partes Contratantes, resultando obligada a proporcionar los servicios y ayudas aeronáuticas a que se refiere el plan regional de la Organización de Aviación Civil Internacional.
+III.-Que mediante el Decreto Ejecutivo N° 12893 del 26 de agosto de 1981, denominado "Estatutos de la Corporación de Servicios de Navegación Aérea (COCESNA)" se incorporó al ordenamiento jurídico nacional los Estatutos de la Corporación.
+IV.-Que mediante la resolución número ROCD 2021/224.6.1 emitida en la Ducentésima Vigésima Cuarta Reunión Ordinaria del Consejo Directivo de COCESNA, celebrada vía virtual, en fecha catorce de enero de dos mil veintiuno, el Consejo Directivo aprobó la reforma integral del Estatuto de la Corporación, el cual fue publicado en la Gaceta Oficial Digital del Sistema de la Integración Centroamericana (SICA), número 054-2021 de fecha 12 de febrero de 2021.
+V.-Que es obligación del Consejo Técnico de Aviación Civil proponer al Poder Ejecutivo la promulgación, mediante decreto, de cualquier reglamento, norma o procedimiento técnico aeronáutico que sea necesario para regular la actividad aeronáutica.
+VI.-Que resulta necesario derogar el Decreto Ejecutivo N° 12893 citado, con el fin de incorporar las reformas aprobadas por el Consejo Directivo el 14 de enero de 2021, por lo que, se procede a emitir un nuevo reglamento.
+VII.-Que de conformidad con el artículo 12 bis del Decreto Ejecutivo N° 37045-MP-MEIC del 22 de febrero de 2012, denominado "Reglamento a la Ley de Protección al Ciudadano del Exceso de Requisitos y Trámites Administrativos" y sus reformas, se considera que por la naturaleza del presente reglamento no es necesario completar el formulario de Evaluación de Costo Beneficio, toda vez que el mismo no establece trámites ni requerimientos para el administrado. Por tanto,
+Decretan:
+Estatutos de la Corporación Centroamericana
+de Servicios de Navegación Aérea (COCESNA)
+Artículo 1°-Emitir los presentes Estatutos de la Corporación Centroamericana de Servicios de Navegación Aérea, los cuales, en lo sucesivo, se leerán así:
+(Nota de Sinalevi: Por tener artículo propio los Estatutos de la Corporación Centroamericana de Servicios de Navegación Aérea, pueden ser consultados en el siguiente Enlace)
