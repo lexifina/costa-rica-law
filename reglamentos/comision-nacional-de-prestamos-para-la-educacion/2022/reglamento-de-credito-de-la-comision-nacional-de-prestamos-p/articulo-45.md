@@ -1,9 +1,13 @@
 45. ARTÍCULO De la designación de beneficiarios del fondo.
-Sólo podrán ser beneficiarios del fondo de avales personas que demuestren que no pueden aportar ninguna de las garantías solicitadas por CONAPE, para el financiamiento de cursos de pregrado, educación técnica y/o superior a nivel de pregrado y grado en Costa Rica y que cumplan al menos uno de los siguientes requisitos en orden de prelación:
+Sólo podrán ser beneficiarios del fondo de avales personas que demuestren que no pueden aportar ninguna de las garantías solicitadas por CONAPE, para el financiamiento de Cursos de Formación, educación técnica, superior a nivel de pregrado y grado en Costa Rica y que cumplan al menos uno de los siguientes requisitos en orden de prelación:
+(Así reformado el párrafo anterior mediante sesión N° 19-2023 del 7 de setiembre de 2023)
 a. Proceder de una zona de desarrollo relativo bajo o muy bajo, de acuerdo con el Índice de Desarrollo Social (IDS) vigente de MIDEPLAN y en condición de pobreza básica, pobreza extrema y vulnerabilidad socioeconómica, según la Ficha de Inclusión Social (FIS) y el Índice de Focalización de Pobreza que facilite SINIRUBE.
 b. Ser una persona indígena (originario) y que así se pueda verificar, según constancia de la entidad correspondiente.
 c. Las personas que independientemente de la zona de procedencia se encuentren en condición de pobreza, pobreza extrema y vulnerabilidad socioeconómica de acuerdo a la (FIS) y el Índice de Focalización de Pobreza emitida por SINIRUBE.
-Los beneficiarios del FAC, que presenten solicitudes o ampliaciones de crédito, deben tener la aprobación previa del Comité de Crédito de CONAPE, para lo cual deben cumplir con los siguientes requisitos:
+d. Formar parte de algún convenio o alianza estratégica de Empleabilidad que suscriba CONAPE, cuyo ingreso no supere el límite superior al primer intervalo de Factor de Ingreso Neto establecido en el PAGC.
+(Así adicionado el inciso anterior mediante sesión N° 19-2023 del 7 de setiembre de 2023)
+Los beneficiarios del FAC, que presenten solicitudes o ampliaciones de crédito, contarán con la aprobación del Comité de Crédito de CONAPE, para lo cual deben cumplir con los siguientes requisitos:
+(Así reformado el párrafo anterior mediante sesión N° 19-2023 del 7 de setiembre de 2023)
 i. Solicitud expresa dirigida a la Sección de Gestión y Análisis de Crédito para ser beneficiario del Fondo de Avales CONAPE (FAC), para lo cual puede utilizar el formulario que para tal efecto se facilita en la página web de la institución.
 ii. Contar con la Ficha de Inclusión Social (FIS) emitida por SINIRUBE.
 iii. Cuando corresponda presentar constancia que demuestre su condición de indígena. Para ello, debe aportar documento emitido por la Asociación de Desarrollo Integral del territorio de procedencia, cuando ésta sea reconocida como la máxima autoridad o del Concejo de Mayores cuando asi corresponda. En caso de no existir formalmente integrada o reconocida alguna de estas instancias se aceptará que dicho documento sea referido por la Comisión Nacional de Asuntos Indígenas.

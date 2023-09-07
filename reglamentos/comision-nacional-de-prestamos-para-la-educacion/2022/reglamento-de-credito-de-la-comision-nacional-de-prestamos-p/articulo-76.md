@@ -4,14 +4,19 @@ A. Cuando el prestatario tiene asignaturas pendientes para concluir el grado que
 B. Para concluir el mismo grado o continuar con otro, dentro del mismo nivel de estudios.
 C. Incrementos en los topes crediticios (sujeto a los topes de préstamos vigentes en el Plan Anual de Crédito).
 D. Cambios ocurridos en la malla curricular por parte de la universidad.
-E. Otros motivos a juicio de la Sección de Desembolsos y Control de Crédito
+E. Otros motivos a juicio de la Sección de Desembolsos y Control de Crédito.
 Las condiciones que debe presentar el prestatario para solicitar una autorización de ampliación del préstamo, son los siguientes:
-a. Que la operación de préstamo NO haya sido trasladada a la Sección de Cobro para iniciar sus pagos
+a. Que la operación de préstamo NO haya sido trasladada a la Sección de Cobro para iniciar sus pagos.
 b. Que la operación de préstamo en CONAPE no tenga desembolsos pendientes (saldo ¢0.00 colones).
 c. No aplica para cambio de grado (Bachillerato y/o Licenciatura) a posgrados (Maestría, Especialización y Doctorado).
 d. Los cambios del nivel de grado a posgrado se realizarán mediante refundición de crédito.
+e. Los beneficiarios del FAC, que presenten solicitudes de ampliaciones de préstamo, deben contar con la aprobación previa del Comité de Crédito.
 Los requisitos que debe presentar el prestatario para solicitar una autorización de ampliación del préstamo, son los siguientes:
-DEL ESTUDIANTE:
+Del Estudiante:
+i. Completar la información al dorso del formulario, "SOLICITUD DE AUTORIZACIÓN PARA TRAMITAR AMPLIACIÓN DE PRÉSTAMO".
+ii. Justificación que indique el motivo por el cual requiere financiamiento adicional.
+Del Centro Educativo:
 i. Documento de la entidad educativa (con firma y sello) que indique las asignaturas pendientes para concluir el Plan de Estudios.
 ii. Historial académico de notas por ciclo lectivo (cuatrimestre, semestre u otro) que incluya asignaturas aprobadas, reprobadas, homologadas, convalidadas, matriculadas u otras (con firma y sello).
 iii. Informe de matrícula del ciclo lectivo actual, en caso de no haberlo presentado a CONAPE. Carta de la entidad educativa donde realiza estudios (con firma y sello), que indique el pago total del último ciclo lectivo cursado.
+(Así reformado mediante sesión N° 19-2023 del 7 de setiembre de 2023)

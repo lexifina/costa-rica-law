@@ -7,13 +7,17 @@ A.3 Acciones formativas del INA
 A.4 Profesorados
 A.5 Asistentes
 A.6 Técnicos
-A.7 Curso:
+A.7 Cursos de formación(*):
+(Así reformado el inciso anterior mediante sesión N° 19-2023 del 7 de setiembre de 2023)
 i Especializaciones
 ii Certificación
 iii Campamentos de formación
 iv Pruebas
 v Idiomas
-vi Otros
+vi Cursos para Intercambios o pasantías
+(Así adicionado el sub inciso anterior mediante sesión N° 19-2023 del 7 de setiembre de 2023)
+vii Otros
+(Así modificada la numeración del sub inciso anterior mediante sesión N° 19-2023 del 7 de setiembre de 2023, que lo traspaso del antiguo sub inciso vi) al sub inciso vii))
 B Grados en Costa Rica y en el Exterior
 B.1 Bachilleratos
 B.2 Licenciaturas

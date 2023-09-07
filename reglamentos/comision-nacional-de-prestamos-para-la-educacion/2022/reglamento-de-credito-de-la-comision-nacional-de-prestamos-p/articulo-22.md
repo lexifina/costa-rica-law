@@ -5,4 +5,18 @@ b. Que sea asalariado y el salario bruto cubre el porcentaje que se establezca e
 c. Asalariado debe tener tres meses de laborar con el mismo patrono de forma ininterrumpida.
 d. Que cumpla con la capacidad de fianza que se establezca en el Plan Anual de Gestión de Crédito.
 e. Que el salario líquido del fiador sea igual o mayor del monto estimado de la(s) cuota(s) correspondientes a un mes sobre los préstamos a los que otorga garantía.
+f. No se consideran como parte del salario bruto comisiones, horas extras, dietas, ni pagos que no correspondan al salario.
+(Así adicionado el inciso anterior mediante sesión N° 19-2023 del 7 de setiembre de 2023)
+g. Que esté libre de embargos.
+(Así adicionado el inciso anterior mediante sesión N° 19-2023 del 7 de setiembre de 2023)
+h. Que no cumpla la edad de 65 años durante el periodo del contrato en fase de ejecución.
+(Así adicionado el inciso anterior mediante sesión N° 19-2023 del 7 de setiembre de 2023)
+i. Que no esté pensionado - jubilado.
+(Así adicionado el inciso anterior mediante sesión N° 19-2023 del 7 de setiembre de 2023)
+j. Debe tener orden patronal vigente, no se aceptan fiadores asalariados que no coticen para la CCSS.
+(Así adicionado el inciso anterior mediante sesión N° 19-2023 del 7 de setiembre de 2023)
+k. El fiador extranjero debe contar con cédula de residencia permanente de libre condición DIMEX, que se encuentre vigente.
+(Así adicionado el inciso anterior mediante sesión N° 19-2023 del 7 de setiembre de 2023)
+l. La condición de fiador único podrá ser realizada solamente por costarricenses.
+(Así adicionado el inciso anterior mediante sesión N° 19-2023 del 7 de setiembre de 2023)
 Las condiciones de cobertura se establecen en el PAGC.
