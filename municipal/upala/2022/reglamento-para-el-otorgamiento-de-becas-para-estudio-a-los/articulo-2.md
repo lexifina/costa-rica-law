@@ -1,0 +1,1 @@
+Artículo 2°-Del destino de las becas y ayudas económicas complementarias. Se otorgarán para ser utilizadas en el fortalecimiento y mejoras de las condiciones educativas y entorno de aprendizaje de las personas beneficiarias y grupo familiar.

@@ -1,0 +1,1 @@
+Artículo 18.-La Administración Municipal realizará el análisis presupuestario anual, con el fin de verificar la liquidez presupuestaria y definir el monto para el Programa de Becas y Ayudas Económicas Complementarias, este análisis y asignación presupuestaria considerará en prioridad el criterio técnico que se emita desde la Unidad de Gestión Socioeducativa para tal fin.

@@ -1,0 +1,6 @@
+Artículo 3°-De los requisitos o condiciones para optar por una beca municipal. La persona interesada en una beca será considerada como elegible bajo los siguientes requisitos:
+a) Habitar en el cantón de Upala.
+b) La condición socioeconómica de la persona será evaluada por la Unidad de Gestión Socioeducativa desde la herramienta nacional SINIRUBE y otros mecanismos de evaluación socioeconómica.
+c) Ser estudiante activo o inscrito en cualquiera de las modalidades educativas formales o no formales, el cual deberá presentar la documentación pertinente para corroborar las particularidades del proceso educativo del que participa y los periodos de formación.
+d) Para los estudiantes menores de edad, son los padres, madres o personas encargadas quienes deberán tramitar la solicitud de beca. En los casos que la Municipalidad, específicamente el Programa de Becas lo considere pertinente, podrá solicitar depósito judicial extendido por parte del Patronato Nacional de la Infancia (PANI).
+e) Atender la convocatoria realizada por la Unidad de Gestión Socioeducativa en donde se establecen los parámetros para postulaciones al programa de becas y ayudas económicas complementarias de la Municipalidad de Upala. Posterior a ello aportar los documentos que se requieran, en el tiempo y lugar que se estipule.
