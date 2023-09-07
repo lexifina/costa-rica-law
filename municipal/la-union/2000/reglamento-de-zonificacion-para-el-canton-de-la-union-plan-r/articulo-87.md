@@ -1,0 +1,7 @@
+Artículo 87-. Para la ZVPR-E y la ZVPR-P se establecen las siguientes regulaciones:
+a) No será permitido verter ningún tipo de aguas negras o servidas provenientes de instalaciones colindantes.
+b) No se permitirán en los frentes de los terrenos que formen parte de la ZVPR tapias o muros, sólo se aceptarán divisiones abiertas del tipo divisiones naturales (cercas vivas).
+c) No se aceptarán accesos vehiculares, solo espacios peatonales incluyendo senderos. Serán excepción los accesos viales para mantenimiento y seguridad (ambulancia, de bomberos, de policía y/o servicios municipales).
+d) Se podrán localizar espacios para el estacionamiento de vehículos, siempre que estos se ubiquen dentro del los límites del derecho de vía de calles públicas. Tales espacios de estacionamiento deberán utilizar materiales permeables en su acabado final e incluir un proceso de arborización de los espacios internos (islas) para mejorar el confort del área.
+e) En los predios colindantes con la ZVPR se permitirá la creación de acceso de usuarios desde o hacia el parque, sean vías públicas y/o senderos peatonales.
+f) Será permitido dentro de los límites de la ZVPR la perforación de pozos y el abastecimiento de agua para fines exclusivamente de abastecimiento público. Esta autorización deberá ser concordante con los permisos de perforación y explotación de pozos que otorga la Dirección de Aguas del MINAE.

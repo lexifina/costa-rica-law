@@ -1,16 +1,14 @@
-Artículo 9º—Zona agrícola (Z AG):
-a) Propósitos. Esta zona es necesaria para retener el desarrollo urbano y continuar en ella el uso agrícola en el cantón.
-b) Usos permitidos:
-1. Usos agropecuarios
-2. Vivienda unifamiliar de características suburbanas o agrícola, quedan excluidos en todo caso los conjuntos residencias y las urbanizaciones.
-3. Granjas (avícolas, apícolas) siempre y cuando se cumpla con la Reglamentación vigente en la materia.
-c) Usos condicionales. No se permiten usos condicionales.
-d) Requisitos:
-1. Superficie mínima del lote 1 Ha
-2. Frente de lote mínimo 40 metros
-3. Retiros
-Frontal 15 metros
-Lateral 5 metros
-Posterior 5 metros
-4. Cobertura el 15% del área del lote
-5. Área máxima de piso, el doble del área de cobertura. Los proyectos en esta zona están sujetos a un estudio de impacto ambiental.
+Artículo 9-. Incentivos: Para incentivar el cumplimiento de los diferentes reglamentos de Plan Regulador en todos sus extremos y concretamente en aquellos predios que resulten restringidos en cuanto al uso del suelo por motivos de conservación - protección de recursos naturales o bien de conservación de patrimonio histórico- arquitectónico, la Municipalidad de La Unión podrá aplicar las siguientes disposiciones:
+a) Incentivos para protección ambiental: la Municipalidad podrá autorizar vía dictamen técnico favorable de la DIDECU y posterior Acuerdo Municipal, la aplicación de incentivos fiscales mediante procedimientos previamente reglamentados, entre ellos una disminución en los montos de los impuestos por bienes inmuebles. Este procedimiento será Reglamentado por la Municipalidad de La Unión y aprobado por el Concejo Municipal en un plazo no mayor a los seis meses calendario contados a partir de la entrada en vigencia del presente Reglamento. Podrá ser aplicable a los siguientes casos:
+i. Para el caso de fincas que resulten restringidos en su cabida o en cuanto al uso del suelo por estar afectados, total o parcialmente, por zonas de conservación o protección de recursos naturales.
+ii. Para el caso de fincas en las cuales existan y se mantengan, amplíen o desarrollen procesos de reforestación y/o conservación de la cobertura forestal.
+iii. Para el caso de fincas donde existan o se quieran implementar proyectos de agricultura ecológica, conforme a lo establecido para tales efectos por la Ley Orgánica del Ambiente Nº 7554.
+b) Incentivos por Conservación del Patrimonio: para estimular la conservación y uso de edificios, estructuras y espacios dentro de la Zona Histórico Patrimonial, o bien inmuebles con declaratoria patrimonial y de conformidad con lo que establezca el "Reglamento de Conservación, Rehabilitación y Protección del Patrimonio Histórico Arquitectónico" la Municipalidad podrá autorizar vía Acuerdo Municipal estímulos fiscales con el único fin de favorecer el mejoramiento, uso y conservación del patrimonio. Todo lo anterior a solicitud del interesado y con el visto bueno previo por parte de DIDECU. Este procedimiento será Reglamentado por la Municipalidad de La Unión y aprobado por el Concejo Municipal en un plazo no mayor a los seis meses calendario contados a partir de la entrada en vigencia del presente Reglamento.
+c) Incentivo por concentración de estructuras: Para todas las zonas del Plan Regulador en las cuales se permita más de una vivienda o estructura por finca, así como en las zonas donde se permita el desarrollo de proyectos bajo la modalidad de condominio, la Municipalidad podrá autorizar a solicitud del interesado la aplicación de normas de incentivo por medio de las cuales se autorice hasta un 10% más del porcentaje autorizado como área de construcción para la zona respectiva y hasta un piso o nivel adicional en la altura de las edificaciones respecto al número máximo autorizado para la zona respectiva, siempre que el diseño cumpla con todas las siguientes disposiciones:
+i. La concentración del total de las construcciones y/o estructuras en un solo sector de la finca.
+ii. La consolidación del área restante (no constructiva) de la finca como zona verde.
+iii. El diseño e implementación de sistemas que permitan el uso, reuso y drenaje del 100% de las aguas pluviales dentro de la finca.
+iv. El uso de sistemas de tratamiento de aguas residuales autorizados por el Ministerio de Salud a nivel de ubicación y operación.
+v. La aplicación de planes de manejo de desechos sólidos aprobados por el Ministerio de Salud.
+vi. La implementación de un programa de reforestación.
+El interesado deberá presentar la solicitud a la DIDECU acompañada de los anteproyectos o planos constructivos que muestren el cumplimiento de todos los requisitos de zona así como los requisitos adicionales que describe el presente artículo. La verificación de todos los requisitos a nivel de diseño permitirá a la DIDECU la autorización de la presente norma de incentivo. Será responsabilidad del interesado el cumplimiento de cada requisito durante la construcción y operación, así como de la DIDECU la fiscalización del cumplimiento durante la construcción y operación.

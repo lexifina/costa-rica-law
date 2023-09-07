@@ -1,0 +1,1 @@
+Artículo 98-. Se busca por medio de la Zona Vial garantizar que se respeten los espacios para el tránsito de personas y vehículos. En lo particular se norma esta condición en el Reglamento de Vialidad y Transporte que es parte integral del Plan Regulador.

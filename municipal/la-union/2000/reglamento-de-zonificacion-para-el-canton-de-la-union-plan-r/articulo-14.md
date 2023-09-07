@@ -1,5 +1,1 @@
-Artículo 14.—Zona de protección Manto Chigüite (Z PMCH):
-a) Propósito. Se identifica esta zona para la protección del manto acuífero del Manto Chagüite.
-b) Usos permitidos. Solo se permitirán usos conexos al uso del morito acuíferos que sirvan de apoyo a esta actividad.
-c) Usos condicionales. No se permitirán usos condicionales.
-d) Requisitos. Los requisitos los fijará la Municipalidad en cada caso específico.
+Artículo 14-.Variación de Requisitos: Para los lotes sin construcciones que hayan sido segregados y legalmente constituidos antes de la entrada en vigencia del presente reglamento y que no cumplan con las dimensiones mínimas establecidas en la Zonificación, se podrá autorizar la variación de los requisitos de densidad, retiros mínimos y altura máxima de construcción en no más del 10% con respecto a los parámetros de dicho reglamento, con el único fin de lograr un acercamiento progresivo entre la normas de control urbano del Plan Regulador y aquellas vigentes con anterioridad a éste; no aplica para las construcciones existentes a las cuales únicamente se permite mejoras en la edificación sin que impliquen o contravengan los lineamientos mencionados.

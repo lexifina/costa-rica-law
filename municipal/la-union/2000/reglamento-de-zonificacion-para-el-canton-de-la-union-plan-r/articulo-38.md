@@ -1,0 +1,1 @@
+Artículo 38-. Para todos los proyectos o actividades que requieran patentes o actualización serán aplicables las normas de protección ambiental establecidas en el Reglamento de Desarrollo Sostenible, y de manera supletoria las normas vigentes en materia ambiental de alcance nacional.

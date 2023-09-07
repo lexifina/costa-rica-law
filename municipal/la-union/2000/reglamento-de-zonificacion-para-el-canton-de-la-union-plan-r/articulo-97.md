@@ -1,0 +1,3 @@
+CAPÍTULO DÉCIMO SEXTO:
+LA ZONA VIAL (ZVI)
+Artículo 97-. La Zona Vial comprende todas los caminos y carreteras de carácter público de la Red Vial Nacional y la Red Vial Cantonal. Se identifica en los mapas de Zonificación, Vialidad y mapa Oficial con la simbología correspondiente y con las siglas ZVI. Comprende tanto vías para tráfico vehicular como vías para tráfico peatonal y tiene como fin establecer y consolidar el consolidar el derecho de vía de las vías públicas existentes, así como reservar el espacio para futuros proyectos viales que permitan mejorar las condiciones de conexión y movilidad (vehicular o peatonal) a nivel intra e inter cantonal.

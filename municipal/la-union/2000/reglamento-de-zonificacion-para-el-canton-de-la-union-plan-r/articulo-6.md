@@ -1,5 +1,2 @@
-Artículo 6º—Zona áreas verdes (Z A V):
-a) Propósitos. El área verde es la zona reservada para conservar el equilibrio ecológico y para el esparcimiento deportivo de la población.
-b) Usos permitidos. Todas las instalaciones deportivas, conexas, piscinas, gimnasios, los vestidores, etc, que faciliten el esparcimiento espiritual y deportivo.
-c) Usos condicionales. Las facilidades que apoyan el esparcimiento como sodas, oficinas, siempre y cuando la municipalidad en coordinación con el Departamento de Urbanismo lo aprueben, siguiendo los lineamientos del Plan Urbano.
-d) Requisitos. Los requisitos serán fijados en cada caso por la Municipalidad y el Departamento de Urbanismo.
+Artículo 6-.Fondos: Los fondos que la Municipalidad requiera para el cumplimiento de lo establecido en el artículo 5 anterior y en general para la implementación del plan regulador a nivel de reglamentos, políticas, programas o proyectos, podrán provenir del presupuesto municipal, de partidas del Gobierno Central, de empréstitos, de operaciones de cooperación internacional o de operaciones de fideicomisos, todo lo anterior conforme a las disposiciones legales establecidas en la Ley No7794 Código Municipal.
+Asimismo, está facultada para la constitución y/o participación en empresas de capital mixto para los mismos fines.

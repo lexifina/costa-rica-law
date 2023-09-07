@@ -1,0 +1,1 @@
+Artículo 101-. Para todas las zonas donde se permita de manera expresa la construcción de más de una vivienda por predio, el acceso para viviendas localizadas en secciones posteriores del predio deberá cumplir con lo establecido en el Reglamento de Construcciones.

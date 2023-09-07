@@ -1,0 +1,1 @@
+Artículo 25-. Plazos de Resolución. Los plazos de resolución para la solicitud de permisos y/o licencias serán los establecidos por la Ley General de Administración Pública y el artículo 80 del Código Municipal y de conformidad con la Ley de Protección al Ciudadano del Exceso de Requisitos y Trámites Administrativos No8220.

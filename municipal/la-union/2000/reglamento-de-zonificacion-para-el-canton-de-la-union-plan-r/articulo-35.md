@@ -1,0 +1,1 @@
+Artículo 35-. Aguas Pluviales. Toda nueva construcción en cualquiera de las zonas del Plan Regulador deberá presentar su propuesta de desfogue pluvial; su aprobación será requisito indispensable para optar por la aprobación de licencias municipales. Este tipo de sistemas podrán incluir mecanismos combinados de uso, reuso, retención y/o infiltración de las aguas pluviales.

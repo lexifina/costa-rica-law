@@ -1,0 +1,1 @@
+Artículo 30-. Retiros Laterales: Para cada una de las zonas establecidas en el presente Reglamento se indican las condiciones bajo las cuales se solicita o se exceptúa el requisito de retiro lateral. Para todos los casos en que existan o se propongan ventanas en colindancia, se aplicará lo dispuesto en el Reglamento de Construcciones del INVU.

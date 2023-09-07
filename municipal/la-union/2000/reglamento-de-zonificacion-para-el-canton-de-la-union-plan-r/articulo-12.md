@@ -1,13 +1,3 @@
-Artículo 12.—Zona turística (Z TU):
-a) Propósitos. En esta zona se asentarán los futuros proyectos turísticos del cantón.
-b) Usos permitidos. Se permitirá todo el uso necesario para el desarrollo turístico (Hotel, cabinas, miradores, restaurantes, soda, lagos, áreas deportivas, etc.)
-c) Usos condicionales. No se permitirán usos condicionales.
-d) Requisitos:
-1. Superficie mínima del lote 2500 m2
-2. Frente mínimo 40 m
-3. Retiros
-Frontal 10 metros
-Lateral 5 metros
-Posterior 5 metros
-4. Cobertura el 30% del área del lote.
-5. Área máxima de piso, el doble del área de cobertura.
+CAPÍTULO CUARTO
+MODIFICACIÓN Y ACTUALIZACION DEL PLAN
+Artículo 12-.Actualización o Modificación del Plan: Con fundamento en las fases de gestión de un Plan Regulador contempladas en el Manual de Procedimientos para la Redacción y Elaboración de Planes Reguladores, así como las respectivas evaluaciones técnicas y/o legales que correspondan, además del respectivo seguimiento; la Municipalidad podrá ejecutar o promover procesos de actualización o modificación del Plan Regulador y sus Reglamentos de conformidad con lo establecido en el artículo 17 de la Ley de Planificación Urbana No4240. A partir de la entrada en vigencia del presente Reglamento, la revisión del Plan Regulador y sus Reglamentos será un proceso permanente y la Dirección de Desarrollo y Control Urbano llevará un único registro de modificaciones, correcciones o solicitudes debidamente habilitado por la administración municipal, el cual será parte de los fundamentos técnicos del proceso y constituirá una base para futuros procesos de modificación o actualización del Plan Regulador.

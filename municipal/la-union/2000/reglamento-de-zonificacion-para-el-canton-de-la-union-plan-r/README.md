@@ -14,3 +14,4 @@ Reglamento de Zonificación para el Cantón de La Unión. Plan Regulador del Can
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-05-14 | la propia norma |
+| 2 | 2023-09-07 | Reglamento municipal 266 (2023-09-07) |

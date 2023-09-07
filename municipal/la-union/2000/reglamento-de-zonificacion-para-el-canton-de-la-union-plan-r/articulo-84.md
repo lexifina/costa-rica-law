@@ -1,0 +1,3 @@
+CAPÍTULO DÉCIMO SEGUNDO:
+LA ZONA VERDE DE PARQUE Y RECREACIÓN (ZVPR)
+Artículo 84-. Tiene como propósitos la delimitación de los espacios urbanos para usos recreativos, de conservación, culturales y/o deportivos para la población en general, tanto los existentes como los propuestos, aumentando de forma progresiva en el largo plazo los índices de zona verde recreativa promedio por persona y facilitando el entramado entre zonas verdes y zonas de protección. Se identifica en el mapa de zonificación con las siglas ZVPR-E para las zonas ya existentes y con las siglas ZVPR-P para las nuevas zonas reservas territoriales propuestas para estos fines.
