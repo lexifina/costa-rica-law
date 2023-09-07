@@ -1,0 +1,3 @@
+CAPÍTULO III
+De la adquisición y traspaso de derechos
+Artículo 10.-La adquisición de derechos de uso y aprovechamiento se llevará a cabo ante la Municipalidad a través de un contrato uniforme en la que se consignarán las calidades de las partes, los detalles sobre ubicación física, área de derecho adquirido de acuerdo con diseño de sitio, certificado de defunción y los nombres de al menos dos personas que en orden de prioridad sean designados por el adquirente como beneficiarios, obligaciones de las partes, el valor y la forma de pago de los derechos y cualquier otra información pertinente a definir en la relación contractual.

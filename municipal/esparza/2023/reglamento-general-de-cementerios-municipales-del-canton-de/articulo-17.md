@@ -1,0 +1,1 @@
+Artículo 17.-Vencido el periodo del derecho de uso y aprovechamiento del contrato, la Municipalidad quedará facultada para exhumar y trasladar al osario general los restos contenidos en el respectivo nicho.

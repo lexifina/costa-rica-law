@@ -1,0 +1,1 @@
+Artículo 9º-Los nichos no podrán ser utilizados para depositar restos humanos traídos desde otro cementerio con la intención de adquirir un derecho nuevo, sin embargo, el titular de un derecho en un cementerio municipal podrá solicitar a la Administración la autorización para el traslado siempre y cuando se sufrague el costo establecido.

@@ -1,0 +1,1 @@
+Artículo 40.-Al suscribir el contrato de derecho de uso y aprovechamiento, el adquiriente se compromete además al pago de una cuota de mantenimiento, que podrá ser cancelada según sea definido por la Administración.

@@ -1,0 +1,1 @@
+Artículo 5º-Toda obra relacionada a la construcción de un lote o una bóveda debe de estar con las disposiciones y medidas mínimas establecida en Reglamento General de Cementerios (Decreto N° 244-19 de diciembre del 2005 y sus reformas)

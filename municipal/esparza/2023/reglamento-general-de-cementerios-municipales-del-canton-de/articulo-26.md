@@ -1,0 +1,1 @@
+Artículo 26.-La Municipalidad no será responsable por la identidad de la persona a inhumarse ni se permitirá la apertura del féretro, dentro de los predios de los cementerios municipales, sin orden judicial.

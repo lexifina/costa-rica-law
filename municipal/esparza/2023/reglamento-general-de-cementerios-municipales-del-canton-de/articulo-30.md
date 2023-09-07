@@ -1,0 +1,1 @@
+Artículo 30.-Para todos los casos las inhumaciones serán realizadas por los funcionarios de los cementerios municipales que contarán con la capacitación y el equipo técnico necesario para realizar con éxito la labor.

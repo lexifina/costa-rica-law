@@ -1,0 +1,1 @@
+Artículo 35.-A partir del momento en que los restos de una persona han salido de los cementerios municipales, la Municipalidad salva su responsabilidad, la cual será asumida por el solicitante y el propietario del uso y aprovechamiento que firmarán el acta correspondiente

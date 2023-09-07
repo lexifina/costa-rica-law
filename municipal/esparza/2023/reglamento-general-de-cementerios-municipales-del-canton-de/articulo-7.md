@@ -1,0 +1,1 @@
+Artículo 7º-Los adquirientes no podrán efectuar ningún tipo de construcción sin la debida autorización de la Administración toda construcción y mejora hecha en los cementerios será realizada exclusivamente por la Municipalidad.

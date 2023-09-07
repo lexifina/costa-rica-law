@@ -1,0 +1,1 @@
+Artículo 42.-La Administración Municipal queda facultada al no cobro del pago del derecho de uso y aprovechamiento y mantenimiento, cuando se trate de inhumar en casos de indigencia, salubridad, o manifiesto interés público. La resolución que así lo acuerde, deberá estar debidamente motivada y deberá conservarse en el Registro de Inhumaciones junto al asiento respectivo.

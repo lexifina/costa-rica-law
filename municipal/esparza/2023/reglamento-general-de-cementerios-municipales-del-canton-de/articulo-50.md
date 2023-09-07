@@ -1,0 +1,1 @@
+Artículo 50.-La Municipalidad se reserva el derecho de admisión a los cementerios municipales, de cualquier persona que a su juicio pudiera poner en peligro la tranquilidad y el orden que deben reinar en estos lugares.

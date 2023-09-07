@@ -1,0 +1,1 @@
+Artículo 54.-Las disposiciones contenidas en el presente Reglamento no serán de aplicación al Cementerio Central de Esparza ubicado en las coordenadas geográficas CRTM05 X: 426327,7 y 1105090,6. Plano P-659-1987, en virtud de su situación particular.

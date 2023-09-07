@@ -1,0 +1,1 @@
+Artículo 43.-La Municipalidad mantendrá las tasas por concepto de servicios de cementerios debidamente actualizadas por el Concejo Municipal, mismas que deberán ser publicadas en el Diario Oficial La Gaceta para su entrada en vigencia.

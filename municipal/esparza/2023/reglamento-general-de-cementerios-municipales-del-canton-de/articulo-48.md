@@ -1,0 +1,1 @@
+Artículo 48.-Cumplidos los 5 años de inhumado el cuerpo, la Administración queda facultada en caso de existir deudas pendientes, a transferir a un osario general los restos que se encontraren en el nicho y éste nuevamente pasará al registro de "disponibles". Se aplicará el procedimiento correspondiente en la sección de sanciones del contrato firmado inicialmente.

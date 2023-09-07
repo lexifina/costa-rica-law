@@ -1,0 +1,1 @@
+Artículo 51.-La Municipalidad tiene la autoridad para hacer respetar y acatar las disposiciones de este Reglamento. Los adquirentes de derechos de aprovechamiento o uso, se obligan a cumplirlo y así se hará constar en el contrato respectivo.

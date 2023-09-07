@@ -1,0 +1,1 @@
+Artículo 21.-La Municipalidad se compromete a proteger y vigilar las instalaciones de los cementerios municipales. No obstante, no se hará responsable de las consecuencias por robos, casos fortuitos, fuerza mayor, ni por actos vandálicos.
