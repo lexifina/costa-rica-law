@@ -1,0 +1,2 @@
+Artículo 8º-Registro de la evaluación de desempeño
+Una vez remitida a la unidad Capital Humano la evaluación correspondiente por parte de la jefatura respectiva, corresponderá a Capital Humano registrar la información recibida en los controles internos que correspondan, posteriormente se deberá archivar en el expediente personal de cada persona funcionaria, así como cualquier otra gestión que esté sujeta a la evaluación de desempeño. Esta evaluación debe estar disponible para consulta de la persona funcionaria, en la plataforma digital que se utilice en la institución.

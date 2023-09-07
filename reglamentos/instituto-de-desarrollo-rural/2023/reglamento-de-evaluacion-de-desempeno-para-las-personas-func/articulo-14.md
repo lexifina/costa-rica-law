@@ -1,0 +1,2 @@
+Artículo 14.-Aplicación de la evaluación durante ausencia
+En el caso de que una persona funcionaria esté ausente de su trabajo por vacaciones, licencias, permisos con o sin goce de salario, en el período establecido para la evaluación respectiva, la jefatura deberá aplicar dicha evaluación antes de que la persona funcionaria se retire de sus labores. No será de recibo justificar la ausencia de una evaluación, por las razones indicadas.

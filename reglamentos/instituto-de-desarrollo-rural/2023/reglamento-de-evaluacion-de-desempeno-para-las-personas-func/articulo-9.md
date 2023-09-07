@@ -1,0 +1,6 @@
+Artículo 9º-Grupos Laborales
+La evaluación de desempeño se aplicará en forma diferenciada, considerando el grupo laboral en el que se ubican las personas evaluadas, según la naturaleza de su trabajo.
+Esta ubicación debe hacerla la jefatura, considerando el perfil del puesto desempeñado por las personas funcionarias:
+a) Grupo Laboral Gerencial: Lo conforman personas funcionarias que se caracterizan por tener que lograr resultados por medio de equipos de funcionarios, lo cual les demanda poseer un pensamiento estratégico, proponer y desarrollar pautas y lineamientos y ejecutar políticas, leyes y reglamentos emanados de la Administración Superior, así como representar al Instituto.
+b) Grupo Laboral Profesional: Corresponde a las personas funcionarias cuyas actividades se orientan hacia el desarrollo de procesos de trabajo profesionales que demandan la aplicación de conocimientos, técnicos, científicos o intelectuales para atender y resolver problemas variados y de diferente grado de complejidad.
+c) Grupo Laboral Operativo: Personas funcionarias cuyas actividades demandan emprender y llevar a cabo trabajos técnicos, relacionados, en algunos casos, con la ejecución de actividades técnicas que requieren la aplicación de la normativa legal y conocimientos a fines con la gestión del puesto.

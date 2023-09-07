@@ -1,0 +1,2 @@
+Artículo 13.-Aplicación de la evaluación por la jefatura superior inmediata
+Las personas funcionarias que hayan mantenido nombramientos en períodos definidos y mayores a un año y que además hayan tenido varias jefaturas, serán evaluados con la jefatura superior inmediata con la que hayan compartido más tiempo, o en caso de contar con tres meses o más de estar en determinada unidad administrativa, le corresponderá a la jefatura de dicha dependencia asumir la evaluación correspondiente, realizando la observación respectiva.

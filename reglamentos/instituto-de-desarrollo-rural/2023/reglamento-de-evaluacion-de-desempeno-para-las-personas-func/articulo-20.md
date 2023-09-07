@@ -1,0 +1,2 @@
+Artículo 20.-Presentación de apelación a la evaluación
+La persona funcionaria contará con cinco días hábiles a partir de la fecha que consta en la sección correspondiente a la realimentación de evaluación para presentar la apelación correspondiente ante la unidad Capital Humano, la misma será remitida a la Presidencia Ejecutiva para dar continuidad a la impugnación en la vía administrativa, cuya resolución deberá notificarse a un plazo no mayor a treinta días hábiles.

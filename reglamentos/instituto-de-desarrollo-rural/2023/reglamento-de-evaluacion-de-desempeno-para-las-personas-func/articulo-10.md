@@ -1,0 +1,11 @@
+Artículo 10.-Calificación de la evaluación
+Cada variable de desempeño se evaluará con fundamento en cinco niveles, los cuales tienen un valor numérico determinado. Estos niveles con sus correspondientes valores numéricos, aparecen en cada uno de las variables de desempeño del formulario de evaluación.
+El objetivo de las variables de desempeño es que la jefatura inmediata y la persona funcionaria puedan interpretar adecuadamente los resultados e identificar las fortalezas y debilidades de desempeño, demostrado durante el ciclo de evaluación. Las definiciones de los niveles de desempeño y la categoría cualitativa a la que corresponde cada uno, aparecen en el cuadro siguiente:
+Nivel | Definición | Categoría Cualitativa | Categoría Cuantitativa (Rangos)
+1 | Rendimiento no cumplió con expectativas, resultados muy por debajo de lo acordado. Se requiere una mejora oportuna y significativa. | Insuficiente | 1 a 69 puntos
+2 | Rendimiento aceptable, la persona cumple con los objetivos de trabajo y contribuye de alguna manera en el logro de las metas y objetivos del Instituto. | Bueno | 70 a 79 puntos
+3 | El rendimiento cumple con las expectativas y consistentemente genera resultados requeridos en la gestión de la dependencia. | Muy Bueno | 80 a 89 puntos
+4 | La persona funcionaria contribuye excepcionalmente, con las metas y objetivos estratégicos del Instituto u Órgano, superando conscientemente objetivos establecidos. | Excelente | 90 a 99 puntos
+5 | El desempeño de la persona servidora se destaca sobre sus pares y excede las expectativas de las labores encomendadas para el cargo. | Sobresaliente (*) | Igual a 100 puntos
+(*) Regla técnica: Las jefaturas que evalúen a la persona funcionaria con la categoría sobresaliente, deben justificar tales resultados mediante resolución, en la que se razone y compruebe el cumplimiento de objetivos y la planeación establecida en el Plan Anual de Trabajo de cada unidad y en el formulario de expectativas de desempeño.
+El incentivo por anualidad se concederá únicamente mediante la evaluación del desempeño para aquellas personas servidoras públicas que laboren bajo el esquema de salario compuesto, que hayan cumplido con una calificación mínima de "muy bueno" o su equivale numérico de conformidad con el art.48 de la Ley marco de Empleo Público.
