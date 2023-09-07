@@ -1,1 +1,0 @@
-Artículo 2°-Deróguese el Decreto Ejecutivo número 43988-H del 07 de marzo de 2023, publicado en el Alcance número 67 a La Gaceta número 68 del 20 de abril de 2023, a partir de la vigencia del presente decreto.
