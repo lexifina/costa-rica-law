@@ -1,0 +1,1 @@
+Artículo 47.-Los poseedores que adeuden pagos por más de cinco años, una vez notificados los cobros, se procederá a publicar en el Diario Oficial La Gaceta, de no haber respuesta se declara resuelto, se procede a realizar la exhumación de oficio y los restos existentes se colocan en osario común, sin responsabilidad alguna de la Municipalidad.

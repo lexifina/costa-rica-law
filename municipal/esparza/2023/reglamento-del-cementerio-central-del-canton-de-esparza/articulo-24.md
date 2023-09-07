@@ -1,0 +1,1 @@
+Artículo 24.-Toda obra no especificada anteriormente debe de estar con las disposiciones y medidas mínimas establecida en Reglamento General de Cementerios (Decreto N 244- 19 de diciembre del 2005 y sus reformas).

@@ -1,0 +1,1 @@
+Artículo 48.-Los espacios recuperados quedarán a disposición de la Administración y esta queda facultada para realizar el análisis sobre la distribución de las bóvedas pudiendo suprimir el derecho o disponer de ellos.

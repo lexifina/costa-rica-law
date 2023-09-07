@@ -1,0 +1,1 @@
+Artículo 29.-La presentación del comprobante de pago del mantenimiento de cementerio cancelado deberá hacerse dos horas antes de la inhumación en los casos en que la misma se realice en nichos municipales o bóvedas particulares, con el fin de determinar el sitio exacto y la ausencia de restos con menos de cinco años de inhumados.

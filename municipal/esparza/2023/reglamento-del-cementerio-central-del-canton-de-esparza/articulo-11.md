@@ -1,0 +1,1 @@
+Artículo 11.-Las construcciones tendrán las siguientes dimensiones mínimas 1 metro de ancho, 2.44 metros de largo, una profundidad de 0.70 metros máxima y una altura máxima de 0.70 metros sobre el nivel del suelo. Por encima de los nichos superficiales, solo se permitirá la construcción de osarios, cuyo diseño deberá ser aprobado por la ingeniería municipal.

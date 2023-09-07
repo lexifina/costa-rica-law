@@ -1,0 +1,1 @@
+Artículo 49.-Los espacios que queden disponibles y que cumplan con las medidas reglamentarias, según artículo 10, 11 y 12, la Municipalidad los pondrá a disposición de los vecinos del cantón de Esparza.

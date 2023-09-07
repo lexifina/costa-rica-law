@@ -1,0 +1,1 @@
+Artículo 21.-En caso de abandono, deterioro de derechos o incumplimiento de las obligaciones de este Reglamento, la Municipalidad queda facultada para efectuar las reparaciones o mejoras correspondientes y proceder con el cobro respectivo según tarifa aprobada.

@@ -1,0 +1,1 @@
+Artículo 51.-La Municipalidad se reserva el derecho de admisión al Cementerio Central, de cualquier persona que a su juicio pudiera poner en peligro la tranquilidad y el orden que deben reinar en este lugar.

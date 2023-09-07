@@ -1,0 +1,1 @@
+Artículo 35.-Cuando las exhumaciones ordinarias se realicen dentro del mismo cementerio no requieren de orden o permiso especial, después de transcurrido en el tiempo establecido en el artículo anterior.

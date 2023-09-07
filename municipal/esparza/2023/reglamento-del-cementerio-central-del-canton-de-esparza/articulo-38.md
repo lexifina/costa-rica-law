@@ -1,0 +1,1 @@
+Artículo 38.-A partir del momento en que los restos de una persona han salido del cementerio central, la Municipalidad salva su responsabilidad, la cual será asumida por el solicitante y el poseedor de la bóveda que firmarán el acta correspondiente.
