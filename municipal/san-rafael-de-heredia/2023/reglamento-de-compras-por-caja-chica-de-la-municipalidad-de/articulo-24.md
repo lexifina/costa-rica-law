@@ -1,0 +1,1 @@
+Artículo 24.-Este Reglamento de Compras por Caja Chica, queda sujeto a las modificaciones que en el transcurso del tiempo se consideren necesarias y debidamente aprobadas por el Concejo Municipal en aras de una mejor Administración del Fondo y una mayor efectividad y eficiencia administrativa dentro de la Municipalidad.

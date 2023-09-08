@@ -1,0 +1,1 @@
+Artículo 4º-Este fondo será asignado al Departamento de Tesorería y será administrado por el Tesorero Municipal y el funcionario a cargo del puesto de Asistente de Tesorería en caso de ausencia del mismo.
