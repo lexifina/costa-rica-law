@@ -1,0 +1,1 @@
+Artículo 16.-Los documentos producidos o recibidos en soporte papel por la Municipalidad y que lleguen a digitalizarse, deberán ser digitalizados en formatos PDF, jpg (Joint Photographic Experts Group) o png (Portable Network Graphics); y el escáner debe estar configurado con una resolución de 300 dpi.

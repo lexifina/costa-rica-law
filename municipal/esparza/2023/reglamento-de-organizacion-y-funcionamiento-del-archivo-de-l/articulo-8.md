@@ -1,0 +1,1 @@
+Artículo 8°-Los encargados de los Archivos de Gestión serán responsables de la conservación, ordenación, clasificación de los documentos, así como de su seguridad, siguiendo la normativa establecida por el Archivo Central. Asimismo, serán responsables de enviar las listas de remisión en forma oportuna y ordenada.

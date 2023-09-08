@@ -1,0 +1,1 @@
+Artículo 41.-En el Archivo Central de la Municipalidad deben existir auxiliares de control e instrumentos de descripción y consulta de documentos. Asimismo, el Archivo Central de la Municipalidad elaborará guías, inventarios y catálogos de su fondo documental, de acuerdo con la naturaleza de este y con las prioridades del servicio.

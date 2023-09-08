@@ -1,0 +1,2 @@
+Artículo 7°-El encargado del Archivo Central y demás funcionarios encargados de los Archivos de Gestión, tienen la obligación de velar por la integridad, autenticidad y fidelidad de la información contenida en los documentos de archivo, cualquiera que sea su soporte; son responsables de su organización y conservación.
+Asimismo, el encargado del Archivo Central deberá comunicar las normas, directrices, acuerdos que la Junta Administrativa y la CNSED, emitan en materia de gestión y valoración documental a lo interno de la Institución.

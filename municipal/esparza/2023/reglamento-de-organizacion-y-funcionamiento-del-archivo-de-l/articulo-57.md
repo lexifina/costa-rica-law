@@ -1,0 +1,1 @@
+Artículo 57.-Para el préstamo de documentos a las oficinas productoras se llenará una fórmula de préstamo de documentos, el funcionario que los retire debe estar autorizado por el jefe de la Unidad productora y firmar como responsable de los documentos. Durante el tiempo que permanezcan en su poder será su responsabilidad la custodia de los documentos facilitados.

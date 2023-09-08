@@ -1,0 +1,1 @@
+Artículo 59.-El tiempo que se establece para el préstamo de documentos a las oficinas será de 15 días naturales, una vez cumplido este período deberá renovarse el préstamo por un período igual, si esto no sucede el Archivista está en la obligación de solicitarlos al jefe de la oficina.

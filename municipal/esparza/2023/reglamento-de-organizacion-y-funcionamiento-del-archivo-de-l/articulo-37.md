@@ -1,0 +1,1 @@
+Artículo 37.-El sistema de clasificación de los documentos que se utilizará en la Municipalidad estará basado en la estructura orgánica, y podrá ser complementado con el Sistema "Funcional", el cual en primer lugar se identifican las funciones, procesos, actividades, tareas y procedimientos que dan origen a los documentos.

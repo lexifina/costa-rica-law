@@ -1,0 +1,1 @@
+Artículo 19.-El Archivo Central de la Municipalidad de Esparza contará con un plan de transferencias de los archivos de gestión a los archivos centrales, y de estos al Archivo Nacional, con su tipología documental, series perfectamente identificadas y plazos de transferencia, según las vigencias establecidas en las tablas de plazos de conservación de documentos.

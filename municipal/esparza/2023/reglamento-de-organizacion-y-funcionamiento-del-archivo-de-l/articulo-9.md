@@ -1,0 +1,1 @@
+Artículo 9°-La Municipalidad velará porque el Archivo cuente con el presupuesto necesario para adquirir cajas de cartón, cartulinas, marcadores, equipo, muebles y cualquier otro insumo necesario para el buen funcionamiento de este archivo.

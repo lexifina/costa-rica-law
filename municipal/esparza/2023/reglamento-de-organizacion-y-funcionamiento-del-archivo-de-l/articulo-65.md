@@ -1,0 +1,1 @@
+Artículo 65.-Este Reglamento deroga cualquier otra disposición municipal que se le oponga y, toda modificación total o parcial del mismo deberá ser publicada de conformidad con lo dispuesto en el Código Municipal.

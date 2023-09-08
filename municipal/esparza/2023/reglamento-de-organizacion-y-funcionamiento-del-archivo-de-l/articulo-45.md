@@ -1,0 +1,1 @@
+Artículo 45.-El CISED de la Municipalidad de Esparza, es el responsable de fijar la vigencia administrativa y legal de cada tipo o serie documental. La CNSED únicamente determinará cuáles documentos se consideran con valor científico-cultural y autorizará la eliminación de los documentos que carezcan de ese valor una vez caducada la vigencia administrativa y legal.

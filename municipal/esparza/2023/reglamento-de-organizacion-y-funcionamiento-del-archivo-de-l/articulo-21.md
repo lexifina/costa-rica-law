@@ -1,0 +1,1 @@
+Artículo 21.-Los Archivos de Gestión deberán enviar sus documentos en las fechas previamente establecidas por el Archivo Central de lo contrario no podrán remitir su documentación hasta que sea autorizado por el mismo.

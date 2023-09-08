@@ -1,0 +1,2 @@
+Artículo 12.-Los documentos y las comunicaciones suscritos en la Municipalidad, mediante firma digital, tendrán el mismo valor y la eficacia probatoria de su equivalente firmado en manuscrito. En cualquier norma jurídica que se exija la presencia de una firma, se reconocerá de igual manera tanto la digital como la manuscrita. Los documentos públicos electrónicos deberán llevar la firma digital certificada.
+Todo lo anterior de conformidad con lo dispuesto en el Reglamento de Uso de Certificados, Firma Digital y Documentos Electrónicos de la Municipalidad de Esparza.

@@ -1,0 +1,1 @@
+Artículo 60.-El funcionario que no realice la devolución de los documentos en el tiempo establecido o que no los custodie adecuadamente o que contribuya a su extravió o destrucción previa a los avisos de devolución extemporánea, se expone a sanción por parte de la persona titular de la Alcaldía de la Municipalidad, de acuerdo al Reglamento Interno de Trabajo.

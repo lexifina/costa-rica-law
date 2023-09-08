@@ -1,0 +1,1 @@
+Artículo 62.-En caso de que los documentos sean consultados por historiadores o por profesionales con el fin de elaborar investigaciones importantes, el Archivista solicitará una copia del trabajo para conservarlo en el Archivo y ponerlo a disposición de los usuarios. El profesional está obligado a entregar el documento final mediante una copia al Archivo Municipal.

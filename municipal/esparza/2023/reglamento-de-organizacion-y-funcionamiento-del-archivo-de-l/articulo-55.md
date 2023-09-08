@@ -1,0 +1,1 @@
+Artículo 55.-La persona titular de la Alcaldía de la Municipalidad, será quien determine cuando un documento será de consulta restringida, siempre y cuando obedezca a una resolución especial o ley que así lo determine y debidamente motivado.

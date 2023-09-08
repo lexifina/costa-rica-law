@@ -1,0 +1,1 @@
+Artículo 2°-El Archivo de la Municipalidad de Esparza se regirá por las presentes disposiciones reglamentarias y las que establece la Ley N° 7202, Ley del Sistema Nacional de Archivos, del 24 de octubre de 1990 y su reglamento N° 40554-C, del 8 de diciembre de 2017.

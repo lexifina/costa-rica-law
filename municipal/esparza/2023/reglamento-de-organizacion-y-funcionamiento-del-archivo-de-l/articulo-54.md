@@ -1,0 +1,1 @@
+Artículo 54.-Si las normas anteriores y las que se establezcan en el manual de procedimientos no se cumplen, el usuario podrá ser retirado de la sala de consulta, para lo cual el Archivista podrá hacer uso de los inspectores municipales y de la Fuerza Pública si fuera el caso.
