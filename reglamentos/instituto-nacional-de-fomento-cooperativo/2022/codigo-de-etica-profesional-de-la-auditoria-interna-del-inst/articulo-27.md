@@ -1,0 +1,1 @@
+Artículo 27.-Seguridad en sí mismo. El personal de Auditoría debe creer en su propia capacidad para lograr de una manera eficiente y efectiva las tareas asignadas, actuando acorde a las propias decisiones, opiniones, valores, así como con una clara conciencia del deber cumplido, el esfuerzo empleado y la rectitud de la intención para hacer o realizar su función.

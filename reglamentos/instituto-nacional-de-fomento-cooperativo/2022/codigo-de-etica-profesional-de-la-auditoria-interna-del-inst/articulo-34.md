@@ -1,0 +1,1 @@
+Artículo 34.-Discriminación. Se prohíbe la discriminación en el trabajo por razones de edad, etnia, sexo, religión, raza, orientación sexual, estado civil, opinión política, ascendencia nacional, origen social, filiación, discapacidad, afiliación sindical, situación económica o cualquier otra forma análoga de discriminación.

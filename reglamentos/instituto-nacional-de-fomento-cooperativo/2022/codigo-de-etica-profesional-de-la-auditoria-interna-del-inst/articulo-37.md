@@ -1,0 +1,2 @@
+Artículo 37.-Manejo de la información. Está prohibido al personal de la Auditoría Interna utilizar, en forma distinta a la requerida para el cumplimiento de su función, documentación física o digital de ésta, sin la debida autorización.
+Incurrirá en falta grave aquel funcionario de la Auditoría Interna que se aproveche de sus poderes y facultades de acceso a la información de las diferentes dependencias del Instituto y entes relacionados, para realizar o facilitar transacciones indebidas que puedan ocasionar irregularidades.

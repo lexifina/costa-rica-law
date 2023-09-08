@@ -1,0 +1,1 @@
+Artículo 42.-Confidencialidad de la información. Está totalmente prohibido revelar información sobre los servicios de la Auditoría Interna que se estén realizando y sobre aquello que determine una posible responsabilidad civil, administrativa o eventualmente penal de los funcionarios de los entes y órganos sujetos a la Ley General de Control Interno.
