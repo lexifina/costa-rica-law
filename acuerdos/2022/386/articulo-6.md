@@ -1,1 +1,0 @@
-Artículo 6°-Derogaciones. Se deroga la resolución publicada mediante acuerdo N° 015-2020-MGP las diez horas con treinta minutos del veintitrés de noviembre del dos mil veinte, publicada en La Gaceta N° 96, del 20 de mayo del 2021.
