@@ -1,0 +1,1 @@
+Transitorio I- El certificado de Buenas Prácticas de Manufactura solicitado en el numeral 11.5, 16.5, 18.9.2, 18.11.1, 18.16.3 del presente decreto, no será exigido hasta que a nivel nacional se cuente con un Reglamento de Buenas Prácticas de Manufactura para EMB.

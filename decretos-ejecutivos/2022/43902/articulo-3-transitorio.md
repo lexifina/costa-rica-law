@@ -1,0 +1,1 @@
+Transitorio III- Se otorgan seis meses a partir de la entrada en vigencia del reglamento para realizar un cambio post registro en el cual se debe presentar la etiqueta del producto, en caso de que no conste en el expediente de registro sanitario.
