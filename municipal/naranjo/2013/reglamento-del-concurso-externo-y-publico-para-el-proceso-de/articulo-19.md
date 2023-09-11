@@ -1,3 +1,6 @@
-Artículo 19.—Del refrendo de la Contraloría General República. Una vez concluido todo el proceso anterior, la Comisión Especial someterá ante la Contraloría General de la República el expediente del concurso, para que esta lo apruebe o impruebe.
-En caso de que la Contraloría apruebe el procedimiento, el expediente se traslada al Concejo Municipal para que proceda con el nombramiento del Auditor Interno, entre los candidatos elegibles de la terna.
-En caso de que la Contraloría impruebe el procedimiento, el mismo debe ser subsanado, rectificado o reiniciado, de conformidad con lo que al respecto señale en su momento, la Contraloría General de la República.
+Artículo 19.-Supuestos de Exclusión del Proceso de Concurso:
+Son los siguientes:
+a) No presentar en el plazo, forma y lugar las Ofertas de Postulación o que éstas se encuentren incompletas, según lo dispuesto en el presente Reglamento.
+b) No demostrar el cumplimiento de los requisitos mínimos establecidos para ocupar el puesto de Auditor (a) Interno (a) de la Municipalidad de Naranjo.
+c) No presentarse a la hora, lugar y fecha en la que se le convocó y/o autoriza a realizar las pruebas y entrevistas.
+d) Obtener una nota inferior a 70 puntos, como resultado de la ponderación de todos los predictores evaluados en el proceso.

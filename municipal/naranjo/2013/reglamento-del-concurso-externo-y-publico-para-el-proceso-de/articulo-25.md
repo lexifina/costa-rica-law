@@ -1,1 +1,1 @@
-Artículo 25.—Fin del nombramiento. En caso de inconformidad con el nombramiento realizado, antes de que finalice el período de prueba se cesa el nombramiento debidamente justificado, y se deberá proceder con un nuevo nombramiento de entre los candidatos elegibles de la terna, o registro de elegibles según corresponda.
+Artículo 25.-Nombramiento por Inopia Comprobada. Este tipo de nombramiento regirá y aplicará según los dispuesto en los Lineamientos de la CGR.

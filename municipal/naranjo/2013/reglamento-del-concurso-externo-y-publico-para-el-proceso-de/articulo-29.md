@@ -1,0 +1,1 @@
+Artículo 29.-Nombramiento en Firme: Una vez superado el período de prueba y en el supuesto de aceptación, el Concejo Municipal procederá con su nombramiento en firme como Auditor (a) Interno (a) por plazo indefinido de la Municipalidad de Naranjo.

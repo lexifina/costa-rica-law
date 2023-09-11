@@ -1,1 +1,5 @@
-Artículo 14.—Verificación de la información. La comisión deberá corroborar los antecedentes laborales de los oferentes, para lo cual podrá pedir referencias de trabajos anteriores. Igualmente, se reserva el derecho de solicitar la documentación original que considere pertinente para verificar la información suministrada por los oferentes, por ejemplo: originales de títulos, certificaciones de antecedentes judiciales o similares.
+Artículo 14.-Requisitos Mínimos del Puesto: Los requisitos mínimos exigidos para ocupar el puesto de Auditor (a) Interno (a) son:
+a) Título universitario de Licenciatura en Contaduría Pública o similar.
+b) Incorporación al colegio profesional respectivo.
+c) Experiencia laboral mínima de tres (3) años en el ejercicio de la auditoría interna o externa, en el sector público o privado.
+d) Experiencia laboral de al menos 2 años en supervisión y dirección de personal.

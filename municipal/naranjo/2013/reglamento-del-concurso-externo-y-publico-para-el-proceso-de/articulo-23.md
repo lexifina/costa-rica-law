@@ -1,1 +1,1 @@
-Artículo 23.—Período de prueba. Una vez nombrado en el puesto el nuevo Auditor queda sujeto al período de prueba por tres meses, pasado el cual, el Concejo informará a la Contraloría, su aceptación o inconformidad con el desempeño del funcionario.
+Artículo 23.-Resolución de Desacuerdos, Reclamos y/o Consultas: Los desacuerdos, reclamos y/o consultas que personas concursantes interpongan en cualquiera de las fases del proceso, deberán ser resueltas antes de remitir a la CGR la solicitud de aprobación de la terna o nómina respectiva y del proceso como tal.

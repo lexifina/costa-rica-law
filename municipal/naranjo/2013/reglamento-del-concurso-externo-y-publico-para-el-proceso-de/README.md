@@ -14,3 +14,4 @@ Reglamento del concurso externo y público para el proceso de selección y nombr
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-12-19 | la propia norma |
+| 2 | 2023-09-11 | Reglamento municipal 37 (2023-09-11) |

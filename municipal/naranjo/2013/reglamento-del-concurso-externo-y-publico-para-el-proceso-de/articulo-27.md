@@ -1,4 +1,1 @@
-Artículo 27.—Rige a partir de su publicación. Acuerdo definitivamente aprobado por el Concejo Municipal de Naranjo, en su sesión ordinaria Nº 45 capítulo N°, 9 artículo N° 25 del día 4 de noviembre del 2013. Por lo tanto:
-Se solicita se tome el acuerdo de aprobación del “Reglamento del Concurso Público para la Elección y Nombramiento del Auditor Interno de la Municipalidad de Naranjo.
-Por Concejo Municipal de Naranjo, suscribe: Gabriela Sandoval Espinoza, Secretaria Interina.
-Naranjo, 4 de noviembre del 2013.
+Artículo 27.-Recursos contra el Nombramiento de Auditor (a) Interno (a): El acuerdo de nombramiento de Auditor (a) Interno (a) realizado por el Concejo Municipal, está sujeto a los recursos ordinarios (revocatoria y apelación), en los términos dispuestos por los artículos 162, 163, 165 del Código Municipal.

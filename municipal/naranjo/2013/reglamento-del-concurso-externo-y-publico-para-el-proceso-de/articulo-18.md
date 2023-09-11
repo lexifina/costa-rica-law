@@ -1,1 +1,1 @@
-Artículo 18.—En caso de Nombramiento por inopia. Se aplicara el lineamiento dispuesto en el artículo 3.6. de la resolución R-CO-91-2006, de la Contraloría General de la República.
+Artículo 18.-Plazo, Lugar y Medio para la Presentación de la Oferta de Postulación: El plazo para presentar las Ofertas de Postulación será de 15 días hábiles contados a partir de la publicación del anuncio del concurso. Las ofertas se presentarán conforme lo dispuesto en el artículo 10, Fase I del presente Reglamento.
