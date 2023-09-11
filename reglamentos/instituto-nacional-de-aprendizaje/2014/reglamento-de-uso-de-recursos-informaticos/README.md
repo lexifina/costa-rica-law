@@ -14,3 +14,4 @@ Reglamento de uso de recursos informáticos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-07-18 | la propia norma |
+| 2 | 2023-09-11 | Reglamento 36 (2023-09-11) |

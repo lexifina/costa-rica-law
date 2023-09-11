@@ -1,10 +1,7 @@
-Artículo 33.—Faltas graves. Se considera faltas graves el incumplimiento de los siguientes puntos y se le aplicará lo estipulado en el artículo 49 del Reglamento Autónomo de Servicios del Instituto Nacional de Aprendizaje.
-• Artículo 4: prohibiciones de las personas usuarias en el uso y seguridad de los recursos informáticos, incisos 1, 2, 3, 4, 5, 6, 7, 8, 9 y 10.
-• Artículo 8: prohibiciones de las personas usuarias en el uso de las contraseñas, incisos 1, 2, 3 y 4.
-• Artículo 13: prohibiciones de las personas usuarias en el uso de internet, incisos 1, 2, 3, 4, 5 y 6.
-• Artículo 15: prohibiciones de las personas usuarias en el servicio de correo electrónico, incisos 1, 2, 3, 4, 5, 6, 7 y 8.
-• Artículo 17: prohibiciones de las personas usuarias en el control de virus y software malicioso, inciso 1.
-• Artículo 22: prohibiciones de la persona usuaria en la privacidad y protección de la información, incisos 1 y 2.
-• Artículo 24: prohibiciones de la persona usuaria para garantizar la seguridad física y ambiental, incisos 1, 2, 3 y 4.
-• Artículo 29: prohibiciones de la persona usuaria en la manipulación y destrucción de datos, inciso 1.
-• Artículo 31: prohibiciones del ARI en las solicitudes de servicio, incisos 1 y 2.
+Artículo 33.-Faltas graves. Se considera falta grave el incumplimiento a cualquier obligación, deber y/o responsabilidad dispuesta en el presente reglamento, específicamente el incumplimiento de los artículos 4, incisos 6, 7, 8, 9, 10, 11, 14 y 15, artículo 8, incisos 1, 2, 3, 4, artículo 13, incisos 2, 3, 4, 5, 6, artículo 15, incisos 3, 4, 5, 6, 7, 8, 9, 10, 11 y 12, artículo 22, incisos 1, 2, 3, artículo 24, incisos 1, 2, 3, 4, artículo29, incisos 1 y 2, artículo 31, incisos 1 y 2 del presente reglamento.
+Las faltas graves se sancionarán de la siguiente forma:
+a) Por una, con suspensión sin goce de salario de uno a cinco días.
+b) Por dos, con suspensión sin goce de salario de seis a diez días.
+c) Por tres, con suspensión de goce de salario de once a quince días.
+d) Por cuatro, despido sin responsabilidad patronal.
+e) Esas sanciones se aplicarán sin perjuicio de que, si las faltas lo ameriten, se imponga una sanción mayor.

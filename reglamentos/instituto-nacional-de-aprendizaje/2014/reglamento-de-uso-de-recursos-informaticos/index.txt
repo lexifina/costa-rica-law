@@ -32,4 +32,3 @@ articulo-31.md
 articulo-32.md
 articulo-33.md
 articulo-34.md
-articulo-35.md

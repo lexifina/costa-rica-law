@@ -1,12 +1,11 @@
 CAPÍTULO XIII
-Régimen Disciplinario
-El presente reglamento concuerda con las leyes vigentes de la República de Costa Rica, sancionará a toda aquella persona usuaria que incumpla lo dispuesto en este Reglamento. Las sanciones serán impuestas según las disposiciones contenidas en el artículo 70 y siguientes del Reglamento Autónomo de Servicios del INA.
-Artículo 32.—Faltas leves. Se considera falta leve el incumplimiento a cualquier obligación, deber y/o responsabilidad dispuesta en el presente reglamento. El incumplimiento de los puntos establecidos en los siguientes artículos e incisos; se le aplicará lo estipulado en el artículo 48 del Reglamento Autónomo de Servicios del Instituto Nacional de Aprendizaje.
-• Artículo 4: prohibiciones de las personas usuarias en el uso y seguridad de los recursos informáticos, incisos 1, 2, 3, 4 y 5.
-• Artículo 13: prohibiciones de las personas usuarias en el uso de internet, inciso 1.
-• Artículo 15: prohibiciones de las personas usuarias en el servicio de correo electrónico, incisos 1, 2,3 y 4.
-• Artículo 17: prohibiciones de las personas usuarias en el control de virus y software malicioso, incisos 1, 2 y3.
-• Artículo 21: prohibiciones de la persona usuaria en el uso del escritorio y pantalla limpia, incisos 1, 2 y 3.
-• Artículo 22: prohibiciones de la persona usuaria en la privacidad y protección de la información, inciso 1.
-• Artículo 24: prohibiciones de la persona usuaria para garantizar la seguridad física y ambiental, inciso 1.
-• Artículo 29: prohibiciones de la persona usuaria en la manipulación y destrucción de datos, inciso 1.
+Régimen disciplinario
+El presente reglamento concuerda con las leyes vigentes de la república de Costa Rica, sancionará a toda aquella persona usuaria que incumpla lo dispuesto en este Reglamento. Cuyo debido proceso seguirá las regulaciones contenidas en el Reglamento Autónomo de Servicios del INA.
+Artículo 32.-Faltas leves. Se considera falta leve el incumplimiento a cualquier obligación, deber y/o responsabilidad dispuesta en el presente reglamento, específicamente el incumplimiento de los artículos 4, inciso 1, 2, 3, 4, 5, 12, 13, artículo 13, incisos 1 y 7, artículo 15, incisos 1 y 2, artículo 17, incisos 1, 2, 3, 4, artículos 21, incisos 1, 2, 3, Artículo 22, inciso 1, artículo 24, inciso 1, y el artículo 29, inciso 1 del presente reglamento.
+Las faltas leves se sancionarán de la siguiente forma:
+a) Por la primera, con amonestación escrita si a juicio de la jefatura no resulta aplicable el apercibimiento verbal.
+b) Por la segunda, con una suspensión sin goce de salario de uno a cinco días.
+c) Por la tercera, con una suspensión sin goce de salario de seis a diez días.
+d) Por la cuarta, con una suspensión sin goce de salario de once a quince días.
+e) Por las demás, con el despido sin responsabilidad patronal.
+f) Esas sanciones se aplicarán sin perjuicio de que, si las faltas lo ameriten, se imponga una sanción mayor.

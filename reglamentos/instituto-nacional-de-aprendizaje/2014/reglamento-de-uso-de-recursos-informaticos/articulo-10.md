@@ -1,3 +1,5 @@
-Artículo 10.—Deberes de la URH .Son deberes de la URH en el uso de las contraseñas:
+Artículo 10.-Deberes de la Unidad de Recursos Humanos. Son deberes de la Unidad de Recursos Humanos en el uso de las contraseñas:
 1. Comunicar inmediatamente a la USIT la finalización del contrato de una persona funcionaria para que procedan a la eliminación de los privilegios.
-2. Informar de manera inmediata a la USIT cuando una persona funcionaria del INA está en periodo de vacaciones, incapacidad o por cualquier otro motivo se ausentara por un periodo igual o superior a 10 días hábiles, para gestionar la inhabilitación de todo acceso a los sistemas de información institucional.
+2. Informar de manera formal y oportuna a la USIT, cuando se deba inhabilitar el acceso a los recursos informáticos a un usuario por cualquiera de los lineamientos definidos por la Unidad de Recursos Humanos.
+3. Comunicar inmediatamente a la USIT el traslado de una persona funcionaria para que procedan a la eliminación de los privilegios.
+4. Comunicar a la USIT acerca de la contratación de cualquier persona funcionaria, debiendo enviar el nombre de la persona usuaria, fecha de ingreso, nombre del puesto, lugar de trabajo, para que se proceda con la creación del perfil de usuario.
