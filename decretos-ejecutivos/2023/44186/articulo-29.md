@@ -1,0 +1,1 @@
+Artículo 29.-Costos estimados. Los costos estimados de cada una de las estrategias de intervención propuesta a nivel de red deberán considerar costos de insumos, materiales, maquinaria, mano de obra y sus rendimientos asociados.

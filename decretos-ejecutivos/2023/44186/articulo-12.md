@@ -1,0 +1,1 @@
+Artículo 12.-Rectoría Técnica. Corresponderá al MOPT ejercer la rectoría técnica sobre la RVNL, en observancia con lo establecido en el inciso a) de la Ley N° 3155 del 5 de agosto de 1963 y sus reformas o la normativa que lo sustituya.

@@ -1,0 +1,1 @@
+Artículo 2º-Alcance. Este reglamento es aplicable al ámbito de las actividades de gestión de las intervenciones de conservación, construcción y mejoramiento de la RVNL a cargo del Ministerio de Obras Públicas y Transportes y el Consejo Nacional de Vialidad que intervengan en dichas actividades. Sin perjuicio de lo establecido en otra normativa nacional vigente.

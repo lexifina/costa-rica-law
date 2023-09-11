@@ -1,0 +1,2 @@
+Artículo 26.-Etapa de definición de estrategias de intervención. Una vez determinada la condición de la RVNL, de acuerdo con los criterios establecidos en los artículos 23 y 24 de este reglamento, se deben establecer las estrategias de intervención requeridas y los costos relacionados.
+Las estrategias se deberán clasificar en: mantenimiento de preservación, mantenimiento de recuperación funcional, rehabilitación, reconstrucción, mejoramiento y construcción.

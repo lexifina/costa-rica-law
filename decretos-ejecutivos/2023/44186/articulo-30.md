@@ -1,0 +1,1 @@
+Artículo 30.-Etapa de elaboración del plan estratégico. Para la elaboración del plan estratégico se utilizarán como insumos los resultados obtenidos de las etapas anteriores definidas en este capítulo y de acuerdo con lo establecido en el artículo 17 de este reglamento sobre el plan estratégico.

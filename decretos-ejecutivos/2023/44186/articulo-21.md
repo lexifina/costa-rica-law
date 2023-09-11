@@ -1,0 +1,1 @@
+Artículo 21.-Componentes fundamentales del enfoque de nivel red. La gestión a nivel red debe contar con los siguientes componentes fundamentales: inventario, evaluación de la condición, registro histórico del desempeño de las vías y de las intervenciones, lista de priorización de proyectos, datos ambientales, costos y retroalimentación.

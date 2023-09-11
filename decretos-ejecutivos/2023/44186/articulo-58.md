@@ -1,0 +1,1 @@
+Artículo 58.-Plazo para las modificaciones internas a nivel institucional. A partir de la publicación del presente reglamento se contará con un plazo de 24 meses, para proceder a realizar las modificaciones pertinentes a los procesos, procedimientos y metodologías institucionales a efectos de implementar lo estipulado en el presente Reglamento.

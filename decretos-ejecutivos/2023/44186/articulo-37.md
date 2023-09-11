@@ -1,0 +1,1 @@
+Artículo 37.-Retroalimentación. Todos los cambios que se produzcan dentro de la RVNL, debido a las gestiones que se realizan, deben actualizarse dentro de todo el sistema de gestión a nivel red y las herramientas creadas para este fin por parte del MOPT y CONAVI.

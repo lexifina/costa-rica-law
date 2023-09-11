@@ -1,0 +1,1 @@
+Artículo 32.-Etapa de elaboración del plan operativo. Para la elaboración del plan operativo se utilizarán como insumos los resultados obtenidos de las etapas anteriores definidas en este capítulo y de acuerdo con lo establecido en el artículo 19 de este reglamento en relación con el plan operativo.
