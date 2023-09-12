@@ -1,0 +1,12 @@
+N° 44194-MJP
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE JUSTICIA Y PAZ
+Con fundamento en lo dispuesto en los artículos 140, inciso 18) y 146 de la Constitución Política, en el artículo 32 de la Ley de Asociaciones N° 218 del 8 de agosto de 1939 y los artículos 27 y siguientes del Reglamento a la Ley de Asociaciones N° 29496-J, publicado en La Gaceta N° 96 del 21 de mayo del 2001, así como lo establecido en el artículo 3, inciso ch) de la Ley de Impuesto sobre la Renta N° 7092 y en los artículos 103 y 104 de Código de Normas y Procedimientos Tributarios N° 4755.
+Considerando:
+I.-Que el artículo 32 de la Ley de Asociaciones N° 218 de 8 de agosto de 1939 y sus reformas, confiere al Poder Ejecutivo la potestad de declarar de utilidad pública a las asociaciones simples, federadas o confederadas, cuyo desarrollo y actividades sean particularmente útiles para los intereses del Estado y que por ello contribuyan a solventar una necesidad social.
+II.-Que la Asociación Pro Ayuda al Adulto Mayor de Upala, cédula de persona jurídica número 3-002-188039, se inscribió en el Registro de Asociaciones del Registro Público en fecha 29 de abril de 2005, bajo el tomo 398, asiento 7780.
+III.-Que los fines que persigue la Asociación, según sus estatutos son: "A) Crear una institución de carácter privado sin fines de lucro que velará en forma integral por la persona de la tercera edad del cantón de Upala y lugares circunvecinos, así como también personas de cualquier parte del país que sea recomendado por el Consejo Nacional del Adulto Mayor según la ley N° siete mil novecientos treinta y cinco. B) Desarrollar todo tipo de actividades que permitan al anciano permanecer en la medida de sus posibilidades en actividades físicas y mental en establecimiento de fisioterapia ocupacional, terapia recreativa y actividades culturales. C) Promover ante las familias y la comunidad una actitud de reconocimiento atención, respeto y comprensión para personas que se encuentran dentro de la tercera edad."
+IV.-Que tales fines solventan una necesidad social de primer orden, por lo cual merecen el apoyo del Estado costarricense. Por tanto;
+Decretan:
+DECLARATORIA DE UTILIDAD PÚBLICA DE LA ASOCIACIÓN PRO AYUDA AL ADULTO MAYOR DE UPALA
+Artículo 1°-Declárese de utilidad pública para los intereses del Estado la Asociación Pro Ayuda al Adulto Mayor de Upala, cédula de persona jurídica número 3-002188039.
