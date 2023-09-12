@@ -1,0 +1,6 @@
+ENTE COSTARRICENSE DE ACREDITACIÓN
+AVISO
+2023-004.-El Ente Costarricense de Acreditación (ECA), en cumplimiento de la Ley 8279 Ley del Sistema Nacional de la Calidad, da a conocer la modificación de los documentos:
+ECA-MP-P09 Emisión del Certificado de Acreditación, pasa de versión 06 a versión 07, ECA-MC-MA-P06 Verificación/ aprobación de declaraciones de cumplimiento y emisión de notas técnicas, pasa de versión 07 a versión 08. Los documentos descritos anteriormente se encuentran a disposición de los interesados en la página electrónica http:// www.eca.or.cr/; así mismo puede solicitar el envío de manera electrónica o solicitar gratuitamente una copia no controlada en la Gestoría de Calidad en las oficinas centrales del ECA ubicadas en San José, Barrio Don Bosco, avenida 02 y calle 32, contiguo a la Embajada de España, en horario de lunes a viernes de 8 h a 16 h. única vez.
+San José, 04-04-2023.-
+(Nota de Sinalevi: Por tener articulado propio el ECA-MP-P09 Emisión del Certificado de Acreditación, pasa de versión 06 a versión 07, ECA-MC-MA-P06 Verificación/ aprobación de declaraciones de cumplimiento y emisión de notas técnicas, pasa de versión 07 a versión 08 deben consultarse en el sistema de forma independiente)
