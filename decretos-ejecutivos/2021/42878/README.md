@@ -14,3 +14,4 @@ Oficializa y declara de interés público la Política Nacional de Cuidados 2021
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-04-09 | la propia norma |
+| 2 | 2023-09-12 | Decreto Ejecutivo 44242 (2023-09-12) |
