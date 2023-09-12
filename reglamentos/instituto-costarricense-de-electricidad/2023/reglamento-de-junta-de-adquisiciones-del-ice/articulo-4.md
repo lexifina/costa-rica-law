@@ -1,1 +1,3 @@
-Artículo 4°.- (Nota de Sinalevi: En la publicación de este reglamento no aparece este artículo. No obstante el sistema exige una numeración consecutiva por lo que se ha creado el mismo pero sin texto)
+Artículo 4°. Abreviaturas y Siglas.
+ICE: Instituto Costarricense de Electricidad Junta: Junta de Adquisiciones ICE Artículo 5°.
+(Así reformado mediante publicación en La Gaceta N° 167 del 12 de setiembre del 2023)

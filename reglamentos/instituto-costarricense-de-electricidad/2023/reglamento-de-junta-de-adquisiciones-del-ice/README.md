@@ -14,3 +14,4 @@ Reglamento de Junta de Adquisiciones del ICE
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-06-29 | la propia norma |
+| 2 | 2023-09-12 | Reglamento 0 (2023-09-12) |
