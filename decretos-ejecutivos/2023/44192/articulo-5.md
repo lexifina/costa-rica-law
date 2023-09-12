@@ -1,0 +1,1 @@
+Artículo 5º-Cuando el monto asignado se tome de los ingresos anuales del INA, corresponderá a este último efectuar directamente las transferencias a cada Junta Administrativa, según los montos que le notifique la Comisión.

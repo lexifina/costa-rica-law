@@ -1,0 +1,1 @@
+Artículo 3º-Los Ministerios de Educación Pública y de Hacienda decidirán a más tardar en el mes de junio del año inmediato anterior al desembolso, si el 6% será tomado del superávit acumulado o bien de los ingresos anuales del INA.

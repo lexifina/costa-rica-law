@@ -1,0 +1,8 @@
+Artículo 9º-La Comisión tendrá las siguientes funciones:
+a) Indicar al Ministerio de Educación Pública, el monto por girar a cada centro educativo y a la Junta Administrativa.
+b) Solicitar al Instituto Nacional de Aprendizaje (INA) a más tardar la primera semana de noviembre, certificación sobre el monto equivalente al 6% del presupuesto anual ordinario del INA, del año inmediato siguiente.
+c) Solicitar a los centros educativos los planes de inversión propuestos en el Plan de Desarrollo Quinquenal aprobado para el año siguiente, a más tardar el mes de diciembre, con base en el monto comunicado en ese año.
+d) Aprobar o improbar el Plan Operativo del Plan de Desarrollo Quinquenal y/o Plan de Inversión de los centros educativos a más tardar en el mes de agosto de cada año.
+e) Mantener un registro actualizado de información sobre cada Colegio Técnico Profesional (CTP), Instituto Profesional de Educación Comunitaria (IPEC), Centro Integrado de Educación de Adultos (CINDEA) que imparten especialidades técnicas aprobadas por el Ministerio de Educación Pública (MEP). Dicho registro deberá contener información referente a especialidad, los proyectos de inversión y de unidades didácticas productivas (UDP), pudiendo recurrir a cualquiera de las oficinas del Ministerio de Educación Pública quiénes deberán facilitar dicha información.
+f) Conocer las evaluaciones periódicas realizadas por el Ministerio de Educación Pública, sobre la eficiencia y eficacia de las inversiones realizadas por los centros educativos con los recursos provenientes de la Ley N°7372.
+g) Coordinar con el INA y con el Ministerio de Hacienda las acciones administrativas pertinentes, para dar cabal cumplimiento en lo expuesto en la Ley N°7372.

@@ -1,0 +1,3 @@
+CAPITULO II
+De la Comisión.
+Artículo 6º-De conformidad con lo establecido en el Artículo 3 de Ley N°7372, existirá una Comisión que integrará el Ministerio de Educación Pública, con el propósito de que defina los montos por girar a cada una de las Juntas Administrativas de los Colegios Técnicos Profesionales (CTP), Institutos Profesionales de Educación Comunitaria (IPEC), Centros Integrados de Educación de Adultos (CINDEA), que imparten especialidades técnicas aprobadas por el Ministerio de Educación Pública, incluso al Colegio Vocacional de Artes y Oficios de Cartago, al Colegio Técnico Don Bosco, al Colegio Agropecuario de San Carlos.

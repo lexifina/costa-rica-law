@@ -1,0 +1,1 @@
+Artículo 23.-El resultado de los auditorajes que lleve a cabo el Ministerio de Educación Pública, serán puestos en conocimiento de la Comisión, sin perjuicio de las potestades de los demás órganos y entidades competentes.

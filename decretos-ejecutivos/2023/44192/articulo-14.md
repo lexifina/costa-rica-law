@@ -1,0 +1,1 @@
+Artículo 14.-La Comisión Nacional de la Ley N°7372 se reunirá ordinariamente una vez cada dos meses y extraordinariamente cuando lo solicite el Ministro (a) de Educación Pública o su representante, quien preside la Comisión.
