@@ -20,3 +20,5 @@ q) Procedimiento para el control y registro de asistencia, llegadas tardías y a
 r) Reclamos y licencias con y sin goce de salario.
 s) Regulaciones sobre el uso de Internet, correo electrónico y redes sociales, cuando sea aplicable.
 t) Otras disposiciones particulares propias de la naturaleza del negocio.
+u) Los permisos para que las personas trabajadoras que tengan bajo su responsabilidad la asistencia y/o cuidados de personas en situación de dependencia, y al menos hasta segundo grado de consanguinidad, puedan acompañarlas a citas de atención de salud u otras de emergencia.
+(Así adicionado el inciso anterior por el artículo 29 inciso a) del Reglamento a la Ley Creación del Sistema Nacional de Cuidados y Apoyos para Personas Adultas y Personas Adultas Mayores en Situación de Dependencia (Sinca), aprobado mediante decreto ejecutivo N° 44242 del 12 de setiembre del 2023)

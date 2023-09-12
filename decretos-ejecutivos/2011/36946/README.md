@@ -15,3 +15,4 @@ Reglamento para el trámite de revisión y aprobación de los Reglamentos intern
 | --- | --- | --- |
 | 1 | 2012-01-25 | la propia norma |
 | 2 | 2013-02-11 | Decreto Ejecutivo 37620 (2013-02-11) |
+| 3 | 2023-09-12 | Decreto Ejecutivo 44242 (2023-09-12) |
