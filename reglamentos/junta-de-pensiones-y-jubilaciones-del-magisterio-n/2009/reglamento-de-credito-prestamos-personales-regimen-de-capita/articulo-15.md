@@ -1,5 +1,3 @@
-Artículo 15.-Limitaciones de alcance General.
-a) No se aceptan como garantías hipotecarias, terrenos que se encuentren en período de convalidación, que estén ubicados en zonas de alto riesgo, los nichos en cementerios, así como bienes ubicados en barrios conflictivos o con deseabilidad media baja o baja, según el criterio del perito que realice el estudio de valoración de la propiedad. JUPEMA se reserva el derecho de rechazar cualquier garantía propuesta por el solicitante, en procura de salvaguardar los intereses de la Institución.
-b) Los arreglos de pago que se realicen deberán ser aprobados por el Departamento de Crédito y Cobro, considerando la capacidad de pago para atender los términos del tipo de arreglo recomendado por la Unidad de Cobro para cada caso, según se indica en el P14- IT-037 Instructivo de Arreglos de pago del RCC y RTR.
-c) No se aceptan como deudores o fiadores aquellos que tengan operaciones declaradas incobrables en JUPEMA, ni aquellos quienes hayan cancelado la deuda por medio del uso del Seguro de Caución.
-(Así reformado en sesión N° 0016 del 8 de febrero de 2023)
+Artículo 15.-Cobro administrativo y judicial
+En caso de morosidad, se inicia el trámite de cobro administrativo y judicial, de conformidad con los términos indicados en el Procedimiento de la Unidad de Cobro, según el P14-PR-013 Procedimiento Cobro de créditos del RCC y RTR y P14-IT038 Cobro Judicial e Incobrables RCC y RTR.
+(Así reformado en sesión ordinaria N° 0101-2023 del 13 de setiembre de 2023)

@@ -1,5 +1,5 @@
-Artículo 11.—Del cobro de los créditos: La cuota del crédito, así como los montos por concepto de pólizas y seguros, retenidas por los patronos a sus trabajadores mediante deducción de planilla, deben ser pagados ante JUPEMA en forma mensual junto con el pago de las planillas por concepto de cuotas obrero patronal que se debe cancelar en los primeros diez días hábiles del mes.
-En el caso de los trabajadores del Ministerio de Educación, se deduce de su giro quincenal la cuota correspondiente, previa autorización escrita de éste al formalizarse el crédito, así como en el pagaré.
-Para efectos de cobro de intereses moratorios, se cobra a partir del primer día hábil del mes, siendo equivalente a la tasa de interés corriente del crédito más un 30%, según lo establecido en el Artículo 498 del Código de Comercio.
-En el caso de los jubilados y pensionados se deduce de su giro de pensión.
-Se exceptúan los casos en que la deducción no se pueda aplicar por motivos ajenos a JUPEMA, siempre y cuando esta situación se haya generado con posterioridad a la formalización del crédito. En estos casos, el deudor queda obligado a pagar las cuotas oportunamente en las oficinas de JUPEMA o por transferencia bancaria.
+Artículo 11.-Desembolso
+El giro de los préstamos se realiza a nombre del solicitante del crédito, puede realizarse el depósito a través de transferencia bancaria o por medio de cheque.
+En el caso de las refundiciones de deudas y otros pagos, los cheques o transferencias con las que se cancelen operaciones deben girarse a nombre de las instituciones correspondientes.
+En el caso de la Línea de Salud y de Gastos Funerarios, los desembolsos son girados a nombre del beneficiario, o directamente a nombre de la persona u organización que prestó o presta el servicio o que le es cancelada la deuda pendiente, según sea la naturaleza o la finalidad del crédito.
+(Así reformado en sesión ordinaria N° 0101-2023 del 13 de setiembre de 2023)

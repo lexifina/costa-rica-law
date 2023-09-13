@@ -1,2 +1,3 @@
-Artículo 17.-Vigencia. Rige a partir de su publicación.
-(Así reformado mediante Sesión Ordinaria N° 0117-2021del 19 de octubre de 2021)
+Artículo 17.-Pagos extraordinarios y cancelaciones anticipadas
+El deudor, fiador o codeudor puede realizar pagos extraordinarios al crédito, o cancelar en forma anticipada el préstamo, sin que por ello deba pagar comisión alguna, salvo los intereses, seguros y cargos generados al momento de la cancelación. Se exceptúan de este beneficio los créditos otorgados bajo condiciones especiales y en los que JUPEMA haya asumido o exonerado algún pago, por un plazo de 2 años contados a partir de la formalización del crédito, si se realiza algún pago durante este periodo se cobra un monto equivalente al 2% del pago recibido.
+(Así reformado en sesión ordinaria N° 0101-2023 del 13 de setiembre de 2023)
