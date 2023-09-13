@@ -1,0 +1,1 @@
+Artículo 27-(Nota de Sinalevi: En la publicación de este reglamento municipal, no aparece este texto. No obstante; el sistema exige una numeración consecutiva por lo que se ha credo el mismo pero sin texto.)

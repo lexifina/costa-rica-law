@@ -1,0 +1,15 @@
+Artículo 23.-Restricciones en el uso del mobiliario: Con relación al uso del mobiliario urbano se establecen las siguientes limitaciones:
+a) Bancas:
+i. No se permite el uso de las bancas de forma contraria a su normal utilización, ni actos que perjudiquen o deterioren su conservación, está prohibido arrancarlas cuando estén fijadas por cualquier mecanismo al suelo, trasladar aquellas que no estén fijadas al suelo, agruparlas de forma desordenada, escribir en ellas, rayarlas, pintarlas o ensuciarlas, etc.
+ii. En ningún caso este mobiliario podrá ser usado para realizar actividades mercantiles, ni de ningún otro interés privado.
+b) Juegos infantiles:
+i. Se deberá respetar el rango de edad permitida para cada juego de acuerdo a lo que se indique en la señalización que al respecto se establezca, no permitiéndose su utilización por personas adultas, o menores fuera de la edad permitida para cada juego en particular.
+ii. Tampoco se permitirá el uso de los juegos de forma diferente al destino para el cual han sido diseñados, ni que ponga en riesgo la integridad física de las personas usuarias y la buena conservación de los juegos. Es responsabilidad única y exclusiva de las personas encargadas, velar por la seguridad de las personas menores de edad cuando estas hacen uso de los equipamientos y juegos infantiles existentes en estos espacios públicos.
+iii. No está permitida la apropiación, ni sacar provecho económico, o de otro tipo, por el uso de dichos juegos.
+c) Basureros:
+i. Los residuos sólidos deberán depositarse en los basureros establecidos para tal fin. En caso de no existir estos basureros, ello no autoriza para que los mismo sean lanzados por las personas usuarias, quienes deberán recoger los residuos que generen y disponer adecuadamente de ellos.
+ii. Las personas usuarias no podrán manipular de ninguna forma los basureros, moverlos, incendiarlos, volcarlos y arrancarlos, tampoco les está permitido hacer inscripciones, grafitis, pinturas, pegar publicidad de cualquier tipo en los mismos, o adherir pegamentos, rotulaciones u otros actos que deterioren, su decoración o funcionalidad.
+d) Señalizaciones, faroles, estatuas y elementos decorativos: En estos elementos de mobiliario urbano no se permitirá trepar, subirse, columpiarse, pintar, escribir, colgar avisos, propaganda, o realizar cualquier acto que ensucie, perjudique, deteriore o menoscabe su uso.
+e) Otros:
+i. No se permitirá la manipulación o el uso de forma distinta al funcionamiento normal por parte de las personas usuarias de cualquier cañería, instalaciones eléctricas, equipos de video vigilancia, servicio de telecomunicaciones, alcantarillas sanitarias o pluviales, o cualquier otro servicio instalado en todos los inmuebles que sean propiedad o poseídos por esta municipalidad, indistintamente del uso o naturaleza que estos tengan.
+ii. No se permitirá a las personas usuarias dar uso distinto, o utilizar como baño, las fuentes de agua decorativas, surtidoras, bocas de riego y elementos complementarios a dichos servicios.

@@ -1,0 +1,3 @@
+CAPÍTULO IV
+De las infracciones y sanciones
+Artículo 29.-Acciones de la autoridad: la Fuerza Pública, la Policía Municipal, así como todas las personas funcionarias que para tales fines designe la Municipalidad, contarán con el respaldo municipal y podrán realizar los partes e informes correspondientes sobre los comportamientos impropios de las personas visitantes y usuarias de todos los inmuebles que sean propiedad o estén en posesión de esta municipalidad, incluso y cuando así corresponda ante la gravedad de los hechos o infracciones a este Reglamento y demás normas concordante, interpondrán las denuncias que resulten necesarias ante el órgano jurisdiccional competente.

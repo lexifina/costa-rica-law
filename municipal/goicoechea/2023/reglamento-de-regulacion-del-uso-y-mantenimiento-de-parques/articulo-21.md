@@ -1,0 +1,9 @@
+Artículo 21.-Protección del entorno: En orden a la protección de la estética, ambiente, tranquilidad, sosiego y decoro, que es propio de la naturaleza de los parques, jardines y zonas verdes, se observaran las prescripciones que contienen los siguientes incisos respecto a los usos y actividades que se contemplan en los mismos. Son absolutamente prohibidos los siguientes actos:
+a) Causar molestias o daños a las personas.
+b) Causar daños y deterioros a las plantas, árboles, bancas, máquinas de ejercicio, baños públicos, fuentes de agua y demás elementos decorativos, del mobiliario urbano que permita el uso y disfrute de esos inmuebles en parques y demás espacios públicos a los que refiere este reglamento.
+c) Impedir o dificultar de forma alguna, la accesibilidad y el libre tránsito de personas desde, hacia y dentro de los inmuebles aquí regulados.
+d) Perturbar o molestar de cualquier forma el orden público.
+e) Hacer uso de vehículos motorizados, vehículos autopropulsados o artefactos electrónicos a control remoto dentro de los inmuebles aquí regulados, con excepción de las ayudas técnicas para personas con discapacidad.
+f) Consumir, distribuir o vender, bebidas alcohólicas, cigarrillos o sustancias ilícitas en cualquier espacio público. Lo anterior con la salvedad que la venta y consumo de bebidas con contenido alcohólico sea autorizado por la Municipalidad y las autoridades correspondientes. En ningún caso se permitirá la presencia de personas bajo la influencia de alcohol o drogas y que causen alteraciones al orden público.
+g) Hacer necesidades fisiológicas en espacios públicos, salvo en los baños públicos, permanentes o portátiles habilitados con tal fin.
+h) Instalar puestos de ventas, también la venta ambulante de cualquier producto, de comidas o bebidas sin una patente válidamente extendida por la Municipalidad que así lo autorice, con las salvedades ya contenidas en este Reglamento.

@@ -1,0 +1,1 @@
+Artículo 9º-Administración de parques infantiles o deportivos. De conformidad con el reglamento que al efecto apruebe el Concejo Municipal, la Municipalidad podrá dar en administración los inmuebles propiedad de la Municipalidad.
