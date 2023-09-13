@@ -14,3 +14,4 @@ Manual de ética y valores del INAMU
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-01-24 | la propia norma |
+| 2 | 2023-09-13 | Reglamento 19 (2023-09-13) |
