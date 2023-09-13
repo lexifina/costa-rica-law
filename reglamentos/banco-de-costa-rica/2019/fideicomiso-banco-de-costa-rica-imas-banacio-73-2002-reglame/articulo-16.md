@@ -1,4 +1,2 @@
-Artículo 16.—Sesiones extraordinarias. El Comité Director podrá sesionar extraordinariamente cuando:
-a) Sea convocada al efecto, por correo electrónico por la persona Presidente o la Secretaría de Actas.
-b) Por motivos de urgencia o necesidad apremiante, la persona Presidente o la Secretaría de Actas, requiera de sesionar.
-c) La convocatoria a sesiones extraordinarias deberá realizarse con una antelación mínima de veinticuatro (24) horas.
+Artículo 16.-Periodicidad. El Comité Director se reunirá dos veces al mes de manera ordinaria, estableciendo las fechas de sesión de todo el año, mediante acuerdo específico, por lo que no hará falta convocatoria previa. Para celebrar sesiones extraordinarias se realizará convocatoria especial.
+(Así modificada su numeración mediante acta N° 017- 2023 del 13 de setiembre del 2023, que lo traspasó del antiguo artículo 15 al artículo 16)

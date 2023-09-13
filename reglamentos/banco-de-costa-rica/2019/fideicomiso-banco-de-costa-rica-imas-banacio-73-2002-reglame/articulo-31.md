@@ -1,7 +1,5 @@
-Artículo 31.—Actas de las sesiones virtuales. El acta correspondiente a una sesión virtual, deberá cumplir con los requisitos del artículo 14, y se le adicionará lo siguiente:
-A. Lo atinente a los motivos o razones por las cuales la sesión se realiza de esa forma,
-B. La lista de personas integrantes del Comité Director, con la descripción de quienes estuvieron presentes físicamente y quiénes de forma virtual.
-C. Mecanismo tecnológico utilizado por parte de la persona directora para participar en la sesión.
-D. Identificación del lugar donde se encontraba la persona del Comité Director que participó virtualmente.
-E. Cualquier otra circunstancia que se considere oportuna.
+Artículo 31.-Participación virtual de las personas directoras. Cuando alguna de las personas directoras requiera asistir virtualmente a la sesión, deberá comunicarlo por cualquier medio escrito a la persona que preside el Comité Director o la persona Gerente de la Unidad Ejecutora con, al menos, tres días hábiles de antelación a la fecha de celebración de la respectiva sesión. En caso de urgencia debidamente justificada, podrá comunicarlo dentro de las 24 horas anteriores a la realización de la sesión.
+La persona directora que participe virtualmente en la sesión deberá coordinar con la Secretaría, con el tiempo suficiente previo a la hora de inicio de la sesión, para asegurarse de contar con la funcionalidad de los equipos y las condiciones necesarias para participar de forma efectiva en la sesión.
+Es obligación de las personas directoras que participan virtualmente en la sesión, asegurarse que en el lugar que se encuentren reúna los medios tecnológicos necesarios para garantizar su participación, la seguridad y la privacidad de la sesión, salvo que, en relación con este último punto, el órgano colegiado haya tomado acuerdo en sentido contrario.
 (Así adicionado mediante acta N° 002-2020 del 20 de marzo del 2020)
+(Así modificada su numeración mediante acta N° 017- 2023 del 13 de setiembre del 2023, que lo traspaso del antiguo artículo 30 al artículo 31)

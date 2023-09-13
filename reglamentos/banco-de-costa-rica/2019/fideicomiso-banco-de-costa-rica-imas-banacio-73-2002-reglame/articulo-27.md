@@ -1,1 +1,3 @@
-Artículo 27.—Dietas. Las personas representantes del Comité Director no devengan dietas.
+Artículo 27.-De la votación. La votación será pública, salvo que la persona Presidente o su representante disponga lo contrario o que se trate de la apreciación discrecional de cualidades o actividades de personas, o de asuntos que afecten seriamente el prestigio o el patrimonio de las mismas, en cuyo caso la votación será secreta.
+Las abstenciones o los votos en blanco se computarán para efectos de quórum y para determinar el número de votantes, pero no se podrán atribuir ni a la mayoría ni a laminaría. En caso de empate, el Presidente tendrá voto de calidad únicamente en el caso de votación pública, en otro caso, ante empate se deberá iterar la elección.
+(Así modificada su numeración mediante acta N° 017- 2023 del 13 de setiembre del 2023, que lo traspaso del antiguo artículo 26 al artículo 27)

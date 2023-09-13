@@ -15,3 +15,4 @@ Fideicomiso Banco de Costa Rica - IMAS - BANACIO/73-2002 Reglamento de la organi
 | --- | --- | --- |
 | 1 | 2019-01-02 | la propia norma |
 | 2 | 2020-03-20 | Reglamento 0 (2020-03-20) |
+| 3 | 2023-09-13 | Reglamento 0 (2023-09-13) |

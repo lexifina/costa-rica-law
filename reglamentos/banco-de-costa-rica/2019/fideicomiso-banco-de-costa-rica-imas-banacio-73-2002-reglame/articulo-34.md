@@ -1,4 +1,6 @@
-Artículo 34.—Revisión de acuerdos. Contra los acuerdos de la Comité Director no declarados firmes, podrán las personas representantes del Comité Director interponer recurso de revisión, siempre que no haya sido aprobada el acta respectiva.
-En caso de que alguno de las personas representantes del Comité interponga recurso de revisión contra un acuerdo, el mismo será resuelto por la Comité Director al conocerse el acta de esa sesión, a menos que, por tratarse de un asunto que la persona Presidente o representante juzgue urgente y prefiera conocerlo en sesión extraordinaria.
-El recurso de revisión deberá ser planteado a más tardar al discutirse el acta, y dicho recurso que deberá resolverse en la misma sesión. Las simples observaciones de forma, relativas a la redacción de los acuerdos, no serán consideradas para efectos del inciso anterior, como recursos de revisión.
-(Así modificada su numeración mediante acta N° 002-2020 del 20 de marzo del 2020, que lo traspaso del antiguio artículo 29 al 34)
+CAPÍTULO III
+De los acuerdos
+Artículo 34.-De los acuerdos. Los acuerdos tomados por el Comité Director quedarán firmes al aprobarse el acta respectiva en la siguiente sesión ordinaria o al haberse declarado así en la misma sesión, por cuatro votos, de conformidad con el requisito establecido al efecto, en cuyo caso deberá quedar redactado al momento de tomarse el acuerdo firme.
+Los acuerdos de la Comité Director serán ejecutivos y comunicables desde que se adoptan, salvo si se interpone recurso de revisión contra los mismos, en cuyo caso adquirirán firmeza con la decisión desestimatoria del recurso.
+(Así modificada su numeración mediante acta N° 002-2020 del 20 de marzo del 2020, que lo traspaso del antiguio artículo 28 al 33)
+(Así modificada su numeración mediante acta N° 017- 2023 del 13 de setiembre del 2023, que lo traspaso del antiguo artículo 33 al artículo 34)

@@ -1,2 +1,5 @@
-Artículo 17.—Orden del día. El orden del día para cada sesión será elaborado por la persona Presidente del Comité Director y la persona Gerenta de la Unidad Ejecutora, con la antelación necesaria para ser comunicada. Los asuntos deben ser sometidos a conocimiento y votación en el orden en que se encuentran agendados, de igual forma se procederá con las propuestas y mociones, salvo que se trate de una moción de orden, en cuyo caso se tramitará ésta de forma preferente.
-No podrá ser objeto de acuerdo, ningún asunto que no figure en el orden del día, salvo que, estando presentes al menos tres personas del órgano, adopten acuerdos unánimes de declarar un asunto de urgencia y así procedan a incluirlo en el orden del día. El fondo del asunto se resolverá siguiendo las normas de mayoría que correspondan, según el presente reglamento.
+Artículo 17.-Sesiones extraordinarias. El Comité Director podrá sesionar extraordinariamente cuando:
+a) Sea convocada al efecto, por correo electrónico por la persona Presidente o la Secretaría de Actas.
+b) Por motivos de urgencia o necesidad apremiante, la persona Presidente o la Secretaría de Actas, requiera de sesionar.
+c) La convocatoria a sesiones extraordinarias deberá realizarse con una antelación mínima de veinticuatro (24) horas.
+(Así modificada su numeración mediante acta N° 017- 2023 del 13 de setiembre del 2023, que lo traspaso del antiguo artículo 16 al artículo 17)
