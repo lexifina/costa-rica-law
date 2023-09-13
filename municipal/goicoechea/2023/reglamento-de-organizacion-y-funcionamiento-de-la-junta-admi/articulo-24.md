@@ -1,0 +1,11 @@
+Artículo 24.- Del proceso de elección de la Junta. La Junta será electa por el Concejo Municipal de conformidad con lo siguiente:
+a) El proceso será iniciado en el mes de noviembre de los años pares, por medio de anuncio de la Presidencia del Concejo Municipal en una sesión ordinaria de ese órgano. El acuerdo indicará la fecha límite para la presentación de postulaciones, la cual no podrá ser menor a cinco días hábiles posteriores a la fecha en la que se acuerde el proceso de elección.
+b) El acuerdo de convocatoria será publicado en un medio de difusión nacional, la página web oficial de la Municipalidad así como en las redes sociales. La publicación deberá llevarse a cabo en formatos accesibles.
+c) Los requisitos esenciales para participar en el proceso de elección de la Junta se recibirán en la Secretaría del Concejo Municipal en formato físico o digital por medio del correo electrónico de dicho departamento.
+d) La persona postulante dispondrá de tres días hábiles a partir de la notificación por parte de la Secretaría, para subsanar cualquier faltante en su postulación.
+e) La verificación de los atestados será responsabilidad de la Secretaría del Concejo Municipal, quien informará al Concejo de la lista final de personas postulantes.
+f) El Concejo Municipal conocerá la lista de personas postulantes y en la misma sesión, procederá con la elección de los cargos que conforman la Junta, indicados en el presente reglamento.
+g) El Concejo Municipal elegirá por mayoría absoluta de votos, por medio de voto público o votación nominal, a las personas que integrarán la Junta o la sustitución cuando así se requiera. Las candidaturas más votadas resultarán electas, respetando siempre el principio de paridad de género.
+h) En caso de empate se repetirá la votación entre las dos candidaturas empatadas y de repetirse el empate se decidirá por medio de lanzamiento de moneda.
+i) Las personas integrantes de la Junta se juramentarán en el acto o a más tardar en la sesión ordinaria siguiente y tomarán posesión de sus cargos a partir del primero de enero del año siguiente.
+j) El mismo proceso se seguir á en caso de sustitución de una persona integrante de la Junta, sea por destitución, renuncia o fallecimiento.

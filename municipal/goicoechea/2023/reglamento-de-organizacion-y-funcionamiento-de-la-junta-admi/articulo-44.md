@@ -1,0 +1,5 @@
+Artículo 44.- Sobre las bóvedas en alto grado de deterioro. Toda persona permisionaria estará en la obligación de darle mantenimiento periódico a su bóveda o mausoleo, a su costo. En caso que la bóveda o mausoleo se encuentre en alto grado de deterioro, se seguirá el siguiente procedimiento:
+a) La Junta notificará por escrito a la persona permisionaria.
+b) Si la persona permisionaria no acata la primera notificación por escrito de la Junta y al cabo de tres meses no se ha brindado el mantenimiento respectivo a la bóveda o mausoleo, se notificará una segunda vez.
+c) En caso de omisión de las dos notificaciones por escrito, la Junta procederá con la publicación de un aviso en un diario de circulación nacional respecto de la necesidad de mantenimiento de la bóveda o mausoleo.
+d) De no acatar dicho aviso, la Junta prohibirá a la persona permisionaria el uso de la bóveda o mausoleo para nuevas inhumaciones, o transcurridos cinco años desde la última inhumación, ordenará su demolición, conforme al Reglamento General de Cementerios.

@@ -1,0 +1,1 @@
+Artículo 32.- Del registro de personas permisionarias. La Junta llevará un registro de cada persona permisionaria, en donde se indicará el nombre completo, calidades, domicilio exacto, corre o electrónico y número de teléfono, medios que se tendrán como domicilio contractual para todos los efectos legales.

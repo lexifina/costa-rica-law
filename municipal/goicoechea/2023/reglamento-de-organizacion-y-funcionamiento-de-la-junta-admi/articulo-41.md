@@ -1,0 +1,2 @@
+Artículo 41.- Sobre las líneas de bóvedas y pasillos de acceso. En el Cementerio Nuestra Señora de Guadalupe y en el Cementerio El Redentor existirá entre cada dos líneas de bóvedas, indistintamente de su tipo, una acera de dos metros de ancho en donde no se permitirá construir jardineras de ninguna especie.
+La Junta brindará el mantenimiento a las aceras construidas en ambos cementerios y en cualesquiera otros que administre la Junta.

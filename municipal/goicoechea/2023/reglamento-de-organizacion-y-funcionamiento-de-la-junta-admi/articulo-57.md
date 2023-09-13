@@ -1,0 +1,1 @@
+Artículo 57 .- De la prohibición de exhumar cadáveres de personas fallecidas por enfermedades infectocontagiosas. Será prohibido exhumar restos de cadáveres de personas fallecidas a causa de enfermedades infectocontagiosas, salvo por orden judicial o de autoridad sanitaria competente.

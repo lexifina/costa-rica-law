@@ -1,0 +1,1 @@
+Artículo 61.- De las prohibiciones sobre los nichos de alquiler. Los permisos de uso de nichos de alquiler son intransferibles, por lo que será absolutamente nulo, todo acto o contrato para la transmisión de ese permiso.

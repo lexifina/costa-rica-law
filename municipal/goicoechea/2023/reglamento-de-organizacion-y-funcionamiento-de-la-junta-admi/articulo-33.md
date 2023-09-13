@@ -1,0 +1,4 @@
+Artículo 33.- Del pago por concepto de mantenimiento. La Junta definirá de forma anual una cuota de mantenimiento para el uso de cada derecho. La cuota de mantenimiento se definirá de acuerdo al área del derecho de uso y la cantidad de nichos presentes en el derecho de uso.
+Esta cuota se destinará a financiar los gastos de la Junta, tales como salarios, servicios, conservación de áreas comunes, entre otros así como un margen de utilidad para desarrollo del servicio público que brinda.
+Toda persona permisionaria de uso de un derecho deberá pagar dicha cuota, semestral o anualmente. En caso de mora la Junta estará facultada para cobrar intereses equivalentes a la tasa básica pasiva del Banco Central de Costa Rica para operaciones en moneda nacional.
+La Junta estará facultada para actualizar en cualquier momento, la cuota por concepto de mantenimiento para corresponder a la cantidad de nichos construidos en el permiso de uso que corresponda.

@@ -1,0 +1,1 @@
+Artículo 55.- De la responsabilidad de la Junta por las exhumaciones. Las exhumaciones ordinarias o las exhumaciones extraordinarias a efectos de trasladar los restos a otro cementerio, nicho o bóveda, deberán ser efectuadas de conformidad con el horario y calendario establecido por la Junta y la normativa aplicable.

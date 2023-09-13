@@ -1,0 +1,1 @@
+Artículo 73.- De la facultad para otorgar facilidades de pago y arreglos de pago. La Junta tendrá amplias facultades para suscribir contratos de pago a plazo, arreglos de pago y demás facilidades de pago a la población en situación de pobreza y pobreza extrema.

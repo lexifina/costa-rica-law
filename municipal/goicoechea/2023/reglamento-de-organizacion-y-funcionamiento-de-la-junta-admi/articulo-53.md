@@ -1,0 +1,1 @@
+Artículo 53.- De la responsabilidad sobre los restos. A partir del momento en que los restos de una persona hayan salido del Cementerio, la responsabilidad legal de cualquier tipo por su custodia, será asumida por la persona que realizó la solicitud respectiva.

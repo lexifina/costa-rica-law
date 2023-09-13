@@ -1,0 +1,1 @@
+Artículo 28.- Del proceso de transición. Durante el mes de diciembre, la Junta saliente le brindará una inducción y capacitación a la Junta electa para efectos de facilitar el proceso de transición y entrada en el cargo de la nueva Junta.

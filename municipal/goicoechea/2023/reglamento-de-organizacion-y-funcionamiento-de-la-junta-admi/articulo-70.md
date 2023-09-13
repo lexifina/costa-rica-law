@@ -1,0 +1,2 @@
+Artículo 70.- Sobre la entrega de cenizas. Las cenizas serán entregadas a la persona responsable en un plazo no mayor a cinco días naturales posteriores a la cremación.
+La Junta notificará a la persona por escrito el momento en el que las cenizas se encuentren disponibles para ser retiradas. En caso que las cenizas no sean reclamadas en un plazo de cinco días naturales posteriores a la notificación, las mismas serán trasladadas al osario general.

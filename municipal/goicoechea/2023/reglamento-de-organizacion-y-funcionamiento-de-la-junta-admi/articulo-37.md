@@ -1,0 +1,2 @@
+Artículo 37.- De la facultad de la Junta sobre los permisos de uso. La Junta queda facultada para dejar sin efecto un Permiso de Uso, si su persona permisionaria lo desea ceder, por el valor efectivamente pagado por su titular.
+En caso de que en el Permiso de uso existiesen restos sepultados, la Junta los hará trasladar al osario general, por indicación de la persona permisionaria donde ella quiera trasladarlos una vez se cancelen los gastos que esto implique.

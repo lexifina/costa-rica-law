@@ -1,0 +1,1 @@
+Artículo 14.-De los cargos vacantes. En caso que alguno de las personas integrantes de la Junta renuncie o fallezca, la Presidencia en ejercicio lo comunicará en forma inmediata al Concejo Municipal de Goicoechea para la designación del cargo vacante.

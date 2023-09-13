@@ -1,0 +1,1 @@
+Artículo 30.- Requisitos para solicitar un Permiso de Uso. Para solicitar originariamente un Permiso de uso se requiere ser mayor de edad y no ser una persona permisionaria de otro u otros permisos de uso en los Cementerios del Cantón que administre esta Junta.

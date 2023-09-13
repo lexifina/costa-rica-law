@@ -1,0 +1,1 @@
+Artículo 47.- De la identificación de bóvedas y mausoleos. Toda bóveda o mausoleo estará identificada en el cementerio por un número consecutivo el cual deberá ser respetado por la persona permisionaria de cada bóveda o mausoleo.

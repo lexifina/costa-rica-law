@@ -1,0 +1,1 @@
+Artículo 56.- Del manejo de restos humanos exhumados. Los restos cadavéricos serán colocados en una bolsa plástica transparente dentro de otra bolsa plástica de color blanco debidamente identificada, para su traslado correspondiente.

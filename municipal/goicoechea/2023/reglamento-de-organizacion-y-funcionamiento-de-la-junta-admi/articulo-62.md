@@ -1,0 +1,1 @@
+Artículo 62.- Del plazo para utilizar el nicho de alquiler. Una vez cancelado el permiso de uso de un nicho de alquiler, la persona permisionaria dispondrá de cinco días hábiles, para utilizarlo, caso contrario perderá el derecho sobre el mismo salvo por orden de autoridad judicial o sanitaria.

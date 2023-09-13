@@ -1,0 +1,1 @@
+Artículo 20.- De los deberes de la Vocalía. Será atribución de la Vocalía, sustituir en sus ausencias temporales de la Vicepresidencia, Secretaría, y Tesorería y por ende tendrá ante ausencia de estas, las mismas prerrogativas y facultades conferidas al cargo sustituido.

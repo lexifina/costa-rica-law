@@ -1,0 +1,1 @@
+Artículo 65.- Del decoro en el uso de la capilla. Las personas que ingresen a la capilla y se encuentren a sus alrededores estarán obligadas a mantener respeto y buen comportamiento, caso contrario serán removidas de las instalaciones. Será prohibido el fumado y consumo de bebidas alcohólicas en las instalaciones.

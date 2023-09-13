@@ -1,0 +1,1 @@
+Artículo 17.- De los deberes de la Vicepresidencia. Será atribuciones de la Vicepresidencia de la Junta reemplazar la Presidencia en sus ausencias temporales, por ende tendrá ante ausencia de esta, las mismas prerrogativas y facultades conferidas a la Presidencia.
