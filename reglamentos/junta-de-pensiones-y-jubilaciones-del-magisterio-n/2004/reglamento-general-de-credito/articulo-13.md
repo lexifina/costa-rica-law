@@ -18,3 +18,5 @@ Hasta | ¢1.000.000,00 | Sin fiador
 (*)Trabajadores en Servicio de Centros Educativos Privados (CEP), en Propiedad e Interinos con al menos 36 cotizaciones aportadas al régimen en los últimos 48 meses.
 Hasta | ¢3.000.000,00 | 1 fiador
 (*) (Así reformado el inciso anterior mediante sesión N° 0004-2022 del 6 de enero de 2022)
+k) Línea de crédito inhabilitada temporalmente según acuerdo de Junta Directiva, aprobado en sesión: 0101-2023 del 13/09/2023 Acuerdo G1.
+(Así adicionado el inciso anterior en sesión N° 0101 del 13 de setiembre de 2023)
