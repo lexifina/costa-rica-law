@@ -1,0 +1,1 @@
+Artículo 17.-Objetivo de la Comisión de Seguimiento. El objetivo de la Comisión de seguimiento es facilitar la comunicación y coordinación entre todas las instancias del SNH, para coadyuvar al cumplimiento de la PNH y su Plan de Acción.

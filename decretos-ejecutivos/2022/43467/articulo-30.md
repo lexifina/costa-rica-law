@@ -1,0 +1,1 @@
+Artículo 30.-Objetivo de la MAH. La MAH tendrá como objetivo instaurar un espacio de coordinación permanente para el desarrollo de asentamientos humanos inclusivos, seguros, resilientes y sostenibles, equipados con infraestructura y servicios públicos, en el marco de la PNH.

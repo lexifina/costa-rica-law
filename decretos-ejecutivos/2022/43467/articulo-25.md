@@ -1,0 +1,1 @@
+Artículo 25.-Objetivo de la MTM-DUOT. La MTM-DUOT tiene como objetivo ser un espacio de coordinación interinstitucional, multiactor y multinivel para impulsar la planificación urbana del territorio nacional, bajo la premisa de los principios del desarrollo urbano orientado al transporte.

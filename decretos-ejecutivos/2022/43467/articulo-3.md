@@ -1,0 +1,1 @@
+Artículo 3º-Creación del Sistema Nacional del Hábitat. Créase el Sistema Nacional del Hábitat (SNH), como un mecanismo de coordinación interinstitucional, intersectorial y multiactor para promover el ordenamiento territorial, planificación urbana y desarrollo de asentamientos humanos resilientes, inclusivos, seguros y sostenibles, bajo el marco de la PNH.

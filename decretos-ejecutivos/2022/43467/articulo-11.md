@@ -1,0 +1,3 @@
+Artículo 11.-Funcionamiento del Comité Director. Será presidido por la Ministra o el Ministro del Ministerio de Vivienda y Asentamientos Humanos, en su calidad de director o directora del SNH, y funcionará de acuerdo con las disposiciones establecidas por la Ley General de la Administración Pública relativas a los Órganos Colegiados, pudiendo darse su propio reglamento funcional conforme los principios establecidos en la mencionada ley.
+El Comité Director será convocado cuatrimestralmente de forma ordinaria y extraordinariamente cuando sea requerido, sus integrantes no recibirán dieta alguna por la asistencia a estas sesiones.
+Se entenderá que la persona que ejerza el cargo de la Presidencia del Comité Director será el o la Directora del SNH.
