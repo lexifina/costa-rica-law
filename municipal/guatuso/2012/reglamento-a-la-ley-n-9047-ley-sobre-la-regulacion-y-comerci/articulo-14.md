@@ -1,0 +1,1 @@
+Artículo 14.-Verificación de requisitos. Verificados los requisitos administrativos y realizada la inspección sobre las condiciones que estable la Ley para la explotación de licencias para la comercialización de bebidas con contenido alcohólico, de lo cual quedará constancia el acta respectiva que permanecerá en el expediente de la licencia.
