@@ -1,1 +1,1 @@
-Artículo 17.-Sujeción al presupuesto anual. La concesión de becas está supeditada a la aprobación de los montos correspondientes a estas, por parte de la Asamblea General del Colegio de Terapeutas de Costa Rica.
+Artículo 17.-Registro de solicitudes y beneficiarios. La Dirección Académica del Colegio, llevará un registro de las solicitudes presentadas por año, así como de los profesionales que han sido becados. Igualmente, corresponde a la Dirección Académica dar seguimiento al cumplimiento de las obligaciones adquiridas por los beneficiarios de las becas.

@@ -16,3 +16,4 @@ Reglamento de becas del Colegio de Terapeutas de Costa Rica
 | 1 | 2019-08-14 | la propia norma |
 | 2 | 2021-02-05 | Reglamento 4 (2021-02-05) |
 | 3 | 2021-12-15 | Reglamento 36 (2021-12-15) |
+| 4 | 2023-09-14 | Reglamento 0 (2023-09-14) |

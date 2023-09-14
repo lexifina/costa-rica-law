@@ -1,3 +1,2 @@
-CAPÍTULO IV
-Obligaciones del beneficiario
-Artículo 9º-Una vez definidos el o los beneficiarios de la respectiva convocatoria para optar por una beca, la Dirección Académica les notificará individualmente, indicándoles el monto aprobado y le informará sobre los gastos a cubrir con el mismo. Asimismo, cada beneficiario deberá comprometerse al cumplimiento de las obligaciones estipuladas en el presente reglamento, con la firma de la documentación correspondiente.
+Artículo 9º-Asignación equitativa de becas. La Comisión de Becas priorizará el otorgamiento de las becas de manera equitativa entre las áreas profesionales que alberga el Colegio de Terapeutas, siempre que los postulantes cumplan con los requisitos establecidos.
+En caso de que no existan postulaciones en un área profesional o bien, que las solicitudes presentadas no cumplan con los requisitos, se podrán otorgar varias becas a postulantes de la misma profesión.
