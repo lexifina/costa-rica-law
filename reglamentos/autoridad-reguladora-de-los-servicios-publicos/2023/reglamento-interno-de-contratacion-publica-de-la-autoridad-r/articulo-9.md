@@ -1,0 +1,5 @@
+Artículo 9º-Competencias de la Dirección General de Estrategia y Evaluación.
+1. Suministrar la información presupuestaria aprobada para cada período presupuestario al Departamento de Proveeduría para la formulación del programa de adquisiciones proyectado.
+2. Otorgar visto bueno a las solicitudes de inicio del proceso de contratación, en función de la planificación institucional y de los recursos presupuestarios que no cuenten con recursos presupuestarios al momento de tramitar la decisión inicial y que se encuentren en proceso de aprobación, en el entendido de que no podrá emitirse el acto de adjudicación, hasta que se cuente con el presupuesto suficiente, disponible y aprobado.
+3. Otorgar visto bueno a las solicitudes de contrataciones de servicios profesionales que se encuentren asociadas directamente a una actividad estratégica específica incluida como parte del Plan Táctico Institucional (PTAC).
+4. Otorgar visto bueno a las solicitudes de compra y modificaciones unilaterales de bienes y servicios relacionadas con proyectos y actividades estratégicas incluidos como parte del Plan Táctico Institucional (PTAC).

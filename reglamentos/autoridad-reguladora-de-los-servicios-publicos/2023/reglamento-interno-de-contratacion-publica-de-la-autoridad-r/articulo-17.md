@@ -1,0 +1,3 @@
+Artículo 17.-Derogatoria.
+Se deroga el Reglamento Interno de Contratación Administrativa de la Autoridad Reguladora de los Servicios Públicos (RICA), publicado en el alcance 127 a La Gaceta 107 del 7 de junio de 2017, así como cualquier normativa o disposición vigente a la fecha de entrada en vigencia de este reglamento, que se contraponga a lo aquí dispuesto.
+Procederá la Administración a emitir o reformar de oficio toda aquella normativa interna de menor rango legal a este reglamento, de forma tal que se ajuste a lo dispuesto en la Ley General de Contratación Pública, sus reformas y su reglamento.
