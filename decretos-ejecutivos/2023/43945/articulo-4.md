@@ -1,0 +1,1 @@
+Artículo 4º-Deróguense el Decreto Ejecutivo N° 22020- MEIC de fecha 23 de febrero de 1993, publicado en La Gaceta N° 64 del 2 de abril de 1993 y el Decreto Ejecutivo N° 43152 del 14 de junio de 2021 publicado en La Gaceta N° 178 del 16 de setiembre de 2021.
