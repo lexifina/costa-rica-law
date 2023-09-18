@@ -14,3 +14,4 @@ Reglamento interno del fondo de solidaridad del Colegio de Médios Veterinarios
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-12-13 | la propia norma |
+| 2 | 2023-09-18 | Reglamento 6023 (2023-09-18) |
