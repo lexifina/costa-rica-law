@@ -1,0 +1,1 @@
+Artículo 3º-Órgano responsable del proceso del concurso. La Oficina de Recursos Humanos será la unidad administrativa encargada del proceso del concurso público para el nombramiento de la persona auditora interna titular de la UNED, previo acuerdo del Consejo Universitario para la apertura del concurso.

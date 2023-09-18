@@ -1,0 +1,3 @@
+Artículo 13.-Aprobación del concurso. El Consejo Universitario de previo a conocer y aprobar el resultado del concurso público para el nombramiento de la persona auditora interna titular de la UNED, y la nómina o terna resultante, trasladará el expediente completo a la Asesoría Jurídica del Consejo Universitario para su revisión y así garantizar la razonabilidad y legalidad del proceso efectuado.
+En caso negativo, el Consejo Universitario dispondrá lo pertinente.
+En caso positivo, el Consejo Universitario procederá a enviar el expediente completo a la Contraloría General de la República para su aprobación y se deberán cumplir los requisitos que esta emita en los lineamientos que dicte al efecto.

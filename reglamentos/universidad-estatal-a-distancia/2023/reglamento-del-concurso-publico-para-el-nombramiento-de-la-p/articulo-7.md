@@ -1,0 +1,1 @@
+Artículo 7º-Plazo para la presentación de ofertas. El plazo para la presentación de ofertas será de 10 días hábiles contados a partir de la última publicación obligatoria del concurso público, por parte de la Oficina de Recursos Humanos, para el nombramiento de la persona auditora interna titular de la UNED.

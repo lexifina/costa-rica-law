@@ -1,0 +1,5 @@
+CAPÍTULO II:
+Del concurso público para el nombramiento de la
+persona auditora interna titular de la UNED
+Artículo 2º-Acto administrativo previo y expediente. Para dar inicio al proceso del concurso público para el nombramiento de la persona auditora interna titular de la UNED, el Consejo Universitario deberá emitir un acto administrativo expreso solicitando a la Oficina de Recursos Humanos que inicie dicho proceso.
+La Oficina de Recursos Humanos deberá levantar un expediente del concurso, el cual debe estar foliado y en estricto orden cronológico. En dicho expediente se mantendrá toda la información relativa al proceso de nombramiento efectuado, incluyendo las labores previas, las acciones ejecutadas, los resultados obtenidos y cualesquiera otras gestiones subsecuentes. En todos los casos, el expediente administrativo permanecerá bajo custodia de la UNED, incluso después de formalizado el nombramiento, salvo si es requerido por la Contraloría General de la República para los fines de aprobación del concurso y la nómina o terna, o con otros fines de fiscalización.

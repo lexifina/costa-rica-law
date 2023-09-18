@@ -1,0 +1,2 @@
+Artículo 4º-Requisitos del puesto. Los requisitos del puesto de la persona auditora interna titular de la UNED son definidos de conformidad con lo que establece el Estatuto Orgánico de la UNED y los lineamientos vinculantes que al efecto emita la Contraloría General de la República.
+Tales requisitos deberán estar claramente señalados en las bases del concurso público de nombramiento aprobadas previamente por el Consejo Universitario.
