@@ -1,0 +1,1 @@
+Artículo 2º-Derogar el Decreto Ejecutivo N° 11000- G, publicado en el Diario Oficial La Gaceta N° 241 de fecha 21 de diciembre de 1979, mediante el cual fue declarada de utilidad pública la Asociación de Ciegos Costarricenses, citas de Inscripción Registro Público, tomo 15, folio 193, Sección de Personas, no se cuenta con número de cédula jurídica.

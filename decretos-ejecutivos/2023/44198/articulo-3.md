@@ -1,0 +1,1 @@
+Artículo 3º-Derogar el Decreto Ejecutivo N° 8506-G, publicado en el Diario Oficial La Gaceta N° 87 de fecha 8 de mayo de 1978, mediante el cual fue declarada de utilidad pública la Asociación Centro de Estudios Económico Sociales, inscrita en el Registro Público mediante las citas, tomo 8, folio 577, Sección de Personas, no se cuenta con número de cédula jurídica.
