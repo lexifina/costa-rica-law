@@ -1,0 +1,5 @@
+Capítulo 8 Medios Impugnativos
+Artículo 19: Fase recursiva
+Una vez notificada la determinación de oficio o la recalificación de la obligación tributaria efectuada por la Municipalidad, la persona licenciataria podrá interponer, dentro de los cinco días hábiles siguientes, recurso de revocatoria ante la unidad encargada de la Administración de Patentes o recurso de apelación ante la Alcaldía, indicando las normas legales en que funda su reclamo, las defensas respectivas y ofreciendo las pruebas necesarias.
+El rechazo definitivo del recurso agota la vía administrativa y si lo desea la persona licenciataria podrá interponer la demanda correspondiente ante el Tribunal Contencioso - Administrativo, para lo cual de previo debe haber cancelado la obligación tributaria con las multas e intereses si los hay.
+Los plazos y requisitos se regirán conforme al Código Municipal y lo pertinente por la Ley General de la Administración Pública, Ley N.° 6227 vigente y sus reformas.
