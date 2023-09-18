@@ -1,2 +1,0 @@
-Artículo 4º—De la Plataforma tecnológica. La plataforma tecnológica que la Dirección General de Bienes y Contratación Administrativa designe, será el instrumento obligatorio para que la Proveeduría Institucional de cada Ministerio ejecute los procedimientos de contratación administrativa, y será utilizada por la primera, para cumplir su función fiscalizadora.
-(Así reformado por el artículo 48 del Reglamento para la utilización del Sistema de Compras Gubernamentales "Comprared", aprobado mediante decreto ejecutivo N° 39065 del 6 de abril de 2015)
