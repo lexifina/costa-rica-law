@@ -14,3 +14,4 @@ Reglamento de organización y funcionamiento de la auditoría interna del Regist
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-07-07 | la propia norma |
+| 2 | 2023-09-18 | Reglamento 25 (2023-09-18) |
