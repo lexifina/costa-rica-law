@@ -14,3 +14,4 @@ Reglamento interno para regular el traslado y extinción de la cuota de referenc
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-01-18 | la propia norma |
+| 2 | 2023-09-19 | Reglamento 710 (2023-09-19) |
