@@ -1,1 +1,0 @@
-Artículo 7°—En general, las carreteras secundarias serán aquellas rutas que conecten cabeceras cantonales importantes, no servidas por carreteras primarias, así como otros centros de población, producción o turismo que generen una cantidad considerable de viajes interregionales o intercantonales.

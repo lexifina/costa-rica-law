@@ -1,4 +1,0 @@
-Artículo 13.—Las carreteras de la Red Vial Nacional serán numeradas por la Dirección General de Planificación del Ministerio de Obras Públicas y Transporte de la siguiente forma:
-a) Las carreteras primarias se designarán con los números 1 a 99, utilizando como regla general los números impares para las rutas situadas al noroeste de la línea imaginaria que pasa por la ciudad de San José y es perpendicular a la dirección aproximada de la Carretera Interamericana, y los números pares para Ias situadas al sudeste de la misma línea;
-b) Las carreteras secundarias situadas al noroeste de la línea antes descrita signarán con los números 100 a 199, y las situadas al sudeste de esa línea números 200 a 299; y
-c) Las carreteras terciarias se designarán con los números 300 a 999, utiliza preferencia una sola centena para las rutas de cada provincia.

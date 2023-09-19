@@ -1,1 +1,0 @@
-Artículo 9º—Se clasificará como carretera terciaria a todo camino público cumpla con los requisitos señalados en los artículos 10 y 11 del presente Reglamento; y cuya función de suministrar acceso a las propiedades aledañas sea mayor que la de permitir el tránsito de vehículos automotores.

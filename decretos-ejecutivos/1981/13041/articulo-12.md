@@ -1,1 +1,0 @@
-Artículo 12.—Dentro de las áreas urbanas, el Ministerio de Obras Públicas y portes seleccionará las travesías de la Red Vial Nacional, y colaborará con las municipalidades en el mantenimiento y mejoramiento de esas calles.
