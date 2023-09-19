@@ -14,3 +14,4 @@ Manual de especificaciones técnicas para realizar el inventario y evaluación d
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-10-21 | la propia norma |
+| 2 | 2023-09-19 | Decreto Ejecutivo 44263 (2023-09-19) |
