@@ -15,3 +15,4 @@ Reglamento de becas para la residencia artística creando escena
 | --- | --- | --- |
 | 1 | 2021-05-27 | la propia norma |
 | 2 | 2021-06-23 | Reglamento 1149 (2021-06-23) |
+| 3 | 2023-09-19 | Reglamento 12 (2023-09-19) |
