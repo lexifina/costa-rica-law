@@ -14,3 +14,4 @@ Reglamento del programa de transferencia monetaria condicionada de la Municipali
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-11-24 | la propia norma |
+| 2 | 2023-09-19 | Reglamento municipal 0 (2023-09-19) |
