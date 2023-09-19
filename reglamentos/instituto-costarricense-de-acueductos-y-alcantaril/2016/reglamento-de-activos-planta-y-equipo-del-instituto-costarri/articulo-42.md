@@ -1,1 +1,3 @@
-ARTÍCULO 42 – VIGENCIA. Rige a partir de su publicación en el Diario Oficial.
+ARTÍCULO 42 – DEROGATORIA
+El presente Reglamento deroga totalmente el Acuerdo No 99-030, adoptado por la Junta Directiva del Instituto Costarricense de Acueductos y Alcantarillados, en la sesión extraordinaria 99-008, celebrada el veintisiete de enero de mil novecientos noventa y nueve, publicado en La Gaceta No. 40 del 26 de Febrero del año 1999, mediante el cual se dictó el Reglamento de Activos del Instituto Costarricense de Acueductos y Alcantarillados, así como cualquier otro acuerdo o directriz interno que se oponga.
+(Así modificada su numeración mediante sesión ordinaria N° 039-2023 del 19 de setiembre del 2023, que lo traspasó de antiguo artículo 39 al artículo 42. Posteriormente mediante esa misma sesión se ordena derogar el artículo 34 original corriéndose nuevamente la numeración del artículo 43 al artículo 42)

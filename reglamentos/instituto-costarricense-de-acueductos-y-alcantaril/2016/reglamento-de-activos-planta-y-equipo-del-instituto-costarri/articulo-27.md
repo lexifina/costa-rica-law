@@ -1,3 +1,2 @@
-ARTÍCULO 27 - DESECHO Y DONACION DE ACTIVOS DE PROPIEDAD, PLANTA Y EQUIPO.
-Todo desecho y donación de activos de propiedad, planta y equipo debe contar con una resolución de la Gerencia o Sub Gerencia General que la apruebe.
-En caso de los bienes a desechar o donar, esto se hará en estricto apego a la normativa vigente.
+Artículo 27.-Resolución de Gerencia para disposición final de activos de propiedad, planta y equipo. Todo activo de propiedad, planta y equipo para ser vendido (chatarra), donado, desechado (reciclado) debe contar con una resolución de la Gerencia o Sub- Gerencia General que lo apruebe, salvo en aquellos casos que por una norma superior lo exima.
+(Así reformado mediante sesión ordinaria N° 039-2023 del 19 de setiembre del 2023)

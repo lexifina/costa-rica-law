@@ -1,4 +1,4 @@
-ARTÍCULO 5 – RESPONSABILIDADES DEL ENCARGADO DE ACTIVOS DE PROPIEDAD, PLANTA Y EQUIPO
+ARTÍCULO 5 - RESPONSABILIDADES DEL ENCARGADO DE ACTIVOS DE PROPIEDAD, PLANTA Y EQUIPO
 Los Encargados de Activos serán responsables de:
 a. Divulgar el contenido de este Reglamento así como cualquier lineamiento, normativa, directriz o procedimiento relacionado con la administración, control y custodia de los activos de propiedad, planta y equipo.
 b. Gestionar o coordinar las actividades necesarias para el inventario de activos de propiedad, planta y equipo.
@@ -8,7 +8,7 @@ e. Informar a las unidades competentes y dar seguimiento sobre los robos, pérdi
 f. Asesorar a otros funcionarios en materia de activos de propiedad, planta y equipo, desde su adquisición hasta su disposición final.
 g. Exigir que los activos de la unidad estén respaldados por el vale de activos debidamente firmado y custodiar adecuadamente estos formularios.
 h. Coordinar y ejecutar inventarios de las clases de activos de propiedad, planta y equipo definidas por la Dirección de Finanzas.
-i. Solicitar a la Dirección de Finanzas. la creación del número de activo a través del formulario “Solicitud de Número de Activo de Propiedad, Planta y Equipo”.
+i. Solicitar a la Dirección de Finanzas. la creación del número de activo a través del formulario "Solicitud de Número de Activo de Propiedad, Planta y Equipo".
 j. Gestionar el plaqueo oportuno de los activos de propiedad, planta y equipo que correspondan con el número de activo del sistema contable.
 k. Remitir sus propios vales de activos de propiedad, planta y equipo utilizados en sus labores, a la Dirección de Finanzas para su respectiva custodia.
 l. Atender, solicitar, gestionar y/o suministrar cualquier información relacionada con los activos de propiedad, planta y equipo de su competencia.
@@ -17,3 +17,7 @@ n. Actualizar la información de los datos maestros de activos de propiedad, pla
 (Así reformado el inciso anterior en sesión N° 08 del 2 de febrero del 2021)
 o. Entregar por escrito a su sucesor un informe sobre el inventario de la documentación bajo su custodia y cualquier información relevante para el trabajo de la unidad organizacional de su competencia con respecto a los activos de propiedad, planta y equipo. Si este no estuviera asignado por la jefatura en el momento de su partida el informe será entregado al jefe inmediato. Este informe debe ser entregado antes de dejar el puesto y una copia de este informe debe ser entregado a la Dirección de Finanzas.
 p. Gestionar las actividades necesarias para los traspasos de activos de propiedad, planta y equipo.
+q. Comunicar la existencia de activos de Propiedad, Planta y Equipo en desuso a nivel local, regional o nacional, antes de ser devuelto al Almacén, para determinar si alguna dependencia lo requiere y coordinar el traspaso físico y administrativo respectivo.
+(Así adicionado el inciso anterior mediante sesión ordinaria N° 039-2023 del 19 de setiembre del 2023)
+r. Verificar en el Inventario de Activos de Propiedad, Planta y Equipo de segundo uso (desuso) cuando se le requiera, la disponibilidad de activos de propiedad, planta y equipo para su reutilización.
+(Así adicionado el inciso anterior mediante sesión ordinaria N° 039-2023 del 19 de setiembre del 2023)

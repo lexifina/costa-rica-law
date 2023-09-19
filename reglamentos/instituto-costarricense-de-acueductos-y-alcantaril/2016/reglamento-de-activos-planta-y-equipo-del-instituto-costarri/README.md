@@ -16,3 +16,4 @@ Reglamento de Activos, Planta y Equipo del Instituto Costarricense de Acueductos
 | 1 | 2016-12-07 | la propia norma |
 | 2 | 2021-02-02 | Reglamento 8 (2021-02-02) |
 | 3 | 2022-08-09 | Reglamento 39 (2022-08-09) |
+| 4 | 2023-09-19 | Reglamento 39 (2023-09-19) |

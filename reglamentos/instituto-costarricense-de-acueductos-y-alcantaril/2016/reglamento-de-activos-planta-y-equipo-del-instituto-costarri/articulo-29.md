@@ -1,2 +1,6 @@
-ARTÍCULO 29 - VENTA DE CHATARRA
-Cuando se determine que un bien no es de interés institucional, está en mal estado y sea dado de baja contablemente, puede ser vendido como chatarra, la unidad correspondiente, coordinará las gestiones de la venta con la Dirección de Proveeduría previa verificación de la existencia de la resolución Gerencia o Sub Gerencia General que la califique como tal y/o que los activos han sido dados de baja en el sistema contable.
+Capítulo IV, Administración de Propiedad, Planta y Equipo
+Artículo 29.-Condiciones que deben cumplir los activos de propiedad, planta y equipo de segundo uso (desuso). Los activos de propiedad, planta y equipo de segundo uso (desuso) deben cumplir con las siguientes condiciones:
+a) Los almacenes regionales comunicarán trimestralmente (marzo, junio, setiembre y diciembre) al Almacén Central (Pavas) los activos recibidos en desuso, con las características correspondientes y fotografías. Posteriormente el Inventario de Activos de Propiedad, Planta y Equipo de segundo uso (desuso) el Almacén Central lo hará de conocimiento institucional al mes siguiente.
+b) Los almacenes custodiarán los activos de segundo uso (desuso) por un plazo máximo de un (1) año a partir de la fecha de recepción.
+c) Anualmente, el almacén central comunicará formalmente a la Gerencia General la lista de activos que cumplen con el plazo del inciso anterior o más, solicitando la resolución declarativa y se autorice la disposición final. Copia de esta resolución será comunicada inmediatamente a todos los almacenes.
+(Así adicionado mediante sesión ordinaria N° 039-2023 del 19 de setiembre del 2023)

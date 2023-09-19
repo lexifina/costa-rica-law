@@ -1,2 +1,2 @@
-ARTÍCULO 31 - TRASLADO DE FUNCIONARIOS
-Cuando un custodio sea trasladado a otra dependencia, sus activos de propiedad, planta y equipo asignados permanecerán en la ubicación original y deberán ser reasignados en forma inmediata, salvo que exista acuerdo de las jefaturas para el traslado de los bienes.
+Artículo 31.-Valoración de activos de propiedad, planta y equipo de segundo uso (desuso) retirados de almacenes para su uso. Los activos de propiedad, planta y equipo de segundo uso (desuso) que sean retirados de los almacenes institucionales para ser utilizados nuevamente en la operación deben ser valorados mediante avalúo cuando su valor en libros es cero, para ello el Encargado de Activos PPE de la dependencia que retira el activo, solicitará el avalúo y lo comunicará a Contabilidad para su registro.
+(Así adicionado mediante sesión ordinaria N° 039-2023 del 19 de setiembre del 2023)

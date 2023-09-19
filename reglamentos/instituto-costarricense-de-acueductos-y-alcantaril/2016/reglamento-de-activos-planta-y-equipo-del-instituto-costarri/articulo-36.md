@@ -1,4 +1,3 @@
-CAPITULO V
-RESPONSABILIDADES
-ARTÍCULO 36 - RESPONSABILIDAD DE LAS JEFATURAS
-Las jefaturas serán responsables de velar para que el Reglamento de Activos de Propiedad, Planta y Equipo, se aplique debidamente, además suministrarán el apoyo necesario a los encargados de activos, en el cumplimiento de las actividades encomendadas en el mismo.
+ARTÍCULO 36 - CUSTODIA DE VALES DE ACTIVOS DE LOS ENCARGADOS DE ACTIVOS
+Los vales de activos de cada uno de los Encargados de Activos, deberán estar bajo custodia de la Dirección de Finanzas.
+(Así modificada su numeración mediante sesión ordinaria N° 039-2023 del 19 de setiembre del 2023, que lo traspasó de antguo artículo 33 al artículo 36)

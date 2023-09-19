@@ -1,10 +1,13 @@
-ARTÍCULO 3 – GLOSARIO DE TERMINOS
+ARTÍCULO 3 - GLOSARIO DE TERMINOS
 Para los fines del presente reglamento, los siguientes términos significan:
 Activo de Propiedad, Planta y Equipo
 De acuerdo a la Norma Internacional de Contabilidad (NIC 16) el término activo fijo se sustituye por activo de propiedad, planta y equipo.
 Todo bien tangible o intangible, adquirido, construido o donado con el propósito de ser utilizado en la operación normal de la empresa, además que sea probable que la entidad obtenga los beneficios futuros derivados del mismo y que su costo pueda ser valorado con fiabilidad, con una vida útil mayor a un año y con un costo equivalente al que se defina en el Manual de Políticas Contables.
 Activos de Propiedad, Planta y Equipo Organizacionales
 Son aquellos que por su naturaleza son utilizados por un grupo de usuarios o pertenecen a los sistemas de acueducto, alcantarillado, hidrantes o de uso general cuyo control y mantenimiento es asignado a una persona en particular quién es la responsable de informar sobre daños, faltantes u otras similares que afecten el bien.
+Activos de Propiedad, Planta y Equipo de segundo uso (desuso):
+Corresponde a Activos de PPE no utilizados por un custodio o una dependencia institucional que se ingresan a los almacenes institucionales a la espera de ser reutilizados nuevamente, al encontrarse en condiciones operativas adecuadas para su uso.
+(Así adicionada la definición anterior mediante sesión ordinaria N° 039-2023 del 19 de setiembre del 2023)
 Ampliación, Renovación o Mejoras
 Son desembolsos que incrementan el valor de un activo de propiedad, planta y equipo existente, aumentando su capacidad de servicio, productividad, eficiencia o prolongando su vida útil.
 En el catálogo de activos se definen los parámetros necesarios para cada clase de activo, que determinan cuándo un desembolso debe incrementar el valor del activo de propiedad, planta y equipo. Para esto deben cumplir con alguna(s) de las condiciones del párrafo anterior.
@@ -17,7 +20,8 @@ Exclusión de un activo de propiedad, planta y equipo del sistema contable vigen
 Catálogo de Activos
 Documento técnico que incorpora información relativa a la forma cómo están constituidos los bienes institucionales. Sirve como base para determinar las diferentes clasificaciones y rangos que deben tener los activos.
 Contratista
-Persona física o jurídica que es contratada mediante la Ley de Contratación Administrativa vigente, para ejecutar una obra material o brindar un servicio, por un tiempo determinado que se define en el contrato.
+Persona física o jurídica que es contratada para ejecutar una obra material o brindar un servicio.
+(Así reformada la definición anterior mediante sesión ordinaria N° 039-2023 del 19 de setiembre del 2023)
 Custodio
 Persona física a la que se le asigna un activo de propiedad, planta y equipo para uso personal, para un grupo de funcionarios o que es responsable de informar sobre situaciones de las infraestructuras como: Sistemas Acueductos, Alcantarillado, Hidrantes, Edificios, Bodegas o almacenes.
 Custodio- Funcionario: Funcionario de AyA al que se ha asignado un activo de propiedad, planta y equipo para el desempeño de sus funciones normales dentro de la organización y que es responsable de velar por su control y adecuado uso, además es responsable de su ubicación física y deberá responder de aquellos activos no localizados.
@@ -32,6 +36,9 @@ Inmovilizado en Curso (IEC)
 Obras que se encuentran en proceso de construcción y que por ende no están operando.
 Inventario de Activos de Propiedad, Planta y Equipo.
 Proceso que consiste en determinar la condición física, documental y contable de un activo de propiedad, planta y equipo.
+Inventario de Activos de Propiedad, Planta y Equipo de Segundo Uso (desuso)
+Inventario digital de acceso institucional establecido para publicar la lista de Activos de Propiedad, Planta y Equipo de segundo uso, que incluye sus características y que se encuentran disponibles para ser reutilizados nuevamente.
+(Así adicionada la definición anterior mediante sesión ordinaria N° 039-2023 del 19 de setiembre del 2023)
 Plaqueo de Activos de Propiedad, Planta y Equipo.
 Actividad realizada con el objeto de incorporar a los activos de propiedad, planta y equipo el número que se le asignó en el sistema contable institucional, mediante código de barras, cinta adhesiva, placas metálicas u otro similar. Esta actividad se realizará según las disposiciones determinadas por la Dirección de Finanzas.
 Pernoctar
@@ -40,6 +47,9 @@ Reconstrucciones
 Modificaciones realizadas a un activo de propiedad, planta y equipo perteneciente a un sistema de acueducto y/o alcantarillado, aprovechando elementos de este y según los parámetros establecidos en el catálogo de activos vigente.
 Si la reconstrucción es total, se considera el costo de esta como una nueva unidad de activo, dando de baja la anterior.
 En el caso de una reconstrucción parcial, si algunas partes de la unidad anterior han sido aprovechadas, el valor en libros de éstas o una estimación, aumenta al costo del nuevo activo y las partes del activo anterior que no se aprovechen serán dadas de baja.
+Teletrabajo
+Modalidad laboral que consiste en la ejecución de un conjunto de actividades a distancia y en la cual media un contrato suscrito entre AyA y el funcionario.
+(Así adicionada la definición anterior mediante sesión ordinaria N° 039-2023 del 19 de setiembre del 2023)
 Vale de Activos
 Formulario diseñado por la Dirección de Finanzas para el control de activos de propiedad, planta y equipo.
 Valor de Reposición
