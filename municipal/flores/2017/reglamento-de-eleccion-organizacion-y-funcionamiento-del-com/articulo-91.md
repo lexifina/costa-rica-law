@@ -1,2 +1,0 @@
-Artículo 91.-Organización de eventos. Cuando el Comité Comunal en coordinación con el área técnica del CCDRF realice torneos deportivos o eventos de recreación, estará en la obligación de confeccionar su respectiva regulación que deberá ser aprobada previamente por la Junta Directiva del CCDRE.
-(Así modificada su numeración mediante sesión ordinaria 063-2021 del 09 de marzo del 2021, que lo traspasó del antiguo artículo 89 al 90. Posteriormente en esta misma sesión se corre nuevamente la numeración del artículado por lo que se traspasa del antiguo 90 al 91)

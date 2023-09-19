@@ -1,2 +1,0 @@
-Artículo 60.-Del régimen municipal. Los funcionarios (as) administrativos (as) del CCDRF gozarán de los mismos derechos, deberes y beneficios que al efecto establece el Título V del Código Municipal. A esa misma normativa, se ajustarán sus procesos de selección y nombramiento del personal.
-(Así modificada su numeración mediante sesión ordinaria 063-2021 del 09 de marzo del 2021, que lo traspasó del antiguo artículo 58 al 59. Posteriormente en esta misma sesión se corre nuevamente la numeración del artículado por lo que se traspasa del antiguo 59 al 60)

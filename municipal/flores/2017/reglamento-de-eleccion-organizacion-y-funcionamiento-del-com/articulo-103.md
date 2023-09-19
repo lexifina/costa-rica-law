@@ -1,2 +1,0 @@
-Artículo 103.-Inauguración de instalaciones deportivas. Toda inauguración de instalaciones deportivas nuevas deberá hacerse de común acuerdo con el Comité Cantonal.
-(Así modificada su numeración mediante sesión ordinaria 063-2021 del 09 de marzo del 2021, que lo traspasó del antiguo artículo 101 al 102. Posteriormente en esta misma sesión se corre nuevamente la numeración del artículado por lo que se traspasa del antiguo 102 al 103)

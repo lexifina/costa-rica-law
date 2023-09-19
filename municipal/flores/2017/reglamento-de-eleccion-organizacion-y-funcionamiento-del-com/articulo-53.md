@@ -1,3 +1,0 @@
-Artículo 53.- Sede Electoral. Las Asambleas indicadas en los artículos 48 y 49 del presente reglamento, se llevarán a cabo en el Salón de Sesiones del Concejo Municipal de Flores con una hora de diferencia una de otra. Mientras que la Asamblea convocada por el Comité Cantonal de la Persona Joven se hará en el lugar indicado según la convocatoria que haga dicho comité.
-(Así reformado mediante sesión N° 063-2021 del 09 de marzo del 2021)
-(Así modificada su numeración mediante sesión ordinaria 063-2021 del 09 de marzo del 2021, que lo traspasó del antiguo artículo 51 al 52. Posteriormente en esta misma sesión se corre nuevamente la numeración del artículado por lo que se traspasa del antiguo 52 al 53)

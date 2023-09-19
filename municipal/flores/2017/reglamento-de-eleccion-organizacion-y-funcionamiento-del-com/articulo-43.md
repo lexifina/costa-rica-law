@@ -1,3 +1,0 @@
-Artículo 43.-Recurso de revocatoria y apelación contra los actos de la Administración. Los decisiones finales de funcionarios del CCDR tendrán los recursos de revocatoria ante el funcionario (a) que lo emitió y de apelación ante la Junta Directiva, pudiendo interponerse uno o ambos conjuntamente, dentro del quinto día hábil después de notificado, podrán fundamentarse en motivos de ilegalidad o inoportunidad y no suspenderán su ejecución, sin perjuicio de que el funcionario o la
-Junta Directiva al resolver el recurso respectivo, pueda disponer en forma fundamentada alguna medida cautelar.
-(Así modificada su numeración mediante sesión ordinaria 063-2021 del 09 de marzo del 2021, que lo traspasó del antiguo artículo 42 al 43)

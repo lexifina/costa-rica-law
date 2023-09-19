@@ -1,2 +1,0 @@
-Artículo 36.-De las mociones. La Presidencia es la encargada de conceder la palabra y mantener el mutuo respeto en las sesiones, dará la palabra siguiendo el orden en que ésta se solicite, salvo moción de orden que se presente, caso en el cual se dará la palabra al proponente de la moción y a cualquier otro miembro que la apoye y luego a los miembros que se opongan.
-(Así modificada su numeración mediante sesión ordinaria 063-2021 del 09 de marzo del 2021, que lo trasapasó del antiguo artículo 35 al 36)

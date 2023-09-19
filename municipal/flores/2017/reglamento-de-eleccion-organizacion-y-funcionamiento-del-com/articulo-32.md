@@ -1,2 +1,0 @@
-Artículo 32.-Votación de acuerdos. Los acuerdos se tomarán por mayoría simple de los votos presentes, salvo si este Reglamento señala un mayor número de votos. Cuando en una votación se produzca un empate, se votará de nuevo en el mismo acto o la sesión ordinaria inmediata siguiente y de empatar otra vez, el asunto se tendrá por desechado.
-(Así modificada su numeración mediante sesión ordinaria 063-2021 del 09 de marzo del 2021, que lo trasapasó del antiguo artículo 31 al 32)

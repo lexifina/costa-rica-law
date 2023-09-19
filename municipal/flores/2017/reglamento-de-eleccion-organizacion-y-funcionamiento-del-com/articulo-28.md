@@ -1,2 +1,0 @@
-Artículo 28.-Sesión primera. En la primera sesión, que se celebrará al menos cinco días naturales después de la fecha de su juramentación por el Concejo Municipal, los miembros de la Junta Directiva del CCDRF se reunirán y mediante votación se designará los cargos a que se refiere el artículo N° 52 del presente Reglamento; comunicando inmediata y formalmente al Concejo Municipal con un informe de dicha elección.
-(Así modificada su numeración mediante sesión ordinaria 063-2021 del 09 de marzo del 2021, que lo trasapasó del antiguo artículo 27 al 28)

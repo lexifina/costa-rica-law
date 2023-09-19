@@ -1,2 +1,0 @@
-Artículo 63.-Ausencia de Encargado de la Administración. A falta de un Administrador (a), dichas funciones las podrá realizar un miembro de la Junta Directiva de forma temporal y con las mismas funciones y responsabilidades pero sin recibir salario por sus funciones.
-(Así modificada su numeración mediante sesión ordinaria 063-2021 del 09 de marzo del 2021, que lo traspasó del antiguo artículo 61 al 62. Posteriormente en esta misma sesión se corre nuevamente la numeración del artículado por lo que se traspasa del antiguo 62 al 63)

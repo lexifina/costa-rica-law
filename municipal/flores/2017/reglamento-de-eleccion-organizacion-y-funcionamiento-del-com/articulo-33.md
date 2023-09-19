@@ -1,2 +1,0 @@
-Artículo 33.-Justificación de ausencias. Todo miembro deberá, comunicar en forma escrita, las razones de su inasistencia a las sesiones, a más tardar dentro de las veinticuatro horas siguientes de celebrada la sesión, en la oficina de la Junta Directiva del CCDRF o por correo electrónico; caso contrario, será catalogada la inasistencia como injustificada y sancionable.
-(Así modificada su numeración mediante sesión ordinaria 063-2021 del 09 de marzo del 2021, que lo trasapasó del antiguo artículo 32 al 33)

@@ -1,1 +1,0 @@
-Artículo 5º—Domicilio legal. El domicilio legal del CCDRF será el cantón de Flores, en el lugar acordado por mayoría de dos terceras partes de los miembros de la Junta Directiva y con el aval del Concejo Municipal mediante acuerdo simple y publicado en la Gaceta.

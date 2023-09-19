@@ -1,1 +1,0 @@
-Artículo 2º—Objetivo. El principal objetivo del presente reglamento es el de dotar al CCDRF y a la Municipalidad, de un reglamento que garantice los correctos nombramientos, el efectivo desarrollo y el buen funcionamiento de este Comité Cantonal y demás organizaciones deportivas y recreativas, para beneficio de todos los ciudadanos (as) del cantón.

@@ -1,1 +1,0 @@
-Transitorio II.—Si a la entrada en vigencia del presente reglamento no hubiese terminado el período de nombramiento de los miembros del CCDRF y los Comités Comunales, éstos seguirán ejerciendo sus cargos por el tiempo que falte y una vez terminado, la elección de los nuevos miembros se realizará conforme a las disposiciones de este reglamento.

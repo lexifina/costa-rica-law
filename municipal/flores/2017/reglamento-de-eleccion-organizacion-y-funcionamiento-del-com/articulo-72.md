@@ -1,2 +1,0 @@
-Artículo 72.-Contenido del presupuesto. El presupuesto debe contener una estimación de ingresos, incluyendo una descripción clara y precisa de lo que se persigue hacer durante el año presupuestario, de acuerdo con las exigencias legales y reglamentarias establecidas al efecto.
-(Así modificada su numeración mediante sesión ordinaria 063-2021 del 09 de marzo del 2021, que lo traspasó del antiguo artículo 70 al 71. Posteriormente en esta misma sesión se corre nuevamente la numeración del artículado por lo que se traspasa del antiguo 71 al 72)

@@ -1,9 +1,0 @@
-Artículo 26.-De los Vocales. Son funciones de los vocales, las que se detallan seguidamente:
-a) Respetar el orden del día para las sesiones.
-b) Participar activa, propositiva y de manera respetuosa en las sesiones y reuniones de Junta Directiva.
-c) Garantizar el respeto mutuo de entre los miembros de la Junta Directiva y los funcionarios (as) del Comité, dentro de las reuniones, sesiones o actos públicos.
-d) Velar por el cumplimiento de este reglamento.
-e) Presentar propuestas e iniciativas.
-f) Velar por el cumplimiento de todas las obligaciones, objetivos, contratos, convenios, lineamientos y políticas de la Corporación Municipal y del CCDRF.
-(Así reformado mediante sesión ordinaria N° 063-2021 del 09 de marzo del 2021)
-(Así modificada su numeración mediante sesión ordinaria 063-2021 del 09 de marzo del 2021, que lo trasapasó del antiguo artículo 25 al 26)

@@ -1,1 +1,0 @@
-Transitorio VI.—La estructura administrativa se constituirá conforme las necesidades actuales del CCDRF y siempre supeditada a la existencia de fondos y teniendo en consideración que no se vean afectados programas deportivos, objetivo primordial del CCDRF.

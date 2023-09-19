@@ -1,5 +1,0 @@
-CAPÍTULO XIV
-De las instalaciones deportivas y recreativas
-Artículo 94.-Administración de las instalaciones deportivas y recreativas. El Comité Cantonal será el administrador general de las instalaciones deportivas de su propiedad y de las que se le concedan para su administración bajo convenio, existentes en su jurisdicción.
-El CCDRF podrá convenir con Juntas Administrativas, Comités de Campos Deportivos, Comités Comunales, Asociaciones Deportivas y Filiales, la administración y mantenimiento de instalaciones deportivas de su propiedad, de forma temporal por razones de oportunidad y conveniencia, sin que por esta razón delegue su responsabilidad ni competencia reglada. Lo anterior deberá realizarse por medio de los convenios respectivos.
-(Así modificada su numeración mediante sesión ordinaria 063-2021 del 09 de marzo del 2021, que lo traspasó del antiguo artículo 92 al 93. Posteriormente en esta misma sesión se corre nuevamente la numeración del artículado por lo que se traspasa del antiguo 93 al 94)

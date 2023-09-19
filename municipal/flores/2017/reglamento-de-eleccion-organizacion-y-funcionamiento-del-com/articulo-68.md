@@ -1,2 +1,0 @@
-Artículo 68.-Inicio y cierre del presupuesto anual. Para los efectos del CCDRF, el año fiscal y el período de plan anual operativo y su respectivo presupuesto inician el 01 de enero y finalizan el 31 de diciembre de cada año.
-(Así modificada su numeración mediante sesión ordinaria 063-2021 del 09 de marzo del 2021, que lo traspasó del antiguo artículo 66 al 67. Posteriormente en esta misma sesión se corre nuevamente la numeración del artículado por lo que se traspasa del antiguo 67 al 68)
