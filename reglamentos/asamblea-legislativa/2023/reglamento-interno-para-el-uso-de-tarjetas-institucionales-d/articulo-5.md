@@ -1,0 +1,8 @@
+Artículo 5º-Sobre la ausencia del Tarjetahabiente. Si el Tarjetahabiente se ausenta de la institución, deberá devolver la Tarjeta de Pago Institucional a su jefatura inmediata, caso contrario esta jefatura debe exigir la devolución de esta; posteriormente procederá a remitirla al Departamento Financiero para su debida custodia; dejando constancia por escrito del acto de recibo y su posterior devolución si el funcionario se reintegra a laborar. Se procederá según el motivo de la ausencia de la siguiente manera:
+Cuando un funcionario permanece en vacaciones o incapacitado por un periodo continuo mayor a 30 días, la tarjeta devuelta por este se custodia en el Departamento Financiero.
+Si un funcionario disfruta de un permiso con o sin goce de salario o es suspendido, el tratamiento que se le debe dar a la Tarjeta de Pago Institucional es el siguiente:
+- Si la ausencia es menor a 30 días, la tarjeta debe custodiarse en el Departamento Financiero.
+- Si la ausencia es mayor a 30 días, pero menor a 90 días, solicitará el "bloqueo temporal" de la Tarjeta de Pago Institucional, mediante el formulario correspondiente.
+- Si la ausencia es mayor a 90 días, la jefatura inmediata solicitará la "cancelación" de la Tarjeta de Pago Institucional, mediante el formulario correspondiente.
+- Si un funcionario es despedido la jefatura inmediata, solicitará la "cancelación" de la Tarjeta de Pago Institucional y procederá a devolver la misma (plástico), al Departamento Financiero.
+- En todos los casos, el Tarjetahabiente deberá ser notificado por su jefatura inmediata para que realice la conciliación de los cargos efectuados con esa tarjeta y verifique que todos los gastos han sido debidamente liquidados, dejando constancia por escrito de lo actuado.

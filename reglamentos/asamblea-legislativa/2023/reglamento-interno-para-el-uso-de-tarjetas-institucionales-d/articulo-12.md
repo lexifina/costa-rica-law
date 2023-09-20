@@ -1,0 +1,1 @@
+Artículo 12.-Parámetros. Cada una de las categorías aprobadas por el Ministerio de Hacienda contarán con parámetros establecidos por la Administración Activa, evaluando el requerimiento de cada una con el objeto del control del gasto público.

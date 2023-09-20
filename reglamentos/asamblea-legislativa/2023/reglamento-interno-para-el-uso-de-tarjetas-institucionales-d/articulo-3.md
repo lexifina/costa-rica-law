@@ -1,0 +1,1 @@
+Artículo 3º-Sobre el incumplimiento a las categorías autorizadas. El Tarjetahabiente que no cumpla con las disposiciones del artículo 2° y las limitaciones establecidas según las categorías señaladas, deberá asumir el pago correspondiente del gasto generado y reintegrarlo a Tesorería Nacional, por medio de caja única del estado.
