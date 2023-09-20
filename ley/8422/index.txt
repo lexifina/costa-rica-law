@@ -61,6 +61,7 @@ articulo-58.md
 articulo-59.md
 articulo-60.md
 articulo-61.md
+articulo-61-bis.md
 articulo-62.md
 articulo-63.md
 articulo-64.md
@@ -71,5 +72,14 @@ articulo-68.md
 articulo-69.md
 articulo-70.md
 articulo-71.md
+articulo-72.md
+articulo-73.md
+articulo-74.md
+articulo-75.md
+articulo-76.md
+articulo-77.md
+articulo-78.md
+articulo-79.md
+articulo-80.md
 articulo-1-transitorio.md
 articulo-2-transitorio.md

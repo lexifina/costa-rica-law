@@ -1,0 +1,2 @@
+Artículo 78.-Derogación del inciso 4) del artículo 346 del Código Penal. Derógase el inciso 4) del artículo 346 del Código Penal.
+(Así modificada su numeración por el artículo 13 de la ley "Reformas a leyes en materia de anticorrupción para atender recomendaciones del grupo de trabajo sobre el soborno en las transacciones comerciales internacionales de la Organización para la Cooperación y Desarrollo Económico (OCDE)", N° 10373 del 20 de setiembre del 2023, que lo traspasó del antiguo artículo 69 al 78)
