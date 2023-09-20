@@ -1,0 +1,1 @@
+Articulo 2º-Se exceptúa de la aplicación de la presente directriz a las siguientes instituciones: Caja Costarricense de Seguro Social, Instituto Nacional de Aprendizaje, Instituto Nacional de Seguros, Comisión Nacional de Prevención de Riesgos y Atención de Emergencias y el Instituto Costarricense de Electricidad.
