@@ -13,3 +13,4 @@ Reiteración de la Circular N°132-2011, relativa al "Aval para los proyectos nu
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-07-13 | la propia norma |
+| 2 | 2023-09-20 | Circular 235 (2023-09-20) |
