@@ -1,1 +1,0 @@
-Artículo 2º—Los bienes y servicios de mantenimiento y reparación realizados al amparo de este Reglamento, serán propiedad del Ministerio y no podrá pretenderse reembolso de ninguna naturaleza. Para todos los efectos, se considerará que se ha producido una donación a favor de la Institución.

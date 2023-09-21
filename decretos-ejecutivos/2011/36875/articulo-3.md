@@ -1,1 +1,0 @@
-Artículo 3º—El encargado de la Unidad Policial que resulte beneficiada deberá informar de toda donación, reparación o mantenimiento al Departamento de Control y Fiscalización de Activos del Ministerio de Seguridad Pública.
