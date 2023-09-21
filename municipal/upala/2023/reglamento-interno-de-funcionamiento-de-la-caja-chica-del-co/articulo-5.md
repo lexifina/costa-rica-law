@@ -1,0 +1,1 @@
+Artículo 5º-Gastos Menores. Gastos Menores indispensables y urgentes son los que no excedan un monto máximo ¢2.000.000,00 fijado por el CCDR Upala y que corresponden a la adquisición de bienes y servicios. Debe organizarse y planificar adecuadamente las compras de materiales y suministros que el Comité necesite, con el fin de utilizar lo menos posible el Fondo.

@@ -1,0 +1,1 @@
+Artículo 6º-Definición del Monto. El administrador/ gestor deportivo y el contador@ presentarán al CCDR Upala, una propuesta del monto del Fondo Fijo-Caja Chica con el que va a operar, de acuerdo con la estimación de los gastos menores a atender mediante esta modalidad, en aras de una ágil y eficiente gestión.

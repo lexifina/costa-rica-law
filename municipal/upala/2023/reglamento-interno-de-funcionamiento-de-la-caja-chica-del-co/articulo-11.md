@@ -1,0 +1,1 @@
+Artículo 11.-Autorización de Recursos. Atendiendo la solicitud del Administrador/Gestor deportivo del CCDR Upala, el Tesorero CCDR autorizará la asignación de los recursos para el Fondo Fijo- Caja Chica, considerando las necesidades de la CCDR Upala y la disponibilidad de recursos.

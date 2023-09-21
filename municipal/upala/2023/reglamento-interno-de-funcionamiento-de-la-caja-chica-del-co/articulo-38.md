@@ -1,0 +1,3 @@
+Artículo 38.-Depósito de Intereses. Los intereses devengados por los saldos en las cuentas bancarias de los fondos de Caja Chica, deberán ser depositados al Fondo General del Gobierno, dentro de un plazo de ocho días hábiles después de vencido el respectivo mes, de lo contrario se procederá de conformidad con lo establecido en el artículo 37 de este Reglamento.
+La Contabilidad del CCDR Upala deberá comunicar formalmente al CCDR Upala, el detalle correspondiente y adjuntará el respectivo comprobante y el estado bancario.
+Alternativamente podrá adjuntar las copias en el informe de arqueo trimestral a que hace referencia el artículo 33 de este Reglamento, o bien por medio de los mecanismos que al efecto determine el CCDR Upala.

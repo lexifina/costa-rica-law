@@ -1,0 +1,1 @@
+Artículo 19.-Límite del Gasto. Para incurrir en gastos por medio del Fondo Fijo-Caja Chica debidamente autorizados por el Responsable, se deberá acatar los límites económicos establecidos por CCDR Upala.

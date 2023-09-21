@@ -1,0 +1,5 @@
+Artículo 14.-Ampliaciones Temporales o Permanentes. El Administrador/Gestor deportivo del CCDR Upala podrán solicitar formalmente CCDR Upala, ampliaciones temporales para el Fondo Fijo-Caja Chica, con el fin de atender situaciones sumamente especiales por razones de conveniencia, oportunidad e interés deportivo para lo cual deberán ajustarse a lo siguiente:
+a) Solicitud de ampliación del Fondo Fijo-Caja Chica, temporales o permanentes, adjuntando la composición del fondo presupuesto actual de los recursos autorizados al cierre del último semestre, el saldo en la cuenta corriente al último día del mes anterior, además del flujo de efectivo de los últimos tres meses.
+b) Indicar en la solicitud la fecha en que se depositará el monto de la ampliación temporal en el Fondo General del CCDR Upala.
+c) Acatar las disposiciones que por medio de lineamientos emita la Tesorería Municipal.
+d) Reintegrar el monto de la ampliación temporal al Fondo General del CCDR Upala en la fecha acordada, utilizando los mecanismos que para tal efecto definirá el CCDR Upala.
