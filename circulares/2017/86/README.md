@@ -13,3 +13,4 @@ Adición a la circular N° 43-2017 sobre “Despachos judiciales que resolverán
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-05-22 | la propia norma |
+| 2 | 2023-09-21 | Circular 231 (2023-09-21) |
