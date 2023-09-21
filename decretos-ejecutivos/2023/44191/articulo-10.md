@@ -1,0 +1,1 @@
+Artículo 10.- En lo no regulado en el presente Decreto Ejecutivo, rige lo dispuesto en la Ley No. 6227 del 2 de mayo de 1978 "Ley General de la Administración Pública", referente a los órganos colegiados.

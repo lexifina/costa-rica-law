@@ -1,0 +1,1 @@
+Artículo 15.- Las resoluciones del Comité serán comunicadas al Ministro de Salud, para los fines señalados en el artículo 12 del presente Decreto Ejecutivo. Igualmente serán notificadas a las partes interesadas, conforme con la ley.

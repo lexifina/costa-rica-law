@@ -1,0 +1,3 @@
+Artículo 9.- De cada sesión del Comité se levantará un acta, que incluirá el nombre de las personas asistentes, el lugar y el tiempo en que se celebró la reunión, la transcripción literal de todas las intervenciones efectuadas, la forma y el resultado de la votación y el contenido de los acuerdos.
+Las actas se aprobarán en la siguiente sesión ordinaria. Antes de esa aprobación carecerán de firmeza los acuerdos tomados en la respectiva sesión, a menos que los miembros presentes acuerden su firmeza por votación de dos tercios de la totalidad de los miembros del Comité.
+Las actas serán firmadas por el presidente y por aquellos miembros que hubieran hecho constar su voto disidente.

@@ -1,0 +1,2 @@
+Artículo 17.- Las instituciones del Sector Público de Salud, deberán confeccionar su formulario básico de medicamentos con normas administrativas y de información terapéutica, concordantes con el Formulario Terapéutico Nacional.
+Para velar por el estricto cumplimiento de lo anterior, cada institución deberá contar con una instancia encargada de la Evaluación de Tecnologías Sanitarias, cuya obligación recaiga en mantener actualizado sus formularios terapéuticos garantizando el estricto apego y vinculación con el Formulario Terapéutico Nacional vigente.

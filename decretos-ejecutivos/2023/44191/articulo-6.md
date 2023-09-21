@@ -1,0 +1,3 @@
+Artículo 6.- El cargo de miembro del Comité es incompatible con cualquier relación de trabajo, de asesoría o de asociación con empresas productoras, distribuidoras o vendedoras de productos farmacéuticos o con entidades asociadas a tales empresas.
+Dicha incompatibilidad será manifestada por medio de una Declaratoria de Ausencia de Conflicto de Interés, contenida como anexo al presente Decreto Ejecutivo, mediante la cual indicará que no lo cubre ninguna de las causales de incompatibilidad contempladas en el presente artículo.
+Las causas de incompatibilidad señaladas en este artículo comprenderán un período de hasta un año antes de la fecha en que debe hacerse el respectivo nombramiento.

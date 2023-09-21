@@ -1,0 +1,1 @@
+Artículo 16.- La exclusión de un medicamento será efectiva a partir del agotamiento de sus existencias en las instituciones públicas de salud, como en aquellas del sector privado a las cuales las instituciones públicas les haya provisto según sus mecanismos internos, a menos que se tome una determinación distinta por parte del Ministerio, conforme con la Ley General de Salud.

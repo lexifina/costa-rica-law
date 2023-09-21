@@ -1,0 +1,1 @@
+Artículo 18.- Deróguense los Decretos Ejecutivos No. 19343-S del 23 de noviembre de 1989 "Reglamento del Formulario Terapéutico Nacional", publicado en La Gaceta M0 239 del 19 de diciembre de 1989; y No. 26139-S del 30 de mayo de 1997 publicado en La Gaceta No 148 del 04 de agosto de 1997.

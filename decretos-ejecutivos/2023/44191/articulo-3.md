@@ -1,0 +1,1 @@
+Artículo 3.- Créase un Comité Técnico como organismo auxiliar y asesor del Ministerio de Salud. Estará adscrito al Despacho Ministerial y tendrá la responsabilidad de revisión y actualización del Formulario Terapéutico Nacional.
