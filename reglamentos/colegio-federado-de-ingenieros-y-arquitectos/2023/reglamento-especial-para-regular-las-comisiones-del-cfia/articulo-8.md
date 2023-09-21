@@ -1,0 +1,2 @@
+Artículo 8º-Comunicación inicial de conformación de comisión. Una vez que la Junta Directiva haya integrado una comisión, corresponderá a la Dirección Ejecutiva o quién esta delegue, comunicar el acuerdo por escrito a los miembros designados.
+En el caso de las comisiones de los Colegios Miembros, corresponderá al Director Ejecutivo del Colegio o en quien delegue el respectivo colegio, su comunicación.

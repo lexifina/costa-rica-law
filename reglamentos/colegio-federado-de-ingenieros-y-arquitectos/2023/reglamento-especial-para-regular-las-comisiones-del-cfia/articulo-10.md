@@ -1,0 +1,3 @@
+Artículo 10.-De las sesiones ordinarias y extraordinarias. Las siguientes sesiones, las convocará el coordinador de la comisión, en coordinación con la Administración del Colegio al correo electrónico registrado por el miembro ante el CFIA o bien al medio que hubiese acordado la comisión.
+Las convocatorias se harán con un mínimo de cinco días hábiles de antelación, pudiendo hacerse aún por vía telefónica en caso de urgencia.
+El coordinador deberá dejar constancia de las convocatorias efectuada a través del comprobante de envío de correo electrónico o en su defecto, a través de un acta, en caso de que la convocatoria se hubiese efectuado por otro medio.

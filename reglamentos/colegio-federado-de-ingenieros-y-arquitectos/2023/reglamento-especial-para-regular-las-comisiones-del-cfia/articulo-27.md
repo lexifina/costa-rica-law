@@ -1,0 +1,1 @@
+Artículo 27.-Vigencia y derogatorias. El presente reglamento entra a regir a partir de su publicación en el Diario Oficial La Gaceta y deroga el Reglamento Especial para Regular la Labor de las Comisiones aprobado mediante acuerdo N° 17 de la sesión N° 44-19/20-G.O. del 13 de octubre de 2020 de Junta Directiva General.-

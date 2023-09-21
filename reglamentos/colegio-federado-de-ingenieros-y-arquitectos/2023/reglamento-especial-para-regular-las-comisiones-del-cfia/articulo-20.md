@@ -1,0 +1,1 @@
+Artículo 20.-Responsabilidad de orden económico. Las acciones de cualquier comisión que involucren responsabilidad de orden económico deberán ser establecidas en el plan de trabajo, para ser aprobadas previamente por la Junta Directiva respectiva.

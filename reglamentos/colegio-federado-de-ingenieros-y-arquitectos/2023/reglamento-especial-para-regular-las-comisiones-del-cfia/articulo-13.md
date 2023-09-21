@@ -1,0 +1,2 @@
+Artículo 13.-De las actas. Las actas serán digitales. En las actas se consignará la hora y fecha de la reunión, las personas asistentes, una descripción breve de lo discutido y los acuerdos que se tomen, que deberán ser transcritos íntegramente.
+Las actas deberán ser firmadas por el coordinador a través del certificado digital emitido por un certificador autorizado en el país o mediante otro formato electrónico que respalde y garantice la voluntad del firmante.

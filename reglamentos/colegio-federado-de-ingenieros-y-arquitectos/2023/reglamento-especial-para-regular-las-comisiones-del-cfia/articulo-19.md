@@ -1,0 +1,3 @@
+Artículo 19.-Del Informe de recomendación. Los informes de recomendación de las comisiones se presentarán por escrito y firmados por el número de miembros que forman la comisión. Cuando alguno fuere de opinión diferente, presentará un informe escrito por separado.
+En cualquier caso, la Junta Directiva correspondiente podrá solicitar aclaraciones.
+El expediente de la comisión se cerrará con una copia del informe o informes finales y del acuerdo de la Junta Directiva sobre el informe. Se enviará copia de este acuerdo a los miembros de la comisión.

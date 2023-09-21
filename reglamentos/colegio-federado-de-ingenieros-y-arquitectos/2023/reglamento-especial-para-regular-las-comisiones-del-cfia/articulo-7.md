@@ -1,0 +1,3 @@
+Artículo 7º-Facultad y prohibición. Ningún miembro del Colegio Federado podrá formar parte de más de tres comisiones a la vez, ni ser coordinador en más de una, salvo casos especiales justificados que a criterio de la Junta Directiva lo ameriten.
+Con el fin de llevar un control y registro de nombramientos en comisiones de Junta Directiva General y de los Colegios Miembros, los acuerdos deberán ser notificados al Departamento de Registro y Documentación del CFIA, para que sean incorporados al expediente personal del profesional.
+Los miembros de las comisiones ejercerán sus funciones en forma ad honorem, por consiguiente, no gozarán de dietas, ni remuneraciones, por concepto de su participación en la misma.
