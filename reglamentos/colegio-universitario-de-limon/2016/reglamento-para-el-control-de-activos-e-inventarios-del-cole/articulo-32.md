@@ -1,2 +1,1 @@
-Artículo Nº32- Sobre las placas metálicas o dispositivos de identidad.
-Las placas metálicas o dispositivos de identificación deberán ser inmediatamente retiradas al concluir la inspección y verificación física de los bienes desechados, y resguardados junto al Acta oficial de desecho emitido por el encargado de Control de activos, con copia a la unidad de contabilidad, solicitando la baja de los activos mencionados.
+Artículo 32.-Los directores o jefaturas. Los directores y/o Jefaturas deberán informar y trasladar, mediante un listado de activos desechados, para su respectiva inspección.

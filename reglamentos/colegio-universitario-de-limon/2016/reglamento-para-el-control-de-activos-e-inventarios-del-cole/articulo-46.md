@@ -1,2 +1,1 @@
-Artículo Nº46- Sobre la venta o donación de activos fijos.
-Se podrán vender o donar activos desechados, cuando la Decanatura a través de la Auditoría Interna, compruebe que éstos no son de utilidad para la Institución, por su visible estado de obsolescencia o deterioro. El precio de venta base lo fijará la Dirección Administrativa y Financiera en conjunto con Unidad Contable.
+Artículo 46.-Logotipos y códigos. En caso de venta o donación todos los bienes deberán ser liberados de códigos y logotipos de identificación institucional. Esta disposición aplica a todas las clasificaciones de bienes desechados.

@@ -1,2 +1,3 @@
-Artículo Nº30- Sobre la liquidación del equipo.
-Los bienes del CUNLIMON, serán liquidados de conformidad con el procedimiento establecido y recomendado dado por los funcionarios especializados internos y externos, en el caso de radios de comunicación, equipo de transporte es necesario anexar un diagnóstico por escrito de algún proveedor externo o funcionario especializado, el cual determine que ya no es factible su uso, a menos que esté visiblemente dañado u obsoleto.
+Articulo 30.-Del Auditor. Ningún bien mueble localizado, ocioso o en desuso podrá ser desechado del patrimonio institucional del CUNLIMON sin la inspección previa del Auditor Interno quien se encargará de verificar:
+a) Que la lista detallada de los bienes desechados contenga las columnas de: descripción del bien, lugar de procedencia, placa de identificación (o Nº identificación) y funcionario responsable.
+b) Que la nota técnica indique la inutilidad o posibilidad de reparación del bien dejando constancia de dicha condición. Si y solo si, se tratase de un activo tecnológico. La Unidad de Informática será la responsable de emitir el criterio técnico.

@@ -1,0 +1,2 @@
+Artículo 57.-Sobre autorización para afectar el patrimonio. Toda eliminación o baja de equipo del patrimonio institucional requerirá autorización escrita de la Decanatura del CUNLIMON, previa verificación de la Auditoria Interna.
+La Dirección Administrativa y Financiera y la unidad de Contabilidad deberán exigir a la Unidad de Control de Activos copia de dicha autorización formal antes de aceptar cualquier reducción de bienes del libro mayor de activos o del inventario oficial de activos.

@@ -1,2 +1,8 @@
-Artículo Nº29- Los Directores o Jefaturas.
-Los Directores y/o Jefaturas deberán informar y trasladar, mediante un listado de activos desechados, para su respectiva inspección en el almacén de bienes, establecido y reconocido por la unidad Control de activos. El incumplimiento de esta disposición acarreará las sanciones establecidas en el capítulo II del reglamento.
+Artículo 29.-Retiro de un bien del inventario (Baja o desecho). Para retirar, liquidar o dar de baja un activo del inventario debe darse una de las siguientes condiciones:
+a) Por donación - para uso directo de los bienes.
+b) Por caso fortuito y fuerza mayor. - robo, hurto y pérdida total.
+c) Por obsolescencia tecnológica.
+d) Por destrucción.
+e) Por entrega como parte de pago - proceso de Contratación Administrativa.
+f) Por finalización de los contratos de alquiler o préstamo.
+g) Por desecho-para eliminación o para reciclaje.

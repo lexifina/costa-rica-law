@@ -1,5 +1,3 @@
-Artículo Nº20- Dispositivos para el préstamo de activos.
-La formalización de un préstamo se requiere cumplir con los siguientes dispositivos.
-a. Presentación del formulario de traslado de activos cabalmente confeccionado.
-b. Aceptación de la parte prestataria.
-c. Comunicación o copia del documento remitido a la Unidad de Proveeduría.
+CAPÍTULO V
+Trámite de préstamo de activos
+Artículo 20.-Condiciones del préstamo de Activos. Cuando se facilite, en calidad de préstamo equipo a funcionarios, docentes, administrativos, deberá firmarse, entre las partes, un documento que asegure que el bien facilitado sea devuelto en buen estado y en el plazo fijado.

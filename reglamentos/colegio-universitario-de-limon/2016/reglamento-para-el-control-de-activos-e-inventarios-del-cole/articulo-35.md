@@ -1,2 +1,1 @@
-Artículo Nº35- Venta como Chatarra.
-En el caso de venta de unidades consideradas como chatarra se preservaran las disposiciones establecidas en el artículo 155 del Reglamento de contratación administrativa. Deberán ser removidos los logotipos y placas de identificación institucional pero no el número de serie del chasis de cada unidad.
+Artículo 35.-Sobre las placas metálicas o dispositivos de identidad. Las placas metálicas o dispositivos de identificación deberán ser inmediatamente retiradas al concluir la inspección y verificación física de los bienes desechados y resguardados junto al Acta oficial de desecho emitida por el encargado de Control de activos, con copia a la unidad de contabilidad, solicitando la baja de los activos mencionados.

@@ -1,2 +1,1 @@
-Artículo Nº6- Dirección Administrativa Financiera del CUNLIMON
-La Dirección Administrativa-Financiera CUNLIMON, en colaboración con la Unidad Control de Activos, es la responsable de coordinar todas las actividades relacionadas con el control y registro de los activos.
+Artículo 6º-Dirección Administrativa Financiera del CUNLIMON. Velar por la correcta aplicación de este reglamento por parte de todos los funcionarios de la institución.

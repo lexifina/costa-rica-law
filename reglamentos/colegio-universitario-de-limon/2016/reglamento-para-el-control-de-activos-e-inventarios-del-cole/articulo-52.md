@@ -1,5 +1,4 @@
-Artículo 52.
-Rige a partir de su publicación en el Diario Oficial la Gaceta.
-APROBADO
-Sesión Ordinaria N°339-2016, del 19 de octubre del 2016, artículo IV, inciso c)
-Acuerdo: “Aprobara el Reglamento para el Control de Activos del Colegio Universitario de Limón, para su respectiva publicación en la Imprenta Nacional la Gaceta”
+Artículo 52.-Sobre pérdida o robo de activos. Todo funcionario deberá:
+a) Ante la pérdida o robo de activos bajo su responsabilidad remitir informe con los datos del activo faltante a la jefatura inmediata.
+b) Debe presentar denuncia ante el Organismo de Investigación Judicial, una vez que disponga de todos los datos del activo.
+Para lo anterior dispone de tres días hábiles.

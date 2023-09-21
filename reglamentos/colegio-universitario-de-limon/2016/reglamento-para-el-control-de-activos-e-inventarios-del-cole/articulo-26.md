@@ -1,6 +1,5 @@
-CAPITULO VI
-De la Liquidación de Bienes Ociosos, Inservibles y Reemplazo de equipo
-Obsoleto
-Artículo Nº26- Del Decano.
-El Decano es el único funcionario autorizado para aprobar la baja de activos del inventario patrimonial del CUNLIMON, se debe adjuntar la nota técnica de valoración recibida por el funcionario de control de activos.
-Realizado el procedimiento anterior el encargado de activos elabora el acta de desecho y la traslada para verificación y aval de la Asesoría Legal y la Auditoría Interna.
+CAPÍTULO VII
+Reparación de activos
+Artículo 26.-Reparación de activos. Será objeto de reparación aquellos activos que, al encontrarse en mal estado, impidan el funcionamiento normal de las operaciones institucionales y que se estime que el estado de este afecta el servicio público.
+Para determinar si un activo puede ser reparado o no, la Unidad de Proveeduría o la Dirección Administrativa Financiera verificarán que dicha reparación no supere el 50% del costo de adquisición del activo, o bien, se hará un análisis costo/ beneficio de acuerdo con el precio de mercado que tenga el artículo al momento de realizar la reparación. En caso de que el activo sea reparable se realiza el trámite correspondiente.
+En caso de que el activo sea irreparable la dirección administrativa financiera procederá a gestionar la reposición.

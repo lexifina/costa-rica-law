@@ -1,15 +1,1 @@
-Artículo Nº39- Registro Contable.
-En los registros contables todos los bienes deben estar valorizados a su costo o valor histórico según normas de contabilidad, tomándolo de las siguientes fuentes:
-Para bienes muebles:
-a. El costo que tenga en inventario anterior;
-b. El de compra, o con el que haya llegado a la oficina o dependencia; o
-c. El costo asignado mediante avalúo o valor razonable de mercado.
-Para los semovientes:
-a. El precio de compra, o
-b. El precio corriente de plaza, según corresponda.
-Para los bienes inmuebles:
-a. El monto asignado en el avalúo catastral;
-b. El de compra;
-c. El que fije la administración mediante avalúo.
-Para los bienes donados.
-a. El valor razonable o el costo, el menor de los dos.
+Artículo 39.-Reciclaje: Cuando los activos por su estado de deterioro u obsolescencia tecnológica no sean susceptibles de donación, según el criterio técnico del departamento de informática, que refiere el artículo 3 inciso 5 de este reglamento, la Unidad de Control de Activos deberá gestionar la donación de este, mediante la entrega a un Gestor ambiental que garantice la adecuada disposición final de los bienes.

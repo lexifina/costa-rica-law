@@ -1,4 +1,1 @@
-TITULO V
-CAPÍTULO 1: DISPOSICIONES FINALES
-Artículo Nº50- Del cumplimiento general
-Todas las normas incluidas en este Reglamento serán de observancia obligatoria para todos los funcionarios del CUNLIMON, a partir de su vigencia.
+Artículo 50.-Valor de los bienes. Para calcular el valor de los bienes con el único fin de incluirlo en los registros auxiliares, la Unidad de Contabilidad puede solicitar los servicios de funcionarios de las dependencias que tengan conocimiento especializado del tema a fin de que los bienes figuren en los registros auxiliares con su valor más aproximado.

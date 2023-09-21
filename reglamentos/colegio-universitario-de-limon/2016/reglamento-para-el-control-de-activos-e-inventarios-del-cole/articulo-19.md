@@ -1,4 +1,7 @@
-CAPITULO IV
-Trámite de Préstamo de Activos a Instituciones Externas
-Artículo Nº19-Condiciones del préstamo de Activos.
-Cuando se facilite, en calidad de préstamo equipo a funcionarios, docentes, administrativos o estudiantes, deberá firmarse, entre las partes, un documento que asegure que el bien facilitado sea devuelto en buen estado y en el plazo fijado.
+Artículo 19.-De la recepción de activos Donados. Todos aquellos bienes muebles e inmuebles dados al CUNLIMON mediante la modalidad de donación por persona física o jurídica, nacional o internacional deberán cumplir con los siguientes requisitos:
+a) Ofrecimiento formal a la Decanatura con el detalle adjunto de los bienes donados y para el caso de bienes nuevos, indicar el período de garantía, el nombre del proveedor para eventuales reclamos y la vida útil estimada.
+En los casos que la donación trate de bienes inmuebles, y este conformada por un terreno con edificio, se debe indicar el costo por separado de cada inmueble y la vida útil estimada.
+b) Ningún funcionario excepto el Decano, podrá recibir donaciones a nombre de la institución. (previa autorización del Consejo Directivo).
+c) La decanatura, solicitara el análisis de conveniencia (costo-beneficio) institucional de recibir la donación de acuerdo a los criterios técnicos existentes, y los requerimientos mínimos según el bien que se trate. En caso de considerarse viable la donación, se podrá continuar con el proceso con el fin de contar con el acuerdo respectivo.
+d) La unidad de control de activos será la responsable de ejecutar las acciones para la recepción de bienes donados y establecer las condiciones para su respectiva valuación y registro oportuno.
+e) Los mismos preceptos se observarán cuando la recepción de bienes donados no esté contemplada dentro de la partida 5 - bienes duraderos -.

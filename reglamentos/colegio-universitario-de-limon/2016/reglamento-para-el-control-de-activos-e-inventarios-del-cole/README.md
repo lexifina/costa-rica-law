@@ -14,3 +14,4 @@ Reglamento para el Control de Activos e Inventarios del Colegio Universitario de
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-12-12 | la propia norma |
+| 2 | 2023-09-21 | Reglamento 13 (2023-09-21) |

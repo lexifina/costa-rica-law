@@ -1,2 +1,1 @@
-Artículo Nº45- Sobre equipo dañado.
-Todo equipo dañado debe ser reportado por el usuario a la jefatura correspondiente quien gestionará la reparación o la devolución a la Unidad Control de Activos.
+Artículo 45.-Sobre la venta de activos fijos. Se podrán vender activos desechados, cuando la Decanatura evidencie y compruebe mediante documento formal, con copia a la Auditoría Interna, que éstos no son de utilidad para la Institución. El precio de venta base lo fijará la Dirección Administrativa y Financiera en conjunto con Unidad Contable.

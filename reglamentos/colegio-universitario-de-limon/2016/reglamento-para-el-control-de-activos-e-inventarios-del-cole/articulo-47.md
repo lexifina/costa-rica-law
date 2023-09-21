@@ -1,2 +1,5 @@
-Artículo Nº47- Sobre autorización para afectar el patrimonio.
-Toda eliminación o baja de equipo del patrimonio institucional requerirá autorización escrita de la Decanatura del CUNLIMON con la aprobación de la auditoría interna. La unidad de Contabilidad deberá exigir a la Unidad de Control de Activos copia de dicha autorización formal antes de aceptar cualquier reducción de bienes del libro mayor de activos o del inventario oficial de activos.
+CAPÍTULO X
+Del inventario de bienes
+Artículo 47.-De la revisión del Inventario. La Unidad de Control de Activos o en su efecto, la Proveeduría, cuando lo estime conveniente y sin previo aviso, tendrá la facultad para realizar recuentos físicos de los bienes que según el registro control de activos hayan sido asignados al funcionario responsable de su custodio y protección. Quien deberá responder por cualquier deterioro o pérdida de este.
+La Unidad de Control de Activos juntamente con la Jefatura de cada unidad debe realizar una comprobación física y enviar un informe de las diferencias encontradas a la Dirección Administrativa y Financiera, en un plazo de quince días naturales, indicando el nombre de los funcionarios bajo cuya responsabilidad se encuentra cada activo.
+En caso de no enviar informe alguno dentro de ese tiempo, se considerará que el listado es correcto y el funcionario asignado asumirá la responsabilidad de los bienes allí reportados.

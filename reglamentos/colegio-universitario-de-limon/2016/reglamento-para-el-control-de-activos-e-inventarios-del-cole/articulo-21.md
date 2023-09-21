@@ -1,2 +1,4 @@
-Artículo Nº21-Incumplimiento del Plazo del Préstamo.
-En casos de incumplimiento del plazo máximo mencionado, la jefatura correspondiente comunicará tal situación, al encargado de la unidad Control de activos, adjuntando el formulario donde conste el incumplimiento del plazo fijado; a fin de que se realice el trámite del cobro ante la Sección de Planillas mediante rebajo salarial. Según lo dispuesto en el artículo 162 del Reglamento Autónomo del CUNLIMON.
+Artículo 21.-Disposiciones para el préstamo de activos. La formalización de un préstamo se requiere cumplir con los siguientes dispositivos:
+1) Presentación del formulario de traslado de activos cabalmente confeccionado.
+2) Aceptación de la parte prestataria.
+3) Comunicación o copia del documento remitido a la Unidad de Proveeduría.

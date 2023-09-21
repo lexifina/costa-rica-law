@@ -1,4 +1,2 @@
-Artículo Nº27- Del Auditor.
-Ningún bien mueble podrá ser desechado del patrimonio institucional del CUNLIMON sin la inspección previa del Auditor Interno o de su representante quien se encargara de verificar:
-a. Que la lista detallada de los bienes desechados contenga las columnas de: descripción del bien, lugar de procedencia, placa de identificación (o # identificación) y funcionario responsable.
-b. Que la nota técnica certifique la inutilidad o posibilidad de reparación del bien dejando constancia de dicha condición.
+Artículo 27.-Mantenimiento, reparación, o revisión de activos. Cuando la garantía haya caducado, es responsabilidad de la Unidad de Control de Activos. Se exceptúa de lo anterior, lo relacionado con el equipo computacional, cuya responsabilidad recae en el Departamento de Tecnologías de la Información, así como lo relacionado con los vehículos de transporte, lo cual será responsabilidad de la Dirección Administrativa Financiera del CUNLIMON.
+La reparación de un bien cuya garantía esté en vigencia y según sea el caso, deberá ser notificado a la Unidad de Proveeduría o al departamento de Tecnologías de la Información, quien deberá contactar al proveedor respectivo para gestionar dicha reparación.

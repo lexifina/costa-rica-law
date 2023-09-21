@@ -1,2 +1,1 @@
-Artículo Nº16- De los Activos Recuperados.
-Los activos que sean recuperados deberán ser rotulados en caso que proceda.
+Artículo 16.-De los Activos Recuperados. Los activos que sean recuperados deberán ser rotulados en caso de que proceda.

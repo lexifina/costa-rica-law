@@ -1,4 +1,9 @@
-CAPITULO IV
-Del Traslado de los bienes
-Artículo Nº23-Traslado y Reasignación de Activos.
-El traslado y la reasignación de bienes implican cambiar definitivamente el lugar y la reasignación de bienes, el lugar y custodio de los bienes dentro de la administración, no variando cualitativamente ni cuantitativamente el patrimonio institucional.
+Artículo 23.-Del préstamo externo de activos. El préstamo de activos a otras instituciones deberá ser aprobado por la Decanatura y se formalizará mediante convenio. La solicitud debe contener la siguiente información mínima para que se registre ante la Unidad de Control de Activos:
+a) Ubicación
+b) Período que cubre
+c) Responsable del bien dado en calidad de préstamo
+d) Números de activos (Placa)
+e) En el caso de vehículos, modelo, serie, color, tipo, N.º motor, N.º de chasis, N.º placa de circulación, estado general de todos los sistemas que componen la unidad, así como un detalle de la documentación que la respalda para circular sin problemas, según lo establece la Ley General de Tránsito de Costa Rica.
+f) Estado de entrega de los activos facilitados
+g) Nombre de la institución a la cual se le está prestando
+h) Otras condiciones del préstamo y devolución.

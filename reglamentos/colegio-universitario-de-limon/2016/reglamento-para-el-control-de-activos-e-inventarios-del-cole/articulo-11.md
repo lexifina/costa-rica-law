@@ -1,9 +1,13 @@
-Artículo Nº11- De los Directores del CUNLIMON
-Los Directores, serán responsables de la adecuada administración de los activos; podrán delegar y pedir cuentas por la responsabilidad material de los daños, extravío y del deterioro anormal de los bienes asignados a los funcionarios a su cargo.
-Será responsabilidad esencial de los Directores, las siguientes funciones y disposiciones:
-a) Velar porque las solicitudes de bienes y materiales que autorizan, correspondan a las necesidades de su personal a cargo para el desempeño de sus funciones.
-b) Custodiar de manera temporal, los activos cuando medie traslado, renuncia o despido de un colaborador. La custodia de activos, que por renuncia, traslado o despido de un funcionario, no se hayan aún reasignado, estarán bajo la responsabilidad del Director, hasta que sean reasignados.
-c) Realizar la rendición de cuentas cuando existan irregularidades en los activos.
-d) Informar a la Unidad Control de Activos y a la Auditoría Interna, sobre los resultados del proceso efectuado.
-e) Para lo anterior la Unidad Control de Activos definirá el procedimiento de la toma física, remitirá de forma anual y/o discrecional un listado de los activos maquinaria, equipo, mobiliario, herramientas y accesorios, asignados a cada Dirección y colaboradores a su cargo. El director tendrán diez días hábiles, contados a partir del recibo del listado, para hacer las observaciones que estime pertinentes. Se podría solicitar una única prorroga, por el mismo período.
-f) El incumplimiento de las funciones o disposiciones mencionadas, acarreará la aplicación de las sanciones establecidas en el capítulo II del reglamento.
+Artículo 11.-De la Unidad de Informática del CUNLIMON. La Unidad de informática del CUNLIMON le corresponderá las siguientes disposiciones:
+a) Conservar y administrar lo relativo a las garantías originales de los equipos de cómputo y licencias adquiridas en materia de hardware y software.
+b) Elaborar y suministrar un informe trimestral de la cantidad, el estado, la ubicación, asignación y distribución de los bienes y dispositivos computacionales, a la Unidad Control de Activos, a la Dirección Administrativa y Financiera y a la Auditoría Interna cuando sea solicitado.
+c) Elaborar y suministrar un reporte mensual de todos los repuestos y bienes recuperados, asimismo del costo de su reparación cuando corresponda al equipo de cómputo. Dichos bienes deberán ser oportunamente reportados para su debida anotación en un registro o inventario de repuestos recuperados, para su debido y posterior control a cargo de la Unidad de Control de Activos.
+d) El Departamento de Tecnología de Información velará por el control y mantenimiento del equipo de cómputo asignado a los funcionarios institucionales, mediante los registros que deberá llevar para tal efecto.
+Artículo 11.-De los Directores del CUNLIMON. Los directores serán responsables de la adecuada administración de los activos; podrán delegar y pedir cuentas por la responsabilidad material de los daños, extravío y del deterioro anormal de los bienes asignados a los funcionarios a su cargo.
+Será responsabilidad esencial de los directores las siguientes funciones y disposiciones:
+a) Velar porque las solicitudes de bienes y materiales que autorizan correspondan a las necesidades de su personal a cargo para el desempeño de sus funciones.
+b) Custodiar, de manera temporal los activos cuando medie traslado, renuncia o despido de un colaborador. La custodia de activos que, por renuncia, traslado, despido o jubilación de un funcionario, no se hayan aún reasignado, estarán bajo la responsabilidad del director hasta que sean reasignados.
+c) Solicitar un informe a los funcionarios bajo su cargo cuando existan irregularidades en los activos.
+d) Informar a la Dirección Administrativa, sobre los resultados del informe recibido.
+e) La Unidad Control de Activos realizará una toma física de forma anual y/o discrecional de los activos, remitiendo un listado de los mismos que estén asignados a cada Dirección y colaboradores a su cargo. El director tendrá diez días hábiles, contados a partir del recibo del listado, para hacer las observaciones que estime pertinentes. Se podría solicitar una única prorroga, por el mismo período.
+(Nota de Sinalevi: En la publicación de este reglamento aparece dos veces el artículo 11)

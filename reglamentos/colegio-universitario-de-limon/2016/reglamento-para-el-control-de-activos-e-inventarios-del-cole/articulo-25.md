@@ -1,5 +1,5 @@
-CAPITULO V
-Reparación de Activos
-Artículo Nº25- Reparación de activos
-En caso de daño de un activo el funcionario custodio del mismo realiza el traslado con la observación de que debe ser valorado por su estado. El documento se le suministra al encargado de control de activos quien realiza el registro correspondiente. En caso de que el activo sea reparable se realiza el trámite correspondiente.
-En caso de que el activo sea irreparable el encargado de control de activos procede a gestionar la reposición.
+Artículo 25.-Proceso para el traslado de activos. Para el traslado de bienes se deberá cumplir con lo siguiente:
+a) Contar con la aprobación del Director respectivo o en su defecto del Decano de la Institución.
+b) Aprobado el traslado del activo, el interesado deberá hacer de conocimiento de la Unidad de Control de Activos lo dispuesto, a fin de que ésta proceda con el registro y afectación de ubicación de bienes en el sistema de control.
+c) Realizado el registro y afectación de bienes en el sistema de control, la Unidad de Control de Activos, remitirá a las entidades involucradas que reciben y entregan, el formulario de control sobre el activo, a efecto de dejar constancias de los movimientos o traslados efectuados con los activos.
+d) Cuando se trate del traslado de bienes, entre instituciones, bajo cualquiera de las modalidades establecidas en los artículos precedentes, se deberá contar con el Visto Bueno del Decano o quien éste designe en el documento respectivo para autorizar de manera expresa, el traslado del bien.

@@ -1,2 +1,1 @@
-Artículo Nº31-Codigos y Números de Inventarios.
-El auditor o su representante realizarán las pruebas necesarias a efecto de corroborar que la identificación y descripción de los bienes desechados y anotados en el listado, correspondan con los bienes inspeccionados.
+Artículo 31.-Estudio adicional. El auditor interno, si lo considera necesario, podrá solicitar la realización de un estudio adicional a fin de comprobar el estado real del bien que se solicita desechar.

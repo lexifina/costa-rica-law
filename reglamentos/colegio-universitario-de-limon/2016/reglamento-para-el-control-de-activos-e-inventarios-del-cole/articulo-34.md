@@ -1,2 +1,1 @@
-Artículo Nº34- Solicitante de donación.
-Cualquier particular o institución tiene el derecho de solicitar para donación o venta algún bien dado de baja por la institución por medio de una propuesta escrita la cual debe ser dirigida al Decano de la Institución.
+Artículo 34.-Códigos y números de inventarios. El auditor realizará las pruebas necesarias a efecto de corroborar que la identificación y descripción de los bienes desechados y anotados en el listado, correspondan con los bienes inspeccionados.
