@@ -14,3 +14,4 @@ Despachos judiciales que resolverán, en horario no hábil (fines de semana y fe
 | --- | --- | --- |
 | 1 | 2016-03-15 | la propia norma |
 | 2 | 2017-05-22 | Circular 86 (2017-05-22) |
+| 3 | 2023-09-21 | Circular 231 (2023-09-21) |
