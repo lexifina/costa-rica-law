@@ -14,3 +14,4 @@ Reglamento para la presentación del informe de fin de gestión en el Ministerio
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-12-02 | la propia norma |
+| 2 | 2023-09-21 | Decreto Ejecutivo 44313 (2023-09-21) |

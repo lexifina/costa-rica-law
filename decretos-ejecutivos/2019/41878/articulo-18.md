@@ -1,2 +1,2 @@
-Artículo 18.—Rige. Rige a partir de su publicación.
-Dado en la Presidencia de la República San José, a los veinticuatro días del mes de junio de dos mil diecinueve.
+Artículo 18.-Sanciones. Este reglamento es de acatamiento obligatorio y su incumplimiento injustificado dará lugar a responsabilidad administrativa y civil, cuando corresponda, según lo contemplado en el Capítulo V de la Ley General de Control Interno, N° 8292 del 31 de julio de 2002 y sin perjuicio de otras causales previstas en el régimen aplicable a la respectiva relación de servicios.
+(Así modificada su numeración por el artículo 1° del decreto ejecutivo N° 44313 del 21 de setiembre del 2023, que lo traspasa del antiguo artículo 17 al artículo 18)
