@@ -1,1 +1,0 @@
-Artículo 4º—En los casos descritos en el artículo 2º anterior, el Sistema correrá con los gastos que se ocasionen. En cuanto a lo dispuesto por el artículo 3º, serán los organismos e instituciones adscritas a las que les corresponderán cubrir los gastos en que estas incurran para que el equipo y aplicaciones funcionen perfectamente o sean repuestos.

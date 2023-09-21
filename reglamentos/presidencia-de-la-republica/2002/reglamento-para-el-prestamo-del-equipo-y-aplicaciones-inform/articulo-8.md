@@ -1,1 +1,0 @@
-Artículo 8º—Con ocasión de la notificación establecida en el artículo anterior, el Técnico asignado del Sistema realizará una inspección detallada y profunda de lo denunciado y confeccionará una boleta de reporte, la cual deberá ser firmada por el Técnico del Sistema que atendió la denuncia y por el encargado del Despacho del organismo o institución adscrita correspondiente.
