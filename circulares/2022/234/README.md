@@ -13,3 +13,4 @@ Directrices para el uso de la Agenda Cronos en materia penal, de acatamiento obl
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-12-15 | la propia norma |
+| 2 | 2023-09-21 | Circular 241 (2023-09-21) |
