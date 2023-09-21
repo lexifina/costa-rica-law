@@ -1,0 +1,1 @@
+Artículo 8º-Derogatoria. Se deroga el Reglamento sobre el Refrendo Interno de las Contrataciones de la Asamblea Legislativa, aprobado por el Directorio Legislativo en la en sesión ordinaria N° 156-2017 del 28 de febrero de 2017 y publicado en el Diario Oficial La Gaceta N° 54 del 16 de marzo del 2017.
