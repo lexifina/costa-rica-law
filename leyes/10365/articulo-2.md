@@ -1,0 +1,1 @@
+ARTÍCULO 2- Se declaran de interés público: la enseñanza del emprendimiento, la innovación, la creatividad y el desarrollo de competencias para la generación de empresas por medio del sistema educativo costarricense.

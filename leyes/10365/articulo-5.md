@@ -1,0 +1,1 @@
+ARTÍCULO 5- Se autoriza al Ministerio de Educación Pública (MEP) para que suscriba convenios de cooperación con las organizaciones e instituciones afines, para el cumplimiento del fin de la presente ley.

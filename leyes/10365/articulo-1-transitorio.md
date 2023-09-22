@@ -1,0 +1,1 @@
+TRANSITORIO l- El Consejo Superior de Educación Pública y el Ministerio de Educación Pública (MEP) tendrán el plazo de doce meses, contado a partir de la entrada en vigor de la presente ley, para cumplir con lo establecido en el artículo 3.
