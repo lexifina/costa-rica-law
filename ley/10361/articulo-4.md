@@ -1,0 +1,3 @@
+ARTÍCULO 4- Se establece, sobre la propiedad proveniente de la donación resultante, una limitación de traspaso del inmueble a terceros hasta por un plazo de diez años, contado a partir de la fecha de otorgamiento de la respectiva escritura pública de donación. Asimismo, en caso de desviarse de los fines perseguidos en la presente ley, la propiedad deberá ser devuelta al propietario inicial reseñado en el artículo 1. La Notaría del Estado se encargará de inscribir dicha limitación y subsanación de errores ante el Registro Público.
+Rige a partir de su publicación.
+Dado en la Presidencia de la República, San José, a los veintinueve días del mes de junio del año dos mil veintitrés.

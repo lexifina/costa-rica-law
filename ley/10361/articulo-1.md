@@ -1,0 +1,5 @@
+N° 10361
+LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA
+DECRETA:
+AUTORIZACIÓN AL ESTADO - MINISTERIO DE SEGURIDAD PÚBLICA, PARA DESAFECTAR Y DONAR UN TERRENO DE SU PROPIEDAD A LA ASOCIACIÓN DE MUJERES EMPRENDEDORAS DE EL ALUMBRE DE CARTAGO
+ARTÍCULO 1- Se desafecta del uso público del Inmueble propiedad del Estado, cédula jurídica número dos - cero cero cero - cero cuatro cinco cinco dos dos (N.° 2000-045522) / dos-uno cero cero-cero cuatro dos cero uno uno (2-100- 042011), ubicado en el partido de Cartago; cantón primero, Cartago; distrito sétimo, Corralillo; inscrito en el Registro Nacional de la Propiedad bajo el sistema de folio real matrícula número uno cero cero ochocientos quince---cero cero cero (N.° 100815---000), cuya naturaleza es: terreno empedrado; mide doscientos treinta y un metros con cincuenta y cinco decímetros cuadrados (231, 55 m2); los linderos son: al norte con calle pública 15 m, al sur con Edwin Navarro Quirós, al este y oeste con la Municipalidad de Cartago, y se afecta al nuevo uso de terreno para construcción.
