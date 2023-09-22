@@ -1,0 +1,2 @@
+Artículo 26.-Las distinciones honoríficas otorgadas previo a la publicación de este reglamento se mantendrán vigentes, sin embargo, no será obligación de la municipalidad aplicarles esta normativa en cuanto al otorgamiento de galardones. Este reglamento entrará en vigor a partir de su publicación en el Diario Oficial La Gaceta.
+Por unanimidad se acuerda: Se aprueba el Reglamento para Conferir Distinciones Honoríficas en el Cantón de Pococí. Que se publique en el Diario Oficial La Gaceta. Se Dispensa del Trámite de Comisión. Acuerdo Definitivamente Aprobado.

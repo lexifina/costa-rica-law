@@ -1,0 +1,1 @@
+Artículo 19.-Postulación para distinciones honoríficas notorias. Toda persona mayor de edad con domicilio en el cantón o persona integrante del Concejo Municipal podrá postular una candidatura para las distinciones honoríficas notorias, misma que será recibida por la Secretaría del Concejo.

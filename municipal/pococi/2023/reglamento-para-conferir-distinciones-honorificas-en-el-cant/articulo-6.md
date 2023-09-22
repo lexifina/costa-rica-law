@@ -1,0 +1,1 @@
+Artículo 6º-Declaratoria de interés cultural o cantonal. Podrá otorgarse la declaratoria de interés cultural o cantonal, como una distinción honorífica, a aquellas actividades, proyectos u organizaciones que impliquen un aporte a los campos cultural, ambiental, científico, artístico, deportivo, económico, profesional, social, derechos humanos o político del cantón de Pococí.

@@ -1,0 +1,1 @@
+Artículo 4º-Distinciones honoríficas máximas. Las distinciones honoríficas máximas serán las designaciones de "Hija o Hijo Predilecto del Cantón" y de "Ciudadana o Ciudadano Distinguido del Cantón. Adicionalmente, podrán obtener a criterio del Concejo Municipal, alguno de los reconocimientos del artículo 7 de este reglamento.

@@ -1,0 +1,1 @@
+Artículo 22.-Procedimiento para el otorgamiento de la declaratoria de interés cultural o cantonal. La propuesta o postulación para el otorgamiento de la declaratoria de interés cultural o cantonal, será conocida por el Concejo Municipal y trasladada a la Comisión Especial de Distinciones Honoríficas para su análisis y dictamen.

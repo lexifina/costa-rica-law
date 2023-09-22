@@ -1,0 +1,1 @@
+Artículo 18.-Otorgamiento de distinciones honoríficas notorias. Las distinciones honoríficas notorias se otorgarán en la sesión del Concejo Municipal convocada al efecto, previa recomendación de la Comisión Especial de Distinciones Honoríficas, de acuerdo con la fecha en que se acuerde.

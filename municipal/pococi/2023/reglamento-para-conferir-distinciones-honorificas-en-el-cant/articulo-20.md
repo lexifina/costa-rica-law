@@ -1,0 +1,1 @@
+Artículo 20.-Plazo para la postulación a distinciones honoríficas notorias. Las postulaciones para distinciones honoríficas notorias podrán ser recibidas en cualquier momento, pero su consideración dependerá de la calendarización que el Concejo Municipal, previa recomendación de la Comisión Especial de Distinciones Honoríficas, acuerde para su otorgamiento.
