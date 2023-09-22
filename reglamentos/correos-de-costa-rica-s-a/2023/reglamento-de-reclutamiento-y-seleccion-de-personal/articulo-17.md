@@ -4,7 +4,10 @@ b) Que, por motivo de una cadena de nombramientos el candidato que fue ascendido
 c) Si el colaborador ya ejerció el puesto por el periodo mínimo que establece la Convención Colectiva.
 d) Cuando haya recibido un ascenso por parte de la jefatura y éste sea menor a los 6 meses.
 e) Que ante una necesidad de continuidad del negocio se deba seleccionar un colaborador que recientemente fue promovido o trasladado.
-f) Excolaboradores cuya resolución del contrato laboral haya sido sin responsabilidad patronal o con responsabilidad patronal.
+f) Excolaboradores cuya resolución del contrato laboral haya sido sin responsabilidad patronal.
+Así como los excolaboradores cuya resolución del contrato laboral haya sido con responsabilidad patronal, cuya resolución obedeció a ineficiencias en el desempeño, improductividad, conducta contraria a los valores, principios éticos de la empresa (no comprobada), aquellas personas que hayan interpuesto una demanda en contra de Correos de CR, por motivos de ergonomía del trabajador.
+Se excluyen de esta restricción los despidos con responsabilidad patronal cuya resolución haya sido motivada por finiquito de proyectos comerciales y /o restructuración organizacional interna asociados a estos proyectos, que son factores externos al desempeño y conducta del trabajador.
+(Así reformado el inciso anterior mediante sesión ordinaria N° 1802 del 22 de setiembre del año 2023)
 g) Candidatos que no cumpla con el perfil del puesto y con las condiciones laborales solicitadas por un cliente comercial de Tercerización.
 h) Candidatos preseleccionados que tengan en la entrevista técnica inferior a 7pts o que el encargado de efectuar la entrevista técnica desestime de acuerdo con criterios técnicos basados en las pruebas ejecutadas.
 i) Quienes brinden información falsa u omisa de sus atestados, experiencia y competencias; presenten en forma extemporánea la información requerida; no obtengan la puntuación mínima en el proceso de valoración.
