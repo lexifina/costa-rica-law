@@ -1,0 +1,2 @@
+Artículo 31. Reactivación de los servicios
+La reactivación en la prestación del servicio que haya sido desactivado se hará una vez eliminada la causa que originó la suspensión y verificado el pago pendiente, de conformidad con los términos estipulados en el contrato. El plazo máximo para la reactivación de los servicios es de tres (3) horas dentro del horario de funcionamiento de los Centros de Atención al Usuario Final, de lo cual el operador/proveedor dejará la constancia respectiva en sus sistemas.

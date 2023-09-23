@@ -1,0 +1,3 @@
+Artículo 78. Peritos acreditados para la homologación de equipos terminales
+La Sutel mediante resolución motivada, establecerá las condiciones mínimas del proceso de homologación de equipos terminales y acreditará a los peritos autorizados para realizar dichas pruebas. Esta acreditación podrá ser revocada, mediante resolución motivada, si la Sutel considera que el perito no cumple con las condiciones establecidas.
+La Sutel mantendrá un registro actualizado de los peritos acreditados para las pruebas de homologación, quienes a su vez están capacitados para realizar pruebas relativas a dispositivos con IMEI duplicados o adulterados. Dichos peritos serán incorporados en el Registro Nacional de Telecomunicaciones.

@@ -1,0 +1,3 @@
+Artículo 27. Renuncia voluntaria del servicio contratado
+Cuando el cliente renuncie voluntariamente al servicio contratado previo a su entrega, el operador/proveedor, en el plazo máximo de cinco (5) días naturales, debe realizar la devolución proporcional de los montos cancelados según el avance de la instalación de conformidad con lo dispuesto en el contrato.
+En caso de que el operador/proveedor haya brindado algún equipo terminal sujeto a condiciones de permanencia mínima, el cliente debe proceder con el pago del monto correspondiente a dicho equipo, según lo establecido en el contrato. Cuando el equipo se suministre en otras modalidades, el cliente debe devolverlo al operador/proveedor, cuando este así lo requiera.

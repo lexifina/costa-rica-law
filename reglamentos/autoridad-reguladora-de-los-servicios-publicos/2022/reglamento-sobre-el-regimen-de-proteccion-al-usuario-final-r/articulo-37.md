@@ -1,0 +1,5 @@
+Artículo 37. Homologación de contratos de adhesión
+Los contratos de adhesión para la prestación de los servicios de telecomunicaciones deben ser homologados por la Sutel con el fin de corregir cláusulas o contenidos contractuales abusivos o que ignoren, eliminen o menoscaben los derechos de los usuarios finales.
+La Sutel mediante resolución motivada, establecerá el procedimiento para la homologación de contratos de adhesión y podrá complementar o modificar el contenido mínimo de estos, para lo cual debe cumplir con el procedimiento de consulta de diez (10) días hábiles, según lo establecido en la Ley General de la Administración Pública.
+Los operadores/proveedores deben mantener disponibles los contratos homologados por la Sutel para cada servicio que presten, tanto en sus agencias como en una sección de fácil acceso en su sitio WEB, para que los usuarios finales puedan conocer su contenido.
+Los contratos de adhesión deben establecer condiciones iguales o más favorables para los clientes, a las establecidas en este Reglamento y los derivados de la Ley General de Telecomunicaciones y demás disposiciones de la Sutel.

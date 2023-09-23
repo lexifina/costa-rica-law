@@ -1,0 +1,2 @@
+Artículo 45. Continuidad de los contratos
+Cuando se cumpla el plazo de los contratos con cláusulas de permanencia mínima y el cliente no gestione ante el operador/proveedor la suscripción de un nuevo contrato, los operadores/proveedores deberán brindar continuidad al servicio en los términos y condiciones originalmente pactados, excluyendo el cobro por los equipos terminales asociados a la permanencia mínima vencida. En todo caso, los clientes podrán rescindir en cualquier momento y sin penalizaciones, los contratos cuyo plazo de permanencia mínima se haya cumplido.

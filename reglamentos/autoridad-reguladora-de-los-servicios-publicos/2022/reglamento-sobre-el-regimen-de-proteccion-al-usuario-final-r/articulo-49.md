@@ -1,0 +1,2 @@
+Artículo 49. Contratación condicionada o ventas atadas
+Los clientes tienen derecho a contratar por separado cualquiera de los servicios de telecomunicaciones que ofrece el operador/proveedor, por lo que resulta prohibido que la contratación se condicione a la adquisición, arrendamiento o cualquier otra forma de utilización, de los materiales, equipos propiedad de la empresa operadora o la contratación de otros servicios de telecomunicaciones o de información. Se exceptúan aquellos equipos terminales que sean requeridos para brindar el servicio.

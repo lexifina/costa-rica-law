@@ -1,0 +1,4 @@
+Artículo 29. Suspensión definitiva
+Posterior a la suspensión temporal, el operador/proveedor debe proceder con la suspensión definitiva del servicio y a la resolución unilateral del contrato por incumplimiento del usuario final y a disponer de la numeración asociada.
+La suspensión definitiva debe ejecutarse por parte del operador/proveedor en el plazo de diez (10) días hábiles, posteriores a la ejecución de la suspensión temporal, para lo cual debe informar de previo al usuario sobre dicha condición. Si el operador/proveedor omite efectuar la suspensión definitiva en el plazo y condiciones señaladas, debe asumir los montos por consumos posteriores por parte del usuario final.
+Sin perjuicio de reclamar las acciones legales que correspondan ante las autoridades competentes, el operador/proveedor procederá con la suspensión definitiva del servicio, cuando el usuario final incurra en una práctica prohibida.

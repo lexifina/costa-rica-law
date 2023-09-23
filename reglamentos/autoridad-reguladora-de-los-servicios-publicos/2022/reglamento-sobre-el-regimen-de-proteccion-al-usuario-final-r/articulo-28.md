@@ -1,0 +1,5 @@
+Artículo 28. Suspensión temporal por falta de pago
+El operador/proveedor debe suspender temporalmente, a partir del tercer (3) día hábil posterior a la fecha de vencimiento del cobro facturado, aquellos servicios que se encuentren pendientes de pago.
+Los operadores/proveedores deben abstenerse de suspender temporalmente el servicio, los días: sábados, domingos o feriados de Ley, cuando para esos días no tengan disponibles o habilitados medios de pago, y no puedan reactivar el servicio de forma inmediata una vez cancelado.
+Se exceptúan del proceso de suspensión temporal, todas las comunicaciones entrantes y las llamadas salientes a los Servicios de Emergencias y Centros de Atención al Usuario Final.
+Antes de proceder con la suspensión temporal, el operador/proveedor debe informar al usuario final, con una antelación mínima de un (1) día hábil, por los medios que tenga registrados, sobre la fecha de desactivación del servicio y cobros de reconexión, con el fin que proceda con el pago efectivo.

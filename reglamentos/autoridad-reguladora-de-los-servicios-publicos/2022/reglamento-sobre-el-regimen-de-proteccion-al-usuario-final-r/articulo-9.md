@@ -1,0 +1,2 @@
+Artículo 9. Asistencia a usuarios con discapacidad
+Los operadores/proveedores deben contar con los mecanismos que permitan que personal capacitado y disponible brinde asistencia de forma presencial o remota a los usuarios finales con discapacidad que accedan a los Centros de Atención al Usuario Final. Adicionalmente, el sitio WEB de los operadores/proveedores debe cumplir con lo establecido en las Guías de Accesibilidad de Contenido WEB (WCAG 2.0) que corresponden al estándar ISO/IEC 40500 y sus actualizaciones.

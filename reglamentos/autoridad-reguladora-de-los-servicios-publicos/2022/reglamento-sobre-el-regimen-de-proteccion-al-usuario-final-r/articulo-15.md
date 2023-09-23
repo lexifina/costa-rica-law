@@ -1,0 +1,3 @@
+Artículo 15. Respuesta efectiva por parte del operador/proveedor.
+Las respuestas brindadas por los operadores/proveedores, deben analizar los hechos y pretensiones interpuestas y fundamentarse en la prueba respectiva, según la inversión de la carga de la prueba establecida en el artículo 48 de la Ley General de Telecomunicaciones.
+Los operadores/proveedores deben notificar la respuesta efectiva al interesado, dentro de los diez (10) naturales, posteriores a la presentación de la reclamación, al medio que éste hubiere señalado en el contrato, su reclamación, o, en su defecto, donde se remiten las facturas por el servicio.

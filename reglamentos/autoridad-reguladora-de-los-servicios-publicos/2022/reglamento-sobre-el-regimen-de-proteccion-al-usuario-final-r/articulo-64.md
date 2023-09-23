@@ -1,0 +1,3 @@
+Artículo 64. Facturación detallada de las comunicaciones
+El operador/proveedor, a solicitud del cliente, debe brindar una facturación detallada con los consumos realizados a partir de los CDR correspondientes para el periodo facturado según la información señalada en el 0 del presente reglamento, la misma debe ser entregada de forma gratuita mediante correo electrónico, o por medio de un dispositivo de almacenamiento de información provisto por el cliente, o bien, cobrando el costo de la impresión de requerirse dicha información de forma impresa.
+Esta información deberá ser entregada únicamente al cliente del servicio o tercero autorizado, en un plazo máximo de un (1) día hábil a partir de la solicitud recibida.

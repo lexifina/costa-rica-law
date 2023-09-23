@@ -1,0 +1,4 @@
+Artículo 62. Plazo de entrega de la factura
+Los operadores/proveedores tienen la obligación de notificar la factura al cliente en el medio electrónico señalado en el contrato, en un máximo de diez (10) días calendario posteriores al cierre del periodo de facturación.
+En los casos en que el operador/proveedor notifique las facturaciones a sus clientes de manera posterior al periodo establecido, la fecha de vencimiento de la facturación (fecha límite de pago) se correrá en la misma proporción de días de entrega tardía. En ningún caso, se podrá suspender el servicio por falta de pago durante este plazo.
+Todos los servicios contratados, deben ser puestos al cobro en la facturación inmediata siguiente al registro del consumo. Ningún operador/proveedor podrá cobrar ni incluir en la facturación, consumos o cobros con un atraso mayor a sesenta (60) días naturales a partir de su registro o utilización.

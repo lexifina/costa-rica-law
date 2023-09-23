@@ -1,0 +1,2 @@
+Artículo 52. Conservación de los registros de tasación
+Los operadores/proveedores deben conservar los registros detallados de las comunicaciones que cursen los usuarios finales dentro o fuera de sus redes durante un plazo mínimo de cuatro (4) años, salvo cuando el usuario final haya presentado una reclamación ante la Sutel, para lo cual deben conservar los registros controvertidos hasta que se emita la resolución final.

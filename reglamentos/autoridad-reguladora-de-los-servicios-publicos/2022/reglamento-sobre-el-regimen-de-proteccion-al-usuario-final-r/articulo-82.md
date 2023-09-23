@@ -1,0 +1,2 @@
+Artículo 82. Pago de servicios durante el periodo de reparación de terminales
+Cuando el equipo terminal asociado a un plan con permanencia mínima vigente sea remitido a reparación por parte del operador/proveedor al respectivo taller y no registre consumos durante el periodo de reparación, el operador/proveedor deberá ajustar la facturación del servicio, de forma proporcional al citado periodo, sin afectar las condiciones contractuales pactadas.

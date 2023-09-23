@@ -1,0 +1,2 @@
+Artículo 2. Ámbito de aplicación
+Están sometidas al presente Reglamento y a la jurisdicción costarricense, las personas físicas o jurídicas, públicas o privadas, nacionales o extranjeras que operen redes (en adelante "operadores") o presten (en adelante "proveedores") servicios de telecomunicaciones que se originen, terminen, transiten por el territorio nacional, así como sus clientes y usuarios finales.

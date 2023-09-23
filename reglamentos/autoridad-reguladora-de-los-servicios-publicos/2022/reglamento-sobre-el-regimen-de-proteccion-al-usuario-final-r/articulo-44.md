@@ -1,0 +1,3 @@
+Artículo 44. Entrega de copia del contrato suscrito
+En el momento de su suscripción el operador/proveedor debe suministrar de forma gratuita a sus clientes copia del contrato en formato electrónico o excepcionalmente impreso, cuando el usuario final no cuente con un medio electrónico para su recepción.
+Durante la vigencia del contrato y a solicitud del cliente, el operador/proveedor debe brindar copia digital del contrato debidamente suscrito, dentro del plazo máximo de tres (3) días hábiles después de recibida la solicitud. En caso de que el cliente solicite copia física de dicho contrato, el operador/proveedor se encuentra facultado para cobrar el costo de la impresión.

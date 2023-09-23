@@ -1,0 +1,3 @@
+Artículo 58. Cancelación de las facturas por servicios
+Los clientes se encuentran en la obligación de cancelar antes de su vencimiento los servicios contratados y facturados por parte del operador/proveedor.
+Las facturaciones que se cancelen de forma posterior a la fecha de vencimiento facultan al operador/proveedor a cobrar un cargo por reconexión del servicio y un interés máximo por morosidad conforme a la Ley N°9859 y sus reformas. Dichos montos, deben ser informados e indicados de manera expresa en el contrato, la factura de los servicios y sitio WEB del operador/proveedor de los servicios.

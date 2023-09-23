@@ -1,0 +1,2 @@
+Artículo 53. Tasación y tarificación de las comunicaciones
+Los operadores/proveedores deben establecer y poner a disposición en sus páginas WEB y publicidad, información relacionada sobre las unidades mínimas de tasación de los servicios de telecomunicaciones brindados, así como sus precios, independientemente de la forma de comercialización del servicio. Esta información debe ser descrita claramente en las facturaciones correspondientes.

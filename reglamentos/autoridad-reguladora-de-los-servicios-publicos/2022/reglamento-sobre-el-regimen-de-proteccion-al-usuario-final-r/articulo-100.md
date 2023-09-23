@@ -1,0 +1,3 @@
+Artículo 100. Confirmación de activación y desactivación de los servicios de información de tarificación adicional
+Cuando los usuarios finales activen o desactiven suscripciones para los servicios de información de tarificación adicional, deben recibir un mensaje de confirmación inmediato y gratuito que les permita corroborar el estado actual del servicio, por los mismos canales en que recibió la información.
+En caso de no recibir confirmación alguna de la activación o desactivación del servicio de información o si el operador/proveedor no cuenta con un respaldo del envío de dicho mensaje, se asumirá que el servicio se encuentra desactivado y no podrá incluir ningún cobro por este concepto en la facturación del servicio de telecomunicaciones.

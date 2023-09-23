@@ -1,0 +1,4 @@
+Artículo 90. Órgano competente. Le corresponde a la Sutel controlar y comprobar el uso eficiente de los recursos de numeración, y administrar, facilitar y velar por el cumplimiento de las obligaciones de los operadores/proveedores en torno a la portabilidad numérica.
+Para la implementación, operación y administración de la portabilidad numérica los operadores/proveedores con recurso numérico asignado, por medio de un proceso de selección supervisado por la Sutel propondrán la elección de una Entidad de Referencia de Portabilidad Numérica (ERPN), que será designada por la Sutel.
+(Corregido el párrafo anterior mediante Fe de Erratas y publicada en La Gaceta N° 182 del 26 de setiembre de 2022, página N° 2. Se corrigieron unas faltas de ortografías.)
+En caso de que existan divergencias o controversias entre operadores/proveedores en la implementación de portabilidad numérica, la Sutel resolverá de conformidad con lo dispuesto en la legislación vigente.

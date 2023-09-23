@@ -1,0 +1,2 @@
+Transitorio III.
+En el plazo de seis (6) meses calendario a partir de la entrada en vigencia del presente Reglamento, la SUTEL emitirá mediante resolución motivada las disposiciones para desarrollar, las condiciones, procedimientos y plazos asociados a la regulación de las comunicaciones no solicitadas, para lo cual se cumplirá con el procedimiento de consulta por diez (10) días hábiles, según lo establecido en la Ley General de la Administración Pública.

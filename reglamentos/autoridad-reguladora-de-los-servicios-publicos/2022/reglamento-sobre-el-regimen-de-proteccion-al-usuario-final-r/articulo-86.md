@@ -1,0 +1,3 @@
+Artículo 86. Información sobre el consumo
+Todos los operadores/proveedores del servicio de Roaming internacional, deben poner a disposición de los usuarios finales de forma gratuita un mecanismo que proporcione información sobre el consumo acumulado de voz, SMS, datos u otros, expresado en unidades de consumo y en la divisa en que se facture.
+Este servicio de información sobre el consumo acumulado de Roaming debe mantenerse actualizado con una periodicidad mínima de 24 horas, estar disponible las 24 horas del día, los 7 días de la semana y debe poder accederse mediante un servicio de mensajería de texto (SMS) u otros medios propios del servicio de telefonía móvil.

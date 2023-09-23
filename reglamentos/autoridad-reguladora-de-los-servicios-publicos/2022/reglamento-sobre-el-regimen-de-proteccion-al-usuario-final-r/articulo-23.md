@@ -1,0 +1,4 @@
+Artículo 23. Información sobre servicios activos
+Los operadores/proveedores se encuentran en la obligación de brindar, a través de su página WEB, un mecanismo sencillo, gratuito y seguro de consulta asociado al número del documento de identidad, sobre la cantidad de servicios suscritos a su nombre, según el tipo de servicio y modalidad de pago.
+Los operadores/proveedores ante la consulta presencial del cliente en sus Centros de Atención al Usuario Final y una vez verificados sus datos, deben brindar a este, toda la información relativa a los servicios asociados a su nombre.
+La Sutel pondrá a disposición de los clientes un mecanismo de consulta centralizado y seguro a fin de que éstos, una vez superada la validación de sus datos, puedan conocerla cantidad de servicios suscritos a su nombre, según el tipo de servicio, modalidad de pago y el operador/proveedor que lo brinda.

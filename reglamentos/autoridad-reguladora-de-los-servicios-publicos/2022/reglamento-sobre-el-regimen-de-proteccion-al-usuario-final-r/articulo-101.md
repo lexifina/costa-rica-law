@@ -1,0 +1,2 @@
+Artículo 101. Sobre la información disponible en el sitio WEB
+Los operadores/proveedores de servicios de telecomunicaciones deben mantener publicadas y actualizadas su respectivo sitio WEB, una lista con el nombre comercial de las empresas remitentes del servicio de tarificación adicional, su código corto de acceso, numeración especial asociada o cualquier otro sistema de acceso empleado, números de atención gratuita, información sobre el precio por unidad del servicio (minutos, mensajes u otros) y reglamentos vigentes.

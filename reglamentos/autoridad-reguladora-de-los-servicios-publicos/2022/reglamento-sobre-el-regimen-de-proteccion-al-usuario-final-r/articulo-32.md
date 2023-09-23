@@ -1,0 +1,2 @@
+Artículo 32. Reconexión de servicios
+La reconexión de los servicios se realizará en un plazo máximo de un (1) día hábil, o el que disponga el Reglamento de Prestación y Calidad de los Servicios vigente, de lo cual el operador/proveedor dejará la constancia respectiva en sus sistemas. Si transcurrido este plazo el operador/proveedor no ha procedido a la reconexión del servicio por causas atribuibles a éste, no podrá cobrar en la facturación monto alguno por este concepto.

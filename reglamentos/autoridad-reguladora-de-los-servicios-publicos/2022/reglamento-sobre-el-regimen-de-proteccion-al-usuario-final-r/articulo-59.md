@@ -1,0 +1,3 @@
+Artículo 59. Desagregación de las facturas
+Las facturas, deben contener de forma obligatoria y debidamente diferenciada y desagregada, los precios establecidos para cada servicio contratado. Para los servicios comercializados mediante planes, se debe indicar el cargo mensual del plan y los servicios que incluye, así como subsidios o pago en tractos asociados a equipos terminales.
+Los clientes tendrán derecho a obtener, a su solicitud, la facturación conjunta de los servicios contratados; en su defecto las facturaciones se deben enviar en forma individual para cada uno de los contratos suscritos.
