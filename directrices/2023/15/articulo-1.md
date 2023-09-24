@@ -1,4 +1,5 @@
 N° 015-MP-MIDEPLAN- MTSS-MOPT
+(Nota de Sinalevi: Mediante el artículo 1° de la directriz N° 024-MP-MIDEPLAN- MTSS-MOPT del 14 de setiembre del 2023, se acordó prorrogar la presente norma, hasta el 28 de febrero del 2024)
 EL PRESIDENTE DE LA REPÚBLICA,
 LAS MINISTRAS DE LA PRESIDENCIA Y
 DE PLANIFICACIÓN NACIONAL Y POLÍTICA ECONÓMICA

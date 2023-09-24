@@ -14,3 +14,4 @@ Instauración del teletrabajo ante la afectación por el cierre de La Galera y l
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-09-24 | la propia norma |
+| 2 | 2023-09-24 | Directriz 24 (2023-09-14) |
