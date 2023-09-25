@@ -13,3 +13,4 @@ Procedimiento para el uso y actualización de la Guía de Información de Oficin
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-06-11 | la propia norma |
+| 2 | 2023-09-25 | Circular 239 (2023-09-25) |
