@@ -30,3 +30,4 @@ Reglamento de evaluación de los aprendizajes
 | 15 | 2023-01-12 | Decreto Ejecutivo 43925 (2023-01-12) |
 | 16 | 2023-02-02 | Decreto Ejecutivo 43942 (2023-02-02) |
 | 17 | 2023-05-24 | Decreto Ejecutivo 44103 (2023-05-24) |
+| 18 | 2023-09-25 | Decreto Ejecutivo 44226 (2023-09-25) |

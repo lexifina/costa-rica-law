@@ -1,4 +1,4 @@
-Artículo 15°.-Deberes de la persona docente en relación con la evaluación de los aprendizajes. El personal docente responsable y vinculado directamente con el estudiantado en sus procesos de aprendizaje, tiene en materia de evaluación de los aprendizajes, la implementación del sistema de convivencia estudiantil y la evaluación de la conducta, los siguientes deberes:
+Artículo 15°.-Deberes de la persona docente en relación con la evaluación de los aprendizajes. Deberes de la persona docente en relación con la evaluación de los aprendizajes. El personal docente responsable y vinculado directamente con el estudiantado en sus procesos de aprendizaje, tiene en materia de evaluación de los aprendizajes, la implementación del sistema de convivencia estudiantil y la evaluación de la conducta, los siguientes deberes:
 a) Desarrollar el proceso de evaluación de los aprendizajes de acuerdo con lo establecido en este reglamento.
 b) Divulgar entre el estudiantado y las personas encargadas legales, el presente reglamento, así como, la normativa interna que el centro educativo haya establecido en materia de evaluación de los aprendizajes.
 c) Comunicar por escrito a sus estudiantes, al inicio y durante el proceso de enseñanza y aprendizaje, los procedimientos que se seguirán en materia de evaluación de los aprendizajes de los componentes de la calificación.
@@ -16,11 +16,12 @@ n) Informar al estudiantado o la persona encargada legal, durante el desarrollo 
 o) Entregar al estudiantado mayor de edad y a la persona encargada legal, las notas de cada período y el promedio ponderado anual. Se exceptúa de esta disposición lo establecido en el artículo 24 de este reglamento.
 p) Informar y explicar oportunamente al estudiantado mayor de edad o a la persona encargada legal, el desglose de las calificaciones de cada período y los instrumentos utilizados.
 q) Registrar la puntualidad y la asistencia diaria y acumulativa de la persona estudiante e informar por escrito, según corresponda, al estudiantado mayor de edad o a la persona encargada legal, la inasistencia e impuntualidad, durante el desarrollo del período lectivo.
-r) Consignar la justificación de las llegadas tardías y de las ausencias de la persona estudiante que así lo solicite por escrito.
+r) Consignar la justificación de las llegadas tardías y de las ausencias de la persona estudiante que así lo solicite por escrito de conformidad con lo establecido en el artículo 30 de este reglamento.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 44226 del 25 de setiembre del 2023)
 s) Entregar al Comité de Evaluación de los aprendizajes:
-• Una copia de la prueba con su respectiva tabla de especificaciones en un plazo máximo de tres días hábiles posteriores a su aplicación. En el caso de las pruebas de ejecución y la oral para medir la producción oral en lenguas extranjeras solo se entrega la prueba.
-• Una copia de los instrumentos utilizados para calificar el trabajo cotidiano, las tareas y el proyecto, cuando así lo solicite.
-• Las estrategias evaluativas que se aplicarán para el estudiantado que requiere apoyos educativos, en el momento que se implementen.
+. Una copia de la prueba con su respectiva tabla de especificaciones en un plazo máximo de tres días hábiles posteriores a su aplicación. En el caso de las pruebas de ejecución y la oral para medir la producción oral en lenguas extranjeras solo se entrega la prueba.
+. Una copia de los instrumentos utilizados para calificar el trabajo cotidiano, las tareas y el proyecto, cuando así lo solicite.
+. Las estrategias evaluativas que se aplicarán para el estudiantado que requiere apoyos educativos, en el momento que se implementen.
 t) Utilizar durante las lecciones los instrumentos técnicamente elaborados para el registro de información en relación con el proceso evaluativo.
 u) Realizar acciones educativas que realimenten el aprendizaje con base en los resultados obtenidos por el estudiantado durante el proceso evaluativo.
 v) Elaborar, administrar y calificar las pruebas de ampliación, de la persona estudiante a su cargo, las que una vez analizadas con estos, serán entregadas a la dirección del centro educativo para su custodia.

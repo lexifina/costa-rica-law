@@ -14,5 +14,8 @@ i) Plantear por escrito, en forma personal o con el concurso de la persona encar
 j) Respetar las disposiciones de este reglamento.
 k) Comunicar a las personas encargadas legales sobre la existencia de informes o comunicaciones que se remitan al hogar, cuando fuere menor de edad.
 l) Realizar en forma personal las pruebas, tareas u otras actividades evaluativas, que asigne la persona docente.
-m) Justificar, cuando fuere mayor de edad, en forma razonada y escrita las llegadas tardías o ausencias a lecciones, actos cívicos o cualesquiera otras actividades escolares previamente convocadas. Si fuere menor de edad, deberá presentar la justificación suscrita por la persona encargada legal.
+m) Justificar, cuando fuere mayor de edad, en forma razonada y escrita las llegadas tardías o ausencias a lecciones, actos cívicos o cualesquiera otras actividades escolares previamente convocadas.
+Si fuere menor de edad, deberá presentar la justificación suscrita por la persona encargada legal.
+La justificación se debe realizar de conformidad con lo establecido en el artículo 30 de este reglamento.
+(Así reformado el inciso anterior por el artículo 2° del decreto ejecutivo N° 44226 del 25 de setiembre del 2023)
 n) Asistir con puntualidad a las actividades escolares tanto curriculares como cocurriculares a las que se le convoque oficialmente.
