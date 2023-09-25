@@ -14,3 +14,4 @@ Reglamento para el juego nuevos tiempos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-08-31 | la propia norma |
+| 2 | 2023-09-25 | Reglamento 51 (2023-09-25) |
