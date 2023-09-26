@@ -1,1 +1,0 @@
-Artículo 29.—Informe de fin de gestión. Al concluir su relación laboral por la causa que fuere, el auditor debe presentar un informe de fin de gestión, de acuerdo con las directrices emitidas por la Contraloría General de la República.

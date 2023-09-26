@@ -1,1 +1,0 @@
-Artículo 50.—Servicios de fiscalización. Dentro del ámbito del Sinart S. A., la Auditoría Interna prestará dos clases de servicios de fiscalización, los cuales deberán darse con el debido cuidado profesional y de conformidad con la normativa y disposiciones legales que rigen la función de Auditoría Interna

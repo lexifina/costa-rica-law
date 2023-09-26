@@ -1,1 +1,0 @@
-Transitorio único. La Auditoría Interna dispondrá de un plazo de tres meses contados a partir de la publicación de este reglamento para concordar sus políticas y procedimientos con las regulaciones contempladas en este cuerpo normativo.

@@ -1,1 +1,0 @@
-Artículo 69.—Denuncias. Cualquier ciudadano podrá presentar denuncias ante la Auditoría Interna de hechos o actos presuntos de corrupción. Los funcionarios públicos tienen el deber de denunciar todo acto presuntamente corrupto que se presente en la administración pública que sea de su conocimiento de acuerdo con lo establecido e la Ley Nº 8422 y Ley Nº 8292.

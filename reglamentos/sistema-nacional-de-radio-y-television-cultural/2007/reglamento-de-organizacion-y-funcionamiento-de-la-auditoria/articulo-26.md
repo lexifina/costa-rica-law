@@ -1,1 +1,0 @@
-Artículo 26.—Pericia y debido cuidado profesional del Auditor Interno. El Auditor Interno cumplirá con pericia y debido cuidado profesional sus funciones haciendo valer sus competencias con independencia funcional y de criterio, y será vigilante de que su personal responda de igual manera.

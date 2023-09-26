@@ -1,1 +1,0 @@
-Artículo 36.—De los registros presupuestarios. Para efectos presupuestarios, se dará a la Auditoría Interna una categoría programática. En la asignación y disposición de sus recursos, se tomará en cuenta el criterio del Auditor Interno y las instrucciones que emita la Contraloría General de la República

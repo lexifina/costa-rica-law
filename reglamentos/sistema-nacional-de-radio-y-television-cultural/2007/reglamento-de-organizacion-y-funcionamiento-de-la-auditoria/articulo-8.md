@@ -1,1 +1,0 @@
-Artículo 8º—Obligación de contar con una Auditoría Interna. El Sinart S. A. dentro de su estructura orgánica contara con una Auditoria Interna, que es parte integral y vital del Sistema de Control en concordancia con el artículo 20 de la Ley General de Control Interno

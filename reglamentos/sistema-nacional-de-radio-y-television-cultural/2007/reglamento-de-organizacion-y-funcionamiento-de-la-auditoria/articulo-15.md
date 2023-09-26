@@ -1,1 +1,0 @@
-Artículo 15.—Restricciones. El Auditor Interno, y el personal de Auditoría no podrán ser empleados ni ejercer funciones de otra unidad administrativa en la institución y tampoco ser miembros del Consejo Ejecutivo, comisiones de trabajo o similares, pero podrán participar en ellas en calidad de asesores.

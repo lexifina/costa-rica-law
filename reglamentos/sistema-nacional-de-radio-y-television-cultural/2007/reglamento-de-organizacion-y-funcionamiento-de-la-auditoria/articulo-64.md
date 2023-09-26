@@ -1,1 +1,0 @@
-Artículo 64.—Comunicación de servicios preventivos. El trabajo derivado de los servicios preventivos se comunica mediante oficios o memorando a criterio del Auditor Interno y según los lineamientos que al respecto emita la Contraloría General de la República.
