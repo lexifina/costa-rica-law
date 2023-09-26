@@ -1,0 +1,1 @@
+Artículo 13.-El trabajador que se encuentre en la condición de disponible, podrá disfrutar simultáneamente de la retribución por concepto de horas extras, durante el lapso en que devengue dicha disponibilidad todo lo anterior de conformidad con el reglamento de tiempo extraordinario de la ESPH.
