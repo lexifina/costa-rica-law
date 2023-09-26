@@ -1,2 +1,3 @@
-ARTÍCULO 28- Comiso
-El comiso se regirá por lo previsto en el artículo 110 de la Ley N.° 4573, Código Penal, de 4 de mayo de 1970 y su procedimiento en el artículo 489 de la Ley N.° 7594, Código Procesal Penal, de 10 de abril de 1996.
+ARTÍCULO 28- Comiso. El comiso se regirá por lo previsto en el artículo 110 de la Ley N.° 4573, Código Penal, de 4 de mayo de 1970 y su procedimiento en el artículo 489 de la Ley N.° 7594, Código Procesal Penal, de 10 de abril de 1996.
+Cuando en sentencia se ordene el comiso y resultara materialmente imposible lograr su recuperación, el tribunal impondrá la obligación pecuniaria equivalente al valor del bien comisado, a favor del Estado.
+(Así adicionado el párrafo anterior por el artículo 15 de la ley "Reformas a leyes en materia de anticorrupción para atender recomendaciones del grupo de trabajo sobre el soborno en las transacciones comerciales internacionales de la Organización para la Cooperación y Desarrollo Económico (OCDE)", N° 10373 del 20 de setiembre del 2023)
