@@ -1,0 +1,2 @@
+Artículo 79.-Derogación de la Ley Nº 6872. Derógase la Ley sobre el enriquecimiento ilícito de los servidores públicos, Nº 6872, de 17 de junio de 1983.
+(Así modificada su numeración por el artículo 13 de la ley "Reformas a leyes en materia de anticorrupción para atender recomendaciones del grupo de trabajo sobre el soborno en las transacciones comerciales internacionales de la Organización para la Cooperación y Desarrollo Económico (OCDE)", N° 10373 del 20 de setiembre del 2023, que lo traspasó del antiguo artículo 70 al 79)
