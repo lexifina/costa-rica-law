@@ -1,0 +1,2 @@
+Transitorio L- Los gastos asociados a los aportes, los patrocinios, los subsidios, las donaciones y los recursos económicos externos que reciba el Ministerio de Cultura y Juventud, para cubrir las costas para la producción e implementación del Festival Internacional de las Artes 2024 y 2026 por parte del Ministerio de Cultura y Juventud (MCJ), quedarán exceptuados de la regla fiscal para que sean ejecutados en el ejercicio presupuestario correspondiente a dichos años.
+(Así adicionado por el artículo 5° de la ley N° 10386 del 26 de setiembre del 2023)
