@@ -1,0 +1,2 @@
+ARTÍCULO 16- Derogación del inciso h) del artículo 13 de la Ley 9699, Ley de Responsabilidad de las Personas Juridicas sobre Cohechos Domésticos, Soborno Transnacional y otros delitos, de 10 de junio de 2019
+Se deroga el inciso h) del artículo 13 de la Ley 9699, Ley de Responsabilidad de las Personas Jurídicas sobre Cohechos Domésticos, Soborno Transnacional y Otros Delitos, de 10 de junio de 2019.
