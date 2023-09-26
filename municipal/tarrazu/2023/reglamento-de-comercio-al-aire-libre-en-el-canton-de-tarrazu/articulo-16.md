@@ -1,0 +1,1 @@
+Artículo 16.-De la vía recursiva. Contra la denegatoria del permiso para el desarrollo del comercio al aire libre se procederá de conformidad con lo establecido en el artículo 171 del Código Municipal.

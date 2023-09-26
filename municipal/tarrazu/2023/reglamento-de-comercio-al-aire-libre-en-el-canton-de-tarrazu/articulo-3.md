@@ -1,0 +1,1 @@
+Artículo 3º-Ámbito de aplicación. Este Reglamento será aplicable únicamente en el cantón de Tarrazú, a todos los espacios de uso público, siempre y cuando se cumplan con los requisitos determinados en este cuerpo normativo.

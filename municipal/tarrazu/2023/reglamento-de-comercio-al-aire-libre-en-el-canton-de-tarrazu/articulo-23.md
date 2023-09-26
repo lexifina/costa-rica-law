@@ -1,0 +1,1 @@
+Artículo 23.-En el caso de cierre establecido en los artículos anteriores, la notificación se realizará efectivamente en el local respectivo. Se autorizará la apertura del espacio público, una vez se demuestre el cese y/o la corrección de las faltas cometidas y que no proceda la revocación de la licencia.
