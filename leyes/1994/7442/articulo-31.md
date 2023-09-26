@@ -1,9 +1,4 @@
-Artículo 31.- Fiscalías especializadas. Las fiscalías especializadas
-intervendrán, en todo o en parte, en las etapas del proceso penal, con
-las mismas facultades y obligaciones de las fiscalías adjuntas
-territoriales, en actuación separada o en colaboración con estas.
-Existirán al menos dos fiscalías especializadas, una en los hechos ilícitos,
-cuya competencia corresponde a la Jurisdicción Penal de Hacienda y
-de la Función Pública y otra en los hechos relacionados con el narcotráfico.
-(Así adicionado su párrafo final por Ley N° 8221 de 8 de marzo del 2002,
-Ley de Creación de la Fiscalía Penal de Hacienda y de la Función Pública)
+Artículo 31- Fiscalías especializadas
+Las fiscalías especializadas intervendrán, en todo o en parte, en las etapas del proceso penal, con las mismas facultades y obligaciones de las fiscalías adjuntas territoriales, en actuación separada o en colaboración con estas.
+Existirán al menos dos fiscalías especializadas, una en los hechos ilícitos, cuya competencia corresponde a la Jurisdicción Penal de Hacienda y de la Función Pública, la cual, además, investigará el delito de soborno transnacional y realizará la fase intermedia y de juicio, y otra en los hechos relacionados con el narcotráfico.
+(Así reformado por el artículo 5° de la ley "Reformas a leyes en materia de anticorrupción para atender recomendaciones del grupo de trabajo sobre el soborno en las transacciones comerciales internacionales de la Organización para la Cooperación y Desarrollo Económico (OCDE)", N° 10373 del 20 de setiembre del 2023)
