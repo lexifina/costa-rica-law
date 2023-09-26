@@ -1,0 +1,2 @@
+Transitorio XLV- Los gastos operativos referidos a la actividad ordinaria de carácter permanente de la Oficina Nacional de Semillas, que se financien con el superávit libre acumulado al 2023 generado mediante la venta de bienes y servicios (fondos propios}, quedarán exceptuados de la regla fiscal para que sean presupuestados y ejecutados en lo que resta del ejercicio presupuestario del año 2023 y del año 2024.
+(Así adicionado por el artículo 5° de la ley N° 10386 del 26 de setiembre del 2023)

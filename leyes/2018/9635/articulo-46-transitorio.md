@@ -1,0 +1,2 @@
+Transitorio XLVI- Los gastos presupuestarios asociados al Proyecto de Infraestructura Educativa del Colegio de San Luis Gonzaga, tanto para los pagos de servicios profesionales, así como la intervención de las instalaciones, quedarán exceptuados de la regla fiscal durante las diferentes etapas de dicho proyecto, para que sean presupuestados y ejecutados por la Junta Administrativa del Colegio de San Luis Gonzaga.
+(Así adicionado por el artículo 5° de la ley N° 10386 del 26 de setiembre del 2023)

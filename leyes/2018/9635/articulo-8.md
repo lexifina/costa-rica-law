@@ -3,4 +3,5 @@ a) Gasto tributario: nivel de ingresos que el Gobierno deja de percibir al otorg
 b) Marco fiscal de mediano plazo: un instrumento de planificación que vincula los objetivos y las prioridades nacionales a la formulación del presupuesto plurianual. El marco se utiliza como una referencia para proyectar los gastos y las necesidades de financiamiento que solventarán los compromisos nacionales, en un contexto de corto y mediano plazo.
 c) Recesión económica: caída del PIB real durante dos trimestres consecutivos, declarada por el Banco Central de Costa Rica.
 d) Responsabilidad fiscal: conducta de los tomadores de decisiones en materia de Hacienda Pública, que propicia la asignación y la ejecución del presupuesto público, conforme a los principios de equilibrio, economía, eficacia, eficiencia, transparencia y demás principios presupuestarios de rango constitucional y legal.
-e) Promedio de crecimiento del PIB: se refiere al promedio de la tasa de crecimiento interanual del PIB nominal de los seis años previos al año en que se formula el presupuesto.
+e) Promedio de crecimiento del PIB: se refiere al promedio de la tasa de crecimiento interanual del PIB nominal de los cuatro años previos al año en que se formula el presupuesto.
+(Así reformado el inciso anterior por el artículo 2° de la ley N° 10386 del 26 de setiembre del 2023)
