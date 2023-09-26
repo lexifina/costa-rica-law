@@ -1,0 +1,3 @@
+SECCIÓN II
+Ubicación y estructura
+Artículo 14.-Definición. La Auditoría Interna es parte integral, indispensable y necesaria del Sistema de Control Interno, la Auditoría Interna funciona bajo un enfoque de riesgos tanto en su planificación anual como en las revisiones que realiza; esto le permite valorar la eficacia y la eficiencia de los controles establecidos por la administración activa para mitigar esos riesgos, así como la calidad de ejecución en el cumplimiento de las labores asignadas a cada una de las unidades que conforman la administración activa, y proponer mejoras que ayuden a la organización a cumplir sus objetivos.

@@ -1,0 +1,18 @@
+Artículo 3º-Definiciones. Para los efectos del presente Reglamento se entenderá por:
+a. Administración Activa: Desde el punto de vista funcional, es la función decisoria, ejecutiva, resolutiva, directiva u operativa de la Administración. Desde el punto de vista orgánico, es el conjunto de órganos de la función administrativa que deciden y ejecutan, incluyendo al jerarca.
+b. Advertencia: Es un servicio que brinda la Auditoría Interna para señalar los posibles riesgos y consecuencias de determinadas conductas o decisiones, cuando sean de conocimiento de la auditoría.
+c. Asesoría: Es un servicio que brinda la Auditoría Interna, consiste en el suministro de criterios, observaciones y demás elementos de juicio para la toma de decisiones con respecto a temas para los cuales la auditoría tenga competencia y conocimientos.
+d. Auditor: Persona trabajadora de la Auditoría Interna encargada de realizar los estudios de auditoría de conformidad con las atribuciones, deberes, derechos y limitaciones impuestos por las leyes, reglamentos, procedimientos, directrices y demás normas vigentes que regulan la profesión.
+e. Auditoría Interna: Es la Auditoría Interna del SINART. Corresponde a la Unidad mencionada en el artículo 20 de la Ley General de Control Interno.
+f. Auditor Interno: Auditora o Auditor Interno del SINART, funcionario de mayor nivel jerárquico de la Auditoría Interna del SINART.
+g. Autorización de libros: Es un servicio que consiste en el acto de otorgar la razón de apertura de los libros de contabilidad y de actas del SINART, así como cualquier otro libro que a criterio de la auditoría se requiera.
+h. Contraloría: Contraloría General de la República.
+i. Independencia: Condición en la cual la auditoría interna está libre de injerencia o presiones del jerarca o titulares subordinados, la auditoría Interna debe ser un órgano asesor de alto nivel del jerarca.
+j. Informe de Auditoría: Documento escrito mediante el cual la Auditoría Interna comunica formalmente a la Administración Activa los resultados de la auditoría efectuada, incluyendo las respectivas conclusiones y recomendaciones.
+k. Jerarca: Superior jerárquico del SINART, según la definición contemplada en el artículo 2, inciso c) de la Ley No. 8292 y artículo 7 de la Ley Orgánica del Sistema Nacional de Radio y Televisión Cultural No. 8346, corresponde al Consejo Ejecutivo.
+l. Objetividad: Implica el mantenimiento de una actitud imparcial por parte del auditor o auditora, en todas las funciones que le correspondan, para ello, debe gozar de una total independencia en sus relaciones, tanto real como de apariencia.
+m. Pericia: Conocimientos, aptitudes y otras competencias que deben reunir los funcionarios de la auditoría Interna, individual y colectivamente, para cumplir con sus responsabilidades del departamento.
+n. SINART: Sistema Nacional de Radio y Televisión, S.A.
+o. Sistema de Control Interno: También denominado "Control Interno". Comprende la serie de acciones diseñadas y ejecutadas por la Administración Activa para proporcionar una seguridad razonable en torno a la consecución de los objetivos de la organización, fundamentalmente en las siguientes categorías: a) Proteger y conservar el patrimonio público contra cualquier pérdida, despilfarro, uso indebido, irregularidad o acto ilegal; b) Confiabilidad y oportunidad de la información; c) Eficiencia y eficacia de las operaciones; y d) Cumplir con el ordenamiento jurídico y técnico.
+p. Titular subordinado: Persona trabajadora del SINART responsable de un proceso, con autoridad para ordenar y tomar decisiones.
+q. Universo auditable: Conjunto de unidades auditables que pueden agruparse de diferentes formas (por función, actividad, unidad organizacional, proyecto, proceso, etc.).

@@ -1,0 +1,2 @@
+Artículo 5º-Modificaciones del Reglamento. Para la debida actualización del ROFAI, el Auditor Interno debe proponer al Consejo Ejecutivo los cambios que estime necesarios.
+Una vez aprobadas las modificaciones, se debe seguir el proceso indicado en el artículo anterior en cuanto a la resolución de discrepancias y los plazos aplicables, todo de conformidad con los "Lineamientos sobre gestiones que involucran a la Auditoría Interna presentadas ante la CGR" (R-DC-893-2018), emitidos por la Contraloría.

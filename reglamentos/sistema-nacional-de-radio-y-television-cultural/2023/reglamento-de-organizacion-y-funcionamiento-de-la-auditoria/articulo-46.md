@@ -1,0 +1,1 @@
+Artículo 46.-Naturaleza de las auditorías. Los tipos de auditoría se definirán de acuerdo con su objetivo, se clasifican en auditorías financieras, de carácter especial y operativas. Las mismas concluirán con un informe final. Se podrán generar informes o reportes parciales a fin de que se puedan tomar medidas correctivas oportunas.

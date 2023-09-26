@@ -1,0 +1,1 @@
+Artículo 29.-Protección al personal de la Auditoría. De conformidad con el artículo 26 de la Ley N° 8292, cuando el personal de la Auditoría Interna, en cumplimiento de sus funciones, se involucre en un conflicto legal o demanda, el SINART dará todo su respaldo, tanto jurídico como técnico y cubrirá los costos para atender ese proceso hasta su resolución final.

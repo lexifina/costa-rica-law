@@ -1,0 +1,3 @@
+SECCIÓN V
+Del seguimiento de recomendaciones
+Artículo 69.-Planificación del proceso de seguimiento de recomendaciones. La Auditoría Interna incluirá en su plan anual la actividad correspondiente al seguimiento de sus recomendaciones ya aceptadas por la administración activa, las emitidas por los auditores externos, por la Contraloría u otros órganos fiscalizadores, cuando sean de su conocimiento, para asegurar la oportuna, adecuada y eficaz implementación de dichas recomendaciones.

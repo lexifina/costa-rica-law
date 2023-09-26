@@ -1,0 +1,3 @@
+SECCIÓN IV
+De las denuncias
+Artículo 61.-Ámbito de competencia. La Auditoría Interna dará trámite únicamente a las denuncias contra funcionarios del Sistema Nacional de Radio y Televisión, S.A. y que versen sobre posibles hechos irregulares o ilegales en el uso y el manejo de fondos públicos asignados a la institución o que afecten la Hacienda Pública y lo regulado por la Ley Contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública y su Reglamento. En todos los casos, observará la normativa aplicable emitida por la Contraloría.

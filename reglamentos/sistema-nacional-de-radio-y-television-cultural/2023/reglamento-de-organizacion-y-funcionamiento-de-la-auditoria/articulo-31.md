@@ -1,0 +1,1 @@
+Artículo 31.-Actualización del ámbito de acción. La Auditoría Interna mantendrá actualizado y detallado su ámbito de acción por órganos y procesos, por medio del instrumento que considere pertinente y con la colaboración de la Administración Activa en lo que corresponda.

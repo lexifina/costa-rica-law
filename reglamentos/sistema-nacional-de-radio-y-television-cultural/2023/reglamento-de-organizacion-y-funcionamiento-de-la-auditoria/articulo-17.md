@@ -1,0 +1,4 @@
+Artículo 17.-Dependencia orgánica y regulaciones aplicables. El Auditor dependerá orgánicamente del Consejo Ejecutivo, quien establecerá las regulaciones administrativas aplicables según lo establecido en la Ley General de Control Interno y la Ley Orgánica de la Contraloría General de la República. Los demás funcionarios de la Auditoría Interna estarán sujetos a las disposiciones administrativas aplicables al resto del personal.
+El Auditor Interno responderá por su gestión ante el Consejo Ejecutivo y, en lo conducente, ante la Contraloría.
+El Presidente del Consejo Ejecutivo o en quien este delegue, será el responsable de autorizar las solicitudes de vacaciones y licencias con o sin goce de salario al Auditor Interno.
+Las condiciones establecidas en este artículo serán aplicables al Subauditor Interno si dicha plaza llega a habilitarse.

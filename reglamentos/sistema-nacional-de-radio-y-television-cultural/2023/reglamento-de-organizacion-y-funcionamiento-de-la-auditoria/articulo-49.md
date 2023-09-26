@@ -1,0 +1,1 @@
+Artículo 49.-Servicios de advertencia. Consisten en prevenir a la administración activa, por escrito, sobre los posibles riesgos y consecuencias de determinadas conductas o decisiones contrarias a la técnica, que resulten del conocimiento de la Auditoría Interna. El proceder y la legalidad de lo actuado por la administración será objeto de verificación por la Auditoría Interna.
