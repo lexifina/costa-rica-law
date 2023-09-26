@@ -17,3 +17,4 @@ Reglamento para la fiscalización de los procesos electivos y consultivos
 | 2 | 2019-04-02 | Decreto TSE 8 (2019-04-02) |
 | 3 | 2019-07-04 | Decreto TSE 13 (2019-07-04) |
 | 4 | 2021-06-17 | Decreto TSE 4 (2021-06-17) |
+| 5 | 2023-09-26 | Decreto TSE 12 (2023-09-26) |
