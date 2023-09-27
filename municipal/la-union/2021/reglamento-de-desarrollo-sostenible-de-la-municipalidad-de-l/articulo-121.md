@@ -1,0 +1,3 @@
+Artículo 121. Incorporación de la infraestructura verde en todos los nuevos desarrollos urbanísticos.
+Todo desarrollador deberá incorporar al diseño de su desarrollo urbanístico, la incorporación de infraestructura verde, de conformidad con los estudios técnicos vigente de inventario de islas de calor y caracterización vegetal vigentes, de manera tal que se realice en función de las necesidades para mejorar el control de la temperatura y la conectividad biológica a nivel cantonal.
+Esta acción se realizará a través de la colaboración y apoyo del Departamento Ambiental, quien deberá facilitar un oficio de visto bueno a solicitud del desarrollador, una vez cumplido con los requerimientos necesarios, según las características de cada propuesta que se evaluará.

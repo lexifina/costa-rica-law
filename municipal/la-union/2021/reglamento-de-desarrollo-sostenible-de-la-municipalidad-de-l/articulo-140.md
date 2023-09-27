@@ -1,0 +1,1 @@
+Artículo 140. Todas las acciones relacionadas con desfogues pluviales, estarán reguladas por el Reglamento de Desfogues Pluviales de la Municipalidad de La Unión y normativa supletoria correspondiente.

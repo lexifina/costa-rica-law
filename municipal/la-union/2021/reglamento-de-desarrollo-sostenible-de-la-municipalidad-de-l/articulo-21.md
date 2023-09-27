@@ -1,0 +1,2 @@
+Artículo 21. Sobre el cuerpo de inspectores.
+En el ámbito de su competencia, las visitas de inspección en materia de protección ambiental sólo podrán ser realizadas por el personal profesional destacado en la materia ambiental, que esté debidamente autorizado por la Municipalidad y que se identifique con la persona responsable o con quien atienda la diligencia. En caso de ser necesario, contarán con el apoyo de cualquier otra dependencia municipal o estatal.

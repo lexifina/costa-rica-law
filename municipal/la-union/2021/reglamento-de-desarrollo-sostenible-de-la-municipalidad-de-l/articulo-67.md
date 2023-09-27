@@ -1,0 +1,3 @@
+Artículo 67. Sobre la infraestructura en áreas de protección.
+Todas las invasiones en áreas de protección deben ser atendidas y los terrenos sometidos a los procesos de recuperación correspondientes. Para ello la Municipalidad deberá tomar las medidas respectivas para asegurar el cumplimiento de la ley nacional vigente así como lo dictaminado en el Reglamento de Regularización de Construcciones.
+Una vez eliminadas las invasiones se deberá desarrollar por parte de la Municipalidad procesos de rehabilitación, regeneración y en lo posible restauración correspondientes, para asegurar el restablecimiento de los servicios ambientales que se dejaron de percibir.

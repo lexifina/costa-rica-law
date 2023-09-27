@@ -1,0 +1,2 @@
+Artículo 46. Integración de normas nacionales en planes de desarrollo o regulación urbana.
+Las dependencias municipales que participan en la creación de planes de desarrollo o regulación urbana, así como las que otorgan permisos de construcción, publicidad exterior o patentes, deben considerar las orientaciones y directrices señaladas en las normas legales existentes en materia de riesgo de desastres.

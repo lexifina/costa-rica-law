@@ -1,0 +1,2 @@
+Artículo 28. Suspensión de patentes.
+De conformidad con lo dispuesto en la Ley Orgánica del Ambiente, en aquellos casos en que la Municipalidad considere que existe comprobación de violaciones ambientales suficientes para determinar la eliminación de la licencia comercial del negocio que genera la contaminación, trasladará el expediente en que se ha tramitado el asunto al Departamento de Patentes para que se inicien los procedimientos ordinarios. Una vez firme el acto administrativo se procederá a su ejecución.

@@ -1,0 +1,2 @@
+Artículo 24. Sobre la boleta de inspección.
+La boleta de inspección será firmada por la persona que haya intervenido en esta, así como por los testigos y el personal de inspección quien entregará copia de la misma al interesado para que, en el término de la ley, se apersone ante la administración a presentar sus alegatos, y adopte de inmediato las medidas correctivas o de urgente aplicación, siendo estas necesarias para cumplir con las disposiciones jurídicas aplicables, si así fuera ordenado, lo que también se asentará en la boleta respectiva.

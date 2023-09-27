@@ -1,0 +1,2 @@
+Artículo 81. Responsables de cometer actos de contaminación visual.
+Se considerarán responsables solidarios por la infracción urbanística al patentado o poseedor, por cualquier título que sea, del fundo en donde se ubica la estructura que soporta la valla publicitaria o el rótulo, al propietario de la estructura que lo soporta y a la empresa que coloca, paga o subvenciona la publicidad exhibida en el rótulo. A cualquiera de ellos o a todos en conjunto, se les podrá ordenar la eliminación de los elementos causantes de la contaminación visual realizando el debido proceso.

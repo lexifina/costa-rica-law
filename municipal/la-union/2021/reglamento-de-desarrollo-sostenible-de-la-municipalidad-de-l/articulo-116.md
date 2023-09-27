@@ -1,0 +1,2 @@
+Artículo 116. Enverdecimiento de la ciudad y su conexión con la movilidad sostenible.
+Se deberá potenciar la movilidad sostenible en asocio con la arborización, preferiblemente de especies nativas con alto potencial como polinizadoras, que además de favorecer la biodiversidad y embellecer la estructura de la ciudad, permitan brindar sombra en los espacios públicos, regulando la temperatura y mejorando las condiciones de los centros urbanos que actualmente se están calentando.

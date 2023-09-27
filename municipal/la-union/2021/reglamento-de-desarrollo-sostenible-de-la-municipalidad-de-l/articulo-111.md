@@ -1,0 +1,3 @@
+Capítulo XV. Movilidad urbana sostenible
+Artículo 111. Conexión entre el transporte sostenible y el comercio.
+Planificar y desarrollar obras que mejoren la capacidad vial de las calles vinculadas a las zonas de comercio, de manera que se evite superar su capacidad de carga y se generen problemas derivados del exceso de tránsito. Además, debe desarrollar aceras y rampas en las orillas de las calles para potenciar la movilización peatonal para lo cual debe pensarse en reducción o eliminación de áreas de estacionamiento en la vía, ampliación de aceras, arborización urbana, mobiliario urbano, entre otros.

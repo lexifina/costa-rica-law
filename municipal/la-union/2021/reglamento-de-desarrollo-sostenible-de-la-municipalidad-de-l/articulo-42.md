@@ -1,0 +1,2 @@
+Artículo 42. Promoción de acciones de prevención y control del riesgo.
+La Municipalidad realizará acciones de prevención y control del riesgo cuando se atente contra el ambiente y la población, incluso, la Municipalidad podrá establecer las medidas protectoras necesarias, cuando la regulación de actividades que no sean consideradas como riesgosas pueda generar efectos dañinos en los recursos naturales. Para tales efectos se podrá coordinar con las autoridades estatales, instituciones u organismos correspondientes.

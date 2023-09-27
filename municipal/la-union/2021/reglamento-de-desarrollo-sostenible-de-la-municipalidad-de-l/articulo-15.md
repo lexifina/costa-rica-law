@@ -1,0 +1,2 @@
+Artículo 15. Acciones interinstitucionales.
+La Municipalidad coordinará acciones con sus dependencias, la comunidad y otras instituciones, con el fin de generar, desarrollar e implementar un plan o estrategia cantonal de educación ambiental, cuyo objetivo será incorporar contenidos ambientales en el sistema educativo, así como crear y desarrollar una cultura ambiental hacia la preservación, conservación, manejo, restauración y protección del ambiente y los recursos naturales.

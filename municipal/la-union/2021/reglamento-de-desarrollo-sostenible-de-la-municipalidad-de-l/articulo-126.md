@@ -1,0 +1,2 @@
+Artículo 126. Construcción sostenible.
+Se debe basar el diseño de los proyectos constructivos en el concepto de Construcción Sostenible, que está basado en el desarrollo de un modelo que permita a la construcción civil enfrentar y proponer soluciones, respetando siempre el medio donde se realiza, y teniendo especial cuidado con todos y cada uno de los elementos de la naturaleza siempre y cuando se respete lo estipulado en el ordenamiento jurídico costarricense.

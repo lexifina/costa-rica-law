@@ -1,0 +1,2 @@
+Artículo 123. Reutilización y aprovechamiento del agua.
+Se deben construir tanques de recolección de agua pluvial que permita reutilizar este recurso para temas de riego de jardines, lavado de vehículos, calles, aceras u otras áreas. Se implementarán de forma individual por predio o como tanque de almacenamiento general. La Municipalidad facilitará la asesoría a través del Departamento Ambiental, en los casos que así lo soliciten.

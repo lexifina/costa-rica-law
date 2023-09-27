@@ -1,0 +1,1 @@
+Artículo 129. Promoción de sistemas renovables y autosustentables de electricidad. La Municipalidad solicitará los sistemas renovables y autosustentables de electricidad, mismos que deberán obtener el visto bueno de la entidad proveedora de servicios de la zona respectiva.

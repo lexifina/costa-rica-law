@@ -1,0 +1,2 @@
+Artículo 102. Equipamiento.
+Las áreas verdes y recreativas estarán destinadas al esparcimiento, deberán estar equipadas según la naturaleza para la cual fueron creadas, por lo que la existencia de mobiliario, señalización, juegos, etcétera., es fundamental. De igual manera, su diseño debe responder a las necesidades y características de los distintos grupos etarios y sus condiciones físicas y de movilidad.

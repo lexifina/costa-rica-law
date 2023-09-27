@@ -1,0 +1,3 @@
+Artículo 88. Sobre la compra de zonas de interés y protección municipal.
+Con el fin de asegurar la sostenibilidad del sistema de abastecimiento de agua potable y la conservación de los recursos naturales mediante acciones de conservación que favorezcan la conectividad biológica, se podrá realizar la compra de propiedades.
+Se debe contar con una propuesta que contenga los elementos que justifican la compra de la propiedad por parte de la municipalidad, incorporando la descripción de las características principales de la propiedad y una justificación técnica que describa las condiciones ambientales actuales de la propiedad y su potencial en cuanto a los objetivos de conservación que persigue la municipalidad.

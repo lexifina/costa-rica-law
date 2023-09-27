@@ -1,0 +1,2 @@
+Artículo 43. Acatamiento de normas afines cuando corresponda.
+Los establecimientos, servicios o instalaciones de nueva creación, ampliación o modificación de sus procesos productivos, que por motivo de sus actividades puedan producir contaminación ambiental u otro riesgo tecnológico, deberán ajustarse a lo dispuesto en la normativa de orden ambiental vigente en el ordenamiento jurídico costarricense.

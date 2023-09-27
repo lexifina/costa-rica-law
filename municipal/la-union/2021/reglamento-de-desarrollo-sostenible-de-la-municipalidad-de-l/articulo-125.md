@@ -1,0 +1,2 @@
+Artículo 125. Pasos de fauna.
+Cada desarrollador de condominios, urbanizaciones y proyectos constructivos habitacionales, industriales, turísticos, comerciales y de cualquier otro tipo estipulado en el Plan Regulador, deberá incluir dentro de los diseños, medidas para la conservación de la biodiversidad en el entorno urbano. Se debe determinar con la ayuda de especialistas en la materia, qué especies tienen presencia en los diferentes puntos del nuevo desarrollo y así definir el tipo y tamaño de los pasos de fauna que se deben considerar.

@@ -1,0 +1,7 @@
+Artículo 13. Aspectos generales a considerar en la formulación de la política ambiental.
+Al formular las políticas ambientales, la Municipalidad debe tomar en cuenta los siguientes aspectos:
+a. Asegurar que prevalezca el ambiente sano.
+b. Asegurar la calidad óptima y sostenida de los ecosistemas y de sus elementos, mediante un aprovechamiento racional de los recursos naturales.
+c. Llamar a la participación y concertación de los diferentes sectores de la población, asumiendo la responsabilidad de la protección de los ecosistemas, elaborando y ejecutando programas y proyectos tendientes a prevenir, preservar y restaurar el deterioro del ambiente y el equilibrio ecológico, a través de la implementación de un modelo de desarrollo sostenible.
+d. Corregir los desequilibrios que deterioran la calidad de vida de la población, mediante la regulación, promoción, restricción, prohibición, orientación e inducción de las acciones de los particulares, con el fin de conservar el equilibrio ecológico que, junto con el control, la prevención de la contaminación ambiental y el mejoramiento del entorno natural de los asentamientos humanos, son elementos fundamentales para conservar y, en su caso, elevar la calidad de vida de la población.
+e. Coordinar con los actores sociales (sector privado, sector de organizaciones no gubernamentales, asociaciones de desarrollo, grupos vecinales, instituciones públicas y otras fuerzas vivas) para lograr el trabajo conjunto y su participación en los proyectos de planificación ambiental que se generen en el cantón.

@@ -1,0 +1,2 @@
+Artículo 50. Aplicación de las acciones según regulación existente.
+La Municipalidad podrá realizar las acciones de control ambiental, sobre el cumplimiento respecto a las fuentes fijas de emisión, conforme a la regulación existente en el ordenamiento jurídico costarricense, debiendo aplicar de forma supletoria cualquier otra normativa vigente que contribuya con la prevención, control y disminución de las emanaciones atmosféricas.

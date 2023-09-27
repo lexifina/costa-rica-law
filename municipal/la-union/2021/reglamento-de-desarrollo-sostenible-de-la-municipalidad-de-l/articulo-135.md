@@ -1,0 +1,1 @@
+Artículo 135. Para el caso de edificaciones existentes, también es necesario realizar los estudios técnicos con mayor detalle (geotecnia, geología, geomorfología, paisaje, bioambientales, entre otros) con el fin de identificar los casos donde sea necesario tomar medidas de mitigación de los posibles impactos, o incluso definir edificaciones que es necesario reubicar.

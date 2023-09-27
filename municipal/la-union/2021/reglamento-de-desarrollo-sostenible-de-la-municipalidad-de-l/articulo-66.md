@@ -1,0 +1,2 @@
+Artículo 66. Arborización con especies nativas.
+La Municipalidad realizará la arborización con especies nativas u otras especies adaptadas a la zona de vida y la fauna, dando prioridad a las áreas de protección de cauces y zonas de recarga acuífera incluso fuera de los límites del cantón, pero que inciden sobre el aseguramiento del recurso hídrico. A fin de proteger zonas vulnerables se realizará el programa de Pago por Servicios Ambientales (PSA) ejecutado por el Fondo de Financiamiento Forestal (FONAFIFO) del Ministerio de Ambiente y Energía.

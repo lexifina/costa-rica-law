@@ -1,0 +1,2 @@
+Artículo 110. Promoción de la intermodalidad.
+Deberán señalarse espacios e instalaciones para la movilidad peatonal y vehículos de tracción humana, considerando la conexión e integración a los sistemas de transporte público. Deberá incluir la posibilidad de que bicicletas y otros vehículos de tracción humana sean transportados en buses y trenes o bien se pueden dejar en las estaciones de intercambio, en general la integración armónica con otros sistemas viales.

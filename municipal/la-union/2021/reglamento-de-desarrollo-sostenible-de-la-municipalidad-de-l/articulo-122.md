@@ -1,0 +1,3 @@
+Artículo 122. Espacios de parqueos más sostenibles.
+Los espacios de parqueo públicos y privados deberán incluir la incorporación de infraestructura verde que permita mejorar las condiciones paisajísticas del área en las que se construye y también permita brindar sombra, para contrarrestar los efectos de las islas de calor identificadas en el cantón. Para esta intervención, deberá obtener un oficio de visto bueno del Departamento Ambiental y se regirá por lo estipulado para parqueos en el ordenamiento jurídico costarricense.
+Toda superficie de estacionamiento será de materiales que resistan el tráfico pesado y permitan la permeabilidad de la lluvia, para mejorar la recarga hídrica.

@@ -1,0 +1,2 @@
+Artículo 51. Acciones para el control de emisiones.
+Los establecimientos o actividades que en sus procesos puedan generar emisiones contaminantes, como gases, humos, olores o polvos, que provoquen molestias o deterioro en el ambiente o a las personas, deberán tomar las medidas de precaución y mitigación necesarias, para lo cual deben estar provistos de los equipos o instalaciones que garanticen su control en función de cumplir con las normas vigentes del país en materia de protección ambiental.

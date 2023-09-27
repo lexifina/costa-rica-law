@@ -1,0 +1,2 @@
+Artículo 127. Incorporación de sistemas para la recuperación de residuos flotantes.
+La Municipalidad podrá solicitar a los proyectos urbanísticos la colocación de mallas o filtros atrapa plásticos en puntos estratégicos de ríos y alcantarillas, según especificación técnica avalada por el Departamento Ambiental. El mantenimiento de las estructuras corresponderá a la Municipalidad en cauces de dominio público y a los propietarios en los cauces privados.

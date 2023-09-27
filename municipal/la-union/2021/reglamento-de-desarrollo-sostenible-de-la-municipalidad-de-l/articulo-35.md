@@ -1,0 +1,2 @@
+Artículo 35. Revocación de medidas por parte del interesado.
+Toda medida de seguridad podrá ser revocada a solicitud del interesado, cuando se justifique el haber dado cumplimiento a la corrección de las deficiencias encontradas o requerimientos que le fueren señalados. En el caso de la suspensión de actividades y servicios o la determinación de prohibición de actos de uso, se podrá permitir el acceso de las personas que tengan la encomienda de corregir las irregularidades que la motivaron, previa autorización de acceso al inmueble de la autoridad competente.

@@ -1,0 +1,2 @@
+Artículo 65. Consecuencias de llevar a cabo actividades que contaminan cuerpos de agua.
+De constatar la Municipalidad que cierto establecimiento, actividad o vivienda genera contaminación de los cuerpos de agua, procederá conforme corresponda legalmente, remitiendo la Dirección Jurídica con apoyo técnico de la Gestión Ambiental, dicha información al Ministerio de Salud y denuncia ante la Fiscalía Ambiental.
