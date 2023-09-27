@@ -1,0 +1,1 @@
+Artículo 10.-Sobre la difusión de los proyectos ganadores. La información correspondiente a los proyectos ganadores será publicada en la página web del Instituto Nacional de las Mujeres, para que sea de acceso público.

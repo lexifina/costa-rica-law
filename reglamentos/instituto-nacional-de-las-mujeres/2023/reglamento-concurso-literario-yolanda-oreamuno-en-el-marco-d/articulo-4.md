@@ -1,0 +1,1 @@
+Artículo 4°-De las fechas de la convocatoria. La Unidad de Comunicación del Instituto Nacional de las Mujeres será el órgano responsable de elaborar y publicar la convocatoria al concurso literario Yolanda Oreamuno, a través de cualquier medio escrito de circulación nacional y de la página web del INAMU.

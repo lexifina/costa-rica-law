@@ -1,0 +1,1 @@
+Artículo 9°-Sobre la entrega de los premios. El Instituto Nacional de las Mujeres entregará los premios seleccionados en la actividad oficial que organice para la Conmemoración del Día Nacional e Internacional para la Eliminación de la Violencia contra las Mujeres.

@@ -1,0 +1,1 @@
+Artículo 8°-Del Premio. Las obras seleccionadas serán dotadas de un estímulo económico. Esta dotación económica será definida de acuerdo con los criterios establecidos por el Órgano Competente del INAMU de conformidad con lo establecido en el Artículo 2 del presente Reglamento.
