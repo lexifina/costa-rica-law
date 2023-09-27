@@ -1,0 +1,3 @@
+Artículo 8 BIS. Modificación en la forma de pago. El Regulador General podrá modificar la forma de pago a solicitud de los prestadores, cuando estos demuestren que han tenido afectación en la prestación de servicio público o en sus finanzas y en caso de caso fortuito, fuerza mayor o estado de emergencia declarada por autoridad competente.
+La modificación en la forma de pago será en forma excepcional y de manera motivada y se realizará por una única vez en el año y en ningún caso podrá superar el plazo de 12 meses de prórroga del plazo original.
+(Así adicionado mediante resolución N° RE-0097-JD-2023 del 27 de setiembre del 2023)

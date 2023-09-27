@@ -15,3 +15,4 @@ Reglamento de cobro de la Autoridad Reguladora de los Servicios Públicos
 | --- | --- | --- |
 | 1 | 2019-11-18 | la propia norma |
 | 2 | 2020-05-26 | Reglamento 0 (2020-05-26) |
+| 3 | 2023-09-27 | Reglamento 0 (2023-09-27) |
