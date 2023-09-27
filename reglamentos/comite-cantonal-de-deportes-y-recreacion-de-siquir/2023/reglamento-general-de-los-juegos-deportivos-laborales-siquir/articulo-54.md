@@ -1,0 +1,1 @@
+ARTÍCULO 54: El juez y/o el coordinador Técnico no permitirán la participación de competidores (as), miembros del cuerpo técnico y delegados (as) que se encuentren en estado de ebriedad o con aliento alcohólico, se incluyen a jueces y comisionados.

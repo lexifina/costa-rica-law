@@ -1,0 +1,1 @@
+ARTÍCULO 29: Los partidos se jugarán en dos tiempos de 20 minutos cronometrados, con 10 minutos de descanso entre los dos tiempos y cada equipo tendrá un tiempo muerto de 1 minuto de duración por tiempo.

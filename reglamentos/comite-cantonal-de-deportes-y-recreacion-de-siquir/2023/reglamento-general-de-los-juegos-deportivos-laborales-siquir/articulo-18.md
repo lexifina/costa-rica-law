@@ -1,0 +1,4 @@
+ARTÍCULO 18: DE LAS INSCRIPCIONES
+18.1 Es responsabilidad exclusiva de cada institución participante en los Juegos Laborales inscribir a sus participantes, mediante el sistema de Acreditación que el comité organizador así defina para atletas, cuerpos técnicos, delegados, deportes y pruebas a competir, así como información de la condición de salud de cada uno de los participantes. Este proceso se debe efectuar en las fechas establecidas.
+18.2 Se permitirá inscribir un máximo de 15 jugadores(as) y un mínimo de 9, un entrenador (a), un asistente y un delegado (a).
+18.3 Cada Institución debe inscribir (mediante la hoja de inscripción, según fechas definidas del proceso de inscripción general) mediante una imagen y descripción de los dos juegos de uniforme por equipo, uno fondo claro y otro fondo oscuro, el equipo que sea ubicado en la programación oficial de primero debe jugar con el uniforme de fondo claro y el rival con el uniforme fondo oscuro.

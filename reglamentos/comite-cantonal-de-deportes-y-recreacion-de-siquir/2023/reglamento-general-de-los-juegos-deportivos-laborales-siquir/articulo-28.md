@@ -1,0 +1,1 @@
+ARTÍCULO 28: El árbitro y/o el Coordinador Técnico de Fútbol Sala no permitirán la participación de competidores(as), miembros del cuerpo técnico y delegados (as) que se encuentren en estado de ebriedad o con aliento alcohólico. Se incluyen a jueces y comisionados.

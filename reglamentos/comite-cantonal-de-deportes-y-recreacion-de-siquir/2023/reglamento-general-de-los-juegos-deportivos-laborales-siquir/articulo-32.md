@@ -1,0 +1,1 @@
+ARTÍCULO 32: Los equipos se deben presentar ante los Árbitros y Comisionado Técnico de Fútbol Sala al menos treinta minutos antes de la hora programada del juego, con la lista correspondiente en el formato que aporte el Comité Organizador y debidamente uniformados.

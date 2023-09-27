@@ -1,0 +1,3 @@
+ARTÍCULO 64: DE LAS INSCRIPCIONES
+64.1 Se participará por equipos e individual tanto femenino como masculino. En la competencia por equipos cada institución podrá inscribir un equipo por género. El equipo en femenino y masculino estará constituido por 4 jugadores titulares y un suplente. En el torneo individual podrán participar un máximo de 2 jugadores (as) por institución por cada género, con la restricción que estos no pueden participar en el torneo por equipos.
+64.2 Cada institución podrá inscribir un entrenador (a), un (a) asistente, un delegado (a) y la cantidad de deportistas según lo establece el artículo 6 de estas Normas.

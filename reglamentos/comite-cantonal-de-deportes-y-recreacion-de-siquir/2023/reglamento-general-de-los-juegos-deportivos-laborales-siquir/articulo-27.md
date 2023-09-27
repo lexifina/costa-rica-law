@@ -1,0 +1,1 @@
+ARTÍCULO 27: Para efectos de establecer las clasificaciones, cuando un equipo se retire o sea sancionado con exclusión de la competencia, se considerará como si no hubiese participado en la misma (los puntos y goles no serán contabilizados para efectos de la clasificación).
