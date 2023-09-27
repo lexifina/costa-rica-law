@@ -1,0 +1,1 @@
+Artículo 6. Del trámite y la competencia de las demandas presentadas sin auto inicial al momento de la entrada en vigencia del CPF. A las demandas presentadas antes de la entrada en vigencia del Código Procesal de Familia y que aún no se le haya efectuado ningún trámite, se le aplicarán las reglas de competencia territorial previstas en el Código Procesal de Familia.

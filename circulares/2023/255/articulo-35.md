@@ -1,0 +1,1 @@
+Artículo 35. Requisitos formales de la oposición. La advertencia que se haga a las partes sobre la posibilidad procesal de formular una oposición a la sentencia anticipada, deberá contener necesariamente la indicación de cuáles son los requisitos de forma de dicha oposición, esto como garantía del principio de acceso a la justicia.
