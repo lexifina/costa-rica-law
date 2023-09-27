@@ -1,0 +1,1 @@
+Artículo 8.- Los inmuebles incluidos en el registro del presente reglamento, así como los incluidos en el Reglamento de Vialidad y Transporte, podrán ser transferidos a otro uso público conforme a las determinaciones del Plan Regulador; más si tuvieren destino señalado en la Ley, el cambio deberá ser aprobado por la Asamblea Legislativa.
