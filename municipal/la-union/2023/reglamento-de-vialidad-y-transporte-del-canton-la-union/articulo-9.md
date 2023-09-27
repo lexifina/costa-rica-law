@@ -1,0 +1,4 @@
+Artículo 9-. Red Vial Cantonal: Corresponde su administración a la Municipalidad de La Unión. Estará constituida por los siguientes caminos públicos que son parte integral del Inventario Vial Cantonal al año 2019, mismo que es parte integral del presente Reglamento:
+a) Caminos vecinales: caminos públicos que suministren acceso directo a fincas y a otras actividades económicas rurales, unen caseríos poblados con la Red Vial Nacional, y se caracterizan por tener bajos volúmenes de tránsito y altas proporciones de viajes locales de corta distancia.
+b) Calles locales: Vías públicas incluidas dentro del cuadrante de un área urbana, no clasificada como travesías urbanas del a Red Vial Nacional.
+c) Caminos no clasificados: Caminos públicos no clasificados dentro de las categorías descritas anteriormente.

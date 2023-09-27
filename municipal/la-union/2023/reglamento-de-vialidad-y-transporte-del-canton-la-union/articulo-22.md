@@ -1,0 +1,12 @@
+Artículo 22-. Inventario Vial Cantonal: El sistema vial cantonal está constituido por las siguientes vías y caminos públicos según el Inventario Vial Cantonal:
+[imagen]
+[imagen]
+[imagen]
+[imagen]
+[imagen]
+[imagen]
+[imagen]
+[imagen]
+[imagen]
+[imagen]
+[imagen]
