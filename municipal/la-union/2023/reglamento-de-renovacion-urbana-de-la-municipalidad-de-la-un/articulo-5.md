@@ -1,0 +1,1 @@
+Artículo 5-. Con base en el estudio específico de cada sector y en la definición del "Plan Proyecto" que corresponda, aquellos terrenos en los cuales se ejecuten procesos de reubicación, pasarán a formar prioritariamente parte integral de la Zona de Protección Forestal o bien de la Zona Verde de Parque y Recreación, una vez concluida la reubicación de los asentamientos.

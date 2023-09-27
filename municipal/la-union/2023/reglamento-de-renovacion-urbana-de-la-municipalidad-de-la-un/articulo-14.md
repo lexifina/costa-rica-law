@@ -1,0 +1,1 @@
+Artículo 14.- Para la implementación del presente Reglamento, para la elaboración de los "Planes Proyecto" de cada sector o bien para la ejecución de los procesos de renovación urbana, la Municipalidad podrá integrar una unidad especial ejecutora de proyectos que dirija los procesos en coordinación con la DIDECU y el INVU.
