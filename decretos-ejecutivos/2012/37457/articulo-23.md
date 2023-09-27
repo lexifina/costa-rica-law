@@ -20,3 +20,5 @@ q. Facilitar información a la Dirección de Calidad sobre el comportamiento e i
 r. Recibir la información respectiva en el caso de variación de las condiciones contractuales o cancelación de espectáculos públicos de las empresas involucradas y brindar el respectivo trámite a las denuncias que los consumidores presenten por estos hechos y remitir al Ministerio Público aquellos casos que configuren posibles delitos en perjuicio del consumidor. Asimismo se trasladará al Departamento de Educación al Consumidor y Venta a Plazo(*) la información necesaria a efectos de cumplir con las disposiciones relacionadas con Ventas a Plazo o Ejecución Futura.
 (*) (Así modificada su denominación por el artículo 3° del decreto ejecutivo N° 39917 del 26 de agosto de 2016. Anteriormente se indicaba: " Departamento de Políticas y Verificación de Mercados ".)
 s. Cualquier otra función asignada por los superiores.
+t. Trasladar testimonio de piezas al Ministerio Publico, cuando la Comisión Nacional del Consumidor así lo disponga.
+(Así adicionado el inciso anterior por el artículo 2° del decreto ejecutivo N° 44267 del 27 de setiembre de 2023)

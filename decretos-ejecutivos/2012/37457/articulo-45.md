@@ -1,20 +1,23 @@
 Artículo 45.-CIDE: Para el cumplimiento de las funciones del Departamento señalado en el artículo anterior, tendrá a su cargo los Centros Integrales de Desarrollo Empresarial (CIDE) que se establezcan en el territorio nacional, las cuales tendrán las siguientes funciones:
 (Así reformado el párrafo anterior por el artículo 1° del decreto ejecutivo N° 39917 del 26 de agosto del 2016)
-a. Brindar información sobre los procesos de atención a la PYME.
-b. Registrar por medio de la plataforma Sistema de Información Empresarial Costarricense (SIEC), el expediente de los empresarios y emprendedores que asistan a las oficinas.
-c. Remitir trimestralmente un listado de los expedientes que custodia al Departamento de Registro, asimismo acatar las directrices que para este efecto emita dicho departamento.
-(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 39917 del 26 de agosto del 2016)
-d. Asesorar a los empresarios y emprendedores acerca de la oferta de servicios financieros y no financieros, que las diferentes instituciones públicas y privadas brindan para mejorar la capacidad de gestión y condiciones competitivas de los proyectos productivos.
-e. Clasificar a los PYME y a los emprendedores mediante las herramientas que el MEIC establezca de acuerdo al modelo de atención.
-f. Realizar diagnóstico de competitividad a las empresas PYME.
-g. Confeccionar un plan de atención integral a las empresas diagnosticadas en función de la estrategia de acompañamiento a brindar.
-h. Brindar información y acompañamiento sobre los trámites que contribuyan a la formalización de las empresas.
-i. Retroalimentar al Departamento sobre las demandas o necesidades que se deriven de la atención a las PYME, a fin de coordinar ofertas que no se encuentran en la región de influencia.
-j. Estimular el desarrollo de las organizaciones empresariales, asociatividad y alianzas estratégicas.
-k. Ejecutar los programas de asesoría a las PYME en compras del Estado, encadenamientos y otras formas de cooperación interempresarial, cultura empresarial y desarrollo de emprendedores, innovación tecnológica, capacitación y asistencia técnica, y servicios financieros.
-l. Participar en los Comités Ejecutivos Regionales conformado por la CIDE de la Región, de acuerdo con el convenio respectivo, para la elaboración de los planes de trabajo, seguimiento y evaluación, e informar y remitir los acuerdos al Jefe del Departamento.
-(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 39917 del 26 de agosto del 2016)
-m. Impulsar la participación de los comités técnicos mixtos interinstitucionales relacionados con la ejecución de proyectos de apoyo al emprendedurismo y las PYME.
-n. En coordinación con el Departamento CIDE y Emprendimiento y con el Departamento de Empresariedad, organizar ferias, centros de exhibición e información permanentes. "
-(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 39917 del 26 de agosto del 2016)
+a. Apoyar con visión territorial, la construcción de políticas, estrategias y programas para el emprendimiento y la empresariedad.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 44267 del 27 de setiembre de 2023)
+b. Identificar demandas y necesidades de las PYME, en la región de influencia y articular las mismas con los programas de la DIGEPYME.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 44267 del 27 de setiembre de 2023)
+c. Estimular las alianzas estratégicas y apoyar a las organizaciones empresariales y asociativas.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 44267 del 27 de setiembre de 2023)
+d. Coordinar la ejecución de los programas de empresariedad y emprendimiento con los actores locales y los centros de desarrollo empresarial ubicados en el territorio nacional.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 44267 del 27 de setiembre de 2023)
+e. Coordinar, desarrollar y ejecutar programas de articulación productiva a fin de fortalecer la cadena de valor en las que puedan participar las PYME.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 44267 del 27 de setiembre de 2023)
+f. Ejecutar cualquier otra función del ámbito de su competencia, asignada por sus superiores, cuando las necesidades de la institución lo sugieran, con el fin de coadyuvar a resolver integralmente los problemas de volumen y nuevas competencias asignadas a ésta.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 44267 del 27 de setiembre de 2023)
+g. (Derogado por el artículo 3° del decreto ejecutivo N° 44267 del 27 de setiembre de 2023)
+h. (Derogado por el artículo 3° del decreto ejecutivo N° 44267 del 27 de setiembre de 2023)
+i. (Derogado por el artículo 3° del decreto ejecutivo N° 44267 del 27 de setiembre de 2023)
+j. (Derogado por el artículo 3° del decreto ejecutivo N° 44267 del 27 de setiembre de 2023)
+k. (Derogado por el artículo 3° del decreto ejecutivo N° 44267 del 27 de setiembre de 2023)
+l. (Derogado por el artículo 3° del decreto ejecutivo N° 44267 del 27 de setiembre de 2023)
+m. (Derogado por el artículo 3° del decreto ejecutivo N° 44267 del 27 de setiembre de 2023)
+n. (Derogado por el artículo 3° del decreto ejecutivo N° 44267 del 27 de setiembre de 2023)
 o. Cualquier función asignada por sus superiores.

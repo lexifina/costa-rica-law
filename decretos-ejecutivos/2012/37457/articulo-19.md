@@ -20,3 +20,5 @@ m. Atender- las solicitudes provenientes de los Tribunales de Justicia relaciona
 (Así adicionado el inciso anterior por el artículo 2° del decreto ejecutivo N° 39917 del 26 de agosto del 2016)
 n. Cualquier otra función relacionada con su competencia.
 (Así adicionado el inciso anterior por el artículo 2° del decreto ejecutivo N° 39917 del 26 de agosto del 2016)
+o. Supervisar que las funciones relacionadas con la Ley N° 9859 asignadas a los Departamentos de la Dirección se lleven con apego a la ley y los reglamentos.
+(Así adicionado el inciso anterior por el artículo 2° del decreto ejecutivo N° 44267 del 27 de setiembre de 2023)
