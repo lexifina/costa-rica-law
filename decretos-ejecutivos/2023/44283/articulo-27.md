@@ -1,0 +1,6 @@
+RELACIONES INSTITUCIONALES
+Artículo 27. Relaciones del Comité
+1. La representación del Comité para los asuntos establecidos en el Reglamento corresponde a la Presidencia, quien designará a uno de sus representantes o podrá proponer al Comité designar a otro Estado Parte para atender determinados asuntos. Todas sus actuaciones, gestiones o decisiones serán acordadas previamente por consenso en el Comité para proceder a su ejecución.
+2. El Comité podrá fungir como punto de contacto con instituciones de terceros países, en los términos del artículo 6, subpárrafo (h), del Reglamento, cuando se le designe específicamente con este propósito en el acuerdo internacional que corresponda. Salvo que en el acuerdo se disponga algo distinto, las comunicaciones serán enviadas o recibidas por la Presidencia o por la SIECA, a solicitud de la Presidencia.
+3. El ámbito de las comunicaciones y la cooperación con autoridades de terceros países se circunscribirá a lo establecido en el acuerdo que la habilita.
+4. Si un Estado Parte considera necesario que el Comité contacte a las autoridades de un tercer país, elevará esta propuesta a través de sus representantes. Los EAT también podrán recomendar al Comité que contacte a las autoridades de un tercer país para tratar un determinado asunto.

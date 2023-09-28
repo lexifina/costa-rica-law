@@ -1,0 +1,3 @@
+Artículo 9. Elaboración y contenido del plan de acción
+1. La propuesta del plan de acción será elaborada por el Estado Parte al que le corresponderá ejercer la Presidencia del Comité durante el siguiente semestre, en cooperación con la presidencia del Comité en funciones.
+2. El plan de acción contendrá las actividades a realizarse durante el próximo semestre y se propondrán las fechas para realizar las reuniones del Comité, tomando en consideración que una de ellas debe ser coincidente con las rondas de unión aduanera, de conformidad con el artículo 9 del Reglamento. Lo anterior, sin perjuicio de que se lleven a cabo actividades adicionales, cuando corresponda según el Reglamento, y de que se agencien nuevas reuniones.

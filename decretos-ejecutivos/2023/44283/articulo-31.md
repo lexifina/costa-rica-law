@@ -1,0 +1,2 @@
+Artículo 31. Cooperación financiera
+Cuando la asistencia técnica y capacitación conjunta involucre cooperación financiera u otros mecanismos que la ameriten, se deberá someter la propuesta de cooperación al COMIECO. La SIECA podrá suscribir los convenios o acuerdos de cooperación requeridos para ejecutar dichas actividades, siempre que el COMIECO lo autorice, en concordancia con el Reglamento Interno de la SIECA.
