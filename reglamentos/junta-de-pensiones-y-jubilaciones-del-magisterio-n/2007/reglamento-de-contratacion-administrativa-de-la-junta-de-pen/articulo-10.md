@@ -1,2 +1,0 @@
-Artículo 10- Justificantes de pago:
-Para todos los pagos a proveedores se requiere la factura original autorizada por la Administración Tributaria, salvo los casos del Régimen Simplificado o Ley Especial.
