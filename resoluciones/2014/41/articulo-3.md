@@ -1,1 +1,0 @@
-3. Las medidas aludidas para los servicios Roaming deberán estar implementadas y a disposición de los usuarios por parte de los operadores a más tardar treinta días hábiles posteriores a la publicación de la presente resolución, con excepción de las medidas indicadas en los ítems 10 y 14, para las cuales se concede un plazo máximo de cuatro meses calendario.
