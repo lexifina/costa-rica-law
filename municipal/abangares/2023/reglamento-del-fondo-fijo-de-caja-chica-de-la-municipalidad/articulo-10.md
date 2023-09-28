@@ -1,0 +1,1 @@
+Artículo 10.-Cuando por algún motivo la compra no se lleve a cabo, el funcionario que ha recibido la transferencia de dinero del vale, deberá hacer el reintegro inmediato del dinero entregado para tales efectos a la cuenta corriente establecida, aportando una justificación escrita, avalada con la firma de la jefatura superior inmediata.

@@ -1,0 +1,1 @@
+Artículo 3º-Los formularios para el trámite de vales de caja chica, deben emitirse en el sistema establecido en forma consecutiva. Para realizar trámites por este medio, es necesario que cumplan con todos los requerimientos establecidos en la respectiva fórmula y presentar dos cotizaciones a excepción de casos especiales en donde las tarifas son fijas en el mercado.

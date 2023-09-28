@@ -1,0 +1,1 @@
+Artículo 6º-La Caja Chica recibirá devoluciones de dinero, únicamente en la cuenta corriente establecida, sin excepción de ninguna clase, asimismo deberá ser en moneda nacional de curso. No podrán recibirse por este fondo notas de crédito.
