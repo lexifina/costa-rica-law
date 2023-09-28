@@ -1,0 +1,1 @@
+Artículo 8. Misiones de los Organismos Financieros. Las misiones de supervisión organizadas por los organismos financieros internacionales deberán ser comunicadas al Ministerio de Hacienda para su conocimiento y participación, cuando corresponda.
