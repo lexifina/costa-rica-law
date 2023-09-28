@@ -14,3 +14,4 @@ Reglamento interno para regular actividades que ejecuten los funcionarios de la 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-07-24 | la propia norma |
+| 2 | 2023-09-28 | Reglamento 52 (2023-09-28) |
