@@ -16,3 +16,4 @@ Manual de políticas y procedimientos: Actualización de diplomas y títulos uni
 | 1 | 2014-10-08 | la propia norma |
 | 2 | 2017-01-17 | Reglamento 0 (2017-01-17) |
 | 3 | 2023-02-25 | Reglamento 20 (2023-02-25) |
+| 4 | 2023-09-28 | Reglamento 96 (2023-09-28) |
