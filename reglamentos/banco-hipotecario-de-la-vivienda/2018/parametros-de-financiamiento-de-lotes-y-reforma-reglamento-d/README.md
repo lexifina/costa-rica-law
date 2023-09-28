@@ -15,3 +15,4 @@ Parámetros de financiamiento de lotes y reforma Reglamento del programa de fina
 | --- | --- | --- |
 | 1 | 2018-11-26 | la propia norma |
 | 2 | 2023-06-19 | Reglamento 37 (2023-06-19) |
+| 3 | 2023-09-28 | Reglamento 43 (2023-09-28) |
