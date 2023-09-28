@@ -1,0 +1,2 @@
+Artículo 8°- Presupuesto de los premios
+El presupuesto para el otorgamiento de estos premios especiales, se tomará del Fondo para Premios Extra de la Junta de Protección Social. En caso que algún ganador no reclame el premio o el mismo no pueda ser entregado por el incumplimiento de algún requisito, transcurrido el período de caducidad indicado en el artículo N°7 de este procedimiento, se procederá con la destrucción de los enteros de lotería del Sorteo Extraordinario de Navidad N°4778 que no hayan sido retirados por los ganadores.
