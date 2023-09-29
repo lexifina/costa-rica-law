@@ -1,0 +1,1 @@
+Artículo 20.-Responsabilidades en la implementación de autoevaluaciones: Serán responsables de la implementación de las autoevaluaciones, así como del seguimiento de los resultados de estas; todos los funcionarios (as) y órganos citados en el artículo 8 del presente Reglamento; aplicando las mismas responsabilidades descritas en ese mismo artículo.
