@@ -1,0 +1,6 @@
+Artículo 89. Servicios Especiales o Jornales Ocasionales. Contrato a tiempo definido que consiste en una forma de cubrir necesidades de carácter temporal, eventual y excepcional. Detentan condición de personas servidoras públicas en condición interina y se exceptúan de beneficios propios de carrera administrativa, pues no adoptan estabilidad en el puesto. Se justificarán en proyectos específicos y las personas funcionarias públicas en esta condición deberán de satisfacer los requisitos del puesto equivalente conforme el Manual de Clases y Puestos vigente, puesto a partir del cual se le asignarán las condiciones salariales. Se podrán contratar, de forma temporal, nuevas personas servidoras públicas para realizar:
+1. Labores extraordinarias.
+2. Labores justificadas en procesos productivos temporales o por perfiles que dependan de los estándares y el alto desempeño de una determinada familia de puestos.
+Labores que requieran determinadas destrezas físicas, cognitivas o afines requeridas para actividades específicas.
+3. Labores originadas por la atención de emergencias o fuerza mayor, las cuales mantendrán una relación laboral por el plazo que establezca cada administración.
+No procederá la contratación temporal de servidores públicos para la atención de actividades ordinarias.

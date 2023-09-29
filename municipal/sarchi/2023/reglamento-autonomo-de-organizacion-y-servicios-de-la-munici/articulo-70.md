@@ -1,0 +1,1 @@
+Artículo 70. Igualdad de Oportunidades de contratación para las Personas con Discapacidad. Se considerará un acto de discriminación cuando los mecanismos empleados para el proceso de reclutamiento exijan requisitos adicionales debido a la discapacidad o cuando no se emplee a una persona con capacidad idónea debido a su discapacidad.

@@ -1,0 +1,1 @@
+Artículo 52. Igualdad de oportunidades de capacitación. La Municipalidad debe propiciar las facilidades necesarias con el fin de que todas las personas servidoras públicas, sin discriminación alguna, puedan capacitarse y superarse en el desempeño de sus puestos.

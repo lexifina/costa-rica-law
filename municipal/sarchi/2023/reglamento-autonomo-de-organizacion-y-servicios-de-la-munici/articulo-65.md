@@ -1,0 +1,2 @@
+Capítulo VIII: De la selección de personal y del ingreso a la Municipalidad de Sarchí
+Artículo 65: Ingreso al servicio. Con el propósito de demostrar su idoneidad, toda persona postulante a un puesto deberá ajustarse al procedimiento técnico de reclutamiento y selección establecido en el Código Municipal, el presente reglamento y los manuales de procedimientos del Departamento de Gestión del Talento Humano.

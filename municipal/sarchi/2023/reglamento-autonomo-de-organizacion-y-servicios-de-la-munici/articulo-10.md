@@ -1,0 +1,26 @@
+Capítulo III: Conductas éticas
+Artículo 10. Valores y principios éticos. Los miembros del Concejo Municipal, la Alcaldía y las personas servidoras públicas deben de guiar su conducta a partir de los siguientes enunciados:
+1. Austeridad: La asignación, adquisición, conservación e inversión de los recursos y fondos públicos, deben orientarse a la satisfacción plena del interés público, según el mandato del Estado Social de Derecho y al uso racional de éstos.
+2. Compromiso: Aceptar la responsabilidad de desempeñar sus funciones con el máximo esfuerzo y capacidades, para alcanzar, más que cumplir, con el trabajo asignado, en función de los intereses de la municipalidad.
+3. Eficacia: La organización y función administrativa deben estar diseñadas y concebidas para garantizar la obtención de los objetivos, fines y metas propuestos y asignados por el propio ordenamiento jurídico, con lo que debe ser ligado a la planificación, a la evaluación y a la rendición de cuentas.
+4. Eficiencia: Simplificar, racionalizar y automatizar los trámites, los procesos, los procedimientos y los servicios internos para maximizar los resultados.
+5. Espíritu de Servicio: Ser útil con la finalidad de lograr el bien de las personas con quien se relaciona en su trabajo y los administrados.
+6. Excelencia: Brindar servicios de calidad a las personas, totalmente enfocado a la satisfacción oportuna y completa de las necesidades de éstos, así como propiciar la mejora continua de los servicios de la municipalidad.
+7. Equidad: Valorar y tratar a las personas sin importar sus condiciones sociales, culturales, políticas o de género.
+8. Honestidad: Todo interés diferente al público, que pudiese ocasionar un conflicto de intereses, debe ser declarado por la persona servidora pública y abstenerse de colocarse en una situación que comprometa su imparcialidad.
+9. Honradez: Mostrar rectitud y buena fe en el ejercicio de sus funciones, así como declarar cualquier eventualidad que pueda afectar el interés público relacionado con sus deberes y tomar las medidas necesarias para mantener la confianza y credibilidad de su desempeño.
+10. Igualdad: Tratar a todas las personas sin ningún tipo de discriminación.
+11. Integridad: La alineación consistente con, y el cumplimiento de, los valores, principios y normas éticos compartidos, para mantener y dar prioridad a los intereses públicos, por encima de los intereses privados, en el sector público.
+12. Lealtad: Cumplimiento de las exigencias del ordenamiento jurídico en defensa de los ideales de la institución, aunado a la fidelidad y el honor, teniendo presente la confianza y respeto hacia los demás.
+13. Legalidad: Someter toda actuación pública al ordenamiento jurídico, solo lo expresamente autorizado por la legislación costarricense aplicable al caso será válido.
+14. Liderazgo: Influenciar sobre las personas, dirigiendo su desempeño hacia el logro de objetivos comunes, motivando hacia una actitud o comportamiento positivo, a través de una conexión emotiva, empática y asertiva.
+15. Participación: Propiciar que las estructuras gubernamentales sean lo suficiente flexibles para ofrecer espacios de participación y la oportunidad de realimentar el diseño e implementación de políticas y programas públicos.
+16. Probidad: Obligación de dirigir, administrar y gestionar el ejercicio de funciones conforme al interés público.
+17. Regularidad: Las operaciones y actos administrativos deben consignarse de manera correcta y adecuada en registros confiables que permitan la transparencia de la información y el control interno asegurando la información contable, financiera, presupuestaria y documental.
+18. Respeto: Reconocer y apreciar la dignidad de la persona y su trabajo.
+19. Responsabilidad: Responder de frente a la municipalidad y a los órganos de control, investigación y sanción, por sus faltas desde los ámbitos ético, disciplinario, civil y penal.
+20. Solidaridad: Aportar y potencializar esfuerzos, así como recursos para resolver necesidades y retos comunes.
+21. Transparencia: Garantizar el derecho humano y constitucional de acceso a la información; visibilizar la administración de los recursos públicos de forma actualizada, comprensible y transparente; promover la participación ciudadana y la rendición de cuentas, con el objeto de generar confianza en los administrados en las instituciones públicas y prevenir actos de corrupción.
+22. Trabajo en equipo: Participar activamente en la prosecución de una meta común subordinando los intereses personales a los objetivos del equipo.
+23. Objetividad e imparcialidad. Ser objetivos, independientes e imparciales en la toma de decisiones en el ejercicio de la función pública. Cuidar porque su independencia no se vea afectada por intereses personales o externos, por lo que no podrán intervenir en asuntos donde tengan algún interés personal o familiar, directa o indirectamente, actuando en todo momento apegados al principio de legalidad.
+24. Neutralidad política. Mantener la neutralidad política, tanto la real como la percibida. Por lo tanto, es necesario que se conserve la independencia con respecto a las influencias políticas para desempeñar con imparcialidad sus responsabilidades en la función pública.

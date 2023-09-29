@@ -1,0 +1,1 @@
+Artículo 22. Vacaciones institucionales. La Alcaldía podrá establecer vacaciones institucionales y colectivas, de conformidad con un cronograma anual relacionado al presupuesto ordinario correspondiente, dicho cronograma deberá estar comunicado en el mes de enero de cada año.

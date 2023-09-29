@@ -1,0 +1,1 @@
+Artículo 57. Otras prohibiciones. En todo caso, a las personas servidoras públicas le serán prohibidas las conductas estipuladas en el artículo 157 del Código Municipal y los artículos 72 y 81 del Código de Trabajo,

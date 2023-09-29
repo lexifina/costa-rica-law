@@ -1,0 +1,1 @@
+Artículo 4. Notificación de los actos. Para que los actos surgidos del presente reglamento surtan efectos jurídicos deberán de ser notificados a la persona servidora pública en la forma prevista por el ordenamiento jurídico para cada caso particular.

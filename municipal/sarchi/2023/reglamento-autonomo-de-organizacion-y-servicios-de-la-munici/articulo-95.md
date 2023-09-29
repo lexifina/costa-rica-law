@@ -1,0 +1,4 @@
+Artículo 95. Recargo de funciones: Consiste en aquella forma de organización interna del trabajo a través de la cual se asigna a una persona, de manera total o parcial, las funciones, labores o actividades de otro por ausencia temporal y justificada de este último, para que las desempeñe simultáneamente con las propias. Para que el mismo pueda darse, deben verificarse las siguientes circunstancias:
+1. Que haya plena justificación de la necesidad del recargo por ausencia del titular con vigencia temporal hasta un máximo de un año.
+2. Que se consideren los elementos de idoneidad a quien se le asigna el recargo.
+3. Solo se retribuirá el recargo de funciones, cuando sea por períodos igual o mayor de un mes y se pagará con fundamento en la diferencia existente entre el salario base del puesto que ocupa la persona y el salario base del puesto con recargo.

@@ -1,0 +1,1 @@
+Artículo 94. Reclasificaciones y valoraciones. El mismo procedimiento se aplicará para el caso de las reclasificaciones y valoraciones de puestos, a menos que se trate de una actualización total del Manual de Clases y Puestos.

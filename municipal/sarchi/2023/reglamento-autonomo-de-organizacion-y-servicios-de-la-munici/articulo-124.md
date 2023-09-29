@@ -1,0 +1,2 @@
+Capítulo XIII:1 Disposiciones finales
+Artículo 124. Derechos adquiridos. Las disposiciones del presente reglamento se interpretarán de manera que no se no perjudiquen los derechos adquiridos por las personas servidoras públicas. Se presumirán del conocimiento de éstos y será de observancia obligatoria para todas las personas servidoras públicas de esta municipalidad, desde el día de su vigencia, inclusive para quienes en el futuro ingresen a trabajar para ella.

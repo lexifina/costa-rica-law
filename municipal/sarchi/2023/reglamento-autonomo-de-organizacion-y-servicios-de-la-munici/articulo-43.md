@@ -1,0 +1,1 @@
+Artículo 43. Licencias o permisos infundados. Se considerará falta grave plantear un hecho falso o inexistente para solicitar una licencia o permiso ocasional con el fin de obtenerlo. En tal caso, se procederá a la apertura de un procedimiento administrativo en cumplimiento del debido proceso.

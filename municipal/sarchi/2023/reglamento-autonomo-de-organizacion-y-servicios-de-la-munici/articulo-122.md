@@ -1,0 +1,1 @@
+Artículo 122. Ausencias injustificadas. La inasistencia injustificada al trabajo durante la jornada laboral será sancionada descontando del salario el equivalente al porcentaje o fracción ausente y conforme al valor del día laborado, todo previo debido proceso y acorde lo dispuesto en este reglamento.

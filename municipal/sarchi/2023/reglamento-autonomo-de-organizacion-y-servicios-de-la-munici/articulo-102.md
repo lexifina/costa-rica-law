@@ -1,0 +1,1 @@
+Artículo 102. Tramitación de jornada extraordinaria. La tramitación de la jornada extraordinaria acorde a lo dispuesto en el presente reglamento estará a cargo de Gestión de Talento Humano, siguiendo el procedimiento establecido al efecto.

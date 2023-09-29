@@ -1,0 +1,7 @@
+Capítulo XII: Régimen disciplinario
+Artículo 116. Régimen disciplinario. La inobservancia de los deberes éticos del servidor público municipal, obligaciones o la violación de las prohibiciones, por parte de las personas servidoras públicas, en el desempeño de sus funciones debidamente señaladas en este Reglamento, en el Código Municipal, el Código de Trabajo o cualquier otra normativa aplicable, se sancionará de acuerdo con la gravedad de la falta cometida y siguiendo el procedimiento administrativo de la Ley General de la Administración Pública.
+Para los efectos, se definen las faltas de la siguiente manera:
+1. Leves: amonestación verbal, la cual debe ser aplicada por jefatura inmediata y dejar constancia en el expediente personal
+2. Leves: amonestación escrita o apercibimiento, la cual debe ser aplicada por la jefatura inmediata y dejar constancias en el expediente personal. Se impondrá cuando el servidor haya merecido dos o más advertencias orales durante un mismo mes calendario.
+3. Graves: procedimiento administrativo, tendiente a la suspensión del trabajo sin goce de salario hasta por 15 días
+4. Gravísima: procedimiento administrativo, tendiente al despido sin responsabilidad patronal Con respecto a las faltas graves y gravísimas, el titular de la Alcaldía o el Concejo Municipal, será quien debe de gestionarlas a cabo como órgano competente, según la Ley General de la Administración Pública.

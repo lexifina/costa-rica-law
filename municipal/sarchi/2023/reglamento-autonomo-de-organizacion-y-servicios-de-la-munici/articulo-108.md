@@ -1,0 +1,5 @@
+Artículo 108. Columna salarial global. A partir de la del trabajo, la municipalidad por medio de Gestión de Talento Humano y el equipo del área financiera, elaborará la columna salarial global de la familia correspondiente la cual será definida y estará conformada por las personas servidoras públicas con funciones operativas, profesionales o técnicas, que sean exclusivas y excluyentes para el ejercicio de las competencias constitucionalmente asignadas a la Municipalidad. La columna iniciará secuencialmente del menor al mayor puntaje. Los grados en la familia laboral se asignará a uno o más puntos de remuneración en la columna salarial global. Los puntos de remuneración a los que se asigna cada grado se determinarán por referencia a:
+1. La valoración de los factores del trabajo.
+2. Las necesidades profesionales de cada grado.
+3. Empleos de referencia de otras familias laborales municipales y los salarios mínimos según decreto del Ministerio de Trabajo y Seguridad Social.
+4. Análisis financiero-presupuestario para determinar cuál es el percentil que se ajusta a la realidad del municipio.

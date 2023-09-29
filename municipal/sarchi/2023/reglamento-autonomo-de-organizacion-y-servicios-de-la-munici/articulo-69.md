@@ -1,0 +1,1 @@
+Artículo 69. Igualdad de Oportunidades para las Personas con Discapacidad. La municipalidad garantizará la posibilidad de ingreso a las personas con discapacidad y el derecho a un empleo adecuando las instalaciones a sus condiciones y necesidades personales especiales.

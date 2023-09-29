@@ -1,0 +1,7 @@
+Artículo 49. Suspensión de las becas. La Municipalidad suspenderá el disfrute de una beca a una persona servidora pública en cualquiera de los siguientes casos:
+1. Si el becario interrumpe los estudios o cambia de centros de estudio sin la autorización correspondiente.
+2. Si el becario fuere expulsado del centro donde realiza estudios.
+3. Si pierde un curso del programa de estudios
+4. Si incumple las reglas de responsabilidad y honradez o que afecte la imagen de la Municipalidad.
+La inasistencia injustificada de una persona servidora pública a un evento de capacitación o a la obtención de una evaluación deficiente por ausencias, le imposibilitarán de asistir a próximas actividades de capacitación, por espacio de 6 meses. Además, una vez firmado el formulario de inscripción y asistencia a la capacitación, si la persona servidora pública decide no asistir sin tener una causa de justificación, como enfermedad o imposibilidad repentina, deberá cancelar el costo correspondiente a su asistencia a la actividad de formación.
+Para esto, el Departamento de Gestión del Talento Humano le comunicará por escrito a persona servidora pública su decisión y ésta tendrá 5 días hábiles para presentar la justificación, de no hacerlo se procederá a deducir del salario el monto indicado. Previo debido proceso, el Departamento de Gestión del Talento Humano deberá emitir un acto motivado que justifique la decisión tomada.

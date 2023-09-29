@@ -1,0 +1,4 @@
+Artículo 20. Compensación de vacaciones. Las vacaciones serán absolutamente incompensables, salvo las siguientes excepciones:
+1. Cuando exista cese en el trabajo por cualquier causa, tendrá derecho a recibir en dinero el importe correspondiente por las vacaciones no disfrutadas.
+2. Cuando el trabajo sea ocasional o a destajo.
+3. Cuando por alguna circunstancia justificada no se haya disfrutado de vacaciones, podrá convenir con el patrono el pago del exceso del mínimo de dos semanas de vacaciones por cada cincuenta semanas, siempre que no supere el equivalente a dos períodos acumulados. Esta compensación no podrá otorgarse, si se ha recibido este beneficio en los dos años anteriores. Esto se aplicará conforme a lo dispuesto en el manual de procedimientos que defina el Departamento de Gestión de Talento Humano.

@@ -1,0 +1,1 @@
+Artículo 61. Comisión de Salud Ocupacional. La designación, conformación, requisitos, plazos, funciones y demás consideraciones sobre la Comisión de Salud Ocupacional, se regirán por lo establecido en el Reglamento de Comisiones y Oficinas o Departamentos de Salud Ocupacional.

@@ -1,0 +1,1 @@
+Artículo 126. Transparencia. Este Reglamento se tendrá expuesto en forma permanente, por lo menos en dos de los sitios más visibles del centro de trabajo, lo que será responsabilidad del Departamento de Gestión del Talento Humano.
