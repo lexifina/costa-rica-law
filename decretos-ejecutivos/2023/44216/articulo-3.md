@@ -1,0 +1,1 @@
+Artículo 3°-La presente declaratoria no otorga beneficios fiscales, tales corno exoneraciones o cualquier otro beneficio fiscal, tal y como Io establece el artículo 5 del Decreto Ejecutivo N° 40540-H del 01 de agosto del 2017.
