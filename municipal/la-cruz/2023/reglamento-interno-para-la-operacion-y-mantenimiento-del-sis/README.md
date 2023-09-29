@@ -14,3 +14,4 @@ Reglamento interno para la operación y mantenimiento del sistema de control int
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-09-29 | la propia norma |
+| 2 | 2023-09-29 | Reglamento municipal 50 (2023-08-30) |
