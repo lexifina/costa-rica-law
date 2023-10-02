@@ -6,7 +6,8 @@ a) Todas las personas jurídicas legalmente constituidas, con independencia de s
 Se exceptúa de la aplicación de lo dispuesto en el párrafo anterior a las sociedades inactivas, las cuales estarán en la obligación de suministrar a la Administración Tributaria solo la información resumen de los incrementos en sus activos, pasivos y capital. En este caso, la declaración informativa deberá ser resumida y simple, de tal forma que se minimice el costo de cumplimiento. De no existir variación en la información suministrada, la declaración anual se entenderá realizada mediante la confirmación del contenido existente.
 En caso de entidades no domiciliadas que ostenten cédula jurídica que inicie en 3- 012, y no realicen ninguna actividad en el país, podrán solicitar al Registro Nacional la eliminación de la cédula jurídica que se les emitió, sin perjuicio de que se mantenga la validez de cualquier acto o contrato suscrito de previo a la eliminación de la referida cédula.
 (Así reformado el inciso a) anterior por el artículo 1° de la Ley de simplificación de trámites tributarios para personas jurídicas sin actividad lucrativa, N° 10160 del 11 de marzo del 2022)
-b) Se entiende por establecimiento permanente cualquier sitio o lugar fijo de negocios en el que se desarrolle, total o parcialmente, la actividad esencial de la persona no domiciliada.
+b) Se entiende por establecimiento permanente cualquier sitio o lugar fijo de negocios en el que se desarrolle, total o parcialmente, la actividad de la persona no domiciliada.
+(Así reformado el inciso anterior por el artículo 3° de la ley N° 10381 del 14 de setiembre de 2023, "Modificación a la ley N° 7092, Ley de impuesto sobre la renta, para lograr la exclusión de Costa Rica de la lista de países no cooperantes en materia fiscal de la Unión Europea")
 1) Se considerarán establecimientos permanentes:
 i. Los centros administrativos.
 ii. Las sucursales.
@@ -15,7 +16,8 @@ iv. Las oficinas.
 v. Las fábricas.
 vi. Los talleres.
 vii. Las minas, las canteras y cualquier otro lugar de extracción de recursos naturales.
-2) La expresión "establecimiento permanente" comprende asimismo:
+2)Sin perjuicio de la definición del inciso b) anterior, la expresión "establecimiento permanente" comprende, asimismo:
+(Así reformado el inciso anterior por el artículo 3° de la ley N° 10381 del 14 de setiembre de 2023, "Modificación a la ley N° 7092, Ley de impuesto sobre la renta, para lograr la exclusión de Costa Rica de la lista de países no cooperantes en materia fiscal de la Unión Europea")
 i. Las obras, una construcción o un proyecto de instalación o montaje o actividades de inspección relacionadas con ellos, pero solo cuando tales obras, proyecto o actividades continúen durante un periodo o periodos que sumen o excedan en total más de ciento ochenta y tres días, en cualquier periodo de doce meses que empiece o termine durante el año fiscal considerado.
 ii. La prestación de servicios por una empresa, incluidos los servicios de consultores, por intermedio de sus empleados o de otro personal contratado por la empresa para ese fin, pero solo en el caso de que las actividades de esa naturaleza prosigan (en relación con el mismo proyecto o con un proyecto conexo) durante un periodo o periodos que sumen o excedan en total más de ciento ochenta y tres días, en cualquier periodo de doce meses que empiece o termine durante el año fiscal considerado.
 Con el único propósito de determinar si se ha superado el plazo de ciento ochenta y tres días que se indica anteriormente, se considerará lo siguiente:
