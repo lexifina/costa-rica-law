@@ -1,1 +1,0 @@
-Artículo 43.—De la declaratoria de incobrables. Cuando el SCR lo considere pertinente, enviará a la JD, las operaciones cuyos montos se puedan estimar como incobrables. Asimismo se autoriza al SCR para incluir en esta cuenta, las deudas extintas, para los casos indicados en el artículo 41 inciso 2) de este Reglamento.

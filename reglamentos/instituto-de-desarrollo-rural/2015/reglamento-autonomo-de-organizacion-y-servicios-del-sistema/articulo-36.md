@@ -1,1 +1,0 @@
-Artículo 36.—De la declaratoria de vencimiento. El incumplimiento de alguna de las obligaciones contraídas por los deudores, dará derecho al Instituto a dar por vencida la operación y exigir en su totalidad el pago de dicha deuda, y proceder con lo que estipula, el artículo 67, inciso e) de la Ley Nº 9036 o el envío a cobro judicial.

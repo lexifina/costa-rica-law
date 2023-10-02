@@ -1,1 +1,0 @@
-Artículo 46.—Derogatoria del reglamento anterior. Derogar en todos sus extremos el Reglamento Autónomo del Fondo de Crédito Rural anterior y sus reformas, publicado en La Gaceta Nº 92, del 14 de mayo del 2008 y La Gaceta Nº 171 del 02 de setiembre del 2009.

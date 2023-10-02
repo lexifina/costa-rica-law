@@ -1,1 +1,0 @@
-Artículo 10.—Funciones de los Comités de Crédito Regionales (CCR). Analizar, aprobar o improbar solicitudes de créditos, arreglos de pago y novaciones, hasta por un monto de diez millones de colones, el cual se actualizará anualmente, con base en la inflación medida por el índice de precios al consumidor (IPC) y las políticas institucionales en la materia.

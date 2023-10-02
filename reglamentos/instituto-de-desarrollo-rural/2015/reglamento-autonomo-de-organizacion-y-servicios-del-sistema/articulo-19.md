@@ -1,7 +1,0 @@
-Artículo 19.—De los avalúos. Éste requisito se exigirá, para aquellos casos en que el monto solicitado supere los cinco millones de colones, en el caso de lotes, granjas familiares dotadas por el INDER o propiedades particulares no mayores de cinco mil metros cuadrados.
-Cuando se trate de parcelas y propiedades particulares mayores de cinco mil metros cuadrados, se exigirá dicho avalúo, cuando el monto exceda los diez millones de colones.
-Lo anterior aplicará en todos los casos en que el 80% del valor declarado ante el RNP, no cubra el monto del préstamo o arreglo de pago solicitado y que no haya sufrido segregaciones que afecten el valor declarado.
-Estos montos se podrán actualizar anualmente, con base en la inflación medida por el índice de precios al consumidor (IPC) y las políticas institucionales en la materia.
-Cuando se requiera avalúo del inmueble, este deberá ser realizado por un perito autorizado por el colegio profesional respectivo.
-Los honorarios por concepto de avalúo, serán cubiertos en su totalidad por el solicitante, excepto cuando la Institución lo realice.
-Dicho avalúo tendrá una vigencia de 5 años, siempre y cuando el inmueble no haya sufrido alguna desmejora, o segregación, que le haga perder su valor. Una vez transcurrido ese plazo, se podrá aceptar una nota de la (OSR) o del perito valuador, en donde se indique que el bien no ha sufrido cambios que desmejoren su valor, por lo que la propiedad sujeta al avalúo, mantiene o supera el valor tasado en su momento.
