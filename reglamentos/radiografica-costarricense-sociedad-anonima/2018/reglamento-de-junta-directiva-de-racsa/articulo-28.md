@@ -1,3 +1,6 @@
-CAPÍTULO IV
-Dietas
-Artículo 28.—Reconocimiento de dietas. Procederá el pago de dietas a los miembros integrantes de la junta directiva por cada asistencia, en los términos que lo establece la Política de Sociedades Anónimas del Instituto Costarricense de Electricidad hasta un máximo de cuatro dietas por mes.
+SECCIÓN II
+Acuerdos
+Artículo 28.—Votación Calificada: Las votaciones se harán nominalmente y en voz alta, salvo que por unanimidad la Junta Directiva acuerde en cada caso la votación en secreto. Se requerirá votación calificada en los siguientes asuntos:
+a. Para la celebración de sesión extraordinaria sin cumplir los requisitos de convocatoria u orden del día se requiere de la unanimidad de todos los miembros.
+b. En la eventualidad de que se requiera dejar firme un acuerdo, se requerirá el voto favorable de dos tercios de la totalidad de los miembros de la Junta Directiva.
+c. Para la inclusión de un asunto que no figure en el orden del día en cualquier sesión, se debe declarar la urgencia del asunto, para lo que se requiere el voto favorable de dos tercios de la totalidad de los miembros que integran el Órgano Colegiado.

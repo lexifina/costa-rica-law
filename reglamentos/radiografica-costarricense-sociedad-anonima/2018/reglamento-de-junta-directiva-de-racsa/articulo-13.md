@@ -1,1 +1,3 @@
-Artículo 13.—Sesiones extraordinarias. Las sesiones extraordinarias son aquellas que se realizan excepcionalmente, en las que, por lo general, se discuten asuntos de naturaleza especial o urgente que no puede esperar a la próxima sesión ordinaria. Su convocatoria debe realizarse con una antelación mínima de veinticuatro horas, salvo casos de urgencia en cuyo caso se podrá convocar el mismo día.
+SECCIÓN III
+De la Secretaría de Junta Directiva
+Artículo 13.—Secretaría de la Junta Directiva: Es la responsable del buen funcionamiento de dicha dependencia. Contará con el apoyo de la Secretaria Adjunta, quien tendrá todas las competencias y autoridad correspondiente.

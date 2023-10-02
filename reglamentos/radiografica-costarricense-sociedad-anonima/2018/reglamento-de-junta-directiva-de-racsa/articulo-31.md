@@ -1,3 +1,1 @@
-CAPÍTULO V
-Disposiciones Finales
-Artículo 31.—Derogatoria. Se deroga el Reglamento de Junta Directiva aprobado en la sesión ordinaria N° 1994, Capítulo Tercero, artículo 2º acuerdo de junta directiva martes 26 de noviembre 2013.
+Artículo 31.—Recurso de Revisión contra Acuerdos: Cualquiera de los miembros de la Junta Directiva podrá interponer recurso de revisión contra los acuerdos dictados en el tanto no sean firmes, en cuyo caso será interpuesto y resuelto al conocerse el borrador del acta en la sesión ordinaria siguiente, salvo que, por tratarse de un asunto que el Presidente juzgue urgente, se decida conocer en sesión extraordinaria. Las simples observaciones de forma, relativas a la redacción de los acuerdos, no serán considerados, como recursos de revisión.

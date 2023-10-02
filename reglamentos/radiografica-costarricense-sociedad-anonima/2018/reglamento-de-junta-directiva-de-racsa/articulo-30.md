@@ -1,1 +1,1 @@
-Artículo 30.—Presencia en sesiones virtuales. La participación de los integrantes de la Junta Directiva en las denominadas sesiones virtuales dará lugar al reconocimiento de dietas, siempre y cuando se haya efectuado la sesión y el miembro del Órgano Colegiado haya participado en ella sin interrupciones.
+Artículo 30.—Acuerdos Firmes: Los acuerdos quedan firmes en la sesión en que se apruebe el acta, salvo en aquellos casos que por mayoría calificada (tres) de sus miembros acuerden su firmeza.

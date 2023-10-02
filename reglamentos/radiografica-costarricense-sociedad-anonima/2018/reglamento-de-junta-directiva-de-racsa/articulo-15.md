@@ -1,4 +1,6 @@
-Artículo 15.—Las convocatorias de las sesiones. Tanto ordinarias como extraordinarias, presenciales o virtuales, serán realizadas por la secretaría de la junta directiva, con autorización del presidente, mediante correo electrónico.
-La convocatoria para las sesiones ordinarias se efectuará con una antelación de cuarenta y ocho (48) horas y las extraordinarias de veinticuatro (24) horas a la realización de la sesión, salvo en casos de urgencia.
-Toda convocatoria debe hacerse por escrito con copia del orden del día y la documentación respectiva se colocará a disposición de los miembros de la junta directiva en los medios definidos.
-No obstante, lo establecido en los artículos precedentes, la junta directiva sesionará válidamente, sin cumplir todos los requisitos referentes a la convocatoria o a la agenda, cuando asistan todos sus miembros y así lo acuerden por unanimidad, ya sea de manera presencial o virtual.
+SECCIÓN IV
+De las comisiones
+Artículo 15.—De las Comisiones: La Junta Directiva podrá constituir de su seno comisiones permanentes y comisiones especiales, las cuales podrán ser mixtas, es decir, con participación de funcionarios de la Empresa, de las empresas subsidiarias o de terceros, según lo considere necesario.
+15.1. Del Tipo de Comisiones.
+• Comisiones Permanentes: Aquellas designadas por la Junta Directiva para atender permanentemente algún asunto o trámite y deberán rendir su informe en el plazo que se señale en el momento de su constitución.
+• Comisiones Especiales: Aquellas nombradas por la Junta Directiva para atender un asunto específico y deberán rendir su informe en el plazo que se señale en el momento de su constitución; no obstante, dicho plazo podrá ser prorrogado a juicio de la Junta Directiva, debido a la complejidad del asunto en investigación.

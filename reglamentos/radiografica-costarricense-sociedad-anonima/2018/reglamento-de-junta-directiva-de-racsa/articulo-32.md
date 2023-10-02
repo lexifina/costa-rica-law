@@ -1,1 +1,1 @@
-Artículo 32.—Vigencia. El presente reglamento regirá a partir de su aprobación y publicación en el Diario Oficial La Gaceta.
+Artículo 32.—Errores Materiales: Para la corrección de errores materiales o de redacción bastará con la simple observación de uno o varios de los integrantes de la Junta Directiva, a efecto de que el Órgano Colegiado tome nota y determine el cambio para que sea corregida el acta, salvo que la modificación cambie el sentido original del acuerdo, en cuyo caso deberá tramitarse como un recurso de revisión.

@@ -1,1 +1,6 @@
-Artículo 18.—Lugar de las sesiones. La junta directiva podrá sesionar en el lugar donde convoque el presidente.
+Artículo 18.—Las Convocatorias de las Sesiones.
+18.1. Las convocatorias de las sesiones, tanto ordinarias como extraordinarias, presenciales o virtuales, serán realizadas por la Secretaría, con autorización del Presidente, mediante correo electrónico, o la herramienta que soporte la gestión documental y señalará si se llevará a cabo de manera presencial o virtual.
+18.2. La convocatoria para las sesiones ordinarias se efectuará con una antelación de cuarenta y ocho (48) horas.
+18.3. La convocatoria para las sesiones extraordinarias se efectuará con una antelación mínima de veinticuatro (24) horas a la realización de la sesión, salvo los casos de urgencia. Dicha convocatoria se hará de igual manera, mediante el sistema de administración de actas correspondiente, salvo en casos de urgencia.
+18.4. Toda convocatoria debe hacerse por escrito con copia del orden del día y la documentación respectiva se colocará a disposición de los miembros de la Junta Directiva en los medios definidos.
+18.5. No obstante, lo establecido en los artículos precedentes, la Junta Directiva sesionará válidamente, sin cumplir todos los requisitos referentes a la convocatoria o a la agenda, cuando asistan todos sus miembros y así lo acuerden por unanimidad, ya sea de manera presencial o virtual.

@@ -1,1 +1,4 @@
-Artículo 29.—Ausencia a sesiones. La ausencia a sesiones, justificada o no, torna improcedente el pago de dietas.
+Artículo 29.—Acuerdos y su Comunicación: Los acuerdos o decisiones que tome la Junta Directiva durante sus sesiones sean por mayoría absoluta o calificada o incluso por unanimidad se denominan acuerdos. Los acuerdos serán plasmados en el acta respectiva y comunicados una vez que hayan sido aprobada el acta o bien los acuerdos que se hayan tomado firmes.
+No podrá ser objeto de acuerdo, ningún asunto que no figure en el orden del día, salvo que de forma presencial o virtualmente la mayoría de los miembros de la Junta Directiva estén presentes y se declare la urgencia de este por unanimidad.
+El miembro de Junta que hagan constar en acta su voto contrario al acuerdo dictado y los motivos que lo justifiquen, quedarán exentos de la responsabilidad que en su caso pudiera derivarse de los acuerdos.
+Las simples observaciones de forma, relativas a la redacción de los acuerdos, no serán considerados para efectos del inciso anterior como recurso de revisión.

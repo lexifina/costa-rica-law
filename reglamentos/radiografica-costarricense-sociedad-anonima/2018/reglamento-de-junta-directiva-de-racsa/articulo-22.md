@@ -1,1 +1,1 @@
-Artículo 22.—Acuerdos firmes. Los acuerdos quedan firmes en la sesión en que se apruebe el acta, salvo en aquellos casos que por mayoría calificada (tres) de sus miembros acuerden su firmeza.
+Artículo 22.—Expediente de las Sesiones: Para cada acta se conformará un expediente con los documentos que se hayan analizado en el orden del día respectivo. Las grabaciones no formarán parte del expediente, solo el acta aprobada e inscrita en el libro oficial.

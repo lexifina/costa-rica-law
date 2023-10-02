@@ -1,6 +1,3 @@
-SECCIÓN II
-Acuerdos
-Artículo 20.—Votación calificada. Las votaciones se harán nominalmente y en voz alta, salvo que por unanimidad la Junta Directiva acuerde en cada caso la votación en secreto. Se requerirá votación calificada en los siguientes asuntos:
-20.1 Para la celebración de sesión extraordinaria sin cumplir los requisitos de convocatoria u orden del día se requiere de la unanimidad de todos los miembros.
-20.2 En la eventualidad de que se requiera dejar firme un acuerdo, se requerirá el voto favorable de dos tercios de la totalidad de los miembros de la junta directiva.
-20.3 Para la inclusión de un asunto que no figure en el orden del día en cualquier sesión, se debe declarar la urgencia del asunto, para lo que se requiere el voto favorable de dos tercios de la totalidad de los miembros que integran el órgano colegiado.
+Artículo 20.—Asistencia a las Sesiones: La asistencia a las sesiones, por parte de los integrantes de la Junta Directiva, es de carácter obligatoria, sin perjuicio de que éstos justifiquen su ausencia. Los miembros de Junta están obligados a asistir puntualmente a las sesiones.
+Cuando se presenten llegadas tardías superiores a los treinta minutos, a partir de la hora pactada para inicio de la sesión, el miembro de Junta perderá todo derecho a recibir suma alguna por concepto de dieta, salvo que cuente con autorización del Presidente. Cuando un miembro de Junta se incorpore a la sesión después de la hora de inicio, se indicará así en el acta.
+Si transcurridos treinta minutos de la hora señalada para el inicio de la sesión no hubiere cuórum, no se celebrará sesión. El período de treinta minutos podrá extenderse en casos de urgencia, a juicio del Presidente de la Junta Directiva.
