@@ -1,0 +1,1 @@
+Artículo 4º-Criterios para la clasificación de obras menores. Con fundamento en el presente reglamento y la reforma a la Ley de Construcciones, compete a la Dirección de Ingeniería, Urbanismo y Operaciones establecer de forma definitiva si se trata de una obra menor y si la misma requiere un trámite ante la plataforma de servicios.

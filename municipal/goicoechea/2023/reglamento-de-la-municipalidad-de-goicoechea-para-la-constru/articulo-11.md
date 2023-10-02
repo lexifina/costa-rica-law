@@ -1,0 +1,1 @@
+Artículo 11.-Facultades para proceder a notificar a personas infractoras. Las personas Inspectoras Municipales, así como a todas otras personas funcionarias que la Alcaldía Municipal designe, estarán plenamente facultadas para que procedan a notificar a las personas presuntas infractoras sus acuerdos firmes, directrices y resoluciones.

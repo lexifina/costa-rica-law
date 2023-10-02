@@ -1,0 +1,3 @@
+Artículo 2º-Obligación de toda obra o proyecto de contar con licencia municipal
+Toda obra relacionada con la construcción que se ejecute en las poblaciones de la República sea de carácter permanente o provisional, deberá ejecutarse con licencia de la Municipalidad conforme lo exige el artículo 74 de la Ley de Construcciones y el numeral 57 de la Ley de Planificación Urbana. También deberán contar con la licencia municipal respectiva las denominadas obras menores a las cuales se refiere el artículo 83 bis de la Ley N° 9482 y el presente reglamenta
+Dichas licencias municipales deberán otorgarse de conformidad con los lineamientos aplicables para cada caso establecidos en la Ley N° 7600, Ley de Igualdad de Oportunidades para las Personas con Discapacidad y su reglamento.

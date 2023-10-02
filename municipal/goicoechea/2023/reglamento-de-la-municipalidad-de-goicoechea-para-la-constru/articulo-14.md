@@ -1,0 +1,5 @@
+Artículo 14.-Procedimientos para aplicación de sanciones. Las potestades que están previstas legalmente en los artículos 88, 90 y 91 de la Ley de Construcciones son las que ejerce la administración luego de la "'mera constatación" de la irregularidad de la conducta sancionada.
+Únicamente contarán con un procedimiento especial determinado por la ley, los casos contemplados en el artículo 93 de la ley de cita.
+El procedimiento será el contenido en los artículos 94, 95, 96, y 97 de la Ley de Construcciones.
+Para toda otra infracción, deberá aplicarse el procedimiento ordinario establecido en los artículos 308 y siguientes de la Ley General de la Administración Pública. No obstante, la especialidad de la materia de construcciones no está excluida del ámbito de cobertura de la Ley General de la Administración Pública de conformidad con lo dispuesto en su artículo 367.
+Las normas procesales desarrolladas para este procedimiento habrán de ser aplicadas supletoriamente en caso que no exista norma aplicable en el especial, pues tales disposiciones responden a los parámetros mínimos necesarios para garantizar el respeto al debido proceso en sede administrativa.
