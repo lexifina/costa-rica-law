@@ -1,0 +1,1 @@
+Artículo 8º-Participación de asesores. Los miembros del CONSEJO FGAM podrán hacerse acompañar de un asesor técnico, quienes tendrán únicamente derecho a voz. Esta misma regla se observará en las reuniones de las diferentes comisiones técnicas.

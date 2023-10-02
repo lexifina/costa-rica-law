@@ -1,0 +1,5 @@
+Artículo 4º-Objetivos del CONSEJO FGAM.-Son objetivos prioritarios que guiarán las funciones del CONSEJO FGAM:
+a) Identificar y analizar elementos o circunstancias que puedan constituirse en obstáculos para la fluida atracción de IED a las regiones ubicadas fuera de la GAM.
+b) Propiciar un clima de negocios favorable para la IED, a través del abordaje a las barreras de competitividad territorial como: la inversión en infraestructura física y digital, la simplificación de trámites, la generación de talento humano acorde a las demandas del mercado, entre otras.
+c) Velar por la retención de IED actualmente establecida en el país mediante acciones y políticas de mejoramiento de las condiciones de competitividad, reforzando y optimizando la propuesta de valor de Costa Rica para la atracción de IED de manera sistemática.
+d) Verificar el cumplimiento de las actividades descritas en el plan operativo anual elaborado por este Consejo y facilitar de las acciones y políticas necesarias para generar las condiciones requeridas para atraer y retener la IED fuera de la GAM.
