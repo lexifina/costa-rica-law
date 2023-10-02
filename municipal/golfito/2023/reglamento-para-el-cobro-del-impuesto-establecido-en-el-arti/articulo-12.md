@@ -1,0 +1,1 @@
+Artículo 12.-Infracciones y sanciones. Según lo estipulado en el Código de Minería, la falta de pago de este impuesto se considerará defraudación fiscal, sujeta a las penas establecidas en el Código Fiscal. Además, quien incurra en esta falta deberá pagar una multa a favor de la Municipalidad correspondiente, equivalente a diez veces el valor de la suma defraudada.
