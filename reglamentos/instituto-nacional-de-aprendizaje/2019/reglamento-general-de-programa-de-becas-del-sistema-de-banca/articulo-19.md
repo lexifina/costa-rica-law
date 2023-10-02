@@ -1,4 +1,4 @@
-Artículo 19.—De las actas
+Artículo 19.-De las actas
 De cada sesión se levantará un acta en la que se hará constar lo siguiente: las personas asistentes a la misma, las circunstancias de tiempo y lugar en que se ha celebrado, los puntos de la deliberación, así como las manifestaciones textuales cuando sea solicitado por sus integrantes, la forma y resultado de la votación y el contenido de los acuerdos.
 Las actas deberán ser aprobadas en la siguiente sesión ordinaria.
 Antes de esa aprobación carecerán de firmeza los acuerdos tomados en la respectiva sesión, a menos que sus integrantes acuerden su firmeza por votación de dos terceras partes de la totalidad de sus integrantes.

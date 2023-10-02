@@ -14,3 +14,4 @@ Reglamento general de programa de becas del sistema de banca para el desarrollo 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-11-05 | la propia norma |
+| 2 | 2023-10-02 | Reglamento 38 (2023-10-02) |

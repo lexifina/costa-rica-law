@@ -1,15 +1,17 @@
 Capítulo 6.
 Procedimiento para el otorgamiento de las Becas
-Artículo 25.—Procedimiento:
+Artículo 25.-Procedimiento:
 Para el otorgamiento de becas, según lo establece el artículo 4 de la Ley Protección al ciudadano del exceso de requisitos y trámites administrativos, Nº 8220, la UFODE establecerá los procedimientos, instructivos y formularios que se requieran según las necesidades y los tipos de planes definidos en el artículo 24 del presente Reglamento. En cada plan de beca se establecerá los requisitos específicos para los solicitantes, los formularios que éste deberá llenar, así como los plazos para la resolución de dichas solicitudes. El plazo máximo para resolución de una solicitud de beca al INA por parte de beneficiarios de la Ley No.9274 del SBD, será de 30 días hábiles a partir de la fecha de cierre del concurso para plan de beca convocado.
 Todo plan de beca será publicado en el Diario Oficial La Gaceta junto con el procedimiento a seguir, los instructivos, manuales, formularios y demás documentos correspondientes; también se publicará por medio electrónico en la página web del INA y estará ubicado en un lugar visible dentro de la Institución. Asimismo, en un diario de circulación nacional se publicará aviso referido a dicha publicación.
 El PSDE de la UFODE será la instancia interna encargada de explicarle al usuario los requisitos y el procedimiento para la presentación de solicitudes y el otorgamiento de las becas.
 El procedimiento que se elabore para el otorgamiento de becas incluirá los siguientes aspectos:
 a. Aspectos generales del plan de beca: objetivos, monto, requisitos específicos para la participación, procedimiento para la convocatoria, período, metodología de evaluación y los compromisos de la persona beneficiaria.
-b. Mecanismo e instancias para la aprobación de los planes de beca.
+b. Mecanismos de validación del ente ejecutor: Se debe realizar un análisis de propuestas de diferentes entes ejecutores. En aplicación de los principios fundamentales de la administración pública, y con el objetivo de maximizar el valor de los recursos públicos que se invierten y a promover la actuación bajo el enfoque de gestión por resultados en el proceso de otorgamiento de becas para beneficiarios del SBD, de tal forma que se realicen en forma oportuna y bajo las mejores condiciones de precio y calidad. Considerando además el uso eficiente y eficaz de los fondos y bienes públicos y que la conducta de todos los sujetos que intervienen en la actividad debe responder al cumplimiento de los fines, las metas y los objetivos institucionales y a la satisfacción del interés público.
 c. Proceso para la publicación y la convocatoria de los planes de beca.
 d. Evaluación y aprobación de los planes de beca.
 e. Gestiones para la asignación de las becas.
 f. Seguimiento a la ejecución del plan de beca.
-g. Liquidación de la beca.
-h. Informes finales de los planes de beca.
+g. Liquidación de la beca según corresponda.
+h. Informes finales de los planes de beca según corresponda.
+i. Contrato de beca: para estos efectos, se tiene que el contrato de beca es la forma definida en que las partes adquieren derechos y obligaciones, el contrato es el convenio obligatorio, entre dos o más partes para la ejecución del plan de beca.
+h. tipo de pago de la beca: según corresponda y en miramiento de los acuerdos estipulados en el contrato de beca, el INA destina en forma temporal recursos a personas que no son funcionarios, para que inicien, continúen o completen sus estudios, sea en el país o en el exterior. Dicha suma podrá cubrir parcial o totalmente el costo del estudio. Además, puede incluir los gastos de transporte, alimentación, hospedaje y graduación, aun cuando no se otorguen los recursos monetarios directamente al beneficiario y otros gastos complementarios, cuando así lo contemple el "contrato de Beca". Asimismo, incluye ayudas económicas para prácticas estudiantiles que están dentro de los programas de estudio de centros de enseñanza, lo anterior según el bloque normativo aplicable.

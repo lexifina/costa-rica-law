@@ -1,6 +1,6 @@
 Capítulo 5.
 Aspectos Generales de las Personas Becarias
-Artículo 21.—Requisitos base de las personas becarias
+Artículo 21.-Requisitos base de las personas becarias
 Podrá aspirar a las becas cualquier persona que cumpla con los siguientes requisitos base:
 ▪ Ser sujeto beneficiario del SBD.
 ▪ Ser ciudadano costarricense o cualquier persona con estatus migratorio debidamente legalizado.

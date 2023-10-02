@@ -1,2 +1,2 @@
-Artículo 2º—Recursos financieros para becas
+Artículo 2º-Recursos financieros para becas
 Los recursos asignados al Programa de Becas del Sistema de Banca para el Desarrollo se financiarán, de conformidad con lo estipulado en la distribución del presupuesto que para tal fin defina la Junta Directiva y serán parte de los recursos asignados en presupuestos ordinarios y extraordinarios de cada año del INA, de conformidad lo indicado en la Ley No. 9274.

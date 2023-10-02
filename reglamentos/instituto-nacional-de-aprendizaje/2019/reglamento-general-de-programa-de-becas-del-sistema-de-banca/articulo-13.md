@@ -1,2 +1,2 @@
-Artículo 13.—Votaciones
+Artículo 13.-Votaciones
 Los acuerdos de la Comisión serán adoptados por mayoría absoluta de sus integrantes presentes, salvo en los casos en que la Ley o el Reglamento permita o exija otro tipo de quorum. Quienes integran la Comisión, podrán votar afirmativa o negativamente sin que les sea permitido abstenerse de emitir su voto, salvo que concurra algún motivo de impedimento o excusa, según lo indicado en el artículo 16 del presente reglamento y cualquier otra normativa aplicable en esta materia.
