@@ -15,3 +15,4 @@ Reglamento para ayudas y becas de la Municipalidad de Liberia
 | --- | --- | --- |
 | 1 | 2019-08-01 | la propia norma |
 | 2 | 2020-10-05 | Reglamento municipal 34 (2020-10-05) |
+| 3 | 2023-10-02 | Reglamento municipal 278 (2023-10-02) |

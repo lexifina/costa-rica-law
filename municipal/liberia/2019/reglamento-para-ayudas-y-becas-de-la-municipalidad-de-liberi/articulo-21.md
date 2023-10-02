@@ -2,7 +2,8 @@ Artículo 21. Las personas interesadas o quienes ejerzan la patria potestad cuan
 a) Residir en el Cantón de Liberia.
 b) Ser costarricense por nacimiento o naturalización, o poseer cédula de residencia vigente.
 c) Constancia emitida por el Instituto Mixto de Ayuda Social, de que él o la solicitante no recibe otras ayudas económicas con el mismo fin.
-d) Poseer buenas calificaciones, podrán aceptarse solicitudes de estudiantes que se hallan aplazado y posteriormente aprobado las convocatorias correspondientes.
+d) Poseer buenas calificaciones. Se aceptarán solicitudes de estudiantes que hayan aplazado y posteriormente aprobado las convocatorias correspondientes, además de solicitudes de estudiantes por primera vez que tengan notas rojas, para lo cual la Comisión de Bienestar Social solicitará la justificación correspondiente.
+(Así reformado el inciso anterior mediante sesión N° 278-2023 del 2 de octubre del 2023)
 e) Encontrarse en condición de pobreza según los parámetros establecidos por el Instituto Mixto de Ayuda Social (IMAS).
 f) No gozar de otro tipo de beca.
 g) Formulario de beca municipal debidamente lleno y en letra clara, con todos los datos y documentos requeridos.
