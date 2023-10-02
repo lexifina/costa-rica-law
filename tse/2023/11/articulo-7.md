@@ -1,0 +1,3 @@
+Artículo 7º-Agréguese un párrafo al final del artículo 79 que dirá:
+"(...)
+Quien ocupe la tesorería del partido deberá reportar al Departamento de Financiamiento de Partidos Políticos todas las contribuciones en especie de un mismo donante que, sumadas entre sí, superen el monto de dos salarios base. Los períodos para evaluar si dicha acumulación supera el umbral de dos salarios base son: a) donaciones recibidas en periodo no electoral, se acumularán las recibidas del 1 de enero al 31 de diciembre de cada año; y, b) las donaciones recibidas durante el periodo de campaña electoral se acumularán a partir de la fecha de convocatoria y hasta 45 días naturales después de la fecha de la elección correspondiente."
