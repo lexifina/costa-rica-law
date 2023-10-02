@@ -1,0 +1,2 @@
+Artículo 5 bis: Ante la renuncia de un miembro o en pleno de la Junta Directiva del Comité Cantonal de Deportes y Recreación de Liberia, se autoriza al Director Administrativo y a la auxiliar contable del Comité Cantonal de Deportes y Recreación de Liberia, que procedan a realizar el pago de planilla y gastos fijos (servicios públicos), sujeto a la fiscalización inmediata de la Auditoría Interna de la Municipalidad de Liberia, en el supuesto caso que se dé esta situación.
+(Así adicionado en sesión N° 278 del 2 de octubre de 2023)

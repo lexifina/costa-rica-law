@@ -15,3 +15,4 @@ Reglamento de Organización y Funcionamiento del Comité Cantonal de Deportes y 
 | --- | --- | --- |
 | 1 | 2021-03-22 | la propia norma |
 | 2 | 2023-02-01 | Reglamento municipal 223 (2023-02-01) |
+| 3 | 2023-10-02 | Reglamento municipal 278 (2023-10-02) |
