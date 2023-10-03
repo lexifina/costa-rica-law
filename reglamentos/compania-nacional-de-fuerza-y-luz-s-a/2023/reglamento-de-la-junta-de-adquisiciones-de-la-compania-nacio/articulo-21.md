@@ -1,0 +1,2 @@
+Artículo 21.-Aprobación de actas y su corrección: Las actas quedan aprobadas y en firme en la misma sesión; salvo que, por voto de mayoría decidan posponer su aprobación a la siguiente sesión.
+Si fuere detectado algún error en el acta firme, en la siguiente sesión se procede a realizar la enmienda explicando los motivos de la subsanación para que quede debidamente consignada la voluntad de los miembros de la Junta de Adquisiciones.

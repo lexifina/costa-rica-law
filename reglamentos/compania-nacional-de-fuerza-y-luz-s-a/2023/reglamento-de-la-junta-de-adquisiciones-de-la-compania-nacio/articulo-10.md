@@ -1,0 +1,1 @@
+Artículo 10 - secretario (a) de la Junta de Adquisiciones: Con el fin de desempeñar sus funciones de la manera más eficiente posible, se contará con un secretario (a), labor desempeñada por la jefatura de la Secretaría del Consejo de Administración de la CNFL, quien no tendrá voz ni voto.

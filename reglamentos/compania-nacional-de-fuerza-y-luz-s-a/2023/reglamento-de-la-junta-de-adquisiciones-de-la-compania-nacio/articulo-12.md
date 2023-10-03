@@ -1,0 +1,1 @@
+Artículo 12.-De la ausencia del secretario (a) . En caso de ausencia temporal o enfermedad del secretario (a) en las sesiones ordinarias o extraordinarias, debe sustituirse por el secretario(a) Adjunto(a), quien asume los deberes inherentes al cargo de secretario(a), por el tiempo de la ausencia.

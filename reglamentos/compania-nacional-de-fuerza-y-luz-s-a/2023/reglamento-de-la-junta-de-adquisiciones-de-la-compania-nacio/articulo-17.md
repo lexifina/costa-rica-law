@@ -1,0 +1,1 @@
+Artículo 17.-Sesión extraordinaria: Cuando así sea requerido, el presidente (a) de la Junta de Adquisiciones, puede ordenar la convocatoria a sesión extraordinaria en cualquier momento, con al menos un día hábil de anticipación, la cual debe ser sobre un orden del día determinado.

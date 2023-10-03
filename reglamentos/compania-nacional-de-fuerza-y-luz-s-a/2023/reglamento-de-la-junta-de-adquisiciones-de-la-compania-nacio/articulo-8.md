@@ -1,0 +1,1 @@
+Artículo 8º-El presidente (a) de la Junta de Adquisiciones: El cargo debe ser ejercido por el Proveedor (a) Empresarial, y en caso de ausencia, podrá ser asumido por alguna de las jefaturas de la Unidad de la Proveeduría Empresarial.

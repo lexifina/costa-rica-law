@@ -1,0 +1,5 @@
+Artículo 20.-Contenido del acta: El secretario(a) elaborará el acta de cada sesión que corresponderá al orden del día comunicado previamente.
+En el acta debe constar el nombre de los miembros permanentes o los designados de la Junta de Adquisiciones que participaron, así como de los directores y personas acompañantes, el lugar, fecha, hora de inicio y finalización, los puntos principales de deliberación, la forma y resultado de las votaciones y el contenido de los acuerdos.
+Se puede hacer uso de un libro físico o digital para documentar las actuaciones, procurando el uso de formatos que garanticen su acceso y lectura en cualquier tipo de dispositivo electrónico; y debe transcribirse de forma posterior para su firma.
+Se podrá incluir temas que no estén en el orden del día, que haya consentimiento de al menos dos miembros con derecho a voto; y siempre que el caso esté relacionado con el Director (a) que participa en ese momento de la sesión.
+Las actas serán suscritas por el presidente (a) y secretario (a) de la Junta de Adquisiciones.
