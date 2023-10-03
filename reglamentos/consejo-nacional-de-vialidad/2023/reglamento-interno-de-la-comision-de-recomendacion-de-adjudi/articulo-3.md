@@ -1,0 +1,1 @@
+Artículo 3º-Afectación al Régimen de Prohibiciones de la Ley General de Contratación Pública. Tanto los miembros de la Comisión de Recomendación de Adjudicaciones y quien adjudica estarán afectos al régimen de prohibiciones establecido en el artículo 28 de la Ley General de Contratación Pública.

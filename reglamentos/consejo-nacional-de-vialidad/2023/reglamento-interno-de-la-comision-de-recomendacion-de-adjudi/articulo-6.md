@@ -1,0 +1,3 @@
+Artículo 6º-Quórum y carácter no vinculante de sus decisiones. El quórum de la Comisión, para sesionar será con la totalidad de sus miembros y sus decisiones se tomarán por simple mayoría.
+El Proveedor Institucional, o quién lo represente durante sus ausencias, será quien presida las reuniones de la Comisión.
+Las recomendaciones que emita dicha Comisión no serán vinculantes, por su naturaleza asesora, pero para apartarse de ellas el órgano competente para adjudicar (Consejo de Administración) deberá fundamentar ampliamente las razones por las que no acepta la respectiva recomendación, asumiendo en tal caso total y plena responsabilidad de dicho acto.

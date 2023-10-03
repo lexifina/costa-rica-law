@@ -1,0 +1,1 @@
+Artículo 8º-Normativa Supletoria. En lo no previsto en el presente Reglamento Interno, se aplicarán supletoriamente, las disposiciones de la Ley General de Contratación Pública N° 9986 y su Reglamento, y los Principios que rigen la materia.

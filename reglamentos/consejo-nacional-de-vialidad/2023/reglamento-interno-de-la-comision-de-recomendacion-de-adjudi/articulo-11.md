@@ -1,0 +1,1 @@
+Artículo 11.-Derogatoria. Se deja sin efecto la integración de la Comisión de Recomendación de Adjudicaciones, conformada bajo el Decreto Ejecutivo 30640-H, del 27 de junio del 2002, el cual se encuentra derogado.
