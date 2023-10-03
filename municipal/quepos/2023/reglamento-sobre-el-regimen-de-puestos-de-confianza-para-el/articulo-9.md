@@ -1,0 +1,2 @@
+Artículo 9°-Requisitos académicos. Los requisitos académicos y de experiencia, serán establecidos de acuerdo con las razones objetivas de necesidad del área contratante con relación a las funciones por desempeñar y el salario que se fije, de conformidad con el artículo 7 del presente reglamento.
+Además el requisito académico el asesor 1 de fracción municipal deberá contar con un mínimo de 4 años de experiencia certificada en puestos que contemplen el concejo municipal.

@@ -1,0 +1,1 @@
+Artículo 13.-Nueva contratación. La persona que laboró en un puesto de confianza y pretenda ser contratado o contratada por la Municipalidad de Quepos, en un puesto propio de la relación de empleo público, deberá cumplir con todas las disposiciones legales para el reclutamiento y la selección de personal, según la naturaleza de la plaza de que se trate.

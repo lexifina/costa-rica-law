@@ -1,0 +1,3 @@
+CAPÍTULO V.
+Lugar de trabajo
+Artículo 16.-Lugar de trabajo. El personal contratado prestará sus servicios bajo la modalidad de asesoría no está obligado a marcar o cumplir horario solo debe asistir a todas las reuniones de comisión, ordinarias y extraordinaria si decide estar presencial en el lugar designado al efecto por la Administración, mismo que deberá cumplir con las condiciones mínimas, para la efectiva y adecuada prestación del servicio, entre las que se incluyen, el espacio, condiciones logísticas, de equipamiento y de salud ocupacional en general; sin perjuicio de que por la índole de las funciones que se le encomiende, deba desplazarse a otros lugares, inclusive fuera del cantón.

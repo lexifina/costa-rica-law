@@ -1,0 +1,1 @@
+Transitorio 1°-Las personas contratadas bajo el régimen de confianza para las fracciones que integran el Concejo Municipal, serán nombrados a partir de que asuman los titulares de las mismas, para el período del ejercicio del cargo."

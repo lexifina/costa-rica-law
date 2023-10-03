@@ -1,0 +1,1 @@
+Artículo 14.-Restricción participativa. Los contratados bajo el régimen de confianza no podrán acogerse a los beneficios de un programa de movilidad, ni participar en procesos de transformación organizacional o de concurso interno.
