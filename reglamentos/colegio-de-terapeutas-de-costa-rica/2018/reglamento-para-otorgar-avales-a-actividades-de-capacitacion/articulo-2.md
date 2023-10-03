@@ -1,5 +1,2 @@
-Artículo 2º—Solicitud. El solicitante que desee el aval de una actividad académica de capacitación deberá presentar ante el Comité Académico, una solicitud formal con un mínimo de tres (3) meses de anticipación a la fecha de realización de la actividad de capacitación, la cual debe incluir:
-a) Desarrollo de contenidos de la actividad de capacitación.
-b) Curriculum de los facilitadores.
-c) Título de la actividad de capacitación.
-d) Boleta de Solicitud para avales de cursos.
+Artículo 2º-Aval. El aval consiste en una verificación y reconocimiento de parámetros mínimos de calidad y pertinencia que otorga el Comité Académico del Colegio de Terapeutas a las actividades de capacitación en las áreas que incorpora este colegio profesional y que son ofrecidas por personas físicas o jurídicas en el país.
+Dicha verificación, se realiza a través del plan de curso, que se entiende, para efectos de este Reglamento, como toda la información relacionada con la propuesta académica que el solicitante pretende brindar y que está sustentada en las necesidades formativas de las áreas profesionales que incorpora el Colegio de Terapeutas.

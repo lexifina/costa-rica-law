@@ -1,11 +1,17 @@
-Artículo 7º—Resolución técnica. Una vez determinado que la actividad de capacitación cumple con todos los requisitos establecidos en este Reglamento, el Comité Académico deberá confeccionar una resolución técnica, misma que deberá ser aprobada en sesión de dicho órgano y que contendrá lo siguiente:
-a) Fecha de la sesión en la que fue aprobado el aval
-b) Título del curso o actividad avalada
-c) Nombre de los expositores de la actividad y sus grados académicos.
-d) Fecha de realización de la actividad
-e) Lugar donde se realizará la actividad
-f) Cupo máximo de participantes aprobado
-g) Cantidad de horas totales de la actividad
-h) Tipo de certificado que se aprueba se puede emitir
-i) Requisitos que deben cumplir los participantes del curso
-j) Monto a pagar por el aval según la tabla de aranceles del artículo 10 de este reglamento.
+Artículo 7º-Implementación del plan de curso. Se refiere a las condiciones administrativas de difusión, inscripción en el plan de curso, así como la planificación académica que se entregará a los estudiantes. Contempla:
+a) Inscripción. La presentación del plan de curso debe incluir expresamente:
+i. Cupos: número máximo de participantes para impartir la actividad de capacitación.
+ii. Fecha límite de inscripción.
+iii. Responsable del plan.
+iv. Mecanismos de contacto: correo electrónico y teléfono.
+v. Costo de la actividad de capacitación para el participante.
+vi. Requisitos para el participante, cuando corresponda.
+b) Planificación Académica. El plan de curso debe contar con un programa para ser entregado a los participantes que considere cuando menos los siguientes elementos:
+i. Fundamentación de la propuesta académica.
+ii. Objetivos.
+iii. Contenidos.
+iv. Metodología de la enseñanza.
+v. Metodología de la evaluación y requisitos de aprobación.
+vi. Número de horas.
+vii. Bibliografía básica y complementaria.
+viii. Además, se debe entregar a los estudiantes un cronograma que indique fechas, horarios, lugares de las actividades académicas y nombre de los facilitadores responsables de cada una de estas actividades.

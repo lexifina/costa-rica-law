@@ -14,3 +14,4 @@ Reglamento para otorgar avales a actividades de capacitación
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-11-29 | la propia norma |
+| 2 | 2023-10-03 | Reglamento 0 (2023-10-03) |

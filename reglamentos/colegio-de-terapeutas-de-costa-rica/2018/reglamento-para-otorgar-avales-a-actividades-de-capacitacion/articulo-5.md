@@ -1,18 +1,18 @@
-Artículo 5º—Implementación del programa académico. Se refiere a las condiciones administrativas de difusión, inscripción en el programa académico, así como la planificación académica que se entregará a los estudiantes. Contempla:
-a) Inscripción. La presentación al programa académico debe incluir expresamente:
-i. Cupos: número máximo y mínimo de participantes para impartir la actividad de capacitación.
-ii. Fecha límite de presentación.
-iii. Responsable del programa.
-iv. Mecanismos de contacto: correo electrónico y teléfono.
-v. Inversión para participar del programa académico.
-vi. Requisitos del postulante, cuando corresponda.
-vii. El programa académico deberá indicar de forma detallada tanto los mecanismos y fechas límites de inscripción como las modalidades de pago y responsables de esta.
-b) Planificación Académica. El programa académico debe contar con un programa para ser entregado a los participantes que considere cuando menos los siguientes elementos:
-i. Fundamentación de la propuesta académica
-ii. Objetivos
-iii. Contenidos
-iv. Metodología de la enseñanza
-v. Metodología de la evaluación, requisitos de aprobación.
-vi. Número de horas
-vii. Bibliografía básica y complementaria.
-Además, se debe entregar a los estudiantes un calendario que indique fechas, horarios, lugares de las actividades académicas y nombre de los facilitadores responsables de cada una de estas actividades.
+Artículo 5º-Desarrollo de contenidos de la actividad de capacitación. El desarrollo de contenidos de la capacitación que debe ser presentado en la solicitud, consiste en lo siguiente:
+a) Fundamentación del plan de curso, justificando la importancia de los cursos y su necesidad a nivel nacional e internacional, basados en la realidad del contexto en que se va a aplicar. El plan debe fundamentar su diseño en las necesidades académicas derivadas de:
+i. Correspondencia con las necesidades formativas exigidas por la misión y visión del Colegio de Terapeutas de Costa Rica.
+ii. Coherencia con las demandas que surgen del desarrollo de las áreas profesionales albergadas en el Colegio de Terapeutas de Costa Rica y su perspectiva de futuro en el marco de formación profesional.
+iii. Pertinencia y relación con las necesidades que surgen en torno a las experiencias en los procesos de educación superior, así como de los programas de educación continua.
+b) Objetivos del plan de curso, el cual debe contener al menos un objetivo general y dos específicos, los que deberán ser consistentes con el propósito del curso y su fundamentación.
+c) Incluir los contenidos que serán tratados durante su desarrollo, los cuales deben guardar relación directa con los objetivos de la actividad de capacitación. Asimismo, deben estar mediados con actividades que permitan la asimilación de conocimiento teórico y la adquisición de destrezas y habilidades prácticas.
+d) Número de horas teóricas y prácticas. El plan de curso deberá indicar si se trata de una actividad de:
+i. Participación: Son aquellas actividades que constan de doce (12) horas naturales de capacitación efectiva en adelante y en las que, para su aprobación, se consideran únicamente la asistencia y la participación, como criterios para el procedimiento de enseñanza-aprendizaje.
+ii. Aprovechamiento: Son aquellas actividades cuyos programas o estructuras curriculares consten de treinta (30) horas naturales de capacitación efectiva en adelante, en las que se apliquen sistemas o criterios de evaluación que permitan determinar su aprobación por parte de los participantes. Se pueden clasificar en:
+a. Cursos de aprovechamiento cortos: Incluye los cursos de aprovechamiento con un rango entre 30 y 60 horas.
+b. Cursos aprovechamiento largos: Incluye aquellos cursos con 60 horas o más que no contempla la modalidad de pregrado o diplomado.
+iii. Asistencia: Las actividades de capacitación que no califiquen como aprovechamiento o participación, serán consideradas como de asistencia y no requieren necesariamente la entrega de un certificado.
+e) Modalidad del plan de curso. Se debe indicar si el plan de curso se realizará en una modalidad organizativa de enseñanza que incluye: clases teóricas, clases prácticas, clases teórico-prácticas, seminarios, talleres, e learning, semi presencial, entre otros.
+f) Estrategias didácticas o métodos de enseñanza. Se deben indicar además las estrategias didácticas o métodos de enseñanza, tales como: charlas magistrales, estudio de casos, resolución de problemas, aprendizaje basado en problemas, aprendizaje basado en proyectos, entre otros.
+g) Evaluación de los aprendizajes. El profesional que asiste a la actividad de capacitación debe ser evaluado, cuando así corresponda de acuerdo con el plan de curso. En este caso se deben especificar los mecanismos de evaluación, sean: Prueba escrita, Evaluación Clínica Objetiva Estructurada (ECOE), entre otros. Estos mecanismos de evaluación deben estar en relación directa a los objetivos del plan de curso y metodología de la enseñanza. Los estudiantes deben ser calificados con una nota en la escala de 1 a 100 y se aprobará con la nota mínima de 70.
+h) Evaluación del plan de curso. El proyecto debe considerar la evaluación de la calidad de los docentes y del plan de curso.
+Tanto la modalidad organizativa de la enseñanza como el método de enseñanza deben estar en directa relación tanto con los objetivos del plan de curso académico como con la metodología de evaluación.

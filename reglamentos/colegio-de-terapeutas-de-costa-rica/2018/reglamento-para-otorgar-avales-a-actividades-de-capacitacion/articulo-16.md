@@ -1,0 +1,5 @@
+CAPÍTULO VI
+Cumplimiento del plan de curso,
+fiscalización y comprobación de aval
+Artículo 16.-Cumplimiento del plan de curso. Con la formalización del aval, el solicitante se compromete a cumplir de manera estricta el plan de curso propuesto, en la forma y tiempo en que fue expuesto y aprobado en la solicitud de aval, incluida la cantidad máxima de participantes. Asimismo, garantiza que los datos proporcionados en relación con el plan y con los profesionales que imparten los cursos, son verídicos.
+Cuando se requiera realizar una modificación al plan de capacitación o en relación con cualquier aspecto del curso, el solicitante remitirá la solicitud al Comité Académico por los medios habilitados para tal fin. En un plazo de 3 días naturales, el Comité o la persona que este designe, notificará al solicitante sobre la aceptación o no del cambio propuesto o bien, si este amerita un nuevo análisis en sesión del órgano colegiado. En este último caso, se atenderá al procedimiento establecido en los artículos anteriores.

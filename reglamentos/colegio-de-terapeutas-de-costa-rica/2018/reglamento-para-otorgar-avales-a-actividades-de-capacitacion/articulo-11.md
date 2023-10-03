@@ -1,6 +1,2 @@
-CAPÍTULO III
-Del cumplimiento del programa
-académico y la fiscalización
-Artículo 11.—Cumplimiento del programa académico.
-Mediante la firma de los formularios correspondientes, el solicitante se compromete a cumplir el Programa Académico propuesto de manera estricta, en la forma y tiempo en que fue expuesto y aprobado en la solicitud de aval. Asimismo, debe garantizar que los datos proporcionados en relación con los antecedentes del programa y con los profesionales que imparten los cursos, son verídicos.
-Una vez otorgado y formalizado el aval, el programa de capacitación no podrá ser modificado por el solicitante. En caso de que dicho programa de capacitación deba ser modificado, el aval deberá tramitarse nuevamente desde el inicio.
+Artículo 11.-Notificación. El Comité Académico, notificará al solicitante respecto de la aprobación o no del aval, remitiendo la resolución debidamente aprobada en sesión del Comité a través de los medios de comunicación señalados en la solicitud.
+Posteriormente, el Comité Académico deberá remitir toda la documentación pertinente, mediante el formulario designado para tal efecto a la Coordinación Administrativa y la Plataforma de Servicios para continuar con los trámites.

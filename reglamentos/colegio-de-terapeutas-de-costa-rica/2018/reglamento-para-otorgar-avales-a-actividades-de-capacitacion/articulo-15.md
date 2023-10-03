@@ -1,3 +1,1 @@
-CAPÍTULO IV
-Disposiciones finales
-Artículo 15.—Rige a partir de su publicación en el Diario Oficial La Gaceta.
+Artículo 15.-Deber de informar sobre el trámite. Durante todo el tiempo que la solicitud de aval se encuentre en proceso de análisis, el solicitante podrá consultar al Comité Académico o a la persona que este designe, sobre su estado, a través de los medios que se dispongan para ello, los cuales le serán informados al momento de iniciar el trámite.

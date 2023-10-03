@@ -1,0 +1,2 @@
+Artículo 19.-Anomalías derivadas de la fiscalización. Cuando de la fiscalización de una actividad de capacitación y su correspondiente informe, se detecte alguna anomalía o incumplimiento de los compromisos adquiridos, el Comité Académico elevará el caso a la Junta Directiva, quien determinará las acciones a realizar y si corresponde, las sanciones pertinentes.
+La resolución tomada por la Junta Directiva le será comunicada al Comité Académico quien a su vez notificará al organizador del curso que incurrió en la falta sobre eventuales prevenciones y/o acciones remediales.

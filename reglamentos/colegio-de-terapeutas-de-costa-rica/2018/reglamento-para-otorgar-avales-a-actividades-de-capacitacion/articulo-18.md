@@ -1,0 +1,1 @@
+Artículo 18.-Fiscalizador. El Comité Académico, la Dirección Académica y la Dirección Ejecutiva determinarán la manera en la que se nombrará a los fiscalizadores de actividades de capacitación y los pormenores de dicho servicio.

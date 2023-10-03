@@ -1,0 +1,2 @@
+Artículo 20.-Comprobación sobre el aval del curso. El Colegio de Terapeutas establecerá el sistema que permita a las personas que asistan al curso o actividad de capacitación y el público en general, verificar que se trata de un curso avalado.
+Por medio de la resolución de aval, se le indicará al solicitante la información que, a tal efecto, deberá incluir en los certificados del curso o actividad de capacitación.
