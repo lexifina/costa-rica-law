@@ -1,0 +1,1 @@
+Artículo 18. -Plazo de entrega del acta de embargo. Dentro de los tres días hábiles siguientes de practicado el embargo, la persona ejecutora deberá presentar al despacho jurisdiccional la respectiva acta. Salvo situaciones previamente justificadas.

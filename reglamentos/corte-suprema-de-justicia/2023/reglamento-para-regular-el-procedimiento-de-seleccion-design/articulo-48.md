@@ -1,0 +1,1 @@
+Artículo 48. - Interés directo o indirecto en un proceso determinado. En caso de que la persona Auxiliar de la Administración de Justicia tenga interés directo o indirecto en el proceso que se encuentra nombrado, deberá inhibirse de realizar la diligencia para la cual fue designada ante la autoridad judicial competente.

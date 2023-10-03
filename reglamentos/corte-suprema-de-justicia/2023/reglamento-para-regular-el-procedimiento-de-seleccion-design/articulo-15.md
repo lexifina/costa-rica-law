@@ -1,0 +1,1 @@
+Artículo 15. - Imposibilidad de la persona ejecutora de ser nombrada depositaria judicial de los bienes embargable Las personas Auxiliares Ejecutores no son competentes para designarse como depositarios de los bienes embargables, salvo disposición legal en contrario.

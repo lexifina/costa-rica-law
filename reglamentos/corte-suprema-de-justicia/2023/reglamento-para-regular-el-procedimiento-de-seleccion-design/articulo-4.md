@@ -1,0 +1,2 @@
+Artículo 4.- Incompatibilidad de funciones y conflictos de interés. Las personas funcionarias y servidoras judiciales no podrán servir como personas peritos, ejecutoras y curadoras procesales, salvo que alguna disposición normativa lo permita.
+En caso de ser nombradas, no podrán recibir pago por la labor rendida, ni tener un interés directo o indirecto en el proceso o generar conflicto de interés, debiendo excusarse de realizar la función para la cual fue designada en caso de haber un interés o un conflicto.

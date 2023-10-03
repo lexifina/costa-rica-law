@@ -1,0 +1,1 @@
+Artículo 36. -Información en el expediente. Cada expediente deberá contener la información relacionada con lo dispuesto en el artículo 24 inciso a) de este Reglamento. Además, deberá mantenerlos actualizados incorporando oportunamente, de oficio o a gestión de parte, cualquier dato o información que resulte pertinente.

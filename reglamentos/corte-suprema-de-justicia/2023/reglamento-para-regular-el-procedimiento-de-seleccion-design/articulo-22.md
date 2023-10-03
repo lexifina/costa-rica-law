@@ -1,0 +1,1 @@
+Artículo. 22.-Plazo de presentación de informes. La presentación de los informes, se deberán rendir en el plazo dispuesto por las normas procesales correspondientes o lo ordenado por la autoridad judicial del despacho u oficina.

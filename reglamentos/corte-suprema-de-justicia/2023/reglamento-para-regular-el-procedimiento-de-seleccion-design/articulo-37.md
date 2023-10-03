@@ -1,0 +1,1 @@
+Artículo 37. - Protección de la información. La información que contenga el expediente electrónico deberá ajustarse a las disposiciones establecidas en relación con los datos sensibles, conforme lo establece la Ley N° 8968 "Protección de la Persona frente al tratamiento de sus datos personales" y leyes conexas.

@@ -1,0 +1,1 @@
+Artículo 59.- Efectos de la sanción. La sanción impuesta será aplicada a las personas en su condición de auxiliar de la administración de justicia, independientemente de las listas en que se encuentren inscritas.

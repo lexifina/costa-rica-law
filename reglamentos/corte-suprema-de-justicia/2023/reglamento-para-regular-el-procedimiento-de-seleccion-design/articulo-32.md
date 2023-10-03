@@ -1,0 +1,2 @@
+Artículo 32. - Carné de identificación. La Dirección Ejecutiva confeccionará un carné de identificación para las personas inscritas como intérpretes, traductores, peritos según especialidad, auxiliares ejecutores o curadores procesales.
+Dicho carné deberá ser portado por la respectiva persona cuando cumpla diligencias propias de su función y presentarlo cuando así se requiera. Deberá devolver el carné a la Dirección Ejecutiva cuando no formen parte de la lista oficial como auxiliar de la administración de justicia.

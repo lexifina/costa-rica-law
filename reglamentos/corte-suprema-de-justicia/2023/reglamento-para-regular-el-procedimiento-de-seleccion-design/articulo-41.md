@@ -1,0 +1,1 @@
+Artículo 41. - Honorarios para personas curadoras procesales. Los honorarios de los curadores procesales se fijan de conformidad con el artículo 19 del Código Procesal Civil y conforme lo dispuesto por leyes especiales según la materia o supuestos determinados.

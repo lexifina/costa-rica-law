@@ -1,0 +1,1 @@
+Artículo 49. - Impedimento y Recusación. Son motivos de impedimento y recusación de las personas auxiliares de la Administración de Justicia, aquellos previstos en la Ley Orgánica del Poder Judicial, Código Procesal Civil y normativas conexas.

@@ -1,0 +1,5 @@
+Artículo 45.- Materias en que se aplica el principio de gratuidad. Los honorarios y demás gastos de las personas Auxiliares de la Administración de Justicia, en aquellas materias en las que se aplique el principio de gratuidad, serán fijados previamente a su ejecución por la Dirección Ejecutiva de conformidad con lo dispuesto en el artículo 88 inciso 3 de la Ley Orgánica del Poder Judicial.
+Cuando el Poder Judicial asuma el pago de los honorarios, la liquidación de gastos por diligencias judiciales deberá enviarse por el despacho u oficina judicial al Departamento Financiero Contable o a las Administraciones Regionales, previamente autorizado por la autoridad judicial competente, según sea el caso. Se debe adjuntar:
+1.)Factura electrónica. En ésta deberá consignar de forma clara el número de autorización de los gastos, la fecha y el visto bueno de la autoridad judicial respectiva.
+2.)Copia del acta de la diligencia efectuada, con las firmas y el sello respectivo.
+3.)Las facturas deben ser autorizadas por la Dirección General de Tributación Directa, con los requisitos establecidos en el reglamento de cajas chicas auxiliares y caja chica general.

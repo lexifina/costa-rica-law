@@ -1,0 +1,1 @@
+Transitorio II: El modo de pago para curadores procesales en familia, se deberá seguir con lo que establece la Ley N.º 7130, Código Procesal Civil, de 16 de agosto de 1989, si al momento de entrada en vigor este Reglamento, no ha entrado en vigor el Código Procesal de Familia.

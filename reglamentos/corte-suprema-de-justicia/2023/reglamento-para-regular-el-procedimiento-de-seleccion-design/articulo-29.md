@@ -1,0 +1,1 @@
+Artículo 29.- Publicación de las listas oficiales de las personas Auxiliares de la Administración de Justicia. Las listas oficiales de las personas inscritas como Auxiliares de la Administración de Justicia se publicarán periódicamente en la página web de la Dirección Ejecutiva, de modo que pueda tener acceso a listas generales ordenadas alfabéticamente.

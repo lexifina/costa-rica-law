@@ -1,0 +1,2 @@
+Artículo 19. -Imposibilidad de la ejecución del embargo. Si no se pudiere practicar el embargo por razones ajenas a la voluntad la persona Auxiliar Ejecutora, deberá consignarlo en el acta, indicando las razones que se lo impidieron, acta que deberá presentar al despacho jurisdiccional respectivo conforme al plazo establecido en el artículo 18 de este reglamento.
+La autoridad judicial deberá valorar la justificación presentada por el ejecutor para ampliar la prórroga de presentación del acta.

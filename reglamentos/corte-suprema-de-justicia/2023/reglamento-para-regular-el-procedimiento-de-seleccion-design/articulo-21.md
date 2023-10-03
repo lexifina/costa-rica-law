@@ -1,0 +1,2 @@
+Artículo. 21.- Participación procesal. Las personas curadoras procesales, tendrán la responsabilidad y la obligación de cumplir con la prosecución y tramitación del proceso, presentar tanto los documentos, escritos y realizar los actos procesales necesarios en defensa de la persona que representa en cada proceso asignado.
+La negligencia o culpa grave por motivo de conductas u omisiones en el ejercicio de sus funciones, podrá implicar responsabilidad administrativa, hasta responsabilidad civil ante la persona que representa.

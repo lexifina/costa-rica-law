@@ -1,0 +1,1 @@
+Artículo 46.- Plazo para realizar el Depósito y Giro de honorarios a las personas Auxiliares de la Administración de Justicia. Una vez que se encuentre en firme la resolución de pago de honorarios de los Auxiliares de la Administración de Justicia el despacho judicial tendrá máximo 10 días hábiles para que se haga efectivo.

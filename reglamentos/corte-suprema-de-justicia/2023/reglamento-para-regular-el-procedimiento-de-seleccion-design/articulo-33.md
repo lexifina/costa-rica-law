@@ -1,0 +1,1 @@
+Artículo 33. - Vigencia del carné. El carné se expedirá con una vigencia de 2 años, renovable por períodos iguales y consecutivos, siempre y cuando la persona Auxiliar de la Administración de Justicia no tenga impedimento para seguir fungiendo como tal y tenga actualizado la información conforme lo dispuesto en el artículo 28 de este reglamento.

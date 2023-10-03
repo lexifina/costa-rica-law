@@ -1,0 +1,2 @@
+Artículo 58. - Ejecución de la sanción. Firme la resolución que imponga una sanción disciplinaria, se ejecutará de manera inmediata, de existir un motivo justificado que impida la ejecución de la sanción, se contará con un plazo de un año a partir de la firmeza la resolución que impuso la sanción para ejecutarla.
+La Sanción impuesta deberá anotarse por parte de la Dirección Jurídica en el Sistema de Gestión de Auxiliares de la Administración de Justicia, o los mecanismos que para su efecto disponga dicha oficina de no contarse con el sistema

@@ -1,0 +1,1 @@
+Artículo 7. -Plazo de entrega de la traducción. Los documentos traducidos, así como las aclaraciones o ampliaciones, ya sea a instancia de parte o de oficio por el despacho judicial, estarán a lo dispuesto en las normas procesales correspondientes o lo ordenado por la autoridad judicial del despacho u oficina.

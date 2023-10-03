@@ -1,0 +1,2 @@
+Artículo 43. - Viáticos para las personas Auxiliares de la Administración de Justicia Las personas auxiliares de la administración de justica podrán recibir viáticos cuando el traslado se traduzca o corresponda a diez o más kilómetros de separación entre el despacho donde se nombró o de la zona donde se inscribió.
+La autoridad judicial valorará el pago de viáticos conforme a la tabla de gastos de viaje que indique la Dirección Ejecutiva, aprobado por el Consejo Superior

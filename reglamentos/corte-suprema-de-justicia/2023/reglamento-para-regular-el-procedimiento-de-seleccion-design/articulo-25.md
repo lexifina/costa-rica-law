@@ -1,0 +1,1 @@
+Artículo 25.- Control de resguardo. La Dirección Ejecutiva definirá los controles necesarios para fiscalizar, dar seguimiento y evaluar la labor de las personas intérpretes, traductoras, peritos, ejecutores y curadoras procesales
