@@ -1,0 +1,17 @@
+N° 10389
+LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA
+DECRETA:
+ADICIÓN DE UN TRANSITORIO VI A LA LEY 7088, REAJUSTE
+TRIBUTARIO Y RESOLUCIÓN 18A CONSEJO ARANCELARIO Y
+ADUANERO CENTROAMERICANO, DE 30 DE NOVIEMBRE
+DE 1987, CONDONACIÓN DE LAS DEUDAS
+ACUMULADAS EN EL PAGO
+DEL MARCHAMO
+ARTÍCULO ÚNICO- Se adiciona un transitorio VI a la Ley 7088, Reajuste Tributario y Resolución 18ª Consejo Arancelario y Aduanero Centroamericano, de 30 de noviembre de 1987. El texto es el siguiente:
+Transitorio VI- Los sujetos pasivos de tributos, timbres, seguros y cánones administrados por el Ministerio de Hacienda, el Instituto de Fomento y Asesoría Municipal (IFAM), el Consejo de Seguridad Vial (Cosevi), el Consejo de Transporte Público (CTP) y el Instituto Nacional de Seguros (INS), correspondientes al impuesto sobre la propiedad de vehículos automotores, establecido en el artículo 9 de la Ley 7088, Reajuste Tributario y Resolución 18ª Consejo Arancelario y Aduanero Centroamericano, de 30 de noviembre de 1987, y sus demás rubros, que tengan pendiente el pago de períodos anteriores al año 2023, inclusive, tendrán condonación total del principal, ajustes, intereses, multas y sanciones, siempre que se cancele lo correspondiente al período 2024, antes del 1 . de enero de 2024. La condonación será efectiva con el solo pago del derecho de circulación correspondiente al año 2024.
+Para efectos de la desinscripción de vehículos automotores por desuso, la condonación se aplicará a todos los períodos adeudados.
+La condonación dispuesta en el presente transitorio no será aplicable a ningún vehículo de cualquier tipo o motocicleta, propiedad personal o de sus cónyuges o convivientes, así como aquellos registrados a nombre de personas jurídicas en las que tengan participación los miembros de los Supremos Poderes, el presidente de la República, los vicepresidentes, los ministros y viceministros, los diputados, los magistrados de la Corte Suprema de Justicia, los magistrados del Tribunal Supremo de Elecciones, el contralor y subcontralor de la República, el procurador y subprocurador general de la República, la defensora y defensora adjunta de los Habitantes, el superintendente general de Entidades Financieras (Sugef), el superintendente general de Valores (Sugeval), el superintendente general de Seguros (Sugese), el superintendente general de Pensiones (Supén), los jerarcas y miembros de las juntas directivas de los bancos del Estado y de las instituciones públicas, los alcaldes, vicealcaldes e intendentes.
+Esta condonación aplicará únicamente a vehículos automotores y motocicletas, excluyendo de la norma a embarcaciones y aeronaves.
+Durante la vigencia de la presente ley, el Ministerio de Hacienda, a través de su Oficina de Prensa, deberá realizar una campaña de comunicación masiva y de alcance nacional sobre los beneficios de la aplicación de esta condonación y los objetivos de la presente ley, como una política de fomento para que la mayor cantidad de marchamos pendientes se pongan al día y permita saldar deudas acumuladas sobre el pago del marchamo.
+Rige a partir de su publicación.
+Dado en la Presidencia de la República, San José, a los dos días del mes de octubre del año dos mil veintitrés.
