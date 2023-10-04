@@ -1,0 +1,1 @@
+Artículo 45.-Contrataciones Irregulares. Se reputará irregular el contrato, cuando en el trámite de contratación se incurra en vicios graves y evidentes, de fácil constatación, tales como, omisión del procedimiento correspondiente, se incurra ilegalmente en alguna de las excepciones o que se hubiere infringido el régimen de prohibiciones.

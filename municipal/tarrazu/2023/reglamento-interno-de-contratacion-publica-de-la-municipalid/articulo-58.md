@@ -1,0 +1,1 @@
+Artículo 58.-Manual. La Municipalidad dictará un Manual de Compras Sustentables, en el cual se deberán basar todas las unidades solicitantes y técnicas para la elaboración de los respectivos pliegos de condiciones.

@@ -1,0 +1,1 @@
+Artículo 48.-Recurso de Revocatoria. Tratándose del recurso de revocatoria contra el acto de adjudicación, la proveeduría será la encargada de conducir el trámite y emitirá una recomendación a la Alcaldía o Concejo según corresponda para que este emitida la resolución final.

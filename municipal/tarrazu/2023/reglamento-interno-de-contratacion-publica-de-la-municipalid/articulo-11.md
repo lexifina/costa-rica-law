@@ -1,0 +1,20 @@
+Artículo 11.-Funciones de Alcaldía. La Alcaldía como máxima dependencia administrativa tendrá a su cargo las siguientes funciones relacionadas con procesos de contratación:
+a) Aprobar las decisiones iniciales de todos procedimientos de contratación de bienes, servicios y obras que de conformidad con la Ley y el Reglamento le corresponde.
+b) Solicitar ante la Dirección de Contratación Pública la autorización respectiva para la exclusión total o parcial del uso del sistema digital unificado, en aquellas situaciones de caso fortuito o fuerza mayor en las que no sea posible el uso de esta plataforma, a efecto de evitar la nulidad absoluta.
+c) Procurar que todos los funcionarios de la institución que tengan relación directa o indirecta con los procesos de contratación de bienes, servicios y obras tengan acceso a la capacitación, acompañamiento y asesoría en materia de contratación pública.
+d) Resolver los recursos de apelación en contra del acto que emita la Proveeduría para la ejecución de garantías de cumplimiento.
+e) Solicitar el desarrollo de investigaciones preliminares o los procedimientos disciplinarios correspondiente a efectos de determinar la existencia de una eventual responsabilidad por parte de los funcionarios a cargo de una o varias etapas de los procedimientos de contratación.
+f) Revocar el Acto Final originalmente dictado bajo su competencia, por medio de una resolución debidamente motivada que haga referencia a las razones de oportunidad o legalidad.
+g) Aprobar el estudio técnico que se realice para demostrar que la opción seleccionada para la compra o arrendar es la más rentable y viable.
+h) Aprobar las modificaciones a los contratos que previamente adjudicó a solicitud del Administrador del Contrato, así como resolver motivadamente las gestiones de cambio en los bienes o servicios adjudicados.
+i) Aprobar las modificaciones excepcionales a los contratos que no sean de obra pública.
+j) Declarar de oficio o a petición de parte, mediante resolución motivada la caducidad de un procedimiento cuya adjudicación esté bajo su responsabilidad, para lo cual podrá solicitar los informes o estudios que se consideren necesarios.
+k) Solicitar y revisar los informes semanales de fiscalización o supervisión, en aquellas obras en las cuales se contrate personal para tal efecto, así como dar seguimiento a las medidas correctivas y preventivas que deberán adoptarse oportunamente para el cumplimiento de los objetivos propuestos.
+m) Emitir un acto motivado en el caso de donación de bienes patrimoniales entre instituciones públicas, y garantizar el adecuado registro y control según corresponda. Para lo cual se apoyará de los criterios técnicos, jurídicos, financieros y de conveniencia por parte de la Administrativa Financiera, la Gestión Jurídica y las Unidades Administrativas que considere necesario.
+n) Aprobar las donaciones de bienes muebles cuando la institución sea donante, mediante un acto motivado en el cual quede plasmado la satisfacción del interés público que se persigue con la donación.
+ñ) Aprobar las donaciones de bienes muebles cuando la institución sea la donataria o la que recibe la donación, mediante un acto motivado de aceptación en el cual quede plasmado interés institucional que se persigue con los bienes recibidos.
+o) Aprobar mediante acto debidamente motivado, las cesiones de los contratos de bienes, servicios y Obras que previamente adjudicó, ante la solicitud formulada por el cedente y la aceptación del cesionario.
+p) Autorizar las suspensiones del plazo del contrato en las licitaciones.
+q) Aprobar mediante acto motivado la supresión de un servicio subcontratado, cuando existan fundados motivos sobrevinientes de interés público, le corresponde al Concejo aquellos contratos que adjudicó previamente y a la alcaldía todos los demás.
+r) Emitir la resolución final del procedimiento sancionatorio contra sujetos particulares en aquellas contrataciones en las que la adopción del acto final es de su competencia.
+s) Resolver los recursos de apelación en contrato del acto que emita la Proveeduría para la aplicación de multas o cláusulas penales.
