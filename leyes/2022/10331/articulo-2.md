@@ -40,3 +40,6 @@ de formación y capacitación.
 (Así reformado por el artículo 1° de la ley N° 10371 del 28 de julio del 2023)
 (Modificado por el artículo 1° del decreto ejecutivo N° 44138 del 28 de julio del 2023)
 (Modificado por el artículo 1° del decreto ejecutivo N° 44190 del 21 de agosto de 2023)
+(Modificado por el artículo 1° del decreto ejecutivo N° 44223 del 27 de setiembre del 2023)
+(Modificado por el artículo 3° del decreto ejecutivo N° 44223 del 27 de setiembre del 2023)
+(Modificado por el artículo 4° del decreto ejecutivo N° 44223 del 27 de setiembre del 2023)

@@ -4,3 +4,4 @@ Artículo 5°: Apruébense los siguientes Egresos Ordinarios y Extraordinarios d
 (Modificado por el artículo 1° del decreto ejecutivo N° 43994 del 18 de abril del 2023)
 (Modificado por el artículo 1° del decreto ejecutivo N° 44071 del 26 de mayo de 2023)
 (Modificado por el artículo 1° del decreto ejecutivo N° 44085 del 21 de junio de 2023)
+(Modificado por el artículo 1° del decreto ejecutivo N° 44223 del 27 de setiembre del 2023)
