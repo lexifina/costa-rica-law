@@ -1,0 +1,2 @@
+Artículo 7°-Forma de pago. La Municipalidad realizará el cobro del servicio de manejo de residuos sólidos ordinarios en estricta relación a la cantidad y categoría de las unidades generadoras. Para ello la Municipalidad pondrá a disposición de todos los sujetos pasivos diversos sitios y medios que faciliten el pago de la tarifa puntual por el servicio de manejo de residuos sólidos ordinarios.
+El pago de la tarifa podrá realizarse directamente en la plataforma de servicios de la Municipalidad o a través de cualquier otro medio que la Municipalidad disponga.

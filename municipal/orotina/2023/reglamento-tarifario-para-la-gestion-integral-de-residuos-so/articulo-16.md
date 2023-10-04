@@ -1,0 +1,3 @@
+Artículo 16.-Suspensión de la actividad lucrativa y renuncia de patente comercial. Si el patentado suspende temporalmente o renuncia a la licencia comercial, la tarifa comercial se degrada a la comercial 1, mas no así la exclusión de servicio en apego al art. 83 Código Municipal.
+Para un mejor manejo, el propietario podrá solicitar la degradación de la tarifa de residuos sólidos formalmente (según requisitos del artículo 24 presente reglamento) posterior a la suspensión o inactivación temporal de la patente.
+En el caso de renuncia de patente sobre local comercial que va a ser utilizado como casa de habitación, el munícipe debe indicarlo para que en el proceso de inspección se verifique y sea posible el cambio de categoría de comercial a residencial.

@@ -1,0 +1,1 @@
+Artículo 18.-Inclusión de nuevas actividades comerciales. Aquellas actividades comerciales que no se encuentren en el "Cuadro 2: Clasificación de las Categorías comerciales en el servicio de residuos sólidos, según su actividad lucrativa", serán incluidas como tarifa comercial 1.

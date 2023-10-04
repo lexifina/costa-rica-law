@@ -1,0 +1,1 @@
+Artículo 20.-Cálculo de la tarifa o tasas en el servicio de gestión de residuos sólidos. Apegarse a la metodología planteada en el documento denominado: Manual para la definición de un modelo tarifario para la gestión municipal de residuos sólidos, del Programa Competitividad y Medio Ambiente (CYMA) año 2011.

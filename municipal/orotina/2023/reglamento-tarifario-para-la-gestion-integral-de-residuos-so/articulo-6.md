@@ -1,0 +1,1 @@
+Artículo 6°-Cobro. La Municipalidad realizará el cobro del servicio de manejo de residuos sólidos ordinarios que incluirá los costos para realizar una gestión integral a todos los sujetos pasivos poseedores de inmuebles generadores (infraestructura establecida) que se encuentren dentro del cantón.

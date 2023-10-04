@@ -1,0 +1,1 @@
+Artículo 30.-Prestación potencial del servicio Manejo de Residuos Sólidos Ordinarios. Se considera prestación potencial del servicio el que se da de forma efectiva en vía pública pero que no es requerido de forma directa por el generador quien no demuestra interés en él.
