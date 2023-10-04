@@ -1,0 +1,2 @@
+Artículo 6°-Obligación de actuar como agentes de retención.
+En acatamiento a lo establecido en el artículo 23 de la Ley del Impuesto sobre la Renta, los fideicomisos públicos o de obra pública deben actuar como agente de retención, debiendo cumplir con los deberes formales y materiales que la Ley les impone, cuando paguen o acrediten rentas afectas a alguno de los impuestos regulados en la ley de referencia.
