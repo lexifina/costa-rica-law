@@ -1,0 +1,1 @@
+TRANSITORIO V. La nueva metodología de cálculo establecida en la presente ley, la cual incluye la deducción de la depreciación, las nuevas tarifas y los nuevos tramos, será aplicable a todos los vehículos automotores y motocicletas, a partir del primero de noviembre de dos mil veintitrés.
