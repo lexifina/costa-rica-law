@@ -1,0 +1,3 @@
+Artículo 16.-Recepción y trámite de sugerencias y felicitaciones. Diariamente el Contralor o los funcionarios designados para tal efecto, revisan el buzón de sugerencias y la página web. Responden al usuario según los plazos determinados.
+Estos formularios deberán estar en lugares accesibles, para ello habilitará buzones en las oficinas centrales de la institución, oficinas cantonales e instalaciones del DLCG y se creará un acceso a través de un link habilitado en la página web.
+El Contralor de servicios debe verificar que las sugerencias emitidas por los usuarios sean canalizadas de forma eficiente y aquellas que tengan una adecuada relación costo-riesgo-beneficio, sean incluidas en planes de mejora según lo estipulado en el P-MEJ-01 Gestión de la mejora.

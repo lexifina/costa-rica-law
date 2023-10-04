@@ -1,0 +1,3 @@
+CAPÍTULO V
+Responsabilidades y obligaciones de la CS
+Artículo 8º-Responsabilidades de la CS: La CS promoverá en la organización la elaboración y la divulgación de políticas de calidad de los servicios que brindan. Asimismo la CS velará porque JUDESUR proceda a crear y aplicar los estándares de calidad que permita apreciar las mejoras de gestión y la medición de los niveles de calidad existentes en los servicios, con el fin de contribuir al mantenimiento, mejoramiento continuo e innovación. La CS velará porque JUDESUR desarrolle e implemente procesos de mejoramiento continuo que incremente de forma progresiva, permanente y constante la calidad de los servicios que brinda la Institución, tomando en consideración las necesidades y expectativas de las personas usuarias.

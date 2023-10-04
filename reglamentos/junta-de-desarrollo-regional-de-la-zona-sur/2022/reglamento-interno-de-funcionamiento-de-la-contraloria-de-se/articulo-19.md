@@ -1,0 +1,4 @@
+CAPÍTULO VII
+Coordinación con otras instancias
+Artículo 19.-Deber de las instancias administrativas de brindar información: Es obligación de los funcionarios, o representantes de la administración contestar a la mayor brevedad posible, cualquier gestión que formula la contraloría de servicios. Y nunca podrá excederse del plazo establecido conforme la Ley Nº 9158.
+La negativa o negligencia del funcionario, de informar a la contraloría de servicios ante su requerimiento, así como el incumplimiento injustificado del plazo de respuesta, serán causas generadoras de responsabilidad disciplinaria, de conformidad con la normativa pertinente. Cuando la contraloría de servicios considere que un funcionario se encuentra dentro de los supuestos mencionados, podrá enviar la documentación pertinente al órgano jerárquico correspondiente para que se realice el procedimiento disciplinario debido, de conformidad con las leyes y/o los reglamentos internos respectivos.

@@ -1,0 +1,5 @@
+Artículo 12.-Medios para la presentación de una gestión ante la CS: Los medios para presentar una gestión ante la CS son los siguientes:
+. Personalmente: Visitando las oficinas centrales, ubicadas en la segunda planta del Banco Nacional de Costa Rica, Barrio Parroquial, Golfito, depositando su boleta en el buzón de sugerencias ubicado en ese lugar. También se puede realizar en la Oficina de la Contraloría de Servicios en el Depósito Libre, Golfito.
+. Correo electrónico: Enviando la inconformidad, sugerencia u otra gestión a la siguiente dirección de correo: krosales@judesur.go.cr
+. Mediante la web institucional: En la página Web institucional www.judesur.go.cr; se habilitó un espacio donde los usuarios puedan accesar los diferentes formularios existentes para cada gestión, así cada usuario podrá llenar el formulario y por ese mismo medio remitirlo directamente a la Contraloría de Servicios de JUDESUR, donde se le tramitara de manera expedita la gestión realizada.
+. Vía telefónica: Realizar las consultas o inquietudes al teléfono de la Contraloría: 2775-2813.

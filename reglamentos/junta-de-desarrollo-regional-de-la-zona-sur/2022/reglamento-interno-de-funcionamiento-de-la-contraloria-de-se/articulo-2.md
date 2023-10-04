@@ -1,0 +1,1 @@
+Artículo 2º-La Junta Directiva de JUDESUR, con fundamento en las facultades conferidas en el artículo 16 de la Ley Nº 9356, y en razón de lo dispuesto en la Ley Reguladora del Sistema Nacional de Contralorías de Servicios, Ley Nº 9158 y su Reglamento, Decreto Nº 39096, aprueban el presente Reglamento Interno de funcionamiento de la Contraloría de Servicios.

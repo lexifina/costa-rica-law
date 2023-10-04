@@ -1,0 +1,1 @@
+Artículo 21.-Seguimiento de gestiones solicitadas a otras dependencias: La CS llevará los controles necesarios para dar seguimiento a las gestiones que los usuarios interpongan ante esta Contraloría, y velará porque las diferentes dependencias den respuesta oportuna a los requerimientos solicitados dentro de los plazos establecidos para estos efectos.
