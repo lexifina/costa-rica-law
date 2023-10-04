@@ -1,2 +1,2 @@
-Artículo 19 Seguro viajero
-Para todo viaje, la institución cancelará el respectivo Seguro de Viajero durante el tiempo que dure oficialmente la misión, con todas las coberturas del caso.
+Artículo 19.-Reconocimiento de tributos e impuestos. Adicionalmente se reconocen los tributos, impuestos o tarifas que se deben pagar en las terminales de transporte (aérea, marítima y terrestre). Estos gastos deberán ser debidamente justificados para que sean reconocidos.
+(Así reformado en sesión N° 109 del 4 de octubre de 2023)
