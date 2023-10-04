@@ -1,0 +1,1 @@
+Artículo 6º-Determinación de la Exención: Se autoriza la aplicación de la exención a partir del primer trimestre del año 2024 para todos los tributos descritos en el artículo 4 del presente reglamento, con excepción de lo establecido en el artículo 5.
