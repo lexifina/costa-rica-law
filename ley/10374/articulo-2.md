@@ -1,0 +1,2 @@
+ARTÍCULO 2- El lote donado será destinado exclusivamente a albergar las instalaciones físicas del centro de atención a la población adulta mayor de Cahuita. En caso de que la Asociación Pro Adulto Mayor de Cahuita no destine el inmueble objeto de la donación a la naturaleza y el uso autorizados en la presente ley, el bien donado volverá de pleno derecho a ser propiedad de la Municipalidad de Talamanca.
+Asimismo, la persona jurídica beneficiaria de la donación no podrá traspasar, enajenar ni arrendar el inmueble donado.
