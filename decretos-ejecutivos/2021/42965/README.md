@@ -14,3 +14,4 @@ Publica Resolución N° 436-2020 (COMIECO-XCIII) de fecha 10 de diciembre de 202
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-08-10 | la propia norma |
+| 2 | 2023-10-04 | Decreto Ejecutivo 44402 (2023-10-04) |
