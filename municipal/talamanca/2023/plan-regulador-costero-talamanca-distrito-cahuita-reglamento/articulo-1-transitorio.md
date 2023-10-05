@@ -1,0 +1,2 @@
+TRANSITORIOS
+Transitorio I. Todas las concesiones que hayan sido otorgadas por la Municipalidad de Talamanca con base en disposiciones reglamentarias anteriores, y se encuentren debidamente inscritas en el Registro Nacional de Concesiones, podrán perpetuar los derechos legales concedidos por el contrato de concesión hasta el vencimiento de éste. Una vez finalizado el contrato, deberán observarse, en forma completa, todas las disposiciones dictadas en el presente Reglamento.

@@ -1,0 +1,3 @@
+Artículo 19. Modificación al Reglamento y vigencia.
+Las modificaciones y variantes que se deseen introducir al presente Reglamento, serán sometidas al criterio técnico del Instituto Costarricense de Turismo y del Instituto Nacional de Vivienda y Urbanismo; la tramitación prevista en el artículo 17 de la Ley de Planificación Urbana N° 4240 del 15 de noviembre de 1968, a solicitud expresa del gobierno local, de conformidad con las disposiciones del dictamen C- 011-99 de la Contraloría General de la República
+Rige a partir de su publicación en el Diario Oficial y queda derogada toda disposición municipal anterior que se oponga a sus normas.
