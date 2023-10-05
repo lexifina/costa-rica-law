@@ -1,0 +1,1 @@
+Artículo 3º-Naturaleza. La ejecución del gasto mediante el fondo fijo caja chica es un procedimiento de excepción y, por consiguiente, limitado a la atención de gastos menores indispensables y urgentes, según el criterio justificado del jefe de la Unidad de Recursos Financieros o el jefe del Proceso de Tesorería del Consejo Técnico de Aviación Civil.

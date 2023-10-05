@@ -1,0 +1,1 @@
+Artículo 30.-Documentos de respaldo. Los documentos de respaldo de operaciones de caja chica, así como los arqueos sorpresivos y mensuales que se hayan practicado deberán mantenerse en el archivo digital en la nube del Proceso de Tesorería.
