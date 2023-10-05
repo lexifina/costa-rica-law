@@ -1,0 +1,1 @@
+Artículo 29.-Sobre la evaluación del desempeño. La evaluación de desempeño de los funcionarios de la Auditoría Interna, se realizará de conformidad con lo establecido en el Reglamento Autónomo De Organización y Servicios de la Municipalidad de Limón, publicado en el alcance N°53 del Diario Oficial La Gaceta N°56 del 27 de marzo del 2023.

@@ -1,0 +1,4 @@
+Artículo 37.-Comunicación de los servicios preventivos. La comunicación de los servicios preventivos se hará por escrito mediante oficios u otros medios de comunicación, conforme a la naturaleza de los asuntos a que se refiera y criterio profesional del auditor.
+La asesoría solo la brinda el titular de la Unidad de Auditoría Interna y puede brindarse en forma oral, pero de preferencia debe ser escrita sobre asuntos estrictamente de competencia de la Auditoría.
+La advertencia será de oficio, cuando los asuntos sean de conocimiento del auditor y debe hacerse por escrito.
+La asesoría y la advertencia pueden darse en conexión y sobre la marcha de un estudio de auditoría que se esté llevando a cabo, y que ambas no son vinculantes para el que las recibe, cuyas decisiones quedan bajo su entera responsabilidad.

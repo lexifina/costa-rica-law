@@ -1,0 +1,4 @@
+CAPÍTULO V
+Regulaciones aplicables al Auditor Interno y demás funcionarios de la Unidad de Auditoría Interna.
+Artículo 18.-Regulaciones de tipo Administrativo. Las regulaciones administrativas aplicables al Auditor Interno, Subauditor Interno y demás funcionarios de Auditoría Interna, serán normadas en otro instrumento de decisión y aprobación por parte del Concejo Municipal, en coordinación con la persona titular de la Auditoría Interna, de conformidad con los "Lineamientos sobre Gestiones que Involucran a la Auditoría Interna presentadas ante la Contraloría General de la República, Resolución R-DC-83-2018".
+El Auditor Interno y demás personal de la Auditoría Interna, deberán velar porque las regulaciones de tipo administrativo existentes o en proceso de formulación, que les sean aplicables, no limiten o restrinjan de manera indebida el ejercicio de las atribuciones de la Auditoria Interna, así como su independencia y objetividad conforme al ordenamiento jurídico.

@@ -1,0 +1,2 @@
+Artículo 51.-De las sanciones. El incumplimiento a lo regulado en este Reglamento será causal de responsabilidad administrativa para el Auditor Interno, para los funcionarios de la Auditoría Interna y el resto de los funcionarios de la administración activa según lo normado en la Ley N° 8292.
+La determinación de las responsabilidades y aplicación de las sanciones administrativas corresponderá al órgano competente, conforme a las disposiciones emitidas por la Municipalidad y la Contraloría General de la República según corresponda.

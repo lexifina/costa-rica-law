@@ -1,0 +1,1 @@
+Artículo 11.-Estructura Organizativa. La estructura organizativa con que cuenta la Auditoría Interna está conformada por: un auditor interno y cuatro funcionarios Asistentes. Dicha estructura puede ser modificada, de conformidad con los estudios técnicos de recursos y conforme a la normativa emitida por la Contraloría General de la República, que justifiquen y aprueben la misma.

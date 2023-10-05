@@ -1,0 +1,1 @@
+Artículo 53.-Derogatorias. Deróguese el Reglamento de Organización y Funcionamiento de la Auditoria Interna de la Municipalidad de Limón, publicado en la Gaceta No. 149 de 04 de agosto de 2008, y cualquier otra normativa interna aprobada con anterioridad que se oponga al presente Reglamento.
