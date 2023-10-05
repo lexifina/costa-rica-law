@@ -1,0 +1,1 @@
+Artículo 4. Para los atrasos y falta de pago del canon por concesión en la Zona Marítimo Terrestre, se aplicarán las tasas para este efecto según lo establece la reglamentación Municipal. En este sentido se cobrarán los intereses correspondientes, sin perjuicio de aplicar la sanción prevista en el inciso a) del artículo 53 de la Ley sobre la Zona Marítimo Terrestre.

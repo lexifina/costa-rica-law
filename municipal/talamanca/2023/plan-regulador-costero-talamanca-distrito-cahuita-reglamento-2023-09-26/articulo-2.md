@@ -1,0 +1,1 @@
+Artículo 2. Este reglamento formará parte integral del Plan Regulador Costero de Talamanca-Distrito Cahuita, tal y como lo establece el artículo 46 del Reglamento a la Ley de la Zona Marítimo Terrestre.

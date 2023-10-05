@@ -1,0 +1,1 @@
+Artículo 8. El canon podrá ajustarse cada vez que se ajusten los valores de las zonas homogéneas en la zona planificada, garantizando el atractivo para la inversión privada y a la vez protegiendo el equilibrio y la fortaleza de las finanzas municipales.

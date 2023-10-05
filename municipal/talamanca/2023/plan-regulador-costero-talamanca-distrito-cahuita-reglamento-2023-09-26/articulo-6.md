@@ -1,0 +1,1 @@
+Artículo 6. Únicamente en el caso de personas de escasos recursos que residan permanentemente en la zona y sólo cuando se trate de concesiones destinadas exclusivamente a vivienda para residentes locales, la Municipalidad podrá calcular el canon con base en el 0.25% del valor del avalúo de conformidad con el artículo 52 del Reglamento a la Ley sobre la Zona Marítimo terrestre.
