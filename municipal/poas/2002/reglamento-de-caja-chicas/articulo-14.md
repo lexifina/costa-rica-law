@@ -1,3 +1,0 @@
-CAPÍTULO V
-De los respaldos e información
-Artículo 14.-Corresponde al Concejo Municipal, mediante el correspondiente acuerdo que emane de su seno variar el monto establecido a este fondo, según solicitud escrita y justificada que mediante un estudio de las necesidades institucionales y una estimación de los gastos menores a sufragar por medio de ese fondo. Concluido este estudio trasladará la información al superior jerárquico, para que éste proceda al trámite correspondiente de solicitud, dicha gestión la hará la Dirección Administrativa y Financiera o en su defecto el Alcalde Municipal, con el fin de satisfacer las necesidades institucionales de los bienes y servicios que deben adquirirse por este medio.

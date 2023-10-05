@@ -1,3 +1,0 @@
-CAPÍTULO II
-Del fondo de caja chica y condiciones de entrega de dinero
-Artículo 2°-Se establece de acuerdo con el artículo 1º de la Ley de Administración Financiera de la República y Presupuestos Públicos un fondo fijo de Caja Chica para el servicio de esta Municipalidad, por el monto equivalente a tres salarios base del cargo "Auxiliar Administrativo 1", de la Corte Suprema de Justicia. Dicho monto contempla la sumatoria de tres cajas auxiliares del fondo, entendiéndose que cada una de las cajas auxiliares tendrá un monto equivalente a un salario base del cargo "Auxiliar Administrativo 1", de la Corte Suprema de Justicia.

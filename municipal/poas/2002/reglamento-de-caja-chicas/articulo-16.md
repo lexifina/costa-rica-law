@@ -1,1 +1,0 @@
-Articulo 16.-El encargado responsable del fondo enviara al Concejo Municipal cuando se le solicite, un informe detallado de todos los pagos realizados con el fondo, incluyendo como mínimo: fecha, monto, departamento o responsable y bien o servicio adquirido.
