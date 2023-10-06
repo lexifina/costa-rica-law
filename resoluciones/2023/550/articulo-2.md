@@ -1,0 +1,1 @@
+Artículo 2- VIGENCIA: El permiso de ingreso y tránsito extraordinario autorizado en la presente resolución será otorgado por una única vez y tendrá validez por un plazo de 25 días naturales a efectos de las personas beneficiadas puedan hacer abandono del territorio nacional.
