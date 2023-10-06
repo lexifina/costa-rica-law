@@ -1,0 +1,1 @@
+Artículo 98°. En caso de acogerse el recurso de apelación, la Administración cuenta con un plazo de 15 días hábiles para readjudicar. En casos excepcionales este plazo podrá prorrogarse hasta por 15 días hábiles adicionales.

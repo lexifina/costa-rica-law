@@ -1,0 +1,3 @@
+Artículo 35°. Decisión inicial.
+La decisión administrativa que da inicio al procedimiento de contratación pública será suscrita por el jefe de la División, Dirección o Dependencia solicitante, según lo establece el artículo 37 de la Ley General de Contratación Pública y artículo 86 de su Reglamento.
+Esta deberá ser revisada y remitida por el CCP a la Dirección Proveeduría para que verifique que la misma cumple con lo establecido en los artículos citados. En los casos donde el objeto contractual sea de obra y deba tramitarse mediante licitación mayor, la decisión inicial deber ser suscrita conjuntamente por el jefe de División o Dirección y el Gerente respectivo.

@@ -1,0 +1,1 @@
+Artículo 63°. Para la fijación del precio base, se deberá recurrir al banco de precios o bien realizar un sondeo de mercado, con no más de seis meses de realizado, debiendo dejar constancia de los detalles del bien o servicio consultado y los resultados obtenidos.

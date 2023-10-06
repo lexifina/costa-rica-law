@@ -1,0 +1,2 @@
+Director de Proyecto y otras formas de coordinación definidas en el API.
+Artículo 15°. Persona nombrada por el Órgano de Dirección o Alta Gerencia, Auditoría Interna, jefaturas de División y Dirección, para liderar al equipo responsable de alcanzar los objetivos de un programa, componente o épica y que impacten en la planificación estratégica de los negocios de las diversas dependencias del ICE, según se dispone en el modelo para la Administración Proyectos Integral (API).

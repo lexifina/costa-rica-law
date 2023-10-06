@@ -1,0 +1,2 @@
+Artículo 64°. El funcionario de la Dirección Proveeduría será el encargado de instruir la subasta en el Sistema Digital Unificado, tendrá la competencia para adjudicar sin límite de monto. La subasta se tendrá por perfeccionada en el momento en que se cuente con el monto por concepto de garantía de cumplimiento.
+La subasta se regirá por lo establecido en el artículo 65 de la Ley General de Contratación Pública, así como los artículos del 160 al 165 de su Reglamento.

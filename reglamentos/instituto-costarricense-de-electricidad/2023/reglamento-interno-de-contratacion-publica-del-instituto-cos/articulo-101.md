@@ -1,0 +1,1 @@
+Artículo 101°. Vencida la audiencia concedida y/o recibidos los argumentos de las partes, la Dirección Proveeduría los enviará al Área Técnica y a la Dirección Contratación Administrativa del ICE, para que ambos se pronuncien en un plazo de tres días hábiles. En caso de licitaciones reducidas, el plazo para emitir ambos criterios será de un día hábil.

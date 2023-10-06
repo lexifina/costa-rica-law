@@ -1,0 +1,8 @@
+Artículo 113°. Contratación irregular.
+Cuando se presente un contrato irregular se procederá de la siguiente forma:
+a) Cuando se detecte que se está frente a una contratación irregular la dependencia a cargo de la contratación, deberá remitir a la Dirección Proveeduría el informe técnico que describa los hechos acaecidos.
+b) La Dirección Proveeduría traslada los hechos al contratista involucrado en la situación irregular presentada para su debido descargo y pruebas.
+c) Una vez recibidos los descargos del contratista, la Dirección Proveeduría solicitará a la Dirección Contratación Administrativa y a la Dependencia Técnica el criterio legal y técnico correspondiente.
+d) La Dirección Proveeduría, una vez analizada la situación, emitirá el acto final en el cual ordenará a la dependencia técnica determinar si procede iniciar un procedimiento administrativo sancionatorio y/o resarcitorio en contra del contratista, el cual se deberá regir por las reglas previstas en el artículo 121 de la Ley General de Contratación Pública.
+e) Una vez emitido el acto, la dependencia emitirá el pago respectivo y se enviará a la Dirección Tesorería. El pago incluirá el valor del contrato a la fecha, a título de indemnización sin reconocer el lucro previsto. Cuando no se pueda precisar la utilidad se rebajará el 10%, del monto cotizado en la oferta.
+La Dirección Proveeduría remitirá una copia del acto final a la Gerencia respectiva, y a la Auditoria Interna. Lo anterior con el fin de que tome las medidas disciplinarias respectivas según corresponda y para que ordene la investigación para determinar si procede iniciar un procedimiento administrativo sancionatorio y/o resarcitorio en contra del contratista.

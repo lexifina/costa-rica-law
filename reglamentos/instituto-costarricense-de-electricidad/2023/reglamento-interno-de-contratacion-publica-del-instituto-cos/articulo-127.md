@@ -1,0 +1,1 @@
+Artículo 127°. Una vez firme la rescisión unilateral o por mutuo acuerdo, y de existir una liquidación económica a reconocer al contratista, la dependencia técnica (AC) en conjunto con el CCP en lo que corresponda, procederá a emitir el pago correspondiente, consignando el detalle de la liquidación en el expediente administrativo de la contratación.

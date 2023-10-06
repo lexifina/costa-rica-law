@@ -1,0 +1,10 @@
+Artículo 32°. Prevalencia de la economía de escala.
+De previo a la elaboración del Programa de Adquisiciones definitivo, la Dirección Proveeduría promoverá procedimientos de compra que aseguren los mejores precios y las mejores condiciones de eficiencia, eficacia y economía, consolidando los requerimientos institucionales de bienes y servicios comunes, con el fin de obtener los mejores precios al adquirir una mayor cantidad de bienes o servicios.
+Para ello deben promoverse contrataciones centralizadas institucionales o sectoriales bajo la modalidad de entrega según demanda o convenio marco, con el fin de obtener ahorros en razón de la demanda agregada; siempre que los bienes o servicios requeridos sean de uso de común y continuo.
+Los procedimientos de contratación deberán procurar los mejores precios con base en las siguientes reglas:
+a) Se debe consolidar la adquisición de bienes o servicios de uso común, en los cuales sea posible obtener mejores precios en razón de la mayor cantidad adquirida.
+b) La definición de las características de los bienes o servicios deberán ser estandarizadas, teniendo como objetivo asegurar la calidad del objeto contractual adquirido.
+En la definición de las especificaciones no se podrán incorporar barreras de ingreso injustificadas que impidan la más amplia participación de los actores del mercado.
+c) La adquisición podrá ser en un solo lote o por entregas periódicas. En este último caso, el precio unitario se aplicará a todo el lote o período contratado, independientemente de cuando se adquiera.
+d) Cuando existan descuentos en el precio ofertado, estos deberán ser consignados desde la oferta y aplicados a todo el lote contratado.
+e) La adjudicación se definirá a favor de quien cotice el mejor bien, obra, o servicio, en tanto cumpla con las condiciones de calidad obligatorias y ofrezca el menor precio, con apego al principio del valor por el dinero, conforme a lo previsto por el artículo 40 de la Ley General de Contratación Pública.

@@ -1,0 +1,2 @@
+Artículo 27°. Estrategias y políticas para fomentar la participación de las PYMES.
+En los procedimientos de contratación pública se fomentará la participación de las PYMES de acuerdo con las estrategias y políticas emitidas por la Autoridad de Contratación Pública y el Ministerio de Economía, Industria y Comercio mediante la elaboración de los pliegos de condiciones y en las tablas de calificación de ofertas (factores de evaluación), conforme lo dispuesto en el artículo 23 de la Ley General de Contratación Pública.

@@ -1,0 +1,4 @@
+Sección IV
+Recursos en Procedimientos Administrativos
+Artículo 128°. Los recursos establecidos en la Ley General de Contratación Pública, en los procedimientos de sanción a particulares de inhabilitación, resolución contractual, rescisión unilateral del contrato, contrato irregular, reclamos y cobros administrativos, multas y cláusulas penales, entre otros serán instruidos por la Dirección de Proveeduría, en coordinación con el AC y CCP que corresponda, siendo el Director de Proveeduría el que resuelva en definitiva el recurso, una vez obtenidos los criterios del área técnica y de la Dirección Contratación Administrativa, cuando corresponda.
+Los recursos de apelación serán resueltos por el Gerente de Servicios y Recursos Empresariales como superior del Director de Proveeduría.

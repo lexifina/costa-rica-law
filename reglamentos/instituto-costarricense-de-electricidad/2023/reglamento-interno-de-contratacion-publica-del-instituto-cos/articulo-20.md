@@ -1,0 +1,6 @@
+Artículo 20°. Procedimiento.
+La Dirección Proveeduría procederá a realizar la invitación en el Sistema Digital Unificado en la que consignará la disposición del pliego de condiciones. Una vez realizada la apertura, remitirá la oferta a la dependencia técnica promotora del procedimiento y a la Dirección Contratación Administrativa (cuando corresponda), para que emitan el estudio respectivo.
+El CCP deberá remitir a la Dirección Proveeduría la recomendación de adjudicación, conforme los formatos establecidos por esta Dirección. Dicha recomendación deberá incluir la certificación de contenido presupuestario emitida por quien tenga competencia para ello y el análisis de razonabilidad del precio de acuerdo con el artículo 37 del presente Reglamento.
+La Dirección Proveeduría revisará que dicha recomendación esté de conformidad con la normativa vigente y procederá a elevarla al órgano competente de acuerdo con el monto, según lo definido por la Gerencia General en la Directriz de montos para adjudicar y resolver trámites de contratación pública, para su adjudicación.
+Una vez dictado el acto de adjudicación, la Dirección Proveeduría procederá con el trámite correspondiente.
+Todo lo anterior de acuerdo con los plazos establecidos en la tabla de plazos vigente emitida por la Dirección Proveeduría.

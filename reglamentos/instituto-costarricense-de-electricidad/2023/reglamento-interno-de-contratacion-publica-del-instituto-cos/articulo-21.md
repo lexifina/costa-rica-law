@@ -1,0 +1,3 @@
+Aplicación de Instrumentos Internacionales en Compras Públicas
+Artículo 21°. Utilización de Instrumentos Internacionales.
+Conforme al momento de la decisión inicial, la Administración deberá verificar si la contratación se encuentra o no cubierta por el capítulo de compras públicas de un instrumento comercial internacional vigente en Costa Rica, para lo cual deberá considerar el ámbito de cobertura y aplicar, en su caso, plazos mínimos de recepción de ofertas, reglas sobre objeto contractual, avisos y cualquier otro aspecto específico de la materia. Todo conforme a lo establecido en el artículo 9 de la Ley de Contratación Pública y artículo 16 de su reglamento.
