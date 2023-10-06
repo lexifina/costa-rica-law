@@ -1,1 +1,0 @@
-Artículo 2°-Al entrar en vigencia la presente resolución, se deja sin efecto la actualización efectuada mediante la resolución número RES-DGH-0017-2023, del 12 de abril de 2023, publicada en el Alcance N° 67 a La Gaceta N° 68 del 20 de abril de 2023.
