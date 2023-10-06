@@ -1,0 +1,1 @@
+Artículo 26.-Deben poseer roles específicos y diferentes, que se complementan entre sí, dentro del flujo integral del ciclo normal de operaciones de la recuperación de las cuentas por cobrar del Instituto Costarricense de Electricidad.

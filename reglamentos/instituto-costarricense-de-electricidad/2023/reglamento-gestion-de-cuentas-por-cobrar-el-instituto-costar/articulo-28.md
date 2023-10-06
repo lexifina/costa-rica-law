@@ -1,0 +1,1 @@
+Artículo 28.-Deben definir anualmente los indicadores de eficiencia obtenidos de la gestión de las carteras de cobro administrativo y judicial, considerando datos de comportamiento, entorno de la industria; todos orientados a la consecución de objetivos organizacionales.
