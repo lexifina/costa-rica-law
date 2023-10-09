@@ -40,7 +40,6 @@ c) Transitorio 111. Del 1 de julio de 2023 al 30 de junio de 2024, los laborator
 7. Los plazos transitorios establecidos en el numeral 2, literales del a) al c) de la presente Resolución, no aplican para El Salvador y Panamá, países en los cuales se deberá cumplir del 95% al 100% de los criterios críticos, así como el 80% de los criterios calificables, de conformidad con los criterios para la emisión del Certificado de Buenas Prácticas de Manufactura (BPM), establecidos en la Guía de Verificación, a partir de la vigencia de esta Resolución.
 8. La autoridad reguladora de cada Estado Parte emitirá el certificado de Buenas Prácticas de Manufactura con vigencia de dos (2) años a los laboratorios que cumplan con el criterio para la emisión del Certificado de Buenas Prácticas de Manufactura (BPM), establecido en la Guía de Verificación.
 9. La presente Resolución entrará en vigor el l de julio de 2021 y será publicada por los Estados Parte.
-[imagen]
 El infrascrito Secretario General de la Secretaría de Integración Económica Centroamericana (SIECA) CERTIFICA: Que las tres (3) fotocopias que anteceden a la presente hoja de papel bond, impresas únicamente en su anverso, así como las del anexo adjunto, impresas únicamente en su anverso, todas rubricadas y selladas con el sello de la SIECA, reproducen fielmente la Resolución No. 423-2020 (COMIECO-XC), adoptada por el Consejo de Ministros de Integración Económica, el treinta de abril de dos mil veinte, por medio del sistema de videoconferencia, de cuyos originales se reprodujeron. Y para remitir a los Estados Parte para su correspondiente publicación, extiendo la presente copia certificada en la ciudad de Guatemala, el uno de julio de dos mil veinte.------------------------
 Melvin Redondo
 Secretario General
@@ -944,11 +943,12 @@ En el contrato se debe establecer claramente la persona responsable de autorizar
 El contrato a terceros debe contemplar los siguientes aspectos:
 a) ser redactado por personas competentes y autorizadas
 b) aceptación de los términos del contrato por las partes
-c) aceptación del cumplimiento del Reglamento Técnico Centroamericano en Buenas Prácticas de Manufactura de productos naturales medicinales para uso humano d) abarcar la producción y el análisis o cualquier otra gestión técnica relacionada con estos
+c) aceptación del cumplimiento del Reglamento Técnico Centroamericano en Buenas Prácticas de Manufactura de productos naturales medicinales para uso humano
+d) abarcar la producción y el análisis o cualquier otra gestión técnica relacionada con estos
 e) describir el manejo de materias primas, material de acondicionamiento, graneles y producto terminado, en caso de que sean rechazados
-f) permitir el ingreso del contratante a las instalaciones del contratista (contratado), para auditorias
-g) permitir el ingreso del contratista (contratado) a las instalaciones del contratante
-h) listar cada uno de los productos o servicios de análisis objeto del contrato
+f) permitir el ingreso del contratante a las instalaciones del contratista (contratado), para auditorías
+g) listar cada uno de los productos o servicios de análisis objeto del contrato
+(Así reformado el punto 15.1.5) anterior por el 2° del decreto ejecutivo N° 44419 del 9 de octubre del 2023)
 15.1.6 De la inspección a las instalaciones del contratista
 En caso de análisis o producción por contrato, el contratista (contratado) debe aceptar que puede ser inspeccionado por la autoridad reguladora.
 15.2 Del contratante

@@ -14,3 +14,4 @@ Publica resolución N° 423-2020 (COMIECO-XC) fecha de 30/04/2020 y sus Anexos: 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-07-01 | la propia norma |
+| 2 | 2023-10-09 | Decreto Ejecutivo 44419 (2023-10-09) |
