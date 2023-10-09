@@ -1,9 +1,0 @@
-Artículo 21.—Dirección superior de la Auditoría Interna. Al Auditor Interno le corresponderá la dirección superior y administración de la Auditoría Interna, debiendo realizar las siguientes tareas:
-a) Ejercer al máximo nivel de competencia, responsabilidad y autoridad de la Auditoría Interna. Es el líder y rector del proceso de planificación estratégica de la Auditoría Interna y en ese contexto le corresponde definir sus objetivos, sus valores fundamentales y su proyección.
-b) Definir, establecer y mantener debidamente actualizadas las políticas, procedimientos y prácticas requeridas por la Auditoría Interna para cumplir con sus competencias, considerando en cada caso lo relativo a los procesos de la unidad.
-c) Definir, establecer y mantener actualizadas las políticas, procedimientos y prácticas de administración, acceso y custodia de la documentación de la Auditoría Interna, en especial de la información relativa a los asuntos de carácter confidencial que estipulan los artículos 6º de la Ley General de Control Interno y el 8º de la Ley Contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública y su Reglamento.
-d) Proponer a la Junta Administrativa la creación de las plazas que considere indispensables para la debida prestación de sus servicios preventivos y de auditoría y demás recursos que estime necesarios.
-e) Administrar en forma efectiva los recursos financieros, materiales, humanos y tecnológicos en función de los objetivos institucionales.
-f) Adquirir y aplicar los conocimientos, técnicas, valores, creencias y actitudes que fortalezcan la efectividad de la actividad de auditoría interna.
-g) Mantener actualizado el Reglamento de Organización y Funcionamiento de la Auditoría Interna, así como cumplir y hacer cumplir el mismo.
-h) Presentar al final de su gestión un informe, de acuerdo con las directrices emitidas por la Contraloría General.

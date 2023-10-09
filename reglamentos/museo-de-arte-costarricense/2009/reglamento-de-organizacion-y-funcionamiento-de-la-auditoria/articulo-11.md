@@ -1,3 +1,0 @@
-Artículo 11.—Impedimentos. Los funcionarios de la Auditoría Interna que realizan el proceso de auditoría, deben informar a la instancia competente cualquier impedimento que afecte su independencia y objetividad, para que se tomen las medidas correspondientes. Los funcionarios de la Auditoría Interna deberán abstenerse de tratar asuntos relacionados con dichos impedimentos:
-1. Ningún funcionario de la Auditoría Interna podrá evaluar operaciones específicas de las cuales hayan sido responsables en el último año.
-2. Ningún funcionario de la Auditoría Interna podrá ejecutar sus competencias de asesoría y advertencia, en relación con operaciones de las que hayan sido responsables en el último año.

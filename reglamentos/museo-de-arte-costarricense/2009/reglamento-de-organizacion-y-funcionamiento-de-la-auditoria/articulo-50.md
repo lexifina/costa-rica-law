@@ -1,7 +1,0 @@
-De las denuncias
-Artículo 50.—Admisibilidad de denuncias. La Auditoría Interna recibirá aquellas denuncias que le sean dirigidas por parte de personas físicas o jurídicas, públicas o privadas y funcionarios (as) de la Institución, de acuerdo con los siguientes requisitos:
-a) Los hechos denunciados deberán ser expuestos en forma clara, precisa y circunstanciada, brindando el detalle suficiente que permita realizar la investigación: el momento y lugar en que ocurrieron los hechos y el sujeto que presuntamente los realizó, o bien que el denunciante esté en disposición de ampliar la información en una segunda oportunidad.
-b) El denunciante deberá señalar la posible situación irregular que afecta a la Hacienda Pública por ser investigada.
-c) El denunciante deberá indicar cuál es su pretensión en relación con el hecho denunciado.
-d) Es preciso que el denunciante brinde información complementaria respecto a la estimación del perjuicio económico producido a los fondos públicos en caso de conocerlo, la indicación de probables testigos y el lugar o medio para citarlos, así como la aportación o sugerencia de otras pruebas.
-Aquellas denuncias de carácter general y carente de información adecuada y concreta, insuficiente o sin importancia para fundamentar la posible comisión de un hecho anómalo, se archivarán de oficio.

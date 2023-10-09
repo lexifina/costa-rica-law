@@ -1,1 +1,0 @@
-Artículo 24.—Informe de labores. Corresponde al Auditor Interno presentar a la Junta Administrativa el informe anual de labores, previsto en el inciso g) del artículo 22 de la Ley General de Control Interno.

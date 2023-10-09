@@ -1,1 +1,0 @@
-Artículo 26.—Programa de Aseguramiento de Calidad. El Auditor Interno establecerá un programa de aseguramiento de calidad para la Auditoría Interna, conforme lo establece el Manual de Normas para el Ejercicio de la Auditoría Interna en el Sector Publico emitido por la Contraloría General.

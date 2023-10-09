@@ -1,1 +1,0 @@
-Artículo 53.—Implantación de las recomendaciones. La atención oportuna de las recomendaciones de los informes de la auditoría será responsabilidad del destinatario de las mismas, quién deberá considerar lo que al respecto se establece en el artículo 39 de la Ley General de Control Interno.

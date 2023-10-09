@@ -1,1 +1,0 @@
-Artículo 33.—Registro Presupuestario. El Área Financiera mantendrá un registro del presupuesto anual asignado a la Auditoría Interna, detallado por objeto del gasto, para el control de su ejecución y el suministro periódico de información al Auditor Interno.

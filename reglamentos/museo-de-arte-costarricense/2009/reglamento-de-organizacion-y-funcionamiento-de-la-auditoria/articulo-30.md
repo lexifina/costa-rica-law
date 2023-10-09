@@ -1,3 +1,0 @@
-Relaciones y coordinaciones
-Artículo 30.—Relaciones y coordinación. El Auditor Interno mantendrá una constante relación de coordinación con la Junta Administrativa, con los titulares subordinados y otras instancias internas y externas, fundamentalmente con la Contraloría General de la República, Instituciones de Control y Fiscalización, Comisiones Legislativas, Ministerio Público, Procuraduría General, denunciantes y otras pertinentes.
-Corresponderá al Auditor Interno administrar esas relaciones con los órganos internos y externos del ámbito de su competencia institucional, a fin de que se realicen de conformidad con el ordenamiento jurídico y técnico aplicable.

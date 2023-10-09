@@ -1,1 +1,0 @@
-Artículo 32.—Presupuesto. Le corresponderá al Auditor Interno proponer el anteproyecto de presupuesto de la Auditoría Interna para el ejercicio presupuestal respectivo, para la aprobación de la Junta Administrativa, quienes valorarán las posibilidades de atender tales requerimientos de conformidad con las regulaciones jurídicas y técnicas aplicables.

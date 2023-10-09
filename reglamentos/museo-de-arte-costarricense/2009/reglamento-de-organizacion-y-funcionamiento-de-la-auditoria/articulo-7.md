@@ -1,1 +1,0 @@
-Artículo 7º—Marco orientador de la Auditoría Interna. Para la adecuada operación de la Auditoría Interna del MAC se establecerá y mantendrá actualizada su visión, misión y principales políticas, que deben cumplir los funcionarios de la Auditoría.

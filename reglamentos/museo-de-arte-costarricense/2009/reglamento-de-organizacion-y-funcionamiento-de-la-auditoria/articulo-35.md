@@ -1,1 +1,0 @@
-Artículo 35.—Apoyo técnico. La Auditoría Interna podrá solicitar, cuando lo estime necesario, la asesoría o la incorporación de profesionales y técnicos en las diferentes disciplinas, funcionarios o no del MAC, para que realicen labores de su especialidad en apoyo a las auditorías que realice la Auditoría Interna.

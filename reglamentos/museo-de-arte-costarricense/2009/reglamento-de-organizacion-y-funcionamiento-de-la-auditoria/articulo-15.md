@@ -1,1 +1,0 @@
-Artículo 15.—Jornada laboral. La jornada laboral del Auditor Interno es de medio tiempo y el plazo de nombramiento del Auditor es por tiempo indefinido, de conformidad con los artículos 30 y 31 de la Ley General de Control Interno.

@@ -1,2 +1,0 @@
-Independencia y objetividad
-Artículo 9º—Independencia funcional y de criterio. La actividad de auditoría interna debe ser ejecutada con total independencia funcional y de criterio, libre de injerencias al determinar el alcance de cada estudio, al desempeñar su trabajo y al comunicar sus resultados. Ejercerá sus funciones con independencia funcional y de criterio con respecto a la Junta Administrativa y demás órganos de la administración activa.
