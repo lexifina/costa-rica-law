@@ -1,1 +1,2 @@
-Artículo 63. Toda bóveda y fosa en tierra estará identificada tanto en el diseño de sitio de cementerio como físicamente por un número consecutivo el cual será colocado por la administración del cementerio mediante una placa en un lugar visible, quedando prohibido para la persona titular del derecho funerario alterar, remover y cubrir esta numeración.
+Artículo 63.-Todo derecho funerario estará identificado tanto en el diseño de sitio de cementerio como físicamente por un número consecutivo el cual será colocado por la administración del cementerio mediante una placa en un lugar visible, quedando prohibido para la persona titular del derecho funerario alterar, remover y cubrir esta numeración.
+(Así reformado mediante sesión N° 180 del 9 de octubre del 2023)
