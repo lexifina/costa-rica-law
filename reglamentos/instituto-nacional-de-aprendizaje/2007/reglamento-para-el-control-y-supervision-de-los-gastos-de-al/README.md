@@ -15,3 +15,4 @@ Reglamento para el Control y Supervisión de los Gastos de Alimentación de la J
 | --- | --- | --- |
 | 1 | 2007-09-24 | la propia norma |
 | 2 | 2020-02-10 | Reglamento 4 (2020-02-10) |
+| 3 | 2023-10-09 | Reglamento 39 (2023-10-09) |

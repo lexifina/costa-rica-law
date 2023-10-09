@@ -1,1 +1,1 @@
-Artículo 9º—Vigencia: El presente reglamento rige a partir de su aprobación por la Junta Directiva.
+Artículo 9°-Vigencia. El presente Reglamento rige a partir de su aprobación por la Junta Directiva.
