@@ -15,3 +15,4 @@ Publica Resolución Nº 231-2008 (COMIECO-L): Aprobación de Reglamentos Técnic
 | --- | --- | --- |
 | 1 | 2008-12-26 | la propia norma |
 | 2 | 2022-11-07 | Decreto Ejecutivo 43871 (2022-11-07) |
+| 3 | 2023-10-09 | Decreto Ejecutivo 44436 (2023-10-09) |
