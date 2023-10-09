@@ -1,0 +1,1 @@
+Artículo 2º-De conformidad con lo que establece el artículo 14 del Código Municipal, para cada una de las ochenta y cuatro municipalidades del país se elegirán una alcaldía, una vicealcaldía primera y una vicealcaldía segunda.
