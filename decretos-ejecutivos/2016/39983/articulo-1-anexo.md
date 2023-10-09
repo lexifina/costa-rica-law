@@ -81,11 +81,13 @@ c.1.14) Descongestionante + Antitusivo + Expectorante + Analgésico.
 c.1.15) Descongestionante + Antitusivo + Analgésico.
 c.1.16) Descongestionante + Expectorante.
 c.1.17) Descongestionante + Expectorante + Analgésico.
-c.1.18) Analgésico + antitisivo,
+c.1.18) Analgésico + antitusivo; analgésico + descongestionante
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 44268 del 9 de octubre de 2023)
 c.1.19) Descongestionante + Antihistamínico + Analgésico.
 Se puede añadir cafeína y/o vitamina C hasta 100 mg por tableta o por 0.5 mL de solución o gotas. En estas combinaciones se aceptarán los siguientes:
 c.1.20) Analgésicos:
-c.1.20.1) Acetaminofén hasta 750 mg por tableta o cápsula o 100 mg/mL en gotas en jarabe y solución o 150 mg/5 mL en jarabe y solución.
+c.1.20.1) Acetaminofén hasta 750 mg por tableta o cápsula o hasta 500 mg en polvo para solución oral 0 100 mg/mL en gotas en jarabe y solución 0 150 mg/5 mL en jarabe y solución.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 44268 del 9 de octubre de 2023)
 c.1.20.2) Ácido acetilsalicílico hasta 500 mg por tableta o cápsula.
 c.1.21) Antihistamínicos:
 c.1.21.1) Clorfeniramina maleato hasta 4 mg por tableta o cápsula, o 0.5 mg/mL en gotas, o 2 mg/5 mL en jarabe.
@@ -95,7 +97,8 @@ c.1.21.4) Succinato de doxilamina en concentraciones máximas de 6.5 mg., para n
 c.1.22) Descongestionantes:
 Los preparados líquidos deben estar exentos de alcohol etílico.
 c.1.22.1) Bitartrato o clorhidrato de fenilefrina hasta 10 mg por tableta o cápsula o por 5 mL en jarabe.
-c.1.22.2) Pseudoefedrina HCL hasta 60 mg por tableta o cápsula o 6 mg/ml en jarabe.
+c.1.22.2) Pseudoefedrina HCL hasta 60 mg por tableta, cápsula o polvo para solución oral 0 6 mg/ml en jarabe.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 44268 del 9 de octubre de 2023)
 c.2 Antitusivos y Expectorantes:
 c.2.1) Alcanfor 12.5%, esencia de romero 5%, aceite esencial de eucalipto 5%, bálsamo de Perú 6% en ungüento.
 c.2.2) Dextrometorfano HBr hasta 30 mg en tabletas, cápsulas o polvo para solución oral o hasta 0.2% en jarabe.
