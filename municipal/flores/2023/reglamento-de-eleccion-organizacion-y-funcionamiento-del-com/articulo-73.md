@@ -1,0 +1,1 @@
+Artículo 73.-Inicio y cierre del presupuesto anual. Para los efectos del CCDRF, el año fiscal y el período de plan anual operativo y su respectivo presupuesto inician el 01 de enero y finalizan el 31 de diciembre de cada año.

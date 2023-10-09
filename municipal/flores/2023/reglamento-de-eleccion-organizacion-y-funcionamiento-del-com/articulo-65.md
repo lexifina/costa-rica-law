@@ -1,0 +1,1 @@
+Artículo 65.-Del régimen municipal. Los funcionarios (as) administrativos (as) del CCDRF gozarán de los mismos derechos, deberes y beneficios que al efecto establece el Título V del Código Municipal. A esa misma normativa, se ajustarán sus procesos de selección y nombramiento del personal.

@@ -1,0 +1,2 @@
+Artículo 78.-Otras consideraciones importantes al momento de elaborar el presupuesto.
+El presupuesto debe ser consecuente con lo establecido en el presente reglamento, además debe reflejar las necesidades de las Asociaciones, los Comités Comunales, Organizaciones Comunales o Deportivas y las Comisiones que existan, así como de los munícipes, debiendo seguir el procedimiento reglamentario y la normativa específica correspondiente a la materia presupuestaria de nuestro ordenamiento jurídico.

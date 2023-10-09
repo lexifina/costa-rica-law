@@ -1,0 +1,1 @@
+Artículo 80.-Presupuestos extraordinarios y modificaciones presupuestarias. Toda la materia relativa a presupuestos extraordinarios y modificaciones presupuestarias se regirá por los principios dispuestos en las Normas Técnicas Sobre Presupuesto Público (N-1-2012-DC-DFOE) y el Reglamento que para los efectos emita la Municipalidad.

@@ -1,0 +1,1 @@
+Artículo 69.-Idoneidad, Perfiles, funciones y salarios. La Idoneidad, el perfil, funciones del puesto y monto salarial de los funcionarios (as) de planta del Comité Cantonal, los establecerá el Comité Cantonal previo visto bueno del Concejo Municipal, quién contará con la asesoría de la Unidad de Recursos Humanos de la Municipalidad.

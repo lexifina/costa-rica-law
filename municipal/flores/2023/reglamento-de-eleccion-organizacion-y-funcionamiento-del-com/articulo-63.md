@@ -1,0 +1,2 @@
+Artículo 63.-Funciones generales del Encargado (a) de la Administración. Las funciones y naturaleza del Encargado (a) de la Administración será la de planificación, control, supervisión y dirección en el campo deportivo y de recreación y a la vez desarrollará labores administrativas relacionadas directamente con las labores propias del CCDRF.
+También deberá elaborar instrumentos de evaluación de los planes, proyectos o programas que desarrolle el CCDRF.

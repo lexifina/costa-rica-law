@@ -1,0 +1,1 @@
+Artículo 115.-Derogatoria. Este Reglamento deroga el actual Reglamento de Organización, Funcionamiento y Elección del Comité Cantonal de Deportes y Recreación de Flores, publicado en La Gaceta Nº 232 del 07 de diciembre del 2017, así como cualquier otra normativa reglamentaria que se le oponga.

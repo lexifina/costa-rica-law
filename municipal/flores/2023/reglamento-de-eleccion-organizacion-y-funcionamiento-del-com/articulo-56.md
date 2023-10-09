@@ -1,0 +1,1 @@
+Artículo 56.-Comisión Electoral, asamblea comité cantonal. Para supervisar el proceso de elección de las listas de candidatos en las Asambleas descritas, se constituirá una Comisión Electoral conformada por: tres miembros del Concejo Municipal (regidores (as) o síndicos (as), propietarios (as) o suplentes).

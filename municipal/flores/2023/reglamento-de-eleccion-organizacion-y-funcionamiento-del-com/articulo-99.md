@@ -1,0 +1,1 @@
+Artículo 99.-Organización de eventos. Cuando el Comité Comunal en coordinación con el área técnica del CCDRF realice torneos deportivos o eventos de recreación, estará en la obligación de confeccionar su respectiva regulación que deberá ser aprobada previamente por la Junta Directiva del CCDRF.

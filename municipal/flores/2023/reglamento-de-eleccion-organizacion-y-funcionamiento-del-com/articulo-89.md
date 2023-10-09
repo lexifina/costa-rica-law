@@ -1,0 +1,1 @@
+Artículo 89.-Comisión Electoral, asamblea comités comunales. Para supervisar el proceso de la asamblea general de elección de los comités comunales, se constituirá una Comisión Electoral conformada por: tres miembros del Concejo Municipal (regidores (as) o síndicos (as), propietarios (as) o suplentes).

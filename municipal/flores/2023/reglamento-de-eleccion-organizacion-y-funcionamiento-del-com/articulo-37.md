@@ -1,0 +1,1 @@
+Artículo 37.-De las mociones. La Presidencia es la encargada de conceder la palabra y mantener el mutuo respeto en las sesiones, dará la palabra siguiendo el orden en que ésta se solicite, salvo moción de orden que se presente, caso en el cual se dará la

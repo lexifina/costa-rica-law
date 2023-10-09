@@ -1,0 +1,1 @@
+Artículo 74.-Cuentas Bancarias del CCDRF. Toda recaudación deberá estar debidamente registrada, para este efecto el CCDRF deberá de contar con una cuenta en cualquier ente del Sistema Financiero y Bancario Nacional, supervisado por la Superintendencia General de Entidades Financieras. El CCDRF deberá asignar una de sus sub-cuentas a cada Comité Comunal para el mismo efecto.

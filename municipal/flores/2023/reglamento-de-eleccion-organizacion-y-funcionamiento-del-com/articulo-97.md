@@ -1,0 +1,1 @@
+Artículo 97.-Sesión del Comité Comunal. El Comité Comunal deberá reunirse en sesión pública, una vez al mes ordinariamente y extraordinariamente cuando lo requieran. El CCDRF debe capacitar a los miembros del o los Comités Comunales en relación con el orden del manejo de correspondencia, actas, dineros, proyectos, planes y políticas, entre otros.

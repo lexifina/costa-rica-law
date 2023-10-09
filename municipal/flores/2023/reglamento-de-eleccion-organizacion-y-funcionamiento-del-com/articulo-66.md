@@ -1,0 +1,2 @@
+Artículo 66.-Del régimen laboral. De igual forma a los funcionarios del CCDRF les resultan aplicables las demás disposiciones previstas en el ordenamiento jurídico relacionado a la jornada de trabajo, vacaciones, horario, obligaciones, prohibiciones,
+régimen disciplinario, derechos, incentivos salariales, entre otros. Para tal fin el CCDRF contará con la asesoría de la Gestión Jurídica y la Unidad de Recursos Humanos; como dependencia que es de la Municipalidad, a solicitud de la JD del CCDRF.
