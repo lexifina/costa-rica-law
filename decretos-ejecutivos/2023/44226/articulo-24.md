@@ -1,0 +1,2 @@
+Artículo 24.-Refórmese el transitorio 4 del Decreto Ejecutivo N°40862-MEP de fecha 12 de enero del año 2018, denominado Reglamento de Evaluación de los Aprendizajes, publicado en Alcance N°26 a La Gaceta N°22 del 06 de febrero del 2018, cuyo texto en adelante dirá:
+"Transitorio 4.- Durante los años 2023 y 2024 se requerirá como mínimo el nivel de dominio A1 en la aplicación de la Prueba Nacional Estandarizada de Lenguas Extranjeras, para la aprobación respectiva. Para el 2025 se requiere lograr un nivel de dominio lingüístico superior al A1."

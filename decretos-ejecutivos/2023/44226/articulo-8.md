@@ -1,0 +1,4 @@
+Artículo 8º-Refórmese el artículo 83 del Decreto Ejecutivo N°40862-MEP de fecha 12 de enero del año 2018, denominado Reglamento de Evaluación de los Aprendizajes, publicado en Alcance N°26 a La Gaceta N°22 del 06 de febrero del 2018, cuyo texto en adelante dirá:
+"Artículo 83°. - Delimitación del ámbito para la elaboración de la Prueba Nacional Estandarizada
+La Prueba Nacional Estandarizada, evaluará conocimientos, habilidades y otras destrezas propias de las asignaturas según los enfoques y fundamentación teórica de los Programas de Estudio de las asignaturas de Español, Matemáticas, Ciencias (Biología, Física y Química), Estudios Sociales y Educación Cívica (secundaria).
+La Dirección de Gestión y Evaluación de la Calidad del Ministerio de Educación Pública, remitirá a los centros educativos la información de carácter administrativo y técnico que resulte necesaria para garantizar la administración eficiente y eficaz de las Pruebas Nacionales Estandarizadas".
