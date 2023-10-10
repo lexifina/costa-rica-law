@@ -1,0 +1,1 @@
+Artículo 20.-Recibido de conformidad del bien: la Unidad de Adquisiciones y Contrataciones sólo podrá realizar la identificación y entrega de bienes, una vez que se haya dado la aceptación de los bienes por parte de los respectivos responsables (Titulares subordinados y personas usuarias), en el Sistema de Registro y Control de Activos.

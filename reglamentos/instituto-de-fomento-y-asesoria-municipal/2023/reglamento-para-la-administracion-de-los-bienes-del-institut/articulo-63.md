@@ -1,0 +1,1 @@
+Artículo 63.-Derogación reglamento anterior: este reglamento deroga el "Reglamento para la administración de los bienes muebles Instituto de Fomento y Asesoría Municipal" emitido el 4 de agosto del 2011, así como cualquier otra disposición que se oponga al Reglamento que por este medio se emite.

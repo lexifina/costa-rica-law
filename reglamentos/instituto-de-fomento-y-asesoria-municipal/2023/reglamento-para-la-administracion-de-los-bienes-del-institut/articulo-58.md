@@ -1,0 +1,1 @@
+Artículo 58.-Entrega de activos en préstamo: para entregar activos en calidad de préstamo a otras instituciones, se deberá realizar mediante acuerdo de la Junta Directiva y confección de acta de entrega de activos por parte de la Unidad de Servicios Generales.

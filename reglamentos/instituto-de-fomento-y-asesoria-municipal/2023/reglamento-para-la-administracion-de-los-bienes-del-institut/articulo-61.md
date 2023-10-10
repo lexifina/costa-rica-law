@@ -1,0 +1,1 @@
+Artículo 61.-Se exceptúan de estas disposiciones los libros, folletos, diccionarios, manuales técnicos y demás documentos propiedad del IFAM, que han sido adquiridos por las diferentes Unidades Administrativas para su uso, por estar regulados por normativa o disposiciones independientes.

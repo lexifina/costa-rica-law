@@ -1,0 +1,2 @@
+Artículo 51.-Venta y donación de bienes en desuso: los bienes en desuso que hayan sido devueltos a la Unidad de Servicios Generales, podrán ser vendidos, donados o dados como forma de pago, conforme las normas y procedimientos vigentes, establecidos en el reglamento de donaciones del IFAM, sin perjuicio de que se conserven para repuestos cuando corresponda.
+Para los bienes en buen estado que serán susceptibles de donación, deberá realizarse una justificación del porqué la Institución no los requiere.

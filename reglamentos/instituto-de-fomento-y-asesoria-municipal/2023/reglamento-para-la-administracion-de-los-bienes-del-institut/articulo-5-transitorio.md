@@ -1,0 +1,1 @@
+Transitorio V.-mientras se realizan los ajustes en el Sistema de Registro y Control de Activos, las Unidades de Adquisiciones y Contrataciones, Servicios Generales, Financiera y Tecnologías de Información, deberán confeccionar los procedimientos que en forma manual les permita llevar los controles establecidos en este Reglamento.

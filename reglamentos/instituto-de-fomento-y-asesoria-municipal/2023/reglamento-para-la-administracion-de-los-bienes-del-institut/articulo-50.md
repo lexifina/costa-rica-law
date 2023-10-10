@@ -1,0 +1,2 @@
+Artículo 50.-Bienes irrecuperables: cuando se determine que el bien es irrecuperable, la Unidad de Servicios Generales dará de baja el bien en el Sistema de Registro y Control de Activos, dando comunicación de ello a la Unidad Financiera y a la Unidad responsable de la administración del bien. De tratarse de equipo de cómputo, se informará igualmente a la Unidad de Tecnología de Información.
+El Sistema de Registro y Control de Activos deberá incluirse los documentos que respalden la decisión de dar de baja un activo.

@@ -1,0 +1,1 @@
+Artículo 33.-Devolución de bienes por vacaciones: en el caso de vacaciones por períodos superiores a 15 días hábiles deberán hacer entrega de los equipos móviles a la persona superior inmediata. Excepto que cuenten con autorización de la persona titular de la dependencia a la que pertenece la persona usuaria para continuar con el uso del equipo móvil asignado.

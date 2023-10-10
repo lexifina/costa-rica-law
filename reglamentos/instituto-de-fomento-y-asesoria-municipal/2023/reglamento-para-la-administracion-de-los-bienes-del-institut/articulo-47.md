@@ -1,0 +1,2 @@
+Artículo 47.-Solicitud de reparación de bienes: de existir equipo dañado en alguna dependencia y se requiera su reparación, la persona titular de la dependencia que tiene la necesidad deberá solicitar, por escrito, esos servicios a la Unidad de Servicios Generales para que esta Unidad realice la gestión de reparación correspondiente.
+Si se trata de mobiliario, equipo o accesorios que están relacionados con tecnologías de información la solicitud de mantenimiento deberá contar con el visto bueno de la persona Titular de la Unidad de Tecnologías de Información.

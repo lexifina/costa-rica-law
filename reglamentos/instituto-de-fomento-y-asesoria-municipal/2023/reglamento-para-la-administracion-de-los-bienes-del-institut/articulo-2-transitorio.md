@@ -1,0 +1,1 @@
+Transitorio II.-la Unidad de Tecnologías de Información dentro de un plazo de seis meses contados a partir de la publicación del presente Reglamento, deberá realizar un levantamiento del software institucional con el fin de proceder a registrarlo en el sistema una vez que se hayan realizado los ajustes correspondientes.

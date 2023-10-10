@@ -1,0 +1,1 @@
+Artículo 18.-Naturaleza de los bienes: es responsabilidad de la persona titular de la dependencia solicitante velar porque las solicitudes de compra de bienes obedezcan a las necesidades del personal a su cargo, para el desempeño de sus funciones.

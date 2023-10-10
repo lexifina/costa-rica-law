@@ -1,0 +1,1 @@
+Artículo 24.-Sustitución de bienes: en caso de que durante el periodo de garantía se produzca la sustitución de algún bien la Unidad de Servicios Generales deberá dar de baja al bien sustituido y la Unidad de Adquisiciones y Contrataciones procederá a registrar el nuevo bien.

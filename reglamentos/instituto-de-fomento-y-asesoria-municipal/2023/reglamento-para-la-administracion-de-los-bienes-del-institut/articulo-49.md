@@ -1,0 +1,1 @@
+Artículo 49.-Registro y recibo de un bien reparado: reparado el bien, la Unidad de Servicios Generales lo entregará a la dependencia interesada, además, deberá registrar el ingreso del bien el en el Sistema de Registro y Control de Activos. La persona usuaria deberá firmar digitalmente el recibido del activo reparado.

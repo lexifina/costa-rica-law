@@ -1,0 +1,1 @@
+Artículo 39.-Seguimiento de la denuncia por parte de la administración: una vez interpuesta la denuncia por parte de la persona responsable del activo la Administración procederá a apersonarse ante las autoridades competentes en esta etapa para representar los intereses objeticos de la Institución.

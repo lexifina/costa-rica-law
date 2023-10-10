@@ -1,0 +1,1 @@
+Artículo 16.-Solicitud de contratación: toda dependencia interesada en solicitar la adquisición de un bien, y cumpliendo con el artículo anterior, debe tramitar la solicitud del proceso de contratación, por medio del sistema de compras electrónico correspondiente, de conformidad con el procedimiento que existe para tal efecto.

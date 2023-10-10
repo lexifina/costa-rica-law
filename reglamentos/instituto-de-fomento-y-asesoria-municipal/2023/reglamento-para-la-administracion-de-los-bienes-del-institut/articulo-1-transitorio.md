@@ -1,0 +1,1 @@
+Transitorio I.-la Unidad Financiera deberá presentar, dentro de un plazo de seis meses contados a partir de la publicación del presente Reglamento, a la Dirección Ejecutiva las políticas propias de la capitalización de activos, para remitirlas a conocimiento y resolución de la Junta Directiva.
