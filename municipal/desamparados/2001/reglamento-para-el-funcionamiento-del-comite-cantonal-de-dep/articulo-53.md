@@ -1,1 +1,0 @@
-Artículo 53.-EI mantenimiento de las instalaciones deportivas estará a cargo de los Comités respectivos y debe realizarse por espacio de un mes, al menos una vez al año. Durante ese mes las instalaciones permanecerán totalmente cerradas, lo que debe ser comunicado con anticipación mínima de treinta días a todos los interesados y usuarios de las mismas.

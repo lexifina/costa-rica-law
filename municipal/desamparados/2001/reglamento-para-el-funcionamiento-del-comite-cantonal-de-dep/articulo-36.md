@@ -1,1 +1,0 @@
-Artículo 36.-EI Comité Cantonal podrá delegar en los Comités Comunales la construcción, administración y mantenimiento de las instalaciones deportivas. A estas instalaciones deportivas deberán tener acceso todos los grupos de atletas y deportistas organizados formalmente dentro de la comunidad.

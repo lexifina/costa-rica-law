@@ -1,1 +1,0 @@
-Artículo 9°-Para el desempeño de sus funciones, todos los demás Órganos que integran el Comité Cantonal deberán ajustarse a las normas y procedimientos señalados tanto en la Ley como en el presente Reglamento.

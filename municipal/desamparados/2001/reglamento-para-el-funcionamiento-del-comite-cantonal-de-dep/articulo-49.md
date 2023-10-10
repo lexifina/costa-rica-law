@@ -1,1 +1,0 @@
-Artículo 49.-Los equipos afiliados al Comité Cantonal, los de Liga Menor y las Selecciones que representen oficialmente a la comunidad y que estén reconocidas por el Comité Comunal, tendrán prioridad en el uso de las instalaciones deportivas.

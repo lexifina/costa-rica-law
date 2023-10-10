@@ -1,1 +1,0 @@
-Artículo 35.-A más tardar el 15 de junio de cada año, los Comités Comunales deberán presentar a la Junta Directiva del Comité Cantonal, un informe anual escrito de labores, un programa de trabajo y el presupuesto del año siguiente.

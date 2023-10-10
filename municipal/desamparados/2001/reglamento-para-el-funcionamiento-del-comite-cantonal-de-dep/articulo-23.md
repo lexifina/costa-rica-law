@@ -1,1 +1,0 @@
-Artículo 23.-Cada Comisión deberá elaborar un Plan de Trabajo y rendir un informe escrito, con la periodicidad que establezca el Órgano Superior, sobre las actividades realizadas y los resultados obtenidos.

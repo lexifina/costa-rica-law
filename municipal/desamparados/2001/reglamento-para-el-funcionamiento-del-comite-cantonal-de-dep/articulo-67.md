@@ -1,1 +1,0 @@
-Artículo 67.--Cualquiera de los miembros de la Junta Directiva podrá acoger una o varias mociones de personas particulares, siempre que el contenido esté relacionado con el Deporte y la Recreación, para que sean conocidas en sesión ordinaria. Estas mociones deben ser presentadas necesariamente por escrito.

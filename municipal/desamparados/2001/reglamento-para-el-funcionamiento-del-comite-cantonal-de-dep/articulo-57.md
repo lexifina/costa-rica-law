@@ -1,1 +1,0 @@
-Artículo 57.-Los Comités Comunales de Deportes y Recreación deberán rendir un informe anual al Comité Cantonal el quince de junio de cada año, con el detalle de las labores realizadas, el trabajo propuesto para el próximo año y el presupuesto.

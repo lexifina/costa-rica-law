@@ -1,2 +1,0 @@
-Artículo 48.-Las tarifas por alquiler de las instalaciones deportivas y/o recreativas son de cobro obligatorio y no pueden ser alteradas sin autorización previa del Comité Cantonal.
-Quedan exentos de ese pago los equipos que representen al Cantón en Juegos Deportivos Nacionales y los equipos de Liga Menor de la comunidad. Todas las actividades que se lleven a cabo en las instalaciones deben estar bajo la responsabilidad de un monitor, entrenador titulado o una persona autorizada por el Comité Cantonal.

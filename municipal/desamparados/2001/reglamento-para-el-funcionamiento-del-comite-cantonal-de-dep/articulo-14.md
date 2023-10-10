@@ -1,1 +1,0 @@
-Artículo 14.-Los miembros de la Junta Directiva, de conformidad con el articulo 168 del Código Municipal, permanecerán en sus cargos durante dos años, pudiendo ser reelegidos y no devengarán dietas ni remuneración alguna.

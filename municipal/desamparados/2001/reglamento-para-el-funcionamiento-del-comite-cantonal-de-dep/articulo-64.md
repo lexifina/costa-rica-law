@@ -1,1 +1,0 @@
-Artículo 64.-En las sesiones habrá dos tipos de votación: nominal y secreta. Será nominal cuando cada uno de los miembros exprese su voto en forma oral y secreta cuando la votación se haga mediante el uso de papeletas.
