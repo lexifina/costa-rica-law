@@ -1,0 +1,7 @@
+Artículo 20.-Firma del contrato, presentación de declaración jurada e instalación del sistema de medición e interconexión
+Una vez aprobada la inspección, la Sucursal respectiva procederá con la notificación (mediante oficio) del resultado en un plazo no mayor a 5 días hábiles posterior a la ejecución de la inspección. Se convocará para la firma del contrato de interconexión, la cual puede ser de manera física en la Sucursal respectiva o por medio de firma digital. En ambos casos se deberá cumplir con lo siguiente:
+a) Presentar la cédula de identidad o personería jurídica vigente (con no más de treinta días naturales de haberse emitido) según corresponda.
+b) En caso de que la firma del contrato la realice un tercero deberá presentar un poder especial autenticado.
+c) Presentar la boleta del CFIA de la persona profesional responsable.
+d) La firma del contrato de interconexión debe realizarse como mínimo 10 días antes de la fecha de lectura del medidor, día en que debe instalarse los sistemas de medición.
+Si se trata de un caso sin entrega de excedentes a la red, posterior a la notificación de aprobación de la inspección, se debe presentar la declaración jurada de cero inyección (según el medio y formato establecido por la CNFL) y no se requiere de la firma de contrato de interconexión. La presentación de la declaración jurada debe realizarse como mínimo 10 días antes de la fecha de lectura de medidor, día en que debe instalarse los sistemas de medición.

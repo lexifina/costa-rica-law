@@ -1,0 +1,2 @@
+Artículo 6º-Capacidad del sistema de generación y almacenamiento para autoconsumo
+Será responsabilidad de la persona abonada, por medio de una persona profesional debidamente incorporada y autorizada por el CFIA para asumir la responsabilidad según el tipo de obras, para dimensionar el DER de acuerdo con su consumo histórico. Para nuevos consumos o inmuebles que no posean historial de consumo, la persona responsable del diseño deberá desarrollar la memoria de cálculo detallada para determinar la capacidad de los sistemas para autoconsumo a instalar.

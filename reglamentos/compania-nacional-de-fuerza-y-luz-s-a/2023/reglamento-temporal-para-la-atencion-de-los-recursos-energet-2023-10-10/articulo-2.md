@@ -1,0 +1,2 @@
+Artículo 2º-Alcance
+Este reglamento aplica a las personas abonadas, sean físicas o jurídicas, que deseen instalar recursos energéticos distribuidos para autoconsumo conectadas al sistema de distribución de la CNFL en las modalidades de operación con y sin entrega de excedentes a la red. Una vez que la ARESEP establezca los requerimientos para los sistemas de operación con y sin entrega de excedentes a la red, los PDER deben adaptarse a dicha regulación.
