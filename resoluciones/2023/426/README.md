@@ -14,3 +14,4 @@ Exoneración temporal de visa para las personas extranjeras que ingresan a Costa
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-08-07 | la propia norma |
+| 2 | 2023-10-10 | Resolución 559 (2023-10-10) |
