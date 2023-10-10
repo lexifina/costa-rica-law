@@ -14,3 +14,4 @@ Comunica emisión de resolución de la Dirección General de Servicio Civil (DG-
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-11-23 | la propia norma |
+| 2 | 2023-10-10 | Resolución 9 (2023-10-10) |
