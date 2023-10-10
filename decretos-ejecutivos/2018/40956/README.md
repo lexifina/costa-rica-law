@@ -15,3 +15,4 @@ Reglamento para la equiparación de estudios y títulos obtenidos en el Programa
 | --- | --- | --- |
 | 1 | 2018-03-19 | la propia norma |
 | 2 | 2020-01-31 | Decreto Ejecutivo 42313 (2020-01-31) |
+| 3 | 2023-10-10 | Decreto Ejecutivo 44235 (2023-10-10) |
