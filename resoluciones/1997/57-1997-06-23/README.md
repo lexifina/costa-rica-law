@@ -28,3 +28,4 @@ Comunica resolución de la Dirección General de Servicio Civil (DG-055-97, Manu
 | 13 | 2021-05-06 | Resolución 4 (2021-05-06) |
 | 14 | 2021-11-25 | Resolución 10 (2021-11-25) |
 | 15 | 2022-03-01 | Resolución 4 (2022-03-01) |
+| 16 | 2023-10-10 | Resolución 9 (2023-10-10) |
