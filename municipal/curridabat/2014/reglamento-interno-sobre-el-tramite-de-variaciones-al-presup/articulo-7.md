@@ -1,1 +1,0 @@
-Artículo 7°—Responsabilidades. Los jerarcas y titulares subordinados intervinientes en el proceso presupuestario, serán responsables de velar por el fiel cumplimiento de este Reglamento, así como de las disposiciones legales y directrices emanadas por la Contraloría General de la República en materia presupuestaria.
