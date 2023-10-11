@@ -1,0 +1,5 @@
+Artículo Nº 17. Forma de pago al Agente Externo. Cuando corresponda el pago por los servicios que brinde el Agente Externo dicho pago se realizará conforme al instructivo de la Dirección General de Presupuesto Nacional para la operativización del proceso de visado que esté vigente al momento del pago y a lo dispuesto en este artículo.
+El órgano a cargo, a partir de la presentación de la factura y previa recepción del servicio y cumplimiento del visado del gasto, gestionará el pago respectivo, esto atendiendo el calendario de pago a proveedores establecido por la Tesorería Nacional.
+El pago respectivo lo ejecutará la Tesorería Nacional mediante crédito directo a la cuenta suministrada por el Agente Externo para los efectos.
+En caso de que se presente un atraso en el pago, conforme al plazo establecido en el Acuerdo, procederá el reconocimiento de intereses mediante resolución administrativa, esto previo a la presentación del reclamo correspondiente por parte del Agente Externo.
+El reclamo de intereses prescribirá en un año, conforme a las regulaciones del Código de Comercio, Ley Nº3284 de 30 de abril de 1964.

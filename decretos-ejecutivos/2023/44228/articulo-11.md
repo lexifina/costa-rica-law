@@ -1,0 +1,4 @@
+Artículo Nº 11. Plazo para estudio de la solicitud. El Ministro de Hacienda tendrá un plazo máximo de treinta días naturales, contados a partir de la fecha de presentación de la solicitud de suscripción del Acuerdo de prestación del servicio respectivo, para aprobarla o denegarla.
+Dentro del plazo antes indicado, el Ministro de Hacienda podrá realizar prevenciones por escrito para cumplir con lo estipulado en el artículo 9 del presente reglamento, dichas prevenciones se otorgarán por un máximo de cinco días naturales y suspenderán el plazo de estudio.
+En caso de aprobarse la solicitud, se comunicará al interesado para que se apersone ante el Ministerio de Hacienda a suscribir el Acuerdo de prestación del servicio.
+En caso de que no fuera aprobada, el Ministro de Hacienda lo comunicará por escrito al interesado indicando los motivos, sin perjuicio de que presente una nueva solicitud.

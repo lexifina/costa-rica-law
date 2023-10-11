@@ -1,0 +1,1 @@
+Artículo Nº 12. Plazo para la suscripción del Acuerdo de prestación del servicio. Una vez que se comunique al oferente la aprobación de su solicitud, este contará con el plazo de diez días hábiles para presentarse a suscribir el Acuerdo de prestación del serv1c10 respectivo. El mismo plazo aplicará al Ministro de Hacienda para la suscripción.

@@ -1,0 +1,1 @@
+Artículo Nº 7. Análisis de las solicitudes. El órgano a cargo contratante del servicio de recaudación, financiero o bancario y la Tesorería Nacional, estudiarán las solicitudes presentadas, y harán la recomendación correspondiente al Ministro de Hacienda, para la suscripción o no del Acuerdo.

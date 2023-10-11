@@ -1,0 +1,1 @@
+Artículo Nº 13. Custodia del expediente. Una vez formalizado y aprobado el Acuerdo de prestación del servicio, el Administrador designado por el Ministro de Hacienda procederá a conformar y custodiar el expediente según lo dispongan las normas internas sobre la conformación de expedientes administrativos.

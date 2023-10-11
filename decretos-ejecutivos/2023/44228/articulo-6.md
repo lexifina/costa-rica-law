@@ -1,0 +1,1 @@
+Artículo Nº 6. Plazo del Acuerdo de prestación del servicio. El plazo del Acuerdo de prestación del servicio será de un año, prorrogable por cuatro períodos iguales y consecutivos, si ninguna de las partes manifiesta su decisión de no continuar con la contratación al menos un mes antes de su vencimiento y por escrito.

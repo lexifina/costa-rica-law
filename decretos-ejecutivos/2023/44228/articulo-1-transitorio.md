@@ -1,0 +1,2 @@
+TRANSITORIO ÚNICO. Los actuales acuerdos, convenios o contratos que haya suscrito el Ministerio de Hacienda antes de la entrada en vigencia del presente Reglamento y relacionados con la prestación de los servicios que regule éste, continuarán vigentes hasta la fecha de su vencimiento, pudiendo prorrogarse, salvo manifestación expresa en contrario conforme fuera convenido en dichos convenios y conforme a las disposiciones del presente Reglamento.
+Dado en la Presidencia de la República a los cuatro días del mes de octubre del dos mil veintitrés.
