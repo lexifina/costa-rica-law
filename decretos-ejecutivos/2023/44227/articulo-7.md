@@ -1,0 +1,2 @@
+Artículo 7º-Facultades de control, fiscalización e inspección.
+Cuando el MAG o la DGAC, lo solicite de acuerdo con sus competencias, cualquier operador o propietario de una aeronave no tripulada de uso agropecuario deberá permitir la inspección de la aeronave, sus manuales y/o documentos, lo anterior conforme a la Ley General de Aviación Civil, Ley Nº 5150 del 14 de mayo de 1973 y sus reformas y la Ley de Protección Fitosanitaria Ley N P 7664 del 8 de abril de 1997.

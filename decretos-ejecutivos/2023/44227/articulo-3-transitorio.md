@@ -1,0 +1,1 @@
+Transitorio III. El Ministerio de Agricultura y Ganadería en coordinación con la DGAC, analizará la aplicación de tarifas diferenciadas a los productores u organizaciones de productores agropecuarios en el plazo de seis meses, a partir de la entrada en vigor del presente decreto ejecutivo, para la modificación respectiva del Decreto Ejecutivo 20217-MOPT y sus reformas.

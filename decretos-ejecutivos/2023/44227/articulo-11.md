@@ -1,0 +1,2 @@
+Artículo 11.-Exoneración de pago.
+Se exime del pago de las tarifas contempladas en el artículo 2, códigos 2.g, 3.b y 16.e del Decreto Ejecutivo N° 27763-MAG del 10 de marzo de 1999 denominado "Fijación de Tarifas del Ministerio de Agricultura y Ganadería y sus reformas", a los drones de uso agropecuario que se importen o inscriban por parte de productores agropecuarios que cumplan los requisitos establecidos en los artículos 3 y 4 de este decreto ejecutivo, a partir de la entrada en vigencia de la presente regulación.
