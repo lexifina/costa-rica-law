@@ -1,1 +1,0 @@
-Artículo 30º- Cuando la persona destinataria de los recursos solicite o requiera la ampliación o prórroga en el monto y el rubro de la transferencia monetaria, la Sede Regional deberá comprobar la variación en la condición socioeconómica de la persona y/o su entorno familiar, según el procedimiento establecido para tal fin.

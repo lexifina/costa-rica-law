@@ -1,1 +1,0 @@
-Artículo 29º- La persona cuya solicitud de ingreso al Programa Pobreza y Discapacidad o al Programa de Promoción de la Autonomía Personal de las Personas con Discapacidad, haya sido rechazada, podrá presentar una nueva solicitud una vez trascurrido un año desde su última gestión.

@@ -1,3 +1,0 @@
-Artículo 18º - Las personas destinatarias de los recursos del Programa Promoción de la Autonomía Personal de las Personas con Discapacidad, podrán recibir transferencias monetarias para los siguientes destinos de inversión:
-a. Asistencia personal humana: Comprende el rubro para cubrir los costos de la asistencia personal humana.
-b. Productos y servicios de apoyo: Cubre el costo de los productos y servicios que el Conapdis, por medio de la Unidad de Autonomía Personal y Vida Independiente establecerá en una lista taxativa, la cual, según el artículo 26 de la ley nº 9379, se actualizará cada año. Dicha lista incluirá los gastos derivados del mantenimiento de animales de asistencia que se autorizaran.

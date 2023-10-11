@@ -1,2 +1,0 @@
-Artículo N° 10-BIS-: Los montos de las transferencias monetarias, otorgados con recursos provenientes de la Ley N° 9379 para asistencia personal se asignarán conforme a la determinación objetiva de los niveles de intensidad, tipo y frecuencia del apoyo de las personas que servirán de fundamento para definir las horas que requiere de asistencia personal.
-(Así adicionado en sesión N° 28 del 26 de noviembre del 2020)

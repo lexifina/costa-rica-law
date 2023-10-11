@@ -1,1 +1,0 @@
-Artículo 12°- La transferencia monetaria se hará efectiva a partir del momento en que se le haya notificado a la persona solicitante la resolución que aprueba el beneficio. En ninguna situación la transferencia monetaria podrá otorgarse de forma retroactiva. La transferencia monetaria tendrá una vigencia máxima de un año.
