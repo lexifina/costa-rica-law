@@ -1,0 +1,1 @@
+Artículo 6°—Guía. Se deberá cumplir con lo estipulado en la Guía para el diseño, gestión e implementación para los Programas de Intervenciones Estratégicas para el Mejoramiento de la Movilidad y la Seguridad.

@@ -1,0 +1,7 @@
+Artículo 5°—Mecanismos de control. Los mecanismos de control para el uso de los recursos destinados a labores de mejoramientos puntuales realizados por CONAVI, serán definidos por el Administrador del Programa PEMS, quien no es el ejecutor de los recursos presupuestarios del CONAVI y será definido por el Consejo de Administración, mediante formal Acuerdo. La responsabilidad de la supervisión de las obras recae en los ingenieros de zona y Directores Regionales y deberán tener una estrecha coordinación con el administrador de los P EVIS, una vez que se constituya la línea base para la medición del rendimiento del proyecto por parte del administrador de PEMS, tomando en cuenta su alcance, costo, cronograma, control de recursos y riesgos para la presentación de la obra o intervención estratégica. El Administrador del Programa PEMS garantizará los siguientes mecanismos de control:
+a) Estimación de los costos de las obras a ser ejecutadas mediante mejoramientos puntuales.
+b) Cronograma asociado al presupuesto.
+c) Presupuesto asociado a riesgos.
+d) Realización de inspecciones periódicas para corroborar el avance de las obras con relación a lo presupuestado.
+e) Informe final de los fondos ejecutados a la Dirección Ejecutiva del CONAVI y a la Secretaría de Planificación Sectorial.
+f) El Consejo de Administración del CONAVI y el Ministerio de Obras Públicas y Transportes, podrán ordenar la elaboración de auditorías periódicas para las obras realizadas con los mejoramientos puntuales.
