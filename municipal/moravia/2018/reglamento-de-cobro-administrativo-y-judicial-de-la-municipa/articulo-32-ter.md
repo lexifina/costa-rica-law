@@ -1,0 +1,2 @@
+Artículo 32 TER. - De los fraccionamientos de deuda por multas no tributarias. Podrá autorizarse fraccionamiento de deuda por multas de naturaleza no tributaria, cuando por ley no exista prohibición. El fraccionamiento se hará considerando la totalidad de la deuda y lo podrá celebrar el obligado o cualquier otra persona con capacidad jurídica para obligarse en su nombre. A los efectos de este tipo de arreglos, resultarán aplicables las reglas establecidas en este capítulo, en cuanto sea pertinente.
+(Así adicionado mediante acuerdo N° 2355-2023 del 12 de octubre del 2023)
