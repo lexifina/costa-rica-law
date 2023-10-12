@@ -1,0 +1,1 @@
+Artículo 15.-Cuando, por razones imputables a la Fiscalía, la investigación preliminar se paralice por más de tres meses, el expediente será archivado a instancia de parte, ya sea ante la propia Fiscalía o ante el Tribunal de Honor y Ética, en ambos casos, al constatarse la inactividad, se procederá al archivo respectivo.

@@ -1,0 +1,1 @@
+Artículo 12.-El trámite establecido en este Reglamento se aplicará, complementariamente con la Ley General de la Administración Pública, a toda investigación que deba de realizar la Fiscalía del Colegio de Periodistas y Profesionales en Ciencias de la Comunicación Colectiva de Costa Rica.

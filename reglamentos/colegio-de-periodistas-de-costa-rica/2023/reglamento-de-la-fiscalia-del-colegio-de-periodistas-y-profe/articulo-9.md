@@ -1,0 +1,1 @@
+Artículo 9°-Los plazos señalados en el presente reglamento se ampliarán a criterios de la Fiscalía, mediante resolución fundada y debidamente motivada, pero nunca habrán de exceder de treinta días naturales.

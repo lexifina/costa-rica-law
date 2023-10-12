@@ -1,0 +1,1 @@
+Artículo 14.-La investigación preliminar que realizará la Fiscalía debe tramitarse con celeridad, para ello ejecutará todas las diligencias útiles y necesarias para concluir con el informe final en el menor plazo fijado en este reglamento.

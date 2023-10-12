@@ -1,0 +1,1 @@
+Artículo 7°-Una vez concluida su investigación, la Fiscalía rendirá un informe razonado a la Junta Directiva, recomendando pasar el caso al Tribunal de Honor y Ética o archivar el expediente, este informe será necesario, aún en aquellos casos en que la denuncia sea de oficio.

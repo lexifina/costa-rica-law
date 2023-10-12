@@ -1,0 +1,1 @@
+Artículo 13.-La Fiscalía conducirá el procedimiento con la intención de lograr un máximo de celeridad y eficiencia, dentro del respeto al ordenamiento jurídico, a los derechos e intereses de los agremiados(as), así como las partes y serán responsables de cualquier retardo grave e injustificado.
