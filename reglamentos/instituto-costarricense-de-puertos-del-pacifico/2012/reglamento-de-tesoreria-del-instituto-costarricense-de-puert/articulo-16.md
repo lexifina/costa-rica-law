@@ -1,1 +1,0 @@
-Artículo 16.- Del traslado de valores a la Tesorería. Todos los documentos de bancos o cualquiera otro valor que sean recibidos por otras dependencias del Instituto, deberán ser remitidos de manera física y de inmediato a la Tesorería, para su respectivo registro o custodia.

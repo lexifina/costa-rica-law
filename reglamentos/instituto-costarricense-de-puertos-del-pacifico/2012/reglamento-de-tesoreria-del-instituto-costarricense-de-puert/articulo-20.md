@@ -1,4 +1,0 @@
-Artículo 20.- De los funcionarios autorizados para firmar cheques o aprobar las transferencias electrónicas. Los funcionarios autorizados para firmar cheques o aprobar las transferencias electrónicas de las diferentes cuentas corrientes de la Institución, serán designados por la Junta Directiva. Existirán dos grupos de firmas:
-a) Grupo Uno: Un representante de la Dirección Superior (Gerencia General y Presidencia Ejecutiva).
-b) Grupo Dos: Un representante de otro nivel de la Administración (Director (a) Administrativo Financiero o en su ausencia el Tesorero (a).
-Si el pago es por cheque, el cheque llevará dos firmas mancomunadamente. Si el pago es por transferencia electrónica llevará dos aprobaciones mancomunadamente para ambos casos combinadas de la siguiente forma: una firma del Grupo Uno junto con una firma del del Grupo Dos. En ningún caso podrán firmar mancomunadamente dos firmas del mismo grupo.
