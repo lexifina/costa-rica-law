@@ -1,0 +1,1 @@
+Artículo 11.-Tasas por el servicio de recolección. La Municipalidad debe fijar y actualizar mínimo una vez al año las tasas del servicio de recolección, según la normativa del Código municipal y la capacidad del servicio que se ofrece.

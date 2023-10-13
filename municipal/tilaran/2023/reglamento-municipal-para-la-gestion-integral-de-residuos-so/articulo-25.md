@@ -1,0 +1,1 @@
+Artículo 25.-Inspecciones. Los inspectores, debidamente identificados, podrán realizar inspecciones de verificación, seguimiento o cumplimiento de este reglamento y realizar un informe para la toma de decisiones.

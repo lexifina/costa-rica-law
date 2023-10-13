@@ -1,0 +1,1 @@
+Artículo 28.-Disposición final de residuos valorizables. Los valorizables serán gestionados en Centros de Recuperación de Residuos Valorizables que disponga de Permiso Sanitario de Funcionamiento del Ministerio de Salud vigente.

@@ -1,0 +1,1 @@
+Artículo 38.-Cambio de categoría. La Municipalidad con base en el estudio específico, podrá cambiar de categoría a cualquier usuario del servicio previo estudio de la Coordinación de Servicios Ciudadanos y Técnicos de la Municipalidad.

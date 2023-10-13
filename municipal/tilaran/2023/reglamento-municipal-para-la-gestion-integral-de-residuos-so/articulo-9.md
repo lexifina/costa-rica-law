@@ -1,0 +1,1 @@
+Artículo 9º-Alternativas de tratamiento de residuos. La Municipalidad podrá optar por la adopción y/o desarrollo de tecnologías alternativas para reducir la contaminación y mejorar el tratamiento de los residuos sólidos generados en el cantón, cumpliendo con la normativa nacional vigente.

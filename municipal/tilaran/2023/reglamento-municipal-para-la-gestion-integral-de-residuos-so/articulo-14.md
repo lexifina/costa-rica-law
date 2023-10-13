@@ -1,0 +1,2 @@
+Artículo 14.-Residuos biodegradables. Los residuos biodegradables podrán ser tratados como fuente de compostaje, en la propia fuente de generación siempre que el sitio cuente con condiciones eficientes y durante el proceso de tratamiento, no causen molestias a terceras personas o daños al ambiente.
+En caso de que, los residuos biodegradables no sean tratados en la fuente, deberán ser colocados en recipientes separados y entregados a la entidad que la Municipalidad designe para su recolección o llevados al centro de compostaje en el horario que la Municipalidad designe.

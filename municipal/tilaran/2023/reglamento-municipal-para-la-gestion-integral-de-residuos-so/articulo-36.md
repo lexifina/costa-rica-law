@@ -1,0 +1,1 @@
+Artículo 36.-Ferias u otras actividades públicas. Los encargados de actividades públicas que se efectúen en el cantón, a la hora de obtener los respectivos permisos municipales, deben garantizar que se harán cargo de la recolección de todos los residuos de dicha actividad y que se colocarán en un área específica para la recolección municipal.

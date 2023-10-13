@@ -1,0 +1,1 @@
+Artículo 40.-Prohibición de ingreso de recolectores de residuos a propiedad privada. Los funcionarios de recolección tienen terminantemente prohibido ingresar en propiedad privada con el fin de recoger o retirar residuos de cualquier tipo, sin importar que haya acceso libre a la propiedad.

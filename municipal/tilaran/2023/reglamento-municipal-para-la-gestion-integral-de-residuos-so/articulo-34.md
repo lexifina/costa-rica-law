@@ -1,0 +1,1 @@
+Artículo 34.-Intereses por atraso de pago. El atraso en el pago de las tarifas que se cobrarán por los servicios enunciados en el presente reglamento generará multas e intereses moratorios de conformidad con el artículo 78 del Código Municipal y el Código de Normas y Procedimientos Tributarios.

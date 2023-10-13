@@ -1,0 +1,1 @@
+Artículo 30.-Categorías de usuarios. La Municipalidad establecerá las categorías de los usuarios de acuerdo con lo establecido en la Coordinación de Servicios Ciudadanos y Técnicos de la Municipalidad.

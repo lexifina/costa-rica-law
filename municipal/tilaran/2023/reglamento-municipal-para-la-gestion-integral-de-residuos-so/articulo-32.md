@@ -1,0 +1,1 @@
+Artículo 32.-Sobre el hecho generador. El cobro de la tarifa establecida por usuario surge en la medida en que se dé la prestación efectiva del servicio, independientemente de si el usuario quiere o no que se le dé el servicio o si las unidades habitacionales, comercios o industrias se encuentren habitadas o deshabitadas, activas o en suspensión.

@@ -1,0 +1,1 @@
+Artículo 27.-Disposición final de residuos no tradicionales. Los residuos no tradicionales que se recojan de servicios contratados o producto de campañas de limpieza en el cantón serán transportados y depositados en el relleno sanitario, sistema o planta de tratamiento que cumpla con la normativa y disponga de Permiso Sanitario de Funcionamiento del Ministerio de Salud vigente.
