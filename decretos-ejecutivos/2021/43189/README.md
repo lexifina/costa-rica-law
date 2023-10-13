@@ -15,3 +15,4 @@ Reglamento a la Ley de Desarrollo Social y Asignaciones Familiares
 | --- | --- | --- |
 | 1 | 2021-11-04 | la propia norma |
 | 2 | 2023-09-12 | Decreto Ejecutivo 44242 (2023-09-12) |
+| 3 | 2023-10-13 | Decreto Ejecutivo 44351 (2023-10-13) |

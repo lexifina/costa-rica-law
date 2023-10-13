@@ -1,2 +1,3 @@
-Artículo 62. Del flujo de caja y las conciliaciones bancarias del FODESAF
-La DESAF, estará obligada a presentar mensualmente ante la Tesorería Nacional y la Autoridad Presupuestaria, un flujo de caja de los recursos del FODESAF y un informe de conciliaciones bancarias.
+Artículo 62. Del flujo de caja y las conciliaciones bancarias del FODESAF.
+En atención a los lineamientos establecidos en la ley 9524, el presupuesto de la Desaf como órgano desconcentrado adscrito al Ministerio de Trabajo y Seguridad Social, pasó a formar parte del Presupuesto Nacional, por lo que queda sujeto a las disposiciones contenidas en la ley 8131 del 18 de setiembre de 2001 "Ley de la Administración Financiera de la República y Presupuestos Públicos", además de los lineamientos que establezca el Ministerio de Hacienda mediante circulares. Deberá remitirse una programación de los recursos de forma semanal y un flujo de caja mensual, además una conciliación de la cuenta presupuestaria a la Tesorería Nacional.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 44351 del 13 de octubre del 2023)
