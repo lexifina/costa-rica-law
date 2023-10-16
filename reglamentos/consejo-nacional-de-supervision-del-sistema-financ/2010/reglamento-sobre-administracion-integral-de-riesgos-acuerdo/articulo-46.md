@@ -1,3 +1,12 @@
-Artículo 46. Límites Como parte de sus políticas, las entidades deben establecer los límites a la exposición de riesgo de mercado en el segmento de los títulos valores que se mantiene en la cartera de negociación y en la cartera de inversión. Estos límites deben revisarse al menos anualmente si la entidad modifica su apetito por riesgo.
-Los límites a la exposición al riesgo de mercado deben contemplar los factores de riesgo del mismo y ser consistentes con el volumen y complejidad de las operaciones de la entidad. Deben estar acordes con el apetito por el riesgo, el perfil de riesgo y la solidez del capital de las entidades. Deben ser transparentes y mantenerse en el tiempo, pudiendo considerarse variables tales como posiciones netas y brutas, concentración del riesgo, máxima pérdida admitida, riesgos potenciales en base a los resultados del escenario de tensión, "stop losses", Valor en Riesgo (VeR) de las posiciones.
+TÍTULO IV.
+ADMINISTRACIÓN DEL RIESGO DE MERCADO, TASA DE INTERÉS Y TIPO DE CAMBIO
+(Así adicionado el título anterior en sesión N° 1712-2022 del 31 de enero de 2022)
+CAPÍTULO I.
+GOBIERNO CORPORATIVO DE LA GESTIÓN DEL RIESGO DE MERCADO TASA DE INTERÉS Y TIPO DE CAMBIO
+(Así adicionado el capítulo anterior en sesión N° 1712-2022 del 31 de enero de 2022)
+Artículo 46. Sistema de organización Las entidades deben establecer una estructura organizacional o funcional adecuada a su modelo de negocios, el cual debe ser proporcional a su tamaño, así como el volumen, las características y la complejidad de sus operaciones relacionadas con el riesgo de mercado, riesgo de tasas de interés y riesgo de tipos de cambio.
+El sistema de organización debe delimitar claramente las funciones y responsabilidades, así como los niveles de dependencia e interrelación que les corresponden a cada una de las áreas involucradas en la realización de actividades relativas al riesgo de mercado, riesgo de tasas de interés y riesgo de tipos de cambio.
+La estrategia para la gestión del riesgo de mercado, el riesgo de tasas de interés y riesgo de tipos de cambio debe contemplar las pautas generales que las entidades aplicarán para gestionar dicho riesgo, así como el grado de capacidad de la entidad a los mismos.
+Todos estos aspectos de gestión del riesgo de mercado, riesgo de tasas de interés y riesgo de tipos de cambio deben estar contemplados en el Manual de Gestión Integral de Riesgos, aprobado por el Órgano de Dirección de la entidad.
 (Así adicionado en sesión N° 1712-2022 del 31 de enero de 2022)
+(Así modificada su numeración mediante sesión 1827-2023 del 16 de octubre del 2023, que lo traspasó del antiguo artículo 35 al artículo 46)

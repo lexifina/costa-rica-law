@@ -1,3 +1,9 @@
-Artículo 48. Monitoreo y Control,. La fijación de límites en cada uno de los segmentos establecidos en el artículo 46 debe ir acompañado de un esquema de monitoreo y control, que además permita identificar de manera oportuna los desvíos que se presenten respecto de los límites fijados, así como si los mismos se producen de manera activa (a partir de una transacción efectuada) o pasiva (cambios en las condiciones de mercado sin que tenga una operación asociada).
-El esquema de control también debe considerar la comunicación periódica, a la Gerencia pertinente, de los resultados del seguimiento a los límites y debe contemplar la definición y seguimiento de las medidas correctivas propuestas ante incumplimiento de los mismos.
+Artículo 48. Responsabilidad del Comité de Riesgos El Comité de Riesgos es el encargado de velar por una adecuada gestión del riesgo de mercado, riesgo de tasas de interés y riesgo de tipos de cambio en la entidad, por lo que debe:
+a) Evaluar, revisar y proponer para aprobación del Órgano de Dirección las estrategias, políticas, manuales y planes de continuidad del negocio de gestión del riesgo de mercado, riesgo de tasas de interés y riesgo de tipos de cambio.
+b) Supervisar que la gestión del riesgo de mercado, riesgo de tasas de interés y riesgo de tipos de cambio sea efectiva y que los eventos de riesgos sean consistentemente identificados, evaluados, mitigados y monitoreados.
+c) Proponer los mecanismos para la implementación de las acciones correctivas requeridas en caso de que existan desviaciones con respecto a los límites y el nivel de apetito al riesgo de mercado, riesgo de tasas de interés y riesgo de tipos de cambio.
+d) Aprobar las metodologías de gestión del riesgo de mercado, riesgo de tasas de interés y riesgo de tipos de cambio.
+e) Apoyar la labor de la Unidad de Gestión de Riesgos en la implementación de la gestión de riesgo de mercado, riesgo de tasas de interés y riesgo de tipos de cambio.
+f) Analizar las pruebas de estrés realizadas en la gestión de riesgo de mercado, riesgo de tasas de interés y riesgo de tipos de cambio.
 (Así adicionado en sesión N° 1712-2022 del 31 de enero de 2022)
+(Así modificada su numeración mediante sesión 1827-2023 del 16 de octubre del 2023, que lo traspasó del antiguo artículo 37 al artículo 48)

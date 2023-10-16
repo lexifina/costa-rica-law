@@ -1,7 +1,5 @@
-Artículo 45. Medición
-En el caso de utilizarse modelos de medición del riesgo de mercado, la entidad debe identificar adecuadamente los factores de riesgo de mercado que afectan los precios de las inversiones al valor razonable con cambios resultados o Inversiones al valor razonable con cambios en otro resultado integral entre otros, debe contemplarse las tasas de interés, tipos de cambio, riesgo de contraparte, y ser incorporados en los modelos de medición.
-Los modelos de medición deben estar integrados a la gestión diaria de las inversiones. Debe realizarse periódicamente testeos retrospectivos ("backtesting") del modelo de medición del riesgo de mercado que determinen su confiabilidad y la eventual necesidad de efectuar ajustes sobre el mismo.
-Para el caso de posiciones en moneda extranjera, debe contemplarse la volatilidad histórica y variaciones simuladas del tipo de cambio. En caso de contarse con exposiciones significativas en diferentes monedas extranjeras, debe realizarse mediciones individuales por moneda y agregadas, considerando el grado de correlación entre ellas.
-Para el caso de los activos en moneda extranjera que conforman la posición en moneda extranjera de la entidad, debe tenerse en cuenta la capacidad de los mismos de mantener su valor en moneda extranjera en contextos de una abrupta y significativa depreciación del tipo de cambio.
-Los modelos de medición del riesgo de mercado que sean utilizados, ya sea que hayan sido desarrollados por la propia entidad o contratados a terceros, deben estar adecuadamente documentados y comprendidos por las diferentes instancias que asumen posiciones de riesgo de mercado o controlan el mismo. Lo anterior abarca las variables relevantes, supuestos y limitaciones de los modelos de medición que sean empleados.
-(Así adicionado en sesión N° 1712-2022 del 31 de enero de 2022)
+SECCIÓN VI
+Requerimientos de información.
+Artículo 45.-Envío de Información
+La Sugef establecerá mediante el Sistema de Captura, Verificación y Carga de Datos (SICVECA) del Sistema Financiero los contenidos, formatos y medios para la remisión de la información concerniente al marco de regulación establecido en este Capítulo."
+(Así adicionado mediante sesión N° 1827-2023 del 16 de octubre del 2023)

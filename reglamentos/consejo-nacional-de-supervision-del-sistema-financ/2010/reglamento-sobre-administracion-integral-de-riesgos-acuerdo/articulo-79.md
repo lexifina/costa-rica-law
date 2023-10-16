@@ -1,3 +1,7 @@
-Artículo 79. Monitoreo e Información
-La entidad debe establecer, en su sistema de información, los indicadores y reportes que estime necesarios para realizar un seguimiento de su perfil de riesgo operativo. La periodicidad establecida del seguimiento debe permitir una adecuada retroalimentación sobre las acciones ejecutadas y sobre los cambios del perfil de riesgo operativo, de lo cual la entidad debe mantener evidencia. Dicha periodicidad no podrá ser mayor a seis meses.
+CAPÍTULO IV
+SISTEMAS DE INFORMACIÓN
+(Así adicionado el capítulo anterior en sesión N° 1712-2022 del 31 de enero de 2022)
+Artículo 79. Sistemas de información y mecanismos de comunicación interna La entidad debe contar con los sistemas de información y mecanismos de comunicación interna necesarios para la administración del riesgo de liquidez, los cuales, en congruencia con su grado de tolerancia al riesgo de liquidez, su estrategia de negocio y su perfil de riesgo, deben permitir la adecuada y oportuna comunicación interna de la posición de liquidez de la entidad y su exposición al riesgo de liquidez. El impacto en la liquidez de las diferentes operaciones y líneas de negocios deben ser comunicados en forma clara y oportuna a las áreas y dependencias involucradas.
+El Órgano de Dirección y el Comité de Riesgo deben ser informados en forma clara y oportuna sobre la posición de liquidez de la entidad y su exposición al riesgo de liquidez. Asimismo, los reportes pertinentes deben incluir las acciones correctivas y mejoras implementadas al proceso de administración de riesgo de liquidez, así como los resultados de las pruebas de estrés y de las pruebas y simulaciones de los planes de contingencia.
 (Así adicionado en sesión N° 1712-2022 del 31 de enero de 2022)
+(Así modificada su numeración mediante sesión 1827-2023 del 16 de octubre del 2023, que lo traspasó del antiguo artículo 68 al artículo 79)

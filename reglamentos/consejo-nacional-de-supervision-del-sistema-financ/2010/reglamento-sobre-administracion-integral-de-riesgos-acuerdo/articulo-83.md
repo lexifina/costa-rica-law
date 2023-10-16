@@ -1,11 +1,11 @@
-Artículo 83. Tercerización
-La entidad debe, según la complejidad, naturaleza y criticidad de los servicios contratados o subcontratados, establecer las políticas, procedimientos y controles necesarios para conducir el proceso de selección y contratación de proveedores de servicios, así como para monitorear los procesos o servicios subcontratados. La entidad debe cubrir, como mínimo, los siguientes aspectos:
-a) Definición de los criterios para la calificación y adecuada selección de proveedores.
-b) En el proceso de contratación:
-i. Legalidad y formalidad de los contratos.
-ii. Definición de los acuerdos del nivel de servicio, brindando especial cuidado al establecimiento de cláusulas referentes a la seguridad de la información, así como cláusulas ante incumplimientos a éstas.
-iii. Definición de las responsabilidades del proveedor y de la entidad.
-iv. Establecimiento de planes de contingencia y continuidad del servicio por parte del proveedor. La entidad debe considerar la inclusión de cláusulas sobre la disponibilidad del proveedor, de ser objeto de pruebas por parte de la entidad, sobre dichos planes, principalmente para el caso de los servicios críticos que están siendo tercerizados sean o no relacionados con Tecnologías de Información (TI).
-c) La gestión de los riesgos asociados con la subcontratación o con la tercerización.
-La entidad debe aplicar la diligencia debida al seleccionar posibles proveedores de servicios. Adicionalmente, la entidad debe considerar los controles aplicables a los servicios de tecnología de información suministrados por terceros, de conformidad con lo dispuesto en el Acuerdo SUGEF 14-17.
+TÍTULO VI.
+ADMINISTRACIÓN DEL RIESGO OPERATIVO
+(Así adicionado el título anterior en sesión N° 1712-2022 del 31 de enero de 2022)
+CAPÍTULO I.
+GOBIERNO CORPORATIVO DE LA GESTIÓN DE RIESGO OPERATIVO
+(Así adicionado el capítulo anterior en sesión N° 1712-2022 del 31 de enero de 2022)
+Artículo 83. Contexto de la gestión del riesgo operativo
+La entidad, de conformidad con lo dispuesto en este reglamento, debe contar con una estructura organizativa que le permita implementar efectivamente su estrategia para la gestión del riesgo operativo.
+El Órgano de Dirección, junto con la Alta Gerencia, deben velar por que las acciones y herramientas que desarrolle la entidad para la gestión del riesgo operativo estén plenamente integradas a su proceso institucional de administración integral de riesgos y que sean acordes con su tamaño, complejidad, volumen de sus operaciones y perfil de riesgo. En este sentido deben asignar los recursos necesarios para su implementación, sostenibilidad y mejora a través del tiempo.
 (Así adicionado en sesión N° 1712-2022 del 31 de enero de 2022)
+(Así modificada su numeración mediante sesión 1827-2023 del 16 de octubre del 2023, que lo traspasó del antiguo artículo 72 al artículo 83)

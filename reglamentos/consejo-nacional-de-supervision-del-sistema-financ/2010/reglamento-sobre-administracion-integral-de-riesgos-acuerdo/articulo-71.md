@@ -1,3 +1,7 @@
-Artículo 71. Supervisión de la liquidez en el marco de Supervisión Basada en Riesgos
-En congruencia con el enfoque de supervisión basado en riesgos, la Superintendencia verificará el grado de adecuación respecto a estas disposiciones, de los procesos internos de gestión del riesgo de liquidez de las entidades supervisadas.
+Artículo 71. Estrategia para la administración del riesgo de liquidez La Alta Gerencia debe implementar una estrategia que le permita, al menos:
+a) Contar con las pautas generales y las políticas específicas para administrar el riesgo de liquidez, de acuerdo con el nivel de tolerancia al riesgo de liquidez definido por
+el Órgano de Dirección.
+b) Proteger la solvencia financiera de la entidad y su capacidad para afrontar situaciones de estrés de liquidez.
+c) Solventar las necesidades de liquidez en situaciones normales, así como las situaciones que se puedan presentar en momentos de crisis.
 (Así adicionado en sesión N° 1712-2022 del 31 de enero de 2022)
+(Así modificada su numeración mediante sesión 1827-2023 del 16 de octubre del 2023, que lo traspasó del antiguo artículo 60 al artículo 71)

@@ -1,5 +1,9 @@
-Artículo 50. Estrategia La estrategia de gestión del riesgo de tasa de interés debe establecer las pautas generales que las entidades financieras aplicarán para administrar este riesgo, debiendo contemplar el objetivo de proteger la liquidez y solvencia, observar el nivel de apetito al riesgo como así también la capacidad para enfrentar situaciones de tensión en el mercado. Se deben enunciar las políticas específicas sobre aspectos particulares de la administración de este riesgo, tales como:
-a) El establecimiento de límites que reflejen el apetito de riesgo la tolerancia al riesgo de la entidad, éstos deben ser apropiados para su estrategia de negocios y su rol en el sistema financiero;
-b) La revisión del riesgo de tasa previo a la adquisición o lanzamiento de nuevos productos;
-c) La vinculación de este riesgo con el riesgo de liquidez y riesgo de crédito, entre otros.
+Artículo 50. Responsabilidad de la Unidad de Riesgos La Unidad de Riesgos es la encargada de implementar la metodología de gestión del riesgo de mercado, riesgo de tasas de interés y riesgo de tipos de cambio, por lo que deberá:
+a) Diseñar y someter a la aprobación del Órgano de Dirección, a través del Comité de Riesgos, las estrategias, políticas, manuales y planes de continuidad del negocio para la gestión del riesgo de mercado, riesgo de tasas de interés y riesgo de tipos de cambio.
+b) Diseñar y someter a la aprobación del Comité de Riesgos la metodología para la gestión del riesgo de mercado, riesgo de tasas de interés y riesgo de tipos de cambio.
+c) Apoyar y asistir técnicamente a las demás unidades de gestión para la implementación de la metodología del riesgo de mercado, riesgo de tasas de interés y riesgo de tipos de cambio.
+d) Elaborar un estudio sobre el impacto en el riesgo de mercado, riesgo de tasas de interés y riesgo de tipos de cambio de la entidad financiera, de manera previa al lanzamiento de nuevos productos o servicios.
+e) Realizar pruebas de estrés con respecto a los riesgos de mercado, riesgo de tasas de interés y riesgos de tipos de cambio, así como el impacto de estas pruebas en la suficiencia patrimonial de las entidades.
+f) Realizar un monitoreo periódico de los mercados que afecten los riesgos de mercado, los riesgos de tasas de interés y los riesgos de tipos de cambio.
 (Así adicionado en sesión N° 1712-2022 del 31 de enero de 2022)
+(Así modificada su numeración mediante sesión 1827-2023 del 16 de octubre del 2023, que lo traspasó del antiguo artículo 39 al artículo 50)

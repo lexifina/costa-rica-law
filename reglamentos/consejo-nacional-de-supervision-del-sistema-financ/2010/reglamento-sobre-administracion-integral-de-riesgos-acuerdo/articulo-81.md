@@ -1,8 +1,3 @@
-Artículo 81. Seguridad de la información
-La entidad debe contar con un sistema de gestión de la seguridad de la información, orientado a garantizar la integridad, confidencialidad y disponibilidad de la información. Para ello, debe cumplir como mínimo con los requerimientos establecidos en el Reglamento General de Gestión de la Tecnología de Información, Acuerdo SUGEF 14-17.
-Asimismo, con el propósito de resguardar la calidad de la información, su confidencialidad, integridad y disponibilidad, la entidad debe contar con políticas y procedimientos de gestión y seguridad de la información, que consideren entre otros aspectos:
-a) La autenticación para el acceso lógico a los sistemas y servicios informáticos internos y externos.
-b) La conservación ordenada, completa, íntegra, oportuna de la información y documentación (registros) que soporta las operaciones de la entidad.
-c) La divulgación y uso no autorizado de información confidencial o protegida por ley.
-El Superintendente establecerá, mediante Lineamientos Generales, requerimientos mínimos respecto a la autenticación de clientes y autorización de transacciones en la prestación de servicios financieros en ambientes de banca en línea.
+Artículo 81. Información de situaciones excepcionales El Gerente General o quien lo sustituya en su ausencia, deberá informar a la Superintendencia, sobre cualquier situación excepcional que esté afectando a la entidad en materia de liquidez. Entre otros aspectos, debe informar sobre los factores detonantes de la situación de liquidez y sobre las medidas que se implementaron o se planea implementar para corregir o enfrentar dicha situación. Lo anterior, deberá ser informado de conformidad con lo establecido en la Ley 7558.
 (Así adicionado en sesión N° 1712-2022 del 31 de enero de 2022)
+(Así modificada su numeración mediante sesión 1827-2023 del 16 de octubre del 2023, que lo traspasó del antiguo artículo 70 al artículo 81)

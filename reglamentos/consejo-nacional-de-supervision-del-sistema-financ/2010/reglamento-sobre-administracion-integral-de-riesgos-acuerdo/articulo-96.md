@@ -1,0 +1,3 @@
+Artículo 96. Riesgos operativos asociados a actividades específicas. La entidad debe considerar, en el ámbito de la gestión del riesgo operativo, los riesgos operativos asociados a las actividades de titularización, fideicomiso y de toma u ofrecimiento de productos derivados. En tales casos, la entidad debe considerar las leyes y reglamentos que al respecto regulan dichas actividades.
+(Así modificada la numeración en sesión N° 1715 del 14 de febrero de 2022)
+(Así modificada su numeración mediante sesión 1827-2023 del 16 de octubre del 2023, que lo traspasó del antiguo artículo 85 al artículo 96)

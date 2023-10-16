@@ -1,10 +1,3 @@
-TÍTULO VI.
-ADMINISTRACIÓN DEL RIESGO OPERATIVO
-(Así adicionado el título anterior en sesión N° 1712-2022 del 31 de enero de 2022)
-CAPÍTULO I.
-GOBIERNO CORPORATIVO DE LA GESTIÓN DE RIESGO OPERATIVO
-(Así adicionado el capítulo anterior en sesión N° 1712-2022 del 31 de enero de 2022)
-Artículo 72. Contexto de la gestión del riesgo operativo
-La entidad, de conformidad con lo dispuesto en este reglamento, debe contar con una estructura organizativa que le permita implementar efectivamente su estrategia para la gestión del riesgo operativo.
-El Órgano de Dirección, junto con la Alta Gerencia, deben velar por que las acciones y herramientas que desarrolle la entidad para la gestión del riesgo operativo estén plenamente integradas a su proceso institucional de administración integral de riesgos y que sean acordes con su tamaño, complejidad, volumen de sus operaciones y perfil de riesgo. En este sentido deben asignar los recursos necesarios para su implementación, sostenibilidad y mejora a través del tiempo.
+Artículo 72. Perfil de riesgo de liquidez de la entidad Cada entidad debe estar en capacidad de conocer su perfil de riesgo de liquidez. Dicho perfil debe expresar la visión de la propia entidad financiera sobre su exposición al riesgo de liquidez. El perfil de riesgo de la entidad debe ser congruente con el nivel de tolerancia al riesgo de liquidez, al modelo de negocio y al tipo de entidad de que se trate, por ejemplo, para el caso de entidades de capital variable, puede ser relevante el impacto tanto de aumentos como retiros de capital.
 (Así adicionado en sesión N° 1712-2022 del 31 de enero de 2022)
+(Así modificada su numeración mediante sesión 1827-2023 del 16 de octubre del 2023, que lo traspasó del antiguo artículo 61 al artículo 72)

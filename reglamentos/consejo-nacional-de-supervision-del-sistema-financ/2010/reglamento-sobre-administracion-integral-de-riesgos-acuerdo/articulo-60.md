@@ -1,6 +1,7 @@
-Artículo 60. Estrategia para la administración del riesgo de liquidez La Alta Gerencia debe implementar una estrategia que le permita, al menos:
-a) Contar con las pautas generales y las políticas específicas para administrar el riesgo de liquidez, de acuerdo con el nivel de tolerancia al riesgo de liquidez definido por
-el Órgano de Dirección.
-b) Proteger la solvencia financiera de la entidad y su capacidad para afrontar situaciones de estrés de liquidez.
-c) Solventar las necesidades de liquidez en situaciones normales, así como las situaciones que se puedan presentar en momentos de crisis.
+CAPITULO III
+DISPOSICIONES ESPECÍFICAS SOBRE GESTIÓN DE RIESGOS DE TASAS DE INTERÉS
+(Así adicionado el capítulo anterior en sesión N° 1712-2022 del 31 de enero de 2022)
+Artículo 60. Proceso para la gestión del riesgo tasas de interés El marco que las entidades establezcan para la gestión del riesgo de tasa de interés debe incluir las políticas, prácticas, procedimientos y estructuras organizativas para su adecuada gestión, acorde a su modelo de negocios, el cual debe ser proporcional a su tamaño, así como el volumen, las características y la complejidad de sus operaciones relacionadas con este riesgo. Adicionalmente, dicho marco debe estar en consonancia con el apetito por el riesgo, el perfil de riesgo y la importancia sistémica de la entidad.
+La gestión de este riesgo involucra una serie de procesos, entre ellos la administración de los descalces de tasa de interés, el análisis de la incertidumbre respecto de la tasa de interés a aplicar a los futuros flujos de fondos, los ajustes de tasa -incluyendo el uso de escenarios de tensión-, así como la consideración del riesgo de tasa que resulta del uso de modelos dinámicos que reflejan potenciales negocios futuros y decisiones empresariales.
 (Así adicionado en sesión N° 1712-2022 del 31 de enero de 2022)
+(Así modificada su numeración mediante sesión 1827-2023 del 16 de octubre del 2023, que lo traspasó del antiguo artículo 49 al artículo 60)

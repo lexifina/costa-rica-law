@@ -1,7 +1,7 @@
-Artículo 75. Identificación La entidad debe considerar al riesgo operativo como un riesgo relevante, inherente a la actividad financiera y objeto de gestión en su proceso de administración integral de riesgos.
-La entidad debe considerar en su gestión del riesgo operativo los siguientes factores de riesgo:
-a) Procesos,
-b) Recursos humanos (personas),
-c) Tecnología de información, y
-d) Eventos externos.
+Artículo 75. Medición del riesgo de liquidez
+La medición del riesgo de liquidez requiere de una metodología integral y prospectiva. La metodología es integral porque el riesgo de liquidez puede producirse como consecuencia de la interacción de otros tipos de riesgos, tales como los que se definen en la tipología de riesgos establecida en el "Reglamento sobre Administración Integral de Riesgos"; y es prospectiva porque, al igual que los otros riesgos, depende de la ocurrencia de posibles eventos futuros adversos.
+Los modelos que utilice la entidad para la medición del riesgo de liquidez deben contener, como mínimo, el fundamento teórico y marco conceptual que lo sustenta, los resultados que genera (y su contraste con los datos posteriores), ser revisados al menos anualmente y estar adecuadamente documentados.
+De manera complementaria, para la medición del riesgo de liquidez, la entidad debe identificar y utilizar indicadores y herramientas referidos a la liquidez diaria, la liquidez operativa y la liquidez estructural. Dichas herramientas e indicadores deberán tener su sustento teórico y conceptual debidamente documentado, y su idoneidad respecto a modelo de negocio de la entidad y las circunstancias del entorno económico deben ser revisadas al menos anualmente.
+Algunos de los indicadores y herramientas empleados para la medición del riesgo de liquidez son también utilizados para la determinación de la tolerancia al riesgo de liquidez y la fijación de límites internos.
 (Así adicionado en sesión N° 1712-2022 del 31 de enero de 2022)
+(Así modificada su numeración mediante sesión 1827-2023 del 16 de octubre del 2023, que lo traspasó del antiguo artículo 64 al artículo 75)

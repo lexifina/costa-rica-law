@@ -1,5 +1,18 @@
-CAPITULO II
-DISPOSICIONES ESPECÍFICAS SOBRE GESTIÓN DE RIESGOS DE MERCADO
-(Así adicionado el capítulo anterior en sesión N° 1712-2022 del 31 de enero de 2022)
-Artículo 41. Estrategia La estrategia de gestión del riesgo de mercado debe establecer las pautas generales que las entidades financieras aplicarán para gestionar este riesgo, para lo cual deben adoptar políticas, procedimientos y prácticas adecuadas, contemplando el objetivo de proteger la liquidez y solvencia, el nivel de apetito al riesgo establecido y la capacidad para enfrentar situaciones de tensión en el mercado. Las entidades deben tener en cuenta, al formular la estrategia, su estructura corporativa, las líneas de negocio clave y la diversidad de los mercados, monedas y productos con los que operan.
-(Así adicionado en sesión N° 1712-2022 del 31 de enero de 2022)
+SECCIÓN V
+Responsabilidades específicas sobre administración de riesgos ambientales y sociales (A&S) en la cartera de créditos y ambientales, sociales y de gobernanza (ASG) en el portafolio de inversiones.
+Artículo 41.-Responsabilidades del Órgano de Dirección El Órgano de Dirección tendrá las siguientes responsabilidades:
+a) Asegurar que los riesgos ambientales y sociales que subyacen en la cartera de créditos y los riesgos ASG en el portafolio de inversiones de la entidad, sean tratados con relevancia estratégica y rigor.
+b) Aprobar el marco de gestión establecido en este Capítulo IV de forma tal que el mismo esté claramente reflejado en la declaración de apetito de riesgo, objetivos, políticas, manuales y procedimientos que rigen el proceso de administración del riesgo de crédito.
+c) Aprobar políticas de gestión de inversiones sostenibles o responsables, procurando que parte de los recursos se puedan canalizar a actividades económicas o productivas que apoyen el desarrollo sostenible, mejoramiento del ambiente, así como establecer límites o prohibiciones para las inversiones que fomentan la fabricación de armamento o cualquier producto que pueda afectar negativamente a las personas y su entorno.
+d) Asegurar que se incorpore plenamente en el proceso de administración del riesgo de crédito, la identificación, evaluación, monitoreo, control y mitigación de los riesgos ambientales y sociales que subyacen en la cartera de créditos y de los riesgos ASG del portafolio de inversiones.
+e) Asegurar que el personal encargado de ejecutar el proceso de administración de riesgo de crédito cuente con conocimientos sobre riesgos ambientales y sociales, necesarios para el ejercicio apropiado de sus respectivas funciones.
+f) Promover una cultura de administración de riesgos sociales y ambientales que alcance a todas las instancias involucradas en el proceso de administración del riesgo de crédito de la entidad.
+g) Aprobar las metodologías para la evaluación de los riesgos A&S en la cartera de crédito para la identificación y categorización de los riesgos ambientales y sociales que subyacen en la cartera de créditos. En la aprobación de metodologías internas deberá hacerse constar expresamente que la metodología se basa en el SARAS.
+h) Asegurar que los sistemas de información y las bases de datos generen la información necesaria para apoyar la toma de decisiones dentro del marco de gestión establecido en este Capítulo.
+i) Aprobar la lista de exclusión y asegurar su divulgación a todas las instancias involucradas en el proceso de administración del riesgo de crédito de la entidad.
+j) Establecer mecanismos de divulgación a los clientes y las partes interesadas sobre la visión y el abordaje de la entidad sobre los riesgos ambientales y sociales que subyacen en la cartera de créditos y sobre los riesgos ASG del portafolio de inversiones.
+k) Velar por la asignación de los recursos necesarios y adecuados para la correcta implementación del marco de gestión establecido en este Capítulo.
+l) Mantenerse informado, con la periodicidad que el mismo Órgano defina, sobre la gestión y la exposición de riesgo de la entidad por riesgos ambientales y sociales subyacentes en la cartera de crédito y por riesgos ASG del portafolio de inversiones. El Órgano de Dirección debe dejar constancia en las Actas sobre la discusión de estos informes y las decisiones tomadas.
+m) Aprobar acciones de control y de mitigación de riesgo A&S para atender las desviaciones con respecto a la Declaración de Apetito de Riesgo y los incumplimientos de los límites aprobados.
+n) Ejercer la vigilancia sobre la Alta Gerencia respecto de la ejecución del marco de gestión establecido en este Capítulo.
+(Así adicionado mediante sesión N° 1827-2023 del 16 de octubre del 2023)

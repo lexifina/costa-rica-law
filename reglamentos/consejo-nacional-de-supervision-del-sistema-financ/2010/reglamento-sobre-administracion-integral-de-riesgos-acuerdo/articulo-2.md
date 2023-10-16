@@ -1,5 +1,5 @@
-Artículo 2. Ámbito de aplicación
-Las disposiciones establecidas en el presente Reglamento son de aplicación para todas las entidades supervisadas por la Superintendencia General de Entidades Financieras (en adelante “SUGEF”).
+Artículo 2. Ámbito de aplicación. Las disposiciones establecidas en el presente Reglamento son de aplicación para todas las entidades supervisadas por la Superintendencia General de Entidades Financieras (en adelante "Sugef"), con excepción de las casas de cambio.
+(Así reformado el párrafo anterior mediante sesión N° 1827-2023 del16 de octubre del 2023)
 En su aplicación la entidad debe velar para que las acciones y herramientas que desarrolle estén plenamente integradas a su proceso de administración de riesgos, y sean acordes con su enfoque de negocio, la complejidad, el volumen de operaciones, su perfil de riesgo y el entorno económico; asignando los recursos necesarios para su sostenibilidad y mejora a través del tiempo.
 Como parte del proceso de evaluación que realiza la Superintendencia sobre la calidad de la gestión, ésta determinará la idoneidad del proceso de administración integral de riesgos implantado por la entidad, en cuanto a su congruencia con el enfoque de negocio, la complejidad, el volumen de operaciones, el perfil de riesgo, el entorno económico de la entidad y el apego a las disposiciones establecidas en este Reglamento.
 (Así reformado mediante sesión N° 1058 del 19 de agosto de 2013)

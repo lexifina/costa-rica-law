@@ -1,3 +1,4 @@
-Artículo 82. Base de Datos
-La entidad debe conformar una base de datos para incidencias y una base de datos para eventos potenciales. Ambas bases deben contener, al menos, la información que establezca el Superintendente mediante Lineamientos Generales. La entidad, adicionalmente, puede incluir otros campos que requiera para su gestión; asimismo, la Órgano de Dirección de la entidad debe definir en sus políticas un monto mínimo de pérdida a partir del cual se registra una incidencia o evento potencial en la base de datos. En este último caso, la entidad debe definir los criterios que le permitan imputar un valor al evento en función de la información que se disponga.
+Artículo 82. Supervisión de la liquidez en el marco de Supervisión Basada en Riesgos
+En congruencia con el enfoque de supervisión basado en riesgos, la Superintendencia verificará el grado de adecuación respecto a estas disposiciones, de los procesos internos de gestión del riesgo de liquidez de las entidades supervisadas.
 (Así adicionado en sesión N° 1712-2022 del 31 de enero de 2022)
+(Así modificada su numeración mediante sesión 1827-2023 del 16 de octubre del 2023, que lo traspasó del antiguo artículo 71 al artículo 82)
