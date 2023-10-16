@@ -1,22 +1,67 @@
-Artículo 18, Entradas de efectivo totales
-Únicamente se debe incluir las entradas contractuales de efectivo esperadas para los próximos 30 días, procedentes de los créditos y las posiciones vigentes que estén al día en el pago de sus obligaciones y de las que no se espera un impago durante un horizonte temporal de 30 días o menos. Las entradas de efectivo relacionadas con ingresos no financieros no se toman en consideración al calcular las entradas de efectivo totales.
-Para el cálculo del indicador de cobertura de liquidez, las entradas de efectivo totales no deben ser mayores al 75% de las salidas de efectivo totales, calculados de acuerdo con lo dispuesto en el artículo anterior.
-No se deben considerar como entradas de efectivo las entradas contingentes, los depósitos operativos mantenidos en otras entidades financieras, según se definen en el artículo 17 anterior.
-Cuando corresponda, las entradas de efectivo deben incluir los intereses que se espera sean recibidos durante el horizonte temporal de 30 días.
-En la fecha de la determinación del indicador y para el periodo sujeto a determinación se deben considerar los siguientes conceptos y factores:
-a) Derechos por reporto, derechos de pacto de reporto tripartito, derechos por operaciones del mercado de dinero, mercado interbancario, operaciones diferidas de liquidez y otras operaciones del tipo pacto de recompra, según los siguientes factores:
-i. Factor del 0%: Garantizadas con activos de Nivel 1.
-ii. Factor del 15%: Garantizados con activos de Nivel 2.
-iii. Factor del 100%: Garantizados con otros activos diferentes de Nivel 1 y Nivel 2.
-b) Entradas procedentes de la cartera de crédito:
-i. Factor del 50%: entradas procedentes de clientes minoristas, MiPyMEs y clientes mayoristas diferentes de entidades financieras y bancos centrales.
-ii. Factor del 100%: entradas procedentes de entidades financieras y bancos centrales.
-c) Factor del 100%: entradas provenientes de instrumentos financieros distintos de los activos de Nivel 1 y Nivel 2, incluyendo los saldos de principal de aquellos que vencen dentro del periodo de 30 días.
-d) Factor del 100% de las entradas procedentes de derivados, determinados como la diferencia entre los derechos de cobro y las obligaciones pendientes de pago, cuando el saldo representa un flujo de efectivo a favor de la entidad supervisada.
-e) Factor del 100% de las entradas procedentes de participaciones en fondos de inversión abiertos del mercado de dinero, cuya política de inversión consignada en el prospecto requiera la inversión de la totalidad en cualesquiera de los siguientes instrumentos financieros:
-i. instrumentos de deuda, emitidos por el Gobierno Central de Costa Rica y/o el Banco Central de Costa Rica;
-ii. operaciones de reporto tripartito, negociados en la Bolsa Nacional de Valores, con instrumentos de garantía que solo sean instrumentos de deuda emitidos por el Gobierno Central de Costa Rica y/o el Banco Central de Costa Rica; e
-iii. instrumentos emitidos por Bancos Comerciales del Estado y bancos creados por leyes especiales, exceptuando los instrumentos financieros que pertenezcan al mismo grupo o conglomerado financiero.
-f) Factor del 100% de las entradas procedentes de los recursos a que hace referencia el inciso i) del Artículo 59 de la Ley Orgánica del Sistema Bancario Nacional, Ley 1644, vigente.
-g) Factor del 100% de los flujos de efectivo pendientes de cobro procedentes de instituciones financieras, cuando el origen de los fondos es diferente a lo dispuesto en los literales anteriores.
+Artículo 18, Salidas de efectivo totales. Los pasivos deberán dividirse en pasivos minoristas, que corresponden a los realizados por personas físicas, y pasivos mayoristas que corresponden a todos aquellos realizados por sociedades de hecho, de cometido especial o de derecho; así como gobiernos centrales, bancos centrales y entidades del sector público nacionales y extranjeros.
+En la fecha de cálculo del indicador se deben considerar las salidas de efectivo contractuales esperadas para los próximos 30 días.
+Las salidas relativas a gastos de explotación no se incluyen en este reglamento, tales como gastos de personal, gastos de infraestructura y administración.
+Se debe considerar como depósitos estables el monto de los depósitos que están totalmente cubiertos por el Fondo de Garantía de Depósitos creado mediante Ley 9816, y como depósitos menos estables los depósitos que no están cubiertos por dicho Fondo de Garantía de Depósitos.
+(Así adicionado el párrafo anterior en sesión N° 1827 del 16 de octubre de 2023)
+Las entidades supervisadas que se encuentran fuera del alcance de la Ley de Creación del Fondo de Garantía de Depósitos y de Mecanismos de Resolución de Intermediarios Financieros, Ley 9816, deben categorizar todos los depósitos minoristas y los depósitos efectuados por MiPyME como menos estables, independientemente de que existan otros mecanismos de garantía públicos o privados.
+(Así adicionado el párrafo anterior en sesión N° 1827 del 16 de octubre de 2023)
+Cuando corresponda, las salidas de efectivo deben incluir los intereses que se espera sean pagados durante el horizonte temporal de 30 días.
+(Así modificada la numeración del párrafo anterior en sesión N° 1827 del 16 de octubre de 2023, que lo traspaso del antiguo párrafo cuarto al párrafo sexto)
+A) Pasivos minoristas:
+i. Factor del 0%. Depósitos a plazo, con vencimiento residual superior a 30 días y sin posibilidad explícita contractual de cancelación anticipada por parte del cliente dentro de los próximos 30 días.
+ii. Factor del 0%. Otras obligaciones con vencimiento superior a 30 días y sin posibilidad explícita contractual de cancelación anticipada por parte del cliente dentro de los próximos 30 días.
+iii. Factor del 5%. Depósitos a la vista y depósitos a plazo, estables con vencimiento residual inferior o igual a 30 días o, teniendo un plazo residual superior a 30 días, el cliente cuenta con la posibilidad explícita contractual de obtener la cancelación anticipada dentro de los próximos 30 días.
+iv. Factor del 10%. Depósitos menos estables a la vista y depósitos menos estables a plazo con vencimiento residual inferior o igual a 30 días o, teniendo un plazo residual superior a 30 días, el cliente cuenta con la posibilidad explícita contractual de obtener la cancelación anticipada dentro de los próximos 30 días.
+v. Factor del 100%. Otras obligaciones a la vista, otras obligaciones con vencimiento inferior o igual a 30 días y obligaciones con plazo indeterminado.
+(Así reformado el inciso a) anterior en sesión N° 1827 del 16 de octubre de 2023)
+B) Pasivos mayoristas no garantizados por derechos legales sobre activos identificados propiedad de la entidad.
+i. Factor del 0%. Todas las contrapartes: depósitos a plazo, con vencimiento residual superior a 30 días y sin posibilidad explícita contractual de cancelación anticipada por el cliente, dentro de los próximos 30 días.
+ii. Factor del 0%. Todas las contrapartes: otras obligaciones con vencimiento superior a 30 días y sin posibilidad explícita contractual de cancelación anticipada por parte del cliente dentro de los próximos 30 días.
+iii. Factor del 5%. Contrapartes que califiquen como MiPyME de acuerdo con lo dispuesto en el Reglamento General a la Ley 8262 de Fortalecimiento a las Pequeñas y Medianas Empresas: depósitos a la vista y depósitos a plazo estables con vencimiento residual inferior o igual a 30 días o, teniendo un plazo residual superior a 30 días, el cliente cuenta con la posibilidad explícita contractual de obtener la cancelación anticipada dentro de los próximos 30 días.
+iv. Factor del 10%. Contrapartes que califiquen como MiPyME de acuerdo con lo dispuesto en el Reglamento General a la Ley 8262 de Fortalecimiento a las Pequeñas y Medianas Empresas: depósitos a la vista y depósitos a plazo menos estables con vencimiento residual inferior o igual a 30 días o, teniendo un plazo residual superior a 30 días, el cliente cuenta con la posibilidad explícita contractual de obtener la cancelación anticipada dentro de los próximos 30 días.
+v. Factor del 25%. Depósitos operativos, todas las cuentas por pagar por servicios bursátiles y gestión de tesorería, depósitos a la vista y depósitos a plazo con vencimiento residual inferior o igual a 30 días o, teniendo un plazo residual superior a 30 días, el cliente cuenta con la posibilidad explícita contractual de obtener la cancelación anticipada dentro de los próximos 30 días.
+Los tipos de actividades que pueden generar depósitos operativos se enumeran seguidamente, no obstante, la entidad debe evaluar si su presencia en dicha actividad realmente genera un depósito operativo, dado que no todas estas actividades califican debido a diferencias en el tipo de dependencia, actividades y prácticas del cliente.
+1. Actividades de compensación: Estos servicios se limitan a las siguientes actividades: transmisión, conciliación y confirmación de órdenes de pago; crédito intradía; financiamiento a un día y mantenimiento de las posiciones posteriores a la liquidación; y determinación de las posiciones de liquidación intradía y finales.
+2. Actividades de custodia: Estos servicios se limitan a la liquidación de transacciones de valores, la transferencia de pagos contractuales, el procesamiento de las garantías y la prestación de servicios de gestión de tesorería relacionados con la custodia. También incluyen la percepción de dividendos y de otros ingresos, así como las suscripciones y amortizaciones por cuenta de clientes. Los servicios de custodia pueden extenderse además a la provisión de servicios de gestión fiduciaria de activos y empresas, tesorería, contratos de plica, transferencia de fondos, transferencia de acciones y servicios de agencia, incluidos servicios de pago y liquidación (excluida banca corresponsal) y certificados de depósito.
+3. Actividades de gestión de tesorería: Estos servicios se limitan a la transferencia de pagos, la recaudación y agrupación de fondos, la administración de nóminas y el control del desembolso de fondos.
+El factor de 25% no podrá aplicarse a las posiciones excedentes que puedan ser retiradas dejando suficientes fondos para satisfacer estas actividades de compensación, custodia o gestión de tesorería. El saldo de los depósitos excedentes deberá imputarse a los acápites siguientes, según corresponda.
+vi. Factor del 40%. Todas las contrapartes, excepto empresas financieras y las contrapartes incluidas en el numeral vii) siguiente, sin relaciones operativas específicas: depósitos a la vista y depósitos a plazo con vencimiento residual inferior o igual a 30 días o, teniendo un plazo residual superior a 30 días, el cliente cuenta con la posibilidad explícita contractual de obtener la cancelación anticipada dentro de los próximos 30 días.
+vii. Factor del 100%. Contrapartes empresas financieras y otras contrapartes expresamente indicadas, sin relaciones operativas específicas: depósitos a la vista y depósitos a plazo con vencimiento residual inferior o igual a 30 días o, teniendo un plazo residual superior a 30 días, el cliente cuenta con la posibilidad explícita contractual de obtener la cancelación anticipada dentro de los próximos 30 días. Se consideran empresas financieras como bancos, financieras, mutuales, cooperativas, sociedades de valores, empresas de seguros, operadoras de pensiones y entidades del mismo grupo financiero, entre otros. Además, se consideran otras contrapartes como fondos de pensiones, fondos de inversión, fondos de capitalización laboral, otros vehículos de inversión colectiva y vehículos de propósito especial.
+viii. Factor del 100%. Todas las contrapartes: Otras obligaciones a la vista, otras obligaciones con vencimiento inferior o igual a 30 días y obligaciones con plazo indeterminado.
+(Así reformado el inciso b) anterior en sesión N° 1827 del 16 de octubre de 2023)
+C) Pasivos mayoristas garantizados por derechos legales sobre activos propiedad de la entidad, específicamente designados, con vencimiento de hasta 30 días o menos, excepto operaciones del tipo pacto de recompra, a los cuales se les aplicarán los siguientes factores:
+i. Factor del 0%: obligaciones respaldadas por activos que califiquen en Nivel 1, con cualquier contraparte.
+ii. Factor del 15%: obligaciones respaldadas por activos que califiquen Nivel 2, con cualquier contraparte.
+iii. Factor del 25%: obligaciones respaldadas por activos no incluidos en el Nivel 1 o Nivel 2, con contrapartes que son el Gobierno Central de Costa Rica, Entidades del Sector Público de Costa Rica o bancos multilaterales de desarrollo.
+iv. Factor del 100%: obligaciones respaldadas por activos no incluidos en el Nivel 1 o Nivel 2, con otras contrapartes.
+En caso de que los activos garanticen parcialmente las obligaciones, se aplicará lo dispuesto en el presente literal por hasta el monto garantizado, correspondiendo para el saldo remanente la aplicación de los restantes literales, según corresponda.
+D) Obligaciones de reporto, obligaciones de pacto de reporto tripartito, obligaciones del mercado de dinero y del mercado interbancario, obligaciones por operaciones diferidas de liquidez, y otras obligaciones por operaciones del tipo pacto de recompra, según los siguientes factores:
+i. Factor del 0%: Garantizadas con activos de Nivel 1 y Nivel 2.
+ii. Factor de 100%: Garantizados con otros activos diferentes de Nivel 1 y Nivel 2.
+E) Factor del 100%: Salidas pendientes de pago procedentes de derivados, determinados como la diferencia entre las obligaciones pendientes de pago y los derechos de cobro, cuando el saldo implica una obligación para la entidad supervisada.
+Las salidas de efectivo relacionadas con instrumentos financieros derivados con vencimiento residual menor o igual a 30 días se calculan sobre una base neta por contraparte (es decir, las entradas podrán compensar las salidas de efectivo), sólo cuando exista un acuerdo válido de compensación.
+El cálculo debe excluir los requerimientos de liquidez que resultarían de un incremento en la necesidad de constituir garantías como consecuencia de movimientos en los valores de mercado o caídas en el valor de la garantía integrada.
+Las operaciones con derivados pactadas bajo la modalidad de liquidación contra entrega ("delivery"), se deben descomponer según las posiciones activas y pasivas de acuerdo con los términos del contrato.
+Las opciones se ejercen cuando están "in the money" desde el punto de vista del comprador de la opción.
+El derecho de cobro se debe registrar como una entrada de efectivo en la moneda que se recibe, en tanto la obligación de pago se registra como una salida de efectivo en la moneda que se entrega.
+F) Factor del 100%: Dividendos comunes y preferentes, excedentes e intereses de deuda subordinada, con vencimiento de hasta 30 días o menos.
+G) Facilidades de crédito o de liquidez en las que medie un compromiso contingente para proveer fondos, tales como, líneas de crédito de utilización automática, líneas de crédito con compromiso contractual de desembolso y créditos pendientes con compromiso contractual de desembolso.
+i. Factor del 5%:
+a) Saldo no utilizado de líneas de crédito y facilidades de liquidez de utilización automática con clientes minoristas;
+b) Saldo no utilizado de líneas de crédito y facilidades de liquidez con MiPyME, según lo dispuesto en el Reglamento General a la Ley Nº 8262 de Fortalecimiento a las Pequeñas y Medianas Empresas.
+Independientemente de la moneda en que esté denominado el límite de la línea crédito de utilización automática de clientes minoristas, su utilización debe computarse en moneda nacional o en moneda extranjera en la proporción en la que los clientes minoristas utilicen los saldos en las respectivas monedas.
+ii. Factor del 10%: Saldo no utilizado de las facilidades de crédito con entidades no financieras, el gobierno, bancos centrales, entidades del sector público y bancos multilaterales de desarrollo.
+iii. Factor del 30%: Saldo no utilizado de las facilidades de liquidez con entidades no financieras, entidades del sector público y bancos multilaterales.
+iv. Factor del 40%: Saldo no utilizado de las líneas de crédito y facilidades de liquidez con entidades financieras supervisadas por la SUGEF.
+v. Factor del 40%: Saldo no utilizado de las líneas de crédito con entidades financieras supervisadas por SUGEVAL, SUGESE y SUPEN.
+vi. Factor del 100%: Saldo no utilizado de las facilidades de liquidez con entidades financieras supervisadas por SUGEVAL, SUGESE y SUPEN.
+vii. Factor del 100%: Saldo no utilizado de las líneas de crédito y facilidades de liquidez con entidades no incluidas en los acápites inmediatos anteriores.
+H) Cartas de crédito emitidas y cartas de crédito confirmadas:
+i. Factor del 100%: cartas de crédito cuyo pago programado opera en un plazo inferior o igual a 30 días.
+ii. Factor del 0%: cartas de crédito cuyo pago programado opera en un plazo mayor a 30 días.
+I) Otras contingencias, tales como avales, garantías de cumplimiento, garantías de participación, y fianzas, las cuales se describen a continuación con los factores mínimos correspondientes:
+i. Factor del 0%: contingencias cuya ejecución contractual no se realizará dentro de los próximos 30 días.
+ii. Factor del 5%: contingencias cuya ejecución contractual se realizará dentro de los próximos 30 días.
+Los factores se aplican sobre los saldos sin depósito previo.
 (Así reformado en sesión N° 1433 del 30 de julio de 2018)
+(Así modificada su numeración mediante sesión 1827-2023 del 16 de octubre del 2023, que lo traspasó del antiguo artículo 17 al artículo 18)

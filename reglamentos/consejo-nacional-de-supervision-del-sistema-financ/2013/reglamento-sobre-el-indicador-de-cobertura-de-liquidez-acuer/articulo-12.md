@@ -1,1 +1,3 @@
-Artículo 12.-Medición del riesgo de liquidez. (Derogado el capítulo anterior por el artículo 87(actual 88) del Reglamento sobre Administración Integral de Riesgos (ACUERDO SUGEF 2-10), aprobado en sesión N° 862 del 25 de junio de 2010)
+Artículo 12. Operaciones del tipo pacto de Recompra
+Cuando las entidades se financien mediante operaciones del tipo pacto de recompra, todos los activos que respaldan estas operaciones y que le restan menos de seis meses para su vencimiento, se les podrá asignar el mismo factor que se le asigna a un activo equivalente que no se encuentra comprometido.
+(Así reformado mediante sesión 1827-2023 del 16 de octubre del 2023)
