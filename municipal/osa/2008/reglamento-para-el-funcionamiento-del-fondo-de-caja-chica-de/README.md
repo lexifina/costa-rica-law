@@ -18,3 +18,4 @@ Reglamento para el funcionamiento del fondo de caja chica de la Municipalidad de
 | 3 | 2018-05-02 | Reglamento municipal 18 (2018-05-02) |
 | 4 | 2018-12-19 | Reglamento municipal 51 (2018-12-19) |
 | 5 | 2021-05-05 | Reglamento municipal 53 (2021-05-05) |
+| 6 | 2023-10-16 | Reglamento municipal 0 (2023-10-16) |
