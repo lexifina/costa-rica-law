@@ -22,3 +22,4 @@ Reglamento sobre el Indicador de Cobertura de Liquidez (Acuerdo N° 17-13)
 | 7 | 2020-11-02 | Reglamento 1617 (2020-11-02) |
 | 8 | 2021-11-01 | Reglamento 1697 (2021-11-01) |
 | 9 | 2022-01-31 | Reglamento 862 (2010-06-25) |
+| 10 | 2023-10-16 | Reglamento 1827 (2023-10-16) |
