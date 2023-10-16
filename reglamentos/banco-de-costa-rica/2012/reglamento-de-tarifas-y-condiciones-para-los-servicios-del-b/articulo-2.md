@@ -119,6 +119,14 @@ $4.00 por cada movimiento (débitos y créditos) sean estos físicos o electrón
 2.21.-Órdenes de pago (transferencia) a otras oficinas bancarias (Derogado mediante sesión N° 48-2020 del 24 de noviembre del 2020)
 (Así reformado el punto 2.21) anterior mediante sesión N° 62-18 del 10 de diciembre del 2018)
 2.22.-Servicio de investigación de documentos o información que solicitan los clientes, para localizar comprobantes de caja y otros
+(Nota de Sinalevi: Mediante sesión N° 36-23 del 16 de octubre del 2023 se reforma el punto 2.2 anterior. No obstante, al no coincidir el texto con la reforma el mismo se transcribe a continuación:
+"2.22 Comisión por retiros masivos de sumas en expedientes judiciales en ventanilla.
+Se cobrará USD 2,00 por cada retiro en ventanilla.
+Nota:
+Se considera un retiro masivo a partir de 10 retiros.
+Excepciones de cobro:
+a. Los casos que provienen de pensiones alimenticias y alquileres.
+b. Personas físicas.")
 2.22.1 $6.00 las primeras 6 páginas de microfilm y $1.20 por cada página adicional.
 2.22.2 Comprobantes de caja, imágenes digitalizadas y otros $2.00 máximo tres copias, $0.50 por cada copia adicional.
 (Así reformado el punto 2.22) anterior mediante sesión N° 62-18 del 10 de diciembre del 2018)
@@ -156,6 +164,11 @@ o Los pagos por servicios que se realicen por medio de las plataformas electrón
 2.31.- Cobro de comisión por cheques tramitados a través de la Cámara de Compensación
 $3.00 por cada cheque BCR tramitado a través de Cámara de Compensación y que utilice la plataforma del BCCR.
 (Así reformado el punto2.31) anterior mediante sesión N° 48-2020 del 24 de noviembre del 2020)
+(Nota de Sinalevi: Mediante sesión N° 36-23 del 16 de octubre del 2023 se reforma el punto 2.31 anterior. No obstante, al no coincidir el texto con la reforma el mismo se transcribe a continuación:
+"2.31 Informes confidenciales, constancias y certificaciones
+a. Por medio de canales digitales: USD 5,00 cada una.
+b. Por medio de canales presenciales USD 10,00 cada una.
+Para el cobro de esta comisión se debe aplicar + el IVA.")
 2.32.- Cobros por depósitos masivos en cuentas depositadas desde el canal Tucán
 $2.00 por cada depósito o nota de crédito sean estos físicos o electrónicos, a todas las cuentas bancarias que se compruebe que están recibiendo más de 50 acreditaciones mensuales, durante el último mes, desde puntos Tucán. El cobro se realizará por la totalidad de acreditaciones recibidas en la cuenta (a partir del depósito 1).
 (Así reformado el punto anterior mediante sesión N° 62-18 del 10 de diciembre del 2018)
@@ -188,6 +201,11 @@ Por cada 1.000 formulas se cobrara un monto de $25.00 dólares o su equivalente 
 2.36.- Comisión por planilla mediante depósitos en ventanilla
 El cliente podrá solicitar cuatro depósitos sin costo adicional. Las solicitudes de cinco o más depósitos se consideran una planilla, por lo que tendrá un costo de $1.00 por cada depósito realizado.
 (Así reformado el punto anterior en sesión N° 21 del 23 de mayo de 2016)
+(Nota de Sinalevi: Mediante sesión N° 36-23 del 16 de octubre del 2023 se reforma el punto 2.36 anterior. No obstante, al no coincidir el texto con la reforma el mismo se transcribe a continuación:
+"2.36 Comisión por depósitos en efectivo en dólares americanos
+0,65% sobre todos los depósitos recibidos en efectivo en ventanilla de oficinas comerciales en dólares americanos.
+Nota:
+Aplica para depósitos por un monto mayor o igual a USD 2.000,00.")
 (Nota de Sinalevi: Mediante sesión N° 62-18 del 10 de diciembre del 2018, se reforma el punto 2.36) anterior. No obstante al no coincidir el texto con la reforma la misma se transcribe a continuación: "2.36.- Servicio de recolección o entrega de valores a oficinas BCR por medio de la transportadora BCR o privada.
 1.Para oficinas cuyas solicitudes son recibidas y enviadas desde las tesorerías regionales ubicadas en la Gran Área Metropolitana (GAM),
 a)$20.00 remeseras propias.
@@ -218,7 +236,7 @@ Cuadro 4
 Cuadro 5
 ")
 (Así reformado el punto 2.37) anterior en sesión N° 07-16 del 8 de febrero del 2016)
-(Nota de Sinalevi: Mediante sesión N° 48-2020 del 24 de noviembre del 2020 se ordena derogar el punto 2.37. denominado Servicio de atención de ATM a oficinas BCR por medio de la transportadora BCR o privadas. No obstante al no coincidir no se realizó la abrogación y se transcribe)
+(Nota de Sinalevi: Mediante sesión N° 48-2020 del 24 de noviembre del 2020 se ordena derogar el punto 2.37. denominado Servicio de atención de ATM a oficinas BCR por medio de la transportadora BCR o privadas. No obstante, al no coincidir no se realizó la abrogación y se transcribe)
 2.38.- Comisión por retiro anticipado de un plan de ahorro automático
 Aplica la comisión del 3% sobre la totalidad del saldo ahorrado (principal más intereses), para los planes de ahorro automático cuyo plazo sea superior a 6 meses y se cancelen antes de los 181 días de permanencia.
 (Así reformado el punto 2.38) anterior en sesión 21 del 23 de mayo del 2016)
@@ -242,4 +260,4 @@ $1.00 el primer año y $0.5 de incremento adicional por cada año consecutivamen
 2.44.- Pago de cheque viajero
 En colones: 1%, mínima $2.00. Esta comisión se cobra sobre el monto del cheque
 (Así adicionado el punto 2.44 anterior mediante sesión 24-13 del 24 de junio del 2013)
-(Así reformado el punto 2.44) anterior mediante sesión N° 43-14 del 6 de octubre del 2014. No obstante la reforma indica que es al punto 2.43) el texto coincide con el punto 2.44))
+(Así reformado el punto 2.44) anterior mediante sesión N° 43-14 del 6 de octubre del 2014. No obstante, la reforma indica que es al punto 2.43) el texto coincide con el punto 2.44))

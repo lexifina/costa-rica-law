@@ -12,15 +12,22 @@ Nota:
 [.]
 Este porcentaje de comisión deberá ser avalado por la Oficina de Custodia Física de Valores y Garantías, antes que el área comercial presente el crédito para su aprobación, ante el Órgano Resolutor correspondiente.")
 (Nota de Sinalevi: Mediante sesión N° 45-21 del 19 de octubre del 2021 se reforma el punto 6.1.7. No obstante al no coincidir la reforma la misma se transcribe a continuación: "6.1.7 Tarifas por movimientos (mercado local), servicios complementarios:
-[imagen]
 Nota:
 La comisión de liquidación automática de movimientos de efectivo contempla todas las transacciones que lleven un débito o un crédito en una cuenta bancaria del BCR.
 Para el cobro de esta comisión se debe aplicar el IVA.")
+(Nota de Sinalevi: Mediante sesión N° 36 del 16 de octubre de 2023, se acordó reformar el punto 6.1.7). al no coincidir la reformar con el texto a reformar se trascribe la misma: "
+6.1.7 Tarifas por movimientos (mercado local), servicios complementarios:
+Movimiento | Comisión
+Traspasos no onerosos | USD 25,00
+Emisión de constancias de saldos | USD 15,00
+Emisión de certificaciones de saldos | USD 15,00
+Liquidación automática de movimientos de efectivo* | USD 0,50
+Nota:
+Esta comisión corresponde a movimientos tipo suscripción y redención para sociedades de fondos de inversión.
+Para el cobro de esta comisión se debe aplicar el IVA. ")
 (Nota de Sinalevi: Mediante sesión N° 45-21 del 19 de octubre del 2021 se reforma el punto 6.1.9. No obstante al no coincidir la reforma la misma se transcribe a continuación: "6.1.9 Tarifas por movimientos (custodio internacional):
-[imagen]
 Para el cobro de esta comisión se debe aplicar + el IVA.")
 (Nota de Sinalevi: Mediante sesión N° 45-21 del 19 de octubre del 2021 se reforma el punto 6.1.11. No obstante al no coincidir la reforma la misma se transcribe a continuación: "6.1.11 Inclusión de órdenes Mercado Primario:
-[imagen]
 Notas:
 a-La emisión del título valor debe ser en colones o su equivalente en dólares.
 b-La comisión por la emisión del título valor debe ser en función a la moneda del título valor.
@@ -39,9 +46,15 @@ De $250.001.00 hasta $1.000.000.00 0.30% anual + IVA
 De$1.000.001.00 hasta $10.000.000.00 0.20% anual + IVA
 Mayor a $10.000.001.00 0.15% anual + IVA
 (Así reformado el punto 6.2.1) anterior en sesión N° 48-2020 del 24 de noviembre del 2020)
+(Nota de Sinalevi: Mediante sesión N° 36-23 del 16 de octubre del 2023 se reforma el punto 6.2.1 anterior. No obstante, al no coincidir el texto con la reforma el mismo se transcribe a continuación:
+"6.2.1 Apertura y Formalización
+La comisión se define mediante análisis de costos y viabilidad considerando las especificaciones del cliente a conveniencia de las partes y se detalla en las cláusulas del contrato suscrito entre el Banco y el cliente.")
 6.2.2 Títulos Valores de pensionados extranjeros
 Servicio que se brinda a pensionados extranjeros, en los contratos para residente rentista y residente pensionados.
 0.25% anual sobre el principal. Aplicar el cálculo sobre saldos.
+(Nota de Sinalevi: Mediante sesión N° 36-23 del 16 de octubre del 2023 se reforma el punto 6.2.2 anterior. No obstante, al no coincidir el texto con la reforma el mismo se transcribe a continuación:
+"6.2.2 Tipos de Fideicomisos
+La comisión se define mediante análisis de costos y viabilidad considerando las especificaciones del cliente a conveniencia de las partes y se detalla en las cláusulas del contrato suscrito entre el Banco y el cliente.")
 6.2.3.- Custodia de objetos en paquetes cerrados, o cajas solicitadas por el cliente
 Por bulto de 3.000 cm3 o menos $100.00 anuales.
 Por cm3 adicional $0.05 anual o su equivalente en colones.
@@ -65,15 +78,20 @@ Otros costos adicionales generados por solicitud de los clientes, y no estén co
 (Así reformado el punto 6.2.6) anterior mediante sesión N° 03-17 del 18 de enero del 2017)
 Custodia electrónica de valores
 Por servicios de custodia local
-6.2.7 6.1.7 Tarifas por movimientos (mercado local), servicios complementarios:
-[imagen]
+6.2.7 Tarifas por movimientos (mercado local), servicios complementarios:
+Movimiento | Comisión
+Traspasos no onerosos | USD 25,00
+Emisión de constancias de saldos | USD 15,00
+Emisión de certificaciones de saldos | USD 15,00
+Liquidación automática de movimientos de efectivo* | USD 0,50
+Nota:
+Esta comisión corresponde a movimientos tipo suscripción y redención para sociedades de fondos de inversión.
 Para el cobro de esta comisión se debe aplicar el IVA.
-(Así reformado el punto 6.2.7 anterior mediante sesión N° 48-2020 del 24 de noviembre del 2020)
+(Así reformado el punto 6.2.7 anterior mediante sesión N° 36-23 del 16 de octubre del 2023. En la reforma dice punto 6.1.7 no obstante la numeración no coincide y del análisis integral de la norma se deduce que el punto a reformar es el 6.2.7 anterior)
 6.2.8 Tarifas custodia internacional sobre el saldo promedio de valores administrados:
 Se aplicará sobre el saldo promedio mensual 0.0035% + IVA
 (Así reformado el punto 6.2.8) anterior en sesión N° 48-2020 del 24 de noviembre del 2020)
 6.2.9 Tarifas por movimientos (custodio internacional):
-[imagen]
 Para el cobro de esta comisión se debe aplicar + el IVA.
 (Así reformado el punto 6.2.9) anterior mediante sesión N° 48-2020 del 24 de noviembre del 2020)
 6.2.10 Por custodia de macrotítulos de emisiones privadas (Derogado este punto mediante sesión N° 24-2020 del 23 de junio del 2020)
@@ -117,6 +135,9 @@ $100.000.00 + IVA personas físicas
 $500.000.00 + IVA a personas jurídicas e instituciones.
 Montos menores sujetos a negociación por BCR-Fideicomiso.
 (*)(Así reformado el párrafo anterior mediante sesión N° 48-2020 del 24 de noviembre del 2020)
+(Nota de Sinalevi: Mediante sesión N° 36-23 del 16 de octubre del 2023 se reforma el punto 6.3.1 anterior. No obstante, al no coincidir el texto con la reforma el mismo se transcribe a continuación:
+"6.3.1 Mandatos de administración e inversión (figura con servicios semejantes fideicomiso)
+La comisión se define mediante análisis de costos y viabilidad considerando las especificaciones del cliente a conveniencia de las partes y se detalla en las cláusulas del contrato suscrito entre el Banco y el cliente.")
 6.3.2.- Fideicomisos de Administración y otros tipos
 -Fideicomisos de Administración e Inversión
 -Fideicomisos de Titularización
@@ -158,11 +179,11 @@ $100.00 por cajita + IVA
 Nota:
 Esta tarifa se cobrará a aquellos clientes que no han pagado la cajita de seguridad. Cuando se presenten a retirar sus bienes se les cobrará esta comisión más la comisión de custodia.
 6.6.- Comisión de éxito
-Hasta 1% se cobra sobre el monto total del apalancamiento que una entidad bancaria le otorgue al proyecto, siempre que dentro de los términos de negociación previos, así se haya establecido y acordado + IVA.
-(Así reformado el punto 6.6) anterior mediante sesión N° 48-2020 del 24 de noviembre del 2020)
-6.7.- Comisión por diseño y estructura de emisión privada de valores a corto y mediano plazo:
-Hasta 1% se cobra sobre el monto total o valor facial de la emisión privada de valores
-Se colocarán en un selecto grupo de no más de 50 inversionistas sofisticados, para financiar principalmente capital de trabajo de proyectos mientras el apalancamiento total de largo plazo se concreta.
+La comisión se define de forma contractual a conveniencia de las partes y se detalla en las cláusulas del contrato suscrito entre el Banco y el cliente.
+(Así reformado el punto 6.6 anterior mediante sesión N° 36-23 del 16 de octubre del 2023. En la reforma dice punto 6.5 no obstante la numeración no coincide y del análisis se deduce que el punto a reformar es el 6.6 anterior)
+6.7.- Comisión por diseño y estructura de emisión privada de valores a corto y mediano plazo
+La comisión se define de forma contractual a conveniencia de las partes y se detalla en las cláusulas del contrato suscrito entre el Banco y el cliente.
+(Así reformado el punto 6.7 anterior mediante sesión N° 36-23 del 16 de octubre del 2023. En la reforma dice punto 6.6 no obstante la numeración no coincide y del análisis se deduce que el punto a reformar es el 6.7 anterior)
 6.8.-Bloqueo de sala Ceval (arqueo de títulos)
 - Costo por hora: $100.00 + IVA
 (Así adicionado el punto anterior mediante sesión 24-13 del 24 de junio del 2013)

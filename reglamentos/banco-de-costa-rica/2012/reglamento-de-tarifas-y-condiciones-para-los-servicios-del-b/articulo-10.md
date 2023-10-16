@@ -3,13 +3,9 @@
 $10,00 Por cada pasaporte.
 (Así reformado el punto 10.1) anterior mediante sesión 01-23 del 9 de enero del 2023)
 Licencias de conducir $7.00
-10.2 - 10.2 - Costo de fotocopias
-Costos en multifuncionales RICOH
-Color: $0.23 por hoja + IVA
-B/N: $0.20 por hoja + IVA
+10.2 Costo de fotocopias (Eliminado en sesión N° 36 del 16 de octubre de 2023)
 (Así adicionado mediante sesión N° 62-18 del 10 de diciembre del 2018)
-(Así reformado el punto N° 10.2) anterior mediante sesión N° 48-2020 del 24 de noviembre del 2020)
-(Nota de sinalevi: Mediante sesión N° 62-18 del 10 de diciembre del 2018 se ordena derogar el punto 10.5.- Trámite de entrega de placas, no obstante el presente punto no tiene dicha numeración)
+(Nota de sinalevi: Mediante sesión N° 62-18 del 10 de diciembre del 2018 se ordena derogar el punto 10.5.- Trámite de entrega de placas, no obstante, el presente punto no tiene dicha numeración)
 (Nota de Sinalevi: Mediante sesión 01-23 del 9 de enero del 2023 se reforma el punto 10.2 anterior. No obstante al no ser clara la reforma se transcribe a continuación: "10.2 Comisión bancaria por el trámite de documento de identidad migratorio para extranjeros (Dimex)
 $8,00 Cédula de residencia.
 [.]

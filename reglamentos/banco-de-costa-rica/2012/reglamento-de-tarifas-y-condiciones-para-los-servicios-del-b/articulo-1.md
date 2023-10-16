@@ -2,8 +2,13 @@ BANCO DE COSTA RICA
 (Nota de Sinalevi: Sobre este tema el Banco de Costa Rica había aprobado Reglamento de Tarifas y Condiciones para los Servicios del Banco de Costa Rica y publicado en La Gaceta N° 103 del 30 de mayo de 2006)
 La Junta Directiva General del Banco en sesión 47-12, artículo VI, del 12 de noviembre de 2012 aprobó la modificación del Reglamento de tarifas y condiciones para los servicios del Banco de Costa Rica:
 1 Productos de colocación
-1.1.- Gastos de formalización de operaciones nuevas y prórrogas al vencimiento definitivo
-Colones y dólares: de 0.00% a un máximo del 5%. Quedan abiertos los márgenes de negociación para el Comité de Crédito, Subcomité de crédito, el gerente general, subgerentes, gerentes de negocios banca corporativa y de personas y gerente regional de banca corporativa y de personas. Aplica para todas las modalidades de créditos directos y créditos abiertos.
+1.1.-Gastos de formalización de operaciones nuevas y prórrogas al vencimiento definitivo
+Colones y dólares: de 0,00% a un máximo del 5,00%. Quedan abiertos los márgenes de negociación para el Comité de Crédito, Subcomité de Crédito, el gerente general, subgerentes, gerentes de negocios banca corporativa y de personas y gerente regional de banca corporativa y de personas.
+(Así reformado el párrafo anterior mediante sesión N° 36-23 del 16 de octubre del 2023)
+Aplica para todas las modalidades de créditos directos y créditos abiertos.
+(Así reformado el párrafo anterior mediante sesión N° 36-23 del 16 de octubre del 2023)
+Crédito BCR Vivienda Accesible 0,75%
+(Así reformado el párrafo anterior mediante sesión N° 36-23 del 16 de octubre del 2023)
 Notas:
 1-Esta comisión será cobrada por una única vez al formalizarse el crédito o al establecerse prórrogas al vencimiento definitivo, aplicable directamente al monto del crédito en forma general.
 Para créditos abiertos se cobrará cada vez que se realice una operación derivada del contrato de crédito abierto.
@@ -12,9 +17,9 @@ Para créditos abiertos se cobrará cada vez que se realice una operación deriv
 (Así reformado el punto anterior mediante sesión N° 48-2020 del 24 de noviembre del 2020)
 4- Se aplicará un 50 % de la comisión a las personas físicas cuyo salario o pensión es depositado en una cuenta del BCR con excepción del crédito vivienda para pensionados y crédito damnificados por desastres naturales y crédito BCR Vivienda Accesible.
 (Así reformado el punto anterior mediante sesión N° 48-2020 del 24 de noviembre del 2020)
-5-En el caso de créditos directos con desembolsos y previa aprobación del Comité de Crédito, el cobro de la comisión se realizará al momento de cada desembolso.
-(Así reformado el punto 1.1) anterior en sesión N° 62-18 del 10 de diciembre del 2018)
-(Nota de Sinalevi: Mediante sesión N° 24-2020 del 23 de junio del 2020 se reforma el punto 1.1) anterior. No obstante, al no ser clara la reforma se transcribe a continuación: “ Crédito BCR Vivienda Accesible 0.75%”)
+5- Se aplicará un 30,00% de la comisión a las personas físicas cuyo salario o pensión es depositado en una cuenta del BCR con excepción del crédito vivienda para pensionados y crédito damnificados por desastres naturales y crédito BCR Vivienda Accesible.
+(Así reformado el punto 5 anterior mediante sesión N° 36-23 del 16 de octubre del 2023)
+(Nota de Sinalevi: Mediante sesión N° 24-2020 del 23 de junio del 2020 se reforma el punto 1.1) anterior. No obstante, al no ser clara la reforma se transcribe a continuación: " Crédito BCR Vivienda Accesible 0.75%")
 (*) 1.2.- Comisión de formalización para cambio de rubro mediante Anexo 14 y para cambio de moneda mediante Anexo 15 de las DAC (personas físicas)
 -$300 de comisión de formalización en el caso de créditos que tengan menos de un año de constituidos.
 $200 en los créditos que tienen más de un año y menos de tres años de constituidos.
@@ -74,6 +79,9 @@ $20.00
 Nota:
 Incluye la tarifa del Registro Nacional más gastos de papel legal y timbres.
 (Así corrida su numeración en sesión 24-13 del 24 de junio del 2013, que lo traspaso del antiguo punto 1.8 al 1.9. Lo anterior ya que en dicha sesión se adiciona el numeral 1.2 original y correr la numeración de los siguientes)
+(Nota de Sinalevi: Mediante sesión N° 36-23 del 16 de octubre del 2023 se reforma el punto 1.9 anterior. No obstante, al no coincidir el texto con la reforma el mismo se transcribe a continuación:
+" 1.9 Comisión de estructuración y manejo
+La comisión se define de forma contractual a conveniencia de las partes de acuerdo con las cláusulas del contrato suscrito entre el Banco y el cliente."
 (*)1.10.- Cobro administrativo de operaciones en mora (Derogado mediante sesión N° 48-2020 del 24 de noviembre del 2020)
 (Así corrida su numeración en sesión 24-13 del 24 de junio del 2013, que lo traspaso del antiguo punto 1.9 al 1.10. Lo anterior ya que en dicha sesión se adiciona el numeral 1.2 original y correr la numeración de los siguientes)
 (*) (Así reformado el punto 1.10) anterior mediante sesión N° 21 del 23 de mayo de 2016)
@@ -83,6 +91,11 @@ Incluye la tarifa del Registro Nacional más gastos de papel legal y timbres.
 Se cobrará un 1% anual pagadero mensualmente sobre los proyectos empresariales a largo plazo + IVA.
 (Así corrida su numeración en sesión 24-13 del 24 de junio del 2013, que lo traspaso del antiguo punto 1.11 al 1.12. Lo anterior ya que en dicha sesión se adiciona el numeral 1.2 original y correr la numeración de los siguientes)
 (Así reformado el punto 1.12) anterior mediante sesión N° 48-2020 del 24 de noviembre del 2020)
+(Nota de Sinalevi: Mediante sesión N° 36-23 del 16 de octubre del 2023 se reforma el punto 1.12 anterior. No obstante, al no coincidir el texto con la reforma el mismo se transcribe a continuación:
+"1.12 Certificación o constancia del estado de operaciones de crédito
+a. Por medio de canales digitales: USD 12,00 por transacción
+b. Por medio de canales presenciales USD 15,00 por transacción
+Para el cobro de esta comisión se debe aplicar + el IVA.")
 1.13.- Comisión de estructuración y manejo:
 En colones y dólares hasta 0.50% y aplica sobre el saldo de la operación a cobrarse mensualmente + IVA.
 (Así corrida su numeración en sesión 24-13 del 24 de junio del 2013, que lo traspaso del antiguo punto 1.12 al 1.13. Lo anterior ya que en dicha sesión se adiciona el numeral 1.2 original y correr la numeración de los siguientes)

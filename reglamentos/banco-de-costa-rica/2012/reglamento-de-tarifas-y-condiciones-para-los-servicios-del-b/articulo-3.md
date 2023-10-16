@@ -43,9 +43,16 @@ Excepciones de cobro:
 a. Por problemas de índole tecnológico u operativos atribuibles al Banco.
 b. Cuando el cliente realice la autogestión por medio de canales digitales que el Banco habilite para su obtención.
 (Así reformado el punto 3.4) anterior mediante sesión N° 45-21 del 19 de octubre del 2021. En la reformad ice punto 3.3 no obstante la numeración no coincide y del análisis se deduce que el punto a reformar es el 2.4) anterior)
+(Nota de Sinalevi: Mediante sesión N° 36 del 16 de octubre de 2023, se acordó reformar el inciso 3.4) anterior. Al no coincidir el texto a reformar se trascribe la misma: "3.4 Comisión por servicios administrativos en tarjetas de débito
+USD 10,00.
+Se exceptúa del cobro de la comisión las siguientes tarjetas: Cuenta Conmigo (HIT o Supercard), Cuenta Propia (Morpho o LIT), Pensionados, Adulto Mayor, Nómina Corporativa (por negociación o por justificación de rentabilidad de la empresa), pulseras y stickers débito. ")
 3.5 Comisión por servicios administrativos en tarjetas de débito
 $10,00 excepto tarjetas: Cuenta Conmigo (HIT), Cuenta Propia (Morpho), Pensionados, Nómina Corporativa, pulseras y stickers débito.
 (Así reformado el punto 3.5) anterior mediante mediante sesión 01-23 del 9 de enero del 2023. En la reformad ice punto 3.4 no obstante la numeración no coincide y del análisis se deduce que el punto a reformar es el 3.5anterior)
+(Nota de Sinalevi: Mediante sesión N° 36 del 16 de octubre de 2023, se acordó reformar el inciso 3. 5) anterior. Al no coincidir el texto a reformar se trascribe la misma: "3.5 Comisión por gestión de reclamo de tarjetas
+Se cobra por cada gestión USD 11,50.
+Nota:
+Debe aplicarse cuando el resultado de la investigación vincula al cliente.")
 3.6.- Comisión por solicitud de copia de voucher
 $11.50 por voucher consultado a otros procesos o emisores.
 Nota: Este cobro también debe aplicarse para las copias de vouchers o documentación que víncula al cliente con la transacción.
@@ -81,10 +88,12 @@ $5.00 por cada 1000 puntos o fracción para la redención.
 (Nota de Sinalevi: Mediante sesión N° 24-2020 del 23 de junio del 2020 se reforma el punto 3.10 anterior. No obstante, al no coincidir el texto con la reforma el mismo se transcribe a continuación: "3.11 Emisión de tarjeta Prepago
 Tarjeta prepago $10.00")
 3.12.- Cobro administrativo en tarjetas de crédito por la conversión de compra en comercios a la modalidad Plan BCR 0%.
-- 3 cuotas: 3% sobre el monto de la transacción a convertir
-- 6 cuotas: 7% sobre el monto de la transacción a convertir.
-- 9 cuotas: 10% sobre el monto de la transacción a convertir.
-(Así reformado el punto 3.12) anterior mediante sesión N° 48-2020 del 24 de noviembre del 2020)
+- 3 meses: 2,00% sobre el monto de la transacción a convertir
+- 4 meses: 2,50% sobre el monto de la transacción a convertir
+- 6 meses: 3,50% sobre el monto de la transacción a convertir
+- 9 meses: 5,00% sobre el monto de la transacción a convertir
+- 12 meses: 7,00% sobre el monto de la transacción a convertir
+(Así reformado el punto 3.12) anterior mediante sesión N° 36 del 16 de octubre de 2023)
 (Nota de Sinalevi: Mediante sesión N° 24-2020 del 23 de junio del 2020 se reforma el punto 3.10 anterior. No obstante, al no coincidir el texto con la reforma el mismo se transcribe a continuación: " 3.12 Carga de tarjeta Prepago
 Tarjeta Prepago $0.50
 NOTA: El cobro se debe realizar por evento de carga.")
@@ -94,11 +103,14 @@ $60 por cada cambio de razón social que solicite el comercio afiliado.
 (Nota de Sinalevi: Mediante sesión N° 24-2020 del 23 de junio del 2020 se reforma el punto 3.10 anterior. No obstante, al no coincidir el texto con la reforma el mismo se transcribe a continuación: " 3.13 Inactividad de tarjeta Prepago Tarjeta prepago Inactividad $6.00
 Saldo al Vencimiento $10.00
 NOTA: El cobro se debe realizar hasta que se consuma el saldo precargado.")
+(Nota de Sinalevi: Mediante sesión N° 36 del 16 de octubre de 2023, se acoró incluir una nueva comisión con el inciso 3.13. al contar este numeral con un inciso 3.13 pero con diferente texto se trascribe la misma: ".3.13 Compra de saldos con tarjetas de crédito
+Se aplica 1,50% sobre montos mayores o igual a un millón de colones. Mínimo CRC 15.000,00.")
 3.14.-Implementación del servicio de comercio electrónico (E-Commerce)
 $100.00 por cada implementación, una única vez.
 (Así reformado el punto 3.14) anterior mediante sesión N° 43-14 del 6 de octubre del 2014)
-(Nota de Sinalevi: Mediante sesión N° 24-2020 del 23 de junio del 2020 se reforma el punto 3.10 anterior. No obstante, al no coincidir el texto con la reforma el mismo se transcribe a continuación: " 3.14 Membresía Anual Jade
+(Nota de Sinalevi: Mediante sesión N° 24-2020 del 23 de junio del 2020 se reforma el punto 3.10 anterior. No obstante, al no coincidir el texto con la reforma el mismo se transcribe a continuación: " 3.14 Membresía Anual Jade(*)
 Anual, $100.00")
+(*) (Nota de Sinalevi: Mediante sesión N° 36 del 16 de octubre de 2023, se acordó eliminar el punto 3.12 Membresía Anual de Jade. Al no coincidir la numeración, no se realizó la respectiva abrogación.)
 (Nota de Sinalevi: Mediante sesión N° 45-21 del 19 de octubre del 2021 se reforma el punto 3.14 anterior. No obstante, al no coincidir el texto con la reforma el mismo se transcribe a continuación: 3.14 Comisión por digitalización de tarjetas de crédito y débito en dispositivos móviles:
 El cobro es mensual y se efectúa por tipo de dispositivo:
 Apple Pay: $1,00

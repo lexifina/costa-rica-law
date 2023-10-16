@@ -16,6 +16,14 @@ Para las demás actividades comerciales regirá también la comisión pactada po
 (Así reformado el punto 9.3) anterior mediante sesión N° 48-2020 del 24 de noviembre del 2020)
 9.4.-Cobro administrativo en tarjetas de crédito por la conversión de compra en comercios a la modalidad Plan BCR 0%. (Derogado mediante sesión N° 48-2020 del 24 de noviembre del 2020)
 9.5.- Comisión por cambio de razón social de comercio afiliado (Derogado mediante sesión N° 48-2020 del 24 de noviembre del 2020)
+(Nota de Sinalevi: Mediante sesión N° 36-23 del 16 de octubre del 2023 se reforma el punto 9.5 anterior. No obstante, al no coincidir el texto con la reforma el mismo se transcribe a continuación:
+"9.5 Cobro por el servicio Plan 0% para los comercios afiliados
+- Para 3 meses 7,50%
+- Para 6 meses 9,00%
+- Para 9 meses 9,10%
+- Para 12 meses 11,10%
+- Para 18 meses 12,50%
+- Para 24 meses 14,00%")
 9.6- Tarifa por reposición de dispositivo lector para MPOS extraviados o con daño irreparable por el comercio afiliado:
 El costo del equipo depende del valor de mercado en el momento de la reposición. En el caso de daños parciales dependerá del costo de los repuestos y de la atención de la avería según el valor de mercado.
 (Así reformado el punto 9.6) anterior mediante sesión N° 48-2020 del 24 de noviembre del 2020. La tarifa 9.6.-Implementación del servicio de comercio electrónico (E-Commerce), fue derogada en esta misma sesión)

@@ -1,11 +1,15 @@
 4 Servicios bancarios electrónicos
-4.1.- Sinpe Sistema Interbancario de Negociación y Pagos Electrónicos, desarrollado por el BCCR, afecta en tiempo real la Cuenta de Reserva de dicho organismo, TCR Transferencias entre cuentas de reserva.
+4.1.-Sinpe Sistema Interbancario de Negociación y Pagos Electrónicos, desarrollado por el BCCR, afecta en tiempo real la Cuenta de Reserva de dicho organismo, TCR Transferencias entre cuentas de reserva
 Transferencia de fondos a terceros:
-1. Por la página web: $2.00 por transferencia.
-2. En forma manual por plataforma $5.00 por transferencia
-(Así reformado el punto anterior mediante sesión 24-13 del 24 de junio del 2013)
+a. Por medio de canales digitales: USD 2,00 por transferencia
+b. Por medio de canales presenciales USD 5,00 por transferencia
+Notas:
+. Aplica para Sinpe Móvil por medio de canal digital en tiempo real.
+. Esta comisión se cobra conforme al límite diario establecido por el Banco de Costa Rica.
+(Así reformado el punto 4.1) anterior mediante sesión 36-23 del 16 de octubre del 2023)
 4.2.- Reemplazo de clave dinámica física por pérdida o robo
-$3.00
+USD 6,00+ IVA.
+(Así reformado el punto anterior mediante sesión N° 36-23 del 16 de octubre del 2023)
 (*) 4.3. Plataforma de conectividades
 Las comisiones oscilan en un rango de 1% a un 12%.
 El porcentaje a negociar debe ser en función a la categorización de clientes definida por el Banco tomando en consideración las variables de cada negocio.
@@ -49,8 +53,17 @@ Para el cobro de esta comisión se debe aplicar + el IVA.
 (Así reformado el punto 4.6) anterior mediante sesión 01-23 del 9 de enero del 2023. La reforma dice que se reforma el punto 4.6. No obstante al no coincidir la numeración del análisis se deduce que el punto a reformar es el 4.7 anterior)
 4.8.- Servicio Quick Pass
 (Así reformado el punto 4.8) anterior en sesión N° 48-2020 del 24 de noviembre del 2020)
-4.9.- Transferencia por medio de web corporativo (Derogado este punto mediante sesión N° 24-2020 del 23 de junio del 2020)
-(Así reformado el punto 4.9) anterior en sesión N° 44 del 14 de octubre de 2015)
+(Nota de Sinalevi: Mediante sesión N° 36-23 del 16 de octubre del 2023 se reforma el punto 4.8 anterior. No obstante, al no coincidir el texto con la reforma el mismo se transcribe a continuación:
+"4.8 Cambio de cheques BNCR
+USD 2,00 por cada cheque del BNCR que sea cambiado en efectivo en cajas BCR.
+Si el cambio del cheque BNCR se aplica para un depósito con el Banco Nacional se debe cobrar adicionalmente la comisión Depósitos BNCR. Si el cambio se destina para el pago de servicios públicos se debe cobrar también la comisión Pago de servicios públicos y privados de agua, luz y teléfono en ventanilla.
+Se exceptúa de este cobro cuando:
+. El cheque del BNCR se deposite en una cuenta del BCR.
+. Se deposita en cuentas judiciales (depósitos automatizados o expedientes judiciales).
+. Se cambie para pagar una tarjeta u operación con el BCR.")
+4.9.- Depósitos BNCR
+USD 2,00 por cada depósito a cuentas del BNCR realizado en cajas BCR.
+(Así reformado el punto 4.9 anterior en sesión N° 36-23 del 16 de octubre del 2023)
 4.10.- Bancatel Negocios (Derogado este punto mediante sesión N° 24-2020 del 23 de junio del 2020)
 (Así reformado el punto 4.10) anterior en sesión N° 44 del 14 de octubre de 2015)
 (*)4.11.- Cambio de Cheques BNCR
