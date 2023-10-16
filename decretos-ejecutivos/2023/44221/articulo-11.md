@@ -1,0 +1,1 @@
+Artículo 11.-Coordinación. La Dirección de Crédito Público coordinará con las entidades, la remisión de la información e informes sobre identificación, análisis y cuantificación de los riesgos fiscales.

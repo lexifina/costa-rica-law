@@ -1,0 +1,2 @@
+Artículo 6º-Informe Técnico sobre los compromisos y contingencias fiscales en Proyectos de Asociación Público Privadas.
+La Dirección de Crédito Público remitirá el Informe Técnico sobre los compromisos y contingencias fiscales indicado en el artículo anterior, al Ministro de Hacienda en un plazo no mayor a 35 días naturales, a partir de la presentación de la solicitud que incluya toda la información completa por parte de la Administración solicitante.

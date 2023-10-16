@@ -1,0 +1,1 @@
+Artículo 4º-Lineamientos Generales. El Ministerio de Hacienda publicará los lineamientos generales las guías metodológicas en su sitio web https://www.hacienda.go.cr/ contenido/12771 -endeudamiento-publico que deben ser utilizadas para la formulación de un proyecto mediante Asociación Público Privada.

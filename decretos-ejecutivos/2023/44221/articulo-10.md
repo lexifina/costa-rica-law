@@ -1,0 +1,2 @@
+Artículo 10.-Informe de Riesgos Fiscales por proyectos desarrollados bajo la modalidad de Asociaciones Público-Privadas.
+La Unidad de Asociaciones Público-Privadas de la Dirección de Crédito Público, generará el Informe de Riesgos Fiscales por proyectos desarrollados bajo la modalidad de Asociaciones Público-Privadas para integrarlo al informe ejecutivo que contiene el resto de los riesgos fiscales.
