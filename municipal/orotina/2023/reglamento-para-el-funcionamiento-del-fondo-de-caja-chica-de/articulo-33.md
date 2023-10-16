@@ -1,0 +1,1 @@
+Artículo 33.-Corresponderá a la Dirección de Hacienda y a la Unidad de Tesorería velar por el cumplimiento de este Reglamento, quienes por lo anterior rendirán un informe anual de las compras realizadas desde el 1° de enero hasta el 31 de diciembre de cada año, el cual será remitido a la Alcaldía en el primer trimestre del período siguiente.

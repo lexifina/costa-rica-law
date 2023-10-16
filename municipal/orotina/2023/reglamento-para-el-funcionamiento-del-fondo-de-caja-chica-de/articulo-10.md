@@ -1,0 +1,1 @@
+Artículo 10.-Para las devoluciones de dinero al Fondo de Caja Chica se utilizarán los medios disponibles autorizados. Estas devoluciones únicamente se recibirán en colones, sin excepción alguna. No podrán recibirse notas de crédito.

@@ -1,0 +1,2 @@
+Artículo 13.-La Unidad de Tesorería dispondrá de los formularios para el trámite de solicitudes del Fondo de Caja Chica, los cuales deberán cumplir con las especificaciones y requerimientos establecidos en los lineamientos aprobados por la Alcaldía a propuesta de la Dirección de Hacienda, que incluirán todas las medidas de control interno respectivas.
+El vale de Fondo de Caja Chica será suministrado y autorizado por la Tesorería siempre que se cumplan con las disposiciones del presente reglamento.

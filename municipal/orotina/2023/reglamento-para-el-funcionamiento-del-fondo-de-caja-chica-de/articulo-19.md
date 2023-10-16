@@ -1,0 +1,1 @@
+Artículo 19.-Cuando se haya entregado el dinero solicitado mediante el vale del Fondo de Caja Chica y por algún motivo la compra no se lleve a cabo, la persona funcionaria deberá hacer el reintegro en un lapso máximo de un día hábil, y deberá presentar ante la Tesorería la justificación escrita correspondiente acompañada del visto bueno de la Unidad solicitante del vale.

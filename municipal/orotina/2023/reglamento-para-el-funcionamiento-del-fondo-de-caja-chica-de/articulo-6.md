@@ -1,0 +1,1 @@
+Artículo 6º-El Fondo de Caja Chica también servirá para atender los gastos requeridos por las personas funcionarias de conformidad con las disposiciones del Reglamento de Gastos de Viaje y Transporte para Funcionarios Públicos de la Contraloría General de la República, incluso en materia de procedimientos y formularios.

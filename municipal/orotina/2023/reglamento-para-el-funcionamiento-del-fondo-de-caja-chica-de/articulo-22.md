@@ -1,0 +1,1 @@
+Artículo 22.-El monto de la compra, no podrá exceder el autorizado en la solicitud de compra por Fondo de Caja Chica. De darse lo contrario, la persona funcionaria que recibió el vale debe asumir la diferencia sin responsabilidad alguna de la Municipalidad.

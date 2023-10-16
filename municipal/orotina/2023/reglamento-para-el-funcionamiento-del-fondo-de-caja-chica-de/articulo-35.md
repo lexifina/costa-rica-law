@@ -1,0 +1,1 @@
+Artículo 35.-Se deroga el Reglamento para el Funcionamiento de Fondos de Caja Chica de la Municipalidad de Orotina publicado en Diario oficial La Gaceta Nº 200 del 19 de octubre de 2011 y sus reformas.
