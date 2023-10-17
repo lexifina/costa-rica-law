@@ -122,33 +122,35 @@ i.Transferencias bancarias y no bancarias.
 ii.Servicios de captación de depósitos del público.
 iii.Retiros de efectivo, independientemente del medio en que se realice, tales como: retiro en caja, cajero automático, cambio de cheques.
 iv.Pago de servicios e impuestos.
-v.Compra, venta o cambio y los servicios análogos que tengan por objetodivisas.
+v.Compra, venta o cambio y los servicios análogos que tengan por objeto divisas.
 vi.Comisiones de tarjeta de crédito y débito.
 vii.Gestiones de carteras por las administradoras de fondos de inversión o de capital de riesgo o de fondos inmobiliarios.
 viii.Certificados de depósito.
-ix.Avales y garantías de participación y cumplimiento, únicamente cuandoestos sean otorgados por entidades bancarias.
+ix. Avales y garantías de participación y cumplimiento, únicamente cuando estos sean otorgados por entidades bancarias.
 8) Exenciones referidas al autoconsumo.
-a.El autoconsumo de bienes está exento siempre y cuando el contribuyente no hayautilizado como crédito total o parcial el impuesto soportado en los siguientescasos:
-i.La adquisición o importación de los bienes o de sus elementoscomponentes.
-ii.La recepción del servicio que sea objeto de dicha operación.
-b.El autoconsumo de energía eléctrica generada por medio de la utilización depaneles solares, así como otras fuentes renovables, tales como el viento, el sol y labiomasa. Esta exención comprende la cogeneración de energía, entendida como elprocedimiento mediante el cual se obtiene simultáneamente energía eléctrica ytérmica útil, por ejemplo, vapor y agua caliente.
-c.El uso de espacio publicitario o promocional exclusivo para programas oactividades propias que realicen las televisoras y las emisoras de radio.
+a. El autoconsumo de bienes está exento siempre y cuando el contribuyente no haya utilizado como crédito total o parcial el impuesto soportado en los siguientes casos:
+i. La adquisición o importación de los bienes o de sus elementos componentes.
+ii. La recepción del servicio que sea objeto de dicha operación.
+b. El autoconsumo de energía eléctrica generada por medio de la utilización de paneles solares, así como otras fuentes renovables, tales como el viento, el sol y labiomasa. Esta exención comprende la cogeneración de energía, entendida como el procedimiento mediante el cual se obtiene simultáneamente energía eléctrica y térmica útil, por ejemplo, vapor y agua caliente.
+c. El uso de espacio publicitario o promocional exclusivo para programas o actividades propias que realicen las televisoras y las emisoras de radio.
 9) Sobre la solicitud para gozar del beneficio tributario.
 Los siguientes supuestos establecidos en el artículo 8 de la Ley, requerirán de la autorización de la Dirección General de Hacienda para la aplicación del beneficio tributario, mediante el procedimiento que establece el Decreto Ejecutivo No 31611-H del7 de octubre de 2003 y sus reformas:
-a.La Cruz Roja Costarricense, por los bienes y los servicios que venda, preste oadquiera para el cumplimiento de sus funciones.
-b.El Benemérito Cuerpo de Bomberos de Costa Rica, por los bienes y los serviciosque venda, preste o adquiera para el cumplimiento de sus funciones.
-c.Las microempresas y pequeñas empresas inscritas en el Ministerio de Economía, Industria y Comercio (MEIC), así como las micro y pequeñas empresas agrícolas registradas ante el Ministerio de Agricultura y Ganadería (MAG) para el beneficiode aquellos alquileres que no superen el 1,5 del salario base mensual.
-d.Los concesionarios o permisionarios de transporte terrestre de pasajeros o serviciode cabotaje de personas, cuya tarifa sea regulada por la Autoridad Reguladora delos Servicios Públicos (ARESEP), para las adquisiciones de bienes y servicios establecidos en el numeral 24) del artículo 8 de la Ley.
-e.Las compras que realicen las instituciones detalladas en los numerales 18) y 19) del artículo 8 de la Ley.
-f.Las asociaciones de desarrollo comunal, por la adquisición de bienes y servicios que hagan, para el cumplimiento de sus fines.
-g.Las juntas de educación y administrativas de las instituciones públicas de enseñanza del Ministerio de Educación Pública, por la adquisición y la venta de bienes y servicios que hagan, para la realización de sus fines y en beneficio de los centros educativos públicos que les corresponda atender.
-h.Las asociaciones administradoras de los sistemas de acueductos y alcantarillados comunales en Costa Rica, también conocidas como Asadas, por la compra o adquisición de los bienes y servicios, para la realización de sus fines y en beneficio de las comunidades o zonas que les corresponda atender.
-i.Los importadores de los bienes establecidos en el numeral 14) del artículo 8 de la Ley: sillas de ruedas y similares, equipo ortopédico, prótesis en general, equipos usados por personas con problemas auditivos, equipo que se utilice en programasde rehabilitación y educación especial incluidas las ayudas técnicas, así como los servicios de apoyo para personas con discapacidad.
+a. La Cruz Roja Costarricense, por los bienes y los servicios que venda, preste o adquiera para el cumplimiento de sus funciones.
+b. El Benemérito Cuerpo de Bomberos de Costa Rica, por los bienes y los servicios que venda, preste o adquiera para el cumplimiento de sus funciones.
+c. Las microempresas y pequeñas empresas inscritas en el Ministerio de Economía, Industria y Comercio (MEIC), así como las micro y pequeñas empresas agrícolas registradas ante el Ministerio de Agricultura y Ganadería (MAG) para el beneficio de aquellos alquileres que no superen el 1,5 del salario base mensual.
+d. Los concesionarios o permisionarios de transporte terrestre de pasajeros o servicio de cabotaje de personas, cuya tarifa sea regulada por la Autoridad Reguladora delos Servicios Públicos (ARESEP), para las adquisiciones de bienes y servicios establecidos en el numeral 24) del artículo 8 de la Ley.
+e. Las compras que realicen las instituciones detalladas en los numerales 18) y 19) del artículo 8 de la Ley, excepto las adquisiciones de bienes y servicios que realice la Asociación Obras del Espíritu Santo, cédula de persona jurídica número tres-cero cero dos trescientos cuarenta y cuatro mil quinientos sesenta y dos (N° 3-002-344 562), las cuales no requerirán autorización previa del Departamento de Gestión de Exenciones del Ministerio de Hacienda, quien deberá presentar al Departamento de Fiscalización de la División de Incentivos Fiscales un informe semestral donde especifiquen los bienes y servicios adquiridos durante dicho periodo, con indicación del uso y destino de los mismos. Dichos informes deberán ser presentados en los meses de junio y enero en el formato que al efecto se disponga por parte del Departamento de Fiscalización..
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 44269 del 17 de octubre de 2023)
+f. Las asociaciones de desarrollo comunal, por la adquisición de bienes y servicios que hagan, para el cumplimiento de sus fines.
+g. Las juntas de educación y administrativas de las instituciones públicas de enseñanza del Ministerio de Educación Pública, por la adquisición y la venta de bienes y servicios que hagan, para la realización de sus fines y en beneficio de los centros educativos públicos que les corresponda atender.
+h. Las asociaciones administradoras de los sistemas de acueductos y alcantarillados comunales en Costa Rica, también conocidas como Asadas, por la compra o adquisición de los bienes y servicios, para la realización de sus fines y en beneficio de las comunidades o zonas que les corresponda atender.
+i. Los importadores de los bienes establecidos en el numeral 14) del artículo 8 de la Ley: sillas de ruedas y similares, equipo ortopédico, prótesis en general, equipos usados por personas con problemas auditivos, equipo que se utilice en programas de rehabilitación y educación especial incluidas las ayudas técnicas, así como los servicios de apoyo para personas con discapacidad.
 j. Los contribuyentes que presten el servicio de transporte de las personas con discapacidad, autorizados por el Ministerio de Educación Pública, de conformidad con los programas de equidad que lleve ese Ministerio.
 (Así adicionado el anterior por el artículo 1° del decreto ejecutivo N° 42706 del 14 de octubre del 2020)
 k. Los contribuyentes registrados como exportadores, según lo dispuesto en el artículo 66 del presente Reglamento, para la adquisición de bienes y servicios relacionados con sus operaciones de exportaciones.
 (Así modificada la numeración del inciso anterior por el artículo 1° del decreto ejecutivo N° 42706 del 14 de octubre del 2020 que lo traspasó del inciso j) al k))
 l Las redes de cuido y los centros de atención para adultos mayores, tales como los hogares, centros diurnos, albergues u otras modalidades de atención integral de las personas adultas mayores que presten sus servicios sin fines de lucro y se encuentren debidamente acreditados ante la Secretaría Técnica de la Red Nacional de Cuido y Desarrollo Infantil y el Consejo Nacional de la Persona Adulta Mayor.
 (Así adicionado el inciso anterior por el artículo 1° del decreto ejecutivo N° 44073 del 18 de mayo del 2023)
-La anterior lista no limita las facultades de la Administración Tributaria para incluir mediante resolución general cualquier otra persona física o jurídica o entidades o colectividades sin personalidad jurídica, públicas o privadas, que requieran solicitar la autorización para gozar de los beneficios aludidos.
+La anterior lista no limita las facultades de la Administración Tributaria para incluir mediante resolución general cualquier otra persona física o jurídica o entidades o colectividades sin personalidad jurídica, públicas o privadas, que requieran solicitar la autorización para gozar de los beneficios aludidos, o bien excluirlas del trámite según el respectivo fundamento legal, siempre y cuando defina otro tipo de control específico.
+(Así reformado el párrafo anterior por el artículo 1° del decreto ejecutivo N° 44269 del 17 de octubre de 2023)
 Las exenciones indicadas en el artículo 8 de la Ley y no contempladas en este apartado no requerirán de autorización para su aplicación, debiendo respaldar sus operaciones mediante los comprobantes electrónicos autorizados por la Administración Tributaria, así como en sus registros contables.
