@@ -17,3 +17,4 @@ Medidas de ordenamiento para el uso de carnada viva para la flota pesquera comer
 | 2 | 2016-04-27 | SINALEVI (sin norma nombrada) |
 | 3 | 2023-01-31 | Acuerdo 17 (2023-01-31) |
 | 4 | 2023-08-15 | Acuerdo 190 (2023-08-15) |
+| 5 | 2023-10-17 | Acuerdo 252 (2023-10-17) |
