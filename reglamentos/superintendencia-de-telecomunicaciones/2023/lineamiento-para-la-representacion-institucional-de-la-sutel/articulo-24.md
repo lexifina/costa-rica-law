@@ -1,0 +1,3 @@
+REPRESENTACIONES DE CARÁCTER INTERNACIONAL:
+Artículo 24º- Planificación de representaciones internacionales. Cada año, los Miembros del Consejo en el mes de enero, elaborarán una propuesta de planificación de posibles participaciones internacionales, la cual será aprobada por el órgano colegiado con el fin de programar de manera indicativa las actividades, eventos y participaciones en el ámbito de las relaciones internacionales.
+Este proceso contará con la participación de la Coordinación de Asuntos Internacionales y la Unidad de Recursos Humanos, según las instrucciones giradas al respecto por el Consejo.

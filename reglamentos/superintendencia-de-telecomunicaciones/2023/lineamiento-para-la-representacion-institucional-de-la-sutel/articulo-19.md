@@ -1,0 +1,1 @@
+Artículo 19º- Los funcionarios públicos de la Sutel designados para participar en los eventos mencionados en el artículo anterior deberán desempeñarse de manera activa y comprometida, promoviendo los intereses institucionales y contribuyendo al intercambio constructivo de ideas y experiencias con otros participantes.

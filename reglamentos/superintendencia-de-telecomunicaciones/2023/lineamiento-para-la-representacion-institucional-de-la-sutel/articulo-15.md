@@ -1,0 +1,1 @@
+Artículo 15º- Se reconoce la importancia de centralizar la información y la coordinación de eventos, reuniones y actividades en los coordinadores designados para tal fin. Estos documentos deberán ser registrados de manera sistemática y ordenada, para lo cual deberá contarse con el respectivo expediente en el gestor documental.

@@ -1,0 +1,3 @@
+CAPÍTULO IV
+Representación institucional a cargo de funcionarios técnicos de la Sutel
+Artículo 17º- Este capítulo tiene por objetivo establecer la importancia y los lineamientos para la participación de los funcionarios públicos en foros, seminarios, conferencias, comités de trabajo y otros eventos relacionados o actividades similares, con el fin de promover el intercambio de conocimientos, fortalecer la capacidad institucional y contribuir al desarrollo de políticas y regulaciones de calidad; en lo que no se requiera una representación judicial y extrajudicial con facultades de apoderado generalísimo.

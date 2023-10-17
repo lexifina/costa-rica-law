@@ -1,0 +1,1 @@
+Artículo 34º- Conocimiento del Consejo de propuesta de representación institucional. El Consejo conocerá la propuesta de participación nacional tomando en cuenta los elementos indicados anteriormente y definirá el Miembro del Consejo que asistirá a la actividad o bien el funcionario designado, según corresponda.

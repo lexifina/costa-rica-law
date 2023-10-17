@@ -1,0 +1,1 @@
+Artículo 21º- La Sutel fomentará la divulgación de los resultados obtenidos en los eventos en los que los funcionarios públicos participen. Se promoverá la difusión de informes, investigaciones, buenas prácticas y lecciones aprendidas para beneficio interno y para contribuir al desarrollo del sector o ámbito correspondiente.

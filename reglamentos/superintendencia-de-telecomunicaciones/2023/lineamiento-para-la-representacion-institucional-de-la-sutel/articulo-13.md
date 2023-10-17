@@ -1,0 +1,2 @@
+Artículo 13º- La Sutel buscará establecer acuerdos de cooperación y mecanismos de colaboración con organismos nacionales e internacionales y otras autoridades reguladoras y de defensa de la competencia nacionales y extranjeras.
+Estos acuerdos deberán tener como objetivo el intercambio de información, el fortalecimiento de capacidades, el desarrollo conjunto de proyectos y la promoción de estándares y mejores prácticas; sin perjuicio de lo que expresamente indiquen las leyes y sus reglamentos.

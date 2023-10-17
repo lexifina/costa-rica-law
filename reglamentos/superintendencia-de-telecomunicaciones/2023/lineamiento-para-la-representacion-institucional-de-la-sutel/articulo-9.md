@@ -1,0 +1,1 @@
+Artículo 9º- El Presidente o Presidenta del Consejo puede comparecer en estrados judiciales o en procedimientos de carácter administrativo con patrocinio letrado bajo la figura de mandato, para lo cual podrá otorgar poder especial judicial, extrajudicial o cualquier otro correspondiente para dicho fin, con el fin de que exista un ejercicio de la representación en la forma debida.

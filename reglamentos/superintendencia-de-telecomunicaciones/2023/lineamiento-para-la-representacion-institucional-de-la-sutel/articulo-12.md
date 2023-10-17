@@ -1,0 +1,1 @@
+Artículo 12º- La Sutel fomentará la participación activa en foros nacionales e internacionales relevantes para el ámbito de su competencia. Los funcionarios designados para representar a la Sutel en estos foros deberán tener los conocimientos técnicos necesarios y contribuir al intercambio de información, mejores prácticas y la promoción de políticas y regulaciones adecuadas.

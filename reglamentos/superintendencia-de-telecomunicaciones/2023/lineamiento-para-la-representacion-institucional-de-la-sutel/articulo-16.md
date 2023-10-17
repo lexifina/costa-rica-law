@@ -1,0 +1,1 @@
+Artículo 16º- La Unidad de Gestión Documental será responsable de mantener un archivo actualizado de acuerdo con la normativa vigente, en coordinación con la persona designada por el Consejo para que coordine las citadas acciones.

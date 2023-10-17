@@ -1,0 +1,1 @@
+Artículo 22º- El Consejo proporcionará los recursos necesarios y el apoyo institucional para garantizar la participación efectiva de los funcionarios públicos en las actividades y eventos indicados. Esto incluye el respaldo logístico, financiero y de tiempo para la preparación, asistencia y seguimiento de los eventos y actividades.

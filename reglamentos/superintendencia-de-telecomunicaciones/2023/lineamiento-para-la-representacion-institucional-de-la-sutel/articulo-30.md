@@ -1,0 +1,4 @@
+Artículo 30º- Obligaciones de los funcionarios designados. Los Miembros del Consejo o funcionarios designados que asistan a actividades de carácter internacional deberán cumplir con lo siguiente:
+a) Los requerimientos que exija la actividad remitida a la Sutel.
+b) Presentar ante la Unidad de Recursos Humanos, un informe de la actividad dentro de los treinta días naturales siguientes a la finalización de la actividad y a la efectiva reincorporación a las labores. Este informe deberá transmitir los acuerdos alcanzados y las propuestas recibidas durante el evento efectuado, incluyendo los temas tratados, conclusiones relevantes y recomendaciones que permitan realimentar las políticas y acciones institucionales en materia de innovación y desarrollo de la regulación.
+Asimismo, dicho informe deberá ser notificado a través de la Unidad de Gestión Documental.

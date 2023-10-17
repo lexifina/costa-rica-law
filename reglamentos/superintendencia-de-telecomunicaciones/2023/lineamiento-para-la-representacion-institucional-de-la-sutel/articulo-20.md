@@ -1,0 +1,1 @@
+Artículo 20º- La participación en los eventos mencionados tendrá como objetivo el fortalecimiento de las capacidades institucionales. Los funcionarios públicos designados deberán transmitir conocimientos, mejores prácticas y experiencias relevantes para mejorar la gestión y el desempeño de la institución.
