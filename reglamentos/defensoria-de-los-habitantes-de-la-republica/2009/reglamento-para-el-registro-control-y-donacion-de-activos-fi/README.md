@@ -14,3 +14,4 @@ Reglamento para el Registro, Control y Donación de activos fijos de la Defensor
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-12-02 | la propia norma |
+| 2 | 2023-10-17 | Reglamento 0 (2023-10-17) |
