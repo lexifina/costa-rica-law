@@ -1,0 +1,9 @@
+CIRCULAR N° 268-2023
+Asunto: "Forma de Diligenciamiento de los Edictos para su publicación en el Boletín Judicial Electrónico".
+A TODOS LOS DESPACHOS CIVILES Y DE COBRO JUDICIAL CIVIL, SE LES HACE SABER:
+El Consejo Superior del Poder Judicial en sesión 73-2023 celebrada el 5 de setiembre de 2023, artículo LXVIII, a solicitud de la Comisión de la Jurisdicción Civil y de la Dirección Ejecutiva del Poder Judicial, con fundamento en el artículo 10.2 del Reglamento del Boletín Judicial que indica que los Edictos del ámbito jurisdiccional se publicarán en el Boletín Judicial y su amparo legal del numeral 29.3 del Código Procesal Civil, y la Ley General de Control Interno, aprobó la siguiente circular que regula la forma de diligenciar los edictos conforme con el nuevo sistema electrónico del Boletín Judicial (SIBO):
+A solicitud de la Dirección Ejecutiva, la Comisión de la Jurisdicción Civil y el Equipo Gestor Civil, se hace saber a todos los despachos civiles y de cobro judicial civil la siguiente circular aprobada por el Consejo Superior en sesión 732023 celebrada el 5 de setiembre de 2023, artículo LXVIII.
+Que desde la puesta en funcionamiento del nuevo sistema electrónico del Boletín Judicial SIBO, el envío de los edictos que según el artículo 29.3 del Código Procesal Civil requieran ser publicados en el Boletín Judicial, deben ser remitidos por los despachos mediante dicho sistema y no diligenciados por las partes de los procesos en donde se emite el Edicto, de tal manera que no será la parte interesada quien diligencie estos edictos ante la Dirección Ejecutiva, sino que su envío se realizará por parte de los despachos mediante el sistema SIBO. Lo anterior, sin perjuicio de aquellos edictos en que la Ley aplicable disponga otra forma de publicación distinta del Boletín Judicial.
+Esta circular deja sin efecto la circular 230-2023.
+Publíquese una vez en el Boletín Judicial.
+San José, 17 de octubre de 2023
