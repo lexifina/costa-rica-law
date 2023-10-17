@@ -14,3 +14,4 @@ Reglamento Municipal tendiente a normar los aspectos operativos que contempla y 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-06-18 | la propia norma |
+| 2 | 2023-10-17 | Reglamento municipal 0 (2023-10-17) |
