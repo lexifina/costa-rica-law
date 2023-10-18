@@ -13,3 +13,4 @@ Tabla de Plazos de Conservación de Documentos de la Unidad de Capacitación y S
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-05-04 | la propia norma |
+| 2 | 2023-10-18 | Circular 277 (2023-10-18) |
