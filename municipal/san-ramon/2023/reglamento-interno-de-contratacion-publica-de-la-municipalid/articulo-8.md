@@ -1,0 +1,9 @@
+Artículo 8°-Competencias de Gestión Jurídica. El área legal realizará las gestiones de asesoría, acompañamiento, capacitación y apoyo necesarias a la proveeduría institucional en la tramitación de las contrataciones públicas. Además, tendrá a cargo las siguientes funciones:
+a. Revisión de las condiciones generales del pliego de condiciones, en el caso de que se requiera.
+b. Asesorar y colaborar con el Departamento de Proveeduría en caso de duda en lo relacionado con el análisis legal de las ofertas.
+c. Elaboración del refrendo interno cuando corresponda.
+d. Realizar en tiempo y forma y de acuerdo a los plazos otorgados por la proveeduría institucional, el criterio legal sobre la admisibilidad o no de las ofertas recibidas en los procesos de contratación que así lo requieran, así como la solicitud puntual de aquellos aspectos que se deban solicitar subsanar por parte de los oferentes y que sean necesarios para la emisión del acto final, verificando el cumplimiento de los aspectos legales solicitados en el pliego de condiciones.
+e. Recibir de la Proveeduría el informe con los documentos subsanados en el plazo otorgado, para continuar con el análisis legal de las ofertas.
+f. Realizar en tiempo y forma, y de acuerdo a los plazos otorgados por la proveeduría institucional, el análisis legal final de acuerdo a los subsanes presentados por los oferentes. g. Resolver los recursos de objeción que se interponen ante la Administración.
+h. Atender los recursos de revocatoria y apelación contra los actos de adjudicación, declaratoria de infructuoso o desierto.
+i. Colaborar en el trámite de ejecución de las garantías de cumplimiento y colaterales. j. Tramitar la gestión o el procedimiento correspondiente para la aplicación de sanciones económicas o administrativas que define la LGCP, una vez que el Administrador del contrato realice el cálculo y lo haga del conocimiento del Departamento de Proveeduría.

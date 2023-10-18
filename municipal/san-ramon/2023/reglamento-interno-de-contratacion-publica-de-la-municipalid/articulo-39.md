@@ -1,0 +1,1 @@
+Artículo 39.-Transitorio. Los procedimientos de contratación y contratos iniciados, antes de la vigencia de la Ley General de Contratación Pública, se concluirán conforme a las disposiciones vigentes en el momento de adoptar la decisión inicial del concurso.

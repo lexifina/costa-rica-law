@@ -1,0 +1,1 @@
+Artículo 37.-Firma Digital. La municipalidad realizará las gestiones administrativas y presupuestarias necesarias para que cada persona funcionaria municipal con roles asignados en el sistema digital unificado cuente con el certificado de firma digital, conforme a la Ley de Certificados, Firmas Digitales y Documentos Electrónicos, N.°8454.
