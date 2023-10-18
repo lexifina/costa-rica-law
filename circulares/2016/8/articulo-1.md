@@ -1,6 +1,6 @@
 (Derogado)
 CIRCULAR N° 8-2016
-(Esta norma se dejó sin efecto mediante circular N° 110-2023 del 25 de mayo del 2023 y publicada en el Boletín Judicial N° 105 del 13 de junio del 2023. Posteriormente mediante circular N° 282 del 18 de octubre de 2023, y publicada en el Boletín Judicial del Poder Judicial N° 200 del 1° de noviembre de 2023, se vuelve a dejar sin efecto la presente norma)
+(Esta norma se dejó sin efecto mediante circular N° 110-2023 del 25 de mayo del 2023 y publicada en el Boletín Judicial N° 105 del 13 de junio del 2023. Posteriormente mediante circular N° 282 del 18 de octubre de 2023, y publicada en el Boletín Judicial del Poder Judicial N° 200 del 1° de noviembre de 2023, se vuelve a dejar sin efecto la presente norma. Asimismo, por circular N° 251-2023 del 26 de setiembre de 2023, "Acceso al Expediente Judicial según el Artículo 243 de la Ley Orgánica del Poder Judicial y uso obligatorio del Formulario "Compromiso de Confidencialidad y Privacidad de la Información del Expediente Judicial" conforme a la Ley 8968"", se vuelve a dejar sin efecto la presente norma)
 ASUNTO: Reiteración de la circular N° 91-2010 "Acceso a los expedientes judiciales".
 A LOS DESPACHOS JUDICIALES DEL PAÍS
 SE LES HACE SABER QUE:
