@@ -1,0 +1,1 @@
+Artículo 2°-A las disposiciones del presente Reglamento están sujetos Junta Directiva del CCDR SC y demás funcionarios del CCDR SC. El incumplimiento a sus disposiciones acarreará responsabilidad administrativa, civil o penal, según corresponda.
