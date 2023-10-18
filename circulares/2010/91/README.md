@@ -17,3 +17,4 @@ Acceso a los expedientes judiciales
 | 3 | 2022-05-16 | Circular 89 (2022-05-16) |
 | 4 | 2023-05-25 | Circular 110 (2023-05-25) |
 | 5 | 2023-10-18 | Circular 282 (2023-10-18) |
+| 6 | 2023-10-18 | Circular 251 (2023-09-26) |

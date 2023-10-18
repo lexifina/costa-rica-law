@@ -1,6 +1,6 @@
 (Derogado)
 CIRCULAR Nº 91-2010
-(Esta norma se dejó sin efecto mediante circular N° 110-2023 del 25 de mayo del 2023 y publicada en el Boletín Judicial N° 105 del 13 de junio del 2023. Posteriormente mediante circular N° 282 del 18 de octubre de 2023, y publicada en el Boletín Judicial del Poder Judicial N° 200 del 1° de noviembre de 2023, se vuelve a dejar sin efecto la presente norma)
+(Esta norma se dejó sin efecto mediante circular N° 110-2023 del 25 de mayo del 2023 y publicada en el Boletín Judicial N° 105 del 13 de junio del 2023. Posteriormente mediante circular N° 282 del 18 de octubre de 2023, y publicada en el Boletín Judicial del Poder Judicial N° 200 del 1° de noviembre de 2023, se vuelve a dejar sin efecto la presente norma. Asimismo, por circular N° 251-2023 del 26 de setiembre de 2023, "Acceso al Expediente Judicial según el Artículo 243 de la Ley Orgánica del Poder Judicial y uso obligatorio del Formulario "Compromiso de Confidencialidad y Privacidad de la Información del Expediente Judicial" conforme a la Ley 8968"", se vuelve a dejar sin efecto la presente norma)
 (Esta circular fue reiterada mediante sesión N° 108-15 del 10 de diciembre del 2015, publicada en el Boletín Judicial N° 29 del 11 de febrero del 2016 mediante circular N° 8-2016 del 12 de enero del 2016)
 (Nota de Sinalevi: La Corte Suprema de Justicia aprobó una nueva circular 91-2012 "Acceso a los expedientes judiciales", mediante publicación en el Boletín Judicial N° 195 del 9 de octubre del 2012)
 Asunto: Acceso a los expedientes judiciales.
