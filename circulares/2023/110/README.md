@@ -13,3 +13,4 @@ Acceso al Expediente Judicial según el artículo 243 de la Ley Orgánica del Po
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-05-25 | la propia norma |
+| 2 | 2023-10-18 | Circular 282 (2023-10-18) |

@@ -1,4 +1,6 @@
+(Derogado)
 CIRCULAR Nº 110-2023
+(Esta norma se dejó sin efecto mediante circular N° 282 del 18 de octubre de 2023, y publicada en el Boletín Judicial del Poder Judicial N° 200 del 1° de noviembre de 2023)
 ASUNTO: "Acceso al Expediente Judicial según el artículo 243 de la Ley Orgánica del Poder Judicial y uso obligatorio del Formulario "Compromiso de Confidencialidad y Privacidad de la Información del Expediente Judicial" conforme a la Ley 8968."
 A LOS DESPACHOS JUDICIALES DEL PAÍS, INSTITUCIONES
 EDUCATIVAS, COLEGIO DE ABOGADAS Y ABOGADOS
