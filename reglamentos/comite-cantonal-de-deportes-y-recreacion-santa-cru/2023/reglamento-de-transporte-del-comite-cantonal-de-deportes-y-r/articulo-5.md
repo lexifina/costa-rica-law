@@ -1,0 +1,1 @@
+Artículo 5º-Ámbito de aplicación: La presente normativa aplicará para los gastos de transporte (Kilometraje), sufragados con fondos públicos en los que se incurra durante la participación de actividades deportivas y recreativas en representación del CCDR SC.

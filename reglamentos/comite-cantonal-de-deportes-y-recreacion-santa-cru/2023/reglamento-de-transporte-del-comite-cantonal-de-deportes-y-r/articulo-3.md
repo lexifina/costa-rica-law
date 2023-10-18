@@ -1,0 +1,1 @@
+Artículo 3º-A las disposiciones del presente Reglamento están sujetos la Junta Directiva del CCDR SC y demás funcionarios municipales. El incumplimiento a sus disposiciones acarreará responsabilidad administrativa, civil o penal, según corresponda.

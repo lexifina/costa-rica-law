@@ -1,0 +1,1 @@
+Artículo 2º-Objetivo General. Como objetivo general, está el dotar de transporte a la Junta Directiva del CCDR SC, funcionarios del CCDR SC, deportistas y entrenadores a los diferentes eventos donde se promueva el deporte y la recreación dentro del territorio Nacional.

@@ -1,0 +1,1 @@
+Artículo 8º-Los únicos gastos de Transporte (kilometraje) que se autorizan independientemente del tipo de actividad que se desarrolle, deben estar establecidos en los montos del Reglamento de Gastos de Viaje y de Transporte para Funcionarios Públicos, de la contraloría general de la república.
