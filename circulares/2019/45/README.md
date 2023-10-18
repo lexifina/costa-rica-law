@@ -14,3 +14,4 @@ Reiteración de la circular N° 155-2017, relacionada con la Obligación de envi
 | --- | --- | --- |
 | 1 | 2019-03-20 | la propia norma |
 | 2 | 2022-08-11 | Circular 145 (2022-08-11) |
+| 3 | 2023-10-18 | Circular 281 (2023-10-18) |
