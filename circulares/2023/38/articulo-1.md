@@ -1,6 +1,6 @@
 (Derogado)
 CIRCULAR N° 38-2023
-(Esta norma se dejó sin efecto mediante circular N° 110-2023 del 25 de mayo del 2023 y publicada en el Boletín Judicial N° 105 del 13 de junio del 2023)
+(Esta norma se dejó sin efecto mediante circular N° 110-2023 del 25 de mayo del 2023 y publicada en el Boletín Judicial N° 105 del 13 de junio del 2023. Posteriormente mediante circular N° 282 del 18 de octubre de 2023, y publicada en el Boletín Judicial del Poder Judicial N° 200 del 1° de noviembre de 2023, se vuelve a dejar sin efecto la presente norma)
 ASUNTO: Uso del Formulario "Compromiso de Confidencialidad y Privacidad de la Información del Expediente Judicial (para las personas estudiantes de Derecho).
 A LAS INSTITUCIONES EDUCATIVAS, COLEGIO
 DE ABOGADAS Y ABOGADOS, SERVIDORAS,

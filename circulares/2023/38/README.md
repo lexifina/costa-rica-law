@@ -14,3 +14,4 @@ Uso del Formulario "Compromiso de Confidencialidad y Privacidad de la Informaci√
 | --- | --- | --- |
 | 1 | 2023-02-14 | la propia norma |
 | 2 | 2023-05-25 | Circular 110 (2023-05-25) |
+| 3 | 2023-10-18 | Circular 282 (2023-10-18) |
