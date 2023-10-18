@@ -1,2 +1,2 @@
-Artículo 36.-El Tribunal de Reconocimientos del Poder Judicial tomará en cuenta los aportes realizados que reflejan el valor de las mujeres trabajadoras en el Poder Judicial, así como aquellos para favorecer la erradicación de la violencia y de cualquier otra forma de discriminación en detrimento de los derechos humanos de las mujeres.
+Artículo 36.- El Tribunal de Reconocimientos del Poder Judicial tomará en cuenta los aportes realizados que reflejan el valor de las mujeres trabajadoras en el Poder Judicial, así como aquellos para favorecer la erradicación de la violencia y de cualquier otra forma de discriminación en detrimento de los derechos humanos de las mujeres.
 (Así adicionado mediante circular N° 211 del 21 de setiembre de 2021)

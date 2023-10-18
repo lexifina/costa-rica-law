@@ -1,10 +1,7 @@
-Artículo 3.-
-Definiciones.
-Para los efectos de este Reglamento, se definen los siguientes términos:
+Artículo 3.- Definiciones. Para los efectos de este Reglamento, se definen los siguientes términos:
 Reconocimiento: Galardón o Distinción otorgado por el Poder Judicial.
 Pergamino: Documento oficial extendido por el Poder Judicial, para acreditar un determinado reconocimiento.
-Medalla: Pieza de metal batida o acuñada, comúnmente redonda, de 4 centímetros de diámetro, con el logo de la Diosa de la Justicia y alguna inscripción a juicio de la Corte Plena, en oro de diez quilates y con un peso de veinticuatro y medio gramos.
-Así reformado en sesión de Corte Plena N° 13-08, celebrada el 28 de abril de 2008, Artículo XXIV)
+Medalla: Pieza de metal batida o acuñada, comúnmente redonda de 4 centímetros de diámetro, con el logo de la Diosa de la Justicia y alguna inscripción a juicio de la Corte Plena, cuyo material será en plata 925.
 Antigüedad: Cantidad de años de trabajo reconocidos, a las personas servidoras o ex servidoras judiciales en el Poder Judicial.
 Circuito Judicial: Unión u organización territorial de varios despachos judiciales, para la eficiencia y el buen servicio público de la Administración de Justicia.
 Servidor Judicial: Persona que labora para el Poder Judicial.
