@@ -13,3 +13,4 @@ Actualización de la circular N° 45-2019, relacionada con la obligación de env
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-08-11 | la propia norma |
+| 2 | 2023-10-18 | Circular 281 (2023-10-18) |
