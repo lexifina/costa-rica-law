@@ -1,0 +1,1 @@
+Artículo 25.-Fiscalización: Será responsabilidad del BANHVI y del CONAPAM velar por el cumplimiento integral de esta ley de conformidad con los procedimientos de control, supervisión y fiscalización mediante los formularios que al respecto dispongan la administración de cada una de las instituciones y según sus competencias.

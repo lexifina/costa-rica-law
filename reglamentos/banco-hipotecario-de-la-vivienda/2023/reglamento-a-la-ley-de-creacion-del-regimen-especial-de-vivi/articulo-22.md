@@ -1,0 +1,2 @@
+Artículo 22.-Inscripción registral de las limitaciones: La EA deberá formalizar mediante escritura pública el subsidio de vivienda comunitaria a nombre de la ER de conformidad con la Ley 10214. El Registro Público realizará la debida inscripción de las limitaciones a la propiedad y la hipoteca legal preferente de la LSFNV.
+El BANHVI llevará un registro de las personas adultas mayores usuarias de cada una de las unidades de la vivienda comunitaria.

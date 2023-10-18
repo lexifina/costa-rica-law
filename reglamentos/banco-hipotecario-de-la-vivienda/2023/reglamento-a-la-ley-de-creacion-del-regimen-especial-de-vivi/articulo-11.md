@@ -1,0 +1,1 @@
+Artículo 11.-Regulaciones para garantizar el derecho de uso y habitación: La ER de la vivienda comunitaria, deberá emitir un reglamento interno que establezca las disposiciones mínimas para garantizar el derecho de uso y habitación, su extinción y las reglas de convivencias para cada una de las personas adultas mayores beneficiarias de esta modalidad.
