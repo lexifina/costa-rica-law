@@ -1,3 +1,3 @@
-ARTÍCULO 17.- Recursos
-Dentro de los ocho (8) días hábiles siguientes a la notificación, el contribuyente o su responsable legal podrá impugnar, por escrito, ante el Concejo Municipal, tales observaciones o cargos. En este caso, deberá indicar los hechos y las normas legales que fundamentan su reclamo, alegar las defensas que considere pertinentes y proporcionar u ofrecer las pruebas respectivas.
-Si, dentro del plazo señalado, no se presenta ninguna impugnación, la resolución quedará en firme. Las multas y los recargos empezarán a correr, a partir de la firmeza de la resolución del tributo.
+Artículo 17- Recursos
+Dentro de los ocho días hábiles siguientes a la notificación, la persona contribuyente o su representante legal podrá impugnar, por escrito, ante el Departamento de Patentes, tales observaciones o cargos. En este caso, deberá indicar los hechos y las normas legales que fundamentan su reclamo, alegar las defensas que considere pertinentes y proporcionar u ofrecer las pruebas respectivas. Si, dentro del plazo señalado, no se presenta ninguna impugnación, la resolución quedará en firme. Las multas y los recargos empezarán a correr a partir de la firmeza de la resolución.
+(Así reformado por el artículo 1° de la ley N° 10388 del 18 de octubre del 2023)

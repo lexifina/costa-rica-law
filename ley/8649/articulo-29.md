@@ -1,0 +1,4 @@
+Artículo 29- Sanciones
+a) Cierre definitivo y cancelación de licencia: si dentro del plazo de ocho días hábiles posteriores a la suspensión de la licencia por falta de pago de dos o más trimestres del impuesto, la persona patentada no cancela los tributos adeudados, la Municipalidad procederá, previa observancia del debido proceso, al cierre definitivo del negocio comercial y a la cancelación de la licencia respectiva.
+b) Si estando suspendida la licencia, la persona patentada, administradora o responsable del establecimiento comercial continúa desarrollando la actividad, será sancionada previa observancia del debido proceso, con una multa equivalente a tres salarios base del auxiliar 1 definido en el artículo 2 de la Ley 7337, de 5 de mayo de 1993, tal y como lo dispone el artículo 90 bis del Código Municipal
+(Así adicionado por el artículo 2° de la ley N° 10388 del 18 de octubre del 2023)
