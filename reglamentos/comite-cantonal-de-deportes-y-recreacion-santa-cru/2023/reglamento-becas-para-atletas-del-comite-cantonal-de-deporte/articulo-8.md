@@ -1,0 +1,1 @@
+Artículo 8°-Los únicos gastos de becas que se autorizan independientemente del tipo de actividad que se desarrolle, serán alimentos, hidratación, transporte (traslado a las diferentes comunidades de domicilio) y hospedaje; en representación del CCDR SC.
