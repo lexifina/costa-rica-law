@@ -13,3 +13,4 @@ Modificación de las circulares N°158-2017 y N°90-2023, sobre las oficinas aut
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-07-20 | la propia norma |
+| 2 | 2023-10-18 | Circular 267 (2023-10-18) |
