@@ -1,1 +1,0 @@
-Artículo 2°-Deróguese el Decreto Ejecutivo número 44005-H de fecha 20 de abril de 2023, publicado en el Alcance número 81 a La Gaceta número 79 de fecha 08 de mayo de 2023, a partir de la vigencia del presente decreto.
