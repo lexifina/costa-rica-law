@@ -1,0 +1,1 @@
+Artículo 16. -Archivo de documentos propios del proceso de elección. Toda la documentación generada como producto del presente proceso de elección, tanto en formato físico como en soporte digital, serán entregados al Consejo Superior de Educación Pública en el momento en que finalicen todos los trámites que involucra este proceso, para su respectiva custodia y archivo.

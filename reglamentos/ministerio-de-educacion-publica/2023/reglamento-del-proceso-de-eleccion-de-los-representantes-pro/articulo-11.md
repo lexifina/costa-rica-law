@@ -1,0 +1,25 @@
+Artículo 11.-Proceso de votación y forma de sufragar.
+El proceso de elección se realizará en forma exclusiva mediante el voto electrónico.
+La persona electora deberá contar con conexión estable a una red de internet para la emisión del sufragio, con la finalidad de evitar complicaciones en el uso del sistema de votación electrónica.
+La persona electora deberá emitir su voto electrónico dentro del territorio nacional.
+El sistema de votación electrónica es responsivo, aspecto que garantiza su acceso desde cualquier dispositivo tecnológico. Sin embargo, su visualización en tabletas o teléfonos celulares podría dificultar una vista completa de cada una de las pantallas, debido al tamaño de los dispositivos móviles antes mencionados; razón por la cual, se recomienda de manera preferente el uso de la computadora.
+Para el acceso al sistema de votación se debe ingresar al siguiente enlace web: http://cse.go.cr/elecciones
+En la página web del Consejo Superior de Educación se habilitarán dos accesos, uno de ellos destinado a la elección del representante propietario y otro referido a la elección del representante suplente. Cada acceso actuará de manera independiente y por ello, la persona electora podrá ingresar y registrar su voto en ambos.
+En la ventana denominada: "Inicio/Bienvenida" las personas electoras podrán tener acceso a información general del proceso de elección, misma que puede ser revisada de previo al ingreso al registro del voto.
+El ingreso al registro del voto requiere la inclusión del usuario (correo electrónico institucional) y contraseña (correspondiente al correo electrónico institucional). La persona electora deberá realizar su ingreso respetando los mecanismos y tipos de autenticación definidos para su cuenta.
+En caso de que la persona electora no recuerde la contraseña de su correo electrónico institucional, puede realizar el proceso de recuperación a través de alguno de los siguientes medios:
+a) Llenado y envío del formulario: https://mep.go.cr/Gestion-correo-mepadministrativos-docentes.
+b) Remisión de un correo electrónico a la dirección: mesaserviciosmep@mep.go.cr.
+c) Trámite personal en las Direcciones Regionales de Educación que cuentan con el servicio.
+La persona electora que haya ingresado al sistema de votación con su usuario y contraseña y tenga dificultades con el uso de la herramienta, podrá remitir un correo electrónico a la dirección: consultascsevotaciones@mep.go.cr para recibir el soporte técnico necesario por parte de la Dirección de Informática de Gestión. Dicho correo electrónico deberá titularse en el Asunto como: "Incidencia", explicar la situación y adjuntar cualquier elemento probatorio de respaldo que sea de utilidad para resolver la cuestión que se plantea. La Dirección de Informática de Gestión notificará a la Comisión Coordinadora los casos atendidos para el respaldo correspondiente.
+Las incidencias que se presenten ante la Dirección de Informática de Gestión (consultascsevotaciones@mep.go.cr) serán atendidas según el siguiente detalle:
+a) Los días 4 y 5 de diciembre de 2023 en horario de 7:00 a. m. a 3:00 p. m.
+b) El día 6 de diciembre de 2023 en horario de 7:00 a. m. a 10:00 a. m.
+Esta situación se pone en conocimiento de las personas electoras, con el propósito de que adopten las medidas pertinentes y de requerirlo, remitan la gestión con el tiempo suficiente, para garantizarse una respuesta antes del cierre del proceso de votación.
+La persona electora:
+a) Cuenta con cinco minutos para votar para cada uno de los cargos (propietario y suplente). Ese periodo de tiempo empieza a contabilizarse una vez que la persona electora ingresa a registrar su voto. Si la persona electora no consigna su voto en el tiempo concedido, el sistema se cerrará en forma automática, su participación se contabilizará como voto en blanco y no podrá ingresar nuevamente. En dicho supuesto la acción descrita no beneficia a ninguna de las personas candidatas.
+b) Tendrá la opción de consignar su voto por alguna de las personas candidatas en cada cargo (propietario y suplente) o hacer uso de la casilla "Voto En Blanco".
+c) Puede consignar su voto solamente una vez para cada uno de los cargos (propietario y suplente).
+d) Recibirá un mensaje de confirmación de la emisión de su voto y un correo electrónico como comprobante de participación desde la dirección de correo electrónico: mensajerocse@mep.go.cr.
+La persona electora que enfrente alguna dificultad con la red o el fluido eléctrico en el momento de votar y no logre registrar su voto en el sistema, podrá ingresar nuevamente y repetir el proceso, siempre dentro de los días y horarios habilitados para votar debiendo prestar atención al tiempo restante que posee para registrar su voto.
+La Comisión Coordinadora no será responsable por la emisión de mensajes, publicaciones, comunicados u otras acciones que realice la persona electora, antes, durante o después del cierre de la jornada electoral, que violente y/o lesione el secreto del sufragio. Dichas situaciones tampoco generarán la anulación de votos dentro del presente proceso electoral.

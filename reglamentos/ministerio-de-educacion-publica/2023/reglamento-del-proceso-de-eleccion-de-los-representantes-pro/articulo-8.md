@@ -1,0 +1,6 @@
+Artículo 8°.-Del proceso de divulgación formal de las candidaturas.
+Una vez que se cuente con la inscripción de las candidaturas, la Comisión Coordinadora comunicará lo pertinente a la Dirección de Prensa y Relaciones Públicas del Ministerio de Educación Pública, con la finalidad de que se realice una publicación del afiche o imagen promocional facilitado por la persona candidata, a través del correo electrónico masivo institucional, redes sociales oficiales u otros medios similares.
+En caso de que la persona candidata aporte un video promocional, también se remitirá a la Dirección de Prensa y Relaciones Públicas del Ministerio de Educación Pública, a fin de que se incluya en la divulgación respectiva.
+Tratándose de la divulgación mediante el correo electrónico oficial, se realizará un comunicado inicial con la información de todas las personas candidatas para cada uno de los cargos, sin perjuicio de que posteriormente se remitan mensajes individualizados. Esto con la finalidad de evitar conjeturas respecto al orden de envío de los mensajes.
+El proceso de divulgación se realizará preferiblemente del 20 al 24 de noviembre de 2023.
+El Consejo Superior de Educación Pública podrá incluir la información correspondiente en su página web, con el propósito de brindar la mayor publicidad al proceso electoral.
