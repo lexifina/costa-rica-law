@@ -1,0 +1,3 @@
+CAPÍTULO IV
+De las personas mediadoras
+Artículo 12.-Del registro de personas mediadoras: La Casa de Justicia mantendrá el listado actualizado de sus personas mediadoras, así como los currículos actualizados de éstas, los cuales deberán contener documentación que acredite su formación académica y su capacitación en materia de mediación. Se tendrá como persona mediadora a aquella persona con habilidades de comunicación y de resolución alterna de conflictos, que cuente con la capacidad de armonizar los intereses y presentar la verdadera motivación del conflicto a las partes involucradas; a fin de que estas encuentren una solución satisfactoria para ambas.

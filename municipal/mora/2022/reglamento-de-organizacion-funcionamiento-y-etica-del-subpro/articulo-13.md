@@ -1,0 +1,1 @@
+Artículo 13.-De los requisitos para ser una persona mediadora: Para ser persona mediadora de la Casa de Justicia de Mora, se requiere contar con la debida capacitación en métodos de Resolución Alterna de Conflictos, y autorizado por la Dirección Nacional de Resolución Alterna de Conflictos, para llevar a cabo proceso de mediación/conciliación.

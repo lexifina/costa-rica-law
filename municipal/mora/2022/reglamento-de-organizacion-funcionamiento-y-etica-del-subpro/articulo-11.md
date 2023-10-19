@@ -1,0 +1,1 @@
+Artículo 11.-De la evaluación del proceso: Las partes evaluarán proceso de mediación al término de la audiencia. Para ello, se les otorgará un formulario. Entiéndase que la audiencia es una sola, pudiendo llevarse a cabo durante varias sesiones de mediación, según los requerimientos del caso específico.

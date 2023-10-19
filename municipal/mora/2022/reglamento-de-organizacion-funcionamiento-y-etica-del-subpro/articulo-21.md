@@ -1,0 +1,1 @@
+Artículo 21.-De la invitación a las partes: La Casa de Justicia invitará a las partes a la audiencia, cumpliendo con todos los principios establecidos en la Ley RAC, la cual podrá realizarse de manera presencial o virtual, esta última modalidad siempre y cuando cumpla con todos los medios tecnológicos necesarios para llevar el proceso.

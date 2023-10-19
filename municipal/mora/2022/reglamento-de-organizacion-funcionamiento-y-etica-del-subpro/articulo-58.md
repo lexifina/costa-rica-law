@@ -1,0 +1,1 @@
+Artículo 58.-Calificación profesional: La persona mediadora sólo aceptara mediar en aquellos casos en que se considere suficientemente capacitado, teniendo en cuenta el contenido de la disputa, la naturaleza del procedimiento, las partes, el objeto en disputa y el grado de escala del conflicto.

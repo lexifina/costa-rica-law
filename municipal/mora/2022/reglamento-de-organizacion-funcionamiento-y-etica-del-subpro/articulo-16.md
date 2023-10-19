@@ -1,0 +1,1 @@
+Artículo 16.-La persona mediadora designado por la Casa de Justicia para hacerse cargo de un proceso de mediación podrá excusarse del proceso si hubiese causa alguna, debiendo la persona Coordinadora de la Casa nombrar una persona mediadora sustituta.

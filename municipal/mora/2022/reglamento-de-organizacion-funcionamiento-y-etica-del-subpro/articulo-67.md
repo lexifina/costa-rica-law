@@ -1,0 +1,3 @@
+CAPÍTULO V
+Procedimiento sancionatorio
+Artículo 67.-Competencia de imponer sanciones: Compete a la persona coordinadora de la Casa de Justicia, informar y trasladar a la alcaldía municipal y a la Dirección Nacional de Resolución de Conflictos la presunta falta cometida, para que dichas autoridades procedan conforme a Derecho y procedan con el trámite y sancione correspondientes. Así como, compete a la Dirección de Desarrollo Humano y Cohesión Social y la Alcaldía reportar ante la Dirección de Talento Humano y ante la Dirección Nacional de Resolución Alterna de Conflictos las faltas que cometa la persona Coordinadora de la Casa de Justicia en el ejercicio de sus funciones según corresponda.

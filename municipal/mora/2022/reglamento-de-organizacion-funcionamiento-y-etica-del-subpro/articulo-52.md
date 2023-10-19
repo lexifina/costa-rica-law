@@ -1,0 +1,1 @@
+Artículo 52.-Prohibición de recibir dádivas o favores: La persona mediadora no podrá recibir o intercambiar obsequios, favores, información u otros elementos, dádivas o gratuidades que puedan presuponer su ánimo o empeñar su labor de tercero imparcial. Esta norma se aplica a todo el personal de la Casa de Justicia en relación con los usuarios del servicio.

@@ -1,0 +1,1 @@
+Artículo 17.-La persona mediadora designada por la Casa de Justicia para hacerse cargo de un proceso de mediación, podrá ser objetado por alguna de las partes, debiendo la persona Coordinadora de la Casa de Justicia nombrar una persona mediadora sustituta. Esta solicitud podrá hacerse una única vez.

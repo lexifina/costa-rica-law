@@ -1,0 +1,1 @@
+Artículo 20.-De la admisibilidad del proceso: Si el caso expuesto por el interesado cumple con los requerimientos establecidos en la Ley N° 7727, la persona Coordinadora procederá a invitar a la contraparte y señalará la fecha y hora de la mediación.

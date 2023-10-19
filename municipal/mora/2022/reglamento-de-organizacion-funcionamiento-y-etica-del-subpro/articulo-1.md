@@ -1,0 +1,11 @@
+MUNICIPALIDAD DE MORA
+El Concejo Municipal de Mora, mediante acuerdo Ref. Acuerdo Nº ACM-135-06-2022 del 30 de noviembre de 2022, acordó:
+"( ) Se acuerda por unanimidad y en firme: Conforme a las bases del régimen municipal y constitucional establecidas en los artículos 13 inciso c) del Código Municipal y 169 y 170 de la Constitución Política y la Ley sobre Resolución Alterna de Conflictos y Promoción de la Paz Social, aprobar el proyecto de "Reglamento de Organización, Funcionamiento y Ética del Subproceso de Casa de Justicia de Mora". 2. En el caso de este proyecto de reglamento, en apego a lo establecido en el artículo 43 del Código Municipal, se ordena la publicación integra de tal proyecto de reglamento en La Gaceta, donde se someterá a consulta pública no vinculante, por un plazo mínimo de diez días hábiles, luego del cual se pronunciará sobre el fondo del asunto. 3. Concluida esa fase de consulta pública no vinculante, sea que ingresen observaciones que deban valorarse, o bien, aunque no existan observaciones, el Concejo Municipal deberá disponer la aprobación definitiva del citado reglamento a efectos de que se lleve a cabo la segunda publicación del texto íntegro en La Gaceta y regirá a partir de su publicación o de la fecha posterior indicada en ella. 4. Notifíquese el presente acuerdo con acuse de recibo y fecha al señor Alcalde Municipal, Alfonso Jiménez Cascante, para lo de su cargo; a la Asesoría Legal, Licda. Cindy Monge Soto, y a la Encargada de Casa de la Justicia, Licda. Roxana Delgado Moreira, para su conocimiento. Acuerdo definitivamente aprobado. ( )"
+REGLAMENTO DE ORGANIZACIÓN,
+FUNCIONAMIENTO Y ÉTICA DEL SUBPROCESO
+CASA DE JUSTICIA DE MORA
+TÍTULO I
+De la Casa de Justicia de Mora
+CAPÍTULO I
+Normas generales
+Artículo 1º-Objetivos de la Casa de Justicia: La Casa de Justicia tiene como objetivo primordial brindar servicios de orientación legal y promoción para la solución de conflictos a poblaciones de escasos recursos o en condiciones de vulnerabilidades sociales, así como administrar procesos de mediación, promoviendo la cultura de paz y difundiendo la utilización de los mecanismos alternativos para la solución de conflictos establecidos en la Ley sobre Resolución Alterna de Conflictos y Promoción de la Paz Social, N° 7727 del 09 de Diciembre de 1997 y su reglamento.

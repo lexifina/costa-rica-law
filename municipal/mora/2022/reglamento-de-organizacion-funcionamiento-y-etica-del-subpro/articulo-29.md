@@ -1,0 +1,1 @@
+Artículo 29.-Las personas mediadoras no consentirán que ninguna de las partes procure intimidar o presionar a la otra parte. El no cumplimiento de esta disposición por cualquiera de las partes permite a la persona mediadora dar por terminado el proceso de mediación.

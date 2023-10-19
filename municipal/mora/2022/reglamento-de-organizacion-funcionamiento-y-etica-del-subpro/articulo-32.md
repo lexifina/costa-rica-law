@@ -1,0 +1,1 @@
+Artículo 32.-Al iniciarse la audiencia de mediación, la persona mediadora señalará a las partes las reglas de conducta que la regirán, así como el procedimiento; e informará a las partes que, podrá realizar audiencias separadas con cada uno de los interesados en caso de considerarlo conveniente.

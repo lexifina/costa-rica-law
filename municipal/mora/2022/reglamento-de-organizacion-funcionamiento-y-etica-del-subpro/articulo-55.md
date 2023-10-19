@@ -1,0 +1,1 @@
+Artículo 55.-Intereses de terceros no representados: Cuando la persona mediadora advierta que existen intereses no presentes ni representados en la mediación, que las partes no han considerado y pudieran resultar afectados por el acuerdo, deberá hacerlo saber a los participantes y sugerir la integración del procedimiento con terceros.

@@ -1,0 +1,1 @@
+Artículo 37.-En caso de que las partes llegaran a un acuerdo, total o parcial, la persona mediadora dejará constancia de ello en el acta respectiva y especificando cuando así corresponda los puntos sobre los cuales no hubo acuerdo, con lo cual concluye el proceso de mediación.

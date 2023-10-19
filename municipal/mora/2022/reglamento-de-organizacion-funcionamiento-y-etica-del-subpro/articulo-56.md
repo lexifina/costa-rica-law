@@ -1,0 +1,1 @@
+Artículo 56.-Deber de fomentar el diálogo y buscar acuerdos: La persona mediadora deberá poner diligencia en tratar de lograr la pronta conclusión del procedimiento, sin que por ello presione a las partes para lograr acuerdos que no satisfagan los intereses de éstas.
