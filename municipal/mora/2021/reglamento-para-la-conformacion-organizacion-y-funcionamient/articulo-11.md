@@ -1,0 +1,4 @@
+CAPÍTULO II
+De la Conformación del Comité Cantonal
+Artículo 11.-Convocatoria. La municipalidad definirá y realizará las acciones internas correspondientes para convocar a los distintos sectores juveniles del cantón, para la realización de las asambleas de elección de cada sector (estudiantil, juvenil, religiosas), con el objeto de integrar el Comité, conforme a lo establecido en el artículo 24 de la Ley General de la Persona Joven.
+La municipalidad para los efectos de conocimiento público y de trámites contemplados en la Ley General de la Persona Joven, deberá conformar antes de finalizar el mes de noviembre el Comité Cantonal de la Persona Joven, posterior al proceso correspondiente de asambleas para designar a los representantes por los sectores señalados en el artículo 24 de la Ley 8261 y comunicando al Consejo de la Persona Joven, el acuerdo de conformación.

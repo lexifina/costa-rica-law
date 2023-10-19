@@ -1,0 +1,1 @@
+Artículo 5º-A efectos de la aplicación de la presente normativa, la respectiva Municipalidad definirá dentro de su estructura, la instancia municipal encargada de velar por la correcta aplicación de este reglamento.
