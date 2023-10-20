@@ -1,0 +1,1 @@
+Artículo 22.-En caso de negación para aceptar la notificación o imposibilidad de entregar la misma, se hará constar de tal situación mediante un acta en el lugar de los hechos, para ser incorporado en el expediente respectivo.

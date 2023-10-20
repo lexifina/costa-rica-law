@@ -1,0 +1,1 @@
+Artículo 2º-Ámbito de aplicación y alcance: Las disposiciones del presente reglamento serán de aplicación y acatamiento obligatorio para todas las personas, físicas o jurídicas, propietarias de bienes inmuebles localizados dentro de los límites político-administrativos del cantón de Nicoya correspondiente a zonas urbanas.

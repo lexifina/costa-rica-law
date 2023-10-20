@@ -1,0 +1,1 @@
+Artículo 15.-Ante la imposibilidad de presentar de forma escrita la denuncia en Plataforma de Servicios, el o la afectada podrá hacer su denuncia mediante vía telefónica o correo electrónico dirigido al Departamento de Gestión Ambiental de la Municipalidad.

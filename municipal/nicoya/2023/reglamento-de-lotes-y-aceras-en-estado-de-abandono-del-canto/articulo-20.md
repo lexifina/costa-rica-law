@@ -1,0 +1,1 @@
+Artículo 20.-La notificación deberá indicar explícitamente las obligaciones de limpiar, cercar y continuar el mantenimiento del lote denunciado, así como el nombre completo del propietario, cédula física o jurídica, número de folio real del predio y plano catastrado (en caso de haber alguno registrado), dirección y estado del lote al momento de la inspección.

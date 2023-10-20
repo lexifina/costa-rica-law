@@ -1,0 +1,1 @@
+Artículo 23.-En los casos en que no ha sido posible establecer comunicación con el propietario, se realizará una única publicación en el Diario Oficial La Gaceta, con lo cual se da por realizada la notificación. La publicación que supla la notificación contendrá el mismo contenido especificado en el Artículo 20 del presente reglamento.

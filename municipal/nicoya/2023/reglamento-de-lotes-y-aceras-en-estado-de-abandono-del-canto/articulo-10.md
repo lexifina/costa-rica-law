@@ -1,0 +1,1 @@
+Artículo 10.-Cuando mediante inspección se identifique aceras con vegetación y materiales que obstaculizan el paso y provoquen el uso de la calzada como paso peatonal, se procederá a notificar al propietario correspondiente, a efectos de que éste proceda a liberar la misma y así evitar inconvenientes, accidentes de tránsito o similar.

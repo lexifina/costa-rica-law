@@ -1,0 +1,1 @@
+Artículo 18.-No procederá la aplicación del presente reglamento a denuncias en áreas naturales o rurales dedicadas a pastos u otro uso de la tierra acorde a su aptitud, en donde no se identifique afectación a personas o edificaciones cercanas. Capítulo IV: Notificaciones

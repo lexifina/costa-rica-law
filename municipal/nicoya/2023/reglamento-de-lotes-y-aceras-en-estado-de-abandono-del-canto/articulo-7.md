@@ -1,0 +1,1 @@
+Artículo 7º-La Municipalidad tendrá la obligación de llevar a cabo las labores de limpieza en aquellos lotes o aceras, donde el propietario no cumpla con su deber cuanto éste ya ha sido notificado, debiendo la administración municipal cobrar según determina el presente reglamento.

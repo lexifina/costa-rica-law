@@ -1,0 +1,2 @@
+Artículo 21.-Por medio de los Inspectores Municipales se notificará a los propietarios de lotes y/o aceras sin mantenimiento. En caso no de lograr contacto directo con el propietario, la notificación puede ser entregada a cualquier persona mayor de quince años, y que indique tener relación directa con el propietario, para efectos de hacerle llegar la debida notificación.
+Lo anterior según lo dispuesto en el artículo 4 de la Ley 8687.

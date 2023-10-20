@@ -1,0 +1,1 @@
+Artículo 17.-Para solicitar la aplicación de la normativa vigente en el tema de lotes y/o aceras en estado de abandono, deberá existir una afectación a viviendas, comercio, institución o cualquier unidad ocupaciones cercanas.

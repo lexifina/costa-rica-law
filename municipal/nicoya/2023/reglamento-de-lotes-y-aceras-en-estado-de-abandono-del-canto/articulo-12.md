@@ -1,0 +1,9 @@
+Artículo 12: Previo a la construcción de aceras, el interesado deberá consultar el diseño al
+Departamento de Control Constructivo y Obra Pública, y se deberá cumplir con lo siguiente:
+a) La pendiente transversal de la acera tendrá como mínimo 1% y como máximo 3%.
+b) Acera con altura de 14 cm medida desde el nivel de caño.
+c) En las zonas o áreas de las paradas de taxis y autobuses la superficie de la acera deberá tener una textura diferente y una altura de acera entre 25 y 30 cm medidos desde el nivel de caño.
+d) Las cajas, los registros, medidores de agua o cualquier otro dispositivo en las aceras, no deben sobrepasar o estar inferiores al nivel final de la acera y deberán tener su respectiva tapa.
+e) No se permitirá gradas para salvar el desnivel en las aceras. Para resolver los desniveles topográficos se construirá una rampa longitudinal, cuya pendiente máxima no deberá ser mayor al 10%, salvo casos excepcionales debido a desniveles topográficos.
+f) Rampas para accesos peatonales: con el fin de garantizar los recorridos urbanos, en las esquinas de todas las aceras deberán construirse rampas para discapacitados, adaptándose los niveles entre la acera y calzada. Esta rampa deberá tener un ancho mínimo de un metro cincuenta centímetros (1.50 metros), una pendiente máxima de 10% y construidas en forma antiderrapante con concreto táctil, con una longitud transversal máxima de 50 cm de ancho del total de la acera, desde el caño hacia el predio. En los casos en que no exista desnivel entre la calzada y la acera, el acceso deberá permitir el libre paso de las aguas pluviales, para ello, la Municipalidad determinará la especificación de la obra a construir. La ubicación específica de las rampas será determinada por la Municipalidad en el estudio respectivo.
+g) El diámetro para conformar el arco de las esquinas deberá tener la menor longitud posible.
