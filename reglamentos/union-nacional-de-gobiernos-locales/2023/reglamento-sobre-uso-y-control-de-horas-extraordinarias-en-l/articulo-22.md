@@ -1,0 +1,4 @@
+Artículo 22.-Excepción al límite de horas para jornada extraordinaria. No obstante, la anterior limitación, cualquier trabajador de la UNGL, podrá laborar más de doce horas diarias, en caso de siniestro o riesgo inminente, en los términos referidos en el artículo 2, inciso k) del presente Reglamento, y según lo dispuesto en el artículo 140 del Código de Trabajo. La ocurrencia de un siniestro o riesgo inminente podrá derivar una jornada extraordinaria remunerada, aunque exceda las 12 horas, siempre que concurra lo siguiente:
+a- Que el servidor voluntariamente esté anuente a prestar sus servicios.
+b- Que las labores que se deban realizar se deriven efectivamente de un siniestro o riesgo inminente, de manera que de no atenderse de forma inmediata se cause o pueda causar grave perjuicio al cumplimiento de cualquiera de las funciones que desarrolla la UNGL.
+c- Que el servidor cuente con el visto bueno, aún de manera verbal en casos de suma urgencia, de sus superiores.

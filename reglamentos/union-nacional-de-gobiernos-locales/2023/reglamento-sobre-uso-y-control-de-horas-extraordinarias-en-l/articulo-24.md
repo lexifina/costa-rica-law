@@ -1,0 +1,1 @@
+Artículo 24.-Aprobación. Recibida la solicitud, Recursos Humanos la analizará y de cumplir con todos los supuestos, la elevará a la Dirección Ejecutiva, para su aprobación definitiva. En caso de no cumplirse con los supuestos para su reconocimiento, Recursos Humanos mediante indicación de la Dirección Ejecutiva denegarán el reconocimiento.
