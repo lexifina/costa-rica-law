@@ -1,0 +1,1 @@
+Artículo 3º-Las entidades y los órganos contemplados en el artículo 2 de la Ley Marco de Empleo Público, deberán aprobar planes de empleo público de mediano y largo plazos, con fundamento en las disposiciones normativas y los instrumentos de planificación estratégica nacional, sectorial, regional e institucional, y el conjunto de políticas públicas vigentes, según corresponda.

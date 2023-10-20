@@ -1,0 +1,1 @@
+Artículo 2º-El objetivo de la planificación del empleo público es contribuir a la consecución de la eficacia en la prestación de bienes y servicios, y de la eficiencia en la utilización de los recursos disponibles, para generar valor público, de conformidad con lo establecido en el artículo 11, inciso a) de la Ley Marco de Empleo Público.
