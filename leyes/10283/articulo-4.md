@@ -1,0 +1,8 @@
+ARTÍCULO 4- El Concejo Municipal de la Municipalidad de Quepas, con base en lo establecido en el artículo anterior, creará una Unidad Técnica Ejecutora, la cual será la responsable de la gestión general del proyecto. La Unidad procederá a realizar el análisis de la documentación aportada y notificar a los ocupantes y/o propietarios respectivos, por medio de resolución administrativa, el inicio del proceso para que puedan ser considerados como beneficiarios de la presente ley, garantizando que, en el caso de los propietarios registrales, mientras este derecho se encuentre vigente sea respetado.
+Se deja establecido que la autorización de venta de los inmuebles, por parte de la Municipalidad de Quepas, son exclusivamente para los inmuebles que demuestren que no afectarán derechos de propiedad vigentes ante terceros, se encuentren sin ninguna ocupación con base en los criterios establecidos en el artículo anterior y no sean clasificados como patrimonio natural del Estado, para lo cual deberán seguir los principios establecidos por la Ley 9986, Ley General de Contratación Pública, de 27 de mayo de 2021, y su reglamento, siguiendo los procedimientos legales correspondientes.
+La Unidad Técnica estará conformada por:
+a) Una persona integrante del Concejo Municipal de la Municipalidad de Quepas, la cual coordinará,
+b) una persona representante que determine el Ministerio de Ambiente y Energía (Minae), y
+c) una persona representante designada por la Alcaldía de la Municipalidad de Quepas.
+La Unidad Técnica se conformará de carácter temporal y atenderá exclusivamente la gestión de este proyecto. Sus miembros no devengarán dietas.
+Las funciones de la Unidad Técnica serán determinadas vía reglamento.
