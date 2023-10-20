@@ -1,0 +1,1 @@
+Artículo 5º-Inversión: La COMAD fiscalizará que el Gobierno Local incluya en sus programas de inversión, proyectos para garantizar la igualdad de oportunidades, cuyo financiamiento requiera recursos extraordinarios no contemplados en sus presupuestos regulares o de funcionamiento.

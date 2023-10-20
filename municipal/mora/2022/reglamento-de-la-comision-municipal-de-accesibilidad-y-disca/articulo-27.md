@@ -1,0 +1,1 @@
+Artículo 27.-Régimen sancionatorio: Cualquier infracción contra la presente normativa será sancionada, de acuerdo con lo establecido en el Reglamento Autónomo de Servicios de la Municipalidad, la Ley 7600, Ley 8661, la Ley General de la Administración Pública y demás normativa aplicable a la materia.

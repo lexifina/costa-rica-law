@@ -1,0 +1,2 @@
+Artículo 23.-Integración: El Órgano Auxiliar Administrativo de la COMAD será una Comisión conformada e integrada por el Alcalde Municipal, quien promoverá como acción afirmativa, la inclusión de Personas con Discapacidad como funcionarios integrantes.
+Ese Órgano Auxiliar Administrativo será integrado por la Alcaldía Municipal y coordinado en lo posible por una persona con reconocida y demostrable experiencia en la temática de Derechos de las personas con discapacidad.
