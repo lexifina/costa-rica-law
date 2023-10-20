@@ -1,0 +1,1 @@
+Artículo 13.-Los servidores que estén acogidos al régimen de dedicación exclusiva y estén disfrutando de un permiso sin goce de salario, al regresar pueden seguir devengando el pago de dicho incentivo. Si el plazo del contrato firmado aún no ha fenecido, en caso de que dicho contrato haya finalizado, el servidor deberá solicitar nuevamente el beneficio.

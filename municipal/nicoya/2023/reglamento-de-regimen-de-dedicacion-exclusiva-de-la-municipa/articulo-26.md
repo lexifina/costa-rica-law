@@ -1,0 +1,1 @@
+Artículo 26.-Supletoriedad de otras normas. Lo no regulado expresamente en este reglamento se regirá de conformidad con el Título III de la Ley 9635 Ley de Fortalecimiento de las Finanzas Públicas y su Reglamento, las normas del ordenamiento jurídico vigente que sean de aplicación supletoria a este Reglamento. Rige a partir de su publicación.

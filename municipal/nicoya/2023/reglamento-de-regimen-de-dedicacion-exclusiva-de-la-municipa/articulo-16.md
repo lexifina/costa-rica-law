@@ -1,0 +1,1 @@
+Artículo 16.-Los contratos de dedicación exclusiva, si cumplen con todos los requisitos establecidos, en un plazo máximo de 8 días hábiles contados a partir de la fecha de su presentación, el Departamento de Recursos Humanos procederá remitirlos al Despacho de la Alcaldía para su respectiva rúbrica.

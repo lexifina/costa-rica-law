@@ -1,0 +1,4 @@
+Artículo 21.-Sanción por incumplimiento del contrato de Dedicación Exclusiva.
+Habrá incumplimiento por parte del servidor municipal cuando realice acciones contrarias a lo estipulado en el presente Reglamento o en el Contrato de Dedicación Exclusiva que este contiene, lo cual tendrá las siguientes sanciones:
+a) La rescisión inmediata del contrato y el reintegro a la Municipalidad de Nicoya, las sumas otorgadas por concepto de Dedicación Exclusiva, cuando se incumpla lo establecido en el artículo 14º de este Reglamento. En este caso, el servidor no podrá firmar un nuevo contrato con la Municipalidad por un período de dos años a partir de la fecha de dicha rescisión.
+b) El despido se aplicará, sin responsabilidad para la Municipalidad de Nicoya, al servidor que haga incurrir en error a la Administración en la recepción indebida de los requisitos que señala el artículo 7.

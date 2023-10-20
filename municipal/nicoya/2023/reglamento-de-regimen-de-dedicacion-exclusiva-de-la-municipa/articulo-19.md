@@ -1,0 +1,1 @@
+Artículo 19.-Pueden acogerse excepcionalmente al Régimen de Dedicación Exclusiva o mantener este beneficio, aquellos servidores a quienes se les permita laborar media jornada, o por teletrabajo, siempre que firmen una declaración jurada.
