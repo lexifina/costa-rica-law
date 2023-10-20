@@ -1,0 +1,1 @@
+Artículo 2º-La Junta Vial es un órgano público nombrado por el Concejo Municipal de Nicoya, ante quien responde por su gestión. Esta Junta Vial será de consulta obligatoria en materia de planificación, evaluación y desarrollo de la obra pública vial cantonal y de servicio vial municipal, indistintamente de la procedencia u origen de los recursos destinados a esos efectos.
