@@ -11,3 +11,10 @@ Persona colegiada activa: Léase en la Ley N°9601 como miembro activo, a toda p
 Para volver a su condición activa, deberá cancelar el saldo pendiente a la fecha de activación o presentar una propuesta de pago con máximo seis meses y prorrogable hasta un año bajo condiciones especiales comprobadas y autorizado por la Junta Directiva para ponerse al día; en este caso la gestión de cobros le indicará la fecha límite. La Junta Directiva podrá condonar la deuda en casos de fuerza mayor como incapacidad laboral, condición de salud comprobada o situaciones de similar condición que le habilitará a ejercer la profesión.
 (*) (Así reformada la definición anterior en sesión N° 1 del 27 de agosto de 2022)
 Persona colegiada inactiva: Toda persona colegiada que cumpla con el numeral 1, pero presenta en su expediente una amonestación escrita por incurrir en morosidad según el Código de Ética acumulando cuatro cuotas pendientes sin presentar propuesta de pago.
+(*)Persona colegiada jubilada: que se haya jubilado bajo cualquier régimen de pensión del país. Además, cualquier persona con incapacidad total o permanente para ejercer la profesión puede optar por la categoría de persona jubilada. Esta persona deberá estar debidamente certificada y solicitar por escrito el cambio de categoría ante la Junta Directiva.
+La persona jubilada tendrá los siguientes beneficios:
+1. Estará exenta del pago de la cuota de colegiatura mensual.
+2. Podrá participar en actividades científicas, culturales y sociales organizadas por el Colegio, así como participar en Asambleas Generales Ordinarias y Extraordinarias con voz y voto.
+3. Podrá participar en los órganos del Colegio y Comisiones aportando su conocimiento y experiencia al gremio.
+Las personas jubiladas que se reincorporen laboralmente deberán solicitar por escrito ante la Junta Directiva el cambio de categoría de persona jubilada a persona colegiada activa y, por ende, a partir de la actualización de su categoría deberá pagará las cuotas de colegiatura.
+(*) (Así adicionada la definición anterior en sesión N° 1 del 21 de octubre de 2023)
