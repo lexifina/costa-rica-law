@@ -1,3 +1,0 @@
-CAPÍTULO II
-De la organización
-Artículo 4º—Definición de Auditoría Interna. La Auditoría Interna es la actividad independiente, objetiva y asesora, que proporciona seguridad al ente u órgano, puesto que se crea para validar y mejorar sus operaciones. Contribuye a que se alcancen los objetivos institucionales, mediante la práctica de un enfoque sistemático y profesional para evaluar y mejorar la efectividad de la administración del riesgo, del control y de los procesos de dirección en las entidades y órganos sujetos. Dentro de la organización, la Auditoría Interna proporciona a la ciudadanía una garantía razonable de que la actuación del Jerarca y la del resto de la administración se ejecutan conforme al marco legal y técnico y a las prácticas sanas.
