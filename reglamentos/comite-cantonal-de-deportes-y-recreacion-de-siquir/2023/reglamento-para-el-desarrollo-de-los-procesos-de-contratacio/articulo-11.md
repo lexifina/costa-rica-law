@@ -1,0 +1,2 @@
+Artículo 11. Sobre la apertura las ofertas. Es responsabilidad de la Asistente Administrativa o bien quien designe la Junta Directiva mediante acuerdo, realizar la apertura de las ofertas de todos los procedimientos de contratación siguiendo las disposiciones legales y reglamentarias aplicables.
+Por otra parte, y en caso de ser necesario, el Presidente de la Junta Directiva podrá dejar sin efecto un concurso antes de recibir ofertas cuando existan razones justificadas debidamente acreditadas en resolución motivada que conste en el expediente de la contratación.

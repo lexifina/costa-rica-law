@@ -1,0 +1,1 @@
+Artículo 13. Recomendación de la adjudicación. La Asistente Administrativa o bien quien designe la Junta Directiva deberá elaborar la recomendación para el acto final del procedimiento que servirá de base para la decisión que deba adoptar.

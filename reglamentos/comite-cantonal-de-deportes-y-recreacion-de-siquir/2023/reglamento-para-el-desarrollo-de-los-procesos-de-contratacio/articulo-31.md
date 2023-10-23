@@ -1,0 +1,8 @@
+Artículo 31. Asesoría Jurídica Municipal. La Asesoría Jurídica de la Municipalidad tendrá las siguientes funciones relacionadas con los procesos de contratación:
+1. Gestionar la declaratoria de nulidad absoluta cuando en el conocimiento de un recurso se considere que se encuentran en presencia de un vicio causante de nulidad absoluta, evidente y manifiesta, de conformidad con lo dispuesto en el artículo 173 de la Ley General de la Administración del Comité Cantonal de Deportes Siquirres Pública.
+2. Apoyar a los órganos competentes en la atención diligente y en tiempo de las gestiones requeridas por la Contraloría General de la República producto de un recurso recibido ante esta, además coordinar a lo interno de la institución los criterios o respuestas, así como la entrega de documentos relacionados con estos.
+3. Emitir las resoluciones de pago que aprobará la Junta Directiva, para reconocerle al contratista una indemnización en los casos de contrataciones irregulares.
+4. Emitir criterio jurídico sobre la aplicación de la caducidad de un procedimiento de contratación o de un contrato.
+5. Llevar a cabo el trámite de refrendo interno de las contrataciones según la normativa aplicable.
+6. Emitir criterio jurídico en cualquier etapa del procedimiento de contratación, sobre el régimen jurídico de la contratación pública, cuando así sea requerido por las unidades y dependencias internas del Comité Cantonal de Deportes de Siquirres.
+7. Apoyar a la Asistente Administrativa y/o Junta Directiva en el desarrollo de procedimientos para la imposición de sanciones administrativas a los sujetos particulares conforme a la Ley General de Contratación Pública, Nº 9986 y su Reglamento y redactar el proyecto de resolución.

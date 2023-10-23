@@ -1,0 +1,1 @@
+Artículo 18. Orden de Inicio. La Asistente Administrativa o bien quien designe la Junta Directiva mediante acuerdo, será el responsable de emitir y notificar la orden de inicio de la ejecución por medio del Sistema Digital Unificado respetando los plazos previstos en la Ley General de Contratación Pública, Nº 9986, su Reglamento o en el pliego de condiciones.

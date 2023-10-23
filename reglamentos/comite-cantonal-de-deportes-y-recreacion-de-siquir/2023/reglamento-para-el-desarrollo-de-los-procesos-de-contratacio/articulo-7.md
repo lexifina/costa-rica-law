@@ -1,0 +1,2 @@
+Artículo 7. Contenido presupuestario. Cada contratación deberá contar con la certificación de contenido presupuestario y la asignación de contenido presupuestario respecto al objeto contractual.
+En caso de no existir contenido presupuestario disponible para respaldar la contratación, se deberá obtener una autorización para iniciar el procedimiento en dichas condiciones, la cual deberá ser emitida por la Junta Directiva.

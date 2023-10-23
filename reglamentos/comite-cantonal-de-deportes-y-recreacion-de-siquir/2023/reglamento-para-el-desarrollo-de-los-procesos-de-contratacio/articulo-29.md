@@ -1,0 +1,16 @@
+Artículo 29. De las Unidades Solicitantes. Las Unidades solicitantes, tendrán a su cargo las siguientes funciones relacionadas con los procesos de contratación:
+1. Elaborar la decisión inicial del procedimiento; así como reunir y acreditar el cumplimiento de todos los requisitos previos exigidos por la Ley General de Contratación Pública, Nº 9986 y su Reglamento para dar inicio al procedimiento y trasladarlo así a la Asistente Administrativa o bien a la persona.
+2. Proponer de manera motiva, las multas por defectos en la ejecución del contrato y cláusulas penales que se consideren necesarias incluir en el pliego de condiciones, considerando para ello, aspectos tales como, el monto, plazo, riesgo, repercusiones de un eventual incumplimiento para el servicio que se brinde o para el interés público y la posibilidad de incumplimientos parciales o por líneas.
+3. En caso de las contrataciones de urgencia elaborar la justificación detallada a partir de la cual se determinó la procedencia de utilizar este procedimiento especial, así como el parámetro mediante el cual se pretende seleccionar al contratista y remitir a la Junta Directiva para su aprobación.
+4. Realizar, cuando corresponda, un sondeo o un estudio de mercado que considere los potenciales oferentes idóneos del objeto que se pretende contratar.
+5. Brindar los insumos respectivos para la elaboración del pliego de condiciones.
+6. Llevar a cabo el estudio técnico de las ofertas y la aplicación del sistema de evaluación de las ofertas.
+7. Realizar el estudio de razonabilidad del precio del bien, obra o servicio, entre las ofertas elegibles. Además, deberá emitir un acto motivado, en los casos donde el precio de una oferta a adjudicar difiera de los rangos de tolerancia definido por la Administración del Comité Cantonal de Deportes Siquirres, antes de ser adjudicado.
+8. Emitir un acto motivado para justificar la razonabilidad del precio en los casos de concursos de licitaciones mayores o menores, cuando la oferta a adjudicar supere el monto presupuestado o cuando sólo se haya recibido una oferta adjudicable.
+9. Emitir un acto motivado, en los casos donde el precio de una oferta a adjudicar supere el porcentaje de tolerancia definido en el pliego de condiciones.
+10. Trasladar oportunamente a la Asistente Administrativa los aspectos sobre los que hay que pedir subsanación o aclaración a los oferentes.
+11. Elaborar el estudio técnico de las ofertas y confeccionar un cuadro comparativo de análisis de las ofertas participantes según su ajuste a las especificaciones del pliego de condiciones y de sus características más importantes.
+12. Gestionar ante la Asistente Administrativa el cobro de los daños y perjuicios irrogados y demás responsabilidades en que hubiere incurrido el adjudicatario ante incumplimientos durante el desarrollo del contrato.
+13. Coordinar con la Asistente Administrativa, las modificaciones del pliego de condiciones.
+14. Apoyar de manera oportuna y diligente en la resolución de recursos, y emitir los criterios técnicos que sustenten la argumentación de la Administración del Comité Cantonal de Deportes Siquirres o se aparten de los alegatos de los recurrentes, de conformidad con la normativa vigente.
+15. Cualquier otra derivada de la Ley General de Contratación Pública, Nº 9986, su Reglamento y cualquier otra normativa aplicable.

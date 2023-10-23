@@ -1,0 +1,1 @@
+Artículo 15. Notificación. Es responsabilidad de la Asistente Administrativa o bien quien designe la Junta Directiva mediante acuerdo realizar la notificación de los actos del procedimiento de contratación, incluido el acto final, mediante el Sistema Digital Unificado.
