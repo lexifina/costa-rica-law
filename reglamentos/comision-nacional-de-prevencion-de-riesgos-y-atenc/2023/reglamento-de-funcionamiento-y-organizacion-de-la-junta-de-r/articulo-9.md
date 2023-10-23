@@ -1,0 +1,1 @@
+Artículo 9º-Domicilio y lugar de operación: La Administración, a través de la coordinación de la Dirección, garantizará el uso de un espacio para que la Junta sesione en las oficinas centrales de la CNE, en San José, Pavas, distrito central, así como la asignación de un espacio para el resguardo documental de la información en esa misma ubicación geográfica.

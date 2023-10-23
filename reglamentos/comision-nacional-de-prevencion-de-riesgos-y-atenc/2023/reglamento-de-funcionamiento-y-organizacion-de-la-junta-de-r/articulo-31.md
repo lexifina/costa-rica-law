@@ -1,0 +1,2 @@
+Artículo 31.-Comunicación de las recomendaciones: La presidencia de la Junta por medio de la Secretaría, comunicará por escrito la recomendación correspondiente a la persona funcionaria, instancia u organización que solicitó su intervención en un plazo no mayor de dos días hábiles a partir de la aprobación del acta respectiva.
+Dicha comunicación deberá indicar el número de acta y acuerdo en la que se tomó dicha recomendación.

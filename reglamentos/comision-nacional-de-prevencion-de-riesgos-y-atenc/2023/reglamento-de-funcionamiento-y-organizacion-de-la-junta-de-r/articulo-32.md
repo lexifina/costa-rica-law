@@ -1,0 +1,2 @@
+Artículo 32.-Recursos materiales y otros: Para el eficiente ejercicio de sus tareas todos los miembros de la Junta contarán con el tiempo oportuno y permiso pertinente por parte de sus jefaturas para asistir a sesiones o a cualquier evento propio de su cargo en la Junta.
+La jefatura de dichos miembros será puesta en conocimiento del nombramiento respectivo mediante oficio emitido por la Dirección Ejecutiva de la CNE. En el caso de traslado a un lugar para efectos de conocer alguna situación expuesta en un expediente, los viáticos serán parte de la Dirección Ejecutiva.

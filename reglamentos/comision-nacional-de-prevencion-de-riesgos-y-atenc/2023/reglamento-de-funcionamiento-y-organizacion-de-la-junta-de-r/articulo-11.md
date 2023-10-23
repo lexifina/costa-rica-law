@@ -1,0 +1,3 @@
+Artículo 11.-Nombramiento de los integrantes: La CNE nombrará a sus tres representantes propietarios y a sus tres representantes suplentes.
+Entre las organizaciones sindicales se nombrarán a sus tres representantes propietarios y a sus tres representantes suplentes. Estos representantes deben ser escogidos de entre las organizaciones sindicales que cuenten con afiliación en la CNE, tal y como debe constar en el acuerdo respetivo tomado al efecto.
+Una vez nombradas las presentaciones tanto de la CNE y de las organizaciones sindicales, la Dirección Ejecutiva enviará notificación a la Presidencia de la CNE para su conocimiento.

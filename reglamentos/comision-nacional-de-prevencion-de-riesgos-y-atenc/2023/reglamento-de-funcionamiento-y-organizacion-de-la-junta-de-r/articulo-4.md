@@ -1,0 +1,2 @@
+Artículo 4º-Ámbito de aplicación: Las presentes disposiciones son de aplicación general para todas las personas funcionarias de la CNE, esté afiliado o no a las organizaciones sindicales que cuenten con afiliación en la
+CNE. Ningún funcionario (a) puede ser privado de la protección dispuesta por los Convenios de la OIT, y de más normativa atinente, de este Reglamento o demás disposiciones que sean aplicables.

@@ -1,0 +1,3 @@
+Artículo 25.-Votaciones: Todos los miembros propietarios de la Junta tendrán derecho a un voto simple. La Junta tomará sus decisiones o recomendaciones por acuerdo de mayoría simple de los presentes, en caso de empate se podrá someter a segunda votación. La presidencia no tendrá voto de calidad.
+En caso de empate en la segunda votación, se procederá de la siguiente manera: Se hará constar en el acta la votación de ambas partes y se emitirá dos recomendaciones, las cuales se enviarán al superior jerárquico correspondiente quien valorará ambas recomendaciones y decidirá lo pertinente.
+Todas las votaciones serán públicas y no existe la abstención.

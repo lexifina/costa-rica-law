@@ -1,0 +1,4 @@
+Artículo 30.-De las recomendaciones: La Junta deberá tomar acuerdo en un término no mayor de quince días hábiles, a partir de que el asunto sea sometido a su conocimiento. No obstante, lo señalado, este plazo podrá ampliarse hasta por un plazo igual, previo acuerdo justificado de la mayoría simple de sus integrantes, lo cual deberá ser comunicado a las partes.
+Las recomendaciones con las respectivas votaciones quedarán registradas en el Acta de la sesión correspondiente y solo podrán ser comunicadas una vez que se apruebe el acta respectiva o cuando el acuerdo quede en firme por unanimidad.
+Una vez analizada y discutida la solicitud planteada, la Junta emitirá el informe con las recomendaciones pertinentes y no vinculantes de sus miembros.
+En caso de que el asunto no sea conocido por la Junta en el plazo correspondiente, procede la emisión del acto final por parte del superior jerárquico.
