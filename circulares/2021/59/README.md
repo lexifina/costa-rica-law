@@ -13,3 +13,4 @@ Seguimiento a la información registrada en el Módulo de pase a fallo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-03-22 | la propia norma |
+| 2 | 2023-10-23 | Circular 283 (2023-10-23) |
