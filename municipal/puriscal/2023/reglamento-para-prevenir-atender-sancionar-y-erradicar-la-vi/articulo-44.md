@@ -1,0 +1,3 @@
+Artículo 44.- Sanciones.
+La persona que fuese encontrada responsable de incurrir en falta por violencia contra una mujer en la política, podrá ser sancionada, según lo define el artículo 27 de la ley N°10.235, con amonestación escrita, suspensión o pérdida de credenciales.
+En caso que el Concejo Municipal acuerde la sanción de amonestación escrita, será notificada a la persona responsable por parte de la secretaría de este; se dejará constancia en el expediente y se remitirá al TSE, para efectos del registro que establece el artículo 33 de la ley N°10.235. En caso que se acuerde la pérdida de credencial, el expediente se trasladará al TSE, para que éste de inicio al proceso de cancelación de credenciales.
