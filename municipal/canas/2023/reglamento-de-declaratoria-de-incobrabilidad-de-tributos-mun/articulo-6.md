@@ -1,0 +1,1 @@
+Artículo 6º-Gestión de declaratoria de Tributos Incobrables: Dirección o Unidad fiscalizadora del Tributo, como dependencia encargada de gestionar la declaratoria de incobrabilidad de una deuda, deberá realizar un análisis de si se cumple o no con los supuestos de incobrabilidad con base en lo establecido en el artículo 3 de este reglamento.
