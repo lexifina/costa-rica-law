@@ -1,1 +1,0 @@
-Artículo 3º—La Oficina de Avalúos Administrativos, se encuentra adscrita a la UEN Programación y Control de AyA; con el fin de que investigue, analice, recomiende y practique todos los avalúos de servidumbres, lotes, daños y cualesquiera otros derechos patrimoniales requeridos para los diversos proyectos o actividades Institucionales.

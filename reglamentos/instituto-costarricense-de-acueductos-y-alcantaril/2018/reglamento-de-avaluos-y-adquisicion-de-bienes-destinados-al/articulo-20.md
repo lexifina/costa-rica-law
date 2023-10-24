@@ -1,1 +1,0 @@
-Artículo 20.—Verificada por la Oficina de Avalúos Administrativos la información técnica y emitido el avalúo, deberá coordinar con el solicitante la emisión de la certificación de presupuesto, quienes remitirán la documentación completa al Área Legal de Bienes Inmuebles.
