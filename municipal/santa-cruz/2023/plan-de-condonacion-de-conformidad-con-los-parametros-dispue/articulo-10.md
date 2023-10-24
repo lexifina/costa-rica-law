@@ -1,0 +1,1 @@
+Artículo 10.-Propiedades en derechos. Cuando se trate de propiedades de más de un derecho la presente exención únicamente abarcará a la persona solicitante adulto mayor en condición de pobreza o pobreza extrema, que posea deudas por tributos municipales a partir del segundo trimestre 2023 de forma retroactiva.

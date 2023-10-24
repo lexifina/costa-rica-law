@@ -1,0 +1,1 @@
+Artículo 11.-Procesos en cobro judicial. Los deudores que se encuentran en las etapas de cobro judicial, antes de acogerse a este beneficio, deberán cancelar los honorarios del abogado externo, los gastos de perito en que haya incurrido la Municipalidad, para el trámite de exención de sus deudas, junto con las costas procesales.
