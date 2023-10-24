@@ -1,4 +1,4 @@
-DIRECCIÓN GENERAL DE MIGRACIÓN Y EXTRANJERÍA
+IIIDIRECCIÓN GENERAL DE MIGRACIÓN Y EXTRANJERÍA
 DIRECTRICES GENERALES DE VISAS DE INGRESO
 Y PERMANENCIA PARA NO RESIDENTES
 DG-30-10-2023-AJ
@@ -164,6 +164,8 @@ FIYI
 GRANADA
 GUATEMALA
 GUYANA
+HONDURAS (*)
+(*) (Nota de Sinalevi: Mediante Resolución DJUR-0583-10-2023-JM del 24 de octubre del 2023, se acordó excluir a Honduras del III Grupo e incluirlo en la de los países del Segundo Grupo, de manera que las personas hondureñas puedan ingresar al territorio costarricense sin visa consular, con una permanencia máxima de hasta treinta días naturales, prorrogables hasta un total de noventa días naturales, conforme a la legislación aplicable; y con pasaporte ordinario con una vigencia mínima de 90 días naturales. Asimismo, deberán las personas nacionales de Honduras presentar como requisito de ingreso, "Certificado de Antecedentes Policiales" sin apostillar.)
 ISLAS MARIANAS DEL NORTE
 ISLAS MARSHALL
 ISLAS SALOMÓN
@@ -225,7 +227,7 @@ GHANA
 GUINEA
 GUINEA-BISÁU (GUINEA BISSAU)
 GUINEA ECUATORIAL
-HONDURAS
+(Nota de Sinalevi: Mediante Resolución DJUR-0583-10-2023-JM del 24 de octubre del 2023, se acordó excluir a Honduras del III Grupo e inclúyase en la de los países del Segundo Grupo, de manera que las personas hondureñas puedan ingresar al territorio costarricense sin visa consular, con una permanencia máxima de hasta treinta días naturales, prorrogables hasta un total de noventa días naturales, conforme a la legislación aplicable; y con pasaporte ordinario con una vigencia mínima de 90 días naturales. Asimismo, deberán las personas nacionales de Honduras presentar como requisito de ingreso, "Certificado de Antecedentes Policiales" sin apostillar.)
 INDIA
 INDONESIA
 JORDANIA
