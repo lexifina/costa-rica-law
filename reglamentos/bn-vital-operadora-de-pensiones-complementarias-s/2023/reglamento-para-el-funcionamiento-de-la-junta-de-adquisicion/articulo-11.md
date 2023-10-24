@@ -1,0 +1,4 @@
+Artículo 11.-Actas. De cada sesión se levantará un acta con indicación de los asistentes, lugar, hora de inicio y de conclusión, la transcripción literal de las manifestaciones, la forma y el resultado de la votación y el contenido de los acuerdos.
+Las sesiones de los órganos citados en el presente reglamento serán grabadas en audio y video, y serán respaldadas en un medio digital que garantice su integridad y archivo de conformidad con la legislación vigente. Será obligación de todos los miembros del cuerpo colegiado verificar que se realice la grabación de la sesión y constituirá falta grave el no hacerlo.
+Dichas actas serán firmadas por los miembros que hubieren hecho su voto disidente de conformidad con el artículo 56 de la Ley General de la Administración Pública.
+Las actas formarán parte del expediente electrónico de la contratación que corresponda, en el Sistema Digital Unificado.

@@ -1,0 +1,3 @@
+Artículo 9º-Sanciones a funcionarios. Las causales de sanción a los funcionarios se regulan en el artículo 125 de la Ley General de Contratación Pública, estas sanciones son de naturaleza administrativa y civil, y su aplicación no excluye la imposición de las sanciones penales ni la posibilidad de exigir la responsabilidad por daños y perjuicios ocasionados a la Administración.
+A los funcionarios les resultan aplicables las sanciones de apercibimiento por escrito, suspensión sin goce de salario o estipendio hasta por tres meses y despido sin responsabilidad patronal.
+Los criterios de valoración para la determinación de la sanción y el procedimiento para la imposición de la sanción deberán observarse en el artículo 126 y 127 de la Ley General de Contratación Pública.

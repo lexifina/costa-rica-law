@@ -1,0 +1,2 @@
+Artículo 12.-Acuerdos de la Junta de Adquisiciones. Los acuerdos de la Junta serán tomados por mayoría simple (mitad más uno) de los miembros presentes en cada sesión y adquirirán firmeza de forma inmediata. En caso de empate el voto de quien preside valdrá doble.
+Dichos acuerdos tendrán recurso de reposición, conforme a lo dispuesto en la Ley General de la Administración Pública, para lo cual se deberá regir según lo dispuesto en la Ley General de Contratación Pública y su Reglamento, en lo concerniente a recursos de revocatoria y apelación.

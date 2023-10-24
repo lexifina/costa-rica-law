@@ -1,0 +1,1 @@
+Artículo 13.-En lo no regulado expresamente aquí, se actuará según lo dispuesto por la Ley General de la Administración Pública, la Ley General de Contratación Pública y su Reglamento, y demás normativa atinente a la materia, así como a los acuerdos de la Junta Directiva de BN Vital Operadora de Planes de Pensiones Complementarias S.A.
