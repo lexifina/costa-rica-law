@@ -14,3 +14,4 @@ Revoca la exoneración temporal de visa realizada mediante resolución D.JUR 426
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-10-10 | la propia norma |
+| 2 | 2023-10-24 | Resolución 583 (2023-10-24) |
