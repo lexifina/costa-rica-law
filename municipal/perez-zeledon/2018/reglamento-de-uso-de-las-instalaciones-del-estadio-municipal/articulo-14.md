@@ -1,1 +1,0 @@
-ARTÍCULO 14. DE LAS INVERSIONES POR PUBLICIDAD. De los ingresos que perciban los equipos de primera división por publicidad en el estadio deberán invertirse como mínimo un diez por ciento en la infraestructura del Estadio, dicha inversión no podrá ser contabilizada dentro de diez por ciento mencionado en el artículo 12.

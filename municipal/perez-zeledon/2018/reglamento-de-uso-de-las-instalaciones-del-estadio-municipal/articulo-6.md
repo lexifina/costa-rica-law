@@ -1,2 +1,0 @@
-ARTICULO 6°: DE LAS PROHIBICIONES Y LOS DAÑOS AL INMUEBLE: Dentro del Estadio no será permitido el expendio y consumo de bebidas alcohólicas, ni fumado, ni drogas, ni actos que atenten contra la moral y las buenas costumbres, para el cumplimiento de esta disposición la Municipalidad se reserva el derecho de proceder y actuar conforme lo indica la ley.
-Las personas que de manera directa o indirecta alteren, dañen o hagan mal uso del inmueble, serán consignados ante el Ministerio Público para obligarlos a pagar y reponer los daños causados.
