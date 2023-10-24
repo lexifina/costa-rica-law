@@ -15,3 +15,4 @@ Reglamento de caja chica de la Municipalidad de Parrita
 | --- | --- | --- |
 | 1 | 2021-08-06 | la propia norma |
 | 2 | 2022-05-09 | Reglamento municipal 84 (2022-05-09) |
+| 3 | 2023-10-24 | Reglamento municipal 0 (2023-10-24) |
