@@ -1,0 +1,2 @@
+Transitorio II.-Esta ley está rigiendo desde su publicación y este Reglamento lo hará después de su segunda publicación en el diario oficial La Gaceta. Publíquese en el Diario Oficial La Gaceta.
+Se extiende la presente a solicitud del interesado, al ser las once horas con veintiocho minutos del día 04 del mes de octubre del año 2023, de conformidad con el artículo 53, inciso c) del Código Municipal Vigente. Es todo.

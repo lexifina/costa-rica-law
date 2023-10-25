@@ -1,0 +1,5 @@
+Artículo 14.-Metodología de aplicación. El procedimiento para la aplicación de este beneficio a las personas munícipes que contempla el presente reglamento será el siguiente:
+a) Las personas mayores contribuyentes que deseen apegarse a este beneficio deberán presentar la solicitud formal para la condonación del 18 de julio del 2023 al 18 de julio 2024 y para la exención deberán presentarla dentro de los dos primeros meses del período fiscal.
+b) La administración realizará la revisión de que los aspectos requeridos mencionados en el artículo.
+c) En el caso de las exenciones y condonaciones no podrán exceder el plazo de un año contado a partir de la entrada en vigor de este beneficio. Las exenciones podrán ser renovadas por plazo no superior a un año, según se dé el cumplimiento de los requisitos y así lo determine la administración.
+d) La administración municipal deberá resolver dichas solicitudes de exenciones en un plazo de un mes calendario y la respuesta se dará por medio de la plataforma de servicios, el contribuyente debe de venir para verificar la condición del trámite.
