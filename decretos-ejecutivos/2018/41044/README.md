@@ -15,3 +15,4 @@ Reglamento de organización y funcionamiento de la auditoría general de servici
 | --- | --- | --- |
 | 1 | 2018-05-17 | la propia norma |
 | 2 | 2019-09-20 | Decreto Ejecutivo 41994 (2019-09-20) |
+| 3 | 2023-10-25 | Decreto Ejecutivo 44271 (2023-10-25) |
