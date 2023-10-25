@@ -1,0 +1,2 @@
+Artículo 11.-De los bienes fideicometidos y su registro. La Dirección de Fideicomisos realizará el registro y separación de cada uno de los bienes dentro del patrimonio fideicometido como patrimonio autónomo, según las normas vigentes respectivas.
+Dicho registro se realizará conforme a lo establecido a través de procedimientos internos del BNCR y las disposiciones administrativas correspondientes.

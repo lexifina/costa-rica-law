@@ -1,0 +1,1 @@
+Artículo 12.-La custodia de los bienes. Para aquellos Fideicomisos que así lo requieran se mantendrá una custodia de los valores y/o bienes que integran el patrimonio del Fideicomiso según lo que la normativa correspondiente señale.

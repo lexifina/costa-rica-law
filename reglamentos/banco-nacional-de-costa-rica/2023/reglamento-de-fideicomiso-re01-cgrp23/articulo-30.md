@@ -1,0 +1,1 @@
+Artículo 30.-Derogaciones. El presente Reglamento, deroga los Lineamientos Generales para Aceptación de Negocios Fiduciarios, aprobado por la Junta Directiva General en el artículo 6.º, sesión Nº 11.845, celebrada el 9 de julio del 2013.
