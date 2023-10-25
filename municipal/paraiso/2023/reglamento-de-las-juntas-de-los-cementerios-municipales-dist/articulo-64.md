@@ -1,0 +1,4 @@
+Artículo 64.-Los derechos de arrendamiento sólo podrán ser traspasados a terceras personas en los siguientes casos:
+a) cuando nunca hubiese sido usada la bóveda
+b) cuando habiéndolo sido, se hubieren exhumado todos los restos que contenía.
+En caso de que estuviese ocupado, sólo podrán ser traspasados a familiares descendientes, ascendientes, cónyuge, hijos, padres, hermanos del arrendatario, o por quienes comprueben tener nexos de afinidad con las personas sepultadas en el sitio.

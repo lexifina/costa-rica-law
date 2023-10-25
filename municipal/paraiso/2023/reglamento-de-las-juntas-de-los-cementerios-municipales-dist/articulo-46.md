@@ -1,0 +1,1 @@
+Artículo 46.-La Junta no se hace responsable por el incumplimiento de contratos celebrados entre los constructores y arrendatarios de derechos ya que eso es una relación entre las partes contratantes.

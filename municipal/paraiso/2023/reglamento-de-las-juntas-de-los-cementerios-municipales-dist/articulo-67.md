@@ -1,0 +1,1 @@
+Artículo 67.-Los copartícipes de un derecho dado en arriendo a una familia, pueden traspasar sus derechos a uno de sus hijos o a su cónyuge. Mediante la presentación del respectivo documento autenticado por abogado.

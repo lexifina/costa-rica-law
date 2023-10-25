@@ -1,0 +1,1 @@
+Artículo 39.-Para poder construir o reparar bóvedas el interesado debe hacer una solicitud por escrito a la Junta, en la cual especifique el tipo de trabajo a realizar, apuntando de la mejor manera cada detalle de este, dicha solicitud será conocida por la administración de la Junta la cual procederá a resolver autorizando o denegando el permiso solicitado.

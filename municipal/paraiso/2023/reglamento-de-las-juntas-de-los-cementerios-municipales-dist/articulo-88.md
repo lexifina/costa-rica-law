@@ -1,0 +1,1 @@
+Artículo 88.-Para la realización de las exhumaciones le corresponde a la Junta dotar al personal autorizado para este servicio de los elementos de protección personal definidos por el Ministerio de Salud, sea esto, guantes, mascarillas, delantal o bata y botas de hule.

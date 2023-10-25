@@ -1,0 +1,1 @@
+Artículo 34.-Los contratos de arrendamientos de nichos son intransferibles. Será nulo todo acto o contrato para el traspaso de estos derechos y carecerá de validez para la Junta o cualquier tercero. La duración de dichos contratos será de 10 años. El arrendatario de un nicho podrá dejar autorizada a otra persona mayor de edad para que pueda prorrogar o exhumar los restos.

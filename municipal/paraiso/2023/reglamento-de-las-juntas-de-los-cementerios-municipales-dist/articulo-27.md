@@ -1,0 +1,1 @@
+Artículo 27.-Para el pago del arriendo la Junta brindará la siguiente opción: Para la adquisición de contratos de arrendamiento de fosas, se pagará un monto único al momento de la suscripción por cada lote y un monto mensual de servicio de mantenimiento por cada lote, montos que son establecidos la Junta y aprobados por el Concejo Municipal.

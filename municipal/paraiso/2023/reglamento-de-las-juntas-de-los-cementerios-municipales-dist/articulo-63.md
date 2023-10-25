@@ -1,0 +1,1 @@
+Artículo 63.-Si el arrendador del derecho falleciera sin haber realizado traspaso alguno, y no hubiese dejado testamento donde estipule ello, se admitirá únicamente solicitud de familiares en primer y segundo grado, realizando ante l misma Junta el traspaso correspondiente.

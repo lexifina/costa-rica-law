@@ -1,0 +1,1 @@
+Artículo 103.-La Junta, deberá permitir las inspecciones que en cualquier momento quieran realizar los funcionarios del Ministerio de Salud, debidamente identificados; con el objeto de comprobar que en el cementerio se cumple con las disposiciones sanitarias reglamentarias.

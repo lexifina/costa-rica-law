@@ -1,0 +1,1 @@
+Artículo 51.-Es totalmente prohibido colocar alrededor de las bóvedas, cualquier tipo de planta, así como verjas de metal o de madera, aceras, etc. Si se presentase el caso, la Junta podrá demoler sin responsabilidad alguna.
