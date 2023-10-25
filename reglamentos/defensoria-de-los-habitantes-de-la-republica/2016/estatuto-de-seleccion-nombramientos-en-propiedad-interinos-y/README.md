@@ -17,3 +17,4 @@ Estatuto de Selección, Nombramientos en Propiedad Interinos y Ascensos
 | 2 | 2022-02-16 | Reglamento 0 (2022-02-16) |
 | 3 | 2022-08-19 | Reglamento 0 (2022-08-19) |
 | 4 | 2022-09-15 | Reglamento 0 (2022-09-15) |
+| 5 | 2023-10-25 | Acuerdo 2642 (2023-10-25) |
