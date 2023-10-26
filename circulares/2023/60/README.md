@@ -13,3 +13,4 @@ Obligatoriedad de habilitar la opción de "Pago automático" en el indicador de 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-03-13 | la propia norma |
+| 2 | 2023-10-26 | Circular 272 (2023-10-26) |
