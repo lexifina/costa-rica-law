@@ -1,0 +1,1 @@
+Artículo 14.-El usuario interno debe registrar los vales de caja chica en el sistema SAM y sometido a valoración de las autoridades presupuestarias, así mismo en el plazo de 1 día dependiendo de la gestión solicitada, la administración dará respuesta a la solicitud planteada.

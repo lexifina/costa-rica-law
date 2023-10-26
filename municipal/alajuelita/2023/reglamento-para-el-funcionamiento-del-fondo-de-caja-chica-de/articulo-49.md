@@ -1,0 +1,1 @@
+Artículo 49.-Vigencia. Rige a partir de su publicación en el Diario Oficial La Gaceta. Publíquese en el Diario Oficial La Gaceta de conformidad con lo dispuesto en el numeral 43 del Código Municipal vigente, de manera que tratándose de un reglamento interno esta normativa debe ser publicada por única vez como reglamento definitivo".

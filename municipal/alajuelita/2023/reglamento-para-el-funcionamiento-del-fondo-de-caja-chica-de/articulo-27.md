@@ -1,0 +1,2 @@
+Artículo 27.-Cuando los proveedores envíen las facturas a la unidad usuaria, esta unidad será la responsable de enviar la factura al correo establecido para la recepción de facturas; facturaelectronica@munialajuelita.go.cr, por lo cual deberá utilizar este único medio para enviar las facturas a Tesorería o bien, indicarles a los proveedores el correo donde deben enviar las respectivas facturas.
+Se recibirán facturas impresas y/o escaneadas en formato PDF y en cumplimiento a lineamientos de Hacienda.

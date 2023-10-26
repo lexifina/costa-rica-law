@@ -1,0 +1,1 @@
+Artículo 28.-Las facturas que los proveedores remitan a la municipalidad deberán estar acorde a los lineamientos y requisitos del Ministerio de Hacienda, por lo tanto, las Unidades deberán comunicarles a los proveedores sobre los requisitos de las facturas, caso contrario no se recibirá dicha factura.

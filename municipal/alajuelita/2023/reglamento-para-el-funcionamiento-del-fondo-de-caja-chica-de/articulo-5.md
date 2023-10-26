@@ -1,0 +1,1 @@
+Artículo 5°-El monto máximo de vale para el fondo de caja chica general, será la suma de ¢75.000,00 (Setenta y cinco mil colones exactos), y para el fondo de caja chica de la Unidad Técnica de Gestión Vial el monto máximo será la suma de ¢.75.000,00 (Setenta y cinco mil colones exactos.

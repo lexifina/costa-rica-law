@@ -1,0 +1,1 @@
+Artículo 6°-Corresponde a la Alcaldía Municipal solicitar una variación en el monto de la caja chica de acuerdo a las necesidades de la Administración, utilizando como parámetro el incremento del costo de la vida, el cuál debe ser aprobado por el concejo municipal u órgano competente para aprobar dichas modificaciones.

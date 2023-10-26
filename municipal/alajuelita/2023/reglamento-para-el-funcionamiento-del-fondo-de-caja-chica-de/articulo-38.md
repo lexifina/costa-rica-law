@@ -1,0 +1,1 @@
+Artículo 38.-Los fondos de caja chica no podrán ser utilizados para fines personales ni usarse para fines distintos para el que fue creado ni disponerse para actuaciones distintas a las autorizadas de conformidad con el Código Municipal y el presente reglamento.

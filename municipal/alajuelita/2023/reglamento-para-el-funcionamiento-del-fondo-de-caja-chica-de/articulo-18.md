@@ -1,0 +1,1 @@
+Artículo 18.-Cuando se pida un vale de caja chica no se podrá segregar las facturas, se deberá planificar correctamente con antelación la cantidad y monto exacto de la compra. El monto del producto no podrá sobrepasar el monto de caja chica, para esto deberá realizar previamente un sondeo de mercado, esto implica que no se recibirá doble factura para el mismo trámite.
