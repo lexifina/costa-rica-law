@@ -1,0 +1,1 @@
+Artículo 7º-Sobre la actualización de los montos asignados para becas. Cada dos años, en el proceso de presupuestación, la Administración Municipal presentará al Concejo Municipal el ajuste correspondiente al monto por asignar para cada beca, tomando en consideración la variación interanual acumulada en el Índice de Precios al Consumidor (IPC) durante los dos años anteriores.
