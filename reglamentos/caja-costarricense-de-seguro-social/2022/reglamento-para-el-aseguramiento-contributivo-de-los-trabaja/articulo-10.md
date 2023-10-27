@@ -1,4 +1,3 @@
-SECCION III
 Ingresos y contribuciones
 Artículo 10.-Definición de ingresos sujetos a contribución. De conformidad con la Ley Constitutiva de la CCSS, el monto de las cuotas que deben pagar los trabajadores independientes, se calculará sobre los ingresos netos que perciban.
 Para la aplicación del presente Reglamento, se entiende como ingreso bruto, el ingreso total derivado de una actividad económica o trabajo sin subordinación y que puede organizarse a través de una unidad económica, con el fin de ordenar los recursos e insumos que le permitan producir bienes o servicios generadores de ingresos de carácter no salarial. El ingreso neto se entiende como el ingreso bruto menos los gastos propios para la operación de la actividad económica o trabajo, necesarios, razonables y congruentes al giro de estos.

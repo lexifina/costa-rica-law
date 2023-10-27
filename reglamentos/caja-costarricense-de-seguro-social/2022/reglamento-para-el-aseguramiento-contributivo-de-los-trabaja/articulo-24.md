@@ -1,0 +1,2 @@
+Artículo 24-. Aplicación supletoria de normativa para el trámite de atención de prescripciones en el procedimiento de verificación del cumplimiento de obligaciones de trabajador independiente.
+Para el trámite de las solicitudes de prescripción, en lo no dispuesto expresamente en este Capítulo II Sección I, se aplicará supletoriamente el Reglamento para la verificación del cumplimiento de obligaciones patronales y de trabajadores independientes.

@@ -1,0 +1,5 @@
+Artículo 21.- Plazos de prescripción en los procedimientos de verificación de trabajadores independientes.
+El plazo de prescripción de las acciones para determinar las obligaciones contributivas de los trabajadores independientes es de 4 años para personas afiliadas activas o inactivas en la modalidad de aseguramiento de trabajador independiente; sin embargo, será de 10 años cuando se determinen alguna de las siguientes circunstancias:
+1)Trabajadores independientes no afiliados en tiempo y forma, y que incumplan su obligación de reporte de ingresos según lo normado por la CCSS.
+2)Trabajadores independientes afiliados ante la CCSS, pero que hayan presentado reportes de ingresos calificados como fraudulentos. Se comprenderá la calificación de fraudulenta cuando se compruebe el uso de engaños para hacer creer a la Administración la generación de ingresos falsos o incongruentes con los ingresos reales, para ello, debe constar en el expediente elementos probatorios que respalden objetivamente esa determinación.
+3)Solamente podrán ser analizados en este supuesto, investigaciones de periodos posteriores a la vigencia de la Ley N.°10363.

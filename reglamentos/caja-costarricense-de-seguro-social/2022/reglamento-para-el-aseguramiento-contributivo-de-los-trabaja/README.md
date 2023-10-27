@@ -14,3 +14,4 @@ Reglamento para el aseguramiento contributivo de los trabajadores independientes
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-05-23 | la propia norma |
+| 2 | 2023-10-27 | Reglamento 9378 (2023-10-27) |

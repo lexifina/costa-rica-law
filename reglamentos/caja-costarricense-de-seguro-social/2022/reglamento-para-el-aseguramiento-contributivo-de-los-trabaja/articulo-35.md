@@ -1,0 +1,4 @@
+SECCION IV
+Disposiciones finales
+Artículo 35. Normas supletorias.
+Los aspectos no contemplados expresamente en el presente Reglamento, se regirán por lo dispuesto en la Constitución Política, los Tratados Internacionales, Ley Constitutiva de la Caja Costarricense de Seguro Social, el Reglamento del Seguro de Salud, el Reglamento del Seguro de Invalidez, Vejez y Muerte, el Reglamento para verificar el cumplimiento de las obligaciones patronales y de trabajadores independientes, así como, cualquier otra normativa institucional aplicable, Código de Normas y Procedimientos Tributarios, Ley General de la Administración Pública, Código Procesal Contencioso Administrativo, el Código de Trabajo, Código Procesal Civil, , los principios Generales del Derecho y en general cualquier otra disposición que resultare aplicable
