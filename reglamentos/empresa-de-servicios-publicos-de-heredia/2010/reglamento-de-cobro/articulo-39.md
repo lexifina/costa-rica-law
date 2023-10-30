@@ -1,1 +1,0 @@
-Artículo 39.—De no llegarse a un acuerdo con el ex funcionario o con la Gerencia General, Recursos Humanos remitirá a la Asesoría Jurídica toda la información correspondiente a lo adeudado y su concepto, para que se proceda con el trámite de cobro judicial o la recomendación jurídica que emitan al respecto para cada caso particular.

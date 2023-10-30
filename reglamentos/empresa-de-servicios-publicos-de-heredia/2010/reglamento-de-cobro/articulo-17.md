@@ -1,1 +1,0 @@
-Artículo 17.—En el oficio de cobro administrativo, notificado conforme a lo establecido en el artículo 5º de este Reglamento, otorgará al emisor del cheque, un plazo de ocho días hábiles para proceder al pago de la suma de capital, más los recargos indicados.

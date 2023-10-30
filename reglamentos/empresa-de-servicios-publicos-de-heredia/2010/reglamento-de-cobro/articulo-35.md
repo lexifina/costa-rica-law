@@ -1,1 +1,0 @@
-Artículo 35.—En caso de que al ex funcionario se le reporte una deuda pendiente con la empresa y al realizar la liquidación quede un saldo a favor de la Empresa, Recursos Humanos procederá a realizar el trámite para realizar su cobro según corresponda.

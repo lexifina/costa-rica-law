@@ -1,2 +1,0 @@
-V- Cobros administrativos a cargo de Recursos Humanos
-Artículo 34.—Recursos Humanos realizará el trámite correspondiente de liquidación a los ex funcionarios de la ESPH S. A., en la cual deberá solicitar a Tesorería, Almacén, Biblioteca, Capacitación y/o cualquier otra dependencia, información sobre cuentas, herramienta, equipo u otra deuda pendiente con la ESPH S. A. por parte del ex funcionario.

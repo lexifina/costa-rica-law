@@ -1,1 +1,0 @@
-Artículo 38.—De no llegarse a un acuerdo con el ex funcionario, Recursos Humanos remitirá a la Gerencia General con una recomendación el monto de la deuda y su concepto para que se valore la posibilidad de una exoneración si el caso lo amerita y el monto fuera inferior al equivalente a $500.00.

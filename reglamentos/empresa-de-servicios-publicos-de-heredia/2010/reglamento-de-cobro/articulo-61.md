@@ -1,1 +1,0 @@
-Artículo 61.—Es obligación del responsable del cobro judicial, mantener activos los trámites de todos los asuntos a su cargo, para lo cual efectuará tres revisiones periódicas de todos los casos en proceso, con intervalos no mayores de tres meses, y de cuyo resultado deberá informar dentro del mismo término a la Recursos Financieros y al Líder de la UEN Comercial.

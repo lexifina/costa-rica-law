@@ -1,1 +1,0 @@
-Artículo 26.—Servicios Institucionales se regirá por lo indicado en el Reglamento de Servicios de Transportes de la Empresa, aprobado mediante acuerdo de Junta Directiva Nº JD 019-2000 y publicado en La Gaceta Nº 36 del 21 de febrero del 2002, o sus futuras modificaciones.

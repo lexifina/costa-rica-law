@@ -1,1 +1,0 @@
-Artículo 42.—Las garantías de servicios otorgadas, no son aplicables para el cobro de las obligaciones a cargo de las dependencias del Poder Ejecutivo, del Poder Judicial o de las municipalidades incorporadas a la ESPH S. A., las cuales gozarán de un plazo hasta de seis meses, para ponerse al día en cuanto al pago de sus obligaciones por concepto de servicios.

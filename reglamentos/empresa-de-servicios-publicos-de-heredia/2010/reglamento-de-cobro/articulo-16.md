@@ -1,1 +1,0 @@
-Artículo 16.—La Unidad de Tesorería ejecutará los trámites de cobro con el objeto de hacer efectivo el cheque. En dicho trámite adicionalmente al saldo de capital estipulado en el cheque, se cobrará un recargo del 3% de gastos administrativos, en los casos de cheques rechazados por falta de fondos.

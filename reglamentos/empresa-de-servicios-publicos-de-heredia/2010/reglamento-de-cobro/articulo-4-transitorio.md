@@ -1,1 +1,0 @@
-4. Las unidades encargadas del cobro administrativo, instruirán a todos los funcionarios y choferes de la ESPH S. A. de la forma y obligación de llenar adecuadamente el formulario establecido en el artículo 19 de este Reglamento, en el plazo de los siguientes seis meses posteriores a aprobación.

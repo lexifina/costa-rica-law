@@ -1,1 +1,0 @@
-2. Los juicios que se encuentren en trámite a la fecha de la publicación del Reglamento y que tengan por objeto el cobro de cuentas pendientes adeudadas a la Empresa, podrán readecuarse a estas regulaciones, salvo disposición legal en contrario.

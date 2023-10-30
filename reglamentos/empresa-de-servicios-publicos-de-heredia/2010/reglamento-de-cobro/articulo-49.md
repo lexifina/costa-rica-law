@@ -1,1 +1,0 @@
-Artículo 49.—Corresponderá a la UEN Comercial, la confección y recepción de los convenios de pago correspondientes a cuentas morosas por prestación de servicios de: energía eléctrica, alumbrado público, acueducto, alcantarillado, hidrantes y dotación de servicios con apego a las disposiciones del presente Reglamento, en la etapa de cobro administrativo.

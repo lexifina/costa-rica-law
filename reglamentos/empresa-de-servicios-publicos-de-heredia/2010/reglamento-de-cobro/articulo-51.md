@@ -1,1 +1,0 @@
-Artículo 51.—En lo que respecta a convenios de pago por otros conceptos, su tramitación corresponderá a Recursos Financieros, acorde con las disposiciones previstas en los artículos anteriores y a las directrices de la Gerencia o Subgerencia Administrativa, en su caso.
