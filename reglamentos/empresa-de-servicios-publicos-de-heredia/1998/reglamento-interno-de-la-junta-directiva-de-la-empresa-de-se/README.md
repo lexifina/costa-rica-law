@@ -18,3 +18,4 @@ Reglamento Interno de la Junta Directiva de la Empresa de Servicios Públicos de
 | 3 | 2005-02-15 | Reglamento 0 (2005-02-15) |
 | 4 | 2008-02-11 | Reglamento 2901 (2008-02-11) |
 | 5 | 2015-07-06 | Reglamento 3559 (2015-07-06) |
+| 6 | 2023-10-30 | Reglamento 4281 (2023-10-30) |
