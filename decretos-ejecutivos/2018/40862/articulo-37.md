@@ -86,3 +86,9 @@ Trabajo cotidiano | 30%
 Portafolio de evidencias | 30%
 Pruebas (mínimo dos) | 40%
 (Así adicionado el inciso q) anterior por el artículo 5° del decreto ejecutivo N° 43424 del 14 de febrero de 2022)
+r) En los centros educativos que imparten la asignatura de Formación Tecnológica:
+Trabajo cotidiano | 50%
+Tareas | 5%
+Proyecto (uno) | 35%
+Asistencia | 10%
+(Así adicionado el inciso r) anterior por el artículo 5° del decreto ejecutivo N° 44272 del 30 de octubre de 2023)

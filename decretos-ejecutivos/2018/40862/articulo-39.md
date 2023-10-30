@@ -18,3 +18,9 @@ Trabajo cotidiano | 60%
 Tareas | 15%
 Prueba (una) | 15%
 Asistencia | 10%
+e) Para III Ciclo y Ciclo Diversificado Vocacional en los centros educativos que imparten la asignatura de Formación Tecnológica:
+Trabajo cotidiano | 60%
+Tareas | 10%
+Proyecto (uno) | 20%
+Asistencia | 10%
+(Así adicionado el inciso e) anterior por el artículo 6° del decreto ejecutivo N° 44272 del 30 de octubre del 2023)

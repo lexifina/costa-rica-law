@@ -4,11 +4,12 @@ Trabajo cotidiano | 45%
 Tareas | 10%
 Pruebas (mínimo dos) | 35%
 Asistencia | 10%
-b) En las asignaturas de Educación Ambiental, Artesanía Indígena, Música Indígena y Desarrollo Social Laboral, en los Colegios Nocturnos:
+b) En las asignaturas de Educación Ambiental, Artesanía Indígena, Música Indígena y Desarrollo Social Laboral, en los Colegios Nocturnos, así como en los centros educativos que imparten la asignatura de Formación Tecnológica:
 Trabajo cotidiano | 50%
 Tareas | 10%
-Proyecto | 30%
+Proyecto (uno) | 30%
 Asistencia | 10%
+(Así reformado el inciso b) anterior por el artículo 1° del decreto ejecutivo N° 44272 del 30 de octubre de 2023)
 c) Para las asignaturas de Educación Cívica, Artes Plásticas, Educación para el Hogar, Educación Física y Educación Musical:
 Trabajo cotidiano | 50%
 Tareas | 10%
@@ -60,7 +61,7 @@ Pruebas (mínimo dos) | 40%
 Asistencia | 10%
 (*) Consiste en la organización de una serie de actividades variadas, para presentarlas a la comunidad, muestra lo que el estudiantado ha aprendido durante cada período y la aplicabilidad que estos aprendizajes tienen.
 La asignatura de Educación Cívica en telesecundarias se rige por lo establecido en el inciso c) de este artículo.
-m) En los liceos rurales, en Actividades de Desarrollo Personal – Social:
+m) En los liceos rurales, en Actividades de Desarrollo Personal - Social:
 Trabajo cotidiano | 50%
 Tareas | 10%
 Prueba (mínimo una) | 30%

@@ -23,3 +23,9 @@ Trabajo cotidiano | 60%
 Tareas | 10%
 Prueba (una) | 20%
 Asistencia | 10%
+f) En los centros educativos que imparten la asignatura de Formación Tecnológica:
+Trabajo cotidiano | 60%
+Tareas | 10%
+Prueba de ejecución (una) | 20%
+Asistencia | 10%
+(Así adicionado el inciso f) anterior por el artículo 4° del decreto ejecutivo N°44272 del 30 de octubre de 2023)

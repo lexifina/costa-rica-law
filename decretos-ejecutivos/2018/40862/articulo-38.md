@@ -10,12 +10,13 @@ Trabajo cotidiano | 40%
 Tareas | 10%
 Prueba (dos) | 40%
 Asistencia | 10%
-c) En los módulos: Seguridad de las Personas en Costa Rica, Participación, Representación y Derechos Humanos en la Sociedad Democrática, Construyamos Nuestra Identidad Ciudadana.
+c) En los módulos: Seguridad de las Personas en Costa Rica, Participación, Representación y Derechos Humanos en la Sociedad Democrática, Construyamos Nuestra Identidad Ciudadana, así como en los centros educativos que imparten la asignatura de Formación Tecnológica:
+.
 Trabajo cotidiano | 50%
 Tareas | 10%
-Proyecto | 30%
+Proyecto (uno) | 30%
 Asistencia | 10%
-Se deberá homologar los módulos con la evaluación de la asignatura cívica en III Ciclo en las demás ofertas educativas de secundaria, citado en el artículo 36 inciso c) del REA.
+(Así reformado el inciso c) anterior por el artículo 2° del decreto ejecutivo N° 44272 del 30 de octubre de 2023)
 d) Para el segundo nivel del Plan de Estudios de la oferta convencional en el módulo Vivencia de la Sexualidad en el contexto familiar y social:
 Trabajo cotidiano | 50%
 Tareas | 10%
