@@ -15,3 +15,4 @@ Reglamento Interno de la Junta Directiva de la Empresa de Servicios Públicos de
 | --- | --- | --- |
 | 1 | 2015-08-19 | la propia norma |
 | 2 | 2019-08-26 | Reglamento 3959 (2019-08-26) |
+| 3 | 2023-10-30 | Reglamento 4281 (2023-10-30) |
