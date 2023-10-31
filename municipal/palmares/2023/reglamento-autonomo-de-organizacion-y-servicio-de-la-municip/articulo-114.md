@@ -1,0 +1,1 @@
+Artículo 114.-La valoración de toda falta en que incurriesen los funcionarios, atenderá para la sanción correspondiente los Principios de Derecho, de causalidad-objetiva y psicológica, de proporcionalidad y razonabilidad.

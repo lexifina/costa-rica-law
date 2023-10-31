@@ -1,0 +1,1 @@
+Artículo 101.-Incurrirá en falta grave el servidor que, por dolo o complacencia, realice una marca de asistencia ajena o que maliciosamente altere, o la haga desaparecer; como también el que dañe o altere los otros medios decontrol electromagnéticos.

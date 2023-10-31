@@ -1,0 +1,1 @@
+Artículo 2º-Las normas, reglas, disposiciones y procedimientos establecidos en este Reglamento, y las políticas que seoriginen de los mismos, son de aplicación obligatoria en todo lo referente a los derechos, beneficios y obligaciones delos funcionarios.

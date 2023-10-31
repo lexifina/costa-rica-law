@@ -1,0 +1,1 @@
+Artículo 46.-En caso de no estar conforme con lo resuelto por la jefatura inmediata, el colaborador municipal podrá interponer Recurso de Apelación ante el Encargado de Talento Humano, éste deberá ser interpuesto en el plazo de cinco días hábiles contados a partir del siguiente a la notificación de la resolución que lo admite.

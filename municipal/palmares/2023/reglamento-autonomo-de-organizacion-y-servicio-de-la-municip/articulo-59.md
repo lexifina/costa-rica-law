@@ -1,0 +1,1 @@
+Artículo 59.-Será prohibido acumular las vacaciones, pero podrán serlo por una sola vez cuando el funcionario desempeñare labores técnicas, profesionales, de dirección, de confianza u otras análogas, que dificulten especialmente su reemplazo. Las vacaciones no podrán acumularse por más de dos períodos consecutivos.

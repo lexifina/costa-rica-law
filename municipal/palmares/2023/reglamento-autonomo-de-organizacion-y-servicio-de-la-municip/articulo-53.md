@@ -1,0 +1,1 @@
+Artículo 53.-La concesión de un asueto lo dispone el Concejo Municipal de conformidad con la Ley, lo que será hecho del conocimiento de los funcionarios por el Alcalde Municipal. Por lo mismo no constituye, en caso alguno, un derecho que los funcionarios puedan reclamar como derecho adquirido.

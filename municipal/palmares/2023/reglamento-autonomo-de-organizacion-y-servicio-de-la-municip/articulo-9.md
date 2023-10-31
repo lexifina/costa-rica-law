@@ -1,0 +1,3 @@
+CAPÍTULO III
+Principios, propósitos y valores que inspiran este Reglamento
+Artículo 9º-Son principios que inspiran este Reglamento y que deben orientar la gestión de la Municipalidad y sus servidores: la satisfacción del interés público, el servicio de calidad al usuario, la armonización y simplificación de los procedimientos, la flexibilidad, eficacia, trabajo en equipo y el apego a las más estrictas normas de ética, buena fe y probidad en el ejercicio de la función pública, así como el respeto a la dignidad y a los derechos del funcionario, con acato riguroso del principio de legalidad. Así mismo, los principios regulados en la Ley Marco de Empleo Público.

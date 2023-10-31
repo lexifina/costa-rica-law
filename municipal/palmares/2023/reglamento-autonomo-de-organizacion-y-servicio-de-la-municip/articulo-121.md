@@ -1,0 +1,1 @@
+Artículo 121.-Las sanciones descritas en este capítulo, serán impuestas por el Alcalde Municipal a través conforme al procedimiento que establece el Código Municipal, la Ley General dela Administración Pública y este Reglamento.

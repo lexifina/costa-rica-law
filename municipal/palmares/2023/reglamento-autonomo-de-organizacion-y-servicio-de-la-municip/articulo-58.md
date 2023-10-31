@@ -1,0 +1,1 @@
+Artículo 58.-En caso que el funcionario por razones justificadas no pueda disfrutar las vacaciones en el período establecido, deberá comunicarlo de inmediato por escrito a su jefatura para que ésta reprograme las mismas en coordinación con el Encargado del Proceso de Talento Humano.

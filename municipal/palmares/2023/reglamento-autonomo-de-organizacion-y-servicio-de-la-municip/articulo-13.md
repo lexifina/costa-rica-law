@@ -1,0 +1,1 @@
+Artículo 13.-La modificación de las condiciones de trabajo se efectuará mediante acción de personal expedida por el Encargado del Proceso de Talento Humano, y autorizada por el Alcalde (sa) Municipal, cuya firma les otorgará validez y eficacia.

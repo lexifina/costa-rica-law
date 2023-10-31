@@ -1,0 +1,1 @@
+Artículo 85.- En el caso de incapacidad temporal del trabajador, extendida por la CCSS o del INS, el aguinaldo del servidor no se verá afectado y su cálculo se hará en base al salario devengado en el mes anterior a la incapacidad.

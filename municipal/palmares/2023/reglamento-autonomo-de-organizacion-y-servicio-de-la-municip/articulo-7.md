@@ -1,0 +1,2 @@
+Artículo 7º-La aplicación de este Reglamento corresponde al Alcalde (sa) Municipal, Encargado del Departamentode Talento Humano y representantes patronales, así como a todos los funcionarios municipales.
+Corresponde y es facultad del Alcalde (sa) Municipal interpretar, aplicar y resolver las dudas que pudiesen surgiren relación con el mismo, previa consulta al Encargado de la Oficina de Talento Humano.

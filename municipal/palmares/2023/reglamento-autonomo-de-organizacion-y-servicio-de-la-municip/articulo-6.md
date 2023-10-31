@@ -1,0 +1,1 @@
+Artículo 6º-El acto administrativo interno sólo producirá su efecto después de notificado al servidor en la forma quepara ello prevea la legislación, excepto si le concede únicamente derechos o beneficios, en cuyo caso lo producirádesde que se adopte.

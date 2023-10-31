@@ -1,0 +1,2 @@
+Artículo 89.-No obstante, lo dispuesto en el artículo anterior, cuando así se les señale, estarán obligados a prestar sus
+servicios hasta por 12 horas diarias, con hora y media de descanso conforme lo dispone el artículo 143 del Código de Trabajo, los funcionarios con rango de jefatura; así como los que tienen bajo su ámbito de acción la responsabilidad de unidades o equipos de servicio o de procesos sustantivos, los que cumplan jornadas discontinuas, o cuyo trabajo requiera de su sola presencia.

@@ -1,0 +1,1 @@
+Artículo 70. Las jefaturas en coordinación con el Encargado de Salud Ocupacional están obligados a realizar estudios y estructurar los planes de seguridad, salud ocupacional y los programas de acción sostenible en este campo, así como el control de situaciones de peligro o riesgos particulares asociados que puedan afectar a los funcionarios municipales.

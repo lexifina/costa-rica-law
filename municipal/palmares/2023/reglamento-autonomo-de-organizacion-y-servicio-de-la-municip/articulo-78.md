@@ -1,0 +1,1 @@
+Artículo 78.-En ningún caso de incapacidad para trabajar por enfermedad, riesgo de trabajo o licencia de maternidad, el monto del subsidio que pague la respectiva institución aseguradora sumado al que pague la Municipalidad podrá exceder el monto del salario del servidor.

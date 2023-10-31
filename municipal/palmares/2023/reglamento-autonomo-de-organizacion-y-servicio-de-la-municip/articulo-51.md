@@ -1,0 +1,1 @@
+Artículo 51.-En caso que el interés público lo demande, se podrá trabajar los días de descanso semanal si las labores no son pesadas, insalubres o peligrosas. En este caso se reconocerá salario, según en Derecho corresponda.

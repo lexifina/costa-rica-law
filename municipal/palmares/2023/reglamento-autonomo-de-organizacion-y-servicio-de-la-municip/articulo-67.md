@@ -1,0 +1,2 @@
+Artículo 67.-La Municipalidad deberá notificar al INS, de cualquier riesgo y accidente de trabajo que sufran sus servidores. Dicha notificación deberá ajustarse a los plazos y formalidades que establezca al efecto el Código de Trabajo y, en general, el Ordenamiento Jurídico.
+Las jefaturas están obligadas el mismo día a verificar y reportar a Talento Humano la ocurrencia de un accidente o riesgo laboral.

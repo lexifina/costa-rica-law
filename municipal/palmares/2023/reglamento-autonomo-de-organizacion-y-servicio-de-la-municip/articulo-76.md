@@ -1,0 +1,1 @@
+Artículo 76.-La licencia por motivos de maternidad, se pagará durante los meses que señale el artículo 95 del Código de Trabajo, reconociendo la diferencia que exista entre el total del salario de la servidora y lo que pague la CCSS.

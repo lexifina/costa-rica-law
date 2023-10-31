@@ -1,0 +1,1 @@
+Artículo 77.-Tratándose de incapacidad para trabajar por riesgo profesional, se estará a lo dispuesto la Ley sobre Riesgos de Trabajo, y sus reformas, garantizándose en todo caso el pago de la diferencia del subsidio cancelado por el INS, con la finalidad de que el funcionario perciba el cien por ciento del salario.

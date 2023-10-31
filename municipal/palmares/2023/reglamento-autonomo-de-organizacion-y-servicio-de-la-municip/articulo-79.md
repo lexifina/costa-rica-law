@@ -1,0 +1,1 @@
+Artículo 79.-La Municipalidad reconocerá para los efectos de este capítulo, las incapacidades extendidas por la CCSS, I.N.S, durante el tiempo que estos prescriban. El certificado que estos últimos extiendan además de los requisitos deLey, debe contener en forma clara y precisa la indicación del período de incapacidad prescrito.

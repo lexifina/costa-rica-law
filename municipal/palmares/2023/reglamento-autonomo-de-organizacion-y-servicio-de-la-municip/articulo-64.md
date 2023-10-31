@@ -1,0 +1,1 @@
+Artículo 64.-La Municipalidad de Palmares podrá autorizar de manera excepcional, permisos con o sin goce de salario, con el fin de que funcionarios de la Institución, puedan participar en eventos culturales, deportivos, congreso o mesas de trabajo, dentro o fuera del país, en representación del país, de la Municipalidad o de los sindicatos.

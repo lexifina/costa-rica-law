@@ -1,0 +1,2 @@
+Artículo 39.-El mismo procedimiento de reasignación se aplicará para el caso de las reclasificaciones, revaloraciones y transformaciones, con la salvedad que estas regirán a partir de la fecha en que sea aprobado el documento presupuestario en el que se le de contenido económico y de que el plazo para que el Encargado del Proceso de Talento
+Humano proceda al estudio respectivo será no mayor a seis meses.

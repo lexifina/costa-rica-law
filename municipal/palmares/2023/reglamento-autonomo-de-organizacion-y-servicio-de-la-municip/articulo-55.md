@@ -1,0 +1,1 @@
+Artículo 55.-El pago de las vacaciones se hará con base en el promedio de las remuneraciones ordinarias y extraordinarias, devengadas por el servidor durante las cincuenta semanas anteriores al momento en que adquirió el derecho.

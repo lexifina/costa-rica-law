@@ -1,0 +1,1 @@
+Artículo 60.-Con el visto bueno de su jefe inmediato, el servidor podrá solicitar Encargado del Proceso de Talento Humano un adelanto de sus vacaciones que, en ningún caso, podrá superar el número de días que proporcionalmente corresponda a los meses laborados.

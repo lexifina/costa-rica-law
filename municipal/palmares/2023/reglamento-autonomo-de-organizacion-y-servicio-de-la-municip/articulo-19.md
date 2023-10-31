@@ -1,0 +1,1 @@
+Artículo 19.-Podrán realizarse permutas o traslados temporales o definitivos a clases comprendidas dentro de un mismo grupo ocupacional y entre clases de puestos de diferente categoría, siempre que exista un interés Institucional comprobado y fundamentado, exista la aprobación de los jefes respectivos y no se afecte de manera directa el accionar normal de las dependencias.

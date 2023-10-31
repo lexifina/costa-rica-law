@@ -1,0 +1,1 @@
+Artículo 30.-Se considera un acto de discriminación, cuando el mecanismo empleado para este proceso de reclutamiento no sea adaptado a las condiciones del aspirante, cuando se exijan requisitos adicionales a los establecidos para todos los solicitantes o cuando no se emplea a un aspirante idóneo en razón de su discapacidad.
