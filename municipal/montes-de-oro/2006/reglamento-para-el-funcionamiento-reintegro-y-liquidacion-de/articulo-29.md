@@ -1,1 +1,0 @@
-Artículo 29.—El Tesorero Municipal debe procurar tramitar con la diligencia y frecuencia debida los reintegros de las sumas pagadas, para que se mantenga una adecuada rotación y el fondo no llegue a agotarse.

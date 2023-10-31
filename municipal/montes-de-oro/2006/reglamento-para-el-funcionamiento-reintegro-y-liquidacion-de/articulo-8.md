@@ -1,1 +1,0 @@
-Artículo 8º—Devoluciones de dinero en efectivo. La Caja Chica Municipal recibirá devoluciones de dinero, únicamente en efectivo, sin excepción de ninguna clase. El no acatamiento de esta norma generará la sanción disciplinaria que corresponda, la cual se iniciará con la amonestación verbal en la primera vez, y posteriores sanciones, si existiera reincidencia de la falta.
