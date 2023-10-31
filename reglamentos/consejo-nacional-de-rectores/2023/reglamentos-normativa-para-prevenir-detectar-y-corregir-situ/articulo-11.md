@@ -1,0 +1,1 @@
+Artículo 11.-Debido proceso: La determinación de responsabilidades y sanciones será definida mediante la aplicación del "Reglamento para el cumplimiento del debido proceso administrativo del CONARE", aprobado en la sesión 05-2019, celebrada el 12 de febrero del 2019.
