@@ -1,3 +1,5 @@
 Artículo 53.-
 1. El quórum para que pueda sesionar válidamente el órgano colegiado será el de la mayoría absoluta de sus componentes.
 2. Si no hubiere quórum, el órgano podrá sesionar válidamente en segunda convocatoria veinticuatro horas después de la señalada para la primera, salvo casos de urgencia en que podrá sesionar después de media hora y para ello será suficiente la asistencia de la tercera parte de sus miembros.
+3. Si la sesión fuera celebrada de manera virtual, formará cuórum cada uno de los integrantes presentes mediante enlaces telemáticos, para lo cual los participantes deben permanecer, durante toda la sesión, conectados con audio y video, independientemente del lugar desde el cual dicha conexión se origine, con tal de que su conexión le permita la comunicación simultánea de forma ininterrumpida.
+(Así adicionado el inciso anterior por el artículo 3° de la Ley Autoriza la celebración de sesiones virtuales a los Órganos Colegiados de la Administración Pública, N° 10379 del 2 de octubre del 2023)
