@@ -1,0 +1,1 @@
+Artículo 17.-Cuando por algún motivo la compra no se lleve a cabo, el funcionario que ha recibido el dinero del vale de caja chica deberá hacer el reintegro inmediato del dinero entregado para esos efectos a más tardar el día hábil siguiente al de su recibo. Para tal efecto, deberá ese funcionario aportar una justificación escrita.

@@ -1,0 +1,1 @@
+Artículo 28.-Todo arqueo de caja chica se realizará en presencia del encargado de caja chica del Comité. Este funcionario tendrá el derecho de pedir una segunda verificación, si mantiene dudas sobre el resultado obtenido.

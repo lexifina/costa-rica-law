@@ -1,0 +1,1 @@
+Artículo 21.-El encargado de caja chica deberá velar por el fiel cumplimiento de las disposiciones contempladas en el presente reglamento y cuando sea el caso, denunciar ante la Junta Directiva las violaciones al mismo.

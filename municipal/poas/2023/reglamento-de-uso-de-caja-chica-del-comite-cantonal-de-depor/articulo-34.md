@@ -1,0 +1,1 @@
+Artículo 34.-El encargado de caja chica no podrá guardar documentos, efectivo o cheques de propiedad particular, en los lugares destinados para uso de la caja chica y por ningún motivo podrá suplir con su dinero, compras o pagos que correspondan al Comité, salvo en casos emergentes, debiendo justificarse y razonarse el caso con el aval previo del Comité Cantonal.
