@@ -1,0 +1,4 @@
+ARTÍCULO 2-Se adiciona un inciso 5 al artículo 52 de la Ley 6227, Ley General de la Administración Pública, de 2 de mayo de 1978. El texto es el siguiente:
+Artículo 52-
+(…).
+5. Tanto las sesiones ordinarias como las extraordinarias del órgano podrán celebrarse de manera virtual, mediante el uso de sistemas telemáticos que permitan una comunicación integral, simultánea e ininterrumpida de video, audio y datos entre sus integrantes y que garanticen en tiempo real la oralidad de la deliberación, la identidad de los asistentes, la autenticidad e integridad de la voluntad colegiada, la conservación e inalterabilidad de lo actuado y su grabación en medios que permitan su íntegra reproducción. En el caso de los órganos que realicen sesiones públicas, se deberá garantizar la publicidad mediante la utilización de medios virtuales, que permitan que la ciudadanía pueda seguir en tiempo real las deliberaciones.
