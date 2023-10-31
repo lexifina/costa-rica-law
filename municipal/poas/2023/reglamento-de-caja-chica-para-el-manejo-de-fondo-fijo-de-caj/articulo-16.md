@@ -1,0 +1,1 @@
+Artículo 16.-No se reconocerá, el importe por concepto de impuesto de valor agregado (IVA), cuando éste sea cancelado por el usuario del vale, ya que la Municipalidad de conformidad, con lo establecido en el artículo 8° del Código Municipal, está exenta del pago de toda clase de tributos, y la Ley N° 9635 Art. 9°, inciso 2).

@@ -1,0 +1,1 @@
+Artículo 18.-La liquidación del vale queda formalizada cuando el responsable de la caja chica revisa todos los requisitos y entrega el efectivo conforme y será responsabilidad de la jefatura que autoriza el vale, constatar el ingreso de los bienes y servicios adquiridos.

@@ -1,0 +1,9 @@
+Artículo 11.-El vale se tramitará únicamente, cuando cumpla con todos y cada uno de los siguientes requisitos:
+. Se presente debidamente lleno, indicando el monto exacto y los artículos o servicios que se comprarán.
+. En caso de la compra de bienes y servicios, deberá aportarse una factura proforma lo cual no debe considerar el pago del impuesto al valor agregado, conforme lo establece el artículo 9°, inciso 2) de la Ley N° 9635 (No están sujetos al impuesto al valor agregado los bienes y servicios que adquieran las corporaciones municipales). La fecha de la factura no puede ser inferior a la fecha en la que se tramita el vale, toda vez que se trata, de trámites de urgencia que en principio se deben atender en las próximas 24 horas al hecho acontecido como impostergable.
+. La Tesorería entregará una constancia a favor del proveedor de los bienes y servicios en relación con la no sujeción al impuesto al valor agregado por parte de la Municipalidad de Poás.
+. Tenga aprobación por parte del alcalde Municipal o del funcionario en quien él haya delegado tal función, de conformidad con lo dispuesto en el artículo 17, inciso b) del Código Municipal.
+. Establecer el control respectivo sobre el retiro del dinero, dejando constancia del funcionario responsable de su recibo.
+. Se detalla en el formulario la compra de los bienes y servicios por adquirir, con la correspondiente justificación.
+. Antes de hacerse efectivo, todo vale de caja chica o solicitud de compra de bienes, servicios u obra pública, deberá tener el aval del contenido presupuestario. De no cumplirse con este requisito previo, el gasto que se origine no será cancelado. Los vales de caja chica deberán ser autorizados mediante firma de la Unidad Solicitante, la Tesorería y la Alcaldía.
+. Aplicar la retención del 2% a las compras con montos superiores al salario base de un oficinista del poder judicial (¢462.200,00, cuatrocientos sesenta y dos mil doscientos colones con 00/100).

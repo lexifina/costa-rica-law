@@ -1,0 +1,1 @@
+Artículo 21.-Si realizado el arqueo, resulta una diferencia, ésta debe ser justificada por el responsable de las Cajas Chicas, quien además deberá en forma inmediata depositar el sobrante o reintegrar el faltante, según corresponda.

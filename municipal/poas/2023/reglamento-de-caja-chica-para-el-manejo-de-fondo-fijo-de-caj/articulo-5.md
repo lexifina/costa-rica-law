@@ -1,0 +1,1 @@
+Artículo 5º-Las Cajas Chicas funcionarán el dinero en efectivo para atender exclusivamente la adquisición de bienes y servicios, así como para pagar viáticos y gastos de viaje, según lo dispone este Reglamento y cuando la situación así lo amerite, por razones emergentes y necesarias para una determinada obra o servicio.

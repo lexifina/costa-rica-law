@@ -1,0 +1,1 @@
+Artículo 34.-Ningún funcionario de la Municipalidad, con la excepción de los que tengan en custodia las reservas de cajas chica, podrá mantener en su poder fondos de caja chica por más del día hábil siguiente a la solicitud del dinero.
