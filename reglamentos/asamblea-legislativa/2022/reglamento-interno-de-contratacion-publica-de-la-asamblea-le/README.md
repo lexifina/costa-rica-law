@@ -15,3 +15,4 @@ Reglamento interno de contratación pública de la Asamblea Legislativa
 | --- | --- | --- |
 | 1 | 2023-01-17 | la propia norma |
 | 2 | 2023-02-28 | Reglamento 38 (2023-02-28) |
+| 3 | 2023-11-01 | Reglamento 68 (2023-11-01) |
