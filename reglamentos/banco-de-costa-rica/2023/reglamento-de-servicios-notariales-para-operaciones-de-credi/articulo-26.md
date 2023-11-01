@@ -1,0 +1,2 @@
+Artículo 26.-Modificaciones al reglamento.
+El Banco se reserva el derecho de modificar, reformar, adicionar, derogar o sustituir el presente reglamento, lo cual aceptan expresamente los notarios contratados, sin que puedan alegar derechos adquiridos y desconocimiento de ninguna especie, derivados de esta normativa o sus modificaciones, cartel de licitación, comunicados y demás normativa que se emita sobre la materia aquí regulada.

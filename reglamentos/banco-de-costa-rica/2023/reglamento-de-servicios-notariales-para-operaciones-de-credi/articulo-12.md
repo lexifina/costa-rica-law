@@ -1,0 +1,3 @@
+Artículo 12.-Condiciones para la firma de la escritura.
+El otorgamiento de la escritura se debe realizar en la oficina del Banco de Costa Rica donde el cliente gestionó la solicitud de crédito, salvo que con previa autorización de la Jefatura de Notariado y a solicitud expresa del cliente se deba realizar en una oficina diferente o en la oficina del notario, siendo esto aplicable únicamente en casos de excepción.
+En caso de que el notario sea reiterativo en esta condición, el Banco queda facultado para proceder de acuerdo con lo establecido en el Reglamento a la Ley General de Contratación Pública y el Reglamento interno de contratación pública del Conglomerado Financiero BCR, referente a la resolución de contratos.

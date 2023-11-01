@@ -1,0 +1,5 @@
+CAPÍTULO V
+De las escrituras
+Artículo 11.-Valoración previa al otorgamiento de escritura.
+Es responsabilidad del profesional comprobar que no existe ninguna irregularidad, faltante documental o impedimento para otorgar la escritura pública y para determinar la existencia de aspectos que puedan lesionar la posición de la Institución como acreedora.
+En caso de que se presente alguna de las situaciones mencionadas en el párrafo anterior, el notario debe informar por escrito a la Jefatura de Notariado, en un plazo no mayor a un día hábil posterior a la asignación del caso, donde indique los problemas que podrían afectar el otorgamiento e inscripción de esa escritura pública y solicitar las instrucciones del caso para continuar o suspender su labor notarial. Además, deberá devolver el expediente con la documentación que demuestre la imposibilidad de otorgar la escritura en tales condiciones. En caso de incumplir con este aspecto, este será considerado en la evaluación anual del profesional.
