@@ -1,1 +1,0 @@
-Artículo 3º—De los deberes del caucionante. Los funcionarios (as) llamados (as) a rendir garantía, deberán tomar las precauciones adecuadas y constantes para controlar la exactitud de las cuentas del dinero y de los valores a su cargo y dar aviso inmediato a su superior jerárquico al momento de detectar una pérdida, defraudación o situación que afecte a la Institución.
