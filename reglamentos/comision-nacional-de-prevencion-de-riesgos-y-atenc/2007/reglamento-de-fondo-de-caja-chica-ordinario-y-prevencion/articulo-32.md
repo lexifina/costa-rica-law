@@ -1,1 +1,0 @@
-Artículo 32.—Los intereses devengados por los saldos en las cuentas bancarias de los fondos de caja chica, deberán ser depositados en la cuenta del Fondo General de Gobierno, dentro de un plazo de ocho días hábiles después de recibido el respectivo Estado de Cuenta
