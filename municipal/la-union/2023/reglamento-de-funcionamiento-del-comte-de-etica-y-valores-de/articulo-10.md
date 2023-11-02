@@ -1,0 +1,1 @@
+Artículo 10.-Coordinación y secretaría del CEV. El CEV contará con una persona coordinadora designada por el alcalde Municipal y otra persona secretaria. La última será elegida por mayoría simple entre los integrantes presentes convocados formalmente y por un periodo de dos años consecutivos, pudiendo reelegirse.

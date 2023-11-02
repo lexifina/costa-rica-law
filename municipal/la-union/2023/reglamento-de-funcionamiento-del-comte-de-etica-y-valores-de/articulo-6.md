@@ -1,0 +1,1 @@
+Artículo 6º-Objetivo del Comité de Ética. Es la promoción, formación y fortalecimiento de la ética en la institución y contribuir a la eficiencia en el sector público. Le corresponde conducir técnicamente la gestión ética institucional con el liderazgo y responsabilidad el jerarca y los titulares subordinados y la participación de toda la administración activa.

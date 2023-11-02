@@ -1,0 +1,5 @@
+Artículo 4º-Integración de la Comisión Institucional de Ética y Valores. El CEV estará conformada por 7 funcionarios o funcionarias de la Municipalidad de La Unión.
+Para cada miembro propietario designará un suplente en caso de ausencia, considerando para ello el perfil establecido en este reglamento.
+El nombramiento de los miembros del CEV será por un plazo de dos años, pudiendo renovarse si la persona desea continuar en el cargo y si no existen razones que ameriten su sustitución.
+De modo que una vez nombrado cada uno de los miembros integrantes del CEV, se procederá a la formalización oficial, mediante acto administrativo, el cual debe ser comunicado a todos los titulares subordinados e integrantes de la Municipalidad de La Unión.
+En caso de que algún integrante no pueda continuar en el CEV por situaciones justificadas o incumpla el perfil reglamentario, deberá nombrarse el sustituto en el plazo máximo de un mes calendario a partir de que se haga efectiva su separación del cargo. La designación de los nombramientos de los integrantes propietarios y suplentes estará a cargo de la Alcaldía Municipal contando con el visto bueno de la jefatura.

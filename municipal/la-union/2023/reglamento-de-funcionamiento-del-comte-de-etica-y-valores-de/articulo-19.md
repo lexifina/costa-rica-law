@@ -1,0 +1,1 @@
+Artículo 19.-Juramentación. La Juramentación de las personas integrantes del CEV es un acto que se lleva a cabo en la institución. Es realizada por el alcalde Municipal, en presencia de una persona representante del CEV.
