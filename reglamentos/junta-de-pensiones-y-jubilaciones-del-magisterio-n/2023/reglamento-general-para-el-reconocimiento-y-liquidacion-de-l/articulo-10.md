@@ -1,0 +1,1 @@
+Artículo 10.-En el caso de que la suma adelantada, sea mayor a los gastos efectuados, el trabajador autorizado debe reintegrar las sumas no gastadas dentro del plazo establecido en el Artículo 7 de este Reglamento.
