@@ -1,2 +1,0 @@
-Artículo 33.
-El CAN tiene la potestad de suspender la acreditación de un ente proveedor o de una actividad de educación continua en Nutrición, en caso de incumplimiento de requisitos o falsedad de datos a juicio del Consejo. En caso de que la persona que realice la falsedad de datos sea profesional en Nutrición, el CAN podrá presentar la correspondiente denuncia ante el Colegio según la normativa vigente.

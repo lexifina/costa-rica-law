@@ -1,3 +1,0 @@
-Artículo 41.
-Cada periodo de recertificación consta de tres (3) años consecutivos en el cual la persona profesional en Nutrición debe obtener cada año un mínimo de 10 créditos para un total de 30 créditos. Si la persona profesional en Nutrición no cumple con el número mínimo de créditos en alguno de los años del período de recertificación inscrito, deberá iniciar de nuevo su período completo de tres años.
-El CAN reconocerá las actividades recertificables de educación continua en Nutrición que el profesional haya realizado del 1 de enero al 31 de diciembre de cada año. Los créditos no son acumulables de un año o periodo para otro.

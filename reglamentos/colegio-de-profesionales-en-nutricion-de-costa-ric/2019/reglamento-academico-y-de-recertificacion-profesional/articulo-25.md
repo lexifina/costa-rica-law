@@ -1,2 +1,0 @@
-Artículo 25.
-Para acreditar las actividades de educación continua los entes proveedores deben estar inscritos en el SRPN, presentar al CAN el formulario de solicitud de acreditación de actividades de educación continua y los documentos que ahí se especifican, mínimo 30 días hábiles antes de iniciar la actividad. El CAN se pronunciará y comunicará el resultado al ente proveedor a más tardar 20 días hábiles después de recibida la solicitud de acreditación, vencido ese término sin el pronunciamiento del CAN se dará por aprobada la actividad.

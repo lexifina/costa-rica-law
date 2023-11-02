@@ -1,2 +1,0 @@
-Artículo 30.
-Las actividades educativas de temas específicos del área de Nutrición deberán ser impartidas por profesionales en Nutrición, incorporados al CPNCR con excepción de expositores nutricionistas internacionales. En caso de cambiar de expositores, el ente proveedor de educación continua debe notificarlo al CAN y enviar su currículo para su pertinencia. En ausencia de notificación, el CAN aplicará la sanción que establece este reglamento.
