@@ -1,1 +1,0 @@
-Artículo 32.—El responsable del control del fondo de Caja Chica deberá comunicar, por escrito, al funcionario Encargado del manejo de Caja Chica, de las responsabilidades establecidas por el presente Reglamento, lo anterior sin perjuicio de la obligatoriedad de todo funcionario público de conocer y aplicar la normativa establecida.

@@ -1,1 +1,0 @@
-Artículo 41.—En los comprobantes o facturas emitidos por terceros, no deben hacerse agregados de ninguna especie que puedan causar confusión, cualquier aclaración debe efectuarse de conformidad con la normativa vigente.

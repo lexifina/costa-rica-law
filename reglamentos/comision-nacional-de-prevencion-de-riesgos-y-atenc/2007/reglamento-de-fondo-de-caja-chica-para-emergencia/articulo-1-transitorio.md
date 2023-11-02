@@ -1,1 +1,0 @@
-Transitorio Único: Con la aprobación de este Reglamento, y por única vez, se propone que el fondo de caja chica para emergencias se fije en la suma de ¢10.000.000 (diez millones de colones). Dicho fondo en lo sucesivo quedaría sujeto a los cambios conforme lo estipulado en los artículos 8 y 14 del presente reglamento.

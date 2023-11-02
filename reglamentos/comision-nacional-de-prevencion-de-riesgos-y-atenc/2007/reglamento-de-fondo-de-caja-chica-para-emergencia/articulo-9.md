@@ -1,1 +1,0 @@
-Artículo 9º—Queda prohibido mantener o sustituir los fondos de la Caja Chica para emergencias con otros valores que no sean los autorizados en este Reglamento. La violación de esta disposición se considera como falta grave, a la relación de servicio .CNE.

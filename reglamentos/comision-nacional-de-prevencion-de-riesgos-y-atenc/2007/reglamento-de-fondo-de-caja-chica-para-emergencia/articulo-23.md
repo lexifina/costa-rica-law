@@ -1,4 +1,0 @@
-CAPITULO IV
-De los reembolsos
-Artículo 23.—Los reembolsos solicitados deberán presentarse en el formulario denominado “Reintegro de Caja Chica”. Los reembolsos de la Caja Chica para Emergencias, pueden hacerse mediante transferencia electrónica o cheque de la cuenta corriente de emergencias a la cuenta corriente exclusiva para el fondo de Caja Chica para Emergencias. Encargado del Fondo de Caja Chica girará al o los encargados de Cajas Auxiliares, cheque de la cuenta específica de este fondo para los reintegros correspondientes o ampliaciones conforme lo ya mencionado.
-El efectivo y demás documentos que forman el Fondo de la Caja Chica para Emergencias, deberán custodiarse en Caja fuerte bajo los controles adecuados que garanticen la seguridad requerida, así también los fondos de las cajas auxiliares deben permanecer en cajas fuertes y con los controles necesarios.

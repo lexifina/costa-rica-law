@@ -1,1 +1,0 @@
-Artículo 42.—Se considerará falta grave de servicio la existencia de facturas en la Caja Chica para Emergencia o sus Cajas Auxiliares, que no correspondan o tengan relación con cancelaciones hechos con estos fondos o con la emergencia atendida.

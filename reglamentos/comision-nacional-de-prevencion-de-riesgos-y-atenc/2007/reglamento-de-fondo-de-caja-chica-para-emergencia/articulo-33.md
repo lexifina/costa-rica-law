@@ -1,1 +1,0 @@
-Artículo 33.—Cuando el responsable del control o el encargado del manejo de Caja Chica cese en sus funciones o se ausente de su trabajo temporalmente y se requiera designar un nuevo funcionario, debe observarse lo estipulado en el Artículo 16 de este Reglamento.
