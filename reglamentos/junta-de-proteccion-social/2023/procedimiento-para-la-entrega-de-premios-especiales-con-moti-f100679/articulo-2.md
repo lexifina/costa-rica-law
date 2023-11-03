@@ -1,0 +1,9 @@
+Artículo 2°- Definiciones. Para efectos del presente procedimiento, se utilizarán los siguientes conceptos:
+Cuponera de Lotería Instantánea: consiste en una cuponera digital que se encuentra en el App JPS A SU ALCANCE, que consta de 10 casillas.
+Junta: Junta de Protección Social
+Lotería Instantánea: modalidad de juego conocido como "raspa", que otorga de manera instantánea, sin que medie realización de un sorteo y mediante la acción de remover, raspar o arrancar la película, capa de látex u otro material que cubre los números o caracteres insertos en ellos, premios en dinero, en especie o premios específicos.
+Premios especiales: Consisten en premios en dinero
+Participantes: Toda persona física mayor de 18 años, nacional o extranjera, que escanee y complete la cuponera de Lotería Instantánea, que se encuentra en el App JPS A SU ALCANCE, con boletos no premiados de los juegos que se encuentren vigentes en noviembre y diciembre de 2023.
+Sorteo: Proceso de selección al azar que determina la combinación ganadora de un premio, realizado y fiscalizado de acuerdo con lo establecido en el Reglamento a la Ley de Loterías, en el Reglamento interno para regular las actividades relacionadas con la realización y la asistencia a la celebración de los sorteos de lotería y a la recepción de excedentes de loterías, así como cualquier otra normativa que se emita al efecto.
+Tómbola electrónica: Tómbola generada con las activaciones de boletos no premiados de Lotería Instantánea que realizan los participantes a través del App JPS A SU ALCANCE. Los ganadores se determinan de manera aleatoria a través de un sistema informático.
+Vendedor Autorizado de la Junta de Protección Social: son los que se encuentren activos en los sistemas institucionales. (Estado activo, es el estado que indica que un vendedor puede retirar las loterías).
