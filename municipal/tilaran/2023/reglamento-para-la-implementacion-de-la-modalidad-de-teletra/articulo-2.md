@@ -1,0 +1,2 @@
+Artículo 2º-Ámbito de aplicación.
+Este Reglamento es aplicable a todos los trabajadores que tienen puestos con actividades que los jerarcas de la municipalidad, en coordinación con las respectivas jefaturas, determinen como teletrabajables y donde existan las condiciones tecnológicas y ambientales requeridas para su implementación.

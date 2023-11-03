@@ -1,0 +1,2 @@
+Artículo 32.-Control y verificación labores.
+La jefatura deberá implementar los sistemas de control y verificación necesarios del cumplimiento por parte del teletrabajador en cuanto a horarios y jornadas laborales. Si el (la) teletrabajador (a) requiere permisos especiales para atender necesidades personales impostergables durante su jornada, deberá solicitarlo a su superior (a) inmediato (a) por lo menos tres días antes, salvo casos de emergencia debidamente comprobados.

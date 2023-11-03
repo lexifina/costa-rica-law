@@ -1,0 +1,2 @@
+Artículo 47.-Labores habituales.
+El teletrabajar una vez concluida la modalidad deberá incorporarse al desempeño de sus labores habituales en su sitio de trabajo, debiendo realizar la jefatura una revisión de la incorporación tanto del equipo tecnológico suministrado, como de cualquier otro bien o documentación propiedad de la Municipalidad.

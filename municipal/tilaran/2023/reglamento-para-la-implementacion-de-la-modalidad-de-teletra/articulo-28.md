@@ -1,0 +1,2 @@
+Artículo 28.-Seguros y póliza riesgos de trabajo.
+El teletrabajador estará protegido por la Póliza de Riesgos del Trabajo que tiene la institución, siempre que se encuentre ejerciendo las labores propias de su función. En caso de presentarse un accidente laboral, se deberá dar aviso de lo sucedido al Departamento de Salud Ocupacional de forma inmediata o en el plazo de los siguientes tres días hábiles posteriores al accidente.

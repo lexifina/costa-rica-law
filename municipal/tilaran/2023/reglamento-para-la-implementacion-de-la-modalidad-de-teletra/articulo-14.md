@@ -1,0 +1,3 @@
+Artículo 14.-Suministro equipo tecnológico.
+La Municipalidad podrá dotar en calidad de préstamo y de acuerdo con sus posibilidades, de equipo de cómputo y accesorios necesarios a los teletrabajadores. En los casos donde ese suministro por parte de la Municipalidad no se pueda dar, sea el acceso a internet, la línea telefónica, el mobiliario y equipo de cómputo, los debe aportar al teletrabajador asumiendo sin reclamo alguno para la Municipalidad, los costos que esto represente. Esta situación, deberá quedar debidamente consignada en el acuerdo suscrito por las partes.
+Los Activos que sean sacados de la municipalidad deben coordinarse con el área encargada de activos y con el visto bueno de la alcaldía.
