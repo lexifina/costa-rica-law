@@ -1,0 +1,3 @@
+MUNICIPALIDAD DE SARCHÍ
+La Municipalidad de Sarchí, en su condición de Administración Tributaria y en aras de dar cumplimiento a su competencia, acuerda adherirse al nuevo Reglamento del Manual de Valores Base Unitarios por Tipología Constructiva publicado por el Ministerio de Hacienda, Órgano de Normalización Técnica, en el Alcance Digital N° 187, del Diario Oficial La Gaceta N° 178, de fecha jueves 28 de setiembre del 2023. Lo anterior de conformidad con la Ley N° 7509 y sus reformas - Ley del Impuesto Sobre Bienes Inmuebles.
+La aplicación de dicho Manual en la Municipalidad de Sarchí empezará a regir a partir de esta publicación. Publíquese solo una vez.
