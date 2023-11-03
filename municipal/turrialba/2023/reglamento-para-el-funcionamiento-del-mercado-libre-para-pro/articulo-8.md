@@ -1,0 +1,1 @@
+Artículo 8°-La Junta Administradora nombra entre sus miembros: presidente, vicepresidente, secretario, 2 vocales y un Fiscal, quienes serán ad honorem, por un periodo de dos años y pueden ser reelectos por un máximo de dos periodos consecutivos. El Fiscal según la normativa vigente tiene voz, pero no voto.

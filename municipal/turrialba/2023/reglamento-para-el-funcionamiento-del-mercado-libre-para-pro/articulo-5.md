@@ -1,0 +1,1 @@
+Artículo 5°-El Mercado Libre funciona los días viernes de 5 a.m. hasta las 5 p.m., y sábado de 5 a.m., hasta las 4 p.m., salvo en casos de excepción (días feriados), en que se habilitarán días diferentes.

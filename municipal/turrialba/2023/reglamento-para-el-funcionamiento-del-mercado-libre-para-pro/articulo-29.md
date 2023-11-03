@@ -1,0 +1,1 @@
+Artículo 29.-Si el vendedor(a) abandona el espacio asignado por un plazo de dos semanas consecutivas o alternas durante el mismo mes; sin justificación alguna, el puesto del mismo quedará a disposición de la Junta Administradora. Debiéndose respetar el debido proceso.

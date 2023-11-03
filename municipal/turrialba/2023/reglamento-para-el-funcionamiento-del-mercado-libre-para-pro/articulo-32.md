@@ -1,0 +1,1 @@
+Artículo 32.-La cuota de cada vendedor(a), a quien ¡Error! Referencia de hipervínculo no válida.se le autorice espacio en el Mercado Libre Municipal, será regulado según la Ley y lo que indique la Tesorería Municipal y Hacienda Municipal según los estudios técnicos que se realicen.

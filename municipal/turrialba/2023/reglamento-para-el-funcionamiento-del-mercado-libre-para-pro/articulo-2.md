@@ -1,0 +1,1 @@
+Artículo 2°-El Mercado Libre no persigue ninguna finalidad lucrativa para la Municipalidad, únicamente los gastos operativos más los porcentajes que indique la Ley para su correcto funcionamiento que pueda derivarse.

@@ -1,0 +1,1 @@
+Artículo 13.-Está prohibido para el Administrador(a) recibir dádivas, productos agrícolas o cualquier otro tipo de beneficio, promover cualquier tipo de colectas, sea productos o dineros. La violación del presente Articulo por parte del Administrador del Mercado Libre Municipal, lo hará acreedor de las sanciones administrativas correspondientes y la respectiva denuncia penal.

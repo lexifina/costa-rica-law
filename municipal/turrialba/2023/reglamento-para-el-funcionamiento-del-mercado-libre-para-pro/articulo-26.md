@@ -1,0 +1,1 @@
+Artículo 26.-Al vendedor(a) que se le compruebe haber consignado datos o documentos falsos en su solicitud, con el fin de conseguir de forma fraudulenta su permiso, se negará el permiso de forma permanente, y en caso de ser un documento público oficial, deberá enviarse a los órganos competentes para su investigación.
