@@ -15,3 +15,4 @@ Perfil Profesional del Terapeuta Físico o Fisioterapeuta en Costa Rica
 | --- | --- | --- |
 | 1 | 2017-06-09 | la propia norma |
 | 2 | 2018-11-03 | Reglamento 14 (2018-11-03) |
+| 3 | 2023-11-04 | Reglamento 4 (2023-11-04) |

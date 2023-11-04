@@ -1,1 +1,2 @@
-Artículo 18.- Una vez que la evaluación se complete y se tenga el diagnóstico terapéutico, el fisioterapeuta diseña un plan de atención que incluye objetivos funcionales a corto y largo plazo definidos de forma conjunta con el usuario. De igual manera, el fisioterapeuta analiza las opciones de finalización del proceso terapéutico.
+Artículo 18.-Una vez que la evaluación se complete y se tenga el diagnóstico terapéutico, el fisioterapeuta diseña un plan de atención que incluye objetivos funcionales a corto, mediano y largo plazo definidos de forma conjunta con el usuario. De igual manera, el fisioterapeuta analiza las opciones de finalización del proceso terapéutico.
+(Así reformado en sesión celebrada el 04 de noviembre de 2023)
