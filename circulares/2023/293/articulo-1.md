@@ -1,0 +1,8 @@
+CIRCULAR No. 293-2023
+Asunto: Obligatoriedad de indicar en las sentencias condenatorias, escritas y orales, la posibilidad que tienen las personas sentenciadas de asistirse por una persona defensora pública durante el proceso de ejecución de la sentencia e informarlo así al Juzgado de Ejecución correspondiente. -
+A LAS PERSONAS JUZGADORAS DE LOS TRIBUNALES PENALES DE TODO EL PAÍS
+SE LES HACE SABER QUE:
+El Consejo Superior en sesión N°89-2023 celebrada el 24 de octubre de 2023, artículo LXX, acogió la propuesta remitida por la Comision de la Jurisdicción Penal en el oficio CJP056-2023, en relación con la posibilidad de que las personas sentenciadas sean representadas por la Defensa Pública en la etapa de ejecución de sentencia; a su vez, ante el requerimiento de la Defensa Pública del Poder Judicial de contar con la manifestación de voluntad o petición expresa de las personas sobre las cuales recae una sentencia condenatoria, de que desean dicho patrocinio letrado.
+Por lo expuesto, en adelante, las personas juzgadoras de los tribunales penales de todo el país, deberán incluir en las sentencias orales y escritas en las que se dicte un fallo condenatorio, un estribillo en el cual se haga ver a las personas sometidas a una sanción penal, sobre su derecho de contar con la representación de la Defensa Pública, haciéndoles ver que dicha circunstancia, deberán informarla claramente en las gestiones o incidentes que presenten ante el Juzgado de Ejecución de la Pena, con el objetivo de que dicho Juzgado realice la instancia correspondiente a la Defensa Pública.
+Publíquese una vez en el Boletín Judicial.
+San José, 06 de noviembre de 2023.
