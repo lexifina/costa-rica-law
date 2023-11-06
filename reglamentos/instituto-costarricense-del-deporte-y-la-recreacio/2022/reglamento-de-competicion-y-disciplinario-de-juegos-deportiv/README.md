@@ -14,3 +14,4 @@ Reglamento de competición y disciplinario de juegos deportivos nacionales vigen
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-05-13 | la propia norma |
+| 2 | 2023-11-06 | Reglamento 34 (2023-11-06) |

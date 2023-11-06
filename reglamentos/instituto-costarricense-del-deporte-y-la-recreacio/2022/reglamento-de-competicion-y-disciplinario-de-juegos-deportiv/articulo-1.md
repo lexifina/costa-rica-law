@@ -24,7 +24,9 @@ ARTICULO 15 Asignación de sede de la Etapa final ARTICULO 16 Convocatoria Nacio
 CAPITULO III DE LA PARTICIPACION E INSCRIPCION
 ARTICULO 17 De la Inscripción de Comités Cantonales de Deporte y Recreación ARTICULO 18 De los Requisitos Generales de Inscripción a Cargo del Comité Cantonal de Deporte y Recreación
 ARTICULO 19 De la Participación e Inscripción de Atletas
-ARTICULO 20 De la Participación e Inscripción de Entrenadores y Asistentes ARTICULO 21 Sustitución de Atletas por Lesión, Muerte o Convocatoria a una Selección Nacional
+ARTICULO 20 De la Participación e Inscripción de Entrenadores y Asistentes
+ARTICULO 21 Sustitución de atletas Etapa Final
+(Así reformado el párrafo anterior mediante sesión N° 034-2023 del 06 de noviembre de 2023)
 CAPITULO IV PROGRAMACION Y ORGANIZACIÓN DE LAS COMPETENCIAS
 ARTICULO 22 Programa de Deportes ARTICULO 23 Deportes de Exhibición
 ARTICULO 24 Del Proceso Competitivo de Juegos Deportivos Nacionales y Paranacionales
@@ -49,9 +51,16 @@ ARTICULO 46 Participantes Sujetos al Régimen Disciplinario ARTICULO 47 Órganos
 ARTICULO 49 Llamada de Atención por la Administración con Constancia en la Bitácora
 ARTICULO 50 Sanción de Suspensión por el Resto de la Edición
 ARTICULO 51 Sanción de Suspensión por el Resto de la Edición y una Edición más ARTICULO 52 Sanción de Suspensión por el Resto de la Edición y dos Ediciones más
-CAPITULO IX Reformas a este Reglamento
-ARTICULO 53 Ausencia de Normativa
-ARTICULO 54 Aprobación de Reformas al Reglamento. ARTICULO 55 Aprobación del Reglamento
+CAPITULO IX Casos de acoso y hostigamiento sexual.
+(Así adicionado el párrafo anterior mediante sesión N° 034-2023 del 06 de noviembre de 2023)
+CAPÍTULO X Reformas a este Reglamento
+(Así reformado el párrafo anterior mediante sesión N° 034-2023 del 06 de noviembre de 2023)
+ARTICULO 53 ATENCIÓN DE CASOS
+(Así reformado el párrafo anterior mediante sesión N° 034-2023 del 06 de noviembre de 2023)
+ARTICULO 54 Aprobación de Reformas al Reglamento.
+ARTICULO 55 Aprobación del Reglamento
+ARTICULO 56 Aprobación del Reglamento
+(Así adicionado el párrafo anterior mediante sesión N° 034-2023 del 06 de noviembre de 2023)
 CAPITULO I PRINCIPIOS GENERALES
 ARTICULO 1. OBJETIVO GENERAL
 Desarrollar el programa deportivo de mayor participación y referencia a nivel nacional, dirigido a todas las personas del país que cumplan con los criterios de inscripción y clasificación según cada deporte y que estén avalados por el Comité Cantonal de Deporte y Recreación/Concejo de Distrito respectivo, permitiéndoles el desarrollo físico y técnico mediante la participación en eventos deportivos para la promoción, masificación y competición en las comunidades, sustentados en los valores sociales, educativos, morales y éticos que contribuyan a su formación integral en un ambiente libre de sustancias y métodos dopantes y libre de hostigamiento y acoso sexual.
