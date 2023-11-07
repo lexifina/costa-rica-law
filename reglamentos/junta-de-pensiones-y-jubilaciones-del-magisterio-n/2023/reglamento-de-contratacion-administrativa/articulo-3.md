@@ -1,0 +1,33 @@
+Artículo 3.-
+Definiciones
+- ACTIVIDAD ORDINARIA: es el suministro directo al usuario o destinatario final, de los servicios o las prestaciones establecidas, legal o reglamentariamente, dentro de sus fines.
+- APERTURA: acto de abrir una oferta en tiempo y forma.
+- AUDITORÍA INTERNA: tiene como función principal verificar en forma independiente el cumplimiento, la suficiencia y la validez del sistema de control interno de JUPEMA, así como informar y proponer las medidas correctivas pertinentes, a fin de prestar un servicio constructivo y de protección a los intereses institucionales. Además, brinda asesoría a la Junta Directiva con total independencia funcional y de criterio.
+- BIEN (ES): mercancía para el consumo o uso de JUPEMA.
+- CONTRATO: convenio o acuerdo mutuo de consentimiento y recíproco que tiene como consecuencia la creación de un vínculo obligatorio con fuerza de ley entre las partes contratantes.
+- COMPRAS SOSTENIBLES: compras conformes con los principios que rigen la contratación administrativa y que tienen el mayor impacto positivo ambiental, social y económico posible durante todo el ciclo de vida del producto.
+- CUADRO COMPARATIVO: se utiliza para presentar una comparación de cualidades y calidades entre ellas: precio, garantía, tiempos de entrega y forma de pago, así como cualquier otro tipo de información, de las ofertas presentadas por los proveedores, de forma tal que facilite la toma de decisiones en la adquisición de bienes y servicios.
+- DEPARTAMENTO: unidad subordinada de la Dirección Ejecutiva, dentro de la estructura del organigrama Institucional.
+- DEPARTAMENTO ADMINISTRATIVO: encargado de satisfacer las necesidades de bienes y servicios (suministros, caja chica, seguridad, transporte, mantenimiento, limpieza y control de activos), de la Institución, que les permita llevar a cabo su trabajo en forma eficiente y sin ningún contratiempo para el adecuado servicio a los afiliados.
+- DEPARTAMENTO FINANCIERO-CONTABLE: encargado de administrar los recursos financieros que la institución recauda, con el fin de cumplir con las obligaciones institucionales, mediante un adecuado registro contable y presupuestario.
+- DEPARTAMENTO USUARIO: es el departamento que requiere el bien o servicio a contratar responsable de iniciar el proceso de contratación.
+- DESIERTO: si fueron presentadas ofertas elegibles, pero por razones de protección al interés público así lo recomiendan, la administración, mediante un acto motivado, podrá declarar desierto el concurso.
+- DIRECCIÓN EJECUTIVA: es la responsable de la correcta aplicación de la normativa vigente y del cumplimiento de los acuerdos adoptados por el Cuerpo Colegiado. En su carácter de jefe superior jerárquico, debe orientar, planificar, supervisar y controlar todas las dependencias administrativas de JUPEMA.
+- ENLACE: es el departamento usuario responsable de verificar la adecuada ejecución de un contrato de bienes o servicios.
+- INFORME DE RECEPCIÓN: utilizado para evidenciar la recepción de materiales, suministros, bienes o servicios y que forma parte del proceso de pago a proveedores.
+- INFRUCTUOSO: si al concurso no se presentaron ofertas o las que lo hicieron no se ajustaron a los elementos esenciales del concurso, se dictará un acto declarando infructuoso el procedimiento, justificando los incumplimientos sustanciales que presenten las ofertas.
+- INVITACIÓN A COTIZAR: documento mediante el cual se convoca a los proveedores a presentar ofertas, conforme las condiciones particulares del proceso de compra de bienes o servicios.
+- JUNTA DIRECTIVA: Órgano colegiado y máximo jerarca de la Junta de Pensiones y Jubilaciones del Magisterio Nacional, encargado de la dirección de la Institución, mediante el dictado de políticas generales con las atribuciones que le otorga la ley.
+- JUPEMA: Junta de Pensiones y Jubilaciones del Magisterio Nacional.
+- ORDEN DE COMPRA: documento que emite el Área de proveeduría, mediante el cual se ordena la ejecución del proceso de compra, conforme las condiciones particulares del mismo.
+- OFERTA BASE: es la oferta que cumple exactamente con lo solicitado por la administración.
+- OFERTA ALTERNATIVA: es la oferta en la cual se ofrece algo que si bien difiere de lo pedido en la invitación a cotizar, respeta el núcleo de lo solicitado en la invitación a cotizar y por ende, podría ser valorado por la administración.
+- OFERTA EN CONSORCIO: conjunto de documentos que forman las ofertas técnicas y económicas presentadas por el oferente, quien las presenta en asocio con otras personas físicas o jurídicas.
+- OFERTA EN CONJUNTO: se dan cuando dos o más oferentes se unen para participar en un proceso de contratación, pero definiendo por separado las responsabilidades de cada uno en la fase de ejecución, es decir, cada oferente es responsable por su parte, aunque ante la administración ofertan como uno solo.
+- PROVEEDOR: persona física o jurídica que se encuentra debidamente inscrita en el registro de proveedores de la Institución que ofrece un bien o servicio.
+- PROVEEDURÍA: provee a la institución de todos los bienes y servicios que se requieren para su buen funcionamiento, mediante los procesos y lineamientos establecidos en el Reglamento de Contratación Administrativa.
+- REGLAMENTO: conjunto de disposiciones establecidas por JUPEMA y debidamente aprobadas por su Junta Directiva, con el propósito de normar las condiciones bajo las cuales se regirá la contratación de bienes y servicios.
+- REFRENDO DE VERIFICACIÓN INTERNO: es un acto de aprobación, por lo que funge como un requisito de eficacia del contrato administrativo.
+- REGISTRO DE PROVEEDORES: base de datos de potenciales proveedores inscritos que ofrecen bienes y servicios a JUPEMA.
+- SERVICIO: Prestación intangible suministrada por terceros ya sea persona física o jurídica.
+- PRE SOLICITUD DE COMPRA: solicitud de compra de bienes o servicios que realizan los diferentes unidades o departamentos de JUPEMA según sus requerimientos.

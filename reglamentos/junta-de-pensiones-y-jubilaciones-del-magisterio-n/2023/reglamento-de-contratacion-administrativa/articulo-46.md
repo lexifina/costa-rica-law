@@ -1,0 +1,5 @@
+Artículo 46.-
+Oferta en consorcio
+Dos o más participantes podrán ofertar bajo la forma consorciada, a fin de reunir o completar requisitos invitación a cotizar, para lo cual deberá advertirse en la propuesta de manera expresa e indicar el nombre, calidades y representante de cada uno de ellos, con la documentación de respaldo pertinente. En la invitación a cotizar se podrá solicitar que los oferentes actúen bajo una misma representación.
+La administración, tiene la facultad de disponer en la invitación a cotizar que una empresa solo pueda participar en un consorcio para un mismo concurso. Para efecto de los procedimientos será suficiente que una sola de las empresas consorciadas haya sido invitada, para que el grupo pueda participar.
+Además de lo anterior, se podrá exigir en la invitación a cotizar, las condiciones de capacidad y solvencia técnica y financiera para cada uno de los miembros del consorcio, sin perjuicio de que para cumplir ciertos requisitos se admita la sumatoria de elementos. Para esto deberá indicar con toda precisión cuáles requisitos deben ser cumplidos por todos los integrantes y cuáles por el consorcio.

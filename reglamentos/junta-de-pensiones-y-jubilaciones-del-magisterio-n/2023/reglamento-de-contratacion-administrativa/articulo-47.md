@@ -1,0 +1,3 @@
+Artículo 47.-
+Responsabilidad en consorcios.
+Los integrantes del consorcio responderán frente a la administración de manera solidaria, como si fuesen una única contraparte. En caso de adjudicación, la formalización contractual será firmada por todos los consorciados, salvo que se haya conferido poder suficiente a determinada persona, sin perjuicio de que también comparezca una sociedad constituida al efecto, cuando ello haya sido requerido en la invitación a cotizar, las partes así lo hayan solicitado en su oferta o así se haya convenido entre el consorcio y la administración, una vez firme la adjudicación, pero antes de la formalización.
