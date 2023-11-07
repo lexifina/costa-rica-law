@@ -1,0 +1,1 @@
+Artículo 24.-Presupuesto. El presupuesto disponible para el mantenimiento de la infraestructura peatonal y construcción de aceras, en cumplimiento de los artículos 83 y 84 del Código Municipal, se distribuirá según lo determine el diagnóstico del plan de movilidad peatonal, ajustándose a la necesidad real del Cantón y la prioridad de nodos institucionales.

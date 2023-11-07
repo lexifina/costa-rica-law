@@ -1,0 +1,1 @@
+Artículo 2º-Alcance. Las disposiciones de este Reglamento son aplicables a toda persona física o jurídica, propietaria o poseedora por cualquier título, de bienes inmuebles ubicados en el Cantón y a las usuarias de la red vial del Cantón de Vázquez de Coronado.

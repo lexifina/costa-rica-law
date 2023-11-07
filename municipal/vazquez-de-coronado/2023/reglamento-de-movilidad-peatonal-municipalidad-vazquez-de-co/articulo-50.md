@@ -1,0 +1,1 @@
+Artículo 50.-Aviso de Incumplimiento. De previo a la imposición de estas multas, la Municipalidad a través de la oficina de inspección municipal, notificará al propietario o poseedor de los inmuebles correspondientes, su deber de cumplir la obligación respectiva.

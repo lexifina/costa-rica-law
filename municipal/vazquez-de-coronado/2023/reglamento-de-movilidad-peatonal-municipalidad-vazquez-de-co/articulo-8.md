@@ -1,0 +1,1 @@
+Artículo 8º-Eliminación de Obstáculos. La Municipalidad podrá eliminar de manera inmediata, cualquier obstáculo existente en la vía pública peatonal que dificulte o interrumpa de alguna forma la movilidad peatonal, sin que sea necesario cumplir con un procedimiento previo.

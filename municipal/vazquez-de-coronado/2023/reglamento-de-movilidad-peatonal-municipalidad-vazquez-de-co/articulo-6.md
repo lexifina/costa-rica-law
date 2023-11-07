@@ -1,0 +1,1 @@
+Artículo 6º-Ejecución de Obras. La corporación municipal, a través de la UTGV, ejecutará las obras necesarias para asegurar la movilidad peatonal segura y accesible, lo que incluye el mantenimiento, rehabilitación reparación, sustitución y/o construcción de manera directa o por contrato, así como la construcción de obra nueva de acuerdo con su planificación.

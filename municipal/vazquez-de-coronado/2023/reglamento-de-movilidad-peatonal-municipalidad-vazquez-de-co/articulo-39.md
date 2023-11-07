@@ -1,0 +1,3 @@
+CAPÍTULO VII
+Del Proceso Tarifario y su Aprobación
+Artículo 39.-Estudio de Actualización Tarifaria. La Municipalidad, elaborará el estudio técnico-financiero, basado en el costo efectivo incurrido para mantener el servicio. Buscando así; a través de la tasación del servicio, lograr una mejora en la captación de recursos, para poder brindar un servicio más eficiente y oportuno; con el fin de no afectar la prestación de los servicios y las finanzas municipales; ya que tributariamente, todo servicio público debe ser auto sostenible financieramente para no desmejorar la calidad del servicio y por ende la imagen institucional.

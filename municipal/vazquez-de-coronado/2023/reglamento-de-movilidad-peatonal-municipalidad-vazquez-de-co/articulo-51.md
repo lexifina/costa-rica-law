@@ -1,0 +1,1 @@
+Artículo 51.-Recursos. Los recursos que los administrados planteen contra los actos que se dicten en el marco de la aplicación del presente Reglamento, se atenderán y resolverán según lo dispuesto en el Código Municipal y en forma subsidiaria según lo dispuesto en la Ley General de la Administración Pública.

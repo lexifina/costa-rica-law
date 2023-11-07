@@ -1,0 +1,1 @@
+Artículo 9º-Denegatoria de Permisos de Construcción. Todo proyecto inmobiliario debe considerar la inclusión de obras de movilidad peatonal. La municipalidad no otorgará permisos constructivos a los proyectos que no cumplan con este requisito.

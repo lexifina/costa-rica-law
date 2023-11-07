@@ -1,0 +1,1 @@
+Artículo 10.-Convenios. La municipalidad podrá establecer convenios con otros entes públicos y empresas privadas con el objetivo de gestionar efectivamente los principios de la Ley de Movilidad Peatonal N° 9976, en el marco de lo permitido en el Código Municipal.

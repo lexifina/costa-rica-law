@@ -1,0 +1,3 @@
+Artículo 44.-Determinación de Costos. Para la construcción de las aceras (incluye cuando sea necesaria la demolición, colocación de base, colocación de loseta guía, tuberías de PVC, movimiento de medidores) se consideran los siguientes montos:
+A. Construcción de acera a través de la administración: el monto será el establecido según la publicación de cánones vigentes para ese año.
+B. Construcción de aceras a través de empresa constructora: el precio se fijará de acuerdo al monto indicado en el o los ítems utilizados y definidos en la contratación administrativa o licitación destinada para la construcción de las aceras.

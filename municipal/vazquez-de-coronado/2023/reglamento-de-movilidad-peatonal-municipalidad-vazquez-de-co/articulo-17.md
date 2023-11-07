@@ -1,0 +1,1 @@
+Artículo 17.-Rutas Nacionales. En el caso de rutas nacionales las obras quedan sujetas a las disposiciones del Ministerio de Obras Públicas y Transportes (MOPT), debiendo realizar las obras necesarias y de mejora para asegurar el tránsito y la movilidad peatonal. El solicitante deberá realizar las gestiones pertinentes ante ese Ministerio y sus consejos o dependencias.

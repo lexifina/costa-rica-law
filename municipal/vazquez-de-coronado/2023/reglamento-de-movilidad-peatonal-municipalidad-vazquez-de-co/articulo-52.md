@@ -1,0 +1,1 @@
+Artículo 52.-Hipoteca Legal Preferente. La certificación que el Contador Municipal emita de la suma adeudada por incumplir con las obligaciones dadas en el presente reglamento y que no sea cancelada dentro del plazo otorgado, constituirá título ejecutivo con hipoteca legal preferente sobre los respectivos inmuebles.

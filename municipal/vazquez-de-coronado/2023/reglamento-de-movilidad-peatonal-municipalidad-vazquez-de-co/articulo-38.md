@@ -1,0 +1,1 @@
+Artículo 38.-Utilidad para el Desarrollo. Según lo estipulado en el artículo 83, del Código Municipal, se adicionará al costo de los servicios, un 10%, de utilidad que se reinvertirá para el desarrollo y mejoramiento de cada servicio.
