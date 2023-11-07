@@ -1,0 +1,1 @@
+Artículo 33.-Contenido del Informe de recomendación. Terminada la audiencia, el ODP preparará un informe con la recomendación que deberá entregar en un plazo de cinco días hábiles a la PECE, la cual servirá de base para la emisión del acto final.

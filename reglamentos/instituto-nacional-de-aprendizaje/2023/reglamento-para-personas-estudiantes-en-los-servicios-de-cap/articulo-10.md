@@ -1,0 +1,5 @@
+Artículo 10.-De las llegadas tardías justificadas e injustificadas. Se entiende por llegada tardía la presentación de la persona estudiante después del minuto 01 y hasta 15 de haber iniciado cualquiera de las horas programadas de las actividades curriculares o extracurriculares del día.
+Las llegadas tardías se deben justificar por escrito o mediante el uso de TIC. En el caso de la Educación y Formación Técnico Profesional Dual, la justificación deberá presentarse ante la persona docente o ante la persona mentora, según sea el momento en donde la persona estudiante se encuentre de manera presencial.
+La justificación deberá interponerse al día siguiente hábil en que se generó la tardanza, en caso de que la misma no sea aceptada se contabilizará como tardía injustificada.
+Cada cuatro llegadas tardías injustificadas, inferiores a 15 minutos durante el transcurso del módulo o curso equivalen a una ausencia injustificada.
+En la modalidad mixta aplican las tardías en las horas programadas como presenciales de las actividades curriculares o extracurriculares del SCFP.

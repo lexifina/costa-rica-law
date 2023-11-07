@@ -1,0 +1,4 @@
+Artículo 39.-Aplicación de medidas cautelares. Previa solicitud de la parte interesada y mediante resolución motivada, el ODP podrá solicitar a la PECE, en cualquier etapa del procedimiento, que ordene cualquiera de las medidas cautelares siguientes:
+1. Que la persona estudiante investigada se abstenga de perturbar e interferir en el uso y disfrute de las actividades curriculares y extracurriculares de la persona denunciante.
+2. Que la persona estudiante investigada se abstenga de perturbar o acosar testigos e interferir en la tramitación del procedimiento disciplinario.
+En caso de que exista una clara presunción de que la persona investigada continúa con la conducta que se le reprocha, se realizará su traslado a otro SCFP igual al que este cursando sea en el mismo CE u otro, según disponibilidad institucional y otorgándole las condiciones requeridas.

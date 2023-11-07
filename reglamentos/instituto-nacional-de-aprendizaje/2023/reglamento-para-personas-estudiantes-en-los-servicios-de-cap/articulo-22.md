@@ -1,0 +1,1 @@
+Artículo 22.-Nombramiento del ODP. En caso de hallarse mérito para iniciar un procedimiento administrativo disciplinario la PECE, en un plazo de tres días hábiles, nombra mediante una resolución escrita el ODP, al cual le traslada el expediente administrativo. Salvo en casos por denuncias por hostigamiento sexual.
