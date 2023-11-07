@@ -15,3 +15,4 @@ Fijación de salarios mínimos para el sector privado que regirán a partir del 
 | --- | --- | --- |
 | 1 | 2023-01-01 | la propia norma |
 | 2 | 2023-04-24 | Resolución 2 (2023-04-24) |
+| 3 | 2023-11-07 | Resolución 4 (2023-11-07) |
