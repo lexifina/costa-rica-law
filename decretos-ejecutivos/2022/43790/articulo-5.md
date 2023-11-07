@@ -55,8 +55,8 @@ Leche en polvo, en las siguientes presentaciones:
 16. Semidescremada.
 Otras leches:
 17. Leche de cabra (fluida).
-18. Leche Fórmula maternizada en polvo en cualquier presentación para lactantes, según el código de la ENIGH. No(*) se incluye formulas nutritivas o suplementos.”
-(*) (Corregido mediante Fe de Erratas y publicada en La Gaceta N° 128 del 14 de julio de 2023, página N° 2. Anteriormente se indicaba: “ N°”)
+18. Leche Fórmula maternizada en polvo en cualquier presentación para lactantes, según el código de la ENIGH. No(*) se incluye formulas nutritivas o suplementos."
+(*) (Corregido mediante Fe de Erratas y publicada en La Gaceta N° 128 del 14 de julio de 2023, página N° 2. Anteriormente se indicaba: " N°")
 (Así adicionado el subinciso anterior por el artículo 1° del decreto ejecutivo N° 44067 del 8 de junio del 2023)
 IV. HUEVOS Y CARNE DE POLLO (FRESCOS O CONGELADOS, NO SE INCLUYEN SASONADAS, MARINADAS, ADOB ADAS, CONDIMENTADAS, EMPANIZADAS Y/O PREPARADAS).
 1. Alas de pollo.
@@ -253,7 +253,8 @@ XIX. BIENES CUIDADO DEL HOGAR .
 XX. ARTÍCULOS ESCOLARES.
 1. Bolígrafo desechable (aquel que no se le puede remover o cambiar el depósito de tinta)
 2. Borrador o goma para borrar, de caucho o material plástico.
-3. Calzado escolar, cuyo precio máximo al consumidor no sobrepase la suma de ?15.471.00. Las características del calzado escolar serán definidas con base en los lineamientos emitidos por el Ministerio de Educación Pública y el precio máximo al consumidor, será actualizado por la Dirección General de Hacienda, de conformidad con la variación del Índice de Precios al Consumidor (IPC) que determina el Instituto Nacional de Estadística y Censos (INEC). Dicha actualización se realizará y publicará anualmente mediante resolución de la Dirección General de Hacienda y regirá a partir del primero de enero de cada año, para lo cual se considerará la variación anual del Índice de Precios al Consumidor al mes de octubre. La primera actualización regirá a partir del 01 de enero de 2024, considerando la variación anual del IPC entre los meses de octubre 2022 y octubre 2023.
+3. Calzado escolar, cuyo precio máximo al consumidor no sobrepase la suma de quince mil doscientos setenta y tres colones exactos (¢15.273,00)(*). Las características del calzado escolar serán definidas con base en los lineamientos emitidos por el Ministerio de Educación Pública y el precio máximo al consumidor, será actualizado por la Dirección General de Hacienda, de conformidad con la variación del Índice de Precios al Consumidor (IPC) que determina el Instituto Nacional de Estadística y Censos (INEC). Dicha actualización se realizará y publicará anualmente mediante resolución de la Dirección General de Hacienda y regirá a partir del primero de enero de cada año, para lo cual se considerará la variación anual del Índice de Precios al Consumidor al mes de octubre. La primera actualización regirá a partir del 01 de enero de 2024, considerando la variación anual del IPC entre los meses de octubre 2022 y octubre 2023.
+(*) (Así reformado el precio anterior por el artículo 1° de la resolución N° MH-DGH-RES-0045-2023 del 7 de noviembre del 2023)
 4. Compas (con o sin lápiz), reglas planas, transportadores, escuadras; todos inferiores o igual a 30 centímetros; juegos de geometría que incluyan alguno o todos los artículos indicados anteriormente en este ítem.
 5, Crayones
 6. Cuaderno (cualquier tipo).
