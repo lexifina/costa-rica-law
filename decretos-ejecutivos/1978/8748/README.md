@@ -18,3 +18,4 @@ Declara Parque Nacional la Isla del Coco y sus Islotes
 | 3 | 1991-01-09 | Decreto Ejecutivo 20260 (1991-01-09) |
 | 4 | 2001-08-23 | Decreto Ejecutivo 29834 (2001-08-23) |
 | 5 | 2021-12-17 | Decreto Ejecutivo 43368 (2021-12-17) |
+| 6 | 2023-11-08 | Decreto Ejecutivo 44292 (2023-11-08) |
