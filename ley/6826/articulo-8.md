@@ -51,3 +51,5 @@ leasing de estos bienes, en el tanto los titulares sean concesionarios o permisi
 35. La venta, la comercialización y la matanza de animales vivos (semovientes) dentro de la cadena de producción e industria pecuaria.
 36. La compra de energía eléctrica para su distribución.
 (Así adicionado el inciso anterior por el artículo único de la ley para proteger las familias y empresas costarricenses de aumentos en las tarifas de electricidad a causa del IVA, N° 10140 del 14 de marzo de 2022)
+37- La adquisición de bienes y servicios que haga el Organismo de Investigación Judicial (OIJ), para el cumplimiento de sus funciones.
+(Así adicionado el inciso anterior por el artículo único de la ley N° 10422 del 8 de noviembre del 2023, Reforma la Ley 6826 Ley de Impuesto al Valor Agregado (IVA) para exonerar del IVA al Organismo de Investigación Judicial, para fortalecer la represión de los delitos)
