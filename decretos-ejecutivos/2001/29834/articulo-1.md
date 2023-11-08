@@ -15,15 +15,10 @@ Considerando:
 10.-Que de conformidad con el artículo 2º, incisos c), g) y el artículo 11 de la Ley Nº 8000 del 24 de mayo del 2000; el Servicio Nacional de Guardacostas debe garantizar la protección de los recursos marinos existentes en las aguas jurisdiccionales e interiores del Estado Costarricense; así como, colaborar con otras autoridades administrativas encargadas de proteger los recursos naturales.
 11.-Que el artículo 5º de la Constitución Política establece que la Isla del Coco es parte del territorio nacional y por lo tanto, el Parque Nacional Isla del Coco se encuentra dentro de las aguas jurisdiccionales de la Nación; además de, haber sido declarado Sitio de Patrimonio Mundial y Sitio RAMSAR de Importancia Internacional, incluyendo los ecosistemas marinos. Por tanto,
 Decretan:
-Artículo 1º—Amplíese el Área Silvestre Protegida bajo la categoría y denominación “Parque Nacional Isla del Coco” para que comprenda el espacio marino compuesto por un área aproximada de 54 844,172 kilómetros cuadrados, localizado en el Océano Pacífico, en la zona marina delimitada por las siguientes coordenadas geográficas (proyección cartográfica UTM Zona 16, Datum CR-SIRGAS):
-PARQUE NACIONAL ISLA DEL COCO
-| GRADOS DECIMALES
-VERTICE | LONGITUD | LATITUD
-1 | -88,987006 | 6,237014
-2 | -86,367006 | 6,237012
-3 | -86,367007 | 4,529011
-4 | -88,987007 | 4,529014
-(Así reformado por el artículo 1° del decreto ejecutivo N° 43368 del 17 de diciembre de 2021)
+Artículo 1º-Amplíese el Área Silvestre Protegida bajo- la categoría y denominación, "Parque Nacional Isla del Coco II para que comprenda el espacio marino compuesto por un área aproximada de 54844, 172 kilómetros cuadrados, localizado en el Oda no Pacífico, en la zona marina delimitada, por la conversión en grados decimales y en grados y minutos decimales de las coordenadas geográficas siguientes:
+Coordenadas Parque Nacional Isla del Coco
+[imagen]
+(Así reformado por el artículo 1° del decreto ejecutivo N° 44292 del 8 de noviembre del 2023)
 (Nota de Sinalevi: Mediante sesión N°18-2023 del 17 de agosto del 2023, el Consejo Nacional de Áreas de Conservación, (CONAC), conoció el tema: Coordenadas Parque Nacional Isla del Coco y Área Marina de Manejo del Bicentenario, se aprobó el acuerdo que se detalla a continuación:
 ACUERDO 7. A solicitud del Área de Conservación Marina Coco se recibe y se conoce el Acuerdo de Junta Directiva del INCOPESCA, número AJDIP/155-2023 del once de julio de 2023.
 Que en dicho acuerdo se da por recibido y aprobado el oficio del Instituto Geográfico Nacional, DIG-GED-0045-2023, con la conversión de las coordenadas del Parque Nacional Isla del Coco y el Área Marina de Manejo del Bicentenario, publicadas en La Gaceta N°89 del 16 de mayo de 2022, al formato de grados sexagesimales en grados y minutos decimales.

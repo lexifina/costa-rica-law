@@ -15,3 +15,4 @@ Amplía los límites del Parque Nacional Isla del Coco
 | --- | --- | --- |
 | 1 | 2001-10-10 | la propia norma |
 | 2 | 2021-12-17 | Decreto Ejecutivo 43368 (2021-12-17) |
+| 3 | 2023-11-08 | Decreto Ejecutivo 44292 (2023-11-08) |
