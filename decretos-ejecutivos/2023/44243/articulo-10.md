@@ -1,0 +1,1 @@
+Artículo 10º- Sobre el Manual de Aplicación del Baremo. La Secretaría Técnica del SINCA comunicará a las instituciones que forman parte del Sistema Nacional de los Cuidados y. Apoyos para Personas Adultas y Adultas Mayores el respectivo manual de aplicación del Baremo.

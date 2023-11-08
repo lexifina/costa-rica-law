@@ -1,0 +1,1 @@
+Artículo 9°- Sobre la disponibilidad del Baremo. Para consulta de las personas usuarias, las instituciones que forman parte del SINCA, deberán tener a disposición del público al menos una versión física del Baremo que oficializa y emite el presente decreto mediante su anexo.

@@ -1,0 +1,1 @@
+Artículo 5º- Sobre el lugar de aplicación del Baremo. El Baremo deberá ser aplicado preferiblemente en la vivienda de la persona que lo solicite o bien donde esta desarrolle habitualmente su vida cotidiana.
