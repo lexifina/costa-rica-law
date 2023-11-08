@@ -26,31 +26,7 @@ i) Áreas Marinas de Manejo.
 Decretan:
 CREACIÓN DEL ÁREA MARINA DE MANEJO
 MONTES SUBMARINOS
-Artículo 1º—Declárese Área Protegida bajo la categoría y denominación “Área Marina de Manejo del Bicentenario” para que comprenda el espacio marino compuesto por un área aproximada de 106 283,6621 kilómetros cuadrados, localizada en el Océano Pacífico de Costa Rica, en las coordenadas geográficas (proyección cartográfica UTM Zona 16, Datum CR -SIRGAS):
-ÁREA MARINA DE MANEJO DEL BICENTENARIO
-| GRADOS DECIMALES
-VERTICE | LONGITUD | LATITUD
-1 | -89,322000 | 6,571000
-2 | -86,032000 | 6,571000
-3 | -86,034000 | 2,316897
-4 | -86,045329 | 2,313086
-5 | -86,107696 | 2,293462
-6 | -86,170432 | 2,275069
-7 | -86,233513 | 2,257913
-8 | -86,296914 | 2,242002
-9 | -86,360612 | 2,227342
-10 | -86,424582 | 2,213937
-11 | -86,488800 | 2,201793
-12 | -86,553241 | 2,190915
-ÁREA MARINA DE MANEJO DEL BICENTENARIO
-| GRADOS DECIMALES
-VERTICE | LONGITUD | LATITUD
-13 | -86,617881 | 2,181307
-14 | -86,682696 | 2,172973
-15 | -86,747659 | 2,165915
-16 | -86,812747 | 2,160137
-17 | -86,877934 | 2,155641
-18 | -86,943197 | 2,152428
-19 | -87,145123 | 2,150622
-20 | -89,314999 | 3,375295
-(Así reformado por el artículo 3° del decreto ejcutivo N° 43368 del 17 de diciembre de 2021)
+Articulo 1 º- Declárese Área Protegida bajo la categoría y denominación "Área Marina de Manejo del Bicentenario'' para que comprenda el espacio marino compuesto por un área aproximada de 106 283, 6621 kilómetros cuadrados, localizada en el Océano Pacífico de Costa Rica, en la conversión en grados decimales y en grados y minutos decimales de las coordenadas geográficas siguientes:
+Área de manejo del Bicentenario
+[imagen]
+(Así reformado por el artículo 2° del decreto ejcutivo N° 44292 del 8 de noviembre del 2023)

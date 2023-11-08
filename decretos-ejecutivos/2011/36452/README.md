@@ -16,3 +16,4 @@ Crea Área Marina de Manejo Montes Submarinos
 | 1 | 2011-06-23 | la propia norma |
 | 2 | 2011-06-23 | Decreto Ejecutivo 36727 (2011-06-23) |
 | 3 | 2021-12-17 | Decreto Ejecutivo 43368 (2021-12-17) |
+| 4 | 2023-11-08 | Decreto Ejecutivo 44292 (2023-11-08) |
