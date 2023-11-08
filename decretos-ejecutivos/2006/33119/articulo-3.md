@@ -1,1 +1,0 @@
-Artículo 3º—Deróguese el Decreto Ejecutivo Nº 28791-S de 17 de julio del 2000, publicado en La Gaceta Nº 103 de 25 de agosto del 2000, que oficializó para efectos de aplicación obligatoria en establecimientos públicos y privados el Manual de Normas y Procedimientos I-II-III para Manejo de la Patología del Cervix.
