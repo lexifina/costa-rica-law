@@ -1,0 +1,4 @@
+CAPÍTULO V
+Gestión y Funcionamiento
+Artículo 21.-Gestión de servicios y prestaciones. Los beneficios, servicios y prestaciones del SINCA podrán ser objeto de revisión permanente de las instituciones que conforman el sistema, con la finalidad de fiscalizar que se estén otorgando de acuerdo con la normativa aplicable.
+La persona destinataria o excepcionalmente sus garantes, de acuerdo con lo previsto en la ley Nº 9379, o quien le brinde apoyo y/o protección, son las principales obligadas de notificar cualquier cambio en su situación personal que incida en la procedencia o no del beneficio, servicio o prestación que esté recibiendo, sin perjuicio de que las instituciones del SINCA actúen de manera oficiosa en caso de detectar alguna anomalía, y mediante procedimiento administrativo decidan modificar o extinguir la ayuda otorgada.

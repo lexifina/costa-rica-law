@@ -1,0 +1,1 @@
+Artículo 7º-Actuaciones en el contexto del hogar. Las actuaciones en el contexto del hogar para las actividades de la vida diaria son aquellas realizadas de manera cotidiana en el hogar de la persona en situación de dependencia, y están destinadas al apoyo de la autonomía personal y familiar.

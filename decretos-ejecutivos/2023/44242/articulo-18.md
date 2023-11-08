@@ -1,0 +1,2 @@
+Artículo 18.-Definición de idoneidad técnica del servicio o apoyo. Una vez la persona sea ingresada al SINCA, la institución encargada de brindar el beneficio, servicio o prestación solicitada, deberá rendir un informe técnico con la recomendación del servicio idóneo para la atención de las necesidades de la persona solicitante.
+En caso de que el servicio recomendado sea prestado por otra institución, deberá referir el trámite a través del SINIRUBE a la institución pertinente.

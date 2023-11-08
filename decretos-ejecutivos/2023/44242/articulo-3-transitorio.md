@@ -1,0 +1,3 @@
+Transitorio III.-La aplicación del Baremo se realizará de forma manual o la que se estime más oportuna para garantizar la eficiencia de los servicios y prestaciones del SINCA, hasta tanto el SINIRUBE no establezca los módulos oportunos para aplicar este instrumento desde su plataforma. Las instituciones públicas que apliquen el Baremo, deberán trasladar la información y el resultado de los Baremos aplicados al SINIRUBE con la periodicidad y con los formatos que al efecto éste disponga.
+Dado en la Presidencia de la República, a los doce días del mes de setiembre de dos mil veintitrés.
+<span style='font-family:"Arial",sans-serif; </body>

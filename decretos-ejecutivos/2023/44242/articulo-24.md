@@ -1,0 +1,1 @@
+Artículo 24.-Participación económica de las personas usuarias para la modalidad del pago compartido. Las personas usuarias del SINCA podrán disponer de sus recursos económicos para utilizarlos de manera conjunta con los que les transfiera el sistema, con el propósito de acceder a bienes y servicios de mayor calidad que sean necesarios para los cuidados que requieran.

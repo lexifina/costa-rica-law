@@ -1,0 +1,1 @@
+Artículo 12.-Protección de datos personales. El tratamiento de la información de las personas usuarias del SINCA, deberá realizarse con apego absoluto al artículo 24 de la Constitución Política y la Ley de Protección de la Persona frente al tratamiento de sus datos personales, Ley N° 8968 de 7 de julio de 2011.

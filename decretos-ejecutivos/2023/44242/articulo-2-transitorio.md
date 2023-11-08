@@ -1,0 +1,1 @@
+Transitorio II.-La priorización indicada en este Reglamento, a través del SINIRUBE, entrará en vigencia en el momento en que este habilite un módulo de consulta para las instituciones públicas que integran el SINCA.

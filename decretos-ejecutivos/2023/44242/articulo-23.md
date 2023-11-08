@@ -1,0 +1,1 @@
+Artículo 23.-Desembolso de los recursos. Los recursos económicos que asignen las instituciones integrantes del Sistema deberán ser girados a la persona beneficiaria del SINCA mediante transferencia bancaria a una cuenta a su nombre.

@@ -1,0 +1,2 @@
+Artículo 27.-Coordinación del Ministerio de Trabajo y Seguridad Social con la Agencia Nacional de Empleo. El Ministerio de Trabajo y Seguridad Social como presidente de la Secretaría Técnica del Sistema Nacional de Empleo, velará, para que en los trabajos de prospección del mercado laboral que esta realiza, se incluya la información relativa a las personas cuidadoras.
+Asimismo, deberá coordinar con la Agencia Nacional de Empleo del Instituto Nacional de Aprendizaje para que esta mantenga actualizado el perfil laboral de las personas cuidadoras.

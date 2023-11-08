@@ -1,0 +1,5 @@
+Artículo 10.-Deberes de las personas usuarias. Son deberes de las personas usuarias del SINCA, los siguientes;
+a) Suministrar la información necesaria y datos veraces que les sean requeridos por las autoridades competentes para la valoración de su grado de dependencia, de conformidad con la Ley N° 8220, Protección al ciudadano del exceso de requisitos y trámites administrativos, de 4 de marzo de 2002, y las limitaciones de acceso a información que indica la Ley de Protección de la Persona frente al tratamiento de sus datos personales, Ley N° 8968 de 7 de julio de 2011.
+b) Informar sobre sus ingresos y situación patrimonial, así como comunicar todo tipo de ayudas, prestaciones o servicios que reciba para la determinación de la modalidad y cobertura de los servicios del SINCA a los que accederá.
+c) Hacer uso de los servicios y destinar las prestaciones económicas a las finalidades para las que fueron otorgadas.
+Cuando el Baremo sea aplicado por personal de las Organizaciones de Bienestar Social deberá ser requerido el consentimiento informado de la persona previsto en la Ley de Protección de la Persona frente al Tratamiento de sus Datos Personales, Ley Nº 8968.

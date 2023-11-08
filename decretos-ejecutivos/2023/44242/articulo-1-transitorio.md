@@ -1,0 +1,1 @@
+Transitorio I.-La aplicación del Baremo no surtirá efectos sobre las personas que, de previo a la entrada en vigencia del presente decreto ejecutivo, se encontraban percibiendo algún beneficio, ayuda o servicio de las instituciones que conforman el SINCA, salvo que de ésta se produjera un resultado más favorable para ellas.

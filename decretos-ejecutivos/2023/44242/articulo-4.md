@@ -1,0 +1,1 @@
+Artículo 4º-Personas destinatarias. La población destinataria de las acciones y servicios del SINCA, estará conformada por personas adultas, personas adultas mayores que están en situación de dependencia. Asimismo, formarán parte de esta las personas cuidadoras remuneradas o no.

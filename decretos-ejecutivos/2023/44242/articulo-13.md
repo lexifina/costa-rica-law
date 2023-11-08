@@ -1,0 +1,6 @@
+CAPÍTULO IV
+Procedimiento de Admisión a la Oferta de Servicios
+y Prestaciones del SINCA
+Artículo 13.-Elaboración del Baremo de Valoración de la Dependencia y la Intensidad de los Apoyos de Personas Adultas y Adultas Mayores. La Secretaría Técnica del SINCA elaborará del Baremo de Valoración de la Dependencia y la Intensidad de los Apoyos de Personas Adultas y Adultas Mayores en coordinación con la Caja Costarricense de Seguro Social, el Consejo Nacional de Personas con Discapacidad, el Consejo Nacional de la Persona Adulta Mayor y el Colegio de Enfermeras de Costa Rica.
+El Baremo podrá ser oficializado mediante Decreto Ejecutivo y, de acuerdo con lo indicado en los numerales 4, 13 inciso e) y 14 de la Ley Nº 10.192 "Ley de Creación del Sistema Nacional de Cuidados y Apoyos para Personas Adultas y Adultas Mayores en Situación de Dependencia" deberá ser el instrumento que determine los niveles de dependencia de las personas que soliciten acceder a los servicios del SINCA y permita adecuar los servicios de cuidados y la intensidad de los apoyos requeridos de la población objetivo.
+En caso de presentarse desacuerdo sobre la determinación del Baremo, la Presidencia Ejecutiva del Instituto Mixto de Ayuda Social lo comunicará al Poder Ejecutivo, quien resolverá de acuerdo con el procedimiento previsto en la Ley General de la Administración Pública.
