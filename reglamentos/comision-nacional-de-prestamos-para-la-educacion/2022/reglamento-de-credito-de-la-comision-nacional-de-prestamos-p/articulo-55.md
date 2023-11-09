@@ -67,6 +67,8 @@ xvii. Certificación inmobiliaria si la propiedad está en zona catastral, sin i
 Consideraciones adicionales:
 Si el inmueble no tiene salida a calle pública debe constituirse la servidumbre correspondiente.
 Si en la propiedad hay un menor de edad como dueño o esté afectada a favor de un menor de edad, deben realizar las diligencias de utilidad y necesidad ante el Juzgado de Familia correspondiente.
+xviii. Constancia de pago de cuotas condominales al día, cuando aplique.
+(Así adicionado el inciso anterior mediante sesión N° 23-2023 del 09 de noviembre de 2023)
 g. Del título valor
 i. Fotocopia del documento de identidad legible y vigente por ambos lados del dueño del certificado a plazo.
 ii. Fotocopia del certificado de depósito a plazo (título valor) que será otorgado en garantía (el certificado de depósito a plazo original deberá aportarse el día de la formalización del contrato de estudios). El certificado de depósito a plazo debe ser materializado, transferible y en moneda de colones o dólares.
