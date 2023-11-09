@@ -14,3 +14,4 @@ Reforma Arancel de honorarios por servicios profesionales de abogacía y notaria
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-10-19 | la propia norma |
+| 2 | 2023-11-09 | SINALEVI (sin norma nombrada) |

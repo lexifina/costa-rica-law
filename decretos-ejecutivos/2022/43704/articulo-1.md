@@ -1,4 +1,6 @@
+(Suspendida)
 N° 43704-JP-MEIC
+(Nota de Sinalevi: Mediante resolución N° 5294 del 9 de noviembre de 2023, el Tribunal Contencioso Administrativo y Civil de Hacienda, Segundo Circuito Judicial, San José, Goicoechea, ordenó suspender los efectos del presente decreto ejecutivo y se ordena al Presidente y Ministro del ramo, que se abstengan de perturbar el ejercicio profesional de los promoventes hasta tanto se resuelva en sentencia con el proceso de conocimiento.)
 EL PRESIDENTE DE LA REPÚBLICA,
 Y LOS MINISTROS DE JUSTICIA Y PAZ,
 Y DE ECONOMÍA, INDUSTRIA Y COMERCIO
@@ -43,9 +45,9 @@ l) Tarifa de referencia: La establecida en el artículo 16 de este mismo arancel
 "Artículo 7º-Retribución de los servicios mediante pago de hora profesional. Los honorarios profesionales podrán ser cancelados de conformidad con los montos de referencia y uso discrecional establecidos en el presente Arancel. Se podrá convenir con los clientes la retribución de honorarios mediante el pago de las horas profesionales invertidas en las labores que les corresponda realizar. El monto de referencia a cobrar por hora profesional podrá ser de noventa mil setecientos cincuenta colones".
 "Artículo 11.-Procesos administrativos no judiciales y labores diversas: Los trámites en sede administrativa no regulados expresamente en este Arancel establecido en el artículo 16, podrán devengar honorarios del cincuenta por ciento (50%) de la Tarifa General, en relación con el monto estimado del asunto en discusión. En los casos no estimables el monto de referencia de los honorarios podrá ser de doscientos cuarenta y dos mil colones".
 "Artículo 12.-Asuntos migratorios: Salvo que el profesional y su cliente hayan convenido honorarios por hora profesional, podrán aplicarse las siguientes tarifas de referencia y de uso discrecional por la atención y tramitación de los siguientes asuntos administrativos:
-(.)".
+(...)".
 "Artículo 13.-Asuntos de Propiedad Industrial, Derechos de Autor y Conexos. Por inscripciones en el Registro de la Propiedad Industrial y Derechos de Autor y Conexos, se establecen las siguientes tarifas de referencia y de uso discrecional:
-(.)
+(...)
 Las oposiciones y apelaciones podrán devengar honorarios, en relación a lo establecido en el artículo 11 de éste capítulo".
 "Artículo 14.-Número de identificación de entidad no sujeta a inscripción en el Registro Nacional. Por las diligencias para la obtención del número de identificación de entidades no sujetas a inscripción en el Registro Nacional, podrá cobrarse un honorario de sesenta mil quinientos colones".
 "Artículo 15.-Licitaciones y contrataciones administrativas. Para la atención de licitaciones y contrataciones administrativas regirá el convenio escrito entre el cliente y el profesional, en el cual necesariamente deberá señalarse el monto de honorarios y su forma de pago, pudiendo tener como referencia el monto de trescientos dos mil quinientos colones, independientemente de la etapa en que se encuentre el proceso".
