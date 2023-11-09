@@ -1,1 +1,0 @@
-Transitorio único. Para aquellos proyectos recibidos previos a la entrada en vigencia del presente Decreto Ejecutivo, se tramitarán durante todo su proceso bajo la normativa anterior, incluyendo la liquidación de los recursos.
