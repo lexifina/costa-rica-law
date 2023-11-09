@@ -14,3 +14,4 @@ Reglamento que regula la aplicación de la Ley N°10.232 denominada "Ley Autoriz
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-12-14 | la propia norma |
+| 2 | 2023-11-09 | Reglamento 9383 (2023-11-09) |
