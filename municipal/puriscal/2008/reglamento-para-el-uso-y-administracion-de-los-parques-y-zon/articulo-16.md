@@ -1,1 +1,0 @@
-Artículo 16.—Plazo de la tarifa y forma de pago. La tarifa o tasa por el servicio de mantenimiento de parques y zonas verdes será anual y se cobrará por trimestres vencidos. El cobro se efectuará en el mismo recibo con el que se cancelan las demás obligaciones tributarias del contribuyente. La tarifa aumentará en un 10% anualmente.

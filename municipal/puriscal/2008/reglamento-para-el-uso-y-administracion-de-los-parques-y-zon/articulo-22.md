@@ -1,1 +1,0 @@
-Artículo 22.—Vehículos dentro de parques. No se permite el ingreso de vehículos al parque sin la autorización del Alcalde Municipal; Se prohíbe el uso de, motos, bicicletas, patinetas y patines dentro de las instalaciones del parque.
