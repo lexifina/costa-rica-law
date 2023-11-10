@@ -1,0 +1,1 @@
+Artículo 21.-De la forma de comunicarse. Dentro del edificio o durante las actividades, se solicita utilizar una comunicación asertiva y respetuosa (tono de voz adecuado, lenguaje correcto y no soez, a guardar su turno para intervenir en la interacción).

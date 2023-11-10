@@ -1,0 +1,3 @@
+Artículo 9º-Gestión Educativa. Ofrece la Gestión educativa procesos sustantivos en el ámbito de la educación formal y no formal y bajo la modalidad de convenios interinstitucionales con:
+a) Instituciones de formación públicas y privadas para el desarrollo de programas de fortalecimiento de competencias que permitan oportunidades de ingreso al mundo laboral.
+b) También se incluyen en este ámbito la colaboración de personas profesionales voluntarias que ofrecen y desarrollan cursos, talleres, asesorías u otros para la promoción y fortalecimiento de habilidades que amplíen las posibilidades de acceso a la vida laboral y económica; así como con la colaboración de practicantes y estudiantes en pasantías, trabajo comunal universitario u otros.

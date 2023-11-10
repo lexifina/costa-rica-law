@@ -1,0 +1,1 @@
+Artículo 39.-De las modificaciones a este Reglamento. La Municipalidad, se reserva la facultad de modificar la presente normativa en cualquier momento, de acuerdo con lo que considere más adecuado para el funcionamiento de esta institución.

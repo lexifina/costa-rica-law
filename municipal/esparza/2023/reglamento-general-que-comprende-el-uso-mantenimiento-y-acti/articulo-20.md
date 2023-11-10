@@ -1,0 +1,1 @@
+Artículo 20.-De la vestimenta. En cuanto a la vestimenta para ingresar a las instalaciones a las diferentes actividades o cursos (a las que sean convocadas las personas) debe ser acorde con la propuesta institucional, guardando la buena imagen y el decoro ante las demás personas y respeto a la organización.

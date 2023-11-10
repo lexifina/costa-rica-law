@@ -1,0 +1,1 @@
+Artículo 24.-De la disposición de residuos sólidos dentro de la Casa. En el edificio se encuentran tres recipientes debidamente rotulados para el manejo responsable de desechos sólidos y valorizables. Deben utilizarse de manera correcta.

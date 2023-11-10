@@ -1,0 +1,1 @@
+Artículo 3º-Obligatoriedad. Las normas contenidas en este Reglamento son de aplicación obligatoria para todas las personas que asisten, colaboran o utilizan los servicios de la Casa Municipal de la Mujer. En ninguna circunstancia se podrá alegar su desconocimiento o justificar su inobservancia.

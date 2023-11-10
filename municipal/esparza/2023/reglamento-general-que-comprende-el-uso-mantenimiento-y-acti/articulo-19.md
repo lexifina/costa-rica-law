@@ -1,0 +1,1 @@
+Artículo 19.-De los acompañantes. La asistencia a las actividades es únicamente para las personas convocadas, sin incluir familiares o amistades, debido a que el edificio no cuenta con espacios destinados a salas de espera ni personal para la atención de visitas o cuido.

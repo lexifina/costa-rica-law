@@ -1,0 +1,1 @@
+Artículo 37.-Incumplimiento. Ante el incumplimiento de este reglamento y/o del Código de Ética del Colegio Profesional según corresponda, se prescindirá de la participación de la o las personas involucradas en el proyecto Casa Municipal de la Mujer.

@@ -1,0 +1,1 @@
+Artículo 26.-Del uso de dispositivos móviles dentro de la Casa. Con respecto a la portación y uso de dispositivos móviles (celulares, tablets, laptop, entre otros), se solicita utilizarlos en un volumen que no interfiera con la interacción en los diferentes espacios. De preferencia utilizar audífonos para reproducir audios, vídeos y otros.

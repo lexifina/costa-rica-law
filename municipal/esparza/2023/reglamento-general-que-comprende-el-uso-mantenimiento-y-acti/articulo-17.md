@@ -1,0 +1,2 @@
+Artículo 17.-Horario de la Casa. El horario de atención para la persona usuaria será de 8 a 4 de lunes a viernes. Se excluyen los días feriados de ley y aquellos que sean declarados asuetos de acuerdo con la normativa correspondiente.
+La casa podrá ser habilitada para los días de lunes a viernes después de las 4 p.m. sábados domingos y feriados para realizar actividades sociales, educativas, recreativas, deportivas culturales y de salud, para beneficio de la operación y mantenimiento de la Casa.

@@ -1,0 +1,1 @@
+Artículo 27.-Forma de comportarse. En aras de mantener la armonía dentro de la Casa, se le solicita a las personas asistentes no sostener discusiones sobre temas sensibles como deportes, religión o política.

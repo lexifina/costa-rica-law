@@ -1,0 +1,1 @@
+Artículo 28.-Prohibición fumar. La Casa Municipal de la Mujer es un área donde por razones de orden público, está prohibido consumir o mantener encendidos productos de tabaco y sus derivados y la exposición al humo de tabaco según Ley N.º 9028 Ley General de Tabaco y sus efectos nocivos en la salud.

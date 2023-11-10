@@ -1,0 +1,1 @@
+Artículo 23.-De los Servicios Sanitarios. Los servicios sanitarios son de uso exclusivo para las actividades propias de la Casa Municipal de la Mujer y deben permanecer limpios, por tanto, las personas usuarias deben colaborar con su cuido y aseo.

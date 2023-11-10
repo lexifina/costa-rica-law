@@ -1,0 +1,1 @@
+Artículo 38.-Restricción de ingreso. En caso de que la persona beneficiaria no cumpla con las obligaciones y responsabilidades establecidas con respecto a la presente normativa, le será restringido el ingreso y uso de las instalaciones y demás actividades que se realicen en la Casa.

@@ -1,0 +1,1 @@
+Artículo 25.-Del ingreso de animales. El ingreso a la planta física de perros guías o de asistencia que ayudan a las personas no videntes o que posean alguna situación de discapacidad en su rutina diaria está permitido. No se permite el ingreso de otros animales conocidos como mascotas.
