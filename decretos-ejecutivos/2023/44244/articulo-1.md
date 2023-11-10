@@ -1,0 +1,224 @@
+No 44244 - MAG
+EL PRESIDENTE DE LA REPÚBLICA,
+Y EL MINISTRO DE AGRICULTURA Y GANADERÍA
+Con fundamento en las atribuciones y facultades conferidas en los artículos 50, 140 incisos 3) y 18) y 146 de la Constitución Política; los artículos 27 inciso 1) y artículo 28 inciso 2) acápite b) de la Ley General de la Administración Pública, No 6227 del 2 de mayo de 1978; el artículo 8 inciso g) del Convenio sobre Diversidad Biológica y sus Anexos, aprobado mediante la Ley No 7416 del 30 de junio de 1994; el artículo 2 incisos 1) y 2) del Protocolo de Cartagena sobre Seguridad de la Biotecnología del Convenio sobre la Diversidad Biológica, aprobado mediante la Ley No 8537 del 23 de agosto de 2006; los artículos, 45 y 46 de la Ley de Biodiversidad No 7788 del 30 de abril de 1998; y los artículos 4, 5 inciso b y del 40 al 42 de la Ley de Protección Fitosanitaria No 7664 del 08 de abril de 1997 y la Ley de Protección al Ciudadano del Exceso de Requisitos y Trámites Administrativos, Ley No 8220 del 4 de marzo de 2002.
+CONSIDERANDO
+I. Que el Convenio sobre la Diversidad Biológica, aprobado mediante la Ley No 7416, publicada en La Gaceta No 143 del 28 de julio de 1994, señala en su artículo 8 inciso g, la necesidad de establecer o mantener medios para regular, administrar o controlar los riesgos derivados de la utilización y la liberación de organismos vivos modificados, como resultado de la biotecnología que es probable tengan repercusiones ambientales adversas que puedan afectar a la conservación y a la utilización sostenible de la diversidad biológica.
+II. Que el Protocolo de Cartagena sobre Seguridad de la Biotecnología del Convenio sobre la Diversidad Biológica, en adelante Protocolo de Cartagena, aprobado mediante la Ley No 8537 del 23 de agosto de 2006, publicado en La Gaceta No 227 del 27 de noviembre de 2006, incorpora dentro de sus definiciones el término "organismo vivo modificado", por lo que, para efectos del presente Decreto y en respeto al principio constitucional de jerarquía de las normas, y al ser la Ley No 8537 publicada de forma posterior a otras leyes que regulan los organismos vivos modificados de uso agrícola, se empleará este término por ser más amplio y comprensivo que los términos "organismo alterado o manipulado", "organismo transgénico", "material transgénico", o "producto manipulado o transgénico".
+III. Que el Servicio Fitosanitario del Estado, como ente encargado de las regulaciones y control de las actividades relacionadas con los organismos vivos modificados para uso agrícola, considera necesario actualizar las definiciones, objetivos y alcances de la normativa contenida en el Decreto Ejecutivo No 26921, publicado en la Gaceta No 98 del 22 de mayo de 1998, conforme a los avances de la ciencia y la tecnología, el Protocolo de Cartagena y la estructura organizativa vigente del Servicio Fitosanitario del Estado.
+IV. Que el avance de la ciencia y la tecnología permite el desarrollo de organismos vivos para uso en la agricultura mediante las nuevas técnicas de mejoramiento conocidas como técnicas de mejoramiento de precisión, biotecnología de precisión, edición del genoma, o técnicas modernas de mejoramiento genético, las cuales se basan en un conjunto de usos innovadores de herramientas de biología molecular y enfoques que difieren de la estrategia de ingeniería genética basada en la inserción estable en el genoma de ADN recombinante.
+V. Que las características de los organismos vivos para uso agrícola derivados de las nuevas técnicas de mejoramiento son de una heterogeneidad tal que demandan un análisis científico previo caso por caso a los fines de determinar si los mismos se encuentran comprendidos en las regulaciones aplicables a los organismos vivos modificados o, por el contrario, no se encuentran alcanzados por las mismas.
+VI. Que la legislación aplicable debe sustentarse en principios que se ajusten al progreso científico y tecnológico, de esta forma se evita aplicar diferentes niveles de supervisión regulatoria a organismos vivos para uso agrícola similares con niveles similares de riesgos.
+VII. Que, conforme al artículo N° 4 de la Ley de Protección al Ciudadano del Exceso de Trámites y Requisitos Administrativos, Ley N° 8220 del 04 de marzo de 2002, todo trámite o requisitos que el administrado debe cumplir deben constar en una ley, un decreto o un reglamento y estar publicado en el diario oficial La Gaceta.
+VIII. Que de conformidad con el artículo 361 de la Ley General de la Administración Pública, Ley No 6227 del 02 de mayo de 1978, se realizó la consulta pública de esta propuesta de Decreto Ejecutivo del 30 de noviembre de 2022 al 10 de diciembre de 2022, y producto de esta, todas las observaciones fueron atendidas e incorporadas en la misma.
+IX. Que de conformidad con lo establecido en el artículo 12 bis del Decreto Ejecutivo No 37045 del 22 de febrero de 2012 y su reforma "Reglamento a la Ley de Protección al Ciudadano del Exceso de Trámites y Requisitos Administrativos", esta regulación cumple con los principios de mejora regulatoria, de acuerdo con el informe No DMR-DAR-INF-017-2023 emitido por la Dirección de Mejora Regulatoria y Reglamentación Técnica del Ministerio de Economía, Industria y Comercio.
+POR TANTO,
+DECRETAN:
+REFORMA DE LOS ARTÍCULOS 2, 117, 118, 119, 120, 121, 122, 123, 124, 125, 126,
+127, 128, 129, 130, 131, 133 Y 134, EL NOMBRE DEL TÍTULO VIII, ADICIÓN DE
+LOS ARTÍCULOS 2 BIS, 118 BIS, 119 BIS Y ANEXOS DEL REGLAMENTO A LA
+LEY DE PROTECCIÓN FITOSANITARIA, DECRETO EJECUTIVO NO 26921-
+MAG, DEL 20 DE MARZO DE 1998.
+Artículo 1. -Refórmese el artículo 2 del Decreto Ejecutivo No 26921-MAG: Reglamento a la Ley de Protección Fitosanitaria, del 20 de marzo de 1998, para que se lea de la siguiente manera:
+"Artículo 2- De las definiciones. Para los efectos del presente reglamento, así como de los términos empleados en la Ley de Protección Fitosanitaria, se entenderá por:
+- Acciones fitosanitarias: Véase Medidas Fitosanitarias.
+- Acta: Documento mediante el cual se dan recomendaciones de carácter técnico, o bien se da constancia del cumplimiento o no de recomendaciones o bien la ejecución de medidas fitosanitarias de acuerdo con la Ley de Protección Fitosanitaria y sus reglamentos complementarios.
+- Acreditación: Es el procedimiento por el cual la Administración Pública autoriza a personas físicas o jurídicas, públicas o privadas, así como laboratorios, que cumplen con los requisitos técnicos y de idoneidad material y profesional exigidos en las normas vigentes, para ejecutar tareas específicas o proveer servicios específicos en el soporte total o parcial del cumplimiento de las obligaciones oficiales.
+- Agencia certificadora de agricultura orgánica: Persona física o jurídica debidamente autorizada y acreditada por la Dirección, que, en el cumplimiento del presente reglamento, expide o extiende el certificado de producción orgánica.
+- Agente de Aduana: Profesional auxiliar de la función pública autorizado por el Ministerio de Hacienda para actuar, en su carácter de persona natural, con las condiciones y requisitos establecidos en el Código Aduanero Uniforme Centroamericano y la Ley General de Aduanas, en la prestación habitual de servicios a terceros, en los trámites, regímenes, y las operaciones aduaneras.
+- Agente de Control Biológico: Enemigo natural, antagonista o competidor u otra entidad biótica capaz de reproducirse, utilizados para el control de plagas.
+- Agricultura Orgánica, Ecológica o Natural: Todo sistema de producción sostenible que, prescindiendo del uso de insumos de síntesis química artificial, brinde productos sanos y competitivos para el productor, promoviendo la conservación y el mejoramiento del ambiente y la biodiversidad del ecosistema. La agricultura ecológica o biológica es sinónimo de agricultura orgánica.
+- Agricultura Sostenible: Sistema productivo social, económico y ambientalmente racional que procura la mayor eficiencia, para satisfacer las necesidades de las generaciones presentes y futuras.
+- Análisis biológico: Ensayos que se realizan para determinar el contenido de sustancias biológicas.
+- Análisis de identidad y calidad: Análisis para caracterizar el tipo de sustancias químicas, biológicas, bioquímicas y afines de uso en la agricultura, y sus propiedades físicas, químicas y biológicas en la formulación.
+- Análisis de Riesgo de Plagas: Evaluación del riesgo de plagas y manejo del riesgo de plagas.
+- Análisis de residuos: El procedimiento analítico para determinar la presencia de residuos de plaguicidas en productos para el consumo humano o animal. Queda excluido de esta categoría todo producto de origen vegetal que por su naturaleza no pueda ser consumido por humanos ni animales en su estado natural y por lo tanto ser de uso exclusivo para procesos industriales que degraden eventuales residuos de plaguicidas.
+- Apilado: Organismo vivo modificado para uso agrícola generado por cruzamiento sexual de dos o más parentales que son eventos de transformación individuales o eventos de transformación previamente apilados.
+- Aplicaciones certificadas: Son todos aquellos tratamientos con plaguicidas de uso restringido, que son aplicados o supervisados por un aplicador certificado en el control de plagas y enfermedades agrícolas.
+- Aplicador certificado: Persona física o jurídica calificada para aplicar o supervisar tratamientos con plaguicidas de uso restringido, el cual debe estar autorizado por la Dirección.
+- Área: Un país determinado, parte de un país, países completos o partes de diversos países, que se han definido oficialmente.
+- Área de Análisis Riesgo Plagas: Un área en relación con la cual se realiza un análisis de riesgo de plagas.
+- Área en peligro: Un área en donde los factores ecológicos favorecen el establecimiento de una plaga cuya presencia dentro del área daría como resultado importantes pérdidas económicas.
+- Área libre de plagas: Un área en donde no está presente una plaga específica, tal como haya sido demostrado con evidencia científica y dentro de la cual, cuando sea apropiado, dicha condición se mantenga oficialmente.
+- Armonización: Establecimiento, reconocimiento y aplicación por parte de varios países, de medidas fitosanitarias basadas en normas comunes.
+- Autoridad Fitosanitaria o Inspector: Persona autorizada o acreditada por la Dirección, encargada de aplicar la regulación fitosanitaria vigente.
+- Autorización Fitosanitaria de Tránsito: Documento oficial que se emite para el ingreso en tránsito de vegetales, sustancias químicas, biológicas, bioquímicas y afines, agentes de control biológico y otros tipos de organismos para uso en la agricultura, por el territorio nacional, sujeto al cumplimiento de los requisitos fitosanitarios establecidos.
+- Autorización previa: Documento oficial que contiene los requisitos fitosanitarios para la importación de vegetales, agentes de control biológico y otros tipos de organismos para uso en la agricultura.
+- Banco de Germoplasma: Material vegetal con similitud genética usado para investigación, propagación o colección de plantas.
+- Base de datos de Exportación: Archivo, fichero, registro u otro conjunto estructurado de datos técnicos y personales que se utilizan para conformar la inscripción y registro necesario para poder realizar el control fitosanitario de los aspectos relacionados con los envíos de plantas y productos vegetales para exportación.
+- Bioseguridad de los organismos vivos modificados: Las normas, medidas y acciones requeridas para garantizar un nivel adecuado de protección en la transferencia, manipulación y utilización segura de los organismos vivos modificados resultantes de la biotecnología moderna que puedan tener efectos adversos para la conservación y la utilización sostenible de la diversidad biológica, teniendo también en cuenta los riesgos para la salud humana. Comprende las fases: uso confinado, liberación intencional al ambiente y comercialización de los productos.
+- Biotecnología moderna: Se entiende la aplicación de:
+1. Técnicas in vitro de ácido nucleico, incluidos el ácido desoxirribonucleico recombinante y la inyección directa de ácido nucleico en células u orgánulos, o
+2. La fusión de células más allá de la familia taxonómica, que superan las barreras fisiológicas naturales de la reproducción o de la recombinación y que no son técnicas utilizadas en la reproducción y selección tradicional.
+- Centro de Intercambio de Información sobre Seguridad de la Biotecnología: Es el mecanismo establecido en el Protocolo de Cartagena sobre Seguridad de la Biotecnología del Convenio sobre la Diversidad Biológica que tiene como fin facilitar el intercambio de información y experiencia científica, técnica, ambiental y jurídica en relación con los OVM.
+Se constituye como un medio para difundir información sobre biotecnología moderna, y ayudar a las partes en la aplicación del Protocolo de Cartagena sobre Seguridad de la Biotecnología del Convenio sobre la Diversidad Biológica y lo relacionado.
+- Certificación Fitosanitaria: Uso de procedimientos fitosanitarios conducentes a la expedición de un Certificado Fitosanitario.
+- Certificación de Tratamiento: Verificación y supervisión oficial de un tratamiento a las plantas o productos vegetales para su exportación.
+- Certificación "In situ": Inspección de plantas o productos vegetales de exportación, en su lugar de producción y/o empaque.
+- Certificado: Documento oficial que da fe de que el producto que ampara, ha cumplido con las normativas y requisitos del presente reglamento.
+- Certificado de liberación al ambiente, uso confinado y comercialización: Documento resultado de la evaluación de riesgos para un evento de transformación específico, otorgado a una persona física o jurídica que desee importar, movilizar, usar en confinamiento, liberar al ambiente o comercializar los OVM de uso agrícola, en cumplimiento de los requisitos establecidos por el Servicio Fitosanitario del Estado, en el cual se incluyen las medidas de bioseguridad pertinentes.
+- Certificado Fitosanitario: Certificado diseñado según los modelos de la Convención Internacional de Protección Fitosanitaria.
+- Certificado Fitosanitario de Operación: Documento oficial otorgado a toda persona física o jurídica que se dedica a la producción, procesamiento, empaque y/o envío de plantas y productos vegetales, en cumplimiento de los requisitos fitosanitarios establecidos.
+- Certificado Fitosanitario de Reexportación: Documento oficial que se emite de acuerdo con la Convección Internacional de Protección Fitosanitaria para certificar el estado fitosanitario de las plantas y productos vegetales de origen extranjero que serán enviadas a otro país.
+- Certificado Orgánico: Documento que da fe que el producto orgánico que ampara, ha cumplido en todas sus etapas con las normativas y requisitos establecidos en la legislación vigente y sus reglamentos.
+- Ciclo biológico: Diferentes etapas o estadios por los cuales pasa un organismo durante el desarrollo de su vida.
+- Cierre Temporal: Inhabilitación de la operación por un período, de un establecimiento donde se empaquen plantas o productos vegetales para la exportación, o donde se expendan sustancias químicas, biológicas, bioquímicas o afines, y equipos de aplicación de éstas para uso en la agricultura.
+- Colección de referencia: Recopilación de especímenes de organismos debidamente clasificados que causan daños potenciales a los vegetales, agentes de control biológico y otros organismos usados en la agricultura, y que son usados como parámetro de comparación.
+- Combate de plaga: Ver Control de plagas.
+- Combinación nueva de material genético: Inserción estable en el genoma, de uno o más genes o secuencias de ADN, que codifique ADN de doble hebra, ARN, proteínas, péptidos de señalización o secuencias regulatorias, que no podría ser obtenida por mejoramiento convencional.
+- Comisión Técnica Nacional de Bioseguridad: Órgano asesor del Servicio Fitosanitario del Estado, especializado en ingeniería genética y bioseguridad de los organismos vivos modificados, el cual está integrado por un cuerpo colegiado de especialistas en materias relacionadas.
+- Control Autocida: Método de lucha en el cual, para combatir una plaga de insectos, se emplean insectos estériles de su misma especie.
+- Control Biológico: Estrategia de control contra las plagas en la que se utilizan enemigos naturales, antagonistas o competidores vivos u otras entidades capaces de reproducirse.
+- Control Cuarentena: Ver Control de Plagas.
+- Control de Plagas: La supresión, contención o erradicación de una población de plagas.
+- Control Fitosanitario: Inspección y comprobación del estado fitosanitario de las plantas y productos vegetales realizada en fincas, viveros, empacadoras y puntos de salida.
+- Cuarentena: Confinamiento oficial de plantas o productos vegetales sometidos a reglamentaciones fitosanitarias para observación e investigación o para inspección, pruebas y/o tratamientos adicionales.
+- Cuarentenal: Perteneciente o relativo a la cuarentena.
+- Cuarentena Externa: Ver Cuarentena Vegetal.
+- Cuarentena Interna: Conjunto de medidas fitosanitarias, de disposiciones legales y administrativas dictadas y/o puestas en ejecución con el objeto de que una plaga vegetal exótica y/o establecida, se pueda erradicar o mantener confinada en un área, retardar su diseminación o mantener áreas libres de ellas dentro del país.
+- Cuarentena Vegetal: Toda actividad destinada a prevenir la introducción y/o propagación de plagas de cuarentena o para asegurar su control oficial.
+- Cuarentena Posentrada: Cuarentena aplicada a un envío después de su entrada al país.
+- Declaración Adicional: Declaración requerida por el país importador que se ha de incorporar al certificado fitosanitario y que contiene información adicional específica referente a las condiciones fitosanitarias de un envío.
+- Declaración Aduanera: Documento oficial de la Dirección General de Aduanas donde se consigna las mercancías, clasificadas y descritas conforme al Arancel General de Aduanas.
+- Declaración oficial de plagas: Acto exclusivo de la Dirección de Servicios de Protección Fitosanitaria mediante el cual se oficializará la presencia de una plaga en el país.
+- Declaratoria de Emergencia Fitosanitaria: Es la declaración mediante decreto ejecutivo, emitida por el Ministerio para el control de una plaga de importancia económica y/o cuarentenaria.
+- Decomiso: Consiste en la pérdida de la propiedad que experimenta el dueño, en favor del Estado, de los bienes que han sido causa o instrumento de una infracción, en los casos señalados en la Ley y sus reglamentos.
+- Desecho de productos: Residuos de origen vegetal y otras materias contaminantes localizados o detectados contaminando los productos, elementos y medios de transporte
+- Destrucción: Eliminación total o parcial de vegetales, agentes de control biológico y otros tipos de organismos, sustancias químicas, biológicas o afines para uso en la agricultura, así como sus empaques, envases y cualquier mercadería peligrosa para los vegetales, el ambiente y la salud humana, mediante la utilización de procedimientos técnicamente aprobados.
+- Detección de Plagas: Ver Encuesta.
+- Diagnosticar: Es el análisis del conjunto de signos físicos, clínicas y epidemiológicos observados en las plantas, sus productos o subproductos que permiten descartar o confirmar la presencia de una plaga.
+- Diagnóstico de plagas: Operación técnica para determinar, exacta y cuidadosamente por medio de un análisis, las características propias de una plaga.
+- Director: Máxima autoridad técnico y administrativo de la Dirección.
+- Dirección: Dirección de Servicios de Protección Fitosanitaria del Ministerio de Agricultura y Ganadería. Dependencia del Ministerio encargada de velar por la correcta ejecución a nivel institucional de los objetivos y competencias que la Ley de Protección de Fitosanitaria, su Reglamento y demás Reglamentos Técnicos le confiere al mismo en materia de protección fitosanitaria.
+- Diseminación: Ver Propagación.
+- Diversidad biológica: Se entiende como la variabilidad de organismos vivos en cualquier fuente incluidos, entre otros los ecosistemas terrestres y marinos, así como otros ecosistemas acuáticos y los complejos ecológicos de los que forman parte, comprende la diversidad dentro de cada especie, entre las especies y de los ecosistemas.
+- Edición del Genoma: Técnicas de biotecnología moderna de precisión que permiten producir cambios dirigidos, permanentes y heredables en un lugar específico del genoma, mediados por los sistemas de reparación del ADN en la célula, que no implican la inserción permanente y heredable de una combinación nueva de material genético en el genoma del organismo.
+- Elementos de transporte: Envoltura, empaque, paleta y otros dispositivos protectores de las plantas, y productos vegetales y mercancías que previenen daños posibles durante su manipulación, comercio, almacenaje y transporte.
+- Empacadora: Lugar destinado al empaque y tratamiento de plantas y productos vegetales y/o sus partes para la exportación debidamente autorizado, mediante el Certificado Fitosanitario de Operación.
+- Empaque: Medios en los que las plantas o productos vegetales y otras mercaderías son dispuestas para el transporte, comercialización o almacenamiento. Incluye los medios que sirven para acondicionar, envolver y rellenar los productos y sus empaques.
+- Encuesta: Procedimiento metódico para determinar las características de una población de plaga o para determinar las especies presentes dentro de un área.
+- Evento de edición génica: Inserción de un cambio dirigido, permanente y heredable en un lugar específico del genoma como resultado de aplicar una técnica de edición del genoma.
+- Evento de transformación: Aplicación de la biotecnología moderna para introducir en un organismo, en forma estable y conjunta, una o más combinaciones nuevas de material genético.
+- Envío: Cantidad de plantas, productos vegetales, agentes de control biológico, otros organismos de uso agrícola y elementos de transporte moviéndose de uno a otro país, y que están cubiertos por un solo certificado fitosanitario (El envío puede estar compuesto por uno o más lotes).
+- Equipo de Aplicación: Instrumento usado para la aplicación de sustancias químicas, biológicas, bioquímicas o afines de uso en la agricultura tanto en estado líquido, sólido y gaseoso.
+- Erradicación: Aplicación de medidas fitosanitarias para eliminar una plaga de un área.
+- Establecimiento de plaga: Perpetuación para el futuro previsible, de una plaga dentro de un área después de su entrada.
+- Estación de cuarentena agropecuaria: Establecimiento oficial para la aplicación de las medidas fitosanitarias y administrativas en el control sanitario y fitosanitario de los productos agropecuarios, y del control de las sustancias químicas, biológicas, bioquímicas o afines y los equipos de aplicación de éstas para uso en la agricultura, localizado en los puntos de ingreso al país.
+- Estado de emergencia: Situación declarada por decreto ejecutivo para atender una amenaza de establecimiento de propagación y/o una plaga de importancia ecológica o cuarentenaria.
+- Etiqueta: Material impreso o inscripción gráfica, escrito en caracteres legibles, que identifican y describen al producto contenido en el envase que acompaña.
+- Evaluación de riesgo de plagas: Determinación de si una plaga es una plaga de cuarentena y la evaluación de su potencial de introducción.
+- Evaluación orgánica: Procedimiento sistemático de verificación del grado en que el desempeño de un programa de certificación, inspección, producción y proceso, cumple con requerimientos específicos.
+- Examen: Procedimiento y medida de prevención cuyo propósito es determinar la condición fitosanitaria de las plantas y productos vegetales mediante la observación técnica.
+- Exportador: Persona física o jurídica que envíe a otros países plantas y/o productos vegetales que se ajusten a las disposiciones del presente Reglamento.
+- Exportador Ocasional: Toda persona física o jurídica que se le ha cancelado su inscripción o que nunca ha exportado, pudiendo realizar hasta 6 envíos al año.
+- Finca en transición: Finca que se encuentra en un período de pasar de otros sistemas de producción al sistema orgánico, de acuerdo con un plan de transformación debidamente establecido.
+- Gen: Unidad básica hereditaria, que se localiza en los cromosomas de las células y se duplica durante cada división celular; este mecanismo permite la transmisión de los caracteres hereditarios del organismo progenitor a sus descendientes.
+- Germoplasma: Conjunto formado por el total del material hereditario -o banco genético que contiene todas las posibles variaciones que presentan una o varias especies, poblaciones y grupos.
+- Granos básicos: Frijoles, arroz, maíz y sorgo.
+- Huésped, Hospedante u Hospedero: Vegetales, agentes de control biológico y otros organismos usados en la agricultura que son invadidos por un organismo parásito y de los cuales éste obtiene sus nutrientes.
+- Importador: Persona física o jurídica que introduce al país vegetales, organismos, sustancias químicas, biológicas y afines, equipo de aplicación de uso en la agricultura.
+- Ingeniería genética: Conjunto de técnicas de manipulación de ácido desoxirribonucleico y ácido ribonucleico recombinante "in vitro" o bajo condiciones especiales de laboratorio.
+- Inspección: Examen visual oficial realizado por la autoridad fitosanitaria a vegetales, organismos, sustancias químicas, biológicas, bioquímicas o afines y equipos de aplicación de uso en la agricultura y a cualquier otro bien, elementos y medios de transporte, equipajes, pasajeros, instalaciones, predios y áreas de cultivo para determinar el cumplimiento de las reglamentaciones fitosanitarias vigentes.
+- Inspección orgánica: Labor de evaluar, visitar, controlar, fiscalizar o verificar la naturaleza orgánica de procesos e instalaciones apropiadas para los mismos, que realiza un inspector a requerimiento de una Agencia Certificadora o la Dirección.
+- Inspector: Ver Autoridad Fitosanitaria.
+- Inspector de Agricultura Orgánica: Persona física capacitada para realizar inspecciones tendientes a otorgar Certificación Orgánica, tanto a nivel de finca como de proceso de industrialización, con las funciones y forma de nombramiento que señala este reglamento.
+- Intercepción de una plaga: Detección de una plaga durante la Inspección de un envío importado o exportado.
+- Insumos Agrícolas: Sustancias químicas, biológicas, bioquímicas o afines, y sus equipos de aplicación de uso en la agricultura.
+- Insumo fitosanitario: Cualquier sustancia o mezcla utilizada en el control de plagas de los vegetales tales como plaguicidas, agentes de control biológicos, material transgénico, feromonas atrayentes y variedad de plantas cultivadas resistentes a plagas.
+- Introducción de una plaga: Entrada de una plaga que resulta en su establecimiento.
+- Laboratorio acreditado: Ver Acreditación.
+- Laboratorio de reproducción vegetal: Instalación dispuesta y equipada para la investigación, experimentación en tareas científicas y de producción con el objeto de llevar a cabo la reproducción sexual y asexual de plantas con fines comerciales.
+- Liberación de un envío: Resolución final positiva una vez concluido el control fitosanitario.
+- Liberación al ambiente: Uso de un organismo vivo modificado para uso agrícola, fuera de los límites de un confinamiento físico que limite de forma efectiva su contacto con el medio exterior o sus efectos sobre dicho medio, tales como un recinto cerrado, laboratorio, biorreactor o cualquier otra estructura cerrada. Todo ello bajo las condiciones de bioseguridad que establezca el SFE.
+- Libre ingreso: Libertad de acceso a las autoridades fitosanitarias para el cumplimiento de las facultades que se señalan en este reglamento. De negarse, estas solicitarán la orden de allanamiento a la autoridad judicial competente.
+- Libro Oficial: Es aquel libro donde se anotan las inspecciones, observaciones,
+inscripciones, registro, procedimientos oficiales y recomendaciones que realiza la Dirección.
+- Lugar o País de Origen: Lugar o país donde fue: cultivado el vegetal; fabricada o formulada una sustancia química, biológica, bioquímica o afín, equipo, de aplicación de uso en la agricultura.
+- Manejo de riesgo de plagas: Proceso para toma de decisiones con el fin de reducir el riesgo de entrada y de establecimiento de una plaga de cuarentena.
+- Manejo Fitosanitaria: Todas aquellas prácticas que se llevan a cabo durante el proceso de cultivo, producción, cosecha, postcosecha, empaque, transporte y almacenamiento de las plantas y productos vegetales para garantizar su sanidad.
+- Manejo Integrado de Plagas: Utilización racional de combinaciones técnicas diseñadas para manipular poblaciones de plagas o el control de las mismas a un nivel que nos permita lograr un buen combate de ellas al menor costo con un daño mínimo del ambiente.
+- Manifiesto o declaración de carga: Documento o medio informativo reconocido oficialmente en el que se consigna y describe la información detallada de los diferentes envíos o cargamentos que son transportados por determinado medio de transporte.
+- Material de Empaque: Ver Elementos de transporte.
+- Material de Propagación: Cualquier planta o parte de ella utilizada para reproducción sexual o asexual.
+- Material Genético: Se entiende todo material de origen vegetal, animal microbiano o de otro tipo que contenga unidades funcionales de la herencia.
+- Medidas de Mitigación: Métodos, procesos y medidas de seguridad usados para el manejo, tratamiento y disposición del producto modificado genéricamente.
+- Medidas Fitosanitarias: Cualquier legislación, reglamento o procedimiento oficial para prevenir o restringir la introducción y/o difusión de plagas de las plantas y productos, así como para regular, controlar las sustancias químicas, biológicas, bioquímicas o afines, agentes de control biológico, otros tipos de organismos, equipos de aplicación para uso en la agricultura.
+- Medidas Técnicas: Ver Medidas Fitosanitarias.
+- Medio ambiente: El suelo, el aire o agua y todos los organismos vivientes que están asociados o permanecen en estos elementos.
+- Medios de transporte: Cualquier vehículo, terrestre, aéreo, marítimo o lluvia que sea utilizado en el movimiento nacional o internacional de personas, plantas, productos vegetales, sustancias químicas, biológicas, bioquímicas o afines, agentes de control biológico, otros tipos de organismos para uso en la agricultura, cargas o mercancías en general.
+- Medio receptor: Lote, terreno, local, instalación o cualquier otro sitio específico, que entrañe la manipulación y uso de organismos producto de la biotecnología moderna.
+- Norma: Disposición técnica establecida y aprobada que dispone el uso común y constante de reglas, directrices o lineamientos para diversas actividades o sus resultados y que tiende al logro de un grado óptimo de ordenamiento dentro de un contexto dado.
+- Notificación: Acto procesal en la tramitación de cualquier proceso o procedimiento, sea jurisdiccional o en sede administrativa, cuyo objetivo es la comunicación de las resoluciones y providencias a las partes que intervienen en el proceso.
+- Nuevas técnicas de mejoramiento genético: Técnicas emergentes de biotecnología moderna de precisión que utilizan el conocimiento exacto de la relación entre el genotipo y fenotipo para producir inserciones, deleciones o rearreglos en el material genético de los organismos, lo cual podría generar un organismo vivo modificado o, por el contrario, un organismo equivalente a los producidos a partir de técnicas convencionales de mejoramiento.
+- Ocupante: Persona que posee un inmueble a título de dueño, heredero, arrendatario, adjudicatario, usufructuario o en forma precaria.
+- Organismo equivalente a los obtenidos mediante técnicas de mejoramiento convencional: Cualquier organismo para uso agrícola desarrollado con las nuevas técnicas de mejoramiento genético y que no posea una combinación nueva de material genético. Lo cual hace referencia, pero no se limita, a:
+1. Organismo con ausencia demostrada de una combinación nueva de material genético, obtenidos con una técnica que utiliza parentales que son OVM.
+2. Organismo obtenido mediante una técnica que utiliza ADN o ARN que no se multiplicará en una célula viva.
+3. Organismo obtenido mediante una técnica que introduce mutaciones dirigidas al sitio de interés, que producen pérdida o ganancia de función génica, pero con ausencia demostrada de una combinación nueva de material genético.
+4. Organismo obtenido mediante técnicas en las que existe expresión temporal de moléculas de ADN o ARN recombinante, pero sin presencia o introgresión de estas moléculas en el organismo final.
+5. Organismo obtenido mediante técnicas que emplean moléculas de ADN o ARN que no modifican permanentemente el genoma de la planta cuando entran en contacto con esta, y que posteriormente son absorbidas o degradadas sistémicamente o no sistémicamente.
+6. Organismo con deleciones, inserciones y rearreglos que podrían ocurrir por mutación espontánea, natural o inducida.
+- Organismo producto de la biotecnología moderna: Organismo vivo de uso agrícola obtenido a partir de las técnicas de biotecnología moderna, incluida la edición del genoma, el cual podría resultar en un organismo vivo modificado o, por el contrario, ser equivalente, de acuerdo con sus características fenotípicas y genéticas, de un organismo producido a partir de técnicas convencionales de mejoramiento. Comprende lo definido como organismo genéticamente modificado según la Ley de Biodiversidad, Ley No 7788, del 30 de abril de 1998, en su artículo 7 inciso 24 y la Ley de Protección Fitosanitaria, Ley No 7664, del 08 de abril de 1997, en su artículo 5 inciso q.
+- Organismo vivo modificado: Cualquier organismo vivo que posea una combinación nueva de material genético que se haya obtenido mediante la aplicación de la biotecnología moderna. Comprende lo denominado como: "organismo alterado o manipulado", "organismo transgénico", "material transgénico", "vegetales transgénicos" o "producto manipulado o transgénico".
+- Pequeño productor: Es aquel cuya actividad económica se basa en la actividad agropecuaria, la cual realiza fundamentalmente, mediante el empleo de su mano de obra familiar, además, se caracteriza por realizar su actividad productiva en terrenos propios, con acceso legal a la tierra o sobre la cual al menos tiene expectativas fundadas de control.
+- Permiso de desalmacenaje: Permiso concedido por el Departamento de Control de insumos Agrícolas a una persona física o jurídica, mediante el cual se autoriza para llevar a cabo la importación de sustancias químicas, biológicas, bioquímicas o afines y los equipos de aplicación de uso agrícola.
+- Permiso Fitosanitario de Importación: Ver Autorización Previa.
+- Plaga: Cualquier especie, raza o biotipo vegetal o animal o agente patógeno dañino para las plantas o productos vegetales.
+- Plaga cuarentenal: Aquella que puede tener importancia económica potencial para el área en peligro, aun cuando la plaga no existe o, si existe, no está extendida y se encuentra bajo control oficial.
+- Plaga de Importancia Económica: Plaga existente y dispersa en el país que por los daños que produce a los vegetales, ocasiona pérdidas a nivel económico.
+- Plaga Exótica: Son aquellas que no existen en un área y cuya presencia nunca ha sido comprobada científicamente.
+- Plagas Introducidas: Plaga exótica que ha ingresado a un área y que está en proceso de establecimiento y propagación.
+- Plan de Emergencia o Contingencia: Conjunto de disposiciones y acciones, tendientes a prevenir, controlar o erradicar una plaga en un área y tiempo determinados.
+- Plantas: Cualquier miembro del reino Vegetal, sus partes incluyendo las semillas.
+- Plazo prudente: Es el tiempo que se brinda para que sean ejecutadas las medidas dictadas.
+- Portador: Elemento que puede ayudar a diseminar algún tipo de plaga de un lado a otro.
+- Porteador: Ver Portador.
+- Predio: Infraestructura, áreas, terrenos autorizados expresamente por la Dirección General de Aduanas, donde se almacenan temporalmente mercancías importadas y exportadas. Tierra, hacienda, posesión de una finca o solar en que se encuentran plantas.
+- Procedimiento cuarentenas: Método prescrito oficialmente para realizar inspecciones, pruebas, encuestas o tratamientos en relación con la cuarentena vegetal.
+- Producto básico: Planta, producto vegetal, medios y elementos de transporte que se trasladan con fines de comercio.
+- Productos No Tradicionales de Exportación: Cualquier planta o producto vegetal excepto café en grano, cacao en grano, fruta de banano, azúcar de caña y granos básicos.
+- Producto Procesado: Aquellos productos que por el proceso de transformación a que han sido sometidos, han perdido la capacidad de inducir riesgos de la propagación de plagas.
+- Productos Vegetales: Materiales no manufacturados de origen vegetal (comprendidas las semillas y granos), y aquellos productos manufacturados que por su naturaleza o por la de su procesamiento, puedan crear riesgos de la propagación de plagas.
+- Programa Fitosanitario: Declaración sobre las prácticas que se efectúan durante el proceso de producción y manejo postcosecha.
+- Propagación de plantas: Procedimiento utilizado para la reproducción de pantas, sea vía sexual o asexual.
+- Propagación o diseminación de plagas: Expansión de la geografía de una plaga dentro de un área.
+- Protección Fitosanitaria: Ver Medidas Fitosanitarias.
+- Prueba de Eficacia Biológica: Evaluación de cualquier sustancia química, biológica, bioquímica, eficientes de control biológico o afín, para determinar el grado de control de una plaga.
+- Puesto: Establecimiento oficialmente designado para la aplicación de medidas fitosanitarias.
+- Punto de entrada o salida: Aeropuerto, puerto marítimo o fluvial, puesto fronterizo terrestre oficialmente designado para la movilización de envíos, otras mercancías y pasajeros.
+- Rastrojo: Residuo de las plantas que quedan en el campo después de la cosecha o por haber sido abandonadas.
+- Reacondicionamiento: Es la supresión o modificación de las condiciones que constituyen riesgo fitosanitario o dificultan su manejo en envíos vegetales, así como en elementos y medios de transporte.
+- Rechazo: Prohibición de la entrada de un envío, sustancias químicas, biológicas, bioquímicas o afines y equipos de aplicación, cuando éstos no satisfacen la reglamentación fitosanitaria.
+- Redestino: Traslado de un envío de una aduana externa a una aduana interna, previo cumplimiento de la normativa cuarentenal vigente.
+- Reenvasador, Reempacador: Persona física o jurídica autorizada por el titular del registro y la Dirección, para subdividir con fines comerciales una sustancia química, biológica, bioquímica o afín de uso en la agricultura.
+- Reexpedición: Es el impedimento de entrada y devolución al país de origen o de su reembarque a otro destino, que se aplica a un envío con riesgo de plaga o sustancias químicas, biológicas, bioquímicas o afines de uso en la agricultura que no cumple con las disposiciones legales vigentes.
+- Reexportación: Es el envío hacia otro país, de productos previamente importados.
+- Registrante: Persona física o jurídica que debe satisfacer los requisitos, técnicos y locales solicitados por la Dirección para el registro de sustancias químicas, biológicas, bioquímicas o afines y equipo de aplicación de uso en la agricultura.
+- Registro: Procedimiento aprobado para el manejo de la información producto de la aplicación de la Ley y su reglamentación.
+- Reglamento Técnico: Instrumento legal en el que establecen las características de bienes o sus procesos y métodos de producción conexos con inclusión de las disposiciones administrativas aplicables y cuya observancia es obligatoria.
+- Regulación Fitosanitaria: Ver Medidas Fitosanitarias.
+- Reproducción Asexual: Métodos de reproducción de plantas en el cual no intervienen las partes sexuales de la misma.
+- Reproducción Sexual: Multiplicación de organismos o microorganismos que consiste en la fusión de dos células distintas y que da origen a un nuevo individuo.
+- Requisitos fitosanitarios: Disposiciones oficiales fitosanitarias que deben de cumplir las plantas y productos vegetales, agentes de control biológico y otros organismos usados en la agricultura para su importación o exportación.
+- Residuo: Es aquella cantidad de sustancias químicas, biológicas, bioquímicas que quedan en los vegetales y en extractos ambientales, después de una aplicación del mismo.
+- Restringir: Circunscribir a un cierto límite la acción o efecto.
+- Retardar: Detener, diferir, entorpecer el desarrollo o avance de una plaga.
+- Retención: Mantenimiento de un envío, o de sustancias químicas, biológicas, bioquímicas o afines y equipos de aplicación, en custodia o confinamiento oficial por razones fitosanitarias e incumplimiento de las regulaciones establecidas.
+- Riesgo Fitosanitario: Probabilidad de que un envío esté contaminado.
+- Seguimiento posentrada: Ver Cuarentena Posentrada.
+- Semillas: Parte sexual o asexual de la planta para reproducción, y no para consumo o proceso.
+- Servicio: Servicio Fitosanitario del Estado, comprende la totalidad de las funciones y atribuciones legalmente establecidas, por la Ley de Protección Fitosanitaria, su reglamento y reglamentos técnicos en materia de protección fitosanitaria, las cuales son ejecutadas por el Ministerio de Agricultura y Ganadería a través de las diferentes dependencias ministeriales involucradas.
+- Servicios para la importación o exportación de productos: Todos los servicios que presta la Dirección de Servicios de Protección Fitosanitaria, consistentes en: autorizaciones, certificados, certificaciones, inspecciones, inscripciones, custodios, supervisión, tratamientos, análisis de laboratorios, registros, autorizaciones de operación, marchamos, acreditaciones, capacitaciones, consultarías, asesoramiento, material divulgativo, venta de organismos de control fitosanitario para uso en la agricultura.
+- Sistema de información: Conjunto de registros, base de datos, resultados u otra información relevante clasificados, derivados de la aplicación de la normativa fitosanitaria.
+- Suelo: Material mineral que en la mayoría de los casos consiste en una mezcla de roca desintegrada con una mezcla de materia orgánica y sales solubles.
+- Suplidor: Persona física o jurídica que provee un envío.
+- Sustrato: Cualquier medio capaz de sustentar la vida de las plantas.
+- Tolerancia: Cantidad máxima de residuos de sustancias químicas, biológicas, bioquímicas o afines de uso en la agricultura o sus metabolitos cuya presencia es legalmente permitida, en productos de consumo humano o animal.
+- Toxicidad: Propiedad que tiene una sustancia y sus productos metabólicos o de degradación, de provocar a dosis determinadas y en contacto con la piel o las mucosas, un daño a la salud, luego de estar en contacto con la piel, las mucosas y/o haber ingresado en el organismo biológico por cualquier vía.
+- Tránsito: Paso de un envío por el país hacia otro país sin ser dividido, almacenado o cambiado de empaque, ni haber estado expuesto a contaminación de plagas, así como el paso de sustancias químicas, biológicas, bioquímicas o afines y equipo de aplicación de uso en la agricultura.
+- Tratamientos: Procedimiento autorizado oficialmente para matar, eliminar o esterilizar plagas.
+- Uso confinado: Cualquier operación, llevada a cabo dentro de un local, instalación u otra estructura física, que entrañe la manipulación de organismos producto de la biotecnología moderna controlados por medidas específicas que limiten de forma efectiva su contacto con el medio exterior o sus efectos sobre dicho medio."
+- Veda: Prohibición de siembra en el espacio y tiempo, de cultivos que pongan en riesgo la condición fitosanitaria de un área y que signifiquen las permanencia y reproducción de plagas.
+- Vegetal: Plantas y productos vegetales.
+- Vivero: Sitio donde permanecen las plantas procedentes de almácigos o germinadores para ser injertados o recreados.
+-Zona Libre: Ver definición de "Área Libre de Plagas".
