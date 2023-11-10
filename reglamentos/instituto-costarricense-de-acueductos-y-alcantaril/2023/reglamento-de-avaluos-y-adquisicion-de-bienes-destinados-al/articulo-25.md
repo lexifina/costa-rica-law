@@ -1,0 +1,1 @@
+Artículo 25.- De la notificación del Acuerdo de Junta Directiva: El perito encargado del desarrollo del avalúo notificará el Acuerdo de Junta Directiva al propietario del terreno y/o servidumbre, representante legal y/o un tercero interesado, dejando constancia de la aceptación o no del avalúo administrativo.

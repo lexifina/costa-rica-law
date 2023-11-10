@@ -1,0 +1,1 @@
+Artículo 19.- De la verificación del expediente: El Líder de Proyecto, una vez analizada a profundidad la información técnica, consolidando toda la información y documentos que conforman el expediente, y previo visto bueno de su jefatura, remitirá, mediante oficio, el expediente a la Asesoría Jurídica para el análisis legal correspondiente.

@@ -1,0 +1,1 @@
+Artículo 11.- Del inicio de los estudios técnicos preliminares: Una vez otorgado el permiso, por escrito, para realizar estudios técnicos preliminares, el (los) funcionario(s) u otro personal encargado(s) de realizar los estudios técnicos, investigaciones, levantamientos topográficos, entre otros; podrán ingresar al inmueble.
