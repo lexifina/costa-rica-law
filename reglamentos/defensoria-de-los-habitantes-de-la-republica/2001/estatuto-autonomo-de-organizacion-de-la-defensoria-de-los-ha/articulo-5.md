@@ -9,6 +9,7 @@ ii) Dirección de Asuntos Jurídicos
 Igualmente, lo integraran los sucesivos departamentos administrativos y unidad médica y salud ocupacional.
 iii) Departamento de Comunicación Institucional
 iv) Departamento de Planificación y Desarrollo Institucional
+(Así modificada la denominación del inciso anterior mediante acuerdo N°DH-A-2649-2023 del 10 de noviembre de 2023)
 v) Departamento de Tecnologías de la Información
 vi) Unidad Médica y Salud Ocupacional
 Finalmente, estará completado por un/a profesional de defensa tres o un/a profesional de promoción y divulgación, las siguientes unidades.
