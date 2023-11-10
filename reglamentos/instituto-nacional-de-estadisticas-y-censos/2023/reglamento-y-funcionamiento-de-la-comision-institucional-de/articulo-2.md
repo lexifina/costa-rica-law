@@ -1,0 +1,1 @@
+Artículo 2º-Alcance. El presente reglamento es de aplicación para la Comisión Institucional de Ética y Valores (CIEV) del INEC, la persona gerente y titulares subordinados, según sean sus competencias y responsabilidades establecidas en materia de ética institucional.
