@@ -1,1 +1,0 @@
-Artículo 72.- Vigencia. El presente Reglamento rige a partir de su publicación en el Diario Oficial La Gaceta. Los procesos anteriores al inicio del uso de la plataforma SICOP se llevarán hasta su fin de manera impresa. Este reglamento deroga cualquier otra norma interna o manual de procedimientos emitido con anterioridad.

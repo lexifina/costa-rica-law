@@ -1,1 +1,0 @@
-Artículo 32.- Plazo para adjudicar. Para dictar el acto final, el INCOP dispondrá del doble del plazo conferido para la presentación de ofertas, incluyendo en ese cálculo todas las prórrogas que se hayan otorgado, de conformidad con lo establecido en el artículo 87 del RLCA; no obstante, en el cartel se podrá disponer un plazo máximo para adjudicar.

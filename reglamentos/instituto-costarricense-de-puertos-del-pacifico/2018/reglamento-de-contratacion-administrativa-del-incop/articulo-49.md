@@ -1,7 +1,0 @@
-Artículo 49.- Formas de rendir las garantías. Las garantías serán rendidas según las formas que establece el artículo 42 del RLCA.
-Las garantías, tanto de participación como de cumplimiento, deberán ser rendidas electrónicamente a través del SICOP, de conformidad con lo establecido en el Reglamento de uso del Sistema sobre la rendición de garantías. En caso de que excepcionalmente deban ser rendidas por un medio distinto, deberán hacerlo a través de un mecanismo conveniente para la Administración y que permita alcanzar su fin, de conformidad con lo dispuesto por la administración contratante y las bases del concurso.
-En el cartel se establecerá la vigencia mínima de la garantía de participación y la de cumplimiento.
-En caso de omisión, regirán las siguientes reglas:
-a) La garantía de participación hasta por un mes adicional a la fecha máxima establecida para dictar el acto de adjudicación.
-b) La garantía de cumplimiento hasta por dos meses adicionales a la fecha probable de la recepción definitiva del objeto contractual.
-Las garantías de participación y de cumplimiento podrán ser sustituidas en cualquier momento, a solicitud del oferente o contratista, previa aceptación de la Proveeduría Institucional, siempre que con ello no desmejore los términos de la garantía original. A solicitud del contratista y previa autorización de la Proveeduría Institucional, cuando lo estime conveniente, se podrán sustituir las retenciones por una garantía adicional.
