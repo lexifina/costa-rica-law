@@ -1,0 +1,1 @@
+Articulo 25.-Aquellas actividades que sean declaradas por el Concejo Municipal como de interés del Gobierno Local, quedarán exentas del pago de los cargos anteriormente mencionados y se regirán por convenios particulares.

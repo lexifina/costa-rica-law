@@ -1,0 +1,2 @@
+Artículo 4º-Los lugares a que se refiere el presente Reglamento, por su calificación de bienes de dominio y uso público, no podrán ser objeto de usos de carácter privativo relacionados con actos que por su finalidad, contenido, características o fundamentos constituyeran detrimento de su propia naturaleza y destino.
+Cuando por motivos de interés general se autoricen actividades públicas se deberán tomar las medidas previsoras necesarias para que la afluencia de personas a los mismos no cause daños al espacio y al mobiliario urbano.

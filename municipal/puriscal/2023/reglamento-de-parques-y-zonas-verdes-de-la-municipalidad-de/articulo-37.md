@@ -1,0 +1,1 @@
+Artículo 37.-La Municipalidad podrá aplicar lo estipulado en la normativa legal vigente para establecer cualquier otro tipo de sanción a las personas que desacaten lo señalado en este Reglamento, en el Código Penal especialmente en los artículos 388, 388 Bis, 392, 394, 395, 397 y concordantes, para lo cual se trasladará la acusación o el parte respectivo a la vía judicial.

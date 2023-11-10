@@ -1,0 +1,2 @@
+Articulo 17.-La frecuencia con que cada grupo organizado realice dichas actividades, quedará sujeta a que ninguno pretenda monopolizar el espacio, de tal manera que se realice la debida coordinación entre los mismos, a efecto de que la participación y el uso las áreas que se regulan aquí, sea equitativo.
+Por tal razón no se permitirá por ningún motivo el arrendamiento de más de 15 días consecutivos de las instalaciones y en más de tres ocasiones dentro de un mismo año.

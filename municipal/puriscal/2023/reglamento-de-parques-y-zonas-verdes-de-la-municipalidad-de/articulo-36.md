@@ -1,0 +1,3 @@
+Artículo 36.-Para efectos de este Reglamento, se considerarán infracciones todos los actos u omisiones de las personas que violenten las disposiciones contempladas en él.
+Las personas que causen daños o deterioros a las plantas, árboles e infraestructura de estas zonas, deberán reparar lo dañado a la brevedad posible, coordinando para ello con el departamento de Servicios Públicos, que realizará una evaluación de los daños para su pronta reparación o, en su defecto, un cálculo de los costos de los daños para ser cobrados a las personas infractoras.
+De no proceder a realizar la reparación la Municipalidad Puriscal, asumirá los costos y los procederá a cobrar vía judicial al infractor.

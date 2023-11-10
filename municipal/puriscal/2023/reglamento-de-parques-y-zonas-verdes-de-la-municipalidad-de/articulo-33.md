@@ -1,0 +1,1 @@
+Artículo 33.-El cobro de esta tasa lo hará la Municipalidad a cada uno de los contribuyentes que cuenten con bienes inmuebles inscritos en el distrito respectivo, por trimestre vencido pagaderos el último día hábil de trimestre en cobro.

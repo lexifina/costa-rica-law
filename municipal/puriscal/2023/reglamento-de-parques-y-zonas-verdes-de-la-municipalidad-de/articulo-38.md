@@ -1,0 +1,7 @@
+CAPÍTULO IX
+De las actividades en parques y zonas públicas.
+Artículo 38.-La Municipalidad de Puriscal podrá según lo estipulado en este reglamento arrendar espacios para la comercialización de productos en parques y áreas públicas, siempre que se cumpla con lo establecido para el cuido de espacios públicos, esto ya sea bajo el marco de actividades y/o ferias desarrolladas por la Municipalidad o por terceros.
+Cuando fuese la Municipalidad la organizadora, acorde al tipo de comercio y producto asociado invitará a los licenciatarios comerciales (patentados) mediante correo electrónico, otorgando las condiciones de arrendamiento temporal, el espacio que se brindará y toda información pertinente, siendo que los interesados completen los requisitos establecidos, y se complete según orden de ingreso de solicitud y cantidad que se permite para la actividad o feria establecida, pagando el arrendamiento temporal y patente temporal.
+El costo de dicho arrendamiento temporal se estipulará según la cantidad de días de la actividad bajo la fórmula:
+Canon diario: ((Valor del bien inmuebles *1.5 %) / 365)) * Cantidad de días a utilizar.
+El costo de la licencia comercial lo estipulará el departamento de Licencias Comerciales y se enviará junto con la demás información a los interesados. Cuando se organice la actividad por un tercero, se regirá bajo el capítulo IV del presente reglamento, en trámites y costos.

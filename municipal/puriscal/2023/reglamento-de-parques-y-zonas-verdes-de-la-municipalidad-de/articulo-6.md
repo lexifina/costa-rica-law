@@ -1,0 +1,1 @@
+Articulo 6.- La Municipalidad de Puriscal, deberá administrar directamente los parques públicos, zonas y áreas recreativas comunales o deportivas que por su naturaleza de bienes demaniales son propiedad de la Municipalidad; así como deberá cobrar las tasas, canon o precio público respectivo según corresponda.

@@ -1,0 +1,1 @@
+Artículo 29.-El diez por ciento (10%) de la utilidad para el desarrollo en que se incrementa la tasa señalada en el artículo anterior, se destinara para impulsar la creación de nuevos parques o áreas recreativas, así como para la remodelación, ampliación o mejoras de los existentes en el distrito correspondiente, de acuerdo con el artículo 83 Código Municipal.

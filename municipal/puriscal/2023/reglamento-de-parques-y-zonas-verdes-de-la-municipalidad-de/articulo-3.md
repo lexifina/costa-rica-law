@@ -1,0 +1,2 @@
+Artículo 3º-Todos los ciudadanos tienen derecho al uso y disfrute de los parques, jardines o zonas verdes públicas y deben de cumplir las instrucciones que al respecto figuren sobre su utilización en indicadores, anuncios, rótulos y señales acerca de usos y prohibiciones.
+Además, deberán atenderse las indicaciones que formulen los oficiales de la Policía Municipal, la Fuerza Pública y de los funcionarios municipales asignados al cuidado y mantenimiento de los parques, jardines y zonas verdes públicos.

@@ -1,0 +1,1 @@
+Artículo 13.-Es prohibido hacer mal uso de asientos, bancas, mesas, placas, lámparas, postes, tuberías, basureros, rótulos o cualquier estructura, ubicadas en parques y zonas verdes públicas, dando un uso para el que no fueren creados, queda absolutamente prohibido cualquier daño, acto vandálico que altere, modifique, o destroce el mobiliario o espacios públicos.

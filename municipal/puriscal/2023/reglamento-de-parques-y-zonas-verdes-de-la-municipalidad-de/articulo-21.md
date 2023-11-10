@@ -1,0 +1,1 @@
+Articulo 21.-En cualquier momento se observa por parte de los encargados municipales que se incumplen las obligaciones contraídas y el espacio público corre peligro de sufrir daños, puede en el acto ordenar la suspensión de las actividades con el auxilio de la Fuerza Pública o la Policía Municipal de Puriscal y ordenar el desalojo del sitio.
