@@ -1,0 +1,1 @@
+Artículo 10.-Uso de información confidencial. La información confidencial solo podrá ser utilizada para los fines para los cuales fue solicitada, en los términos de los acuerdos suscritos por las Partes del convenio con estricto apego a la protección de la información confidencial entregada o recibida.

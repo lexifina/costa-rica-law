@@ -1,0 +1,1 @@
+Artículo 7º-De la aprobación y suscripción del convenio. Una vez aprobado el convenio por el Órgano Superior, su presidente puede suscribirlo o derivarlo a otro Comisionado. Si la suscripción se realiza como acto protocolar, el Coordinador gestiona ante la Oficina de Comunicación Institucional, las acciones pertinentes para la realización de dicha ceremonia.

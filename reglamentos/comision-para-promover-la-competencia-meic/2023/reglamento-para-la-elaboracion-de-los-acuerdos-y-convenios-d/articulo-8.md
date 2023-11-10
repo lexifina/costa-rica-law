@@ -1,0 +1,2 @@
+Artículo 8º-Notificaciones. Una vez suscrito el convenio, la Secretaría del Órgano Superior lo numera y archiva uno de los ejemplares originales junto con los antecedentes en su expediente. Asimismo, envía a la Contraparte, según dirección indicada en el convenio, en un plazo máximo de tres días hábiles contados al día siguiente de su suscripción, uno de los ejemplares originales.
+Adicionalmente remite una copia al Ministerio de Economía, Industria y Comercio, así como al Ministerio de Planificación y Política Económica para el monitoreo correspondiente.

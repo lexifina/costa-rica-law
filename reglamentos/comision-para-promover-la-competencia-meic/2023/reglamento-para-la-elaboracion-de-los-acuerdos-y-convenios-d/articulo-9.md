@@ -1,0 +1,2 @@
+Artículo 9º-Responsabilidades. Las dependencias de la Comisión para Promover la Competencia, que intervienen en el procedimiento para la suscripción de un Convenio de Colaboración Interinstitucional o Cooperación Técnica Internacional, son responsables del cumplimiento de lo establecido en el presente Reglamento, en el marco de sus competencias.
+Las Partes intervinientes del convenio son las responsables de dar cumplimiento a los acuerdos adoptados. Los Coordinadores designados son responsables de la ejecución y seguimiento de los compromisos establecidos en el mismo.
