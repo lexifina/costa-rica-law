@@ -45,5 +45,7 @@ VIII. Permisos para la asistencia, y otros:
 .Para cumplir con lo anterior deberá la Unidad de Acceso a la Justicia, calendarizar y girar la invitación con la debida antelación.
 .Adicionalmente deberá la Unidad de Acceso levantar un registro sobre la asistencia y total de personas capacitadas; siendo que se indique el nombre completo, número de cédula, oficina y el circuito judicial.
 .Podrá la Unidad de Acceso a la Justicia establecer alianzas colaborativas intra e interinstitucionales para un mayor éxito de los procesos de capacitación, como lo es, por ejemplo, coordinar con las Administraciones Regionales y los Consejos de Administración para incentivar la participación localmente en cada circuito judicial.
+El proceso de capacitación en materia de Acceso a la Justicia sobre poblaciones en condición de vulnerabilidad, comunicado mediante circular Nº 270-2023, también se estará ofreciendo para el personal judicial que labora para el Primer Circuito Judicial de San José.
+(Así adicionado el párrafo anterior mediante sesión N° 91-2023 del 31 de octubre del 2023, publicada en el Boletín Judicial N° 216 del 21 de noviembre del 2023 mediante circular N° 294-2023 del 10 de noviembre del 2023)
 Publíquese una vez en el Boletín Judicial.
 San José, 17 de octubre de 2023.

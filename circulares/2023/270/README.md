@@ -13,3 +13,4 @@ Proceso de capacitación en materia de Acceso a la Justicia sobre poblaciones en
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-10-17 | la propia norma |
+| 2 | 2023-11-10 | Circular 294 (2023-11-10) |
