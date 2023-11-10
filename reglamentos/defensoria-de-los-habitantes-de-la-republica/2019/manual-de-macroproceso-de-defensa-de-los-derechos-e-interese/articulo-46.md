@@ -1,3 +1,4 @@
 Artículo 46.-Del informe final de las Investigaciones Estructurales. La propuesta de informe final, además de las conclusiones y recomendaciones, incluirá un plan de incidencia a partir de los resultados encontrados que deberá ser evaluable y establecer con claridad las acciones que desarrollará la Defensoría de los Habitantes, con el fin de velar por el cumplimiento de las recomendaciones.
-El plan de incidencia será entregado por la respectiva dirección que despliega las labores de defensa, al Defensor/a de los Habitantes para su visto bueno, quien remitirá su decisión al Departamento de Planificación y Desarrollo Institucional, para su seguimiento.
+El plan de incidencia será entregado por la respectiva dirección que despliega las labores de defensa, al Defensor/a de los Habitantes para su visto bueno, quien remitirá su decisión al Departamento de Planificación y Desarrollo Institucional (*), para su seguimiento.
 (Así reformado por acuerdo N° 2466 del 27 de junio de 2022)
+(*) (Así modificada su denominación mediante acuerdo N°DH-A-2649-2023 del 10 de noviembre de 2023)
