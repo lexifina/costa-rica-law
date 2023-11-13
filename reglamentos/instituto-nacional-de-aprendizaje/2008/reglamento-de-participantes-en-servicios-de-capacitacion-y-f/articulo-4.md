@@ -1,7 +1,7 @@
 CAPÍTULO III
-Derechos, obligaciones y prohibiciones
-de la persona participante
-Artículo 4º—Derechos de la persona participante. Son derechos de la persona participante:
+Derechos, obligaciones y prohibiciones de la persona
+participante
+Artículo 4º Derechos de la persona participante. Son derechos de la persona participante:
 a) Ser evaluada según lo establece el Reglamento de Evaluación de los Aprendizajes en la Formación Profesional del INA.
 b) Constituir grupos de estudio, culturales, deportivos, y otras formas organizativas, siempre que estas no vayan en contra de las normas institucionales y las condiciones lo permitan.
 c) Utilizar los servicios que ofrece el INA, que faciliten la capacitación y la formación profesional.
@@ -14,5 +14,5 @@ i) Conocer el programa del Servicio de Capacitación y Formación Profesional al
 j) Solicitar al INA ayuda económica de acuerdo con los lineamientos establecidos en el Reglamento de Becas a Participantes del INA y Reglamento de Hospedaje a participantes del INA.
 k) Recibir un trato afable y respetuoso por parte del personal del INA.
 l) Recibir capacitación y formación profesional bajo las normas de salud ocupacional en talleres, aulas y otros recintos donde se imparta la formación.
-m) Recibir mención honorífica por su participación destacada a nivel de Planes y Programas, para las personas que obtengan un promedio igual o superior a 90 en una escala de 1 a 100.
+m)Recibir mención honorífica por su participación destacada a nivel de Planes y Programas, para las personas que obtengan un promedio igual o superior a 90 en una escala de 1 a 100.
 n) Solicitar adecuación curricular según lo establecido en el Reglamento de Apoyo Educativo.

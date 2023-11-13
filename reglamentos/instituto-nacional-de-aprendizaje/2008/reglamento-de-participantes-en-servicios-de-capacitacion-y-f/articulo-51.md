@@ -1,4 +1,4 @@
-Artículo 51.—Funciones. Corresponde al Comité Institucional Disciplinario realizar las siguientes funciones:
+Artículo 51. Funciones. Corresponde al Comité Institucional Disciplinario realizar las siguientes funciones:
 a) Instruir y asesorar a los Comités Locales Disciplinarios sobre la aplicación del presente reglamento.
 b) Estudiar y resolver los recursos de apelación interpuestos contra los acuerdos tomados por los comités locales disciplinarios.
 c) Informar a la Subgerencia Técnica de cualquier anomalía que se dé en la aplicación del presente reglamento, para que se proceda según corresponda.

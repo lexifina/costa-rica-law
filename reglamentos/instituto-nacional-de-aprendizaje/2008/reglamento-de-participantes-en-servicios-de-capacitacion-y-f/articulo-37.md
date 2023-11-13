@@ -1,1 +1,1 @@
-Artículo 37.—Dirección de la comparecencia. EI Órgano Director es el encargado de dirigir la comparecencia. Si el Órgano Director es colegiado, será dirigido por quién preside o en su defecto por la persona designada
+Artículo 37.—Dirección de la comparecencia. EI Órgano Director es el encargado de dirigir la comparecencia. Si el Órgano Director es colegiado, será dirigido por quién preside o en su defecto por la persona designada.

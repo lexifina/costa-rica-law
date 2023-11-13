@@ -1,4 +1,4 @@
-Artículo 22.—De las acciones correctivas por cometer faltas graves. Las personas participantes que incurran en actitudes o conductas tipificadas como faltas graves, serán objeto de una o más de las siguientes acciones correctivas, según la magnitud de la falta:
+Artículo 22. De las acciones correctivas por cometer faltas graves. Las personas participantes que incurran en actitudes o conductas tipificadas como faltas graves, serán objeto de una o más de las siguientes acciones correctivas, según la magnitud de la falta:
 a) Reparación o reposición del bien que hubiera dañado o sustraído. Tratándose de la no devolución de bienes o herramientas no se hará entrega del certificado o título correspondiente hasta tanto no se efectúe la devolución o reposición correspondiente.
 b) Interrupción del proceso de formación por un período mínimo de 3 días hábiles y hasta por el resto del servicio de capacitación y formación profesional.
 c) Realización de acciones de interés institucional, guardando la proporcionalidad y pertinencia en relación con la falta cometida.

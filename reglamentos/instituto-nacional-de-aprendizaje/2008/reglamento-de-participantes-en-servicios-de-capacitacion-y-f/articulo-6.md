@@ -3,15 +3,16 @@ a) Vestir con decoro y cumplir estrictamente con las regulaciones establecidas p
 b) Asistir con puntualidad a las actividades que se le convoque oficialmente.
 c) Cumplir estricta y puntualmente con el calendario, los horarios y las instrucciones que rigen para el desarrollo de las actividades institucionales.
 d) Mantener el aseo y el ornato de la institución, de la empresa o de otros recintos donde se recibe capacitación o se hospede.
-e) Portar en el caso que el Centro de Formación o Proceso de Servicio al Usuario de las Unidades Regionales lo determine, el carné de participante en forma visible durante su permanencia en la Institución, en visitas técnicas y en los medios de transporte institucional. Además, tendrá que solicitar su renovación en caso de pérdida o deterioro.
+e) Portar en el caso que el Centro de Formación o Proceso de Servicio al Usuario de las Unidades Regionales lo determine, el carné de participante en forma visible durante su permanencia en la Institución, en visitas técnicas y en los medios de transporte institucional.
+Además, tendrá que solicitar su renovación en caso de pérdida o deterioro.
 f) Reportar por escrito a la persona encargada del Centro de Formación, del Proceso de Servicio al Usuario en las Unidades Regionales o a la persona docente las situaciones irregulares de las que tengan conocimiento e incurran segundas personas.
 g) Colaborar y participar activamente, con responsabilidad, seriedad y compromiso en las actividades que se le convoque, tanto curriculares como extracurriculares.
 h) Cumplir las normas de consideración y respeto en sus relaciones con sus compañeros y compañeras, con el personal técnico, docente, administrativo, autoridades de la institución, con las personas donde se hospede y el personal de las unidades productivas donde se desarrolla su proceso de formación y en general, con todas las personas.
 i) Ejecutar en forma personal y debidamente identificada las pruebas de evaluación.
 j) Suministrar la información y documentación que se le solicite en forma veraz y oportuna.
-k) Devolver al Centro de Formación, Proceso de Servicio al Usuario de las Unidades Regionales , a la Biblioteca, o a la Unidad Productiva, al dar por concluida la relación con la Institución o la Unidad productiva: las herramientas, libros, carné y cualquier otro bien que se le hubiese asignado o facilitado.
+k) Devolver al Centro de Formación, Proceso de Servicio al Usuario de las Unidades Regionales, a la Biblioteca, o a la Unidad Productiva, al dar por concluida la relación con la Institución o la Unidad productiva: las herramientas, libros, carné y cualquier otro bien que se le hubiese asignado o facilitado.
 l) Someterse a las campañas de salud que determine la Unidad de Salud del INA o la Autoridad de Salud correspondiente.
-m) Respetar la integridad física, emocional y moral propia y de segundas personas.
+m)Respetar la integridad física, emocional y moral propia y de segundas personas.
 n) Conservar en buen estado las edificaciones, el equipo, los materiales, las herramientas, el mobiliario, el uniforme y otros bienes institucionales, de las empresas o de otros recintos donde se reciba la capacitación o se hospede.
 o) Cumplir con las normas de salud ocupacional durante su proceso de formación.
 p) Responder con el pago en dinero o con la sustitución del bien o herramienta propiedad de la Institución o de la Unidad productiva o del lugar donde se hospeda, la cual deberá ser de igual calidad según criterio técnico, cuando dicho bien sufra deterioro ó pérdida, ocasionado por la falta al deber de cuidado, por hurto o robo.

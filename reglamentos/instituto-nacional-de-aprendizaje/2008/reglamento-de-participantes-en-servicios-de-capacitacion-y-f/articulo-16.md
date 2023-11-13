@@ -1,1 +1,1 @@
-Artículo 16.—De la naturaleza de las acciones correctivas. Para efectos de la aplicación de la presente normativa, las acciones correctivas en todas las modalidades de formación profesional tienen en lo esencial, como propósitos la formación integral de la persona participante.
+Artículo 16. De la naturaleza de las acciones correctivas. Para efectos de la aplicación de la presente normativa, las acciones correctivas en todas las modalidades de formación profesional tienen en lo esencial, como propósitos la formación integral de la persona participante.

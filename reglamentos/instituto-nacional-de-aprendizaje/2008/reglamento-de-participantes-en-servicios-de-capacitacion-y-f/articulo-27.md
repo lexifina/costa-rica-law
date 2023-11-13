@@ -1,1 +1,1 @@
-Artículo 27.—Procedencia. En los servicios de capacitación y formación profesional impartidos por el INA, se aplicarán las acciones correctivas señaladas en este Reglamento por incurrir en faltas graves ó gravísimas.
+Artículo 27. Procedencia. En los servicios de capacitación y formación profesional impartidos por el INA, se aplicarán las acciones correctivas señaladas en este Reglamento por incurrir en faltas graves ó gravísimas.

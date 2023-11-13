@@ -1,4 +1,4 @@
-Artículo 52.—Atribuciones de quien preside el Comité Institucional Disciplinario. El Presidente del Comité Disciplinario Institucional tiene las siguientes funciones:
+Artículo 52.—Atribuciones de quien preside el Comité Institucional Disciplinario. La persona Presidente del Comité Disciplinario Institucional tiene las siguientes funciones:
 a. Elaborar la agenda, convocar a sesión, abrir, presidir, suspender y levantar las sesiones.
 b. Conceder la palabra en el orden solicitado.
 c. Someter a votación los asuntos del Comité Institucional Disciplinario.

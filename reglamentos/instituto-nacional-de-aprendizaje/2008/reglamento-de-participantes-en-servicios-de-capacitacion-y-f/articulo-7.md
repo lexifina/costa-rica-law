@@ -11,14 +11,20 @@ i) Sustraer del INA, unidad productiva o cualquier otro recinto donde recibe el 
 j) Hacer colectas, rifas, o ventas de objetos con fines particulares utilizando el nombre del INA.
 k) Propiciar o cometer actos que atenten contra la moral y buenas costumbres o contra la reglamentación institucional o el ordenamiento jurídico vigente o que afecten el buen nombre del INA.
 l) Portar en talleres y laboratorios: cualquier tipo de prenda de vestir o accesorios tales como anillos, cadenas, relojes, collares, aretes, esclavas entre otros que atenten contra su seguridad o la de otras personas y contra el desarrollo del servicio de capacitación y formación profesional según lo establecido en el inciso p) del artículo 3 del presente Reglamento.
-m) Utilizar vestimentas en las instalaciones físicas de la Institución, que atente contra la moral y las buenas costumbres.
+m)Utilizar vestimentas en las instalaciones físicas de la Institución, que atente contra la moral y las buenas costumbres.
 n) Utilizar el nombre o recursos de la Institución para fines personales sin la debida autorización
 o) Presentar, confeccionar o utilizar documentos falsos.
-p) Fumar. Las personas mayores de edad que fumen, deberán utilizar los lugares debidamente autorizados y señalizados como área de fumado, por la persona Encargada del Centro de Formación o Proceso de Servicio al Usuario de las Unidades Regionales y Unidades Productivas.
+p) Fumar. Las personas mayores de edad que fumen deberán utilizar los lugares debidamente autorizados y señalizados como área de fumado, por la persona Encargada del Centro de Formación o Proceso de Servicio al Usuario de las Unidades Regionales y Unidades Productivas.
 q) Realizar cualquier tipo de fraude en las pruebas de evaluación.
 r) Utilizar equipo audiovisual, de cómputo, de telecomunicaciones propiedad del INA, sin la debida autorización de la persona que imparte el servicio de capacitación y formación profesional.
 s) Matricularse en un servicio de capacitación y formación profesional que ofrece el INA dentro del año calendario siguiente a la aplicación de una medida correctiva por falta gravísima.
-t) Utilizar radios, reproductores portátiles de casetes y discos compactos, grabadoras, radio localizadores, teléfonos celulares y otros similares propiedad de la persona participante durante las horas lectivas. A excepción de las personas participantes con necesidades educativas especiales, discapacidad o determinadas por el Comité de Apoyo Educativo, que lo requieran.
+t) Utilizar radios, reproductores portátiles de casetes y discos compactos, grabadoras, radio localizadores, teléfonos celulares y otros similares, propiedad de la persona participante durante las horas lectivas. A excepción de las personas participantes con necesidades educativas especiales, discapacidad o determinadas por el Comité de Apoyo Educativo, que lo requieran.
 u) Reproducir cualquier tipo de material que se le facilite para su proceso de capacitación y formación profesional, salvo autorización expresa.
 v) Incurrir en una conducta sexual indeseada por quién la recibe, reiterada o no, que provoque efectos perjudiciales en la víctima
-w) Cualquier otra prohibición que le imponga su condición de participante del INA.
+w) Realizar y/o propiciar burlas, bromas ofensivas; uso de vocabulario discriminador, trato diferencial o despectivo, usar frases que menoscaben o atenten indirectamente contra la dignidad de una persona, personas o colectivo de personas, en cualquier ámbito de las actividades del INA.
+x) Realizar y/o propiciar burlas, bromas ofensivas; uso de vocabulario discriminador, trato diferencial o despectivo, usar frases que menoscaben o atenten directamente contra la dignidad de una persona, personas o colectivo de personas, en cualquier ámbito de las actividades del INA.
+y) Mostar desinterés, negligencia o maltrato en la atención de una persona, personas o grupo de personas objeto de discriminación.
+z) Propinar ataques físicos por motivos de discriminación.
+aa) Excluir o segregar a una persona, personas o colectivo de personas de las diferentes actividades curriculares y extracurriculares realizadas por el INA, por motivos de discriminación.
+bb) Difamar una persona, personas o colectivo de personas por motivos de discriminación.
+cc) Cualquier otra prohibición que le imponga su condición de participante del INA.

@@ -1,2 +1,2 @@
-Artículo 45.—Convocatoria y Quórum. EI Comité Local Disciplinario será convocado por la persona que preside o por acuerdo de dos de sus miembros con al menos tres días hábiles de anterioridad a la convocatoria. EI Comité Local Disciplinario se reunirá las veces que sea necesario, en razón de lo dispuesto en el presente Reglamento.
+Artículo 45.—Convocatoria y Quórum. EI Comité Local Disciplinario será convocado por la persona que preside o por acuerdo de las otras dos personas que lo constituyen, con al menos tres días hábiles de anterioridad a la convocatoria. EI Comité Local Disciplinario se reunirá las veces que sea necesario, en razón de lo dispuesto en el presente Reglamento.
 Se forma quórum con la totalidad de las personas que lo integran.

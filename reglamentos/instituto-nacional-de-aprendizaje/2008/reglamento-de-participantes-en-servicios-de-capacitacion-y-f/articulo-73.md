@@ -1,0 +1,3 @@
+Artículo 73. Acciones educativas
+El INA deberá tomar acciones educativas para prevenir la discriminación en todas sus manifestaciones, garantizando un clima de enseñanza aprendizaje, así como laboral, fundamentado en los principios constitucionales, la normativa nacional y convenciones internacionales suscritas sobre derechos humanos, que conduzca al crecimiento libre de cualquier forma de discriminación y violencia.
+Las instancias que deberán brindar estas acciones educativas o de información y sensibilización serán: para el caso del funcionariado la Unidad de Recursos Humanos y para el estudiantado la Unidad de Servicio al Usuario.

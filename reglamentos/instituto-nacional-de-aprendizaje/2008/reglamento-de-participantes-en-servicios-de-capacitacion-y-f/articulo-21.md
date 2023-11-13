@@ -1,3 +1,3 @@
-Artículo 21.—De las acciones correctivas por cometer faltas leves. Las personas participantes que incurran en conductas tipificadas como faltas leves serán objeto de cualquiera de las siguientes acciones correctivas:
+Artículo 21. De las acciones correctivas por cometer faltas leves. Las personas participantes que incurran en conductas tipificadas como faltas leves serán objeto de cualquiera de las siguientes acciones correctivas:
 a) Amonestación verbal, en presencia de dos personas que den fe de lo actuado por parte de la persona docente, la persona Encargada del Centro de Formación, Proceso de Servicio al Usuario de la Unidad Regional o de la Unidad Productiva.
 b) Amonestación escrita por parte de la persona Encargada del Centro de Formación ó en su defecto por la persona Encargada del Proceso de Servicio al Usuario de las Unidades Regionales y Unidad Productiva
