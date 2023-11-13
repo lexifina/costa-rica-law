@@ -53,3 +53,7 @@ PUESTO CLASE
 PUESTO CLASE
 000147 SUBDIRECTOR DE DEPARTAMENTO")
 (Modificado por el artículo 1° del decreto ejecutivo N° 44246 del 2° de noviembre de 2023)
+(Modificado por el artículo 1°, del decreto ejecutivo N° 44253 del 13 de noviembre de 2023)
+(Modificado por el artículo 3° del decreto ejecutivo N° 44253 del 13 de noviembre de 2023)
+(Modificado por el artículo 4° del decreto ejecutivo N° 44253 del 13 de noviembre de 2023)
+(Modificado por el artículo 5° del decreto ejecutivo N° 44253 del 13 de noviembre de 2023)
