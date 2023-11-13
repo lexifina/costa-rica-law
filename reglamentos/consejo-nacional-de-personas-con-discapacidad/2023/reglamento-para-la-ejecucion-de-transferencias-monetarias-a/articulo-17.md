@@ -1,0 +1,1 @@
+Artículo 17.-A las personas usuarias del Programa Pobreza y Discapacidad, en el mes de diciembre se les girarán un monto extraordinario, definido anualmente conforme a la capacidad presupuestaria del Programa para atender gastos de las celebraciones propias de la época navideña.

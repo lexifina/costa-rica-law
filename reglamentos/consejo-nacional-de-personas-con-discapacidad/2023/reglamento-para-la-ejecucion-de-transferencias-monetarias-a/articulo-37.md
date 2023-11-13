@@ -1,0 +1,2 @@
+Artículo 37.-El presente Reglamento deroga cualquier disposición que sobre esta materia haya sido emitida anteriormente y rige a partir de su publicación. Esta disposición no aplica para el Reglamento a la Ley de Promoción de la Autonomía Personal de las Personas con Discapacidad, en razón de su prelación en la jerarquía de las normas y que dicho cuerpo legal contiene regulaciones referentes al funcionamiento del Promoción de la Autonomía Personal de las Personas con Discapacidad que devienen de la Ley N° 9379.
+Heredia, 11 de octubre, 2023.
