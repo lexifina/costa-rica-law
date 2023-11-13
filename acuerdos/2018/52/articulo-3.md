@@ -1,1 +1,0 @@
-Artículo 3º—Delegar en el Oficial Mayor la función de aprobar el acto administrativo de donación y autorizar el traslado de bienes o semovientes entre entidades de la Administración Central, de acuerdo con lo dispuesto en los artículos 42 y 43 del Decreto Nº 40797-H.
