@@ -1,0 +1,1 @@
+Artículo 18.-Los vales de caja chica autorizados por parte de la Tesorería Municipal, que no fueren retirados dentro de los cinco días hábiles posteriores a la aprobación, serán anulados sin previo aviso.

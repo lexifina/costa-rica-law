@@ -1,0 +1,1 @@
+Artículo 5º-El monto del vale de caja chica será de ¢150.000,00 (ciento cincuenta mil colones) y aumentará en forma automática en el mes de febrero de todos los años en un 2% (dos por ciento) calculado sobre el monto del vale de caja chica. Excepcionalmente podrá aumentarse el monto del vale por encima del porcentaje antes indicado, previa aprobación de la Alcaldía Municipal.

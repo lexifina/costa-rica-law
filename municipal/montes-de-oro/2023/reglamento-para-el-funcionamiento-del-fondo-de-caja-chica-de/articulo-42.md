@@ -1,0 +1,1 @@
+Artículo 42.-El funcionario que pretenda justificar los egresos de Caja Chica con comprobantes que no cumplan con los requisitos indicados en el artículo 16, incumpliendo con ello su deber de verificar los requisitos del comprobante, deberá pagar de su peculio el costo del bien o servicio adquirido, dentro de un plazo máximo de cinco días hábiles.
