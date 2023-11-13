@@ -1,1 +1,0 @@
-Artículo 11. A efecto de ejercer los controles y diligencias propias de sus funciones, el proceso de transportes mantendrá informados al encargado del proyecto, coordinación de área, coordinación de área de administración y finanzas y Gerencia de los ingresos y exclusiones del sistema semestralmente.

@@ -1,9 +1,0 @@
-Artículo 4. La aplicación de este Reglamento cubrirá a las personas funcionarias que laboran para las operaciones estadísticas pre seleccionadas para el uso de este mecanismo y previamente aprobados por la coordinación de área respectiva y la Gerencia.
-Quedan excluidos para firmar este tipo de contratos, por su condición y disposición legal, según lo dispuesto en el artículo 22 bis de la Ley de Contratación Administrativa vigente:
-a) La gerente y subgerente;
-b) Las personas funcionarias de la Unidad de Asesorías Jurídica;
-c) Las personas funcionarias en calidad de coordinadores de área y unidad, por considerarse servidores del INEC con influencia o poder de decisión en las diferentes etapas del procedimiento de contratación administrativa que promueva , o bien, sea atinente o relacionado con la ejecución de las funciones o desempeño de su puesto; así como, por la posibilidad de rendir dictámenes o informes técnicos, o bien, preparar o tramitar alguna de las fases del procedimiento de contratación, incluida la fiscalización de la fase de ejecución del procedimiento;
-d) Toda aquella persona funcionaria, que, con motivo de su puesto, funjan como asesor de cualquiera de las personas funcionarias afectadas por prohibición, o bien, que hayan participado en la elaboración de las especificaciones técnicas, o que deban participar en su fiscalización posterior;
-e) Toda aquella persona funcionaria que esté contratado como chofer;
-f) Toda aquella persona funcionaria que sea cónyuge, compañero o compañera en unión de hecho, de las personas funcionarias cubiertas por la prohibición y que fueron indicadas anteriormente;
-g) Toda aquella persona funcionaria que sea pariente por consanguinidad o afinidad, hasta el tercer grado inclusive, de las personas funcionarias cubiertas por la prohibición, y que fueron indicadas anteriormente.

@@ -1,1 +1,0 @@
-Artículo 6. Será procedente reconocer el pago de kilometraje a las personas funcionarias con contrato de kilometraje en las operaciones estadísticas cuya labor se realiza fuera del GAM para asistir a reuniones y capacitaciones en las oficinas centrales del INEC, previamente autorizadas y convocadas por su jefatura por interés institucional.

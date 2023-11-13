@@ -1,1 +1,0 @@
-Artículo 37. Toda modificación al presente Reglamento es potestad exclusiva del INEC y para su aplicación deberá obtenerse la autorización del Consejo Directivo, remitirse a la CGR para su venia y posteriormente publicación en el diario oficial La Gaceta.
