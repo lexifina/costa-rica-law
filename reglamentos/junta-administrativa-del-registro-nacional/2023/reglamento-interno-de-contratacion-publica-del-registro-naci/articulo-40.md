@@ -1,3 +1,4 @@
 Artículo 40°-De la rescisión del contrato. La Administración podrá rescindir unilateralmente sus contratos no iniciados o en curso de ejecución, por razones de interés público, caso fortuito o fuerza mayor debidamente acreditadas a tenor de la norma recogida en el artículo 115 de la Ley General de Contratación Pública.
 Igualmente podrá la Administración rescindir sus contratos por mutuo acuerdo con la contratista, cuando existan razones de interés público y no concurran causales de incumplimiento atribuibles a esta última, según lo dispuesto en el numeral 116 de la ley supradicha.
-En ambos casos anteriores, el trámite dará a inicio a solicitud del administrador del contrato, en acatamiento del procedimiento establecido en el artículo 50 del presente Reglamento, cuando así corresponda.
+En ambos casos, el trámite dará a inicio por requerimiento del Administrador del Contrato y deberá ser informado de previo a la instancia que realizó la adjudicación, en acatamiento del procedimiento establecido en el artículo 50 del presente Reglamento.
+(Así reformado el párrafo anterior mediante sesión ordinaria N°32-2023 del 13 de noviembre del año 2023)

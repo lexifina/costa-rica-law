@@ -14,3 +14,4 @@ Reglamento interno de contratación pública del Registro Nacional
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-05-23 | la propia norma |
+| 2 | 2023-11-13 | Reglamento 32 (2023-11-13) |
