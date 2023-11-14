@@ -44,3 +44,4 @@ Metodología para la Fijación Ordinaria de Tarifas para el Servicio Remunerado 
 | 29 | 2023-07-11 | Resolución 36 (2023-07-11) |
 | 30 | 2023-08-28 | Resolución 93 (2023-08-28) |
 | 31 | 2023-08-28 | Resolución 92 (2023-08-28) |
+| 32 | 2023-11-14 | Resolución 68 (2023-11-14) |
