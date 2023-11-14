@@ -1,1 +1,0 @@
-Artículo 37.—Deber de cumplimiento: Independientemente del lugar donde se desarrollen las actividades a teletrabajar, el funcionario debe cumplir con todas las condiciones que establezcan los reglamentos y procedimientos aplicables al Programa de Teletrabajo.

@@ -1,3 +1,0 @@
-Artículo 36.-Disposición del teletrabajador en la jornada laboral: El Teletrabajador debe estar disponible dentro de la jornada laboral acordada, para atender asuntos de su Jefatura y compañeros, ya sea por medio del correo electrónico, teléfono, videoconferencia, multiplataforma de comunicación u otro medio.
-Sin perjuicio de lo dispuesto en el párrafo anterior y con el fin de garantizar el respeto de su tiempo de descanso, vacaciones, permisos y su intimidad personal y familiar, la persona teletrabajadora tendrá derecho a la desconexión digital fuera de la jornada u horario establecido, salvo que se trate de situaciones imprevistas y urgentes, en las que se debe contar con su anuencia.
-(Así reformado en sesión N° 38 del 3 de agosto de 2022)

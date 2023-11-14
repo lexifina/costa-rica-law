@@ -1,1 +1,0 @@
-Artículo 30.—Jornada laboral: El Teletrabajador, deberá cumplir con la jornada laboral establecida por el AyA, sin embargo el horario podrá ser flexible, previa coordinación y aprobación de la Jefatura, y en tanto no afecte el normal desarrollo de las actividades y procesos de trabajo de AyA ni de los otros compañeros de trabajo que reciben o entregan insumos para su gestión.

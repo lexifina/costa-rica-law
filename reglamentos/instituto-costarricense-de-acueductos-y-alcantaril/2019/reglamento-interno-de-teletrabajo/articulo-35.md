@@ -1,1 +1,0 @@
-Artículo 35.—Herramientas tecnológicas: El Teletrabajador debe mantenerse actualizado en las herramientas tecnológicas que demanda la ejecución de sus actividades, de acuerdo con lo que establezca AyA, mediante la Dirección de Sistemas de Información.

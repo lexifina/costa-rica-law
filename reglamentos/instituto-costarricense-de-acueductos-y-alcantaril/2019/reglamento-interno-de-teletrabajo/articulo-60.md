@@ -1,1 +1,0 @@
-Artículo 60.—Informes financieros: La Dirección Finanzas será la responsable de elaborar un informe anual que permita identificar, determinar y cuantificar los beneficios institucionales obtenidos y las economías producto de la gestión de teletrabajo.

@@ -1,1 +1,0 @@
-Artículo 56.—Videoconferencia y comunicación: Estarán a cargo de la Dirección Sistemas de Información de AyA, como parte de las acciones que comprende la implementación del teletrabajo y el logro de sus fines como la disminución en costos institucionales por concepto de viáticos, reducción de desplazamientos y ahorro en combustibles entre otros.
