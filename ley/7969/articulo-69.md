@@ -1,0 +1,2 @@
+Artículo 69- Facilidades crediticias. Se autoriza a los bancos del Estado para que otorguen facilidades y se puedan establecer líneas de crédito diferenciadas para los concesionarios de taxi, exclusivamente para la compra de un vehículo nuevo o usado, siempre y cuando este sea utilizado para el servicio de taxi y se cumpla con la normativa correspondiente.
+(Así adicionado por el artículo 2° de la Ley para la protección del taxista ante la actual crisis sanitaria, económica y social, N° 10387 del 14 de noviembre de 2023)
