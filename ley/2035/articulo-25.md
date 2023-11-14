@@ -1,1 +1,5 @@
-Artículo 25.- Los acuerdos de la Junta Directiva se tomarán, salvo disposición expresa en contrario, por el voto de la mayoría absoluta del total de sus miembros.
+Artículo 25- Los acuerdos de la Junta Directiva se tomaran por el voto de la mayoría absoluta de sus miembros asistentes.
+El ministro de Agricultura y Ganadería (MAG), o su representante, deberán separarse del conocimiento, deliberación y votación de todos los asuntos vinculados a la organización y funcionamiento de la Fábrica Nacional de Licores (Fanal), haciendo constar su abstención ante la Junta Directiva.
+Los otros miembros de la Junta Directiva conocerán la motivación que brinde el ministro del MAG o su representante. Una vez conocida, el ministro del MAG, o su representante, deberán abstenerse de emitir su voto y retirarse del recinto, hasta que el órgano colegiado de por cerrado el o los puntos de agenda referidos.
+Todo acuerdo tornado con la participación o el voto del ministro de Agricultura y Ganadería, o de su representante, relativo a asuntos de la Fanal, será absolutamente nulo y podrá constituir una falta al deber de abstención e incumplimiento de deberes previsto en el artículo 339 del Código Penal.
+(Así reformado por el artículo 1° de la ley N° 10425 del 14 de noviembre de 2023)
