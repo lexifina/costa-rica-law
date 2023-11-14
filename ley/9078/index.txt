@@ -122,6 +122,7 @@ articulo-120.md
 articulo-121.md
 articulo-122.md
 articulo-123.md
+articulo-123-bis.md
 articulo-124.md
 articulo-125.md
 articulo-126.md
