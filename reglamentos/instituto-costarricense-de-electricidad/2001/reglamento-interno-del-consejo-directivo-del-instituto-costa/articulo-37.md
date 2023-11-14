@@ -1,1 +1,2 @@
-Artículo 37.—Si la inasistencia sobrepasa las tres sesiones, será necesaria la presentación del correspondiente certificado médico, o documento similar, que demuestre la enfermedad, impedimento o accidente.
+ARTÍCULO 37
+Este Reglamento rige a partir de su publicación en el Diario Oficial La Gaceta.

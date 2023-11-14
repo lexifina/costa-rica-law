@@ -1,3 +1,4 @@
 SECCIÓN II
-Del pago de dietas por enfermedad
-Artículo 35.—Los miembros del Consejo Directivo que por causa de enfermedad o accidente se vean impedidos de asistir a una o más sesiones del Consejo, tendrán derecho a percibir el pago correspondiente, dentro de las regulaciones de este Reglamento.
+- DEL REGLAMENTO
+ARTÍCULO 35
+La Secretaría de este órgano será la encargada de revisar el presente Reglamento cuando así lo estime pertinente el Consejo Directivo y planteará las modificaciones que estime pertinentes ante dicho Órgano Colegiado.

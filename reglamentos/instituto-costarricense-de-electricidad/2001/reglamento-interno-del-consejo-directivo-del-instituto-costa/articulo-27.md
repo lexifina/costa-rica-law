@@ -1,1 +1,4 @@
-Artículo 27.—No podrá ser objeto de acuerdo ningún asunto que no figure en la orden del día, salvo que estén presentes los dos tercios de los miembros del Consejo y se declare la urgencia del mismo por unanimidad.
+SECCIÓN V
+-DE LOS ACUERDOS
+ARTÍCULO 27
+Los acuerdos del Consejo Directivo serán aprobados por mayoría absoluta de los miembros asistentes, presencial o virtualmente, salvo aquellos casos en que expresamente se establezca otra cosa.

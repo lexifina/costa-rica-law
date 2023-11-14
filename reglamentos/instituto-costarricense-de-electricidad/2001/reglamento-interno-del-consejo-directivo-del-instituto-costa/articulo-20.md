@@ -1,1 +1,2 @@
-Artículo 20.—Las sesiones tanto ordinarias como extraordinarias, se realizarán en forma privada, salvo que por unanimidad del Consejo acuerde permitir el acceso del público en general, o algún grupo o personas específicas, a los cuales les podrá conceder el derecho a participar en las deliberaciones con voz pero sin voto.
+ARTÍCULO 20
+Cuando alguno de los directores requiera asistir virtualmente a la sesión, deberá comunicarlo a la Presidencia y a la Secretaría con el tiempo suficiente previo a la hora de inicio de la sesión.

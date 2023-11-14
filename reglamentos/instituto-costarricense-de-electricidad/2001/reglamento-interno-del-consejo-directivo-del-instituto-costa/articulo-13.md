@@ -1,1 +1,5 @@
-Artículo 13.—En caso de ausencia o enfermedad del Secretario en las sesiones ordinarias o extraordinarias, será sustituido por el Secretario Suplente que designe el Consejo Directivo, el cual asumirá los deberes inherentes al cargo de Secretario General, por el tiempo de su ausencia.
+ARTÍCULO 13
+Son Comisiones Permanentes:
+Aquellas designadas por el Consejo Directivo para atender permanentemente algún tema específico y deberán rendir su informe en el plazo que se señale en el momento de su constitución.
+Son Comisiones Especiales:
+Aquellas nombradas por el Consejo Directivo para atender un asunto específico y deberán rendir su informe en el plazo que se señale en el momento de su constitución; no obstante, dicho plazo podrá ser prorrogado a juicio del Consejo Directivo, cuando la complejidad del asunto en investigación lo amerite.

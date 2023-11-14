@@ -1,1 +1,2 @@
-Artículo 31.—Las actas y acuerdos del Consejo Directivo se consideran documentos públicos, salvo que por unanimidad el Consejo declare su confidencialidad, en cuyo caso no podra exceder los treinta días naturales y deberá ser necesariamente razonada, de conformidad con las regulaciones legales vigentes en la materia. La confidencialidad de las actas no surtirá efectos cuando sean solicitadas por autoridad judicial competente.
+ARTÍCULO 31
+Las simples observaciones de forma relativas a la redacción de los acuerdos o errores materiales no serán consideradas para efectos del inciso anterior, como recursos de revisión.

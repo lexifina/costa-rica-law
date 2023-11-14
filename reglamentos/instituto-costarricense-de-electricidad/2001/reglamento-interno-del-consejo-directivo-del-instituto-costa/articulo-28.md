@@ -1,1 +1,2 @@
-Artículo 28.—Los miembros del Consejo Directivo podrán hacer constar en la respectiva acta su voto contrario al acuerdo tomado, y los motivos que lo justifiquen, quedando en tal caso exento de las responsabilidades que, en su caso, pudieren derivarse de los acuerdos.
+ARTÍCULO 28
+No podrá ser objeto de acuerdo, ningún asunto que no figure en el orden del día, salvo que estén presentes, presencial o virtualmente, dos tercios de los miembros del Consejo Directivo y se declare la urgencia por unanimidad.

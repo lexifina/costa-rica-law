@@ -20,3 +20,4 @@ Reglamento Interno del Consejo Directivo del Instituto Costarricense de Electric
 | 5 | 2011-07-28 | Reglamento 5956 (2011-07-28) |
 | 6 | 2012-11-21 | Reglamento 6012 (2012-11-21) |
 | 7 | 2013-10-09 | Reglamento 6062 (2013-10-09) |
+| 8 | 2023-11-14 | Reglamento 6602 (2023-11-14) |

@@ -1,3 +1,2 @@
-SECCIÓN IV
-De los acuerdos
-Artículo 26.—Los acuerdos del Consejo Directivo serán dictados por mayoría absoluta de los miembros asistentes, salvo en aquellos casos en que expresamente se establezca otra cosa.
+ARTÍCULO 26
+Cuando el borrador de acta sea sometido a conocimiento y aprobación del Consejo Directivo, será corregido por el titular de la Secretaría, en caso de ser necesario. Una vez realizadas dichas correcciones, se asentará el acta en el Libro Oficial de Actas, el cual será firmado por el Presidente y el titular de la Secretaría, según sea el caso, dando fe de que dicha acta es fiel del documento aprobado por el Consejo Directivo.

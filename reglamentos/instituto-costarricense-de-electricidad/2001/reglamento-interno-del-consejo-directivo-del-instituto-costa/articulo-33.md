@@ -1,1 +1,2 @@
-Artículo 33.—El monto de dichas dietas será establecido anualmente, de acuerdo con el índice de inflación que determine el Banco Central de Costa Rica.
+ARTÍCULO 33
+El monto de la dieta será el equivalente al 10% del salario base del Contralor General de la República.

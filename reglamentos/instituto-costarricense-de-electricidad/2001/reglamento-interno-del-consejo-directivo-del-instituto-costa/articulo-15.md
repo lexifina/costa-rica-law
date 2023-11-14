@@ -1,3 +1,3 @@
-SECCIÓN VII
-De las comisiones
-Artículo 15.—El Consejo Directivo podrá constituir de su seno Comisiones Permanentes y Comisiones Especiales, las cuales podrán ser mixtas, es decir con participación de funcionarios de la Institución.
+ARTÍCULO 15
+El Consejo Directivo podrá sesionar de forma presencial o virtual, en este último caso siempre que se cumplan las condiciones establecidas en el artículo 19 de este reglamento. Para la realización de sesiones virtuales, los miembros del Órgano Colegiado dispondrán del equipo y el apoyo logístico necesario, con los mecanismos de seguridad y confidencialidad que garanticen su privacidad.
+Habiéndose convocado una sesión de manera presencial y dado el caso que alguno de los miembros tenga algún impedimento para asistir de forma presencial, el Consejo Directivo tomará la decisión de definir si dicha sesión se realiza de forma virtual, dejando constancia en el acta correspondiente.
