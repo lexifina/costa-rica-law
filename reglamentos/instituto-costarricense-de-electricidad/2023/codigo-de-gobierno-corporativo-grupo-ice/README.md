@@ -14,3 +14,4 @@ Código de Gobierno Corporativo Grupo ICE
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-06-16 | la propia norma |
+| 2 | 2023-11-14 | Reglamento 6602 (2023-11-14) |
