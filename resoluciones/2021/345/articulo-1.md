@@ -1,4 +1,6 @@
+(Revocada)
 SERVICIO NACIONAL DE ADUANAS
+(Esta norma fue revocada por resolución N° MH-DGA-APB-GER-RES-0504-2023 del 14 de noviembre del 2023, “Delega funciones a la Subgerencia de la Aduanas de Peñas Blanca”)
 RES-APB-DN-0345-2021.-Aduana de Peñas Blancas, al ser las once horas del dieciséis de marzo de dos mil veintiuno.
 Conoce esta Gerencia la delegación expresa de competencias en la Subgerencia de esta aduana en relación a la directriz DGA- 368-2014 del 12 de junio de 2014, dictada por el señor Director General de Aduanas en donde se emitió lineamientos, respecto a las delegaciones de funciones de los Gerentes de las Aduanas, y se dejó sin efecto la directriz DGA-448-2013 del 18 de octubre del 2013.
 Resultando:

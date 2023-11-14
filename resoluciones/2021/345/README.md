@@ -14,3 +14,4 @@ Delega funciones a la Subgerencia de la Aduanas de Peñas Blanca
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-04-14 | la propia norma |
+| 2 | 2023-11-14 | Resolución 504 (2023-11-14) |
