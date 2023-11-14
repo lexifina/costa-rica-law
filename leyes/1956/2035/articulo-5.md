@@ -1,8 +1,11 @@
 Artículo 5.- Para cumplir sus fines, el Consejo Nacional de Producción tendrá como actividades ordinarias, las siguientes:
 a) Fomentar, facilitar y propiciar condiciones que generen los procesos organizativos, nacionales y regionales, y los de cooperación entre organizaciones y grupos de productores nacionales.
 b) Operar los silos, las secadoras, cámaras de refrigeración, plantas de transformación e industrialización agrícola u otro medio de almacenamiento, movilización y transporte de los artículos que puedan ser adquiridos por ley.
+Podrá dar en arriendo, en préstamo gratuito u oneroso, sus terrenos o parte de estos a organizaciones de pequeños y medianos productores agropecuarios, cooperativas y centros agrícolas para la comercialización de productos agropecuarios, siempre y cuando se asegure que los beneficiarios son productores inscritos en el Ministerio de Agricultura y Ganadería (MAG) de la región como productores locales.
 Podrá dar en arriendo, en préstamo gratuito u oneroso o en administración, en forma directa, con organizaciones de pequeños y medianos productores agropecuarios, la infraestructura y las actividades antes señaladas, excepto la Fábrica Nacional de Licores.
-Por acuerdo de la Junta Directiva, el Consejo podrá tomar en arriendo de particulares, tales instalaciones y servicios.
+Podrá recibir donaciones de cualquier especie, que faciliten los fines para los cuales fue creado.
+Por acuerdo de la Junta Directiva, el Consejo podrá tomar en arriendo de particulares tales instalaciones y servicios.
+(Así reformado el inciso b) anterior por el artículo único de la Ley para favorecer mecanismos para la comercialización directa de los productores agropecuarias mediante sus organizaciones, N° 10413 del 14 de noviembre de 2023)
 c) Impulsar y fomentar la industrialización agrícola y pecuaria, en las zonas cuya posibilidad de producción lo amerite.
 d) Llevar a cabo, mediante contratación o convenios, trabajos de conservación de suelos.
 e) Coordinar sus actividades con organismos o instituciones estatales, que coadyuven al fomento de la producción nacional.
