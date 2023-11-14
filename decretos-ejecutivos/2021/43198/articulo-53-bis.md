@@ -1,0 +1,2 @@
+Artículo 53 bis. - Deducciones del impuesto sobre rentas de capital y ganancias de capital relacionadas con rentas pasivas extraterritoriales. Del impuesto determinado según lo establecido en los artículos 51 y 53 de este reglamento, toda entidad no calificada que pertenezca a un grupo multinacional podrá deducir el impuesto análogo retenido o pagado en el exterior, de acuerdo con lo establecido en el artículo 31 ter de la Ley.
+(Así adicionado por el artículo 2° del decreto ejecutivo N° 44262 del 14 de noviembre de 2023)
