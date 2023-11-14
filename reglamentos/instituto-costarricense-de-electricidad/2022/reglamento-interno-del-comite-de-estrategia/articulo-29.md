@@ -3,7 +3,8 @@ De las funciones del Comité de Estrategia
 Sección I
 De las funciones
 Artículo 29.-De las funciones institucionales.
-1. Analizar y valorar la formulación de la Estrategia Empresarial ICE, los Planes de Gestión de las Gerencias y planes derivados (mercadeo, comercialización, tecnologías de información, entre otros), su alineamiento operativo-táctico-estratégico, previo a su aprobación por parte del Consejo Directivo; así como, valorar durante su seguimiento los reportes de ejecutoria con el fin de informar al Órgano Colegiado sobre sus resultados u oportunidades de mejora.
+1. Analizar y valorar la formulación de la Estrategia Empresarial ICE, su alineamiento operativo-táctico-estratégico, previo a su aprobación por parte del Consejo Directivo; así como, valorar durante su seguimiento los reportes de ejecutoria con el fin de informar al Órgano Colegiado sobre sus resultados u oportunidades de mejora.
+(Así reformada la definición anterior mediante sesión N° 6602 del 14 de noviembre de 2023)
 2. Conocer y evaluar anualmente en el mes de enero los estudios sobre análisis competitivo y tendencias de la industria.
 3. Conocer los modelos de negocio, de forma anual, en procura de maximizar sus capacidades, mejorar la productividad de sus activos tangibles e intangibles, fortalecer la propuesta de valor y oferta de servicios a los clientes, así como la participación relativa en los mercados en que opera.
 4. Conocer documentos normativos relacionado con políticas de carácter institucional que le corresponde aprobar al Consejo Directivo relacionados con la materia y competencias del Comité.

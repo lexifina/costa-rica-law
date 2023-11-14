@@ -1,6 +1,7 @@
 Artículo 30.-De las funciones corporativas.
 1. Conocer documentos normativos relacionada con políticas, directrices y lineamientos de carácter corporativo que le corresponde aprobar al Consejo Directivo relacionados con la materia y competencias del Comité.
-2. Analizar y valorar la formulación de la Estrategia Corporativa y Estrategias Empresariales del Grupo ICE y su alineamiento táctico-estratégico, previo a su aprobación por parte del Consejo Directivo; así como, valorar durante su seguimiento los reportes de ejecutoria con el fin de informar al Órgano Colegiado, sobre sus resultados u oportunidades de mejora.
+2. Analizar y valorar la formulación de la Estrategia Corporativa y Estrategias Empresariales del Grupo ICE y su alineamiento táctico-estratégico, previo a su aprobación o ratificación por parte del Consejo Directivo; así como, valorar durante su seguimiento los reportes de ejecutoria con el fin de informar al Órgano Colegiado, sobre sus resultados u oportunidades de mejora.
+(Así reformada la definición anterior mediante sesión N° 6602 del 14 de noviembre de 2023)
 3. Conocer y evaluar de forma anual en el mes de enero, los estudios sobre análisis competitivo y tendencias de la industria.
 4. Conocer los modelos de negocio de las empresas del Grupo ICE de forma anual, en procura de maximizar sus capacidades, mejorar la productividad de sus activos tangibles e intangibles, fortalecer la propuesta de valor y oferta de servicios a los clientes, así como la participación relativa en los mercados en que opera.
 5. Conocer y evaluar la gestión corporativa en materia de sinergias, venta de productos y servicios no regulados, a efectos de que se genere la mayor rentabilidad de activos e impacto en la situación competitiva del Grupo ICE.

@@ -6,3 +6,5 @@ Artículo 7º-Deberes. Son deberes de los miembros del Comité los siguientes:
 5. Disponer, de los medios tecnológicos adecuados y el apoyo logístico necesario para sesionar de manera virtual, con los mecanismos de seguridad para garantizar la autenticidad e integridad de la voluntad del Órgano Colegiado, la conservación de lo actuado y la confidencialidad.
 6. Coordinar con la Secretaría, con el tiempo suficiente previo a la hora de inicio de la sesión virtual, para asegurar que tiene las condiciones necesarias para participar de forma segura en la sesión.
 7. Cumplir lo dispuesto en la "Política sobre Conflictos de Interés Grupo ICE" aprobada por el Consejo Directivo.
+8. Verificar que las sesiones sean grabadas en audio y video.
+(Así adicionada la definición anterior mediante sesión N° 6602 del 14 de noviembre de 2023)
