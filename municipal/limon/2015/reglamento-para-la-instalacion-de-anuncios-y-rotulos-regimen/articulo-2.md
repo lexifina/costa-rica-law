@@ -1,1 +1,0 @@
-Artículo 2º—Ámbito de aplicación. El presente reglamento se aplicará en toda el área jurisdiccional del cantón Central de la provincia de Limón. Se exceptúa el pago de patente el rótulo propio del establecimiento, siempre y cuando no exceda 1.00 metro cuadrado.
