@@ -1,3 +1,0 @@
-Artículo 19.—Localización y pendiente de las áreas públicas. Los terrenos en que se ubiquen las áreas públicas deberán tener una pendiente no mayor al promedio de la que tiene todo el terreno urbanizable y deberán ubicarse atendiendo los siguientes criterios:
-a) Contiguo a áreas públicas ya establecidas si las hubiere y si su ubicación es adecuada, o preferentemente en la periferia cuando las áreas aledañas no estén desarrolladas;
-b) A distancia no mayor de 300 m de la vivienda más alejada (medidos sobre calles) para áreas de juegos infantiles y en sitios en los cuales no se deban cruzar vías primarias para llegar a ellas desde las viviendas a que sirvan.

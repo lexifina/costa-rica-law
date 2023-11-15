@@ -1,1 +1,0 @@
-Artículo 29.—Densidad habitacional máxima. En caso, sean condominios horizontales (terreno y casa), de lotes (únicamente terreno) o verticales (edificios de vivienda multifamiliar), la densidad habitacional máxima será la establecida para la zona según el Reglamento de Zonificación del Plan Regulador del Cantón Central de Limón.
