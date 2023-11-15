@@ -223,17 +223,18 @@ Requisitos específicos:
 a. Estar debidamente inscrito como Especialista en Neurocirugía, en el Colegio de Médicos y Cirujanos.
 b. Aprobación de un programa de estudios de posgrado (residencia médica) de un (1)
 año en la Subespecialidad en Neuro-Oncología, en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad.
-16.15.4. Neuroradiología Quirúrgica Endovascular.
-Se reconocen como sinónimos de esta Subespecialidad, los siguientes términos: Cirugía Neurointervencional; Neuroradiología Intervencional y Terapéutica; Neuroradiología Intervencional y Vascular; Neuroradiología Diagnóstica e Intervencional; Neuroradiología Intervencional; Neuroradiología Endovascular.
+(*)16.15.4. Neurorradiología Quirúrgica Endovascular.
+Se reconocen como sinónimos de esta Subespecialidad, los siguientes términos: Cirugía Neurointervencional; Neurorradiología Intervencional y Terapéutica; Neurorradiología Intervencional y Vascular; Neurorradiología Diagnóstica e Intervencional; Neurorradiología Intervencional; Neurorradiología Endovascular y Neurorradiología Terapéutica
 Requisitos específicos:
 a. Estar debidamente inscrito como Especialista en Neurocirugía ante el Colegio de Médicos y Cirujanos.
-b. Aprobación de un programa de estudios de posgrado (residencia médica) de un (1) año en la Subespecialidad de Neuroradiología Quirúrgica Endovascular, en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad.
+b. Aprobación de un programa de estudios de posgrado (residencia médica) de un (1) año en la Subespecialidad de Neurorradiología Quirúrgica Endovascular, en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad.
 Este programa de estudios debe contemplar y garantizar:
 i. Un curso de conocimientos básicos de radiología, que incluya física de la radiación, biología de la radiación, protección radiológica y farmacología de los materiales de contraste radiográfico.
-ii. Certificación de haber realizado e interpretado un mínimo de 50 neuroangiogramas diagnósticos bajo la supervisión de un médico capacitado (neuroradiólogo intervencionista, neurocirujano endovascular o neurólogo intervencionista con formación adecuada).
+ii. Certificación de haber realizado e interpretado un mínimo de 50neuroangiogramas diagnósticos bajo la supervisión de un médico capacitado (neurorradiólogo intervencionista, neurocirujano endovascular o neurólogo intervencionista con formación adecuada).
 iii. El uso de agujas, catéteres, guías y dispositivos angiográficos y de materiales.
 iv. El reconocimiento y manejo de complicaciones de los procedimientos angiográficos.
-v. La comprensión de los fundamentos de estudios no invasivos de imágenes neurovasculares pertinentes para la práctica de la neuroradiología endovascular quirúrgica, incluyendo CT/ CTA, MR/ MRA y la ecografía de las enfermedades neurovasculares.
+v. La comprensión de los fundamentos de estudios no invasivos de imágenes neurovasculares pertinentes para la práctica de la neurorradiología endovascular quirúrgica, incluyendo CT/ CTA, MR/ MRA y la ecografía de las enfermedades neurovasculares.
+(*) (Así reformada la subespecialidad 16.15.4) anterior mediante sesión ordinaria 2023-11.15 del 15 de noviembre de 2023)
 16.16. Subespecialidades Médicas de Neurología
 16.16.1. Medicina del Sueño.
 Requisitos específicos:
@@ -245,22 +246,17 @@ Requisitos específicos:
 a. Estar debidamente inscrito como Especialista en Neurología ante el Colegio de Médicos y Cirujanos.
 b. Aprobación de un programa de estudios de posgrado (residencia médica) de un (1)año en la Subespecialidad de Neurología Vascular, en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad.
 Este programa de estudios debe contemplar y garantizar como mínimo conocimientos en mecanismos fundamentales del accidente cerebrovascular y otros trastornos vasculares del Sistema Nervioso, incluyendo: manifestaciones clínicas, estrategias de diagnóstico, cuestiones epidemiológicas, caracterización etiopatogénico y estrategias de tratamiento.
-16.16.3. Neuroradiología Quirúrgica Endovascular.
-Se reconocen como sinónimos de esta Subespecialidad, los siguientes términos: Cirugía Neurointervencional; Neuroradiología Intervencional y Terapéutica; Neuroradiología Intervencional y Vascular; Neuroradiología Diagnóstica e Intervencional; Neuroradiología; Neuroradiología Endovascular.
+(*)16.16.3. Neurorradiología Quirúrgica Endovascular.
+Se reconocen como sinónimos de esta Subespecialidad, los siguientes términos: Cirugía Neurointervencional; Neurorradiología Intervencional y Terapéutica; Neurorradiología Intervencional y Vascular; Neurorradiología Diagnóstica e Intervencional; Neurorradiología Intervencional; Neurorradiología Endovascular y Neurorradiología Terapéutica
 Requisitos específicos:
 a. Estar debidamente inscrito como Especialista en Neurología ante el Colegio de Médicos y Cirujanos.
-b. Aprobación de un programa de estudios de posgrado (residencia médica) de un (1) año en un programa de estudios de posgrado (residencia médica) en la Subespecialidad de Neuroradiología Quirúrgica Endovascular, en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad.
+b. Aprobación de un programa de estudios de posgrado (residencia médica) de un (1) año en la Subespecialidad de Neurorradiología Quirúrgica Endovascular, en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad.
 c. Aprobación de un programa de estudios de posgrado (residencia médica) de un (1) año en Neurología Vascular/Enfermedad Cerebro Vascular, en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad.
 Este programa de estudios debe contemplar y garantizar:
 I. Rotaciones en Cuidados Neurointensivos al menos de 3 meses de duración.
 II. Aprobación de un programa de estudios de posgrado (residencia médica) de tres (3) meses en Neurocirugía, en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad.
-III. Aprobación de un programa de estudios de posgrado (residencia médica) de un (1) año en la Subespecialidad de Neuroradiología en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad.
-Este programa de estudios debe contemplar y garantizar:
-i. Un curso de conocimientos básicos de radiología, que incluya física de la radiación, biología de la radiación, protección radiológica y farmacología de los materiales de contraste radiográfico.
-ii. Certificación de haber realizado e interpretado un mínimo de 50 neuroangiogramas diagnósticos bajo la supervisión de un médico capacitado (neuroradiólogo intervencionista, neurocirujano endovascular o neurólogo intervencionista con formación adecuada).
-iii. El uso de agujas, catéteres, guías y dispositivos angiográficos y de materiales.
-iv. El reconocimiento y manejo de complicaciones de los procedimientos angiográficos.
-v. La comprensión de los fundamentos de estudios no invasivos de imágenes neurovasculares pertinentes para la práctica de la neuroradiología endovascular quirúrgica, incluyendo CT/CTA, MR/MRA y la ecografía de las enfermedades neurovasculares.
+III. Aprobación de un programa de estudios de posgrado (residencia médica) de un (1) año en la Subespecialidad de Neurorradiología en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad.
+(*) (Así reformada la subespecialidad 16.16.3) anterior mediante sesión ordinaria 2023-11.15 del 15 de noviembre de 2023)
 16.16.4. Neuropsiquiatría.
 Requisitos Específicos:
 a. Estar debidamente inscrito como Especialista en Neurología ante el Colegio de Médicos y Cirujanos.
@@ -477,14 +473,16 @@ b. Aprobación de un programa de estudios de posgrado (residencia médica) de un
 Requisitos específicos:
 a. Estar debidamente inscrito como Especialista en Radiología e Imágenes Médicas, en el Colegio de Médicos y Cirujanos.
 b. Aprobación de un programa de estudios de posgrado (residencia médica) de un (1) año en la Subespecialidad en Neuroradiología, en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad.
-16.22.3. Neuroradiología Quirúrgica Endovascular.
-Se reconocen como sinónimos de esta Subespecialidad, los siguientes términos: Cirugía Neurointervencional; Neuroradiología Intervencional y Terapéutica; Neuroradiología Intervencional y Vascular; Neuroradiología Diagnóstica e Intervencional; Neuroradiología Intervencional; Neuroradiología Endovascular.
+(*) 16.22.3. Neurorradiología Quirúrgica Endovascular.
+Se reconocen como sinónimos de esta Subespecialidad, los siguientes términos: Cirugía Neurointervencional; Neurorradiología Intervencional y Terapéutica; Neurorradiología
+Intervencional y Vascular; Neurorradiología Diagnóstica e Intervencional; Neurorradiología Intervencional; Neurorradiología Endovascular y Neurorradiología Terapéutica
 Requisitos específicos:
 a. Estar debidamente inscrito como Especialista en Radiología e Imágenes Médicas, ante el Colegio de Médicos y Cirujanos.
-b. Aprobación de un programa de estudios de posgrado (residencia médica) de un (1) año en la Subespecialidad de Neuroradiología Quirúrgica Endovascular, en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad.
-c. Aprobación de un programa de estudios de posgrado (residencia médica) de un (1) año en la Subespecialidad de Neuroradiología, en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad.
+b. Aprobación de un programa de estudios de posgrado (residencia médica) de un (1) año en la Subespecialidad de Neurorradiología Quirúrgica Endovascular, en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad.
+c. Aprobación de un programa de estudios de posgrado (residencia médica) de un (1) año en la Subespecialidad de Neurorradiología, en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad.
 d. Aprobación de un programa de estudios de posgrado (residencia médica) de seis (6) meses en Neurocirugía, Neurología Vascular y Cuidados Neurointensivos, en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad.
-e. Certificación de haber realizado e interpretado un mínimo de 50 neuroangiogramas diagnósticos bajo la supervisión de un médico capacitado (neuroradiólogo intervencionista, neurocirujano endovascular o neurólogo intervencionista con formación adecuada).
+e. Certificación de haber realizado e interpretado un mínimo de 50 neuroangiogramas diagnósticos bajo la supervisión de un médico capacitado (neurorradiólogo intervencionista, neurocirujano endovascular o neurólogo intervencionista conformación adecuada)
+(*) (Así reformada la subespecialidad 16.22.3) anterior mediante sesión ordinaria 2023-11.15 del 15 de noviembre de 2023)
 16.22.4. Oncoradiología.
 Requisitos específicos:
 a. Estar debidamente inscrito como Especialista en Radiología e Imágenes Médicas, en el Colegio de Médicos y Cirujanos.
