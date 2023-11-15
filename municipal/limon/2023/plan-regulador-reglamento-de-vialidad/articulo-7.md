@@ -1,0 +1,7 @@
+ARTICULO 7. Vías públicas originadas en operaciones de fraccionamiento y/o urbanización.
+Aprobado un plano de fraccionamiento o urbanización, de acuerdo con el Reglamento de Fraccionamiento y Urbanizaciones del Plan Regulador del Cantón Central de Limón, los terrenos que se indiquen en el diseño de sitio como destinados a vías públicas y cuya donación haya sido aceptada por el Concejo Municipal, saldrán del dominio del fraccionador y pasarán al dominio público.
+Para ser recibidas estas vías públicas deben estar debidamente construidas, con las condiciones adecuadas de superficie de rodamiento, sistemas de drenaje, aceras y señalización adecuada, tal y como lo requiere la aplicación del Reglamento de Fraccionamientos y Urbanizaciones del INVU y según lo solicitado por el artículo 32 de la Ley 4240 de Planificación Urbana.
+Por lo tanto, no basta con que el terreno le sea trasladado a la municipalidad, también debe recibirse la vía con la infraestructura pública mínima necesaria y todos los servicios públicos (electricidad, alumbrado público, telecomunicaciones y agua potable).
+Cumplidos dichos requisitos, serán incorporadas dentro del inventario correspondiente.
+Dentro de los proyectos de continuidad vial propuestos y definidos en el Mapa Oficial como son: la ruta 32 a Valle Aurora, de Ruta 241 a Beverly y la Ruta 32 a Santa Rosa.
+Estas continuidades corresponden al crecimiento poblacional, la conectividad entre las zonas y el acceso a la ruta Nacional.

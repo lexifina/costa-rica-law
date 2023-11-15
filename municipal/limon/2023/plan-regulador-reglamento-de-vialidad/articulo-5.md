@@ -1,0 +1,6 @@
+ARTICULO 5. Deslinde de las Competencias.
+El conjunto de caminos de uso público según su función, se clasificarán en Red Vial Nacional y Red Vial Cantonal, de acuerdo con el Mapa Oficial del Plan Regulador. La jurisdicción del MOPT queda circunscrita y delimitada a las carreteras comprendidas en la Red Vial Nacional, quedando las vías cantonales restantes bajo la administración de la Municipalidad.
+Es competencia de la Unidad Técnica de Gestión Vial, el mantenimiento racional de las vías públicas de la Red Vial Cantonal, así como dictar las medidas necesarias para que estos espacios públicos ofrezcan seguridad vial, salubridad, comodidad, libre tránsito, vialidad y belleza, por lo cual resolverá:
+a. Establecer la jerarquía de las vías de la red vial cantonal y ancho de calzadas de acuerdo a las leyes y reglamentos superiores vigentes.
+b. Dictar los alineamientos en las vías con vista al presente Reglamento y al mapa de vialidad del Cantón Central de Limón.
+c. Concesionar los permisos de ocupación en precario de la vía pública con el mobiliario urbano (casetas, bancas, basureros, casetas de teléfonos públicos, arborización, y otros similares que ocupen la vía pública), nomenclatura, mensajes publicitarios, obras provisionales y ferias y espectáculos públicos. Todo dentro del marco de competencias internas dentro de la Municipalidad.

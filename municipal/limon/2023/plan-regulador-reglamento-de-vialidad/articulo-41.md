@@ -1,0 +1,2 @@
+ARTICULO 41. Garantía de Cumplimiento.
+Para cualquier obra que se realice producto de este reglamento la persona física o jurídica, deberá rendir una garantía de cumplimiento a La Administración entre el 5% y el 10% del monto adjudicado. En caso de omisión cartelería, se entenderá que la garantía es de un 5% sobre el respectivo monto. Y además deberá cumplir las disposiciones establecidas en los artículos 40 y 41 del Reglamento a la Ley de Contratación Administrativa.

@@ -1,0 +1,4 @@
+CAPÍTULO V OCUPACIÓN Y USO DEL ESPACIO PÚBLICO
+ARTICULO 31. Ocupación del espacio público.
+En las vías, parques y plazas de su administración, por acuerdo del Concejo Municipal, la Municipalidad podrá otorgar permisos temporales y revocables, para aprovecharlas con determinados fines, incluyendo privados, de lucro y mobiliario urbano. La decisión para este tipo de concesiones debe respaldarse en programas integrales de renovación urbana y embellecimiento de la ciudad.
+De conformidad con el artículo 83 del Reglamento de Fraccionamientos y Urbanizaciones de este Plan Regulador, la colocación de estructuras en espacios públicos debe permitir la accesibilidad y estar a una altura mínima de 2,50 m de conformidad con el artículo 125 del Reglamento de Construcciones del INVU, salvo en el caso de los postes, los cuales deben ubicarse en las franjas verdes sin que las traspasen, de tal forma que no obstruyan el paso de personas y vehículos.

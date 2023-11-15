@@ -1,0 +1,2 @@
+ARTICULO 36. Zonas de carga y descarga.
+Cuando en las áreas urbanas se requiera de espacios para carga y descarga de mercancías, debido a las actividades comerciales, los espacios destinados en vía pública serán aquellos que no entorpezcan el tránsito de la zona. Estos espacios sólo podrán ser utilizados en labores de carga y descarga en el horario que fije la Municipalidad fundamentado en un estudio para tal fin. Fuera de estos horarios, dichos espacios podrán ser ocupados por el resto de los vehículos si así se permitiese.

@@ -1,0 +1,3 @@
+ARTICULO 27. Rampa en esquinas.
+En todas las esquinas se construirán rampas de longitud igual al ancho del área verde para salvar el desnivel existente entre la calle y la acera. Estas rampas deberán tener un ancho mínimo de un metro veinte centímetros (1,20m)., ser de material antideslizante, tener una estría de un centímetro (1cm), de profundidad mínima cada diez centímetros (10cm) y estar ubicadas fuera de la sección curva de intersección.
+Estas tendrán gradiente máxima de un diez por ciento (10%), ser construidas del mismo material que las aceras y acompañarse con una barandilla a una altura de noventa centímetros (90cm). La acera, así como la rampa para personas con discapacidad deberán tener un ancho mínimo de un metro veinte centímetros (1.20m).

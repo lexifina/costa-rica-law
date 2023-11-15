@@ -1,0 +1,4 @@
+ARTICULO 64. Propósito.
+Las terminales de transporte público tienen como propósito descongestionar el casco urbano del Cantón Central de Limón y su entorno inmediato de la presencia de autobuses y taxis, brindando con ello prioridad al tránsito peatonal y a la actividad comercial y de servicios comunales e institucionales que se prestan en el cuadrante urbano, en un ambiente más sano y de mayor seguridad al peatón.
+Para lo dispuesto en el párrafo anterior, la Municipalidad y el MOPT, conforme a lo que proyecta el presente Plan Regulador, habilitarán aquellas áreas de dominio público o privado que aparecen reservadas a tal fin.
+Los diseños de terminales de transporte público deben buscar la formación de un centro urbano polifuncional de alta densidad y con posibilidades de futuro crecimiento, buscando la compatibilidad con actividades comerciales y de servicios.

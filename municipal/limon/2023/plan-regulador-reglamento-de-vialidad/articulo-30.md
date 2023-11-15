@@ -1,0 +1,2 @@
+ARTICULO 30. Paradas de autobuses.
+En conjuntos que contemplan la construcción de más de cincuenta (50) unidades de vivienda y que tengan frente a calles primarias se proveerá un área de estacionamiento para vehículos de transporte colectivo previendo además la eventual construcción de refugios de espera cubierto. Para lo anterior se deberá ampliar el derecho de vía en no menos de dos metros cincuenta centímetros (2,50m), y por una longitud de catorce metros (14m).
