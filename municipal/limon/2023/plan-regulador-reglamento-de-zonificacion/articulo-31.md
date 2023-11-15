@@ -1,0 +1,5 @@
+ARTICULO 31. Zonas de Renovación Urbana (ZRU)
+Zonas de Renovación Urbana (ZRU)
+La zona de renovación urbana corresponde a las urbanas en decadencia, en estado defectuoso o en proceso de deterioro, con la finalidad de rehabilitar o remodelar las mismas.
+Las áreas que conforman la zona de renovación urbana han sido incluidas e identificadas en el mapa de zonificación. Dichas zonas, las cuales se delimitan mediante una cobertura adicional sobrepuesta al régimen de zonificación incluido en el mapa, quedarán debidamente constituidas, a efectos de aplicar sobre las mismas la normativa legal y reglamentaria correspondiente a dichas áreas, una vez sea aprobado el programa de renovación respectivo para cada área, de conformidad con lo dispuesto en el artículo 52 de la Ley de Planificación Urbana.
+Los parámetros urbanos para cada uno de los polígonos que conforman la zona de renovación urbana serán definidos en consideración de la aplicación del artículo 52 de la Ley de Planificación Urbana y el artículo 13 del Reglamento de Renovación Urbana del INVU.

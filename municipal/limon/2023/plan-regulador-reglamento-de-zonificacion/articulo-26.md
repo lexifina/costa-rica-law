@@ -1,0 +1,7 @@
+ARTICULO 26. Zona Rural de Uso extensivo (T1)
+Propiedades de cultivo o con asentamientos dispersos. Zonas caracterizadas predominantemente por la presencia de usos rurales como cobertura boscosa, actividades agropecuarias y sistemas hídricos profusos. En su fragilidad ambiental, predominan los sectores II-A Terrenos con relieve moderado a alto, incluye bosques y tierras agrícolas de riego y pastizales. Zonas de bosque fragmentado y/o degenerado representan cierto valor como refugio de la flora y fauna. Terrenos dedicados a ganadería y sembradíos y presenta cierta pérdida del suelo por erosión de uso extensivo. Limitación para la ocupación humana permanente. Perdida de la capa de suelo debido a la vulnerabilidad a los procesos de erosión.
+En el caso de zonas rurales, terrenos usados para la ganadería o plantaciones anuales pueden presentar cierto riesgo al respecto de la pérdida de la capa de suelo debido a la vulnerabilidad a los procesos de erosión.
+En el caso de la presencia de bosques intervenidos fragmentados y/o degradados se recomienda dejar una buena parte de estos terrenos en recuperación con el fin de generar una cobertura boscosa más sana.
+1) Los parámetros urbanos en zonas T1 son los siguientes:
+Cobertura Máxima | Altura máxima | Área mínima | Frente mínimo | Densidad (viv/ha) | Retiro Frontal | Retiro Lateral y Posterior
+40% (Aplicación art. 27 Reg. Construcci ones PR) | 4 pisos o 14 m | 10 000 m2 | 50 m | 1 unidad por hectárea | 2 m en vías de la red Cantonal | De conformidad con lo indicado en el Reglamento de Construcciones del INVU

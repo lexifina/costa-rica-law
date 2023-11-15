@@ -1,0 +1,3 @@
+ARTICULO 32. Área de Regímenes Especiales (ZRE)
+Regímenes especiales, JAPDEVA y Aeropuerto de Limón
+La altura máxima permitida no aplicará en todos aquellos sectores afectados por las superficies restringidas para la navegación aérea, establecidas por el. Dirección General de Aviación Civil, para el aeropuerto de Limón, así como también quedan a salvo de estas normas en su totalidad, los terrenos que forman parte del Complejo Portuario Limón- Moín, sin perjuicio de los planes de desarrollo que tenga dispuesto para estos terrenos, la referida autoridad portuaria JAPDEVA de conformidad con la Ley N°5337 de 1973 y sus reformas.

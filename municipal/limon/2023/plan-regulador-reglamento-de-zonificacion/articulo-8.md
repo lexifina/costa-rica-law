@@ -1,0 +1,3 @@
+ARTICULO 8. Uso existente no conforme.
+Todo aquel uso o actividad existente que no sea acorde a la zonificación del Plan Regulador deberá contar con licencia municipal emitida antes de la promulgación de dicho Plan, sean estos permisos de construcción para actividades específicas o patentes, para ser considerados como "Uso Existente No Conforme" de acuerdo con los artículos 28 y 29 de la Ley de Planificación Urbana, en tanto se mantenga vigente la Licencia Municipal que lo ampara.
+En todo caso, no se permitirá la ampliación y remodelación de construcciones existentes, únicamente se permitirán reparaciones.

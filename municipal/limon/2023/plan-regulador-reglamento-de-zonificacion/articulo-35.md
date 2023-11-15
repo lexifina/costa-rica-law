@@ -1,0 +1,8 @@
+ARTICULO 35. Zona de Agroindustria en áreas inundables (ZAII).
+Comprende zonas con presencia de Agroindustria ligada principalmente a la actividad Bananera del Cantón, ubicada en terrenos del tipo I-B, razón por la cual se califican como áreas con grandes limitaciones para la ocupación humana. No obstante, las áreas de influencia directa de cauces de los ríos principales tienen potencial de uso para fines agropecuarios siempre y cuando se tome en cuenta el posible peligro de una pérdida de esos recursos si acontecieran eventos vinculados a las amenazas naturales descritas. Para prevenir la contaminación de las aguas superficiales y subterráneas se limitará el uso de agroquímicos tóxicos y se evolucionará hacia un sistema agroecológico. Se contemplarán medidas tecnológicas y de compensación ambiental.
+1) Los parámetros urbanos en zonas ZAII son los siguientes:
+Cobertura Máxima | Altura máxima | Área mínima | Frente mínimo | Densidad (viv/ha) | Retiro Frontal | Retiro Lateral y Posterior
+| | | | | | | De conformidad
+5% | 2 pisos o 7 m | 10 m2 | 000 | 50 m | 1 unidad por hectárea | 2 m en vías de la red Cantonal | con lo indicado en el Reglamento de Construcciones
+| | | | | | | del INVU
+2) En estas zonas no será permitido el desarrollo de viviendas o edificaciones, sin antes haber realizado un estudio de cotas de inundación, con el fin de confirmar la afectación por inundación a la propiedad. Las medidas de mitigación recomendadas en este estudio deberán ser ejecutadas de previo a la construcción de futuras viviendas. Este tipo de estudios pueden ser realizados por la Municipalidad a efectos de brindar seguridad jurídica a los administrados.

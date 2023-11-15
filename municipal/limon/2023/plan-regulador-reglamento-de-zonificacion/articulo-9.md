@@ -1,0 +1,2 @@
+ARTICULO 9. Uso no listado.
+En el caso que una actividad o uso del suelo no esté explícitamente indicado en la tabla de usos de la zona donde se ubica la propiedad, la Municipalidad deberá considerar las características que más se asemejan a los usos indicados en el plan regulador y considerar las que tengan el potencial de generar molestias a los vecinos circundantes, para emitir un criterio respecto al certificado de uso del suelo solicitado. En todo caso, estos usos deberán ser considerados como usos condicionales.
