@@ -1,1 +1,0 @@
-Artículo 17—Inspecciones y notificaciones. Las inspecciones y notificaciones relacionadas con la aplicación del presente Reglamento, serán competencia de la Dirección de Ingeniería y Proyectos y su ejecución deberá ser conforme al debido proceso.

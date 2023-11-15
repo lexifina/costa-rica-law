@@ -1,5 +1,0 @@
-CAPITULO II
-DE LAS OBRAS MENORES
-Sección I
-Aspectos Generales
-Artículo 11—Fundamento. La Municipalidad del Cantón Central de Limón, en adelante denominada como la Municipalidad, de conformidad con las facultades que le otorga el artículo 169 de la Constitución Política de Costa Rica, Ley de Planificación Urbana número 4240 y sus reformas, la Ley de Construcciones número 833 y su Reglamento, el Reglamento para el Control Nacional de Fraccionamiento y Urbanizaciones, la Ley Reguladora de Propiedad en Condominio número 7933 y su Reglamento y el Código Municipal Ley 7794, promulga el presente Reglamento de los Artículos 75, 76, 76 bis y 76 ter. del Código Municipal. Las disposiciones del Reglamento serán de aplicación y acatamiento obligatorio para todas las personas, físicas o jurídicas, propietarias de bienes inmuebles localizados dentro de los límites político-administrativos que corresponden al Cantón Central de Limón, conforme a lo establecido en el Decreto 29267-G de la División Territorial Administrativa y según la delimitación realizada por el Instituto Geográfico Nacional en los mapas oficiales de Costa Rica.

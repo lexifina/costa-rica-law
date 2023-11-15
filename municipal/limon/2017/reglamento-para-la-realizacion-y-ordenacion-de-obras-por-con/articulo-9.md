@@ -1,1 +1,0 @@
-Artículo 9°—Imposición: La exacción de las contribuciones especiales precisará la previa adopción del acuerdo de imposición en cada caso concreto. Dicho acuerdo verificará que se realice el hecho generador de las contribuciones especiales y deberá ser aprobado por el Concejo Municipal.

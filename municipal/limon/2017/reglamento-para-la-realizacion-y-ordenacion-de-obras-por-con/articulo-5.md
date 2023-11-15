@@ -1,2 +1,0 @@
-Artículo 5°—Criterios de repartición: La base imponible de las contribuciones especiales se repartirá entre los sujetos pasivos aplicando como criterio de reparto, según las particularidades del caso, conjunta o separadamente, los metros lineales de fachada de los inmuebles, su superficie, su volumen edificable y el valor de los inmuebles beneficiados utilizado a efectos del impuesto sobre bienes inmuebles regulado por la Ley N° 7509 y sus reglamentos.
-La proporción resultante se aplicará a la base imponible para determinar el monto a pagar por cada sujeto pasivo.

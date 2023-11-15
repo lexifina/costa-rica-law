@@ -1,1 +1,0 @@
-Artículo 16—Omisiones. En el caso de omisiones a las obligaciones que señala el artículo 3 del presente Reglamento, la Municipalidad deberá proceder de conformidad con lo señalado en el artículo 76 del Código Municipal, Ley 7794, el artículo 14 de la Ley de Construcciones número 833 y el artículo IV-4 del Reglamento a la Ley de Construcciones.
