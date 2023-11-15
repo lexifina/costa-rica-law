@@ -1,1 +1,0 @@
-Artículo 3°—Queda prohibida la venta de pólvora a personas menores de 18 años, sin excepción. El comerciante velará por el cumplimiento de esta disposición realizando la venta previa presentación por parte del comprador de la cédula de identificación en el caso de nacionales, y de la cédula de residencia o pasaporte, en cuanto a habitantes extranjeros.
