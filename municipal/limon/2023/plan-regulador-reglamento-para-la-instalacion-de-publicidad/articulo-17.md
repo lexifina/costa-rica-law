@@ -1,0 +1,2 @@
+ARTICULO 17.- Cada permisionario de publicidad exterior tendrá derecho a colocar rótulos en la cantidad, área y proporción definida en este reglamento cuya leyenda podrá estar referida al nombre propio del establecimiento lo que se denomina publicidad exterior de funcionamiento o, tratarse de publicidad comercial patrocinante.
+En caso de ser rótulo mixto en el mismo la proporción de la leyenda será de 2/3 partes del área para rótulo de funcionamiento y 1/3 del área para publicidad patrocinante.

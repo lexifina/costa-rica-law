@@ -1,0 +1,1 @@
+ARTICULO 22.- La publicidad exterior que se pretenda colocar en sitios y edificaciones de valor patrimonial con uso comercial no podrán alterar la estructura del inmueble, ser luminosos, obstaculizar detalles arquitectónicos y no podrán adosarse perpendicular al inmueble.

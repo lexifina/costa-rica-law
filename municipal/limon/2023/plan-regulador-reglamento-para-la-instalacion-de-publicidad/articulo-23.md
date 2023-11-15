@@ -1,0 +1,1 @@
+ARTICULO 23.- Se considera área restringida para la colocación de rótulos y anuncios el casco urbano histórico, los edificios patrimoniales, culturales y patrimoniales, sus alrededores y 100 metros a la redonda de cada uno de estos inmuebles.

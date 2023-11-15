@@ -1,0 +1,4 @@
+ARTICULO 5°. Emisión de licencia de oficio: Cuando los rótulos tuvieren estructura que cumplen con las normas de este Reglamento, la Municipalidad podrá legalizarlos por medio de emisión de la licencia de oficio, cargando el monto de este tributo y el impuesto de construcción respectivo, a la cuenta del propietario del inmueble.
+Corresponde a la Unidad que la Municipalidad designe la aprobación o rechazo de toda solicitud de licencia para publicidad exterior, de acuerdo con el presente reglamento.
+Cuando este departamento resuelva la aprobación del permiso, informará a más tardar dentro de los siguientes tres días hábiles a la Unidad que la Municipalidad designe, a fin de que este último extienda la respectiva licencia.
+Cuando se rechace la solicitud deberá establecer claramente las razones de hecho y derecho, por las cuales procede con tal decisión.

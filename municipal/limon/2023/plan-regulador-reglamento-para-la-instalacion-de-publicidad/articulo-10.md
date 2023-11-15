@@ -1,0 +1,2 @@
+ARTICULO 10°. - Una vez otorgada la licencia de publicidad exterior, la Unidad que la Municipalidad designe suministrará al titular un certificado de licencia de rótulo que haga constar la vigencia del mismo el cual deberá mantenerse en el sitio o local donde se instalare el rótulo en forma visible y accesible al inspector municipal.
+El titular de la licencia deberá colocar o insertar en la publicidad exterior, en el ángulo inferior izquierdo, una placa con el número de licencia y la fecha de expedición que de la misma hagan las autoridades municipales.

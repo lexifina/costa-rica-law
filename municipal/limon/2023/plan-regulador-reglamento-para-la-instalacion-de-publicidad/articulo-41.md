@@ -1,0 +1,2 @@
+ARTICULO 41.- Disposiciones Finales: En cualquier caso, en que se desee colocar cualquier tipo de publicidad exterior dentro del derecho de las calles, caminos públicos y aceras, se precederá con los procedimientos establecidos en el presente reglamento y el código municipal.
+Si no se cuenta con la licencia correspondiente, se procederá de inmediato a su desmantelamiento y retiro, sin responsabilidad de la municipalidad.

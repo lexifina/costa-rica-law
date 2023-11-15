@@ -1,0 +1,1 @@
+ARTICULO 37.- Pasado el plazo dispuesto en el artículo 34 de este Reglamento y emitido pronunciamiento formal de la Municipalidad, a través de los órganos competentes según sea el caso, se informará a la Unidad que la Municipalidad designe a fin de que proceda a la cancelación de la licencia.

@@ -1,0 +1,5 @@
+ARTICULO 27.- Distancia de colocación: La publicidad exterior que se coloque en predios o edificios continuos a la vía pública será ubicada a la altura y distancia mínima de seguridad y visibilidad.
+1. La publicidad exterior saliente no podrá proyectarse más allá de la línea de construcción del edificio o finca en la cual se instalen. La distancia de la colocación, entre el borde inferior del rótulo y la zona de paso peatonal no podrá ser menor de dos metros cincuenta centímetros de altura (2,50 m).
+2. La publicidad exterior con luminosidad externa deberá alejarse de los cables eléctricos a una distancia radial no menor de dos metros o lo que establezca el ente competente. En estos casos se requiere autorización de la empresa pública proveedora del servicio de electricidad.
+3. Los toldos que sirvan para la publicidad exterior deberán estar a 3,00 metros del nivel de la acera.
+4. Quedan entendidos los titulares de la licencia respectiva, que, cumplida la vida útil del toldo, éste deberá ser sustituido so pena de remover la estructura de sustento, por parte de la municipalidad, sin responsabilidad alguna, y previa audiencia al interesado.

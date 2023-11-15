@@ -1,0 +1,2 @@
+ARTICULO 29.- Sanciones: La Municipalidad por medio de sus inspectores, realizará periódicamente inspecciones a cada patentado para verificar el cumplimiento de este reglamento, en relación con la publicidad exterior y podrá hacerse auxiliar de la Policía Municipal cuando lo estime necesario.
+El procedimiento de sanciones estará incorporado de conformidad con el Reglamento de Trámites y procedimientos que complementariamente al Plan Regulador, que define el municipio.

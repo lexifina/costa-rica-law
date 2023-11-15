@@ -1,0 +1,1 @@
+ARTICULO 44.- Facultades Municipales: La municipalidad se reserva el derecho de rechazar las solicitudes de licencias para publicidad exterior, así como de limitar el número y los lugares donde se colocarán la publicidad, por razones de oportunidad y conveniencia.

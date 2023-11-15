@@ -1,0 +1,1 @@
+ARTICULO 21.- La publicidad exterior y su colocación deben ser de tales dimensiones que no desvirtúen los elementos arquitectónicos de las fachadas en que serán colocados o de las que estén cercanas, ni que al proyectarse en la perspectiva de una calle, plaza o monumento alteren su valor de orden técnico, estético o arquitectónico.

@@ -1,0 +1,2 @@
+ARTICULO 16.- No se permitirá instalar ningún tipo de publicidad exterior, que, a pesar de reunir con los requisitos consignados en este reglamento, representen un peligro para la seguridad pública u obstruyan la vía pública, de acuerdo al criterio técnico de la Municipalidad o del MOPT, cuando corresponda.
+Cuando se pretenda instalar publicidad sobre estructuras existentes, se requerirá el visto bueno de la Unidad que la Municipalidad designe, previa inspección de la estructura a utilizar.

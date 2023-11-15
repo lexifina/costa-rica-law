@@ -1,0 +1,1 @@
+ARTICULO 42.- Publicidad en casetas y otros: La publicidad colocada en casetas, parada de buses y/o refugios deberán conservar un aspecto estético y no ser contrario a las buenas costumbres o la moral y deberán cumplir con lo dispuesto por el Reglamento de los Derechos de Vía y Publicidad Exterior, Decreto Ejecutivo N° 29253.

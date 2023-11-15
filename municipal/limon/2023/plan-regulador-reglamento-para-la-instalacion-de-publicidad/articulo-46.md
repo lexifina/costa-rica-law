@@ -1,0 +1,2 @@
+ARTICULO 46. Derogatorias.
+Se deroga expresamente el Reglamento para la Instalación de Anuncios y Rótulos, Régimen para la aplicación del Impuesto por la Instalación de Anuncios y Rótulos de la Municipalidad de Limón, aprobado mediante acuerdo emitido en la sesión extraordinaria N° 32 artículo IV inciso a) de fecha 4 de febrero del 2015 y el Reglamento para la Instalación de Anuncios y Rótulos número 12 del día 26 de junio del 2002.
