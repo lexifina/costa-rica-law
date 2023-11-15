@@ -1,10 +1,11 @@
 CAPÍTULO V
 DE LA BASE IMPONIBLE DEL IMPUESTO
 Artículo 13.- Base imponible en la venta de bienes.
-1) En las ventas de bienes el impuesto debe cobrarse sobre el precio neto de venta, quecorresponde al valor total de la contraprestación antes del impuesto e incluye entre otrosconceptos:
+1) En las ventas de bienes el impuesto debe cobrarse sobre el precio neto de venta que corresponde al valor total de la contraprestación antes del impuesto e incluye entre otros conceptos:
 a.El monto de los tributos y gravámenes de cualquier clase que recaigan sobre tales bienes, e independientemente de que la operación sea al contado o al crédito, en particular: el Impuesto Selectivo de Consumo, el Impuesto Específico sobre las Bebidas Envasadas sin Contenido Alcohólico, excepto la leche y los jabones de tocador y el Impuesto Específico sobre las Bebidas Alcohólicas, cuando los bienes de que se trate estén afectos a estos impuestos.
 b.Las subvenciones directas sobre el precio del bien otorgadas por el Estado y sus Instituciones u organismos internacionales.
-c. Las indemnizaciones retenidas por el contribuyente en operaciones comerciales debido a incumplimientos por parte de quien consume el bien,tales como las referidas al incumplimiento en el pago de energía eléctrica, agua.
+c. Las indemnizaciones retenidas por el contribuyente en operaciones comerciales debido a incumplimientos por parte de quien consume el bien tales como las referidas al incumplimiento en el pago de energía eléctrica, agua. No forma parte de la base imponible clel impuesto las cantidades percibidas por razón de indemnizaciones o pagos de intereses o recargos que, por su naturaleza y función, no constituyan contraprestación o compensación de las entregas de bienes sujetas al impuesto.
+(Así reformado el inciso anterior por el artículo 2° del decreto ejecutivo N° 44392 del 15 de noviembre del 2023)
 d.Los envases o embalajes en el tanto no hayan sido devueltos.
 e.El valor de los servicios que se presten con motivo de la venta de un biengravado, siempre que fuese brindado por el propio contribuyente que realiza la operación y no por un tercero.
 2) En el caso del retiro de bienes para el autoconsumo del contribuyente, o de la transferencia de bienes a título gratuito, la base imponible será el costo del bien o servicio, para lo cual serán de aplicación las siguientes reglas para su determinación:

@@ -10,10 +10,13 @@ b.La denominación del negocio (nombre de fantasía en caso de existir),
 c.Número de identificación del contribuyente
 d.Clave del comprobante
 e.Fecha y hora
-f.Detalle de los bienes vendidos o el servicio prestado condiciones de la venta
+f. Detalle de los bienes vendidos o el servicio prestado
+(Así reformado el inciso anterior por el artículo 2° del decreto ejecutivo N° 44392 del 15 de noviembre del 2023)
 g.Precio neto de venta
 h.Tarifa de impuesto
 i.Monto del impuesto.
+j. Condiciones de la venta de bienes o servicios, ya sea que se trate de una venta de contado o a crédito, un apartado, en consignación, un enmendamiento con opción de compra, un arrendamiento operativo, un arrendamiento financiero, un arrendamiento operativo en función financiera o cualquier otra condición que se consigne en el comprobante electrónico que corresponda
+(Así adicionado el inciso anterior por el artículo 1° del decreto ejecutivo N° 44392 del 15 de noviembre del 2023)
 Sin perjuicio de lo anterior, la Administración Tributaria podrá establecer mediante resolución general cualquier otro requisito para que los contribuyentes emitan y entreguen comprobantes electrónicos.
 5) Llevar los registros contables y demás documentación que establezca la normativa delImpuesto sobre el Valor Agregado, el artículo 104 del Código de Normas yProcedimientos Tributarios y las resoluciones generales que al efecto dicte laAdministración Tributaria.
 Las obligaciones contenidas en los incisos c) y d) del presente artículo no resultarán aplicables a aquellos contribuyentes que se encuentren registrados en el Régimen de Tributación Simplificada obien que cuenten con dispensa reglamentaria respecto a dichas obligaciones.
