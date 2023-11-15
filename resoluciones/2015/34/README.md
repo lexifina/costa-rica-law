@@ -14,3 +14,4 @@ Metodología para la determinación de las tarifas de referencia para plantas de
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-03-26 | la propia norma |
+| 2 | 2023-11-15 | Resolución 110 (2023-11-15) |
