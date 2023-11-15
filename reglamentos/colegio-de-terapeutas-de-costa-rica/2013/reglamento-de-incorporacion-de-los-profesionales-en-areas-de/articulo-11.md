@@ -1,1 +1,0 @@
-Artículo 11.—De la aprobación de la junta directiva. Una vez revisada la documentación respectiva y habiéndose determinado que la misma se encuentra a derecho, la Junta Directiva aprobará y hará constar en actas la incorporación. Procederá a informar al solicitante la cita para asistirá! acto de incorporación.

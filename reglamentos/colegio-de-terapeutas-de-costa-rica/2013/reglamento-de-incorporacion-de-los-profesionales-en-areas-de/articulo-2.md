@@ -1,1 +1,0 @@
-Artículo 2.—Sobre la decisión de incorporación. El Colegio de Terapeutas de Costa Rica que en adelante se denominará el Colegio, es el Ente con la potestad para otorgar la Licencia para el ejercicio legal de la profesión del Terapeuta, y corresponde a la Junta Directiva del Colegio conocer, admitir o improbar la solicitud de incorporación.

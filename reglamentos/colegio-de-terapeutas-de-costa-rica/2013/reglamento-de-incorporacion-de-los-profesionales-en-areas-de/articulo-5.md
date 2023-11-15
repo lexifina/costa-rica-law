@@ -1,1 +1,0 @@
-Artículo 5.—Incorporación ordinaria. Es aquel acto que se realizara dentro de los períodos establecidos y acordados por la Junta Directiva. El mismo, se llevará a cabo únicamente cuando el acuerdo de incorporación del profesional terapeuta, conste y este firme en las Actas de Junta Directiva.
