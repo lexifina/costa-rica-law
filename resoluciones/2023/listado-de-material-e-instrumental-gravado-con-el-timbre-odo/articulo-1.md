@@ -1,0 +1,15 @@
+COLEGIO DE CIRUJANOS DENTISTAS
+DE COSTA RICA
+Borrador Listado de material e instrumental gravado
+con el Timbre Odontológico.
+Considerando:
+I.-De conformidad con lo dispuesto en la Ley N° 3752, de Reforma de Ley Colegio de Cirujanos Dentistas Para Crear Timbre Odontológico, de 4 de octubre de 1966, el Colegio de Cirujanos Dentistas de Costa Rica es el ente acreedor del "Timbre Odontológico", cuyo hecho generador es la "venta de toda clase de materiales o instrumentos para el ejercicio de la Odontología" y el cual deberá adherirse a cualquier factura que se expida por la venta de toda clase de materiales o instrumentos para el ejercicio de Odontología.
+II.-Que el Colegio de Cirujanos Dentistas de Costa Rica como Administración Tributaria que es, de conformidad con el artículo 99 del Código de Normas y Procedimientos Tributarios, Ley N° 4755, del 3 de mayo de 1971 y sus reformas, de aplicación supletoria conforme el artículo 1 del mismo cuerpo normativo, está facultado para aplicar los procedimientos de dicho Código para la fiscalización, determinación y cobro correcto de dicho timbre, así como para dictar normas generales tendientes a lograr la correcta aplicación de las normas tributarias, dentro de los límites que fijen las disposiciones legales y reglamentarias pertinentes.
+III.-Que de conformidad con el capítulo VI del "Reglamento para Aplicar los Procedimientos de Fiscalización del Cobro del Timbre Odontológico y de Imposición de Sanciones" publicado en el Alcance N° 67 del Diario Oficial La Gaceta el jueves 20 de abril del 2023, para aplicar las sanciones de multa y de suspensión del ejercicio profesional que establece la Ley N° 3752 del 4 de octubre de 1966.
+IV.-Que, en acatamiento del artículo 174 del Código Tributario, el proyecto de la presente resolución se publicó en el sitio Web https://www.colegiodentistas.org/timbre-odontologico/ , sección "Resoluciones en Consulta Pública"; con el fin de que las entidades representativas de carácter general, corporativo o de intereses difusos conozcan sobre este proyecto de resolución y puedan realizar las observaciones sobre el mismo, en el plazo de diez días hábiles siguientes a la publicación del primer aviso en el Diario Oficial La Gaceta. Los avisos fueron publicados en Las Gacetas N° xxx del xx de xxx del 2023 y N° xxx del xxx de xx del 2023, respectivamente. Por lo que a la fecha de emisión de esta resolución se recibieron observaciones al proyecto indicado, y se consideraron las observaciones atinentes, siendo que la presente corresponde a la versión final aprobada. Por tanto,
+RESUELVE:
+Resolución sobre el listado de materiales o
+instrumentos gravados por el "Timbre Odontológico".
+CAPÍTULO I
+Generalidades
+Artículo 1°-Alcance y Objeto. La presente resolución es aplicable al cobro del "Timbre Odontológico" que recae en la venta de toda clase de materiales o instrumentos para el ejercicio de la Odontología. El objeto de esta resolución es establecer definir el listado de material e instrumental gravado con el Timbre Odontológico, de conformidad con el hecho generador de la Ley N° 3752.
