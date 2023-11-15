@@ -293,16 +293,13 @@ De lo anterior se desprende que para los efectos de este modelo, la tarifa depen
 (*)iv. Expectativas de venta (E). La producción de la planta también depende de la disponibilidad de la capacidad instalada para generación, lo que a su vez depende de las características físicas del aprovechamiento, de la tecnología utilizada, la edad de las instalaciones, así como las prácticas de mantenimiento de la empresa. Por su parte, la distancia entre la planta y el punto de entrega resulta importante debido a las pérdidas asociadas con la transmisión.
 En todo caso, es posible expresar todos estos factores en términos de un factor de aprovechamiento de la capacidad instalada (Factor de Planta). Este es un factor de uso común y que es posible asociar con cada tipo de fuente primaria: se puede establecer un valor para este parámetro aplicable a cada tipo de fuente, haciendo posible diferenciar la tarifa de venta según la fuente primaria.
 En síntesis, Para estimar la cantidad de energía que se tomará para determinar la tarifa aplicable se considera la siguiente ecuación:
-[imagen]
 En donde:
 E = Ventas anuales (cantidad de energía).
 C = Capacidad contratada promedio de las plantas en MW.
 H= Cantidad promedio de horas anuales reales en que las plantas estuvieron en operación entregando energía para venta al ICE en los 5 últimos años.
 fp = Factor de planta promedio de los últimos 5 años de las plantas utilizadas para el cálculo.
 Si bien existe un efecto de escala en las plantas de generación de electricidad, especialmente en cuanto a los costos de instalación y los costos de explotación, es posible simplificar el modelo y realizar el análisis para una planta de tamaño unitario (capacidad contratada unitaria), con lo que la fórmula anterior se reduce a:
-[imagen]
 El factor de planta anual (fp) de una central eléctrica, para este caso, se define como el cociente entre la energía real generada por la central eléctrica durante un período y la energía generada si hubiera trabajado a plena carga durante ese mismo período, conforme los valores contratados, según la siguiente fórmula:
-[imagen]
 En donde:
 Fpi,a = Factor de planta de cada planta en cada año.
 Egi,a = Cantidad de energía en kWh que cada planta generó en cada año.
@@ -313,7 +310,6 @@ a = Cada uno de los 5 años.
 El valor del factor de planta promedio de los últimos 5 años que se utilice en este modelo se obtendrá a partir de los datos de plantas eólicas privadas costarricenses con capacidades instaladas menores que 20 MW, sobre las cuales la ARESEP posea dicha información. Este valor se actualizará en cada fijación tarifaria. Con ese propósito, se utilizarán los datos del último quinquenio sobre el cual ARESEP posea información.
 El valor del factor de planta se calculará de la siguiente manera:
 Para cada uno de los años del quinquenio, se estimará un promedio aritmético de los valores de cada planta individual, de acuerdo con la siguiente fórmula:
-[imagen]
 En donde:
 Fpa = Factor de planta promedio anual para el grupo de plantas.
 Fpia = Factor de planta de cada planta en cada año.
@@ -321,7 +317,6 @@ i = Cada una de las plantas.
 a = Cada uno de los años.
 n = Índice que representa la cantidad de plantas.
 Posteriormente, se obtendrá el promedio aritmético de los cinco valores resultantes, y el resultado es el dato de factor de planta a utilizar en la fijación tarifaria calculado de la siguiente forma:
-[imagen]
 En donde:
 Fp = Factor de planta promedio para el grupo de plantas.
 Fpa = Factor de planta promedio anual para el grupo de plantas.
@@ -407,17 +402,17 @@ d. Actualización del monto de inversión en activos fijos: La actualización de
 e. Se estimará el promedio de los valores de costo de inversión unitario correspondientes a la muestra antes descrita. Al valor obtenido de los cálculos explicados en los puntos anteriores, se agregará el monto correspondiente al pago de intereses durante el período de construcción del proyecto eólico, estimado en un año. El valor resultante es el costo de inversión unitario promedio a considerar en la estimación del precio de venta de energía al ICE y eventualmente, el precio de otras transacciones de electricidad las cuales se deba aplicar esta metodología.
 f. Secalcularáladesviaciónestándardelconjuntodevaloresdecostodeinversiónunitariodetodoslosvaloresdelamuestra.
 (Así reformado el punto anterior mediante resolución N° RJD-17-2016 del 8 de febrero del 2016)
-g. El límite superior de la banda consiste en utilizar la suma del costo unitario promedio de inversión y el valor de una desviación estándar.
-El límite inferior de la banda consiste en utilizar el valor del costo unitario promedio de la inversión menos el valor de tres desviaciones estándar, siempre y cuando el valor de inversión sea mayor a 0. En el caso de que el cálculo con las tres desviaciones propuestas indique un límite inferior de cero o menor que cero, se tomará el número natural positivo inmediato anterior de desviaciones de manera tal que el límite inferior sea mayor que cero. Es decir, si con tres desviaciones estándar el monto de inversión es cero se utilizan dos desviaciones estándar, si con dos desviaciones estándar el monto de la inversión es cero se utiliza una desviación estándar y si con una desviación estándar el monto de inversión es cero se utiliza el promedio.
-(Así reformado el punto anterior mediante resolución N° RJD-17-2016 del 8 de febrero del 2016)
+g. Se calcula la cantidad de desviaciones estándar de conjunto de valores promedio de costo de inversión unitario a incorporar en el cálculo del límite inferior de la banda tarifaria, cumpliendo el siguiente criterio.
+X = Y − 1
+Sujeto a la restricción:
+Y > 0
+Donde,
+X = Cantidad de desviaciones estándar a incluir en la estimación del límite inferior de la banda tarifaria.
+Y = Cantidad mínima de desviaciones estándar en términos absolutos que son necesarias para que el costo de inversión unitaria sea 0 o negativa. Estimada como el costo promedio de inversión unitario (inciso e) dividida entre el valor de la desviación estándar (inciso f), en caso de que el resultado sea diferente a un número entero, se redondea al número entero superior.
+Si no fuera posible calcular el valor de Y, la variable "X" tomará el valor de 0.
+(*) (Así reformado el inciso g) anterior mediante resolución N° RE-0110-JD-2023 del 15 de noviembre de 2023)
 h. La actualización del costo de inversión mediante esta alternativa de cálculo se hará a partir de la incorporación de nuevos valores en la muestra, como resultado del proceso continuo de actualización de la misma.
-La segunda opción se aplica si no se cuenta con datos suficientes para conformar la muestra de datos de costos unitarios de inversión anteriormente descrita. El procedimiento para aplicar esta segunda opción se describe a continuación:
-a. Se utilizan los datos sobre estructura de costos de inversión de una planta típica y sobre rangos de variación de la estructura de costos de inversión de una planta típica que se encuentran en Krohn, Soren; Poul-Erik Morthorst; y Shimon Awerbuch. "The Economics of Wind Energy". European Wind Energy Association (EWEA), 2009. Los datos sobre estructura de costos de inversión de una planta típica se encuentran en la tabla 1.1 de la página 30 del citado documento, y los datos sobre rangos de variación de la estructura de costos de inversión se presentan en la tabla 1.2. de la página 31.
-b. Los valores de costos que se presentan en la tabla 1.1 se convierten en dólares de los Estados Unidos de América y se expresan en valor presente mediante el "Producer Price Index Industry" de Estados Unidos de América (segmento de generación eléctrica).
-c. Para cada componente del costo de inversión total, se multiplica el costo típico de ese componente que se incluye en la tabla 1.1. por la proporción entre el porcentaje de la distribución correspondiente al límite inferior y el porcentaje de ese componente dentro de la distribución típica (ambos incluidos en la tabla 1.2.). Así se obtiene el valor de costo de inversión para cada componente, en el límite inferior. Luego se suman esos valores y se obtiene el valor total del costo de inversión en el límite inferior.
-d. Se hace un cálculo similar al explicado en b) y c) para obtener el valor del costo de inversión en el límite superior.
-e. Los valores de costo unitario promedio de inversión de cada límite se multiplican por un factor de corrección del tamaño de turbina. Los datos para calcular ese factor se obtienen de U.S. Department of Energy. "2010 Wind Technologies Market Report". Gobierno de los Estados Unidos de América, 2011. Se utilizan específicamente los datos del gráfico 29 que está en la página 48 de esa publicación. El factor de corrección se calcula, como el cociente entre el dato de costo de inversión promedio para proyectos con turbinas cuyos tamaños oscilan entre 1,75 MW y 2,5 MW y el dato de costo de inversión promedio para proyectos con turbinas menores que 1 MW.
-f. Los dos valores límite de costo unitario promedio de inversión resultantes de la aplicación del factor de corrección por tamaño de turbina constituyen la banda de costos de inversión a utilizar para la estimación de la banda tarifaria.
+(Nota de Sinalevi: Mediante resolución N° RE-0110-JD-2023 del 15 de noviembre de 2023, se acordó eliminar la segunda opción de cálculo de la sección viii. “Monto de la inversión unitaria (M)”)
 El cálculo de la banda de costos de inversión con este método se realiza de la siguiente forma:
 a. Se escoge una estructura típica de costos de inversión representativa de proyectos eólicos como los que abarca esta propuesta de metodología.
 b. Se escoge una estimación del rango en que pueden variar los costos de cada componente de inversión de proyectos eólicos, en condiciones similares a los de los que abarca esta propuesta de metodología.
@@ -429,7 +424,8 @@ ix. Definición de la franja tarifaria. Se propone regular el precio de venta de
 (*) Las principales consideraciones que se toman en cuenta al establecer un esquema de banda tarifaria son las siguientes:
 . Se calcula la desviación estándar correspondiente a todos los datos utilizados para estimar el costo de inversión promedio.
 . El límite superior se establece utilizando el costo de inversión promedio más una desviación estándar.
-. El límite inferior de la banda consiste en utilizar para el cálculo de la tarifa el valor del costo promedio de la inversión menos el valor de tres desviaciones estándar, siempre y cuando el valor de inversión sea mayor a 0. En el caso de que el cálculo con las tres desviaciones propuestas indique un límite inferior de cero o menor que cero, se tomará el número natural positivo inmediato anterior de desviaciones de manera tal que el límite inferior sea mayor que cero.
+• El límite inferior de la banda consiste en utilizar para el cálculo de la tarifa el valor del costo promedio de la inversión unitaria menos el monto correspondiente a la cantidad de desviaciones estándar (inciso g de la sección viii.) multiplicada por la desviación estándar (inciso f de la sección viii.).
+(Así reformado el párrafo anterior mediante resolución N° RE-0110-JD-2023 del 15 de noviembre de 2023)
 (*)(Así reformado el párrafp anterior mediante resolución N° RJD-17-2016 del 8 de febrero del 2016)
 x. Estructura estacional. En general, la estructura tarifaria es la valoración relativa del precio de la energía en los distintos rangos horarios y períodos estacionales. Se expresa como un conjunto de coeficientes para cada combinación de rangos horarios y períodos estacionales. Estos coeficientes se multiplican por el precio medio de la energía que esté vigente, para obtener la tarifa correspondiente a cada una de esas combinaciones.
 La tecnología de generación eólica no permite regular la producción y trasladar energía de unas horas a otras, como sí lo hacen las plantas hidroeléctricas con embalse. Tampoco se puede predecir la distribución horaria de la generación de energía eólica, porque no hay un patrón horario de viento, y por tanto, la distribución horaria de la generación eólica es aleatoria.

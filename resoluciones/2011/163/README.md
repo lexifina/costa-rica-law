@@ -17,3 +17,4 @@ Establece el Modelo para la Determinación de Tarifas de Referencia para Plantas
 | 2 | 2014-03-20 | Resolución 27 (2014-03-20) |
 | 3 | 2016-02-08 | Resolución 17 (2016-02-08) |
 | 4 | 2022-11-08 | Resolución 119 (2022-11-08) |
+| 5 | 2023-11-15 | Resolución 110 (2023-11-15) |
