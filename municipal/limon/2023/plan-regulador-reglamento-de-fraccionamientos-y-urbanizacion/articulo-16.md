@@ -1,0 +1,2 @@
+ARTICULO 16. Requisitos documentales para el visado de fraccionamientos con fines agrícolas, pecuarios, forestales o mixtos
+Los requisitos documentales para el visado de fraccionamientos con fines agrícolas, pecuarios, forestales o mixtos estarán incorporados de conformidad con el Reglamento de Trámites y Procedimientos publicado en la página web de la Municipalidad que complementa el Plan Regulador.

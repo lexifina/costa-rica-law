@@ -1,0 +1,2 @@
+CAPITULO VII. PROYECTOS ESPECIALES DE RENOVACIÓN URBANA
+ARTICULO 37. En todos aquellos aspectos y contenidos no regulados por el presente capítulo, se aplicará, cuando proceda y de forma supletoria, la normativa contemplada en el Reglamento de Fraccionamiento y Urbanizaciones del INVU, así como el Reglamento de Renovación Urbana de este Plan Regulador, referidos a proyectos especiales de renovación urbana.

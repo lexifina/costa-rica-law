@@ -1,0 +1,2 @@
+SECCIÓN TERCERA: DEL FRACCIONAMIENTO CON FINES URBANÍSTICOS
+ARTICULO 9. En todos aquellos aspectos y contenidos no regulados por esta sección tercera, se aplicará, cuando proceda y de forma supletoria, la normativa contemplada en el Reglamento de Fraccionamiento y Urbanizaciones del INVU y las condiciones en el reglamento de construcciones de este plan regulador, referidas al fraccionamiento con fines urbanísticos.

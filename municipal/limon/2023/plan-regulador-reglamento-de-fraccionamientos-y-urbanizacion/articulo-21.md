@@ -1,0 +1,1 @@
+ARTICULO 21. Normativas urbanísticas para edificaciones en urbanizaciones de uso residencial Las normas sobre Cobertura, Densidad, se aplican según lo establecido en el Reglamento de Zonificación de este Plan Regulador.

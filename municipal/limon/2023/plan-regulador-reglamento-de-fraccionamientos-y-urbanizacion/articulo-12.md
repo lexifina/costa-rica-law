@@ -1,0 +1,2 @@
+ARTICULO 12. Requisitos documentales para el visado de fraccionamientos mediante acceso excepcional para uso residencial.
+Los requisitos documentales para el visado de fraccionamientos mediante acceso excepcional para uso residencial estarán incorporados de conformidad con el Reglamento de Trámites y Procedimientos publicado en la página web de la Municipal, que complementan el presente Plan Regulador.
