@@ -1,4 +1,6 @@
+(Derogado)
 COLEGIO DE TERAPEUTAS DE COSTA RICA
+(Esta norma fue derogada por el artículo 29 del Reglamento de regencia del Colegio de Terapeutas, aprobado en sesión N° 0029 del 15 de noviembre de 2023)
 REGLAMENTO DE PRESCRIPCIÓN TERAPÉUTICA Y DESPACHO DE
 PRÓTESIS AUDITIVAS Y REGENCIA DE ESTABLECIMIENTOS
 AUDIOLÓGICOS
