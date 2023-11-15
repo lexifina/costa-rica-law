@@ -1,0 +1,4 @@
+ARTÍCULO 9. Disposiciones aplicables a propiedades que soportan continuidades viales.
+A todas aquellas propiedades que soporten continuidades viales de conformidad con lo establecido en el Mapa Oficial del Plan Regulador, se les aplicará las siguientes condiciones:
+a) Las propiedades que soportan continuidades, dado el interés público manifiesto en lo que respecta a la ampliación de la red vial cantonal, podrán ser adquiridas por la municipalidad, mediante cualquier forma de adquisición de dominio contemplado en la legislación vigente.
+b) De conformidad con los principios y procedimientos previstos en el Plan Regulador, para la formalización, extensión y consolidación de la red vial municipal, así como del tejido urbano que articula dicha red, se deberá ceder y habilitar la continuidad a favor del dominio público municipal, en aquellos casos donde se construya una urbanización, con el correspondiente sustento técnico, por parte de la municipalidad.
