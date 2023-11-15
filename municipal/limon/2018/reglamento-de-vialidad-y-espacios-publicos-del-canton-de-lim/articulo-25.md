@@ -1,1 +1,0 @@
-Artículo 25.-Aceras. En la construcción de aceras se deberá guardar estrecha relación con las cunetas de drenaje pluvial y las rasantes del pavimento, así como lo dispuesto por el presente reglamento para las normas de diseño de aceras, así como el Reglamento de Aceras de la Municipalidad del Cantón Central de Limón.

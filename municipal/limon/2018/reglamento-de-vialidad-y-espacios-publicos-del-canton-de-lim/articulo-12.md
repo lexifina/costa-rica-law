@@ -1,1 +1,0 @@
-Artículo 12.- Aceras, cercas, canoas y bajantes. Es obligación del propietario construir aceras, o reconstruir y dar mantenimientos a las existentes frente a sus predios, así como cercar los lotes baldíos e instalar y mantener en buen estado las canoas y bajantes del inmueble, de acuerdo con lo dispuesto en los artículos 75 y 76 del Código Municipal.

@@ -1,1 +1,0 @@
-Artículo 61.- Clasificación. A los efectos de su pormenorización en el espacio y el establecimiento de condiciones particulares, se distinguen entre “Estaciones de intercambio” y “Zonas logística del transporte”.

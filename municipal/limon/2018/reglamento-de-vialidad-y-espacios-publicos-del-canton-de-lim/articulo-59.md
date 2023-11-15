@@ -1,3 +1,0 @@
-CAPÍTULO VII
-DEL ESPACIO PARA EL TRANSPORTE PÚBLICO
-Artículo 59.- Definición. Son aquellas vías reservadas para el tránsito exclusivo de transporte público, el cual podrá ser regulado mediante horario de uso. Tienen uso dotacional para el transporte, los espacios sobre los que se desarrollan, los movimientos de las personas y los vehículos de transporte colectivo y de mercancías, así como los que permiten la permanencia de éstos, estacionados, o aquellos en que se producen operaciones de rotura de carga y otras labores auxiliares. Deberán prever en los casos así calificados por la Municipalidad del Cantón Central de Limón las labores de carga y descarga y paso de vehículos de emergencia.

@@ -1,3 +1,0 @@
-Artículo 24.- Intersecciones. En toda intersección de vías, una de ellas se considerará como principal y las que empaten con estas deberán tener como máximo una pendiente del cinco por ciento (5%) en una distancia mínima de quince metros (15m) fuera del derecho de vía, antes del empate.
-Los niveles de calles y alcantarillado al desembocar en calles existentes serán definidos por la Municipalidad en congruencia con lo existente, si el empate es con carretera existente o proyectada, el urbanizador deberá presentar al MOPT, el perfil longitudinal para su estudio.
-En el caso de calles con jardinería central, ésta deberá interrumpirse en las zonas de paso para peatones, con una franja libre, a nivel de la calzada, de un ancho mínimo de ciento veinte centímetros (120cm).

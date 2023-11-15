@@ -1,2 +1,0 @@
-SECCION III DE LAS TERMINALES DE TRANSPORTE PÚBLICO
-Artículo 70.- Definición. Se entiende por Terminal de Transporte Público, como el sitio de abordaje del transporte público, y núcleo incentivador del desarrollo de actividades urbanas en las zonas de su ubicación. Por lo anterior, sus diseños deben buscar la formación de un centro urbano poli-funcional de alta densidad y con posibilidades de futuro crecimiento, buscando la compatibilidad con actividades comerciales y de servicios.
