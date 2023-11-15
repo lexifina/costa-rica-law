@@ -1,1 +1,0 @@
-ARTÍCULO 83. Edificio en estado ruinoso. Todo edificio que se encuentre en estado ruinoso a juicio de la Municipalidad. Podrá ser reconocido por la DIPM, en compañía del propietario. Si el mismo no permitiere reparación se ordenará al propietario su demolición, previo dictamen del Ministerio de Salud.

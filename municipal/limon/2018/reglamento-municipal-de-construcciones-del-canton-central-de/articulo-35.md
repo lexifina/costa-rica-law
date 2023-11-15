@@ -1,1 +1,0 @@
-ARTÍCULO 35. Área de cobertura. La cobertura de construcción se establece porcentualmente para cada una de las zonas del Plan Regulador. La Municipalidad podrá, a cambio de la ampliación del derecho de vía, dar incentivos en altura, densidad y/o cobertura, en cuyo caso actuará de conformidad con lo establecido en el Reglamento de Renovación Urbana del Plan Regulador.

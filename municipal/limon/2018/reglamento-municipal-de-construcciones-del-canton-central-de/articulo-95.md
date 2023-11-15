@@ -1,3 +1,0 @@
-ARTÍCULO 95. Del procedimiento por violación de sellos. Si el infractor violentara los sellos colocados por los inspectores, conforme al procedimiento establecido en el presente Reglamento:
-a. El Departamento de Ingeniería Municipal remitirá el expediente administrativo debidamente foliado, el cual será remitido al Departamento de Asesoría Jurídica, para efectos de que elabore la denuncia ante la Fiscalía por el delito de Violación de Sellos Oficiales.
-b. El Departamento de Asesoría Jurídica, una vez completada la documentación, trasladará la denuncia municipal a la Fiscalía, notificando al infractor del mismo.

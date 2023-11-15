@@ -1,1 +1,0 @@
-ARTÍCULO 110. Derogatorias. El presente Reglamento deroga cualquier disposición reglamentaria interna o acuerdo municipal que verse sobre la misma materia o que se le oponga. En forma supletoria, a lo no contemplado en el presente Reglamento, se aplicará lo establecido en la normativa existente sobre la materia.

@@ -1,1 +1,0 @@
-ARTÍCULO 57. Obras en cauces de dominio público. Deberán observar lo dispuesto por los artículos No.69 y 70 de la Ley de AguasNo.276 y sus reformas. En particular los entubados y puentes requerirán de estudio hidráulico e hidrológico, así como también el Visto Bueno del Departamento de Aguas del MINAET y la respectiva viabilidad ambiental.

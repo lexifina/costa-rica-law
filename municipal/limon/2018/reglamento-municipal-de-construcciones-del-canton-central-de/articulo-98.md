@@ -1,6 +1,0 @@
-ARTÍCULO 98. Del procedimiento de derribo. Una vez en firme la resolución que ordena el derribo, el Departamento de Ingeniería Municipal atendiendo lo estipulado por el artículo 96 del Reglamento de Construcciones, ordenará la destrucción de las partes defectuosas o la hará por cuenta del propietario. En ningún caso, autorizará el uso de la construcción y si está en uso, impondrá multa por esta causa y dispondrá la desocupación y clausura de ella. Dicho procedimiento deberá ser incluido en una Resolución Administrativa, la cual deberá cumplir con los siguientes requerimientos:
-a. Se deberá efectuar o notificar al menos con diez días hábiles de anticipación la ejecución del derribo.
-b. Se deberá notificar la resolución al propietario registral del inmueble donde se localiza la construcción ilegal, indicándole el día y la hora en que se llevará a cabo el derribo, con indicación clara de las dimensiones y ubicación de lo que se demolerá.
-c. En caso de negarse a recibir la notificación, el funcionario deberá consignarlo de esa manera; en el recibido de la resolución de derribo.
-d. Se deberá acompañar de una copia del expediente administrativo del caso.
-e. Deberá ser firmada por el Alcalde y el Director de la DIPM.

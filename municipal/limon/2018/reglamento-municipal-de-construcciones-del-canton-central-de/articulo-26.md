@@ -1,1 +1,0 @@
-ARTÍCULO 26. Plazos de resolución. Los plazos de resolución para la solicitud de certificados de usos de suelo y alineamientos serán de 10 días hábiles para el municipio, a partir del momento en la Municipalidad reciba la documentación completa.

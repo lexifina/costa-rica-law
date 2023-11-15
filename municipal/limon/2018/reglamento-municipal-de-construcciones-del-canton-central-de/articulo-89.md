@@ -1,1 +1,0 @@
-ARTÍCULO 89. Imposición de sanciones. La Municipalidad puede imponer sanciones por las infracciones a las reglas de este Reglamento. Las sanciones serán las que se especifican en el cuerpo de la Ley de Construcciones y su Reglamento, siendo estas las multas, clausuras, desocupación, destrucción de la obra, etc. Según corresponda.

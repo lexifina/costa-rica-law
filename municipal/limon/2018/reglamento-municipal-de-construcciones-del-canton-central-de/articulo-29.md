@@ -1,9 +1,0 @@
-ARTÍCULO 29. Requisitos para obtener el beneficio por interés comunal o social. En cuanto a viviendas de interés social el solicitante deberá demostrar lo siguiente con el fin de obtener el beneficio establecido en el artículo anterior:
-1. Solicitud dirigida a la DIPM por escrito y en papel tamaño carta.
-2. Deberá contar con una recomendación de la Asociación de Desarrollo Comunal del lugar donde se realizará la obra. Esta recomendación deberá constar en acuerdo de Junta Directiva, si ésta estuviere facultada para ello, o de la Asamblea General, aprobado de acuerdo con los Estatutos de la Asociación y debidamente certificada por el secretario de la organización.
-3. Además, deberá contar con una recomendación del Concejo de Distrito del lugar en que realizará la obra, o en su defecto del Consejo Pastoral de la Comunidad, o de la Junta de Educación Administradora de la Escuela o Colegio más cercano, o de Juntas o Asociaciones Religiosas No católicas o de Juntas de Salud o Juntas de Desarrollo Humano. En todos los casos únicamente será necesaria la recomendación de una de estas organizaciones para cumplir este requisito, pero deberá constar mediante certificación del Secretario de la organización de que fue acuerdo firme de la Junta Directiva o de la autoridad autorizada para ese caso, de esta organización.
-4. Presentar una certificación de que el inmueble sobre el que realizará la obra es propio y que es el único con el que cuenta beneficiario.
-5. Presentar los demás requisitos de los que habla este Reglamento.
-En los casos de obras de interés comunal los requisitos serán los siguientes:
-6. Proyecto de la obra presentado por escrito y avalado por la Asociación de Desarrollo Integral de la población.
-7. Deberá presentar y demostrar las fuentes de financiamiento de la obra comunal por todos los mecanismos probatorios permitidos por la ley y que sean lícitos.

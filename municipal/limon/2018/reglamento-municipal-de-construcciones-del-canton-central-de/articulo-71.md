@@ -1,1 +1,0 @@
-ARTÍCULO 71. Nomenclatura y número oficial. La denominación de las vías públicas, parques, jardines y plazas y la numeración delos predios de cada cantón serán fijadas por el Concejo Municipal de la Municipalidad de acuerdo con la ley y los reglamentos vigentes. Las placas de esta nomenclatura oficial no podrán ser alteradas por ningún particular.

@@ -1,1 +1,0 @@
-ARTÍCULO 40. Canoas y bajantes y drenaje pluvial. No se permitirá caída libre de aguas pluviales sobre la vía pública, debiendo disponerse para tal efecto los bajantes pluviales desde techos, balcones, voladizos y cualquier otro saliente.

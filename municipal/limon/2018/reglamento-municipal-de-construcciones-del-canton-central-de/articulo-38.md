@@ -1,1 +1,0 @@
-ARTÍCULO 38. Estética de los edificios. Las fachadas de los edificios deberán guardar relación estética con las tipologías constructivas de la zona en que se ubiquen. Si hubiere discrepancia sobre este punto, entre el interesado y la Municipalidad, el asunto se someterá a la decisión del Colegio Federado de Ingenieros y de Arquitectos de Costa Rica.

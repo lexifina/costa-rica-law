@@ -1,1 +1,0 @@
-ARTÍCULO 104. Patente para empresas constructoras. Será obligatorio para las empresas constructoras que tengan oficinas administrativas en el Cantón Central de Limón contar con la licencia comercial que las habilite para esos propósitos.
