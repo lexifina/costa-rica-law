@@ -1,0 +1,2 @@
+SECCIÓN VI. Construcción sostenible y arquitectura cariben~a
+ARTÍCULO 41. Definición construcción sostenible. El concepto de Construcción Sostenible está basado en el desarrollo de un modelo que permita a las construcciones enfrentar y proponer soluciones, respetando siempre el medio donde se realiza, y teniendo especial cuidado con todos y cada uno de los elementos de la naturaleza. Sin comprometer que cada edificación creada desatienda las necesidades de sus usuarios.

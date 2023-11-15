@@ -1,0 +1,2 @@
+ARTICULO 48. Incumplimiento.
+En caso de incumplimiento de las disposiciones anteriores, la Municipalidad ordenará el retiro de los materiales y, en caso de no cumplirse con la orden dictada, procederá de conformidad con lo establecido por los artículos 75 y 76 del Código Municipal y la Ley General de Caminos Públicos. Los casos de accidentes por el incumplimiento de estos deberes serán de exclusiva responsabilidad del encargado de la obra y del propietario del inmueble.

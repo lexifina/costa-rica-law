@@ -1,0 +1,1 @@
+ARTÍCULO 44. Incentivo a la arquitectura caribeña: Cuando en un proyecto constructivo se considere en el diseño y construcción elementos de arquitectura caribeña, de conformidad con la guía o manual de diseño que la Municipalidad formule para tal fin. Para estos casos se aplicará un incentivo de descuento del veinticinco por ciento (25%) en el monto del impuesto de construcción.

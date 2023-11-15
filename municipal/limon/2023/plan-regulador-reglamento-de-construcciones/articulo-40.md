@@ -1,0 +1,1 @@
+ARTICULO 40. Cantidad de espacios por actividad en estacionamientos privados. Para todos los efectos del cálculo de espacios de estacionamiento en parqueos privados se aplicará lo establecido en el Reglamento de Construcciones del INVU.

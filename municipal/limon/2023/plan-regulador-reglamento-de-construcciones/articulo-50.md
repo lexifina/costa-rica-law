@@ -1,0 +1,2 @@
+ARTICULO 5. Competencia de los inspectores municipales.
+Para los efectos de ordenamiento territorial, los inspectores municipales tienen facultad para notificar acuerdos y resoluciones municipales relativos a licencias de construcción, para cuyo efecto podrán realizar las actas de inspección pertinentes, las cuales tendrán fe pública, en cuanto a los que se consignen en la razón de notificación; y siempre y cuando se realicen conforme dispone el presente reglamento.

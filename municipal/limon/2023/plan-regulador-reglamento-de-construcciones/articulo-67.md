@@ -1,0 +1,3 @@
+ARTICULO 67. Del acto ejecutivo del derribo.
+Habiéndose cumplido el plazo establecido, los funcionarios que defina la Municipalidad, se apersonarán en el lugar con una copia y mostrarán el Acta de Derribo a ejecutar y procederá con el derribo, con los medios o equipos de que disponga la Municipalidad y si es necesario, con la colaboración obligada de la Fuerza Pública a efecto de que otras personas no impidan que la Municipalidad realice los actos de destrucción que corresponda.
+Conforme al artículo 96 de la Ley de Construcciones, el costo del derribo correrá por cuenta del infractor, por lo que deberá ser incluido en su recibo municipal.

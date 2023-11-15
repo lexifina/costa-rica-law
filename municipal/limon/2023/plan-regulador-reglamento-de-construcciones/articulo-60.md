@@ -1,0 +1,2 @@
+ARTICULO 60. Requisitos de las actas de los funcionarios municipales.
+Los requisitos de cumplimiento de las actas de inspección, tasación y/o clausura de obras, que estén dentro del marco técnico jurídico establecido al efecto, deberán estar normados en el cuerpo de las actas municipales, las cuales contendrán los requisitos para su eficacia y que complementan el Plan Regulador. Los requisitos de dichas actas se publicarán en la página web de la Municipalidad.
