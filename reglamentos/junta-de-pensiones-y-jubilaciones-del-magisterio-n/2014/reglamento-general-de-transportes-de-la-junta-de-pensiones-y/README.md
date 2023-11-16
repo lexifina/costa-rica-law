@@ -19,3 +19,4 @@ Reglamento General de Transportes de la Junta de Pensiones y Jubilaciones del Ma
 | 4 | 2017-02-24 | Reglamento 0 (2017-02-24) |
 | 5 | 2019-12-17 | Reglamento 143 (2019-12-17) |
 | 6 | 2020-11-20 | Reglamento 129 (2020-11-20) |
+| 7 | 2023-11-16 | Reglamento 126 (2023-11-16) |
