@@ -1,0 +1,1 @@
+Artículo 5.- Para los efectos en los proyectos Socio Productivo, se debe presentar inicialmente el formulario de proyecto a socio productivos, al que podrá accesar por medio del enlace htto://www.dinadeco.go.cr/formuarios.html más los requisitos generales que se exponen en la tabla que se adjunta como anexo 1 a la presente normativa.

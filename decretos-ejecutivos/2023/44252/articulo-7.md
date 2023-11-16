@@ -1,0 +1,1 @@
+Artículo 7. En el caso de los Proyectos con Componente Productivo, se debe presentar inicialmente el formulario destinado para este tipo de modalidad, al que podrá accesar por medio del enlace http://www.dinadeco.go.cr/formularios.html más los requisitos generales que se exponen en la tabla que se adjunta como anexo 2 a la presente normativa.

@@ -1,0 +1,1 @@
+Artículo 77. Si los estudios de pre inversión arrojan que una idea productiva no tiene factibilidad económica, social, ambiental, mercadológica y terreno NO se podrá aprobar ese proyecto y no se aprobarán más estudios sobre ese mismo proyecto.

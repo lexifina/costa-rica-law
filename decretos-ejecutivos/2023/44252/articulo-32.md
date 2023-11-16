@@ -1,0 +1,7 @@
+Artículo 32. Las liquidaciones de los proyectos sin importar el componente de inversión que se financió deberán cumplir con lo siguiente:
+1. Descargar de la página web de Dinadeco y completar toda la información solicitada en el "Formulario para liquidar los recursos del Fondo de Proyectos" en la dirección electrónica http://www.dinadeco.go.cr/formu larios.html (Sírvase llenar los datos del formulario contra facturas, actas, transferencias bancarias relacionadas a la liquidación del proyecto).
+2. Presentar el formulario anterior en original con la firma del presidente y el tesorero de la organización comunal. Así como el recibido por parte del funcionario (a) correspondiente.
+3. Copia confrontada contra el original por el funcionario regional de los acuerdos de junta directiva en que se aprobaron las compras y pagos. (Todos los acuerdos de pago deben ser aprobados posterior al depósito de recursos y previos a la compra y pagos).
+4. Adjuntar copia del comprobante de pago del bien o servicio (cheque, comprobante de transferencia formal emitido por la entidad bancaria o del Ministerio de Hacienda). No se aceptan pagos en efectivo.
+5. Copia confrontada contra el original por el funcionario regional del libro de proyectos de la organización comunal, donde consten los movimientos referentes al proyecto.
+6. En el caso de que los procesos de compra se realicen mediante el Sistema Digital Unificado, deberá presentar el expediente completo de la o las contrataciones.

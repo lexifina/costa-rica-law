@@ -1,0 +1,1 @@
+Artículo 47. Por lo indicado en el artículo anterior, y para definir los requisitos de las diferentes fases, se presentarán en secciones diferenciadas para el proceso de compra ordinario y el proceso de compra dentro del sistema digital unificado.

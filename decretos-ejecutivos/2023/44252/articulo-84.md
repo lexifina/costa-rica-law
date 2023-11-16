@@ -1,0 +1,1 @@
+Artículo 84. Derogaciones. Deróguese el Decreto Ejecutivo Nº 43726-MGP "Reglamento sobre requisitos técnicos y administrativos para optar por el financiamiento del Fondo de Proyectos provenientes del 2% de Impuesto sobre la Renta según el Articulo Nº 19 de la Ley Nº 3859 "Sobre Desarrollo de la Comunidad", publicado en el Alcance Nº 223 a la Gaceta 199 del 19 de octubre de 2022.
