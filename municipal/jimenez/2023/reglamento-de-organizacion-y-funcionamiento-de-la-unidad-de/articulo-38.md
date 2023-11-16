@@ -1,0 +1,1 @@
+Artículo 38.-Comunicación Respecto a las Relaciones de Hecho. Los informes de Relaciones de Hechos se ajustarán en su contenido a las disposiciones que establezca la Contraloría General de la República.

@@ -1,0 +1,2 @@
+Artículo 58.-Derogatoria. Deróguese el Reglamento de Organización y Funcionamiento de la Auditoría Interna de la Municipalidad de Jiménez, publicado en La Gaceta Nº 145 del 27 de julio del 2012, y cualquier otra normativa interna que se contraponga al presente Reglamento.
+Vigencia. El presente Reglamento rige a partir de su publicación en el Diario Oficial La Gaceta. Publíquese en el Diario Oficial La Gaceta.

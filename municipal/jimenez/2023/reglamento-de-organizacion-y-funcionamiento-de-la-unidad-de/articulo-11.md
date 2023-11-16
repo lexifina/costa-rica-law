@@ -1,0 +1,3 @@
+PROGRAMAS DE EDUCACIÓN Y CAPACITACIÓN
+PROFESIONAL CONTINUA
+Artículo 11.-Presupuesto del Programa de Capacitación. Cada año la Auditoría Interna, preparará un plan de educación y capacitación profesional continua, con el propósito que el personal de la auditoría mantenga y perfeccione sus capacidades y competencias profesionales para cumplir con pericia y debido cuidado profesional los trabajos que se asignen. La asignación presupuestaria para este programa será incluida en la solicitud de recursos, que se somete a aprobación del jerarca todos los años, quedando sujeta su aprobación a la disponibilidad presupuestarias que posea la Municipalidad para ese momento, y siguiendo la normativa que para efectos de capacitaciones posea la Municipalidad de Jiménez.

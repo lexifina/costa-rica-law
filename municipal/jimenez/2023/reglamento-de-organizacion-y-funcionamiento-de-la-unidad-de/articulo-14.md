@@ -1,0 +1,1 @@
+Artículo 14.-De los Deberes Éticos. Es deber de los funcionarios de la Auditoría, respetar los lineamientos éticos y morales establecidos por el Código Municipal, Reglamentación interna de la Municipalidad de Jiménez, así como la normativa vigente y concordante y los lineamientos que para estos efectos brinde la Contraloría General de la República.

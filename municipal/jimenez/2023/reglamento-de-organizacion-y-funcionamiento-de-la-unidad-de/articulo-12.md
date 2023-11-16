@@ -1,0 +1,1 @@
+Artículo 12.-Obligación de Participar en el Programa de Educación y Capacitación Profesional Continua. El personal de la Auditoría Interna está obligado a cumplir con las actividades de capacitación. Las capacitaciones que se desarrollen fuera del país deberán ser autorizadas por el Concejo Municipal, Código Municipal y lo que las demás normas conexas que regulen la materia.

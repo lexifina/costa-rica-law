@@ -1,0 +1,3 @@
+Artículo 41.-Seguimiento Informes de Control Interno. Los informes de control interno como parte del programa de seguimiento de recomendaciones, verificará lo siguiente:
+a) Que el jerarca o el titular subordinado, implemente las recomendaciones de la Auditoría Interna, gire por escrito las instrucciones al o los responsables designados, para lo cual deberá disponer en sus instrucciones las fechas de inicio y de finalización para dicha implementación.
+b) Las recomendaciones dirigidas a los titulares subordinados y los dirigidos al jerarca se implementarán de conformidad con lo establecido en la Ley General de Control Interno, sin perjuicio que se realicen en un plazo menor.

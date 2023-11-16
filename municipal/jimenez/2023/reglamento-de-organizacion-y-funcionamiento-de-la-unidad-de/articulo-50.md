@@ -1,0 +1,4 @@
+Artículo 50.-Presentación y Trámite. Las denuncias presentadas deberán ser registradas de tal manera que puedan identificarse y darles seguimiento con facilidad y oportunidad. Lo anterior, según el procedimiento que al efecto apruebe la Auditoría Interna.
+El Titular de la Auditoría Interna comunicará al denunciante en un plazo de diez días hábiles el recibido de la misma y luego en un plazo de treinta días hábiles lo analizará y a la vez le comunicará al denunciante su admisibilidad o desestimación. En caso de ser admitida se le comunicará el plazo estimado en que estaría resultado.
+Si de la revisión de la denuncia se concluye que no existe mérito suficiente para iniciar un estudio de auditoría, se comunicará esta situación al denunciante y se procederá a su archivo, mediante resolución motivada.
+Declarada la admisibilidad de la denuncia, se procederá a realizar la investigación preliminar.
