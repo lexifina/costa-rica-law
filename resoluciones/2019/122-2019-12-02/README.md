@@ -15,3 +15,4 @@ Normas técnicas sobre el presupuesto de los beneficios patrimoniales otorgados 
 | --- | --- | --- |
 | 1 | 2021-01-01 | la propia norma |
 | 2 | 2021-01-01 | Resolución 83 (2020-10-21) |
+| 3 | 2023-11-16 | Resolución 111 (2023-11-16) |
