@@ -1,0 +1,1 @@
+Artículo 11.-Donación de activos. Se podrá donar, activos municipales dados de baja, bienes o materiales, de conformidad con el Reglamento Interno para la Administración de Activos Fijos de la Municipalidad de Río Cuarto y la legislación vigente.

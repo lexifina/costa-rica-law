@@ -1,0 +1,11 @@
+Artículo 3°-Definiciones. Para la aplicación del presente Reglamento y la interpretación de este, se entiende por:
+Centro Educativo: Comprende básicamente kindergarten o jardín de niños y preescolar, escuela, e colegios instituciones educativas financiados por el Ministerio de Educación Pública, que estén asentados en el Cantón de Río Cuarto.
+Certificaciones: Documentos probatorios sobre condiciones específicas de los sujetos.
+Dirección Financiera, Tributaria y Administrativa: Dirección de la Municipalidad de Río Cuarto, que tiene bajo su competencia y ámbito de acción las materias afines a los proyectos para los cuales van dirigidas las donaciones.
+Municipalidad: Municipalidad de Río Cuarto.
+Organizaciones de Beneficencia o Bien Social: Son las entidades públicas o privadas según corresponda, organizadas bajo las figuras de asociaciones, fundaciones o empresas públicas, que se dediquen a la atención de personas en riesgo social, que promuevan y desarrollen obras, proyectos, programas o actividades de bien común o de carácter social, que coadyuven al mejoramiento del nivel de vida de la comunidad de Río Cuarto y desarrollen éste tipo de proyectos, directamente en el Cantón de Río Cuarto.
+Órgano Contralor: Contraloría General de la República, con sus siglas CGR.
+Precalificación de idoneidad: Constituye el pronunciamiento de la Alcaldía Municipal basado en el dictamen de la Dirección municipal competente, para determinar la viabilidad de la donación solicitada.
+Reglamento: Reglamento de Donaciones de la Municipalidad de Río Cuarto.
+Situación de desgracia o infortunio: Se entiende como aquellos acontecimientos inesperados que amenazan gravemente la integridad física y emocional de una persona o núcleo familiar, provocados por eventos de la naturaleza tales como, terremotos, huracanes, tornados, deslizamientos, inundaciones, derrumbes e incendios; así como desastres, situaciones prolongadas en un contexto de alerta roja a partir una declaratoria emergencia nacional o pandemia. Siempre que haya reporte de la emergencia ante la Comisión Nacional de Emergencias o al 9-1-1, o su similar.
+Superior Jerárquico: Llámese así a quien ocupe el cargo de Alcalde o Alcaldesa en propiedad o interino de la Municipalidad de Río Cuarto, quien emitirá el dictamen favorable o desfavorable de la solicitud ante el Concejo Municipal cuando corresponda.

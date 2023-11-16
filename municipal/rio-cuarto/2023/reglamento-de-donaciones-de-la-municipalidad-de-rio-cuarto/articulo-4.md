@@ -1,0 +1,1 @@
+Artículo 4°-Contenido Presupuestario. La Municipalidad de Río Cuarto incluirá en su presupuesto ordinario las partidas presupuestarias correspondientes para la donación de bienes, servicios u obra que ameriten erogación por parte del Gobierno Local.

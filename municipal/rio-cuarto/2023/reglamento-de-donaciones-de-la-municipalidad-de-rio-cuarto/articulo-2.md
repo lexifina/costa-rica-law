@@ -1,0 +1,1 @@
+Artículo 2°-Tipos de donación. Las donaciones otorgadas por la Municipalidad de Río Cuarto a podrán ser motivas por razones de infortunio y/o desastre, o bien, por la solicitud expresa de donaciones y/o ayudas en especie.

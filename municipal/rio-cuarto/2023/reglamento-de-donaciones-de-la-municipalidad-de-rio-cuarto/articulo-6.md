@@ -1,0 +1,2 @@
+Artículo 6°-Entrega incompleta de información. La entrega incompleta de la información requerida para tramitar donaciones será prevenida una única vez. Para el cumplimiento de los requerimientos solicitados por este Reglamento, se otorgará un plazo de diez (10) días hábiles para que se subsane la información faltante.
+De requerirse la ampliación del plazo, la persona solicitante o su representante legal, deberá solicitarlo de forma escrita a la Dirección. Solicitud que se acogerá en caso de que la información faltante dependa de terceros.

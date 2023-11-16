@@ -1,0 +1,1 @@
+Artículo 7°-Informe de viabilidad. Esta solicitud será analizada por la a Dirección correspondiente para dar trámite, según corresponda. Quien elaborará un informe de la viabilidad del otorgamiento de la donación, el cual será dirigido a la Alcaldía Municipal para su correspondiente aprobación.

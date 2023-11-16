@@ -1,0 +1,2 @@
+Artículo 12.-Compras directas. Se podrá solicitar a la Municipalidad la compra directa de equipamiento, materiales educativos y/o cualquier otro tipo de bien que sea requerido para alcanzar los fines propuestos.
+Esta compra será validada técnicamente por medio de la Dirección competente, la cual realizará las gestiones pertinentes para presupuestar y adquirir los insumos solicitados. Para la materialización de la donación se levantará un acta de entrega de los bienes a donarse.
