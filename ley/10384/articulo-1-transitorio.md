@@ -1,0 +1,3 @@
+TRANSITORIO ÚNICO- El Instituto Costarricense sobre Drogas contará con un plazo de hasta dieciocho meses, contado a partir de la entrada en vigencia de la presente ley, para proceder al traslado de los bienes que actualmente se encuentran en el inmueble matrícula número ciento seis mil cuatrocientos-cero cero cero (106 400-000), con el fin de que el Benemérito Cuerpo de Bomberos de Costa Rica proceda a entrar en posesión del inmueble, para los efectos que establece la presente ley.
+Rige a partir de su publicación.
+Dado en la Presidencia de la República, San José, a los trece días del mes de noviembre del año dos mil veintitrés.
