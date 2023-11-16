@@ -15,3 +15,4 @@ Reglamento para el otorgamiento de licencias e incapacidades a los beneficiarios
 | --- | --- | --- |
 | 1 | 2014-05-29 | la propia norma |
 | 2 | 2020-03-11 | Reglamento 9084 (2020-03-11) |
+| 3 | 2023-11-16 | Reglamento 9385 (2023-11-16) |
