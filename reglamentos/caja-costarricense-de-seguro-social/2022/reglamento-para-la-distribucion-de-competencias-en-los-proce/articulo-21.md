@@ -1,11 +1,10 @@
-Artículo 21.-Funciones de la Junta de Adquisiciones: Serán funciones de la Junta de Adquisiciones de la CCSS.
-a) Realizar el análisis respectivo de los procedimientos de compra, sometidos a su conocimiento en razón de la cuantía y dictar el acto final correspondiente.
-b) Aprobar o improbar los diferentes asuntos que constituyen el orden del día de la sesión sometida a su consideración.
-c) Requerir informes de las unidades ejecutoras necesarios para la resolución de los casos en agenda.
-d) Realimentar a las distintas unidades que someten casos a su conocimiento, sobre las oportunidades de mejora detectadas, mediante la secretaria de la Junta.
-e) Realizar el análisis de las compras de acuerdo con las políticas institucionales vigentes, los programas de compras y de desarrollo de proyectos, así como el bloque jurídico aplicable.
-f) Resolver las impugnaciones contra el acto final del procedimiento cuando corresponda.
-g) Aprobar los requisitos de admisibilidad para presentar casos ante la Junta de Adquisiciones.
-h) Resolver los procesos de donaciones según el tope de cuantía definidos en este Reglamento.
-i) Determinar la necesidad e importancia según el caso a exponer, de contar con criterios técnicos según la naturaleza del objeto contractual y/o con amplia experiencia en materia de cadena de abastecimiento, para lo cual podrá hacerlo saber al coordinador de la Junta para su debida invitación y convocatoria a la sesión en la que se tratará el caso, en la cual tendrán voz, pero no voto.
-j) Realizar el análisis respectivo de los procedimientos de compra cuya competencia para el dictado del acto final corresponda a la Junta Directiva Institucional, sometidos a su conocimiento para la recomendación respectiva previo al conocimiento de la Junta Directiva.
+Artículo 21. - Requisitos de admisibilidad para la presentación de licitaciones ante la Junta de Adquisiciones.
+Todo expediente de compra que sea enviado a la Secretaría de la Junta de Adquisiciones mediante la plataforma del sistema unificado de compras públicas vigente o excepcionalmente mediante el expediente físico debe contener:
+a) Todos los actos administrativos íntegros y dictados acorde a cada funcionario partícipe.
+b) Estudios administrativos, técnicos, financieros, legales u otros a los que fueron sometidas las ofertas.
+c) Aval legal por parte de la Gerencia respectiva y la designación del asesor técnico para el caso.
+d) La plantilla de recomendación de adjudicación debidamente aprobada y revisada por los funcionarios competentes según la estructura de la unidad de compras.
+e) Sinopsis del procedimiento y presentación de la compra, en el formato establecido elaborado por la unidad promovente.
+f) Aprobación de la recomendación de adjudicación en el sistema electrónico de compras por parte de la Gerencia respectiva previo a verificación de los requisitos anteriores.
+g) Cualquier otro que así lo disponga la Junta de adquisiciones.
+Los requisitos serán analizados por el equipo de la Secretaría Ejecutiva de la Junta de Adquisiciones la cual determinará el cumplimiento de estos o su rechazo. En los casos en que resulte necesario alguna subsanación, la Secretaría Ejecutiva podrá solicitarla a la unidad promovente y/o gerencia respectiva según corresponda.

@@ -1,3 +1,3 @@
-SECCIÓN III
-De la Secretaría Ejecutiva de la Junta de Adquisiciones
-Artículo 25.-De la Secretaría Ejecutiva de la Junta de Adquisiciones. Con el fin de apoyar la gestión de esta Junta, existirá una Secretaría Ejecutiva de la Junta de Adquisiciones que tendrá a cargo el soporte técnico, administrativo y logístico; dependerá formalmente de la Gerencia de Logística, la cual definirá sus actividades operativas mediante la normativa correspondiente.
+Artículo 25. - De la votación
+Los acuerdos se adoptarán por mayoría simple de los presentes. Los acuerdos de la Junta serán firmes a partir de su adopción.
+En el acta respectiva deberá consignarse el resultado de cada votación, acompañándose del razonamiento y justificación por parte del Gerente en caso de voto disidente.

@@ -1,5 +1,11 @@
-CAPÍTULO II
-De las competencias
-SECCION I
-De los procedimientos
-Artículo 9º-De los tipos de procedimiento. Las unidades de compra autorizadas en la institución podrán promover todo tipo de procedimientos de contratación pública. Los procedimientos de compra pública se deben realizar a través del sistema digital unificado, garantizando la trazabilidad, publicidad y acceso a la información, facilitándose el análisis de datos, el control interno, auditorías de calidad, y autoevaluaciones de las unidades programáticas facultadas para contratar.
+CAPITULO II
+DEL ROL ESTRATEGICO DE LA JUNTA DIRECTIVA
+Artículo 9. -De la Junta Directiva
+En materia de compra pública la Junta Directiva, tendrá competencia para:
+a) Aprobar el presupuesto institucional.
+b) Aprobar el portafolio de proyectos.
+c) Conocer las consideraciones Plan Anual de Compras Institucional y del plan de vacunación institucional.
+d) Conocer los informes de cumplimiento y desempeño de las unidades de compras, respecto al plan de compras ejecutado.
+e) Conocer el resultado de los indicadores de desempeño en materia de compra pública.
+f) Adoptar las medidas preventivas o correctivas pertinentes, conforme los informes elevados a su conocimiento.
+g) Así como cualquier otra que pueda considerar.

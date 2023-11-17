@@ -7,13 +7,11 @@ Por tanto, la Junta Directiva- en forma unánime-
 ACUERDA:
 Acuerdo primero
 "Aprobar el Reglamento de Distribución de Competencias en la Adquisición de Bienes, Servicios y Obra Pública en la Caja Costarricense de Seguro Social (CCSS) con los cambios señalados por esta Junta Directiva, respecto a los artículos 10 y 22 así como los considerandos referidos
-(.)".
-REGLAMENTO DE DISTRIBUCIÓN DE COMPETENCIAS
-EN LA ADQUISICIÓN DE BIENES, SERVICIOS
-Y OBRA PÚBLICA EN LA CCSS
+(….)".
+(Nota de Sinalevi: El texto de la presente norma fue reformado parcialmente y reproducido su texto de forma íntegra mediante sesión N° 9385 del 17 de noviembre del año 2023, y publicado en el Alcance Digital N° 228 a La Gaceta N° 214 del 17 de noviembre del 2023, y se transcribe a continuación:)
+REGLAMENTO PARA LA DISTRIBUCIÓN DE COMPETENCIAS EN LOS
+PROCEDIMIENTOS DE ADQUISICIÓN DE LA CCSS
 CAPÍTULO I
-De la organización para el abastecimiento
-de bienes y servicios
-SECCION I
-Aspectos Generales
-Artículo 1.-Objetivo. El presente reglamento, tiene como objetivo establecer la organización y la distribución de las competencias inherentes para emitir los actos administrativos que deben tramitarse en cada una de las etapas de la gestión de los procedimientos de compras públicas que se realizan en la Caja.
+DE LA ORGANIZACIÓN PARA LA ADQUISICIÓN DE BIENES Y SERVICIOS
+Propuesta de modificación
+Artículo 1. –Objetivo. El presente reglamento, tiene como objetivo fortalecer el modelo de gobernanza de contratación pública de la CCSS, a partir de la organización por distribución de las competencias para emitir los actos administrativos propios de las etapas de la gestión de los procedimientos de compras públicas, a cargo de las unidades acreditadas en la Caja.

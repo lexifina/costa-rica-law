@@ -1,12 +1,3 @@
-Artículo 23.-Obligaciones de los miembros de la Junta de Adquisiciones. Son obligaciones de los miembros de la Junta de Adquisiciones:
-a) Asistir a las sesiones ordinarias y extraordinarias que ésta celebre, en caso de ausencia por razones de fuerza de mayor o caso fortuito deberá presentarse la justificación correspondiente ante la Secretaría Ejecutiva de la Junta, quien coordinará la autorización del Coordinador de la Junta y la suplencia respectiva.
-b) Analizar y estudiar los casos que se someten a su conocimiento, que permita tomar la decisión final en apego a la normativa vigente.
-c) Votar los asuntos sometidos a su consideración y razonar su voto en caso de divergencia.
-d) Formular y presentar oportunamente proposiciones, sugerencias y mociones sobre asuntos que se sometan a su conocimiento y en el marco propio de la competencia de la Junta.
-e) Suscribir para cada expediente de compra pública de conocimiento de la Junta para el dictado del acto final, una declaración jurada sobre la ausencia de conflicto de interés y la inexistencia de prohibición legal para adoptar la decisión de los asuntos sometidos al conocimiento.
-f) En cada sesión, verificar que no le cubre ninguna prohibición legal para adoptar la decisión en los asuntos que se sometan a su conocimiento, para tales efectos, suscribirá una declaración jurada de ausencia de conflicto de interés.
-g) Abstenerse de participar en la discusión y de votar en asuntos en donde tenga interés propio y directo o de algún pariente hasta el tercer grado de consanguinidad o afinidad, inclusive. Lo anterior sustentado en la normativa nacional vigente.
-h) Implementar un robusto sistema de control interno de aplicación obligatoria para la gestión de la Junta de Adquisiciones.
-i) Cumplir y actuar conforme lo establecido en la Política Institucional de Probidad.
-j) Además de aquellas que como funcionarios de la hacienda pública le sean propias de conformidad con el ordenamiento jurídico.
-k) Cualquier otra que, en razón de su naturaleza y competencia le corresponda o le sea instruida por parte de la Junta Directiva de la Caja.
+Artículo 23. - De la Convocatoria
+La Junta de Adquisiciones definirá los días y horas en que sesionará en forma ordinaria, y modalidad en que se desarrollará, lo cual dependerá de los asuntos por resolver y de los plazos definidos para los procedimientos de compra respectivos. La Secretaría Ejecutiva diligenciará las convocatorias por simple memorando donde se incluirá el orden del día y además deberá valorar el cumplimiento del cronograma para el dictado del acto final. En los casos de urgencia la convocatoria privará para garantizar el abastecimiento y cumplimiento de plazos.
+Para esos efectos la convocatoria la podrá realizar la Secretaría o el Coordinador de la Junta en un plazo de hasta 24 horas antes de que se celebre la sesión, sin detrimento de casos de urgencia que el plazo puede ser menor.

@@ -1,1 +1,0 @@
-Transitorio II.-En cumplimiento de las buenas prácticas de gobierno corporativo, en el plazo un año posterior a la entrada en vigencia del presente Reglamento, la Gerencia General presentará a la Junta Directiva un informe de resultados de la gestión de la Junta de Adquisiciones.

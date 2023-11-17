@@ -1,5 +1,3 @@
-CAPITULO III
-De la Junta de Adquisiciones de la Caja
-SECCIÓN I
-Naturaleza, Funciones, Integración y Responsabilidades
-Artículo 19.-Naturaleza. La Junta de Adquisiciones de la Caja es el órgano colegiado competente para conocer todo tipo de procedimientos y trámites de compra, y emitir el acto final, incluyendo las impugnaciones contra dicho acto que requieran ser resueltos por dicha Junta, según la competencia dada en este Reglamento.
+Artículo 19. - Competencia de la Secretaría Ejecutiva de la Junta de Adquisiciones
+Le corresponde a la Secretaría Ejecutiva como órgano auxiliar de la Junta de Adquisiciones brindar asesoría y colaboración en materia de contratación pública.
+De previo a que la Junta de Adquisiciones conozca de cualquier solicitud y de acuerdo con los lineamientos que al efecto se emitan, la Secretaría realizará un análisis de admisibilidad del caso, y de la aprobación gerencial respectiva, si se detecta algún incumplimiento solicitará la subsanación respectiva o devolverá la gestión a su lugar de origen para que completen los requisitos, para tal fin se aplicará una plantilla para verificar el cumplimiento de los requisitos mínimos.

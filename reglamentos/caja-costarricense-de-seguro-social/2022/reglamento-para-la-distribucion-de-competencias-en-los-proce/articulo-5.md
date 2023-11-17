@@ -1,9 +1,4 @@
-SECCION II
-De la Organización.
-Artículo 5º-Sobre los órganos autorizados. Los procedimientos de compras públicas que se realizan en la Caja se promueven y formalizan por medio de los siguientes órganos:
-. Gerencias y Auditoría Interna
-. Direcciones de Red Integrada de Prestación de Servicios de Salud
-. Direcciones de Sede, Direcciones Médicas, y de Sucursales
-. Direcciones Administrativo Financiera, y Administración de Centros de Salud
-Cada uno de los órganos antes señalados actuarán y resolverán en materia de adquisiciones de bienes y servicios en las áreas de su competencia, de acuerdo con los límites económicos indicados en este Reglamento, según corresponda a cada uno de ellos y en los plazos establecidos.
-Tales órganos funcionarán de forma sistémica para el cumplimiento de los objetivos institucionales y aplicarán los mecanismos de coordinación, interrelación, control, mejora y legalidad que se definan conforme a los lineamientos que emita la Gerencia de Logística en su condición de rector de compras institucionales, para garantizar la gobernanza en materia de compras públicas.
+Artículo 5. -Sobre los órganos participes en la compra pública
+Los procedimientos de compra pública estarán a cargo de aquellos órganos y unidades de compra debidamente acreditados. Tales órganos funcionarán de forma integrada y coordinada para el cumplimiento de los objetivos institucionales y aplicarán los mecanismos de colaboración, interrelación, control, mejora y trabajo en red para asegurar el interés público, el inventario institucional y la economía de escala, conforme con los lineamientos que emita la Gerencia de Logística en su condición de rector institucional de compras institucionales.
+Las unidades que no estén facultadas para realizar procedimientos de compra pública deberán remitir sus necesidades a la unidad de compra designada y coordinada previamente por la Gerencia respectiva para su formalización, con el objeto de que dicha unidad, sea quien desarrolle el procedimiento de contratación. No obstante, la responsabilidad de gestionar los requisitos previos que establece la Ley General de Contratación Pública como lo son; las especificaciones técnicas, el contenido presupuestario, justificación, mecanismos de control, entre otros, así como la fiscalización técnica de los contratos, le corresponderá a la unidad que requiera el objeto a contratar.
+La determinación de la necesidad como la definición del pliego de condiciones deberá valorar el fomento de la mayor participación del mercado, la objetividad de análisis, la funcionabilidad del objeto a contratar, la razonabilidad de precios, entre otros.

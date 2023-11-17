@@ -1,2 +1,8 @@
-Artículo 26.-Competencia de la Secretaría Ejecutiva de la Junta de Adquisiciones. Le corresponde a la Secretaría Ejecutiva como órgano auxiliar de la Junta de Adquisiciones brindar asesoría y colaboración en materia de compras públicas.
-De previo a que la Junta de Adquisiciones conozca de cualquier solicitud y de acuerdo con los lineamientos que al efecto se emitan, la Secretaría realizará un análisis de admisibilidad del caso, y de la aprobación gerencial respectiva, si se detecta algún incumplimiento solicitará la subsanación respectiva o devolverá la gestión a su lugar de origen para que completen los requisitos, para tal fin se aplicará una plantilla para verificar el cumplimiento de los requisitos mínimos. De igual manera analizará los requisitos de admisibilidad de las contrataciones que por cuantía serán de conocimiento de la Junta Directiva Institucional pero previo deban contar con la recomendación de la Junta de Adquisiciones.
+Artículo 26. - De las actas
+La Secretaría Ejecutiva levantará el acta de cada sesión, la cual contendrá al menos:
+a) De manera clara y precisa indicación de los presentes a la sesión, especificando las calidades de cada uno.
+b) El lugar, fecha y hora de inicio y finalización de la sesión.
+c) La agenda trazada. Los principales puntos de deliberación. La forma y resultado de las votaciones y el contenido de los acuerdos.
+d) Firmas digitales o manuscrita del coordinador de la Junta, más aquellos miembros con voto disidente y sus debidas motivaciones.
+e) Constancia de que la sesión será grabada y respaldada en un medio digital que garantice su integridad y archivo de conformidad con la legislación vigente.
+Dicho procedimiento debe cumplirse máximo el día siguiente hábil de la respectiva sesión.

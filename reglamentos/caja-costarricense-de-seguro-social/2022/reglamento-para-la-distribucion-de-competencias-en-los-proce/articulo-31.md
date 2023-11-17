@@ -1,2 +1,3 @@
-Artículo 31.-Del quórum. La Junta podrá sesionar válidamente con la mayoría simple de sus integrantes.
-En caso fortuito o fuerza mayor debidamente acreditado que imposibilite la conformación del quórum, sea por el titular o el suplente, se podrá sesionar con la asistencia de la tercera parte de sus miembros.
+Artículo 31. -De la Indicadores
+La Gerencia de Logística desarrollará y presentará de manera semestral a la Junta Directiva los indicadores de control y seguimiento en materia de compra pública de la actividad desarrollada en las unidades de compra acreditadas.
+Dentro de ellos se encontrarán, el número de unidades acreditadas, categorización según modelo de madurez (incipiente, básico, definido, gestionado, optimizado), cantidad de compras iniciadas, porcentajes según su acto final: infructuosos, desiertos, adjudicados, porcentaje de ejecución presupuestaria, cantidad de contratos en ejecución, montos tranzados, principales contratistas, cumplimiento de plazos, entre otros de interés.

@@ -1,2 +1,3 @@
-Artículo 30.-De la Convocatoria. La Junta de Adquisiciones definirá los días y horas en que sesionará en forma ordinaria, y modalidad en que se desarrollará, lo cual dependerá de los asuntos por resolver y de los plazos definidos para los procedimientos de compra respectivos. La Secretaría Ejecutiva diligenciará las convocatorias por simple memorando donde se incluirá el orden del día.
-En los casos de urgencia la convocatoria privará sobre el resto de los asuntos a su cargo. Para esos efectos la convocatoria la podrá realizar la Secretaría o el Coordinador de la Junta en un plazo no menor a 24 horas antes de que se celebre la sesión.
+Artículo 30. -De la Vigilancia e Información
+Cada unidad de compra deberá llevar actualizados los indicadores de gestión en esta materia que recomendará la Gerencia de Logística, debiendo reaccionar de manera preventiva ante cualquier situación que los mismos arrojen.
+La institución actualizará el mapa riesgos de compra pública, adonde los mismos sean identificados, analizados y controlados.
