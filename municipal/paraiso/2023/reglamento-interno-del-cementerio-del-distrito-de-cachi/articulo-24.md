@@ -1,0 +1,1 @@
+Artículo 24.-El Comité Administrador del Cementerio de Cachí se compromete a construir un número determinado de bóvedas con el fin de ser utilizados en casos de emergencias o especiales (entiéndase por especiales personas indigentes o de muy escasos recursos que no puedan adquirir el arredramiento de dicha bóveda), así como un osario.

@@ -1,0 +1,1 @@
+Artículo 26.-(Transitorio 2) Los actuales arrendatarios de derechos de cementerio contarán con el plazo de tres meses a partir de aprobado el presente Reglamento, para suscribir el contrato a que se refiere el anterior número de este. De no formalizarse el contrato en el plazo establecido, la Asociación dispondrá de las parcelas y nichos respectivos.

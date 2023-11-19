@@ -1,0 +1,1 @@
+Artículo 23.-En todo lo que no esté previsto en este Reglamento, se aplicará supletoriamente: Reglamento de las Juntas de los cementerios municipales distritales del cantón de Paraíso, el Reglamento General de cementerios, Decreto Ejecutivo número 32833-S del 19 de diciembre del 2005 y demás disposiciones conexas.
