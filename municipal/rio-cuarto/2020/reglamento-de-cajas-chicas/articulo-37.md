@@ -1,1 +1,0 @@
-Artículo 37.—El fondo de Caja Chica no podrá ser utilizado para el cambio de cheques personales ni usarse para fines distintos para el que fue creado ni disponerse para actuaciones distintas a las autorizadas por la Ley y este Reglamento.

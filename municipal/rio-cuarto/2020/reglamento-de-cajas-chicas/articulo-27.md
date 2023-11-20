@@ -1,1 +1,0 @@
-Artículo 27.—Los intereses devengados por los saldos de la cuenta bancaria de caja chica deberán ser depositados a la cuenta bancaria general de la Municipalidad, en un plazo no mayor a ocho días, a partir del recibo del estado de cuenta bancaria que consigne su acreditación.

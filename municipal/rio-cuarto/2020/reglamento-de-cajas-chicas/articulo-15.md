@@ -1,1 +1,0 @@
-Artículo 15.—Cuando por algún motivo la compra no se lleve a cabo, el funcionario que ha recibido el dinero del vale de Caja Chica, deberá hacer el reintegro inmediato del dinero entregado el mismo día que se recibió el dinero Para tal efecto, deberá ese funcionario aportar una justificación escrita, avalada con la firma de la jefatura superior inmediata.

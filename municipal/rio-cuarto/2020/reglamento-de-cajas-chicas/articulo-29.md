@@ -1,1 +1,0 @@
-Artículo 29.—Si realizado el arqueo, resulta una diferencia, ésta debe ser justificada por la Tesorería, quien además deberá en forma inmediata depositar el sobrante o reintegrar el faltante, según corresponda.
