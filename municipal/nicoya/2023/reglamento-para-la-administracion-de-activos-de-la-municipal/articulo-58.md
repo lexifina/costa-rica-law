@@ -1,0 +1,1 @@
+Artículo 58.-Método de depreciación. La depreciación de los activos fijos puestos al servicio de la entidad deberá calcularse por el método de línea recta, por meses o años, método de depreciación aceptado por la Contabilidad Nacional según directriz vigente a la fecha (Directriz CN-001-2009 del 29 noviembre 2009).

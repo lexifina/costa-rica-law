@@ -1,0 +1,2 @@
+Artículo 11.-Recepción de activos de propiedad, planta y equipo comprados. Las compras de activos de propiedad, planta y equipo para inventario tienen que ser recibidas en la Proveeduría (o Bodega Municipal).
+En caso de activos que por sus características requieran la comprobación de determinadas especificaciones, se darán por recibidos hasta que un especialista o técnico en la materia emita un criterio por escrito en ese mismo sentido.

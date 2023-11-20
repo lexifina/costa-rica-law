@@ -1,0 +1,2 @@
+Artículo 43.-Avalúo de los bienes para venta: Previo al trámite de la respectiva venta será necesario realizar un avalúo que determine la estimación del precio de los bienes conforme al valor real del mercado, el cual se tomará como el monto mínimo en el cual se venderán.
+El avalúo será realizado por el órgano especializado de la Municipalidad o en su defecto por la Dirección General de Tributación Directa.

@@ -1,0 +1,1 @@
+Artículo 27.-Procedimientos para la baja de activos. Los procedimientos para dar de baja activos en mal estado o en desuso, serán los que para ese efecto se indiquen en el presente reglamento y los procedimientos de control que se establezcan para la administración de los bienes municipales.

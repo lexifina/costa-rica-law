@@ -1,0 +1,33 @@
+Artículo 3°-Definiciones: Para facilitar la interpretación y aplicación de este reglamento, se establecen los siguientes conceptos:
+3.1. Acta de inventario inicial: Documento donde constan los bienes muebles asignados a cada dependencia o unidad de la Municipalidad. Cuando se trate de bienes inmuebles y otros activos, estos estarán comprendidos en los registros correspondientes.
+3.2. Acta de donación: Documento mediante el cual se legaliza un acto de donación de bienes.
+3.3. Activos capitalizables: Bienes que se adquieren y que se espera que sean utilizados durante más de un período contable y que tengan, al momento de su adquisición por parte de la Municipalidad, un valor igual o superior que equivalgan al 50% del salario base del Oficinista 1, definido en la relación de puestos de la Ley de Presupuesto Ordinario de la República vigente al momento de la adquisición.
+3.4. Activo de control: Activo de bajo valor monetario, que no califica como activo fijo capitalizable, pero al cual se le asigna una identificación para su control.
+3.5. Activo fijo: Bien mueble o inmueble con una vida útil mayor a un año, que se adquiere para su uso y funcionamiento en la operación normal de la Institución o en la prestación de servicios al público en general. Estos bienes están sujetos a revaluación, depreciación, amortización o agotamiento, según corresponda.
+3.6. Adiciones capitalizables: Erogaciones que aumentan la calidad del bien, pero que no alargan la vida útil del mismo, independientemente de su costo.
+3.7. Adquisición: Proceso mediante el cual la Municipalidad incorpora activos a su inventario de bienes.
+3.8. Alta de bienes: Operación mediante la cual se ingresa al inventario de activos un bien, sea por compra, producción propia, donación por persona física o jurídica mediante la transmisión del dominio a la Municipalidad, aparición de bienes dados de baja, reconstrucción de bienes o cualquier otra situación que produzca un ingreso.
+3.9. Baja de bienes: Operación mediante la cual se excluyen bienes del inventario, sea por desecho, donación, desmantelamiento, remate, robo, pérdida, extravío y otras formas de extinción jurídica de los bienes.
+3.10. Bienes de uso personal: Bienes personales de funcionarios municipales que se encuentran en las instalaciones de la entidad, pero que no son propiedad del Ayuntamiento por no haber sido adquiridos por la misma.
+3.11. Bienes en desuso: Bienes obsoletos, faltos de repuestos o descontinuados por sus fabricantes, que ya no son útiles y/o necesarios para las labores que desarrolla la Municipalidad, así como los que en virtud del costo de su reparación devengan en bienes en desuso.
+3.12. Bienes en mal estado: Bienes que en virtud de su estado físico no tengan utilidad alguna, previa valoración que rindan los técnicos calificados que designe la Administración.
+3.13. Bienes inmuebles: Bienes que no son sujetos de transportar, por ser terrenos o lo que a éstos se adquiere en calidad de mejoras; sujetos a revaluación cuando corresponda.
+3.14. Bienes inservibles: Bienes que ya han agotado su vida útil, están en desuso, mal estado, o que no convienen al interés institucional.
+3.15. Bienes muebles: Todo tipo de activo que tenga utilidad para el desarrollo de las funciones laborales o la prestación de servicios al público, tales como mobiliario, equipo, maquinaria, instrumentos y herramientas o cualquier bien que esté sujeto a depreciación, amortización o agotamiento, según corresponda.
+3.16. Equipo de trabajo de Donaciones: Delegación nombrada por el Alcalde (sa) Municipal, cuya principal función es realizar las recomendaciones sobre las donaciones de activos, determinando las entidades beneficiadas y los bienes activos a disponer.
+3.17. Depreciación: Cargos para cancelar el costo de un activo menos el valor residual a lo largo de su vida útil estimada.
+3.18. Destrucción de bienes: Acto mediante el cual se procede a eliminar físicamente aquellos bienes que por sus condiciones de obsolescencia o deterioro obligan a la Administración a dejarlo fuera de circulación yuso definitivo, así como a eliminarlo del registro correspondiente.
+3.19. Donación u obsequio: Transmisión gratuita del dominio y control de un bien en desuso o mal estado, o de bienes inmuebles según la normativa aplicable por parte de una persona física o jurídica.
+3.20. Donante: Persona física o jurídica que da o entrega activos en forma gratuita.
+3.21. Donatario: Persona física o jurídica que recibe gratuitamente un activo determinado.
+3.22. Extravío temporal: Pérdida temporal de los activos muebles por un período no mayor a un año, a partir de la denuncia, o hasta la emisión del informe correspondiente derivado de la investigación del caso.
+3.23. Fabricación de bienes muebles: Elaboración de bienes muebles por las unidades internas de la Municipalidad, a solicitud de las instancias institucionales que requieran del bien.
+3.24. Funcionario o usuario: Persona a quien la Municipalidad le asigna bienes para su custodia, uso y manejo adecuado.
+3.25. Herramienta menor o de mano: Utensilio generalmente metálico de acero, madera, fibra, plástico o goma, que se utiliza para ejecutar de manera más apropiada, sencilla y con el uso de menor energía, tareas constructivas o de reparación, que sólo con un alto grado de dificultad y esfuerzo se podría hacer.
+3.26. Mejoras capitalizables: Erogación que alarga la vida útil y la calidad del activo, independiente del costo o monto de la erogación.
+3.27. Otros activos: Patentes, licencias, derechos, semovientes, acciones y otros.
+3.28. Pérdida: Ausencia física permanente del activo que obliga a la Administración a excluirlo de los registros correspondientes.
+3.29. Retiro: Exclusión de los registros contables institucionales de algún activo que previamente haya seguido los trámites reglamentarios, autorizados y respectivos, por destrucción de bienes, pérdida, venta o destrucción imprevista.
+3.30. Traslado interno: Acción formal para trasladar activos entre las instancias institucionales de conformidad con los procedimientos establecidos.
+3.31. Unidades funcionales: Dependencias incluidas dentro del organigrama municipal, capacitadas para llevar a cabo funciones con efectos jurídicos frente a terceros, incluyendo los órganos adscritos (comités, consejos, juntas, proyectos específicos, etc.) autorizados para la administración de activos municipales que son distribuidos en áreas para control y definición de responsables.
+3.32. Venta: Traspaso a otra persona física o jurídica de la propiedad de los activos de la Institución a cambio de una retribución económica, conforme al Reglamento de Contratación Administrativa y la normativa institucional.

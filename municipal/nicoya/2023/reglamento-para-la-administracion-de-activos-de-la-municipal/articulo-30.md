@@ -1,0 +1,1 @@
+Artículo 30.-Dolo en pérdida o robo presumible de un bien. Tratándose de dolo en pérdida o robo presumible por parte de un funcionario, el Alcalde(sa) Municipal, previo informe del Jefe del Departamento de Recursos Humanos, deberá presentar la denuncia respectiva ante el Ministerio Público para lo correspondiente.

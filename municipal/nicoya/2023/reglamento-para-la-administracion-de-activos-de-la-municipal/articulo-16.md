@@ -1,0 +1,1 @@
+Artículo 16.-Inscripción de bienes. Corresponde a las unidades de Asesoría Jurídica y la Proveeduría, velar para que se realicen las gestiones pertinentes para el registro de bienes sujetos a inscripción en el Registro Nacional.

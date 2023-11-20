@@ -1,0 +1,1 @@
+Artículo 19.-Activos asignados a otros órganos o unidades desconcentradas. Los activos que sean adquiridos para la Escuela de Música, el CECUDI, y organizaciones similares, serán custodiados y controlados por la Municipalidad, y se utilizarán controles por separado para su uso.

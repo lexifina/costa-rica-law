@@ -1,0 +1,1 @@
+Artículo 2°-Alcance: Las disposiciones de este Reglamento son de acatamiento obligatorio para todos los funcionarios de la Municipalidad de Nicoya y demás órganos adscritos, comités, consejos, juntas, proyectos específicos, etc. autorizados para la administración de los activos municipales.

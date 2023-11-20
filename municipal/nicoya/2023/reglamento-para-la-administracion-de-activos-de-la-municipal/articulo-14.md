@@ -1,0 +1,1 @@
+Artículo 14.-Adquisición de identificadores de números de activo de propiedad, planta y equipo. La Proveeduría Municipal será el responsable de la adquisición de identificadores de activos (placa metálica, cintas adhesivas, código de barras u otros medios similares).

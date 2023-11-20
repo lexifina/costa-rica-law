@@ -1,0 +1,1 @@
+Artículo 55.-De la entrega del bien donado: una vez realizadas todas las diligencias para la donación del bien, la entrega final del activo al ente beneficiario corresponderá a la Proveeduría Municipal o al funcionario que se designe para los efectos.

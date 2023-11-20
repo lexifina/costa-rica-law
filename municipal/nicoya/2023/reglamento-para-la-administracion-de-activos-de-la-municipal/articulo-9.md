@@ -1,0 +1,1 @@
+Artículo 9°-Alta de Activos. El alta de activos se realizará conforme se norma en el presente reglamento y aquellos procedimientos de control que se establezca para la administración de los bienes municipales.

@@ -1,0 +1,1 @@
+Artículo 20.-Aparición de activos dados de baja. Cuando se ubica o recupera un activo que anteriormente haya sido dado de baja, se deberá hacer la entrada al inventario nuevamente e informar a la Proveeduría Institucional y a la Unidad de Contabilidad municipales para la actualización de los registros correspondientes; y de ser necesario se asignará un nuevo número de placa.

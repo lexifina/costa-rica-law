@@ -1,0 +1,1 @@
+Artículo 59.-Registro de la depreciación y mejoras de los activos. La depreciación de los bienes muebles y el cálculo de mejoras a los activos muebles e inmuebles, se registrarán según lo establecido en el presente reglamento y en apego a las Normas Internacionales de Contabilidad para el Sector Público.

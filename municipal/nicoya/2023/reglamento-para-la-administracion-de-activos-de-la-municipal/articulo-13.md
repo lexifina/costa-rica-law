@@ -1,0 +1,1 @@
+Artículo 13.-Requisitos previos al uso de activos de propiedad, planta y equipo. Previo a su uso, todo activo de propiedad, planta y equipo requiere de un número de activo asignado por la unidad competente y conforme con el sistema de activos fijos.
