@@ -15,3 +15,4 @@ Presentación digital de planos de agrimensura, sometidos al proceso de califica
 | --- | --- | --- |
 | 1 | 2014-03-17 | la propia norma |
 | 2 | 2014-07-24 | Directriz 2 (2014-07-24) |
+| 3 | 2023-11-20 | Acuerdo 0 (2023-11-20) |
