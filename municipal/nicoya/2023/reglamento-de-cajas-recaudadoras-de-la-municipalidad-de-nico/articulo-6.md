@@ -1,0 +1,1 @@
+Artículo 6º-De la facturación. Los cajeros realizarán la facturación y recaudación de ingresos tributarios y no tributarios en forma unificada mediante el sistema computarizado disponible. Cada cajero deberá registrar los pagos en el sistema informático, a la vez que deberá firmar y sellar los recibos de pago haciendo constar su cancelación.

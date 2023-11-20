@@ -1,0 +1,1 @@
+Artículo 13.-De las remesas parciales. Cuando el monto de la recaudación supere el 50% de la póliza de robo y asalto, antes de la hora fijada para el cierre diario, cada cajero deberá entregar al tesorero el dinero recaudado, adjuntando el formulario correspondiente que acredite la suma a remitir.

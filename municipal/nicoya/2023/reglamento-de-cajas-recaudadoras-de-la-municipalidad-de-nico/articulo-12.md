@@ -1,0 +1,1 @@
+Artículo 12.-Custodia del dinero. Cada recinto o cubículo de las cajas recaudadoras contará con una caja metálica de seguridad donde cada cajero pueda custodiar el dinero y los valores que para sus funciones tenga en su poder en horas hábiles. Fuera de éstas los ingresos deben quedar en la caja fuerte de la tesorería.

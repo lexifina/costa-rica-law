@@ -1,0 +1,1 @@
+Artículo 18.-Responsabilidad de los funcionarios. El o los funcionarios asignados para el traslado de los fondos a la entidad bancaria responderán por cualquier pérdida o sustracción del dinero entregado para su depósito derivado de la actuación negligente, imprudente o dolosa que le sea atribuible.

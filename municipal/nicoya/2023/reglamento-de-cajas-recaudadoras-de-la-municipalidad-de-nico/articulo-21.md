@@ -1,0 +1,1 @@
+Artículo 21.-De los suplentes. El alcalde deberá disponer de funcionarios de otros departamentos de la municipalidad debidamente capacitados e investidos para que suplan a los cajeros en su ausencia. Dichos funcionarios deberán contar con la póliza de fidelidad otorgada por la entidad aseguradora o en su defecto, deberán rendir una garantía fiduciaria.

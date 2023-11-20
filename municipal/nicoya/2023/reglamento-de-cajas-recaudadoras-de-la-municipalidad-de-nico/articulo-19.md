@@ -1,0 +1,2 @@
+De los cajeros
+Artículo 19.-Manejo. La Caja recaudadora estará integrada por funcionarios municipales que cumplan con el perfil de cajeros definido por la Municipalidad, en la cantidad que se estime necesario para satisfacer las necesidades del Municipio. Dichos cajeros dependen jerárquicamente de la Tesorería Municipal. Al cubículo donde se ubicará la caja recaudadora, no debe ingresar persona alguna.

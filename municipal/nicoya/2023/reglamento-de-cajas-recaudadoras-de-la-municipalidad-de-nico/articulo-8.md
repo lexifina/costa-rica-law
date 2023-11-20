@@ -1,0 +1,1 @@
+Artículo 8º-De las copias de recibos. Las copias de los recibos cancelados serán retenidas por el tesorero para su correspondiente anotación en sus registros, una vez cumplida esta labor enviará al departamento de contabilidad el informe diario de caja a que se refiere el artículo siguiente.

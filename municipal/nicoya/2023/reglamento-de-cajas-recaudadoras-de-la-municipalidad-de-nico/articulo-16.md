@@ -1,0 +1,1 @@
+Artículo 16.-De los sobrantes. Los sobrantes que se produzcan en los cierres diarios de operaciones de la caja recaudadora, deberán ser depositados en el banco respectivo, a nombre de la Municipalidad a más tardar el día hábil siguiente en que se verifiquen los mismos.

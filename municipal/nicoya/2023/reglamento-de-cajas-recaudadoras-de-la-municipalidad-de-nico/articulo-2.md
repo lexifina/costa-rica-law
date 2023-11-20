@@ -1,0 +1,2 @@
+Artículo 2º-Del fondo fijo de caja. El monto de dinero con el que operará cada caja recaudadora será de ¢100.000,00 (cien mil colones). Dicho fondo será utilizado únicamente para la devolución de diferencias de dinero por los pagos que realicen los administrados. Corresponderá al Alcalde mediante resolución motivada la modificación del monto original de acuerdo a razones de conveniencia u oportunidad institucional.
+Igualmente corresponderá al alcalde la autorización para la apertura de cajas recaudadoras adicionales cuando las circunstancias lo requieran.

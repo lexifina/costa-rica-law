@@ -1,0 +1,1 @@
+Artículo 9º-De los registros de movimientos. El cajero encargado de la caja recaudadora, obligatoriamente deberá registrar, diariamente en la cinta de la calculadora, todos los movimientos de operaciones que efectúe durante el día y tendrá que conservar la cinta íntegra, hasta que la Tesorería haya verificado el cierre correcto a la caja recaudadora.

@@ -1,0 +1,1 @@
+Artículo 7º-De la recaudación. Integrada la información al sistema computarizado, recaudará el dinero y finalmente firmará, sellará y entregará el original cancelado al contribuyente conservando la copia con sello de cancelado para su entrega a la tesorería.

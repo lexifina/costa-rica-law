@@ -1,0 +1,1 @@
+Artículo 4º-Revisión del fondo fijo. Los saldos de fondo fijo serán revisados con la periodicidad que la Dirección Financiera considere oportuna, sin necesidad de notificar previamente al funcionario destacado en las cajas.
