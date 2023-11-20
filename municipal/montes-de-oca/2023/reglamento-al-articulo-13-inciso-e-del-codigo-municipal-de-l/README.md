@@ -14,3 +14,4 @@ Reglamento al artículo 13, inciso e) del Código Municipal de la Municipalidad 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-07-07 | la propia norma |
+| 2 | 2023-11-20 | Reglamento municipal 186 (2023-11-20) |
