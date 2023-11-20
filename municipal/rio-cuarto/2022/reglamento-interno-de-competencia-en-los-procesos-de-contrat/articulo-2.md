@@ -1,1 +1,0 @@
-Artículo 2º-Alcance de este Reglamento. Este reglamento será aplicable, sin excepción, a todos los procedimientos de contratación que promueva la Municipalidad de Río Cuarto que se rijan por la Ley General de Contratación Pública. Ley Nº 9986.
