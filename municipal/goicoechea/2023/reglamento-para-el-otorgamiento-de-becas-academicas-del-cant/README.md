@@ -14,3 +14,4 @@ Reglamento para el otorgamiento de becas académicas del Cantón de Giocoechea
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-10-27 | la propia norma |
+| 2 | 2023-11-20 | Reglamento municipal 47 (2023-11-20) |
