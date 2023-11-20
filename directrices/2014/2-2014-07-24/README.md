@@ -14,3 +14,4 @@ Adición a la Directriz RIM-001-2014, del 21/02/2014, en lo que respecta a las a
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-09-23 | la propia norma |
+| 2 | 2023-11-20 | Acuerdo 0 (2023-11-20) |
