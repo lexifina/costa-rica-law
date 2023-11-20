@@ -1,1 +1,0 @@
-Artículo 43. Modificación unilateral a los Contratos. Esta potestad de modificación nace del Principio de Mutabilidad, que permite cambios y modificaciones durante la ejecución del contrato. La Municipalidad podrá aumentar o disminuir para un contrato los montos y cantidades en las condiciones señaladas en el artículo 12 de la LCA y 208 del RLCA.

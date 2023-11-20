@@ -1,1 +1,0 @@
-Artículo 41. Prórrogas en Plazos de Entrega. La prórroga en la ejecución de los contratos se regirá por lo dispuesto en el artículo 206 del RLCA, para lo cual los contratistas deberán presentar una solicitud al órgano técnico designado como supervisor del contrato. Todo lo actuado, deberá quedar debidamente documentado en el expediente electrónico del concurso.

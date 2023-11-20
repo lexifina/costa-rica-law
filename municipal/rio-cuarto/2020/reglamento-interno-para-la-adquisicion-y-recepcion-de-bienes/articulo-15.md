@@ -1,1 +1,0 @@
-Artículo 15. Plan de Adquisiciones. Anualmente, una vez recibidos los pedidos de las dependencias dentro del plazo establecido para tales efectos, la PI procederá con la agrupación de las solicitudes de compra a efecto de elaborar el Plan de Adquisiciones Institucional para su publicación de acuerdo con lo establecido en el Artículo 7 del RLCA.

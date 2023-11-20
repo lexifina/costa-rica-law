@@ -1,3 +1,0 @@
-SECCION TERCERA
-La oferta
-Artículo 21. La oferta. La oferta es la manifestación expresa del oferente de querer participar y eventualmente contratar con la Administración, en pleno sometimiento al bloque de legalidad. Deberá presentarse en forma electrónica a través del sistema SICOP u otro medio autorizado en el Cartel, en ambos casos deberá estar debidamente firmada. Se presume la capacidad de actuar de cualquier oferente nacional o internacional inscrito en el registro de proveedores de SICOP. Asimismo, se presume que quien suscribe una oferta en dicho sistema posee capacidad legal para ello.
