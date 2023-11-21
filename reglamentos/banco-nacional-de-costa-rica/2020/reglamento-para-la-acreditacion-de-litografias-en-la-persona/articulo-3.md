@@ -1,1 +1,0 @@
-Artículo 3º—Se define a las Litografías Acreditadas como todas aquellas personas físicas y jurídicas que, por medio de la firma de un contrato acepten las condiciones especificadas por el Banco para contar con el aval para emitir cheques personalizados en serie especial, solamente en Costa Rica.

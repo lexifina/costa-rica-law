@@ -1,1 +1,0 @@
-Artículo 12.—La Litografía se deberá comprometer a que, una vez aprobado la solicitud por el Banco, cuenta con 3 meses para realizar el tiraje y presentar el acta y documentos respectivos para la activación, caso contrario el Banco se reserva el derecho de anular la solicitud a nivel de sistema.

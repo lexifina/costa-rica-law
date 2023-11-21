@@ -1,2 +1,0 @@
-Artículo 24.—El lugar donde recibir notificaciones, su dirección postal, domicilio exacto, teléfono, dirección de correo electrónico y fax, para los efectos del artículo 22 de la Ley de Notificaciones Judiciales. Queda expresamente autorizado el número telefónico o correo electrónico para hacer o recibir notificaciones.
-Los comunicados para el Banco Nacional de Costa Rica pueden ser enviadas al número 2212-2710 y/o a la cuenta de correo electrónico JSOSA@bncr.fi.cr.
