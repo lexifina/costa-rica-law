@@ -16,3 +16,4 @@ Reglamento para el Trámite de Planos y la Conexión de los Servicios Eléctrico
 | 1 | 1999-02-25 | la propia norma |
 | 2 | 2002-04-18 | Reglamento 18 (2002-04-18) |
 | 3 | 2002-04-18 | Ley 8 |
+| 4 | 2023-11-21 | Reglamento 4 (2023-11-21) |
