@@ -1,0 +1,10 @@
+CAPÍTULO V
+ASPECTOS ECONÓMICOS
+SECCIÓN I
+Garantía de Cumplimiento
+Artículo 45.- Garantía de cumplimiento. La garantía de cumplimiento respalda la correcta ejecución del contrato, conforme la normativa vigente y será exigible en todos los contratos producto de licitación mayor o licitación menor, la cual se establecerá entre un cinco por ciento (5%) y un diez por ciento (10%) del monto de la adjudicación, conforme lo defina el pliego de condiciones.
+Conforme a lo previsto en el artículo No. 44 de la Ley General de Contratación Pública, en las licitaciones reducidas aplicarán los mismos porcentajes, salvo que la Administración facultativamente determine de forma expresa en el pliego de condiciones, no solicitarla.
+En caso de que el pliego de condiciones no defina la exigencia de rendir garantía ni su porcentaje, se entenderá que deberá rendirse por el cinco por ciento (5%) del monto de la adjudicación.
+En contratos de cuantía inestimable, en el pliego de condiciones deberá establecerse una suma específica que garantice la debida ejecución contractual.
+En el caso del remate, la Administración exigirá una garantía de cumplimiento que se establecerá entre un cinco por ciento (5%) y un diez por ciento (10%) del monto adjudicado, lo cual deberá indicarse en la invitación al remate. De previo a la celebración del remate, los participantes se registrarán en el sistema digital unificado y reportarán una cuenta domiciliada para que la Administración aplique el débito en tiempo real, una vez adjudicado el bien, para garantizar el pago de la garantía de cumplimiento, previa aprobación del adjudicatario.
+Cuando se promueva una subasta inversa electrónica, en la invitación se indicará que el adjudicatario deberá rendir una garantía de cumplimiento que se establecerá entre un cinco por ciento (5%) y un diez por ciento (10%) del monto adjudicado. Si el contrato fuera de cuantía inestimable, en la invitación se indicará una suma específica que garantice la debida ejecución contractual.

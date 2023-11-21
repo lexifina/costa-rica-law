@@ -1,0 +1,1 @@
+Transitorio 1º.- En un plazo no mayor de 60 días hábiles después de la publicación de este Reglamento, la Proveeduría Institucional deberá realizar las modificaciones necesarias los Procedimientos Internos para el proceso de contratación pública del INCOP para adaptarlo a los nuevos requerimientos establecidos en el presente reglamento.

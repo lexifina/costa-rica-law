@@ -1,0 +1,2 @@
+Artículo 44.- Adjudicación. La adjudicación recaerá sobre la o las ofertas cumplimentes con los aspectos formales y técnicos establecidos en la invitación a cotizar y resulte ser la oferta ganadora conforme a la metodología de evaluación realizada.
+La adjudicación de licitaciones reducidas la hará el Proveedor General. La adjudicación deberá dictarse en un plazo máximo que al doble de días que se brindaron para la recepción de ofertas, contados a partir del día de apertura de las ofertas. Este plazo podrá ser prorrogado por un plazo igual por el titular de la Proveeduría.

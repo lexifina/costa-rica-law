@@ -1,0 +1,2 @@
+Artículo 38.- Comunicación. La Unidad de Proveeduría será la encargada de comunicar el acto final por medio del sistema digital unificado al día hábil siguiente a su dictado.
+Cuando por caso fortuito o fuerza mayor debidamente acreditados, no sea posible realizarlo mediante el sistema digital unificado, la Administración deberá notificar el acto final a los participantes por el medio electrónico señalado en ese

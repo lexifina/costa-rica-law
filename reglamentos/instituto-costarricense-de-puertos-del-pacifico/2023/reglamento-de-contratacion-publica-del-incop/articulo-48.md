@@ -1,0 +1,4 @@
+Artículo 48.- Devolución y sustitución de garantías. La Administración tiene la facultad de devolver parcialmente la garantía de cumplimiento, a solicitud del contratista, en proporción a la parte ya ejecutada cuando sean factibles entregas parciales del objeto contratado. Esta situación deberá advertirse en
+el respectivo pliego de condiciones, sin perjuicio de una valoración particular en la fase de ejecución contractual, mediante acto motivado.
+La garantía de cumplimiento será devuelta a solicitud del interesado, dentro de los veinte días hábiles siguientes a la fecha en que la Administración haya recibido de forma definitiva y a satisfacción el objeto contractual.
+Para el caso de otras garantías o retenciones serán devueltas, dentro del plazo de veinte días hábiles siguientes a la fecha en que la Administración haya recibido de forma definitiva y a satisfacción el objeto contractual o conforme lo establezca la Administración en el pliego respectivo.

@@ -1,0 +1,5 @@
+SECCIÓN II
+Ejecución Contractual
+Artículo 57.- Orden de inicio. De conformidad con el artículo No. 125 del LGCP, en el punto d), y a falta de estipulación en el Pliego de Condiciones o términos de referencia, se establece la orden de inicio para la ejecución de los contratos a un plazo de un mes de la notificación del contrato, o en su defecto de conformidad con lo señalado en el artículo siguiente.
+Para las contrataciones en que se hayan definido los requisitos previos, la orden de inicio dará lugar al plazo para el cumplimiento de dichos requisitos.
+Satisfecha esta etapa y dentro del plazo citado, se levantará un acta en la que se acredite el cumplimiento de los requisitos previos, acta que será emitida y suscrita por el órgano fiscalizador para el caso de los contratos de obra, mantenimiento de instalaciones y obras menores o por el titular subordinado de la unidad solicitante para los demás objetos contractuales, y el contratista. Con esta acta se tendrá por iniciada al día siguiente, la fase de ejecución del objeto contractual, dichos documentos serán acreditados en el expediente electrónico de la contratación por medio del sistema SICOP.

@@ -1,0 +1,2 @@
+Artículo 21.- De la verificación de los requisitos previos de la contratación.
+La Proveeduría Institucional deberá recibir, revisar y consolidar las Decisiones Iniciales, de conformidad con la normativa vigente y las directrices establecidas. Aquellas que presenten inconsistencias serán devueltas a la unidad solicitante con un plazo máximo de 2 (dos) días hábiles para su corrección, caso contrario serán rechazadas.

@@ -1,0 +1,3 @@
+CAPITULO IV
+Procedimientos de contratación pública SECCIÓN I
+Artículo 23.- Selección del Procedimiento. Corresponderá a la Unidad de Proveeduría determinar el procedimiento de contratación a utilizar de acuerdo con la estimación del negocio realizada por la unidad solicitante del bien o servicio, conforme a lo establecido en el artículo 35 de la L.G.C.P Una vez electo, deberá tramitarse de conformidad con los procedimientos establecidos en el manual de dicha unidad, los cuales se encuentran de conformidad con la Ley General de Contratación Pública y su Reglamento, la Ley No. 8292 "Ley General de Control Interno" y las Normas de Control Interno para el Sector Público (N-2-2009-CO-DFOE), entre otros.2- 2009-CO-DFOE)

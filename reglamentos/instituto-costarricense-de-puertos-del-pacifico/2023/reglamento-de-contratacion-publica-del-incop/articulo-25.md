@@ -1,0 +1,2 @@
+Artículo 25.- Pliego de Condiciones. El Pliego de Condiciones contendrá las condiciones generales de la contratación y las especificaciones técnicas, de conformidad con lo indicado en el artículo No. 88 del RLGCP. El contenido del pliego de condiciones establecerá como mínimo los requisitos establecidos en el artículo No. 90 del citado reglamento.
+Adicionalmente, se debe considerar lo establecido en el artículo No. 65 del RLGCP cuando se trate de compras públicas innovadoras.
