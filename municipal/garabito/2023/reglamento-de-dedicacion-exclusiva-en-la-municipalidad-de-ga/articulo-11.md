@@ -1,0 +1,1 @@
+Artículo 11.-Los servidores que estén acogidos al régimen de dedicación exclusiva y estén disfrutando de un permiso sin goce de salario, al regresar seguirán amparados al régimen de dedicación exclusiva contractualmente pactado.

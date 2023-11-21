@@ -1,0 +1,2 @@
+Artículo 13.-Los servidores que disfruten de los beneficios del Régimen de Dedicación Exclusiva, Gestión de Talento pueden Humano, renunciar con a dicho un mes régimen, de anticipación comunicándolo como mínimo, por escrito y no podrán al Proceso suscribir/de un nuevo contrato en un período de dos años después de haber presentado la renuncia.
+Si renunciaran por segunda vez, no podrán volver a acogerse a los beneficios indicados. Todos los movimientos contemplados en el presente artículo tendrán que hacerse efectivos mediante acción de personal.

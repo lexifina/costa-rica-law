@@ -1,0 +1,3 @@
+Artículo 2º-El pago adicional por dedicación exclusiva se otorgará, exclusivamente, mediante contrato entre la Administración concedente y el funcionario que acepte las condiciones para recibir la indemnización económica, conforme a la presente ley.
+Una vez suscrito el contrato, el pago por dedicación exclusiva no constituirá un beneficio permanente ni un derecho adquirido; por lo que, al finalizar la vigencia de este, la Administración no tendrá la obligación de renovarlo.
+El no suscribir contrato por dedicación exclusiva no exime al funcionario del deber de abstenerse de participar en actividades que comprometan su imparcialidad, posibiliten un conflicto de interés o favorezcan el interés privado en detrimento del interés público.
