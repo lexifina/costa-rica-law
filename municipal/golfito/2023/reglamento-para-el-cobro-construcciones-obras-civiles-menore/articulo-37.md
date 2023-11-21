@@ -1,0 +1,1 @@
+Artículo 37.- Inspeccionar las obras autorizadas: La Municipalidad podrá realizar inspecciones y cualquier otra actuación que estime pertinente, para asegurar el adecuado cumplimiento de la licencia otorgada, tanto de manera oficiosa como por denuncia, e incluso de manera anterior a la tramitación de la solicitud de licencias.

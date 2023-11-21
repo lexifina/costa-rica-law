@@ -1,0 +1,1 @@
+Artículo 36.- Una vez otorgado el permiso, el Departamento de Desarrollo y Control Urbano, trasladará el permiso de construcción a la Unidad de Inspectores, con el fin de que esta Unidad certifique que el trabajo se llevó a cabo como lo indica el permiso de construcción y remitirá el mismo al Departamento.

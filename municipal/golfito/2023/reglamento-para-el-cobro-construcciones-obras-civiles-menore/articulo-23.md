@@ -1,0 +1,4 @@
+d. Anexo deberán contener los elementos de prueba necesarios, tales como fotografías, videos, grabación de audio o cualquier otro que permita comprobarla situación encontrada, para lo cual deberá consignarse en el acta.
+e. Las actas de notificación y prevención deberán indicar las acciones que debe realizar el propietario del inmueble para poner a derecho la construcción, el plazo otorgado para su cumplimiento, el cual no podrá superar treinta días hábiles y la multa aplicable después de transcurrido el tiempo establecido para corregir la anomalía.
+f. El acta de prevención deberá enviarse al lugar de notificación o medio señalado que consta en el expediente administrativo de solicitud de la licencia.
+g. Cuando el administrado se niegue a recibir el documento, se consignará en el acta la situación indicando que "NO QUISO RECIBIRLA" o "NO QUISO FIRMAR".

@@ -1,0 +1,1 @@
+Artículo 12. ° Se consideran obras por Levantamiento: aquellas construcciones civiles que, por mecanismos de Fiscalización, Procesos internos municipales o por referencia de otras instancias se verifique la conclusión de la obra sin el respectivo permiso.

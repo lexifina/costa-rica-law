@@ -1,0 +1,1 @@
+Artículo 31.- Excepción del control constructivo. No requerirán fiscalización, ni licencia municipal los edificios públicos y obras civiles construidos por el Gobierno dela República y sus dependencias, siempre que sea autorizados y vigilados por la Dirección General de Obras Públicas.

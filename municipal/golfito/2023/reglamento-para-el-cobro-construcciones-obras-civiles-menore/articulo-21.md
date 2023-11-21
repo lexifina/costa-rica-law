@@ -1,0 +1,1 @@
+Artículo 22.º Inspección de obras civiles. La inspección, seguimiento y fiscalización de todas las obras civiles que se desarrollen en el cantón de Golfito estará a cargo de los inspectores municipales de la oficina de Desarrollo y Control Urbano Control, quienes aplicaran las sanciones correspondientes en la ley.
