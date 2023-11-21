@@ -1,0 +1,1 @@
+Artículo 7º- En el costo de las infracciones a los incisos d), e), f), g), h), i), j) y k) del artículo 89 de la Ley de Construcciones, la multa será de un cincuenta por ciento (50%) para cada infracción que se cometa, previa notificación de la falta al infractor, que realice el inspector municipal o cualquier otro funcionario del Departamento de Desarrollo y Control Urbano.

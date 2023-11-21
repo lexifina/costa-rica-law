@@ -1,0 +1,1 @@
+Artículo 11º- Además de la suma que el Infractor debe cancelar por concepto de Permiso de Construcción, deberá cancelar por concepto de Multa, de conformidad con el artículo 90 de la Ley 833, el 0.95%del valor del Impuesto de Construcción que debe pagar por el costo total de la obra.

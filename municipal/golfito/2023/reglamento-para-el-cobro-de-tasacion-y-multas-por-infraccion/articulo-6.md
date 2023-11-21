@@ -1,0 +1,6 @@
+Artículo 6º- Además de la suma que el infractor debe cancelar por concepto de permiso deconstrucción, por concepto de multa, de conformidad con el artículo 90 de la Ley 833, deberá cancelar los siguientes porcentajes, los cuales se calcularán sobre el uno por ciento del valor de la construcción establecido en el artículo 70 de la Ley de Planificación Urbana:
+a. Veinticinco por ciento de multa (25%) por inicio de obras preliminares hasta zanjeo y chorrea de cimientos.
+b. Cincuenta por ciento de multa (50%) por levantamiento de paredes.
+c. Cien por ciento de multa (100%) por paredes con viga de corona o entrepiso en construcciones de más de un nivel.
+d. En caso de obras menores cuya área constructiva sea menor de treinta metros cuadrados, movimientos de tierra, tapias, muros, rellenos, gradas, drenajes, tanques sépticos, aceras y obras afines, se pagará un cien por ciento por concepto de multa.
+No obstante, lo anterior, el monto de la multa se establecerá con base en el avance constructivo de la obra al momento del pago efectivo, previa visita y recalificación que el funcionario del Departamento de Desarrollo y Control Urbano realizará mediante informe detallado según lo establecido en el artículo cuatro de este Reglamento.

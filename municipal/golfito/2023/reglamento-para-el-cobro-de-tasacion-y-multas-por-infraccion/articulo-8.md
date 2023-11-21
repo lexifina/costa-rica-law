@@ -1,0 +1,1 @@
+Artículo 8º- En caso que el Inspector Municipal o cualquier otro funcionario del Departamento de Ingeniería, logre determinar que la obra ya se encuentra terminada, además de la sanción económica que se ha establecido en el presente Reglamento, se procederá de conformidad con los artículos 93 y 96 de la Ley de Construcciones.
