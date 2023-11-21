@@ -1,0 +1,2 @@
+Artículo 37: DEBER DE APLICACIÓN DECRETO DE SEGURIDAD CONSTRUCCIONES. Cuando se ejecute una sanción urbana de demolición, destrucción o remoción de obra construcción, se deberá de seguir el capítulo II del decreto 25235-MTSS.
+Reglamento de Seguridad en Construcciones y cualesquiera otras medidas de seguridad pertinentes para el acto. En caso de remoción de bienes en invasión pública deberán seguirse protocolos de seguridad necesarios para no afectar el orden, salud ni seguridad pública.

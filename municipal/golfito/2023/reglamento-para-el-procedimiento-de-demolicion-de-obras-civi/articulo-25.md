@@ -1,0 +1,1 @@
+Artículo 25: EJECUCIÓN. Con la firmeza de la resolución que ordena la demolición y no existiendo medida cautelar de suspensión decretada por ninguna instancia judicial, la Dirección de Servicios y Ordenamiento Territorial, procederá a ejecutar el acto de demolición y desalojo de conformidad con este Reglamento.

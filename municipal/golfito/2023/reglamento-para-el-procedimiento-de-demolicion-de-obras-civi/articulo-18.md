@@ -1,0 +1,2 @@
+Artículo 18: VIOLACIÓN DE SELLOS Y DENUNCIA PENAL. Para los casos de imposición de sellos y clausura de la obra, si el inspector corrobora en sus inspecciones diarias o mediante quejas una violación de sellos, informará mediante acta de inspección al Encargado del Departamento de Desarrollo y Control Urbano, quien deberá trasladar copia certificada del expediente a la Alcaldía Municipal para que se gestione la denuncia penal correspondiente.
+Paralelamente, el Departamento continuará con el proceso correspondiente según el presente reglamento.

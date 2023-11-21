@@ -1,0 +1,1 @@
+Artículo 34: DESALOJO ADMINISTRATIVO. Existiendo una orden de desalojo del inmueble, el Encargado de Desarrollo y Control Urbano deberá coordinar con la Fuerza Pública para la ejecución respectiva, basándose en el artículo 96 de la Ley de Construcciones y el artículo 149 de la Ley General de Administración Pública.

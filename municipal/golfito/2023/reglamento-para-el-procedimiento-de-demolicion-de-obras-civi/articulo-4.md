@@ -1,0 +1,3 @@
+Capítulo II.
+De las Inspecciones Municipales.
+Artículo 4: DEBER DE INSPECCIONES DIARIAS Y POR DENUNCIA. El Encargado de Desarrollo y Control Urbano deberá instruir y coordinar con cada uno de sus Inspectores de forma semanal: una ruta que cubra la totalidad de la zona asignada a cada uno. Asimismo, recibida una queja o denuncia por parte de la Contraloría de Servicios, por instrucción del Encargado de Desarrollo y Control Urbano, el inspector deberá realizar las inspecciones asignando un espacio a su rol de inspecciones diarias para la verificación de lo denunciado en un plazo no menor a 5 días hábiles.

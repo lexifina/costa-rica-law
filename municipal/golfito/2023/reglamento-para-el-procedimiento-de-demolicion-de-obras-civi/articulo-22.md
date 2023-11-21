@@ -1,0 +1,1 @@
+Artículo 22: REGULARIZACIÓN DE LAS OBRAS CON APLICACIÓN DE MULTA. Si el administrado responde a este último llamado, se procederá conforme al trámite ordinario de permiso de construcción sin perjuicio de las multas de ley.
