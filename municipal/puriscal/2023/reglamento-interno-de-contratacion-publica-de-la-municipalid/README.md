@@ -14,3 +14,4 @@ Reglamento interno de contratación pública de la Municipalidad de Puriscal
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-03-14 | la propia norma |
+| 2 | 2023-11-21 | Reglamento municipal 286 (2023-11-21) |
