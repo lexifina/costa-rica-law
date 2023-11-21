@@ -14,3 +14,4 @@ Reglamento para la acreditación de litografías en la personalización de chequ
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-12-03 | la propia norma |
+| 2 | 2023-11-21 | Reglamento 12666 (2023-11-21) |
