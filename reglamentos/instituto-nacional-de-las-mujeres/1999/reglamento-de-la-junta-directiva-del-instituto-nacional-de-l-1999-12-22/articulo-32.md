@@ -1,0 +1,1 @@
+Artículo 32.-Las reformas del presente Reglamento se harán por medio de un acuerdo votado por mayoría absoluta de las personas integrantes la Junta Directiva, con observación de las formalidades dispuestas en el artículo 11 de la Ley del Instituto Nacional de las Mujeres (Ley N° 7801) y de la Ley General de la Administración Pública.

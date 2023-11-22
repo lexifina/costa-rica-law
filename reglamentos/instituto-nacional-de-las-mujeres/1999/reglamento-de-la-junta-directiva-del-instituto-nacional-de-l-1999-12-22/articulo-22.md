@@ -1,0 +1,1 @@
+Artículo 22.-Recusación. En caso de que se presente por escrito una recusación contra alguna de las personas integrantes de Junta se resolverá de acuerdo con lo estipulado por la Ley General de la Administración Pública en el Artículo 236.

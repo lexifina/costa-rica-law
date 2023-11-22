@@ -1,0 +1,5 @@
+CAPÍTULO VII
+Dietas
+Artículo 28.-Dietas por participar en sesiones. Quienes integran la Junta Directiva devengarán dietas por la asistencia a cada sesión ordinaria y extraordinaria, excepto quien ejerza la Presidencia Ejecutiva. Se pagará un máximo de cuatro (4) sesiones ordinarias y cuatro (4) sesiones extraordinarias por mes. Las sesiones extraordinarias pagadas, en ningún caso pueden realizarse el mismo día que las ordinarias.
+El pago de la dieta se hará cuando la persona integrante de la Junta haya participado en la totalidad de la sesión correspondiente. Es decir, que hayan participado en la votación de todos los asuntos de la agenda, salvo que existan razones legales que le impidan conocer y votar alguno de los puntos del orden del día.
+Las personas integrantes que participen de manera virtual devengarán dietas, siempre y cuando participen en toda la sesión y cumplan con todas las consideraciones de control interno que garanticen la confiabilidad, simultaneidad, deliberación y el Principio de Colegialidad.

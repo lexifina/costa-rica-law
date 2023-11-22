@@ -1,8 +1,4 @@
-CAPITULO IV
-Deberes comunes a las Integrantes de la Junta Directiva
-Artículo 6º—Las integrantes de la Junta Directiva tienen los siguientes deberes:
-a) Justificar las ausencias a las sesiones y solicitar las autorizaciones correspondientes de conformidad con los artículos procedentes.
-b) Cumplir con los asuntos que la Junta les encargue, así como representarla en aquellos casos en que sea designado o consignado en otras leyes y reglamentos.
-c) Rendir la declaración de bienes conforme las leyes y reglamentos respectivos.
-d) Asistir puntualmente a las sesiones de la Junta.
-e) Votar los asuntos sometidos a su conocimiento.
+Artículo 6º-De la Vicepresidencia. La Junta nombrará de entre las personas integrantes a una persona que ocupará el cargo de vicepresidencia por un período máximo de cuatro años. Será elegida por mayoría absoluta de votos presentes, y dentro de sus funciones tendrá:
+a) Sustituir a la Presidencia de la Junta en sus ausencias temporales.
+b) Representar a la Junta Directiva en actos o eventos, cuando así se determine.
+c) Las que le encomiende expresamente la Junta y, las que en general, le correspondan debido a su cargo como parte de la Junta, por mandato de ley o conforme a los reglamentos respectivos.

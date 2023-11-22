@@ -1,3 +1,5 @@
-CAPITULO IX
-De las actas
-Artículo 16.—De cada sesión se levantará una acta que contendrá la indicación de las personas asistentes y de las ausentes con justificación, las circunstancias de lugar y tiempo en que se han celebrado, los puntos principales debatidos, la forma y el resultado de la votación y el contenido de los acuerdos.
+Artículo 16.-Actas. La persona que ejerce la secretaría será la responsable del acta de cada sesión de la Junta. Las actas contendrán la indicación de las personas integrantes y de las ausentes con justificación, así como las circunstancias de lugar y tiempo en que se hayan celebrado, los puntos principales de la deliberación, la forma y resultado de la votación y el contenido de los acuerdos. El acta deberá contener la transcripción literal de todas las intervenciones efectuadas, puntos principales de deliberación, la forma y el resultado de la votación y el contenido de los acuerdos, todo según la grabación de la sesión.
+Las actas ordinarias se aprobarán en la sesión ordinaria siguiente. Antes de la aprobación del acta, carecerán de eficacia y firmeza los acuerdos adoptados en la sesión de que se trate; salvo que se hubieran adoptado con carácter de firme por el voto de las dos terceras partes.
+En el momento de aprobación del acta, no será posible introducir argumentos adicionales a los expuestos oralmente durante la deliberación y discusión del tema en cuestión, solo podrán realizarse precisiones, correcciones, aclaraciones o puntualizar los argumentos ya expuestos y conocidos en esa ocasión.
+Las actas serán firmadas por quienes ocupen los cargos de Presidencia y Secretaría respectivamente.
+Las actas podrán ser consultadas por las personas particulares una vez se hayan aprobado.

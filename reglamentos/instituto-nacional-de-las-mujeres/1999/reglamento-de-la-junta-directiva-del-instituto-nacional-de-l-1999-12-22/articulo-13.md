@@ -1,4 +1,3 @@
-CAPITULO VII
-Quórum
-Artículo 13.—Para que la Junta pueda sesionar válidamente se requiere de un quórum de cuatro de sus integrantes. No obstante, podrá sesionar válidamente en segunda convocatoria, veinticuatro horas después de señalada para la primera, siendo suficiente la asistencia de la tercera parte de sus integrantes y las decisiones se tomarán por mayoría simple de las presentes. En caso de que no se pueda sesionar por falta de quórum, así se hará constar en el libro de actas mediante nota firmada por la Presidenta.
-(Así reformado mediante sesión N° 32 de 26 de setiembre del 2001)
+Artículo 13.-Quorum. Para que la Junta sesione válidamente, se requiere que asistan a la sesión, al menos cuatro de sus personas integrantes.
+La Presidencia de Junta podrá dar por iniciada la sesión hasta quince minutos después de la hora señalada, confirmando el quórum. Si transcurridos treinta minutos después de la hora señalada para sesionar ordinaria o extraordinariamente no hubiere el quórum para ello, no se celebrará la sesión; salvo cuando se tenga conocimiento de situaciones especiales que han atrasado la presencia de las personas integrantes necesarias para el quórum, en cuyo caso podrá ampliarse el plazo de espera y cuando se integre(n), podrá iniciarse la sesión.
+En caso de que no se pueda sesionar por falta de quorum, así se hará constar en el registro de actas mediante nota firmada por la Presidencia.

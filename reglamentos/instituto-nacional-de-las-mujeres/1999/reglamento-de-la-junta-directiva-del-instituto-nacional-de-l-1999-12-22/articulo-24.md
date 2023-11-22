@@ -1,0 +1,1 @@
+Artículo 24.-Recursos ordinarios y extraordinarios. Contra los actos y resoluciones de la Junta Directiva, proceden los recursos ordinarios y extraordinarios en la forma y plazos establecidos en la Ley General de la Administración Pública.
