@@ -14,3 +14,4 @@ Aplicación de columna salarial global
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-03-10 | la propia norma |
+| 2 | 2023-11-22 | Directriz 3 (2023-11-22) |
