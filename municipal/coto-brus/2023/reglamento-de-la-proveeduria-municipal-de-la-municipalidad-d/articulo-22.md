@@ -1,0 +1,1 @@
+Artículo 22.-Respecto a la actividad ordinaria se regirá por la Ley General de Contratación Pública, su Reglamento y sus reformas, así como el reglamento aprobado por el Concejo Municipal acorde al artículo 13 inciso e) del Código Municipal y sus reformas. Las compras que deban hacerse por medio de caja chica se harán mediante el reglamento elaborado para tales menesteres.

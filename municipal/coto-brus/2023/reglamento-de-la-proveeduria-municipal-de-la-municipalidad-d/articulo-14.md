@@ -1,0 +1,1 @@
+Artículo 14.-La unidad usuaria es responsable de realizar el análisis para definir las condiciones de la aplicación de multas y clausulas penales a incorporarse en el pliego de condiciones considerando los criterios técnicos necesarios para estas definiciones.

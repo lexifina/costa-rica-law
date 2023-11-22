@@ -1,0 +1,1 @@
+Artículo 26.-Casos no previstos en este Manual de Procedimientos. Los casos no previstos en este reglamento se resolverán conforme con la jurisprudencia administrativa y los dictámenes del Poder Ejecutivo, de la Procuraduría General de la República y de la Contraloría General de la República, emitidos sobre la materia aquí Reglamentada.

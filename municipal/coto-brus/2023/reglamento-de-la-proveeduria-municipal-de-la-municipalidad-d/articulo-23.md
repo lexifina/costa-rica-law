@@ -1,0 +1,3 @@
+SECCIÓN III
+Registro de Proveedores
+Artículo 23.-El Registro de Proveedores. La Municipalidad tendrá acceso al Registro de Proveedores ubicado en la plataforma de SICOP o el que la ley establezca para tal efecto, en cual podrán inscribirse todos los interesados en proveer un bien o servicio. Deberá contener información básica del Proveedor, indicación del lugar o medio de comunicación para recibir invitaciones, lista actualizada de los bienes o servicios que ofrece y en cumplimiento al artículo 29 de LGCP y del 31 RLGCP y sus reformas, deberán subir a SICOP las declaraciones exigidas en dichos artículos.

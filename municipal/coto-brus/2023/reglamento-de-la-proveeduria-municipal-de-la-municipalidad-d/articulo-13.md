@@ -1,0 +1,1 @@
+Artículo 13.-Garantías, montos (porcentajes), vigencia. La unidad usuaria deberá indicar en la solicitud de inicio de contratación los detalles de solicitud de garantías, esta debe contemplar el porcentaje a solicitar y la vigencia de estas.

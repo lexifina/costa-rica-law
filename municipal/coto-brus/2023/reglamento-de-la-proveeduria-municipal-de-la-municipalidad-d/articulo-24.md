@@ -1,0 +1,1 @@
+Artículo 24.-Actualización del Registro. El Departamento de Proveeduría tendrá bajo su responsabilidad el verificar que cada proveedor posea las declaraciones en el sistema y que estén actualizadas cada 24 meses según la RLGCP Obligación de actualización, así como el artículo 33 y las reformas a estas normativas.

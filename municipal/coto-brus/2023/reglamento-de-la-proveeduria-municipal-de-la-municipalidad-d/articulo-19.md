@@ -1,0 +1,1 @@
+Artículo 19.-La unidad usuaria será responsable de recibir a satisfacción el bien, servicio u obra contratado mediante el Sistema digital unificado. También será responsables de coordinar la gestión de pagos mediante el sistema integrado Municipal.

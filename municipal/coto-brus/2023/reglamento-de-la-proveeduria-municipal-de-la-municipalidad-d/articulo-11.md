@@ -1,0 +1,1 @@
+Artículo 11.-Es responsabilidad de la unidad de proveeduría la compra de suministros, la confección del pliego de condiciones por demanda para la adquisición de materiales de limpieza y oficina. Cada unidad solicitante de acuerdo a las necesidades, solicitará ordenes de pedido que la Proveeduría gestionará.

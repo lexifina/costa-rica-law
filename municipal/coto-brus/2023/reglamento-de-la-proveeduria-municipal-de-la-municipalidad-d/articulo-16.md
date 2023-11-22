@@ -1,0 +1,1 @@
+Artículo 16.-La unidad usuaria que requiera de la adquisición de bienes de tecnología de la información, llámese equipos o accesorios, así como software (bien intangible), deberá remitir junto a su solicitud de contratación, el criterio técnico por parte del Profesional a cargo del Departamento de Tecnologías de la Información y Comunicación de la Municipalidad.
