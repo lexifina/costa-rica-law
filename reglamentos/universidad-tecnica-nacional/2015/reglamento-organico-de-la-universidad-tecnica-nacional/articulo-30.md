@@ -1,4 +1,3 @@
-CAPITULO VI
 Artículo 30. Son funciones de la Contraloría de Servicios:
 1. Informar y orientar a los usuarios sobre aspectos de su interés relativos a la organización, funcionamiento y servicios que brinda la Universidad.
 2. Atender oportunamente las denuncias y sugerencias que presenten los usuarios y procurar una solución inmediata a los problemas que planteen.

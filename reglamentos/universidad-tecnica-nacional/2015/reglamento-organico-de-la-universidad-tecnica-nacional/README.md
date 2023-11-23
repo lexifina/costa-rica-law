@@ -21,3 +21,4 @@ Reglamento Orgánico de la Universidad Técnica Nacional
 | 6 | 2020-12-04 | Reglamento 29 (2020-12-04) |
 | 7 | 2021-05-13 | Reglamento 11 (2021-05-13) |
 | 8 | 2023-02-23 | Reglamento 5 (2023-02-23) |
+| 9 | 2023-11-23 | Reglamento 30 (2023-11-23) |

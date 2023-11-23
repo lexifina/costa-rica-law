@@ -7,5 +7,4 @@ Artículo 45. Son funciones de la Defensoría de los Estudiantes:
 6. Fiscalizar la restitución de los derechos de los estudiantes que por algún error, incumplimiento de normas universitarias, abuso de autoridad o falta de celeridad en trámites hubiesen sido vulnerados por parte de algún miembro de la comunidad universitaria.
 7. Requerir de las diferentes instancias universitarias o miembros de la comunidad universitaria toda la documentación y la información necesarias para el cumplimiento de sus funciones.
 8. Recibir denuncias y sugerencias presentadas por los estudiantes relacionadas con la vulneración de derechos y el inadecuado servicio brindado por la institución
-9. Realizar el análisis y seguimiento de situaciones denunciadas contra el personal que labora en la UTN, o a otro estudiante u organismo que forma parte de la comunidad universitaria.
-10. Rendir informes anuales de gestión ante el Consejo Universitario y recomendar criterios y acciones para el mejoramiento de los servicios de la institución.
+9. Realizar el análisis y seguimiento de situaciones denunciadas contra el personal que labora en la UTN, o a otro estudiante u organismo que forma parte de la comunidad universitaria. Página | 26 10. Rendir informes anuales de gestión ante el Consejo Universitario y recomendar criterios y acciones para el mejoramiento de los servicios de la institución.
