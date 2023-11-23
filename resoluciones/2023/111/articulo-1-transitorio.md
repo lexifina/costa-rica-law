@@ -1,0 +1,1 @@
+Transitorio I.- La rendición de cuentas respecto a los remanentes dispuesta en el último párrafo de la norma técnica 5.3 denominada "Información a presentar en la rendición de cuentas", se efectuará a partir de los presupuestos del beneficio cuyo plazo de finalización sea posterior a diciembre del 2024.
