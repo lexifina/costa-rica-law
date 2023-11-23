@@ -14,3 +14,4 @@ Reforma Integral Reglamento sobre la rendición de cauciones a favor del Institu
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-03-09 | la propia norma |
+| 2 | 2023-11-23 | Reglamento 0 (2023-11-23) |
