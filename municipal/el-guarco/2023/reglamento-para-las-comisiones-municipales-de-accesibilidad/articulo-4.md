@@ -1,0 +1,1 @@
+Artículo 4º-Presupuesto: La Alcaldía y el Concejo Municipal deberán incluir el contenido presupuestario requerido para cumplir con las acciones y proyectos de accesibilidad formulados en el Plan Anual Operativo, cuando elaboran su proyecto de presupuesto anual.

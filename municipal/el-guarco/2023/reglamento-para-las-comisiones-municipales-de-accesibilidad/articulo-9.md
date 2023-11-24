@@ -1,0 +1,1 @@
+Artículo 9º-Servicios de apoyo interinstitucionales: La COMAD colaborará y mediará para que la Municipalidad participe en actividades con instituciones que atiendan público con discapacidad o programen actividades para esta población.

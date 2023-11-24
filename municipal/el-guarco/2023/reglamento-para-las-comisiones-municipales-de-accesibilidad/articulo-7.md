@@ -1,0 +1,1 @@
+Artículo 7º-Supervisión a cargo de la COMAD: La COMAD velará porque la Municipalidad dentro de su ámbito de competencia exija a las instituciones públicas y privadas, empresas y otras organizaciones del cantón que se ofrezcan las oportunidades y condiciones necesarias para el desarrollo integral de las personas con discapacidad.

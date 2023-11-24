@@ -1,0 +1,1 @@
+Artículo 11.-Agrupaciones de personas con discapacidad: La COMAD impulsará los convenios para el trabajo conjunto con agrupaciones de personas con discapacidad del cantón, región e inclusive a nivel nacional e internacional.

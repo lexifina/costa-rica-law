@@ -1,0 +1,1 @@
+Artículo 16.-Plazo de nombramientos: Los y las integrantes de la COMAD serán nombrados por un período de un año y podrán ser reelectos indefinidamente. No obstante, el integrante de la Comisión que, sin justa causa, se ausente de tres sesiones consecutivas, será sustituido en forma definitiva, por otra persona designada por la Presidencia Municipal.

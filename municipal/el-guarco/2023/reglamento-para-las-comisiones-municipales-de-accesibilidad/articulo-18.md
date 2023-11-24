@@ -1,0 +1,1 @@
+Artículo 18.-Quorum: Para la validez de las sesiones de la COMAD, se requiere la presencia de al menos dos de los regidores. Cualquier acuerdo tomado sin la participación de al menos dos regidores se considerará con nulidad absoluta.

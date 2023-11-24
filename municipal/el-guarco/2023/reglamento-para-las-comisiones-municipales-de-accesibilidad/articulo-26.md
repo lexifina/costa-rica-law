@@ -1,0 +1,1 @@
+Artículo 26.-Denuncias y quejas: La Comisión junto con la Oficina de Discapacidad procesarán las quejas y denuncias relativas a discapacidad y accesibilidad, sea estas internas o externas. Por lo que esta oficina deberá establecer los canales oportunos para canalizar las denuncias o las quejas.

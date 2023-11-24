@@ -1,0 +1,1 @@
+Artículo 8º-Normativa Interna y directrices: La COMAD revisará permanentemente los reglamentos, directrices y acuerdos municipales, para garantizar que contemplen a la población con alguna discapacidad.

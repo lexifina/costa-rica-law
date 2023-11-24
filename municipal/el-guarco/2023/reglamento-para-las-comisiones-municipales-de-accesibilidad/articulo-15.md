@@ -1,0 +1,1 @@
+Artículo 15.-Organización: En la primera sesión de la COMAD se designará entre los regidores (as), un coordinador (a) y un secretario (a) que coordinarán las sesiones y levantarán las actas de la Comisión.
