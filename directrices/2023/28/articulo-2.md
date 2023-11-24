@@ -1,0 +1,1 @@
+Artículo 2º-Se instruye a todas las entidades y órganos bajo la rectoría del Sistema General de Empleo Público, a cargo del MIDEPLAN, para el acatamiento de la presente Directriz con respecto a los requisitos mínimos establecidos para la creación, modificación y actualización de los manuales de puestos de cada Institución.
