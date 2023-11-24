@@ -1,0 +1,2 @@
+Transitorio II. La Caja Costarricense de Seguro Social dispone del plazo que le otorgó la Ley N° 10081 del 13 de enero del 2022 "Derechos de la mujer durante la atención calificada, digna y respetuosa del embarazo, parto, posparto y atención del recién nacido" en el segundo párrafo del Transitorio I, para la atención integral de las necesidades para la implementación de los postulados de la Ley en cada centro de atención de partos de la institución.
+(Así adicionado por el artículo 2° del decreto ejecutivo N° 44623 del 24 de noviembre del 2023)

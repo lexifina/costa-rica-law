@@ -14,3 +14,4 @@ Reglamento para la defensa y garantía de los derechos de las mujeres embarazada
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-08-15 | la propia norma |
+| 2 | 2023-11-24 | Decreto Ejecutivo 44623 (2023-11-24) |
