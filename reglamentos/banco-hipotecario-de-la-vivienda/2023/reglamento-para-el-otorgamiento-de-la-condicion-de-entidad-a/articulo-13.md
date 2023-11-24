@@ -1,0 +1,1 @@
+Artículo 13.-Revocatoria de la condición de entidad autorizada del SFNV: Para revocar la condición de entidad autorizada del SFNV, se aplicará lo indicado en el artículo 24 del "Reglamento sobre la Organización y Funcionamiento del Sistema Financiero Nacional para la Vivienda" y demás normas concordantes.
