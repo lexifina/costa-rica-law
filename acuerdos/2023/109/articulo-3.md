@@ -1,0 +1,1 @@
+Artículo 3º-Delegar en el/la Oficial Mayor y Director/a Administrativo/a y Financiero/a la función de aprobar el acto administrativo de donación, así como la función de autorizar el traslado de bienes entre entidades de la Administración Central, de acuerdo con lo dispuesto en los artículos 25 y 42 del Decreto N° 40797 de cita.
