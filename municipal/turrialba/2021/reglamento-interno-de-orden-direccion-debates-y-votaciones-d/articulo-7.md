@@ -1,2 +1,2 @@
-Artículo 7, el Concejo Municipal celebrará una Sesión Ordinaria por semana los días viernes a las 15:15 horas, hasta las 18:15 horas en el Salón de Sesiones se debe procurar que se dé por agotada la agenda en conocimiento. Para su extensión de la sesión, debe someterse a votación dicha extensión debe ser acordada de manera unánime de los Regidores Propietarios presentes.
-(Así reformado en sesión N° 143 del 24 de enero de 2023)
+Artículo 7, el Concejo Municipal celebrará su sesión ordinaria por semana los días viernes a partir de las 15:00 horas hasta las 18:00 horas en el salón de sesiones(*) se debe procurar que se dé por agotada la agenda en conocimiento. Para su extensión de la sesión, debe someterse a votación dicha extensión debe ser acordada de manera unánime de los Regidores Propietarios presentes.
+(*)(Así reformado el párrafo anterior mediante sesión ordinaria N° 186-2023 del 24 de noviembre del 2023)
