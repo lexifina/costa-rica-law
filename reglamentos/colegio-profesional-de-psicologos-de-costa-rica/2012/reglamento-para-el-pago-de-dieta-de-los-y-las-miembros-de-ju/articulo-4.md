@@ -1,1 +1,1 @@
-Artículo 4º—A los y las miembros del Tribunal de Honor se les cancelará una dieta por su asistencia y permanencia en las sesiones ordinarias que realice el cuerpo colegiado.
+Artículo 4°-Cuando por impedimento, excusa o recusación de alguno de los y las titulares de los Tribunales se convoque a alguna de las personas suplentes del Tribunal de Honor o del Tribunal Electoral, se le reconocerá la dieta en las mismas condiciones que al titular que sustituye.

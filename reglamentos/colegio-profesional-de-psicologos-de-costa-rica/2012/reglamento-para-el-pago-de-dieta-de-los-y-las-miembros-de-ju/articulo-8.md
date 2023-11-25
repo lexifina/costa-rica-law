@@ -1,1 +1,1 @@
-Artículo 8º—Queda prohibido el adelanto de subsidios.
+Artículo 8°-Queda absolutamente prohibido el adelanto de dietas.
