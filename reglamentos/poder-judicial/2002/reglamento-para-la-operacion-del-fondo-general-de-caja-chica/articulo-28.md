@@ -1,2 +1,0 @@
-Artículo 28.—Del movimiento y operación del Fondo de la Caja Chica General, el Departamento Financiero Contable, deberá elaborar y enviar un informe o arqueo mensual en el término máximo de quince días naturales posteriores al cierre de cada mes, el cual debe conservar en sus archivos de manera que permita la verificación posterior de las transacciones efectuadas. Dicho informe lo enviará a la Dirección Ejecutiva con copia a la Auditoría Judicial.
-(Así reformado mediante circular N° 170 del 13 de diciembre de 2010)

@@ -1,1 +1,0 @@
-Artículo 35.—Sanciones. Cualquier infracción de las disposiciones contenidas en este Reglamento, será sancionada de acuerdo con lo estipulado en la Ley de la Administración Financiera de la República y Presupuestos Públicos.

@@ -1,1 +1,0 @@
-Artículo 6º—Incremento del fondo. El Departamento Financiero Contable podrá solicitar incrementos en el fondo autorizado, para lo cual deberá indicar las causas que justifiquen debidamente y en forma razonada tales incrementos. El incremento será fijado por resolución de la Dirección Ejecutiva.
