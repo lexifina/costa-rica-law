@@ -1,0 +1,1 @@
+Artículo 11.-Aprobación de miembros de la Comisión Institucional y Subcomisiones de Ética y Valores: La Junta Directiva de la institución aprobará la conformación de la Comisión Institucional y Subcomisiones de Ética y Valores a solicitud de la Presidencia Ejecutiva.

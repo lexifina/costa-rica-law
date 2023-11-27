@@ -1,0 +1,1 @@
+Artículo 2º-Las normas del presente reglamento deberán ser interpretadas y aplicadas por los miembros de la Comisión Institucional y Subcomisiones de Ética y Valores, de forma que se garantice la realización del fin público al que se dirigen.

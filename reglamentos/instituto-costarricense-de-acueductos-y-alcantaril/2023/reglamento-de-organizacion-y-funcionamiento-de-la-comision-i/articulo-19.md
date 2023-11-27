@@ -1,0 +1,2 @@
+Artículo 19.-Jornada de trabajo: Los miembros de la Comisión Institucional y Subcomisiones de Ética y Valores se reunirán una vez al mes en forma ordinaria y en forma extraordinaria cuando sea necesario.
+La persona coordinadora o alguna representante de la Comisión Institucional y los representantes de las subcomisiones deberán asistir a las sesiones mensuales de la Comisión Nacional de Ética y Valores.

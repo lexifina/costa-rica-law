@@ -1,0 +1,1 @@
+Artículo 10.-Estructura de las Subcomisiones: Las Subcomisiones de Ética y Valores deben estar conformadas por funcionarios que representen cada una de las oficinas regionales de la institución y se deberá seleccionar por cada subcomisión a uno de ellos como Coordinador.

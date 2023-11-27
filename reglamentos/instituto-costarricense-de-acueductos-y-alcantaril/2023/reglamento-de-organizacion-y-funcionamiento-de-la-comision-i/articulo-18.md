@@ -1,0 +1,5 @@
+Artículo 18.-Obligaciones: Los miembros de la Comisión Institucional y Subcomisiones de Ética y Valores deberán:
+a. Velar porque se realicen de la mejor manera y según los recursos disponibles, las funciones que la Comisión o Subcomisión tiene asignadas en este reglamento.
+b. Llevar las minutas de las reuniones ordinarias y extraordinarias, siendo el secretario el encargado de mantener estos controles, así como mantener actualizada la gestión documental.
+c. Recibir la inducción del Sistema Nacional de Ética y Valores, así como participar en actividades de capacitación, formación e información en temas relacionados con su gestión y de los programas de formación continua y asesoría técnica de la CNEV dentro del marco legal respectivo.
+d. Trabajar en forma coordinada con las dependencias institucionales, quienes deberán prestar su colaboración y brindar la información requerida por la Comisión o Subcomisión. e. Asumir las funciones de la Comisión o Subcomisión como representantes de su área de trabajo, por lo que estas serán consideradas dentro de las labores ordinarias y no como un recargo.

@@ -1,0 +1,1 @@
+Artículo 4º-La gestión de ética es un asunto colectivo y transversal por su importancia en todos los procesos y actividades de la institución, por lo que debe promoverse una cultura de integridad, probidad, transparencia, control interno y rendición de cuentas, mediante las actuaciones y toma de decisiones de la Comisión Institucional y Subcomisiones de Ética y Valores.

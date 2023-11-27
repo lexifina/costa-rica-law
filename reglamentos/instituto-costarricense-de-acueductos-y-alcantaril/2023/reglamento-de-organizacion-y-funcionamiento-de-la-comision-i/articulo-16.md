@@ -1,0 +1,1 @@
+Artículo 16.-Rendición de cuentas: La Comisión Institucional de Ética y Valores deberá presentar anualmente al Jerarca y a la Dirección Ejecutiva de la CNEV un informe de rendición de cuentas. A su vez, las Subcomisiones de Ética y Valores deberán remitir un informe de labores al concluir el año a la Comisión Institucional de Ética y Valores.

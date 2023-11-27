@@ -1,0 +1,1 @@
+Artículo 3º-En virtud del principio de legalidad, la Comisión Institucional y Subcomisiones de Ética y Valores no podrán ejercer mayores potestades que las expresamente autorizadas por las leyes y este reglamento o por las demás normas del ordenamiento jurídico.
