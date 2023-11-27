@@ -1,0 +1,1 @@
+Artículo 4º-Obligación de comunicar la modificación de datos. Los obligados tributarios y municipales deben comunicar toda modificación de los datos registrados en la inscripción realizada ante la Administración Municipal, únicamente en la forma y por los medios que ésta determine y dentro del plazo de 10 días hábiles en que se origina la modificación respectiva.

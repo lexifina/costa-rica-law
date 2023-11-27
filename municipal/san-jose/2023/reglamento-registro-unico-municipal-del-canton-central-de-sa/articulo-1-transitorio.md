@@ -1,0 +1,1 @@
+Transitorio I.-El RUM regulado en este Reglamento, al requerir de un componente informático, será obligatorio a partir del momento en que la Administración Municipal, haya podido desarrollar todos los sistemas e instrumentos necesarios para su puesta en ejecución y comunique mediante los medios oficiales, que el RUM está en ejecución.

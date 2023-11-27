@@ -1,0 +1,3 @@
+Artículo 6º-Actuación de apoderados acreditados. En tanto la acreditación esté vigente, basta con que el apoderado muestre su cédula de identidad al funcionario competente de la Administración Municipal, para realizar gestiones verbales o escritas.
+En actuaciones escritas donde el apoderado no actúe personalmente ante la Administración Municipal, la firma del documento donde conste la gestión de que se trate, debe estar debidamente autenticada por Abogado o Notario Público.
+En el caso de actuaciones a través del portal digital, basta con el uso de la clave de acceso previamente asignada por la Administración Municipal o con el dispositivo digital legalmente autorizado, según sea la modalidad utilizada por la Administración.

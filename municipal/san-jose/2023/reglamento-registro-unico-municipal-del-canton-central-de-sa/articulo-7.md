@@ -1,0 +1,1 @@
+Artículo 7º-Actuación de apoderados no acreditados. Quienes demuestren poder legal suficiente, aún y cuando no estén acreditados, podrán actuar ante la Administración Municipal en el procedimiento o trámite específico en que se apersonen.

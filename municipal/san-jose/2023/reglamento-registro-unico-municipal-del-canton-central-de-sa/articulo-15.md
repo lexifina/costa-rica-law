@@ -1,0 +1,1 @@
+Artículo 15.-Omisión en la obligación de modificación y actualización de datos. Ante la omisión de los obligados tributarios y municipales de comunicar cualquier modificación de datos de trascendencia para la Administración Municipal, ésta estará facultada para modificar de oficio, aquellos datos que no se conformen con la realidad del obligado tributario o municipal.
