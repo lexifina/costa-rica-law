@@ -1,1 +1,0 @@
-Artículo 86.- Las personas usuarias de los sistemas de información, tienen la responsabilidad de mantener actualizada la información y asegurar la completitud de la misma. En los sistemas que se utilice deben completarse todos aquellos campos que se soliciten de forma obligatoria.

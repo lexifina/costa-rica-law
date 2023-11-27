@@ -1,1 +1,0 @@
-Articulo 14.- La Dirección de Tecnología de Información y Comunicaciones debe ajustarse en la medida de las posibilidades a los marcos normativos vigentes, así como a las mejores prácticas, que sean aplicables al gobierno y gestión de TI.

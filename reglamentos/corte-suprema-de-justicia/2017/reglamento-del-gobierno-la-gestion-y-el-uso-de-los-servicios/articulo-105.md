@@ -1,1 +1,0 @@
-Artículo 105.- Es prohibida la copia o distribución (física y electrónica) de información institucional de carácter confidencial o de acceso restringido, así como aquella que esté protegida por derechos de autor o sea de uso exclusivo del Poder Judicial.

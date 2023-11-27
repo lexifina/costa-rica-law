@@ -1,1 +1,0 @@
-Artículo 97.- Las personas que realicen una labor en el Poder Judicial, indistintamente de la relación laboral que tengan, deberán hacer un buen uso, desecho y reutilización de medios electrónicos o impresos que contengan información institucional, de acuerdo con el grado de confidencialidad de la información.
