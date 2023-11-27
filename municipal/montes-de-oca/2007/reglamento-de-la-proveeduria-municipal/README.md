@@ -14,3 +14,4 @@ Reglamento de la Proveeduría Municipal
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-07-17 | la propia norma |
+| 2 | 2023-11-27 | Reglamento municipal 187 (2023-11-27) |
