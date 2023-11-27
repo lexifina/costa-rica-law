@@ -1,6 +1,6 @@
 # Ley de Presupuesto Ordinario y Extraordinario de la República para el Ejercicio Económico del 2023
 
-Ley N° 10331 del 2022-11-29. SINALEVI, ficha 98397: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=98397&param2=138417&param3=1>.
+Ley N° 10331 del 2022-11-29. SINALEVI, ficha 98397: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=98397&param2=138516&param3=1>.
 
 Publicada en La Gaceta N° 235 del 2022-12-09.
 
@@ -26,3 +26,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 16 de 24 | 2023-11-01 | Ley 10419 | 2023-10-30 |
 | 17 de 24 | 2023-11-07 | Decreto Ejecutivo 44246 (2023-11-02) | 2023-11-02 |
 | 18 de 24 | 2023-11-16 | Decreto Ejecutivo 44253 (2023-11-13) | 2023-11-13 |
+| 19 de 24 | 2023-11-27 | Decreto Ejecutivo 44264 (2023-11-16) | 2023-11-16 |
