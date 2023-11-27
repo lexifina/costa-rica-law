@@ -1,1 +1,0 @@
-Artículo 18.—Cuando alguna área realiza un vale y ésta no retira el dinero en el mismo día, se entenderá por desechado el mismo, de tal forma que si se requiere hacer la compra por el interesado, tendrá que volver a efectuar el trámite nuevamente.

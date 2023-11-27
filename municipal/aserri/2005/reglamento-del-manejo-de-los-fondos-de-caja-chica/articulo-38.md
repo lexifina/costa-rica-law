@@ -1,1 +1,0 @@
-Artículo 38.—Estarán sujetos a la misma clase de sanciones que se especifican en el artículo anterior, los empleados o sus jefes –según corresponda- que solicitan o autoricen vales sin justificación, o bien, adquisición de bienes, que mantenga en existencia en bodega.

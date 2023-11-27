@@ -1,2 +1,0 @@
-* Artículo 8º * Bis—La caja chica se utilizará para atender exclusivamente para comprar y pagar materiales, suministros, repuestos, pasajes, viáticos, accesorios y servicios que se requieran para el mantenimiento y reparación de los equipos automotores y de servicios y otros, conforme al artículo 109 del Código Municipal.
-(*Así corregido mediante Fe de Erratas, publicada en La Gaceta Nº 158 del 17 de agosto de 2006)

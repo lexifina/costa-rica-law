@@ -1,1 +1,0 @@
-Artículo 27.—Si realizado el arqueo, resulte una diferencia debe ser justificada por el responsable de la caja chica, quien, además procederá en forma inmediata, a depositar el sobrante o reintegrar el faltante, según corresponda.

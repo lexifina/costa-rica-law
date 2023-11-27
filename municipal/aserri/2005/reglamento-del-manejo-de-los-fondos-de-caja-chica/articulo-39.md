@@ -1,1 +1,0 @@
-Artículo 39.—Las sanciones descritas serán aplicadas por el Alcalde Municipal y El Concejo Municipal, conforme lo establece el Código Municipal, el Reglamento Interior de Trabajo y el Código de Trabajo.
