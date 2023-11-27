@@ -14,3 +14,4 @@ Reglamento para el otorgamiento de beneficios patrimoniales a sujetos privados y
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-03-01 | la propia norma |
+| 2 | 2023-11-27 | Reglamento 26 (2023-11-27) |
