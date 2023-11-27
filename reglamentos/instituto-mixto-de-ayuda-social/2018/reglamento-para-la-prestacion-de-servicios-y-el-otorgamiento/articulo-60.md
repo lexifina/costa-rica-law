@@ -1,1 +1,0 @@
-Artículo 60: De las prohibiciones a las personas voluntarias: La persona voluntaria no devengará salario, honorarios, dietas o viáticos. Sí podrá viajar en los vehículos de la institución, para lo cual el IMAS pagará la respectiva póliza.

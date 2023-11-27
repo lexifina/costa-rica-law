@@ -1,2 +1,0 @@
-Artículo 114: Queda prohibido a todas las personas que siendo funcionarias del IMAS y que desarrollen actividades propias de ejecución de beneficios, solicitar requisitos que no estén contemplados en este Reglamento, tampoco podrán reiterarse solicitudes de requisitos cuando el mismo este en el expediente del proyecto o solicitante, o violentando lo establecido en la Ley 8220 y su reforma que es la Ley 8990.
-(Así modificada su numeración en sesión N° 53 del 19 de octubre de 2022, que lo traspaso del antiguo artículo 113 al 114)

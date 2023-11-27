@@ -1,3 +1,0 @@
-Transitorio Segundo: Aplicar en la revisión de los proyectos a ejecutar en el ejercicio presupuestario del año 2018, que iniciaron sus expedientes presentando cualquier tipo de requisitos documentales con anterioridad al 1ero de junio del 2018, fecha de publicación del actual Reglamento para la Prestación de Servicios y Otorgamiento de Beneficios Institucionales del IMAS, los requisitos establecidos en la normativa vigente anterior a la publicación de este Reglamento.
-(Así adicionado y publicado en La Gaceta N° 183 del 4 de octubre de 2018)
-(Así reformado y publicado en el Alcance Digital N° 208 a La Gaceta N° 230 del 11 de diciembre de 2018)

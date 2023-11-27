@@ -1,1 +1,0 @@
-Artículo 41: De la renovación de un beneficio: Un beneficio podrá ser renovado de forma individual o por medio de proceso masivo de resoluciones (PROSI) por medio de una revaloración, o según criterio certificado por el ARDS.

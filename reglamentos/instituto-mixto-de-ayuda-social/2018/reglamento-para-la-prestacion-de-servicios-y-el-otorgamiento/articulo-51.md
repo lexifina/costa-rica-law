@@ -1,1 +1,0 @@
-Artículo 51: De las Áreas Regionales de Desarrollo Social: Las Áreas Regionales de Desarrollo Social, participarán y apoyarán en los Comités Regionales, Municipales y Comunales de Emergencias, todo de conformidad con sus competencias.
