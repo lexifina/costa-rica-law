@@ -1425,3 +1425,224 @@ No. CUENTA | CONCEPTO
 Tanto el registro como el destino de las estimaciones crediticias registradas en esta cuenta analítica estará determinado por el marco de regulación, y no podrán ser utilizadas a criterio de la entidad."
 1.030.090.020.M.040 (Componente Genérico para Cartera de Créditos - Transitorio) CONCEPTO: En esta cuenta se registra transitoriamente el importe de estimaciones crediticias en exceso sobre el mínimo requerido, que se origine al momento de entrada en vigencia las modificaciones a la regulación sobre el cálculo de estimaciones crediticias, o sus Lineamientos Generales.
 Tanto el registro como el destino de las estimaciones crediticias registradas en esta cuenta analítica estará determinado por el marco de regulación, y no podrán ser utilizadas a criterio de la entidad.")
+(Nota de Sinalevi: Mediante sesión 1836-2023 del 27 de noviembre del 2023 se reforman el Anexo 1: Plan de cuentas para las entidades supervisadas por Sugef, Sugeval y Supen, los grupos y conglomerados financieros y del Anexo 3: Catálogo de cuentas para las entidades supervisadas por Sugef, Sugeval y Supen, los grupos y conglomerados financieros. No obstante mediante información suministrada por el Consejo Nacional de Supervisión del Sistema Financiero, los anexos no fueron publicados en el Diario Oficial La Gaceta, los mismos pueden ser visualizados en la página Web de las Superintendencias por lo que dicha reforma se transcribe a continuación: " 5) Modificar el concepto de la cuenta 151 Bienes y Valores Adquiridos en Recuperación de Créditos, conforme con el siguiente texto:
+'CÓDIGO CUENTA: 151
+NOMBRE: Bienes y valores adquiridos en recuperación de créditos
+Concepto: En esta cuenta se registran los bienes, instrumentos financieros y derechos que han sido transferidos a la entidad en pago de obligaciones a su favor o que le han sido adjudicados en remate judicial, por procesos judiciales seguidos por ella contra sus clientes.
+El registro inicial en esta cuenta debe realizarse por el menor monto entre:
+a) El saldo del crédito más los productos por cobrar, las cuentas por cobrar asociadas al crédito, los seguros y los gastos de administración derivados del crédito, o
+b) El monto de adjudicación o el monto del avalúo en caso de dación. Cuando a criterio de la entidad, el activo pierda las condiciones como activo mantenido para la venta de acuerdo con NIIF 5, debe reclasificarse contablemente a la cuenta 188 "Otros activos disponibles para la venta fuera del alcance de NIIF 5.
+Para los bienes adjudicados registrados en esta cuenta se debe aplicar lo dispuesto en la Ley N° 4631 Utilidades Netas por venta de Bienes Adjudicados en Remate para las entidades supervisadas por la Superintendencia General de Entidades Financieras y la reglamentación emitida al efecto.'
+6) Modificar el nombre y concepto de la cuenta 159 Estimación por deterioro y por disposición legal o prudencial, conforme con el siguiente texto:
+'CÓDIGO CUENTA: 159
+NOMBRE: Estimación por deterioro
+Concepto: En esta cuenta se registra el monto de la estimación que es necesario contabilizar ante la eventualidad de pérdidas originadas por el deterioro del valor de bienes mantenidos para la venta.'
+7) Adicionar la cuenta 188 Otros Activos Disponibles para la Venta Fuera del Alcance de NIIF 5 del grupo 180 Otros Activos, conforme con el siguiente texto:
+'GRUPO: OTROS ACTIVOS
+CÓDIGO CUENTA: 188
+NOMBRE: Otros activos disponibles para la venta fuera del alcance de NIIF 5
+Concepto: En esta cuenta se registran los bienes recibidos en recuperación de créditos, bienes producidos para la venta, inmuebles, mobiliario y equipo fuera de uso y otros activos no corrientes que no cumplen con los requisitos que dispone la NIIF 5 Activos no Corrientes Mantenidos para la Venta y Operaciones Discontinuadas.
+El registro inicial será de acuerdo con el valor en libros de la cuenta de origen del activo.
+La entidad debe cumplir con los siguientes aspectos operativos mínimos en relación con los activos registrados en esta cuenta:
+a) Debe mantener un plan activo de gestión de venta;
+b) Debe realizar la solicitud de prórroga a la Sugef de conformidad con el Artículo 72 de la Ley Orgánica del Sistema Bancario Nacional, Ley 1644.
+c) Debe determinar la existencia de indicios de deterioro del activo y cuando aplique, reconocer el correspondiente ajuste de deterioro, al menos trimestralmente, para las fechas de corte de los estados financieros trimestrales y anuales.
+d) Debe mantener documentada la metodología para la determinación del importe recuperable estimado, según la naturaleza de los diferentes tipos de activos.
+Cuando la entidad incumpla con cualquiera de los puntos indicados anteriormente, el importe recuperable del activo debe llevarse a cero.'
+Para los bienes adjudicados registrados en esta cuenta se debe aplicar lo dispuesto en la Ley N° 4631 Utilidades Netas por venta de Bienes Adjudicados en Remate para las entidades supervisadas por la Superintendencia General de Entidades Financieras y la reglamentación emitida al efecto.
+SUBCUENTAS
+188.01 Bienes recibidos en recuperación de créditos
+CUENTAS ANALÍTICAS
+188.01.M.01 Bienes inmuebles recibidos en recuperación de créditos
+188.01.M.02 Bienes muebles recibidos en recuperación de créditos
+188.01.M.99 Otros bienes recibidos en recuperación de créditos
+188.02 Bienes adquiridos o producidos para la venta
+CUENTAS ANALÍTICAS
+188.02.M.01 Bienes adquiridos para la venta
+188.02.M.02 Bienes producidos para la venta
+188.03 Propiedades, mobiliario y equipo fuera de uso
+CUENTAS ANALÍTICAS
+188.03.M.01 Bienes inmuebles fuera de uso
+188.03.M.02 Bienes muebles fuera de uso
+188.03.M.99 Otros bienes fuera de uso
+188.04 Otros activos disponibles para la venta fuera del alcance de NIIF 5
+CUENTA ANALÍTICA
+188.04.M.01 Otros activos disponibles para la venta fuera del alcance de NIIF 5
+188. 09 (Estimación por deterioro de otros activos disponibles para la venta fuera del alcance de NIIF 5)
+CUENTAS ANALÍTICAS
+188.09.M.01 (Estimación por deterioro de bienes adquiridos en recuperación de créditos)
+188.09.M.02 (Estimación por deterioro de bienes adquiridos o producidos para la venta)
+188.09.M.03 (Estimación por deterioro de propiedades, mobiliario y equipo fuera de uso)
+188.09.M.04 (Estimación por deterioro de otros activos disponibles para la venta fuera del alcance de NIIF 5)'
+8) Modificar el nombre y concepto de la subcuenta 432.11 Pérdida por estimación de deterioro y disposición regulatoria de bienes mantenidos para la venta, conforme con el siguiente texto:
+'432.11 Pérdida por estimación de deterioro de bienes mantenidos para la venta
+Concepto: En esta subcuenta se registran la pérdida estimada por deterioro de los bienes recuperados en créditos.'
+9) Adicionar la cuenta 434 Gastos por otros activos disponibles para la venta fuera del alcance de NIIF 5 en el grupo 430 Gastos Operativos Diversos, conforme con el siguiente texto:
+'GRUPO: GASTOS OPERATIVOS DIVERSOS
+CUENTA CÓDIGO: 434
+NOMBRE: Gastos por otros activos disponibles para la venta fuera del alcance de NIIF 5
+Concepto: En esta cuenta se registran los gastos incurridos en el período por concepto de mantenimiento de bienes recibidos en recuperación de créditos, bienes adquiridos o producidos para la venta y bienes declarados fuera de uso.
+SUBCUENTAS
+434.01 Gasto de administración de bienes recibidos recuperación de créditos
+Concepto: En esta subcuenta se registran los gastos necesarios para el mantenimiento, restauración, seguridad y venta incurridos por la entidad en la administración de los bienes recibidos en recuperación de créditos.
+434.02 Gasto de administración de bienes adquiridos o producidos para la venta
+434.03 Gasto de administración de propiedades, mobiliario y equipo fuera de uso
+434.04 Gasto de administración de otros activos disponibles para la venta fuera del alcance de NIIF 5
+434.09 Pérdidas por deterioro de otros activos disponibles para la venta fuera del alcance de NIIF 5
+434.09.M.01 Pérdidas por deterioro de bienes adquiridos en recuperación de créditos
+434.09.M.02 Pérdidas por deterioro de bienes adquiridos o producidos para la venta
+434.09.M.03 Pérdidas por deterioro de propiedades, mobiliario y equipo fuera de uso
+434.09.M.04 Pérdidas por deterioro de otros activos disponibles para la venta fuera del alcance de NIIF 5'
+10) Adicionar la cuenta 536 Ingresos por otros activos disponibles para la venta fuera del alcance de NIIF 5 en el grupo 530 Ingresos Operativos Diversos, conforme con el siguiente texto:
+'GRUPO: INGRESOS OPERATIVOS DIVERSOS
+CUENTA CÓDIGO: 536
+NOMBRE: Ingresos por otros activos disponibles para la venta fuera del alcance de NIIF 5
+Concepto: En esta cuenta se registran los ingresos obtenidos durante el ejercicio generados por los bienes recibidos en recuperación de créditos, bienes adquiridos o producidos para la venta y bienes declarados fuera de uso. Asimismo, se registra en esta cuenta la disminución de estimaciones por deterioro de dichos bienes.
+SUBCUENTAS
+536.01 Ingresos por administración de bienes recibidos en recuperación de créditos
+Concepto: En esta subcuenta se registran los ingresos generados durante el ejercicio producto de la administración de los bienes recibidos en recuperación de créditos.
+536.02 Ingresos por administración de bienes adquiridos o producidos para la venta
+536.03 Ingresos por administración de propiedades, mobiliario y equipo fuero de uso
+536.04 Ingresos por administración de otros activos disponibles para la venta fuera del alcance de NIIF 5
+536.09 Disminución de la estimación por deterioro de otros activos disponibles para la venta fuera del alcance de NIIF 5'
+B. Anexo 2: Plan de cuentas para las entidades supervisadas por SUGESE y el Anexo 4: Catálogo de cuentas para las entidades supervisadas por SUGESE, del Reglamento de Información Financiera, para eliminar y modificar las siguientes cuentas, subcuentas y cuentas analíticas:
+1) Modificar el concepto de la cuenta 1.070.010 Bienes y Valores Adquiridos en Recuperación de Créditos, conforme con el siguiente texto:
+'CÓDIGO CUENTA: 1.070.010
+NOMBRE: Bienes y valores adquiridos en recuperación de créditos
+Concepto: En esta cuenta se registran los bienes, instrumentos financieros y derechos que han sido transferidos a la entidad en pago de obligaciones a su favor o que le han sido adjudicados en remate judicial, por procesos judiciales seguidos por ella contra sus clientes.
+El registro inicial en esta cuenda debe realizarse por el menor monto entre:
+a) El saldo del crédito más los productos por cobrar, las cuentas por cobrar asociadas al crédito, los seguros y los gastos de administración derivados del crédito, o
+b) El monto de adjudicación o el monto del avalúo en caso de dación.
+Cuando a criterio de la entidad, el activo pierda las condiciones como activo mantenido para la venta de acuerdo con NIIF 5, debe reclasificarse contablemente a la cuenta 1.090.110 Otros activos disponibles para la venta fuera del alcance de NIIF 5.
+Para los bienes adjudicados registrados en esta cuenta se debe aplicar lo dispuesto en la Ley N° 4631 Utilidades Netas por venta de Bienes Adjudicados en Remate por las entidades supervisadas por la Superintendencia General de Entidades Financieras y la reglamentación emitida al efecto.'
+2) Modificar el nombre y concepto de la cuenta 1.070.090 Estimación por deterioro y por disposición legal o prudencial, conforme con el siguiente texto:
+'CÓDIGO CUENTA: 1.070.090
+NOMBRE: ESTIMACIÓN por deterioro
+Concepto: En esta cuenta se registra el monto de la estimación que es necesario contabilizar ante la eventualidad de pérdidas originadas por el deterioro del valor de bienes mantenidos para la venta.'
+3) Eliminar la subcuenta 1.070.090.100 (Estimación regulatoria de bienes mantenidos para la venta).
+4) Adicionar la cuenta 1.090.110 Otros activos disponibles para la venta fuera del alcance de NIIF 5 del grupo 1.090 Otros Activos, conforme con el siguiente texto:
+'GRUPO: OTROS ACTIVOS
+CÓDIGO CUENTA: 1.090.110
+NOMBRE: Otros activos disponibles para la venta fuera del alcance de NIIF 5
+Concepto: En esta cuenta se registran los bienes recibidos en recuperación de créditos, bienes producidos para la venta, inmuebles, mobiliario y equipo fuera de uso y otros activos no corrientes que no cumplen con los requisitos que dispone la NIIF 5 Activos no Corrientes Mantenidos para la Venta y Operaciones Discontinuadas o desde su reconocimiento inicial como bienes mantenidos para la venta, han transcurrido dos años sin venderse, los cuales se registran en el grupo 1.070 Bienes mantenidos para la venta.
+El registro inicial será de acuerdo con el valor en libros de la cuenta de origen del activo.
+La entidad debe cumplir con los aspectos operativos mínimos en relación con los activos registrados en esta cuenta:
+a) Debe mantener un plan activo de gestión de venta;
+b) Debe realizar la solicitud de prórroga a la SUGEF de conformidad con el Artículo 72 de la Ley Orgánica del Sistema Bancario Nacional, Ley 1644.
+c) Debe determinar el deterioro del activo al menos trimestralmente, para les fechas de corte de los estados financieros trimestrales y anuales.
+d) Debe mantener documentada la metodología para la determinación del importe recuperable estimado, según la naturaleza de los diferentes tipos de activos.
+Cuando la entidad incumpla con cualquiera de los puntos indicados anteriormente, el importe recuperable del activo debe llevarse a cero.'
+SUBCUENTAS
+1.090.110.010 Bienes recibidos en recuperación de créditos
+CUENTAS ANALÍTICAS
+1.090.110.010.M.010 Bienes inmuebles recibidos en recuperación de créditos
+1.090.110.010.M.020 Bienes muebles recibidos en recuperación de créditos
+1.090.110.010.M.990 Otros bienes recibidos en recuperación de créditos
+1.090.110.020 Bienes adquiridos o producidos para la venta
+CUENTAS ANALÍTICAS
+1.090.110.020.M.010 Bienes adquiridos para la venta
+1.090.110.020.M.020 Bienes producidos para la venta
+1.090.110.030 Propiedades, mobiliario y equipo fuera de uso
+CUENTAS ANALÍTICAS
+1.090.110.030.M.010 bienes inmuebles fuera de uso
+1.090.110.030.M.020 bienes muebles fuera de uso
+1.090.110.030.M.99 otros bienes fuera de uso
+1.090.110.040 otros activos disponibles para la venta fuera del alcance de NIIF 5
+CUENTA ANALÍTICA
+1.090.110.040.M.010 Otros activos disponibles para la venta fuera del alcance de NIIF 5
+1.090.110.090 (Estimación por deterioro de otros activos disponibles para la venta fuera del alcance de NIIF 5)
+CUENTAS ANALÍTICAS
+1.090.110.090.M.010 (Estimación por deterioro de bienes adquiridos en recuperación de créditos)
+1.090.110.090.M.020 (Estimación por deterioro de bienes adquiridos o producidos para la venta)
+1.090.110.090.M.030 (Estimación por deterioro de propiedades, mobiliario y equipo fuera de uso)
+1.090.110.090.M.040 (Estimación por deterioro de otros activos disponibles para la venta fuera del alcance de NIIF 5)"
+5) Modificar el nombre y concepto de la subcuenta 4.060.020.110 Pérdida por estimación de deterioro y disposición regulatoria de bienes mantenidos para la venta, conforme con el siguiente texto:
+'4.060.020.110 Pérdida por estimación de deterioro de bienes mantenidos para la venta
+Concepto: En esta subcuenta se registra la pérdida estimada por deterioro de los bienes recuperados en créditos.'
+6) Adicionar la cuenta 4.060.040 Gastos por otros activos disponibles para la venta fuera del alcance de NIIF 5 en el grupo 4.060 Gastos Operativos Diversos, conforme con el siguiente texto:
+'GRUPO: Gastos operativos diversos
+CUENTA CÓDIGO: 4.060.040
+NOMBRE: Gastos por otros activos disponibles para la venta fuera del alcance de NIIF 5
+Concepto: En esta cuenta se registran los gastos incurridos en el período por concepto de mantenimiento de bienes recibidos en recuperación de créditos, bienes adquiridos o producidos para la venta y bienes declarados fuera de uso.
+SUBCUENTAS
+4.060.040.010 Gasto de administración de bienes recibidos recuperación de créditos
+Concepto: En esta subcuenta se registran los gastos necesarios para el mantenimiento, restauración, seguridad y venta incurridos por la entidad en la administración de los bienes recibidos en recuperación de créditos.
+4.060.040.020 gasto de administración de bienes adquiridos o producidos para la venta
+4.060.040.030 gasto de administración de propiedades, mobiliario y equipo fuera de uso
+4.060.040.040 gasto de administración de otros activos disponibles para la venta fuera del alcance de NIIF 5
+4.060.040.090 pérdidas por deterioro de otros activos disponibles para la venta fuera del alcance de NIIF 5
+4.060.040.090.M.010 Pérdidas por deterioro de bienes adquiridos en recuperación de créditos
+4.060.040.090.M.020 Pérdidas por deterioro de bienes adquiridos o producidos para la venta
+4.060.040.090.M.030 Pérdidas por deterioro de propiedades, mobiliario y equipo fuera de uso
+4.060.040.090.M.040 Pérdidas por deterioro de otros activos disponibles para la venta fuera del alcance de NIIF 5'
+7) Adicionar la cuenta 5.060.060 Ingresos por otros activos disponibles para la venta fuera del alcance de NIIF 5 en el grupo 5.060 Ingresos Operativos Diversos, conforme con el siguiente texto:
+'GRUPO: INGRESOS OPERATIVOS DIVERSOS
+CUENTA CÓDIGO: 5.060.060
+NOMBRE: Ingresos por otros activos disponibles para la venta fuera del alcance de NIIF 5
+Concepto: En esta cuenta se registran los ingresos obtenidos durante el ejercicio generados por los bienes recibidos en recuperación de créditos, bienes adquiridos o producidos para la venta y bienes declarados fuera de uso.
+Asimismo, se registra en esta cuenta la disminución de estimaciones por deterioro de dichos bienes.
+SUBCUENTAS
+5.060.060.010 Ingresos por administración de bienes recibidos en recuperación de créditos
+Concepto: En esta subcuenta se registran los ingresos generados durante el ejercicio producto de la administración de los bienes recibidos en recuperación de créditos.
+5.060.060.020 ingresos por administración de bienes adquiridos o producidos para la venta
+5.060.060.030 ingresos por administración de propiedades, mobiliario y equipo fuero de uso
+5.060.060.040 ingresos por administración de otros activos disponibles para la venta fuera del alcance de NIIF 5
+5.060.060.050 disminución de la estimación por deterioro de otros activos disponibles para la venta fuera del alcance de NIIF 5'
+C. Anexo 5: Modelos de estados financieros del Reglamento de Información Financiera, modificar los siguientes modelos de estados financieros:
+1) Modificar el MODELO 1 ESTADO DE SITUACIÓN FINANCIERA, conforme con el siguiente texto:
+'MODELO 1
+NOMBRE DE LA ENTIDAD (a)
+ESTADO DE SITUACIÓN FINANCIERA (b)
+Al XX de ____del Periodo 2, Periodo 1 y Periodo 0
+(En (moneda) sin céntimos)
+[...]
+OTROS ACTIVOS
+Cargos diferidos (182)
+Activos Intangibles (186)
+Otros activos disponibles para la venta fuera del alcance de NIIF 5 (188)
+Otros activos (180 - (182 + 186+188))
+TOTAL DE ACTIVO
+[...]
+OTROS ACTIVOS
+Cargos diferidos (182)
+Activos Intangibles (186)
+Otros activos disponibles para la venta fuera del alcance de NIIF 5 (188)
+Otros activos (180 - (182 + 186+188))
+TOTAL DE ACTIVO
+[...]
+2) Modificar el MODELO 2 ESTADO DE RESULTADOS INTEGRAL, conforme con el siguiente texto:
+'MODELO 2
+NOMBRE DE LA ENTIDAD (a)
+ESTADO DE RESULTADOS INTEGRAL(b)
+Períodos de XX meses terminados el ___ de _______ de Período Actual y
+Períodos Anteriores
+(En (moneda) sin céntimos)
+[...]
+RESULTADO FINANCIERO
+Otros Ingresos de Operación
+Por comisiones por servicios (531)
+Por bienes mantenidos para la venta (532)
+Por ganancia por participaciones en el capital de otras empresas (533)
+Por ganancia por participaciones en el capital de entidades supervisadas por SUGEVAL
+Por ganancia por participaciones en el capital de entidades supervisadas por SUPEN
+Por ganancia por participaciones en el capital de entidades supervisadas por SUGESE
+Por cambio y arbitraje de divisas (534)
+Por otros activos disponibles para la venta fuera del alcance de NIIF 5 (536)
+Por otros ingresos con partes relacionadas (538)
+Por otros ingresos operativos (539 + 524)
+Total Otros Ingresos de Operación
+Otros Gastos de Operación
+Por comisiones por servicios (431)
+Por bienes mantenidos para la venta (432)
+Gastos por participaciones de capital en otras empresas (433)
+Por pérdida por participaciones en el capital de entidades supervisadas por SUGEVAL
+Por pérdida por participaciones en el capital de entidades supervisadas por SUPEN
+Por pérdida por participaciones en el capital de entidades supervisadas por SUGESE
+Por otros activos disponibles para la venta fuera del alcance de NIIF 5 (434)
+Por provisiones (435)
+Por bonificaciones sobre comisiones fondos de pensiones voluntario (436)
+Por cambios y arbitraje de divisas (437)
+Por otros gastos con partes relacionadas (438)
+Por otros gastos operativos (439)
+Total Otros Gastos de Operación ")
+(Nota de Sinalevi: Mediante sesión N° 1988 del 8 de diciembre de 2025, se acordó elimina del anexo 5 el formato del estado de flujos de efectivo por el método indirecto. No obstante mediante información suministrada por el Consejo Nacional de Supervisión del Sistema Financiero, los anexos no fueron publicados en el Diario Oficial La Gaceta, los mismos pueden ser visualizados en la página Web de las Superintendencias. De conformidad con la sesión antes mencionada la misma, empezará a regir a partir del 1° de enero de 2027, por lo que a partir de esa fecha se hará la respectiva abrogación.)
