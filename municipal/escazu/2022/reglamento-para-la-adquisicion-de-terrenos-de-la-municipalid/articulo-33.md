@@ -1,1 +1,2 @@
-Artículo 33.-Una vez inscrita una propiedad a nombre de la Municipalidad sea mediante proceso de expropiación o donación, la Alcaldía Municipal instruirá al Subproceso de Planificación Territorial a incluir dichas propiedades dentro de las propiedades municipales.
+Artículo 33.-Una vez inscrita una propiedad a nombre de la Municipalidad sea mediante procedimiento de expropiación, procedimiento de donación, proceso de contratación administrativa, procedimiento para cesión de ampliaciones viales, procedimiento para cesión de áreas públicas, la Alcaldía Municipal instruirá al Subproceso de Planificación Territorial a incluir dichas propiedades dentro de las propiedades municipales.
+(Así reformado en sesión N° 187 del 27 de noviembre de 2023)
