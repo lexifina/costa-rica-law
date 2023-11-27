@@ -1,1 +1,1 @@
-Artículo 74.- La ESPH, S.A., no reconocerá los gastos señalados en el artículo anterior, cuando por tener instalaciones propias o contratos con particulares, pueda proporcionarles a sus servidores el alojamiento o la alimentación; o cuando éstos acepten esos mismos servicios proporcionados por otra Institución.
+ARTICULO 74.- Todas aquellas erogaciones en que incurran los funcionarios de la, ESPH S.A. Por concepto de gastos de viaje y de transporte - dentro y fuera del país se regirán por el respectivo Reglamento.

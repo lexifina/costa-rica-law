@@ -1,0 +1,1 @@
+ARTICULO 183.- Los técnicos, operarios y profesionales con contrato de disponibilidad de los negocios de la empresa deberán indicar el nombre de la persona que los remplazará durante el período de sus vacaciones, licencias o incapacidades; en cuyo caso, el pago del concepto de disponibilidad, se cubrirá en forma proporcional.

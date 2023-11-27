@@ -1,1 +1,2 @@
-Artículo 62.- La ausencia de registro, al inicio o término del horario establecido, hará presumir la inasistencia del trabajador durante ésta, a menos que justifique la omisión como máximo, dentro de los tres días hábiles siguientes a aquél en que se produjo la irregularidad.
+ARTICULO 62.- El trabajador debe registrar personalmente su asistencia, utilizando el procedimiento establecido por la Empresa.
+Cuando dicho control se realice mediante reloj marcador, deberá cuidar que su marca quede registrada

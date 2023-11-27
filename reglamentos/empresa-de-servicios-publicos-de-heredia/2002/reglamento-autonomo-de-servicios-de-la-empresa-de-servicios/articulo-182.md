@@ -1,0 +1,1 @@
+ARTICULO 182.- Los técnicos, operarios y profesionales con contrato de disponibilidad de los negocios de la empresa pueden permutar sus semanas de guardia; si para ello existe una razón válida y el consentimiento previo de los interesados y de la jefatura inmediata. previa comunicación a Gestión Desarrollo Humano.

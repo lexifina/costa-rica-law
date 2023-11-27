@@ -1,3 +1,1 @@
-Artículo 70.- Las remuneraciones que deben reconocerse a los trabajadores se pagarán de acuerdo con las normas que la Empresa establecerá y cualesquiera otra disposición jurídico administrativa que resulte aplicable, teniendo en consideración que:
-a. Para los trabajadores contratados antes de la entrada en vigencia de la Ley Marco Empleo Público 10159: Las remuneraciones serán reconocidas con salario base más pluses (anualidad, dedicación exclusiva, carrera profesional, disponibilidad, peligrosidad entre otros) en los casos que corresponda y
-b. Para los trabajadores que ingresen posterior a la aprobación de este reglamento. Las remuneraciones serán establecidas como Salario Global.
+ARTICULO 70.- Cuando la Junta Directiva apruebe los aumentos salariales, Gestión Desarrollo Humano ejecutará de inmediato los trámites necesarios para hacer efectivo su pago.

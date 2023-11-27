@@ -1,3 +1,8 @@
-CAPITULO VIII
-DE LA PUNTUALIDAD Y ASISTENCIA
-Artículo 53.- Se considera abandono del trabajo, el hecho de desatender durante el horario y/o jornada laboral, las tareas propias del puesto que se desempeña. Para calificar como tal la conducta del servidor, no es necesario que éste se ausente del centro o lugar donde presta sus servicios, bastando con que, sin justa causa, suspenda la ejecución de las labores a él asignadas. Se excluye de esta disposición la participación de los trabajadores en actividades sindicales, dentro del marco legal vigente.
+ARTICULO 53.- Además de lo dispuesto por este Reglamento, el Código de Trabajo y demás Leyes conexas, son derechos de los trabajadores:
+1. Permanecer en propiedad de sus cargos, salvo que incurran en causal de despido, según lo establece el Código de Trabajo y el presente reglamento, o por reducción forzosa de servicios, debidamente comprobada.
+2. Tener acceso a los documentos del expediente personal que Gestión Desarrollo Humano, le deberá mantener actualizado, registrado y foliado, así como solicitar certificación o fotocopia de los documentos en él contenidos, bajo el inexcusable y debido control de la administración.
+3. Ser evaluados en forma objetiva en los períodos de prueba y conocer los respectivos informes.
+4. Solicitar la revisión de su puesto cuando considere que sus funciones han variado permanente y substancialmente.
+5. Ser beneficiarios del programa de becas, que permiten la superación personal y capacitación para el mejor cumplimiento de sus deberes, en la forma en que lo establece el capítulo de becas de éste reglamento, siempre y cuando el puesto lo requiera.
+6. Ser acreedor de ascensos, reclasificación o reasignaciones del puesto, cuando reúnan los requisitos reglamentarios, movimiento que deberá hacerse efectivo en el momento en que existan recursos presupuestarios, de conformidad con lo que establece el presente reglamento.
+7. Ser excarcelado en aquellos casos en que los trabajadores, en horas de labores, en funciones de su cargo y conduciendo normalmente vehículos de la Empresa o alquilados por ésta, se vean privados de su libertad, con motivo de accidentes de tránsito. La Empresa cubrirá la fianza correspondiente a efecto de que puedan obtener su libertad con la mayor prontitud posible.

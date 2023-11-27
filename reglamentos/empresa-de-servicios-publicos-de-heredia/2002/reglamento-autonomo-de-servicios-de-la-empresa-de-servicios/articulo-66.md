@@ -1,1 +1,1 @@
-Artículo 66.- En aquellos centros de trabajo que no dispongan de relojes marcadores o cuando éstos estuvieren averiados, el registro de asistencia se verificará mediante los mecanismos que establezca Gestión Desarrollo Humano.
+ARTICULO 66.- Quedan relevados de la obligación del registro de asistencia únicamente: El Gerente, Subgerente auditores, directores, líderes y aquellos servidores que han cumplido más de treinta años en el ejercicio de su cargo; así como también aquellos trabajadores que a juicio de la Gerencia sean exonerados de esta obligación.

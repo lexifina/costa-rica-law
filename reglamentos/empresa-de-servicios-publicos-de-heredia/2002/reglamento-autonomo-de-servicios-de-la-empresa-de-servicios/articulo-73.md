@@ -1,1 +1,1 @@
-Artículo 73.- Todas aquellas erogaciones en que incurran los trabajadores de la, ESPH S.A. por concepto de gastos de viaje y de transporte - dentro y fuera del país se regirán por el respectivo Reglamento.
+ARTICULO 73.- Las incapacidades extendidas por la Caja Costarricense de Seguro Social o el Instituto Nacional de Seguros, no afectarán el cálculo del aguinaldo para efectos de pago.

@@ -1,1 +1,1 @@
-Artículo 177.- Este reglamento entrará en vigencia treinta días después de su publicación en el Diario Oficial La Gaceta; y no tendrá efecto retroactivo en perjuicio de los derechos de los trabajadores.
+ARTICULO 177.- La administración de este servicio se hace mediante la firma de un contrato adicional de trabajo por concepto de disponibilidad, a celebrar con aquellos trabajadores calificados y seleccionados por la Jefatura respectiva y avalados por la Gerencia General.

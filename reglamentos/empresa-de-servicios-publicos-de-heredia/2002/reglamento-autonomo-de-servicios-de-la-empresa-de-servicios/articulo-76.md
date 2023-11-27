@@ -1,1 +1,4 @@
-Artículo 76.- Son días hábiles para el trabajador, todos los días del año, salvo los feriados señalados en el Código de Trabajo, y los permisos colectivos que autorice la Junta Directiva o la Gerencia General.
+CAPITULO X
+DEL DESCANSO SEMANAL, LOS DÍAS FERIADOS Y
+LAS VACACIONES ANUALES
+ARTICULO 76.- Todo trabajador tiene derecho a disfrutar de un día de descanso absoluto, después de cada semana o de cada seis días de trabajo continuo.

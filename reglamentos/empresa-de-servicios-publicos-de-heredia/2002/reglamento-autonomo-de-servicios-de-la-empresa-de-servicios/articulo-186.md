@@ -1,0 +1,1 @@
+ARTICULO 186.- Se podrá pagar disponibilidad en forma permanente o temporal, a los trabajadores cuyas funciones del cargo exijan dicho reconocimiento. Es necesario que las circunstancias mismas del trabajo exijan acudir a éste en cualquier momento (circunstancias de emergencias por daños o averías del servicio), durante las 24 horas del día.

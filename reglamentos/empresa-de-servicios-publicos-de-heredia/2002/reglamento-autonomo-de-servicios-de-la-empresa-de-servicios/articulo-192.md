@@ -1,0 +1,1 @@
+ARTICULO 192.- El presente reglamento modifica integralmente el Reglamento Autónomo de la ESPH S.A., publicado en el Alcance del Diario Oficial La Gaceta Nº 38 del miércoles 19 de diciembre del año 2007, aprobado en Acuerdo JD-201 del indicado año 2007 y sus reformas; y deroga cualquier otra disposición reglamentaria anterior que se le oponga

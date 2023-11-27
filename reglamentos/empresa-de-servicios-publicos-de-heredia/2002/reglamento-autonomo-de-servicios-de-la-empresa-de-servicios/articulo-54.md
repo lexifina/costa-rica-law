@@ -1,1 +1,3 @@
-Artículo 54.- Se considera ausencia, la inasistencia injustificada al trabajo durante el horario y/o jornada laboral. La inasistencia injustificada durante una fracción del horario y/o jornada laboral se computará como la mitad de una ausencia. No se pagará el salario que corresponde, al trabajador, en caso de ausencias injustificadas.
+CAPITULO VIII
+DE LA PUNTUALIDAD Y ASISTENCIA
+ARTICULO 54.- Se considera abandono del trabajo, el hecho de desatender durante el horario y/o jornada laboral, las tareas propias del puesto que se desempeña. Para calificar como tal la conducta del servidor, no es necesario que éste se ausente del centro o lugar donde presta sus servicios, bastando con que, sin justa causa, suspenda la ejecución de las labores a él asignadas. Se excluye de esta disposición la participación de los trabajadores en actividades sindicales, dentro del marco legal vigente.

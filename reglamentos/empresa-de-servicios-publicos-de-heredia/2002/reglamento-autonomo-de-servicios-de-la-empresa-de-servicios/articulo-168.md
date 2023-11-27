@@ -1,1 +1,1 @@
-Artículo 168.- Los términos y plazos se interrumpirán por la presentación de los recursos mencionados en este Reglamento.
+ARTICULO 168.- Contra la resolución final, el servidor afectado podrá interponer los recursos ordinarios de revocatoria con apelación en subsidio para ante la Junta Directiva o la Contraloría interna en su caso y de reposición o reconsideración ante la Junta Directiva, cuando la resolución haya sido dictada por el Órgano Director.

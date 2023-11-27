@@ -1,3 +1,3 @@
-Artículo 2.- Para la aplicación de este reglamento se definirán los siguientes términos:
-a. Trabajador: es toda persona física que, a cambio de una remuneración y en virtud de un acto válido y eficaz de nombramiento, presta sus servicios a la ESPH, S.A., de forma transitoria o permanentemente, como parte de su organización, en forma personalísima y subordinada.
-b. Representante Institucional es el Gerente General, Directores de Negocio y toda persona que desempeñe funciones de Jefatura dentro de la organización de la, ESPH, S.A. y cuyos actos produzcan, respecto del subordinado trabajador, efectos atribuibles a la Empresa como tal.
+ARTICULO 2.- Para la aplicación de este reglamento se definirán los siguientes términos:
+a. Trabajador: es toda persona física que, a cambio de una remuneración y en virtud de un acto válido y eficaz de nombramiento, presta sus servicios a la ESPH S.A., de forma transitoria o permanentemente, como parte de su organización, en forma personalísima y subordinada.
+b. Representante Institucional es el Gerente General, Directores de Negocio y toda persona que desempeñe funciones de Jefatura dentro de la organización de la, ESPH S.A. y cuyos actos produzcan, respecto del subordinado trabajador, efectos atribuibles a la Empresa como tal.

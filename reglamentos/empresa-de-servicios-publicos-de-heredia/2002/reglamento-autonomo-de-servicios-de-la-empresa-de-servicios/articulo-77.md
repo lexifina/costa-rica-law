@@ -1,1 +1,1 @@
-Artículo 77.- No podrán disfrutar de los días feriados o de asueto señalados en el artículo anterior, los servidores que, por la índole de sus funciones, deban trabajar en esos días para ejecutar sus tareas. En estos casos, se pagará el tiempo extraordinario como lo establece el Código de Trabajo.
+ARTICULO 77.- Son días hábiles para el trabajador, todos los días del año, salvo los feriados señalados en el Código de Trabajo, y los permisos colectivos que autorice la Junta Directiva o la Gerencia General.

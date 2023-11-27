@@ -1,0 +1,1 @@
+ARTICULO 193.- Este reglamento entrará en vigencia treinta días después de su publicación en el Diario Oficial La Gaceta; y no tendrá efecto retroactivo en perjuicio de los derechos de los trabajadores.

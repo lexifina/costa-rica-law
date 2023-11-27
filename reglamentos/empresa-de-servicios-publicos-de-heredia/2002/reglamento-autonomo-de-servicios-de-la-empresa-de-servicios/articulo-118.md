@@ -1,1 +1,2 @@
-Artículo 118.- El encargado de Salud y Seguridad Laboral, y los empleados en general, deberán velar porque todos los trabajadores que tengan la obligación de portar equipo de seguridad, lo utilicen en forma adecuada; y que éste sea de óptima calidad.
+ARTICULO 118.- El trabajador deberá devolver equipos de seguridad, uniformes, o ropa de trabajo deteriorada; para sustitución.
+En caso de que el trabajador se retire de la Empresa deberá devolver el o los uniformes y los equipos suministrados por la empresa.

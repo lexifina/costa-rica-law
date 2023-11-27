@@ -1,1 +1,1 @@
-Artículo 69.- Cuando la Junta Directiva apruebe los aumentos salariales, Gestión Desarrollo Humano ejecutará de inmediato los trámites necesarios para hacer efectivo su pago.
+ARTICULO 69.- El salario será pagado por períodos mensuales, con un adelanto quincenal del cincuenta por ciento de su importe total. El pago se hará en días hábiles, para lo cual Gestión Tesorería elaborará un calendario de pagos para cada año.

@@ -1,1 +1,1 @@
-Artículo 56.- El Coordinador correspondiente podrá impedir la prestación del servicio durante la jornada o fracción de ésta, según el horario, al servidor que se presente a su lugar de trabajo, después de 15 minutos de haberse iniciado su horario y/o Jornada. La presentación al trabajo después de este tiempo, se considerará como una ausencia injustificada al respectivo horario o fracción de ésta.
+ARTICULO 56.- Se considerará llegada tardía, el ingreso al centro o lugar de trabajo, pasados cinco minutos de la hora señalada en el horario asignado a cada trabajador

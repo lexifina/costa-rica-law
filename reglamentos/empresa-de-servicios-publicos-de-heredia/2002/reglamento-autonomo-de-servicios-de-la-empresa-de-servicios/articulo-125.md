@@ -1,3 +1,4 @@
-CAPITULO XVI
-DEL RÉGIMEN DISCIPLINARIO
-Artículo 125.- El trabajador de la, ESPH, S.A. está sujeto al régimen de responsabilidad previsto en el Código de Trabajo y al régimen disciplinario contemplado en este reglamento u otro que la empresa emita o adopte.
+CAPITULO XV
+DE LAS INCAPACIDADES POR ENFERMEDAD
+O RIESGO PROFESIONALES
+ARTICULO 125.- En caso de incapacidad extendida por la Caja Costarricense de Seguro Social, la., ESPH S.A., pagará al trabajador: durante los tres primeros días, el cien por ciento del salario total que devengue; a partir del cuarto día, se le pagará un subsidio en dinero, que sumado al que pague la Institución aseguradora, sea igual al cien por ciento del salario que estuviere devengando el trabajador, hasta por seis meses contados a partir de la fecha en que expire el período de cobertura del subsidio de la Caja. Lo mismo sucederá en caso de incapacidad extendida por el INS por motivo de riesgo profesional. Es entendido que, en caso de incapacidad por accidentes de tránsito, la respectiva póliza cubrirá el salario, por lo que la Empresa no incurrirá en un pago doble a favor del trabajador.

@@ -1,1 +1,1 @@
-Artículo 55.- Se considerará llegada tardía, el ingreso al centro o lugar de trabajo, pasados cinco minutos de la hora señalada en el horario asignado a cada trabajador.
+ARTICULO 55.- Se considera ausencia, la inasistencia injustificada al trabajo durante el horario y/o jornada laboral. La inasistencia injustificada durante una fracción del horario y/o jornada laboral se computará como la mitad de una ausencia. No se pagará el salario que corresponde, al trabajador, en caso de ausencias injustificadas.

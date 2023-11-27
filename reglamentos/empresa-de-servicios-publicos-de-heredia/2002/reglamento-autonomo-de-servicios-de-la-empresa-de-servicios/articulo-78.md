@@ -1,1 +1,1 @@
-Artículo 78.- La concesión de un descanso colectivo es potestad de la Gerencia de ESPH, S.A. De ahí que éste no constituye en modo alguno, un derecho que los trabajadores puedan reclamar como adquirido.
+ARTICULO 78.- No podrán disfrutar de los días feriados o de asueto señalados en el artículo anterior, los servidores que, por la índole de sus funciones, deban trabajar en esos días para ejecutar sus tareas. En estos casos, se pagará el tiempo extraordinario como lo establece el Código de Trabajo.

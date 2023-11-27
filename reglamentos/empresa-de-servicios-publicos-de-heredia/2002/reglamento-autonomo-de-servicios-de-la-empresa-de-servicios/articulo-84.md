@@ -1,1 +1,1 @@
-Artículo 84.- Con el visto bueno de la jefatura inmediata, el trabajador podrá solicitar a Gestión Desarrollo Humano el disfrute de vacaciones proporcionales que, en ningún caso, podrá superar el número de días que corresponda a los meses laborados.
+ARTICULO 84.- El período de vacaciones se suspende, si durante su disfrute el servidor es incapacitado por la Caja Costarricense de Seguro Social o el Instituto Nacional de Seguros.

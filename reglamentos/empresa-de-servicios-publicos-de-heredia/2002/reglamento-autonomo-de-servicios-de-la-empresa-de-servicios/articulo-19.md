@@ -1,1 +1,1 @@
-Artículo 19.- El Manual Descriptivo de Clases, contemplará el código, el título, la naturaleza del trabajo, las características especiales y los requisitos de cada clase de puesto existente en la ESPH. S.A., y será la base para la Administración de los Recursos Humanos.
+ARTICULO 19.- El Manual Descriptivo de Clases, contemplará el código, el título, la naturaleza del trabajo, las características especiales y los requisitos de cada clase de puesto existente en la ESPH S.A., y será la base para la Administración de los Recursos Humanos.

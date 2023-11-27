@@ -1,1 +1,1 @@
-Artículo 85.- En caso de conclusión de la relación de servicio, antes de completar las cincuenta semanas consecutivas de trabajo anual, el trabajador tendrá derecho al pago del período proporcional de vacaciones.
+ARTICULO 85.- Las vacaciones no podrán acumularse por más de dos períodos. Únicamente y sólo en forma excepcional se podrán acumular, cuando el trabajador desempeñe labores técnicas, de dirección, de confianza u otras análogas que hagan difícil su reemplazo. A este efecto, la jefatura respectiva solicitará a Gestión Desarrollo Humano la correspondiente autorización.

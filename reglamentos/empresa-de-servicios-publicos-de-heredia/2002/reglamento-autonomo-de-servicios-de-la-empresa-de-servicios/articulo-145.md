@@ -1,1 +1,1 @@
-Artículo 145.- Todo acto desde el inicial, que tienda a la prosecución de la investigación, interrumpe la prescripción de la acción disciplinaria.
+ARTICULO 145.- Las pruebas serán apreciadas de conformidad con las reglas de la sana crítica racional; esto es, de acuerdo a la lógica, la ciencia y la experiencia.

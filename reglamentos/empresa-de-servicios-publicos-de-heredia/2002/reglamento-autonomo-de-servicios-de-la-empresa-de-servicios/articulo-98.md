@@ -1,2 +1,1 @@
-Artículo 98.- La evaluación del desempeño y calificación final deberá ser analizada por el evaluador con el evaluado y ambos deberán firmar la herramienta a modo de aprobación cuando exista conformidad; una vez realizada la sesión de retroalimentación.
-Posteriormente el evaluador debe remitirla en el plazo establecido por Gestión Desarrollo Humano para su respectivo archivo en el expediente del trabajador.
+ARTICULO 98.- Las calificaciones serán determinantes para la concesión de ascensos, traslados, permisos, y un factor de obligada consideración al decidir sobre cualquier modificación de los términos de la relación laboral.

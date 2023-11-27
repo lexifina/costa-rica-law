@@ -1,3 +1,1 @@
-CAPITULO XIX.
-DISPOSICIONES FINALES
-Artículo 174.- A partir de su vigencia, el presente reglamento será de observancia obligatoria y su violación implicará la invalidez del acto respectivo.
+ARTICULO 174.- En todo caso y de conformidad con las disposiciones que al efecto contiene el Código de Trabajo, el servidor podrá discutir en sede judicial el acto administrativo mediante el cual la Gerencia General o la Contraloría Interna en su caso, resolvió despedir sin responsabilidad patronal o imponer cualquier otra sanción.

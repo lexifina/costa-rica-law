@@ -1,3 +1,2 @@
-CAPITULO IX
-DEL SALARIO, AGUINALDO, CESANTÍA Y PLUSES SALARIALES
-Artículo 67.- Los salarios estipulados para las distintas clases de puestos, no podrán ser inferiores a los establecidos en el Decreto de Salarios Mínimos, para el Sector Privado.
+ARTICULO 67.-
+En aquellos centros de trabajo que no dispongan de relojes marcadores o cuando éstos estuvieren averiados, el registro de asistencia se verificará mediante los mecanismos que establezca Gestión Desarrollo Humano.

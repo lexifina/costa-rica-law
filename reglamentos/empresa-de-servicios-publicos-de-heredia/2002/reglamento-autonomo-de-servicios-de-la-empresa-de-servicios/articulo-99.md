@@ -1,2 +1,1 @@
-Artículo 99.- Si el trabajador estimare que la evaluación es incorrecta podrá impugnarla ante el evaluador dentro de los tres días hábiles siguientes a la sesión de retroalimentación.
-Si entre el evaluador y el evaluado persistieren las diferencias de criterio, el evaluador remitirá de inmediato el expediente con sus observaciones al Comité de Evaluación.
+ARTICULO 99.- Corresponderá al Gerente General, Subgerente, Directores, Líderes, Coordinadores y Supervisores de Cuadrilla, completar la evaluación del desempeño para cada trabajador a cargo, con la asesoría de Gestión Desarrollo Humano, de ser necesario.
