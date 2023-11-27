@@ -1,0 +1,1 @@
+Artículo 33.-Herramientas tecnológicas: El Teletrabajador debe mantener actualizadas las herramientas tecnológicas que demanda la ejecución de sus actividades, de acuerdo con lo que establezca AyA, mediante la Dirección de Sistemas de Información y la normativa vigente.

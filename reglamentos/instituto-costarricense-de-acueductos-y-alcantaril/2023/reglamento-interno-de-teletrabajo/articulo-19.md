@@ -1,0 +1,1 @@
+Artículo 19.-Incumplimiento de rendimiento del teletrabajador: Cuando el rendimiento del teletrabajador no cumpla con los indicadores establecidos por la jefatura y/o la Evaluación del Desempeño, aplicará lo correspondiente según la Política de Evaluación Desempeño Institucional.

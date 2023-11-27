@@ -1,0 +1,1 @@
+Artículo 26.-Jornada laboral: El Teletrabajador, deberá cumplir con la jornada laboral establecida por el AyA. El incumplimiento de la jornada u horario de trabajo, o bien, el no estar disponible para la persona empleadora durante dicho horario y jornada serán considerados como abandono de trabajo, conforme al inciso a) del artículo 72 de la Ley N.º 2, Código de Trabajo.

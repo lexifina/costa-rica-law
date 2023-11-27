@@ -1,0 +1,1 @@
+Artículo 12.-Pago de viáticos, transporte u otros: El Teletrabajador mantendrá como su sede o centro de trabajo el mismo en el cual ha sido contratado, independientemente del lugar donde realice las actividades. En consecuencia, AyA no deberá sufragar algún tipo de pago por concepto de viáticos, transporte u otros.

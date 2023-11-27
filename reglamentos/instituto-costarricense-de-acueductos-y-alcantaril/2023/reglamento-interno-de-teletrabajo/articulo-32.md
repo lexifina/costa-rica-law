@@ -1,0 +1,1 @@
+Artículo 32.-Equipo de trabajo: El AyA suministra al Teletrabajador el recurso tecnológico requerido para sus labores según lo normado por la Dirección de Sistemas de Información, el cual estará sujeto a disponibilidad presupuestaria de la Institución y al proceso de aprovisionamiento de equipo respectivo.

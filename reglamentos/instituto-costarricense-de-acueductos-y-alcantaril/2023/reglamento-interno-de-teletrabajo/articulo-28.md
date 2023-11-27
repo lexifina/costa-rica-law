@@ -1,0 +1,1 @@
+Artículo 28.-Derecho a la desconexión digital: Sin perjuicio a lo dispuesto en el artículo anterior y con el fin de garantizar el respeto al tiempo de descanso, vacaciones, permisos y la intimidad personal y familiar, la persona teletrabajadora tendrá derecho a la desconexión digital fuera de la jornada u horario establecido según la ley N° 9738 y sus modificaciones.

@@ -1,0 +1,1 @@
+Artículo 11.-Costos fijos y gasto económico de la actividad de Teletrabajo: El teletrabajador debe asumir los gastos de los servicios públicos requeridos (electricidad, agua, teléfono e internet) con el desarrollo de las actividades tele trabajables y cualquier otro gasto relacionado con la actividad.

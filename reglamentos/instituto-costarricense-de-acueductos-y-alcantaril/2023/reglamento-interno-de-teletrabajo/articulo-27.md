@@ -1,0 +1,1 @@
+Artículo 27.-Disposición del teletrabajador en la jornada laboral: El Teletrabajador debe estar disponible dentro de la jornada laboral acordada, para atender asuntos propios de su cargo, ya sea por medio del correo electrónico, teléfono institucional, teléfono consignado en el contrato de teletrabajo, videoconferencia, multiplataforma de comunicación u otro medio.

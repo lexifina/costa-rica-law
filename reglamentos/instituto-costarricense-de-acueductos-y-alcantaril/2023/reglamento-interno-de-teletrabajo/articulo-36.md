@@ -1,0 +1,1 @@
+Artículo 36.-Divulgación y comunicación: La Dirección de Gestión Capital Humano es la responsable de elaborar y dar a conocer los programas de comunicación sobre la implementación de la gestión de teletrabajo, actividad que desarrollará en coordinación con la Dirección de Comunicación Institucional.
