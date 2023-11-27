@@ -14,3 +14,4 @@ Reglamento de organización y funcionamiento de la Comisión de Fiestas Cívicas
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-08-31 | la propia norma |
+| 2 | 2023-11-27 | Reglamento municipal 291 (2023-11-27) |
