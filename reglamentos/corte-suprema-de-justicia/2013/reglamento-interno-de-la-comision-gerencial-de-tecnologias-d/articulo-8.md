@@ -1,1 +1,0 @@
-Artículo 8º—Del quórum y los acuerdos: La CGTI podrá sesionar válidamente con la presencia de la mitad más uno de sus miembros y los acuerdos serán adoptados por mayoría simple de los presentes. En caso de empate, se someterá nuevamente a votación en la sesión siguiente.
