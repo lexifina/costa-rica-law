@@ -14,3 +14,4 @@ Reglamento para la Aplicación de la Ley General de Migración y Extranjería N�
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-07-18 | la propia norma |
+| 2 | 2023-11-27 | Decreto Ejecutivo 44379 (2023-11-27) |
