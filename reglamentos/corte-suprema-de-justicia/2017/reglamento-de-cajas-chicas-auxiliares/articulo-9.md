@@ -1,1 +1,0 @@
-Artículo 9º—Viáticos. Los pagos por concepto de gastos de viaje y transporte para las personas servidoras judiciales se regirán por lo dispuesto en el “Reglamento de Gastos de Viaje y de Transporte para los Funcionarios Públicos” de la Contraloría General de la República o las disposiciones que al efecto emita la Corte Plena.

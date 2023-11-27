@@ -1,1 +1,0 @@
-Artículo 19.—Cierre de Cajas Chicas Auxiliares. El Macroproceso Financiero Contable en coordinación con la Administración Regional, deberá determinar cuándo una Caja Chica Auxiliar no está cumpliendo con los objetivos de su creación y recomendar a la Dirección Ejecutiva su cierre, quien emitirá laresolución administrativa correspondiente.
