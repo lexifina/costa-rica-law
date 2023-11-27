@@ -1,5 +1,0 @@
-Artículo 7º-La Empresa suministrará a los trabajadores que se encuentren disponibles:
-a) El medio de transporte para trasladarse al sitio donde ocurra la falla o avería durante el período de disponibilidad.
-b) Derecho individual a tres semanas de tiempo libre, en sus horas fuera de la jornada ordinaria de trabajo, para los técnicos, operarios y profesionales que laboran en condiciones de disponibilidad, una semana al mes.
-c) Para los trabajadores que tengan salario compuesto, se tendrá una Remuneración adicional por concepto de disponibilidad, que no podrá ser menor de un 6,25%, ni mayor de un 25% del salario base mensual para el respectivo puesto, en un todo de acuerdo con lo consignado en el artículo 12 de este Reglamento.
-d) Los trabajadores que tengan salario global únicamente podrá realizar una disponibilidad semanal la cual está sujeta a todas los deberes y prohibiciones mencionados en este reglamento, y el pago será asignado mediante la escala salarial administrada por Gestión Desarrollo Humano.

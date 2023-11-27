@@ -1,1 +1,0 @@
-Artículo 8º-Los trabajadores con contrato de disponibilidad pueden permutar sus semanas de guardia siempre y cuando no exista un disponible suplente; si para ello existe una razón válida y el consentimiento previo de los interesados y de la jefatura inmediata. previa aprobación de Gestión Desarrollo Humano.

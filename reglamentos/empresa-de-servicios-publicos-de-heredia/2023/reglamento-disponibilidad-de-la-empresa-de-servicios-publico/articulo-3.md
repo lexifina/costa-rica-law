@@ -1,1 +1,0 @@
-Artículo 3º-La administración de este servicio se hace mediante la firma de un contrato adicional de trabajo por concepto de disponibilidad, a celebrar con aquellos trabajadores calificados y seleccionados por la Jefatura respectiva y avalados por la Gestión Desarrollo Humano y la Gerencia General.
