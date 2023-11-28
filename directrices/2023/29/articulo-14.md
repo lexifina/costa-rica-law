@@ -1,0 +1,3 @@
+Artículo 14.- Ponderación de los componentes de evaluación según el conglomerado de puestos. Los componentes de la evaluación del desempeño se ponderarán según el conglomerado de puestos, con la finalidad de que exista coherencia entre el grado de responsabilidad de la persona servidora pública y su nivel de contribución en el cumplimiento de los objetivos y las metas institucionales y sus funciones.
+Las instituciones y órganos bajo el ámbito de aplicación de la Ley Marco de Empleo Público deberán utilizar la Tabla de Ponderaciones del Anexo 1.
+Se deberá asignar un puntaje a cada criterio de evaluación y la calificación final será la sumatoria de todos los puntos obtenidos en cada criterio evaluado.

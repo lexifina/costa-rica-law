@@ -1,0 +1,1 @@
+Transitorio I. Al 30 de setiembre del año 2024 las instituciones cubiertas por la Ley Marco de Empleo Público deberán ajustar sus modelos de evaluación del desempeño a los lineamientos emitidos en la presente directriz.

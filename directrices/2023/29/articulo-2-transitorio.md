@@ -1,0 +1,1 @@
+Transitorio II. Para la evaluación del desempeño del año 2024, que comprende de enero a diciembre, las instituciones cubiertas por la Ley Marco de Empleo Público deberán seguir utilizando los instrumentos en materia de evaluación de desempeño que se encontraban vigentes de previo a la entrada en vigor de la presente directriz.

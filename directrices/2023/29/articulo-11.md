@@ -1,0 +1,10 @@
+CAPÍTULO III
+Criterios de evaluación y calificaciones
+Artículo 11.- Componentes de la evaluación del desempeño. La evaluación del desempeño comprenderá un ochenta por ciento (80%) de la calificación anual que se realizará sobre el cumplimiento de las metas anuales definidas para cada persona servidora de conformidad con lo establecido en la Ley Marco de Empleo Público y un veinte por ciento (20%) restante, que será responsabilidad de la jefatura o superior, que evaluará el buen rendimiento acorde con las competencias necesarias para el desempeño del puesto.
+La evaluación de los objetivos y metas (el 80%) se realizarán con base en los diferentes niveles de planificación:
+a) Primer nivel: Comprende la contribución en el cumplimiento de los objetivos y metas del Plan Estratégico Nacional, el Plan Nacional de Desarrollo e Inversión Pública, el Plan de Desarrollo Cantonal y los planes sectoriales y otros planes de impacto nacional.
+b) Segundo nivel: Comprende la contribución en el cumplimiento de los objetivos y metas del Plan Estratégico Institucional, Plan Estratégico Municipal, el Plan Operativo Institucional, el Plan Operativo Anual o como se le denomine internamente, y otros planes de impacto institucional.
+c) Tercer nivel: Comprende la contribución en el cumplimiento de los objetivos y metas de la dependencia (dirección, departamento, servicio o unidad, unidad asesora, entre otras dependencias semejantes) consensuados con las personas servidoras públicas que integran esta dependencia.
+d) Cuarto nivel: Comprende los objetivos y metas pactados entre la jefatura inmediata y la persona servidora pública. Las dependencias de planificación acompañarán y velarán por la alineación entre las metas del primer y segundo nivel con las del cuarto nivel.
+La evaluación emitida por la jefatura (el 20%) se realizará con base en el siguiente criterio de evaluación:
+Competencias: Corresponde a la calificación que se asigne de acuerdo con las competencias definidas para su puesto y/o cargo.

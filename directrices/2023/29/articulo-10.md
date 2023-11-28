@@ -1,0 +1,2 @@
+Artículo 10.- Análisis y entrega de resultados. Esta etapa se refiere a que una vez concluida la evaluación final y la herramienta de evaluación del desempeño esté debidamente firmada y avalada, por la(s) jefatura(s) y la persona servidora pública, la jefatura deberá remitirlas a la Oficina de Recursos Humanos o denominación homóloga para su revisión y trámite final.
+La Oficina de Recursos Humanos o denominación homóloga será la responsable de remitir una copia a la persona servidora pública con el resultado final.
