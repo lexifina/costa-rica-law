@@ -14,3 +14,4 @@ Reglamento Interno de Trabajo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-05-25 | la propia norma |
+| 2 | 2023-11-28 | Reglamento 53 (2023-11-28) |
