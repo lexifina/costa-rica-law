@@ -1,1 +1,1 @@
-Artículo 25.—Todos los gastos, excepto los pagados por caja chica, deberán registrarse y clasificarse en el Mayor auxiliar de gastos por orden numérico consecutivo.
+Artículo 25.-Todos los Procedimientos de Contratación Pública promovidos por la Comisión se realizarán en el Sistema de Compras Públicas. "Sistema Digital Unificado", como lo estipula el artículo 16 de la Ley General de Contratación Pública y el artículo 25 del Reglamento a la Ley General de Contratación Pública.

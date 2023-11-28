@@ -1,1 +1,4 @@
-Artículo 22.—Al efectuar los depósitos de los ingresos recaudados, el Tesorero deberá llevar un registro de ingresos, que cuente al menos con número de depósito o cheque, nombre del depositante, fecha y concepto.
+Artículo 22.-La Comisión contará con los siguientes libros contables:
+a) Un Mayor Auxiliar de ingresos que contenga: fecha del registro, nombre de la persona o entidad de la cual proviene el ingreso, número, fecha y monto del comprobante de ingreso y del depósito bancario, un detalle del concepto del ingreso y de las cuentas de ingresos afectadas.
+b) Un Mayor auxiliar de egresos que contenga un detalle con el número, fecha y monto girado, un detalle del concepto del gasto y de las cuentas de egresos que se afectan.
+c) Los libros legales a cargo del Contador de la Comisión de Festejos Populares son el Diario General, Mayor e Inventarios y Balances.

@@ -1,7 +1,3 @@
-Artículo 8º—Las Comisiones de Festejos Populares del Cantón Central de San José constituyen un Órgano Colegiado perteneciente a la Municipalidad de San José. Está adscrito al Concejo Municipal. Su titularidad corresponde a un conjunto de personas físicas, que concurren a formar la voluntad u opinión del mismo órgano, sujetas a las disposiciones del Concejo Municipal como su Superior Jerárquico.
-La Comisión de Festejos Populares estará integrada por un máximo de cinco miembros que serán nombrados por el Concejo Municipal, año a año, en la primera sesión de febrero de cada año; en la cual uno de estos miembros es nombrado por el Hospicio de Huérfanos de San José. Los cuatro integrantes correspondientes a la Municipalidad serán designados por el Concejo, en cuya razón podrá atender la recomendación de la Alcaldía Municipal.
-Cada comisión de Festejos Populares, de su seno elegirá un Presidente, un Tesorero, un Secretario, un Contador y un Fiscal, mediante el mecanismo que considere más conveniente.
-Para efectos operativos, la Comisión contará con la asesoría directa y obligatoria de la Tesorería y la Contabilidad Municipal.
-Además tendrán la asesoría de: a) Un abogado de la Dirección de Asuntos Jurídicos; b) Un representante de la Proveeduría Municipal; c) Un representante de la Gerencia Financiera; d) Un representante de la Gerencia de Provisión de Servicios; e) Un representante de la Gerencia Gestión Municipal.
-La Comisión Fiscalizadora de los Festejos Populares del Concejo Municipal, tendrá derecho a participar en las reuniones de la Comisión y deberá informar en forma quincenal, al Concejo Municipal.
-(Así reformado en sesión N° 61 del 28 de junio de 2011)
+Artículo 8º-El Contador tendrá las siguientes funciones:
+a) Llevar los registros contables exigidos por ley, y asentar los mismos en el Diario general, Mayor e Inventarios, debiendo consignar donde corresponde la respectiva razón de cierre al finalizar su gestión. Todo esto con el apoyo del área especializada de la Institución.
+b) Otras que le asigne la Comisión.

@@ -1,7 +1,1 @@
-Artículo 28.—Ningún miembro de la Comisión de Festejos Populares que sea funcionario municipal, devengará dieta alguna de acuerdo con lo que indica la Ley de Enriquecimiento Ilícito.
-El Departamento de Presupuesto deberá identificar todos los gastos, en los que incurra la Administración, para que una vez que esté lista la liquidación de la Comisión, se procede a rebajar los mismos de dicho monto.
-El costeo por concepto de Recolección de Desechos Sólidos, Aseo de Vías, Riego, Lavado de Campo Ferial, y los gastos por concepto de horas extras y las cargas sociales sobre las horas extras; de los miembros de la Comisión de Festejos Populares y del personal de apoyo (incluidas las de la Policía Municipal) deberán de ser incorporados como gastos propios de los Festejos Populares. No se autoriza el pago de recargos de funciones.
-Para tal caso se autoriza a la Administración Municipal a realizar los Ajustes Tributarios correspondientes, por concepto de Tasas de Recolección de Desechos Sólidos y Aseo de Vías.
-Se autoriza la compra de seguro sobre vehículos que no sean propiedad municipal y que hayan sido cedidos en calidad de préstamo o producto de un patrocinio.
-La alimentación de los funcionarios que participen en dicha actividad, será por su propia cuenta, en virtud de estar devengando horas extras, asimismo, para efectos de desayuno ó cena se regirá como lo establece la Convención Colectiva ó dotándole la misma en caso de que así se convenga.
-(Así reformado en sesión N° 61 del 28 de junio de 2011)
+Artículo 28.-Las actividades deportivas y recreativas, deberán coordinarse con el Comité Cantonal de Deportes y Recreación de San José. Se autoriza incluir la respectiva partida presupuestaria en el Presupuesto de la Comisión de Festejos.

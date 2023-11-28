@@ -1,1 +1,1 @@
-Artículo 24.—Todos los gastos en que incurra la Comisión de Festejos Populares, deberán corresponder, guardar relación y ser indispensables para el desarrollo de las actividades para las que fue nombrada dicha comisión.
+Artículo 24.-A los miembros de la Comisión de Festejos Populares les serán aplicables en lo que corresponda, la Reglamentación de la Ley Nº 9986, Ley General de Contratación Pública. Asimismo, las contrataciones que promueva la Comisión de Festejos Populares se regirán por dicha Ley y su Reglamento.

@@ -1,2 +1,1 @@
-Artículo 23.—La Comisión de Festejos Populares efectuará la adjudicación previo depósito de participación, mediante el procedimiento administrativo de contratación que mejor satisfaga el interés público, dejando en el expediente que se levante al efecto constancia de su razonamiento.
-En caso de contrataciones especiales, se regirá por lo establecido por la legislación atinente a la materia.
+Artículo 23.-Para el registro de las operaciones, el Tesorero y el Contador, con la asistencia obligatoria de los representantes de la Tesorería, Contabilidad Municipal y el área financiera, deberán elaborar el respectivo detalle de cuentas que identifique adecuadamente todos los ingresos y egresos que se originen durante los Festejos.

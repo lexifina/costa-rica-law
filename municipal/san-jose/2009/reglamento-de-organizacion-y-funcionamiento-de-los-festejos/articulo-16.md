@@ -1,1 +1,2 @@
-Artículo 16.—El quórum para que pueda sesionar válidamente la Comisión de Festejos Populares será el de la mayoría simple de sus integrantes, sea con tres de sus miembros.
+Artículo 16.-Todos los ingresos deberán depositarse o transferirse a la cuenta general de la Municipalidad de San José.
+Dichos ingresos deben estar registrados y clasificados en el Mayor auxiliar de Ingresos a cargo del Tesorero y en los registros a cargo del Contador.

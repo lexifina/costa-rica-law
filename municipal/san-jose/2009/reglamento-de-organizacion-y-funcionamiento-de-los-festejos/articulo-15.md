@@ -1,4 +1,5 @@
-CAPÍTULO IV
-De las sesiones y acuerdos
-Artículo 15.—Las Comisiones de Festejos Populares se reunirán ordinariamente con la frecuencia y el día que para tales efectos acuerden y sin especial convocatoria, debiendo levantar un acta de cada sesión que se realice.
-Para reunirse extraordinariamente, será necesaria una convocatoria por el medio que la comisión designe.
+CAPÍTULO V
+Del presupuesto, ingresos y egresos
+Artículo 15.-La Comisión de Festejos Populares, deberá elaborar el respectivo plan-presupuesto de los eventos que se proyecta realizar. Dicho documento deberá contar al menos una estimación del total de ingresos, del costo de las actividades que se efectuarán (gastos) y de la utilidad esperada. La administración deberá contemplar en el presupuesto ordinario de cada año la respectiva proyección de ingresos, gastos que elaboró la Comisión de Festejos Populares. Este presupuesto podrá ser utilizado para honrar los compromisos de la Comisión anterior inmediata y cubrir los gastos pendientes de pago de esta, según lo señalado en el artículo 116 del Código Municipal.
+Esto se hará en forma de préstamo de forma tal que los recursos que se utilicen luego serán reintegrados, mediante el presupuesto que contempla los recursos de la liquidación del año anterior. Dichos fondos no podrán ser utilizados para pagar pendientes de Comisiones que no sean la inmediata anterior. Salvo que exista sentencia judicial que así lo determine.
+La Comisión de Festejos Populares podrá realizar las modificaciones al presupuesto que estime convenientes.

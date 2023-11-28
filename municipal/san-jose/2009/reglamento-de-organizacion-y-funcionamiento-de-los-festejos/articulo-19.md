@@ -1,1 +1,1 @@
-Artículo 19.—Los libros de actas a cargo del Secretario y los libros contables a cargo del Tesorero y del Contador, deberán estar debidamente legalizados por la Auditoría Interna Municipal.
+Artículo 19.-Todo gasto deberá estar respaldado mediante la factura electrónica respectiva o cualquier otro documento idóneo debidamente autorizado.

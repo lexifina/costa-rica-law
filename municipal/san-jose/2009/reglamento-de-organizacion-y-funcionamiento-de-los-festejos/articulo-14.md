@@ -1,6 +1,1 @@
-Artículo 14.—El Secretario, tendrá las siguientes funciones:
-a) Llevar un libro de actas debidamente foliado en el que consten todas las Sesiones de la Comisión de Festejos con sus incidencias, los egresos que autorice la Comisión y demás extremos convenientes.
-b) Comunicar las resoluciones de la comisión de festejos a quien corresponda.
-c) Someter a la aprobación de la comisión, al inicio de cada sesión, el texto del acta de la sesión inmediata anterior.
-d) Firmar conjuntamente con el Presidente de la comisión las actas respectivas.
-e) Las otras que le asigne la comisión.
+Artículo 14.-El libro de actas a cargo del Secretario deberá ser legalizado por la Contraloría General de la República. Los libros contables a cargo del Tesorero y del Contador, deberán estar debidamente legalizados por la Auditoría Interna Municipal, pudiendo ser éstos legalizados en forma digital.
