@@ -18,3 +18,4 @@ Reglamento del Comité de Auditoría
 | 3 | 2013-01-15 | Reglamento 4 (2013-01-15) |
 | 4 | 2017-09-12 | Reglamento 99 (2017-09-12) |
 | 5 | 2021-08-18 | Reglamento 92 (2021-08-18) |
+| 6 | 2023-11-28 | Reglamento 130 (2023-11-28) |
