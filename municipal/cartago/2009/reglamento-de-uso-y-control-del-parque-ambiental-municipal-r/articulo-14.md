@@ -1,3 +1,2 @@
-CAPÍTULO III
-Del procedimiento para el cobro
-Artículo 14.—La Municipalidad cobrará un precio por concepto de entrada al PAM a todos los visitantes (nacionales y extranjeros).
+Artículo 14.—Seguridad en el PAMRL. La seguridad de las personas funcionarias y visitantes y los recursos e instalaciones del PAMRL, estará a cargo del Área de Seguridad Comunitaria y Policía Municipal.
+Es obligación de los oficiales de seguridad municipal poner en conocimiento de la Administración del PAMRL, sobre cualquier anomalía o irregularidad ocurrida durante el desarrollo de las actividades dentro del PAMRL, sin perjuicio de las facultades que conservan de adoptar las medidas pertinentes e inmediatas que procuren cesar el acto o conducta irregular.

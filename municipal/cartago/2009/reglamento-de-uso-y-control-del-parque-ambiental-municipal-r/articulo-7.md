@@ -1,2 +1,5 @@
-Artículo 7º—Trámite. Recibida la solicitud, la Administración procederá a verificar el cumplimiento de los requisitos señalados en el formulario. En caso de aprobarse la gestión del solicitante, se hará entrega de un documento en el que se establecerán las condiciones de uso de las instalaciones y términos generales relativos al aprovechamiento del PAM.
-(Así reformado mediante sesión ordinaria N° 259-2013 del 22 de octubre del 2013 y definitivamente aprobado mediante sesión N° 280-14 del 28 de enero del 2014)
+Artículo 7º—Modalidades de ingreso. Existen dos tipos o modalidades de ingreso:
+a. Ingreso por calendarización de espacios. En atención a las solicitudes que realicen previamente las instituciones educativas, agencias de viajes y otros grupos organizados.
+Los espacios y actividades se asignarán según la capacidad de carga del sitio y disponibilidad de recursos materiales y recurso humano para atender dichos grupos. Queda a discreción de la persona Administradora del PAMRL la asignación de estos recursos y asignación de los servicios que se brindan.
+Una vez que se haya calendarizado un espacio y comunicado a la persona solicitante, solo por razones de fuerza mayor o caso fortuito puede ser cancelado.
+b. Ingreso por desplazamientos espontáneos. Este es el caso de las personas que visiten espontáneamente el PAMRL sin haber realizado una solicitud formal de atención de un grupo.

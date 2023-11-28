@@ -1,21 +1,3 @@
-CAPÍTULO II
-Condiciones generales
-Artículo 11.—Prohibiciones
-(Así reformado el párrafo anterior mediante sesión ordinaria N° 259-2013 del 22 de octubre del 2013 y definitivamente aprobado mediante sesión N° 280-14 del 28 de enero del 2014)
-a) Las instalaciones del PAM solo podrán ser utilizadas para actividades relacionadas con educación ambiental, protección del recurso hídrico, desarrollo turístico sostenible y gestión municipal; por lo que toda autorización de uso contraria a dichos fines se encuentra prohibida . Igualmente la administración se encuentra facultada para ordenar la suspensión inmediata de cualquier actividad que se desarrolle en oposición a ese destino o incumpla alguno de los requisitos de utilización, pudiéndose hacer uso de la Policía Municipal y de la Fuerza Pública inclusive.
-(Así reformado el inciso anterior mediante sesión ordinaria N° 259-2013 del 22 de octubre del 2013 y definitivamente aprobado mediante sesión N° 280-14 del 28 de enero del 2014)
-b) Acatar las indicaciones y recomendaciones tanto de los funcionarios municipales debidamente identificados como de los oficiales de seguridad.
-c) No ingresar a las zonas de uso restringido. Por seguridad se deberá transitar por los senderos o dentro de las zonas destinadas para uso público.
-d) No ingresar al área de captación ya que es una zona frágil.
-e) No extraer plantas, animales, piedras o algún otro recurso natural.
-f) No ingresar con alimentos a los senderos, para ello se cuenta con una zona de almuerzo.
-g) No tirar basura, para ello se cuenta con recipientes debidamente identificados, utilícelos adecuadamente.
-h) No ingresar con bicicletas, patinetas, patines, ni algún otro elemento recreativo.
-i) No ingresar con animales. Estos pueden alterar los procesos naturales del Parque.
-j) No generar ruido que perturbe los procesos naturales que se dan en el PAM. Deberá moderar el volumen de voz.
-k) No utilizar radios o algún otro dispositivo que genere sonidos no aptos para el área.
-l) No fumar, ingerir bebidas alcohólicas, utilizar petardos y cohetes de artificio, productos y sustancias inflamables, tóxicas y peligrosas, elementos punzo cortantes, armas de fuego.
-m) No acampar.
-n) No podrán ingresar los niños menores de 12 años sin el acompañamiento de un adulto responsable.
-o) No realizar actividades recreativas en los senderos del PAM, en la zona de captación u en otra área que la administración considere necesaria.
-(Así reformado el inciso anterior mediante sesión ordinaria N° 259-2013 del 22 de octubre del 2013 y definitivamente aprobado mediante sesión N° 280-14 del 28 de enero del 2014)
+Artículo 11.—Capacidad de carga de las instalaciones. Con base en estudio realizado por Onesimo Geovanni Meléndez Mendoza, en el año 2019, como practica de graduación de la Universidad Autónoma del Estado de México, se determina una capacidad de carga de 290 visitantes diarios para el PAMRL según sus características de extensión, ubicación y recursos naturales.
+Será responsabilidad de las personas funcionarias municipales y efectivos de la seguridad municipal destacados en el PAMRL, velar por que se respete dicha capacidad de carga y no se supere el máximo de personas permitidas.
+La Municipalidad podrá disponer en cualquier momento, por razones de interés institucional, una carga de visitantes diarios menor a la indicada.

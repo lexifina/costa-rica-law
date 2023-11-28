@@ -15,3 +15,4 @@ Reglamento de uso y control del Parque Ambiental Municipal Río Loro
 | --- | --- | --- |
 | 1 | 2009-09-03 | la propia norma |
 | 2 | 2014-01-28 | Reglamento municipal 280 (2014-01-28) |
+| 3 | 2023-11-28 | Reglamento municipal 289 (2023-11-28) |
