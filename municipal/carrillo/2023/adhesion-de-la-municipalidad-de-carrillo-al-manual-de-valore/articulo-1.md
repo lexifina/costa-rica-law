@@ -1,0 +1,6 @@
+MUNICIPALIDAD DE CARRILLO
+ALCALDÍA MUNICIPAL
+Se adhiere al Manual de Valores Base Unitarios por Tipología Constructiva 2023, publicado por el Órgano de Normalización Técnica del Ministerio de Hacienda en el Alcance Digital N° 187 del Diario Oficial La Gaceta N° 178 de fecha del jueves 28 de setiembre del 2023; así como todos los adendums que el Órgano de Normalización Técnica emita con el objeto de corregir y/o aclarar los contenidos de dicho manual para efectos en lo indicado en la Ley N° 7509 y sus reformas, su vigencia será a partir de su publicación.
+Conforme a las disposiciones y competencias que mantiene esta Alcaldía Municipal, delegadas por el Código Municipal así como el Código de Normas y Procedimientos Tributarios y por la jurisprudencia administraba y jurisdiccional, ésta Alcaldía Municipal conforme a lo que disponen los numerales de la Ley de Impuesto sobre Bienes Inmuebles N° 7509 y sus reformas, que dictan en lo que interesan:
+Artículo 3º-Competencia de las municipalidades. Para efectos de este impuesto, las municipalidades tendrán el carácter de administración tributaria. Se encargarán de realizar valoraciones de bienes inmuebles, facturar, recaudar y tramitar el cobro judicial y de administrar, en sus respectivos territorios, los tributos que genera la presente Ley.
+Carrillo, 02 de octubre del 2023.
