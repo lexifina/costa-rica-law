@@ -1,3 +1,0 @@
-TRANSITORIO ÚNICO: La nueva distribución de distritos de bajo y muy bajo desarrollo social que se establece en el presente Decreto, no aplicará para el pago del incentivo educativo denominado /OS correspondiente al año 2018.
-Dicho pago que se regirá por lo dispuesto en el Decreto Ejecutivo Nº 37964-PLAN, del 3 de setiembre del 2013, vigente al momento de aprobación de la Ley del Presupuesto Ordinario y Extraordinario de la República para el Ejercicio Económico del 2018, Ley N º 9514 del 28 de noviembre del 2017, que otorgó el contenido presupuestario para dichos efectos.
-(Así adicionado por el artículo 1° del decreto ejecutivo N° 41338 del 20 de setiembre de 2018)
