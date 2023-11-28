@@ -14,3 +14,4 @@ Reglamento para la administración y el uso de los salones comunales en el Cant�
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-09-26 | la propia norma |
+| 2 | 2023-11-28 | Reglamento municipal 186 (2023-11-28) |
