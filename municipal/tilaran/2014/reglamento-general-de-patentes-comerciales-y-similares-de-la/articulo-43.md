@@ -1,1 +1,0 @@
-Artículo 43.—Del procedimiento para la tramitación de licencias, en el caso de espectáculos públicos permanentes. En éste caso, deberá seguirse el procedimiento que se establece en el artículo cuarto, siguientes y concordantes del presente Reglamento.

@@ -1,1 +1,0 @@
-Artículo 25.—De las limitaciones: No podrán ubicarse puestos obstruyendo ventanas, entradas, esquinas donde converjan las zonas de seguridad peatonal, frente a monumentos nacionales; en la parada de autobuses y el Mercado Municipal.

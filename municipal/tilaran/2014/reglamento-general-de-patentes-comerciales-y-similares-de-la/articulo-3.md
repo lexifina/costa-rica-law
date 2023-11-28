@@ -1,1 +1,0 @@
-Artículo 3º—De la prohibición del ejercicio lucrativo sin la respectiva patente: Se prohíbe el ejercicio de cualquier actividad comercial en el cantón de Tilarán, sin contar con la respectiva licencia o patente municipal.

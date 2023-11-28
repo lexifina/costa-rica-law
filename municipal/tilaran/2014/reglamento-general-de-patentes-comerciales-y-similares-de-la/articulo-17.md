@@ -1,1 +1,0 @@
-Artículo 17.—De la multa. Los contribuyentes que no presenten la declaración jurada dentro del término establecido por la Administración Tributaria, serán sancionados con una multa equivalente al diez por ciento (10%) del impuesto de patentes correspondiente al año anterior.

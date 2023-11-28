@@ -1,1 +1,0 @@
-Artículo 19.—De la solicitud de ventas ambulantes: La licencia deberá ser solicitada por escrito mediante el formulario FMT 011 que para el efecto pondrá a disposición de los interesados, la Municipalidad.

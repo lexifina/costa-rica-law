@@ -1,1 +1,0 @@
-Artículo 40.—De las suspensión o caducidad: Para efectos de suspensión o caducidad de las licencias comerciales, se aplicará el procedimiento consignado en los artículos 9, 10 y 11 del presente reglamento.

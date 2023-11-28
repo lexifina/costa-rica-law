@@ -1,4 +1,0 @@
-CAPÍTULO VII
-De la Administración Tributaria
-de la Municipalidad de Tilarán
-Artículo 58.—De la Administración Tributaria de la Municipalidad de Tilarán. Constitúyase la Administración Tributaria de la Municipalidad de Tilarán, como órgano encargado de la tramitación de las patentes municipales, de su uso adecuado, gestión de cobro del impuesto sobre las patentes y los demás tributos que se establezcan en favor de la Municipalidad de Tilarán. Así como su registro, actualización y verificación de las licencias que sean autorizadas. La revisión de las declaraciones y la correspondiente tasación estará a cargo de la Encargada de Cobros y de las personas que ésta designe para tal efecto. Para los efectos de reclamos administrativos sobre la tasación realizada, se aplicará lo establecido en la Ley del Impuesto de Patentes de la Municipalidad de Tilarán, y supletoriamente lo establecido en el Código de Normas y Procedimientos Tributarios.

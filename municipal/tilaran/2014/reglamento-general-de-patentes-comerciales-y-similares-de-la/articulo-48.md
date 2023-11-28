@@ -1,1 +1,0 @@
-Artículo 48.—Base imponible. En el caso de Patentes de Espectáculos, donde se cobre entrada, se pagará un impuesto según lo establecido en la Ley 6844, del 11 de enero de 1983, sobre cada valor del tiquete, boleto, entrada individual o medio utilizado de pago.
