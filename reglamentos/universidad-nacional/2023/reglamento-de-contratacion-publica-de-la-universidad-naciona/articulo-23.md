@@ -1,0 +1,2 @@
+Artículo 23. Audiencias previas
+Antes de la elaboración del pliego de condiciones definitivo, la administración, por medio de la Proveeduría Institucional, en coordinación con la unidad ejecutora o solicitante y el administrador del contrato, podrá celebrar audiencias previas; las cuales deben realizarse por los medios y en los plazos definidos en la Ley General de Contratación Pública y su Reglamento.

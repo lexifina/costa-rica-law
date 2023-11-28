@@ -1,0 +1,5 @@
+SECCIÓN SEGUNDA
+SANCIONES AL FUNCIONARIADO
+Artículo 40. Individualización de la responsabilidad
+El funcionariado de la Universidad Nacional serán responsable en la medida que pueda individualizarse su culpabilidad por las consecuencias provocadas contra la institución, en razón de los incumplimientos de los contratistas, si pudiendo prever o denunciar a tiempo las transgresiones contractuales, no lo hiciera o no solicita sanciones, ejecuciones de garantías, multas, cláusulas penales, rescisión contractual, resolución contractual respectiva, entre otros; o bien, por no atender dentro de los plazos de ley las gestiones formuladas por contratistas o la Proveeduría Institucional. Además de la responsabilidad administrativa, podrán ser responsables laboral, penal y civilmente, según corresponda y se logre demostrar.
+Cuando en el trámite de una contratación administrativa se determine que un funcionario no cumplió con sus funciones y obligaciones por negligencia, culpa grave o dolo, será sancionado de conformidad con lo que al respecto establezca la Ley General de Contratación Pública, en concordancia con la normativa institucional.

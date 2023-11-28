@@ -1,0 +1,2 @@
+Artículo 39. Resolución final
+Una vez ejecutado el debido proceso, el órgano instructor de la Sección de Control y Evaluación de la Proveeduría Institucional, remitirá en el plazo que corresponda, según el procedimiento, su recomendación a quien ejerza la dirección de la Proveeduría Institucional, para que emita la resolución final; esta resolución tendrá los recursos ordinarios de revocatoria y apelación que deberán presentarse, según los plazos y los requisitos dispuestos en la Ley General de Contratación Pública.

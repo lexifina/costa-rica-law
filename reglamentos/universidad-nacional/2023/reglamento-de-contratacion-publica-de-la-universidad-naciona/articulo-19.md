@@ -1,0 +1,3 @@
+Artículo 19. Registro único de sanciones a particulares
+La Dirección de Contratación Pública será la encargada de conformar un registro actualizado y único de sanciones que deberá estar disponible para su consulta pública y de fácil acceso en el Sistema Digital Unificado, desde el día hábil siguiente a cuando se recibe y por el plazo de la sanción.
+La persona designada dentro de la Proveeduría Institucional, deberá registrar en el Sistema Digital Unificado todas y cada una de las sanciones que se impongan a los contratistas, independientemente de su naturaleza, dentro del día hábil siguiente a aquel en que la sanción quede en firme.

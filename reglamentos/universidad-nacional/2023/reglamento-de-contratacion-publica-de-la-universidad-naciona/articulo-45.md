@@ -1,0 +1,2 @@
+Artículo 45. Procedimientos
+La elaboración, la actualización y la presentación de los procedimientos para aplicación de este reglamento, serán responsabilidad de la Proveeduría Institucional, en coordinación con los programas de Gestión Financiera y para el Desarrollo del Mantenimiento y la Infraestructura Institucional (Prodemi), así como del Área de Planificación (Apeuna), los aprobará la Vicerrectoría de Administración o la Rectoría, según corresponda.

@@ -1,0 +1,2 @@
+Artículo 26. Invitación a participar
+La invitación a participar se comunicará por medio del Sistema Digital Unificado, único medio autorizado por Ley General de Contratación Pública y su Reglamento. La Proveeduría Institucional podrá realizar una publicación o varias, en medios de comunicación nacionales o internacionales, cuando estime que esto es lo más conveniente para el cumplimiento del interés público.

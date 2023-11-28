@@ -1,0 +1,3 @@
+Artículo 28. Prórrogas de contratos
+En las prórrogas del contrato, cuando contractualmente estén previstas, el administrador de contrato solicitará formalmente a la Proveeduría Institucional con al menos tres meses de anticipación al vencimiento del plazo, la decisión de prorrogar o no del contrato, para lo cual deberá acreditar, mediante acto motivado, la conveniencia de la decisión.
+Cuando se decida no prorrogar el contrato o no sea posible por haber agotado las prórrogas dispuestas, en caso de permanecer la necesidad, el administrador de contrato deberá solicitar el inicio de un nuevo procedimiento de contratación, para lo cual deberá prever la programación anual establecida por la Proveeduría Institucional para garantizar la continuidad del servicio.

@@ -1,0 +1,7 @@
+Artículo 16. Los plazos para rendir informes
+Los plazos para la presentación de análisis técnicos y profesionales por parte del administrador de contrato son los siguientes:
+a) Cuando corresponda pronunciarse sobre las especificaciones de bienes, obras o servicios por adquirir en el proceso de análisis de la solicitud de bienes, obras y servicios será de uno a cinco días después de la comunicación que realice la Proveeduría Institucional, esta comunicación puede realizarse por cualquier medio oficial; mediante oficio o correo electrónico oficial suministrado por la institución y contestada de la misma manera.
+b) Cuando corresponda pronunciarse sobre el análisis técnico de las ofertas y de razonabilidad de precios, será el plazo previsto en el cronograma de actividades previamente comunicado.
+c) Cuando corresponda pronunciarse técnicamente sobre los recursos de objeción al pliego de condiciones, revocatoria o apelación contra el acto de adjudicación, el plazo es de uno a tres días hábiles, según disponga la Proveeduría Institucional en el oficio de solicitud de pronunciamiento.
+d) Otros trámites solicitados por la Proveeduría Institucional, relacionados con contratación pública, deberán ajustarse al plazo indicado en el oficio de solicitud de información.
+e) El no cumplimiento de los plazos, previo al debido proceso, podrá constituir una falta por parte del miembro del funcionariado responsable, en los términos establecidos por la Ley General de Contratación Pública, artículo 125, y en el Reglamento de Régimen Disciplinario de la Universidad Nacional.

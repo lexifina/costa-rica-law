@@ -1,0 +1,6 @@
+Artículo 32. Revisión de precios en los contratos administrativos
+Los reclamos de revisión o reajuste de precios serán atendidos de la siguiente manera:
+a) En contratos de obra pública, corresponde la revisión y el dictamen de los reclamos al respectivo administrador del contrato, quien deberá rendir un informe escrito a la Proveeduría Institucional para que resuelva el reclamo.
+b) En los restantes tipos de contratos le corresponde a la Proveeduría Institucional la revisión, el dictamen y la resolución del reclamo.
+Una vez resuelto el reclamo, en caso que corresponda pagar un reajuste por un contrato ya ejecutado, el administrador del contrato, en el caso de obra pública, o la Proveeduría Institucional, en los otros tipos de contrato, gestionará la asignación presupuestaria para la efectiva cancelación del monto adeudado, ante la Vicerrectoría de Administración, todo según los procedimientos que defina la Proveeduría Institucional.
+En caso de reajuste de precios que afecte contratos con ejecución futura, la Proveeduría Institucional deberá verificar la oportuna actualización de los precios en los sistemas de información, para que las nuevas solicitudes de bienes, obras y servicios, que realizan las unidades ejecutoras o solicitantes, incorporen los nuevos precios.

@@ -1,0 +1,2 @@
+Artículo 34. Instrucción y resolución del procedimiento de resolución contractual por incumplimiento
+Corresponde a la Proveeduría Institucional instruir y resolver el procedimiento de resolución de contrato, con fundamento en los motivos de incumplimiento acreditados por el administrador de contrato, mediante el debido proceso establecido en la Ley General de Contratación Pública y su Reglamento, artículos 113 y 114.
