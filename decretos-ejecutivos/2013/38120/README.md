@@ -14,3 +14,4 @@ Política Nacional de Derechos Culturales 2014-2023 y crea Sistema Nacional de P
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-01-09 | la propia norma |
+| 2 | 2023-11-28 | Decreto Ejecutivo 44368 (2023-11-28) |
