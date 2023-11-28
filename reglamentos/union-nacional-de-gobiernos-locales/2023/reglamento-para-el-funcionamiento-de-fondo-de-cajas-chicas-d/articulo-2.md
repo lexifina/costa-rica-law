@@ -1,0 +1,13 @@
+Artículo 2º-Definiciones: Cuando en este reglamento se empleen los siguientes vocablos, debe dárseles este significado:
+a. Fondo de caja chica: Dinero que se utiliza para la adquisición de bienes y servicios catalogados como gastos menores, indispensables e impostergables, cuya tenencia es responsabilidad única y exclusiva del Departamento de Tesorería, bajo la tutela del Tesorero(a) de la UNGL.
+b. Empleado o funcionario: Persona que preste sus servicios en la Unión Nacional de Gobiernos Locales, con relación de subordinación jurídico-laboral; quedan fuera los contratos de servicios profesionales.
+c. Encargado del fondo: funcionario al que la Administración ha asignado la responsabilidad de administrar y custodiar los fondos de caja chica estipulados en el presente Reglamento.
+d. Adelanto: Suma de dinero que se le entrega a un funcionario para que la utilice, de acuerdo con las disposiciones enunciadas en el presente Reglamento.
+e. Liquidación del adelanto: Rendición de cuentas que efectúa el funcionario responsable del anticipo de Caja Chica, mediante presentación de los comprobantes originales que sustentan los bienes o servicios adquiridos, como factura o copia de la factura digital debidamente aprobada por las autoridades competentes y en la cual se detallen las cantidades, valores, artículos y los bienes o servicios adquiridos.
+f. Confección vale provisional: Formulario numerado en forma consecutiva, mediante el cual el funcionario deberá solicitar el adelanto.
+g. Confecciones comprobantes: Solicitud que se realiza al Departamento de Tesorería correspondiente al reintegro de los gastos efectuados.
+h. Arqueo de caja chica: Prueba de Control que realiza la Auditoría Interna de la UNGL, de que todos los movimientos de efectivo, facturas, anticipos autorizados y cuentas bancarias concuerdan con los montos autorizados para cada uno de los fondos en cumplimiento de la normativa y reglamentación que rige la Caja Chica.
+I. Caso fortuito: Suceso inesperado que no se puede prever ni resistir.
+J. Encargado de Caja Chica: Es el funcionario designado por la Administración, con la finalidad de que vele por el fiel cumplimiento de este Reglamento.
+K. Fuerza mayor: Todo acontecimiento que no ha podido preverse, o que, previsto, no ha podido resistirse.
+L. Gastos cubiertos con el fondo de caja chica (gastos menores): son todos aquellos gastos que corresponden a la adquisición de bienes y servicios indispensables e impostergables, no programados, de naturaleza no continua y necesarios, originados por causa de un imprevisto o por falta de disponibilidad institucional y cuyo valor monetario total se ajusta al monto vigente autorizado para compras por el Fondo de Caja Chica.

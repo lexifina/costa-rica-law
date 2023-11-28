@@ -1,0 +1,2 @@
+Artículo 12.-El encargado del fondo de la caja chica podrá preparar reintegros del fondo, en donde el solicitante deberá efectuar el trámite ordinario mediante la plataforma SIFUNGL en el apartado "Reintegro de Caja Chica". En el documento del Reintegro se debe reflejar el número de comprobante, el código presupuestario y la meta, además deberá ser firmado por el Tesorero y tener el visto bueno del Director Financiero.
+La presentación del comprobante de pago debe cumplir con lo establecido en el artículo 24 del presente reglamento.

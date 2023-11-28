@@ -1,0 +1,3 @@
+CAPÍTULO III
+De la liquidación
+Artículo 21.-Los adelantos de dinero serán liquidados durante los tres días hábiles siguientes a la fecha de entrega mediante la plataforma SIFUNGL en el apartado "Comprobantes de Caja Chica". De no hacerse así, se incurrirá en las sanciones que establece el Reglamento Autónomo de Servicios de la Unión Nacional de Gobiernos Locales. Cuando haya atraso en la liquidación, el encargado del fondo deberá comunicarlo por medio de un memorando, al jefe inmediato del funcionario que recibió el adelanto. De persistir el atraso, al día siguiente, el Departamento Administrativo Financiero informará a Recursos Humanos, para la aplicación de la sanción correspondiente.
