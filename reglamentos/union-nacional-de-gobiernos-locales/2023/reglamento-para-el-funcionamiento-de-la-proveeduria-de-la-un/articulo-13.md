@@ -1,0 +1,7 @@
+TÍTULO II
+CAPÍTULO I
+Requisitos y funciones
+de los administradores del contrato
+Artículo 13.-Requisitos del Administrador del Contrato: El Administrador del Contrato deberá contar con la competencia técnica necesaria para gestionar correctamente el ciclo de vida de la contratación pública, con el objetivo de asegurar el buen uso de los fondos públicos y la obtención oportuna de bienes, obras y/o servicios.
+El Administrador del Contrato deberá manifestar que cuenta con experiencia técnica consistente con el grado de complejidad y de responsabilidad requerido para atender apropiadamente las funciones delegadas. Además, deberá estar debidamente capacitado en contratación pública, para realizar, supervisar y llevar a cabo la correcta ejecución contractual desde la Decisión Inicial hasta el finiquito del contrato, en los casos que proceda.
+La Administración deberá asignar al profesional con el perfil idóneo y la experiencia técnica requerida, para que funja como Administrador del Contrato, esto en apego al principio de diligencia y en concordancia con el perfil profesional. Para ello, la Administración, emitirá las políticas internas respectivas.

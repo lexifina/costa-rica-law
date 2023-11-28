@@ -1,0 +1,3 @@
+CAPÍTULO II
+Generalidades
+Artículo 4º-Marco jurídico. En el cumplimiento de sus funciones, las Proveedurías Institucionales deberán cumplir con el ordenamiento jurídico vigente y de manera especial, las normas, principios y los procedimientos de contratación pública que establecen la Ley General de Contratación Pública Nº 9986, y su Reglamento, así como las normas, principios y procedimientos de administración de bienes establecidos en la Ley de la Administración Financiera de la República y Presupuestos Públicos Nº 8131 y su Reglamento, el presente Reglamento, así como las demás disposiciones legales y reglamentarias que resulten aplicables por razón de la materia.

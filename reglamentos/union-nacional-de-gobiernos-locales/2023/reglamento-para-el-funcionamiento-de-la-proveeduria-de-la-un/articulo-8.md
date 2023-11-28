@@ -1,0 +1,3 @@
+Artículo 8º-Prevalencia de la economía de escala. Todos los centros de costo de la UNGL, deberán consolidar sus requerimientos de consumo con la Proveeduría Institucional, a fin de que se promuevan procedimientos de compra que aseguren los mejores precios y las mejores condiciones de eficiencia, eficacia y economía.
+Para consolidar los requerimientos de consumo y aprovechar al máximo la economía de escala a lo interno mediante compras coordinadas, se deberán seguir los lineamientos emitidos a lo interno de la institución.
+En tales casos, se realizará un único procedimiento, para conseguir ahorros en razón de la demanda agregada y para reducir los costos de transacción.

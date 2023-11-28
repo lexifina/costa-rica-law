@@ -1,0 +1,3 @@
+CAPÍTULO II
+De las decisiones iniciales
+Artículo 16.-Decisión inicial. Corresponderá a la Dirección Ejecutiva, emitir la decisión administrativa que da inicio a los procedimientos de contratación derivados de licitación menor y reducida, así como los procedimientos especiales, de excepción y urgencia que no superen el umbral de la licitación menor. Corresponderá a la Dirección Ejecutiva, por Delegación del Concejo Directivo, emitir la decisión administrativa que da inicio a los procedimientos de contratación derivados de licitación mayor y procedimientos especiales, de excepción y urgencia que superen el umbral de la licitación menor.

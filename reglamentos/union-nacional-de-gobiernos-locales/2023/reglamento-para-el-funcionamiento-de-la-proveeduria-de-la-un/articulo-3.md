@@ -1,0 +1,1 @@
+Artículo 3º-Objetivo. Las disposiciones que integran el presente reglamento tienen como objetivo conducir las distintas actividades que contempla los procesos de contratación pública que realiza la Proveeduría Institucional de la UNGL.
