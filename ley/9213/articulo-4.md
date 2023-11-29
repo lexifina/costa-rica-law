@@ -1,11 +1,12 @@
 ARTÍCULO 4.-
 Se adiciona una sección X al capítulo II del título II de la Ley Nº 5412, Ley Orgánica del Ministerio de Salud, y sus reformas, de 8 de noviembre de 1973. En consecuencia, se corre la numeración para que en lo sucesivo se lea de la siguiente manera:
-“CAPÍTULO II
-[…]
+"CAPÍTULO II
+[.]
 SECCIÓN X
 SECRETARÍA TÉCNICA DE SALUD MENTAL
 Artículo 26.- Objetivo
-Se crea la Secretaría Técnica de Salud Mental, con el fin de declarar de interés público las acciones de promoción, prevención, atención y rehabilitación de la Rectoría de la Producción Social de la Salud Mental.
+Se crea la Secretaría Técnica de Salud Mental, con el fin de declarar de interés público las acciones de promoción, prevención, atención, rehabilitación y reinserción de la Rectoría de la Producción Social de la Salud Mental.
+(Así reformado por el artículo 34 de la Ley de salud mental, N° 10412 del 29 de noviembre del 2023)
 Artículo 27.- Naturaleza
 La Secretaría Técnica de Salud Mental es un órgano técnico, adscrito al despacho del ministro de Salud, cuyo objetivo es abordar de forma integral el tema de la salud mental desde la perspectiva del ejercicio de la Rectoría del Sistema Nacional de Salud, con la participación de otras instituciones públicas y privadas, la sociedad civil organizada y la comunidad académica y científica.
 Artículo 28.- Funciones
@@ -36,14 +37,24 @@ f) Un representante del Instituto Costarricense del Deporte.
 g) Un representante de la Junta de Protección Social de San José.
 h) Un representante del Consejo Nacional de la Persona Adulta Mayor.
 i) Un representante de las organizaciones no gubernamentales que trabajan con personas con problemas mentales o que se han recuperado.
+j) Un representante del Consejo Nacional de Personas con Discapacidad.
+(Así adicionado el inciso anterior por el artículo 34 de la Ley de salud mental, N° 10412 del 29 de noviembre del 2023)
+k) Un representante del Ministerio de Trabajo y Seguridad Social.
+(Así adicionado el inciso anterior por el artículo 34 de la Ley de salud mental, N° 10412 del 29 de noviembre del 2023)
+l) Un representante de los gobiernos locales, seleccionado mediante una asamblea de representantes de las municipalidades del país, convocada por el Instituto de Fomento y Asesoría Municipal (IFAM),respetando los principios democráticos de libertad, orden, pureza e imparcialidad.
+(Así adicionado el inciso anterior por el artículo 34 de la Ley de salud mental, N° 10412 del 29 de noviembre del 2023)
 Artículo 31.- Funciones
 El Consejo Nacional de Salud Mental tendrá las siguientes funciones:
-a) Apoyar al despacho ministerial y a la Secretaría Técnica de Salud Mental, en la formulación y la evaluación de las políticas, los planes, los programas y los proyectos de salud mental.
+a) Asesorar y realizar recomendaciones al despacho ministerial y a la Secretaría Técnica de Salud Mental, en la formulación y evaluación de las políticas, los planes, los programas y los proyectos de salud mental.
+(Así reformado el inciso anterior por el artículo 34 de la Ley de salud mental, N° 10412 del 29 de noviembre del 2023)
 b) Establecer los mecanismos de coordinación, conducción y dirección política de salud mental con los diferentes actores del Sistema Nacional de Salud.
-c) Definir los mecanismos de modulación del financiamiento para impulsar las acciones de prevención, promoción, atención y rehabilitación en el Sistema Nacional de Salud, los cuales estarán orientados a los problemas de salud mental, tales como depresión, suicidio, esquizofrenia, adicciones a las drogas y el alcohol, el matonismo escolar, el acoso laboral y el apoyo necesario al grupo familiar.
+c) Velar por el uso del financiamiento para impulsar las acciones de prevención, promoción, atención y rehabilitación en el Sistema Nacional de Salud, los cuales estarán orientados a los problemas de salud mental, tales como depresión, suicidio, esquizofrenia, adicciones a las drogas y al alcohol, el matonismo escolar, el acoso laboral y el apoyo necesario al grupo familiar.
+(Así reformado el inciso anterior por el artículo 34 de la Ley de salud mental, N° 10412 del 29 de noviembre del 2023)
 d) Gestionar las investigaciones científicas en salud mental en Costa Rica, con el fin de conocer la situación de esta problemática y obtener un diagnóstico actualizado.
 e) Apoyar el desarrollo de un foro nacional de salud mental anual sobre rendición de cuentas.
+f) Rendir cuentas a las instituciones representadas sobre la labor que realiza desde el Consejo.
+(Así adicionado el inciso anterior por el artículo 34 de la Ley de salud mental, N° 10412 del 29 de noviembre del 2023)
 Artículo 32.- Sesiones
 El Consejo Nacional de Salud Mental sesionará, ordinariamente, una vez cada tres meses y, extraordinariamente, cuando se requiera con exposición razonada de motivos y no devengará dietas.
 Artículo 33.- Fuente de financiamiento
-El financiamiento estará constituido de acuerdo con lo establecido en el inciso c) del artículo 8 de la Ley N.º 8718, Autorización para el Cambio de Nombre de la Junta de Protección Social y Establecimiento de la Distribución de Rentas de las Loterías Nacionales, y sus reformas, de 17 de febrero de 2009.”
+El financiamiento estará constituido de acuerdo con lo establecido en el inciso c) del artículo 8 de la Ley N.º 8718, Autorización para el Cambio de Nombre de la Junta de Protección Social y Establecimiento de la Distribución de Rentas de las Loterías Nacionales, y sus reformas, de 17 de febrero de 2009."
