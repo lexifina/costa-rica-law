@@ -14,3 +14,4 @@ Reglamento autónomo de servicio del Instituto Nacional de Aprendizaje
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-01-24 | la propia norma |
+| 2 | 2023-11-29 | SINALEVI (sin norma nombrada) |

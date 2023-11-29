@@ -1,4 +1,6 @@
+(Anulada)
 INSTITUTO NACIONAL DE APRENDIZAJE
+(Esta norma fue Anulada mediante resolución de la Sala Constitucional, N° 031179 del 29 de noviembre de 2023)
 REGLAMENTO AUTÓNOMO DE SERVICIO DEL
 INSTITUTO NACIONAL DE APRENDIZAJE
 La Junta Directiva del Instituto Nacional de Aprendizaje, de conformidad con lo regulado en los artículos 7, inciso d) y 24 de la Ley N.º 6868, "Ley Orgánica del Instituto Nacional de Aprendizaje" y sus reformas, así como de los artículos 59.2, 103.1, 123 y 124 de la Ley N.º 6227, "Ley General de la Administración Pública", e incisos ch) y d) del Reglamento de la Junta Directiva del Instituto Nacional de Aprendizaje,
