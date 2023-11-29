@@ -1,0 +1,1 @@
+Artículo 16: Es prohibido fraccionar compras, con el fin de evadir otros procedimientos de adquisición mayor o el monto autorizado por transacción de Caja Chica. Se entenderá por fraccionamiento la adquisición reiterada en al menos tres ocasiones del mismo bien o servicio en situaciones ajenas a una emergencia declarada o no declarada.

@@ -1,0 +1,1 @@
+Artículo 40: EI responsable del manejo del fondo de Caja Chica debe mantener un archivo de los reembolsos solicitados y copia de cualquier documento que estime de importancia; así como copia del presente reglamento.

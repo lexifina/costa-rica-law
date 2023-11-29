@@ -1,0 +1,1 @@
+Artículo 33: Las Unidades Administrativas proveerán información a la Unidad de Recursos Financieros para elaborar la proyección de flujo de caja de los gastos por Caja Chica a sufragar de manera tal que se pueda informar trimestralmente a la Dirección Ejecutiva acerca de la programación y ejecución del gasto por medio de este mecanismo.

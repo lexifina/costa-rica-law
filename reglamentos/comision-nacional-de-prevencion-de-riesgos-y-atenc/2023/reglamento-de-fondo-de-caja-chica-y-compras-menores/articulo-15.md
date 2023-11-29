@@ -1,0 +1,1 @@
+Artículo 15: Para incurrir en gastos por medio del Fondo Fijo Caja Chica debidamente autorizados por el responsable, se deberá acatar los límites económicos establecidos por lo que el Responsable del Fondo al inicio de cada periodo presupuestario, deberá efectuar el cálculo correspondiente a fin de obtener el límite máximo por transacción.

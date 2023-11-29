@@ -1,0 +1,1 @@
+Artículo 19: Las partidas, grupos y subpartidas presupuestarias autorizadas para realizar gastos por Fondo Fijo-Caja Chica serán de conformidad con lo indicado en el Clasificador por el Objeto del Gasto del Sector Público.

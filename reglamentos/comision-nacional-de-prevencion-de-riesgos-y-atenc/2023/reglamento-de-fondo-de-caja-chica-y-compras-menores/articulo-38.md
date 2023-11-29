@@ -1,0 +1,1 @@
+Artículo 38: Tanto el (la) funcionario (a) encargado del manejo, como el Jefe responsable del control del fondo de Caja Chica, les corresponde mantener en un lugar seguro los documentos, efectivo y cheques que componen el fondo correspondiente.

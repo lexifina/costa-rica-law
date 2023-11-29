@@ -1,0 +1,1 @@
+Artículo 55: Se deroga el Reglamento de Fondo de Caja Chica Ordinario y Prevención y el Reglamento de Fondo de Caja Chica para Emergencias, ambos publicados en el Diario Oficial La Gaceta No. 22 del jueves 31 de enero del 2008.

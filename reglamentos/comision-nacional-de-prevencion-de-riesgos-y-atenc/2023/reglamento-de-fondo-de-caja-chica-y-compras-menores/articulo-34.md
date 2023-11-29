@@ -1,0 +1,1 @@
+Artículo 34: El Proceso de Tesorería deberá implementar y mantener sistema de expedientes de compras menores en las condiciones establecidas en la Norma Técnica de Expedientes Administrativos NTN-001, creando un registro ordenado y actualizado que pueda ser revisado por la Administración Activa, Auditoría Interna, Auditoría Externa y/o los Entes de Fiscalización Superior.

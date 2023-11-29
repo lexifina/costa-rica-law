@@ -1,0 +1,2 @@
+Disposiciones finales
+Artículo 54: Cualquier asunto relacionado con la materia, no contemplado en el presente Reglamento, se entenderá regulado por la Ley de Administración Financiera y Presupuestos Públicos, la Ley General y el Reglamento de Contratación Pública, en lo que sea aplicable el Reglamento General del Fondo Cajas Chicas del Ministerio de Hacienda, los lineamientos de control interno emitidos por la Contraloría General de la República y el Ministerio de Hacienda.

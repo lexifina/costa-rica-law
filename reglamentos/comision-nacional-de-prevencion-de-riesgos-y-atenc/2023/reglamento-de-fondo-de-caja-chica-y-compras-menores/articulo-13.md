@@ -1,0 +1,1 @@
+Artículo 13: Todo pago por medio de Caja Chica, por compra de bienes o servicios, debe estar respaldado por una factura, tiquete o comprobante debidamente emitida conforme los requisitos exigidos por la Dirección General de Tributación del Ministerio de Hacienda.

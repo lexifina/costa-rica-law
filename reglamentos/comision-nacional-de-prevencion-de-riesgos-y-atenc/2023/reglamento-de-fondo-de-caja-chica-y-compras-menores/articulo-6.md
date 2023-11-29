@@ -1,0 +1,1 @@
+Artículo 6: Gastos menores por régimen ordinario. Se considerarán gastos menores aquellos que no excedan el diez por ciento (10%) del monto previsto para la licitación reducida correspondiente al régimen ordinario, para la adquisición de bienes y servicios, según inciso g) del artículo 3 y artículo 36 de la Ley General de Contratación Pública.

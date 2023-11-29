@@ -1,0 +1,1 @@
+Artículo 17: Para realizar la compra de bienes y servicios por medio de Caja Chica, deberá confeccionarse una solicitud conforme al formulario que se defina, en caso de adelantos de Caja Chica, y entregársele al encargado del control y manejo del fondo.

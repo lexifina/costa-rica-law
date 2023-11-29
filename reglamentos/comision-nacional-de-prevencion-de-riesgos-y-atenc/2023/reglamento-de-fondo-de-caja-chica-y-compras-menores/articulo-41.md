@@ -1,0 +1,1 @@
+Artículo 41: La Jefatura inmediata del (la) funcionario (a) responsable del manejo y la custodia de Caja Chica, deberá reportar a la Administración Financiera cualquier irregularidad que detecte en el manejo y control de fondos.
