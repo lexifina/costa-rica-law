@@ -7,7 +7,8 @@ II.- DG-174(*)-2018: Autoriza al Ministerio de Educación Pública, para que asi
 "Artículo 7º-Los sobresueldos citados en el artículo primero de esta resolución, tienen vigencia solamente para el curso lectivo del año 2020 y el pago de éstos corresponde hasta un máximo del 50% (cincuenta por ciento) del salario base al mes de julio del año 2018, de la clase de puesto respectivo.(.).")
 (*) (Nota de Sinalevi: Mediante resolución N° DG-AV-1-2022 del 7 de enero de 2022, se emitió la norma DG-148-2021, la cual modifica los artículos 6 y 7 de la Resolución N° DG-174-2018 del 1 de noviembre de 2018.)
 (*) (Nota de Sinalevi: Mediante resolución N° DG-AV-11-2022 del 18 de noviembre de 2022, se emitió la norma DG-RES-99-2022, que modificó los artículos 6° y 7° de la Resolución N° DG-174-2018 del 01 de noviembre de 2018.)
+(*) (Nota de Sinalevi: Mediante resolución N° DG-AV-10-2023 del 29 de noviembre de 2023, se emitió la norma DG-RES-180-2023, la cual modifica los artículos 6 y 7 de la DG-174-2018 del 1 de noviembre de 2018.)
 III.- DG-180-2018: Modificar la Resolución DG-030-2010, que contienen las Vías de Carrera Administrativa Docente, específicamente en cuanto a eliminar la posibilidad de ascenso directo entre el Director de Enseñanza General Básica 1 y la clase de Asistente en Asesoría y Supervisión, por cuanto no cumple con lo establecido en los Artículos 3° y 20° del Reglamento del Estatuto de Servicio Civil y adicionar a la Resolución DG-030-2010, que contiene las Vías de Carrera Administrativa del Sector Docente del MEP, las posibilidades de ascenso directo para las clases de Asistente de Asesoría y Supervisión y Asistente de Asesoría y Supervisión Indígena.
 IV.- DG-186-2018: Variar provisionalmente los requisitos de las clases de puesto de Técnico de Servicio Civil 2 y 3 (G. de E.) Especialidad Operación Aeroportuaria.
 Publíquese.
-San José, 27 de noviembre del 2018
+San José, 27 de noviembre del 2018.
