@@ -1,0 +1,1 @@
+Artículo 21.-Para la determinación de los montos de alquiler, la Junta Directiva del CCDR y el Concejo Municipal se apoyará en estudios técnicos elaborados por los profesionales de la Municipalidad con el objetivo de que los montos que se perciban por este concepto sean acordes a la técnica.

@@ -1,0 +1,1 @@
+Artículo 2º-El fin del uso de la piscina según las normas de este Reglamento conduce fundamentalmente al mejor desenvolvimiento físico y mental de la población del cantón de Poás a través de actividades acuáticas.

@@ -1,0 +1,1 @@
+Artículo 13.-A personas que estén alterando el orden público o el adecuado desempeño de las actividades que se realizan se les pedirá su abandono, mismo que de no ser acogido se procederá a llamar la Fuerza Pública para que gestionen su retiro.

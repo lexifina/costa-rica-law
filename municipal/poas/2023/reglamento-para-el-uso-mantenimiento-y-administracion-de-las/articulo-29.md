@@ -1,0 +1,1 @@
+Artículo 29.-El incumplimiento o inobservancia de cualquier disposición del presente reglamento por parte del CCDR y los funcionarios de este serán considerados falta grave acarreando las respectivas sanciones que impone el ordenamiento, previo procedimiento administrativo.

@@ -1,0 +1,1 @@
+Artículo 25.-Para asegurar el apoyo del personal humano de la Municipalidad la Junta del CCDR gestionara lo requerido con base en el Convenio de Cooperación de personal técnico y profesional con la Municipalidad que al efecto exista.

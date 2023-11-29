@@ -1,0 +1,1 @@
+Artículo 22.-En caso de alquiler de las piscinas deberá existir el debido procedimiento de adjudicación respetando principios de publicidad, probidad y transparencia, para lo cual el Concejo Municipal podrá apoyarse en los profesionales de la Municipalidad en los criterios que requiera.

@@ -1,0 +1,1 @@
+Artículo 5º-La Junta Directiva del CCDR de Poás, velará por el adecuado cumplimiento de este Reglamento, así como del buen uso y mantenimiento de las piscinas a su cargo pudiendo disponer para ello de los recursos económicos que ésta genere, siempre que se cumpla con los parámetros presupuestarios vigentes.

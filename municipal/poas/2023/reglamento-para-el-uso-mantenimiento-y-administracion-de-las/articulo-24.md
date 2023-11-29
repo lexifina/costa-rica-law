@@ -1,0 +1,1 @@
+Artículo 24.-Queda totalmente prohibido que cualquier persona física o jurídica lucre con las piscinas propiedad de la Municipalidad de Poás en administración del CCDR sin un debido proceso y contrato de alquiler que regule esa actividad, así mismo en caso de existir, queda prohibido la cesión, traspaso o sub arriendo del mismo.

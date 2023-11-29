@@ -1,0 +1,1 @@
+Artículo 23.-Para los casos de alquiler por días u horas existirá un contrato de partes que contendrá todos los elementos necesarios que regulen la actividad y relación con el tercero y la Junta del CCDR quien será la responsable del cumplimiento cabal del contrato.
