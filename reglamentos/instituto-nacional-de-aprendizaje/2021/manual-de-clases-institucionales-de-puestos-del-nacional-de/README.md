@@ -14,3 +14,4 @@ Manual de clases institucionales de puestos del Nacional de Aprendizaje
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-01-27 | la propia norma |
+| 2 | 2023-11-29 | SINALEVI (sin norma nombrada) |
