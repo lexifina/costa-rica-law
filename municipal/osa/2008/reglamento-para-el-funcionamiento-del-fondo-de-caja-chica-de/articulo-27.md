@@ -1,3 +1,0 @@
-Artículo 27.—Rige a partir de su publicación.
-Una vez leído y analizado el presente acuerdo en el cual se consiga el Reglamento para el Funcionamiento del Fondo de Caja Chica de la Municipalidad del cantón de Osa, este Concejo Municipal de Osa, lo somete a votación y acuerda aprobarlo de manera definitiva por medio de los votos de los Regidores Propietarios Eugenio Nájera Santamaría, Alba Cerdas Aguilar, Yanina Chaverri Rosales, Jéssica Hernández Sanarrusia y Daisy Anchía Angulo. Comuníquese a la Administración Municipal y publíquese en el Diario Oficial La Gaceta, para su puesta en vigencia.
-Ciudad Cortés, 29 de mayo del 2008.—
