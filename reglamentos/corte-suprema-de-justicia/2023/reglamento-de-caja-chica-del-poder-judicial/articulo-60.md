@@ -1,0 +1,2 @@
+Artículo 60. Derogaciones.
+Se derogan el Reglamento para la operación del Fondo General de la Caja Chica del Poder Judicial, aprobado por la Corte Plena en la sesión N° 3-2002 de 28 de enero del 2002, artículo XXVII y sus reformas y el Reglamento de Cajas Chicas auxiliares aprobado por la Corte Plena, en la sesión N° 3017 celebrada el 11 de setiembre del 2017, artículo II y sus reformas; así como cualquier otra disposición anterior que se le oponga.

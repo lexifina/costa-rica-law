@@ -1,0 +1,2 @@
+Artículo 23°. Incremento del Fondo Fijo de la Caja Chica General del Poder Judicial.
+El Departamento Financiero Contable podrá solicitar incrementos en el fondo autorizado, para lo cual deberá indicar las causas que justifiquen debidamente y en forma razonada tales incrementos, así como las subpartidas presupuestarias donde se tomarán los recursos. El incremento será fijado por resolución administrativa que dicte la Dirección Ejecutiva.

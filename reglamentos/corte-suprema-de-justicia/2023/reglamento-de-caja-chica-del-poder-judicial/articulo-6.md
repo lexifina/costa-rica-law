@@ -1,0 +1,3 @@
+Artículo 6°. Monto máximo de compra.
+La suma máxima de compra se establece conforme a lo dispuesto en la Ley General de Contratación Pública y su Reglamento vigentes para compras por medio de Caja Chica y que no supere el monto del 10% definido para una Licitación Reducida, que será actualizado mediante resolución de la Contraloría General de la República.
+Tomando en consideración que por su naturaleza los fondos de Caja Chica son para la atención de compras de bienes, obras y servicios el responsable de Caja Chica valorará el monto de la compra, garantizando que dichos fondos cuenten con la liquidez disponible para atender todas las necesidades de la oficina con carácter de urgencia, según lo establecido en el artículo N°5 "Gastos Autorizados" del presente Reglamento.

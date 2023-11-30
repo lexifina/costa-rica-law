@@ -1,0 +1,3 @@
+Artículo 18°. Faltantes y sobrantes.
+Si en el arqueo practicado se determinan faltantes, éstos deberán ser cubiertos de forma inmediata por la persona encargada de la Caja Chica. En caso de no cubrirse el faltante se comunicará a la Dirección Ejecutiva para que ésta previo análisis de la situación lo comunique a la Auditoría Judicial y al Tribunal de la Inspección Judicial, en caso de que corresponda.
+Si se presentan sobrantes, deberán ser depositados inmediatamente en la cuenta bancaria que se habilite para tales efectos, consignando en forma clara el detalle del mismo. La copia del depósito deberá remitirse a la Auditoría Judicial y al Departamento Financiero Contable, para los fines que interesan a estas oficinas.

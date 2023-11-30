@@ -1,0 +1,2 @@
+Artículo 44°. Arqueos.
+La persona encargada del manejo de la Caja Chica Auxiliar deberá efectuar un arqueo el último día de cada mes, el cual deberá contar con el visto bueno de la jefatura inmediata de la oficina, remitiéndolo al Departamento Financiero Contable con copia a la Auditoría Judicial, a más tardar el tercer día hábil del mes siguiente. Este arqueo corresponde enviarlo independientemente si hubo erogación o movimiento alguno durante ese mes.

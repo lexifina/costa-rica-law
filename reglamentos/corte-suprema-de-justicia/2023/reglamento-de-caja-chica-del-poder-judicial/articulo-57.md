@@ -1,0 +1,2 @@
+Artículo 57. Responsabilidad.
+La jefatura de la oficina, la persona encargada directa de Caja Chica del Poder Judicial, el Departamento Financiero Contable, las Administraciones Regionales y la Dirección Ejecutiva, deben cumplir las disposiciones contempladas en este Reglamento, en el Manual de Procedimientos y los demás instructivos y circulares que se emitan al respecto; su incumplimiento o transgresión a dichas disposiciones generará responsabilidad.

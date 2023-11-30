@@ -1,0 +1,2 @@
+Artículo 17°. Retención del impuesto sobre la renta.
+Las personas encargadas del trámite y aprobación de los pagos por medio de la Caja Chica del Poder Judicial serán las responsables de que se aplique la retención del porcentaje respectivo sobre todo pago originado en los conceptos establecidos en la normativa vigente. Dicha suma debe ser depositada en la cuenta establecida para tales efectos, a fin de realizar el pago al Ministerio de Hacienda dentro del plazo establecido.

@@ -1,0 +1,2 @@
+Artículo 48°. Custodia de los fondos.
+Para su debida custodia la persona encargada de la Caja Chica Auxiliar, deberá mantener en una caja metálica con llavín, u otro medio de resguardo seguro, el efectivo, los cheques, valores y documentos relacionados con dicha Caja Chica Auxiliar.

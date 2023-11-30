@@ -1,0 +1,2 @@
+Artículo 10°. Aprobación de anticipos.
+Todo anticipo de dinero que se tramite por medio de la Caja Chica del Poder Judicial, deberá ser solicitado por la persona beneficiaria y contar con la autorización de la jefatura del Departamento o de la oficina respectiva, salvo aquellos que corresponden a acuerdos de la Corte Plena o del Consejo Superior, previa consulta de contenido presupuestario y disponibilidad de fondos.

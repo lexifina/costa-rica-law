@@ -1,0 +1,4 @@
+Artículo 54°. Manual de Procedimientos.
+El Departamento Financiero Contable, elaborará el Manual de Procedimientos correspondiente a las actividades y tareas a realizar en los procesos que involucren el manejo y control de las cajas chicas auxiliares, el cual será de acatamiento obligatorio. Además, el Departamento Financiero Contable realizará revisiones periódicas con el fin de que el manual se mantenga actualizado y acorde con los cambios que exige la dinámica administrativa, sin perjuicio de las iniciativas y sugerencias que surjan de las personas responsables de las Cajas Chicas Auxiliares.
+Para ello dicho Departamento enviará los respectivos proyectos de modificación a la Dirección Ejecutiva, para el análisis y aprobación.
+Una vez aprobado y publicado, el Manual de Procedimientos será de acatamiento obligatorio.

@@ -1,0 +1,2 @@
+Artículo 31°. Persona encargada del Fondo General de la Caja Chica del Poder Judicial.
+La jefatura del Subproceso de Egresos designará a la persona encargada de la Unidad de Pagos Menores el manejo de los fondos, quien tendrá a su cargo el trámite de los documentos y la custodia de los recursos. Corresponde a esta persona dar el correcto uso de esos fondos y cumplir con los controles establecidos, para lo cual deberá rendir caución por el mínimo que establece el artículo 19 de la Ley Orgánica del Poder Judicial.

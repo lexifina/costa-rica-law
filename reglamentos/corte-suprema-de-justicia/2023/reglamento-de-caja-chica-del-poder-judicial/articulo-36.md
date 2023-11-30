@@ -1,0 +1,2 @@
+Artículo 36°. Arqueos y evaluaciones.
+Periódicamente y sin previo aviso, la Auditoría Judicial efectuará arqueos al Fondo General de Caja Chica del Poder Judicial, analizará tanto los procedimientos que se están practicando como el sistema de control interno existente, evaluará las conciliaciones bancarias preparadas por el Departamento Financiero Contable, y presentará las recomendaciones que estime convenientes, sin perjuicio de los arqueos que realicen los entes fiscalizadores externos.

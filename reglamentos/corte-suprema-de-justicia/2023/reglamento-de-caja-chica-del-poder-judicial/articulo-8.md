@@ -1,0 +1,5 @@
+Artículo 8°. Comprobantes autorizados.
+Todo pago por medio de la Caja Chica del Poder Judicial deberá estar respaldado por una factura comercial registrada ante el Ministerio de Hacienda, lo que se verificará con el timbraje correspondiente o dispensa emitida por dicho Ministerio.
+Para el caso de pequeños contribuyentes cubiertos por el Régimen Simplificado se aceptará la presentación de facturas exentas de timbraje, con la especificación de la resolución que les exime.
+Se aceptarán tiquetes de caja registradora únicamente acompañados de la respectiva factura comercial, la cual las empresas están en obligación de suministrar, al tenor de lo establecido por la Dirección General de la Tributación.
+En casos excepcionales o sumamente calificados, si en razón de la especial naturaleza del servicio, no existiera factura emitida por parte de la persona física o jurídica que presta el servicio, la oficina responsable deberá confeccionar el comprobante o boleta donde conste el servicio prestado (formato de factura por servicios ocasionales), el nombre del proveedor, el monto correspondiente y el visto bueno de la jefatura de la oficina respectiva.

@@ -1,0 +1,5 @@
+Artículo 35°. Arqueos.
+Del movimiento y operación del Fondo General de la Caja Chica del Poder Judicial, el Departamento
+Financiero Contable, deberá elaborar y enviar un informe o arqueo mensual en el término máximo de 10 días hábiles posteriores al cierre de cada mes, el cual debe conservar en sus archivos de manera que permita la verificación posterior de las transacciones efectuadas. Dicho informe lo enviará a la Dirección Ejecutiva con copia a la Auditoría Judicial.
+Será responsabilidad de la persona encargada del Fondo General de la Caja Chica del Poder Judicial, garantizar la identificación y corrección de las operaciones y registros en los arqueos mensuales, así como su exactitud aritmética. Para ello deberá agotar los medios a su alcance para determinar en qué consiste la diferencia detectada y reportarla a la jefatura inmediata.
+De constatarse descuido, negligencia por parte de alguna de las personas servidoras de la Unidad de Pagos Menores, según las implicaciones corresponderá aplicar el Régimen Disciplinario.
