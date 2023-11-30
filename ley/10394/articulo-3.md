@@ -1,0 +1,1 @@
+ARTÍCULO 3- El bien donado a la Municipalidad de Puntarenas se destinará exclusivamente para que construya el Palacio Municipal de la Municipalidad de Puntarenas, para la prestación de servicios públicos y privados.
