@@ -1,0 +1,7 @@
+Artículo 3. Valoración de adecuada sustancia económica de una entidad calificada, respecto a la toma de decisiones.
+De conformidad con lo establecido en el artículo 2 ter inciso b) de la Ley del Impuesto sobre la Renta, se considera que existe una adecuada sustancia económica respecto de determinada renta pasiva extraterritorial, cuando:
+1. El contribuyente, persona jurídica, cuente con consejo de administración, junta directiva u órgano equivalente para la dirección y administración de los negocios sociales y gestión de riesgos. Dicho órgano deberá reunirse al menos dos veces al año en el territorio nacional.
+2. El contribuyente, persona jurídica, realice la asamblea ordinaria de accionistas por lo menos una vez al año en el territorio nacional, de conformidad con los artículos 94, 155 o similares del Código de Comercio.
+3. El contribuyente, persona jurídica, cuente con políticas de gobierno corporativo aprobadas por la Junta Directiva u órgano equivalente, que incluyan las disposiciones a que hace referencia el artículo 32 ter del Código de Comercio.
+4. El contribuyente, persona jurídica, haya definido para todos los efectos legales, tributarios y de negocios, su domicilio en el territorio nacional.
+5. El consejo de administración, junta directiva u órgano equivalente, así como la asamblea de accionista no puede ser tercerizado o subcontratado. Para el desarrollo de sus funciones estos órganos se apoyan en el personal contratado por el contribuyente, en forma directa o mediante la contratación de un proveedor de servicios.

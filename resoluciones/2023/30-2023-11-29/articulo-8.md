@@ -1,0 +1,5 @@
+Artículo 8. Disposiciones transitorias.
+En el tanto el formulario de información y autoliquidación definitivo no se encuentre disponible en el sistema ATV, se deberá presentar el formulario para casos especiales.
+Cada tipo de renta deberá liquidarse por aparte, si la renta proviene de bienes inmuebles, deberá llenar el formulario denominado "710-1-Formulario de Pago para Rentas de Capital Inmobiliario Provenientes de Fuentes Extranjeras", en el mismo deberá indicar el importe bruto grabado y el impuesto neto que debe cancelar. De la misma manera, si las rentas provienen de bienes muebles, deberá seleccionar el formulario "710-1-Formulario de Pago para Rentas de Capital Mobiliario Provenientes de Fuentes Extranjeras", y llenar las casillas de "Base imponible" e "Impuesto a cancelar".
+Por su parte, si lo que el contribuyente percibe es una ganancia de capital, deberá seleccionar y llenar el formulario con el nombre "710-1-Formulario de Pago para Ganancias de Capital Provenientes de Fuentes Extranjeras", y deberá llenar las casillas correspondientes.
+Publíquese.

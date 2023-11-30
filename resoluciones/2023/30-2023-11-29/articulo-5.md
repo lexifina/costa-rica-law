@@ -1,0 +1,2 @@
+Artículo 5. Pertenencia a un grupo multinacional
+De conformidad con lo establecido en el artículo 2 quater de la Ley del Impuesto sobre la Renta, se considera que una entidad pertenece a un grupo multinacional cuando cumpla los supuestos delimitados en la norma legal indicada, así como con los principios de contabilidad generalmente aplicados, dentro de los cuales deberá valorarse lo regulado en la Norma Internacional de Información Financiera número 10.

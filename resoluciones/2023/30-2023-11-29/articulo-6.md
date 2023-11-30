@@ -1,0 +1,2 @@
+Artículo 6. Medios de información de cumplimiento de las condiciones de entidad calificada y entidad perteneciente a un grupo económico.
+El contribuyente deberá utilizar el formulario de información y autoliquidación que, para los efectos, la Administración Tributaria pondrá a disposición mediante resolución general, de acuerdo con lo que establecen los artículos 2 ter y 2 quater de la ley. Estos formularios se pondrán a disposición en el sistema ATV en la sección de Declaraciones.

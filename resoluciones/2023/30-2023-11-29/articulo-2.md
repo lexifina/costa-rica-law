@@ -1,0 +1,6 @@
+Artículo 2. Valoración de adecuada sustancia económica de una entidad calificada, respecto al recurso humano.
+De conformidad con lo establecido en el artículo 2 ter inciso a) de la Ley del Impuesto sobre la Renta, se considera que existe una adecuada sustancia económica respecto de determinada renta pasiva extraterritorial, cuando:
+1. El contribuyente, persona jurídica, se encuentre registrado como patrono ante la Caja Costarricense del Seguro Social, que tenga contratado por lo menos un empleado registrado con una ocupación de tipo profesional, relacionada con la gestión de los activos de inversión y las rentas que se obtienen en el exterior.
+2. El contribuyente, persona jurídica, cuente con un local, oficina o centro de negocios propio o alquilado, con el mobiliario y equipo suficiente para el desarrollo de las tareas relacionadas con la gestión de las rentas que se obtienen en el exterior.
+3. Los requisitos indicados en los incisos anteriores podrán gestionarse en forma directa por el contribuyente o podrá recurrir a la contratación de proveedores externos de servicios.
+En tal caso, dichos requisitos deben cumplirse por el proveedor de los servicios y el monto pagado por el contribuyente no podrá ser menor al 80% del costo que hubiese implicado para el contribuyente gestionar los servicios en forma directa.

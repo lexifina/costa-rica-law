@@ -1,0 +1,2 @@
+Artículo 4. Valoración de adecuada sustancia económica de una entidad calificada, respecto a gastos y costos.
+De conformidad con lo establecido en el artículo 2 ter inciso c) de la Ley del Impuesto sobre la Renta, se considera que existe una adecuada sustancia económica respecto de determinada renta pasiva extraterritorial, cuando el contribuyente, persona jurídica, adquiera bienes y servicios en el territorio nacional, necesarios para la gestión de sus activos de inversión, amparados en facturas electrónicas y por una cuantía no menor a tres salarios base.
