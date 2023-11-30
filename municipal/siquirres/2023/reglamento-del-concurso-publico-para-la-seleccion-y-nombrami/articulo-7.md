@@ -1,0 +1,5 @@
+Artículo 7º-Requisitos indispensables, deseables y competencias. Los requisitos indispensables, deseables y competencias del puesto, así como la descripción de funciones para el cargo de Auditor Interno son los aprobados por el Concejo Municipal, que se encuentran definidos en el Manual Descriptivo de Clases de Puestos Institucional vigente y los cuales no pueden ser contrarios a los señalados en los Lineamientos emitidos por la CGR.
+En cuanto a los requisitos mínimos para ocupar el puesto de Auditor Interno se encuentran establecidos en los "Lineamientos sobre gestiones que involucran a la Auditoría Interna presentadas ante la CGR, R-DC-83-2018" y son los siguientes:
+i. Requisito Académico: Título Universitario de Licenciatura en Contaduría Pública o similar (Licenciatura en Administración de empresas con énfasis en Contaduría Pública o Contabilidad, Licenciatura en Administración de Negocios con énfasis en Contaduría Pública).
+ii. Requisito de Experiencia: Tres años mínimos de experiencia en el ejercicio de la auditoría interna o externa en el sector público o privado.
+iii. Requisito Legal: Incorporado al Colegio Profesional Respectivo.

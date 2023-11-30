@@ -1,0 +1,1 @@
+Artículo 27.-Sobre los resultados. Se deberá de comunicar los resultados obtenidos a cada participante, el desglose del resultado que obtuvo en la calificación individual y la conformación de la terna o nómina resultante del proceso concursal, incluyendo aquellos casos en que se invoque la inopia.

@@ -1,0 +1,3 @@
+CAPÍTULO VII
+Aprobación y Comunicación de resultados
+Artículo 30.-Sobre la solicitud de aprobación dirigida a la CGR. Las solicitudes que se dirijan a la Contraloría General de la República para obtener la aprobación del proceso de nombramiento por plazo indefinido de auditor, deberán cumplir con los requisitos definidos en el apartado 2.3.8 de los lineamientos citados en el artículo 1 de este Reglamento. Para esta diligencia el Concejo Municipal debe designar en la figura del presidente de ese órgano colegiado, la autorización para suscribir la respectiva solicitud según los requerimientos en la norma supra citada y acompañarse de una certificación del acuerdo que cite la sesión y el acta respectiva.

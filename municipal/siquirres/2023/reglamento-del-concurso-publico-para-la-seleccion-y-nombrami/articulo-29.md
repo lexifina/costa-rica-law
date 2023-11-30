@@ -1,0 +1,1 @@
+Artículo 29.-Aprobación del concurso, terna o nómina. Deberá el Concejo Municipal aprobar el proceso concursal efectuado por la Comisión Especial siempre y cuando se cumpla con los requisitos establecidos en el presente Reglamento y lineamientos, asimismo, deberá aprobar la terna o nómina seleccionada de previo a remitir solicitud de aprobación del proceso ante la CGR.

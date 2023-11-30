@@ -1,0 +1,1 @@
+Artículo 18.-Del aviso del concurso. La publicación del anuncio sobre el concurso, deberá contener los requisitos mínimos solicitados para el puesto, el salario, así como la fecha y el sitio en el que se recibirán las ofertas.

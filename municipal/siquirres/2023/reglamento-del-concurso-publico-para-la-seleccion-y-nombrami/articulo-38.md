@@ -1,0 +1,3 @@
+Capítulo IX
+Falla e inopia del concurso
+Artículo 38.-Concurso de nombramiento fallido. Cuando el concurso no cuente con nominaciones ni ninguno de los nominados satisfaga los requisitos establecidos en las bases del concurso o no supere sus diferentes etapas la institución podrá declararlo fallido. En ambos casos, el Concejo Municipal deberá revisar las condiciones del concurso, analizar las causas de la falla y, si procede, realizar ajustes para propiciar la participación de personas que cumplan los requisitos mínimos y los demás que se establezcan. Las acciones emprendidas serán comunicadas al área de fiscalización de la División de Fiscalización Operativa y Evaluativa correspondiente.

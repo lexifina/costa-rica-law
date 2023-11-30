@@ -1,0 +1,1 @@
+Artículo 25.-Estudio de referencias laborales. De acuerdo con los atestados aportados el Departamento de Talento Humano realizará el estudio de las referencias laborales, quedando a criterio de la Comisión Especial, verificar cualquier información y documentación aportada.

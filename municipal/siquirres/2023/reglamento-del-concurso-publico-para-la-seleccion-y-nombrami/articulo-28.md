@@ -1,0 +1,1 @@
+Artículo 28.-Sobre la forma en que estará conformada la terna o nómina. Se conformará una terna o nómina con las personas que hayan obtenido las calificaciones más altas teniendo en cuenta las posibilidades definidas en el punto 2.3.6 de los lineamientos mencionados en el artículo 1 de este reglamento.

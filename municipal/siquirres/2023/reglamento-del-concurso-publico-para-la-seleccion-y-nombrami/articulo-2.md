@@ -1,0 +1,1 @@
+Artículo 2º-Facultad de nombramiento. Compete al Concejo Municipal nombrar al Auditor Interno, según los artículos 24 y 31 de la Ley General de Control Interno, bajo las normas establecidas en el presente Reglamento.

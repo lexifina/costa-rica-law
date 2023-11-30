@@ -1,0 +1,1 @@
+Artículo 15.-Inicio del procedimiento. Al tratarse de una vacante definitiva, el Concejo Municipal mediante acuerdo firme, aprobará a la Comisión Especial junto con la colaboración de la Administración el inicio del proceso de selección para ocupar la plaza de auditor interno mediante la tramitación de un concurso público.
