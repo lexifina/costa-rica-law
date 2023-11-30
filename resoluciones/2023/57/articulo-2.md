@@ -1,4 +1,0 @@
-Artículo 2º-Reformar el aparte de "Prevenciones" del punto I. de la resolución R-DC-23-2009 que se denomina "Trasladar a la Unidad de Servicios de Información, en cuanto a la materia de declaraciones juradas, las siguientes funciones", para que se lea de la siguiente manera:
-Prevenciones La Unidad de Servicios de Información generará y depurará los reportes del Sistema de Declaraciones Juradas de Bienes, que le permitan elaborar las prevenciones de aquellos funcionarios que incumplan con la entrega de la declaración en los plazos establecidos por la Ley contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública, Nro. 8422. Adicionalmente, tendrá a su cargo la notificación y el control del vencimiento de esas prevenciones.
-Rige a partir de su publicación.
-<span lang=es-419 style='font-size: </body>
