@@ -4,8 +4,8 @@ a) Elaborar un cartel en el cual establecerá los términos y condiciones que de
 b) Publicar un aviso en la prensa nacional;
 c) Recibir los antecedentes preliminares de los consultores interesados durante un período de tiempo no menor de 7 (siete) ni mayor de 15 (quince) días hábiles;
 (Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 39403 del 1° de diciembre de 2015)
-d) Estudiar los antecedentes preliminares durante un período no mayor de 7 (siete) días hábiles, para preseleccionar no menos de dos (2) ni más de seis (6) consultores;
-(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 39403 del 1° de diciembre de 2015)
+d) Estudiar los antecedentes preliminares durante un período no mayor de 10 (diez) días hábiles, para preseleccionar no menos de dos (2) ni más de seis (6) consultores;
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 44465 del 30 de noviembre del 2023)
 e) Requerir propuestas formales a los consultores preseleccionados en un plazo no mayor de 7 (siete) días hábiles; las cuales deberán presentarse en un período no menor de 7 (siete) ni mayor de 15 (quince) días hábiles;
 (Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 39403 del 1° de diciembre de 2015)
 f) Estudiar las propuestas formales presentadas por los consultores preseleccionados en un término no mayor de 15 (quince) días hábiles y calificar a los consultores en orden de mérito;

@@ -1,10 +1,10 @@
-Artículo 61.—Procedimiento para concurso público. Cuando se aplique Concurso Público el beneficiario deberá:
+Artículo 61.-Procedimiento para concurso público. Cuando se aplique Concurso Público el beneficiario deberá:
 a. Elaborar un cartel en el cual establecerá los términos y condiciones que deberá reunir el consultor que resulte seleccionado, así como las características del proceso de selección;
 b. Publicar un aviso en la prensa nacional y si así procediere por la complejidad y grado de especialización del asesoramiento solicitado, en publicaciones extranjeras especializadas;
 c. Recibir los antecedentes preliminares de los consultores interesados durante un período de tiempo no menor de 20 (veinte) ni mayor de 30 (treinta) días hábiles;
 (Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 39403 del 1° de diciembre de 2015)
-d) Estudiar los antecedentes preliminares durante un período no mayor de 20 (veinte) días hábiles, para preseleccionar no menos de 3 (tres) ni más de 6 (seis) consultores;
-(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 39403 del 1° de diciembre de 2015)
+d) Estudiar los antecedentes preliminares durante un período no mayor de 20 (veinte) días hábiles, para preseleccionar no menos de 2 (dos) ni más de 6 (seis) consultores;
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 44465 del 30 de noviembre del 2023)
 e. Requerir propuestas formales a los consultores preseleccionados en un plazo no mayor de 20 (veinte) días hábiles; las cuales deberán presentarse en un período no menor de 20 (veinte) ni mayor de 30 (treinta) días hábiles;
 (Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 39403 del 1° de diciembre de 2015)
 f. Estudiar las propuestas formales presentadas por los consultores preseleccionados en un término no mayor de 30 (treinta) días hábiles y calificar a los consultores en orden de mérito;

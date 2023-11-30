@@ -1,4 +1,4 @@
-Artículo 9°— Funciones del COMITÉ
+Artículo 9°- Funciones del COMITÉ
 Corresponde al COMITÉ DIRECTIVO:
 a. Dictar la política general del FONDO;
 b. Proponer modificaciones al presente Reglamento;
@@ -8,7 +8,7 @@ e. Decidir sobre el financiamiento de estudios de preinversión con base en el i
 f. Conocer y recomendar a MIDEPLAN las gestiones de financiamiento interno y externo para fortalecer al FONDO así como las correspondientes acciones del mismo sobre este particular;
 g. Designar las entidades que actuarán como IFI y sus respectivas condiciones de contratación;
 h. Conocer y resolver las apelaciones sobre pronunciamientos del MINISTRO o de las IFI, correspondientes a solicitudes de financiamiento que hayan sido sometidas a su consideración;
-i. Autorizar plazos de desembolso que excedan de los seis (6) meses adicionales al plazo establecido en el contrato de cada operación;
+i. (Derogado por el artículo 2° del decreto ejecutivo N° 44465 del 30 de noviembre del 2023)
 j. Decidir sobre las propuestas de readecuación de deudas que presenten los beneficiarios, con base en el informe que sobre cada caso presentare la DIRECCIÓN; y
 k. Conocer y resolver sobre las solicitudes de modificación de los términos y condiciones de los contratos y convenios de financiamiento de estudios.
 l) Definir lineamientos y/o políticas para autorizar las modalidades de financiamiento.
