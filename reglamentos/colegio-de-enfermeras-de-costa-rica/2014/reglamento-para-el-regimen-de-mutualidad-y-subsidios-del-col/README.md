@@ -15,3 +15,4 @@ Reglamento para el Régimen de Mutualidad y Subsidios del Colegio de Enfermeras 
 | --- | --- | --- |
 | 1 | 2014-10-31 | la propia norma |
 | 2 | 2016-07-21 | Reglamento 0 (2016-07-21) |
+| 3 | 2023-11-30 | Reglamento 0 (2023-11-30) |
