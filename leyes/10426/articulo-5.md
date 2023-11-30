@@ -1,0 +1,1 @@
+ARTÍCULO 5- Se autoriza al Instituto de Desarrollo Rural (Inder) para que contrate servicios profesionales que sean indispensables, durante el período de vigencia de la presente ley, de acuerdo con sus capacidades presupuestarias.

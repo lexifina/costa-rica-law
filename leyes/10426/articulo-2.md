@@ -1,0 +1,1 @@
+ARTÍCULO 2- Las personas físicas o jurídicas, cuyo monto total adeudado a la fecha de entrada en vigencia de esta ley, sea inferior a los diez millones de colones, podrán solicitar ante el Instituto de Desarrollo Rural (Inder) la condonación total de sus deudas.
