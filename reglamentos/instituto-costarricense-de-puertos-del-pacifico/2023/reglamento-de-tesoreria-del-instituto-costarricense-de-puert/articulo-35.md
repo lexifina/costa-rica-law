@@ -1,0 +1,3 @@
+CAPÍTULO V
+Disposiciones finales
+Artículo 35.-De la prohibición de ingreso al área de caja de la Unidad de Tesorería de personal ajeno. En resguardo de la responsabilidad del tesorero y su personal subalterno, es terminantemente prohibida la entrada a empleados de la Institución y de particulares al área de caja de la Unidad de Tesorería. Se exceptúan de esta disposición el o la Director (a) Administrativo(a)-Financiero(a), el Presidente Ejecutiva, el Gerente General, el Auditor General o sus delegados en funciones propias del cargo. Para casos de excepción serán autorizados por cualquiera de las unidades descritas y para las en funciones propias del cargo.

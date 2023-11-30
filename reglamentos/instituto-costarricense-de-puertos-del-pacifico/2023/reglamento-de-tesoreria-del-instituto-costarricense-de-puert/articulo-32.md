@@ -1,0 +1,1 @@
+Artículo 32.-Del control de los documentos de garantía. La Tesorería controlará las garantías incluidas en el auxiliar de garantías en el sistema SIAF. El reporte del SIAF sobre la custodia de las garantías incluirá: el nombre del adjudicatario, número de documento, número de la garantía, fecha de vencimiento y monto de la garantía.

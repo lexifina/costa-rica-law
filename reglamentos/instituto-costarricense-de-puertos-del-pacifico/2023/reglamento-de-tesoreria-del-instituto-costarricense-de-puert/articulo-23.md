@@ -1,0 +1,1 @@
+Artículo 23.-De la consulta sobre fondos existentes. El encargado de cajas consultará al Tesorero, de manera verbal o escrita, previo a la emisión de los cheques, si existen fondos suficientes en las cuentas corrientes para realizar los pagos.

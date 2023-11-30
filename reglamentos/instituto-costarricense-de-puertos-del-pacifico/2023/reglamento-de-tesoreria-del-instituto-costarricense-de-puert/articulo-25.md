@@ -1,0 +1,1 @@
+Artículo 25.-De las transacciones pagadas con cheques. Todos los comprobantes que amparen una transacción cancelada con cheque deberán estar incluidos en la carpeta electrónica que se tiene para cada pago.

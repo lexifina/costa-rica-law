@@ -1,0 +1,1 @@
+Artículo 33.-Del Registro de las pólizas. La Tesorería llevará un control de las pólizas de seguro que le corresponden a esta unidad. Se anotará como mínimo la siguiente información: número de póliza, mención de los bienes asegurados, período del pago, monto de la prima y vencimiento.
