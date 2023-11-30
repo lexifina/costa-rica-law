@@ -1,0 +1,2 @@
+Artículo 4° - Detalle de los premios
+Los premios especiales consisten en enteros de lotería del Sorteo Extraordinario de Navidad N°4778, que serán sorteados entre las personas que hayan efectuado la compra mínima de 5 fracciones de este sorteo únicamente en los eventos promocionales que realice la Junta de Protección Social y no en otro momento o lugar, conforme la mecánica de participación definida en el artículo 3) de este procedimiento.
