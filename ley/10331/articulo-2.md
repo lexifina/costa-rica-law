@@ -58,3 +58,4 @@ PUESTO CLASE
 (Modificado por el artículo 4° del decreto ejecutivo N° 44253 del 13 de noviembre de 2023)
 (Modificado por el artículo 5° del decreto ejecutivo N° 44253 del 13 de noviembre de 2023)
 (Modificado por el artículo 1° del decreto ejecutivo N° 44264 del 16 de noviembre de 2023)
+(Modificado por el artículo 1° del decreto ejecutivo N° 44300 del 30 de noviembre de 2023)
