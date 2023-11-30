@@ -1,0 +1,5 @@
+N° 10394
+LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA
+DE COSTA RICA DECRETA:
+AUTORIZACIÓN AL PODER JUDICIAL PARA ENAJENAR UN BIEN INMUEBLE DEMANIAL REGISTRADO A SU NOMBRE Y QUE LO, TRASPASE A TÍTULO GRATUITO EN DONACIÓN A LA MUNICIPALIDAD DE PUNTARENAS
+ARTÍCULO 1- Se desafecta del uso y dominio público la finca inscrita bajo matrícula uno seis ocho uno seis tres - cero cero cero (168163-000); naturaleza de terreno de los Tribunales de Justicia de Puntarenas, situado en el distrito primero, Puntarenas; cantón primero, Puntarenas; contando con los linderos: al norte con avenida 0 con frente de treinta y cinco metros con tres decímetros (35,03 m); al sur con avenida segunda con frente de veinticuatro metros con cuarenta y dos decímetros (24,42 m); al este con calle 9 con frente de ochenta y ocho metros con dieciocho decímetros (88,18 m) y al oeste con calle 11 con frente de (87,01 m); mide dos mil cincuenta y nueve metros cuadrados (2059 m2), descrito por el plano catastrado número P uno tres cinco cero uno cuatro ocho - dos cero cero nueve (P 1350148-2009).
