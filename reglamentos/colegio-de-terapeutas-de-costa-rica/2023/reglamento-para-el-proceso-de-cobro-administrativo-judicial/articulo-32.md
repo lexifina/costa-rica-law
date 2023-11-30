@@ -1,0 +1,1 @@
+Artículo 32.-Reincorporación. Una vez trascurrido el plazo de la inhabilitación para el ejercicio profesional, en caso de que el profesional solicite su reincorporación a este Colegio, deberá cancelar el total del monto adeudado al momento de su inhabilitación para el ejercicio profesional, y cancelar además los montos relacionados con el proceso de reincorporación.

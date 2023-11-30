@@ -1,0 +1,1 @@
+Artículo 4º-Cumplimiento de deberes. Cada colegiado es responsable de mantenerse al día con los pagos de las cuotas de colegiatura, de acuerdo con lo establecido en la Ley del Colegio de Terapeutas y la normativa interna del Colegio.

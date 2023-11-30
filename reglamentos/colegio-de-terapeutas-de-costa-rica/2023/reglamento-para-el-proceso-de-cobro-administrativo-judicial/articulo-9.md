@@ -1,0 +1,1 @@
+Artículo 9º-Vías de contacto. Las gestiones administrativas a las que se refiere el artículo anterior serán dirigidas de forma principal a las vías de contacto brindados por los Colegiados, y de forma complementaria a los medios de contacto de los Colegiados detectados por el Colegio o por el apoyo externo.

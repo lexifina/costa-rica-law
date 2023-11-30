@@ -1,0 +1,1 @@
+Artículo 25.-Efectos del arreglo de pago. Durante la vigencia del arreglo de pago, no se iniciará, o en su caso, se levantará la suspensión en el ejercicio de la profesión del Colegiado que lo formalice, por mientras se cumpla firmemente con el arreglo acordado.

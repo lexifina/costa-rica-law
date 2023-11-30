@@ -1,0 +1,1 @@
+Artículo 30.-Plazo de la Inhabilitación. La inhabilitación podrá ser impuesta por un plazo de uno a diez años; para lo cual la Junta Directiva valorará que exista proporcionalidad entre la cantidad de cuotas adeudadas por el profesional, y el plazo seleccionado para la sanción.

@@ -1,0 +1,1 @@
+Artículo 17.-Levantamiento de la suspensión. Se podrá levantar la suspensión en el ejercicio de la profesión de los Colegiados que normalicen su condición de morosidad, cuando realicen el pago total de los montos pendientes, formalicen un arreglo de pago con el Colegio, o según lo acuerde la Junta Directiva para situaciones con arreglos alternativos o excepcionales.

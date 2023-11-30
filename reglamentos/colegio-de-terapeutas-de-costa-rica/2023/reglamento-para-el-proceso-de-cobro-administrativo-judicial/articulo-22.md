@@ -1,0 +1,1 @@
+Artículo 22.-Responsables. El Departamento de Cobros se encargará junto con la Dirección Legal, de realizar todos los trámites de los arreglos de pago y suscribir los documentos idóneos para tal efecto, los cuáles deben contar con el visto bueno de la Dirección Ejecutiva.

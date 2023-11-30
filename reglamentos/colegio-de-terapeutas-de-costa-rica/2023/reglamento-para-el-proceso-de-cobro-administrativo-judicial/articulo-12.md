@@ -1,0 +1,1 @@
+Artículo 12.-Apercibimiento. Habiéndose agotado de forma infructuosa las gestiones administrativas, el Departamento de Cobro procederá a enviar un apercibimiento formal al Colegiado moroso. El apercibimiento deberá enviarse antes de que se consolide el estado de morosidad de seis cuotas, pudiéndose enviar cuantos apercibimientos se consideren oportunos.

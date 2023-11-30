@@ -1,0 +1,1 @@
+Artículo 18.-Plazo del levantamiento. El levantamiento de la suspensión se realizará en un plazo máximo de 5 días hábiles después de que haya acaecido alguna de las situaciones señaladas en el artículo anterior, y se le comunicará al Colegiado en cualquiera de los medios señalados para notificaciones.

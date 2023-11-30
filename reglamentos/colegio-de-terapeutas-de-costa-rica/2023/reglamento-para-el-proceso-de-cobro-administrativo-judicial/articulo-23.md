@@ -1,0 +1,1 @@
+Artículo 23.-Rango de plazos máximos para los arreglos de pago. Los rangos de plazos máximos para formalizar un arreglo de pago serán establecidos por el Colegio mediante procedimientos, instructivos y demás normativa interna.

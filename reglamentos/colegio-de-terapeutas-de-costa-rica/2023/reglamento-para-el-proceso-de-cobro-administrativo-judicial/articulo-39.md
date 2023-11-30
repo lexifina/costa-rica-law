@@ -1,0 +1,1 @@
+Artículo 39.-Reformas. Se delega en la Junta Directiva la facultad de realizar variaciones al presente Reglamento conforme a los criterios técnicos que al respecto suministren el Departamento Financiero-Contable, Fiscalía, Dirección Ejecutiva y Dirección Legal, con el propósito de mejorar la eficacia de la recaudación.

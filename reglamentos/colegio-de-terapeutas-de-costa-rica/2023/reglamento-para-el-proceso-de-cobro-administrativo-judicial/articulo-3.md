@@ -1,0 +1,7 @@
+Artículo 3º-Conceptos y Definiciones. Para los propósitos de aplicación e interpretación del presente Reglamento, deberán entenderse los siguientes conceptos:
+a. Cuotas de colegiatura: Costo mensual de la colegiatura, establecido por la Asamblea General.
+b. Colegiado moroso: Colegiado que presente más de una cuota vencida, después del cierre del mes en curso.
+c. Estado de morosidad: Se consolida con la suma de seis cuotas atrasadas, y da pie a la suspensión mediante acuerdo de la Junta Directiva.
+d. Arreglo de pago: Trámite formal a través del cual el colegiado se compromete a cancelar su deuda en tractos mensuales en un tiempo a convenir, de acuerdo con lo dispuesto por el Colegio.
+e. Suspensión: Interrupción temporal de los derechos del Colegiado y de la autorización para ejercer la profesión, cuando así lo acuerde la Junta Directiva por el incumplimiento al aporte de mínimo seis cuotas. Se levantará con el aporte total de las cuotas atrasadas o con la formalización de un arreglo de pago.
+f. Inhabilitación para el ejercicio profesional: Sanción impuesta a causa de la violación a los deberes y a las obligaciones establecidas en la Ley y en el Código de Ética del Colegio conforme se prevé en la Ley del Colegio de Terapeutas. Esta sanción conlleva para el sancionado la pérdida de la titularidad en su condición de miembro del Colegio, por el plazo dictado y hasta que, por resolución firme se decrete nueva incorporación del Colegiado.

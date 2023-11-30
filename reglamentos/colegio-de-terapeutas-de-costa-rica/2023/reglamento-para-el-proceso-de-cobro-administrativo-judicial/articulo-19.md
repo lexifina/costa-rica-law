@@ -1,0 +1,1 @@
+Artículo 19.-Seguimiento. El Departamento de Cobros en coordinación con la Dirección Ejecutiva, serán los encargados de dar seguimiento tanto a las suspensiones como a los arreglos de pago y a los medios alternativos de pago que se formalicen con los Colegiados, debiendo informar mensualmente a la Junta Directiva sobre dichas gestiones.

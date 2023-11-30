@@ -1,0 +1,1 @@
+Artículo 36.-Demanda. El Colegio podrá presentar las demandas de cobro judicial a través de las áreas internas o bien, podrá contratar a una empresa para dicha función, mediante los procedimientos de contratación de que dispone. Esta contratación requerirá de la aprobación de la Junta Directiva.
