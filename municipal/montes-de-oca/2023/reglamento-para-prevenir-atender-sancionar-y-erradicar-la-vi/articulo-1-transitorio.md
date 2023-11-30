@@ -1,0 +1,1 @@
+Transitorio I.-Para efectos de garantizar el trámite de las denuncias, la Alcaldía capacitará sobre a Ley N°10.235 y este reglamento, de manera prioritaria, a la Gestión de Desarrollo Humano, al Departamento de Talento Humano, y a las personas que intervienen en los procedimientos, en un plazo no mayor a tres meses contados a partir de la entrada en vigencia de esta ley.
