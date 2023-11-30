@@ -1,0 +1,3 @@
+MUNICIPALIDAD DE LIBERIA
+En la sesión extraordinaria Nº 096-2021, celebrada el 21 de Julio de 2021, el Concejo Municipal de Liberia, aprobó definitivamente por 7 votos positivos de los regidores Lidia Cortes, Byron Campos, Alejandro Morales, Alban Torres, Denis Baltodano, Fernando Madrigal y Ricardo Quirós , modificar el artículo 24 del Reglamento del Mercado Municipal y otros, para que lo consiguiente se lea:
+Artículo 24. Las personas físicas o jurídicas podrán ser arrendatarias de un máximo de tres locales comerciales en el mercado o terminal de buses, manteniendo la actividad comercial autorizada por el Concejo Municipal.
