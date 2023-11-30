@@ -1,0 +1,1 @@
+Artículo 3º-Deróguese el apartado e) del inciso 1) del artículo 6 del Reglamento para el Registro de Empresas ante la Dirección General de Migración y Extranjería y la Regularización Migratoria de su Personal, Decreto Ejecutivo N° 36576-G-COMEX del 09 de mayo de 2011.

@@ -1,0 +1,4 @@
+Artículo 2º-Modifíquese el inciso 2) del artículo 6 del Reglamento para el Registro de Empresas ante la Dirección General de Migración y Extranjería y la Regularización Migratoria de su Personal, Decreto Ejecutivo N° 36576-G-COMEX del 09 de mayo de 2011, para que se lea de la siguiente forma:
+"Artículo 6º-Empresas clasificación B: Las empresas Exportadores de Bienes o Servicios deberán cumplir con los siguientes requisitos:
+2) Carta de COMEX, mediante la cual recomiende la inclusión de la empresa en el registro establecido en el presente Reglamento. COMEX remitirá la carta a la Unidad correspondiente de la DGME en un plazo de tres días hábiles posteriores a su emisión, mediante los canales electrónicos habilitados por ambas instituciones. De igual forma, COMEX remitirá la carta a la empresa solicitante.
+(… )
