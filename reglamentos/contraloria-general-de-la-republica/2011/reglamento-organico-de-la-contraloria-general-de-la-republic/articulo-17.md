@@ -1,1 +1,0 @@
-Artículo 17.—Organización. La División Jurídica se encuentra organizada por funciones a cargo de Gerencias Asociadas dependientes de la Gerencia de División, cuyo número y distribución serán definidos por el Despacho Contralor, mediante resolución motivada en la que se determinarán las atribuciones específicas que ejercerán cada una de ellas.

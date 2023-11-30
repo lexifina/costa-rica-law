@@ -1,4 +1,0 @@
-SECCIÓN QUINTA
-De la organización interna de la División de Gestión de Apoyo
-Artículo 22.—De la División de Gestión de Apoyo. La División de Gestión de Apoyo depende orgánicamente del Despacho Contralor y se encuentra a cargo de una Gerencia de División.
-Agrupa al conjunto de unidades encargadas de adquirir, generar, transferir y potenciar la información y el conocimiento con base en el aprendizaje individual y colectivo, a través del potencial humano y de las tecnologías de información y comunicación; así como de determinar, obtener y proporcionar los recursos necesarios para garantizar el funcionamiento integral del órgano contralor. Adicionalmente, corresponde a la División de Gestión de Apoyo el brindar los servicios de capacitación a los clientes externos para fortalecer la capacidad de gestión y control de la administración pública.

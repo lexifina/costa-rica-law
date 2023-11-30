@@ -1,1 +1,0 @@
-Artículo 25.—De la Unidad de Gestión del Potencial Humano. Es la unidad encargada de apoyar la gestión efectiva e integrada de los recursos humanos a nivel institucional. Para ello, lidera el proceso de gestión del potencial humano y participa del proceso de asesoría interna en materias de su competencia.

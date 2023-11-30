@@ -1,7 +1,0 @@
-CAPÍTULO II
-De las atribuciones y funciones
-SECCIÓN PRIMERA
-De la organización interna del Despacho Contralor
-Artículo 5º—Del Despacho Contralor. El Despacho Contralor es la dependencia encargada de dirigir, organizar y controlar el quehacer institucional, por lo que está llamado a definir la dirección estratégica de la fiscalización y a adoptar las acciones internas y externas que le permitan a la Contraloría General ejercer sus labores de fiscalización superior de la Hacienda Pública y de rectoría del Sistema de Control y Fiscalización Superiores.
-Agrupa la totalidad de competencias que el ordenamiento jurídico ha conferido a la Contraloría General, las cuales por la estructura prevista y los requerimientos de organización, son distribuidas entre las diferentes unidades internas conforme con los términos del presente reglamento.
-Está integrado por un Contralor o Contralora General, quien es la máxima autoridad de la institución, de la que ejerce la representación judicial y extrajudicial; un Subcontralor o Subcontralora General quien sustituye al primero en sus ausencias temporales, lo asiste en el ejercicio de sus atribuciones y colabora en la formulación de la política de fiscalización del órgano contralor. El Contralor o la Contralora General, mediante resolución razonada, asignará a las diversas Divisiones cualquier otra función o competencia asignada por ley no contemplada en este reglamento.
