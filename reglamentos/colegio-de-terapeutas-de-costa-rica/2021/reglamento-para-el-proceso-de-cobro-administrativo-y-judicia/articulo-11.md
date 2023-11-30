@@ -1,2 +1,0 @@
-Artículo 11.-Levantamiento de la suspensión. Se podrá levantar la suspensión en el ejercicio de la profesión de los Colegiados que normalicen su condición de morosidad, cuando realicen el pago de los montos pendientes o formalicen un convenio de pago con el Colegio según lo establecido en este Reglamento.
-Para levantar dicha suspensión el Colegio tendrá un plazo máximo de 5 días hábiles, la cual se comunicará al Colegiado en cualquiera de los medios señalados para notificaciones.

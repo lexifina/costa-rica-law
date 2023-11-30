@@ -1,1 +1,0 @@
-Artículo 25.-Responsabilidad de cumplimiento. Corresponderá velar por la aplicación de este Reglamento, principalmente, a quien ostente el cargo de Director Ejecutiva del Colegio Profesional de Terapeutas de Costa Rica.

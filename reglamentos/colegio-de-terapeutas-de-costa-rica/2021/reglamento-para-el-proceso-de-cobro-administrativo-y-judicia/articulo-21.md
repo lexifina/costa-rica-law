@@ -1,1 +1,0 @@
-Artículo 21.-Normativa aplicable. El proceso judicial se tramitará de conformidad con lo está establecido en la ley 8989 y su reglamento, así como, normas internas del Colegio de Terapeutas de Costa Rica, Ley de Cobro Judicial, Código Procesal Civil, Código Civil, Ley de Notificaciones Judiciales y cualquier otra normativa que permita la recuperación de los montos adeudados.

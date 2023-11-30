@@ -1,1 +1,0 @@
-Artículo 18.-Incumplimiento del arreglo. En el caso que el colegiado moroso incumpliere el compromiso adquirido con el Colegio de Terapeutas de Costa Rica se procederá de inmediato, a iniciar el proceso de cobro judicial.

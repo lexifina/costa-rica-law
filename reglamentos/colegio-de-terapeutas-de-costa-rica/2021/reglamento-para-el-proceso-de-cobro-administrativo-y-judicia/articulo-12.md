@@ -1,1 +1,0 @@
-Artículo 12.-Seguimiento. El Departamento de Cobros en coordinación con la Dirección Ejecutiva, serán los encargados de dar seguimiento tanto a las suspensiones como a los convenios de pago que se firmen con los agremiados, debiendo informar mensualmente a la Junta Directiva sobre dichas gestiones.
