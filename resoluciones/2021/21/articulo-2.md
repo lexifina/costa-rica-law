@@ -1,1 +1,0 @@
-Artículo 2°-Derogar el artículo 14 del Reglamento Orgánico de la Contraloría General de la República, emitido mediante resolución de este Despacho Contralor Nº R-DC-97-2011 de las nueve horas del veintisiete de junio de dos mil once.
