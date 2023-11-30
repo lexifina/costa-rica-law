@@ -1,0 +1,1 @@
+ARTÍCULO 2- La concurrencia del ministro de Hacienda se realizará en la primera sesión ordinaria del mes de marzo de cada año; posterior a la presentación del informe, las fracciones legislativas podrán hacer uso de la palabra para lo que corresponda.
