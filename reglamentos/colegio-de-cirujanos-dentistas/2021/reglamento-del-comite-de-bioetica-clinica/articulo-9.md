@@ -1,3 +1,4 @@
 Artículo 9º-Cuórum. El cuórum para sesionar válidamente será de cuatro miembros y los acuerdos serán válidos cuando estos sean tomados por mayoría simple de los miembros presentes. Deberá especificase siempre el asunto sometido a votación y consignarse el resultado de esta, teniendo cada miembro el derecho a que se deje constancia de su voto disidente del acuerdo de mayoría, con la consigna de las razones de su votación.
 Los miembros suplentes podrán participar de las sesiones ordinarias y extraordinarias del Comité, con voto únicamente en ausencia del titular que sustituyan. Tendrán los mismos deberes de los miembros propietarios.
-Los miembros suplentes podrán sustituir en el cargo a cualquier miembro propietario que esté ausente.
+Los miembros suplentes podrán sustituir en el cargo a cualquier miembro propietario que esté ausente, excepto el miembro de la Comunidad, el cual deberá de ser un miembro permanente suplente de la comunidad.
+(Así reformado en sesión celebrada el 3 de diciembre de 2023)

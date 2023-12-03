@@ -14,3 +14,4 @@ Reglamento del Comité de Bioética Clínica
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-11-03 | la propia norma |
+| 2 | 2023-12-03 | Reglamento 0 (2023-12-03) |
