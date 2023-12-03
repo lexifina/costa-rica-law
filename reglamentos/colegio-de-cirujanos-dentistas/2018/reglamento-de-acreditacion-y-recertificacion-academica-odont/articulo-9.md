@@ -1,1 +1,1 @@
-Artículo 9º—La reposición de los miembros propietarios del CARAO ante renuncia, remoción o muerte, se hará en un plazo no mayor a noventa días hábiles posteriores a la vacante. Durante el proceso será un suplente quien ocupe la vacante.
+Artículo 9°-El CARO nombrará por mayoría simple y por un período de dos años con posibilidades de reelección consecutiva e indefinida, a su coordinador, quien presidirá las sesiones plenarias.

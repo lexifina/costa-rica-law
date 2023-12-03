@@ -1,3 +1,6 @@
-Artículo 10.—La Asamblea General nombrará a cinco miembros suplentes escogidos de una nómina que el CARAO presentará a la Asamblea General por medio de la Junta Directiva.
-La selección de la suplencia para las vacantes se escogerá por votación, del CARAO, entre los miembros suplentes.
-Los requisitos para ser miembro suplente son los mismos establecidos para los propietarios en el artículo N° 8 de este reglamento. La vacante de un miembro suplente se llenará en la Asamblea General siguiente o la que se convoque para tal efecto, después de que la Junta Directiva del CCDCR reciba la notificación por parte de quien preside el Consejo.
+Artículo 10.-Son atribuciones del coordinador del CARO
+10.1. Convocar y presidir las sesiones ordinarias y extraordinarias.
+10.2. Representar al CARO ante la Asamblea General, Junta Directiva y entes proveedores. Al término de cada representación, el coordinador presentará un informe de lo actuado ante el CARO durante su período.
+10.3. Dar seguimiento a la ejecución de los acuerdos del CARO y de la Junta Directiva en materia de Recertificación Profesional Odontológica.
+10.4. Velar por el cumplimiento del presente reglamento.
+10.5. Elaborar junto con los miembros titulares del CARO el ante-proyecto de presupuesto anual y presentarlo ante la Comisión de Tesorería de la Junta Directiva del CCDCR.

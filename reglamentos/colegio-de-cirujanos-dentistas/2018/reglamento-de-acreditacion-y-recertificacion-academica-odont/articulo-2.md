@@ -1,2 +1,1 @@
-Artículo 2º—El CARAO en su calidad de Consejo Asesor, responde a la Junta Directiva. Su autoridad reside en la toma de decisiones inherente a su función, la ejecución de su presupuesto, y la aplicación de su normativa, con el propósito de actuar de forma transparente, imparcial, objetiva e independiente de otras instancias.
-Este Consejo Asesor se compone de dos comisiones permanentes, una de acreditación y una de recertificación.
+Artículo 2°-El CARO en su calidad de Consejo Asesor, responde a la Junta Directiva. Su autoridad reside en la toma de decisiones inherente a su función, la ejecución de su presupuesto, y la aplicación de su normativa, con el propósito de actuar de forma transparente, imparcial, objetiva e independiente de otras instancias.

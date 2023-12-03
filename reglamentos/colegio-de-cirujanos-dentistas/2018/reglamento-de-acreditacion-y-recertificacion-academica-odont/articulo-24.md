@@ -1,7 +1,5 @@
-CAPÍTULO VII
-De los expositores o conferencistas
-Artículo 24.—
-24.1. Los expositores nacionales deberán estar incorporados y al día en sus responsabilidades y obligaciones con su respectivo colegio profesional o tener licencia de práctica profesional vigente, expedido por su colegio profesional respectivo.
-24.2. Tanto los expositores nacionales como extranjeros, deberán presentar currículum vitae actualizado de sus dos últimos años de no más de tres páginas, así como una fotocopia de sus títulos académicos.
-24.3. Los expositores nacionales o extranjeros participantes en la actividad educativa, deben contar con 5 años de experiencia mínima laboral o docente, preferiblemente con especialidad, maestría o doctorado. En casos especiales, el CARAO emitirá el criterio respectivo.
-24.4. El CARAO se reserva el derecho de obviar alguno de los requisitos de los conferencistas en casos de reconocida trayectoria y prestigio, con el aval debidamente comprobado de un odontólogo (a) que esté al día en sus responsabilidades y deberes para con el CCDCR.
+CAPÍTULO IX
+Creditaje y Tiempo del Programa de Recertificación.
+Artículo 24.-Para considerar la Recertificación Profesional, el participante cumplirá con un mínimo total de 12 créditos/ horas en un período de un año. El periodo de recertificación es anual. La asignación de créditos/hora se establecerá de la siguiente forma:
+24.1. Participante: Por cada hora = 1 crédito/hora.
+24.2. Dictante, panelista, conferencista, moderador e instructor: Por cada hora = 2 créditos/hora.

@@ -16,3 +16,4 @@ Reglamento de acreditación y recertificación académica odontología
 | 1 | 2018-12-21 | la propia norma |
 | 2 | 2019-11-24 | Reglamento 87 (2019-11-24) |
 | 3 | 2021-04-08 | Reglamento 89 (2021-04-08) |
+| 4 | 2023-12-03 | Reglamento 101 (2023-12-03) |

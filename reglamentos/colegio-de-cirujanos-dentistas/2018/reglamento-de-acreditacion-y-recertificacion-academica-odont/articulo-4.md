@@ -1,3 +1,3 @@
 CAPÍTULO II
-Definiciones
-Artículo 4º—Para efectos reglamentarios, se entenderá la acreditación como el proceso mediante el cual el CARAO puede certificar a un ente proveedor de educación de interés odontológico, siempre y cuando se cumplan los requisitos administrativos y académicos normados en el presente reglamento donde se ofrece al profesional en Odontología, educación continua de calidad.
+Definiciones.
+Artículo 4°-Para efectos reglamentarios, se define a la recertificación como el proceso mediante el cual el CARO puede recertificar a los profesionales en odontología, siempre y cuando se cumplan los requisitos académicos normados en el presente reglamento.
