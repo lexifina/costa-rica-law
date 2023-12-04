@@ -1,1 +1,0 @@
-Artículo 9º—La Administración dispondrá un plazo de ocho días hábiles, prorrogables por un plazo igual en casos muy calificados, a juicio de del Área Social de esta Municipalidad, para la emisión de la recomendación final.

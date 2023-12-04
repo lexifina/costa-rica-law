@@ -1,1 +1,0 @@
-Artículo 13.—Es obligación de los beneficiarios de esta clase de ayudas emplear los recursos para el fin que le fueron concedidos, caso contrario, se le colocará en una lista de personas no aptas para recibir ayudas municipales. Para tal fin el Área Social de esta Municipalidad verificará el uso dado por el beneficiario, de lo cual dejará constancia en el expediente.

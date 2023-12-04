@@ -1,3 +1,0 @@
-Artículo 16.—Para efectos de lo dispuesto en el presente reglamento, se entenderá por:
-a. Centros Educativos: aquellos establecimientos como jardín de niños, escuelas y colegios financiados por el Ministerio de Educación Pública, que estén ubicados y presten servicios en el Cantón de Mora.
-b. Organizaciones de Beneficencia o Bienestar Social: Toda entidad pública o privada, organizada bajo las figuras de asociaciones, fundaciones o empresas públicas, que se dediquen a la atención de personas en riesgo social, que promuevan y desarrollen obras, proyectos, programas o actividades de bien común o de carácter social, que coadyuven al mejoramiento del nivel de vida de la comunidad del Cantón de Mora y cuyo domicilio y centro de acción sea el cantón de Mora.

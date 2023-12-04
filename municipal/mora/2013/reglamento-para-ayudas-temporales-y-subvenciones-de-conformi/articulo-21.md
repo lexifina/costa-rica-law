@@ -1,1 +1,0 @@
-Artículo 21.—El monto de la subvención que la Municipalidad transferirá a cada una de los centros educativos u organizaciones solicitantes, será aprobado por el Concejo Municipal, mediante el trámite presupuestario que corresponda.
