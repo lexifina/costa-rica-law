@@ -1,0 +1,2 @@
+CORREOS DE COSTA RICA S. A.
+De conformidad con el Acuerdo Nº 10573, tomado en la sesión ordinaria mil setecientos noventa del 07 de julio del 2023, la Junta Directiva de Correos de Costa Rica, autoriza derogar el Reglamento para el pago de horas extras, para darle rango de política laboral interna. La última actualización a la norma que regula el pago de tiempo extraordinario de Correos de Costa Rica se aprobó mediante el Acuerdo 10568, sesión ordinaria mil setecientos ochenta y nueve del 30 de junio del 2023.
