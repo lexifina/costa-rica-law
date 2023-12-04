@@ -20,3 +20,4 @@ Reglamento del Mercado Municipal de Heredia
 | 5 | 2003-04-07 | Reglamento municipal 80 (2003-04-07) |
 | 6 | 2019-11-25 | Reglamento municipal 285 (2019-11-25) |
 | 7 | 2022-07-11 | Reglamento municipal 187 (2022-07-11) |
+| 8 | 2023-12-04 | Reglamento municipal 308 (2023-12-04) |
