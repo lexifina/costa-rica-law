@@ -14,3 +14,4 @@ Reglamento para la gestión integral de los residuos sólidos de la Municipalida
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-12-24 | la propia norma |
+| 2 | 2023-12-04 | Reglamento municipal 188 (2023-12-04) |

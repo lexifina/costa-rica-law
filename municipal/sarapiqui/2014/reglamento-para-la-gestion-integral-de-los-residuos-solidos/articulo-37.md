@@ -1,6 +1,6 @@
 CAPÍTULO DÉCIMO SEGUNDO
 Prohibiciones
-Artículo 37.—Prohibiciones para los generadores de residuos. Queda prohibido depositar en los cuerpos de agua, sus zonas de protección, terrenos desocupados, en la vía pública o en sitios públicos, lo siguiente:
+Artículo 37.-Prohibiciones para los generadores de residuos. Queda prohibido depositar en los cuerpos de agua, sus zonas de protección, terrenos desocupados, en la vía pública o en sitios públicos, lo siguiente:
 1. Residuos peligrosos industriales y comerciales.
 2. Sustancias líquidas y excretas.
 3. Residuos infectocontagiosos.
@@ -18,3 +18,7 @@ Además de lo anterior, queda prohibido:
 5. Llevar a cabo la gestión, el transporte, el almacenamiento, la valorización, el tratamiento y la disposición de residuos en condiciones contrarias a las establecidas en las disposiciones legales correspondientes y sin autorización alguna.
 6. Mezclar residuos ordinarios no reciclables y peligrosos, contraviniendo lo dispuesto en este Reglamento y demás disposiciones normativas.
 7. Comprar, vender y almacenar material valorizable robado o sustraído ilícitamente.
+8. Ofrecer al personal de recolección, dadivas de ningún tipo, a cambio de prestar el servicio de forma anómala, a lo que estipula el presente reglamento.
+9. Colocar animales muertos en cualquier sitio: vía pública, recipientes, contenedores de residuos, entre otros, causando molestias a los pobladores. Estos deberán ser tratados por cuenta de los dueños del animal.
+10. Abrir o extraer residuos que estén contenidos en bolsas o recipientes y/o depositados en contenedores privados y dispuestos para el servicio de recolección de residuos.
+(Así reformado en sesión N° 188 del 4 de diciembre de 2023)
