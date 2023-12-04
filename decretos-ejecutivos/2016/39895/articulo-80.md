@@ -1,9 +1,15 @@
 CAPÍTULO II
 OBTENCIÓN DE ÓRGANOS Y TEJIDOS PROVENIENTES
 DE DONADOR FALLECIDO
-Articulo 80.- Toda persona mayor de dieciocho años podrá manifestar su voluntad de ser donante de sus órganos y / o tejidos una vez fallecida mediante los siguientes medios:
-a) Registrándose a través de la página web del Ministerio de Salud y llenando el formulario con firma digital o mediante el mecanismo que dicha institución defina para garantizar este cometido.
-b) Registrándose a través de la página web de la Caja Costarricense del Seguro Social, con firma digital o mediante el mecanismo que dicha institución defina para garantizar este cometido.
-c) Manifestándolo y que conste en el momento de tramitar o renovar la cédula de identidad y la licencia de conducir y en caso de los extranjeros a través de la cedula de residencia.
-d) Comunicando a sus familiares, su voluntad que al fallecer se donen sus órganos.
-e) Indicándolo en Carné de Asegurado.
+Artículo 80.- Toda persona de conformidad con la Ley N° 9222, podrá manifestar la voluntad de ser donante de sus órganos y / o su negativa a donar tejidos, lo cual se realiza de la siguiente manera:
+a) Apersonarse a las Áreas Rectoras de Salud del Ministerio de Salud o con firma digital siguiendo el procedimiento que dicha institución implemente para tal fin.
+b) Conforme lo dispuesto en el artículo 23 de la Ley N° 9222, el Tribunal Supremo de Elecciones (TSE) y la Dirección General de Migración y Extranjería, incluirán en todo documento de identificación que emitan, el consentimiento o negativa para donar órganos, así como la negativa a donar tejidos, según lo manifieste el ciudadano. Esta información deberá estar disponible para consulta y descarga por parte del Ministerio de Salud para uso del Sistema Nacional de Donación y Trasplantes (SINADOC), donde podrá ser consultada por el personal de los establecimientos de salud autorizados por la Secretaría para realizar actividades de donación y trasplante de órganos y tejidos humanos. En el caso de los documentos de identificación de los menores de edad, el consentimiento para convertirse en donante deberá ser externado por quien ejerza la responsabilidad parental.
+c) Conforme lo dispuesto en el artículo 23 de la Ley N° 9222, la Caja Costarricense de Seguro Social (CCSS) deberá incluir una funcionalidad en el sistema de expediente digital (EDUS) que permita la inclusión y actualización de la anuencia a la donación de órganos o negativa a la donación de tejidos de la persona usuaria.
+La Caja Costarricense de Seguro Social debe en la primera consulta de cada año calendario registrar la anuencia a la donación de órganos o negativa a la donación de tejidos. Para estos efectos el personal médico deberá consignar en el EDUS lo señalado por el paciente usuario.
+Dicha consulta se debe realizar en las atenciones de consulta externa en los tres niveles de atención.
+En cualquier atención que la persona usuaria tenga en la CCSS podrá manifestar su cambio de opinión en cuyo caso, el personal médico debe actualizar dicha voluntad en el EDUS.
+La CCSS y el Ministerio de Salud deberán interoperar los sistemas a efectos de mantener actualizada y sincronizada diariamente la variable de anuencia a la donación de órganos o negativa a la donación de tejidos.
+En caso de la donación expresa de órganos, cuando la persona manifieste indecisión, se entenderá como una negativa a la donación de órganos.
+En caso de la donación de tejidos, cuando la persona manifieste indecisión, se aplicará la donación presunta, la cual es definida como la ausencia de una negativa explicita en vida por parte del individuo. Cuando medie ausencia de información en las bases de datos podrá realizarse la extracción de tejidos una vez que se le haya comunicado el procedimiento a realizar a la persona que realiza las gestiones para retirar el cuerpo.
+Una vez finalizado el procedimiento de extracción de órganos o tejidos, el establecimiento extractor deberá entregar un informe a la persona que realiza las gestiones para retirar el cuerpo, que detalle los tejidos que fueron extraídos.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 44364 del 4 de diciembre del 2023 )

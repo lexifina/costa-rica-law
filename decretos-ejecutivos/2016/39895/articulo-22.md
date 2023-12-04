@@ -1,4 +1,6 @@
 CAPÍTULO III
 INSTITUCIONES Y ESTABLECIMIENTOS DE SALUD CON PROCESOS DE
 DONACIÓN Y TRASPLANTE DE ÓRGANOS Y TEJIDOS
-Artículo 22.- La obtención de órganos y tejidos para su ulterior trasplante sólo podrá realizarse en los establecimientos de salud expresamente autorizados por la Secretaria del Ministerio de Salud.
+Artículo 22.- La obtención de órganos y tejidos para su ulterior trasplante sólo podrá realizarse en los establecimientos de salud expresamente autorizados por la Secretaría, la cual se encarga de la fiscalización del proceso de distribución, asignación, donación, extracción, preparación, transporte y trasplante de órganos y tejidos de donante cadavérico.
+Los establecimientos de salud donde se desee realizar trasplante de órganos y tejidos, tanto de donante vivo como cadavérico, deben cumplir con lo establecido en el programa de calidad y seguridad de los procesos de donación y trasplante, así como lo relacionado a normativa de buenas prácticas que emita la Secretaría. En el caso del Departamento de Medicina Legal del Organismo de Investigación Judicial, la autorización por parte de la Secretaría se otorgará con sustento en el Permiso Sanitario de Funcionamiento emitido por el Ministerio de Salud y los términos establecidos en el convenio suscrito entre el Ministerio de Salud, la Caja Costarricense de Seguro Social y el Organismo de Investigación Judicial para la extracción de tejidos.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 44364 del 4 de diciembre del 2023)

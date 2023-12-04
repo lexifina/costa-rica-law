@@ -14,3 +14,4 @@ Reglamento a la Ley de Donación y Trasplante de Órganos y Tejidos Humanos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-10-12 | la propia norma |
+| 2 | 2023-12-04 | Decreto Ejecutivo 44364 (2023-12-04) |
