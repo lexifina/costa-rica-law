@@ -1,0 +1,1 @@
+Artículo 9º-Derechos y obligaciones del delegado suplente. El delegado suplente tendrá los mismos derechos y obligaciones del artículo anterior, mientras que haya mediado causa justa y fundamentada de que sea necesaria la sustitución en caso de llegar a surgir caso fortuito o fuerza mayor que así lo obligue las circunstancias.

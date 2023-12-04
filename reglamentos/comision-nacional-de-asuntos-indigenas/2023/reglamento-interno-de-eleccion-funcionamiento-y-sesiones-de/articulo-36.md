@@ -1,0 +1,4 @@
+Artículo 36.-Se entenderá por sesión virtual, aquella que se realiza utilizando cualquiera de las tecnologías de información y comunicación asociadas a la red de Internet, que garanticen tanto la posibilidad de una comunicación simultánea entre los miembros de la Junta Directiva durante toda la sesión, como su expresión mediante documentación electrónica que permita el envío de la imagen, sonido y datos. Se podrá acordar la celebración de una sesión virtual, cuando medien las siguientes circunstancias:
+a) Cuando se imposibilite al miembro o miembros asistir a la sesión presencial, por razones de fuerza mayor, debidamente justificadas y comprobadas.
+b) Cuando el miembro comunique con antelación su salida del país y la imposibilidad para asistir en forma presencial a una o varias sesiones.
+c) En los dos supuestos anteriores, el período para sesionar en forma virtual, no podrá exceder las seis sesiones en el curso de un año, sea en forma consecutiva o alterna.

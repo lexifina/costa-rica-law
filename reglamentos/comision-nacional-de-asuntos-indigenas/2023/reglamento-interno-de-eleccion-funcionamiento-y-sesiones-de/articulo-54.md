@@ -1,0 +1,1 @@
+Artículo 54.-No se podrá negar el acceso de los particulares al examen de las actas de la Junta Directiva, salvo cuando en las mismas aparezca consignado un dato que, de acuerdo con las normas legales vigentes, deba ser considerado como confidencial, en cuyo caso no habrá acceso a ese dato. Pero sí al resto de la información consignada en el acta respectiva.

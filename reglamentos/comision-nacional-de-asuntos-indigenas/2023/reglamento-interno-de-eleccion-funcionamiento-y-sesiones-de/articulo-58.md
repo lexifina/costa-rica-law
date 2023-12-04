@@ -1,0 +1,1 @@
+Artículo 58.-Presentada la solicitud de revisión, verbal o escrita, el o los acuerdos sujetos a revisión no surtirán efectos jurídicos de ninguna especie, ni podrán ser comunicados u ejecutados, hasta que se resuelva la solicitud en la próxima reunión de la Junta Directiva, siempre y cuando no sea una sesión especial que así la definan los reglamentos.

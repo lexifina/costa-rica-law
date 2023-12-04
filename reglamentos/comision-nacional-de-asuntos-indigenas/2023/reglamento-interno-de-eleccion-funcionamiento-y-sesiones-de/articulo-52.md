@@ -1,0 +1,1 @@
+Artículo 52.-Las partes dispositivas de los acuerdos y resoluciones, los comunicara el secretario de la Junta Directiva (a) y serán ejecutados por la Dirección Ejecutiva (a) a los interesados y podrán hacerse del conocimiento público cuando, a juicio de la Junta Directiva, sea conveniente hacerlo.

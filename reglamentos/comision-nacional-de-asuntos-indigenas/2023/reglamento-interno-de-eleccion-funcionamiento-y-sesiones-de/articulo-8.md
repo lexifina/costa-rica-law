@@ -1,0 +1,1 @@
+Artículo 8º-Derechos y obligaciones del delegado propietario. El delegado propietario tendrá voz y voto en la Asamblea y también podrá postularse a integrar la nómina de los siete miembros de Junta Directiva. Deberá presentar su cédula de identidad vigente y participar de manera activa, transparente y seria en la celebración de la Asamblea.

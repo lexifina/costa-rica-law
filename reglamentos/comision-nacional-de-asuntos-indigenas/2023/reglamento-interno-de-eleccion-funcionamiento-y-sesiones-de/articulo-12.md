@@ -1,0 +1,1 @@
+Artículo 12.-Dirección de la Asamblea General. Se establecerá una Presidencia junto con la secretaria de la Asamblea, los cuales tendrán como función dirigir la Asamblea, velar por mantener el orden y el respeto en su celebración, realizar la validación de los votos y levantar el acta de la Asamblea.

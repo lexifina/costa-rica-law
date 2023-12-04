@@ -1,0 +1,1 @@
+Artículo 14.-Reelección. Conforme lo establece el numeral 16 de la Ley Nº 5152, un miembro de la Junta Directiva podrá ser reelecto; para ello bastará con la nominación que de él (a) haga algún representante de una ADI ante la Asamblea General y para lo cual se someterá al proceso de elección indicado en este reglamento.

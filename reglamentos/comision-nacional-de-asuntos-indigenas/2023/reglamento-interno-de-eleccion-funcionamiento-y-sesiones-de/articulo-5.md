@@ -1,0 +1,1 @@
+Artículo 5º-Requisitos de los delegados propietarios y suplentes. Deberán ser indígena mayor de edad, pertenecer al territorio indígena al que representan y no poseer causas penales abiertas de delitos contra la Administración Pública. Las ADIS deberán velar porque exista paridad de género en sus designaciones.

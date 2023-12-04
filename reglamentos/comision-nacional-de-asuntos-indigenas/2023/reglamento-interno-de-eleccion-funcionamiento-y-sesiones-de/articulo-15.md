@@ -1,0 +1,1 @@
+Artículo 15.-Levantamiento del acta. Una vez concluida la Asamblea deberá levantarse un acta donde consten los principales puntos discutidos y acuerdos tomados en la designación de la Junta Directiva. La misma deberá ser protocolizada por notario público.

@@ -1,0 +1,1 @@
+Artículo 51.-Las actas de las sesiones de la Junta deberán ser aprobadas en la próxima sesión ordinaria de Junta Directiva, antes de esa aprobación carecerán de firmeza los acuerdos tomados, a menos que los miembros presentes acuerden su firmeza por votación de dos tercios de la totalidad de sus miembros.

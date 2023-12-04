@@ -1,0 +1,1 @@
+Artículo 30.-Las convocatorias se harán por escrito con tres días naturales de antelación. Sin embargo, en casos de urgencia podrán hacerse hasta con veinticuatro horas de antelación y por medio de correo electrónico.

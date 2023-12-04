@@ -1,0 +1,1 @@
+Artículo 7º-Sustitución de los delegados. El cambio de las personas delegadas por caso de fuerza mayor o caso fortuito deberá acreditarse aportando los mismos documentos, y excepcionalmente mediante documento firmado por el total de los miembros de la Junta Directiva en caso que la misma no puede por motivos fundamentados realizar una sesión extraordinaria.
