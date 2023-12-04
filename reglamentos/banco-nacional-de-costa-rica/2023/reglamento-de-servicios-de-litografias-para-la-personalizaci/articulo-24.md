@@ -1,0 +1,2 @@
+Artículo 24: Confidencialidad.
+Respetar el principio de la confidencialidad. La litografía deberá comprometerse a mantener la mayor reserva, discreción secreta y manejar con estricta confidencialidad toda información escrita, verbal o en medio magnético que le sea suministrada o se produzca respecto a todos los datos, diagramas y esquemas de cualquier índole (independientemente del medio o formato que le haya sido facilitado), a que tuviera conocimiento o información en virtud de la alianza.

@@ -1,0 +1,3 @@
+Artículo 21: Revisión y activación o devolución del acta.
+El Banco se compromete a revisar el acta (acta, muestra cero y copia del cheque original debidamente anulado) con el objetivo de activar o devolver los cheques el mismo día en que se recibe el trámite. En caso de devolución del acta, la litografía deberá atender los cambios solicitados por el Banco, para posteriormente, volver a someterlo a revisión ante el Banco con el fin de obtener la activación de los cheques.
+De acuerdo con lo anterior, la litografía será la responsable de notificarle al cliente cuando los cheques estén debidamente activados y puedan realizar uso de estos.

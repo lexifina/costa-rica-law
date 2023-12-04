@@ -1,0 +1,9 @@
+Artículo 15: Gestión de solicitudes.
+Una vez que el cliente haya seleccionado a la litografía con la cuál desee producir sus cheques de Serie Especial, deberá de contactarlos directamente para iniciar el trámite respectivo ante el Banco. La litografía será la encargada de recopilar la información del cliente con el objetivo de conformar el expediente de solicitud ante el Banco. A continuación, se detallan los documentos que se deben de completar para conformar el expediente:
+- Carta litografía de liberación de responsabilidad al Banco con sus respectivas firmas (machote brindado por el Banco a la Litografía).
+- Carta cliente de liberación de responsabilidad al Banco con su respectiva firma (machote brindado por el Banco a la Litografía).
+- Diseño del cheque a producir con su respectiva personalización (datos variables del cliente y el logo es opcional) y una copia del mismo, ambos debidamente revisados y firmados por el cliente.
+Importante mencionar, que la carta cliente debe de estar firmada según las reglas establecidas por el Banco con su respectivo nombre y número de cédula del autorizado. Los artes de los cheques a personalizar deben de contar con al menos una firma registrada ante el Banco Nacional, acompañado del nombre completo y número de cédula.
+Cuando la litografía cuente con el expediente completo de acuerdo con la solicitud del cliente, deberá de entregarlo al Banco en un plazo máximo de quince (15) días hábiles. Por lo que, para corroborar este plazo, la forma de cálculo será la siguiente:
+- Fecha Inicial: Se considera la fecha en la carta cliente.
+- Fecha Final: Se considera el día en que se recibe el expediente.
