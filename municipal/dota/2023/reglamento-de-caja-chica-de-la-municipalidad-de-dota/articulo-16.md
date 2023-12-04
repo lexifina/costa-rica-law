@@ -1,0 +1,1 @@
+Artículo 16.-Todo arqueo de caja chica se realizará en presencia de la Jefatura del Departamento de Tesorería. Dicha Jefatura tendrá el derecho de pedir una segunda verificación si mantiene dudas sobre el resultado obtenido. Si el resultado fuera el mismo, se procederá de conformidad con lo que prescribe el artículo precedente.
