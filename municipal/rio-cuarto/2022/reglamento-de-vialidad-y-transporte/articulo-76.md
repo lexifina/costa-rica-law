@@ -1,1 +1,0 @@
-Artículo 76-. Derogaciones. El presente Reglamento deroga el "Reglamento sobre el procedimiento para recibir, declarar, aceptar vías públicas ante donación y la reapertura ante el estrechamiento y cierres de calles y caminos en el cantón de Río Cuarto" del 16 de octubre de 2020

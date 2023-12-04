@@ -1,5 +1,7 @@
-CAPÍTULO CUARTO
-PROCEDIMIENTO PARA LA EJECUCIÓN DE NUEVOS PROYECTOS VIALES
-DESARROLLADOS POR ENTES PÚBLICOS Y SU INCORPORACIÓN EN EL
-INVENTARIO VIAL CANTONAL
-Artículo 50-. Desarrollo de proyectos viales por parte de entes públicos e incorporación en el Inventario Vial Cantonal. De conformidad con el marco legal vigente y con las políticas municipales en materia de gestión vial, la Municipalidad de Río Cuarto autorizará nuevos proyectos viales ejecutados por entes públicos. Para su ejecución deberán cumplirse las disposiciones que establece el presente capítulo.
+Artículo 50-. Presentación y recibo de la solicitud: comprende la presentación de la solicitud formal de reapertura de calle pública ante la UTGV. Ésta podrá ser presentada por el interesado o bien por cualquiera de las dependencias municipales encargadas de la gestión vial cantonal. Dicha Unidad abrirá el expediente administrativo correspondiente asignándole el número de oficio o número de caso que corresponda. La solicitud deberá comprender los siguientes datos:
+a) Datos y calidades del solicitante.
+b) Dirección y datos de contacto para notificaciones.
+c) Identificación de la vía objeto de declaratoria según nombre conocido o propuesto, longitud, ubicación geográfica en la hoja escala 1:50.000 del IGN o en información oficial disponible en el Ministerio de Hacienda, en la Municipalidad o en el Registro Público, e identificación de sectores o comunidades a las cuales da acceso.
+d) Descripción detallada del estado físico de la vía incluyendo ancho probable del derecho de vía potencial, tipo de superficie y existencia de infraestructura pública para conducción y evacuación pluvial.
+e) Testimonio bajo fe de juramento de al menos tres (3) ciudadanos como testigos que puedan indicar la existencia del camino o calle pública, o el ancho del derecho de vía.
+f) Documentos probatorios que demuestren la condición de calle pública, así como del proceso de cierre del cual ha sido objeto. Esta información podrá derivarse de los datos o información disponible en la cartografía oficial del Instituto Geográfico Nacional, información del Ministerio de Hacienda, de la Municipalidad o del Registro Público.

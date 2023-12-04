@@ -14,3 +14,4 @@ Reglamento de vialidad y transporte
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-04-29 | la propia norma |
+| 2 | 2023-12-04 | Reglamento municipal 240 (2023-12-04) |

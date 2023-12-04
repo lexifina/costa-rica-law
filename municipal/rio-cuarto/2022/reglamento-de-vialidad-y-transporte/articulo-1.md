@@ -12,8 +12,11 @@ Título IV: Diseño y Construcción
 Título V: Procedimientos
 Título VI: Transporte Público
 Título VII: Normas Finales
+(Nota de Sinalevi: Esta norma fue reformada parcialmente y reproducido su texto en forma íntegra en sesión 240-2023 del 4 de diciembre del 2023 y publicada en el Alcance Digital N° 1 a La Gaceta N° 1 del 8 de enero del 2024, por lo que se reproduce a continuación:)
+MUNICIPALIDAD DE RÍO CUARTO
+REFORMA INTEGRAL AL REGLAMENTO DE VIALIDAD Y TRANSPORTE
 TITULO PRIMERO
-NORMAS GENERALES
+DISPOSICIONES GENERALES
 CAPÍTULO PRIMERO
 MARCO LEGAL
-Artículo 1-. Marco Normativo. La Municipalidad de Río Cuarto, en adelante denominada como la Municipalidad, de conformidad con las facultades que le otorga el artículo 169 de la Constitución Política de Costa Rica; la Ley de Planificación Urbana Nº4240 y sus reformas; la Ley General de Caminos Públicos Nº5060; la ley Especial para la Transferencia de Competencias: Atención Plena y Exclusiva de la Red Vial Cantonal Nº9329 y su reglamento; la Ley de Administración Vial Nº6324; la Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial Nº9078; y el Código Municipal Ley Nº7794, aplica el presente REGLAMENTO DE VIALIDAD Y TRANSPORTE.
+Artículo 1-. Marco Normativo. La Municipalidad de Río Cuarto, en adelante denominada como la Municipalidad, de conformidad con las facultades que le otorga el artículo 169 de la Constitución Política de Costa Rica; la Ley de Planificación Urbana Nº4240 y sus reformas; la Ley General de Caminos Públicos Nº5060; la ley Especial para la Transferencia de Competencias: Atención Plena y Exclusiva de la Red Vial Cantonal Nº9329 y su reglamento; la Ley de Administración Vial Nº6324; la Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial Nº9078, la Ordenanza Municipal: Política Pública de ordenamiento Territorial para el cantón de Río Cuarto; y el Código Municipal Ley Nº7794, la aplica el presente REGLAMENTO DE VIALIDAD Y TRANSPORTE.

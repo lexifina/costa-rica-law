@@ -1,8 +1,10 @@
-Artículo 44-. Estudio Previo. una vez cumplidas a satisfacción las actividades y procesos descritos en los artículos anteriores, la Unidad Técnica de Gestión Vial podrá proceder a realizar el estudio previo de la vía, el cual comprende:
-a) Levantamiento en campo del trazado y longitud de la vía.
-b) Levantamiento en campo del ancho del derecho de vía propuesto.
-c) Determinación de componentes requeridos conforme las disposiciones del presente reglamento (anchos mínimos de calzada, cordón y caño, franja verde y acera).
-d) Necesidades (mejoramiento, reconstrucción o ampliación).
-e) Jerarquía potencial de la vía (clasificación).
-f) Proyección de presupuesto según paquete estructural y acabado previsto.
-Como resultado del estudio previo, la Unidad Técnica de Gestión Vial emitirá un informe técnico con detalle del cumplimiento de los requisitos y disposiciones establecidas en este Reglamento para la declaratoria de calle pública, el detalle del levantamiento de campo y la recomendación correspondiente para el Concejo Municipal.
+CAPÍTULO CUARTO
+PROCEDIMIENTO DE DECLARATORIA DE CALLE PÚBLICAS DE LAS
+PROPUESTAS VIALES INCORPORADAS EN LA ORDENANZA
+Artículo 44-. Presentación de Solicitud. Comprende la presentación de la solicitud formal de declaratoria de calle pública. Ésta podrá ser presentada por el interesado o bien por cualquiera de las dependencias municipales encargadas de la gestión vial cantonal. Deberá ser presentada ante la Unidad Técnica de Gestión Vial para su debido estudio; esta Unidad abrirá el expediente administrativo correspondiente asignándole el número de oficio o número de caso que corresponda. La solicitud deberá comprender los siguientes datos mínimos:
+a) Datos y calidades del solicitante.
+b) Dirección y datos de contacto para notificaciones.
+c) Identificación de la vía objeto de declaratoria según nombre conocido o propuesto, longitud, e identificación de sectores o comunidades a las cuales da acceso.
+d) Plano de agrimensura de la totalidad del camino elaborado por un profesional en la materia, con indicación de longitud, derecho de vía y colindancias, así como diagrama de localización sobre la hoja cartográfica escala 1:50.000 del IGN.
+e) Informe técnico -suscrito por un profesional habilitado por el CFIA- que incluya la descripción del estado físico de la vía incluyendo ancho propuesto del derecho de vía, ancho y acabado de la superficie de ruedo (mínimo en lastre compactado); infraestructura que permita la adecuada evacuación de las aguas pluviales, capacidad de las estructuras de drenaje, curvas de nivel y condición de taludes y cualquier otro elemento existente en la vía que sea susceptible de evaluación técnica particular.
+De conformidad con el informe elaborado por la UTGV, si la solicitud no cumple con los contenidos y fundamentos anteriormente descritos, será rechazada en su totalidad y la resolución respectiva será notificada por la Unidad Técnica de Gestión Vial al interesado. Sin embargo, con fundamento en motivos de salud pública, emergencia, impostergabilidad, conectividad vial o calamidad pública el Concejo Municipal por votación de mayoría calificada de sus miembros, podrá autorizar la recepción de la propuesta de calle pública que no se ajuste en su totalidad a las disposiciones establecidas en el inciso e) anterior, excepto lo correspondiente al derecho de vía. La subsanación de las condiciones faltantes deberá ser planificada y asumida por la municipalidad.

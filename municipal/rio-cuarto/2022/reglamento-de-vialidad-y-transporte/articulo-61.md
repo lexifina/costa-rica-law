@@ -1,8 +1,7 @@
-Artículo 61-. Análisis de Propuestas. A partir del recibo de la solicitud la Unidad Técnica de Gestión Vial realizará el análisis respectivo evaluando los siguientes aspectos:
-a) La condición de interés público del proyecto.
-b) La jerarquía potencial de la vía.
-c) Las condiciones del derecho de vía mínimo según jerarquía propuesta.
-d) Las especificaciones técnicas para los diferentes elementos que conforman el derecho de vía (calzada, infraestructura pluvial, acera y franja verde).
-e) Las necesidades de mejoramiento, reconstrucción o ampliación.
-f) La aplicación de las disposiciones de los decretos ejecutivos Nº 40137 y Nº 38578.
-Como resultado del estudio previo, la Unidad Técnica de Gestión Vial emitirá un informe técnico dirigido a la Junta Vial Cantonal para el aval respectivo del proyecto. El informe técnico de la Unidad Técnica de Gestión Vial y el oficio con el aval emitido por la Junta Vial, serán remitidos al Concejo Municipal para su conocimiento y resolución, solicitando además la autorización para la incorporación del proyecto en el Plan Vial, en el Plan Regulador o en el documento de planificación municipal que corresponda.
+Artículo 61-. Mantenimiento y Limpieza. De conformidad con lo establecido en los artículos 20 y 21 de la Ley General de Caminos Públicos Nº5060, todo propietario de predios dentro del Cantón estará obligado a:
+a) Recibir y dejar discurrir dentro de sus predios, las aguas de los caminos cuando así lo determine el desnivel del terreno.
+b) Mantener estos desagües limpios, en perfecto estado de servicio y libres de obstáculos.
+c) Mantener limpios de toda vegetación dañina los caminos, rondas y paredones.
+d) Recortar las ramas de los árboles que den sombra a los caminos públicos.
+e) Descuajar las cercas cada año, en las épocas apropiadas.
+Todo lo anterior a requerimiento de la Municipalidad y aplicando los parámetros que la Unidad Técnica de Gestión Vial establezca para cada caso particular. Para la implementación de las labores descritas en este artículo la Municipalidad coordinará con el Ministerio de Agricultura y Ganadería las medidas de protección de los caminos en los proyectos de nuevos trazados o en los trabajos de conservación de los existentes, en las regiones donde los mismos puedan provocar o intensificar la erosión o desviar el desagüe natural de los campos.

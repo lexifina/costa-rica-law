@@ -1,5 +1,7 @@
-Artículo 48-. Estudio Previo. a partir del recibo de la solicitud la Unidad Técnica de Gestión Vial procederá a realizar el estudio previo del caso, el cual comprende:
-a) La solicitud del estudio y criterio sobre el caso ante el área de Catastro y Valoración. Alternativamente, la Unidad Técnica de Gestión Vial podrá solicitar similar criterio al Ministerio de Obras Públicas y Transportes, al Instituto Geográfico Nacional o al Instituto Nacional de Vivienda y Urbanismo.
-b) La confirmación de la condición de calle pública para la vía objeto de estudio, con fundamento en documentos o resoluciones oficiales.
-c) La verificación en campo de los aspectos descritos en la solicitud.
-Como resultado del estudio previo, la Unidad Técnica de Gestión Vial emitirá un informe técnico dirigido a la Alcaldía Municipal con detalle del cumplimiento de los requisitos y disposiciones establecidas en este Reglamento para la re-apertura de calle pública. Si el estudio previo no logra determinar la condición de calle pública de la vía o bien no logra determinar la condición de "cierre" reclamada por el solicitante, la solicitud será rechazada en su totalidad y la resolución respectiva será notificada por la Unidad Técnica de Gestión Vial al interesado. Si, por el contrario, el estudio previo comprueba la condición de calle pública y la necesidad de re-apertura, la Unidad Técnica de Gestión Vial remitirá el Informe Técnico a la Alcaldía solicitando la Resolución Administrativa que establecen la Ley de Construcciones N°833 y la Ley General de Caminos Públicos y sus Reformas Nº5060.
+CAPÍTULO SEXTO
+PROCEDIMIENTO INTERNO ANTE EL CONCEJO MUNICIPAL
+Artículo 48-. Presentación ante el Concejo Municipal y aprobación. Una vez cumplidas a satisfacción las actividades y procesos descritos en capítulos anteriores, la UTGV presentará el caso ante el Concejo Municipal, comprendiendo:
+a) La presentación del expediente completo, debidamente foliado, del caso para su conocimiento y estudio.
+b) La solicitud formal del Acuerdo para la Declaratoria de Calle Pública.
+c) La solicitud de Acuerdo para la incorporación de la nueva vía en el Inventario Vial Cantonal actualizado, como parte de los procesos de delimitaciones sucesivas y de conformidad con la programación de actividades de gestión vial establecido por la Municipalidad.
+Una vez recibido el Acuerdo del Concejo Municipal que aprueba la declaratoria de calle pública, la Unidad Técnica de Gestión Vial integrará la nueva calle dentro de la planificación quinquenal que corresponde.

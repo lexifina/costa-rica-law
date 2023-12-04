@@ -1,9 +1,5 @@
-Artículo 51-. Presentación del proyecto. comprende la presentación formal del proyecto ante la Unidad Técnica de Gestión Vial Municipal para su debido estudio; esta Unidad abrirá el expediente administrativo correspondiente asignándole el número de oficio o número de caso que corresponda. La solicitud deberá comprender los siguientes datos:
-a) Datos y calidades del solicitante.
-b) Dirección y datos de contacto para notificaciones.
-c) Origen del proyecto.
-d) Descripción de la condición de interés público para el proyecto.
-e) Condiciones de acceso, conectividad y movilidad asociadas al proyecto.
-f) Beneficiarios del proyecto.
-g) Descripción detallada del proyecto: ubicación y especificaciones.
-h) Condición de uso y tenencia de los terrenos propuestos para el proyecto.
+Artículo 51-. Análisis de solicitud. A partir del recibo de la solicitud la Unidad Técnica de Gestión Vial procederá a realizar el estudio previo del caso, el cual comprende:
+a) La solicitud del estudio y criterio sobre el caso ante el área de Catastro y Valoración. Alternativamente, la Unidad Técnica de Gestión Vial podrá solicitar similar criterio al Ministerio de Obras Públicas y Transportes, al Instituto Geográfico Nacional o al Instituto Nacional de Vivienda y Urbanismo.
+b) La confirmación de la condición de calle pública para la vía objeto de estudio, con fundamento en documentos o resoluciones oficiales.
+c) La verificación en campo de los aspectos descritos en la solicitud.
+Como resultado del análisis, la Unidad Técnica de Gestión Vial emitirá un informe técnico dirigido a la Alcaldía Municipal con detalle del cumplimiento de los requisitos y disposiciones establecidas en este Reglamento para la reapertura de calle pública. Si el análisis no logra determinar la condición de calle pública de la vía o bien no logra determinar la condición de "cierre" reclamada por el solicitante, la solicitud será rechazada en su totalidad y la resolución respectiva será notificada por la Unidad Técnica de Gestión Vial al interesado. Si, por el contrario, el análisis comprueba la condición de calle pública y la necesidad de reapertura, la Unidad Técnica de Gestión Vial remitirá el Informe Técnico a la Alcaldía solicitando la Resolución Administrativa que establecen la Ley de Construcciones N°833 y la Ley General de Caminos Públicos y sus Reformas Nº5060.

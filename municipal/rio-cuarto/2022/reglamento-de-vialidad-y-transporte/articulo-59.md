@@ -1,4 +1,1 @@
-CAPÍTULO SEXTO
-RECEPCIÓN DE DONACIONES DE TERRENOS PARA LA CONSTRUCCIÓN DE
-NUEVAS CALLES PÚBLICAS
-Artículo 59-. Donaciones de terrenos. Para el caso de iniciativas públicas o privadas de donación de terrenos o servidumbres para la constitución de nuevas calles públicas de la red vial cantonal, la Municipalidad aplicará las disposiciones establecidas en este capítulo.
+Artículo 59-. Reductores de Velocidad. Es todo aquel dispositivo instalado en las vías públicas, cumpliendo normas técnicas de diseño geométrico, disposición, ubicación y capacidad estructural, cuyo objetivo es obligar a los conductores a respetar los límites de velocidad establecidos en las vías públicas y, de esta forma, minimizar el riesgo de los peatones y conductores. Dentro de la red vial cantonal el diseño, construcción, instalación y/o eliminación de reductores de velocidad se realizará de conformidad con los procedimientos establecidos en el Decreto Ejecutivo Nº 40601 -MOPT o sus reformas y por medio de la Unidad Técnica de Gestión Vial. Su construcción, instalación o demolición deberá ser aprobada por la Junta Vial Cantonal.

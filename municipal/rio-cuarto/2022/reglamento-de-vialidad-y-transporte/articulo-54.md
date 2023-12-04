@@ -1,5 +1,1 @@
-CAPÍTULO QUINTO
-PROCEDIMIENTO PARA LA EJECUCIÓN DE NUEVOS PROYECTOS VIALES
-DESARROLLADOS POR ENTES PRIVADOS Y SU INCORPORACIÓN EN EL
-INVENTARIO VIAL CANTONAL
-Artículo 54-. Proyectos viales desarrollados por entes privados y su incorporación en el Inventario Vial Cantonal. De conformidad con el marco legal vigente y con las políticas municipales en materia de gestión vial, la Municipalidad de Río Cuarto autorizará nuevos proyectos viales ejecutados por entes privados, aplicando todas las disposiciones establecidas en el presente capítulo.
+Artículo 54-. Localización y diseño de terminales. El Mapa de Vialidad establece la ubicación propuesta para la Terminal Transporte. Tiene como fin planificar los espacios necesarios para la concentración de las rutas de transporte público incluyendo autobuses y taxis, la provisión de espacios para tránsito peatonal y espacios para actividad comercial y de servicios.

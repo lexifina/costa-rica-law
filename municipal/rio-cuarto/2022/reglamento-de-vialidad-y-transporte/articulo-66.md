@@ -1,1 +1,1 @@
-Artículo 66-. Diseño: La terminal se conceptúa no solamente como el sitio de abordaje del transporte público, sino como núcleo incentivador del desarrollo de actividades urbanas en las zonas de su ubicación. Por lo anterior, su diseño debe buscar la formación de un centro urbano polifuncional de alta densidad y con posibilidades de su futuro crecimiento, buscando la compatibilidad con actividades comerciales y de servicios.
+Artículo 66-. Vigencia. El presente reglamento entra en vigencia a partir de su publicación en el diario Oficial La Gaceta.

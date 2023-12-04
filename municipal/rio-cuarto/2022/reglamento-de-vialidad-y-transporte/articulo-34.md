@@ -1,6 +1,10 @@
-Artículo 34-. Documentación de intervenciones previas. Una vez determinada técnicamente la condición pública de la vía como resultado de lo señalado en el artículo anterior, la Unidad Técnica de Gestión Vial deberá documentar las intervenciones previas realizadas por la Municipalidad o por el MOPT en la vía, como prueba del reconocimiento de la condición pública de la calle. Para estos efectos deberán documentarse los siguientes procesos o tipos de intervenciones:
-a) Obras de mantenimiento.
-b) Obras de reparaciones.
-c) Documentación de Inversiones públicas.
-d) Inclusión en presupuestos públicos
-En caso de no existir estos documentos oficiales o los elementos documentales probatorios de intervenciones previas ejecutadas por la Municipalidad o del MOPT, la Municipalidad por medio de la Unidad Técnica de Gestión Vial podrá recopilar testimonios y/o levantar información de campo que permita documentar estas intervenciones previas.
+TITULO QUINTO
+PROCEDIMIENTOS
+CAPÍTULO PRIMERO
+Artículo 34-. Determinación de la Condición Demanial: a partir del recibo de la solicitud la Unidad Técnica de Gestión Vial con base en el estudio respectivo del caso deberá determinar y documentar la condición demanial de la vía para la cual se solicita la declaratoria de calle pública, incorporando los elementos probatorios respecto a la totalidad de los siguientes elementos:
+a) El dominio público de la totalidad de los terrenos que conforman la vía.
+b) La titularidad pública de los terrenos incluyendo el deslinde con relación a fincas de dominio privado colindantes.
+c) La condición de libre tránsito que presenta la vía.
+d) La declaratoria de necesidad y utilidad pública.
+e) Las condiciones propuestas de cesión, compra o Expropiación
+En caso de no existir estos documentos oficiales o elementos probatorios idóneos que determinen la condición demanial de la vía, la solicitud será rechazada en su totalidad y la resolución respectiva será notificada por la Unidad Técnica de Gestión Vial al interesado o solicitante.

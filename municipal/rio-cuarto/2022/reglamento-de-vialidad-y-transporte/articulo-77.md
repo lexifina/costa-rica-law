@@ -1,1 +1,0 @@
-Artículo 77-. Normas Supletorias. Para la regulación de aspectos o condiciones específicas no contempladas en el presente Reglamento, la Municipalidad aplicará de manera supletoria los decretos del Poder Ejecutivo vigentes que permitan resolver el caso particular.
