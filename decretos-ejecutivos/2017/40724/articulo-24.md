@@ -12,8 +12,8 @@ e) Dirección de Regulación de Productos de Interés Sanitario.
 f) Dirección de Vigilancia de la Salud.
 g) Dirección de Servicios de Salud.
 h) Dirección de Investigación y Tecnologías en Salud.
-i) Dirección de Atención al Cliente.
+i) (Derogado por el artículo 3° del decreto ejecutivo N° 44350 del 5 de diciembre de 2023)
 j) División Administrativa.
-k) Departamento de Tecnología de la Información y Comunicación.
+k) (Derogado por el artículo 3° del decreto ejecutivo N° 44350 del 5 de diciembre de 2023)
 l) Direcciones Regionales de Rectoría de la Salud.
 (Así reformado por el artículo 1° del decreto ejecutivo N° 41999 del 20 de setiembre del 2019)

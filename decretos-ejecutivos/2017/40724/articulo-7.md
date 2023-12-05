@@ -13,8 +13,9 @@ b) Nivel estratégico. Está conformado por:
 5) Comunicación.
 6) Auditoría Interna.
 c) Nivel operativo. Está conformado por:
-1) Las Direcciones y el Departamento dependientes de la Dirección General
-de Salud.
+1) Las Direcciones dependientes de la Dirección General de Salud.
 2) La Secretaria Técnica de Salud Mental.
 3) La División Administrativa y las Direcciones dependientes de ésta.
+4) Dirección de Transformación y Salud Digital.
+(Así reformado el inciso c) anterior por el artículo 1° del decreto ejecutivo N°44350 del 5 de diciembre de 2023)
 (Así reformado por el artículo 1° del decreto ejecutivo N° 41999 del 20 de setiembre del 2019)
