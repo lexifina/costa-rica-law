@@ -13,3 +13,4 @@ Actualización de la circular 239-2020, sobre la obligación de las oficinas en 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-10-04 | la propia norma |
+| 2 | 2023-12-05 | Circular 307 (2023-12-05) |

@@ -1,4 +1,6 @@
+(Derogado)
 CIRCULAR N° 187-2022
+(Esta norma se dejó sin efecto, mediante circular N° 307 del 5 de diciembre de 2023, "Actualización de la circular 203-2022, sobre la obligación de las oficinas en las cuales se esté implementando el Modelo de Sostenibilidad y Seguimiento de los Proyectos de Rediseño, de reportar como días no laborados en la matriz de indicadores los incluidos en el Sistema de Proposición Electrónica de Nombramientos (PIN)")
 ASUNTO: Actualización de la circular 239-2020, sobre la obligación de las oficinas en las cuales se esté implementando el Modelo de Sostenibilidad y Seguimiento de los Proyectos de Rediseño, de reportar como días no laborados en la matriz de indicadores los incluidos en el Sistema de Proposición Electrónica de Nombramientos (PIN). Esta circular sustituye o deja sin efecto la 239-2020.
 A TODOS LOS DESPACHOS JUDICIALES DEL PAÍS
 SE LES HACE SABER QUE:
@@ -13,9 +15,9 @@ de la hora de lactancia.
 Por ejemplo: 1 hora x 21 días hábiles 2022 / 8 horas = 2,625 que se redondea a 3 días a rebajar en la matriz de indicadores de gestión, y que equivalen a la disminución de la hora de lactancia, durante los meses en que tenga el permiso de lactancia aprobado.
 Además, se les indica que el único ajuste en las cuotas que se puede realizar es en razón de la cantidad de días hábiles de cada mes. De ahí se calcula el rendimiento
 considerando la cantidad de días hábiles laborados, el cual se aplicará para planes de trabajo, ya que en las matrices la cuota se ajusta automáticamente.
-En los meses que dispongan de más de 21 días hábiles, para efectos de no alterar el indicador de “Porcentaje de rendimiento por plaza”, deben indicar máximo 21 días.
+En los meses que dispongan de más de 21 días hábiles, para efectos de no alterar el indicador de "Porcentaje de rendimiento por plaza", deben indicar máximo 21 días.
 Aclaración para las materia de cobro y agrario: Esta fórmula de cálculo aplica para todas las materias, salvo 2 casos particulares:
-1. Cobro, que mantiene el uso de la bitácora, en espera del estudio que aún está pendiente para estandarizar la cuota o el inicio del uso de indicadores de gestión en SIGMA. Lo correspondiente al rebajo en horas de lactancia lo deben incluir en la bitácora, en el espacio de “detalle”, campo o columna de la bitácora denominada: “Permisos sin o con goce de salario”.
+1. Cobro, que mantiene el uso de la bitácora, en espera del estudio que aún está pendiente para estandarizar la cuota o el inicio del uso de indicadores de gestión en SIGMA. Lo correspondiente al rebajo en horas de lactancia lo deben incluir en la bitácora, en el espacio de "detalle", campo o columna de la bitácora denominada: "Permisos sin o con goce de salario".
 2. Agrario, se registran en la matriz como días no laborados también aquellos en que se participan de audiencias en el campo por días completos, específicamente en el caso de los técnicos judiciales quienes no tramitan ese día, por estar fuera de las instalaciones.
 De conformidad con la circular 67-09 emitida por la Secretaría de la Corte el 22 de junio de 2009, se le comunica que en virtud del principio de gratuidad que rige esta materia, la publicación está exenta de todo pago de derechos. Publíquese una sola vez en el Boletín Judicial.
 San José, 4 de octubre de 2022.
