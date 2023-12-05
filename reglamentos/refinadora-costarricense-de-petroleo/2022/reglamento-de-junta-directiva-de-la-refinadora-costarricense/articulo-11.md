@@ -10,7 +10,8 @@ Artículo 11.-Deberes. Son deberes de la Secretaría de Actas:
 9. Llevar el control de asistencia de las personas directivas a las sesiones y coordinar el pago de las dietas respectivas.
 10. Elaborar y controlar la ejecución del presupuesto asignado a la Secretaría y a la Junta Directiva, para que se utilice correctamente.
 11. Atender y resolver las consultas verbales y escritas que le presenten las otras dependencias de la empresa, clientes, proveedores, instituciones públicas y público en general, relativas al trámite de asuntos sometidos al conocimiento de la Junta Directiva.
-12. Dar seguimiento al cumplimiento de acuerdos dictados por la Junta Directiva e informar mensualmente al respecto.
+12. Dar seguimiento al cumplimiento de acuerdos citados por la Junta Directiva e informar de manera bimestral al respecto.
+(Así reformado el inciso anterior en sesión N° 5386 del 5 de diciembre de 2023)
 13. Verificar que los documentos conocidos, tramitados o producidos en cada sesión de Junta, sean debidamente archivados mediante un expediente físico o digital creado al efecto.
 14. Extender las certificaciones referentes a actos administrativos o actuaciones materiales de la Junta Directiva, que de oficio o a petición de parte deban extenderse.
 15. Implementar un mecanismo de control en el que se identifique el intercambio de información entre la Administración y los Miembros de la Junta Directiva.
