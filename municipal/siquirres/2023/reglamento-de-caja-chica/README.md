@@ -14,3 +14,4 @@ Reglamento de caja chica
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-05-16 | la propia norma |
+| 2 | 2023-12-05 | Reglamento municipal 188 (2023-12-05) |

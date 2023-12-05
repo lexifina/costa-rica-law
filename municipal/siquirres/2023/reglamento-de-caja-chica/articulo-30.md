@@ -1,6 +1,8 @@
-Artículo 30.-Funciones de la Proveeduría. La Proveeduría tendrán las siguientes responsabilidades relacionadas con los procesos de compra de bienes, servicios y obras asociados a la Caja Chica administrada por esta:
+Artículo 30.-Funciones de la Proveeduría. La Proveeduría tendrán las siguientes responsabilidades relacionadas con los procesos de compra de bienes, servicios y obras asociados a la Caja Chica para compras mayores por esta:
+(Así reformado el párrafo anterior en sesión N° 188 del 5 de diciembre de 2023)
 a) Aplicar los procedimientos de compra de caja chica de conformidad con lo establecido por la Tesorería.
-b) Registrar las compras de caja chica en el Sistema Digital Unificado que se lleven a cabo por medio de la caja chica de la Proveeduría una vez estas se cancelen.
+b) Registrar las compras de caja chica en el Sistema Digital Unificado que se lleven a cabo por medio de la caja chica para compras mayores de la Proveeduría una vez estas se cancelen.
+(Así reformado el inciso anterior en sesión N° 188 del 5 de diciembre de 2023)
 c) Llevar a cabo el proceso de formalización de las compras por caja chica, para bienes, servicios y obras.
 d) Implementar los esquemas de control que garanticen un eficiente, eficaz y oportuno uso de los fondos de caja chica asignados.
 e) Recibir y analizar las solicitudes de compra de bienes y revisar que se cumplan todos los requisitos previos para el inicio de cada procedimiento, incluyendo los requerimientos generales y específicos aplicables a cada procedimiento de compra de caja chica.
