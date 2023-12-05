@@ -1,0 +1,1 @@
+Artículo 73º.-Las obras o edificaciones construidas por el Departamento de Acueducto Municipal deberán estar protegidas y resguardadas, para limitar el acceso de particulares, evitar la contaminación del líquido y posibles daños a las estructuras.

@@ -1,0 +1,4 @@
+CAPÍTULO V
+Obtención de los servicios en caso de urbanizaciones
+Artículo 24º.-De previo al otorgamiento de cualquier tipo de permisos de construcción de urbanizaciones o de las surgidas de segregaciones de fincas, la Oficina de Acueducto Municipal deberá por medio de resolución razonada, pronunciarse sobre si está o no en capacidad de suministrar el servicio de agua potable, de conformidad con los requisitos que presente el interesado y los estudios técnicos realizados.
+Si la Oficina de Acueducto Municipal, determina que sus fuentes de abastecimiento de agua no están en capacidad de brindar servicios nuevos para este tipo de situaciones, no se comprometerá a suministrar el servicio de agua a las urbanizaciones o fraccionamientos que empresas, personas particulares o el Estado pretendan hacer, salvo que la Empresa, Institución, o particular o interesado o quien segregue aporte los estudios y mejoras necesarias para dotarlo del servicio.

@@ -1,0 +1,1 @@
+Artículo 3º-El Acueducto Municipal no podrá ser transferido, traspasado, vendido o de alguna manera enajenada a ninguna otra Organización, Empresa o Institución Pública, excepto que exista un Plebiscito en donde así sea aprobado con toda la participación de los abonados del Acueducto.

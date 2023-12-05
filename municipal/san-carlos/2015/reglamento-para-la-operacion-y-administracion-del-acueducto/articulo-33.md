@@ -1,0 +1,1 @@
+Artículo 33º.-El trabajo de la Municipalidad se limitará a la localización de fugas y desperfectos y recomendación de cómo se pueden reparar. El trabajo de reparación será responsabilidad del abonado.

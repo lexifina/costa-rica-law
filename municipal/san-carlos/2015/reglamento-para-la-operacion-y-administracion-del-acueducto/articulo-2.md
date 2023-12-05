@@ -1,0 +1,1 @@
+Artículo 2º-El presente Reglamento tiene por objetivo regular la coordinación, organización, mantenimiento, funcionamiento y proyección de los Acueductos Municipales; así como las relaciones de los clientes con el Acueducto Municipal en la prestación del servicio de agua potable.

@@ -1,0 +1,1 @@
+Artículo 62º.-La Municipalidad ejecutará la reconexión del servicio de agua potable en un plazo de 48 horas, siguientes a la cancelación de lo adeudado, o bien de la suscripción del respectivo arreglo de pago.

@@ -1,0 +1,1 @@
+Artículo 17º.-El costo por conexión del nuevo servicio por cañería deberá ser cancelado por el solicitante una vez aprobada la solicitud. Si en el momento de realizar la conexión se detectan diferencias de costos, se notificará al propietario que dichas diferencias serán incluidas para su pago en el recibo que se le factura por primera vez o en el mes siguiente.

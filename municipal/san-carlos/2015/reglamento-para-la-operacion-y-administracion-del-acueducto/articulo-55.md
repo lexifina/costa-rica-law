@@ -1,0 +1,1 @@
+Artículo 55º.-El abonado que incurra en el desperdicio del agua potable (mal gastar el agua, botarla sin dar un uso correcto, dar un mal aprovechamiento ), será notificado por una veces del cambio de tarifa y persistiendo en dicho perjuicio se procederá sin más trámite el cobro de tarifa más alta si la que tiene es residencial o de otra índole.

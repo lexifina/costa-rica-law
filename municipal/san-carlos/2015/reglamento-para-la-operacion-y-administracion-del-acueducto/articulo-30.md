@@ -1,0 +1,1 @@
+Artículo 30º.-Es obligación de la Municipalidad hacer reparaciones que requiera el Acueducto. Las acometidas forman parte de las redes de acueductos y su mantenimiento y reparación corresponden a la Municipalidad. Las conexiones intra-domiciliarias defectuosas serán reparadas por el abonado.

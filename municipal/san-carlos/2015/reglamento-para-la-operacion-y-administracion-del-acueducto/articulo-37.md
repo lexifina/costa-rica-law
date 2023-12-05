@@ -1,0 +1,1 @@
+Artículo 37º.-A cada lotificación o urbanización que se construya donde existe el servicio de agua potable administrado por la Municipalidad, deberá el urbanizador realizar los trabajos de colocación de tubería, hidrantes, y las previstas respectivas y toda otra consideración que se estipule en el manual de vistos buenos a urbanizaciones.

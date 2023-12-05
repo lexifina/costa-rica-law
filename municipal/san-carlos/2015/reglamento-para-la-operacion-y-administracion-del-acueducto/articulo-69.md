@@ -1,0 +1,1 @@
+Artículo 69º.-En caso de que los propietarios del terreno o fincas se negaren a trasladar estas propiedades o vendarlas a la Municipalidad, la misma podrá decretar la expropiación, si el objetivo de la misma es de interés para la colectividad, para lo cual iniciará el respectivo trámite legal.

@@ -1,0 +1,1 @@
+Artículo 34º.-Por los servicios prestados en las revisiones domiciliarias, la Municipalidad cobrara al cliente solicitante, el costo por la inspección o revisión solicitada, según los derechos establecidos en la tarifa que para esos efectos se publica en el Diario Oficial La Gaceta.

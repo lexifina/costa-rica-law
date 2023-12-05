@@ -1,0 +1,1 @@
+Artículo 36º.-Cuando se trata de un acueducto nuevo, remodelaciones o prolongaciones en las líneas de conducción y distribución, el departamento de Acueducto Municipal solicitará a los interesados el 100% del costo de la obra.

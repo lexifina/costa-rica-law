@@ -1,0 +1,1 @@
+Artículo 51º.-Cualquier daño al sistema de abastecimiento de agua potable por personas ajenas a la Municipalidad, deberá ser reparado por el autor y se constreñirá a cubrir todos los gastos adicionales causados.

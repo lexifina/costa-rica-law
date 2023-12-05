@@ -1,0 +1,1 @@
+Artículo 21º.-Cuando el propietario de una finca que tenga servicio de agua, adquiera otra propiedad colindante que carezca de él, no podrá extender a la nueva propiedad adquirida el servicio de agua potable. El adquiriente deberá solicitar la conexión de un nuevo hidrómetro a la Oficina del Acueducto, previo pago de derechos correspondientes.

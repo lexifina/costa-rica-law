@@ -1,0 +1,1 @@
+Artículo 66º.-La Municipalidad podrá establecer convenios con otras Municipalidades, Organizaciones comunales, Instituciones Públicas o Privadas, para cumplir con los fines del presente Reglamento referente a los hidrantes, de conformidad con los requisitos y procedimientos legales de contratación administrativa.

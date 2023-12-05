@@ -1,0 +1,1 @@
+Artículo 39º.-Corresponde al abonado el pago del servicio de agua potable, como lo expresa la norma anterior, y en caso de mora en el pago, podrá un tercero cancelar la suma adeudada y la Municipalidad estará en la obligación de recibir el pago correspondiente.
