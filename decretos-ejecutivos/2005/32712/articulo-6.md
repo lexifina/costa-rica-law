@@ -1,1 +1,0 @@
-Artículo 6°—Guía para el llenado del Documento DI. A fin de facilitar y orientar a los usuarios sobre el llenado del Documento de Evaluación Ambiental DI, la SETENA pone a su disposición una explicación detallada que facilitará la ejecución de este proceso. Dicha Guía de llenado del documento DI, en adelante Guía se presenta como Anexo No 2 de este Decreto Ejecutivo.

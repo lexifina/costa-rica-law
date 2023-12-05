@@ -1,1 +1,0 @@
-Artículo 11.—Glosario de términos técnicos. Como complemento a la Guía indicada en el artículo 6°, se dispone en el Anexo 9 del presente decreto ejecutivo, el Glosario que define y explica algunos de los términos técnicos más relevantes incluidos en el D-l, la Guía para su llenado y los otros anexos del presente Decreto Ejecutivo.
