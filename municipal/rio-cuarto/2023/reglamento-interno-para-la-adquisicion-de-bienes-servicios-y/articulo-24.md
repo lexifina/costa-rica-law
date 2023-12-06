@@ -1,0 +1,1 @@
+Artículo 24.-Del reajuste y revisión de precios. Todo reajuste o revisión de precios a los contratos suscritos por la Administración deberán contener la correspondiente validación del AC y la posterior aprobación de PI mismo que deberá ser autorizado mediante resolución administrativa por parte de la AM.

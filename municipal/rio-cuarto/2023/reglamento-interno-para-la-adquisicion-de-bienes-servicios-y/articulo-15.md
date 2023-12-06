@@ -1,0 +1,4 @@
+Artículo 15.-Recepción de ofertas y elaboración de estudios. La PI tendrá a su cargo la apertura de ofertas en el SDU todo de conformidad con la legislación vigente.
+De igual forma, realizará el análisis y verificación de los llamados requerimientos legales; cuando lo estime necesario podrá solicitar criterio técnico a la Asesoría legal o su similar. La PI solicitará el análisis técnico de la oferta a la Unidad Solicitante.
+La Asesoría Legal, la Unidad Solicitante y cualquier unidad técnica a la que se le solicite la elaboración de estudios, está en la obligación de realizarlos de acuerdo con los plazos que se fijen, aun cuando el bien o servicio a adquirir no sea para su uso.
+La PI deberá comunicar la recomendación de la adjudicación tomando en consideración el resultado del estudio técnico y legal de las ofertas, los criterios técnicos y a lo acordado por la CRA, cuando lo amerite.
