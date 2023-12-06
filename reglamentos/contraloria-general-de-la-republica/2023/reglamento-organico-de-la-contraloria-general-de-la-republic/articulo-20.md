@@ -1,0 +1,1 @@
+Artículo 20.- Organización. La División de Contratación Pública se encuentra organizada por funciones a cargo de gerencias asociadas dependientes de la gerencia de división, cuyo número y distribución serán definidos por el Despacho Contralor, mediante resolución motivada en la que se determinarán las atribuciones específicas que ejercerán cada una de ellas.
