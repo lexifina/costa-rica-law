@@ -60,3 +60,4 @@ PUESTO CLASE
 (Modificado por el artículo 1° del decreto ejecutivo N° 44264 del 16 de noviembre de 2023)
 (Modificado por el artículo 1° del decreto ejecutivo N° 44300 del 30 de noviembre de 2023)
 (Así reformado por el artículo 1° de la ley N° 10406 del 4 de diciembre del 2023)
+(Modificado por el artículo 1° del decreto ejecutivo N° 44301 del 6 de diciembre de 2023)
