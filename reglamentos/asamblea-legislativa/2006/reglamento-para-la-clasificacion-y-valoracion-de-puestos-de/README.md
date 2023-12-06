@@ -15,3 +15,4 @@ Reglamento para la Clasificación y Valoración de Puestos de la Asamblea Legisl
 | --- | --- | --- |
 | 1 | 2007-02-02 | la propia norma |
 | 2 | 2015-09-08 | Acuerdo 5 (2015-09-08) |
+| 3 | 2023-12-06 | Reglamento 73 (2023-12-06) |
