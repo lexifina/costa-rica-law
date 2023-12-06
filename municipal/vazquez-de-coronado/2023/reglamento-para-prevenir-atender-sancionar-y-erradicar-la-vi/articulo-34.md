@@ -1,0 +1,1 @@
+Artículo 34.-De los recursos contra lo resuelto por la persona titular. Contra lo resuelto por la persona que ostente la Alcaldía o el Concejo, según el ámbito de sus competencias sancionadoras, sobre sanciones disciplinarias, procederán los recursos dispuestos por el Código Municipal.
