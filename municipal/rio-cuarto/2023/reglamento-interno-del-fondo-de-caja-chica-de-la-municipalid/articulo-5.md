@@ -1,0 +1,1 @@
+Artículo 5º-Monto. Se establece un fondo de Caja Chica equivalente al diez por ciento (10%), en múltiplos de 5000 redondeado a la baja, del monto previsto para la licitación reducida correspondiente al régimen ordinario, para la adquisición de bienes y servicios, regulado en la Ley General de Contratación Pública.

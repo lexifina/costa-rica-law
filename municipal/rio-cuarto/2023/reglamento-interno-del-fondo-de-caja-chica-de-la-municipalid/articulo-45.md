@@ -1,0 +1,3 @@
+CAPÍTULO VIII
+Disposiciones finales
+Artículo 45.-Normativa supletoria. Se aplicará supletoriamente a las normas de este Reglamento, las siguientes disposiciones legales: el Código Municipal, la Ley General de Contratación Pública y su reglamento, la Ley General de la Administración Pública y demás normativas vigentes de la materia.

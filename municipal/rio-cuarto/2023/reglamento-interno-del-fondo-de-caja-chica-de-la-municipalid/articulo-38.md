@@ -1,0 +1,1 @@
+Artículo 38.-Asuntos personales. El fondo de caja chica no podrá ser utilizado para el cambio de cheques personales ni tampoco usarse para fines distintos para el que fue creado, ni disponerse para actuaciones distintas a las autorizadas por la ley y este Reglamento.

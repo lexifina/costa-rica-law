@@ -1,0 +1,2 @@
+Artículo 18.-Reintegro por ausencia de compra. Cuando por algún motivo la compra no se lleve a cabo, el funcionario que ha recibido el dinero del vale de caja chica, deberá hacer el reintegro del dinero entregado para esos efectos a más tardar el día hábil siguiente al del acaecimiento del motivo por el cual no se puede realizar la compra.
+Para tal efecto, deberá ese funcionario aportar una justificación escrita, avalada con la firma de la jefatura superior inmediata.

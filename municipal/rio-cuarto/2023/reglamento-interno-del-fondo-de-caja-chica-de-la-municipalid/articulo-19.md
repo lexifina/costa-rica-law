@@ -1,0 +1,4 @@
+Artículo 19.-Comprobantes de compra. Los comprobantes de adquisiciones que se hagan con fondos de caja chica que justifiquen el egreso, deberán cumplir con los siguientes requisitos:
+a) Ser documentos originales, estar autorizados, membretados o dispensados del mismo por la Dirección General de Tributación y estar emitidos a favor de la Municipalidad.
+b) Especificar claramente el detalle de la compra o servicio recibido, la cual deberá ser igual o posterior a la fecha de emisión del vale, coincidir con lo estipulado en el vale, traer impreso el sello de cancelado del proveedor o el tiquete de caja y por ningún motivo deben contener tachaduras ni borrones.
+c) Si la factura no tiene nombre comercial deberá indicar como requisitos mínimos: el nombre, el número de cédula de la persona física o jurídica que suministra el bien o servicio y sus especificaciones.

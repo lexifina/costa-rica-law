@@ -1,0 +1,1 @@
+Artículo 23.-Reintegros. La Tesorería Municipal debe procurar tramitar con la diligencia y frecuencia debida los reintegros de las sumas pagadas, para que se mantenga una adecuada rotación y el fondo no llegue a agotarse o al final del mes, lo que suceda primero.

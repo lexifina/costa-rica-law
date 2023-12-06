@@ -1,0 +1,1 @@
+Artículo 7º-Custodia. La custodia del fondo de caja chica será responsabilidad absoluta de la persona titular de la Tesorería Municipal, quien deberá actuar de conformidad con lo que disponga este Reglamento, el Código Municipal, la Ley de la Administración Financiera y demás normativa vigente y aplicable a la materia.

@@ -1,0 +1,1 @@
+Artículo 14.-Exención del I.V.A. Para el trámite de compra por el fondo de Caja Chica, el funcionario que lo gestione para la adquisición de bienes y servicios, deberá solicitar ante la Tesorería Municipal, un comprobante de exención del pago del impuesto de ventas (IVA).

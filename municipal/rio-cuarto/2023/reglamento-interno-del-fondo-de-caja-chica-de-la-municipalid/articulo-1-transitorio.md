@@ -1,0 +1,1 @@
+Transitorio I.-Las gestiones de caja chica y pago de viáticos que se encuentren en trámite o pendientes de reintegro al momento de la entrada en vigencia del presente Reglamento se regirán por la normativa aplicable al momento del inicio de la gestión.

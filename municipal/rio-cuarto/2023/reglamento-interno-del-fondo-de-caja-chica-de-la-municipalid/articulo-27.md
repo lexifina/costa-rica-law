@@ -1,0 +1,1 @@
+Artículo 27.-Arqueo por sustitución. Cuando el Tesorero Municipal sea sustituido por otra persona que ocupe temporalmente ese cargo se realizará un arqueo del cual se dejará constancia escrita, con la firma del Tesorero y la persona que lo sustituirá. Igual procedimiento se utilizará cuando el titular de la Tesorería Municipal vuelva a ocupar su puesto.

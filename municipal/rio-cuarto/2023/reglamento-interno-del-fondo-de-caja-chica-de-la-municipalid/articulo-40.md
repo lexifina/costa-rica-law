@@ -1,0 +1,1 @@
+Artículo 40.-Plazo máximo de custodia de fondos. Ninguna persona funcionaria de la Municipalidad, con excepción del Tesorero Municipal quien tendrá en custodia los fondos de Caja Chica, podrá mantener en su poder fondos de Caja Chica por más de cinco (5) días.

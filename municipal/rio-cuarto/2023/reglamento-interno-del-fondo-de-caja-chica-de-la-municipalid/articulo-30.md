@@ -1,0 +1,1 @@
+Artículo 30.-Documentación de Respaldo. Los documentos de respaldo de la compra de bienes o servicios realizada mediante el fondo de caja chica deberán incorporarse -a la brevedad- en el Sistema Digital Unificado, sin perjuicios de los respaldos físicos y digitales que mantenga la Tesorería.

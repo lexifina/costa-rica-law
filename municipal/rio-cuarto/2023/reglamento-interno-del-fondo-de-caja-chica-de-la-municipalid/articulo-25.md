@@ -1,0 +1,1 @@
+Artículo 25.-Realización del arqueo. Todo arqueo de caja chica se realizará en presencia del Tesorero Municipal. Este funcionario tendrá el derecho de pedir una segunda verificación, si mantiene dudas sobre el resultado obtenido.

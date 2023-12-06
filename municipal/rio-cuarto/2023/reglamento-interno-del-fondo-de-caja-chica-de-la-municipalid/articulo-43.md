@@ -1,0 +1,1 @@
+Artículo 43.-Justificación de egresos. La persona funcionaria que pretenda justificar los egresos de Caja Chica con comprobantes que no cumplan con los requisitos indicados en el presente Reglamento, incumpliendo con ello su deber de verificar los requisitos de comprobante, deberá pagar de su peculio el costo del bien o servicio adquirido.
