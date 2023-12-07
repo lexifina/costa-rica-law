@@ -1,1 +1,0 @@
-Artículo 7º—Procedimiento Cobro de las Multas y Cláusulas Penales. Se establece que el procedimiento de cobro a efectos de determinar el incumplimiento de la multa y/o de la cláusula penal, será tramitado como procedimiento sumario.

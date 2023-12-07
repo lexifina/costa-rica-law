@@ -1,1 +1,0 @@
-Artículo 2º—Multa en Objetos Compuestos por Varias Líneas o por Avance de Obra. En caso que el objeto esté compuesto por líneas distintas, el monto máximo para el cobro de multas se considerará sobre el mayor valor de cada una y no sobre la totalidad del contrato, siempre que el incumplimiento de una línea no afecte el resto de las obligaciones.

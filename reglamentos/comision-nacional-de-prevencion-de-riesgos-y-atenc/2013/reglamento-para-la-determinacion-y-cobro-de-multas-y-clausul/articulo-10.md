@@ -1,1 +1,0 @@
-Artículo 10.—Traslado al contratista. De la solicitud de aplicación de multa y los documentos existentes en los autos se dará traslado al contratista para que en el plazo de tres días hábiles a partir de la notificación proceda a remitir al Órgano Decisor sus alegatos y pruebas correspondientes. Vencido este plazo el Órgano Decisor deberá proceder con la emisión del acto final.
