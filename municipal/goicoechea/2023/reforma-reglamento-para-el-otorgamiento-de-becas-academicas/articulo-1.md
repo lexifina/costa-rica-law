@@ -1,0 +1,3 @@
+CONCEJO MUNICIPAL DEL CANTÓN DE GOICOECHEA
+El Concejo Municipal del cantón de Goicoechea en Sesión Ordinaria 47-2023, celebrada el día 20 de noviembre de 2023, Articulo IX.II se aprobó la dispensa por mayoría de votos y por unanimidad y con carácter firme se aprobó la moción suscrita por el Regidor Propietario Fernando Chavarría Quirós, Síndicos Propietarios Kevin Mora Méndez, Iris Vargas Soto, Andrea Valerio Montero y Carlos Alfaro Marín, donde se aprueba:
+Transitorio I. Los plazos establecidos en el artículo 9 del presente reglamento se suspenderán para el proceso de solicitud de becas del año 2024 y se aplicarán a partir del proceso de solicitud de becas del 2025.
