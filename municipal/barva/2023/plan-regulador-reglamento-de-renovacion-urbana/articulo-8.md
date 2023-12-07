@@ -1,0 +1,1 @@
+Artículo 8. Aplicación: El presente reglamento se aplica como complemento del Reglamento de Renovación Urbana #6259 aprobado por el INVU y publicado en la Gaceta #103 del 01 de junio de 2017, Alcance #121.
