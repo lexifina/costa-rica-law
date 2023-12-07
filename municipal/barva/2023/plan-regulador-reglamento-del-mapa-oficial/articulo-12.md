@@ -1,0 +1,1 @@
+Artículo 12.- Procedimientos: A partir de la entrada en vigencia del presente Reglamento la Municipalidad deberá establecer en un plazo no mayor a seis meses calendario los procedimientos para la adquisición de reservas destinadas al servicio público, para su administración y fiscalización. Dichos procedimientos deberán ser aprobados por el Concejo Municipal.

@@ -1,0 +1,1 @@
+Artículo 9.- Prioridad: En concordancia con los reglamentos de Zonificación y de Vialidad, para la Municipalidad de Barva será prioridad la consolidación de las reservas de terreno destinadas a parque y recreación, a usos institucionales de servicios públicos y a usos viales.
