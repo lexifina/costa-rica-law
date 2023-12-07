@@ -1,0 +1,4 @@
+Artículo 40. Plazo para corregir o anular la planilla e inclusión de nuevos asegurados
+Si por algún motivo el Tomador del seguro requiere, corregir o anular el envío de una planilla o una "Inclusión de nuevos asegurados", dicha gestión deberá efectuarla el mismo día que remitió el reporte directamente en el sistema RT-Virtual, a más tardar las 22 horas (10 de la noche).
+De no efectuarse la corrección o anulación del envío del formulario (sea de planilla o inclusión provisional) en el plazo señalado anteriormente, el Tomador del seguro podrá solicitarla por escrito al INS indicando las razones correspondientes, siempre y cuando lo realice dentro de los 5 días hábiles posteriores a la fecha de envío del formulario.
+En caso de que el INS advierta la posibilidad de un error en la planilla o inclusión, podrá informarlo al patrono, a partir de lo cual corre el plazo dispuesto para que éste proceda a efectuar la corrección que corresponda.

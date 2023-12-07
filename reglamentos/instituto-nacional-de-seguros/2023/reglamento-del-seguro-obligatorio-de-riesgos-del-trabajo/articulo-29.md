@@ -1,0 +1,3 @@
+Artículo 29. Monto consumido del período
+El monto consumido del período se determinará con base en el monto de las planillas registradas durante el período de liquidación.
+Con referencia a las pólizas RT-Cosechas, al finalizar la vigencia del período, el Tomador del seguro deberá aportar una constancia de la producción real entregada expedida por el ente encargado de recibir la cosecha, a efecto de establecer el monto real consumido.

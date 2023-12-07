@@ -1,0 +1,3 @@
+Artículo 45. Disposiciones sobre casos no amparados
+Cuando el reclamo sea procesado como un caso no amparado, el INS referirá al trabajador al régimen que le corresponda, para su atención.
+El INS conservará el derecho de solicitar al lesionado o al régimen correspondiente, el pago de los gastos incurridos por las prestaciones otorgadas, en razón del principio básico de protección a la vida y la salud, pero que no le corresponde cubrir al INS por no tratarse de un riesgo de trabajo.

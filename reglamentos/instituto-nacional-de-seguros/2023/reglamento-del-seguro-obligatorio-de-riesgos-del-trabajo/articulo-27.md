@@ -1,0 +1,2 @@
+Artículo 27. Modificación de un proyecto de construcción
+Con fundamento en lo que establece el artículo 211 del Código de Trabajo, si durante la realización de las actividades de construcción se presentan desviaciones o cambios, con relación a la información consignada en la "Declaración de obras de construcción", el Tomador del seguro deberá presentar una nueva declaración con la información actualizada, siempre y cuando la obra esté en ejecución, a fin de que el INS realice los ajustes o anotaciones que correspondan en la póliza.
