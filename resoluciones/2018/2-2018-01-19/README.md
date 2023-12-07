@@ -16,3 +16,4 @@ Requisitos que deben cumplir los permisionarios y concesionarios del servicio p�
 | 1 | 2018-01-25 | la propia norma |
 | 2 | 2018-12-14 | Resolución 168 (2018-12-14) |
 | 3 | 2019-10-28 | Resolución 107 (2019-10-28) |
+| 4 | 2023-12-07 | Resolución 72 (2023-12-07) |
