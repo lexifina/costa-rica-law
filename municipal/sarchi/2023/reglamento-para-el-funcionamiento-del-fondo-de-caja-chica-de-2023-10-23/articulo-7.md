@@ -1,0 +1,1 @@
+Artículo 7º-Del trámite previo a la solicitud de caja chica. Únicamente se podrán ingresar solicitudes de caja chica, cuando se cuente con contenido presupuestario suficiente para la compra de bien o servicio requerido. El monto del gasto deberá ser estimado en forma diligente y responsable por la persona interesada.

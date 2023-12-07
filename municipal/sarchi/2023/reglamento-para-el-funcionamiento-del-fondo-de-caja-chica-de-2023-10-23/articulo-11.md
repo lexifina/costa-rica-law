@@ -1,0 +1,1 @@
+Artículo 11.-De los casos en que el gasto no se ejecuta. Cuando por algún motivo la compra o el giro no se lleve a cabo, el funcionario que ha recibido el dinero mediante el formulario de entrega de efectivo y liquidación de caja chica deberá hacer la devolución del dinero en el plazo máximo del día hábil siguiente.
