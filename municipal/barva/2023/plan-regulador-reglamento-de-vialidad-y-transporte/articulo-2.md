@@ -1,0 +1,1 @@
+Artículo 2-. Fines: Propiciar y mantener un adecuado sistema vial que permita al Cantón funcionar eficientemente, encauzando los diferentes flujos motorizados y disminuyendo las molestias a los residentes.

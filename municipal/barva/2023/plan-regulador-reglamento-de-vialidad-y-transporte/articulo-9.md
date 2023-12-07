@@ -1,0 +1,4 @@
+Artículo 9-. Red Vial Cantonal: Corresponde su administración a las municipalidades. Estará constituida por los siguientes caminos públicos, no incluidos por el Ministerio de Obras Públicas y Transportes dentro de la Red Vial Nacional:
+a) Caminos vecinales: Caminos públicos que suministren acceso directo a fincas y a otras actividades económicas rurales, unen caseríos poblados con la Red Vial Nacional, y se caracterizan por tener bajos volúmenes de tránsito y altas proporciones de viajes locales de corta distancia.
+b) Calles locales: Vías públicas incluidas dentro del cuadrante de un área urbana, no clasificada como travesías urbanas del a Red Vial Nacional.
+c) Caminos no clasificados: Caminos públicos no clasificados dentro de las categorías descritas anteriormente, tales como caminos de herradura, sendas, veredas, que proporcionen acceso a muy pocos usuarios quienes sufragarán los costos de mantenimiento y mejoramiento.

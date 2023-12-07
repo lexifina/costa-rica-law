@@ -1,0 +1,1 @@
+Artículo 15-. Ciclo vías (CCV): Son aquellas vías destinadas para el uso y disfrute de la circulación de bicicletas. El diseño será elaborado según la "Guía Técnica de Diseño para la Infraestructura Ciclística" que es referenciado en el artículo 18 del Reglamento 42111 de la Ley No. 9660, Ley de Movilidad y Seguridad Ciclística.

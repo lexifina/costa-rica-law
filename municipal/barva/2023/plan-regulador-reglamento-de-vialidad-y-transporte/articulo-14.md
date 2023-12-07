@@ -1,0 +1,1 @@
+Artículo 14-. Ruta Terciaria (RT): Son las vías conocidas como calles locales según Reglamento 40137 y la Ley 5060, que funcionan como colectoras que canalizan los flujos desde barrios, urbanizaciones o caseríos hacia las rutas primarias y secundarias. Toleran velocidades bajas de circulación, y canalizan el transporte privado.
