@@ -1,0 +1,1 @@
+Artículo 89: De la condicionalidad del Programa Cuadernos e implementos escolares: Las personas sujetas al otorgamiento de este subsidio deberán ser estudiantes activos en el sistema educativo y matriculados en los centros educativos donde se distribuyan los paquetes escolares, de acuerdo con definido en el Decreto Ejecutivo Nº 34531-MP-G-MIVAH-MEP-MTSS-H.

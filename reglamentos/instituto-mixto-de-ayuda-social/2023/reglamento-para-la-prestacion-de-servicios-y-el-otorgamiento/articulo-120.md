@@ -1,0 +1,4 @@
+Artículo 120: De la certificación del carácter de bienestar social a los sujetos privados: El DASAI es el área encargada de emitir la certificación del carácter de bienestar social a las organizaciones privadas e instituciones públicas que así lo soliciten por escrito, una vez que las organizaciones cumplan con los requisitos establecidos al efecto mediante la presentación de solicitud (físico o digital) anexando los siguientes documentos:
+a) Formulario para solicitar la certificación como IBS.
+b) Declaración jurada mediante la cual la organización declare que mantiene las condiciones por las cuales fue otorgado el carácter de bienestar social.
+Luego de presentada la solicitud, DASAI cuenta con diez días hábiles para entregar la certificación. En caso de requerirse, se comunica a la organización si se debe subsanar algún requisito detallado en este artículo, para lo cual se brinda un plazo máximo a la organización de cinco días hábiles.

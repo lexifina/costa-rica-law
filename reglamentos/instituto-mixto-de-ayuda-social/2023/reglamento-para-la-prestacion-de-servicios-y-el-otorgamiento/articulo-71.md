@@ -1,0 +1,2 @@
+CAPÍTULO DÉCIMO SEGUNDO: DE LA LIQUIDACIÓN DE LOS RECURSOS
+Artículo 71: De la liquidación de los recursos girados a los sujetos de derecho público y privado: Los sujetos de derecho público y privado deberán presentar la liquidación de los recursos ante las Unidades de Coordinación Administrativa Regional (UCAR) de las Áreas Regionales de Desarrollo Social o ante el Departamento de Acción Social y Administración de Instituciones, según corresponda.

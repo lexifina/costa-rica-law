@@ -1,0 +1,1 @@
+Artículo 61: Informe final de evaluación: El informe final de la evaluación presentará los hallazgos de cada proceso y el plan de acción a la Dirección Superior y representación de actores involucrados. La instancia encargada de la ejecución y del seguimiento al plan de acción es la Dirección de Desarrollo Social y del proceso de evaluación es Planificación Institucional.

@@ -1,0 +1,3 @@
+CAPITULO DÉCIMO PRIMERO: DE LA INFORMACIÓN, DEBIDA ADMINISTRACIÓN,
+FINALIDAD Y RESTRICCIONES
+Artículo 62: Propiedad de la información social: La información social que utiliza el IMAS se compone de la información de las personas y hogares que tiene registrada el SINIRUBE así como los sistemas de información social desarrollados para tal efecto, y cada persona u hogar es propietaria de su información, sobre ella también tiene el derecho de rectificación en los términos señalados por la Ley de Protección de la Persona Frente al Tratamiento de sus Datos Personales N° 8968 del 7 de julio del 2011 y sus reformas, pero los derechos de propiedad y rectificación no alcanza a la información de terceros.

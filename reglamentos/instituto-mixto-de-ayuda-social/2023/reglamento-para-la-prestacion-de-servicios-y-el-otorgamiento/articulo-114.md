@@ -1,0 +1,6 @@
+Artículo 114: Requisitos específicos del subsidio de equipamiento básico para sujetos de derecho público que no tienen carácter de bienestar social:
+a) Permiso sanitario de funcionamiento, habilitación o de operación según el tipo de proyecto y la norma que lo rige o documento emitido por la entidad correspondiente que indique que no se requiere dicho permiso.
+b) Nota, acto administrativo o acuerdo que indique que el sujeto de derecho público cuenta con las instalaciones adecuadas y recursos necesarios para operar el proyecto y que no tiene procesos judiciales pendientes que puedan afectar el patrimonio aportado por IMAS para el proyecto y su desarrollo.
+c) Plan de Inversión aprobado por el área administrativa competente donde se detallen los bienes y servicios por adquirir, recomendado técnicamente por un profesional afín.
+d) Una factura proforma a nombre del sujeto de derecho público, donde se detallen los bienes y servicios que se van a adquirir, de acuerdo con los rubros considerados en el Plan de Inversión previamente aprobado.
+e) Nota de aportes complementarios por imprevistos suscrito por el sujeto público solicitante.

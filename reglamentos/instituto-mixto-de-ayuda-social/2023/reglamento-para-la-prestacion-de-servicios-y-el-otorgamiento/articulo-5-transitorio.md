@@ -1,0 +1,2 @@
+Transitorio V: El Departamento de Atención Integral e Interinstitucional deberá realizar todas las gestiones para coordinar con las instancias y entes involucrados a efectos de que en los procesos de atención realizados en el IMAS se pueda realizar la debida aplicación del Baremo de la Valoración de la Dependencia y la Intensidad de los Apoyos (BVD) establecida en este reglamento, para lo cual se cuenta con un plazo máximo de seis meses a partir de la entrada en vigencia del presente reglamento.
+<span style='font-family:"Arial",sans-serif; </body>

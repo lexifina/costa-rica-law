@@ -1,0 +1,2 @@
+Artículo 65: Administración de la información social: La información de las personas y hogares que se encuentran registradas en las bases de datos, solo se podrá acceder por las personas funcionarias que determine la institución, para lo que suscribirán el contrato de confidencialidad necesario.
+La información se administrará bajo el criterio de acceso necesario de manera que se acceda por la persona competente de manera suficiente y necesario para desarrollar su trabajo y no podrá compartirla con terceras personas.

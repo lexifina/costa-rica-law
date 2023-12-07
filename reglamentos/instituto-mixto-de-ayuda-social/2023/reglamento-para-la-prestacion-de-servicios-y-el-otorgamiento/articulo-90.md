@@ -1,0 +1,2 @@
+Artículo 90: Requisitos específicos del subsidio procesos formativos: Las personas sujetas al otorgamiento de este subsidio deberán presentar:
+a) Documento que describa el programa del curso, el costo, la duración, y la experiencia técnica (en años) de la persona o instancia facilitadora, emitido formalmente por la institución o persona física o jurídica, salvo aquellas personas que asistan al proceso de formación humana, impartido por el Instituto Nacional de las Mujeres.

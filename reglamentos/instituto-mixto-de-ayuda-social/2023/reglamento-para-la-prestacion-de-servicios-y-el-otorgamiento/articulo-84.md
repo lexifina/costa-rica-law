@@ -1,0 +1,2 @@
+Artículo 84: Requisitos específicos del subsidio de emergencias:
+a) Reporte de incidente de emergencia individual o grupal, en formato físico o digital, emanado de la Comisión Nacional de Emergencias, del Comité Municipal de Emergencias, el Benemérito Cuerpo de Bomberos, la Benemérita Cruz Roja Costarricense, así como la Caja Costarricense del Seguro Social y el Ministerio de Salud, en caso de emergencias de índole sanitaria o Formulario de Levantamiento de Datos para la Atención de Emergencias elaborado por una persona funcionaria competente del IMAS.

@@ -1,0 +1,3 @@
+Artículo 11: Plazo máximo de respuesta sobre la aceptación o rechazo de solicitudes: Cuando los requisitos documentales o digitales estén cumplidos, la ULDS o DASAI cuenta con un plazo máximo de hasta diez días hábiles, para que se notifique por los medios aportados por la persona física o jurídica solicitante, la respuesta de la Administración a su petición.
+La oficina que tenga el trámite a cargo realiza la comunicación por los medios aportados, en la que mencionará el nombre y cargo de la persona que tiene la solicitud, los medios y horarios para contactarle y esta persona funcionaria en ese plazo puede realizar las visitas, informes, estudios, coordinaciones interinstitucionales y otros
+que sean necesarios para fundamentar su decisión.

@@ -1,0 +1,5 @@
+CAPÍTULO DÉCIMO: DE LA EVALUACIÓN, SEGUIMIENTO Y CONTROL
+Artículo 57: Del control de los recursos: El control de los recursos asignados se realiza de la siguiente manera:
+a) Las personas funcionarias, según sus competencias, deben velar por el cumplimiento de la normativa institucional en la asignación de los recursos destinados a los beneficios, subsidios o transferencias monetarias de la oferta institucional.
+b) En los casos que corresponda, las personas funcionarias verificarán el uso de los recursos, mediante la revisión de las liquidaciones que presenten las personas, hogares o sujetos de derecho público y privado, de acuerdo con los requisitos y procedimientos establecidos.
+Cuando se detecte una inconsistencia en la administración de los recursos, ya sea por parte de las personas beneficiarias o funcionarias, se deberá proceder según lo estipulado en los artículos de este Reglamento referidos a la suspensión y renovación de un beneficio, subsidio o transferencia monetaria, así como a la impugnación de los actos administrativos que así lo dispongan y demás normas conexas.

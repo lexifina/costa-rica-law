@@ -1,0 +1,1 @@
+Artículo 20: Sobre el uso de información certificada del SINIRUBE: Con fundamento en normativa externa de rango superior que coincida con los fines y objetivos del IMAS, se podrá utilizar la información certificada del SINIRUBE como instrumento de recolección y análisis de información.

@@ -1,0 +1,1 @@
+Artículo 25: De la disponibilidad presupuestaria: Todo beneficio, subsidio o transferencia monetaria que se apruebe de conformidad con lo establecido en el presente reglamento deberá tener la respectiva disponibilidad presupuestaria existente en la correspondiente fuente de financiamiento por el plazo por el cual se apruebe.

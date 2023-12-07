@@ -1,0 +1,2 @@
+Artículo 70: Información de libre disposición: El IMAS podrá poner en conocimiento de instancias gubernamentales, órganos de control y supervisión, la academia y la población general información estadística sobre la población en condiciones de pobreza extrema y pobreza del país, sin identificación de personas y hogares concretos, sino en términos absolutos y relativos.
+También podrá disponer de estos datos para rendir cuentas y para sus procesos internos de toma de decisiones sobre la ejecución de los recursos de inversión social.

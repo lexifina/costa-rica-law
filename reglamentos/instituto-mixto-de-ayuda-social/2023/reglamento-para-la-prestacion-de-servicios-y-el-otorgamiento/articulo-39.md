@@ -1,0 +1,1 @@
+Artículo 39: Se podrá tramitar beneficios, subsidios o transferencias monetarias creados de forma específica y temporal sin que medie solicitud de la persona receptora, cuando se creen por normativa externa de rango superior y que coincida con los fines y objetivos del IMAS.

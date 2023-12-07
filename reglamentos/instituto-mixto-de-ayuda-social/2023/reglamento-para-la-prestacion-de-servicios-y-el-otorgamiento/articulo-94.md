@@ -1,0 +1,1 @@
+Artículo 94: Requisitos del beneficio de Titulación: Las personas u hogares solicitantes del beneficio de Titulación deberán presentar los requisitos específicos que se establecen en el Decreto 29531-MTSS y sus reformas, así como cualquier otra norma habilitante que se establezca en este tema.

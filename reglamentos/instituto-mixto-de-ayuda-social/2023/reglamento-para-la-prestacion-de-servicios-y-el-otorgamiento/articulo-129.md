@@ -1,0 +1,3 @@
+CAPÍTULO VIGÉSIMO SEGUNDO: GESTIÓN DIGITAL DE LA ACTIVIDAD FORMAL Y
+SUSTANTIVA DEL IMAS
+Artículo 129: Política: La Presidencia Ejecutiva, la Gerencia General y la Dirección de Desarrollo Social propondrán al Consejo Directivo del IMAS una política que informe la actividad formal sustantiva en las oficinas locales y regionales de la institución, orientando la forma de intervención y atención de las personas, hogares y sujetos de derecho público y de derecho privado a la utilización de la tecnología para conformar los expedientes en que se documenta y fundamenta el otorgamiento de beneficios, subsidios y transferencias monetarias y que reduzca considerable y decididamente el uso del papel.

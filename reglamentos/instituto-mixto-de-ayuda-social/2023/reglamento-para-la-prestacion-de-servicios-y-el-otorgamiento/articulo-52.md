@@ -1,0 +1,1 @@
+Artículo 52: De la participación de las Áreas Regionales de Desarrollo Social: Las ARDS, participarán y apoyarán en los Comités Regionales y Municipales de Emergencias, todo de conformidad con sus competencias y la capacidad instalada.

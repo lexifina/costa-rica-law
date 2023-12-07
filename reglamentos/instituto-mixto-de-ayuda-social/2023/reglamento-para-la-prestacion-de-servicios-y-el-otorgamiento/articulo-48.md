@@ -1,0 +1,1 @@
+Artículo 48: Del alcance de la medida cautelar para la TMC Cuidado y Desarrollo Infantil: Para determinar los alcances de una medida cautelar debe analizarse la situación presentada de manera casuística, retomando los principios de interés superior de las PME, proporcionalidad, razonabilidad, idoneidad y necesidad, aplicando el procedimiento establecido para tal efecto.

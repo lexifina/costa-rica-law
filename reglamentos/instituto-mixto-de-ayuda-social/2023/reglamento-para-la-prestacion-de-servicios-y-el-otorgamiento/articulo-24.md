@@ -1,0 +1,2 @@
+CAPÍTULO QUINTO: DE LOS RECURSOS MONETARIOS
+Artículo 24: Consideración sobre Transferencias Monetarias temporales recibidas por la población objetivo: Las transferencias monetarias o subsidios, ambos de carácter temporal que realiza el Estado por concepto de un programa o fin específico, formarán o no, parte para la medición de pobreza que utiliza esta institución, según se regule institucionalmente los procedimientos para la aplicación de los instrumentos de recolección y análisis de información establecidos en este reglamento.

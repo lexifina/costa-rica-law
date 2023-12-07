@@ -1,0 +1,1 @@
+Artículo 132: Inicio del expediente digital: El expediente digital se implementará sin registros, respaldos o documentos físicos, desde que se apertura una nueva gestión, beneficio, subsidio o transferencia monetaria o con el inicio de un periodo presupuestario.

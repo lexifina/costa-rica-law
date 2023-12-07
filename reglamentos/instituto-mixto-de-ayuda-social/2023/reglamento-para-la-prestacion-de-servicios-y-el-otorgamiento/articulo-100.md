@@ -1,0 +1,1 @@
+Artículo 100: En caso de creación de beneficios, subsidios o transferencias monetarias con base en normativa externa de rango superior que coincida con los fines y objetivos del IMAS, se deberá cumplir con los requisitos y condiciones que se establezcan en dicha normativa.

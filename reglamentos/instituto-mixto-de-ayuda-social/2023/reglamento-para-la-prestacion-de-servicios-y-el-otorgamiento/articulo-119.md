@@ -1,0 +1,8 @@
+Artículo 119: Del otorgamiento del carácter de bienestar social a los sujetos de derecho privado: El DASAI, es el área encargada de otorgar el carácter de bienestar social a las organizaciones, que así lo soliciten por escrito, por primera vez o adicionando programas, así como de emitir la certificación de dicho carácter, una vez que las organizaciones cumplan con los requisitos establecidos al efecto mediante la presentación de solicitud (físico o digital) anexando los siguientes documentos:
+a) Acta constitutiva de la respectiva entidad con las correspondientes reformas, si las hubiere, la cual podrá obtenerse mediante coordinación interinstitucional según ley 8220.
+b) Listado de población usuaria de los servicios de la organización (que contenga al menos, nombre completo, número de identificación, fecha de nacimiento, edad).
+c) Certificación literal de la personería jurídica vigente la cual podrá obtenerse mediante coordinación interinstitucional según ley 8220.
+d) Declaración jurada mediante la cual se indique que la organización cuenta con los libros legales al día y debidamente autorizados por la instancia competente para tal efecto.
+e) Permiso Sanitario de Funcionamiento o habilitación del Ministerio de Salud, cuando corresponda (la cual podrá obtenerse mediante coordinación interinstitucional según ley 8220).
+f) Encontrarse al día con las contribuciones con la Seguridad Social, Ministerio de Hacienda, FODESAF y el IMAS (el IMAS lo verifica mediante consultas interinstitucionales en línea).
+g) Aval, visto bueno o permiso de funcionamiento del ente o entes rectores técnicos, según corresponda (el IMAS lo tramita mediante coordinación interinstitucional según ley 8220).

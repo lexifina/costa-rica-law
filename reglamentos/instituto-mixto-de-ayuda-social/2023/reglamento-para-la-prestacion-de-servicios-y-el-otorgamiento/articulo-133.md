@@ -1,0 +1,1 @@
+Artículo 133: Archivo: Los expedientes que hayan iniciado de forma física podrán continuarse bajo una modalidad digital, pero los registros y demás documentos físicos, se mantendrán en los archivos físicos de la institución hasta que cumpla el plazo de archivo que rige según el tipo de expediente.

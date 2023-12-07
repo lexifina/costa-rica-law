@@ -1,0 +1,1 @@
+Artículo 136: Derogatoria: El presente Reglamento deroga íntegramente el Reglamento de Prestación de Servicios y Otorgamiento de Beneficios Institucionales aprobado por acuerdo del Consejo Directivo CD-204-05-18, del 28 de mayo del 2018, así como toda otra normativa de rango inferior que le oponga.

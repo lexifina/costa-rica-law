@@ -1,0 +1,2 @@
+Artículo 66: Derecho a la privacidad de la información: El IMAS reconoce que las personas y hogares que se encuentran registradas en las bases de datos son sujetos de derecho y que en tal condición tienen el derecho de exigir el mayor de los recaudos para que no se divulguen sus datos personales sensibles y confidenciales.
+También reconoce que este es un derecho fundamental y toda su actuación formal y material debe inspirarse en la protección de la información de estas personas.

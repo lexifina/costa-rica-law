@@ -1,0 +1,3 @@
+Artículo 128: Requisitos específicos del subsidio de costo de atención para organizaciones de bienestar social:
+a. Listado de personas usuarias de los servicios (que contenga al menos, nombre completo, número de identificación, fecha de nacimiento, edad).
+b. Nota que indique que la organización de bienestar social cuenta con las instalaciones adecuadas y recursos necesarios para operar el proyecto, que se comprometen a aportar los recursos que hagan falta para completar el proyecto y que la organización no tiene procesos judiciales pendientes que puedan afectar el patrimonio aportado por IMAS para el proyecto y su desarrollo.

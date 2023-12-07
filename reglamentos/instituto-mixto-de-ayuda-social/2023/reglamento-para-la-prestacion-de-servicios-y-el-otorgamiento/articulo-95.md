@@ -1,0 +1,1 @@
+Artículo 95: Requisitos para levantamiento de limitaciones: Las personas u hogares solicitantes del beneficio de Titulación deberán presentar los requisitos específicos que se establecen en el Decreto 29531-MTSS y sus reformas.
