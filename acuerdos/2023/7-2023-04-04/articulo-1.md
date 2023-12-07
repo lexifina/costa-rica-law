@@ -1,0 +1,5 @@
+ENTE COSTARRICENSE DE ACREDITACIÓN
+AVISO
+N° 2023-007. El Ente Costarricense de Acreditación (ECA), en cumplimiento de la Ley 8279 Ley del Sistema Nacional de la Calidad, da a conocer la modificación de los documentos: ECA-MC-C05 CRITERIOS PARA LA EVALUACIÓN DE LA NORMA INTE-ISO/IEC 17021-1, pasa de versión 20 a versión 21, ECA-MP-P10 Manual de Procedimientos para la Evaluación y Acreditación Seguimiento y Reevaluación, pasa de versión 09 a versión 10. Los documentos descritos anteriormente se encuentran a disposición de los interesados en la página electrónica http:// www.eca.or.cr/; así mismo puede solicitar el envío de manera electrónica o solicitar gratuitamente una copia no controlada en la Gestoría de Calidad en las oficinas centrales del ECA ubicadas en San José, Barrio Don Bosco, Avenida 02 y Calle 32, contiguo a la Embajada de España, en horario de lunes a viernes de 8 h a 16 h. única vez.
+San José, 04 de abril del 2023.
+(Nota de Sinalevi: Por tener articulado propio el Procedimiento ECA-MC-C05 y ECA-MP-P10 deben ser consultados en el Sistema de forma independiente)
