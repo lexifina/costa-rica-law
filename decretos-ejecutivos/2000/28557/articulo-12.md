@@ -1,1 +1,3 @@
-CAPÍTULO III De las disposiciones finales Artículo 12.-Una comisión nombrada por el señor Ministro de Educación, bajo la coordinación de uno de los Viceministros, definir otras características adicionales del uniforme oficial que se comunicarán a los directores de centros educativos con suficiente antelación.
+CAPÍTULO III
+De las disposiciones finales
+Artículo 12.- (Derogado por el artículo 11 del decreto ejecutivo N° 44324 del 7 de diciembre del 2023)
