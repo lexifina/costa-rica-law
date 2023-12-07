@@ -1,0 +1,1 @@
+Artículo 5-. Alineamiento: Serán los que determine el Plan Regulador por medio del Reglamento de Zonificación en su artículo 30. Su delimitación o trazado oficial cartográfico y en campo será requisito fundamental para el otorgamiento de licencias de construcción cuando corresponda.

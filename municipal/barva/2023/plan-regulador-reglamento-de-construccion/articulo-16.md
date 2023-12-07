@@ -1,0 +1,1 @@
+Artículo 16-. Red Sanitaria: Toda construcción nueva en urbanización, desarrollos bajo la modalidad de condominios y fraccionamientos con número de lotes mayor a cuatro, deberá acatar las disposiciones del AyA en materia de previstas para conexión futura a la red sanitaria.

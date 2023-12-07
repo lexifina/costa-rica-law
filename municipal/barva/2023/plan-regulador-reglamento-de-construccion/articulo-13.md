@@ -1,0 +1,1 @@
+Artículo 13-. Los edificios pueden construirse hacia arriba o hacia abajo del nivel de referencia. Hacia arriba se regulan por la altura de edificación, dada en metros o en pisos y hacia abajo por la profundidad de sótanos.

@@ -1,0 +1,1 @@
+Artículo 6-. La Línea de Construcción: Se determina a partir de la suma de la mitad del derecho de vía, más el retiro correspondiente, trazando la línea paralela a la línea de propiedad, a una distancia igual a la del retiro frontal, determinada por el alineamiento, el cual debe respetarse en forma aérea y subterránea.
