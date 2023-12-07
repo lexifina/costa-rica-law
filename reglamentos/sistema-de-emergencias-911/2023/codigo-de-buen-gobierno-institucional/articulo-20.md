@@ -1,0 +1,2 @@
+Artículo 20. La unidad de Tecnologías de Información debe responder a los procesos de planificación, control y gestión del riesgo establecidos por las normas que regulan la materia y los documentos internos emitidos por la institución.
+Los procesos y subprocesos que se deriven de la Unidad de Tecnologías de Información estarán relacionados con la estructura organizativa y contenidos en los documentos institucionales como Manual de Organización, Manual de Procedimientos y Marco de Gestión de TI según corresponda.

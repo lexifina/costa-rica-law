@@ -1,0 +1,1 @@
+Artículo 36. La comunicación se considera un proceso integral y estratégico para la gestión institucional, por tanto, debe ser clara, transparente y oportuna, con información precisa, veraz, completa y debidamente respaldada.

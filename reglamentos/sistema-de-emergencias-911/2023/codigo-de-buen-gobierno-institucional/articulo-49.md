@@ -1,0 +1,2 @@
+18 Sobre los conflictos de interés y la ética
+Artículo 49. Todos los personas funcionarias institucionales se comprometen a aplicar en forma permanente lineamientos que garanticen una actuación ética y que prevenga los conflictos de interés. Para ello la institución cuenta con los documentos “R-DR-004, Reglamento para el trámite de denuncias”, “Código de Ética y Conducta” y “PL-DR-005, Política de Ética y Valores”, los cuales pueden ser consultados en sitio http://www.911.go.cr/buen-gobierno/.

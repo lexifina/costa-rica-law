@@ -1,0 +1,1 @@
+Artículo 25. El Sistema de Emergencias 9-1-1 cuenta con un Código de ética y conducta institucional, que hace parte integral de las mejores prácticas, donde se reúnen los valores, principios y comportamientos que deben guiar la conducta de las personas funcionarias, proveedores, contratistas y representantes de la Comisión Coordinadora.

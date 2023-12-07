@@ -1,0 +1,1 @@
+Artículo 39. El Sistema de Emergencias 9-1-1, se compromete a realizar la rendición de cuentas, al menos una vez al año para informar sobre la gestión realizada, para ello se utilizarán los medios que se estimen convenientes para poner al alcance de las partes interesadas la información que no sea confidencial.

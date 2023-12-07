@@ -1,0 +1,1 @@
+Artículo 18. Se deberá priorizar la gestión de Tecnologías de Información, para que brinde el apoyo oportuno y necesario al servicio que se presta al país, con el fin de ayudar en el cumplimiento de la visión y metas propuestas, mediante la participación en el desarrollo estratégico y la planificación de iniciativas.

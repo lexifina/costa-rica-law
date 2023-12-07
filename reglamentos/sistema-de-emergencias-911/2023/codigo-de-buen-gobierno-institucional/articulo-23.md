@@ -1,0 +1,1 @@
+Artículo 23. La institución tiene como visión "Ser reconocidos en el ámbito nacional e internacional como una institución transparente, ágil, de alta interoperabilidad y calidad de servicio en beneficio directo de la población."

@@ -1,0 +1,1 @@
+Artículo 10. El Sistema de Emergencias cuenta con un Reglamento Interno de la Comisión Coordinadora que regula el accionar de esta y de sus miembros, el cual puede ser consultado en el sitio web institucional http://www.911.go.cr/buen-gobierno/.

@@ -1,0 +1,1 @@
+Artículo 9. Los miembros de la Comisión Coordinadora no devengan dietas. Este cuerpo Colegiado sesiona una vez al mes el día que se defina por medio de acuerdo firme a partir de las ocho horas y en forma extraordinaria, cuando se requiera y sea debidamente convocada por su Presidente o por la mitad más uno de sus miembros.

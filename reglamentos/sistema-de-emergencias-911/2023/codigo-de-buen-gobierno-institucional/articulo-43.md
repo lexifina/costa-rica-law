@@ -1,0 +1,1 @@
+Artículo 43. La institución realizará, en la medida de las posibilidades, compras sustentables, y promoverá mecanismos de educación medioambiental con sus personas funcionarias y las comunidades, uso de tecnologías limpias, manejo de desechos y uso de recursos no renovables.

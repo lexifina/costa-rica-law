@@ -1,0 +1,1 @@
+Artículo 31. Sin perjuicio de la gestión de riesgos que todas las personas funcionarias deben realizar, se encuentra debidamente conformado el Comité Gerencial de Riesgos e identificadas sus atribuciones en el documento Marco Orientador, el cual puede ser consultado en el sitio http://www.911.go.cr/buen-gobierno/.

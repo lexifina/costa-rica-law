@@ -1,0 +1,5 @@
+Artículo 24. Los valores institucionales son.
+. Solidaridad: Colaboración para la atención de las emergencias en donde la vida, la integridad y la seguridad de los ciudadanos se encuentre comprometida. Parte del sentimiento y la actitud social de unidad basada en metas o intereses comunes; se refiere a ayudar sin recibir nada a cambio con la aplicación de lo que se considera es bueno para todos.
+. Disciplina: Es el cumplimiento de las acciones, normas y procedimientos que determinan las obligaciones y que permiten brindar un servicio de calidad, orden, eficacia y excelencia como parte del deber y responsabilidad, para estar en condiciones de realizar las actividades que nos piden y poder desempeñarlas lo mejor que se pueda y ser merecedores de la confianza de los ciudadanos.
+. Compromiso: Tomar conciencia de la importancia y el cumplimiento de la labor, poniendo al máximo las capacidades, conociendo y aceptando las obligaciones de hacer el trabajo con excelencia.
+. Humanismo: Atención del servicio con comprensión, empatía, sensibilidad, respeto, para prevenir y ayudar en el momento de la emergencia a los ciudadanos

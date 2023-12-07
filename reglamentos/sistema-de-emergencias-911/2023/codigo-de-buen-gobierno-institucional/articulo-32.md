@@ -1,0 +1,1 @@
+Artículo 32. El resultado de los análisis de riesgos se dará conocer a las partes interesadas, según la pertinencia de los grupos a quienes va dirigido el documento. Esta publicación se hace por medio del sitio web http://www.911.go.cr/buen-gobierno/, una vez aprobado el informe final de riesgos.

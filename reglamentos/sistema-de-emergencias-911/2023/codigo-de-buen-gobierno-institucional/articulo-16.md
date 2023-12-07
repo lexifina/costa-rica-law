@@ -1,0 +1,2 @@
+9 Enfoque de Gobierno de TI
+Artículo 16. La unidad de Tecnologías de Información del Sistema de Emergencias 9-1-1 tendrá un enfoque transversal para el respaldo de las actividades del Sistema y contar con una estructura de Gobierno de Tecnologías de Información de conformidad con las mejores prácticas, con actividades y propósitos orientados a la generación de valor, por medio de los resultados de la aplicación de los procesos, servicios e inversiones, con el propósito de cumplir los objetivos institucionales.

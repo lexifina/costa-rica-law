@@ -1,0 +1,8 @@
+Artículo 21. El sistema de Gobierno de las Tecnologías de Información en la institución se basa en los siguientes principios1, que expresan el comportamiento deseable para orientar la toma de decisiones:
+1. Responsabilidad: Los individuos y grupos dentro de la institución comprenden y aceptan sus responsabilidades con respecto a la demanda y al suministro de productos y servicios de las TI. Quienes tienen la responsabilidad sobre las actuaciones también tienen la autoridad para llevarlas a cabo.
+2. Estrategia: La estrategia de la institución tiene en cuenta las capacidades actuales y futuras de las TI; los planes estratégicos de las TI satisfacen las necesidades actuales y futuras de la estrategia de la institución.
+3. Adquisición: Las adquisiciones de TI se hacen por razones válidas, sobre la base de análisis adecuados y continuados, a través de decisiones claras y transparentes. Hay un adecuado equilibrio entre beneficios, oportunidades, costes y riesgos, tanto a corto como a largo plazo.
+4. Desempeño: La tecnología de información satisface el propósito de dar soporte a la organización, mediante la provisión de servicios, niveles de servicio y calidad de servicio requeridos para alcanzar los requisitos presentes y futuros del servicio.
+5. Cumplimiento: La tecnología de Información cumple con la legislación y normativas obligatorias. Las políticas y prácticas están claramente definidas, implantadas y se hacen cumplir.
+6. Conducta humana: Las políticas de TI, prácticas y decisiones relacionadas con las TI respetan las políticas institucionales con respecto a la ética y comportamiento individual.
+1Principios según en ISO/IEC 38500:2015.

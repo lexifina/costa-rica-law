@@ -1,0 +1,1 @@
+Artículo 19. La unidad de Tecnologías de Información deberá orientar una parte de sus esfuerzos y dentro de las posibilidades institucionales, a mejorar los procesos y servicios por medio de la transformación digital para satisfacer las necesidades de las partes interesadas.

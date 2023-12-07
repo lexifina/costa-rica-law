@@ -1,0 +1,1 @@
+Artículo 35. Los titulares subordinados, se comprometen a realizar las acciones necesarias para mantener actualizada la página web con la información relevante y pertinente sobre la institución, de conformidad con los documentos que regulan el tema.

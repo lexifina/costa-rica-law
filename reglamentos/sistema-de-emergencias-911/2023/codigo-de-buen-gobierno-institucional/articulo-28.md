@@ -1,0 +1,2 @@
+12 Gestión de Riesgos
+Artículo 28. El Sistema de Emergencias 9-1-1 requiere una gestión de riesgos congruente con la importancia del servicio y el impacto que este representa para la población del país. En este sentido, el documento "G-PL-001, Marco Orientador", establece las pautas para la gestión de riesgos institucional cuyo objetivo tiene el análisis, la valoración y la mitigación de estos a partir de acciones que minimicen su materialización, y por ende menoscaben o no permitan la consecución de los objetivos propuestos.

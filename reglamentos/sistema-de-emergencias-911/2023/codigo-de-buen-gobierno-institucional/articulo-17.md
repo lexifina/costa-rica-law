@@ -1,0 +1,1 @@
+Artículo 17. Este enfoque será parte integral del Gobierno Institucional, que tiene como propósito impulsar el máximo aprovechamiento de la tecnología, promoviendo el fortalecimiento de las estructuras, lineamientos y procesos para evaluar, dirigir y monitorear la gestión de las tecnologías de información actuales y futuras.

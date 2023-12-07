@@ -1,0 +1,1 @@
+Artículo 15. Las funciones y actividades, tanto de la Dirección como de las unidades antes indicadas, se encuentran reguladas en el Reglamento de Organización del Sistema de Emergencias 9-1-1 que puede ser consultado en el sitio web institucional http://www.911.go.cr/buen-gobierno/.

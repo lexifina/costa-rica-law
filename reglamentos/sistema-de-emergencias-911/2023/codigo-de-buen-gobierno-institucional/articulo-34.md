@@ -1,0 +1,2 @@
+13 Transparencia, comunicación y rendición de cuentas
+Artículo 34. La revelación de la información se hará de conformidad con el principio de transparencia por los medios que la institución disponga para ese fin, de manera que se cumpla con la disponibilidad de la información y el acceso a los datos por parte de las personas interesadas. Para efectos de regular la transparencia y acceso a la información se cuenta con el documento "PL-DR-014, Lineamientos sobre transparencia y acceso a la información", el cual puede ser consultado en http://www.911.go.cr/buen-gobierno/.

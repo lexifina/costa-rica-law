@@ -1,0 +1,1 @@
+Artículo 14. Las decisiones técnicas recaen en los coordinadores de Servicio Ciudadano y Soporte a la Gestión Operativa, quienes se harán acompañar de las recomendaciones que brinden los coordinadores de las unidades que las conforman.

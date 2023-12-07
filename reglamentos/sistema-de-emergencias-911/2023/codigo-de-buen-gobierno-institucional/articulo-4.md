@@ -1,0 +1,10 @@
+6 Definiciones
+Artículo 4. Para efectos de este Código de buen Gobierno, se entenderá por:
+Buenas prácticas: Conjunto coherente de acciones y compendios de marcos de trabajo emitidos por organismos especializados, control, fiscalización y gobernabilidad corporativa.
+Equidad: Cualidad que consiste en "a cada uno lo que se merece" en función de sus méritos o condiciones. Consiste en no favorecer en el trato a una persona perjudicando a otra.
+Ética: Rama de la filosofía que estudia lo correcto o equivocado del comportamiento humano, la moral, la virtud, el deber, la felicidad y el buen vivir.
+Gobierno institucional: Un sistema de gestión interna el cual define el conjunto de políticas, normas, principios, lineamientos y procedimientos que regulan la estructura y el funcionamiento de los órganos y unidades que gobiernan la institución y demás partes interesadas, así como sus respectivas rutinas de gestión en los diversos niveles de mando. Define la manera en que se asigna la autoridad y se toman las decisiones.
+Rendición de cuentas: Deber legal y ético de todo funcionario o persona de responder de informar a la administración, el manejo y los rendimientos de fondos, bienes y/o recursos públicos asignados, y los respectivos resultados, en el cumplimiento del mandato que le ha sido conferido. De esta manera se constituye en un recurso de transparencia y responsabilidad para generar confianza y luchar contra la corrupción.
+Partes interesadas: Conjunto de actores internos y externos que ejercen influencia sobre la organización. Grupos de interés que se puedan ver afectados por la actividad institucional o cuyas decisiones puedan afectar la gestión de la institución.
+Titulares subordinados: personas funcionarias de la administración activa, responsables de un proceso con autoridad para ordenar y tomar decisiones.
+Transparencia: Cualidad de las organizaciones públicas y privadas que permite que se vea o se perciba algo a través de ellas y que garantiza el acceso a la información, rendir cuentas, luchar contra la corrupción y propiciar la participación ciudadana.

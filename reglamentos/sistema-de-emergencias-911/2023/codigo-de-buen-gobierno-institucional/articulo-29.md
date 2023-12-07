@@ -1,0 +1,1 @@
+Artículo 29. La capacidad de riesgos refleja el nivel máximo de riesgo que la institución está dispuesta asumir, por lo que en el Marco Orientador del Sistema Específico de Valoración de Riegos se establecerá el apetito de riesgo.
