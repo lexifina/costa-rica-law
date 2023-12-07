@@ -1,1 +1,0 @@
-Artículo 62.- Comunicación del Acto de Adjudicación. Una vez adjudicado el concurso, la Unidad de Proveeduría Institucional de la CNE procederá con la comunicación del acto de adjudicación, mediante el Sistema Integrado de Compras Públicas, con indicación del plazo recursivo.

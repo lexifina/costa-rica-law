@@ -1,1 +1,0 @@
-Artículo 66.- Recurso de Revocatoria. Solo cabe recurso de revocatoria contra el acto de adjudicación o contra aquel que declara desierto, infructuoso o insuficiente el concurso en las contrataciones por emergencias, por ser el Presidente de la CNE el funcionario de mayor jerarquía.

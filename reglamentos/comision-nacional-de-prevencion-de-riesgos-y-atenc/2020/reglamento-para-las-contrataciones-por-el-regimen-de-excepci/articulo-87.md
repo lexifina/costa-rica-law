@@ -1,8 +1,0 @@
-Artículo 87.-Contrato Adicional. Si una vez Ejecutado el contrato, la UE informa de la necesidad de materiales, suministros o servicios adicionales de igual naturaleza, a la Unidad solicitante, ésta podrá obtenerlos del mismo contratista, siempre que éste lo acepte y se cumplan las siguientes condiciones:
-a) Que el nuevo contrato se concluya sobre las bases del precedente.
-b) Que se mantengan los precios y condiciones con base en los cuales se ejecutaron las obligaciones, pudiendo el contratista mejorar las condiciones iniciales.
-c) Que el monto del nuevo contrato no sea mayor al 50% del contrato anterior, contemplando los reajustes o revisiones y modificaciones operadas.
-d) Cuando el objeto del contrato original esté compuesto por líneas independientes, el 50% se calculará sobre el objeto y estimación general del contrato y no sobre el monto o cantidad de alguna línea en particular.
-e) En los contratos de objeto continuado, el 50% se considerará sobre el plazo originalmente convenido sin considerar las prórrogas.
-f) Que no hayan transcurrido más de seis meses desde la recepción provisional del objeto contractual. Cuando se trate de recepción definitiva, el plazo correrá a partir de esa fecha. En contratos con plazos de entrega diferidos, contará a partir de la última entrega de bienes. Se excluye del cómputo de este plazo, la ejecución de prestaciones subsidiarias de la principal, como el plazo de garantía sobre bienes y servicios de soporte y mantenimiento derivado del principal.
-g) Que en el contrato precedente no se hubiera incurrido en ningún tipo de atraso o incumplimiento grave.

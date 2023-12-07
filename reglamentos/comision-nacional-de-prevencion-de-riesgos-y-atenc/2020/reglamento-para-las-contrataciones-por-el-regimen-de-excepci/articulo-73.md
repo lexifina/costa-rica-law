@@ -1,1 +1,0 @@
-Artículo 73.- Nulidad. La interposición del incidente de nulidad y su posterior resolución, se tramitará bajo las reglas establecidas en el Código Procesal Civil, norma que será de aplicación supletoria.

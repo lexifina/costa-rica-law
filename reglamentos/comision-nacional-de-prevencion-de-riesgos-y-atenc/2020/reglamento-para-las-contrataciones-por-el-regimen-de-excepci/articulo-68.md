@@ -1,1 +1,0 @@
-Artículo 68.- Legitimación para Interponer el Recurso de Revocatoria. Toda persona física o jurídica que demuestre tener un interés legítimo, actual, propio y directo, podrá interponer el recurso de revocatoria.

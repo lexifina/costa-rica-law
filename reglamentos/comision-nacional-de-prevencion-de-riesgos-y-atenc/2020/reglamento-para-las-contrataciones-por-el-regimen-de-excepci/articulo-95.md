@@ -1,1 +1,0 @@
-Artículo 95.-Resolución Contractual. El procedimiento administrativo de resolución contractual procede cuando existe incumplimiento imputable al contratista y la Presidencia ordene su apertura para la determinación de la verdad real de los hechos.

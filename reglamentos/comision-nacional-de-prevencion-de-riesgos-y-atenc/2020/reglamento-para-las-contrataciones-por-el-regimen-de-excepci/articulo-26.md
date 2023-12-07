@@ -1,1 +1,0 @@
-Artículo 26.-Bajo condiciones especiales debidamente razonadas, en contrataciones directas el Proveedor podrá solicitar a los oferentes que rindan garantía de participación y en fase de adjudicación la de cumplimiento, en los términos establecidos en la Ley y Reglamento de Contratación Administrativa, debiendo prevalecer siempre el interés institucional.
