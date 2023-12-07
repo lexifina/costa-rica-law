@@ -1,0 +1,1 @@
+Artículo 2-. De conformidad con las normas nacionales vigentes, por medio del presente reglamento se mantienen vigentes todas las regulaciones del Reglamento Fraccionamiento y Urbanizaciones del INVU, excepto en aquellos casos en que el presente Reglamento se le oponga a través de regulaciones y requisitos específicos.

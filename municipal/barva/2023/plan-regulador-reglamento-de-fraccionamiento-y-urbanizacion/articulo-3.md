@@ -1,0 +1,1 @@
+Artículo 3-. Todas las normas del presente reglamento serán aplicadas en forma estricta para todas las nuevas fincas que se generen, así como para las nuevas segregaciones o reuniones de fincas que se generen durante la vigencia del mismo.
