@@ -1,0 +1,2 @@
+Transitorio III. Se modifica el plazo establecido en el artículo 5°, y en el párrafo primero y segundo del Transitorio II del presente reglamento, con el fin de ampliarlos al 14 de noviembre de 2024, a efectos de que los patronos y trabajadores independientes puedan presentar hasta esa fecha, las solicitudes de condonación a que se refieren esos artículos.
+(Así adicionado en sesión N° 9394 del 7 de diciembre de 2023)
