@@ -8,11 +8,12 @@ Las reformas anteriores rigen a partir de su publicación.
 Tanto el Manual de Atinencias y Especialidades Profesionales del Sector Administrativo de la Universidad Técnica Nacional como el Reglamento de Régimen de Carrera Académica de la Universidad Técnica Nacional en su versión completa y actualizada, se encuentra disponible en el portal electrónico de la Universidad Técnica Nacional www.utn.ac.cr, sección "Normativa Universitaria".
 Dirección de Gestión de Desarrollo Humano
 Manual de Atinencias y Especialidades Profesionales del Sector Administrativo
-(Nota de Sinalevi: Este manual fue reformado parcialmente y publicado su texto de forma íntegra mediante sesión ordinaria N° 28-2023 del 26 de octubre de 2023, publicada en La Gaceta N° 210 del 13 de octubre del 2023, y se transcribe a continuación:)
+(Nota de Sinalevi: Este manual fue reformado parcialmente y publicado su texto de forma íntegra mediante sesión ordinaria N°32-2023 del 7 de diciembre de 2023, publicada en La Gaceta N° 8 del 17 de enero del 2024, y se transcribe a continuación:)
 Dirección de Gestión de Desarrollo Humano
 Manual de Atinencias y Especialidades Profesionales del Sector Administrativo
 Aprobado por el Consejo Universitario mediante Acuerdo 06-06-2016. Sesión Ordinaria 06, Acta 06, del 10 de marzo del 2016.
-Reformado por el Consejo Universitario por medio del acuerdo 8-8-2016. Sesión Ordinaria N° 08-2016, Acta 8-2016, del 21 de abril de 2016
+Reformado por el Consejo Universitario por medio del acuerdo 8-8-2016. Sesión Ordinaria N° 08-2016,
+Acta 8-2016, del 21 de abril de 2016
 Reformado por el Consejo Universitario por medio del Acuerdo 12-3-2017. Sesión ordinaria N° 03-2017, Acta 03-2017, del 09 de febrero de 2017.
 Reformado por el Consejo Universitario por medio del Acuerdo 13-7-2018. Sesión Ordinaria N° 7-2018, Acta 7-2018, del 13 de abril de 2018.
 Reformado por el Consejo Universitario por medio del Acuerdo 6-27-2018. Sesión Ordinaria N° 27-2018, Acta 272018, del 06 de diciembre de 2018.
@@ -22,7 +23,9 @@ Reformado por la Dirección General de Administración Universitaria, mediante R
 Reformado por el Consejo Universitario por medio del Acuerdo 8-11-2021. Sesión Ordinaria N° 11-2021, Acta 11-2021, del 13 de mayo de 2021.
 Reformado mediante Acuerdo 8 tomado por el Consejo Universitario en la Sesión Ordinaria No. 11-2021, celebrada el jueves 13 de mayo de 2021, a las nueve horas, según el Artículo 12 del Capítulo VII. Vicerrectoría De
 Vida Estudiantil, donde se acordó: I. Modificar el Proceso de Defensoría Estudiantil, para que así se lea de la siguiente forma: .. Publicado en el diario oficial La Gaceta No. 109 del 8 de junio del 2021, sección Reglamentos.
-Reformado mediante Acuerdo 6-21-2021 tomado por el Consejo Universitario en la Sesión Ordinaria No. 21-2021, celebrada el jueves 9 de septiembre de 2021 a las nueve horas, según el Artículo 16 del Capítulo VI. Dirección General de Administración Universitaria, donde se acordó: I. Modificar el Proceso de Asistente de Laboratorio de Administración de Servicios de Alimentos y Bebidas, separando el mismo del Proceso de Asistente de Laboratorio de Tecnología de Alimentos .. Publicado en el diario oficial La Gaceta No. 227 del 24 de noviembre del 2021, sección Reglamentos.
+Reformado mediante Acuerdo 6-21-2021 tomado por el Consejo Universitario en la Sesión Ordinaria No. 21-2021, celebrada el jueves 9 de septiembre de 2021 a las nueve horas, según el Artículo 16 del Capítulo VI. Dirección
+General de Administración Universitaria, donde se acordó: I. Modificar el Proceso de Asistente de Laboratorio de
+Administración de Servicios de Alimentos y Bebidas, separando el mismo del Proceso de Asistente de Laboratorio de Tecnología de Alimentos .. Publicado en el diario oficial La Gaceta No. 227 del 24 de noviembre del 2021, sección Reglamentos.
 Reformado mediante Acuerdo 6 tomado por el Consejo Universitario en la Sesión Ordinaria No. 26-2022, celebrada el jueves 29 de septiembre del año 2022 a las nueve horas, según el Artículo 9 del Capítulo VI.
 Dirección General de Administración Universitaria, donde se acordó: ´´Modificar el Sub Proceso de Administración de Salarios e Incentivos, Proceso de Gestión de Desarrollo Humano en los rangos de aplicabilidad de Técnicos y Profesionales, que se leerá de la siguiente forma: ´´... Publicado en el diario oficial La Gaceta No. 199 del 19 de octubre del 2022, sección Reglamentos.
 Reformado mediante Acuerdo 7 tomado por el Consejo Universitario en la Sesión Ordinaria No. 29-2022, celebrada el jueves 10 de noviembre del año 2022 a las nueve horas, según el Artículo 19 del Capítulo VII.
@@ -32,6 +35,8 @@ Dirección General de Administración Universitaria. Publicado en el diario ofic
 Reformado mediante Acuerdo 8 tomado por el Consejo Universitario en la Sesión Ordinaria No. 12-2023, celebrada el jueves 25 de mayo de 2023, a las nueve horas, según el Artículo 11 del Capítulo VI. Dirección
 General de Administración Universitaria. Publicado en el diario oficial La Gaceta No. 114 del 26 de junio del 2023, sección Reglamentos.
 Reformado mediante Acuerdo 11 tomado por el Consejo Universitario en la Sesión Ordinaria No. 28-2023, celebrada el jueves 26 de octubre de 2023, a las nueve horas, según el Artículo 17 del Capítulo VI. Dirección General de Administración Universitaria. Publicado en el diario oficial La Gaceta No. 210 del 13 de noviembre del 2023, sección Reglamentos.
+Reformado mediante Acuerdo 6 tomado por el Consejo Universitario en la Sesión Ordinaria No. 32-2023, celebrada el jueves 07 de diciembre de 2023, a las nueve horas, según el Artículo 14 del Capítulo V. Dirección
+General de Administración Universitaria. Publicado en el diario oficial La Gaceta No. 8 del 17 de enero del 2024, sección Reglamentos.
 Tabla de Contenidos
 Proceso de Asuntos Jurídicos ....................................................................................................... 8 Descripción del proceso ........................................................................................................... 8
 Subprocesos que conforman el proceso de Asuntos Jurídicos ................................................ 8
@@ -46,14 +51,12 @@ Gestión, Auditoría Financiera y Auditoría Operativa .........................
 Atinencias de nivel profesional para el subproceso de Auditoría Administrativa y Gestión,
 Auditoría Financiera y Auditoría Operativa .......................................................................... 11
 Atinencias de nivel gerencial ................................................................................................. 12
-Macroproceso de Administración Universitaria ......................................................................... 12
-Descripción del proceso ......................................................................................................... 12
+Macroproceso de Administración Universitaria ......................................................................... 12 Descripción del proceso ......................................................................................................... 12
 Procesos que conforman la Administración Universitaria .................................................... 12
 Rangos de aplicabilidad ......................................................................................................... 13
 Atinencias de nivel técnico, profesional y gerencial para el proceso de Administración
 Universitaria ........................................................................................................................... 13
-Proceso de Gestión Administrativa ............................................................................................ 16
-Descripción del proceso ......................................................................................................... 16
+Proceso de Gestión Administrativa ............................................................................................ 16 Descripción del proceso ......................................................................................................... 16
 Subprocesos que conforman el proceso de Gestión Administrativa ...................................... 16
 Rangos de aplicabilidad ......................................................................................................... 16
 Atinencias de nivel técnico, profesional y gerencial para el proceso de Gestión
@@ -65,27 +68,22 @@ Atinencias para los puestos de Asistencia Administrativa .......................
 Atinencias para el subproceso de Recepción ......................................................................... 21
 Atinencias de nivel operativo y técnico para el subproceso de Transportes; Conserjería y
 Seguridad ............................................................................................................................... 21
-Son atinentes todos aquellos títulos, certificados o constancias que lo acrediten en el dominio de un oficio o labor de algún grado de dificultad. ................................................... 21
-Proceso de Contraloría de Servicios ........................................................................................... 21
+Son atinentes todos aquellos títulos, certificados o constancias que lo acrediten en el dominio de un oficio o labor de algún grado de dificultad. ................................................... 21 Proceso de Contraloría de Servicios ........................................................................................... 21
 Descripción del proceso ......................................................................................................... 21
 Subprocesos que conforman el proceso de Contraloría de Servicios .................................... 21
 Rangos de aplicabilidad ......................................................................................................... 21
 Atinencias de nivel profesional para el proceso de Contraloría de Servicios ........................ 21
-Proceso de Producción y Gestión Empresarial ........................................................................... 22
-Descripción del proceso ......................................................................................................... 22
-Subprocesos que conforman el proceso de Producción y Gestión Empresarial .................... 22
-Rangos de aplicabilidad ......................................................................................................... 22
+Proceso de Producción y Gestión Empresarial ........................................................................... 22 Descripción del proceso ......................................................................................................... 22
+Subprocesos que conforman el proceso de Producción y Gestión Empresarial .................... 22 Rangos de aplicabilidad ......................................................................................................... 22
 Atinencias de nivel técnico y profesional para el subproceso de Administración de Fincas 22
 Atinencias de nivel técnico y profesional para el subproceso de Producción ....................... 23
 Atinencias de nivel técnico y profesional para el subproceso de Gestión Empresarial ......... 24
-Proceso de Archivo Institucional ................................................................................................ 25
-Descripción del proceso ......................................................................................................... 25
+Proceso de Archivo Institucional ................................................................................................ 25 Descripción del proceso ......................................................................................................... 25
 Subprocesos que conforman el proceso de Archivo Institucional ......................................... 26
 Rangos de aplicabilidad ......................................................................................................... 26
 Atinencias de nivel técnico .................................................................................................... 26
 Atinencias de nivel técnico y profesional para el proceso y sus subprocesos ....................... 26
-Proceso de Gestión de Desarrollo Humano ................................................................................ 27
-Descripción del proceso ......................................................................................................... 27
+Proceso de Gestión de Desarrollo Humano ................................................................................ 27 Descripción del proceso ......................................................................................................... 27
 Subprocesos que conforman el proceso de Gestión de Desarrollo Humano ......................... 27
 Rangos de aplicabilidad ......................................................................................................... 27
 Atinencias de nivel técnico y profesional para el subproceso de Administración de
@@ -104,22 +102,18 @@ Proceso de Mercadeo y Gestión de Ventas .......................................
 Subprocesos que conforman el proceso de Mercadeo y Gestión de Ventas .......................... 33
 Rangos de aplicabilidad ......................................................................................................... 33
 Atinencias de nivel técnico, profesional y gerencial para el proceso de Mercadeo y el
-subproceso de Mercadeo y Gestión de Ventas ...................................................................... 33
-Proceso de Gestión Financiera ................................................................................................... 34
-Descripción del proceso ......................................................................................................... 34
+subproceso de Mercadeo y Gestión de Ventas ...................................................................... 33 Proceso de Gestión Financiera ................................................................................................... 34 Descripción del proceso ......................................................................................................... 34
 Subprocesos que conforman el proceso de Gestión Financiera ............................................. 34
 Rangos de aplicabilidad ......................................................................................................... 34
 Atinencias de nivel técnico y profesional para el subproceso de Contabilidad General;
 Presupuesto; Tesorería ........................................................................................................... 34
 Atinencias de nivel técnico y profesional para la Gestión de Pago y Deducción de
-Planillas .................................................................................................................................. 36
+Planillas .................................................................................................................................. 35
 Atinencias de nivel técnico y profesional para el subproceso de Control y Seguimiento ..... 36
 Atinencias de nivel gerencial para el proceso de Gestión Financiera .................................... 37
-Proceso de Proveeduría Institucional ......................................................................................... 39
-Descripción del proceso ......................................................................................................... 39
+Proceso de Proveeduría Institucional ......................................................................................... 39 Descripción del proceso ......................................................................................................... 39
 Subprocesos que conforman el proceso de Proveeduría Institucional ................................... 39
-Rangos de aplicabilidad ......................................................................................................... 39
-Atinencias de nivel técnico y profesional para el suproceso de Contratación Administrativa;
+Rangos de aplicabilidad ......................................................................................................... 39 Atinencias de nivel técnico y profesional para el suproceso de Contratación Administrativa;
 Registro de Proveedores ........................................................................................................ 39
 Atinencias de nivel técnico y profesional para el subproceso de Control y Seguimiento;
 Almacenamiento y Distribución; Logística ........................................................................... 42
@@ -131,51 +125,41 @@ Rangos de aplicabilidad ........................................................
 Atinencias de nivel técnico y profesional para el suproceso de Registro y Control de
 Activos; Control y Seguimiento; Control de Inventarios ...................................................... 45
 Atinencias de nivel gerencial para el Proceso de Control de Bienes e Inventarios ............... 47
-Proceso de Registro Universitario .............................................................................................. 47
-Descripción del proceso ......................................................................................................... 47
+Proceso de Registro Universitario .............................................................................................. 47 Descripción del proceso ......................................................................................................... 47
 Subprocesos que conforman el proceso de Registro Universitario ....................................... 47
 Rangos de aplicabilidad ......................................................................................................... 47
 Atinencias de nivel técnico, profesional y gerencial para el proceso de Registro Universitario y el subproceso de Admisión y Matrícula, y de Expediente Académico y Graduaciones. ... 47
 Atinencias de nivel técnico y profesional para el subproceso de Gestión de la Información 49
-Proceso de Planificación Universitaria ....................................................................................... 50
-Descripción del proceso ......................................................................................................... 50
+Proceso de Planificación Universitaria ....................................................................................... 50 Descripción del proceso ......................................................................................................... 50
 Subprocesos que conforman el proceso de Planificación Universitaria ................................ 50
 Rangos de aplicabilidad ......................................................................................................... 50
-Atinencias de nivel gerencial para el proceso de Planificación ............................................. 51
-Proceso de Gestión de Tecnologías de la Información............................................................... 57
-Proceso de Cooperación Externa ................................................................................................ 67
-Descripción del proceso ......................................................................................................... 67
+Atinencias de nivel gerencial para el proceso de Planificación ............................................. 51 Proceso de Gestión de Tecnologías de la Información............................................................... 57
+Proceso de Cooperación Externa ................................................................................................ 67 Descripción del proceso ......................................................................................................... 67
 Subprocesos que conforman el proceso de Cooperación Externa ......................................... 67
 Rangos de aplicabilidad ......................................................................................................... 67
 Atinencias de nivel técnico y profesional para el proceso y sus subprocesos ....................... 67
-Proceso de Comunicación Institucional ..................................................................................... 68
-Descripción del proceso ......................................................................................................... 68
+Proceso de Comunicación Institucional ..................................................................................... 68 Descripción del proceso ......................................................................................................... 68
 Subprocesos que conforman el proceso de Comunicación Institucional ............................... 68
 Rangos de aplicabilidad ......................................................................................................... 68
 Atinencias de nivel técnico, profesional y gerencial para el proceso y sus subprocesos ...... 68
-Proceso de Evaluación Académica ............................................................................................. 70
-Descripción del proceso ......................................................................................................... 70
+Proceso de Evaluación Académica ............................................................................................. 70 Descripción del proceso ......................................................................................................... 70
 Subprocesos que conforman el proceso de Evaluación Académica ...................................... 70
 Rangos de aplicabilidad ......................................................................................................... 70
 Atinencias de nivel técnico, profesional y gerencial para el proceso y sus subprocesos ...... 70
 Otras atinencias que pueden desempeñarse en el proceso de Evaluación Académica .......... 71
-Macroproceso de Vida Estudiantil ............................................................................................. 72
-Descripción del proceso ......................................................................................................... 72
+Macroproceso de Vida Estudiantil ............................................................................................. 72 Descripción del proceso ......................................................................................................... 72
 Subprocesos que conforman el proceso de Vida Estudiantil ................................................. 72
 Rangos de aplicabilidad ......................................................................................................... 72
-Atinencias a nivel profesional para el subproceso Cultural y Deportiva ............................... 72
-Atinencias a nivel profesional para el subproceso de Becas y Beneficios Estudiantiles ....... 73
+Atinencias a nivel profesional para el subproceso Cultural y Deportiva ............................... 72 Atinencias a nivel profesional para el subproceso de Becas y Beneficios Estudiantiles ....... 73
 Atinencias a nivel técnico y profesional para el subproceso de Bienestar Estudiantil .......... 73
 Atinencias a nivel técnico y profesional para el subproceso de Permanencia y Retención ... 74
 Atinencias de nivel gerencial para el proceso de Vida Estudiantil ........................................ 75
-Proceso de Defensoría de los Estudiantes .................................................................................. 76
-Descripción del proceso ......................................................................................................... 76
+Proceso de Defensoría de los Estudiantes .................................................................................. 76 Descripción del proceso ......................................................................................................... 76
 Subproceso que conforman el proceso de Defensoría de los Estudiantes ............................. 76
 Rangos de aplicabilidad ......................................................................................................... 76
 Atinencias a nivel técnico, profesional y gerencial para el proceso de la Defensoría de los
 Estudiantes ............................................................................................................................. 76
-Macroproceso de Investigación y Transferencia ........................................................................ 76
-Descripción del proceso ......................................................................................................... 76
+Macroproceso de Investigación y Transferencia ........................................................................ 76 Descripción del proceso ......................................................................................................... 76
 Procesos que conforman el proceso de Investigación y Transferencia ................................. 77
 Rangos de aplicabilidad ......................................................................................................... 77
 Atinencias de nivel técnico, profesional y gerencial para el subproceso Sistema Integrado de
@@ -186,8 +170,7 @@ Atinencias de nivel técnico y profesional para el subproceso de Gestión y Prom
 Investigación .......................................................................................................................... 79
 Atinencias de nivel técnico y profesional para el proceso de Investigación y Transferencia y el subproceso Sistema de Estudios de Posgrado y Estudios Avanzados ............................... 86
 Atinencias de nivel técnico y profesional para el proceso de Investigación y Transferencia 86
-Macroproceso de Docencia ........................................................................................................ 87
-Descripción del proceso ......................................................................................................... 87
+Macroproceso de Docencia ........................................................................................................ 87 Descripción del proceso ......................................................................................................... 87
 Subprocesos que conforman el proceso de Docencia ............................................................ 87
 Rangos de aplicabilidad ......................................................................................................... 87
 Atinencias de nivel profesional para el subproceso de Formación Holística ........................ 87
@@ -195,8 +178,7 @@ Atinencias de nivel técnico y profesional para el subproceso de Integración y 
 Educativa; Éxito Académico; Áreas de conocimiento y Carreras ......................................... 88
 Atinencias de nivel profesional para el subproceso de Idiomas para el Trabajo ................... 93
 Atinencias de nivel profesional para el subproceso de Gestión y Evaluación Curricular ..... 94
-Proceso de Tecnología Educativa y Recursos Didácticos .......................................................... 95
-Descripción del Proceso ......................................................................................................... 95
+Proceso de Tecnología Educativa y Recursos Didácticos .......................................................... 95 Descripción del Proceso ......................................................................................................... 95
 Subprocesos que conforman la Gestión de Tecnología Educativa y Producción de Recursos
 Didácticos .............................................................................................................................. 95
 Rangos de aplicabilidad ......................................................................................................... 96
@@ -206,13 +188,10 @@ Recursos Multimediales .........................................................
 Atinencias de nivel técnico y profesional de Gestión de Aprendizajes en Entornos
 Virtuales ................................................................................................................................. 97
 Atinencias de nivel técnico y profesional de Gestión en Administración de Medios ........... 97
-Proceso de Formación Pedagógica ............................................................................................. 98
-Descripción del proceso ......................................................................................................... 98
-Subprocesos que conforman la Gestión de Formación Pedagógica ...................................... 98
-Rangos de aplicabilidad ......................................................................................................... 98
+Proceso de Formación Pedagógica ............................................................................................. 98 Descripción del proceso ......................................................................................................... 98
+Subprocesos que conforman la Gestión de Formación Pedagógica ...................................... 98 Rangos de aplicabilidad ......................................................................................................... 98
 Atinencias de nivel profesional y gerencial para el proceso y sus subprocesos .................... 98
-Proceso de Editorial Universitario ............................................................................................ 100
-Descripción del proceso ....................................................................................................... 100
+Proceso de Editorial Universitario ............................................................................................ 100 Descripción del proceso ....................................................................................................... 100
 Subprocesos que conforman la Gestión del Editorial Universitario .................................... 100
 Rangos de aplicabilidad ....................................................................................................... 100
 Atinencias de nivel técnico para el subproceso Taller de Publicaciones ............................. 100
@@ -220,22 +199,16 @@ Atinencias de nivel técnico para el subproceso de Diseño Gráfico ............
 Atinencias de nivel técnico y profesional para el subproceso de Diseño Gráfico ............... 101
 Atinencias de nivel profesional y gerencial para el proceso de Editorial Universitario ...... 101
 Nota Técnica: ....................................................................................................................... 102
-Macroproceso de Extensión y Acción Social ........................................................................... 103
-Descripción del Proceso ....................................................................................................... 103
+Macroproceso de Extensión y Acción Social ........................................................................... 103 Descripción del Proceso ....................................................................................................... 103
 Ejes Estratégicos que conforman el Proceso de Extensión y Acción Social ....................... 103
 Procesos de gestión que conforman el Eje de Extensión y Vinculación ............................. 103
 Procesos de gestión que conforman el Eje de Educación Continua .................................... 103
 Procesos de gestión que conforman el Eje de Acción Social .............................................. 103
 Proceso de Calidad y Productividad .................................................................................... 103
 Rangos de aplicabilidad ....................................................................................................... 104
-Proceso Centro de Estudios sobre Desarrollo Sostenible ......................................................... 116
-Descripción del proceso ....................................................................................................... 116
+Proceso Centro de Estudios sobre Desarrollo Sostenible ......................................................... 116 Descripción del proceso ....................................................................................................... 116
 Subprocesos que conforman el Centro de Estudios sobre Desarrollo Sostenible ................ 116
-Rangos de aplicabilidad ....................................................................................................... 116
-Atinencias de nivel técnico .................................................................................................. 116
-atinencias de nivel de técnico profesional y profesional para el proceso ............................ 117
-Proceso de Asistencia de Laboratorio ...................................................................................... 119
-Descripción de la Gestión de Asistencia de Laboratorio ..................................................... 119
+Rangos de aplicabilidad ....................................................................................................... 116 Atinencias de nivel técnico .................................................................................................. 116 atinencias de nivel de técnico profesional y profesional para el proceso ............................ 117 Proceso de Asistencia de Laboratorio ...................................................................................... 119 Descripción de la Gestión de Asistencia de Laboratorio ..................................................... 119
 Subprocesos que conforman el proceso de Asistencia de Laboratorio ................................ 119
 Rangos de aplicabilidad ....................................................................................................... 119
 Atinencias para el laboratorio de Ciencias Básicas ............................................................. 119
@@ -262,6 +235,7 @@ Rangos de aplicabilidad
 Atinencias de nivel profesional para los Subprocesos
 § Derecho. § Derecho con énfasis en Derecho Público.
 Atinencias de nivel gerencial para el Proceso
+? Derecho con énfasis en Derecho Administrativo. ? Derecho con énfasis en Derecho Constitucional.
 [imagen] Proceso de Auditoría Universitaria
 Descripción del proceso
 Aplica para aquellos puestos que realizan actividades que están orientadas a la revisión y evaluación de las operaciones financieras, contables, administrativas y de otra índole, a fin de determinar que los recursos institucionales se utilicen con eficacia, eficiencia y economía, para lo que se requiere de la aplicación de métodos y técnicas de investigación, que permitan la elaboración de informes de auditoría, con sus recomendaciones correctivas y/o preventivas de conformidad con las normas técnicas emitidas por la Universidad y la Contraloría General de la República.
@@ -617,12 +591,13 @@ Atinencias de nivel profesional para el subproceso de Relaciones Laborales
 § Administración con énfasis en Gestión de Recursos Humanos. § Administración con énfasis en Recursos Humanos. § Administración de Empresas con énfasis en Gerencia de Recursos Humanos. § Administración de Empresas con énfasis en Recursos Humanos. § Administración de Empresas con énfasis en Relaciones Laborales.
 § Administración de Negocios con énfasis en Gerencia de Recursos Humanos. § Administración de Negocios con énfasis en Recursos Humanos. § Administración de Personal. § Administración de Recursos Humanos. § Administración del Trabajo con énfasis en Recursos Humanos. § Administración y Gestión de Recursos Humanos. § Derecho. § Derecho Administrativo. § Derecho con énfasis en Derecho Laboral. § Derecho Público. § Dirección de Empresas con énfasis en Recursos Humanos. § Dirección Empresarial con énfasis en Recursos Humanos. § Gerencia de Recursos Humanos. § Gerencia y Recursos Humanos. § Gestión del Recurso Humano. § Gestión del Talento Humano. § Psicología con énfasis en Recursos Humanos. § Psicología con énfasis en Psicología laboral. § Recursos Humanos.
 Atinencias de nivel técnico y profesional para el subproceso de Administración de Salarios e Incentivos
-Se consideran atinentes todas aquellas especialidades que se describen para el subproceso de Administración de Servicios, así como las que se indican a continuación: § Administración de Empresas con énfasis en Administración Financiera § Administración de Empresas con énfasis en Contabilidad § Administración de Empresas con énfasis en Contaduría Pública § Administración de Empresas con énfasis en Contaduría Pública y Finanzas § Administración de Empresas con énfasis en Contaduría y Gerencia § Administración de Empresas con énfasis en Entidades Financieras § Administración de Empresas con énfasis en Finanzas y Contabilidad
-§ Administración de Empresas con énfasis en Finanzas y Gerencia § Administración de Empresas con énfasis en Gerencia Financiera § Administración de Negocios con énfasis en Contabilidad § Administración de Negocios con énfasis en Contaduría Pública § Administración de Negocios con énfasis en Gerencia Financiera § Ciencias de la Administración y Gerencia § Contaduría Pública
+Se consideran atinentes todas aquellas especialidades que se describen para el subproceso de Administración de Servicios, así como las que se indican a continuación: § Administración de Empresas con énfasis en Administración Financiera. § Administración de Empresas con énfasis en Contabilidad. § Administración de Empresas con énfasis en Contaduría Pública. § Administración de Empresas con énfasis en Contaduría Pública y Finanzas. § Administración de Empresas con énfasis en Contaduría y Gerencia. § Administración de Empresas con énfasis en Entidades Financieras. § Administración de Empresas con énfasis en Finanzas y Contabilidad.
+§ Administración de Empresas con énfasis en Finanzas y Gerencia. § Administración de Empresas con énfasis en Gerencia Financiera. § Administración de Negocios con énfasis en Contabilidad. § Administración de Negocios con énfasis en Contaduría. § Administración de Negocios con énfasis en Contaduría Pública. § Administración de Negocios con énfasis en Gerencia Financiera. § Ciencias de la Administración y Gerencia. § Contaduría Pública.
 Atinencias de nivel gerencial para el proceso de Gestión de Desarrollo Humano
 § Administración con énfasis en Gestión de Recursos Humanos. § Administración con énfasis en Recursos Humanos. § Administración de Empresas con énfasis en Gerencia de Recursos Humanos. § Administración de Empresas con énfasis en Recursos Humanos. § Administración de Negocios con énfasis en Gerencia de Recursos Humanos. § Administración de Negocios con énfasis en Recursos Humanos. § Administración de Personal. § Administración de Recursos Humanos. § Administración del Trabajo con énfasis en Recursos Humanos. § Administración y Gestión de Recursos Humanos. § Administración Pública. § Dirección de Empresas con énfasis en Recursos Humanos. § Dirección Empresarial con énfasis en Recursos Humanos. § Gerencia de Recursos Humanos. § Gerencia y Recursos Humanos. § Gestión del Recurso Humano. § Gestión del Talento Humano. § Recursos Humanos.
 Atinencias de nivel técnico y profesional para el subproceso de Medicina Laboral
-§ Administración con énfasis en Gestión de Recursos Humanos. § Administración con énfasis en Recursos Humanos.
+? Administración con énfasis en Gestión de Recursos Humanos.
+? | Administración con énfasis en Recursos Humanos.
 ? | Administración de Empresas con énfasis en Gerencia de Recursos Humanos.
 ? | Administración de Empresas con énfasis en Recursos Humanos.
 ? | Administración de Negocios con énfasis en Gerencia de Recursos Humanos.
@@ -648,6 +623,9 @@ Atinencias de nivel técnico y profesional para el subproceso de Medicina Labora
 ? | Salud Ocupacional con énfasis en Gestión Ambiental.
 ? | Salud Ocupacional con énfasis en Seguridad Industrial.
 ? | Salud Ocupacional y Ambiente.
+Reformado mediante Acuerdo 6 tomado por el Consejo Universitario en la Sesión Ordinaria
+No. 32-2023, celebrada el jueves 07 de diciembre de 2023, a las nueve horas, según el
+Artículo 14 del Capítulo V. Dirección General de Administración Universitaria. Publicado en el diario oficial La Gaceta No. 8 del 17 de enero del 2024, sección Reglamentos.
 [imagen]
 Descripción del proceso
 Aplica para aquellos puestos cuyas actividades están orientadas a la promoción, publicidad y venta de productos o servicios que ofrece la Institución, tanto a nivel nacional como internacional.
@@ -656,8 +634,7 @@ Subprocesos que conforman el proceso de Mercadeo y Gestión de Ventas
 Rangos de aplicabilidad
 § Técnicos. § Profesionales. § Gerenciales.
 Atinencias de nivel técnico, profesional y gerencial para el proceso de Mercadeo y el subproceso de Mercadeo y Gestión de Ventas
-§ Administración con énfasis en Mercadeo. § Administración con énfasis en Mercadeo y Comercio Internacional. § Administración con énfasis en Mercadeo y Publicidad. § Administración con énfasis en Mercadeo y Ventas. § Administración de Empresas con énfasis en Comercio y Mercadeo. Internacional. § Administración de Empresas con énfasis en Mercadeo y Comercio. Internacional. § Administración de Empresas con énfasis en Mercadeo y Ventas. § Administración de Empresas con concentración en Mercadeo. § Administración de Empresas con énfasis en Mercadeo. § Administración de Empresas con mención en Mercadeo. § Administración de Negocios con énfasis en Mercadeo y Comercio Internacional. § Administración de Negocios con énfasis en Mercadeo y Publicidad.
-? | Administración de Negocios con énfasis en Mercadeo y Ventas.
+§ Administración con énfasis en Mercadeo. § Administración con énfasis en Mercadeo y Comercio Internacional. § Administración con énfasis en Mercadeo y Publicidad. § Administración con énfasis en Mercadeo y Ventas. § Administración de Empresas con énfasis en Comercio y Mercadeo. Internacional. § Administración de Empresas con énfasis en Mercadeo y Comercio. Internacional. § Administración de Empresas con énfasis en Mercadeo y Ventas. § Administración de Empresas con concentración en Mercadeo. § Administración de Empresas con énfasis en Mercadeo. § Administración de Empresas con mención en Mercadeo. § Administración de Negocios con énfasis en Mercadeo y Comercio Internacional. § Administración de Negocios con énfasis en Mercadeo y Publicidad. § Administración de Negocios con énfasis en Mercadeo y Ventas.
 ? | Administración de Negocios con énfasis en Mercadeo.
 ? | Administración de Negocios con mención en Mercadeo.
 ? | Administración de Negocios con concentración en Mercadeo.
@@ -675,50 +652,16 @@ Subprocesos que conforman el proceso de Gestión Financiera
 Rangos de aplicabilidad
 § Técnicos. § Profesionales. § Gerenciales.
 Atinencias de nivel técnico y profesional para el subproceso de Contabilidad General; Presupuesto; Tesorería
-§ Administración. § Administración con énfasis en Contabilidad. § Administración con énfasis en Contabilidad y Finanzas. § Administración con énfasis en Contaduría Pública y Finanzas.
-? | Administración con énfasis en Empresas.
-? | Administración con énfasis en Finanzas.
-? | Administración con énfasis en Gestión Financiera.
-? | Administración de Empresas.
-? | Administración de Empresas con énfasis en Finanzas y Gerencia.
-? | Administración de Empresas con énfasis en Administración Financiera.
-? | Administración de Empresas con énfasis Banca y Finanzas.
-? | Administración de Empresas con énfasis en Contabilidad.
-? | Administración de Empresas con énfasis en Contaduría
-? | Administración de Empresas con énfasis en Contaduría Pública.
-? | Administración de Empresas con énfasis en Contaduría y Finanzas.
-? | Administración de Empresas con énfasis en Banca y Finanzas.
-? | Administración de Empresas con énfasis en Finanzas.
-? | Administración de Empresas con énfasis en Finanzas y Contabilidad.
-? | Administración de Negocios.
-? | Administración de Negocios con énfasis en Dirección de Empresas y Finanzas.
-? | Administración de Negocios con énfasis en Banca y Finanzas.
-? | Administración de Negocios con énfasis en Contabilidad.
-? | Administración de Negocios con énfasis en Finanzas.
-? | Administración de Negocios con énfasis en Gerencia Financiera.
-? | Administración y Dirección de Empresas con énfasis en Finanzas.
-? | Contabilidad y Finanzas.
-? | Contaduría Pública.
-? | Dirección de Empresas.
-? | Dirección de Empresas con énfasis Banca y Finanzas.
-? | Dirección Empresarial.
-? | Finanzas.
-? | Gerencia Financiera.
-? | Gestión Empresarial.
-? | Gestión y Finanzas.
-? | Gestión y Finanzas Públicas.
+§ Administración. § Administración con énfasis en Contabilidad. § Administración con énfasis en Contabilidad y Finanzas. § Administración con énfasis en Contaduría Pública y Finanzas. § Administración con énfasis en Empresas.
+§ Administración con énfasis en Finanzas. § Administración con énfasis en Gestión Financiera. § Administración de Empresas. § Administración de Empresas con énfasis en Finanzas y Gerencia. ? Administración de Empresas con énfasis en Administración Financiera. ? Administración de Empresas con énfasis Banca y Finanzas. ? Administración de Empresas con énfasis en Contabilidad. § Administración de Empresas con énfasis en Contaduría § Administración de Empresas con énfasis en Contaduría Pública. § Administración de Empresas con énfasis en Contaduría y Finanzas. § Administración de Empresas con énfasis en Banca y Finanzas. ? Administración de Empresas con énfasis en Finanzas. § Administración de Empresas con énfasis en Finanzas y Contabilidad. § Administración de Negocios. § Administración de Negocios con énfasis en Dirección de Empresas y Finanzas. § Administración de Negocios con énfasis en Banca y Finanzas. ? Administración de Negocios con énfasis en Contabilidad. § Administración de Negocios con énfasis en Finanzas. ? Administración de Negocios con énfasis en Gerencia Financiera. ? Administración y Dirección de Empresas con énfasis en Finanzas. § Contabilidad y Finanzas. § Contaduría Pública. § Dirección de Empresas. § Dirección de Empresas con énfasis Banca y Finanzas. § Dirección Empresarial. § Finanzas. § Gerencia Financiera. § Gestión Empresarial. § Gestión y Finanzas. § Gestión y Finanzas Públicas.
 Atinencias de nivel técnico y profesional para la Gestión de Pago y Deducción de Planillas
-Se consideran atinentes todas las especialidades citadas en el ítem anterior, así como las que se indican a continuación: § Administración con énfasis en Gestión de Recursos Humanos. § Administración con énfasis en Recursos Humanos. § Administración de Empresas con énfasis en Gerencia de Recursos Humanos. § Administración de Empresas con énfasis en Recursos Humanos. § Administración de Negocios con énfasis en Gerencia de Recursos Humanos. § Administración de Negocios con énfasis en Recursos Humanos. § Administración de Personal. § Administración de Recursos Humanos. § Administración del Trabajo con énfasis en Recursos Humanos. § Administración y Gestión de Recursos Humanos. § Dirección de Empresas con énfasis en Recursos Humanos. § Dirección Empresarial con énfasis en Recursos Humanos. § Gerencia de Recursos Humanos. § Gerencia y Recursos Humanos. § Gestión del Recurso Humano. § Gestión del Talento Humano. § Recursos Humanos.
+Se consideran atinentes todas las especialidades citadas en el ítem anterior, así como las que se indican a continuación:
+§ Administración con énfasis en Gestión de Recursos Humanos. § Administración con énfasis en Recursos Humanos. § Administración de Empresas con énfasis en Gerencia de Recursos Humanos. § Administración de Empresas con énfasis en Recursos Humanos. § Administración de Negocios con énfasis en Gerencia de Recursos Humanos. § Administración de Negocios con énfasis en Recursos Humanos. § Administración de Personal. § Administración de Recursos Humanos. § Administración del Trabajo con énfasis en Recursos Humanos. § Administración y Gestión de Recursos Humanos. § Dirección de Empresas con énfasis en Recursos Humanos. § Dirección Empresarial con énfasis en Recursos Humanos. § Gerencia de Recursos Humanos. § Gerencia y Recursos Humanos. § Gestión del Recurso Humano. § Gestión del Talento Humano. § Recursos Humanos.
 Atinencias de nivel técnico y profesional para el subproceso de Control y Seguimiento
-§ Administración. § Administración con énfasis en Contabilidad. § Administración con énfasis en Contabilidad y Finanzas. § Administración con énfasis en Contaduría Pública y Finanzas. § Administración con énfasis en Empresas. § Administración con énfasis en Finanzas. § Administración con énfasis en Gestión Financiera. § Administración de Empresas. § Administración de Empresas con énfasis en Finanzas y Gerencia. ? Administración de Empresas con énfasis en Administración Financiera. ? Administración de Empresas con énfasis Banca y Finanzas.
-§ Administración de Empresas con énfasis en Contabilidad. § Administración de Empresas con énfasis en Contaduría. § Administración de Empresas con énfasis en Contaduría Pública. § Administración de Empresas con énfasis en Contaduría y Finanzas. ? Administración de Empresas con énfasis en Banca y Finanzas. ? Administración de Empresas con énfasis en Finanzas. § Administración de Empresas con énfasis en Finanzas y Contabilidad. § Administración de Negocios. § Administración de Negocios con énfasis en Recursos Humanos. § Administración de Negocios con énfasis en Dirección de Empresas y Finanzas. § Administración de Negocios con énfasis en Banca y Finanzas. ? Administración de Negocios con énfasis en Contabilidad. § Administración de Negocios con énfasis en Finanzas. ? Administración de Negocios con énfasis en Gerencia Financiera. ? Administración y Dirección de Empresas con énfasis en Finanzas. § Contabilidad y Finanzas. § Contaduría Pública. § Dirección de Empresas. § Dirección de Empresas con énfasis Banca y Finanzas. § Dirección Empresarial. § Finanzas. § Gerencia Financiera. § Gestión Empresarial. § Gestión y Finanzas. § Gestión y Finanzas Públicas.
+§ Administración. § Administración con énfasis en Contabilidad. § Administración con énfasis en Contabilidad y Finanzas. § Administración con énfasis en Contaduría Pública y Finanzas. § Administración con énfasis en Empresas. § Administración con énfasis en Finanzas. § Administración con énfasis en Gestión Financiera. § Administración de Empresas. § Administración de Empresas con énfasis en Finanzas y Gerencia. ? Administración de Empresas con énfasis en Administración Financiera. ? Administración de Empresas con énfasis Banca y Finanzas. § Administración de Empresas con énfasis en Contabilidad. § Administración de Empresas con énfasis en Contaduría. § Administración de Empresas con énfasis en Contaduría Pública. § Administración de Empresas con énfasis en Contaduría y Finanzas. ? Administración de Empresas con énfasis en Banca y Finanzas.
+§ Administración de Empresas con énfasis en Finanzas. § Administración de Empresas con énfasis en Finanzas y Contabilidad. § Administración de Negocios. § Administración de Negocios con énfasis en Recursos Humanos. § Administración de Negocios con énfasis en Dirección de Empresas y Finanzas. § Administración de Negocios con énfasis en Banca y Finanzas. ? Administración de Negocios con énfasis en Contabilidad. § Administración de Negocios con énfasis en Finanzas. ? Administración de Negocios con énfasis en Gerencia Financiera. ? Administración y Dirección de Empresas con énfasis en Finanzas. § Contabilidad y Finanzas. § Contaduría Pública. § Dirección de Empresas. § Dirección de Empresas con énfasis Banca y Finanzas. § Dirección Empresarial. § Finanzas. § Gerencia Financiera. § Gestión Empresarial. § Gestión y Finanzas. § Gestión y Finanzas Públicas.
 Atinencias de nivel gerencial para el proceso de Gestión Financiera
-§ Administración. § Administración con énfasis en Contabilidad. § Administración con énfasis en Contabilidad y Finanzas. § Administración con énfasis en Contaduría Pública y Finanzas. § Administración con énfasis en Finanzas. § Administración con énfasis en Gestión Financiera. § Administración de Empresas. § Administración de Empresas con énfasis en Gerencia General.
-? | Administración de Empresas con énfasis en Finanzas y Gerencia.
-? | Administración de Empresas con énfasis en Administración Financiera.
-? | Administración de Empresas con énfasis en Alta Gerencia.
-? | Administración de Empresas con énfasis en Banca y Finanzas.
-? | Administración de Empresas con énfasis en Contabilidad.
+§ Administración. § Administración con énfasis en Contabilidad. § Administración con énfasis en Contabilidad y Finanzas. § Administración con énfasis en Contaduría Pública y Finanzas. § Administración con énfasis en Finanzas. § Administración con énfasis en Gestión Financiera. § Administración de Empresas. § Administración de Empresas con énfasis en Gerencia General. ? Administración de Empresas con énfasis en Finanzas y Gerencia. ? Administración de Empresas con énfasis en Administración Financiera. ? Administración de Empresas con énfasis en Alta Gerencia. ? Administración de Empresas con énfasis en Banca y Finanzas. § Administración de Empresas con énfasis en Contabilidad.
 ? | Administración de Empresas con énfasis en Contaduría.
 ? | Administración de Empresas con énfasis en Contaduría Pública.
 ? | Administración de Empresas con énfasis en Contaduría y Finanzas.
@@ -762,12 +705,7 @@ Subprocesos que conforman el proceso de Proveeduría Institucional
 Rangos de aplicabilidad
 § Técnicos. § Profesionales. § Gerenciales.
 Atinencias de nivel técnico y profesional para el suproceso de Contratación Administrativa; Registro de Proveedores
-§ Administración. § Administración Aduanera. § Administración Aduanera con énfasis en Clasificación Arancelaria. § Administración Aduanera con énfasis en Legislación Aduanera. ? Administración Aduanera y Comercio Exterior. § Administración con énfasis en Compras y Recursos Materiales. § Administración con énfasis en Dirección Empresarial.
-? | Administración con énfasis en Empresas.
-? | Administración de Compras y Control de Inventarios.
-? | Administración de Empresas.
-? | Administración de Empresas con énfasis en Administración Financiera.
-? | Administración de Empresas con énfasis en Alta Gerencia.
+§ Administración. § Administración Aduanera. § Administración Aduanera con énfasis en Clasificación Arancelaria. § Administración Aduanera con énfasis en Legislación Aduanera. ? Administración Aduanera y Comercio Exterior. § Administración con énfasis en Compras y Recursos Materiales. § Administración con énfasis en Dirección Empresarial. § Administración con énfasis en Empresas. § Administración de Compras y Control de Inventarios. § Administración de Empresas. § Administración de Empresas con énfasis en Administración Financiera. § Administración de Empresas con énfasis en Alta Gerencia.
 ? | Administración de Empresas con énfasis en Comercio Internacional.
 ? | Administración de Empresas con énfasis en Contabilidad.
 ? | Administración de Empresas con énfasis en Contaduría.
@@ -832,13 +770,13 @@ Atinencias de nivel técnico y profesional para el suproceso de Contratación Ad
 ? | Ingeniería Industrial.
 ? | Ingeniería Industrial con énfasis en Administración Industrial.
 ? | Ingeniería Industrial con énfasis en Gestión de la Cadena de Suministros.
-§ Ingeniería Industrial con énfasis en Gestión de Operaciones. § Ingeniería Industrial con énfasis en Ingeniería de la Calidad. § Ingeniería Industrial con énfasis en Mantenimiento Industrial. § Ingeniería Industrial con énfasis en Manufactura y Calidad. § Logística Internacional.
+? | Ingeniería Industrial con énfasis en Gestión de Operaciones.
+? | Ingeniería Industrial con énfasis en Ingeniería de la Calidad.
+? | Ingeniería Industrial con énfasis en Mantenimiento Industrial.
+? | Ingeniería Industrial con énfasis en Manufactura y Calidad.
+? | Logística Internacional.
 Atinencias de nivel técnico y profesional para el subproceso de Control y Seguimiento; Almacenamiento y Distribución; Logística
-§ Administración. § Administración Aduanera. § Administración Aduanera con énfasis en Clasificación Arancelaria. § Administración Aduanera con énfasis en Legislación Aduanera. ? Administración Aduanera y Comercio Exterior. § Administración con énfasis en Compras y Recursos Materiales. § Administración con énfasis en Dirección Empresarial. § Administración con énfasis en Empresas. § Administración de Compras y Control de Inventarios. § Administración de Empresas. § Administración de Empresas con énfasis en Administración Financiera. § Administración de Empresas con énfasis en Alta Gerencia. § Administración de Empresas con énfasis en Comercio Internacional. § Administración de Empresas con énfasis en Compras y Materiales. § Administración de Empresas con énfasis en Contabilidad. § Administración de Empresas con énfasis en Contaduría. § Administración de Empresas con énfasis en Contaduría Pública. § Administración de Empresas con énfasis en Contaduría y Finanzas. ? Administración de Empresas con énfasis en Mercadeo. § Administración de Empresas con énfasis en Contaduría y Gerencia. § Administración de Empresas con énfasis en Contratación Administrativa. § Administración de Empresas con énfasis en Dirección de Empresas. § Administración de Empresas con énfasis en Finanzas. § Administración de Empresas con énfasis en Finanzas y Contabilidad. § Administración de Empresas con énfasis en Gerencia. § Administración de Empresas con énfasis en Gerencia General. § Administración de Empresas con énfasis en Gestión Organizacional.
-? | Administración de Empresas con énfasis en Mercadeo.
-? | Administración de Empresas con énfasis en Mercadeo y Comercio Internacional.
-? | Administración de Empresas con énfasis en Negocios Internacionales.
-? | Administración de Negocios.
+§ Administración. § Administración Aduanera. § Administración Aduanera con énfasis en Clasificación Arancelaria. § Administración Aduanera con énfasis en Legislación Aduanera. ? Administración Aduanera y Comercio Exterior. § Administración con énfasis en Compras y Recursos Materiales. § Administración con énfasis en Dirección Empresarial. § Administración con énfasis en Empresas. § Administración de Compras y Control de Inventarios. § Administración de Empresas. § Administración de Empresas con énfasis en Administración Financiera. § Administración de Empresas con énfasis en Alta Gerencia. § Administración de Empresas con énfasis en Comercio Internacional. § Administración de Empresas con énfasis en Compras y Materiales. § Administración de Empresas con énfasis en Contabilidad. § Administración de Empresas con énfasis en Contaduría. § Administración de Empresas con énfasis en Contaduría Pública. § Administración de Empresas con énfasis en Contaduría y Finanzas. ? Administración de Empresas con énfasis en Mercadeo. § Administración de Empresas con énfasis en Contaduría y Gerencia. § Administración de Empresas con énfasis en Contratación Administrativa. § Administración de Empresas con énfasis en Dirección de Empresas. § Administración de Empresas con énfasis en Finanzas. § Administración de Empresas con énfasis en Finanzas y Contabilidad. § Administración de Empresas con énfasis en Gerencia. § Administración de Empresas con énfasis en Gerencia General. § Administración de Empresas con énfasis en Gestión Organizacional. § Administración de Empresas con énfasis en Mercadeo. § Administración de Empresas con énfasis en Mercadeo y Comercio Internacional. § Administración de Empresas con énfasis en Negocios Internacionales. § Administración de Negocios.
 ? | Administración de Negocios con énfasis en Administración Industrial.
 ? | Administración de Negocios con énfasis en Alta Gerencia.
 ? | Administración de Negocios con énfasis en Contabilidad.
@@ -869,7 +807,12 @@ Atinencias de nivel técnico y profesional para el subproceso de Control y Segui
 ? | Ciencias Económicas con énfasis en Comercio Exterior.
 ? | Ciencias Económicas con énfasis en Finanzas Internacionales.
 ? | Ciencias Económicas con énfasis en Mercadeo Internacional.
-§ Ciencias Empresariales. § Comercio Exterior. § Contabilidad. § Contabilidad y Finanzas. § Contaduría Pública. § Dirección Empresarial. § Dirección Empresarial con énfasis en Recursos Humanos § Gerencia de Proyectos de Desarrollo § Gerencia de Proyectos énfasis en Proyectos de Construcción § Gerencia de Proyectos para el Desarrollo § Gerencia Financiera § Gerencia General § Gerencia y Negociaciones Internacionales § Gestión de Proyectos § Gestión y Administración Empresarial § Gestión y Finanzas Públicas § Ingeniería en Procesos y Calidad § Ingeniería Industrial § Ingeniería Industrial con énfasis en Administración Industrial § Ingeniería Industrial con énfasis en Gestión de la Cadena de Suministros § Ingeniería Industrial con énfasis en Gestión de Operaciones § Ingeniería Industrial con énfasis en Ingeniería de la Calidad § Ingeniería Industrial con énfasis en Mantenimiento Industrial § Ingeniería Industrial con énfasis en Manufactura y Calidad ? Logística Internacional
+? | Ciencias Empresariales.
+? | Comercio Exterior.
+? | Contabilidad.
+? | Contabilidad y Finanzas.
+? | Contaduría Pública.
+§ Dirección Empresarial. § Dirección Empresarial con énfasis en Recursos Humanos § Gerencia de Proyectos de Desarrollo § Gerencia de Proyectos énfasis en Proyectos de Construcción § Gerencia de Proyectos para el Desarrollo § Gerencia Financiera § Gerencia General § Gerencia y Negociaciones Internacionales § Gestión de Proyectos § Gestión y Administración Empresarial § Gestión y Finanzas Públicas § Ingeniería en Procesos y Calidad § Ingeniería Industrial § Ingeniería Industrial con énfasis en Administración Industrial § Ingeniería Industrial con énfasis en Gestión de la Cadena de Suministros § Ingeniería Industrial con énfasis en Gestión de Operaciones § Ingeniería Industrial con énfasis en Ingeniería de la Calidad § Ingeniería Industrial con énfasis en Mantenimiento Industrial § Ingeniería Industrial con énfasis en Manufactura y Calidad ? Logística Internacional
 Atinencias de nivel gerencial para el proceso de Proveeduría Institucional
 Se consideran atinentes para el nivel ejecutivo todas aquellas especialidades que se describen en el ítem anterior y las que se mencionan a continuación: § Derecho. § Derecho Administrativo. § Derecho Público.
 [imagen] Proceso de Control de Bienes e I nventarios
@@ -2479,3 +2422,5 @@ Capítulo VII. Dirección General de Administración Universitaria. Publicado en
 Reformado mediante Acuerdo 8 tomado por el Consejo Universitario en la Sesión Ordinaria No. 12-2023, celebrada el jueves 25 de mayo de 2023, a las nueve horas, según el Artículo 11 del Capítulo VI. Dirección
 General de Administración Universitaria. Publicado en el diario oficial La Gaceta No. 114 del 26 de junio del 2023, sección Reglamentos.
 Reformado mediante Acuerdo 11 tomado por el Consejo Universitario en la Sesión Ordinaria No. 28-2023, celebrada el jueves 26 de octubre de 2023, a las nueve horas, según el Artículo 17 del Capítulo VI. Dirección General de Administración Universitaria. Publicado en el diario oficial La Gaceta No. 210 del 13 de noviembre del 2023, sección Reglamentos.
+Reformado mediante Acuerdo 6 tomado por el Consejo Universitario en la Sesión Ordinaria No. 32-2023, celebrada el jueves 07 de diciembre de 2023, a las nueve horas, según el Artículo 14 del Capítulo V. Dirección
+General de Administración Universitaria. Publicado en el diario oficial La Gaceta No. 8 del 17 de enero del 2024, sección Reglamentos.

@@ -19,3 +19,4 @@ Manual de atinencias y especialidades del sector administrativo de la Universida
 | 4 | 2023-03-23 | Reglamento 11 (2023-03-23) |
 | 5 | 2023-05-25 | Reglamento 12 (2023-05-25) |
 | 6 | 2023-10-26 | Reglamento 28 (2023-10-26) |
+| 7 | 2023-12-07 | Reglamento 32 (2023-12-07) |
