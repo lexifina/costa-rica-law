@@ -1,0 +1,1 @@
+Artículo 119-. Los usos del suelo en la Reserva Forestal Cordillera Volcánica Central, son establecidos por el SINAC, en consideración del Decreto Ejecutivo Nº 5386 y los artículos 18, 18 Bis y 19 de la Ley Forestal Nº 7575 o bien por el respectivo Plan General de Manejo.

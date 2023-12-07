@@ -1,0 +1,2 @@
+CAPÍTULO DÉCIMO TERCERO: LA ZONA INDUSTRIAL ARTESANAL (ZIA)
+Artículo 90-. Comprende terrenos localizados en el distrito San José de la Montaña y en el distrito de San Pedro; se identifica con la simbología correspondiente en el mapa de zonificación, así como con las siglas ZIA. Esta zona fue establecida para facilite la instalación de micro, pequeñas y medianas empresas en aquellas modalidades o tipologías permitidas por el Plan Regulador como son la industria agro-pecuaria y forestal, para la producción y comercialización de productos locales.

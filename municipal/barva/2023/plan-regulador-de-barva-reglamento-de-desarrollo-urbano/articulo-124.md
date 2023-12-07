@@ -1,0 +1,1 @@
+Artículo 124-. Los usos permitidos para la ZRU son los establecidos en el anexo 1 del presente Reglamento. Serán usos no permitidos o prohibidos, todos aquellos que no han sido incluidos como usos permitidos, así como aquellos en que la Municipalidad considere no conformes según la aptitud del terreno y la actividad solicitada.

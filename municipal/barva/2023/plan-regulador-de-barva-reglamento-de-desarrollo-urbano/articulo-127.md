@@ -1,0 +1,1 @@
+Artículo 127-. Los proyectos de renovación urbana para cada uno de los sectores identificados en el Mapa de Zonificación serán desarrollados por la Municipalidad, pudiendo contar en dicho proceso con la asesoría del INVU.

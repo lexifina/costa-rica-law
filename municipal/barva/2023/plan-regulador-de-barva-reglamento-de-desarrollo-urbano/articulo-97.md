@@ -1,0 +1,1 @@
+Artículo 97-. Los usos que son aplicables a la ZIN y que deberán autorizarse según la tipología específica (A, B, C) son los establecidos en el anexo 1 del presente Reglamento. Serán usos no permitidos o prohibidos, todos aquellos que no han sido incluidos como usos permitidos:

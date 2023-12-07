@@ -1,0 +1,2 @@
+CAPÍTULO VIGÉSIMOTERCERO: PARQUE NACIONAL BRAULIO CARRILLO (PNBC)
+Artículo 121-. De conformidad con la Ley Nº 6280 del 25 de octubre de 1978 y sus reformas, así como el Decreto Ejecutivo #39259-MINAE que amplía sus límites, se comprende los terrenos del PNBC que están dentro de la jurisdicción territorial administrativa del cantón Barva. Tiene como fin delimitar el espacio para la aplicación de las normas de desarrollo y uso que establece el Plan de Manejo del MINAE.

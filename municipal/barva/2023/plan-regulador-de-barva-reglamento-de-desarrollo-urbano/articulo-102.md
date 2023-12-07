@@ -1,0 +1,8 @@
+Artículo 102-. Para la ZVPR se establecen las siguientes regulaciones:
+a) En los frentes de la zona no se permiten tapias o muros, sólo se aceptarán divisiones abiertas del tipo divisiones naturales (cercas vivas) utilizando especies nativas y conforme a las especificaciones de diseño del Reglamento de Construcciones.
+b) No se aceptarán accesos vehiculares, solo espacios peatonales incluyendo senderos. Será excepción a la regla los accesos viales con fines de mantenimiento y la seguridad de los usuarios, acceso para vehículos ambulancia, de bomberos, de policía y/o servicios municipales.
+c) En las colindancias con la ZVPR se podrán integrar orgánicamente espacios para el estacionamiento de vehículos, siempre que esto no implique una reducción en el área neta de la ZVPR.
+d) En los lotes colindantes no serán permitidos establecimientos clasificados como peligrosos, insalubres e incómodos, según la calificación del Ministerio de Salud. Ningún uso permitido en las colindancias podrá ser fuente de contaminación o inseguridad para los fines del parque.
+e) No se permitirán construcciones en los terrenos colindantes a las áreas de parque urbano que presenten riesgos naturales, sean éstos por las características de los cauces, del suelo, de la topografía o de éstas combinadas.
+f) En las fincas colindantes con la ZVPR se podrán desarrollar los usos comerciales permitidos para cada una de las zonas donde se ubiquen las parcelas y se permitirá el acceso o comunicación directa desde y hacia la ZVPR.
+g) Será permitido dentro de los límites de la ZVPR la perforación y explotación de pozos para fines de abastecimiento por parte de entes públicos. Para ello debe cumplir con lo estipulado por Dirección de Agua, SENARA u otra institución encargada.

@@ -1,0 +1,2 @@
+CAPÍTULO VIGÉSIMO CUARTO: LA ZONA DE RENOVACIÓN URBANA (ZRU)
+Artículo 123-. De conformidad con la Ley Nº 4240 y con el Reglamento #6259 del INVU publicado en el Alcance 121 de la Gaceta del 01 de junio de 2017, se establece esta zona para delimitar los espacios sobre los cuales se propone implementar procesos de regeneración y remodelación urbana. Se identifica en el mapa de zonificación con la simbología correspondiente y con las siglas ZRU.

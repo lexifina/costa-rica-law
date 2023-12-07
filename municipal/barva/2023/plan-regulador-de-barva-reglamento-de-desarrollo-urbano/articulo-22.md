@@ -1,0 +1,4 @@
+Artículo 22-. La Junta de Planificación Cantonal: De conformidad con los artículos N° 59 y N° 60 de la Ley de Planificación Urbana #4240, se crea la Junta de Planificación Cantonal de Barva (en adelante JUPLACA), la cual será el organismo encargado de controlar la aplicación del Plan Regulador; sus integrantes pueden ser reelegidos y desempeñarán sus cargos "ad honorem". La JUPLACA estará integrada de la siguiente forma:
+a) El coordinador del equipo técnico encargado de ejecutar el Plan Regulador.
+b) El Juez de Aguas.
+c) Seis ciudadanos, representantes de cada uno de los distritos, que tengan no menos de veinte años de residir en forma constante dentro de los límites del distrito que representen. Estos representantes deberán ser postulados por cada Concejo de Distrito y nombrados por el Concejo Municipal.

@@ -1,0 +1,1 @@
+Artículo 128-. Cada proyecto de renovación urbana así como los requisitos urbanísticos y diseños propuestos por la Municipalidad deberán ser aprobados por el Concejo Municipal de previo a su aplicación efectiva.

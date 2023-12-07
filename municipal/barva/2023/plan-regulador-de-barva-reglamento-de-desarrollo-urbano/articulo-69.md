@@ -1,0 +1,2 @@
+CAPÍTULO SEXTO: LA ZONA RESIDENCIAL DE MEDIA DENSIDAD (ZRMD)
+Artículo 69-. Comprende espacios inmediatos a la ZRAD así identificados en el mapa de zonificación y referidos también con las siglas ZRMD. El propósito de esta zona es complementar el espacio de la ZRAD pero en condiciones diferenciadas de densidad por la jerarquía de los asentamientos mismos y las condiciones del territorio para su desarrollo. Comprende secciones en el sur del distrito Barva y en el caserío San Miguel del distrito San José de la Montaña. Permite expresamente la urbanización de terrenos.

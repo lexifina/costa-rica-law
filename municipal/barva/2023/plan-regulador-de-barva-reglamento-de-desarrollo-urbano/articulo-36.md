@@ -1,0 +1,1 @@
+Artículo 36-. Plazos: Los plazos de resolución para la solicitud de permisos y/o licencias serán los establecidos de conformidad con la Ley General de Administración Pública #6227 y en cumplimiento de la Ley de Protección al Ciudadano del Exceso de Requisitos y Trámites Administrativos #8220

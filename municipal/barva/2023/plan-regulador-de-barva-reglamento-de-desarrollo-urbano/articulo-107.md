@@ -1,0 +1,1 @@
+Artículo 107-. Los usos permitidos dentro de la ZEP son los establecidos en el anexo 1 del presente Reglamento. Serán usos no permitidos o prohibidos, todos aquellos que no han sido incluidos como usos permitidos.

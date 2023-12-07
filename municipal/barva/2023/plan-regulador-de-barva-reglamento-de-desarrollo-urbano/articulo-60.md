@@ -1,0 +1,2 @@
+CAPÍTULO TERCERO: LA ZONA URBANO - COMERCIAL (ZUC)
+Artículo 60.- Corresponde a la zona que así se identifica en el mapa zonificación y que se representa también con las siglas ZUC. El propósito de esta zona es delimitar espacios del casco central de Barva expuestos a alto tráfico vehicular y por lo tanto con una tendencia clara hacia la expansión de usos comerciales y de servicios y la sustitución de los usos residenciales.

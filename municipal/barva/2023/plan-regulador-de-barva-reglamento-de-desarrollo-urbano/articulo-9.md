@@ -1,0 +1,1 @@
+Artículo 9-. Interés Público: La Municipalidad podrá adquirir terrenos siempre y cuando se declare de previo bien de utilidad o de interés público, de conformidad con lo establecido en los artículos 2, 13 incisos e), 62 y 67 del Código Municipal, así como en la Ley de Expropiaciones #7495.

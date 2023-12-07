@@ -1,0 +1,1 @@
+Artículo 52-. Toda la comunidad, colectiva o individualmente, queda legitimada para plantear la denuncia ante la instancia correspondiente, según lo determinen las leyes o reglamentos, cuando la actividad desempeñada en un establecimiento o local no pueda ser efectuada sin causar molestias al vecindario, en violación a las normas del presente Reglamento.

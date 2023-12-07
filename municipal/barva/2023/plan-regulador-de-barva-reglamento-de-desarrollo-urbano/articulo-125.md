@@ -1,0 +1,1 @@
+Artículo 125-. De conformidad con lo establecido en el artículo 52 de la Ley de Planificación Urbana #4240, a partir de la entrada en vigencia del Plan Regulador y del presente Reglamento se establece el periodo de cinco años para la ejecución de los procesos de renovación urbana conforme con lo establecido en el Reglamento #6259 del INVU.

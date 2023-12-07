@@ -1,0 +1,1 @@
+Artículo 67-. Los usos que son aplicables a todo el espacio que comprende la ZRAD son los establecidos en el anexo 1 del presente Reglamento. Serán usos no permitidos o prohibidos, todos aquellos que no han sido incluidos como usos permitidos.

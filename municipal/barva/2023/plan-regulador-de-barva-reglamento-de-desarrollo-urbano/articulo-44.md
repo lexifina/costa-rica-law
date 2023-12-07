@@ -1,0 +1,6 @@
+CAPÍTULO OCTAVO
+INCENTIVOS
+Artículo 44-. Incentivos para protección ambiental: Con el fin de incentivar el cumplimiento de distintas disposiciones del reglamento relativas a la conservación o protección de recursos naturales, la Municipalidad de Barva podrá autorizar vía dictamen técnico favorable y posterior Acuerdo Municipal, la aplicación de incentivos fiscales mediante procedimientos previamente reglamentados, entre ellos una disminución en los montos de los impuestos por bienes inmuebles. El cumplimento de este procedimiento será Reglamentado por la Municipalidad de Barva y aprobado por el Concejo Municipal en un plazo no mayor a los seis meses calendario contados a partir de la entrada en vigencia del presente Reglamento. Podrá ser aplicable a los siguientes casos:
+a) Para el caso de fincas que resulten restringidos en su cabida o en cuanto al uso del suelo por estar afectados, total o parcialmente, por zonas de conservación o protección de recursos naturales.
+b) Para el caso de fincas en las cuales existan y se mantengan, amplíen o desarrollen procesos de reforestación y/o conservación de la cobertura forestal.
+c) Para el caso de fincas donde existan o se quieran implementar proyectos de agricultura ecológica, conforme a lo establecido para tales efectos por la Ley Orgánica del Ambiente Nº 7554
