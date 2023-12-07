@@ -1,0 +1,26 @@
+Artículo 6º-Disposiciones comunes que deben observarse en el trámite de formulación, aprobación y ejecución de las Modificaciones Presupuestarias y de los ajustes al Plan Operativo Anual que sí implican una variación presupuestaria en los niveles oficiales de aprobación interna como externa.
+El procedimiento deberá sujetarse a las siguientes disposiciones:
+6.1 Durante el ejercicio económico anual el Concejo Municipal podrá variar el presupuesto institucional como un máximo de doce modificaciones presupuestarias.
+6.2 Las modificaciones de cualquier tipo se formularán respetando la estructura presupuestaria y los clasificadores de gasto vigentes y se presentarán según el programa, partida, grupo y subpartida correspondiente.
+6.3 Los traslados de asignaciones presupuestarias entre programas, así como el rebajo o aumento de éstos, deberán vincularse cuando corresponda, con los objetivos y metas establecidos en Plan Operativo Anual. En tales casos, la modificación deberá acompañarse del ajuste respectivo al POA de la municipalidad, el cual será elaborado por la Dirección de Planificación Institucional.
+6.4 Toda modificación deberá indicar la razón que la justifica y deberá reflejar claramente los rubros presupuestarios afectados ya sean por aumento o disminución.
+6.5 La comisión de Hacienda y Presupuesto podrá aprobar la dispensa de trámites o darle un trámite célere a las modificaciones sometidas a su consideración. Para el proceso de análisis y discusión la Comisión de Hacienda conforme dispone el Código Municipal podrá requerir la presencia de cualquier funcionario, que se considere necesario y pertinente, a aclarar las modificaciones solicitadas.
+6.6 Toda Modificación Presupuestaria aprobada por el Concejo Municipal, deberá transcribirse íntegramente en el acta correspondiente de la sesión en que fue aprobada.
+6.7 Las modificaciones que sean improbadas por el Concejo Municipal por razones formales, podrán ser presentadas nuevamente a su conocimiento, por medio de un nuevo documento en el que hayan sido corregidas las causas de su rechazo o improbación.
+6.8 De toda Modificación Presupuestaria, la Dirección Financiera a través de la Jefatura de Presupuesto levantará un expediente que estará bajo su custodia, en el que se incluirá el documento correspondiente junto con el acuerdo de aprobación respectiva y deberá constar al menos las siguientes especificaciones:
+a. Nombre, cargo y firma de los responsables que intervinieron en el proceso.
+b. Acuerdo del Concejo Municipal.
+c. Toda Modificación Presupuestaria deberá ser numerada en orden cronológico y numérico consecutivo, iniciando con el número uno seguido del año correspondiente.
+d. Acuse de recibo de toda la documentación por parte del encargado de la custodia del expediente.
+e. Cuadros del POA ajustado, cuando las modificaciones afecten los objetivos y metas previamente aprobados por el Concejo Municipal.
+f. Documentos de justificación de las variaciones presupuestarias y su valoración de la razonabilidad de lo aplicado.
+g. Incluir en el expediente toda evidencia documental o digital que respalde la formulación y realimentación del proceso. (Convenios, relación de puestos, indicadores de gestión ajustados, sentencias, solicitudes de Directores y Jefes, Fichas etc.), Para tales efectos se adjuntará en el expediente un documento ejecutivo que resuma por Unidad Administrativa, los requerimientos y la forma en fue solicitada la variación o ajuste presupuestario. Se adjunta Anexo.
+[imagen]
+6.9 La aplicación de fondos que por ley tienen destino específico, sólo podrán modificarse para cubrir gastos contemplados dentro del destino previsto por la ley.
+6.10 No podrán rebajarse los montos asignados para hacer frente a compromisos legales o contractuales, salvo que se acredite que éstos ya han sido atendidos.
+6.11 Las modificaciones presupuestarias sólo podrán efectuarse cuando los programas, proyectos, partidas o subpartidas que se rebajen, tengan el contenido presupuestario necesario.
+6.12 No se podrán efectuar modificaciones presupuestarias para aumentar partidas o subpartidas, con el fin de dar contenido o cubrir gastos ya ejecutados.
+6.13 No podrá ejecutarse ninguna Modificación Presupuestaria, si previamente, ésta no ha sido aprobada por el órgano competente, según las disposiciones de este reglamento.
+6.14 El cumplimiento de las limitaciones establecidas en el presente reglamento, deberán hacerse constar en todos los casos en el documento que contenga la respectiva modificación y deberá acreditarse cuando corresponda, mediante certificación que emita el Jefe (a) de Presupuesto.
+6.15 Toda Modificación Presupuestaria debidamente aprobada por el Concejo Municipal, deberá ser registrada en el Sistema Integrado de Planes y Presupuesto (SIPP) en la página web de la Contraloría General de la República, dentro de los plazos definidos por el ente Contralor para estos efectos, así como en los sistemas internos para registro y control del Presupuesto.
+6.16 Toda Modificación Presupuestaria deberá ser presentada al Concejo para su conocimiento y deliberación con una anticipación de ocho días.
