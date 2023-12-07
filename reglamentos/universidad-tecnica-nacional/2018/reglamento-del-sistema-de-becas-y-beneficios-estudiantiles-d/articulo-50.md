@@ -1,7 +1,8 @@
 Artículo 50 -Beca de honor. La beca de honor consiste en la exoneración total del pago de aranceles referidos a créditos a los tres mejores promedios de cada carrera en cada Sede, quienes además deben cumplir con los siguientes requisitos:
 a) Matricular el bloque de materias correspondiente a su nivel, en cualquiera de las siguientes circunstancias:
-i) Total de créditos de cada ciclo lectivo correspondientes al plan de estudios de la carrera matriculada
+i) Total, de créditos de cada ciclo lectivo correspondientes al plan de estudios de la carrera matriculada
 ii) Mínimo de 12 créditos de diferentes ciclos lectivos de la Carrera o 10 créditos para el caso de los planes dosificados en franja horaria nocturna
 b) Para el caso de los estudiantes que se encuentren cursando el ciclo introductorio, se considera un promedio de las notas de Educación Diversificada o su equivalente
 c) Obtener un promedio ponderado final igual o superior a nueve siempre en el cuatrimestre tras anterior a su matrícula y cuando todas las materias matriculadas en ese ciclo lectivo tengan una nota igual o superior a nueve
 d) Las materias aprobadas por suficiencia y tutorías son consideradas para los efectos de otorgamiento de Beca de Honor, en la obtención del Promedio Ponderado del ciclo lectivo correspondiente. En el caso de que el promedio ponderado obtenido quede en fracción igual o superior a 0.5, se redondeará al número superior.
+(Reformado mediante acuerdo 17- 27- 19, tomado por el Consejo Universitario en la Sesión Ordinaria No. 27-2019, celebrada el jueves 12 de diciembre de 2019, a las nueve horas, según el Artículo 15, y publicado en el Diario Oficial la Gaceta No. 38 del miércoles 26 de febrero del 2020, se acordó modificar los artículos 7, 22, 23, 31, 38, 48, 49, 50, 53, 54, 58, 59, 65 y 66, también se elimina el artículo 67 de dicho reglamento)

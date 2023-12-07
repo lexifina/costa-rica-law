@@ -1,4 +1,4 @@
-TRANSITORIO VI. Para las personas estudiantes que se les asigne beca socioeconómica a partir del año 2021 y hasta el año 2024, lo estipulado en los artículos 22,23 y 25 de esta normativa, se regirán bajo las siguientes disposiciones:
+TRANSITORIO VI. Para las personas estudiantes que se les asigne beca socioeconómica a partir del año 2021 y hasta el año 2024, lo estipulado en los Página | artículos 22,23 y 25 de esta normativa, se regirán bajo las siguientes disposiciones:
 El periodo de vigencia de la beca socioeconómica se otorga únicamente para el nivel de diplomado y se extiende desde el momento en que le es adjudicado a la persona estudiante y durante un periodo máximo según las siguientes condiciones:
 a) Para las personas estudiantes que cursen planes regulares, la vigencia es por un periodo máximo de seis cuatrimestres consecutivos.
 b) Para las personas estudiantes que cursen los planes dosificados en franja horaria nocturna, la vigencia es por un máximo de nueve cuatrimestres consecutivos.

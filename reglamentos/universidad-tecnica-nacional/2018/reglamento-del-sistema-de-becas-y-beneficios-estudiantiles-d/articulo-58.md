@@ -1,4 +1,6 @@
 Artículo 58 -Aplicación de la beca de estímulo. En caso de que el estudiante curse en forma simultánea varias carreras y de igual forma participe en diversos grupos de representación o ejerza como representante estudiantil, tendrá derecho a aplicar la beca de estímulo a las carreras correspondientes, en el entendido de que cada beca de estímulo puede ser aplicada en una única carrera.
+La persona estudiante con beca por participación en grupos de representación estudiantil de cultura, deporte y recreación, beca por participación en actividades de interés institucional, beca por representación estudiantil titular o suplente ante Consejo Universitario, Consejos de Sede y Consejo Técnico del CFPTE,
+Representantes ante el Tribunal Electoral Universitario, Representante ante el Comité para el análisis del Presupuesto de Becas y Beneficios Estudiantiles, beca por representación estudiantil de la Federación de Estudiantes de la Universidad o por representación estudiantil de las Asociaciones de Estudiantes de las Sedes; puede solicitar un cambio de aplicación de beca en otra carrera por una única ocasión.
 Este cambio se aplica bajo las siguientes condiciones:
 a) Se puede realizar siempre y cuando la beca se encuentre vigente
 b) La beca se aplica únicamente por el periodo de vigencia restante
