@@ -1,0 +1,1 @@
+Artículo 20.-Toda empresa de hospedaje deberá velar por la seguridad física y patrimonial de sus huéspedes y trabajadores, aplicando medidas tales como: controles de acceso, iluminación de áreas públicas, sistemas de vigilancia y personal capacitado en seguridad.

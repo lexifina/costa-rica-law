@@ -1,0 +1,1 @@
+Artículo 15.-Al menos que se establezca un plazo diferente, el contrato de hospedaje se realiza por un día. En caso de no ser desocupada la habitación por el huésped, se considera tácitamente prorrogado por un día más y así sucesivamente.

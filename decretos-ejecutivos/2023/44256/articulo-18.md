@@ -1,0 +1,1 @@
+Artículo 18.-Si antes de abandonar el establecimiento, el huésped no ha cancelado la tarifa acordada, más el consumo y gastos adicionales en los que haya incurrido durante su estadía; la empresa podrá retener su equipaje de conformidad con lo dispuesto en el artículo 1143 del Código Civil y acudir a la autoridad competente.

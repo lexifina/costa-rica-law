@@ -1,0 +1,1 @@
+Artículo 10.-En el caso de ser reservaciones individuales o colectivas, la cancelación de las reservaciones se regirá por el acuerdo expreso que al respecto establezcan las partes en el contrato de hospedaje.

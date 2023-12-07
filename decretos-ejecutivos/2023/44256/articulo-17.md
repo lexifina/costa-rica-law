@@ -1,0 +1,1 @@
+Artículo 17.-El alojamiento de niños menores de dos años, en la misma habitación de sus padres o acompañantes será gratuito, siempre y cuando no se utilice cama adicional o cuna para el menor, salvo que la empresa otorgue estos servicios de forma gratuita.
