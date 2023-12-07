@@ -14,3 +14,4 @@ Integración de las Juntas Cantonales correspondiente a las elecciones municipal
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-11-10 | la propia norma |
+| 2 | 2023-12-07 | Decreto TSE 15 (2023-12-07) |
