@@ -1,0 +1,1 @@
+Artículo 36. La Comisión Coordinadora podrá autorizar a la Administración para que realice los ajustes internos necesarios para el cumplimiento de los objetivos institucionales, siempre y cuando se limiten a los lineamientos definidos en este concepto.

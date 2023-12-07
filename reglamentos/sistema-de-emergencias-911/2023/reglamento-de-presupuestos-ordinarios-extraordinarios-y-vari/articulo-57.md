@@ -1,0 +1,2 @@
+Artículo 57. Los informes de ejecución presupuestaria solicitados por la CGR y la STAP y elaborados por Finanzas y sus respectivos anexos se deberán presentar en tiempo y forma, según lo establecido por los entes rectores.
+Los informes para la Comisión Coordinadora preparados por Finanzas deben incluir la información que por normativa se solicita y cualquier otra requerida por la Comisión Coordinadora.

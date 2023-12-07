@@ -1,0 +1,1 @@
+Artículo 52. Los presupuestos extraordinarios se realizarán a partir de la indicación por parte de Finanzas de acuerdo con el flujo de los ingresos (al alza o la baja) y la aprobación de la Dirección.

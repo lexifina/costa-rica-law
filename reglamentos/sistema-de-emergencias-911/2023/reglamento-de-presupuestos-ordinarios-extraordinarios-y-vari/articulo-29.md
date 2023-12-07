@@ -1,0 +1,1 @@
+Artículo 29. Cuando por temas de ingresos, topes presupuestarios u otros se requiera la priorización de actividades o proyectos dentro del Plan-Presupuesto, será responsabilidad de la Dirección tomar las decisiones que correspondan, previa presentación de los análisis realizados por los titulares subordinados.

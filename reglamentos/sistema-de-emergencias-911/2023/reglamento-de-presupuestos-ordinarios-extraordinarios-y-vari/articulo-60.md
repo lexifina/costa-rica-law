@@ -1,0 +1,1 @@
+Artículo 60. Para el seguimiento de las metas y actividades del POI, los titulares subordinados deberán actualizar trimestralmente los avances de las metas establecidas bajo su responsabilidad y Finanzas deberá enviar a Planificación y Control mensualmente la ejecución presupuestaria.

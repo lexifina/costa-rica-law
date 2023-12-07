@@ -1,0 +1,1 @@
+Artículo 17. Los elementos mínimos que deberá contener el presupuesto serán los que establezcan la Ley de Administración Financiera de la República N°8131 y las Normas Técnicas de Presupuesto Público.

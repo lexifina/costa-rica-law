@@ -1,0 +1,1 @@
+Artículo 13. Para efectos de esta normativa Salud Ocupacional será responsable de solicitar a las unidades ejecutaras los requerimientos relacionas con la salud y seguridad de las personas funcionarias, para su posterior compilación e inclusión en el POI.

@@ -1,0 +1,1 @@
+Artículo 19. La estimación presupuestaria, se realizará en concordancia con los planes de corto, mediano y largo plazo, establecidos institucionalmente de acuerdo con los recursos necesarios para obtener los resultados esperados, conforme a los objetivos, metas y acciones establecidas.

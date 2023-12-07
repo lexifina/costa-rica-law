@@ -1,0 +1,1 @@
+Artículo 42. Finanzas será el responsable de aplicar las modificaciones presupuestarias y los ajustes internos en el ERP, custodiar la documentación de respaldo, generar los reportes correspondientes, y cargar la información en el Sistema de Información sobre Presupuestos Públicos (SIPP) de la Contraloría General de la República.

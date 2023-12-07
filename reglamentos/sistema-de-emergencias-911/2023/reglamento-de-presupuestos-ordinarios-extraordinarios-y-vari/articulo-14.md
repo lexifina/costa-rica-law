@@ -1,0 +1,1 @@
+Artículo 14. Soporte Tecnológico será responsable de compilar e incluir en el POI los requerimientos tecnológicos institucionales y de los despachos de las instituciones articuladas y vinculadas (hardware, software, equipos de comunicación), como, por ejemplo: teclados, mouse, head set, computadoras, monitores, entre otros.

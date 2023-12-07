@@ -1,0 +1,1 @@
+Artículo 49. Los formularios de las modificaciones presupuestarias o ajustes internos presentados deberán considerar un único subprograma de origen y un único subprograma de destino, es decir cuando se requiera realizar diferentes variaciones de diferentes subprogramas a un mismo subprograma, se deberán confeccionar formularios por separado.

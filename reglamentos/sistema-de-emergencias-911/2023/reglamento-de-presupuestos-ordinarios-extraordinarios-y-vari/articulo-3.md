@@ -1,0 +1,1 @@
+Artículo 3. El Presupuesto Institucional será el instrumento para gestionar de forma eficaz, eficiente y económica la prestación de los servicios y lograr los objetivos de creación del 9-1-1 y del Plan Estratégico Institucional.

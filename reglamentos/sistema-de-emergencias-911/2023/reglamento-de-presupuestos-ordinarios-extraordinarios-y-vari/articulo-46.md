@@ -1,0 +1,1 @@
+Artículo 46. Las modificaciones presupuestarias serán aprobadas por la Dirección y los ajustes internos por los titulares subordinados responsables de los subprogramas de donde provienen los recursos, según corresponda.

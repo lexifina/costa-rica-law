@@ -1,0 +1,1 @@
+Artículo 15. Logística Operativa será responsable de gestionar, con las unidades internas, los proyectos aprobados por la Comisión Coordinadora y cada unidad será la responsable de la formulación en el POI de dichas solicitudes de las instituciones vinculadas y articuladas.

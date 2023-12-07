@@ -1,0 +1,1 @@
+Artículo 56. El informe de liquidación presupuestaria anual y el avance físico del POI, deberá ser remitido a la Contraloría General de la República en tiempo y forma, con copia del acuerdo de la Comisión Coordinadora de su conocimiento y aprobación.

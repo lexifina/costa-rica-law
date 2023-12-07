@@ -1,0 +1,1 @@
+Artículo 34. Según las "Normas Técnicas de Presupuesto Público" la fecha para someter la aprobación externa del presupuesto inicial es a más tardar el 30 de septiembre, del año anterior al de su vigencia.

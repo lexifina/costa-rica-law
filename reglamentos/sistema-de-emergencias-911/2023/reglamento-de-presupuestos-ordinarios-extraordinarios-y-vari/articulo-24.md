@@ -1,0 +1,1 @@
+Artículo 24. El superávit específico está dado por el exceso de ingresos recibidos por concepto de multas por llamadas indebidas, sobre los gastos ejecutados al final de un ejercicio presupuestario que por disposiciones especiales o legales tienen que destinarse a un fin específico, conforme al artículo 20 de la Ley 7566.

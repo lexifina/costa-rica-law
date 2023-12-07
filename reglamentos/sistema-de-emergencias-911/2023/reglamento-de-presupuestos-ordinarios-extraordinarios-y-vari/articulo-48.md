@@ -1,0 +1,1 @@
+Artículo 48. Los cambios solicitados mediante el "F-FI-007, Solicitud Variación Presupuestaria" tendrán efecto legal en el presupuesto a partir de la confirmación de su aplicación en el ERP por parte de Finanzas, antes de ello no se podrán utilizar ni comprometer los recursos.

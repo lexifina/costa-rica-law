@@ -1,0 +1,1 @@
+Artículo 25. El POI-Presupuesto deberá publicarse en la página web del Sistema de Emergencias 9-1-1 para cumplir con el Principio de publicidad que indican las "Normas Técnicas de Presupuesto Público" y darlo a conocer a los funcionarios para cumplir con el principio de divulgación.

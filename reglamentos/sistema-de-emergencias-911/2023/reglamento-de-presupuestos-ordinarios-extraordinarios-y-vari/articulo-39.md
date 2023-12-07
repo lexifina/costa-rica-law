@@ -1,0 +1,1 @@
+Artículo 39. Los mecanismos, controles y seguimiento de los ajustes internos y de las modificaciones presupuestarias al presupuesto estarán a cargo de Finanzas. Lo relacionado con el cumplimiento de metas y objetivos, estará a cargo de Planificación y Control.

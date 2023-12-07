@@ -1,0 +1,1 @@
+Artículo 37. Los responsables de los subprogramas aprobarán los ajustes internos que se realicen al presupuesto aprobado, con la debida justificación por parte del solicitante y la aceptación del encargado de la actividad.

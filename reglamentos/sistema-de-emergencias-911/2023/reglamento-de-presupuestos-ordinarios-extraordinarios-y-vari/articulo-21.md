@@ -1,0 +1,1 @@
+Artículo 21. La información complementaria necesaria para sustentar el presupuesto y los informes que emite Finanzas debe contener al menos lo siguiente: el detalle, análisis vertical y horizontal, origen y aplicación de los recursos, justificación de los ingresos y egresos, tasas, recursos de vigencias anteriores (superávit) y remuneraciones.

@@ -1,0 +1,1 @@
+Artículo 12. Para los efectos de esta normativa Servicios Generales será responsable de solicitar a las unidades ejecutaras los requerimientos de combustibles, lubricantes y mobiliario para su posterior compilación e inclusión en el POI. Se excluye de esta el mobiliario ergonómico.

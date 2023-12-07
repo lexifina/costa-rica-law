@@ -1,0 +1,1 @@
+Artículo 32. Una vez conocidos y analizados los requerimientos institucionales del proyecto, la Comisión Coordinadora tendrá hasta la sesión ordinaria o extraordinaria del mes de agosto, para analizarlos y eventualmente aprobarlo o solicitar las modificaciones que considere pertinentes.

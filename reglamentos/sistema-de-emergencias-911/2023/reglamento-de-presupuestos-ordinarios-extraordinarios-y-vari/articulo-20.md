@@ -1,0 +1,1 @@
+Artículo 20. La preparación del Proyecto de POI-Presupuesto se iniciará a instancia de Planificación y Control el primer día hábil del mes de marzo, solicitando a todas las unidades que componen la organización definir sus necesidades justificadas en un Plan Operativo Anual cargándolo a más tardar el último día hábil del mes de abril.
