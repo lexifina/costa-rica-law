@@ -1,2 +1,0 @@
-Artículo 4. Cupos de ingreso
-Compete a la Vicerrectoría de Docencia remitir a la DRU la cantidad de cupos de ingreso para cada ciclo lectivo. Con base en el alcance de este reglamento, los cupos referidos son aquellos de ingreso a la carrera, en los diferentes niveles y modalidades de ingreso, mismos que son previamente establecidos por la Rectoría, según lo normado en el artículo 22, inciso k) del Estatuto Orgánico de la UTN.

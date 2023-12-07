@@ -1,2 +1,0 @@
-Artículo 12. Asignación de citas de matrícula para primer ingreso a grado
-Para asignar las citas de matrícula a la población estudiantil que ingresa por primera vez al nivel de Bachillerato o Licenciatura, se toma en consideración el promedio ponderado de la carrera cursada.

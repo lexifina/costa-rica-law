@@ -1,2 +1,0 @@
-Artículo 38. Acciones sancionatorias
-La persona aspirante o estudiante es responsable, en todo momento, de la legitimidad de los documentos presentados para el proceso de admisión y matrícula. En caso que se detecte que se ha incurrido en falsedad por parte de la persona aspirante o estudiante al demostrar o presentar los atestados, la sanción inmediata será la cancelación del proceso de admisión o la matrícula en el proceso que se encuentre.

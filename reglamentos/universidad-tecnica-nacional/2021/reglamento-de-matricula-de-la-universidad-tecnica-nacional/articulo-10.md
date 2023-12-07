@@ -1,3 +1,0 @@
-Artículo 10. Asignación de citas de matrícula para primer ingreso a pregrado
-Para las personas aspirantes de primer ingreso a la UTN al nivel de Diplomado, se utiliza el promedio de admisión como criterio para la asignación de la cita de matrícula. Este promedio es el que obtiene una persona aspirante producto de los criterios de admisión establecidos para su ingreso al nivel de Diplomado.
-Este promedio estará vigente para los dos primeros períodos lectivos consecutivos de matrícula. En el caso de las personas aspirantes que deban cursar el Ciclo Introductorio, el promedio estará vigente para los tres primeros periodos consecutivos de matrícula. En ambos casos, la persona aspirante deberá haber formalizado el ingreso a la carrera en la UTN mediante la matrícula.

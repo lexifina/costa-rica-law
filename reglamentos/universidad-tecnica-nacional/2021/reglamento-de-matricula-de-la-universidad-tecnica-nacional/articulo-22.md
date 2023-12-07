@@ -1,4 +1,0 @@
-Artículo 22. Matrícula de cursos por inclusión
-La matrícula de cursos por inclusión es un proceso para resolver situaciones de matrícula de excepción debidamente calificadas y justificadas.
-Durante la matrícula por inclusión es aplicable lo dispuesto en este reglamento, para la matrícula ordinaria en cuanto al procedimiento y los requisitos.
-La solicitud de matrícula por inclusión la realiza la persona estudiante por escrito ante la Dirección de Carrera o Programa, quien verifica el cumplimiento de los requisitos y aprueba la solicitud cuando corresponda, en el periodo definido en el calendario institucional para esos efectos.
