@@ -1,0 +1,1 @@
+Artículo 3º-Disposiciones generales. El uso del uniforme institucional constituye un motivo de honor y dignidad personal, su uso debe ser completo e impecable, en todo lugar y ocasión durante su jornada laboral. Le corresponde al Superior Jerárquico inmediato velar y disponer las medidas necesarias para que el personal a su cargo cumpla las normas establecidas en este reglamento.

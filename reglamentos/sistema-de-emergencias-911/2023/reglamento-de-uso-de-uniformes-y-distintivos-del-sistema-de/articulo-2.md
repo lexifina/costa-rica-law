@@ -1,0 +1,2 @@
+Artículo 2º-Ámbito de aplicación. El cumplimiento del presente reglamento aplica para las personas funcionarias del Sistema de Emergencias 9-1-1. Su incumplimiento podría acarrear sanciones disciplinarias según se disponga por parte de la Administración.
+Los uniformes y elementos que lo componen, descritos en el presente reglamento y en las disposiciones que en su consecuencia se dicten, son para uso exclusivo del personal del Sistema de Emergencias 9-1-1.

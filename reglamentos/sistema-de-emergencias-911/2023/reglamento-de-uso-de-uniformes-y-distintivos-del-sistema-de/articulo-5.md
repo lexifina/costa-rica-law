@@ -1,0 +1,7 @@
+Artículo 5º-Obligaciones. Son obligaciones de las personas funcionarias del Sistema de Emergencias 9-1-1:
+1. Portar el uniforme durante la jornada laboral, actividades especiales, capacitaciones, actos protocolarios, y cualquier otro evento que disponga la Administración, así como, vestirlo apropiadamente, con las faldas por dentro, limpio y aplanchado, con zapatos color negro tipo formal o casual cerrado cuya parte visible de la suela y lo demás de piel o tela de color negro, faja color negro, medias negras, en el caso de las personas funcionarias que utilicen enagua podrán utilizar pantimedias negras y lizas.
+2. Cumplir con el uso de uniformes según se establezca, siendo que en algún caso particular no se cumpla, debe ser informado y justificado al superior jerárquico el mismo día de la falta.
+3. Utilizar maquillaje acorde a los colores y estilo del uniforme.
+4. Reportar al Superior Jerárquico el robo, hurto o daño por uso normal del uniforme, con copia a Capital Humano para la resolución administrativa.
+5. Reportar el mal uso del uniforme por parte de las personas funcionarias que pretendan sacar ventaja de este para asuntos personales o laborales.
+6. En caso de extravío o daño por mal uso del uniforme, deberá presentar ante el Superior Jerárquico inmediato y a Capital Humano la justificación del caso, para la coordinación de la reposición debiendo reconocer a la institución el valor de está cuando así se determine.

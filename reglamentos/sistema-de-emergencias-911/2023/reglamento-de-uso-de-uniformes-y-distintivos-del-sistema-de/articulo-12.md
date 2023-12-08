@@ -1,0 +1,1 @@
+Artículo 12.-Del uso de otras prendas o accesorios. No se permitirá el uso de gorras, gorros, sombreros o quepis, pañuelos, pañoletas, bufandas, ponchos a no ser que los mismos sean provistos por la institución o por prescripción médica.
