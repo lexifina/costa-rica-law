@@ -1,0 +1,1 @@
+Artículo 15.-De los recursos contra lo resuelto por la Alcaldía. Cuando lo resuelto por la Alcaldía sea suspensión o despido sin responsabilidad patronal, cabe el recurso de apelación ante el Juzgado de Trabajo conforme lo dispone el inciso a) del artículo 159 del Código Municipal. Contra la amonestación escrita, el Código Municipal no establece recursos.

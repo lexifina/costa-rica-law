@@ -1,0 +1,1 @@
+Artículo 20.-Registro de sanciones. Para su debido registro, la Alcaldía comunicará al Instituto Nacional de las Mujeres, la resolución final que imponga una sanción a un funcionario/a municipal por este tipo de violencia.

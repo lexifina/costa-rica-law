@@ -1,0 +1,1 @@
+Artículo 12.-Plazo para interponer la denuncia y prescripción. El plazo para interponer la denuncia, de acuerdo con la Ley N° 10.235, es de un año, computable a partir del último hecho de violencia o a partir de que cesó la causa justificada que impidió denunciar.

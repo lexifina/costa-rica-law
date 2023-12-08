@@ -1,0 +1,1 @@
+Artículo 6°-Remisión a la jurisdicción penal. Cuando los hechos denunciados por violencia contemplados en este reglamento configuren un delito, el Concejo Municipal o la Alcaldía, según corresponda, remitirá la denuncia a la vía judicial, según la legislación penal y procesal penal correspondiente, sin perjuicio de las sanciones administrativas derivadas de la Ley N° 10.235.
