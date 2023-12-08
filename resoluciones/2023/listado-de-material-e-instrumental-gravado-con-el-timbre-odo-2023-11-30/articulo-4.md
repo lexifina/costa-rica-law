@@ -1,0 +1,1 @@
+Artículo 4°-Actualización. El Colegio de Cirujanos Dentistas de Costa Rica podrá incluir o excluir del anterior listado el material e instrumental gravado con el "Timbre Odontológico" al menos una vez al año.
