@@ -14,3 +14,4 @@ Reglamente Interno de Junta Directiva de la Corporación Ganadera
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-10-08 | la propia norma |
+| 2 | 2023-12-11 | Reglamento 0 (2023-12-11) |

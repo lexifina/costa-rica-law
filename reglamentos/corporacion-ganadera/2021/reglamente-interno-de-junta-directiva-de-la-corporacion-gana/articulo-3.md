@@ -12,3 +12,5 @@ j. Formular sugerencias y canalizar las recomendaciones de las organizaciones re
 k. Presentar la declaración jurada sobre la situación patrimonial ante la Contraloría General de la República, de conformidad con la Ley contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública, Ley Nº 8422.
 l. Suscribir una póliza de fidelidad, según lo dispuesto en el artículo 16 de la Ley 7837.
 m. Presentar un informe de fin de gestión cuando por cualquier razón se separe de la Junta Directiva o termine el periodo de mandato de esta.
+n) Contar con firma digital
+(Así adicionado el inciso anterior mediante acuerdo 07-09-2023, del 11 de diciembre del 2023)
