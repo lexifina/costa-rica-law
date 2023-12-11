@@ -18,3 +18,4 @@ Reglamento interno de contratación pública del Conglomerado Financiero BCR
 | 3 | 2018-11-12 | Reglamento 58 (2018-11-12) |
 | 4 | 2021-04-13 | Reglamento 16 (2021-04-13) |
 | 5 | 2022-11-02 | Reglamento 38 (2022-11-02) |
+| 6 | 2023-12-11 | Reglamento 46 (2023-12-11) |

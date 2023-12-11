@@ -1,3 +1,4 @@
-Artículo 44. Rescate del servicio para ser explotado directamente por la Administración
-Cuando el Banco o sus subsidiarias determinen que existen motivos sobrevinientes de interés público para asumir directamente la prestación del servicio, puede decretar su rescate por causa de interés público, mediante acto motivado por el jerarca del Banco o de la subsidiaria, y acudir al procedimiento establecido en el artículo 114 de la Ley General de Contratación Pública, así regulado en el Reglamento a la citada ley.
+Artículo 44.-Rescate del servicio para ser explotado directamente por la Administración
+Cuando el Banco o sus subsidiarias determinen que existen motivos sobrevinientes de interés público para asumir directamente la prestación del servicio, puede decretar su rescate por causa de interés público, mediante acto motivado por el gerente general o subgerentes del Banco o gerente general de la subsidiaria, y acudir al procedimiento establecido en el artículo 114 de la Ley General de Contratación Pública, así regulado en el artículo 289 del Reglamento a la citada ley.
+(Así reformado el párrafo anterior mediante sesión 46-23 del 11 de diciembre del 2023)
 El trámite interno para el procedimiento administrativo está regulado en las Disposiciones para la contratación pública en el Conglomerado Financiero BCR.
