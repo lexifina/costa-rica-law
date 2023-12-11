@@ -1,0 +1,5 @@
+Artículo 23.-Para acreditar las actividades de educación continua los entes proveedores deben estar inscritos en el SRPN, presentar al CARPEN con un mínimo 30 días hábiles antes de iniciar la actividad, si es de aprovechamiento, adjuntar documentos de evaluación de dicha actividad.
+a. Información de expositores, o declaración jurada en actividades educativas con cinco o más expositores.
+b. Otorgar un cupo dentro de la actividad de educación continua a uno (a) de los miembros del CARPEN con la finalidad de supervisar y fiscalizar el cumplimiento de los contenidos acreditados, ya sea de manera presencial o virtual, según la metodología de la actividad.
+c. Publicidad a utilizar para promoción de la actividad de educación continua, con el fin de verificar la veracidad de la información aprobada.
+El CARPEN se pronunciará y comunicará el resultado al ente proveedor a más tardar 10 días hábiles después de revisar en sesión ordinaria la información, vencido ese plazo sin el pronunciamiento de CARPEN se dará por aprobada la actividad.

@@ -1,0 +1,1 @@
+Artículo 32.-El aporte de los pagos recibidos por parte de los entes proveedores deben ser depositados en la cuenta del CPN y se utilizarán para solventar los gastos propios del SRPN, según el presupuesto establecido por la Asamblea y destinado al CARPEN.

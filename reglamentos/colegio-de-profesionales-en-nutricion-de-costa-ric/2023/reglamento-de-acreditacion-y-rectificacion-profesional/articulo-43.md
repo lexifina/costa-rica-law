@@ -1,0 +1,1 @@
+Artículo 43.-Para obtener el reconocimiento de las actividades recertificadas de educación continua en Nutrición, se deberá presentar anualmente, la solicitud, en el periodo establecido por CARPEN y utilizar el procedimiento establecido, presentando el título original y los documentos que respalden su participación en dichas actividades.

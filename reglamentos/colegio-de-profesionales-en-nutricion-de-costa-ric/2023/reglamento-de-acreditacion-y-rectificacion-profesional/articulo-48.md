@@ -1,0 +1,1 @@
+Artículo 48.-Si se comprueba que una persona profesional en Nutrición incumple algún requisito o aportó documentos falsos, CARPEN procederá a interponer la denuncia ante la fiscalía del Colegio para que actúe conforme con las disposiciones legales y reglamentarias establecidas por el CPN.

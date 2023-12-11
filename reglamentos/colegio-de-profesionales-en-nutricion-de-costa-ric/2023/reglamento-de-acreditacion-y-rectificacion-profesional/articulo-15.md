@@ -1,0 +1,1 @@
+Artículo 15.-El quórum de CARPEN lo constituyen tres miembros y los acuerdos se tomarán por mayoría simple de votos de los presentes. En caso de empate, quien ostente la coordinación del Consejo tendrá voto de calidad. En caso de ausencia de la persona coordinadora, el voto recae en el miembro responsable de la secretaría de CARPEN.

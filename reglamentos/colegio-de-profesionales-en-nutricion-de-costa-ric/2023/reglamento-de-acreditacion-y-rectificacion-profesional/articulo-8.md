@@ -1,0 +1,1 @@
+Artículo 8º-La Junta Directiva garantizará la transparencia y la eficiencia del proceso del SRPN, y dotará al CARPEN de la infraestructura administrativa, recursos económicos, capacidad tecnológica y logística para la realización de dicho sistema, que garantice la idoneidad del mismo, dentro del presupuesto aprobado por la Asamblea General para dichos efectos.

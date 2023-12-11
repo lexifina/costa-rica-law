@@ -1,0 +1,1 @@
+Artículo 41.-Cada periodo de recertificación consta de tres años consecutivos, en el cual la persona profesional en Nutrición debe obtener un mínimo de 10 créditos anuales, para un total de mínimo 30 créditos por periodo.

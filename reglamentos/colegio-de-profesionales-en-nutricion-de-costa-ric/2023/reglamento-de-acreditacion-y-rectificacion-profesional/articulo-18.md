@@ -1,0 +1,1 @@
+Artículo 18.-Las sesiones ordinarias de CARPEN se realizan una vez al mes, con derecho a compensación y las sesiones extraordinarias (cuando las circunstancias lo ameriten) con derecho a compensación, con el fin de realizar todas las funciones establecidas en el Reglamento de Acreditación y Recertificación Profesional.

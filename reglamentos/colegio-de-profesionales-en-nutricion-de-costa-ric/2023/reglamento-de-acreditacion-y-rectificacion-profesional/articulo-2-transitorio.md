@@ -1,0 +1,1 @@
+Transitorio II.-Las actividades de educación continua cuya solicitud se haya presentado antes de la publicación del presente Reglamento, se continuarán tramitando con las normas establecidas en el Reglamento Académico y de Recertificación Profesional publicado en el alcance N° 208 a La Gaceta N° 179 del 23 de septiembre de 2019.

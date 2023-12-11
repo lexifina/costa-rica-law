@@ -1,0 +1,6 @@
+Artículo 35.-Los créditos ara la recertificación profesional se asignan según la siguiente escala:
+Tipo de Actividad | Créditos para recertificación
+1. Participante como discente en actividades presenciales o a distancia (cursos, talleres, jornadas, foros, paneles, seminarios, mesas redondas, congresos, conferencias, simposios, ciclos de conferencias u otros a juicio de CARPEN. | 1 crédito por hora efectiva en actividades de participación 2 créditos por hora efectiva en actividades de aprovechamiento
+2. Pasantía profesional | 1 crédito por hora efectiva
+3. Participante como docente en actividades educativas. | 1,5 créditos por hora efectiva en actividades de participación 2 créditos por hora efectiva en actividades de aprovechamiento
+4. Publicaciones 4.1. Libro con comité editorial 4.2. Artículo en revista científica con comité editorial 4.3. Documentos (folletos, antologías, documentos técnicos, manuales y otros) 20 créditos: Los créditos se asignan dividiendo el número de créditos entre el número de autores. 10 créditos: Los créditos se asignan dividiendo el número de créditos entre el número de autores. Máximo 5 créditos previo estudio del CARPEN. Los créditos se asignan dividiéndolos entre el número de autores. |
