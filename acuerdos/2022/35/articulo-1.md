@@ -1,4 +1,5 @@
 COLEGIO DE CIRUJANOS DENTISTAS DE COSTA RICA
+(Nota de Sinalevi: El Colegio de Cirujanos Dentistas, mediante publicación en La Gaceta N° 229 del 11 de diciembre del 2023, acordó lo siguiente: "En relación con la Tarifa Mínima de Honorarios Profesionales 2022-2023 del Colegio de Cirujanos Dentistas de Costa Rica, adoptada por esta Junta Directiva en sesiones N° 1777 del 25 de mayo de 2022, acuerdo N° 35 y sesión N° 1779 del 22 de junio de 2022, acuerdo N° 3, tarifa publicada en La Gaceta N° 112 del 16 de junio de 2022 y N° 122 del 30 de junio de 2022, se acuerda mantener su vigencia de manera indefinida, hasta la promulgación de un nuevo tarifario")
 (Nota de Sinalevi: Mediante Fe de Erratas y publicada en La Gaceta N° 122 del 30 de junio de 2022, página N° 2, se sustituyó el texto de la presente norma, por el que se transcribe a continuación:)
 COMISIÓN DE TARIFAS MINIMAS DEL COLEGIO
 DE CIRUJANOS DENTISTAS DE COSTA RICA
