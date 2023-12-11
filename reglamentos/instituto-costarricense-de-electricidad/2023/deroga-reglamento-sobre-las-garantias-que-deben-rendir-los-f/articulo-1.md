@@ -1,0 +1,3 @@
+INSTITUTO COSTARRICENSE DE ELECTRICIDAD
+DEROGACIÓN DE DOCUMENTO NORMATIVO
+El Consejo Directivo del Instituto Costarricense de Electricidad, aprobó en el artículo 3° del capítulo III de la sesión N° 6600 del 01 de noviembre del 2023, en el por tanto 1, lo siguiente: Derogar, con fundamento en el informe brindado por la Administración, los criterios legales y de riesgo financiero, el documento normativo "Reglamento sobre las garantías que deben rendir los funcionarios a favor del Instituto Costarricense de Electricidad (ICE)", aprobado por este Consejo Directivo en el artículo 3° de la sesión N° 5766 del 7 de noviembre del 2006. Vigencia: Este acuerdo rige a partir de su publicación en el Diario Oficial La Gaceta.
