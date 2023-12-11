@@ -1,0 +1,16 @@
+BANCO CENTRAL DE COSTA RICA
+JUNTA DIRECTIVA
+La Junta Directiva del Banco Central de Costa Rica, en el numeral 2, artículo 6 del acta de la sesión 6153-2023, celebrada el 23 de noviembre del 2023,
+considerando que:
+A. Según lo dispuesto en el artículo 2 de la Ley Orgánica del Banco Central de Costa Rica, Ley 7558, el principal objetivo de esta entidad es mantener la estabilidad interna de la moneda nacional. Además, el literal c) del artículo 3 establece que una de sus funciones es definir y gestionar la política monetaria.
+B. La literatura económica y la evidencia internacional señalan que la comunicación es una pieza crítica para la política monetaria, en el tanto puede mejorar la previsibilidad por parte de los agentes económicos sobre la orientación de las acciones del Banco Central y, con ello, llevar a que las expectativas de esos agentes converjan con las del Banco Central.
+C. En esa línea, esta Junta Directiva definió como uno de los objetivos del Plan Estratégico 2020-2023, aprobado en el artículo 3 del acta de la sesión 5891-2019, del 23 de agosto de 2019, "fortalecer el proceso de comunicación para facilitar el cumplimiento de los objetivos del Banco y aumentar su transparencia". La vigencia de este Plan fue extendida hasta el 2024, en el artículo 7 del acta de la sesión 6137-2023, del 24 de agosto de 2023.
+Este objetivo reconoció que una mejor comunicación con el público fortalece la transmisión de la política monetaria y contribuye a la formación de las expectativas de mercado, lo cual es fundamental para promover la transparencia y la rendición de cuentas del Banco Central y con ello, su credibilidad.
+D. En el artículo 9 del acta de la sesión 5914-2020, del 29 de enero de 2020, esta Junta Directiva acordó:
+a. Que a partir del 2020 realizaría ocho reuniones de política monetaria al año, con un intervalo aproximado de seis semanas entre cada reunión. Agregó que, si las condiciones lo ameritan, podría realizar reuniones adicionales.
+b. Que con posterioridad a cada reunión publicaría un comunicado sobre la decisión de política monetaria, que presenta la visión de esta Junta Directiva sobre la evolución reciente y esperada de la inflación y de los factores que la determinan.
+E. Además, en esa ocasión (sesión 5914-2020) decidió publicar con antelación el calendario de reuniones para el 2020. Entre otros, consideró que anunciarlo anticipadamente permite reducir la incertidumbre en los mercados financieros sobre cuándo el Banco Central revisará su postura de política monetaria, lo que favorece el proceso de planeación y la toma de decisiones de los agentes económicos. Esta medida formó parte de los esfuerzos para fortalecer la comunicación.
+Así, desde el 2020 se publica anticipadamente este calendario anual, al igual que lo hacen diversos bancos centrales, particularmente aquellos que aplican un esquema monetario de metas de inflación.
+dispuso:
+En el 2024 la Junta Directiva del Banco Central de Costa Rica decidirá y comunicará el nivel de la Tasa de Política Monetaria (TPM) en las siguientes fechas: 18 de enero, 21 de marzo, 25 de abril, 20 de junio, 18 de julio, 19 de setiembre, 17 de octubre y 19 de diciembre.
+Es claro que, si las circunstancias así lo demandan, la Junta Directiva podrá revisar el nivel de la TPM fuera de las fechas antes indicadas.
