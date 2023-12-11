@@ -1,0 +1,2 @@
+Artículo 29.-Inventario físico anual: la persona a cargo de la Administración de la Bodega de Suministros, en coordinación con las demás personas funcionarias de esa Unidad de Adquisiciones y Contrataciones, efectuará un inventario físico total, de los bienes que se custodian en la Bodega de Suministros al menos una vez al año.
+El inventario implicará el conteo de cada uno de los bienes existentes en la Bodega de Suministros y la comparación de los resultados con la información contenida en el Sistema de Registro y Control de bienes de bodega.

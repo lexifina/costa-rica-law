@@ -1,0 +1,9 @@
+Artículo 11.-Funciones de las otras dependencias del IFAM: corresponderá a las personas titulares de las dependencias, conforme la distribución de funciones y responsabilidades existentes lo siguiente:
+a. Designar a la persona funcionaria autorizada para solicitar y retirar los bienes de la bodega de suministros, así como emitir el visto bueno autorizando los requerimientos periódicos de bienes. En caso de ausencia de la persona asignada deberá comunicar el nombre de quien la sustituirá.
+b. Revisar que la solicitud de materiales que se realiza sea congruente con las necesidades reales del área de manera que no se generen desperdicios por materiales que se vuelven obsoletos.
+c. Controlar que se requiriera en el horario establecido, y comunicado por medio de directrices, las requisiciones de materiales.
+d. Colaborar con la Unidad de Adquisiciones y Contrataciones en el levantamiento del inventario de bienes de las bodegas de cada dependencia.
+e. Establecer los controles de custodia y entrega de los bienes de la dependencia.
+f. Entregar a toda persona que ingrese a laborar a la dependencia, por nombramiento o por préstamo bajo convenio u otro tal como pasantes, prácticas profesionales entre otros, los suministros necesarios para el cumplimiento de sus funciones.
+g. Realizar la entrega de los materiales que se considere tienen en exceso, y que se encuentren en buen estado, con el fin de ingresarlos al inventario evitando el desperdicio y deterioro.
+Las personas titulares de cada unidad administrativa serán las responsables de la administración de los bienes institucionales que sean asignados a sus respectivas dependencias, pudiendo delegar dicha función, aunque no la responsabilidad, que será compartida y proporcional con el funcionario o funcionaria, por los daños que se puedan producir por la sustracción o daño anormal.

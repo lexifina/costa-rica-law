@@ -1,0 +1,2 @@
+Transitorios
+Transitorio I.-Dentro del plazo de un año contado a partir de la publicación de este Reglamento, la Unidad de Tecnologías de Información deberá realizar los ajustes que se requieran en el Sistema de Registro y Control de bienes de bodega, a fin de brindar la plataforma necesaria para implementar las disposiciones de este reglamento, así como una administración más precisa y expedita de los bienes institucionales.

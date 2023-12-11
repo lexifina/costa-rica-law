@@ -1,0 +1,1 @@
+Transitorio II.-Mientras se realizan los ajustes en el Sistema de Registro y Control de bienes de bodega, la Unidad de Adquisiciones y Contrataciones y las diferentes dependencias, deberán confeccionar los procedimientos que en forma manual les permita llevar los controles establecidos en este Reglamento.

@@ -1,0 +1,3 @@
+CAPÍTULO V
+Control de Bienes
+Artículo 18.-Entrega de los bienes: la entrega de los bienes deberá quedar formalizada por medio del formulario de requisición generado por el Sistema de Registro y Control de bienes de bodega, el cual contendrá toda la información relativa a los bienes requeridos: cantidad solicitada, descripción de los bienes, código del bien y unidad de medida, así como el nombre de la dependencia institucional que utilizará los bienes. La requisición deberá ser aprobada electrónicamente por la persona que la confecciona, la persona encargada de dependencia que realiza el requerimiento y la persona de la Unidad de Adquisiciones y Contrataciones administradora de la bodega de suministros.

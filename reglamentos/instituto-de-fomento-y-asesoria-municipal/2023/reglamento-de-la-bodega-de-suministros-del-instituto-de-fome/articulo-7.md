@@ -1,0 +1,1 @@
+Artículo 7º-Coordinación: la Unidad de Adquisiciones y contrataciones, en coordinación con las demás dependencias, en lo que corresponda a cada una de ellas, son las responsables de coordinar todas las actividades relacionadas con el control y la administración de los bienes del IFAM, conforme con las regulaciones en este reglamento se disponen.

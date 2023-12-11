@@ -1,0 +1,1 @@
+Artículo 21.-Registro de las requisiciones: la persona a cargo de la Administración de la Bodega de Suministros, previo a la entrega de los bienes, registrará las salidas en el Sistema de Registro y Control de bienes de bodega.

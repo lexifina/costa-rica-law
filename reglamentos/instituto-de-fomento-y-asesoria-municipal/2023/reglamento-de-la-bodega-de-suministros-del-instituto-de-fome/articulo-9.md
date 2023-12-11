@@ -1,0 +1,22 @@
+Artículo 9º-Funciones de la persona a cargo de la Administración de la Bodega de Suministros:
+a. Cumplir o hacer cumplir las disposiciones contenidas en este Reglamento y aquellas otras normas de carácter técnico y administrativo que complementariamente se hayan establecido o se establezcan.
+b. Mantener la Bodega de Suministros en estricto orden y aseo, evitando en lo posible que se produzca suciedad o deterioro y eliminar del área de bodega lo que resulte inútil para la ejecución de las funciones.
+c. Velar por la protección, seguridad y conservación de los bienes.
+d. Mantener al día el pago de la póliza de fidelidad respectiva.
+e. Reportar a la Persona titular de la Unidad de Adquisiciones y Contrataciones sobre la presencia de riesgos o potenciales riesgos que puedan atentar contra la seguridad del personal, salvaguarda de los bienes y la seguridad e higiene en la Bodega de Suministros.
+f. Remitir las respectivas denuncias por robo de bienes de la Bodega de Suministros al Organismo de Investigación Judicial (O.I.J), previo comunicado a la Persona titular de la Unidad de Adquisiciones y Contrataciones y determinación del costo/beneficio.
+g. Suministrar en forma ágil y oportuna los bienes que sean formalmente requeridos a través de las personas autorizadas; verificando que se cumpla con las formalidades del caso, de acuerdo con los formularios establecidos para tal fin.
+h. Efectuar las entradas y salidas de los bienes y sus registros, en el Sistema de Registro y Control de bienes de bodega conforme a los procedimientos establecidos en el presente reglamento y demás documentos de aplicación.
+i. Mantener permanentemente actualizados los registros de existencias.
+j. Informar a la Persona titular de la Unidad de Adquisiciones y Contrataciones, sobre saldos de bienes que se reflejen en el inventario y proponer los correspondientes ajustes en la programación de adquisiciones, sea porque los bienes no tienen movimiento y existen saldos suficientes o porque se incrementó el movimiento de estos comprometiendo la disponibilidad futura.
+k. Recomendar a la Persona titular de la Unidad de Adquisiciones y Contrataciones, las modificaciones presupuestarias respectivas sean para reforzar las partidas o para liberar recursos.
+l. Trasladar a la Persona titular de la Unidad de Adquisiciones y Contrataciones para su trámite de revisión y aprobación correspondiente, los documentos a través de los cuales se efectúan las entradas, salidas, cargos directos, ajustes y cualquier otro movimiento que se realice en la Bodega de Suministros.
+m. Realizar, en coordinación con las demás personas funcionarias de la Unidad de Adquisiciones y Contrataciones, el levantamiento de los inventarios físicos selectivos o generales de la Bodega de Suministros y de las demás áreas en que las dependencias custodian los bienes.
+n. Realizar la respectiva conciliación de los inventarios físicos generales contra la que se refleja en el Sistema de Registro y Control de bienes de bodega.
+o. Gestionar, en forma oportuna, las acciones que le corresponden, de manera que su actuar no ocasione atrasos en el registro de la recepción definitiva de bienes y en el trámite de pago.
+p. Despachar los bienes y la Bodega de Suministros, de acuerdo con el método de registro "Primero en entrar, primero en salir" y llevar el control de la fecha de vencimiento de los bienes, de forma que se despachen con prioridad aquellos cuya fecha de vencimiento esté más próxima.
+q. Revisar la razonabilidad de la cantidad de suministros requerida por las dependencias, conforme el histórico de requerimientos, en caso de que no sea proporcional a solicitudes anteriores deberá revisar la justificación incluida por la dependencia solicitante. En caso de que no se haya incluido una justificación podrá ajustar la cantidad requerida.
+r. Realizar las acciones que correspondan, en congruencia con lo establecido en el presente reglamento, en cuanto a aquellos bienes que no tienen movimiento durante un periodo de un año, a efecto de evitar su deterioro, daño u obsolescencia durante su custodia.
+s. Recomendar al Encargado (a) de la Unidad la "Declaratoria de Bien en Desuso (obsoleto) o Mal Estado", conforme a los procedimientos establecidos en este Reglamento.
+t. Identificar con un rótulo los estantes de la bodega con el código de los bienes ubicados en ellos.
+u. Presentar los informes que sus superiores requieran para la toma de decisiones.

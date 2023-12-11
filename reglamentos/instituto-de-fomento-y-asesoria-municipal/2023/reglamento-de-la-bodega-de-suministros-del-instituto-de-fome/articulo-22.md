@@ -1,0 +1,2 @@
+Artículo 22.-Entrega de bienes: la persona a cargo de la Administración de la Bodega de Suministros deberá efectuar el conteo y revisión minuciosa, a fin de verificar que los bienes que se entreguen coincidan con los que se indican en la requisición y procederá a preparar la entrega de los bienes, completará ésta en el Sistema de Registro y Control de bienes de bodega y procederá a su entrega.
+La persona autorizada para retirar los bienes deberá verificar la entrega de los materiales, consignando la recepción en los formularios habilitados para tal efecto.

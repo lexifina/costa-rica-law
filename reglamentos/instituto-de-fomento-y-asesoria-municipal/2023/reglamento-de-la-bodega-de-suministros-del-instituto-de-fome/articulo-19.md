@@ -1,0 +1,1 @@
+Artículo 19.-Periodo de confección de requisiciones: la persona autorizada en cada dependencia para realizar las requisiciones deberá confeccionarlas conforme la periodicidad establecida y comunicada previamente, por medio del Sistema de Registro y Control de bienes de bodega, debiendo solicitar únicamente las cantidades que realmente necesite sin tener existencias en exceso.

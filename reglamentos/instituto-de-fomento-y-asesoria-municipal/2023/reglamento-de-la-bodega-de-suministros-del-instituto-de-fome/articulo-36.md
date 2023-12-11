@@ -1,0 +1,2 @@
+Artículo 36.-Custodia y responsabilidad por los bienes: todas las personas que custodian los bienes requeridos por cada dependencia asumen plena responsabilidad por su uso, custodia y mantenimiento, además tienen la obligación de reportar a la persona titular de la dependencia respectiva el daño anormal, extravío, hurto o robo de los bienes custodiados.
+El no proceder con la respectiva denuncia compromete la responsabilidad administrativa y civil de la persona funcionaria que incumple.

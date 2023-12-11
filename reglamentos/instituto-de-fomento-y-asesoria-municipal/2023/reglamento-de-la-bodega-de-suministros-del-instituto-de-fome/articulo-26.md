@@ -1,0 +1,2 @@
+Artículo 26.-Ajustes en el sistema: cuando se generen errores en cantidades o precios en el registro de una entrada o una salida de bienes en el Sistema de Registro y Control de bienes de bodega, la persona a cargo de la Administración de la Bodega de Suministros deberá efectuar, en el momento que lo detecte las acciones necesarias para corregir tal error.
+La persona a cargo de la Administración de la Bodega de Suministros, por ningún motivo podrá efectuar ajustes sin seguir los procedimientos establecidos en el presente reglamento.

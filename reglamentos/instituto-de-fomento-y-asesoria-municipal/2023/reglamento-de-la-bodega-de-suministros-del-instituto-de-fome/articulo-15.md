@@ -1,0 +1,1 @@
+Artículo 15.-Estimación de consumo de nuevos bienes: la persona titular de la dependencia solicitante velará porque las estimaciones del consumo de los suministros que está solicitando de la Bodega de Suministros, hayan sido adecuadamente realizadas considerando para ello la caducidad del bien y cualquier otro factor relacionado con el deterioro de estos.

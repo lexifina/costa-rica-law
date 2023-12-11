@@ -1,0 +1,1 @@
+Artículo 27.-Levantamiento de inventario en las dependencias: la Unidad de Adquisiciones y Contrataciones tendrá la facultad de fiscalizar la existencia de materiales en las diferentes Dependencias del IFAM y podrá realizar inventarios cuando lo estime conveniente, para lo cual deberá coordinar con las dependencias respectivas el día y hora en que realizará dicho inventario.
