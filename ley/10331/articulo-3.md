@@ -12,3 +12,4 @@ PUESTO CLASE
 101 ASAMBLEA LEGISLATIVA
 PUESTO CLASE
 000147 SUBDIRECTOR DE DEPARTAMENTO")
+(Modificado por el artículo 1° del decreto ejecutivo N° 44300 del 30 de noviembre de 2023)
