@@ -1,0 +1,1 @@
+Artículo 21.-Políticas relacionadas. Este Reglamento se vincula directamente con las políticas establecidas en el Plan de Conservación, Desarrollo y Seguridad Vial Cantonal de la Municipalidad de Poás.

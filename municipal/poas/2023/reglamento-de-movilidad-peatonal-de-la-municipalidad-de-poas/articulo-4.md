@@ -1,0 +1,1 @@
+Artículo 4º-Seguimiento. Corresponde al Departamento de Gestión Vial atender, gestionar y dar seguimiento al presente Reglamento, así como a las quejas de los usuarios con relación a lo dispuesto en éste, para lo cual, deberá coordinar con las dependencias municipales correspondientes.
