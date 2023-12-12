@@ -29,3 +29,4 @@ Reglamento a la Ley de Régimen de Zonas Francas
 | 14 | 2021-08-11 | Decreto Ejecutivo 43153 (2021-08-11) |
 | 15 | 2021-10-20 | Decreto Ejecutivo 43300 (2021-10-20) |
 | 16 | 2023-02-21 | Decreto Ejecutivo 43934 (2023-02-21) |
+| 17 | 2023-12-12 | Decreto Ejecutivo 44447 (2023-12-12) |
