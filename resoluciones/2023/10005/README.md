@@ -14,3 +14,4 @@ Opinión consultiva solicitada por el Consejo de Directores institucional en rel
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-12-12 | la propia norma |
+| 2 | 2023-12-12 | Resolución 10121 (2023-12-07) |
