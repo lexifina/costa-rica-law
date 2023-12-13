@@ -1,0 +1,3 @@
+Artículo 17.- Principio de Confidencialidad. El personal encargado de la gestión del equipo no intrusivo debe suscribir con los Operadores un convenio de confidencialidad previamente aprobado por las autoridades competentes.
+Cada vez que exista una modificación en el personal de los operadores, deberán informar a dichas autoridades y mantener estos registros actualizados. Queda prohibido que personal que no haya sido autorizado previamente por las autoridades supra citadas presten el servicio de control no intrusivo.
+(Así adicionado por el artículo 2° del decreto ejecutivo N° 44362 del 13 de diciembre del 2023)

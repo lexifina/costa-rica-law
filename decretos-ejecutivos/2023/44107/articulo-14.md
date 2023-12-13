@@ -1,2 +1,2 @@
-Artículo 14.- Vigencia. Rige a partir de su publicación.
-Dado en la Presidencia de la República. San José, a los doce días del mes de julio del dos mil veintitrés.
+Artículo 14. Autoridades competentes representadas en el CIIO: La participación de los funcionarios de las autoridades competentes representadas en el CIIO, se mantiene conforme los requerimientos de recurso humano establecidas en el ordenamiento jurídico para llevar a cabo las competencias dadas a cada una de estas autoridades.
+(Así adicionado por el artículo 2° del decreto ejecutivo N° 44362 del 13 de diciembre del 2023)

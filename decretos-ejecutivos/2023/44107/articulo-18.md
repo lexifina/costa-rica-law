@@ -1,0 +1,2 @@
+Artículo 18.- Principios de Buena Fe, Eficiencia y Eficacia e lnterés Superior. Para la adecuada implementación del presente reglamento, se requiere de comunicación fluida y coordinación constante entre operadores y las autoridades competentes, quienes deberán actuar de buena fe y con altos estándares de eficiencia y efectividad en el cumplimiento del servicio de controles no intrusivos prestados, en el marco de la buena fe y en aras de proteger el interés público.
+(Así adicionado por el artículo 2° del decreto ejecutivo N° 44362 del 13 de diciembre del 2023)

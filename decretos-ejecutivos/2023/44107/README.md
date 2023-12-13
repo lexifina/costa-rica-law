@@ -14,3 +14,4 @@ Reglamento para la operación de los sistemas de controles de inspección no int
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-07-19 | la propia norma |
+| 2 | 2023-12-13 | Decreto Ejecutivo 44362 (2023-12-13) |
