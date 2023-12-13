@@ -1,4 +1,3 @@
-Artículo 14.-Inversión en el Mercado Nacional. Las inversiones en el mercado nacional podrán realizarse tanto en el mercado primario como en el secundario, directamente o a través de:
-a. Popular Valores o los puestos de bolsa aprobados por la Comisión de Inversiones, autorizados y regulados por la SUGEVAL.
-b. Popular Sociedad de Fondos de Inversión o las sociedades de fondos de inversión aprobados por la Comisión de Inversiones, autorizados y regulados por la SUGEVAL.
-En igualdad de condiciones, se escogerá al proveedor perteneciente al Conglomerado.
+Artículo 14.-Inversiones en mercados internacionales. Las inversiones en el mercado internacional se realizarán conforme a las disposiciones normativas aprobadas por la Junta Directiva Nacional, y se podrán realizar a través de cualquier Puesto de Bolsa, que ofrezca las mejores condiciones, en cuanto a oportunidades de inversión, y a riesgo y rentabilidad neta para los intereses del Conglomerado.
+Para formalizar una inversión internacional, será necesario: Contar con la aprobación de la a Comisión de Inversiones.
+Tomar en cuenta la tolerancia al riesgo de este tipo de instrumento, así como las necesidades futuras de capital para el logro de los objetivos. Plantear una estrategia de inversión, la cual deberá ser validada con los criterios del área de riesgo, buscando un adecuado balance entre riesgo, rentabilidad y liquidez.

@@ -5,4 +5,4 @@ c. Estar adscrito a uno de los Custodios Globales acreditados por la SUGEVAL.
 d. Contar con al menos quince años de experiencia en la prestación de servicios de custodia.
 e. Contar con la posibilidad de abrir y administrar cuentas que a su vez permitan la asignación de valores a nombre de los fondos administrados, cuyos registros estén actualizados diariamente.
 f. Prestar el servicio de custodia con fundamento en un contrato escrito.
-Los valores custodiados pertenecientes al Conglomerado Financiero del Banco Popular no se podrán utilizar para garantizar otras operaciones financieras, al menos que exista una autorización fundada por parte la Comisión.
+Los valores custodiados pertenecientes al Conglomerado Financiero del Banco Popular no se podrán utilizar para garantizar otras operaciones financieras, al menos que exista una autorización fundada por parte laComisión.

@@ -1,8 +1,2 @@
-Artículo 18.-Mecanismos de control de riesgos. El control de riesgo en mercados internacionales estará definido por los instrumentos de inversión definidos en el presente Reglamento.
-Para el caso de los ETF, la Dirección Corporativa de Riesgo definirá los indicadores mínimos requeridos, entre los cuales se deben considerar los siguientes:
-· Valor en riesgo internacional
-· Valor en riesgo condicional internacional (CVAR)
-· Volatilidad de largo plazo
-· Volatilidad de corto plazo
-· Tracking Error
-Estos indicadores se presentarán como parte del seguimiento periódico y se incluirán en el informe de resultados de ganancias y pérdidas obtenidas por la gestión activa de estos instrumentos. La responsabilidad de dicho control recaerá en la División de Tesorería Corporativa.
+De las inversiones
+Artículo 18.-Inversiones autorizadas. Todo valor por adquirir debe estar autorizado para circular en una bolsa y tener al menos la escala de calificación de riesgo igual o superior a la de Costa Rica, emitida por una empresa calificadora de riesgo debidamente autorizada para operar en el mercado respectivo. No obstante, en el mercado local se podrá invertir en los valores indicados en el artículo 10 de la Ley Reguladora del Mercado de Valores.
