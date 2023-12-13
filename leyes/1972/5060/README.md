@@ -1,6 +1,6 @@
 # Ley General de Caminos Públicos
 
-Ley N° 5060 del 1972-08-22. SINALEVI, ficha 38653: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=38653&param2=135483&param3=1>.
+Ley N° 5060 del 1972-08-22. SINALEVI, ficha 38653: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=38653&param2=138745&param3=1>.
 
 Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit, fechada el día en que entró en vigor):
 
@@ -12,3 +12,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 4 de 7 | 2012-11-28 | Sala Constitucional, resolución 16629 (2012-11-28) | 2012-11-28 |
 | 5 de 7 | 2019-12-20 | Ley 9789 | 2019-12-09 |
 | 6 de 7 | 2023-04-12 | Ley 10343 | 2023-03-29 |
+| 7 de 7 | 2023-12-13 | Ley 10395 | 2023-11-14 |
