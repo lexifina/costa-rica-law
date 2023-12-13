@@ -1,0 +1,1 @@
+Artículo 16.-En caso de que el funcionario o funcionaria labore los días de descanso, feriados o asuetos, la Municipalidad reconocerá un pago adicional de la jornada ordinaria que se trabaje, si sobrepasa de la jornada ordinario se cancelará lo correspondiente de forma doble.

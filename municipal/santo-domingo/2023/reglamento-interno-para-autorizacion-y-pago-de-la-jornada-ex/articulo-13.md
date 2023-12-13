@@ -1,0 +1,1 @@
+Artículo 13.-La jornada extraordinaria, por su propia naturaleza, solamente procede una vez concluida la jornada ordinaria ya sea antes o después del horario de trabajo establecido, siempre que se respeten los límites que regula el presente Reglamento.

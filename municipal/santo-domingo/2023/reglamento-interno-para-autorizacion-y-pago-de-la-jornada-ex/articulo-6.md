@@ -1,0 +1,3 @@
+Artículo 6º-La Dirección o Jefatura deberá detectar que los montos asignados para pago de horas extras del área están próximos a agotarse, y tomar las medidas precautorias correspondientes.
+Empero, esto no exime a las dependencias de la responsabilidad que les concierne sobre la verificación de existencia de contenido presupuestario previo a toda autorización que emitan para laborar jornada extraordinaria.
+No se podrá autorizar a ningún funcionario laborar en jornada extraordinaria, si no existe contenido presupuestario suficiente y disponible para respaldar su pago, tampoco podrá utilizar la partida de tiempo extraordinario de otro departamento cuando no hubiere hecho la previsión respectiva.

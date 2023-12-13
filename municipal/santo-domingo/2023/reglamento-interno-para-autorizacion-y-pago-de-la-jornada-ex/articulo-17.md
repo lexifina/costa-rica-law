@@ -1,0 +1,1 @@
+Artículo 17.-Si un funcionario cuenta con sobre sueldo por "disponibilidad", se deberá cancelar de igual manera las horas extraordinarias en las que haya sido requerido fuera de horario laboral merced a esa disponibilidad.
