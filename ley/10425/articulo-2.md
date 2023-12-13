@@ -1,0 +1,11 @@
+ARTÍCULO 2- Se adicionan el artículo 15 bis y el transitorio VIII a la Ley 2035, Ley Orgánica del Consejo Nacional de Producción, de 17 de julio de 1956. Los textos son los siguientes:
+Artículo 15 bis- Para asegurar el cuórum funcional de la Junta Directiva, en los casos de abstención del ministro de Agricultura y Ganadería, o de su representante, o de las ausencias temporales de un miembro permanente cuya designación corresponda al Poder Ejecutivo, el Consejo de Gobierno nombrara a un miembro suplente por un periodo de dos años, prorrogable por un plazo igual. Dicho miembro suplente será de libre remoción y no podrá estar sujeto a relación de empleo o jerarquía dentro del Consejo Nacional de Producción (CNP), del Ministerio de Agricultura y Ganadería (MAG) ni de ninguna institución del Gobierno central.
+El miembro suplente asistirá a las sesiones con derecho a voz y voto únicamente cuando concurra alguna de las siguientes situaciones:
+a) Cuando algún miembro propietario cuya designación corresponda al Poder Ejecutivo no asista a la sesión.
+b) Cuando el ministro de Agricultura y Ganadería, o su representación, se abstengan de los asuntos relacionados con la administración y gobierno de la Fábrica Nacional de Licores, de acuerdo con lo estipulado en el artículo 25 de la presente ley.
+c) Aquella situación en la que el reglamento de la Junta Directiva del Consejo Nacional de Producción así lo establezca.
+En los demás supuestos, el miembro suplente solo tendrá derecho a voz. Deberá asistir regularmente a las sesiones y devengará la dieta correspondiente.
+TRANSITORIO VIII-EI primer miembro suplente de la Junta Directiva, que refiere el artículo 15 bis de la presente ley, será nombrado en un plazo no mayor a un mes calendario a partir de la entrada en vigencia de la presente ley; tomará posesión de su cargo ocho días después de su juramentación, pudiendo permanecer en el hasta seis meses después de la finalización del período constitucional de la administración vigente o ser removido antes del cumplimiento del plazo.
+Rige a partir de su publicacion.
+Dado en la Presidencia de la República, San José, a los catorce días del mes de noviembre del año dos mil veintitrés.
+EJECÚTESE Y PUBLÍQUESE.
