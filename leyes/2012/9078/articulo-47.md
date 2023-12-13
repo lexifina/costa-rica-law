@@ -1,7 +1,7 @@
-ARTÍCULO 47.- Causas para impedir el ingreso o desabordar pasajeros
-Los conductores de los vehículos destinados al transporte público, así como los oficiales de tránsito y las demás autoridades de policía quedan autorizados para impedir el ingreso o exigir el retiro de los pasajeros que se encuentren dentro del vehículo, cuando se presenten las siguientes condiciones:
+Artículo 47- Causas para impedir el ingreso o desabordar pasajeros. Los conductores de los vehículos destinados al transporte público, así como los oficiales de tránsito y las demás autoridades de policía quedan autorizados para impedir el ingreso o exigir el retiro de los pasajeros que se encuentren dentro del vehículo, cuando se presenten las siguientes condiciones:
 a) Que el pasajero consuma alcohol o cualquier tipo de droga prohibida dentro de las unidades de transporte público o se encuentre en evidente estado de ebriedad o bajo los efectos de estas.
-b) Que el pasajero porte objetos punzocortantes, armas no autorizadas, materiales explosivos, peligrosos o animales, exceptuando los animales de asistencia para personas discapacitadas.
+b) Que el pasajero porte objetos punzocortantes, armas no autorizadas, materiales explosivos, peligrosos o animales, exceptuando los animales de asistencia para personas con discapacidad y los casos previstos en el artículo 66 de la Ley 7969, Ley Reguladora del Servicio Público de Transporte Remunerado de Personas en Vehículos en la Modalidad Taxi, de 22 de diciembre de 1999.
+(Así reformado el inciso anterior por el artículo 1° de la Ley para la protección del taxista ante la actual crisis sanitaria, económica y social, N° 10387 del 14 de noviembre de 2023)
 c) Que el pasajero profiera expresiones injuriosas o groseras, o promueva riñas.
 d) Que el pasajero arroje objetos de cualquier tipo a la vía pública, derechos de vía, o en el interior del vehículo.
 e) Que el pasajero cause daños al vehículo o utilice los dispositivos internos de forma inadecuada.
