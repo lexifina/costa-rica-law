@@ -1,0 +1,1 @@
+Artículo 2º-Objetivo. Regular el funcionamiento interno de la Junta Directiva para propiciar una gestión eficiente y eficaz, adoptando principios y buenas prácticas para la gobernabilidad de la ESPH S.A.

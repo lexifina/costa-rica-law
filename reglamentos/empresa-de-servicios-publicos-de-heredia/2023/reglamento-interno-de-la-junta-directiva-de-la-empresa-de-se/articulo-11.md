@@ -1,0 +1,5 @@
+CAPÍTULO TERCERO
+De las sesiones y las actas
+Artículo 11.-Lugar y día de las sesiones.
+La Junta Directiva se reunirá en la sede central de la sociedad situada en calle 10, avenida 14 de la ciudad de Heredia, o en el lugar que ésta acuerde previamente, o de forma virtual, de conformidad con lo dispuesto en los artículos 52 y 53 de la Ley General de la Administración Pública (así reformados mediante Ley N° 10379. Celebrará sesión ordinaria los días lunes de cada semana a las 18:00 horas y las Extraordinarias que se requiera para la debida atención de los negocios sociales. Las convocatorias se harán de acuerdo a lo establecido en el artículo 15 de este reglamento. Todas las sesiones se realizarán fuera de la jornada ordinaria laboral conforme lo establece el Artículo 17 de la Ley N°8422 - Ley Contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública.
+Las sesiones iniciarán a la hora señalada en la convocatoria, pero si no estuvieren presentes todos los directores, el presidente podrá dar un tiempo de espera de quince minutos, cumplidos los cuales iniciará la sesión.
