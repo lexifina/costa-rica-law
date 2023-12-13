@@ -1,0 +1,2 @@
+Artículo 123 bis- Prohibición de carreras de vehículos automotores en las vías públicas. Se prohíbe la conducción de vehículos automotores en competencias de velocidad en las vías públicas.
+(Así adicionado por el artículo 1° de la Ley para regular la pérdida de la licencia como infracción de tránsito por la participación en carreras de vehículos automotores en las vías públicas, N° 10402 del 14 de noviembre de 2023)
