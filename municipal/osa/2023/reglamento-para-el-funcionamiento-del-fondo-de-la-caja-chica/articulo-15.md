@@ -1,0 +1,2 @@
+Artículo 15.-El encargado de caja chica con la emisión del vale deberá entregar al funcionario una constancia por la retención del 2% amparados en el artículo N° 22 del Reglamento a la Ley del Impuesto Sobre la Renta N° 18445-H donde se indica que se debe retener el 2% sobre el monto total.
+No se reconocerá el importe por concepto de impuesto de ventas y rentas cuando este sea cancelado por el usuario del vale, ya que la Municipalidad según el artículo 9° de la Ley N° 9635 Fortalecimiento a las finanzas públicas es un ente no sujeto.

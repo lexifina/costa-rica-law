@@ -1,0 +1,1 @@
+Artículo 28.-El encargado de la caja chica, no podrá guardar documentos, efectivo o cheques de propiedad particular, en los lugares destinados para la custodia del dinero del fondo y por ningún motivo podrán suplir con su dinero, compras o pagos que correspondan a la Municipalidad.

@@ -1,0 +1,1 @@
+Artículo 7º-La actualización del fondo de caja chica y del monto de los vales se efectuarán en forma automática, de acuerdo con las necesidades de la administración. hasta el tope máximo indicado en la Ley General de Contratación Pública y su respectivo reglamento.

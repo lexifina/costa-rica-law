@@ -1,0 +1,2 @@
+Artículo 4º-Los formularios para el trámite de vales, deben emitirse un original debidamente numerado en forma consecutiva. Para realizar trámites por este medio, es necesario que cumplan con todos los requerimientos establecidos en la respectiva boleta.
+El Departamento de Tesorería, es la dependencia encargada de facilitar dichos documentos a los usuarios que realizan compras mediante este fondo.
