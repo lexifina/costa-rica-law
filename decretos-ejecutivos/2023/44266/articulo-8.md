@@ -1,0 +1,1 @@
+Artículo 8°-Se insta a las instituciones públicas o privadas, autónomas o semiautónomas, para realizar donaciones y aportes económicos, así como prestar todo tipo de colaboración al Servicio Fitosanitario del Estado, para atender esta emergencia fitosanitaria.

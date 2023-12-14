@@ -1,0 +1,1 @@
+Artículo 2°-Todo propietario u ocupante de predios a cualquier título, está obligado a denunciar la presencia de la plaga ante el Servicio Fitosanitario del Estado, así lo dispuesto en el artículo 14 de la Ley N° 7664, Ley de Protección Fitosanitaria.

@@ -1,0 +1,1 @@
+Artículo 7°-Para la ejecución del Plan de acción establecido en el artículo 5 del presente Decreto Ejecutivo, el Servicio Fitosanitario del Estado dispondrá de fondos del presupuesto ordinario durante los periodos 2023, 2024 y 2025.
