@@ -1,0 +1,1 @@
+ARTÍCULO 19. Control y fiscalización. La municipalidad a través de su cuerpo de inspectores, del área de Permisos de Construcción, del área de Patentes, de tránsito y Policía Municipal, según sus competencias, procederán a requerir el cumplimiento de las presentes disposiciones, sin demérito de las competencias del MOPT y otras autoridades.

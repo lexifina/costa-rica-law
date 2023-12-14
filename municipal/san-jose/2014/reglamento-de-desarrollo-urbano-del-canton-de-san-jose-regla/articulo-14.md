@@ -1,0 +1,1 @@
+ARTÍCULO 14. Deber de conservación. Los sujetos responsables de las instalaciones publicitarias, y en especial en el espacio público deben mantenerlas en condiciones de seguridad, salubridad, ornato público y decoro, realizando los trabajos y obras precisas para el cumplimiento de tales fines.

@@ -1,0 +1,1 @@
+ARTÍCULO 9. Altura máxima de la pantalla digital. Considerando el ángulo correspondiente a la agudeza visual, se puede establecer una altura máxima de la pantalla digital de hasta 15 m. para lograr que ésta sea visible y el mensaje legible.

@@ -1,0 +1,1 @@
+ARTÍCULO 25. Sobre el cobro por la licencia de publicidad exterior. La municipalidad se reserva el derecho de cobrar por la licencia de publicidad exterior, una vez establecido el marco legal que lo faculte y permita según las regulaciones que se emitan para ello.
