@@ -1,30 +1,26 @@
 SECCION III
 ZONAS DE USO COMERCIO Y SERVICIOS
-Artículo 8. Uso predominante. Las zonas comerciales y de servicios, tienen el propósito de concentrar las edificaciones del uso indicado. Se identifican tres tipos de estas zonas, a partir del uso históricamente establecido, del área del lote mínimo y los límites de barrio, establecidos en el Mapa de Barrios de los RDU.
-8.1. Zona Comercio y Servicios-1 (ZC-1). Corresponde a las radiales y corredores comerciales del cantón de San José, principalmente a lo largo de los ejes viales primarios y secundarios. La delimitación precisa de esta zona se encuentra en el Mapa de Zonificación de Uso del Suelo de los RDU. Se caracteriza por poseer lotes con un promedio de 650 m2.
-8.1.1. Propósito. En esta zona se busca desarrollar las actividades de comercio y servicios de alcance nacional y regional.
-8.1.2. Requisitos:
-a) Superficie mínima del lote: 400 m².
-b) Frente mínimo del lote: 15 m
-c) Retiro frontal: Ver Mapa de Retiros de los RDU
-d) Coeficiente de Aprovechamiento del Suelo: Ver Tabla de Valores en el art. 24 de RDG
-8.1.3 Actividades permitidas: Además de las actividades permitidas y permitidas con condicionantes en las zonas de uso residencial y en las zonas de uso mixto residencial-comercial, se permiten en ZC-1 las siguientes actividades: Fábrica de artesanías, bisuterías y similares; Fábrica de muebles, puertas y ventanas, ebanistería y carpintería en general; Terminal de autobuses; Taller de maquinaria industrial, equipo pesado, refrigeración, cocinas, lavadores y afines; Venta de repuestos de maquinaria pesada; Venta y distribución de licor al por mayor; Taller de enderezado y pintura; Taller automotriz (mecánico, muflas, baterías, frenos, fibras, embrague, electromecánico); Taller de auto decoración; Lavado de vehículos (lavacar); Estación de Servicio y Gasolinera; Lubricentro, cambio de llantas; Motel; Club nocturno, cabaret; Salón de baile, discoteca; Sala de masajes; Venta de repuestos para vehículos; Alquiler de menaje, enseres domésticos, toldos y similares; Venta al por menor de agroquímicos; Venta al por menor de artículos médicos y ortopédicos; Venta de vehículos livianos y motos; Alquiler de vehículos (rent a car); Litografía e Imprenta; Serigrafía; Tapicería; Bar, cantina, taberna; Centro de acopio para reciclaje; Sala de eventos; Droguería; Agencia de seguridad; Mercado y Supermercado; Laboratorio de radiología, patología y disección de cadáveres; Crematorio; Venta al por menor de artículos varios en tiendas no especializadas; Hospital; Clínica de Servicios Médicos con hospitalización.
-Se permiten los PYMES hasta un área máxima de 100 m2 de área útil, para las siguientes actividades: Industria de hierro y acero (forja, troqueles, moldes, precisión, torno, portones, estructuras de acero, tubos, varilla, soldadura, aluminio, laminado, hojalatería); Industria de productos textiles y prendas de vestir; Fábrica de calzado, bolsos, maletines y similares; Industria de papel y derivados; Industria química, farmacéutica, plástico y caucho (productos plásticos, caucho, agroquímicos, pinturas, farmacéuticos, productos de limpieza, cosméticos); Industria de productos alimenticios y bebidas. (Condicionante 11 de la Lista General de Actividades anexa a este reglamento.
-Se permiten con un área mayor de 500 m2 en vías locales y mayores de 1000 m2 en vías nacionales: Taller de maquinaria industrial, equipo pesado, refrigeración, cocinas, lavadores y similares, Depósito y venta de materiales para la construcción; Venta y distribución al por mayor de productos y artículos en general. (Condicionante 12 de la Lista General de Actividades anexa a este reglamento)
-8.2. Zona Comercio y Servicios-2 (ZC-2). Corresponde al centro actual del cantón de San José. La delimitación precisa de esta zona se encuentra en el Mapa de Zonificación de Uso del Suelo de los RDU. Se caracteriza por poseer lotes con un promedio de 430 m2.
-8.2.1. Propósito. En esta zona se busca desarrollar las actividades de comercio y servicios de alcance nacional.
-8.2.2. Requisitos:
-a) Superficie mínima del lote: 400 m².
-b) Frente mínimo del lote: 15 m
-c) Retiro frontal: Ver Mapa de Retiros de los RDU.
-d) Coeficiente de Aprovechamiento del Suelo: Ver Tabla de Valores en el art. 24 del RDG.
-8.2.3. Actividades permitidas: Además de las actividades permitidas en las zonas de uso residencial y zonas de uso mixto residencial-comercial, se permiten: Terminal de autobuses; Estacionamiento y central de taxi y porteo; Club nocturno, cabaret; Salón de baile, discoteca; Sala de masajes; Venta de repuestos para vehículos; Alquiler de menaje, enseres domésticos, toldos y similares; Venta de agroquímicos; Venta al por menor de artículos médicos y ortopédicos; Venta de vehículos livianos y motos; Alquiler de vehículos (rent a car); Litografía e Imprenta; Serigrafía; Tapicería; Bar, cantina, taberna; Centro de acopio para reciclaje; Sala de eventos; Droguería; Agencia de seguridad; Mercado y Supermercado; Laboratorio de radiología, patología y disección de cadáveres; Crematorio; Venta al por menor de artículos varios en tiendas no especializadas; Hospital; Clínica de Servicios Médicos (con hospitalización).
-Se permiten los PYMES hasta un área máxima de 100 m2 de área útil, para las siguientes actividades: Fábrica de artesanías, bisuterías y afines; Fábrica de muebles, puertas y ventanas, ebanistería y carpintería en general. (Condicionante 11 de la Lista General de Actividades anexa a este reglamento).
-8.3. Zona Comercio y Servicios-3 (ZC-3). Corresponde a los centros locales del cantón de San José, principalmente en los centros de distrito. La delimitación precisa de esta zona se encuentra en el Mapa de Zonificación de Uso del Suelo de los RDU.
-8.3.1 Propósito. En esta zona se busca desarrollar las actividades de comercio y servicios de alcance cantonal y distrital.
-8.3.2. Requisitos:
-a) Superficie mínima del lote: 250 m²
-b) Frente mínimo del lote: 10 m
-c) Retiro frontal: Ver Mapa de Retiros de los RDU.
-d) Coeficiente de Aprovechamiento del Suelo: Ver Tabla de Valores en el RDG.
-8.3.3. Actividades permitidas: Además de las actividades permitidas en las zonas de uso residencial y zonas de uso mixto residencial-comercial, se permiten: Terminal de autobuses; Estacionamiento y Central de taxi y porteo, Venta de repuestos para vehículos; Alquiler de menaje, enseres domésticos, toldos y similares; Venta al por menor de agroquímicos; Venta al por menor de artículos médicos y ortopédicos; Venta de vehículos livianos y motos; Alquiler de vehículos (ren a car); Litografía e Imprenta; Serigrafía; Tapicería; Bar, cantina, taberna; Centro de acopio para reciclaje; Sala de eventos; Droguería; Agencia de seguridad; Mercado y Supermercado; Laboratorio de radiología, patología y disección de cadáveres; Crematorio; Venta al por menor de artículos varios en tiendas no especializadas; Oficina administrativa Gubernamental; Oficinas de organizaciones o asociaciones; Oficina administrativa y de servicios varios; Oficina unipersonal de profesional liberal; Hospital; Clínica de Servicios Médicos (con hospitalización).
+ARTÍCULO 8. Propósito. Las zonas de comercio y servicio corresponden a las grandes concentraciones de actividad económica que se distribuyen en el cantón San José. Se distinguen tres zonas de comercio y servicios que están en función de la escala y del espacio geográfico al que sirven (ZC-1, ZC-2, ZC-3). Éstas se delimitan a partir del uso histórico; tendencias de mercado y ejes viales, que han impulsado la evolución de la actividad económica de estas zonas.
+8.1. Zona Comercio y Servicios 1 (ZC-1). Corresponde a las radiales y corredores comerciales del cantón San José, principalmente a lo largo de los ejes viales primarios y secundarios. La delimitación precisa de esta zona se encuentra en el Mapa “Zonificación de Uso de la Tierra del cantón San José”. Se caracteriza por poseer lotes con un promedio de 650 m2. En esta zona se busca desarrollar las actividades de comercio y servicios de alcance regional y cantonal.
+8.1.1. Requisitos.
+a. Superficie mínima del lote: 400 m².
+b. Frente mínimo del lote: 15 m
+c. Retiro frontal: Ver Mapa “Retiros del cantón San José”.
+d. Coeficiente de Aprovechamiento del Suelo: Ver Tabla 2 del Reglamento 1.
+8.1.2. Actividades permitidas. Ver Tabla 1 del Reglamento 2, “Lista General de Actividades y Zonificación con sus Condicionantes”, y documento conexo: “Clasificación de Actividades Económicas, Zonificación y Condicionantes para el cantón San José (CIIU4)”.
+8.2. Zona Comercio y Servicios 2 (ZC-2). Corresponde al centro actual del cantón San José.
+La delimitación precisa de esta zona se encuentra en el Mapa “Zonificación de Uso de la Tierra del cantón de San José”. Se caracteriza por poseer lotes con un promedio de 430 m2.
+En esta zona se busca desarrollar las actividades de comercio y servicios de alcance nacional y regional.
+8.2.1. Requisitos.
+a. Superficie mínima del lote: 400 m².
+b. Frente mínimo del lote: 15 m
+c. Retiro frontal: Ver Mapa “Retiros del cantón San José”.
+d. Coeficiente de Aprovechamiento del Suelo: Ver Tabla 2 del Reglamento 1.
+8.2.2. Actividades permitidas. Ver Tabla 1 del Reglamento 2, “Lista General de Actividades y Zonificación con sus Condicionantes”, y documento conexo: “Clasificación de Actividades Económicas, Zonificación y Condicionantes para el cantón San José (CIIU4)”.
+8.3. Zona Comercio y Servicios 3 (ZC-3). Corresponde a los centros locales del cantón de San José, principalmente en los centros de distrito. La delimitación precisa de esta zona se encuentra en el Mapa “Zonificación de Uso de la Tierra” de los RDU. En esta zona se busca desarrollar las actividades de comercio y servicios de alcance cantonal y distrital.
+8.3.1. Requisitos.
+a. Superficie mínima del lote: 250 m²
+b. Frente mínimo del lote: 10 m
+c. Retiro frontal: Ver Mapa “Retiros del cantón San José”.
+d. Coeficiente de Aprovechamiento del Suelo: Ver Tabla 2 del Reglamento 1.
+8.3.2. Actividades permitidas. Ver Tabla 1 del Reglamento 2, “Lista General de Actividades y Zonificación con sus Condicionantes”, y documento conexo: “Clasificación de Actividades Económicas, Zonificación y Condicionantes para el cantón San José (CIIU4)”.

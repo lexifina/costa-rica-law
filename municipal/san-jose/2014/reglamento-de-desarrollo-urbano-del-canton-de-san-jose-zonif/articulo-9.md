@@ -1,11 +1,9 @@
 SECCION IV
 ZONAS DE USO MIXTO INDUSTRIA - COMERCIO (ZMIC)
-Artículo 9. Definición: Son las zonas del cantón que fueron definidas como tales por el Reglamento de Zonas Industriales del Gran Área Metropolitana, las cuales se transforman a zonas mixtas de industria y comercio, con el propósito de estimular el cambio de la industria existente en estas zonas, hacia una más moderna, compatible con el ambiente urbano, vinculada a los servicios y con menos congestión vial.
-9.1. Requisitos
-a) Superficie mínima del lote: 400 m².
-b) Frente mínimo del lote: 15 m.
-c) Retiro frontal: 6 m.
-d) Coeficiente de Aprovechamiento del Suelo: Ver Tabla de Valores en el art. 24 del RDG.
-9.2. Actividades Permitidas: Además de las actividades permitidas en las zonas de uso comercial, con las excepciones del artículo 9.3 siguiente, se permiten: Planta tratamiento de aguas de alcance regional; Fábrica de productos de concreto y materiales para la construcción; Fábrica recicladora; Aserradero y depósito de madera; Industria de productos textiles y prendas de vestir; Fábrica de calzado, bolsos, maletines y similares; Industria de papel y derivados; Industria química, farmacéutica, plástico y caucho (productos plásticos, agroquímicos, pinturas, farmacéuticas, productos de limpieza, cosméticos); Industria de productos alimenticios y bebidas; Estacionamiento de contenedores y furgones; Terminal de transporte de carga; Estacionamiento de autobuses, con o sin plantel de mantenimiento; Depósito de chatarra y desechos al por mayor; Taller de contenedores, furgones y autobuses; Almacén Fiscal; Bodegas de almacenamiento y distribución; Almacén de depósito; Alquiler y venta de maquinaria, vehículos y equipo pesado; Depósito y venta de materiales para la construcción; Venta y distribución al por mayor de productos y artículos en general; Cementerio.
-9.3. Actividades no permitidas: Hospital; Clínica de Servicios Médicos (con hospitalización); Clínica de Servicios Médicos (consultorio médico); Museo, Teatro; Biblioteca; Instituto y Academia de Enseñanza; Centro Universitario Académico y Técnico; Centro de Enseñanza Secundaria académica y técnica; Centro de Enseñanza Primaria; Asilo, Albergue; Kinder; Guardería Infantil; Vivienda.
-En predios mayores a 3000 m2, que no colinden con Industria potencialmente peligrosas o contaminantes, podrán autorizarse, por parte de la Comisión Mixta MSJ- INVU, los desarrollos urbanísticos que incluyen estos usos, previa presentación del anteproyecto.
+ARTÍCULO 9. Propósito. Son las zonas del cantón que fueron definidas como tales por el Reglamento de Zonas Industriales del Gran Área Metropolitana, las cuales se transforman a zonas mixtas de industria y comercio, con el propósito de estimular el cambio de la industria existente en estas zonas, hacia una más moderna, compatible con el ambiente urbano, vinculada a los servicios.
+9.1. Requisitos.
+a. Superficie mínima del lote: 400 m².
+b. Frente mínimo del lote: 15 m.
+c. Retiro frontal: 6 m.
+d. Coeficiente de Aprovechamiento del Suelo: Ver Tabla 2 del Reglamento 1.
+9.2. Actividades Permitidas. Ver Tabla 1 del Reglamento 2, “Lista General de Actividades y Zonificación con sus Condicionantes”, y documento conexo: “Clasificación de Actividades Económicas, Zonificación y Condicionantes para el cantón San José (CIIU4)”.

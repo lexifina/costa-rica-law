@@ -15,3 +15,4 @@ Reglamento de Desarrollo Urbano del Cantón de San José. Zonificación de Uso d
 | --- | --- | --- |
 | 1 | 2014-02-11 | la propia norma |
 | 2 | 2016-09-27 | Reglamento municipal 22 (2016-09-27) |
+| 3 | 2023-12-14 | Reglamento municipal 0 (2023-12-21) |

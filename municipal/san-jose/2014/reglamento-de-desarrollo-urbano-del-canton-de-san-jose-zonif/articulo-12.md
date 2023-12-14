@@ -1,1 +1,1 @@
-Artículo 12. Obras no permitidas. No se permitirá ningún tipo de obra de construcción, movimiento de tierras o edificación que no esté en concordancia con los usos permitidos, enumerados en el artículo anterior.
+ARTÍCULO 12. Obras no permitidas. No se permitirá ningún tipo de obra de construcción, movimiento de tierras o edificación, que no esté en concordancia con los usos permitidos, enumerados en el artículo 11.

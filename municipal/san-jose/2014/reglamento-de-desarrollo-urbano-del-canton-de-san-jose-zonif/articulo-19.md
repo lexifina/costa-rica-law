@@ -1,0 +1,5 @@
+SECCION II
+MEDIDAS DE REGULACIÓN Y CONTROL SOBRE LA ZONIFICACIÓN DE
+USOS DE LA TIERRA
+ARTÍCULO 19. Áreas Ambientalmente Frágiles (AAF), Áreas de Protección de Ríos (APR) y Áreas de Amenaza Natural a Deslizamiento e Inundaciones (ANDI). Éstas se definen en los incisos 10.2.3., 10.2.3.1. y 10.2.3.2. del Reglamento 1, y deben ser aplicadas al Reglamento 2 en vista de que en la Zonificación de los Usos de la Tierra se presentan estas áreas. Se establece que previo a todo trámite urbanístico descrito en los RDU, se deben de consultar las mismas, a fin de asegurar que las autorizaciones cumplan con los parámetros técnico-ambientales establecidos; y de esta forma se puedan prevenir incidentes o eventos que se den sobre las inversiones.
+Estas áreas se encuentran delimitadas en los mapas: “Unidades Geográficas de Renovación para la Intervención Urbana del cantón San José”; “Zonas de Control Especial y de Renovación Urbana del cantón San José” y “Zonas de Amenazas a Deslizamientos e Inundaciones en el cantón San José”.

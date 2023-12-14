@@ -1,0 +1,4 @@
+SECCION VI
+ÁREAS PÚBLICAS (APU)
+ARTÍCULO 15. Propósito. Incluye las zonas del cantón de dominio e interés público que forman parte del derecho de vía, tales como: aceras, vías peatonales e isletas viales, servidumbres de servicios públicos (de infraestructura vial, sanitaria, pluvial, acueductos, eléctrica, telecomunicaciones, entre otros), los cuales se identifican mediante las siglas APU (Áreas Públicas). La ubicación de estas áreas se aprecia en el Mapa “Zonificación del Uso de la Tierra del cantón San José”.
+Estas áreas se delimitan en el Mapa “Zonificación de Usos de la Tierra del cantón San José”, no obstante, no aparecen en la Tabla 1 Lista General de Actividades y Zonificación con sus condicionantes, debido a que estos espacios por ser en su mayoría remanentes viales, no podrán utilizarse para ocupación residencial, comunales o usos económicos.
