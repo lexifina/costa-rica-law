@@ -1,2 +1,0 @@
-Artículo 4. Competencia para resolver.
-El Departamento Proveeduría, en lo no previsto en el presente Reglamento como órgano especializado en contratación pública, tendrá plena competencia para resolver, emitir los actos administrativos y tramitar los diferentes asuntos conforme a la Ley N°9986, Ley General de Contratación Pública y su Reglamento, salvo que la competencia o función sea asignada por norma expresa a otra instancia.
