@@ -15,3 +15,4 @@ Reforma Reglamento al inciso c) del artículo 14 bis de la Ley Orgánica del Ban
 | --- | --- | --- |
 | 1 | 2022-07-28 | la propia norma |
 | 2 | 2023-05-12 | Decreto Ejecutivo 44019 (2023-05-12) |
+| 3 | 2023-12-14 | Decreto Ejecutivo 44331 (2023-12-14) |
