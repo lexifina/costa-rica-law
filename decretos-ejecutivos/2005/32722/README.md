@@ -20,3 +20,4 @@ Reglamento a la Ley Nacional de Vacunación
 | 5 | 2020-10-02 | Decreto Ejecutivo 42638 (2020-10-02) |
 | 6 | 2021-03-10 | Decreto Ejecutivo 42889 (2021-03-10) |
 | 7 | 2022-12-07 | Decreto Ejecutivo 43815 (2022-12-07) |
+| 8 | 2023-12-14 | Decreto Ejecutivo 44357 (2023-12-14) |
