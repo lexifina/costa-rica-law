@@ -15,3 +15,4 @@ Reglamento para la asignación de la capacidad de pesca reconocida al Estado de 
 | --- | --- | --- |
 | 1 | 2022-01-14 | la propia norma |
 | 2 | 2022-11-28 | Decreto Ejecutivo 43811 (2022-11-28) |
+| 3 | 2023-12-14 | Decreto Ejecutivo 44337 (2023-12-14) |
