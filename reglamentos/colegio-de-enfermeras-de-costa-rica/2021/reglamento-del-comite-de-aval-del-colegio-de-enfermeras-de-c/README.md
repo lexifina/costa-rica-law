@@ -14,3 +14,4 @@ Reglamento del comité de aval del Colegio de Enfermeras de Costa Rica
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-12-15 | la propia norma |
+| 2 | 2023-12-14 | Reglamento 0 (2023-12-14) |

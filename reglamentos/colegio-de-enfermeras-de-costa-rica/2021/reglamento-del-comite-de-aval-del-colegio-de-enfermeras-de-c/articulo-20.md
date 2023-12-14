@@ -1,3 +1,4 @@
 Artículo 20.- Parámetro de prestigio para las publicaciones científicas. El parámetro para determinar la calidad para la concesión del aval de las publicaciones en revistas es el prestigio. El cual será entendido como:
-a) Ser publicado en una revista científica indexada.
-b) Ser una publicación relacionada a temas de salud, áreas del quehacer o saber de la enfermería o aplicables en el ejercicio profesional de la Enfermería.
+a. Contar con el código numérico de ocho cifras reconocido internacionalmente para la identificación de las publicaciones periódicas y recursos continuos (4), este es el Número Internacional Normalizado para Publicaciones Seriadas, o ISSN por sus siglas en inglés. Este identificador es para un recurso continuado que es editable a lo largo del tiempo en cualquier soporte. (3)
+b. Ser publicado en una revista científica indexada.
+c. Ser una publicación relacionada a temas de ciencias de la salud, áreas del quehacer, saber o interrelacionadas con enfermería o aplicables en el ejercicio profesional de la Enfermería.

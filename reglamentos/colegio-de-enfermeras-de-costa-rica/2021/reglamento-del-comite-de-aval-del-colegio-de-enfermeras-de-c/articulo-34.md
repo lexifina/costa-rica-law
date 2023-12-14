@@ -1,1 +1,1 @@
-Artículo 34.- A la o el solicitante del Aval, se le entregará una copia del proceso de verificación de calidad y concesión del aval, para lo que corresponda ante la Comisión Técnica de Enfermería.
+Artículo 34.- El Comité de Aval someterá al proceso de reconocimiento de puntaje por contribución al progreso científico y al desarrollo profesional de la enfermería, únicamente los atestados de los y las profesionales que se encuentren activos(as), licencia vigente y al día con sus obligaciones económicas con el Colegio de Enfermeras de Costa Rica.

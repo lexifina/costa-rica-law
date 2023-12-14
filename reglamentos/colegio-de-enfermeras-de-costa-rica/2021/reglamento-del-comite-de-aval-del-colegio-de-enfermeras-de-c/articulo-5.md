@@ -1,1 +1,1 @@
-Artículo 5°- Duración del nombramiento. El Comité de Aval será nombrada por un período de dos años, pudiendo reelegirse de manera total o parcial por períodos consecutivos, previo acuerdo de Junta Directiva.
+Artículo 5°- Duración del nombramiento. El Comité de Aval será nombrada por un período de dos años, pudiendo reelegirse por períodos consecutivos o de acuerdo con la designación de Junta Directiva.

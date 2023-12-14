@@ -1,2 +1,5 @@
 Artículo 53.- La concesión del Aval sobre una actividad de educación continua, no implica para el Colegio de Enfermeras de Costa Rica responsabilidad solidaria alguna con el organizador del evento.
-Vigencia. Rige a partir de su publicación en el Diario Oficial La Gaceta.
+Referencias
+1. Rivas-Castillo, C. Hacia una cultura de indexación de las revistas científicas. Revista Ciencia Jurídica y Política. [Internet]. 2020. [ citado 30 octubre 2023]; (12): 1-4. Disponible en http://portal.amelica.org/ameli/jatsRepo/446/4461920001/4461920001.pdf
+2. Rodríguez-Bustamante P., Báez-Hernández F. Epistemology of the nursing profession. [Internet]. 2020 [citado 20 de mayo 2022]; 14 (2): 14213. Disponible en: http://scielo.isciii.es/scielo.php?script=sci_arttext&pid=S1988-348X2020000200013&lng=e International Standard Serial Number. Manual ISNNCatalogación. [Internet]. 2015. [citado 30 de octubre 2023]. Disponible en: https://www.issn.org/wp-content/uploads/2017/03/ISSN-Manual_2015_SPA1.pdf3. International Standard Serial Number. ¿Qué es el número ISNN? [Internet]. [citado30 de mayo 2023]. Disponible en: https://www.issn.org/es/comprender-el-issn/que-es-elnumero-issn/
+4. SINABI. ¿Qué es la agencia costarricense del ISBN? [Internet]. [citado 30 de mayo 2023]. Disponible en https://www.sinabi.go.cr/bibliotecas/agencias%20isbnissn/Que%20es%20el%20ISBN.pdf

@@ -1,3 +1,3 @@
 Artículo 21.- Parámetro de prestigio para los libros. El parámetro para determinar la calidad para la concesión del aval de las publicaciones en formato de libro es el prestigio. El cual será entendido como:
-a) Contar con el código numérico reconocido internacionalmente para la identificación de las publicaciones seriadas, Número Internacional Normalizado de Publicaciones Seriadas, o ISSN por sus siglas en inglés, o bien, con International Standard Book Number, o ISBN por sus siglas.
-b) Ser una publicación relacionada a temas de salud, áreas del quehacer o saber de la enfermería o aplicables en el ejercicio profesional de la Enfermería.
+a. Contar con el código numérico de trece cifras para la identificación para las ediciones y reimpresiones de toda clase de libros y folletos que no sean publicaciones periódicas. (5) este es el Número Internacional Normalizado del Libro bien, o ISBN por sus siglas.
+b. Ser una publicación relacionada a temas de ciencias de la salud, áreas del quehacer, saber o interrelacionadas de la enfermería o aplicables en el ejercicio profesional de la Enfermería.

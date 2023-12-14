@@ -1,1 +1,2 @@
-Artículo 48.- El reconocimiento del aporte o contribución y su correspondiente puntaje no puede ser objetado por las Comisiones Técnicas de Enfermería, toda vez que su otorgamiento es competencia exclusiva del Colegio de Enfermeras de Costa Rica en los términos indicados en el presente reglamento.
+Artículo 48.- De las acciones recursivas para concesión de aval, aval previo asignación de puntaje por progreso científico, desarrollo profesional.
+En caso de que el Comité de Aval impruebe el aval, al interesado, al ser notificado podrá interponer recurso de revocatoria ante el Comité de Aval y el recurso de revocatoria con apelación en subsidio ante la Junta Directiva de acuerdo con los plazos establecidos por la Ley General de Administración Pública.
