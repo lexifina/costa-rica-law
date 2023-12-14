@@ -1,73 +1,39 @@
-Artículo 24. Área máxima de construcción (AMC). Es la cantidad máxima de metros cuadrados que es posible construir en un predio, se determina mediante la aplicación de dos fórmulas, dependiendo de la zona en donde se ubique la propiedad:
-a. Para propiedades o fincas ubicadas en Zonas Comerciales (ZC-1, ZC-2, ZC-3), Servicios Institucionales, Comunales o Gubernamentales, Industriales o Mixto Industria Comercio (ZMIC), la fórmula a utilizar es:
-(*)AMC= Área del lote *(CAS * 2.33)
-Siendo 2.33 el valor necesario que determina la altura óptima que se requiere en las zonas señaladas para lograr los objetivos propuestos en el Reglamento de Desarrollo Urbano; todo en el entendido que la altura máxima definitiva es la que señale Aviación Civil.
-(*) (Corregido mediante Fe de Erratas y publicada en La Gaceta N° 223 del 17 de noviembre de 2015, página 84. Anteriormente se indicaba: “AMC= Área del lote * CAS”)
-Donde CAS es el Coeficiente de Aprovechamiento del Suelo, cuyos valores se encuentran en la Tabla de Valores, que se detalla en este artículo.
-b. Para las zonas residenciales (ZR-1, ZR-2, ZR-3, ZR-4), y zonas mixtas residencia comercio (ZMRC) la fórmula a aplicar para obtener el AMC es:
-AMC = (Área del lote – Retiros)* AE
-Donde,
-AE corresponde a la Altura del Edificio, la cual se obtiene de la siguiente fórmula:
-AE = Derecho de vía + (antejardín o retiro oficial + retiro voluntario)*CA
-Considerando:
-- Derecho de vía como la suma de las medidas de la calzada, cordón caño, acera y áreas verdes o servidumbres existentes frente al predio.
-- Antejardín como el espacio comprendido entre la línea de propiedad y línea de construcción fijada, o exigida por la municipalidad; y
-- Retiro voluntario es el espacio abierto no construido adicional que el propietario deja a su criterio, comprendido entre el antejardín y la estructura a edificar.
-Y donde CA es el Coeficiente de Altura, cuyos valores se encuentran en la Tabla de Valores detallada a continuación:
-Tabla de Valores de los Coeficientes de Aprovechamiento del Suelo (CAS) y Coeficiente de Altura (CA):
-Coeficientes de Aprovechamiento del Suelo (CAS) | Coeficientes de Altura (CA)
-m² | ZC-2 | ZC-1 / ZMIC | ZC-3 | ZMRC | ZR- 1/ZR-2 | ZR-3 | ZR-4
-| | | | 2.5 | 2 | 1.5 | 1
-≤100 | 2,00 | 2,00 | 2,00 | | | |
-101-250 | 2,67 | 2,50 | 2,38
-251-500 | 3,33 | 3,00 | 2,75
-501-750 | 4,00 | 3,50 | 3,13
-751-1000 | 4,67 | 4,00 | 3,50
-1001-1250 | 5,33 | 4,50 | 3,68
-1251-1500 | 6,00 | 4,69 | 3,86
-1501-1750 | 6,19 | 4,88 | 4,04
-1751-2000 | 6,38 | 5,06 | 4,22
-2001-2250 | 6,57 | 5,25 | 4,40
-2251-2500 | 6,76 | 5,44 | 4,58
-2501-2750 | 6,95 | 5,63 | 4,76
-2751-3000 | 7,14 | 5,81 | 4,94
-3001-3250 | 7,33 | 6,00 | 5,12
-3251-3500 | 7,52 | 6,19 | 5,30
-3501-3750 | 7,71 | 6,38 | 5,48
-3751-4000 | 7,90 | 6,56 | 5,66
-4001-4250 | 8,09 | 6,75 | 5,84
-4251-4500 | 8,28 | 6,94 | 6,02
-4501-4750 | 8,47 | 7,13 | 6,20
-4751-5000 | 8,66 | 7,31 | 6,38
-5001-5250 | 8,85 | 7,50 | 6,56
-5251-5500 | 9,04 | 7,69 | 6,74
-5501-5750 | 9,23 | 7,88 | 6,92
-5751-6000 | 9,42 | 8,06 | 7,10
-6001-6250 | 9,61 | 8,25 | 7,28
-6251-6500 | 9,80 | 8,44 | 7,46
-6501-6750 | 9,99 | 8,63 | 7,64
-6751-7000 | 10,18 | 8,81 | 7,82
-Más de 7000 | 10,37 | 9,00 | 8,00
-Para los condominios multipiso, la altura mínima libre de piso terminado, podrá ser de 2,30 m, siempre y cuando se cumpla con los requerimientos en cuanto a ventilación e iluminación.
-(Nota de Sinalevi: Mediante Fe de Erratas publicada en La Gaceta N° 88 del 8 de mayo de 2015, página 92, la Municipalidad de San José, hace la siguiente aclaración al artículo 24: “…La Altura Máxima de Edificación, en zonas residenciales y mixtas residenciales-comerciales se calcula con la siguiente fórmula:
-AEm = (DV + R) * CA
-Dónde:
-AEm = Altura de Edificación (en metros), en donde m es la medida vertical desde la acera hasta el punto máximo de la cubierta. Si la acera presenta desnivel, se utilizará como referencia el punto medio de la misma.
-DV = Derecho de Vía (en metros), ancho total de la carretera, calle, sendero o servidumbre, esto es, la distancia entre las líneas de propiedad, incluyendo la calzada y ambos caños, aceras y franjas verdes.
-R = Retiro sumatorio (en metros), entre el retiro de antejardín (RA) y el retiro voluntario (RV).
-CA = Coeficiente de Altura, cuyos valores son para la:
-ZMRC = 2.5
-ZR1/ ZR2 – 2 = 2.0
-ZR3 = 1.5
-ZR4 = 1.0
-El Área Máxima de Construcción, en zonas residenciales y mixtas residenciales-comerciales, se calcula con la siguiente fórmula:
-AMC = (AL – AR) * AEp
-Dónde:
-AMC = Área Máxima de Construcción, en metros cuadrados
-AL = Área del lote, en metros cuadrados
-AR = Área de retiro (retiro de antejardín en metros cuadrados)
-AEp = Altura de Edificación, en pisos (Altura de piso: 3 metros).
-Por lo anterior, se evidencia que las fórmulas son las mismas, solo aclarándose que para altura de edificación se trata de metros y en la fórmula para el área máxima de construcción, se establece la altura máxima en pisos, considerando la altura por piso de 3 metros.
-En los casos donde existan dos o más frentes a calle pública se deberá realizar un promedio, dado el impacto al entorno que traerá la edificación, tanto para vecinos como para los desarrolladores.
-AE= (AE calle 1 +AE calle 2)
-# calles.”)
+SECCION III
+NORMAS DE AFECTACIÓN AL DISEÑO Y CONSTRUCCIÓN DE OBRAS
+ARTÍCULO 24. Normas generales de edificación. Toda obra de construcción de nueva planta, sustitución, ampliación, remodelación o reestructuración deberá cumplir las
+condiciones de edificación, referentes a alineamientos, retiros, y Área Máxima de Construcción - AMC (CAS y CA), bajo los siguientes parámetros:
+24.1. Alineamientos. El alineamiento es la determinación de la línea de construcción en predios privados o públicos, con respecto a una vía o servidumbre pública. Los alineamientos los define la municipalidad o institución respectiva como sigue:
+a. MSJ. Le corresponde determinar los alineamientos de antejardín o retiro frontal de los predios localizados sobre calles locales, de acuerdo con su clasificación vial y zona, definidos en el Mapa “Retiros del cantón San José” y los alineamientos sobre servidumbres de aguas pluviales, se establecen por el área de Construcción y Mantenimiento de la Red Pluvial.
+b. INVU. Los alineamientos relacionados con ríos, quebradas, arroyos, embalses o lagos naturales o artificiales, según la Ley Forestal.
+c. RECOPE. Los alineamientos relacionados con oleoductos.
+d. A y A. Los alineamientos relacionados con redes de agua potable y servida.
+e. ICE y CNFL. Los alineamientos relacionados con servidumbres de líneas eléctricas.
+f. MOPT. Los alineamientos relacionados con carreteras nacionales.
+g. INCOFER. Los alineamientos relacionados con el derecho de vía férrea.
+h. La municipalidad podrá determinar un alineamiento mayor al indicado por el INVU, según la especificidad de las condiciones geográficas, geológicas de cada zona y la susceptibilidad al deslizamiento de sus laderas o entorno inmediato, de acuerdo con el Mapa “Zonas de Amenazas a Deslizamientos e Inundaciones en el cantón San José” de estos reglamentos.
+24.2. Retiros. Las edificaciones que se construyan deberán guardar los siguientes retiros:
+24.2.1. Retiro frontal. Está fijado en el Mapa “Retiros del cantón San José”, para cada zona del cantón, de acuerdo con las características de sus vías. Consiste en correr la línea de construcción desde la línea de propiedad a la distancia establecida. Es equivalente al espacio de antejardín, por lo que implica una restricción para construir.
+24.2.2. Propósito. Su propósito es proporcionar una mayor posibilidad de aireación y belleza a la ciudad, y contribuye a la infiltración de las aguas llovidas, así como facilitar a la propiedad, la ubicación de conexiones con los servicios públicos y servir de zona de contingencia en caso de eventuales accidentes. No se exige en las zonas donde anteriormente no existía esta norma y las construcciones fueron realizadas a partir de la línea de propiedad.
+24.2.3. Proyección aérea y/o subterránea. La línea de construcción fijada deberá mantenerse tanto de forma subterránea como aérea. En los casos en que se exija retiro, se permitirán solamente voladizos a partir del segundo nivel de tipo balcón hasta un metro de proyección a partir de la línea de construcción.
+En casos sin retiro, solamente se permitirán:
+a. Elementos arquitectónicos ornamentales de la fachada de tipo columnas, bajantes, banquinas y cornisas salientes hasta 0.10 m. de la línea de construcción.
+b. Es obligatorio incluir un alero, marquesina o voladizo de 1.20 m. de ancho como mínimo, y como máximo 0.50 m. antes desde la línea del cordón de caño.
+c. Las marquesinas deben ser continuas, con una altura promedio de 3.00 m. sobre el nivel de acera.
+d. Para calles con pendiente, el alto máximo será de 3.40 m. y el mínimo será 2.40 m.
+e. Deberán descargar sus aguas directamente al caño por medio de bajantes adosados a la edificación, o internos por columnas o paredes, sin que estos descarguen sobre
+la acera.
+24.2.4. Uso del antejardín. Referente al área y uso destinado al antejardín, deben considerarse los siguientes parámetros:
+a. En Zonas Residenciales (ZR 1,2,3,4): el área de antejardín está delimitada como mínimo en un 50% (1/2 del frente del lote) por área verde del espacio correspondiente entre la línea de propiedad y el retiro frontal establecido en el Mapa de Retiros del cantón San José.
+b. En Zonas Mixta Residencia-Comercio (ZMRC), Zonas Comerciales (ZC 1,2,3) y Zonas Mixtas Industria-Comercio (ZMIC): el área de antejardín está delimitada como mínimo en un 33% (1/3 del frente del lote) por área verde del espacio correspondiente entre la línea de propiedad y el retiro frontal establecido en el Mapa de Retiros del cantón San José.
+c. Esta área de antejardín no se podrá techar, los aleros y/o voladizos (en niveles superiores), así como, aceras perimetrales adosadas a la línea de construcción no podrán exceder un metro de ancho.
+d. Sobre el resto del área de retiro, podrán construirse cocheras, estacionamientos, corredores abiertos, terrazas, tanques sépticos, tanques de captación, cajas de registro, casetas de seguridad, transformadores, y recipientes de recolección de basura.
+e. En zona de antejardín, no se podrán construir vallas sólidas y/o muros con altura de más de un metro, permitiéndose cubrir con la instalación de verjas o portones hasta 3.00 m. de altura y para efectos de seguridad; éstas deben permitir 80% de visibilidad como mínimo. Esta última norma aplica también para los retiros en colindancias laterales, dentro del área de antejardín. Se excluye de esta disposición el caso de los muros de retención, cuya altura mínima está en función de la diferencia de niveles, entre el predio de la vía pública y el de la propiedad privada.
+24.2.5. Caso de ampliación vial. En el caso de ampliación vial prevista, se procederá a exigir el retiro mayor al antejardín, solo cuando se haya abierto un proceso para expropiación por parte del MOPT o la MSJ.
+24.2.6. Retiro Posterior. Para establecer este retiro se debe cumplir con las normas vigentes sobre ventilación e iluminación natural, áreas y dimensiones mínimas, establecidas por la Ley de Construcciones y el Reglamento de Construcciones del INVU.
+Para los edificios altos, el retiro posterior se regirá por lo dispuesto en la Ley de Construcciones y el Reglamento de Construcciones del INVU hasta el piso 10, para los pisos
+siguientes se establecerá de la siguiente manera:
+a. Para edificaciones de 11 a 25 pisos de altura, se dejarán 12.00 m. de retiro único, medidos en un plano horizontal de la colindancia, cuando existan ventanas y/o balcones.
+b. Para edificios de 26 pisos de altura en adelante, se dejarán 16.00 m. de retiro único, medidos en un plano horizontal de la colindancia, cuando existan ventanas y/o balcones.
+24.2.7. Retiros Laterales. Para establecer estos retiros, se debe cumplir con las normas vigentes sobre ventilación e iluminación natural, áreas y dimensiones mínimas, establecidas por la Ley de Construcciones y el Reglamento de Construcciones del INVU hasta el piso 10, para los pisos siguientes se establecerá de la siguiente manera:
+a. Para edificios de más de 11 a 25 pisos de altura, se dejarán 11.00 m. de retiro único, medidos en un plano horizontal de la colindancia, cuando existan ventanas y/o balcones.
+b. Para edificios de 26 pisos de altura en adelante, se dejarán 15.00 m. de retiro único, medidos en un plano horizontal de la colindancia, cuando existan ventanas y/o balcones.

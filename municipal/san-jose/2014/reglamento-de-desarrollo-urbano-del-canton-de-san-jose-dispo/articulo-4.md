@@ -1,1 +1,1 @@
-Artículo 4. Ámbito de aplicación de los RDU. Las disposiciones de los Reglamentos de Desarrollo Urbano, serán de aplicación y acatamiento obligatorio para todas las personas físicas y jurídicas, públicas y privadas, en toda el área del cantón de San José, de la provincia de San José.
+ARTÍCULO 4. Ámbito de aplicación de los RDU. Las disposiciones de los Reglamentos de Desarrollo Urbano serán de aplicación y acatamiento obligatorio para todas las personas físicas y jurídicas, públicas y privadas, en toda el área del cantón San José, de la provincia de San José.

@@ -1,8 +1,14 @@
-Artículo 29. Aplicación de las sanciones contenidas en la Ley de Construcciones. De conformidad con las disposiciones de los artículos 88, 89 y 90 de la Ley de Construcciones, en los casos que se detecte una construcción sin la respectiva licencia municipal, la dependencia técnica competente, por medio de sus inspectores, así lo hará constar en notificación formal al administrado, para lo cual cuenta con cinco días hábiles, plazo en el que deberá levantar la información detallada con respecto al caso.
-Para efectos de cálculo de multa, el valor del metro cuadrado de construcción, será aquel que se establece en la Tabla de Estimación de Valores, fijada por el Colegio Federado de Ingenieros y Arquitectos. El monto de la multa será el uno por ciento sobre el valor total de la obra.
-Con el estudio realizado, se procederá a notificar al administrado, lo siguiente:
-La infracción cometida.
-La sanción a imponer.
-El sustento jurídico.
-Que tiene derecho de interponer los recursos de revocatoria y de apelación, de conformidad con el Código Municipal.
-La notificación se hará en el lugar de la obra con el propietario, profesional responsable, ingeniero residente o su asistente, maestro de obra, o en su defecto con cualquier persona mayor de edad, consignándose así en la notificación.
+SECCION IV
+SANCIONES
+ARTÍCULO 29. Disposiciones generales sobre sanciones y procedimientos. Todo acto violatorio de estos Reglamentos de Desarrollo Urbano, que se cometa por parte del profesional responsable de un proyecto, del propietario del inmueble, de sus representantes legales, o por cualquier administrado en general, será sancionado conforme lo disponen:
+a. La Ley de Planificación Urbana N°4240 del 15 de diciembre de 1968 y sus reformas.
+b. La Ley de Construcciones N°833 del 4 de noviembre de 1949 y sus reformas.
+c. La Ley General de Salud N°5395 del 30 de octubre de 1973 y sus reformas.
+d. El Código Municipal, Ley N°7794 del 27 de abril de 1998.
+e. La Ley Orgánica del Ambiente N°7554 del 3 de noviembre de 1995.
+f. Ley de Patrimonio Histórico Arquitectónico N°7555 del 20 de octubre 1995.
+g. Ley Forestal N°7575 del 13 de febrero de 1996.
+h. Ley de Licores N°10 del 07 de octubre de 1936.
+i. Los Reglamentos que el Poder Ejecutivo haya dictado para regular las leyes anteriores.
+j. Los Reglamentos de Desarrollo Urbano del cantón San José.
+k. Otras leyes especiales aplicables.

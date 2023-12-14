@@ -1,1 +1,1 @@
-Artículo 27. Incentivo por uso del espacio subterráneo. Las áreas de los pisos subterráneos no serán tomadas en cuenta para el cálculo del AMC, y hasta dos pisos de estacionamiento.
+ARTÍCULO 27. Incentivo por ubicación. Los lotes mayores a 1250 m2, ubicados a lo largo del eje urbano (radial de Pavas, vías alrededor de La Sabana, Paseo Colón, avenida Segunda y radial de San Pedro), donde se proyecta implementar el Proyecto de Transporte Limpio para el corredor oeste-este de la ciudad, tendrán 10% de CAS adicional al indicado en la Tabla 2 de este Reglamento.

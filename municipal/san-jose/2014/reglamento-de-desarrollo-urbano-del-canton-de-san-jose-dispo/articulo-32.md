@@ -1,0 +1,1 @@
+ARTÍCULO 32. Aplicación de las sanciones. Corresponderá a la dependencia técnica competente, por medio de sus inspectores, haciendo constar en notificación formal al administrado, que cuenta con cinco días hábiles, plazo en el que deberá levantar la información detallada con respecto al caso.
