@@ -1,1 +1,1 @@
-Artículo 11. Simultaneidad de funciones sujetas a caución. El servidor que, obligado a rendir caución, se le asigne una función que genere ese mismo deber, cauciona una sola vez y por el monto de mayor valor.
+Artículo 11. Simultaneidad de funciones sujetas a caución. El servidor que, Página | 5 obligado a rendir caución, se le asigne una función que genere ese mismo deber, cauciona una sola vez y por el monto de mayor valor.

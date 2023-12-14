@@ -14,3 +14,4 @@ Reglamento de garantías y cauciones para los servidores de la Universidad Técn
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-05-25 | la propia norma |
+| 2 | 2023-12-14 | Reglamento 33 (2023-12-14) |
