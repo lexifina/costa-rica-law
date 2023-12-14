@@ -1,0 +1,1 @@
+ARTÍCULO 13. Derecho y deber de las personas. Así como las personas tienen derecho al uso y disfrute de los espacios públicos, de acuerdo con su naturaleza, respetando el destino para el que se hayan designado; todos los ciudadanos serán responsables de la vigilancia, seguridad y buen uso de estos y sus instalaciones.

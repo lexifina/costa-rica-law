@@ -1,0 +1,1 @@
+ARTÍCULO 14. Materias bajo regulación específica. No se regirán bajo este reglamento aquellas actividades u ocupación en el espacio público que se encuentre regulada por una normativa específica; sin embargo, a falta de disposición legal y según sea procedente el cobro por su ocupación, podrá aplicarse lo dispuesto en este reglamento.

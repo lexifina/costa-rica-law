@@ -1,0 +1,1 @@
+ARTÍCULO 27. Del pago del canon y otros tributos. Salvo los casos previstos como no sujetos al pago del canon por ocupación del espacio público en este reglamento, todo permiso o autorización conlleva un monto a pagar por su ocupación, así como, si corresponde, al pago de la patente municipal y/o de espectáculo público.

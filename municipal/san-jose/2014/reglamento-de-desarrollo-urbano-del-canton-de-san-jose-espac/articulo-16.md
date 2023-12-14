@@ -1,0 +1,3 @@
+ARTÍCULO 16. De las autorizaciones. Las autorizaciones otorgadas en el espacio público son personalísimas, no son negociables por tanto intransferibles, son de carácter temporal, otorgados a título precario, por ende, revocables, no implican transferencia de dominio del bien, y no otorgan ningún tipo de derecho a terceros sobre ellos.
+La municipalidad siempre conservará la titularidad y posesión efectiva sobre el espacio público, por lo que no se legaliza ningún tipo de uso, intervención, construcción, ocupación o cerramiento realizados en contravención a las normas o sin la autorización impartida por la dependencia municipal competente.
+La ocupación del espacio público autorizada para ventas estacionarias se regirá por la ley y reglamento municipal vigente.
