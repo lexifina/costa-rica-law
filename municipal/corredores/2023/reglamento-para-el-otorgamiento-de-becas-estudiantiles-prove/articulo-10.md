@@ -1,0 +1,1 @@
+Artículo 10.-De la reasignación de becas libres: En cuanto a las becas que queden vacantes durante cada período lectivo, sea por renuncia del beneficiario o por alguna causal de suspensión, la Comisión Especial de Becas la reasignará según la lista de espera. De lo contrario, será tenida como remanente para el siguiente periodo.

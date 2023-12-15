@@ -1,0 +1,2 @@
+Transitorio II.-Todas aquellas solicitudes que fueron aprobadas con anterioridad a la entrada en vigencia de este reglamento, se entregarán conforme a los lineamientos existentes o en su defecto conforme al procedimiento que se aplicaba de forma excepcional en el caso que no existiera lineamiento o norma que lo regulará, con referencia a la fecha en que fueron aprobadas, esto con previa autorización por medio de acuerdo del Concejo Municipal, las cuales se harán de manera retroactiva.
+Segunda publicación.

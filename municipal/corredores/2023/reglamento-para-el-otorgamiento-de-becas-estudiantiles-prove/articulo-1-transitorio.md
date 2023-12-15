@@ -1,0 +1,1 @@
+Transitorio I.-Este Reglamento entrará en vigencia una vez se encuentre publicado en el diario oficial La Gaceta. Se otorgará un plazo de 15 días posteriores a su publicación el cual se destinará a consulta pública no vinculante. Las observaciones que se hagan al respecto deberán presentarse ante el Departamento de Secretaría del Concejo Municipal.

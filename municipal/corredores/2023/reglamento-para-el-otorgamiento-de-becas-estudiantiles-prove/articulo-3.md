@@ -1,0 +1,1 @@
+Artículo 3º-Del órgano competente para el otorgamiento de becas. Corresponderá en forma exclusiva al Concejo Municipal de Corredores el otorgamiento de las becas, previo dictamen recomendatorio de la Comisión Especial de Becas.

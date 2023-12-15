@@ -1,0 +1,1 @@
+Artículo 7º-Admisibilidad: Los requisitos y condiciones, de admisibilidad quedan sujetos al análisis y aprobación únicamente de la Comisión Especial de Becas, misma que se delimitarán a la cantidad de becas indicadas en el artículo 16° de este reglamento.

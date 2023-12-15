@@ -1,0 +1,1 @@
+Artículo 6º-De las obligaciones del productor de Palma. El productor de palma cuyo hijo aspire a una beca, deberá tributar por tal concepto ante la Municipalidad de Corredores y encontrarse al día en el pago de ese y los demás tributos locales.
