@@ -1,0 +1,2 @@
+Artículo 142° - Ubicación de los equipos de almacenamiento y conexión.
+Los equipos y su conexión para los servicios de suministro de GLP se ubicarán dentro del límite de propiedad del usuario, con acceso a zona pública para el llenado del tanque, cumpliendo con las distancias de separación establecidas en la normativa técnica vigente, y en estructura construida expresamente para ello, según corresponda.

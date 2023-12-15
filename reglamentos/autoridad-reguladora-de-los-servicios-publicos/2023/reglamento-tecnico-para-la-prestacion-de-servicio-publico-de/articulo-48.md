@@ -1,0 +1,3 @@
+Artículo 48° - Sobre las condiciones durante el transporte vehicular de GLP
+Las condiciones en las que se realice el transporte vehicular de GLP, incluyendo el transporte de cilindros portátiles, transporte de tanques estacionarios y el parqueo y estacionamiento de vehículos utilizados para transporte de GLP tanto en exterior como interiores, deberá cumplir con lo establecido en la norma INTE I37-7:2019 "Transporte Vehicular de Gas LP", en su versión vigente o aquella que la sustituya.
+También incluye todas las obligaciones y especificaciones técnicas de los vehículos de transporte de GLP a granel o en cilindros, establecidas por la legislación vigente aplicable en la materia establecida por las autoridades correspondientes.

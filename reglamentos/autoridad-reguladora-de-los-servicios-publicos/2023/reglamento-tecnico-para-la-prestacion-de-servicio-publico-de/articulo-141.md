@@ -1,0 +1,3 @@
+Artículo 141° - Instalación de nuevos servicios y traslado de acometida.
+Es responsabilidad del usuario contar con el diseño de un profesional responsable para cumplir con los requisitos administrativos y técnicos establecidos en la normativa vigente previo a solicitar la conexión de un servicio de suministro de GLP.
+Previo a la instalación de un nuevo servicio o traslado de un tanque, acometida o prevista existente, es responsabilidad del prestador verificar que el inmueble cumpla con los requisitos administrativos y técnicos establecidos en la normativa vigente, y deberá notificarle al usuario los incumplimientos detectados.

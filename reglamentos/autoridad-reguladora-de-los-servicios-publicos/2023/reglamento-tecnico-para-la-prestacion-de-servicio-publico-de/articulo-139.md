@@ -1,0 +1,6 @@
+Artículo 139° - Servicio de conexión.
+Este servicio permite la interconexión entre el tanque estacionario y la red del prestador del servicio con el sistema interno, en la propiedad del usuario o punto de entrega. Existen dos tipos de servicio de conexión:
+a. Servicio de conexión con prevista: Cuando en el inmueble se dejó la tubería para transportar el GLP desde el tanque estacionario hasta el punto donde el usuario posee instalada la tubería y demás accesorios (acometida) donde se brindará el servicio;
+b. Servicio de conexión sin prevista: Cuando no existe ningún tipo de instalación ni del prestador ni del del usuario que permita la interconexión del servicio.
+En el caso en que no exista prevista en la instalación del usuario y esta sea colocada por el prestador a solicitud del usuario, corresponde al usuario asumir el costo de la instalación, incluyendo aquellos materiales y accesorios que no formen parte del servicio público y sean necesarios para la correcta instalación y conexión.
+En todas las instalaciones realizadas por el prestador y como parte del servicio de conexión, el prestador deberá colocar una llave de acceso inmediato al usuario y debidamente identificada, para el cierre del suministro de GLP en caso de emergencia y capacitarlo para su uso.

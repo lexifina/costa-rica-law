@@ -1,0 +1,2 @@
+Artículo 44° - Marchamado de transportes en terminales
+El agente distribuidor al mayoreo deberá implementar mecanismos de marchamado u otros equivalentes, debidamente codificados, construidos de tal manera que permitan detectar si fue intervenido, reparado o ambos, debe resistir la manipulación, almacenamiento y transporte, sin que se rompa o desprenda, que permanezca en su posición hasta que llegue a las instalaciones del cliente y debe ser totalmente desechable, sin posibilidad de reuso.

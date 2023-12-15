@@ -1,0 +1,7 @@
+Artículo 105° - Sobre la reposición de los cilindros portátiles en mal estado o con defectos de cantidad
+Los distribuidores deberán recibir y sustituir todos los cilindros en mal estado, con fugas o con defectos de cantidad, de los comercializadores a los que presten servicio, incluyendo aquellos marchamados por la Aresep, para lo cual deben establecer procedimientos para el recibo y sustitución de los cilindros por otros en buen estado y envasados con la cantidad requerida.
+Ante la interposición de una queja por deficiencias de cantidad en cilindros, el prestador deberá verificar mediante tara y balanza la cantidad de GLP envasado, y en caso de corroborarse el faltante, sustituir el cilindro sin costo adicional, por uno debidamente envasado, según las tolerancias establecidas por la Aresep.
+La sustitución de los cilindros del distribuidor al comercializador deberá realizarse en un plazo máximo de 72 horas, sin costo adicional para el comercializador. Dicho plazo podrá extenderse por mutuo acuerdo entre las partes.
+El distribuidor deberá coordinar con la empresa envasadora con la que posea contrato, la sustitución de los cilindros en mal estado, con fuga o con defectos de cantidad que haya recibido de los comercializadores, según lo indicado en este
+reglamento.
+Se exceptúan de lo indicado en este artículo los cilindros en mal estado que no pertenecen a ninguna de las empresas envasadoras concesionarias del servicio público.

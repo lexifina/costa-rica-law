@@ -1,0 +1,3 @@
+Artículo 130° - Sobre los vínculos comerciales con las concesionarias envasadoras
+Independientemente de la modalidad contractual que convengan el concesionario de la estación de servicio y el concesionario envasador, el concesionario de la estación de servicio será el responsable de solicitar copia al concesionario envasador con quien tenga vínculos comerciales, de los certificados de fabricación de los dispensadores, las calibraciones realizadas a estos y cualquier otro que establezca la normativa aplicable a la materia, para determinar el cumplimiento de las condiciones técnicas y de seguridad exigidas a los equipos.
+La copia de dichos documentos deberá encontrarse disponible en las instalaciones de la estación para verificación de la Aresep.

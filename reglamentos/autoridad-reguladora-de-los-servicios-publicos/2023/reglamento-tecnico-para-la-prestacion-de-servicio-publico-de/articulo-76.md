@@ -1,0 +1,2 @@
+Artículo 76° - De la disponibilidad de la balanza
+Las empresas envasadoras, deberán contar con una balanza debidamente calibrada y con la capacidad suficiente, con el fin de que los usuarios y agentes distribuidores puedan verificar el contenido neto de producto en el momento de adquirir el cilindro. La información de control metrológico de la balanza deberá encontrarse disponible para la Aresep en el sitio y cuando esta sea solicitada.

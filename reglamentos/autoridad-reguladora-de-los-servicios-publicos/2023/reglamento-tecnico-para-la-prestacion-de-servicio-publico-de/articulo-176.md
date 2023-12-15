@@ -1,0 +1,3 @@
+Artículo 176° - Entrega de la factura.
+Para el caso de los servicios de suministro de GLP en cilindros, envasado de tanques estacionarios y suministro de GLP vehicular en estaciones de servicio, el prestador entregará o pondrá a disposición del cliente, la factura correspondiente al GLP suministrado en el momento en que se presta el servicio.
+En el caso de servicios a granel con facturación post consumo, tales como aquellos medidos a través de medidores, el prestador entregará o pondrá la factura a disposición del abonado o usuario con un mínimo de 5 días naturales antes del vencimiento según los términos del contrato, en el lugar o por el medio señalado por el abonado.

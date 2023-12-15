@@ -1,0 +1,3 @@
+Artículo 167° - Equipo de comprobación de los abonados o usuarios autorizados
+Los abonados o usuarios del servicio a granel de GLP, previa coordinación con el agente prestador proveedor del servicio y siempre que sea técnicamente factible, podrán instalar por cuenta propia, equipos de comprobación, medición o conteo de GLP. Estos equipos serán adicionales a los instalados por el agente prestador y no formarán parte del servicio público.
+Será responsabilidad del abonado o usuario que el sistema de comprobación instalado cumpla con las especificaciones de la normativa vigente y cuente con la debida certificación de control metrológico.

@@ -1,0 +1,6 @@
+Artículo 79° - Sobre las características del sello de inviolabilidad en cilindros
+Las empresas envasadoras realizarán y presentarán a la Intendencia de Energía de la Aresep, un estudio sobre los sellos de inviolabilidad en cilindros, con el fin de asegurar que se obtenga la mejor relación calidad precio hacia el usuario en los sellos utilizados y se garantice su adecuado funcionamiento. El estudio deberá contener al menos lo siguiente:
+a. Realizar o solicitar al fabricante las pruebas de calidad (ensayos de resistencia al desprendimiento, manipulación por parte de terceros, bajo condiciones ambientales y de operación) de los sellos utilizados, con una periodicidad de 4 años.
+b. Realizar pruebas en campo y una encuesta a los clientes para conocer su valoración sobre los sellos utilizados con una periodicidad de 4 años.
+c. Realizar un estudio de mercado con los proveedores de sellos de inviolabilidad, para conocer los precios, nuevas tecnologías y beneficios ambientales y a los usuarios, de los sellos que existan en el mercado, esto a realizarse con una periodicidad de 4 años.
+Este estudio deberá cumplir con lo indicado en este reglamento respecto a los formatos y plazos para la presentación de información.

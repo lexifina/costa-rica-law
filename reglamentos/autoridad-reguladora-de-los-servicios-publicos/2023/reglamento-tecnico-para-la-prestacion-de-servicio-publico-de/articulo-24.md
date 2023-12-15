@@ -1,0 +1,2 @@
+Artículo 24° - De la seguridad en la prestación
+Los prestadores asegurarán la protección de sus trabajadores, equipo, instalaciones, infraestructura y público en general, de acuerdo con la legislación vigente aplicable, incluyendo el cumplimiento de las disposiciones técnicas en materia de seguridad humana y protección contra incendios establecidas por el Benemérito Cuerpo de Bomberos de Costa Rica.

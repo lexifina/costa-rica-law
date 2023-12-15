@@ -1,0 +1,2 @@
+Artículo 145° - Plazo para reconexión o reanudación del suministro del servicio de GLP.
+El prestador del servicio restaurará la conexión o suministro del servicio en un plazo no mayor a las 36 horas naturales una vez que el cliente demuestre al prestador que han sido corregidas las condiciones que originaron la suspensión. Si ese día corresponde al prestador cerrar sus oficinas, deberá realizarla el día hábil siguiente.

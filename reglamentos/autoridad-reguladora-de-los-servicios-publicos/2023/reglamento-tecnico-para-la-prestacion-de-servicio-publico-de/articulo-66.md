@@ -1,0 +1,7 @@
+Artículo 66° - Sobre la reposición de los cilindros portátiles con defectos de cantidad envasada
+Las empresas envasadoras deberán recibir y sustituir todos los cilindros con defectos de cantidad, de los usuarios, distribuidores y comercializadores a los que presten servicio, incluyendo aquellos marchamados por la Autoridad Reguladora;
+para lo cual deben establecer procedimientos para el recibo y sustitución de los cilindros a los transportistas, distribuidores y comercializadores con los que operen.
+Estos procedimientos deberán ser comunicados a la Intendencia de Energía de la Aresep.
+Los costos de la reposición, sustitución de estos cilindros por otros en buen estado y envasados con la cantidad requerida, serán responsabilidad de la empresa envasadora, y no podrán ser transferidos a los usuarios u otros agentes de la cadena bajo ningún mecanismo distinto a la tarifa autorizada por la Aresep.
+Las empresas envasadoras deberán llevar un registro en formato digital sobre las sustituciones de cilindros que realicen, incluyendo el agente o usuario, la cantidad y el motivo.
+En el caso de cilindros que no pertenecen a las empresas envasadoras concesionarias del servicio público y que presenten defectos en cantidad envasada, los costos asociados al reenvasado del cilindro con la cantidad requerida serán responsabilidad de la empresa envasadora que lo envasó, y no podrán ser transferidos a los usuarios u otros agentes de la cadena bajo ningún mecanismo distinto a la tarifa autorizada por la Aresep.

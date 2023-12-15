@@ -1,0 +1,2 @@
+Artículo 164° - Sellado de los sistemas de medición
+Los agentes que presten cualquiera de los servicios de suministro a granel, deberán colocar sellos físicos o electrónicos que impidan el acceso no autorizado a los mecanismos de ajuste o calibración de los medidores o sistema de medición de su propiedad y que utilicen en el servicio público. Los sellos serán codificados y numerados de manera consecutiva y estarán asociados de manera exclusiva a cada medidor o instrumento que forma parte del sistema de medición.

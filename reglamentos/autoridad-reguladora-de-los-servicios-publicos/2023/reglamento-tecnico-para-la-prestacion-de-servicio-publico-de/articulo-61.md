@@ -1,0 +1,2 @@
+Artículo 61° - De la revisión de los cilindros y tanques previo a su envasado
+Las empresas envasadoras tienen la obligación de revisar los cilindros y tanques cada vez previo a su envasado, verificando que se encuentren libres de fugas, abolladuras, corrosión y sedimentos, que mantengan la tara correcta e información de identificación, así como que se encuentren en excelentes condiciones de seguridad e integridad, incluyendo su instalación y accesorios, y que funcionen correctamente de acuerdo con la normativa vigente.

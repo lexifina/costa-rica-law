@@ -1,0 +1,3 @@
+Artículo 125° - De los dispensadores de GLP vehicular
+El dispensador debe mostrar la cantidad de GLP suministrada, el precio total y el precio por unidad de venta según la tarifa vigente establecida por la Aresep. Sólo se podrán utilizar dispensadores fabricados de acuerdo con la normativa vigente, reconocidos mediante un certificado otorgado por el fabricante o la autoridad competente.
+Los surtidores de GLP y sus sistemas de medición, sus especificaciones, calibración y fiscalización, deberán cumplir con lo dispuesto en las resoluciones que emita la Aresep o el área técnica designada y la normativa vigente que regule la materia.

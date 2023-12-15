@@ -1,0 +1,4 @@
+Artículo 153° - Mantenimiento de la infraestructura.
+Los prestadores deben dar mantenimiento a toda su infraestructura, para asegurarse que la prestación de los servicios sea acorde con las exigencias de este Reglamento y la legislación vigente aplicable, para lo cual debe realizar una programación de renovación de su infraestructura según su antigüedad y vida útil.
+En el caso de abonados y usuarios del servicio a granel, el mantenimiento realizado por el prestador se dará hasta el límite físico del servicio público respetando la cobertura definida en este reglamento. Todo mantenimiento deberá estar coordinado con el abonado o usuario para su ejecución.
+En el caso de infraestructura instalada como parte de los servicios no regulados, quedará sujeta a lo establecido en el contrato entre las partes.

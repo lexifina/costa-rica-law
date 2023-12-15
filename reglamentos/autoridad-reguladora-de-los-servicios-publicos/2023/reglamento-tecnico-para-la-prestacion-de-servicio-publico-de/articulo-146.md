@@ -1,0 +1,2 @@
+Artículo 146° - Plazo para la instalación de un nuevo servicio.
+Una vez cumplidos los requisitos técnicos, ambientales y administrativos para la instalación, los prestadores contarán con un plazo máximo de cinco días hábiles para realizar la conexión de cada servicio aprobado a partir del recibido a satisfacción de todos los requisitos establecidos por el prestador. Este plazo está sujeto a que el usuario cumpla con la normativa vigente para la instalación y uso del GLP. El plazo podrá ser ampliado previo acuerdo entre las partes.

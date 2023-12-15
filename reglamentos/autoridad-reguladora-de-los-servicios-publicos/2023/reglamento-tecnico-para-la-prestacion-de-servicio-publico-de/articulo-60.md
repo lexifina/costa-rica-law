@@ -1,0 +1,2 @@
+Artículo 60° - Sobre el envasado universal de cilindros
+Las empresas envasadoras podrán envasar cilindros de cualquier marca, tanto de otras empresas envasadoras como de terceros. La empresa envasadora que realice el envasado del cilindro será la responsable de realizar la revisión y el mantenimiento necesarios para garantizar su trazabilidad y seguridad al momento del envasado, de conformidad con lo indicado en el artículo 54.

@@ -1,0 +1,3 @@
+Artículo 53° - De la identificación de los cilindros y tanques estacionarios
+Las empresas envasadoras tienen la obligación de identificar sus cilindros y tanques estacionarios con el nombre y color de la envasadora propietaria del cilindro, de forma fácilmente visible y que permita diferenciarlos de los demás prestadores autorizados. La información de identificación deberá cumplir como mínimo con lo indicado en la normativa vigente aplicable.
+Las empresas envasadoras deberán informar a la Intendencia de Energía de los colores y señas utilizados para identificar los cilindros y tanques de su propiedad.

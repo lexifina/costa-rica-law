@@ -1,0 +1,2 @@
+Artículo 149° - Solicitud de desconexión del servicio y remoción de equipos.
+Previa solicitud del abonado, los prestadores están obligados a atender toda solicitud de desconexión y remoción de los equipos propiedad del prestador destinados a la prestación del servicio. Esta solicitud debe atenderse en un plazo máximo de cinco días hábiles contados a partir del recibido a satisfacción de todos los requisitos establecidos por el prestador. El abonado deberá estar al día con el pago del servicio.

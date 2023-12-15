@@ -1,0 +1,4 @@
+Artículo 93° - Del límite de tolerancia en la cantidad dispensada a granel a tanques de autoconsumo
+La responsabilidad por el cumplimiento de las normas de calidad y exactitud en las medidas aplicables y cantidad de GLP entregado corresponde al agente responsable del envasado del tanque.
+El error máximo permitido entre la cantidad real suministrada de GLP y aquella registrada por el sistema de medición de la granelera no podrá ser mayor de cero coma tres por ciento (0,3%).
+Para las inspecciones de verificación de cantidad de GLP dispensada, se aplicará lo dispuesto en la "Recomendación Internacional de la Organización Internacional de Metrología Legal OIML R 117-1 Medición de líquidos diferentes al agua en sistemas dinámicos" y las resoluciones de la Intendencia de Energía, hasta tanto la Aresep no publique el reglamento específico aplicable sobre la materia.

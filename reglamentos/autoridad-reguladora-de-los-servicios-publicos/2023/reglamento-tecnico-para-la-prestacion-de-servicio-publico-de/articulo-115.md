@@ -1,0 +1,3 @@
+Artículo 115° - Sobre los sellos de inviolabilidad
+Es responsabilidad del comercializador velar porque se mantenga la integridad del sello de inviolabilidad del cilindro colocado por la envasadora durante su almacenamiento y hasta su venta final.
+Queda terminantemente prohibido para los comercializadores, así como cualquier tercero no autorizado, manipular, romper o eliminar de cualquier forma los sellos de inviolabilidad colocados por las envasadoras en los cilindros llenos dispuestos para la venta al usuario final; así como realizar la venta de cilindros de GLP cuyo sello de inviolabilidad haya sido manipulado, roto o eliminado de cualquier forma, carezca del sello de inviolabilidad, o que posean un sello falsificado o distinto de los autorizados.

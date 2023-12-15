@@ -1,0 +1,3 @@
+Artículo 36° - Sobre la prestación no autorizada y el riesgo inminente
+En aquellos casos donde se determine que existe riesgo inminente (cuando es probable que la situación de riesgo se materialice en un futuro inmediato) o no se cuente con las autorizaciones para la prestación de servicio, esta situación será
+consignada en el acta de inspección para su traslado a las autoridades, incluyendo MINAE, Cuerpo de Bomberos y el Ministerio de Salud según corresponda. El acta la firmarán el jefe de inspección por parte de Aresep y el encargado por parte del prestador o agente inspeccionado que se encuentre al momento de la visita. En caso de que dicho encargado se niegue a suscribirla, se hará constar tal situación en el acta, la cual será igualmente válida.

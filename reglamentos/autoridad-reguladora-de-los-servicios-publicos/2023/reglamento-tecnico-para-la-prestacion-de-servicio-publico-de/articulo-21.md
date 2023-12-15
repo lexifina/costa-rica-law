@@ -1,0 +1,6 @@
+Artículo 21° - Punto de entrega.
+Los servicios serán suministrados de acuerdo con la cobertura del servicio establecido en este reglamento y lo que se indique en el contrato entre agentes y usuarios para la compraventa de GLP.
+En general el punto de entrega se deberá contar con un sistema de medición o conteo, el cual deberá cumplir con lo establecido en este reglamento sobre su instalación y ubicación.
+El punto de entrega define la frontera entre la cobertura del servicio público del prestador y la instalación interna del inmueble del cliente o usuario.
+El prestador no será responsable de los daños en la propiedad del cliente, debido a deficiencias en las instalaciones dentro del inmueble propiedad del cliente, que se originen por el estado o falta de mantenimiento del equipamiento de la red propiedad y responsabilidad del cliente.
+Sin embargo, si se dan deficiencias de la calidad del suministro por el mal estado o falta de mantenimiento del sistema de medición o de los elementos de la instalación que son propiedad del prestador, o las prácticas realizadas por el prestador al momento del suministro y manipulación de los equipos de su propiedad, el prestador será responsable por los daños causados a equipos o instalaciones de los clientes del servicio.

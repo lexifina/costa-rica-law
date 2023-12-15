@@ -1,0 +1,3 @@
+Artículo 58° - Sobre el acceso por primera vez del usuario al servicio de envasado de cilindros
+Las empresas envasadoras deberán contar con un procedimiento para aquellos usuarios que deseen acceder por primera vez al servicio de suministro de GLP en cilindros, el cual debe incluir como mínimo la forma en que se adquiere el cilindro, el monto de depósito de garantía por el cilindro (si existiese), y su forma y condiciones de intercambio y devolución en caso de que el usuario desee devolver el cilindro y prescindir del servicio.
+El procedimiento deberá tomar en cuenta la adquisición, intercambio y devolución del cilindro tanto a través de la empresa envasadora como con los distribuidores y comercializadores con la que esta opere.

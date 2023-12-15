@@ -1,0 +1,3 @@
+Artículo 87° - Sobre la verificación de los equipos previo al envasado
+Los agentes de distribución a granel tienen la obligación de verificar cada vez, previo al llenado del tanque estacionario, que este se encuentre libre de fugas, abolladuras, corrosión, y que mantengan la información de identificación, así como que se encuentren en excelentes condiciones de seguridad e integridad, incluyendo su instalación, accesorios, de acuerdo con la normativa vigente.
+En caso de identificar alguna anomalía debe notificar inmediatamente a la empresa prestadora propietaria del tanque y al usuario del servicio.

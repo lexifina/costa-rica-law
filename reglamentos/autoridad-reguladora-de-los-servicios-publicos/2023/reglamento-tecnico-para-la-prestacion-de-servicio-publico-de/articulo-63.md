@@ -1,0 +1,5 @@
+Artículo 63° - Sobre la sustitución de válvulas en cilindros
+Únicamente las empresas concesionarias envasadoras, así como aquellas empresas que para tal efecto sean autorizadas por MINAE, podrán realizar la sustitución de válvulas en cilindros de GLP.
+Las empresas envasadoras serán las responsables de sustituir todas las válvulas en mal estado, así como realizar los cambios de válvula de acople rápido a acople roscado o tipo pol a distribuidores, comercializadores y usuarios. Las empresas deberán valorar si es seguro el cambio de válvula en un cilindro en buen estado, o debe realizarse la sustitución total del cilindro y la válvula.
+Los costos de la sustitución de válvulas serán responsabilidad de la empresa envasadora, y no podrán ser transferidos a los usuarios u otros agentes de la cadena bajo ningún mecanismo distinto a la tarifa autorizada por la Aresep.
+En el caso de cilindros que no pertenecen a ninguna de las empresas envasadoras concesionarias del servicio público, los costos del cambio de válvula serán asumidos por el usuario.

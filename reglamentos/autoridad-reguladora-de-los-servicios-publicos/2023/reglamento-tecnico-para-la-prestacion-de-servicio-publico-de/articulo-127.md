@@ -1,0 +1,5 @@
+Artículo 127° - Del límite de tolerancia en la cantidad dispensada
+La responsabilidad por el cumplimiento de las normas de calidad y exactitud en las medidas aplicables y cantidad de GLP entregado corresponde al concesionario de la estación de servicio que expenda dicho producto a los usuarios.
+Los dispensadores deben contar con un dispositivo de compensación volumétrica que corrija automáticamente las distorsiones en el volumen por efecto de la temperatura y densidad.
+La máxima diferencia tolerable entre la cantidad real suministrada por el surtidor y aquella registrada por el sistema de medición no podrá ser mayor o menor de un punto porcentual (1%).
+Para las inspecciones de verificación de cantidad de GLP dispensada, se aplicará lo dispuesto en la "Recomendación Internacional de la Organización Internacional de Metrología Legal OIML R 117-1 Medición de líquidos diferentes al agua en sistemas dinámicos" y las resoluciones de la Intendencia de Energía hasta tanto la Aresep no publique el reglamento específico aplicable sobre la materia.

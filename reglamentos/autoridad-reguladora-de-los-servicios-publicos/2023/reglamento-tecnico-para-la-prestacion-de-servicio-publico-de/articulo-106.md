@@ -1,0 +1,2 @@
+Artículo 106° - De la disponibilidad de la balanza
+Las empresas distribuidoras, deberán contar con una balanza fija o portátil, debidamente calibrada y con la capacidad suficiente, con el fin de que los usuarios y agentes comercializadores puedan verificar el contenido neto de producto en el momento de adquirir el cilindro. La información de control metrológico de la balanza deberá encontrarse disponible para la Aresep en el sitio.

@@ -1,0 +1,2 @@
+Artículo 74° - Del sistema de medición en los equipos de envasado de cilindros en plantas envasadoras de GLP.
+Los sistemas de envasado de cilindros de GLP (llenadoras) deberán ser automáticas o semiautomáticas, con básculas para medición de masa o con básculas para medición de masa en combinación con medidores másicos de tipo Coriolis o similares, con la capacidad de proceso necesaria para cumplir con los estándares de cantidad establecidos en este reglamento.

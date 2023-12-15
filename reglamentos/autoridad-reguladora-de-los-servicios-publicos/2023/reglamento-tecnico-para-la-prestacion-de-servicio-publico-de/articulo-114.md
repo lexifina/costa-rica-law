@@ -1,0 +1,3 @@
+Artículo 114° - De la responsabilidad sobre los cilindros
+Es obligación del comercializador de GLP verificar que los cilindros portátiles cumplan con lo dispuesto en la normativa vigente en la verificación de información troquelada, buen estado del cilindro, cantidad envasada, sello de inviolabilidad y presencia de fugas, de previo a la venta de los cilindros al consumidor final.
+En caso de detectar cualquiera de estos incumplimientos deberá rechazar los cilindros al distribuidor que le provee el servicio y solicitarle su sustitución. En caso de entregar los cilindros en estas condiciones a los usuarios finales, el comercializador será responsable solidario por el incumplimiento.

@@ -1,0 +1,4 @@
+Artículo 161° - De los laboratorios de calibración y verificación de los sistemas de medición
+Los laboratorios de calibración y verificación de los sistemas de medición o conteo de los instrumentos y equipos utilizados para la prestación el servicio público, deberán estar debidamente acreditados ante el Ente Costarricense de Acreditación
+(ECA) o la autoridad correspondiente según lo establecido en la legislación vigente en la materia.
+Los laboratorios utilizados deberán disponer de patrones certificados y trazables, los ensayos y pruebas deberán estar debidamente acreditados, y los instrumentos utilizados para llevar a cabo las pruebas deberán estar calibrados y poseer un plan de verificación, calibración y mantenimiento de acuerdo con las especificaciones establecidas por el fabricante y de conformidad con la normativa vigente.

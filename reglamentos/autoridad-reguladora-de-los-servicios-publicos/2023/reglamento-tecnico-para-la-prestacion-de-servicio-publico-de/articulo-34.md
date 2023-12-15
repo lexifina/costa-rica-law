@@ -1,0 +1,2 @@
+Artículo 34° - Sobre los lineamientos y procedimientos de inspección
+Los lineamientos específicos, procedimientos de muestreo, inspección y evaluación de la conformidad, así como las verificaciones documentales y complementarias relacionadas a la calidad, cantidad, confiabilidad y prestación óptima y autorizada del servicio, se realizarán con base en lo dispuesto en las resoluciones de la Intendencia de Energía, y los protocolos de inspección aprobados por esta para tal fin, los cuales serán publicados en la página web de la Aresep www.aresep.go.cr

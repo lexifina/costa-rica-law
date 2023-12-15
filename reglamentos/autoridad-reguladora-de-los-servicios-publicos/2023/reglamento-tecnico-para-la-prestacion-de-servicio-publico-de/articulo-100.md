@@ -1,0 +1,2 @@
+Artículo 100° - Del sistema de medición de GLP por ducto (medidores).
+Los sistemas de medición tipo gasómetro, en cuanto a la determinación de la cantidad de GLP suministrada por ducto en usuarios comerciales y de redes, sus especificaciones, calibración y fiscalización, deberán cumplir con las condiciones establecidas en las resoluciones de la Intendencia de Energía, hasta tanto no se publique el reglamento específico aplicable sobre la materia.

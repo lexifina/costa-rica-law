@@ -1,0 +1,5 @@
+Artículo 73° - De la cantidad de producto y la unidad de venta
+El cumplimiento del peso o cantidad del producto entregado en el cilindro o en la venta a granel es responsabilidad de la empresa envasadora que envasó el cilindro, llenó el tanque (estacionario o autotanque) o realiza el suministro a través del ducto.
+La envasadora debe garantizar a los distribuidores con los que opere, que los cilindros entregados para la venta cumplan con el contenido de GLP que corresponda para cada capacidad de cilindro.
+El llenado de cilindros se hará respetando el peso en kilogramos conforme lo indicado en el pliego tarifario para cada capacidad de cilindro, respetando sus especificaciones de fabricación y las tolerancias de cantidad establecidas por la Aresep.
+En el caso del envasado de tanques y autotanques, así como el suministro por redes a través de medidores, se hará respetando la unidad de venta y las tolerancias de cantidad establecidas en este reglamento para cada modalidad según corresponda.

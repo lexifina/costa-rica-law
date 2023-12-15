@@ -1,0 +1,3 @@
+Artículo 155° - Sobre los equipos autorizados para la prestación del servicio
+Los agentes, dentro del marco de prestación del servicio público y exclusivamente en relación con la actividad para la que posean autorización, únicamente podrán adquirir cilindros portátiles, válvulas, tanques estacionarios, medidores, camiones cilindreros, cisternas graneleras, así como cualquier otro accesorio necesario para el adecuado transporte, envasado, distribución, comercialización y suministro de GLP, debidamente autorizados y que cumplan con las especificaciones de
+fabricación, importación, uso y mantenimiento establecidos en la normativa vigente y este reglamento según corresponda.
