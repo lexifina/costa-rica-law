@@ -1,0 +1,1 @@
+ARTÍCULO 61.- Ante la ausencia definitiva de uno de los miembros, este será sustituido por la persona que haya sido electa por el mismo mecanismo por el cual se eligió al miembro con ausencia definitiva, por el plazo restante del período en ejercicio, según los Registros que lleve al efecto el Comité Cantonal y la Secretaría del Concejo Municipal.

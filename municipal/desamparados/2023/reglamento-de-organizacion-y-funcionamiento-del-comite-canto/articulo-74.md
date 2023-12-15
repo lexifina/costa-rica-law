@@ -1,0 +1,2 @@
+ARTÍCULO 74.- Las Asambleas son mecanismos de elección autocompositivo y sus decisiones son soberanas, por lo cual no tendrán ulterior recurso salvo el de reposición ante la propia Asamblea quien deberá conocer el recurso en el mismo acto. No obstante, lo anterior estarán sometidas a control de constitucionalidad y legalidad de conformidad con la legislación procesal aplicable.
+Le corresponde a las Asambleas la elección de sus representantes ante el Comité Cantonal de Deportes de conformidad con la Ley.

@@ -1,0 +1,1 @@
+ARTÍCULO 90.- La Junta Directiva del Comité Cantonal evaluara y autorizara iniciativas de ventas de publicidad por concepto de colocación de vallas o anuncios, cuyas tarifas deberán ajustarse anualmente conforme a los Estudios Técnicos que respalden las mismas.

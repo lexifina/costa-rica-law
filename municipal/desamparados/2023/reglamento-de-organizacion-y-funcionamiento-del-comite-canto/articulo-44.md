@@ -1,0 +1,1 @@
+ARTÍCULO 44.- Serán requisitos para ocupar los distintos puestos operativos, técnicos, administrativos y profesionales los definidos en este Reglamento y los contenidos en el Manual de Puestos aprobado por el Concejo Municipal y los demás instrumentos de gestión del personal y reclutamiento vigentes en la Municipalidad de Desamparados.

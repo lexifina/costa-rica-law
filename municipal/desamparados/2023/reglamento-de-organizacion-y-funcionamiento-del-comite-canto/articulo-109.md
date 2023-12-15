@@ -1,0 +1,3 @@
+ARTÍCULO 109.- El titular de la Dirección Ejecutiva deberá realizar al menos un arqueo cada dos meses al Fondo fijo de la Caja Chica. Se podrá realizar los arqueos adicionales que consideren necesarios con el propósito de verificar, supervisar y controlar el uso de los recursos públicos y de velar por la correcta aplicación de las normas y principios de auditoria vigentes y de las sanas prácticas de administración.
+El resultado de los arqueos deberá ser comunicados mediante un informe a la Junta Directiva del CCDRD con copia a la Auditoría Interna de la Municipalidad de Desamparados.
+La Dirección Ejecutiva deberá realizar al menos un informe semestral del manejo del Fondo de Caja Chica informando a la Junta Directiva del CCDRD, con copia al Concejo Municipal.

@@ -1,0 +1,1 @@
+ARTÍCULO 117.- Se deroga el Reglamento para el Funcionamiento del Comité Cantonal de Deportes y Recreación de Desamparados y el Reglamento Municipal para la Elección de los Miembros del Comité Cantonal de Deportes y Recreación del Cantón de Desamparados.

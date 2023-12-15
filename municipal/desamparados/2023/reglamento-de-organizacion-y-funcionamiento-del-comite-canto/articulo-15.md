@@ -1,0 +1,7 @@
+ARTÍCULO 15.- Serán causales para la pérdida de condición de integrante de la Junta Directiva las siguientes causas:
+a) Por incumplimiento de los deberes y obligaciones de su cargo o de la función pública en general, o la inobservancia de los deberes asignados como parte de la Junta Directiva del Comité con base en el presente reglamento; debidamente demostrada en un procedimiento administrativo seguido al efecto por el Concejo Municipal en calidad de órgano decisor.
+b) Ausencia injustificada a cuatro sesiones en forma consecutiva, lo cual deberá ser informado al Concejo Municipal con indicación y copia de las actas de las sesiones a las que no asistió el miembro, las respectivas convocatorias y la lista de asistencia con las formas de los integrantes presentes, para el respectivo acuerdo de destitución previa audiencia al interesado con motivo que tenga oportunidad de justificar sus ausencias.
+c) Ser nombrada o nombrado en los cargos de Alcalde, Vicealcalde, Regidor, Síndico, Tesorero, Contador, Auditor Interno de la Municipalidad de Desamparados mientras se encuentre nombrado en el cargo de Junta Directiva del Comité.
+d) Por inhabilitación en virtud de resolución jurisdiccional que lo imposibilite de ejercer cargos públicos o le haga imposible cumplir con sus deberes como miembro de la Junta Directiva.
+e) Por renuncia.
+Al presentarse cualquiera de estas causales, el Concejo Municipal dictará una resolución debidamente motivada con indicación de la fecha en la cual la destitución surte eficacia, acorde con las particularidades de cada causal.

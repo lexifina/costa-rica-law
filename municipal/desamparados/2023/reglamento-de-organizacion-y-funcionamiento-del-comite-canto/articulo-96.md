@@ -1,0 +1,1 @@
+ARTÍCULO 96.- El Fondo de Caja Chica contendrá siempre el total del monto asignado, el cual, según el caso, estará integrado de la siguiente forma: dinero en efectivo, vales liquidados y vales en trámite de reintegro. En ningún momento podrán sustituirse estos valores por otros, de índole extraña a la naturaleza del Fondo de la Caja Chica.

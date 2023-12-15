@@ -1,0 +1,1 @@
+ARTÍCULO 58.- Los Comités Distritales Comunales estarán integrados de la manera que lo estipula la Ley que los crea, y los miembros durarán en ejercicio de sus cargos por un período de dos años, iniciando en el mes de agosto posterior a su elección, siendo juramentados para el ejercicio de sus funciones por el Concejo Municipal en el mes de julio previo a su instalación.

@@ -1,0 +1,4 @@
+ARTÍCULO 118.- Con motivo de la aplicación en el tiempo de la presente norma, el proceso de inscripción, registro y realización de las Asambleas para la elección de los miembros del Comité Cantonal de Deportes empezará una vez este reglamento entre en vigencia, luego de su segunda publicación en el Diario Oficial la Gaceta.
+Rige a partir de su publicación en el Diario Oficial La Gaceta. "
+SEGUNDO: Remitir a la Comisión Permanente de Gobierno y Administración el borrador de la "Propuesta de Reglamento para la realización de audiencia pública para estudio de plan regulador" edición editable, para incorporar los aportes al reglamento.
+TERCERO: Remitir a la Comisión Permanente de Gobierno y Administración el borrador de la propuesta del "Reglamento de Calificación de Idoneidad de Sujetos Públicos para Administrar Fondos Públicos", en edición editable, para incorporar los aportes al reglamento.

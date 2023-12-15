@@ -1,0 +1,5 @@
+ARTÍCULO 52.- El presupuesto debe elaborarse reflejando los planes, propuestos y programas que se ejecutarán en el período que éste cubre de conformidad con las exigencias legales y reglamentarias establecidas al efecto. El presupuesto debe contener una estimación de ingresos, siendo que los gastos presupuestarios no pueden exceder los ingresos estimados y deberá cumplir con la normativa legal que limita las asignaciones presupuestarias de gastos.
+El Comité Cantonal de Deportes y Recreación deberá formular su presupuesto en amparo a los principios de eficacia y eficiencia de los recursos disponibles, considerando presupuestar recursos que consideren los siguientes elementos:
+a. El límite el diez por ciento de su presupuesto para gastos administrativos.
+b. El destino de recursos para el desarrollo, impulso de programas y planes recreativos y deportivos, independiente de las obras o inversiones conexas o necesarias.
+c. Los recursos destinados a obras e inversiones, que se encontrarán sujetos a la coordinación previa de los planes de obras e inversiones con el ente local.

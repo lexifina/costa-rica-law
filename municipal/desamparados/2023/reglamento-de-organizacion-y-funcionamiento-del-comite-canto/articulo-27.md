@@ -1,0 +1,1 @@
+ARTÍCULO 27.- Todo integrante del Comité Cantonal deberá comunicar las razones de su inasistencia a las sesiones, a más tardar dentro de las veinticuatro horas siguientes al cese de la causa de su impedimento para asistir a sesionar, por medio electrónico o presencial ante la oficina del Comité Cantonal. En caso de omisión, la inasistencia se tendrá por injustificada.

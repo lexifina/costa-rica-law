@@ -1,0 +1,1 @@
+ARTÍCULO 112.- Las personas encargadas del Fondo de Caja Chica no podrán guardar documentos, efectivo o cheques que sean de propiedad particular o de otra persona en los lugares destinados para tal fin; no podrán suplir el dinero de su peculio para compras o pagos que correspondan al Comité.

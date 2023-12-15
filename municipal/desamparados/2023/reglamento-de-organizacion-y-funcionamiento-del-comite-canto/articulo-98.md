@@ -1,0 +1,1 @@
+ARTÍCULO 98.- Los vales de Caja Chica deberán confeccionarse en el sistema financiero que utilice la administración con sus respectivas firmas. Dicho documento se mantendrá en Tesorería, y servirá de comprobante de pago. el caso de anulación de vales, se mantendrán en el consecutivo.

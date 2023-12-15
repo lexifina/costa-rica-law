@@ -1,0 +1,16 @@
+Municipalidad de Desamparados
+La Municipalidad de Desamparados comunica que, al atenderse las observaciones al proyecto de "Reglamento de Organización y Funcionamiento del Comité Cantonal de Deportes y Recreación de Desamparados", publicado inicialmente en La Gaceta no. 35 de fecha 24 de febrero de 2023, el Concejo Municipal de Desamparados acordó con fundamento en el dictamen 11-2023, código no. 1798 de la Comisión Permanente de Gobierno y Administración, tomar el acuerdo no. 12 de la sesión no. 60-2023, celebrada el 10 de octubre de 2023, que entre a regir a partir de la presente publicación:
+PRIMERO: Ajustar la redacción del Reglamento de Organización y Funcionamiento del Comité Cantonal de Deportes y Recreación de Desamparados, así como el ajuste del articulado del mismo y la incorporación del Capítulo XV Sobre el funcionamiento del Fondo de Caja Chica, para que la versión para segunda publicación de este reglamento sea en los siguientes términos:
+Considerandos:
+Primero: Que el artículo 178 del Código Municipal, establece que el Comité Cantonal de Deportes de cada Cantón, funcionará con el reglamento que dicte la respectiva Municipalidad, el cual deberá considerar, además, las normas para regular el funcionamiento de los comités comunales y subcomités comunales, y la administración de las instalaciones deportivas municipales, siendo responsabilidad del Concejo Municipal el dictado de dicho Reglamento de conformidad con el artículo 13 inciso c) del Código Municipal.
+Segundo: Que el Concejo Municipal como superior jerárquico del Comité Cantonal de Deportes, debe velar por que este Reglamento sea un instrumento que colabore con el logro de objetivos y defina la organización, procedimientos, responsabilidades y establezca pautas claras para la actuación del Comité Cantonal de Deportes.
+POR TANTO:
+El Concejo Municipal procede a la aprobación del REGLAMENTO DE ORGANIZACIÓN Y FUNCIONAMIENTO DEL COMITÉ CANTONAL DE DEPORTES Y RECREACIÓN DE DESAMPARADOS, con motivo de que sea realizada su primera publicación de conformidad con el siguiente texto:
+REGLAMENTO DE ORGANIZACIÓN Y FUNCIONAMIENTO DEL COMITÉ
+CANTONAL DE DEPORTES Y RECREACIÓN DEL CANTÓN DE
+DESAMPARADOS
+CAPÍTULO I
+DISPOSICIONES GENERALES
+ARTÍCULO 1.- El Comité Cantonal de Deportes y Recreación de Desamparados, es un órgano desconcentrado adscrito a la Municipalidad de Desamparados, dependiente del Concejo Municipal. Cuenta con personalidad jurídica instrumental, por lo que cuenta con una gestión presupuestaria independiente y, por ende, la titularidad de un presupuesto propio.
+Con cargo a dicho presupuesto, deberá realizar de manera informada con la Municipalidad el desarrollo de planes, proyectos y programas deportivos y recreativos cantonales, así como para administrar y mantener las instalaciones deportivas de su propiedad o las otorgadas en administración por parte de la Municipalidad de Desamparados mediante el respectivo convenio firmado al efecto.
+Para el cumplimiento de los fines descritos en este reglamento y la ley, podrá contratar el recurso humano necesario, nombrarlo o destituirlo. Todas sus actuaciones se regirán por el Código Municipal, el presente reglamento, y cualquier otra normativa conexa que le resulte aplicable.

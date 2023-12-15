@@ -1,0 +1,3 @@
+ARTÍCULO 2.- El Comité Cantonal de Deportes y Recreación de Desamparados tendrá su domicilio legal en el inmueble que la Municipalidad le proporcione para tal efecto.
+El Comité Cantonal podrá sesionar de manera excepcional y temporal en otros lugares del cantón de Desamparados para realizar actividades especiales, para lo cual deberá tomar acuerdo con al menos dos semanas de antelación, y deberá publicitar dicho cambio en su sede, así como comunicarlo por medio de los mecanismos tecnológicos con los que disponga.
+Asimismo, la Junta Directiva del Comité Cantonal podrá sesionar de manera virtual de forma excepcional en los términos referidos en el presente reglamento.
