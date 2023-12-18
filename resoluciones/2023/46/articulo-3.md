@@ -1,0 +1,1 @@
+Artículo 3º-Esta resolución deja sin efecto la resolución número RES-DGH-040-2022 de las doce horas y veinte minutos del dos de diciembre de dos mil veinte dos, así como, cualquier otra disposición que se le oponga.
