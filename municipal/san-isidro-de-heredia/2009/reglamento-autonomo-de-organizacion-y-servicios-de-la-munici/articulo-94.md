@@ -1,1 +1,2 @@
-Artículo 94.—La evaluación o calificación anual de servicios servirá como reconocimiento a los(as) servidores(as) para estimular y lograr una mayor eficiencia así como factor a considerar en el proceso de reclutamiento y la selección, la capacitación, los ascensos, el aumento de sueldo, la concesión de permisos y las reducciones forzosas de personal.
+Artículo 94. - La evaluación o calificación anual de servicios servirá como reconocimiento a las personas servidoras para estimular y lograr una mayor eficiencia, así como factor a considerar en el proceso de reclutamiento y la selección, la capacitación, los ascensos, la concesión de permisos y las reducciones forzosas de personal.
+(Así reformado mediante sesión ordinaria No. 0081-2023 del 18 de diciembre de 2023)

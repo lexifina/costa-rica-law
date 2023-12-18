@@ -1,3 +1,1 @@
-Artículo 53.—Los objetivos básicos de la Carrera Profesional son:
-a) Reconocer por medio de un estímulo económico la superación académica y laboral de los profesionales al servicio de la administración municipal.
-b) Coadyuvar en el reclutamiento y retención de los o las profesionales mejor calificados en cada área de actividad para un adecuado desempeño de la función municipal.
+Artículo 53.- (Derogado mediante sesión ordinaria No. 0081-2023 del 18 de diciembre de 2023)

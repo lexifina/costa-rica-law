@@ -1,0 +1,2 @@
+TRANSITORIO I.- Para el reconocimiento de incrementos porcentuales en los salarios del personal municipal, deberán contemplarse las reglas previstas en el Transitorio XI de la Ley Marco de Empleo Público, No. 10.159 y la reglamentación existente al efecto, respecto a aquellos salarios que se encuentren por encima del salario global definido por la organización municipal.
+(Así adicionado mediante sesión ordinaria No. 0081-2023 del 18 de diciembre de 2023)

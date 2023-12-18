@@ -1,1 +1,2 @@
-Artículo 6º—Los(las) Directores(as) y todos aquellos funcionarios (as) que tengan bajo su responsabilidad, tareas de administración o supervisión de personal, son responsables ante el Alcalde(sa) o Vicealcalde(sa) designado, de velar por la correcta aplicación de todas las disposiciones de este reglamento.
+Artículo 6.- Las personas que ocupan puestos de director o directora, las jefaturas y todo aquel personal municipal que tenga bajo su responsabilidad tareas de administración o supervisión de personal son responsables ante el Alcalde(sa) o Vicealcalde(sa) designado de velar por la correcta aplicación de todas las disposiciones de este reglamento.
+(Así reformado mediante sesión ordinaria No. 0081-2023 del 18 de diciembre de 2023)

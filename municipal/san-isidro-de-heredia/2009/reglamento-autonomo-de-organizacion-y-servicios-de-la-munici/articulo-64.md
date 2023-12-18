@@ -1,1 +1,1 @@
-Artículo 64.—Los o las profesionales que estén disfrutando del incentivo de carrera profesional con una formación académica no atinente a la especialidad del puesto o condiciones, mantendrán el derecho a disfrutar del incentivo.
+Artículo 64.- (Derogado mediante sesión ordinaria No. 0081-2023 del 18 de diciembre de 2023)

@@ -1,1 +1,2 @@
-Artículo 16.—La información contenida en el expediente y prontuario personal es de carácter confidencial y sólo tendrán acceso a ella los funcionarios(as) que los requieran exclusivamente para labores propias del cargo, además del servidor(a) o su representante legal, debidamente acreditado como apoderado.
+Artículo 16.- Los datos sensibles de la persona funcionaria que se encuentren contenidos en el expediente y prontuario personal son de carácter confidencial y sólo tendrán acceso a ella el personal municipal que los requieran exclusivamente para labores propias del cargo, además del servidor, servidora o su representante legal, debidamente acreditado como apoderado.
+(Así reformado mediante sesión ordinaria No. 0081-2023 del 18 de diciembre de 2023)

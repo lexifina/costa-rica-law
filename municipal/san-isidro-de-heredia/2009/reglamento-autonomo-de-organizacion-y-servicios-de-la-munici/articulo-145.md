@@ -1,7 +1,4 @@
-Artículo 145.—El o la Alcalde(sa) podrá prorrogar los permisos autorizados mediante resolución interna y con apego estricto a las siguientes disposiciones:
-a) Hasta seis meses para asuntos personales, la cual podrá ser prorrogada por seis meses más en casos muy especiales.
-b) Hasta un año para:
-1- Asuntos graves de familia, tales como enfermedad, convalecencia o tratamiento médico, cuando así lo requiera la salud del o la funcionario(a).
-2- Realización de estudios académicos en materias, especialidades o campos de indudable interés para la Municipalidad, a nivel superior de pregrado, grado o postgrado, o a nivel técnico que requiera de la dedicación exclusiva del o la funcionario(a) durante la jornada de trabajo.
-3- Para la ejecución de proyectos experimentales dentro de un traspaso de actividades del sector municipal hacia el privado, que haya sido aprobado por el o la Alcalde(sa) y que implique el desligamiento del o la funcionario(a) de la municipalidad.
-c) Toda solicitud de licencia sin goce de salario o prórroga de la misma, requerirá la presentación de los documentos en que se fundamenta, la cual, para su trámite debe de hacerse con un mes de antelación ante las instancias indicadas. Transcurrido el mes sin que exista resolución por parte de la administración, se entenderá autorizada la licencia o prórroga.
+Artículo 145.- Los permisos sin goce de salario se otorgarán por un plazo de hasta por seis meses.
+Adicionalmente, a criterio de la Alcaldía Municipal y mediante resolución razonada, podrán prorrogarse por una única vez y por un plazo igual al concedido inicialmente, previa solicitud de la persona interesada y la verificación de que no se perjudicará el funcionamiento municipal.
+Los permisos que se concedan al amparo de los incisos 3, 4 y 5 del artículo anterior, podrán ser prorrogados hasta por un año adicional a los primeros seis meses.
+(Así reformado mediante sesión ordinaria No. 0081-2023 del 18 de diciembre de 2023)

@@ -43,6 +43,7 @@ articulo-41.md
 articulo-42.md
 articulo-43.md
 articulo-44.md
+articulo-44-bis.md
 articulo-45.md
 articulo-46.md
 articulo-47.md
@@ -144,9 +145,11 @@ articulo-140.md
 articulo-141.md
 articulo-142.md
 articulo-143.md
+articulo-143-bis.md
 articulo-144.md
 articulo-145.md
 articulo-146.md
+articulo-146-bis.md
 articulo-147.md
 articulo-148.md
 articulo-149.md
@@ -196,3 +199,5 @@ articulo-191.md
 articulo-192.md
 articulo-193.md
 articulo-194.md
+articulo-1-transitorio.md
+articulo-2-transitorio.md

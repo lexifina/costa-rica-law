@@ -1,1 +1,2 @@
-Artículo 102.—La Municipalidad reconocerá un 3% (tres por ciento) anual sobre el salario base, denominándose anualidad, por cada año de servicio, sin límite de tiempo.
+Artículo 102. - La Municipalidad reconocerá anualmente un monto nominal fijo por concepto de anualidad en los términos dispuestos por la Ley de Salarios de la Administración Pública, No. 2166, el título III de la Ley de Fortalecimiento de las Finanzas Públicas, No. 9635 y aquellas regulaciones de la Ley Marco de Empleo Público, No. 10.159 que le resulten aplicables.
+(Así reformado mediante sesión ordinaria No. 0081-2023 del 18 de diciembre de 2023)

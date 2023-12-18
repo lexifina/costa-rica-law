@@ -1,1 +1,2 @@
-Artículo 33.—Son servidores(as) municipales los nombrados(as) de acuerdo con el artículo 125 del Código Municipal y que satisfagan los requisitos que establece el Manual de Puestos de la Municipalidad, el artículo 111 de la Ley General de la Administración Pública y lo estipulado en el artículo 118 del Código Municipal.
+Artículo 33.- Son servidores(as) municipales los nombrados(as) de acuerdo con el artículo 134 del Código Municipal y que satisfagan los requisitos que establece el Manual de Puestos de la Municipalidad, el artículo 111 de la Ley General de la Administración Pública y lo estipulado en el artículo 127 del Código Municipal.
+(Así reformado mediante sesión ordinaria No. 0081-2023 del 18 de diciembre de 2023)

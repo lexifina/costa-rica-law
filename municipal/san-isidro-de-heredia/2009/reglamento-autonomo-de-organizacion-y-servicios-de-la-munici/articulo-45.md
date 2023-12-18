@@ -1,1 +1,2 @@
-Artículo 45.—Todo(a) funcionario(a) de la Municipalidad deberá pasar satisfactoriamente un periodo de prueba de tres meses de servicio -a criterio de la Alcaldía, contados a partir de la fecha de vigencia del acuerdo de su nombramiento.
+Artículo 45. - Toda persona servidora de la Municipalidad deberá pasar satisfactoriamente un periodo de prueba de tres meses de servicio -a criterio de la Alcaldía, contados a partir de la fecha de vigencia del acuerdo de su nombramiento. Ello con excepción de los puestos directivos, quienes tendrá un periodo de prueba de seis meses.
+(Así reformado mediante sesión ordinaria No. 0081-2023 del 18 de diciembre de 2023)

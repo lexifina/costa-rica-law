@@ -1,1 +1,1 @@
-Artículo 58.—El o la Alcalde(sa) registrará la fecha de recibo de las solicitudes formuladas. La fecha de vigencia de la concesión inicial (no de los ajustes), será a partir del primer día del siguiente mes calendario a la fecha de recibo de la solicitud.
+Artículo 58.- (Derogado mediante sesión ordinaria No. 0081-2023 del 18 de diciembre de 2023)

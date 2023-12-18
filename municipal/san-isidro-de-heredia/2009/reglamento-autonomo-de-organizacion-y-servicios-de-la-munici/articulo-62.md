@@ -1,1 +1,1 @@
-Artículo 62.—El valor de cada punto se establecerá mediante resolución de la Dirección General de Servicio Civil y será revisado por él periódicamente por costo de vida.
+Artículo 62.- (Derogado mediante sesión ordinaria No. 0081-2023 del 18 de diciembre de 2023)

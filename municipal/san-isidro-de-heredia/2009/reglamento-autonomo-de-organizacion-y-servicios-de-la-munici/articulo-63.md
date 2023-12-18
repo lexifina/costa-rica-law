@@ -1,1 +1,1 @@
-Artículo 63.—El monto del incentivo derivado de la aplicación de los factores previstos para la carrera profesional, se establecerá mediante el valor de cada punto y de acuerdo con los procedimientos indicados en este cuerpo de normas.
+Artículo 63.- (Derogado mediante sesión ordinaria No. 0081-2023 del 18 de diciembre de 2023)

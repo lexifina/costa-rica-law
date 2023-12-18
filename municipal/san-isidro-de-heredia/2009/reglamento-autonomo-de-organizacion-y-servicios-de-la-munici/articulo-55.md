@@ -1,2 +1,1 @@
-Artículo 55.—Se tomará como factores de incentivos para la Carrera Profesional lo siguiente:
-Obtención de grados académicos y la realización de estudios de posgrados adicionales al grado de bachillerato universitario, la capacitación recibida y relativa al puesto que ocupa, la experiencia profesional en instituciones del estado y en organismos internacionales, la experiencia docente en instituciones de enseñanza de nivel universitaria o para universitario y las publicaciones efectuadas.
+Artículo 55.- (Derogado mediante sesión ordinaria No. 0081-2023 del 18 de diciembre de 2023)

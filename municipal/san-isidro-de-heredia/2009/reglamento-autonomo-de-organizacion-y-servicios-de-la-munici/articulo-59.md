@@ -1,1 +1,1 @@
-Artículo 59.—La Alcaldía Municipal con la información suministrada por el Departamento de Recursos Humanos, aprobará o no, dicho beneficio, en un plazo no mayor de diez días hábiles contados a partir de la fecha de presentación, por parte del o la funcionario(a). Una vez aprobado, la Municipalidad procederá a través de la Administración, a confeccionar la acción de personal correspondiente, la cual deberá seguir el trámite usual que rige en la institución.
+Artículo 59.- (Derogado mediante sesión ordinaria No. 0081-2023 del 18 de diciembre de 2023)
