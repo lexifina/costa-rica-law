@@ -1,5 +1,2 @@
-Artículo 3º—De los mecanismos de ejecución: para el cumplimiento del presente decreto, el Instituto Mixto de Ayuda Social podrá emplear los siguiente mecanismos:
-a) Contratar con la Imprenta Nacional el diseño y elaboración del material impreso objeto del presente decreto. En este caso, la Imprenta Nacional producirá el material, adecuando los costos a los precios mínimos de elaboración.
-b) Suscribir convenios de cooperación con otros entes de derecho público para el aporte de artículos escolares en el ámbito de sus competencias.
-c) Gestionar con la empresa privada, bajo el concepto de responsabilidad social, la donación de artículos escolares para la población beneficiaria del presente decreto; así como otros tipos de ayuda que facilite el cumplimiento de los objetivos del presente decreto.
-d) Recurrir a cualquier forma de contratación administrativa, según los montos y requerimientos establecidos en la Ley de Contratación Administrativa.
+Artículo 3º-De los beneficiarios del programa objeto del presente decreto: se considerarán como beneficiarios del presente decreto, las personas estudiantes de educación primaria y secundaria, en condición de pobreza, que reciban la transferencia monetaria condicionada del programa Avancemos y que cumplan con los criterios de priorización que sean aprobados por el Consejo de Coordinación de Avancemos.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 44330 del 18 de diciembre de 2023)

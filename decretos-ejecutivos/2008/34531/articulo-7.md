@@ -1,1 +1,1 @@
-Artículo 7º—De los controles: corresponderá al Instituto Mixto de Ayuda Social en coordinación con el Ministerio de Educación Pública, establecer las regulaciones, procedimientos y mecanismos de operación, seguimiento, control y fiscalización necesarios para la óptima ejecución del Programa. Dichos controles deberán ser debidamente formalizados en los primeros cuarenta días hábiles posteriores a la publicación del presente decreto.
+Artículo 7º-De los controles: (Derogado por el artículo 2° del decreto ejecutivo N° 44330 del 18 de diciembre de 2023)

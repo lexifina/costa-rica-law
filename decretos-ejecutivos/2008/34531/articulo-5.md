@@ -1,3 +1,3 @@
-Articulo 5º—De la Distribución: con el fin de realizar el proceso de distribución de los artículos escolares de manera objetiva, técnica y equitativa, el Instituto Mixto de Ayuda Social coordinará con el Ministerio de Educación Pública su entrega a los centros educativos.
-Corresponderá al Ministro de Educación Pública y al Presidente Ejecutivo del IMAS, girar las instrucciones pertinentes a las diferentes unidades de la entidad a su cargo. con el fin de que se brinde la colaboración respectiva en la distribución y entrega de los cuadernos, uniformes y otros útiles escolares.
-La entrega del beneficio se realizará a cada estudiante por una única vez al año, de conformidad con la disponibilidad de recursos existente.
+Artículo 5º-De las coordinaciones: Corresponderá al Instituto Mixto de Ayuda Social en coordinación con el Ministerio de Educación Pública, emplear las normas, procedimientos y mecanismos de operación, seguimiento, control y fiscalización necesarios para la óptima ejecución del Programa.
+Dichos controles deberán ser debidamente convenidos en los primeros cuarenta días hábiles posteriores a la publicación del presente decreto.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 44330 del 18 de diciembre de 2023)

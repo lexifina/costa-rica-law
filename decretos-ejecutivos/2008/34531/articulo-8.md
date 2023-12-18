@@ -1,1 +1,1 @@
-Artículo 8º—Del apoyo institucional: se faculta a los Ministerios, Instituciones Públicas y demás entes y órganos del Estado para brindar al Instituto Mixto de Ayuda Social el apoyo logístico necesario para la ejecución del presente decreto.
+Artículo 8º-Del apoyo institucional: (Derogado por el artículo 2° del decreto ejecutivo N° 44330 del 18 de diciembre de 2023)

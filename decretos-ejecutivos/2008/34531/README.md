@@ -15,3 +15,4 @@ Establece programa “Cuadernos e implementos escolares”
 | --- | --- | --- |
 | 1 | 2008-06-05 | la propia norma |
 | 2 | 2013-07-09 | Decreto Ejecutivo 37970 (2013-07-09) |
+| 3 | 2023-12-18 | Decreto Ejecutivo 44330 (2023-12-18) |
