@@ -1,0 +1,2 @@
+Artículo 58.- Los ministerios, las entidades públicas y sus órganos desconcentrados, en aras de cumplir el principio de publicidad del presupuesto, deberán divulgar en sus páginas web los presupuestos, su programación de metas y resultados de cada periodo ante la sociedad civil. Asimismo, deberán crear los mecanismos que propicien la participación ciudadana.
+(Así modificada su numeración por el artículo 2° del decreto ejecutivo N° 44326 del 18 de diciembre de 2023, que lo traspaso del antiguo artículo 49 al artículo 58)

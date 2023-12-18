@@ -1,1 +1,2 @@
-Artículo 51.- La STAP, cuando corresponda, divulgará en la página electrónica del MH, los requisitos o trámites que deben cumplir los ministerios, las entidades públicas y sus órganos desconcentrados, para que sus gestiones o solicitudes sean atendidas.
+Artículo 51º.- Los ministerios, las entidades públicas y sus órganos desconcentrados, deberán eliminar los puestos vacantes que se generen por movilidad laboral voluntaria en aplicación del artículo 25 de la Ley N.º 6955, o por reestructuración organizacional, excepto cuando las vacantes se originen por cambios en el perfil del puesto que conllevan a homologaciones o modificaciones en los manuales vigentes.
+(Así adicionado por el artículo 2° del decreto ejecutivo N° 44326 del 18 de diciembre de 2023)

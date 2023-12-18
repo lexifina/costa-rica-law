@@ -1,1 +1,4 @@
-Artículo 46.- Toda estructura organizacional, así como sus modificaciones, deberá contar con la aprobación del MIDEPLAN, de conformidad con el Decreto Ejecutivo N.º 26893-MTSS-PLAN, Reglamento a la Ley Marco para la Transformación Institucional y reformas a la Ley de Sociedades Anónimas Laborales del 06 de enero de 1998 y sus reformas, publicado en La Gaceta N.º 88 del 08 de mayo de 1998 y sus reformas. Además ele cumplir con lo establecido en el Decreto Ejecutivo N.º 41162-H, Limitación a las reestructuraciones, publicado en el Alcance N.º 115 ele La Gaceta N.º 100 del 06 de junio de 2018 y sus reformas.
+CAPÍTULO VI
+Sobre empleo
+Artículo 46°.- Las plazas por servicios especiales no se podrán convertir a plazas por cargos fijos.
+(Así adicionado por el artículo 2° del decreto ejecutivo N° 44326 del 18 de diciembre de 2023)

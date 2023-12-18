@@ -14,3 +14,4 @@ Directrices generales de política presupuestaria, salarial, empleo, inversión 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-03-31 | la propia norma |
+| 2 | 2023-12-18 | Decreto Ejecutivo 44326 (2023-12-18) |

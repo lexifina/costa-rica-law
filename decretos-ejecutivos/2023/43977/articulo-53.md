@@ -1,2 +1,2 @@
-Artículo 53.- Para la formulación de los presupuestos rige a partir de su publicación y para su ejecución a partir del 01 de enero y hasta el 31 de diciembre del 2024.
-Dado en la Presidencia de la República, a los catorce días del mes de marzo del dos mil veintitrés
+Artículo 53º .- No se permitirán las reasignaciones de puestos ocupados en propiedad y vacantes, para los ministerios, las entidades públicas y sus órganos desconcentrados; con excepción de aquellas reasignaciones que sean descendentes o bien aquellas reasignaciones que mantengan el mismo nivel salarial.
+(Así adicionado por el artículo 2° del decreto ejecutivo N° 44326 del 18 de diciembre de 2023)
