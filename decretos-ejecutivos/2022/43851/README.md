@@ -14,3 +14,4 @@ Actualización del impuesto solidario para el fortalecimiento de programas de vi
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-01-01 | la propia norma |
+| 2 | 2023-12-18 | Decreto Ejecutivo 44328 (2023-12-18) |
