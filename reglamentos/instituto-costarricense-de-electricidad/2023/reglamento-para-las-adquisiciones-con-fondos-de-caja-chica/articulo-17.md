@@ -1,0 +1,1 @@
+Artículo 17. Los Órganos competentes para aprobar las adquisiciones se regirán conforme lo establecido en la directriz de montos para autorizar compras con fondos por Caja Chica, queemita la Gerencia General.

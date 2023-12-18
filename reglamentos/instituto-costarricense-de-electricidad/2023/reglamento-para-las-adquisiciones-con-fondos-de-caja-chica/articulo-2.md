@@ -1,0 +1,1 @@
+Artículo 2. ALCANCE. Aplica para todas aquellas dependencias a nivel institucional encargadas de llevar a cabo compras con fondos de Caja Chica que sean indispensables e impostergables, siempre que no exceda el 10% de la licitación reducida del régimen ordinario.
