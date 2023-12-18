@@ -1,10 +1,13 @@
 SECCIÓN II
 Registro de emisiones de gobiernos centrales, organismos internacionales y entidades públicas
-Artículo 31.-Requisitos para el registro de valores emitidos por el Gobierno Central y Banco Central costarricenses y extranjeros, así como organismos internacionales con participación del Estado costarricense.
-El emisor deberá presentar los siguientes documentos:
+Artículo 31: Registro de valores emitidos por el Gobierno Central y Banco Central costarricenses y extranjeros, así como organismos internacionales con participación del Estado costarricense.
+(Así reformado el párrafo anterior mediante sesión N° 1843-2023 del 18 de diciembre del 2023)
+El emisor deberá presentar y considerar lo siguiente:
+(Así reformado el párrafo anterior mediante sesión N° 1843-2023 del 18 de diciembre del 2023)
 a. Solicitud firmada por el representante legal de la entidad.
 b. Descripción de las características de la emisión, de conformidad con los artículos 9 y 17.
-c. Mecanismos que se utilizarán para la colocación, compensación y liquidación de conformidad con las disposiciones establecidas en los artículos 42 y 43, con indicación del agente de pago.
+c. Mecanismos que se utilizarán para la colocación, compensación y liquidación de conformidad con las disposiciones establecidas en los artículos 42 y 43, con indicación del agente de pago. Cuando el gobierno central costarricense recurra a la figura de creadores de mercado, podrá utilizar los mecanismos de colocación directa o subasta, para realizar colocaciones exclusivas de las emisiones referencia para creación de mercado entre los intermediarios autorizados para fungir como tales, de conformidad con las reglas de negocio que establezca el emisor, las cuales deberán ser previamente consultadas a la Superintendencia.
+(Así reformado el inciso anterior mediante sesión N° 1843-2023 del 18 de diciembre del 2023)
 d. En caso de emisores extranjeros, calificación de riesgo. Para estos efectos se dará por válida la información que se presente sobre la calificación de riesgo país. En el caso de organismos internacionales se requerirá la calificación de la emisión.
 e. Verificación externa, realizada por un tercero experto e independiente del emisor que acredite el cumplimiento de los principios y estándares internacionales o nacionales reconocidos por el CONASSIF en materia ambiental, social y sostenible, para emisiones temáticas de contenido crediticio, de conformidad con el Acuerdo SUGEVAL 20-22 Reglamento sobre Verificadores Externos y Verificaciones Externas para Emisiones Temáticas y las disposiciones que establezca el Superintendente mediante acuerdo de alcance general.
 El alcance y los resultados de la verificación externa deben ponerse a disposición de los inversionistas en el sitio web de los emisores y en el Registro Nacional de Valores e Intermediarios. La verificación externa deberá actualizarse como mínimo anualmente, durante el plazo de la emisión.
