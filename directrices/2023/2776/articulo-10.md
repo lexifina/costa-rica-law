@@ -1,0 +1,1 @@
+Artículo 10.-Solución Conflictos. Los temas controversiales o reclamos que puedan surgir por el uso de los sistemas y las aplicaciones virtuales del Instituto Costarricense de Turismo, implican la aceptación y sometimiento a las leyes y normas de la República de Costa Rica y serán resueltas por los tribunales competentes, según corresponda.

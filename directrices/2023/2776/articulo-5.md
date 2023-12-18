@@ -1,0 +1,1 @@
+Artículo 5º-Portal digital / Uso firma digital. De acuerdo con el artículo 26 del Reglamento de Procedimiento Tributario, en el caso de actuaciones a través del portal digital, para efectos de control y seguridad, la clave de acceso será generada por un proceso automático del sistema.

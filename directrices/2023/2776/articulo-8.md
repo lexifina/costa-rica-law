@@ -1,0 +1,1 @@
+Artículo 8º-Responsabilidad por la información contenida. El Departamento de Tecnologías de la Información no asume responsabilidad alguna por la integridad, veracidad, exactitud, oportunidad, actualización, conveniencia, contenido y uso que se le dé a la información registrada en el sitio web y sistemas institucionales.

@@ -1,0 +1,1 @@
+Artículo 11.-Incumplimiento. Se hace del conocimiento al usuario, que el incumplimiento de los términos o condiciones indicados, pueden constituir una violación de las leyes costarricenses, con las consecuencias y sanciones que las mismas impongan; previo debido proceso.

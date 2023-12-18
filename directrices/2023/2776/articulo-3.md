@@ -1,0 +1,5 @@
+Artículo 3º-Lineamientos de la Declaratoria de la Política. La utilización de las diferentes aplicaciones virtuales del Instituto Costarricense de Turismo, y su contenido, constituyen un acuerdo entre quien ingrese; que, al acceder, navegar o usar algunas de las aplicaciones de la herramienta web del Departamento de Administración Tributaria; el usuario reconoce que ha leído, entendido y aceptado, por lo que se encuentra obligado a cumplir con estos términos, y con el ordenamiento aplicable.
+La política de privacidad se basa en:
+a) La solicitud de los datos necesarios para poder proporcionarle los servicios que requiere.
+b) La privacidad de los datos de carácter personal; los cuales serán tratados de acuerdo a lo establecido en la Ley N°8968, Protección de la Persona Frente al Tratamiento de sus Datos Personales; y su respectivo reglamento, sin perjuicio del ordenamiento aplicable.
+c) Aplicaciones web; utilizando cookies cuando así se requiera, para el correcto funcionamiento y visualización de la información, con una vigencia temporal limitada.
