@@ -20,3 +20,4 @@ Manual de Macroproceso de defensa de los derechos e intereses de la Defensoría 
 | 5 | 2022-06-27 | Reglamento 0 (2022-06-27) |
 | 6 | 2022-07-26 | Reglamento 0 (2022-07-26) |
 | 7 | 2023-11-10 | Reglamento 0 (2023-11-10) |
+| 8 | 2023-12-18 | Acuerdo 2669 (2023-12-18) |
