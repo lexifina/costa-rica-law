@@ -1,0 +1,1 @@
+TRANSITORIO V- Los miembros del Tribunal de Honor actual, al momento de la entrada en vigencia de esta ley, se mantendrán en funciones hasta la siguiente Asamblea General convocada al efecto, en que se elijan los miembros propietarios y miembros suplentes de acuerdo con la presente ley.

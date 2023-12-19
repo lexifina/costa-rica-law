@@ -1,0 +1,2 @@
+ARTÍCULO 7- Ejercicio profesional
+Solamente las personas incorporadas en el Colegio podrán desempeñar las funciones públicas y privadas, relacionadas con el ejercicio profesional de la odontología. Las personas que ejerzan sin la debida autorización del Colegio, las que se encuentren suspendidas en el ejercicio profesional por el Colegio, y por cualquier causa, incurrirán en el delito de ejercicio ilegal de la profesión.

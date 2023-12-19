@@ -1,0 +1,5 @@
+ARTÍCULO 10- Pago de cuotas de colegiatura
+Los profesionales incorporados en el Colegio deberán cumplir con sus obligaciones económicas relacionadas con el pago de cuota de colegiatura que establezca la Asamblea General.
+Se suspenderá, en el ejercicio de la profesión, al que falte al pago de tres cuotas con las consecuencias que señale esta ley. El odontólogo suspendido en el ejercicio profesional, por la falta de pago, no puede ejercer la profesión y, si la ejerciera, incurrirá en el delito de ejercicio ilegal de la profesión. La suspensión se levantará con el pago de las cuotas atrasadas más el porcentaje de multa establecidos por la Junta Directiva.
+El Colegio podrá publicar en el diario oficial La Gaceta, en medios electrónicos, informáticos y en uno de los diarios de mayor circulación, el nombre y código profesional de los odontólogos suspendidos.
+La Junta Directiva determinará, por la vía del reglamento, los casos en que puede otorgarse una cuota de colegiatura reducida o, en su caso, eximirse del pago al colegiado.

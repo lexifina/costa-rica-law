@@ -1,0 +1,4 @@
+ARTÍCULO 25- Recursos
+Contra las resoluciones propias de la Junta Directiva procede el recurso de revocatoria que resolverá la misma Junta y, el de apelación, para ante la Asamblea General, con excepción de la materia disciplinaria sancionatoria y de las apelaciones que se resuelvan en contra de los actos de cualesquiera de los órganos del Colegio, en cuyos casos la resolución de la Junta Directiva agota la vía administrativa.
+Ambos recursos, tanto el de revocatoria como el de apelación, pueden establecerse separados y conjuntamente, a más tardar en la próxima sesión ordinaria de la Junta Directiva, la cual convocará a la Asamblea General en caso de apelación. Cuando la resolución perjudique a alguien, los recursos pueden plantearse en la sesión de la Junta Directiva siguiente a la notificación que se haga al interesado de lo resuelto.
+Las resoluciones de la Junta Directiva que sean recurridas, no se ejecutarán hasta tanto no haya recaído la resolución definitiva.

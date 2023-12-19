@@ -1,0 +1,2 @@
+ARTÍCULO 19- Junta Directiva
+La Junta Directiva es el órgano ejecutivo del Colegio y estará integrada por siete personas colegiadas que ocuparán los siguientes cargos: presidente, vicepresidente, secretario, tesorero, primer vocal, segundo vocal y tercer vocal. Se deberá garantizar la representación paritaria de ambos sexos, de tal forma que, si el órgano colegiado es impar, la diferencia entre el total de hombres y mujeres no podrá ser superior a uno.

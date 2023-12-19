@@ -1,0 +1,2 @@
+ARTÍCULO 21- Duración en el cargo de Junta Directiva
+Los nombramientos de la Junta Directiva del Colegio serán por períodos de dos años. Se elegirán en años alternos de la siguiente manera: un año se renovarán la presidencia, vicepresidencia, primera vocalía y segunda vocalía. Al siguiente año se renovarán la secretaría, tesorería y tercera vocalía. Podrán ser reelegidos hasta por un período sucesivo, en el mismo cargo o en otro distinto y recibirán una dieta por las sesiones que celebren, la cual se establecerá en el presupuesto general de egresos.
