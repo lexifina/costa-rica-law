@@ -1,0 +1,2 @@
+ARTÍCULO 8- Trastornos por consumo de sustancias psicoactivas
+Los trastornos por consumo de sustancias psicoactivas legales e ilegales son condiciones de dependencia que deben ser incluidas como parte integral de las políticas de salud mental. Las personas con estos trastornos tienen todos los derechos y las garantías que se establecen en la presente ley, en su relación con los servicios de salud para su prevención y eventual tratamiento .

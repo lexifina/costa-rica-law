@@ -1,0 +1,2 @@
+ARTÍCULO 28- Tiempo de internamiento
+El tiempo de internamiento debe ser según criterio médico, establecido por la evolución clínica del paciente y el uso racional y eficiente de los recursos hospitalarios y asistenciales. El médico psiquiatra deberá realizar una evaluación a los treinta días, cuando se dé un internamiento prolongado; podrá consultar al equipo multidisciplinario para tomar la decisión de continuar o no con el internamiento. El médico tratante no deberá tener parentesco con el paciente.

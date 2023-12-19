@@ -1,0 +1,2 @@
+ARTÍCULO 25- Comité de Apoyo Educativo
+El Comité de Apoyo Educativo, que funciona en todos los centros educativos y en todas las modalidades del sistema educativo nacional, incorporará, entre sus funciones, recomendar a la dirección de la institución los ajustes razonables metodológicos y realizará propuestas de adecuaciones curriculares para las personas estudiantes, para la prevención de problemas de salud mental y el seguimiento que requieran las personas con trastornos mentales y del comportamiento.

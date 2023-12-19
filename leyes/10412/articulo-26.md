@@ -1,0 +1,3 @@
+ARTÍCULO 26- Trabajo interinstitucional
+La Secretaría Técnica de Salud Mental, a través de los tres niveles de gestión y por medio de la acción intersectorial e interinstitucional, debe establecer los mecanismos necesarios de coordinación para desarrollar planes de promoción, prevención, atención, rehabilitación y reinserción con enfoque comunitario.
+El desarrollo de la política en salud mental deberá contener mecanismos claros y eficientes de participación de las instituciones requeridas y de comunidad, en particular de organizaciones de usuarios y familiares de los servicios de salud mental.

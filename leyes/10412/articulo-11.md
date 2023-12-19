@@ -1,0 +1,8 @@
+Artículo 11- Condiciones de las instancias que brindan la atención de la salud metal
+A las personas usuarias del sistema nacional de salud mental en el entender de la promoción y prevención de salud en estos servicios, y, además, a las personas pacientes internadas en os servicios médicos y unidades de psiquiatría de los distintos hospitales o internadas en hospitales psiquiátricos, se les debe garantizar protección contra los tartos crueles, inhumanos y degradantes. Específicamente, las instancias deben:
+a) Garantizar que las condiciones de los dispositivos de salud donde se ingresen estos pacientes cuenten con instalaciones adecuadas para el manejo de esta población, entendiendo el carácter ambulatorio de muchos casos y la necesidad de áreas adecuadas para esta característica, así como que cuenten con todas las condiciones necesarias para el adecuado funcionamiento y prestación de servicios asistenciales en salud.
+b) Garantizar la interacción con personas, sin importar su género.
+c) Asegurar comunicación libre con el exterior del centro médico, de acuerdo con la normativa vigente y las condiciones clínicas del paciente o aspectos epidemiológicos.
+d) Contar con un trato basado en la empatía, de parte del personal que les atiende.
+e) Asegurar el apoyo de la persona garante de las personas usuarias, en caso de que se les dificulte la interpretación de la información.
+f) Contar con un programa psicosocial, con el objetivo de mejorar si funcionamiento en su entorno social para el logro de la mayor independencia posible y un programa de interrelación familiar para las personas usuarias.

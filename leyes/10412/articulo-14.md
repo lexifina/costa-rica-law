@@ -1,0 +1,3 @@
+ARTÍCULO 14- Modalidad de abordaje de la salud mental
+Debe promoverse que el abordaje de la salud mental de las personas usuarias se realice a nivel local, en centros dentro de su comunidad, haciendo pronta, oportuna y accesible la atención, ampliando la oferta de servicios en todos los niveles de atención. Al igual que en otras áreas de la salud, cuando así sea requerido, se hará un abordaje multidisciplinario, haciendo un uso equitativo de los recursos existentes.
+El proceso de atención debe realizarse preferentemente fuera del ámbito de internamiento hospitalario, siempre y cuando esto sea posible según las características de cada caso clínico particular.

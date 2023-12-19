@@ -1,0 +1,2 @@
+ARTÍCULO 6- Fuentes supletorias
+En ausencia de disposición expresa de su texto, se aplicarán supletoriamente, en lo que sean compatibles, la Ley 7600, Igualdad de Oportunidades para las Personas con Discapacidad, de 2 de mayo de 1996; la Ley 5395, Ley General de Salud, de 30 de octubre de 1973; la Ley 9379, Ley para la Promoción de la Autonomía de las Personas con Discapacidad, de 18 de agosto de 2016 y la Ley 7739, Código de la Niñez y la Adolescencia, de 6 de enero de 1998.
