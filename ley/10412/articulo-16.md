@@ -1,0 +1,6 @@
+ARTÍCULO 16- Secretaría Técnica de Salud Mental
+La Secretaría Técnica de Salud Mental, junto con otras instancias del Ministerio de Salud en los tres niveles de gestión, en su calidad de rectora en salud mental, coordinará, promoverá y fiscalizará que las instancias que brindan servicios de salud mental cumplan con la atención de las necesidades de las personas usuarias.
+Este órgano en los tres niveles de gestión debe promover que las autoridades de salud de cada jurisdicción, en coordinación con las áreas de educación, desarrollo social, trabajo y otras que correspondan, implementen acciones de inclusión social, laboral y de atención en salud mental comunitaria. Se debe promover el desarrollo de dispositivos tales como:
+a) Programas y servicios de promoción de la salud mental y prevención de trastornos mentales y del comportamiento.
+b) Consultas ambulatorias; atención domiciliaria supervisada y apoyo a las personas y grupos familiares y comunitarios; grupos de apoyo mutuo en las comunidades, así como otras prestaciones tales como casas de convivencia, hospitales de día, hogares y familias sustitutas .
+c) Servicios de inclusión social y laboral para personas después del alta institucional; cooperativas de trabajo, centros de capacitación socio-laboral, emprendimientos sociales.
