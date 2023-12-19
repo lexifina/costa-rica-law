@@ -16,4 +16,4 @@ Por una única vez, se pueden realizar readecuaciones por tercera vez en conveni
 Las demás condiciones establecidas en los artículos 14 y 18 de este reglamento se mantienen incólumes.
 (Así adicionado mediante sesión N° 9043 del 19 de julio del 2019)
 (Así reformado en sesión N° 9145 del 10 de diciembre del 2020)
-(Nota de Sinalevi: Mediante sesión N° 9355 del 20 de julio del 2023, la Junta Directiva de la CCSS, acuerda mantener la aplicación hasta el 31 de diciembre de 2023, del presente transitorio)
+(Nota de Sinalevi: Mediante sesión N° 9398 del 19 de diciembre de 2023, la Junta Directiva de la CCSS, aprobó la prórroga de las ocho medidas transitorias al presente reglamento que regula la formalización de acuerdos de pago por deudas por patronos y trabajadores independientes con la Caja Costarricense de Seguro Social, las cuales regirán hasta el 31 de marzo de 2024)
