@@ -1,0 +1,2 @@
+ARTÍCULO 38- Conformación del Tribunal Electoral
+El Tribunal Electoral elegirá de su seno una persona, quien asumirá la Presidencia y será el coordinador del Tribunal, una Secretaría y una primera, segunda y tercera Vocalía, debiendo la Secretaría levantar las actas respectivas. El cuórum estará formado por tres de sus miembros y sus resoluciones se tomarán por simple mayoría, teniendo la Presidencia doble voto, en caso de empate.

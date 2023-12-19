@@ -1,0 +1,1 @@
+TRANSITORIO III- Los asuntos que, a la entrada en vigencia de la presente ley, estén conociendo el Tribunal de Honor y la Fiscalía, se seguirán conociendo hasta su terminación, de acuerdo con las disposiciones legales y reglamentarias que a la fecha estén vigentes.

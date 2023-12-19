@@ -1,0 +1,1 @@
+TRANSITORIO II- Las disposiciones de esta ley, referentes a los nombramientos de los miembros de Junta Directiva, se aplicarán al vencimiento del período de los actuales miembros de la Junta Directiva.
