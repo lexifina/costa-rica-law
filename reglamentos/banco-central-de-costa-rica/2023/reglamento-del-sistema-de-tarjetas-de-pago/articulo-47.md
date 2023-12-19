@@ -1,0 +1,1 @@
+Artículo 47.Comisiones de las operaciones de pago en moneda extranjera: Para toda operación de pago adquirida en el territorio nacional con un dispositivo de pago de un emisor nacional, las marcas de tarjetas no pueden establecer comisiones diferenciadas a emisores y adquirentes, en virtud de la moneda acordada entre el afiliado y el cliente.

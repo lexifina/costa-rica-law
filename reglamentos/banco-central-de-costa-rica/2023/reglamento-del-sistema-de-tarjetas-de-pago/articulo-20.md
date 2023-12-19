@@ -1,0 +1,1 @@
+Artículo 20.Liquidación de transacciones en BCCR. Las operaciones de pago efectuadas en colones con dispositivos de pago emitidos en el territorio nacional deben liquidarse sobre las cuentas de fondos mantenidas por los proveedores de servicio en el BCCR, utilizando para esos efectos la infraestructura de pagos interbancarios del BCCR.

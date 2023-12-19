@@ -1,0 +1,1 @@
+Artículo 30.En el caso de los servicios de adquirencia que permiten el procesamiento de operaciones de pago con tarjeta no presente, el adquirente debe asegurarse que el servicio se brindará al cliente, a través de una página web segura.

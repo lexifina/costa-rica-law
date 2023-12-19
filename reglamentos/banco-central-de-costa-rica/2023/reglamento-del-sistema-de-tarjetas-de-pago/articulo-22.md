@@ -1,0 +1,1 @@
+Artículo 22.Procesamiento de transacciones de SINPE-TP. Los emisores deben preparar sus infraestructuras tecnológicas y procedimientos operativos para procesar transacciones de SINPE-TP, de conformidad con las normas técnicas emitidas por el BCCR para dichas transacciones.

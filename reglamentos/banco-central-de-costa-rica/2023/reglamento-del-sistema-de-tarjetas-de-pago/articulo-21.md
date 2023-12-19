@@ -1,0 +1,1 @@
+Artículo 21.De la acreditación de fondos al afiliado. Los adquirentes deberán acreditar y dejar disponibles en la cuenta del afiliado, los fondos producto de las operaciones de pago en colones liquidadas en el BCCR y en moneda extranjera liquidadas en los corresponsables bancarios, a más tardar dos horas después de dicha liquidación.

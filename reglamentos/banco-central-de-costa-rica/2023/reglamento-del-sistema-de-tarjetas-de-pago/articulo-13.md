@@ -1,0 +1,4 @@
+CAPÍTULO V
+DE LAS TRANSACCIONES DE PAGO
+Artículo 13.Autenticación del cliente. Toda operación de pago que se realice en forma presencial por un valor mayor al monto de pago rápido, realizada con un dispositivo de pago emitido o habilitado por un emisor nacional, requiere de la autenticación del cliente con PIN en línea en el POS, o en forma alternativa, utilizando algún mecanismo de autenticación reforzada del cliente, siendo el emisor del dispositivo de pago el responsable de esta autenticación como autorizador de la transacción. En el caso de transacciones realizadas con dispositivos de emisores extranjeros, el cliente se autenticará según el mecanismo definido por el propio emisor.
+Los emisores de dispositivos de pago deberán divulgar y capacitar a sus clientes en el uso adecuado del PIN y de cualquier otro mecanismo de autenticación reforzada utilizado.

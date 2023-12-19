@@ -1,0 +1,1 @@
+Artículo 33.De la aceptación de pagos por parte del afiliado. El afiliado deberá aceptar todas las operaciones de pago que el cliente solicite, sin discriminar por el monto de la operación de pago o el tipo de dispositivo de pago.

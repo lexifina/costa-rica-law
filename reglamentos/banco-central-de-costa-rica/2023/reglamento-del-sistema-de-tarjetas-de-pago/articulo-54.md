@@ -1,0 +1,1 @@
+Artículo 54.Del pago de sanciones administrativas al BCCR. Las sanciones administrativas que el BCCR imponga deberán ser pagadas a la orden del BCCR, dentro de los quince días hábiles siguientes a la fecha en que quede firme el acto final correspondiente.

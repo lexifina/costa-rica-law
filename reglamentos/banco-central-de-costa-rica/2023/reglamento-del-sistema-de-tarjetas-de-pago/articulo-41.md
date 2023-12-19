@@ -1,0 +1,4 @@
+CAPÍTULO X
+DE LAS COMISIONES
+Artículo 41.De la comisión máxima de intercambio local. Para todo tipo y monto de operaciones de pago locales, tipos de dispositivo de pago y actividades comerciales, los emisores podrán cobrar al adquirente la comisión máxima de intercambio de 1,25%. Se exceptúan de esta comisión las siguientes actividades: a) estaciones de servicio, b) servicios de recarga de vehículos eléctricos, c) peajes, d) servicios de transporte, regulados por la ARESEP, y e) organizaciones de beneficencia, a las cuales se les aplicará una comisión máxima de intercambio de 1,00%.
+Las marcas de tarjetas deberán publicar, en su página web, las comisiones de intercambio local vigentes para el sistema costarricense de tarjetas de pago, según el tipo y monto de la operación de pago local, el tipo de dispositivo de pago y la actividad comercial.
