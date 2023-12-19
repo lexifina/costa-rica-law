@@ -1,2 +1,0 @@
-ANEXOS
-[imagen]

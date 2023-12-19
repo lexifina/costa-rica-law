@@ -1,1 +1,0 @@
-Artículo 9°—De las compras. Toda compra por Caja Chica deberá quedar respaldada por la factura en formato físico o electrónico (pdf, xml y acuse de recibo). Las compras que realicen con avances de efectivo deberán ser estrictamente de contado y las de transferencia electrónica de fondos deberán liquidarse dentro de los siguientes 60 días naturales después de emitida la factura.
