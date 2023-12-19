@@ -1,0 +1,1 @@
+Artículo 21.-Personas ajenas: En los vehículos municipales es terminantemente prohibido que viajen personas ajenas a la Municipalidad, salvo en ocasiones especiales en que medie autorización de la Alcaldía municipal.

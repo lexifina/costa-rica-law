@@ -1,0 +1,1 @@
+Artículo 18.-De la conducción del vehículo: Es absolutamente prohibido a la persona autorizada para conducir un vehículo, ceder la conducción del vehículo a otras personas no autorizadas, salvo razones muy calificadas que deberán comunicarse a la Gestión y/o Proceso respectivo.

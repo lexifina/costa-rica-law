@@ -1,0 +1,1 @@
+Artículo 32.-Sanciones: Las infracciones al presente reglamento serán sancionadas disciplinariamente de acuerdo a la normativa vigente en el Reglamento Autónomo de Organización y Servicio de la Municipalidad de Desamparados, el Código de Trabajo y este reglamento.

@@ -1,0 +1,3 @@
+CAPÍTULO IV
+De la autorización y del control
+Artículo 14.-De la autorización para el manejo de vehículos: Será responsabilidad del Gestor y/o coordinador de cada Gestión y/o Proceso, solicitar la autorización para el uso de vehículos a un determinado funcionario, para lo cual deberá realizar la solicitud a los Procesos de Talento Humano y Administración de Servicio de Mantenimiento Automotor, una vez que se ha presentado dicha solicitud el proceso de Administración y Servicio de Mantenimiento Automotor esperará el visto bueno del proceso de Talento Humano para realizar la prueba de manejo, una vez realizada la misma, se informará a la jefatura inmediata el resultado de esta. En caso de ser satisfactoria se dará la autorización para conducir vehículos municipales.

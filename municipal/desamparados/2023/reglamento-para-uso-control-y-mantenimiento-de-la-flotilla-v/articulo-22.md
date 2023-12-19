@@ -1,0 +1,1 @@
+Artículo 22.-Uso a particulares: Es absolutamente prohibido autorizar el uso de vehículos, ya fuese de uso discrecional, administrativo, de seguridad, carga pesada, equipo especial a cualquier persona ajena a la Municipalidad de Desamparados, salvo por caso de fuerza mayor o estado de necesidad.

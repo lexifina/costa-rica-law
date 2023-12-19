@@ -1,0 +1,5 @@
+Artículo 30. Sobre el resarcimiento a favor de la Municipalidad. Si de la investigación de la Municipalidad o el fallo de la autoridad competente se declara responsable al conductor de la Municipalidad involucrado con el accidente, éste deberá pagar:
+a) Los costos no cubiertos por la póliza del Instituto Nacional de Seguros para este tipo de riesgos (deducibles porcentuales, etc.).
+b) Los otros costos en que incurra la Municipalidad o las indemnizaciones que haga la Municipalidad mediante arreglos a terceros afectados o mediante arreglos extrajudiciales, cuando el costo del daño sea inferior al monto del deducible.
+c) Cuando medie sentencia judicial se ejecutará de inmediato la misma, el funcionario por cuya negligencia llegara a operarse prescripción de las sanciones disciplinarias, se hará acreedor del despido sin responsabilidad patronal, de igual forma se procederá con la pérdida de puntos de su licencia al ejecutarse la suspensión de la misma, ello previa verificación del procedimiento administrativo correspondiente.
+d) Lo aquí estipulado será aplicado sin perjuicio de las sanciones disciplinarias que se le endilguen al trabajador.

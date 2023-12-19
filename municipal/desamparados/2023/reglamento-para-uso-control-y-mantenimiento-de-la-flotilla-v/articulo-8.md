@@ -1,0 +1,36 @@
+Artículo 8º-Funciones del Proceso de Administración y Servicio de Mantenimiento Automotor: En materia de uso, control y mantenimiento de los vehículos municipales, dicha unidad tendrá las siguientes funciones:
+a) Gestionar el reemplazo ante el Registro Nacional de Costa Rica de las placas en mal estado.
+b) Gestionar, de acuerdo con la Ley de Contratación Administrativa y los Reglamentos vigentes, la contratación del mantenimiento preventivo, correctivo, compra de repuestos, lubricantes y otros que requieran los vehículos administrativos asignados, según el programa que deberá definir y comunicar a los encargados de cada vehículo.
+c) Generar de forma mensual, el formato homogéneo de los reportes de consumo de combustible y su respectivo kilometraje.
+d) Le corresponde al Proceso de Administración y Servicio de Mantenimiento Automotor, en conjunto con el Proceso de Adquisiciones tramitar los derechos de circulación de toda la flotilla vehicular municipal, de la siguiente manera:
+i) El Coordinador del Proceso Administración y Servicio de Mantenimiento Automotor solicita al Registro de la Propiedad las certificaciones digitales de toda la flotilla vehicular y las envía junto con el listado al Proceso supra indicado de los vehículos que requieren el derecho de circulación para que este solicite al Ministerio de Hacienda la exoneración de los derechos de circulación.
+ii) El Coordinador del Proceso Administración y Servicio de Mantenimiento Automotor envía el listado a la empresa aseguradora de los vehículos que requieren los derechos de circulación, y las correspondientes pólizas de seguro.
+e) Indicar a los Gestores y/o coordinadores municipales encargados de vehículos asignados a los Procesos y/o gestiones que encabezan, las fechas en que los mismos deben asistir a la revisión técnica vehicular.
+f) Establecer un programa permanente de mantenimiento y reparación de vehículos.
+g) Llevar el control de los vehículos que estén en servicio y el detalle de su estado, así como los que están fuera de servicio y el motivo, informándolo a la Alcaldía Municipal.
+h) Integrar la información a nivel de toda la Municipalidad en materia de los vehículos municipales, para lo cual, las distintas unidades con vehículos asignados le deberán suministrar la información necesaria, en forma oportuna y en los formatos que defina el Proceso Administración y Servicio de Mantenimiento Automotor. Esa información será la base para preparar cualquier informe que se requiera sobre el uso, mantenimiento y control de los vehículos.
+? Kilómetros recorridos.
+? Consumo de combustible.
+? Rendimiento del vehículo.
+? Reparaciones hechas, con indicación de su costo.
+? Incidentes o accidentes.
+? Estado mecánico de los vehículos.
+? Cambios de aceite.
+? Estado de las llantas.
+i) Atender y tramitar todos los aspectos administrativos y de análisis técnico que sea necesario realizar, con motivo de accidentes de tránsito en que intervengan vehículos de la Municipalidad de Desamparados.
+j) Llevar un registro detallado y actualizado de todos los conductores autorizados. Ese registro debe contener al menos lo siguiente: nombre; cédula; tipo, número y fecha de vencimiento de la licencia de conducir; Gestión y/o Proceso en la que labora; cargo; detalle sobre accidentes.
+k) Realizar reportes mensuales del consumo de combustible de cada vehículo de la flotilla vehicular, los mismos servirán para remitirlos mediante formularios a la Gestión Financiera y al Proceso de Ingresos y Gastos para su validación y por consiguiente solicitar a la entidad bancaria la recarga de las tarjetas de combustible.
+l) Brindar asistencia técnica para la adquisición de servicios de mantenimientos preventivos, correctivos, lubricantes, repuestos, accesorios, entre otros a las diferentes Gestiones y / o Procesos que tengan vehículos asignados.
+m) Atender las solicitudes de transportes de la Gestión y/o Proceso respectivo con el fin de determinar el medio más eficiente para satisfacerlo.
+n) Realizar las pruebas de manejo correspondientes y otorgar los permisos de conducir a los funcionarios que por la índole de sus tareas, requieran conducir vehículos de la Municipalidad. Posterior al otorgamiento de visto bueno del Proceso de Talento Humano y a la verificación respectiva de la licencia de conducir.
+o) En cada adquisición que haga la Municipalidad de Desamparados de vehículos nuevos, equipo pesado o maquinaria amarilla, le corresponde al Proceso de Administración y Servicio de Mantenimiento Automotor, realizar el proceso ante la entidad aseguradora para asegurar las unidades.
+p) Le corresponde al Proceso de Administración y Servicio de Mantenimiento Automotor, en conjunto con el Proceso de Adquisiciones y Asesoría Jurídica, y con el visto bueno de la Alcaldía Municipal, en seguimiento de lo dispuesto en la Ley General de Contratación Pública, realizar el proceso de des inscripción, donación o remate de los activos en desuso, de la siguiente manera:
+i) El Coordinador del Proceso Administración y Servicio de Mantenimiento Automotor realiza el inventario y envía un informe a los Procesos supra indicados y a la Gestión Administrativa de los activos para su des inscripción.
+ii) El Proceso de adquisiciones se encarga de realizar el procedimiento de contratación para adquirir los servicios profesionales notariales para dicho fin. Realizar el procedimiento ante el Ministerio de Hacienda para el trámite de exoneración para posteriormente realizar de des inscripción ante el Registro Nacional. Además de realizar el debido Proceso de remate o donación. iii) La Asesoría Jurídica se encarga de los trámites correspondientes ante el Registro de la Propiedad.
+q) Garantizar que todo vehículo municipal asignado, cuente con una bitácora de uso de vehículo en la cual se controla al menos: el nombre del chofer, firma del chofer, número de cédula del chofer, las fechas de uso, horario de salida y entrada, kilometraje de salida y entrada, sitio o lugar de salida, destino y labor a realizar y la información del consumo de combustible (Fecha del abastecimiento, N° de factura, monto, cantidad de combustible en litros, kilometraje u horas según corresponda, nombre de la estación de servicio y placa del vehículo).
+r) Verificar y corregir cualquier situación anómala que determine consumos excesivos o irregulares en algún vehículo de la flotilla vehicular.
+s) Llevar un expediente de cada vehículo administrativo asignado, el cual debe contener al menos: las características del vehículo, reparaciones realizadas; derecho de circulación, título de propiedad, hoja de revisión técnica vehicular, formulario de aseguramiento, tarjeta de pesos y dimensiones cuando corresponda, número de activo, formularios de accidentes, infracciones de tránsito.
+t) Controlar y supervisar la ejecución de los diferentes servicios de mantenimiento a nivel externo e interno, así como el cumplimiento de Garantías.
+u) Determinar y coordinar las necesidades de repuestos y suministros, para los vehículos. Asimismo, coordinar con las dependencias del caso, para satisfacerlas.
+v) Velar por el buen funcionamiento mecánico de los vehículos.
+w) Promover el desarrollo de programas y actividades de adiestramiento y capacitación para los mecánicos y choferes.
