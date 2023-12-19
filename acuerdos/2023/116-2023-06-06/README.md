@@ -14,3 +14,4 @@ Reforma Reglamento para el seguimiento, control y vigilancia de embarcaciones pe
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-06-29 | la propia norma |
+| 2 | 2023-12-19 | Acuerdo 312 (2023-12-19) |

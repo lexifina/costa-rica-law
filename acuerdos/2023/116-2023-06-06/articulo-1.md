@@ -1,4 +1,6 @@
+(Derogado)
 INSTITUTO COSTARRICENSE DE PESCA Y ACUICULTURA
+(Esta norma se dejó sin efecto mediante acuerdo N° AJDIP/312-2023 del 19 de diciembre del 2023)
 AJDIP/116-2023.-Puntarenas, a los seis días del mes junio de dos mil veintitrés.
 Considerando:
 1°-Que por medio de los Acuerdos de Junta Directiva AJDIP/077-2020, AJDIP/076-2022, AJDIP/247-2022, AJDIP/030-2023 y AJDIP/031-2023, respectivamente, se estableció el "Reglamento para el Seguimiento, Control y Vigilancia de Embarcaciones Pesqueras de las Flotas Nacional y Extranjera", mismo que conlleva la obligatoriedad para las embarcaciones de la flota pesquera nacional y extranjera de contar debidamente instalada y en uso un sistema de radio baliza enlazada con el Centro de Control, Monitoreo y Vigilancia del INCOPESCA.
@@ -11,4 +13,3 @@ Transitorio II: "Para las embarcaciones de Pesca Deportiva y Turística de media
 2°-Dejar sin efecto el Acuerdo de Junta Directiva AJDIP/031-2023.
 3°-Acuerdo firme.
 4°-Publíquese.
-<span lang=es-419 style='font-size: </body>
