@@ -1,0 +1,1 @@
+ARTÍCULO 2- Se autoriza al Estado-Ministerio de Educación Pública para que done el terreno descrito en el artículo uno anterior, libre de gravámenes y anotaciones, en favor de la Caja Costarricense de Seguro Social (CCSS).
