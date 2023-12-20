@@ -1,0 +1,1 @@
+Artículo 3º-El bien inmueble donado se destinará, exclusivamente, a mantener, remodelar y, en su caso, construir nueva infraestructura que cumpla las funciones y los objetivos de las Temporalidades de la Diócesis de San Isidro de El General, para el Consejo Pastoral del Barrio Los Ángeles.
