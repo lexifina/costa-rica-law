@@ -1,0 +1,1 @@
+Artículo 2º-Se desafecta de dominio público el terreno segregado en el artículo anterior y se autoriza a la Municipalidad del cantón de Buenos Aires para que lo done a las Temporalidades de la Diócesis de San Isidro de El General, cédula de persona jurídica número tres-cero uno cero-cero cuatro cinco dos siete nueve (N° 3-010-045279).
