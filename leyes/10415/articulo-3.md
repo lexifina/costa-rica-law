@@ -1,0 +1,6 @@
+ARTÍCULO 3- Se adiciona el transitorio VIII a la Ley 8642, Ley General de Telecomunicaciones, de 4 de junio de 2008.
+TRANSITORIO VIII- En el plazo de treinta días, a partir de la entrada en vigencia de la ley, las personas físicas y/o jurídicas que posean aparatos o equipos bloqueadores o inhibidores de frecuencias y señales radioeléctricas de los sistemas de comunicación, según se definen en el inciso 31) del artículo 6 de la Ley 8642, Ley General de Telecomunicaciones, deberán entregarlos al Ministerio de Seguridad Pública para proceder con la destrucción de estos, de conformidad con la normativa existente en el país para la gestión integral de los residuos electrónicos y eléctricos.
+Se exceptúan los equipos bloqueadores o inhibidores de frecuencias y señales radioeléctricas de los sistemas de comunicación que sean utilizados en recintos penitenciarios, de reinserción social, de internamiento para menores y de educación autorizados, conforme con el inciso 4 del artículo 49 de la Ley 8642, Ley General de Telecomunicaciones, de 4 de junio de 2008.
+Rige a partir de su publicación.
+Dado en la Presidencia de la República, San José, a los veintinueve días del mes de noviembre del año dos mil veintitrés.
+EJECÚTESE Y PUBLIQUESE.
