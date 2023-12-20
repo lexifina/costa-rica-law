@@ -1,0 +1,2 @@
+Artículo 22. Precios unitarios y totales. La CNE, podrá solicitar en el Pliego de Condiciones a los oferentes que coticen precios unitarios y totales. Si la sumatoria de los precios unitarios excede el precio total, la oferta se comparará con el mayor precio.
+Cuando se soliciten precios unitarios, la CNE, deberá advertir en el Pliego de Condiciones que se reserva la posibilidad de adjudicación parcial de una misma línea. En caso de que no hubiere sido advertido la CNE, consultará al oferente si acepta la adjudicación de una menor cantidad manteniendo el precio unitario.

@@ -1,0 +1,1 @@
+Artículo 165. Trámite de liquidación. El Comité de Emergencia solicitante tendrá un plazo de tres días hábiles contados a partir del día siguiente hábil de la ejecución del crédito, para iniciar el trámite de pago de las compras realizadas. El trámite de liquidación será regulado mediante un procedimiento autorizado por la CNE.

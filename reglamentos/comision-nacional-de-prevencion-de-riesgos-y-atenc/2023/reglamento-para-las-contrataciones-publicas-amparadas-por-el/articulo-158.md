@@ -1,0 +1,1 @@
+Artículo 158. Estas contrataciones carecen de fase recursiva. En caso de que surjan eventualidades, las mismas se tramitaran por la vía del reclamo administrativo y se regirá por las normas contenidas en el presente reglamento y la Ley General de la Administración Pública N° 6227.

@@ -1,0 +1,1 @@
+Artículo 6. Normas supletorias. Únicamente en ausencia de una regulación específica en el presente reglamento, serán normas supletorias las establecidas en la Ley General de Contratación Pública, su Reglamento, las normas que regulen el Sistema Digital Unificado vigente y los principios generales de la Contratación Pública.

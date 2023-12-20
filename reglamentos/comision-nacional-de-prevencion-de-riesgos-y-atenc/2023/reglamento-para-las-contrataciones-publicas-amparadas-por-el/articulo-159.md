@@ -1,0 +1,1 @@
+Artículo 159. Informe. El fiscalizador de la contratación deberá realizar un informe final completo en coordinación con la unidad ejecutora, que indique el detalle de la ejecución de las obras, y si estas se recibieron a satisfacción. Lo anterior sin perjuicio de que se realicen los reportes pertinentes durante la ejecución de la contratación.

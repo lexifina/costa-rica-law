@@ -1,0 +1,3 @@
+Artículo 176. Procedencia. Cuando una institución pública competente no cuente con los recursos necesarios y quede superada su capacidad presupuestaria, logística u operativa para atender un evento de emergencia, podrá solicitar a la CNE la contratación de primeros impactos.
+La CNE en cumplimiento de sus funciones como rectora del Sistema Nacional de Gestión del Riesgo y coordinador de las emergencias nacionales podrá solicitar de oficio la tramitación de este tipo de contrataciones.
+El objeto contractual lo determinará las necesidades técnicas y operativas requeridas para la atención de la emergencia en la fase de respuesta.

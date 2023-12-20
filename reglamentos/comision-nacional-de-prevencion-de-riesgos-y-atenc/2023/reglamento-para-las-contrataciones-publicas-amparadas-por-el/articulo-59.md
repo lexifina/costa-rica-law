@@ -1,0 +1,2 @@
+Artículo 59. Publicación y contenido de la invitación al concurso. La invitación a participar se publicará en el Sistema Digital Unificado autorizado por el Ministerio de Hacienda, sin perjuicio de cualquier publicación facultativa que la CNE contratante considere necesaria en otro medio.
+En todo caso la publicación deberá contener: la identificación de la CNE contratante; la indicación del tipo y número del concurso y una breve descripción del objeto contractual; la hora y fecha límite para la recepción de ofertas.

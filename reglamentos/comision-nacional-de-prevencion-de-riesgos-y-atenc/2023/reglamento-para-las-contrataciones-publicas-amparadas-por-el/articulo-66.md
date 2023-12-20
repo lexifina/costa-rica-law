@@ -1,0 +1,1 @@
+Artículo 66. Documentos por aportar empresa extranjera. Además de los requerimientos establecidos en el Pliego de Condiciones, las ofertas que sean presentadas por empresas extranjeras deberán presentar la documentación apostillada o certificada por el consulado respectivo.

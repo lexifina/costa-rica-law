@@ -1,0 +1,3 @@
+Artículo 123. Donación de bienes. Para la donación de bienes adquiridos bajo el régimen de excepción y en los casos que sea procedente, se utilizará el procedimiento interno de la CNE que para los efectos se determine, para la donación de estos.
+Los bienes declarados en desuso o en mal estado podrán ser objeto de venta o donación por los medios establecidos en las normativas internas de cada entidad y la legislación vigente.
+Las disposiciones internas que al respecto se dicten deberán establecer normas generales que definan, al menos, bajo qué parámetros, se entenderá un bien en condición de ser donado, los posibles donatarios y similares.

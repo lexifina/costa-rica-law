@@ -1,0 +1,3 @@
+Artículo 58. Condiciones Invariables. En el Pliego de Condiciones se deberá exigir el cumplimiento obligatorio de aquellos requisitos cuyas condiciones son invariables, cuando corresponda. Dentro de estas condiciones invariables y según el objeto de que se trate, se podrán establecer aspectos tales como, capacidad financiera, especificaciones técnicas y experiencia.
+Las condiciones invariables deben orientarse a la selección de la oferta más conveniente a los intereses de la CNE.
+El oferente, estará obligado a describir de forma completa a partir del Pliego de Condiciones, las características del objeto, bien o servicio que cotiza, sin necesidad de reiterar la aceptación de las cláusulas invariables o condiciones obligatorias, cuyo cumplimiento se presume.

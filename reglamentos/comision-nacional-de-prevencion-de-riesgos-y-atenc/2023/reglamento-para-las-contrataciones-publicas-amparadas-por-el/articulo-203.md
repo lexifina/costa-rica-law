@@ -1,0 +1,1 @@
+Artículo 203. Comité de adjudicaciones. El Comité De Adjudicaciones deberá sesionar semanalmente para conocer las recomendaciones de adjudicación. El Comité verificará los estudios para determinar el cumplimiento de las ofertas y remitirá la recomendación de adjudicación de la oferta que posea el mayor puntaje a la Presidencia de la CNE para su respectiva adjudicación.

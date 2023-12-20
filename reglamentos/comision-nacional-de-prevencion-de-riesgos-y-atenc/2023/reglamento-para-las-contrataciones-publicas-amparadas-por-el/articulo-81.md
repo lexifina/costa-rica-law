@@ -1,0 +1,2 @@
+Artículo 81. Plazo de recepción de ofertas. Para la recepción de ofertas, el Pliego de Condiciones electrónico deberá establecer el plazo en días hábiles, con indicación de la hora y fecha de vencimiento. Sin embargo, tomando en cuenta las necesidades de atención propias de una emergencia, se podrá autorizar la presentación de las ofertas en días y horas inhábiles.
+Antes de recibir ofertas, por razones de interés público o institucional, la CNE, podrá dejar sin efecto el respectivo concurso.

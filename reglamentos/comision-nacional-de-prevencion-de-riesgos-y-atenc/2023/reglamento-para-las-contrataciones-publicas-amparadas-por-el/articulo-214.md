@@ -1,0 +1,1 @@
+Artículo 214. Disminución del Objeto Contractual. En caso de disminución del objeto contractual, el contratista tendrá derecho a que se le reconozcan los gastos en que haya incurrido para atender la ejecución total del contrato, mediante reclamo administrativo, siempre y cuando aporte la prueba suficiente y pertinente.

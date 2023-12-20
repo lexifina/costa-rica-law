@@ -1,0 +1,2 @@
+Artículo 97. Readjudicación. En caso de que el recurso de revocatoria sea declarado con lugar, cabrá contra el acto de readjudicación, por única vez, un nuevo recurso de revocatoria, cuya impugnación únicamente versará contra las actuaciones realizadas con posterioridad a la resolución anulatoria y cualquier situación que se haya conocido desde que se dictó el acto de adjudicación estará precluida.
+Además, cabrá readjudicación en caso de que se declare insubsistencia, de conformidad con el presente reglamento, mediante resolución debidamente fundamentada.

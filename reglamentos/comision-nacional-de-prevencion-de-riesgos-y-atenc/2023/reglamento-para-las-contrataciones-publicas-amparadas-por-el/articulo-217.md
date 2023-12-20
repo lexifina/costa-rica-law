@@ -1,0 +1,1 @@
+Artículo 217. Recursos. En este tipo de contratación cabe el recurso de objeción al Pliego de Condiciones, el recurso de revocatoria contra el acto de adjudicación, y recurso de revocatoria contra el acto de readjudicación únicamente sobre los hechos que versen sobre la nueva adjudicación, según las normas contenidas en este reglamento.

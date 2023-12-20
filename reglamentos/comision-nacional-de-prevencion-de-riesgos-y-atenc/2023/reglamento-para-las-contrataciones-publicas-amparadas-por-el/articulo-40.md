@@ -1,0 +1,1 @@
+Artículo 40. Vigencia de las garantías. La CNE, establecerá en el Pliego de Condiciones la vigencia mínima de la garantía de cumplimiento. En caso de omisión, regirá un plazo hasta por dos meses adicionales a la fecha probable de la recepción definitiva del objeto contractual.

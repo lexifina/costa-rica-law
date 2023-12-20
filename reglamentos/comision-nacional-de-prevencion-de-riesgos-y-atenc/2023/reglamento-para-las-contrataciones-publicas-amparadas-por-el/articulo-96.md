@@ -1,0 +1,1 @@
+Artículo 96. Plazo para dictar un nuevo acto. Si el acto final originalmente dictado es revocado, la CNE cuenta con un plazo máximo de un mes calendario, prorrogable de manera excepcional y justificado, por otro mes adicional, para dictar el nuevo acto.

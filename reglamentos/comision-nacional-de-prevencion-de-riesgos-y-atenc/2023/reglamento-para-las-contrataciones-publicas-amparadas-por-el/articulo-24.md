@@ -1,0 +1,4 @@
+Artículo 24. Mejoras del precio. Los oferentes que hayan hecho propuestas elegibles podrán mejorar sus precios para efectos comparativos solamente si el Pliego de Condiciones estableció expresamente esa posibilidad.
+El Pliego de Condiciones definirá detalladamente la metodología que aplicará en cada concurso, respetando para ello la igualdad, la buena fe y la transparencia. El precio que se tomará para efectos de calificación será el último que propongan los respectivos oferentes.
+El oferente se encuentra obligado a justificar con toda claridad las razones que justifican la disminución de su precio.
+Las mejoras del precio no deben implicar una disminución de cantidades o desmejora de la calidad del objeto originalmente ofrecido y tampoco puede otorgar ventajas indebidas a quienes lo proponen, tales como convertir su precio en ruinoso o no remunerativo.

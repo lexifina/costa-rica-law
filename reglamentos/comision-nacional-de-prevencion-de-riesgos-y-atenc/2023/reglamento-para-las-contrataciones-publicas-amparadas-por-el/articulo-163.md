@@ -1,0 +1,9 @@
+Artículo 163. Montos Autorizados: La autorización para realizar la contratación se regirá por los siguientes parámetros, tomando como referencia la definición de salario base definido según el artículo 2 de la Ley N° 7337 del 5 de mayo de 1993:
+a. Jefe de la Unidad de Gestión de Operaciones CNE: Queda autorizado para gestionar la contratación de forma diaria hasta un máximo de un monto equivalente de ocho salarios base.
+b. Director de Gestión del Riesgo CNE: Queda autorizado para gestionar la contratación de forma diaria hasta un máximo de un monto equivalente a quince salarios base.
+c. Director Ejecutivo, CNE: Queda autorizado para gestionar la contratación de forma diaria hasta un máximo de un monto equivalente a treinta salarios base.
+d. Presidente, CNE: Le corresponde autorizar créditos cuyo monto supere a los treinta salarios base hasta un límite de cincuenta salarios base.
+Los montos antes establecidos son aplicables independientemente para la cantidad de créditos autorizados diariamente, por proveedor. Ningún crédito autorizado diariamente podrá superar el límite establecido.
+El crédito no es acumulable de modo que se podrá aplicar otro día en la misma zona de emergencia, entendida ésta como unidad de cantón o distrito según la cobertura del Comité local de emergencia y las zonas de afectación mientras esta persista.
+Los límites de gasto aquí autorizados podrán ser ampliados por parte de la Presidencia o Dirección Ejecutiva de la CNE bajo circunstancias excepcionales y privando para ello la necesidad de salvaguardar la vida y la integridad física de los afectados. Esta autorización deberá efectuarse por escrito en forma razonada y no podrá superar el límite de cincuenta de salarios base autorizados para el Presidente de la CNE.
+Las necesidades de contratación mediante crédito que superen el monto de cincuenta salarios base deberá ser tramitadas mediante otro procedimiento de contratación pública por el régimen de excepción.

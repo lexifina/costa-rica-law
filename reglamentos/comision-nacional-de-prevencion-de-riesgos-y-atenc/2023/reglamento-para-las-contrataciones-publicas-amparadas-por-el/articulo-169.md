@@ -1,0 +1,10 @@
+Artículo 169. Requisitos previos:
+a. Debe hacerse la solicitud de intervención de forma inmediata, mediante el formulario dispuesto en la página web de la Comisión Nacional de Prevención de Riesgos y Atención de Emergencias o bien a través del mecanismo que para tales efectos se establezca, lo cual deberá efectuarse dentro de las primeras 120 horas (5 días naturales) de ocurrido el evento.
+b. Informe de Situación del Comité Municipal de Emergencia que contenga el visto bueno de la Unidad de Operaciones de la CNE, donde se registre el daño y afectación para justificar el nexo de causalidad al evento generador e incluya el requerimiento conforme lo disponga el instrumento dispuesto para el informe de situación, en ausencia de este requisito no se tramitará la solicitud.
+c. Debe indicarse en la solicitud las calidades del profesional responsable por parte del solicitante y de la persona encargada de inspeccionar y controlar la contratación.
+d. Debe aportarse la documentación y prueba de respaldo como un anexo al formulario de solicitud.
+e. Debe aportarse certificación de que la institución no posee recursos propios (financieros, recurso humano, maquinaria y equipo, entre otros) para la intervención, que sustenten la limitación presupuestaria (incluir la consulta a otras instituciones sobre la disponibilidad para prestar colaboración).
+f. En caso de intervención en cauce, se debe gestionar el permiso para realizar obras menores en cauce ante la Dirección de Aguas del Ministerio de Ambiente y Energía (MINAE).
+g. En caso de requerirse extracción de materiales para la intervención deberá llenar el anexo de solicitud para habilitar la fuente de extracción de materiales no metálicos amparados en el Artículo 28 del Reglamento de la Ley N°8488.
+h. En caso de requerirse intervención en áreas o zonas de protección, deberá el requirente realizar las coordinaciones necesarias e informar sobre la intervención al Sistema Nacional de Áreas de Conservación (SINAC).
+i. La contratación se tramitará en el Sistema Digital Unificado habilitado por el Ministerio de Hacienda.

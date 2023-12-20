@@ -1,0 +1,1 @@
+Artículo 98. Infructuoso. La contratación se considerará infructuosa cuando no hubiere habido oferentes o los que se hubieren presentado hayan formulado sus ofertas en términos que contravinieren el Pliego de Condiciones o resultaren inaceptables para la CNE.

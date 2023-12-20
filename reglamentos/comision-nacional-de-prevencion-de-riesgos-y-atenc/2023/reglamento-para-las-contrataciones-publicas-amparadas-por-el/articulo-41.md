@@ -1,0 +1,2 @@
+Artículo 41. Sustitución de garantías y retenciones. Las garantías de cumplimiento podrán ser sustituidas en cualquier momento, a solicitud del oferente o contratista, previa aceptación de la CNE, siempre que con ello no desmejore los términos de la garantía original.
+A solicitud del contratista y previa autorización de la CNE, cuando lo estime conveniente, se podrán sustituir las retenciones por una garantía adicional. La CNE, podrá solicitar la sustitución de garantías que presenten riesgos financieros de no pago, como cuando su emisor está intervenido.

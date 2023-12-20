@@ -1,0 +1,5 @@
+Artículo 21. Desglose del precio y presupuesto detallado. El oferente deberá presentar el desglose de la estructura del precio completo con todos los elementos que lo componen en su oferta. Esta disposición será obligatoria para los contratos de servicios y de obra pública; además, para cualquier otro objeto contractual que lo amerite cuando así lo exija el pliego de condiciones.
+La anterior obligación no excluye la posibilidad para la CNE de solicitar información adicional atinente al cálculo de los precios contemplados en la oferta, cuando ello resulte necesario.
+En los contratos en que intervengan factores que necesariamente deban cotizarse en moneda extranjera, la oferta contendrá un desglose de los componentes nacionales y extranjeros.
+Podrá subsanarse la omisión del desglose de la estructura de precios, únicamente si ello no genera una ventaja indebida para el oferente que incumpla.
+El presupuesto detallado se le solicitará únicamente a quien resulte adjudicatario dentro de los dos días hábiles posteriores a la firmeza del acto de adjudicación y antes de la suscripción del contrato, para su respectiva verificación, de previo a dar la orden de inicio.

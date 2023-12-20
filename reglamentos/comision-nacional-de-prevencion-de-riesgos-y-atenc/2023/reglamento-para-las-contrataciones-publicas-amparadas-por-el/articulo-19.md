@@ -1,0 +1,1 @@
+Artículo 19. Nulidad. La interposición del incidente de nulidad en el concurso y su posterior resolución se tramitará bajo las reglas establecidas en el Código Procesal Civil, la Ley General de la Administración Pública, normas de aplicación supletoria.

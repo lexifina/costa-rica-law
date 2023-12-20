@@ -1,0 +1,4 @@
+CAPÍTULO IV: CONTRATACIONES POR EMERGENCIA DECLARADA
+SECCIÓN I: CONTRATACIÓN PARA PRIMEROS IMPACTOS
+Artículo 175. Concepto. Procedimiento abreviado de Contratación de bienes, servicios y maquinaria vigente durante la Fase de Respuesta de un evento declarado por el Poder Ejecutivo como Emergencia Nacional, de conformidad con el inciso a) de la Ley Nacional de Emergencias y Prevención del Riesgo.
+Se trata de la intervención ante un evento generador, que debe tener un nexo de causalidad directamente vinculado a un impacto manifiesto y que demanda una acción de carácter urgente, orientada a la prestación de ayuda humanitaria, salvaguardar la vida, los servicios vitales y las vías de comunicación afectadas, sin que se constituyan obras o mantenimiento de redes viales o mejoramiento de infraestructura; en este sentido se podrá autorizar la contratación bienes o servicios.

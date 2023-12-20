@@ -1,0 +1,1 @@
+Artículo 202. Recomendación de Proveeduría. Una vez realizados los estudios de la contratación, el analista de Proveeduría remitirá en un plazo no mayor de tres días hábiles su recomendación por medio del Sistema Digital Unificado autorizado por el Ministerio de Hacienda para conocimiento del Comité de Adjudicaciones para lo que corresponda.

@@ -1,0 +1,1 @@
+Artículo 191. Comité de Adjudicaciones. Corresponde al Comité de Adjudicaciones la verificación de los estudios para determinar el cumplimiento de las ofertas y remitirá la recomendación de adjudicación de la oferta que posea el mayor puntaje a la Dirección Ejecutiva o la Presidencia de la CNE para su respectiva adjudicación.

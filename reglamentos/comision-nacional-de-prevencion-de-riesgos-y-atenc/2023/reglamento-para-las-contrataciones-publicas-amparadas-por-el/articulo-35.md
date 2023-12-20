@@ -1,0 +1,1 @@
+Artículo 35. Presentación de la cesión de derechos económicos. Los documentos de la cesión de derechos económicos deberán presentarse debidamente autenticados por notario público, ante la Unidad de Recursos Financieros de la CNE, para su debida valoración y tramitología interna.

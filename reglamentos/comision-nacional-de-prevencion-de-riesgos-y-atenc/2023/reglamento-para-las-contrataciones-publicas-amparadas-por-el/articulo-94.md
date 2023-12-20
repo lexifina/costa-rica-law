@@ -1,0 +1,1 @@
+Artículo 94. Plazo para comunicar el acto final. El acto final será comunicado por medio del Sistema Digital Unificado autorizado por el Ministerio de Hacienda, en los tres días hábiles siguientes a su dictado; o será notificado a los participantes por el medio electrónico señalado en ese mismo plazo cuando no sea posible realizarlo mediante el Sistema Digital Unificado.

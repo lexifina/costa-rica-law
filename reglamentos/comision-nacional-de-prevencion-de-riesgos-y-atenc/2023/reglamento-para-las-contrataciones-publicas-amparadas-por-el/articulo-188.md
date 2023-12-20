@@ -1,0 +1,1 @@
+Artículo 188. Modalidad de entrega según demanda en Extremas Urgencias: En caso debidamente justificado, podrá la UGPR o la UGO solicitar adquisiciones de suministros, objetos, bienes o servicios bajo esta modalidad, para lo cual la contratación tendrá una vigencia máxima de tres meses.

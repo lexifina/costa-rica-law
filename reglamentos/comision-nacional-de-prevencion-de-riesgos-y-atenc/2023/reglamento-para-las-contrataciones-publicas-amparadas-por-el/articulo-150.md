@@ -1,0 +1,2 @@
+Artículo 150. Recepción de ofertas. El plazo máximo para recibir ofertas será de diez días hábiles, contado desde el día siguiente de la publicación del aviso a participar hasta el día y hora de la apertura de las ofertas, inclusive.
+En caso de que no corresponda la prórroga, el órgano o ente que administra el convenio marco lo notificará al o a los contratistas, en el plazo establecido en el Pliego de Condiciones o en su defecto, con al menos un mes de anticipación a la finalización del contrato.

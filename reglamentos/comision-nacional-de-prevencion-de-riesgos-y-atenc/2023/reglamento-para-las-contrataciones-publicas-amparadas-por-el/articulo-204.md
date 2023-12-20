@@ -1,0 +1,1 @@
+Artículo 204. Adjudicación. Recibida la comunicación de la recomendación del Comité de Adjudicaciones, la Presidencia de la CNE deberá adjudicar la contratación en un plazo no mayor de tres días hábiles. El Órgano Competente para adjudicar tendrá la facultad de apartarse del criterio del Comité mediante acto fundado.

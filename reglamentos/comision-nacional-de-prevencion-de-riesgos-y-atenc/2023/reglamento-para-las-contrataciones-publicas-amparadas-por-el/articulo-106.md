@@ -1,0 +1,1 @@
+Artículo 106. Recurso de Revocatoria. Solo cabe recurso de revocatoria contra el acto de adjudicación o contra aquel que declara desierto o infructuoso el concurso, bajo la figura de contratación por emergencia.

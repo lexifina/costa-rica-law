@@ -1,0 +1,1 @@
+Artículo 166. Exclusión de trámite en el sistema digital unificado. Estas contrataciones están excluidas del trámite del Sistema Digital Unificado autorizado por el Ministerio de Hacienda, pero deberá crearse y publicarse un informe de cierre de los créditos ejecutados, con el fin de otorgar transparencia al trámite de contratación.

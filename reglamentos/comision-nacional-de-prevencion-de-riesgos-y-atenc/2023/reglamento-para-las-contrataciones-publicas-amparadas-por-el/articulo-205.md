@@ -1,0 +1,1 @@
+Artículo 205. Comunicación del Acto de Adjudicación. Una vez adjudicado el concurso, la Unidad de Proveeduría Institucional de la CNE procederá con la comunicación del acto de adjudicación, mediante el Sistema Digital Unificado habilitado por el Ministerio de Hacienda, con indicación del plazo recursivo.

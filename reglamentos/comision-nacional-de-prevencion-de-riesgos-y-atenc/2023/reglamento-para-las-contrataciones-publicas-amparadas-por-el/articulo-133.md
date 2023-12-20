@@ -1,0 +1,1 @@
+Artículo 133. Finiquito de los contratos de servicios y suministro de bienes. En los contratos de servicios o suministros de bienes podrán pactarse finiquitos dentro del plazo de seis meses, contados a partir de la recepción definitiva del objeto contractual. El finiquito deberá suscribirse por quien tenga capacidad legal para ello.

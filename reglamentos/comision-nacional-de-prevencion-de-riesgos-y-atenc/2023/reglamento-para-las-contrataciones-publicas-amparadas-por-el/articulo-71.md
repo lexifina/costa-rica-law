@@ -1,0 +1,3 @@
+Artículo 71. Ofertas base y alternativas. La CNE, podrá limitar en el Pliego de Condiciones la cantidad de ofertas base y alternativas que se aceptará de un mismo oferente, independientemente de la forma en que participe.
+La oferta alternativa, es una propuesta distinta a la definida en el Pliego de Condiciones, respetando el núcleo del objeto y la necesidad a satisfacer, que puede ser conveniente y oportuna para la entidad.
+La oferta alternativa no será sometida al sistema de calificación. Cualquier alternativa a la oferta base ganadora, podrá ser adjudicada, en el tanto la CNE acredite en el expediente, las razones de su decisión, ésta no contravenga el interés público ni institucional y existan fondos suficientes para cubrir la erogación.

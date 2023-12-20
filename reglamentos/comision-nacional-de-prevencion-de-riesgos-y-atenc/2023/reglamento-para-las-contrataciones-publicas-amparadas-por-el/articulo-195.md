@@ -1,0 +1,2 @@
+SECCIÓN III: CONTRATACIÓN POR EMERGENCIAS
+Artículo 195. Concepto. Contrataciones que están estrictamente relacionadas con la fase de reconstrucción de una emergencia nacional declarada por el Poder Ejecutivo. El objeto contractual debe contar con el nexo de causalidad debidamente reflejado en el Plan General de la Emergencia, y deberá tramitarse de previo la aprobación de un Plan de Inversión por la Junta Directiva de la CNE que autorice la asignación de recursos para el proceso de contratación y establezca los términos de referencia requeridos.

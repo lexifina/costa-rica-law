@@ -1,0 +1,3 @@
+Artículo 99. Desierto. Si se presentan ofertas elegibles, pero por razones de protección al interés público, la Administración, mediante un acto motivado, podrá declarar desierto el concurso.
+Cuando la Administración, decida declarar desierto un procedimiento de contratación, deberá dejar constancia de los motivos específicos de interés público considerados para adoptar esa decisión, mediante resolución que deberá incorporarse en el respectivo expediente de la contratación.
+Cuando se haya invocado motivos de interés público para declarar desierto el concurso, para iniciar un nuevo procedimiento, la Administración deberá acreditar el cambio en las circunstancias que justifican tal medida.

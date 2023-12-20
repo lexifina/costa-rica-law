@@ -1,0 +1,1 @@
+Artículo 186. Resolución para Trámite de Contratación por Extrema Urgencia. Una vez verificado que el trámite de Plan de Inversión cuenta con criterio legal favorable, la persona que ocupe el cargo de Director(a) Ejecutivo(a) o Presidencia Institucional de la CNE emitirá la resolución aprobando el trámite.

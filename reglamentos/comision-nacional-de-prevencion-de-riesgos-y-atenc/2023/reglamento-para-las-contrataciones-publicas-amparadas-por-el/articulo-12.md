@@ -1,0 +1,1 @@
+Artículo 12. Régimen de prohibiciones, ámbito de aplicación. El régimen de prohibiciones, para personas físicas y jurídicas funcionarios públicos y demás intervinientes en los procesos de contratación amparadas a este reglamento, se regirá por lo estipulado en la Ley General de Contratación Pública y su reglamento.
