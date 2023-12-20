@@ -1,0 +1,4 @@
+ARTÍCULO 4- Se autoriza a la Notaría del Estado para que formalice todos los trámites de esta donación mediante la elaboración de la escritura correspondiente de donación y cambio de naturaleza del terreno, la cual estará exenta del pago de todo tipo de impuestos, tasas o contribuciones. Además, queda facultada expresamente, la Notaría del Estado, para que actualice y corrija la naturaleza, la situación, la medida, los linderos y cualquier error, diferencia u omisión relacionados con los datos del inmueble a donar, así como cualquier otro dato registra! o notarialque sea necesario para la debida inscripción del documento en el Registro Nacional.
+Rige a partir de su publicación.
+Dado en la Presidencia de la República, San José, a los catorce días del mes de diciembre del año dos mil veintitrés.
+EJECÚTESE Y PUBLÍQUESE.
