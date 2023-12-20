@@ -1,0 +1,37 @@
+CIRCULAR N° 336-2023
+Asunto: Disposiciones sobre la aplicación del teletrabajo en los despachos judiciales mixtos y cantidad de días máximos que se puede teletrabajar.
+A TODOS LOS DESPACHOS JUDICIALES MIXTOS
+SE LES HACE SABER QUE:
+El Consejo Superior en sesión N° 100-2023 celebrada el 30 de noviembre de 2023, artículo XVII, tuvo por conocido el acuerdo dispuesto por la Comisión Institucional de Teletrabajo en sesión extraordinaria N.º 09-2023 virtual, celebrada el miércoles 07 de junio de 2023, artículo único, en que remitió el informe PJ-DGH-PT-0099-2023, que contempla cuántos días máximos de teletrabajo puede hacer el juez coordinador, juez o jueza que componen cada despacho de las diferentes jurisdicciones, además de las plazas de jueces y juezas supernumerarios y las plazas de personas juzgadoras que se ubican en el Centro de Conciliación por jurisdicción. Para los despachos que conocen materia mixta se establece lo siguiente:
+Los despachos unipersonales, en atención al buen servicio público, no podrán laborar bajo la modalidad de teletrabajo, tal y como se dispuso en sesión 93-2023 del 07 de noviembre 2023 en el artículo XL, donde se aprobó la circular que propuso el Centro de Apoyo, Coordinación y Mejoramiento de la Función Jurisdiccional mediante el oficio N° 379-CACMFJ-JEF-2023. En vista de lo anterior, la Dirección de Gestión Humana procederá a rescindir, con el debido proceso, los contratos de teletrabajo que se mantengan con las personas juzgadoras unipersonales.
+Para los despachos judiciales mixtos se aprueban los siguientes días de teletrabajo:
+Despachos | Cantid ad de Despa chos | Canti dad de juece s y jueza s adscri tos | Cantid ad de días presen cial propue stos | Cantidad de días teletrabaj ables propuest os | Observaci ones
+Juzgados de Familia y Violencia Doméstica | 7 | De 1 a 2 | 5 | 0 | No se recomiend a teletrabajo consideran do la cantidad de materias que se atienden y la cantidad de
+| | | | | personas juzgadoras adscritas al despacho |
+Juzgados de Pensiones Alimentarias y Violencia Doméstica | 5 | De 2 a 3 | 4 | 1 | A Excepción del Juzgado de Pensiones y Violencia Doméstica de Escazú, en función de la cantidad de personas juzgadoras adscritas al despacho. |
+Juzgados de Familia y Trabajo | 1 | 2 | 4 | 1 | |
+Juzgados de Familia, Penal Juvenil y Violencia Doméstica | 3 | 2 | 5 | 0 | No se recomiend a teletrabajo consideran do la cantidad de materias que se atienden y la cantidad de personas juzgadoras adscritas al despacho |
+Juzgados de Contravenciones, Tránsito, Pensiones Alimentarias, Violencia Doméstica y Laboral | 20 | De 1 a 2 | 5 | 0 | No se recomiend a teletrabajo consideran do la cantidad de materias que se |
+| | | | | atienden y la cantidad de personas juzgadoras adscritas al despacho |
+Juzgados de Contravenciones y Pensiones Alimentarias | 7 | De 1 a 2 | 4 | 1 | A excepción el Juzgado Contraven cional de San Sebastián por ser uniperson al |
+Juzgado de Familia, Violencia Doméstica, Penal Juvenil, Agrario, Civil, Trabajo | 2 | De 2 a 4 | 4 | 1 | En el tanto de que siempre se mantengan 2 personas juzgadoras en el despacho. A excepción del Juzgado Civil, Trabajo y Familia de Buenos Aires. |
+Juzgados de Contravenciones, Pensiones Alimentarias y Tránsito | 1 | 2 | 4 | 1 | |
+Juzgados de Contravenciones, Pensiones Alimentarias y Violencia Doméstica | 6 | De 1 a 2 | 5 | 0 | No se recomiend a teletrabajo consideran do la cantidad de materias que se |
+| | | | | atienden y la cantidad de personas juzgadoras adscritas al despacho |
+Juzgados Contravenciones, Pensiones Alimentarias, Violencia Doméstica y Laboral | 3 | De 1 a 2 | 5 | 0 | No se recomiend a teletrabajo consideran do la cantidad de materias que se atienden y la cantidad de personas juzgadoras adscritas al despacho |
+Juzgados Contravenciones, Tránsito y Pensiones Alimentarias | 9 | De 1 a 3 | 4 | 1 | A excepción de Juzgado Contravenc ional de Golfito, Juzgado Contravenc ional de Osa, Juzgado Contravenc ional de Upala. |
+Juzgados Civil, Trabajo, Familia, Violencia Doméstica, Penal Juvenil | 3 | De 2 a 3 | 4 | 1 | A excepción del Juzgado Civil, Trabajo Y Familia De Osa |
+Juzgados Contravenciones, Tránsito, Pensiones Alimentarias y Violencia Doméstica | 13 | De 1 a 3 | 5 | 0 | A excepción del |
+| | | | | Juzgado Contravenc ional de Santa Ana que en función de la cantidad de jueces y juezas adscritas se recomiend a 4 días presencial es y 1 en teletrabajo , en el tanto de que siempre se mantengan 2 personas juzgadoras en el despacho. |
+| | | | | | | | | | | | | |
+Para los efectos del teletrabajo en las clases de puesto de Técnico Judicial y Coordinador Judicial, esta debe ser valorada por cada Juez o Jueza Coordinadora en función de la dinámica del despacho y del buen servicio público a excepción de la jurisdicción laboral, en razón del criterio de la Comisión que indica que los coordinadores judiciales deben laboral de manera presencial.
+Con respecto al teletrabajo de las juezas y jueces supernumerarios, se establece lo siguiente:
+"a) El grupo de jueces y juezas que es administrado en forma directa por la Presidencia de la Corte a través del Centro de Apoyo, Coordinación y Mejoramiento de la Función Jurisdiccional, y que están abocados a atender planes de descongestionamiento, en donde la principal tarea y la que abarca la mayoría del tiempo es la redacción de fallos, pueden laborar en la modalidad de teletrabajo 4 días a la semana.
+b.) El grupo de jueces y juezas supernumerarios destacados en las Administraciones Regionales, dada su naturaleza de trabajo, considerando que están abocados atender las posibles emergencias que puedan suscitarse en los despachos, no pueden laborar en la modalidad de teletrabajo en función del buen servicio público".
+Las Jefaturas de los diferentes despachos judiciales pueden disminuir el máximo de días en teletrabajo que se aprobó en este acuerdo, en función de la dinámica del despacho y del buen servicio público.
+Recordar que la modalidad de presentarse al despacho a laborar una audiencia y luego retirarse en la segunda audiencia a realizar teletrabajo no está contemplada en el "Reglamento para regular la modalidad de prestación de servicios en teletrabajo en el Poder Judicial", por lo tanto, no está permitida.
+Reiterar que el quinto día de teletrabajo a la semana es resorte de aprobación del Consejo Superior según lo establece el "Reglamento para regular la modalidad de prestación de servicios en teletrabajo en el Poder Judicial", por lo tanto, no aplica la práctica que han implementado algunos despachos en el sentido de laborar una semana completa en la modalidad de teletrabajo y la siguiente semana de forma presencial y así sucesivamente.
+Las personas juzgadoras de los diferentes despachos judiciales deberán actualizar los cambios correspondientes al Contrato de Teletrabajo por medio de los formatos de adenda disponibles en la página Web del programa de Teletrabajo de la Dirección de Gestión Humana.
+En virtud de lo expuesto anteriormente, se deja sin efecto lo establecido mediante circular 462021 del Consejo Superior denominada "Adición al programa de Teletrabajo de los puestos que pueden o no prestar el servicio bajo esa modalidad", en relación con las clases de puestos de las personas juzgadoras que se contemplan en este acuerdo.
+Publíquese una sola vez en el Boletín Judicial.
+San José, 20 de diciembre de 2023.
