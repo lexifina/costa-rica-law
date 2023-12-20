@@ -1,0 +1,2 @@
+Artículo 16° - Reformas. Refórmese el artículo 13 del Decreto Ejecutivo Nº 37614-MfNAET del 9 de noviembre de 2012, publicado en La Gaceta Nº69 del 10 de abril de 2013, Alcance 63, para que se lea de la siguiente forma:
+"Artículo 13.-A partir del año 2030 queda prohibida en el país la importación y uso de HCFC, sea de manera pura o contenido en mezclas, con excepción de los usos críticos que hayan sido debidamente autorizados hasta el año 2040. Asimismo, para el año 2020 queda prohibida la importación de equipos que contengan HCFC de forma pura o en mezcla."

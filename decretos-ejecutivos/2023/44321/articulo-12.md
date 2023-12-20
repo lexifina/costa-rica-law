@@ -1,0 +1,7 @@
+Artículo 12 ° - Calendario de reducción gradual de HFC. La OIGECA aplicará la siguiente reducción gradual de 1-IFC a todos los importadores registrados, sean estos históricos o nuevos:
+a) A partir del año 2024 y hasta diciembre del año 2028, se utilizará como referencia la cantidad definida como línea base según este reglamento.
+b) En enero del año 2029, a cada importador registrado ante la DIGECA se le aplicará una primera reducción del 10% sobre la cuota otorgada en el año 2024. Esta cuota no podrá superar la cantidad importada en el año 2028.
+c) En enero de 2035, a cada importador registrado se le aplicará una segunda reducción del 30% sobre la cuota otorgada en el año 2024. Esta cuota no podrá superar la cantidad importada en el año 2034.
+d) En enero de 2040, a cada importador registrado se le aplicará una tercera reducción del 50% sobre la cuota otorgada en el año 2024. Esta cuota no podrá superar la cantidad importada en el año 2039.
+e) A partir del año 2045 en adelante, a cada importador registrado se le aplicará una cuarta reducción de un 80% sobre la cuota otorgada en el año 2024. Esta cuota no podrá superar la cantidad importada en el año 2044.
+Los calendarios de reducción gradual para los importadores históricos y nuevos serán calculados a partir de la primera cuota asignada, la que se irá reduciendo con forme con los anteriores porcentajes para cada período de tiempo.

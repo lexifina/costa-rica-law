@@ -1,0 +1,4 @@
+Artículo 8° -Del fondo de reserva de Estado. El Estado contará con un fondo de reserva, el que estará constituido por un 12% de la línea base país. Dicho fondo será administrado por la DIGECA para:
+a) Asegurar el abastecimiento de los HFC, para garantizar los usos críticos o esenciales, así como enfrentar cualquier situación de fuerza mayor, caso fortuito, emergencia o necesidad imprevista a la que se enfrente el país. Así como, cualquier otro motivo que resulte conveniente para el desarrollo del país y las necesidades de sus habitantes. Para lo cual se contará con un 2% de la cuota país.
+b) Permitir el otorgamiento de cuotas a importadores nuevos, para lo cual se contará con un 10% de la cuota país.
+En caso de que no haya importadores nuevos, el 10% se sumará a las cuotas remanentes y se distribuirá entre todos los interesados cada año, de conformidad con lo establecido en el artículo 10 y 11 de este reglamento.

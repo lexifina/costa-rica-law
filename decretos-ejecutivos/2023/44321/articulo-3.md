@@ -1,0 +1,1 @@
+Artículo 3º-Ámbito de aplicación. Las disposiciones establecidas en el presente reglamento son aplicables para los 1-IFC en listados en el Anexo F del Protocolo de Montreal, así como los equipos que contengan estas sustancias.

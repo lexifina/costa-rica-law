@@ -1,0 +1,1 @@
+Artículo 13º-Imposibilidad de acumular o transferir cuotas. El importador que no haga uso de la totalidad de la cuota autorizada por la DlGECA durante el año calendario no podrá acumular el saldo para el año calendario siguiente, ni traspasarlo a otro importador.

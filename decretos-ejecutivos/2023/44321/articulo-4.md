@@ -1,0 +1,1 @@
+Artículo 4º-Instituciones responsables por la aplicación de este reglamento. La DIGECA del MINAE, es la instancia encargada de ejecutar y coordinar todas las acciones necesarias para implementar lo establecido en este reglamento, sin detrimento de que pueda coordinar con otras instituciones.
