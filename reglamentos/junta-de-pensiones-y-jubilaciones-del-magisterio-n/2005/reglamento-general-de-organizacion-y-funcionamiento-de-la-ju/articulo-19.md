@@ -1,4 +1,5 @@
-Artículo 19: De las Dietas. El valor de la dieta correspondiente a cada sesión ordinaria, en un 3,68 % del salario global definitivo mensual del Contralor o Contralora General de la República, las que se pagarán hasta un máximo de doce sesiones al mes, siempre y cuando se haya realizado al menos esa cantidad de sesiones.
-La remuneración a que se refiere este artículo será percibida por el director, solo cuando asista de manera completa a las correspondientes sesiones de plenario de la Junta. Como excepción a lo anterior, corresponderá el pago de la dieta, cuando el director (a) no se encuentre presente por las razones previstas en el artículo 9, inciso i de este reglamento.
+Artículo 19.—De las Dietas. El valor de la dieta correspondiente a cada sesión ordinaria será de un 4,00 % del salario global definitivo mensual del Contralor o Contralora General de la República.
+La remuneración a que se refiere este artículo será percibida por el director, solo cuando asista de manera completa a las correspondientes sesiones de plenario de la Junta. Como excepción a lo anterior, corresponderá el pago de la dieta, cuando el director (a) no se encuentre presente por las razones previstas en el artículo 9°, inciso i) de este reglamento.
 Los asistentes a las sesiones del plenario deberán firmar el registro de asistencia por cada una. En caso de ausencia, quien presida o coordine la sesión, indicará a la Secretaría que se deje constancia de ello en el acta correspondiente.
-(Así reformado mediante sesión N° 0116-2023 del 24 de octubre del 2023).
+(Así reformado mediante sesión ordinaria 0142-2023 del 20 de diciembre de 2023)
+(Corregido su texto en forma íntegra mediante Fe de Erratas y publicada en La Gaceta N° 27 del 13 de febrero de 2024, página N° 2)
