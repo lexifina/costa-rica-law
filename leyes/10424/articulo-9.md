@@ -1,0 +1,5 @@
+ARTÍCULO 9- Accesibilidad de productos de salud e higiene menstrual. Todas las mujeres tienen derecho al acceso oportuno a productos de salud e higiene menstrual. La Caja Costarricense de Seguro Social (CCSS) podrá integrar, en su lista oficial de medicamentos, cualquier producto higiénico menstrual y deberá garantizar la existencia y accesibilidad de toallas sanitarias, tampones y protectores diarios en los centros de salud públicos.
+Se autoriza a la CCSS para que reciba donaciones públicas o privadas, recursos de cooperación internacional, transferencias o aportes económicos especiales que podrán realizar todas las instituciones públicas o privadas y las empresas del Estado, el que, de acuerdo con sus posibilidades, destinará recursos presupuestarios para garantizar la accesibilidad en los centros de salud de los productos establecidos en el presente artículo.
+Rige a partir de su publicación.
+Dado en la Presidencia de la República, San José, a los veintinueve días del mes de noviembre del año dos mil veintitrés.
+EJECÚTESE Y PUBLIQUESE.
