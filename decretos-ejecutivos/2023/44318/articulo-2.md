@@ -1,0 +1,1 @@
+Artículo 2.- Los entes prestadores del servicio de electricidad, sean públicas, municipales o privadas, así como las instituciones del Estado, deberán analizar la producción de hidrógeno como una oportunidad para generar valor agregado en el encadenamiento productivo, generación de empleo calificado y atracción de inversiones para el desarrollo económico del país.
