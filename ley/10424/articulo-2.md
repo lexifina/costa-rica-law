@@ -1,0 +1,18 @@
+ARTÍCULO 2- Definiciones. Para efectos de aplicación de la presente ley se utilizarán las siguientes definiciones:
+a) Menstruación: eliminación periódica de sangre por la vagina, proveniente de la descamación del revestimiento interno del útero, a saber, el endometrio. Esta descamación del endometrio es causada por el rápido descenso de la producción ovárica de progesterona y estrógeno que ocurre en cada ciclo en ausencia de un embarazo.
+b) Menarquía: aparición de la primera menstruación.
+c) Gestion menstrual: uso de materiales limpios de manejo menstrual por parte de las mujeres con capacidad de menstruar para absorber o recoger la sangre menstrual, que se pueden cambiar en privado tantas veces como sea necesario durante la menstruación, usando jabón y agua para lavar el cuerpo, según sea necesario, y con acceso a instalaciones para desechar los materiales utilizados.
+d) Educación menstrual: todos los conocimientos y aprendizajes necesarios relacionados con la menstruación, que garanticen la toma de decisiones informadas para gestionar la menstruación de forma digna, con la privacidad que se desee, de acuerdo con las condiciones, necesidades y creencias de la mujer, desprovista de los juicios sociales sobre el cuerpo o roles de género, priorizando el cuidado de la salud física y mental.
+e) Infraestructura menstrual: instalaciones asociadas a la seguridad y dignidad menstrual, como servicios sanitarios, baños públicos e infraestructura de agua, saneamiento y gestión de desecho menstrual.
+f) Productos de higiene menstrual: materiales de primera necesidad utilizados para recolectar el flujo menstrual como:
+? Toallas sanitarias desechables y reutilizables, en sus distintas presentaciones.
+? Tampones, en sus distintas presentaciones.
+? Copas menstruales, en sus distintas presentaciones.
+? Esponjas menstruales o esponjas vaginales, en sus distintas presentaciones.
+? Calzones menstruales, en sus distintas presentaciones.
+? Panales menstruales, en sus distintas presentaciones.
+? Protectores desechables y reutilizables, en sus distintas presentaciones.
+También, serán considerados artículos de higiene menstrual otros que sean así catalogados por el Ministerio de Salud.
+g) Pobreza menstrual: se refiere al aumento de la vulnerabilidad económica que enfrentan las mujeres con capacidad de menstruar, debido a la carga financiera planteada por la adquisición de suministros para la menstruación; estos incluyen no solo los artículos de higiene menstrual, sino también gastos conexos tales como analgésicos y ropa interior, entre otros.
+h) Contaminación asociada a la gestión menstrual: todas las formas de afectación química y física a los ecosistemas producto del inadecuado desecho de los productos de higiene menstrual. La contaminación física producto de la presencia misma de los desechos de forma prolongada por la imposibilidad de una degradación natural en periodos cortos, y la contaminación química producto de la interacción entre las sustancias desechadas y los ecosistemas.
+i) Salud e higiene menstrual: prácticas y capacidad para manejar de manera segura su ciclo menstrual, con la privacidad deseada y con dignidad, fundamentales para su salud, bienestar psicosocial y movilidad. Incluye información veraz y entendible que permita tomar decisiones informadas sobre la menstruación; factores como salud integral, bienestar, igualdad de género, educación asociada al acceso a conocimiento oportuno, materiales disponibles, seguros y asequibles; atención por parte de personas profesionales informadas y sensibles; derivación y acceso a servicios de salud, instalaciones de saneamiento y lavado; normas sociales positivas, eliminación segura e higiénica, y promoción de políticas sobre salud e higiene menstrual.
