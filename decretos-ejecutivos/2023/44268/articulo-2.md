@@ -1,0 +1,2 @@
+Artículo 2º-A partir de la entrada en vigencia del presente Decreto Ejecutivo, los titulares de los productos utilizados en caso de "Resfríos" que contengan 500 mg de Acetaminofén en forma de polvo para solución oral y 60 mg Pseudoefedrina en forma de polvo para solución oral, podrán solicitar el cambio posterior al registro correspondiente.
+Asimismo, hasta tanto estos medicamentos cuenten con el cambio posterior al registro aprobado y modifiquen consecuentemente la modalidad de venta en su etiquetado, podrán comercializarse como productos de venta libre.
