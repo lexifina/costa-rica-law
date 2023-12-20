@@ -1,0 +1,7 @@
+CIRCULAR N° 330-2023
+Asunto: Aclaración de la circular N°302-2023, sobre la prestación del servicio en la modalidad de apertura efectiva para el cierre colectivo de fin de año 2023 y principio de 2024" y "Plan de Vacaciones del período 2023/2024".
+A LAS INSTITUCIONES, ABOGADAS, ABOGADOS, SERVIDORAS,
+SERVIDORES JUDICIALES Y PÚBLICO EN GENERAL:
+El Consejo Superior, en sesión N° 99-2023 celebrada el 28 de noviembre de 2023, artículo LIX, a solicitud del Tribunal de Apelación de sentencia del Segundo Circuito Judicial de San José, dispuso aclarar el acápite XIV de la circular N°302-2023, en el sentido que durante el cierre colectivo de fin y principio de año 2023/2024, así como de semana santa de 2024, el citado despacho trabajará bajo la modalidad de disponibilidad, y no de apertura efectiva, para cual destacará tres personas juzgadoras de categoría 5. Lo anterior, en el entendido que el personal disponible atenderá además los asuntos e informes que son ordenados por la Sala Constitucional con ocasión de recursos de amparo y habeas corpus que se cursen. Asimismo, las personas disponibles contestarán los informes que la Sala Constitucional requiera en virtud de planteamientos de recursos de habeas corpus o amparos. Además, el personal que laborará en los roles que se establezcan, deberán de presentarse a laborar al despacho, en los horarios ya establecidos durante los cierres colectivos.
+Publíquese una vez en el Boletín Judicial.
+San José, 20 de diciembre de 2023
