@@ -33,3 +33,4 @@ Reglamento de especialidades y subespecialidades médicas
 | 18 | 2023-04-26 | Reglamento 4 (2023-04-26) |
 | 19 | 2023-06-14 | Reglamento 0 (2023-06-14) |
 | 20 | 2023-11-15 | Reglamento 0 (2023-11-15) |
+| 21 | 2023-12-20 | Reglamento 0 (2023-12-20) |

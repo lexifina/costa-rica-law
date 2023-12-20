@@ -92,6 +92,8 @@ b. Aprobación de un programa de estudios de posgrado (residencia médica) de do
 Requisitos específicos:
 a. Aprobación de un programa de estudios de posgrado (residencia médica) de dos (2) años en la Especialidad de Medicina Interna, en un Hospital de Tercer Nivel, Regional o Periférico, perteneciente o adscrito a una Universidad.
 b. Aprobación de un programa de estudios de posgrado (residencia médica) de tres (3) años en la Especialidad de Geriatría y Gerontología, en un Hospital de Tercer Nivel, Regional o Periférico perteneciente o adscrito a una Universidad.
+Se reconoce como sinónimo de esta especialidad, el siguiente término: Geriatría.
+(Así adicionado el párrafo anterior en sesión ordinaria 2023.12.20, celebrada el 20 de diciembre de 2023)
 14.20 Especialidad Médica en Ginecología y Obstetricia.
 Se reconocen como sinónimos de esta Especialidad, los siguientes términos:
 Obstetricia y Ginecología, Tocoginecología; Tocología.
