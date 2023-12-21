@@ -1,0 +1,1 @@
+Artículo 3. El SINAC a través del Área de Conservación Central en conjunto con las Municipalidades de Tarrazú, Dota y León Cortes, procederán a elaborar el respectivo plan de manejo en el plazo de 3 años a partir de la vigencia de este decreto.
