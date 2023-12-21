@@ -1,4 +1,5 @@
 N° 10414
+(Nota de Sinalevi: Mediante el artículo 1° del decreto ejecutivo N° 44386 del 12 de febrero de 2024, la República de Costa Rica, se adhiere al presente Convenio.)
 LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA
 DECRETA:
 APROBACIÓN DE LA ADHESIÓN DE LA REPÚBLICA DE COSTA RICA
@@ -64,7 +65,7 @@ ATLANTICO
 (Como enmendado por el Protocolo adoptado en París el 10 de julio de 1984
 y por el Protocolo adoptado en Madrid el 5 de junio de 1992)
 PREAMBULO
-Los Gobiernos, cuyos representantes debidamente autorizados firman el presente Convenio, considerando su mutuo interés en las poblaciones de atunes y especies afines que se encuentran en el Océano Atlántico, y deseando cooperar para
-mantener tales poblaciones a niveles que permitan capturas máximas continuas, para la alimentación y otros propósitos, resuelven concertar un convenio para conservar los recursos de atunes y sus afines del Océano Atlántico, y con ese propósito acuerdan lo siguiente:
+Los Gobiernos, cuyos representantes debidamente autorizados firman el presente Convenio, considerando su mutuo interés en los stocks de atunes y especies afines y de elasmobranquios que sean oceánicos, pelágicos y altamente migratorios, que se encuentran en el océano Atlántico, y deseando cooperar para mantener tales stocks a niveles que permitan su conservación a largo plazo y su aprovechamiento sostenible, para la alimentación y otros propósitos, resuelven concertar un convenio para conservar estos recursos, y con este propósito acuerdan lo siguiente:
+(Así reformado el párrafo anterior por el artículo 1° del Protocolo de Enmienda al Convenio Internacional para la conservación del atún del Atlántico, aprobado mediante Tratado Internacional, N° 10414 del 14 de noviembre del 2023)
 ARTICULO I
 La zona a la que se aplicará el presente Convenio, en lo sucesivo denominada "Zona del Convenio", abarcará todas las aguas del Océano Atlántico, incluyendo los Mares adyacentes.

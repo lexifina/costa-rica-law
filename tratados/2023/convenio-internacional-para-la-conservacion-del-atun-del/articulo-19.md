@@ -1,0 +1,4 @@
+Artículo XIX
+El texto original del presente Convenio se depositará ante el Director General de la Organización de las Naciones Unidas para la Alimentación y la Agricultura, quien enviará copias certificadas a los Gobiernos mencionados en el párrafo 1 del Artículo XVII y a las organizaciones mencionadas en el párrafo 4 del mismo Artículo.
+(Así reformado por el artículo 10 del Protocolo de Enmienda al Convenio Internacional para la conservación del atún del Atlántico, aprobado mediante Tratado Internacional, N° 10414 del 14 de noviembre del 2023)
+EN TESTIMONIO DE LO CUAL, los representantes, debidamente autorizados por sus respectivos Gobiernos, firman el presente Convenio. Hecho en Río de Janeiro el día catorce de mayo de mil novecientos sesenta y seis, en los idiomas español, francés e inglés, siendo cada una de las versiones igualmente auténticas.

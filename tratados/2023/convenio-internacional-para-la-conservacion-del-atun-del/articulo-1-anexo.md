@@ -1,0 +1,9 @@
+ANEXO 1
+PROCEDIMIENTOS PARA LA SOLUCIÓN DE CONTROVERSIAS
+1. El tribunal arbitral mencionado en el párrafo 4 del Artículo X debería estar compuesto, cuando proceda, por tres árbitros que podrán ser designados del siguiente modo:
+(a) Una de las partes de la controversia debería comunicar el nombre de un árbitro a la otra parte de la controversia, que, a su vez, en un plazo de cuarenta días tras dicha notificación, debería comunicar el nombre del segundo árbitro. En las controversias entre más de dos Miembros de la Comisión, las partes con los mismos intereses deberían designar conjuntamente un árbitro. Las partes de la controversia, en un plazo de sesenta días tras la designación del segundo árbitro, deberían designar al tercer árbitro, que no será nacional de ninguno de los Miembros de la Comisión y cuya nacionalidad será diferente a la de los dos primeros árbitros. El tercer árbitro debería presidir el tribunal.
+(b) Si el segundo árbitro no es designado en el periodo establecido, o si las partes no llegan a un acuerdo en el periodo establecido para la designación del tercer árbitro, dicho árbitro podrá ser designado, a petición de las partes de la controversia, por el presidente de la Comisión, en un plazo de dos meses a partir de la fecha de recepción de la petición.
+2. La decisión del tribunal arbitral debería dictarse por mayoría de sus miembros, que no deberían abstenerse de votar.
+3. La decisión del tribunal arbitral es final y vinculante para las partes de la controversia. Las partes de la controversia deberían cumplir la decisión sin demora.
+El tribunal arbitral podrá interpretar la decisión a petición de una de las partes de la controversia.
+(Así adicionado por el artículo 11 del Protocolo de Enmienda al Convenio Internacional para la conservación del atún del Atlántico, aprobado mediante Tratado Internacional, N° 10414 del 14 de noviembre del 2023)

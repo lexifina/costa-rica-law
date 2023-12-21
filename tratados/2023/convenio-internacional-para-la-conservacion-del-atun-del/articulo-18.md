@@ -1,0 +1,3 @@
+Artículo XVIII
+El Director General de la Organización de las Naciones Unidas para la Alimentación y la Agricultura informará a todos los Gobiernos mencionados en el párrafo 1 del Artículo XVII y a todas las organizaciones mencionadas en el párrafo 4 del mismo Artículo de los depósitos de instrumentos de ratificación, aprobación, confirmación oficial o adhesión, de la entrada en vigor del Convenio, de las propuestas de enmiendas, de las notificaciones de aceptación de las enmiendas, de la entrada en vigor de estas y de las notificaciones de retirada.
+(Así reformado por el artículo 10 del Protocolo de Enmienda al Convenio Internacional para la conservación del atún del Atlántico, aprobado mediante Tratado Internacional, N° 10414 del 14 de noviembre del 2023)
