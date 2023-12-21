@@ -65,7 +65,8 @@ r) Modificaciones de contrato (modificación unilateral del contrato, Cesión, p
 Las modificaciones a los contratos son aprobadas por el Consejo y en el sistema lo aprueba el presidente y el contratista cuando corresponda.
 . Licitación menor, reducida y por excepción cuando el monto del contrato sea de una Licitación menor o reducida:
 Las modificaciones a los contratos son aprobadas por el director del área solicitante y el contratista cuando corresponda. En el caso de las unidades adscritas al Consejo de la SUTEL, le corresponderá al director general de operaciones.
-Refrendo contralor o interno: Las modificaciones a los contratos se enviarán a refrendo contralor o interno según se disponga en el Reglamento de Refrendos emitido por la Contraloría General de la República y en lo indicado internamente por la unidad jurídica de la SUTEL.
+Refrendo interno: Las modificaciones a los contratos que fueron refrendados por la Contraloría General de la República (CGR), se deben enviar a la Unidad Jurídica a refrendo interno; las modificaciones de los contratos que posean refrendo interno no requieren refrendo interno, según lo dispuesto en el Reglamento sobre el Refrendo de las Contrataciones de la Administración Pública, emitido por la CGR.
+(Así reformdo el párrafo anterior mediante sesión N° 075 del 21 de diciembre de 2023)
 s) Recurso contra la aplicación de multa, cláusula penal o garantías
 . Licitación mayor o por excepción cuando el monto de lo adjudicado es una licitación mayor:
 La resolución final del recurso la resuelve y aprueba el Consejo y en el sistema el presidente.

@@ -14,3 +14,4 @@ Reglamento interno de compras públicas de la Superintendencia de Telecomunicaci
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-12-08 | la propia norma |
+| 2 | 2023-12-21 | Resolución 75 (2023-12-21) |

@@ -1,0 +1,2 @@
+Artículo 32 bis. Derogatoria. Se deroga el Reglamento de compras de la Superintendencia de Telecomunicaciones, aprobado mediante resolución RCS-2432019, según el acuerdo 015-058-2019, de la sesión 058-2019, del Consejo de la Superintendencia de Telecomunicaciones, publicado en el Alcance N° 224 a La Gaceta N° 197 del 17 de octubre de 2019, y sus reformas, así como cualquier otra del mismo rango que se le oponga.
+(Así adicionado mediante sesión N° 075 del 21 de diciembre de 2023)

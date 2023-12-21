@@ -1,0 +1,8 @@
+Artículo 8 bis-Competencia del presidente del Consejo y de los directores del área solicitante en situaciones excepcionales.
+1. El presidente del Consejo en conjunto con el director general del área solicitante, en los casos en que no exista quorum estructural del Consejo, podrán adoptar mediante acto motivado y, previo visto bueno de la Unidad Jurídica e informe de la unidad correspondiente de la Dirección General de Operaciones, los siguientes actos:
+a) Acto final (adjudicación, declaratoria de desierto o infructuoso): en procedimientos de licitación mayor y por excepción, cuando el monto adjudicado sea de una licitación mayor.
+b) Modificaciones de contrato (modificación unilateral del contrato, cesión, plazo del contrato y prórrogas, prórrogas al plazo de ejecución del contrato, suspensión del plazo del contrato, recibo de bienes actualizados y otros): en licitación mayor y por excepción, cuando el monto del contrato sea de una licitación mayor.
+c) Otros actos. Todos los demás actos administrativos que no se encuentren estipulados en este reglamento interno y correspondan a licitación mayor y por excepción cuando el monto estimado, el adjudicado o el del contrato sea de una licitación mayor.
+2. El presidente del Consejo en los casos en que no exista quorum estructural del Consejo podrá adoptar mediante acto motivado y, previo visto bueno de la Unidad Jurídica e informe de la unidad correspondiente de la Dirección General de Operaciones, los siguientes actos:
+a) Recurso de apelación en contra de la aplicación de multa, cláusula penal o garantías.
+(Así adicionado mediante sesión N° 075 del 21 de diciembre de 2023)

@@ -1,0 +1,2 @@
+Transitorio I. Los procedimientos de contratación y contratos iniciados antes de la vigencia de este Reglamento se concluirán conforme a las disposiciones vigentes en el momento de adoptarse la decisión inicial del concurso o correspondiente procedimiento, y sin perjuicio de lo ya establecido en el Transitorio I de la Ley General de Contratación Pública, Ley N°9986 y su reglamento.
+(Así adicionado en sesión N° 075 del 21 de diciembre de 2023)
