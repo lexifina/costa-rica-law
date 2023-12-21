@@ -1,1 +1,0 @@
-Artículo 6°. – Estudio de mercado. Las Unidades solicitantes de procedimiento de contratación serán los responsables de ejecutar los estudios de mercado para determinar, en función de la calidad y oportunidad del objeto contractual requerido, un precio referencial para la asignación de los recursos financieros proyectados para su adquisición.

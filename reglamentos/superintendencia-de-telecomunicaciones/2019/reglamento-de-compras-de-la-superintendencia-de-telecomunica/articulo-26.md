@@ -1,1 +1,0 @@
-Artículo 26°- Desactivar o bloquear la tarjeta. En caso de que por algún motivo el tarjetahabiente haga uso indebido de la tarjeta o deje de laborar, ya sea en forma permanente o temporal para la SUTEL, la Dirección General de Operaciones deberá solicitar inmediatamente al Banco desactivar o bloquear la tarjeta electrónica, según sea el caso.

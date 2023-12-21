@@ -1,1 +1,0 @@
-Artículo 4°. - Deber de planificar. Las Unidades de la SUTEL deben planificar sus procesos de adquisición de bienes y servicios en concordancia con sus planes estratégicos y operativos, con sujeción a la disponibilidad presupuestaria de cada partida para el año que corresponda y al cumplimiento de los requisitos previos de la contratación administrativa.

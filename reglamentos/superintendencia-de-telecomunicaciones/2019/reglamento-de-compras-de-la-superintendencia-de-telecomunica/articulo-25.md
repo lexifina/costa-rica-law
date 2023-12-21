@@ -1,1 +1,0 @@
-Artículo 25°- Uso indebido de la tarjeta. Si se detecta un posible uso diferente al permitido en el artículo 19 de este reglamento, deberá informarlo de inmediato a la Dirección General de Operaciones, para que eleve el informe respectivo ante el Consejo de la SUTEL, a fin de que se tomen las medidas pertinentes.
