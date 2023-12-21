@@ -21,4 +21,6 @@ h) Representantes de la JPS: Las personas que designe la Junta de Protección So
 i) Representantes de los vendedores de lotería: Personas que integran la JD del Fondo y que ostentan a título personal una cuota o contrato de lotería vigente.
 j) Reserva para contingencias futuras: Es la reserva para compensar pérdidas o quebrantos extraordinarios, a la cual debe destinarse un 10% de las utilidades líquidas, realizadas y no distribuidas. Tiene por objeto cubrir únicamente pérdidas venideras en el ejercicio de sus operaciones.
 k) Vendedor: El vendedor de loterías autorizado por la Junta de Protección Social.
+l) Saldos ex aportantes: Corresponde a los aportes registrados en las cuentas individuales de vendedores de lotería que han perdido su condición de tal ante la Junta de Protección Social, que se encuentran en custodia de FOMUVEL y que no han sido retirados y/o reclamados por éstos o sus derechohabientes.
+(Así adicionada la definición anterior mediante sesión N° 70-2023 del 21 de diciembre de 2023)
 (Así reformado en sesión N° 34 del 21 de julio de 2022)

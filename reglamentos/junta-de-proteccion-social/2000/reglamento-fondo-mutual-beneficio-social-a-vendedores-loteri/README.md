@@ -24,3 +24,4 @@ Reglamento Fondo Mutual Beneficio Social a Vendedores Lotería
 | 9 | 2022-07-21 | Reglamento 34 (2022-07-21) |
 | 10 | 2023-03-13 | Reglamento 14 (2023-03-13) |
 | 11 | 2023-07-06 | Reglamento 38 (2023-07-06) |
+| 12 | 2023-12-21 | Reglamento 70 (2023-12-21) |
