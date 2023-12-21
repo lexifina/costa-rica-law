@@ -1,0 +1,1 @@
+Artículo 30.-Interpretación y normativa supletoria. En lo no regulado por este reglamento, se aplicarán las disposiciones pertinentes de la legislación nacional, procedimientos, instructivos y normativa interna del Colegio, y las disposiciones que al respecto emita la Junta Directiva del Colegio de Terapeutas de Costa Rica.

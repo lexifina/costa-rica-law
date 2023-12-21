@@ -1,0 +1,1 @@
+Artículo 22.-Vigencia del certificado. El certificado de regencia tiene una vigencia de cinco años. Dos meses antes del vencimiento, se deberá iniciar la solicitud de renovación ante el Colegio. El certificado de regencia no se renueva de manera automática.

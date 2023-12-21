@@ -1,0 +1,1 @@
+Artículo 7º-Calibración. Todos los equipos audiológicos que lo requieran deben de ser calibrados según las especificaciones del fabricante; dicha calibración debe ser respaldada y certificada por un ente regulador nacional o por personal debidamente capacitado y certificado por el fabricante, según las normas de calidad vigentes.

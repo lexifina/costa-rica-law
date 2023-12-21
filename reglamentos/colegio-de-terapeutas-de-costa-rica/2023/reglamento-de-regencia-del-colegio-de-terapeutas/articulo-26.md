@@ -1,0 +1,1 @@
+Artículo 26.-Derechos del regente. Es derecho del regente de establecimiento audiológico, ejercer sus competencias profesionales de conformidad con lo que le faculta el Colegio de Terapeutas, a través del Perfil Profesional y la normativa vinculante vigente.

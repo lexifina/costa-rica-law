@@ -1,0 +1,1 @@
+Artículo 28.-Plazo para cumplimiento. A partir de la publicación del presente Reglamento, se otorgará un plazo de seis (6) meses calendario a los establecimientos audiológicos existente, a fin de que se adecuen a las disposiciones de este reglamento en caso necesario.

@@ -1,0 +1,1 @@
+Artículo 13.-Permanencia del regente. Un Audiólogo(a) no podrá regentar, en el mismo horario, en más de un establecimiento audiológico. Deberá permanecer en el establecimiento regentado, durante las horas que señale el certificado de regencia audiológica. En ningún caso, el horario de regencia podrá sobrepasar las doce (12) horas diarias.

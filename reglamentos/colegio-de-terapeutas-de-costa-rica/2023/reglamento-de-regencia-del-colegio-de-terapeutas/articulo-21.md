@@ -1,0 +1,1 @@
+Artículo 21.-Retiro de certificado. Podrá retirar el certificado de regencia cualquiera de las personas firmantes de la solicitud o un tercero con una autorización debidamente firmada, con copia de la cédula de la persona que autoriza. Asimismo, el certificado podrá ser enviado por medio de mensajería aprobada por el Colegio para dichos trámites.

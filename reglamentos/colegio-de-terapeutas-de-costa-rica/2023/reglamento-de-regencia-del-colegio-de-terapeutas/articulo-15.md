@@ -1,0 +1,1 @@
+Artículo 15.-Obligación de informar contravenciones. El regente audiológico deberá dar parte a la Fiscalía del Colegio de Terapeutas de Costa Rica, cuando conozca de contravenciones a las disposiciones legales y reglamentarias aplicables al establecimiento que regenta.

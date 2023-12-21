@@ -1,0 +1,3 @@
+CAPÍTULO III
+De la regencia audiológica
+Artículo 8º-Regencia audiológica. Todo establecimiento audiológico público o privado, debe ser regentado, durante las horas de funcionamiento, por un profesional en Audiología que cumpla con las condiciones antes dichas. Se exceptúa de esta disposición los laboratorios de fabricación y reparación de prótesis auditivas que se dediquen exclusivamente a esas actividades instrumentales y que no brinden servicios de atención al paciente.

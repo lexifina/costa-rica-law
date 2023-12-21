@@ -1,0 +1,2 @@
+Artículo 9º-Regentes Audiológicos. Un establecimiento audiológico, puede contar con varios regentes titulares con el fin de cubrir la totalidad del horario establecido en la regencia para los consultorios que se requiera. Además, podrá disponer de regentes itinerantes y regentes suplentes quienes sustituirán a los titulares ante eventualidades (vacaciones, incapacidades y situaciones especiales).
+El certificado de regencia otorgado por el Colegio de Terapeutas para cada uno de los tipos de regentes deberá colocarse en un lugar visible del establecimiento.

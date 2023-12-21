@@ -1,0 +1,1 @@
+Artículo 17.-Servicio audiológico a domicilio. No se podrán realizar procedimientos audiológicos los cuales para su aplicación requieran de condiciones específicas y controladas tales como todas las evaluaciones audiológicas de carácter clínico.
