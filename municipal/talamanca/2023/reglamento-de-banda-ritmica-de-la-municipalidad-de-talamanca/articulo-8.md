@@ -1,0 +1,7 @@
+Artículo 8º-Sanciones y otras disposiciones.
+1- Corresponde a la comisión y dirigentes velar por el cumplimiento de este reglamento y aplicar las sanciones pertinentes. Igualmente les corresponde resolver cualquier caso no previsto en él.
+2- Las sanciones se aplicarán en función de la gravedad de los actos, pudiendo consistir en amonestación verbal, separación de la actividad que se esté desarrollando, separación temporal de la banda y expulsión. En cualquier caso, los miembros o sus padres podrán alegar cuantos argumentos estimen oportunos, solicitando audiencia a la junta directiva.
+3- No podrá ser admitido en una actuación o conjunto de actuaciones el integrante que haya faltado a más de un 60 % de los ensayos (o más del 80% si reside lejos) habidos para su preparación, sin haber comunicado.
+4- Se considera abandono voluntario de la banda la inasistencia de un miembro durante al menos dos meses sin que medien razones de fuerza mayor. En tal caso, será invitado a entregar los materiales que sean propiedad de la banda, si los tuviese.
+5- El miembro que haya abandonado voluntariamente la banda, si lo desea, podrá ingresar en ella una vez transcurrido un año, para lo cual deberá presentar una solicitud por escrito a la comisión municipal, quienes serán responsables de autorizar o rechazar la incorporación del solicitante.
+6- El miembro que haya sido expulsado de la banda no podrá volver a ser readmitido en la misma hasta pasado al menos un año, habiendo de mediar la aprobación unánime de la junta Directiva.
