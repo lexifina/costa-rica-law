@@ -1,0 +1,17 @@
+Artículo 2°.- Adiciónense los artículos 43º, 44° y 45° al Capítulo V denominado "Sobre materia salarial" y los artículos 46°, 47°, 48 °, 49° , 50º , 51 º, 52° y 53º al Capítulo VI "Sobre empleo" y córrase la numeración a partir del actual artículo 45º que pasa a ser el artículo 54 ° del Decreto Ejecutivo N.º 43977-H, Directrices generales de política presupuestaria, salarial, empleo, inversión y endeudamiento para ministerios, entidades públicas y sus órganos desconcentrados, según corresponda, cubiertos por el ámbito de la Autoridad Presupuestaria, para el año 2024, publicado en el Alcance N.º 56 a La Gaceta N.º 60 del 31 de marzo del 2023, cuyos textos dispondrán lo siguiente:
+"CAPÍTULO V
+Sobre materia salarial
+Artículo 43°. La AP resolverá las modificaciones en la clasificación y/o valoración de los puestos considerados en el artículo 3 7 de la Ley Marco de Empleo Público, publicada en el Alcance N.º 50 a La Gaceta N.º 46 del 9 de marzo del 2022.
+Artículo 44°.-El gasto total que genera la implementación de la propuesta salarial del manual institucional, no podrá financiarse con recursos provenientes de superávit, préstamos y emisión de deuda.
+Artículo 45° .- A los puestos de servicios especiales se les aplicará el mismo sistema de clasificación y valoración utilizado para los de cargos fijos, siempre y cuando dichos puestos sean similares en propósito, resultados esperados y demás factores de clasificación.
+CAPÍTULO VI
+Sobre empleo
+Artículo 46°.- Las plazas por servicios especiales no se podrán convertir a plazas por cargos fijos.
+Artículo 47°.- Todas las plazas de las entidades públicas y sus órganos desconcentrados aprobadas por la AP, deben incluirse en la relación de puestos; en caso de no incorporarse en esta, deberán eliminarse y no se considerarán en la cantidad de plazas autorizadas.
+De existir plazas en la relación de puestos que no estén aprobadas por la AP, deberán ser eliminadas.
+Artículo 48°.- En aquellos casos en que exista contenido presupuestario en la Ley de Presupuesto de la República, para financiar posibles nuevas plazas para los ministerios, únicamente podrán utilizarse hasta que cuenten con la aprobación respectiva por parte de la AP.
+Artículo 49º .- La AP durante el primer trimestre de cada año, comunicará a los ministerios, las entidades públicas y sus órganos desconcentrados, la cantidad ele puestos autorizados.
+Artículo 50° .- Cada plaza contará con un único código o número de puesto y en ésta solo se podrá nombrar a un funcionario, salvo en los casos de suplencia o sustitución en que se podrá nombrar a otro funcionario en el mismo código o número de puesto para esos efectos.
+Artículo 51º.- Los ministerios, las entidades públicas y sus órganos desconcentrados, deberán eliminar los puestos vacantes que se generen por movilidad laboral voluntaria en aplicación del artículo 25 de la Ley N.º 6955, o por reestructuración organizacional, excepto cuando las vacantes se originen por cambios en el perfil del puesto que conllevan a homologaciones o modificaciones en los manuales vigentes.
+Artículo 52º .- No se podrá contratar personal con carácter permanente por las subpartidas de jornales y de servicios especiales.
+Artículo 53º .- No se permitirán las reasignaciones de puestos ocupados en propiedad y vacantes, para los ministerios, las entidades públicas y sus órganos desconcentrados; con excepción de aquellas reasignaciones que sean descendentes o bien aquellas reasignaciones que mantengan el mismo nivel salarial".
