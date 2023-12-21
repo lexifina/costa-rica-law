@@ -1,0 +1,2 @@
+ARTICULO XV
+El Director General de la Organización de las Naciones Unidas para la Agricultura y la Alimentación, informará a todos los gobiernos mencionados en el párrafo 1 del Artículo XIV y a todas las organizaciones mencionadas en el párrafo 4 del mismo Artículo, de los depósitos de los instrumentos de ratificación, aprobación, confirmación oficial o adhesión, de la entrada en vigor del presente Convenio, de las propuestas de enmiendas, de las notificaciones de aceptación de las enmiendas, de la entrada en vigor de las mismas y de las notificaciones de retirada.
