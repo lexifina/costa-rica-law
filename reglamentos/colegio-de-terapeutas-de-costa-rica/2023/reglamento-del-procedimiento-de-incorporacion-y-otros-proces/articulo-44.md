@@ -1,0 +1,2 @@
+CAPÍTULO II. SOBRE LA DESAFILIACIÓN O RETIRO VOLUNTARIO
+Artículo 44.- Sobre la desafiliación o retiro voluntario. El colegiado que no se encuentre ejerciendo su profesión, podrá solicitar a la Junta Directiva la desafiliación. Los efectos de este retiro voluntario son la suspensión del pago de la colegiatura y la imposibilidad de ejercer como profesional en el área profesional respectiva por un periodo indefinido.

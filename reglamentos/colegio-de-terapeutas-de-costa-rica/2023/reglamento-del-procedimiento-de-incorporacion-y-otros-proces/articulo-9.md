@@ -1,0 +1,2 @@
+Artículo 9.- En los aspectos que el presente reglamento guarde silencio, se atenderá primeramente a lo dispuesto en la Ley nro. 8989, el Reglamento a la Ley nro. 8989, y la Ley General de la Administración Pública en lo que resulte atinente.
+En caso de existir duda sobre la resolución de determinada solicitud, se atenderá a la competencia del CTCR y sus órganos en la regulación del ejercicio profesional, los principios éticos, la continuidad, eficiencia y la función social del ejercicio profesional, así como la finalidad del procedimiento o trámite respectivo y sus efectos.

@@ -1,0 +1,4 @@
+Artículo 31.- Publicación de edicto. Una vez entregados los requisitos establecidos en el párrafo anterior, en el área de Plataforma de Servicios del CTCR, se le entregará al colegiado, el texto de un edicto en el cual se indica que está solicitando la reposición del título de incorporación ante el Colegio de Terapeutas de Costa Rica.
+Dicho edicto debe ser firmado por el solicitante y presentado ante la Imprenta Nacional para ser publicado por una vez. Los gastos de dichas publicaciones corren por cuenta del colegiado. El solicitante deberá remitir copia de la publicación al CTCR, por los medios habilitados.
+Asimismo, el Colegio incluirá la solicitud de reposición, en un apartado de la página web destinado para tal efecto.
+Una vez transcurrido el plazo de 10 días desde la publicación, sin haber recibido oposiciones, se continuará con el trámite de reposición del título de incorporación.

@@ -1,0 +1,2 @@
+Artículo 37.- Registro de firmas y modificación. El Colegio llevará un registro de firmas de los agremiados, con el fin de verificar la firma autorizada para el ejercicio profesional. La modificación de firma no exime de responsabilidad por el uso de las rúbricas anteriores.
+El registro inicial de la firma o la modificación se realizará presentándose ante el Colegio o a través de los medios habilitados para tal fin.

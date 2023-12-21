@@ -1,0 +1,2 @@
+Artículo 24.- La incorporación al Colegio de Terapeutas de Costa Rica, de los profesionales a los que se refiere el presente capítulo, no implica la desafiliación o inhabilitación automática como agremiados del Colegio de Médicos y Cirujanos. Por tanto, podrán ostentar la condición de agremiados en ambos colegios profesionales.
+La regulación en materia de responsabilidades y obligaciones derivadas de la incorporación al Colegio de Terapeutas resulta independiente de lo que estipule el Colegio de Médicos y Cirujanos de Costa Rica.

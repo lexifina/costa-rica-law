@@ -1,0 +1,1 @@
+Artículo 52.- Cómputo de la exoneración. La exoneración del pago de la colegiatura y sus efectos rigen a partir del día que el colegiado cumpla con la firma del documento de aprobación y entrega de las credenciales correspondientes.

@@ -1,0 +1,4 @@
+Artículo 13 bis. - Trámite. En caso de que se deba aclarar sobre alguno de los requisitos presentados, desde el Colegio se le informará al interesado en un plazo de 2 días hábiles, después de recibida la solicitud. La persona interesada tendrá un plazo de 3 días hábiles para hacer llegar la información faltante o realizar las aclaraciones pertinentes.
+Sobre la inscripción al curso de Ética Profesional, la Plataforma de Servicios resolverá en un plazo de 2 días hábiles como máximo, después de que se cuente con la información completa.
+En caso de que la inscripción sea rechazada y a solicitud del interesado, el caso se remitirá a la Junta Directiva, quienes resolverán en el plazo máximo de un mes.
+Durante el tiempo que dure este proceso, los solicitantes podrán consultar sobre el estado de su solicitud a través de la Plataforma de Servicios, por los medios habilitados para tal efecto.

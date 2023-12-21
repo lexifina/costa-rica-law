@@ -1,0 +1,1 @@
+Artículo 2.- Cumplimiento de requisitos. En todos los procedimientos y trámites del presente reglamento, el CTCR observará que se cumplan los requisitos formales y sustanciales para la aceptación de las solicitudes.

@@ -1,0 +1,3 @@
+Artículo 59.- Rige a partir de su publicación en el Diario Oficial La Gaceta.
+Nota: La presente versión del Reglamento se publica de forma íntegra para evitar confusión en los textos. La versión original se publicó en el Diario Oficial La Gaceta nro. 84 del 03 de mayo de 2013 a partir de la página 20, tuvo una reforma total, publicada en el Alcance nro. 49 al Diario Oficial La Gaceta nro. 42 del 06 de marzo de 2018 a partir de la página 81 y a partir de ese momento, ha tenido seis reformas incluyendo la presente, aprobada mediante acuerdo número 2023-0029-7 tomado en la sesión 2023-0029 de la Junta Directiva, celebrada el 15 de noviembre de 2023.
+Autorizan para su publicación:
