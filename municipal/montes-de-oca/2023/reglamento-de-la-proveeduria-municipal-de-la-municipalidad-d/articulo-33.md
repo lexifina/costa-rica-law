@@ -1,0 +1,2 @@
+Artículo 33. Formalización de las contrataciones. La Proveeduría Municipal, en coordinación y con la asesoría de Gestión Jurídica, elaborará mediante el sistema digital unificado los contratos que requieran los diferentes tipos de contratación.
+El Alcalde Municipal será el encargado de concretar y suscribir en el sistema digital unificado los documentos contractuales provenientes de cualquier tipo de contratación.

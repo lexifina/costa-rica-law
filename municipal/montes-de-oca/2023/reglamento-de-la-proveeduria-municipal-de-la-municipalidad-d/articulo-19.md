@@ -1,0 +1,1 @@
+Artículo 19. Devolución Solicitud de Contratación. Si por alguna razón una solicitud no puede ser tramitada por que no cumple con todos los requisitos o es esta mal justificada, la Proveeduría Municipal devolverá el documento al solicitante en un plazo no mayor de tres días, indicando por medio del sistema unificado las razones por las que no se tramita la solicitud.

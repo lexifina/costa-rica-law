@@ -1,0 +1,2 @@
+Artículo 17. Solicitud de pruebas, muestras o demostraciones. Cuando el solicitante de bienes y servicios lo considere necesario, por medio del sistema digital unificado, solicitará a los oferentes: pruebas, muestras o demostraciones con el propósito de conocer mejor el producto o servicio y debe indicar el tipo de pruebas que se van a realizar a las mismas.
+El gestor de la dependencia interesada en las pruebas, debe prestar la debida colaboración para que éstas se realicen en un corto lapso, con el fin de que sean analizadas y se realicen las valoraciones del caso.

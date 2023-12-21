@@ -1,0 +1,1 @@
+Artículo 8. De la Proveeduría Municipal. La Proveeduría es la dependencia municipal competente para tramitar los procedimientos de adquisición de bienes y servicios que interesen a la Municipalidad, así como para realizar los procesos de control y almacenamiento, mediante el Almacén Municipal.

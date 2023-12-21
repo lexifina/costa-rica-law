@@ -1,0 +1,2 @@
+Artículo 12. De la Dirección de Hacienda Municipal. Corresponde a la Dirección de Hacienda Municipal realizar los pagos respectivos a los proveedores de bienes y servicios una vez que la Proveeduría haya informado, mediante acto motivado y con oficio del supervisor de contrato, sobre el recibido a satisfacción de los mismos.
+Corresponderá igualmente a esta unidad llevar a cabo el cobro de multas o sanciones a los contratistas que se deriven de los procedimientos de contratación, previa solicitud de la Proveeduría.

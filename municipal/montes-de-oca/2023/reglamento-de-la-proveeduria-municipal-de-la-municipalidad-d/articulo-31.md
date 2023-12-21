@@ -1,0 +1,2 @@
+Artículo 31. Comparación y evaluación de las ofertas. En el caso de la adquisición de bienes y servicios mediante la modalidad de licitación reducida, la comparación y evaluación de ofertas, se hará basándose en el mejor precio y calidad de los bienes y servicios ofrecidos.
+La comparación y evaluación de las ofertas recibidas en licitaciones menores y mayores se hará en apego a la metodología contenida en el pliego de condiciones.

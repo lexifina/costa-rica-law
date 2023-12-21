@@ -1,0 +1,1 @@
+Artículo 34. Contrato y orden de inicio. En el sistema digital unificado el contrato, una vez notificado; tendrá el valor de orden de compra, con el documento que emitirá el supervisor de contrato llamado orden de inicio, se ordena la ejecución de la prestación de bienes y servicios.

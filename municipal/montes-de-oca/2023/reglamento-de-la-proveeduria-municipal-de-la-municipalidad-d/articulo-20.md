@@ -1,0 +1,3 @@
+Artículo 20. Necesidad real de bienes y servicios. Las justificaciones para la compra de un bien o servicio (por cualquiera de los procedimientos de contratación) así como las especificaciones técnicas o pliego de condiciones deben apegarse a la verdad y a las necesidades reales de la dependencia solicitante.
+Si esto no fuera así, y el bien o servicio adquirido se constituye en una pérdida para la Municipalidad, o no puede utilizarse por errores del solicitante, éste asumirá toda la responsabilidad del caso.
+En casos donde la duración excesiva e injustificada del trámite evite la atención oportuna de una necesidad, la responsabilidad será del órgano responsable del trámite donde se originó el atraso, el cual es detectable en el Sistema Digital Unificado de compras.

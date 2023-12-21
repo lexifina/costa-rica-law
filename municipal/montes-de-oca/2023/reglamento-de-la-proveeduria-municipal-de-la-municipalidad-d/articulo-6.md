@@ -1,0 +1,1 @@
+Artículo 6. Ámbito de aplicación. El presente Reglamento es de acatamiento obligatorio para las Direcciones, Gestores, funcionarios y miembros del Concejo Municipal de la Municipalidad de Montes de Oca, salvo norma en contrario.
