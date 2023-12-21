@@ -1,1 +1,0 @@
-Artículo 45.—Sobre la responsabilidad por no implementar las recomendaciones de la Auditoría Interna. Podrá caber responsabilidad administrativa contra los funcionarios que incumplan injustificadamente las acciones para implementar las recomendaciones de la Auditoría Interna; sin perjuicio de las eventuales responsabilidades que les puedan ser imputadas civil y/o penalmente.

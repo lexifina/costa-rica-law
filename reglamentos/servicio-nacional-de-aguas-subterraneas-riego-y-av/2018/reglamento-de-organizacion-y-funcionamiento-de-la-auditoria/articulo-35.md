@@ -1,1 +1,0 @@
-Artículo 35.—Deber de la Asesoría Legal. Es deber de la Asesoría Legal del SENARA brindar el oportuno y efectivo servicio mediante los estudios jurídicos que requiera la Auditoría Interna, a fin de que esta cumpla adecuadamente su función, salvo que exista un compromiso a la independencia y objetividad.

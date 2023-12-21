@@ -1,4 +1,4 @@
-Artículo 10.—Impedimentos del personal de la Auditoría Interna. A efecto de no perjudicar su objetividad individual y ética profesional, el personal de la Auditoría Interna deberá:
+Artículo 10°-Impedimentos del personal de la Auditoría Interna. A efecto de no perjudicar su objetividad individual y ética profesional, el personal de la Auditoría Interna deberá:
 a) Rechazar regalos o gratificaciones que puedan interpretarse como intentos de influir sobre su independencia e integridad, sin perjuicio del deber de denunciar tales hechos ante las instancias competentes.
 b) Evitar el establecimiento de relaciones de índole personal o de cualquier otra naturaleza que puedan influir, comprometer o amenazar la capacidad para actuar, impliquen un riesgo de corrupción, puedan suscitar dudas acerca de su objetividad e independencia, o comprometan la imagen de la Unidad.
 c) Abstenerse de utilizar su cargo oficial con propósitos privados, de negocios o personales; o facilitar transacciones indebidas que propicien irregularidades.

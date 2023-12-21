@@ -14,3 +14,4 @@ Reglamento de organización y funcionamiento de la Auditoría Interna del Servic
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-01-25 | la propia norma |
+| 2 | 2023-12-21 | Reglamento 9 (2023-12-21) |
