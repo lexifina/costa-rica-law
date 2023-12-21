@@ -14,3 +14,4 @@ Lineamientos para la prestación del servicio en la modalidad de apertura efecti
 | --- | --- | --- |
 | 1 | 2023-11-22 | la propia norma |
 | 2 | 2023-12-20 | Circular 330 (2023-12-20) |
+| 3 | 2023-12-21 | Circular 341 (2023-12-21) |
