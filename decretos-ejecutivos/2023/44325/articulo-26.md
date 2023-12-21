@@ -1,0 +1,3 @@
+CAPÍTULO VII:
+DEL PROCEDIMIENTO ADMINISTRATIVO
+ARTÍCULO 26.- DE LA VALORACIÓN PARA EL PROCEDIMIENTO ADMINISTRATIVO. Con base en el informe técnico presentado por parte de la Unidad de Inspección y Monitoreo, la Dirección de la Oficina de Control de Propaganda, si estimare que hay mérito suficiente y se determine la posible imposición de alguna sanción de las contenidas en la ley 10.267, acordará el inicio formal del procedimiento administrativo con la resolución del traslado de cargos con la finalidad de verificar la verdad real de los hechos. En caso de no existir fundamento para iniciar el procedimiento, la Dirección de la Oficina de Control de Propaganda desestimará la denuncia y ordenará el archivo del expediente mediante resolución fundada.

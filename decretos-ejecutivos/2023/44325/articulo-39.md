@@ -1,0 +1,1 @@
+ARTICULO 39.- DEL PAGO DE MULTAS. El pago de las multas resultantes de los artículos anteriores, deberán hacerse efectivos conforme a lo que se indica en el párrafo último del artículo 9 de la ley 10.267.

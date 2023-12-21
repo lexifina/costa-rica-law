@@ -1,0 +1,4 @@
+CAPÍTULO V
+DE LA COMPETENCIA DE LA
+UNIDAD DE INSPECCIÓN Y MONITOREO
+ARTÍCULO 22.- DE LA COMPETENCIA DE LA UNIDAD DE INSPECCIÓN Y MONITOREO: Oficina encargada de realizar las diligencias necesarias, en el abordaje de una denuncia o bien durante el proceso de inspección o monitoreo, para recopilar el material publicitario, recabar la documentación pertinente, así como elaborar el informe técnico sobre el asunto, según sea el caso. Como resultado deberá, la Unidad de Inspección y Monitoreo, emitir un informe técnico con el que recomienda el abordaje de la publicidad analizada, en apego a lo observado. Una vez que el informe técnico respectivo se haga de conocimiento de la Dirección de la Oficina de Control de Propaganda, se analizará la recomendación. Es facultad de la Dirección si acoge o se aparta de lo recomendado por la Unidad de Inspección y Monitoreo.

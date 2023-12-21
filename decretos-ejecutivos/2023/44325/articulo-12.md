@@ -1,0 +1,1 @@
+ARTÍCULO 12.- LA OMISIÓN DE RESPUESTA: Si, ante la presentación de cualquier material publicitario, en el transcurso de un mes, no se tiene apercibimientos por parte de la Oficina de Control de Propaganda, el material se tendrá por aprobado siempre y cuando se haya presentado de manera completa y oportuna.

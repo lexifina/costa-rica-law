@@ -1,0 +1,1 @@
+ARTÍCULO 11.- DE LA PROHIBICIÓN DE VARIACIÓN. El material que haya sido aprobado no podrá ser variado posteriormente; cualquier cambio que se desee introducir deberá ser aprobado por la Oficina de Control de Propaganda,siguiendo para tal efecto, las gestiones establecidas en los artículos anteriores.

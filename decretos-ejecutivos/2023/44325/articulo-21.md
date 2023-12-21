@@ -1,0 +1,1 @@
+ARTÍCULO 21.- DE LA ACUMULACIÓN DE DENUNCIAS. Se podrá acumular en un mismo expediente, aquellas denuncias que se presenten por una misma causa y que compartan identidad de objeto y sujeto denunciado.

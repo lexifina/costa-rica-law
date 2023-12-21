@@ -1,0 +1,3 @@
+CAPITULO III
+DEL CONTROL PREVENTIVO DE PUBLICIDAD
+ARTÍCULO 3.- DEL CONTROL PREVIO. La Oficina de Control de Propaganda del Ministerio de Gobernación y Policía con el objetivo de velar por el cumplimiento de la Ley Nº 10.267, deberá ejercer el control previo de toda aquella publicidad, cuyo contenido pudiera denigrar u ofender a la persona adulto mayor. Por lo que todas las personas físicas o jurídicas, interesadas en publicar, difundir, propagar o divulgar publicidad que utilice la imagen o el contexto social de la persona adulta mayor, con el fin de promocionar campañas, productos o servicios, deberán contar con la previa y expresa aprobación de la Oficina de Control de Propaganda del Ministerio de Gobernación y Policía, de conformidad con este Reglamento.

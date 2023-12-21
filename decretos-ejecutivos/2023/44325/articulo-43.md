@@ -1,0 +1,1 @@
+ARTÍCULO 43.- DE LA LEY GENERAL DE LA ADMINISTRACIÓN PÚBLICA. En lo no dispuesto expresamente en la ley No. 10.267, y en el presente Reglamento, regirán en lo que fueren aplicables las disposiciones de la Ley General de la Administración Pública y leyes conexas.

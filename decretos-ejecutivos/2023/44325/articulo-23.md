@@ -1,0 +1,1 @@
+ARTÍCULO 23.- DE LA PRUEBA. La Oficina de Control de Propaganda tiene la facultad de recopilar documentación, fotografías, grabaciones, cuñas, así como videos que evidencien la existencia de la pauta publicitaria y fundamenten el informe técnico. La prueba recabada formará parte del expediente para el traslado de cargos del procedimiento administrativo posterior.

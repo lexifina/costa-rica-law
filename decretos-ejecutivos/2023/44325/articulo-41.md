@@ -1,0 +1,7 @@
+ARTICULO 41.- DE LAS COMPETENCIAS ESPECÍFICAS. La persona directora ocupa la jefatura de mayor autoridad en la gestión administrativa de la Oficina de Control de Propaganda. Dentro de sus competencias específicas se encuentran las siguientes:
+a) Garantizar la aplicación del ordenamiento jurídico y los lineamientos sobre la publicidad comercial en el territorio nacional, de conformidad con los derechos humanos, así como prohibir la difusión de propaganda que degrade a la persona adulta mayor en apego a lo indicado en Ley 10.267.
+b) Conocer y resolver las solicitudes de autorización de publicidad comercial de conformidad con la Ley No. 10.267.
+c) Dar inicio al procedimiento administrativo con la resolución del traslado de cargos de conformidad con el presente Reglamento.
+d) Solicitar criterios técnicos a las instituciones públicas especializadas o rectoras en materia relacionada con la población adulta mayor sobre aquellos casos que lo requiera para resolver procedimientos administrativos.
+e) Ordenar mediante resolución fundada, la suspensión, decomiso o destrucción de la publicidad que no haya sido autorizada o no se ajuste al marco regulatorio con observancia del presente Reglamento.
+f). Resolver los recursos de revocatoria que se presenten contra las resoluciones de la Oficina de Control de Propaganda, así como elevar los recursos de apelación al ministro de Gobernación y Policía, de conformidad con el presente reglamento.

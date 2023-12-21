@@ -1,0 +1,3 @@
+CAPITULO II
+DE LA COMPETENCIA
+ARTICULO 2.- DE LA COMPETENCIA DE LA OFICINA DE CONTROL DE PROPAGANDA (OCP). El Ministerio de Gobernación y Policía, a través de la Oficina de Control de Propaganda le corresponderá aprobar o rechazar las solicitudes con que presenten el material de propaganda, publicidad o promoción que degrade la dignidad, el honor y la imagen de la persona adulta mayor, según sea el caso, que se encuentran enumerados dentro de los establecidos en el artículo 4 de la Ley No. 10.267, así como conocer, tramitar y resolver las denuncias presentadas por infracción a la citada Ley, bajo una valoración de acuerdo a cada caso concreto con aplicación de criterios restrictivos y de conformidad con lo dispuesto en la ley 10.267 y el presente Reglamento.

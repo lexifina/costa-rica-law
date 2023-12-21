@@ -1,0 +1,1 @@
+ARTÍCULO 20.- DE LA CONFIDENCIALIDAD DE LA PERSONA DENUNCIANTE. Las personas funcionarias de la Oficina de Control de Propaganda guardarán confidencialidad respecto de los datos personales de las y los ciudadanos que se identifiquen al denunciar.

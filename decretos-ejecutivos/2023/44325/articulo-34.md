@@ -1,0 +1,3 @@
+Capítulo VIII:
+DEL REGIMEN RECURSIVO
+Artículo 34.- DEL RECURSO DE REVOCATORIA Y APELACIÓN. Contra lo resuelto por la Oficina de Control de Propaganda, el interesado podrá interponer dentro del término de tres días hábiles posteriores a la notificación del acto, los recursos ordinarios de revocatoria y/o el de apelación, que deberán interponerse ante la Instancia que emitió el acto administrativo; siendo potestad del interesado usar uno solo de ellos o ambos recursos de manera concomitante. En caso de presentar ambos recursos a la vez, se tramitará la revocatoria y una vez resuelta, se elevará el recurso de apelación.

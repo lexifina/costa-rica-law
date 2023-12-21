@@ -1,0 +1,1 @@
+ARTÍCULO 24.- DE LA CONFIDENCIALIDAD. La información, documentación y otros elementos probatorios parte del expediente conformado, serán confidenciales, por lo que las personas funcionarias de la Oficina solo podrán proporcionar información a quienes tengan relación al caso, sin entrar en detalles que comprometan la confidencialidad de las partes.

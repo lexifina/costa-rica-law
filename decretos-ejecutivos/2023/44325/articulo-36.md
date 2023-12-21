@@ -1,0 +1,1 @@
+ARTÍCULO 36: DE LA POTESTAD DE SANCIONAR. La Oficina de Control de Propaganda tiene la potestad de sancionar a aquellas entidades públicas o privadas, que, con el fin de promocionar sus productos, servicios o campañas publicitarias, proyecte material de propaganda que degrade a la persona adulta mayor; todo en apego al debido proceso.

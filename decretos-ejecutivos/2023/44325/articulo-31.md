@@ -1,0 +1,1 @@
+ARTÍCULO 31.- DEL DESARROLLO DE LA COMPARECENCIA: Con la finalidad de escuchar alegatos de la parte y recibir prueba de descargo, se establece hora y fecha para comparecencia oral y privada; conforme lo establece el artículo218 y siguientes al respecto, de la Ley General de Administración Pública. Para lo cual se nombrará un órgano director.
