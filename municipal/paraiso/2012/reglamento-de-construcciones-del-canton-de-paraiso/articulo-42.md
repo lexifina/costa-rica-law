@@ -1,2 +1,3 @@
-Artículo 42. Suspensión.
-La Municipalidad está facultada para ordenar la suspensión de las obras en caso de que se manifiesten movimientos que puedan comprometer la estabilidad de las construcciones cercanas, provoquen daños estructurales, o no se tomen las previsiones higiénicas para los desechos que se generen, o daños a los servicios públicos.
+ARTÍCULO 42. Edificios educativos públicos y privados.
+La construcción de este tipo de edificios debe contar con la aprobación previa del Ministerio de Educación Pública. Lo anterior en concordancia con los planes, programas y demás determinaciones de la Política de Infraestructura Educativa, que emanan del Consejo Superior de Educación.
+Los planos constructivos se deben realizar considerando el Programa de Necesidades de Espacios Arquitectónicos del Ministerio de Educación Pública, además, se debe acatar las disposiciones establecidas en el Reglamento de Requerimientos de Diseño Arquitectónico sobre Edificios para la Educación Pública y Privada en Costa Rica, decreto ejecutivo N°41103-MEP, y sus reformas o normativa que lo sustituya.

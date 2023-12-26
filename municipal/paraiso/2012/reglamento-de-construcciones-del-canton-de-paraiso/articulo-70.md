@@ -1,3 +1,8 @@
-Artículo 70. Otorgamiento Parcial del Certificado de Cumplimiento Urbanístico.
-El Certificado de Cumplimiento Urbanístico podrá ser otorgado en forma parcial, en caso de que la construcción haya sido ejecutada por etapas o partes, pero el emitido para la segunda y posteriores etapas incluirá el o los anteriores.
-Las Instituciones Públicas, Semi-Públicas o Autónomas, o las Empresas Privadas, Mixtas, que mediante concesión tengan a cargo la prestación de un Servicio Público, exigirán, previo al otorgamiento de cualquiera de los servicios públicos que presta, el Certificado de Cumplimiento Urbanístico.
+CAPITULO V: PUBLICIDAD EXTERIOR
+ARTÍCULO 70. Aplicación.
+La colocación de publicidad exterior requiere de licencia o permiso de construcción de parte de la Municipalidad del cantón de Paraíso, por lo que los interesados deben someterse a lo indicado en el presente Reglamento, así como al Reglamento de Mapa Oficial y al Reglamento de Zonificación del Plan Regulador de Paraíso.
+Todo interesado debe solicitar la respectiva licencia de construcción cuando el elemento de publicidad cumpla con alguna de las siguientes características:
+a. Éste fijado a la edificación por medio de soportes o anclajes estructurales.
+b. Cuente con soporte independiente que requiere diseño estructural.
+c. Posee un área mayor al metro cuadrado (1,00 m2).
+d. Requiere elementos mecánicos que proporcionen luz o movimiento.

@@ -1,4 +1,4 @@
-Artículo 50. Instalaciones deportivas y baños públicos
-Los aspectos constructivos de las instalaciones deportivas y baños de uso público se regularán por las disposiciones recogidas en el Capítulo IX del Reglamento de Construcciones del INVU.
-Para tramitar el permiso de construcción o reforma de un piscina, será necesaria la presentación de lo planos aprobados por el Ministerio de Salud.
-Para campos deportivos, las características y dimensiones constructivas deben consultarse al Ministerio de Salud.
+ARTÍCULO 50. Evaluación de impacto ambiental (EIA).
+En concordancia con el Reglamento General sobre los Procedimientos de Evaluación de Impacto Ambiental (EIA) Decreto N°31849-MINAE-S-MOPT-MAG-MEIC, deben cumplir con el proceso de evaluación de impacto ambiental (EIA) todas las actividades, obras o proyectos indicadas en el anexo N°1 de dicho cuerpo normativo, en tanto, el resto de las actividades, obras o proyectos se regirán por lo dispuesto en el anexo N°2 del mismo, sin perjuicio de disposiciones contrarias establecidas por la Licencia Ambiental debidamente aprobada por la SETENA para el Plan Regulador del cantón de Paraíso. Además, en los casos en que se solicita evaluación de impacto ambiental, esta debe realizarse para el proyecto completo, aunque esté previsto desarrollarse en etapas.
+Los proyectos ubicados en áreas ambientalmente frágiles según el Anexo N°3 del decreto N°31849-MINAE-S-MOPT-MAG-MEIC y sus reformas requerirán de una Evaluación de impacto ambiental.
+En todos los casos que se requiere de la evaluación ambiental, ésta se debe aportar como parte de los requisitos de solicitud de permiso o licencia de construcción en la Municipalidad.

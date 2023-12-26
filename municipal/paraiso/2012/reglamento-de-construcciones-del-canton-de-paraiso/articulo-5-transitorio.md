@@ -1,0 +1,1 @@
+TRANSITORIO V. Sobre la caducidad de las licencias de construcción: Los permisos o licencias de construcción otorgados antes de la vigencia y que hayan cumplido el plazo de vigencia de ley y se encuentren caducados, deben tramitarse de nuevo para que se adecuen a las normas comprendidas según la zona donde se ubiquen.

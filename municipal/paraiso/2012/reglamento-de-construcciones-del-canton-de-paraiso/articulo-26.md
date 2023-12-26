@@ -1,5 +1,3 @@
-Artículo 26. Retiro posterior (patio).
-El retiro posterior a aplicar en cada sector viene definido en la tabla de parámetros recogida en las fichas urbanísticas.
-En aquellos casos en los que la ficha urbanística remite este parámetro al reglamento de construcciones, y exclusivamente en dichos casos, regirá la siguiente norma:
-El retiro posterior o patio será de tres metros (3,00 m). Estos patios pueden sustituirse por un espacio abierto interior si las paredes de la vivienda en la colindancia posterior son de material incombustible.
-Para viviendas de un piso y siempre que se contemple la construcción de la tapia, esta dimensión puede reducirse hasta un metro y medio (1,50 m). Si la edificación es de dos pisos o más, se aumentará el retiro posterior un metro por piso, pudiendo construirse los pisos en forma escalonada.
+ARTÍCULO 26. Ascensores.
+Se debe acatar lo dispuesto en la Ley de Igualdad de Oportunidades para las Personas con Discapacidad, Ley N°7600 y su Reglamento, Decreto Ejecutivo N°26831-MP, además de los requerimientos que establece el Benemérito Cuerpo de Bomberos de Costa Rica de conformidad al Reglamento a la Ley N°8228 del Benemérito Cuerpo de Bomberos de Costa Rica, decreto ejecutivo N°37615-MP, y sus reformas o normativa que lo sustituya.
+Sin perjuicio de lo establecido en la normativa anterior, todo ascensor debe poseer capacidad para transportar como mínimo el porcentaje indicado en el Reglamento de Construcciones del INVU de la población que sirve en cinco minutos, considerando las reformas o normativa que sustituya a dicho reglamento. El cálculo se hará con base en el factor de carga neta de ocupantes definido en las disposiciones del Benemérito Cuerpo de Bomberos de Costa Rica.

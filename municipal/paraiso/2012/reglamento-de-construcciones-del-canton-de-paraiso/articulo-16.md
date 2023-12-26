@@ -1,3 +1,6 @@
-Artículo 16. Rotura de pavimento.
-La rotura de pavimento en la vía pública para la ejecución de obras públicas o privadas requerirá licencia previa de la Municipalidad o del MOPT, quienes fijarán, en cada caso, las condiciones bajo las cuales la conceden. El solicitante de la licencia de rotura estará obligado a ejecutar la reparación correspondiente o a reintegrar su valor si la reparación tuviese que hacerla la Municipalidad o el MOPT ante la renuncia de aquel.
-Toda rotura de pavimento en vías locales deberá cerrarse apenas se termine la reparación o bien, cancelar en el municipio el monto para efectuarla lo más pronto posible.
+ARTÍCULO 16. Marquesinas.
+Las edificaciones cuya planta se proyecte construir en la línea de propiedad, pueden incluir un alero, marquesina o voladizo de un ancho mínimo igual al ancho total de la acera, menos 0,50 m.
+Las marquesinas deben ser continuas, con una altura promedio de 3,00 m sobre el nivel de acera.
+Para calles con pendiente, el alto máximo debe ser de 3,40 m y el mínimo 2,40 m.
+Si no fuera continua, los tramos han de llevar el traslape necesario que impida el paso del agua de lluvia. Cuando en los predios vecinos existan construcciones provistas de marquesinas que cumplan con las normas aquí especificadas, la marquesina de la edificación a construirse debe mantener la misma altura que sus colindantes. En edificaciones cuya construcción se autorice en la línea de propiedad, la marquesina se puede sustituir por un pórtico mediante el desplazamiento de la fachada en la planta baja.
+Deben respetarse las distancias mínimas entre edificaciones e instalaciones eléctricas de media y baja tensión, de conformidad con lo dispuesto en la Norma Técnica Regulatoria AR-NTSUINAC “Supervisión de la instalación y equipamiento de acometidas eléctricas” o la normativa vigente en materia.

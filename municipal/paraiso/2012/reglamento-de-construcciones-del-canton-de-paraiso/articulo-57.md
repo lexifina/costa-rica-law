@@ -1,3 +1,2 @@
-Artículo 57. Expendios de alimentos
-Los aspectos constructivos de los locales destinados a expender alimentos se regularán por las disposiciones recogidas en el Capítulo XIV del Reglamento de Construcciones del INVU.
-Se considerarán como “expendios de alimentos” los siguientes locales: cocinas de restaurantes, hoteles y similares, fuentes de soda y fresquerías, carnicerías y pescaderías, fábricas de productos alimenticios, panaderías, pastelerías y similares.
+ARTÍCULO 57. Información disponible por medios digitales.
+En el caso de información disponible por medios digitales o de aquella que sea emitida por la misma Municipalidad; ésta no se solicitará al administrado, sino que la misma será comprobada o tramitada a lo interno de la municipalidad, por los medios digitales disponibles. No obstante, el administrado debe indicar los datos necesarios para su respectiva identificación, sean éstos, número de oficio, consecutivo de solicitud, número de control o cualquier otro dato o número de identificación que corresponda para su trazabilidad.

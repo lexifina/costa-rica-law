@@ -1,0 +1,2 @@
+ARTÍCULO 81. Rótulos temporales.
+Los rótulos temporales deben localizarse dentro de la propiedad privada, por lo que no se pueden extender hacia el derecho de vía o a las propiedades colindantes. Para esto se permite la colocación de una o varias mantas siempre y cuando sus áreas sumadas sean el iguales o menores al 20 % de la superficie total del cerramiento externo visible desde la vía pública y no superen los 20 m2. Los rótulos dentro de esta categoría deben tener una duración máxima de 30 días naturales o menos.

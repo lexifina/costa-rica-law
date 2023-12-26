@@ -1,2 +1,2 @@
-Artículo 53. Hoteles y similares
-Los aspectos constructivos de los hoteles, posadas, pensiones, casas de huéspedes, fondas y establecimientos similares, se regularán por las disposiciones recogidas en el Capítulo X* del Reglamento de Construcciones del INVU.
+ARTÍCULO 53. Requisitos para el trámite de la licencia o Permiso de Construcción.
+Para obtener el permiso de construcción se debe cumplir con los requisitos establecidos en el Reglamento de Requisitos para licencias y trámites municipales que para el efecto publique la Municipalidad de Paraíso, sin embargo, en ausencia de este puede aplicarse supletoriamente lo establecido en el Reglamento de Construcciones del INVU y sus reformas o normativa que lo sustituya.

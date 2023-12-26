@@ -1,0 +1,2 @@
+ARTÍCULO 107. Control de Calidad.
+Cuando se otorgue el permiso para rotura de vías, el interesado debe entregar a la Municipalidad un Plan de control de calidad donde se identifiquen los estándares, requisitos, regulaciones y especificaciones para la gestión de la calidad de la obra. Para estos efectos se tomarán las pruebas y se ejecutarán los mismos tipos de ensayos y con las mismas frecuencias indicados en el Plan. Asimismo, el costo de las pruebas será asumido también por quien solicitó la licencia, y serán realizadas en un laboratorio autorizado para tales fines.

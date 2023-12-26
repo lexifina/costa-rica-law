@@ -1,7 +1,2 @@
-Artículo 27. Retiro lateral.
-El retiro lateral a aplicar en cada sector viene definido en la tabla de parámetros recogida en las fichas urbanísticas.
-En aquellos casos en los que la ficha urbanística remite este parámetro al reglamento de construcciones, y exclusivamente en dichos casos, regirá la siguiente norma:
-No se exigirá retiro lateral cuando el material de la pared en la respectiva colindancia sea incombustible y no tenga ventana o linternilla. En caso contrario se exigirá:
-Un metro (1,00 m) para edificaciones de un piso.
-Dos metros (2,00 m) para las de dos pisos.
-Por cada piso adicional deberá agregarse un metro (1,00 m) de retiro lateral.
+ARTÍCULO 27. Sótanos.
+Los límites de profundidad se establecen para prevenir trastornos en las capas freáticas y para asegurar la estabilidad de los fondos de placa. Los proyectos de edificios que plantean más de un piso de sótano deben presentar para su aprobación estudios del suelo que incluyan adicionalmente, información sobre los mantos acuíferos y corrientes subterráneas, del terreno y de su entorno inmediato. En ningún caso podrá hacerse una excavación más honda que seis (6,00) metros bajo el nivel del lecho del río o quebrada más próxima, medido a partir del nivel del punto de mínima distancia. Se entenderá por sótano al espacio de una edificación que se encuentra bajo el nivel del terreno y que no puede recibir iluminación y ventilación directa y natural.

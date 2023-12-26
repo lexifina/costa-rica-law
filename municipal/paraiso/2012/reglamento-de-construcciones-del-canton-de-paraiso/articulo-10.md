@@ -1,3 +1,5 @@
-Capítulo 3. Espacio y vías públicas
-Artículo 10. Construcción en el Espacio Público.
-La construcción o el uso y control del espacio público (calles, bulevares, parques, plazas, aceras, así como aquellos elementos que lo delimitan), se regirán por este Plan Regulador, por la legislación urbanística y en su caso, por las Ordenanzas Municipales que se dicten para ese efecto.
+ARTÍCULO 10. Construcción en sectores de alta pendiente.
+Para los terrenos con pendientes superiores al 15 % e inferiores al 30 % se debe aportar estudio de estabilidad de taludes en donde se demuestre la factibilidad de realizar la obra planeada.
+Será responsabilidad del profesional a cargo incluir en el diseño las soluciones y recomendaciones allí sugeridas, asimismo el profesional responsable, debe acatar las disposiciones del Código Geotécnico de Taludes y Laderas de Costa Rica vigente emitido por el CFIA, para el análisis y diseño de taludes en corte o relleno de las laderas en estado natural, sin perjuicio de la normativa nacional en la materia.
+Para terrenos con una pendiente superior al 30 % se debe presentar además las soluciones geotécnicas y estructurales que demuestren la seguridad de la obra. En caso de duda de la pendiente del terreno, el departamento de Desarrollo Urbano o dependencia encargada podrá solicitar un estudio de curvas de nivel y un perfil del terreno donde se va a asentar la obra debidamente firmado por un profesional en ingeniería topográfica.
+En ambos casos, las obras de estabilización y protección deberán contemplar un plan de arborización aprobado por la Municipalidad. De ser necesario, ésta podrá solicitar criterio de otras instancias competentes en materia ambiental.

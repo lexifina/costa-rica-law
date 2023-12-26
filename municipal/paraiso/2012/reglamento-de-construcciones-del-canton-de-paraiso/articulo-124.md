@@ -1,0 +1,3 @@
+SECCIÓN VI: REPOSICIÓN DE PAVIMENTOS.
+ARTÍCULO 124. Materiales.
+La reposición de los pavimentos afectados debe efectuarse con materiales de las mismas características que el pavimento original, excepto en el caso de los pavimentos de concreto hidráulico, rehabilitados con una sobre capa asfáltica de superficie, en que se podrá hacer la reposición con un pavimento de concreto asfaltico, que tenga el mismo Número Estructural que el pavimento mixto existente. Las mezclas asfálticas para reposiciones deberán ser preferentemente en caliente donde el Proyecto considere mezclas en frío, éstas deben ser hechas con asfalto emulsificado.

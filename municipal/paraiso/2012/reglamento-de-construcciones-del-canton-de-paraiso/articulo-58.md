@@ -1,2 +1,2 @@
-Artículo 58. Edificios y lotes para estacionamientos
-Los aspectos constructivos de los edificios y lotes para estacionamientos (se excluyen los garajes privados de las viviendas) se regularán por las disposiciones recogidas en el Capítulo XVII del Reglamento de Construcciones del INVU.
+ARTÍCULO 58. Inspección preliminar.
+De previo al otorgamiento del permiso respectivo, la Municipalidad puede realizar una inspección a fin de verificar el cumplimiento y veracidad de los requisitos aportados por el interesado. También podrá darse durante y después del proceso constructivo.

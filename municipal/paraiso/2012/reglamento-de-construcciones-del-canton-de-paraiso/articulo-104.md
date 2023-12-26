@@ -1,0 +1,3 @@
+ARTÍCULO 104. Modificaciones de proyectos durante el proceso constructivo.
+Cuando por aspectos ajenos al proceso de diseño, deba realizarse modificaciones durante la construcción de la obra, el profesional responsable debe incluir las modificaciones en los planos constructivos, y en la bitácora de obra, y presentar dicha información nuevamente en la plataforma de tramitación electrónica del CFIA. Este proceso actualizará automáticamente la información.
+En caso de incrementarse el valor de la obra se deberá cancelar la diferencia generada por coste en la licencia de construcción. Toda modificación que corresponda al tema constructivo debe apegarse al Plan Regulador

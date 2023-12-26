@@ -1,1 +1,1 @@
-Transitorio II.- Todas las licencias aprobadas se regirán en cuanto a su vigencia por los plazos establecidos en este reglamento.
+TRANSITORIO II. Sobre el trámite de visados municipales: Toda solicitud o trámite administrativo que haya sido presentado antes de la publicación en la Gaceta Oficial y definitiva entrada en vigor del Reglamento de Fraccionamientos y Urbanizaciones del Plan Regulador de Paraíso será tramitada de acuerdo con las normas vigentes a la fecha de la solicitud y los procedimientos internos definidos por dicho cuerpo normativo.

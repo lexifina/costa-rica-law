@@ -1,7 +1,3 @@
-Artículo 36. Vestíbulos y áreas de dispersión.
-Los vestíbulos principales de cualquier edificio tendrán por lo menos 2 metros de ancho por 2 metros de longitud. Se debe destinar los siguientes porcentajes mínimos de área de dispersión del total de área del edificio:
-Edificio de oficinas: 15%
-Edificios de escuelas, colegios o universidades: 20%
-Hoteles: 15%
-Edificios comerciales: 15%
-Estos porcentajes se pueden distribuir por piso como se considere más adecuado pero el área de dispersión y vestíbulos por planta no podrá nunca ser menor de 10%. Dicha área de dispersión será la suma de las áreas de vestíbulos, patios, plazas y pasillos.
+ARTÍCULO 36. Infraestructura para el soporte de redes de telecomunicaciones.
+Los tipos de infraestructura para el soporte de redes de telecomunicación (torres y postes) deben acatar los parámetros técnicos definidos por la DGAC y la SUTEL, en congruencia con lo establecido en el Reglamento a la Ley General de Telecomunicaciones, decreto ejecutivo N°34765- MINAE, y las Normas Estándares y Competencias de las Entidades Públicas para la Aprobación Coordinada y Expedita Requerida para la Instalación o Ampliación de Redes de Telecomunicaciones, decreto ejecutivo N°36159-MINAET-S-MEIC-MOPT, y sus reformas o normativa que lo sustituya.
+Además, el profesional responsable debe cumplir con lo establecido por el Reglamento General para Licencias Municipales en Telecomunicaciones establecido por la Municipalidad de Paraíso y sus reformas o normativa que lo sustituya.

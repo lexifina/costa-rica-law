@@ -1,2 +1,2 @@
-Artículo 64. Solicitud.
-En base a lo establecido en el artículo 39 de la Ley de Planificación Urbana, el Certificado de Cumplimiento Urbanístico o recibo de obras deberá ser solicitado por el propietario del proyecto o por el profesional acreditado en la Municipalidad como responsable de la misma una vez finalizada la obra o que tenga un mínimo de avance del 70% de las obras de infraestructuras.
+ARTÍCULO 64. Póliza de riesgos de trabajo.
+De acuerdo con la normativa atinente en la materia, se requiere una Póliza de Riesgos de Trabajo. Es necesario que la póliza se inscriba a nombre del propietario del proyecto o del profesional responsable de la obra; en caso de pólizas abiertas, se debe acatar la legislación pertinente a la protección de los trabajadores.

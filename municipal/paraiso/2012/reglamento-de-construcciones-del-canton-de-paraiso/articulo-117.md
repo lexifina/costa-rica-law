@@ -1,0 +1,3 @@
+ARTÍCULO 117. Materiales residuales.
+Los materiales residuales de la rotura de carretera, con excepción de arcillas, limos y materia orgánica, deberán ser puestos a disposición de la Municipalidad en una primera instancia; en caso de no ser requeridos por ésta, los mismos deberán ser removidos del sitio por parte de quien los ha generado y colocados en un lugar que cumpla con las normativas ambientales y sanitarias vigentes.
+Deberá documentarse por escrito mediante nota de aceptación y contrato suscrito; la empresa encargada de disponer de dichos residuos, quien debe cumplir en todo momento y en lo que corresponda con lo indicado en el Título III, Capítulos I y III de la Ley de Gestión Integral de Residuos Sólidos No.8839 y sus reformas o normativa que la sustituya.

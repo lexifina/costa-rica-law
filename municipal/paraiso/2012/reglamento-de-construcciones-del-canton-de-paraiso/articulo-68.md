@@ -1,2 +1,5 @@
-Artículo 68. Vigencia del certificado de Cumplimiento Urbanístico.
-La vigencia del Certificado de Cumplimiento Urbanístico es indefinida, hasta tanto la obra no sufra modificaciones o remodelaciones que exijan la obtención de una nueva licencia de construcción.
+ARTÍCULO 68. Requisitos para obtener el beneficio por interés comunal o social.
+En cuanto a viviendas y/o proyectos de interés social el solicitante debe aportar declaratoria de interés social por parte de alguna institución del Sistema Financiero Nacional de Vivienda.
+En los casos de obras de interés comunal los requisitos serán los siguientes:
+a. Proyecto de la obra presentado por escrito y avalado por la Asociación de Desarrollo Integral de la población.
+b. Deberá presentar y demostrar las fuentes de financiamiento de la obra comunal por todos los mecanismos probatorios permitidos por la ley y que sean lícitos.

@@ -1,3 +1,4 @@
-Capítulo 5. Disposiciones Especiales para Edificios
-Artículo 46. Edificios habitacionales
-Los aspectos constructivos de los edificios habitacionales se regularán por las disposiciones recogidas en el Capítulo VI del Reglamento de Construcciones del INVU.
+ARTÍCULO 46. Estaciones de servicio terrestre.
+Sin perjuicio de lo indicado en el Reglamento de Zonificación del Plan Regulador de Paraíso, en cuanto al frente mínimo de lote para efectos de segregación y a las zonas donde son permitidas las Estaciones de Servicio Terrestre, comúnmente conocidas como Gasolineras, éstas deben cumplir con lo dispuesto en Reglamento para la Regulación del Sistema de Almacenamiento y Comercialización de Hidrocarburos, Decreto Ejecutivo N°30131-MINAE-S y sus reformas o normativa que lo sustituya.
+ARTÍCULO 46.1. Seguridad humana y de protección contra incendios.
+Las estaciones de servicio y de almacenamiento de combustibles deben garantizar el cumplimiento de las medidas de seguridad humana y protección contra incendios señaladas por el Benemérito Cuerpo de Bomberos de Costa Rica, sin perjuicio de lo establecido en el Reglamento para la Regulación del Sistema de Almacenamiento y Comercialización de Hidrocarburos, Decreto Ejecutivo N°30131-MINAE-S y sus reformas o normativa que lo sustituya.

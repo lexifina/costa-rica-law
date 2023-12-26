@@ -1,2 +1,4 @@
-Artículo 49. Edificios comerciales y de oficinas
-Los aspectos constructivos de los edificios comerciales y de oficinas se regularán por las disposiciones recogidas en el Capítulo VIII del Reglamento de Construcciones del INVU.
+ARTÍCULO 49. Demoliciones.
+Para toda demolición se aplican las disposiciones de la Ley de Construcciones N°833 y el Reglamento de Seguridad en las Construcciones, decreto ejecutivo N°40790-MTSS y sus reformas o normativa que lo sustituya. Los escombros producto de las demoliciones deben de disponerse conforme a la Ley para la Gestión Integral de Residuos N°8839 y su Reglamento Decreto Ejecutivo N°37567-S-MINAET-H y sus reformas o la normativa que lo sustituya.
+En caso de que se realicen demoliciones con equipo mecánico o frente a vía pública, se debe acatar los dispuesto por el Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo (INVU).
+Si se utiliza otros métodos de demolición, se debe contar con un estudio técnico elaborado por el profesional responsable, que determine el tipo de método y el respectivo procedimiento a seguir.

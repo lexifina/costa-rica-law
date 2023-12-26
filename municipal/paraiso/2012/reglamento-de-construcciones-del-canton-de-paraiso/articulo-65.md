@@ -1,2 +1,4 @@
-Artículo 65. Funcionario Competente.
-El funcionario municipal competente para otorgar el Certificado de Cumplimiento Urbanístico, será el ingeniero o arquitecto, Jefe del Departamento de Ingeniería Municipal, Dirección de Urbanismo.
+ARTÍCULO 65. Plazos de resolución.
+Toda solicitud de licencia de construcción debe resolverse en el término de treinta días naturales contados a partir del día siguiente de su presentación.
+La Municipalidad puede solicitar el criterio de otras instituciones o solicitar la ampliación de la información al interesado para tomar la decisión final.
+La Administración otorgará al interesado hasta diez días hábiles para completar o realizar aclaraciones; transcurridos estos, continuará el cómputo del plazo restante previsto para resolver.

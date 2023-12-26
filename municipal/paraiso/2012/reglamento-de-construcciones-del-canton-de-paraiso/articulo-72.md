@@ -1,3 +1,3 @@
-Artículo 72. De la suspensión de obras.
-La Municipalidad suspenderá toda obra que se ejecute en contravención a la zonificación, pudiendo disponer para ello del auxilio de la Fuerza Pública o la Policía Municipal.
-Asimismo se suspenderá toda obra de construcción que en el transcurso de la ejecución deje escombros en la vía pública u obstruya el libre tránsito, sin tener la autorización de la Municipalidad.
+ARTÍCULO 72. Colocación.
+La rotulación debe ser colocada de forma tal que no interrumpa el paisaje urbano impidiendo la visualización de plazas, monumentos, elementos arquitectónicos, patrimoniales, o cualquier otro elemento de alto valor paisajístico.
+Todo rótulo debe respetar una distancia mínima de 15,00 m horizontales del vértice o esquina de una calle.

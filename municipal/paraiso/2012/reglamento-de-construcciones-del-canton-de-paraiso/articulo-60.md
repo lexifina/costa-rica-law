@@ -1,6 +1,3 @@
-Capítulo 6. Edificios de valor patrimonial
-Todo lo establecido en este capítulo deberá cumplir con la Ley Nº7555 sobre Patrimonio Histórico-Arquitectónico de Costa Rica.
-Artículo 60. Licencias en edificios de valor patrimonial.
-Son aquéllas licencias para restauración o rehabilitación de edificaciones de valor patrimonial.
-No se podrán ejecutar movimientos de tierra en donde haya o se presuma que existe alguna evidencia arqueológica, hasta que el especialista del Museo Nacional otorgue su aval. Para tramitar permisos de demolición, el interesado debe presentar certificación de que la edificación no se encuentra declarada patrimonio o de que cuenta con el permiso del Centro de Investigación y Conservación del Patrimonio Cultural. Para obtener el permiso de ampliaciones, restauraciones, remodelaciones a las edificaciones existentes, debe presentar certificación de que la edificación no se encuentra declarado patrimonio o de que cuenta con el permiso del Centro de Investigación y Conservación del Patrimonio Cultural.
-Se permitirán construcciones cuando las obras sean de mantenimiento de lo existente (no implique cambios o reparación de la estructura primaria), cuando las remodelaciones sean para cumplir con las normas de seguridad e higiene, cuando el inmueble sufra daños por siniestros. En este último caso, para fijar los daños se debe presentar la memoria de cálculo estructural, elaborado por un profesional responsable.
+ARTÍCULO 60. Obra Menor.
+Para todos los efectos de trámite diferenciado, se considera como obra menor toda construcción no industrial que cumpla con los criterios establecidos en el Reglamento Municipal de Obras Menores publicado por la Municipalidad de Paraíso.
+Estas obras no serán tramitadas por la plataforma digital APC, y todos sus requisitos serán aportados de manera física, impresos en papel o digital, según lo dispuesto en dicho Reglamento mencionado anteriormente.

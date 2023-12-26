@@ -1,10 +1,11 @@
-Artículo 45. Requisitos de la Licencia de movimiento de tierra o escombros.
-Son obras que comprenden excavación, relleno, explanación, terraplenado, terracéo, y depósito de cualquier tipo de material. Para los movimientos de tierra en predios colindantes con las áreas establecidas en el artículo 33 de la Ley Forestal, se debe presentar el alineamiento del Instituto Nacional de Vivienda y Urbanismo. Los requisitos son:
-a) Una fotocopia del plano catastrado y visado.
-b) Certificación de propiedad.
-c) La solicitud firmada por el propietario.
-d) Un croquis o descripción detallada de la ruta de transporte de escombros, materiales y tierra desde su origen hasta su destino final.
-e) Constancia de la Póliza de Riesgos de Trabajo.
-f) Comprobante de pago del impuesto.
-g) En zonas cercanas a ríos, quebradas, acequias, nacientes, manantiales y otras zonas de protección, se requerirá el permiso del MINAE. Según las dimensiones del proyecto, se exigirá el Estudio de Impacto Ambiental.
-h) La Municipalidad se reserva el derecho de solicitar una garantía de cumplimiento por daños que se pudieran ocasionar.
+ARTÍCULO 45. Expendios de alimentos.
+Se consideran como “expendios de alimentos” los siguientes locales: cocinas de restaurantes, hoteles y similares, fuentes de soda y fresquerías, carnicerías y pescaderías, fábricas de productos alimenticios, panaderías, pastelerías y similares.
+Todas las edificaciones que provean servicios de alimentación al público deben cumplir con lo dispuesto en el Reglamento de los Servicios de Alimentación al Público, Decreto Ejecutivo N°37308-S y el Código de Instalaciones Hidráulicas y Sanitarias en Edificaciones, para ambos casos se deben considerar sus reformas o normativa que los sustituya.
+ARTÍCULO 45.1. Servicios sanitarios.
+Se debe proveer los siguientes elementos para los empleados de los locales.
+a. Servicios sanitarios que deben estar totalmente aislados, tanto para hombres como para mujeres.
+b. Un lavabo y una pila de lavar, separados uno de otro.
+c. Un guardarropa, con espacio mínimo de 0,60 m2, por trabajador para que puedan cambiarse.
+d. Una ducha independiente o una en cada grupo de servicios.
+ARTÍCULO 45.2. Carnicerías y pescaderías.
+Los locales en donde se venda o procese carne, deben tener un mínimo de 16 m2 de superficie y una altura mínima de 3,00 m.

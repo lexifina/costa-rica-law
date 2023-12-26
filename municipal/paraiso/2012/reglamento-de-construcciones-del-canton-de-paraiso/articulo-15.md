@@ -1,4 +1,8 @@
-Artículo 15. Instalaciones para servicios públicos.
-Las redes o instalaciones subterráneas destinadas a los servicios públicos de teléfono, alumbrado, semáforos, energía, agua, alcantarillado pluvial y sanitario, gas y cualesquiera otras, deberán localizarse a lo largo de las calles, de aceras peatonales, o de camellones. Cuando se localicen en las aceras deberán quedar alojadas en una franja de 1,50 metros de ancho, medida a partir del borde del cordón. Los gastos de rotura, reparación o reconstrucción para los efectos anteriores correrán por cuenta de quien los hubiere provocado, sea una persona física o jurídica, o uno de los organismos del Estado.
-En todo desarrollo urbano nuevo, las redes o instalaciones de servicios públicos deben ir soterradas.
-En todo caso se cumplirá todo lo establecido por la normativa emitida por el ICAA sobre ubicación de tuberías en calles y avenidas, así como por la emitida por el ICE para posteado y tendido eléctrico.
+ARTÍCULO 15. Cercas en lotes baldíos.
+Todo terreno no ocupado que colinde con la vía pública en cualquiera de las zonas establecidas en el Plan Regulador de Paraíso, exceptuando las zonas agropecuarias, de protección y control especial, debe cercarse y cumplir además con lo dispuesto por los reglamentos autónomos que para los efectos publique la Municipalidad de Paraíso.
+En la construcción de cercas se deben usar los siguientes materiales:
+a. Malla tipo ciclón.
+b. Malla electrosoldada.
+c. Postes de cemento con cuatro hiladas de alambre sin púas.
+d. Cualquier otro elemento que permita una visibilidad de al menos 80 % dentro del lote.
+No se permite la utilización de alambre con púas, y en el caso de sistemas electrificados no se permiten en una altura menor de 2,50 m, éstos se pueden utilizar en la parte alta de la barda cuando supere dicha altura. En cualquier caso, deben acatarse las normas municipales en resguardo de la salubridad, seguridad y ornato.

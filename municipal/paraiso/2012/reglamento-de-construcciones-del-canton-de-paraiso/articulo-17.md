@@ -1,5 +1,2 @@
-Artículo 17. Arborización de las calles y mobiliario urbano.
-Para instalar cualquier tipo de mobiliario urbano en los espacios públicos, se requerirá permiso municipal. Para otorgar dicho permiso, se deberán cumplir todos los parámetros establecidos en el Reglamento de vialidad, espacios públicos y transporte.
-Se requerirá autorización municipal (departamento de gestión ambiental) para sembrar árboles.
-La arborización se realizará mediante árboles o arbustos que por sus características de crecimiento no interfieran con el buen funcionamiento de las obras de infraestructura, y se utilizarán especies nativas, ajustándose a las recomendaciones técnicas que al respecto dicte la Dirección Forestal del Ministerio de Ambiente y Energía (MINAE).
-No se podrán sembrar árboles del lado del tendido eléctrico.
+ARTÍCULO 17. Aceras.
+La construcción de las aceras se rige por lo dispuesto en los reglamentos autónomos que para los efectos publique la Municipalidad de Paraíso de conformidad con la Ley N°9976 de Movilidad Peatonal y sus reformas o normativa que la sustituya; así como por lo dispuesto en el Reglamento de Mapa Oficial del Plan Regulador Urbano de la Municipalidad de Paraíso y la Ley de Igualdad de Oportunidades para las Personas con Discapacidad N°7600 y su Reglamento DE-26831, sus reformas o normativa que lo sustituya. En su defecto se aplicará supletoriamente lo establecido en el Reglamento de Construcciones del INVU.

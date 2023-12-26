@@ -1,2 +1,3 @@
-Artículo 14. Construcción de Casetas para guardas.
-La Municipalidad podrá autorizar la construcción de este tipo de mobiliario en aceras (cuando no se impida el libre paso de los transeúntes), áreas de parque y franjas verdes, si existiese solicitud formal por parte de vecinos o grupos organizados. En el Reglamento de vialidad, espacios públicos y transporte se detallan otros aspectos relacionados con este artículo.
+ARTÍCULO 14. Uso del antejardín.
+Al menos un tercio del área del antejardín debe mantenerse como área verde, y en el resto podrán construirse cocheras, corredores abiertos, terrazas, parqueos, tanques sépticos, tanques de captación, cajas de registro, casetas de seguridad, transformadores, escaleras adosadas a la pared y recipientes de recolección de residuos, estas construcciones deben cumplir con los porcentajes de cobertura establecidos para cada zona en el Reglamento de Zonificación de Paraíso.
+En zona de antejardín no se podrán construir vallas sólidas con altura de más de un metro, con la instalación de verjas o portones que permitan un 80% de visibilidad como mínimo.
