@@ -1,2 +1,3 @@
-Artículo 10. Cobertura
-Los porcentajes de cobertura que aplican en un lote serán, por norma general, los definidos en la tabla de parámetros Sin embargo, en los casos en los que el frente del lote sea mayor o igual que el fondo, o cuando el lote sea esquinero, podrá aumentarse la cobertura hasta un 80%.
+ARTÍCULO 10. Visados por excepción.
+Los planos catastrados de lotes de fraccionamientos que no cumplan con los requisitos de área y frente mínimos exigidos por la zonificación, se visarán excepcionalmente cuando se trate de planos de fincas debidamente inscritas en el Registro Nacional de la Propiedad antes de la entrada en vigor del presente Reglamento, sin perjuicio de lo indicado en el artículo No.58 de la Ley de Planificación Urbana.
+Adicionalmente no se requerirá de visado municipal en todos aquellos casos de fincas en que un Juez ordene su inscripción por sentencia en firme y en apego a normativas nacionales que se apliquen sobre aspectos no regulados expresamente en el Plan Regulador de Paraíso o sus modificaciones.

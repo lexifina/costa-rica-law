@@ -1,4 +1,2 @@
-Artículo 20. Urbanizaciones de viviendas de interés social
-Los proyectos de viviendas de interés social, dirigidos a los estratos sociales más necesitados, podrán acogerse a las regulaciones específicas recogidas en el Reglamento para el Control Nacional de Fraccionamientos y Urbanizaciones del INVU, Capítulo V (Normas para Vivienda Progresiva), con el propósito de reducir sustancialmente los precios de la unidad de vivienda.
-Estas regulaciones regirán para los proyectos promovidos por el Estado o iniciativa privada, y destinados a los estratos sociales con niveles de ingresos bajo-bajo a medio-bajo.
-Estas urbanizaciones estarán sujetas además a las disposiciones de la Ley del Sistema Financiero Nacional para la Vivienda y el Reglamento de Operaciones del Sistema Financiero Nacional para la Vivienda del BANHVI (Banco Hipotecario de la Vivienda).
+ARTÍCULO 20. Área y frente mínimo.
+El área y el frente mínimo permitido para los lotes producto de un fraccionamiento con fines urbanísticos se ajustará a los requisitos de zonificación dispuestos en el Plan Regulador del cantón de Paraíso según la zona donde se ubiquen.

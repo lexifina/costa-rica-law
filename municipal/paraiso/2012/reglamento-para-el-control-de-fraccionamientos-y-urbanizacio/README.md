@@ -14,3 +14,4 @@ Reglamento para el control de fraccionamientos y urbanizaciones
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-10-31 | la propia norma |
+| 2 | 2023-12-26 | Reglamento municipal 294 (2023-12-26) |
