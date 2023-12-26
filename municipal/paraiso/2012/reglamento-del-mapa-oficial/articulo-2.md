@@ -1,6 +1,5 @@
-Artículo 2. Finalidad de los bienes públicos.
-Estos bienes indicados en el mapa oficial, como son las vías públicas y áreas de reserva para usos y servicios comunales, son bienes demaniales o públicos, los cuales no necesitan ser inscritos en el Registro de la Propiedad de Bienes Inmuebles, para consolidar la titularidad de bien demanial; basta solamente con que conste en el Mapa Oficial.
-Los terrenos que obligatoriamente deben ceder los fraccionadores y urbanizadores, por el hecho de estar entregados al uso público, forman parte de los bienes de dominio público.
-Su finalidad está directamente ligada al esparcimiento y recreación general, sobre todo de los futuros habitantes de la urbanización. Por tratarse de complejos constructivos que abarcan extensas áreas, requieren de espacios abiertos en los que las personas puedan retirarse a descansar, practicar deportes, jugar con sus hijos, y en definitiva, disfrutar de un ambiente adecuado para sus ratos de ocio.
-Las áreas verdes destinadas al uso público, en virtud de su uso y naturaleza, son parte del patrimonio de la comunidad y deben quedar bajo la jurisdicción de los entes municipales para que los administre como bienes de dominio público, con lo cual participan del régimen jurídico de estos bienes, que los hace inalienables, imprescriptibles e inembargables, es decir, no pueden ser objeto de propiedad privada del urbanizador o fraccionador, tal y como lo dispone el artículo 40 de la Ley de Planificación Urbana.
-Los parques, jardines y paseos públicos son de libre acceso a todos los habitantes del país, los que al usarlos tienen la obligación de conservarlos en el mejor estado posible.
+ARTÍCULO 2. Acrónimos.
+a. DTA: División Territorial Administrativa de la República de Costa Rica.
+b. INCOFER: Instituto Costarricense de Ferrocarriles.
+c. MOPT: Ministerio de Obras Públicas y Transportes.
+d. UTGVM: Unidad Técnica de Gestión Vial Municipal.

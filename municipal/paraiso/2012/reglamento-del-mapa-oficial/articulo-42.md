@@ -1,0 +1,2 @@
+ARTÍCULO 42. Ciclovías.
+Todas las vías en que vaya a plantearse una ciclovía deberán ser demarcadas indicando la superficie de la senda para permitir el tránsito seguro de los ciclistas. La senda deberá ser fácil de identificar tanto por ciclistas como por peatones y conductores.

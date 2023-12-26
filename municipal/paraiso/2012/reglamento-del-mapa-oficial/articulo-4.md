@@ -1,5 +1,4 @@
-Artículo 4. Conclusiones.
-1. El mapa oficial es el conjunto de planos que en forma clara indica los trazados de vías públicas y áreas de reserva para usos y servicios comunales, los cuales constituyen bienes demaniales.
-2. de conformidad con el artículo 44 de la Ley de Planificación Urbana, estos bienes públicos no necesitan ser inscritos en el Registro Público de la Propiedad de Bienes Inmuebles, para consolidar su condición de tales, sino que basta solamente con que consten en el Mapa Oficial.
-3. Los planos en conjunto del proyecto, se convierten en Mapa Oficial en el momento en que la municipalidad de la localidad o en su defecto, la Dirección de Urbanismo del Instituto Nacional de Vivienda y Urbanismo, visen o aprueben, por primera vez, dichos planos.
-4. Dado el especial régimen de protección que el ordenamiento jurídico otorga a los bienes de dominio público –dentro de los cuales están las áreas cedidas por los urbanizadores y fraccionadores -, para poder disponer de ellos, desafectarlos o cambiarles su destino, el Estado y los demás entes públicos requieren de una norma legal expresa que los autorice en ese sentido, desafectándolos así del fin público al que han sido destinados.
+ARTÍCULO 4. Dominio y afectación al uso público.
+El Mapa Oficial del Plan Regulador de Paraíso, junto con los planos o el catastro que lo complemente, constituirá registro fehaciente sobre propiedad y afectación a dominio público de todos los terrenos o espacios públicos1 del cantón, sean estos, vías públicas, terrenos para facilidades comunales, parques, áreas deportivas recreativas, áreas de juegos infantiles, etc.
+1 Artículo No.43. Ley de Planificación Urbana incluidos en el Mapa Oficial del Plan Regulador del cantón de Paraíso forman parte de los bienes de dominio público municipal, tanto en el uso de su superficie como del subsuelo.
+Consecuentemente, los terrenos ocupados por la red vial cantonal y demás terrenos públicos
