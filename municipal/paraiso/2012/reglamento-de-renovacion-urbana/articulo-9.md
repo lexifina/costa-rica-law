@@ -1,2 +1,2 @@
-Artículo 9. Comisión de Renovación Urbana.
-La Municipalidad deberá nombrar una Comisión de Renovación Urbana para que vigile la implementación del Proyecto de Renovación Urbana. El nombramiento y funcionamiento de dicha Comisión se regirá por lo establecido en el Código Municipal.
+ARTÍCULO 9. Participación ciudadana.
+La Municipalidad promoverá la participación de todas las partes involucradas, sociedad civil, sector privado y Gobierno Local para la definición de las normas programáticas, a través de mecanismos, procedimientos y estrategias que permitan garantizar el conocimiento oportuno y la cooperación activa de las partes interesadas. Para tales fines, se debe incluir en los programas de renovación urbana una propuesta de comunicación y participación que incluya aspectos como el manejo de la información, convocatoria, sectores representados, alcances de intervención de cada sector, metodología, cronograma, entre otros.

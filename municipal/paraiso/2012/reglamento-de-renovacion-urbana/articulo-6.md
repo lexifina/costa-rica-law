@@ -1,11 +1,9 @@
-Artículo 6. Tipología de Acciones de Renovación Urbana.
-Las tipologías de acciones que podrá desarrollar un Proyecto de Renovación Urbana serán las siguientes:
-a)- Remodelación de la trama urbana
-b)- Creación de nuevas polaridades
-c)- Revitalización de centros históricos y ejes comerciales
-d)- Traslado de usos inadecuados
-e)- Proyectos de mejora barrial y otras acciones integrales de renovación de infraestructuras y equipamientos urbanos
-f)- Procesos de erradicación de precarios. Distinguiendo las actuaciones:
-f.1)- Sobre suelo público, que consistirá en la erradicación de tugurios instalados ilegalmente en zonas de dominio público o de propiedad pública.
-f.2)- Sobre suelo privado, en caso de tratarse de ocupaciones irregulares de propiedad privada y eventualmente de ocupaciones amparadas en título adquisitivo válido pero carente de autorización administrativa.
-g)- Otras operaciones estructurantes.
+ARTÍCULO 6. Zonas de renovación urbana del cantón de Paraíso.
+ARTÍCULO 6.1.Delimitación.
+Se establecen como zonas de renovación urbana aquellas delimitadas dentro del cuadrante urbano de los distritos Paraíso y Orosi como Zonas de Interés Histórico Arquitectónico (ZIHA-RU).
+De conformidad con el artículo No.52 de la Ley de Planificación Urbana No.4240 y sus reformas, estas zonas se encuentran delimitadas y contempladas en el Mapa y Reglamento de Zonificación del Plan Regulador de Paraíso.
+ARTÍCULO 6.2. Intervención.
+Concordantemente con lo dispuesto en el presente Reglamento se establecen intervenciones de remodelación y conservación para las Zonas de Interés Histórico Arquitectónico según se detalla.
+Zona | Tipo de intervención | Descripción
+ZIHA-RU, Paraíso centro (cuadrante urbano) | Remodelación | Readecuación de infraestructura y servicios públicos, provisión de áreas libres para fines recreativos, espacios para equipamiento y servicios urbanos.
+ZIHA-RU, Orosi centro (cuadrante urbano) | Remodelación y conservación | Readecuación de los servicios básicos, provisión de áreas libres para fines recreativos, espacios para equipamiento y servicios urbanos. Preservación del patrimonio histórico arquitectónico, materializado en Templo Católico San José (iglesia colonial) y Convento.

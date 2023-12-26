@@ -1,2 +1,6 @@
-Artículo 2. Formas de Intervención.
-La Municipalidad intervendrá con el objetivo de lograr la renovación urbana, utilizando todos los medios legales a su alcance, tales como la mediación, facilitación, el arbitraje, la acción legal, entre otros.
+ARTÍCULO 2. Acrónimos.
+a. IFAM: Instituto de Fomento y Asesoría Municipal.
+b. INVU: Instituto Nacional de Vivienda y Urbanismo.
+c. MIVAH: Ministerio de Vivienda y Asentamientos Humanos.
+d. MOPT: Ministerio de Obras Públicas y Transportes.
+e. UTGVM: Unidad Técnica de Gestión Vial Municipal.

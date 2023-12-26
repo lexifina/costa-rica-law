@@ -1,11 +1,8 @@
-Artículo 12. Zonificación.
-En el cantón de Paraíso no se delimita actualmente ninguna Zona de Renovación Urbana en el Mapa de Zonificación Propuesta del Plan Regulador, sin perjuicio de que éstas puedan ser propuestas en el futuro.
-La declaración de Zona de Renovación Urbana deberá ser aprobada por la Municipalidad y el INVU en base a los siguientes criterios:
-a)- La propuesta de Zonas de Renovación Urbana se podrá realizar en aquellas áreas urbanas donde el estado general de estructuras, edificios, infraestructuras, equipamientos y/o urbanización presente un grave deterioro y suponga condiciones adversas a la seguridad, salubridad y bienestar general.
-b)- La declaración de zonas de renovación urbana se dará con prioridad en las siguientes áreas:
-b.1)- Zonas que presenten una degradación en la urbanización (aceras, infraestructura, mobiliario urbano, etc.) que impida el desarrollo de las actividades cotidianas de sus ciudadanos y el acceso a bienes y servicios públicos en igualdad de oportunidades, cumpliendo con estándares mínimos.
-b.2)- Zonas de tugurios con la propiedad regularizada (terrenos debidamente inscritos en el registro de la propiedad).
-b.3)- Áreas del cantón, que ejerzan la función de centralidad o cabecera.
-b.4)- Áreas urbanas con condiciones de degradación social como mendicidad, delincuencia, drogadicción, etc., donde el mal estado de la infraestructura, iluminación o dotación de equipamientos contribuya a la propensión de estas patologías urbanas.
-b.5)- Barriadas con procesos de degradación integral.
-La declaración de Zona de Renovación Urbana precisará de la modificación del Mapa de Zonificación del Plan Regulador.
+CAPÍTULO II: GESTIÓN DE LAS ZONAS DE RENOVACIÓN URBANA
+ARTÍCULO 12. Objetivos de los Programas de Renovación Urbana.
+En concordancia con el artículo No.51 de la Ley de Planificación Urbana y sus reformas o normativa que la sustituya, se establecen los siguientes objetivos:
+a. Garantizar la coherencia funcional de las actividades que se desarrollan en las zonas de renovación urbana de acuerdo con sus propias necesidades y según la normativa vigente.
+b. Conservar, rehabilitar, recuperar o renovar las áreas urbanas, por medio del repoblamiento, densificación o revalorización de las propiedades.
+c. Revitalizar las actividades ambientales, económicas y sociales.
+d. Promover el aprovechamiento de los predios y edificaciones existentes, para habilitar suelos de usos mixtos, y rescatar el espacio público, privado y los recursos naturales.
+Los programas de renovación urbana podrán incluir distintos proyectos como la peatonización del espacio, accesibilidad universal, protección de los recursos naturales, rescate del paisaje urbano y del patrimonio histórico-arquitectónico y cultural, el uso de energías alternativas, la priorización del transporte público, la densificación planificada en los centros urbanos, u otros factores que impulsen la renovación urbana.
