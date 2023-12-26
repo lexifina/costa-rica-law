@@ -1,0 +1,2 @@
+ARTÍCULO 30. Dimensiones mínimas de los lotes.
+El área y frente mínimo permitidos para los lotes producto de operaciones de fraccionamiento, urbanización, condominios o combinaciones de éstas, se establecen para cada zona en el anexo No.1. Los mínimos establecidos en el presente Reglamento de Zonificación deberán respetarse de conformidad con las normas del Reglamento de Fraccionamientos y Urbanizaciones del Plan Regulador de Paraíso y sus reformas. En condominios horizontales o de lotes, se deberá respetar para cada lote o finca filial, el lote mínimo según la zona.

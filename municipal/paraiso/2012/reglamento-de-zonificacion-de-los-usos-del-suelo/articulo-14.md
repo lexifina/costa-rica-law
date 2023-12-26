@@ -1,0 +1,2 @@
+ARTÍCULO 14. Actividades con normativa nacional o regional.
+Todos los usos o actividades listados o no listados en las diferentes zonas del Plan Regulador de Paraíso deberán apegarse en todo a las normas del presente Reglamento en lo que respecta a la definición de usos conformes, condicionales o no conformes, sin perjuicio del cumplimiento de las demás normas que la legislación nacional o regional les imponga específicamente.

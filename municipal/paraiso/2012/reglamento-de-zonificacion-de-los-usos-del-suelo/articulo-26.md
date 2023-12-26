@@ -1,0 +1,2 @@
+ARTÍCULO 26. Zona Mixto Residencial y Turístico (ZMRT).
+Las zonas mixto residencial y turístico, han sido concebidas para conservar la dinámica urbana durante todo el día, y favorecer el uso comercial y de servicios turísticos en espacios también ocupados por vivienda. Para todos los efectos de usos conformes, condicionales o no conformes se atenderá lo dispuesto en el anexo No.2 “Detalle de usos conformes, condicionales o no conformes” del presente Reglamento.

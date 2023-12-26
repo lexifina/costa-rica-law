@@ -1,0 +1,2 @@
+ARTÍCULO 23. Zona Residencial de Media Densidad (ZRMD).
+Funcionan como área de crecimiento de los cuadrantes urbanos en los principales poblados del cantón, y en algunos casos comprenden sectores periféricos de las Zonas Residenciales de Alta Densidad en los distritos Paraíso, Santiago, Cachí, Llanos de Santa Lucía y Birrisito. Para todos los efectos de usos conformes, condicionales o no conformes se atenderá lo dispuesto en el anexo No.2 “Detalle de usos conformes, condicionales o no conformes” del presente Reglamento.

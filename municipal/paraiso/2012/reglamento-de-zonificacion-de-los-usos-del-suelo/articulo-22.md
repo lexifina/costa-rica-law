@@ -1,0 +1,2 @@
+ARTÍCULO 22. Zona Residencial de Alta Densidad (ZRAD).
+Comprenden sectores urbanizados del distrito Paraíso, así como aquellos ubicados en los centros urbanos de Santiago, Orosi, Cachí, Llanos de Santa Lucía y Birrisito. En general representan sectores con las mayores facilidades en cuanto a dotación de servicios de transporte público, agua por acueducto y educación. Para todos los efectos de usos conformes, condicionales o no conformes se atenderá lo dispuesto en el anexo No.2 “Detalle de usos conformes, condicionales o no conformes” del presente Reglamento.

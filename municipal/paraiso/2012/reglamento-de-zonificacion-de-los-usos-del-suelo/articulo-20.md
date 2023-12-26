@@ -1,0 +1,2 @@
+ARTÍCULO 20. Zona de Interés Turístico (ZIT A - ZIT B).
+Las zonas de interés turístico corresponden con áreas que poseen potencial y atractivo turístico o ecoturístico, así como aquellas que ya concentran actividades y servicios destinados al turismo delimitadas en el Mapa de Zonificación del Plan Regulador. Para todos los efectos de usos conformes, condicionales o no conformes se atenderá lo dispuesto en el anexo No.2 “Detalle de usos conformes, condicionales o no conformes” del presente Reglamento.
