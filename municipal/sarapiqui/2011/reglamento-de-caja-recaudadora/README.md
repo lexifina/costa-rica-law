@@ -14,3 +14,4 @@ Reglamento de Caja Recaudadora
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-02-21 | la propia norma |
+| 2 | 2023-12-26 | Reglamento municipal 191 (2023-12-26) |

@@ -1,1 +1,3 @@
-Artículo 6º—De las copias de recibos. Las copias de los recibos cancelados serán retenidas por el tesorero para su correspondiente anotación en sus registros, una vez cumplida esta labor los enviará, en conjunto con el informe de caja a que se refiere el artículo siguiente, al departamento de contabilidad.
+Artículo 6º-De las copias de recibo.
+Cuando hubiere copias de recibos de depósitos realizados hacia la Municipalidad serán enviadas de forma directa a la Unidad de Contabilidad para su correspondiente anotación y control de registros.
+(Así reformado mediante sesión ordinaria N° 191-2020-2024 del 26 de diciembre del 2023)
