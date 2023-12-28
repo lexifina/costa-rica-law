@@ -1,3 +1,4 @@
-Artículo 28. — Los regidores suplentes estarán sometidos, en lo conducente, a las mismas disposiciones de este título para los regidores propietarios. Sustituirán a los propietarios de su partido político, en los casos de ausencias temporales u ocasionales.
+Artículo 28- Los regidores suplentes estarán sometidos, en lo conducente, a las mismas disposiciones de este título para los regidores propietarios. Sustituirán, en las sesiones del concejo municipal, a los propietarios de su partido político, en los casos de ausencias temporales u ocasionales; además, cuando participen en las comisiones permanentes tendrán voz y voto.
+(Así reformado el párrafo anterior por el artículo 1° de la Ley que faculta a los regidores suplentes a integrar con voz y voto, las comisiones permanentes de los concejos municipales, N° 10416 del 14 de noviembre de 2023)
 Los suplentes deberán asistir a todas las sesiones del Concejo y tendrán derecho a voz. Para las sustituciones, serán llamados de entre los presentes, por el presidente municipal, según el orden de elección. En tal caso, tendrán derecho a voto.
 (Así reformado por el artículo 1 de la Ley N° 7881 del 9 de junio de 1999)
