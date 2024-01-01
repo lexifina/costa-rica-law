@@ -1,0 +1,3 @@
+Artículo 21. Determinación por la SUGEF de un grupo de interés económico
+La SUGEF determina la existencia de relaciones administrativas, patrimoniales o financieras significativa entre dos o más deudores, con base en una evaluación de los hechos y circunstancias.
+La SUGEF, mediante resolución razonada, debe comunicar a la entidad los motivos por los cuales ha considerado que existe una relación significativa entre determinadas personas que constituyen un grupo de interés económico, En dicha resolución, se otorga un plazo máximo de cinco días hábiles para que la entidad ofrezca los argumentos y aporte la prueba que estime pertinente en oposición a lo indicado por la SUGEF.

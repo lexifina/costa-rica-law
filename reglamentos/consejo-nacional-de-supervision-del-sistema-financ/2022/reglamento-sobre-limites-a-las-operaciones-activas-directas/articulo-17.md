@@ -1,0 +1,2 @@
+Artículo 17. Conformación de un grupo de interés económico.
+Un grupo de interés económico está conformado por el conjunto de dos o más personas que mantengan relaciones financieras, administrativas o patrimoniales significativas entre sí, identificadas según los artículos 18, 19 y 20 de este reglamento, así como por las personas por medio de las cuales se constituyan las relaciones administrativas y patrimoniales según el inciso a) del artículo 19 y el inciso b) del artículo 20 de este reglamento.
