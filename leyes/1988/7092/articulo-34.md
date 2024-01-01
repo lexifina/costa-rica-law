@@ -1,14 +1,14 @@
 ARTICULO 34.- Una vez calculado el impuesto, los contribuyentes tendrán derecho a deducir de él, a título de crédito, los siguientes rubros:
 (Así reformado por el artículo 3º, inciso a), de la ley No. 7531 de 10 de julio de 1995)
-I. Por cada hijo, la suma de mil setecientos cincuenta colones (₵1.750,00)
-(Así modificado el monto del inciso anterior por el artículo 2° del decreto ejecutivo N° 43852 del 17 de noviembre del 2022,"Actualización de los tramos del impuesto sobre la renta-salario y utilidades-y sus créditos fiscales a partir del 01 de enero del 2023, mediante un ajuste del 8.99% por ciento")
+i. Por cada hijo, la suma de mil setecientos treinta colones (¢ 1. 730,00)
+(Así modificado el monto del inciso anterior por el artículo 2° del decreto ejecutivo N° 44276 del 15 de noviembre de 2023, "Actualización de los tramos del impuesto sobre la renta-salario y utilidades-y sus créditos fiscales a partir del 01 de enero del 2024, mediante un ajuste de menos uno coma veintiocho por ciento (-1,28%)")
 -Sea menor de edad.
 -Esté imposibilitado para proveerse su propio sustento, debido a incapacidad física o mental.
 -Esté realizando estudios superiores, siempre que no sea mayor de veinticinco años.
 En el caso de que ambos cónyuges sean contribuyentes, cada hijo sólo podrá ser deducido por uno de ellos.
 (Así reformado por inciso j) del artículo 19 de la Ley N° 8114, Ley de Simplificación y Eficiencia Tributaria de 4 de julio del 2001).
-II. Por el cónyuge, la suma de dos mil seiscientos cincuenta colones (₵2.650,00)
-(Así modificado el monto del inciso anterior por el artículo 2° del decreto ejecutivo N° 43852 del 17 de noviembre del 2022,"Actualización de los tramos del impuesto sobre la renta-salario y utilidades-y sus créditos fiscales a partir del 01 de enero del 2023, mediante un ajuste del 8.99% por ciento")
+ii. Por el cónyuge, la suma de dos mil seiscientos veinte colones (¢ 2.620,00)
+(Así modificado el monto del inciso anterior por el artículo 2° del decreto ejecutivo N° 44276 del 15 de noviembre de 2023, "Actualización de los tramos del impuesto sobre la renta-salario y utilidades-y sus créditos fiscales a partir del 01 de enero del 2024, mediante un ajuste de menos uno coma veintiocho por ciento (-1,28%)")
 En el caso de que ambos cónyuges sean contribuyentes, este crédito sólo podrá ser deducido, en su totalidad, por uno de ellos.
 Para tener derecho a los créditos del impuesto establecido en este artículo, los contribuyentes tendrán que demostrar a su patrono o empleador o al Estado, la existencia de cualesquiera de las circunstancias señaladas como requisito para incluir a sus hijos o lo relativo al estado civil, según se disponga en el Reglamento de esta ley.
 (Así reformado por el artículo 3º, inciso a), de la ley No. 7531 de 10 de julio de 1995)
