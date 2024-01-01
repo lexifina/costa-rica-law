@@ -17,3 +17,4 @@ Reglamento sobre cálculo de estimaciones crediticias
 | 2 | 2024-01-01 | Reglamento 1752 (2022-08-29) |
 | 3 | 2024-01-01 | Reglamento 1810 (2023-07-25) |
 | 4 | 2024-01-01 | Reglamento 1815 (2023-08-21) |
+| 5 | 2024-01-01 | Reglamento 1841 (2023-12-13) |
