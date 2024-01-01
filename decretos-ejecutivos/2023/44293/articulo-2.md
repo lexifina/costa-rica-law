@@ -1,0 +1,1 @@
+Artículo 2°-Por todo trabajo no cubierto por las disposiciones del artículo 1 º de este Decreto, el patrono debe pagar un salario por jornada no menor al salario mínimo de un Trabajador en Ocupación No Calificada, del inciso a) del artículo 1° de este Decreto.
