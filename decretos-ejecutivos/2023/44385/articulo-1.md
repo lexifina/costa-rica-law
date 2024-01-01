@@ -1,0 +1,14 @@
+N° 44385-MGP
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE GOBERNACIÓN Y POLICÍA
+En ejercicio de las atribuciones conferidas en los artículos número 140 incisos 3), 8) y 18) y 146 de la Constitución Política, los artículos número 25 inciso 1, 27 inciso l, y 28 inciso 2 acápite b), de la Ley General de la Administración Pública número 6227, del 2 de mayo de 1978 y sus reformas; y artículos número 5, 6, 7 y 8 de la Ley General de Migración y Extranjería N° 8764, del 19 de agosto de 2009, publicada en La Gaceta número 170, del 01 de setiembre de 2009.
+Considerando:
+I.-Que conforme los numerales 21 inciso 2) y 27 inciso 1) Ley General de la Administración Pública número 6227, le corresponde al Poder Ejecutivo, conformado conjuntamente por el respectivo Ministro de ramo y el Presidente de la República, dirigir y coordinar la Administración, tanto central como, en su caso, descentralizada del respectivo ramo.
+II.-Que el Poder Ejecutivo debe mantener la unidad, integralidad y armonía de las acciones de los órganos y entes que conforman la Administración, a fln de lograr la mejor satisfacción de los intereses y fines públicos.
+III.-Que la Ley General de Migración y Extranjería número 8764, del 19 de agosto de 20095 publicada en La Gaceta número 170, del 01 de setiembre de 2009, establece que el Poder ejecutivo, con apego a lo establecido en la Constitución Política, los tratados y los convenios internacionales ratificados y vigentes en Costa Rica, determinará la Política Migratoria del Estado Costarricense,
+IV.-Que la Política Migratoria Integral 2013-2023 oficializada mediante Decreto Ejecutivo número 38099-G del 30 de octubre de 2013, publicado en el Diario Oficial La Gaceta número 245 del 12 de diciembre de 2013, fenece en período 2023, siendo necesario aprobar una nueva Política Migratoria.
+V.-Que en virtud de la importancia del abordaje integral y respetuoso de los Derechos Humanos en la materia migratoria, se requiere de una Política Migratoria Integral para Costa Rica que responda a las necesidades del país, respondiendo a una gestión de política pública.
+VI.-Que conforme lo establece el inciso a) del numeral 11 de la Ley General de Migración y Extranjería número 8764, del 19 de agosto de 2009, publicada en La Gaceta número 170, del 01 de setiembre de 2009, el Consejo Nacional de Migración acordó en sesión N. 0 19 del 29 de noviembre de 2023, por medio de acuerdo en firme, aprobar el contenido de la propuesta de Política Migratoria Integral 2024-2034 y recomendar al Poder Ejecutivo su oficialización. Por tanto;
+Decretan:
+OFICIALIZACIÓN DE LA POLÍTICA MIGRATORIA INTEGRAL 2024-2034
+Artículo 1°-Oficialícese, para efectos de aplicación obligatoria, la Política Migratoria Integral 2024-2034, que fuera recomendada por el Consejo Nacional de Migración, mediante acuerdo en firme adoptado en la sesión número 19, celebrada el 29 de noviembre de 2023.

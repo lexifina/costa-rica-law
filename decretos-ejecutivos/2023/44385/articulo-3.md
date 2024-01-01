@@ -1,0 +1,1 @@
+Artículo 3°-La implementación de la Política Migratoria Integral 2024-2034 se complementará con el resto de los actores, públicos y privados, que tengan competencias y desarrollen funciones o actividades relacionadas con la materia migratoria, con el objetivo de enfrentar los desafíos y aprovechar las oportunidades que contribuyan sostenidamente con el desarrollo del país.
