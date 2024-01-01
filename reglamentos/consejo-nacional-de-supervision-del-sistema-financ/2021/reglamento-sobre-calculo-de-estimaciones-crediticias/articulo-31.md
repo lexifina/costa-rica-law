@@ -1,0 +1,1 @@
+Artículo 31. Recurso de revocatoria a la objeción para el uso de metodologías internas Contra la resolución que dicte la SUGEF respecto al inciso b) del Artículo 29, podrán interponerse los recursos ordinarios de revocatoria y apelación, según lo dispuesto en la Ley General de la Administración Pública.

@@ -1,0 +1,3 @@
+Artículo 33. Recurso de revocatoria en caso de objeción posterior para el uso de metodologías internas. Contra la resolución que dicte la SUGEF respecto al Artículo 30 de este Reglamento, podrán interponerse los recursos ordinarios de revocatoria y apelación, según lo dispuesto en la Ley General de la Administración Pública.
+Si la SUGEF admite el recurso con suspensión del acto, la entidad no aplicará el incremento en estimaciones, hasta que se resuelva el recurso a favor de la SUGEF.
+Si la SUGEF admite el recurso sin suspensión del acto, la entidad debe aplicar el aumento en estimaciones, hasta que se resuelva el recurso.

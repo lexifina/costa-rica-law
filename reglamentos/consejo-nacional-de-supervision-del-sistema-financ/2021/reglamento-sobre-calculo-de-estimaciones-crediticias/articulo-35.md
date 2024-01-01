@@ -1,0 +1,1 @@
+Artículo 35. Enfoque para realizar el cálculo de pérdidas esperadas. El cálculo de las pérdidas esperadas debe realizarse con un enfoque que permita la comparación de los resultados con los de la segmentación descrita en el Artículo 5 de este Reglamento.

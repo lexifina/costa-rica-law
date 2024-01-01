@@ -1,0 +1,3 @@
+Artículo 24: Criterio de salida de operaciones especiales. Un deudor con operación especial podrá calificarse en categorías de menor riesgo cuando se cumplan todas y cada una de las siguientes condiciones:
+a. Cuando se verifique para el deudor con operación especial, que cumple con los criterios de clasificación correspondientes a las categorías de menor riesgo establecidos en este Reglamento.
+b. El deudor haya demostrado con respecto al nuevo cronograma de pagos del crédito el pago de al menos cuatro (4) cuotas consecutivas. Para este efecto se considerará como pago el cumplimiento de la obligación establecida en el contrato.

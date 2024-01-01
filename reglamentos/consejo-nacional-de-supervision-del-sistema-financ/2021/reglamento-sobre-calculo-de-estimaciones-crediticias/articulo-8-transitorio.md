@@ -1,0 +1,1 @@
+Transitorio VIII. Los procesos administrativos iniciados en aplicación del Reglamento para la Calificación de Deudores, Acuerdo SUGEF 1-05, que se mantengan pendientes de resolución a la fecha de entrada en vigencia del presente Reglamento, continuarán hasta que sean resueltos.

@@ -1,0 +1,1 @@
+Transitorio VI. Si a partir de los resultados a que hace referencia el Transitorio II, se determina que el monto mínimo de estimaciones según la metodología estándar de este Reglamento es menor al monto registrado contablemente según el Acuerdo SUGEF 1-05, no se reversan las estimaciones en exceso.

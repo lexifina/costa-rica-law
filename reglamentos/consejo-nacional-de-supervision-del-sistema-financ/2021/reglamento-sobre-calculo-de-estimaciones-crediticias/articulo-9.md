@@ -1,0 +1,1 @@
+Artículo 9. Análisis del comportamiento de pago histórico. Las entidades supervisadas por la SUGEF deberán evaluar el comportamiento de pago histórico del deudor con base en el nivel de comportamiento de pago histórico asignado al deudor por el Centro de Información Crediticia de la SUGEF.

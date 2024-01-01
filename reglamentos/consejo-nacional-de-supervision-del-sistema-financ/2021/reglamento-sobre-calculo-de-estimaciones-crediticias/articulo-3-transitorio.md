@@ -1,0 +1,1 @@
+Transitorio III. Si como resultado de los informes a que hace referencia el Transitorio II se determina una afectación en estabilidad, solvencia o irregularidad financiera, la Superintendencia solicitará a la entidad un Plan de Acción que será ejecutado durante en el periodo entre 2022 y 2023.

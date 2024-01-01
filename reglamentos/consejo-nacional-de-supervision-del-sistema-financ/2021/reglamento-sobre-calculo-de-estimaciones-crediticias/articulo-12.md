@@ -1,0 +1,6 @@
+Artículo 12. Calificación directa en categoría de riesgo 8. La entidad debe calificar en categoría de riesgo 8 las siguientes operaciones:
+a. Las operaciones con saldos sobre los que se haya exigido judicialmente su reembolso mediante la ejecución de la garantía, aunque estén garantizados, así como las operaciones sobre las que el deudor haya suscitado litigio de cuya resolución dependa su cobro.
+b. Las operaciones en las que se haya iniciado el proceso de ejecución de la garantía real, incluyendo las operaciones de arrendamiento financiero en las que la entidad haya decidido rescindir el contrato para recuperar la posesión del bien.
+c. Las operaciones de los titulares que estén declarados o se constate que se van a declarar en concurso de acreedores sin petición de liquidación.
+d. Las operaciones respaldadas con garantías concedidas o avalados declarados en concurso de acreedores para los que conste que se haya declarado o se vaya a declarar la fase de liquidación, o sufran un deterioro notorio e irrecuperable de su solvencia, aun cuando el beneficiario del aval no haya reclamado su pago.
+Las operaciones a que hace referencia este artículo se consideran en incumplimiento para el cómputo de estimaciones de este Reglamento.
