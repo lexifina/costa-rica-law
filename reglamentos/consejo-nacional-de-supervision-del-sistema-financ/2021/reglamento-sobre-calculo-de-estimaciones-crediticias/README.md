@@ -14,3 +14,4 @@ Reglamento sobre cálculo de estimaciones crediticias
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2024-01-01 | la propia norma |
+| 2 | 2024-01-01 | Reglamento 1752 (2022-08-29) |
