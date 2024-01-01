@@ -1,0 +1,13 @@
+ARTÍCULO 2- Adiciones
+Se adicionan los artículos 26, 27, 28, 29 y 30 a la Ley 8649, Tarifa de Impuestos Municipales del Cantón de Acosta, de 26 de junio de 2008.
+Artículo 26- Facultad de fiscalizar del Departamento de Patentes o, en su defecto, la Administración Tributaria Municipal
+La Municipalidad tendrá la facultad para practicar todas las investigaciones, las diligencias y los exámenes que considere necesarios y útiles para comprobar la existencia y cuantía de las obligaciones tributarias municipales de los sujetos pasivos. Para los efectos de realizar su labor de fiscalización de las personas patentadas, estas quedan obligadas a proporcionar la información suficiente y necesaria para este fin, en apego a la Ley 8968, Protección de la Persona frente al Tratamiento de sus Datos Personales, de 7 de julio de 2011
+Artículo 27- Actividades de agencias o sucursales
+El impuesto por actividades lucrativas desarrolladas en el cantón de Acosta, por medio de agencias, sucursales o camiones distribuidores, se calculará sobre los Ingresos brutos que reporte la casa matriz, según la declaración jurada municipal que presente la persona patentada. Los datos serán verificados por la Municipalidad, de acuerdo con los procedimientos establecidos en esta ley y en el Código de Normas y Procedimientos Tributarios.
+Artículo 28- Ventas ambulantes
+La Municipalidad de Acosta, por medio de sus inspectores, quedará autorizada para desalojar a las personas vendedoras ambulantes y estacionarias que no cuenten con los permisos respectivos, así como para decomisarles la mercadería según se disponga en el reglamento; para ello, contará con la colaboración de la Fuerza Pública.
+Artículo 29- Sanciones
+a) Cierre definitivo y cancelación de licencia: si dentro del plazo de ocho días hábiles posteriores a la suspensión de la licencia por falta de pago de dos o más trimestres del impuesto, la persona patentada no cancela los tributos adeudados, la Municipalidad procederá, previa observancia del debido proceso, al cierre definitivo del negocio comercial y a la cancelación de la licencia respectiva.
+b) Si estando suspendida la licencia, la persona patentada, administradora o responsable del establecimiento comercial continúa desarrollando la actividad, será sancionada previa observancia del debido proceso, con una multa equivalente a tres salarios base del auxiliar 1 definido en el artículo 2 de la Ley 7337, de 5 de mayo de 1993, tal y como lo dispone el artículo 90 bis del Código Municipal
+Artículo 30- Fiscalización
+La Municipalidad de Acosta deberá adoptar las medidas administrativas que resulten pertinentes a efectos de la adecuada fiscalización señalada, para el cumplimiento de esta ley.
