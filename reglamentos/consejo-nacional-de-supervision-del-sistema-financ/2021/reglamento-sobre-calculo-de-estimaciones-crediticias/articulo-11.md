@@ -57,3 +57,5 @@ a. Etapa 1: Operaciones en riesgo normal, en esta fase no existe evidencia de in
 b. Etapa 2: Operaciones en vigilancia especial, se observa incremento significativo de riesgo de crédito desde el reconocimiento inicial de la operación. Incluye las categorías 3 y 4.
 c. Etapa 3: Operaciones de dudosa recuperación. En esta etapa se clasifican las operaciones de crédito que presentan evidencia de deterioro, como operaciones morosas o para las que existe una alta probabilidad de incumplimiento de pago. Incluye las categorías 5, 6, 7 y 8.
 Para la constitución de estimaciones en este Reglamento, las operaciones en Etapa 3 se consideran en incumplimiento.
+En el caso de las entidades supervisadas por la SUGEF, el deudor que no mantenga una autorización vigente para que se consulte su información crediticia en el Centro de Información Crediticia (CIC) de la SUGEF, deberá calificar, al deudor o sus operaciones, en la categoría de riesgo 4, u otra de mayor riesgo cuando corresponda según los criterios de calificación establecidos en este Reglamento."
+(Así adicionado el párrafo anterior mediante sesión N° 1815-2023 de 21 de agosto del 2023)

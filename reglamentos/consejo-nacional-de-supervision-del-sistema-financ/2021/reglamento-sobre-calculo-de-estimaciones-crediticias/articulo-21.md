@@ -17,3 +17,6 @@ M = Porcentaje de mitigación que corresponda al porcentaje de cobertura de cada
 El porcentaje de cobertura se obtiene de dividir el efectivo más el valor de las inversiones que respaldan los avales emitidos, entre el monto nominal total de avales emitidos.
 TI: Tasa de incumplimiento del deudor u operación.
 ? : porcentaje de estimación mínimo establecido en la Nota 1 del apartado 7.2, de la Sección 7 del Anexo 3, Metodología Estándar, del Reglamento sobre gestión y evaluación del Riesgo de Crédito para el Sistema de Banca para el Desarrollo, Acuerdo SUGEF 15-16.
+(*)c) En el caso de carta de crédito Stand-By emitida por entidad financiera de primer orden, se aplica la siguiente fórmula:
+[imagen]
+(*)(Así adicionado el inciso anterior mediante sesión N° 1815-2023 de 21 de agosto del 2023)
