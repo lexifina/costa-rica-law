@@ -1,2 +1,3 @@
-ARTÍCULO 26.- Reglamentación
-Autorízase a la Municipalidad de Acosta para que emita el Reglamento de la presente Ley y adopte las medidas administrativas convenientes a efecto de una adecuada fiscalización.
+Artículo 26- Facultad de fiscalizar del Departamento de Patentes o, en su defecto, la Administración Tributaria Municipal
+La Municipalidad tendrá la facultad para practicar todas las investigaciones, las diligencias y los exámenes que considere necesarios y útiles para comprobar la existencia y cuantía de las obligaciones tributarias municipales de los sujetos pasivos. Para los efectos de realizar su labor de fiscalización de las personas patentadas, estas quedan obligadas a proporcionar la información suficiente y necesaria para este fin, en apego a la Ley 8968, Protección de la Persona frente al Tratamiento de sus Datos Personales, de 7 de julio de 2011
+(Así adicionado por el artículo 2° de la ley N° 10388 del 18 de octubre del 2023)
