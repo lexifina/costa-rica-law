@@ -268,11 +268,11 @@ ANEXO 10-A LISTA DE COLOMBIA
 SECCIÓN A: ENTIDADES DEL NIVEL CENTRAL DEL GOBIERNO
 El Capítulo se aplicará a las entidades del nivel central del gobierno listadas en la presente Sección, cuando el valor de la contratación que se ha estimado, de conformidad con el Artículo 10.1.4, sea igual o superior a los siguientes montos:
 (a) para las contrataciones de bienes y servicios:
-(i) US$92,319,
-(Así reformado el punto a) anterior por el artículo 5° del decreto ejecutivo N°43584 del 19 de mayo de 2022)
+(i) US$102.280
+(Así reformado el subinciso i) anterior por el artículo 5° del decreto ejecutivo N° 44451 del 26 de febrero del 2024)
 (b) para contrataciones de servicios de construcción:
-(i) US$7.032.000,
-(Así reformado el punto b) anterior por el artículo 5° del decreto ejecutivo N° 43584 del 19 de mayo de 2022)
+(i) US$6. 708.000
+(Así reformado el subinciso i) anterior por el artículo 5° del decreto ejecutivo N° 44451 del 26 de febrero del 2024)
 (Nota de Sinalevi: Mediante el artículo 8° del decreto ejecutivo N° 42224 del 14 de enero del 2020, se estableció lo siguiente: "El valor de los umbrales ajustados y convertidos a moneda nacional, se indica a continuación, tomando como tipo de cambio promedio la suma de quinientos ochenta y cuatro colones con treinta y nueve céntimos (584,39) por dólar estadounidense:
 "Sección A: Entidades del Nivel Central del Gobierno.
 . Para contrataciones de bienes y servicios: ¢48.562.225.
@@ -326,11 +326,11 @@ Notas
 SECCIÓN B: ENTIDADES DEL NIVEL SUBCENTRAL DEL GOBIERNO
 El Capítulo se aplicará a las entidades del nivel subcentral del gobierno listadas en la presente Sección, cuando el valor de la contratación que se ha estimado, de conformidad con el Artículo 10.1.4, sea igual o superior a los siguientes montos:
 (a) para contrataciones de bienes y servicios:
-(i) US$499,000;
-(Así reformado el punto a) anterior por el artículo 6° del decreto ejecutivo N° 43584 del 19 de mayo de 2022)
+(i) US$476.000
+(Así reformado el subinciso i) anterior por el artículo 6° del decreto ejecutivo N° 44451 del 26 de febrero del 2024)
 (b) para contrataciones de servicios de construcción:
-(i) US$7.032.000
-(Así reformado el punto b) anterior por el artículo 6° del decreto ejecutivo N° 43584 del 19 de mayo de 2022)
+(i) US$6. 708.0 00
+(Así reformado el subinciso i) anterior por el artículo 6° del decreto ejecutivo N° 44451 del 26 de febrero del 2024)
 (Nota de Sinalevi: Mediante el artículo 8° del decreto ejecutivo N° 42224 del 14 de enero del 2020, se estableció lo siguiente: "El valor de los umbrales ajustados y convertidos a moneda nacional, se indica a continuación, tomando como tipo de cambio promedio la suma de quinientos ochenta y cuatro colones con treinta y nueve céntimos (584,39) por dólar estadounidense:
 Sección B: Entidades del Nivel Subcentral del Gobierno.
 . Para contrataciones de bienes y servicios: ¢291.026.220.
@@ -345,11 +345,11 @@ No están cubiertas por el Capítulo:
 SECCIÓN C: OTRAS ENTIDADES CUBIERTAS
 El Capítulo se aplicará a las otras entidades listadas en la presente Sección, cuando el valor de la contratación que se ha estimado, de conformidad con el Artículo 10.1.4, sea igual o superior a los siguientes montos:
 (a) para la contratación de bienes y servicios:
-(ii) para instituciones de la Lista B US$563.000
-(Así reformado el punto a) anterior por el artículo 7° del decreto ejecutivo N°43584 del 19 de mayo de 2022)
+(ii) para instituciones de la Lista B: US$537.000
+(Así reformado el subinciso ii) anterior por el artículo 7° del decreto ejecutivo N° 44451 del 26 de febrero del 2024)
 (b) para contrataciones de servicios de construcción de las Listas A y B:
-(ii) US$7.032.000;;
-(Así reformado el punto b) anterior por el artículo 7° del decreto ejecutivo N° 43584 del 19 de mayo de 2022)
+(ii) US$6. 708.000;
+(Así reformado el subinciso ii) anterior por el artículo 7° del decreto ejecutivo N° 44451 del 26 de febrero del 2024)
 (Nota de Sinalevi: Mediante el artículo 8° del decreto ejecutivo N° 43584 del 19 de mayo de 2022, se estableció lo siguiente: "El valor de los umbrales ajustados y convertidos a moneda nacional, se indica a continuación, tomando como tipo de cambio promedio la suma de quinientos ochenta y cuatro colones con treinta y nueve céntimos (584,39) por dólar estadounidense:
 Sección C: Otras Entidades Cubiertas.
 . Lista A: Para contrataciones' de bienes y servicios: ¢149.675.000.
@@ -419,6 +419,17 @@ SECCIÓN H: AJUSTE DE UMBRALES
 1. Los umbrales de los Secciones A, B y C, serán ajustados en intervalos de dos años, cada ajuste tendrá efecto el 1 de enero, iniciando el 1 de enero de 2014.
 2. Colombia ajustará los umbrales de conformidad con lo establecido en la Sección I del Anexo 9.1. del Acuerdo de Promoción Comercial entre la República de Colombia y los Estados Unidos de América, sus "Cartas Adjuntas" y sus "Entendimientos" suscrito en Washington el 22 de noviembre de 2006, y notificará a Costa Rica por escrito el valor del umbral ajustado en dólares de los Estados Unidos de América y en moneda nacional, el 15 de enero del año en que el umbral ajustado tenga efecto.
 3. Colombia convertirá el umbral ajustado a su moneda nacional basado en el tipo de cambio oficial del Banco de la República, utilizando el promedio de los valores diarios de su moneda oficial en términos de dólares de los Estados Unidos de América, dentro del período de dos años que termina el 30 de setiembre del año en que Estados Unidos notifica el umbral ajustado.
+(Nota de Sinalevi: Mediante el artículo 8° del decreto ejecutivo N° 44451 del 26 de febrero del 2024, se establece lo siguiente: " El valor de los umbrales ajustados y convertidos a moneda nacional, siguiendo lo di ·puesto en el párrafo 3 de la Sección G "Fórmula de Ajuste de Umbrales" del Anexo 10-A "Cobertura" del Capítulo Diez "Contratación Pública" del Tratado de Libre Comercio entre el Gobierno ele la República ele Costa Rica y el Gobierno de la República de Colombia, se indica a continuación, tomando para tales efectos como tipo de cambio promedio la suma de seiscientos doce colones con diez céntimos (₡612, 10) por dólar estadounidense:
+"Sección A: Entidades del Nivel Central del Gobierno.
+. Para contrataciones de bienes y servicios: ₡ 62. 605. 588.
+. Para contrataciones de servicios de construcción: ₡ 4.105.966.800.
+Sección B: Entidades del Nivel Subcentral del Gobierno.
+. Para contrataciones de bien.es y servicios: ₡ 291.359.600.
+. Para contrataciones de servicios de construcción: ₡ 4.105.966.800.
+Sección. C: Otras Entidades Cubiertas.
+. Lista A: Para contrataciones de bienes y servicios: ₡ 153. 025. 000.
+. Lista B: Para contrataciones de bienes y servicios: ₡ 328.697. 700.
+. Listas A y B: Para contrataciones de servicios de construcción: ₡ 4.105.966.800.")
 4. En caso que:
 (a) Colombia denuncie el Acuerdo de Promoción Comercial entre la República de Colombia y los Estados Unidos de América, sus "Cartas Adjuntas" y sus "Entendimientos"; o
 (b) la fórmula de ajuste de umbrales indicada en el párrafo 2 sea modificada;
