@@ -1,0 +1,1 @@
+Artículo 11.- Deróguese el Decreto Ejecutivo Nº 43584-COMEX del 19 de mayo de 2022, denominado: "Ajustes de los Umbrales establecidos en el Anexo 9. 1.2 (b)(i) Capítulo Nueve Tratado Libre Comercio República Dominicana-Centroamérica-Estados Unidos y Anexo 10-A del Capítulo Diez del Tratado Libre Comercio con el Gobierno de la República de Colombia".
