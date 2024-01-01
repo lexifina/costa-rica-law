@@ -1,0 +1,1 @@
+Artículo 2º-Deróguese el Decreto Ejecutivo número 44230-H del 07 de setiembre de 2023, publicado en el Alcance número 202 a La Gaceta número 191 del 17 de octubre de 2023, a partir de la vigencia del presente decreto.
