@@ -1,3 +1,3 @@
-ARTÍCULO 28.- Vigencia y eficacia
-Rige a partir del trimestre siguiente a su publicación.
-Dado en la Presidencia de la República. San José, a los veintiséis días de mes de junio del dos mil ocho.
+Artículo 28- Ventas ambulantes
+La Municipalidad de Acosta, por medio de sus inspectores, quedará autorizada para desalojar a las personas vendedoras ambulantes y estacionarias que no cuenten con los permisos respectivos, así como para decomisarles la mercadería según se disponga en el reglamento; para ello, contará con la colaboración de la Fuerza Pública.
+(Así adicionado por el artículo 2° de la ley N° 10388 del 18 de octubre del 2023)
