@@ -1,1 +1,0 @@
-Artículo 16.—No se permitirá el cambio de cheques personales ni de contribuyentes con fondos de caja chica, ni se permitirán préstamos como pueden ser vales a favor de un funcionario municipal, con cargo a la planilla ni de otra índole.

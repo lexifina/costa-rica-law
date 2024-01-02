@@ -1,1 +1,0 @@
-Artículo 7º—El fondo de caja chica estará sujeto a arqueos administrativos periódicos por la persona competente y sin aviso previo, el cual quedará constando por escrito y deberá ser firmado por la persona que lo efectuare y por el encargado del fondo de caja chica. Incluir el no30

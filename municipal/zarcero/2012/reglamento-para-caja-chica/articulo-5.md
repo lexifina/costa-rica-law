@@ -1,1 +1,0 @@
-Artículo 5º—Todos los fondos de caja chica que se establezcan al amparo de este Reglamento, operarán como “Fondo Fijo”, lo cual requiere que en todo momento los custodios tengan la suma total asignada, bien sea el dinero efectivo, adelantos de caja chica en tránsito o comprobantes debidamente cancelados y refrendados.

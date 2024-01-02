@@ -1,1 +1,0 @@
-Artículo 4º—El Sistema de Control de la Administración del fondo de Caja Chica, debe garantizar la custodia y el buen uso de esos recursos, el registro de datos necesarios para disponer de información contable y oportuna, un sistema de archivo que permita la fácil localización de documentos.

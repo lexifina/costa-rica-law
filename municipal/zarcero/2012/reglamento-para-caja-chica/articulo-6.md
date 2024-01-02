@@ -1,1 +1,0 @@
-Artículo 6º—Si al realizar un arqueo resultara un faltante, el encargado de la caja chica deberá reponerlo con sus propios recursos en forma inmediata y debidamente justificado. En caso de robo, el encargado de la caja chica deberá interponer la denuncia de forma inmediata a la institución correspondiente.
