@@ -1,1 +1,0 @@
-Artículo 21.-Devolución por Sobrantes de Adelanto de Caja Chica. Cuando por algún motivo la compra no se lleva a cabo, el funcionario que ha recibido el dinero del vale, deberá hacer el reintegro inmediato del dinero entregado para tales efectos.

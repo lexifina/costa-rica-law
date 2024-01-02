@@ -1,1 +1,0 @@
-Artículo 16.-Clasificador por el Objeto del Gasto del Sector Público. Las partidas, grupos y subpartidas presupuestarias autorizadas para realizar gastos por Fondo Fijo de Caja Chica se establecerán atendiendo el Clasificador por Objeto del Gasto del Sector Público.

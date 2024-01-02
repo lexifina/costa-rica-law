@@ -1,1 +1,0 @@
-Artículo 41.-Cumplimiento del presente Reglamento. Corresponderá al Director Administrativo y Financiero de la Institución velar por el cumplimiento de este Reglamento, quien rendirá un informe semestral de esta gestión al Alcalde Municipal.

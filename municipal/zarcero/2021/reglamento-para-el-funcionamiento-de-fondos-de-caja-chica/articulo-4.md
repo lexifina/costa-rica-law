@@ -1,1 +1,0 @@
-Artículo 4°-Naturaleza. El Fondo Fijo de Caja Chica es un procedimiento de excepción, por lo tanto, la ejecución del gasto es limitado a la atención de gastos menores, indispensables y urgentes, según el criterio justificado de la Administración Municipal.

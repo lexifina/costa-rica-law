@@ -1,1 +1,0 @@
-Artículo 23.-Liquidación Pendiente. No se entregará un segundo vale de Caja Chica, a funcionarios que tengan pendiente la liquidación del primero. El tesorero Municipal, será el encargado de llevar el respectivo control y seguimiento de liquidación de vales.

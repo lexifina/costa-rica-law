@@ -1,1 +1,0 @@
-Artículo 27.-Periodicidad. Se confeccionará los reintegros del Fondo Fijo de Caja Chica, cuando se haya gastado no más del 70% del fondo establecido por el Concejo Municipal, con el propósito de darle rotación optima a los recursos y mantener la liquidez del fondo.

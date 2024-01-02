@@ -1,1 +1,0 @@
-Artículo 6º-Definición del Monto. Los responsables del fondo se encargarán de analizar y establecer el monto del fondo, tomando en cuenta el presupuesto autorizado en la institución, la estructura organizacional y funcionalidad de este.
