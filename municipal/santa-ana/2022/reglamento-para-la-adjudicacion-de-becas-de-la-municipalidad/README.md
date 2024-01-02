@@ -14,3 +14,4 @@ Reglamento para la adjudicación de becas de la Municipalidad de Santa Ana para 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-03-02 | la propia norma |
+| 2 | 2024-01-02 | Reglamento municipal 192 (2024-01-02) |
