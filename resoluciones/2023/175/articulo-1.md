@@ -194,12 +194,16 @@ ii. Se verificará si el servicio está asociado a algún terminal o dispositivo
 12. Hitos y plazos máximos para la implementación de la portabilidad numérica fija en Costa Rica
 12.1. Publicación y entrada en vigor de los Lineamientos para la Implementación de la Portabilidad Numérica Fija.
 12.2. El 29 de agosto de 2023, se llevará a cabo la primera sesión del Comité Técnico de Portabilidad Numérica Fija en la cual se ratificarán los Lineamientos de Gobernanza para dicho comité y se dispondrá el inicio de la firma de la adenda o contratos con la ERPN, según corresponda.
-12.3. A más tardar el 10 de octubre de 2023, los operadores deberán suscribir las adendas o contratos respectivos con la ERPN y remitirlas a Sutel antes del 13 de octubre de 2023.
-12.4. El 1 de diciembre de 2023, la ERPN remitirá su propuesta del Manual de Interfases y Procesos, la cual será presentada de manera formal por el personal de la ERPN el 5 de diciembre de 2023 durante una sesión del CTPNF.
-12.5. A más tardar el 27 de febrero de 2024, el CTPNF deberá aprobar la versión definitiva del Manual de Interfases desarrollado en conjunto con la ERPN.
-12.6. Se establece el 30 de mayo de 2024 como fecha máxima para que los operadores y proveedores de telefonía fija con numeración asignada estén debidamente conectados al SIPN (incluyendo su fase de prueba).
-12.7. A partir del 4 de junio de 2024 los usuarios de servicios de telefonía fija podrán ejercer su derecho a la portabilidad numérica.
+12.3. A más tardar el 10 de octubre 12.3. El CTPNF, definirá la fecha de ejecución máxima para la suscripción de las adendas o contratos respectivos de los operadores con la ERPN. Y la Dirección General de Calidad informará al Consejo sobre los avances en la suscripción de las adendas o contratos por parte de cada uno de los miembros del CTPNF con la ERPN.
+(Así reformado el inciso anterior mediante la resolución N° RCS-008-2024 del 4 de enero del 2024)
+12.4. Un mes después de suscribir las adendas o contratos respectivos de los operadores con la ERPN, la ERPN remitirá su propuesta del Manual de Interfases y Procesos, la cual será presentada de manera formal por el personal de la ERPN durante una sesión del CTPNF.
+(Así reformado el inciso anterior mediante la resolución N° RCS-008-2024 del 4 de enero del 2024)
+12.5. Tres meses después de la presentación de la propuesta del Manual de Interfases y Procesos, el CTPNF deberá aprobar la versión definitiva del Manual de Interfases desarrollado en conjunto con la ERPN.
+(Así reformado el inciso anterior mediante la resolución N° RCS-008-2024 del 4 de enero del 2024)
+12.6. Catorce meses después de la aprobación de la propuesta del Manual de Interfases y Procesos los operadores y proveedores de telefonía fija con numeración asignada deben estar debidamente conectados al SIPN (incluyendo su fase de prueba).
+(Así reformado el inciso anterior mediante la resolución N° RCS-008-2024 del 4 de enero del 2024)
+12.7. Dos meses después de que los operadores estén debidamente conectados al SIPN y finalizada la fase de pruebas, los usuarios de servicios de telefonía fija podrán ejercer su derecho a la portabilidad numérica.
+(Así reformado el inciso anterior mediante la resolución N° RCS-008-2024 del 4 de enero del 2024)
 13. Conflicto normativo
 13.1. En caso de que se presente algún conflicto normativo con la resolución número RCS-253-2014 prevalecen los lineamientos y disposiciones de la presente resolución.
 En cumplimiento de lo que ordena el artículo 73 de la Ley N° 7593, Ley de la Autoridad Reguladora de los Servicios Públicos y el artículo 346 de la Ley N° 6227, Ley General de Administración Pública, se indica que contra esta resolución cabe el recurso de reposición o consideración ante el Consejo de la Superintendencia de Telecomunicaciones, a quien corresponde resolverlo y deberá interponerse en el plazo de tres días hábiles, contados a partir del día siguiente de la notificación de la presente resolución.
-<span lang=es-419 style='font-size: </body>

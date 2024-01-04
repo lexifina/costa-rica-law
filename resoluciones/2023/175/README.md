@@ -14,3 +14,4 @@ Lineamientos para la implementación de la portabilidad numérica fija en Costa 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-08-17 | la propia norma |
+| 2 | 2024-01-04 | Resolución 8 (2024-01-04) |
