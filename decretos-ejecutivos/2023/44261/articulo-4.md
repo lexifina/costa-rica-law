@@ -1,0 +1,1 @@
+Artículo 4º-Se deja sin efecto el Decreto Ejecutivo N° 44245-S del 09 de octubre 2023 Oficialización de la "Norma Nacional para el Manejo del Cáncer Cervicouterino en los Servicios de Salud"; el cual no fue publicado en el Diario Oficial La Gaceta, debido a consideraciones técnicas posteriores en cuanto a la norma.

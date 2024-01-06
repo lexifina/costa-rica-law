@@ -1,0 +1,1 @@
+Artículo 3º-Deróguese el Decreto Ejecutivo N° 33119-S del 22 de febrero de 2006 "Manual de Normas y Procedimientos de Atención Integral a la Mujer para la Prevención y Manejo del Cáncer de Cuello Útero, I y II Nivel de Atención y Normas de Laboratorios de Citología".
