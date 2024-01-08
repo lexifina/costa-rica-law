@@ -1,1 +1,0 @@
-Artículo 2º-Al entrar en vigencia la presente resolución, se deja sin efecto la actualización efectuada mediante la resolución N° MH-DGH-RES-031-2023, del 07 de julio de 2023, publicada en La Gaceta número 129 del 17 de julio de 2023.
