@@ -1,0 +1,1 @@
+Artículo 13.-Presentación de la solicitud. Las personas adultas mayores que desee solicitar la condonación deberán presentar la solicitud física en la Plataforma de servicios de la Municipalidad de Paraíso.

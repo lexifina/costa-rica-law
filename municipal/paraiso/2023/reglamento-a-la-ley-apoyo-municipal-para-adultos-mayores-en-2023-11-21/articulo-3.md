@@ -1,0 +1,1 @@
+Artículo 3º-Régimen y ámbito aplicable. La ley N° 10359 Ley de Apoyo municipal para adultos mayores, este Reglamento y todas las leyes conexas para persona de sesenta y cinco años o más y toda persona con síndrome de Down mayor de cuarenta años que mantengan obligaciones tributarias con la Municipalidad de Paraíso.

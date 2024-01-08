@@ -1,0 +1,1 @@
+Artículo 6º-Exención. Se autoriza a la Municipalidad de Paraíso, previo a estudio técnico del departamento de Bienes Inmuebles y Catastro, para que conceda a sus contribuyentes persona adulta mayor, en condición de pobreza o pobreza extrema, la exención del pago de tasas, servicios municipales a partir de la entrada en vigor de la ley N° 10359.
