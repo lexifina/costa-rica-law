@@ -10,6 +10,11 @@ a- Los grados en estos uniformes se utilizarán al frente de la camisa en el med
 b- No se podrá utilizar ningún pin sobre este uniforme, únicamente parches.
 Todos los parches deben ser con color según el uniforme que se utiliza.
 c- Para los uniformes tipo pixelado mimetizado, la Bandera de Costa Rica y el escudo del Servicio Nacional de Guardacostas, así como los demás parches llevarán los tonos de colores en (gris, negro, verde y café). El grado y "anclas" en negro con fondo verde oliva para todas las Escalas.
+3. Insignias para el uniforme de fatiga color coyote de guardacostas:
+A. Los grados en estos uniformes se utilizarán al frente de la camisa en el medio a nivel de las dos bolsas frontales.
+B. No se podrá utilizar ningún pin sobre este uniforme, únicamente parches.
+C. Para los uniformes color coyote de guardacostas, el escudo del Servicio Nacional de Guardacostas, el grado, las "olas" y "anclas" así como los demás parches deben ser en fondo negro con los bordados en blanco.
+(Así adicionado el inciso 3) anterior por el artículo 2° del decreto ejecutivo N° 44377 del 8 de enero de 2024)
 EMBLEMAS DEL SERVICIO NACIONAL DE GUARDACOSTAS:
 [imagen]
 [imagen]

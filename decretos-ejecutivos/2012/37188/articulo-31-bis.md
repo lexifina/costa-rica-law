@@ -1,10 +1,11 @@
-Artículo 31 bis. Del Uniforme clase D-3. Será el uniforme que utilizará los funcionarios de la guardia de honor. Está constituido por:
-A. Del Saco: Será de color azul oscuro, chaqueta tipo americano marins, con ribete rojo para clases y dorados para oficiales, botones dorados, dos bolsas a la altura del pecho sin aberturas. Sin charreteras se usa el grado metálico al lado derecho del cuello y la rama o especialidad más alta al lado izquierdo, las insignias solo metálicas piochas en metal o tela, al lado izquierdo las nacionales y lado derecho las internacionales. La bandera de Costa Rica en el brazo derecho y el escudo de la Fuerza Pública en el brazo izquierdo.
-B. Del pantalón: Este será de color gris príncipe de Gales de casimir inglés, corte recto, para hombres con bolsillos laterales superiores, bolsillos posteriores sin solapa ni botón, para mujeres sin bolsillos.
-C. Del calzado. Para hombres serán lisos de cordones, color negro encharolados, sin adornos. Para mujeres, serán lisos en color negro encharolados sin cordones ni adornos, con tacón Nº 4 o Nº 5.
-D. Del cinturón y cruzado al hombro. El cinturón será de color negro de tres pulgadas en cuero charolado, con hebilla dorada doble, se portará sobre el saco a la altura del ombligo hacia arriba.
-El cruzado al hombro será en color negro charolado, con hebilla sencilla color dorada, se utilizará del lado izquierdo del cinturón al hombro derecho.
-E. De las cordoneras. Serán de color negro para luto; blancas para seguridad interna; tricolor para festividades y aniversarios; roja para guardia de honor; azul para institucionales; dorada para oficiales.
-F. De los guantes. Serán en color blanco. Cuando no estén en uso en las manos, se colocarán en el lado del cinturón colgado de los dedos.
-G. Del quepis. Será de color azul oscuro, con cinta roja para guardia de honor; cinta negra para suboficiales, cinta amarilla para oficiales. En el caso de las mujeres el quepis será tipo hat-plain. Se portará el escudo de Costa Rica en metálico con relieve en color dorado.
+Artículo 31 bis.-Del Uniforme clase D-3. Será el uniforme que utilizará el personal policial de la Guardia de Honor. Está constituido por:
+a. Del Saco: Será de color negro, chaqueta tipo marine americano, con bordes dorados, botones dorados, dos bolsas a la altura del pecho sin aberturas. Con porta charreteras con sujeción de botón dorado. En la manga derecha la Bandera de Costa Rica, en la manga izquierda el escudo de la Benemérita Fuerza Pública, las insignias de los atributos serán definidas en el Manual de Uso de Uniformes. Podrán utilizar en su interior una camiseta lisa de color negro.
+b. Camiseta negra: color negro, sin ningún tipo de estampado, cuello redondo.
+c. Del pantalón: Este será de color negro, con bordes laterales de color amarillo, con faja, bolsillos laterales superiores, bolsillos posteriores sin solapa, para todos los géneros sin bolsillos.
+d. Del calzado. El calzado masculino será liso de cordones, color negro con materiales que proporcionen acabado brilloso. El calzado femenino, será liso sin cordones, con tacón cuya altura será definida en el Manual de Uso de Uniforme.
+e. Del cinturón y cruzado al hombro. El cinturón será de color negro con materiales que proporcionen acabado brilloso, con hebilla dorada.
+f. De las cordoneras. Serán de color negro para luto; blancas para seguridad, tricolor para festividades y aniversarios y actividades correspondientes a Edecanes; roja para Guardia de Honor, dorada para Oficiales.
+g. De los guantes. Serán en color blanco.
+h. Del quepis. Será de color azul oscuro, con cinta roja para Guardia de Honor negra para Suboficiales, cinta amarilla para Oficiales. En el caso del personal femenino será tipo hat-plain. Se portará el Escudo de Costa Rica en metálico con relieve dorado.
 (Así adicionado por el artículo 13 del decreto ejecutivo N° 38337 de 7 de abril del 2014)
+(Así reformado por el artículo 1° del decreto ejecutivo N° 44377 del 8 de enero de 2024)
