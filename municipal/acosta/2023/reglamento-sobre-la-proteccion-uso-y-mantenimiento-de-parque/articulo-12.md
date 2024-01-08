@@ -1,0 +1,2 @@
+Artículo 12. Actividades municipales.
+La Municipalidad podrá organizar al año las actividades que consideren, ya sea la administración, como el Concejo Municipal o cualquiera de sus comisiones, en los Espacios Públicos a saber la celebración del Aniversario del Cantón, la Semana Cívica y la Semana Cultural, entre otras, para lo cual la administración debe igualmente velar por el mantenimiento del parque y cumplir con las mismas disposiciones.

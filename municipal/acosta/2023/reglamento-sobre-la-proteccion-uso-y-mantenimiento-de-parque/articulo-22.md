@@ -1,0 +1,5 @@
+Capítulo 4 : Infracciones y sanciones.
+Artículo 22. Indemnización por daños
+Para efectos de este reglamento, se considerarán infracciones todos los actos u omisiones, de los visitantes que violenten las disposiciones contempladas en él.
+Las personas que causen daños o deterioros a las plantas árboles e infraestructura de estas zonas, deberán reparar los daños a la brevedad posible, coordinando para ello con las autoridades municipales correspondientes, las cuales realizarán una evaluación de los daños para su pronta reparación o, en su efecto, un cálculo de los costos de los daños para ser cobrados a las personas infractoras.
+La Municipalidad podrá aplicar lo estipulado en la normativa legal vigente, para establecer cualquier otro tipo de sanción a las personas que desacaten lo señalado en este reglamento, en el Decreto Ejecutivo Nº 31626 del 6 de febrero de 2004 (Reglamento para la Reproducción y Tenencia Responsable de Animales de Compañía), y específicamente lo contemplado en los artículos 380 a 390 y demás concordantes del Código Penal para lo cual se trasladará la denuncia o parte respectivo a la Vía Judicial.

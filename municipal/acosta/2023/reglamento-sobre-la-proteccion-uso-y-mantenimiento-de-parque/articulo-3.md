@@ -1,0 +1,3 @@
+Artículo 3. Derecho y deber de las personas usuarias.
+Todos los ciudadanos tienen derecho al uso y disfrute de los parques y espacios públicos, de acuerdo con su naturaleza, y respetando el destino para el que se hayan designado, y de acuerdo con lo establecido en el presente reglamento y demás normativa aplicable.
+Los usuarios de los espacios públicos indicados en este reglamento deberán cumplir los señalamientos que al respecto figuren sobre su utilización en indicadores, anuncios, rótulos y señales acerca de usos y prohibiciones. En todo caso deberán acatar las indicaciones que formulen los agentes de la Policía Municipal, la fuerza Pública y demás personal designado por la Municipalidad.

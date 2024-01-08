@@ -1,0 +1,2 @@
+Artículo 9. Actividades posibles permitidas.
+En los espacios de dominio público o municipal en donde por su naturaleza, se puedan llevar a cabo actividades artísticas, culturales, religiosas, educativas, creativas, ferias y afines de interés público, se deberá cumplir con los señalamientos de este capítulo. Se pretende con estos artículos regular el uso para actividades, de los espacios de uso público, con el fin de mantener el aseo y ornato de estos y evitarse las molestias que puedan alterar el orden público.

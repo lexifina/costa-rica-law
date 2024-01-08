@@ -1,0 +1,3 @@
+Artículo 17. Responsabilidad de los dueños de mascotas.
+Como medida higiénica ineludible, las personas que transiten con sus mascotas dentro de los parques o demás espacios públicos deberán impedir que estas depositen sus excrementos y/u orinas en las aceras, zonas verdes, zonas de juegos infantiles o cualquier otra área de estos. Si esto ocurriese, serán recogidas por el propietario de este.
+El propietario de la mascota será responsable de su comportamiento, de acuerdo con lo establecido en el Reglamento para la Reproducción y Tenencia Responsable de Animales de Compañía, Decreto Ejecutivo Nº 31626-S, publicado en La Gaceta Nº 26 del 6 febrero de 2004 y en la demás legislación vigente atinente al tema
