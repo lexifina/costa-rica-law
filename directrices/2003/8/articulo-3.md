@@ -1,1 +1,0 @@
-Artículo 3º—El proceso de autoevaluación del sistema de control interno de nuestro Ministerio se realizará atendiendo el conjunto de actividades planificadas, coordinadas, organizadas y con un sentido participativo orientado a mejorar la gestión de los controles, donde la información fluya adecuadamente en todos los niveles de la institución.

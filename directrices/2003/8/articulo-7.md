@@ -1,1 +1,0 @@
-Artículo 7º—Cada unidad deberá documentar adecuadamente las actividades de autoevaluación. Se debe instaurar un sistema de registro y de información que facilite acumular resultados de las autoevaluaciones y dar seguimiento a las medidas que se inicien de acuerdo con los planes anuales para mejorar los controles.
