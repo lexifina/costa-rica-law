@@ -1,0 +1,3 @@
+CAPÍTULO VII
+De los recursos administrativos
+Artículo 18.-De los recursos contra resoluciones que ordenen el cierre por orden de las entidades estatales. Las resoluciones de la administración municipal que ordenen la suspensión o el cierre de establecimientos en cumplimiento de órdenes emanadas del Poder Ejecutivo u otras instituciones por violaciones a leyes o reglamentos, no admitirán recurso alguno ante las autoridades municipales, si no consta el cumplimiento o permiso de lo solicitado por la entidad estatal que ordenó el cierre. Los patentados deberán recurrir ante tales entidades en tiempo y forma para la defensa de sus derechos. El cierre se mantendrá hasta tanto no sea revocada la orden por la entidad que la emitió.
