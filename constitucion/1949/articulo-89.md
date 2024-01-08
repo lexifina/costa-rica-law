@@ -1,1 +1,3 @@
-ARTÍCULO 89.- Entre los fines culturales de la República están: proteger las bellezas naturales, conservar y desarrollar el patrimonio histórico y artístico de la Nación, y apoyar la iniciativa privada para el progreso científico y artístico.
+Artículo 89- Entre los fines culturales de la República están: proteger las bellezas naturales, conservar y desarrollar el patrimonio histórico y artístico de la Nación, y apoyar la iniciativa privada para el progreso científico y artístico.
+Todas las personas tienen derecho al deporte, a la educación física y a la recreación. El Estado garantizará este derecho, promoverá su universalización como medio eficaz para mejorar la salud y la calidad de vida de la población y apoyará el desarrollo de las distintas disciplinas deportivas en todos los niveles.
+(Así reformado por el artículo único de la Ley para la incorporación del Derecho Fundamental al Deporte y la Recreación, N° 10376 del 29 de noviembre de 2023)
