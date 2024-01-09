@@ -9,8 +9,8 @@ todas las cuestiones en que tal uniformidad facilite y mejore la navegación aé
 III.-Que de acuerdo con lo prescrito por la Ley General de Aviación Civil, Ley No. 5150 del 14 de mayo de 1973 y sus reformas, el Consejo Técnico de Aviación Civil y la Dirección General de Aviación Civil, adscritos al Ministerio de Obras Públicas y Transportes, constituyen los órganos competentes en todo lo referente a la regulación y control de la aviación civil dentro del territorio de la República.
 IV.-Que mediante el artículo 43 del Convenio sobre Aviación Civil Internacional se creó la Organización de Aviación Civil Internacional, compuesta por una Asamblea y Consejo, cuyo objetivo es desarrollar los principios y técnicas de navegación aérea internacional.
 V.-Que la Organización de Aviación Civil Internacional, mediante el Anexo 14, Volumen I, en su enmienda número 14, adoptada por el consejo el 9 de marzo de 2018, aprobada el 16 de julio de 2018 y en vigencia 8 de noviembre de 2018; y en los documentos asociados a este anexo, regula el diseño y construcción de aeródromos, siendo necesario la adopción de un Reglamento a nivel nacional, ya que en la actualidad el documento número 4439-T vigente que regula la materia de manera oficial se encuentra desactualizado.
-VI.- Que con sustento en tales disposiciones se emite el presente Reglamento, a fin de regular lo atinente a las normas y parámetros técnicos, relacionados con la infraestructura aeroportuaria que se deben integrar en el diseño y la construcción de aeródromos, en complemento con el RAC 139 “Certificación, Operación y Vigilancia de Aeródromos”
-VII.- Que de conformidad con el artículo 361 de la Ley General de la Administración Pública, fue publicada en La Gaceta número 64 del 01 de abril de 2019, la audiencia pública en relación con el proyecto denominado “RAC 14 Diseño y construcción de aeródromos, volumen I”. Durante el proceso no se recibieron consultas ni propuestas para la reforma en cuestión.
+VI.- Que con sustento en tales disposiciones se emite el presente Reglamento, a fin de regular lo atinente a las normas y parámetros técnicos, relacionados con la infraestructura aeroportuaria que se deben integrar en el diseño y la construcción de aeródromos, en complemento con el RAC 139 "Certificación, Operación y Vigilancia de Aeródromos"
+VII.- Que de conformidad con el artículo 361 de la Ley General de la Administración Pública, fue publicada en La Gaceta número 64 del 01 de abril de 2019, la audiencia pública en relación con el proyecto denominado "RAC 14 Diseño y construcción de aeródromos, volumen I". Durante el proceso no se recibieron consultas ni propuestas para la reforma en cuestión.
 VIII.- Que de conformidad con el artículo 12 bis del Decreto Ejecutivo número 37045-MP-MEIC de fecha 22 de febrero de 2012, se considera que, por la naturaleza del presente reglamento, no es necesario completar el formulario de Evaluación de Costo Beneficio, toda vez que el mismo no establece trámites ni requerimientos para el administrado.
 Por tanto;
 Decretan:
@@ -39,18 +39,32 @@ RAC 14.005 Abreviaturas y Definiciones.
 En la presente regulación los términos y expresiones indicadas a continuación tienen el siguiente significado
 (a) ABREVIATURAS
 DGAC Dirección General de Aviación Civil
-ACN Número de clasificación de aeronaves.
+ACNª Número de clasificación de aeronaves.
+ª Aplicable hasta el 27 de noviembre de 2024.
+(Así reformada la definición anterior por el artículo 1° del decreto ejecutivo N° 44497 del 9 de enero del 2024)
+ACRb Índice de clasificación de aeronaves
+bAplicable a partir del 28 de noviembre de 2024.
+(Así adicionada la definición anterior por el artículo 1° del decreto ejecutivo N° 44497 del 9 de enero del 2024)
 Aprox. Aproximadamente
 ASDA Distancia disponible de aceleración- Parada
 ARIWS Sistema autónomo de prevención de incursión de pisa
 ATS Servicio de tránsito aéreo
+ADP Licencia de conductor en la parte aeronáutica
+(Así adicionada la definición anterior por el artículo 1° del decreto ejecutivo N° 44497 del 9 de enero del 2024)
+AIP Publicación de información aeronáutica
+(Así adicionada la definición anterior por el artículo 1° del decreto ejecutivo N° 44497 del 9 de enero del 2024)
 °C Grados Celsius
 CBR Índice de soporte de California
 cd Candela
 CIE Comisión Internacional de Iluminación
 cm Centímetro
 CRC Mediante la verificación por redundancia cíclica
-DME Equipo radio telemétrico
+DME Equipo radiotelemétrico
+(Así reformada la definición anterior por el artículo 1° del decreto ejecutivo N° 44497 del 9 de enero del 2024)
+E Módulo de elasticidad
+(Así adicionada la definición anterior por el artículo 1° del decreto ejecutivo N° 44497 del 9 de enero del 2024)
+FOD Objeto extraño
+(Así adicionada la definición anterior por el artículo 1° del decreto ejecutivo N° 44497 del 9 de enero del 2024)
 ILS Sistema de aterrizaje por instrumentos
 IMC Condiciones meteorológicas de vuelo por instrumentos
 K Grados Kelvin
@@ -74,7 +88,12 @@ OCA/H Altitud/altura de franqueamiento de obstáculos
 OFZ Zona despejada de obstáculos
 OMGWS Anchura exterior entre ruedas del tren de aterrizaje principal
 OPS Superficie de protección de Obstáculos
-PCN Número de clasificación de pavimentos
+PCNCNúmero de clasificación de pavimentos
+c Aplicable hasta el 27 de noviembre de 2024.
+(Así reformada la definición anterior por el artículo 1° del decreto ejecutivo N° 44497 del 9 de enero del 2024)
+PCRdÍndice de clasificación de pavimentos
+d Aplicable a partir del 28 de noviembre de 2024.
+(Así adicionada la definición anterior por el artículo 1° del decreto ejecutivo N° 44497 del 9 de enero del 2024)
 RCAM Matriz de evaluación del estado de la pista
 RCR Informe del estado de la pista
 RWYCC Clave del estado de la pista
@@ -85,7 +104,14 @@ SOIR Operaciones simultáneas en pistas de vuelo por instrumentos paralelas o ca
 TODA Distancia de despegue disponible
 TORA Recorrido de despegue disponible
 VMC Condiciones meteorológicas de vuelo visual
-VOR Radiofaro omnidireccional VH
+VOR Radiofaro omnidireccional VHF
+(Así reformada la definición anterior por el artículo 1° del decreto ejecutivo N° 44497 del 9 de enero del 2024)
+VGS-84 Sistema Geodésico Mundial 1984
+(Así adicionada la definición anterior por el artículo 1° del decreto ejecutivo N° 44497 del 9 de enero del 2024)
+VHMP Programa de gestión del peligro que representa la fauna silvestre
+(Así adicionada la definición anterior por el artículo 1° del decreto ejecutivo N° 44497 del 9 de enero del 2024)
+WIP Obras en progreso
+(Así adicionada la definición anterior por el artículo 1° del decreto ejecutivo N° 44497 del 9 de enero del 2024)
 WGS Sistema Geodésico Mundial 1984
 (b) Símbolos
 ° Grado
@@ -131,7 +157,9 @@ a) datos ordinarios: muy baja probabilidad de que, utilizando datos ordinarios a
 b) datos esenciales: baja probabilidad de que, utilizando datos esenciales alterados, la continuación segura del vuelo y el aterrizaje de una aeronave corran riesgos graves que puedan originar una catástrofe; y
 c) datos críticos: alta probabilidad de que, utilizando datos críticos alterados, la continuación segura del vuelo y el aterrizaje de una aeronave corran riesgos graves que puedan originar una catástrofe.
 Clave de estado de la pista (RWYCC). Número que describe el estado de la superficie de la pista que se utilizará en el informe del estado de la pista.
-Nota.— La clave de estado de la pista tiene por objeto permitir a la tripulación de vuelo calcular la performance operacional del avión. En los PANS-Aeródromos (Doc. 9981 OACI) se describen los procedimientos para determinar la clave de estado de la pista.
+Aplicable a partir del 4 de noviembre de 2021.
+Nota.- La clave de estado de la pista tiene por objeto permitir a la tripulación de vuelo calcular la performance operacional del avión. En los PANS-Aeródromos (Doc. 9981 OACI) se describen los procedimientos para determinar la clave de estado de la pista.
+(Así reformada la definición anterior por el artículo 1° del decreto ejecutivo N° 44497 del 9 de enero del 2024)
 Coeficiente de utilización. El porcentaje de tiempo durante el cual el uso de una pista o sistema de pistas no está limitado por la componente transversal del viento.
 Datos cartográficos de aeródromo (AMD). Datos recopilados con el propósito de compilar información cartográfica de los aeródromos.
 Declinación de la estación. Variación de alineación entre el radial de cero grados del VOR y el norte verdadero, determinada en el momento de calibrar la estación VOR.
@@ -145,19 +173,20 @@ b) Distancia de despegue disponible (TODA). La longitud del recorrido de despegu
 c) Distancia de aceleración-parada disponible (ASDA). La longitud del recorrido de despegue disponible más la longitud de zona de parada, si la hubiera.
 d) Distancia de aterrizaje disponible (LDA). La longitud de la pista que se ha declarado disponible y adecuada para el recorrido en tierra de un avión que aterrice.
 Elevación del aeródromo. Elevación del punto más alto del área de aterrizaje.
-Estado de la superficie de la pista. Descripción de las condiciones de la superficie de la pista que se utilizan en el informe del estado de la pista y que establecen las bases para determinar la clave de estado de la pista para fines de performance de los aviones.
-Nota 1. El estado de la superficie de la pista utilizado en el informe del estado de la pista establece los requisitos de performance entre el explotador del aeródromo, el fabricante del avión y el explotador del avión.
-Nota 2. También se notifican otros contaminantes pero no se incluyen en la lista de los descriptores del estado de la superficie de la pista porque sus efectos en las características de rozamiento de la superficie de la pista y la clave de estado de la pista no pueden ser evaluadas de manera normalizada.
-Nota 3.— En los PANS-Aeródromos (Doc. 9981) figuran los procedimientos para determinar el estado de la superficie de la pista.
-a) Pista seca. Se considera que una pista está seca si su superficie no presenta humedad visible y no está contaminada en el área que se prevé utilizar.
-b) Pista mojada. La superficie de la pista está cubierta por cualquier tipo de humedad visible o agua hasta 3 mm, inclusive, de espesor, dentro del área de utilización prevista.
-c) Pista mojada resbaladiza. Una pista mojada respecto de la cual se ha determinado que las características de rozamiento de la superficie en una porción significativa de la pista se han deteriorado.
-d) Pista contaminada. Una pista está contaminada cuando una parte significativa de su superficie (en partes aisladas o continuas de la misma), dentro de la longitud y anchura en uso, está cubierta por una o más de las sustancias enumeradas en la lista de descriptores del estado de la superficie de la pista.
-Nota.— En los PANS-Aeródromos (Doc. 9981) figuran los procedimientos para determinar la cobertura del contaminante en la pista.
-e) Descriptores del estado de la superficie de la pista. Uno de los siguientes elementos en la superficie de la pista:
-Nota. Las descripciones relativas a e) i), a continuación, se utiliza únicamente en el contexto del informe del estado de la pista y no tienen como objeto sustituir o remplazar las definiciones existentes de la OMM.
-i. Agua estancada. Agua con un espesor superior a 3 mm.
-Nota. Por convención, el agua corriente con más de 3 mm de espesor se notifica como agua estancada.
+(*) Estado de la superficie de la pista. Descripción de las condiciones de la superficie de la pista que se utilizan en el informe del estado de la pista y que establecen las bases para determinar la clave de estado de la pista para fines de performance de los aviones.
+El estado de la superficie de la pista utilizado en el informe del estado de la pista establece los requisitos de performance entre el explotador del aeródromo, el fabricante del avión y el explotador del avión.
+También se notifican otros contaminantes, pero no se incluyen en la lista de los descriptores del estado de la superficie de la pista porque sus efectos en las características de rozamiento de la superficie de la pista y la clave de estado de la pista no pueden ser evaluadas de manera normalizada.
+En los PANS-Aeródromos (Doc. 9981) figuran los procedimientos para determinar el estado de la superficie de la pista.
+(a) Pista seca. Se considera que una pista está seca sí su superficie no presenta humedad visible y no está contaminada en el área que se prevé utilizar.
+(b) Pista mojada. La superficie de la pista está cubierta por cualquier tipo de humedad visible o agua hasta 3 mm, inclusive, de espesor, dentro del área de utilización prevista.
+(c) Pista mojada resbaladiza. Una pista mojada respecto de la cual se ha determinado que las características de rozamiento de la superficie en una porción significativa de la pista se han deteriorado.
+(d) Pista contaminada. Una pista está contaminada cuando una parte significativa de su superficie (en partes aisladas o continuas de la misma), dentro de la longitud y anchura en uso, está cubierta por una o más de las sustancias enumeradas en la lista de descriptores del estado de la superficie de la pista.
+En los PANS-Aeródromos (Doc. 9981) figuran los procedimientos para determinar la cobertura del contaminante en la pista.
+(e) Descriptores del estado de la supe1ficie de la pista. Uno de los siguientes elementos en la superficie de la pista:
+Nota. las descripciones relativas al punto e) i), a continuación, se utiliza únicamente en el contexto del informe del estado de la pista y no tienen como objeto sustituir o remplazar las definiciones existentes de la OMM.
+(1) Agua estancada. Agua con un espesor superior a 3 mm.
+(2) Por convención, el agua corriente con más de 3 mm de espesor se notifica corno agua estancada.
+(*) (Así reformada la definición anterior por el artículo 1° del decreto ejecutivo N° 44497 del 9 de enero del 2024)
 Exactitud de los datos. Grado de conformidad entre el valor estimado o medido y el valor real.
 Faro aeronáutico. Luz aeronáutica de superficie, visible en todos los azimutes ya sea continua o intermitentemente, para señalar un punto determinado de la superficie de la tierra.
 Faro de aeródromo. Faro aeronáutico utilizado para indicar la posición de un aeródromo desde el aire.
@@ -171,6 +200,10 @@ b) proteger a las aeronaves que la sobrevuelan durante las operaciones de despeg
 Geoide. Superficie equipotencial en el campo de gravedad de la Tierra que coincide con el nivel medio del mar (MSL) en calma y su prolongación continental.
 Helipuerto. Aeródromo o área definida sobre una estructura destinada a ser utilizada, total o parcialmente, para la llegada, la salida o el movimiento de superficie de los helicópteros.
 Indicador de sentido de aterrizaje. Dispositivo para indicar visualmente el sentido designado en determinado momento, para el aterrizaje o despegue.
+Índice de clasificación de aeronaves (ACR). Cifra que indica el efecto relativo de una aeronave sobre un pavimento, para determinada categoría normalizada del terreno de fundación. Aplicable a partir del 28 de noviembre de 2024.
+(Así adicionada la definición anterior por el artículo 1° del decreto ejecutivo N° 44497 del 9 de enero del 2024)
+Índice de clasificación de pavimentos (PCR). Cifra que indica la resistencia de un pavimento. Aplicable a partir del 28 de noviembre de 2024.
+(Así adicionada la definición anterior por el artículo 1° del decreto ejecutivo N° 44497 del 9 de enero del 2024)
 Informe del estado de la pista (RCR). Informe normalizado exhaustivo relacionado con el estado de la superficie de las pistas y su efecto en la performance de aterrizaje y despegue de los aviones.
 Integridad de los datos(nivel de aseguramiento). Grado de aseguramiento de que no se ha perdido ni alterado ningún dato aeronáutico ni sus valores después de haberse originado o de haberse efectuado una enmienda autorizada.
 Intensidad efectiva. La intensidad efectiva de una luz de destellos es igual a la intensidad de una luz fija del mismo color que produzca el mismo alcance visual en idénticas condiciones de observación.
@@ -184,9 +217,12 @@ Lugar crítico. Sitio del área de movimiento del aeródromo donde ya han ocurri
 Luz aeronáutica de superficie. Toda luz dispuesta especialmente para que sirva de ayuda a la navegación aérea, excepto las ostentadas por las aeronaves.
 Luz fija. Luz que posee una intensidad luminosa constante cuando se observa desde un punto fijo.
 Margen. Banda de terreno que bordea un pavimento, tratada de forma que sirva de transición entre ese pavimento y el terreno adyacente.
-Matriz de evaluación del estado de la pista (RCAM). Matriz que permite evaluar la clave de estado de la pista, utilizando procedimientos conexos, a partir de un conjunto de condiciones de la superficie de la pista que se haya observado y del informe del piloto acerca de la eficacia de frenado.
-Número de clasificación de aeronaves (ACN). Cifra que indica el efecto relativo de una aeronave sobre un pavimento, para determinada categoría normalizada del terreno de fundación.
-Número de clasificación de pavimentos (PCN). Cifra que indica la resistencia de un pavimento para utilizarlo sin restricciones.
+Matriz de evaluación del estado de la pista (RCAM). Matriz que permite evaluar la clave ele estado de la pista, utilizando procedimientos conexos, a partir de un conjunto de condiciones de la superficie de la pista que se haya observado y del informe del piloto acerca de la eficacia de frenado.
+(Así reformada la definición anterior por el artículo 1° del decreto ejecutivo N° 44497 del 9 de enero del 2024)
+Número de clasificación de aeronaves (ACN). Cifra que indica el efecto relativo de una aeronave sobre un pavimento, para determinada categoría normalizada del terreno de fundación. Aplicable hasta el 27 de noviembre ele 2024.
+(Así reformada la definición anterior por el artículo 1° del decreto ejecutivo N° 44497 del 9 de enero del 2024)
+Número de clasificación de pavimentos (PCN). Cifra que indica la resistencia de un pavimento para utilizarlo sin restricciones. Aplicable hasta el 27 de noviembre de 2024.
+(Así reformada la definición anterior por el artículo 1° del decreto ejecutivo N° 44497 del 9 de enero del 2024)
 Objeto extraño (FOD). Objeto inanimado dentro del área de movimiento que no tiene una función operacional o aeronáutica y puede representar un peligro para las operaciones de las aeronaves.
 Objeto frangible. Objeto de poca masa diseñado para quebrarse, deformarse o ceder al impacto, de manera que represente un peligro mínimo para las aeronaves.
 Obstáculo. Todo objeto fijo (ya sea temporal o permanente) o móvil, o partes del mismo, que:
@@ -201,21 +237,23 @@ Pista de vuelo por instrumentos. Uno de los siguientes tipos de pista destinados
 (a) Pista para aproximaciones que no sean de precisión. Pista de vuelo por instrumentos servida por ayudas visuales y una ayuda no visual que proporciona por lo menos guía direccional adecuada para la aproximación directa.
 (b) Pista para aproximaciones de precisión de Categoría I. Pista de vuelo por instrumentos servida por ILS o MLS y por ayudas visuales destinadas a operaciones con una altura de decisión no inferior a 60 m (200 ft) y con una visibilidad de no menos de 800 m o con un alcance visual en la pista no inferior a 550 m.
 (c) Pista para aproximaciones de precisión de Categoría II. Pista de vuelo por instrumentos servida por ILS o MLS y por ayudas visuales destinadas a operaciones con una altura de decisión inferior a 60 m (200 ft) pero no inferior a 30 m (100 ft) y con un alcance visual en la pista no inferior a 300 m.
-(d) Pista para aproximaciones de precisión de Categoría III. Pista de vuelo por instrumentos servida por ILS o MLS hasta la superficie de la pista y a lo largo de la misma; y
-A — destinada a operaciones con una altura de decisión inferior a 30 m (100 ft), o sin altura de decisión y un alcance visual en la pista no inferior a 175 m.
-B — destinada a operaciones con una altura de decisión inferior a 15 m (50 ft), o sin altura de decisión, y un alcance a operaciones sin altura de decisión y sin restricciones de alcance visual en la pista inferior a 175 m pero no inferior a 50 m.
-C — destinada a operaciones sin altura de decisión y sin restricciones de alcance visual en la pista.
+(d) Pista para aproximaciones de precisión de Categoría 111. Pista de vuelo servida por ayudas visuales y ayudas no visuales destinada a operaciones de aterrizaje después de una operación de aproximación por instrumentos de Tipo B con una altura de decisión (DH) inferior a 30 m (100 ft), o sin altura de decisión y un alcance visual en la pista inferior a 300 m o sin restricciones de alcance visual en la pista.
+(Así reformada la definición anterior por el artículo 1° del decreto ejecutivo N° 44497 del 9 de enero del 2024)
 Pista de vuelo por instrumentos. Uno de los siguientes tipos de pista destinados a la operación de aeronaves que utilizan procedimientos de aproximación por instrumentos:
 a) Pista para aproximaciones que no son de precisión. Pista de vuelo servida por ayudas visuales y ayudas no visuales destinada a operaciones de aterrizaje después de una operación de aproximación por instrumentos de Tipo A y con visibilidad no inferior a 1 000 m.
 b) Pista para aproximaciones de precisión de Categoría I. Pista de vuelo servida por ayudas visuales y ayudas no visuales destinadas a operaciones de aterrizaje después de una operación de aproximación por instrumentos de Tipo B con una altura de decisión (DH) no inferior a 60 m (200 ft) y con una visibilidad de no menos de 800 m o con un alcance visual en la pista no inferior a 550 m.
 c) Pista para aproximaciones de precisión de Categoría II. Pista de vuelo servida por ayudas visuales y ayudas no visuales destinadas a operaciones de aterrizaje después de una operación de aproximación por instrumentos de Tipo B con una altura de decisión (DH) inferior a 60 m (200 ft) pero no inferior a 30 m (100 ft) y con un alcance visual en la pista no inferior a 300 m.
 d) Pista para aproximaciones de precisión de Categoría III. Pista de vuelo servida por ayudas visuales y ayudas no visuales destinada a operaciones de aterrizaje después de una operación de aproximación por instrumentos de Tipo B hasta la superficie de la pista y a lo largo de la misma; y
-A — destinada a operaciones con una altura de decisión (DH) inferior a 30 m (100 ft), o sin altura de decisión y un alcance visual en la pista no inferior a 175 m.
-B — destinada a operaciones con una altura de decisión (DH) inferior a 15 m (50 ft), o sin altura de decisión, y un alcance visual en la pista inferior a 175 m pero no inferior a 50 m.
-C — destinada a operaciones sin altura de decisión (DH) y sin restricciones de alcance visual en la pista.
+A - destinada a operaciones con una altura de decisión (DH) inferior a 30 m (100 ft), o sin altura de decisión y un alcance visual en la pista no inferior a 175 m.
+B - destinada a operaciones con una altura de decisión (DH) inferior a 15 m (50 ft), o sin altura de decisión, y un alcance visual en la pista inferior a 175 m pero no inferior a 50 m.
+C - destinada a operaciones sin altura de decisión (DH) y sin restricciones de alcance visual en la pista.
 Pista de vuelo visual. Pista destinada a las operaciones de aeronaves que utilicen procedimientos de aproximación visual o un procedimiento de aproximación por instrumentos a un punto más allá del cual pueda continuarse la aproximación en condiciones meteorológicas de vuelo visual.
 Pista para aproximaciones de precisión. Ver Pista de Vuelo por Instrumentos.
 Pistas casi paralelas. Pistas que no se cortan pero cuyas prolongaciones de eje forman un ángulo de convergencia o de divergencia de 15° o menos.
+Pista mojada. La superficie de la pista está cubierta por cualquier tipo de humedad visible o agua hasta un espesor de 3 mm inclusive, dentro del área de utilización prevista.
+(Así adicionada la definición anterior por el artículo 1° del decreto ejecutivo N° 44497 del 9 de enero del 2024)
+Pista seca. Se considera que una pista está seca si su superficie no presenta humedad visible ni está contaminada en el área que se prevé utilizar.
+(Así adicionada la definición anterior por el artículo 1° del decreto ejecutivo N° 44497 del 9 de enero del 2024)
 Pistas principales. Pistas que se utilizan con preferencia a otras siempre que las condiciones lo permitan.
 Plataforma. Área definida, en un aeródromo terrestre, destinada a dar cabida a las aeronaves para los fines de embarque o desembarque de pasajeros, correo o carga, abastecimiento de combustible, estacionamiento o mantenimiento.
 Plataforma de viraje en la pista. Una superficie definida en el terreno de un aeródromo adyacente a una pista con la finalidad de completar un viraje de 180° sobre una pista.
@@ -266,10 +304,15 @@ RAC 14.010 Gestión de la seguridad Operacional.
 (a) La DGAC dentro de su ordenamiento normativo ha establecido la Directriz de Gestión de la Seguridad Operacional SSP/SMS en donde se presenta la guía para la implementación del Programa Estatal de Seguridad Operacional (SSP).
 (b) El Programa Estatal de Seguridad Operacional (SSP), debe tener establecido un nivel aceptable de seguridad operacional en la aviación civil.
 (c) El Operador y todas las organizaciones que realicen actividades en el aeródromo deberán formar parte del SMS del aeródromo. En la RAC 139 se establecen los requerimientos para que el operador del aeródromo y los proveedores de servicio establezcan el Sistema de Gestión de la Seguridad Operacional. (SMS).
-RAC 14.011 Diseño de aeródromos
+(*)RAC 14.011 Diseño de aeródromos (Regulación aplicable a partir del 3 de noviembre de 2022)
 (Ver CCA 14.011)
-(a) Los requisitos arquitectónicos y relacionados con la infraestructura que son necesarios para la óptima aplicación de las medidas de seguridad aeroportuaria de la aviación civil internacional se deben integrar en el diseño y la construcción de nuevas instalaciones, así como las reformas de las instalaciones existentes en los aeródromos, durante la construcción y la posterior operación de las nuevas instalaciones.
-(b) En el diseño de los aeródromos se debe tener presente, cuando corresponda, las medidas sobre utilización de terrenos y controles ambientales.
+(a) Para los aeródromos que juzgue conveniente un Estado, se deberán establecer planes maestros que contengan los planes detallados de desarrollo de infraestructura de aeródromo, para lo cual se tomarán en cuenta los siguientes aspectos:
+(1) El plan maestro deberá incorporar en su contenido un programa de prioridades que incluya un plan de ejecución gradual;
+(2) El explotador del aeródromo deberá establecer un plan maestro que tenga en cuenta el actual y futuro tránsito de aeródromo, el cual deberá de revisarse de manera periódica.
+(3) Para elaborar y revisar los planes maestros los explotadores de aeródromo deberán consultar a las partes interesadas en el aeródromo, en particular los explotadores de aeronaves, con el fin de facilitar el proceso con un enfoque consultivo y colaborativo.
+(b) Los requisitos arquitectónicos y relacionados con la infraestructura necesarios para la óptima aplicación de las medidas de seguridad de la aviación civil internacional se integrarán en el diseño y la construcción de nuevas instalaciones, así como las reformas ele las instalaciones existentes en los aeródromos.
+(c) En el diseño de los aeródromos se debe tener presente las medidas sobre utilización de terrenos y controles ambientales.
+(*)(Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 44497 del 9 de enero del 2024)
 RAC 14.013 Clave de referencia de aeródromo
 (Ver CCA 14.013)
 (a) Se debe determinar una clave de referencia para fines de planificación del aeródromo (número y letra de clave), de acuerdo con las características de los aviones para los que se destine la instalación del aeródromo.
@@ -302,13 +345,13 @@ RAC 14.107 Temperatura de referencia del aeródromo
 RAC 14.109 Dimensiones del aeródromo e información relativa a las mismas
 (Ver CCA 14.109)
 (a) Se debe medir o determinar, como sea apropiado los siguientes datos para cada una de las facilidades situadas en un aeródromo:
-(1) pista — marcación verdadera redondeada a centésimas de grado, número de designación, longitud, anchura, emplazamiento del umbral desplazado redondeado al metro más próximo, pendiente, tipo de superficie, tipo de pista y en el caso de una pista para aproximaciones de precisión de Categoría I, si se proporciona una zona despejada de obstáculos;
+(1) pista - marcación verdadera redondeada a centésimas de grado, número de designación, longitud, anchura, emplazamiento del umbral desplazado redondeado al metro más próximo, pendiente, tipo de superficie, tipo de pista y en el caso de una pista para aproximaciones de precisión de Categoría I, si se proporciona una zona despejada de obstáculos;
 [imagen]
 Sistema de parada-ubicación (en cual extremo de pista) y descripción
-(3) calle de rodaje — designación, anchura, tipo de superficie;
-(4) plataforma — tipo de superficie, puestos de estacionamiento de aeronave;
+(3) calle de rodaje - designación, anchura, tipo de superficie;
+(4) plataforma - tipo de superficie, puestos de estacionamiento de aeronave;
 (5) los límites del servicio de control de tránsito aéreo;
-(6) zona libre de obstáculos — longitud, perfil del terreno;
+(6) zona libre de obstáculos - longitud, perfil del terreno;
 (7) las ayudas visuales para los procedimientos de aproximación; señalización e iluminación de pistas, calles de rodaje y plataforma; otras ayudas visuales para guía y control en las calles de rodaje y plataformas, comprendidos los puntos de espera en rodaje y las barras de parada, y el emplazamiento y el tipo de sistema de guía visual para el atraque;
 (8) emplazamiento y radiofrecuencia de todos los puntos de verificación del VOR en el aeródromo;
 (9) emplazamiento y designación de las rutas normalizadas para el rodaje; y
@@ -318,47 +361,45 @@ Sistema de parada-ubicación (en cual extremo de pista) y descripción
 (d) Se deben medir las coordenadas geográficas de cada puesto de estacionamiento de aeronave y se deben notificar a la autoridad de los servicios de información aeronáutica en grados, minutos, segundos y centésimas de segundo. Dichas coordenadas corresponderán a la barra de parada que se ubique en el extremo del puesto de estacionamiento de aeronaves, en el centro donde se intersequen dicha barra de parada con la línea guía del puesto de estacionamiento. La DGAC podrá solicitar información adicional en caso de que sea requerida, para fines de la publicación aeronáutica respectiva.
 (e) Se deben medir las coordenadas geográficas de los obstáculos en el Área 2 (la parte que se encuentra dentro de los límites del aeródromo) y en el Área 3 y se debe notificar a la autoridad de los servicios de información aeronáutica en grados, minutos, segundos y décimas de segundo.
 Además, se debe notificar a la autoridad de los servicios de información aeronáutica la elevación máxima, el tipo, señalamiento e iluminación (si hubiera) de los obstáculos.
-RAC 14.111 Resistencia de los pavimentos
-(Ver CCA 14.111(b) (c) (d) (f))
+(*) RAC 14.111 Resistencia de los pavimentos (aplicable desde el 28 de noviembre de 2024)
+(Ver CCA 14.111(b) (c) (d) (e) (t) (g))
 (a) Se debe determinar la resistencia de los pavimentos.
-(b) Se debe facilitar la resistencia de un pavimento destinado a las aeronaves de masa en la plataforma (rampa) superior a 5 700 kg, mediante el método del Número de clasificación de aeronaves —
-Número de clasificación de pavimentos (ACN-PCN), notificando la siguiente información:
-(1) el número de clasificación de pavimentos (PCN);
-(2) el tipo de pavimento para determinar el valor ACN-PCN;
+(b) Se debe facilitar la resistencia de un pavimento destinado a las aeronaves de masa en la plataforma (rampa) superior a 5700 kg, mediante el método del Número de clasificación de aeronaves - Número de clasificación de pavimentos (ACR-PCR), notificando la siguiente información:
+(1) el índice de clasificación de pavimentos (PCR);
+(2) el tipo de pavimento para determinar el valor ACR-PCR;
 (3) la categoría de resistencia del terreno de fundación;
-(4) la categoría o el valor de la presión máxima permisible de los neumáticos; y
+(4) la categoría o el valor de la presión máxima permisible de los neumáticos;
 (5) el método de evaluación.
-(c) El número de clasificación de pavimentos (PCN) notificado debe indicar que una aeronave con número de clasificación de aeronaves (ACN) igual o inferior al PCN notificado puede operar sobre ese pavimento, a reserva de cualquier limitación con respecto a la presión de los neumáticos, o a la masa total de la aeronave para un tipo determinado de aeronave.
-(d) El ACN de una aeronave se debe determinar de conformidad con los procedimientos normalizados relacionados con el método ACN-PCN.
-(e) Para determinar el ACN, el comportamiento del pavimento se debe clasificar como equivalente a una construcción rígida o flexible.
-(f) La información sobre el tipo de pavimento para determinar el ACN-PCN, la categoría de resistencia del terreno de fundación, la categoría de presión máxima permisible de los neumáticos y el método de evaluación, se deben notificar utilizando las claves siguientes:
-(1) Tipo de pavimento para determinar el ACN-PCN:
-| Clave
+(c) El índice de clasificación de pavimentos (PCR) notificado debe indicar que una aeronave con número de clasificación de aeronaves (ACR) igual o inferior al PCR notificado puede operar sobre ese pavimento, a reserva de cualquier limitación con respecto a la presión ele los neumáticos, o a la masa total de la aeronave para un tipo determinado de aeronave.
+(d) El ACN de una aeronave se debe determinar de conformidad con los procedimientos normalizados relacionados con el método ACR-PCR.
+(e) Para determinar el ACR, el comportamiento del pavimento se debe clasificar como equivalente a una construcción rígida o flexible.
+(f) La información sobre el tipo de pavimento para determinar el ACR-PCR, la categoría ele resistencia del terreno de fundación, la categoría de presión máxima permisible de los neumáticos y el método de evaluación, se deben notificar utilizando las claves siguientes:
+(1) Tipo de pavimento para determinar el ACR-PCR:
+| | Clave
 Pavimento rígido | R
 Pavimento flexible | F
 (2) Categoría de resistencia del terreno de fundación:
-| | Clave
-| Resistencia alta: para los pavimentos rígidos, el valor tipo es K = 150 MN/m3 y comprende todos los valores de K superiores a 120 MN/m3; para los pavimentos flexibles, el valor tipo es CBR = 15 y comprende todos los valores superiores a 13. | A
-| |
-Resistencia mediana: para los pavimentos rígidos, el valor tipo es K = 80 MN/m3 y comprende todos los valores K entre 60 y 120MN/m3; para los pavimentos flexibles, el valor tipo es CBR = 10 y comprende todos los valores CBR entre 8 y 13. | B |
-Resistencia baja: para los pavimentos rígidos, el valor tipo es K = 40 MN/m3 y comprende todos los valores K entre 25 y 60 MN/m3; para los pavimentos flexibles, el valor tipo es CBR = 6 y comprende todos los valores CBR entre 4 y 8. | C |
-Resistencia ultra baja: para los pavimentos rígidos, el valor tipo es K = 20 MN/m3 y comprende todos los valores K inferiores a 25 MN/m3; para los pavimentos flexibles, el valor tipo es CBR = 3 y comprende todos los valores CBR inferiores a 4. | D |
-| | | |
+| Clave
+Resistencia alta: para los pavimentos rígidos y fl el valor tipo es E=200 MPa y comprende todos los valores de E iguales o superiores a 150 MPa. Resistencia mediana: para los pavimentos rígidos y flexibles, el valor tipo es E=120 MPa y comprende un rango de valores de E iguales o superiores a 100 MPa y estrictamente inferiores a 150 MPa. | A B
+Resistencia baja: 8 para los pavimentos rígidos y flexibles, el valor tipo es E=80 MPa y comprende un rango de valores de E iguales o superiores a 60 MPa y estrictamente inferiores a 100 MPa. | e
+Resistencia ultra baja: 4 para los pavimentos rígidos y flexibles, el valor tipo es E=S0 MPa y comprende todos los valores de E estrictamente inferiores a 60 MPa. | D
 (3) Categoría de presión máxima permisible de los neumáticos:
 | | Clave
 Ilimitada: | sin límite de presión | W
 Alta: | presión limitada a 1,75 MPa | X
 Mediana: | presión limitada a 1,25 MPa | Y
-Baja: | presión limitada a 0,50 MPa | Z
-Nota. — Cuando el pavimento sea utilizado por aeronaves grandes o aeronaves con presión de neumáticos correspondiente a las categorías superiores mencionadas anteriormente, se debe ponerse especial atención en la integridad de los accesorios de iluminación y de las uniones del pavimento.
+Baja: | presión limitada a 0,50 MPa | z
+Nota. - Cuando el pavimento sea utilizado por aeronaves grandes o aeronaves con presión de neumáticos correspondiente a las categorías superiores mencionadas anteriormente, se debe ponerse especial atención en la integridad de los accesorios de iluminación y de las uniones del pavimento.
 (4) Método de evaluación:
-| Clave
-Evaluación técnica: consiste en un estudio específico de las características de los pavimentos y en la aplicación de tecnología del comportamiento de los pavimentos. | T
+| | | Clave
+Evaluación técnica: consiste en un estudio específico de las características de los pavimentos y de los tipos de aeronave para los cuales tienen por obieto servir. | T
 Aprovechamiento de la experiencia en la utilización de aeronaves: comprende el conocimiento del tipo y masa específicos de las aeronaves que los pavimentos resisten satisfactoriamente en condiciones normales de empleo | U
-(g) Deben fijarse los criterios para reglamentar la utilización de un pavimento por aeronaves de ACN superior al PCN notificado con respecto a dicho pavimento de conformidad con RAC 14.111 (b) y (c). (Ver Anexo A sección 19, de este reglamento)
+(g) Deben fijarse los criterios para reglamentar la utilización de un pavimento por aeronaves de ACR superior al PCR notificado con respecto a dicho pavimento de conformidad con el RAC 14.111 (b) y (c). (Ver Anexo A sección 19, de este reglamento)
 (h) Se debe dar a conocer la resistencia de los pavimentos destinados a las aeronaves de hasta 5 700 kg de masa en la plataforma (rampa), notificando la siguiente información:
 (1) la masa máxima permisible de la aeronave; y
 (2) la presión máxima permisible de los neumáticos;
+Ejemplo: 4 800 Kg/0,60 MPa.
+(*)(Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 44497 del 9 de enero del 2024)
 RAC 14.113 Emplazamientos para la verificación del altímetro antes del vuelo
 (Ver CCA 14.113(b))
 (a) En cada aeródromo se debe establecer uno o más emplazamientos para la verificación del altímetro antes del vuelo.
@@ -512,81 +553,74 @@ Superficie de las plataforma de viraje en la pistas.
 Márgenes de las plataformas de viraje en la pista. (Ver CCA 14.205(l))
 (k) Deben proveerse márgenes en las plataformas de viraje en la pista de la anchura necesaria para prevenir la erosión de la superficie por el chorro de los reactores del avión más exigente para el que se haya concebido la plataforma y todo posible daño que puedan producir objetos extraños a los motores del avión.
 (l) La resistencia de los márgenes de la plataforma de viraje en la pista debe poder soportar el tránsito ocasional de los aviones para los que está prevista sin inducir daños estructurales al avión o a los vehículos de apoyo en tierra que puedan operar en el margen de pista.
-RAC 14.207 Franjas de pista
+(*)RAC 14.207 Franjas de pista
 (Ver CCA 14.207(f), (h), (k), (o), (p))
 Generalidades
-(a) La pista y cualquier zona asociada de parada deben estar comprendidas dentro de una franja.
+La pista y cualquier zona asociada de parada deben estar comprendidas dentro de una franja.
 Longitud de las franjas de pista.
-(b) Toda franja se debe extender antes del umbral y más allá del extremo de la pista o de la zona de parada hasta una distancia de por lo menos:
+(a) Toda franja se debe extender antes del umbral y más allá del extremo de la pista o el la zona de parada hasta una distancia de por lo menos:
 (1) 60 m cuando el número de clave sea 2, 3 o 4;
 (2) 60 m cuando el número de clave sea 1 y la pista sea de vuelo por instrumentos; y
-(3) 30 m cuando el número de clave sea 1 y la pista sea de vuelo visual.
+(3) 30 m cuando el número el clave sea 1 y la pista sea el vuelo visual.
 Anchura de las franjas de pista.
-(c) Toda franja que comprenda una pista para aproximaciones de precisión se debe extender
-lateralmente hasta una distancia de por lo menos:
+(b) Toda franja que comprenda una pista para aproximaciones de precisión se debe extender lateralmente hasta una distancia de por lo menos:
 (Ver CCA 14.207 (c))
 (1) 140 m cuando el número de clave sea 3 o 4; y
 (2) 70 m cuando el número de clave sea 1 o 2;
 a cada lado del eje de la pista y de su prolongación a lo largo de la franja.
-(d) Para aeródromos construidos antes de enero de 2016, cuando no sea posible proveer franjas laterales según lo indica el inciso (c), se deberá elaborar y presentar para aprobación a la DGAC un Estudio Aeronáutico que establezca procedimientos y acciones que mitiguen a un nivel aceptable la carencia de ancho en las franjas laterales.
-Nota 1: Material de guía para la elaboración de evaluaciones de seguridad operacional se encuentra en el Doc. 9981 Cap. 3
-Nota 2: Para efectos de restricción de obstáculos en aeródromos claves 3 y 4, la superficie de transición iniciará a partir de los 140 m del centro de pista
-(e) Toda franja que comprenda una pista para aproximaciones que no sean de precisión deben
-extenderse lateralmente hasta una distancia de por lo menos:
+(c) Toda franja que comprenda una pista para aproximaciones que no sean el precisión deben extenderse lateralmente hasta una distancia de por lo menos:
 (1) 140 m cuando el número de clave sea 3 o 4; y
-(2) 70 m cuando el número de clave sea 1 o 2; a cada lado del eje de la pista y de su prolongación a lo largo de la franja.
-(f) Para aeródromos construidos antes de enero de 2016, cuando no sea posible proveer franjas laterales según lo indica el inciso (c), se deberá elaborar y presentar para aprobación a la DGAC un Estudio Aeronáutico que establezca procedimientos y acciones que mitiguen a un nivel aceptable la carencia de ancho en las franjas laterales.
-Nota 1: Material de guía para la elaboración de evaluaciones de seguridad operacional se encuentra en el Doc. 9981 Cap. 3
-Nota 2: Para efectos de restricción de obstáculos en aeródromos claves 3 y 4, la superficie de transición iniciará a partir de los 140 m del centro de pista
-(g) Toda franja que comprenda una pista de vuelo visual debe extenderse a cada lado del eje de la pista y de su prolongación a lo largo de la franja, hasta una distancia de por lo menos:
+(2) 70 m cuando el número de clave sea 1 o 2;
+a cada lado del eje de la pista y de su prolongación a lo largo de la franja.
+(d) Toda franja que comprenda una pista de vuelo visual debe extenderse a cada lado del eje ele la pista y de su prolongación a lo largo de la franja, hasta una distancia de por lo menos:
 (1) 75 m cuando el número de clave sea 3 o 4;
 (2) 40 m cuando el número de clave sea 2; y
 (3) 30 m cuando el número de clave sea 1.
-Objetos en las franjas de pista. (Ver CCA 14.207(f))
-(h) Todo objeto situado en la franja de una pista y que pueda constituir un peligro para los aviones, deben considerarse como un obstáculo y eliminarse, siempre que sea posible. en el caso de desagües en la franja (ver CCA 14.207(f)).
-(i) Con excepción de las ayudas visuales requeridas para fines de navegación aérea o de seguridad operacional de las aeronaves y que deban estar emplazadas en franjas de pista y satisfagan los requisitos sobre frangibilidad pertinentes que aparecen en la sub parte E de esta RAC 14, no se debe permitir ningún objeto fijo en la franja de una pista:
-(1) dentro de una distancia de 77,5 m del eje de una pista de aproximación de precisión de la Categoría I, II o III, cuando el número de clave sea 4 y la letra de clave sea F; o
-(2) dentro de una distancia de 60 m del eje de una pista de aproximación de precisión de la Categoría I, II o III, cuando el número de clave sea 3 o 4; o
-(3) dentro de una distancia de 45 m del eje de una pista de aproximación de precisión de Categoría I, cuando el número de clave sea 1 o 2.
-No se debe permitir ningún objeto móvil en esta parte de la franja de la pista mientras se utilice la pista para aterrizar o despegar.
-Nivelación de las franjas de pista.
+Objetos en las franjas de pista.
+(Ver CCA 14.207(f))
+(e) Todo objeto situado en la franja de una pista y que pueda constituir un peligro para los aviones, deben considerarse como un obstáculo y eliminarse, siempre que sea posible. en el caso de desagües en la franja (ver CCA 14.207(f)).
+(f) Con excepción de las ayudas visuales requeridas para fines de navegación aérea o ele seguridad operacional de las aeronaves y que deban estar emplazadas en franjas el pista y satisfagan los requisitos sobre frangibilidad pertinentes que aparecen en la subparte E el esta RAC 14, no se permitirá ningún objeto fijo en la parte de la franja el una pista el aproximación de precisión delimitada por los bordes inferiores de las superficies de transición internacional
+No se permitirá ningún objeto móvil en esta parte de la franja de la pista mientras se utilice la pista para aterrizar o despegar.
+Nivelación de las franja de pista.
 (Ver CCA 14.207(h))
-(j) La parte de una franja que comprenda una pista de vuelo por instrumentos, debe proveer, hasta
-una distancia de por lo menos:
+(g) La parte de una franja que comprenda una pista de vuelo por instrumentos debe proveer, hasta una distancia de por lo menos:
 (1) 75 m cuando el número de clave sea 3 o 4; y
 (2) 40 m cuando el número de clave sea 1 o 2;
 Del eje de la pista y de su prolongación, un área nivelada en atención a los aviones a que está destinada la pista en el caso de que un avión se salga de ella.
-(k) La parte de una franja de una pista de vuelo visual debe proveer, hasta una distancia de por lo menos:
-(1) 75 m cuando el número de clave sea 3 o 4;
-(2) 40 m cuando el número de clave sea 2; y
-(3) 30 m cuando el número de clave sea 1; desde el eje de la pista y de su prolongación, un área nivelada destinada a los aviones para los que está prevista la pista, en el caso de que un avión se salga de la misma.
-(l) La superficie de la parte de la franja lindante con la pista, margen o zona de parada debe estar al mismo nivel que la superficie de la pista, margen o zona de parada.
-(m) La parte de una franja situada por lo menos 30 m antes del comienzo de una pista debe prepararse contra la erosión producida por el chorro de los motores, a fin de proteger los aviones que aterrizan de los peligros que representan los bordes expuestos. Cuando estas áreas tengan superficies pavimentadas, las mismas deben poder soportar el paso ocasional de aviones críticos para el diseño del pavimento de la pista.
-Pendiente de las franjas de pista. (Ver CCA 14.207(o))
-(n) Pendientes longitudinales:
-Las pendientes longitudinales a lo largo de la porción de una franja que ha de nivelarse, no deben exceder del:
-(1) 1,5% cuando el número de clave sea 4;
-(2) 1,75% cuando el número de clave sea 3; y
-(3) 2% cuando el número de clave sea 1 o 2.
-(o) Cambios de pendientes longitudinales:
-Los cambios de pendiente en la parte de una franja que haya de nivelarse deben ser lo más graduales posible, debiendo evitar los cambios bruscos o las inversiones repentinas de pendiente.
-(p) Pendientes transversales:
-(Ver CCA 14.207(n))
-(1) Las pendientes transversales en la parte de una franja que haya de nivelarse deben ser adecuadas para impedir la acumulación de agua en la superficie, pero no deben exceder del:
-(i) 2,5% cuando el número de clave sea 3 o 4; y
-(ii) 3% cuando el número de clave sea 1 o 2; excepto que, para facilitar el drenaje, la pendiente de los primeros 3 m hacia afuera del borde de la pista, margen o zona de parada debe ser negativa, medida en el sentido de alejamiento de la pista, pudiendo llegar hasta el 5%.
-(q) Las pendientes transversales en cualquier parte de una franja más allá de la parte que ha de nivelarse no debe exceder de una pendiente ascendente del 5%, medida en el sentido de
-alejamiento de la pista.
-Resistencia de las franjas de pista. (Ver CCA 14.207(p))
-(r) La parte de una franja que comprenda una pista de vuelo por instrumentos debe prepararse o
-construirse, hasta una distancia de por lo menos:
-(1) 75 m cuando el número de clave sea 3 o 4; y
-(2) 40 m cuando el número de clave sea 1 o 2; del eje y de su prolongación, de manera que se reduzcan al mínimo los peligros provenientes de las diferencias de carga admisible, respecto a los aviones para los que se ha previsto la pista, en el caso de que un avión se salga de la misma.
-(s) La parte de una franja que contenga una pista de vuelo visual debe prepararse o construirse hasta una distancia de por lo menos.
+(h) La parte de una franja de una pista de vuelo visual debe proveer, hasta una distancia de por lo menos:
 (1) 75 m cuando el número de clave sea 3 o 4;
 (2) 40 m cuando el número de clave sea 2; y
 (3) 30 m cuando el número de clave sea 1;
-Del eje y de su prolongación, de manera que se reduzcan al mínimo los peligros provenientes de la diferencia de las cargas admisibles, respecto a los aviones para los que está prevista la pista, en el caso de que un avión se salga de la misma.
+desde el eje de la pista y de su prolongación, un área nivelada destinada a los aviones para los que está prevista la pista, en el caso de que un avión se salga de la misma.
+(i) La superficie de la parte de la franja lindante con la pista, margen o zona de parada debe estar al mismo nivel que la superficie de la pista, margen o zona de parada.
+(j) La parte de una franja situada por lo menos 30 m antes del comienzo de una pista debe prepararse contra la erosión producida por el chorro de los motores, a fin de proteger los aviones que aterrizan de los peligros que representan los bordes expuestos. Cuando estas áreas tengan superficies pavimentadas, las mismas deben poder soportar el paso ocasional de aviones críticos para el diseño del pavimento de la pista.
+Pendiente de las franjas de pista.
+(Ver CCA 14.207(0))
+(k) Pendientes longitudinales:
+Las pendientes longitudinales a lo largo de la porción de una franja que ha de nivelarse no deben exceder del:
+(1) 1,5% cuando el número de clave sea 4;
+(2) 1,75% cuando el número de clave sea 3; y
+(3) 2% cuando el número de clave sea 1 o 2.
+(l) Cambios de pendientes longitudinales:
+Los cambios de pendiente en la parte de una franja que haya de nivelarse deben ser lo más graduales posible, debiendo evitar los cambios bruscos o las inversiones repentinas ele pendiente.
+(m) Pendientes transversales: (Ver CCA 14.207(n)
+(1) Las pendientes transversales en la parte de una franja que haya de nivelarse deben ser adecuadas para impedirla acumulación de agua en la superficie, pero no deben exceder del:
+(i) 2,5% cuando el número de clave sea 3 o 4; y
+(ii) 3% cuando el número de clave sea 1 o 2;
+excepto que, para facilitar el drenaje, la pendiente de los primeros 3 m hacia afuera del borde de la pista, margen o zona de parada debe ser negativa, medida en el sentido de alejamiento de la pista, pudiendo llegar hasta el 5%.
+(n) Las pendientes transversales en cualquier parte de una franja más allá de la parte que ha de nivelarse no debe exceder de una pendiente ascendente del 5%, medida en el sentido de alejamiento de la pista.
+Resistencia de las franjas de pista.
+(Ver CCA 14.207(p))
+(o) La parte de una franja que comprenda una pista de vuelo por instrumentos debe prepararse o construirse, hasta una distancia de por lo menos:
+(1) 75 m cuando el número de clave sea 3 o 4; y
+(2) 40 m cuando el número de clave sea 1 o 2;
+del eje y de su prolongación, de manera que se reduzcan al mínimo los peligro provenientes de las diferencias de carga admisible, respecto a los aviones para los que se ha previsto la pista, en el caso de que un avión se salga de la misma.
+(p) La parte de una franja que contenga una pista de vuelo visual debe prepararse o construirse hasta una distancia de por lo menos.
+(1) 75 m cuando el número de clave sea 3 o 4;
+(2) 40 m cuando el número de clave sea 2; y
+(3) 30 rn cuando el número de clave sea 1;
+Del eje y de su prolongación, de manera que se reduzcan al m1111mo los peligros provenientes de la diferencia de las cargas admisibles, respecto a los aviones para los que está prevista la pista, en el caso de que un avión se salga de la misma.
+(*)(Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 44497 del 9 de enero del 2024)
 RAC 14.209 Áreas de seguridad de extremo de pista.
 (Ver CCA 14.209(a))
 Generalidades
@@ -596,8 +630,8 @@ Generalidades
 En el Apéndice 1 de la RAC-14.253, se da orientación sobre las áreas de seguridad de extremo de pista.
 Dimensiones de las áreas de seguridad de extremo de pista.
 (b) El área de seguridad de extremo de pista se debe extender desde el extremo de una franja de pista hasta por lo menos 90 m cuando.
-— el número de clave sea 3 o 4; y
-— el número de clave sea 1 o 2 y la pista sea de aterrizaje por instrumentos.
+- el número de clave sea 3 o 4; y
+- el número de clave sea 1 o 2 y la pista sea de aterrizaje por instrumentos.
 De instalarse un sistema de parada, la longitud antes mencionada puede reducirse basándose en la especificación del diseño del sistema, lo que está sujeto a la aceptación de la DGAC.
 (c) Para aeródromos construidos después de la vigencia de este RAC El área de seguridad de extremo de pista se debe extender, , desde el extremo de una franja de pista hasta una distancia de por lo menos:
 (1) 240 m cuando el número de clave sea 3 o 4; o una longitud menor cuando se instale un sistema de parada.
@@ -624,8 +658,11 @@ Emplazamiento de las zonas libres de obstáculos
 (a) El origen de la zona libre de obstáculos debe estar en el extremo del recorrido de despegue disponible.
 Longitud de las zonas libres de obstáculos
 (b) La longitud de la zona libre de obstáculos no debe exceder de la mitad de la longitud del recorrido de despegue disponible.
-Ancho de las zonas libres de obstáculos
-(c) La zona libre de obstáculos debe extenderse lateralmente hasta una distancia de 75 m, por lo menos, a cada lado de la prolongación del eje de la pista.
+(*) Anchura de las zonas libres de obstáculos
+(c) La zona libre de obstáculos debe extenderse lateralmente a cada lado de la prolongación del eje de la pista, hasta una distancia de, por lo menos:
+(1) 75 m para las pistas de vuelo por instrumentos; y
+(2) la mitad de la anchura de la franja de pista para las pistas de vuelo visual.
+(*)(Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 44497 del 9 de enero del 2024)
 Pendientes de las zonas libres de obstáculos:
 (d) El terreno de una zona libre de obstáculos no debe sobresalir de un plano inclinado con una pendiente ascendente de 1,25%, siendo el límite inferior de este plano una línea horizontal que:
 (1) es perpendicular al plano vertical que contenga el eje de la pista; y
@@ -764,12 +801,14 @@ Generalidades:
 (d) Salvo que la DGAC lo establezca de otro modo, se debe establecer un punto de espera intermedio en una calle de rodaje en cualquier punto que no sea un punto de espera de la pista, cuando sea conveniente definir un límite de espera específico.
 (e) Se debe establecer un punto de espera en la vía de vehículos en la intersección de una vía de vehículos con una pista.
 Emplazamiento:
-(f) La distancia entre un apartadero de espera, un punto de espera de la pista establecido en una intersección de calle de rodaje/pista o un punto de espera en la vía de vehículos y el eje de una pista se debe ajustar a lo indicado en la Tabla C-2 y, en el caso de una pista para aproximaciones de precisión, debe ser tal que una aeronave o un vehículo que esperan no interfieran con el funcionamiento de las radioayudas para la navegación.
+(f) La distancia entre un apartadero de espera, un punto de espera de la pista establecido en una intersección de calle de rodaje/pista o un punto de espera en la vía de vehículos y el eje de una pista se debe ajustar a lo indicado en la Tabla C-2 y, en el caso de una pista para aproximaciones de precisión, debe ser tal que una aeronave o un vehículo que esperan 110 interfieran con el funcionamiento de las radioayudas para la navegación ni penetren la superficie de transición interna.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 44497 del 9 de enero del 2024)
 (g) Salvo que la DGAC lo establezca de otro modo, a una elevación superior a 700 m (2 300 ft), la distancia de 90 m que se especifica en la Tabla C-2 para una pista de aproximación de precisión de número de clave 4, debe aumentarse del modo que se indica a continuación:
 (1) hasta una elevación de 2 000 m (6 600 ft), 1 m por cada 100 m (330 ft) en exceso de 700 m (2 300 ft);
 (2) N/A
 (3) N/A
-(h) Si la elevación de un apartadero de espera, de un punto de espera de la pista, o de un punto de espera en la vía de vehículos, es superior a la del umbral de la pista, en el caso de pistas de aproximación de precisión cuyo número de clave sea 4, la distancia de 90 m o de 107,5 m, según corresponda, que se indica en la Tabla C-2 debe aumentarse otros 5 m por cada metro de diferencia de elevación entre la del apartadero o punto de espera y la del umbral.
+(h) Si la elevación de un apartadero de espera, de un punto de espera de la pista, o de un punto de espera en la vía de vehículos, es superior a la del umbral de la pista, en el caso de pistas de aproximación de precisión cuyo número de clave sea 4, la distancia que se indica en la Tabla C-2 debe aumentarse otros 5 m por cada metro de diferencia de elevación entre la del apartadero o punto de espera y la del umbral.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 44497 del 9 de enero del 2024)
 (i) El emplazamiento de un punto de espera de la pista, establecido de conformidad con RAC 14.223 (c), debe ser tal que la aeronave o vehículo en espera no infrinja la zona despejada de obstáculos, la superficie de aproximación, la superficie de ascenso en el despegue ni el área crítica/sensible del ILS/MLS, ni interfiera en el funcionamiento de las radioayudas para la navegación.
 Tabla C-2. Distancias mínimas entre el eje de la pista y un apartadero de espera, un punto de espera de la pista o punto de espera en la vía de vehículos
 Tipo de pista | Número de clave
@@ -777,14 +816,18 @@ Tipo de pista | Número de clave
 Aproximación visual | 30 m | 40 m | 75 m | 75 m
 Aproximación que no es de precisión | 40 m | 40 m | 75 m | 75 m
 Aproximación de precisión de Categoría I | 60 mb | 60 mb | 90 ma,b | 90 ma,b,c
-Aproximación de precisión de Categorías II y III | — | — | 90 ma,b | 90 ma,b,c
+Aproximación de precisión de Categorías II y III | - | - | 90 ma,b | 90 ma,b,c
 Despegue | 30 m | 40 m | 75 m | 75 m
 (a) Si la elevación del apartadero de espera, del punto de espera de la pista o del punto de espera en la vía de vehículos es inferior a la del umbral de la pista, la distancia puede disminuirse 5 m por cada metro de diferencia entre el apartadero o punto de espera y el umbral, a condición de no penetrar la superficie de transición interna.
 (b) Puede ser necesario aumentar esta distancia en el caso de las pistas de aproximación de precisión, a fin de no interferir con las radioayudas para la navegación, en particular, con las instalaciones relativas a trayectoria de planeo y localizadores. (Vea además RAC 14. 223(f)).
-Nota 1. — La distancia de 90 m para el número de clave 3 o 4 se basa en aeronaves con un empenaje de 20 m de altura, una distancia entre la proa y la parte más alta del empenaje de 52,7 m y una altura de la proa de 10 m en espera, a un ángulo de 45°o más con respecto al eje de la pista, encontrándose fuera de la zona despejada de obstáculos y sin tenerla en cuenta para el cálculo de la OCA/H.
-Nota 2. — La distancia de 60 m para el número de clave 2 se basa en una aeronave con un empenaje de 8 m de altura, una distancia entre la proa y la parte más alta del empenaje de 24,6 m y una altura de la proa de 5,2 m en espera, a un ángulo de 45° o más con respecto al eje de la pista, encontrándose fuera de la zona despejada de obstáculos.
+Nota 1. - La distancia de 90 m para el número de clave 3 o 4 se basa en aeronaves con un empenaje de 20 m de altura, una distancia entre la proa y la parte más alta del empenaje de 52,7 m y una altura de la proa de 10 m en espera, a un ángulo de 45º o más con respecto al eje de la pista, encontrándose fuera de la zona despejada de obstáculos y sin tenerla en cuenta µara el cálculo de la OCA/H.
+(Así reformada la nota anterior por el artículo 1° del decreto ejecutivo N° 44497 del 9 de enero del 2024)
+Nota 2. - La distancia de 60 m para el número de clave 2 se basa en una aeronave con un empenaje de 8 m de altura, una distancia entre la proa y la parte más alta del empenaje de 24,6 m y una altura de la proa de 5,2 m en espera, a un ángulo de 45º o más con respecto al eje de la pista, encontrándose fuera de la zona despejada de obstáculos.
+(Así reformada la nota anterior por el artículo 1° del decreto ejecutivo N° 44497 del 9 de enero del 2024)
+Nota 3. - Para el número de clave 4, donde la anchura del borde interior de la superficie de aproximación interna sea de más de 120 m, puede ser necesaria una distancia de más de 90 m para garantizar que una aeronave en espera esté fuera de la zona despejada de obstáculos. Por ejemplo, una distancia de 100 m se basa en aeronaves con un empenaje de 24 m de altura, una distancia entre la proay la parte más alta del empenaje de 62,2 m y una altura de la proa de 10 m en espera, a un ángulo de 45º o más con respecto al eje de la pista, encontrándose fuera de la zona despejada de obstáculo.
+(Así adicionada la nota anterior por el artículo 1° del decreto ejecutivo N° 44497 del 9 de enero del 2024)
 (c) Cuando la letra de clave sea F, esta distancia debe ser de 107,5 m.
-Nota. — La distancia de 107,5 m para el número de clave 4 cuando la letra de clave es F se basa en aeronaves con un empenaje de 24 m de altura, una distancia entre la proa y la parte más alta del empenaje de 62,2 m y una altura de la proa de 10 m en espera, a un ángulo de 45º o más con respecto al eje de la pista, encontrándose fuera de la zona despejada de obstáculo
+Nota. - La distancia de 107,5 m para el número de clave 4 cuando la letra de clave es F se basa en aeronaves con un empenaje de 24 m de altura, una distancia entre la proa y la parte más alta del empenaje de 62,2 m y una altura de la proa de 10 m en espera, a un ángulo de 45º o más con respecto al eje de la pista, encontrándose fuera de la zona despejada de obstáculo
 RAC 14.225 Plataformas
 (Ver CCA 14.225)
 Generalidades:
@@ -1019,7 +1062,7 @@ RAC 14.307 Otros Objetos.
 (Ver CCA 14.307(b))
 (a) Los objetos que no sobresalgan por encima de las superficies de aproximación pero que sin embargo puedan comprometer el emplazamiento o el funcionamiento óptimo de las ayudas visuales o las ayudas no visuales deben eliminarse en la medida de lo posible.
 (b) Dentro de los límites de la superficie horizontal interna y cónica deben considerarse como obstáculos, y eliminarse siempre que sea posible, todo aquello que la DGAC como entidad regulatoria, tras realizar un estudio aeronáutico señale que puede constituir un peligro para los aviones que se encuentren en el área de movimiento o en vuelo.
-SUBPARTE E – AYUDAS VISUALES PARA LA NAVEGACIÓN
+SUBPARTE E - AYUDAS VISUALES PARA LA NAVEGACIÓN
 RAC 14.401 Indicadores y dispositivos de señalización.
 (Ver CCA 14.401)
 (a) indicadores de la dirección del viento.
@@ -1035,8 +1078,8 @@ Características:
 Emplazamiento:
 (1) Cuando se provea un indicador de la dirección de aterrizaje, se debe emplazar el mismo en un lugar destacado del aeródromo.
 Características:
-(2) El indicador de la dirección de aterrizaje debe ser en forma de “T”.
-(3) La forma y dimensiones mínimas de la “T” de aterrizaje debe ser las que se indican en la Figura E-1. El color de la “T” de aterrizaje ser blanco o anaranjado eligiéndose el color que contraste mejor con el fondo contra el cual el indicador debe destacarse. Cuando se requiera para el uso nocturno, la “T” de aterrizaje debe estar iluminada, o su contorno delineado mediante luces blancas.
+(2) El indicador de la dirección de aterrizaje debe ser en forma de "T".
+(3) La forma y dimensiones mínimas de la "T" de aterrizaje debe ser las que se indican en la Figura E-1. El color de la "T" de aterrizaje ser blanco o anaranjado eligiéndose el color que contraste mejor con el fondo contra el cual el indicador debe destacarse. Cuando se requiera para el uso nocturno, la "T" de aterrizaje debe estar iluminada, o su contorno delineado mediante luces blancas.
 [imagen]
 (c) Lámparas de señales.
 Aplicación:
@@ -1061,9 +1104,9 @@ Interrupción de las señales de pista:
 (1) En una intersección de dos (o más) pistas, conserva sus señales la pista más importante, con la excepción de las señales de faja lateral de pista, y se interrumpen las señales de las otras pistas.
 Las señales de faja lateral de la pista más importante pueden continuarse o interrumpirse en la intersección.
 (2) El orden de importancia de las pistas a efectos de conservar sus señales debe ser el siguiente:
-1° — pista para aproximaciones de precisión;
-2° — pista para aproximaciones que no son de precisión; y
-3° — pista de vuelo visual.
+1° - pista para aproximaciones de precisión;
+2° - pista para aproximaciones que no son de precisión; y
+3° - pista de vuelo visual.
 (3) En la intersección de una pista y una calle de rodaje se debe conservar las señales de la pista y se interrumpirán las señales de la calle de rodaje; excepto que las señales de faja lateral de pista pueden interrumpirse.
 Colores y perceptibilidad:
 (4) Las señales de pista deben ser blancas.
@@ -1083,11 +1126,11 @@ Características:
 [imagen]
 Figura E-2. Señales de designación de pista, de eje y de umbral
 (5) En el caso de pistas paralelas, cada número designador de pista debe ir acompañado de una letra, como sigue, en el orden que aparecen de izquierda a derecha al verse en la dirección de aproximación:
-(i) para dos pistas paralelas: “L” “R”;
-(ii) para tres pistas paralelas: “L” “C” “R”;
-(iii) para cuatro pistas paralelas: “L” “R” “L” “R”;
-(iv) para cinco pistas paralelas: “L” “C” “R” “L” “R” o “L” “R” “L” “C” “R”; y
-(v) para seis pistas paralelas: “L” “C” “R” “L” “C” “R”.
+(i) para dos pistas paralelas: "L" "R";
+(ii) para tres pistas paralelas: "L" "C" "R";
+(iii) para cuatro pistas paralelas: "L" "R" "L" "R";
+(iv) para cinco pistas paralelas: "L" "C" "R" "L" "R" o "L" "R" "L" "C" "R"; y
+(v) para seis pistas paralelas: "L" "C" "R" "L" "C" "R".
 (6) Los números y las letras deben tener la forma y proporciones indicadas en la Figura D-3.
 Sus dimensiones no deben ser inferiores a las indicadas en dicha figura, pero cuando se incorporen números a las señales de umbral, las dimensiones deben ser mayores, con el fin de llenar satisfactoriamente los espacios entre las fajas de señales de umbral.
 (c) Señal de eje de pista
@@ -1224,17 +1267,18 @@ Características:
 (5) Hasta el 26 de noviembre de 2026, las dimensiones de la señal de punto de espera de la pista serán las que se indican en la Figura E-8, configuración A1 (o A2) o B1 (o B2), según corresponda.
 (6) A partir del 26 de noviembre de 2026, las dimensiones de la señal de punto de espera dela pista serán las que se indican en la Figura E-8, configuración A2 o B2, según corresponda.
 (7) Donde se requiera que el punto de espera de la pista sea más visible, las dimensiones de la señal de punto de espera de la pista debe ser la indicada en la configuración A2 o la configuración B2 de la Figura E-8, según corresponda.
-(8) Cuando una señal de punto de espera de la pista de configuración B esté emplazada en una zona tal que su longitud exceda de 60 m, el término “CAT II” o “CAT III”, según corresponda, se debe marcar en la superficie en los extremos de la señal de punto de espera de la pista y a intervalos iguales de 45 m como máximo entre señales sucesivas. Las letras no deben tener menos de 1,8 m de altura y no deben estar a más de 0,90 m de la señal de punto de espera.
+(8) Cuando una señal de punto de espera de la pista de configuración B esté emplazada en una zona tal que su longitud exceda de 60 m, el término "CAT II" o "CAT III", según corresponda, se debe marcar en la superficie en los extremos de la señal de punto de espera de la pista y a intervalos iguales de 45 m como máximo entre señales sucesivas. Las letras no deben tener menos de 1,8 m de altura y no deben estar a más de 0,90 m de la señal de punto de espera.
 (9) La señal de punto de espera de la pista que se instala en una intersección de pista/pista debe ser perpendicular al eje de la pista que forma parte de la ruta normalizada para el rodaje. La configuración de la señal está indicada en la Figura E-8, configuración A2.
 Aplicación y emplazamiento:
 (1) Cada punto de espera intermedio debe tener una señal de punto de espera intermedio.
 [imagen]
 Figura E-8. Señales de punto de espera de la pista
-Nota.— Las configuraciones A1 y B1 no serán válidas después del 26 de noviembre de 2026.
+Nota.- Las configuraciones A1 y B1 no serán válidas después del 26 de noviembre de 2026.
 (2) Cuando se emplace una señal de punto de espera intermedio en la intersección de dos calles de rodaje pavimentadas, se debe colocar a través de una calle de rodaje, a distancia suficiente del borde más próximo de la calle de rodaje que la cruce, para proporcionar una separación segura entre aeronaves en rodaje. La señal debe coincidir con una barra de parada o con las luces de punto de espera intermedio, cuando se suministren.
 Características
 (3) La señal de punto de espera intermedio consiste en una línea simple de trazos, tal como se indica en la Figura E-6.
-(k) Señal de punto de verificación del VOR en el aeródromo
+(k) Señal de punto de espera intermedio.
+(Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 44497 del 9 de enero del 2024)
 Aplicación:
 (1) Cuando se establezca un punto de verificación del VOR en el aeródromo, se debe indicar mediante una señal y un letrero de punto de verificación del VOR.
 (2) Selección del emplazamiento
@@ -1324,11 +1368,11 @@ Emisiones láser que pueden ser peligrosas para la seguridad de las aeronaves
 (iii) zona de vuelo sensible de rayos láser (LSFZ).
 Luces que pueden causar confusión
 (3) Salvo que la DGAC lo establezca de otro modo, una luz no aeronáutica de superficie que, por su intensidad, forma o color, pueda producir confusión o impedir la clara interpretación de las luces aeronáuticas de superficie, se debe extinguir, apantallar o modificar de forma que se suprima esa posibilidad. En particular, deben considerarse todas aquellas luces no aeronáuticas de superficie visibles desde el aire que se encuentren dentro de las áreas que se enumeran a continuación:
-(i) Pista de vuelo por instrumentos — número de clave 4:
+(i) Pista de vuelo por instrumentos - número de clave 4:
 Dentro de las áreas anteriores al umbral y posteriores al extremo de la pista, en una longitud de por lo menos 4 500 m desde el umbral y desde el extremo de la pista, y en un ancho de 750 m a cada lado de la prolongación del eje de pista.
-(ii) Pista de vuelo por instrumentos — número de clave 2 o 3:
+(ii) Pista de vuelo por instrumentos - número de clave 2 o 3:
 Igual que en I), pero la longitud debe ser por lo menos de 3 000 m.
-(iii) Pista de vuelo por instrumentos — número de clave 1; y pista de vuelo visual:
+(iii) Pista de vuelo por instrumentos - número de clave 1; y pista de vuelo visual:
 Dentro del área de aproximación.
 Luces aeronáuticas de superficie que pueden ocasionar confusión a los marinos
 En el caso de las luces aeronáuticas de superficie próximas a aguas navegables, es preciso cerciorarse de que no son motivo de confusión para los marinos.
@@ -1399,13 +1443,13 @@ Características:
 (d) Sistemas de iluminación de aproximación
 Aplicación:
 (1) Aplicación:
-A. — Pista de vuelo visual
+A. - Pista de vuelo visual
 En la medida de lo posible, se debe instalar un sistema sencillo de iluminación de aproximación tal como el que se especifica en RAC 14 405 (d)(2) a RAC 14 405 (d)(9), para servir a una pista de vuelo visual cuando el número de clave sea 3 o 4 y destinada a ser utilizada de noche, salvo cuando la pista se utilice solamente en condiciones de buena visibilidad y se proporcione guía suficiente por medio de otras ayudas visuales.
-B. — Pista para aproximaciones que no son de precisión
+B. - Pista para aproximaciones que no son de precisión
 En la medida de lo posible, se debe de instalar un sistema sencillo de iluminación de aproximación, tal como el que se especifica RAC 14 405 (d)(2) a RAC 14 405 (d)(9), para usarse en una pista para aproximaciones que no son de precisión, salvo cuando la pista se utilice solamente en condiciones de buena visibilidad y se proporcione guía suficiente por medio de otras ayudas visuales.
-C. — Pista para aproximaciones de precisión de Categoría I
+C. - Pista para aproximaciones de precisión de Categoría I
 En la medida de lo posible, en una pista para aproximaciones de precisión de Categoría I se debe instalar un sistema de iluminación de aproximación de precisión de Categoría I, tal como el que se especifica en RAC 14 405 (d)(10) a RAC 14 405 (d)(21).
-D. — Pista para aproximaciones de precisión de Categoría II y III
+D. - Pista para aproximaciones de precisión de Categoría II y III
 En una pista para aproximaciones de precisión de Categoría II y III, se debe de instalar un sistema de iluminación de aproximación de precisión de las Categorías II o III, tal como se especifica en 22) al 39) de este inciso.
 Sistema sencillo de iluminación de aproximación
 Emplazamiento:
@@ -1510,28 +1554,28 @@ Descripción:
 (7) El T-VASIS debe consistir en 20 elementos luminosos simétricamente dispuestos respecto al eje de la pista, en forma de dos barras de ala de cuatro elementos luminosos cada una, cortadas en su punto medio por filas longitudinales de seis luces, según se indica en la Figura E-17.
 (8) El AT-VASIS debe consistir en 10 elementos luminosos dispuestos a un lado de la pista en forma de una sola barra de ala de cuatro luces cortada en su punto medio por una fila longitudinal de seis luces.
 (9) Los elementos luminosos se deben construir y disponer de tal manera que, durante la aproximación, el piloto de un avión:
-(i) cuando vuele por encima de la pendiente de aproximación, vea de color blanco las luces de las barras de ala, y uno, dos o tres elementos luminosos de indicación “descienda”, siendo visibles más elementos luminosos de indicación “descienda” cuanto más alto se encuentre el piloto con respecto a la pendiente de aproximación;
+(i) cuando vuele por encima de la pendiente de aproximación, vea de color blanco las luces de las barras de ala, y uno, dos o tres elementos luminosos de indicación "descienda", siendo visibles más elementos luminosos de indicación "descienda" cuanto más alto se encuentre el piloto con respecto a la pendiente de aproximación;
 (ii) cuando vuele en la pendiente de aproximación, vea de color blanco las luces de las barras de ala; y
-(iii) cuando vuele por debajo de la pendiente de aproximación, vea de color blanco las luces de las barras de ala, y uno, dos o tres elementos luminosos de indicación “ascienda”, siendo visibles más elementos luminosos “ascienda” cuanto más bajo se encuentre el piloto con respecto a la pendiente de aproximación; y cuando se encuentre muy por debajo de la pendiente de aproximación, vea de color rojo las luces de las barras de ala y los tres elementos luminosos de indicación “ascienda”.
-Cuando la aeronave se encuentre en la pendiente de aproximación o por encima de la misma, no debe haber luces visibles procedentes de los elementos luminosos de indicación “ascienda”; cuando se encuentre en la pendiente de aproximación o por debajo de la misma, no debe haber luces visibles procedentes de los elementos luminosos de indicación “descienda”.
+(iii) cuando vuele por debajo de la pendiente de aproximación, vea de color blanco las luces de las barras de ala, y uno, dos o tres elementos luminosos de indicación "ascienda", siendo visibles más elementos luminosos "ascienda" cuanto más bajo se encuentre el piloto con respecto a la pendiente de aproximación; y cuando se encuentre muy por debajo de la pendiente de aproximación, vea de color rojo las luces de las barras de ala y los tres elementos luminosos de indicación "ascienda".
+Cuando la aeronave se encuentre en la pendiente de aproximación o por encima de la misma, no debe haber luces visibles procedentes de los elementos luminosos de indicación "ascienda"; cuando se encuentre en la pendiente de aproximación o por debajo de la misma, no debe haber luces visibles procedentes de los elementos luminosos de indicación "descienda".
 Emplazamiento:
 (Ver CCA 14.405(e)(10))
 (10) Los elementos luminosos deben estar emplazados como se indica en la Figura E-17, sujeto a las tolerancias de instalación allí señaladas.
 [imagen]
 Figura E-17. Emplazamiento de los elementos luminosos del T-VASIS Características de los elementos luminosos
 (11) Los sistemas deben ser adecuados, tanto para las operaciones diurnas como para las nocturnas.
-(12) La distribución luminosa del haz de cada elemento debe tener forma de abanico y ser visible en un gran arco de azimut en la dirección de la aproximación. Los elementos luminosos de las barras de ala deben producir un haz de luz blanca desde un ángulo vertical de 10 54', hasta un ángulo vertical de 60, y un haz de luz roja en un ángulo vertical de 00 a 10 54'. Los elementos que advierten que se está por encima de la trayectoria correcta (indicación “descienda”), deben producir un haz blanco desde un ángulo de 60 hasta aproximadamente la pendiente de aproximación, punto en el que se ocultan bruscamente. Los elementos luminosos que advierten que se está por debajo de la trayectoria correcta (indicación “ascienda”), deben producir un haz blanco desde aproximadamente la pendiente de aproximación hasta un ángulo vertical de 10 54', y un haz rojo por debajo de este ángulo vertical de 10 54'. El ángulo de la parte superior del haz rojo en los elementos de barras de ala y en los elementos de indicación puede aumentarse para dar cumplimiento a lo que se prescribe en RAC 14 405 (e)(22).
-(13) La distribución de la intensidad de la luz de los elementos luminosos de indicación “descienda”, barra de ala y “ascienda” debe ser la indicada en el Apéndice 2, Figura A2-22.
+(12) La distribución luminosa del haz de cada elemento debe tener forma de abanico y ser visible en un gran arco de azimut en la dirección de la aproximación. Los elementos luminosos de las barras de ala deben producir un haz de luz blanca desde un ángulo vertical de 10 54', hasta un ángulo vertical de 60, y un haz de luz roja en un ángulo vertical de 00 a 10 54'. Los elementos que advierten que se está por encima de la trayectoria correcta (indicación "descienda"), deben producir un haz blanco desde un ángulo de 60 hasta aproximadamente la pendiente de aproximación, punto en el que se ocultan bruscamente. Los elementos luminosos que advierten que se está por debajo de la trayectoria correcta (indicación "ascienda"), deben producir un haz blanco desde aproximadamente la pendiente de aproximación hasta un ángulo vertical de 10 54', y un haz rojo por debajo de este ángulo vertical de 10 54'. El ángulo de la parte superior del haz rojo en los elementos de barras de ala y en los elementos de indicación puede aumentarse para dar cumplimiento a lo que se prescribe en RAC 14 405 (e)(22).
+(13) La distribución de la intensidad de la luz de los elementos luminosos de indicación "descienda", barra de ala y "ascienda" debe ser la indicada en el Apéndice 2, Figura A2-22.
 (14) La transición de colores, de rojo a blanco, en el plano vertical, debe ser tal que para un observador situado a una distancia no inferior a 300 m, ocurra dentro de un ángulo vertical no superior a 15'.
 (15) Cuando la intensidad sea máxima, la coordenada Y de la luz roja no debe exceder de 0,320.
 (16) Se debe disponer de un control adecuado de intensidad para que esta pueda graduarse de acuerdo con las condiciones predominantes, evitando así el deslumbramiento del piloto durante la aproximación y el aterrizaje.
-(17) Los elementos luminosos que forman las barras de ala o los elementos luminosos que integran el par conjugado que indica “ascienda” o “descienda”, se montaran de manera que se presenten al piloto del avión que efectúa la aproximación como una línea sensiblemente horizontal. Los elementos luminosos se montaran lo más bajo posible y deben ser frangibles.
+(17) Los elementos luminosos que forman las barras de ala o los elementos luminosos que integran el par conjugado que indica "ascienda" o "descienda", se montaran de manera que se presenten al piloto del avión que efectúa la aproximación como una línea sensiblemente horizontal. Los elementos luminosos se montaran lo más bajo posible y deben ser frangibles.
 (18) Los elementos luminosos deben estar diseñados de manera que la condensación, el polvo, etc., que puedan depositarse en las superficies reflectoras u ópticas, obstruyan en el menor grado posible las señales luminosas y no afecten de modo alguno la elevación de los haces o el contraste entre las señales rojas y las blancas. La construcción de los elementos luminosos debe ser tal que se reduzca al mínimo la probabilidad de que cualquier fenómeno climático, obturen total o parcialmente las ranuras. Pendiente de aproximación y reglaje de elevación de los haces de los elementos luminosos.
 Pendiente de aproximación y reglaje de elevación de los haces de los elementos luminosos
 (19) La pendiente de aproximación debe ser adecuada para el uso por los aviones que utilicen la aproximación.
 (20) Cuando una pista provista con T-VASIS está dotada de un ILS o MLS, el emplazamiento y elevaciones de los elementos luminosos deben ser tales que la pendiente de aproximación visual se ajuste tan estrechamente como sea posible a la trayectoria de planeo del ILS o a la trayectoria de planeo mínima del MLS, según corresponda.
-(21) La elevación de los haces de los elementos luminosos de las barras de ala deben ser la misma a ambos lados de la pista. La elevación de la parte superior del haz del elemento luminoso de indicación “ascienda” más próximo a cada barra de ala, y la de la parte inferior del haz del elemento luminoso de indicación “descienda” más próximo a cada barra de ala, debe ser la misma y debe corresponder a la pendiente de aproximación. El ángulo límite de la parte superior de los haces de los elementos luminosos sucesivos de indicación “ascienda”, disminuir 5′ de arco en el ángulo de elevación de cada elemento sucesivo a partir de la barra de ala. El ángulo límite de la parte inferior de los haces de los elementos luminosos de indicación “descienda” aumentar en 7′ de arco en cada elemento sucesivo a partir de la barra de ala. (Ver la Figura E-18).
-(22) El reglaje del ángulo de elevación de la parte superior de los haces de luz roja de la barra de ala y de los elementos luminosos de indicación “ascienda” deben ser tal que, durante una aproximación, el piloto de un avión para quien resulten visibles la barra de ala y tres elementos luminosos de indicación “ascienda” franquee con un margen seguro todos los objetos que se hallen en el área de aproximación, si ninguna de dichas luces aparece de color rojo.
+(21) La elevación de los haces de los elementos luminosos de las barras de ala deben ser la misma a ambos lados de la pista. La elevación de la parte superior del haz del elemento luminoso de indicación "ascienda" más próximo a cada barra de ala, y la de la parte inferior del haz del elemento luminoso de indicación "descienda" más próximo a cada barra de ala, debe ser la misma y debe corresponder a la pendiente de aproximación. El ángulo límite de la parte superior de los haces de los elementos luminosos sucesivos de indicación "ascienda", disminuir 5′ de arco en el ángulo de elevación de cada elemento sucesivo a partir de la barra de ala. El ángulo límite de la parte inferior de los haces de los elementos luminosos de indicación "descienda" aumentar en 7′ de arco en cada elemento sucesivo a partir de la barra de ala. (Ver la Figura E-18).
+(22) El reglaje del ángulo de elevación de la parte superior de los haces de luz roja de la barra de ala y de los elementos luminosos de indicación "ascienda" deben ser tal que, durante una aproximación, el piloto de un avión para quien resulten visibles la barra de ala y tres elementos luminosos de indicación "ascienda" franquee con un margen seguro todos los objetos que se hallen en el área de aproximación, si ninguna de dichas luces aparece de color rojo.
 (23) El ensanchamiento en azimut del haz luminoso debe estar convenientemente restringido si algún objeto, situado fuera de los límites de la superficie de protección contra obstáculos del sistema, pero dentro de los límites laterales de su haz luminoso, sobresaliera del plano de la superficie de protección contra obstáculos y un estudio aeronáutico indique que dicho objeto puede influir adversamente en la seguridad de las operaciones. La amplitud de la restricción debe determinar que el objeto permanezca fuera de los confines del haz luminoso.
 PAPI y APAPI
 Descripción:
@@ -1829,42 +1873,34 @@ Emplazamiento:
 Características:
 (6) Las luces de plataforma de viraje en la pista deben ser luces fijas unidireccionales de color verde y con las dimensiones del haz, de forma que la luz se vea solamente desde los aviones en la plataforma de viraje en la pista o en aproximación a la misma.
 (7) Las luces de plataforma de viraje en la pista se deben ajustarse a las especificaciones del Apéndice 2, Figura A2-13, A2-14 o A2-15, según corresponda.
-(s) Barras de parada
-Aplicación:
-(1) Debe instalarse una barra de parada en cada punto de espera de la pista asociado a una pista destinada a ser utilizada en condiciones de alcance visual en la pista inferiores a un valor de 350 m, salvo si:
+(*) (s) Barras de parada Aplicación:
+(1) Debe instalarse una barra de parada en cada punto de espera de la pista asociado a una pista destinada a ser utilizada en condiciones de alcance visual en la pista inferiores a un valor de 550 m, salvo si:
 (i) se dispone de ayudas y procedimientos apropiados para suministrar asistencia a fin de evitar que inadvertidamente haya tránsito en la pista; o
-(ii) se dispone de procedimientos operacionales para que, en aquellos casos en que las condiciones de alcance visual en la pista sean inferiores a un valor de 550 m, se limite el número:
+(ii) se dispone de procedimientos operacionales para que, en aquellos casos en que las condiciones de alcance visual en la pista sean inferiores a un valor de 550 rn, se limite el número:
 (A) de aeronaves en el área de maniobras a una por vez; y
 (B) de vehículos en el área de maniobras al mínimo esencial.
-(2) Debe instalarse una barra de parada en cada punto de espera de la pista asociado a una pista destinada a ser utilizada en condiciones de alcance visual en la pista con valores comprendidos entre 350 m y 550 m, salvo si:
-(i) se dispone de ayudas y procedimientos apropiados para suministrar asistencia a fin de evitar que inadvertidamente haya tránsito en la pista; o
-(ii) se dispone de procedimientos operacionales para que, en aquellos casos en que las condiciones de alcance visual en la pista sean inferiores a un valor de 550 m, se limite el número:
-(A) de aeronaves en el área de maniobras a una por vez; y
-(B) de vehículos en el área de maniobras al mínimo esencial.
-(3) En los casos en que haya más de una barra de parada asociada a una intersección de calle de rodaje/pista, sólo una debe estar activa en un momento determinado.
-(4) Se debe disponer de una barra de parada en un punto de espera intermedio cuando se desee completar las señales mediante luces y proporcionar control de tránsito por medios visuales.
+(2) En los casos en que haya más de una barra de parada asociada a una intersección de calle de rodaje/pista, sólo una debe estar activa en un momento determinado.
+(3) Se debe disponer de una barra de parada en un punto de espera intermedio cuando se desee completar las señales mediante luces y proporcionar control de tránsito por medios visuales.
 Emplazamiento:
-(5) Las barras de parada deben estar colocadas transversalmente en la calle de rodaje, en el punto en que se desee que el tránsito se detenga. En los casos en que se suministren las luces adicionales especificadas en (7) siguiente, dichas luces se deben emplazar a no menos de 3 m del borde de la calle de rodaje.
+(4) Las barras de parada deben estar colocadas transversalmente en la calle de rodaje, en el punto en que se desee que el tránsito se detenga. En los casos en que se suministren las luces adicionales especificadas en (6) siguiente, dichas luces se deben emplazar a no menos de 3 m del borde de la calle de rodaje.
 Características:
-(6) Las barras de parada consiste en luces de color rojo que son visibles en los sentidos previstos de las aproximaciones hacia la intersección o punto de espera de la pista, espaciadas a intervalos de 3 m, y colocadas transversalmente en la calle de rodaje.
-(7) Se debe añadir un par de luces elevadas en cada extremo de la barra de parada donde las luces de la barra de parada en el pavimento puedan quedar oscurecidas, desde la perspectiva del piloto, por ejemplo, a causa de la lluvia o donde pueda requerirse a un piloto que detenga la aeronave en una posición tan próxima a las luces que éstas no se vean al quedar bloqueadas por la estructura de la aeronave
-(8) Las barras de parada instaladas en un punto de espera de la pista deben ser unidireccionales y tender color rojo en la dirección de aproximación a la pista.
-(9) Las luces adicionales especificadas en (7) anterior, deben tener las mismas características que las otras luces de la barra de parada, pero deben ser visibles hasta la posición de la barra de parada para las aeronaves que se aproximan.
-(10) La intensidad de luz roja y las aperturas de haz de las luces de barra de parada deben estar de acuerdo con las especificaciones del Apéndice 2, Figuras A2-12 a A2-16, según corresponda.
-(11) Cuando las barras de parada se especifican como componente de un sistema avanzado de guía y control del movimiento en la superficie y cuando, desde el punto de vista de las operaciones, se requieran intensidades más elevadas para mantener los movimientos en la superficie a una velocidad determinada en condiciones de muy mala visibilidad o de mucha brillantez diurna, la intensidad de luz roja y las aperturas de haz de las luces de barra de parada deben ajustarse a las especificaciones del Apéndice 2, Figura A2-17, A2-18 o A2-19.
-(12) Cuando se requiera una lámpara de haz ancho, la intensidad de luz roja y las aperturas de haz de la luz de barra de parada deben ajustarse a las especificaciones del Apéndice 2, Figura A2-17 o A2-19.
-(13) El circuito eléctrico debe estar concebido de modo que:
+(5) Las barras de parada consisten en luces de color rojo que son visibles en los sentidos previstos de las aproximaciones hacia la intersección o punto de espera de la pista, espaciadas a intervalos de 3 m, y colocadas transversalmente en la calle de rodaje
+(6) Se debe añadir un par de luces elevadas en cada extremo de la barra de parada donde las luces de la barra de parada en el pavimento puedan quedar oscurecidas, desde la perspectiva del piloto, por ejemplo, a causa de la lluvia o donde pueda requerirse a un piloto que detenga la aeronave en una posición tan próxima a las luces que éstas no se vean al quedar bloqueadas por la estructura de la aeronave.
+(7) Las barras de parada instaladas en un punto de espera de la pista deben ser unidireccionales y tender color rojo en la dirección de aproximación a la pista.
+(8) Las luces adicionales especificadas en (6) anterior, deben tener las mismas características que las otras luces de la barra de parada, pero deben ser visibles hasta la posición de la barra de parada para las aeronaves que se aproximan.
+(9) La intensidad de luz roja y las aperturas de haz de las luces de barra de parada deben estar de acuerdo con las especificaciones del Apéndice 2, FigurasA2-12 aA2-16, según corresponda.
+(10) Cuando las barras de parada se especifican como componente de un sistema avanzado de guía y control del movimiento en la superficie y cuando, desde el punto de vista de las operaciones, se requieran intensidades más elevadas para mantener los movimientos en la superficie a una velocidad determinada en condiciones de muy mala visibilidad o de mucha brillantez diurna, la intensidad de luz roja y las aperturas de haz de las luces de barra de parada deben ajustarse a las especificaciones del Apéndice 2, FiguraA2-17,A2- 18 oA2-19.
+(11) Cuando se requiera una lámpara de haz ancho, la intensidad de luz roja y las aperturas de haz de la luz de barra de parada deben ajustarse a las especificaciones del Apéndice 2, FiguraA2-17 oA2-19.
+(12) El circuito eléctrico debe estar concebido de modo que:
 (i) las barras de parada emplazadas transversalmente en calles de rodaje de entrada sean de conmutación selectiva;
 (ii) las barras de parada emplazadas transversalmente en calles de rodaje, previstas únicamente para salidas, sean de conmutación selectiva o por grupos;
-(iii) cuando se ilumine una barra de parada, las luces de eje de calle de rodaje instaladas más
-allá de la barra de parada se apaguen hasta una distancia por lo menos de 90 m; y
-(iv) las barras de parada están interconectadas (interconexión de bloqueo) con las luces de eje
-de calle de rodaje, de tal forma que si se iluminan las luces de eje de calle de rodaje se
-apaguen las de la barra de parada y viceversa.
+(iii) cuando se ilumine una barra de parada, las luces de eje de calle de rodaje instaladas más allá de la barra de parada se apaguen hasta una distancia por lo menos de 90 m; y
+(iv) las barras de parada están interconectadas (interconexión de bloqueo) con las luces de eje de calle de rodaje, de tal forma que si se iluminan las luces de eje de calle de rodaje se apaguen las de la barra de parada y viceversa.
+(*)(Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 44497 del 9 de enero del 2024)
 (t) Luces de punto de espera intermedio
 Aplicación:
 (1) Salvo si se ha instalado una barra de parada, se deben instalar luces de punto de espera intermedio en los puntos de espera intermedios destinados a ser utilizados en condiciones de alcance visual en la pista inferiores a un valor de 350 m.
-(2) Debe disponerse de luces de punto de espera intermedio en un punto de espera intermedio cuando no haya necesidad de señales de “parada-circule” como las proporcionadas por la barra de parada.
+(2) Debe disponerse de luces de punto de espera intermedio en un punto de espera intermedio cuando no haya necesidad de señales de "parada-circule" como las proporcionadas por la barra de parada.
 Emplazamiento:
 (3) Las luces de punto de espera intermedio deben estar a lo largo de las señales de punto de espera intermedio a una distancia de 0,3 m antes de la señal.
 Características:
@@ -1876,15 +1912,24 @@ Aplicación:
 (ii) en condiciones de alcance visual en la pista con valores comprendidos entre 550 m y 1 200 m cuando la densidad del tránsito sea intensa.
 (2) Salvo que la DGAC lo establezca de otro modo, como parte de las medidas de prevención de incursión en la pista, se deben proporcionar luces de protección de pista, configuración A o B, en cada intersección de calle de rodaje/pista donde se hayan identificado lugares críticos de incursiones en la pista, y usarse en todas las condiciones meteorológicas diurnas y nocturnas
 (3) Las luces de protección de pista de configuración B no deben ser instaladas en emplazamiento común con una barra de parada.
+(4) Cuando exista más de un punto de espera de la pista en una intersección de calle de rodaje/pista, solamente se iluminará el conjunto de luces de protección de pista que esté asociado al punto de espera operacional de la pista.
+(Así adicionado el punto anterior por el artículo 1° del decreto ejecutivo N° 44497 del 9 de enero del 2024)
 Emplazamiento:
-(4) Las luces de protección de pista, configuración A, se instalan a cada lado de la calle de rodaje, a una distancia del eje de la pista que no sea inferior a la especificada en la Tabla C-2 (sub parte C de este RAC) para las pistas de despegue.
-(5) Las luces de protección de pista, configuración B, se deben instalar a través de la calle de rodaje, a una distancia del eje de la pista que no sea inferior a la especificada en la Tabla C-2 (sub parte C de este RAC) para las pistas de despegue.
+(5) Las luces de protección ele pista, configuración A, se instalan a cada lado de la calle de rodaje, en el lado de espera de la señal de punto de espera de la pista.
+(Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 44497 del 9 de enero del 2024)
+(6) Las luces de protección de pista, configuración B, en el lado de espera de la señal de punto de espera de la pista.
+(Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 44497 del 9 de enero del 2024)
 Características:
-(6) Las luces de protección de pista, configuración A, consisten en dos pares de luces de color amarillo.
-(7) Para aumentar el contraste entre el encendido y apagado de las luces de protección de pista, configuración A, previstas para usarse de día, debe ponerse una visera encima de cada lámpara, de un tamaño suficiente para evitar que la luz solar entre el lente, sin obstruir su funcionamiento.
+(7) Las luces de protección de pista, configuración A, consisten en dos pares de luces de color amarillo.
+(Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 44497 del 9 de enero del 2024)
+(8) Para aumentar el contraste entre el encendido y apagado de las luces de protección de pista, configuración A, previstas para usarse de día, debe ponerse una visera encima de cada lámpara, de un tamaño suficiente para evitar que la luz solar entre el lente, sin obstruir su funcionamiento.
 [imagen]
-(8) Las luces de protección de pista, configuración B, consisten en luces de color amarillo espaciadas a intervalos de 3 m, colocadas a través de la calle de rodaje.
-(9) El haz luminoso debe ser unidireccional y debe estar alineado de modo que la luz pueda ser vista por el piloto de un avión que esté efectuando el rodaje hacia el punto de espera.
+Figura E-29. Luces de protección de pista
+(Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 44497 del 9 de enero del 2024)
+(9) Las luces de protección de pista, configuración B, consisten en luces de color amarillo espaciadas a intervalos de 3 m, colocadas a través de la calle de rodaje.
+(Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 44497 del 9 de enero del 2024)
+(10) El haz luminoso debe ser unidireccional de color amarillo en el sentido de aproximación hacia el punto de espera de la pista.
+(Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 44497 del 9 de enero del 2024)
 (10) La intensidad de la luz amarilla y las aperturas de haz de las luces de configuración A deben corresponder a las especificaciones del Apéndice 2, Figura A2-24.
 (11) Si se prevé que las luces de protección de pista se usen de día, la intensidad de la luz amarilla y las aperturas de haz de las luces de configuración A deben corresponder a las especificaciones del Apéndice 2, Figura A2-25.
 (12) Cuando las luces de protección de pista estén especificadas como componentes de un sistema avanzado de guía y control del movimiento en la superficie en que se requieran intensidades luminosas más elevadas, la intensidad de la luz amarilla y las aperturas de haz de las luces de configuración A deben corresponder a las especificaciones del Apéndice 2, Figura A2-25.
@@ -1905,10 +1950,10 @@ Características:
 (3) La distribución espectral de los proyectores para iluminación de plataforma debe ser tal que los colores utilizados para el señalamiento de aeronaves relacionados con los servicios de rutina y para las señales de superficie y de obstáculos puedan identificarse correctamente.
 (4) La iluminación media debe ser por lo menos la siguiente:
 (i) Puesto de estacionamiento de aeronave:
-(A) iluminación horizontal — 20 lux con una relación de uniformidad (media a mínima) no superior a 4:1; e
-(B) iluminación vertical — 20 lux a una altura de 2 m sobre la plataforma, en las direcciones pertinentes.
+(A) iluminación horizontal - 20 lux con una relación de uniformidad (media a mínima) no superior a 4:1; e
+(B) iluminación vertical - 20 lux a una altura de 2 m sobre la plataforma, en las direcciones pertinentes.
 (ii) Otras áreas de la plataforma:
-(A) iluminación horizontal — 50% de la iluminación media en los puestos de estacionamiento de aeronave, con una relación de uniformidad (media a mínima) no superior a 4:1.
+(A) iluminación horizontal - 50% de la iluminación media en los puestos de estacionamiento de aeronave, con una relación de uniformidad (media a mínima) no superior a 4:1.
 (w) Sistema de guía visual para el atraque
 Aplicación:
 (1) Se debe proporcionar un sistema de guía visual para el atraque cuando se tenga la intención de indicar, por medio de una ayuda visual, la posición exacta de una aeronave en un puesto de estacionamiento y cuando no sea posible el empleo de otros medios tales como señaleros.
@@ -1969,7 +2014,7 @@ Distancia | ±500 mm | ±1 000 mm | ±1 300 mm | No se especifica
 (13) Cuando la distancia de acercamiento se presente en números, debe proporcionar en metros enteros hasta la posición de parada y con un decimal como mínimo, tres metros antes de esa posición.
 (14) En toda la maniobra de atraque se debe proporcionar los medios adecuados para que el AVDGS indique si es necesario detener inmediatamente la aeronave. En ese caso, que incluye falla del A-VDGS, no se debe proporcionar ninguna otra información.
 (15) El personal responsable de la seguridad operacional del puesto de estacionamiento debe contar con los medios para iniciar la interrupción inmediata del procedimiento de atraque.
-(16) Cuando se requiera interrumpir de manera inmediata la maniobra de atraque, se debe presentar la indicación “ALTO” en caracteres rojos.
+(16) Cuando se requiera interrumpir de manera inmediata la maniobra de atraque, se debe presentar la indicación "ALTO" en caracteres rojos.
 (y) Luces de guía para maniobras en los puestos de estacionamiento de aeronaves
 Aplicación:
 (1) Se debe suministrar luces de guía para maniobras en los puestos de estacionamiento de aeronaves, para facilitar el emplazamiento preciso de las aeronaves en un puesto de estacionamiento en una plataforma pavimentada que esté destinado a usarse en malas condiciones de visibilidad, a no ser que se suministre guía adecuada por otros medios.
@@ -1994,35 +2039,19 @@ Características:
 (5) El haz luminoso del punto de espera en la vía de vehículos debe ser unidireccional y debe estar alineado de modo que la luz pueda ser vista por el conductor de un vehículo que esté acercándose al punto de espera.
 (6) La intensidad del haz luminoso debe ser la adecuada a las condiciones de visibilidad y luz ambiente en las cuales se prevé utilizar el punto de espera, pero no debe deslumbrar al conductor.
 (7) La frecuencia de los destellos de la luz roja debe ser de 30 a 60 destellos por minuto.
-(aa) Barra de prohibición de acceso
+(*) (aa) Barra de prohibición de acceso
 Aplicación
-(1) Se Debe instalar una barra de prohibición de acceso colocada transversalmente en una calle de rodaje destinada a ser utilizada como calle de rodaje de salida únicamente para evitar que inadvertidamente el tránsito ingrese en esa calle de rodaje.
+(1) Se debe instalar una barra de prohibición de acceso colocada transversalmente en una calle de rodaje destinada a ser utilizada como calle de rodaje de salida únicamente para evitar que inadvertidamente el tránsito ingrese en esa calle de rodaje.
 Emplazamiento
-(2) Se Debe instalar una barra de prohibición de acceso colocada transversalmente al final de una calle de rodaje destinada a ser utilizada como calle de rodaje de salida únicamente, cuando se desee, para evitar que el tránsito ingrese en sentido contrario en la calle de rodaje.
+(2) Se debe instalar una barra de prohibición de acceso colocada transversalmente al final de una calle de rodaje destinada a ser utilizada como calle de rodaje de salida únicamente, cuando se desee, para evitar que el tránsito ingrese en sentido contrario en la calle de rodaje.
+(3) Las barras de prohibición de acceso deberían colocarse junto con un letrero y/o una señal de prohibición de acceso.
 Características
-(3) Una barra de prohibición de acceso debe consistir en luces unidireccionales espaciadas a intervalos uniformes de no más de 3 m, de color rojo en la dirección o direcciones previstas de aproximación a la pista.
 (4) Se debe añadir un par de luces elevadas en cada extremo de la barra de prohibición de acceso donde las luces de la barra de prohibición de acceso en el pavimento puedan quedar oscurecidas, desde la perspectiva del piloto, por ejemplo, a causa de la lluvia, o donde pueda requerirse a un piloto que detenga la aeronave en una posición tan próxima a las luces que éstas no se vean al quedar bloqueadas por la estructura de la aeronave
-(5) La intensidad de la luz roja y las aperturas de haz de las luces de barra de prohibición de acceso deben cumplir con las especificaciones del Apéndice 2, Figuras A2-12 a A2-16, según corresponda.
-(6) Cuando se especifiquen barras de prohibición de acceso como componente de un sistema avanzado de guía y control de movimientos en la superficie y cuando, desde un punto de vista operacional, se requieran intensidades más elevadas para mantener los movimientos en la superficie a una velocidad determinada en condiciones de muy mala visibilidad o de mucha brillantez diurna, la intensidad de la luz roja y las aperturas de haz de las luces de barra de prohibición de acceso deben cumplir con las especificaciones del Apéndice 2, Figura A2-17, A2-18 o A2-19.
+(5) La intensidad de la luz roja y las aperturas de haz de las luces de barra de prohibición ele acceso deben cumplir con las especificaciones del Apéndice 2, Figuras A2-12 a A2-16, según corresponda.
+(6) Cuando se especifiquen barras de prohibición de acceso como componente de un sistema avanzado de guía y control de movimientos en la superficie y cuando, desde un punto de vista operacional, se requieran intensidades más elevadas para mantener los movimientos en la superficie a una velocidad determinada en condiciones de muy mala visibilidad o de mucha brillantez diurna la intensidad de la luz roja y las aperturas de haz de las luces de barra de prohibición de acceso deben cumplir con las especificaciones del Apéndice 2, Figura A2-17, A2-18 o A2-19.
 (7) Cuando se requiera una lámpara de haz ancho, la intensidad de luz roja y las aperturas de haz de las luces de barra de prohibición de acceso deben cumplir con las especificaciones del Apéndice 2, Figura A2-17 o A2-19.
-(8) El circuito eléctrico debe estar diseñado de modo que:
-(i) las barras de prohibición de acceso sean de conmutación selectiva o por grupos;
-(ii) cuando se ilumine una barra de prohibición de acceso, las luces de eje de calle de rodaje instaladas más allá de la barra de prohibición de acceso, vistas en dirección de la pista, se deben apagar hasta una distancia de por lo menos 90 m; y
-(iii) cuando se ilumine una barra de prohibición de acceso, se deben apagar las barras de parada instaladas entre la barra de prohibición de acceso y la pista.
-Luces de situación de la pista (Ver CCA 14.405 (bb))
-Las luces de situación de la pista (RWSL) son un tipo de sistema autónomo de advertencia de incursión en la pista (ARIWS). Los dos componentes visuales básicos del RWSL son las luces de entrada a la pista (REL) y las luces de espera de despegue (THL). Es posible instalar sólo uno de los dos, pero los dos componentes están diseñados para complementarse entre sí.
-Emplazamiento
-(1) Cuando se proporcionen, las REL tendrán un desplazamiento de 0,6 m respecto del eje de calle de rodaje en el lado opuesto a las luces de dicho eje, y empezarán 0,6 m antes del punto de espera de la pista extendiéndose hasta el borde de la misma. Se colocará una sola luz adicional en la pista a 0,6 m del eje de la misma y se alineará con las dos últimas REL de la calle de rodaje.
-(2) Las REL constan de por lo menos cinco unidades de luces y se deben esparcir entre sí a intervalos de por lo menos 3,8 m y de máximo 15,2 m longitudinalmente, dependiendo de la longitud correspondiente de la calle de rodaje, a excepción de una luz única instalada cerca del eje de pista.
-(3) Cuando se proporcionen, las THL deben estar desplazadas 1,8 m a cada lado de las luces del eje de pista y se deben extender, por pares, empezando en un punto localizado a 115 m del inicio de la pista y, a partir de ahí, cada 30 m a lo largo de por lo menos una distancia de 450 m.
-Características
-(4) Cuando se proporcionen, las REL constarán de una sola línea de luces fijas en el pavimento que se iluminarán de rojo en la dirección de la aeronave que se aproxima a la pista.
-(5) Las REL se iluminarán, como una serie en cada intersección de calle de rodaje/pista, donde estén instaladas, en menos de dos segundos después de que el sistema determine que se requiere una advertencia.
-(6) La intensidad y la abertura del haz de las REL se deben ajustar a las especificaciones del Apéndice 2, Figuras A2-12 y A2-14.
-(7) Cuando se proporcionen, las THL constarán de dos líneas de luces fijas en el pavimento que se iluminarán de rojo en la dirección de la aeronave que despega.
-(8) Las THL se iluminarán, como una serie en la pista, en menos de dos segundos después de que el sistema determine que se requiere una advertencia.
-(9) La intensidad y la abertura del haz de las THL se ajustarán a las especificaciones del Apéndice 2, Figura A2-26.
-(10) Las REL y THL deben automatizarse al grado de que el único control de cada sistema sea la desactivación de uno o ambos sistemas.
+(8) Desde la calle de rodaje, no serán visibles las luces de eje de calle de rodaje instaladas más allá de la barra de prohibición de acceso, mirando en dirección a la pista.
+(*)(Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 44497 del 9 de enero del 2024)
 RAC 14.407 Letreros. (Ver CCA 14.407) y Apéndice 4
 (a) Generalidades
 Aplicación:
@@ -2035,15 +2064,17 @@ Características:
 (4) Los letreros deben ser rectangulares, tal como se indica en las Figuras E-29 y E-30, con el lado más largo en posición horizontal.
 (5) Los únicos letreros de color rojo en el área de movimiento deben ser los letreros con instrucciones obligatorias.
 (6) Las inscripciones de los letreros deben ser conformes a las disposiciones del Apéndice 4.
-Tabla E-5. Distancias relativas al emplazamiento de los letreros de guía para el rodaje, incluidos los letreros de salida de pista
-Altura de letrero (mm) | Distancia perpendicular desde el borde definido del pavimento de la calle de rodaje hasta el borde más cercano del letrero | Distancia perpendicular desde el borde definido del pavimento de la pista hasta el borde más cercano del letrero
-| | |
-Número de clave | Indicaci ón | Placa frontal (mín) | Instalado (máx)
-1 o 2 | 200 | 400 | 700 | 5-11 m | 3-10 m
-1 o 2 | 300 | 600 | 900 | 5-11 m | 3-10 m
-3 o 4 | 300 | 600 | 900 | 11-21 m | 8-15 m
-3 o 4 | 400 | 800 | 1 100 | 11-21 m | 8-15 m
-[imagen]
+(*)Tabla E-5. Distancias relativas al emplazamiento de los letreros de guía para el rodaje, incluidos los letreros de salida de p ist_a
+Altura de letrero (mm) | Distancia perpendicular desde el borde | Distancia perpendicular desde el borde
+definido del | definido del
+Número | Indicación | Placa | Instalado | pavimento de la calle de rodaje | pavimento de la pista hasta el
+de clave | | frontal (mín.) | (máx.) | hasta el borde más cercano del | borde más cercano del
+| | | | letrero | letrero
+1o2 | 200 | 300 | 700 | 5-11111 | 3-10 m
+1o2 | 300 | 450 | 900 | 5-11111 | 3-10111
+3o4 | 300 | 450 | 900 | 11-21 m | 8-15111
+3o4 | 400 | 600 | 1 100 | 11-21111 |
+(*)(Así reformada la tabla anterior por el artículo 1° del decreto ejecutivo N° 44497 del 9 de enero del 2024) [imagen]
 (7) Los letreros deben estar iluminados de conformidad con las disposiciones del Apéndice 4, cuando se prevea utilizarlos en los siguientes casos:
 (i) en condiciones de alcance visual en la pista inferior a un valor de 800 m; o
 (ii) durante la noche, en pistas de vuelo por instrumentos; o
@@ -2066,7 +2097,7 @@ Aplicación:
 Emplazamiento:
 (8) Se debe colocar un letrero de designación de pista en las intersecciones de calle de rodaje/pista o en las intersecciones de pista/pista, a cada lado de la señal de punto de espera de la pista, de forma que se vea de frente al aproximarse a la pista.
 [imagen]
-Nota. — La distancia X se obtiene de la Tabla C-2. La distancia Y se establece desde el borde del área crítica/sensible del ILS/MLS
+Nota. - La distancia X se obtiene de la Tabla C-2. La distancia Y se establece desde el borde del área crítica/sensible del ILS/MLS
 Figura E-32. Ejemplos de la ubicación de los letreros en las intersecciones de calle de rodaje/pista
 (9) Se debe instalar un letrero de punto de espera de Categorías I, II o III a cada lado de la señal de punto de espera de la pista, de modo que se vea de frente al aproximarse al área crítica.
 (10) Se debe colocar un letrero de PROHIBIDA LA ENTRADA al comienzo de la zona a la cual no esté autorizada la entrada, a cada lado de la calle de rodaje vista desde la perspectiva del piloto.
@@ -2093,7 +2124,7 @@ Aplicación:
 (10) Se debe proporcionar un letrero de emplazamiento junto con todo letrero de designación de pista, excepto en una intersección pista/pista.
 (11) Se debe proporcionar un letrero de emplazamiento junto con todo letrero de dirección, pero puede omitir cuando haya estudios aeronáuticos que indiquen que es innecesario.
 (12) Cuando sea necesario, se debe proporcionar un letrero de emplazamiento para identificar las calles de rodaje que salen de una plataforma o las calles de rodaje que se encuentran más allá de una intersección.
-(13) Cuando una calle de rodaje termina en una intersección en forma de “T” y es necesario indicarlo, se debe utilizar una barrera, un letrero de dirección u otra ayuda visual adecuada.
+(13) Cuando una calle de rodaje termina en una intersección en forma de "T" y es necesario indicarlo, se debe utilizar una barrera, un letrero de dirección u otra ayuda visual adecuada.
 Emplazamiento:
 (14) A reserva de lo especificado en (c)(16) y (c)(24) posteriores, los letreros de información se deben colocan, siempre que sea posible, en el lado izquierdo de la calle de rodaje, de conformidad con la Tabla E-5.
 (15) En la intersección de calle de rodaje, los letreros de información se debe colocar antes de la intersección y en línea con la señal de punto de espera intermedio. Salvo que la DGAC lo establezca de otro modo, cuando no haya señal de punto de espera intermedio, los letreros se deben instalar como mínimo a 60 m del eje de la calle de rodaje intersecada cuando el número de clave sea 3 o 4, y a 40 m como mínimo cuando el número de clave sea 1 o 2.
@@ -2109,7 +2140,7 @@ La distancia entre el letrero y el eje de la pista no debe ser inferior al mayor
 (22) Normalmente, los letreros de destino no deben colocarse junto con letreros de
 emplazamiento o dirección.
 (23) Los letreros de información que no sean los de emplazamiento no se debe colocar junto a letreros con instrucciones obligatorias.
-(24) Los letreros de dirección, las barreras u otras ayudas visuales apropiadas que se utilicen para identificar una intersección en forma de “T” deben colocarse en el lado de la intersección que está frente a la calle de rodaje.
+(24) Los letreros de dirección, las barreras u otras ayudas visuales apropiadas que se utilicen para identificar una intersección en forma de "T" deben colocarse en el lado de la intersección que está frente a la calle de rodaje.
 Características:
 (25) Los letreros de información que no sean de emplazamiento consisten en inscripciones en negro sobre fondo amarillo.
 (26) Los letreros de emplazamiento deben consistir en inscripciones en amarillo sobre fondo negro y cuando se trata de un solo letrero, además debe tener un borde en amarillo.
@@ -2125,9 +2156,16 @@ Características:
 (ii) los letreros de dirección se debe colocar de manera que la dirección de las flechas varíe con respecto a la vertical según la desviación que siga la calle de rodaje pertinente;
 (iii) se debe colocar un letrero de dirección apropiado junto al letrero de emplazamiento, cuando la calle de rodaje en cuestión cambie significativamente de dirección después de la intersección; y
 (iv) en los letreros de dirección adyacentes se debe trazar una línea vertical negra entre ellos, como se ilustra en la Figura E-31.
-(35) Las calles de rodaje se deben identificar con un designador que consista en una letra, varias letras, o bien una o varias letras seguidas de un número.
-(36) Cuando se trate de designar calles de rodaje, debe evitarse, siempre que sea posible, el uso de las letras I, O y X y el uso de palabras tales como interior y exterior, a fin de evitar confusión con los números 1, 0 y con la señal de zona cerrada.
-(37) El uso de números solamente en el área de maniobras se debe reservar para la designación de pistas.
+(35) Las calles de rodaje se deben identificar con un designador que sólo se use una vez en un aeródromo y que consista una única letra, dos letras, o bien una o varias letras seguidas de un número.
+(Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 44497 del 9 de enero del 2024)
+(36) Cuando se trate de designen calles de rodaje, debe evitarse, siempre que sea posible, el uso de palabras tales como interior y exterior.
+(Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 44497 del 9 de enero del 2024)
+(37) Cuando se designen calles de rodaje, no se utilizarán las letras 1, 0 ni X, para evitar confusión con los números 1, 0 y con la señal de zona cerrada.
+(Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 44497 del 9 de enero del 2024)
+(38) El uso de números solamente en el área de maniobras se debe reservar para la designación de pistas.
+(Así adicionado el punto anterior por el artículo 1° del decreto ejecutivo N° 44497 del 9 de enero del 2024)
+(39) Los designadores del puesto de estacionamiento en la plataforma no deben ser iguales a los designadores de las calles de rodaje.
+(Así adicionado el punto anterior por el artículo 1° del decreto ejecutivo N° 44497 del 9 de enero del 2024)
 (d) Letreros de punto de verificación del VOR en el aeródromo
 Aplicación:
 (1) Cuando se establezca un punto de verificación del VOR en el aeródromo, se debe indicar mediante la señal y el letrero correspondientes.
@@ -2217,7 +2255,7 @@ Emplazamiento:
 Características:
 (3) Las balizas delimitadoras deben ser de forma similar a la indicada en la Figura E-34 o de forma cónica cuyas dimensiones mínimas sean de 50 cm de alto y 75 cm de diámetro en la base. Las balizas deben ser de un color que contraste con el fondo contra el cual se hayan de ver. Se debe usar un solo color, el anaranjado o el rojo, o dos colores que contrasten, anaranjado y blanco, o bien rojo y blanco, siempre que tales colores no se confundan con el fondo.
 [imagen]
-SUBPARTE F – AYUDAS VISUALES INDICADORAS DE OBSTÁCULOS
+SUBPARTE F - AYUDAS VISUALES INDICADORAS DE OBSTÁCULOS
 RAC 14.501 Objetos que hay que señalar o iluminar.
 (Ver CCA 14.501)
 Objetos dentro de los límites laterales de las superficies limitadoras de obstáculos
@@ -2278,7 +2316,7 @@ b) Para las luces de destellos, la intensidad efectiva se determina de conformid
 c) Para aplicación en turbinas eólicas , los destellos se deben emitir a intervalos iguales a los de la luz de la barquilla.
 Tabla F-2. Distribución de la luz para luces de obstáculos de baja intensidad
 [imagen]
-Nota. — Esta tabla no incluye aperturas del haz horizontal recomendadas. RAC 14.503 (a)(3) requiere una cobertura de 360º alrededor de un obstáculo.
+Nota. - Esta tabla no incluye aperturas del haz horizontal recomendadas. RAC 14.503 (a)(3) requiere una cobertura de 360º alrededor de un obstáculo.
 Por consiguiente, el número de luces necesarias para cumplir este requisito dependerá de la apertura del haz horizontal de cada luz así como de la forma del obstáculo. De este modo, con aperturas de haz más estrechas, se necesitarán más luces.
 a) 360º horizontal. Para luces de destello, la intensidad se lee como intensidad efectiva, determinada de conformidad con el Manual de diseño de
 aeródromos (Doc. 9157), Parte 4.
@@ -2286,16 +2324,16 @@ b) Entre 2 y 10º vertical. Para los ángulos de elevación vertical se toma com
 c) Entre 2 y 20º vertical. Para los ángulos de elevación vertical se toma como referencia la horizontal cuando la luz está a igual nivel.
 d) La intensidad máxima debería estar situada a aproximadamente 2,5º vertical.
 e) La intensidad máxima debería estar situada a aproximadamente 17º vertical.
-f) La apertura de haz está definida como el ángulo entre el plano horizontal y las direcciones para las cuales la intensidad excede la mencionada en la columna de “intensidad”.
+f) La apertura de haz está definida como el ángulo entre el plano horizontal y las direcciones para las cuales la intensidad excede la mencionada en la columna de "intensidad".
 INTENCIONALMENTE EN BLANCO
 Tabla F-3. Distribución de la luz para luces de obstáculos de mediana y alta intensidad de acuerdo con las intensidades de referencia de la Tabla F-1
 [imagen]
-Nota. — Esta tabla no incluye aperturas del haz horizontal recomendadas. RAC 14.503 (a)(3) requiere una cobertura de 360º alrededor de un obstáculo.
+Nota. - Esta tabla no incluye aperturas del haz horizontal recomendadas. RAC 14.503 (a)(3) requiere una cobertura de 360º alrededor de un obstáculo.
 Por consiguiente, el número de luces necesarias para cumplir este requisito dependerá de la apertura del haz horizontal de cada luz así como de la forma del obstáculo. De este modo, con aperturas de haz más estrechas, se necesitarán más luces.
 a) 360º horizontal. Todas las intensidades están expresadas en candelas. Para luces de destello, la intensidad se lee como intensidad efectiva, determinada de conformidad con el Manual de diseño de aeródromos (Doc. 9157), Parte 4.
 b) Para los ángulos de elevación vertical se toma como referencia la horizontal cuando la luz está a igual nivel.
-c) La apertura del haz está definida como el ángulo entre el plano horizontal y las direcciones para las cuales la intensidad excede la mencionada en la columna de “intensidad”.
-Nota. — En caso de una configuración específica justificada por un estudio aeronáutico puede ser necesaria una apertura de haz mayor.
+c) La apertura del haz está definida como el ángulo entre el plano horizontal y las direcciones para las cuales la intensidad excede la mencionada en la columna de "intensidad".
+Nota. - En caso de una configuración específica justificada por un estudio aeronáutico puede ser necesaria una apertura de haz mayor.
 (8) Las luces de obstáculos de baja intensidad deben ser colocadas sobre objetos de movilidad limitada, tales como las pasarelas telescópicas, deben ser luces fijas de color rojo y, como mínimo, ser conformes a las especificaciones para las luces de obstáculos de baja intensidad, tipo A, de la Tabla F-1. La intensidad de las luces deben ser suficiente para asegurar que los obstáculos sean notorios considerando la intensidad de las luces adyacentes y el nivel general de iluminación contra el que se deben observar.
 (c) Objetos fijos
 Señalamiento
@@ -2353,8 +2391,8 @@ Iluminación de objetos con una altura de 150 m o más sobre el nivel del terren
 (33) Cuando la presencia de un objeto se indique mediante luces de obstáculos de mediana intensidad, Tipo C, se deben colocar luces adicionales a niveles intermedios. Estas luces adicionales intermedias se deben esparcir tan uniformemente como sea posible entre las luces superiores y el nivel del terreno, o entre las luces superiores y el nivel de la parte superior de los edificios cercanos, según corresponda, con una separación que no exceda de 52 m
 (d) Turbinas eólicas
 (1) Las turbinas eólicas se deben señalar y/o iluminar cuando se determine que constituyen un obstáculo.
-Nota 1.— Pueden proporcionarse luces o señales donde, en opinión del Estado, dichas luces o señales se consideren necesarias.
-Nota 2.— Véanse RAC 14.305 (a)(b)(c)
+Nota 1.- Pueden proporcionarse luces o señales donde, en opinión del Estado, dichas luces o señales se consideren necesarias.
+Nota 2.- Véanse RAC 14.305 (a)(b)(c)
 Señalamiento
 (2) Los álabes del rotor, la barquilla y los 2/3 superiores del mástil de soporte de las turbinas eólicas deben pintarse de color blanco, excepto cuando se indique de otro modo en un estudio aeronáutico Iluminación
 (3) Cuando la iluminación se considere necesaria en los parques eólicos, es decir, grupos de dos o más turbinas eólicas, los parques eólicos deben considerarse como objeto extenso y deben instalarse luces:
@@ -2388,9 +2426,9 @@ Iluminación
 (i) un estudio aeronáutico indique que esas luces son esenciales para el reconocimiento de la presencia de líneas eléctricas o cables, etc.; o
 (ii) no se haya considerado conveniente instalar balizas en los alambres, cables, etc.
 (9) Cuando se utilicen luces de obstáculos de alta intensidad, Tipo B, se deben instalar a tres niveles, a saber:
-— en la parte superior de las torres;
-— a la altura del punto más bajo de la catenaria de las líneas eléctricas o cables de las torres; y
-— a un nivel aproximadamente equidistante entre los dos niveles anteriores.
+- en la parte superior de las torres;
+- a la altura del punto más bajo de la catenaria de las líneas eléctricas o cables de las torres; y
+- a un nivel aproximadamente equidistante entre los dos niveles anteriores.
 (10) Los destellos de las luces de obstáculos de alta intensidad, Tipo B, que indican la presencia de una torre que sostiene líneas eléctricas elevadas, cables suspendidos, etc., deben ser sucesivos; destellando en primer lugar la luz intermedia, después la luz superior y por último la luz inferior.
 El intervalo entre destellos de las luces deben ser aproximadamente el indicado en las siguientes relaciones:
 [imagen]
@@ -2399,7 +2437,7 @@ El intervalo entre destellos de las luces deben ser aproximadamente el indicado 
 (12) Los ángulos de reglaje de instalación de las luces de obstáculos de alta intensidad, Tipo B, deben ajustarse a lo indicado en la Tabla F-5.
 Tabla F-5. Instalación de ángulos de reglaje para las luces de obstáculos de alta intensidad
 [imagen]
-SUBPARTE G – AYUDAS VISUALES INDICADORAS DE ZONAS
+SUBPARTE G - AYUDAS VISUALES INDICADORAS DE ZONAS
 DE USO RESTRINGIDO
 RAC 14.601 Pistas y calles de rodaje cerradas en su totalidad o en parte
 (Ver CCA 14.601)
@@ -2449,7 +2487,7 @@ Características de las banderas de área fuera de servicio
 (f) Las banderas de área fuera de servicio deben ser cuadradas, de 0,5 m de lado por lo menos y de color rojo, anaranjado o amarillo o de cualquiera de dichos colores en combinación con el blanco.
 Características de los tableros de área fuera de servicio
 (g) Los tableros de área fuera de servicio deben tener como mínimo 0,5 m de altura y 0,9 m de ancho con fajas verticales alternadas rojas y blancas o anaranjadas y blancas.
-SUBPARTE H – SISTEMA ELÉCTRICO
+SUBPARTE H - SISTEMA ELÉCTRICO
 RAC 14.701 Sistemas de suministro de energía eléctrica para instalaciones de navegación aérea
 (Ver CCA 14.701)
 (a) Para el funcionamiento seguro de las instalaciones de navegación aérea en los aeródromos se deben instalar fuentes primarias de energía.
@@ -2524,7 +2562,7 @@ RAC 14.705 Dispositivo monitor
 (d) En el caso de pistas destinadas a ser utilizadas en condiciones de alcance visual en la pista inferior a un valor del orden de 550 m, los sistemas de iluminación que figuran en la Tabla H-1 deben estar controlados automáticamente de modo que indiquen si cualquiera de sus elementos funciona por debajo del mínimo especificado en RAC 139.311, según corresponda. Esta información debe retransmitirse automáticamente al equipo de mantenimiento.
 (e) En el caso de pistas destinadas a ser utilizadas en condiciones de alcance visual en la pista inferior a un valor del orden de 550 m, los sistemas de iluminación que figuran en la Tabla H-1 de be estar controlados automáticamente de modo que indiquen si cualquiera de sus elementos funciona por debajo del mínimo especificado por las autoridades competentes para continuar las operaciones.
 Esta información debe retransmitirse automáticamente a la dependencia del servicio de tránsito aéreo y parecer en un lugar prominente.
-SUBPARTE I – SERVICIOS OPERACIONALES, EQUIPO E INSTALACIONES DE
+SUBPARTE I - SERVICIOS OPERACIONALES, EQUIPO E INSTALACIONES DE
 AERÓDROMO
 RAC 14.815 Sistemas de guía y control del movimiento en la superficie
 (Ver CCA 14.815(a)(e)(f)(h))
@@ -2561,13 +2599,11 @@ RAC 14.817 Emplazamiento de equipo e instalaciones en las zonas de operaciones
 (d) Con excepción de los que por sus funciones requieran estar situados en ese lugar para fines de navegación aérea o de seguridad operacional de las aeronaves, no deben emplazarse equipos o instalaciones a 240 m o menos del extremo de la franja ni a:
 (1) 60 m o menos de la prolongación del eje cuando el número de clave sea 3 o 4; o
 (2) 45 m o menos de la prolongación del eje cuando el número de clave sea 1 o 2; de una pista de aproximaciones de precisión de Categoría I, II o III.
-(e) Cualquier equipo o instalación requerido para fines de navegación aérea o de seguridad operacional de las aeronaves que deba estar emplazado en una franja, o cerca de ella, de una pista de aproximaciones de precisión de Categoría I, II o III y que:
-(1) esté colocado en un punto de la franja a 77,5 m o menos del eje de pista cuando el número de clave sea 4 y la letra de clave sea F; o
-(2) esté colocado a 240 m o menos del extremo de la franja y a:
-(i) 60 m o menos de la prolongación del eje cuando el número de clave sea 3 o 4; o
-(ii) 45 m o menos de la prolongación del eje cuando el número de clave sea 1 o 2; o
-(3) penetre la superficie de aproximación interna, la superficie de transición interna o la superficie de aterrizaje interrumpido;
+(*)(e) Cualquier equipo o instalación requerido para fines de navegación aérea o de seguridad operacional de las aeronaves que deba estar emplazado en una franja, o cerca de ella, de una pista de aproximaciones de precisión de Categoría I, II o III y que:
+(1) esté colocado a 240 m o menos del extremo de la franja:
+(2) penetre la superficie de aproximación interna, la superficie de transición interna o la superficie de aterrizaje interrumpido;
 Deberá ser frangible y se debe montar lo más bajo posible.
+(*)(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 44497 del 9 de enero del 2024)
 (f) Cualquier equipo o instalación requerida para fines de navegación aérea o de seguridad operacional de las aeronaves que constituya un obstáculo de importancia para las operaciones de acuerdo con RAC 14.303 (a)(4);(b)(5),(c)(8) o (d)(6), deber ser frangible y montarse lo más bajo posible.
 RAC 14.819 Vallas
 (Ver CCA 14.819 (b))
@@ -2591,7 +2627,7 @@ RAC 14.823 Sistema autónomo de advertencia de incursión en la pista (ARIWS)
 (iv) su falla parcial o total no debe interferir con las operaciones normales del aeródromo. Para ello, se debe prever que debe permitirse que la dependencia ATC desactive parcial o totalmente el sistema.
 (2) Cuando se instale un ARIWS en un aeródromo, se debe proporcionar la información sobre sus características y situación a los servicios de información aeronáutica pertinentes para que se promulguen en la AIP, con la descripción del sistema de guía y control del movimiento en la superficie y señales como se especifica en el Anexo 15.
 (3) Promulgación de la Información. La información sobre las características y el estado de un ARIWS en un aeródromo se promulgan en la sección AD 2.9 de la AIP en los PANS-AIM (Doc. 10066) y su estado se actualiza conforme sea necesario a través de NOTAM o el ATIS, de conformidad con 2.9.1 de este Anexo.
-SUBPARTE J – INTENCIONALMENTE EN BLANCO
+SUBPARTE J - INTENCIONALMENTE EN BLANCO
 APÉNDICE 1: COLORES DE LAS LUCES AERONÁUTICAS DE SUPERFICIE Y DE LAS
 SEÑALES, LETREROS Y TABLEROS. (Ver RAC 14.001(c))
 1. Generalidades
@@ -2639,16 +2675,16 @@ y = 0,150 + 0,640x
 Límite púrpura y = 0,050 + 0,750x e
 y = 0,382
 2.1.2 En el caso de que no se exija amortiguar la intensidad luminosa, o cuando los observadores cuya visión de los colores sea defectuosa deban poder determinar el color de la luz, las señales verdes deben estar dentro de los límites siguientes:
-Límite amarillo y = 0,726 – 0,726x
+Límite amarillo y = 0,726 - 0,726x
 Límite blanco x = 0,650y
-Límite azul y = 0,390 – 0,171x
+Límite azul y = 0,390 - 0,171x
 2.1.3 Cuando un mayor grado de certidumbre de reconocimiento sea más importante que el máximo alcance visual, las señales verdes deben estar dentro de los límites siguientes:
-Límite amarillo y = 0,726 – 0,726x
-Límite blanco x = 0,625y – 0,041
-Límite azul y = 0,390 – 0,171x
+Límite amarillo y = 0,726 - 0,726x
+Límite blanco x = 0,625y - 0,041
+Límite azul y = 0,390 - 0,171x
 2.2 Distinción entre luces con fuentes luminosas de filamento
 2.2.1 Si es necesario que el color amarillo se distinga del blanco, estos colores deben disponerse de forma que se vean muy de cerca uno de otro, en el tiempo o en el espacio, p. ej., por destellos sucesivos del mismo faro.
-2.2.2 Si es necesario distinguir el amarillo del verde o del blanco, como p. ej., en las luces de eje de calle de salida, las coordenadas “y” de la luz amarilla no deben exceder de un valor de 0,40.
+2.2.2 Si es necesario distinguir el amarillo del verde o del blanco, como p. ej., en las luces de eje de calle de salida, las coordenadas "y" de la luz amarilla no deben exceder de un valor de 0,40.
 Los límites del blanco se han basado en la suposición de que dichos colores se utilizan en condiciones tales que las características (temperatura de color) de la fuente luminosa son prácticamente constantes.
 2.2.3 El color blanco variable solamente se destina al uso en luces cuya intensidad debe variarse, Como por ejemplo, para evitar el deslumbramiento. Si debe distinguirse entre este color y el amarillo, las luces deben concebirse y utilizarse de forma que:
 a) la coordenada x del amarillo sea por lo menos 0,050 mayor que la coordenada x del blanco; y
@@ -2657,23 +2693,23 @@ b) la disposición de las luces sea tal que las amarillas se vean simultáneamen
 2.3.1 Las cromaticidades de las luces aeronáuticas de superficie con fuentes luminosas de estado sólido, p.ej., LED, estarán dentro de los límites siguientes:
 Ecuaciones de la CIE (véase la Figura A1-1b):
 a) Rojo
-Límite púrpura y = 0,980 – x
+Límite púrpura y = 0,980 - x
 Límite amarillo y = 0,335, salvo para sistemas
 visuales indicadores de pendiente de aproximación;
 Límite amarillo y = 0,320, para sistemas visuales
 indicadores de pendiente de aproximación.
-Nota.— Véanse RAC 14.405.15.(e).15 and RAC 14.405.15.(e).31
+Nota.- Véanse RAC 14.405.15.(e).15 and RAC 14.405.15.(e).31
 b) Amarillo
 Límite rojo y = 0,387
-Límite blanco y = 0,980 – x
+Límite blanco y = 0,980 - x
 Límite verde y = 0,727x + 0,054
 c) Verde (véase también 2.3.2 y 2.3.3)
 Límite amarillo x = 0,310
-Límite blanco x = 0,625y – 0,041
+Límite blanco x = 0,625y - 0,041
 Límite azul y = 0,400
 d) Azul
 Límite verde y = 1,141x + 0,037
-Límite blanco x = 0,400 – y
+Límite blanco x = 0,400 - y
 Límite púrpura x = 0,134 + 0,590y
 e) Blanco
 Límite amarillo x = 0,440
@@ -2683,13 +2719,13 @@ Límite púrpura y = 0,050 + 0,757x
 f) Blanco variable
 Los límites del blanco variable para fuentes luminosas de estado sólido son los de e) Blanco.
 2.3.2 Cuando los observadores cuya visión de los colores sea defectuosa deban poder determinar el color de la luz, las señales verdes deberían estar dentro de los límites siguientes:
-Límite amarillo y = 0,726 – 0,726x
-Límite blanco x = 0,625y – 0,041
+Límite amarillo y = 0,726 - 0,726x
+Límite blanco x = 0,625y - 0,041
 Límite azul y = 0,400
 2.3.3 A fin de evitar una amplia variación de matices de verde, si se seleccionan los colores que están dentro de los límites especificados a continuación, no deberían utilizarse los colores dentro de los límites de 2.3.2.
 Límite amarillo x= 0,310
-Límite blanco x = 0,625y – 0,041
-Límite azul y = 0,726 – 0,726x
+Límite blanco x = 0,625y - 0,041
+Límite azul y = 0,726 - 0,726x
 2.4 Medición de color para las fuentes luminosas de tipo filamento y de tipo de estado sólido
 2.4.1 El color de las luces aeronáuticas de superficie se verificará considerándolo dentro de los límites especificados en la Figura A1-1a o A1-1b, según corresponda, mediante la medición en cinco puntos dentro del área delimitada por la curva de isocandela más al interior (véanse los diagramas de isocandela del Apéndice 2), en funcionamiento a la corriente o tensión nominal. En el caso de curvas de isocandela elípticas o circulares, la medición de color se efectuará en el centro y en los límites horizontal y vertical. En el caso de curvas de isocandela rectangulares, la medición de color se efectuará en el centro y en los límites diagonales (esquinas). Además, se verificará el color de la luz en la curva de isocandela más al exterior para garantizar que no haya un desplazamiento cromático que pueda hacer que el piloto confunda la señal.
 Para la curva de isocandela más al exterior, se debe efectuar y registrar una medición de las coordenadas de color para someterla al examen y criterios de aceptabilidad de la DGAC.
@@ -2704,35 +2740,35 @@ c) iluminante: patrón D65 de la CIE.
 3.2 Los factores de cromaticidad y luminancia de los colores ordinarios para las señales y los letreros y tableros iluminados exteriormente deben estar dentro de los límites siguientes cuando se determinen en las condiciones tipo.
 Ecuaciones de la CIE (Ver la Figura A1-2):
 a) Rojo
-Límite púrpura y = 0,345 – 0,051x
-Límite blanco y = 0,910 – x
+Límite púrpura y = 0,345 - 0,051x
+Límite blanco y = 0,910 - x
 Límite anaranjado y = 0,314 + 0,047x
 Factor de luminancia ß = 0,07 (mín)
 b) Anaranjado
 Límite rojo y = 0,285 + 0,100x
-Límite blanco y = 0,940 – x
+Límite blanco y = 0,940 - x
 Límite amarillo y = 0,250 + 0,220x
 Factor de luminancia ß = 0,20 (mín)
 c) Amarillo
 Límite anaranjado y = 0,108 + 0,707x
-Límite blanco y = 0,910 – x
-Límite verde y = 1,35x – 0,093
+Límite blanco y = 0,910 - x
+Límite verde y = 1,35x - 0,093
 Factor de luminancia ß = 0,45 (mín)
 d) Blanco
 Límite púrpura y = 0,010 + x
-Límite azul y = 0,610 – x
+Límite azul y = 0,610 - x
 Límite verde y = 0,030 + x
-Límite amarillo y = 0,710 – x
+Límite amarillo y = 0,710 - x
 Factor de luminancia ß = 0,75 (mín)
 e) Negro
-Límite púrpura y = x – 0,030
-Límite azul y = 0,570 – x
+Límite púrpura y = x - 0,030
+Límite azul y = 0,570 - x
 Límite verde y = 0,050 + x
-Límite amarillo y = 0,740 – x
+Límite amarillo y = 0,740 - x
 Factor de luminancia ß = 0,03 (máx)
 f) Verde amarillento
 Límite verde y = 1,317x + 0,4
-Límite blanco y = 0,910 – x
+Límite blanco y = 0,910 - x
 Límite amarillo y = 0,867x + 0,4
 g) Verde
 Límite amarillo: x = 0,313
@@ -2743,42 +2779,42 @@ La pequeña separación que existe entre el rojo de superficie y el anaranjado d
 3.3 Los factores de cromaticidad y luminancia de los colores de los materiales retro reflectantes para las señales de superficie, deben estar dentro de los límites enumerados a continuación, cuando se determinen en las condiciones tipo.
 Ecuaciones de la CIE (Ver la Figura A1-3):
 a) Rojo
-Límite púrpura y = 0,345 – 0,051x
-Límite blanco y = 0,910 – x
+Límite púrpura y = 0,345 - 0,051x
+Límite blanco y = 0,910 - x
 257
 Límite anaranjado y = 0,314 + 0,047x
 Factor de luminancia ß = 0,03 (mín)
 b) Anaranjado
 Límite rojo y = 0,265 + 0,205x
-Límite blanco y = 0,910 – x
+Límite blanco y = 0,910 - x
 Límite amarillo y = 0,207 + 0,390x
 Factor de luminancia ß = 0,14 (mín)
 c) Amarillo
 Límite anaranjado y = 0,160 + 0,540x
-Límite blanco y = 0,910 – x
-Límite verde y = 1,35x – 0,093
+Límite blanco y = 0,910 - x
+Límite verde y = 1,35x - 0,093
 Factor de luminancia ß = 0,16 (mín)
 d) Blanco
 Límite púrpura y = x
-Límite azul y = 0,610 – x
+Límite azul y = 0,610 - x
 Límite verde y = 0,040 + x
-Límite amarillo y = 0,710 – x
+Límite amarillo y = 0,710 - x
 Factor de luminancia ß = 0,27 (mín)
 e) Azul
 Límite verde y = 0,118 + 0,675x
-Límite blanco y = 0,370 – x
-Límite púrpura y = 1,65x – 0,187
+Límite blanco y = 0,370 - x
+Límite púrpura y = 1,65x - 0,187
 Factor de luminancia ß = 0,01 (mín)
 f) Verde
-Límite amarillo y = 0,711 – 1,22x
+Límite amarillo y = 0,711 - 1,22x
 Límite blanco y = 0,243 + 0,670x
-Límite azul y = 0,405 – 0,243x
+Límite azul y = 0,405 - 0,243x
 Factor de luminancia ß = 0,03 (mín)
 3.4 Los factores de cromaticidad y luminancia de los colores de los letreros y tableros transiluminados (iluminación interna) o luminiscentes deben estar dentro de los límites enumerados a continuación, cuando se determinen en las condiciones tipo.
 Ecuaciones de la CIE (Ver la Figura A1-4):
 a) Rojo
-Límite púrpura y = 0,345 – 0,051x
-Límite blanco y = 0,910 – x
+Límite púrpura y = 0,345 - 0,051x
+Límite blanco y = 0,910 - x
 Límite anaranjado y = 0,314 + 0,047x
 Factor de luminancia ß = 0,07 (mín)
 (condiciones diurnas)
@@ -2786,26 +2822,26 @@ Luminancia relativa al blanco 5% (mín)
 (condiciones nocturnas) 20% (máx)
 b) Amarillo
 Límite anaranjado y = 0,108 + 0,707x
-Límite blanco y = 0,910 – x
-Límite verde y = 1,35x – 0,093
+Límite blanco y = 0,910 - x
+Límite verde y = 1,35x - 0,093
 Factor de luminancia ß = 0,45 (mín)
 (condiciones diurnas)
 Luminancia relativa al blanco 30% (mín)
 (condiciones nocturnas) 80% (máx)
 c) Blanco
 Límite púrpura y = 0,010 + x
-Límite azul y = 0,610 – x
+Límite azul y = 0,610 - x
 Límite verde y = 0,030 + x
-Límite amarillo y = 0,710 – x
+Límite amarillo y = 0,710 - x
 Factor de luminancia ß = 0,75 (mín)
 (condiciones diurnas)
 Luminancia relativa al blanco
 (condiciones nocturnas) 100%
 d) Negro
-Límite púrpura y = x – 0,030
-Límite azul y = 0,570 – x
+Límite púrpura y = x - 0,030
+Límite azul y = 0,570 - x
 Límite verde y = 0,050 + x
-Límite amarillo y = 0,740 – x
+Límite amarillo y = 0,740 - x
 Factor de luminancia ß = 0,03 (máx)
 (condiciones diurnas)
 Luminancia relativa al blanco 0% (mín)
@@ -2819,7 +2855,7 @@ Factor de luminancia: ß = 0,10 mínimo
 Luminancia relativa al blanco 5% (mínimo)
 (condiciones nocturnas) 30% (máximo)
 [imagen]
-Esta figura es idéntica a la Figura A1-1 existente, a excepción de la inclusión del punto “y=0,320” para el área roja, el cual se exhibe explícitamente.
+Esta figura es idéntica a la Figura A1-1 existente, a excepción de la inclusión del punto "y=0,320" para el área roja, el cual se exhibe explícitamente.
 [imagen]
 Figura A1-1b. Colores de luces aeronáuticas de superficie (iluminación de estado sólido)
 [imagen]
@@ -2834,10 +2870,10 @@ Notas:
 [imagen]
 2. Los ángulos de reglaje de las luces en sentido vertical serán tales que el haz principal satisfaga las condiciones siguientes de cobertura en el plano vertical:
 distancia al umbral | cobertura vertical del haz principal
-del umbral a 315 m | 0° — 11°
-316 m a 475 m | 0,5° — 11,5°
-476 m a 640 m | 1,5° — 12,5°
-641 m y más | 2,5° — 13,5° (según la figura)
+del umbral a 315 m | 0° - 11°
+316 m a 475 m | 0,5° - 11,5°
+476 m a 640 m | 1,5° - 12,5°
+641 m y más | 2,5° - 13,5° (según la figura)
 Las luces de las barreras transversales a más de 22,5 m del eje debe tener una convergencia de 2º.
 Las demás luces debe estar en una paralela al eje de la pista.
 3. Véanse las notas comunes a las Figuras A2-1 a A2-11 y A2-26
@@ -2849,9 +2885,9 @@ Notas:
 3. Los ángulos de reglaje de las luces en sentido vertical deben ser tales que el haz principal
 satisfaga las siguientes condiciones de cobertura en el plano vertical:
 distancia al umbral | cobertura vertical del haz principal
-del umbral a 115 m | 0,5° — 10,5°
-116 m a 215 m | 1° — 11°
-216 m y más | 1,5° — 11,5° (según la figura)
+del umbral a 115 m | 0,5° - 10,5°
+116 m a 215 m | 1° - 11°
+216 m y más | 1,5° - 11,5° (según la figura)
 Ver las notas comunes a las Figuras A2-1 a A2-11, y A2-26
 Figura A2-2. Diagrama de isocandelas para las luces de la fila lateral de aproximación (luz roja)
 [imagen]
@@ -3028,7 +3064,7 @@ En la subparte E en el RAC 14. 403 (p) y RAC 14. 403 (q) se establecen los aspec
 En el Apéndice se ilustran detalladamente la forma y proporciones de las letras, números y símbolos de las señales con instrucciones obligatorias y las señales de información en una retícula de 20 cm.
 En este Apéndice se ilustran detalladamente la forma y proporciones de las letras, números y símbolos de las señales con instrucciones obligatorias y las señales de información en una retícula
 Las señales con instrucciones obligatorias y las señales de información en el pavimento se forman como si se tratara de una sombra proyectada, (es decir, prolongada), de los caracteres de un letrero elevado equivalente por un factor de 2,5 como se indica en la Figura A3-1. Sin embargo, la proyección en sombra sólo afecta la dimensión vertical. Por consiguiente, la separación de los caracteres para las señales del pavimento se obtiene determinando primero la altura de los caracteres del letrero equivalente y estableciendo luego la proporción a partir de los valores de separación indicados en la Tabla A4-1.
-Por ejemplo, para el caso del designador de pista "10" que ha de tener una altura de 4 000 mm (Hlp), la altura de los caracteres del letrero elevado equivalente es 4,000/2,5=1 600 mm (Hle). En la Tabla A4-1b) se indica de número a número el código 1 y según la Tabla A4-1c) para una altura de carácter de 400 mm este código tiene una dimensión de 96 mm. Por lo tanto, la separación de la señal del pavimento para “10” es (1,600/400)*96=384 mm.
+Por ejemplo, para el caso del designador de pista "10" que ha de tener una altura de 4 000 mm (Hlp), la altura de los caracteres del letrero elevado equivalente es 4,000/2,5=1 600 mm (Hle). En la Tabla A4-1b) se indica de número a número el código 1 y según la Tabla A4-1c) para una altura de carácter de 400 mm este código tiene una dimensión de 96 mm. Por lo tanto, la separación de la señal del pavimento para "10" es (1,600/400)*96=384 mm.
 [imagen]
 Figura A3-1
 [imagen]
@@ -3044,7 +3080,7 @@ Letreros con instrucciones obligatorias | Letreros de información
 Letreros de salida de pista y de pista libre | Otros letreros
 1 o 2 | 300 mm | 300 mm | 200 mm
 3 o 4 | 400 mm | 400 mm | 300 mm
-Nota.— Cuando se instale un letrero de emplazamiento de calle de rodaje junto a uno de designación de pista, RAC 14.407(c)(22)el tamaño de los caracteres debe ser el especificado para los letreros de instrucciones obligatorias.
+Nota.- Cuando se instale un letrero de emplazamiento de calle de rodaje junto a uno de designación de pista, RAC 14.407(c)(22)el tamaño de los caracteres debe ser el especificado para los letreros de instrucciones obligatorias.
 2. Las dimensiones de las flechas deben ser las siguientes:
 Altura de la indicación | Trazo
 200 mm | 32 mm
@@ -3064,36 +3100,38 @@ b) Cuando se realicen operaciones de conformidad con el RAC 14.407(a)(7)(ii) y (
 Rojo | 10 cd/m2
 Amarillo | 50 cd/m2
 Blanco | 100 cd/m2
-Nota. — En condiciones de alcance visual en la pista inferior a un valor de 400 m, se deteriora en
+Nota. - En condiciones de alcance visual en la pista inferior a un valor de 400 m, se deteriora en
 cierta medida la eficacia de los letreros.
 5. La relación de luminancia entre los elementos rojo y blanco de un letrero con instrucciones obligatorias debe ser de entre 1:5 y 1:10.
 6. El promedio de luminancia de un letrero se calcula estableciendo puntos de retícula según lo indicado en la Figura A4-1 y utilizando los valores de luminancia medidos en todos los puntos de retícula situados dentro del rectángulo que representa el letrero.
 7. El valor promedio es el promedio aritmético de los valores de luminancia medidos en todos los puntos de retícula considerados.
-Nota. — En el Manual de diseño de aeródromos (Doc. 9157), Parte 4, de la OACI se proporciona información sobre el promedio de luminancia de los letreros.
+Nota. - En el Manual de diseño de aeródromos (Doc. 9157), Parte 4, de la OACI se proporciona información sobre el promedio de luminancia de los letreros.
 8. La relación entre los valores de luminancia de puntos de retícula adyacentes no debe exceder de 1,5:1. En las áreas de la placa frontal del letrero en que la retícula sea de 7,5 cm, la relación entre los valores de luminancia de puntos de retícula adyacentes no debe exceder de 1,25:1. La relación entre los valores máximo y mínimo de luminancia en toda la placa frontal del letrero no debe exceder de 5:1.
 9. La forma de los caracteres, es decir, letras, números, flechas y símbolos, deben ser de conformidad con lo indicado en la Figura A4-2. La ancho de los caracteres y el espacio entre cada uno se debe determinar cómo se indica en la Tabla A4-1.
-10. La altura de la placa frontal de los letreros debe ser la siguiente:
-Altura de la indicación | Altura de la placa frontal (mín)
-200 mm | 400 mm
-300 mm | 600 mm
-400 mm | 800 mm
-11. La ancho de la placa frontal de los letreros se debe determinar utilizando la Figura A4-3 salvo que, cuando se proporcione un letrero con instrucciones obligatorias en un solo lado de la calle de rodaje, la ancho de la placa frontal no debe ser inferior a:
-a) 1,94 m cuando el número de clave es 3 o 4; y
-b) 1,46 m cuando el número de clave es 1 o 2.
-Nota. — En el Manual de diseño de aeródromos (Doc. 9157), Parte 4, de la OACI figura más orientación sobre el modo de determinar la ancho de la placa frontal de los letreros.
+(*) 10. La altura de la placa frontal de los letreros debe ser la siguiente:
+Altura de la indicación | Altura de la placa frontal (mín.)
+200mm | 300mm
+300mm | 450mm
+400mm 600mm
+(*)(Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 44497 del 9 de enero del 2024)
+(*)11. La anchura de la placa frontal de los letreros se debe determinar utilizando la Figura A4-4· salvo que, cuando se proporcione un letrero con instrucciones obligatorias en un solo lado de la calle de rodaje, la anchura de la placa frontal no debe ser inferior a:
+a) 1,94m cuando el número de clave es 3o 4; y
+b) 1,46m cuando el número de clave es 1 o 2.
+[imagen]
+(*)(Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 44497 del 9 de enero del 2024)
 12. Bordes
 a) El trazo vertical delimitador colocado entre letreros de dirección adyacentes deben tener
 aproximadamente un ancho de 0,7 veces el ancho de los trazos.
 b) El borde amarillo de un letrero de emplazamiento sólo debe tener aproximadamente un ancho de 0,5 veces el ancho de los trazos.
 13. Los colores de los letreros deben ser conformes a las especificaciones de los colores de las señales de superficie del Apéndice 1.
 [imagen]
-Nota 1. — El promedio de luminancia de un letrero se calcula estableciendo puntos de retícula sobre la placa frontal de un letrero con inscripciones típicas y fondo del color apropiado (rojo para los letreros con instrucciones obligatorias y amarillo para los letreros de dirección y destino), del modo siguiente:
+Nota 1. - El promedio de luminancia de un letrero se calcula estableciendo puntos de retícula sobre la placa frontal de un letrero con inscripciones típicas y fondo del color apropiado (rojo para los letreros con instrucciones obligatorias y amarillo para los letreros de dirección y destino), del modo siguiente:
 a) A partir del ángulo superior izquierdo de la placa frontal del letrero, se fija un punto de retícula de referencia a 7,5 cm del borde izquierdo y del borde superior de la placa frontal del letrero.
 b) A partir del punto de retícula de referencia, se forma una retícula con separación horizontal y vertical de 15 cm. Se deben excluir los puntos de retícula que queden a menos de 7,5 cm del borde de la placa frontal del letrero.
 c) Cuando el último punto de una hilera o columna de la retícula esté situado entre 22,5 cm y 15 cm del borde de la placa frontal del letrero (pero sin incluirlos), se debe añadir otro punto a 7,5 cm de ese punto.
 d) Cuando un punto de retícula quede en el límite entre un carácter y el fondo, debe desplazarse ligeramente para que quede totalmente fuera del carácter.
-Nota 2. — Puede ser necesario añadir puntos de retícula para asegurar que cada carácter comprenda, cuando menos, cinco puntos de retícula espaciados uniformemente.
-Nota 3. — Cuando una misma unidad contenga dos tipos de letreros, se debe establecer una retícula
+Nota 2. - Puede ser necesario añadir puntos de retícula para asegurar que cada carácter comprenda, cuando menos, cinco puntos de retícula espaciados uniformemente.
+Nota 3. - Cuando una misma unidad contenga dos tipos de letreros, se debe establecer una retícula
 separada para cada tipo.
 Figura A4-1. Puntos de retícula para calcular el promedio de luminancia de un letrero
 [imagen]
@@ -3103,9 +3141,13 @@ Figura A4-1. Puntos de retícula para calcular el promedio de luminancia de un l
 [imagen]
 [imagen]
 [imagen]
-Nota. — Los letreros existentes de PROHIBIDA LA ENTRADA que no sean conformes a las dimensiones indicadas arriba deben ser remplazados de inmediato.
+Nota. - Los letreros existentes de PROHIBIDA LA ENTRADA que no sean conformes a las dimensiones indicadas arriba deben ser remplazados de inmediato.
 Figura A4-2. (cont.)
+(*)
 [imagen]
+[imagen] [imagen]
+Nota explicativa de la Figura A4-4: "H" hace referencia a la altura de los caracteres
+(*)(Así reformada la figura anterior por el artículo 1° del decreto ejecutivo N° 44497 del 9 de enero del 2024)
 [imagen]
 [imagen]
 APÉNDICE 5. EMPLAZAMIENTO DE LAS LUCES DE OBSTÁCULOS
@@ -3180,19 +3222,19 @@ Salvo que la DGAC lo establezca de otro modo, para el cálculo de las distancias
 3.4 Si la pista está provista de una zona de parada (SWY), entonces en la ASDA se debe incluir la longitud de la zona de parada, según se indica en la Figura A-1 (C).
 3.5 Si la pista tiene el umbral desplazado, entonces en el cálculo de la LDA se debe restar de la longitud de la pista la distancia a que se haya desplazado el umbral, según se indica en la Figura A-1 (D). El umbral desplazado influye en el cálculo de la LDA solamente cuando la aproximación tiene lugar hacia el umbral; no influye en ninguna de las distancias declaradas si las operaciones tienen lugar en la dirección opuesta.
 3.6 Los casos de pistas provistas de zona libre de obstáculos, de zona de parada, o que tienen el umbral desplazado, se esbozan en las Figuras A-1 (B) a A-1 (D). Si concurren más de una de estas características debe haber más de una modificación de las distancias declaradas, pero se debe seguir el mismo principio esbozado. En la Figura A-1 (E) se presenta un ejemplo en el que concurren todas estas características.
-3.7 Se sugiere el formato de la Figura A-1 (F) para presentar la información concerniente a las distancias declaradas. Si determinada dirección de la pista no puede utilizarse para despegar o aterrizar, o para ninguna de estas operaciones por estar prohibido operacionalmente, ello debe indicarse mediante las palabras “no utilizable” o con la abreviatura “NU”.
+3.7 Se sugiere el formato de la Figura A-1 (F) para presentar la información concerniente a las distancias declaradas. Si determinada dirección de la pista no puede utilizarse para despegar o aterrizar, o para ninguna de estas operaciones por estar prohibido operacionalmente, ello debe indicarse mediante las palabras "no utilizable" o con la abreviatura "NU".
 4. Pendientes de las pistas
 4.1 Distancia entre cambios de pendiente
 El siguiente ejemplo ilustra cómo debe determinarse la distancia entre cambios de pendiente (Ver la Figura A-2):
 D para una pista de número de clave 3 debe ser por lo menos igual a:
-15 000 (|x – y| + |y – z|) m
-Siendo |x – y| el valor numérico absoluto de x – y
-|y – z| el valor numérico absoluto de y – z
+15 000 (|x - y| + |y - z|) m
+Siendo |x - y| el valor numérico absoluto de x - y
+|y - z| el valor numérico absoluto de y - z
 Suponiendo x = +0,01
-y = –0,005
+y = -0,005
 z = +0,005
-Resulta |x – y| = 0,015
-|y – z| = 0,01
+Resulta |x - y| = 0,015
+|y - z| = 0,01
 Para cumplir con la especificación, D no debe ser inferior a:
 15 000 (0,015 + 0,01) m, es decir, 15 000 × 0,025 = 375 m
 [imagen]
@@ -3268,21 +3310,21 @@ b) textura:
 7.3.7 La macrotextura es la textura entre piedras individuales. Esta escala de textura puede juzgarse aproximadamente a simple vista. La macrotextura la crea fundamentalmente el tamaño del agregado que se usa o el tratamiento de la superficie del pavimento y es el factor principal que influye en la capacidad de drenaje a altas velocidades. Los materiales se seleccionarán de manera que posean una buena macrotextura.
 7.3.8 El principal objetivo de estriar la superficie de una pista es aumentar el drenaje superficial.
 La textura de la superficie puede hacer más lento el drenaje natural, pero las estrías pueden acelerarlo al ofrecer una trayectoria de drenaje más corta y al aumentar la velocidad de drenaje.
-7.3.9 A fin de medir la macrotextura, se elaboraron métodos simples tales como los de “mancha de arena” y de “mancha de grasa”, descritos en el Manual de Servicios de Aeropuertos (Doc. 9137), Parte 2. Estos métodos se usaron para las primeras investigaciones sobre las cuales se basan los requisitos de aeronavegabilidad actuales, relativos a una clasificación de categorías de macrotextura de A a E. Esta clasificación la elaboró la Engineering Sciences Data Unit (ESDU) usando técnicas para medir manchas arena o de grasa y la publicó en 1971.
+7.3.9 A fin de medir la macrotextura, se elaboraron métodos simples tales como los de "mancha de arena" y de "mancha de grasa", descritos en el Manual de Servicios de Aeropuertos (Doc. 9137), Parte 2. Estos métodos se usaron para las primeras investigaciones sobre las cuales se basan los requisitos de aeronavegabilidad actuales, relativos a una clasificación de categorías de macrotextura de A a E. Esta clasificación la elaboró la Engineering Sciences Data Unit (ESDU) usando técnicas para medir manchas arena o de grasa y la publicó en 1971.
 Clasificación de las pistas basada en la información sobre textura de ESDU 71026:
 Clasificación | Profundidades de la textura (mm)
-A | 0,10 – 0,14
-B | 0,15 – 0,24
-C | 0,25 – 0,50
-D | 0,51 – 1,00
-E | 1,01 – 2,54
+A | 0,10 - 0,14
+B | 0,15 - 0,24
+C | 0,25 - 0,50
+D | 0,51 - 1,00
+E | 1,01 - 2,54
 7.3.10 Usando esta clasificación, el valor de umbral entre microtextura y macrotextura es 0,1 mm de profundidad media de la textura (MTD). Con relación a esta escala, la performance normal de una aeronave en pista mojada se basa en la textura, reconociendo cualidades de drenaje y de rozamiento medianas entre la clasificación B y C (0,25 mm). Un drenaje mejor, obtenido mediante una textura mejor, puede resultar en una mejor clasificación de la performance de la aeronave. Sin embargo, este reconocimiento debe ajustarse a la documentación de los fabricantes de aeronaves y ser aceptado por el Estado. Actualmente, se reconocen las pistas de capa de rozamiento estriada o porosa que siguen los criterios de diseño, construcción y mantenimiento aceptables para el Estado. Las normas de certificación armonizadas de algunos Estados se refieren a la textura, que reconocen cualidades de drenaje y de rozamiento medianas entre la clasificación D y E (1,0 mm).
-7.3.11 Para la construcción, el diseño y el mantenimiento, los Estados usan varias normas internacionales. Actualmente, la norma ISO 13473-1 Caracterización de la textura de los pavimentos mediante el uso de perfiles de superficie – Parte 1: Determinación de la profundidad media del perfil vincula la técnica de medición volumétrica con técnicas de medición sin contacto que dan valores de textura comparables. Estas normas describen el valor de umbral entre microtextura y macrotextura como 0,5 mm. El método volumétrico tiene una escala de validez de 0,25 a 5 mm MTD. El método profilométrico tiene una escala de validez que va de 0 a 5 mm de profundidad media del perfil (MPD). Los valores de MPD y MTD difieren debido al tamaño limitado de las esferas de vidrio que se usan en la técnica volumétrica y a que el MPD se deriva de un perfil de dos dimensiones en vez de una superficie tridimensional. Por lo tanto, debe establecerse una ecuación de transformación para que el equipo de medición empleado relacione MPD con MTD.
+7.3.11 Para la construcción, el diseño y el mantenimiento, los Estados usan varias normas internacionales. Actualmente, la norma ISO 13473-1 Caracterización de la textura de los pavimentos mediante el uso de perfiles de superficie - Parte 1: Determinación de la profundidad media del perfil vincula la técnica de medición volumétrica con técnicas de medición sin contacto que dan valores de textura comparables. Estas normas describen el valor de umbral entre microtextura y macrotextura como 0,5 mm. El método volumétrico tiene una escala de validez de 0,25 a 5 mm MTD. El método profilométrico tiene una escala de validez que va de 0 a 5 mm de profundidad media del perfil (MPD). Los valores de MPD y MTD difieren debido al tamaño limitado de las esferas de vidrio que se usan en la técnica volumétrica y a que el MPD se deriva de un perfil de dos dimensiones en vez de una superficie tridimensional. Por lo tanto, debe establecerse una ecuación de transformación para que el equipo de medición empleado relacione MPD con MTD.
 7.3.12 La escala ESDU agrupa superficies de pistas según la macrotextura de A a E, donde E representa la superficie con la mejor capacidad de drenaje dinámico. Así pues, la escala ESDU refleja las características del drenaje dinámico del pavimento. Estriar estas superficies aumenta la capacidad de drenaje dinámico. Por lo tanto, la capacidad de drenaje que resulta es una función de la textura (A a E) y de las estrías. La contribución de las estrías es una función del tamaño de las estrías y del espaciado entre ellas. Los aeródromos expuestos a grandes lluvias o lluvias torrenciales deben asegurarse de que el pavimento y las áreas adyacentes tengan capacidad de drenaje para soportar estas lluvias o poner límites al uso de los pavimentos durante esas situaciones extremas. Estos aeropuertos deberían tratar de tener el máximo número admisible de pendientes y de utilizar agregados que ofrezcan buenas características de drenaje. También, deberían considerar contar con pavimentos con estrías de la clase E, a fin de no menoscabar la seguridad operacional.
 7.4 Mantenimiento de las características de drenaje del pavimento
 7.4.1 La macrotextura no cambia en un corto período de tiempo, pero la acumulación de caucho puede rellenar la textura y reducir la capacidad de drenaje, lo que puede menoscabar la seguridad operacional. Además, la estructura de la pista puede cambiar con el tiempo y presentar desniveles que resultan en la formación de charcos después de la lluvia. En el Manual de Servicios de Aeropuertos (Doc. 9137), Parte 2, figura orientación sobre la eliminación de depósitos de caucho y desniveles. En el Manual de Diseño de Aeródromos (Doc. 9157), Parte 3, figura orientación sobre los métodos para mejorar la textura de las superficies.
 7.4.2 Cuando se utilice estriado, la condición de las estrías debería inspeccionarse en forma regular para asegurarse de que no se produzca deterioro y las estrías estén en buenas condiciones.
-En el Manual de servicios de aeropuertos (Doc. 9137), Parte 2 — Estado de la superficie de los pavimentos, y Parte 9 — Métodos de mantenimiento de aeropuertos, y en el Manual de diseño de aeródromos (Doc. 9157), Parte 2, figura orientación sobre el mantenimiento de pavimentos.
+En el Manual de servicios de aeropuertos (Doc. 9137), Parte 2 - Estado de la superficie de los pavimentos, y Parte 9 - Métodos de mantenimiento de aeropuertos, y en el Manual de diseño de aeródromos (Doc. 9157), Parte 2, figura orientación sobre el mantenimiento de pavimentos.
 7.4.3 El pavimento puede granallarse a fin de mejorar su macrotextura.
 8. Franjas
 8.1 Márgenes
@@ -3347,13 +3389,13 @@ Figura A-9. Tolerancias verticales de instalación En el plano vertical
 11.2.11 Línea central (eje). Las pendientes en cualquier sección de la línea central (incluso una zona de parada o una zona libre de obstáculos), deben ser lo más pequeñas posible, y los cambios de pendiente deben ser los menos posibles y del menor valor que se pueda lograr, no debiendo exceder de 1:60. La experiencia ha demostrado que, alejándose de la pista, son admisibles pendientes ascendentes que no excedan de 1:66 en cualquier sección y pendientes descendentes que no excedan de 1:40.
 11.2.12 Barras transversales. Las luces de las barras transversales deben disponerse de manera que formen una línea recta, horizontal siempre que sea posible, que pase por las luces de la línea central correspondientes. No obstante, es permisible montar las luces con una pendiente transversal que no exceda de 1:80, si ello permite montar más cerca del suelo las luces de las barras transversales comprendidas en una zona de parada o una zona libre de obstáculos, en los lugares donde exista una pendiente transversal.
 11.3 Restricción de obstáculos
-11.3.1 Se ha establecido un área, que en adelante se llame “plano de luces”, para limitar los obstáculos, y todas las luces del sistema están en ese plano. Dicho plano, que es de forma rectangular y está situado simétricamente respecto al eje del sistema de iluminación de aproximación, comienza en el umbral, se extiende hasta 60 m más allá del extremo de la aproximación del sistema y tiene 120 m de ancho.
+11.3.1 Se ha establecido un área, que en adelante se llame "plano de luces", para limitar los obstáculos, y todas las luces del sistema están en ese plano. Dicho plano, que es de forma rectangular y está situado simétricamente respecto al eje del sistema de iluminación de aproximación, comienza en el umbral, se extiende hasta 60 m más allá del extremo de la aproximación del sistema y tiene 120 m de ancho.
 11.3.2 No se permite la existencia de objetos más altos que el plano de luces dentro de los límites del mismo, excepto los objetos designados a continuación. Todos los caminos y autopistas se consideran como obstáculos de una altura de hasta 4,8 m sobre el bombeo del camino, excepto el caso de los caminos de servicio del aeropuerto, en los que todo el tráfico de vehículos está bajo el control de las autoridades del aeródromo y coordinado por la torre de control de tránsito aéreo del aeropuerto. Los ferrocarriles, cualquiera que sea la importancia del movimiento, se consideran como obstáculos de una altura de 5,4 m sobre la vía.
 11.3.3 Se tiene presente que algunos componentes de los sistemas de ayudas electrónicas para el aterrizaje, tales como reflectores, antenas, equipo monitor, etc., deben instalarse por encima del plano de luces. Debe hacerse todo lo posible para desplazar tales componentes fuera de los límites del plano de luces. Cuando se trata de reflectores y equipo monitor, esto puede conseguirse en muchos casos.
 11.3.4 Cuando un localizador de ILS esté instalado dentro de los límites del plano de luces, se admite que el localizador, o la pantalla si se usa, ha de sobresalir por encima del plano de luces. En tales casos, la altura de estas estructuras debe mantenerse al mínimo y deben situarse lo más lejos posible del umbral. En general, la regla relativa a las alturas permisibles es: 15 cm por cada tramo de 30 m de distancia que separe la estructura del umbral; p. ej., si el localizador está situado a 300 m del umbral, es permitido que la pantalla sobresalga por encima del plano del sistema de iluminación de aproximación hasta una altura máxima de 10 × 15 = 150 cm, pero preferiblemente debe mantenerse tan baja como sea posible y compatible con el funcionamiento correcto del ILS.
 11.3.5 Para emplazar una antena de azimut MLS, debe seguirse la orientación que figura en el Anexo 10, Volumen I, Adjunto G. Este texto, que también proporciona orientación sobre el emplazamiento común de una antena de azimut MLS con una antena de localizador ILS, sugiere que la antena de azimut MLS puede emplazarse dentro de los límites del plano de luces cuando no sea posible o no resulte práctico emplazarla más allá del extremo exterior de la iluminación de aproximación. Si la antena de azimut MLS está emplazada sobre la prolongación del eje de la pista, debe estar lo más lejos posible de la luz más cercana a la antena de azimut MLS en el sentido del extremo de la pista. Además, el centro de fase de la antena de azimut MLS debe estar por lo menos a 0,3 m por encima de las luces más cercanas a la antena de azimut MLS en el sentido del extremo de la pista. (Esta distancia puede disminuir a 0,15 m si el emplazamiento se encuentra, por lo demás, libre de problemas importantes en cuanto a trayectos múltiples). El cumplimiento de este requisito, cuyo objetivo es asegurar que la calidad de la señal MLS no se vea afectada por el sistema de iluminación de aproximación, puede tener como consecuencia la obstrucción parcial del sistema de iluminación por la antena de azimut MLS. Para asegurar que la obstrucción resultante no disminuya la guía visual más allá de un nivel aceptable, la antena de azimut MLS no debe estar emplazada a una distancia menor de 300 m del extremo de la pista, y el emplazamiento preferible debe ser a 25 m más allá de la barra transversal de 300 m (de este modo, la antena debe quedar a 5 m por detrás de la luz situada a 330 m del extremo de la pista). En los casos en que una antena de azimut MLS esté emplazada de ese modo, sólo se ve parcialmente obstruida una parte central de la barra transversal de 300 m del sistema de iluminación de aproximación. Con todo, es importante asegurar que las luces de la barra transversal no obstruidas estén en servicio en todo momento.
 11.3.6 Los objetos existentes dentro de los límites del plano de luces y que requieran que se eleve el plano a fin de satisfacer los criterios aquí expuestos, deben eliminarse, rebajarse o desplazarse cuando ello sea más económico que elevar dicho plano.
-11.3.7 En algunos casos pueden existir objetos que no sea posible eliminar, rebajar, ni desplazar de manera económica. Estos objetos pueden estar situados tan cerca del umbral que sobresalgan por encima de la pendiente del 2%. Cuando existan tales condiciones y no haya solución posible, puede excederse la pendiente del 2%, o se recurre a un “escalón”, a fin de mantener las luces de aproximación sobre los objetos. Tales “escalones” o pendientes aumentadas sólo deben constituir el último recurso, cuando no sea posible seguir los criterios normales respecto a las pendientes, y deben mantenerse al mínimo más estricto. Según este criterio, no se permite ninguna pendiente negativa en la parte más externa del sistema.
+11.3.7 En algunos casos pueden existir objetos que no sea posible eliminar, rebajar, ni desplazar de manera económica. Estos objetos pueden estar situados tan cerca del umbral que sobresalgan por encima de la pendiente del 2%. Cuando existan tales condiciones y no haya solución posible, puede excederse la pendiente del 2%, o se recurre a un "escalón", a fin de mantener las luces de aproximación sobre los objetos. Tales "escalones" o pendientes aumentadas sólo deben constituir el último recurso, cuando no sea posible seguir los criterios normales respecto a las pendientes, y deben mantenerse al mínimo más estricto. Según este criterio, no se permite ninguna pendiente negativa en la parte más externa del sistema.
 11.4 Examen de los efectos de las longitudes reducidas
 11.4.1 Nunca se debe insistir demasiado en la necesidad de que exista un sistema de iluminación de aproximación suficiente para las aproximaciones de precisión durante las que el piloto necesita referencias visuales antes del aterrizaje. La seguridad y regularidad de dichas operaciones dependen de esta información visual. La altura por encima del umbral de la pista a la cual el piloto decide que hay suficientes referencias visuales para continuar la aproximación de precisión y efectuar el aterrizaje, varía según el tipo de aproximación que se efectúa y otros factores como las condiciones meteorológicas, el equipo terrestre y de a bordo, etc. La longitud necesaria del sistema de iluminación de aproximación que sirve para todas las variantes de las aproximaciones de precisión es de 900 m, y se debe proporcionar esta longitud siempre que sea posible.
 11.4.2 No obstante, hay algunos lugares en que existen pistas en las cuales es imposible proporcionar los 900 m de longitud en el sistema de iluminación para las aproximaciones de precisión.
@@ -3442,16 +3484,15 @@ d) la pericia exigida para determinada función.
 Además, según lo exija su función especializada, el operador debe poseer la licencia de conducir emitida por el Consejo de Seguridad Vial (COSEVI), y los permisos o autorizaciones establecidos por la Administración del Aeródromo.
 18.1.3 Lo anterior debe aplicarse según convenga a la función que deba desempeñar el operador, por lo que no es necesario capacitar al mismo nivel a todos los operadores, como por ejemplo; a los operadores con funciones exclusivas de la plataforma.
 18.1.4 Si se aplican procedimientos especiales a operaciones realizadas en condiciones de mala visibilidad, conviene comprobar periódicamente si el conductor conoce los procedimientos.
-19. Método ACN-PCN para notificar la resistencia de los pavimentos
+(*)19. Método ACR-PCR para notificar la resistencia de los pavimentos (Aplicable a partir del 28 de noviembre de 2024)
 19.1 Operaciones de sobrecarga
-19.1.1 La sobrecarga de los pavimentos puede ser provocada por cargas excesivas, por un ritmo de utilización considerablemente elevado, o por ambos factores a la vez. Las cargas superiores a las definidas (por cálculo o evaluación) acortan la vida útil del pavimento, mientras que las cargas menores la prolongan. Salvo que se trate de una sobrecarga masiva, los pavimentos no están supeditados, en su comportamiento estructural, a determinado límite de carga, por encima del cual podrían experimentar fallas repentinas o catastróficas. Dado su comportamiento, un pavimento puede soportar reiteradamente una carga definible durante un número previsto de veces en el transcurso de su vida útil. En consecuencia, una sobrecarga ocasional de poca importancia puede aceptarse, de ser necesario, ya que reduce en poca medida la vida útil del pavimento y acelera relativamente poco su deterioro. Para las operaciones en que la magnitud de la sobrecarga o la frecuencia de utilización del pavimento no justifiquen un análisis detallado, se sugieren los siguientes criterios:
-a) en el caso de pavimentos flexibles, los movimientos ocasionales de aeronaves cuyo ACN no exceda del 10% del PCN notificado no deben ser perjudiciales para el pavimento;
-b) en el caso de pavimentos rígidos o compuestos, en los cuales una capa de pavimento rígido constituye un elemento primordial de la estructura, los movimientos ocasionales de aeronaves cuyo ACN no exceda en más de un 5% el PCN notificado no deben ser perjudiciales para el pavimento;
-c) si se desconoce la estructura del pavimento, debe aplicarse una limitación del 5%; y
-d) el número anual de movimientos de sobrecarga no debe exceder de un 5%, aproximadamente, de los movimientos totales anuales de la aeronave
-19.1.2 Normalmente, esos movimientos de sobrecarga no deben permitirse sobre los pavimentos que presenten señales de peligro o falla. Además, debe evitarse la sobrecarga cuando la resistencia del pavimento o de su terreno de fundación pueda estar debilitada por el agua. Cuando se efectúen operaciones de sobrecarga, la autoridad competente deben examinar periódicamente tanto las condiciones del pavimento como los criterios relativos a dichas operaciones, ya que la excesiva frecuencia de la sobrecarga puede disminuir en gran medida la vida útil del pavimento o exigir grandes obras de reparación.
-19.2 ACN para varios tipos de aeronaves
-A título de ejemplo, a nivel internacional se han evaluado varios tipos de aeronaves actualmente en uso sobre pavimentos rígidos y flexibles apoyados en las cuatro categorías de resistencia del terreno de fundación que figuran en la subparte B RAC 14.111 (f)(ii), sin embargo; los resultados se encuentran en el Manual de diseño de aeródromos (Doc. 9157), Parte 3 de la OACI.
+19.1. 1 La sobrecarga de los pavimentos puede ser provocada por cargas excesivas, por un ritmo de utilización considerablemente elevado, o por ambos factores a la vez . Las cargas superiores a las definidas (por cálculo o evaluación) acortan la vida útil del pavimento, mientras que las cargas menores la prolongan. Salvo que se trate de una sobrecarga masiva, los pavimentos no están supeditados, en su comportamiento estructural, a determinado límite de carga, por encima del cual podrían experimentar fallas repentinas o catastróficas. Dado su comportamiento, un pavimento puede soportar reiteradamente una carga definible durante un número previsto de veces en el transcurso de su vida útil. En consecuencia, una sobrecarga ocasional de poca importancia puede aceptarse, de ser necesario, ya que reduce en poca medida la vida útil del pavimento y acelera relativamente poco su deterioro. Para las operaciones en que la magnitud de la sobrecarga o la frecuencia de utilización del pavimento no justifiquen un análisis detallado, se sugieren los siguientes criterios:
+(a) en el caso de pavimentos flexibles y rígidos, los movimientos ocasionales de aeronaves cuyo ACR no exceda del 10% del PCR notificado no deberían ser perjudiciales para el pavimento;
+(b) el número anual de movimientos de sobrecarga no debe exceder de un 5%, aproximadamente, de los movimientos totales anuales, excepto en el caso de aeronaves livianas.
+19.1.2 Normalmente, esos movimientos de sobrecarga no deben permitirse sobre los pavimentos que presenten señales de peligro o falla. Además, debe evitarse la sobrecarga cuando la resistencia del pavimento o de su terreno de fundación pueda estar debilitada por el agua. Cuando se efe operaciones de sobrecarga, la autoridad competente debe examinar periódicamente tanto las condiciones del pavimento como los criterios relativos a dichas operaciones, ya que la excesiva frecuencia de la sobrecarga puede disminuir en gran medida la vida útil del pavimento o exigir grandes obras de reparación.
+19.2 ACR para varios tipos de aeronaves
+En el sitio web de la OACI se encuentra disponible el software específico para calcular el ACR de aeronaves, cualquiera que sea la masa, en pavimentos rígidos y flexibles, en función de las cuatro categorías estándar de resistencia del terreno de fundación.
+(*)(Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 44497 del 9 de enero del 2024)
 20. Sistema autónomo de advertencia de incursión en la pista (ARIWS)
 Estos sistemas autónomos son por lo general muy complejos en cuanto a su diseño y operación y, por lo tanto, todos los niveles de la industria, desde la autoridad reguladora hasta el usuario final, deben considerarlos cuidadosamente. Esta orientación proporciona una descripción más clara del sistema o sistemas y algunas sugerencias sobre las medidas que se requieren para implantar adecuadamente estos sistemas en un aeródromo en cualquier Estado.
 El Manual sobre la prevención de incursiones en la pista (Doc. 9870) presenta diferentes formas de prevenir incursiones en la pista.
@@ -3461,10 +3502,10 @@ El Manual sobre la prevención de incursiones en la pista (Doc. 9870) presenta d
 20.1.3 Un ARIWS no requiere entrelazado de circuitos, fuente de energía secundaria ni conexión operacional a otros sistemas de ayudas visuales.
 20.1.4 En la práctica, no todas las entradas o umbrales necesitan estar equipados con luces de advertencia. Cada aeródromo tendrá que evaluar sus necesidades individuales, dependiendo de las características del mismo. Existen varios sistemas que ofrecen la misma funcionalidad o una similar.
 20.2 Medidas de la tripulación de vuelo
-20.2.1 Es de importancia crítica que las tripulaciones de vuelo entiendan la advertencia que transmite el sistema ARIWS. Las advertencias se hacen en tiempo casi real, directamente a la tripulación de vuelo porque no hay tiempo para tipos de comunicaciones de “retransmisión”. En otras palabras, una advertencia de conflicto generada para ATS –que debe entonces interpretarla, evaluar la situación y comunicarse con la aeronave en cuestión– tomaría varios segundos, cuando cada segundo es crítico para poder detener la aeronave en forma segura y prevenir una posible colisión. A los pilotos se les presenta una señal mundialmente homogénea que significa “DETENERSE INMEDIATAMENTE” y deben estar entrenados para reaccionar en consecuencia. De la misma manera, los pilotos que reciben una autorización ATS para despegar o cruzar una pista, y que ven las luces rojas, deben DETENERSE y avisar a ATS que interrumpieron/pararon a causa de las luces rojas. De nuevo, la naturaleza crítica del tiempo es tal que no hay margen para malinterpretar la señal. Es de importancia extrema que la señal visual sea uniforme en todo el mundo.
+20.2.1 Es de importancia crítica que las tripulaciones de vuelo entiendan la advertencia que transmite el sistema ARIWS. Las advertencias se hacen en tiempo casi real, directamente a la tripulación de vuelo porque no hay tiempo para tipos de comunicaciones de "retransmisión". En otras palabras, una advertencia de conflicto generada para ATS -que debe entonces interpretarla, evaluar la situación y comunicarse con la aeronave en cuestión- tomaría varios segundos, cuando cada segundo es crítico para poder detener la aeronave en forma segura y prevenir una posible colisión. A los pilotos se les presenta una señal mundialmente homogénea que significa "DETENERSE INMEDIATAMENTE" y deben estar entrenados para reaccionar en consecuencia. De la misma manera, los pilotos que reciben una autorización ATS para despegar o cruzar una pista, y que ven las luces rojas, deben DETENERSE y avisar a ATS que interrumpieron/pararon a causa de las luces rojas. De nuevo, la naturaleza crítica del tiempo es tal que no hay margen para malinterpretar la señal. Es de importancia extrema que la señal visual sea uniforme en todo el mundo.
 20.2.2 También debe destacarse que el hecho de que las luces rojas se extingan no indica, en sí, una autorización para proseguir. Aún sigue siendo necesaria la autorización de control de tránsito aéreo. La ausencia de luces rojas de advertencia sólo significa que no se han detectado conflictos potenciales.
 20.2.3 En el caso de que un sistema quede fuera de servicio, sucederá una de dos cosas. Si el sistema falla cuando las luces están apagadas, no se requieren cambios en los procedimientos. Lo único que sucederá será la pérdida del sistema automático e independiente de advertencia. Las operaciones ATS y los procedimientos de la tripulación de vuelo (en respuesta a autorizaciones ATS) no cambiarán.
-20.2.4 Deberían elaborarse procedimientos para responder ante las circunstancias en que el sistema falla cuando está iluminado. Dependerá del ATS y/o del explotador del aeródromo establecer esos procedimientos de acuerdo con sus propias circunstancias. Debe recordarse que las tripulaciones de vuelo reciben la instrucción de “DETENERSE” en todas las luces rojas. Si la porción afectada del sistema, o el sistema completo se desactiva, la situación vuelve al escenario de luces apagadas descrito en 20.2.3.
+20.2.4 Deberían elaborarse procedimientos para responder ante las circunstancias en que el sistema falla cuando está iluminado. Dependerá del ATS y/o del explotador del aeródromo establecer esos procedimientos de acuerdo con sus propias circunstancias. Debe recordarse que las tripulaciones de vuelo reciben la instrucción de "DETENERSE" en todas las luces rojas. Si la porción afectada del sistema, o el sistema completo se desactiva, la situación vuelve al escenario de luces apagadas descrito en 20.2.3.
 20.3 Aeródromos
 20.3.1 No es necesario instalar ARIWS en todos los aeródromos. Cuando se esté considerando instalar tal sistema en un aeródromo, conviene hacer una evaluación de las necesidades individualmente, dependiendo de sus niveles de tráfico, la geometría del aeródromo, los patrones de rodaje en tierra, etc. Los grupos de usuarios locales como el Equipo local de seguridad operacional de la pista (LRST) pueden ayudar en este proceso. Tampoco todas las pistas o calles de rodaje necesitan estar equipadas con las luces, ni todas las instalaciones requieren un sistema completo de vigilancia en tierra para alimentar información a la computadora de detección de conflicto.
 20.3.2 Aunque puede haber requisitos locales específicos, algunos requisitos básicos del sistema se aplican a todos los ARIWS:
@@ -3474,10 +3515,10 @@ c) el sistema debe proporcionar una señal visual aceptada a nivel mundial que s
 d) deberían elaborarse procedimientos locales en caso de funcionamiento defectuoso o falla parcial o total del sistema.
 20.4 Servicios de tránsito aéreo
 20.4.1 El ARIWS está diseñado como complemento de las funciones ATS normales, proporcionando advertencias a las tripulaciones de vuelo y operadores de vehículos cuando involuntariamente se ha creado o ha pasado inadvertido un conflicto durante las operaciones de aeródromo normales.
-El ARIWS proporcionará una advertencia directa cuando, por ejemplo, el control en tierra o el control (local) de la torre ha emitido una autorización para esperar fuera de una pista, pero la tripulación de vuelo o el operador de un vehículo “no captó” la parte de “esperar fuera” de su autorización y la torre emitió una autorización para despegar o aterrizar en la misma pista, y la falta de colación por parte de la tripulación de vuelo o del operador del vehículo pasó inadvertida para el control de tránsito aéreo.
-20.4.2 En el caso en que se haya emitido una autorización y una tripulación informe que no la cumplió a causa de las “luces rojas”, o que interrumpió la maniobra a causa de las “luces rojas”, es imperativo que el controlador evalúe la situación y proporcione las instrucciones adicionales que sean necesarias. Muy bien puede ser que el sistema haya generado una advertencia falsa o que la incursión potencial ya no exista; sin embargo, puede también tratarse de una advertencia válida. En cualquier caso, es necesario proporcionar instrucciones adicionales y/o una nueva autorización. En caso de que el sistema falle, será necesario poner en práctica procedimientos, según lo descrito en 20.2.3 y 20.2.4. En ningún caso deberá ignorarse la iluminación del ARIWS sin confirmación de que, de hecho, no hay conflicto. Cabe destacar que se han evitado numerosos incidentes en los aeródromos que tienen instalado dicho sistema. También, cabe destacar que se han producido advertencias falsas, comúnmente como resultado de la calibración del soporte lógico de advertencias; sin embargo, en cualquier caso debe confirmarse la existencia o inexistencia del conflicto potencial.
+El ARIWS proporcionará una advertencia directa cuando, por ejemplo, el control en tierra o el control (local) de la torre ha emitido una autorización para esperar fuera de una pista, pero la tripulación de vuelo o el operador de un vehículo "no captó" la parte de "esperar fuera" de su autorización y la torre emitió una autorización para despegar o aterrizar en la misma pista, y la falta de colación por parte de la tripulación de vuelo o del operador del vehículo pasó inadvertida para el control de tránsito aéreo.
+20.4.2 En el caso en que se haya emitido una autorización y una tripulación informe que no la cumplió a causa de las "luces rojas", o que interrumpió la maniobra a causa de las "luces rojas", es imperativo que el controlador evalúe la situación y proporcione las instrucciones adicionales que sean necesarias. Muy bien puede ser que el sistema haya generado una advertencia falsa o que la incursión potencial ya no exista; sin embargo, puede también tratarse de una advertencia válida. En cualquier caso, es necesario proporcionar instrucciones adicionales y/o una nueva autorización. En caso de que el sistema falle, será necesario poner en práctica procedimientos, según lo descrito en 20.2.3 y 20.2.4. En ningún caso deberá ignorarse la iluminación del ARIWS sin confirmación de que, de hecho, no hay conflicto. Cabe destacar que se han evitado numerosos incidentes en los aeródromos que tienen instalado dicho sistema. También, cabe destacar que se han producido advertencias falsas, comúnmente como resultado de la calibración del soporte lógico de advertencias; sin embargo, en cualquier caso debe confirmarse la existencia o inexistencia del conflicto potencial.
 20.4.3 Si bien muchas instalaciones pueden contar con advertencias visuales o de audio para el personal ATS, de ninguna manera se pretende exigir al personal ATS que vigile activamente el sistema. Dichas advertencias pueden ayudar al personal ATS a evaluar rápidamente el conflicto, en caso de que se produzca una advertencia, y a proporcionar otras instrucciones apropiadas, pero el ARIWS no debería ser parte activa en el funcionamiento normal de las instalaciones ATS.
-20.4.4 Cada aeródromo donde se instale el sistema elaborará procedimientos dependiendo de su situación única. Nuevamente, es importante subrayar que bajo ninguna circunstancia debería darse a los pilotos u operadores una instrucción de “cruzar las luces rojas”. Como se señaló anteriormente, el empleo de Equipos locales de seguridad operacional de la pista (LRST) puede ayudar mucho en este proceso de desarrollo.
+20.4.4 Cada aeródromo donde se instale el sistema elaborará procedimientos dependiendo de su situación única. Nuevamente, es importante subrayar que bajo ninguna circunstancia debería darse a los pilotos u operadores una instrucción de "cruzar las luces rojas". Como se señaló anteriormente, el empleo de Equipos locales de seguridad operacional de la pista (LRST) puede ayudar mucho en este proceso de desarrollo.
 20.5 Promulgación de información
 20.5.1 La información sobre las características y el estado de un ARIWS en un aeródromo se promulgan en la sección AD 2.9 de la AIP, en el PANS-AIM (Doc. 10066) y su estado se actualiza conforme sea necesario a través de NOTAM o el ATIS, de conformidad con 2.9.1 de este Anexo. 20.5.2 Los explotadores de aeronave se asegurarán de que la documentación de las tripulaciones de vuelo incluya procedimientos relativos al ARIWS e información con orientación apropiada, conforme al Anexo 6, Parte I.
 20.5.3 Los aeródromos pueden proporcionar otras fuentes de orientación sobre operaciones y procedimientos para su personal, los explotadores de aeronave, ATS y los miembros del personal de terceros que pueden tener que interactuar con el ARIWS.
@@ -3488,12 +3529,12 @@ El ARIWS proporcionará una advertencia directa cuando, por ejemplo, el control 
 21.4 Las calles de rodaje existentes que sean más anchas de lo que se recomienda en este Anexo, pueden rectificarse pintando señales de fajas laterales de calle de rodaje para obtener el ancho recomendado. Siempre que sea posible, es preferible rediseñar correctamente esos emplazamientos que reconfigurarlos o repintarlos.
 21.5 Las entradas a la pista con múltiples calles de rodaje deberían ser paralelas entre sí y estar separadas notoriamente por medio de una zona no pavimentada. Este principio de diseño proporciona en cada punto de espera de la pista una zona de tierra para el correcto emplazamiento de las referencias visuales de letreros, señales e iluminación en el punto de espera de cada pista. Además, con el principio de diseño se eliminan costos innecesarios en la construcción de pavimento inutilizable y el costo de pintar señales de borde de calle de rodaje para indicar la ubicación del pavimento inutilizable. En general, un exceso de zonas pavimentadas en los puntos de espera de la pista reduce la eficacia de las referencias visuales de los letreros, señales e iluminación.
 21.6 Constrúyanse calles de rodaje que crucen la pista como si fueran una sola calle de rodaje recta.
-Evítese dividir en dos la calle de rodaje, luego de cruzar la pista. Este principio de diseño evita la construcción de calles de rodaje en forma de “Y”, que se sabe presentan el riesgo de que ocurran incursiones en la pista.
+Evítese dividir en dos la calle de rodaje, luego de cruzar la pista. Este principio de diseño evita la construcción de calles de rodaje en forma de "Y", que se sabe presentan el riesgo de que ocurran incursiones en la pista.
 21.7 Si es posible, evítese construir calles de rodaje que entren en el punto medio de la pista. Este principio de diseño reduce el riesgo de colisión en los lugares más peligrosos (lugares de alta energía) porque normalmente en ese punto las aeronaves que salen tienen demasiada energía para frenar, pero no suficiente velocidad para despegar antes de colisionar con otra aeronave o vehículo errante.
 21.8 Déjese una clara separación de pavimento entre una calle de salida rápida y otras calles de rodaje no rápidas que entren o crucen la pista. Este principio de diseño evita que se superpongan dos calles de rodaje para crear una zona pavimentada excesiva que confundiría
 a los pilotos al entrar en la pista.
 21.9 En la medida de lo posible, evítese el uso de diferentes materiales de pavimentación (asfalto y hormigón de cemento) en el punto de espera de la pista o sus alrededores. Este principio de diseño evita crear confusión visual en cuanto a la ubicación precisa del punto de espera de la pista.
-21.10 Muchos aeródromos tienen más de una pista, generalmente pares de pistas paralelas (dos pistas en un lado de la terminal), lo cual genera un problema difícil en cuanto a que, en la llegada o en la salida, las aeronaves tienen que cruzar una pista. Con esa configuración, el objetivo de seguridad operacional consiste en evitar o al menos reducir al mínimo el número de cruces de pistas. Ese objetivo puede lograrse construyendo una “calle de rodaje perimetral”. Una calle de rodaje perimetral es una ruta para el rodaje que rodea el final de una pista y permite así que la aeronave de llegada (cuando el aterrizaje se efectúa en la pista exterior del par) llegue a la terminal, o que la aeronave de salida (cuando la salida se efectúa desde la pista exterior del par) llegue a la pista sin cruzar una pista y sin entrar en conflicto con una aeronave que esté efectuando una salida o una aproximación.
+21.10 Muchos aeródromos tienen más de una pista, generalmente pares de pistas paralelas (dos pistas en un lado de la terminal), lo cual genera un problema difícil en cuanto a que, en la llegada o en la salida, las aeronaves tienen que cruzar una pista. Con esa configuración, el objetivo de seguridad operacional consiste en evitar o al menos reducir al mínimo el número de cruces de pistas. Ese objetivo puede lograrse construyendo una "calle de rodaje perimetral". Una calle de rodaje perimetral es una ruta para el rodaje que rodea el final de una pista y permite así que la aeronave de llegada (cuando el aterrizaje se efectúa en la pista exterior del par) llegue a la terminal, o que la aeronave de salida (cuando la salida se efectúa desde la pista exterior del par) llegue a la pista sin cruzar una pista y sin entrar en conflicto con una aeronave que esté efectuando una salida o una aproximación.
 21.11 Una calle de rodaje perimetral se diseñaría de acuerdo con los siguientes criterios:
 a) Se requiere espacio suficiente entre el umbral de aterrizaje y el eje de la calle de rodaje por donde se cruza por debajo de la trayectoria de aproximación, para permitir que la aeronave que está efectuando un rodaje crítico pase por debajo de la aproximación sin penetrar ninguna superficie de aproximación.
 b) El impacto del chorro de la aeronave que despega debería considerarse en consulta con los fabricantes de aeronaves; debería evaluarse la intensidad del empuje del despegue para determinar la ubicación de una calle de rodaje perimetral.
@@ -3517,12 +3558,12 @@ a) riesgos de seguridad operacional en el aeródromo;
 b) condiciones de visibilidad;
 c) disposición general del aeródromo; y
 d) densidad del tránsito.
-Nota.— El Manual de servicios de aeropuertos, Parte 8 — Servicios operacionales de aeropuerto (Doc. 9137) contiene orientación adicional relativa a datos cartográficos de aeródromo.
+Nota.- El Manual de servicios de aeropuertos, Parte 8 - Servicios operacionales de aeropuerto (Doc. 9137) contiene orientación adicional relativa a datos cartográficos de aeródromo.
 ANEXO B. SUPERFICIES LIMITADORAS DE OBSTÁCULOS
 [imagen]
 ANEXO C. MARCO PARA EL PROGRAMA ESTATAL DE SEGURIDAD
 OPERACIONAL (SSP)
-En la “Directriz de Gestión de la Seguridad Operacional SSP/SMS” se presenta el marco para la implantación y el mantenimiento del programa estatal de seguridad operacional (SSP).
+En la "Directriz de Gestión de la Seguridad Operacional SSP/SMS" se presenta el marco para la implantación y el mantenimiento del programa estatal de seguridad operacional (SSP).
 SECCIÓN 2 - CIRCULARES CONJUNTAS DE ASESORAMIENTO (CCA), MEDIOS
 ACEPTABLES DE CUMPLIMIENTO (MAC) Y MATERIAL EXPLICATIVO E
 INTERPRETATIVO (MEI).
@@ -3546,7 +3587,7 @@ En este RAC 14 se establecen las normas mínimas de aeródromo para aeronaves co
 En los PANS-AERÓDROMOS (Doc. 9981) figuran disposiciones para dar cabida a aeronaves que imponen más exigencias en los aeródromos existentes. En el Manual de Diseño de Aeródromos (Doc. 9157), Parte 2 de la OACI, se ofrece orientación sobre algunos de los posibles efectos de futuras aeronaves en estas especificaciones.
 Debe tomarse nota de que las normas relativas a las pistas para aproximaciones de precisión, de las Categorías II y III, sólo son aplicables a las pistas destinadas a ser utilizadas por aviones con números de clave 3 y 4.
 El RAC 14, no contiene normas relativas a la planificación general de aeródromos (tales como la separación entre aeródromos adyacentes o la capacidad de los distintos aeródromos) ni las relativas a los efectos en el medio ambiente, los aspectos económicos u otros factores no técnicos que deben considerarse en el desarrollo de un aeródromo.
-El RAC 14, en complemento con el RAC 139 “Certificación, Operación y Vigilancia de Aeródromos”, conforma la norma general para el cumplimiento del Anexo 14 de la OACI.
+El RAC 14, en complemento con el RAC 139 "Certificación, Operación y Vigilancia de Aeródromos", conforma la norma general para el cumplimiento del Anexo 14 de la OACI.
 El Manual de planificación de aeropuertos (Doc. 9184), Parte 1 de la OACI, contiene información sobre estas cuestiones. Los textos de orientación sobre los aspectos relativos al medio ambiente del desarrollo y la explotación de un aeródromo se incluyen en el Manual de planificación de aeropuertos (Doc. 9184), Parte 2 de la OACI.
 La seguridad de la aviación es parte integrante de la planificación y operaciones de aeródromo. El RAC 14, contiene diversas especificaciones destinadas a incrementar el nivel de seguridad en los aeródromos. Las normas sobre otras instalaciones relacionadas con la seguridad figuran en el RAC 17, y en el Manual de seguridad de la OACI se facilita orientación detallada a este respecto.
 CCA 14.001(b) Aplicación a los aeropuertos STOL
@@ -3562,30 +3603,31 @@ perpendicular al eje de la pista.
 Datos cartográficos de aeródromo (AMD).
 Los datos cartográficos de aeródromo se recopilan para diversos fines, por ejemplo, para mejorar la conciencia situacional del usuario, las operaciones de navegación en la superficie y las actividades de instrucción, elaboración de mapas y planificación.
 Densidad de tránsito de aeródromo
-1. — El número de movimientos durante la hora punta media es la media aritmética del año del número de movimientos durante la hora punta diaria.
-2. — Tanto los despegues como los aterrizajes constituyen un movimiento.
+1. - El número de movimientos durante la hora punta media es la media aritmética del año del número de movimientos durante la hora punta diaria.
+2. - Tanto los despegues como los aterrizajes constituyen un movimiento.
 Geoide
 El geoide tiene forma irregular debido a las perturbaciones gravitacionales locales (mareas, salinidad, corrientes, etc.) y la dirección de la gravedad es perpendicular al geoide en cada punto.
 Longitud del campo de referencia del avión.
 En el Adjunto A, Sección 2, se proporciona información sobre el concepto de la longitud de campo compensado y el Manual de Aeronavegabilidad (Doc. 9760) contiene referencias detalladas en lo relativo a la distancia de despegue
 Número de clasificación de aeronaves (ACN).
 El número de clasificación de aeronaves se calcula con respecto a la posición del centro de gravedad (CG), que determina la carga crítica sobre el tren de aterrizaje crítico. Normalmente, para calcular el ACN se emplea la posición más retrasada del CG correspondiente a la masa bruta máxima en la plataforma (rampa). En casos excepcionales, la posición más avanzada del CG puede determinar que resulte más crítica la carga sobre el tren de aterrizaje de proa.
+(Así reformada la definición anterior por el artículo 1° del decreto ejecutivo N° 44497 del 9 de enero del 2024)
 Objeto frangible.
 En el Manual de Diseño de Aeródromos (Doc. 9157), Parte 6, se da orientación sobre diseño en materia de frangibilidad.
 Ondulación geoidal.
-Con respecto al elipsoide definido del Sistema Geodésico Mundial — 1984 (WGS-84), la diferencia entre la altura elipsoidal y la altura ortométrica en el WGS-84 representa la ondulación geoidal en el WGS-84.
+Con respecto al elipsoide definido del Sistema Geodésico Mundial - 1984 (WGS-84), la diferencia entre la altura elipsoidal y la altura ortométrica en el WGS-84 representa la ondulación geoidal en el WGS-84.
 Pista de vuelo por instrumentos
-1. — Las ayudas visuales no tienen necesariamente que acomodarse a la escala que caracterice las ayudas no visuales que se proporcionen. El criterio para la selección de las ayudas visuales se basa en las condiciones en que se trata de operar.
-2. — Consúltese el Anexo 6 para los tipos de operaciones de aproximación por instrumentos.
+1. - Las ayudas visuales no tienen necesariamente que acomodarse a la escala que caracterice las ayudas no visuales que se proporcionen. El criterio para la selección de las ayudas visuales se basa en las condiciones en que se trata de operar.
+2. - Consúltese el Anexo 6 para los tipos de operaciones de aproximación por instrumentos.
 Pista de vuelo visual.
 Las condiciones meteorológicas de vuelo visual (VMC) se describen en el Capítulo 3 del Anexo 2.
 Punto de espera de la pista.
-En la fraseología radiotelefónica, la expresión “punto de espera” se utiliza para designar el punto de espera de la pista.
+En la fraseología radiotelefónica, la expresión "punto de espera" se utiliza para designar el punto de espera de la pista.
 CCA 14.007 Sistemas de referencia común
 (Ver RAC 14.007)(a),(b)
-(a) En el Manual del Sistema Geodésico Mundial — 1984 (WGS-84) (Doc. 9674) de la OACI figuran textos de orientación amplios relativos al WGS-84.
+(a) En el Manual del Sistema Geodésico Mundial - 1984 (WGS-84) (Doc. 9674) de la OACI figuran textos de orientación amplios relativos al WGS-84.
 (b) El geoide a nivel mundial se aproxima muy estrechamente al nivel medio del mar. Según su definición, es la superficie equipotencial en el campo de gravedad de la Tierra que coincide con el MSL inalterado que se extiende de manera continua a través de los continentes. Las alturas (elevaciones) relacionadas con la gravedad también se denominan alturas ortométricas y las distancias de un punto por encima del elipsoide se denominan alturas elipsoidales.
-(c) Nota.— Véanse los PANS-AIM (Doc. 10066), Apéndice 2.
+(c) Nota.- Véanse los PANS-AIM (Doc. 10066), Apéndice 2.
 CCA 14.010 Gestión de la seguridad Operacional
 (Ver RAC 14.010)
 En el Anexo C figura un marco para la implantación y el mantenimiento de un programa estatal de seguridad operacional y en el Manual de Gestión de la Seguridad Operacional (Doc. 9859) de la OACI figura orientación sobre un programa estatal de seguridad operacional.
@@ -3596,13 +3638,25 @@ CCA 14.011 Diseño de aeropuertos
 (Ver RAC 14.011(a)(b))
 1. En el Manual de Planificación de Aeropuertos (Doc. 9184), Parte 1, figura orientación acerca de todos los aspectos de planificación de aeródromos, comprendida la seguridad.
 2. La orientación sobre medidas de utilización del terreno y controles ambientales figura en el Manual de Planificación de Aeropuertos (Doc. 9184), Parte 2.
+3. En un plan maestro para el desarrollo a largo plazo de un aeródromo se representa de forma gradual el desarrollo último de éste y se exponen los datos y la lógica en la que se basa. Los planes maestros se preparan para modernizar aeródromos existentes y crear nuevos, independientemente de sus dimensiones, complejidad y función. Es importante destacar que los planes maestros no constituyen programas confirmados de ejecución. Proporcionan información sobre los tipos de mejoras que se llevarán a cabo de manera gradual. En el Manual de planificación de aeropuertos (Doc 9184), Parte 1, figura orientación sobre todos los aspectos de la planificación de aeródromos.
+(Así adicionado el punto anterior por el artículo 1° del decreto ejecutivo N° 44497 del 9 de enero del 2024)
+4. Un plan maestro representa el plan de desarrollo de un aeródromo específico. El explotador del aeródromo desarrolla dicho plan basándose en la viabilidad económica, los pronósticos
+de tráfico y en los requisitos actuales y futuros de los explotadores de aeronaves (véase RAC 14.0ll(a)(iii)).
+(Así adicionado el punto anterior por el artículo 1° del decreto ejecutivo N° 44497 del 9 de enero del 2024)
+5. Puede requerirse un plan maestro cuando la falta de capacidad aeroportuaria, debido a condiciones tales como las previsiones de crecimiento del tránsito, el clima cambiante o grandes obras para abordar preocupaciones de seguridad operacional o ambientales, entre otras, pueda poner en riesgo la conectividad de un área geográfica o causar trastornos graves en la red de transporte aéreo.
+Nota 1: La información anticipada suministrada para facilitar el proceso de planificación incluye los futuros tipos de aeronave, las características y cantidad de aeronaves que se tiene previsto utilizar, el crecimiento previsto de movimientos de aeronave, el número de pasajeros y la cantidad de carga que se proyecta manejar.
+Nota 2: Véase la regulación nacional relativa al Anexo 9, Capítulo 6, en lo que se refiere a la necesidad de que los explotadores de aeronaves comuniquen a los explotadores de aeródromos sus planes por lo que respecta al servicio, los horarios y la flota en el aeropuerto, a fin de permitir la planificación racional de las instalaciones y servicios en relación con el tráfico previsto.
+Nota 3: Es apropiado tomar en cuenta las Políticas de la OACI sobre derechos aeroportuarios y por servicios de navegación aérea (Doc 9082), Sección I, respecto a la consulta con los usuarios sobre el suministro de información anticipada acerca de la planificación y la protección de datos comercialmente delicados.
+(Así adicionado el punto anterior por el artículo 1° del decreto ejecutivo N° 44497 del 9 de enero del 2024)
 CCA 14.013 Clave de referencia de aeródromo
 (Ver RAC 14.013(a)(b))
 (a) El propósito de la clave de referencia es proporcionar un método simple para relacionar entre si las numerosas especificaciones concernientes a las características de los aeródromos, a fin de suministrar una serie de instalaciones aeroportuarias que convengan a los aviones destinados a operar en el aeródromo. No se pretende que esta clave se utilice para determinar los requisitos en cuanto a la longitud de la pista ni en cuanto a la resistencia del pavimento. La clave está compuesta de dos elementos que se relacionan con las características y dimensiones del avión. El elemento 1 es un número basado en la longitud del campo de referencia del avión y el elemento 2 es una letra basada en la envergadura del avión La letra o número de la clave dentro de un elemento seleccionado para fines del proyecto está relacionado con las características del avión crítico para el que se proporcione la instalación. Al aplicar las disposiciones de esta RAC 14, se indican en primer lugar los aviones para los que se destine el aeródromo y después se determinan los dos elementos de la clave.
-(b) En el Manual de diseño de aeródromos (Doc. 9157), Parte 1 — Pistas, se proporciona orientación para determinar la longitud de la pista.
+(b) En el Manual de diseño de aeródromos (Doc. 9157), Parte 1 - Pistas, se proporciona orientación para determinar la longitud de la pista.
 (c) En el Manual de Diseño de Aeródromos (Doc. 9157), Partes 1 y 2, se da orientación para determinar la clave de referencia de aeródromo.
 (d) En el Manual de Diseño de Aeródromos (Doc. 9157), Partes 1 y 2, se proporciona orientación sobre planificación con respecto a los aviones de más de 80 m de envergadura.
 (e) La longitud del campo de referencia del avión se determina únicamente para seleccionar el número de clave, sin intención de variar la longitud verdadera de la pista que se proporcione.
+(f) Los Procedimientos para los serv1c1os de navegación aérea - Aeródromos (PANS Aeródromos) (Doc 9981) incluyen procedimientos para la realización de estudios de compatibilidad de aeródromos a fin de dar cabida a aviones con extremos de ala plegables que abarquen dos letras de clave. Para más información, consúltense el manual del fabricante sobre las características de las aeronaves para la planificación de aeropuertos.
+(Así adicionada la definición anterior por el artículo 1° del decreto ejecutivo N° 44497 del 9 de enero del 2024)
 CCA 14.015 Procedimientos específicos para operaciones de Aeródromos
 (RAC 14.015)
 (a) Los textos de los PANS-Aeródromos tratan de cuestiones operacionales que enfrentan los aeródromos existentes y contienen los procedimientos necesarios que permiten garantizar la seguridad permanente de las operaciones. En los casos en los que se hayan definido medidas y procedimientos y restricciones operacionales alternativos, éstos se detallarán en el manual de aeródromo y examinarán periódicamente para evaluar constantemente su vigencia. Los PANSAeródromos no tienen por objeto sustituir ni eludir las disposiciones de este RAC. Los procedimientos para evaluar la compatibilidad entre la operación de un avión nuevo y un aeródromo existente figuran en los PANS-Aeródromos (Doc. 9981).
@@ -3622,25 +3676,19 @@ CCA 14.109 Dimensiones del aeródromo e información relativa a las mismas.
 (Ver RAC 14.109(e))
 Ver en el RAC 15, Apéndice 1, las ilustraciones gráficas de las superficies de recolección de datos de obstáculos y los criterios utilizados para identificar obstáculos en las Áreas 2 y 3.
 En los PANS-AIM (Doc. 10066), Apéndice 1 y Apéndice 8, figuran los requisitos para la determinación de datos sobre obstáculos en las Áreas 2 y 3.
-CCA 14.111 Resistencia de los pavimentos.
-(Ver RAC 14.111(b)(c)(d)(f)(g))
-(b) En caso necesario, los PCN pueden publicarse con una aproximación de hasta una décima de número entero.
-(c) Se pueden notificar diferentes PCN si la resistencia de un pavimento está sujeta a variaciones estacionales de importancia.
-(d) Los procedimientos normalizados para determinar el ACN de una aeronave figuran en el Manual de Diseño de Aeródromos (Doc. 9157), Parte 3. A título de ejemplo, se han evaluado varios tipos de aeronaves actualmente en uso, sobre pavimentos rígidos y flexibles con las cuatro categorías del terreno de fundación que se indican RAC 14. 111(f)(2), y los resultados se presentan en dicho manual.
-(f) Si la construcción es compuesta o no se ajusta a las normas, se debe incluir una nota al respecto (ver el ejemplo 2 siguiente).
-(f) En los siguientes ejemplos se muestra cómo notificar los datos sobre resistencia de los pavimentos según el método ACN-PCN.
-Ejemplo 1. — Si se ha evaluado técnicamente que la resistencia de un pavimento rígido apoyado en un terreno de fundación de resistencia mediana es de 80 PCN y no hay límite de presión de los neumáticos, la información notificada sería:
-PCN 80 / R / B / W / T
-Ejemplo 2.— Si se ha evaluado, aprovechando la experiencia adquirida con aeronaves, que la resistencia de un pavimento compuesto que se comporta como un pavimento flexible y se apoya en
-un terreno de fundación de resistencia alta tiene el PCN 50 y que la presión máxima permisible de los neumáticos es de 1,25 MPa, la información notificada sería:
-PCN 50 / F / A / Y / U
-Nota. — Construcción compuesta.
-Ejemplo 3. — Si se ha evaluado técnicamente que la resistencia de un pavimento flexible, apoyado en un terreno de fundación de resistencia mediana, es de 40 PCN y que la presión máxima permisible de los neumáticos es de 0,80 MPa, la información notificada sería:
-PCN 40 / F / B / 0,80 MPa / T
-Ejemplo 4. — Si el pavimento está sujeto a un límite de 390 000 kg de masa total, correspondiente a la aeronave B747-400, en la información notificada se incluiría también la siguiente nota.
-Nota. — El PCN notificado está sujeto al límite de 390 000 kg de masa total, correspondiente a la aeronave B747-400.
-Nota. — En el Anexo A, Sección 19, se explica en detalle un método simple para reglamentar las operaciones en sobrecarga, mientras que en el Manual de Diseño de Aeródromos (Doc. 9157), Parte 3, se incluye la descripción de procedimientos más detallados para evaluar los pavimentos y su aptitud para admitir operaciones restringidas en sobrecarga.
-Ejemplo: 4 000 kg/0,50 MPa.
+(*) CCA 14.111 Resistencia de los pavimentos (a partir del 28 de noviembre de 2024)
+(a) En el Manual de diseño de aeródromos (Doc 9157, Parte 3) figura orientación sobre la notificación y publicación de PCR.
+(b) Se pueden notificar diferentes PCR si la resistencia de un pavimento está sujeta a variaciones estacionales de importancia.
+(c) Los procedimientos normalizados para determinar el ACR de una aeronave figuran en el Manual de diseño de aeródromos (Doc 9157), Parte 3. En el sitio web de la OACI está disponible soporte lógico específico para calcular el ACR de aeronaves, cualquiera que sea la masa, en pavimentos rígidos y flexibles, en fu de las cuatro categorías estándar de resistencia del terreno de fundación que se detallan RAC-14.111. (f)
+(d) Si la construcción es compuesta o no se ajusta a las normas, se debe incluir una nota al respecto (ver el ejemplo 2 siguiente).
+(e) En los siguientes ejemplos se muestra cómo notificar los datos sobre resistencia de los pavimentos según el método ACR-PCR. Se puede encontrar orientación adicional sobre este tema en el Manual de diseño de aeródromos (Doc 9157, Parte 3 - Pavimentos)
+Ejemplo 1. - Si se ha evaluado técnicamente que la resistencia de un pavimento rígido apoyado en un terreno de fundación de resistencia mediana es de 760 PCR y no hay límite de presión de los neumáticos, la información notificada sería:
+PCR 760/R/B/W/T
+Ejemplo 2.- Si se ha evaluado, aprovechando la experiencia adquirida con aeronaves, que la resistencia de un pavimento compuesto que se comporta como un pavimento flexible y se apoya en un terreno de fundación de resistencia alta es de 550 PCR y que la presión máxima permisible de los neumáticos es de 1,25 MPa, la información notificada sería:
+PCR 550/F/A/Y/U
+Nota. - Construcción compuesta.
+(f) En el Apéndice A, Sección 19 de esta regulación, se explica en detalle un método simple para reglamentar las operaciones en sobrecarga, mientras que en el Manual de diseño de aeródromos (Doc 9157), Parte 3, se incluye la descripción de procedimientos más detallados para evaluar los pavimentos y su aptitud para admitir operaciones restringidas en sobrecarga.
+(*)(Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 44497 del 9 de enero del 2024)
 CCA 14.113 Emplazamientos para la verificación del altímetro antes del vuelo.
 (Ver RAC 14.113(b))
 (b) El hecho de situar en la plataforma un emplazamiento para la verificación del altímetro antes del vuelo permite hacer la comprobación antes de obtenerse el permiso para el rodaje y hace innecesario detenerse para dicho fin después de abandonar la plataforma.
@@ -3691,7 +3739,7 @@ Los factores que afectan las anchuras de pista figuran en el Manual de Diseño d
 Véase RAC 14.203 con respecto a proveer márgenes de pista cuando la letra de clave sea F, en particular para aviones cuatrimotores (o más).
 CCA 14.201 Distancia mínima entre pistas paralelas.
 (Ver RAC 14.201(k)(l))
-El método para clasificar las aeronaves por categorías de estela turbulenta y de mínimos de separación por estela turbulenta aparecen en los Procedimientos para los servicios de navegación aérea —
+El método para clasificar las aeronaves por categorías de estela turbulenta y de mínimos de separación por estela turbulenta aparecen en los Procedimientos para los servicios de navegación aérea -
 Gestión del tránsito aéreo (PANS-ATM) (Doc. 4444), Capítulo 4, 4.9 y Capítulo 5, 5.8, respectivamente.
 En los PANS-ATM (Doc. 4444), Capítulo 6 y en los PANS-OPS (Doc. 8168), Volumen I, Parte III, Sección 2 y Volumen II, Parte I, Sección 3; Parte II, Sección 1; y Parte III, Sección 3, figuran los procedimientos y requisitos relativos a instalaciones y servicios para operaciones simultáneas en pistas de vuelo por instrumentos paralelas o casi paralelas, y en el Manual sobre operaciones simultáneas en pistas de vuelo por instrumentos paralelas o casi paralelas (SOIR) (Doc. 9643) se reseñan las orientaciones pertinentes.
 CCA 14.201 Cambios de pendiente longitudinal.
@@ -3725,12 +3773,12 @@ Irregularidad de la superficie | Longitud de la irregularidad (m)
 Altura (cm) aceptable de la irregularidad de la superficie | 2,9 | 3,8 | 4,5 | 5 | 5,4 | 5,9 | 6,5 | 8,5 | 10
 Altura (cm) tolerable de la irregularidad de la superficie | 3,9 | 5,5 | 6,8 | 7,8 | 8,6 | 9,6 | 11 | 13,6 | 16
 Altura (cm) excesiva de la irregularidad de la superficie | 5,8 | 7,6 | 9,1 | 10 | 10,8 | 11,9 | 13,9 | 17 | 20
-Obsérvese que “irregularidad de la superficie” se define aquí como desviaciones aisladas medias de la elevación de la superficie que no están en una pendiente uniforme en alguna sección dada de una pista. Para los fines que aquí interesan, por “sección de pista” se entiende un segmento de una pista en la que prevalece una pendiente general ascendente, descendente o suave y continua. La longitud de esta sección generalmente es de 30 a 60 m, o más, dependiendo del perfil longitudinal y de la condición del pavimento.
+Obsérvese que "irregularidad de la superficie" se define aquí como desviaciones aisladas medias de la elevación de la superficie que no están en una pendiente uniforme en alguna sección dada de una pista. Para los fines que aquí interesan, por "sección de pista" se entiende un segmento de una pista en la que prevalece una pendiente general ascendente, descendente o suave y continua. La longitud de esta sección generalmente es de 30 a 60 m, o más, dependiendo del perfil longitudinal y de la condición del pavimento.
 La protuberancia máxima tolerable de tipo escalonado, como la que podría existir entre losas adyacentes, es simplemente la altura de la protuberancia que corresponde a una longitud cero de la protuberancia en el extremo superior de la región tolerable de los criterios sobre irregularidad de la Figura A-3. La altura de la protuberancia en este lugar es de 1,75 cm.
-1.4 En la Figura A-3 se comparan los criterios sobre irregularidad de la superficie con los elaborados por la Administración Federal de Aviación de los Estados Unidos. En el Manual de diseño de aeródromos, Parte 3 — Pavimentos (Doc. 9157) se proporciona orientación adicional acerca de rampas temporales para el trabajo de recrecimiento en pistas operacionales.
-1.5 La deformación de la pista con el tiempo puede también aumentar la posibilidad de la formación de charcos. Los charcos cuya profundidad sólo sea de unos 3 mm — especialmente si están situados en lugares de la pista donde los aviones que aterrizan tienen gran velocidad — pueden inducir el hidroplaneo, fenómeno que puede mantenerse en una pista cubierta con una capa mucho más delgada de agua. Con el fin de mejorar los textos de orientación relativos a la longitud y profundidad significativas de los charcos en relación con el hidroplaneo, se están llevando a cabo más investigaciones.
+1.4 En la Figura A-3 se comparan los criterios sobre irregularidad de la superficie con los elaborados por la Administración Federal de Aviación de los Estados Unidos. En el Manual de diseño de aeródromos, Parte 3 - Pavimentos (Doc. 9157) se proporciona orientación adicional acerca de rampas temporales para el trabajo de recrecimiento en pistas operacionales.
+1.5 La deformación de la pista con el tiempo puede también aumentar la posibilidad de la formación de charcos. Los charcos cuya profundidad sólo sea de unos 3 mm - especialmente si están situados en lugares de la pista donde los aviones que aterrizan tienen gran velocidad - pueden inducir el hidroplaneo, fenómeno que puede mantenerse en una pista cubierta con una capa mucho más delgada de agua. Con el fin de mejorar los textos de orientación relativos a la longitud y profundidad significativas de los charcos en relación con el hidroplaneo, se están llevando a cabo más investigaciones.
 [imagen]
-Nota. — Estos criterios se refieren a una irregularidad aislada, no a efectos armónicos de onda larga ni de ondulaciones repetidas de la superficie.
+Nota. - Estos criterios se refieren a una irregularidad aislada, no a efectos armónicos de onda larga ni de ondulaciones repetidas de la superficie.
 Información adicional se encuentra en el Manual de diseño de Aeródromos (Doc. 9157), Parte 3. Material de guía en las metodologías utilizadas para medir la textura de la superficie se encuentra en el Manual se Servicios de Aeropuertos (Doc. 9137), Parte 2.
 Material de guía en las metodologías para mejorar la textura de la superficie se encuentra en el Manual de Diseño de Aeródromos (Doc. 9157), Parte 3.
 CCA14.201 Superficie de las pistas (rozamiento)
@@ -3791,7 +3839,7 @@ CCA 14.205 Plataforma de viraje en la pista
 La iniciación del viraje se facilita ubicando la plataforma de viraje en el lado izquierdo de la pista, ya que el asiento de la izquierda es la ubicación normal del piloto al mando.
 CCA 14.205 Plataforma de viraje en la pista.
 (Ver RAC 14.205(f))
-“Base de ruedas” significa la distancia desde el tren de proa al centro geométrico del tren principal.
+"Base de ruedas" significa la distancia desde el tren de proa al centro geométrico del tren principal.
 CCA 14.205 Resistencia de las plataforma de viraje en la pistas.
 (Ver RAC 14.205(i))
 Cuando se proporciona una plataforma de viraje en la pista con pavimento flexible, la superficie debe tener la capacidad de soportar las fuerzas de deformación horizontal ejercida por los neumáticos del tren de aterrizaje principal durante las maniobras de viraje.
@@ -3803,20 +3851,20 @@ CCA 14.207 Anchura de las franjas de pista.
 Cuando no sea materialmente posible alcanzar la anchura de franja establecida en esta regulación operador de aeródromo debe realizar Evaluaciones de Seguridad Operacional o un Estudio Aeronáutico para evaluar los niveles de riesgo y establecer procedimientos y acciones que lo mitiguen a niveles aceptables por la DGAC.
 CCA 14.207 Objetos en las franjas de pista.
 (Ver RAC 14.207(f))
-En RAC 14. 817 se ofrece información con respecto al emplazamiento de equipo e instalaciones en las franjas de pista.
-Nota 1.— Deberán tenerse en cuenta el emplazamiento y el diseño de los desagües en las franjas de las pistas para evitar daños en los aviones que accidentalmente se salgan de la pista. Es posible que se requieran tapas de desagüe especialmente diseñadas. En el Manual de diseño de aeródromos (Doc. 9157), Parte I, figura más orientación.
-Nota 2.— Donde se instalen conductos de aguas pluviales descubiertos o cubiertos, se verificará que sus estructuras no se extiendan por encima del suelo circundante para que no se consideren un obstáculo. Véase también la Nota 1 de 3.4.16.
-Nota 3.— Es necesario prestar atención particular al diseño y mantenimiento de un conducto de aguas pluviales descubierto a fin de evitar la atracción de fauna silvestre, especialmente aves. De ser necesario, puede cubrirse con una red. En el Manual de servicios de aeropuertos (Doc. 9137), Parte 3, figura orientación sobre el control y reducción del peligro que representa la fauna silvestre.
+En el RAC 14.817 se ofrece información con respecto al emplazamiento de equipo e instalaciones en las franjas de pista.Nota 1.- Deberán tenerse en cuenta el emplazamiento y el diseño de los desagües en las franjas de las pistas para evitar daños en los aviones que accidentalmente se salgan de la pista. Es posible que se requieran tapas de desagüe especialmente diseñadas. En el Manual de diseño de aeródromos (Doc. 9157), Parte I, figura más orientación.
+Nota 2.- Donde se instalen conductos de aguas pluviales descubiertos o cubiertos, se verificará que sus estructuras no se extiendan por encima del suelo circundante para que no se consideren un obstáculo. Véase también la Nota 1 de 3.4.16.
+Nota 3.-Es necesario prestar atención particular al diseño y mantenimiento de un conducto de aguas pluviales descubierto a fin de evitar la atracción de fauna silvestre, especialmente aves. De ser necesario, puede cubrirse con una red. los procedimientos sobre la gestión de la fauna silvestre se especifican en los PANS-Aeródromos (Doc 9981). En el Manual de servicios de aeropuertos (Doc 9137) Parte 3,figura orientación adicional.
+(*)(Así reformada la nota anterior por el artículo 1° del decreto ejecutivo N° 44497 del 9 de enero del 2024)
 CCA 14.207 Nivelación de las franjas de pista.
 (Ver RAC 14.207(h) (k) (n))
 En el Anexo A, Sección 9, se da orientación sobre la nivelación de un área más amplia de una franja que comprenda una pista para aproximaciones de precisión cuando el número de clave sea 3 o 4.
 (Ver RAC 14.207(k))
-Nota 1.— El área prevista para reducir los efectos erosivos del chorro de los motores y del torbellino de las hélices puede denominarse plataforma antichorro.
-Note 2.— En el Manual de diseño de aeródromos (Doc. 9157), Parte 2, se proporciona orientación sobre protección contra el chorro de los motores de las aeronaves.
+Nota 1.- El área prevista para reducir los efectos erosivos del chorro de los motores y del torbellino de las hélices puede denominarse plataforma antichorro.
+Note 2.- En el Manual de diseño de aeródromos (Doc. 9157), Parte 2, se proporciona orientación sobre protección contra el chorro de los motores de las aeronaves.
 Algunas veces, el área adyacente al extremo de una pista puede recibir el nombre de plataforma antichorro.
 (Ver RAC 14.207(n))
-Nota 1.— Donde se considere necesario para lograr un desagüe adecuado, puede permitirse un conducto de aguas pluviales descubierto en la parte no nivelada de la franja de una pista, que se colocará lo más alejado posible de la pista.
-Nota 2.— En el procedimiento de RFF de los aeródromos sería necesario tener en cuenta el emplazamiento de los conductos de aguas pluviales descubiertos dentro de la parte no nivelada de la franja de una pista.
+Nota 1.- Donde se considere necesario para lograr un desagüe adecuado, puede permitirse un conducto de aguas pluviales descubierto en la parte no nivelada de la franja de una pista, que se colocará lo más alejado posible de la pista.
+Nota 2.- En el procedimiento de RFF de los aeródromos sería necesario tener en cuenta el emplazamiento de los conductos de aguas pluviales descubiertos dentro de la parte no nivelada de la franja de una pista.
 CCA 14.207 Resistencia de las franjas de pista.
 (Ver RAC 14.207(p))
 En el Manual de Diseño de Aeródromos (Doc. 9157), Parte 1, se proporciona orientación sobre la preparación de las franjas de pista.
@@ -3855,11 +3903,13 @@ CCA 14.215 Área de funcionamiento de radio altímetro.
 CCA 14.215 Área de funcionamiento de radio altímetro.
 (Anexo A sección 4.3)
 En el Anexo A, Sección 4.3 y en el Manual de Operaciones Todo Clima (Doc. 9365), Sección 5.2, figura orientación sobre el área de funcionamiento del radioaltímetro. En los PANS-OPS, Volumen II, Parte II, Sección 1, se da orientación sobre el empleo del radioaltímetro.
-CCA 14.217 Calles de rodaje.
+(*) CCA 14.217 Calles de rodaje.
 (Ver RAC 14.217(a))
-Nota 1.— A menos que se indique otra cosa, los requisitos de esta sección se aplican a todos los tipos de calle de rodaje.
-Nota 2.— Véase el Adjunto A, Sección 22, para obtener orientación específica sobre el diseño de calles de rodaje que puede ayudar a prevenir las incursiones en la pista cuando se construyan calles de rodaje nuevas o se mejoren las existentes de las que se sepa que corren el riesgo de que se produzcan incursiones en la pista.
-En el Manual de Diseño de Aeródromos (Doc. 9157), Parte 2, se da orientación acerca de la disposición de las calles de rodaje.
+Nota 1.-A menos que se indique otra cosa, los requisitos de esta sección se aplican a todos los tipos de calle de rodaje.
+Nota 2.- Véase en el RAC 14.407.(c), 36 a 38 el plan normalizado de nomenclatura de las calles de rodaje que puede utilizarse para mejorar la toma de conciencia de la situación y como parte de una medida eficaz de prevención de incursiones en la pista.
+Nota 3.- Véase el Adjunto A, Sección 22, para obtener orientación específica sobre el diseño de calles de rodaje que puede ayudar a prevenir las incursiones en la pista cuando se construyan calles de rodaje nuevas o se mejoren las existentes de las que se sepa que corren el riesgo de que se produzcan incursiones en la pista.
+Nota 4.-En el Manual de diseño de aeródromos (Doc 9157), Parte 2, se da orientación acerca de la disposición y nomenclatura normalizada de las calles de rodaje.
+(*)(Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 44497 del 9 de enero del 2024)
 CCA 14.217 Calles de rodaje.
 (Ver RAC 14.217(c) (d)
 Base de ruedas significa la distancia entre el tren de proa y el centro geométrico del tren de aterrizaje principal.
@@ -3905,17 +3955,18 @@ Los textos de orientación sobre las características de las franjas de las call
 CCA 14.221 Objetos en las franjas de las calles de rodaje.
 (Ver RAC 14.221(c))
 En RAC 14. 817 se ofrece información con respecto al emplazamiento de equipo e instalaciones en las franjas de las calles de rodaje.
-Nota 1.— Deben tenerse en cuenta el emplazamiento y el diseño de los desagües en las franjas de las calles de rodaje para evitar daños en los aviones que accidentalmente se salgan de la calle de rodaje.
+Nota 1.- Deben tenerse en cuenta el emplazamiento y el diseño de los desagües en las franjas de las calles de rodaje para evitar daños en los aviones que accidentalmente se salgan de la calle de rodaje.
 Es posible que se requieran tapas de desagüe especialmente diseñadas. En el Manual de diseño de aeródromos (Doc. 9157), Parte 2, figura orientación adicional.
-Nota 2.— Cuando se instalen conductos de aguas pluviales descubiertos o cubiertos, se debe verificar que su estructura no se extienda por encima del suelo circundante para que no se consideren un obstáculo. Véase también la Nota 1 del RAC 14. 221(f)
-Nota 3.— Es necesario prestar particular atención al diseño y mantenimiento de un conducto de aguas pluviales descubierto a fin de evitar la atracción de fauna silvestre, especialmente aves. De ser necesario, puede cubrirse con una red. En el Manual de servicios de aeropuertos (Doc. 9137), Parte 3, figura orientación sobre el control y reducción del peligro que representa la fauna silvestre.
-CCA 14.223 Apartaderos de espera, puntos de espera de la pista, puntos de espera intermedios, y puntos de espera en la vía de vehículos.
-(Ver RAC 14.223(f))
-En relación a las distancias sobre las áreas críticas y sensibles del ILS y del MLS figuran en el Anexo 10, Volumen I, Adjuntos C y G, respectivamente,
+Nota 2.- Cuando se instalen conductos de aguas pluviales descubiertos o cubiertos, se debe verificar que su estructura no se extienda por encima del suelo circundante para que no se consideren un obstáculo. Véase también la Nota 1 del RAC 14. 221(f)
+Nota 3.- Es necesario prestar particular atención al diseño y mantenimiento de un conducto de aguas pluviales descubierto a fin de evitar la atracción de fauna silvestre, especialmente aves. De ser necesario, puede cubrirse con una red. En el Manual de servicios de aeropuertos (Doc. 9137), Parte 3, figura orientación sobre el control y reducción del peligro que representa la fauna silvestre.
+(*)CCA 14.223 Apartaderos de espera, puntos de espera de la pista, puntos de espera intermedios, y puntos de espera en la vía de vehículos.
+(Ver RAC 14.223(f)
+Nota.-En el Manual de diseño de aeródromos (Doc 9157), Parte 2, se da orientación relativa al posicionamiento de los puntos de espera en la pista.
+(*)(Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 44497 del 9 de enero del 2024)
 CCA 14.225 Plataformas.
 (Ver RAC 14.225(f))
 En las plataformas, también debe tomarse en consideración la provisión de calles de servicio y zonas para maniobras y depósito de equipo terrestre (Ver el Manual de Diseño de Aeródromos (Doc. 9157), Parte 2, que contiene orientación sobre depósito de equipo terrestre).
-SUBPARTE D – RESTRICCIÓN Y ELIMINACIÓN DE OBSTÁCULOS
+SUBPARTE D - RESTRICCIÓN Y ELIMINACIÓN DE OBSTÁCULOS
 CCA 14.301 Superficie limitadora de obstáculos.
 (Ver RAC 14.301)
 La finalidad de los requerimientos establecidos en esta subparte, es definir el espacio aéreo que se debe mantener libre de obstáculos alrededor de los aeródromos para que se pueda llevar a cabo con seguridad las operaciones de aviones previstas y evitar que los aeródromos queden inutilizados por la multiplicidad de obstáculos en sus alrededores. Esto se logra mediante una serie de superficies limitadores de obstáculos que marcan los límites hasta donde los objetos pueden proyectarse en el espacio aéreo.
@@ -3935,8 +3986,8 @@ Como consecuencia de (f)(3)(ii) la superficie de transición a lo largo de la fr
 CCA 14.303 Requisitos de la limitación de obstáculos.
 (Ver RAC 14.303 (a)(2))
 Los requisitos relativos a las superficies limitadoras de obstáculos se determinan en función de la utilización prevista de la pista (despegue o aterrizaje y tipo de aproximación) y se han de aplicar cuando la pista se utilice de ese modo. En el caso de que se realicen operaciones en las dos direcciones de la pista, cabe la posibilidad de que ciertas superficies queden anuladas debido a los requisitos más rigurosos a que se ajustan otras superficies más bajas.
-Cuando la letra de clave sea F [Tabla 1-1], la anchura se aumenta a 140 m salvo en los aviones de letra de clave F equipados con aviónica digital que tienen mandos de dirección para mantener una ruta establecida durante una maniobra de “ida y al aire”.
-Véanse las Circulares 301 y 345, y el Capítulo 4 de los PANS – Aeródromos, Parte I (Doc. 9981) para obtener más información.
+Cuando la letra de clave sea F [Tabla 1-1], la anchura se aumenta a 140 m salvo en los aviones de letra de clave F equipados con aviónica digital que tienen mandos de dirección para mantener una ruta establecida durante una maniobra de "ida y al aire".
+Véanse las Circulares 301 y 345, y el Capítulo 4 de los PANS - Aeródromos, Parte I (Doc. 9981) para obtener más información.
 CCA 14.303 Pistas de vuelo visual.
 (Ver RAC 14.303 (a)(3))
 Las circunstancias en las cuales puede aplicarse razonablemente el principio de apantallamiento se describen en el Manual de Servicios de Aeropuerto (Doc. 9137), Parte 6
@@ -3974,7 +4025,7 @@ En dicho estudio se puede tener en cuenta la naturaleza de las operaciones y dis
 CCA 14.307 Otros Objetos.
 (Ver RAC 14.307(b))
 En ciertas circunstancias, incluso objetos que no sobresalgan por encima de ninguna de las superficies enumeradas indicadas en el RAC 14.301 pueden constituir un peligro para los aviones, como por ejemplo uno o más objetos aislados en las inmediaciones del aeródromo.
-SUBPARTE E – AYUDAS VISUALES PARA LA NAVEGACIÓN
+SUBPARTE E - AYUDAS VISUALES PARA LA NAVEGACIÓN
 CCA 14.401 Paneles de señalización y área de señales.
 (Ver RAC 14.401(d))
 La incorporación de especificaciones detalladas sobre áreas de señales en esta sección no implica la obligación de suministrarlas. En el Anexo A, Sección 15, se da orientación sobre la necesidad de proporcionar señales terrestres. En el Anexo 2, Apéndice 1, se especifica la configuración, color y uso de las señales visuales terrestres. En el Manual de Diseño de Aeródromos (Doc. 9157), Parte 4, se da orientación sobre su diseño.
@@ -4011,10 +4062,18 @@ CCA 14.403 Señales con instrucciones obligatorias.
 Ver RAC 14. 407(b) en lo relativo a la provisión de letreros en los puntos de espera de la pista.
 CCA 14.403 Señales con instrucciones obligatorias.
 (Ver RAC 14.403(j)(7))
-Nota.— Puede requerirse que el punto de espera de la pista sea más visible, especialmente para evitar riesgos de incursiones en la pista.
+Nota.- Puede requerirse que el punto de espera de la pista sea más visible, especialmente para evitar riesgos de incursiones en la pista.
 CCA 14.403 Señal de punto de espera de la pista Figura E-8.
 (Ver RAC 14.403 figura E-8)
-Nota.— Las configuraciones A1 y B1 no serán válidas después de 2026.
+Nota.- Las configuraciones A1 y B1 no serán válidas después de 2026.
+(*) CCA 14.403 Señal de punto de espera de la pista.
+(Ver RAC 14.403(j)(1))
+Ver RAC 14. 407(b) en lo relativo a la provisión de letreros en los puntos ele espera de la pista.
+(*)(Así adicionado el punto anterior por el artículo 1° del decreto ejecutivo N° 44497 del 9 de enero del 2024)
+CCA 14.403 Señal de punto de espera de la pista.
+(Ver RAC 14.403(j)(7))
+Nota.- Puede requerirse que el punto de espera de la pista sea más visible, especialmente para evitar riesgos de incursiones en la pista.
+(*)(Así adicionado el punto anterior por el artículo 1° del decreto ejecutivo N° 44497 del 9 de enero del 2024)
 CCA 14.403 Señal de punto de verificación del VOR en el aeródromo.
 (Ver RAC 14.403(l)(1))
 Ver RAC 14. 407(d) respecto al letrero de punto de verificación del VOR en el aeródromo.
@@ -4051,7 +4110,7 @@ Las Figuras E-11, E-12 y E-13 pueden emplearse para determinar los niveles de ex
 Las restricciones para la utilización de rayos láser en las tres zonas de vuelo protegidas, LFFZ, LCFZ y LSFZ, se refieren solamente a los rayos láser visibles. Quedan excluidos los emisores láser que utilizan las autoridades de forma compatible con la seguridad de vuelo. Se espera que en todos los espacios aéreos navegables, el nivel de irradiación de cualquier rayo láser, visible o invisible, sea menor o igual al máximo de exposición permisible (MPE) a menos que dicha emisión se haya notificado a las autoridades correspondientes y se haya obtenido un permiso.
 Las zonas de vuelo protegidas se establecen para moderar el riesgo de la operación con emisores láser en las proximidades de los aeródromos.
 En el Manual sobre Emisores Láser y Seguridad de Vuelo (Doc. 9815), se incluyen orientaciones suplementarias sobre el modo de proteger las operaciones de vuelo de los efectos peligrosos de los emisores láser.
-Ver también el Anexo 11 — Servicios de tránsito aéreo, Capítulo 2.
+Ver también el Anexo 11 - Servicios de tránsito aéreo, Capítulo 2.
 CCA 14.405 Dispositivos luminosos y estructuras de soporte.
 (Ver RAC 14.405(a)(3))
 En el Manual de Diseño de Aeródromos (Doc. 9157), Parte 6, se da orientación sobre la frangibilidad de los dispositivos luminosos y las estructuras de soporte.
@@ -4106,7 +4165,7 @@ CCA 14.405 Sistemas visuales indicadores de pendiente de aproximación.
 En el Anexo A, Sección 13, se ofrece orientación sobre la prioridad de instalación de sistemas visuales indicadores de pendiente de aproximación.
 CCA 14.405 T-VASIS y AT-VASIS.
 (Ver RAC 14.405(e)(10))
-Para una pendiente de 3° y una altura nominal de visión de 15 m sobre el umbral (Ver RAC 14. 405 (e)(7) y RAC 14. 405 (e)(20), el emplazamiento del T-VASIS ha de asegurar que la altura de la visión del piloto sobre el umbral se encuentre entre 13 m y 17 m cuando sólo son visibles las luces de barra de ala. Si se requiere una mayor altura de la visión del piloto (para proporcionar un franqueo adecuado de las ruedas), las aproximaciones se pueden realizar con una o más luces de indicación “descienda” visibles. La altura de visión del piloto sobre el umbral debe ser entonces del siguiente orden:
+Para una pendiente de 3° y una altura nominal de visión de 15 m sobre el umbral (Ver RAC 14. 405 (e)(7) y RAC 14. 405 (e)(20), el emplazamiento del T-VASIS ha de asegurar que la altura de la visión del piloto sobre el umbral se encuentre entre 13 m y 17 m cuando sólo son visibles las luces de barra de ala. Si se requiere una mayor altura de la visión del piloto (para proporcionar un franqueo adecuado de las ruedas), las aproximaciones se pueden realizar con una o más luces de indicación "descienda" visibles. La altura de visión del piloto sobre el umbral debe ser entonces del siguiente orden:
 [imagen]
 CCA 14.405 Pendiente de aproximación y reglaje de elevación de los haces de los elementos luminosos.
 (Ver RAC 14.405(e)(22))
@@ -4129,8 +4188,8 @@ CCA 14.405 Superficie de protección contra obstáculos.
 En el Manual de Servicios de Aeropuertos (Doc. 9137), Parte 6, se indican las circunstancias en las que podría razonablemente aplicarse el principio de apantallamiento.
 CCA 14.405 Superficie de protección contra obstáculos.
 (Ver RAC 14.405(e)(45))
-Nota 1.— En el Manual de Diseño de Aeródromos (Doc. 9157), Parte 4, se presenta orientación al respecto.
-Nota 2.— El desplazamiento del tramo en contra del viento del umbral reduce la distancia de aterrizaje operacional.
+Nota 1.- En el Manual de Diseño de Aeródromos (Doc. 9157), Parte 4, se presenta orientación al respecto.
+Nota 2.- El desplazamiento del tramo en contra del viento del umbral reduce la distancia de aterrizaje operacional.
 CCA 14.405 Luces de guía para el vuelo en circuito.
 (Ver RAC 14.405(f)(3))
 En el Manual de Diseño de Aeródromos (Doc. 9157), Parte 4, se ofrece orientación sobre la instalación de las luces de guía para el vuelo en circuito.
@@ -4191,7 +4250,7 @@ Radio de la curva | Espaciado de las luces
 hasta 400 m | 7,5 m
 de 401 m a 899 m | 15 m
 900 m o más | 30 m.
-Nota 2. — Ver RAC 14.217(f) y la Figura C-2.
+Nota 2. - Ver RAC 14.217(f) y la Figura C-2.
 CCA 14.405 Luces de borde de calle de rodaje.
 (Ver RAC 14.405(q)(1))
 Ver RAC 14. 409(e) por lo que respecta a las balizas de borde de calle de rodaje.
@@ -4219,10 +4278,12 @@ El sistema eléctrico ha de diseñarse de forma que todas las luces de una barra
 CCA 14.405 Luces de punto de espera intermedio.
 (Ver RAC 14.405(t))
 Ver en RAC 14. 403 (k) las especificaciones sobre la señal de punto de espera intermedio.
-CCA 14.405 Luces de protección de pista.
+(*) CCA 14.405 Luces de protección de pista.
 (Ver RAC 14.405(u))
-El objetivo de las luces de protección de pista consiste en advertir a los pilotos, y a los conductores de vehículos, cuando están circulando en calles de rodaje, que están a punto de ingresar a una pista.
-Hay dos configuraciones normalizadas de luces de protección de pista y se ilustran en la Figura E-29.
+Las luces de protección de pista advierten a los pilotos, y a los conductores de vehículos, cuando están circulando en calles de rodaje, que están a punto de ingresar a una pista. Hay dos configuraciones normalizadas de luces de protección de pista y se ilustran en la Figura E-29.
+Nota l. - Las luces de protección de pista de configuración B pueden complementar la configuración A cuando se considere necesario.
+Nota 2. - En el Manual de diseño de aeródromos (Doc 9157), Parte 4, se da orientación sobre el diseño, funcionamiento y emplazamiento de las luces de protección de pista de configuración B. Nota 3.- Para más información sobre la orientación y el enfoque de las luces de protección de pista, véase el Manual de diseño de aeródromos (Doc 9157), Parte 4.
+(*)(Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 44497 del 9 de enero del 2024)
 CCA 14.405 Luces de protección de pista.
 (Ver RAC 14.405(u)(7))
 Alternativamente, en lugar de la visera puede usarse otro dispositivo o diseño, p. ej., lentes diseñados especialmente.
@@ -4244,7 +4305,7 @@ CCA 14.405 Sistema de guía visual para el atraque.
 Debe procurarse tanto en el diseño del sistema como en su instalación sobre el terreno que los reflejos de la luz solar o de otras luces de las inmediaciones no disminuyan la claridad y perceptibilidad de las indicaciones visuales proporcionadas por el sistema.
 CCA 14.405 Sistema avanzado de guía visual para el atraque.
 (Ver RAC 14.405(x))
-Los sistemas avanzados de guía visual para el atraque (A-VDGS) comprenden aquellos que, además de información básica y pasiva sobre azimut y posición de parada, proporcionan a los pilotos información activa de guía (habitualmente a base de sensores), como tipo de aeronave (de acuerdo con el Doc. 8643 — Designadores de tipos de aeronave), distancia por recorrer y velocidad de acercamiento. Generalmente, la información de guía para el atraque debe aparecer en una sola unidad de presentación.
+Los sistemas avanzados de guía visual para el atraque (A-VDGS) comprenden aquellos que, además de información básica y pasiva sobre azimut y posición de parada, proporcionan a los pilotos información activa de guía (habitualmente a base de sensores), como tipo de aeronave (de acuerdo con el Doc. 8643 - Designadores de tipos de aeronave), distancia por recorrer y velocidad de acercamiento. Generalmente, la información de guía para el atraque debe aparecer en una sola unidad de presentación.
 Los A-VDGS pueden proporcionar información de guía para el atraque en tres etapas: la captación de la aeronave por el sistema, la alineación de azimut de la aeronave y la información sobre la posición de parada.
 CCA 14.405 Sistema avanzado de guía visual para el atraque.
 (Ver RAC 14.405(x)(3))
@@ -4271,10 +4332,10 @@ Se debe prever que las luces que se especifican en RAC 14. 405 (z)(i) sean contr
 CCA 14.405 Luces de punto de espera en la vía de vehículos.
 (Ver RAC 14.405(z)(6))
 Es probable que los semáforos comunes cumplan con los requisitos de RAC 14.405(z)(5) y RAC 14.405(z)(6).
-CCA 14.405 Barra de prohibición de acceso
+(*) CCA 14.405 Barra de prohibición de acceso
 (Ver RAC 14.405(aa))
-Las barras de prohibición de acceso están destinadas a ser controladas manualmente por los servicios de tránsito aéreo.
-Las incursiones en la pista pueden tener lugar en todas las condiciones de visibilidad o meteorológicas. La instalación de barras de prohibición de acceso en las intersecciones de calles de rodaje/pistas y la utilización de las mismas durante la noche y en todas las condiciones de visibilidad puede formar parte de medidas eficaces de prevención de incursiones en la pista.
+Las incursiones en la pista pueden tener lugar en todas las condiciones de visibilidad o meteorológicas. El uso de barras de prohibición de acceso puede formar parte de medidas eficaces de prevención de incursiones en la pista.
+(*)(Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 44497 del 9 de enero del 2024)
 CCA 14.405 Barra de prohibición de acceso
 (Ver RAC 14.405(aa)(3))
 Cuando sea necesario aumentar la visibilidad, se deben instalar luces adicionales de manera uniforme.
@@ -4283,13 +4344,13 @@ CCA 14.405 Barra de prohibición de acceso
 Las barras de prohibición de acceso de alta intensidad se utilizan, comúnmente, sólo en caso de absoluta necesidad y después de un estudio específico.
 CCA 14.405 (bb)(1) Luces de situación de la pista.
 (Ver RAC 14.405(bb))
-Nota.— Cuando haya dos o más puntos de espera de la pista, el punto de espera de la pista al que se hace referencia en el que está más cerca de la pista.
+Nota.- Cuando haya dos o más puntos de espera de la pista, el punto de espera de la pista al que se hace referencia en el que está más cerca de la pista.
 CCA 14.405 (bb)(3) Luces de situación de la pista.
 (Ver RAC 14.405(bb))
-Nota.— De la misma manera pueden instalarse THL adicionales en el punto de inicio del rodaje para el despegue.
+Nota.- De la misma manera pueden instalarse THL adicionales en el punto de inicio del rodaje para el despegue.
 CCA 14.405 (bb)(6) Luces de situación de la pista.
 (Ver RAC 14.405(bb))
-Nota.— Puede ser necesario considerar una abertura del haz menor para algunas luces REL en intersecciones pista/calle de rodaje que forman ángulos agudos, a fin de asegurar que las REL no sean visibles para aeronaves en la pista.
+Nota.- Puede ser necesario considerar una abertura del haz menor para algunas luces REL en intersecciones pista/calle de rodaje que forman ángulos agudos, a fin de asegurar que las REL no sean visibles para aeronaves en la pista.
 CCA 14.407 Letreros.
 (Ver RAC 14.407(a))
 Los letreros deben ser letreros fijos o letreros de mensaje variable. Se proporciona orientación sobre los letreros en el Manual de diseño de aeródromos (Doc. 9157), Parte 4.
@@ -4336,7 +4397,7 @@ Las balizas formadas por pequeños tableros verticales cuyo reverso, visto desde
 CCA 14.409 Balizas de eje de calle de rodaje.
 (Ver RAC 14.409(f)(3))
 Por lo que respecta al espaciado de las luces de eje de calle de rodaje, ver RAC 14 405 (p)(12)
-SUBPARTE F – AYUDAS VISUALES INDICADORAS DE OBSTÁCULOS
+SUBPARTE F - AYUDAS VISUALES INDICADORAS DE OBSTÁCULOS
 CCA 14.501 Objetos que hay que señalar o iluminar.
 (Ver RAC 14.501)
 El señalamiento y/o la iluminación de los obstáculos tienen la finalidad de reducir los peligros para las aeronaves indicando la presencia de obstáculos, pero no reducen forzosamente las limitaciones de operación que pueda imponer la presencia de los obstáculos.
@@ -4378,24 +4439,28 @@ En algunos casos, esto puede obligar a emplazar las luces fuera de las torres.
 CCA 14.503 Señalamiento y/o iluminación de objetos
 (Ver RAC 14.503(e)(10))
 El empleo de las luces de obstáculos de alta intensidad está previsto tanto para uso diurno como nocturno. Es necesario tener cuidado para que estas luces no produzcan deslumbramiento. En el Manual de diseño de aeródromos (Doc. 9157), Parte 4, se da orientación sobre el diseño, funcionamiento y emplazamiento de las luces de obstáculos de alta intensidad.
-SUBPARTE G – AYUDAS VISUALES INDICADORAS DE ZONAS DE USO
+SUBPARTE G - AYUDAS VISUALES INDICADORAS DE ZONAS DE USO
 RESTRINGIDO
 CCA 14.601 Pistas y calles de rodaje cerradas en su totalidad o en parte.
 (Ver RAC 14.601(d))
-Cuando una zona esté cerrada temporalmente pueden utilizarse barreras frangibles, o señales en las que se utilicen materiales que no sean simplemente pintura para indicar el área cerrada, o bien pueden utilizarse para indicar dicha área otros medios adecuados.
+Nota 1.- Cuando una zona esté cerrada temporalmente pueden utilizarse barreras frangibles, o señales en las que se utilicen materiales que no sean simplemente pintura para indicar el área cerrada, o bien pueden utilizarse para indicar dicha área otros medios adecuados.
+Nota 2.- En los PANS-Aeródromos (Doc 9981) se especifica n procedimientos relativos a la planificación, coordinación, control y vigilancia de la seguridad operacional de las obras en curso en el área de movimientos.
+(*)(Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 44497 del 9 de enero del 2024)
 CCA 14.603 Superficies no resistentes.
 (Ver RAC 14.603(a))
 Las especificaciones sobre señal de faja lateral de pista figuran en RAC 14 403(g).
 CCA 14.603 Superficies no resistentes.
 (Ver RAC 14.603(c))
 En el Manual de diseño de aeródromos (Doc. 9157), Parte 4, se da orientación sobre la provisión de fajas transversales adicionales en una intersección o en una zona pequeña de la plataforma.
-CCA 14.607 Áreas fuera de servicio
+(*) CCA 14.607 Áreas fuera de servicio
 (Ver RAC 14.607(a))
-Las balizas y luces de área fuera de servicio se utilizan para prevenir a los pilotos acerca de la existencia de un hoyo en el pavimento de una calle de rodaje o de una plataforma, o para delimitar una parte del pavimento, p. ej., en una plataforma que esté en reparación. Su uso no es apropiado cuando una parte de la pista esté fuera de servicio ni cuando en una calle de rodaje una parte importante de la anchura resulte inutilizable. Normalmente, la pista o calle de rodaje se cierra en tales casos.
+Nota 1.- Las balizas y luces de área fuera de servicio se utilizan para advertir a los pilotos acerca de la existencia de un hoyo en el pavimento de una calle de rodaje o de una plataforma, o para delimitar una parte del pavimento, p. ej., en una plataforma que esté en reparación. Su uso no es apropiado cuando una parte de la pista esté fuera de servicio ni cuando en una calle de rodaje una parte importante de la anchura resulte inutilizable. Normalmente, la pista o calle de rodaje se cierra en tales casos.
+Nota 2.- En los PANS-Aeródromos (Doc 9981) se especifican procedimientos relativos a la planificación, coordinación, control y vigilancia de la seguridad operacional de las obras en curso en el área de movimientos.
+(*)(Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 44497 del 9 de enero del 2024)
 CCA 14.607 Áreas fuera de servicio.
 (Ver RAC 14.607(b))
 En el Anexo A, Sección 14, se dan orientaciones sobre el emplazamiento de las luces de área fuera de servicio.
-SUBPARTE H – SISTEMAS ELÉCTRICOS
+SUBPARTE H - SISTEMAS ELÉCTRICOS
 CCA 14.701 Sistemas de suministro de energía eléctrica para instalaciones de navegación aérea.
 (Ver RAC 14.701)
 La seguridad de las operaciones en los aeródromos depende de la calidad del suministro de energía eléctrica. El sistema de suministro de energía eléctrica total puede incluir conexiones a una o más fuentes externas de suministro de energía eléctrica, a una o más instalaciones locales de generación y a una red de distribución, que incluye transformadores y dispositivos conmutadores. En el momento de planificar el sistema de energía eléctrica en los aeródromos es necesario que se tengan en cuenta muchas otras instalaciones de aeródromo que obtienen los suministros del mismo sistema.
@@ -4421,7 +4486,7 @@ En el Manual de Diseño de Aeródromos (Doc. 9157), Parte 5, se da orientación 
 CCA 14.705 Dispositivo Monitor
 (Ver RAC 14.705(e))
 En el Manual de Diseño de Aeródromos (Doc. 9157), Parte 5, se da orientación sobre la interfaz entre el control de tránsito aéreo y el monitor de las ayudas visuales.
-SUBPARTE I – SERVICIOS, EQUIPOS E INSTALACIONES DE AERÓDROMO
+SUBPARTE I - SERVICIOS, EQUIPOS E INSTALACIONES DE AERÓDROMO
 CCA 14.815 Sistemas de guía y control del movimiento en la superficie.
 (Ver RAC 14.815 (a)(e)(f)(h))
 En el Manual de sistemas de guía y control del movimiento en la superficie (SMGCS) (Doc. 9476), figura orientación sobre estos sistemas.
@@ -4453,7 +4518,7 @@ CCA 14.823 Características
 Un ARIWS puede instalarse junto con señales mejoradas de eje de la calle de rodaje, barras de parada o luces de protección de pista.
 Se tiene previsto que el sistema o sistemas opere(n) en todas las condiciones meteorológicas, incluso en condiciones de poca visibilidad.
 Un ARIWS puede compartir componentes comunes de detección de un SMGCS o A-SMGCS, pero opera independientemente de esos sistemas.
-SUBPARTE J – INTENCIONALMENTE EN BLANCO
+SUBPARTE J - INTENCIONALMENTE EN BLANCO
 APÉNDICE 1: COLORES DE LAS LUCES AERONÁUTICAS DE SUPERFICIE Y DE LAS
 SEÑALES, LETREROS Y TABLEROS.
 CCA Ap. 1 (2.1.1). Colores de las luces aeronáuticas de superficie
@@ -4462,5 +4527,5 @@ CCA Ap. 1 (2.1.2). Colores de las luces aeronáuticas de superficie
 Cuando la señal de cromaticidad debe verse desde una distancia considerable, la práctica ha sido utilizar colores dentro de los límites de 2.1.2.
 CCA Ap. 1 (3). Colores de las señales, letreros y tableros
 Las especificaciones de los colores de superficie que figuran a continuación se aplican únicamente a las superficies pintadas recientemente. Generalmente, los colores empleados para las señales, letreros y tableros varían con el tiempo y, en consecuencia, es necesario renovarlos.
-El documento de la CIE que lleva por título “Recommendations for Surface Colours for Visual Signalling” (Recomendaciones para colores de superficie para la señalización visual) — Publicación Núm. 39-2 (TC-106) 1983, contiene orientación sobre los colores de superficie.
+El documento de la CIE que lleva por título "Recommendations for Surface Colours for Visual Signalling" (Recomendaciones para colores de superficie para la señalización visual) - Publicación Núm. 39-2 (TC-106) 1983, contiene orientación sobre los colores de superficie.
 Las especificaciones recomendadas en 3.4 respecto a paneles transiluminados son de carácter provisional y se basan en las especificaciones CIE para letreros transiluminados. Se tiene la intención de examinar y actualizar estas especificaciones en la forma y en el momento en que la CIE prepare las correspondientes a los paneles transiluminados.
