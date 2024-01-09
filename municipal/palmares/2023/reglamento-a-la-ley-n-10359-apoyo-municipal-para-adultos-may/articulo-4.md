@@ -1,0 +1,2 @@
+Artículo 4º-Beneficiarios.
+Para efectos de aplicación del presente reglamento, son beneficiarios las personas mayores de sesenta y cinco años, en situación de amparo económico inmediato que, para estos efectos, se configura cuando una persona tiene ingresos que los clasifica en condición de pobreza o pobreza extrema, según los estándares de medición vigentes definidos por las instituciones rectoras en la materia. Se aplicará de manera igualitaria entre las personas beneficiarias, sin aplicar diferenciación de porcentajes entre los contribuyentes.
