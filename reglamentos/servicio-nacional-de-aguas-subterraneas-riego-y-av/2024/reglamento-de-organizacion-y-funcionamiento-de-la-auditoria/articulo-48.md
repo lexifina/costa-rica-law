@@ -1,0 +1,1 @@
+Artículo 48°- Sobre el seguimiento de relaciones de hechos y denuncias penales: la Auditoría se limitará a verificar que el destinatario haya recibido efectivamente el documento de remisión, sin que esto impida el ejercicio de sus potestades para monitorear el estado y resultado de las acciones adoptadas por la instancia correspondiente.

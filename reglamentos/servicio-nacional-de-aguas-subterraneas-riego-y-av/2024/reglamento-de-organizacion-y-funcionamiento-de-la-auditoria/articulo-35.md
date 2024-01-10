@@ -1,0 +1,1 @@
+Artículo 35°-Deber de la Dirección Jurídica. Es deber de la Dirección Jurídica del SENARA brindar el oportuno y efectivo servicio mediante los estudios jurídicos que requiera la Auditoría Interna, a fin de que esta cumpla adecuadamente su función, salvo que exista un compromiso a la independencia y objetividad.

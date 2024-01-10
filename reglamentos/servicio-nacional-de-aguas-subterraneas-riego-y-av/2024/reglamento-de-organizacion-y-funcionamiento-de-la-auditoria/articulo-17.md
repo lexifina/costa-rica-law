@@ -1,0 +1,2 @@
+Artículo 17°-Organización y estructura. La Auditoría Interna estará organizada en una sola unidad funcional de acuerdo con la estructura del SENARA, la cual estará a cargo del Auditor Interno, quien organizará la labor de la Auditoría Interna, considerando, entre otros, los objetivos y riesgos institucionales, los recursos disponibles, la normativa y disposiciones técnico-jurídicas y sanas prácticas correspondientes.
+Cualquier cambio en la estructura u organización de la Auditoría Interna deberá contar con la autorización del Auditor Interno.

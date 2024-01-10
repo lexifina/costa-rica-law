@@ -1,0 +1,1 @@
+Artículo 49°- Atención de denuncias por parte de la Auditoría Interna: la atención de denuncias por parte de la Auditoría Interna se realizará de conformidad con lo establecido en el reglamento respectivo.
