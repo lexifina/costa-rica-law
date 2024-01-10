@@ -1,0 +1,8 @@
+ARTICULO 10.- Criterios técnicos para la utilización de las calles públicas cantonales. Para autorizar el comercio al aire libre en calles públicas cantonales se observarán los siguientes criterios (Figura 5.1):
+a) Criterios de uso generales:
+i. El mobiliario deberá ubicarse frente al comercio y contiguo al cordón de caño, para lo cual las municipalidades podrán autorizar la eliminación temporal o permanente de espacios de parqueo municipal. En caso de existir una solicitud expresa para uso de espacios en la vía pública, La colocación del mismo queda sujeto a estudio y autorización del Departamento de Seguridad y control Público, en conjunto con Licencias comerciales y Gestión Jurídica La Municipalidad podrá en el momento que lo consideré analizar el uso de estos espacios los fines de semana, en ocasiones especiales o en horario espacial.
+ii. Se deben instalar elementos separadores móviles o barreras para delimitar físicamente los espacios de forma segura, conforme el estudio y autorización del Departamento de Seguridad y Control Público.
+iii. Se podrá utilizar para desarrollar la actividad de comercio al aire libre un área mínima con un ancho de 1 metro y máxima de no más del 50% de área transitable de la calle pública, de forma que se garantice el tránsito vehicular en al menos un sentido.
+iv. Se deberá garantizar la libre movilidad respetando un diámetro de 2 metros de giro de sillas de ruedas entre mobiliario liviano de distintos comercios.
+b) Criterios de uso específicos: la municipalidad autorizará la ubicación del mobiliario liviano con base en un plano de distribución.
+[imagen]

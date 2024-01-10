@@ -1,0 +1,1 @@
+ARTICULO 18.- Plazo de otorgamiento de la autorización. El plazo por el cual se otorgará la autorización será por un máximo de un año. En virtud de la naturaleza precaria de ésta, una vez vencido dicho plazo, la persona interesada podrá gestionar la presentación de una nueva solicitud de conformidad con los requisitos establecidos en la Ley y en el presente Reglamento.

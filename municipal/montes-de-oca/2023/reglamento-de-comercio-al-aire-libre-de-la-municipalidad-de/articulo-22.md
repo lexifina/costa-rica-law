@@ -1,0 +1,10 @@
+ARTICULO 22.- Prohibiciones de las personas licenciatarias. Se prohíbe, a las personas licenciatarias que cuenten con autorización para la utilización de espacios públicos, realizar los siguientes actos:
+a) El desarrollo de obras físicas y de infraestructura permanentes, con excepción de lo que establezca esta ley y el reglamento respectivo.
+b) El cierre total de las vías cantonales o espacios públicos, en zonas que no fueron asignadas en la autorización respectiva, salvo en las actividades que determine la administración.
+c) La variación de la composición estructural o funcional de los espacios públicos.
+d) La obstaculización de la libertad de tránsito y accesibilidad de las personas.
+e) La realización de actividades diferentes de las autorizadas en el permiso sanitario de funcionamiento y la patente respectiva.
+f) El desarrollo de cualquier actividad que no esté cubierta por la Ley de Comercio al Aire Libre Ley No. 10126 y este reglamento.
+g) La generación de cualquier daño al espacio público.
+h) La colocación de publicidad en el mobiliario y en el espacio público autorizado para el comercio al aire libre.
+i) Utilizar las áreas de parqueo privado de sus comercios para el desarrollo de la actividad.

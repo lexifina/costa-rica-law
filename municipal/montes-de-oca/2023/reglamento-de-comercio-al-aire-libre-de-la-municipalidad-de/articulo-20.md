@@ -1,0 +1,4 @@
+ARTICULO 20.- Atribuciones de los/las licenciatarios. Las personas licenciatarias que cuenten con autorización de comercio al aire libre tendrán las siguientes atribuciones:
+a) Utilizar los espacios públicos para desarrollar la actividad comercial para la cual se otorgó la autorización, en los términos y condiciones establecidas por la municipalidad.
+b) Utilizar el material mobiliario liviano pertinente para el desarrollo de la actividad comercial, en los espacios públicos autorizados, en las condiciones definidas por la municipalidad.
+c) Realizar obras de mejoramiento del espacio público ocupado, como la incorporación de iluminación o de reparación de imperfectos o daños de la superficie de tránsito o de estancia, entre otras. Para esto deberá contar con previa autorización por parte del Departamento de Licencias Constructivas de la Municipalidad.

@@ -1,0 +1,1 @@
+ARTÍCULO 3.- Excepción. Se excluye del ámbito de aplicación del presente Reglamento las actividades comerciales al aire libre que se desarrollen dentro del perímetro de la propiedad privada, de los patentados que cuenten con licencia comercial al día.

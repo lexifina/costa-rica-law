@@ -1,0 +1,2 @@
+Sección III: Responsabilidades Municipales
+ARTÍCULO 32.- Determinación de espacios para el comercio al aire libre. Los espacios públicos susceptibles de autorización para el comercio al aire libre estarán determinados conforme el plan regulador, en aquellas zonas donde se permiten las actividades de comercialización de alimentos y bebidas y si cumple con las condiciones, considerando lo establecido en el presente Reglamento.

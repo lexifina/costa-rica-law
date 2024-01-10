@@ -1,0 +1,2 @@
+ARTICULO 19.- Horarios de utilización de la autorización de comercio al aire libre. Las actividades comerciales y de licores que se autoricen para ser desarrolladas en espacio público podrán operar dentro del horario de apertura y cierre actual del local, no pudiendo exceder las veintidós horas.
+El consumo de comidas y bebidas deberá realizarse dentro de la zona del espacio público autorizada para ese fin.
