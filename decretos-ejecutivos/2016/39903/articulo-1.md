@@ -19,4 +19,5 @@ COMERCIO EXTERIOR PARA INSCRIBIRSE EN EL REGISTRO DE EMPRESAS
 DE LA DIRECCIÓN GENERAL DE MIGRACIÓN Y EXTRANJERÍA
 CAPÍTULO PRIMERO
 Disposiciones Generales
-Artículo 1.- Objeto. El presente Reglamento tiene por objeto regular los requisitos y el procedimiento para la emisión de la Carta de COMEX para las empresas interesadas en inscribirse en el Registro de Empresas de la Dirección General de Migración y Extranjería, bajo la Clasificación A) y B) del Reglamento para el Registro de Empresas ante la Dirección General de Migración y Extranjería y la Regularización Migratoria de su Personal, Decreto Ejecutivo Nº 36576-G-COMEX del 09 de mayo de 2011.
+Artículo 1.- Objeto. El presente Reglamento tiene por objeto regular los requisitos y él procedimiento para la emisión de la Carta de COMEX para las empresas interesadas en inscribirse en el Registro de Empresas de la Dirección General de Migración y Extranjería, bajo la Clasificación B) del Reglamento para el Registro de Empresas ante la Dirección General de Migración y Extranjería y la Regularización Migratoria de su Personal, Decreto Ejecutivo Nº 36576-G-COMEX del 09 de mayo de 2011.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 44464 del 10 de enero del 2024)

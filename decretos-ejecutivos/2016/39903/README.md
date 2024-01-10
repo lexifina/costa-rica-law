@@ -14,3 +14,4 @@ Reglamento para la emisión de cartas del Ministerio de Comercio Exterior para i
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-10-05 | la propia norma |
+| 2 | 2024-01-10 | Decreto Ejecutivo 44464 (2024-01-10) |
