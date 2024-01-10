@@ -1,0 +1,2 @@
+Artículo 5.- Alcance de aplicación.
+Estos parámetros serán utilizados por la Secretaría de Planificación Sectorial del MOPT, para las evaluaciones que considere necesarias tanto para definir la permanencia de rutas nacionales dentro del Registro Vial de la Red Vial Nacional, como para la aplicación a aquellas Rutas Cantonales que potencial y eventualmente se soliciten analizar para ser trasladadas a la Red Vial Nacional.

@@ -1,0 +1,2 @@
+Artículo 20.- Vigencia.
+Rige a partir de la correcta e integra publicación en el Diario Oficial La Gaceta, con excepción de la aplicación de los Criterios para la identificación de las Carreteras Nacionales, por parte de la Secretaría de Planificación Sectorial del MOPT de acuerdo con lo establecido en el artículo 4 de este decreto, que entrara a regir hasta dentro de 6 meses a partir de la publicación este decreto. Dado en la Presidencia de la República.-San José, a los diecinueve días del mes de setiembre del año dos mil veintres
