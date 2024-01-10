@@ -1,1 +1,0 @@
-Artículo 3º—Responsabilidad sobre la elaboración del reglamento. Corresponde al Auditor Interno la elaboración del presente Reglamento y para ello se apoyará de ser necesario en los diferentes unidades internas del MAG.

@@ -1,2 +1,0 @@
-Artículo 11.—Rendición de cuentas. El Auditor Interno responderá por su gestión ante el jerarca y ante éste presentará, al menos, el informe de labores previsto en el artículo 22, inciso g) de la LGCI, sus modificaciones y reformas, y otras disposiciones que dicte al respecto la CGR, sin perjuicio de que se elaboren informes y se presenten al jerarca cuando las circunstancias lo ameriten.
-El Subauditor responderá ante el Auditor Interno por su gestión. El Auditor y Subauditor Internos rendirán un informe final de su gestión conforme el marco legal y técnico.
