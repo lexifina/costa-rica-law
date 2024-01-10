@@ -1,0 +1,1 @@
+Artículo 39. Convenios de cooperación. La Municipalidad promoverá convenios con Pymes, cooperativas y otras organizaciones/empresas para su participación en la gestión de residuos y el cumplimiento de las funciones establecidas en el reglamento. Se tendrán en cuenta los requisitos especificados en el Código Municipal N° 7794.

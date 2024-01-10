@@ -1,0 +1,3 @@
+Artículo 152 Sobre la aplicación de las medidas preventivas y otras sanciones administrativas. Las medidas preventivas a que se refiere el artículo 150 podrán ser ordenadas directamente y de forma inmediata por las autoridades municipales para detener la infracción o minimizar su impacto.
+Además, de las multas y medidas preventivas, las autoridades municipales podrán imponer otras sanciones administrativas accesorias, que sean aplicables por la infracción y sin perjuicio de las responsabilidades civiles o penales de los responsables.
+Todo ello se tramitará en el mismo procedimiento administrativo, respetando el debido proceso y garantizando el derecho de defensa de la presunta persona infractora.

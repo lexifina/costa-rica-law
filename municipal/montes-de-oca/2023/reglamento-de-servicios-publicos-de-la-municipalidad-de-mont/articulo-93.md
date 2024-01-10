@@ -1,0 +1,1 @@
+Artículo 93. Certificación de la Disposición Final. La Municipalidad o la empresa encargada de la disposición final de los residuos deberá presentar un certificado de disposición ante la Municipalidad como respaldo de una adecuada gestión.

@@ -1,0 +1,5 @@
+Artículo 7. Información y registro público de datos. Para el debido monitoreo de la gestión de residuos en el cantón, se deberán implementar sistemas de registro de datos e información que deberán ser de acceso abierto a la ciudadanía. Entre otros datos que se consideren pertinentes se deberá contar con:
+a. Un registro de empresas y particulares autorizados para la prestación de servicios de gestión integral de residuos contemplados en este reglamento.
+b. Un registro de los datos de los grandes generadores de residuos del cantón.
+c. Un registro general que integre el Sistema de Información sobre la Gestión Integral de Residuos, que incluirá información sobre la situación local, inventarios de residuos generados, infraestructura disponible para su gestión, disposiciones jurídicas aplicables, y otros aspectos relevantes.
+Además, la Municipalidad garantizará que el Departamento de Gestión Integral de Residuos y los departamentos de Catastro y Patentes cuenten con acceso a una base de datos de contribuyentes completa, actualizada y sistematizada para una eficaz labor de identificación y categorización de generadores.

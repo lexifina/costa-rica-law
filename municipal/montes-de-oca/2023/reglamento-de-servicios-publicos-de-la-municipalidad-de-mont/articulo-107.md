@@ -1,0 +1,1 @@
+Artículo 107. Cálculo de la Tarifa. La tarifa será definida por la Municipalidad y actualizada de manera anual de modo que se garantice lo establecido en el artículo 83 del Código Municipal N° 7794 y sus reformas.

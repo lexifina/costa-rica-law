@@ -1,0 +1,3 @@
+Artículo 161. Derogatorias. Este Reglamento sustituye y deroga cualquier otro reglamento emitido con anterioridad sobre gestión de residuos y/o servicios públicos en la Municipalidad de Montes de Oca, así como cualquier otra norma contenida en otro reglamento que lo contradiga.
+Rige a partir de su publicación.
+ACUERDO DEFINITIVAMENTE APROBADO POR EL CONCEJO MUNICIPAL DE MONTES DE OCA, EN LA SESIÓN ORDINARIA NRO. 182/2023, ARTICULO N° 7.5, DEL DÍA 23 DE OCTUBRE 2023 PRIMERA PUBLICACION EN EL DIARIO OFICIAL LA GACETA ALCANCE 234 DEL 27-11-2023 ACUERDO DEFINITIVAMENTE APROBADO POR EL CONCEJO MUNICIPAL DE MONTES DE OCA, EN LA SESIÓN ORDINARIA NRO. 189/2023, ARTICULO N° 7.1, DEL DÍA 11 DE DICIEMBRE 2023.

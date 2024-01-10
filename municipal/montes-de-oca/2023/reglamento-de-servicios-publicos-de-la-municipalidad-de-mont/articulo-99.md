@@ -1,0 +1,1 @@
+Artículo 99. Tasa por el Servicio. La Municipalidad determinará anualmente esta tarifa y la cobrará trimestralmente sobre saldos vencidos. Los costos de disposición final de los residuos generados por este servicio estarán incluidos en la tarifa y serán transferidos al departamento encargado de la gestión de residuos.

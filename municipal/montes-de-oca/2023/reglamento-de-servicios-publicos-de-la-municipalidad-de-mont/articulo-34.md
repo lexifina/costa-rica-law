@@ -1,0 +1,1 @@
+Artículo 34. Mecanismos de verificación de cumplimiento del servicio. La Municipalidad implementará medidas para supervisar y verificar el servicio de gestión de residuos, como el uso de GPS en los camiones recolectores, para responder a reclamos de generadores y organismos de fiscalización.

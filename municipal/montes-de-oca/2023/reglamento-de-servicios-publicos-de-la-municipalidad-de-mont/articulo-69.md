@@ -1,0 +1,1 @@
+Artículo 69. Fiscalización. La Municipalidad, a través del Departamento de Gestión Integral de Residuos, establecerá un registro de los centros de recuperación de residuos valorizables en el cantón y fiscalizará su operación en conjunto con el Ministerio de Salud.

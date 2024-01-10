@@ -1,0 +1,1 @@
+Artículo 33. Informes. Los gestores que tienen acuerdos con la Municipalidad deben presentar informes semestrales que incluyan la cantidad de material recolectado, el método de recolección y evidencia de valorización. La Municipalidad puede solicitar información adicional para verificar la naturaleza de los residuos y su potencial para la economía circular.

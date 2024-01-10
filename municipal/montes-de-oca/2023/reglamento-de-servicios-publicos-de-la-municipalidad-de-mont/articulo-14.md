@@ -1,0 +1,1 @@
+Artículo 14. Encargados de gestión de residuos. La Municipalidad promoverá que los establecimientos donde laboren más de diez personas o que generen residuos diferentes a los domiciliarios, designen una persona responsable de la gestión de residuos según el reglamento. La Municipalidad podrá ofrecer capacitación para una gestión adecuada de los residuos.

@@ -1,0 +1,1 @@
+Artículo 52. Restos de animales en la vía pública. Se prohíbe mezclar residuos ordinarios con restos de animales. La Municipalidad proveerá la gestión sanitaria de animales muertos que se encuentren en la vía pública o espacios públicos y cuyo generador se desconozca.

@@ -1,0 +1,2 @@
+5.2 Limpieza de Vías
+Artículo 97. Servicio. La Municipalidad se encargará del servicio de limpieza de vías en las calles públicas del cantón que cuenten con estructuras de conducción pluvial, como cordones de caño, zanjas o cunetas. Este servicio incluye el barrido y la recolección de los residuos generados durante la limpieza. La Municipalidad tiene la opción de llevar a cabo este servicio utilizando su propio equipo y personal, o contratar a entidades externas para que realicen el servicio en áreas específicas. Estas contrataciones se regirán por lo estipulado en la Ley.

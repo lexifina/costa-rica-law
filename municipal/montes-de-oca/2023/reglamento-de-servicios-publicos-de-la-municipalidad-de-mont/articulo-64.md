@@ -1,0 +1,2 @@
+Artículo 64. Venta de materiales valorizables. Los fondos obtenidos por la Municipalidad a través de la venta de los materiales valorizables serán utilizados según el modelo de gestión del centro de recuperación.
+La Municipalidad, con el fin de garantizar la gestión ambientalmente adecuada de estos residuos, establecerá alianzas con entidades que garanticen una correcta gestión de los mismos.

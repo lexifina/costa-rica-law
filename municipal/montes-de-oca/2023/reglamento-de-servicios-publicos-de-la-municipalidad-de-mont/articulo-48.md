@@ -1,0 +1,3 @@
+Artículo 48. Residuos de Manejo Especial. Son residuos que, debido a su composición, transporte, almacenamiento, volumen, uso o valor de recuperación, representan riesgos para la salud y el medio ambiente, o pueden beneficiarse mediante su valorización para reducir impactos ambientales.
+Estos residuos son definidos por el Ministerio de Salud mediante decreto ejecutivo. Ejemplos incluyen estereofón, baterías ácidas de plomo, pilas y bombillas fluorescentes. Su gestión sigue el principio de Responsabilidad Extendida del Productor, donde los fabricantes deben facilitar opciones para su recuperación y reducir su disposición final.
+Estos residuos no deben mezclarse con los residuos comunes y no son recolectados por el servicio municipal.

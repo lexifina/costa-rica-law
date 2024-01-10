@@ -1,0 +1,1 @@
+Artículo 74. Plan de Gestión de Residuos. Antes de obtener la licencia de construcción y/o demolición, el interesado debe presentar a la Municipalidad el Plan de Gestión Integral de Residuos generados. En caso de no contar con dicho plan, también se aceptará el contrato con la empresa encargada de la gestión y recolección de estos residuos.

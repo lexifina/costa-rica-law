@@ -1,0 +1,1 @@
+Artículo 77. Permiso Municipal de Ingreso. Si los residuos de construcción generados fuera del cantón se van a utilizar en construcciones o en reutilización industrial o comercial dentro del cantón, se requerirá obtener un permiso municipal de ingreso.

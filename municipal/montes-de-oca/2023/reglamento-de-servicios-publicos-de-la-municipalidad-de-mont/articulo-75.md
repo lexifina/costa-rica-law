@@ -1,0 +1,1 @@
+Artículo 75. Sitios de Acopio de Residuos. El sitio designado para la disposición temporal de residuos durante el proceso de construcción debe cumplir con los requisitos legales y garantizar que no cause molestias a los vecinos ni a los trabajadores. Por lo tanto, está prohibido colocar este tipo de residuos en la vía pública, aceras o lotes desocupados o no construidos.

@@ -1,0 +1,1 @@
+Artículo 68. Informes de Gestión de Residuos. Cada centro de recuperación ubicado en el cantón debe presentar a la Municipalidad un informe trimestral que detalle la cantidad de residuos valorizables recolectados o recibidos, con el fin de verificar la naturaleza de los residuos y evaluar las oportunidades de aprovechamiento en modelos de economía circular.

@@ -1,0 +1,6 @@
+Artículo 60. Diseño. El diseño de los sistemas de almacenamiento colectivo debe ser aprobado por el Departamento de Gestión Integral de Residuos de la Municipalidad, quien podrá brindar asesoramiento técnico concerniente a su correcto diseño, tamaño y localización en la propiedad o bien solicitar la realización de cambios. Algunas de las dimensiones con las que dicho sistema debe contar son las siguientes:
+a. La altura del contenedor debe de ser mínimo de 1.90 metros y la anchura debe ser un promedio de 1 a 1.5 metros de profundidad. Además, se debe de calcular la cantidad de bolsas para el volumen del contenedor, considerando que en promedio una bolsa tiene un volumen de 0.22m3.
+b. Se debe de mantener la ventilación en ambos lados del contenedor, que impida el ingreso de roedores o diferentes plagas.
+c. Las puertas de acceso deben de abrir en su totalidad en 180° y no obstruir la acera una vez abiertas.
+d. Si se utiliza el mismo contendedor para residuos orgánicos y residuos valorizables debe colocarse una barrera entre ambos espacios para evitar al 100% la contaminación cruzada.
+e. Debe contar un sistema de drenaje para el escape de los lixiviados realizando un desnivel en el contenedor y conectando dicho drenaje con el tratamiento de las aguas servidas que se les da en el lugar.

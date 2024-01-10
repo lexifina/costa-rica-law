@@ -1,0 +1,1 @@
+Artículo 85. Empaque del Compost. El compost debe ser embalado en sacos que permitan la circulación de aire o en recipientes con tapa para su transporte a un gestor autorizado o centro de acopio autorizado. Queda estrictamente prohibido utilizar bolsas plásticas como envase para el compost.
