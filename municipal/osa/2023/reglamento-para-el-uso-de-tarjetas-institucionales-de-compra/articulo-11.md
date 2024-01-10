@@ -1,0 +1,1 @@
+Artículo 11.-Si el responsable del retiro de efectivo no presenta los comprobantes de los gastos realizados, en la fecha que corresponde para su cancelación, y no presenta una debida justificación, la tesorería realizara el reporte a su Jefatura Superior correspondiente.

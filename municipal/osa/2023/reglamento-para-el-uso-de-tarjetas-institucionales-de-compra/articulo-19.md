@@ -1,0 +1,1 @@
+Artículo 19.-En caso de detectarse el uso indebido de la tarjeta, se procederá a realizar la respectiva denuncia al OIJ y posteriormente enviar al Proceso de Tesorería, la documentación correspondiente para tramitar el reclamo al Banco.

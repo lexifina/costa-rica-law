@@ -1,0 +1,1 @@
+Artículo 16.-En caso de que el Banco registre por error transacciones no efectuadas, previa notificación del responsable de la tarjeta, al Proceso de Tesorería, procederá a solicitar por escrito al Banco la investigación correspondiente. Además, debe de dar el respectivo seguimiento a este trámite hasta su resolución final.

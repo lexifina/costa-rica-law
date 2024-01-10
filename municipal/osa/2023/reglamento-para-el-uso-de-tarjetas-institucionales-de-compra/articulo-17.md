@@ -1,0 +1,4 @@
+Artículo 17.-En aquellos casos que la(s) tarjetas(s) se deban cancelar en una Dependencia, por alguna razón, se debe proceder de la siguiente forma:
+. Despido: La jefatura inmediata deberá solicitar a Tesorería la inhabilitación de la tarjeta del funcionario tarjetahabiente.
+. Renuncia: El tarjetahabiente deberá devolver la tarjeta mediante un oficio a la Jefatura correspondiente y ésta deberá verificar que todos los movimientos estén respaldados.
+. Anomalías detectadas: Se debe reportar inmediatamente al Proceso de Tesorería para el respectivo trámite de desactivación de la tarjeta para proceder a inutilizar el plástico, mediante la perforación de la banda magnética. Enviar nota firmada por el Jefe de la Dependencia el trámite de cancelación de la tarjeta no requerida, adjuntando el plástico debidamente perforado.

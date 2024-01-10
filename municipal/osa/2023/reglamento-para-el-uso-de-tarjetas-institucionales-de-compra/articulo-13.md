@@ -1,0 +1,1 @@
+Artículo 13.-Cuando se requiera modificar las características o parámetros de consumo de una tarjeta el Encargado de Tarjetas, el suplente o funcionario autorizado realizará las gestiones ante el Banco e incluirá las modificaciones requeridas, las cuales deben ser aprobadas por las personas autorizadas a nivel institucional.

@@ -1,0 +1,1 @@
+Artículo 14.-Es responsabilidad del Proceso de Tesorería la solicitud, modificación o cancelación de tarjetas, así como verificar que el tope de cada tarjeta se ajuste a las necesidades de la Dependencia y autorizaciones vigentes.

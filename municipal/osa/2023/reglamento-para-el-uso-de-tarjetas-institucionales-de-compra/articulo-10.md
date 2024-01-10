@@ -1,0 +1,1 @@
+Artículo 10.-El trámite de retiro de dinero en efectivo se realizará en forma personal con su propia Tarjeta de Compras Institucionales. En ningún caso se retirará dinero para entregar a otros funcionarios.

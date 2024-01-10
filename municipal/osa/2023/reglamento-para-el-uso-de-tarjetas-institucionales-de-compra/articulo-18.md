@@ -1,0 +1,1 @@
+Artículo 18.-En caso de robo o hurto de la Tarjeta de Compras Institucionales y/o dinero en efectivo proveniente de esta, el tarjetahabiente debe reportar la situación inmediatamente a la Jefatura y al Área de Tesorería en días hábiles, y en caso de no ser día hábil la Jefatura deberá efectuar consulta de transacciones realizadas para determinar si se debe plantear un reclamo.
