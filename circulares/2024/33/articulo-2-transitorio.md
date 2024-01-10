@@ -1,0 +1,1 @@
+Transitorio 2: No se requiere que una empresa proporcione la información a revelar especificada en las NIIF S1 y NIIF S2 para ningún período anterior a la fecha de aplicación inicial. Por consiguiente, no se requiere que una entidad revele información comparativa en el primer periodo anual sobre el que se informa, en el que aplique dichos estándares.
