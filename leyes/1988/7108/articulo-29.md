@@ -1,1 +1,1 @@
-ARTICULO 29.-El monto de las pensiones de los señores ex Presidentes de la República será igual al monto del salario de un diputado.
+ARTICULO 29.- (Anulado mediante resolución de la Sala Constitucional N° 362 del 10 de enero de 2024.)
