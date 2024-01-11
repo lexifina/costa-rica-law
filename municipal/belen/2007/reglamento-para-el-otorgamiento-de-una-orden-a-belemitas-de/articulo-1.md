@@ -8,11 +8,9 @@ La suscrita Secretaria del Concejo Municipal de Belén, le notifica el acuerdo t
 CAPÍTULO II
 Asuntos de trámite urgente a juicio del Presidente Municipal
 El Presidente Municipal Francisco Villegas Villalobos, plantea los siguientes asuntos:
-Artículo 3º—Se somete a estudio el Reglamento para el Otorgamiento de una Orden a belemitas de trayectoria en el servicio a la comunidad como homenaje póstumo.
+Artículo 3º-Se somete a estudio el Reglamento para el Otorgamiento de una Orden a belemitas de trayectoria en el servicio a la comunidad como homenaje póstumo.
 El Concejo Municipal de la Municipalidad del cantón de Belén, conforme a las potestades conferidas por los artículos 4º, incisos c) y e) y 13, inciso c) y n) del Código Municipal, Ley Nº 7794 y el artículo 170 de la Constitución Política, acuerda emitir:
-PROPUESTA DE REGLAMENTO PARA EL OTORGAMIENTO
-DE UNA ORDEN A BELEMITAS DE TRAYECTORIA
-EN EL SERVICIO A LA COMUNIDAD
-COMO HOMENAJE PÓSTUMO
-Preámbulo. Existiendo ya una orden Billo Sánchez, como reconocimiento a las personas vivas en su servicio comunitario; y que solo en forma excepcional prevee distinguir a personas fallecidas con dicha orden, se ve la oportunidad de crear una nueva orden que fundamentalmente brinde homenaje póstumo a personas que contribuyeron con su trabajo y su capacidad de servicio al engrandecimiento del cantón de Belén.
-Artículo 1º—Créase la “Orden Rita Mora López”, como una distinción póstuma que la Municipalidad de Belén conferirá a aquellas personas que se destacaron por su servicio altruista y desinteresado, y su vocación de servicio de la comunidad de Belén.
+(Nota de Sinalevi: El texto de esta norma fue reformado parcialmente y reproducido su texto en forma íntegra en sesión N° 02 del 11 de enero de 2024, y publicado en La Gaceta N° 15 del 26 de enero de 2024, y se trascribe a continuación:)
+PREÁMBULO
+Existiendo ya una orden Billo Sánchez, como reconocimiento a las personas vivas en su servicio comunitario; y que solo en forma excepcional prevé distinguir a personas fallecidas con dicha orden, se ve la oportunidad de crear una nueva orden que fundamentalmente brinde homenaje póstumo a personas que contribuyeron con su trabajo y su capacidad de servicio al engrandecimiento del Cantón de Belén.
+Artículo 1º-Créase la "Orden Rita Mora López", como una distinción póstuma que la Municipalidad de Belén conferirá a aquellas personas que se destacaron por su servicio altruista y desinteresado, y su vocación de servicio de la comunidad de Belén.
