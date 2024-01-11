@@ -1,0 +1,1 @@
+Artículo 13.-Adjudicación. Adjudicación. La Junta Directiva, adjudicará todas las contrataciones realizadas por medio de procedimientos ordinarios y excepciones en sus sesiones ordinarias y extraordinarias.

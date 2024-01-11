@@ -1,0 +1,13 @@
+Artículo 18.-Funciones y competencia de la Comisión de Recomendación de Adjudicaciones. La CRA tendrá las siguientes funciones:
+a) Someter a aprobación de la Junta Directiva la versión final del pliego de condiciones de todas las contrataciones.
+b) Analizar y evaluar las ofertas presentadas por las firmas concursantes en las contrataciones realizadas por medio de procedimientos ordinarios y extraordinarios o materias de excepción.
+c) Elaborar la recomendación de adjudicación y elevarla a conocimiento de la Junta Directiva según corresponda, de las contrataciones realizadas por medio de procedimientos ordinarios y extraordinarios o materias de excepción.
+d) Resolver los recursos de objeción al cartel en las contrataciones realizadas por medio de procedimientos ordinarios y extraordinarios o materias de excepción. Solo en casos acreditados, donde la propuesta de respuesta al recurso de objeción no pueda esperar a ser valoradas en la sesión de JD, se autorizará a la CRA a realizar la notificación de la respuesta a la objeción del pliego de condiciones y en la sesión ordinaria siguiente se ratificará por medio de acuerdo JD la contestación al recuro de objeción realizada por la CRA.
+e) Someter a aprobación de la Junta Directiva la propuesta de resolución de los recursos de revocatoria en las contrataciones adjudicadas realizadas por medio de procedimientos ordinarios y extraordinarios o materias de excepción.
+f) Convocar a cualquier funcionario del CCDRMO con carácter de invitado y con el fin de obtener su criterio técnico en asuntos de su competencia.
+g) Recomendar la aprobación y aceptación de las donaciones de bienes muebles cuando el CCDRMO sea sujeto donante o beneficiario, en este último caso será indispensable contar con el dictamen técnico favorable que manifieste la utilidad que esta tendrá para el CCDRMO.
+h) Recomendar gestiones ante la Junta Directiva de las solicitudes de autorización para contratar en forma directa de conformidad con el artículo 3 y 4 del LGCP, así como la autorización para iniciar el procedimiento de contratación sin contar con los recursos presupuestarios suficientes dentro del mismo período presupuestario en los diferentes procedimientos de contratación.
+i) Elaborar la recomendación y elevarla a aprobación de la Junta Directiva para resolver los cambios y prórrogas
+propuestos por los adjudicatarios de las contrataciones.
+j) Elaborar la recomendación y elevarla a aprobación de la Junta Directiva para aprobar las modificaciones unilaterales de las contrataciones.
+k) Conocer cualquier otro asunto relacionado con contratación pública, según su rango de acción y competencias.

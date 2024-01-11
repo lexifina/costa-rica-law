@@ -1,0 +1,8 @@
+Artículo 9°-Solicitudes de compra. La Administración Institucional estará autorizada para realizar las solicitudes de compra de las bienes, materiales, obras y servicios ante la Junta Directiva o juntamente con esta. Asimismo, será la responsable en conjunto con la JD de verificar el cumplimiento del objeto de la contratación, salvo disposición en contrario.
+La justificación de la solicitud de compra deberá ser formulada por la Junta Directiva del CCDRMO, funcionario administrativo, profesional en el campo, materia a contratar o unidad técnica, que contenga:
+- La necesidad para satisfacer con la contratación y los beneficios que se espera obtener, ambos en concordancia con los planes de largo y mediano plazo, el Plan Nacional de Desarrollo, el Plan Anual Operativo, el presupuesto, la disponibilidad presupuestaria para la adquisición y el Programa de Adquisiciones Institucional.
+- La estimación actualizada del costo del objeto conforme el artículo 86 inciso f del RLGCP.
+- Revisión de contenido presupuestario, para hacer frente a las obligaciones económicas que surgieran en virtud del proceso de contratación pública conforme el artículo 34 de la LGCP.
+- Indicación expresa de que se cuenta con los recursos humanos y materiales para verificar la correcta ejecución del contrato.
+- La designación de un encargado general del contrato cuando se requiera.
+- La presentación incompleta o poco clara de la información, facultará a la JD a completar la información o solicitar la justificación de la solicitud de adquisición completa a la Administración R o unidad técnica según sea necesario.

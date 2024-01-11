@@ -1,0 +1,1 @@
+Artículo 14.-Controles y custodia de documentos. La Administración Institucional mantendrá el control de los actos administrativos que deben adjuntarse en el Sistema Digital Unificado de Compra Públicas producto de la solicitud de estudios técnicos alguna dependencia involucrada en el proceso de contratación. De igual forma mantendrá la custodia de estos documentos.

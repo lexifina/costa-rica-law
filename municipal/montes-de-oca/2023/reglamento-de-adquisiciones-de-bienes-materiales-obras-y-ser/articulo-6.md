@@ -1,0 +1,2 @@
+CAPÍTULO II
+Artículo 6°-Programación anual de la unidad usuaria. La unidad usuaria deberá incluir en la formulación del plan anual operativo y presupuesto sus requerimientos de bienes, materiales, obras y servicios del año correspondiente. En la etapa de formulación del plan anual operativo y presupuesto deberá determinar el tipo de objeto a adquirir. Lo anterior, con el propósito de que con esa información se proceda con la elaboración del Programa de Adquisiciones del CCDRMO que deberá aprobarse posteriormente por la JD.
