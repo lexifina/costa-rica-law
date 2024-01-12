@@ -1,0 +1,2 @@
+Artículo 53.-Todo planteamiento o solicitud que se dirija al Concejo Municipal deberá ser formulada por escrito, estar debidamente firmado, con indicación del número de cédula, número de teléfono y del lugar para atender notificaciones, el cual preferiblemente, será un medio electrónico. En caso de personas jurídicas, deben acompañar el respectivo documento que demuestre la inscripción y representación de las mismas.
+Todo planteamiento debe contener una petición específica.

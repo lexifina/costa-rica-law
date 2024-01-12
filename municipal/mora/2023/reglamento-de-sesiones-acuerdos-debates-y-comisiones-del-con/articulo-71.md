@@ -1,0 +1,1 @@
+Artículo 71.-Para realizar las sesiones virtuales del Concejo Municipal, deberá aplicarse lo dispuesto en el Código Municipal respecto del quórum, suplencias en casos de ausencias temporales su ocasionales así como para la adopción de acuerdos.

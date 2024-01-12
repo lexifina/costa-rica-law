@@ -1,0 +1,1 @@
+Artículo 22.-Los dictámenes de las comisiones deben ser incluidos en el orden del día siguiendo el orden en que fueron presentados a la secretaría, para ese efecto, la secretaría al recibir los dictámenes consignará al pie de ellos la hora y fecha de su presentación.

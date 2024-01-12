@@ -1,0 +1,1 @@
+Artículo 58.-Corresponde a la Presidencia moderar las intervenciones de los particulares, llamarlos al orden y suspender la audiencia si el caso lo amerita, en los términos del artículo 8 inciso a) de este reglamento.

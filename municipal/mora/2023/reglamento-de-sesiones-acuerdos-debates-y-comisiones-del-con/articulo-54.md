@@ -1,0 +1,1 @@
+Artículo 54.-Cuando el objeto de la audiencia no fuere competencia del Concejo Municipal, sino de la Alcaldía, sin mayor dilación, se ordenará a la Secretaría remitir el memorial presentado a dicha oficina, para que se le dé el trámite correspondiente. En el mismo acto de remisión, la secretaría informará al interesado del curso que se le ha dado a su gestión.

@@ -1,0 +1,1 @@
+Artículo 35.-En cualquier momento en el debate se podrán presentar mociones de orden en relación con el asunto que se discute. La moción de orden suspenderá el debate hasta tanto no sea discutida y votada por el Concejo.

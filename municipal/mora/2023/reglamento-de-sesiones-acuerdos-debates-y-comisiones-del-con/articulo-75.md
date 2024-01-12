@@ -1,0 +1,1 @@
+Artículo 75.-Se podrán utilizar otros medios tecnológicos y plataformas de apoyo para la divulgación de las sesiones del Concejo y la participación de personas que no formen parte del gobierno municipal. Sin embargo, será obligación de los ediles y la Alcaldía, participar por medio de la plataforma oficial que defina la Administración y apruebe el Concejo.

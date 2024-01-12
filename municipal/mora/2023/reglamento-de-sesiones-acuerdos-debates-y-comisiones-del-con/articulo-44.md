@@ -1,0 +1,1 @@
+Artículo 44.-Una vez designada la conformación de las comisiones por parte de la Presidencia, sus miembros en la sesión de instalación nombraran de su seno a un o una presidente de la comisión y a un o una secretaria. Debe procurarse a ambos géneros la equidad y la igualdad de oportunidades de acceso a tales cargos de coordinación

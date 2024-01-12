@@ -1,0 +1,1 @@
+Artículo 14.-El quórum para las sesiones será la mitad más uno y todos los miembros del Concejo Municipal deberán encontrarse en el salón de sesiones, ocupando sus respectivas curules al inicio de la sesión, durante las deliberaciones y al efectuarse las votaciones o conectados de manera virtual cuando así se le haya autorizado previamente.

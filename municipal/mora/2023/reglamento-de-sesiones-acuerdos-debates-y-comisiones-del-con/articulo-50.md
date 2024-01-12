@@ -1,0 +1,1 @@
+Artículo 50.-De las comisiones especiales. El Concejo Municipal, por moción de las y los regidores o de la alcaldía, también podrá crear las comisiones especiales que estime pertinentes, siendo que su integración le corresponderá a la presidencia municipal.

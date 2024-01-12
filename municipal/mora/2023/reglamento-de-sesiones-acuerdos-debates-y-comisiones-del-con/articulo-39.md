@@ -1,0 +1,1 @@
+Artículo 39.-De las votaciones. Al dar por discutido un asunto, la Presidencia del Concejo, procederá a someter el asunto a la votación correspondiente respetando la mayoría que aplique para cada caso. En caso de que se disponga dejar en estudio un tema, la Presidencia procederá de conformidad con las facultades previstas en el artículo 9 del presente Reglamento

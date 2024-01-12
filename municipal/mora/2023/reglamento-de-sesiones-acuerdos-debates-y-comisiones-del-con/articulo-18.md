@@ -1,0 +1,1 @@
+Artículo 18.-Las sesiones del Concejo Municipal se desarrollarán conforme con la agenda previamente elaborada, la cual podrá ser modificada o alterada por votación de las dos terceras partes de las y los regidores propietarios presentes en sesiones ordinarias y por unanimidad en extraordinarias.

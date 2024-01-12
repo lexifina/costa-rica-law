@@ -1,0 +1,3 @@
+Artículo 51.-Las comisiones especiales estarán conformadas por al menos tres miembros, dos de los cuales deben ser escogidos entre las y los regidores propietarios y suplentes, con voz y voto. Igualmente formar parte de las comisiones especiales las y los síndicos propietarios y suplentes, con voz y voto. Los y las funcionarios municipales y las y los particulares podrán participar en las comisiones en carácter de asesores.
+Cada Comisión Especial debe rendir sus dictámenes en hojas igualmente legalizadas, aunque por la especialidad del caso delegado no se emita un libro de actas propiamente dicho.
+En todo lo demás las comisiones especiales se ajustarán a lo indicado en relación con las comisiones permanentes.

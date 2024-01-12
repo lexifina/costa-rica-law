@@ -1,0 +1,6 @@
+CAPÍTULO V
+De las Sesiones del Concejo
+Artículo 11.-Día y hora de las sesiones ordinarias. El Concejo Municipal, en la primera sesión ordinaria después de la sesión solemne de posesión, definirá por mayoría simple el día y hora de sus sesiones ordinarias; previo a la ejecución de ese acuerdo, lo publicará en el Diario Oficial La Gaceta. El Concejo tiene la potestad de cambiar la hora y fecha de las sesiones ordinarias, previa publicación en el referido Diario.
+El Concejo podrá celebrar las sesiones extraordinarias que se requieren y a ellas deberán ser convocados todos sus miembros.
+Deberá convocarse por lo menos con veinticuatro horas de anticipación y el objeto de la sesión se señalará mediante acuerdo municipal o según el inciso k) del artículo 17. En las sesiones extraordinarias solo podrán conocerse los asuntos incluidos en la convocatoria, además los que, por unanimidad, acuerden conocer los miembros del Concejo.
+Previa determinación del día y la hora de celebración de sesiones ordinarias y extraordinarias y de la convocatoria de Comisiones, la Presidencia debe procurar que las convocatorias no interfieran con horarios laborales regulares de la Administración Pública a fin de lograr la mayor participación y puntualidad posible de las y los regidores y síndicos.

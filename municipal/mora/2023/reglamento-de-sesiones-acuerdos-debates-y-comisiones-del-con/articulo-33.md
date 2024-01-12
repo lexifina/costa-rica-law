@@ -1,0 +1,1 @@
+Artículo 33.-Toda iniciativa tendiente a adoptar, reformar, suspender o derogar disposiciones reglamentarias debe ser presentada o acogida para su trámite por algún regidor o enviada a comisión para el estudio y dictamen.

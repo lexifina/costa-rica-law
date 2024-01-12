@@ -1,0 +1,4 @@
+CAPÍTULO XI
+De las sesiones virtuales
+Artículo 65.-El Concejo Municipal y las comisiones municipales podrán realizar sesiones municipales virtuales a través del uso de medios tecnológicos, en los casos previstos en el Código Municipal y en aquellos en los que el Concejo Municipal determine tal necesidad excepcional en razón de circunstancias de riesgo debidamente acreditadas. Tales sesiones se podrán celebrar en dichas condiciones a través de esos medios, en el tanto concurra el quórum de ley.
+De forma excepcional, se podrán celebrar sesiones bimodales (presencial-virtual) en la que podrá participar la o el regidor, la o el síndico o la alcaldía por medios electrónicos, previa justificación de la situación que le impide asistir de manera presencial, debiendo garantizar que su participación en la sesión respectiva inicie de manera puntual y se mantenga inalterada hasta la finalización de la misma.

@@ -1,0 +1,1 @@
+Artículo 32.-Los acuerdos tomados por el Concejo Municipal quedarán firmes al aprobarse el acta respectiva, salvo que por votación de las dos terceras partes de la totalidad de los miembros, se declare un determinado acuerdo como definitivamente aprobado, todo de conformidad con lo indicado en el artículo 45 del Código Municipal. Tal firmeza permite la ejecución del acuerdo.

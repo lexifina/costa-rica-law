@@ -1,0 +1,9 @@
+Artículo 9º-Son facultades de la Presidencia Municipal las siguientes:
+a) Conceder la palabra y retirársela a quien haga uso de ella en los siguientes términos:
+. Excediendo los cinco minutos de intervención por tema y los tres minutos de réplica . Hacer uso de la palabra sin permiso o en forma inadecuada, alzando la voz, proliferando malas palabras, amenazando directamente a cualquier persona del Concejo Municipal, de la Alcaldía o del público presente, o, se exceda en su expresión.
+. Cuando haga comentarios de índole sexista que reproduzcan estereotipos de género.
+b) El uso de la palabra por tema no deberá exceder los 5 minutos y su réplica deben ser concreta, no más de 3 minutos, esto a fin de evitar distractores en cuanto a la discusión de fondo del tema de interés.
+c) Conceder durante las sesiones, los recesos que estime pertinentes
+d) Someter a aprobación del Concejo Municipal la propuesta para dejar en estudio un tema y el plazo de resolución; de no prosperar tal propuesta, la presidencia debe someter a deliberación y votación el asunto de interés.
+e) La Presidencia Municipal calificará los asuntos de trámite urgente y los enviará a la secretaría municipal para incluirlos en el orden del día. Iniciada una sesión a petición de las y los regidores propietarios y suplentes, de las y los síndicos propietarios y suplentes, podrán incluirse asuntos de trámite urgente, pero para ser incluido dentro de agenda se requerirá de un acuerdo aprobado por mayoría simple de los regidores propietarios.
+f) Declarar fuera de orden las proposiciones o mociones que evidentemente resulten improcedentes, que sean manifestaciones de violencia contra las mujeres, miembros del Concejo Municipal o que simplemente vayan a dilatar y obstaculizar el curso normal del debate o la resolución de un asunto. Para ello deberá darse un razonamiento justificado de su decisión.

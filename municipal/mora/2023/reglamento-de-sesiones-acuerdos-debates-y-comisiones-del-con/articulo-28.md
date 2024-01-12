@@ -1,0 +1,1 @@
+Artículo 28.-El Concejo Municipal debe sesionar de forma ordinaria una vez a la semana y de forma extraordinaria las veces que lo considere necesario, no obstante, se pagará la dieta que corresponde a una sesión ordinaria por semana y por dos sesiones extraordinarias por mes, independientemente de la cantidad de sesiones extraordinarias que se hayan llevado a cabo.

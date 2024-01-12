@@ -1,0 +1,1 @@
+Artículo 73.-La presidencia consignará los votos de cada uno de las y os regidores, para lo que deberá indicar de viva voz, si su voto es positivo o negativo y el nombre completo de la regiduría que emite el voto. Igual se procederá con la declaratoria de firmeza de los acuerdos.

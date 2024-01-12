@@ -1,0 +1,1 @@
+Artículo 81.-En todo lo no previsto en el presente reglamento regirán de forma general las disposiciones del Código Municipal, la Ley General de Administración Pública, el Código Procesal Contencioso Administrativo, el Código Procesal Civil y de forma especial la normativa aplicable al caso concreto.

@@ -1,0 +1,1 @@
+Artículo 77.-La presidencia dará apertura a la sesión virtual a la hora señalada oficialmente; a partir de ese momento empezarán a correr los quince minutos a los que refiere el artículo 38 del Código Municipal y aquellos ediles que no concurran virtualmente dentro de ese lapso, no devengarán dietas.
