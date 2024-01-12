@@ -1,0 +1,4 @@
+Artículo 8º-Pérdida del beneficio. En caso de que la municipalidad, a través de sus órganos, verifique la falsedad de la información deberá dar inicio a las acciones legales correspondientes, para lo cual la administración tributaria municipal dictará una resolución que determina la pérdida del beneficio y el reinicio de las acciones de cobranza de los adeudos tributarios correspondientes.
+La pérdida de la condonación o exención obliga al solicitante a la cancelación de la totalidad de la deuda con los respectivos intereses y multas, sin perjuicio del inicio de lasacciones legales que correspondan.
+El presente Reglamento para el Apoyo de la Municipalidad de Turrubares para adultos en pobreza, entrará en vigor después de su publicación en La Gaceta.
+San Pablo de Turrubares, segunda publicación, 28 de noviembre de 2023.
