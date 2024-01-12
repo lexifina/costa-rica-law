@@ -1,0 +1,1 @@
+Artículo 4°-Prohibición. Las compras de bienes y servicios pagadas por medio de caja chica están sujetas al régimen de prohibición establecido en el Capítulo V "Régimen de prohibiciones" de la Ley General de Contratación Pública.

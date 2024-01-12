@@ -1,0 +1,1 @@
+Artículo 3°-Del cumplimiento. Los titulares subordinados y los funcionarios del Departamento de Servicios Administrativos y el Área de Tesorería serán encargados de velar por el cumplimiento del presente reglamento.

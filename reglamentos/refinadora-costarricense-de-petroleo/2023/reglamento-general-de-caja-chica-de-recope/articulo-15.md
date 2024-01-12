@@ -1,0 +1,1 @@
+Artículo 15.-Del plazo para subsanar irregularidades. En caso de que el Área de Tesorería detecte que el pago de un bien o servicio que no cumple con los requisitos notificará al solicitante, al registrador y al aprobador, quienes contarán con un plazo de cinco días hábiles para subsanar las irregularidades.

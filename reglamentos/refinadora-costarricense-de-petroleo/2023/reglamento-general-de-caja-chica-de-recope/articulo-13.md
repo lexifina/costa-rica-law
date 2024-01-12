@@ -1,0 +1,1 @@
+Artículo 13.-De la prohibición de Fragmentación. En caso de detección de Fragmentación, el Área de Tesorería está facultada para recomendar a la jefatura respectiva, la apertura de los procesos disciplinarios establecidos en la normativa aplicable.
