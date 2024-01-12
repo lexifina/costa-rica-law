@@ -1,0 +1,3 @@
+Artículo 4º-Relación jurídica entre las personas físicas o jurídicas de los locales del mercado municipal y la Municipalidad de Parrita.
+a- Las personas físicas o jurídicas que sean titulares de un local comercial en el Mercado Municipal de Parrita, serán consideradas arrendatarios a quien se ha otorgado un derecho de arrendamiento de la porción del inmueble plenamente identificado, para un fin específico, regulado por las normas internas municipales, contratos, reglamentos y normativa vigente.
+b- Los arrendamientos de locales municipales constituyen derechos reales administrativos, cuyo ejercicio es público en virtud del bien dado en arrendamiento y privado en razón del goce concedido sobre el bien en favor de un privado.

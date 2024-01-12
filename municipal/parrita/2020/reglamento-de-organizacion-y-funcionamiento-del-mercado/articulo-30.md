@@ -1,0 +1,1 @@
+Artículo 30.-Se exime a la Municipalidad por la responsabilidad de accidentes y robos de bienes de propiedad privada dentro de los locales. La Municipalidad sólo brindará seguridad cuando el mercado permanezca cerrado en sus instalaciones, cada inquilino deberá proteger sus pertenencias de la mejor forma posible.

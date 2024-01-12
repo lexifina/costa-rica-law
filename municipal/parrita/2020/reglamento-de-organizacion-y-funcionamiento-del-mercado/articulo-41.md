@@ -1,0 +1,2 @@
+Artículo 41.-Por ningún motivo se permitirá a los arrendatarios y a su personal realizar necesidades fisiológicas en aquellos locales en donde no existan servicios sanitarios. Igualmente, están prohibidas todas las acciones que pongan en peligro la salud y la integridad física de las personas.
+Quienes incumplan con esta disposición serán sujetos de amonestación escrita por parte de la Administración, y cancelación del contrato en caso de reincidencia.

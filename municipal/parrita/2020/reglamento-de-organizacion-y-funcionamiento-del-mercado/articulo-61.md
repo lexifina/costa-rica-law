@@ -1,0 +1,2 @@
+Artículo 61.-De la aplicación del procedimiento administrativo: Las faltas leves prescribirán a los tres meses, las graves a los dos años y las muy graves a los cuatro años. La imposición de sanciones por la comisión de faltas leves no requerirá la instrucción de expediente, pero será preceptiva la audiencia previa al interesado.
+El procedimiento administrativo sancionador será aplicado por el Administrador del Mercado Municipal en cuanto a las faltas leves. Las faltas graves y muy graves serán instruidas por el Concejo Municipal.

@@ -1,0 +1,5 @@
+Artículo 15.-De la atención del local comercial del mercado:
+a) Todo local comercial que haya sido arrendado dentro del Mercado Municipal, deberá ser atendido por la persona que figura como arrendataria, según lo establezca el respectivo contrato.
+b) En su defecto y por razones motivadas, el establecimiento podrá ser atendido por una persona distinta que lo administre y que esté debidamente identificado por la persona titular ante la Administración del Mercado para su respectivo control.
+c) En caso de que la persona administradora del local sea removida de su cargo, el titular arrendatario deberá de informarlo inmediatamente a la Administración Municipal e indicar si dicha administración será sustituida por otra y en dicho caso brindar nuevamente la respectiva información a la Administración Municipal.
+d) Quien administre el establecimiento solidariamente será responsable civil, penal y administrativo de cualquier situación que le sea reprochable y que ocurriera en el establecimiento o en las instalaciones municipales y que afecte directamente el funcionamiento del mismo y el servicio que brinda a las personas usuarias.

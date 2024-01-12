@@ -1,0 +1,1 @@
+Artículo 27.-Todo inquilino deberá proveerse de recipientes adecuados para guardar y eliminar su basura y desperdicios propios de su actividad, los cuales pueden ser bolsas plásticas herméticas, botes plásticos, estañones sin agujeros; no se permitirán sacos plásticos o recipientes rotos, mallas que permitan la salida de fluidos.

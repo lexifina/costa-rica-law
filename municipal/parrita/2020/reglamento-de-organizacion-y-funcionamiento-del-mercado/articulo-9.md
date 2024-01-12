@@ -1,0 +1,1 @@
+Artículo 9º-De la representación de arrendatarios: Los arrendatarios para ser representados ante la Administración del Mercado, presentará ante el Concejo la solicitud del nombramiento de dos de los arrendatarios, para que los representen en una comisión especial que éste nombrará para la atención de casos de alta dificultad.

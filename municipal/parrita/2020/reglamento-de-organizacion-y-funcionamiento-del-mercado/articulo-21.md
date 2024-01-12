@@ -1,0 +1,1 @@
+Artículo 21.-Queda prohibido al arrendatario introducir mejoras de cualquier clase en los locales comerciales del mercado, sin la previa autorización de la AdministraciónMunicipal, la cual denegará o autorizará la solicitud.

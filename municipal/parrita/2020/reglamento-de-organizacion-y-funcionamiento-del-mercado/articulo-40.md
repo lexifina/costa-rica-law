@@ -1,0 +1,1 @@
+Artículo 40.-Todo arrendatario deberá sacar su basura en forma oportuna en los horarios establecidos por la Administración. Deberán vigilar que el lugar de depósito de los residuos se mantenga en buenas condiciones e higiene en sus alrededores.

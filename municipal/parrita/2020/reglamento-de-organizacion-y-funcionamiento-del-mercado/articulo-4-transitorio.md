@@ -1,0 +1,2 @@
+IV.-Los puestos que se explotan comercialmente en el mercado se dividen en permanentes y transitorios. Son permanentes Los puestos ocupados por inquilinos en forma continua, con base en la respectiva adjudicación o remate y al contrato suscrito con la Municipalidad.
+Son transitorios aquellos puestos conocidos como derecho de piso, los cuales se otorgan provisionalmente en lugares habilitados para tal efecto y que constituyen derecho de uso, revocables unilateralmente a juicio de la administración del Mercado cuando se estime conveniente.

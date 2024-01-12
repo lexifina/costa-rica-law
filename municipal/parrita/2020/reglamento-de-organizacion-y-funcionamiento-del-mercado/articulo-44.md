@@ -1,0 +1,5 @@
+Artículo 44.-Cambio de destino de la actividad comercial:
+a) El Concejo Municipal podrá autorizar el cambio de destino comercial del puesto permanente, para expendio de mercaderías distintas a las autorizadas o consentir la ampliación a otras y nuevas actividades.
+b) Para esos efectos, la persona interesada deberá dirigir una solicitud escrita a la Administración del Mercado Municipal, en papel común y tamaño carta. En esta solicitud deberá indicarse con claridad el número de puesto o local, la denominación comercial, los artículos o mercaderías que expende y las que pretenden comercializar. Y deberá justificar detalladamente las razones del cambio.
+c) La Administración del Mercado Municipal, tramitará la solicitud verificando el cumplimiento de los requisitos correspondientes y emitirá un dictamen motivado en el plazo de quince días hábiles, recomendando al Concejo Municipal, la viabilidad o no.
+d) El Concejo Municipal, mediante acuerdo debidamente motivado, aceptara o rechazara, la solicitud realizada por el arrendatario.
