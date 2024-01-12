@@ -1,0 +1,2 @@
+Artículo 3º-Refórmese el párrafo primero del artículo 7° del Reglamento de Caja Chica de la Municipalidad de Siquirres para que en lo sucesivo se lea de la siguiente manera: "Requisitos de las compras con el fondo de Caja Chica para compras mayores. Solamente se podrán tramitar compras por caja chica si existe el contenido económico en el presupuesto en la respectiva partida presupuestaria.
+(...)"
