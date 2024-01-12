@@ -1,1 +1,0 @@
-Artículo 10.—Presentación de documentos. Los funcionarios profesionales que soliciten el pago de la compensación por desarraigo deberán presentar ante la Dirección de Recursos Humanos de la Administración a la que corresponda, cuando así proceda, los documentos que se requieran para demostrar la atinencia de este pago.

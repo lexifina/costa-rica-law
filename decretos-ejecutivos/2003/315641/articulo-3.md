@@ -1,1 +1,0 @@
-Artículo 3º—Desarrollo de funciones. Los adquirientes del derecho de compensación por desarraigo deberán desarrollar funciones en unidades formalmente aprobadas por la Dirección de Planeamiento Administrativo de este Ministerio y sus órganos adscritos.

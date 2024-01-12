@@ -1,1 +1,0 @@
-Artículo 6°—No será excluyente de otros beneficios. La compensación por desarraigo, no será excluyente de cualquier otro beneficio cuya naturaleza y objeto primordial sea el reconocimiento por el trabajo efectuado por el funcionario profesional fuera de su lugar habitual de residencia o su lugar de contrato de trabajo.

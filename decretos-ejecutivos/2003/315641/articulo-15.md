@@ -1,1 +1,0 @@
-Artículo 15.—Facultad de la administración. Se faculta al MOPT para que con arreglo a las facultades constitucionales y de derecho que le han sido conferidas disponga internamente lo que proceda para la aplicación fiel y cumplida del presente Reglamento.

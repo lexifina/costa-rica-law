@@ -1,1 +1,0 @@
-Artículo 4º—Compensación económica. Se reconocerá un sobresueldo del 40% sobre el salario base como compensación por desarraigo, que se reconocerá desde el primer día en que se acrediten las circunstancias de pago, pero sólo se pagará mientras se mantengan dichas circunstancias y siempre que las mismas tengan una duración, como mínimo, de tres (3) meses calendario.

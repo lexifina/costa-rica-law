@@ -1,1 +1,0 @@
-Artículo 12.—Falta grave. Constituye falta grave cuando el funcionario profesional omita la comunicación oportuna a la Dirección de Recursos Humanos, de que se dejaron de dar los requisitos y condiciones especificadas en este Reglamento.

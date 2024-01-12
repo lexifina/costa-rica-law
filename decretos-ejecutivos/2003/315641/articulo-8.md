@@ -1,1 +1,0 @@
-Artículo 8º—Reanudación del trámite. Cuando se le haya suspendido el pago de la compensación por desarraigo a un funcionario profesional, debido a las circunstancias apuntadas en el presente reglamento, deberán hacerse nuevamente los trámites para el reconocimiento y disfrute de dicho beneficio.
