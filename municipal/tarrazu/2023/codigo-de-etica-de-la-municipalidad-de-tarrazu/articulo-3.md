@@ -1,0 +1,1 @@
+Artículo 3º-El presente código se aplica al Jerarca, Titulares subordinados y demás funcionarios (servicios especiales, en propiedad, interinos) de la Municipalidad de Tarrazú. Lo anterior sin perjuicio de otra normativa aplicable a los funcionarios de la institución.

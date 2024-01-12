@@ -1,0 +1,1 @@
+Artículo 12.-En lo que se refiere a la atención al administrado, debe proporcionar los servicios con responsabilidad y seriedad, de acuerdo con las especificaciones establecidas. Serán tratados con respeto, amabilidad y honradez en todos los aspectos, se brindará solución a sus reclamos y se procurará satisfacer sus necesidades según la normativa vigente.

@@ -1,0 +1,1 @@
+Artículo 19.-Todo funcionario de la Municipalidad deberá implementar los controles internos que garanticen salvaguardar los recursos, dados en custodia, reconociendo su naturaleza de bien público, sujeto a rendición de cuentas.
