@@ -1,0 +1,1 @@
+ARTÍCULO 2- Se autoriza a la Municipalidad de Paraíso para que done y traspase el terreno descrito en el artículo 1 a la Asociación de Atención a la Persona Adulta Mayor de Cachí, cédula de persona jurídica tres-cero cero dos-cuatro cuatro tres dos dos ocho (3-002-443228).

@@ -1,0 +1,1 @@
+ARTÍCULO 4- En caso de que la Asociación descrita en el artículo 2 llegue a disolverse o el inmueble se destine a otro uso no autorizado en la presente ley, o no se construya en cinco años, el bien donado volverá de pleno derecho a ser propiedad de la Municipalidad de Paraíso.
