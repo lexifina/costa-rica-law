@@ -1,3 +1,2 @@
-Artículo 37 bis. En aquellos casos en que el transportista en la ruta de destino de los animales no encontrare un puesto o delegación de policía o estos se encontraren cerrados para la verificación y el sellado de la guía de movilización, declarará, bajo fe de juramento, esa circunstancia como observación en la correspondiente guía. Dicha declaración deberá asentarse una vez se halla arribado al lugar de destino final de los animales.
-En subastas y mataderos esa declaración deberá ser requerida por el Responsable de recibo de los animales. Cuando el destino final sea una finca, esa declaración deberá ser requerida por el propietario o responsable de ésta.
+Artículo 37 bis. (Derogado por el artículo 29 del decreto ejecutivo N° 44336 del 12 de enero del 2024 "Crea el sistema nacional de identificación individual y ratreabilidad del ganado bóvido" )
 (Así adicionado por el artículo 2° del decreto ejecutivo N° 38430 del 24 de febrero del 2014)

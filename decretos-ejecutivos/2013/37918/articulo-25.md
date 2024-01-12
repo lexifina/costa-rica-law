@@ -1,1 +1,4 @@
-Artículo 25.—Igualmente se deberá de incluir como observación el cambio de titularidad o propiedad de los animales.
+ARTÍCULO 25.- Se permitirá por la vía de observaciones asentar en las guías de movilización físicas o digitales cualquier situación acaecida que justifique la modificación de los datos originalmente consignados en ella relativos a: destino del movimiento, medio de transporte utilizado, identificación de los animales movilizados, situaciones de caso fortuito o fuerza mayor que justifique la utilización de la guía de movilización fuera del plazo de vigencia de la misma.
+La ausencia de la modificación de los datos originalmente consignados en la guía por la vía de la observación correspondiente, según sea el caso, presumirá una movilización irregular.
+El SENASA habilitará los medios para que cuando la guía haya sido emitida en su formato digital, pueda realizarse las observaciones pertinentes.
+(Así reformado por el artículo 26 del decreto ejecutivo N° 44336 del 12 de enero del 2024 "Crea el sistema nacional de identificación individual y ratreabilidad del ganado bóvido")
