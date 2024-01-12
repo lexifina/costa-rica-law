@@ -1,1 +1,0 @@
-Artículo 2º—Derogatoria. Este Decreto deroga el Decreto Nº 18931-MOPT de fecha 12 de abril de 1989, publicado en La Gaceta Nº 80 del 26 de abril de 1989 y su reforma, Decreto Nº 19568-MOPT de fecha 9 de marzo de 1990, publicado en La Gaceta Nº 78 del 25 de abril de 1990, así como cualquier norma de igual o inferior rango en cuanto se le oponga a este Reglamento.
