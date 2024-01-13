@@ -1,0 +1,1 @@
+Artículo 16.-De los recursos contra lo resuelto por el Concejo Municipal. Contra lo resuelto por el Concejo Municipal cabe el recurso de revocatoria ante el propio Concejo y/o el recurso de apelación ante el Tribunal Contencioso Administrativo, conforme lo dispone el inciso a) del artículo 165 del Código Municipal.

@@ -1,0 +1,4 @@
+Artículo 2º-Ámbito de aplicación. Este reglamento protege los derechos de las mujeres a un proceso electoral y desempeño del cargo, libre de violencia de género en la política y se aplicará en los siguientes ámbitos:
+a) Cuando las mujeres sean aspirantes, precandidatas y candidatas a cargos de elección popular o en la junta directiva del Comité Cantonal de Deportes y Recreación.
+b) Cuando las mujeres estén en el ejercicio de cargos de elección popular o en la junta directiva del Comité Cantonal de Deportes y Recreación.
+c) Cuando, por la naturaleza de sus funciones, las mujeres estén a cargo de la promoción y ejecución de políticas públicas institucionales de igualdad de género y derechos políticos de las mujeres, y participen en órganos, programas y estructuras en instituciones públicas para el cumplimiento de sus competencias y atribuciones.

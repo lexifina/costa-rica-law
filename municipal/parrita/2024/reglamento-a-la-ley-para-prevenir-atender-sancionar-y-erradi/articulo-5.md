@@ -1,0 +1,1 @@
+Artículo 5º-Fuentes supletorias. Para integrar la aplicación del presente reglamento, se tendrán como fuentes supletorias, la Ley contra el Hostigamiento Sexual en el Empleo y la Docencia, Ley 7476, de 3 de febrero de 1995; la Ley General de la Administración Pública, Ley 6227, de 2 de mayo de 1978 y el Código Municipal, Ley 7794, de 30 de abril de 1998.
