@@ -1,0 +1,2 @@
+Artículo 21.-Plazos. Los plazos establecidos en el presente documento, serán de cumplimiento general, salvo que exista disposiciones específicas bajo el marco de acuerdos o tratados internacionales o regionales, en cuyo caso los plazos se regirán en concordancia con los términos pactados entre las partes.
+El SENASA podrá extender estos plazos hasta por un período igual, previo a su fenecimiento, aplicando criterios de razonabilidad y proporcionalidad.

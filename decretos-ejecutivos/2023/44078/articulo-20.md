@@ -1,0 +1,1 @@
+Artículo 20.-Costos. El costo de las visitas de inspección vinculado con el proceso de aprobación de los establecimientos, serán sufragados por las personas físicas o jurídicas interesadas en exportar o que exportan mercancías a Costa Rica, según sea el caso. Salvo que exista un acuerdo específico entre las partes.

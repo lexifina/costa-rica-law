@@ -1,0 +1,1 @@
+Artículo 19.-Registro de aprobaciones. La Dirección de Cuarentena Animal, en coordinación con la Comisión de Evaluación de Equivalencias debe mantener, actualizar y publicar en la página web del SENASA, una lista por país de los establecimientos y sus mercancías aprobadas por SENASA.

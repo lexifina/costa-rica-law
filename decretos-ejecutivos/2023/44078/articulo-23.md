@@ -1,0 +1,1 @@
+Artículo 23.-Derogatoria. Se deroga el Decreto Ejecutivo N°21858-MAG del 28 de setiembre de 1992, Reglamento para la Evaluación y Aprobación de Productos y/o Subproductos de Origen Animal Importados por Costa Rica, publicado en La Gaceta N° 49 del 11 de marzo de 1993 y sus reformas.

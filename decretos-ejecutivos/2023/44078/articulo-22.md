@@ -1,0 +1,1 @@
+Artículo 22.-De la integración y funcionamiento de la Comisión de Evaluación de Equivalencias. La integración y funciones de la Comisión de Evaluación de Equivalencias la definirá el Director General del Servicio Nacional de Salud Animal mediante resolución, para lo cual tendrá un plazo de un mes contado a partir de la publicación del presente Decreto Ejecutivo.

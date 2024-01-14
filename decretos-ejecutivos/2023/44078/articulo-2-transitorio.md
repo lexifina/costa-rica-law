@@ -1,0 +1,1 @@
+Transitorio II.-Los sistemas de inspección de los países, así como, de los establecimientos y de las mercancías que a la fecha de publicación del presente Reglamento se encuentren aprobados, deberán cumplir con el proceso de renovación acá dispuesto.
