@@ -1,2 +1,3 @@
-Artículo 6º—Adquisición de Bienes y Servicios
-Los recursos de las Cajas Chicas únicamente se utilizarán para adquirir servicios o bienes en aquellos casos en los cuales al no existir posibilidad de obtenerlos en las respectivas bodegas y la institución no pueda proveerlos con la inmediatez requerida, sea urgente su compra o contratación por estos medios. Para ello, se debe atender lo indicado en el artículo 20 del Reglamento para la Contratación de Bienes, Servicios y Construcción de Obras del AyA, estas compras deben calificar como urgentes o indispensables para la prestación del servicio, o necesarias para garantizar o restablecer la continuidad y calidad del servicio.
+Artículo 6°-Adquisición de Bienes y Servicios.
+Se podrá adquirir por caja chica lo dispuesto en la Ley General de Contratación Pública y su Reglamento, así como lo dispuesto en el Título IV: De las Compras por caja chica del Reglamento Interno de Contratación Pública del AyA.
+(Así reformado mediante sesión ordinaria N° 02-2024 del 15 de enero del 2024)
