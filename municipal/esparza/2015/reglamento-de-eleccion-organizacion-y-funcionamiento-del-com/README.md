@@ -15,3 +15,4 @@ Reglamento de Elección, Organización y Funcionamiento del Comité Cantonal de 
 | --- | --- | --- |
 | 1 | 2015-08-25 | la propia norma |
 | 2 | 2019-12-19 | Reglamento municipal 0 (2019-12-19) |
+| 3 | 2024-01-15 | Reglamento municipal 0 (2024-01-15) |
