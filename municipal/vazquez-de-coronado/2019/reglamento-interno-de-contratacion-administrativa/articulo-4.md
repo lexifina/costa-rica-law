@@ -1,1 +1,0 @@
-ARTÍCULO 4. – La Proveeduría y la Bodega Municipal son dependencias de la Dirección Administrativa. Ambas deben coordinar estrechamente el almacenamiento y distribución interno de bienes adquiridos por la municipalidad.

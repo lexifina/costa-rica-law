@@ -1,1 +1,0 @@
-ARTÍCULO 22. – Normativa para regular el Registro. La Proveeduría es la responsable de recomendar al Concejo Municipal la normativa que regulará el Registro de Proveedores, para lo cual atenderá las directrices generales que sobre la materia dicte la Alcaldía Municipal.

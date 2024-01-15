@@ -1,4 +1,0 @@
-SECCIÓN II
-PRINCIPIOS GENERALES DE LA CONTRATACIÓN ADMINISTRATIVA
-ARTÍCULO 19. – La contratación administrativa se encuentra regida por una serie de principios que la orientan y regulan, mismos que se han establecido por la Sala Constitucional y la Contraloría General de la República, y la normativa propia del ramo. La observación de esos principios es de acatamiento obligatorio para todos los órganos municipales que intervienen en los diversos procesos de contratación, según el siguiente detalle:
-Principio de eficiencia, Principio de igualdad y libre competencia, Principio de publicidad, Principio de legalidad o transparencia, Principio de seguridad jurídica, Principio de formalismo, Principio de equilibrio de intereses, Principio de buena fe, Principio de intangibilidad patrimonial, Principio de control de los procedimientos.

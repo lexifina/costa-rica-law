@@ -1,1 +1,0 @@
-ARTÍCULO 16. – Adquisiciones no contempladas en el plan anual publicado. Las compras de bienes, servicios u obras derivadas de modificaciones internas o presupuestos extraordinarios, deberán incluirse en el plan consolidado inicial para su respectiva ejecución.
