@@ -1,0 +1,1 @@
+Artículo 18.-Persona propietaria o poseedora responsable. Si la alteración fue realizada por la persona propietaria o poseedora del inmueble frente al cual se encuentra la acera, además de imponerse la sanción anterior, deberá reembolsar el costo efectivo de la reparación o sustitución.

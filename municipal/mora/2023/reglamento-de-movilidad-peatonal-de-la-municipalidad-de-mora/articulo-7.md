@@ -1,0 +1,1 @@
+Artículo 7°-Plazo cumplimiento: Una vez entregado el informe de lineamientos de la obra, el propietario deberá solicitar el permiso de construcción correspondiente a la acera, y contará con un plazo tendrá un plazo de hasta 30 días hábiles.

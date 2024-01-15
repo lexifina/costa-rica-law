@@ -1,0 +1,7 @@
+Artículo 6°-Encargado Municipal. El sub proceso de movilidad peatonal es el encargado de:
+a. Realizar inspecciones periódicas de aceras, con el fin de verificar su estado y determinar su grado de deterioro.
+b. Confeccionar el acto administrativo que ordena realizar trabajos de mantenimiento, rehabilitación o construcción de aceras.
+c. Notificarlo.
+d. Otorgar un plazo máximo de diez días hábiles para que solicite el convenio o informe de especificaciones técnicas de la acera, las cuales se realizarán con fondos propios del propietario. En ese mismo acto, se le informará al dueño del inmueble que, de demostrarse el trascurso del plazo, la Municipalidad realizará la obra aplicará la multa correspondiente al artículo 84 del Código Municipal el cual corresponde la cancelación del principal más el 50% de la obra y en caso de que no se realice dicho pago se le sumará la multa dispuesta en el numeral 85 y 85 ter del Código Municipal por cada trimestre hasta su efectivo cumplimiento.
+e. Si el propietario decide realizar por su cuenta la construcción de aceras, deberá solicitar el respectivo alineamiento y los niveles correspondientes a la Municipalidad, la cual deberá dársela en un término no mayor de 10 días hábiles posteriores al recibo de la solicitud y el propietario contará con el plazo de expuesto en el artículo 7 para la construcción de la respectiva acera.
+f. Resolver los recursos y gestiones.

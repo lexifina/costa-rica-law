@@ -1,0 +1,1 @@
+Artículo 16.-Notificaciones. En materia de notificaciones aplica la Ley 6227, Ley General de la Administración Pública, de 2 de mayo de 1978, y supletoriamente lo dispuesto por la Ley 8687, Ley de Notificaciones Judiciales, de 4 de diciembre de 2008.

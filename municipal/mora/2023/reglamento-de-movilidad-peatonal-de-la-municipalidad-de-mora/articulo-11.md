@@ -1,0 +1,1 @@
+Artículo 11.-Multa. El impago dentro del plazo del artículo 9; genera multa de un cincuenta por ciento (50%) del valor de la obra, sin perjuicio del cobro de intereses moratorios. Según artículo 84 del Código Municipal.
