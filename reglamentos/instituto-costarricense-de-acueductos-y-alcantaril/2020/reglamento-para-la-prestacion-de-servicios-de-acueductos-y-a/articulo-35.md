@@ -1,11 +1,1 @@
-Artículo 35- De la constancia de condiciones especiales o restricciones para estaciones de combustible. Para el caso de solicitudes asociadas a inmuebles donde se pretendan desarrollar estaciones de combustible, el administrado deberá presentar lo siguiente información en referencia al proyecto:
-• Plano Catastrado
-• Nota firmada y poder de los representantes legales
-• Lugar y medios de notificación.
-• Diseño del sitio de las estructuras y con las coordenadas respectivas de ubicación.
-• Descripción detalla de tipo de combustible y cantidad.
-• Criterio de SENARA en los casos que se requiera por cercanía de pozos del AyA o zonas estratégicas para abastecimiento, de conformidad con el decreto ejecutivo 42015-MP-MAG-MINAE-S-MIVAH y sus reformas publicado en el Alcance No. 237 a la Gaceta No. 203 del 25-10-2019.
-Para los casos de solicitudes en donde se cuenta con disponibilidad de agua potable, y/o NIS (asociado al plano), y/o criterio de la Dirección de Agua, se requerirá que en la solicitud se aporte el documento respectivo.
-Cuando se trate de una solicitud nueva de disponibilidad para una Estación de Combustible, en donde la propiedad no cuenta previamente con servicio de abastecimiento, la solicitud deberá presentarse a la Región Respectiva o a la Subgerencia de Sistemas Delegados en el caso de ASADAS para que coordine con la ASADA correspondiente. La Región respectiva o la Subgerencia de Sistemas Delegados, deberán conformar el expediente y elevarlo a conocimiento de la UEN de Gestión Ambiental.
-El AyA en un plazo máximo de 10 días naturales por medio de la UEN de Gestión Ambiental, verificará si existe potencial afectación a fuentes de agua. Si se detecta la afectación, la UEN de Gestión Ambiental pondrá en conocimiento el criterio técnico final a la Región respectiva o a la Subgerencia de Sistemas Delegados para que coordine con la ASADA correspondiente y se resuelva la disponibilidad según corresponda. En caso de que no se detecte afectación a fuentes de agua, se comunicará con las recomendaciones del caso para que se proceda a resolver la procedencia de la disponibilidad.
-Además, se procederá con el análisis respectivo de la fase de visado de planos de la Plataforma APC a cargo de la Dirección de Urbanizaciones.
+Artículo 35- De la constancia de condiciones especiales o restricciones para estaciones de combustible. (Derogado mediante sesión N° 02-2024 del 15 de enero del 2024)
