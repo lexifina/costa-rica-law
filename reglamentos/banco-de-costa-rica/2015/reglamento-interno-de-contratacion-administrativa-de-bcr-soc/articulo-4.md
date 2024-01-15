@@ -1,4 +1,0 @@
-CAPÍTULO II
-Órganos competentes
-Artículo 4º—Oficinas tramitadoras de los procesos de compras y pagos. La Jefatura Administrativa de BCR SAFI o la Oficina de Compras y Pagos del Banco de Costa Rica cuando así se le solicite, serán las encargadas de tramitar los procedimientos que promueva BCR SAFI para la construcción de obras y la adquisición de los bienes y servicios que requiere en el cumplimiento de sus funciones. Para dicho propósito utilizará los procedimientos que contienen la Ley de contratación administrativa y su Reglamento, así como los procedimientos especiales autorizados por la Contraloría General de la República, además de las disposiciones administrativas y procedimientos que dicte la Administración.
-También tendrá, las demás funciones y atribuciones que le asigna este Reglamento, incluyendo el control sobre las garantías de participación rendidas y su eventual ejecución.
