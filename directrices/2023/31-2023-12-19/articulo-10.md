@@ -1,0 +1,1 @@
+Artículo 10.-Se le instruye al ICE a agilizar los estudios para la incorporación de nuevas obras de transmisión en el menor plazo posible, para lo cual el MINAE aplicará lo dispuesto en el Artículo 9 de la presente directriz.

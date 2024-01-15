@@ -1,0 +1,1 @@
+Artículo 14.-Se le instruye al MINAE para recopilar todas las acciones de esta directriz por medio de la Secretaría de Planificación del Sector Ambiente (SEPLASA). Este aplica para la ARESEP y todas las compañías distribuidoras de electricidad, sea el ICE, la CNFL, la ESPH, la JASEC, COOPELESCA, COOPESANTOS, COOPEGUANACASTE Y COOPEALFARORUIZ
