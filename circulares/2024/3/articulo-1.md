@@ -1,0 +1,7 @@
+CIRCULAR N° 3-2024
+Asunto: "Cantidad de días teletrabajables para el personal juzgador en los despachos judiciales que ven la materia de tránsito."
+A TODAS LAS OFICINAS Y DESPACHOS JUDICIALES QUE ATIENDEN LA MATERIA DE TRÁNSITO, SE LES HACE SABER QUE:
+El Consejo Superior del Poder Judicial en sesión N° 2-2024 celebrada el 11 de enero de 2024, artículo XLVI, dispuso hacer de conocimiento de los despachos que conocen la materia de Tránsito lo que interesa:
+1.) Que en los despachos especializados de la materia de Tránsito, donde exista más de una persona juzgadora, puede trabajar hasta un máximo de 4 días en la modalidad de teletrabajo, siendo que, será cada persona Juzgadora Coordinadora de los diferentes Juzgados de Tránsito quien deberá valorar el número de días teletrabajables, según las necesidades de las oficinas y de acuerdo con los roles entre jueces y juezas que se dispongan para asegurar la atención eficiente a las personas usuarias, asegurando siempre la presencia de personas juzgadoras en el despacho. 2) Las Jefaturas de los diferentes despachos judiciales pueden disminuir el máximo de días en teletrabajo que se aprobó en este acuerdo, en función de la dinámica del despacho y del buen servicio público. 3) Para los efectos del teletrabajo en las clases de puesto de Técnico Judicial y Coordinador Judicial, esta debe ser valorada por cada Juez o Jueza Coordinadora en función de la dinámica del despacho y del buen servicio público.
+Publíquese una vez en el Boletín Judicial.
+San José, 16 de enero de 2024.
