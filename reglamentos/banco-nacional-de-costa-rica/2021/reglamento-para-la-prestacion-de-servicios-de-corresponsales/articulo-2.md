@@ -1,1 +1,0 @@
-Artículo 2º-El presente Reglamento se emite al amparo del artículo 5 del acta de la Sesión 1593-2020 celebrada el 20 de julio del 2020 por el Consejo Nacional de Supervisión del Sistema Financiero, y el acuerdo SUGEF 26-20 Reglamento sobre las operaciones y prestación de servicios realizados por medio de Corresponsales no Bancarios.

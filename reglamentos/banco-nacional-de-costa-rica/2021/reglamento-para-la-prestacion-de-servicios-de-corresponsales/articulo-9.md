@@ -1,1 +1,0 @@
-Artículo 9º-Los Corresponsales BN Servicios y EL Banco nombrarán cada uno, un representante para que funja como Administrador del Contrato, quienes coordinarán los detalles de su ejecución y serán los responsables de este.
