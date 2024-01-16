@@ -1,1 +1,0 @@
-Artículo 6°.- Competencias del Ministerio de Ciencia, Tecnología y Telecomunicaciones (MICITT). Es competencia del MICITT incentivar e impulsar la adopción de los estándares de la W3C en los sitios Web, mediante los medios que considere oportunos dentro de su ámbito de acción.
