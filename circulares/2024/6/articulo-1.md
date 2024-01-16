@@ -1,0 +1,8 @@
+CIRCULAR No.06-2024
+Asunto: Apoyo a la iniciativa Programa Bandera Azul Ecológica
+A TODAS LAS OFICINAS Y DESPACHOS JUDICIALES,
+SE LES HACE SABER QUE:
+Este Consejo Superior del Poder Judicial, en sesión número 01-2024 celebrada el 09 de enero de 2024, artículo L, a solicitud de la Comision de Gestión Ambiental dispuso aprobar el oficio CGAI- 0015-2023 de la citada comisión respecto a la participación en el Programa Bandera Azul Ecológica.
+En consecuencia, debido a la importancia que reviste la participación en el Programa Bandera Azul Ecológica (PBAE) para el cumplimiento del compromiso del Poder Judicial con la Agenda 2030 y los Objetivos de Desarrollo Sostenible (ODS), específicamente los objetivos 6, 7, 9, 12, 13, 14, 15, 16 relacionados a la sostenibilidad y gestión ambiental, así como los fines perseguidos por el Plan de Gestión Ambiental Institucional (PGAI) 2022-2026 aprobado por Corte Plena en sesión n°52-2021 celebrada el 06 de diciembre de 2021, artículo XXIV, a cargo de la Comisión de Gestión Ambiental Institucional, se insta a las oficinas y despachos de los distintos ámbitos institucionales ubicadas en edificios donde se esté desarrollando la iniciativa del PBAE, que apoyen y se involucren de manera activa en el desarrollo de dicha iniciativa, especialmente en cuanto a la participación en actividades de capacitación y sensibilización sobre temas ambientales cuando estos sean convocados por la Comisión de Gestión Ambiental Institucional y las subcomisiones ambientales de los respectivos circuitos judiciales.
+Publíquese una vez en el Boletín Judicial."
+San José, 16 de enero de 2024.
