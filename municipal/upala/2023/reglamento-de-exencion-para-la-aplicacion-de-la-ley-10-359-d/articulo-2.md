@@ -1,0 +1,1 @@
+Artículo 2°-Objetivo del Reglamento. Regular las condiciones, los requisitos y los trámites que regirán la exención del pago de tasas y servicios municipales, lo anterior de conformidad con la autorización otorgada por la Ley N° 10.359 denominada "Apoyo Municipal para Adultos Mayores en Pobreza".
