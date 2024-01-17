@@ -1,0 +1,1 @@
+Artículo 14.-Para lo dispuesto de las sanciones hacia los funcionarios municipales, se aplicará el Reglamento Interno de la Municipalidad de Coto Brus, aplicándose supletoriamente a este Reglamento, también lo respectivo tanto en el Código Municipal, como en el Ley General de la Administración Pública.

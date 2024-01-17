@@ -1,0 +1,2 @@
+Capítulo VII.-Compras y ventas.
+Artículo 22.-La Administración del Centro de Acopio estará en constante búsqueda de compradores éticos con el ambiente, los cuales brinden el mejor precio de compra, además de que se adecuen a los materiales que se ofrecen en este Centro de Acopio; los cuales pueden variar en cantidad según el tipo de comprador, prevaleciendo como eje transversal de la contratación la responsabilidad con el ambiente, asegurando por cualquier medio el compromiso y garantía de utilizar eficiencia en el uso de los materiales.

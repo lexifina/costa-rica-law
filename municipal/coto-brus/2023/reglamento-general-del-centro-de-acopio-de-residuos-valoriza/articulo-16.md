@@ -1,0 +1,1 @@
+Artículo 16.-El método de venta de los residuos será decisión Municipal tendrá como objetivo ofrecer un servicio de calidad en la gestión de cobro por concepto de venta de materiales ofrecidos en el Centro de Acopio.

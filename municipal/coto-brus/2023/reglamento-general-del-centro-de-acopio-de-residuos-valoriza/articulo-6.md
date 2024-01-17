@@ -1,0 +1,1 @@
+Artículo 6º-Los funcionarios del Centro de Acopio deben mantener, respeto, orden y ser responsables en sus labores, procurando el orden, el aseo y limpieza en sus labores y también en su tiempo de comida.
