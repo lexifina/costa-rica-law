@@ -1,0 +1,2 @@
+Artículo 32. Retiro definitivo. Corresponde a la solicitud explícita de renuncia definitiva que hace la persona estudiante de primer ingreso al cupo asignado. La renuncia debe darse posterior a la formalización de la matrícula y durante el período establecido para la matrícula de nuevo ingreso e implica la pérdida de los derechos como persona estudiante UTN y la condición de persona estudiante activa.
+La solicitud de retiro definitivo se realiza ante RU.

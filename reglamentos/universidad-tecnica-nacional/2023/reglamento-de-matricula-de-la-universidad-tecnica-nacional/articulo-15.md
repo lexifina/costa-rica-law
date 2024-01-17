@@ -1,0 +1,1 @@
+Artículo 15. Del acceso al sistema informático para realizar la matrícula. El acceso informático, brindado por la institución para realizar la matrícula, es de uso personal y confidencial y la persona estudiante está obligada a hacer un uso responsable del mismo.

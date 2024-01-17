@@ -1,0 +1,2 @@
+Artículo 12. Asignación de citas de matrícula para primer ingreso a pregrado. Para las personas aspirantes de primer ingreso a la UTN al nivel de Diplomado, se utiliza la nota de admisión como criterio para la asignación de la cita de matrícula. Esta nota es la que obtiene una persona aspirante producto de los criterios de admisión establecidos para su ingreso al nivel de Diplomado.
+Para la asignación de la cita de matrícula de los dos primeros períodos lectivos, se considera la nota de admisión.

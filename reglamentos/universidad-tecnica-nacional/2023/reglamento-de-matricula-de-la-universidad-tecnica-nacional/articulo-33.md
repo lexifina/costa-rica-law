@@ -1,0 +1,1 @@
+Artículo 33. Retiro administrativo. El retiro administrativo es una acción administrativa que aplica para los cursos que están matriculados y que por situaciones no atribuibles a la persona estudiante deben ser retirados. Esta acción es llevada a cabo por RU.

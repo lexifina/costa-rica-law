@@ -1,0 +1,1 @@
+Artículo 2. Competencias de la Dirección de Registro Universitario. Le corresponde a la Dirección de Registro Universitario coordinar, dirigir, ejecutar, supervisar, administrar, registrar, controlar y evaluar los procesos de matrícula que realice la Universidad Técnica Nacional, así como, proponer la normativa relacionada para estos efectos.

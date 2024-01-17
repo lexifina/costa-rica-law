@@ -1,0 +1,3 @@
+Artículo 37. Autorización a terceros. La persona interesada que, por alguna situación de fuerza mayor, no pueda realizar alguno de los trámites derivados de los procesos de matrícula contemplados en este reglamento, puede autorizar a otra persona, aportando, por el medio oficial establecido, los siguientes documentos:
+a. Carta de autorización extendida por la persona interesada debidamente firmada en la cual indique el trámite que desea efectuar y los datos (nombre completo y número de identificación) de la persona que se autoriza.
+b. Copia del documento de identificación vigente de la persona interesada y de la persona autorizada a realizar el trámite.

@@ -1,0 +1,9 @@
+Artículo 18. Requisitos para matrícula de nuevo ingreso a pregrado para las personas con estudios en el extranjero equivalentes al bachillerato en Educación Media. Los requisitos para la matrícula de nuevo ingreso a pregrado para las personas con estudios en el extranjero equivalentes al Bachillerato en Educación Media son:
+a. Resolución emitida por el Ministerio de Educación Pública del reconocimiento y la equiparación del título de Bachiller en Educación Media en Costa Rica o el comprobante de la solicitud del trámite. En este último caso debe firmar una declaración jurada y cumplir con este requisito en el lapso del primer período lectivo del año de ingreso.
+b. Documento de identificación vigente y legible: cédula de residencia permanente, permiso de estudio, permiso de refugiado o permiso provisional de solicitante de refugio.
+La persona aspirante que no cuente con el documento de identificación vigente, puede realizar la matrícula con el comprobante del trámite ante la Dirección General de Migración y Extranjería. Se da un plazo máximo de un mes para presentar el documento. En caso de no presentarlo en el plazo establecido, la UTN le consigna de oficio la condición de inactivo, hasta que se aporte el documento correspondiente.
+Ante una solicitud expresa y debidamente justificada por parte de la persona estudiante en RU, la DRU puede valorar el caso por excepción y mediante previa resolución fundamentada, puede autorizar la matrícula, extendiendo prórroga, según corresponda, para la continuidad en el siguiente cuatrimestre.
+Quedan exentos de presentar este requisito aquellas personas que hayan ingresado a una carrera de modalidad virtual.
+Corresponde a RU, el seguimiento y la validación del cumplimiento del requisito.
+Cualquier otro tipo de empadronamiento condicionado debe ser analizado y autorizado por la DRU.
+c. Pago realizado una vez efectuada la matrícula, durante el plazo establecido.

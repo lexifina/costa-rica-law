@@ -1,0 +1,3 @@
+Artículo 41. Vigencia y derogatoria del reglamento. El presente reglamento rige a partir de su publicación y deroga cualquier normativa en la materia que le contravenga.
+Rige a partir de su publicación.
+Se deroga el anterior Reglamento de Matrícula de la Universidad Técnica Nacional y se aprueba en su sustitución el presente Reglamento de Matrícula de la Universidad Técnica Nacional por el Consejo Universitario Acuerdo 18 tomado por el Consejo Universitario en la Sesión Ordinaria No. 32-2023, celebrada el jueves 07 de diciembre de 2023, a las nueve horas, según el Artículo 28 del Capítulo XVII. Consejo Universitario. Publicado en el diario oficial La Gaceta No. 8 del 17 de enero del año 2024, sección de Reglamentos.

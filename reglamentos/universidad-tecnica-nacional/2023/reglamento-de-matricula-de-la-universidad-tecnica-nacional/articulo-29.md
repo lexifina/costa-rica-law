@@ -1,0 +1,2 @@
+Artículo 29. Otras consideraciones del proceso de matrícula. De presentarse situaciones no atribuibles a la persona estudiante que afecten en forma negativa su proceso de matrícula, la instancia responsable de la situación debe realizar las gestiones respectivas para resolverla.
+La persona estudiante es responsable por los errores y omisiones en que incurra durante el proceso de matrícula, imputables a su persona. Asimismo, es responsable de velar porque la matrícula se encuentre formalmente aplicada, incluyendo el pago respectivo.
