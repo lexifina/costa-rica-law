@@ -1,0 +1,2 @@
+Artículo 7º-Refórmese el artículo 14, del Decreto Ejecutivo N° 28557-MEP de fecha 15 de febrero de 2000, denominado Reglamento Uniforme Oficial en las Instituciones Educativas Públicas, publicado en La Gaceta N° 69 del 06 de abril del 2000, cuyo texto en adelante dirá:
+Artículo 14.-Se prohíbe el uso de cualquier tipo de aditamento en el uniforme oficial o en el institucional que expresamente no haya sido autorizado por el Consejo Asesor Regional de la Dirección Regional de Educación respectiva.

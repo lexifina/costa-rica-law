@@ -1,0 +1,2 @@
+Artículo 6º-Refórmese el artículo 13, del Decreto Ejecutivo N° 28557-MEP de fecha 15 de febrero de 2000, denominado Reglamento Uniforme Oficial en las Instituciones Educativas Públicas, publicado en La Gaceta N° 69 del 06 de abril del 2000, cuyo texto en adelante dirá:
+Artículo 13.-Cada institución establecerá el escudete que debe ser colocado, bordado o impreso a la altura del pecho al lado izquierdo.

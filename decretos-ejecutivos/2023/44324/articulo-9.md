@@ -1,0 +1,3 @@
+Artículo 9º-Se adiciona un nuevo artículo 4 ter, al Decreto Ejecutivo N° 28557- MEP de fecha 15 de febrero de 2000, denominado Reglamento Uniforme Oficial en las Instituciones Educativas Públicas, publicado en La Gaceta N° 69 del 06 de abril del 2000, cuyo texto dirá:
+Artículo 4 ter.-Las Direcciones Regionales de Educación, Supervisores de Educación, directores de centros educativos, personal docente y administrativo deberán permitir:
+Uso opcional del vestido tradicional propio de la cultura indígena (sombrero, camisa, pantalón, vestido y otros accesorios tradicionales), el estudiante indígena podrá asistir descalzo o con zapatos, botas de hule o sandalias en cualquiera de las modalidades del Currículo Nacional.
