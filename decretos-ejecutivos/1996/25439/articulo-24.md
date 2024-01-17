@@ -1,3 +1,3 @@
-Artículo 24.—Corresponderá a la Junta Directiva imponer la cancelación de la concesión, previo informe del Consejo Director.
-Será atribución del Consejo Director la imposición de las restantes sanciones, cuyas decisiones serán recurribles dentro de los ocho días hábiles siguientes a la comunicación de la misma, ante la Junta Directiva. En los casos en que el Consejo Director imponga alguna de las sanciones de su competencia, contra dichas resoluciones cabrán los recursos previstos en la Ley General de la Administración Pública, dentro del plazo indicado en este artículo.
-(Así reformado por el artículo 1 del decreto ejecutivo Nº 35962 del 12 de abril de 2010)
+Artículo 24. Corresponderá a la Junta Directiva imponer las sanciones del caso, de conformidad con lo establecido en el artículo 13 de la Ley 6758, Ley Reguladora del Desarrollo y Ejecución del Proyecto Turístico Golfo Papagayo y este Reglamento, previo informe del órgano director del procedimiento ordinario administrativo.
+Las decisiones de la Junta Directiva en cuanto a la imposición de las sanciones, tendrán recurso de apelación ante el mismo órgano, dentro del plazo de los tres días hábiles siguientes a la comunicación de la misma.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 44448 del 17 de enero del 2024)

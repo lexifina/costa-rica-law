@@ -1,0 +1,2 @@
+Artículo 30. Cualquier cambio sobre la titularidad de un derecho de concesión en copropiedad de una filial sometida al régimen de la Ley Reguladora de la Propiedad en Condominio, deberá contar con la autorización de la Junta Directiva del ICT. Para obtener dicha autorización, el interesado deberá cumplir con el trámite y los requisitos establecidos en el punto V, "Requisitos para cesión de concesión total" del Anexo Único de este reglamento.
+(Así adicionado por el artículo 2° del decreto ejecutivo N° 44448 del 17 de enero del 2024)

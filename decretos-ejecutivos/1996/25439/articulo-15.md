@@ -1,1 +1,2 @@
-Artículo 15.—Todos los ingresos obtenidos por la administración del Proyecto serán transferidos al Fondo creado por el artículo 7 de la Ley 6758, cuyo presupuesto cubrirá todos los gastos e inversiones del Proyecto a cargo del Instituto.
+Artículo 15. Todos los ingresos obtenidos por la administración del Proyecto serán transferidos al Fondo creado por el artículo 7 de la Ley 6758, cuyo presupuesto cubrirá todos los gastos e inversiones para el desarrollo y ejecución del del Proyecto Turístico Golfo Papagayo incluyendo su mantenimiento, promoción y mercado.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 44448 del 17 de enero del 2024)

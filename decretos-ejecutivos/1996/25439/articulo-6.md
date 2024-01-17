@@ -1,3 +1,3 @@
-Artículo 6º—Las solicitudes de concesión serán estudiadas en forma pormenorizada, a profundidad por la forma y fondo, por el personal técnico y de asesoría jurídica de la Oficina Ejecutora , cuyo informe será la base de la recomendación del Consejo Director.
+Artículo 6. Las solicitudes de concesión serán estudiadas en forma detallada, para verificar el cumplimiento de los requerimientos establecidos en el pliego de condiciones del concurso. Este análisis le corresponde hacerlo al personal técnico de la Oficina Ejecutora y de la Asesoría Legal del ICT en los aspectos estrictamente legales, cuyo informe será la base de la recomendación del Consejo Director para la adjudicación de la concesión.
 El Consejo Director hará su recomendación a la Junta Directiva del Instituto, la cual tomará la decisión final.
-(Así reformado por el artículo 1 del decreto ejecutivo Nº 35962 del 12 de abril de 2010)
+(Así reformado por el artículo 1° del decreto ejecutivo N° 44448 del 17 de enero del 2024)

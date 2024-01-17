@@ -20,3 +20,4 @@ Reglamento a la Ley para el Desarrollo y Ejecución del Proyecto Turístico Golf
 | 5 | 2012-07-25 | Decreto Ejecutivo 37219 (2012-07-25) |
 | 6 | 2013-10-21 | Decreto Ejecutivo 37997 (2013-10-21) |
 | 7 | 2014-06-03 | Decreto Ejecutivo 38640 (2014-06-03) |
+| 8 | 2024-01-17 | Decreto Ejecutivo 44448 (2024-01-17) |

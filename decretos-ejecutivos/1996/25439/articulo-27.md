@@ -1,0 +1,2 @@
+Artículo 27. Para los efectos de este Reglamento, los caminos de acceso o red vial, serán las vías existentes o por construir que permitirán el acceso a las concesiones que así lo requieran o a diferentes zonas dentro de las concesiones ubicadas en el área regulada por la Ley del Proyecto Turístico Golfo Papagayo.
+(Así adicionado por el artículo 2° del decreto ejecutivo N° 44448 del 17 de enero del 2024)

@@ -1,0 +1,2 @@
+Artículo 14 quater. El Concesionario podrá suscribir con terceros contratos de administración u operación para las edificaciones que construya sobre el terreno concesionado siempre y cuando dicho contrato sea inherente a la operación y uso autorizado de dicha concesión. La suscripción de dichos contratos, no requerirá autorización expresa del ICT. Una vez suscrito el contrato de administración u operación, deberá el concesionario comunicarlo al lCT.
+(Así adicionado por el artículo 2° del decreto ejecutivo N° 44448 del 17 de enero del 2024)

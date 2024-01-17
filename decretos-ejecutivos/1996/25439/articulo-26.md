@@ -1,0 +1,5 @@
+CAPÍTULO IV.
+SOBRE LOS CAMINOS DE ACCESO DENTRO DE LAS CONCESIONES
+(Así adicionado el capítulo anterior por el artículo 2° del decreto ejecutivo N° 44448 del 17 de enero del 2024)
+Artículo 26. El ICT aprobará el diseño de la red de caminos de acceso dentro de aquellas unidades territoriales concesionadas que por sus dimensiones o ubicación geográfica así lo requieran de acuerdo al trámite y requisitos establecidos en el Anexo Único de este Reglamento, Punto 1) denominado "Trámite de Aprobación de Anteproyectos y Visado de Planos en el Proyecto Papagayo." Lo anterior, conforme a las potestades de planificación que le asignan las leyes especiales del Proyecto Turístico Golfo Papagayo y con el objetivo de dotar de acceso apropiado a las distintas concesiones otorgadas, a la zona pública de la zona marítimo terrestre, a las marinas y atracaderos turísticos. Sin embargo, en ningún caso la demarcación de los caminos de acceso referidos que se apruebe en los planos, implicará calificación alguna sobre la naturaleza jurídica de esas vías.
+(Así adicionado por el artículo 2° del decreto ejecutivo N° 44448 del 17 de enero del 2024)

@@ -1,0 +1,3 @@
+Artículo 16 quinquies. En caso de existir incumplimientos imputables al concesionario, el ICT podrá iniciar el procedimiento de ejecución de dicha garantía dentro del plazo de los diez días hábiles siguientes a la notificación de la resolución de la Junta Directiva del ICT que declare en firme el incumplimiento. La ejecución de la garantía de cumplimiento no exime al concesionario de indemnizar al ICT por los daños y perjuicios que no cubra esa garantía.
+Como garantías de cumplimiento sólo se aceptarán las indicadas en el artículo 111 del Reglamento a la Ley General de Contratación Pública, Nº 9986 del 27 de mayo del 2021.
+(Así adicionado por el artículo 2° del decreto ejecutivo N° 44448 del 17 de enero del 2024)

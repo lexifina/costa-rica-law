@@ -1,0 +1,2 @@
+Artículo 32. En caso de que la finca matriz de una concesión sometida a régimen condominal sea ejecutada por un acreedor con garantía real sobre esta, deberá el adjudicatario respetar lo siguiente: los términos del contrato de concesión, lo establecido en el Reglamento del condominio respectivo, los accesos, las áreas comunes del condominio y los derechos de concesión vigente sobre las filiales del condominio.
+(Así adicionado por el artículo 2° del decreto ejecutivo N° 44448 del 17 de enero del 2024)
