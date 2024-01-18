@@ -1,0 +1,2 @@
+Artículo 7°-Del destino de la mercadería decomisada orgánica, comestible o perecedera. Si se tratare de mercadería orgánica, comestible y perecedera será entregada a una organización de bien social del cantón a criterio de la Municipalidad, conforme a solicitudes presentadas y contra factura de recibido por parte de la organización respectiva.
+De determinarse el vencimiento de la mercadería o descomposición de la mercadería citada, será desechada de manera inmediata según acta levantada al efecto en el sitio que la Municipalidad defina al efecto.
