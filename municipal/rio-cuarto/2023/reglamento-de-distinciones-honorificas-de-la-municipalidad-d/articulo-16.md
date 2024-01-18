@@ -1,0 +1,1 @@
+Artículo 16.-Registro de distinciones honoríficas. Corresponde a la Secretaría del Concejo Municipal llevar el registro del otorgamiento de distinciones honoríficas y su revocatoria, mismo que deberá ser publicado en los medios electrónicos oficiales de la Municipalidad de Río Cuarto. De igual manera, estará facultada para emitir certificaciones de dicho registro.

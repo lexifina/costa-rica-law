@@ -1,0 +1,1 @@
+Artículo 12.-Dictamen de Comisión. Con el fin de evaluar las postulaciones para distinciones honoríficas, la Comisión Especial de Distinciones Honoríficas se reunirá para analizar las solicitudes. En caso de requerirlo, la comisión podrá convocar a audiencia a la persona postulante con el fin de aclarar lo que corresponda respecto de la postulación.

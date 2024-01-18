@@ -1,0 +1,1 @@
+Artículo 4º-Comisión Especial de Distinciones Honoríficas. La Comisión Especial de Distinciones Honoríficas es el órgano encargado de recomendar al Concejo Municipal el otorgamiento de las distinciones honoríficas contemplados en el presente reglamento.

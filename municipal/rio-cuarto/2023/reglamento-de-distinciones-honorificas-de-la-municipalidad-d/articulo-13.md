@@ -1,0 +1,1 @@
+Artículo 13.-Recomendación y declaratoria de distinciones honoríficas. La Comisión Especial de Distinciones Honoríficas emitirá su dictamen con al menos treinta días naturales de antelación a la fecha de la sesión programada para su otorgamiento, el cual será conocido en la sesión ordinaria inmediata siguiente del Concejo Municipal.

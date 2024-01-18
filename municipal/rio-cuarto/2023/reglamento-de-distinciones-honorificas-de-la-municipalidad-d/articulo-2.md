@@ -1,0 +1,1 @@
+Artículo 2º-Carácter de las distinciones honoríficas. Las distinciones reguladas en el presente reglamento tienen carácter exclusivamente honorífico, no derivándose de su otorgamiento derecho alguno al beneficiario o responsabilidad hacia el Gobierno Local.
