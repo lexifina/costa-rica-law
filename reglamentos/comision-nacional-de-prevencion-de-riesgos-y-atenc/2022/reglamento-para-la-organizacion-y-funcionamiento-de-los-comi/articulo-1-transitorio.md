@@ -1,1 +1,0 @@
-Transitorio. Los manuales de procedimientos vigentes a la fecha de publicación del presente reglamento permanecerán vigentes por el plazo de seis meses indicados en el artículo 27 del presente reglamento. Vencido el plazo, o publicados los nuevos manuales, se consideran como derogados.

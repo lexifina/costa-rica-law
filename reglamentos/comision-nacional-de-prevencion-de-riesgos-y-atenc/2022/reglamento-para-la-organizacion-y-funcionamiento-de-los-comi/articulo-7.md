@@ -1,8 +1,0 @@
-Artículo 7°-Comité Regional de Emergencia, en adelante CRE. Los CRE serán conformados por los directores o jefes regionales de las instituciones públicas y los representantes privados, civiles y no gubernamentales, con cobertura en ámbito de cobertura regional. Las regiones del país en que se organizan los comités regionales tendrán concordancia con el sistema de regionalización dispuesto por el Ministerio de Planificación Nacional y Política Económica, a saber, Región Central, Región Chorotega, Región Huetar Caribe, Región Huetar Norte, Región Pacífico Central y Región Brunca con las excepciones siguientes:
-a) La región Central se subdivide en cuatro Subregiones denominadas:
-i. San José Este: conformada por los cantones Central, Coronado, Curridabat, Desamparados, Goicoechea, Montes de Oca, Moravia y Tibás.
-ii. San José Oeste: conformada por los cantones Acosta, Alajuelita, Aserrí, Escazú, Mora, Puriscal, Santa Ana y Turrubares.
-iii. Alajuela: conformada por los cantones: Central, incluyendo los distritos San Miguel y Sarapiquí, Atenas, Grecia, Naranjo, Palmares, Poás, San Ramon, Sarchí y Zarcero.
-iv. Cartago: conformada por los cantones Central, Alvarado, El Guarco, Jiménez, La Unión, Oreamuno, Paraíso, Turrialba y los cantones de Tarrazú, Dota y León Cortés de la provincia de San José.
-v. Heredia: conformada por los cantones Central, Barva, Belén, Flores, Santa Bárbara, San Isidro, San Pablo, San Rafael, Santo Domingo y Sarapiquí.
-b) En la región Huetar Norte se exceptúan los distritos San Miguel Sarapiquí del Cantón Central de Alajuela y el cantón de Sarapiquí de la Provincia de Heredia y se incluye al cantón de Rio Cuarto de Alajuela.

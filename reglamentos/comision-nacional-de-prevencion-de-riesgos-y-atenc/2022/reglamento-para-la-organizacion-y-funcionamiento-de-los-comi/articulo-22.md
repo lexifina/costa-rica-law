@@ -1,2 +1,0 @@
-Artículo 22.-Responsabilidad en el uso de los bienes no donados. El custodio o contraparte del convenio será responsable de la pérdida o daño que sufran los bienes, cuando no provengan del deterioro natural por razón de su uso legítimo o de otra causa justificada.
-En caso de utilización de bienes por parte de los comités de emergencia, el custodio o responsable reportará dichos movimientos a la CNE por medio del sistema de registro, y solicitará la reposición de estos, con el fin de mantener las existencias en bodega.
