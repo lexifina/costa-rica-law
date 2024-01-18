@@ -1,0 +1,3 @@
+CAPÍTULO II
+Del Procedimiento
+Artículo 6°.-Inscripción. Para efectos de participar en la audiencia pública, las personas deberán enviar un correo a la dirección que oportunamente se habilitará y publicará en medios oficiales de la Municipalidad de Pérez Zeledón, indicando su nombre, número de identificación e información de contacto. En caso de imposibilidad de acceso a medios tecnológicos, las personas podrán remitir carta a la Dependencia de Planificación Territorial de la Municipalidad con los mismos datos indicados en el párrafo anterior, señalando medio para recibir notificaciones. En caso de no realizar la inscripción previa, la misma podrá realizarse el día de la audiencia llenando el formulario de inscripción que se le será suministrado a la entrada del local.

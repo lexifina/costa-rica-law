@@ -1,0 +1,2 @@
+Artículo 3°-Sesión extraordinaria. La audiencia se llevará a cabo durante una sesión extraordinaria del Concejo Municipal con las formalidades que para ello dispone el artículo 47 del Código Municipal. En el acta quedará constancia de las preguntas y observaciones planteadas por el público, así como el nombre completo y número de cédula de quien lo expresó.
+El video de la sesión será conservado en la Secretaria del Concejo Municipal.

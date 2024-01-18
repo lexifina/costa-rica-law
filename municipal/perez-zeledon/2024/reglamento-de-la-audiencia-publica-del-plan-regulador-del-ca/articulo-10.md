@@ -1,0 +1,1 @@
+Artículo 10.-Exposición del proyecto. El Equipo Planificador expondrá el proyecto del Plan de Ordenamiento Territorial, compartiendo la pantalla de su computadora, la cual será proyectada para que los asistentes puedan observarla así como en las redes sociales, en el video se mostrará la pantalla compartida.

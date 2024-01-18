@@ -1,0 +1,1 @@
+Artículo 12.-Intervención de los integrantes del Concejo Municipal. Los miembros del Concejo Municipal podrán formular preguntas u observaciones concretas sobre el proyecto, una sola vez, en un tiempo máximo de 5 minutos.

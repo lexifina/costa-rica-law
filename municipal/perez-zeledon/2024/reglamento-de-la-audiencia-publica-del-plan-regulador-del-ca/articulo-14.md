@@ -1,0 +1,1 @@
+Artículo 14.-Facultades de orden. Conforme lo dispone el inciso d) del artículo 34 del Código Municipal; a la Presidencia le corresponde conceder la palabra y retirarla cuando excedan en el tiempo o las expresiones.

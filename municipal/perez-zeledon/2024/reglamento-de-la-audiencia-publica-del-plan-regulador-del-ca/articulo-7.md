@@ -1,0 +1,1 @@
+Artículo 7°.-Acceso al evento. El ingreso al local será permitido con una hora de anterioridad. La persona deberá mostrar su identificación para comprobar que está inscrita. Asimismo, la sesión de audiencia pública será transmitida en vivo por el canal oficial en Youtube de la Municipalidad de Pérez Zeledón.
