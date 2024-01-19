@@ -1,0 +1,7 @@
+JUNTA DE PENSIONES Y JUBILACIONES DEL MAGISTERIO NACIONAL
+REGLAMENTO GENERAL DE ORGANIZACIÓN Y FUNCIONAMIENTO
+La Junta Directiva en Sesión Ordinaria 0142-2023, celebrada el 20 de diciembre de 2023, acuerda modificar el artículo 19 del Reglamento General de Organización y Funcionamiento de la Junta de Pensiones y Jubilaciones del Magisterio Nacional, para que se lea de la siguiente manera:
+Artículo 19.—De las Dietas. El valor de la dieta correspondiente a cada sesión ordinaria será de un 4,00 % del salario global definitivo mensual del Contralor o Contralora General de la República.
+La remuneración a que se refiere este artículo será percibida por el director, solo cuando asista de manera completa a las correspondientes sesiones de plenario de la Junta. Como excepción a lo anterior, corresponderá el pago de la dieta, cuando el director (a) no se encuentre presente por las razones previstas en el artículo 9°, inciso i) de este reglamento.
+Los asistentes a las sesiones del plenario deberán firmar el registro de asistencia por cada una. En caso de ausencia, quien presida o coordine la sesión, indicará a la Secretaría que se deje constancia de ello en el acta correspondiente.
+(Corregido su texto en forma íntegra mediante Fe de Erratas y publicada en La Gaceta N° 27 del 13 de febrero de 2024, página N° 2)
