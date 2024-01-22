@@ -1,1 +1,3 @@
-Artículo 14.—A todo recibo cancelado mediante cheque debe considerarse la leyenda “queda sujeto a que el cheque tenga fondos.”
+Artículo 14.-Se admite el pago de adeudos municipales mediante cheque. En tales casos, el pago queda sujeto a que la Municipalidad pueda llevar a cabo el cambio del cheque en la entidad financiera correspondiente. Todo recibo emitido por la Municipalidad que derive de un pago realizado por medio de cheque debe indicar la leyenda: "El pago queda sujeto a que el cheque tenga fondos".
+En caso de que la Municipalidad no pueda llevar a cabo el cambio del cheque por falta de fondos o por defectos en el título valor, se dejará sin efecto el pago respectivo por lo que cualquier adeudo continuará generando los intereses y sanciones de conformidad con la ley.
+(Así reformado en sesión N° 005 del 22 de enero de 2024)

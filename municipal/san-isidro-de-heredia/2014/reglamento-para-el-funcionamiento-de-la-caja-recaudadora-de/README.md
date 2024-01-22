@@ -14,3 +14,4 @@ Reglamento para el funcionamiento de la caja recaudadora de la Municipalidad de 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-04-10 | la propia norma |
+| 2 | 2024-01-22 | Reglamento municipal 5 (2024-01-22) |

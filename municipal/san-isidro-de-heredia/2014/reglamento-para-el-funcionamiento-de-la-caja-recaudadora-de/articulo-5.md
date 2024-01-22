@@ -1,1 +1,2 @@
-Artículo 5º—Para la anulación de recibos debe de existir el original y la copia, la Tesorera dará su aval mediante una firma en todos los tantos.
+Artículo 5º-Para la anulación de recibos debe de existir el original y la copia, la tesorera o tesorero dará su aval mediante una firma en todos los tantos. Para tales efectos será responsabilidad de la cajera o cajero remitir un correo electrónico a la coordinadora de tesorería municipal justificando las razones por las cuales se llevó a cabo la anulación.
+(Así reformado en sesión N° 005 del 22 de enero de 2024)
