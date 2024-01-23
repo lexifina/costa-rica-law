@@ -14,3 +14,4 @@ Manuel de trámites de despachos o firmas de contadores públicos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-04-27 | la propia norma |
+| 2 | 2024-01-23 | Reglamento 0 (2024-01-23) |
