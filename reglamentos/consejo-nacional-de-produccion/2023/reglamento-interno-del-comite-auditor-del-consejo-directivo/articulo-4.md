@@ -1,0 +1,8 @@
+Artículo 4°-Definiciones.
+Administrador General de FANAL: Responsable ante la Junta Directiva, la Presidencia Ejecutiva y la Gerencia General, sobre la buena marcha de FANAL.
+Comité Auditor: Órgano asesor del Consejo Directivo del Consejo Nacional de Producción (CNP), cuya única finalidad es la de asesorar al Consejo Directivo en la toma de decisiones para el ejercicio de sus funciones institucionales y corporativas, en materia de análisis de información financiera, aplicación de políticas contables y normas de información financiera, auditoría interna y externa, finanzas, control interno y gobierno corporativo, así como las relacionadas con el establecimiento, mantenimiento, control y supervisión de la gestión de riesgos.
+Junta Directiva: Órgano Colegiado de máxima jerarquía del CNP cuya responsabilidad es administrar y dirigir la gestión empresarial de acuerdo con las atribuciones que le fije a la ley 2035 y sus reformas. En este reglamento se utilizará el término de Consejo Directivo para referirse indistintamente a este órgano según así lo dispone la Organización para la Cooperación y Desarrollo Económico (OCDE).
+Directores: Miembros del Consejo Directivo de la Institución.
+Miembros Independientes: miembros demostrablemente libres, en apariencia y, de hecho, de conflictos (personales u otros) en cuanto a su toma de decisiones.
+Miembros Externos: miembros demostrablemente libres, en apariencia y, de hecho, de conflictos (personales u otros), en cuanto a su toma de decisiones cuyo nombramiento resulte de la cooperación interinstitucional con otras instituciones del sector agropecuario.
+Presidencia Ejecutiva: Órgano unipersonal de mayor jerarquía a nivel corporativo.

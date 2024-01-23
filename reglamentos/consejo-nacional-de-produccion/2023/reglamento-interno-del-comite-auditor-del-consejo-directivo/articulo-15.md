@@ -1,0 +1,4 @@
+Artículo 15.-Apoyo y Asesoría.
+El Comité de Auditoría, podrá apoyarse en todas las dependencias del Consejo Nacional de Producción (CNP), con el propósito de asegurar la razonabilidad e integridad de la información del seguimiento realizado.
+Este podrá solicitar explicaciones oportunas y periódicas al Administrador General y Titulares Subordinados de FANAL, en temas como informes financieros y documentos complementarios antes de su divulgación, consideraciones sobre alteraciones en los criterios contables, así como cualquier otro que el Comité Auditor determine necesario para el cumplimiento de las funciones contenidas en este reglamento. El Comité deberá informar a la Gerencia General de estas solicitudes.
+De la misma manera, el Comité con previa autorización del Consejo Directivo, podrá utilizar, de forma excepcional, asesores externos que considere pertinentes para el fin descrito anteriormente.

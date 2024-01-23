@@ -1,0 +1,5 @@
+Artículo 18.-Acceso y confidencialidad de la información.
+El Comité Auditor, para el ejercicio de sus responsabilidades, podrá acceder, por medio su Secretaría, a la información confidencial y pública o documentación que se disponga en FANAL y que se considere necesaria para el cumplimiento de sus funciones.
+Es deber de los miembros del Comité, resguardar la información confidencial a la que tenga acceso, cuando así lo señale el respectivo documento o lo advierta el área responsable de la información y solo deberán utilizarla para los fines propios del Comité.
+El Comité de Auditoría podrá advertir que la información que se presentará al Consejo Directivo es de naturaleza confidencial, ya sea porque así fue declarada por el Consejo Directivo o por disposición constitucional o legal y recomendar que no sea publicada y que se sigan las disposiciones internas vigentes.
+Los miembros del Comité deben respetar la Política Interna de Seguridad para la Confidencialidad, Transparencia y Divulgación de la Información ( CNP-PI-0-01 ).
