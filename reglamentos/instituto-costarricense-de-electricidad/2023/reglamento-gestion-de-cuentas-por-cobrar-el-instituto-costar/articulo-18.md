@@ -1,1 +1,0 @@
-Artículo 18.-Una vez que se haya concluido el proceso de Cobro Administrativo de todas las deudas de servicios inactivos, que posea el cliente, se debe gestionar la certificación integral (caso) para el trámite de cobro judicial por parte de la empresa GCGICE S.A.

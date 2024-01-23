@@ -1,1 +1,0 @@
-Artículo 2º-Alcance. Este reglamento es obligatorio para todas las áreas involucradas en la gestión cuentas por cobrar de la Gerencia Servicios y Recursos Empresariales y la Gerencia Gestión de Cobro Grupo ICE, S.A.

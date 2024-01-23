@@ -1,1 +1,0 @@
-Artículo 13.-Debe comunicar de forma oportuna a la empresa GCGICE S.A. y Administración Superior, en caso de existir aspectos de fuerza mayor que limiten el cumplimiento de la asignación de cuentas en cobro administrativo o judicial del plan de trabajo establecido.
