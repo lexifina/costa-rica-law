@@ -17,3 +17,4 @@ Reglamento autónomo de organización y servicio del Instituto de Fomento y Ases
 | 2 | 2021-09-16 | Reglamento 28 (2021-09-16) |
 | 3 | 2022-04-07 | Reglamento 11 (2022-04-07) |
 | 4 | 2022-05-12 | Reglamento 15 (2022-05-12) |
+| 5 | 2024-01-23 | Reglamento 3 (2024-01-23) |
