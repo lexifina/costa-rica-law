@@ -1,1 +1,0 @@
-Artículo 7º—Para utilizar este servicio, el usuario deberá llenar en forma correcta, a máquina, por computadora o a mano con letra legible, la fórmula de solicitud de servicio que existe para tal efecto.

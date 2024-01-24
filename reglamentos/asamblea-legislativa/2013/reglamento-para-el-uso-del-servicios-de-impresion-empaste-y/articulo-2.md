@@ -1,1 +1,0 @@
-Artículo 2º—El servicio de impresión, reproducción (blanco y negro o a color), guillotinado y empaste de documentos deberá utilizarse estrictamente para atender asuntos propios del quehacer institucional.
