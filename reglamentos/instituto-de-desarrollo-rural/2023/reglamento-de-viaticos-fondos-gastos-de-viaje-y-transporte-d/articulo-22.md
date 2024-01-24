@@ -1,0 +1,2 @@
+Artículo 22. Justificantes de gastos
+Para el reconocimiento de los gastos de hospedaje la unidad Tesorería, Encargado de la Caja Chica o el Encargado del Fondo Rotatorio de Trabajo correspondiente requerirá de la persona funcionaria la presentación de facturas que justifiquen el gasto, las cuales deben ser emitidas a nombre de la Institución (Instituto de Desarrollo Rural) y firmadas por la persona funcionaria. Los gastos de alimentación no requerirán la presentación de factura.

@@ -1,0 +1,17 @@
+Artículo 5. Definiciones
+Para efectos de este Reglamento, se en lista el siguiente conjunto de términos y sus respectivas definiciones:
+a) Anticipo: suma total estimada y girada con anterioridad a la realización de la gira programada dentro o fuera del país, para cubrir los gastos de viaje que correspondan al período de la gira, el cual deberá solicitarse mediante el sistema informático vigente, de acuerdo con las tablas incluidas en el "Reglamento de Gastos de Viaje y Transporte para Funcionarios Públicos" de la Contraloría General de la República, así como los gastos de transporte cuando proceda.
+b) Administración Superior: comprende los puestos de los titulares de las unidades administrativas; está constituido por los jerarcas de la Presidencia Ejecutiva y la Gerencia General.
+c) Dirección Administración y Finanzas: unidad administrativa de nivel directivo dependiente de la Gerencia General, que se encarga de planificar, organizar, dirigir y controlar las actividades propias de la administración y finanzas del Inder y se compone de los departamentos Administrativo y Financiero.
+d) Dirección Desarrollo Rural Territorial: unidad administrativa de nivel directivo dependiente de la Gerencia General. Cuenta con dos dependencias de nivel operativo departamento en la sede central (Fondo de Tierras y Fondo de Desarrollo Rural) y otras seis Regiones de Desarrollo con desconcentración administrativa a nivel regional.
+e) Encargado de Caja Chica: persona funcionaria responsable del manejo, custodia, trámite y control del fondo asignado a la Caja Chica o Caja General.
+f) Encargado del Fondo Rotatorio de Trabajo: persona funcionaria responsable del manejo, custodia, trámite y control del Fondo Rotatorio de Trabajo asignado a cada Región de Desarrollo.
+g) Fondos: suma de dinero que tiene como propósito sufragar gastos de urgente necesidad y que respondan a un fin específico mediante la solicitud de adelantos de fondos y su correspondiente liquidación.
+h) Gira: viaje que conlleva la visita dentro o fuera del país de una persona funcionaria del Inder, con punto de partida y punto de llegada con un fin determinado.
+i) Jefatura inmediata: entiéndase la jefatura superior de la persona funcionaria.
+j) Junta Directiva: órgano máximo de dirección del lnder.
+k) Oficina de Desarrollo Territorial: unidad administrativa de nivel operativo unidad, dependiente del departamento Región de Desarrollo, y no tiene dependencias a su cargo.
+l) Región de Desarrollo: unidad administrativa de nivel operativo departamento, dependiente de la unidad directiva Desarrollo Rural Territorial, y cuenta con desconcentración administrativa. Constituye un órgano decisor y de apoyo logístico a nivel regional. Cuenta con subdivisiones operativas, llamadas Oficinas de Desarrollo Territorial.
+m) Sistema informático: para efectos de este reglamento, se refiere al sistema informático de naturaleza financiera utilizado por el lnder para la gestión del proceso de viáticos.
+n) Unidad Tesorería: unidad administrativa de nivel operativo, dependiente del departamento Financiero. Es la unidad encargada de la tesorería del lnder, comprendida como aquellos procedimientos y acciones destinadas a la administración y gestión del dinero en la institución.
+o) Viático: suma destinada a la atención de gastos de hospedaje, alimentación y otros gastos menores, que se reconocen a las personas funcionarias cuando éstos deban desplazarse de forma transitoria de su centro de trabajo con el fin de cumplir con las obligaciones relacionadas al cargo.

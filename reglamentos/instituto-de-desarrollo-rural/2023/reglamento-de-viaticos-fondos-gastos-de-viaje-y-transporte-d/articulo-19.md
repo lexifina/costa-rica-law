@@ -1,0 +1,2 @@
+Artículo 19. Tarifas en el interior del país
+Para el pago de las sumas a cobrar por los diferentes conceptos de viáticos, se aplicarán las tarifas establecidas en el "Reglamento de Gastos de Viaje y Transporte para Funcionarios Públicos" de la Contraloría General de la República, norma que regirá para lo dispuesto en el presente reglamento. Cada vez que la Contraloría General de la República publique una modificación de la tabla de viáticos, se procederá a la actualización de las tarifas en el sistema informático vigente.

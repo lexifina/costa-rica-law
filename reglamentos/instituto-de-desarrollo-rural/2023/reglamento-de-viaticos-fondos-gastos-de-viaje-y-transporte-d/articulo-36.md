@@ -1,0 +1,3 @@
+Artículo 36. Gastos financiados por el órgano auspiciador
+No se girará suma alguna por concepto de gastos de viaje y de transporte, si éstos son financiados por el organismo auspiciador de un congreso, seminario o capacitación, a la persona funcionaria que asista en su representación.
+Si se determina que la asignación otorgada por el organismo auspiciador resulta inferior a la tarifa autorizada por el "Reglamento de Gastos de Viaje y Transporte para Funcionarios Públicos" de la Contraloría General de la República para el lugar a visitar, la Junta Directiva del Inder, podrá conceder a la persona funcionaria una suma complementaria, de forma que, conjuntamente con la asignación financiada o dada, no exceda el monto de la tarifa autorizada.

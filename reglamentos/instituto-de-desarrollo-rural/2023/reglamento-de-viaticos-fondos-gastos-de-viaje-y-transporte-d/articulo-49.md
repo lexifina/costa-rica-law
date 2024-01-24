@@ -1,0 +1,2 @@
+Artículo 49. Formato de liquidación de fondos
+La liquidación de los fondos deberá hacerse en el sistema informático vigente y debe reflejar el desglose de los gastos incurridos. La información consignada en la liquidación de fondos tiene el carácter de declaración jurada; es decir, es una relación cierta de los gastos efectuados en la atención de asuntos oficiales. Se deberá adjuntar como respaldo las facturas y los documentos que soporten el pago.

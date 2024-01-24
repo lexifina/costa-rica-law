@@ -1,0 +1,3 @@
+Artículo 25. Reconocimiento de gastos cuando el lugar de destino coincide con el de su domicilio
+Cuando la persona funcionaria deba trabajar eventualmente en el mismo lugar donde está su domicilio, no se cubrirá gasto alguno, excepto lo indicado en el artículo 18 del presente Reglamento.
+Cuando deba laborar en cualquier lugar cercano a su domicilio, o al lugar en que normalmente trabaja y, en ambos casos, exista facilidad de transporte se reconocerá únicamente el gasto de traslado; no obstante, se podrá cubrir viáticos dentro del cantón cuando la distancia del domicilio al lugar a visitar sea igual o mayor a 15 kilómetros.

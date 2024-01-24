@@ -1,0 +1,2 @@
+Artículo 3. Sujetos beneficiarios
+Los gastos a que se refiere este Reglamento únicamente serán cubiertos a las personas funcionarias que prestan sus servicios en el Instituto de Desarrollo Rural, como parte de la organización, en virtud de un acto válido y eficaz de investidura, con entera independencia del carácter imperativo, representativo, remunerado, permanente o público de la actividad respectiva, así como el personal proveniente de convenios interinstitucionales vigentes.

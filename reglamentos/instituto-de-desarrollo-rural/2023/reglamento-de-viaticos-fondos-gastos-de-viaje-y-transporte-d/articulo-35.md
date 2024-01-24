@@ -1,0 +1,4 @@
+Artículo 35. Desglose de la tarifa
+Cuando fuese necesario hacer un desglose de las tarifas incluidas en lo indicado en el artículo anterior, se asignará a cada servicio o concepto de gasto los siguientes porcentajes, a hospedaje hasta un 60%, desayuno hasta un 8%, almuerzo y cena hasta un 12% cada uno y a otros gastos menores hasta un 8%.
+Cuando las características y finalidades del viaje, cualquiera de los porcentajes anteriores, se estime o sea insuficiente, la unidad Tesorería podrá pagar el exceso en la liquidación de la gira, siempre y cuando en el acuerdo de Junta Directiva se haya previsto, o sea, autorizada una ampliación por la Junta Directiva y se presenten las facturas o comprobantes del gasto respectivo.
+Los porcentajes anteriores corresponden a los indicados en el "Reglamento de Gastos de Viaje y Transporte para Funcionarios Públicos" de la Contraloría General de la República.

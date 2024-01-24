@@ -1,0 +1,2 @@
+Artículo 28. Prestación de servicios por parte de los entes públicos
+No podrán ser cobrados los servicios de transporte, alimentación, hospedaje, lavado de ropa, u otros, que las personas funcionarias reciban gratuitamente, durante las giras o viajes que realicen en cumplimiento de sus funciones, ya sea que lo reciban directamente del Instituto o a través de contrataciones de éste con terceros, o bien a través de otros entes públicos o privados.

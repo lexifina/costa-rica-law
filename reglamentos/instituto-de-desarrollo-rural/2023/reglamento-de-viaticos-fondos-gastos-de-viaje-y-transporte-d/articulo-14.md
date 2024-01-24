@@ -1,0 +1,6 @@
+Artículo 14. Documentos que respaldan la liquidación
+Junto con la liquidación, la persona funcionaria debe presentar las facturas electrónicas y/o las válidas por el Régimen de Tributación Simplificada que, de acuerdo con las disposiciones de este Reglamento así se requiera.
+Para las giras dentro del país, cuando se asista a eventos por invitación como los señalados en el presente Reglamento, se procederá a solicitar copia de la invitación y los documentos que lo respalden. En caso de invitación verbal, se deberá presentar justificación por medio de correo electrónico.
+A su vez, se debe entregar copia de la bitácora del vehículo y el informe de la gira tanto a nivel de oficinas centrales, como regionales.
+En caso de contar con la autorización de la jefatura inmediata para realizar giras en vehículos de otras instituciones gubernamentales, se deberá presentar bitácora del vehículo utilizado donde se consigne el nombre de la persona funcionaria del Jnder.
+Cuando se trate de viajes al exterior, se deberá presentar el itinerario completo del viaje, extendido para el caso, donde se indique la fecha y hora local prevista de salida y de ingreso a Costa Rica y las escalas efectuadas en otros países.

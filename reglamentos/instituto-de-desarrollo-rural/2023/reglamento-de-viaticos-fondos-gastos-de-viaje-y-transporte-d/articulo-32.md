@@ -1,0 +1,2 @@
+Artículo 32. Reconocimiento de gastos de traslado
+Se reconocerán, sin necesidad de incluirse en el acuerdo de viaje, los gastos de traslado desde el domicilio de las personas funcionarias hasta la terminal de transpo1te y viceversa; desde la terminal de transporte de la ciudad destino del viaje hasta el hotel o sitio de hospedaje y viceversa, así como el transporte entre las ciudades. Para lo anterior, deberán emplearse los medios que resulten más económicos, en atención a las circunstancias propias de cada caso, considerando la seguridad de la persona funcionaria.

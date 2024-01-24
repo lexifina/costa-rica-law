@@ -1,0 +1,7 @@
+CAPÍTULO III
+VIÁTICOS AL INTERIOR DEL PAÍS
+Artículo 17. Limitación territorial de viáticos
+Se limitará cubrir gastos de viajes en los siguientes casos:
+a) Unidades administrativas del nivel central: no podrán cubrirse gastos de viaje a las personas funcionarias cuya sede de trabajo esté ubicada dentro de la jurisdicción del Área Metropolitana de San José, citada en el artículo 65 de la Ley N.º 4240 del 30 de noviembre de 1968, (San José; Escazú; Desamparados; Goicoechea; Alajuelita; Coronado; Tibás; Moravia; Montes de Oca y Curridabat), exceptuando en el caso del cantón de Desamparados a los distritos de Frailes, San Cristóbal y Rosario, cuando en funciones de su cargo, deban desplazarse dentro de dicha jurisdicción territorial.
+b) Unidades administrativas del nivel regional y territorial: similar limitación se aplica en aquellos casos en que la persona funcionaria opere desde las instancias regionales o territoriales, en cuyo caso, tampoco cabe el reconocimiento de viáticos a las personas funcionarias destacadas en dichas oficinas, cuando éstas deban desplazarse a cumplir funciones del cargo, dentro del cantón en que se encuentre ubicada esa oficina; no obstante, podrán cubrirse viáticos dentro del cantón donde está ubicada la sede cuando la distancia a visitar sea igual o mayor a 15 kilómetros.
+Las limitaciones anteriores, no afectan el reconocimiento de los gastos de transporte en que incurra la persona funcionaria, debido a las giras que le sean autorizadas y se aplicará a partir de los 15 kilómetros de la sede a otras zonas aledañas.

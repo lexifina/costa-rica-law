@@ -1,0 +1,3 @@
+Artículo 43. Tipo de cambio de anticipos y reintegros
+La suma que se gire en calidad de anticipo de viáticos al exterior, se realizará en colones. Para tal efecto se utilizará como referencia el tipo de cambio de venta dado por el Banco Central de Costa Rica correspondiente a la fecha en que se gire dicho anticipo.
+El reintegro que se derive de la liquidación deberá hacerse en la misma moneda en que se giró el anticipo; es decir, en colones. El tipo de cambio del colón con respecto al dólar que se utilizará para calcular el reintegro en colones, será el mismo que utilizó la unidad Tesorería, para girar el anticipo.

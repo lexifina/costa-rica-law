@@ -1,0 +1,3 @@
+Artículo 52. No presentación de liquidación de fondos por parte de la persona funcionaria
+No se autorizará un nuevo adelanto de fondos si la persona funcionaria no hubiera presentado una liquidación anterior en el plazo establecido o, que no hubiere aportado la información requerida por este Reglamento.
+El incumplimiento en la presentación de la liquidación de gastos para un anticipo de fondos dentro del plazo establecido en el presente Reglamento obligará a la unidad Tesorería, Encargado de la Caja Chica y/o al Encargado del Fondo Rotatorio de Trabajo, según corresponda a comunicar a la jefatura inmediata la situación, para que se realice las gestiones que se considere pertinentes.

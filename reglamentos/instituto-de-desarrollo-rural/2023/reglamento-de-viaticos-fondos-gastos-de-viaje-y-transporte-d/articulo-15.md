@@ -1,0 +1,7 @@
+Artículo 15. Obligaciones de la persona funcionaria que recibe y revisa las liquidaciones
+Son obligaciones de la persona funcionaria encargada de recibir y revisar las liquidaciones de viáticos en la unidad Tesorería, Encargado de la Caja Chica o el Encargado del Fondo Rotatorio de Trabajo, las siguientes:
+a) Revisar la liquidación presentada por la persona funcionaria, verificando las sumas adelantadas en relación con el gasto. Adicionalmente, se deberá verificar que la liquidación esté vinculada con el anticipo en el sistema.
+b) Llevar y mantener actualizado un registro de los anticipos girados. En caso de incumplimiento en la presentación de la liquidación de gastos, en los términos del plazo establecido en el presente Reglamento, por parte de la persona funcionaria que realizó el viaje, informar de forma inmediata el estatus de dicho plazo a la jefatura inmediata correspondiente.
+c) Revisar que los datos consignados en el formulario de liquidación correspondan con las facturas y que las mismas cumplan con las tarifas establecidas por la Contraloría General de la Republica.
+d) Revisar que todas las facturas electrónicas y las válidas por el Régimen de Tributación Simplificada, cumplan con las disposiciones establecidas por el Ministerio de Hacienda y que estén firmadas por la persona funcionaria que generó el gasto.
+El incumplimiento de estas obligaciones por la persona funcionaria encargada, la harán acreedora de las sanciones que la Administración Superior establezca para estos fines.

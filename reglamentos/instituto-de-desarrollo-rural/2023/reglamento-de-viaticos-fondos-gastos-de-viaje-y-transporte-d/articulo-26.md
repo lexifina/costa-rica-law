@@ -1,0 +1,3 @@
+Artículo 26. Carencia de servicios en el lugar de destino
+Cuando alguno o algunos de los servicios de hospedaje y alimentación previstos en el "Reglamento de Gastos de Viaje y Transporte para Funcionarios Públicos" de la Contraloría General de la República, que se mencionan en el artículo 19 de este Reglamento, no exista en el lugar de destino, la jefatura inmediata podrá autorizar al servidor a trasladarse al lugar más cercano, en que se proporcionen, sujeto a la suma respectiva autorizada para este último lugar.
+En este último caso, deberá cubrírsele a la persona funcionaria el costo del transporte correspondiente o prestársele este servicio.

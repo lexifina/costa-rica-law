@@ -1,0 +1,3 @@
+Artículo 40. Regreso con posterioridad a la finalización del evento en que participó la persona funcionaria
+Cuando la persona funcionaria viaje al exterior y no regrese al país inmediatamente después de finalizado el evento en el que participaba, por disfrutar de sus vacaciones o de un permiso especial, deberá presentar la liquidación respectiva, dentro del término establecido en el artículo 11 de este Reglamento, acompañada de los documentos indicados en este Reglamento y copia del itinerario del viaje.
+Para los efectos del artículo anterior, las sumas que se reconozcan se determinarán tomando como base el itinerario de viaje que la persona funcionaria hubiese seguido bajo el supuesto de que hubiere regresado al país inmediatamente después de concluido el viaje.

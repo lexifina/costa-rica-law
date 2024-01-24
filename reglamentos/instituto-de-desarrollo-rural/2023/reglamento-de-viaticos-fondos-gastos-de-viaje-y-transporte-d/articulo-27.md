@@ -1,0 +1,2 @@
+Artículo 27. Reconocimiento de gastos de lavado y planchado de ropa
+Cuando la permanencia en una región del país sea por un lapso mayor de seis días continuos, las personas funcionarias tendrán derecho a que a partir del sétimo día, se les reconozca el importe de lavado y planchado de ropa, mediante la presentación de las respectivas facturas electrónicas o Régimen de Tributación Simplificada, las cuales deben contener nombre completo, número de cédula, dirección, número telefónico y firma de la persona o empresa responsable de suministrar el servicio.

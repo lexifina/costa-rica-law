@@ -1,0 +1,6 @@
+Artículo 10. Formato de liquidación de viáticos
+La liquidación de viáticos deberá hacerse en el sistema informático vigente.
+La información consignada en la liquidación de viáticos tiene el carácter de declaración jurada; es decir, es una relación cierta de los gastos incurridos en la atención de asuntos oficiales.
+En el sistema indicado se reflejará la liquidación de viáticos en el interior del país; debiendo desglosarse el importe que corresponda a: desayuno, almuerzo, cena y hospedaje. Además, deberá adjuntar copia de las facturas electrónicas de hospedaje, así como cualquier otro gasto en que incurra durante la gira, exceptuando los gastos de alimentación que corresponda.
+En caso de suma necesidad y con la consulta previa del contenido presupuestario, se podrán liquidar otros rubros como: transporte público (peajes, ferry y parqueo), combustible, lubricantes y reparaciones menores de vehículos que surjan durante la gira, lavado y planchado de ropa, debidamente justificadas y con el visto bueno de la jefatura inmediata.
+En el formulario de liquidación de viáticos al exterior del país, deberá indicarse el tiempo que permaneció la persona funcionaria en cada una de las ciudades y países incluidos en el viaje, así como la tarifa diaria correspondiente.
