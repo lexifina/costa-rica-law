@@ -1,1 +1,0 @@
-Artículo 2º-Deróguese el Decreto Ejecutivo N° 44137-H de fecha 07 de julio de 2023, publicado en el Alcance N° 147 a La Gaceta N° 143 de fecha 08 de agosto de 2023, a partir de la vigencia del presente decreto.
