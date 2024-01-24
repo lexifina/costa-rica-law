@@ -1,1 +1,0 @@
-Artículo 41.—Prórrogas para los plazos de entrega. La prórroga en la ejecución de los contratos se regirá por lo dispuesto en el artículo 206 del RLCA. La valoración y aprobación de ésta la efectuarán el superior de la Proveeduría. Todo lo actuado, deberá quedar debidamente documentado en el expediente administrativo del concurso.

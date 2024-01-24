@@ -1,3 +1,0 @@
-Artículo 32.—Disposiciones sobre garantías de cumplimiento. En relación con las garantías de cumplimiento, se aplicará lo dispuesto en el respectivo cartel y supletoriamente, en el RLCA.
-En las licitaciones abreviada y/o públicas obligatoriamente, y en los demás procedimientos, facultativamente, se exigirá a los oferentes una garantía de cumplimiento, cuyo monto se definirá en el cartel, entre cinco y diez por ciento del monto total ofertado, deberá tener una vigencia mínima de un mes contado a partir de la fecha máxima establecida para dictar el acto de adjudicación.
-Es competencia de la Tesorería Municipal, en coordinación con la Proveeduría, autorizar la devolución de las garantías de cumplimiento. --
