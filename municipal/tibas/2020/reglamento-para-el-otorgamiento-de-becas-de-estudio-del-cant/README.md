@@ -14,3 +14,4 @@ Reglamento para el otorgamiento de becas de estudio del Cantón de Tibás
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-03-04 | la propia norma |
+| 2 | 2024-01-25 | Reglamento municipal 96 (2024-01-25) |

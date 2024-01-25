@@ -1,12 +1,14 @@
 CAPÍTULO II
 Del procedimiento para solicitar becas
-Artículo 4º—Para cumplir con lo anterior, la Comisión de Asuntos Educativos y Becas trabajará en la aplicación del siguiente procedimiento:
+Artículo 4º-Para cumplir con lo anterior, la Comisión de Asuntos Educativos y Becas trabajará en la aplicación del siguiente procedimiento:
 a. Durante el mes de diciembre de cada año, esta comisión y los concejos de distrito, realizarán una campaña de divulgación comunitaria relacionada con las fechas de entrega, procedimiento, requisitos y recepción de solicitudes de beca para el año siguiente.
 b. La Comisión de Asuntos Educativos y Becas presentará al Concejo Municipal la distribución equitativa de las becas por distrito.
 c. Conforme lo aprobado por el Concejo Municipal, en la segunda semana del mes de diciembre, la Comisión de Asuntos Educativos y Becas entregará de forma equitativa los formularios correspondientes a cada Distrito, debidamente sellados, firmados, numerados y en la cantidad que corresponda de acuerdo a lo establecido en el inciso
 b) de este artículo; asimismo. En caso de extravío o daño de algún formulario de becas, deberá el concejo de distrito responsable, solicitar a la Comisión de Asuntos Educativos y Becas, la sustitución del mismo debidamente justificado. Dicha Comisión lo repondrá por una única vez.
 d. Al momento de recibir los formularios, la persona interesada firmará un documento de recibo oficial, que especificará el nombre del alumno o alumna para quien se solicita la beca.
 e. A más tardar en la última semana de febrero, los solicitantes de las becas entregarán a la Comisión de Asuntos Educativos y Becas los formularios debidamente llenos, limpios, sin correcciones y con la documentación solicitada en forma completa y prevista en el artículo 5 de este Reglamento.
+En año de elecciones Municipales, la entrega de los formularios a la Comisión de Asuntos Educativos y Becas, se deberán entregar a más tardar la última semana de marzo, y las visitas domiciliarias que deben llevar a cabo los miembros del Concejo de distrito correspondiente, no podrán realizarse hasta que el proceso electoral haya concluido.
+(Así adicionado el párrafo anterior mediante sesión N° 096 del 25 de enero de 2024)
 f. El formulario que se presente incompleto, queda automáticamente nulo, lo que imposibilita aprobar dicha beca, siendo responsabilidad directa del Concejo de Distrito correspondiente.
 g. De los formularios entregados a la Comisión de Asuntos Educativos y Becas, previa comprobación de cumplimiento de los requisitos señalados en el artículo 5 de este Reglamento, se levantará un listado al que tendrán acceso los Concejos de Distrito para poder girar sus recomendaciones o propuestas sobre los postulantes, de conformidad con lo previsto por el artículo 57 del Código Municipal.
 h. La Comisión de Asuntos Educativos y Becas, una vez recibida toda la documentación, entregará a cada Concejo de Distrito, un comprobante, en el que se detallen todos los documentos aportados.
