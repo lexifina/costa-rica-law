@@ -1,6 +1,6 @@
 # Ley de Creación del Servicio Nacional de Guardacostas
 
-Ley N° 8000 del 2000-05-05. SINALEVI, ficha 47634: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=47634&param2=118962&param3=1>.
+Ley N° 8000 del 2000-05-05. SINALEVI, ficha 47634: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=47634&param2=139309&param3=1>.
 
 Publicada en La Gaceta N° 99 del 2000-05-24.
 
@@ -14,3 +14,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 4 de 7 | 2018-06-13 | Ley 9552 | 2018-05-24 |
 | 5 de 7 | 2018-08-07 | Ley 9579 | 2018-06-22 |
 | 6 de 7 | 2018-12-04 | Ley 9635 | 2018-12-03 |
+| 7 de 7 | 2024-01-25 | Ley 10430 | 2023-12-13 |
