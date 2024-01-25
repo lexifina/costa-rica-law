@@ -1,0 +1,1 @@
+ARTÍCULO 5°-Los representantes de los Comités Comunales de Emergencia serán propuestos por los Comités Municipales de Emergencia de la misma zona o por agrupaciones de ciudadanos residentes del lugar. Los representantes deberán ser acreditados ante la CNE. La CNE mediante la Unidad de Gestión de Operaciones deberá llevar un registro y control de la integración de estos.
