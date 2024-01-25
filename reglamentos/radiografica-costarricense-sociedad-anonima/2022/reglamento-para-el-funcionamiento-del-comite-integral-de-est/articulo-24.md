@@ -1,1 +1,0 @@
-Artículo 24. Conocimiento de los temas de Junta Directiva. Los documentos relativos a los temas que serán conocidos o resueltos en las sesiones de Junta Directiva deberán ser remitidos por el Comité respectivo, con al menos cuatro días de antelación a la fecha de la reunión; sin perjuicio de lo que la Junta Directiva disponga para que se conozca el tema.

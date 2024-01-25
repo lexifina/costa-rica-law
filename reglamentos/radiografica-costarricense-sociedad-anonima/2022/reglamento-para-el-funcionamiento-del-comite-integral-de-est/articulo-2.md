@@ -1,1 +1,0 @@
-Artículo 2. Objetivo del Comité. El Comité Integral de Estrategia tiene como objetivo coadyuvar a la Junta Directiva, en la toma de decisiones para el ejercicio de sus funciones institucionales, en todo lo relacionado con temas estratégicos y planificación.

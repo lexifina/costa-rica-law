@@ -1,4 +1,0 @@
-Artículo 6. Nombramiento de los integrantes. Los miembros del Comité son nombrados y removidos por la Junta Directiva, fundamentándose para ello en el conocimiento, experiencia y papel que hayan desempeñado con anterioridad.
-Los miembros del Comité que son parte de la Junta Directiva serán nombrados por acuerdo de dicho Órgano Colegiado, por el periodo legal conforme a lo que establece la Asamblea de Accionistas.
-De ser posible, al menos uno de los miembros de la Junta Directiva que conforme el Comité Integral de Estrategia, deberá ser graduado del área de ciencias económicas y poseer conocimientos, habilidades y experiencia mínima de siete años en gestión estratégica y de innovación, preferiblemente con conocimientos y experiencia en temas gestión integral de riesgos, control interno y gobierno corporativo; éste será el único miembro que podrá ser reelecto.
-La conformación del Comité Integral de Estrategia debe garantizar el ejercicio de un juicio independiente.
