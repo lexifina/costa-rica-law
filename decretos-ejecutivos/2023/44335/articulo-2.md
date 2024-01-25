@@ -1,0 +1,3 @@
+ARTÍCULO 2. Alcance y ámbito de aplicación
+El presente reglamento será de acatamiento obligatorio para todas las instituciones de todo el país en el ámbito de aplicación de la Ley Nº 10216, que intervienen en los trámites y requisitos para la instalación y construcción de infraestructura de telecomunicaciones.
+Las normas que en sus funciones y ejercicio de competencias expidan las demás instituciones de la Administración Pública, distintas al Poder Ejecutivo, deben sujetarse y estar concordadas con la Ley N° 10216, el Transitorio II y el presente Reglamento, a efecto de promover e impulsar la ampliación y la cobertura de las telecomunicaciones en todo el país bajo un marco regulatorio armónico.

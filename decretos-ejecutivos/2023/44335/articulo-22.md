@@ -1,0 +1,2 @@
+ARTÍCULO 22. Mimetización y camuflaje de la torre de telecomunicaciones
+Las torres pueden ser mimetizadas o camufladas para mermar el impacto visual, lo cual debe ser coordinado con la Municipalidad y los operadores, en cumplimiento de lo establecido en el Decreto Ejecutivo N° 42395-MOPT: "RAC 14 DISEÑO Y CONSTRUCCIÓN DE AERÓDROMOS, Volumen l", y sus reformas, emitido por la Dirección General de Aviación Civil, en concordancia al artículo 96 de la Ley N° 5150, "Ley General de Aviación Civil".

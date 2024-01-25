@@ -1,0 +1,3 @@
+Capítulo VIII. Sobre instalación de infraestructura en áreas protegidas patrimonio natural del Estado y en derecho de vía ferroviario
+ARTÍCULO 45. Instalación de infraestructura de telecomunicaciones en áreas protegidas patrimonio natural del Estado
+En caso de instalación de infraestructura de telecomunicaciones en áreas protegidas patrimonio natural del Estado se deberá aplicar las disposiciones del Decreto Ejecutivo N° 41129-MINAE-MICITT-MH, "Regulación del permiso de uso para la instalación de infraestructura de telecomunicaciones en áreas silvestres protegidas y patrimonio natural del Estado administradas por el Sistema Nacional de Áreas de Conservación".

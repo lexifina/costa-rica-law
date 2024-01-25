@@ -1,0 +1,4 @@
+Capítulo III. Postes de Telecomunicaciones
+ARTÍCULO 26. Instalación de postes de telecomunicaciones en bienes de uso público, patrimonial e inmueble.
+Cuando el poste se instale en bienes de uso público, patrimonial e inmuebles, la institución titular del bien será la encargada del otorgamiento de los permisos de uso para la instalación del poste en bienes de uso público, los cuales se tramitarán de conformidad con la presente reglamentación y cualquier otra normativa vigente dispuesta para tal efecto por la Municipalidad en lo que respecta al permiso de construcción, cuando para la instalación se requiera realizar una obra civil.
+La competencia Municipal en el otorgamiento o denegatoria de un permiso de construcción, cuando éste sea requerido, deberá estar sujeto únicamente a aspectos técnicos de la obra civil, mas no a la ubicación o diseño de la red de telecomunicaciones propuesto por el operador.

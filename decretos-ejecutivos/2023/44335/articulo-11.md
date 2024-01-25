@@ -1,0 +1,3 @@
+ARTÍCULO 11. Ubicación de la infraestructura para el soporte de redes de telecomunicaciones
+Toda infraestructura para el soporte de redes de telecomunicaciones se puede ubicar en cualquier parte del territorio nacional, con excepción de aquellas áreas sobre las cuales se disponga restricciones al uso establecidas por ley o en casos de declaratoria de emergencia nacional.
+La ubicación de la infraestructura para el soporte de redes de telecomunicaciones dependerá del diseño de la red de telecomunicaciones, el cual será realizado por el operador de telecomunicaciones, de acuerdo con sus competencias y en apego al cumplimiento de la normativa vigente.

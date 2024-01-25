@@ -1,0 +1,4 @@
+Capítulo V. Edificios y/o sus Azoteas
+ARTÍCULO 36. Infraestructura de soporte en azoteas
+Para la instalación de infraestructura de soporte de redes de telecomunicaciones en azoteas, terrazas o techos de edificaciones (que no requiere construir obra civil) se debe contar con un estudio de capacidad soportante emitido por un profesional responsable; y con el permiso de uso otorgado por la Institución titular del dominio del bien público.
+Cuando se trate de construcción de infraestructura de soporte de redes de telecomunicaciones en azoteas, terrazas o techos de edificaciones se debe contar con un estudio de capacidad soportante emitido por un profesional responsable; con el permiso de uso otorgado por la Institución titular del bien y además el correspondiente permiso de construcción emitido por la Municipalidad competente.

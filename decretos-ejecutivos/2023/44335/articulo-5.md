@@ -1,0 +1,3 @@
+ARTÍCULO 5. Normativa aplicable
+Todo desarrollo de infraestructura de telecomunicaciones debe acatar los parámetros técnicos definidos por la DGAC, la SUTEL, el MICITT, el CFIA, el Ministerio de Salud y cualquier otra disposición técnica aplicable emitida por entidad competente en la materia.
+Toda infraestructura de telecomunicaciones debe acatar lo establecido en la Ley N° 8642, "Ley General de Telecomunicaciones", así como en la Ley N° 7600, "Ley de Igualdad de Oportunidades para las Personas con Discapacidad"; en la Ley N° 4240, "Ley de Planificación Urbana"; en la Ley N° 833, "Ley de Construcciones"; en la Ley 7554, "Ley Orgánica del Ambiente", así como cualquier otra normativa nacional existente o futura aplicable".

@@ -1,0 +1,2 @@
+ARTÍCULO 23. Franja de amortiguamiento de la torre de telecomunicaciones
+Toda torre de telecomunicaciones debe contar con una franja de amortiguamiento alrededor de la infraestructura, que facilite y permita el tránsito del personal necesario para la conservación y mantenimiento de ésta. Esta franja debe ser un 10% de la altura, medida desde el centro de la base de la torre hasta el final de esta, sin incluir el pararrayo.

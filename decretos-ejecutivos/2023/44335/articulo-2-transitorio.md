@@ -1,0 +1,2 @@
+Transitorio II
+Todas las instituciones en el ámbito de aplicación de este Reglamento, que les corresponda generar certificaciones, trámites, permisos y cualquier otro para la planificación y desarrollo de infraestructura en telecomunicaciones, deberán generar, en el plazo de cuatro (4) meses a partir de la publicación del presente reglamento, los reglamentos y las directrices necesarias para brindar la seguridad jurídica y simplificación de trámites según los objetivos de la Ley N° 10216 y de conformidad con el Transitorio II de dicha Ley.

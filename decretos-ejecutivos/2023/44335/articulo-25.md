@@ -1,0 +1,2 @@
+ARTÍCULO 25. Cercamiento del predio de la torre de telecomunicaciones
+Por razones de seguridad ciudadana, y de la propia red de telecomunicaciones, todo predio donde se ubique una torre de telecomunicaciones se debe delimitar de los predios vecinos con un muro o tapia de 2,50 metros de altura y 0,12 metros de espesor como mínimo. En la parte frontal, a fin de favorecer la vigilancia, se puede utilizar malla, verja o reja.

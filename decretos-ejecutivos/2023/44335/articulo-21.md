@@ -1,0 +1,2 @@
+ARTÍCULO 21. Altura mínima de la torre de telecomunicaciones
+La altura mínima de la torre es de 30 metros, medida desde el centro de la base de la torre hasta el final de la torre sin incluir el pararrayo, con el propósito de permitir la colocalización de al menos 3 emplazamientos, con la finalidad de fomentar el uso compartido. Lo anterior salvo que por razones técnicas justifiquen apartarse de este parámetro.

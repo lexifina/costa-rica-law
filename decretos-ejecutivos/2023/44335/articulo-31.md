@@ -1,0 +1,16 @@
+ARTÍCULO 31. Requisitos para la instalación de infraestructura de postes de telecomunicaciones
+Quienes pretendan instalar este tipo de infraestructura, deberán notificar y presentar a la Municipalidad competente los siguientes requisitos:
+1. Presentación de la cédula de identidad de personas físicas o de residencia (DIMEX) para personas físicas, o certificación de personería jurídica vigente cuando se refiera a personas jurídicas que acredite el tipo de representación que ostenta para realizar la gestión.
+2. Carta firmada por el representante legal del operador del servicio donde se señale que dicha instalación es parte del diseño de la red, cuando quien instale la infraestructura no es un operador de red o proveedor de servicios de telecomunicaciones, solo aplica en casos de bienes de uso público.
+3. La altura del poste.
+4. Georreferenciación de la ubicación del centro de la infraestructura, con coordenadas de longitud y latitud en formatos CRTM05 y WGS84.
+5. Resolución que otorgue el permiso de rotura de vía otorgado por el MOPT (en casos de rutas nacionales).
+6. Alineamiento vial del MOPT, para vías nacionales, caso de que el predio esté frente a una vía pública.
+7. Alineamiento vial de la Municipalidad, para vías cantonales, en caso de que el predio esté frente a una vía pública.
+8. Planos constructivos firmados por el o la profesional responsable, sellados por el CFIA, tramitados mediante la plataforma digital APC, que den cumplimiento a la normativa constructiva aplicable y los dispuesto por la Ley N° 7600, "Ley de Igualdad de Oportunidades para Personas con Discapacidad" y su Reglamento, Decreto Ejecutivo N° 26831-MP.
+9. Referencia a la resolución de la viabilidad ambiental (Nº de expediente y resolución de aprobación) en caso de las Áreas Ambientalmente Frágiles (AAF), lo cual será
+consultado por la Administración en el sitio web de Secretaría Técnica Nacional Ambiental (SETENA).
+10. Solicitud de permiso de construcción debidamente firmada por el titular del inmueble, cuando se requiera realizar una obra civil.
+11. Estar al día con las obligaciones obrero-patronales ante la Caja Costarricense del Seguro Social Fondo de Desarrollo Social y Asignaciones Familiares, Dirección General de Tributación del Ministerio de Hacienda y las obligaciones tributarias municipales, eso será verificado por la Administración en los sitios web de la Caja Costarricense del Seguro Social, Fondo de Desarrollo Social y Asignaciones Familiares y la Dirección de Tributación del Ministerio de Hacienda. Para el caso de las obligaciones tributarias municipales, cada Municipalidad validará a lo interno el estado de dichas obligaciones.
+Todo lo anterior, sin perjuicio de otros requisitos que bajo criterios técnicos debidamente justificados, establezca oficialmente la Municipalidad que otorga el permiso, y para lo cual previamente haya cumplido el procedimiento establecido en la Ley N° 8220 ante la Dirección de Mejora Regulatoria.
+Los requisitos para la instalación de postes para el soporte de redes de telecomunicaciones deben ser verificados por la institución titular del bien de dominio público, quien debe dar cumplimiento a los principios de coordinación institucional y simplificación de trámites.

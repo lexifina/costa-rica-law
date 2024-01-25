@@ -1,0 +1,3 @@
+ARTÍCULO 18. Dimensionamiento del predio privado
+Cuando se pretendan construir torres de telecomunicaciones en predios privados, éstos deben tener dimensiones mínimas de frente y fondo equivalente al 30% de la altura de la torre, medida desde el centro de la base de la torre hasta el final de esta sin incluir el pararrayo, para infraestructura de 30 metros de altura.
+En casos donde se construya infraestructura mayor a 30 metros de altura, los predios deben tener unas dimensiones mínimas de frente y de fondo equivalente al 20% de la altura de la torre medida desde el centro de la base de la torre hasta el final de la torre sin incluir el pararrayo.

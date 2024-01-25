@@ -1,0 +1,2 @@
+ARTÍCULO 43. Cobro por uso de bienes de uso público, patrimoniales e inmuebles
+Quienes utilicen los bienes de uso público, patrimoniales e inmuebles para la instalación y despliegue de infraestructura para soporte de redes de telecomunicaciones, los operadores deberán cancelar un canon cuyo valor será fijado vía Resolución administrativa por la Dirección General de Tributación del Ministerio de Hacienda, de acuerdo con lo establecido en la Ley Nº 10216.

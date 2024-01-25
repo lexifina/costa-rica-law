@@ -1,0 +1,6 @@
+ARTÍCULO 24. Soluciones portátiles para infraestructura para el soporte de redes de telecomunicaciones.
+Cuando se trate de actividades de concentración masiva de personas o en situaciones de emergencia decretadas por el Poder Ejecutivo, la instalación de soluciones portátiles se rige por los trámites establecidos por las instituciones competentes en la materia.
+Por tratarse de soluciones portátiles temporales, a estas instalaciones no se le aplican las disposiciones señaladas en los artículos anteriores, siempre que el plazo de servicio no sea mayor de tres (3) meses calendario.
+Si el plazo de servicio supera los tres (3) meses calendario, se debe tramitar ante la Municipalidad el uso de suelo y el permiso de instalación, cumpliendo con las disposiciones establecidas en los artículos anteriores de este Capítulo.
+Aquellas soluciones portátiles temporales instaladas que excedan el plazo de servicio, y requieran permisos municipales para ser reemplazadas por infraestructura permanente, cuyo trámite ya haya sido presentado ante la Municipalidad, pueden seguir en operación hasta tanto la Municipalidad resuelva lo que en derecho corresponda.
+De no cumplir con lo señalado en el presente artículo, la Municipalidad puede imponer las sanciones correspondientes.
