@@ -1,0 +1,1 @@
+Artículo 6º-El DAACI programará diversas actividades de divulgación y capacitación anuales dirigidas a todo el personal del MTSS, con el fin de sensibilizar e informar los aspectos necesarios para la aplicación de la ACI, a cargo de cada Dependencia, previo a realizar el proceso de autoevaluación anual.

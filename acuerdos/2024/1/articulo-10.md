@@ -1,0 +1,1 @@
+Artículo 10.-Se deja sin efecto lo estipulado en la Directriz N° 8, del 28 de julio de 2003, denominada "Declara Formalmente Abierto el Proceso de Autoevaluación y Mejoramiento del Sistema de Control Interno del Ministerio de Trabajo y Seguridad Social".
