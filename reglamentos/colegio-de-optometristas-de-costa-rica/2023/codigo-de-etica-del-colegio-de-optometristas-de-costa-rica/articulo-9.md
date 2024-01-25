@@ -1,0 +1,2 @@
+Artículo 9.- Prioridad de los Intereses del Paciente
+La principal lealtad del optometrista es la que debe a su paciente y tanto la salud general como la visual de este deben anteponerse a cualquier otro interés. Por consiguiente, el optometrista, en el ejercicio de su profesión, dará preferencia a los intereses del paciente sobre cualesquiera otros, incluidos los propios o los de la organización que representa.

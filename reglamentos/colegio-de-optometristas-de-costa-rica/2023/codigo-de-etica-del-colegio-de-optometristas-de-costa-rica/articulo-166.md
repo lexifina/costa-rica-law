@@ -1,0 +1,2 @@
+Artículo 166.-
+Es responsabilidad del optometrista, en apego a su juicio clínico y las guías, protocolos y normas en general que sobre la teleconsulta de Optometría dictare el Colegio, determinar los casos en que el paciente puede ser abordado de esta forma, los casos en que debe migrar de una teleconsulta de Optometría a una intervención o atención presencial, siempre en resguardo de la seguridad del paciente.

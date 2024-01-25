@@ -1,0 +1,2 @@
+Artículo 110.-
+El optometrista debe cuidar que la publicidad que realice sobre su actividad profesional, así como de los productos de interés sanitario que adapta y prescribe, sea digna, leal, veraz y respetuosa con la dignidad de las personas y con la legislación existente en dichas materias sobre defensa de la competencia y competencia desleal, incluida la que sobre tarifas u honorarios profesionales dictare el Colegio de Optometristas de Costa Rica.

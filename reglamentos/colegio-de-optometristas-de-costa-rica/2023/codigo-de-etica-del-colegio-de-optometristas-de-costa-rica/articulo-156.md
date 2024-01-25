@@ -1,0 +1,3 @@
+Artículo 156.-
+El optometrista podrá negarse a emitir su opinión o dictamen cuando se lo solicite un colega o el paciente, haciendo constar las razones por las cuales se niega, entre ellas el haber participado en el tratamiento o tener relación de parentesco o afinidad con el optometrista que efectuó el tratamiento o con el paciente. Debe en estos casos comunicarlo así al Colegio de Optometristas de Costa Rica.
+En cuanto a los peritajes que soliciten las instancias disciplinarias del Colegio o cualquier autoridad judicial, el perito debe limitarse exclusivamente a la consulta sobre la cual se ha requerido su criterio.

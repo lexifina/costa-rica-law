@@ -1,0 +1,4 @@
+CAPÍTULO XIII
+Faltas y Sanciones
+Artículo 170.-
+Las sanciones serán de acuerdo con lo establecido en la Ley Orgánica del Colegio de Optometristas de Costa Rica, n.º 10 191, este Código de Ética y serán impuestas por el Tribunal de Ética, siguiendo el proceso conforme al Reglamento de Procedimientos Administrativos Disciplinarios. Para valorar el mérito o no de imponer una determinada sanción, se realizará un proceso disciplinario, con apego a la garantía constitucional del debido proceso y derecho de defensa consagrados en los artículos 39 y 41 de la Constitución Política. Estará a cargo del Tribunal de Ética. Contra lo resuelto por ese Tribunal cabrán las gestiones recursivas que se indiquen en el Reglamento de Procedimientos Administrativos Disciplinarios.

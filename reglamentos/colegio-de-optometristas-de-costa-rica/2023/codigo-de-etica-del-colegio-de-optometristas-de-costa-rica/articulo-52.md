@@ -1,0 +1,2 @@
+Artículo 52.-
+Cuando la condición de la persona, a juicio del optometrista, no le permita recibir la información directamente, padezca de dificultades de entendimiento o se encuentre con alteración de la conciencia, la información será comunicada a su representante legal o, en su defecto, a la persona a cuyo cuidado se encuentre. Sin perjuicio de lo anterior y para aquellos casos en que el paciente recupere la conciencia y la capacidad de comprender, deberá ser informado en los términos indicados en el artículo precedente.

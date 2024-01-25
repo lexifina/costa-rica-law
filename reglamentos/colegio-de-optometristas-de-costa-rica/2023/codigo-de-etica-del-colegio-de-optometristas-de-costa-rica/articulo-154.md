@@ -1,0 +1,3 @@
+Artículo 154.-
+En caso de que se solicite un peritaje por autoridad judicial, el paciente o autoridad competente del Colegio de Optometristas de Costa Rica, el informe pericial debe circunscribirse concretamente al estado actual de los tratamientos efectuados y la descripción de los hallazgos clínicos o cualquier otro medio diagnóstico. Deberá establecerse por el perito un pronóstico, posibles consecuencias de dichas intervenciones y posible plan de tratamiento.
+Es obligación del optometrista informarse sobre los antecedentes y circunstancias previas que mediaron en un determinado tratamiento siempre que sea posible.

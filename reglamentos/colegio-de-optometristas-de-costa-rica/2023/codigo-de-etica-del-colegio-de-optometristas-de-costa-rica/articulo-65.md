@@ -1,0 +1,3 @@
+Artículo 65.-
+Al ser la retribución económica de los servicios profesionales un derecho, el optometrista fijará sus honorarios de conformidad con su jerarquía científica y en relación con la importancia del tratamiento y circunstancias de este que debe efectuar, teniendo en cuenta la situación económica del paciente y previo acuerdo con este o sus responsables; sometiéndoles en todo caso el arancel que para el efecto promulgue el Colegio de Optometristas de Costa Rica.
+No podrá el optometrista incurrir en apropiación, defraudación o uso indebido de fondos en perjuicio de sus clientes o pacientes.

@@ -1,0 +1,1 @@
+Artículo 106.- La transmisión total o parcial de una parte del contenido del expediente clínico se hará según las reglas del secreto profesional y lo indicado por el paciente. A petición del paciente, o su representante legal, el optometrista deberá proporcionar a su colega los datos que requiera para su intervención profesional.

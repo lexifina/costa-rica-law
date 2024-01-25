@@ -1,0 +1,3 @@
+Artículo 38.-
+La relación entre el optometrista y el paciente es de confianza. En virtud de ello, entablará desde el inicio una comunicación clara con su paciente, dando a conocer en primer término la identidad al paciente, cuidadores o tutores en caso de menores de edad, es decir, el nombre y condición profesional de la persona tratante. Deberá explicar de manera detallada y comprensible los alcances de toda intervención por realizar. Respetará en todo momento la intimidad del paciente, así como las convicciones de este y su familia.
+La conducta del optometrista que sea notoriamente viciosa por embriaguez, drogadicción o cualquier conducta que comprometa el ejercicio de la optometría compromete la seguridad del paciente.

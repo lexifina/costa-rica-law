@@ -1,0 +1,1 @@
+Artículo 169.- Bajo ninguna circunstancia el optometrista puede participar en modo alguno en la manipulación, distorsión, tergiversación o alteración de datos o resultados obtenidos de bases de datos sanitarias.

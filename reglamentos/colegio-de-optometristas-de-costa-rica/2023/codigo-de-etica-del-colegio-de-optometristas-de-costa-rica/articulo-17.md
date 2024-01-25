@@ -1,0 +1,2 @@
+Artículo 17.-
+El optometrista deberá velar porque en el sistema de salud, sea en el ámbito asistencial público o privado, se den los requisitos de continuidad, seguridad, calidad, suficiencia asistencial y mantenimiento de los principios éticos. En cualquiera de los ámbitos en que desarrolle su trabajo, está obligado a denunciar las deficiencias, en tanto puedan afectar la correcta atención de los pacientes.

@@ -1,0 +1,1 @@
+Artículo 105.- En cualquiera de las modalidades en que el optometrista preste sus servicios, el expediente clínico permanecerá en custodia del establecimiento o servicio de Óptica y el profesional y paciente tendrán derecho a obtener una copia.

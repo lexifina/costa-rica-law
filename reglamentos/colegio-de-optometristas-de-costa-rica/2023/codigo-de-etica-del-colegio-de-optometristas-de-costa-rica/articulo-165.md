@@ -1,0 +1,2 @@
+Artículo 165.-
+Ante cualquier incumplimiento de las disposiciones normativas del Colegio de Optometristas de Costa Rica, incluido este Código, que involucre competencia desleal, información no veraz o el engaño publicitario en relación con la teleconsulta de Optometría, se dará lugar a la intervención de la Fiscalía de este Colegio a fin de girar los apercibimientos o prevenciones de rigor, o en su caso formular la denuncia ante las instancias pertinentes del Colegio.

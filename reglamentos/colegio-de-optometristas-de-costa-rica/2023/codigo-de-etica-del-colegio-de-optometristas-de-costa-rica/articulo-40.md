@@ -1,0 +1,3 @@
+Artículo 40.-
+La actitud del optometrista ante el paciente será siempre de apoyo, evitará todo comentario que despierte injustificada preocupación y no hará pronóstico de las alteraciones visuales y enfermedades oculares sin las suficientes bases científicas.
+Dedicará a su paciente el tiempo necesario para hacer una evaluación adecuada a su salud visual, estableciendo el diagnóstico y realizando la prescripción correspondiente, siendo contrario a la ética y la lex artis profesional, la atención apresurada, en tiempos que resulten irrazonables para el ejercicio del acto profesional. De ser necesario, ordenará los exámenes complementarios que precisen o aclaren el diagnóstico.

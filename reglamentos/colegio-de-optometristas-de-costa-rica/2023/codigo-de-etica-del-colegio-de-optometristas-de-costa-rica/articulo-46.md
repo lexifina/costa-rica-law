@@ -1,0 +1,2 @@
+Artículo 46.-
+La información debe transmitirse directamente al paciente. También serán informadas las personas vinculadas a el, por razones familiares o de hecho, en la medida que el paciente lo permita de manera expresa o tácita. El optometrista debe respetar el derecho del paciente a no ser informado dejando constancia de ello en la historia clínica, así como el derecho de aquel de revocar un consentimiento emitido con anterioridad.

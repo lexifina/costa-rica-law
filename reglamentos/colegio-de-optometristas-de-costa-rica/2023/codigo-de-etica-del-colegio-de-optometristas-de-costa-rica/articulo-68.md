@@ -1,0 +1,2 @@
+Artículo 68.-
+El optometrista deberá atender como prontitud a los pacientes que le sean remitidos por otros colegas y deberá remitirlos de regreso con informes completos sobre los exámenes practicados y diagnósticos obtenidos. La formulación y disposición final del caso remitido deberá hacerlo siempre el optometrista remitente, salvo que en la nota de remisión se especifique o se autorice al optometrista destinatario para que realice estos actos.

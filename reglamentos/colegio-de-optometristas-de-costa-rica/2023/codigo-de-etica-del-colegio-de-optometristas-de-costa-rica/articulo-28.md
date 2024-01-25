@@ -1,0 +1,2 @@
+Artículo 28.-
+Ante el Colegio de Optometristas de Costa Rica, el optometrista está sujeto únicamente a responsabilidad disciplinaria. La responsabilidad penal, patrimonial y civil, por concepto de daños y perjuicios, por hechos cometidos en el ejercicio de la profesión de Optometría, será competencia exclusiva de la autoridad judicial competente. Ello, sin perjuicio de que al amparo de la legislación nacional sobre resolución alterna de conflictos y promoción de la paz social, puedan alcanzarse acuerdos sobre el componente patrimonial.

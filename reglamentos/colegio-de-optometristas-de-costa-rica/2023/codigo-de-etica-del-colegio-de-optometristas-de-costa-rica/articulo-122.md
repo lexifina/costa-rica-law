@@ -1,0 +1,1 @@
+Artículo 122.- Cuando el optometrista emita declaraciones u opiniones en los canales o medios indicados en el artículo anterior, deberá poseer la formación científica requerida para su abordaje. Su actuación no deberá desprestigiar al Colegio de Optometristas de Costa Rica, ni al gremio de la Optometría, ni ser fuente de confusión en un intento de auto propaganda.

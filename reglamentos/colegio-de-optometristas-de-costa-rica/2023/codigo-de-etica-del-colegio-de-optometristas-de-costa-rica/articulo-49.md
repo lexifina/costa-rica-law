@@ -1,0 +1,3 @@
+Artículo 49.-
+Si el paciente exigiere un procedimiento que el optometrista por razones científicas, éticas, jurídicas y morales, juzgare que es inadecuado o inaceptable, tras informar debidamente al paciente, queda el optometrista dispensado de actuar dejando constancia de ello en la historia clínica.
+Al optometrista también le asiste el derecho de rehusar la atención a pacientes cuando le impusieran la confección de productos sanitarios, prótesis, lentes o cualquier otro tipo de aparatología para la promoción, diagnóstico, pronóstico, tratamiento y rehabilitación de las alteraciones visuales y oculares (sensoriales y motoras) en laboratorios que no fueran de su confianza o que no estuviesen debidamente habilitados.

@@ -1,0 +1,1 @@
+Artículo 152.- Los artículos y conferencias para el público se limitarán exclusivamente a divulgar conocimientos científicos y clínicos. Al dirigirse al público no optometrista por cualquier medio, se deberá apegar en todo momento al presente Código.

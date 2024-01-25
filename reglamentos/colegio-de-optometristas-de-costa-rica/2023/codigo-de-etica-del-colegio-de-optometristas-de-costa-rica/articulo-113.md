@@ -1,0 +1,1 @@
+Artículo 113.- El optometrista no anunciará en ninguna forma la publicación de artículos que no se ajusten estrictamente a hechos científicos debidamente comprobados, o los que presenten en forma que induzcan a error, bien sea por el contenido o por el título de los mismos, o que impliquen una propaganda personal.

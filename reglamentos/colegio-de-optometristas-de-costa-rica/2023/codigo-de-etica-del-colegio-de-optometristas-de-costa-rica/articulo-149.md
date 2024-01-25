@@ -1,0 +1,2 @@
+Artículo 149.-
+Es imperativo obtener siempre el consentimiento válidamente informado, explícito y en forma escrita de las personas que participan de la investigación o de ser necesario de sus representantes. La persona que participa de la investigación también debe ser informado de su derecho a no participar o a retirarse libremente en cualquier momento de la investigación, sin ninguna implicación por ello.

@@ -1,0 +1,2 @@
+Artículo 24.-
+El optometrista no puede cobrar menos de la tarifa mínima establecida por el Colegio de Optometristas de Costa Rica. Además, no debe abrir, colaborar, facilitar ni mantener en operación establecimientos o servicios de Óptica donde se infrinja el ordenamiento jurídico, incluyendo la inobservancia de las tarifas mínimas o los honorarios profesionales mínimos fijados por el Colegio de Optometristas de Costa Rica.

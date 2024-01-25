@@ -1,0 +1,2 @@
+Artículo 86.
+El optometrista prestará su colaboración al Colegio en el desempeño de las funciones de representación, dignificación y defensa de la profesión, y pondrá en conocimiento del Colegio todo acto que considere de intrusismo, de ejercicio irregular, así como de las situaciones de agravio que se puedan producir en el ejercicio de la profesión. Bajo ninguna circunstancia propiciará, tolerará u ocultará, casos de personas no habilitadas para el ejercicio de la optometría a asumir funciones propias de este profesional.

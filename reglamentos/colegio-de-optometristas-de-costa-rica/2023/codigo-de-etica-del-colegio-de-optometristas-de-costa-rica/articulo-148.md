@@ -1,0 +1,2 @@
+Artículo 148.-
+El optometrista deberá analizar, de manera particular, todos y cada uno de los estudios que propone. Al intervenir como investigador deberá respetar estrictamente la vida, la salud y la dignidad humana, así como cumplir los requisitos y criterios de rigurosidad científica, las normas éticas que regulan la materia y los requisitos establecidos en la Ley n.º 9234 del 22 de abril de 2014, Ley Reguladora de la Investigación Biomédica y demás normas del bloque de juridicidad en lo que resultare aplicable.

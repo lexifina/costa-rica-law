@@ -1,0 +1,1 @@
+Artículo 75.- Considerando el derecho del paciente a solicitar una segunda opinión, el optometrista no debe expresar o comentar al paciente, a sus familiares o responsable legal, opiniones desfavorables sobre intervenciones actuales o previas, tendientes a difamar o disminuir la confianza en el optometrista tratante.

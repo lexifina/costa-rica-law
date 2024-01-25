@@ -1,0 +1,2 @@
+Artículo 7.- Principio de Beneficencia
+Este principio vincula a los optometristas a procurar el mayor bienestar posible para la persona sujeta de atención y a sopesar, en el caso concreto, los beneficios y los riesgos de su actuación profesional, siempre que su aplicación dependa exclusivamente del ámbito propio de su competencia. Supone, además, el compromiso del Optometrista a su autosuperación permanente para mantener una competencia y un desempeño profesional que le permitan brindar una atención orientada a la seguridad y la calidad.

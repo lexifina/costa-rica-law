@@ -1,0 +1,2 @@
+Artículo 108.-
+A solicitud del paciente o autoridad judicial, el optometrista está en la obligación de extender una fotocopia del expediente clínico. Solo la autoridad judicial podrá requerir el expediente original. Cuando se hagan copias de los expedientes clínicos, el optometrista debe hacer la anotación respectiva en el expediente original. Los costos de las fotocopias del expediente clínico correrán a cargo del solicitante. Se mantiene este deber de anotación tratándose de expedientes electrónicos.

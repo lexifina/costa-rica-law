@@ -1,0 +1,4 @@
+CAPÍTULO II
+Principios Aplicables en la Atención en Optometría
+Artículo 5.- Principio de Autonomía
+Los optometristas reconocen, respetan y legitiman la autonomía de todo ser humano para tomar sus decisiones en salud, con base en la racionalidad de un consentimiento informado dentro del marco de los principios y valores éticos y morales que pueda sustentar. Los optometristas velarán para que nadie coarte externamente la voluntad de las personas y les brindará protección cuando se encuentren en una situación vulnerable o tengan disminuida su autonomía. En este mismo sentido, se respeta la libertad del paciente de escoger al optometrista de quien desea recibir tratamiento y de su potestad de cambiarlo en el momento que guste, bajo el entendido y riesgo que eso pueda suponer para el avance de sus tratamientos.

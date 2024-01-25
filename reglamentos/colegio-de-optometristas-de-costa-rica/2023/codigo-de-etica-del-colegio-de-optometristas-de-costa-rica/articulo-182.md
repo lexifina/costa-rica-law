@@ -1,0 +1,2 @@
+Artículo 182.-
+El Colegio de Optometristas de Costa Rica creará un registro de profesionales sancionados, en la cual cualquier persona podrá consultar si algún agremiado ha sido sancionado disciplinariamente. Las sanciones quedarán registradas a partir de la entrada en vigencia de la sanción y se mantendrán por un plazo de 10 años para las faltas gravísimas, un plazo de 5 años para las faltas graves y de 12 meses para las faltas leves.

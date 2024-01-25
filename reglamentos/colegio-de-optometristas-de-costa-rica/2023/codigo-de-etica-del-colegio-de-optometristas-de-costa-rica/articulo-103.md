@@ -1,0 +1,2 @@
+Artículo 103.-
+Independientemente del formato físico o electrónico que se diera al expediente clínico, deberá asegurarse la confidencialidad de la información ahí contenida. Tratándose de expedientes electrónicos, el optometrista debe emplear todos los medios a su alcance para preservarla; tomando en consideración para ese formato y el formato físico, que los datos relativos a la salud del paciente son datos sensibles, de conformidad con la Ley de Protección de la Persona Frente al Tratamiento de sus Datos Personales.

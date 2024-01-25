@@ -1,0 +1,4 @@
+Artículo 64.-
+El optometrista se abstendrá de realizar en sus pacientes técnicas clínicas, formulaciones y tratamientos de carácter experimental, sin la justificación científica de rigor, sin la información y sin la debida autorización de éste. En los eventos en que sea indispensable la realización de estas investigaciones o estudios, se dará cumplimiento a lo establecido en la legislación sobre investigación biomédica.
+En todo caso está prohibido el ejercicio de prácticas, de exámenes, diagnósticos y tratamientos no autorizados por la ley, y la realización de exámenes innecesarios y tratamientos para los cuales no está capacitado.
+El optometrista no ejercerá su profesión cuando se encuentre en situación de enajenación mental transitoria o permanente, toxicomanía, enfermedad o limitación funcional que ponga en peligro la salud de su paciente.

@@ -1,0 +1,1 @@
+Artículo 51.- El optometrista debe respetar el derecho del paciente a decidir libremente sobre las opciones de tratamiento que le ofrezca al paciente, no pudiendo imponer su criterio profesional. Frente al rechazo del paciente, total o parcial de una recomendación del optometrista, este podría dejar constancia en la historia clínica.

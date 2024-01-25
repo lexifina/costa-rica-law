@@ -1,0 +1,3 @@
+Artículo 61.-
+El optometrista bajo ninguna circunstancia deberá aprovecharse de la condición de vulnerabilidad que pueda presentar un paciente en virtud de su estado físico o emocional. No podrá participar en modo alguno de actos de tortura, procedimientos crueles, inhumanos, degradantes, malos tratos, manipulación de la conciencia o privación de la libre determinación de las personas, cualesquiera que sean los argumentos invocados para ello.
+Está obligado, por el contrario, a denunciarlos ante las autoridades correspondientes y ante el Colegio de Optometristas de Costa Rica.

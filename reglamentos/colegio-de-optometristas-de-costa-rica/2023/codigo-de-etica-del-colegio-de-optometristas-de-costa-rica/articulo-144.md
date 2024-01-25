@@ -1,0 +1,2 @@
+Artículo 144.-
+El optometrista no deberá impartir asignaturas o contenidos curriculares para los que no cuente con experiencia que lo respalde, ni impartirá un número tan diverso de asignaturas del campo profesional que haga dudar de su seriedad como docente. Asimismo, no debe facilitar trámites indebidos para obtener créditos académicos de cualquier naturaleza ni propiciar el facilismo académico, de modo que conceda títulos a personas que no hayan sido debidamente capacitadas y formadas.
