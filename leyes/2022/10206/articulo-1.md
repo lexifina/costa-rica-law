@@ -1,4 +1,6 @@
+(Derogado)
 N° 10206
+(Esta norma fue derogada por el artículo 2° de la Ley para mantener los recursos destinados a financiar la construcción y el equipamiento de la Torre de la Esperanza del Hospital Nacional de Niños, N° 10439 del 17 de enero de 2024)
 LA ASAMBLEA LEGISLATIVA
 DE LA REPÚBLICA DE COSTA RICA
 DECRETA:
