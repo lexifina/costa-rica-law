@@ -1,1 +1,0 @@
-Artículo 13. Realización de las convocatorias. Las sesiones deberán ser convocadas por la Presidencia del Comité, a través de la Oficialía de Cumplimiento de Gobierno Corporativo, con la anticipación requerida.

@@ -1,2 +1,0 @@
-Artículo 9. Presidencia del Comité. La Presidencia del Comité será rotativa cada año entre los miembros de la Junta Directiva y el miembro externo que integre dicho órgano, pudiendo ser reelecto. Se iniciará con uno de los miembros de la Junta Directiva, posteriormente se elegirá de su seno, por mayoría de votos.
-La Presidencia del Comité deberá disponer del tiempo suficiente para el ejercicio de la función.

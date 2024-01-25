@@ -1,1 +1,0 @@
-Artículo 15. Votación para la toma de decisiones y recomendaciones. El esquema de votación será por mayoría simple, dejando constancia del voto disidente y el razonamiento por el cual se aparta de la mayoría. En caso de empate en las votaciones de los asuntos, la Presidencia del Comité tendrá voto de calidad.
