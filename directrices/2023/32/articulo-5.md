@@ -1,0 +1,1 @@
+Artículo 5º-Agenda de Planificación Regulatoria: Los Equipos de Aceleración liderados por el Oficial de Simplificación de Trámites, deberán remover las trabas regulatorias durante los meses de abril a setiembre del año correspondiente, en las fechas y forma que defina el Ministerio de Economía, Industria y Comercio,

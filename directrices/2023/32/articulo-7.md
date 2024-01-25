@@ -1,0 +1,1 @@
+Artículo 7º-Seguimiento: El Ministerio de Economía, Industria y Comercio, por medio de la Dirección de Mejora Regulatoria, dará seguimiento a los avances en la mejora y eliminación de las trabas regulatorias que se definan para ser atendidas en la iniciativa Le Dejamos Trabajar.
