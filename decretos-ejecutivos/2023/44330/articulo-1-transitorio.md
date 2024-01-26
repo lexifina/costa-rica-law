@@ -1,0 +1,1 @@
+Transitorio I.-La ejecución del programa durante el curso lectivo del año 2024, se realizará por medio de la entrega de paquetes de cuadernos e implementos escolares, para lo cual, el Instituto Mixto de Ayuda Social recurrirá a cualquier forma de contratación administrativa, según le habilite la legislación vigente.
