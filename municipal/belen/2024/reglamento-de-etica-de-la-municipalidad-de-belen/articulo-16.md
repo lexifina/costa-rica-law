@@ -1,0 +1,3 @@
+CAPÍTULO VII
+Sanciones
+Artículo 16.-Procedimiento para imponer sanciones. Quienes incumplan con los enunciados establecidos en el presente reglamento están sujetos a las sanciones señaladas en el artículo 158 del Código Municipal y los artículos del 39 al 42 de la Ley General de Control Interno, lo cual es causal de responsabilidad administrativa, sin perjuicio de las responsabilidades civiles y penales que pudieran resultar. La aplicación se realizará siguiendo el procedimiento del artículo 159 del Código Municipal en concordancia con el artículo 308 de la Ley General de Administración Pública, con el cumplimiento del debido proceso en todos los casos.

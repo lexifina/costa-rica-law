@@ -1,0 +1,3 @@
+CAPÍTULO V
+Comisión Institucional de Ética y Valores
+Artículo 9°-Constitución de la Comisión Institucional de Ética y Valores. Se constituye la Comisión Institucional de Ética y Valores como un órgano auxiliar de la Administración de la Municipalidad de Belén, la cual deberá estar conformado por la persona responsable de Recursos Humanos y cuatro miembros designados por el titular de la Alcaldía, los cuales se desempeñarán por un período de 2 años y pueden ser designados nuevamente en períodos continuos. Para la designación de esta deberá procurarse que haya representatividad de los diferentes sectores de la población laboral, así como paridad de género.
