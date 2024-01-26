@@ -1,0 +1,1 @@
+Artículo 33.—La denuncia se deberá presentar ante la Fiscalía del Colegio de Optometristas de Costa Rica. Se hará constar, mediante leyenda o razón de la hora, día, nombre y firma del funcionario que la recibe y sello de la Fiscalía, cuando se presente en la sede del Colegio de Optometristas de Costa Rica.

@@ -1,0 +1,1 @@
+Artículo 3º—Están sujetos a responsabilidad disciplinaria, todos los profesionales debidamente incorporados al Colegio, que incurran en infracciones al Código de Ética, a la Ley Orgánica del Colegio de Optometristas de Costa Rica, la Ley General de Salud y cualquier otra normativa aplicable y relacionada con el ejercicio de la profesión de Optometría.

@@ -1,0 +1,1 @@
+Artículo 34.—Recibida la denuncia, la Fiscalía del Colegio de Optometristas de Costa Rica la anotará en el Registro de recibo de denuncias llevado para tal efecto. Abrirá el expediente formal, al que le asignará un número compuesto por un consecutivo numérico seguido del año en el cual se inició el trámite; cada año se deberá iniciar el consecutivo con el número uno.

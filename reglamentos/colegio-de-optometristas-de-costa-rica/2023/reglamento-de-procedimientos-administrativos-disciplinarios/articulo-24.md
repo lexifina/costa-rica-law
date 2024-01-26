@@ -1,0 +1,1 @@
+Artículo 24.—Buena fe procesal. Los intervinientes del procedimiento administrativo disciplinario del Colegio de Optometristas de Costa Rica ajustarán su conducta a la buena fe, al respeto, a la lealtad y la probidad.

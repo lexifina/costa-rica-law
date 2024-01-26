@@ -1,0 +1,3 @@
+Artículo 73.—El presente reglamento podrá ser reformado por la Asamblea General en cualquiera de sus sesiones, a solicitud de cualquiera de sus miembros, de la Junta Directiva, de la Fiscalía o del Tribunal de Ética.
+Las reformas que se aprueben entrarán en vigencia el día hábil inmediato siguiente a la publicación en el Diario Oficial La Gaceta, salvo los casos que estén pendientes de resolución y se hayan iniciado con la reglamentación anterior.
+En estos últimos, se seguirá aplicando el reglamento tal y como regía en el momento de iniciarse el trámite, salvo que el trámite favorezca a las partes.

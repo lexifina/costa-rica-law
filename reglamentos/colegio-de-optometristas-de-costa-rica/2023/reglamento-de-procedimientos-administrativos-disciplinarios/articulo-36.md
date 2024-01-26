@@ -1,0 +1,1 @@
+Artículo 36.—Si el interesado no cumple con la prevención, o manifiesta expresamente y por escrito no estar interesado en continuar con la denuncia, quedará a criterio de la Fiscalía del Colegio, continuarla de oficio. En este caso, la Fiscalía deberá completar todos los requisitos de la denuncia, para su debida tramitación.

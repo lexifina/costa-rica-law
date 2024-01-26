@@ -1,0 +1,1 @@
+Artículo 40.—La investigación preliminar deberá ser sumaria, confidencial e informal, por lo que se le dispensa de la aplicación de las reglas del debido proceso y derecho de defensa al denunciado. Dictado el traslado de cargos del procedimiento, al denunciado se le garantiza la aplicación de todos los principios del debido proceso.

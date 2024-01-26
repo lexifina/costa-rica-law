@@ -1,0 +1,5 @@
+Artículo 9º—Principio de non bis in ídem:
+1. Cuando se encuentren dos procedimientos paralelos: uno penal y otro disciplinario, por los mismos hechos y contra el mismo colegiado, se suspenderá el dictado de la resolución final del segundo hasta resolver en firme el primero, siempre que, para resolver, el Colegio necesite comprobar los hechos o verificar la identidad del actor por la jurisdicción penal. La resolución mediante la cual se suspende la tramitación del proceso disciplinario interrumpe la prescripción en esta vía.
+2. El juicio de los tribunales penales, sobre la existencia de los hechos o sobre la identidad del infractor, vincula al Colegio en el ejercicio de la potestad disciplinaria.
+3. No procede aplicar dos o más sanciones administrativas por la comisión de un mismo hecho, salvo cuando tengan distinto fundamento.
+4. Queda terminantemente prohibido tramitar dos o más expedientes paralelos por los mismos hechos, contra el mismo optometrista, así como reabrir causas a las que, mediante una resolución definitiva, se les ha puesto fin.

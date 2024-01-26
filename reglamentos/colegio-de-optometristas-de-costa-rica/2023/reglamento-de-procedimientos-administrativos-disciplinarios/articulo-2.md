@@ -1,0 +1,1 @@
+Artículo 2º—Las denuncias interpuestas contra miembros del Colegio de Optometristas de Costa Rica deberán seguir los procedimientos definidos en este reglamento, el cual es obligatorio en su aplicación para los interesados, así como por los órganos, unidades o instancias y funcionarios del Colegio que intervengan en la tramitación de las denuncias.

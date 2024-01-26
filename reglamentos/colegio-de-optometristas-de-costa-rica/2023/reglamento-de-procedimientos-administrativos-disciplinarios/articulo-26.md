@@ -1,0 +1,2 @@
+Artículo 26.—Acceso al expediente. Las partes tendrán derecho a conocer el expediente y alegar sobre lo actuado para hacer valer sus derechos o intereses, de conformidad con el ordenamiento jurídico.
+A su costo, las partes y sus abogados tendrán derecho a obtener fotocopias o respaldos digitales de los documentos que se encuentren incorporados dentro del expediente, incluyendo los legajos de prueba si los hubiere.

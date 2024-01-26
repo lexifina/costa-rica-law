@@ -1,0 +1,1 @@
+Artículo 31.—De la integración del Tribunal de Ética y su cuórum. El Tribunal de Ética del Colegio de Optometristas de Costa Rica, estará integrado según lo dispuesto en el numeral 40 de la Ley Orgánica del Colegio de Optometristas de Costa Rica y para sesionar válidamente el cuórum estará formado por tres de sus miembros.

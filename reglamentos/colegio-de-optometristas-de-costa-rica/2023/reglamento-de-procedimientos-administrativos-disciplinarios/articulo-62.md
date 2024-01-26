@@ -1,0 +1,2 @@
+Artículo 62.—Evacuada las pruebas, en el acto el Tribunal de Ética concederá a las partes un espacio de tiempo prudencial para que rindan sus conclusiones. En situaciones excepcionales, se le concederá al denunciado un plazo común de cinco días hábiles para formular por escrito sus conclusiones.
+El órgano director, de conformidad con esa conclusión, formulará una recomendación al Tribunal de Honor, pero esta no será vinculante.

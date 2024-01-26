@@ -1,0 +1,1 @@
+Artículo 23.—Celeridad y eficacia del procedimiento. El Tribunal de Ética tendrá el deber de conducir el procedimiento con la intención de lograr un máximo de celeridad y eficiencia, dentro del respeto al ordenamiento jurídico y a los derechos e intereses de las partes. El órgano competente determinará si el procedimiento es de tramitación compleja.

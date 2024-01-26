@@ -1,0 +1,1 @@
+Artículo 29.—Le corresponde a la Junta Directiva del Colegio de Optometristas de Costa Rica, conocer y resolver sobre el recurso de apelación contra el acto o resolución final dictado por el Tribunal de Ética.

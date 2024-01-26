@@ -1,0 +1,4 @@
+Artículo 49.—El interesado que no esté de acuerdo con la resolución del Tribunal de Ética de archivar la denuncia podrá interponer:
+a) Recurso de revocatoria que resolverá el mismo Tribunal; el plazo para la presentación del recurso de revocatoria será de cinco días hábiles siguientes al de la notificación de la resolución.
+b) Apelación ante la Junta Directiva; el plazo para la presentación del recurso de apelación será de ocho días hábiles, contado a partir de la fecha de notificación de la resolución.
+c) Recurso de revisión, el cual deberá presentarse en los ocho días hábiles siguientes a la sesión del Tribunal de Ética en que se resolvió el archivo. La revisión deberá plantearse por escrito ante el presidente de la Junta Directiva, quien deberá convocar de inmediato a la Asamblea General para que lo conozca, en un plazo no mayor de quince días hábiles.

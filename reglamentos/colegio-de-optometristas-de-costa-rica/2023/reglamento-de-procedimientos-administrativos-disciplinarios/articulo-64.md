@@ -1,0 +1,1 @@
+Artículo 64.—El procedimiento administrativo deberá concluirse por un acto final dentro de los seis meses posteriores a la notificación de la resolución inicial del procedimiento al denunciando, ello sin perjuicio de que, por la complejidad del proceso, este demande, en su tramitación, un plazo mayor, el cual en todo caso deberá ser razonable.

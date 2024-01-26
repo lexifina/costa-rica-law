@@ -1,0 +1,1 @@
+Artículo 37.—Si la denuncia cumple todos los requisitos, o si, prevenidos estos, el interesado los completó, la Fiscalía del Colegio de Optometristas de Costa Rica le trasladará el expediente completo con su investigación preliminar a la Junta Directiva, la cual la conocerá y se pronunciará debidamente.
