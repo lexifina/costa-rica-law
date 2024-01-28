@@ -1,0 +1,3 @@
+ARTICULO 7.-CONDICIONES Y ESTIPULACIONES ESPECIALES DE LA FUENTE DE RECURSOS
+Sección 7.01 Fuente de Recursos.
+El financiamiento se otorga con recursos ordinarios del BCIE. Para utilizar una fuente de recursos se requerirá el consentimiento previo del Prestatario. El BCIE notificará al Prestatario si logra financiamiento con fuentes externas, para lo cual le comunicará las condiciones y términos de dicha fuente, incluyendo tasa de interés y plazo. Si el Prestatario considera que son más favorables que las proporcionadas por el BCIE, este le comunicará la aceptación de las condiciones y estipulaciones relacionadas con dicha fuente de recursos, las cuales se detallarán en el Anexo I.
