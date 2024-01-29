@@ -1,0 +1,1 @@
+Artículo 2º-Objetivo, Informar los requisitos que deben cumplir las denuncias sobre presuntos hechos irregulares presentadas ante la Auditoría Interna de la Municipalidad de Guácimo, así como, el procedimiento que, en términos generales, se seguirá para valorar las mismas.

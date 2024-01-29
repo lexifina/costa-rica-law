@@ -1,0 +1,2 @@
+Artículo 4º-Confidencialidad de los denunciantes: La identidad del denunciante, la información, los documentos y otra evidencia de asuntos sobre presuntos hechos irregulares, que se efectúen serán de carácter confidencial, de conformidad con lo establecido en los artículos artículo 6 de la Ley General de Control Interno y 8 de la Ley contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública.
+El incumplimiento de este artículo podrá ser sancionado con base en lo previsto en el marco normativo de previa cita.
