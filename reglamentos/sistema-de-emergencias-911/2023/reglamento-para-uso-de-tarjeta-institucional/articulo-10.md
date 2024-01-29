@@ -1,5 +1,1 @@
-Artículo 10. A continuación, se presentan definiciones y abreviaturas:
-a. BCR: Banco de Costa Rica
-b. ERP: "Enterprise Resource Planning" es el sistema informático empleado por la administración el Sistema de Emergencias 9-1-1, que permite gestionar los procesos administrativos de una forma conjunta.
-c. Tarjetahabiente: funcionario del 9-1-1 al que se le asigna una tarjeta de compras institucional para el desarrollo de sus actividades laborales.
-d. Viático: Suma destinada a la atención de gastos de hospedaje, alimentación y otros gastos menores, que los entes públicos reconocen a sus servidores cuando éstos deban desplazarse en forma transitoria de su centro de trabajo con el fin de cumplir con las obligaciones de su cargo.
+Artículo 10. La asignación de una tarjeta institucional se realizará previa solicitud del Coordinador de Macroproceso al que pertenece el funcionario. Para ello deberá presentar el documento del banco con el que la institución tiene convenio para realizar compras institucionales debidamente firmado, considerando las categorías, monto autorizado, transacciones por día, por mes y monto máximo de transacción.

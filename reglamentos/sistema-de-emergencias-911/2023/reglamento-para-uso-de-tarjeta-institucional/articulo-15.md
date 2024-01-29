@@ -1,5 +1,7 @@
-Artículo 15. Según el artículo 23, inciso g) de la "Ley del Impuesto sobre la Renta" y 22, Inciso vii del artículo 30 del Decreto Ejecutivo N°43198-H Reglamento de la Ley del Impuesto sobre la Renta, se debe efectuar la retención del 2% en cualquier transacción con terceros, en la fecha de cada pago que se efectúe o bien en la fecha que se reconozca y registre el monto pendiente por pagar, indistintamente del monto de la compra excepto pagos de hospedaje, desayuno, almuerzo y cena dentro de una gira de trabajo.
-La aplicación de la retención del 2% del impuesto sobre la renta, se debe realizar, al amparo de las siguientes consideraciones:
-a. Sobre toda persona física o jurídica domiciliada en el país, sujeta al pago del impuesto sobre las utilidades. Se exceptúa de dichas retenciones a las personas físicas y jurídicas no sujetas a este impuesto e incluidas en el artículo No.3 de la Ley 7092 del Impuesto sobre la Renta, anexo 14, o bien aquellas situaciones que expresamente autorice la Dirección General de Tributación; para lo cual deben demostrar su condición presentando la documentación oficial de exención emitida por la Dirección General de Tributación.
-b. En todos los casos de facturas que descuenta el prestatario del servicio o mercancía y cuyo pago se realiza a través de un tercero, la retención debe aplicar a nombre del proveedor contratado.
-c. Se aplica por transacción individual, sobre el subtotal después de excluir el impuesto sobre el valor agregado.
+Artículo 15. Los Coordinadores de Proceso tendrán las siguientes responsabilidades:
+a. Aprobar en el Sistema ERP los gastos de los colaboradores a su cargo.
+b. Dar seguimiento a las categorías de consumo asignadas a las tarjetas de compras, para asegurarse de que estén acorde en monto y necesidades del proceso.
+c. Solicitar a Tesorería las modificaciones de parámetros autorizados mediante el formulario que proporcione el banco con el cual se tiene el convenio, cuando sea requerido por el usuario.
+d. Verificar que las facturas y los comprobantes de gastos que respaldan la adquisición de un bien o contratación de un servicio cumplan con los requisitos establecidos por ley. Así como la aplicación correcta de los impuestos de renta, valor agregado o de servicio, cuando corresponden.
+e. Verificar que se incluya la devolución de efectivo en la liquidación cuando corresponda.
+f. Hacer el retiro de la tarjeta cuando el funcionario a su cargo ya no requiera la misma o bien se desvincule de la institución por cualquier motivo.

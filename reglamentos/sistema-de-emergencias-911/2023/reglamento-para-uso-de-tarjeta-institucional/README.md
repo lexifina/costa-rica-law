@@ -14,3 +14,4 @@ Reglamento para uso de tarjeta institucional
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-05-09 | la propia norma |
+| 2 | 2024-01-29 | Reglamento 0 (2024-01-29) |
