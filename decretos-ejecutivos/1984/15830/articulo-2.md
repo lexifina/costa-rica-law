@@ -1,1 +1,0 @@
-Art 2° Una vez que se vaya a hacer uso de la franquicia y concesiones de orden administrativo y económico basados en la presente declaratoria de orden administrativo y económico, basados en la presente declaratoria de Hacienda.
