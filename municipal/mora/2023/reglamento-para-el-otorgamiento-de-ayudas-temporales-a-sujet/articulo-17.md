@@ -1,0 +1,1 @@
+Artículo 17.-De los informes de cumplimiento de objetivos: El Centro Educativo, beneficiario de una ayuda temporal deberá presentar a la Municipalidad, los informes sobre el cumplimiento de los objetivos y fines para los que se giraron los recursos, así como la respectiva liquidación de gastos, utilizando para tal fin los formularios suministrados por el Área Financiera.

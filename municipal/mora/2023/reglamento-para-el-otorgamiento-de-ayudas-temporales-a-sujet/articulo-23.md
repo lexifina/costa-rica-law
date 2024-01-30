@@ -1,0 +1,1 @@
+Artículo 23.-El presente Reglamento regirá inmediatamente después de su publicación definitiva en el Diario Oficial La Gaceta, para ello, la Administración Municipal, asegurar que ya cuenta con los instrumentos y los procedimientos necesarios para su aplicación. Segunda Publicación.

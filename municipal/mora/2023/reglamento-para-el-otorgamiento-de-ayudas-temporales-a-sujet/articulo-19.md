@@ -1,0 +1,1 @@
+Artículo 19.-De la colaboración recíproca: Los Centros Educativos, apoyarán el desarrollo e implementación de los programas del área de Desarrollo Humano y Cohesión Social, de tal manera que se puedan articular procesos para el mejoramiento de la calidad de vida de las personas del cantón de Mora.

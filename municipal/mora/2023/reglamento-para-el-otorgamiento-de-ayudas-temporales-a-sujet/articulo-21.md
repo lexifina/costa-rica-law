@@ -1,0 +1,3 @@
+CAPÍTULO IV
+Disposiciones finales
+Artículo 21.-Del plazo máximo para el retiro de ayudas: Después de transcurrido un mes sin que los beneficiarios de las ayudas a que se refiere este Reglamento en su capítulo I se apersonen a la Municipalidad a retirar la ayuda otorgada, el Área Administrativa Financiera deberá informar de lo anterior al Alcalde Municipal, a fin de que gire instrucciones para que los recursos sean reasignados a otros sujetos privados que lo necesiten siguiendo el orden de prioridad según las solicitudes presentadas ante la Municipalidad. Al mismo tiempo, colocará al sujeto privado que renunció a la ayuda, en la lista de sujetos no legitimados para recibir ayudas de la Municipalidad.
