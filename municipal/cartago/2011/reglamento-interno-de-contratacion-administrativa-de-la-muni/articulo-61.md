@@ -1,1 +1,0 @@
-Artículo 61.—Procedimiento para la adquisición de bienes y servicios mediante Licitación Abreviada: La adquisición de bienes y servicios mediante Licitación Abreviada se realizará en estricto apego al Manual de Procedimientos que la Municipalidad establezca para ello.

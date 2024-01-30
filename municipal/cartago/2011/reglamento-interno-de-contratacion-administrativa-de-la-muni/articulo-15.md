@@ -1,3 +1,0 @@
-Artículo 15.—Ámbito de aplicación y uso: El Catálogo de Bienes y Servicios será de uso obligatorio en los procedimientos de Contratación Administrativa que se realicen en La Municipalidad.
-El código de clasificación debe ser utilizado en concordancia con el registro de proveedores para señalar los bienes y los servicios que el Proveedor (a) puede ofrecer a La Municipalidad.
-Para la confección del cartel, La Municipalidad empleará el código de identificación disponible en el Catálogo. En caso de no existir el código de clasificación requerido, las unidades solicitantes tienen la obligación de solicitar el registro del bien o servicio ante La Proveeduría como administrador del Catálogo.

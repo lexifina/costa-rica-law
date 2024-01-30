@@ -1,1 +1,0 @@
-Artículo 100.—Trámite de pago: Los bienes se pagarán treinta días posteriores a la presentación para el cobro de la factura en la Proveeduría. Tratándose de contratos para suministro de bienes, de previo al trámite de pago, se constatará la correcta recepción de la prestación contractual, observando al respecto las disposiciones contenidas en los artículos 153 y 154 del RLCA.

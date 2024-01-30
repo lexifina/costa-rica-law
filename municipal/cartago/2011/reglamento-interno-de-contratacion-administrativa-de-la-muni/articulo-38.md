@@ -1,1 +1,0 @@
-Artículo 38.—Requisitos previos: Previo a la decisión inicial de contratación, La Proveeduría determinará la existencia de disponibilidad presupuestaria, siendo este requisito indispensable sobre el proceso de adquisición.

@@ -1,1 +1,0 @@
-Artículo 50.—Apertura de la oferta: Se tendrá por cerrado el plazo para recepción de ofertas a la hora y fechas señaladas en el Cartel, acto seguido La Proveeduría en presencia de oferentes que se presenten al acto, procederá abrir las ofertas y levantará un acta haciendo constar los aspectos generales, así como todos aquellos aspectos específicos que ocurran en el acto.

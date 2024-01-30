@@ -1,2 +1,0 @@
-Artículo 17.—Administración del Catálogo de Bienes y Servicios: Corresponderá a la Proveeduría la administración del Catálogo, siendo este departamento quien tendrá a su cargo el control y la atención de las solicitudes de inclusión, modificación o exclusión de los códigos de clasificación e identificación.
-Las Unidades Solicitantes serán responsables de velar por la calidad de la información del Catálogo y de solicitar ante La Proveeduría la inclusión, la modificación o la exclusión de bienes o servicios que se ubiquen dentro del alcance del código de identificación.

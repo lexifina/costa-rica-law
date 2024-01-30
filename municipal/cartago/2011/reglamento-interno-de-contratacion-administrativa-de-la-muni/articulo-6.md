@@ -1,3 +1,0 @@
-SECCIÓN II
-Dirección Financiera Administrativa
-Artículo 6º—Definición funcional de la Dirección Financiera Administrativa: La Dirección Financiera Administrativa es la dirección municipal que planea, dirige y supervisa las labores en materia financiera contable. Para ello cuenta con el apoyo técnico de los departamentos de Contabilidad, Tesorería, Proveeduría y Almacén Municipal, figurando como superior jerárquico de los departamentos en mención. Para efectos de los procedimientos de Contratación Administrativa será responsable de realizar recomendaciones a las adjudicaciones que lleve a cabo La Municipalidad, así como firmar las órdenes de compra según los montos que sean anualmente establecidos por la Administración.

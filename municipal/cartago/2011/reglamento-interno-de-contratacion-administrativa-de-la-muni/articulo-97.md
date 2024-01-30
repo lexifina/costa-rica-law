@@ -1,3 +1,0 @@
-SECCIÓN V
-Precio y Pago
-Artículo 97.—Sobre los precios cotizados: Los precios cotizados deberán ser firmes, definitivos e invariables durante el periodo de vigencia de la oferta; expresados en números y letras coincidentes. En caso de discrepancia, prevalecerá lo expresado en letras. Los precios podrán cotizarse en colones costarricenses o en la moneda definida en el cartel, en caso que la oferta sea presentada en moneda extranjera se deberá utilizar como referencia el tipo de cambio establecido por el Banco Central de Costa Rica vigente al momento de la confección del cheque o medio de pago definido.

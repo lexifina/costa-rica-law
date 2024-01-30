@@ -1,1 +1,0 @@
-Artículo 18.—Solicitud de inclusión, modificación o exclusión: Las Unidades Solicitantes y los proveedores registrados tienen la responsabilidad de solicitar la inclusión, la modificación o la exclusión de bienes o servicios en el Catálogo, para lo cual deberán utilizar los formularios y los procedimientos establecidos para tal fin.

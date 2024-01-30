@@ -1,1 +1,0 @@
-Artículo 25.—Uso de la información: La información presentada por los interesados y que se incorpore en el Registro de Proveedores podrá ser utilizada en cualquiera de los procedimientos de adquisidores que lleve a cabo La Municipalidad.

@@ -1,1 +1,0 @@
-Artículo 16.—Información que contiene el Catálogo de Bienes de Servicios: el Catálogo de Bienes y Servicios contiene información técnica detallada para identificar de manera única, mediante el uso de atributos comunes e individuales, los bienes y los servicios de acuerdo con las características y particularidades del producto o servicio.
