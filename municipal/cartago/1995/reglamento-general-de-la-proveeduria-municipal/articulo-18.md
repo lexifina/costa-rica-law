@@ -1,1 +1,0 @@
-Artículo 18.—Corresponderá al Departamento de Proveeduría, encauzar y dirigir los trámites internos para la obtención de los informes técnicos, jurídicos y otros necesarios en relación a las licitaciones públicas o privadas, para ser sometidas a consideración del Concejo Municipal y que sea éste quien en última instancia resuelva sobre dicho proceso.

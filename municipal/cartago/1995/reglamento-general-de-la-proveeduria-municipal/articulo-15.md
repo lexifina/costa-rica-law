@@ -1,1 +1,0 @@
-Artículo 15.—Para compras de bienes o servicios de uso ocasional o de urgente necesidad, se hará a través del fondo de caja chica que para tal efecto manejará la Tesorería Municipal y el cual se encuentra regido por su propio reglamento.

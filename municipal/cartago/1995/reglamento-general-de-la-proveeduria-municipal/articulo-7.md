@@ -1,1 +1,0 @@
-Artículo 7°—El departamento de Proveeduría, no dará trámite a las solicitudes de compra de bienes o servicios que no reúnen los requisitos indicados en el artículo 5 de este reglamento, debiendo ser remitidos los mismos al departamento correspondiente, dentro del día hábil siguiente al recibo del pedido, indicándose las razones que motivan la devolución.

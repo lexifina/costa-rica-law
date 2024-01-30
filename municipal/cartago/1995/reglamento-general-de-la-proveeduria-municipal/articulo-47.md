@@ -1,1 +1,0 @@
-Artículo 47.— La Proveeduría Municipal tiene la potestad de ampliar los mecanismos de control existentes, para mejorar dichos sistemas y así lograr más eficacia y seguridad de los materiales y demás productos en su custodia.

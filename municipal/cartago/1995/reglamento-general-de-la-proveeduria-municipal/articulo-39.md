@@ -1,1 +1,0 @@
-Artículo 39.— La Proveeduría y Contabilidad llevarán a cabo al menos una vez al año, el inventario físico de activos, esto con el fin de determinar que los mismos se encuentren en cantidad y lugar correspondiente.

@@ -1,1 +1,0 @@
-Artículo 13.- Toda adquisición por concepto de alquiler de maquinaria que sobrepase el monto establecido en el artículo 80 del Código Municipal deberá hacerse mediante un contrato que suscribirá el Ejecutivo Municipal y el Contratista y el cual deberá contar con el correspondiente refrendo de la Contraloría General de la República.

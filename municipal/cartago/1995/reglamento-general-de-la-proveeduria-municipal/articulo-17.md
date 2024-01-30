@@ -1,1 +1,0 @@
-Artículo 17.— La Proveeduría será quien se encargue de promover todo el trámite de licitación requerido, lo cual se hará respetando lo dispuesto en la Ley de la Administración Financiera de la República y el Reglamento de la Contratación Administrad va.

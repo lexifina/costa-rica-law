@@ -1,1 +1,0 @@
-Artículo 43.—De comprobarse que en el extravío del activo no media culpabilidad alguna por parte del funcionario, se procederá a realizar el descargo del activo a través de los departamentos correspondientes.

@@ -1,1 +1,0 @@
-Artículo 42.—Una vez analizadas las causas que pudieron originar el extravío del activo y de llegarse a determinar que existió culpabilidad por parte del usuario de dicho activo, se le obligará a pagarlo, según su valor de mercado.

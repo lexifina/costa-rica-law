@@ -1,1 +1,0 @@
-Artículo 37.—El Departamento de Proveeduría conjuntamente con la Contabilidad Municipal , estará en la obligación de realizar el inventario de activos a todo aquel funcionario que le han sido asignados tales bienes y que por disposición de la Administración , deba ocupar otro puesto o bien, o deje de laborar para la Institución.

@@ -1,1 +1,0 @@
-Artículo 22.—Si por alguna razón haya necesidad de dejar sin efecto una orden de compra que haya sido aprobada por los departamentos de Proveeduría, Dirección Ejecutiva y Tesorería dicha anulación se deberá justificar mediante nota en el mismo documento y así se hará saber a los departamentos correspondientes para que realicen las correcciones del caso.
