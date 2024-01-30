@@ -1,0 +1,4 @@
+CAPÍTULO III
+Programa de adquisiciones
+Artículo 11.-Elaboración de programa. A más tardar los primeros quince días de diciembre de cada año la jefatura de Presupuesto remitirá el Plan Anual Operativo y la información sobre el presupuesto anual aprobado o en fase de aprobación por parte de la Contraloría General de la República a todas las unidades solicitantes. Cada unidad solicitante coordinará con la proveeduría institucional, el área financiera, el área de planificación y la Alcaldía la elaboración del programa de adquisiciones, el cual deberá de ser entregado en la segunda semana de enero de cada año a la proveeduría institucional, quien deberá de unificar la programación y remitir la versión final a la Alcaldía en semana siguiente.
+La Alcaldía y la proveeduría deberán de aprobar el programa de adquisiciones y realizar las gestiones necesarias para darlo a conocer a través del sistema digital unificado antes del 31 de enero.
