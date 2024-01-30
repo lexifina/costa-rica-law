@@ -1,0 +1,1 @@
+Artículo 39. Recursos de revocatoria. En caso de existir disconformidad ante lo resuelto técnicamente por la Dirección de Tecnologías de Información y Comunicaciones, cabrá recurso de revocatoria ante la misma Dirección y de apelación ante el Consejo Superior.

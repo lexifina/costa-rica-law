@@ -1,0 +1,1 @@
+Artículo 82. Uso de información por parte de las personas usuarias. Las personas servidoras del Poder Judicial deberán hacer un buen uso, desecho y reutilización de medios electrónicos o impresos que contengan información institucional, de acuerdo con el grado de confidencialidad de la información.

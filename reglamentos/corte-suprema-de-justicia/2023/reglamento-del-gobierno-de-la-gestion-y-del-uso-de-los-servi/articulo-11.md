@@ -1,0 +1,4 @@
+Sección II
+De la Comisión Gerencial de Tecnologías de la Información
+Artículo 11. La Comisión Gerencial de Tecnologías de Información y Comunicaciones. La Comisión Gerencial de Tecnologías de la Información (CGTIC) es una comisión de carácter especial en cumplimiento de lo definido en las Normas Técnicas para el gobierno y gestión de las TIC definidas por el Ministerio de Ciencia y Tecnología como ente rector nacional en la materia y será el órgano encargado de avalar y elevar las propuestas en temas de Estrategia Tecnológica y desarrollo tecnológico del Poder Judicial a la Corte Plena, una vez que sea definida y propuesta por la Dirección de Tecnologías de Información y Comunicaciones.
+La Comisión Gerencial de Tecnologías de la Información es un órgano asesor y recomendativo de la Corte Plena y del Consejo Superior según corresponda y de conformidad con las competencias de cada órgano.

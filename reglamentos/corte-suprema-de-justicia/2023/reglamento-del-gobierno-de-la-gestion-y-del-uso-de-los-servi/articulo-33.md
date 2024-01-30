@@ -1,0 +1,7 @@
+Artículo 33. Del Plan Estratégico de Tecnologías de Información y Comunicaciones) PETIC. La Dirección de Tecnologías de Información y Comunicaciones, es el órgano responsable de implementar y mantener las Tecnologías de Información necesarias y en relación con el marco estratégico institucional establecido, debe:
+a. Desarrollar un plan estratégico de tecnologías de información y comunicaciones (PETIC) alineado al Plan Estratégico Institucional, el cual será revisado y aprobado por Corte Plena.
+b. Alinear constantemente el PETIC a la visión institucional y a las necesidades de los diversos grupos de interés, documentando los cambios y propiciando el mejor aprovechamiento de los recursos tecnológicos institucionales.
+c. Solicitar a la Corte Plena los recursos presupuestarios, que se requieran para el cumplimiento de los proyectos estratégicos tecnológicos que se definan y de acuerdo con la priorización de estos.
+d. Solicitar al Consejo Superior, los recursos humanos y materiales que sean necesarios para la correcta ejecución de los proyectos institucionales en materia tecnológica.
+e. Definir y comunicar los riesgos tecnológicos estratégicos vinculados con la ejecución de las actividades, proyectos y operaciones relacionadas con el PETIC.
+Deberán contribuir con la creación, ejecución y seguimiento del PETIC, todas aquellas oficinas que gestionan tecnologías y se encuentran debidamente facultadas para hacerlo, como la Plataforma de Información Policial y la Unidad de Tecnologías de Información del OIJ.

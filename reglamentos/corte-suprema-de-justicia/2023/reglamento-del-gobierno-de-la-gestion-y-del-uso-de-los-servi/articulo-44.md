@@ -1,0 +1,1 @@
+Artículo 44. Asignación y registro de activos tecnológicos. La asignación, registro y movimiento de activos tecnológicos se regirá por el Reglamento para el registro, control y uso de activos institucionales del Poder Judicial.

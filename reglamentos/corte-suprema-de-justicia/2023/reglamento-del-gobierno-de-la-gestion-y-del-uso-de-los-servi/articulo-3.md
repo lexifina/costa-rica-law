@@ -1,0 +1,1 @@
+Artículo 3. De los aspectos no previstos en el reglamento. Los aspectos no previstos en este reglamento se regularán por lo que dispone la Ley Orgánica del Poder Judicial, la Ley General de Control Interno, las Políticas de Tecnologías de Información y Comunicaciones del Poder Judicial, y demás ordenamiento jurídico en lo que sea aplicable.

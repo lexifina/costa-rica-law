@@ -1,0 +1,1 @@
+Artículo 72. Autorización para el desarrollo de sistemas. Las personas usuarias no están autorizadas a desarrollar o adquirir por su parte este tipo de herramientas, sin contar con la autorización expresa de la Dirección de Tecnologías de Información y Comunicaciones.

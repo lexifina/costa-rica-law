@@ -1,0 +1,1 @@
+Artículo 84. Responsabilidad sobre la información en unidades de red. Las personas usuarias son responsables de la información almacenada en las unidades de red y no deberán utilizarlas para guardar archivos de música (mp3, WAV, wma, etc.), fotos o videos de uso personal (avi, mpg, wmv, mov, etc.).

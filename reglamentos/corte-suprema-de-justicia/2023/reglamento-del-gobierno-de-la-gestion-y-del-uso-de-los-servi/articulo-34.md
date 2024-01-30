@@ -1,0 +1,2 @@
+Artículo 34. Otras oficinas que gestionan tecnología. La Plataforma de Información Policial y la Unidad de Tecnologías de Información, así como las dependencias que se definan institucionalmente para la gestión tecnológica, serán los responsables de adquirir, administrar, dar soporte técnico y mantener actualizada la infraestructura tecnológica y los sistemas que desarrollen, además de velar por el buen funcionamiento de esta en el Poder Judicial.
+Además, estarán sometidos a los lineamientos técnicos que defina la Dirección de Tecnologías de Información y Comunicaciones.

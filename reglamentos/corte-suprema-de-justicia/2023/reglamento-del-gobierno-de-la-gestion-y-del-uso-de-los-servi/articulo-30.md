@@ -1,0 +1,2 @@
+Artículo 30. Responsabilidad de velar por el conocimiento sobre la seguridad informática. La Dirección de Tecnologías de Información y Comunicaciones y el Consejo Superior, deberán velar porque todo el personal de la organización conozca las regulaciones de seguridad informática, a fin de evitar el error humano y el uso inapropiado de los recursos tecnológicos. Para esto deberá realizar lo siguiente:
+Es competencia de las jefaturas o coordinaciones de cada oficina, velar por el cumplimiento de las directrices institucionales en materia de seguridad informática.

@@ -1,0 +1,3 @@
+Artículo 29. Alineamiento entre seguridad de la información y seguridad informática. La Dirección de Tecnologías de Información y Comunicaciones, se alineará a las políticas y directrices establecidas por el Consejo Superior y por la Corte Plena en lo referente a la seguridad de la información y será responsable por la seguridad informática institucional.
+Para ello, la DTIC definirá los lineamientos administrativos, los marcos de trabajo y demás elementos que permitan una protección razonable de la información en medios tecnológicos.
+Todas las personas que interactúen con los servicios tecnológicos, independientemente de si laboran para la institución o si son personas usuarias externas, deberán cumplir con los lineamientos sobre seguridad informática que se definan.

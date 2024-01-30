@@ -1,0 +1,2 @@
+Artículo 94. Uso del servicio. Al hacer uso de los servicios por canales electrónicos, la persona usuaria externa solo debe acceder o tener acceso a los recursos informáticos, a través de medios autorizados y no debe utilizar mecanismos que pongan en riesgo la continuidad del servicio institucional (lo que incluye el uso de robots u otras herramientas automatizadas para consulta masiva y/o extracción de información de forma no autorizada y validada por el Poder Judicial).
+De las Prohibiciones en el uso de los servicios institucionales para las personas usuarias externas.

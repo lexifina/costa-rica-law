@@ -1,0 +1,2 @@
+Artículo 25. Superior jerárquico de la DTIC. La Dirección de Tecnologías de Información y Comunicaciones dependerá del Consejo Superior y es un órgano asesor de la Corte Plena en lo que al gobierno, gestión y desarrollo tecnológico se refiere.
+Cuando la Corte Suprema de Justicia se avoque el conocimiento de una competencia del Consejo Superior en el campo de las tecnologías de la información, dicha Dirección estará sometida a la autoridad y lineamientos de la Corte Plena.

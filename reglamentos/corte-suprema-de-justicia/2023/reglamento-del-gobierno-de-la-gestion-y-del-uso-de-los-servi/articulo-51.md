@@ -1,0 +1,2 @@
+Artículo 51. Tamaño del buzón de correo electrónico. Con el propósito de evitar saturaciones que puedan afectar el buen funcionamiento del servicio, el tamaño máximo de los mensajes que se pueden enviar está limitado, fijándose dicho límite en función de los recursos disponibles en cada momento.
+La Dirección de Tecnologías de Información y Comunicaciones será la responsable de definir con base en criterios técnicos el tamaño máximo de los mensajes de correo y de comunicarlo institucionalmente.

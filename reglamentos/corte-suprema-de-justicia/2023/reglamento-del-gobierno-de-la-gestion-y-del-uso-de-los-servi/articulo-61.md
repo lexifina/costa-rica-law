@@ -1,0 +1,1 @@
+Artículo 61. Seguro para los equipos portátiles. Es responsabilidad del Poder Judicial, asegurar ante las instancias pertinentes, las computadoras portátiles y otros dispositivos móviles de su propiedad.

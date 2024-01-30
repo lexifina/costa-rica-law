@@ -1,0 +1,1 @@
+Artículo 71. Actualización de información en los sistemas. Las personas usuarias de los sistemas de información tienen la responsabilidad de mantener actualizada la información y asegurar la completitud de esta.

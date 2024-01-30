@@ -1,0 +1,5 @@
+Artículo 35. Del software permitido para uso institucional. La Dirección de Tecnologías de Información y Comunicaciones, así como el personal que éste designe, son los únicos autorizados para instalar, actualizar y desinstalar software o programas en los equipos del Poder Judicial.
+Únicamente se podrán instalar herramientas que sean parte de la lista de software base autorizado por la DTIC. Cualquier necesidad específica que se tenga y que no esté incluida en esta lista, deberá ser aprobada por la Dirección de Tecnologías de Información y Comunicaciones de previo a su instalación.
+Para estas tareas, deberá respetarse lo siguiente:
+a. La Dirección de Tecnologías de Información y Comunicaciones tiene la responsabilidad de publicar en la intranet la lista de software permitido en el Poder Judicial para realizar las funciones diarias.
+b. La lista de software permitido en el PJ estará constituida únicamente por software licenciado que cumple con la normativa de derechos de autor vigente en el país, o bien software gratuito previamente analizado y autorizado por esta Dirección.

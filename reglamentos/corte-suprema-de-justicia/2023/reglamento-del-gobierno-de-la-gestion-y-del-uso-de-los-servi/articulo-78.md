@@ -1,0 +1,3 @@
+Sección Segunda
+Deberes de las jefaturas y/o encargados de las oficinas.
+Artículo 78. De los movimientos de personal y las credenciales de acceso. Las jefaturas, coordinadores o el personal autorizado oficialmente, deberán notificar, en la medida de lo posible, con al menos una semana de antelación a la Dirección de Tecnologías de Información y Comunicaciones, cualquier movimiento que se realice en el personal a su cargo, sea por contratación, ascenso, destitución, solicitud de nuevas cuentas de acceso, extensiones de permisos, entre otros, con el fin de gestionar dichos permisos para el acceso a los recursos de la red.

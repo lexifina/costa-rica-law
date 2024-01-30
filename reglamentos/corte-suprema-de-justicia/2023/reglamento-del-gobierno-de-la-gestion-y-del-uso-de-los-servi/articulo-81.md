@@ -1,0 +1,9 @@
+Sección Tercera
+Deberes de las personas usuarias (Colaboradores).
+Artículo 81. Responsabilidades principales de las personas usuarias. Las personas usuarias deberán seguir las directrices institucionales que eviten la introducción de software malicioso (malware) o la manipulación indebida de la información a través de medios informáticos. Por tanto, cuando se utilice el acceso a Internet, los sistemas de información, las comunicaciones electrónicas, las memorias removibles y otros servicios tecnológicos, deberán:
+a. Utilizar la Internet y los sistemas de comunicación electrónica de acuerdo con las disposiciones que emita este reglamento y que se definan en los lineamientos institucionales a través de la Dirección de Tecnologías de Información y Comunicaciones, el Consejo Superior o la Corte Plena.
+b. Mantener las condiciones de seguridad de los sistemas, incluyendo la confidencialidad de las palabras claves y cualquier otro sistema o plataforma institucional o fuera de ésta que en virtud de sus labores tenga acceso.
+c. Ejecutar la revisión de software malicioso (malware) a los dispositivos (discos portables USB) externos antes de acceder a su información, haciendo uso de las herramientas tecnológicas proveídas por el Poder Judicial.
+d. Resguardar la información de carácter confidencial, de acceso restringido, o aquella que goce de protección por los derechos de autor o sea de uso exclusivo del Poder Judicial, a la que tenga acceso; quedando estrictamente prohibido comunicarla o facilitarla, directa o indirectamente a un tercero sin la debida autorización de alguna autoridad competente.
+e. Abstenerse de utilizar o descargar documentos o archivos que no tengan relación alguna con sus labores habituales.
+f. Cualquier otra que sea definida y comunicada por la Dirección de Tecnologías de Información y Comunicaciones para garantizar un uso adecuado de los servicios tecnológicos.

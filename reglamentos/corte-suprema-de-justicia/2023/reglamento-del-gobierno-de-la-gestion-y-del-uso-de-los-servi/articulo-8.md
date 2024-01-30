@@ -1,0 +1,9 @@
+Artículo 8. Responsabilidades de la Corte Plena en el modelo de Gobierno. Corresponde a la Corte Plena, como máximo órgano de decisión y gobierno institucional:
+a. Valorar y aprobar el marco orientador en materia de gobierno y gestión tecnológica que permita la definición de las prioridades de las estrategias, proyectos e inversiones institucionales con el fin de cumplir con los objetivos propuestos y generar el valor público.
+b. Definir los principios que permitan establecer la priorización institucional en materia tecnológica, de forma tal que la Dirección de Tecnologías de Información y Comunicaciones logre desarrollar y poner en marcha las acciones, planes y presupuestos que respondan a esas necesidades, objetivos y oportunidades institucionales.
+c. Analizar y aprobar las propuestas de planificación estratégica tecnológica que realice la Dirección de Tecnologías de Información y Comunicaciones, así como las modificaciones que surjan durante su ejecución.
+d. Aprobar el presupuesto en materia tecnológica.
+e. Dar el debido respaldo en términos de recursos materiales, humanos y presupuestarios a las iniciativas y proyectos tecnológicos una vez que hayan sido incorporados como parte de la planificación tecnológica institucional.
+f. Analizar los riesgos estratégicos que en materia tecnológica pueda estar enfrentando el Poder Judicial y contribuir con la Dirección de Tecnologías de Información y Comunicaciones en establecer las medidas y estrategias de gestión que permitan minimizar los impactos asociados.
+g. Aprobar las políticas y el reglamento que regula y norma el gobierno y gestión tecnológica que le proponga la Dirección de Tecnologías de Información y Comunicaciones.
+h. Aprobar las modificaciones al presente reglamento que le proponga la Dirección de Tecnología de Información o Comunicaciones o la Comisión Gerencial de Tecnologías de Información y Comunicaciones.

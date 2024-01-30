@@ -1,0 +1,1 @@
+Artículo 10. Responsabilidades de la Comisión Gerencial de Tecnologías de Información y Comunicaciones. Corresponde a la Comisión Gerencial de TI, aquellas responsabilidades y funciones que le confiere el presente reglamento en la Sección II, así como cualquier otra que en su momento defina la Corte Plena.

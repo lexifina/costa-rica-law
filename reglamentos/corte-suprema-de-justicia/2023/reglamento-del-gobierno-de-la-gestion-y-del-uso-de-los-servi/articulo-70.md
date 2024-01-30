@@ -1,0 +1,1 @@
+Artículo 70. Revisión del software instalado. La Dirección de Tecnologías de Información y Comunicaciones, es responsable de realizar revisiones periódicas para asegurar que sólo software con licencia y autorizado esté instalado en las computadoras de la institución. Producto de esta revisión, podrá iniciar los procedimientos administrativos correspondientes.
