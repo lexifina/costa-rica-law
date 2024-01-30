@@ -1,0 +1,2 @@
+Artículo 15.- No serán de recibo las solicitudes, cuando se presenten incompletas o contengan tachones u otro tipo de alteración que hagan dudar de su legitimidad y no estén respaldadas con la firma del autorizado.
+No se incluirá más de un documento a reproducir o empastar en la misma solicitud de servicio, de manera que todo trabajo deberá de aportar su fórmula por separado, salvo que se trate de expedientes compuestos por varios tomos, como única excepción.

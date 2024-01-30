@@ -1,0 +1,1 @@
+Artículo 4º-El equipo que se utilice para este fin, estará bajo la supervisión administrativa y técnica del Departamento de Servicios Generales, en la Jefatura del Área Preventiva y Correctiva del Área de Mantenimiento.

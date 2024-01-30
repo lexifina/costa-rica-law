@@ -1,0 +1,1 @@
+Artículo 9.- Toda boleta que solicite los servicios litográficos, deberá venir acompañada por el documento sobre el cual se solicita el servicio, que deberá guardar relación directa con la descripción contenida en la boleta, y deberá ser debidamente verificada por quién presta el servicio.

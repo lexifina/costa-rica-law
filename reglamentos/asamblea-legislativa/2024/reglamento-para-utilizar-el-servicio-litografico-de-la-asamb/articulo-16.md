@@ -1,0 +1,3 @@
+Artículo 16.- Las jefaturas, direcciones tanto del área administrativa como del área legislativa y de fracciones políticas, y diputados independientes, podrán autorizar a funcionarios de su despacho para que puedan reproducir documentos, según lo establezca la tabla de autorizaciones de este reglamento.
+Deberán remitir oficio formal al Área Preventiva y Correctiva del Área de Mantenimiento, manifestando su autorización, dejando identificada la firma, cédula y nombre de los funcionarios que están autorizados para acceder a este tipo de servicios.
+Estas instancias deberán informar, por oficio, a esa Área Preventiva y Correctiva, de los cambios en el personal autorizado.
