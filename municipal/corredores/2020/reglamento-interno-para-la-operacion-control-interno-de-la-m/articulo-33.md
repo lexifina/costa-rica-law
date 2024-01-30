@@ -1,3 +1,0 @@
-TÍTULO VII
-Disposiciones Finales.
-Artículo 33.—Vigencia. Este Reglamento rige a partir de su publicación en el Diario Oficial La Gaceta.
