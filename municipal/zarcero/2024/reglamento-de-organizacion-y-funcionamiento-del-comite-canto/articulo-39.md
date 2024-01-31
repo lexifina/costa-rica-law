@@ -1,0 +1,1 @@
+Artículo 39.-Las Actas aprobadas, deberán llevar obligatoriamente las firmas del presidente y de la Secretaría del Comité. La autorización de los libros se hará conforme lo establece la Ley General de Control Interno y basado en el Manual de Normas de la Auditoría Interna para la Autorización de la Apertura y Cierre de los Libros Legales de la Municipalidad de Zarcero.

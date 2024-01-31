@@ -1,0 +1,1 @@
+Artículo 21.-Cuando un miembro incurra en cualquiera de las causales indicadas en el Artículo anterior, la Junta Directiva, deberá comunicarlo por escrito a la organización respectiva, indicando las razones para hacer efectiva su sustitución, y será comunicado al Concejo Municipal para su debida juramentación en un plazo máximo de 15 días.

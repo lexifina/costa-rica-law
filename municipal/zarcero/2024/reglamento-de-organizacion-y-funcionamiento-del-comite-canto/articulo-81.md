@@ -1,0 +1,1 @@
+Artículo 81.-Los subcomités subordinados a los comités comunales, se deberán reunir al menos una vez de forma anual. Sus sesiones serán públicas, salvo aquellas que por su naturaleza deban ser privadas. El quórum se logrará con la presencia de tres de sus miembros.

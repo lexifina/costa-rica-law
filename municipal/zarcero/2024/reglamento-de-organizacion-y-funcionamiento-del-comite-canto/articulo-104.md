@@ -1,0 +1,1 @@
+Artículo 104.-El canon por el uso de instalaciones deportivas y recreativas son de cobro obligatorio y serán fijadas anualmente por el Comité Cantonal. El Comité Cantonal, deberá presupuestar los ingresos por tal concepto.

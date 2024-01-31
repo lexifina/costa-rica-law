@@ -1,0 +1,3 @@
+CAPÍTULO VIII:
+Presupuesto
+Artículo 40.-Según el Artículo 179 del Código Municipal, podrá presupuestar y destinar recursos para la ejecución directa e indirecta, según proceda conforme a derecho, de los programas y proyectos que gestione y promueva. Estos deben ajustarse al Plan Operativo Anual, comunicado de forma previa al Concejo Municipal en el inicio del periodo en ejercicio. Para ello, la Junta Directiva debe aprobar las modificaciones presupuestarias siempre que éstas se apeguen el Plan Anual Operativo y al Presupuesto aprobado, la Ley 8131 "administración financiera de la república y presupuestos públicos" y a las regulaciones de la Contraloría General de la República.

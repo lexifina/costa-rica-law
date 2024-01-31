@@ -1,0 +1,1 @@
+Artículo 118.-Todo lo referente a la implementación de controles internos será regulado por la Ley de Control Interno y le corresponde su aplicación al Gobierno Local (Alcaldía y Concejo Municipal), controles que serán fiscalizados por la Auditoria Municipal en el marco de sus competencias.

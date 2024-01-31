@@ -1,0 +1,1 @@
+Artículo 87.-Los miembros del Concejo Municipal se podrán reunir con las Juntas Directivas de los comités y subcomités comunales cuando lo deseen. Podrán visitarlos en compañía de algún miembro de la junta directiva del comité cantonal.

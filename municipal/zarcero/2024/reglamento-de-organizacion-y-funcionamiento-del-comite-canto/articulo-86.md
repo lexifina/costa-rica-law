@@ -1,0 +1,1 @@
+Artículo 86.-Dos veces al año, la Junta Directiva del Comité Cantonal de Deportes, deberá convocar a los comités y subcomités comunales para que envíen un representante a una reunión conjunta. Deberán presentar un informe escrito de las actividades realizadas, y las que no, dando una justificación del por qué no.

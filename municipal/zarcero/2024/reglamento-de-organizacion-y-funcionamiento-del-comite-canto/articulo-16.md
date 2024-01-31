@@ -1,0 +1,1 @@
+Artículo 16.-Los miembros de la Junta Directiva, serán juramentados por el Concejo Municipal en un plazo no mayor a un mes posterior a su elección y su nombramiento tendrá una vigencia de dos años o el tiempo que faltase para cumplir el periodo que le quedase al miembro sustituido. Los miembros que lo deseen podrán ser reelegidos.

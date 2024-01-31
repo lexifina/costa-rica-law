@@ -1,0 +1,1 @@
+Artículo 50.-Durante el mes de enero las asociaciones y comités comunales adscritas al comité cantonal de Deportes deberán de presentar un informe sobre la utilización de los recursos brindados de parte del CCDRZ en el año anterior, los logros alcanzados, los problemas surgidos y su solución.

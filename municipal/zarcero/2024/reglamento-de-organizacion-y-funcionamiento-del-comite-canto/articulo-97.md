@@ -1,0 +1,1 @@
+Artículo 97.-Para realizar y fiscalizar el desarrollo de la asamblea de elección del representante de las organizaciones comunales se conformará un tribunal de elecciones, integrado por dos representantes del Concejo Municipal y el jefe del Departamento Legal. También habrá un representante de los grupos organizados, escogido en una asamblea especial, convocada para tal efecto.

@@ -1,0 +1,1 @@
+Artículo 34.-Todo miembro deberá comunicar en forma escrita mediante el correo electrónico a la dirección oficial del comité, las razones de su inasistencia a las sesiones, a más tardar dentro de las veinticuatro horas siguientes de celebrada la sesión, en la oficina del Comité Cantonal, caso contrario, será catalogada la ausencia como injustificada y sancionable.

@@ -1,0 +1,1 @@
+Artículo 33.-El quórum para sesionar estará integrado por la mitad más uno del total de los miembros del Comité Cantonal. Los acuerdos se tomarán por mayoría simple de los votos presentes. Sí existiere empate se someterá a votación por segunda vez y si no es aprobado, el asunto se tendrá por desechado definitivamente.

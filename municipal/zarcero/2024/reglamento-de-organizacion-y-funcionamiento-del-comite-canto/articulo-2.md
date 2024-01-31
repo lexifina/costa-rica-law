@@ -1,0 +1,1 @@
+Artículo 2º-El Comité tendrá su domicilio legal, en el Distrito Central de Zarcero. Al respecto, contará con una oficina central que se localizará en una propiedad municipal, la cual es la unidad técnica administrativa de carácter permanente del Comité.

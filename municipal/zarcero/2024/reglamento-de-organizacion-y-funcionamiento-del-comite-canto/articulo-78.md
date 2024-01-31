@@ -1,0 +1,1 @@
+Artículo 78.-Cada comité comunal podrá formar subcomités de deportes y recreación como apoyo, en los barrios y caseríos que lo ameriten. Seguirá los procedimientos establecidos en nombramiento de los comités comunales descritos de este reglamento. Su funcionamiento se limitará a su jurisdicción territorial.

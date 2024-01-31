@@ -1,0 +1,1 @@
+Artículo 112.-Para la aplicación de las sanciones del Artículo anterior, deberá necesariamente cumplirse con el debido proceso establecido en la Ley General de la Administración Pública, aplicando en lo que corresponda el numeral 158 del Código Municipal para determinar de acuerdo al tipo de falta, si procede la amonestación verbal, escrita o bien, la suspensión.

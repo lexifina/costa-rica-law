@@ -1,0 +1,1 @@
+Artículo 82.-Los presidentes de los Comités Comunales, así como los de los subcomités podrán convocar a sesión extraordinaria por iniciativa propia o a petición de dos directivos. Para ello, deberán convocar a dicha sesión extraordinaria con al menos 24 horas de anticipación y debe tratarse en ella un asunto único.

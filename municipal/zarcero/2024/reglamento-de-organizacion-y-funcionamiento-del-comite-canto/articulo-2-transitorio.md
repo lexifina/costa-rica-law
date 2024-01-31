@@ -1,0 +1,1 @@
+Transitorio II.-Se otorga un plazo de 6 meses contados a partir de la vigencia del presente Reglamento, para que las Asociaciones Deportivas y Comités Comunales y Recreativos del cantón de Zarcero implementen la legalización del Registro, para lo cual, se podrá valorar en su oportunidad el apoyo logístico y el soporte económico de los gastos de dicha legalización.

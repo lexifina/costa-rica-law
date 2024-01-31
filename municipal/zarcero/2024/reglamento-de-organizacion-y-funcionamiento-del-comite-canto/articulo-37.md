@@ -1,0 +1,1 @@
+Artículo 37.-La agenda de cada sesión deberá entregarse a los miembros del Comité Cantonal, a más tardar 6 horas previa a la sesión, en que los temas serán discutidos y aprobados. El funcionario designado para tal fin será el responsable de levantar las actas, donde se hacen constar los acuerdos tomados.

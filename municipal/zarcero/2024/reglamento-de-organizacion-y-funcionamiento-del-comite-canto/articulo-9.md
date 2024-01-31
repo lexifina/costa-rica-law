@@ -1,0 +1,1 @@
+Artículo 9º-En cuánto al registro contable del Comité, el mismo se regirá por medio de las regulaciones de la Contabilidad Nacional del Ministerio de Hacienda como órgano rector, por lo tanto, aplicarán las instrucciones técnicas emitidas por dicho órgano y en apego a las Normas Internacionales de Contabilidad del Sector Público (NICSP).

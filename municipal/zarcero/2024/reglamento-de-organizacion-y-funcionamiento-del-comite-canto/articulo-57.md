@@ -1,0 +1,1 @@
+Artículo 57.-Las solicitudes de entrega de implementos deberán ser presentadas ante el Comité Cantonal, quien revisará que cumplan con las disposiciones del presente Reglamento y el cual será en última instancia el que apruebe o rechace la gestión, en caso de rechazo deberá fundamentar por escrito las razones del mismo.

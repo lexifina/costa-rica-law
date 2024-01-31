@@ -1,0 +1,1 @@
+Artículo 59.-El Comité Cantonal, no podrá realizar ninguna entrega de implementos deportivos, si la persona autorizada para su retiro no presenta su cédula de identidad al día y sin alteración alguna o si la persona autorizada se niega a firmar como recibida la entrega de los bienes.

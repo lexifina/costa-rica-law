@@ -1,0 +1,1 @@
+Artículo 100.-En caso de que, por fuerza mayor, las organizaciones deportivas y recreativas u organizaciones comunales no pudieran nombrar a él o los miembros a la Junta Directiva del Comité Cantonal, será el Concejo Municipal el que tendrá la obligación de nombrar los miembros que falten y así cumplir con la nómina necesaria.

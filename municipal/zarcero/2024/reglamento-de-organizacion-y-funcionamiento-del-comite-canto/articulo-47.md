@@ -1,0 +1,1 @@
+Artículo 47.-Los recursos del Comité Cantonal de Deportes, solamente se podrán destinar en obras, programas deportivos y recreativos, según los límites fijados por el Artículo 179 del Código Municipal.

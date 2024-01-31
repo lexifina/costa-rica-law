@@ -1,0 +1,1 @@
+Artículo 83.-La Junta Directiva del Comité Cantonal podrá sustituir a la Junta Directiva del Comité Comunal o subcomité o a alguno (s) de sus miembros, porque lo considere no funcional o que no cumpla los lineamientos emanados por el Comité Cantonal, el Concejo Municipal o el ICODER, o que no respeten este reglamento, siempre siguiendo el debido proceso.

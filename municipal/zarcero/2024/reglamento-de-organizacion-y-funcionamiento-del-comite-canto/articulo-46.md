@@ -1,0 +1,1 @@
+Artículo 46.-Dicho presupuesto debe ser consecuente con el plan de desarrollo del gobierno local en materia deportiva y recreativa y las políticas deportivas del Comité, además debe reflejar las necesidades de las Asociaciones Deportivas, los Comités Comunales, debiendo ser sometido para el conocimiento del Concejo Municipal a más tardar en el mes de setiembre.

@@ -1,0 +1,1 @@
+Artículo 85.-Las Juntas Directivas de los Comités y subcomités comunales deberán llevar al día los libros de Actas y Tesorería, los que serán facilitados por el Comité Cantonal de deportes y autorizados por la Auditoría Municipal. Ahí deberán constar todos los acuerdos tomados en las sesiones. Podrán ser solicitados para su revisión por el Concejo Municipal y el Comité Cantonal.

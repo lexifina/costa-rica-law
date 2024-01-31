@@ -1,0 +1,1 @@
+Artículo 51.-La presupuestación del Comité será un acto que debe contar con la autorización del Concejo Municipal, sea la elaboración, ajustes, ejecución, liquidación, conforme con el bloque de legalidad y las normas establecidas por la Contraloría General de la República.

@@ -1,0 +1,1 @@
+Artículo 113.-Para la aplicación de estas sanciones se deberá seguir el debido proceso y adicionalmente, de ser procedente, el Comité Cantonal de Deportes y Recreación de Zarcero, podrá exigir la reparación integral del daño causado y el pago de los daños y perjuicios producidos por la actuación del infractor.

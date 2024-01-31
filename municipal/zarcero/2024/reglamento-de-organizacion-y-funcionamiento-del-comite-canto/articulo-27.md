@@ -1,0 +1,1 @@
+Artículo 27.-El Comité Cantonal de Deportes suministrará a todos los órganos de su dependencia un libro de tesorería, debidamente autorizado por la Auditoría Interna y recibos por dinero, debidamente membretados, foliados y autorizados por el Comité, los cuales deberán usarse en todas las gestiones de cobro que se realicen.

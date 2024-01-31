@@ -1,0 +1,1 @@
+Artículo 6º-El Comité, en el ejercicio de sus funciones y para desempeñar sus gestiones, deberá actuar de conformidad con las facultades y obligaciones que la Ley y este Reglamento le señalen. Cada miembro desempeñará sus funciones de conformidad con las disposiciones de esa normativa y será responsable de cualquier actuación contraria a la misma.

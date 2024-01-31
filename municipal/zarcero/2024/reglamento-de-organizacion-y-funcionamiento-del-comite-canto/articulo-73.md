@@ -1,0 +1,1 @@
+Artículo 73.-La Junta Directiva del Comité Comunal debe comunicar al Comité Cantonal de Deportes la conformación de puestos con nombre, número de cédula, dirección física exacta, número de teléfono, apartado, correo electrónico, de cada uno de sus miembros.

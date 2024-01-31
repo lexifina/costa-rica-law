@@ -1,0 +1,1 @@
+Artículo 22.-Los miembros de la Junta Directiva no devengarán dietas ni remuneración alguna, ya que el cargo es totalmente ad honorem. Sin embargo, podrán gozar de reconocimiento de gastos de viaje y de representación, según acuerdo de la Junta Directiva y adicionalmente, se les reconocerán dichos gastos para su participación en los Juegos Nacionales.
