@@ -1,0 +1,2 @@
+Artículo 37. Seguimiento del Cumplimiento de los Acuerdos. Le corresponde a la Presidencia del Comité en coordinación con la Oficialía de Cumplimiento de Gobierno Corporativo, velar por el seguimiento de los acuerdos establecidos en cada sesión.
+La Oficialía de Cumplimiento de Gobierno Corporativo comunicará a los responsables los acuerdos tomados en la sesión, los cuales deberán ser atendidos en los plazos definidos por el Comité.

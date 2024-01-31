@@ -1,0 +1,1 @@
+Artículo 42. Derogatoria. El presente documento deja sin efecto el Reglamento para el Funcionamiento del Comité Integral de Estrategia de RACSA aprobado en el artículo 13° de la sesión ordinaria N°2411, celebrada el 26 de setiembre del 2022.

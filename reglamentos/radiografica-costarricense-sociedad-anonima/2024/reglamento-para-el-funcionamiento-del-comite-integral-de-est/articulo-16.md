@@ -1,0 +1,1 @@
+Artículo 16. Medio para Envío de la Convocatoria. La convocatoria de las sesiones tanto ordinarias como extraordinarias, presenciales o virtuales, se realizarán por correo electrónico o cualquier otro medio digital, según la dirección electrónica señalada o los medios digitales brindados y que conste en los registros de RACSA como propio de cada uno de los miembros del Comité.
