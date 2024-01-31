@@ -1,0 +1,1 @@
+Artículo 25.-Periodicidad. Se confeccionará los reintegros del Fondo Fijo de Caja Chica, el cual corresponde al 10% del monto fijado para la Licitación Reducida, cuando se haya gastado el 25% de dicho fondo con la finalidad de mantener su liquidez.

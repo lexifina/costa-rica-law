@@ -1,0 +1,1 @@
+Artículo 34.-Fraccionamiento Ilícito. Por ningún motivo se aceptará el fraccionamiento ilícito de las compras del Fondo Fijo de Caja Chica, con la finalidad de evadir los procedimientos correspondientes de contratación pública de acuerdo con la normativa vigente, artículo 12, inciso d) del Reglamento a la Ley General de Contratación Pública.

@@ -1,0 +1,1 @@
+Artículo 37.-Consecuencias del Incumplimiento. El incumplimiento de este reglamento o la falta de control en su aplicación, serán considerados faltas sancionables conforme a lo dispuesto en este reglamento, el Código Municipal, la Ley General de Control Interno y demás legislación conexa.

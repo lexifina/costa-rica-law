@@ -1,0 +1,2 @@
+Artículo 8°-Composición del fondo. El Fondo Fijo de Caja Chica, mantendrá siempre el total del monto asignado, el cual estará conformado de la siguiente forma: a) dinero en cuenta bancaria asignada (50% del fondo fijo caja chica), b) dinero en efectivo (50% del fondo fijo caja chica), c) vales liquidados, d) vales pendientes de liquidación y e) vales en trámite de reintegro.
+En ningún momento ni por motivo alguno, se podrán sustituir esos valores por otros de naturaleza distinta al del Fondo Fijo de Caja Chica.

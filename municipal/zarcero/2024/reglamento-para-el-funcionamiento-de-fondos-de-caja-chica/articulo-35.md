@@ -1,0 +1,3 @@
+Artículo 35.-Otras Prohibiciones. El Fondo Fijo de Caja Chica no podrá ser utilizado para el cambio de cheques personales, ni disponerse para actuaciones distintas a las autorizadas por ley o establecidas en este reglamento.
+El encargado del Fondo Fijo de Caja Chica no podrá guardar documentos, efectivo o cheques de propiedad particular, en los lugares destinados para la custodia del dinero del fondo y por ningún motivo podrán suplir con su dinero, compras o pagos que correspondan a la Municipalidad.
+Ningún funcionario de la Municipalidad, con la excepción de quienes tengan en custodia los fondos de caja chica, podrán mantener en su poder fondos de caja chica por más de tres días hábiles.

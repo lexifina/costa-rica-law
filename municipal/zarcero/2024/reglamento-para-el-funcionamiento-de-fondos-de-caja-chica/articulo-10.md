@@ -1,0 +1,7 @@
+Artículo 10.-Trámite de la Boleta: El trámite de la boleta para compras por medio de Caja Chica, se tramitará únicamente cuando cumpla con todos y cada uno de los siguientes requisitos:
+a) Se debe de presentar el formulario en formato digital, debidamente completo con el nombre del área solicitante, fecha de solicitud, indicar el monto aproximado y la descripción de los artículos o servicios que se comprarán, no debe contener borrones ni tachones; así como la cuenta de presupuesto de donde se tomarán los recursos. Además de una justificación razonada de la compra, para lo cual puede adjuntarse algún oficio o documento probatorio o bien utilizar el espacio asignado para dicho fin.
+b) Se deben de adjuntar dos cotizaciones de los artículos o servicios que se requieren comprar.
+c) El formulario debe presentar la firma del director de la unidad solicitante o del funcionario municipal en el que delegue la responsabilidad.
+d) El formulario debe presentar la firma de autorización del gasto por parte del Director Administrativo Financiero y/o Alcalde o Alcaldesa Municipal, de conformidad con lo dispuesto en el artículo 17, inciso b) del Código Municipal.
+e) El formulario debe presentar la firma del encargado de presupuesto haciendo constar que existe contenido presupuestario en la(s) cuenta(s) indicadas.
+f) También debe de presentar la firma del Tesorero(a) Municipal, como responsable del manejo de este.

@@ -1,0 +1,2 @@
+Artículo 30.-Ausencia del Tesorero Municipal: Si por caso fortuito o fuerza mayor el encargado del fondo se encuentre ausente de su puesto por vacaciones, incapacidad, permiso con o sin goce de salario o cualquier otro motivo y siendo necesario la utilización del fondo, se realizará un arqueo en presencia del Director Administrativo Financiero o a quien él designe y dos testigos, haciendo constar mediante un documento firmado el resultado correspondiente.
+Igual procedimiento se utilizará cuando el titular de la Tesorería Municipal se reintegre a su puesto.

@@ -1,0 +1,1 @@
+Artículo 11.-Usos de Medios Electrónicos. La ejecución de las operaciones del Fondo Fijo de Caja Chica y los trámites de reintegro se podrán realizar por medios electrónicos en el tanto que se disponga por parte de la institución y del correspondiente banco de un sistema de información computarizado que garantice la adecuada funcionalidad y seguridad.
