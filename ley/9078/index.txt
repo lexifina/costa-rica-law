@@ -279,3 +279,4 @@ articulo-21-transitorio.md
 articulo-22-transitorio.md
 articulo-23-transitorio.md
 articulo-24-transitorio.md
+articulo-25-transitorio.md
