@@ -1,1 +1,0 @@
-Artículo 2.—Los costos relacionados con la solicitud de equivalencia, deberán ser cubiertos y cancelados por el interesado previamente, para dichos efectos se aplicará la tarifa que determine el ENN, conforme a sus procedimientos internos, proporcionando al interesado una cotización previa, la cual deberá incluir un estimado de horas y su costo unitario.
