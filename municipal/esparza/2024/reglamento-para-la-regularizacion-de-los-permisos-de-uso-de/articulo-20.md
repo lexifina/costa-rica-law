@@ -1,0 +1,1 @@
+Artículo 20.-De la obligación de reportar cesiones o traspasos de cuotas o acciones. En el caso de las personas jurídicas, toda cesión o traspaso de cuotas u acciones, deberá reportarse a la unidad de Zona Litoral y Marítimo Terrestre de la Municipalidad, para comprobar el cumplimiento. La inobservancia provocará la revocatoria inmediata del permiso otorgado.

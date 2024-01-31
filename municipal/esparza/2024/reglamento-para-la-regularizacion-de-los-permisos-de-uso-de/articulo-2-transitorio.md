@@ -1,0 +1,2 @@
+TRANSITORIO II
+Una vez que entre en vigencia el Plan Regulador Urbano en el sitio, los permisionarios tendrán prioridad para realizar la respectiva solicitud de Concesión o la figura jurídica respectiva que el ordenamiento jurídico permita del bien que se le concedió mediante el uso de suelo a título precario. Para esto contarán con el plazo establecido en el respectivo reglamento que constituya la Municipalidad de Esparza.

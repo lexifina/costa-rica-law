@@ -1,0 +1,1 @@
+Artículo 13.-De la renuncia al permiso de uso. Si por cualquier razón un permisionario no pretende seguir ejerciendo el uso de suelo deberá comunicarlo a la Municipalidad para que esta retome el bien demanial y decida el destino que considere conveniente.
