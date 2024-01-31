@@ -1,0 +1,1 @@
+Artículo 16. Presidencia del Comité. El nombramiento de la Presidencia del Comité se dará por parte de la Junta Directiva por el periodo de un año, pudiendo prorrogarse por acuerdo de esta. La Presidencia del Comité deberá disponer del tiempo suficiente para el ejercicio de la función.

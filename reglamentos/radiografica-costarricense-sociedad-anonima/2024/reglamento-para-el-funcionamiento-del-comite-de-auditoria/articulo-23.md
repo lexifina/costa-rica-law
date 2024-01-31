@@ -1,0 +1,2 @@
+Artículo 23. Coordinación de Temas Orden del Día. La Presidencia analiza y aprueba los temas a tratar en las distintas sesiones e instruye a la Oficialía de Cumplimiento de Gobierno Corporativo, la confección y gestión de la agenda de cada sesión.
+De existir un tema urgente no incluido en la convocatoria, la Presidencia valorará si se incluye en la sesión previamente coordinada o si se realiza una sesión extraordinaria para atender el tema.

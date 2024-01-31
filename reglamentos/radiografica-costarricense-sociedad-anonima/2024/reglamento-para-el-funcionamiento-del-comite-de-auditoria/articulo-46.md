@@ -1,0 +1,2 @@
+Artículo 46. Participación de la Gerencia General. El titular de la Gerencia General deberá participar en las reuniones del Comité de Auditoría como invitado cuando así sea convocado; esta participación será obligatoria salvo caso fortuito o fuerza mayor debidamente acreditadas para lo cual podrá asignar un representante.
+La participación del titular de la Gerencia General deberá limitarse estrictamente al ámbito de sus competencias.

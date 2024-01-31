@@ -1,0 +1,1 @@
+Artículo 15. Participación de la Auditoría Interna. La Auditoría Interna participará permanente y en condición de invitado, de las sesiones de Comité de Apoyo. Esta participación en las deliberaciones es por su naturaleza de carácter técnico, con voz, pero sin voto.

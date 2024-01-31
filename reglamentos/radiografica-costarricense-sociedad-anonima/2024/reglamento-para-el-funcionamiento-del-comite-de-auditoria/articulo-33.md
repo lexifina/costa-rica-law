@@ -1,0 +1,1 @@
+Artículo 33. Control de Asistencia. La Oficialía de Cumplimiento de Gobierno Corporativo llevará un control de asistencia de los miembros del Comité, el cual será un parámetro para la evaluación del desempeño de cada miembro del Comité.
