@@ -1,0 +1,3 @@
+Comités de Apoyo de la Junta Directiva
+Artículo 16. Naturaleza. Dada la amplitud de responsabilidades que debe asumir la Junta Directiva y con el fin de asegurar su adecuado desempeño, la Junta Directiva está facultada para conformar Comités de Apoyo en distintos campos estratégicos y de interés del órgano colegiado, para emitir recomendaciones que permitan facilitar la toma de decisiones. Las buenas prácticas de gobierno corporativo sugieren hacer explícito sus objetivos, composición y forma de trabajo.
+Los Comités de Apoyo no tienen funciones ejecutivas, ostentan facultades de revisión y asesoramiento a nivel estratégico dentro de su ámbito de competencia, siendo propositivo en el ejercicio de sus funciones.

@@ -1,0 +1,1 @@
+Artículo 37. Rendición de Cuentas. Como parte de los elementos de Gobierno Corporativo, los Órganos de Gobierno Corporativo deberán actuar en el ejercicio de sus funciones según lo establecido en la normativa aplicable en materia de rendición de cuentas, transparencia y acceso a la información pública para el Grupo ICE y sus empresas.

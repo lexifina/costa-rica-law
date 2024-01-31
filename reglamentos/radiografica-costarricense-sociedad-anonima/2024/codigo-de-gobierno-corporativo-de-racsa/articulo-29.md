@@ -1,0 +1,5 @@
+SECCIÓN II - Entes de Control
+Artículo 29. Auditoría Interna. La Auditoría Interna según lo estable la Ley General de Control Interno LGCI es la instancia responsable de la fiscalización del sistema de control interno, implementado por la Administración. Esta se encargará de revisar y analizar en forma objetiva la ejecución de las operaciones de la organización.
+Esta instancia está bajo la responsabilidad de un Auditor (a) Interno, designado por la Junta Directiva y el plazo de su nombramiento es indefinido, gozando de amplia independencia funcional y de criterio, así como de recursos adecuados para el cumplimiento de sus funciones de conformidad con la LGCI y la Ley Orgánica de la Contraloría General de la República.
+Las funciones de la Auditoría Interna se encuentran normadas en su respectivo Reglamento de Organización y Funcionamiento de la Auditoría Interna (ROFAI) en complemento con la LGCI.
+La Auditoría Interna participa en la gestión de los Comités de Apoyo de la Junta Directiva, en caso de ser requerido desde su ámbito de competencia.

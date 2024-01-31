@@ -1,0 +1,1 @@
+Artículo 13. Proceso de formación continua de la Junta Directiva. Para el adecuado ejercicio de sus funciones, los miembros de la Junta Directiva adquieren el compromiso de actualizarse, mediante un proceso de formación continuo, obteniendo conocimientos y destrezas en temas de interés.
