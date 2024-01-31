@@ -1,0 +1,1 @@
+Artículo 45.-Trámite posterior a la votación: Votado un asunto, no permitirán más discusiones al respecto en la misma sesión, salvo lo relativo a forma en que se llevará a cabo lo acordado por la moción aprobada.

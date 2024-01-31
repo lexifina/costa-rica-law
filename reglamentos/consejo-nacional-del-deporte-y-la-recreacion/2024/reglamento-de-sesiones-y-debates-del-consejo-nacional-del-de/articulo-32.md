@@ -1,0 +1,1 @@
+Artículo 32.-Finalización del debate: Se considerará agotado el debate cuando ninguno de los presentes desee hacer uso de la palabra, cuando así decida en una moción de orden o cuando el presidente así lo considere, inmediatamente se procederá a votar el asunto.

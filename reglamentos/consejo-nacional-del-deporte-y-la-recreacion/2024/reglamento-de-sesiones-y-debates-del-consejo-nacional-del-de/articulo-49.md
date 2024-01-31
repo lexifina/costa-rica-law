@@ -1,0 +1,1 @@
+Artículo 49.-Firma: Las actas, una vez transcritas en el libro de actas debidamente legalizado, serán firmadas por el presidente y el secretario o quienes hayan hecho sus funciones en la sesión correspondiente, así como por aquellos miembros del Consejo que hubieren hecho constar su voto negativo.

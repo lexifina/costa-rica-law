@@ -1,0 +1,1 @@
+Artículo 28.-Modificación de las mociones: Es facultad del presidente solicitar al proponente que retire, modifique o deje en suspenso una moción, según las razones que expondrá en el mismo momento.

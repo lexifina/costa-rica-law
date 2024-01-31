@@ -1,0 +1,1 @@
+Artículo 20.-Las sesiones y el apoyo técnico el ICODER, por medio, por medio de Tecnologías de información, facilitará las condiciones tecnológicas y de infraestructura para posibilitar la comunicación eficaz y la interoperabilidad.

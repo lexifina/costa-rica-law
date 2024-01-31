@@ -1,0 +1,1 @@
+Artículo 48.-Aprobación: Finalizado el período de lectura y discusión del acta, el presidente someterá a votación su aprobación. No podrán votar los miembros que no estuvieron presentes en dicha sesión. El secretario incorporará en la siguiente acta las correcciones aprobadas.

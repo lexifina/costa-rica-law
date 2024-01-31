@@ -1,0 +1,1 @@
+Artículo 7°-Funciones y atribuciones del prosecretario: En caso de ausencia o de enfermedad del secretario, y en general cuando concurra alguna justa causa, el Prosecretario lo sustituirá y ejercerá sus mismas funciones y atribuciones.
