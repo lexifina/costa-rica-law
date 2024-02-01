@@ -1,0 +1,3 @@
+Artículo 17. Preparación de agenda
+Actualmente, las áreas que requieran presentar casos ante el comité deben remitir sus informes en los formatos correspondientes. Los informes se remitirán en forma electrónica y firmados a la secretaria del comité a más tardar tres días naturales antes de que se efectúe el mismo, quien se encargará de cerrar la agenda y depositarla en carpetas públicas para su análisis.
+Como punto de agenda se incorporará la presentación por parte de la persona designada por el comité, un informe del estado y seguimiento de los acuerdos pendientes; asimismo deberán contar con una agenda de temas permanentes de conocimiento, rendición de cuentas y divulgación de avances de ejecución cuando así lo amerite.

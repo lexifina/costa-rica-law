@@ -1,0 +1,7 @@
+Artículo 3. Nombramiento de los miembros del Comité de Inversiones
+El nombramiento en firme de los miembros de este Comité y la designación de su presidente es competencia de la Junta Directiva de BCR SAFI S.A., de acuerdo con lo establecido en el Reglamento general sobre sociedades administradoras de fondos de inversión, para lo cual deberá contarse de previo con la aprobación del Comité Corporativo de Nominaciones y Remuneraciones del Conglomerado Financiero del BCR.
+En el caso de los miembros independientes, deberá realizarse además un proceso de contratación administrativa por medio del Sistema Integrado de Compras Públicas o de cualquier otra plataforma o herramienta que llegue a estar autorizada por la normativa para las contrataciones públicas.
+Con el acto de investidura los miembros que integran este Comité asumirán de pleno derecho el cargo que les corresponda.
+El nombramiento de los miembros de este Comité quedará en firme mediante acuerdo de Junta Directiva, que será comunicado a la Superintendencia General de Valores y al mercado mediante hecho relevante de conformidad con la regulación vigente.
+Su nombramiento será por un período de un (1) año, que podrá ser prorrogable automáticamente, por períodos iguales y sucesivos, a no ser que sea removido por la Junta Directiva previamente al vencimiento del período que se encuentre en curso.
+Es responsabilidad de los miembros de este Comité, revelar por escrito o dejando constancia en las actas del Comité, la existencia de cualquier conflicto de interés posible durante el ejercicio de su cargo.
