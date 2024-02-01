@@ -1,0 +1,1 @@
+Transitorio único: El Ministerio de Salud contará con un plazo de seis meses contado a partir de la publicación del presente Decreto Ejecutivo para la implementación de la Dirección de Transformación y Salud Digital.
