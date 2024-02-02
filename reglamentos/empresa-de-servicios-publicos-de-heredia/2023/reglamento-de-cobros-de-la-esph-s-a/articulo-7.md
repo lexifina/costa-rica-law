@@ -1,0 +1,2 @@
+Artículo 7º-Los procesos responsables de gestionar los cobros administrativos y/o judiciales, deberán definir anualmente el costo del proceso de cobro administrativo, incluyendo costas de notificación y traslados. En los casos que se determine que los costos de notificación son superiores a la deuda, se tramitarán como incobrables o al monto mínimo procesal se tramitarán como incobrables.
+Cada área será responsable de mantener actualizado los costos de notificación y traslado.

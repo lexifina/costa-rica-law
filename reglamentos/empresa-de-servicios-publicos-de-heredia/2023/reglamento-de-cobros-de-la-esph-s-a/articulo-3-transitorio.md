@@ -1,0 +1,1 @@
+3. Se autoriza readecuar los trámites de cobro administrativo y judicial de los casos pendientes que así lo requieran, según los procedimientos establecidos en este Reglamento independientemente del estado en que se encuentren, a fin de subsanar cualquier defecto o vicio de tramitación y a reiniciar el proceso de cobro administrativo de las cuentas cuando lo estimen necesario.

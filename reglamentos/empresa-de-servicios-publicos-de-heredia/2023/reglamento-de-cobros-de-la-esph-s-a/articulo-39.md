@@ -1,0 +1,1 @@
+Artículo 39.-En caso que la Gerencia General no exonere el cobro de la cuenta por cobrar, o de no llegarse a un acuerdo de pago con el ex trabajador, Gestión de Desarrollo Humano procederá a realizar el trámite de cobro administrativo según este reglamento.

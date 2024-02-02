@@ -1,0 +1,1 @@
+Artículo 26.-Gestión de Infraestructura y Servicios de Apoyo se regirá por lo indicado en el Reglamento de Servicios de Transportes de la ESPH S.A., aprobado mediante Acuerdo de Junta Directiva NºJD 019-2000 y publicado en La Gaceta Nº36 del 21 de febrero de 2002, y sus modificaciones.

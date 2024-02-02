@@ -1,0 +1,2 @@
+Artículo 29.- El convenio de pago con el trabajador deberá realizarse dentro del plazo de treinta días hábiles posteriores a la sentencia en firme o aceptación de responsabilidad.
+En caso de que el trabajador causante del daño no proceda con el pago respectivo, se remitirá con celeridad el caso a Gestión Jurídica, para que realice el trámite correspondiente de Cobro Judicial, conforme a lo que establece este reglamento.

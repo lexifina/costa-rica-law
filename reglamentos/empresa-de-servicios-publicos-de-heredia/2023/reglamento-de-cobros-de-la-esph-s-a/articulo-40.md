@@ -1,0 +1,2 @@
+Artículo 40.-En caso de que el extrabajador no pague la deuda o exista un saldo por cancelar, se remitirá a Gestión Jurídica toda la información correspondiente a lo adeudado y su concepto, para que se proceda con el trámite de cobro judicial o la recomendación jurídica que emitan al respecto para cada caso particular.
+Una vez completado el trámite anteriormente indicado Gestión Jurídica remitirá una copia de la sentencia firme o recomendación a Gestión de Desarrollo Humano. con el fin de documentar el cierre del proceso.

@@ -1,0 +1,1 @@
+Artículo 50.-En lo que respecta a convenios de pago por otros conceptos, su tramitación corresponderá a Gestión Financiera, conforme a las disposiciones previstas en los Artículos anteriores y a las directrices de la Gerencia o Subgerencia Administrativa, en su caso.

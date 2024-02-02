@@ -1,0 +1,2 @@
+5. Gestión Jurídica deberá realizar un proceso de capacitación a los funcionarios de las unidades encargadas del cobro administrativo, a fin de adiestrarlos en la práctica del debido proceso y forma de redacción y notificación de los diferentes actos del proceso de cobro judicial y de las garantías de arreglo de pago, acorde con este Reglamento, dentro del plazo de los siguientes seis meses posteriores a su aprobación.
+4º-Rige a partir de su publicación en el Diario Oficial La Gaceta.

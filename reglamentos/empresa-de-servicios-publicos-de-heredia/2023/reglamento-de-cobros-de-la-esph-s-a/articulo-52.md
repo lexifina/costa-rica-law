@@ -1,0 +1,1 @@
+Artículo 52.-Las Unidades que realicen arreglos o convenios de pago, deberán mantener una comunicación permanente con Gestión Jurídica, a fin de contar con su visto bueno sobre la forma en que se redactan y suscriben las respectivas garantías y convenios de pago.

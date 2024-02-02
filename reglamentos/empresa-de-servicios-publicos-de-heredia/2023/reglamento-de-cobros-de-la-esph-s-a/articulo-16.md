@@ -1,0 +1,1 @@
+Artículo 16.-En el oficio de cobro administrativo, notificado conforme a lo establecido en el Artículo 5 de este reglamento, se otorgará al emisor del cheque sin fondos, un plazo de ocho días hábiles para proceder al pago de la suma de capital, más el recargo indicado en el Artículo anterior.

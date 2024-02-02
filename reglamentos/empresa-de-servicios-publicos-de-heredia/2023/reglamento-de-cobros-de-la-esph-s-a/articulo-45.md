@@ -1,0 +1,1 @@
+Artículo 45.-Cuando se presente el caso de un deudor cuyo servicio contemple un convenio de pago con montos pendientes y se requiere hacer un cambio de nombre, el nuevo dueño deberá firmar una letra de cambio nueva, con el saldo del mismo y aceptar por medio de una nota el remanente de la deuda.

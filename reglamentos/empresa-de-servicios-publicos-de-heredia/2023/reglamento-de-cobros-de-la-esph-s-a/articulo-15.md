@@ -1,0 +1,2 @@
+Artículo 15.-En caso de pago mediante cheque Gestión Tesorería realizará los trámites de cobro con el objeto de hacer efectivo el mismo por parte del banco emisor, con excepción de cheques expedidos por el Banco de Costa Rica.
+Cuando se trate de cheques sin fondos deberán ser certificados por el banco. En caso de cheques sin fondos, adicional al saldo de capital estipulado en el cheque, la ESPH S.A. cobrará un recargo del 3% por concepto de gastos administrativos.

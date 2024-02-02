@@ -1,0 +1,2 @@
+DISPOSICIONES TRANSITORIAS
+1. Una vez aprobado este Reglamento y publicado en el Diario Oficial La Gaceta, las Unidades encargadas del cobro administrativo y judicial procurarán ir adaptando sus procedimientos a la nueva reglamentación, no obstante, continuará vigente por el plazo de seis meses el Reglamento de Políticas de Cobro de Cuentas de la ESPH S.A. aprobado mediante acuerdo JD-325- 2010, de la sesión 3119 del ocho de noviembre de dos mil diez.
