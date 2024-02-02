@@ -1,0 +1,3 @@
+Artículo 23. Servicios de capacitación abierta.
+La capacitación abierta es aquella en la que, se hace invitación al público en general y no la programada en atención a las necesidades puntuales de JASEC. Para el uso de esta excepción, es necesario efectuar un sondeo que considere a los potenciales oferentes idóneos del objeto, en un determinado momento. La decisión que se llegue a adoptar, deberá contener los motivos que acrediten a la opción elegida como la mejor para satisfacer la necesidad de la Administración.
+Las otras necesidades de capacitación específica y programadas que requieran de una contratación para esos fines, deberán observar los procedimientos ordinarios previstos en la Ley General de Contratación Pública y su reglamento.

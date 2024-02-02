@@ -1,0 +1,2 @@
+Artículo 18. Servicios en Competencia.
+Para la contratación de bienes, obras y servicios indicados en los artículos 68 inciso a) y 70 de la Ley General de Contratación Pública, la Administración deberá aplicar el procedimiento especial establecido en el numeral 68 de la misma, según los umbrales del régimen diferenciado. El paquete con la decisión inicial, deberá contener una justificación detallada de los motivos para acudir a este régimen especial de contratación.

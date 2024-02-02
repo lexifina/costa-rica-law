@@ -1,0 +1,6 @@
+TÍTULO III. RÉGIMEN RECURSIVO
+CAPÍTULO I. TIPOS DE RECURSOS
+Artículo 43. Recurso de Objeción
+En las licitaciones que no sobrepasen el umbral de la licitación menor, el recurso de objeción compete al Departamento Proveeduría y la resolución para responder el recurso de objeción, deberá ser firmada por el analista del concurso y la Jefatura del Departamento Proveeduría. La resolución puede rechazar de plano el recurso por inadmisible o resolver el fondo de manera positiva o negativa, de forma motivada.
+En la licitación menor, el plazo para resolver es de cinco días hábiles siguientes a la interposición del recurso y puede solicitarse dictamen técnico y/o jurídico, que deberá ser remitido en un plazo de tres días hábiles para emitir criterio. En la licitación reducida, el plazo para resolver es de tres días hábiles siguientes a la presentación del recurso y puede solicitarse dictamen técnico y jurídico correspondiente que deberá emitirse en un plazo de dos días hábiles.
+El recurso de objeción contra el pliego de condiciones de las licitaciones mayores se debe interponer ante la Contraloría General de la República, dentro del plazo de ocho días hábiles siguientes a la publicación del pliego de condiciones y será resuelto conforme lo establece la Ley General de Contratación Pública y su reglamento.

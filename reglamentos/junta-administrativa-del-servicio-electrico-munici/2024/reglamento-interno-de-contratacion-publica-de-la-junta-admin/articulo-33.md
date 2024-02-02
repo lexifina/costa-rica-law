@@ -1,0 +1,3 @@
+Artículo 33. Adjudicación fuera del plazo
+En todo procedimiento de contratación pública, cuyo acto final sea dictado fuera del plazo máximo fijado en el pliego de condiciones, pero antes del establecido por ley de seis meses, corresponde al Departamento Proveeduría preparar una cronología detallada, de todos los acontecimientos que originaron el incumplimiento del plazo y las justificaciones que correspondan, la cual debe ser incorporada en el mismo acto final.
+La Junta de Adquisiciones, debe trasladar el trámite a la Sub Gerencia o Gerencia General para evaluar la justificación correspondiente y determinar si hubo responsabilidad administrativa del personal a cargo para aplicar el régimen sancionatorio respective.

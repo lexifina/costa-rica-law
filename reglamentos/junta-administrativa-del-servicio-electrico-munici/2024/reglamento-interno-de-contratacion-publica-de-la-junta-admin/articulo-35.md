@@ -1,0 +1,3 @@
+Artículo 35. Cotización en moneda extranjera.
+Los oferentes pueden cotizar sus ofertas en moneda extranjera que, para efectos de comparación y determinación de razonabilidad de precios, deben ser convertidas a colones, utilizando el tipo de cambio de referencia para la venta, expresado por el Banco Central de Costa Rica, vigente al día del acto de apertura de las ofertas.
+En las adjudicaciones con pagos prorrateados, el administrador o fiscalizador del contrato, debe solicitar al Área Financiera realizar una proyección del total a pagarse en el plazo señalado por el pliego de condiciones, para determinar si resulta factible adquirir el compromiso económico, en razón de la disponibilidad presupuestaria.

@@ -1,0 +1,3 @@
+CAPÍTULO III CONTRATO DE DONACIÓN
+Artículo 80. Donación.
+La Junta Directiva de JASEC o a quien esta designe, puede autorizar la donación hacia instituciones públicas de bienes muebles e inmuebles, en el tanto los bienes no estén afectados a un fin público y la donación permita la satisfacción del interés público...... Los bienes muebles declarados en desuso o en mal estado se pueden donar a entidades públicas y privadas, de interés social o sin fines de lucro, previo avalúo elaborado por la Unidad e Avalúos de JASEC o, en su defecto, por la Dirección General de Tributación del Ministerio de Hacienda, de acuerdo con el valor real del mercado de los bienes, de conformidad con los artículos 199 al 202 del Reglamento de la Ley General de Contratación Pública.

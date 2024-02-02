@@ -1,0 +1,2 @@
+Artículo 72. Responsabilidades de los funcionarios de JASEC.
+La persona funcionaria de JASEC, que tenga responsabilidad comprobada por incumplir con las funciones y obligaciones definidas en el presente reglamento, ya sea por culpa o dolo, debe recibir la sanción correspondiente, de conformidad con el régimen de sanciones establecido en la Ley General Contratación Pública y su reglamento, sin perjuicio de las responsabilidades civiles o penales que puedan surgir.

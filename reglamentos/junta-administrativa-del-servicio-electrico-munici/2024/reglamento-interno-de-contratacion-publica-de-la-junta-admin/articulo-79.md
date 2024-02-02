@@ -1,0 +1,2 @@
+Artículo 79. Contratación de entrega según demanda.
+Aprovisionamiento de determinados bienes, sin cantidad determinada, cuya demanda varía según las necesidades de la Administración. La unidad solicitante debe aportar dentro del paquete de gestión: una proyección con base en el histórico de consumo, plazos mínimos de aviso al contratista para la siguiente entrega y los máximos en los que se debe entregar. Además, debe acreditar la razonabilidad del precio de las líneas a incluir, conforme al artículo 195 del Reglamento de la Ley General de Contratación Pública.

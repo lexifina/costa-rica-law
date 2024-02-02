@@ -1,0 +1,4 @@
+Artículo 34. Readjudicación.
+La insubsistencia del concurso debe ser declarada, si el adjudicatario no otorga la garantía de cumplimiento a plena satisfacción, no aporta el presupuesto de obra o no suscribe el contrato, debiendo dictarse la readjudicación dentro del plazo de diez días hábiles a partir del hecho generador de la declaratoria.
+La readjudicación de bienes y servicios, debe recaer en la segunda oferta mejor calificada y puede ser impugnada por todos los oferentes que participaron del concurso, excepto por el oferente declarado insubsistente.
+Las contrataciones de obras resueltas por incumplimiento contractual pueden ser readjudicadas por la Administración, invitando a los oferentes elegibles del concurso a ofertar para terminar las obras pendientes y en caso de no haber suficientes oferentes se puede recurrir a la licitación menor para finalizar el contrato.

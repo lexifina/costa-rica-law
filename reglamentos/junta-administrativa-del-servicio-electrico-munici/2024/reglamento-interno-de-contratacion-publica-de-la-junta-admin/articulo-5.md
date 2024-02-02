@@ -1,0 +1,2 @@
+Artículo 5: Sistema digital unificado de compras públicas
+Toda actividad de contratación pública deberá realizarse por medio del sistema digital unificado de compras públicas. La utilización de cualquier otro medio para la promoción de procedimientos de contratación acarreará su nulidad absoluta. Ante situaciones de caso fortuito o fuerza mayor, la Proveeduría debe acreditar esas circunstancias ante la Dirección de Contratación Pública para obtener la autorización respectiva y proceder con la contratación pública sin que medie el sistema

@@ -1,0 +1,6 @@
+CAPÍTULO III. PROCEDIMIENTOS DE EXCEPCIÓN
+Artículo 19. Requisitos Generales
+Para todas las contrataciones de los bienes y servicios en forma excepcional, de acuerdo con lo establecido en el artículo 3 de la Ley General de Contratación Pública, debe aportarse los siguientes documentos:
+a) Acta de decisión inicial, firmada por la jefatura del área solicitante, para aquellas contrataciones cuyo umbral no sobrepase la Licitación Menor; por otra parte, para el caso de Licitaciones Mayores estas actas serán aprobadas por la Gerencia General.
+b) Justificación motivada por la documentación técnica y financiera para sustentar el uso de la excepción, conforme a los requerimientos específicos para la aplicación de cada una de las excepciones reguladas en la Ley No.9986, para demostrar que esta vía es la mejor para satisfacer el interés público.
+c) Formulario PALI.PR1.FM20 Guía para elaborar estudios referenciales de precios, a partir del estudio de mercado que considere los potenciales oferentes idóneos del objeto que se pretende contratar, conforme lo dispone el punto 15 del artículo 5 de este reglamento, mediante exploración de la plataforma SICOP, solicitud de cotizaciones individuales o recopilación de datos en fuentes de información confiables.

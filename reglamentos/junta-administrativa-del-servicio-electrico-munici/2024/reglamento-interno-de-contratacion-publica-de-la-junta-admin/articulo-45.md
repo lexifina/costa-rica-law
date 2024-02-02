@@ -1,0 +1,4 @@
+Artículo 45. Apelación.
+El recurso de apelación, cabe ante la Contraloría General de la República contra el acto de adjudicación, el que declara desierta o infructuosa una licitación mayor, dentro del plazo de ocho días hábiles siguientes a la publicación del acto. La interposición del recurso tiene efecto suspensivo en el proceso de la contratación.
+En caso de admitir la apelación para trámite, la Administración debe aportar sus alegatos y elementos probatorios dentro del plazo otorgado por el ente contralor, que debe resolver dentro de los treinta días siguientes de recibidos los descargos de las partes.
+En caso de ser declarado con lugar el recurso de apelación, la Administración cuenta con un plazo de quince días hábiles para re adjudicar, en los casos que así corresponda, solo en casos excepcionales este plazo puede prorrogarse por un período igual.

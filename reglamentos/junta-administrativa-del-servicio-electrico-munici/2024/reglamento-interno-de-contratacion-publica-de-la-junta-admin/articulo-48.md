@@ -1,0 +1,5 @@
+CAPÍTULO II EJECUCIÓN CONTRACTUAL
+Artículo 48. Modificación Unilateral
+Las modificaciones unilaterales de las contrataciones cuyo umbral no supere las licitaciones menores, deberán ser aprobadas por los Directores de Negocio y/o Jefatura del Área de Servicios Administrativos, según la materia de contratación en trámite.
+Las modificaciones contractuales para las licitaciones mayores y de obra pública deberán ser aprobadas por la Gerencia General o Subgerencia.
+Es responsabilidad del administrador o fiscalizador solicitar y acreditar el cumplimiento de los requisitos y condiciones que establece el artículo 101 de la Ley General de Contratación Pública y deberá el Departamento Proveeduría verificar el cumplimiento de los requisitos contenidos en el artículo 276 del Reglamento a la Ley General de Contratación Pública..... La modificación contractual no puede superar el veinte por ciento (20%) del monto y el plazo del contrato original, porcentaje que puede alcanzar el 50% de la adjudicación original, en circunstancias excepcionales ocasionadas por causas de fuerza mayor o caso fortuito, debidamente comprobadas.

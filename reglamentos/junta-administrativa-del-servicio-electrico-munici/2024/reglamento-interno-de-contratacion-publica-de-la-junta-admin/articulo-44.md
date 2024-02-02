@@ -1,0 +1,4 @@
+Artículo 44. Recurso Revocatoria.
+La interposición de recurso de revocatoria cabe en licitación menor, subasta inversa electrónica, nueva adjudicación de suministros de bienes o servicios, reducida y procedimientos especiales. Se presenta en el sistema digital unificado vigente dentro de los cinco días hábiles siguientes a la comunicación del acto.
+El Departamento Proveeduría tendrá un plazo de tres días para rechazar el recurso por inadmisible o admitirlo para trámite, en cuyo caso dará audiencia por cinco días al adjudicado y demás oferentes para que se manifiesten. El recurso deberá ser resuelto en un plazo máximo de diez días hábiles y el Departamento Proveeduría podrá solicitar criterios técnicos y jurídicos, si lo considera necesario.
+La Administración cuenta con un plazo de diez días hábiles para re adjudicar y de forma excepcional este plazo puede prorrogarse por un plazo de cinco días hábiles adicionales..

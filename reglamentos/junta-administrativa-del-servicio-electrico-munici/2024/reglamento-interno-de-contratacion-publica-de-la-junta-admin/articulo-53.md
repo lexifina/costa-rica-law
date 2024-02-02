@@ -1,0 +1,2 @@
+Artículo 53. Prórroga al plazo de ejecución.
+Compete a la jefatura del Departamento Proveeduría, autorizar mediante resolución motivada, prórrogas al plazo de ejecución del contrato, todo de conformidad con lo regulado en el numeral 281 Reglamento a la Ley General Contratación Pública 9986. El administrador o fiscalizador del contrato debe aportar un informe que verifique las causas de fuerza mayor o caso fortuito que justifican la prórroga del plazo de entrega inicialmente pactado.

@@ -1,0 +1,2 @@
+Artículo 50. Pago.
+El pago de las obligaciones contractuales debe apegarse al plazo definido en el pliego de condiciones, el cual no puede superar treinta días naturales. Este plazo corre a partir de la presentación de la factura electrónica, previa verificación del cumplimiento a satisfacción, certificado en el Acta de Recepción parcial o definitiva, según corresponda en los términos los artículos 108 y 109 de la Ley No.9986.

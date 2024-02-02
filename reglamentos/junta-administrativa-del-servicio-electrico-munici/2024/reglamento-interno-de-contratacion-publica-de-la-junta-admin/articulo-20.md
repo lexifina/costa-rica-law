@@ -1,0 +1,2 @@
+Artículo 20. Contratación con entes de derecho público.
+Esta contratación requiere un pliego de condiciones que describa el objeto contractual, la documentación suficiente para acreditar la idoneidad del ente a contratar, los alcances de la contratación con la descripción de los deberes y responsabilidades de cada parte y la verificación del cumplimiento de estos requisitos por parte del gestor del contrato, de conformidad con lo establecido en la Ley 9986.

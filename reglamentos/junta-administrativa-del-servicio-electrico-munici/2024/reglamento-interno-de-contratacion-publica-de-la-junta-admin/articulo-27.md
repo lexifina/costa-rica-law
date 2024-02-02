@@ -1,0 +1,4 @@
+CAPÍTULO IV. ASPECTOS GENERALES PROCEDIMIENTOS
+Artículo 27. Publicidad de la Información.
+Los expedientes generados para cada contratación tienen carácter público y pueden ser accedidos por cualquier interesado, solamente tienen acceso restringido los documentos que hayan sido declarados confidenciales. La solicitud del oferente para declarar confidencial alguna parte de la oferta, debe acompañarse de la indicación expresa de los documentos o folios que requieren la confidencialidad, junto con la debida motivación legal que permita a la Administración proceder con la declaratoria.
+La Proveeduría será competente para dictar el acto motivado, dentro del plazo señalado por el artículo 15 de la Ley General de la Contratación Administrativa, sirviéndose de la asesoría técnica y/o jurídica respectiva, para aprobar o rechazar la petición.

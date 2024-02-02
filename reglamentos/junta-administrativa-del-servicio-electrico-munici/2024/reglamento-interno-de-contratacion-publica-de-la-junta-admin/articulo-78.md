@@ -1,0 +1,2 @@
+Artículo 78. Contratación por Consignación.
+El gestor del contrato debe aportar con el paquete de gestión la justificación para optar por la contratación por consignación, además, debe incluir en el pliego de condiciones mecanismos que permitan variar los precios originales, conforme lo dispuesto por el artículo 43 de la Ley General de Contratación Pública y el artículo 194 del Reglamento de la Ley General de Contratación Pública.

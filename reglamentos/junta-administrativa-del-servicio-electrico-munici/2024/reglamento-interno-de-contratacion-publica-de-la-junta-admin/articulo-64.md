@@ -1,0 +1,3 @@
+Artículo 64. Denuncias por malas prácticas o hechos de corrupción.
+La denuncia por un hecho de corrupción o malas prácticas de la contratación administrativa, debe ser atendida por la jefatura del Departamento Proveeduría, quien debe realizar una valoración de los hechos y las pruebas, para aplicar el Debido Proceso al contratista conforme lo dispone la Ley General de Contratación Pública.
+La denuncia que involucre a un funcionario, debe ser enviada a la Gerencia General, con el fin de conformar una investigación previa para proceder de conformidad con la regulación de la Ley General de Administración Pública y el Reglamento Autónomo de JASEC.

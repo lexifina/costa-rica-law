@@ -1,0 +1,4 @@
+Artículo 13. Junta de Adquisiciones Licitación Mayor
+Para las Licitaciones Mayores, la Junta de Adquisiciones se integrará por tres titulares bajo el siguiente orden: Jefatura del Departamento Proveeduría quien la presidirá, Director de Negocio y la Jefatura de Área de quien solicitó el trámite.
+En caso de ausencia debidamente justificada, el titular será sustituido por la Sub Gerencia o por quien asigne la Gerencia General.
+El Departamento Proveeduría será el responsable de convocar a sesión para la firma de la adjudicación y el acto final que deberá ser publicado en el sistema digital unificado vigente.. El plazo de recepción de ofertas es de al menos quince días hábiles (art. 145 del reglamento a la Ley 9986), dependiendo de la complejidad, este debe incluir las dos modificaciones al pliego de condiciones que la ley faculta y la duración del concurso se establece en el formulario PALI.PR1.FM16 Cronograma de tiempos de licitaciones.

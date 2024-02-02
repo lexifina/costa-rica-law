@@ -1,0 +1,2 @@
+Artículo 38. Pymes
+El Departamento Proveeduría mediante el analista del concurso designado, deberá verificar que, dentro del pliego de condiciones se otorgue un valor adicional a la participación de las Pymes, dentro de los factores de evaluación utilizados para calificar las ofertas, de acuerdo a las estrategias y políticas emitidas por la Autoridad de Contratación Pública y el Ministerio de Economía, Industria y Comercio, conforme lo dispuesto en el artículo 23 de la Ley General de Contratación Pública.

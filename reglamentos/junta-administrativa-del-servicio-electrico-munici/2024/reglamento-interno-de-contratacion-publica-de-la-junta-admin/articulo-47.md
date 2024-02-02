@@ -1,0 +1,4 @@
+Artículo 47. Aprobación interna y refrendo.
+Una vez firme el acto adjudicación, el Departamento Proveeduría debe remitir solicitud a la Asesoría Jurídica o a la Contraloría General de la República para obtener refrendo interno o refrendo contralor según corresponda, conforme al Reglamento de Refrendo R-5-2007-CO-DCA, emitido por el ente contralor.
+El refrendo interno es otorgado por la Asesoría Jurídica de JASEC, para licitación mayor no sujeta a refrendo contralor y licitación menor, en el tanto el precio contractual alcance el límite inferior vigente para la aplicación de dicho procedimiento.
+El refrendo contralor es otorgado por la Contraloría General de la República, para toda licitación contemplada en los tipos descritos en el artículo 3 del Reglamento de Refrendo No. R-5-2007-CO-DCA.

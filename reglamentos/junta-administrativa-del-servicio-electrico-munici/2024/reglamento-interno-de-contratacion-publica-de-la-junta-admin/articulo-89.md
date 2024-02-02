@@ -1,0 +1,2 @@
+Artículo 89. Resolución de controversias en sede administrativa.
+Las controversias surgidas durante la ejecución contractual, no susceptibles de solución por negociación directa entre las partes, pueden ser sometidas a un comité de expertos sin que la ejecución del contrato se vea suspendida, esto de conformidad con lo que disponen los numerales 294, 295 y 296 del Reglamento de la Ley General Contratación Pública.

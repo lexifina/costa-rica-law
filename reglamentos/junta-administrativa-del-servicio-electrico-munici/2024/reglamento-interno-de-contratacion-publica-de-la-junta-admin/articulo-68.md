@@ -1,0 +1,3 @@
+Artículo 68. Fragmentación.
+La fragmentación deliberada para la adquisición de bienes, servicios y obras, con el propósito específico de evadir el procedimiento concursal que corresponde seguir, de acuerdo a los umbrales establecidos para las licitaciones o mediante caja chica, conlleva la aplicación del procedimiento contemplado en el artículo 125 inciso w) de la Ley No.9986 ley general de contratación pública.
+Es deber de quien conozca la comisión de actos que incurran en las causales de la fragmentación, denunciar de inmediato a la administración superior, para gestionar la investigación y procedimiento disciplinario respective.

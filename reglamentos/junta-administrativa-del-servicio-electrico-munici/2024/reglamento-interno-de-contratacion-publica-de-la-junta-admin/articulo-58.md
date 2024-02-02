@@ -1,0 +1,3 @@
+Artículo 58. Recepción provisional del objeto contractual.
+El administrador o fiscalizador del contrato es responsable de verificar el objeto contractual entregado por el contratista dentro del plazo y en el lugar pactados y debe levantar un acta de recepción provisional, indicando las condiciones de entrega, para consignar el cumplimiento o incumplimiento detectado. En último caso debe reportar a la Proveeduría el defecto o retraso en la ejecución contractual, para que esta proceda con la aplicación de la cláusula penal o la multa respectivamente.
+De acuerdo con los términos de los artículos 284, 286 y 287 del Reglamento a la Ley General de Contratación Pública y los artículos 108 y 109 Ley N°9986.

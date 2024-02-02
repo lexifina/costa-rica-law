@@ -1,0 +1,6 @@
+Artículo 41. Confección y firma de la Orden de Compra.
+Las órdenes de compra cuyo umbral no supere la licitación reducida serán firmadas por dos profesionales del Departamento Proveeduría. Para la licitación menor, serán firmadas por un profesional del Departamento Proveeduría y la Jefatura del Departamento Proveeduría. En ausencia de la Jefatura del Departamento Proveeduría, la orden de compra será firmada por la Jefatura del Área de Servicios Administrativos.
+En ausencia de la Jefatura del Departamento Proveeduría y la Jefatura del Área de Servicios Administrativos, la orden de compra será firmada por un Director de Negocio.
+Los contratos asociados a licitaciones mayores serán firmados por la Gerencia General o Subgerencia y quien ostente la representación legal.
+Una vez firme el acto de adjudicación y recibida la garantía de cumplimiento cuando esta proceda, el Departamento Proveeduría debe confeccionar la orden de compra y tramitar las firmas correspondientes en un plazo no mayor a seis días hábiles.
+Cuando se requiera de una Certificación Presupuestaria, el Departamento de Presupuesto y Control dispondrá de un plazo de dos días hábiles para producirla, y el Departamento Proveeduría tendrá un plazo de dos días para notificar la orden de compra en el sistema digital unificado.

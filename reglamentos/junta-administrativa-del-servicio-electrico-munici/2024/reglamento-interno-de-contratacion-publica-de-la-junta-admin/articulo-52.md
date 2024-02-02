@@ -1,0 +1,7 @@
+Artículo 52. Devolución de Garantía.
+La devolución de la garantía de cumplimiento, debe efectuarse en un plazo máximo de veinte días hábiles siguientes, contados a partir de la recepción definitiva y satisfactoria del objeto contractual. Para proceder con la devolución de la garantía de cumplimiento, debe considerarse:
+a) La custodia de la garantía de cumplimento es responsabilidad del Departamento Tesorería y conforme al control del sistema digital unificado vigente.
+b) El sistema digital unificado avisa al administrador o fiscalizador del contrato con anticipación, del vencimiento del título valor y es responsabilidad de este, mantenerla vigente durante la ejecución contractual
+c) El administrador o fiscalizador del contrato, debe gestionar la devolución de la garantía de cumplimiento en el sistema digital unificado, mediante oficio que detalle las razones para devolver la garantía al contratista.
+d) El Departamento Tesorería efectúa la devolución de la garantía de cumplimiento al contratista, conforme la solicitud recibida
+Al verificar un incumplimiento contractual por parte del contratista, el fiscalizador o administrador del contrato está en la obligación de solicitar la ejecución de la garantía aportando un informe que indique el incumplimiento detectado, las pruebas en las que se fundamenta la gestión, la estimación del daño y el monto por el cual se ejecutará la garantía, ante el Departamento Proveeduría.

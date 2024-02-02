@@ -1,0 +1,6 @@
+CAPÍTULO III. CONFORMACIÓN DE JUNTA DE ADQUISICIONES
+Artículo 10. Junta de Adquisiciones para actividad contractual exceptuada.
+En la licitación Reducida, la Junta de Adquisiciones estará integrarse por tres miembros titulares de la siguiente forma: dos profesionales nivel 2 y la jefatura del Departamento Proveeduría. En ausencia de alguno de los integrantes, este será sustituido de la siguiente forma: en caso de ausencia de los profesionales de Proveeduría, por otro de igual rango y en ausencia de la jefatura de Proveeduría, por la jefatura de Área que solicitó el trámite.
+En las licitaciones Menores y Mayores, la Junta de Adquisiciones se integrará con tres miembros titulares bajo el siguiente orden: Jefatura del Departamento Proveeduría, Jefe de área de quien tramitó la solicitud y Director de Negocio. En ausencia o ante la inhibición justificada de alguno de éstos, compete a la Subgerencia o la Gerencia, la designación del sustituto.
+La Junta de Adquisiciones se apoyará en informes técnicos, legales, financieros que correspondan.
+El Departamento de Proveeduría será el responsable de convocar a sesión para la discusión, aprobación y rúbrica del Acto Final. Lo anterior, igualmente corresponderá en materia de re adjudicaciones.

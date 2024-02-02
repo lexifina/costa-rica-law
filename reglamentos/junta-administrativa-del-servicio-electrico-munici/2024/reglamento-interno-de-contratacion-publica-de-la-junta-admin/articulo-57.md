@@ -1,0 +1,2 @@
+Artículo 57. Reclamos administrativos en contratos.
+Para tramitar los reclamos administrativos generados durante la ejecución contractual, que no estén previstas en las formas de reajuste o revisión de precio, el contratista debe aportar toda la documentación comercial y prueba idónea en la que sustenta el reclamo, para la valoración respectiva de la dependencia técnica y en caso de aceptación del reclamo planteado, la consecuente gestión de pago o indemnización según corresponda.

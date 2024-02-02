@@ -1,0 +1,3 @@
+CAPÍTULO II. DE LA PROVEEDURÍA
+Artículo 7. Departamento Proveeduría
+El Departamento Proveeduría es la dependencia competente y responsable de tramitar, asesorar y dar soporte en los procedimientos institucionales de contratación administrativa. Para el cumplimiento de sus competencias, la Administración deberá suministrar todos los recursos humanos y materiales que necesite, para la materia de contratación administrativa. Para el eficiente y eficaz cumplimiento de las funciones del Departamento Proveeduría, todas las demás unidades administrativas de la empresa de tipo técnico, jurídico, contable, financiero, presupuestario, informático y de cualquier otro orden, están obligadas a brindarle colaboración y asesoría en el cumplimiento de sus cometidos.

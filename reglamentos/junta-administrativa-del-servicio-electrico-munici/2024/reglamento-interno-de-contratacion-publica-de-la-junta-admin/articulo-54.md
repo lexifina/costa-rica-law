@@ -1,0 +1,4 @@
+Artículo 54. Prórroga de contrato.
+El fiscalizador o administrador del contrato con previa anuencia del contratista debe presentar con dos meses de anticipación al vencimiento del plazo contractual, solicitud de prórroga ante el Departamento de Proveeduría, según lo estipulado en el numeral 280 del Reglamento a la Ley General Contratación Pública. La solicitud de prórroga debe acompañarse de un informe técnico que justifique la realización de esta gestión.
+En los contratos con prórrogas automáticas el fiscalizador deberá notificar al contratista y al Departamento Proveeduría, la no continuidad del contrato, con dos meses de anticipación al vencimiento del plazo contractual.
+El Departamento Proveeduría deberá incluir en el sistema digital unificado vigente, todas las gestiones relativas a las prórrogas para mantener actualizado los plazos, controles y alertas..

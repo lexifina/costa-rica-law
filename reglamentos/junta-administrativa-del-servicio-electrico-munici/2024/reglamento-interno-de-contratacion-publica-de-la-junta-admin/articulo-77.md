@@ -1,0 +1,2 @@
+Artículo 77. Contratación por Cantidad Definida.
+El gestor del contrato, debe consignar en el paquete de gestión, de forma expresa la cantidad específica, previamente definida, de bienes muebles requeridos e indicar si se trata de una única entrega o varias entregas parciales. El pliego de condiciones debe requerir al oferente presentar su cotización considerando la cantidad total definida y su costo unitario, según el artículo 193 del Reglamento de la Ley General de Contratación Pública.
