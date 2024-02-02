@@ -1,0 +1,2 @@
+Transitorio VII.- Mientras se realizan los ajustes en el Sistema de Registro y Control de Activos, las Unidades de Adquisiciones y Contrataciones, Servicios Generales, Unidad Financiera y Tecnologías de Información, deberán confeccionar los procedimientos que en forma manual les permita a los directores de Junta Directiva realizar solicitudes fuera del sistema SAF.
+(Así adicionado mediante sesión N° 05-2024 del 2° de febrero del 2024)
