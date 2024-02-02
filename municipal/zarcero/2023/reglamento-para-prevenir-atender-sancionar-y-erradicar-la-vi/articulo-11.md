@@ -1,0 +1,9 @@
+Artículo 11.-Acciones preventivas a cargo de la Alcaldía. Corresponde a la Alcaldía impulsar las siguientes acciones:
+Elaborar la política de prevención, atención, sanción y erradicación de la violencia contra las mujeres en la política, que defina, al menos, las acciones, responsabilidades y competencias de las diferentes instancias municipales, y someterla a aprobación ante el Concejo Municipal.
+Designar en el Departamento de Desarrollo Social de la Municipalidad de Zarcero, como órgano técnico, lo relacionado al cumplimiento del numeral 8 de la Ley 10235. Al respecto, en caso de que resulte necesario, podrá conformar un equipo de trabajo interno administrativo que coadyuve en dicha función al área técnica y el cual podrá estar integrado por el Departamento Legal y el Departamento de Recursos Humanos.
+Elaborar y aprobar un protocolo dirigido a las diferentes instancias municipales para facilitar la aplicación y los alcances de este reglamento, detallando los procedimientos disciplinarios, principios, derechos y responsabilidades, con el objetivo de impulsar su efectivo cumplimiento.
+Asumir la responsabilidad de difundir información relacionada con los alcances de la ley 10.235 y de este reglamento.
+Diseñar y ejecutar capacitaciones y procesos de formación permanentes y periódicas sobre igualdad de género y prevención de la violencia contra las mujeres en la política, dirigidas a todo el personal administrativo y profesional incluido al funcionariado municipal de nuevo ingreso.
+Impulsar otras acciones afirmativas para garantizar la efectiva igualdad entre mujeres y hombres que prevenga toda forma de violencia y discriminación basada en la condición del género.
+Incluir en el informe anual de rendición de cuentas la ejecución y cumplimiento de las obligaciones presentes en la Política.
+Implementar otras acciones idóneas, pertinentes y efectivas para el cumplimiento de los objetivos de la ley N° 10.235 y de este reglamento.
