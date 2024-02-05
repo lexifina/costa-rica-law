@@ -1,3 +1,2 @@
-Artículo 23.—En caso de una resolución desfavorable, el solicitante tiene derecho, si así lo considera, a interponer recurso de revocatoria ante la Junta Directiva según los plazos de ley.
-Si la Junta Directiva mantiene un criterio desfavorable, el interesado tiene derecho a interponer un recurso de apelación ante la Asamblea General.
-(Así reformado mediante Asamblea General Extraordinaria celebrada el 29 de julio de 2019)
+Artículo 23.-En caso de una resolución desfavorable, el solicitante tiene derecho, si así lo considera, a interponer recurso de revocatoria ante la Junta Directiva en el plazo de 5 días hábiles, a partir de la notificación de lo resuelto. Si la Junta Directiva al dictar su resolución mantiene un criterio desfavorable, el interesado tiene derecho a interponer un recurso de apelación ante la Asamblea General, en el mismo plazo.
+(Así reformado en Asamblea General Extraordinaria del 05 de febrero de 2024)
