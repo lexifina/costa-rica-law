@@ -1,6 +1,6 @@
 # Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial
 
-Ley N° 9078 del 2012-10-04. SINALEVI, ficha 73504: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=73504&param2=138748&param3=1>.
+Ley N° 9078 del 2012-10-04. SINALEVI, ficha 73504: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=73504&param2=139716&param3=1>.
 
 Publicada en La Gaceta N° 207 del 2012-10-26.
 
@@ -29,3 +29,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 19 de 31 | 2022-11-06 | Ley 10182 | 2022-05-05 |
 | 20 de 31 | 2023-12-13 | Ley 10387 | 2023-11-14 |
 | 21 de 31 | 2023-12-13 | Ley 10402 | 2023-11-14 |
+| 22 de 31 | 2024-02-05 | Ley 10431 | 2023-12-13 |
