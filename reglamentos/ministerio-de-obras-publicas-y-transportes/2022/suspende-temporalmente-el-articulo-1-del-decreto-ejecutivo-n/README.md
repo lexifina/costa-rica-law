@@ -14,3 +14,4 @@ Suspende temporalmente el artículo 1° del decreto Ejecutivo N° 38238 "Reglame
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-10-21 | la propia norma |
+| 2 | 2024-02-05 | Resolución 166 (2024-02-05) |
