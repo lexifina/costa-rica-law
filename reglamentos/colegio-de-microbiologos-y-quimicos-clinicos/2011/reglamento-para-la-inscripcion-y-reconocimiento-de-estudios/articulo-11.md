@@ -1,4 +1,4 @@
-Artículo 11.—Para facilitar el reconocimiento de los diferentes posgrados mencionados en los artículos 7, 8, 9 y 10 de este Reglamento se tendrán las siguientes áreas de especialización.
+Artículo 11.-Para facilitar el reconocimiento de los diferentes posgrados mencionados en los artículos 7, 8, 9 y 10 de este Reglamento se tendrán las siguientes áreas de especialización.
 (Así reformado el párrafo anterior en sesión N° 01 del 21 de julio de 2018)
 a) Área de especialización de la Microbiología: Se incluyen aquí estudios enfocados al diagnóstico de enfermedades infecciosas en humanos, animales y plantas; así como también aquellos enfocados al aseguramiento de la inocuidad de alimentos y bebidas y al monitoreo de la calidad del agua, ambiente e industria. Se reconocen títulos obtenidos en Bacteriología-Micología-Virología Médica o Veterinaria, Enfermedades Zoonóticas, Enfermedades Infecciosas, Zoonosis, Microbiología, Microbiología de Aguas, Microbiología de Alimentos, Microbiología Industrial, Microbiología Veterinaria, Microbiología de Suelos y Agrícola, Microbiología Ambiental, Microbiología de Plantas y Fitopatología.
 b) Área de especialización de los Análisis Clínicos: Se incluyen aquí estudios enfocados al diagnóstico de enfermedades no infecciosas de humanos y animales se reconocen los títulos obtenidos en Química Clínica, Bioquímica Clínica, Toxicología, Toxinología y Toxonología Clínica, Hematología, Patología y Fisiopatología, Toxicología-Bioquímica Clínica-Hematología Veterinaria.
@@ -20,3 +20,5 @@ Especialista en Reproducción Asistida Humana, con énfasis en Manejo de Técnic
 (Así adicionada la especialidad anterior mediante sesión N° 15:2015-2016 del 7 de julio del 2015)
 Bioinformática y Biología de Sistemas
 (Así adicionada la especialidad anterior mediante sesión N° 36:2015-2016 del 1° de diciembre del 2015)
+Especialización Bioética "Estudios Biomédicos"
+(Así adicionada la especialidad anterior mediante sesión N° 30:2023-2024 del 5 de febrero de 2024)

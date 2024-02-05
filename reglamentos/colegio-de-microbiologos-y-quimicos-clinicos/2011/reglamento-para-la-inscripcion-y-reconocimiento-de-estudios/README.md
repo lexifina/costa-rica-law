@@ -20,3 +20,4 @@ Reglamento para la Inscripción y Reconocimiento de Estudios de Posgrado del Col
 | 5 | 2015-12-01 | Reglamento 36 (2015-12-01) |
 | 6 | 2018-01-18 | Reglamento 40 (2018-01-18) |
 | 7 | 2018-07-21 | Reglamento 1 (2018-07-21) |
+| 8 | 2024-02-05 | Reglamento 30 (2024-02-05) |
