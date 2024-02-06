@@ -1,0 +1,2 @@
+Artículo 4º-Que dicha Comisión será convocada por la persona presidente para sesionar la primera semana de febrero de cada año, a efecto de integrar un Comité Operativo Interinstitucional anual, el cual deberá abarcar todas y cada una de las áreas que derivan de las necesidades, acciones y demás coordinaciones propias de dicha actividad.
+La Comisión de Enlace hará una formal invitación a las organizaciones privadas auxiliares, verbigracia, Cruz Roja Costarricense, operadores del transporte público, Organizaciones No Gubernamentales, para que integren tal Comité.

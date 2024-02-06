@@ -1,0 +1,1 @@
+Artículo 3º-Que, en aras de coordinar las acciones pertinentes, se insta a las personas que ocupen los cargos de Alcaldes en las Municipalidades de San José, Curridabat, Cartago y La Unión, a integrar y participar en la Comisión de Enlace Interinstitucional para la Atención Integral de la Romería hacia la Basílica de Los Ángeles en la Provincia de Cartago.
