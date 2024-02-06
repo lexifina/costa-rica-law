@@ -1,0 +1,7 @@
+CIRCULAR N° 30-2024
+Asunto: Aclaración de la circular N° 334-2023 denominada: "Disposiciones sobre la aplicación del teletrabajo en la Jurisdicción Civil y cantidad de días máximos que se puede teletrabajar".
+A TODOS LOS DESPACHOS JUDICIALES QUE CONOCEN MATERIA CIVIL
+SE LES HACE SABER QUE:
+El Consejo Superior en sesión N° 6-2024 celebrada el 25 de enero de 2024, artículo XXI, declaró con lugar el recurso de reconsideración interpuesto por las personas juzgadoras del Juzgado Especializado de Cobros del Segundo Circuito Judicial de San José, aclarándoseles que si bien el acuerdo adoptado por este Consejo en sesión N° 100-2023 celebrada el 30 de noviembre de 2023, artículo XVII, establece que los Juzgados de Cobro, en su generalidad, se les autoriza para teletrabajar tres días y dos presenciales, ello aplica para juzgados cuya estructura es de menos de 4 jueces, tal y como se indica en las observaciones que hace la Comisión de la Jurisdicción Civil y como se desprende claramente del informe rendido por la Comisión de Teletrabajo PJ-DGH-PT-0099 -2023 del 12 de junio de 2023, que recomienda cuatro días teletrabajables y un día presencial en función de la cantidad de personas juzgadoras adscritas al despacho. Por lo que aquellos juzgados cuya estructura es mayor a 4, pueden realizar 1 día de trabajo presencial y 4 de teletrabajo.
+Publíquese una vez en el Boletín Judicial.
+San José, 06 de febrero de 2024.
