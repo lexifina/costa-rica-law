@@ -1,0 +1,1 @@
+Artículo 21.- Inicio del procedimiento. Cuando la Proveeduría, apruebe la solicitud de pedido de la contratación, procederá a dar inicio al procedimiento respectivo, para lo cual tomará en cuenta la estimación de la contratación.

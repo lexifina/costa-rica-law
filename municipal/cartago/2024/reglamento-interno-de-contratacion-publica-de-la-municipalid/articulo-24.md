@@ -1,0 +1,1 @@
+Artículo 24. Modificación, prórrogas y aclaraciones al de condiciones. La Proveeduría deberá gestionar y publicar, en coordinación con las Unidades solicitantes y técnicas, las modificaciones, prórrogas y aclaraciones al pliego de condiciones, conforme a los plazos definidos para cada procedimiento licitatorio. Artículo 93 RLGCP.

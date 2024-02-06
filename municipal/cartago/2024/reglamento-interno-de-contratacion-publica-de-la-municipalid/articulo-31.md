@@ -1,0 +1,1 @@
+Artículo 31.- Del refrendo interno. El refrendo interno es un acto de aprobación, por lo que funge como un requisito de eficacia del contrato administrativo. El mismo estará a cargo del Área Jurídica Municipal.

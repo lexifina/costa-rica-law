@@ -1,0 +1,1 @@
+Artículo 23.- Publicación y contenido de la invitación al concurso. La Proveeduría será la encargada de garantizar la oportuna y debida publicación del pliego de condiciones en el SDU, tomando en cuenta los requerimientos definidos en el artículo 92 del RLGCP.

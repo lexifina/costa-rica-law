@@ -1,0 +1,1 @@
+Artículo 35.- Finiquito del contrato. El Administrador del Contrato será el encargado de gestionar el finiquito de los contratos bajo su responsabilidad, independientemente del tipo de contrato del que se trate. Artículo 11 LGCP y 190, 291 RLGCP

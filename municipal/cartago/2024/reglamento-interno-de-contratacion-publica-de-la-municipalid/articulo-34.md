@@ -1,0 +1,1 @@
+Artículo 34.- Recepción, almacenamiento y entrega. Para la recepción de los bienes, servicios u obras, el Administrador del Contrato, deberá seguir los procedimientos definidos en los artículos 188, 189, 284 y 285 del RLGCP:

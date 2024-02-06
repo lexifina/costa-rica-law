@@ -1,0 +1,11 @@
+Artículo 11.- De la Tesorería. La Tesorería tendrá las siguientes funciones relacionadas con los procesos de contratación:
+a) Gestionar la incorporación de documentos que se encuentren bajo su responsabilidad, en el SDU, en la forma y plazos establecidos en la normativa y en el módulo que corresponda. Artículo 29 RLGCP.
+b) Atender las consultas que se formulen relacionada con un procedimiento de contratación pública, cuando por la naturaleza de sus funciones tenga relación con estos.
+c) Llevar el control de las vigencias de las garantías (cumplimiento, colaterales), tanto las que se encuentran custodiadas en formato físico, como las depositadas en el SDU, relacionadas con los procedimientos de contratación administrativa.
+d) Realizar el trámite correspondiente para hacer efectiva la garantía de forma preventiva cuando, notificado el Contratista de que prorrogue la vigencia de esta, y no proceda con el trámite respectivo. Sí un día hábil antes del vencimiento de la garantía, el Contratista no ha prorrogado su vigencia, la Municipalidad podrá hacerla efectiva en forma preventiva y mantener el dinero en una cuenta bajo su custodia, el cual servirá como medio resarcitorio en caso de incumplimiento. En este caso el Contratista podrá presentar una nueva garantía sustitutiva del dinero.
+e) Gestionar la sustitución y devolver las garantías de cumplimiento o de cualquier otra índole, que respaldan la correcta ejecución de los contratos o en su defecto ejecutar las garantías cuando la ejecución del contrato no se encuentre en un nivel aceptable de finalización para efectuar la recepción provisional
+f) Tramitar la sustitución y devolución de Garantía de cumplimiento y retenciones, en coordinación con la Proveeduría y el Administrador del. Artículos 112 y 113 RLGCP.
+g) Atender las directrices y procedimientos emitidos por la Proveeduría en relación con los procesos de compra.
+h) Realizar los pagos correspondientes de los procedimientos de contratación, siempre y cuando las facturas cuenten con el aval del Administrador del Contrato.
+i) Tramitar las cesiones de derechos de pago. Artículo 278 RLGCP.
+j) Cualquier otra derivada de la Ley General de Contratación Pública, Nº 9986, su Reglamento y normativa conexa.

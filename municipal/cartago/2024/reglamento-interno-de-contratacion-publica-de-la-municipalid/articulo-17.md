@@ -1,0 +1,1 @@
+Artículo 17.- Programa de adquisiciones. La Proveeduría deberá publicar en el primer mes de cada período presupuestario, el Programa de Adquisiciones, además de sus eventuales modificaciones. Artículos 31 LGCP y 80 RLGCP.

@@ -1,0 +1,7 @@
+Artículo 32.- Materias excluidas de los procedimientos ordinarios de contratación. En lo referente a esta materia, la Unidad Solicitante o la Unidad Técnica deberá acreditar desde la Decisión Inicial la procedencia de las excepciones, dejando constancia de los motivos legales, técnicos y financieros que hacen de esta vía la mejor para la satisfacción del interés público.
+Además, la Unidad Solicitante o la Unidad Técnica deberá realizar cuando corresponda, un sondeo o estudio de mercado, que incluya la investigación exploratoria del mercado (oferta y demanda), para lo cual se considerará la información histórica disponible, gestionando información de fuentes primarias y secundarias, nacionales e internacionales, mediante diversos mecanismos de consulta y en general, utilizando todo aquel material y otros medios complementarios que permitan una mejor comprensión del producto o servicio por adquirir.
+Por su parte la Proveeduría deberá velar por el cumplimiento de todos los requisitos establecidos en el marco legal en la gestión de contrataciones en donde se recurra a una excepción, así como procurar el adecuado registro del uso de las excepciones en el sistema digital unificado.
+En cuanto a las competencias para adjudicar esta modalidad, la misma que supeditada a los topes de las cuantías según se detalla a continuación:
+. En el rango de una Licitación Mayor, el Concejo Municipal.
+. En el rango de una Licitación Menor, Alcalde.
+. En el rango de una Licitación Reducida, Proveeduría Municipal.

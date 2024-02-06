@@ -1,0 +1,1 @@
+Artículo 37.- Compra y Arrendamiento de bienes inmuebles. Cuando resulte efectivo y conveniente para los intereses de la Municipalidad, se podrá gestionar la compra o arrendamiento de bienes inmuebles. Artículos 67 LGCP y 167 RLGCP.

@@ -1,0 +1,1 @@
+Artículo 2.- Alcance. Este reglamento será aplicable, sin excepción, a todos los procedimientos de compra de bienes, servicios y obra desarrollados por la Municipalidad de Cartago, por medio de la Proveeduría.

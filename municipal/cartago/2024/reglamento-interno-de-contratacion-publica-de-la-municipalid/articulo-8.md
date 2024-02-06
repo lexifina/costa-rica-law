@@ -1,0 +1,13 @@
+Artículo 8.- Del Área Jurídica. La Dirección Jurídica tendrá las siguientes funciones relacionadas con los procesos de contratación:
+a) Otorgar, cuando corresponda el refrendo interno de los contratos administrativos, de conformidad con lo establecido en la normativa que regule la materia.
+b) Incluir en el sistema digital unificado de compras públicas, toda la información referente a los diferentes procedimientos de contratación administrativa donde tenga participación y en los plazos establecidos. Artículo 29 RLGCP.
+c) Revisar legalmente y elaborar los documentos necesarios, para la cesión de los contratos en ejecución, en coordinación con la Alcaldía, Proveeduría, y Administrador del Contrato. Artículo 102 LGCP y 278 RLGCP.
+d) Integrar el Comité Técnico de Proyectos Municipal, la cual será presidida por el Área de Planeamiento Municipal, recayendo en la persona de dicha Área que ostente el puesto de coordinador de proyectos Municipales.
+e) Determinar la viabilidad Legal de los proyectos de obra pública nueva, para lo cual deberá llevar a cabo la evaluación del proyecto, a fin de garantizar que cumpla con los requerimientos normativos para la fase de Pre-inversión en coordinación con el Administrador del proceso y el Área de Planeamiento Municipal. Artículos 178 RLGCP.
+f) Gestionar el otorgamiento de escrituras públicas, ante la notaría del Estado, cuando se trate de bienes sujetos a inscripción en el Registro Nacional. Artículo 274 RLGCP.
+g) Emitir el criterio jurídico de soporte a la Proveeduría institucional, respecto al contrato de bienes muebles, como equipo, maquinaria, con opción de compra, cuando la Administración requiera optar por contratos de arrendamiento operativo. Artículos 76 LGCP y 203 RLGCP, esto en los casos que se requiere.
+h) Coadyubar legalmente, con el Área Administrativa financiera, en materia de contratos de fideicomiso público. Artículo 79 LGCP y 216 RLGCP, cuando sea necesario.
+i) Coadyubar legalmente, con las dependencias intervinientes en el procedimiento licitatorio en materia de contratos de Concesión de instalaciones públicas. Artículo 83 LGCP y 227 RLGCP, esto en los casos que sea necesario.
+j) Atender en sede judicial y administrativa (Tribunal Contencioso Administrativo) o ante cualquier otra instancia externa a la Municipalidad, todo lo atinente en materia de contratación pública.
+k) Realizar la gestión de expropiaciones con los departamentos competentes en los proyectos de obra pública cuando sea necesario. Artículo 73 LGCP y 172 inciso e).
+l) Cualquier otra derivada de la Ley General de Contratación Pública, Nº 9986, su Reglamento y normativa conexa.
