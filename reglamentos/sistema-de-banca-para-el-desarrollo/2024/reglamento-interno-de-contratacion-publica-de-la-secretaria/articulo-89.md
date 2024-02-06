@@ -1,0 +1,1 @@
+Artículo 89°. Una vez firme la rescisión unilateral o por mutuo acuerdo, y de existir una liquidación económica a reconocer al contratista, el AC, en lo que corresponda, procederá tramitar el pago correspondiente, consignando el detalle de la liquidación en el expediente administrativo de la contratación.

@@ -1,0 +1,34 @@
+Artículo 13°. Competencias. Además de las competencias indicadas en el artículo 131 de la Ley 9986, así como cualquier otra función que le sea asignada en el presente reglamento, son funciones de la Proveeduría Institucional, las siguientes:
+1) Integrar y mantener actualizado el Programa de Adquisiciones que deberá divulgarse en el sistema digital unificado, al final de cada período presupuestario realizará una evaluación de la gestión de adquisición de bienes y servicios.
+2) Consolidar las adquisiciones de las diferentes dependencias, en casos de compras que pueden representar economías de escala o se puedan agrupar en objetos iguales o similares, de uso común y continuo, para lo cual, se debe definir la dependencia que gestionará de forma integrada estas adquisiciones, nombrando un único administrador de contrato quien integrará y gestionará los requerimientos que se agrupen.
+3) Emitir mediante comunicados los requisitos y procedimientos a cumplir en materia de contratación pública.
+4) Verificar que los procedimientos en materia de contratación pública sean conformes con la normativa vigente.
+5) Coordinar junto con la Unidad Usuaria involucrada todo el procedimiento relativo a las audiencias previas al pliego de condiciones, sean virtuales o presenciales, para lo cual deberá asignar a un funcionario para que asista en la audiencia y levante el acta correspondiente.
+7) Publicar el pliego de condiciones y tramitar el procedimiento de contratación pública hasta la emisión del contrato, pedido o formalización contractual.
+8) Revisar, analizar, publicar o comunicar el pliego de condiciones y verificar que la contratación esté incluida en el Programa de Adquisiciones.
+9) Publicar en el sistema que corresponda, las audiencias virtuales, así como las invitaciones en los procedimientos de contratación, aclaraciones, modificaciones, y cualquier otra comunicación que se requiera.
+10) Recibir las ofertas y proceder a su apertura.
+11) Verificar que los oferentes se encuentran al día con sus obligaciones obrero-patronales, para lo cual se hará la consulta respectiva en la página electrónica de la Caja Costarricense de Seguro Social (CCSS), adjuntando el reporte en el expediente según corresponda. En el supuesto de que no aparezcan en el sistema o bien que se encuentren morosos, deberá recomendar a la parte técnica correspondiente actuar conforme lo dispuesto en los Lineamientos para la aplicación de los incisos 1 y 3 del artículo 74 de la Ley Constitutiva de la Caja Costarricense de Seguro Social.
+12) Verificar en la página del Ministerio de Hacienda que el oferente que resulte recomendado se encuentre al día en sus obligaciones tributarias.
+13) Dictar el acto final de adjudicación, declaración desierta o infructuosa en las licitaciones, procedimientos especiales, de excepción o contrataciones que haya definido en el presente reglamento. En aquellos casos en que no le corresponde emitir el acto final, deberá preparar y remitir la recomendación correspondiente al órgano competente.
+14) Aprobar las prórrogas de la fecha máxima para el acto final para todos los procedimientos de contratación pública cuando se requiera.
+15) Resolver los recursos de objeción a los pliegos de condiciones, así como los de revocatoria cuando corresponda y coordinar la resolución de cualquier recurso cuando no tenga competencia para resolverlos. Asimismo, debe preparar y remitir al órgano competente la recomendación para la respuesta a los recursos que corresponda.
+16) Garantizar que los mecanismos para el reajuste y actualización de precios sean incluidos en los diferentes pliegos de condiciones de las contrataciones y cumplan con lo dispuesto por la Autoridad y dirección de Contratación Pública.
+17) Comprobar el cumplimiento del pago y garantizar el debido seguimiento a las garantías rendidas por los adjudicatarios en los diversos procedimientos de contratación, recomendando en el ámbito interno de la Institución lo pertinente en punto a su ejecución o devolución, según corresponda.
+18) Servir de enlace oficial en las gestiones que deban realizarse con la Contraloría General de la República y la Dirección de Contratación Pública del Ministerio de Hacienda, en coordinación con las dependencias que correspondan.
+19) Comunicar a la Dirección de Contratación Pública todas y cada una de las sanciones que imponga a particulares.
+20) Colaborar con el Proceso Gestión del Conocimiento para que los funcionarios involucrados en los procesos de contratación pública reciban una adecuada capacitación y actualización en la materia correspondiente.
+21) Coordinar con el AC para mantener a derecho en todos sus términos las garantías, así como realizar los trámites necesarios para su ejecución o devolución, según lo establecido en la normativa vigente.
+22) Realizar en coordinación con la Asesoría Legal las intimaciones de cobro a los contratistas en el caso de saldos al descubierto.
+23) Dirigir los procedimientos de donaciones y emitir las recomendaciones que correspondan, para lo cual se conformará el expediente respectivo, el cual podrá ser digital. Todo conforme a lo establecido en el presente reglamento.
+24) Dirigir los procedimientos de remates y subastas que promueva la Institución, según los términos establecidos en los artículos 64 y 65 de la Ley 9986.
+25) Verificar la utilización de medios electrónicos y digitales en los procedimientos de compra y en los procedimientos administrativos, aplicando para esos efectos el sistema digital unificado y su reglamento.
+26) Confeccionar y modificar los contratos electrónicos y las órdenes de pedido, según corresponda.
+27) Subsanar de oficio errores materiales que se presenten en la documentación que se genere en los procedimientos de contratación pública.
+28) Atender consultas que le formulen las diversas personas públicas o privadas relacionadas con sus funciones.
+29) Proceder cuando corresponda, en coordinación con las Unidades Usuarias y los técnicos de la institución, con las labores de recepción y almacenamiento de bienes que ingresen a la Institución.
+30) Emitir los lineamientos internos para la institución, relacionado a las compras públicas, acatando los lineamientos emitidos por la Autoridad y Dirección de Contratación Pública.
+31) Velar por el mejoramiento continuo de los procesos de la contratación pública, así como de almacenamiento, distribución, tráfico de bienes, el levantamiento y la confección del inventario de todos sus bienes en caso de que corresponda.
+32) Ejercer el control adecuado de los inventarios de bienes muebles, inmuebles.
+33) tramitar y dirigir los procedimientos de contratación pública, incluyendo los de la Auditoría Interna, pudiendo, entre otras cosas, solicitar a los participantes las aclaraciones y subsanaciones correspondientes.
+34) Cualquier otra que se desprenda de este reglamento o la demás normativa aplicable.

@@ -1,0 +1,4 @@
+Artículo 9°. Recurso de Revocatoria o Apelación
+El recurso de revocatoria procede contra el acto final de la licitación menor o de licitación reducida, contra del acto final del procedimiento de subasta inversa electrónica, de la nueva adjudicación en suministros de bienes y servicios, de la nueva adjudicación en obra y serán resueltos por el órgano que haya emitido el acto final.
+En el caso del recurso de apelación procederá contra el acto de adjudicación, el que declara desierta o infructuosa una licitación mayor y corresponde su resolución a la Contraloría General de la República.
+Las resoluciones de ejecución de garantía de cumplimiento, de aplicación de multas y de cláusulas penales y resolución contractual serán emitidas por el órgano que haya emitido el acto final. Tendrán recurso de revocatoria ante la misma instancia y apelación ante el superior jerárquico.

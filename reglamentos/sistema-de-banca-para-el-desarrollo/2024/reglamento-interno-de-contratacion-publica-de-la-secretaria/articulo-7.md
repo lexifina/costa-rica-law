@@ -1,0 +1,2 @@
+Artículo 7°. Declaratoria de Desierto o Infructuoso
+En el caso de que no se presenten ofertas la declaratoria de infructuoso será automática a través del sistema Digital unificado. Cuando se presenten ofertas y no cumplan con los requisitos o se requiera llevar a cabo la declaración de desierto, el competente para dictar el acto final motivado será el mismo funcionario u órgano que tiene la competencia para adjudicar.

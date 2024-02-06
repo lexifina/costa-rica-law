@@ -1,0 +1,1 @@
+Artículo 58°. Donación de bienes muebles entre instituciones de la Administración Pública. La donación de bienes muebles entre instituciones de la Administración Pública es posible en el tanto la donación tenga por objeto la satisfacción del interés público. La decisión deberá ser adoptada por el Comité de Adquisiciones.

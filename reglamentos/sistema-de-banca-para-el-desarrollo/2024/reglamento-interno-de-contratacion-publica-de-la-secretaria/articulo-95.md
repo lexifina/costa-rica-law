@@ -1,0 +1,1 @@
+Artículo 95°. Este Reglamento no deroga el Reglamento Interno de Contratación Administrativa y Enajenación de Bienes, el cual se continuará aplicando a aquellos procedimientos de contratación vigentes antes de la entrada en vigor de la Ley General de Contratación Pública.

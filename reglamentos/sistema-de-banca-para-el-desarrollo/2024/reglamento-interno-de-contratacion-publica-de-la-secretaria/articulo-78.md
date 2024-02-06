@@ -1,0 +1,1 @@
+Artículo 78°. Cesión. Las cesiones de contrato establecidas en los artículos 102 de la Ley 9986, serán autorizadas por la Dirección Ejecutiva, las cuales requerirán contar con el criterio legal de la Asesoría Jurídica.

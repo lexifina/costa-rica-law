@@ -1,0 +1,2 @@
+Artículo 49°. Nueva adjudicación en suministros, servicios y obras. La aplicación de estas figuras se regirá por lo dispuesto en los artículos 53 y 54 de la Ley General de Contratación Pública.
+Para el caso de suministros y servicios, la Proveeduría Institucional, deberá realizar una nueva recomendación de adjudicación, donde acredite el cumplimiento de los presupuestos establecidos en los artículos citados, sea que la oferta recomendada cumple, adjuntando un estudio de razonabilidad de precios y la anuencia del oferente de ejecutar lo que resta del contrato.

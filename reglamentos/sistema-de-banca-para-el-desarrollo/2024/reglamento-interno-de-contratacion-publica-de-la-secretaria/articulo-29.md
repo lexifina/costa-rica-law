@@ -1,0 +1,7 @@
+Artículo 29°. Programa de Adquisiciones. Los Jefes, Coordinadores y Directores, según corresponda, prepararán las adquisiciones de cada área, que deba incluirse en el Programa de Adquisiciones en conjunto con su presupuesto en el periodo designado para esto por parte del área de Planificación Institucional, en el formato y tiempo establecido.
+En este Programa deberán procurar consolidar sus requerimientos de consumo a fin de que se promuevan procedimientos de compra que aseguren los mejores precios y las mejores condiciones de eficiencia, eficacia y economías de escala a lo interno.
+En caso de requerirse algún ajuste al Programa de Adquisiciones remitido, la Proveeduría Institucional solicitará la aprobación a la Dirección Ejecutiva quien posteriormente informará al Consejo Rector del Sistema de Banca para el Desarrollo.
+Este programa anual deberá estar aprobado en el primer mes de cada año, para su debida publicación en el Sistema Digital Unificado y seguimiento por parte de la Proveeduría Institucional.
+Para el uso de alertas tempranas reguladas en el artículo 31 de la Ley General de Contratación Pública y su reglamento, el AC deberá coordinar con la Proveeduría Institucional para su publicación en el Sistema Digital Unificado.
+La realización de alertas tempranas no implica una obligación de promover el procedimiento.
+Al inicio del trámite de una contratación, la Proveeduría Institucional verificará que concuerde con el Programa de Adquisiciones original o modificado.

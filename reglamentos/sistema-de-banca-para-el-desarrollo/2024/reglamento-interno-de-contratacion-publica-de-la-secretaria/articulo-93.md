@@ -1,0 +1,1 @@
+Artículo 93° Sanciones a Funcionarios Públicos. De conformidad con lo establecido en el artículo 127 de la Ley General de Contratación Pública, en caso de que la sanción sea impuesta por la Secretaría Técnica de Banca para el Desarrollo, se tramitará conforme a lo dispuesto a la normativa interna.

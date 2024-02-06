@@ -1,0 +1,1 @@
+Artículo 92°. La Proveeduría Institucional por medio del Órgano Director del Procedimiento Administrativo que se designe, dará inicio al procedimiento de inhabilitación de conformidad con el procedimiento que establece el artículo 121 de la Ley General de Contratación Pública.

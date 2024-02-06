@@ -1,0 +1,5 @@
+Artículo 53°. Procedimiento de Urgencia. La contratación de urgencia es un procedimiento especial que permite adquirir bienes, obras o servicios cuando enfrente una situación urgente independiente de las causas que la originaron y así evitar lesiones al interés público daños graves a las personas o irreparables a las cosas.
+La dependencia técnica solicitante deberá aportar la justificación detallada de la causa que origina la utilización de este procedimiento especial.
+Aquellos casos en que la situación deba ser atendida con una única propuesta, será el Director Ejecutivo o en su ausencia el superior jerárquico de la dependencia solicitante, el competente para acreditar en el expediente las razones especiales que así lo justifican.
+En casos de suma urgencia que amenacen la continuidad del servicio que se brinda se podrá realizar de forma previa la contratación y posteriormente registrar la información de esta en el Sistema Digital Unificado, para lo cual deberá contar además con la autorización previa suscrita y motivada por la Dirección Ejecutiva.
+En estas contrataciones de urgencia no procederá recurso ni refrendo alguno.

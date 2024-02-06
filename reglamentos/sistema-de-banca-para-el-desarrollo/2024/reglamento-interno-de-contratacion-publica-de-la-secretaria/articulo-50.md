@@ -1,0 +1,2 @@
+Capítulo XV Procedimientos Ordinarios
+Artículo 50°. Licitaciones La competencia para la decisión que da inicio al procedimiento de contratación será conforme al Artículo 5° de este Reglamento. La acreditación de los requisitos que se regulan en los artículos 56 al 63 de la Ley de Contratación Pública, para los diferentes tipos de procedimientos de licitación, deberán ser verificados por la Proveeduría Institucional a efecto de que se cumplan en su totalidad.

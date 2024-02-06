@@ -1,0 +1,1 @@
+Artículo 31°. Dentro del mes siguiente a finalizar cada período presupuestario, la Dirección Proveeduría hará una evaluación de la gestión de adquisición de bienes y servicios relacionándola con el Programa de Adquisiciones. Dicha evaluación incluirá las recomendaciones que la Proveeduría Institucional considere pertinentes.

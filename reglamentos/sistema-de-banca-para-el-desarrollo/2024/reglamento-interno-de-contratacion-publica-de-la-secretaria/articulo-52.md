@@ -1,0 +1,3 @@
+Capitulo XVI Procedimientos Extraordinarios y de Urgencia
+Artículo 52°. Subasta Inversa Electrónica. La subasta inversa electrónica es un procedimiento extraordinario al que puede recurrir alternativamente la Administración cuando se trate de la venta de bienes y servicios comunes y estandarizados o la compra de tecnología que reúna tales requisitos. La Proveeduría Institucional se encargará de instruir la subasta en el Sistema Digital Unificado y tendrá la competencia para adjudicar sin límite de monto. La subasta se tendrá por perfeccionada en el momento en que se cuente con el monto por concepto de garantía de cumplimiento.
+La subasta se regirá por lo establecido en el artículo 65 de la Ley General de Contratación Pública.

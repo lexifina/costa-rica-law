@@ -1,0 +1,10 @@
+Capitulo XI. Equilibrio Económico del Contrato
+Artículo 39°. Derecho al Mantenimiento del Equilibrio Económico del Contrato. Cuando el reajuste o revisión de precios se efectúe a solicitud expresa del contratista se aplicará el siguiente procedimiento:
+a) La solicitud se deberá presentar a la Proveeduría Institucional con al menos la siguiente información: El desarrollo de la fórmula matemática, los índices utilizados oficiales o certificados cuando así corresponda, la estructura de costos, el número de contratación, una breve descripción del objeto del contrato.
+b) La Proveeduría Institucional en coordinación con el AC y la dependencia técnica cuando corresponda analizarán los documentos y justificaciones y se emitirá un criterio técnico y recomendación debidamente motivada, sobre la procedencia o no de los cálculos relativos a reajustes o revisiones de precios.
+c) Cuando se trate de un reclamo administrativo ante situaciones de desequilibrio económico que no estén previstas en las formas de reajuste o revisión de precio, el contratista deberá aportar toda la documentación y prueba idónea en la que sustenta el reclamo, la cual será valorada por la Proveeduría Institucional en coordinación con el AC.
+En todos los casos la documentación deberá estar incorporada en el expediente administrativo correspondiente.
+Cuando el reajuste o revisión de precios se efectúe a solicitud de la Administración se aplicará el siguiente procedimiento:
+a) El AC en coordinación con la dependencia técnica estimarán el monto a reajustar o revisar de acuerdo con el desarrollo de la fórmula matemática, los índices utilizados oficiales o certificados cuando así corresponda.
+b) El AC trasladará el cálculo al contratista otorgando una audiencia de 5 días hábiles para que emita su criterio, aportando las pruebas de descargo que estime pertinentes.
+c) El AC presentarán su criterio técnico y recomendación ante la Proveeduría Institucional, dependencia que rendirá en un plazo máximo de diez días hábiles, una recomendación debidamente motivada, sobre la procedencia o no de los cálculos relativos a reajustes o revisiones de precios.

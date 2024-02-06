@@ -1,0 +1,1 @@
+Artículo 66°. Una vez que sean remitidos los respectivos pronunciamientos o cuando el mismo sea conjunto, la Proveeduría Institucional en conjunto con la Asesoría Legal deberán elaborar y coordinar el envío de la respuesta al Órgano Contralor cumpliendo con el plazo concedido por éste.

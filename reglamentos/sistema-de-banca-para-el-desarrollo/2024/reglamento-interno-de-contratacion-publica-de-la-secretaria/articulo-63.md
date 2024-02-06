@@ -1,0 +1,3 @@
+Artículo 63°. Si el recurso es interpuesto en una licitación menor o alguno de los procedimientos especiales establecidos en los artículos 68, 69 y 70 de la Ley 9986, la Proveeduría Institucional solicitará el dictamen técnico, cuando corresponda, dentro del día hábil siguiente a su presentación; quienes tendrán un plazo de dos días hábiles para emitir su criterio. La Proveeduría Institucional y la Asesoría Jurídica prepararan la resolución correspondiente dentro del plazo establecido.
+En casos de improcedencia manifiesta o de inadmisibilidad del recurso, la Proveeduría Institucional podrá rechazarlo de plano.
+El competente para resolver recursos de objeción presentados ante la Administración es la Proveeduría Institucional.

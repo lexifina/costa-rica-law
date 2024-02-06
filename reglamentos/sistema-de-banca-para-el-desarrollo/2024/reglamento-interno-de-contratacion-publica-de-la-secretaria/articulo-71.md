@@ -1,0 +1,1 @@
+Artículo 71°. La Proveeduría Institucional y la Asesoría Legal deberán remitir recomendación al órgano competente para que en emita el acto final del recurso dentro del plazo establecido en la Ley 9986.

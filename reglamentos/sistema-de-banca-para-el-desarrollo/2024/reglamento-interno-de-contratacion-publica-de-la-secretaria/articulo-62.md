@@ -1,0 +1,1 @@
+Artículo 62°. Corresponde a la Proveeduría Institucional y a la Asesoría Legal integrar y coordinar el envío de la respuesta a la Contraloría General de la República dentro del plazo de la audiencia. Una vez recibida la resolución final por parte de la Contraloría, la Proveeduría Institucional dentro del día hábil siguiente comunicará lo resuelto.
