@@ -13,3 +13,4 @@ Disposiciones sobre la aplicación del teletrabajo en la Jurisdicción Civil y c
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-12-20 | la propia norma |
+| 2 | 2024-02-06 | Circular 30 (2024-02-06) |
