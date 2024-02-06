@@ -1,1 +1,1 @@
-Artículo 104.-Los requisitos que debe cumplir cada categoría de los Establecimientos Médico Veterinarios, los servicios que puede brindar y sus normas de funcionamiento, serán regulados en el Reglamento Interno que con este fin aprobará la Asamblea General.
+Artículo 104.- (Derogado por el artículo 7° del decreto ejecutivo N° 44394 del 6 de febrero del 2024, “Establece la implementación del personal inspector oficial u oficializado por el SENASA en establecimientos de sacrificios de animales; otras medidas de control en establecimientos de productos de origen animal”)

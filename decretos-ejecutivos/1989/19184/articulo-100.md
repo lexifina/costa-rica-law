@@ -1,1 +1,1 @@
-Artículo 100.-La Fiscalía debe vigilar y velar que los establecimientos citados en los artículos 106 y 107 cumplan con lo estipulado en la Ley Orgánica, los Decretos Ejecutivos, los Reglamentos y Códigos Internos de la Medicina Veterinaria.
+Artículo 100.-(Derogado por el artículo 7° del decreto ejecutivo N° 44394 del 6 de febrero del 2024, “Establece la implementación del personal inspector oficial u oficializado por el SENASA en establecimientos de sacrificios de animales; otras medidas de control en establecimientos de productos de origen animal”)

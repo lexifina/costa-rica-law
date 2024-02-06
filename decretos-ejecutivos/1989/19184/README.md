@@ -15,3 +15,4 @@ Reglamento de Ley Orgánica del Colegio de Médicos Veterinarios
 | 1 | 1989-09-21 | la propia norma |
 | 2 | 1989-09-21 | Decreto Ejecutivo 19369 (1989-11-20) |
 | 3 | 2020-07-08 | SINALEVI (sin norma nombrada) |
+| 4 | 2024-02-06 | Decreto Ejecutivo 44394 (2024-02-06) |

@@ -1,12 +1,4 @@
 CAPITULO XVI
 DE LOS ESTABLECIMIENTOS MEDICO
 VETERINARIOS
-Artículo 102.-Son Establecimientos Médico Veterinarios los siguientes:
-a. Hospitales Veterinarios;
-b. Clínicas Veterinarias;
-c. Consultorios Veterinarios;
-d. Maternidades Veterinarias;
-e. Veterinarias Básicas;
-f. Laboratorios Veterinarios;
-g. Móviles Veterinarias;
-h. Oficinas de Asesoría y Consultoría Veterinarias;
+Artículo 102.- (Derogado por el artículo 7° del decreto ejecutivo N° 44394 del 6 de febrero del 2024, “Establece la implementación del personal inspector oficial u oficializado por el SENASA en establecimientos de sacrificios de animales; otras medidas de control en establecimientos de productos de origen animal”)

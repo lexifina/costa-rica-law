@@ -1,1 +1,1 @@
-Artículo 103.-Todos los Establecimientos Médico Veterinarios deberán inscribirse y renovar el registro anualmente en el Colegio; la Fiscalía vigilará todo lo concerniente con estos establecimientos.
+Artículo 103.- (Derogado por el artículo 7° del decreto ejecutivo N° 44394 del 6 de febrero del 2024, “Establece la implementación del personal inspector oficial u oficializado por el SENASA en establecimientos de sacrificios de animales; otras medidas de control en establecimientos de productos de origen animal”)
