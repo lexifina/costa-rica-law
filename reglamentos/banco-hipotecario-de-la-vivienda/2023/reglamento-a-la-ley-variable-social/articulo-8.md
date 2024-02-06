@@ -1,0 +1,1 @@
+Artículo 8º-Población meta: Los procesos de acompañamiento social financiados con fondos del FOSUVI, están dirigidos a las personas y núcleos familiares que forman parte de la población potencial beneficiaria de proyectos de interés social financiados.

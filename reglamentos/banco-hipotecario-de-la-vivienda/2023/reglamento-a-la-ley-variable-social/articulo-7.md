@@ -1,0 +1,1 @@
+Artículo 7º-Exclusiones de programas: Se excluye de la aplicación de este reglamento los casos de BFV aprobados por la Junta Directiva del BANHVI, para casos individuales en cualquiera de sus modalidades y los bonos colectivos o comunales.

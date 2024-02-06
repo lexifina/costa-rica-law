@@ -1,0 +1,1 @@
+Artículo 9º-Financiamiento: El financiamiento de los procesos de acompañamiento social provendrá del presupuesto anual del FOSUVI, no pudiendo exceder del 1% del mismo. El BANHVI definirá las condiciones operativas para incluir este financiamiento en cada proyecto de vivienda de interés social.

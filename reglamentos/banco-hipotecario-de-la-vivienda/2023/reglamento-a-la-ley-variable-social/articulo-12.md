@@ -1,0 +1,1 @@
+Artículo 12.-Prohibición para la persona gestora y ED o EC: La persona gestora social ni la ED o EC, podrán reproducir con fines lucrativos el material o las capacitaciones correspondientes al acompañamiento social indicado en esta normativa o generado con recursos del Sistema Financiero Nacional para la Vivienda.

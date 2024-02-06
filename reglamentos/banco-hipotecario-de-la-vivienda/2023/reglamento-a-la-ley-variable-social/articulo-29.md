@@ -1,0 +1,1 @@
+Artículo 29.-Acatamiento: Este reglamento es de acatamiento obligatorio para todos los sujetos responsables en la gestión social, según las indicaciones particulares normadas en este documento y sus disposiciones serán aplicables a todos los proyectos de vivienda de interés social que sean aprobados por el BANHVI a partir de la publicación del presente Reglamento.
