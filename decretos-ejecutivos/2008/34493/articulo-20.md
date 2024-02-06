@@ -1,1 +1,0 @@
-Artículo 20.—Actos adicionales. Cuando una entidad considere que se requiere por parte del LANASEVE de un acto administrativo en particular para la consecución de lo establecido de este reglamento, deberá dirigirse al SENASA con las motivaciones del caso, quien actuará en consecuencia.

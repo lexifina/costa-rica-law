@@ -1,1 +1,0 @@
-Artículo 26.—Ensayos Limitados. Los ensayos para documentar diagnósticos de plagas y enfermedades de combate estatal obligatorio o particular obligatorio solo podrán ser efectuados por laboratorios con ensayos oficializados. El SENASA no podrá recurrir a laboratorios de primera o segunda parte para certificar mercancías de exportación cuando el país receptor así lo solicite.

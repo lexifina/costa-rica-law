@@ -1,1 +1,0 @@
-Artículo 9º—Lineamientos Internacionales. Los ensayos oficializados deben someterse a los lineamientos de LANASEVE, preferiblemente basados en guías internacionales a las cuales Costa Rica se ha comprometido a cumplir, especialmente normas de calidad y directrices de la OIE.
